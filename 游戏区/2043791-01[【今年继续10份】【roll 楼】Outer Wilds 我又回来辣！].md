@@ -3404,3 +3404,17 @@ epic之前打折入手了一份
 
 感谢楼主，去年打完本体正好想试试dlc<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mhss  
+##### 407#       发表于 2023-1-1 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59167091&amp;ptid=2043791" target="_blank">heseran 发表于 2023-1-1 19:42</a>
+
+随机出398，我正好是399，什么运气</blockquote>
+我离356也差一楼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过回完贴才发现要加好友才能送游戏，我steam一直是一个人当单机平台玩从没加过人<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
