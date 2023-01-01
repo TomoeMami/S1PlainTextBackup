@@ -2053,3 +2053,16 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 —— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Mr.5  
+##### 196#       发表于 2023-1-1 22:56
+
+趁打折在steam上买了，画质拉到最低勉强能带的动。
+刚开始在零重力洞窟的修理训练，我和那个矿工的感受完全一样<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+升空后先去了碎空星，两次都不小心被吸入然后耗尽氧气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在躺在床上才想起来我可以把照相机发射到碎空星北极那个悬空城入口里去拍点照片<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
