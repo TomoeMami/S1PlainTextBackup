@@ -3179,3 +3179,12 @@ c狐是boss战MVP
 
 没必要删号吧，bgo我也断断续续afk两年就想起来登一下，后面还是某天捡起来玩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 44096#       发表于 2023-1-1 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">虽然现在可以种树了，但是每日任务完成有茶壶，后面巴巴托斯可以用
+

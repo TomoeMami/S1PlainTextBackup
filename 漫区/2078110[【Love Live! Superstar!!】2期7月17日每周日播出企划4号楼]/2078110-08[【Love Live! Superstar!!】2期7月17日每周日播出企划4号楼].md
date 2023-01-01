@@ -3041,3 +3041,14 @@ payton尚未学会拍照
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10769#       发表于 2023-1-1 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59165590&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-1 17:11</a>
+两年了，pay的拍照技术还有很大上升空间</blockquote>
+payton尚未学习拍照
+
