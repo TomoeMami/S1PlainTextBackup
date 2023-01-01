@@ -3140,3 +3140,12 @@ c狐是boss战MVP
 
 明年上半年最多2500dl抽个杨玉环，圆一下这两次福袋都没抽到的怨念。之后就准备下半年了。看了明年周年后有新从者的卡池，才发现我只有唠唠叨叨不准备抽。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 44092#       发表于 2023-1-1 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么要删号 删游戏扔那不就得了 
+
