@@ -13656,3 +13656,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 什么不是?打扰了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡萌新 明明目前就你最欧
 
+
+
+*****
+
+####  eilot  
+##### 4236#       发表于 2023-1-1 14:17
+
+再抽多90石，
+
+4星パーシヴァル，也宝5了
+
+留了200石准备抽金闪闪池或麻雀池
+
