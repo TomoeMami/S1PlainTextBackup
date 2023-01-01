@@ -3170,3 +3170,12 @@ c狐是boss战MVP
 决定退坑，删号，4年多160级，上百个五星，1张满破宝石，1张6090，1张满破黑杯。注销账号才发现绑定的我妈 ...</blockquote>
 不至于不至于，哪天想上了可以看看就好啊，删号不至于。
 
+
+
+*****
+
+####  Ousia  
+##### 44095#       发表于 2023-1-1 17:52
+
+没必要删号吧，bgo我也断断续续afk两年就想起来登一下，后面还是某天捡起来玩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
