@@ -3306,3 +3306,44 @@ epic之前打折入手了一份
 
 什么时候才能变成分子呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redstarence  
+##### 401#         楼主| 发表于 2023-1-1 18:38
+
+感谢各位谭友！！
+
+以下是中奖名单，请各位PM我 steam 好友链接：
+
+@宇宙之心 
+
+@近月 
+
+@Quelaan 
+
+@矢量路比 
+
+@hiiroimatsu 
+
+@曼陀罗肥 
+
+@sosolala 
+
+@彩虹肥宅 
+
+@ACFUNBILI 
+
+@Luc 
+
+奖品是 Outer Wilds - Archaeologist Edition（国区礼物），包含游戏本体及眼之回想DLC哈
+
+<img src="https://img.saraba1st.com/forum/202301/01/183919wfufkvt1zbruhfrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-1 18:39 上传
+

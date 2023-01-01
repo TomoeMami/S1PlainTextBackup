@@ -3188,3 +3188,12 @@ c狐是boss战MVP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">虽然现在可以种树了，但是每日任务完成有茶壶，后面巴巴托斯可以用
 
+
+
+*****
+
+####  dawning  
+##### 44097#       发表于 2023-1-1 18:33
+
+bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
