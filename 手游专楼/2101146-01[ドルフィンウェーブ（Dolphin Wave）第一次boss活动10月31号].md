@@ -87,3 +87,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这衣服真不错，满意了
 
+
+
+*****
+
+####  无念  
+##### 222#       发表于 2023-1-1 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">背水卡满破居然只是从20涨到25
+果然白送没好货
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
