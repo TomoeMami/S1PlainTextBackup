@@ -2077,3 +2077,53 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Meltina  
+##### 198#       发表于 2023-1-2 02:13
+
+ 本帖最后由 Meltina 于 2023-1-2 02:16 编辑 
+
+我连DLC一起买的，启动游戏后标题就显示眼之回声，我现在选开始游戏开始的本篇吗？一开始叫我去拿什么发射器密码的（其实就想知道怎么保证先打完本篇再去DLC的）
+
+*****
+
+####  redstarence  
+##### 199#       发表于 2023-1-2 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59170240&amp;ptid=2111876" target="_blank">Meltina 发表于 2023-1-2 02:13</a>
+我连DLC一起买的，启动游戏后标题就显示眼之回声，我现在选开始游戏开始的本篇吗？一开始叫我去拿什么发射 ...</blockquote>
+DLC入口是独立的，直接进本篇不会立刻进DLC
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  若闲  
+##### 200#       发表于 2023-1-2 03:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59129491&amp;ptid=2111876" target="_blank">chdhdhd 发表于 2022-12-29 14:57</a>
+dlc没玩到，如果无文本化是选择了正确的方向。
+
+本体文本你要说克不克制，肯定克制，我玩的部分也能感觉到 ...</blockquote>
+人名几乎是完完全全不重要的信息，重要的只有内容，而这些内容全都可以简化成一行字或一个图片，并且就给你放在飞船日志上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+如果你不知道去哪或漏了什么，看一下日志就行了
+
+*****
+
+####  若闲  
+##### 201#       发表于 2023-1-2 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59143868&amp;ptid=2111876" target="_blank">mccleaner 发表于 2022-12-30 19:05</a>
+只有一个原因：不好玩。
+
+云通关了，没什么特别的波澜。</blockquote>
+确实是要对电波，不过这个游戏可能是自己玩跟云差别最大的那类游戏了。
+
+我玩的时候被深巨星大龙卷扔到宇宙又掉回大气层，远远看到北极巨龙卷遮天蔽日的气层，脑子都是麻的；然后飞船搞丢了在海上躲龙卷风游啊游，低头潜个水发现海底深处隐约有个极其巨大的影子，瞬间整个人都吓懵了，手柄一动不敢动。
+
+同时我女朋友在边上，特别奇怪，表示这有啥，反正死不了…
+我只能说，这可能是游戏这个可互动性媒介与其他艺术的差别的真实体现吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
