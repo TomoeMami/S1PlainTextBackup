@@ -3149,3 +3149,12 @@ c狐是boss战MVP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么要删号 删游戏扔那不就得了 
 
+
+
+*****
+
+####  DET33  
+##### 44093#       发表于 2023-1-1 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">这游戏退坑也算脱离苦海了
+
