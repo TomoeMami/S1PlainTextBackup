@@ -3094,3 +3094,20 @@ c狐是boss战MVP
 
 必须打完2.6才能打的通古斯就这？水平不如1.5，什么屎一样的剧情、人物塑造，服气<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 44087#       发表于 2023-1-1 10:46
+
+接下来的上半年要抽的卡个人心水的就巴姐和大黑天。下半年倒是强度连发，公主+泳装三连。
+麻婆一看就不怎么行，倒是可以省石头了。另外小麻雀可以算是过去日服一年之内没UP的老卡了（元旦卡池那时已经是新一年了）
+
+*****
+
+####  qixinno2  
+##### 44088#       发表于 2023-1-1 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的石头加呼符 暗狐变2宝了 勉强能用了
+
