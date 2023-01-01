@@ -404,3 +404,14 @@ valve的硬件有出过二代么</blockquote>
 是整个游戏还是着色器缓存?</blockquote>
 整个游戏，之后更新系统复现了两次，就很怪
 
+
+
+*****
+
+####  lucky95  
+##### 2028#       发表于 2023-1-1 14:01
+
+几时出个6800U的，功耗比几乎翻倍了，感觉能打很多年
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
