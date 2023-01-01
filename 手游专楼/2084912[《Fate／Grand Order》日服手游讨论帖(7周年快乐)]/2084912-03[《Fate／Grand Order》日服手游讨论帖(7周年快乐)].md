@@ -13697,3 +13697,17 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 （我记得当初他被老虚逼着练了好久才画出沙耶来，进N+是因为善于画怪物...）
 
+
+
+*****
+
+####  alucardcz  
+##### 4239#       发表于 2023-1-1 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59166838&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-1 19:18</a>
+
+中央东口认领了恐龙们，看来他还是不愿意画美少女
+
+（我记得当初他被老虚逼着练了好久才画出沙耶来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是别画了  当年妖人如果换个好点的画师说不定能火个几十倍
+
