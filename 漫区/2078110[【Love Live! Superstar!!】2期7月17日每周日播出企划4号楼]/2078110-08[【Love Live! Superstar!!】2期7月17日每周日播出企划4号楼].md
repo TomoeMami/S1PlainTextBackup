@@ -2902,3 +2902,15 @@ LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活
 
 00：51是鱼【Lantis 艺人新年祝贺-哔哩哔哩】 [https://b23.tv/JPV1Z82](https://b23.tv/JPV1Z82)
 
+
+
+*****
+
+####  仟音一心  
+##### 10754#       发表于 2023-1-1 12:04
+
+twi：_CelticWhite_
+<img src="https://p.sda1.dev/9/cd0aac7906d46b7b23baee9a8309b654/CMP_20230101120348552.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/447678997dfa43329ee597e7d1420879/CMP_20230101120348596.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/55a0dd044d47bc1bece5ca4ce745da4d/CMP_20230101120348639.jpg" referrerpolicy="no-referrer">
+
