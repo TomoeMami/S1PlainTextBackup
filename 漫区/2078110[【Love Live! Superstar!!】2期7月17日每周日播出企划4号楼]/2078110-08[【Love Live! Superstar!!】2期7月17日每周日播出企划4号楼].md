@@ -3395,3 +3395,14 @@ Pay穿的就是Nagi的衣服！</blockquote>
 
 跟去年一样吧，直接过去睡觉，好耶
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10801#       发表于 2023-1-1 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播完才想起来强调下喝的是葡萄汁，就是不知道这葡萄汁含不含酒精。
+
+不过好像鱼在哪儿说过自己酒量不行？
+
