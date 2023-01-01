@@ -3418,3 +3418,12 @@ epic之前打折入手了一份
 
 不过回完贴才发现要加好友才能送游戏，我steam一直是一个人当单机平台玩从没加过人<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lunamos  
+##### 408#       发表于 2023-1-1 21:05
+
+其实这游戏跟泥潭多少有点关系，毕竟直接翻译过来叫“外野”。
+
