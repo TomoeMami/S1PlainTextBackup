@@ -2454,3 +2454,34 @@ ok
 
 这前奏起来  这。。这海猫风格味好浓
 
+
+
+*****
+
+####  回转企鹅罐  
+##### 3211#       发表于 2023-1-1 17:24
+
+ 本帖最后由 回转企鹅罐 于 2023-1-1 17:28 编辑 
+
+编辑了，问题解决了
+
+QQ图片20230101172411.jpg
+(185.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-1 17:24 上传
+
+卡死
+
+<img src="https://img.saraba1st.com/forum/202301/01/172435pmjsx5s378vgb5gk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  woshenc  
+##### 3212#       发表于 2023-1-1 17:25
+
+59小时50分钟，全成就通关
+
+最终boss真大<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

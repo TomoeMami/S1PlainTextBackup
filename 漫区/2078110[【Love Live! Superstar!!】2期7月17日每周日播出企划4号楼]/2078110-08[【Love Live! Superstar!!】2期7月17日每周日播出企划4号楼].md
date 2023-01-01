@@ -3029,3 +3029,15 @@ payko怎么拍出来的照片这么糊，什么直男拍照<img src="https://sta
 payko怎么拍出来的照片这么糊，什么直男拍照</blockquote>
 两年了，pay的拍照技术还有很大上升空间
 
+
+
+*****
+
+####  ruffian  
+##### 10768#       发表于 2023-1-1 17:28
+
+草，我以为pay在倒酒，居然是在用前置摄像头给鱼拍照，这么拍能不糊吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+payton尚未学会拍照
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
