@@ -13678,3 +13678,22 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头抽麻婆，上手11连歪源为朝
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4238#       发表于 2023-1-1 19:18
+
+<img src="https://img.saraba1st.com/forum/202301/01/191641y9ljzs1pvglgnszf.png" referrerpolicy="no-referrer">
+
+<strong>1672571774745.png</strong> (66.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-1 19:16 上传
+
+中央东口认领了恐龙们，看来他还是不愿意画美少女<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（我记得当初他被老虚逼着练了好久才画出沙耶来，进N+是因为善于画怪物...）
+
