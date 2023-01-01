@@ -133,3 +133,12 @@
 
 看来今年确实是光年了，不知道明年湿婆终突能不能带飞一波火凯子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 17234#       发表于 2023-1-1 19:59
+
+这火盘更新了其实也没啥质变的感觉，不如炎帝剑入盘时实战的舒适度提升
+
