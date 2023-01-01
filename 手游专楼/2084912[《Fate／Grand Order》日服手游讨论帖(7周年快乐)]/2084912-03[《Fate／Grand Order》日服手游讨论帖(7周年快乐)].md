@@ -13550,3 +13550,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 这么多年福袋第一次双黄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 4227#       发表于 2023-1-1 10:51
+
+抽出来才发现原来老教授没开宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
