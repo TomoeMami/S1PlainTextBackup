@@ -3197,3 +3197,13 @@ c狐是boss战MVP
 
 bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimotsuki14  
+##### 44098#       发表于 2023-1-1 20:06
+
+删号是准备彻底不留后路？
+倒也没必要吧，想起来了上来看一眼，不想就不开了呗
+
