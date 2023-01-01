@@ -142,3 +142,12 @@
 
 这火盘更新了其实也没啥质变的感觉，不如炎帝剑入盘时实战的舒适度提升
 
+
+
+*****
+
+####  areklose  
+##### 17235#       发表于 2023-1-1 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这新年井是我2022年到现在最欧得一次了。上年情人节井维拉。1井没烧贝。万圣没出无限。圣诞井牛。次次都抽不全UP实在太痛苦了
+

@@ -3374,3 +3374,15 @@ Pay穿的就是Nagi的衣服！
 
 总感觉鲤鱼的直播是幼儿园大班哄小班
 
+
+
+*****
+
+####  starring  
+##### 10799#       发表于 2023-1-1 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59168107&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-1 21:06</a>
+
+Pay穿的就是Nagi的衣服！</blockquote>
+大概真是演出结束就一起到Nagi家
+
