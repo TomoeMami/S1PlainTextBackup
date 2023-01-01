@@ -3208,3 +3208,69 @@ Non：让更多人知道并爱上Liella!！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1st吹的逼
 
+
+
+*****
+
+####  仟音一心  
+##### 10782#       发表于 2023-1-1 20:32
+
+耗纸都改生日了草
+
+*****
+
+####  csolfans  
+##### 10783#       发表于 2023-1-1 20:32
+
+<img src="https://img.saraba1st.com/forum/202301/01/203252t5rkv58987kz5s95.png" referrerpolicy="no-referrer">
+
+<strong>-21c0d158221161bb.png</strong> (71.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-1 20:32 上传
+
+non也在
+
+*****
+
+####  csolfans  
+##### 10784#       发表于 2023-1-1 20:39
+
+四人小队
+
+-27b09a0a834fb740.jpg
+(264.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-1 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202301/01/203919ig7mspcycwmxac80.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 10785#       发表于 2023-1-1 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59167688&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-1 20:32</a>
+
+耗纸都改生日了草</blockquote>
+是星无老视频配音的那个耗纸吗？
+
+*****
+
+####  奥柏伦亲王  
+##### 10786#       发表于 2023-1-1 20:39
+
+鲤鱼还想把non去nagi家的事情当秘密讲，结果直播间的人都刷到non的推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 10787#       发表于 2023-1-1 20:40
+
+<blockquote>cat1230 发表于 2023-1-1 20:39
+是星无老视频配音的那个耗纸吗？</blockquote>
+是，不过是粉丝ky了。
+
