@@ -160,3 +160,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铃铛调整完 人称大神盾
 
+
+
+*****
+
+####  Sylpheed  
+##### 17237#       发表于 2023-1-2 00:47
+
+暗斧劈大巴真是太爽了，2+1按完直接a3t完事，这才是我想要的出伤模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
