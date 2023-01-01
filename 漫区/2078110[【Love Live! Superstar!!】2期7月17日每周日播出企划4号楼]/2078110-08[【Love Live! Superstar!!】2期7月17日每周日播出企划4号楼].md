@@ -3406,3 +3406,26 @@ Pay穿的就是Nagi的衣服！</blockquote>
 
 不过好像鱼在哪儿说过自己酒量不行？
 
+
+
+*****
+
+####  lj205  
+##### 10802#       发表于 2023-1-1 22:03
+
+桌上放的那瓶就是葡萄汁吧？
+
+她说她一杯啤酒都喝不了
+
+*****
+
+####  csolfans  
+##### 10803#       发表于 2023-1-1 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59168716&amp;ptid=2078110" target="_blank">lj205 发表于 2023-1-1 22:03</a>
+
+桌上放的那瓶就是葡萄汁吧？
+
+她说她一杯啤酒都喝不了</blockquote>
+葡萄汁
+

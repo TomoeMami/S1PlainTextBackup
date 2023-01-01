@@ -3427,3 +3427,25 @@ epic之前打折入手了一份
 
 其实这游戏跟泥潭多少有点关系，毕竟直接翻译过来叫“外野”。
 
+
+
+*****
+
+####  Quelaan  
+##### 409#       发表于 2023-1-1 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59168098&amp;ptid=2043791" target="_blank">Lunamos 发表于 2023-1-1 21:05</a>
+
+其实这游戏跟泥潭多少有点关系，毕竟直接翻译过来叫“外野”。</blockquote>
+所以游戏通鉴外野篇在哪呢 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lunamos  
+##### 410#       发表于 2023-1-1 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59168710&amp;ptid=2043791" target="_blank">Quelaan 发表于 2023-1-1 23:03</a>
+
+所以游戏通鉴外野篇在哪呢</blockquote>
+只是讲讲剧情而已……再摸一小段时间估计就快了~
+
