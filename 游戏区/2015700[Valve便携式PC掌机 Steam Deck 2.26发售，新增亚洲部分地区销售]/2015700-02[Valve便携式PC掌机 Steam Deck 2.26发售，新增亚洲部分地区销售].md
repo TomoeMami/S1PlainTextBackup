@@ -425,3 +425,27 @@ valve的硬件有出过二代么</blockquote>
 6800u低功耗被sd吊着打，怎么还有问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 携带机有这性能表现已经够了，下一代如果能把老头环续航默认配置下拉到3小时那真的就是绝杀
 
+
+
+*****
+
+####  zris  
+##### 2030#       发表于 2023-1-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59148081&amp;ptid=2015700" target="_blank">笨笨塞 发表于 2022-12-31 06:40</a>
+今天到货的纯小白想加个群，我有一堆问题想问。</blockquote>
+欢迎加群，steam dick 交友群：498166847
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zris  
+##### 2031#       发表于 2023-1-1 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59146957&amp;ptid=2015700" target="_blank">olrox 发表于 2022-12-30 23:48</a>
+天猫国际感觉价格还行，下单了，请问大家自己更换硬盘的话怎么选？淘宝上有很多商家连系统都做好了，可以入 ...</blockquote>
+自己买硬盘自己换，找个u盘做系统很简单的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
