@@ -13621,3 +13621,24 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 <img src="https://img.saraba1st.com/forum/202301/01/132938aepiq4z5z5kkuigi.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 4233#       发表于 2023-1-1 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然真的有人为了麻婆吃保底的
+
+*****
+
+####  alucardcz  
+##### 4234#       发表于 2023-1-1 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59163757&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-1-1 13:42</a>
+
+竟然真的有人为了麻婆吃保底的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+什么不是?打扰了
+
