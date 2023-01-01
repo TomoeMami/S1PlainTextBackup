@@ -3111,3 +3111,16 @@ c狐是boss战MVP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的石头加呼符 暗狐变2宝了 勉强能用了
 
+
+
+*****
+
+####  Blackson  
+##### 44089#       发表于 2023-1-1 11:24
+
+看黑呆接下来都没UP，小号于是去抽个二宝
+
+结果五单下来才抽到二宝，期间出了宝石翁、黑杯各一个，B叔六宝，New月神
+
+虽然钱包大出血，但也因祸得福，至少周年可以直接自选黑杯满破了
+
