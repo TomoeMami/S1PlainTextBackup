@@ -13669,3 +13669,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 留了200石准备抽金闪闪池或麻雀池
 
+
+
+*****
+
+####  黑上シグマ  
+##### 4237#       发表于 2023-1-1 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头抽麻婆，上手11连歪源为朝
+

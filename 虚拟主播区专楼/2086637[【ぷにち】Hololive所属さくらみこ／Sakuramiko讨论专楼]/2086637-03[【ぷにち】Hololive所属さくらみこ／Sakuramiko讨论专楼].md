@@ -8634,3 +8634,18 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 真够劲，非常安心了今年
 
+
+
+*****
+
+####  rs5621  
+##### 3812#       发表于 2023-1-1 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59161743&amp;ptid=2086637" target="_blank">holoan 发表于 2023-1-1 10:06</a>
+她跟星街的家很近
+
+现在来看离koyo家也不远</blockquote>
+这下七字母牢不可破了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

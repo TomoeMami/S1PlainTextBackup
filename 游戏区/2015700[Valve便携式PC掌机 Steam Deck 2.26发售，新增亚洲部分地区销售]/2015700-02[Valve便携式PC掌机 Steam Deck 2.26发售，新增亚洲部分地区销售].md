@@ -415,3 +415,13 @@ valve的硬件有出过二代么</blockquote>
 
 — from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  psvsd  
+##### 2029#       发表于 2023-1-1 15:42
+
+6800u低功耗被sd吊着打，怎么还有问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+携带机有这性能表现已经够了，下一代如果能把老头环续航默认配置下拉到3小时那真的就是绝杀
+
