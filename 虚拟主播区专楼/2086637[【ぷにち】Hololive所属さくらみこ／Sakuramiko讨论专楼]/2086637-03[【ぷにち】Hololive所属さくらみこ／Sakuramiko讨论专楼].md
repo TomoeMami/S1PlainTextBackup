@@ -8787,3 +8787,21 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">粉丝真难搞，这点小事，不要忘了pekora买了一只猴子
 
+
+
+*****
+
+####  rs5621  
+##### 3828#       发表于 2023-1-1 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节奏还没完么,还在吵呀
+
+*****
+
+####  holoan  
+##### 3829#         楼主| 发表于 2023-1-1 19:30
+
+你或许比本人还上心这件事
+
+这事我说白一点现在整个holo粉丝圈真没人关心了 你要继续这么自我沉醉我也拦不住
+

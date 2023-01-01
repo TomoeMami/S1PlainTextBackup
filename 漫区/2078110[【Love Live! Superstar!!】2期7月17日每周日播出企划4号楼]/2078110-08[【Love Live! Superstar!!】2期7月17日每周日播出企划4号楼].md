@@ -3099,3 +3099,52 @@ payton尚未学习拍照
 由手机上传
 2023-1-1 19:17 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 10774#       发表于 2023-1-1 19:27
+
+新年抱负
+
+1期生
+
+sayu：希望大家的梦想都化为现实‼︎!‼︎!‼︎!
+
+Liyuu：向着世界，飞翔！！
+
+Nako：魅力大爆发。
+
+Pay：笑容灿烂，克服飞机。
+
+Nagi：去见大家！
+
+2期生
+
+Kuma：获得格莱美奖
+
+Yabu：吃遍全日本的美食。
+
+Emori：让大家绽放笑容！！
+
+Non：让更多人知道并爱上Liella!！
+
+<img src="https://img.saraba1st.com/forum/202301/01/192736ij4jr2pjxmqg2pip.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1EC5C1CB-8F08-4A4C-9951-742CC5117AEF.jpeg</strong> (80.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-1-1 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202301/01/192742e51yy5p1pooqokpf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5EC850EF-5273-4E65-B028-9B7BD54CB129.jpeg</strong> (82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-1-1 19:27 上传
+
