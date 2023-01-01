@@ -13580,3 +13580,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  千叶铁矢  
+##### 4230#       发表于 2023-1-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59163228&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-1-1 12:49</a>
+问一下iso礼品卡淘宝现在都搜不到，怎么氪福袋</blockquote>
+关键字总变，建议问一下以前买过的店铺
+
