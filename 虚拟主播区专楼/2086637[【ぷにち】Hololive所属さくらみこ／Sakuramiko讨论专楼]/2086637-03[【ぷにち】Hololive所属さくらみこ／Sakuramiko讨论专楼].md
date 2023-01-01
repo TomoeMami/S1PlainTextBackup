@@ -8596,3 +8596,26 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 3809#         楼主| 发表于 2023-1-1 10:05
+
+昨晚的档赶快放出来吧
+
+要不几万个切片师昨晚的切片做完了端不出来菜都要凉了臭了
+
+*****
+
+####  holoan  
+##### 3810#         楼主| 发表于 2023-1-1 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59161086&amp;ptid=2086637" target="_blank">rs5621 发表于 2023-1-1 05:42</a>
+
+深夜跑出去玩还行</blockquote>
+她跟星街的家很近
+
+现在来看离koyo家也不远
+
