@@ -2485,3 +2485,14 @@ QQ图片20230101172411.jpg
 
 最终boss真大<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  德德德德德古拉  
+##### 3213#       发表于 2023-1-1 17:48
+
+新章真结局打完了，爱情掉率太迷了，刷了好久
+
+我的评价是P5之后这几年最好的JRPG了
+
