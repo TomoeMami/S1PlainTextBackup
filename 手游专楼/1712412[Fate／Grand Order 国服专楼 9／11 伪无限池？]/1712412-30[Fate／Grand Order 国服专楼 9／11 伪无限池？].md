@@ -3158,3 +3158,15 @@ c狐是boss战MVP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">这游戏退坑也算脱离苦海了
 
+
+
+*****
+
+####  艾尔特翔  
+##### 44094#       发表于 2023-1-1 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59162765&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2023-1-1 12:00</a>
+
+决定退坑，删号，4年多160级，上百个五星，1张满破宝石，1张6090，1张满破黑杯。注销账号才发现绑定的我妈 ...</blockquote>
+不至于不至于，哪天想上了可以看看就好啊，删号不至于。
+
