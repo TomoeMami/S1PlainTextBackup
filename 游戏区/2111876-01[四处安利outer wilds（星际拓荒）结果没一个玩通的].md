@@ -2066,3 +2066,14 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 现在躺在床上才想起来我可以把照相机发射到碎空星北极那个悬空城入口里去拍点照片<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大暴死  
+##### 197#       发表于 2023-1-1 23:26
+
+其实这游戏视频通关也挺好的
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
