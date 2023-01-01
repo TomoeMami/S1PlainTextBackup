@@ -3083,3 +3083,14 @@ c狐是boss战MVP
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  guojiaoqi  
+##### 44086#       发表于 2023-1-1 09:54
+
+ 本帖最后由 guojiaoqi 于 2023-1-1 09:55 编辑 
+
+必须打完2.6才能打的通古斯就这？水平不如1.5，什么屎一样的剧情、人物塑造，服气<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
