@@ -13711,3 +13711,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 （我记得当初他被老虚逼着练了好久才画出沙耶来 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是别画了  当年妖人如果换个好点的画师说不定能火个几十倍
 
+
+
+*****
+
+####  angelooo  
+##### 4240#       发表于 2023-1-1 22:36
+
+黑豹是古海画的？这翻车得有点厉害啊，摘了面具之后我直接一口老血
+
