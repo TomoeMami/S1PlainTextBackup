@@ -3072,3 +3072,14 @@ c狐是boss战MVP
 
 我更希望队长落地……
 
+
+
+*****
+
+####  DET33  
+##### 44085#       发表于 2023-1-1 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年下半年不抽的石头就用来抽明年的麻婆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
