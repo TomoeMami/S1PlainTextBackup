@@ -1,0 +1,43 @@
+# This workflow will upload a Python Package using Twine when a release is created
+# For more information see: https://help.github.com/en/actions/language-and-framework-guides/using-python-with-github-actions#publishing-to-package-registries
+
+name: get_a_thread_id
+
+on:
+  push
+jobs:
+  S1TopThreads:
+    runs-on: ubuntu-latest
+    steps:
+    - name: CheckoutRepo
+      uses: actions/checkout@v2
+      with:
+        ref: master
+    - name: Set up Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.9'
+    - name: Install dependencies
+      run: |
+        python -m pip install --upgrade pip
+        pip install setuptools wheel twine pathlib
+    - name: get_a_thread_id
+      run: |
+        python getAthreadid.py
+    - name: commit
+      env:
+        TZ: 'CST-8'
+      run: |
+        sudo timedatectl set-timezone Asia/Shanghai
+        git config --global user.email trembleafterme@outlook.com
+        git config --global user.name TomoeMami
+        datime=$(date "+%Y年%m月%d日 %H:%M")
+        echo "git commit: 上传于 $datime"
+        if [ -n "$(git status -s)" ];then
+            git add .
+            git commit -m "[更新A综帖子ID]" -a
+        fi
+    - name: Push changes
+      uses: ad-m/github-push-action@master
+      with:
+        github_token: ${{ secrets.GITHUB_TOKEN }}

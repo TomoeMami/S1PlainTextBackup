@@ -1,0 +1,35 @@
+* 简介
+
+本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
+
+本仓库仅存放7日内有回复的3页及以上帖子。若3天内没有回复，该帖子的纯文本备份会被挪到2022至今历史存档中。
+
+* 相关存档
+
+2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
+
+2022至今历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
+
+S1 各板块回帖折线图 https://tomoemami.github.io/
+** 全文搜索方式：
+
+限制频率为20次每分钟的简易网页搜索：http://175.27.249.201:8000/
+
+*** 目前支持的特殊效果
+
+- 粗体
+- 链接
+- 图片
+    - jpg
+    - jpeg
+    - png
+    - gif
+    - tif
+    - webp
+- 评分
+
+** 脚本使用须知
+
+- 为确保可被GitHub网页渲染，单个文件大小需控制在1M以内，故以50页为限，拆分成多个文件。
+- 如需要本地图文备份，请采用这个备份工具：[S1Downloader](https://github.com/shuangluoxss/Stage1st-downloader)
+- 三号四号疫情专楼的备份来自于https://gitlab.com/memory-s1/virus
