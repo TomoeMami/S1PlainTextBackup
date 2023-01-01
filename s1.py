@@ -213,17 +213,17 @@ async def UpdateThread(threaddict,semaphore):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-            filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',filedir_src)
+            filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2023',filedir_src)
             if os.path.exists(filename_des):
                 if os.path.isdir(filedir_src):
                     filedir_src_list = get_dir_files(filedir_src)
                     for i in filedir_src_list:
-                        j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',i)
+                        j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2023',i)
                         thread_merge(i,j)
                 else:    
                     thread_merge(filedir_src,filename_des)
             else:
-                filedir_des = '/home/ubuntu/S1PlainTextArchive2022/' +thdata[threaddict['id']]['category']+'/'
+                filedir_des = '/home/ubuntu/S1PlainTextArchive2023/' +thdata[threaddict['id']]['category']+'/'
                 mkdir(filedir_des)
                 shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
