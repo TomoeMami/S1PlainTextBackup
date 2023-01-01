@@ -393,3 +393,14 @@ valve的硬件有出过二代么</blockquote>
 我这边在家下载完成+实际玩过的游戏，第二天重启机器后要整个游戏 ...</blockquote>
 是整个游戏还是着色器缓存?
 
+
+
+*****
+
+####  setree  
+##### 2027#       发表于 2023-1-1 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59149114&amp;ptid=2015700" target="_blank">伊莉伊莉雅 发表于 2022-12-31 11:01</a>
+是整个游戏还是着色器缓存?</blockquote>
+整个游戏，之后更新系统复现了两次，就很怪
+
