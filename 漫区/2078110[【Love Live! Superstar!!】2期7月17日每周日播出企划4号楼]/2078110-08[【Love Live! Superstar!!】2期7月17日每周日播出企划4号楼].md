@@ -3052,3 +3052,34 @@ payton尚未学会拍照
 两年了，pay的拍照技术还有很大上升空间</blockquote>
 payton尚未学习拍照
 
+
+
+*****
+
+####  仟音一心  
+##### 10770#       发表于 2023-1-1 18:26
+
+<img src="https://p.sda1.dev/9/6a034e61f5aadfeb562fe3a536817af3/-1138758403.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/722e72ebcdad8796e83de8d49704cb9d/-191371015.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/d62fe04ae4975f66259f5cfa24290031/CMP_20230101182540168.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/51acd4bbb4f4e5d0f29aa369d7ee82a4/-851197089.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/9895edb5e1213c1a7f0169d13743dde7/993745344.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/3c11b71cda9f1d447345012fd91ff124/-1501669430.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/bec977ac1d1977124c561fc76b21cfbe/595151260.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 10771#       发表于 2023-1-1 18:27
+
+话说今晚直播就在Nagi家了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 10772#       发表于 2023-1-1 18:31
+
+还是自己家吧，去年不也是这样半夜活动结束后在nagi家，第二天直播在自己家
+
