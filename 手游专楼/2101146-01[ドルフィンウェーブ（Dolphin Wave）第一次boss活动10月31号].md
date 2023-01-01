@@ -99,3 +99,12 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  startea15  
+##### 223#       发表于 2023-1-1 14:43
+
+感觉背水卡纯纯没用，毕竟三星其中要求半血以上通关
+
