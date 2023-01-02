@@ -87,3 +87,17 @@
 
 这收费兔女郎衣服，除了有动作外，黑丝还专门做了分线<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  delphinian  
+##### 155#       发表于 2023-1-3 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59176334&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-1-2 19:12</a>
+
+联动T恤到了，谢谢工业
+
+感觉这个材料花纹很容易就洗掉了，还是收藏价值比较大不太能穿出门</blockquote>
+这个反光看着还是胶印啊？我记得本子那边一大堆的acg痛T全是最垃圾的胶印工艺，每次想买一想到这个又不高兴下手了
+
