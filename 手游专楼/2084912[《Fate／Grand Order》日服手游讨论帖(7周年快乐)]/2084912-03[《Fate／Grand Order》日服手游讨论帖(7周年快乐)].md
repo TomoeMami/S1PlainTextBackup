@@ -13729,3 +13729,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 求问下，新年拼图的16号“阳射”任务怎么完成啊
 
+
+
+*****
+
+####  qixinno2  
+##### 4242#       发表于 2023-1-2 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59172376&amp;ptid=2084912" target="_blank">廖化 发表于 2023-1-2 12:44</a>
+
+求问下，新年拼图的16号“阳射”任务怎么完成啊</blockquote>
+找个有阳光的地图 反正我是用的1.6的城门口
+
