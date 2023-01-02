@@ -13853,3 +13853,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 这差的有点远啊</blockquote>
 我觉得没啥区别啊，都是吊眼角唐氏脸屑男人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 4253#       发表于 2023-1-2 23:11
+
+<img src="https://p.sda1.dev/9/821bda5c299ec25f0c6d35263a718878/image13.png" referrerpolicy="no-referrer">
+
+破游戏卸载了，
+
+圣诞节能给个四战麻婆吗
+
