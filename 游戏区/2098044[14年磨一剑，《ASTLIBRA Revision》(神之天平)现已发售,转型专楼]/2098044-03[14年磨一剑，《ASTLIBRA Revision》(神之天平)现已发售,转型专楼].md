@@ -2598,3 +2598,14 @@ QQ图片20230101172411.jpg
 
 一点敏捷抵消一点武器重量，状态页面里重量为0就没有攻击速度惩罚了。然后点血，保证不被一刀死，接下来点自己喜欢的输出，喜欢平砍点力量，喜欢依凭就点魔力，需要刷掉落就保证敏捷的前提下全点幸运。反正洗点很方便的
 
+
+
+*****
+
+####  onezer0618  
+##### 3223#       发表于 2023-1-2 10:43
+
+感谢解惑，看来我敏捷点多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，雪山那张图被迫洗点，所有重东西穿上重量都还是0（除了那个戒指）
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
