@@ -9395,3 +9395,27 @@ syl 10W都没上，那个事件果然还是有影响。
 
 2023-1-2 21:43 上传
 
+
+
+*****
+
+####  rs5621  
+##### 3884#       发表于 2023-1-2 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时隔多年终于弄到工商了，可喜可贺
+
+*****
+
+####  rs5621  
+##### 3885#       发表于 2023-1-2 21:59
+
+<img src="https://img.saraba1st.com/forum/202301/02/215852hu0zaktsrvur9a9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-2 21:58 上传
+
+[推特](https://twitter.com/skb318/status/1609218601801908231?s=20&amp;t=ztSV6eGueqTMgXZsqC8mgA)
+
