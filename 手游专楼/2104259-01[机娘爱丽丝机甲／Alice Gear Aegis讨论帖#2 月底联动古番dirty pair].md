@@ -101,3 +101,15 @@
 感觉这个材料花纹很容易就洗掉了，还是收藏价值比较大不太能穿出门</blockquote>
 这个反光看着还是胶印啊？我记得本子那边一大堆的acg痛T全是最垃圾的胶印工艺，每次想买一想到这个又不高兴下手了
 
+
+
+*****
+
+####  Rincewind  
+##### 156#       发表于 2023-1-3 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59179585&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-1-3 00:02</a>
+这个反光看着还是胶印啊？我记得本子那边一大堆的acg痛T全是最垃圾的胶印工艺，每次想买一想到这个又不高 ...</blockquote>
+是胶印
+我很伤心并决定拿起来供着
+
