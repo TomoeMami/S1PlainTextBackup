@@ -9322,3 +9322,35 @@ syl 10W都没上，那个事件果然还是有影响。
 
 可惜MV一个都没做出来
 
+
+
+*****
+
+####  holoan  
+##### 3879#         楼主| 发表于 2023-1-2 21:17
+
+<img src="https://img.saraba1st.com/forum/202301/02/211733c6j4bi5ayiibjyj6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-2 21:17 上传
+
+这位好速度，一小时画好
+
+*****
+
+####  holoan  
+##### 3880#         楼主| 发表于 2023-1-2 21:20
+
+会限唯一一张有价值的截图
+
+<img src="https://img.saraba1st.com/forum/202301/02/212019kkqpc4wvrzrc4nej.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-2 21:20 上传
+

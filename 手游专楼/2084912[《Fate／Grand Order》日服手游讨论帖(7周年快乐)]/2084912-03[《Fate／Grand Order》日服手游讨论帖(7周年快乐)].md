@@ -13786,3 +13786,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 道满不也是唐氏脸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是2。7没打  面具摘下来我觉得不会有人能接受（
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 4247#       发表于 2023-1-2 21:15
+
+2.7出场角色里想抽的只有所长，还不知道要不要拖到终章才会进卡池<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
