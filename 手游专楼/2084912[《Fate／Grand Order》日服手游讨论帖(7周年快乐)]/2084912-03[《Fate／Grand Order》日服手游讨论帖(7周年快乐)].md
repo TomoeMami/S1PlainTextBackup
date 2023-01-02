@@ -13763,3 +13763,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 黑豹是古海画的？这翻车得有点厉害啊，摘了面具之后我直接一口老血</blockquote>
 道满不也是唐氏脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 4245#       发表于 2023-1-2 20:17
+
+<blockquote>里村紅葉 发表于 2023-1-2 13:38
+道满不也是唐氏脸</blockquote>
+黑豹那脸都是歪的，盔甲啥的设计也很差，这货要真是个五星仇除非强得离谱不然谁抽啊
+
