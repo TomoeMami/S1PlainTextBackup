@@ -171,3 +171,14 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  是这样  
+##### 17238#       发表于 2023-1-2 11:44
+
+现在火盘子更新是先两把炎帝剑然后天司斧吗，我还留在猪枪绝拳版本
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
