@@ -191,3 +191,16 @@
 
 想要质变推荐换新石油，个个都是人才，玩了火刀水刀才发现奥义这么爽的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niu  
+##### 17240#       发表于 2023-1-2 13:56
+
+<blockquote>是这样 发表于 2023-1-1 19:44
+现在火盘子更新是先两把炎帝剑然后天司斧吗，我还留在猪枪绝拳版本
+
+— from Google Pixel 6, Android 13 o ...</blockquote>
+想要防御塞炎帝剑。想要输出塞天司斧。猪枪不能弃，一样是FA神器。绝拳到是真的过时了。
+
