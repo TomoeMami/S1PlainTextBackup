@@ -2618,3 +2618,15 @@ QQ图片20230101172411.jpg
 
 每章的成长盘一定要顶着三倍消耗熬过去吗，当章怪的配置肯定会缺两三种晶体，每章要求数量递增去前面刷也不现实
 
+
+
+*****
+
+####  j.nelson  
+##### 3225#       发表于 2023-1-2 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58907810&amp;ptid=2098044" target="_blank">clover293 发表于 2022-12-12 17:01</a>
+
+问下用手柄是不是能好一些，我昨天打了4章觉得键盘摁的我好疼第一次打游戏有这种感觉 ...</blockquote>
+才玩了前五章但是一开始是键盘玩到一半上手柄，可以很负责任的告诉你用手柄我可以和你说游戏体验好三倍！！！用键盘打的手抽筋的一些boss换手柄打会有一种正在玩格斗游戏搓招的快感！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

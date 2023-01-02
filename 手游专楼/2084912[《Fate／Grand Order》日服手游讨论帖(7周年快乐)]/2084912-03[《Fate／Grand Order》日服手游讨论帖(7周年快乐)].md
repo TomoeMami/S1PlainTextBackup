@@ -13741,3 +13741,25 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 求问下，新年拼图的16号“阳射”任务怎么完成啊</blockquote>
 找个有阳光的地图 反正我是用的1.6的城门口
 
+
+
+*****
+
+####  廖化  
+##### 4243#       发表于 2023-1-2 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59172723&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-1-2 13:13</a>
+
+找个有阳光的地图 反正我是用的1.6的城门口</blockquote>
+多谢！
+
+*****
+
+####  里村紅葉  
+##### 4244#       发表于 2023-1-2 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59168988&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-1-1 22:36</a>
+
+黑豹是古海画的？这翻车得有点厉害啊，摘了面具之后我直接一口老血</blockquote>
+道满不也是唐氏脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
