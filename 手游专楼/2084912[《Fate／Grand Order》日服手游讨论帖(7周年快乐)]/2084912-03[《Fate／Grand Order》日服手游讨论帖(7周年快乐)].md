@@ -13841,3 +13841,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 打了啊，那个脸跟道满不是差不多吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这差的有点远啊
 
+
+
+*****
+
+####  里村紅葉  
+##### 4252#       发表于 2023-1-2 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59178385&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-2 22:23</a>
+
+这差的有点远啊</blockquote>
+我觉得没啥区别啊，都是吊眼角唐氏脸屑男人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
