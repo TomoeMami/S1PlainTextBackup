@@ -254,3 +254,21 @@ Karin's episode
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼头还跟秀去水族馆了，大家都有光明的未来
 
+
+
+*****
+
+####  仟音一心  
+##### 6821#       发表于 2023-1-2 16:30
+
+你的明秀，“明”又何必是明菜？<img src="https://p.sda1.dev/9/8b349c2789f0a2b7f25ca608962d2df1/CMP_20230102162859869.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6822#       发表于 2023-1-2 16:31
+
+鬼姐姐也是明，很合理，菜宝是大猪蹄子jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
