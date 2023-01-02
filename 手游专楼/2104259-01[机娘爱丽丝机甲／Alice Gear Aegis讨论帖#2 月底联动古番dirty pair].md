@@ -66,3 +66,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今年敲钟演出好迷惑
 
+
+
+*****
+
+####  Rincewind  
+##### 153#       发表于 2023-1-2 19:12
+
+联动T恤到了，谢谢工业
+感觉这个材料花纹很容易就洗掉了，还是收藏价值比较大不太能穿出门
+
+<img src="https://p.sda1.dev/9/691d75a3fa91e23c2c7a7b9221d2eaa4/CMP_20230102191210486.jpg" referrerpolicy="no-referrer">
+
