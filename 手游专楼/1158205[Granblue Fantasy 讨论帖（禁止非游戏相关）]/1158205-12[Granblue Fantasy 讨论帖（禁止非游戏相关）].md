@@ -182,3 +182,12 @@
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  はちたや  
+##### 17239#       发表于 2023-1-2 12:50
+
+想要质变推荐换新石油，个个都是人才，玩了火刀水刀才发现奥义这么爽的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
