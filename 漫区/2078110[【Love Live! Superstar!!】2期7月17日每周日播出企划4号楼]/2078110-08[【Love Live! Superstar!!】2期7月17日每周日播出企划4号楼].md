@@ -3467,3 +3467,15 @@ Pay穿的就是Nagi的衣服！</blockquote>
 早上刷b站看到昨天发这条sc的人了，是耗纸直播间的房管</blockquote>
 我知道，我在耗纸群里。
 
+
+
+*****
+
+####  saya1892  
+##### 10807#       发表于 2023-1-2 11:18
+
+【Liella!】りーちゃんの「リー語いろはかるた」！
+[https://www.youtube.com/watch?v=oC-O8Oghhgk](https://www.youtube.com/watch?v=oC-O8Oghhgk)
+
+喷了，怎么有人做这么无聊的视频
+

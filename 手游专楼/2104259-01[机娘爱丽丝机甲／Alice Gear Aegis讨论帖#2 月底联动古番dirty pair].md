@@ -45,3 +45,15 @@
 周年卡池是谁呀
 有没有什么小道消息
 
+
+
+*****
+
+####  thee  
+##### 151#       发表于 2023-1-2 11:13
+
+只是听说周年有大活，好像有新角
+另外周年服貌似有新东西
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
