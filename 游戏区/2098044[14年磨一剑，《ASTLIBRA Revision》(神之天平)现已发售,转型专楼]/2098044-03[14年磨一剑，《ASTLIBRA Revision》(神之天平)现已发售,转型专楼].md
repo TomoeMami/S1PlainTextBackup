@@ -2555,3 +2555,30 @@ QQ图片20230101172411.jpg
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  tsubaki  
+##### 3220#       发表于 2023-1-2 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59171050&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-2 09:50</a>
+
+求解一下，这个加点，主要需要加哪些方面，武器攻速有上限吗，我点数基本都点到敏捷上了
+
+—— 来自 ...</blockquote>
+敏捷50以上，剩下全幸运+血分配
+
+反正洗点在猪那里就可以操作，打BOSS把幸运全转攻击
+
+*****
+
+####  迷途lite  
+##### 3221#       发表于 2023-1-2 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59171050&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-2 09:50</a>
+求解一下，这个加点，主要需要加哪些方面，武器攻速有上限吗，我点数基本都点到敏捷上了
+
+—— 来自 ...</blockquote>
+点进装备栏能看到有个总重量的属性，敏捷点到总重量10以内我个人感觉手感就比较好了。
+

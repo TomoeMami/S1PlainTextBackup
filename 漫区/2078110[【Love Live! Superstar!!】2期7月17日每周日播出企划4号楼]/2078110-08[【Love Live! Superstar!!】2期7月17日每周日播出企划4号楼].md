@@ -3438,3 +3438,19 @@ Pay穿的就是Nagi的衣服！</blockquote>
 
 那一小瓶我还以为是专门给pay准备的饮料
 
+
+
+*****
+
+####  cat1230  
+##### 10805#       发表于 2023-1-2 10:01
+
+<blockquote>引用第10786楼仟音一心于2023-01-01 20:40发表的  :
+
+引用:cat1230 发表于 2023-1-1 20:39是星无老视频配音的那个耗纸吗？是，不过是粉......</blockquote>
+@仟音一心
+
+早上刷b站看到昨天发这条sc的人了，是耗纸直播间的房管<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
