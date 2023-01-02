@@ -2544,3 +2544,14 @@ QQ图片20230101172411.jpg
 
 至于帮别人打工，我觉得回头看下来剧情进展也算是够快的了……第一章算教程，第二章第一次启动天平，第三四五章是同伴个人回，第六章介绍核心世界观，第七章主角核心情节，第八章BE加boss战，终章HE（？）真·boss战，追章TE……虽然说几个同伴和主线关系都不大但相应的正因为有了个人回所以才有了情感共鸣，所以还是挺好的啊。何况neta太多了……
 
+
+
+*****
+
+####  onezer0618  
+##### 3219#       发表于 2023-1-2 09:50
+
+求解一下，这个加点，主要需要加哪些方面，武器攻速有上限吗，我点数基本都点到敏捷上了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

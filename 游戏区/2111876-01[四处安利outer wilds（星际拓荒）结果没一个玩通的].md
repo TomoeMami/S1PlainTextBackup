@@ -2127,3 +2127,14 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 同时我女朋友在边上，特别奇怪，表示这有啥，反正死不了…
 我只能说，这可能是游戏这个可互动性媒介与其他艺术的差别的真实体现吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  manwomans  
+##### 202#       发表于 2023-1-2 09:41
+
+第一人称玩跳跃迷题，时间到了还得重跳，不劝退才怪
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
