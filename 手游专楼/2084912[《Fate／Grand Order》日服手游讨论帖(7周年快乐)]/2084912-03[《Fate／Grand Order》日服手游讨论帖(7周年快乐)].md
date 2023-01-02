@@ -13774,3 +13774,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 道满不也是唐氏脸</blockquote>
 黑豹那脸都是歪的，盔甲啥的设计也很差，这货要真是个五星仇除非强得离谱不然谁抽啊
 
+
+
+*****
+
+####  alucardcz  
+##### 4246#       发表于 2023-1-2 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59172981&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-2 13:38</a>
+
+道满不也是唐氏脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是2。7没打  面具摘下来我觉得不会有人能接受（
+
