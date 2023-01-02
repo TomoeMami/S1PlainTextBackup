@@ -3454,3 +3454,16 @@ Pay穿的就是Nagi的衣服！</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  仟音一心  
+##### 10806#       发表于 2023-1-2 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59171102&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-2 10:01</a>
+@仟音一心
+
+早上刷b站看到昨天发这条sc的人了，是耗纸直播间的房管</blockquote>
+我知道，我在耗纸群里。
+
