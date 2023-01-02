@@ -13817,3 +13817,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 [f:245]目前2.7的就雨神最好看 其他的都好怪啊
 
+
+
+*****
+
+####  里村紅葉  
+##### 4250#       发表于 2023-1-2 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59177435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-2 21:01</a>
+
+你是不是2。7没打  面具摘下来我觉得不会有人能接受（</blockquote>
+打了啊，那个脸跟道满不是差不多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
