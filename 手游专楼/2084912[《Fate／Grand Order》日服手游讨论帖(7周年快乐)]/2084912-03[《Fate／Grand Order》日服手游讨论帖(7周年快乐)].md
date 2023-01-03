@@ -13973,3 +13973,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 现在都是每晚刚过11点就打3场素材就关了，以前都是新旧活动接下来，现在活动完了后就拖1~2星期，排行榜跌出10大及冷清环境是营运自己做成...
 
+
+
+*****
+
+####  1a不解释  
+##### 4263#       发表于 2023-1-3 12:16
+
+没伊吹的话福袋抽狂比较好吗，但是我水武藏和摩根都2宝，又有点想去赌泳装cba，但里面雷有点多，好纠结<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
