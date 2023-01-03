@@ -9565,3 +9565,30 @@ polka你在做什么
 
 只能说，比起新衣装观众们更想看holo成员的CPU互殴
 
+
+
+*****
+
+####  rs5621  
+##### 3896#       发表于 2023-1-3 19:49
+
+ 本帖最后由 rs5621 于 2023-1-3 19:51 编辑 
+
+<img src="https://img.saraba1st.com/forum/202301/03/194940vxx11xece111c8k1.png" referrerpolicy="no-referrer">
+
+<strong>5LI%(PLALK72)WK5X59BX%5.png</strong> (153.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-3 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202301/03/194940kv1yiv0k7wpp1tpm.png" referrerpolicy="no-referrer">
+
+<strong>FT12)]OUSCWG1~O`IWF402W.png</strong> (577.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-3 19:49 上传
+
+这个攻略厉害哩
+
