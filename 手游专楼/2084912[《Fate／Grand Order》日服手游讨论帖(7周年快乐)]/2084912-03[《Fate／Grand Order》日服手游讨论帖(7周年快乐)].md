@@ -14050,3 +14050,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献祭了新圣诞，每个月都搞RT活动长草。最后憋出来就10章的2.7，讲真。打完2.7我每天就登录一下。太无趣了
 
+
+
+*****
+
+####  1a不解释  
+##### 4270#       发表于 2023-1-3 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185060&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-3 13:36</a>
+有啥好纠结的 拐大于天</blockquote>
+所以水cba很强吗，之前就是因为沉了所以弃坑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
