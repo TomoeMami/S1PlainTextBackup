@@ -3218,3 +3218,14 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 看了下明年貌似各有两个池子+赌7周年福袋，但是一个3月一个4月离得有点近了_(:_」∠)_
 
+
+
+*****
+
+####  DET33  
+##### 44100#       发表于 2023-1-3 09:18
+
+反正我的王姐从来没上过班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

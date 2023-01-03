@@ -204,3 +204,16 @@
 — from Google Pixel 6, Android 13 o ...</blockquote>
 想要防御塞炎帝剑。想要输出塞天司斧。猪枪不能弃，一样是FA神器。绝拳到是真的过时了。
 
+
+
+*****
+
+####  是这样  
+##### 17241#       发表于 2023-1-3 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59173166&amp;ptid=1158205" target="_blank">Niu 发表于 2023-1-2 13:56</a>
+想要防御塞炎帝剑。想要输出塞天司斧。猪枪不能弃，一样是FA神器。绝拳到是真的过时了。 ...</blockquote>
+只有一把天司斧是不是不急着砸了
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
