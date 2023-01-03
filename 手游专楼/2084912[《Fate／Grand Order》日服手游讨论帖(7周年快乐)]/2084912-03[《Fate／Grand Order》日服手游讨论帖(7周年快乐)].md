@@ -13941,3 +13941,35 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 不知道开强化本就跟杀他们亲妈一样么</blockquote>
 一个强化本2个石头啊，怎么舍得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 4261#       发表于 2023-1-3 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183088&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-3 11:20</a>
+
+一个强化本2个石头啊，怎么舍得</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说老卡强了谁去抽新卡
+
+*****
+
+####  eilot  
+##### 4262#       发表于 2023-1-3 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59182860&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-1-3 11:05</a>
+
+今年主要是新年UP的其他几个太拉了，抽的欲望都没有
+
+看起来就冷冷清清的</blockquote>
+开了两个强化本，还不满足吗?
+
+已经是皇恩浩荡
+
+再嘈就给你狩猎本拖到月底下章再开，反正之前3个月妖精国时就真是做得出，期间只得一次尼录祭(好像有限盒数)没其他活动
+
+所谓新年活动及之前圣诞连不停刷都没有，活动内容逐日开放数个，给一些魔神柱给玩家疯狂吃苹果刷素材也好
+
+现在都是每晚刚过11点就打3场素材就关了，以前都是新旧活动接下来，现在活动完了后就拖1~2星期，排行榜跌出10大及冷清环境是营运自己做成...
+
