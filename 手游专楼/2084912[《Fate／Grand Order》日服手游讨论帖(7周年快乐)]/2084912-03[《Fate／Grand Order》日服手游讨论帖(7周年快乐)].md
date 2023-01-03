@@ -14004,3 +14004,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 开强化本和幕间要给石头，这等同于要了它们的命
 
+
+
+*****
+
+####  1a不解释  
+##### 4266#       发表于 2023-1-3 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59184345&amp;ptid=2084912" target="_blank">rooarr 发表于 2023-1-3 12:42</a>
+个人感觉1宝水伊吹没啥用</blockquote>
+那还是等下次up再抽吧<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
