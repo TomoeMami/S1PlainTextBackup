@@ -14041,3 +14041,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 —— 来自 OPPO PENM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥好纠结的 拐大于天
 
+
+
+*****
+
+####  areklose  
+##### 4269#       发表于 2023-1-3 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献祭了新圣诞，每个月都搞RT活动长草。最后憋出来就10章的2.7，讲真。打完2.7我每天就登录一下。太无趣了
+
