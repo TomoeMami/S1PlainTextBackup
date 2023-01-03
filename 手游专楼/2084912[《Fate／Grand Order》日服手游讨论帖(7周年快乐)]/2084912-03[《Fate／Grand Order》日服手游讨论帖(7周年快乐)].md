@@ -13984,3 +13984,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 —— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rooarr  
+##### 4264#       发表于 2023-1-3 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183949&amp;ptid=2084912" target="_blank">1a不解释 发表于 2023-1-3 12:16</a>
+ 没伊吹的话福袋抽狂比较好吗，但是我水武藏和摩根都2宝，又有点想去赌泳装cba，但里面雷有点多，好纠结[f:0 ...</blockquote>
+个人感觉1宝水伊吹没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

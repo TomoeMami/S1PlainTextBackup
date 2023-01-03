@@ -2747,3 +2747,19 @@ OP是V曲的翻唱，出的很早了
 每章的成长盘一定要顶着三倍消耗熬过去吗，当章怪的配置肯定会缺两三种晶体，每章要求数量递增去前面刷也不 ...</blockquote>
 一种解决方案是每章结束后去前几章补刷，不过困难以上，刷图纸刷熟练就足够你3倍消耗硬上弓了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2082082012  
+##### 3236#       发表于 2023-1-3 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183370&amp;ptid=2098044" target="_blank">yuwe0714 发表于 2023-1-3 11:38</a>
+老哥们有用ns pro手柄打的吗？震动适配如何？我不太想用xbox手柄开坑，免得nspro手柄吃灰，想先问问
+
+——  ...</blockquote>
+没啥问题，挺舒服的。
+就是可能要改一下按键（一开始按键错位，但也不确定是自己开始设置的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
