@@ -292,3 +292,13 @@ Karin's episode
 
 <img src="https://img.saraba1st.com/forum/202301/03/014332lmz241cngf1m1c6y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6824#       发表于 2023-1-3 09:41
+
+［美术部（しづきみちる）］虹が咲く楽园<img src="https://p.sda1.dev/9/912b5dcb75420ae1e6a7a68766115d7c/CMP_20230103094105787.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/53655f99bfa11e89823bcb24384d43f9/CMP_20230103094105838.jpg" referrerpolicy="no-referrer">
+
