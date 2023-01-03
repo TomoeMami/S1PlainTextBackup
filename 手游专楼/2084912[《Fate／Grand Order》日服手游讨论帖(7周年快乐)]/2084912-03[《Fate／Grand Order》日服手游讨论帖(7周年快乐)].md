@@ -14063,3 +14063,17 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 —— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 4271#       发表于 2023-1-3 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185510&amp;ptid=2084912" target="_blank">1a不解释 发表于 2023-1-3 14:09</a>
+
+所以水cba很强吗，之前就是因为沉了所以弃坑了
+
+—— 来自 OPPO PENM00, Android 12上的 S1Next- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从90++来看 有点用 远强于cba
+

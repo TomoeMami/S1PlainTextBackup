@@ -2785,3 +2785,15 @@ OP是V曲的翻唱，出的很早了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">听说原版更加色情暴力，有没有玩过的来说说？
 
+
+
+*****
+
+####  s32244153  
+##### 3239#       发表于 2023-1-3 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185625&amp;ptid=2098044" target="_blank">梦窗 发表于 2023-1-3 14:16</a>
+
+听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
+STEAM版半裸的 原版都是**的
+
