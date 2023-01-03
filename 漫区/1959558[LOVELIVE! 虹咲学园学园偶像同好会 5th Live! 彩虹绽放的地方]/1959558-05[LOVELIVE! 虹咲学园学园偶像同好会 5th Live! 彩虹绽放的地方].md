@@ -324,3 +324,14 @@ as新剧情的应援角色看的我有点迷糊，感觉是不是在哪里见过
 <img src="https://p.sda1.dev/9/6a339a74bce811356074bc8157b0dd83/903E47C9853C24B24DD47745A5B463D1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/1181c7b938afcbec283b295fefb1bd8f/CMP_20230103113929084.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 6827#       发表于 2023-1-3 22:45
+
+<img src="https://p.sda1.dev/9/685dc3d66fbdd05ab17b68a68051d440/CMP_20230103224432395.jpg" referrerpolicy="no-referrer">
+[Vcream_unknow](https://twitter.com/Vcream_unknow/status/1610260415317147648?s=19)
+UR侑
+
