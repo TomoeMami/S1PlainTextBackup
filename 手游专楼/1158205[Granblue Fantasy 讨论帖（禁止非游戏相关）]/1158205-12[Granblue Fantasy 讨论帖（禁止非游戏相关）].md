@@ -238,3 +238,14 @@
 2天司2绝拳1炎帝剑能不能转不锈钢啊？猪枪倒是有的，说来也搞笑数了一下仓库抽了9把猪枪。。 ...</blockquote>
 可以的，2斧头1剑当基底就够了
 
+
+
+*****
+
+####  super0395  
+##### 17244#       发表于 2023-1-3 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59188348&amp;ptid=1158205" target="_blank">roxas.sora 发表于 2023-1-3 17:10</a>
+可以的，2斧头1剑当基底就够了</blockquote>
+谢谢，那就试试新时代火老王的力度了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

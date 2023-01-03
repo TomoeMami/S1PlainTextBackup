@@ -3282,3 +3282,14 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 就算是多打几回合，我也强行让王姐上班了
 
+
+
+*****
+
+####  kazemitoya  
+##### 44106#       发表于 2023-1-3 17:28
+
+已成功删除账号，感觉一身轻松，4年多的负担总算卸下来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+兄弟们再见，祝大家以后多多出货，永不沉船，咱们江湖有缘再见。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
