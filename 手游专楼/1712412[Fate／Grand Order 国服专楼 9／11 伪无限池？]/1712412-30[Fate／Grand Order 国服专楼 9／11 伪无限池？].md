@@ -3229,3 +3229,24 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  艾尔特翔  
+##### 44101#       发表于 2023-1-3 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59181179&amp;ptid=1712412" target="_blank">Akakaka 发表于 2023-1-3 08:38</a>
+
+在狂娜和王姐都没有的情况下，哪个优先度更高呢
+
+看了下明年貌似各有两个池子+赌7周年福袋，但是一个3月一个 ...</blockquote>
+王姐可主可副手，狂那只能当打手，看你需求
+
+*****
+
+####  azccc52  
+##### 44102#       发表于 2023-1-3 11:11
+
+王姐没上过班＋1
+
