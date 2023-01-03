@@ -14017,3 +14017,27 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 —— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 4267#       发表于 2023-1-3 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59184345&amp;ptid=2084912" target="_blank">rooarr 发表于 2023-1-3 12:42</a>
+
+个人感觉1宝水伊吹没啥用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这环境除了拐应该没有1宝能用的5星了
+
+*****
+
+####  alucardcz  
+##### 4268#       发表于 2023-1-3 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59184700&amp;ptid=2084912" target="_blank">1a不解释 发表于 2023-1-3 13:09</a>
+
+那还是等下次up再抽吧
+
+—— 来自 OPPO PENM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥好纠结的 拐大于天
+
