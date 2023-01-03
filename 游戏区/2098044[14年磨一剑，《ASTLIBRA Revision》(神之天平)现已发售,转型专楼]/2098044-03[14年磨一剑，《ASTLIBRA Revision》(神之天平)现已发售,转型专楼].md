@@ -2845,3 +2845,15 @@ Ns pro打了全程，震动适配正常
 
 主角们知道真相后很快便接受一切了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦窗  
+##### 3244#       发表于 2023-1-3 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59186491&amp;ptid=2098044" target="_blank">adw667 发表于 2023-1-3 15:11</a>
+
+在NICO上看了21年初的宣传片，那个头像画风确实跟现在完全不同，还好正式版重新画过 ...</blockquote>
+刚下了原版看看，鸟哥头像上来就把我惊了。
+
