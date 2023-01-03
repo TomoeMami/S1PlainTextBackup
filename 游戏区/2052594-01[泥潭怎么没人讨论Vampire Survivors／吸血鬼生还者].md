@@ -1617,3 +1617,16 @@ ns版啥时候安排
 这游戏有吸血鬼boss吗</blockquote>
 这游戏目前其他都不少，就是没有吸血鬼
 
+
+
+*****
+
+####  AeonsTorn  
+##### 622#       发表于 2023-1-3 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185864&amp;ptid=2052594" target="_blank">猫咪澎澎 发表于 2023-1-3 14:33</a>
+请教一个手机版的问题。为什么我手机版打死了红死神，但是该关卡的31分钟成就还是无法完成？
+
+—— 来自 S1 ...</blockquote>
+会不会你杀的太快了还没到31分钟，我碰到过这种情况
+
