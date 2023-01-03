@@ -2834,3 +2834,14 @@ Ns pro打了全程，震动适配正常
 听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">在NICO上看了21年初的宣传片，那个头像画风确实跟现在完全不同，还好正式版重新画过
 
+
+
+*****
+
+####  間桐櫻  
+##### 3243#       发表于 2023-1-3 22:15
+
+刚把蛇神干了。也就是说如果村民不失去肉体的话主角们很有可能打不过蛇神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主角们知道真相后很快便接受一切了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
