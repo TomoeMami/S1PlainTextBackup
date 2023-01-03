@@ -2665,3 +2665,18 @@ QQ图片20230101172411.jpg
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Tissuesea  
+##### 3229#       发表于 2023-1-3 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59181026&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-3 08:04</a>
+坏了，有两个隐藏boss没打进新章了
+
+—— 来自 vivo V2241A, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+没事他们还活着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只是你要推新章进度不然进不了他们在的那个地图
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
