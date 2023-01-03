@@ -1688,3 +1688,17 @@ ns版啥时候安排
 
 埋骨地死活过不去，求指点，用什么英雄什么技能才能过。
 
+
+
+*****
+
+####  closetojoe  
+##### 628#       发表于 2023-1-3 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59192842&amp;ptid=2052594" target="_blank">9500159178 发表于 2023-1-3 23:18</a>
+
+埋骨地死活过不去，求指点，用什么英雄什么技能才能过。</blockquote>
+熬到30分钟再去找骨球，然后顶着死神杀骨球。
+
+或者选那个飞刀超武的隐藏角色开场速杀。
+
