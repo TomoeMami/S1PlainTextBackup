@@ -2763,3 +2763,25 @@ OP是V曲的翻唱，出的很早了
 
 —— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  onezer0618  
+##### 3237#       发表于 2023-1-3 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183370&amp;ptid=2098044" target="_blank">yuwe0714 发表于 2023-1-3 11:38</a>
+老哥们有用ns pro手柄打的吗？震动适配如何？我不太想用xbox手柄开坑，免得nspro手柄吃灰，想先问问
+
+——  ...</blockquote>
+应该问题不大，我用xbox的手柄手都给震麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  梦窗  
+##### 3238#       发表于 2023-1-3 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">听说原版更加色情暴力，有没有玩过的来说说？
+

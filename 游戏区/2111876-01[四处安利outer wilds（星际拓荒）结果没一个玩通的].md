@@ -2182,3 +2182,18 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 最近刚打完，要是没攻略我可能真没法通，探索到一定程度就完全卡住了
 
+
+
+*****
+
+####  soul_hacker  
+##### 206#       发表于 2023-1-3 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144665&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-30 20:18</a>
+实在对制作组创造的这个世界没兴趣也没办法，这游戏的好玩的前提就是需要沉浸于这个世界里
+
+—— 来自 On ...</blockquote>
+我个人的感觉不是世界塑造的问题，我自己绝对算科幻迷了，玩不下去主要就是画面和操作感受不了……
+
+—— 来自 HUAWEI LIO-AN00P, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
