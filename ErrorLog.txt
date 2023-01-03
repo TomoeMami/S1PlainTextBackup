@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/1869442[《魔都精兵的奴隶》真好康啊]'
-!!error:id=1869442
