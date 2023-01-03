@@ -2797,3 +2797,15 @@ OP是V曲的翻唱，出的很早了
 听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
 STEAM版半裸的 原版都是**的
 
+
+
+*****
+
+####  quanlix  
+##### 3240#       发表于 2023-1-3 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185625&amp;ptid=2098044" target="_blank">梦窗 发表于 2023-1-3 14:16</a>
+
+听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
+色气度差不太多吧，暴力度高不少，像是蛇神之子那里的尸体堆和第七章屠城时候工会成员的尸体有非常清楚的断肢
+

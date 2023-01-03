@@ -1598,3 +1598,22 @@ ns版啥时候安排
 
 解锁了吸道具塔罗牌之后感觉阳痿了，血战模式10分钟准时开吸合两个隐藏超武进入垃圾时间<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  啊哈  
+##### 620#       发表于 2023-1-3 14:54
+
+这游戏有吸血鬼boss吗
+
+*****
+
+####  kimihung  
+##### 621#       发表于 2023-1-3 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59186212&amp;ptid=2052594" target="_blank">啊哈 发表于 2023-1-3 14:54</a>
+
+这游戏有吸血鬼boss吗</blockquote>
+这游戏目前其他都不少，就是没有吸血鬼
+
