@@ -2702,3 +2702,16 @@ QQ图片20230101172411.jpg
 这前奏起来  这。。这海猫风格味好浓</blockquote>
 我一直觉着这op怕不是霜月遥或者志方晶子直接披了个马甲就上了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  linkinsphere  
+##### 3232#       发表于 2023-1-3 10:55
+
+sm11093940
+
+OP是V曲的翻唱，出的很早了
+
+和游戏启动开发的时间倒是比较近
+
