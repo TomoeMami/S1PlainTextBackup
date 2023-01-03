@@ -2208,3 +2208,27 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 觉得不好玩十分正常，但是这游戏并没有一个很好的云通关视频，像quin 羽毛的实况有不少都是看弹幕剧透， ...</blockquote>
 碎空星的塔，我在那琢磨了好久，各种方法试，还想把飞船开过来卡进去，结果突然不对劲怎么开始飘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  若闲  
+##### 208#       发表于 2023-1-3 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185692&amp;ptid=2111876" target="_blank">soul_hacker 发表于 2023-1-3 14:20</a>
+我个人的感觉不是世界塑造的问题，我自己绝对算科幻迷了，玩不下去主要就是画面和操作感受不了……
+
+—— ...</blockquote>
+飞船和宇航服的操作确实反直觉，但这个问题是因为宇宙本身就是反直觉的，人在失重环境下只能操作自己的加速度，而速度自己不会变为0，想停下必须反方向减速。
+
+不过在强调真实物理的太空游戏中，星际拓荒的飞船绝对是最最好开的那一档，因为有俩东西：自动导航和a键速度同步。用好这俩就好控制了
+
+*****
+
+####  trentswd  
+##### 209#       发表于 2023-1-3 14:44
+
+原因很简单 我也有很多我自己觉得神作但是别人玩不下去的游戏啊
+
+明白神作其实是一件很私人的事情就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
