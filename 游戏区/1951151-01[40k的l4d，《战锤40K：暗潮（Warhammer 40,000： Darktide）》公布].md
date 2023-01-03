@@ -1928,3 +1928,26 @@ ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺�
 
 我老兵30了..现在灵能也快30了 有点颓了...
 
+
+
+*****
+
+####  xgazer  
+##### 222#       发表于 2023-1-3 12:03
+
+打几个成就收集一下外观懒得上线了，Steam统计我今年玩得最多的是鼠疫，暗潮现在有点玩不下去<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  casle  
+##### 223#       发表于 2023-1-3 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183561&amp;ptid=1951151" target="_blank">風舞雪 发表于 2023-1-3 11:50</a>
+
+是不是这游戏到30了 直接玩最低难度的那个图就好了..做任务和帝皇之礼给的好像都不看难度..
+
+我老兵30了..现 ...</blockquote>
+现在endgame阶段就是蹲普通商店和周常商店刷五维高的基底装备再往上升级
+
+难度越高给的升级材料越多
+
