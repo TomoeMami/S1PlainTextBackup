@@ -2822,3 +2822,15 @@ STEAM版半裸的 原版都是**的
 ——  ...</blockquote>
 Ns pro打了全程，震动适配正常
 
+
+
+*****
+
+####  adw667  
+##### 3242#       发表于 2023-1-3 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185625&amp;ptid=2098044" target="_blank">梦窗 发表于 2023-1-3 14:16</a>
+
+听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">在NICO上看了21年初的宣传片，那个头像画风确实跟现在完全不同，还好正式版重新画过
+

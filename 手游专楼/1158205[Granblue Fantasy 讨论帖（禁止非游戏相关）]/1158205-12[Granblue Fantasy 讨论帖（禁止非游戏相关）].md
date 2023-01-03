@@ -217,3 +217,12 @@
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  super0395  
+##### 17242#       发表于 2023-1-3 15:14
+
+2天司2绝拳1炎帝剑能不能转不锈钢啊？猪枪倒是有的，说来也搞笑数了一下仓库抽了9把猪枪。。
+
