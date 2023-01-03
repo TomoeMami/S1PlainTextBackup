@@ -1630,3 +1630,28 @@ ns版啥时候安排
 —— 来自 S1 ...</blockquote>
 会不会你杀的太快了还没到31分钟，我碰到过这种情况
 
+
+
+*****
+
+####  猫咪澎澎  
+##### 623#       发表于 2023-1-3 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59187044&amp;ptid=2052594" target="_blank">AeonsTorn 发表于 2023-1-3 15:42</a>
+会不会你杀的太快了还没到31分钟，我碰到过这种情况</blockquote>
+我记得PC上只要杀掉红死神就等同于31分钟了，原来是手机版的问题吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AeonsTorn  
+##### 624#       发表于 2023-1-3 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59187214&amp;ptid=2052594" target="_blank">猫咪澎澎 发表于 2023-1-3 15:53</a>
+
+我记得PC上只要杀掉红死神就等同于31分钟了，原来是手机版的问题吗？
+
+—— 来自 S1Fun ...</blockquote>
+我就是pc版遇到的这个问题……我那次还是白死神出来的时候过了31分钟，但最后还是没算。可能后面的版本优化了吧，所以后来我都是等红死神出来先跑路过了31分钟再杀的
+
