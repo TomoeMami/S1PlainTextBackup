@@ -226,3 +226,15 @@
 
 2天司2绝拳1炎帝剑能不能转不锈钢啊？猪枪倒是有的，说来也搞笑数了一下仓库抽了9把猪枪。。
 
+
+
+*****
+
+####  roxas.sora  
+##### 17243#       发表于 2023-1-3 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59186549&amp;ptid=1158205" target="_blank">super0395 发表于 2023-1-3 15:14</a>
+
+2天司2绝拳1炎帝剑能不能转不锈钢啊？猪枪倒是有的，说来也搞笑数了一下仓库抽了9把猪枪。。 ...</blockquote>
+可以的，2斧头1剑当基底就够了
+
