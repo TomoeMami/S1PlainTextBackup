@@ -13995,3 +13995,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
  没伊吹的话福袋抽狂比较好吗，但是我水武藏和摩根都2宝，又有点想去赌泳装cba，但里面雷有点多，好纠结[f:0 ...</blockquote>
 个人感觉1宝水伊吹没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 4265#       发表于 2023-1-3 12:50
+
+开强化本和幕间要给石头，这等同于要了它们的命
+
