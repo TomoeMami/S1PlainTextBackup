@@ -302,3 +302,14 @@ Karin's episode
 ［美术部（しづきみちる）］虹が咲く楽园<img src="https://p.sda1.dev/9/912b5dcb75420ae1e6a7a68766115d7c/CMP_20230103094105787.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/53655f99bfa11e89823bcb24384d43f9/CMP_20230103094105838.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6825#       发表于 2023-1-3 10:01
+
+as新剧情的应援角色看的我有点迷糊，感觉是不是在哪里见过的剧情。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

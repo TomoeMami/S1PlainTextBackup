@@ -3552,3 +3552,12 @@ Pay穿的就是Nagi的衣服！</blockquote>
 
 <img src="https://p.sda1.dev/9/92534414780e2e5a2e49c2b8d5ef2fd6/CMP_20230102162735555.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 10812#       发表于 2023-1-3 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">今早上看到叔叔家的肥姑妈千补货了，可惜之前香音的没赶上
+

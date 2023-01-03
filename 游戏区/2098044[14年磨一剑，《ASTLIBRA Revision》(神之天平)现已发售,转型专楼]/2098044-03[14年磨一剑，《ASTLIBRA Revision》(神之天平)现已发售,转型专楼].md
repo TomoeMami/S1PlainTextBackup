@@ -2689,3 +2689,16 @@ QQ图片20230101172411.jpg
 
 最终boss占整个屏幕打一下就闪白光跟吃了闪光弹似的，配合一堆白色弹幕，不知道怎么想的。真有人不用消弹硬刮过的吗。
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 3231#       发表于 2023-1-3 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59163410&amp;ptid=2098044" target="_blank">phoenixxj 发表于 2023-1-1 13:06</a>
+哇 玩到op
+
+这前奏起来  这。。这海猫风格味好浓</blockquote>
+我一直觉着这op怕不是霜月遥或者志方晶子直接披了个马甲就上了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
