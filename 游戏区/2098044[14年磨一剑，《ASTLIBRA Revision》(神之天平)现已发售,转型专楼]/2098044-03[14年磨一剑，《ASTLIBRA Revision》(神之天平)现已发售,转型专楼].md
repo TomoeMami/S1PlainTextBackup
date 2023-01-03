@@ -2809,3 +2809,16 @@ STEAM版半裸的 原版都是**的
 听说原版更加色情暴力，有没有玩过的来说说？</blockquote>
 色气度差不太多吧，暴力度高不少，像是蛇神之子那里的尸体堆和第七章屠城时候工会成员的尸体有非常清楚的断肢
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3241#       发表于 2023-1-3 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183370&amp;ptid=2098044" target="_blank">yuwe0714 发表于 2023-1-3 11:38</a>
+老哥们有用ns pro手柄打的吗？震动适配如何？我不太想用xbox手柄开坑，免得nspro手柄吃灰，想先问问
+
+——  ...</blockquote>
+Ns pro打了全程，震动适配正常
+
