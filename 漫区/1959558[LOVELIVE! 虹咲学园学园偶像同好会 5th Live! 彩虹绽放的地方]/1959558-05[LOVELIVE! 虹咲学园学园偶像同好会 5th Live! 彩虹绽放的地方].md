@@ -313,3 +313,14 @@ as新剧情的应援角色看的我有点迷糊，感觉是不是在哪里见过
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 6826#       发表于 2023-1-3 11:39
+
+可步敢梦步到
+<img src="https://p.sda1.dev/9/6a339a74bce811356074bc8157b0dd83/903E47C9853C24B24DD47745A5B463D1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/1181c7b938afcbec283b295fefb1bd8f/CMP_20230103113929084.jpg" referrerpolicy="no-referrer">
+
