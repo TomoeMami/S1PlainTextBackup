@@ -14077,3 +14077,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 —— 来自 OPPO PENM00, Android 12上的 S1Next- ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从90++来看 有点用 远强于cba
 
+
+
+*****
+
+####  1a不解释  
+##### 4272#       发表于 2023-1-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59185744&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-3 14:25</a>
+从90++来看 有点用 远强于cba</blockquote>
+抽了，果然又被道满狙击了一次，垃圾游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
