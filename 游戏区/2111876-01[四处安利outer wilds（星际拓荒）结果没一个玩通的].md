@@ -2197,3 +2197,14 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 —— 来自 HUAWEI LIO-AN00P, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  若闲  
+##### 207#       发表于 2023-1-3 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59179551&amp;ptid=2111876" target="_blank">张叔夜 发表于 2023-1-3 00:00</a>
+觉得不好玩十分正常，但是这游戏并没有一个很好的云通关视频，像quin 羽毛的实况有不少都是看弹幕剧透， ...</blockquote>
+碎空星的塔，我在那琢磨了好久，各种方法试，还想把飞船开过来卡进去，结果突然不对劲怎么开始飘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
