@@ -13922,3 +13922,22 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 你好歹开个强化本
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 4259#       发表于 2023-1-3 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不知道开强化本就跟杀他们亲妈一样么 
+
+*****
+
+####  里村紅葉  
+##### 4260#       发表于 2023-1-3 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59183066&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-1-3 11:19</a>
+
+不知道开强化本就跟杀他们亲妈一样么</blockquote>
+一个强化本2个石头啊，怎么舍得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

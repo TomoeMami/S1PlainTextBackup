@@ -3250,3 +3250,26 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 王姐没上过班＋1
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 44103#       发表于 2023-1-3 11:14
+
+一宝狂娜能打90+，一宝摩根没卵用
+
+*****
+
+####  荡寇将军张嶷  
+##### 44104#       发表于 2023-1-3 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59161667&amp;ptid=1712412" target="_blank">guojiaoqi 发表于 2023-1-1 09:54</a>
+
+必须打完2.6才能打的通古斯就这？水平不如1.5，什么屎一样的剧情、人物塑造，服气 ...</blockquote>
+“但是，她真的美”。
+
+不是退一万步，你TM就是把太公望和妲己写成CP了，也写的好点啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+除了问一句你喜欢钓鱼、看了几遍她真的美，还能整点有用的活不。
+
