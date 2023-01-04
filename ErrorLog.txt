@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/游戏区/2012106-01[《心跳文学部plus》已解锁！转型讨论楼].md'
-!!error:id=2012106

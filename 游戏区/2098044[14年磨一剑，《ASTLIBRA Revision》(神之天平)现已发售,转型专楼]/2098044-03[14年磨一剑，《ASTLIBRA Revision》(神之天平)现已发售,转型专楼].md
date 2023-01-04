@@ -2971,3 +2971,21 @@ Ns pro打了全程，震动适配正常
 作者还真是喜欢消除， ...</blockquote>
 这人挺喜欢15年以前的少爷的，之后低迷期跟和风的一首都没用
 
+
+
+*****
+
+####  jojohunter  
+##### 3254#       发表于 2023-1-5 03:22
+
+手贱把树枝卖了，怎么拿回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzmss17  
+##### 3255#       发表于 2023-1-5 04:35
+
+第四章打完 竞技场可以不打吗 每次失败再进入也太花时间了
+
