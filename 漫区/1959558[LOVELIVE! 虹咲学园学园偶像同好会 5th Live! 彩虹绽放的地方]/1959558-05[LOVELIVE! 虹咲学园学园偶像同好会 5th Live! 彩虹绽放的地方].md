@@ -335,3 +335,14 @@ as新剧情的应援角色看的我有点迷糊，感觉是不是在哪里见过
 [Vcream_unknow](https://twitter.com/Vcream_unknow/status/1610260415317147648?s=19)
 UR侑
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 6828#       发表于 2023-1-4 08:09
+
+看了AZALEA 2nd，那时正好是老王病的时期，看完有纱和sww的双人表演让我觉得LL企划真有成员出事的话替换起来是不会影响演出的……
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
