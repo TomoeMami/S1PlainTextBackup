@@ -2922,3 +2922,25 @@ Ns pro打了全程，震动适配正常
 
 话说第五章如果带了百，除了一周目对话剧情有影响，少一个爱情，对后续还有影响吗
 
+
+
+*****
+
+####  onezer0618  
+##### 3250#       发表于 2023-1-4 10:24
+
+困难难度通关这个成就，可以二周目完成吗（这个游戏有二周目吗）
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  otakun  
+##### 3251#       发表于 2023-1-4 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59195858&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-4 10:24</a>
+困难难度通关这个成就，可以二周目完成吗（这个游戏有二周目吗）
+
+—— 来自 vivo V2241A, Android 13上的  ...</blockquote>
+不存在二周目，新章还算是同一个周目。
+
