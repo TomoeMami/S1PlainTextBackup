@@ -3307,3 +3307,17 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 兄弟们再见，祝大家以后多多出货，永 ...</blockquote>
 恭喜脱离苦海
 
+
+
+*****
+
+####  艾尔特翔  
+##### 44108#       发表于 2023-1-4 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59188585&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2023-1-3 17:28</a>
+
+已成功删除账号，感觉一身轻松，4年多的负担总算卸下来的感觉
+
+兄弟们再见，祝大家以后多多出货，永 ...</blockquote>
+还是你潇洒，轻松了
+
