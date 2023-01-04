@@ -12938,3 +12938,16 @@ Screenshot_2022-12-31-09-07-34-18_149003a2d400f6adb210d7e357a3a646.jpg
 
 其实挺矛盾的，卡姐听了弹幕指导民的意见瞎说话把量子猫水友得罪了，吧友看不下去怒斥指导民，并且怒斥卡姐心智不成熟没主见整天被弹幕牵着鼻子走，结果兜兜转还是成了指导民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2845#       发表于 2023-1-4 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nyf入脑是这样的
+
+梦之声2.0特邀的大老师是谁啊？普罗维登的老板吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
