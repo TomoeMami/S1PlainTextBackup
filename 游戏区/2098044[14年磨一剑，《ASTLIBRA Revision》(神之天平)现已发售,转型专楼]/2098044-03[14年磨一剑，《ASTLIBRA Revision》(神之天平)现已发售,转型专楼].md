@@ -2913,3 +2913,12 @@ Ns pro打了全程，震动适配正常
 
 —— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Lokifaller  
+##### 3249#       发表于 2023-1-4 10:10
+
+话说第五章如果带了百，除了一周目对话剧情有影响，少一个爱情，对后续还有影响吗
+
