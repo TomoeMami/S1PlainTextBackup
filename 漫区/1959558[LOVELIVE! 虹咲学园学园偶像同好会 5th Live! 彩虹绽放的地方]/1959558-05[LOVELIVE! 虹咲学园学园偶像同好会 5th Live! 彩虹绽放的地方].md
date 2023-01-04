@@ -357,3 +357,14 @@ UR侑
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 6830#       发表于 2023-1-4 09:29
+
+对前辈提问哪个场景最令人印象深刻，使用匕字真言一语双关。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
