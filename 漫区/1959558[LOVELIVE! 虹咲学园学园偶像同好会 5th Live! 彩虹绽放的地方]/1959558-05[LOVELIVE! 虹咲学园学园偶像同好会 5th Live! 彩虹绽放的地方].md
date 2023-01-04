@@ -346,3 +346,14 @@ UR侑
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 6829#       发表于 2023-1-4 08:42
+
+对后辈使用威压的屑兔，BV1q84y1Y74n
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
