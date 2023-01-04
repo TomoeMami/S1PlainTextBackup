@@ -1732,3 +1732,36 @@ ns版啥时候安排
 
 也没↓+enter给你按啊……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫沙狐  
+##### 632#       发表于 2023-1-4 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59192842&amp;ptid=2052594" target="_blank">9500159178 发表于 2023-1-3 23:18</a>
+
+埋骨地死活过不去，求指点，用什么英雄什么技能才能过。</blockquote>
+埋骨地没有道具 所以要选回血的 用DLC的风刀就可以
+
+*****
+
+####  好多树  
+##### 633#       发表于 2023-1-4 17:06
+
+埋骨地开血战，这个十分钟出来的死神怎么搞，打也打不过跑也跑不过，带月桂也没抗住，也没有十字架能秒啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  不可避免  
+##### 634#       发表于 2023-1-4 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59186296&amp;ptid=2052594" target="_blank">kimihung 发表于 2023-1-3 14:59</a>
+
+这游戏目前其他都不少，就是没有吸血鬼</blockquote>
+有一说一，可选角色里还是有寨版阿鲁卡多的。
+
+作为恶魔城素材大合集，估计吸血鬼BOSS要等后面大更新了。
+
