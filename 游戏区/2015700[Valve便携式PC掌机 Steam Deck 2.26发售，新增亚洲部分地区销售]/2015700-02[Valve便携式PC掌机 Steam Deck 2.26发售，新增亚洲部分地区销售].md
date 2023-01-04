@@ -469,3 +469,17 @@ valve的硬件有出过二代么</blockquote>
 请问deck支持家庭共享吗，阿根廷和土耳其小号上买了不少游戏，存档全在大号上 ...</blockquote>
 支持
 
+
+
+*****
+
+####  Benighted  
+##### 2034#       发表于 2023-1-4 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59164739&amp;ptid=2015700" target="_blank">psvsd 发表于 2023-1-1 15:42</a>
+
+6800u低功耗被sd吊着打，怎么还有问的
+
+携带机有这性能表现已经够了，下一代如果能把老头环续航默认 ...</blockquote>
+目前性能已经够我玩个3~4年的了。。把游戏库清完还有模拟器。。期待deck 2
+
