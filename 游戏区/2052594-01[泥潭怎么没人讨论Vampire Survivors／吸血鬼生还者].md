@@ -1765,3 +1765,14 @@ ns版啥时候安排
 
 作为恶魔城素材大合集，估计吸血鬼BOSS要等后面大更新了。
 
+
+
+*****
+
+####  wujae  
+##### 635#       发表于 2023-1-4 17:17
+
+埋骨地有啥难的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+塔罗牌8太IMBA了，感觉把整个游戏带入垃圾时间。
+
