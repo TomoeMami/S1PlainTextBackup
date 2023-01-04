@@ -12967,3 +12967,15 @@ Screenshot_2022-12-31-09-07-34-18_149003a2d400f6adb210d7e357a3a646.jpg
 
 我实在受不了鹅鸭杀这个游戏，可能是我看动画区那边狼人杀太多了，看现在联动的鹅鸭杀总觉得憋得不行
 
+
+
+*****
+
+####  ladiesman802  
+##### 2848#       发表于 2023-1-5 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59206843&amp;ptid=1926094" target="_blank">提取温暖度严寒 发表于 2023-1-4 23:38</a>
+
+我实在受不了鹅鸭杀这个游戏，可能是我看动画区那边狼人杀太多了，看现在联动的鹅鸭杀总觉得憋得不行 ...</blockquote>
+其实我也不看，但是小纸玩鹅鸭杀都是自己玩顺便加班，不占用正常直播时间
+
