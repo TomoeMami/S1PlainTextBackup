@@ -35,3 +35,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新年卡一如既往的高水平，suki
 
+
+
+*****
+
+####  两个路人  
+##### 5355#       发表于 2023-1-4 23:58
+
+然而新年卡又是三合一，在没有双倍buff下，完全抽不动… 
+
