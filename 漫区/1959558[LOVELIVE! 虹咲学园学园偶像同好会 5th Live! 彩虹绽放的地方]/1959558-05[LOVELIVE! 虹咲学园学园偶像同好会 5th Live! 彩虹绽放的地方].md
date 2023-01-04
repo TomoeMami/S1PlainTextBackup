@@ -407,3 +407,13 @@ UR侑
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 6834#       发表于 2023-1-4 15:01
+
+只是因为风格要统一吧
+感觉差别还不算太大
+
