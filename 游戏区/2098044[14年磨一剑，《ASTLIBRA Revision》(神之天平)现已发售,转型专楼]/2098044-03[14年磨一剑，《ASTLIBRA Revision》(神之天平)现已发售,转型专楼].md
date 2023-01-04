@@ -2902,3 +2902,14 @@ Ns pro打了全程，震动适配正常
 
 原版不是鸦哥 明显是鸭哥
 
+
+
+*****
+
+####  绕指流光  
+##### 3248#       发表于 2023-1-4 10:00
+
+我觉得嘉隆的头像是我这么多年游戏里见过的最传神的鸟类描绘了，明明没什么变化却很传神的用鸟类的侧面像表现出了拟人的感情特点<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">非常值得一吹
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
