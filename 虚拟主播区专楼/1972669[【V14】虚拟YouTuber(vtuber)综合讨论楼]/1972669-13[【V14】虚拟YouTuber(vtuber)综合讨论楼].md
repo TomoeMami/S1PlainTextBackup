@@ -2679,3 +2679,15 @@ met你家又炸了
 
 阿B现在还能补票看歌谣祭吗，不会要去nico吧。。
 
+
+
+*****
+
+####  noHentai  
+##### 18246#       发表于 2023-1-4 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59197885&amp;ptid=1972669" target="_blank">Suny08 发表于 2023-1-4 12:53</a>
+看了下fes 的纪录片，这种event确实挺辛苦，连着几天干通宵，看采访的人也是找了挺多外包的，就是没想到enk ...</blockquote>
+一个感想是这确实是年轻人的行业，staff目测大多不过30。
+另外就是女粉确实多，上镜的颜值都不错。
+
