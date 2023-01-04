@@ -2957,3 +2957,17 @@ Ns pro打了全程，震动适配正常
 
 不过那几首插入的都是游戏的高潮部分，听着也挺燃就是了
 
+
+
+*****
+
+####  tsubaki  
+##### 3253#       发表于 2023-1-4 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59196320&amp;ptid=2098044" target="_blank">霖岚_ 发表于 2023-1-4 10:56</a>
+
+话说我玩之前都不知道这游戏原本是同人制作的免费游戏，但一听里面的BGM都大概知道了
+
+作者还真是喜欢消除， ...</blockquote>
+这人挺喜欢15年以前的少爷的，之后低迷期跟和风的一首都没用
+
