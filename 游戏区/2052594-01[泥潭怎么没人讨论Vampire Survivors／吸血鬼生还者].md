@@ -1805,3 +1805,15 @@ ns版啥时候安排
 
 话说，苹果国服审核到底是啥机制，不是说游戏都需要版号来着吗？这没版号，不会很快就下线吧？
 
+
+
+*****
+
+####  无意义小号  
+##### 639#       发表于 2023-1-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59202641&amp;ptid=2052594" target="_blank">无面 发表于 2023-1-4 18:27</a>
+
+手机和pc存档不互通好痛苦，这手机版免费让我感觉好不安心啊。不会就出个基础版做宣传，不更新dlc之类的东 ...</blockquote>
+没有任何盈利功能的游戏不需要版号的
+
