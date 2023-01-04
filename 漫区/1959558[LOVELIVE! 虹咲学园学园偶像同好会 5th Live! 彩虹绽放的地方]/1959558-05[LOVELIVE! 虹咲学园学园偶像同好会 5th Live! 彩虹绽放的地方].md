@@ -395,3 +395,15 @@ UR侑
 <img src="https://p.sda1.dev/9/e45506b98a2eb7a2e0adca76f43cbb9f/CMP_20230104104140406.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/a065022839134bed62141e6ea01611ce/CMP_20230104104140507.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6833#       发表于 2023-1-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59195177&amp;ptid=1959558" target="_blank">link@1018max 发表于 2023-1-4 09:33</a></blockquote>
+其实之前步梦抱侑的杂志封面也看得出侑挺有料的，只是平时不怎么喜欢这样刻画。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
