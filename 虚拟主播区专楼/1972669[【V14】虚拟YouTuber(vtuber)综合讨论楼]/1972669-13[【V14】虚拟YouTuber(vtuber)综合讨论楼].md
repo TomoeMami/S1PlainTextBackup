@@ -2653,3 +2653,20 @@ met你家又炸了
 
 兔这个新衣装真不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 18244#       发表于 2023-1-4 12:53
+
+看了下fes 的纪录片，这种event确实挺辛苦，连着几天干通宵，看采访的人也是找了挺多外包的，就是没想到enkr的女员工有点多啊，职位看上去也不低，什么3d模型指导剧组指导这些的，原来gameru 的导演也是个妹子，声音也挺好听的，可爱捏
+
+<img src="https://img.saraba1st.com/forum/202301/04/125257z0n9ftn0xn8ftunj.png" referrerpolicy="no-referrer">
+
+<strong>A668C14B-A3D0-4907-9583-9038092A5E19.png</strong> (295.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-4 12:52 上传
+
