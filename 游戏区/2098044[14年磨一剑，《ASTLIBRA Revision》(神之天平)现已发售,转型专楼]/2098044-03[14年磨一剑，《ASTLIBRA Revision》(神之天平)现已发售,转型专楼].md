@@ -3051,3 +3051,24 @@ Ns pro打了全程，震动适配正常
 
 我觉得我吃不干净了，装备不全刷竞技场不全清对通关有影响么，现在就想早点打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小黑鱼  
+##### 3262#       发表于 2023-1-5 09:56
+
+其实竞技场只要拿到连射弩后面许多关都可以逃课吧，记得要把投掷大师点上，加点全加魔导力
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3263#       发表于 2023-1-5 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59209212&amp;ptid=2098044" target="_blank">u2deack 发表于 2023-1-5 09:22</a>
+
+我觉得我吃不干净了，装备不全刷竞技场不全清对通关有影响么，现在就想早点打完 ...</blockquote>
+第六章后没拿在斗技场到高级配方，之后一直没做装备依然能打到终章。
+
+再次强调斗技场一定要打4.4，其他的可以缓缓。
+
