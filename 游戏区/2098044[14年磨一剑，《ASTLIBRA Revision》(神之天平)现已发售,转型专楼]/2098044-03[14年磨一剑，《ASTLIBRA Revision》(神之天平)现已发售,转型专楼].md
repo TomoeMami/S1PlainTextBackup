@@ -3206,3 +3206,17 @@ Ns pro打了全程，震动适配正常
 刚开始玩，请问加点有什么通用套路吗</blockquote>
 加点软上线是等级+3，重量控制40以下。实际上成长那个才是真加点，升级那个不过微调罢了。
 
+
+
+*****
+
+####  j.nelson  
+##### 3275#       发表于 2023-1-5 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59213610&amp;ptid=2098044" target="_blank">gwchobit 发表于 2023-1-5 13:51</a>
+
+作者说法是控制重量属性在80以下.具体以下多少看个人手感习惯
+
+经验之谈是每个属性有衰减上限,利用率高就 ...</blockquote>
+我用手柄玩的个人感觉重量好像有几个档位，某些武器在重量30左右反而手感好，感觉可能是和连击有关，也有可能武器速度上去了但是跳跃和移动速度没变有点会别扭，但是基本重量超过50都可以明显感到DPS受到影响了，所以敏捷这个加点还蛮谜的每把武器最好都微调一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
