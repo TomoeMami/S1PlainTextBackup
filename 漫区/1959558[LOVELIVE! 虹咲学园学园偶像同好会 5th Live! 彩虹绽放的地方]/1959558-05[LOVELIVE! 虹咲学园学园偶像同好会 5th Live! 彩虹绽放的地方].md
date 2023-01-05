@@ -455,3 +455,14 @@ UR侑
 
 侑哥哥长的越来越学园偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6839#       发表于 2023-1-6 00:08
+
+上游戏发现虹4格播出也送十连必ur，有点草诶。（是时候重现hnk公布每天抽到谁了）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
