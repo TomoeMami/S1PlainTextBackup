@@ -13003,3 +13003,19 @@ syl，21年7月12号咩和阿和一起出镜自爆经历那个录播现在b站�
 
 可惜企业可能要用这个写ppt 
 
+
+
+*****
+
+####  ladiesman802  
+##### 2851#       发表于 2023-1-5 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59209927&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-5 10:14</a>
+
+看贴吧提醒才反应过来，前天纸哥拉来的现实朋友原来就是过去闹出大事的阿和啊，多亏直播间老东西不多，纸哥 ...</blockquote>
+不过如此，大伙喜欢的是v这个角色，过去就过去了，这不是啥大事
+
+真正梁木的人也不会关注小纸
+
+ps当年贝拉单推，应援团大佬启言不知道还有没有关注小纸
+
