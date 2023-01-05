@@ -1826,3 +1826,26 @@ ns版啥时候安排
 
 解锁女王之前目标就是解锁女王，解完拿女王打了一把，无敌寂寞，关掉游戏再也没打开<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  女神アイギス  
+##### 641#       发表于 2023-1-5 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59202641&amp;ptid=2052594" target="_blank">无面 发表于 2023-1-4 18:27</a>
+
+手机和pc存档不互通好痛苦，这手机版免费让我感觉好不安心啊。不会就出个基础版做宣传，不更新dlc之类的东 ...</blockquote>
+按制作者的说法，这游戏对他来说完全是意外之财，所以他不乐意做成内购手游
+
+但手游做成收费app也不合适，所以就以现在的看广告方式盈利了，dlc怎么办还在考虑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  女神アイギス  
+##### 642#       发表于 2023-1-5 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手机版玩了几把，搓玻璃躲怪好痛苦啊，键盘的上限完全打不出来
+
+重新开荒倒无所谓，我挺喜欢这游戏开荒过程的
+
