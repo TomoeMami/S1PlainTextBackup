@@ -427,3 +427,13 @@ UR侑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59195177&amp;ptid=1959558" target="_blank">link@1018max 发表于 2023-1-4 09:33</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祖传高光加太多了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6836#       发表于 2023-1-5 18:25
+
+[https://twitter.com/ohkowai/status/1610943622601670660](https://twitter.com/ohkowai/status/1610943622601670660)
+<img src="https://p.sda1.dev/9/5cd54ac72af96ec70a43a11b8908399b/20230105_182248.jpg" referrerpolicy="no-referrer">
+
