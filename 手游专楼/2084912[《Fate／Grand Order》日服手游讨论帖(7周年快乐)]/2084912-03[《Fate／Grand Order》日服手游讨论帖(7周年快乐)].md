@@ -14117,3 +14117,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 反正这产量是真不好说了，2.7上的从者完成度上都是残疾，百特曼据说还是敌人专用模组，后篇烟雾镜是不是要搞个4套灵基每套都不同模组啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 4276#       发表于 2023-1-5 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59212232&amp;ptid=2084912" target="_blank">風卷豹 发表于 2023-1-5 12:29</a>
+
+反正这产量是真不好说了，2.7上的从者完成度上都是残疾，百特曼据说还是敌人专用模组，后篇烟雾镜是不是要 ...</blockquote>
+营运说上年有35位新角色，但其中3位是活动角更是同一模组来(要等多2次復刻才能收集另外2人?)，水份比率看他如何处理...
+

@@ -80,3 +80,52 @@
 但左边的那个断桥的锁还是不会，总感觉需要密码才行 ...</blockquote>
 想想以前学过的知识，隐形的桥在什么情况下会显形？
 
+
+
+*****
+
+####  RandomDictator  
+##### 1097#       发表于 2023-1-5 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215471&amp;ptid=1992654" target="_blank">Motoko-9 发表于 2023-1-5 15:49</a>
+
+想想以前学过的知识，隐形的桥在什么情况下会显形？</blockquote>
+放下文物之后看到 那个桥还是在空中断成几段过不去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Motoko-9  
+##### 1098#       发表于 2023-1-5 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215507&amp;ptid=1992654" target="_blank">RandomDictator 发表于 2023-1-5 15:51</a>
+放下文物之后看到 那个桥还是在空中断成几段过不去啊</blockquote>
+你调密码盘啊，属实是一根弦断了卡死人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RandomDictator  
+##### 1099#       发表于 2023-1-5 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215531&amp;ptid=1992654" target="_blank">Motoko-9 发表于 2023-1-5 15:52</a>
+
+你调密码盘啊</blockquote>
+这个密码我不知道啊？
+
+全图唯二两个密码不是一个是水库边那个房子，一个是遗弃神吗
+
+我没发现别的密码啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Motoko-9  
+##### 1100#       发表于 2023-1-5 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215561&amp;ptid=1992654" target="_blank">RandomDictator 发表于 2023-1-5 15:54</a>
+这个密码我不知道啊？
+
+全图唯二两个密码不是一个是水库边那个房子，一个是遗弃神吗
+
+我没发现别的密码啊[f ...</blockquote>
+老哥啊，你能走到这一步了，不知道这游戏的调性就是啥能互动的都碰一碰玩一玩再说嘛
+你放下灯，先去调密码盘试试，看看有什么变化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
