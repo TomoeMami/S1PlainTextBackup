@@ -3030,3 +3030,15 @@ Ns pro打了全程，震动适配正常
 
 呃，有机会用mod之类的给steam版换成原版黄暴内容吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3260#       发表于 2023-1-5 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59208776&amp;ptid=2098044" target="_blank">otakun 发表于 2023-1-5 08:36</a>
+
+这游戏最大缺点就是竞技场作为可选内容，把太多关键道具放了进去，不打不行。不过除了第一章后因为刷得不够 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩这游戏就该冲着全成就把游戏内容吃干抹净才对
+
