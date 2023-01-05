@@ -57,3 +57,28 @@ Marksdwarf创建好squad设置军服是必须是crossbow，之后不要变动这
 
 这个up讲的比较详细
 
+
+
+*****
+
+####  Racyjackman  
+##### 109#       发表于 2023-1-5 17:27
+
+好消息，目前汉化上的技术问题估计快解决了
+
+<img src="https://img.saraba1st.com/forum/202301/05/172648cha2vab2dzl5b5ts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-5 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202301/05/172705ex4kjhsors4uzr0a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-5 17:27 上传
+
