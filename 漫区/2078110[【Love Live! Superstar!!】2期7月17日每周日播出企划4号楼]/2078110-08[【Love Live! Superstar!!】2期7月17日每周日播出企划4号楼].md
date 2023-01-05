@@ -3812,3 +3812,14 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 10830#       发表于 2023-1-5 23:57
+
+熊马上随机夺舍一名队友发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
