@@ -164,3 +164,18 @@
 
 还想最后问一句，和禁闭者说完话之后他就走了，最后岸上留下了火炬就算结束了吗？剩下就是重新过一次本篇去末日相见？编辑：知道啦，应该是的
 
+
+
+*****
+
+####  Motoko-9  
+##### 1103#       发表于 2023-1-5 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215937&amp;ptid=1992654" target="_blank">RandomDictator 发表于 2023-1-5 16:18</a>
+看到结局了，真感人啊
+
+还想最后问一句，和禁闭者说完话之后他就走了，最后岸上留下了火炬就算结束 ...</blockquote>
+你看河边的话会发现有一排脚印，幽禁者已经解脱了
+
+在下一个宇宙相会吧
+
