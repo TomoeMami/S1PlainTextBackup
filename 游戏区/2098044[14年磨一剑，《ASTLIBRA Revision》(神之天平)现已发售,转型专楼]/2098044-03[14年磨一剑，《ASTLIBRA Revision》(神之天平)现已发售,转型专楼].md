@@ -3000,3 +3000,17 @@ Ns pro打了全程，震动适配正常
 第四章打完 竞技场可以不打吗 每次失败再进入也太花时间了</blockquote>
 竞技场不打拿不到高级配方书和炼金术书第五章后直接卡装备，开始界面和对话时按回车跳过可以节省点时间
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3257#       发表于 2023-1-5 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59208343&amp;ptid=2098044" target="_blank">wzmss17 发表于 2023-1-5 04:35</a>
+
+第四章打完 竞技场可以不打吗 每次失败再进入也太花时间了</blockquote>
+作为一路魂斗罗到结局的冤种给个建议，
+
+第六章还能进斗技场的时候一定要把斗技场4.4打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
