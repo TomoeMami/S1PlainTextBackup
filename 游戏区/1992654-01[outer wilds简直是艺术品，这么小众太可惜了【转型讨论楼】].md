@@ -147,3 +147,20 @@
 
 太感谢了
 
+
+
+*****
+
+####  RandomDictator  
+##### 1102#       发表于 2023-1-5 16:18
+
+ 本帖最后由 RandomDictator 于 2023-1-5 16:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215613&amp;ptid=1992654" target="_blank">Motoko-9 发表于 2023-1-5 15:56</a>
+
+老哥啊，你能走到这一步了，不知道这游戏的调性就是啥能互动的都碰一碰玩一玩再说嘛
+
+你放下灯，先去调密 ...</blockquote>
+看到结局了，真感人啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+还想最后问一句，和禁闭者说完话之后他就走了，最后岸上留下了火炬就算结束了吗？剩下就是重新过一次本篇去末日相见？编辑：知道啦，应该是的
+
