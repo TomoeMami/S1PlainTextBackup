@@ -3733,3 +3733,12 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只擅长熨衣服，收拾起来估计花挺久
 
+
+
+*****
+
+####  lj205  
+##### 10826#       发表于 2023-1-5 15:18
+
+这房子看着真不小，真正的1LDK
+
