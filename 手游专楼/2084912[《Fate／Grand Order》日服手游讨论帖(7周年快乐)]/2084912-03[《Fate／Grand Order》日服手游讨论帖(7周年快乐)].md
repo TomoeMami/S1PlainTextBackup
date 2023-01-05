@@ -14108,3 +14108,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">扔了一发十连一个呼符出了霸王花
 
+
+
+*****
+
+####  風卷豹  
+##### 4275#       发表于 2023-1-5 12:29
+
+反正这产量是真不好说了，2.7上的从者完成度上都是残疾，百特曼据说还是敌人专用模组，后篇烟雾镜是不是要搞个4套灵基每套都不同模组啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
