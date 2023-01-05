@@ -3794,3 +3794,21 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 小千依然是照顾大家的人，给大家做吃的，虽然偶尔脱线
 
+
+
+*****
+
+####  player3960  
+##### 10829#       发表于 2023-1-5 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59222009&amp;ptid=2078110" target="_blank">名津流 发表于 2023-01-05 23:24:04</a>
+不觉得这组发言都很符合动画人设吗
+
+可可积极热情组织活动
+
+堇插科打诨+吃瘪
+
+恋端庄正经，这场合还想着学到 ...</blockquote>我第一感觉和你一样，看几个人的推，这章鱼party很有节目效果啊，特别是pay要放葱被赶出去很有吃瘪役那味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
