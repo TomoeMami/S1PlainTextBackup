@@ -3042,3 +3042,12 @@ Ns pro打了全程，震动适配正常
 这游戏最大缺点就是竞技场作为可选内容，把太多关键道具放了进去，不打不行。不过除了第一章后因为刷得不够 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩这游戏就该冲着全成就把游戏内容吃干抹净才对
 
+
+
+*****
+
+####  u2deack  
+##### 3261#       发表于 2023-1-5 09:22
+
+我觉得我吃不干净了，装备不全刷竞技场不全清对通关有影响么，现在就想早点打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
