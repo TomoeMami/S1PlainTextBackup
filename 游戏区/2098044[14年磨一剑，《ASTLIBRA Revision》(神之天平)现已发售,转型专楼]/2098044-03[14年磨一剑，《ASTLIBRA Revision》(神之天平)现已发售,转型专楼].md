@@ -3167,3 +3167,15 @@ Ns pro打了全程，震动适配正常
 
 推图的时候建议用长手重武器，这游戏和小怪离太近蛮危险的。打boss就带上盾，副手带法杖，很多招可以直接举盾防住
 
+
+
+*****
+
+####  gwchobit  
+##### 3272#       发表于 2023-1-5 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59209212&amp;ptid=2098044" target="_blank">u2deack 发表于 2023-1-5 09:22</a>
+
+我觉得我吃不干净了，装备不全刷竞技场不全清对通关有影响么，现在就想早点打完 ...</blockquote>
+最低难度 全攻击砍瓜切菜过剧情就是最快的.不追成就斗技场可以不大
+
