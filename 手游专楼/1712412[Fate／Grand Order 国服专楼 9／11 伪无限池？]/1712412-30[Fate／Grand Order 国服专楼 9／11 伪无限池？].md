@@ -3339,3 +3339,20 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 树苗只有主线任务给，国服目前到2.6打完应该是1300，少4个的一般1.54的西游记外传没打。
 
+
+
+*****
+
+####  没有演技  
+##### 44111#       发表于 2023-1-5 09:01
+
+保底刚实装就要用上了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+暗狐还差14抽触发保底
+
+这三年的第四次抽到千的单位
+
+狂娜1100多石0宝，宇宙凛1300石多1宝，奥伯龙1800多石1宝
+
+到底怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
