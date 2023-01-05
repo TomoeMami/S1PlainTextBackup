@@ -129,3 +129,21 @@
 老哥啊，你能走到这一步了，不知道这游戏的调性就是啥能互动的都碰一碰玩一玩再说嘛
 你放下灯，先去调密码盘试试，看看有什么变化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RandomDictator  
+##### 1101#       发表于 2023-1-5 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59215613&amp;ptid=1992654" target="_blank">Motoko-9 发表于 2023-1-5 15:56</a>
+
+老哥啊，你能走到这一步了，不知道这游戏的调性就是啥能互动的都碰一碰玩一玩再说嘛
+
+你放下灯，先去调密 ...</blockquote>
+我在夜光模式下调过别的密码盘，发现并不能直接看出密码，这个就没多想，一直想着找密码
+
+真是一根弦断了卡死人[f:252]
+
+太感谢了
+
