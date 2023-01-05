@@ -13028,3 +13028,21 @@ ps当年贝拉单推，应援团大佬启言不知道还有没有关注小纸
 
 量子猫软软糯糯的好可爱 要是能招进来抗压嗦面变得抽象就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天看她们鹅鸭杀认识的 有漏油简单介绍下吗 好像人在意大利 是读书还是润了？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2853#       发表于 2023-1-5 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59218326&amp;ptid=1926094" target="_blank">龙娘777 发表于 2023-1-5 18:45</a>
+
+量子猫软软糯糯的好可爱 要是能招进来抗压嗦面变得抽象就更好了这两天看她们鹅鸭杀认识的 有漏油简 ...</blockquote>
+量子猫电脑能力很强，平时还接商单，歌力也不错，在小火驴之上，能唱2小时。
+
+人在意大利，但是去打工，之前还打算如果进nb了就回国。
+
+要说缺点，就是观看人数太少，没啥弹幕氛围，人也容易钻牛角尖，努力的方向不对。
+
+大概是大部分底边的命运
+

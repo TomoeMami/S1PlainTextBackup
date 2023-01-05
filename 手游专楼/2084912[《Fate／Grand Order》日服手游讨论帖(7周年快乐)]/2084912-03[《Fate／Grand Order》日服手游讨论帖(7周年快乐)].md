@@ -14141,3 +14141,22 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 反正这产量是真不好说了，2.7上的从者完成度上都是残疾，百特曼据说还是敌人专用模组，后篇烟雾镜是不是要 ...</blockquote>
 2.7目前这几个，帝王花alter是灵衣，大｜麻雀不明，但在这里落地感觉怪怪的，没赶上新年可能会另找个活动落地，剩下的烟雾镜雨神黑豹蝙蝠还有羽蛇神马甲总有一个或者几个要落地吧，不然也太蠢了，讲真烟雾镜本来应该是2.7本地神的排面，居然能给他搞成这样真是服了，大统领么直接安排周年得了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 4278#       发表于 2023-1-5 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59216134&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-1-5 16:30</a>
+
+2.7目前这几个，帝王花alter是灵衣，大｜麻雀不明，但在这里落地感觉怪怪的，没赶上新年可能会另找个活动 ...</blockquote>
+不是只抽雨神嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 4279#       发表于 2023-1-5 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人有时不得不为强度低头的
+
