@@ -3769,3 +3769,28 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 <img src="https://img.saraba1st.com/forum/202301/05/214449xs4tgim2s8dhi3hi.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 10828#       发表于 2023-1-5 23:24
+
+<img src="https://img.saraba1st.com/forum/202301/05/232150d09151x5ou5gvg7o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230105232139.png</strong> (224.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-5 23:21 上传
+
+不觉得这组发言都很符合动画人设吗
+
+可可积极热情组织活动
+
+堇插科打诨+吃瘪
+
+恋端庄正经，这场合还想着学到东西
+
+小千依然是照顾大家的人，给大家做吃的，虽然偶尔脱线
+
