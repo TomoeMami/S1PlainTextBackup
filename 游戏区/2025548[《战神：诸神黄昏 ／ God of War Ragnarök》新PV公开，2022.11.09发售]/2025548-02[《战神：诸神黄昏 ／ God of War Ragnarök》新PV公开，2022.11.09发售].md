@@ -34,3 +34,15 @@ video/av818149979/</blockquote>
 
 我是不是bug了 主线打完 地图全清少了个混沌之火 只能8级了
 
+
+
+*****
+
+####  woshenc  
+##### 1966#       发表于 2023-1-5 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59218854&amp;ptid=2025548" target="_blank">sahhhh6x 发表于 2023-1-5 19:26</a>
+
+我是不是bug了 主线打完 地图全清少了个混沌之火 只能8级了</blockquote>
+印象中最后一个混沌之火在竞技场
+
