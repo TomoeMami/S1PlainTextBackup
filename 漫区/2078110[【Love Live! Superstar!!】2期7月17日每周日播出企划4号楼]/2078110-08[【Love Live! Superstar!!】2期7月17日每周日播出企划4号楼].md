@@ -3710,3 +3710,17 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 鲤鱼家挺大的，玩累了直接住下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 10824#       发表于 2023-1-5 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59214572&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-5 14:49</a>
+
+鲤鱼的家，pay的机器，nako的章鱼烧</blockquote>
+鱼只提供了场地，其他都是别人做的（材料应该也是别人备的
+
+上门服务是吧
+
