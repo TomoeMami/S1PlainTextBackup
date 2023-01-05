@@ -3014,3 +3014,19 @@ Ns pro打了全程，震动适配正常
 
 第六章还能进斗技场的时候一定要把斗技场4.4打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 3258#       发表于 2023-1-5 08:36
+
+这游戏最大缺点就是竞技场作为可选内容，把太多关键道具放了进去，不打不行。不过除了第一章后因为刷得不够，可能打不过虫子之外，其他时候一回城就能平推打掉了，并不难。
+
+*****
+
+####  Motoko-9  
+##### 3259#       发表于 2023-1-5 08:37
+
+呃，有机会用mod之类的给steam版换成原版黄暴内容吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
