@@ -601,3 +601,19 @@ UR侑
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  梶原ひかり  
+##### 6853#       发表于 2023-1-6 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59236862&amp;ptid=1959558" target="_blank">yicihanshu 发表于 2023-1-6 22:20</a>
+
+三分钟不错了，看邦小剧场的时候算上ed才三分钟，这起码没算ed三分钟
+
+从另一个角度说，这全3d建模，bgm直 ...</blockquote>
+也不是那种完全的3D 
+
+3D转描的吧 这样做起来轻松点 
+

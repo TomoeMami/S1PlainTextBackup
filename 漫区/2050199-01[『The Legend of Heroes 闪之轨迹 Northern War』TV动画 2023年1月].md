@@ -44,3 +44,30 @@ B站果然寄了，只能等生肉。
 B站果然寄了，只能等生肉。</blockquote>
 挂个港台梯子就行
 
+
+
+*****
+
+####  小小的信义  
+##### 117#       发表于 2023-1-6 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59236485&amp;ptid=2050199" target="_blank">无动于衷 发表于 2023-1-6 21:59</a>
+
+所以现实里只可能是帝国逼诺桑布利亚独立，绝不可能允许反向吸血</blockquote>
+诺州要啥没啥
+
+不是为了相克+他自己搞事帝国估计都不会要吧
+
+克州还算有个商业价值呢
+
+*****
+
+####  酷乐  
+##### 118#       发表于 2023-1-6 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59236602&amp;ptid=2050199" target="_blank">jiklp87 发表于 2023-1-6 22:04</a>
+
+挂个港台梯子就行</blockquote>
+是的，我放个链接吧：
+[https://www.bilibili.com/bangumi/play/ep721994](https://www.bilibili.com/bangumi/play/ep721994)
+
