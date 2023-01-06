@@ -520,3 +520,16 @@ UR侑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这透明半身像，不就是种命那谁
 
+
+
+*****
+
+####  仟音一心  
+##### 6846#       发表于 2023-1-6 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59235616&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-1-6 21:01</a>
+还说有6分钟，ed连12人都没走完，太少了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+12人走完了
+
