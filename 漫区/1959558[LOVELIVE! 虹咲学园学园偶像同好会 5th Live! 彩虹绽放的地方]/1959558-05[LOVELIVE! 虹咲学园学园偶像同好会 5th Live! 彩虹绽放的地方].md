@@ -682,3 +682,14 @@ UR侑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">太短了，完全不够看啊
 
+
+
+*****
+
+####  川陀  
+##### 6859#       发表于 2023-1-7 00:29
+
+说实话这第一话还是看漫画版比较舒服。希望后面几集动画的演出能整一些活。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
