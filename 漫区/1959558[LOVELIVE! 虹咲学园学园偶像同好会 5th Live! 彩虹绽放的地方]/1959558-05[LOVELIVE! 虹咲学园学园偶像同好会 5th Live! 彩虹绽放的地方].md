@@ -504,3 +504,19 @@ UR侑
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  笋狐  
+##### 6844#       发表于 2023-1-6 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这op（ed？）几个意思，打算给动画里相对影薄（没怎么D）的那几位打补丁吗
+
+*****
+
+####  6030sylar  
+##### 6845#       发表于 2023-1-6 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这透明半身像，不就是种命那谁
+
