@@ -3395,3 +3395,17 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  UNISONIA  
+##### 44115#       发表于 2023-1-6 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59226982&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-1-6 11:42</a>
+
+后来是摩根催眠巴格子直到她回城见到屑妖精屠杀人类才暴走这样？
+
+—— 来自 OPPO PDRM00, Android 12上 ...</blockquote>
+应该都是奥伯龙干的，摩根不知道奥伯龙动了什么手脚
+
