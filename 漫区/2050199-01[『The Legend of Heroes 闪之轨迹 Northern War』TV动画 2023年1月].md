@@ -141,3 +141,31 @@ op看到法老控有做监修
 
 话说第一集节奏不错啊
 
+
+
+*****
+
+####  酷乐  
+##### 127#       发表于 2023-1-7 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59238300&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-6 23:57</a>
+新人女主打怪兽那段有点巨人的感觉，这作画和ed不像便宜动画呀，op出场的人物这么多，听说有分割播 ...</blockquote>
+没有分割，一共12集，配音开播前就录完了。
+
+*****
+
+####  aptx8285144  
+##### 128#       发表于 2023-1-7 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59238408&amp;ptid=2050199" target="_blank">酷乐 发表于 2023-1-7 00:06</a>
+
+没有分割，一共12集，配音开播前就录完了。</blockquote>
+只有12集……希望别是又一个“好朋友”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过既然开播前好像提到讲新的故事，也许可以（
+
+*****
+
+####  aptx8285144  
+##### 129#       发表于 2023-1-7 00:11
+
+中川奈美的这首ed真好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
