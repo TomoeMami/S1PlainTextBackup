@@ -3348,3 +3348,14 @@ lag玩家来些细碎的感想：
 
 这游戏做了太久前后剧情没法完全对上的地方还挺多的
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3285#       发表于 2023-1-6 21:11
+
+我觉得从第八章开始就是想加什么剧情就加什么剧情了。无所谓啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+流程中最惊讶的还是魔王城看到那四个贴图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
