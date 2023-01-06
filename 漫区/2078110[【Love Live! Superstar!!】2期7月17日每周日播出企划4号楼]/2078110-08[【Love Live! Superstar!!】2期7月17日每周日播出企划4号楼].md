@@ -3832,3 +3832,36 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没多的照片可能是嫌给背景打码太麻烦
 
+
+
+*****
+
+####  saya1892  
+##### 10832#       发表于 2023-1-6 13:23
+
+熊来了
+
+<img src="https://img.saraba1st.com/forum/202301/06/132247c9usuhmthlhtn5dg.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (48.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-6 13:22 上传
+
+章鱼烧机是大雄送的，怪不得是可可色呢，她是真喜欢可可
+
+*****
+
+####  优妮可  
+##### 10833#       发表于 2023-1-6 13:23
+
+哈哈，但还是得nako出手才能做章鱼烧
+
+*****
+
+####  ViyViy  
+##### 10834#       发表于 2023-1-6 13:29
+
+想知道熊对二期那纯可黑剧本有啥看法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
