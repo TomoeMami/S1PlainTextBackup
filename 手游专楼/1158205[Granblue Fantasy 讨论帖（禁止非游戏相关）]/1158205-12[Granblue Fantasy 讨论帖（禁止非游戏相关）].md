@@ -267,3 +267,14 @@
 
 这湿婆我真的蚌埠住了
 
+
+
+*****
+
+####  Sylpheed  
+##### 17247#       发表于 2023-1-6 22:38
+
+坏了，不该期待湿婆直接拿炎帝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

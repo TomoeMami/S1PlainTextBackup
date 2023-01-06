@@ -71,3 +71,12 @@ B站果然寄了，只能等生肉。</blockquote>
 是的，我放个链接吧：
 [https://www.bilibili.com/bangumi/play/ep721994](https://www.bilibili.com/bangumi/play/ep721994)
 
+
+
+*****
+
+####  白帽子  
+##### 119#       发表于 2023-1-6 22:38
+
+把期望压倒超级低看反而觉得还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
