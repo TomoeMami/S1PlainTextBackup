@@ -3368,3 +3368,12 @@ lag玩家来些细碎的感想：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">玩的过程中看见嘉隆魔法里面有磁吸硬币和道具，就是没有磁吸力量晶体，还一直感觉很纳闷，结果玩到第八章必须要用远程的那个地方才发现，原来这个技能就在第一根法杖上啊…
 
+
+
+*****
+
+####  梦窗  
+##### 3287#       发表于 2023-1-7 01:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">玩了原版后，确实感受到新版在人性化方面下的功夫……
+

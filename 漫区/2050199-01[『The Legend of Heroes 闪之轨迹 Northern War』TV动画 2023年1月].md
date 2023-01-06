@@ -316,3 +316,34 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 期待下之后写帝国也会有各种风土人情的细节吧
 
+
+
+*****
+
+####  kamarus  
+##### 145#       发表于 2023-1-7 02:04
+
+ 本帖最后由 kamarus 于 2023-1-7 02:11 编辑 
+
+诺森布里亚原本游戏里写的都快成乌克兰了，结果搞半天是毛子的西伯利亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺便帝国入侵诺森布里亚这个设定。。。
+算了，反正帝国最后都吃屎了，无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 146#       发表于 2023-1-7 02:14
+
+还好时间点是还没玩闪3的我都应该能看懂的地方
+
+第一话充分的表现了在这个世界普通枪械的用途真是微乎其微，远不如拿刀砍的
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  red2077  
+##### 147#       发表于 2023-1-7 04:27
+
+两个吐嘈杂兵还挺有意思的后续还有戏份吗？
+
