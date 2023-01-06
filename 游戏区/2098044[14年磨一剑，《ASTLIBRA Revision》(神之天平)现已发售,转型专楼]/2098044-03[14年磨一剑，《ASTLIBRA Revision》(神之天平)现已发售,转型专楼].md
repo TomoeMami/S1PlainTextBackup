@@ -3315,3 +3315,16 @@ lag玩家来些细碎的感想：
 
 最后开了叮一路把剧情看完了赶紧解脱了看一下别人怎么玩的。一看我人傻了，别人到这的时候普遍比我高十多级，伤害更是不是一个级别的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草难怪我打的这么痛苦。今天准备开个新档好好刷一下玩玩再
 
+
+
+*****
+
+####  牙狼GARO  
+##### 3282#       发表于 2023-1-6 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59230690&amp;ptid=2098044" target="_blank">镜像导航图 发表于 2023-1-6 15:44</a>
+我是看了开头两章剧情，就一股十三机兵的醍醐味上来了，为了剧情体验硬憋着这几天不去看任何网上的讨论和 ...</blockquote>
+每章把所有武器防具饰品都刷出来都练满，成长随缘看晶体数量，困难一周目初见感觉还行，练出能量吸收以后基本上就是站撸boss
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
