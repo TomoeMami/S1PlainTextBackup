@@ -1207,3 +1207,12 @@ NB 3.31毕业咯
 
 —— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  TomDu  
+##### 13036#       发表于 2023-1-6 19:29
+
+今年有什么计划呢… 苔总也休息了，联动少不少
+
