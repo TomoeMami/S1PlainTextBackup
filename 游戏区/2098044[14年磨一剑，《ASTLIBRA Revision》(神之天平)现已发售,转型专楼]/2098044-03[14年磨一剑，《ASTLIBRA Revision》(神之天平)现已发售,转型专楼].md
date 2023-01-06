@@ -3301,3 +3301,17 @@ lag玩家来些细碎的感想：
 一周目通了，这游戏真的是像老游戏一样各种不方便的设置玩到研究所那边因为前面一路没怎么刷直接给 ...</blockquote>
 这游戏我打了三遍，第一遍普通，第二遍困难一档，现在在打第三遍困难分章存档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉像是打了三个游戏一样神奇
 
+
+
+*****
+
+####  镜像导航图  
+##### 3281#       发表于 2023-1-6 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59229651&amp;ptid=2098044" target="_blank">adw667 发表于 2023-1-6 14:43</a>
+
+这游戏我打了三遍，第一遍普通，第二遍困难一档，现在在打第三遍困难分章存档感觉像是打了三个游 ...</blockquote>
+我是看了开头两章剧情，就一股十三机兵的醍醐味上来了，为了剧情体验硬憋着这几天不去看任何网上的讨论和攻略，就自己闷头打，昨天一路莽到研究所那里终于给我整麻了，几连BOSS战不带停的，好不容易刮痧到最后一个，漫天的弹幕蹭两下我就死，我的攻击还都是刮痧终于给我整自闭了，感觉两只手拿着手柄肌肉都要打僵硬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+最后开了叮一路把剧情看完了赶紧解脱了看一下别人怎么玩的。一看我人傻了，别人到这的时候普遍比我高十多级，伤害更是不是一个级别的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草难怪我打的这么痛苦。今天准备开个新档好好刷一下玩玩再
+
