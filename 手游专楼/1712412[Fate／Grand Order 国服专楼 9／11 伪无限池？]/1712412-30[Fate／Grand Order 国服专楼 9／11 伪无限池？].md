@@ -3382,3 +3382,16 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 奥用自己的表宝具鳞粉（就是那个于彼方高悬的梦童话）催眠了巴格子，让她忘了她已经吃掉了她那个对象。后面在烧威尔士森林的时候又动手脚把这个催眠解开了
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 44114#       发表于 2023-1-6 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59226760&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2023-1-6 11:31</a>
+奥用自己的表宝具鳞粉（就是那个于彼方高悬的梦童话）催眠了巴格子，让她忘了她已经吃掉了她那个对象。后 ...</blockquote>
+后来是摩根催眠巴格子直到她回城见到屑妖精屠杀人类才暴走这样？
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
