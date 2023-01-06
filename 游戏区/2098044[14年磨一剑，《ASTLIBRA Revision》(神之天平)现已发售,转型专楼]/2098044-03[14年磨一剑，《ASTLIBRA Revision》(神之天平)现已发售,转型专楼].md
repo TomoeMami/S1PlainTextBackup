@@ -3377,3 +3377,14 @@ lag玩家来些细碎的感想：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">玩了原版后，确实感受到新版在人性化方面下的功夫……
 
+
+
+*****
+
+####  杉田悠一  
+##### 3288#       发表于 2023-1-7 06:37
+
+我现在耐心是真的差，折腾了十几分钟手柄没反应就退款了，还是等switch版吧，
+
+—— 来自 Xiaomi 2206122SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
