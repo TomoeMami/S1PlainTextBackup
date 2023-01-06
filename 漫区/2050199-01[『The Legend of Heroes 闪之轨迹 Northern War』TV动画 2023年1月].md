@@ -225,3 +225,27 @@ op和ed都蛮有轨迹味的，人物的行动也是。看这片我已经脑补�
 
 怎么只放一半图啊，另外一半速速放出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妄想中毒  
+##### 135#       发表于 2023-1-7 00:53
+
+我只想看游戏里的那些角色，对北方猎兵这群炮灰没什么兴趣，反正最后都被帝国灭了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rp1993  
+##### 136#       发表于 2023-1-7 00:57
+
+穷到爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">经费全给女主一个人了
+黎老师第几集能出场，别是最后出来打个酱油吧
+
+*****
+
+####  医生狼多  
+##### 137#       发表于 2023-1-7 00:58
+
+有没有那个，就是那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/9/4f4d41db4508959a6e080494765a9345/1673023683499.jpg" referrerpolicy="no-referrer">
+

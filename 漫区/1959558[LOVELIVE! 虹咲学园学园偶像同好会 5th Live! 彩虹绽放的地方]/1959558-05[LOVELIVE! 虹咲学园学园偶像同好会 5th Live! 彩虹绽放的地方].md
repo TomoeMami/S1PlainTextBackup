@@ -693,3 +693,21 @@ UR侑
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 6860#       发表于 2023-1-7 00:59
+
+这虹四格真的没什么副标题吗 比如侑四格之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6861#       发表于 2023-1-7 00:59
+
+发现动画里雪菜袭来的时候一股大灯袭来的感觉，突然暴涨到艾玛的水平一样，然后侑酱的尺寸也是很合理的被削掉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
