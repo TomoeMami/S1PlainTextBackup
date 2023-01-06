@@ -249,3 +249,23 @@ op和ed都蛮有轨迹味的，人物的行动也是。看这片我已经脑补�
 
 有没有那个，就是那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/9/4f4d41db4508959a6e080494765a9345/1673023683499.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smdzh2  
+##### 138#       发表于 2023-1-7 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59238753&amp;ptid=2050199" target="_blank">lil_is 发表于 2023-1-7 01:38</a>
+怎么只放一半图啊，另外一半速速放出来</blockquote>
+懂不懂隐藏女主角的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 139#       发表于 2023-1-7 01:08
+
+不是打完这边再到闪2那边找罗城管自首吗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
