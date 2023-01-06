@@ -3368,3 +3368,17 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  UNISONIA  
+##### 44113#       发表于 2023-1-6 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59226505&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-1-6 11:18</a>
+
+这是指什么事情来着，有点忘了
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+奥用自己的表宝具鳞粉（就是那个于彼方高悬的梦童话）催眠了巴格子，让她忘了她已经吃掉了她那个对象。后面在烧威尔士森林的时候又动手脚把这个催眠解开了
+
