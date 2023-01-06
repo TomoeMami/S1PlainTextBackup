@@ -3956,3 +3956,16 @@ A7EABA61-7313-45D5-AA42-1080621D4298.jpeg
 —— 来自 S1Fun</blockquote>
 yhm的分析说，给一个人住的鱼送章鱼烧机的意思就代表以后还会聚=又可以去鲤酱家了
 
+
+
+*****
+
+####  愛さ実  
+##### 10841#       发表于 2023-1-6 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59229646&amp;ptid=2078110" target="_blank">saya1892 发表于 2023-1-6 14:43</a>
+yhm的分析说，给一个人住的鱼送章鱼烧机的意思就代表以后还会聚=又可以去鲤酱家了 ...</blockquote>
+小心机太会了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
