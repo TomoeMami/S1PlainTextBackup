@@ -3899,3 +3899,24 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 10838#       发表于 2023-1-6 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59228425&amp;ptid=2078110" target="_blank">saya1892 发表于 2023-1-6 13:23</a>
+
+熊来了</blockquote>
+章鱼烧机难道还有别的颜色？
+
+A7EABA61-7313-45D5-AA42-1080621D4298.jpeg
+(239.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-6 14:16 上传
+
+<img src="https://img.saraba1st.com/forum/202301/06/141615s8o80551e601aeva.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
