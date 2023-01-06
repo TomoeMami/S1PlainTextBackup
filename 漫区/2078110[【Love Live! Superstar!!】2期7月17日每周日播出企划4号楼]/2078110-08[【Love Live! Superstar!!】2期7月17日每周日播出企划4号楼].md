@@ -3920,3 +3920,25 @@ A7EABA61-7313-45D5-AA42-1080621D4298.jpeg
 
 <img src="https://img.saraba1st.com/forum/202301/06/141615s8o80551e601aeva.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10839#       发表于 2023-1-6 14:27
+
+ 本帖最后由 starring 于 2023-1-6 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59228850&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-6 13:53</a>
+
+我看着是绿色的啊，是可堇吧</blockquote>
+天青色（似乎是Bruno的多功能锅
+
+82490858-42CB-491E-BBD6-EE234464F13D.jpeg
+(100.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-6 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202301/06/143028stzskjc6jqlczq0a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
