@@ -278,3 +278,12 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 17248#       发表于 2023-1-6 23:27
+
+不如关心一下，蓝色属性也SOLO极巴啦
+

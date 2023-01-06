@@ -89,3 +89,19 @@ B站果然寄了，只能等生肉。</blockquote>
 
 这群人真的是猎兵吗？对比某人为了栽赃对手不惜屠村……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yeaha123  
+##### 121#       发表于 2023-1-6 23:25
+
+巴哈有熟肉
+
+*****
+
+####  Cloudslin  
+##### 122#       发表于 2023-1-6 23:31
+
+预料中的便宜动画，感觉色指的问题尤其大。不过轨迹嘛，倒也挺搭的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
