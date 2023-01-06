@@ -3942,3 +3942,17 @@ A7EABA61-7313-45D5-AA42-1080621D4298.jpeg
 
 <img src="https://img.saraba1st.com/forum/202301/06/143028stzskjc6jqlczq0a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 10840#       发表于 2023-1-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59228854&amp;ptid=2078110" target="_blank">爱さ実 发表于 2023-1-6 13:53</a>
+
+直击吃货心灵的礼物，熊太会了
+
+—— 来自 S1Fun</blockquote>
+yhm的分析说，给一个人住的鱼送章鱼烧机的意思就代表以后还会聚=又可以去鲤酱家了
+

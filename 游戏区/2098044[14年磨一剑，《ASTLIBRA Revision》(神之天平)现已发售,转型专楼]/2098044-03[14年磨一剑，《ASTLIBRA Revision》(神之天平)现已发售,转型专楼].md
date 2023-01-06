@@ -3290,3 +3290,14 @@ lag玩家来些细碎的感想：
 这游戏哪儿来的二周目……如果你是说终章打完了那你还要打追章……然后如果你刷满了爱情最后就是True End ...</blockquote>
 当然是说的开新档
 
+
+
+*****
+
+####  adw667  
+##### 3280#       发表于 2023-1-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59225873&amp;ptid=2098044" target="_blank">镜像导航图 发表于 2023-1-6 10:43</a>
+一周目通了，这游戏真的是像老游戏一样各种不方便的设置玩到研究所那边因为前面一路没怎么刷直接给 ...</blockquote>
+这游戏我打了三遍，第一遍普通，第二遍困难一档，现在在打第三遍困难分章存档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉像是打了三个游戏一样神奇
+
