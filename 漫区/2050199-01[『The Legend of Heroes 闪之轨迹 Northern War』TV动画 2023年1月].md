@@ -80,3 +80,12 @@ B站果然寄了，只能等生肉。</blockquote>
 
 把期望压倒超级低看反而觉得还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰谷真实  
+##### 120#       发表于 2023-1-6 23:07
+
+这群人真的是猎兵吗？对比某人为了栽赃对手不惜屠村……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

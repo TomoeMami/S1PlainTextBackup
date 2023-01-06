@@ -3359,3 +3359,12 @@ lag玩家来些细碎的感想：
 
 流程中最惊讶的还是魔王城看到那四个贴图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DDWarrior  
+##### 3286#       发表于 2023-1-6 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">玩的过程中看见嘉隆魔法里面有磁吸硬币和道具，就是没有磁吸力量晶体，还一直感觉很纳闷，结果玩到第八章必须要用远程的那个地方才发现，原来这个技能就在第一根法杖上啊…
+
