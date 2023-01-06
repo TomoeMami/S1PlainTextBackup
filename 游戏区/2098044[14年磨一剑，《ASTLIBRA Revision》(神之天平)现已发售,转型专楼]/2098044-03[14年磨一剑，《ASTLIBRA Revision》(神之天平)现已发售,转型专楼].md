@@ -3266,3 +3266,27 @@ lag玩家来些细碎的感想：
 
 一周目通了，这游戏真的是像老游戏一样各种不方便的设置<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说，这故事真的只是某星人移民到外星球以后搞出来的乱七八糟吗，一开头女神提到的“公元2012”，还有未来都市叫“东京”只是玩梗和干扰玩家对剧情推测用的嘛？
 
+
+
+*****
+
+####  asdfg  
+##### 3278#       发表于 2023-1-6 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59225873&amp;ptid=2098044" target="_blank">镜像导航图 发表于 2023-1-5 21:43</a>
+
+一周目通了，这游戏真的是像老游戏一样各种不方便的设置玩到研究所那边因为前面一路没怎么刷直接给 ...</blockquote>
+这游戏哪儿来的二周目……如果你是说终章打完了那你还要打追章……然后如果你刷满了爱情最后就是True End，没有其它了……
+
+不过，进了追章后，因为新系统的缘故，原来的装备强不强也就没那么重要了就是……
+
+*****
+
+####  镜像导航图  
+##### 3279#       发表于 2023-1-6 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59226204&amp;ptid=2098044" target="_blank">asdfg 发表于 2023-1-6 11:02</a>
+
+这游戏哪儿来的二周目……如果你是说终章打完了那你还要打追章……然后如果你刷满了爱情最后就是True End ...</blockquote>
+当然是说的开新档
+
