@@ -661,3 +661,15 @@ UR侑
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 6857#       发表于 2023-1-6 23:51
+
+原作者ミヤコヒト老师的贺图和四格版第一话
+<img src="https://p.sda1.dev/9/6980ba954f7a6f59f54a321ba9dc4df5/CMP_20230106234201957.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/658a6edf27bd047a89fcae9f312e2a25/CMP_20230106234202001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/c16857f7134ef10c9e7778588b6e3437/CMP_20230106234202045.jpg" referrerpolicy="no-referrer">
+
