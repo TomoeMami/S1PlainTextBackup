@@ -3877,3 +3877,25 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  优妮可  
+##### 10836#       发表于 2023-1-6 13:53
+
+<blockquote>saya1892 发表于 2023-1-6 13:23
+熊来了
+
+</blockquote>
+我看着是绿色的啊，是可堇吧
+
+*****
+
+####  愛さ実  
+##### 10837#       发表于 2023-1-6 13:53
+
+直击吃货心灵的礼物，熊太会了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
