@@ -64,3 +64,15 @@ video/av818149979/</blockquote>
 
 铁匠感叹号一直亮着没材料升级 估计之前攒了2个混沌之火 系统默认一次一级不能存2个
 
+
+
+*****
+
+####  猎霸  
+##### 1969#       发表于 2023-1-6 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132506&amp;ptid=2025548" target="_blank">khxooo 发表于 2022-12-29 19:16</a>
+
+video/av818149979/</blockquote>
+这里是游戏BUG，有矛但是没法互动的话，再插一根矛就能上去了
+
