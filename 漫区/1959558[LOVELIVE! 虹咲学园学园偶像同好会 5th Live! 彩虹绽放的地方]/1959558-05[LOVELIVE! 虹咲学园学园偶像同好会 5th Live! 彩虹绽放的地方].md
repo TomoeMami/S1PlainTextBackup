@@ -646,3 +646,18 @@ UR侑
 
 [kami @tjdudtjghd](https://twitter.com/tjdudtjghd/status/1604439313957076994)
 
+
+
+*****
+
+####  ads147147  
+##### 6856#       发表于 2023-1-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59235963&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-1-6 21:25</a>
+12人走完了</blockquote>
+是，重看几遍数了下确实全了，感觉里头很多人的构图都很，很懂。光顾着乐了。
+
+话说那个bd三集一卖，是不是割的太狠了，难不成我们看的这个还是一集里的分割？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
