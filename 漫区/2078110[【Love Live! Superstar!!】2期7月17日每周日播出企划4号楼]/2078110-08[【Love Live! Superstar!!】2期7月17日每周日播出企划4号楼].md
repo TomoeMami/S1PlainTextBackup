@@ -3865,3 +3865,15 @@ non酱：阿兔嘭前辈不会骗我的吧？<img src="https://p.sda1.dev/9/7468
 
 想知道熊对二期那纯可黑剧本有啥看法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 10835#       发表于 2023-1-6 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59228543&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-01-06 13:29:56</a>
+想知道熊对二期那纯可黑剧本有啥看法</blockquote>看法就是生放上收到夸剧情的信之后脸拉的比鱼还恐怖仿佛下播就要揍人去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
