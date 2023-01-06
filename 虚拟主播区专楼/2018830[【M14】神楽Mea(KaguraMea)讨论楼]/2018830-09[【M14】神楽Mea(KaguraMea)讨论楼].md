@@ -1196,3 +1196,14 @@ NB 3.31毕业咯
 
 这是好事
 
+
+
+*****
+
+####  掉头学姐  
+##### 13035#       发表于 2023-1-6 19:12
+
+平安度过一年
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
