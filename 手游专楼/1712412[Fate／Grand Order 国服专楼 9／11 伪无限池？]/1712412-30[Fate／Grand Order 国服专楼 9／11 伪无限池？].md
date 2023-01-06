@@ -3356,3 +3356,15 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 到底怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 44112#       发表于 2023-1-6 11:18
+
+<img src="https://p.sda1.dev/9/d0eeaff98d8ede1ccdbcbf0109707630/CMP_20230106111829297.jpg" referrerpolicy="no-referrer">
+这是指什么事情来着，有点忘了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
