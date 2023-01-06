@@ -13084,3 +13084,17 @@ ps当年贝拉单推，应援团大佬启言不知道还有没有关注小纸
 
 P.S. 小火驴是真有节目效果
 
+
+
+*****
+
+####  ladiesman802  
+##### 2858#       发表于 2023-1-6 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59223258&amp;ptid=1926094" target="_blank">提取温暖度严寒 发表于 2023-1-6 02:16</a>
+
+量子猫没看上吗？不过说起来第一届胜者冠军好像都没影了，小火驴都来快两个月了
+
+P.S. 小火驴是真有 ...</blockquote>
+都是演的，内定冠军叶子，小火驴是捡漏，其他人加入nb大家庭q群
+
