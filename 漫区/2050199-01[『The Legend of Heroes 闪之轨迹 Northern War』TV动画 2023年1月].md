@@ -169,3 +169,26 @@ op看到法老控有做监修
 
 中川奈美的这首ed真好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lil_is  
+##### 130#       发表于 2023-1-7 00:19
+
+op和ed都蛮有轨迹味的，人物的行动也是。看这片我已经脑补出游戏内三人组在哈里亚斯克一家一家解锁料理的画面了。<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+罗根看着铁小丑啊，估计又拉到了结社之类的赞助准备搞事，最后被正义的黎老师击破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望拉薇能有个好结局，便服超可爱<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lil_is  
+##### 131#       发表于 2023-1-7 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59237640&amp;ptid=2050199" target="_blank">灰谷真实 发表于 2023-1-6 23:07</a>
+
+这群人真的是猎兵吗？对比某人为了栽赃对手不惜屠村……</blockquote>
+游戏里莎拉和菲也有提过，北方猎兵在诺州声望蛮高的，感觉都像是游击士了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
