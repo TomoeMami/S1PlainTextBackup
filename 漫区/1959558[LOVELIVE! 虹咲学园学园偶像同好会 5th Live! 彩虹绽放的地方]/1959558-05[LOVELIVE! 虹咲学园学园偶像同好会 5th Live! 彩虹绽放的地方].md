@@ -588,3 +588,16 @@ UR侑
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  yicihanshu  
+##### 6852#       发表于 2023-1-6 22:20
+
+三分钟不错了，看邦小剧场的时候算上ed才三分钟，这起码没算ed三分钟
+
+从另一个角度说，这全3d建模，bgm直接用动画ost，一定不怎么占工期吧，我看好以后一年一季虹四格，给集数堆到100集轻轻松松，不能大规模重复利用模型的话，我都不知道为什么用3d。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
