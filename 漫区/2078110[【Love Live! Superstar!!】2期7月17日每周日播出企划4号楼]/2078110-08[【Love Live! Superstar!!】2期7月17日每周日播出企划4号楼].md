@@ -3978,3 +3978,24 @@ yhm的分析说，给一个人住的鱼送章鱼烧机的意思就代表以后�
 
 这玩意确实好，我家里也有一台，没事火锅烤肉蒸东西
 
+
+
+*****
+
+####  仟音一心  
+##### 10843#       发表于 2023-1-6 23:53
+
+CelticWhite老师这张神作了
+<img src="https://p.sda1.dev/9/d6f4b5f8e1f1d3d22bb616f02ded2b71/CMP_20230106235240127.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 10844#       发表于 2023-1-6 23:55
+
+non与前辈
+<img src="https://p.sda1.dev/9/b6cd687ed38eb3d679eef043744865ae/CMP_20230106235334193.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/65be52bcdb7878b9c8bebdf6c6620521/CMP_20230106235334245.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/7bc7166e16d847e24bb244e9b0a47e78/CMP_20230106235536919.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/2d4ab0942fd99a070f1880faa4dd0757/F8EB590F94D3214F2CF1C2F614A6A7A3.jpg" referrerpolicy="no-referrer">
+

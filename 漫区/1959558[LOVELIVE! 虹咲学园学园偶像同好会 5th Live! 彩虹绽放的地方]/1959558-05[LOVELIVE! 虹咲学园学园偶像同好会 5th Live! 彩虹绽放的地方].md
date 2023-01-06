@@ -673,3 +673,12 @@ UR侑
 <img src="https://p.sda1.dev/9/658a6edf27bd047a89fcae9f312e2a25/CMP_20230106234202001.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/c16857f7134ef10c9e7778588b6e3437/CMP_20230106234202045.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 6858#       发表于 2023-1-7 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">太短了，完全不够看啊
+

@@ -114,3 +114,30 @@ B站果然寄了，只能等生肉。</blockquote>
 
 魔兽死了还是应该掉晶片的，可能嫌麻烦就没画……像2007年的TRPG改编动画《暗夜魔法使》，就还原了怪死后掉Prana碎片的设定（不过当时也被吐槽：“打怪还掉钱呐”）。
 
+
+
+*****
+
+####  权志龙  
+##### 124#       发表于 2023-1-6 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">黎老师还是一脸的正气
+
+*****
+
+####  aptx8285144  
+##### 125#       发表于 2023-1-6 23:57
+
+新人女主打怪兽那段有点巨人的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这作画和ed不像便宜动画呀，op出场的人物这么多，听说有分割播放？
+
+抱着试试看的心态，现在看好像还行
+
+*****
+
+####  Yeaha123  
+##### 126#       发表于 2023-1-6 23:58
+
+op看到法老控有做监修
+
+话说第一集节奏不错啊
+
