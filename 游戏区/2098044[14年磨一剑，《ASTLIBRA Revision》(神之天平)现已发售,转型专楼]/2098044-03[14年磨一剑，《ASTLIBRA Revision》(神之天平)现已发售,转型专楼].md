@@ -3328,3 +3328,14 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 3283#       发表于 2023-1-6 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59230690&amp;ptid=2098044" target="_blank">镜像导航图 发表于 2023-1-6 15:44</a>
+我是看了开头两章剧情，就一股十三机兵的醍醐味上来了，为了剧情体验硬憋着这几天不去看任何网上的讨论和 ...</blockquote>
+等级倒没什么，你应该查的是成长树是不是开完了，每章是不是5张装备图纸都刷出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

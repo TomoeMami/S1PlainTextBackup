@@ -1216,3 +1216,15 @@ NB 3.31毕业咯
 
 今年有什么计划呢… 苔总也休息了，联动少不少
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13037#       发表于 2023-1-6 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59233994&amp;ptid=2018830" target="_blank">TomDu 发表于 2023-1-6 19:29</a>
+
+今年有什么计划呢… 苔总也休息了，联动少不少</blockquote>
+苔苔也就休息那么几天，1月20号 27号，mea还要去苔苔的30分钟电台呢。
+
