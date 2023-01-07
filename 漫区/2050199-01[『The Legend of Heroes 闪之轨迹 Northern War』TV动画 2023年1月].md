@@ -655,3 +655,27 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 —— 来自 Xiaomi M2006J10C, Android 12上的 S1 ...</blockquote>
 我倒是很怕闪轨里面的一些政治戏码，碧轨的某些就如同嚼蜡了
 
+
+
+*****
+
+####  aptx8285144  
+##### 175#       发表于 2023-1-7 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59245080&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-7 16:58</a>
+
+前半段的魔兽多半是通缉魔兽，闪2主角团的话也得一队人认真打。闪轨的主角团都算是正经精英，一般猎兵是比 ...</blockquote>
+没入坑的新人问一下，法老是谁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙之峰  
+##### 176#       发表于 2023-1-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59245216&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-7 17:05</a>
+
+没入坑的新人问一下，法老是谁</blockquote>
+法老控是原作游戏的制作公司，因为一直以来都是一个编剧团队一个风格，就统称成法老控的剧本了。
+
+其实本次动画的剧本和游戏剧本还有所差别，但风格应该有人把控。
+
