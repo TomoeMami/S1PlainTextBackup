@@ -3401,3 +3401,20 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3290#       发表于 2023-1-7 11:14
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2023-1-7 11:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241112&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-7 10:58</a>
+
+一口气推到新章了，忘了雪山还漏了个盾，是不是现在必须推进剧情到雪山和矿石镇才能拿到最强剑了？
+
+我现在 ...</blockquote>
+新章开头送树枝面板，装上就有1210攻击力。
+
+面板掉率还挺高，剑盾铠甲都用带面板的话数值能极大提升，先用着过渡，强不强化看你心情，我是先给树枝+10了。
+
