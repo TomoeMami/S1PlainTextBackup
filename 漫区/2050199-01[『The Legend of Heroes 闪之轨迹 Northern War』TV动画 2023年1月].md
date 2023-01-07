@@ -692,3 +692,51 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 其实本 ...</blockquote>
 你这讲得更让人误会了，应该直说法老控=ファルコム谐音。
 
+
+
+*****
+
+####  jiklp87  
+##### 178#       发表于 2023-1-7 17:31
+
+<blockquote>银翼的维罗西 发表于 2023-1-7 11:25
+看了这个动画才明白为撒叫英雄传说了，这普通人和轨迹系列的主配角战力差距也太大了，列兵团碰到个大型魔兽 ...</blockquote>
+这个魔兽就是闪1第一章的boss啊。。。黎恩还纠结了一下要不要开s技打
+
+*****
+
+####  医生狼多  
+##### 179#       发表于 2023-1-7 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59245216&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-7 17:05</a>
+没入坑的新人问一下，法老是谁</blockquote>
+轨迹游戏开发商，falcon，国内一般打字就叫法老控
+（应用举例：你法我笑）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 180#       发表于 2023-1-7 17:33
+
+话说轨迹好像没给魔兽这些实力分级
+
+
+
+*****
+
+####  胧楼  
+##### 181#       发表于 2023-1-7 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来真的有那么多非粉丝看这动画嘛
+
+*****
+
+####  月夜凝雪  
+##### 182#       发表于 2023-1-7 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59245080&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-7 16:58</a>
+前半段的魔兽多半是通缉魔兽，闪2主角团的话也得一队人认真打。闪轨的主角团都算是正经精英，一般猎兵是比 ...</blockquote>
+主要还是导力科技的热兵器和火药的热兵器算两样东西了，添加了导力技术就能提升很多，而怪物和特别锻炼过的人像是被动开着罩子不用导力武器远程伤害很低，大炮本质和大面积撞击的冷兵器没什么差别靠巨大的动能和重量，轨迹里爆炸伤害貌似挺稀有的
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
