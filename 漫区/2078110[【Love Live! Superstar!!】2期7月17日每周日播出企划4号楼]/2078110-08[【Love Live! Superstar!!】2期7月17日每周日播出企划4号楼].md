@@ -4242,3 +4242,32 @@ non与前辈
 
 它敢换人这种贱招怒的也绝不会仅仅是大陆可推，它要想干尽管搞，到时候下不来台是它自己的事。我在想BD4五人曲有啥意义呢？你最终还是要改的。
 
+
+
+*****
+
+####  nufawneafg  
+##### 10871#       发表于 2023-1-7 21:05
+
+ 本帖最后由 nufawneafg 于 2023-1-7 21:06 编辑 
+
+现在的改动至少半年前就定下了
+至于以后它怎么想，先等等看企划现在这波脑梗能不能过去吧
+
+*****
+
+####  Kfly  
+##### 10872#       发表于 2023-1-7 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248668&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-7 20:59</a>
+它敢换人这种贱招怒的也绝不会仅仅是大陆可推，它要想干尽管搞，到时候下不来台是它自己的事。我在想BD4五 ...</blockquote>
+草，先放出个五人版，在出个四人版九人版十二人版？要真这么做可太牛了，这歌也算是近期出的吧？难道还能重蹈覆辙？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+偏偏看到这种说法我还真觉得这是有可能发生的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10873#       发表于 2023-1-7 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://twitter.com/Ayumikan_chika/status/1611704296919433216
+
