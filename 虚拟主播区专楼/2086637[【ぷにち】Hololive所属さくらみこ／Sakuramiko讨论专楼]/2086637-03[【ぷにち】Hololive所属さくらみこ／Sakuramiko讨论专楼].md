@@ -9813,3 +9813,14 @@ ame在日本本土，不会吧
 
 还真跟ame一起收录了不会吧
 
+
+
+*****
+
+####  rs5621  
+##### 3919#       发表于 2023-1-7 13:25
+
+草，和天宫几时好上的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
