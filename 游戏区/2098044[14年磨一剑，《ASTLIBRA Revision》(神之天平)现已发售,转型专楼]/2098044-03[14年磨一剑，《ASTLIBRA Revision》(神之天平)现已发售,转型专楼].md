@@ -3552,3 +3552,32 @@ lag玩家来些细碎的感想：
 ——  ...</blockquote>
 就是看装备盘里属性提升这个词条的数值决定的，如果盘里全是什么换武器属性换嘉隆减重这些，那攻击力就没变化
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3302#       发表于 2023-1-7 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248466&amp;ptid=2098044" target="_blank">M1NG 发表于 2023-1-7 20:44</a>
+
+就是看装备盘里属性提升这&amp;# ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202301/07/205224n9a0j2ygg98aan6r.png" referrerpolicy="no-referrer">
+
+<strong>356356354345.PNG</strong> (312.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-7 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202301/07/205230kgg7wpl0gpup70db.png" referrerpolicy="no-referrer">
+
+<strong>354345345.PNG</strong> (364.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-7 20:52 上传
+
+明显不是，如图面板没选攻击力依然有1800攻击力
+

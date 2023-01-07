@@ -893,3 +893,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 不就闪2和闪3中间吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 苍之圣女暂时嗝屁，黎爷被亲爹奥斯本坑到北方诺森布里亚打架立英雄人设。
 
+
+
+*****
+
+####  uponutopia  
+##### 199#       发表于 2023-1-7 20:57
+
+轨迹世界里热兵器薛定谔的杀伤力，罗爷他哥不就是被人小水枪干死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
