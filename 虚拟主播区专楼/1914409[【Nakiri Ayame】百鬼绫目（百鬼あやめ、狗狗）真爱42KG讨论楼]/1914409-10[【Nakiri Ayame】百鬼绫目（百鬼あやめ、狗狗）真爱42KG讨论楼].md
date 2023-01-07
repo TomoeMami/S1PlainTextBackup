@@ -7,3 +7,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">强者杯最后一名
 
+
+
+*****
+
+####  Fami水  
+##### 14472#       发表于 2023-1-7 18:10
+
+能进强者杯已经很意外了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
