@@ -3502,3 +3502,14 @@ lag玩家来些细碎的感想：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">用笔记本玩的，2070s怎么怪一多就掉帧，今天打完沼泽之王那卡的飞起，要怎么设置呢
 
+
+
+*****
+
+####  厄斯沃穆  
+##### 3298#       发表于 2023-1-7 20:00
+
+请问一下装备盘的基础数值提升是什么原理？我弑神剑刷出来一个武器盘，但是装上以后面板毫无变化？
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
