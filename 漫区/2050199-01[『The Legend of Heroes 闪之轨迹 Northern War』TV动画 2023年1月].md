@@ -858,3 +858,19 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 话说这动画不交待一下政治背景吗，我闪轨只玩了个头，其他轨迹完全没玩过，最后洛根打嘴炮看的一脸懵<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smdzh2  
+##### 195#       发表于 2023-1-7 20:21
+
+闪4结尾不是有一段热兵器大场面吗，看看就好，你法我笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 196#       发表于 2023-1-7 20:28
+
+导力枪不就都是打人很痛的程度吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">能打死人的一般人买不到
+

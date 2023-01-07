@@ -4147,3 +4147,29 @@ non与前辈
 
 2023-1-7 20:06 上传
 
+
+
+*****
+
+####  starring  
+##### 10860#       发表于 2023-1-7 20:23
+
+9人unison哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nufawneafg  
+##### 10861#       发表于 2023-1-7 20:26
+
+改歌这个问题，想想12人的时候还得再来一遍
+也就无需纠结不算问题了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10862#       发表于 2023-1-7 20:32
+
+啊？你们为啥还能为这个企划生气？讲不定后面还会安排打铁跟土妹唱小星星呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
