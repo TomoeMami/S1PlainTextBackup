@@ -4365,3 +4365,12 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 嗯……挺不意外的，可惜没线上，看看挺好的
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 10884#       发表于 2023-1-7 23:28
+
+看路人repo感觉这场人不多啊，ホール1-3直接把ホール1空着，ホール2开1/5的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">5k都到不了吧
+
