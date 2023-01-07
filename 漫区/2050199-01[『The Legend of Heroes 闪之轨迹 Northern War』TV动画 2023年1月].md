@@ -619,3 +619,39 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 待我先云通关闪轨<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 172#       发表于 2023-1-7 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59244804&amp;ptid=2050199" target="_blank">爱尔米娜 发表于 2023-1-7 16:46</a>
+待我先云通关闪轨</blockquote>
+我也想云闪3，但大部分剧情没配音对着视频盯着字看好累
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  龙之峰  
+##### 173#       发表于 2023-1-7 16:58
+
+前半段的魔兽多半是通缉魔兽，闪2主角团的话也得一队人认真打。闪轨的主角团都算是正经精英，一般猎兵是比不了的。
+
+轨迹的枪感觉类似一种奇门兵器，并没有现实中热武器对冷武器那么占优。炮就是另一回事了。
+
+从oped的地点和出场人物来看，这次动画的剧情会相当充实啊。还是那句话，如果不是法老控剧本，最后走向全灭结局我觉得都有可能。
+
+*****
+
+####  爱尔米娜  
+##### 174#       发表于 2023-1-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59244968&amp;ptid=2050199" target="_blank">月夜凝雪 发表于 2023-1-7 16:53</a>
+
+我也想云闪3，但大部分剧情没配音对着视频盯着字看好累
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 S1 ...</blockquote>
+我倒是很怕闪轨里面的一些政治戏码，碧轨的某些就如同嚼蜡了
+
