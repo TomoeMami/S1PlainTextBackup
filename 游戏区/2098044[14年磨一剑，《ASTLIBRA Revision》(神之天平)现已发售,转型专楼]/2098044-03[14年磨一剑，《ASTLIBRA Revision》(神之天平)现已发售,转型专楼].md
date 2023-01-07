@@ -3473,3 +3473,14 @@ lag玩家来些细碎的感想：
 —— 来自 OnePlus LE2100, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 以拳套和一个叫指令拳的变异技能为核心的build，具体去b战搜关键词就行
 
+
+
+*****
+
+####  onezer0618  
+##### 3295#       发表于 2023-1-7 18:13
+
+目前进度，深渊打到最终boss门口了，基本算是全收集了，有什么毕业装推荐吗（不使用刷出来的装备盘里那些变异技能）
+
+—— 来自 HUAWEI DBY-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

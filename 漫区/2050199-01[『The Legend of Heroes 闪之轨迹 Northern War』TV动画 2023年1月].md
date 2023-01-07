@@ -740,3 +740,16 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  kamarus  
+##### 183#       发表于 2023-1-7 18:11
+
+ 本帖最后由 kamarus 于 2023-1-7 18:14 编辑 
+
+竟然真的有萌新。
+法老控ys10这肯定能翻身的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有不要说打戏了，黎轨2打戏那么好，结果呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
