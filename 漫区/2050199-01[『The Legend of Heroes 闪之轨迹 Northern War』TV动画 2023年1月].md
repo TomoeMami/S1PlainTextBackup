@@ -1025,3 +1025,42 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我想知道这里有没有游击士协会
 
+
+
+*****
+
+####  roxas.sora  
+##### 212#       发表于 2023-1-7 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249810&amp;ptid=2050199" target="_blank">areklose 发表于 2023-1-7 22:13</a>
+
+想多了。这些猎兵估计对标就是地方警察。但是国家穷装备穷。比起富到流油的克州警察装备我觉得至 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏里猎兵不是会读条用魔法的么，我还以为他们有恩尼格玛
+
+*****
+
+####  Aeons  
+##### 213#       发表于 2023-1-7 22:26
+
+有人还记得猎兵团是最高等级的佣兵部队称呼吗，优秀的佣兵才能叫猎兵
+
+*****
+
+####  areklose  
+##### 214#       发表于 2023-1-7 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249962&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-7 22:22</a>
+
+游戏里猎兵不是会读条用魔法的么，我还以为他们有恩尼格玛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你打得都是出来混饭吃的有钱有装备，这动画刚出场其实就是治安警察。你看看干啥任务就知道。就一队运粮的。说不定罗根那边有。
+
+*****
+
+####  龙之峰  
+##### 215#       发表于 2023-1-7 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249775&amp;ptid=2050199" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-7 22:11</a>
+
+能有什么心态转变啊？刚从北方回来就对着冰女无能狂怒，太逊了</blockquote>
+闪2和闪3的黎恩状态不同还是很明显的吧？
+
