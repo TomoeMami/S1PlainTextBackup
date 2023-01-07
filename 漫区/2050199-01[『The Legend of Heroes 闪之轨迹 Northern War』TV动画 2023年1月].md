@@ -405,3 +405,24 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">两位猎兵大哥肯定是第一话最多台词的
 
+
+
+*****
+
+####  areklose  
+##### 154#       发表于 2023-1-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59239045&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-7 01:08</a>
+
+不是打完这边再到闪2那边找罗城管自首吗
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是。城管是之前
+
+*****
+
+####  aptx8285144  
+##### 155#       发表于 2023-1-7 10:34
+
+第一话除了前面列兵大哥吐槽的时间太长外（不过也交代了罗根以及现状一些信息），其他的挺好的，要求不高的我感觉这制作也不算穷了（或者说期待值不一样?））
+
