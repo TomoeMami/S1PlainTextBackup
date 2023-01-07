@@ -582,3 +582,31 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 这帝国英雄是谁？
 
+
+
+*****
+
+####  月夜凝雪  
+##### 169#       发表于 2023-1-7 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59244458&amp;ptid=2050199" target="_blank">爱尔米娜 发表于 2023-1-7 16:28</a>
+共和国败给了帝国，克洛斯贝尔自治州被帝国吞并了
+
+就凭一名帝国英雄</blockquote>
+看动画标题
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  areklose  
+##### 170#       发表于 2023-1-7 16:38
+
+<blockquote>爱尔米娜 发表于 2023-1-7 16:28
+共和国败给了帝国，克洛斯贝尔自治州被帝国吞并了
+
+就凭一名帝国英雄
+
+</blockquote>
+闪轨主角，开着至宝碎片之一的骑神，科技压制
+
