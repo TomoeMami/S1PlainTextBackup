@@ -811,3 +811,14 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 魔兽和幻兽差不多，评级是中位高位这样
 
+
+
+*****
+
+####  Cloudslin  
+##### 190#       发表于 2023-1-7 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59247123&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-1-7 19:09</a>
+副班长克洛炮萝有话要说，这几个都是远程菜刀</blockquote>
+克洛唯一指定用法不是1at白银狼吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

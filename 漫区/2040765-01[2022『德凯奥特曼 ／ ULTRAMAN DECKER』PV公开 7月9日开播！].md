@@ -11,3 +11,12 @@
 <img src="https://p.sda1.dev/9/702506209d0ba662e95161fe6c97ec8f/20230106104443.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/c16d0aae1fad7249c0fc53e7bd27d19d/20230106104512.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cloudslin  
+##### 855#       发表于 2023-1-7 19:25
+
+最近在b站看到的一些讨论，让我真心再次感慨，对于一部分特摄剧观众来说，剧情烂还算可以接受，打架犹豫则是万万不行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
