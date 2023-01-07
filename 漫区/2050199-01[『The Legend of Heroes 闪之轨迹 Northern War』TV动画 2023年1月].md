@@ -936,3 +936,20 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这动画有种预感以后有个梗就是虚假的金发路人，真正的金发路人，谁才是真正的金发女主角啊
 
+
+
+*****
+
+####  lokifreya  
+##### 204#       发表于 2023-1-7 21:51
+
+第一话的感觉后续剧情走向应该比较稳估计不太会整大活吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+几个场景还算有在努力营造气氛
+
+就是好几个该画多人场面的地方都切到天空和建筑物全靠声优了，穷得好努力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+战斗场面肉身战就不指望了，等等机甲兵战了，看着是预算不多把钱用在强项上吧
+
+不知道游戏bgm会用几首
+

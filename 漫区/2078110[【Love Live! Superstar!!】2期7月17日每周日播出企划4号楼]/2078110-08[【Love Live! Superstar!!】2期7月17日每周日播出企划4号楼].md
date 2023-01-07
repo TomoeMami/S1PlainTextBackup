@@ -4347,3 +4347,12 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在企划live和蓝光都是白嫖了，反正可可solo又不出来，有什么买的必要
 
+
+
+*****
+
+####  starring  
+##### 10882#       发表于 2023-1-7 21:55
+
+反正收完2nd live的BD就收手二专谁爱谁买，鲤的迷你专和BD event香多了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
