@@ -555,3 +555,15 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 这OPED就挺没特色的，中规中矩，不过动画整体居然比预想中要好</blockquote>
 中川奈美的ed配合画面听着，我觉得还是有一种温泉一样的温暖<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yixiaqqq  
+##### 167#       发表于 2023-1-7 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59243740&amp;ptid=2050199" target="_blank">areklose 发表于 2023-1-7 15:29</a>
+
+忘记闪2打西风都要救兵出场吗。</blockquote>
+祖传样板戏，大家都给个面子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
