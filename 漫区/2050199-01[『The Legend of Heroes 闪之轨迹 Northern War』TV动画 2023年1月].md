@@ -471,3 +471,12 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 那表现倒是很符合轨迹系列热兵器的一贯水准。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  圣罗.希露温  
+##### 160#       发表于 2023-1-7 13:14
+
+这OPED就挺没特色的，中规中矩，不过动画整体居然比预想中要好 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
