@@ -783,3 +783,22 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 不说枪炮，轨迹里面的远距离武器都很菜，如果那个角色用的是弓/枪这类武器，那还是先看他的魔法链吧
 
+
+
+*****
+
+####  Aeons  
+##### 187#       发表于 2023-1-7 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59246682&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-7 18:37</a>
+
+不说枪炮，轨迹里面的远距离武器都很菜，如果那个角色用的是弓/枪这类武器，那还是先看他的魔法链吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡西姆的破坏铳枪可不菜
+
+*****
+
+####  妄想中毒  
+##### 188#       发表于 2023-1-7 19:09
+
+副班长克洛炮萝有话要说，这几个都是远程菜刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
