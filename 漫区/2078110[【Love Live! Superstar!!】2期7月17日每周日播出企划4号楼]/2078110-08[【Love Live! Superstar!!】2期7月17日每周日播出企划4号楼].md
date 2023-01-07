@@ -4271,3 +4271,44 @@ non与前辈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://twitter.com/Ayumikan_chika/status/1611704296919433216
 
+
+
+*****
+
+####  ViyViy  
+##### 10874#       发表于 2023-1-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248802&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-7 21:09</a>
+
+草，先放出个五人版，在出个四人版九人版十二人版？要真这么做可太牛了，这歌也算是近期出的吧？难道还能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让你能听个CD版的老五人还不感恩戴德
+
+*****
+
+####  lj205  
+##### 10875#       发表于 2023-1-7 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248592&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-7 20:54</a>
+还真别说，小星星的油管评论区真的有人期待9人小星星，大概意思是可香的小星星是第一个live，结局的时候把9 ...</blockquote>
+运营:我不要你觉得，我要我觉得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 10876#       发表于 2023-1-7 21:16
+
+我只想听鲤鱼一个人唱的啊，solo专赶紧的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10877#       发表于 2023-1-7 21:19
+
+ 本帖最后由 nufawneafg 于 2023-1-7 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248821&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-1-7 21:10</a>
+https://twitter.com/Ayumikan_chika/status/1611704296919433216</blockquote>
+莫名想起看到的pjsk和星的场贩对比
+https://twitter.com/sothia708/status/1611566404318429186
+
+只能说企划对受众群体很严苛是这样的，这下抵达属于它的耶路撒冷了
+
