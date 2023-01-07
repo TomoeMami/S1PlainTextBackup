@@ -4385,3 +4385,21 @@ https://twitter.com/sothia708/status/1611566404318429186
 看路人repo感觉这场人不多啊，ホール1-3直接把ホール1空着，ホール2开1/5的5k都到不了吧 ...</blockquote>
 普惠性演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10886#       发表于 2023-1-7 23:51
+
+西武终于可以开放call了
+
+*****
+
+####  稀勢のささ  
+##### 10887#       发表于 2023-1-7 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59251006&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2023-1-7 23:28</a>
+看路人repo感觉这场人不多啊，ホール1-3直接把ホール1空着，ホール2开1/5的5k都到不了吧 ...</blockquote>
+看5厕说是2万人的场子， 一通分析下来大概7000多点，还有下降空间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
