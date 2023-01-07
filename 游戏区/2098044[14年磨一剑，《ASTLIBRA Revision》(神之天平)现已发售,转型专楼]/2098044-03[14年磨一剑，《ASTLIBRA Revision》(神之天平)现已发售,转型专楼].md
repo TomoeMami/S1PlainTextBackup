@@ -3513,3 +3513,28 @@ lag玩家来些细碎的感想：
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  M1NG  
+##### 3299#       发表于 2023-1-7 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241112&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-7 10:58</a>
+
+一口气推到新章了，忘了雪山还漏了个盾，是不是现在必须推进剧情到雪山和矿石镇才能拿到最强剑了？
+
+我现在 ...</blockquote>
+新章好像是某一章（第五章？不太记得了）后就全部区域都解锁了，而且每章过的也比较快。我也是没拿那个盾，新章后重回雪山用不了多久
+
+*****
+
+####  牙狼GARO  
+##### 3300#       发表于 2023-1-7 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59246001&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-7 17:52</a>
+以拳套和一个叫指令拳的变异技能为核心的build，具体去b战搜关键词就行</blockquote>
+搜了一下，震惊了，我以为我已经站撸了，妹想到连站撸的皮毛都摸不上
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
