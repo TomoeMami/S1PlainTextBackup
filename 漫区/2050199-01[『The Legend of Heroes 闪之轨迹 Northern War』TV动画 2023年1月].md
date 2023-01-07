@@ -953,3 +953,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 不知道游戏bgm会用几首
 
+
+
+*****
+
+####  squallx  
+##### 205#       发表于 2023-1-7 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">演出实在是太抽象了 这真的是3202年的动画吗
+

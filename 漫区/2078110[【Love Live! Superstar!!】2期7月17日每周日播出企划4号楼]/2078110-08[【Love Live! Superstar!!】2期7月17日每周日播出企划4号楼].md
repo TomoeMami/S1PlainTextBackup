@@ -4356,3 +4356,12 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 反正收完2nd live的BD就收手二专谁爱谁买，鲤的迷你专和BD event香多了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 10883#       发表于 2023-1-7 22:12
+
+嗯……挺不意外的，可惜没线上，看看挺好的
+
