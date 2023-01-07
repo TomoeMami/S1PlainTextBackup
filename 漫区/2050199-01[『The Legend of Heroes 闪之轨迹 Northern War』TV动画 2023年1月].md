@@ -387,3 +387,12 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 另外如果不是法老控的原作，我肯定会认为这两个猎兵大哥会便当……
 
+
+
+*****
+
+####  纯夏  
+##### 152#       发表于 2023-1-7 09:49
+
+作画也太穷了 俩猎兵整整侃了5分钟 太拖拉观感了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
