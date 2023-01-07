@@ -49,7 +49,7 @@ def filter_time(troll,input_list):
     else:
         return return_dict
 
-year = datetime.now().strftime("%Y")
+year = '2023'
 current_date = datetime.now().strftime("%Y%m%d")
 date_list = [pd.Timestamp(x).strftime("%Y-%-m-%-d") for x in pd.date_range(year+'0101',current_date)]
 # date_list = [pd.Timestamp(x).strftime("%Y-%-m-%-d") for x in pd.date_range(year+'0101',year+'1231')]

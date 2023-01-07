@@ -6,6 +6,7 @@ name: S1B
 on:
   schedule:
     - cron: '0 21 * * *'
+  workflow_dispatch:
 jobs:
   PushS1B:
     # needs: UpdateS1
