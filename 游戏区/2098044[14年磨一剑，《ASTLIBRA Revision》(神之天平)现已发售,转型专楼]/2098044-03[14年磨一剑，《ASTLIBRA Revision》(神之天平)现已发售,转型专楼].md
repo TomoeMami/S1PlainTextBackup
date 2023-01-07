@@ -3639,3 +3639,12 @@ lag玩家来些细碎的感想：
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  囧Smith  
+##### 3308#       发表于 2023-1-7 23:40
+
+第八章了，现在39级是偏低了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉非常魂斗罗
+
