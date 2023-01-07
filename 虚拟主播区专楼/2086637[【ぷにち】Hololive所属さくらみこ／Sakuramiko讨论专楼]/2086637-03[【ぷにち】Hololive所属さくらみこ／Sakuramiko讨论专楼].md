@@ -9835,3 +9835,37 @@ ame在日本本土，不会吧
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3921#       发表于 2023-1-7 14:24
+
+惨哦，疯狂吃技能
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tesparu  
+##### 3922#       发表于 2023-1-7 14:25
+
+看的好紧张
+
+*****
+
+####  rs5621  
+##### 3923#       发表于 2023-1-7 14:28
+
+本来第一的，终点前吃雷，气得哇哇叫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tesparu  
+##### 3924#       发表于 2023-1-7 14:31
+
+没有，无敌把雷躲了
+
