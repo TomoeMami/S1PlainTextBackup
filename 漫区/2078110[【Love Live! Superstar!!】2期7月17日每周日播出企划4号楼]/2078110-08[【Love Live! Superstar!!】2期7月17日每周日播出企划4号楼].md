@@ -4464,3 +4464,17 @@ https://twitter.com/sothia708/status/1611566404318429186
 八成是块压着油门的砖头</blockquote>
 反过来说它半年前就光想着舞蹈全删了“偷懒”改编，太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 10893#       发表于 2023-1-8 00:33
+
+ 本帖最后由 nufawneafg 于 2023-1-8 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59251824&amp;ptid=2078110" target="_blank">lj205 发表于 2023-1-8 00:26</a>
+后面还是赶紧把一期二期分开单独开吧吧，说不定场面还能比现在好</blockquote>
+那三期没法办了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+它到现在这个局面的核心原因就是所有东西都得围绕着我ip的概念转。不论我做的如何，不论你想法如何，你都得给我融进来，成为我体系的一部分。把握住这一点很多事情就好说通了。这一套顺风好说，但凡遇到点逆风不是微操大师就向着悬崖狂奔了
+那只能愿它早日抵达属于它的耶路撒冷吧
+

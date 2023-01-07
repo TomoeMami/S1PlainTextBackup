@@ -1222,3 +1222,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 游戏都能玩下去，听个五分钟相声又有啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jiklp87  
+##### 231#       发表于 2023-1-8 00:33
+
+都退坑了还看动画，看了还不够，还要特意来动画专楼骂一句讨厌，挺有意思的，不知道该说是恨比爱长久还是口是心非<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
