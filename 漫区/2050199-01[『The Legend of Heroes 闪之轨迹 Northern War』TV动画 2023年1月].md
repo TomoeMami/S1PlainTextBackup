@@ -457,3 +457,17 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 故事看起来会比较扎实，作画真是便宜大赏了，突然好希望游戏本家也能有这种呆呆酷酷的女性主角啊
 
+
+
+*****
+
+####  灰谷真实  
+##### 159#       发表于 2023-1-7 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241342&amp;ptid=2050199" target="_blank">银翼的维罗西 发表于 2023-1-7 11:25</a>
+
+看了这个动画才明白为撒叫英雄传说了，这普通人和轨迹系列的主配角战力差距也太大了，列兵团碰到个大型魔兽 ...</blockquote>
+第一话对战的那只魔兽，大约旧七随便来个正经的都直接秒了，根本用不到热兵器。
+
+那表现倒是很符合轨迹系列热兵器的一贯水准。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
