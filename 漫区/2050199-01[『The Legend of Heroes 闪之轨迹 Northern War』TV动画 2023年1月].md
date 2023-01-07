@@ -962,3 +962,66 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">演出实在是太抽象了 这真的是3202年的动画吗
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 206#       发表于 2023-1-7 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249167&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-7 21:36</a>
+
+黎恩肯定是有重头戏，如何从闪2结尾变成闪3就可以说，诺森比亚肯定也得说黎恩的心态转变。不能接受就赶紧弃 ...</blockquote>
+能有什么心态转变啊？刚从北方回来就对着冰女无能狂怒，太逊了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天光逸  
+##### 207#       发表于 2023-1-7 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241342&amp;ptid=2050199" target="_blank">银翼的维罗西 发表于 2023-1-7 11:25</a>
+
+看了这个动画才明白为撒叫英雄传说了，这普通人和轨迹系列的主配角战力差距也太大了，列兵团碰到个大型魔兽 ...</blockquote>
+毕竟游戏都A级不如狗的时代了。
+
+但游戏来说回想城管刚刚出炉，教程关遇到个大魔兽全队也毫无办法得风剑救场了（兰迪装菜中）。
+
+*****
+
+####  封印的右手  
+##### 208#       发表于 2023-1-7 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249323&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-7 21:45</a>
+
+..................为啥玩家随便打的东西猎兵们打的那么艰苦.......就算没有arcus导力器，恩尼格码还是有的 ...</blockquote>
+因为这些猎兵放在游戏里本来也就人形普通怪的程度而已，反而是这怪放游戏也能安排成个通缉魔兽的程度
+
+*****
+
+####  areklose  
+##### 209#       发表于 2023-1-7 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249323&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-7 21:45</a>
+
+..................为啥玩家随便打的东西猎兵们打的那么艰苦.......就算没有arcus导力器，恩尼格码还是有的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想多了。这些猎兵估计对标就是地方警察。但是国家穷装备穷。比起富到流油的克州警察装备我觉得至少差不少层次。更不用说和主角比。
+
+*****
+
+####  天光逸  
+##### 210#       发表于 2023-1-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59240174&amp;ptid=2050199" target="_blank">培根芝士蛋堡XD 发表于 2023-1-7 08:49</a>
+
+轨迹的魔物原来有这么强的吗？游戏里完全没感受出是会威胁城镇的存在</blockquote>
+只能说诺州太穷，治安不行
+
+
+
+*****
+
+####  areklose  
+##### 211#       发表于 2023-1-7 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我想知道这里有没有游击士协会
+
