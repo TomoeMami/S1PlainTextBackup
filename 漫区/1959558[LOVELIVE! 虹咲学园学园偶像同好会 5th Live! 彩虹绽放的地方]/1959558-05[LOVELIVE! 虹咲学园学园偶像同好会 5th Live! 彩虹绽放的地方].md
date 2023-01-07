@@ -736,3 +736,15 @@ UR侑
 
 官方发病真可怕
 
+
+
+*****
+
+####  仟音一心  
+##### 6865#       发表于 2023-1-7 08:53
+
+第1话「虹之咲学园 学园偶像同好会」
+翻译：潮风
+嵌字：crusader<img src="https://p.sda1.dev/9/b61437c2dc09c8cef135e2df848d8447/CMP_20230107085257940.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/8849b4d2dfd5abb7d4981c0f2508a741/CMP_20230107085257987.jpg" referrerpolicy="no-referrer">
+
