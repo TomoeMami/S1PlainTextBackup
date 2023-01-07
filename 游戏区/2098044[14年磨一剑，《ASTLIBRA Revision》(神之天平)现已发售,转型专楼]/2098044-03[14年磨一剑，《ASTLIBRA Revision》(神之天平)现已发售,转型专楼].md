@@ -3433,3 +3433,15 @@ lag玩家来些细碎的感想：
 
 新章这武器菜逼了不好使，直接兽爪指令拳
 
+
+
+*****
+
+####  镜像导航图  
+##### 3292#       发表于 2023-1-7 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59234075&amp;ptid=2098044" target="_blank">adw667 发表于 2023-1-6 19:35</a>
+
+等级倒没什么，你应该查的是成长树是不是开完了，每章是不是5张装备图纸都刷出来了 ...</blockquote>
+确实没刷，我是按照现在RPG收集要素做了减轻难度、直通主线也没问题的思路玩的第一个档。现在开了个困难的新档才发现卧槽之前各种基础功能我都没开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

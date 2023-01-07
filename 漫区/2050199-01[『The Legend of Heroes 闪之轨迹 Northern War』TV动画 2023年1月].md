@@ -480,3 +480,16 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 这OPED就挺没特色的，中规中矩，不过动画整体居然比预想中要好 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 161#       发表于 2023-1-7 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59240174&amp;ptid=2050199" target="_blank">培根芝士蛋堡XD 发表于 2023-1-7 08:49</a>
+轨迹的魔物原来有这么强的吗？游戏里完全没感受出是会威胁城镇的存在</blockquote>
+主要还是缺乏导力技术，游戏里玩家经历的国家都是有着相当导力技术，每次开场让你做的修路灯任务的那些路灯本身就是有驱散魔兽的作用剧情里都提到的
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

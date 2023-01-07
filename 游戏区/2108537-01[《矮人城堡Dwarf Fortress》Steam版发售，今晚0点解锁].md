@@ -113,3 +113,16 @@ BV1ug411473W
 
 [https://github.com/Dwarf-Therapi ... es/tag/df0.50-test1](https://github.com/Dwarf-Therapist/Dwarf-Therapist/releases/tag/df0.50-test1)
 
+
+
+*****
+
+####  boxloli  
+##### 113#       发表于 2023-1-7 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59234046&amp;ptid=2108537" target="_blank">与天争锋_LZ 发表于 2023-1-6 19:33</a>
+真是好消息啊，希望会汉化早日到来
+
+另外steam版今后会和字符版一样持续更新吗？ ...</blockquote>
+以后应该是主要做steam版了
+
