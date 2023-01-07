@@ -874,3 +874,22 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 导力枪不就都是打人很痛的程度吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">能打死人的一般人买不到
 
+
+
+*****
+
+####  Aeons  
+##### 197#       发表于 2023-1-7 20:32
+
+xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高手一拳。
+
+*****
+
+####  kamarus  
+##### 198#       发表于 2023-1-7 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248011&amp;ptid=2050199" target="_blank">废都刽子手 发表于 2023-1-7 20:13</a>
+话说这动画不交待一下政治背景吗，我闪轨只玩了个头，其他轨迹完全没玩过，最后洛根打嘴炮看的一脸懵[f:117 ...</blockquote>
+不就闪2和闪3中间吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+苍之圣女暂时嗝屁，黎爷被亲爹奥斯本坑到北方诺森布里亚打架立英雄人设。
+

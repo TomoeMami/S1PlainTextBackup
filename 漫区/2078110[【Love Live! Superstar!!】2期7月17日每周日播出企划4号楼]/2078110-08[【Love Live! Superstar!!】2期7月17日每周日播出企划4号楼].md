@@ -4173,3 +4173,19 @@ non与前辈
 
 啊？你们为啥还能为这个企划生气？讲不定后面还会安排打铁跟土妹唱小星星呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10863#       发表于 2023-1-7 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10864#       发表于 2023-1-7 20:37
+
+什么时候来个9人12人ver的tiny stars了结还心存妄想的人啊，这样的画面太美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
