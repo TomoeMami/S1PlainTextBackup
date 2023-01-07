@@ -536,3 +536,22 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 玩闪3的时候新7的任务就是惊呼你同学都是些什么妖魔鬼怪 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">忘记闪2打西风都要救兵出场吗。
 
+
+
+*****
+
+####  whzfjk  
+##### 165#       发表于 2023-1-7 15:33
+
+有一说一，网文改奇幻横店看多后，你法这游戏圈的场景怪物风格搬到动画里还挺新鲜的
+
+*****
+
+####  aptx8285144  
+##### 166#       发表于 2023-1-7 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59242443&amp;ptid=2050199" target="_blank">圣罗.希露温 发表于 2023-1-7 13:14</a>
+
+这OPED就挺没特色的，中规中矩，不过动画整体居然比预想中要好</blockquote>
+中川奈美的ed配合画面听着，我觉得还是有一种温泉一样的温暖<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
