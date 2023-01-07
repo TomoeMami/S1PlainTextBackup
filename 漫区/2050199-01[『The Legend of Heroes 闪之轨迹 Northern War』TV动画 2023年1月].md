@@ -567,3 +567,18 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 忘记闪2打西风都要救兵出场吗。</blockquote>
 祖传样板戏，大家都给个面子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  爱尔米娜  
+##### 168#       发表于 2023-1-7 16:28
+
+共和国败给了帝国，克洛斯贝尔自治州被帝国吞并了
+
+就凭一名帝国英雄
+
+我只玩到碧轨，后面的内容完全衔接不上了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+这帝国英雄是谁？
+
