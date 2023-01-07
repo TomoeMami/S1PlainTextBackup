@@ -4099,3 +4099,20 @@ non与前辈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">怎么没有配信
 
+
+
+*****
+
+####  nufawneafg  
+##### 10856#       发表于 2023-1-7 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59240645&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-7 09:58</a>
+不知道明天会不会更多。
+
+以及经典开场一小时内不管人气高低全都卖干净的フォンタブ，就是些义乌时尚小物件 ...</blockquote>
+包括周边和实体盘都是宁缺货不积压的
+缺货只是不挣钱，积压里外里是真的还要赔出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看来至少备货的时候意识比较清醒
+
