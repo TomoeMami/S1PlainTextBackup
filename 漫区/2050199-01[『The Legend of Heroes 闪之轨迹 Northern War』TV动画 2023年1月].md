@@ -911,3 +911,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 穷是穷了点，意外的能看下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  龙之峰  
+##### 201#       发表于 2023-1-7 21:36
+
+黎恩肯定是有重头戏，如何从闪2结尾变成闪3就可以说，诺森比亚肯定也得说黎恩的心态转变。不能接受就赶紧弃。
+

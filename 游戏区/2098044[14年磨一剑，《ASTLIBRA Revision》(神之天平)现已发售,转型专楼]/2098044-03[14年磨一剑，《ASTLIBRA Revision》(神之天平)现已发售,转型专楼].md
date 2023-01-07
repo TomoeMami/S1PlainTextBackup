@@ -3592,3 +3592,15 @@ lag玩家来些细碎的感想：
 
 开最简单的难度到第八章居然都不能无双 还是得小刷
 
+
+
+*****
+
+####  s32244153  
+##### 3304#       发表于 2023-1-7 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248605&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-7 20:54</a>
+
+明显不是，如图面板没选攻击力依然有1800攻击力</blockquote>
+每件第一次装上装备盘后会提升一次数值
+

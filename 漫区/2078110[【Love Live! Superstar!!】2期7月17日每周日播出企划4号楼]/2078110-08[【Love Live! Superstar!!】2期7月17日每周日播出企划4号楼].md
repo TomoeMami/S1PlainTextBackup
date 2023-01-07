@@ -4328,3 +4328,22 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些小日子真是，搜ユニゾン明明夸得还比较多，几个投票一看被倍杀还多
 
+
+
+*****
+
+####  ruffian  
+##### 10880#       发表于 2023-1-7 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248887&amp;ptid=2078110" target="_blank">lj205 发表于 2023-01-07 21:16:09</a>
+运营:我不要你觉得，我要我觉得</blockquote>反正可推和可香推又不全是大陆人，愿意作死就尽管试试
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  甘蓝巧克力  
+##### 10881#       发表于 2023-1-7 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在企划live和蓝光都是白嫖了，反正可可solo又不出来，有什么买的必要
+
