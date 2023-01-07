@@ -4403,3 +4403,16 @@ https://twitter.com/sothia708/status/1611566404318429186
 看路人repo感觉这场人不多啊，ホール1-3直接把ホール1空着，ホール2开1/5的5k都到不了吧 ...</blockquote>
 看5厕说是2万人的场子， 一通分析下来大概7000多点，还有下降空间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10888#       发表于 2023-1-8 00:08
+
+ 本帖最后由 ViyViy 于 2023-1-8 00:11 编辑 
+
+终于到了真正的痛点，“没多少人”来看live了吗，这油门还踩不踩了？
+
+看贝比说这union还是花车，哪怕是编舞都没有，就这么硬改？
+
