@@ -9896,3 +9896,27 @@ ame在日本本土，不会吧
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3928#       发表于 2023-1-7 20:41
+
+ 本帖最后由 rs5621 于 2023-1-7 20:44 编辑 
+
+这下连休4天了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3929#         楼主| 发表于 2023-1-7 20:45
+
+是4天
+
+应该是这么多年以来回家最久的一次，不算20年的那次
+
+不过明显感觉年底开始情绪有点不对劲，包括昨天特别异常的情况，直觉应该最近有点什么事或者压力比较大，这时回家放松一下转换情绪也好
+

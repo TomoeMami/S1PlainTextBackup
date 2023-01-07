@@ -3538,3 +3538,17 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  M1NG  
+##### 3301#       发表于 2023-1-7 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59247803&amp;ptid=2098044" target="_blank">厄斯沃穆 发表于 2023-1-7 20:00</a>
+
+请问一下装备盘的基础数值提升是什么原理？我弑神剑刷出来一个武器盘，但是装上以后面板毫无变化？
+
+——  ...</blockquote>
+就是看装备盘里属性提升这个词条的数值决定的，如果盘里全是什么换武器属性换嘉隆减重这些，那攻击力就没变化
+

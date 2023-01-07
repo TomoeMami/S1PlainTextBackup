@@ -4189,3 +4189,21 @@ non与前辈
 
 什么时候来个9人12人ver的tiny stars了结还心存妄想的人啊，这样的画面太美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 10865#       发表于 2023-1-7 20:50
+
+怎么还有心存侥幸的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 10866#       发表于 2023-1-7 20:51
+
+这些反而不可能吧，运营是傻，但特地改这些没必要吧
+
