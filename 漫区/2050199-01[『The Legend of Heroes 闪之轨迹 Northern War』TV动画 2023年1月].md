@@ -1211,3 +1211,14 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 抱着看能烂成啥样的心态倒是还挺乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 230#       发表于 2023-1-8 00:20
+
+开场两位大哥说话挺有意思，台词比游戏强。
+
+游戏都能玩下去，听个五分钟相声又有啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

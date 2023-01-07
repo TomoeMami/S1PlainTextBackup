@@ -4434,3 +4434,33 @@ https://twitter.com/sothia708/status/1611566404318429186
 现在一屁股O，千头万绪理论不清，至于运营方向本身还是先凑合着维持现状。
 这改也不是昨天说今天大伙就会唱的，都说了至少是半年前的决定，还是老路子，“既定方向”。
 
+
+
+*****
+
+####  Enakina  
+##### 10890#       发表于 2023-1-8 00:23
+
+就是因为没啥人去呗，就按一巡那德性，一般情况才懒得改歌单呢。不过还能再整点什么新活，暂且期待一下
+
+
+
+*****
+
+####  lj205  
+##### 10891#       发表于 2023-1-8 00:26
+
+后面还是赶紧把一期二期分开单独开吧吧，说不定场面还能比现在好
+
+*****
+
+####  ViyViy  
+##### 10892#       发表于 2023-1-8 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59251635&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-1-8 00:12</a>
+
+现在驾驶座上还有没有喘气的活人是个问题
+
+八成是块压着油门的砖头</blockquote>
+反过来说它半年前就光想着舞蹈全删了“偷懒”改编，太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
