@@ -4416,3 +4416,21 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 看贝比说这union还是花车，哪怕是编舞都没有，就这么硬改？
 
+
+
+*****
+
+####  nufawneafg  
+##### 10889#       发表于 2023-1-8 00:12
+
+ 本帖最后由 nufawneafg 于 2023-1-8 00:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59251589&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-8 00:08</a>
+终于到了真正的痛点，“没多少人”来看live了吗，这油门还踩不踩了？
+
+看贝比说这union还是花车，哪怕是编舞 ...</blockquote>
+现在驾驶座上还有没有喘气的活人是个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+八成是块压着油门的砖头
+
+现在一屁股O，千头万绪理论不清，至于运营方向本身还是先凑合着维持现状。
+这改也不是昨天说今天大伙就会唱的，都说了至少是半年前的决定，还是老路子，“既定方向”。
+

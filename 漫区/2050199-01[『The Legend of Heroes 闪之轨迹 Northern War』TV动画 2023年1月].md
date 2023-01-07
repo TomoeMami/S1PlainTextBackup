@@ -1202,3 +1202,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 有点记不清了，游戏里的猎兵杂兵好像放回复魔法比较多
 
+
+
+*****
+
+####  aimujie  
+##### 229#       发表于 2023-1-8 00:15
+
+抱着看能烂成啥样的心态倒是还挺乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

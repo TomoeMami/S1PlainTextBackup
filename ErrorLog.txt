@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/手游专楼/1130963[偶像大师灰姑娘音游新作Starlight Stage]'
-!!error:id=1130963
