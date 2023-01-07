@@ -3460,3 +3460,16 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3294#       发表于 2023-1-7 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59243311&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-7 14:44</a>
+指令拳是什么，搓个升么
+
+—— 来自 OnePlus LE2100, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+以拳套和一个叫指令拳的变异技能为核心的build，具体去b战搜关键词就行
+
