@@ -104,3 +104,12 @@ BV1ug411473W
 
 另外steam版今后会和字符版一样持续更新吗？
 
+
+
+*****
+
+####  luciffer  
+##### 112#       发表于 2023-1-7 09:31
+
+[https://github.com/Dwarf-Therapi ... es/tag/df0.50-test1](https://github.com/Dwarf-Therapist/Dwarf-Therapist/releases/tag/df0.50-test1)
+
