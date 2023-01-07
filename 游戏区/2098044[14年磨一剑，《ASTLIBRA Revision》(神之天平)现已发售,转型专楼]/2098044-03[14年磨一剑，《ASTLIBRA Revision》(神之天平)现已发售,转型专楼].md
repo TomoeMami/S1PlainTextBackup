@@ -3626,3 +3626,16 @@ lag玩家来些细碎的感想：
 一路打到最终章，就感觉还算挺套路的剧情
 结果来了个新章，让人眼前一亮
 
+
+
+*****
+
+####  onezer0618  
+##### 3307#       发表于 2023-1-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59246543&amp;ptid=2098044" target="_blank">otakun 发表于 2023-1-7 18:26</a>
+不用变异技能就村正加然后带加投射物伤害的各种技能和饰品，不过都是建议变异个魔女出来加魔力 ...</blockquote>
+搜了下b站变异技能，好离谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
