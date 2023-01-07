@@ -1100,3 +1100,19 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">闪轨主角团虽然是学生。但估计你们都忘记了学校是军事学校。而且是帝国数一数二的士官学校，帝国着名的将领黄金罗刹黑旋风都来自于这里。而且还是元帅级别当校长。更不用说7班都是各种顶级二代组成的。可谓是有钱有势力有背景，帝国最顶级的年轻一代了。
 
+
+
+*****
+
+####  灰谷真实  
+##### 219#       发表于 2023-1-7 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59250489&amp;ptid=2050199" target="_blank">areklose 发表于 2023-1-7 22:56</a>
+
+闪轨主角团虽然是学生。但估计你们都忘记了学校是军事学校。而且是帝国数一数二的士官学校，帝国着 ...</blockquote>
+宰相自己就是托尔兹出身。
+
+托尔兹那学校武德充沛得很，在普通人里属于佼佼者的塞德里克和他的同期（库尔特）一比简直就是弟弟。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是PV和OP里面把宰相画成马脸我不很理解，武德尽失。谁还想得到那是个能自己提剑当BOSS的猛人。
+
