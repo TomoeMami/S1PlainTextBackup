@@ -4312,3 +4312,19 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 只能说企划对受众群体很严苛是这样的，这下抵达属于它的耶路撒冷了
 
+
+
+*****
+
+####  lj205  
+##### 10878#       发表于 2023-1-7 21:24
+
+反正可可是保不住，那就只能全力保鲤鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10879#       发表于 2023-1-7 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些小日子真是，搜ユニゾン明明夸得还比较多，几个投票一看被倍杀还多
+

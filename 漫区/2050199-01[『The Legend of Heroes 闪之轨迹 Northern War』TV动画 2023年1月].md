@@ -902,3 +902,12 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 轨迹世界里热兵器薛定谔的杀伤力，罗爷他哥不就是被人小水枪干死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sylpheed  
+##### 200#       发表于 2023-1-7 21:23
+
+穷是穷了点，意外的能看下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
