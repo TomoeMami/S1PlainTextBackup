@@ -493,3 +493,20 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  aptx8285144  
+##### 162#       发表于 2023-1-7 15:09
+
+<img src="https://img.saraba1st.com/forum/202301/07/150829ydmj642za6x27p8x.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230107150758.png</strong> (28.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-7 15:08 上传
+
+op拉薇手上的小列兵消失画面不知道是不是个flag
+

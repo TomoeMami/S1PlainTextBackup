@@ -126,3 +126,19 @@ BV1ug411473W
 另外steam版今后会和字符版一样持续更新吗？ ...</blockquote>
 以后应该是主要做steam版了
 
+
+
+*****
+
+####  白左  
+##### 114#       发表于 2023-1-7 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59240427&amp;ptid=2108537" target="_blank">luciffer 发表于 2023-1-7 09:31</a>
+
+https://github.com/Dwarf-Therapist/Dwarf-Therapist/releases/tag/df0.50-test1</blockquote>
+啊这
+
+steam版还是没有内置工种管理吗
+
+我以为这种东西是小人运营游戏标配了
+
