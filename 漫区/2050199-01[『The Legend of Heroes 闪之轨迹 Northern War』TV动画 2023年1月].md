@@ -1116,3 +1116,27 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 倒是PV和OP里面把宰相画成马脸我不很理解，武德尽失。谁还想得到那是个能自己提剑当BOSS的猛人。
 
+
+
+*****
+
+####  101207777  
+##### 220#       发表于 2023-1-7 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59247123&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-1-7 19:09</a>
+
+副班长克洛炮萝有话要说，这几个都是远程菜刀</blockquote>
+副班算个鸡菜刀，
+
+不是靠战技拉人和高hit数S技刷晶片的工具人么
+
+*****
+
+####  戏言卿  
+##### 221#       发表于 2023-1-7 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59249323&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-7 21:45</a>
+
+..................为啥玩家随便打的东西猎兵们打的那么艰苦.......就算没有arcus导力器，恩尼格码还是有的 ...</blockquote>
+这两在闪2其实算同世代的，只是闪3时ARCUS有后续机型艾格尼玛没有（毕竟是闪轨不是碧轨）新款导力器大部分都得走黑市不好弄，第一集这些不上前线肯定没有，高级点的猎兵一般还是能配出中级治疗+振奋+解异常
+
