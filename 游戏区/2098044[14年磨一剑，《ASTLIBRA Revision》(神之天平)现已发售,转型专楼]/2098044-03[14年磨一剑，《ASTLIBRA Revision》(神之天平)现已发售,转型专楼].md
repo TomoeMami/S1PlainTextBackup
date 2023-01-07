@@ -3604,3 +3604,15 @@ lag玩家来些细碎的感想：
 明显不是，如图面板没选攻击力依然有1800攻击力</blockquote>
 每件第一次装上装备盘后会提升一次数值
 
+
+
+*****
+
+####  M1NG  
+##### 3305#       发表于 2023-1-7 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59248605&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-7 20:54</a>
+
+明显不是，如图面板没选攻击力依然有1800攻击力</blockquote>
+还真没发现<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 查了下wiki也没有说，不过我打新章用的弑神剑和某一把片手剑，拿了没啥用的装备盘就不会有提升，也许是低级武器才会自带一个将基础属性提升，达到最高级武器的水平
+

@@ -920,3 +920,19 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 黎恩肯定是有重头戏，如何从闪2结尾变成闪3就可以说，诺森比亚肯定也得说黎恩的心态转变。不能接受就赶紧弃。
 
+
+
+*****
+
+####  roxas.sora  
+##### 202#       发表于 2023-1-7 21:45
+
+..................为啥玩家随便打的东西猎兵们打的那么艰苦.......就算没有arcus导力器，恩尼格码还是有的吧，魔法去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 203#       发表于 2023-1-7 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这动画有种预感以后有个梗就是虚假的金发路人，真正的金发路人，谁才是真正的金发女主角啊
+
