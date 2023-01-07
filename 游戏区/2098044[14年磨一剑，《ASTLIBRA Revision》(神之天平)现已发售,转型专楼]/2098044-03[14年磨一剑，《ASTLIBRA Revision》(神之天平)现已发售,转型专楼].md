@@ -3445,3 +3445,18 @@ lag玩家来些细碎的感想：
 等级倒没什么，你应该查的是成长树是不是开完了，每章是不是5张装备图纸都刷出来了 ...</blockquote>
 确实没刷，我是按照现在RPG收集要素做了减轻难度、直通主线也没问题的思路玩的第一个档。现在开了个困难的新档才发现卧槽之前各种基础功能我都没开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  牙狼GARO  
+##### 3293#       发表于 2023-1-7 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241406&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-7 11:31</a>
+回雪山和矿石镇可以重新拿这些
+
+新章这武器菜逼了不好使，直接兽爪指令拳 ...</blockquote>
+指令拳是什么，搓个升么
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
