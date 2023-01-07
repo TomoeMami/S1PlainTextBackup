@@ -142,3 +142,19 @@ steam版还是没有内置工种管理吗
 
 我以为这种东西是小人运营游戏标配了
 
+
+
+*****
+
+####  luciffer  
+##### 115#       发表于 2023-1-7 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59243465&amp;ptid=2108537" target="_blank">白左 发表于 2023-1-7 15:01</a>
+
+啊这
+
+steam版还是没有内置工种管理吗
+
+我以为这种东西是小人运营游戏标配了 ...</blockquote>
+算是有，但逻辑非常蛋疼，操作也非常麻烦
+

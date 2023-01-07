@@ -510,3 +510,29 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 op拉薇手上的小列兵消失画面不知道是不是个flag
 
+
+
+*****
+
+####  yixiaqqq  
+##### 163#       发表于 2023-1-7 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59241342&amp;ptid=2050199" target="_blank">银翼的维罗西 发表于 2023-1-7 11:25</a>
+
+看了这个动画才明白为撒叫英雄传说了，这普通人和轨迹系列的主配角战力差距也太大了，列兵团碰到个大型魔兽 ...</blockquote>
+两大最强猎兵团其实也就在黎爷面前装个B就得跑路
+
+玩闪3的时候新7的任务就是惊呼你同学都是些什么妖魔鬼怪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 164#       发表于 2023-1-7 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59243724&amp;ptid=2050199" target="_blank">yixiaqqq 发表于 2023-1-7 15:28</a>
+
+两大最强猎兵团其实也就在黎爷面前装个B就得跑路
+
+玩闪3的时候新7的任务就是惊呼你同学都是些什么妖魔鬼怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">忘记闪2打西风都要救兵出场吗。
+
