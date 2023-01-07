@@ -1268,3 +1268,46 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 妹啊你这有点 ...</blockquote>
 闪2用贴图的东西不少吧，但这只狗你不说我还真没看出是贴图，很出名吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeons  
+##### 236#       发表于 2023-1-8 02:17
+
+其实我比较好奇一个事。除了女主还行，另外几位做手游主角团是不是太素了点，做手游为什么要用这样的设计。
+
+*****
+
+####  酷乐  
+##### 237#       发表于 2023-1-8 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59252286&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-1-8 00:58</a>
+
+讲道理黎轨已经把准S级游击士提到爆街级水平了，那魔兽体型跟实力水涨船高也很正常吧
+
+妹啊你这有点 ...</blockquote>那是闪3中帝都夏至祭舞台上的咪西，不过那时的另一只是金色机械咪西。
+
+*****
+
+####  Hchan  
+##### 238#       发表于 2023-1-8 02:37
+
+op里的分校长有点幼啊，没有原作的那种熟女感
+
+*****
+
+####  上坂莲华  
+##### 239#       发表于 2023-1-8 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59252647&amp;ptid=2050199" target="_blank">jiklp87 发表于 2023-1-8 01:26</a>
+
+闪2用贴图的东西不少吧，但这只狗你不说我还真没看出是贴图，很出名吗 ...</blockquote>
+因为闪2系列首次同步中文，所以好多人都买了PSV版带着玩，结果画面跟闪1比毫无进步
+
+然后这条糊的跟贴图一样连棱角都能看出来的狗就在出门的位置，于是就爆发性吐槽【F社技术力的代表】了
+
+不过这个狗也就前期集中吐了一波，后面闪2槽点太多了实在顾不上它，就消失了
+
+当然你法到创轨都没改过动物建模糙的问题，创轨这条狗还是一样一眼糙<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

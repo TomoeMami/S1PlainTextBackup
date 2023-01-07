@@ -777,3 +777,21 @@ Kvi Baba的单曲《TOMBI (TV动画《枪神TRIGUN STAMPEDE》片头曲)》:
 
 橘子社的制作水平真的高，第一集还是蛮炫酷的
 
+
+
+*****
+
+####  runningch  
+##### 67#       发表于 2023-1-8 01:58
+
+制作水准还是很高的，当新作看了。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  jdd468200  
+##### 68#       发表于 2023-1-8 03:38
+
+这制作也太牛逼了，难以想象以这种级别制作tv动画。
+

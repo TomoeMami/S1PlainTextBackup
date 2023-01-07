@@ -3666,3 +3666,22 @@ lag玩家来些细碎的感想：
 第三章大眼睛被劝退了，好难打</blockquote>
 用风虎和雷法杖，可以打到眼珠部位
 
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 3311#       发表于 2023-1-8 04:24
+
+打到第五章了，在地下发现了龙神boss，优化技能配装、反复重开记他的出招，打了三个晚上终于过了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+拿到的传奇武器比我身上带的数值高了将近2倍，一股骄傲感油然而生，打游戏好久没这么快乐过了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202301/08/042319z14h50tnxxehle5b.jpg" referrerpolicy="no-referrer">
+
+<strong>20230107195548_1.jpg</strong> (61.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-8 04:23 上传
+
