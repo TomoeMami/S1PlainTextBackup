@@ -3484,3 +3484,21 @@ lag玩家来些细碎的感想：
 
 —— 来自 HUAWEI DBY-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  otakun  
+##### 3296#       发表于 2023-1-7 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59246350&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-7 18:13</a>
+目前进度，深渊打到最终boss门口了，基本算是全收集了，有什么毕业装推荐吗（不使用刷出来的装备盘里那些变 ...</blockquote>
+不用变异技能就村正加然后带加投射物伤害的各种技能和饰品，不过都是建议变异个魔女出来加魔力
+
+*****
+
+####  chivalry  
+##### 3297#       发表于 2023-1-7 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">用笔记本玩的，2070s怎么怪一多就掉帧，今天打完沼泽之王那卡的飞起，要怎么设置呢
+

@@ -753,3 +753,24 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 法老控ys10这肯定能翻身的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 还有不要说打戏了，黎轨2打戏那么好，结果呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yeaha123  
+##### 184#       发表于 2023-1-7 18:26
+
+面对机枪也是要主动用导力器开罩子挡的
+
+*****
+
+####  saintsun77  
+##### 185#       发表于 2023-1-7 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59239381&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-7 02:04</a>
+
+诺森布里亚原本游戏里写的都快成乌克兰了，结果搞半天是毛子的西伯利亚
+
+顺便帝国入侵诺森布里亚这个 ...</blockquote>
+参考消息网7月1日报道  联合国教科文组织保护非物质文化遗产政府间委员会在1日举行的非例行会议上，将作为乌克兰美食的红菜汤的制作方法列入该组织的非物质文化遗产名录。
+
