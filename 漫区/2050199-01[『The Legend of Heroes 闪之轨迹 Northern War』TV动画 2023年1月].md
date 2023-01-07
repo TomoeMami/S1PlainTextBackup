@@ -1247,3 +1247,24 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 讲道理黎轨已经把准S级游击士提到爆街级水平了，那魔兽体型跟实力水涨船高也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeons  
+##### 234#       发表于 2023-1-8 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人还是希望除了彩蛋，能有点不错的补充内容。
+
+*****
+
+####  jiklp87  
+##### 235#       发表于 2023-1-8 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59252286&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-1-8 00:58</a>
+
+讲道理黎轨已经把准S级游击士提到爆街级水平了，那魔兽体型跟实力水涨船高也很正常吧
+
+妹啊你这有点 ...</blockquote>
+闪2用贴图的东西不少吧，但这只狗你不说我还真没看出是贴图，很出名吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
