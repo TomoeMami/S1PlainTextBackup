@@ -4478,3 +4478,14 @@ https://twitter.com/sothia708/status/1611566404318429186
 它到现在这个局面的核心原因就是所有东西都得围绕着我ip的概念转。不论我做的如何，不论你想法如何，你都得给我融进来，成为我体系的一部分。把握住这一点很多事情就好说通了。这一套顺风好说，但凡遇到点逆风不是微操大师就向着悬崖狂奔了
 那只能愿它早日抵达属于它的耶路撒冷吧
 
+
+
+*****
+
+####  愛さ実  
+##### 10894#       发表于 2023-1-8 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

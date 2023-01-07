@@ -3648,3 +3648,21 @@ lag玩家来些细碎的感想：
 
 第八章了，现在39级是偏低了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉非常魂斗罗
 
+
+
+*****
+
+####  chivalry  
+##### 3309#       发表于 2023-1-8 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第三章大眼睛被劝退了，好难打
+
+*****
+
+####  红魔馆的糖  
+##### 3310#       发表于 2023-1-8 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59252201&amp;ptid=2098044" target="_blank">chivalry 发表于 2023-1-8 00:53</a>
+第三章大眼睛被劝退了，好难打</blockquote>
+用风虎和雷法杖，可以打到眼珠部位
+

@@ -1231,3 +1231,19 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 
 都退坑了还看动画，看了还不够，还要特意来动画专楼骂一句讨厌，挺有意思的，不知道该说是恨比爱长久还是口是心非<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哆哆鸡  
+##### 232#       发表于 2023-1-8 00:53
+
+我也理解不了黎傲天人气为什么这么高，明明是很普通的人设，当然和一大堆后期走过场的新7旧7比，还算个正常人了
+
+*****
+
+####  上坂莲华  
+##### 233#       发表于 2023-1-8 00:58
+
+讲道理黎轨已经把准S级游击士提到爆街级水平了，那魔兽体型跟实力水涨船高也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
