@@ -802,3 +802,12 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 
 副班长克洛炮萝有话要说，这几个都是远程菜刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeons  
+##### 189#       发表于 2023-1-7 19:13
+
+魔兽和幻兽差不多，评级是中位高位这样
+
