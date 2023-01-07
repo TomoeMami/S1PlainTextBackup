@@ -750,3 +750,12 @@ Kvi Baba的单曲《TOMBI (TV动画《枪神TRIGUN STAMPEDE》片头曲)》:
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完了，开场直接出戏到xb2空间站场景
 
+
+
+*****
+
+####  混沌之剑  
+##### 64#       发表于 2023-1-8 01:13
+
+看的很爽，整体非常流畅，这三个季度真不错，莉可丽丝接孤独摇滚然后就是枪神。
+

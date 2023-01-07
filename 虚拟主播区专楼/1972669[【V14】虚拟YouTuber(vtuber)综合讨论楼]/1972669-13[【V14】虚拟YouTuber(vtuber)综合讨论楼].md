@@ -2809,3 +2809,15 @@ A：VSPO运营的话大概有15人左右。
 
 以此为契机，3D化的成员们将可以挑战更多的事，我们也希望粉丝们看了这样的直播，也有动力去挑战新的事物 
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18253#       发表于 2023-1-8 01:17
+
+铲宝玩的这叫鮟鱇鱼的破游戏一周目打完骗打二周目，二周目打完说过几天开三周目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过还挺有意思的，明明是个恐怖游戏却有各种滑稽桥段，虽然重复作业多但随机事件也丰富，用クソ面白い形容再合适不过
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
