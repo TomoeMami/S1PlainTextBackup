@@ -4027,3 +4027,23 @@ non与前辈
 
 为什么这场没有配信<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10848#       发表于 2023-1-7 09:57
+
+参加众筹的花篮顺利送到现场了，接下来重头戏琦玉应该也稳了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 10849#       发表于 2023-1-7 09:58
+
+不知道明天会不会更多。
+
+以及经典开场一小时内不管人气高低全都卖干净的フォンタブ，就是些义乌时尚小物件真的有那么难备货吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
