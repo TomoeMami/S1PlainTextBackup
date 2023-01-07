@@ -822,3 +822,21 @@ op拉薇手上的小列兵消失画面不知道是不是个flag
 副班长克洛炮萝有话要说，这几个都是远程菜刀</blockquote>
 克洛唯一指定用法不是1at白银狼吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Oshino  
+##### 191#       发表于 2023-1-7 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59247123&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-1-7 19:09</a>
+副班长克洛炮萝有话要说，这几个都是远程菜刀</blockquote>
+闪轨到最后我只会两种方法清场了，一个是黎爷的战技，另一个是班长的魔法。其他带谁都行反正也出不了手。还有我觉得克洛双手剑版比枪版好用多了，卡西姆听说是挺厉害的不过我没玩过漏了他了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 192#       发表于 2023-1-7 19:48
+
+女主这性格比想象中可爱不少 有意思
+
