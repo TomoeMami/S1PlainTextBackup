@@ -396,3 +396,12 @@ op真的可以，一开口我幻听成小寺在唱<img src="https://static.sarab
 
 作画也太穷了 俩猎兵整整侃了5分钟 太拖拉观感了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 153#       发表于 2023-1-7 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">两位猎兵大哥肯定是第一话最多台词的
+
