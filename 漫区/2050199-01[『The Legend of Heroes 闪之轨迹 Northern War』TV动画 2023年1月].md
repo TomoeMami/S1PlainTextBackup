@@ -1089,3 +1089,14 @@ xipha后热武器意义更小了，xipha的罩子能挡机枪扫射挡不住高�
 被自己亲爹坑了脾气爆点其实可以理解。
 毕竟到闪4那真的是后宫团都差点没拉住的自杀心态啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 218#       发表于 2023-1-7 22:56
+
+ 本帖最后由 areklose 于 2023-1-7 22:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">闪轨主角团虽然是学生。但估计你们都忘记了学校是军事学校。而且是帝国数一数二的士官学校，帝国着名的将领黄金罗刹黑旋风都来自于这里。而且还是元帅级别当校长。更不用说7班都是各种顶级二代组成的。可谓是有钱有势力有背景，帝国最顶级的年轻一代了。
+
