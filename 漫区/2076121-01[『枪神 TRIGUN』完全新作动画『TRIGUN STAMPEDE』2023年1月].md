@@ -1289,3 +1289,14 @@ Meryl好小只以至于要特殊强调已经23了
 除非这版本打算 ...</blockquote>
 我感觉啊现在削弱这么多啊，是为了后面飒爽登场，整个换枪换义肢升级回，这不得装逼拉满帅气拉满情怀拉满
 
+
+
+*****
+
+####  red2077  
+##### 116#       发表于 2023-1-8 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59262326&amp;ptid=2076121" target="_blank">zzf111 发表于 2023-1-8 20:49</a>
+好多小表情和动作调的真好，宝石之国的cg animation给我的冲击终于有了第二次</blockquote>
+场外指导迪士尼皮克斯是吧
+
