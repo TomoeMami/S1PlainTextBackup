@@ -1404,3 +1404,23 @@ op里的分校长有点幼啊，没有原作的那种熟女感
 
 里爷跟别的主角不一样，比惨比不过爹妈，比伟大也比不过爹妈，在爹妈面前没有任何翻身机会，这辈子都过得很憋屈，有人气挺好的。
 
+
+
+*****
+
+####  101207777  
+##### 249#       发表于 2023-1-9 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265306&amp;ptid=2050199" target="_blank">jacket 发表于 2023-1-9 00:31</a>
+里爷跟别的主角不一样，比惨比不过爹妈，比伟大也比不过爹妈，在爹妈面前没有任何翻身机会，这辈子都过得很 ...</blockquote>
+他妈是谁?
+
+*****
+
+####  医生狼多  
+##### 250#       发表于 2023-1-9 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265622&amp;ptid=2050199" target="_blank">101207777 发表于 2023-1-9 01:04</a>
+他妈是谁?</blockquote>
+七……七姐？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
