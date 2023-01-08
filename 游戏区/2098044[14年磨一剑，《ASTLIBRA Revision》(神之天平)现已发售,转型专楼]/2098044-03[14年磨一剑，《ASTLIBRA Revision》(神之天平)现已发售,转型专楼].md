@@ -3685,3 +3685,15 @@ lag玩家来些细碎的感想：
 
 2023-1-8 04:23 上传
 
+
+
+*****
+
+####  tsubaki  
+##### 3312#       发表于 2023-1-8 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59251181&amp;ptid=2098044" target="_blank">囧Smith 发表于 2023-1-7 23:40</a>
+
+第八章了，现在39级是偏低了吗感觉非常魂斗罗</blockquote>
+级刷到50以上再说
+
