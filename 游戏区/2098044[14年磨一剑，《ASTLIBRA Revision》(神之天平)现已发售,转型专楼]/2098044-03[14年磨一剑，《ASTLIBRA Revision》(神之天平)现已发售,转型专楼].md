@@ -3914,3 +3914,16 @@ lag玩家来些细碎的感想：
 这游戏不少伏笔都是在新章回收的啊，比如大贤者整个人的行为动机，还有小乐园和古代技术的存在意义。是重制 ...</blockquote>
 重制版作者新加的，免费版原来只到终章打完女神的剧情。
 
+
+
+*****
+
+####  siriii  
+##### 3332#       发表于 2023-1-9 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265681&amp;ptid=2098044" target="_blank">tansapple 发表于 2023-1-9 01:14</a>
+重制版作者新加的，免费版原来只到终章打完女神的剧情。</blockquote>
+我知道原版只到终章，所以有些伏笔新章才回收很奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
