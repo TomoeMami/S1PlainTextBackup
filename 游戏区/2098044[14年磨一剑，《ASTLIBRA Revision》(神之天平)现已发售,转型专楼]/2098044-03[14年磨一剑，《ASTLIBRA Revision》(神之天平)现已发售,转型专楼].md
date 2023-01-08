@@ -3732,3 +3732,12 @@ lag玩家来些细碎的感想：
 
 就是道具消耗要读档麻烦点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  u2deack  
+##### 3316#       发表于 2023-1-8 18:00
+
+终章这个boss 8连战是认真的吗，按到我手都要断眼睛要被闪瞎了，最后这个龙17w血打了半天磨了三分之一血还不小心挂了，真的干不动了
+
