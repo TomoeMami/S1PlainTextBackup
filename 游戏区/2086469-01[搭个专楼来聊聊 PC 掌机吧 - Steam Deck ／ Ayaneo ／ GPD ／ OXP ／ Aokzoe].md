@@ -50,3 +50,14 @@ oxp2在8号开发布会，开完付尾款</blockquote>
 
 确实，估计到火纹出之前ns我都不会开了。明年ns也没什么特别想玩的游戏，还好买了deck
 
+
+
+*****
+
+####  bypass  
+##### 600#         楼主| 发表于 2023-1-8 13:50
+
+[https://www.bilibili.com/video/BV1dR4y1m77B](https://www.bilibili.com/video/BV1dR4y1m77B)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 2023 年了，我还能看到奥克的翻车视频。
+

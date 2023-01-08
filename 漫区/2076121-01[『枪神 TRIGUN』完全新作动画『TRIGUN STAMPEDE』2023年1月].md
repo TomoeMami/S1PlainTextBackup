@@ -994,3 +994,28 @@ Meryl好小只以至于要特殊强调已经23了
 
 —— 来自 OnePlus IN2020, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bgmilk  
+##### 88#       发表于 2023-1-8 13:48
+
+   有英配版么？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  faxi  
+##### 89#       发表于 2023-1-8 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">当成全新的平行世界来看的话感觉还挺不错的
+
+就是松岗的法修第一次听好像还不够味道，得看看后面的
+
+*****
+
+####  moshizhe  
+##### 90#       发表于 2023-1-8 13:49
+
+制作进行是国人吗？
+
