@@ -1218,3 +1218,19 @@ Meryl好小只以至于要特殊强调已经23了
 
 那个技术导弹坠落太拖沓来，其他都很好，有迪士尼梦工厂那味
 
+
+
+*****
+
+####  Sacross  
+##### 110#       发表于 2023-1-8 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59258965&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-1-8 16:27</a>
+
+不好说，千束其实肯的话前期配合da也是有机会解决真岛的，就是非得不当人就看着搞得最后没法收场。
+
+这番 ...</blockquote>
+差多了，法修属犀利哥一级且指哪儿打哪儿的，千束怎么比，被小喽啰欺负那纯粹是性格问题
+
+除非这版本打算大削一刀法修然后按着tv动画后半走，那另算
+
