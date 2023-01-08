@@ -946,3 +946,36 @@ Meryl好小只以至于要特殊强调已经23了
 没看过前作有影响吗？</blockquote>
 完全新作，目前来看反而看过旧版的可能会受点先入为主的影响<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hqtkkb  
+##### 84#       发表于 2023-1-8 12:32
+
+这个3d看的是真的舒服。
+
+就是设定剧情这块。。。主角一副不杀原则的老好人模样，反派是明显一个脑子有坑的神经病还是绝对的反派c位，正邪对立，同根同源，手足相残，还它娘的都是打枪，什么石蒜精神续作——这一股子要崩的节奏啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  red2077  
+##### 85#       发表于 2023-1-8 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255808&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-1-8 12:32</a>
+这个3d看的是真的舒服。
+
+就是设定剧情这块。。。主角一副不杀原则的老好人模样，反派是明显一个脑子有坑的 ...</blockquote>
+笑死，不是千束躲子弹，是真岛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  red2077  
+##### 86#       发表于 2023-1-8 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255808&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-1-8 12:32</a>
+这个3d看的是真的舒服。
+
+就是设定剧情这块。。。主角一副不杀原则的老好人模样，反派是明显一个脑子有坑的 ...</blockquote>
+笑死，不是千束躲子弹，是真岛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
