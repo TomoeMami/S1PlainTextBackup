@@ -3854,3 +3854,15 @@ lag玩家来些细碎的感想：
 
 风怒编辑
 
+
+
+*****
+
+####  zzy516232108  
+##### 3327#       发表于 2023-1-9 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265170&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-9 00:18</a>
+
+刷钱买药换装备啊，说实话有点梦回老伊苏了</blockquote>
+主角打boss吃个药要一辈子，早被boss橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

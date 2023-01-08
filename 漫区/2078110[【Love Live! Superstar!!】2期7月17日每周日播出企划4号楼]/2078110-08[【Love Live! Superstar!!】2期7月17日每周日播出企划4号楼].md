@@ -4707,3 +4707,16 @@ kuma4.13
 
 拉板那个鲤鱼只在个人发力的串把我看乐了。2次元没给可可啥好剧情，3次元也没给鲤鱼C和soloED，思考回路惊人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 10917#       发表于 2023-1-9 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265206&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-9 00:20</a>
+拉板那个鲤鱼只在个人发力的串把我看乐了。2次元没给可可啥好剧情，3次元也没给鲤鱼C和soloED，思考回路惊 ...</blockquote>
+想发力也得有着力点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在明摆着没一期啥大事，梁在二期肩上扛着
+还是敬谢不敏，快快请二期三期发力
+
