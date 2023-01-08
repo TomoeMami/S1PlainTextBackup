@@ -4498,3 +4498,12 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 斋藤爹跑去Q娃片场当人设，水魔片场行程一团糟要拉其他组过去帮忙，星3今年应该蹦不出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10896#       发表于 2023-1-8 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">室田上上周说星3的角色原案做完了，斋藤空不出来角色设计定版就要延后了，而且按海选日程看今年也没那可能，除非动画整组换人。世界统一操作：出事儿只会全换和瞎换。
+
