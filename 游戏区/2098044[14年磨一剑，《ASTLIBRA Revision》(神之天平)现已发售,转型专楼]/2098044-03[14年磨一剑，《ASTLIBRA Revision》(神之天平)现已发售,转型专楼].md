@@ -3780,3 +3780,15 @@ lag玩家来些细碎的感想：
 盖亚三层这么开始挨打削精了？还是误装备了什么技能？</blockquote>
 盲猜一个自动格挡
 
+
+
+*****
+
+####  gwchobit  
+##### 3321#       发表于 2023-1-8 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59260288&amp;ptid=2098044" target="_blank">u2deack 发表于 2023-1-8 18:00</a>
+
+终章这个boss 8连战是认真的吗，按到我手都要断眼睛要被闪瞎了，最后这个龙17w血打了半天磨了三分之一血还 ...</blockquote>
+觉得闪就把“抹除”点出来，配合少精技能。装备和bd成型终章连战也还好。
+

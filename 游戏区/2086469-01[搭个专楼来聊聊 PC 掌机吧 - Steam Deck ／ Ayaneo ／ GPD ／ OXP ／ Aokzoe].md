@@ -71,3 +71,12 @@ oxp2在8号开发布会，开完付尾款</blockquote>
 oxp2起步5799，比我想的要贵不少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 明天就开始发货了
 
+
+
+*****
+
+####  martysama  
+##### 602#       发表于 2023-1-8 23:18
+
+话说sd那块屏幕的素质到底咋样啊？这两天有点想入就做了点功课，发现网上说他那块屏数据上来看不如初版的NS？那么实际使用体验到底如何呢？有没有入了的老哥来说说？[f:238]
+
