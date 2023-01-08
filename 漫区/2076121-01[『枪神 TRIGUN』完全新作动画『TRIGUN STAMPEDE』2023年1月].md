@@ -914,3 +914,35 @@ Meryl好小只以至于要特殊强调已经23了
 
 没看过前作有影响吗？
 
+
+
+*****
+
+####  新人马甲2  
+##### 81#       发表于 2023-1-8 12:10
+
+分镜和时长配比感觉挺微妙的
+
+*****
+
+####  ストック  
+##### 82#       发表于 2023-1-8 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255070&amp;ptid=2076121" target="_blank">terminator1990 发表于 2023-1-8 11:20</a>
+法修的大左轮原来口径那么小？.22lr弹…
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+原作、老动画和剧场版都是6发.45柯尔特长弹，新动画口径拦腰砍成的.22，装弹从6发变8发
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Firework_bd  
+##### 83#       发表于 2023-1-8 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255592&amp;ptid=2076121" target="_blank">千叶铁矢 发表于 2023-1-8 12:06</a>
+
+没看过前作有影响吗？</blockquote>
+完全新作，目前来看反而看过旧版的可能会受点先入为主的影响<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
