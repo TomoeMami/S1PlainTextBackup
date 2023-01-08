@@ -80,3 +80,21 @@ oxp2起步5799，比我想的要贵不少<img src="https://static.saraba1st.com/
 
 话说sd那块屏幕的素质到底咋样啊？这两天有点想入就做了点功课，发现网上说他那块屏数据上来看不如初版的NS？那么实际使用体验到底如何呢？有没有入了的老哥来说说？[f:238]
 
+
+
+*****
+
+####  ft5555  
+##### 603#       发表于 2023-1-8 23:24
+
+ 本帖最后由 ft5555 于 2023-1-8 23:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256640&amp;ptid=2086469" target="_blank">bypass 发表于 2023-1-8 13:50</a>
+[https://www.bilibili.com/video/BV1dR4y1m77B](https://www.bilibili.com/video/BV1dR4y1m77B)
+
+ 2023 年了，我还能看到奥克的翻车视频。 ...</blockquote>
+因为海外那群用户被抛弃的状态啊。
+
+奥克跟一号本最大的问题是人。淘宝客服一人一个说法，官方网站除了个玩家中心有更新，其余更新只能官方qq群里要，官方群动不动全体禁言，遇到问题你想问点啥都不行。私聊管理员能否得到回复全看那边心情。而且aok这回事件，如果不是舆论压力过大，怎么可能去解决，官方之前各种推脱忽悠行为，那嘴脸太难看了。
+
+只能说用户提纯力度还没aya那么强了。
+

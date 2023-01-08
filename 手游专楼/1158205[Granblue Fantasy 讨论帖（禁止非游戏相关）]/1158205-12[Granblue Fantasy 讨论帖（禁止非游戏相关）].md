@@ -305,3 +305,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cy是把服务器裁减了吧，烤土豆了
 
+
+
+*****
+
+####  note_2  
+##### 17251#       发表于 2023-1-8 20:14
+
+连续两年火古战场炸服了
+
+*****
+
+####  leeskies  
+##### 17252#       发表于 2023-1-8 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">唯一的好消息 今天把日常做完了服务器才爆炸
+
+*****
+
+####  はちたや  
+##### 17253#       发表于 2023-1-8 23:22
+
+9年的游戏了，没见过这么搞笑的
+

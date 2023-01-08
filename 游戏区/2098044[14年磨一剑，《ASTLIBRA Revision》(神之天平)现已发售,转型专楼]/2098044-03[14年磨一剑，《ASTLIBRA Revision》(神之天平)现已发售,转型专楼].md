@@ -3792,3 +3792,14 @@ lag玩家来些细碎的感想：
 终章这个boss 8连战是认真的吗，按到我手都要断眼睛要被闪瞎了，最后这个龙17w血打了半天磨了三分之一血还 ...</blockquote>
 觉得闪就把“抹除”点出来，配合少精技能。装备和bd成型终章连战也还好。
 
+
+
+*****
+
+####  chivalry  
+##### 3322#       发表于 2023-1-8 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59252271&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-8 00:57</a>
+用风虎和雷法杖，可以打到眼珠部位</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢，法爷真是强无敌，我把虎和朱雀点出来之后确实打过了
+

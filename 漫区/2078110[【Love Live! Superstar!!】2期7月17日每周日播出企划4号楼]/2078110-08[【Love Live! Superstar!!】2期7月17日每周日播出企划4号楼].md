@@ -4673,3 +4673,12 @@ kuma4.13
 其他人之前都没机会碰上
 不过这回nako离西武挺近，就隔3天
 
+
+
+*****
+
+####  ViyViy  
+##### 10913#       发表于 2023-1-8 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁叫日本是新历跨年放假，放假后第一个周末不跟live运营岂不是傻屌。只要巡演是秋冬开始且恰逢周末/周一，鱼就必能在live庆生[f:245]
+
