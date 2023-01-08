@@ -4523,3 +4523,14 @@ https://twitter.com/sothia708/status/1611566404318429186
 
 sayu提到了明天是鱼的生日；鱼再一次现场吹蜡烛
 
+
+
+*****
+
+####  player3960  
+##### 10899#       发表于 2023-1-8 18:55
+
+又吹蜡烛，好耶，看不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
