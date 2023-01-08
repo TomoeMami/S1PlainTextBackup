@@ -1048,3 +1048,23 @@ Meryl好小只以至于要特殊强调已经23了
 制作进行是国人吗？</blockquote>
 这把全程单走 没什么信息<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wolfwood  
+##### 94#       发表于 2023-1-8 14:13
+
+老版本的剧情忘光了，看起来是彻底重制？不过总觉得3D角色嘴型和配音对不上
+
+*****
+
+####  red2077  
+##### 95#       发表于 2023-1-8 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256631&amp;ptid=2076121" target="_blank">faxi 发表于 2023-1-8 13:49</a>
+当成全新的平行世界来看的话感觉还挺不错的
+
+就是松岗的法修第一次听好像还不够味道，得看看后面的 ...</blockquote>
+声优由于没看过前作，我觉得松冈还行，很明显是要走前期搞笑逗B，跟兄弟TTK就会转深沉这种反差感，松冈能深沉起来吗？是个问题
+
