@@ -3721,3 +3721,14 @@ lag玩家来些细碎的感想：
 打到第五章了，在地下发现了龙神boss，优化技能配装、反复重开记他的出招，打了三个晚上终于过了！！！[f:1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我都是第八章最后游戏提示来打才开始回头清理这些boss，基本上每个boss也就撑3个凭依技。碰到就打难度太大
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3315#       发表于 2023-1-8 13:28
+
+说到龙神，很多人都忽略了金刚这个道具。刚到龙神那里的时候一个金刚可以丢1万五左右的血，龙神总共就18万，而且读条过程中可以正常打，很快就能按死，会防它的石化就行了
+
+就是道具消耗要读档麻烦点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
