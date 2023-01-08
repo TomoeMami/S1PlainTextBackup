@@ -3709,3 +3709,15 @@ lag玩家来些细碎的感想：
 第八章了，现在39级是偏低了吗感觉非常魂斗罗</blockquote>
 这也太低了，建议先回头刷各章武器精通准备换弑神剑，再去挑战6个隐藏boss
 
+
+
+*****
+
+####  找蟹男  
+##### 3314#       发表于 2023-1-8 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59253276&amp;ptid=2098044" target="_blank">拖鞋脚后跟 发表于 2023-1-8 04:24</a>
+
+打到第五章了，在地下发现了龙神boss，优化技能配装、反复重开记他的出招，打了三个晚上终于过了！！！[f:1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我都是第八章最后游戏提示来打才开始回头清理这些boss，基本上每个boss也就撑3个凭依技。碰到就打难度太大
+

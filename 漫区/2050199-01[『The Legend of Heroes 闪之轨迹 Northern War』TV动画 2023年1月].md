@@ -1345,3 +1345,35 @@ op里的分校长有点幼啊，没有原作的那种熟女感
 
 主角团就是凑数的 卖卡还得是轨迹老人
 
+
+
+*****
+
+####  Aeons  
+##### 243#       发表于 2023-1-8 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59254842&amp;ptid=2050199" target="_blank">无动于衷 发表于 2023-1-8 10:59</a>
+因为卖SSR的肯定不是他们 
+
+主角团就是凑数的 卖卡还得是轨迹老人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是封面宣传是这四人，晓轨那些我看着也比这几个设计好啊
+
+*****
+
+####  Aeons  
+##### 244#       发表于 2023-1-8 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来能明白吗，又没介绍世界观也没介绍国家政治
+
+*****
+
+####  无动于衷  
+##### 245#       发表于 2023-1-8 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256281&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-8 13:13</a>
+
+可是封面宣传是这四人，晓轨那些我看着也比这几个设计好啊</blockquote>
+晓轨至少带出来一个正史不打算讲（社长ver）的雷米非亚
+
+这四个人能带出点什么我现在真想不出来
+

@@ -18,3 +18,13 @@
 
 这究极进化是什么乙游攻略对象兽
 
+
+
+*****
+
+####  大耳兽  
+##### 420#       发表于 2023-1-8 13:12
+
+兔哥究极体比天狼星兽帅多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+天狼星兽颜值上还不如自己的完全体卡诺维斯兽
+
