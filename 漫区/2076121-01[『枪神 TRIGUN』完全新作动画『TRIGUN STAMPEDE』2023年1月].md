@@ -1019,3 +1019,32 @@ Meryl好小只以至于要特殊强调已经23了
 
 制作进行是国人吗？
 
+
+
+*****
+
+####  纯夏  
+##### 91#       发表于 2023-1-8 14:06
+
+卧槽 这部好好看  估计能成本季黑马 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cementerio  
+##### 92#       发表于 2023-1-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256621&amp;ptid=2076121" target="_blank">bgmilk 发表于 2023-1-8 13:48</a>
+
+有英配版么？</blockquote>
+还没出，但英配也不是原卡
+
+*****
+
+####  Mc凉月奏酱  
+##### 93#       发表于 2023-1-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256632&amp;ptid=2076121" target="_blank">moshizhe 发表于 2023-1-8 13:49</a>
+
+制作进行是国人吗？</blockquote>
+这把全程单走 没什么信息<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
