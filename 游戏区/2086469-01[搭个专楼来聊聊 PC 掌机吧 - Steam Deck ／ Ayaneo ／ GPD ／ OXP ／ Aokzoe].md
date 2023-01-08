@@ -61,3 +61,13 @@ oxp2在8号开发布会，开完付尾款</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 2023 年了，我还能看到奥克的翻车视频。
 
+
+
+*****
+
+####  医生狼多  
+##### 601#       发表于 2023-1-8 21:39
+
+oxp2起步5799，比我想的要贵不少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+明天就开始发货了
+

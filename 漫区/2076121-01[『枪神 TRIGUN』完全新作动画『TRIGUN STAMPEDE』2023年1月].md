@@ -1265,3 +1265,14 @@ Meryl好小只以至于要特殊强调已经23了
 
 3D渲染技术厉害。
 
+
+
+*****
+
+####  Uruviel  
+##### 114#       发表于 2023-1-8 21:18
+
+其实不能算原创新作，就是把TRIGUN MAXIMUM漫画拿来魔改……但是估计很多人都没看过这部漫画<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+目前看第一集已经把PLANT这个关键设定做了改动<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">虽然当初也是因为漫画没连载完的缘故吧……。看看新作后续剧情怎么改吧，目前看起来人物略显刻板单薄了点，演出也有点傻，但是人设动起来观感比之前好点。
+
