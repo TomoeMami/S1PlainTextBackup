@@ -1196,3 +1196,16 @@ Meryl好小只以至于要特殊强调已经23了
 
 为啥不直接抢宪兵的枪
 
+
+
+*****
+
+####  tewaku  
+##### 108#       发表于 2023-1-8 17:55
+
+我明明看过旧tv版但一点都不记得剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就记得个不知是不是剧场版的有人用十字架加特林武器
+
+这下当完全新作了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+话说ed图好帅有高清版吗想拿来当壁纸
+
