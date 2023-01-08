@@ -3866,3 +3866,28 @@ lag玩家来些细碎的感想：
 刷钱买药换装备啊，说实话有点梦回老伊苏了</blockquote>
 主角打boss吃个药要一辈子，早被boss橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 3328#       发表于 2023-1-9 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265031&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 00:03</a>
+
+是我不会玩吗这游戏
+
+一周目普通难度
+
+第一章下洞就被蝙蝠蜘蛛骷髅焦作人</blockquote>
+前期比较白板多加血吧，洞窟的怪攻击前摇都很明显，后跳格挡都可以，boss也是可以洗点加输出属性。多利用后跳，也可以用技能释放无敌效果躲。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3329#       发表于 2023-1-9 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265310&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 00:31</a>
+主角打boss吃个药要一辈子，早被boss橄榄了</blockquote>
+吃药又不用劲霸男装，边躲边吃呗，做不到就练级换装备提容错。
+
