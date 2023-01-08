@@ -3822,3 +3822,35 @@ lag玩家来些细碎的感想：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">看坛友玩的很快乐，是我打开方式不对吗？
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3324#       发表于 2023-1-9 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265031&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 00:03</a>
+
+是我不会玩吗这游戏
+
+一周目普通难度
+
+第一章下洞就被蝙蝠蜘蛛骷髅焦作人</blockquote>
+刷钱买药换装备啊，说实话有点梦回老伊苏了
+
+*****
+
+####  siriii  
+##### 3325#       发表于 2023-1-9 00:20
+
+这游戏不少伏笔都是在新章回收的啊，比如大贤者整个人的行为动机，还有小乐园和古代技术的存在意义。是重制修改了原版剧情还是原版本来留的坑<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  siriii  
+##### 3326#       发表于 2023-1-9 00:20
+
+风怒编辑
+
