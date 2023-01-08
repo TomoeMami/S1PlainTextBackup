@@ -2821,3 +2821,12 @@ A：VSPO运营的话大概有15人左右。
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 18254#       发表于 2023-1-8 21:14
+
+爱师傅好强运啊，第一次麻将比赛就决赛，可惜还是差一点……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
