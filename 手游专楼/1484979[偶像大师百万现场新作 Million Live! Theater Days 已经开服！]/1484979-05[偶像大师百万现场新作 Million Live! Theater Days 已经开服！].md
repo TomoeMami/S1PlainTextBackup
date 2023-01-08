@@ -42,3 +42,14 @@
 
 —— 来自 vivo V2118A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  游蜓  
+##### 7059#       发表于 2023-1-9 06:44
+
+好，环和紬紬都拿到了，玩这么久第一次新年卡嫖全
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
