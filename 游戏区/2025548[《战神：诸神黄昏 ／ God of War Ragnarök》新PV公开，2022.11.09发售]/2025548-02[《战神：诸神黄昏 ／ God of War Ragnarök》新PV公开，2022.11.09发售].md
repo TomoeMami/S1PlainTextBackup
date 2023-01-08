@@ -76,3 +76,15 @@ video/av818149979/</blockquote>
 video/av818149979/</blockquote>
 这里是游戏BUG，有矛但是没法互动的话，再插一根矛就能上去了
 
+
+
+*****
+
+####  415452356  
+##### 1970#       发表于 2023-1-9 04:38
+
+  https://youtu.be/5rkLhFU4X4s
+  这输出看尿了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
