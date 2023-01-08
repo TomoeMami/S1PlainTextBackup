@@ -16,3 +16,12 @@
 
 能进强者杯已经很意外了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寺川愛美  
+##### 14473#       发表于 2023-1-8 12:00
+
+强者杯啊，已经是最佳成绩了吧
+
