@@ -3803,3 +3803,22 @@ lag玩家来些细碎的感想：
 用风虎和雷法杖，可以打到眼珠部位</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢，法爷真是强无敌，我把虎和朱雀点出来之后确实打过了
 
+
+
+*****
+
+####  zzy516232108  
+##### 3323#       发表于 2023-1-9 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">是我不会玩吗这游戏
+
+一周目普通难度
+
+第一章下洞就被蝙蝠蜘蛛骷髅焦作人
+
+守护兽Boss我都打不过
+
+200血碰不了几下，打他伤害低，只能稳定用地刺技能磨
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">看坛友玩的很快乐，是我打开方式不对吗？
+
