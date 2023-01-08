@@ -3902,3 +3902,15 @@ lag玩家来些细碎的感想：
 吃药又不用劲霸男装，边躲边吃呗，做不到就练级换装备提容错。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我靠，我看他下面在读条以为和老版本猛汉一样要站定才能吃药。
 
+
+
+*****
+
+####  tansapple  
+##### 3331#       发表于 2023-1-9 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265200&amp;ptid=2098044" target="_blank">siriii 发表于 2023-1-9 00:20</a>
+
+这游戏不少伏笔都是在新章回收的啊，比如大贤者整个人的行为动机，还有小乐园和古代技术的存在意义。是重制 ...</blockquote>
+重制版作者新加的，免费版原来只到终章打完女神的剧情。
+
