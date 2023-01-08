@@ -13190,3 +13190,15 @@ P.S. 小火驴是真有 ...</blockquote>
 
 娜娜算是清楚系主播么？挺生涩的，可以和卡姐组cp？
 
+
+
+*****
+
+####  MinFOrder  
+##### 2868#       发表于 2023-1-8 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59261232&amp;ptid=1926094" target="_blank">龙娘777 发表于 2023-1-8 19:36</a>
+
+我一直想问厂长多大了 不会二十多小姑娘当厂长吧 38？</blockquote>
+至少三十五吧，以前搞正统娱乐业的，人脉之广不像是年轻人能达到的。况且乐元素估计也不会把一个分公司交给二十多的年轻人抓
+
