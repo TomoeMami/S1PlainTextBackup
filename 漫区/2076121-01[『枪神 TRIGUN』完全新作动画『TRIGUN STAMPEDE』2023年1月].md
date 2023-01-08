@@ -1133,3 +1133,36 @@ Meryl好小只以至于要特殊强调已经23了
 
      总之不是很看好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有钱多买小人  
+##### 102#       发表于 2023-1-8 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255644&amp;ptid=2076121" target="_blank">ストック 发表于 2023-1-8 12:12</a>
+
+原作、老动画和剧场版都是6发.45柯尔特长弹，新动画口径拦腰砍成的.22，装弹从6发变8发
+
+—— 来自 S1Fun ...</blockquote>
+义肢改镂空了，看来掌心炮也没了。瓦修火力大减。
+
+*****
+
+####  hqtkkb  
+##### 103#       发表于 2023-1-8 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59256213&amp;ptid=2076121" target="_blank">Sacross 发表于 2023-1-8 13:08</a>
+
+千哥哥那会儿不就有人说了，唯一区别就是千哥哥想圣母但是实力不够，法修想圣母大多数时候是真的可以圣母 ...</blockquote>
+不好说，千束其实肯的话前期配合da也是有机会解决真岛的，就是非得不当人就看着搞得最后没法收场。
+
+这番男主也很像啊，明明有那个实力却嗯是不动手被小喽啰欺负
+
+*****
+
+####  1010248485  
+##### 104#       发表于 2023-1-8 16:36
+
+之前只看过剧场版,新作看起来也很棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
