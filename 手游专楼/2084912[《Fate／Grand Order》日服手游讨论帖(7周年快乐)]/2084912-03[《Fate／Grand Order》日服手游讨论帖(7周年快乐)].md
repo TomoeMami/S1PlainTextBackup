@@ -14230,3 +14230,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 个人感觉1宝水伊吹没啥用</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以进公主双杀狐队伍
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 4286#       发表于 2023-1-8 21:25
+
+趁着狗粮体力减半和大成功加倍终于把公主120了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
