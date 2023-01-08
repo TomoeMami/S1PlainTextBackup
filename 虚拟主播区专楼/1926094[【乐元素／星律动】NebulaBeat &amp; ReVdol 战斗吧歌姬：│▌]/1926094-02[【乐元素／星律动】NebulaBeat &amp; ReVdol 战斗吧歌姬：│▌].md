@@ -13158,3 +13158,17 @@ P.S. 小火驴是真有 ...</blockquote>
 
 我一直想问厂长多大了 不会二十多小姑娘当厂长吧 38？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2865#       发表于 2023-1-8 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59261232&amp;ptid=1926094" target="_blank">龙娘777 发表于 2023-1-8 19:36</a>
+
+我一直想问厂长多大了 不会二十多小姑娘当厂长吧 38？</blockquote>
+之前厂长说自己像高圆圆，然后有评论说高圆圆40多了
+
+所以...
+
