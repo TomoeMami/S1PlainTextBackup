@@ -13213,3 +13213,16 @@ P.S. 小火驴是真有 ...</blockquote>
 
 我笑死，快把几个老板得罪一边了
 
+
+
+*****
+
+####  MinFOrder  
+##### 2870#       发表于 2023-1-8 22:15
+
+ 本帖最后由 MinFOrder 于 2023-1-8 22:19 编辑 
+
+好家伙，一进阿和的首播直播间就听她说“我以前真人直播过的”，再往后听意思应该是加过那种直播公司，这啥时候的事啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+好家伙，又听了一会儿，上一份工作是游戏公司，结果下不来版号而且皇亲国戚空降，被降本增效了所以来做皮套人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
