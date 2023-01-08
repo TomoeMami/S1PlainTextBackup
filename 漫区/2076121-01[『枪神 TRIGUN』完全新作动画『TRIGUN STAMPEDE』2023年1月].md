@@ -1276,3 +1276,16 @@ Meryl好小只以至于要特殊强调已经23了
 
 目前看第一集已经把PLANT这个关键设定做了改动<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">虽然当初也是因为漫画没连载完的缘故吧……。看看新作后续剧情怎么改吧，目前看起来人物略显刻板单薄了点，演出也有点傻，但是人设动起来观感比之前好点。
 
+
+
+*****
+
+####  red2077  
+##### 115#       发表于 2023-1-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59261126&amp;ptid=2076121" target="_blank">Sacross 发表于 2023-1-8 19:26</a>
+差多了，法修属犀利哥一级且指哪儿打哪儿的，千束怎么比，被小喽啰欺负那纯粹是性格问题
+
+除非这版本打算 ...</blockquote>
+我感觉啊现在削弱这么多啊，是为了后面飒爽登场，整个换枪换义肢升级回，这不得装逼拉满帅气拉满情怀拉满
+
