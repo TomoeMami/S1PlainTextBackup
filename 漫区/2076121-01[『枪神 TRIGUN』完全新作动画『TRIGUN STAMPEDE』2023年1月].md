@@ -1234,3 +1234,25 @@ Meryl好小只以至于要特殊强调已经23了
 
 除非这版本打算大削一刀法修然后按着tv动画后半走，那另算
 
+
+
+*****
+
+####  白玫瑰之夜  
+##### 111#       发表于 2023-1-8 20:46
+
+技术是挺不错的，子母弹下落也太墨迹了吧<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zzf111  
+##### 112#       发表于 2023-1-8 20:49
+
+好多小表情和动作调的真好，宝石之国的cg animation给我的冲击终于有了第二次
+<img src="https://p.sda1.dev/9/e50ae553dcf6bb99d41063d4dedfa17f/ezgif-3-82b8c04ad7.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/143e254c79d9e8a2de819c19c243d8b5/ezgif-3-92e3055368.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/405fd7e1ebffbc5280f1467945c3c0f3/ezgif-3-72f0c36105.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/619f91857fb196765c9cc023a3f19f0a/ezgif-3-eca561ae6a.gif" referrerpolicy="no-referrer">
+
