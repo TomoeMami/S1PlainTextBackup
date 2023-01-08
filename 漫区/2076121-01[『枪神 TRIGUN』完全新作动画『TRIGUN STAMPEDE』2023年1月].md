@@ -861,3 +861,14 @@ Meryl好小只以至于要特殊强调已经23了
 <img src="https://p.sda1.dev/9/02c06b11b1068424192b3d8ea556b602/20230108_104329.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/a16f9d80dc50248c3bc1cdb115d33154/20230108_104336.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  terminator1990  
+##### 75#       发表于 2023-1-8 11:20
+
+法修的大左轮原来口径那么小？.22lr弹…
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
