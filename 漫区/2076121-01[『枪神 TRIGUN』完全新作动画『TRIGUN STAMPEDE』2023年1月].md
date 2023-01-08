@@ -979,3 +979,18 @@ Meryl好小只以至于要特殊强调已经23了
 就是设定剧情这块。。。主角一副不杀原则的老好人模样，反派是明显一个脑子有坑的 ...</blockquote>
 笑死，不是千束躲子弹，是真岛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sacross  
+##### 87#       发表于 2023-1-8 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59255808&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-1-8 12:32</a>
+这个3d看的是真的舒服。
+
+就是设定剧情这块。。。主角一副不杀原则的老好人模样，反派是明显一个脑子有坑的 ...</blockquote>
+千哥哥那会儿不就有人说了，唯一区别就是千哥哥想圣母但是实力不够，法修想圣母大多数时候是真的可以圣母<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
