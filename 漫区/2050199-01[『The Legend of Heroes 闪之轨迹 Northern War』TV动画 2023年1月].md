@@ -1311,3 +1311,23 @@ op里的分校长有点幼啊，没有原作的那种熟女感
 
 当然你法到创轨都没改过动物建模糙的问题，创轨这条狗还是一样一眼糙<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ssobsb  
+##### 240#       发表于 2023-1-8 10:45
+
+还行吧，我还在想rpg里魔兽这种纯凑时长的玩意做动画怎么处理，居然一本正经在打啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  三月的老虎  
+##### 241#       发表于 2023-1-8 10:50
+
+这个第一集做得很穷，但不难看，一些对话和小细节让我这个没玩过原作的人也能大致明白这帮人之间大致是什么势力关系
+
+穷，但能让人想看下去的水平，但就这一点就比那些手游改编动画要强上个几十倍了好吧
+
