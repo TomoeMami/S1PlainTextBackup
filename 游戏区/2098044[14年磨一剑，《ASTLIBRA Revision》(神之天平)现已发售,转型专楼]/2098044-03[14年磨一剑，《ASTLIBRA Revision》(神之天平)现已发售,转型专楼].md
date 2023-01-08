@@ -3769,3 +3769,14 @@ lag玩家来些细碎的感想：
 
 盖亚三层这么开始挨打削精了？还是误装备了什么技能？
 
+
+
+*****
+
+####  otakun  
+##### 3320#       发表于 2023-1-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59262068&amp;ptid=2098044" target="_blank">九十九忍 发表于 2023-1-8 20:33</a>
+盖亚三层这么开始挨打削精了？还是误装备了什么技能？</blockquote>
+盲猜一个自动格挡
+
