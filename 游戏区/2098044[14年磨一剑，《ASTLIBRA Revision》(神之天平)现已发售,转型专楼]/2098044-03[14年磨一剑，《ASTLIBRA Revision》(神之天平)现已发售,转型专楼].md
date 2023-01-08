@@ -3741,3 +3741,15 @@ lag玩家来些细碎的感想：
 
 终章这个boss 8连战是认真的吗，按到我手都要断眼睛要被闪瞎了，最后这个龙17w血打了半天磨了三分之一血还不小心挂了，真的干不动了
 
+
+
+*****
+
+####  jy000129  
+##### 3317#       发表于 2023-1-8 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59260288&amp;ptid=2098044" target="_blank">u2deack 发表于 2023-1-8 18:00</a>
+
+终章这个boss 8连战是认真的吗，按到我手都要断眼睛要被闪瞎了，最后这个龙17w血打了半天磨了三分之一血还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以回去刷下装备道具水晶，顺便把盘子尽量多点一点，天平搭配下之类的，作为旧版最终BOSS初见还是有点难度的
+
