@@ -1175,3 +1175,15 @@ Meryl好小只以至于要特殊强调已经23了
 
 太流畅了  追了！
 
+
+
+*****
+
+####  毫无疑问是个dd  
+##### 106#       发表于 2023-1-8 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59257017&amp;ptid=2076121" target="_blank">red2077 发表于 2023-1-8 14:21</a>
+
+声优由于没看过前作，我觉得松冈还行，很明显是要走前期搞笑逗B，跟兄弟TTK就会转深沉这种反差感，松冈能 ...</blockquote>
+我反而担心松冈前期的搞笑部分用力过猛
+

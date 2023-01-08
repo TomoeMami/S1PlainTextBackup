@@ -14218,3 +14218,15 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 抽一个卡莲团聚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 4285#       发表于 2023-1-8 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59184345&amp;ptid=2084912" target="_blank">rooarr 发表于 2023-1-3 12:42</a>
+
+个人感觉1宝水伊吹没啥用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以进公主双杀狐队伍
+
