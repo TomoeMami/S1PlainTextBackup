@@ -3891,3 +3891,14 @@ lag玩家来些细碎的感想：
 主角打boss吃个药要一辈子，早被boss橄榄了</blockquote>
 吃药又不用劲霸男装，边躲边吃呗，做不到就练级换装备提容错。
 
+
+
+*****
+
+####  zzy516232108  
+##### 3330#       发表于 2023-1-9 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265372&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-9 00:38</a>
+吃药又不用劲霸男装，边躲边吃呗，做不到就练级换装备提容错。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我靠，我看他下面在读条以为和老版本猛汉一样要站定才能吃药。
+
