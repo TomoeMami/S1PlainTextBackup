@@ -44,3 +44,22 @@
 
 <img src="https://img.saraba1st.com/forum/202301/08/155051zb6o605tata5cge0.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nh_zzz  
+##### 715#       发表于 2023-1-9 18:46
+
+给你们长颈鹿一点小小的震撼，什么叫做多层展开啊
+avg游戏(制作是灰色系列的公司，有中日英，上ns和steam
+🎮コンソールゲーム化决定🎮
+「少女☆歌剧 レヴュースタァライト」のコンソールゲームが2023年冬発売决定🎊
+脚本はスタァライトでおなじみの樋口达人さんに执笔いただく予定✨
+ゲームでもみんなをスタァライト、しちゃいます！！
+revuestarlight.com/news/9172/
+
+<img src="https://p.sda1.dev/9/371785e130a5f370860ba7563c7f3961/CMP_20230109184443646.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

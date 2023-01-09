@@ -5266,3 +5266,28 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一切向好，要是狗比企划有个正经可鲤c就更好了
 
+
+
+*****
+
+####  saya1892  
+##### 10979#       发表于 2023-1-9 18:41
+
+今晚要那个大蛋糕和土豆开会一起炫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10980#       发表于 2023-1-9 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">この后スタッフがおいしく顶きました蛋糕切一块吃差不多了
+
+
+
+*****
+
+####  stygian  
+##### 10981#       发表于 2023-1-9 18:47
+
+这个日程都内多半有追加吧
+
