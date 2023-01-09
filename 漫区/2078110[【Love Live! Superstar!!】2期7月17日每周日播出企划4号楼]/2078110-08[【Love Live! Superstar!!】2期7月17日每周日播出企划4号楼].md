@@ -5334,3 +5334,21 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 开始筹划去日本，岸田他妈的给我识相点
 
+
+
+*****
+
+####  cat1230  
+##### 10987#       发表于 2023-1-9 19:36
+
+3场啥规模的，从场地可以看出来吧
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ViyViy  
+##### 10988#       发表于 2023-1-9 19:39
+
+这是不是等于说星4月行程很空，烂铁能给鱼开个巡应该是核对过LL这边的行程的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

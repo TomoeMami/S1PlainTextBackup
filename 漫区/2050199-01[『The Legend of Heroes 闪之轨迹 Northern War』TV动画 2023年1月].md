@@ -1861,3 +1861,14 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 ----发送自 [Lenovo Lenovo TB-9707F,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  镜hinata  
+##### 290#       发表于 2023-1-9 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275199&amp;ptid=2050199" target="_blank">红叶 发表于 2023-1-9 19:30</a>
+闪里我记得北方战争分校长戏份也很重，怎么动画里毛都没有。黑白🐇，肯帕雷拉，帝国英雄（狗腿）黎教官op都 ...</blockquote>
+op我记得有分校长跟黑旋风吧
+
