@@ -5378,3 +5378,17 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 2023-1-9 19:52 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10991#       发表于 2023-1-9 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275289&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-9 19:36</a>
+
+3场啥规模的，从场地可以看出来吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+随便查了下大概分别是1500 1000 5000，最后那个跟1st一个场子
+
