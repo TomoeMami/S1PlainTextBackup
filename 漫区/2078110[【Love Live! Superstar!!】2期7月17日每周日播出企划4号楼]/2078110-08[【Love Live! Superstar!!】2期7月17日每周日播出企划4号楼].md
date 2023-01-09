@@ -5309,3 +5309,19 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 10984#       发表于 2023-1-9 19:13
+
+有没人介绍下鲤鱼的斩魄刀卍解<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llllife  
+##### 10985#       发表于 2023-1-9 19:14
+
+个人巡演的话，每一场都有线上吗，如果能有国内渠道就更好了...
+

@@ -337,3 +337,15 @@
 
 kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
+
+
+*****
+
+####  DDWarrior  
+##### 17255#       发表于 2023-1-9 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59264647&amp;ptid=1158205" target="_blank">はちたや 发表于 2023-1-8 23:22</a>
+9年的游戏了，没见过这么搞笑的</blockquote>
+没事，今天就给你整个更搞笑的
+没想到吧，休息日又没啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
