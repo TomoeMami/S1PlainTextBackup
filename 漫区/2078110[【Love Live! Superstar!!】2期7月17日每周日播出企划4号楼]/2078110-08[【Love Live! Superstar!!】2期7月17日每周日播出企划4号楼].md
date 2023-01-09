@@ -5473,3 +5473,14 @@ DA32167F-1BB0-4EDA-8FC8-555C395684D4.jpeg
 
 <img src="https://img.saraba1st.com/forum/202301/09/221026h4eiz0fc5l0fco50.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 10999#       发表于 2023-1-9 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59274656&amp;ptid=2078110" target="_blank">stygian 发表于 2023-1-9 18:47</a>
+这个日程都内多半有追加吧</blockquote>
+个人巡演极少有追加的
+
