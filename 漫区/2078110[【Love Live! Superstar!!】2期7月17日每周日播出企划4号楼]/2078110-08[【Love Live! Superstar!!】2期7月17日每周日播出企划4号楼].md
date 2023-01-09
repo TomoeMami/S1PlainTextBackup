@@ -4911,3 +4911,28 @@ EMI也祝🐟生日快乐了，谢谢大前辈，真的对🐟很好。
 
 这些厕所言论没必要理论那么久，更何况还是霓虹那边言论。也对线不了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10936#       发表于 2023-1-9 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271272&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-9 14:57</a>
+
+问题是会有鱼对团活不上心这种想法就很奇怪啊，这套不仅是对星不适用，对鱼也不适用，说得好像鱼真的摆了似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看开点吧，5厕不天天都拿声优开涮，以前是打铁nagi不仲，pay不合群/被孤立不如去虹，元旦之后又变成了打铁被孤立，全都是这些乱七八糟的
+
+*****
+
+####  稀勢のささ  
+##### 10937#       发表于 2023-1-9 15:20
+
+<img src="https://img.saraba1st.com/forum/202301/09/152001no64ww0kkkbxx9oj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230109151913.png</strong> (22.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-9 15:20 上传
+
