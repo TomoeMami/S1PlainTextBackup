@@ -1642,3 +1642,30 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 要是正常动画的话第一集里这个盐之桩事件肯定是故事核心中的核心，之后要围绕这个写的吧 ...</blockquote>
 日本已经有人说，人变盐的灾难是抄袭《处刑少女的生存之道》吧，幸好第一集还没出现导力这个词，不然不是更抄袭了（笑）
 
+
+
+*****
+
+####  Aeons  
+##### 268#       发表于 2023-1-9 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人变盐你不如说是圣经好吧
+
+*****
+
+####  Aeons  
+##### 269#       发表于 2023-1-9 14:58
+
+说实话我觉得盐之桩这个东西哪怕到轨迹结束我觉得都不会细讲，只是讲一下它的性质
+
+*****
+
+####  Oshino  
+##### 270#       发表于 2023-1-9 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59270919&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-9 14:31</a>
+北方猎兵在本地是子弟兵，到了外面和其他猎兵差不多，都是啥脏活都干。
+
+说到底猎兵这一行都不行，西风都是 ...</blockquote>
+这不是进了主角团要往伟光正写吗，你看人夏莉就没想过从善啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
