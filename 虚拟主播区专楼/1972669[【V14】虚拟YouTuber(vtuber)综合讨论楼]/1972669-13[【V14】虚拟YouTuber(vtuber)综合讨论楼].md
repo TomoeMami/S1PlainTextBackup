@@ -2858,3 +2858,18 @@ sky 我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/075
 全5公演
 #カタシロReflect
 
+
+
+*****
+
+####  fastary  
+##### 18256#       发表于 2023-1-9 23:08
+
+3d舞台剧……想起黛灰毕业前那场舞台剧sky说会继承?他的意志让njsj以后也会有这样的企划了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+syl
+
+杏星en2期首播也有了，有前世信息吗（伸手
+
+稍微听了下首播，emmmm，感觉跟虹en6.7的男人一样没什么记忆点……
+

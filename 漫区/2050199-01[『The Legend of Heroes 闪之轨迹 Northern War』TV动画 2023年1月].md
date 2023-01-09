@@ -1884,3 +1884,21 @@ op我记得有分校长跟黑旋风吧
 现在猎兵描写也分好猎兵坏猎兵了，西风是好猎兵，星座就是典型的坏猎兵！ ...</blockquote>
 西风哪里好猎兵了，菲跟着那帮人十岁干脏活，十二岁炸卡车，要不是进了7班，多半和谢莉一个路子了，进了7班还对着班长开荤腔。
 
+
+
+*****
+
+####  su37mkk  
+##### 292#       发表于 2023-1-9 23:00
+
+女主帅啊
+
+*****
+
+####  6030sylar  
+##### 293#       发表于 2023-1-9 23:09
+
+如果写得好，让女主截胡黎老师也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
