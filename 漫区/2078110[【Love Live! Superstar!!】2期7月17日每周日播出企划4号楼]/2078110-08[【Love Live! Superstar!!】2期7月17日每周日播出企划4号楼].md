@@ -5484,3 +5484,12 @@ DA32167F-1BB0-4EDA-8FC8-555C395684D4.jpeg
 这个日程都内多半有追加吧</blockquote>
 个人巡演极少有追加的
 
+
+
+*****
+
+####  cybernetics31  
+##### 11000#       发表于 2023-1-9 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">音响协力同学肉眼可见的胖了
+
