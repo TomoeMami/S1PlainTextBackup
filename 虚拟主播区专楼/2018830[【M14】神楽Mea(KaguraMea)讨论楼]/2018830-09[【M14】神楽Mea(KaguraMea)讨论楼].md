@@ -1270,3 +1270,15 @@ NB 3.31毕业咯
 
 现在也没取下来，把两件当成一件穿了
 
+
+
+*****
+
+####  路人庚  
+##### 13042#       发表于 2023-1-10 00:45
+
+随心所欲mercy这歌后半那段，她居然开音效器唱了一句，还是会玩的
+
+（模仿原曲音效
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

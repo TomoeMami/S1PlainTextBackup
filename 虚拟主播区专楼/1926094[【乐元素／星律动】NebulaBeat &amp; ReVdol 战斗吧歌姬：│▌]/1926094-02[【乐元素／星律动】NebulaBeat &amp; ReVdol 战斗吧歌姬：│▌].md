@@ -13290,3 +13290,15 @@ P.S. 小火驴是真有 ...</blockquote>
 
 纸哥到底多大岁数啊，看的动画片都是06年上下的，还说缪斯宣布解散当天下来的赴日签证，印象中她提过自己是大学毕业以后才赴的日？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2877#       发表于 2023-1-10 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59278524&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-9 23:36</a>
+
+纸哥到底多大岁数啊，看的动画片都是06年上下的，还说缪斯宣布解散当天下来的赴日签证，印象中她提过自己是 ...</blockquote>
+日本读声优大学也不是不行。
+
