@@ -175,3 +175,12 @@ SD屏幕确实不如NS，低色域的垃圾，但是玩起来就无所谓这点�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  医生狼多  
+##### 611#       发表于 2023-1-9 19:59
+
+oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

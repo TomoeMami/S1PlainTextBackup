@@ -5352,3 +5352,29 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 这是不是等于说星4月行程很空，烂铁能给鱼开个巡应该是核对过LL这边的行程的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  starring  
+##### 10989#       发表于 2023-1-9 19:52
+
+西武场后没追加吧，3月pay有个人event，4月鲤的巡演，不然追加场放到6月
+
+*****
+
+####  aoaoaodedede  
+##### 10990#       发表于 2023-1-9 19:53
+
+别总往烂铁上想吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，鱼的个人Live主办方应该是h社吧
+
+[https://liyuu0109.com/news/post-2130](https://liyuu0109.com/news/post-2130)
+
+<img src="https://img.saraba1st.com/forum/202301/09/195253fz6s6oiz86voqqmq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-9 19:52 上传
+
