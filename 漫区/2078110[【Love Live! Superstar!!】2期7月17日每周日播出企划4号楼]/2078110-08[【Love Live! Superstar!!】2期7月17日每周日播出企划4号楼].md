@@ -4738,3 +4738,20 @@ kuma4.13
 
 从9交响曲只给一句歌词可以看出来企划方确实在有意压鲤鱼/可可在企划内的的人气，动机为何就不过多揣测了。
 
+
+
+*****
+
+####  优妮可  
+##### 10920#       发表于 2023-1-9 09:00
+
+<img src="https://img.saraba1st.com/forum/202301/09/085827tzus4zl4tbdzd441.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230109_083512.jpg</strong> (43.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-9 08:58 上传
+
+daisuki挂嘴边
+
