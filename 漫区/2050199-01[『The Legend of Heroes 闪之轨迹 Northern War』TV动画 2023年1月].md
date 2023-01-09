@@ -1598,3 +1598,15 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 突然想到闪2结束后的黎爷是怎么心甘情愿给自己爹当狗腿子使的，干的都是侵略的活，完全可以当自闭少年拒绝开王尼玛啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无动于衷  
+##### 264#       发表于 2023-1-9 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266563&amp;ptid=2050199" target="_blank">红叶 发表于 2023-1-9 03:54</a>
+
+竟然还能看看，比想像的能动就行好不少 不过这北方猎兵怎么摇身一变革命英雄的。 如果只是为手游整 ...</blockquote>
+很明显诺州民众得靠猎兵养着
+
