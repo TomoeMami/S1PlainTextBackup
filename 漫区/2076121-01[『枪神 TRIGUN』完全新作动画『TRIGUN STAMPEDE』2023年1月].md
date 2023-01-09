@@ -1427,3 +1427,12 @@ PV那会儿法修人设改了就认定这片子铁烂片，第一集看完意外
 
 原本希望这次动画能照着原作来，结果第一集就让我希望破灭。
 
+
+
+*****
+
+####  tengshuo980  
+##### 130#       发表于 2023-1-9 15:37
+
+3d做的真好，人物表情也整的很迪士尼，就是我原作大只佬妹妹呢，我还挺喜欢那个角色的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

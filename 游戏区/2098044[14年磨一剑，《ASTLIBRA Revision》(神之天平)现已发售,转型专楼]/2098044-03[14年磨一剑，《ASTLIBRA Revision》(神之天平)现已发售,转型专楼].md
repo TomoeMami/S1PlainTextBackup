@@ -4089,3 +4089,30 @@ lag玩家来些细碎的感想：
 敏捷没必要无脑加，能把高负重的武器的攻击硬直降低到符合自己手感的程度就行，其他点可以点高血量，这样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不用点力量加攻击力吗？还是说攻击全靠法术？
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3347#       发表于 2023-1-9 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271745&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 15:29</a>
+不用点力量加攻击力吗？还是说攻击全靠法术？</blockquote>
+这游戏本篇走力量流只能用一个叫狂暴的技能，攻击力翻三倍但是一击死。
+
+如果加魔导力的话输出差不了多少，还比较安全
+
+*****
+
+####  j.nelson  
+##### 3348#       发表于 2023-1-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265031&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 00:03</a>
+
+是我不会玩吗这游戏
+
+一周目普通难度
+
+第一章下洞就被蝙蝠蜘蛛骷髅焦作人</blockquote>
+记得合理用盾，或者用金刚，刷到素材升级装备就能随便打了，这个游戏前期换个高级新武器约等于换个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
