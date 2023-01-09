@@ -1533,3 +1533,15 @@ hw1*****3时间前
 比的最后的闪4直接自杀成仁的be都有。
 不是创轨be黎自己跳出来当boss黎爷还得接着发疯。
 
+
+
+*****
+
+####  酷乐  
+##### 258#       发表于 2023-1-9 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266296&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-9 02:39</a>
+
+啥东西</blockquote>
+Yahoo新闻的评论里发现两个PC9801时代的古参
+
