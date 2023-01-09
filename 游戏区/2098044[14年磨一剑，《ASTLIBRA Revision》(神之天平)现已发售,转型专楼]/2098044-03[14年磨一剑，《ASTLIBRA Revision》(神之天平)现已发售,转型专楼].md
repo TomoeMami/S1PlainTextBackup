@@ -3994,3 +3994,17 @@ lag玩家来些细碎的感想：
 老婆剑也挺好用的 伤害虽然不及指令拳  但范围大阿 ...</blockquote>
 老婆剑实际上就是法杖，所有法杖的被动和加成都吃
 
+
+
+*****
+
+####  zzy516232108  
+##### 3339#       发表于 2023-1-9 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266925&amp;ptid=2098044" target="_blank">無想の風 发表于 2023-1-9 08:05</a>
+
+技术不太行要么就多练，要么就像我一样上修改器，比如用CheatEngine锁命锁魔 ...</blockquote>
+我已经调简单难度一路平砍过去了。感觉良好。
+
+但是普通难度都打不过让我有点失落。虽然我鬼泣 魔女3dact 洛克人这种2dact也就普通难度通关
+
