@@ -2830,3 +2830,31 @@ A：VSPO运营的话大概有15人左右。
 
 爱师傅好强运啊，第一次麻将比赛就决赛，可惜还是差一点……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 18255#       发表于 2023-1-9 22:15
+
+sky 我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+3D舞台「カタシロReflect」
+──お话を、しようじゃないか。
+アドリブで纺がれる、唯一无二の物语。
+【出演】
+叶
+樋口枫
+甲斐田晴
+レオス・ヴィンセント
+月ノ美兎
+【医者役】
+オリバー・エバンス
+健屋花那
+【アユム役】
+周央サンゴ
+える
+健屋花那
+1月15日、22日、29日
+全5公演
+#カタシロReflect
+

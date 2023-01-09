@@ -5453,3 +5453,23 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 <img src="https://p.sda1.dev/9/47859e5008ac14da56a01c178340da1d/img-1673272691215641feed7bcd89d29550c9839435a994a7d11f1ef5f8ec97688315db5d5b876a4.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10998#       发表于 2023-1-9 22:11
+
+ 本帖最后由 lj205 于 2023-1-9 22:15 编辑 
+
+这是六年级的照片还是小学一年级的时候啊？
+
+DA32167F-1BB0-4EDA-8FC8-555C395684D4.jpeg
+(81.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-9 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202301/09/221026h4eiz0fc5l0fco50.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
