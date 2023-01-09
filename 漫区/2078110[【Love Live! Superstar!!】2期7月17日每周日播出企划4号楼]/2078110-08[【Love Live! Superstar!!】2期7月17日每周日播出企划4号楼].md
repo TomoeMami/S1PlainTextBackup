@@ -5041,3 +5041,33 @@ EMI也祝🐟生日快乐了，谢谢大前辈，真的对🐟很好。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被staff背刺了
 
+
+
+*****
+
+####  lj205  
+##### 10951#       发表于 2023-1-9 17:03
+
+草，这问题让个中国人回答
+
+*****
+
+####  稀勢のささ  
+##### 10952#       发表于 2023-1-9 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对吃的是真的很严格
+
+*****
+
+####  starring  
+##### 10953#       发表于 2023-1-9 17:09
+
+这玩意印象太深刻，拓麻歌子港版直接音译塔玛歌词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10954#       发表于 2023-1-9 17:10
+
+现在这么在意卡路里吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
