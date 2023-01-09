@@ -5424,3 +5424,16 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 名古屋还是有点玄的，顺便为啥还选太平洋呢…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10995#       发表于 2023-1-9 20:53
+
+ 本帖最后由 稀勢のささ 于 2023-1-9 20:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指不定场子便宜呢（）
+
+今天那个3团活动也是在那儿，当日券突入封了第三层还没坐满，夜场好像更惨，这企划欣欣向荣啊
+
