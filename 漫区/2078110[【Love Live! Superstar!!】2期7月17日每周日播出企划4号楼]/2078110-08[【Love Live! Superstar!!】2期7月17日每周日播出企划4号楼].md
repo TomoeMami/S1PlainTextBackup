@@ -5415,3 +5415,12 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 10994#       发表于 2023-1-9 20:26
+
+名古屋还是有点玄的，顺便为啥还选太平洋呢…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

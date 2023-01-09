@@ -1255,3 +1255,18 @@ NB 3.31毕业咯
 
 说起来之前说过2年？左右不会再开live了，今年会不会凯呢
 
+
+
+*****
+
+####  TiHaru  
+##### 13041#       发表于 2023-1-9 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59078535&amp;ptid=2018830" target="_blank">ashero 发表于 2022-12-25 08:07</a>
+
+野男人的凸待  选了今年最悲伤的事情  工作的staff 对自己很好 从职位上退了 送了礼物给她 半年后有次有机 ...</blockquote>
+
+丝绸围巾，卡在大衣拉链里了
+
+现在也没取下来，把两件当成一件穿了
+
