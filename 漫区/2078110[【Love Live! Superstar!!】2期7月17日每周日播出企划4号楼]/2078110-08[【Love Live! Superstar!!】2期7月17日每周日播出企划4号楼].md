@@ -4817,3 +4817,13 @@ daisuki挂嘴边
 
 就你星给鲤鱼那样的待遇，还好意思指责不发力，更何况鲤鱼的表现一直位于团里前列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10927#       发表于 2023-1-9 11:19
+
+改歌这事，个人是没多少强烈反应，就这，还远远不至于破防了，在我的假设里企划改Tiny Stars也是有可能的事情，毕竟企划一路来的操作告诉我它什么活也整得出来，只要我预设了一个更厉害的结果，其他的也就更不至于破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对我个人来说，等啥时候企划准备让鲤鱼毕业了，我也就没有必要关注这企划了
+
