@@ -13244,3 +13244,15 @@ P.S. 小火驴是真有 ...</blockquote>
 
 连纸哥都联系不上厂长，贴吧已经开振了
 
+
+
+*****
+
+####  ladiesman802  
+##### 2873#       发表于 2023-1-9 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59276098&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-9 20:35</a>
+
+连纸哥都联系不上厂长，贴吧已经开振了</blockquote>
+比起是不是被辞退或者辞职，不应该更担心健康问题吗
+

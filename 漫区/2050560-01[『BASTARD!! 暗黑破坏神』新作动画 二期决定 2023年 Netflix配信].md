@@ -5784,3 +5784,14 @@ Netflix：2023年世界配信予定
 
 <img src="https://p.sda1.dev/9/aef0617ddc7123028edeb7e83519be32/下载 _2_.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫水晶  
+##### 446#       发表于 2023-1-9 21:18
+
+喷了2期居然还有，按一期的长度这是结尾要上天能
+
+—— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
