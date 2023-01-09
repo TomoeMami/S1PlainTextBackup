@@ -13302,3 +13302,15 @@ P.S. 小火驴是真有 ...</blockquote>
 纸哥到底多大岁数啊，看的动画片都是06年上下的，还说缪斯宣布解散当天下来的赴日签证，印象中她提过自己是 ...</blockquote>
 日本读声优大学也不是不行。
 
+
+
+*****
+
+####  MinFOrder  
+##### 2878#       发表于 2023-1-10 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59279393&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-10 00:43</a>
+
+日本读声优大学也不是不行。</blockquote>
+她明显是在国内先读的大学（提到过大三时候和阿和一起租过房子），大学毕业以后去的日本，大概在日本读了一个声优学校，就是在那个时候被日乐招进去的。
+
