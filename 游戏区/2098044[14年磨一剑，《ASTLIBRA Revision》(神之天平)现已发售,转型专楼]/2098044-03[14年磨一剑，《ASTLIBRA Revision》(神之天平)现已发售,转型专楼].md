@@ -4049,3 +4049,17 @@ lag玩家来些细碎的感想：
 因为本质上是数值游戏，如果打不过那就是成长盘没刷够</blockquote>
 说到这个成长盘，其实第一章就解锁了第二章的盘子，可以多刷点晶体去点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zzy516232108  
+##### 3344#       发表于 2023-1-9 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59268150&amp;ptid=2098044" target="_blank">tansapple 发表于 2023-1-9 10:16</a>
+
+因为本质上是数值游戏，如果打不过那就是成长盘没刷够</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来如此，是个刷游啊……
+
+主要刷起来太麻烦了，我听人的全加敏，怪不能一刀秒
+
