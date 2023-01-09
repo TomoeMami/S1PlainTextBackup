@@ -13256,3 +13256,15 @@ P.S. 小火驴是真有 ...</blockquote>
 连纸哥都联系不上厂长，贴吧已经开振了</blockquote>
 比起是不是被辞退或者辞职，不应该更担心健康问题吗
 
+
+
+*****
+
+####  MinFOrder  
+##### 2874#       发表于 2023-1-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59276721&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-9 21:19</a>
+
+比起是不是被辞退或者辞职，不应该更担心健康问题吗</blockquote>
+不管咋样都听起来确实不太乐观
+
