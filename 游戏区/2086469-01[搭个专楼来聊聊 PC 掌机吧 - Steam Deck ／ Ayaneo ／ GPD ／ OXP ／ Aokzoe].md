@@ -149,3 +149,29 @@ sd和初版ns屏幕我觉得半斤八两吧，不过性能摆在那观感还是�
 
 最近买了台deck，不知道是不是因为都在玩神之天平和仁王2这种画面光污染或者一坨的，眼睛都很累，也不知道是画面问题还是屏幕太大的问题了，玩ns基本三四小时都没事
 
+
+
+*****
+
+####  martysama  
+##### 609#       发表于 2023-1-9 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59267431&amp;ptid=2086469" target="_blank">rak1 发表于 2023-1-9 09:15</a>
+SD屏幕确实不如NS，低色域的垃圾，但是玩起来就无所谓这点差异，帧数画质领先太多。 ...</blockquote>
+看参数好像是720p？看起来会不会很糊啊？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rak1  
+##### 610#       发表于 2023-1-9 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275391&amp;ptid=2086469" target="_blank">martysama 发表于 2023-1-9 19:42</a>
+看参数好像是720p？看起来会不会很糊啊？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+800p，我觉得是比较平衡的，毕竟是掌机要考虑性能和续航
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
