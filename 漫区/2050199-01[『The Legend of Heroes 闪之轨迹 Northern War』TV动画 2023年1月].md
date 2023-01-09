@@ -1589,3 +1589,12 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 要是正常动画的话第一集里这个盐之桩事件肯定是故事核心中的核心，之后要围绕这个写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妄想中毒  
+##### 263#       发表于 2023-1-9 13:07
+
+突然想到闪2结束后的黎爷是怎么心甘情愿给自己爹当狗腿子使的，干的都是侵略的活，完全可以当自闭少年拒绝开王尼玛啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

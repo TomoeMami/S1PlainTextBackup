@@ -73,3 +73,14 @@ V隐退我猜应该是和公司直播理念不合吧，因为她要开坑从头�
 
 另外看她真人直播的环境，应该是在住处隔音房里吧，霓虹搞管人人手一套这玩意么，我还以为同人声优才会买这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7061#       发表于 2023-1-9 13:06
+
+今天白嫖终于出货了，出了环常服，我国60、70年代女大学生/知青标椎发型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然之前的炸鸡发型卡已经有了，但还是把常服也抽了。
+
