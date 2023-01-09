@@ -1830,3 +1830,14 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  kamarus  
+##### 287#       发表于 2023-1-9 18:22
+
+帝国可是首都玩过生化危机的神奇地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然共和国目前这个样，估计到时候比帝国怕不是更黑。
+毕竟帝国有奥斯本这个大帝转世背大锅。
+
