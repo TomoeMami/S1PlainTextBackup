@@ -1817,3 +1817,16 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 但宰相的那盘大 ...</blockquote>
 千之阳炎的核心是凯恩公和黄金罗刹，黎爷说我要搞千之阳炎，谁理他啊
 
+
+
+*****
+
+####  月夜凝雪  
+##### 286#       发表于 2023-1-9 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271138&amp;ptid=2050199" target="_blank">酷乐 发表于 2023-1-9 14:47</a>
+日本已经有人说人变盐的灾难是抄袭《处刑少女的生存之道》的，幸好第一集还没出现导力这个词，不然更是抄 ...</blockquote>
+谁让轨迹不够出名，这不当年GP03D一个模式嘛
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
