@@ -1902,3 +1902,28 @@ op我记得有分校长跟黑旋风吧
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kamarus  
+##### 294#       发表于 2023-1-9 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59278166&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-9 23:09</a>
+如果写得好，让女主截胡黎老师也不是不行(如果黎老师确实不是给)
+
+—— 来自 Realme RMX1851, Andro ...</blockquote>
+讲道理，黎老师真不是gay，苍之圣女本来就是玩梗，而且到了闪4和创苍之圣女也就那样了，哪有闪2那么基情<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+倒是这次黎爷要是被女主截胡了，闪4那羁绊别的人不说，第一梯队那几个又是摸又是亲的后宫会不会暴动哦。。。教官的心与魂.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秘银mithril  
+##### 295#       发表于 2023-1-9 23:55
+
+硬件质量不咋地，肉眼可见的穷
+
+但是节奏很舒服，想看下去
+
+意外的还行……果然还是得原创，比改编能发挥的多多了
+
