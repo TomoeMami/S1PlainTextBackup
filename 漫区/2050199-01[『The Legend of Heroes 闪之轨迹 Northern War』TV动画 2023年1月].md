@@ -1927,3 +1927,14 @@ op我记得有分校长跟黑旋风吧
 
 意外的还行……果然还是得原创，比改编能发挥的多多了
 
+
+
+*****
+
+####  Aeons  
+##### 296#       发表于 2023-1-10 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59276090&amp;ptid=2050199" target="_blank">sd4442312 发表于 2023-1-9 20:34</a>
+西风哪里好猎兵了，菲跟着那帮人十岁干脏活，十二岁炸卡车，要不是进了7班，多半和谢莉一个路子了，进了7 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">相比兰迪和星座要好多了吧，团长几个连队长都算正派角色
+
