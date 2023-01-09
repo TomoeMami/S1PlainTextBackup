@@ -53,3 +53,23 @@
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  花开安菲路  
+##### 7060#       发表于 2023-1-9 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266611&amp;ptid=1484979" target="_blank">nehon13 发表于 2023-1-9 04:26</a>
+
+不知道你说的是不是ライカ・セフィル，我也是前几天才发现删帐号了，现在换名义新开了个频道，https://yo ...</blockquote>
+哈哈，是她。不过当天我就在推上搜到本体油管小号了。也已经订阅和继续在看了。
+
+这妹子真的挺有趣，逗比外向性格，喜欢一惊一乍怪叫，天生适合搞管人，就是出道晚了。
+
+她最开始直播土豆时的MV鉴赏会真的有意思，同时期其它同行也在搞不知道是不是官方的工商，但都没她的有趣，可惜都删了，B站也没搜到有人搬。
+
+V隐退我猜应该是和公司直播理念不合吧，因为她要开坑从头直播玩6、7个游戏，我看着都累。麻辣土豆应该是她自己真的喜欢。
+
+另外看她真人直播的环境，应该是在住处隔音房里吧，霓虹搞管人人手一套这玩意么，我还以为同人声优才会买这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
