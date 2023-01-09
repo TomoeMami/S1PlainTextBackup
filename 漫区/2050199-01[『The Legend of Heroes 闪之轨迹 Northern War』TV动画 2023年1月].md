@@ -1804,3 +1804,16 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 真好猎兵还得是库鲁格和盾。
 😤还是共和国好人多，kbfz被识破了都不杀学生。
 
+
+
+*****
+
+####  Oshino  
+##### 285#       发表于 2023-1-9 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271965&amp;ptid=2050199" target="_blank">星海坊主 发表于 2023-1-9 15:43</a>
+当然黎恩还有一种选择，在闪2结尾就跟老爸对着干，提前发动千之阳炎阻止帝国入侵克州等地
+
+但宰相的那盘大 ...</blockquote>
+千之阳炎的核心是凯恩公和黄金罗刹，黎爷说我要搞千之阳炎，谁理他啊
+
