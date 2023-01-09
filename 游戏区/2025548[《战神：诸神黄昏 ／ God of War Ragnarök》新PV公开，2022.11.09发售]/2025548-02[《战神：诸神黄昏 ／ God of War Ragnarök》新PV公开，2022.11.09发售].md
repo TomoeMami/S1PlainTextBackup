@@ -97,3 +97,17 @@ video/av818149979/</blockquote>
 
 双刀火球轻符文第一次没拿到是不是就得通关再拿了？
 
+
+
+*****
+
+####  focus  
+##### 1972#       发表于 2023-1-10 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266620&amp;ptid=2025548" target="_blank">415452356 发表于 2023-1-9 04:38</a>
+
+https://youtu.be/5rkLhFU4X4s
+
+  这输出看尿了</blockquote>
+30几秒，太弱了啊，现在有9秒的
+
