@@ -4768,3 +4768,43 @@ daisuki挂嘴边
 
 还是大家在加人的时候太宽容了
 
+
+
+*****
+
+####  ViyViy  
+##### 10922#       发表于 2023-1-9 10:35
+
+ 本帖最后由 ViyViy 于 2023-1-9 10:37 编辑 
+
+就不滚就熬老头，该滚的是你们这群老东西好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">天天惯着企划作妖，union这种只出了大半年的歌就有这种反应，可以看看贷款成真后到底有多腥风血雨了。
+
+看菜宝的生日回复是好一阵子没和鱼碰面了？菜鱼三到底啥时候能录啊？
+
+*****
+
+####  稀勢のささ  
+##### 10923#       发表于 2023-1-9 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265206&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-9 00:20</a>
+拉板那个鲤鱼只在个人发力的串把我看乐了。2次元没给可可啥好剧情，3次元也没给鲤鱼C和soloED，思考回路惊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实时不时就有类似的串，像翻车山之后也有，但回复要么从发挥/实力出发要么从动画出发就给人把嘴堵上了，某种意义上看着还挺爽的
+
+*****
+
+####  nufawneafg  
+##### 10924#       发表于 2023-1-9 10:45
+
+其实在某种意义上，国内早就已经麻了
+只是日本那边反应那么大有点意外
+
+至于爱玩玩不玩滚，能看到的是三巡之后是一个节点，三期动画是一个节点。在这两个节点之后我觉得从声誉和利益两个方面出发，决策者很有理由重新考虑本团在企划内的存在方式，就这个节奏运行下去很快就要把企划整体拖入两难的泥淖。
+那确实爱玩玩不玩滚，抵达耶路撒冷了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10925#       发表于 2023-1-9 10:45
+
+风怒
+
