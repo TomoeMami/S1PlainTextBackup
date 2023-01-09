@@ -1669,3 +1669,42 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 说到底猎兵这一行都不行，西风都是 ...</blockquote>
 这不是进了主角团要往伟光正写吗，你看人夏莉就没想过从善啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeons  
+##### 271#       发表于 2023-1-9 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271318&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-9 15:00</a>
+这不是进了主角团要往伟光正写吗，你看人夏莉就没想过从善啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在猎兵描写也分好猎兵坏猎兵了，西风是好猎兵，星座就是典型的坏猎兵！
+
+*****
+
+####  Aeons  
+##### 272#       发表于 2023-1-9 15:05
+
+北方猎兵因为人多又缺钱，所以很多“私活”都会找他们，要说不干净在外面可能是最不干净的。
+
+*****
+
+####  龙之峰  
+##### 273#       发表于 2023-1-9 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271318&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-9 15:00</a>
+
+这不是进了主角团要往伟光正写吗，你看人夏莉就没想过从善啊</blockquote>
+谢莉是特例，脑子有问题。星座的其他人也都是打工人，委托没要求就不随便杀人的那种，大部分猎兵都是这样的。
+
+动画这个主角一看就是二线部队的，估计还没怎么接触外国的委托，主要负责国内治安。看pv，后面可能看她小或者身世问题，给派了一个去帝国公款旅游的任务，不然留在本地就要和分校长的贵族军硬碰硬了。
+
+*****
+
+####  Oshino  
+##### 274#       发表于 2023-1-9 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59271387&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-9 15:05</a>
+北方猎兵因为人多又缺钱，所以很多“私活”都会找他们，要说不干净在外面可能是最不干净的。 ...</blockquote>
+反正现在的轨迹，再坏也没多坏，写得太坏了最后还要自己擦屁股，麻烦
+
