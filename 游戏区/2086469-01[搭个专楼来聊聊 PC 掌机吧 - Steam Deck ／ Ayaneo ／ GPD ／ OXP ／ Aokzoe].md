@@ -98,3 +98,15 @@ oxp2起步5799，比我想的要贵不少<img src="https://static.saraba1st.com/
 
 只能说用户提纯力度还没aya那么强了。
 
+
+
+*****
+
+####  blueelf  
+##### 604#       发表于 2023-1-9 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59264598&amp;ptid=2086469" target="_blank">martysama 发表于 2023-1-8 23:18</a>
+
+话说sd那块屏幕的素质到底咋样啊？这两天有点想入就做了点功课，发现网上说他那块屏数据上来看不如初版的NS ...</blockquote>
+SD屏幕全贴合的，哪怕再烂也比NS屏幕强吧
+
