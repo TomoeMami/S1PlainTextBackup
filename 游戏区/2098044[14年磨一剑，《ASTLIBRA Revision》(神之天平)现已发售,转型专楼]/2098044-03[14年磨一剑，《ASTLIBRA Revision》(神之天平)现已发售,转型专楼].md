@@ -4063,3 +4063,17 @@ lag玩家来些细碎的感想：
 
 主要刷起来太麻烦了，我听人的全加敏，怪不能一刀秒
 
+
+
+*****
+
+####  tansapple  
+##### 3345#       发表于 2023-1-9 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59268642&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 10:54</a>
+
+原来如此，是个刷游啊……
+
+主要刷起来太麻烦了，我听人的全加敏，怪不能一刀秒 ...</blockquote>
+敏捷没必要无脑加，能把高负重的武器的攻击硬直降低到符合自己手感的程度就行，其他点可以点高血量，这样至少在高难度可以多挨一刀，多少增加点容错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
