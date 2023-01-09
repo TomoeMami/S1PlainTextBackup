@@ -1556,3 +1556,12 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 就第一集而言这北方猎兵正义感实力都挺爆棚的，紫电究竟是为啥从里面跑出来去当游击士的。
 
+
+
+*****
+
+####  镜hinata  
+##### 260#       发表于 2023-1-9 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我对黎爷不感兴趣，但有些人看到黎爷就像杀父仇人真的太乐了
+

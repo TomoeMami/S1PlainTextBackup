@@ -4008,3 +4008,12 @@ lag玩家来些细碎的感想：
 
 但是普通难度都打不过让我有点失落。虽然我鬼泣 魔女3dact 洛克人这种2dact也就普通难度通关
 
+
+
+*****
+
+####  ——啧  
+##### 3340#       发表于 2023-1-9 10:11
+
+我想问下新章只能买刺刺果吃吗，没有其他药了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
