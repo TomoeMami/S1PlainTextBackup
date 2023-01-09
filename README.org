@@ -6,17 +6,14 @@
 
 * 相关存档
 
+[[https://tomoemami.github.io/][S1 各板块回帖折线图]] [[https://github.com/TomoeMami/tomoemami.github.io][（折线图repo）]]
+
 [[https://github.com/TomoeMami/S1PlainTextArchive2021][2020-2021年历史存档]]
 
 [[https://github.com/TomoeMami/S1PlainTextArchive2022][2022年历史存档]]
 
 [[https://github.com/TomoeMami/S1PlainTextArchive2023][2023年至今历史存档]]
 
-[[https://tomoemami.github.io/][S1 各板块回帖折线图]] [[https://github.com/TomoeMami/tomoemami.github.io][折线图repo]]
-
-** 全文搜索方式：
-
-[[http://175.27.249.201:8000/][限制频率为20次每分钟的简易网页搜索]]
 
 *** 目前支持的特殊效果
 
