@@ -63,3 +63,29 @@ revuestarlight.com/news/9172/
 
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 716#       发表于 2023-1-9 18:51
+
+[https://revuestarlight.com/news/9172/](https://revuestarlight.com/news/9172/)
+
+🎮コンソールゲーム化决定🎮
+
+「少女☆歌剧 レヴュースタァライト」のコンソールゲームが2023年冬発売决定🎊
+
+タイトル：少女歌剧レヴュースタァライト　ビジュアルノベル（仮）
+
+発売予定时期：2023年冬
+
+ジャンル：ビジュアルノベル
+
+デベロッパー：フロントウイングラボ
+
+脚本：樋口达人
+
+プラットフォーム：Nintendo Switch™／Steam®
+<img src="https://p.sda1.dev/9/043a8d304b05b2b6b13f13355a4058c5/20230109_184754.jpg" referrerpolicy="no-referrer">
+

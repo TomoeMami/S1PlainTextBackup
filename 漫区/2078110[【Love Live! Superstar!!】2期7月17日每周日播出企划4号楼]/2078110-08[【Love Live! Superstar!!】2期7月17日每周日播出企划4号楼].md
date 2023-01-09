@@ -5291,3 +5291,21 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 
 这个日程都内多半有追加吧
 
+
+
+*****
+
+####  名津流  
+##### 10982#       发表于 2023-1-9 18:54
+
+个人巡演有点厉害
+
+*****
+
+####  player3960  
+##### 10983#       发表于 2023-1-9 18:59
+
+3场还好吧，今天听到cherish了满足<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
