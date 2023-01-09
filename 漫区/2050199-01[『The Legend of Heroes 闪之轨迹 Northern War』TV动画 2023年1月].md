@@ -1512,3 +1512,24 @@ hw1*****3时间前
 竟然还能看看，比想像的能动就行好不少 不过这北方猎兵怎么摇身一变革命英雄的。 如果只是为手游整 ...</blockquote>
 诺桑普利亚公国大公在事件时丢下民众跑路了，后来腆着脸回来要继续当大公，民众就反抗，然后就革命成立议会当自治州了。
 
+
+
+*****
+
+####  kamarus  
+##### 256#       发表于 2023-1-9 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265622&amp;ptid=2050199" target="_blank">101207777 发表于 2023-1-9 01:04</a>
+他妈是谁?</blockquote>
+亲妈是路人，后妈。。。七姐算吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kamarus  
+##### 257#       发表于 2023-1-9 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265306&amp;ptid=2050199" target="_blank">jacket 发表于 2023-1-9 00:31</a>
+里爷跟别的主角不一样，比惨比不过爹妈，比伟大也比不过爹妈，在爹妈面前没有任何翻身机会，这辈子都过得很 ...</blockquote>
+比的最后的闪4直接自杀成仁的be都有。
+不是创轨be黎自己跳出来当boss黎爷还得接着发疯。
+

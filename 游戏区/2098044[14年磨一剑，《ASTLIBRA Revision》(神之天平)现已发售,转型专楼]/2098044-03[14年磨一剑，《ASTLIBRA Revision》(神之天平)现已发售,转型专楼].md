@@ -3982,3 +3982,15 @@ lag玩家来些细碎的感想：
 第一章下洞就被蝙蝠蜘蛛骷髅焦作人</blockquote>
 技术不太行要么就多练，要么就像我一样上修改器，比如用CheatEngine锁命锁魔<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tansapple  
+##### 3338#       发表于 2023-1-9 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59266679&amp;ptid=2098044" target="_blank">jerryoq1 发表于 2023-1-9 05:55</a>
+老婆剑非剑气的伤害吃德鲁伊加成吗？
+老婆剑也挺好用的 伤害虽然不及指令拳  但范围大阿 ...</blockquote>
+老婆剑实际上就是法杖，所有法杖的被动和加成都吃
+
