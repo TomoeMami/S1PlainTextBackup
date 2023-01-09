@@ -5080,3 +5080,19 @@ EMI也祝🐟生日快乐了，谢谢大前辈，真的对🐟很好。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">老问这种连年轻日本人都可能不知道的问题
 
+
+
+*****
+
+####  stygian  
+##### 10956#       发表于 2023-1-9 17:22
+
+除了最后一个我全知道。。。老逼认定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10957#       发表于 2023-1-9 17:25
+
+卍解！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
