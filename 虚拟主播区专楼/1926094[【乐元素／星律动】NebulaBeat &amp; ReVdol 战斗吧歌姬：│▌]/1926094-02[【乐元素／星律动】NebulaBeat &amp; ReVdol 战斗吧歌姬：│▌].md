@@ -13279,3 +13279,14 @@ P.S. 小火驴是真有 ...</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  MinFOrder  
+##### 2876#       发表于 2023-1-9 23:36
+
+ 本帖最后由 MinFOrder 于 2023-1-9 23:39 编辑 
+
+纸哥到底多大岁数啊，看的动画片都是06年上下的，还说缪斯宣布解散当天下来的赴日签证，印象中她提过自己是大学毕业以后才赴的日？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
