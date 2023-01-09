@@ -4849,3 +4849,17 @@ daisuki挂嘴边
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10930#       发表于 2023-1-9 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59270337&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-9 13:42</a>
+
+挺好奇这种人的动机，是觉得鱼个活多酸了吗？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+是觉得你对企划不上心，打卡上班，只有在个人活动搞真正的fanservice；“明明没有LL没有接到可可这个角色你就是个糊糊，现在过河拆桥？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很可惜这套在星不管用，先让这些上心派的企划民写信给它爹地让它把动画做好了给人收益正向了再说吧。
+
