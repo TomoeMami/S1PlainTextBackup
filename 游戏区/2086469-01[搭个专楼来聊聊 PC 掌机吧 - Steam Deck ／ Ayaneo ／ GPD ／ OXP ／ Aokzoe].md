@@ -119,3 +119,17 @@ SD屏幕全贴合的，哪怕再烂也比NS屏幕强吧
 
 SD屏幕确实不如NS，低色域的垃圾，但是玩起来就无所谓这点差异，帧数画质领先太多。
 
+
+
+*****
+
+####  narizen  
+##### 606#       发表于 2023-1-9 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131234&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-12-29 17:22</a>
+
+现阶段我个人觉得性价比最高的是奥克，闲鱼3500-4000就能收到了，现在也没什么太大问题
+
+  -- 来自  ...</blockquote>
+3500根本蹲不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
