@@ -4863,3 +4863,14 @@ daisuki挂嘴边
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 是觉得你对企划不上心，打卡上班，只有在个人活动搞真正的fanservice；“明明没有LL没有接到可可这个角色你就是个糊糊，现在过河拆桥？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很可惜这套在星不管用，先让这些上心派的企划民写信给它爹地让它把动画做好了给人收益正向了再说吧。
 
+
+
+*****
+
+####  lj205  
+##### 10931#       发表于 2023-1-9 14:24
+
+EMI也祝🐟生日快乐了，谢谢大前辈，真的对🐟很好。
+
+朱茵这回复绝了，不愧是我现在第二推的CP<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
