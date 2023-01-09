@@ -4017,3 +4017,35 @@ lag玩家来些细碎的感想：
 
 我想问下新章只能买刺刺果吃吗，没有其他药了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3341#       发表于 2023-1-9 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59265423&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 00:42</a>
+我靠，我看他下面在读条以为和老版本猛汉一样要站定才能吃药。</blockquote>
+你甚至可以吃药之后用放魔法的无敌时间来变相缩短吃药读条
+另外血瓶比果子的好处不仅仅是回血更多，血瓶读条也更快，要是刷出来空瓶子做几瓶也是可以的
+
+*****
+
+####  tansapple  
+##### 3342#       发表于 2023-1-9 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59267726&amp;ptid=2098044" target="_blank">zzy516232108 发表于 2023-1-9 09:44</a>
+我已经调简单难度一路平砍过去了。感觉良好。
+
+但是普通难度都打不过让我有点失落。虽然我鬼泣 魔女3dact  ...</blockquote>
+因为本质上是数值游戏，如果打不过那就是成长盘没刷够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 3343#       发表于 2023-1-9 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59268150&amp;ptid=2098044" target="_blank">tansapple 发表于 2023-1-9 10:16</a>
+因为本质上是数值游戏，如果打不过那就是成长盘没刷够</blockquote>
+说到这个成长盘，其实第一章就解锁了第二章的盘子，可以多刷点晶体去点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
