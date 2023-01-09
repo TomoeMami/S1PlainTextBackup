@@ -5795,3 +5795,14 @@ Netflix：2023年世界配信予定
 
 —— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  MONSTERS  
+##### 447#       发表于 2023-1-10 02:00
+
+地狱镇魂歌篇是最后破坏神复活召天使那段？
+
+接下来好像是罪与罚篇，DS掉地狱见撒旦。有3期可能就能看到某巨乃大元帅和米迦勒那几个了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

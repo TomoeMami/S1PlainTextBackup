@@ -349,3 +349,16 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 没事，今天就给你整个更搞笑的
 没想到吧，休息日又没啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 17256#       发表于 2023-1-10 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59274957&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2023-1-9 19:12</a>
+没事，今天就给你整个更搞笑的
+没想到吧，休息日又没啦</blockquote>
+定好的日程不能改的 改了就会出大BUG  之前就闹过这种笑话了 
+现在只炸一晚还可以靠吃了休息日补 以后哪次要是炸了两晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

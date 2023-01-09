@@ -783,3 +783,15 @@ all侑人供给也太足了，回想一期时还挺克制的
 
 <img src="https://p.sda1.dev/9/0ec02692b2d927ca997d092df9f2d665/CMP_20230109220221555.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  光宗薫  
+##### 6869#       发表于 2023-1-10 02:05
+
+<img src="https://p.sda1.dev/9/995c4a950319d8945e92bcd1cc69d0f4/CMP_20230110020348279.jpg" referrerpolicy="no-referrer">
+笑死
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
