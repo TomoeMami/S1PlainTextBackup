@@ -5392,3 +5392,26 @@ aki酱都请来拍视频了，那真人联动是不是也可以提上日程了
 ----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
 随便查了下大概分别是1500 1000 5000，最后那个跟1st一个场子
 
+
+
+*****
+
+####  仟音一心  
+##### 10992#       发表于 2023-1-9 20:16
+
+<img src="https://p.sda1.dev/9/685ee135758eca2b4881c517deaa0767/CMP_20230109201604419.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/d6f20748bf82c4ec6be553acf2924cca/CMP_20230109201604470.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/b3418930d7e97bafcd085e514fbe695c/CMP_20230109201604504.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/5405cecac77eae54e517035615348025/CMP_20230109201604536.jpg" referrerpolicy="no-referrer">
+今天同时还有三团活动
+
+*****
+
+####  player3960  
+##### 10993#       发表于 2023-1-9 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275733&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-01-09 20:05:23</a>
+随便查了下大概分别是1500 1000 5000，最后那个跟1st一个场子</blockquote>那还好，除了最后一场，前两场填满还是没问题的，被星团巡演搞的有点PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
