@@ -5112,3 +5112,33 @@ EMI也祝🐟生日快乐了，谢谢大前辈，真的对🐟很好。
 
 十大鲤语<img src="https://p.sda1.dev/9/573db9bd9c9d52f19ae7480e0cfe8080/CMP_20230109173856596.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 10960#       发表于 2023-1-9 17:42
+
+后知后觉我这直播有延迟，被聊天室疯狂剧透<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 10961#       发表于 2023-1-9 17:42
+
+鲤鱼已经社死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10962#       发表于 2023-1-9 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59273807&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-9 17:42</a>
+
+后知后觉我这直播有延迟，被聊天室疯狂剧透
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是刷新之后就好了
+
