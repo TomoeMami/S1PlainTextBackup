@@ -1580,3 +1580,12 @@ Yahoo新闻的评论里发现两个PC9801时代的古参
 
 莎拉接受不了
 
+
+
+*****
+
+####  qzfjnv  
+##### 262#       发表于 2023-1-9 11:42
+
+要是正常动画的话第一集里这个盐之桩事件肯定是故事核心中的核心，之后要围绕这个写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
