@@ -84,3 +84,12 @@ V隐退我猜应该是和公司直播理念不合吧，因为她要开坑从头�
 
 虽然之前的炸鸡发型卡已经有了，但还是把常服也抽了。
 
+
+
+*****
+
+####  cckuku  
+##### 7062#       发表于 2023-1-10 00:25
+
+看了下邦邦六周年发布会，现在我只希望你百2023年好好活着就完事，别瞎整活儿了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
