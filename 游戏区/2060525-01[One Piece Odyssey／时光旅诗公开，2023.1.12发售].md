@@ -560,3 +560,14 @@ bdsp赶工作，其实可以参考imas<img src="https://static.saraba1st.com/ima
 
 我寻思海贼无双3还挺好的啊，怎么就被遗忘了呢，虽然可操作角色是有点少，但能操作的都正反两套c技，挺不错的啊
 
+
+
+*****
+
+####  医生狼多  
+##### 63#         楼主| 发表于 2023-1-10 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59282466&amp;ptid=2060525" target="_blank">幻梦润 发表于 2023-1-10 10:51</a>
+我寻思海贼无双3还挺好的啊，怎么就被遗忘了呢，虽然可操作角色是有点少，但能操作的都正反两套c技，挺不错 ...</blockquote>
+后面还有出了4，都到凯多了，现在新剧情不够吧
+

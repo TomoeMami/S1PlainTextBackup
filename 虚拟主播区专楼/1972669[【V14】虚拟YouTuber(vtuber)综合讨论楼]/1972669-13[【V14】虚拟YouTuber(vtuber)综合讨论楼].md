@@ -2899,3 +2899,13 @@ syl
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  poipanchao  
+##### 18258#       发表于 2023-1-10 10:55
+
+明明快crcup了，大家反而一群人去打Valo
+只能说Apex确实过气了
+
