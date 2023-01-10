@@ -184,3 +184,14 @@ SD屏幕确实不如NS，低色域的垃圾，但是玩起来就无所谓这点�
 
 oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霖岚_  
+##### 612#       发表于 2023-1-10 10:45
+
+好奇问下国产win机用hdmi连显示器会自适应分辨率吗？
+
+之前想着用SD连显示器打游戏的，结果连上还是720P，难看得要死，还要自己开菜单调，而且老不是不灵，怪麻烦的
+
