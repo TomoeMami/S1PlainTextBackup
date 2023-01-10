@@ -9976,3 +9976,20 @@ ame在日本本土，不会吧
 
 [推特](https://twitter.com/Fir3k0/status/1611940813893959680?s=20&amp;t=7r8bsBLnWnuNE8f6x2xpBQ)久违的八字母漫画
 
+
+
+*****
+
+####  holoan  
+##### 3936#         楼主| 发表于 2023-1-10 17:49
+
+这封面咋一看真的像是什么野鸡切片频道的P图封面
+
+<img src="https://img.saraba1st.com/forum/202301/10/174949uf4t6tzmtsftsi34.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-10 17:49 上传
+
