@@ -2994,3 +2994,35 @@ riot music 跟芦泽saki和解了……和解了……？？
 
 —— 来自 OPPO PEHT00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  妹控使徒  
+##### 18266#       发表于 2023-1-11 01:56
+
+话说vspo有人是长期播塔科夫的吗
+
+忽然想起这社团是打枪女生为主要特色的话  可能不只是玩APEX吧
+
+*****
+
+####  poipanchao  
+##### 18267#       发表于 2023-1-11 01:58
+
+vspo里塔科夫玩的多可能就qp了，很早就入坑
+
+*****
+
+####  硫黄  
+##### 18268#       发表于 2023-1-11 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59293628&amp;ptid=1972669" target="_blank">sgssk 发表于 2023-1-11 00:46</a>
+
+riot music 跟芦泽saki和解了……和解了……？？
+
+意味わからん</blockquote>
+？这也能和解的吗
+
+看了眼油管号还没复活，不知道有没有戏
+
