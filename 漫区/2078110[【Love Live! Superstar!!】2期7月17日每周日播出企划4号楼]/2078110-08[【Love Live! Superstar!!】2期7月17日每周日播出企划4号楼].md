@@ -5698,3 +5698,14 @@ non没有打铁那种队长气质啊<img src="https://static.saraba1st.com/image
 这是今天例行记者会富士电视台对汪的提问
 驻日大使馆暂时还没有通知
 
+
+
+*****
+
+####  ruffian  
+##### 11021#       发表于 2023-1-10 20:34
+
+韩国停的是短期签证，日本估计也一样吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
