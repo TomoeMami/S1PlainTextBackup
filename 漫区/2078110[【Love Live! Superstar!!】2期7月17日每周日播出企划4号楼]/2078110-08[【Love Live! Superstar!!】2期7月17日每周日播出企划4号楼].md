@@ -5616,3 +5616,14 @@ DA32167F-1BB0-4EDA-8FC8-555C395684D4.jpeg
 
 哇塞，这C位妥妥的
 
+
+
+*****
+
+####  ruffian  
+##### 11012#       发表于 2023-1-10 17:27
+
+这大拇指举的可以截下来当表情包的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

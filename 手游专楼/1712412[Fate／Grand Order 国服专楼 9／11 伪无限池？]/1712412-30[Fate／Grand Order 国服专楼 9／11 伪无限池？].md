@@ -3471,3 +3471,15 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 一年多没玩，突然想回坑看看剧情。然后就上头氪个福袋抽奥伯龙歪了水阿比（其实就是馋水阿比身子），愤怒之 ...</blockquote>
 个人意见，马上要来的杀狐，狂那或者摩根选一个，两个都有两次复刻，看你是不是两个都要，后续就是标准的Rba和水伊吹，还有12月的奥伯龙就没问题了。
 
+
+
+*****
+
+####  Blackson  
+##### 44121#       发表于 2023-1-10 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59285718&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-1-10 15:05</a>
+
+一年多没玩，突然想回坑看看剧情。然后就上头氪个福袋抽奥伯龙歪了水阿比（其实就是馋水阿比身子），愤怒之 ...</blockquote>
+马上要来的杀狐抽一宝就行，接下来三月白情的狂娜和预计四月复刻的摩根看您自己的需求选哪个都可以，后半年会复刻。接下来就攒石抽RBA或水伊吹，然后年尾的奥伯龙抽一宝就行
+
