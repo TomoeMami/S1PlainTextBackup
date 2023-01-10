@@ -234,3 +234,15 @@ oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  bypass  
+##### 616#         楼主| 发表于 2023-1-10 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275640&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-1-9 19:59</a>
+
+oxp2光速送到</blockquote>
+感觉如何，话说那个手柄架子是附赠的还是单独买的？
+
