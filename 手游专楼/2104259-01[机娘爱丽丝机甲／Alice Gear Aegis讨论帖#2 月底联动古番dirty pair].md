@@ -78,3 +78,15 @@
 不负责任小道消息:周年卡池有最重量级女演员登场</blockquote>
 FA小结（逃）
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 163#         楼主| 发表于 2023-1-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59280835&amp;ptid=2104259" target="_blank">RioShiina 发表于 2023-1-10 08:23</a>
+
+FA小结（逃）</blockquote>
+我发完帖子就发现这个形容词有歧义了，果然有人来迫害小结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
