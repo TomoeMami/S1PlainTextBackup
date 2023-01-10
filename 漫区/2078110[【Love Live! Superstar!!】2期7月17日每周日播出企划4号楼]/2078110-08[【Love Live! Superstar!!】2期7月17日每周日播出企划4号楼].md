@@ -5686,3 +5686,15 @@ non没有打铁那种队长气质啊<img src="https://static.saraba1st.com/image
 
 国内鲤鱼小一岁同行阳康一个月没了，不知道本子那边阳康恢复是怎么做的？
 
+
+
+*****
+
+####  nufawneafg  
+##### 11020#       发表于 2023-1-10 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59288961&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-10 18:37</a>
+看隔壁说上面斗法停日本赴华签证？今年又不行了吗。</blockquote>
+这是今天例行记者会富士电视台对汪的提问
+驻日大使馆暂时还没有通知
+
