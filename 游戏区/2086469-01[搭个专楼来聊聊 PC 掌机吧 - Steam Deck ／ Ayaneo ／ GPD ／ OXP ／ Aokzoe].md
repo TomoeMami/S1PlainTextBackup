@@ -195,3 +195,17 @@ oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044
 
 之前想着用SD连显示器打游戏的，结果连上还是720P，难看得要死，还要自己开菜单调，而且老不是不灵，怪麻烦的
 
+
+
+*****
+
+####  bypass  
+##### 613#         楼主| 发表于 2023-1-10 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59282372&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2023-1-10 10:45</a>
+
+好奇问下国产win机用hdmi连显示器会自适应分辨率吗？
+
+之前想着用SD连显示器打游戏的，结果连上还是720P，难 ...</blockquote>
+理论上跟笔电没区别，笔电可以 Windows 掌机也可以
+
