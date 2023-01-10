@@ -2932,3 +2932,12 @@ syl
 你虹出个塔罗牌还要征集志愿者插画<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 我真是服了
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18261#       发表于 2023-1-10 17:56
+
+不是只是募集推测吗，插画是已经约好了。
+

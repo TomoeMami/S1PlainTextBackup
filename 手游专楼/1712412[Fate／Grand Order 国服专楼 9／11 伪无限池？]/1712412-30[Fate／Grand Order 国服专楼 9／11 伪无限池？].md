@@ -3483,3 +3483,39 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 一年多没玩，突然想回坑看看剧情。然后就上头氪个福袋抽奥伯龙歪了水阿比（其实就是馋水阿比身子），愤怒之 ...</blockquote>
 马上要来的杀狐抽一宝就行，接下来三月白情的狂娜和预计四月复刻的摩根看您自己的需求选哪个都可以，后半年会复刻。接下来就攒石抽RBA或水伊吹，然后年尾的奥伯龙抽一宝就行
 
+
+
+*****
+
+####  Mchaos  
+##### 44122#       发表于 2023-1-10 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59287744&amp;ptid=1712412" target="_blank">Blackson 发表于 2023-1-10 17:23</a>
+马上要来的杀狐抽一宝就行，接下来三月白情的狂娜和预计四月复刻的摩根看您自己的需求选哪个都可以，后半 ...</blockquote>
+好的，非常感谢。那看来要抽的还蛮多的，我得赶紧去挖矿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mchaos  
+##### 44123#       发表于 2023-1-10 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59286684&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-1-10 16:14</a>
+个人意见，马上要来的杀狐，狂那或者摩根选一个，两个都有两次复刻，看你是不是两个都要，后续就是标准的 ...</blockquote>
+收到，感谢
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Blackson  
+##### 44124#       发表于 2023-1-10 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59288309&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-1-10 17:56</a>
+
+好的，非常感谢。那看来要抽的还蛮多的，我得赶紧去挖矿了
+
+—— 来自 Xiaomi M2102K1C, Android  ...</blockquote>
+杀狐刚更新卡池，建议抽一个，否则得等年末才会有复刻
+
