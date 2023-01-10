@@ -14259,3 +14259,16 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 终于抽到了懿抹多
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 4289#       发表于 2023-1-10 09:23
+
+<img src="https://p.sda1.dev/9/9470972829234241fcda0d88f1576735/CMP_20230110092238590.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/fcca5014cb4f243d82f5923968e38990/CMP_20230110092238665.jpg" referrerpolicy="no-referrer">
+这也能解读出来？
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
