@@ -14272,3 +14272,17 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4290#       发表于 2023-1-10 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59281318&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2023-1-10 09:23</a>
+
+这也能解读出来？
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+好复杂...这就是螺旋社为2.7增加的工作量？
+
