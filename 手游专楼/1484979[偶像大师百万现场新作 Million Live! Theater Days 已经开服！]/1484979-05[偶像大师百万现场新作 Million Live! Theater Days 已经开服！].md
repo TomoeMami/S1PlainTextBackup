@@ -93,3 +93,14 @@ V隐退我猜应该是和公司直播理念不合吧，因为她要开坑从头�
 
 看了下邦邦六周年发布会，现在我只希望你百2023年好好活着就完事，别瞎整活儿了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  moonmagian  
+##### 7063#       发表于 2023-1-11 01:40
+
+mltd不像邦邦那样搞协力live或者pvp打歌活动，如果不是冲分数的顶层玩家感觉相对没那么在意强度问题，所以感觉运营整大活的可能性相对较小，不知道养成模式实装后情况会不会变化<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
