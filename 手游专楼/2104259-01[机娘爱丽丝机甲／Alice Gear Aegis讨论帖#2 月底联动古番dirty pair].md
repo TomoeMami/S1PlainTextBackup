@@ -57,3 +57,24 @@
 
 所以周年大新闻是啥（
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 161#         楼主| 发表于 2023-1-10 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59276644&amp;ptid=2104259" target="_blank">madcow 发表于 2023-1-9 21:13</a>
+
+所以周年大新闻是啥（</blockquote>
+不负责任小道消息:周年卡池有最重量级女演员登场
+
+*****
+
+####  RioShiina  
+##### 162#       发表于 2023-1-10 08:23
+
+<blockquote>江戸前ルナ 发表于 2023-1-10 08:21
+不负责任小道消息:周年卡池有最重量级女演员登场</blockquote>
+FA小结（逃）
+

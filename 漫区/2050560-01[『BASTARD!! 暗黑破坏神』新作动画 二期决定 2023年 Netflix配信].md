@@ -5806,3 +5806,12 @@ Netflix：2023年世界配信予定
 
 接下来好像是罪与罚篇，DS掉地狱见撒旦。有3期可能就能看到某巨乃大元帅和米迦勒那几个了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 448#       发表于 2023-1-10 08:26
+
+就方舟战那些大场面，第三季真的有可能吗？就算有估计场面要惨不忍睹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
