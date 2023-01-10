@@ -3439,3 +3439,15 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 绿ex福袋出了旅行者小王子，对正太无感，感觉这次新年开局不行。于是暗狐狸各种玄学抽了等效200石头只有两个四星加一，以为要目指低保了，还好第84发羽毛彩圈没歪。。。
 
+
+
+*****
+
+####  Mchaos  
+##### 44118#       发表于 2023-1-10 15:05
+
+一年多没玩，突然想回坑看看剧情。然后就上头氪个福袋抽奥伯龙歪了水阿比（其实就是馋水阿比身子），愤怒之下把暗狐抽到了三宝。现在请好兄弟们看看我这个号怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/71d73ba27ff87c6dc1c36e3b961c9559/CMP_20230110150435607.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
