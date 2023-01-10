@@ -5732,3 +5732,14 @@ http://jp.china-embassy.gov.cn/chn/lszcnew/lshzhch3/zhjfw3/202301/t20230110_1100
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去日本那边短期旅游签证也没开其实，哎
 
+
+
+*****
+
+####  cat1230  
+##### 11024#       发表于 2023-1-10 22:12
+
+现在的国际形式星应该也不会来中国演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
