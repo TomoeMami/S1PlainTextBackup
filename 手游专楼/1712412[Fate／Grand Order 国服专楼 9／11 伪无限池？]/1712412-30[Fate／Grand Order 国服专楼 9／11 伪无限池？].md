@@ -3451,3 +3451,12 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Urakawa  
+##### 44119#       发表于 2023-1-10 15:47
+
+从功能性上讲，抽三宝暗狐不如分出些抽一宝杀狐，有个水武藏上半年应该还能用吧。泳装的时候就有rba和水伊吹了
+
