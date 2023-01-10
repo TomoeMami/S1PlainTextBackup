@@ -90,3 +90,12 @@ FA小结（逃）
 FA小结（逃）</blockquote>
 我发完帖子就发现这个形容词有歧义了，果然有人来迫害小结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 164#       发表于 2023-1-10 17:07
+
+不是小结那就是星咯
+
