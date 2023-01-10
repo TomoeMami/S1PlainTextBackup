@@ -2941,3 +2941,26 @@ syl
 
 不是只是募集推测吗，插画是已经约好了。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18262#       发表于 2023-1-10 18:05
+
+<img src="https://img.saraba1st.com/forum/202301/10/175519corrie3vpyydtpff.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【にじさんじ5周年記念 キャンペーン🎁】.jpeg</strong> (643.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-10 17:55 上传
+
+5周年塔罗牌选中22人，是你虹官方心中论功行赏前22人吗
+
+让我猜猜：
+
+莎皇、黑黑、月撇、星川、刀也、さくゆい、ろふまお、3bk、あまみゃ、アルス
+
+hana、elira、selen、enna、vox、元kr随便哪个、en随便哪个4期后小废物
+
