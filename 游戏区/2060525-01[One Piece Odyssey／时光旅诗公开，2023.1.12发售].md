@@ -613,3 +613,12 @@ EIA测试p s 5画质模式4k30fps、性能模式1080p60fps。。。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ff2077  
+##### 68#       发表于 2023-1-10 21:23
+
+好像越来越多的游戏不给2k 60了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
