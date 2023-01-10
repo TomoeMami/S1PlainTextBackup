@@ -209,3 +209,28 @@ oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044
 之前想着用SD连显示器打游戏的，结果连上还是720P，难 ...</blockquote>
 理论上跟笔电没区别，笔电可以 Windows 掌机也可以
 
+
+
+*****
+
+####  恋妖壶  
+##### 614#       发表于 2023-1-10 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59275391&amp;ptid=2086469" target="_blank">martysama 发表于 2023-1-9 19:42</a>
+
+看参数好像是720p？看起来会不会很糊啊？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+你拿6800U也没法舒服的玩1200P，800P是现下的最优选
+
+*****
+
+####  martysama  
+##### 615#       发表于 2023-1-10 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59283693&amp;ptid=2086469" target="_blank">恋妖壶 发表于 2023-1-10 12:11</a>
+你拿6800U也没法舒服的玩1200P，800P是现下的最优选</blockquote>
+已经下单sd了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">等上手以后再看实际效果吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
