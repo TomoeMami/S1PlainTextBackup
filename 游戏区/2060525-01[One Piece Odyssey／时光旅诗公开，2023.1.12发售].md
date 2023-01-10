@@ -602,3 +602,14 @@ EIA测试p s 5画质模式4k30fps、性能模式1080p60fps。。。
 
 性能模式是ps4兼容版吧
 
+
+
+*****
+
+####  Eadric  
+##### 67#       发表于 2023-1-10 21:15
+
+这画质2k60都没<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

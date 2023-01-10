@@ -5709,3 +5709,26 @@ non没有打铁那种队长气质啊<img src="https://static.saraba1st.com/image
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 11022#       发表于 2023-1-10 21:14
+
+ 本帖最后由 nufawneafg 于 2023-1-10 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59289052&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-1-10 18:43</a>
+这是今天例行记者会富士电视台对汪的提问
+驻日大使馆暂时还没有通知</blockquote>
+正式通知了
+http://jp.china-embassy.gov.cn/chn/lszcnew/lshzhch3/zhjfw3/202301/t20230110_11005323.htm
+
+好简洁的通知，真出自秦部长之手？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 11023#       发表于 2023-1-10 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去日本那边短期旅游签证也没开其实，哎
+
