@@ -2982,3 +2982,15 @@ hana、elira、selen、enna、vox、元kr随便哪个、en随便哪个4期后小
 
 阿喵喵直播了两个小时学唱DCL，可爱
 
+
+
+*****
+
+####  sgssk  
+##### 18265#       发表于 2023-1-11 00:46
+
+riot music 跟芦泽saki和解了……和解了……？？
+意味わからん
+
+—— 来自 OPPO PEHT00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
