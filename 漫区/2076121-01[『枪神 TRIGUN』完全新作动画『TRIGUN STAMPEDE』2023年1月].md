@@ -1497,3 +1497,17 @@ PV那会儿法修人设改了就认定这片子铁烂片，第一集看完意外
 
 好牛逼的3D，预计接着看下去了，话说本来还想来楼里看看原作党剧透来着，结果发现似乎和原作以及旧动画都有差别啊
 
+
+
+*****
+
+####  index  
+##### 138#       发表于 2023-1-10 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59290451&amp;ptid=2076121" target="_blank">Mr1z 发表于 2023-1-10 20:20</a>
+
+好牛逼的3D，预计接着看下去了，话说本来还想来楼里看看原作党剧透来着，结果发现似乎和原作以及旧动画都有 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid=34977234](https://bbs.nga.cn/read.php?tid=34977234) 
+
+NGA那有个剧透贴透的挺详细的
+
