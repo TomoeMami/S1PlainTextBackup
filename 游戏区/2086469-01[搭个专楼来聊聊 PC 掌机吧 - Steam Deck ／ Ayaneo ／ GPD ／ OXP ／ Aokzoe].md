@@ -246,3 +246,14 @@ oxp2光速送到<img src="https://static.saraba1st.com/image/smiley/face2017/044
 oxp2光速送到</blockquote>
 感觉如何，话说那个手柄架子是附赠的还是单独买的？
 
+
+
+*****
+
+####  医生狼多  
+##### 617#       发表于 2023-1-10 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59284888&amp;ptid=2086469" target="_blank">bypass 发表于 2023-1-10 13:53</a>
+感觉如何，话说那个手柄架子是附赠的还是单独买的？</blockquote>
+没看到手柄架，应该是要单独买
+
