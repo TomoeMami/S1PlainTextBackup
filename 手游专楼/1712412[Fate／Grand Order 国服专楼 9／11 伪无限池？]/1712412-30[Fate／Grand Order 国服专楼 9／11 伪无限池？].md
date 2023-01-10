@@ -3519,3 +3519,17 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 Xiaomi M2102K1C, Android  ...</blockquote>
 杀狐刚更新卡池，建议抽一个，否则得等年末才会有复刻
 
+
+
+*****
+
+####  Mchaos  
+##### 44125#       发表于 2023-1-10 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59288398&amp;ptid=1712412" target="_blank">Blackson 发表于 2023-1-10 18:01</a>
+杀狐刚更新卡池，建议抽一个，否则得等年末才会有复刻</blockquote>
+笑死，已经抽了。然后升到80没qp了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/98ee01d7920957f91b7b9708e088d8f7/CMP_20230110182248786.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
