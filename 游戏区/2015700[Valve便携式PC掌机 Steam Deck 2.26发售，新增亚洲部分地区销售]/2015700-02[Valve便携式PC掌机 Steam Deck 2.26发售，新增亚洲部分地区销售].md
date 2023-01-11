@@ -29,3 +29,14 @@
 
 Deck玩仁王2经常闪退有什么办法么，刚开始以为播片容易闪退现在感觉随时都会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  云隐  
+##### 2038#       发表于 2023-1-11 21:41
+
+最近pdd的64g版已经3000多了，可以在等等
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

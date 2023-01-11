@@ -5818,3 +5818,14 @@ http://jp.china-embassy.gov.cn/chn/lszcnew/lshzhch3/zhjfw3/202301/t20230110_1100
 
 香音画的蛮好看的，可可这也太奇怪了。
 
+
+
+*****
+
+####  ruffian  
+##### 11032#       发表于 2023-1-11 21:46
+
+要不是发色我都看不出这是唐可可
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

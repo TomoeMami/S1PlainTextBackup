@@ -1590,3 +1590,25 @@ Orange为了进一步提高面部表情的质量标准，在《BEASTARS》的表
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">当原创看的，确实很乐呵
 
+
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 146#       发表于 2023-1-11 21:43
+
+橘子社技术力每部都是稳定进化一次，这次简直是剧场版水平（看着比SD新剧场版还舒服点<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+但除了溢出的技术力别的就很一言难尽，包括人设、美术还有演出，人设不多说了，海报看到法修新造型差点两眼一黑，翻pv看到牧师，我...没忍住当场爆粗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">哪来的小混混男高
+
+PLANT电灯泡变成土味培养罐也挺无语，还有半天掉不下来的子母弹怪味演出，呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+看pv后面打戏还可以，就看个打戏图一乐算了
+
+*****
+
+####  你妈的为什么  
+##### 147#       发表于 2023-1-11 21:45
+
+orange这个3d属实业界顶流了，每次看都有新进步
+
