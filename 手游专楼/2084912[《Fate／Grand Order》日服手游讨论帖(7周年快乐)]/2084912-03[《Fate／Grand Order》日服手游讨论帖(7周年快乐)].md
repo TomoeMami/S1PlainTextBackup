@@ -14544,3 +14544,15 @@ big胆  那叫终章！</blockquote>
 
 这段时间随便塞一个復刻活动也好吧...不过已有妖精国3个月的前例，当中有一次尼录祭已经算好了...
 
+
+
+*****
+
+####  都谷捻柏  
+##### 4315#       发表于 2023-1-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303145&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2023-1-11 17:09</a>
+
+艹  开幕直前到31号 难不成真要31才开异星的魔女第二季</blockquote>
+是1月32号
+
