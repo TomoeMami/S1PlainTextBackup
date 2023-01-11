@@ -1581,3 +1581,12 @@ Orange为了进一步提高面部表情的质量标准，在《BEASTARS》的表
 
 这几天观察下来感觉意见最大的都是老动画党，原作党虽然也有不满但因为跑来看漫画的新人变多了倒也还好，新人倒是全都看挺乐的
 
+
+
+*****
+
+####  Earendil_C  
+##### 145#       发表于 2023-1-11 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">当原创看的，确实很乐呵
+
