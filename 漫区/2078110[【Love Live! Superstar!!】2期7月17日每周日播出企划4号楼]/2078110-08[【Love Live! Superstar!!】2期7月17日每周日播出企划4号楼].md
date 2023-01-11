@@ -5849,3 +5849,27 @@ http://jp.china-embassy.gov.cn/chn/lszcnew/lshzhch3/zhjfw3/202301/t20230110_1100
 
 pay评价鱼，很厉害很尊敬（不是采访的话感觉可以是suki）。鱼评价小百合，小小的，可爱的
 
+
+
+*****
+
+####  csolfans  
+##### 11035#       发表于 2023-1-12 00:07
+
+<img src="https://img.saraba1st.com/forum/202301/12/000729zk38ty1lgsl5a3ty.png" referrerpolicy="no-referrer">
+
+<strong>-6b53fc9376575f18.png</strong> (38.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-12 00:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 11036#       发表于 2023-1-12 00:07
+
+这个采访太搞了，笑不停
+
