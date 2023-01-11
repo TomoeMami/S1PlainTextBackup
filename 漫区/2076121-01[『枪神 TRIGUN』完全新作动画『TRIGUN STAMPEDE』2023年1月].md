@@ -1612,3 +1612,15 @@ PLANT电灯泡变成土味培养罐也挺无语，还有半天掉不下来的子
 
 orange这个3d属实业界顶流了，每次看都有新进步
 
+
+
+*****
+
+####  Uruviel  
+##### 148#       发表于 2023-1-11 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59306819&amp;ptid=2076121" target="_blank">pokel 发表于 2023-1-11 21:18</a>
+
+这几天观察下来感觉意见最大的都是老动画党，原作党虽然也有不满但因为跑来看漫画的新人变多了倒也还好，新 ...</blockquote>
+原作党其实对老动画意见更大……反正如果这回剧情按漫画走（虽然看着也改了些设定吧，能让人去看原作当然是更好的。
+
