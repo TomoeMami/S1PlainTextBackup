@@ -4380,3 +4380,18 @@ lag玩家来些细碎的感想：
 —— 来自 OnePlus LE2100, Android 13上的 S1Next-鹅版 v2.5 ...</blockquote>
 不一定要特意带拳套，指令拳可以出现在铠甲和饰品上
 
+
+
+*****
+
+####  牙狼GARO  
+##### 3369#       发表于 2023-1-11 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303508&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-11 17:30</a>
+不一定要特意带拳套，指令拳可以出现在铠甲和饰品上</blockquote>
+指令拳装备盘已经有了，意思是去刷拳套的装备盘，用无属性拳套最好吧？
+
+话说武器防具饰品第一次获得装备盘以后提升的数值是固定的么？
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
