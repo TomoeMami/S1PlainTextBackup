@@ -1543,3 +1543,12 @@ verge那视频说按键和扳机质感和手感比普通好一些
 
 国行可以付尾款了，26后陆续发出
 
+
+
+*****
+
+####  贝爷徒弟  
+##### 166#       发表于 2023-1-11 13:59
+
+预定退了，还是先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
