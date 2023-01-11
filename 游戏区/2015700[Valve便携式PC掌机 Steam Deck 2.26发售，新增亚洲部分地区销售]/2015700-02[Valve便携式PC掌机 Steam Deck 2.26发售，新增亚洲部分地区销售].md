@@ -20,3 +20,12 @@
 
 现在推荐什么方式购买？海淘还是直接国内电商？
 
+
+
+*****
+
+####  u2deack  
+##### 2037#       发表于 2023-1-11 21:35
+
+Deck玩仁王2经常闪退有什么办法么，刚开始以为播片容易闪退现在感觉随时都会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
