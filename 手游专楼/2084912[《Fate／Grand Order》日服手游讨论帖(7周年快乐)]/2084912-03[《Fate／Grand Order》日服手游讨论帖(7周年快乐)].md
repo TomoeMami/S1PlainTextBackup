@@ -14371,3 +14371,66 @@ YLS这躺得真是让人无语，随便开个复刻活动都比现在硬长草�
 
 蝙蝠可能真的最快实装，毕竟安生都给了个升天的表情，可能就是暗示在赶工了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4300#       发表于 2023-1-11 17:30
+
+ 本帖最后由 Jamaisvu 于 2023-1-11 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303326&amp;ptid=2084912" target="_blank">里村红叶 发表于 2023-1-11 17:19</a>
+
+2.7后半这会儿怕是还没做完，可能前篇这几个从者都没做完</blockquote>
+【【FGO】雨神&amp;朱瑞鸟·红阎魔试玩-哔哩哔哩】 [https://b23.tv/dBOHwq1](https://b23.tv/dBOHwq1)
+
+【【FGO】冠位狂烟雾镜模组演示-哔哩哔哩】 [https://b23.tv/eXkq60c](https://b23.tv/eXkq60c)
+
+B站有人发了几个解包演示：雨神应该是没做完，有重复动作（站在雕像上祈雨）；朱瑞鸟看着不错，特效蛮帅的；烟雾镜完成度还行，就是有点朴素，估计有两套模组...
+
+本来我怀疑2.7工作量大可能是蘑菇精益求精啥的，看到做出来的角色不太满意要求返厂...但就这堆东西来看，在摆烂的螺旋社面前也没什么任性的余地......
+
+至少建模师化腐朽卡面为神奇建模还是挺辛苦的...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4301#       发表于 2023-1-11 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如奶奶看 2。7有没有终章
+
+*****
+
+####  里村紅葉  
+##### 4302#       发表于 2023-1-11 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303386&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-11 17:22</a>
+
+你这么一说我就开始期待蝙蝠神实装的可能性了
+
+“从大幽灵到限定卡～最速实装传说” ...</blockquote>
+YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很懂为什么人气这么高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 4303#       发表于 2023-1-11 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只希望2.7的角色全是没强度的废物
+
+*****
+
+####  Jamaisvu  
+##### 4304#       发表于 2023-1-11 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303607&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-11 17:37</a>
+
+YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很懂为什么人气这么高 ...</blockquote>
+立绘的精细度比较高吧，相比其他几位，有一种他才是主神的霸气感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且挺狂气的，有个性，比不知所谓面具男和内向忠犬小妹妹有乐子。
+
+不过嗷嗷怪叫满天飞，口头阐述大计划，也没啥逼格，有种道满那种谐星反派的迹象...
+
+（另外就是以女性玩家的视角看还挺色的，坦胸露乳兜裆布...）
+
