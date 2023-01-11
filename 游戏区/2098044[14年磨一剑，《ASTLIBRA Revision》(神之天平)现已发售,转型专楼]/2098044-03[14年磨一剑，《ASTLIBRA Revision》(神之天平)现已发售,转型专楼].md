@@ -4264,3 +4264,17 @@ lag玩家来些细碎的感想：
 2. 双手武器能用防反吗</blockquote>
 抗性100就不会被石化了，狂爆很怕这些异常状态，得弄满
 
+
+
+*****
+
+####  伊克路西安  
+##### 3361#       发表于 2023-1-11 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59295660&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-11 09:13</a>
+
+敏捷加到0，其他点力量，适当点魔导力，因为力量有衰减
+
+后面有可以同时带盾和双手武器的嘉隆技能</blockquote>
+如果用法杖的话，点攻击有用吗，还是只点魔力就可以了
+
