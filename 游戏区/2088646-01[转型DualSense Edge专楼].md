@@ -1564,3 +1564,12 @@ verge那视频说按键和扳机质感和手感比普通好一些
 预定退了，还是先观望吧</blockquote>
 +1，这个续航时间实在失望。我普通的Dualsense最大的问题也是续航不足，周末玩一下午的时候总是要在身边找个type-c充电头插上。
 
+
+
+*****
+
+####  wujae  
+##### 168#       发表于 2023-1-11 14:26
+
+补了，不过最晚30号发货都年后了，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
