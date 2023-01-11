@@ -14464,3 +14464,17 @@ YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很�
 YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很懂为什么人气这么高 ...</blockquote>
 日本那边其中一个高人气的原因：贡献了两个模型跟立绘都蛮不错的Alter，而且剧情来看应该还有第三个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4308#       发表于 2023-1-11 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303840&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-11 17:53</a>
+
+太废物了。有本事下篇打完告诉我还有下下篇。今年福袋我甚至没买。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">big胆  那叫终章！
+
