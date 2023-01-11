@@ -1573,3 +1573,12 @@ verge那视频说按键和扳机质感和手感比普通好一些
 
 补了，不过最晚30号发货都年后了，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新世界的派蒙  
+##### 169#       发表于 2023-1-11 15:30
+
+看了眼TB和JD都是随便预定，TB昨天就要补款了，JD预定才30块，发售前补款，果断JD了....好像这俩没讲究？
+
