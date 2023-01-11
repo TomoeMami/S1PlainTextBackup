@@ -4248,3 +4248,19 @@ lag玩家来些细碎的感想：
 
 抗性有用，但是抗性和适应力是挂钩的，极也不会说加特别多
 
+
+
+*****
+
+####  秘银mithril  
+##### 3360#       发表于 2023-1-11 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59295468&amp;ptid=2098044" target="_blank">伊克路西安 发表于 2023-1-11 08:58</a>
+
+拿到狂暴了，问几个问题：
+
+1. 狂暴怎么加点，敏捷点到负重0，然后力魔对点？
+
+2. 双手武器能用防反吗</blockquote>
+抗性100就不会被石化了，狂爆很怕这些异常状态，得弄满
+
