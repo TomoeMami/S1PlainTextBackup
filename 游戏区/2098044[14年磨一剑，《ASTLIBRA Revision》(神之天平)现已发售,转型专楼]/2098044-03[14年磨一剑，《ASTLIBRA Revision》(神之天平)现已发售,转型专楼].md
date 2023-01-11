@@ -4395,3 +4395,18 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3370#       发表于 2023-1-11 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59304521&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-11 18:41</a>
+指令拳装备盘已经有了，意思是去刷拳套的装备盘，用无属性拳套最好吧？
+
+话说武器防具饰品第一次获得装备 ...</blockquote>
+随便用，基本都是用兽爪
+
+重点其实不是攻击力，是另一个变异技能加的魔导力
+
