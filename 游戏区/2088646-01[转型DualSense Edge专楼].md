@@ -1582,3 +1582,19 @@ verge那视频说按键和扳机质感和手感比普通好一些
 
 看了眼TB和JD都是随便预定，TB昨天就要补款了，JD预定才30块，发售前补款，果断JD了....好像这俩没讲究？
 
+
+
+*****
+
+####  rainsheep  
+##### 170#       发表于 2023-1-11 16:45
+
+这手柄会像索尼耳机那样跳水吗
+
+*****
+
+####  ff2077  
+##### 171#       发表于 2023-1-11 16:48
+
+感觉pdd会大补贴<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
