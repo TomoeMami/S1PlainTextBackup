@@ -3555,3 +3555,21 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 全技能999我是做不到的，甚至五星全410我都还没做到
 
+
+
+*****
+
+####  艾尔特翔  
+##### 44128#       发表于 2023-1-11 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59285718&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-1-10 15:05</a>
+
+一年多没玩，突然想回坑看看剧情。然后就上头氪个福袋抽奥伯龙歪了水阿比（其实就是馋水阿比身子），愤怒之 ...</blockquote>
+不知道你打手宝具数，
+
+绿卡，单体有夹馍，全体有伯爵，等泳装抽个水CBA
+
+红卡，单体有山翁，三藏，黑贞，全体有棉被，有梅林，补个杀狐，然后等奥博隆，单体也可以考虑下金时
+
+蓝卡，有水武藏，有C呆，基本可以了，要补强可以考虑单体补狂王，水武藏一宝可以考虑泳装抽狂伊吹
+
