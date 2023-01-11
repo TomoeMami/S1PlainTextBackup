@@ -14510,3 +14510,15 @@ big胆  那叫终章！</blockquote>
 我意思是 2。7的终章  上下终（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">是不是还要来个2.7外传
 
+
+
+*****
+
+####  alucardcz  
+##### 4312#       发表于 2023-1-11 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59304211&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-11 18:18</a>
+
+是不是还要来个2.7外传</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都会有的（
+

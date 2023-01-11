@@ -1973,3 +1973,13 @@ op我记得有分校长跟黑旋风吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第二话先行图和情报都没人搬啊
 
+
+
+*****
+
+####  酷乐  
+##### 300#       发表于 2023-1-11 18:25
+
+今晚Nico播放第一话
+[https://ch.nicovideo.jp/sen-anime?from=nanime_sen-anime_chvideo](https://ch.nicovideo.jp/sen-anime?from=nanime_sen-anime_chvideo)
+
