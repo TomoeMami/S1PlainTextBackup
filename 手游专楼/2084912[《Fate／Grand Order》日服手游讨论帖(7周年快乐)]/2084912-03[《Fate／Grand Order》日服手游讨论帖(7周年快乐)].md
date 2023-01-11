@@ -14445,3 +14445,22 @@ YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很�
 YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很懂为什么人气这么高 ...</blockquote>
 我也对他无感甚至讨厌，但2.7前篇另外那几个男的画的什么玩意，人比人得死，蝙蝠至少画师上心画得比较精细些，其他我就不评论了
 
+
+
+*****
+
+####  areklose  
+##### 4306#       发表于 2023-1-11 17:53
+
+太废物了。有本事下篇打完告诉我还有下下篇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年福袋我甚至没买。
+
+*****
+
+####  仰望神的括约肌  
+##### 4307#       发表于 2023-1-11 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303607&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-11 17:37</a>
+
+YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很懂为什么人气这么高 ...</blockquote>
+日本那边其中一个高人气的原因：贡献了两个模型跟立绘都蛮不错的Alter，而且剧情来看应该还有第三个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
