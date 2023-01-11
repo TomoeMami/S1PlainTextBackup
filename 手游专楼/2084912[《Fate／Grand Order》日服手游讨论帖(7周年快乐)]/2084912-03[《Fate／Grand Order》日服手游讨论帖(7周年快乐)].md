@@ -14295,3 +14295,49 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹  开幕直前到31号 难不成真要31才开异星的魔女第二季
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4292#       发表于 2023-1-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303145&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2023-1-11 17:09</a>
+
+艹  开幕直前到31号 难不成真要31才开异星的魔女第二季</blockquote>
+盲猜一个2.7后篇结局是局长恢复了201四年的记忆，然后一巴掌把持枪袭击咕哒子的烟雾镜拍成番茄酱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 4293#       发表于 2023-1-11 17:14
+
+就这？太拉了，还能更拉些吗
+
+*****
+
+####  ——啧  
+##### 4294#       发表于 2023-1-11 17:15
+
+YLS这躺得真是让人无语，随便开个复刻活动都比现在硬长草强吧，在这硬躺<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 4295#       发表于 2023-1-11 17:19
+
+2.7后半这会儿怕是还没做完，可能前篇这几个从者都没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4296#       发表于 2023-1-11 17:20
+
+一开始我还侥幸地认为2022.12不出新角色是为了防剧透，结果前篇开了后，一堆丑逼+未完成模组...
+
+后篇前瞻这里其实可以提前放出个新角色活跃下气氛，结果又拿常驻卡PU糊弄事...
+
+制作组是不是有戴先生的铁粉，非得让他过了年再走啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+感觉螺旋社接手不是为了来让FGO发挥余热的，单纯就是收尸的护工，能多应付有多应付...
+
