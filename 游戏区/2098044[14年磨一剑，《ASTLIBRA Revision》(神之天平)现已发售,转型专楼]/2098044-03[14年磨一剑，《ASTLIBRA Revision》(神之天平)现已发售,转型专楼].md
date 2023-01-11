@@ -4278,3 +4278,15 @@ lag玩家来些细碎的感想：
 后面有可以同时带盾和双手武器的嘉隆技能</blockquote>
 如果用法杖的话，点攻击有用吗，还是只点魔力就可以了
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3362#       发表于 2023-1-11 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59296062&amp;ptid=2098044" target="_blank">伊克路西安 发表于 2023-1-11 09:48</a>
+
+如果用法杖的话，点攻击有用吗，还是只点魔力就可以了</blockquote>
+法杖只吃魔力加成，不吃狂暴
+

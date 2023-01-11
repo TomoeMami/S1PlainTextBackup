@@ -3533,3 +3533,16 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  没有演技  
+##### 44126#       发表于 2023-1-11 09:58
+
+还差91骨头6铁钉，持有的英灵全都能999。
+
+我想了想，强度抽卡&gt;肝无限池&gt;999
+
+那差不多目的达到了，也该回归初心了。xp抽卡走起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
