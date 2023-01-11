@@ -1964,3 +1964,12 @@ op我记得有分校长跟黑旋风吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一集看完，真实肉眼可见的寒酸，快进到妹子抓着黎恩的领子大喊“把我们的诺森比亚还回来”
 
+
+
+*****
+
+####  Aeons  
+##### 299#       发表于 2023-1-11 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第二话先行图和情报都没人搬啊
+

@@ -14341,3 +14341,33 @@ YLS这躺得真是让人无语，随便开个复刻活动都比现在硬长草�
 
 感觉螺旋社接手不是为了来让FGO发挥余热的，单纯就是收尸的护工，能多应付有多应付...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4297#       发表于 2023-1-11 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303326&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-11 17:19</a>
+
+2.7后半这会儿怕是还没做完，可能前篇这几个从者都没做完</blockquote>
+你这么一说我就开始期待蝙蝠神实装的可能性了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+“从大幽灵到限定卡～最速实装传说”
+
+*****
+
+####  不垃圾屌丝  
+##### 4298#       发表于 2023-1-11 17:29
+
+签到是到26号，那就是27号开吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  khxooo  
+##### 4299#       发表于 2023-1-11 17:30
+
+蝙蝠可能真的最快实装，毕竟安生都给了个升天的表情，可能就是暗示在赶工了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

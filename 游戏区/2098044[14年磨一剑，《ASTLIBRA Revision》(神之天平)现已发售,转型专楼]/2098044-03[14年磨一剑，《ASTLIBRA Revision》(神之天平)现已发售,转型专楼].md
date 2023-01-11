@@ -4343,3 +4343,40 @@ lag玩家来些细碎的感想：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3366#       发表于 2023-1-11 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303237&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-11 17:14</a>
+
+力量是和生命一样等级+3衰减么
+
+拿到了弑神剑，好家活三个装备盘上去了攻击力还没普通武器搞，有点可能是单 ...</blockquote>
+不用卖，去把竞技场打了，给一个装备中武器装备盘概率上升的饰品
+
+*****
+
+####  牙狼GARO  
+##### 3367#       发表于 2023-1-11 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303448&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2023-1-11 17:26</a>
+不用卖，去把竞技场打了，给一个装备中武器装备盘概率上升的饰品</blockquote>
+已经拿到了，带上拳套直接刷爆是吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红魔馆的糖  
+##### 3368#       发表于 2023-1-11 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303474&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-11 17:28</a>
+
+已经拿到了，带上拳套直接刷爆是吧
+
+—— 来自 OnePlus LE2100, Android 13上的 S1Next-鹅版 v2.5 ...</blockquote>
+不一定要特意带拳套，指令拳可以出现在铠甲和饰品上
+
