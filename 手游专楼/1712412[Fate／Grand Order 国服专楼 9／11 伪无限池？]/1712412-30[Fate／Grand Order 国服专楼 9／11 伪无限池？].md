@@ -3546,3 +3546,12 @@ bgo已经成为日常了，<img src="https://static.saraba1st.com/image/smiley/f
 
 那差不多目的达到了，也该回归初心了。xp抽卡走起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 44127#       发表于 2023-1-11 12:34
+
+全技能999我是做不到的，甚至五星全410我都还没做到
+
