@@ -14478,3 +14478,35 @@ YYSY，我觉得蝙蝠神立绘挺丑的，做的事情也神经刀，不是很�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">big胆  那叫终章！
 
+
+
+*****
+
+####  areklose  
+##### 4309#       发表于 2023-1-11 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303975&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-11 18:02</a>
+
+big胆  那叫终章！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">终章那是一回事。之前2.6说好下篇不还是来个戴冠式吗。
+
+*****
+
+####  alucardcz  
+##### 4310#       发表于 2023-1-11 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59304122&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-11 18:11</a>
+
+终章那是一回事。之前2.6说好下篇不还是来个戴冠式吗。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思是 2。7的终章  上下终（
+
+*****
+
+####  areklose  
+##### 4311#       发表于 2023-1-11 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59304136&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-11 18:12</a>
+
+我意思是 2。7的终章  上下终（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">是不是还要来个2.7外传
+
