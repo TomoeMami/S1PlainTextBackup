@@ -1542,3 +1542,26 @@ Orange社在蓝鸟上发布的枪神第一集制作过程：
 
 Orange为了进一步提高面部表情的质量标准，在《BEASTARS》的表情制作流程的基础上引入了新的概念模型和角色绑定的方法
 
+
+
+*****
+
+####  arisato  
+##### 140#       发表于 2023-1-11 20:58
+
+没有看过漫画和老动画，直接看觉得挺好看的，追了。上一次看3d为主的动画还要追溯到宝石之国，orange<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  知夏  
+##### 141#       发表于 2023-1-11 21:00
+
+等了好多年原作重置就等来这么个魔改的玩意
+
+*****
+
+####  JY要塞  
+##### 142#       发表于 2023-1-11 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico好评率这么低，是因为都是原作党吗
+
