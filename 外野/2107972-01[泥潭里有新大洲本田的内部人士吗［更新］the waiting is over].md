@@ -630,3 +630,14 @@ dax E什么时候上市啊？有消息吗？</blockquote>
 这玩意称作cub，本田宗一郎看到了能气活</blockquote>
 做成新国标电自还可以推锅给新国标，做成电摩就没法掩饰动力、续航方面远不如原版的缺陷了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  菲特妹  
+##### 63#       发表于 2023-1-12 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59314922&amp;ptid=2107972" target="_blank">fange 发表于 2023-1-12 13:21</a>
+广东来个厂山寨一下电驴cub应该会比现在这个好多</blockquote>
+早有了，宗申的yami有电动版，比这个更像cub<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
