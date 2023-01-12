@@ -618,3 +618,15 @@ dax E什么时候上市啊？有消息吗？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  各种浪  
+##### 62#       发表于 2023-1-12 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59314169&amp;ptid=2107972" target="_blank">bg54188 发表于 2023-1-12 12:17</a>
+
+这玩意称作cub，本田宗一郎看到了能气活</blockquote>
+做成新国标电自还可以推锅给新国标，做成电摩就没法掩饰动力、续航方面远不如原版的缺陷了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

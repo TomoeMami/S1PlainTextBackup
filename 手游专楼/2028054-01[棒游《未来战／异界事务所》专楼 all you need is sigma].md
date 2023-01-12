@@ -31,3 +31,12 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  smdzh2  
+##### 821#       发表于 2023-1-12 14:55
+
+克丽丝可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
