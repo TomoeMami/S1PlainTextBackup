@@ -4574,3 +4574,24 @@ b站也有一些信息或许你也需要[https://www.bilibili.com/read/cv1955511
 b站也有 ...</blockquote>
 请问楼内提到的魔法扫帚是其中的哪一个？
 
+
+
+*****
+
+####  tansapple  
+##### 3384#       发表于 2023-1-12 17:29
+
+ 本帖最后由 tansapple 于 2023-1-12 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59318224&amp;ptid=2098044" target="_blank">yodiudiu 发表于 2023-1-12 17:07</a>
+请问楼内提到的魔法扫帚是其中的哪一个？</blockquote>
+是雷姬的变异技能，本来是招雷姬出来当召唤兽，技能变异为魔法扫帚后变成给主角加魔导。
+
+*****
+
+####  tansapple  
+##### 3385#       发表于 2023-1-12 17:29
+
+ 本帖最后由 tansapple 于 2023-1-12 17:30 编辑 
+
+泥潭又卡了
+
