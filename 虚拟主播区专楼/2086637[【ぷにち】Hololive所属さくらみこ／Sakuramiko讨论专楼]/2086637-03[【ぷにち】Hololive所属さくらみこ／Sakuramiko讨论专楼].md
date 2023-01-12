@@ -10101,3 +10101,20 @@ pekomiko大战争
 
 这个初代35捏得不错,攻击还带出樱花瓣的
 
+
+
+*****
+
+####  rs5621  
+##### 3947#       发表于 2023-1-12 23:32
+
+<img src="https://img.saraba1st.com/forum/202301/12/233154hnputdal9t1p9c9p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-12 23:31 上传
+
+捏得好
+
