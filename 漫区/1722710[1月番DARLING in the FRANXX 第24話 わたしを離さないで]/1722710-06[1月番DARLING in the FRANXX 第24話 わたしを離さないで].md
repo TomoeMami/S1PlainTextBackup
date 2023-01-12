@@ -174,3 +174,12 @@
 
 —— 来自 HUAWEI BMH-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  拉萨乌姆  
+##### 8242#       发表于 2023-1-13 01:49
+
+已经记不清讲的啥了
+

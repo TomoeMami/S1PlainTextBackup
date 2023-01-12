@@ -4666,3 +4666,17 @@ b站也有 ...</blockquote>
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  tansapple  
+##### 3390#       发表于 2023-1-13 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59324312&amp;ptid=2098044" target="_blank">onezer0618 发表于 2023-1-13 00:42</a>
+
+通了，小徽章齐了也用了但是没跳成就，魔导水晶还差4个懒得找了
+
+—— 来自 vivo V2241A, Android 13上的 S ...</blockquote>
+小徽章成就的BUG一直没修，需要重新登录一下才会跳成就。
+
