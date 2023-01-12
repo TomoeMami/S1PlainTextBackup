@@ -4513,3 +4513,17 @@ lag玩家来些细碎的感想：
 
 请问 所有的 凭依技 信息，包括装备盘替换的，去哪里可以查到列表？
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 3380#       发表于 2023-1-12 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59311779&amp;ptid=2098044" target="_blank">——啧 发表于 2023-1-12 08:51</a>
+每次升级或者碰到蓝水晶都能洗点
+我刚开始还纳闷这个点进去之后怎么还能升级 ...</blockquote>
+原来是这个洗点，我以为洗天赋树呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
