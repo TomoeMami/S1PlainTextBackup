@@ -14556,3 +14556,15 @@ big胆  那叫终章！</blockquote>
 艹  开幕直前到31号 难不成真要31才开异星的魔女第二季</blockquote>
 是1月32号
 
+
+
+*****
+
+####  UNISONIA  
+##### 4316#       发表于 2023-1-12 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303502&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-11 17:30</a>
+
+蝙蝠可能真的最快实装，毕竟安生都给了个升天的表情，可能就是暗示在赶工了 ...</blockquote>
+安生已经升职了，上一张做的卡按照访谈推测都是2.6时期的了
+
