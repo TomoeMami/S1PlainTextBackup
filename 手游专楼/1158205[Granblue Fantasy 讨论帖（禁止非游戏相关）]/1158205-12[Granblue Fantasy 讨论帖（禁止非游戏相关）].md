@@ -381,3 +381,12 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 打150，湿婆没能导出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 17258#       发表于 2023-1-12 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明天200不敢想象要怎么打，波奇也太猛了，刀刀烈火
+
