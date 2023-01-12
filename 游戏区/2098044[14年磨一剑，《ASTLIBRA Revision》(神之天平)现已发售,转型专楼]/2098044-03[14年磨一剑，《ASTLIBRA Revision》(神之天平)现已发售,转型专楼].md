@@ -4478,3 +4478,29 @@ lag玩家来些细碎的感想：
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ——啧  
+##### 3377#       发表于 2023-1-12 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59311164&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2023-1-12 04:03</a>
+啊？还能洗点的?我打通了都不知道可以洗点
+
+—— 来自 S1Fun</blockquote>
+每次升级或者碰到蓝水晶都能洗点
+我刚开始还纳闷这个点进去之后怎么还能升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ——啧  
+##### 3378#       发表于 2023-1-12 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59311164&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2023-1-12 04:03</a>
+啊？还能洗点的?我打通了都不知道可以洗点
+
+—— 来自 S1Fun</blockquote>
+每次升级或者碰到蓝水晶都能洗点
+我刚开始还纳闷这个点进去之后怎么还能升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
