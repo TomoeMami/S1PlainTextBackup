@@ -5882,3 +5882,14 @@ pay评价鱼，很厉害很尊敬（不是采访的话感觉可以是suki）。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小小的很可爱的铃原和吃到流弹的鲨鱼
 
+
+
+*****
+
+####  s3081260  
+##### 11038#       发表于 2023-1-12 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59309357&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-11 23:51</a>
+pay评价鱼，很厉害很尊敬（不是采访的话感觉可以是suki）。鱼评价小百合，小小的，可爱的 ...</blockquote>
+其他人的采访都挺亲近的说些小细节，只有pay的特别……礼貌，emmm
+
