@@ -4527,3 +4527,19 @@ lag玩家来些细碎的感想：
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  gwchobit  
+##### 3381#       发表于 2023-1-12 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59311995&amp;ptid=2098044" target="_blank">yodiudiu 发表于 2023-1-12 09:16</a>
+
+请问 所有的 凭依技 信息，包括装备盘替换的，去哪里可以查到列表？</blockquote>
+装备盘没有列表，随机生成的。
+
+技能信息wiki上有[https://w.atwiki.jp/astlibra/sp/pages/55.html](https://w.atwiki.jp/astlibra/sp/pages/55.html)
+
+b站也有一些信息或许你也需要[https://www.bilibili.com/read/cv19555119](https://www.bilibili.com/read/cv19555119)
+
