@@ -5902,3 +5902,26 @@ pay评价鱼，很厉害很尊敬（不是采访的话感觉可以是suki）。�
 
 看这采访，感觉鲨鱼长高了一些些？
 
+
+
+*****
+
+####  优妮可  
+##### 11040#       发表于 2023-1-12 09:44
+
+<blockquote>s3081260 发表于 2023-1-12 09:28
+其他人的采访都挺亲近的说些小细节，只有pay的特别……礼貌，emmm</blockquote>
+因为是微博这边的，而且是要评价鱼，礼貌官方点可以理解
+
+
+
+*****
+
+####  starring  
+##### 11041#       发表于 2023-1-12 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59312317&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-12 09:44</a>
+
+因为是微博这边的，而且是要评价鱼，礼貌官方点可以理解</blockquote>
+毕竟官方场合不能说像是手指很漂亮之类的话<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
