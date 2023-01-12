@@ -641,3 +641,12 @@ dax E什么时候上市啊？有消息吗？</blockquote>
 广东来个厂山寨一下电驴cub应该会比现在这个好多</blockquote>
 早有了，宗申的yami有电动版，比这个更像cub<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  russianbear  
+##### 64#       发表于 2023-1-12 21:27
+
+本质换壳wave110
+
