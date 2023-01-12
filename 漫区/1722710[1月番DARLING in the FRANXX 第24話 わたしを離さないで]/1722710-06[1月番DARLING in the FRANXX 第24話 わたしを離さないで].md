@@ -131,3 +131,46 @@
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  御坂MKII  
+##### 8237#       发表于 2023-1-13 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漫区该大力引进管人区的syl了
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百合厨厨  
+##### 8238#       发表于 2023-1-13 00:44
+
+河豚的时代
+
+*****
+
+####  米奥莉奈  
+##### 8239#       发表于 2023-1-13 00:45
+
+雕栏玉砌应犹在，只是鸟笼改
+
+*****
+
+####  古镇吴彦祖  
+##### 8240#       发表于 2023-1-13 00:49
+
+可惜水魔红白比较明确<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">,这种原创大药片啥时候再来部
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猫兔同笼  
+##### 8241#       发表于 2023-1-13 00:52
+
+光阴似箭，岁月如梭啊！今天你和大XX和解了吗？
+
+—— 来自 HUAWEI BMH-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
