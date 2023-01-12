@@ -13460,3 +13460,16 @@ P.S. 小火驴是真有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  林宏  
+##### 2894#       发表于 2023-1-12 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59320513&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2023-1-12 20:21</a>
+02 03终于出现</blockquote>
+nb特有的诈尸<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，不知道椰子能不能携仙姑打赢复活赛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
