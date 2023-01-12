@@ -680,3 +680,16 @@ show一下自己爱车刚提车时候的照片<img src="https://static.saraba1st
 
 另外国内价格的话，1w估计有点困难，日本官方售价含税36w日元，不过现车很少，基本全部拿下要38w甚至40w日元，折算一下都2w rmb了。。1w rmb国内能拿下的话只能说honda特别热爱中国市场吧
 
+
+
+*****
+
+####  bg54188  
+##### 67#         楼主| 发表于 2023-1-13 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59323855&amp;ptid=2107972" target="_blank">flyang 发表于 2023-1-13 00:03</a>
+show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号 ...</blockquote>
+按照本田一贯的尿性，cross cub确实不太可能真的卖1万4…
+
+毕竟是要钱不要脸的轰达
+
