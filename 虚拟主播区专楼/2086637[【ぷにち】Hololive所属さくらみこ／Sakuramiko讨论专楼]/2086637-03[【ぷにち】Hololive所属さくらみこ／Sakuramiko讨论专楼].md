@@ -10013,3 +10013,12 @@ ame在日本本土，不会吧
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3939#       发表于 2023-1-12 21:00
+
+该开直播了
+
