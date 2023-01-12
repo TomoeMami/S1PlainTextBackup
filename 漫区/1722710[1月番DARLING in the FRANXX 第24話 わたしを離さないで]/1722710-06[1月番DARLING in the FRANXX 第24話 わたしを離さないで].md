@@ -43,3 +43,91 @@
 不知道我当时回复过没有。</blockquote>
 看来没有，印象中也没有参与过讨论。
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 8228#       发表于 2023-1-13 00:33
+
+所以水魔数据和国家队比何如<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御坂MKII  
+##### 8229#       发表于 2023-1-13 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么又要让死去的记忆攻击我
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿姆罗二世  
+##### 8230#       发表于 2023-1-13 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59324218&amp;ptid=1722710" target="_blank">亚瑟邓特 发表于 2023-01-13 00:33:22</a>
+所以水魔数据和国家队比何如 v2.5.4</blockquote>不是一个档次的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">水魔几个砖楼加起来平均是蝈蝈的三倍多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黒蜜ねね  
+##### 8231#       发表于 2023-1-13 00:34
+
+鞭尸带个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 8232#       发表于 2023-1-13 00:35
+
+当年还没这么QQ群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives  
+##### 8233#       发表于 2023-1-13 00:35
+
+永远怀念<img src="https://static.saraba1st.com/image/smiley/carton2017/277.png" referrerpolicy="no-referrer">
+
+现在的你一定变成<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">了吧
+
+*****
+
+####  灼眼的夏娜酱  
+##### 8234#       发表于 2023-1-13 00:36
+
+<blockquote>亚瑟邓特 发表于 2023-1-13 00:33
+所以水魔数据和国家队比何如
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+水魔现在的数据除以25也都超了。
+
+*****
+
+####  可知歌者也奈何  
+##### 8235#       发表于 2023-1-13 00:37
+
+五年前发病的时光还历历在目<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  亚瑟邓特  
+##### 8236#       发表于 2023-1-13 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59324238&amp;ptid=1722710" target="_blank">御坂MKII 发表于 2023-1-13 00:35</a>
+当年还没这么QQ群
+
+—— 来自 Xiaomi 2203121C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+感觉是管人的功劳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
