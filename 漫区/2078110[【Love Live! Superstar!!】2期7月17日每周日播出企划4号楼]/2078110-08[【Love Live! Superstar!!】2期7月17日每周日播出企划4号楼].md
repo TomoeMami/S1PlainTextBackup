@@ -5925,3 +5925,12 @@ pay评价鱼，很厉害很尊敬（不是采访的话感觉可以是suki）。�
 因为是微博这边的，而且是要评价鱼，礼貌官方点可以理解</blockquote>
 毕竟官方场合不能说像是手指很漂亮之类的话<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  懂你意思  
+##### 11042#       发表于 2023-1-12 10:18
+
+pay每次采访啥的感觉都很紧张，另外四个完全是老油子了游刃有余
+
