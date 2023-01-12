@@ -266,3 +266,14 @@ oxp2光速送到</blockquote>
 
 顺便说下，peakdo的毫米波掌机现在还可以预定，不过说是掌机其实就是块7寸屏……
 
+
+
+*****
+
+####  魔法酪饼  
+##### 619#       发表于 2023-1-12 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看啊b上有些up的说法，aok的首批新主板更换测试下周就开始？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
