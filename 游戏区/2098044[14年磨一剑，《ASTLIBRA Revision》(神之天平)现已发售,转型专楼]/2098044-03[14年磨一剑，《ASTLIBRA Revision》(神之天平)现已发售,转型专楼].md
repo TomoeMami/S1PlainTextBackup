@@ -4504,3 +4504,12 @@ lag玩家来些细碎的感想：
 每次升级或者碰到蓝水晶都能洗点
 我刚开始还纳闷这个点进去之后怎么还能升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yodiudiu  
+##### 3379#       发表于 2023-1-12 09:16
+
+请问 所有的 凭依技 信息，包括装备盘替换的，去哪里可以查到列表？
+
