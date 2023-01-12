@@ -1673,3 +1673,12 @@ orange这个3d属实业界顶流了，每次看都有新进步
 
 —— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  saturnus  
+##### 154#       发表于 2023-1-12 13:19
+
+trigun的精神内核和Trinity blood太相似了，从年份上看应该是后者借鉴了不少前者的东西，比如男主都是百年老妖怪，圣母，苦大深仇，日常废柴且扮猪吃老虎的人设，且外加都有一个作为boss的双子兄弟，一个充满母性光环且被KO的年上女性作为精神支柱，以及高文明毁灭后的废土设定<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
