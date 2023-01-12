@@ -104,3 +104,12 @@ mltd不像邦邦那样搞协力live或者pvp打歌活动，如果不是冲分数
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  花开安菲路  
+##### 7064#       发表于 2023-1-12 16:40
+
+春香这个紫白异色服好看，不过要攒钻等杏奈常服和发色卡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
