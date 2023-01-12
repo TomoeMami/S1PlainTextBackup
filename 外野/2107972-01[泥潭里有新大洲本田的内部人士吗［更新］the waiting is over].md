@@ -659,3 +659,24 @@ dax E什么时候上市啊？有消息吗？</blockquote>
 
 这算摩托车么？ 
 
+
+
+*****
+
+####  flyang  
+##### 66#       发表于 2023-1-13 00:03
+
+ 本帖最后由 flyang 于 2023-1-13 00:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202301/13/000208ajxp6g9ag6qvxge4.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230113010141.jpg</strong> (568.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-13 00:02 上传
+
+show一下自己爱车刚提车时候的照片<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号，国内这个红色日本是没有的，日本只有灰色，浅蓝和我这种墨绿色
+
+另外国内价格的话，1w估计有点困难，日本官方售价含税36w日元，不过现车很少，基本全部拿下要38w甚至40w日元，折算一下都2w rmb了。。1w rmb国内能拿下的话只能说honda特别热爱中国市场吧
+
