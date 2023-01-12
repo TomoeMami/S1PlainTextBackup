@@ -13449,3 +13449,14 @@ P.S. 小火驴是真有 ...</blockquote>
 
 02 03终于出现<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  林宏  
+##### 2893#       发表于 2023-1-12 20:36
+
+我去，买的时候忘了充b币，充完去买直接变成两千多，手速好快都
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
