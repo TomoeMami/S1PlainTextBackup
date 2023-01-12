@@ -4558,3 +4558,19 @@ b站也有一些信息或许你也需要[https://www.bilibili.com/read/cv1955511
 
 终盘让玩家刷刷刷的理由突出一个合理
 
+
+
+*****
+
+####  yodiudiu  
+##### 3383#       发表于 2023-1-12 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59315243&amp;ptid=2098044" target="_blank">gwchobit 发表于 2023-1-12 13:46</a>
+
+装备盘没有列表，随机生成的。
+
+技能信息wiki上有https://w.atwiki.jp/astlibra/sp/pages/55.html
+
+b站也有 ...</blockquote>
+请问楼内提到的魔法扫帚是其中的哪一个？
+
