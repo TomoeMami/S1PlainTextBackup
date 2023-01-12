@@ -10084,3 +10084,20 @@ ame在日本本土，不会吧
 
 pekomiko大战争
 
+
+
+*****
+
+####  rs5621  
+##### 3946#       发表于 2023-1-12 23:11
+
+<img src="https://img.saraba1st.com/forum/202301/12/231139qwdyyyvh35oxz8y8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-12 23:11 上传
+
+这个初代35捏得不错,攻击还带出樱花瓣的
+
