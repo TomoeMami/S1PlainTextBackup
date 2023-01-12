@@ -13511,3 +13511,14 @@ nb特有的诈尸<img src="https://static.saraba1st.com/image/smiley/face2017/01
 
 叶子最近好忙啊，估计小年夜叶子还是mc担当，甚至可能提前公开3d形象
 
+
+
+*****
+
+####  MinFOrder  
+##### 2899#       发表于 2023-1-13 00:26
+
+**炸弹人，今天直播效果本来算好的，没了。看b站15号怎么处理了，估计不会完全停，但肯定得给狠狠培训一波怎么不把房间号漏出去。
+
+隔壁B综还有人经典受害者有罪论，又成受害者太敏感全责了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
