@@ -362,3 +362,22 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 定好的日程不能改的 改了就会出大BUG  之前就闹过这种笑话了 
 现在只炸一晚还可以靠吃了休息日补 以后哪次要是炸了两晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  faxi  
+##### 17257#       发表于 2023-1-12 15:27
+
+终突时嘲笑湿婆
+
+实装时嘲笑湿婆
+
+预选时嘲笑湿婆
+
+打95嘲笑湿婆
+
+打100嘲笑湿婆
+
+打150，湿婆没能导出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
