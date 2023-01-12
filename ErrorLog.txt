@@ -1,27 +1,3 @@
 
 'NoneType' object has no attribute 'group'
 !!error:id=2114000
-list index out of range
-!!error:id=2113547
-list index out of range
-!!error:id=2113885
-list index out of range
-!!error:id=2110205
-list index out of range
-!!error:id=1123047
-list index out of range
-!!error:id=2009746
-list index out of range
-!!error:id=2114348
-list index out of range
-!!error:id=2114354
-list index out of range
-!!error:id=2114054
-list index out of range
-!!error:id=2114346
-list index out of range
-!!error:id=2114095
-list index out of range
-!!error:id=2114336
-list index out of range
-!!error:id=2114457
