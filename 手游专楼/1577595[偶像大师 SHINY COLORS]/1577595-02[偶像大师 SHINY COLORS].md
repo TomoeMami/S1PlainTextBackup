@@ -47,3 +47,14 @@ match live已知的BUG
 
 能够调节的地方非常多，基本就是针对对手比育成思路。除了瞎改注目度以外这模式还算可以。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2694#       发表于 2023-1-12 15:51
+
+ 本帖最后由 兔姬姬姬姬姬 于 2023-1-12 15:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">ml规则下的瞩目度修改后，vi挂件位一下子没什么好刀和buff了，难顶。用gfes队伍打到80层就歇逼了
+
