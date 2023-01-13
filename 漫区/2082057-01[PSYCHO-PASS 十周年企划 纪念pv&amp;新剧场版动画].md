@@ -680,3 +680,16 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二季好歹是能审判西比拉了，结果剧场版跑东南亚打民间武装去了，这一回在处置西比拉态度上能产生变革并不抱希望
 
+
+
+*****
+
+####  751984871  
+##### 72#       发表于 2023-1-13 13:05
+
+ 本帖最后由 751984871 于 2023-1-13 13:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328943&amp;ptid=2082057" target="_blank">发财就收 发表于 2023-1-13 12:41</a>
+
+只是故事原案，剧本没参与，感觉跟第三季的staff差不多</blockquote>
+我不会把功劳或锅扣在他上。只是感觉被写在KV上应该会比以前没写的那几部拿到多点钱。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
