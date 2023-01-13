@@ -1607,3 +1607,14 @@ verge那视频说按键和扳机质感和手感比普通好一些
 
 说是才准备推送PS5系统更新。我还以为10号就能发货了呢.. 结果最晚30号，也不知道还要等多久
 
+
+
+*****
+
+####  医生狼多  
+##### 173#       发表于 2023-1-13 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59336392&amp;ptid=2088646" target="_blank">ybfelix 发表于 2023-1-13 20:39</a>
+说是才准备推送PS5系统更新。我还以为10号就能发货了呢.. 结果最晚30号，也不知道还要等多久 ...</blockquote>
+全球26号发售，国内跟着一块的
+
