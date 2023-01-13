@@ -2294,3 +2294,19 @@ B站港澳台：
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  妄想中毒  
+##### 331#       发表于 2023-1-14 00:57
+
+罗根提议主动进攻帝国把我给整笑了，就算没骑神光是普通机甲兵也不是你们猎兵团能应付的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lil_is  
+##### 332#       发表于 2023-1-14 00:59
+
+小丑一看就是来为相克拱火的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

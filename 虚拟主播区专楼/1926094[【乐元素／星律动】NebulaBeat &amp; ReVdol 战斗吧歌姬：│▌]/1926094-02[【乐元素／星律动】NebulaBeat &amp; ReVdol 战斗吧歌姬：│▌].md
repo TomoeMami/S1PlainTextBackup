@@ -13549,3 +13549,14 @@ nb特有的诈尸<img src="https://static.saraba1st.com/image/smiley/face2017/01
 
 脉冲星估计一次性要进好几个，粉红猫今日堂堂停播，估计是要等新皮。驴的装扮3928号，霍露露新开小号的装扮3930号，中间夹着的3929是叫阿买official的，估计霍露露和阿买这俩也是稳进了。
 
+
+
+*****
+
+####  提取温暖度严寒  
+##### 2903#       发表于 2023-1-14 00:53
+
+粉红猫到底来不来，有没有看了详细直播的老哥说一下
+
+P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不来<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
