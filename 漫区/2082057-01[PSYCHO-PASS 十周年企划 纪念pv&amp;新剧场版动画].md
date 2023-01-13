@@ -693,3 +693,12 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 只是故事原案，剧本没参与，感觉跟第三季的staff差不多</blockquote>
 我不会把功劳或锅扣在他上。只是感觉被写在KV上应该会比以前没写的那几部拿到多点钱。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 73#       发表于 2023-1-13 13:22
+
+可惜台版只出了几本，还有挺多没翻译都挺想看的
+
