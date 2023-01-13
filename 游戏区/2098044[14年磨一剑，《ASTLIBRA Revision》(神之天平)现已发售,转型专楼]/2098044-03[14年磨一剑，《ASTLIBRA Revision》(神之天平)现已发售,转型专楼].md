@@ -4743,3 +4743,12 @@ b站也有 ...</blockquote>
 
 命运女神的机制好傻逼啊，墨迹的要死，接着那条龙也是打到手酸，54级打着刮痧，难不成是80级才去通关吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Motoko-9  
+##### 3396#       发表于 2023-1-14 06:49
+
+第五章是**恶心，不明不白就把白给噶了，我还只有一个开头的档
+
