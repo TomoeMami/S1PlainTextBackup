@@ -136,3 +136,12 @@ FA小结（逃）</blockquote>
 
 我只想知道铁炉到底是什么来头，为什么可以成为你游唯一普池单pu角色，我也看不出她对主线有什么作用啊
 
+
+
+*****
+
+####  孫光龍  
+##### 169#       发表于 2023-1-13 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">staff里面有厨子呗，还用想
+
