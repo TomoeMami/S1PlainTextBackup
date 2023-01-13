@@ -6167,3 +6167,16 @@ EECD8344-40A5-4F7A-8940-9871EC3C32FB.jpeg
 在GSC天猫下单了才知道叔叔家用券后才274</blockquote>
 叔叔家不是299-10吗，还没有随机立减属实是知道这玩意不愁卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 11060#       发表于 2023-1-13 14:12
+
+ 本帖最后由 starring 于 2023-1-13 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59329820&amp;ptid=2078110" target="_blank">adw667 发表于 2023-1-13 13:38</a>
+
+叔叔家不是299-10吗，还没有随机立减属实是知道这玩意不愁卖吗</blockquote>
+大概因为我没在叔叔家买过东西，有一张新人券159-25，不过下单就没所谓了，在GSC除了粘土人可可还有Mark Alles等着补款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
