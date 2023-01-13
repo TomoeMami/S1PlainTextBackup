@@ -127,3 +127,12 @@ FA小结（逃）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">九哥fa给周年？
 难道不应该是新演员周年，九哥fa月底么
 
+
+
+*****
+
+####  delphinian  
+##### 168#       发表于 2023-1-13 18:14
+
+我只想知道铁炉到底是什么来头，为什么可以成为你游唯一普池单pu角色，我也看不出她对主线有什么作用啊
+
