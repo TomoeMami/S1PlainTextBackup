@@ -2017,3 +2017,23 @@ op我记得有分校长跟黑旋风吧
 
 蓝毛逼逼半天自己的主意就是先打帝国？
 
+
+
+*****
+
+####  酷乐  
+##### 305#       发表于 2023-1-13 22:02
+
+B站港澳台：
+[https://www.bilibili.com/bangumi/play/ep721995](https://www.bilibili.com/bangumi/play/ep721995)
+
+*****
+
+####  kamarus  
+##### 306#       发表于 2023-1-13 22:05
+
+ 本帖最后由 kamarus 于 2023-1-13 22:07 编辑 
+
+太nb了，闪击帝国，三天打到帝都门口扬了奥斯本咧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有有人说跳舞的是呐呐呐二次元，不会吧，庭院那群傻屌玩意这么早出来作死？我真的不想再看到二次元呐呐呐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

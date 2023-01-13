@@ -703,3 +703,12 @@ bgm 当个记录还是挺好用的，看评分甚至是排名实在是太没必�
 
 —— 来自 Xiaomi 2206122SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  左梓喵右受兔  
+##### 64#       发表于 2023-1-13 22:04
+
+让一个蛐蛐2017的新玩意登顶 也好意思自称老害<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
