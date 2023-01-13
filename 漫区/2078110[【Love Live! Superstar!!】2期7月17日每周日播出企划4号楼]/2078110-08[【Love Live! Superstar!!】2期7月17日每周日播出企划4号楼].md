@@ -6312,3 +6312,22 @@ gsc 0/2
 <img src="https://p.sda1.dev/9/76a514752d7bdfe7fa095a228bed7f50/CMP_20230113205030592.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/0412c827debb17a676866608ef28012e/CMP_20230113205030658.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 11072#       发表于 2023-1-13 21:26
+
+是边缘拉伸的效果吗？怎么每次合照都显得结那跟鲤鱼差不多高，明明看训练视频她实际身高也就和pay差不多
+
+*****
+
+####  ruffian  
+##### 11073#       发表于 2023-1-13 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59337223&amp;ptid=2078110" target="_blank">qty 发表于 2023-01-13 21:26:50</a>
+是边缘拉伸的效果吗？怎么每次合照都显得结那跟鲤鱼差不多高，明明看训练视频她实际身高也就和pay差不多 ...</blockquote>鞋底厚吧，她应该没emo高
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
