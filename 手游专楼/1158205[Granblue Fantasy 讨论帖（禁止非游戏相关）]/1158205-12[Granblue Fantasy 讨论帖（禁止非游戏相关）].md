@@ -440,3 +440,12 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 打了几次，都撑不到10破导，滚回150了
 
+
+
+*****
+
+####  areklose  
+##### 17264#       发表于 2023-1-13 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塞了把炎帝剑，换了防御觉醒的九柱神。后排再塞个该隐。我这火方总算能过200.
+

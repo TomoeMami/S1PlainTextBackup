@@ -740,3 +740,20 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号 ...</blockquote>
 按宏达的习性只会虚高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bg54188  
+##### 72#         楼主| 发表于 2023-1-13 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59325896&amp;ptid=2107972" target="_blank">浅薄者 发表于 2023-1-13 08:50</a>
+幼兽和威武除了外形还有什么区别？
+为什么价格可以翻一倍？
+日本有威武这型号吗？跟幼兽价格也差那么多？还 ...</blockquote>
+你要对比现款威武和22款幼兽的话，发动机还是不一样的，还有些杂七杂八的区别，比如威武还是交流电大灯之类的。但是你说威武就是换壳幼兽其实也可以。
+
+本田对威武系列的定位就是第三世界幼兽，而且幼兽系列算全球销量10亿的时候，中国东南亚南美等的威武的销量是算在里面的。
+
+所以本质区别还真就是那个壳子，你可以理解为品质感的区别<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
