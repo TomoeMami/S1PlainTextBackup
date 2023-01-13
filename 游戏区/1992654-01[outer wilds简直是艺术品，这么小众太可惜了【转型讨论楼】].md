@@ -35,3 +35,16 @@
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dpheix1  
+##### 1109#       发表于 2023-1-14 06:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328376&amp;ptid=1992654" target="_blank">chords 发表于 2023-1-13 11:58</a>
+帮人问一下，主机端（他是ps端）的游戏，因为是直接读取账号，也没有pc端的“切换存档”选项，不能直接开一 ...</blockquote>
+我xbox版试过两台主机一台用来保持存档，另一台开新档完成成就后立即强制断网不同步云存档。好像xbox没u盘备份存档也不能控制手动备份才搞那么麻烦，ps有u盘备份存档和主动控制在线备份应该就是备份完开新档完成成就后手动还原存档就行。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
