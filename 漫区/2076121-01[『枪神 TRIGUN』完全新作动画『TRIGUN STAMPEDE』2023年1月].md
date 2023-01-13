@@ -1700,3 +1700,12 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 太牛逼了，这3d，这分镜，这音乐<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">，真的是TV动画不是剧场版吗？没看过原作，就当做原创看了，体验良好，感觉人物和世界观都很有吸引力，期待下一集
 
+
+
+*****
+
+####  moonmagian  
+##### 157#       发表于 2023-1-14 01:44
+
+完全不了解原作和旧动画当原创番看的，十分开心，这分镜也太性感了
+
