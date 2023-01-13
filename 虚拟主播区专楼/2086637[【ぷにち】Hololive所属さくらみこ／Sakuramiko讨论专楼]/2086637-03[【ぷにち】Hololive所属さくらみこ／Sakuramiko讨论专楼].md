@@ -10138,3 +10138,16 @@ pekomiko大战争
 
 <img src="https://img.saraba1st.com/forum/202301/13/133935fghhzsagigii67ag.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 3949#         楼主| 发表于 2023-1-13 17:25
+
+什么迷之情景音声
+
+看了一眼台本，miko的台词没两句
+
+感觉被坑了
+
