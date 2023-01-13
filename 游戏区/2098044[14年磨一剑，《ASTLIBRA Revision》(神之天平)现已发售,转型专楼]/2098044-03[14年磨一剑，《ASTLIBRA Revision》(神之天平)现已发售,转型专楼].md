@@ -4680,3 +4680,15 @@ b站也有 ...</blockquote>
 —— 来自 vivo V2241A, Android 13上的 S ...</blockquote>
 小徽章成就的BUG一直没修，需要重新登录一下才会跳成就。
 
+
+
+*****
+
+####  onezer0618  
+##### 3391#       发表于 2023-1-13 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59324727&amp;ptid=2098044" target="_blank">tansapple 发表于 2023-1-13 01:48</a>
+
+小徽章成就的BUG一直没修，需要重新登录一下才会跳成就。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还差3个成就，小徽章、魔导水晶、困难难度
+
