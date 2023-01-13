@@ -671,3 +671,12 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 分级R15+，以前是R12吧。 ...</blockquote>
 只是故事原案，剧本没参与，感觉跟第三季的staff差不多
 
+
+
+*****
+
+####  winda  
+##### 71#       发表于 2023-1-13 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二季好歹是能审判西比拉了，结果剧场版跑东南亚打民间武装去了，这一回在处置西比拉态度上能产生变革并不抱希望
+
