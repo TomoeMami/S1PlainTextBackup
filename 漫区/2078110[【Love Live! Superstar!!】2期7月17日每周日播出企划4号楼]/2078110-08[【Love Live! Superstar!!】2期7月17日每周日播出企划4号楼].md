@@ -6240,3 +6240,18 @@ gsc 0/2
 
 希望不要给鲤鱼造成什么不便
 
+
+
+*****
+
+####  仟音一心  
+##### 11066#       发表于 2023-1-13 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59331083&amp;ptid=2078110" target="_blank">lj205 发表于 2023-1-13 15:04</a>
+是的
+
+写牌子的时候没注意，选错了选项
+
+大阪再修改吧</blockquote>
+还真的是你们啊！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
