@@ -2267,3 +2267,30 @@ B站港澳台：
 感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
 猎兵这水平，有的用都是少的，杂兵估计都没有，精英才能有吧，七班组建的一个理由就是适应导力器，肯定是最新产品。
 
+
+
+*****
+
+####  Aeons  
+##### 329#       发表于 2023-1-14 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340173&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-14 00:18</a>
+
+这导力器感觉挺老的
+
+感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
+用的不就是Enigma吗，和Arcus一个世代
+
+*****
+
+####  lil_is  
+##### 330#       发表于 2023-1-14 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340173&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-14 00:18</a>
+这导力器感觉挺老的
+
+感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
+用的是Enigma，应该是碧轨用的，和Arcus是同世代，不过看着这玩意就3链，真的能顶住吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
