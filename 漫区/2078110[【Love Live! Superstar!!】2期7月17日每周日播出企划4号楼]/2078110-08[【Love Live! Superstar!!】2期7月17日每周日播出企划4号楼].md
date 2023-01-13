@@ -6222,3 +6222,21 @@ figma 2/5
 gsc 0/2
 一开始只想买完wish song就收手的，怎么会变成这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 11065#       发表于 2023-1-13 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328949&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-13 12:42</a>
+
+这个花篮？</blockquote>
+是的
+
+写牌子的时候没注意，选错了选项
+
+大阪再修改吧
+
+希望不要给鲤鱼造成什么不便
+
