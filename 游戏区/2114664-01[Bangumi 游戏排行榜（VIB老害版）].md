@@ -692,3 +692,14 @@ bangumi打分人数本来就不多，还筛选一部分出来，这排出来的�
 
 bgm 当个记录还是挺好用的，看评分甚至是排名实在是太没必要了，希望不要真有人把这种当回事的
 
+
+
+*****
+
+####  杉田悠一  
+##### 63#       发表于 2023-1-13 21:43
+
+如果一个榜单上的游戏我大多数玩过半数通关，那就铁不够婆<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">，
+
+—— 来自 Xiaomi 2206122SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
