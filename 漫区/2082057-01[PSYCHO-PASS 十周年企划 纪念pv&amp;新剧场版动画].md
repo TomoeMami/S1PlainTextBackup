@@ -657,3 +657,17 @@ pp都十年了啊
 
 pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三季突发奇想换主角是为什么呢，继续第二季拍个大女主剧不也挺好的
 
+
+
+*****
+
+####  发财就收  
+##### 70#       发表于 2023-1-13 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328327&amp;ptid=2082057" target="_blank">751984871 发表于 2023-1-13 11:53</a>
+
+这是“虚渊玄”三个字自2015年剧场版之后第一次重返KV？
+
+分级R15+，以前是R12吧。 ...</blockquote>
+只是故事原案，剧本没参与，感觉跟第三季的staff差不多
+
