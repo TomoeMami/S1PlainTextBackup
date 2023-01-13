@@ -6189,3 +6189,14 @@ EECD8344-40A5-4F7A-8940-9871EC3C32FB.jpeg
 
 叔叔家会慢多久，太久就代购了
 
+
+
+*****
+
+####  adw667  
+##### 11062#       发表于 2023-1-13 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59330609&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-13 14:31</a>
+叔叔家会慢多久，太久就代购了</blockquote>
+很慢，他那个预计补款时间在同行里是什么程度不好说，但是经常出现不到补款当月月底不开补款的操作，我有几个12月的到现在都没开补款。除非没有别的可信店铺不然不推荐，特别是部分大厂在国内有官方网店的情况下我更推荐你去官方店看看<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
