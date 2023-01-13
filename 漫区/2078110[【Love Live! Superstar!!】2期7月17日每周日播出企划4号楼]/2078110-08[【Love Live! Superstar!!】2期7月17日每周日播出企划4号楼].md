@@ -6281,3 +6281,14 @@ gsc 0/2
 
 行了，都我错，下一场改
 
+
+
+*****
+
+####  nufawneafg  
+##### 11069#       发表于 2023-1-13 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59327231&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-13 10:38</a>
+以为奸笑社已经忘了</blockquote>
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+

@@ -724,3 +724,15 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 老老实实做型侦或动作也就认了。
 
+
+
+*****
+
+####  nh_zzz  
+##### 76#       发表于 2023-1-13 16:48
+
+能不能奶主题曲是EGOIST啊
+这次剧场能说清楚3期主角的来历或者西比拉其中一个不错了
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -117,3 +117,13 @@ FA小结（逃）</blockquote>
 
 周年生放有九哥CV，群友拆出九哥FA……联系之前的小道消息，怕是22号FA九哥，月底来俩新女演员？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（阿金产能有这么high吗
 
+
+
+*****
+
+####  孫光龍  
+##### 167#       发表于 2023-1-13 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">九哥fa给周年？
+难道不应该是新演员周年，九哥fa月底么
+
