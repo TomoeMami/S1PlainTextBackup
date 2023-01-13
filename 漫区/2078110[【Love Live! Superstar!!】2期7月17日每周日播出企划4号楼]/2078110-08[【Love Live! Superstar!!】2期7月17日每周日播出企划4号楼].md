@@ -6111,3 +6111,23 @@ pay每次采访啥的感觉都很紧张，另外四个完全是老油子了游�
 
 可怜鱼要被大眼害了，写“转”发不出来只能用“卷”代替<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 11055#       发表于 2023-1-13 12:25
+
+真的太喜欢那个熊猫睡袋配件了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11056#       发表于 2023-1-13 12:31
+
+ 本帖最后由 lj205 于 2023-1-13 12:33 编辑 
+
+第一次整花篮，担心控制不好，所以只是小范围组织，最后凑到的金额居然超过一倍是没想到的。年底工作忙也只能每天抽几分钟出来写邮件跟花店交流，很多细节都没办法把握，总之花篮顺利送到就好
+
+就是第一次没经验，搞得名牌有点问题，大阪场抓紧修正过来<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
