@@ -704,3 +704,28 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 为什么价格可以翻一倍？
 日本有威武这型号吗？跟幼兽价格也差那么多？还是说特供车？
 
+
+
+*****
+
+####  liy30dlys  
+##### 69#       发表于 2023-1-13 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59313445&amp;ptid=2107972" target="_blank">菲特妹 发表于 2023-1-12 11:16</a>
+
+啊不对，复刻一个逮捕令同款电动小板凳，折叠放车尾箱，会更有市场</blockquote>
+那个尺寸做电动续航会很难看，要么就是定制电池成本又往上跑
+
+*****
+
+####  a479281660  
+##### 70#       发表于 2023-1-13 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59325896&amp;ptid=2107972" target="_blank">浅薄者 发表于 2023-1-13 08:50</a>
+幼兽和威武除了外形还有什么区别？
+为什么价格可以翻一倍？
+日本有威武这型号吗？跟幼兽价格也差那么多？还 ...</blockquote>
+有abs
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
