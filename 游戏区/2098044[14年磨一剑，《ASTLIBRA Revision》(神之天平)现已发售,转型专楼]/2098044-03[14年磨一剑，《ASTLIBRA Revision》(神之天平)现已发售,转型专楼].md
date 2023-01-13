@@ -4716,3 +4716,12 @@ b站也有 ...</blockquote>
 
 别的没了。
 
+
+
+*****
+
+####  chivalry  
+##### 3393#       发表于 2023-1-13 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法爷真是强无敌，尤其是用弩，现在打到第六章，我35级纯法用弩过了斗神，又过了未知生物，这弩怎么就这么强
+
