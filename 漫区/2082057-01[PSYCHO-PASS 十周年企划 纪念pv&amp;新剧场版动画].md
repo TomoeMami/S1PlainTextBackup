@@ -632,3 +632,19 @@ pp都十年了啊
 
 第三部的两首歌还挺好听的
 
+
+
+*****
+
+####  751984871  
+##### 68#       发表于 2023-1-13 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59327610&amp;ptid=2082057" target="_blank">Piano-Forest 发表于 2023-1-13 11:04</a>
+
+シリーズ最新作『剧场版 PSYCHO-PASS サイコパス PROVIDENCE』の公开日が决定しました！
+
+2023年5月12日（ ...</blockquote>
+这是“虚渊玄”三个字自2015年剧场版之后第一次重返KV？
+
+分级R15+，以前是R12吧。
+
