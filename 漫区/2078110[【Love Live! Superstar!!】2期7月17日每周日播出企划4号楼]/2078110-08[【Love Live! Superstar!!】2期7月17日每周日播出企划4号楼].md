@@ -6200,3 +6200,25 @@ EECD8344-40A5-4F7A-8940-9871EC3C32FB.jpeg
 叔叔家会慢多久，太久就代购了</blockquote>
 很慢，他那个预计补款时间在同行里是什么程度不好说，但是经常出现不到补款当月月底不开补款的操作，我有几个12月的到现在都没开补款。除非没有别的可信店铺不然不推荐，特别是部分大厂在国内有官方网店的情况下我更推荐你去官方店看看<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 11063#       发表于 2023-1-13 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59329768&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-13 13:34</a>
+7月</blockquote>
+还行吧，我23年到货的东西不少，多这一件不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 11064#       发表于 2023-1-13 15:00
+
+小人收集进度
+wish song 5/5
+figma 2/5
+gsc 0/2
+一开始只想买完wish song就收手的，怎么会变成这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
