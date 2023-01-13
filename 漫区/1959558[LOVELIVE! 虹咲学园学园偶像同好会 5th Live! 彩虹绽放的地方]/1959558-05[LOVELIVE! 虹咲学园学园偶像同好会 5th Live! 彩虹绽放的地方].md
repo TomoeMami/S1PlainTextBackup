@@ -889,3 +889,16 @@ all侑人供给也太足了，回想一期时还挺克制的
 
 咋四格步女士也得盯防了，不要太过分了你们这些家伙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 6879#       发表于 2023-1-13 22:45
+
+ 本帖最后由 斯莱塔墨丘利 于 2023-1-13 22:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剪头发了？幻视pico
+
+还有这个正片光效<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+

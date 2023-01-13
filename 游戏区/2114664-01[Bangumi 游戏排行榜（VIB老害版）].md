@@ -734,3 +734,19 @@ bgm 当个记录还是挺好用的，看评分甚至是排名实在是太没必�
 —— 来自 Xiaomi 2206122SC, Android ...</blockquote>
 有几个还是挺婆的吧，死月妖花，darksouls2这几个我也是看了bgm排行榜才知道有这东西的
 
+
+
+*****
+
+####  wjbdasd  
+##### 67#       发表于 2023-1-13 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59326704&amp;ptid=2114664" target="_blank">liangyi345 发表于 2023-1-13 09:58</a>
+
+二次元玩家是这样的 
+
+你要我打分兰斯10也是满分那档 
+
+毕竟FFDQXB我都没有玩过整个系列 ...</blockquote>
+一边代表日式pc老害，一边代表日式主机老害，根本就是两波人，爱好互不重合。
+

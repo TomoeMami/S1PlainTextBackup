@@ -2084,3 +2084,39 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不错，不过跳舞的画的好像二次元啊难绷
 
+
+
+*****
+
+####  灰谷真实  
+##### 312#       发表于 2023-1-13 22:45
+
+真的太像了，不会庭院真的潜入进来了罢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未知  
+##### 313#       发表于 2023-1-13 22:47
+
+跳舞那个怎么看都像。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  镜hinata  
+##### 314#       发表于 2023-1-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59338158&amp;ptid=2050199" target="_blank">胧楼 发表于 2023-1-13 22:16</a>
+
+到底要什么底牌让蓝毛敢闪击帝国啊，北方猎兵现在连个s都没把</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪轨最大错觉之一:我能赢奥斯本
+
+*****
+
+####  灰谷真实  
+##### 315#       发表于 2023-1-13 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59338770&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-1-13 22:47</a>
+
+闪轨最大错觉之一:我能赢奥斯本</blockquote>
+估计宰相一个人就能把他们全杀了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
