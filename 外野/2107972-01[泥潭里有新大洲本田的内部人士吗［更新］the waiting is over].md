@@ -757,3 +757,15 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 
 所以本质区别还真就是那个壳子，你可以理解为品质感的区别<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fange  
+##### 73#       发表于 2023-1-13 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59320303&amp;ptid=2107972" target="_blank">菲特妹 发表于 2023-1-12 20:08</a>
+
+早有了，宗申的yami有电动版，比这个更像cub</blockquote>
+不是电自，广州市区不能随便开啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
