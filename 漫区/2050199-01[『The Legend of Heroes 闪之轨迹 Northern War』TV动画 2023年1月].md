@@ -2240,3 +2240,30 @@ B站港澳台：
 
 感觉连黎恩他们这些学生用的ARCUS都比不上<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kamarus  
+##### 327#       发表于 2023-1-14 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340097&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-14 00:13</a>
+我印象里是和结社做了交易
+
+给了400台傀儡吧？
+
+数量不确定</blockquote>
+这数量真的是送啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+闪4帝国投降完全都是自杀性的，奥斯本没了才这样，要不就联军那鬼样，还得前线死磨。。。
+
+*****
+
+####  一只老里  
+##### 328#       发表于 2023-1-14 00:23
+
+<blockquote>小小的信义 发表于 2023-1-14 00:18
+这导力器感觉挺老的
+
+感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
+猎兵这水平，有的用都是少的，杂兵估计都没有，精英才能有吧，七班组建的一个理由就是适应导力器，肯定是最新产品。
+
