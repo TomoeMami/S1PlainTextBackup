@@ -1598,3 +1598,12 @@ verge那视频说按键和扳机质感和手感比普通好一些
 
 感觉pdd会大补贴<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ybfelix  
+##### 172#       发表于 2023-1-13 20:39
+
+说是才准备推送PS5系统更新。我还以为10号就能发货了呢.. 结果最晚30号，也不知道还要等多久
+
