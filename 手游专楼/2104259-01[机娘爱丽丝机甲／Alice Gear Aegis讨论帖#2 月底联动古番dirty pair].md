@@ -108,3 +108,12 @@ FA小结（逃）</blockquote>
 
 今天5张票给了两个四星， 阿金突然这么大方 我有点怕
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 166#         楼主| 发表于 2023-1-13 16:06
+
+周年生放有九哥CV，群友拆出九哥FA……联系之前的小道消息，怕是22号FA九哥，月底来俩新女演员？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（阿金产能有这么high吗
+
