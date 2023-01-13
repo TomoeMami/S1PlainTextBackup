@@ -2136,3 +2136,12 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">真要说办法当然能编啊，比如藏了盐桩什么的，只不过诺州结局已经定好了那自然没什么好说的了。
 
+
+
+*****
+
+####  Aeons  
+##### 318#       发表于 2023-1-13 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看已经有人把他当成二次元了，感觉应该只是像吧。
+
