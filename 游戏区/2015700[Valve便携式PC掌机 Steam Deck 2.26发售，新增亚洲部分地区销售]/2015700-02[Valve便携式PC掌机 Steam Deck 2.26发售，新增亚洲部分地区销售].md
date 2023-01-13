@@ -70,3 +70,19 @@ sd是不是玩windows商店游戏只能装win玩，我地平线4的存档都是w
 sd是不是玩windows商店游戏只能装win玩，我地平线4的存档都是windows版的，和steam版数据不互通，steamos下 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还可以直接串流电脑
 
+
+
+*****
+
+####  妄想中毒  
+##### 2042#       发表于 2023-1-13 10:39
+
+机器还躺在海关，估计年前是拿不到了。海淘体验真的屌差等了快两个月还没到不说现在国内电商直接买也贵不了多少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 2043#       发表于 2023-1-13 10:39
+
+机器还躺在海关，估计年前是拿不到了。海淘体验真的屌差等了快两个月还没到不说现在国内电商直接买也贵不了多少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
