@@ -6180,3 +6180,12 @@ EECD8344-40A5-4F7A-8940-9871EC3C32FB.jpeg
 叔叔家不是299-10吗，还没有随机立减属实是知道这玩意不愁卖吗</blockquote>
 大概因为我没在叔叔家买过东西，有一张新人券159-25，不过下单就没所谓了，在GSC除了粘土人可可还有Mark Alles等着补款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 11061#       发表于 2023-1-13 14:31
+
+叔叔家会慢多久，太久就代购了
+
