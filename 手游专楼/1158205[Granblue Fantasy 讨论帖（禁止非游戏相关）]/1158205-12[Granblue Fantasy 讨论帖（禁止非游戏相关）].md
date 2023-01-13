@@ -429,3 +429,14 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱者，哥们今天就能导出来了，都不敢想200怎么打
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17263#       发表于 2023-1-13 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">200还真上湿婆了
+
+打了几次，都撑不到10破导，滚回150了
+

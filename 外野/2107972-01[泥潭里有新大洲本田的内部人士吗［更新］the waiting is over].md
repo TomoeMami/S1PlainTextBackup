@@ -729,3 +729,14 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  shimotsuki14  
+##### 71#       发表于 2023-1-13 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59323855&amp;ptid=2107972" target="_blank">flyang 发表于 2023-1-13 00:03</a>
+show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号 ...</blockquote>
+按宏达的习性只会虚高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
