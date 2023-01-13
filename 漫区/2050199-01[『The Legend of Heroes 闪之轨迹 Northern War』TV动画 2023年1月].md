@@ -2120,3 +2120,19 @@ B站港澳台：
 闪轨最大错觉之一:我能赢奥斯本</blockquote>
 估计宰相一个人就能把他们全杀了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  6030sylar  
+##### 316#       发表于 2023-1-13 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是什么给你自信闪击帝国的，恐怕常规部队都等挡住
+
+*****
+
+####  Aeons  
+##### 317#       发表于 2023-1-13 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">真要说办法当然能编啊，比如藏了盐桩什么的，只不过诺州结局已经定好了那自然没什么好说的了。
+
