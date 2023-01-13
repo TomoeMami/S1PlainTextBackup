@@ -473,3 +473,14 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Sylpheed  
+##### 17267#       发表于 2023-1-13 23:22
+
+我200带湿婆还挺稳的啊，不过我3灭尽火方就是了，只能说确实能用，带着全队输出都好看不少，但当初的大哥变成了4号位，有点唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
