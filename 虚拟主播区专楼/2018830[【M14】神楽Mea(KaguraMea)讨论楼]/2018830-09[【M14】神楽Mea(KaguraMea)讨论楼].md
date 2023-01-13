@@ -1302,3 +1302,14 @@ NB 3.31毕业咯
 
 把“饭盒是不是说了”去掉，基本上就是饭盒那几段话的总结。
 
+
+
+*****
+
+####  时间在我手中  
+##### 13045#       发表于 2023-1-13 19:47
+
+不知道这人玉玉的一周和这玩意儿有没有关系，但是听她说法是一周没出门的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明天要是来个娃娃签名搞定了马上开始生产了我就笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
