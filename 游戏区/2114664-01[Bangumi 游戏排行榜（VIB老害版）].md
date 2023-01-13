@@ -772,3 +772,56 @@ bgm 当个记录还是挺好用的，看评分甚至是排名实在是太没必�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lukesweet  
+##### 70#       发表于 2023-1-14 02:10
+
+BGM的排名一直是老害们的行为艺术现场<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+历史全游戏排名前十两个扶她自，你问他本人他敢答应吗？
+
+*****
+
+####  lukesweet  
+##### 71#       发表于 2023-1-14 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340543&amp;ptid=2114664" target="_blank">浅井惠 发表于 2023-1-14 00:54</a>
+
+樱之诗没玩过，怎么排名这么高，口碑很好吗？
+
+—— 来自 S1Fun</blockquote>
+你要是吃素晴那套，可以玩玩看，核心部分是promax版，但代价就是吃共通线，某些个人线以及结局的屎<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+如果你试过素晴感觉对不上，那我劝你别碰，对自己好一点
+
+*****
+
+####  pf67  
+##### 72#       发表于 2023-1-14 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340543&amp;ptid=2114664" target="_blank">浅井惠 发表于 2023-1-14 00:54</a>
+
+樱之诗没玩过，怎么排名这么高，口碑很好吗？
+
+—— 来自 S1Fun</blockquote>
+作为难的一件高水平剧情作，当然口碑很好。。
+
+不过扶他自的写的剧情，你得对上电波，而且本作前面的日常巨长
+
+*****
+
+####  bgmilk  
+##### 73#       发表于 2023-1-14 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341185&amp;ptid=2114664" target="_blank">lukesweet 发表于 2023-1-14 02:10</a>
+
+BGM的排名一直是老害们的行为艺术现场
+
+历史全游戏排名前十两个扶她自，你问他本人他敢答应吗？
+
+ ...</blockquote>
+      别老害了，都是新人捧上去的，当年发售的时候bgm根本排不上前两页。现在玩galgame的根本没啥可吹的写手可不就只能吹吹扶她自这种了。
+

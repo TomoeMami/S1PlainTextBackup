@@ -1709,3 +1709,21 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 完全不了解原作和旧动画当原创番看的，十分开心，这分镜也太性感了
 
+
+
+*****
+
+####  20002000  
+##### 158#       发表于 2023-1-14 02:08
+
+半天掉不下来的子母弹真的很出戏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+— from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  shudushimo  
+##### 159#       发表于 2023-1-14 02:58
+
+没看过旧版，新版第一集感觉不错
+

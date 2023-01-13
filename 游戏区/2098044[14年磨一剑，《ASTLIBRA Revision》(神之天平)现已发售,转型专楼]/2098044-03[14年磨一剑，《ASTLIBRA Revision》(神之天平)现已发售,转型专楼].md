@@ -4734,3 +4734,12 @@ b站也有 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这回困难分章打完之后准备再试试低难度不收集**。上一次这么干是伊苏起源，一路跑酷不打怪发现boss给的经验只需要我在路上多升一级
 
+
+
+*****
+
+####  herryk159  
+##### 3395#       发表于 2023-1-14 02:08
+
+命运女神的机制好傻逼啊，墨迹的要死，接着那条龙也是打到手酸，54级打着刮痧，难不成是80级才去通关吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
