@@ -6255,3 +6255,29 @@ gsc 0/2
 大阪再修改吧</blockquote>
 还真的是你们啊！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 11067#       发表于 2023-1-13 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59331083&amp;ptid=2078110" target="_blank">lj205 发表于 2023-1-13 15:04</a>
+是的
+
+写牌子的时候没注意，选错了选项
+
+大阪再修改吧</blockquote>
+这有啥问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11068#       发表于 2023-1-13 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59331688&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-13 15:47</a>
+
+还真的是你们啊！</blockquote>
+
+行了，都我错，下一场改
+
