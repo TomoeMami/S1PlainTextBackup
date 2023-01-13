@@ -460,3 +460,16 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 乖乖认怂回去150
 
+
+
+*****
+
+####  是这样  
+##### 17266#       发表于 2023-1-13 19:02
+
+ 本帖最后由 是这样 于 2023-1-13 19:05 编辑 
+
+打200湿婆在后面凑星友会buff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
