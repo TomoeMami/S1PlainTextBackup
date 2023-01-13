@@ -2145,3 +2145,12 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看已经有人把他当成二次元了，感觉应该只是像吧。
 
+
+
+*****
+
+####  Yeaha123  
+##### 319#       发表于 2023-1-13 23:45
+
+一集介绍了主角团和国家情势，还挺稳
+
