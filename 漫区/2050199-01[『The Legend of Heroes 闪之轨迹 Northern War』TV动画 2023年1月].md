@@ -2176,3 +2176,67 @@ B站港澳台：
 
 这帮北猎高层开会的时候就没把这事提一下，整的跟白莲花一样
 
+
+
+*****
+
+####  卢迪克  
+##### 322#       发表于 2023-1-14 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59339015&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-13 23:02</a>
+
+我看已经有人把他当成二次元了，感觉应该只是像吧。</blockquote>
+二次元来很正常，北方列兵本来就占领了议会，让二次元把议长和议员都暗杀了呗
+
+*****
+
+####  小小的信义  
+##### 323#       发表于 2023-1-14 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59337934&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-13 22:05</a>
+
+太nb了，闪击帝国，三天打到帝都门口扬了奥斯本咧真不把帝国七神棍机甲兵放眼里啊
+
+还有有人 ...</blockquote>
+我印象里是和结社做了交易
+
+给了400台傀儡吧？
+
+数量不确定
+
+但内容应该没错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小的信义  
+##### 324#       发表于 2023-1-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59339749&amp;ptid=2050199" target="_blank">KL25001 发表于 2023-1-13 23:52</a>
+
+好稳健啊，剧情节奏很舒服，作为游戏粉丝能get到很多有趣的地方
+
+这个名不见经传的制作班底真是给人 ...</blockquote>
+有一说一龙之子也算不上名不见经传吧 只是没落了
+
+编剧印象里本来就是写闪轨同人的
+<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一只老里  
+##### 325#       发表于 2023-1-14 00:16
+
+导力器这玩意真是玄乎，这加成水平有导力器基本碾压空手达人了吧，怪不得人均躲子弹，就是展示出的链子绷不住了。
+
+*****
+
+####  小小的信义  
+##### 326#       发表于 2023-1-14 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340134&amp;ptid=2050199" target="_blank">一只老里 发表于 2023-1-14 00:16</a>
+
+导力器这玩意真是玄乎，这加成水平有导力器基本碾压空手达人了吧，怪不得人均躲子弹，就是展示出的链子绷不 ...</blockquote>
+这导力器感觉挺老的
+
+感觉连黎恩他们这些学生用的ARCUS都比不上<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
