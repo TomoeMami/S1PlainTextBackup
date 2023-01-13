@@ -1983,3 +1983,12 @@ op我记得有分校长跟黑旋风吧
 今晚Nico播放第一话
 [https://ch.nicovideo.jp/sen-anime?from=nanime_sen-anime_chvideo](https://ch.nicovideo.jp/sen-anime?from=nanime_sen-anime_chvideo)
 
+
+
+*****
+
+####  星海坊主  
+##### 301#       发表于 2023-1-13 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">出第二话了
+
