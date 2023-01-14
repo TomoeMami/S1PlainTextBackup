@@ -2467,3 +2467,14 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 
 还没看  有没有看过的说一下主角这个猎兵团的整体实力是什么档次的  如果按照西风旅团,赤色星座为T0的话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 348#       发表于 2023-1-14 11:18
+
+<blockquote>aono 发表于 2023-1-14 10:57
+还没看  有没有看过的说一下主角这个猎兵团的整体实力是什么档次的  如果按照西风旅团,赤色星座为T0的话[f: ...</blockquote>
+方便的杂鱼 规模是最大的 但缺少高端战力
+
