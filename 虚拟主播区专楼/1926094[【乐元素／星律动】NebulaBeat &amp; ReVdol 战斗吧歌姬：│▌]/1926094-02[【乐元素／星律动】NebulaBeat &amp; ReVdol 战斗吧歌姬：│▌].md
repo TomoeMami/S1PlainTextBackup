@@ -13670,3 +13670,38 @@ P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不 ...</
 
 松松圆梦了
 
+
+
+*****
+
+####  MinFOrder  
+##### 2914#       发表于 2023-1-14 20:20
+
+插播一个消息，粉红猫娜娜改名萝娜火辣辣了
+
+*****
+
+####  天青月白  
+##### 2915#       发表于 2023-1-14 20:24
+
+草纸两个的3d总感觉零碎太多了
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 2916#       发表于 2023-1-14 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59349563&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-14 20:20</a>
+
+插播一个消息，粉红猫娜娜改名萝娜火辣辣了</blockquote>
+这名字很nb
+
+*****
+
+####  佛皇  
+##### 2917#       发表于 2023-1-14 20:27
+
+话说NB装扮居然能卖上6K套，有这么多粉丝吗，到底有多少大佬保底了销量
+

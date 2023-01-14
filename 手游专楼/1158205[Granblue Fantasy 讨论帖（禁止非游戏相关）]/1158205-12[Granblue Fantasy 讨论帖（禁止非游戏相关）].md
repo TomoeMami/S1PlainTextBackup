@@ -484,3 +484,14 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  是这样  
+##### 17268#       发表于 2023-1-14 20:24
+
+打了个14e应该safe了吧，不安
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
