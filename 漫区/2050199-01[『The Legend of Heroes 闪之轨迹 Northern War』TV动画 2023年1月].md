@@ -2814,3 +2814,39 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 <img src="https://p.sda1.dev/9/056c5bc6ee730096c0a34dd090a9a129/c7963eda81cb39dbd9128aa4db160924a91830c0.jpg" referrerpolicy="no-referrer">
 只需要知道这个就行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 377#       发表于 2023-1-14 15:35
+
+其实别说，蓝毛现在要是联合共和国和结社一起推的话说不定真能推到首都
+
+结社这会儿还不跟麻婆一条裤子，相克没成型，儿子们都挂在克州回不来
+
+集结兵力来个百，啊呸，十之阳炎，还是有可能把麻婆逼上机的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正绿毛那个千之阳炎是个人都能想出来，蓝毛想出来也没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 378#       发表于 2023-1-14 15:39
+
+<blockquote>上坂莲华 发表于 2023-1-14 15:35
+其实别说，蓝毛现在要是联合共和国和结社一起推的话说不定真能推到首都
+
+结社这会儿还不跟麻婆一条裤子，相 ...</blockquote>
+你是不是把分校长给忘了，我都不想提这个时期被当枪使的黎老师
+
+*****
+
+####  封印的右手  
+##### 379#       发表于 2023-1-14 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344208&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-14 12:50</a>
+
+自治州如果没有外交后援，如果再没有威慑武器和强大军力或者天险保护那就更难了，话说回来二次元作品几乎没 ...</blockquote>
+其实诺州要啥没啥，占了也是鸡肋，打下来还不够军费支出来的多，正常情况下还真能靠外交解决
+
