@@ -1768,3 +1768,12 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 在微博看到好多人说新动画的男主人设比旧动画更符合原作漫画。</blockquote>
 老TV加了好色属性，微博磕cp的女粉不满意很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kaildo  
+##### 164#       发表于 2023-1-14 13:39
+
+突然感觉这新男主有点像五条悟我超
+
