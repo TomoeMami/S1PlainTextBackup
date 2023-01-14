@@ -3044,3 +3044,22 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 虽然很穷但是在好好讲故事，就是导力器那段太草了，你被强化了，快送 ...</blockquote>
 是他自己申请使用的啊
 
+
+
+*****
+
+####  夏明翰  
+##### 397#       发表于 2023-1-14 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">闪击帝国，和昭和参谋相互理解
+
+*****
+
+####  月夜凝雪  
+##### 398#       发表于 2023-1-14 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340933&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-1-14 01:37</a>
+
+利贝尔三两下就逼得帝国停战,它利贝尔做得我诺州做不得?</blockquote>
+利贝尔怎么说也是导力技术先进国啊，就算不提辉之环，那可是刚从学堂毕业的游击士新人都能人手一个导力器的富裕国家，诺州周拿什么去比
+

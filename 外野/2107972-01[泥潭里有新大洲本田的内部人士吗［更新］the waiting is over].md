@@ -931,3 +931,14 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号 ...</blockquote>
 日本的CC是泰产还是日产？
 
+
+
+*****
+
+####  Herreimu  
+##### 88#       发表于 2023-1-14 19:41
+
+ 本帖最后由 Herreimu 于 2023-1-14 19:43 编辑 
+
+考验幼兽爱好者的时候到了，不要拿买不到当借口啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
