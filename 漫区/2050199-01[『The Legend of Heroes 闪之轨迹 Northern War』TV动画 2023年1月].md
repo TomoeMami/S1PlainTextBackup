@@ -2767,3 +2767,24 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 但是画面实在是太穷了 太穷了 太穷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  reegun  
+##### 373#       发表于 2023-1-14 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344983&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-14 14:06</a>
+
+那时候他还是皇子吧，为了保护她妈只敢把她放在偏僻地方藏起来过日子</blockquote>
+派了个皇室护卫家族的小孩子去宣示身份，以为就没人敢动手了，结果是有真疯的
+
+一个皇储等到30还不结婚怎么也是真爱了，其实他只要派他雷神兄弟一家去那里出个长差就没人动得了了。出事的时候他已经算接班了
+
+*****
+
+####  Aeons  
+##### 374#       发表于 2023-1-14 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说到穷，那个挡车的画面。。。
+

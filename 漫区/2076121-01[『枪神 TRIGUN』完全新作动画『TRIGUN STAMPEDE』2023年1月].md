@@ -1777,3 +1777,15 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 突然感觉这新男主有点像五条悟我超
 
+
+
+*****
+
+####  pokel  
+##### 165#       发表于 2023-1-14 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59343320&amp;ptid=2076121" target="_blank">cementerio 发表于 2023-1-14 11:28</a>
+
+老TV加了好色属性，微博磕cp的女粉不满意很久了</blockquote>
+也有不少看到大个子妹妹不见了就嚎牧师没cp了的老tv粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半斤八两吧感觉
+

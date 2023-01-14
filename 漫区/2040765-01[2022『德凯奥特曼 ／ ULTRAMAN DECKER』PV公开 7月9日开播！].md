@@ -71,3 +71,12 @@
 所以扳机是被母体斯菲亚撞了一下就掉下来了吗</blockquote>
 脚本有闪耀扳机空战boss被打回复合型的part，正片砍了
 
+
+
+*****
+
+####  scorbian  
+##### 864#       发表于 2023-1-14 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看到后面感觉就是编剧没活硬整了，博士这条线撑死三四集就可以讲完的，但是博士线之后不知道写啥了就硬拖到最后直接打boss
+
