@@ -795,3 +795,24 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 
 但是电池和电机、控制器应该还是沿用的UBE，基本就是UBE升个级换个壳子
 
+
+
+*****
+
+####  droople  
+##### 76#       发表于 2023-1-14 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342013&amp;ptid=2107972" target="_blank">bg54188 发表于 2023-1-14 09:00</a>
+
+Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹，定速巡航，两种行驶模式，更亮的前大灯这些 ...</blockquote>
+外观蛮好看的，但是发现仪表盘显示太花哨了，一点也不情怀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asion617  
+##### 77#       发表于 2023-1-14 09:10
+
+b站评论区有懂哥说是新大洲看山寨cub卖得不错眼红了, 价格大概1.3, 如果销量可以还会有ct, 预计1.8
+
+等cc公布售价了可以确认真实性了
+

@@ -14594,3 +14594,15 @@ big胆  那叫终章！</blockquote>
 
 从2.7前篇的正文能看出来大概率11月底的时候前篇的脚本还在写，开始补别的角色的时间推测不早于秋末冬初，那这部分追加角色的动工时间就会显着晚于最先定的那批
 
+
+
+*****
+
+####  密特里奈斯  
+##### 4319#       发表于 2023-1-14 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59303610&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-1-11 17:37</a>
+
+我现在只希望2.7的角色全是没强度的废物</blockquote>
+大姐姐挺棒的吧
+
