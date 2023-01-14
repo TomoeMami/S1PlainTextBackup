@@ -154,3 +154,14 @@ FA小结（逃）</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">铁炉哥挺好的，但是之前AN的衣服不合口味就没抽（（
 
+
+
+*****
+
+####  Rincewind  
+##### 171#       发表于 2023-1-14 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59334066&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-1-13 18:14</a>
+我只想知道铁炉到底是什么来头，为什么可以成为你游唯一普池单pu角色，我也看不出她对主线有什么作用啊 ...</blockquote>
+运营安排卡池的事不用想太多（
+

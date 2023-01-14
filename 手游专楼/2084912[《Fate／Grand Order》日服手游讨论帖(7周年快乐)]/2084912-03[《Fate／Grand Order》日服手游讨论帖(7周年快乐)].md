@@ -14606,3 +14606,12 @@ big胆  那叫终章！</blockquote>
 我现在只希望2.7的角色全是没强度的废物</blockquote>
 大姐姐挺棒的吧
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4320#       发表于 2023-1-14 10:45
+
+这类游戏，不用抽才是最好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
