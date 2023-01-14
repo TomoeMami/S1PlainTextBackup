@@ -2570,3 +2570,19 @@ T1级别，和T0级别的区别就是没有S级大佬压阵以及看这集可能
 
 白毛大姐姐和赛美配的女性都挺有意思的，又色气<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，第二话的节奏挺平稳的，不像是要做好朋友的意思（
 
+
+
+*****
+
+####  aptx8285144  
+##### 356#       发表于 2023-1-14 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340120&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-14 00:15</a>
+
+有一说一龙之子也算不上名不见经传吧 只是没落了
+
+编剧印象里本来就是写闪轨同人的
+
+ ...</blockquote>
+龙之子19年整的笑容代价那玩意把看笑疯了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，希望这次表现得好一些
+
