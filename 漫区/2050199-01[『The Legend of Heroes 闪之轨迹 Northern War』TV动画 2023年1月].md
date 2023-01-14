@@ -2756,3 +2756,14 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让贵族派给鲨了，实在丢人，不是摆烂能解释的 ...</blockquote>
 宰相+八叶一群剑圣：走喝茶去<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  纯夏  
+##### 372#       发表于 2023-1-14 14:30
+
+这第2集讲故事的节奏意外的好 
+
+但是画面实在是太穷了 太穷了 太穷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
