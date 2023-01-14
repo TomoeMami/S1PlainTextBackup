@@ -2417,3 +2417,19 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
 零轨的enigma 1，核心回路都没有
 
+
+
+*****
+
+####  星海坊主  
+##### 343#       发表于 2023-1-14 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342208&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 09:31</a>
+
+没有直接说这件事，但说了类似的话：诺州为了金钱随时可能背刺帝国，对帝国来说是个火药桶。本质上是因为 ...</blockquote>
+但首先这话是罗根这边说的，不确定议员是否同意这个看法；其次猎兵掺和本身也不算背刺吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+所以我有个感觉挺有趣的猜想是此时的议员仍满脑子用卑躬屈膝换和平的幻想，但罗根那边知道猎兵在内战期间早已闯祸，不管有没有结社赞助都打算冒险闪击帝国了，否则等帝国准备好再利用这个口实主动打诺州的话那猎兵更没希望
+
+话说LS有人说小丑的目的是为了达成相克，但照道理这时期结社跟宰相还是敌人，原则上结社是要来阻止相克才对，支持相克要等到神机实验结束了。当然身为愉快犯的小丑确实说不准目的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
