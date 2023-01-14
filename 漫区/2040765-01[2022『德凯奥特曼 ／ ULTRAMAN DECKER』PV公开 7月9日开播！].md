@@ -52,3 +52,22 @@
 
 阿加慕斯这角色，只能说小柳友尽力了。
 
+
+
+*****
+
+####  失落阿荡  
+##### 862#       发表于 2023-1-14 14:43
+
+所以扳机是被母体斯菲亚撞了一下就掉下来了吗
+
+*****
+
+####  浅川雏羽  
+##### 863#       发表于 2023-1-14 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345358&amp;ptid=2040765" target="_blank">失落阿荡 发表于 2023-1-14 14:43</a>
+
+所以扳机是被母体斯菲亚撞了一下就掉下来了吗</blockquote>
+脚本有闪耀扳机空战boss被打回复合型的part，正片砍了
+

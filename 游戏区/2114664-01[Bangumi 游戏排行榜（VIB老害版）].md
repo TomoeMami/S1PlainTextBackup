@@ -888,3 +888,14 @@ BGM这个网站用户的话语权争夺而已，动画条目更是惨不忍睹�
 
 把日本文字冒险游戏排除掉之后这个榜单其实还不算差。
 
+
+
+*****
+
+####  Leona_Akari  
+##### 80#       发表于 2023-1-14 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到这个贴后我久违的登陆一下bgm看了下，我竟然真的是VIB，因为我给口袋里的战争打了3分，这片一共就俩3分，都是VIB
+
+然而我上次登陆bgm是2015年<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
