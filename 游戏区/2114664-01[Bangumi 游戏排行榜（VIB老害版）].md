@@ -920,3 +920,17 @@ BGM这个网站用户的话语权争夺而已，动画条目更是惨不忍睹�
 这个VIB是每个区分开算的，动画区的VIB未必是游戏区的</blockquote>
 但是认定的机制应该是一样的吧，所以肯定和活跃度没关系。。。
 
+
+
+*****
+
+####  Leona_Akari  
+##### 83#       发表于 2023-1-14 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345601&amp;ptid=2114664" target="_blank">萼绿华 发表于 2023-1-14 15:08</a>
+
+这个VIB是每个区分开算的，动画区的VIB未必是游戏区的</blockquote>
+照你说的我又去看了下游戏区
+
+魔女与百骑兵和链锯甜心，这两个游戏都是就一个1分，那个1分是VIB，嗯，都我打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
