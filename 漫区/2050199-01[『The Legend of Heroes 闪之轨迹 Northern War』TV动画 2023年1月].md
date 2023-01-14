@@ -2744,3 +2744,15 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让贵族派给鲨了，实在丢人，不是摆烂能解释的 ...</blockquote>
 那时候他还是皇子吧，为了保护她妈只敢把她放在偏僻地方藏起来过日子
 
+
+
+*****
+
+####  yixiaqqq  
+##### 371#       发表于 2023-1-14 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344723&amp;ptid=2050199" target="_blank">jiklp87 发表于 2023-1-14 13:38</a>
+
+ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让贵族派给鲨了，实在丢人，不是摆烂能解释的 ...</blockquote>
+宰相+八叶一群剑圣：走喝茶去<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
