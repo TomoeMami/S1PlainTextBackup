@@ -14624,3 +14624,14 @@ big胆  那叫终章！</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进厂打了几个月的螺丝钱没赚到，回头看到FGO这螺旋摆烂，不过看在新年30护符补宝暗狐+出了藤乃的面子上，该抽空去推2.7了
 
+
+
+*****
+
+####  森兰丸  
+##### 4322#       发表于 2023-1-15 05:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这垃圾游戏不会真就准备长草到月底了吧....新年整个1月什么都没也太生草了
+
+去看了眼氪金榜都快掉到100名了.....不过想想如果是别的游戏肯定早就在排行榜里都找不到了
+
