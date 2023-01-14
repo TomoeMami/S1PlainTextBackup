@@ -2382,3 +2382,13 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 ……搞不好议员们不知道 ...</blockquote>
 没有直接说这件事，但说了类似的话：诺州为了金钱随时可能背刺帝国，对帝国来说是个火药桶。本质上是因为诺州无法摆脱猎兵业。
 
+
+
+*****
+
+####  stevenzero  
+##### 340#       发表于 2023-1-14 09:36
+
+就是公费旅游啊，连保镖都选好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+直接给桃花剑送货上门
+

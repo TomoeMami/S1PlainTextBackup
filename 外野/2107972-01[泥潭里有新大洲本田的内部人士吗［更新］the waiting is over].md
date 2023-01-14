@@ -871,3 +871,19 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 
 ----发送自 [Xiaomi 22021211RC,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  bg54188  
+##### 83#         楼主| 发表于 2023-1-14 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342099&amp;ptid=2107972" target="_blank">asion617 发表于 2023-1-14 09:15</a>
+
+我还是喜欢ct的高位排气, 要是买了cc过半年又出ct大概会很难受</blockquote>
+这个真的不用担心，因为CT125和C125两款红标本田在泰国生产的好好的，绝无可能改到国产
+
+就算以后真有大茂进来了，价格也在3W一上
+
+本身这两个型号在国外就是走高端路线的，收割本田信仰税
+
