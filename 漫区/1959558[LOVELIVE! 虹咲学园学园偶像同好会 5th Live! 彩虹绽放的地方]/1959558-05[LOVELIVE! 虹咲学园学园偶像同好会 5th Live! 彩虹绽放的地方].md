@@ -963,3 +963,15 @@ all侑人供给也太足了，回想一期时还挺克制的
 还有三个pv画面没有用上：
 雫雪扮鬼、果林戳栞子脸、打牌
 
+
+
+*****
+
+####  仟音一心  
+##### 6887#       发表于 2023-1-14 13:23
+
+来源【【中字剪辑】潜行歌姬粉丝见面会上的有趣片段1-哔哩哔哩】 https://b23.tv/BVWL87F
+<img src="https://p.sda1.dev/9/fcda811fd3fa5126060c4137773542ba/CMP_20230114132225120.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/59e43df10e0776bc9dab499fcc6ff8c5/CMP_20230114132225162.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/c57983862210f384b5e072dbfad2d547/CMP_20230114132225212.jpg" referrerpolicy="no-referrer">
+
