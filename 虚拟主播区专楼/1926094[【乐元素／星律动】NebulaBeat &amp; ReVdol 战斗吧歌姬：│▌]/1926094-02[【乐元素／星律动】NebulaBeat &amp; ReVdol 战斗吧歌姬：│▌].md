@@ -13583,3 +13583,17 @@ P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不 ...</
 
 感觉经过十月十一月的恶性漏勺事件以后这次大家口风都紧了很多
 
+
+
+*****
+
+####  dreamenory  
+##### 2906#       发表于 2023-1-14 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344973&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-14 14:04</a>
+
+感觉经过十月十一月的恶性漏勺事件以后这次大家口风都紧了很多</blockquote>
+对员工加紧进行保密培训X
+
+变更了公司的宣传策略✓
+
