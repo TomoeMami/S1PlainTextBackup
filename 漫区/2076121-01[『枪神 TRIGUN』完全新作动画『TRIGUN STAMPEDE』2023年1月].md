@@ -1727,3 +1727,12 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 没看过旧版，新版第一集感觉不错
 
+
+
+*****
+
+####  nerugigannte  
+##### 160#       发表于 2023-1-14 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个公司GONZO来做个手绘动画就满足了
+

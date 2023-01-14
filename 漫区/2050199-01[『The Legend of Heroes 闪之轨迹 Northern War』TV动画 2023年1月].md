@@ -2404,3 +2404,16 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 这导力器只塞三个孔就算了，游戏里队友刚入队也差不多，一队人用一个还要申请，有这么穷的吗 ...</blockquote>
 大概是一队人共用一个吧，所以才申请。
 
+
+
+*****
+
+####  BallanceHZ  
+##### 342#       发表于 2023-1-14 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340173&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-14 00:18</a>
+这导力器感觉挺老的
+
+感觉连黎恩他们这些学生用的ARCUS都比不上</blockquote>
+零轨的enigma 1，核心回路都没有
+
