@@ -2956,3 +2956,19 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 人家北猎这叫预见了版本更新，现在s级也还是人，强如白银剑圣不还是被炸弹炸死被飞船撞死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kongxian  
+##### 389#       发表于 2023-1-14 17:01
+
+诺州要保有猎兵体系下是不可能跟帝国谈和的，罗根这么想其实什么没问题。议员那边已经是：大不了跑路、把诺州献给帝国、风头过了再回来当管理者。这类。这跟兵团利益又是矛盾的
+
+*****
+
+####  Aeons  
+##### 390#       发表于 2023-1-14 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">S级本来就是人啊，在战争中没那么大作用，光剑没人救不也是被炸死了。
+
