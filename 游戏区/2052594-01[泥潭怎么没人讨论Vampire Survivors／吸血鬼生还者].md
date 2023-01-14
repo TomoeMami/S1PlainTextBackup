@@ -16,3 +16,15 @@
 
 手机版解锁女王了，感觉也不是很强啊
 
+
+
+*****
+
+####  AeonsTorn  
+##### 648#       发表于 2023-1-14 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59348690&amp;ptid=2052594" target="_blank">妄想中毒 发表于 2023-1-14 19:22</a>
+手机版解锁女王了，感觉也不是很强啊</blockquote>
+开头三张塔罗加上之后还能开出来两张还是自选，已经够猛了
+配武器锁到一个，加上XX塔罗牌，基本上每个地图女王都是开局就可以直接站桩的
+

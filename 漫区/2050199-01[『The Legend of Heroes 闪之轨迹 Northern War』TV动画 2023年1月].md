@@ -3094,3 +3094,15 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 红色是火，绿色是风，紫色是哪个属性我真没印象了，这得算作画失误。
 
+
+
+*****
+
+####  妄想中毒  
+##### 402#       发表于 2023-1-14 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59346360&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 16:17</a>
+
+想多了。结社的兵力顶多和小国打打，和帝国完全不是一个量级的。小股部队进首都搞恐怖袭击勉强可以，大军 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有互联网可是有手机啊
+
