@@ -887,3 +887,12 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 
 本身这两个型号在国外就是走高端路线的，收割本田信仰税
 
+
+
+*****
+
+####  kokyuu  
+##### 84#       发表于 2023-1-14 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果和日版规格一样，那1.5以内真的是想多了。
+
