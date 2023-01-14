@@ -6479,3 +6479,24 @@ FmaMDB5acAIztPN.jpg
 别到时候改成12人版，给你把鱼的歌词砍没了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痛，太痛了
 
+
+
+*****
+
+####  starring  
+##### 11088#       发表于 2023-1-14 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59350454&amp;ptid=2078110" target="_blank">player3960 发表于 2023-1-14 21:08</a>
+
+别到时候改成12人版，给你把鱼的歌词砍没了</blockquote>
+一期几首特典曲从没出现过，不如先盼望一下这歌能在live上唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 11089#       发表于 2023-1-14 21:28
+
+这第6卷的封面和收录的剧集相对应，就显得很“自然”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟那俩集不就是大写特写香音传嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
