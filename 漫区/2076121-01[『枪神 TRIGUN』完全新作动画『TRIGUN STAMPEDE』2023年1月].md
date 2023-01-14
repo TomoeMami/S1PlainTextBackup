@@ -1819,3 +1819,14 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 制作水平第二话也保持住了，不错不错
 
+
+
+*****
+
+####  tewaku  
+##### 169#       发表于 2023-1-15 02:52
+
+我知道你怕开枪打烂玻璃瓶但大妈你把冲锋枪当钝器使抡一个体格比你大3倍的人，你是来送的？但凡拿把小刀我都当你有智商<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+还有全靠坏人口述主角在做的好事也太尬了，这是原作剧情还是改的？
+
