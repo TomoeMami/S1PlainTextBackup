@@ -3272,3 +3272,17 @@ Oh my eidos让我有点没绷住</blockquote>
 
 不过强音之力倒是对的，看表现很符合。
 
+
+
+*****
+
+####  6030sylar  
+##### 417#       发表于 2023-1-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59351841&amp;ptid=2050199" target="_blank">灰谷真实 发表于 2023-1-14 22:30</a>
+
+那颜色也不对啊，时属性珠子在游戏里都是黑色的。
+
+不过强音之力倒是对的，看表现很符合。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">为了让黑色容易辨别改了色指定吧，身上发黄光还以为是坚韧守护呢
+
