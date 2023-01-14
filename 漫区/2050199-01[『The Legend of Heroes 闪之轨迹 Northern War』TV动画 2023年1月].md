@@ -2861,3 +2861,14 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 其实诺州要啥没啥，占了也是鸡肋，打下来还不够军费支出来的多，正常情况下还真能靠外交解决 ...</blockquote>
 要放到现实，明明应该是帝国求着诺州独立及时止损才对
 
+
+
+*****
+
+####  Oshino  
+##### 381#       发表于 2023-1-14 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59346018&amp;ptid=2050199" target="_blank">无动于衷 发表于 2023-1-14 15:48</a>
+要放到现实，明明应该是帝国求着诺州独立及时止损才对</blockquote>
+看第一集你以为诺州是西伯利亚，到了第二集发现它真把自己当乌克兰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
