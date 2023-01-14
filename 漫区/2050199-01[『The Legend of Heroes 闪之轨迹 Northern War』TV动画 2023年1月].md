@@ -2788,3 +2788,17 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说到穷，那个挡车的画面。。。
 
+
+
+*****
+
+####  Oshino  
+##### 375#       发表于 2023-1-14 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345468&amp;ptid=2050199" target="_blank">reegun 发表于 2023-1-14 14:54</a>
+派了个皇室护卫家族的小孩子去宣示身份，以为就没人敢动手了，结果是有真疯的
+
+一个皇储等到30还不结婚怎 ...</blockquote>
+雷神兄弟那可是帝国将才好不好，让他们去乡下保护你那个没头衔的老婆算怎么回事，而且处得久怕不是连绿帽同人都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过我觉得这个是人设为剧情服务的情节，奥瓜在空轨的时候看着还是没权势很闲散的私生皇子的样子，到闪轨一看完全不是这回事，不得给他爸他妈写点深情故事让这个变化看起来不太突兀
+

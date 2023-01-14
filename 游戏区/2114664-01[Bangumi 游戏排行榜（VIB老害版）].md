@@ -899,3 +899,24 @@ BGM这个网站用户的话语权争夺而已，动画条目更是惨不忍睹�
 
 然而我上次登陆bgm是2015年<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萼绿华  
+##### 81#         楼主| 发表于 2023-1-14 15:08
+
+<blockquote>Leona_Akari 发表于 2023-1-14 14:52
+看到这个贴后我久违的登陆一下bgm看了下，我竟然真的是VIB，因为我给口袋里的战争打了3分，这片一共 ...</blockquote>
+这个VIB是每个区分开算的，动画区的VIB未必是游戏区的
+
+*****
+
+####  电磁炮233  
+##### 82#       发表于 2023-1-14 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345601&amp;ptid=2114664" target="_blank">萼绿华 发表于 2023-1-14 15:08</a>
+
+这个VIB是每个区分开算的，动画区的VIB未必是游戏区的</blockquote>
+但是认定的机制应该是一样的吧，所以肯定和活跃度没关系。。。
+
