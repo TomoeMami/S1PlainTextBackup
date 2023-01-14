@@ -1048,3 +1048,14 @@ kou7303
 
 <img src="https://img.saraba1st.com/forum/202301/14/171508dywdyymgml8ldwwc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6892#       发表于 2023-1-14 17:39
+
+真是那身粉西装啊，意外的还可以？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
