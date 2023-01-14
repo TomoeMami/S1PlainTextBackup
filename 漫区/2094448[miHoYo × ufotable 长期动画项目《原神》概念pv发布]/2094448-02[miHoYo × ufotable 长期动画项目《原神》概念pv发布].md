@@ -30,3 +30,24 @@
 刚开始做吗？这成品要到猴年马月</blockquote>
 你想早做ufo也腾不出手呀，他们之前宣布制作的作品也不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  消防  
+##### 1508#       发表于 2023-1-14 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713145&amp;ptid=2094448" target="_blank">hein 发表于 2022-12-1 22:13</a>
+
+这是动画？</blockquote>
+UFO能把柄画得这么漂亮打死我也不信啊！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meailove  
+##### 1509#       发表于 2023-1-14 10:55
+
+ufo今年除了鬼灭外还有个魔夜剧场版吧，感觉大概要25年才能出来
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

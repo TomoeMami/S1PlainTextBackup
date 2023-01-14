@@ -1745,3 +1745,14 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 在微博看到好多人说新动画的男主人设比旧动画更符合原作漫画。
 
+
+
+*****
+
+####  有钱多买小人  
+##### 162#       发表于 2023-1-14 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59314899&amp;ptid=2076121" target="_blank">saturnus 发表于 2023-1-12 13:19</a>
+trigun的精神内核和Trinity blood太相似了，从年份上看应该是后者借鉴了不少前者的东西，比如男主都是百年 ...</blockquote>
+三血当年在日本就有不少读者认为是抄trigun+hellsing，可惜作者早逝，没有后续了。
+
