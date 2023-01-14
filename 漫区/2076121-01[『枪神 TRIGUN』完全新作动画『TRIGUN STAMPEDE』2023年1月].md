@@ -1789,3 +1789,15 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 老TV加了好色属性，微博磕cp的女粉不满意很久了</blockquote>
 也有不少看到大个子妹妹不见了就嚎牧师没cp了的老tv粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半斤八两吧感觉
 
+
+
+*****
+
+####  cementerio  
+##### 166#       发表于 2023-1-14 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345497&amp;ptid=2076121" target="_blank">pokel 发表于 2023-1-14 14:58</a>
+
+也有不少看到大个子妹妹不见了就嚎牧师没cp了的老tv粉啊半斤八两吧感觉 ...</blockquote>
+高妹没了嚎得最勤的不还得是原作粉<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

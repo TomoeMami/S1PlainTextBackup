@@ -2802,3 +2802,15 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 雷神兄弟那可是帝国将才好不好，让他们去乡下保护你那个没头衔的老婆算怎么回事，而且处得久怕不是连绿帽同人都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过我觉得这个是人设为剧情服务的情节，奥瓜在空轨的时候看着还是没权势很闲散的私生皇子的样子，到闪轨一看完全不是这回事，不得给他爸他妈写点深情故事让这个变化看起来不太突兀
 
+
+
+*****
+
+####  waldo  
+##### 376#       发表于 2023-1-14 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342928&amp;ptid=2050199" target="_blank">nerugigannte 发表于 2023-1-14 10:50</a>
+今年只玩完碧0就谈恋爱去了被剧透了一脸，咋闪的男主成了帝国的英雄侵略克州的帮手 ...</blockquote>
+<img src="https://p.sda1.dev/9/056c5bc6ee730096c0a34dd090a9a129/c7963eda81cb39dbd9128aa4db160924a91830c0.jpg" referrerpolicy="no-referrer">
+只需要知道这个就行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
