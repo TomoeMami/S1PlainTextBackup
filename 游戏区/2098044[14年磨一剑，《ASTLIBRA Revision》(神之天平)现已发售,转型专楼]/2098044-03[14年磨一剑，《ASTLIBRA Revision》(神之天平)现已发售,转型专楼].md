@@ -4752,3 +4752,25 @@ b站也有 ...</blockquote>
 
 第五章是**恶心，不明不白就把白给噶了，我还只有一个开头的档
 
+
+
+*****
+
+####  神隐の馒头  
+##### 3397#       发表于 2023-1-14 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341635&amp;ptid=2098044" target="_blank">Motoko-9 发表于 2023-1-14 06:49</a>
+
+第五章是**恶心，不明不白就把白给噶了，我还只有一个开头的档</blockquote>
+无所谓，少点剧情而已。顺便新章作者还会再让你选一次调侃你。
+
+*****
+
+####  tsubaki  
+##### 3398#       发表于 2023-1-14 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341168&amp;ptid=2098044" target="_blank">herryk159 发表于 2023-1-14 02:08</a>
+
+命运女神的机制好傻逼啊，墨迹的要死，接着那条龙也是打到手酸，54级打着刮痧，难不成是80级才去通关吗？[f ...</blockquote>
+龙王喷点出来打起来很快的，没有就狂暴流了（
+
