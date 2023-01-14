@@ -3134,3 +3134,13 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 所以就造成了猎兵用的扣扣索索，游击士，学生这种上头发一堆。
 
+
+
+*****
+
+####  kamarus  
+##### 405#       发表于 2023-1-14 20:31
+
+诺州这烂地方上层肯定是比烂大会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟大公带头跑路的地方，指望什么呢。
+

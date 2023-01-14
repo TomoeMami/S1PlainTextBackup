@@ -13705,3 +13705,31 @@ P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不 ...</
 
 话说NB装扮居然能卖上6K套，有这么多粉丝吗，到底有多少大佬保底了销量
 
+
+
+*****
+
+####  MinFOrder  
+##### 2918#       发表于 2023-1-14 20:36
+
+不是包饺子吗，放错了是吧（
+
+*****
+
+####  ladiesman802  
+##### 2919#       发表于 2023-1-14 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59349698&amp;ptid=1926094" target="_blank">佛皇 发表于 2023-1-14 20:27</a>
+
+话说NB装扮居然能卖上6K套，有这么多粉丝吗，到底有多少大佬保底了销量</blockquote>
+几百吧，其他仓鼠佬包了
+
+*****
+
+####  天青月白  
+##### 2920#       发表于 2023-1-14 20:40
+
+上班没能从一开始看，小火驴的节目过了没
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
