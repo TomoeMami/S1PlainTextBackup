@@ -2635,3 +2635,35 @@ T1级别，和T0级别的区别就是没有S级大佬压阵以及看这集可能
 
 摩根反而啥都不知道。。
 
+
+
+*****
+
+####  aptx8285144  
+##### 361#       发表于 2023-1-14 12:50
+
+自治州如果没有外交后援，如果再没有威慑武器和强大军力或者天险保护那就更难了，话说回来二次元作品几乎没详细写几次外交博弈的，说白了不够有趣，不能卖钱，还是打打打刺激<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙之峰  
+##### 362#       发表于 2023-1-14 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344185&amp;ptid=2050199" target="_blank">三友非三清 发表于 2023-1-14 12:48</a>
+
+虽然第一集和第二集都是摩根想搞事，但看结尾，和结社联络的是白毛大姐姐，而白毛是团长的亲信
+
+摩根反而 ...</blockquote>
+感觉摩根更像是民粹，对现有体制不屑，直接对诺州群众讲话，想要掀起新的革命，估计后面下克上独走不可避。
+
+*****
+
+####  kamarus  
+##### 363#       发表于 2023-1-14 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344208&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-14 12:50</a>
+自治州如果没有外交后援，如果再没有威慑武器和强大军力或者天险保护那就更难了，话说回来二次元作品几乎没 ...</blockquote>
+所以自治州三个月就无了（悲）
+不是闪4奥斯本无了帝国自己懒得打了赔钱了事这几个地方能不能吐出来都难说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过帝国这任皇帝就是个窝囊废，老婆都保不住的屑，让他打下去也估计没那水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
