@@ -6433,3 +6433,30 @@ FmaMDB5acAIztPN.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ViyViy  
+##### 11083#       发表于 2023-1-14 20:43
+
+不是九人塞一张图我是没想到的，整个星二动画脑子都是浆糊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 11084#       发表于 2023-1-14 20:47
+
+别慌，三期还要让香音塞一个封面呢，三辞三让这才第二次。
+
+难怪二期官方公式书让knk站中间。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 11085#       发表于 2023-1-14 20:47
+
+这特典歌好像还不错，重点是这试听听上去终于肯让鱼多唱几句了，甚至还夹英文
+

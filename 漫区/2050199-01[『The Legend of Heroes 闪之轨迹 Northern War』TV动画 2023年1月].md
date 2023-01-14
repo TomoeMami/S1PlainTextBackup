@@ -3144,3 +3144,17 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 诺州这烂地方上层肯定是比烂大会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 毕竟大公带头跑路的地方，指望什么呢。
 
+
+
+*****
+
+####  卢迪克  
+##### 406#       发表于 2023-1-14 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59349748&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-14 20:31</a>
+
+诺州这烂地方上层肯定是比烂大会
+
+毕竟大公带头跑路的地方，指望什么呢。 ...</blockquote>
+大公儿子被砍了，大公不跑就一起死了
+
