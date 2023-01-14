@@ -769,3 +769,29 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 早有了，宗申的yami有电动版，比这个更像cub</blockquote>
 不是电自，广州市区不能随便开啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  droople  
+##### 74#       发表于 2023-1-14 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59314204&amp;ptid=2107972" target="_blank">bg54188 发表于 2023-1-12 12:21</a>
+
+这次3款电车里唯一有用心设计的
+
+轮子、前避震、电机、电池应该都是沿用的新本S07S08的成熟方案。估计电控 ...</blockquote>
+zoomer怎么样啊
+
+*****
+
+####  bg54188  
+##### 75#         楼主| 发表于 2023-1-14 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341998&amp;ptid=2107972" target="_blank">droople 发表于 2023-1-14 08:57</a>
+
+zoomer怎么样啊</blockquote>
+Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹，定速巡航，两种行驶模式，更亮的前大灯这些
+
+但是电池和电机、控制器应该还是沿用的UBE，基本就是UBE升个级换个壳子
+
