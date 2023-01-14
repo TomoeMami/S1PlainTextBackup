@@ -3063,3 +3063,34 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 利贝尔三两下就逼得帝国停战,它利贝尔做得我诺州做不得?</blockquote>
 利贝尔怎么说也是导力技术先进国啊，就算不提辉之环，那可是刚从学堂毕业的游击士新人都能人手一个导力器的富裕国家，诺州周拿什么去比
 
+
+
+*****
+
+####  aimujie  
+##### 399#       发表于 2023-1-14 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59348929&amp;ptid=2050199" target="_blank">月夜凝雪 发表于 2023-1-14 19:37</a>
+
+是他自己申请使用的啊</blockquote>
+是表现形式，红绿紫也不知道能凑个啥魔法，看着像一个速力双buff然后人上去螳臂当车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏明翰  
+##### 400#       发表于 2023-1-14 19:53
+
+还有有没有和我讲讲，逼停炸药卡车要把瞭望塔打下来是什么思路
+
+*****
+
+####  灰谷真实  
+##### 401#       发表于 2023-1-14 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59349141&amp;ptid=2050199" target="_blank">aimujie 发表于 2023-1-14 19:51</a>
+
+是表现形式，红绿紫也不知道能凑个啥魔法，看着像一个速力双buff然后人上去螳臂当车 ...</blockquote>
+你没发现中间装得甚至还不是核心回路吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+红色是火，绿色是风，紫色是哪个属性我真没印象了，这得算作画失误。
+
