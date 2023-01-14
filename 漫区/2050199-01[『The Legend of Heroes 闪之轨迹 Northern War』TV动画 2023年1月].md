@@ -2726,3 +2726,21 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 以后只有黎爷制，毕竟上至王女，中到贵族派核心人物，下到平民派都是黎爷 ...</blockquote>
 从前两部剧本来看原设定应该是大帝转世的，现在改成了大帝儿子，已经降过辈儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无动于衷  
+##### 369#       发表于 2023-1-14 14:01
+
+现在把持帝国实权的就是一帮圣母，你们还指望帝国能再次伟大？
+
+*****
+
+####  Oshino  
+##### 370#       发表于 2023-1-14 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344723&amp;ptid=2050199" target="_blank">jiklp87 发表于 2023-1-14 13:38</a>
+ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让贵族派给鲨了，实在丢人，不是摆烂能解释的 ...</blockquote>
+那时候他还是皇子吧，为了保护她妈只敢把她放在偏僻地方藏起来过日子
+
