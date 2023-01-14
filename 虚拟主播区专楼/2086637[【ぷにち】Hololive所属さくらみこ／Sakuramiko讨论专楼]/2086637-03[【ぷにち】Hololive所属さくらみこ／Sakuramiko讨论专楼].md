@@ -10283,3 +10283,14 @@ https://twitter.com/PNekoe/status/1613823321086529537?s=20&amp;t=vFRIbbnnR37Ze9m
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3960#       发表于 2023-1-14 22:21
+
+摇手指的余波还没完么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
