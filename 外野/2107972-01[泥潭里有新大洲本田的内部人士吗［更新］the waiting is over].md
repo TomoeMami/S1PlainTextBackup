@@ -942,3 +942,15 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 
 考验幼兽爱好者的时候到了，不要拿买不到当借口啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  flyang  
+##### 89#       发表于 2023-1-14 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59348263&amp;ptid=2107972" target="_blank">RPG-7 发表于 2023-1-14 18:52</a>
+
+日本的CC是泰产还是日产？</blockquote>
+日产，好像是熊本的工厂，ct125是泰产
+

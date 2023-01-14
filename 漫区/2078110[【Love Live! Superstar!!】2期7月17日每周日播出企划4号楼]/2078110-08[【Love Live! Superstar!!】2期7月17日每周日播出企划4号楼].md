@@ -6651,3 +6651,27 @@ payton paper
 
 <img src="https://img.saraba1st.com/forum/202301/14/214035wimkuig41uc4yduc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yicihanshu  
+##### 11092#       发表于 2023-1-14 21:49
+
+ 本帖最后由 yicihanshu 于 2023-1-14 21:50 编辑 
+
+还是回顾一下之前三个二期最后一张bd的封面吧。
+
+这个东西节目效果已经和12集标题一样了
+
+lovelive! 二期动画 BD第7卷封面
+<img src="https://p.sda1.dev/9/ebbd17682c74559e262511d0b19dbc4b/CMP_20230114214802070.jpg" referrerpolicy="no-referrer">
+lovelive! sunshine 二期动画 BD第7卷封面
+<img src="https://p.sda1.dev/9/b2610de536be2c3c0de004f4ad7c140c/f613465d9f13e069.jpg" referrerpolicy="no-referrer">
+lovelive! 虹ヶ咲学园スクールアイドル同好会 二期动画 BD第7卷封面
+<img src="https://p.sda1.dev/9/76b1ad9c3ef22661baeabcd5324d9da2/CMP_20230114214802123.jpg" referrerpolicy="no-referrer">
+大香英雄传 二期动画 BD第6卷封面
+<img src="https://p.sda1.dev/9/abdb463df9c6f2ff512d892ef4547fc7/CMP_20230114215040282.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
