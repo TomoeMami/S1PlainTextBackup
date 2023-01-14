@@ -2690,3 +2690,39 @@ T1级别，和T0级别的区别就是没有S级大佬压阵以及看这集可能
 看过黑色史书的，有狮心皇帝在隔壁，早就躺了</blockquote>
 ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让贵族派给鲨了，实在丢人，不是摆烂能解释的
 
+
+
+*****
+
+####  龙之峰  
+##### 366#       发表于 2023-1-14 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344266&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-14 12:57</a>
+
+所以自治州三个月就无了（悲）
+
+不是闪4奥斯本无了帝国自己懒得打了赔钱了事这几个地方能不能吐出来都难说 ...</blockquote>
+帝国皇帝本来就是吉祥物，帝国是贵族制不是君主制。
+
+*****
+
+####  kamarus  
+##### 367#       发表于 2023-1-14 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344783&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 13:43</a>
+帝国皇帝本来就是吉祥物，帝国是贵族制不是君主制。</blockquote>
+以后也没有什么贵族制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以后只有黎爷制，毕竟上至王女，中到贵族派核心人物，下到平民派都是黎爷后宫，只要黎爷这个正牌大帝转世唯一嫡子发号施令，帝国舒瓦泽王朝分分钟不是
+
+*****
+
+####  jiklp87  
+##### 368#       发表于 2023-1-14 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344808&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-14 13:46</a>
+
+以后也没有什么贵族制了
+
+以后只有黎爷制，毕竟上至王女，中到贵族派核心人物，下到平民派都是黎爷 ...</blockquote>
+从前两部剧本来看原设定应该是大帝转世的，现在改成了大帝儿子，已经降过辈儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
