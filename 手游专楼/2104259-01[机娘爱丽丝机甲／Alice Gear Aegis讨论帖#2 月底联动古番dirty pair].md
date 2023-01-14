@@ -174,3 +174,18 @@ FA小结（逃）</blockquote>
 
 阿星的fa啥时候啊  这fa的标准到底是啥  凑cp么
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 173#         楼主| 发表于 2023-1-14 11:45
+
+没多久前选的阿蒂，现在才把她的星数剧情看了，比较有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1，一个是模拟战。时间点是放在高中毕业后的。阿蒂对人战完虐风纪和副会长，然后PVP大佬聚首时和桑蒂，G姐打就没提胜负。所以阿嘎什么时候出女演员敌人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+2，阿蒂分别去副会和风纪的家里。副会家里有点糟糕啊，这弟弟和老妈感觉对女同已经完全接收了的，什么结婚啊“义理的姐姐”啥的都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+3，阿蒂最后还稍稍撩了一下G姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

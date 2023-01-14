@@ -14615,3 +14615,12 @@ big胆  那叫终章！</blockquote>
 
 这类游戏，不用抽才是最好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 4321#       发表于 2023-1-14 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进厂打了几个月的螺丝钱没赚到，回头看到FGO这螺旋摆烂，不过看在新年30护符补宝暗狐+出了藤乃的面子上，该抽空去推2.7了
+
