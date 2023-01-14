@@ -13623,3 +13623,19 @@ P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不 ...</
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  MinFOrder  
+##### 2909#       发表于 2023-1-14 19:33
+
+节目好密啊，中间串场环节再长点就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  佛皇  
+##### 2910#       发表于 2023-1-14 19:38
+
+这次人多，估计节目也多
+

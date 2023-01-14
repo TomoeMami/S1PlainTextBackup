@@ -1801,3 +1801,12 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 也有不少看到大个子妹妹不见了就嚎牧师没cp了的老tv粉啊半斤八两吧感觉 ...</blockquote>
 高妹没了嚎得最勤的不还得是原作粉<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sandro  
+##### 167#       发表于 2023-1-14 19:40
+
+第一集不错啊，但没有电灯泡了有点可惜
+

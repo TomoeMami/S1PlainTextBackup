@@ -3032,3 +3032,15 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 虽然很穷但是在好好讲故事，就是导力器那段太草了，你被强化了，快送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 396#       发表于 2023-1-14 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59348587&amp;ptid=2050199" target="_blank">aimujie 发表于 2023-1-14 19:15</a>
+
+虽然很穷但是在好好讲故事，就是导力器那段太草了，你被强化了，快送 ...</blockquote>
+是他自己申请使用的啊
+
