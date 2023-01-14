@@ -2938,3 +2938,21 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 而且结社这时期记得还是偏向跟帝国合作。就连外援实际上都是敌方的人，这还打啥啊赶紧投吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Oshino  
+##### 387#       发表于 2023-1-14 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59346276&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 16:12</a>
+黎爷没有领导力。闪创后的帝国最大赢家应该是马奇亚斯他爸那一派，贵族被导力革命冲垮了，宰相派因为世界 ...</blockquote>
+连凯恩公这种发起疯抄自己家的都💊不了，现在甚至有赢麻的趋势，贵族怎么垮。平民派顶多是在议会上变得有话语权了，但是帝国的四个大州全掌握在贵族的手里。按照轨迹的童话政治学，后续也没什么可能安排他们搞事，加上二代铁保皇党，帝国变成共和国制可能要再写八部闪轨才能等到
+
+*****
+
+####  阿虚家的三味  
+##### 388#       发表于 2023-1-14 16:46
+
+人家北猎这叫预见了版本更新，现在s级也还是人，强如白银剑圣不还是被炸弹炸死被飞船撞死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
