@@ -130,3 +130,18 @@
 
 不如一直单元剧，最后三集主线完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 869#       发表于 2023-1-14 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑吾就是特利迦，奏大就是斯菲亚
+
+这博士塑造真是纯纯答辩，把整部戏都搞坏了
+
+为什么不传统点搞个被**的正义人士呢，至少观感不会这么屎
+
+自己发疯拖着别人一起下水的不就是完全的反派？这还洗白个屁
+

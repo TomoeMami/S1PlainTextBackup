@@ -6675,3 +6675,16 @@ lovelive! 虹ヶ咲学园スクールアイドル同好会 二期动画 BD第7�
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 11093#       发表于 2023-1-14 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59351183&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2023-1-14 21:49</a>
+还是回顾一下之前三个二期最后一张bd的封面吧。
+
+这个东西节目效果已经和12集标题一样了</blockquote>
+本来单看香音封面没什么感觉，这一对比绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

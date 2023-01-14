@@ -85,3 +85,15 @@ ufo今年除了鬼灭外还有个魔夜剧场版吧，感觉大概要25年才能
 估计三周年能出动画吧，正好十月新番</blockquote>
 三周年？四周年！
 
+
+
+*****
+
+####  whzfjk  
+##### 1513#       发表于 2023-1-14 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342927&amp;ptid=2094448" target="_blank">消防 发表于 2023-1-14 10:50</a>
+
+UFO能把柄画得这么漂亮打死我也不信啊！</blockquote>
+UFO FATE 脸画得难看感觉还是和武内脸的相性问题，想凑，没凑好
+

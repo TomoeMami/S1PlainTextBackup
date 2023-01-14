@@ -3213,3 +3213,25 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 Oh my eidos让我有点没绷住
 
+
+
+*****
+
+####  Oshino  
+##### 412#       发表于 2023-1-14 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59350837&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 21:27</a>
+
+内战失败后贵族就注定完蛋了，现在是体面退场时间。贵族的有识之士都在抢占先发优势，争取能多保留点财富 ...</blockquote>
+贵族对四大州的统治没有动摇啊，首府由四大名门把持，其他地方的领主也是贵族。编剧本身也没有把贵族往反派写的意思，劳拉他爸，黎爷他爸都是贵族作为领主跟平民其乐融融的典范。平民派上位就是拿到帝都市长的位置而已，难道还能狭天子以令诸侯下令四大州的贵族抄自己全家？反正我现在是没看出来贵族在帝国失势，准备走向共和的感觉，编剧更不会给自己找麻烦事这样编剧情
+
+*****
+
+####  lokifreya  
+##### 413#       发表于 2023-1-14 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59351095&amp;ptid=2050199" target="_blank">Cloudslin 发表于 2023-1-14 21:43</a>
+
+Oh my eidos让我有点没绷住</blockquote>
+这台词超级亮点，制作组蛮有爱的
+
