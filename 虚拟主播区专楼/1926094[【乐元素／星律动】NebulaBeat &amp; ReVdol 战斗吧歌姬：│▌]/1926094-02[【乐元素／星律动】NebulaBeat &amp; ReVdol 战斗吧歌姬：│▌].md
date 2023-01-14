@@ -13560,3 +13560,17 @@ nb特有的诈尸<img src="https://static.saraba1st.com/image/smiley/face2017/01
 
 P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不来<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2904#       发表于 2023-1-14 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340534&amp;ptid=1926094" target="_blank">提取温暖度严寒 发表于 2023-1-14 00:53</a>
+
+粉红猫到底来不来，有没有看了详细直播的老哥说一下
+
+P.S. 我切进去看了一点，感觉像是要来，但是一堆人说不 ...</blockquote>
+猜也没用
+

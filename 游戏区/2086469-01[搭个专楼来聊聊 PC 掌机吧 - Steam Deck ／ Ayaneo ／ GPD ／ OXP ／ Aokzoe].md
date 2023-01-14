@@ -320,3 +320,12 @@ oxp2光速送到</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202301/14/130909pobwzo5fd2aeowio.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  luffyzhou  
+##### 623#       发表于 2023-1-14 13:18
+
+geek不是已经发了一批了么，都有收到的了
+
