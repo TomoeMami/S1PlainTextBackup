@@ -3235,3 +3235,14 @@ Oh my eidos让我有点没绷住
 Oh my eidos让我有点没绷住</blockquote>
 这台词超级亮点，制作组蛮有爱的
 
+
+
+*****
+
+####  BallanceHZ  
+##### 414#       发表于 2023-1-14 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59351095&amp;ptid=2050199" target="_blank">Cloudslin 发表于 2023-1-14 21:43</a>
+Oh my eidos让我有点没绷住</blockquote>
+这句我当时都喷了，制作组还挺会玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
