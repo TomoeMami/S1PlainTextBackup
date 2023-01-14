@@ -289,3 +289,16 @@ oxp2光速送到</blockquote>
 话说sd那块屏幕的素质到底咋样啊？这两天有点想入就做了点功课，发现网上说他那块屏数据上来看不如初版的NS ...</blockquote>
 颜色确实不行
 
+
+
+*****
+
+####  你好s1  
+##### 621#       发表于 2023-1-14 12:52
+
+ 本帖最后由 你好s1 于 2023-1-14 12:54 编辑 
+
+  话说PDD上  SD 64G的 ，各种叠加乱七八糟的优惠卷，能差不多2850拿下了
+
+  结果我一搜某宝，居然还有2808的现货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
