@@ -73,3 +73,15 @@ ufo今年除了鬼灭外还有个魔夜剧场版吧，感觉大概要25年才能
 
 估计三周年能出动画吧，正好十月新番
 
+
+
+*****
+
+####  搬运社社员  
+##### 1512#       发表于 2023-1-14 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59348339&amp;ptid=2094448" target="_blank">shiriruzero 发表于 2023-1-14 18:59</a>
+
+估计三周年能出动画吧，正好十月新番</blockquote>
+三周年？四周年！
+
