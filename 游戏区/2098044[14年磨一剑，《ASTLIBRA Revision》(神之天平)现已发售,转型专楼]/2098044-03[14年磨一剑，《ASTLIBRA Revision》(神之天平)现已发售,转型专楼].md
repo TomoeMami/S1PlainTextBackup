@@ -4811,3 +4811,16 @@ b站也有 ...</blockquote>
 
 龙王的话，凭6章的武器打起来还是有些吃力，只能开狂暴打。秒杀招式，提前留满蓝条，石化光线格挡，然后凭依+无敌后跳+凭依可以躲过扭曲。不过秒杀招式是随机的，有些时候龙王不会发动。
 
+
+
+*****
+
+####  chivalry  
+##### 3402#       发表于 2023-1-14 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341964&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-14 08:51</a>
+弩箭逃课一时爽，迟早会还的。
+
+逃的越多，后面越难，连杂兵都会寸步难行。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">好吧，今天打完第六章，打贝阿朵莉切的时候确实弩箭逃课失败，最后还是狂暴修脚过的。斗神是真滴好，一把单手剑我用到现在
+

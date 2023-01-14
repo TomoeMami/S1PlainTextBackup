@@ -2368,3 +2368,17 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 
 这导力器只塞三个孔就算了，游戏里队友刚入队也差不多，一队人用一个还要申请，有这么穷的吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  龙之峰  
+##### 339#       发表于 2023-1-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59340713&amp;ptid=2050199" target="_blank">星海坊主 发表于 2023-1-14 01:11</a>
+
+我也很奇怪为什么会议里特意回避了北方猎兵参合帝国内战可能给奥斯本抓住把柄这点
+
+……搞不好议员们不知道 ...</blockquote>
+没有直接说这件事，但说了类似的话：诺州为了金钱随时可能背刺帝国，对帝国来说是个火药桶。本质上是因为诺州无法摆脱猎兵业。
+
