@@ -2392,3 +2392,15 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 就是公费旅游啊，连保镖都选好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 直接给桃花剑送货上门
 
+
+
+*****
+
+####  戏言卿  
+##### 341#       发表于 2023-1-14 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342116&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-14 09:18</a>
+
+这导力器只塞三个孔就算了，游戏里队友刚入队也差不多，一队人用一个还要申请，有这么穷的吗 ...</blockquote>
+大概是一队人共用一个吧，所以才申请。
+
