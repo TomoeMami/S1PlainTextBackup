@@ -2872,3 +2872,56 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 要放到现实，明明应该是帝国求着诺州独立及时止损才对</blockquote>
 看第一集你以为诺州是西伯利亚，到了第二集发现它真把自己当乌克兰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  龙之峰  
+##### 382#       发表于 2023-1-14 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344808&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-14 13:46</a>
+
+以后也没有什么贵族制了
+
+以后只有黎爷制，毕竟上至王女，中到贵族派核心人物，下到平民派都是黎爷 ...</blockquote>
+黎爷没有领导力。闪创后的帝国最大赢家应该是马奇亚斯他爸那一派，贵族被导力革命冲垮了，宰相派因为世界大战失势。奥瓜如果想的话也可以上位，但他不愿意上。后续帝国应该是自上而下的缓慢改革。
+
+*****
+
+####  龙之峰  
+##### 383#       发表于 2023-1-14 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345923&amp;ptid=2050199" target="_blank">封印的右手 发表于 2023-1-14 15:40</a>
+
+其实诺州要啥没啥，占了也是鸡肋，打下来还不够军费支出来的多，正常情况下还真能靠外交解决 ...</blockquote>
+诺州自己能过下去，就是苦了点。帝国是想要让它稳定点，别总在背后输出猎兵了，统治阶层肯定得清理一遍。对百姓来说差距不大。
+
+最重要的还是相克，这个就没得谈了。
+
+*****
+
+####  龙之峰  
+##### 384#       发表于 2023-1-14 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345874&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-1-14 15:35</a>
+
+其实别说，蓝毛现在要是联合共和国和结社一起推的话说不定真能推到首都
+
+结社这会儿还不跟麻婆一条裤子，相 ...</blockquote>
+想多了。结社的兵力顶多和小国打打，和帝国完全不是一个量级的。小股部队进首都搞恐怖袭击勉强可以，大军打到首都也太夸张了。
+
+千之阳炎重要的是怎么搭上线，闪轨期间的轨迹可没有移动互联网。
+
+*****
+
+####  evangelina  
+##### 385#       发表于 2023-1-14 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342116&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-14 09:18</a>
+
+这导力器只塞三个孔就算了，游戏里队友刚入队也差不多，一队人用一个还要申请，有这么穷的吗 ...</blockquote>
+
+草，看了下那段是他先申请然后给了个队长用导力器的画面
+
+合着这是申请完了还得队长给队友，或者让他帮上buff，自己没有专用的吗？真的穷到极点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
