@@ -896,3 +896,17 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果和日版规格一样，那1.5以内真的是想多了。
 
+
+
+*****
+
+####  bg54188  
+##### 85#         楼主| 发表于 2023-1-14 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59343044&amp;ptid=2107972" target="_blank">kokyuu 发表于 2023-1-14 11:02</a>
+
+如果和日版规格一样，那1.5以内真的是想多了。</blockquote>
+国内生产就算卖1.5本田又不会亏钱的，当然嘛对于本田来说不是大赚就是亏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+所以我也倾向于这个价格是C110 Super cub的定价
+

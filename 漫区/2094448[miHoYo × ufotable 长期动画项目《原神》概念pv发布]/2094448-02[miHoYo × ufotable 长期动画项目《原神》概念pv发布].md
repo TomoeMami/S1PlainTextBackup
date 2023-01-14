@@ -51,3 +51,16 @@ ufo今年除了鬼灭外还有个魔夜剧场版吧，感觉大概要25年才能
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  月夜凝雪  
+##### 1510#       发表于 2023-1-14 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342778&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2023-1-14 10:33</a>
+刚开始做吗？这成品要到猴年马月</blockquote>
+宣布要制作后半年到一年才开始动工是正常情况吧，各种调度都需要时间，难道像企鹅那样宣布制作到开播只花了半年的赶火箭么
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

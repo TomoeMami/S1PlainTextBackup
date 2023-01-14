@@ -2478,3 +2478,42 @@ F1+F3=稳赢，空一格是吧<img src="https://static.saraba1st.com/image/smile
 还没看  有没有看过的说一下主角这个猎兵团的整体实力是什么档次的  如果按照西风旅团,赤色星座为T0的话[f: ...</blockquote>
 方便的杂鱼 规模是最大的 但缺少高端战力
 
+
+
+*****
+
+####  秘银mithril  
+##### 349#       发表于 2023-1-14 11:21
+
+好看啊，两个场景互相穿插讲得都很清楚
+
+也不会感觉沉闷，真难得
+
+*****
+
+####  kamarus  
+##### 350#       发表于 2023-1-14 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342993&amp;ptid=2050199" target="_blank">aono 发表于 2023-1-14 10:57</a>
+还没看  有没有看过的说一下主角这个猎兵团的整体实力是什么档次的  如果按照西风旅团,赤色星座为T0的话[f: ...</blockquote>
+杂兵罢了，最多出个第一章的中间小boss战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那个团长也许可以进最终战的第一战当个小boss<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三友非三清  
+##### 351#       发表于 2023-1-14 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342993&amp;ptid=2050199" target="_blank">aono 发表于 2023-1-14 10:57</a>
+
+还没看  有没有看过的说一下主角这个猎兵团的整体实力是什么档次的  如果按照西风旅团,赤色星座为T0的话[f: ...</blockquote>
+其实很难说
+
+因为北方猎兵在游戏里没提过高层
+
+但目前来看团长是可能有S级的，两个干部A级肯定有
+
+这样的话，加上一万杂兵，那这个猎兵团大概是最强的
+
+原因很简单：其他猎兵团就几百人。。
+
