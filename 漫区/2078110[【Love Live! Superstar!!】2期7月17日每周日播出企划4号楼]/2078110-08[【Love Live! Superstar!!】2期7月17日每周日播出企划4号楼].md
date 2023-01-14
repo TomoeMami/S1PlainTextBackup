@@ -6460,3 +6460,22 @@ FmaMDB5acAIztPN.jpg
 
 这特典歌好像还不错，重点是这试听听上去终于肯让鱼多唱几句了，甚至还夹英文
 
+
+
+*****
+
+####  player3960  
+##### 11086#       发表于 2023-1-14 21:08
+
+别到时候改成12人版，给你把鱼的歌词砍没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 11087#       发表于 2023-1-14 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59350454&amp;ptid=2078110" target="_blank">player3960 发表于 2023-1-14 21:08</a>
+
+别到时候改成12人版，给你把鱼的歌词砍没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痛，太痛了
+
