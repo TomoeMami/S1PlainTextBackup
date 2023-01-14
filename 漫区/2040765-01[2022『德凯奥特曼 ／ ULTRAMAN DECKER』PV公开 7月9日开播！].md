@@ -80,3 +80,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看到后面感觉就是编剧没活硬整了，博士这条线撑死三四集就可以讲完的，但是博士线之后不知道写啥了就硬拖到最后直接打boss
 
+
+
+*****
+
+####  RainbowSealife  
+##### 865#       发表于 2023-1-14 16:08
+
+<img src="https://img.saraba1st.com/forum/202301/14/160830vjd7djy70nljttvl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-14 16:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -934,3 +934,16 @@ BGM这个网站用户的话语权争夺而已，动画条目更是惨不忍睹�
 
 魔女与百骑兵和链锯甜心，这两个游戏都是就一个1分，那个1分是VIB，嗯，都我打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  翼宿一  
+##### 84#       发表于 2023-1-14 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59345690&amp;ptid=2114664" target="_blank">Leona_Akari 发表于 2023-1-14 15:17</a>
+照你说的我又去看了下游戏区
+
+魔女与百骑兵和链锯甜心，这两个游戏都是就一个1分，那个1分是VIB，嗯，都我 ...</blockquote>
+VIB 标准不好定义，活跃度可能不是，但标记量、评分量和注册时间应该都有考量，所以注册晚的应该是没法现在就成为 VIB 的
+
