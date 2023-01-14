@@ -1736,3 +1736,12 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个公司GONZO来做个手绘动画就满足了
 
+
+
+*****
+
+####  本间日阳  
+##### 161#       发表于 2023-1-14 10:22
+
+在微博看到好多人说新动画的男主人设比旧动画更符合原作漫画。
+

@@ -6356,3 +6356,16 @@ gsc 0/2
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 四个徽章里就两个能看，硬搞演艺和卖cp，不会截图可以不用截出来卖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 11076#       发表于 2023-1-14 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342533&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-01-14 10:09:23</a>
+四个徽章里就两个能看，硬搞演艺和卖cp，不会截图可以不用截出来卖的</blockquote>能看的那俩不是决赛live截图和op立绘吗？所有人都有这两个，但是另外两个动画其他场景截图的吧唧是真的不给人活路……
+我本来以为所有人有有颜艺吧唧，结果就可可和樱小路有，樱小路那个颜艺还算可爱可可的已经可以说是狰狞了，而且樱小路的另一个是正常的，可可的又尼玛强卖cp，用的还是那个描改可香的分镜……二期是连个好看点的截图都截不出来是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
