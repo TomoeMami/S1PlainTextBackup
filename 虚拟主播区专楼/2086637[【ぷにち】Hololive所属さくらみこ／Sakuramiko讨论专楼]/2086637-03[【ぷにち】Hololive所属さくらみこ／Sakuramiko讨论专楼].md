@@ -10272,3 +10272,14 @@ https://twitter.com/PNekoe/status/1613823321086529537?s=20&amp;t=vFRIbbnnR37Ze9m
 
 环太平洋！？
 
+
+
+*****
+
+####  rs5621  
+##### 3959#       发表于 2023-1-14 20:55
+
+可以啊，这片还是比较经典的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
