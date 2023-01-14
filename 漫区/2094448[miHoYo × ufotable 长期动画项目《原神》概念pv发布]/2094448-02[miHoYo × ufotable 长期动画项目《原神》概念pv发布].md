@@ -64,3 +64,12 @@ ufo今年除了鬼灭外还有个魔夜剧场版吧，感觉大概要25年才能
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  shiriruzero  
+##### 1511#       发表于 2023-1-14 18:59
+
+估计三周年能出动画吧，正好十月新番
+

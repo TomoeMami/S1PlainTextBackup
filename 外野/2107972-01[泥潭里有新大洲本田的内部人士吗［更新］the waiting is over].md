@@ -919,3 +919,15 @@ Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹�
 
 想想我的yami，5k块玩个新鲜还是可以的
 
+
+
+*****
+
+####  RPG-7  
+##### 87#       发表于 2023-1-14 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59323855&amp;ptid=2107972" target="_blank">flyang 发表于 2023-1-13 00:03</a>
+
+show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近的JA60型号，也是马上国内要上市的型号 ...</blockquote>
+日本的CC是泰产还是日产？
+
