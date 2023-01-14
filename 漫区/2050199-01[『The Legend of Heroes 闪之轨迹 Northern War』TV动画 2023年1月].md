@@ -2925,3 +2925,16 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 合着这是申请完了还得队长给队友，或者让他帮上buff，自己没有专用的吗？真的穷到极点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  evangelina  
+##### 386#       发表于 2023-1-14 16:35
+
+ 本帖最后由 evangelina 于 2023-1-14 16:38 编辑 
+
+话说都不提骑神，帝国的S级跟烂大街都差不多，七班的亲属里都好几个特别能打的。这诺州猎兵装备不仅差数量还少，高层里边S级能凑得出2个吗，居然这么自信可以跟帝国叫板
+
+而且结社这时期记得还是偏向跟帝国合作。就连外援实际上都是敌方的人，这还打啥啊赶紧投吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
