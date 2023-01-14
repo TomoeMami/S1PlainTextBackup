@@ -3246,3 +3246,29 @@ Oh my eidos让我有点没绷住</blockquote>
 Oh my eidos让我有点没绷住</blockquote>
 这句我当时都喷了，制作组还挺会玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  6030sylar  
+##### 415#       发表于 2023-1-14 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59349172&amp;ptid=2050199" target="_blank">灰谷真实 发表于 2023-1-14 19:55</a>
+
+你没发现中间装得甚至还不是核心回路吗。
+
+红色是火，绿色是风，紫色是哪个属性我真没印象了，这得 ...</blockquote>
+应该是时吧，火风时，强音之力
+
+*****
+
+####  灰谷真实  
+##### 416#       发表于 2023-1-14 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59351740&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-14 22:25</a>
+
+应该是时吧，火风时，强音之力</blockquote>
+那颜色也不对啊，时属性珠子在游戏里都是黑色的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过强音之力倒是对的，看表现很符合。
+

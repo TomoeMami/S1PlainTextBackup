@@ -6688,3 +6688,21 @@ lovelive! 虹ヶ咲学园スクールアイドル同好会 二期动画 BD第7�
 这个东西节目效果已经和12集标题一样了</blockquote>
 本来单看香音封面没什么感觉，这一对比绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 11094#       发表于 2023-1-14 22:23
+
+虽然但是这张香音画得好好看啊，比上两卷封面好看多了，仿佛一期第一集开头在天台唱歌的那个香音回来了，可惜这是bd6封面<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 11095#       发表于 2023-1-14 22:29
+
+好像是可C曲【【中字·试听】Including you-Liella!《LoveLive!Superstar!!》第二季BD6特典曲-哔哩哔哩】 https://b23.tv/gu4q5aT
+
