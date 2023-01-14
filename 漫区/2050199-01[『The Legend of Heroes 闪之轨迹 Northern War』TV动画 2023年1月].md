@@ -2972,3 +2972,16 @@ ls说的是他连自己老婆隐居的奥瓜他妈一个平民都保护不了让
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">S级本来就是人啊，在战争中没那么大作用，光剑没人救不也是被炸死了。
 
+
+
+*****
+
+####  kongxian  
+##### 391#       发表于 2023-1-14 17:24
+
+ 本帖最后由 kongxian 于 2023-1-14 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59346319&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-14 16:15</a>
+
+诺州自己能过下去，就是苦了点。帝国是想要让它稳定点，别总在背后输出猎兵了，统治阶层肯定得清理一遍。 ...</blockquote>
+觉得并没有差距不大。片中通过老妇人告诉观众了，诺州人民更信任兵团，视兵团为英雄。帝国清理统治阶层肯定会清理兵团。这方面剧本怎么处理呢，总不能前面给观众信息了，后面却直接不管了吧
+
