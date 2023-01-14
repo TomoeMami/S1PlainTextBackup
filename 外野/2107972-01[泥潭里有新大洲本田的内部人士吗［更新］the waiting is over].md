@@ -816,3 +816,58 @@ b站评论区有懂哥说是新大洲看山寨cub卖得不错眼红了, 价格�
 
 等cc公布售价了可以确认真实性了
 
+
+
+*****
+
+####  bg54188  
+##### 78#         楼主| 发表于 2023-1-14 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342067&amp;ptid=2107972" target="_blank">asion617 发表于 2023-1-14 09:10</a>
+
+b站评论区有懂哥说是新大洲看山寨cub卖得不错眼红了, 价格大概1.3, 如果销量可以还会有ct, 预计1.8
+
+等cc公 ...</blockquote>
+还有种说法是现在经销商报的1.4的价格是还未上工信部的基础Cub 110的价格，而CC110的价格应该在1.7~1.8持平日本售价<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">反正正式官宣前还是不要盲订比较好
+
+*****
+
+####  asion617  
+##### 79#       发表于 2023-1-14 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342093&amp;ptid=2107972" target="_blank">bg54188 发表于 2023-1-14 09:14</a>
+
+还有种说法是现在经销商报的1.4的价格是还未上工信部的基础Cub 110的价格，而CC110的价格应该在1.7~1.8持 ...</blockquote>
+我还是喜欢ct的高位排气, 要是买了cc过半年又出ct大概会很难受<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大神樱  
+##### 80#       发表于 2023-1-14 09:17
+
+ 本帖最后由 大神樱 于 2023-1-14 09:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342013&amp;ptid=2107972" target="_blank">bg54188 发表于 2023-1-14 09:00</a>
+
+Zoomer基本上就是周边配置拉满的UBE，增加了APP控制，后碟刹，定速巡航，两种行驶模式，更亮的前大灯这些 ...</blockquote>
+
+据说是老款UBE换了个壳子，骑起来还不如新款UBE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bg54188  
+##### 81#         楼主| 发表于 2023-1-14 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59342111&amp;ptid=2107972" target="_blank">大神樱 发表于 2023-1-14 09:17</a>
+
+据说是老款UBE换了个壳子，骑起来还不如新款UBE</blockquote>
+没骑过不太清楚，反正几个大件一看就是直接从UBE那拿过来的，科技以换壳为本<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没什么bu好  
+##### 82#       发表于 2023-1-14 09:21
+
+反正超过1.2W我就觉得不值
+
+----发送自 [Xiaomi 22021211RC,Android 12](http://stage1.5j4m.com/?1.37)
+
