@@ -6733,3 +6733,14 @@ lovelive! 虹ヶ咲学园スクールアイドル同好会 二期动画 BD第7�
 
 c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉。（说的就是你，拍手歌
 
+
+
+*****
+
+####  ruffian  
+##### 11099#       发表于 2023-1-15 07:44
+
+感觉每次提到c位拍手歌都会被拉出来争议一番，可推说没有可c的时候总有人出来说拍手歌不算吗？或者小星星不算吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
