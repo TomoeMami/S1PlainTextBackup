@@ -950,3 +950,16 @@ all侑人供给也太足了，回想一期时还挺克制的
 
 菜宝昨天那个造型不会就是live的吧，我记得专辑封面的岚珠就是单马尾，这造型有点一言难尽
 
+
+
+*****
+
+####  仟音一心  
+##### 6886#       发表于 2023-1-14 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59337270&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-1-13 21:29</a>
+侑魅魔的一天。
+话说就这两话就把pv都播完了，这日升习俗保留的太好了吧</blockquote>
+还有三个pv画面没有用上：
+雫雪扮鬼、果林戳栞子脸、打牌
+

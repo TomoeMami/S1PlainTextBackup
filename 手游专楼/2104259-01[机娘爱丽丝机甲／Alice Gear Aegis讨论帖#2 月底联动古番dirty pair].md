@@ -189,3 +189,14 @@ FA小结（逃）</blockquote>
 
 3，阿蒂最后还稍稍撩了一下G姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孫光龍  
+##### 174#       发表于 2023-1-14 13:06
+
+阿噶这种世界观，女性是有绝对力量的
+按理说女性地位应该和本位面的男性是一样的
+男人应该完全是女人的附庸才对
+

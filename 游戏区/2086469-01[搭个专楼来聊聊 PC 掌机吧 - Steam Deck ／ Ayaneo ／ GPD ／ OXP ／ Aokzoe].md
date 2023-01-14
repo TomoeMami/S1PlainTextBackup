@@ -302,3 +302,21 @@ oxp2光速送到</blockquote>
 
   结果我一搜某宝，居然还有2808的现货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  schneehertz  
+##### 622#       发表于 2023-1-14 13:09
+
+发个图，ayaneo群管理对于air plus延期的说法
+
+-2aa7b6cc350bedfe.jpg
+(93.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-14 13:09 上传
+
+<img src="https://img.saraba1st.com/forum/202301/14/130909pobwzo5fd2aeowio.jpg" referrerpolicy="no-referrer">
+

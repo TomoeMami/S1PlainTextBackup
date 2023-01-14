@@ -2667,3 +2667,15 @@ T1级别，和T0级别的区别就是没有S级大佬压阵以及看这集可能
 不是闪4奥斯本无了帝国自己懒得打了赔钱了事这几个地方能不能吐出来都难说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过帝国这任皇帝就是个窝囊废，老婆都保不住的屑，让他打下去也估计没那水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Oshino  
+##### 364#       发表于 2023-1-14 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59344266&amp;ptid=2050199" target="_blank">kamarus 发表于 2023-1-14 12:57</a>
+所以自治州三个月就无了（悲）
+不是闪4奥斯本无了帝国自己懒得打了赔钱了事这几个地方能不能吐出来都难说 ...</blockquote>
+看过黑色史书的，有狮心皇帝在隔壁，早就躺了
+
