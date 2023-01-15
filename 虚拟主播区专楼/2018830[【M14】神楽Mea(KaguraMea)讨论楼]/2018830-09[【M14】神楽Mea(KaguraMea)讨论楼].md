@@ -1619,3 +1619,22 @@ Owner : 神楽めあ / KaguraMea
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2023年了，楼友该对这人的审美有点数了
 
+
+
+*****
+
+####  gongge666  
+##### 13082#       发表于 2023-1-15 14:40
+
+犬山画的我觉得没啥问题，犬山这人肯定不会按吊人的审美来画，估计会以蓝色白色黑色为主而不会加莫名其妙的麻粉
+
+*****
+
+####  thisisaspider  
+##### 13083#       发表于 2023-1-15 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59358610&amp;ptid=2018830" target="_blank">gongge666 发表于 2023-1-15 14:40</a>
+
+犬山画的我觉得没啥问题，犬山这人肯定不会按吊人的审美来画，估计会以蓝色白色黑色为主而不会加莫名其妙的 ...</blockquote>
+jimmy老师画的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
