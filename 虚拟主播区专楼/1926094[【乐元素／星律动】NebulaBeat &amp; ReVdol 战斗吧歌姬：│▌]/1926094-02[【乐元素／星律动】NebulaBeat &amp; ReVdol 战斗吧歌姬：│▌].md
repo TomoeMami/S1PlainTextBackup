@@ -13909,3 +13909,23 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天青月白  
+##### 2940#       发表于 2023-1-15 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59355607&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-15 09:47</a>
+昨晚约子开直播透露，海宁酱在现场监督</blockquote>
+海宁酱这么闲的，这么看中还不快投钱
+
+
+
+*****
+
+####  天青月白  
+##### 2941#       发表于 2023-1-15 14:29
+
+笑死，看到一个视频，nb小年夜参与次数排名，最多的是小桃和纯姐，比所有nb厂的都多
+
