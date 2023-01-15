@@ -6855,3 +6855,14 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 大概是对那种比例手办有意见然后连坐了吧，Q版我也不信GS国代和GS原厂能有多大差距，再说了多少东西是咱们 ...</blockquote>
 以前还分日版和代理版，现在很久没听过这说法。而且所谓的原厂也是国内产，运回JP贴个小金标价格抬高一点<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 11111#       发表于 2023-1-15 11:58
+
+奸笑上海一直风评不好。之后看成品吧，好就夸烂就骂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
