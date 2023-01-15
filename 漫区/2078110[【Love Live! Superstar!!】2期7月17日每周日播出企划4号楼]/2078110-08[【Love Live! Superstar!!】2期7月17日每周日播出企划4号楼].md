@@ -6744,3 +6744,15 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 11100#       发表于 2023-1-15 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59355089&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-01-15 07:44:50</a>
+感觉每次提到c位拍手歌都会被拉出来争议一番，可推说没有可c的时候总有人出来说拍手歌不算吗？或者小星星不 ...</blockquote>建议把nofi或者维他命甩他脸上看看啥叫c位曲，大香哥哥的那些就更别提了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
