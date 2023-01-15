@@ -14689,3 +14689,22 @@ big胆  那叫终章！</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要开早开了。赌五毛开那个材料掉率up礼装掉落本
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4327#       发表于 2023-1-15 19:29
+
+<img src="https://img.saraba1st.com/forum/202301/15/192730npotrzxrh54q2q88.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-9sebZbT1kShs-13i.jpg</strong> (106.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 19:27 上传
+
+田岛昭宇的推特账号发了入坑FGO的图，应该是助手帮着玩的，还吐槽了一下氪金好贵2333
+
+看截图应该是实名上网，不知道能不能加上呢...<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
