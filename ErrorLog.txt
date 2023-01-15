@@ -1,3 +1,5 @@
 
 'NoneType' object has no attribute 'group'
 !!error:id=2114523
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2114440-01[泥潭领先版本：辅酶Q10遭到抢购].md'
+!!error:id=2114440
