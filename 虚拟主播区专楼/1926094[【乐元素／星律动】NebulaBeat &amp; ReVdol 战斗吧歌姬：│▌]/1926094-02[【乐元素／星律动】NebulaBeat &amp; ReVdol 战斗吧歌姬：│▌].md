@@ -13966,3 +13966,15 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 海宁酱这么闲的，这么看中还不快投钱</blockquote>
 所以有可能是海宁酱喜欢看赵本山的小品?
 
+
+
+*****
+
+####  ladiesman802  
+##### 2945#       发表于 2023-1-15 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59363285&amp;ptid=1926094" target="_blank">dreamenory 发表于 2023-1-15 20:42</a>
+
+所以有可能是海宁酱喜欢看赵本山的小品?</blockquote>
+老哥怎么从nga过来s1了？
+
