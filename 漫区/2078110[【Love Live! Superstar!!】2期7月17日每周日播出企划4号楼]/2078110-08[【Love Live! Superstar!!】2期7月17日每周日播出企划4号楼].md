@@ -6843,3 +6843,15 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 奸笑社黏土人的质量不是挺稳定吗</blockquote>
 大概是对那种比例手办有意见然后连坐了吧，Q版我也不信GS国代和GS原厂能有多大差距，再说了多少东西是咱们做好了出去镀金再进口回来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 11110#       发表于 2023-1-15 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59356631&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-15 11:33</a>
+
+大概是对那种比例手办有意见然后连坐了吧，Q版我也不信GS国代和GS原厂能有多大差距，再说了多少东西是咱们 ...</blockquote>
+以前还分日版和代理版，现在很久没听过这说法。而且所谓的原厂也是国内产，运回JP贴个小金标价格抬高一点<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
