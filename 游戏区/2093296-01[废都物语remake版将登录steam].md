@@ -43,3 +43,15 @@
 
 通了原版的盗贼线，现在开始二周目法师了，初期有钱真的很顺畅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 446#       发表于 2023-1-15 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59359629&amp;ptid=2093296" target="_blank">M1kou 发表于 2023-1-15 16:09</a>
+通了原版的盗贼线，现在开始二周目法师了，初期有钱真的很顺畅</blockquote>
+其实挖隐藏宝藏就全程不会缺钱。
+除非你真的要买雾薙打空之巨人
+
