@@ -3545,3 +3545,20 @@ ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行
 
 他的事迹就是盐之桩出现当天就逃亡雷米菲利亚公国，随后倒台。20年后的1198年又想着复辟，最终被杀。
 
+
+
+*****
+
+####  酷乐  
+##### 439#       发表于 2023-1-15 23:27
+
+Tokyo MX版的提供：
+
+<img src="https://img.saraba1st.com/forum/202301/15/232717azu9rl8ud81f5lfn.jpg" referrerpolicy="no-referrer">
+
+<strong>FmhYhu_aEAEe2zv.jpg</strong> (77.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 23:27 上传
+
