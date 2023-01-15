@@ -1638,3 +1638,15 @@ Owner : 神楽めあ / KaguraMea
 犬山画的我觉得没啥问题，犬山这人肯定不会按吊人的审美来画，估计会以蓝色白色黑色为主而不会加莫名其妙的 ...</blockquote>
 jimmy老师画的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 13084#       发表于 2023-1-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59358659&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2023-1-15 14:45</a>
+
+jimmy老师画的</blockquote>
+那只能希望mea插不上嘴让画师自由发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
