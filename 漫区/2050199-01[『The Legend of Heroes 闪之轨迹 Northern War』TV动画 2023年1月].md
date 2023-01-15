@@ -3384,3 +3384,15 @@ Oh my eidos让我有点没绷住</blockquote>
 我倒不怀疑你没玩过，只是觉得你很菜，明明放在对话里的东西硬是看不明白，只会回头骂一句编剧菜，只能暴 ...</blockquote>
 懂了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 426#       发表于 2023-1-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59356120&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-15 10:47</a>
+
+我不仅觉得你在堵我嘴，我甚至怀疑你没有玩过轨迹剧情全是自己脑补的。轨迹的菜狗编剧基本是以人设为服务 ...</blockquote>
+笑死，还大少呢，作为贵族的大少甚至比作为铁血之子的大少死的都早，现在作为主角出来浪的是二代目C
+
