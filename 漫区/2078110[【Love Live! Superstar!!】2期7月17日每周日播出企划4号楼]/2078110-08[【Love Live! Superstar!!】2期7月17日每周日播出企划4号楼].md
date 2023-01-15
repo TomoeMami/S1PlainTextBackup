@@ -6888,3 +6888,15 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 <img src="https://p.sda1.dev/9/6f370fce06ee2671df9dfa1fa04f2669/CMP_20230115181421271.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/4fed19fbce1c51661073287cbab3c535/CMP_20230115181421360.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 11114#       发表于 2023-1-15 19:56
+
+ 本帖最后由 nufawneafg 于 2023-1-15 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59360694&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-15 17:41</a>
+把自己P进去了</blockquote>
+草，这个p图圣光笼罩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
