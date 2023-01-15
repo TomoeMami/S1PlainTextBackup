@@ -3531,3 +3531,17 @@ ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">送女性情报人员和桃花剑接触就是送菜啊，诺州这情报工作不行啊
 
+
+
+*****
+
+####  酷乐  
+##### 438#       发表于 2023-1-15 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59350053&amp;ptid=2050199" target="_blank">卢迪克 发表于 2023-1-14 20:48</a>
+
+大公儿子被砍了，大公不跑就一起死了</blockquote>
+这个儿子到底是谁，这个游戏里一直就只有“バルムント大公”一人啊，被英文wiki翻译为“Prince Balmund”
+
+他的事迹就是盐之桩出现当天就逃亡雷米菲利亚公国，随后倒台。20年后的1198年又想着复辟，最终被杀。
+

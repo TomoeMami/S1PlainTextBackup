@@ -1688,3 +1688,14 @@ jimmy老师画的</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  十九号大侠  
+##### 13089#       发表于 2023-1-15 22:50
+
+舞蹈跳的挺可爱的
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
