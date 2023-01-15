@@ -67,3 +67,12 @@
 除非你真的要买雾薙打空之巨人</blockquote>
 雾薙也还好，中后期背板背熟了，能够快速扫全图以后那点钱卖点多余的装备就凑齐了。
 
+
+
+*****
+
+####  Mr_NaHCO3  
+##### 448#       发表于 2023-1-15 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩的时候没看攻略，挖宝没挖到几个，赚钱全靠每天砍树挖矿，然后青梅做成装备去卖
+
