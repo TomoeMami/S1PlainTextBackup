@@ -6776,3 +6776,12 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 
 我对企划没什么幻想了，因为它已经算是严重“超出”我的期望了，三番两次的，我觉着我自己没必要有“再给一次机会了”的想法了，这种PUA我不想再吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 11103#       发表于 2023-1-15 09:16
+
+我看好多吐槽GSAS负责做可可，GSAS是有什么质量问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Q版人质量参差应该不会太离谱吧
+
