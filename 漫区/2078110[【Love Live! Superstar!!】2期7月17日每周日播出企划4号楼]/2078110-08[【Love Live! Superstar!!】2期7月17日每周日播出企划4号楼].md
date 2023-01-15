@@ -6936,3 +6936,15 @@ twi：akatsuki_usagi2
 twi：gori_0325
 <img src="https://p.sda1.dev/9/129e63da25589edc78c1ff96c86cd0e1/img-1673789917195a747b221e45692e1b369b431b6a07ef6f4c7843d73b5fbc3472db98b809f282c.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 11118#       发表于 2023-1-15 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59364152&amp;ptid=2078110" target="_blank">迪米特里 发表于 2023-1-15 21:32</a>
+
+这次配的熊猫睡衣算大件吗？</blockquote>
+算吧，起码没放进特典里，图标底座应该是没有了。粘土人香音的配件就少得可怜，图标底座还算特典，不过价格便宜一些
+
