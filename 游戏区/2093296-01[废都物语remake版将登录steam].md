@@ -34,3 +34,12 @@
 
 如果是原版的操作方式，我也想要ns版，steam版好玩不方便，废物也不在意操作
 
+
+
+*****
+
+####  M1kou  
+##### 445#       发表于 2023-1-15 16:09
+
+通了原版的盗贼线，现在开始二周目法师了，初期有钱真的很顺畅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
