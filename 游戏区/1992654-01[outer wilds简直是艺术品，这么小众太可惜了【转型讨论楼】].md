@@ -57,3 +57,16 @@
 
 目前玩了十个小时，进度估计在三分之一吧，总结是：太吓人了。我之前看过直播通关，但是自己玩起来真吓人，在各种黑暗的洞里、水里、太空中经历各种死法，代入感莫名地强，每次要跌进什么危险区域都感觉浑身紧绷，比什么恐怖游戏还来劲
 
+
+
+*****
+
+####  redstarence  
+##### 1111#       发表于 2023-1-16 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59359105&amp;ptid=1992654" target="_blank">zero6566 发表于 2023-1-15 15:26</a>
+目前玩了十个小时，进度估计在三分之一吧，总结是：太吓人了。我之前看过直播通关，但是自己玩起来真吓人， ...</blockquote>
+味儿对了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
