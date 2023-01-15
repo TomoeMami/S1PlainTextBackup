@@ -76,3 +76,24 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩的时候没看攻略，挖宝没挖到几个，赚钱全靠每天砍树挖矿，然后青梅做成装备去卖
 
+
+
+*****
+
+####  M1kou  
+##### 449#       发表于 2023-1-16 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59362294&amp;ptid=2093296" target="_blank">Rincewind 发表于 2023-1-15 19:44</a>
+其实挖隐藏宝藏就全程不会缺钱。
+除非你真的要买雾薙打空之巨人</blockquote>
+初期买买装备一路圣锤敲过去挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  M1kou  
+##### 450#       发表于 2023-1-16 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59366035&amp;ptid=2093296" target="_blank">Mr_NaHCO3 发表于 2023-1-15 23:17</a>
+我玩的时候没看攻略，挖宝没挖到几个，赚钱全靠每天砍树挖矿，然后青梅做成装备去卖 ...</blockquote>
+军刀和法杖是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
