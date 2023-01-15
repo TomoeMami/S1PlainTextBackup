@@ -3414,3 +3414,15 @@ Oh my eidos让我有点没绷住</blockquote>
 笑死，还大少呢，作为贵族的大少甚至比作为铁血之子的大少死的都早，现在作为主角出来浪的是二代目C ...</blockquote>
 说家族并没有受到什么牵连的意思，现在领主权限转让给二少了。凯恩公那边也是一样，给绿毛继承了。按照现实的历史进程来说，干过这种事的家族，人能活下来几个
 
+
+
+*****
+
+####  6030sylar  
+##### 429#       发表于 2023-1-15 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59357942&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-1-15 13:34</a>
+
+说家族并没有受到什么牵连的意思，现在领主权限转让给二少了。凯恩公那边也是一样，给绿毛继承了。按照现 ...</blockquote>
+这种不就是两头下注嘛
+
