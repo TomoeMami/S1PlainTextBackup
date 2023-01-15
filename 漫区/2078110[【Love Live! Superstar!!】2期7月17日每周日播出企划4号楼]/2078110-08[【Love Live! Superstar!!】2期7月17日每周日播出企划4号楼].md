@@ -6819,3 +6819,14 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 感觉每次提到c位拍手歌都会被拉出来争议一番，可推说没有可c的时候总有人出来说拍手歌不算吗？或者小星星不 ...</blockquote>
 小星星先不说，感觉拍手歌跟常夏和ws都没可比性。也就开头结尾站一下c
 
+
+
+*****
+
+####  starring  
+##### 11108#       发表于 2023-1-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59355436&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-15 09:16</a>
+我看好多吐槽GSAS负责做可可，GSAS是有什么质量问题吗Q版人质量参差应该不会太离谱吧 ...</blockquote>
+奸笑社黏土人的质量不是挺稳定吗
+
