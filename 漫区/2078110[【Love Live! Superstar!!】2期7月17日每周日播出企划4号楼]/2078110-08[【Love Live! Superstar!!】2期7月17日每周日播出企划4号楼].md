@@ -6866,3 +6866,14 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 11112#       发表于 2023-1-15 17:41
+
+把自己P进去了
+<img src="https://p.sda1.dev/9/f15105bad21908d433712c6110a5b792/CMP_20230115174037950.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/3711da3266c0632e83aed36c66220a58/CMP_20230115174038033.png" referrerpolicy="no-referrer">
+
