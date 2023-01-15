@@ -14923,3 +14923,12 @@ big胆  那叫终章！</blockquote>
 你是不懂日文吧？这原文&amp;#x ...</blockquote>
 谢谢提醒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就改，搬的图没细看...
 
+
+
+*****
+
+####  khxooo  
+##### 4332#       发表于 2023-1-16 01:25
+
+突然有个奇怪的想法，就是YLS马上就要走了，所以干脆摆烂什么都不做，过了2.7后让3代目决定后续的安排<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
