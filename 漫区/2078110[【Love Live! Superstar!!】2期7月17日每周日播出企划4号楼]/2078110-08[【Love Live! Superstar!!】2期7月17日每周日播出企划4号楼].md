@@ -6900,3 +6900,16 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 把自己P进去了</blockquote>
 草，这个p图圣光笼罩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 11115#       发表于 2023-1-15 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59360694&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-15 17:41</a>
+把自己P进去了</blockquote>
+这个ps太生草力
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

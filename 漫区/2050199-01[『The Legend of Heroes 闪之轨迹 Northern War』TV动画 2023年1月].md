@@ -3522,3 +3522,12 @@ ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳舞那货怎么有点像呐呐呐
 
+
+
+*****
+
+####  roxas.sora  
+##### 437#       发表于 2023-1-15 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">送女性情报人员和桃花剑接触就是送菜啊，诺州这情报工作不行啊
+
