@@ -1385,3 +1385,14 @@ A7FE8938-C4AB-4129-B034-A6C13B502B60.jpeg
 <img src="https://p.sda1.dev/9/effc06f7e82c733a22851fff1597b235/-1164895561.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/39b53aa67f9a37981d791f5f905f693d/CMP_20230116001813600.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  光宗薫  
+##### 6915#       发表于 2023-1-16 03:47
+
+跟5th比杨女士这是一点没瘦吧，减肥这事感觉不用再提了，就这样了，该是粉丝接受事实的时候了
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
