@@ -6913,3 +6913,26 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  迪米特里  
+##### 11116#       发表于 2023-1-15 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59356755&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-15 11:44</a>
+
+以前还分日版和代理版，现在很久没听过这说法。而且所谓的原厂也是国内产，运回JP贴个小金标价格抬高一点 ...</blockquote>
+这次配的熊猫睡衣算大件吗？
+
+*****
+
+####  仟音一心  
+##### 11117#       发表于 2023-1-15 21:40
+
+<img src="https://p.sda1.dev/9/5a483b052859f55bc96b2c57df6eff05/CMP_20230115213920232.jpg" referrerpolicy="no-referrer">
+twi：akatsuki_usagi2
+<img src="https://p.sda1.dev/9/18e0557fb94401204e728ea876830880/img-1673789583757ad1c455748b8a395cef4cbd7f0e199f1e3b71835857cfcc35eefb2b71baefc72.jpg" referrerpolicy="no-referrer">
+twi：gori_0325
+<img src="https://p.sda1.dev/9/129e63da25589edc78c1ff96c86cd0e1/img-1673789917195a747b221e45692e1b369b431b6a07ef6f4c7843d73b5fbc3472db98b809f282c.jpg" referrerpolicy="no-referrer">
+
