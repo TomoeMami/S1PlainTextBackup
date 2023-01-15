@@ -1935,3 +1935,34 @@ ED挺好听的
 
 主角是用上帝视角去看这些人吧
 
+
+
+*****
+
+####  纯夏  
+##### 180#       发表于 2023-1-15 14:31
+
+主角枪法和能力这么强 但是感觉太圣母了 在这种残酷的世界观下可不是什么好兆头 
+
+最起码像基神一样先把对手的武装无力化之后再说啊
+
+村民都能拿微冲扫射 主角不会比村民还穷吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  ardito  
+##### 181#       发表于 2023-1-15 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果相当于重制吗这个，还以为是新的
+
+*****
+
+####  1010248485  
+##### 182#       发表于 2023-1-15 14:40
+
+微妙,能恩将仇报抓男主,却跟袭击村庄抢plant的抢匪不打不相识.
+
+救下来没问题,后续不应该是拿那两人换钱吗,还能一起喝酒庆祝的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
