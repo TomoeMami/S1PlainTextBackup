@@ -6830,3 +6830,16 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 我看好多吐槽GSAS负责做可可，GSAS是有什么质量问题吗Q版人质量参差应该不会太离谱吧 ...</blockquote>
 奸笑社黏土人的质量不是挺稳定吗
 
+
+
+*****
+
+####  ViyViy  
+##### 11109#       发表于 2023-1-15 11:33
+
+ 本帖最后由 ViyViy 于 2023-1-15 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59356521&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-15 11:22</a>
+
+奸笑社黏土人的质量不是挺稳定吗</blockquote>
+大概是对那种比例手办有意见然后连坐了吧，Q版我也不信GS国代和GS原厂能有多大差距，再说了多少东西是咱们做好了出去镀金再进口回来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
