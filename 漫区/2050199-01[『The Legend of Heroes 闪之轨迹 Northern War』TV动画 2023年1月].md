@@ -3482,3 +3482,15 @@ Oh my eidos让我有点没绷住</blockquote>
 ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行动逛该吧。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">公款旅游，顺便泡帝国大英雄，莎拉路线
 
+
+
+*****
+
+####  Aeons  
+##### 433#       发表于 2023-1-15 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59360237&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-15 16:58</a>
+
+公款旅游，顺便泡帝国大英雄，莎拉路线</blockquote>
+看女主cv，应该是没有恋爱说法的
+
