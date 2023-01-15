@@ -13978,3 +13978,17 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 所以有可能是海宁酱喜欢看赵本山的小品?</blockquote>
 老哥怎么从nga过来s1了？
 
+
+
+*****
+
+####  dreamenory  
+##### 2946#       发表于 2023-1-15 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59363849&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-15 21:14</a>
+
+老哥怎么从nga过来s1了？</blockquote>
+两边跑的也不少..
+
+屎黄色论坛那边前阵子口罩贴基本就活不过5分钟..刷帖观感太差了 就跑过来了
+
