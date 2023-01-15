@@ -14654,3 +14654,12 @@ big胆  那叫终章！</blockquote>
 
 新的圣杯战争加入更大随机性不能照看攻略视频，有点麻烦了
 
+
+
+*****
+
+####  alucardcz  
+##### 4324#       发表于 2023-1-15 15:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开盘了 下星期是继续1星期草草草 还是会塞点什么
+
