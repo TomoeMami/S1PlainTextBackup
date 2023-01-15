@@ -3396,3 +3396,21 @@ Oh my eidos让我有点没绷住</blockquote>
 我不仅觉得你在堵我嘴，我甚至怀疑你没有玩过轨迹剧情全是自己脑补的。轨迹的菜狗编剧基本是以人设为服务 ...</blockquote>
 笑死，还大少呢，作为贵族的大少甚至比作为铁血之子的大少死的都早，现在作为主角出来浪的是二代目C
 
+
+
+*****
+
+####  Aeons  
+##### 427#       发表于 2023-1-15 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino  
+##### 428#       发表于 2023-1-15 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59357801&amp;ptid=2050199" target="_blank">qratosone 发表于 2023-1-15 13:22</a>
+笑死，还大少呢，作为贵族的大少甚至比作为铁血之子的大少死的都早，现在作为主角出来浪的是二代目C ...</blockquote>
+说家族并没有受到什么牵连的意思，现在领主权限转让给二少了。凯恩公那边也是一样，给绿毛继承了。按照现实的历史进程来说，干过这种事的家族，人能活下来几个
+
