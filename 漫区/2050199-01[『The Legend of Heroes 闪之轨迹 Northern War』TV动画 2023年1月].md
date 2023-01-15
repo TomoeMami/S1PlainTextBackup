@@ -3513,3 +3513,12 @@ ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行
 傀儡兵器是结社的。
 假设舞者真是棘，要么暗杀要么追杀39呗
 
+
+
+*****
+
+####  roxas.sora  
+##### 436#       发表于 2023-1-15 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳舞那货怎么有点像呐呐呐
+

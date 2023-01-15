@@ -14777,3 +14777,149 @@ big胆  那叫终章！</blockquote>
 看截图应该是实名 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你是不懂日文吧？这原文没提过任何关于课金的事啊，明明说的是时间花得久……下面谷歌翻译是坨屎罢了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4330#       发表于 2023-1-15 20:47
+
+ 本帖最后由 Jamaisvu 于 2023-1-15 20:51 编辑 
+
+最近看了不少烟雾镜的同人，感觉他底子确实不错，希望田岛老师交的稿里能有让我满意的吧...
+
+突然就与南丁粉感同身受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要靠同人来弥补墙头的颜值和魅力...怪不得戴先生和烟sir是一对...
+
+转一些个人喜欢的烟雾镜同人，都是从隔壁的这个帖子拿的：
+[https://nga.178.com/read.php?tid=34976896](https://nga.178.com/read.php?tid=34976896)
+
+<img src="https://img.saraba1st.com/forum/202301/15/204317f1eev26fv6lml0f0.jpg" referrerpolicy="no-referrer">
+
+<strong>1672789888590.jpg</strong> (255.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204108s4zocron47csngw7.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-gdg4Z10T3cSp3-sg.jpg</strong> (373.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204109biiwz3isfdn5f5kb.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-afp6Z17T3cSqo-qo.jpg.medium.jpg</strong> (79.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204110ixen9aevksufeeea.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-kfm4ZxT3cSp0-xc.jpg.medium.jpg</strong> (161.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204110q3d2i2dpik003dd0.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-hd3rZbT3cSk4-sg.jpg.medium.jpg</strong> (86.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204112l70uasfh5otus8rt.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-64u4K1qT3cSj8-sg.jpg.medium.jpg</strong> (53.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204112z1p34qz1ttya1y8z.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-hxlkZcT3cSsg-rw.jpg.medium.jpg</strong> (55.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204113wpk5a0oap21m1az0.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-8dqpK2sT3cSlc-sg.jpg.medium.jpg</strong> (73.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204114rsrzpmnqrp2a1pav.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-jy5cK2jT3cSke-sg.jpg.medium.jpg</strong> (70.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204115vpvydzde0tbsq030.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-1ebeZpT3cSn0-sg.jpg</strong> (263.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204115ge0eolzq8eyo82fh.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-fs01K1pT1kSdw-m8.jpg.thumb.jpg</strong> (29.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204116urdrhbb9z6kn6x9r.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-9c4zZgT3cSkr-sg.jpg.medium.jpg</strong> (114.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204120vsojp7ux43x8fz87.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-at9yK2hT3cSsg-lc.jpg.medium.jpg</strong> (43.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204127ypgzgtgcguckiu74.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-jktbK2rT3cSsg-ru.jpg.medium.jpg</strong> (47.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202301/15/204131a1grtzh4agta4m6m.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-dc9eZoT3cSk2-sg.jpg.medium.jpg</strong> (159.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-15 20:41 上传
+
+*****
+
+####  Jamaisvu  
+##### 4331#       发表于 2023-1-15 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59363225&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-15 20:38</a>
+
+你是不懂日文吧？这原文&amp;#x ...</blockquote>
+谢谢提醒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就改，搬的图没细看...
+
