@@ -55,3 +55,15 @@
 其实挖隐藏宝藏就全程不会缺钱。
 除非你真的要买雾薙打空之巨人
 
+
+
+*****
+
+####  kamarus  
+##### 447#       发表于 2023-1-15 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59362294&amp;ptid=2093296" target="_blank">Rincewind 发表于 2023-1-15 19:44</a>
+其实挖隐藏宝藏就全程不会缺钱。
+除非你真的要买雾薙打空之巨人</blockquote>
+雾薙也还好，中后期背板背熟了，能够快速扫全图以后那点钱卖点多余的装备就凑齐了。
+
