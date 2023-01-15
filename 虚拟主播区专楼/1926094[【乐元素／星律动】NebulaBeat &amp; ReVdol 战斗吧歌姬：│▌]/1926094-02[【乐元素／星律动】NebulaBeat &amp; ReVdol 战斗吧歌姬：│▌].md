@@ -13929,3 +13929,17 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 
 笑死，看到一个视频，nb小年夜参与次数排名，最多的是小桃和纯姐，比所有nb厂的都多
 
+
+
+*****
+
+####  ladiesman802  
+##### 2942#       发表于 2023-1-15 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59358487&amp;ptid=1926094" target="_blank">天青月白 发表于 2023-1-15 14:28</a>
+
+海宁酱这么闲的，这么看中还不快投钱</blockquote>
+估计是过来代替厂长监工加探班
+
+打钱是不会的，投入都缩水了
+
