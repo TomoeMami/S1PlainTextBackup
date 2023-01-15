@@ -3470,3 +3470,15 @@ Oh my eidos让我有点没绷住</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行动逛该吧。
 
+
+
+*****
+
+####  6030sylar  
+##### 432#       发表于 2023-1-15 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59360089&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-15 16:46</a>
+
+ed这些应该都是前6话？虽然ed也不像集体活动，总不能分开行动逛该吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">公款旅游，顺便泡帝国大英雄，莎拉路线
+
