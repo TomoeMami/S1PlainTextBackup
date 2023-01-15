@@ -1896,3 +1896,18 @@ ED挺好听的
 
 第一集就怪怪的脚本这集更怪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对这片的期待还是不仅仅是制作很好的爽，片的。
 
+
+
+*****
+
+####  hqtkkb  
+##### 177#       发表于 2023-1-15 12:57
+
+ 本帖最后由 hqtkkb 于 2023-1-15 12:59 编辑 
+
+主角不想杀人我虽然想吐槽但可以接受，但不杀人跟被人当狗一样揍是两码事吧？你不杀人把人干趴下后再慢慢讲道理不行吗？您那个枪术不难做到吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+从成神之日到石蒜，我对这类圣母人设是真的有ptsd了，到时真的兄弟相争的话，主角要咋选？拎着把枪举半天说我做不到然后被反杀最后哥哥死于意外？还是洗白哥哥？还是女记者要干死哥哥但主角嗯是阻止不让哥哥被干掉？
+
+好吧，目前剧情才开头这么贷款吃屎确实不该，但一想到过去几年看过的抽象结尾就让我对这番未来还有追番的自己感到难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

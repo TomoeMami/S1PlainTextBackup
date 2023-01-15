@@ -3373,3 +3373,14 @@ Oh my eidos让我有点没绷住</blockquote>
 
 至于主角方的顶级贵族，大哥，闪二内战后不是就已经被打压得不行了吗？而且我也说了，贵族中的有识之士可以在新的时代中凭借家底拥有先发优势，这和贵族没落并不冲突。
 
+
+
+*****
+
+####  Oshino  
+##### 425#       发表于 2023-1-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59357378&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-1-15 12:41</a>
+我倒不怀疑你没玩过，只是觉得你很菜，明明放在对话里的东西硬是看不明白，只会回头骂一句编剧菜，只能暴 ...</blockquote>
+懂了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
