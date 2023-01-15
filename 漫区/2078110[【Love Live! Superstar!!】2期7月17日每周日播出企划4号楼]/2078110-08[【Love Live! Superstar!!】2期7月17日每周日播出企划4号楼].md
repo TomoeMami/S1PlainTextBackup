@@ -6785,3 +6785,19 @@ c是没可能c的，除非有pv或者现地live编舞，不然其实就是错觉
 
 我看好多吐槽GSAS负责做可可，GSAS是有什么质量问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Q版人质量参差应该不会太离谱吧
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11104#       发表于 2023-1-15 10:34
+
+也别c不c了，BD特典曲根本不怎么会拿出来唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就记得fm的时候唱过次媳妇满天空
+
+*****
+
+####  优妮可  
+##### 11105#       发表于 2023-1-15 10:41
+
+特典曲，我yura呢
+
