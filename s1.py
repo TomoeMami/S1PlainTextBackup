@@ -265,9 +265,9 @@ async def UpdateThread(threaddict,semaphore):
                     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     except Exception as e:
-        with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
-            f.write(str(e)+'\n')
-            f.write('!!error:id='+threaddict['id']+'\n')
+        # with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
+        #     f.write(str(e)+'\n')
+        #     f.write('!!error:id='+threaddict['id']+'\n')
         pass
 
 
