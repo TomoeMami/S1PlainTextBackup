@@ -4905,3 +4905,12 @@ b站也有 ...</blockquote>
 黑色的法师怪，没收到攻击不会行动。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好的，刚杀完战神确实先不碰好用.
 
+
+
+*****
+
+####  L.L  
+##### 3410#       发表于 2023-1-17 01:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">久闻新章大名，但真进了我人傻了，差点又被天平守护兽打死了，还好我技高一筹 等级高.我先砸锅卖铁把收集全武器给的武器+宝石换的衣服强化上去一些后，看了一眼能镶嵌的树枝怎么就1200攻了？
+
