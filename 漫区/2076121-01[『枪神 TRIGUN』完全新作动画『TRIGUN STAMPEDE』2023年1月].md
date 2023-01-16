@@ -2036,3 +2036,27 @@ ED挺好听的
 
 冒昧的问一下，原作剧情就这b样吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野梓  
+##### 191#       发表于 2023-1-16 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59358519&amp;ptid=2076121" target="_blank">纯夏 发表于 2023-1-15 14:31</a>
+
+主角枪法和能力这么强 但是感觉太圣母了 在这种残酷的世界观下可不是什么好兆头 
+
+最起码像基神一样先把对手 ...</blockquote>
+他手上的那把可是大规模杀伤性武器
+
+*****
+
+####  cementerio  
+##### 192#       发表于 2023-1-16 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59372418&amp;ptid=2076121" target="_blank">耐赫伊勒缇 发表于 2023-1-16 14:59</a>
+
+冒昧的问一下，原作剧情就这b样吗</blockquote>
+是再创作同人，只是用了原作部分框架和角色名
+
