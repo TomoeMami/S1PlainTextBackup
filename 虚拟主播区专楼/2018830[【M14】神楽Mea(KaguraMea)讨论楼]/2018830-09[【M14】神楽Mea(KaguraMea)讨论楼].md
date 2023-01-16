@@ -1708,3 +1708,24 @@ jimmy老师画的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么感觉中文发音像广东口音
 
+
+
+*****
+
+####  Shiromeshi  
+##### 13091#       发表于 2023-1-16 19:31
+
+ 本帖最后由 Shiromeshi 于 2023-1-16 19:33 编辑 
+
+<img src="https://img.saraba1st.com/forum/202301/16/192908zppeodkodnxtntk2.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2023-01-16_20-28-16.png</strong> (245.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-16 19:29 上传
+
+两年了，故地重游<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+知道的人大概都已经知道了罢，懒得删了
+
