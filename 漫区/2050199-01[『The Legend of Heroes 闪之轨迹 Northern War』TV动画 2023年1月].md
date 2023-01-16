@@ -3562,3 +3562,15 @@ Tokyo MX版的提供：
 
 2023-1-15 23:27 上传
 
+
+
+*****
+
+####  三友非三清  
+##### 440#       发表于 2023-1-16 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59363450&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-15 20:51</a>
+
+送女性情报人员和桃花剑接触就是送菜啊，诺州这情报工作不行啊</blockquote>
+访谈说过女主和黎恩不会有爱情
+
