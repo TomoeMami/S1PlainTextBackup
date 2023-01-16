@@ -7039,3 +7039,44 @@ twi：gori_0325
 一副老项目迁移现代架构做适配改造 ...</blockquote>
 这玩意也就是初始r卡，还修了一些当年缪水比较邪神的脸，凑合看吧。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11124#       发表于 2023-1-16 17:15
+
+迷你专里有一首是鱼自己作词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪挤出来的时间啊
+
+*****
+
+####  cybernetics31  
+##### 11125#       发表于 2023-1-16 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是以前就写好的
+
+*****
+
+####  ads147147  
+##### 11126#       发表于 2023-1-16 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374127&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-16 17:15</a>
+迷你专里有一首是鱼自己作词哪挤出来的时间啊</blockquote>
+可可的中文小册子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 11127#       发表于 2023-1-16 17:19
+
+不能作曲至少也会作词，是歌手的必经之路<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 11128#       发表于 2023-1-16 17:27
+
+有点好奇说的挑战情歌是指什么，还是我的信息错了，没有说过
+
