@@ -7152,3 +7152,14 @@ twi：gori_0325
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=9-P-BZ21hy8 虹（确信）星联动，参加的是pay跟铃原
 
+
+
+*****
+
+####  nufawneafg  
+##### 11136#       发表于 2023-1-16 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374794&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-1-16 18:17</a>
+https://www.youtube.com/watch?v=9-P-BZ21hy8 虹（确信）星联动，参加的是pay跟铃原 ...</blockquote>
+彩虹也是虹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

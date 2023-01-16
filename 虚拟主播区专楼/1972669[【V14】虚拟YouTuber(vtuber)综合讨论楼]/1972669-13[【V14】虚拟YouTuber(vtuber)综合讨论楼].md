@@ -455,3 +455,14 @@ Syl，感觉这次虹女还是拿来送的，维持热度罢了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">油当初掏出了压箱底的彩虹立志传都没用，还得靠ark混上大势力
 
+
+
+*****
+
+####  poipanchao  
+##### 18319#       发表于 2023-1-16 19:01
+
+CRCUP这个历届冠军PV，头两届堇的声音好大，存在感拉满
+
+然后雪夜还给了bora镜头，已经消失的录播……
+
