@@ -2136,3 +2136,14 @@ ED挺好听的
 
 —— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Yalbsd  
+##### 200#       发表于 2023-1-16 22:39
+
+这剧情也太弱智了，根本看不下去
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
