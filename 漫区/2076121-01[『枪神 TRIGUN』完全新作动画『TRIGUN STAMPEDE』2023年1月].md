@@ -2147,3 +2147,15 @@ ED挺好听的
 
 —— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  赛U灵  
+##### 201#       发表于 2023-1-16 23:11
+
+有一说一，剧情的确有点（）但是橘子3d啊，还有目前的人设我又看着好开心啊不是特别在意有些微妙的剧情（）真的感觉这下我成画面动画党了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过还行，看了两集后有点想去看看原作或者之前的动画了，也算是被宣传到了（。）
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
