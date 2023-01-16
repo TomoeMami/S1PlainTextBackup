@@ -4881,3 +4881,15 @@ b站也有 ...</blockquote>
 —— 来自 OnePlus LE21 ...</blockquote>
 好的，之后JJC遇到了开狂暴杀之.
 
+
+
+*****
+
+####  christiny  
+##### 3408#       发表于 2023-1-16 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373669&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-16 16:39</a>
+
+好的，之后JJC遇到了开狂暴杀之.</blockquote>
+黑色的法师怪，没收到攻击不会行动。
+
