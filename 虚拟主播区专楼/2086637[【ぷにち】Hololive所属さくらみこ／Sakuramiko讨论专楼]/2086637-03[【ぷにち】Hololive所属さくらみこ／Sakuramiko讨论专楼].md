@@ -10570,3 +10570,14 @@ miko的ASMR定期化
 
 脸大上封面是吧
 
+
+
+*****
+
+####  rs5621  
+##### 3985#       发表于 2023-1-16 14:12
+
+这个新待机画面，还蛮可爱的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
