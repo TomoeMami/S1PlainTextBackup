@@ -386,3 +386,12 @@ syl
 
 20年的油抱king和二哥大腿要更快一些，除了月下樱和同期外都不跟其他女v联动
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18312#       发表于 2023-1-16 15:47
+
+说到喷喷，之前他油管一直把2434kill5w衣装和3D放在オススメlist，后来删掉了改成了无题放了几个纪念回和live，虽然那种耐久确实不会有人去补但当时带给他挺多关注的总感觉有点可惜，他作为gamer主播却和streamer那的爆款游戏相性极差也常常让我<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">有些大腿不是想抱就能抱上。
+
