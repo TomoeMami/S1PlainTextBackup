@@ -466,3 +466,17 @@ CRCUP这个历届冠军PV，头两届堇的声音好大，存在感拉满
 
 然后雪夜还给了bora镜头，已经消失的录播……
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18320#       发表于 2023-1-16 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373731&amp;ptid=1972669" target="_blank">Suny08 发表于 2023-1-16 16:44</a>
+
+我还真不知道现在的streamer爆款游戏是啥……感觉都是在玩老游戏</blockquote>
+二字游戏剧情限定
+
+只要有V播 B站原友就会转播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
