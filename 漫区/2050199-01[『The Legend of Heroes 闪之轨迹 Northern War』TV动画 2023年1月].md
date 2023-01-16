@@ -3574,3 +3574,15 @@ Tokyo MX版的提供：
 送女性情报人员和桃花剑接触就是送菜啊，诺州这情报工作不行啊</blockquote>
 访谈说过女主和黎恩不会有爱情
 
+
+
+*****
+
+####  aptx8285144  
+##### 441#       发表于 2023-1-16 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373716&amp;ptid=2050199" target="_blank">三友非三清 发表于 2023-1-16 16:43</a>
+
+访谈说过女主和黎恩不会有爱情</blockquote>
+如果没有爱情关系好评，剧情番确实不宜儿女私情太多，互相欣赏倒是可以接受
+

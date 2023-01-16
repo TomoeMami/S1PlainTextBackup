@@ -49,3 +49,14 @@
 
 上一期16次十连，一个UP也没出，歪的自己都不认识了，真的有UP吗，只能像楼上的吃井吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  羽出  
+##### 229#       发表于 2023-1-16 17:07
+
+<blockquote>心之光 发表于 2023-1-16 14:04
+上一期16次十连，一个UP也没出，歪的自己都不认识了，真的有UP吗，只能像楼上的吃井吗 ...</blockquote>
+你这都160了，还不把井吃掉？
+
