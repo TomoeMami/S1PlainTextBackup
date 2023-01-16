@@ -14932,3 +14932,18 @@ big胆  那叫终章！</blockquote>
 
 突然有个奇怪的想法，就是YLS马上就要走了，所以干脆摆烂什么都不做，过了2.7后让3代目决定后续的安排<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 4333#       发表于 2023-1-16 08:44
+
+ 本帖最后由 UNISONIA 于 2023-1-16 08:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59367568&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-16 01:25</a>
+
+突然有个奇怪的想法，就是YLS马上就要走了，所以干脆摆烂什么都不做，过了2.7后让3代目决定后续的安排[f:06 ...</blockquote>
+还在这做有3代目的梦呢，从2018年冬天开始招3代目，招到现在都没招到，叶真的要走也不会留到今天。
+
+何况2022年纽约漫展上他承认他和世嘉的关系了，基本证实了2018年初他是世嘉派过来的人的猜测
+

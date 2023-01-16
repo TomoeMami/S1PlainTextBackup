@@ -97,3 +97,14 @@
 我玩的时候没看攻略，挖宝没挖到几个，赚钱全靠每天砍树挖矿，然后青梅做成装备去卖 ...</blockquote>
 军刀和法杖是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 451#       发表于 2023-1-16 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59367914&amp;ptid=2093296" target="_blank">M1kou 发表于 2023-1-16 02:48</a>
+初期买买装备一路圣锤敲过去挺好的还有就是闭眼买材料血药也舒坦，虽然只要学了造武器就根本不缺 ...</blockquote>
+闭眼买血药不如闭眼买蔬菜做沙拉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
