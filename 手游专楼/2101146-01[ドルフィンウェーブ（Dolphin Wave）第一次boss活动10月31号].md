@@ -40,3 +40,12 @@
 
 不抽啦不抽啦，连吃圣诞和新年两井，在圣诞前我每个池都抽就从来没有试过超过50发还不出货的，结果两个井就把人掏空了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心之光  
+##### 228#       发表于 2023-1-16 14:04
+
+上一期16次十连，一个UP也没出，歪的自己都不认识了，真的有UP吗，只能像楼上的吃井吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
