@@ -395,3 +395,12 @@ syl
 
 说到喷喷，之前他油管一直把2434kill5w衣装和3D放在オススメlist，后来删掉了改成了无题放了几个纪念回和live，虽然那种耐久确实不会有人去补但当时带给他挺多关注的总感觉有点可惜，他作为gamer主播却和streamer那的爆款游戏相性极差也常常让我<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">有些大腿不是想抱就能抱上。
 
+
+
+*****
+
+####  winda  
+##### 18313#       发表于 2023-1-16 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黛灰搭上雪山人狼算19组最后的疯狂了，小魔王创最速银盾记录后把新人buff霍霍完了，之后再有新人boost得是冥府搭上ark了
+
