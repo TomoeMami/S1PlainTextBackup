@@ -7132,3 +7132,23 @@ twi：gori_0325
 
 是日文词的话那还挺困难的吧，毕竟不是母语
 
+
+
+*****
+
+####  player3960  
+##### 11134#       发表于 2023-1-16 18:12
+
+ 本帖最后由 player3960 于 2023-1-16 18:16 编辑 
+
+希望润色时能保留鲤式语法，这样鲤语神曲就诞生啦<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 11135#       发表于 2023-1-16 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=9-P-BZ21hy8 虹（确信）星联动，参加的是pay跟铃原
+
