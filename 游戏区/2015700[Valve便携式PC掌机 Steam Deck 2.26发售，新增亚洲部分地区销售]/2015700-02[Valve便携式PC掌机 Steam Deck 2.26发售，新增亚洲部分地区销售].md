@@ -55,3 +55,26 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  脸宽  
+##### 2049#       发表于 2023-1-16 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59375211&amp;ptid=2015700" target="_blank">zris 发表于 2023-1-16 18:56</a>
+
+继续吆喝 欢迎新到手的兄弟们加群，群里基本可以释疑一切疑难杂症
+
+—— 来自 S1Fun ...</blockquote>
+好嘞，已经加了。
+
+*****
+
+####  时空之旅  
+##### 2050#       发表于 2023-1-16 19:19
+
+<blockquote>妄想中毒 发表于 2023-1-13 10:39
+机器还躺在海关，估计年前是拿不到了。海淘体验真的屌差等了快两个月还没到不说现在国内电商直接买也贵不了 ...</blockquote>
+现货都3千甚至3千以下了。。。。
+
