@@ -7025,3 +7025,17 @@ twi：gori_0325
 一副老项目迁移现代架构做适配改造 ...</blockquote>
 其它团都一样，sif1的动作
 
+
+
+*****
+
+####  ads147147  
+##### 11123#       发表于 2023-1-16 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370416&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-16 11:44</a>
+
+其他团不知道，Liellasif2剪影完全是sif的对话立绘换了个衣服图层吧……
+
+一副老项目迁移现代架构做适配改造 ...</blockquote>
+这玩意也就是初始r卡，还修了一些当年缪水比较邪神的脸，凑合看吧。
+

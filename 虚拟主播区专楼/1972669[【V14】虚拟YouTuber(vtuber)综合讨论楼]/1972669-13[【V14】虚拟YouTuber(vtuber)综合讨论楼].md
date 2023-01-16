@@ -404,3 +404,14 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黛灰搭上雪山人狼算19组最后的疯狂了，小魔王创最速银盾记录后把新人buff霍霍完了，之后再有新人boost得是冥府搭上ark了
 
+
+
+*****
+
+####  fastary  
+##### 18314#       发表于 2023-1-16 16:28
+
+19下出道的在19年内数字确实不行，虽然上半年靠3bk江露稳定上升了，虹的体量也没到一下出那么多人分散初始箱推还能有好数字的地步<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+差不多到21年之前19下有本事的才都各自做起来，2020看的话大概确实是一群小废物……不过现在是2023了诶
+
