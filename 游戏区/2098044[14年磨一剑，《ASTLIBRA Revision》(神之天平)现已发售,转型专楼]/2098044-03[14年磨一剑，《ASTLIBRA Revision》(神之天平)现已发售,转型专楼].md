@@ -4824,3 +4824,34 @@ b站也有 ...</blockquote>
 逃的越多，后面越难，连杂兵都会寸步难行。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">好吧，今天打完第六章，打贝阿朵莉切的时候确实弩箭逃课失败，最后还是狂暴修脚过的。斗神是真滴好，一把单手剑我用到现在
 
+
+
+*****
+
+####  L.L  
+##### 3403#       发表于 2023-1-16 16:13
+
+问一下 战神那边小怪那里自动1血是啥机制.小怪技能？
+
+*****
+
+####  Rainwedell  
+##### 3404#       发表于 2023-1-16 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373312&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-16 16:13</a>
+问一下 战神那边小怪那里自动1血是啥机制.小怪技能？</blockquote>
+是的，小怪技能
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  牙狼GARO  
+##### 3405#       发表于 2023-1-16 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373312&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-16 16:13</a>
+问一下 战神那边小怪那里自动1血是啥机制.小怪技能？</blockquote>
+有个小怪会给在那边咏唱，唱完你就是一血，竞技场某一关也有它，被我开狂暴杀穿
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
