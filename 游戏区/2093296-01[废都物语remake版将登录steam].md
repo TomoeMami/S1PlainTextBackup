@@ -117,3 +117,16 @@
 
 我最开始不知道，让女仆做了一堆菜，全都是不可燃垃圾，我当时就在想难道这游戏料理技能是有熟练度这种设定吗，后来才发现单纯是女仆的梗
 
+
+
+*****
+
+####  Rincewind  
+##### 453#       发表于 2023-1-16 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59372424&amp;ptid=2093296" target="_blank">765PRO 发表于 2023-1-16 14:59</a>
+我最开始不知道，让女仆做了一堆菜，全都是不可燃垃圾，我当时就在想难道这游戏料理技能是有熟练度这种设定 ...</blockquote>
+就游戏里会做饭的水平分三波
+女仆和某个会在意外的场合脱衣的男性的黑暗料理率高达95%<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+游牧民和男妈妈很会做饭
+
