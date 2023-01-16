@@ -14001,3 +14001,15 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 
 昨天只听了半小时的叶子直播，原来她小年夜节目的粤语就是霍鹭鹭辅导的，她说是厂工扔给她一个联系方式，但练完了都不知道对面马上就是新同事了，这保密工作做得真这么好吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2948#       发表于 2023-1-16 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370255&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-16 11:31</a>
+
+昨天只听了半小时的叶子直播，原来她小年夜节目的粤语就是霍鹭鹭辅导的，她说是厂工扔给她一个联系方式，但 ...</blockquote>
+所以现在大活都放官号上播，感觉像是在做平台，吸引不同的v过来增加曝光率，之后就可以直播带货，或者让别的v过来宣发了，好像万子姐，纯姐的新歌首发
+

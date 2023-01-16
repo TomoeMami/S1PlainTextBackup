@@ -7000,3 +7000,15 @@ twi：gori_0325
 
 2023-1-16 11:15 上传
 
+
+
+*****
+
+####  ViyViy  
+##### 11121#       发表于 2023-1-16 11:44
+
+其他团不知道，Liellasif2剪影完全是sif的对话立绘换了个衣服图层吧……
+
+一副老项目迁移现代架构做适配改造的样子……能送个寄字吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也不上心那也不上心你企划的心到底在哪儿。
+
