@@ -7090,3 +7090,45 @@ twi：gori_0325
 词这个东西要提前有想法也就一天的事
 要现憋那可憋时间长了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11130#       发表于 2023-1-16 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374503&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-1-16 17:50</a>
+
+词这个东西要提前有想法也就一天的事
+
+要现憋那可憋时间长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她自己的说法是后者，天天被马内甲催命
+
+
+
+*****
+
+####  Kfly  
+##### 11131#       发表于 2023-1-16 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374539&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-16 17:53</a>
+
+她自己的说法是后者，天天被马内甲催命</blockquote>
+有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11132#       发表于 2023-1-16 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374539&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-16 17:53</a>
+她自己的说法是后者，天天被马内甲催命</blockquote>
+看来是现憋派<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 11133#       发表于 2023-1-16 17:58
+
+是日文词的话那还挺困难的吧，毕竟不是母语
+

@@ -2071,3 +2071,15 @@ ED挺好听的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  20002000  
+##### 194#       发表于 2023-1-16 18:00
+
+很奇怪 大家都很穷 计较子弹钱 然后村民就电吹风乱扫不要钱一样
+而且一下都打不中 搁着儿猫和老鼠呢 但是又不是搞笑片啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+— from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -14995,3 +14995,16 @@ big胆  那叫终章！</blockquote>
 
 你们在期待什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 4340#       发表于 2023-1-16 17:52
+
+ 本帖最后由 eilot 于 2023-1-16 17:56 编辑 
+
+狩猎本都没，素材礼装也没有
+
+看来这个月的营收能否再突破下限，不过之前有福袋，应该不会太差...
+
