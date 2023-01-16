@@ -234,3 +234,18 @@ syl 这期有不在vta名单上的，终于是把召来的经验者势给吐出�
 
 贴贴捏，又有新的女同可以看了
 
+
+
+*****
+
+####  winda  
+##### 18298#       发表于 2023-1-16 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370867&amp;ptid=1972669" target="_blank">fastary 发表于 2023-1-16 12:23</a>
+19上是3baka、gbr和铃原吧，gnr和铃原毕业。
+
+19下是bls smc 星川 不破 sky 巴，黛灰毕业。
+
+相对来说上半其 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还少算了0和语部，光第一季度里就有4个毕业，还有个音声系vtb口了，而下半年里就黛灰毕业，这毕业率差距可太大了
+
