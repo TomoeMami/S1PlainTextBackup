@@ -4914,3 +4914,26 @@ b站也有 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">久闻新章大名，但真进了我人傻了，差点又被天平守护兽打死了，还好我技高一筹 等级高.我先砸锅卖铁把收集全武器给的武器+宝石换的衣服强化上去一些后，看了一眼能镶嵌的树枝怎么就1200攻了？
 
+
+
+*****
+
+####  gwchobit  
+##### 3411#       发表于 2023-1-17 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379839&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-17 01:47</a>
+
+久闻新章大名，但真进了我人傻了，差点又被天平守护兽打死了，还好我技高一筹 等级高.我先砸锅卖铁 ...</blockquote>
+强化你喜欢的武器，树枝变强是因为系统发了一个装备盘。装备盘装上后武器的数值会变化，不仅是攻击包括重量。
+
+*****
+
+####  L.L  
+##### 3412#       发表于 2023-1-17 02:07
+
+ 本帖最后由 L.L 于 2023-1-17 02:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379920&amp;ptid=2098044" target="_blank">gwchobit 发表于 2023-1-17 02:06</a>
+
+强化你喜欢的武器，树枝变强是因为系统发了一个装备盘。装备盘装上后武器的数值会变化，不仅是攻击包括重 ...</blockquote>
+懂了只要有爱gan，任何武器都能是毕业装？那防具呢？选一个被动强/贵的？
+
