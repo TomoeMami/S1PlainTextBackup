@@ -100,3 +100,49 @@ vta消失了几个来着，7人团是包括了不直播的经验者还是其实�
 
 怎么19年下的饺子全灭的差不多了又下了一批新的 底边多不愁多加几个是吧
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 18285#       发表于 2023-1-16 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">雨森小夜不是在和街角电话亭的搏斗中死去了吗
+
+*****
+
+####  Achlys  
+##### 18286#       发表于 2023-1-16 11:26
+
+哪三个是vta的？只能通过vta不再出新人论是不成立了吗？
+感觉rika和nozomi的皮蛮好看
+
+*****
+
+####  FCCHua  
+##### 18287#       发表于 2023-1-16 11:28
+
+等初配信了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  マドマコ  
+##### 18288#       发表于 2023-1-16 11:28
+
+两个赤仓的娃，还行
+一口气出七个女人，除了卖姬和互扯头花想不到其他能提升人气的方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhangruiy  
+##### 18289#       发表于 2023-1-16 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370179&amp;ptid=1972669" target="_blank">Achlys 发表于 2023-1-16 11:26</a>
+
+哪三个是vta的？只能通过vta不再出新人论是不成立了吗？
+
+感觉rika和nozomi的皮蛮好看 ...</blockquote>
+镝木ろこ、石神のぞみ、仓持めると
+
+这三个名字是完全一样的应该不会错。那个索菲亚就不知道是不是改名了
+
