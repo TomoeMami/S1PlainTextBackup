@@ -206,3 +206,31 @@ vta消失了几个来着，7人团是包括了不直播的经验者还是其实�
 总比你19年上半年第一季度差点死完好吧
 syl 这期有不在vta名单上的，终于是把召来的经验者势给吐出来了么
 
+
+
+*****
+
+####  fastary  
+##### 18296#       发表于 2023-1-16 12:23
+
+19上是3baka、gbr和铃原吧，gnr和铃原毕业。
+
+19下是bls smc 星川 不破 sky 巴，黛灰毕业。
+
+相对来说上半其他人底的多点，不过总体来说都还好，远称不上“全灭的差不多的”
+
+*****
+
+####  Suny08  
+##### 18297#       发表于 2023-1-16 12:27
+
+<img src="https://img.saraba1st.com/forum/202301/16/122610h09t0duyh69609hu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D311E364-A066-486D-B6A7-84AC3F743CDA.jpeg</strong> (327.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-16 12:26 上传
+
+贴贴捏，又有新的女同可以看了
+
