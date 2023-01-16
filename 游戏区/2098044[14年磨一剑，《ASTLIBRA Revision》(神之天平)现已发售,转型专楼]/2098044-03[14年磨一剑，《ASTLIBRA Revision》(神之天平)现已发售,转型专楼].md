@@ -4855,3 +4855,29 @@ b站也有 ...</blockquote>
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  L.L  
+##### 3406#       发表于 2023-1-16 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373336&amp;ptid=2098044" target="_blank">Rainwedell 发表于 2023-1-16 16:15</a>
+
+是的，小怪技能
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 S1Next-鹅版 v2.5.2-play</blockquote>
+谢了.
+
+*****
+
+####  L.L  
+##### 3407#       发表于 2023-1-16 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373355&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2023-1-16 16:16</a>
+
+有个小怪会给在那边咏唱，唱完你就是一血，竞技场某一关也有它，被我开狂暴杀穿
+
+—— 来自 OnePlus LE21 ...</blockquote>
+好的，之后JJC遇到了开狂暴杀之.
+
