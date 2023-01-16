@@ -1699,3 +1699,12 @@ jimmy老师画的</blockquote>
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  上坂蓮華  
+##### 13090#       发表于 2023-1-16 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么感觉中文发音像广东口音
+
