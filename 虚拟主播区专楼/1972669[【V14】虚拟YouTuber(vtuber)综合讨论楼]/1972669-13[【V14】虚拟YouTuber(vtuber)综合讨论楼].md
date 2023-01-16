@@ -61,3 +61,42 @@
 
 抽新卡了，还是一次7个
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18280#       发表于 2023-1-16 11:10
+
+还越抽越多卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下次要一次十连吗？
+
+*****
+
+####  zhangruiy  
+##### 18281#       发表于 2023-1-16 11:10
+
+roko我的roko<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 18282#       发表于 2023-1-16 11:13
+
+vta消失了几个来着，7人团是包括了不直播的经验者还是其实并不一定通过vta才能出道呢
+
+*****
+
+####  zhangruiy  
+##### 18283#       发表于 2023-1-16 11:15
+
+这批vta出来的就3个？
+
+*****
+
+####  空集  
+##### 18284#       发表于 2023-1-16 11:19
+
+怎么19年下的饺子全灭的差不多了又下了一批新的 底边多不愁多加几个是吧
+
