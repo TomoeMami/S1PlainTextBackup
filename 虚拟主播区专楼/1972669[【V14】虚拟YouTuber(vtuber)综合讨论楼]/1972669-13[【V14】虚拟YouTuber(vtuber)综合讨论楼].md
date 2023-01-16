@@ -339,3 +339,26 @@ syl，新人里这个一堆兔子的颓废系的皮还难不错的感觉，看�
 
 大物好像就赤仓和momoco 吧，感觉那个海报几个人画的都挺不错的不知道是谁画的
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18308#       发表于 2023-1-16 14:51
+
+不破出道半年左右时数字在当时新人里就算不错了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">主要是被king看上，上位虹男没人能离开葛皇。
+
+上半年四五个常年3桁的废物，底边和底边亦有区别。
+
+*****
+
+####  poipanchao  
+##### 18309#       发表于 2023-1-16 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59372356&amp;ptid=1972669" target="_blank">aritaatsu222 发表于 2023-1-16 14:51</a>
+不破出道半年左右时数字在当时新人里就算不错了主要是被king看上，上位虹男没人能离开葛皇。
+
+上半年 ...</blockquote>
+我觉得相比底边谁更低，top谁更top才是影响印象的最大因素
+更何况当时的环境下，三baka江露直接皇级了，虹男的时代还早着呢
+
