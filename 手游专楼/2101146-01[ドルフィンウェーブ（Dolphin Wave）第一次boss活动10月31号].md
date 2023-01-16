@@ -83,3 +83,16 @@
 —— 来自 HONOR SDY-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 只能说运营是自由的，别找规律了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心之光  
+##### 232#       发表于 2023-1-17 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59374019&amp;ptid=2101146" target="_blank">羽出 发表于 2023-1-16 17:07</a>
+你这都160了，还不把井吃掉？</blockquote>
+吃了，就是之后一发都没了，感觉很憋屈<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2217A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
