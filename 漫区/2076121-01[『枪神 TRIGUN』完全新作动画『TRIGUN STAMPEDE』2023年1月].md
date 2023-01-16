@@ -2104,3 +2104,12 @@ ED挺好听的
 冒昧的问一下，原作剧情就这b样吗</blockquote>
    和原作的风格都不一样了，还谈啥剧情<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">也就国内没啥老粉能给这片好评了。
 
+
+
+*****
+
+####  tengshuo980  
+##### 197#       发表于 2023-1-16 21:32
+
+第二集剧情转折还是太生硬了，不过3d真顶啊
+

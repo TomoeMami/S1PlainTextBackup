@@ -4893,3 +4893,15 @@ b站也有 ...</blockquote>
 好的，之后JJC遇到了开狂暴杀之.</blockquote>
 黑色的法师怪，没收到攻击不会行动。
 
+
+
+*****
+
+####  L.L  
+##### 3409#       发表于 2023-1-16 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59376615&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-16 20:48</a>
+
+黑色的法师怪，没收到攻击不会行动。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好的，刚杀完战神确实先不碰好用.
+

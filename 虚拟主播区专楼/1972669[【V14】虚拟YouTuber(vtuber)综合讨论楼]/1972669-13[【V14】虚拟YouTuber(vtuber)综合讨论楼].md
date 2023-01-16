@@ -480,3 +480,14 @@ CRCUP这个历届冠军PV，头两届堇的声音好大，存在感拉满
 
 只要有V播 B站原友就会转播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18321#       发表于 2023-1-16 21:37
+
+这段时间还真有个播原神同接近万的个人势
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
