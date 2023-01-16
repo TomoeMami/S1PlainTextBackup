@@ -78,3 +78,16 @@
 机器还躺在海关，估计年前是拿不到了。海淘体验真的屌差等了快两个月还没到不说现在国内电商直接买也贵不了 ...</blockquote>
 现货都3千甚至3千以下了。。。。
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2051#       发表于 2023-1-16 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59375431&amp;ptid=2015700" target="_blank">时空之旅 发表于 2023-1-16 19:19</a>
+现货都3千甚至3千以下了。。。。</blockquote>
+2870目前
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
