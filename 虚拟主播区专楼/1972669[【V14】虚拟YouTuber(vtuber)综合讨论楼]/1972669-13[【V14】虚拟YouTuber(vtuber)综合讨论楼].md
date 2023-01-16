@@ -146,3 +146,41 @@ vta消失了几个来着，7人团是包括了不直播的经验者还是其实�
 
 这三个名字是完全一样的应该不会错。那个索菲亚就不知道是不是改名了
 
+
+
+*****
+
+####  fastary  
+##### 18290#       发表于 2023-1-16 11:31
+
+19年下的饺子不仅是虹男好起来的起点还有好几个女v一军也能叫“全灭的差不多”吗，还活在2020？
+
+*****
+
+####  布莱士·西伯利  
+##### 18291#       发表于 2023-1-16 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370085&amp;ptid=1972669" target="_blank">空集 发表于 2023-1-16 11:19</a>
+怎么19年下的饺子全灭的差不多了又下了一批新的 底边多不愁多加几个是吧</blockquote>
+19年下的饺子有包括三baka，几个男的。sky和巴也不弱。
+19年下半年下的饺子那就另说。
+
+*****
+
+####  psnsic8nag  
+##### 18292#       发表于 2023-1-16 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59370210&amp;ptid=1972669" target="_blank">マドマコ 发表于 2023-1-16 11:28</a>
+
+两个赤仓的娃，还行
+
+一口气出七个女人，除了卖姬和互扯头花想不到其他能提升人气的方法 ...</blockquote>
+对标VSPO吧
+
+*****
+
+####  渡鸦骑士  
+##### 18293#       发表于 2023-1-16 11:35
+
+继续下饺子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
