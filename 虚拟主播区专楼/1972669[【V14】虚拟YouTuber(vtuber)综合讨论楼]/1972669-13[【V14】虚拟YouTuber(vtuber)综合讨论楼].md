@@ -249,3 +249,19 @@ syl 这期有不在vta名单上的，终于是把召来的经验者势给吐出�
 相对来说上半其 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还少算了0和语部，光第一季度里就有4个毕业，还有个音声系vtb口了，而下半年里就黛灰毕业，这毕业率差距可太大了
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 18299#       发表于 2023-1-16 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的，我印象里smc和蓝都上半年的。
+
+*****
+
+####  aritaatsu222  
+##### 18300#       发表于 2023-1-16 12:47
+
+19上半多少人混成空气连背景版都称不上的
+
