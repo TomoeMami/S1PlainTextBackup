@@ -4937,3 +4937,28 @@ b站也有 ...</blockquote>
 强化你喜欢的武器，树枝变强是因为系统发了一个装备盘。装备盘装上后武器的数值会变化，不仅是攻击包括重 ...</blockquote>
 懂了只要有爱gan，任何武器都能是毕业装？那防具呢？选一个被动强/贵的？
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 3413#       发表于 2023-1-17 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379930&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-17 02:07</a>
+懂了只要有爱gan，任何武器都能是毕业装？那防具呢？选一个被动强/贵的？ ...</blockquote>
+装备都有装备盘，随机掉落的，新章前期有装备盘强化的就先将就用，打竞技场到关底可以获得增加已经装备的装备的盘的饰品
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gwchobit  
+##### 3414#       发表于 2023-1-17 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379930&amp;ptid=2098044" target="_blank">L.L 发表于 2023-1-17 02:07</a>
+
+懂了只要有爱gan，任何武器都能是毕业装？那防具呢？选一个被动强/贵的？ ...</blockquote>
+当然。新章除了能获得新首饰，其他没有新武器装备，加上有强化。所以毕业装可以说是自由度很高了，身上所有武器装备首饰都可以装备装备盘。
+
+虽然有些tips 看你刚开始还是多多享受体验游戏吧
+
