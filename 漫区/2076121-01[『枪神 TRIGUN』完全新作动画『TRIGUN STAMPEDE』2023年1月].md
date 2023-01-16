@@ -2092,3 +2092,15 @@ ED挺好听的
 
 就是喜剧片啊，虽然有严肃的部分
 
+
+
+*****
+
+####  bgmilk  
+##### 196#       发表于 2023-1-16 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59372418&amp;ptid=2076121" target="_blank">耐赫伊勒缇 发表于 2023-1-16 14:59</a>
+
+冒昧的问一下，原作剧情就这b样吗</blockquote>
+   和原作的风格都不一样了，还谈啥剧情<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">也就国内没啥老粉能给这片好评了。
+
