@@ -648,10 +648,10 @@
     "active": true
   },
   "2043123": {
-    "totalreply": 15442,
+    "totalreply": 15443,
     "title": "[🎸孤独摇滚🎸 TV动画 2022年10月]",
     "newtitle": "[🎸孤独摇滚🎸 TV动画 2022年10月]",
-    "lastedit": 1673907018,
+    "lastedit": 1673907618,
     "category": "漫区",
     "active": true
   },
@@ -2088,12 +2088,12 @@
     "active": true
   },
   "1993868": {
-    "totalreply": 330,
+    "totalreply": 331,
     "title": "[「向山进发」新作动画「向山进发 Next Summit」2022年10月]",
     "newtitle": "[「向山进发」新作动画「向山进发 Next Summit」2022年10月]",
-    "lastedit": 1673604600,
+    "lastedit": 1673907716,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2097910": {
     "totalreply": 1602,
@@ -3707,7 +3707,7 @@
     "totalreply": 94380,
     "title": "[水星の魔女CM避难楼]",
     "newtitle": "[水星の魔女スレミオ（红白）病栋]",
-    "lastedit": 1673905800,
+    "lastedit": 1673907420,
     "category": "漫区",
     "active": true
   },
@@ -4584,10 +4584,10 @@
     "active": true
   },
   "2112070": {
-    "totalreply": 26867,
+    "totalreply": 26869,
     "title": "[【B69】VUP综合讨论楼]",
     "newtitle": "[【B69】VUP综合讨论楼]",
-    "lastedit": 1673902380,
+    "lastedit": 1673907792,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -9648,10 +9648,10 @@
     "active": true
   },
   "1955542": {
-    "totalreply": 4754,
+    "totalreply": 4755,
     "title": "[《黑神话 悟空》专楼，6分钟新剧情mv加8分钟实机演示公布]",
     "newtitle": "[《黑神话 悟空》专楼，兔年贺岁片公开，2024年夏季发售！]",
-    "lastedit": 1673901960,
+    "lastedit": 1673907769,
     "category": "游戏区",
     "active": true
   },
@@ -9763,7 +9763,7 @@
     "totalreply": 179,
     "title": "[FE Engage 剧透分流楼]",
     "newtitle": "[FE Engage 剧透分流楼]",
-    "lastedit": 1673907085,
+    "lastedit": 1673907000,
     "category": "游戏区",
     "active": true
   },
@@ -10181,6 +10181,14 @@
     "newtitle": "[日向理惠子 狩火之王 动画化]",
     "lastedit": 1673901000,
     "category": "漫区",
+    "active": true
+  },
+  "1743842": {
+    "totalreply": 110,
+    "title": "[干脆变成the messenger讨论专楼吧]",
+    "newtitle": "[干脆变成the messenger讨论专楼吧]",
+    "lastedit": 1673907709,
+    "category": "游戏区",
     "active": true
   }
 }
