@@ -60,3 +60,26 @@
 上一期16次十连，一个UP也没出，歪的自己都不认识了，真的有UP吗，只能像楼上的吃井吗 ...</blockquote>
 你这都160了，还不把井吃掉？
 
+
+
+*****
+
+####  无念  
+##### 230#       发表于 2023-1-16 21:11
+
+怎么是暗？风成为版本弃子了么
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  小五的拖鞋  
+##### 231#         楼主| 发表于 2023-1-16 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59376990&amp;ptid=2101146" target="_blank">无念 发表于 2023-1-16 21:11</a>
+
+怎么是暗？风成为版本弃子了么
+
+—— 来自 HONOR SDY-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+只能说运营是自由的，别找规律了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
