@@ -2113,3 +2113,26 @@ ED挺好听的
 
 第二集剧情转折还是太生硬了，不过3d真顶啊
 
+
+
+*****
+
+####  zyupha  
+##### 198#       发表于 2023-1-16 22:22
+
+啊，感谢技术的进步，能在TV番里看到这样的画面和音效。
+以及这个日漫画风的3D真的好自然。
+
+打戏颇为喧哗上等，文戏让我接受了这种设定（？，稳。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  codezwei  
+##### 199#       发表于 2023-1-16 22:25
+
+有点无聊
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
