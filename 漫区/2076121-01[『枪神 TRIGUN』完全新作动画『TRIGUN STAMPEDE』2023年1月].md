@@ -2000,3 +2000,19 @@ ED挺好听的
 
 3D调的好啊，喜欢人物的表情动作，但帧数有点低
 
+
+
+*****
+
+####  Yeaha123  
+##### 187#       发表于 2023-1-16 13:12
+
+男主比千佛还佛啊
+
+*****
+
+####  yuruki  
+##### 188#       发表于 2023-1-16 13:19
+
+只能说Nico观众真是见多识广，md我好心痛啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
