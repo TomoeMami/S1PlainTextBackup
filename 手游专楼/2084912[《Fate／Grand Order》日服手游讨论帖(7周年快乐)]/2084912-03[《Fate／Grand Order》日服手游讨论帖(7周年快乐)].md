@@ -14947,3 +14947,12 @@ big胆  那叫终章！</blockquote>
 
 何况2022年纽约漫展上他承认他和世嘉的关系了，基本证实了2018年初他是世嘉派过来的人的猜测
 
+
+
+*****
+
+####  廖化  
+##### 4334#       发表于 2023-1-16 12:23
+
+真就摆烂到月底？还是钱太好赚了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
