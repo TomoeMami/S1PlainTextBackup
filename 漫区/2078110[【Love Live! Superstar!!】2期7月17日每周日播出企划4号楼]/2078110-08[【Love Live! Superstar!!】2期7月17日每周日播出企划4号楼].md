@@ -7277,3 +7277,14 @@ https://www.youtube.com/watch?v=9-P-BZ21hy8 虹（确信）星联动，参加的
 
 2023-1-17 01:26 上传
 
+
+
+*****
+
+####  s3081260  
+##### 11145#       发表于 2023-1-17 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379723&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-17 01:26</a>
+这实物好像更不咋滴了…</blockquote>
+感觉眼睛的对称点不在面部中轴线上，很别扭
+
