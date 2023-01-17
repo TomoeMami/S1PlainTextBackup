@@ -209,3 +209,12 @@ FA小结（逃）</blockquote>
 
 五张单抽出小光，我爽了。再加上50票登顶，每日单抽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 176#         楼主| 发表于 2023-1-17 23:06
+
+阿金这分段生放是什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
