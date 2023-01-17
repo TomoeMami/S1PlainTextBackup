@@ -504,3 +504,17 @@ bravegroup现在是打算专心做3D舞台支持吗？
 而brave自己只保留了对他们的3D舞台技术支持。
 这算是认清自己根本不会运营的事实了吗？
 
+
+
+*****
+
+####  Devi_Lito  
+##### 18323#       发表于 2023-1-17 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59373065&amp;ptid=1972669" target="_blank">winda 发表于 2023-1-16 15:53</a>
+
+黛灰搭上雪山人狼算19组最后的疯狂了，小魔王创最速银盾记录后把新人buff霍霍完了，之后再有新人boo ...</blockquote>
+最速银盾是小护士，银盾完之后疯狂第五人格摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小魔王。。就记得她那灾难性的首播了，如果不是花妈通讯录估计都不会招进来，19下太多这种看完首播（甚至首播都不一定能坚持看完）就再也不想看的底边了
+
