@@ -192,3 +192,17 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 1T的SSD能推荐一下吗？另外是否有必要升级到2T，虽然价格很高。
 
+
+
+*****
+
+####  zris  
+##### 2062#       发表于 2023-1-17 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59386175&amp;ptid=2015700" target="_blank">shellte 发表于 2023-1-17 15:24</a>
+
+1T的SSD能推荐一下吗？另外是否有必要升级到2T，虽然价格很高。</blockquote>
+1T足以，仓鼠党另说
+
+反正我推荐无脑SN740
+
