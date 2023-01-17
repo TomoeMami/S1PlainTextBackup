@@ -206,3 +206,17 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 反正我推荐无脑SN740
 
+
+
+*****
+
+####  mggr  
+##### 2063#       发表于 2023-1-17 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59386344&amp;ptid=2015700" target="_blank">zris 发表于 2023-1-17 15:36</a>
+
+1T足以，仓鼠党另说
+
+反正我推荐无脑SN740</blockquote>
+合理价位多少？
+
