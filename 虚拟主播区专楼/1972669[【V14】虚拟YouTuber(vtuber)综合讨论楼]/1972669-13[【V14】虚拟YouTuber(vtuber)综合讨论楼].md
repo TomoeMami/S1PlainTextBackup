@@ -662,3 +662,12 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">坛友是真的很严格，在我看来过20w，同接平A过千就不算底边了，感觉坛友眼里不到50w都是小废物
 
+
+
+*****
+
+####  winda  
+##### 18339#       发表于 2023-1-17 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报告书不都写了，top20占营收50%，那剩下的不算小废物算什么
+
