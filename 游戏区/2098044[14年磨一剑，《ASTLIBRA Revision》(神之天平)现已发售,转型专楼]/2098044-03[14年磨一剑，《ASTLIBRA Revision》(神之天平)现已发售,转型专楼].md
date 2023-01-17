@@ -5028,3 +5028,35 @@ b站也有 ...</blockquote>
 
 可以尝试分解心形巧克力获取爱情，
 
+
+
+*****
+
+####  L.L  
+##### 3421#       发表于 2023-1-17 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379961&amp;ptid=2098044" target="_blank">gwchobit 发表于 2023-1-17 02:15</a>
+
+当然。新章除了能获得新首饰，其他没有新武器装备，加上有强化。所以毕业装可以说是自由度很高了，身上所 ...</blockquote>
+好的，谢谢.
+
+*****
+
+####  L.L  
+##### 3422#       发表于 2023-1-17 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59380717&amp;ptid=2098044" target="_blank">童贞阿龙 发表于 2023-1-17 08:34</a>
+
+无脑强化圣剑也行吧，那攻速和范围还是强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好的，我先继续砸锅卖铁强这个了.
+
+*****
+
+####  L.L  
+##### 3423#       发表于 2023-1-17 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379960&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2023-1-17 02:14</a>
+
+装备都有装备盘，随机掉落的，新章前期有装备盘强化的就先将就用，打竞技场到关底可以获得增加已经装备的 ...</blockquote>
+懂了，谢谢.
+
