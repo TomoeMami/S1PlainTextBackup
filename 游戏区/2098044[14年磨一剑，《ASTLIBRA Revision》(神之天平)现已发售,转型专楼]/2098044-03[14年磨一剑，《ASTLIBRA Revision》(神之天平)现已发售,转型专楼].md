@@ -4992,3 +4992,14 @@ b站也有 ...</blockquote>
 盖亚迷宫刷爱情刷得想哭，每个队友送的两个爱情都拿到了，由于之前剧情里的爱情没拿，所以我需要接着下迷宫 ...</blockquote>
 黑不爱你<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3418#       发表于 2023-1-17 10:19
+
+数值这块的强化我都是直接强化宝石，这样在选装备方面就比较自由，后期真是一身的孔插不满
+
+说起来把移动速度强到100之后那个酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -549,3 +549,34 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 如果黛灰不毕业的话可能就是黛灰了，好想要指偶和塔罗牌………他走的还是太早了，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18327#       发表于 2023-1-17 10:10
+
+ 本帖最后由 psnsic8nag 于 2023-1-17 10:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59381498&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2023-1-17 09:55</a>
+
+五周年为啥虹女连一半都没了，不至于拿不出第十一人吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
+谁跟你大锅饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+改天男团3D插队也不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu222  
+##### 18328#       发表于 2023-1-17 10:19
+
+我怀疑五週年这个人选还有其他活动，除了油以外看上去都是能上台的那批，不知道没选ars而是项羽有没有这方面的考量。
+
+*****
+
+####  Suny08  
+##### 18329#       发表于 2023-1-17 10:20
+
+这人选没有问题呀，一贯的top带小废物模式，表现彩虹大家庭人人都有份，甚至跳过ssk和slm 表示我们并不看重数字，太感动了
+
