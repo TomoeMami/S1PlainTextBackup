@@ -7453,3 +7453,15 @@ pay我笑死了，葱撒地上，鸡肉又撒地上。
 桜小路きな子　2242人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们可少听点小星星吧
 
+
+
+*****
+
+####  Kfly  
+##### 11159#       发表于 2023-1-17 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59389123&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-17 18:46</a>
+笑死，2nd的花絮打铁坐鲤鱼怀里把她的鞋带解了</blockquote>
+很像我记忆里学生时期的人会干的事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/e728d59184ec9dd8e1cc8ce1ffa762be/CMP_20230117191544801.jpg" referrerpolicy="no-referrer">
+
