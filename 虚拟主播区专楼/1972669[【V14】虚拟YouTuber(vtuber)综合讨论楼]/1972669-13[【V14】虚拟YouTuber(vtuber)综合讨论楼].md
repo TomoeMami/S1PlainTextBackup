@@ -637,3 +637,19 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 眼镜不行，活该底边
 眼镜这种东西除了凹造型就该从二次元中消失
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 18336#       发表于 2023-1-17 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">都是眼镜版的呢！
+
+*****
+
+####  poipanchao  
+##### 18337#       发表于 2023-1-17 11:58
+
+学学人家噗，出道就把眼镜摘了到如今勉强混成小top
+

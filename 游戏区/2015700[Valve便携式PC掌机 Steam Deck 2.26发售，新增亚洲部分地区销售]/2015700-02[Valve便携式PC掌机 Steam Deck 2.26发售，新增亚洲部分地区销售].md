@@ -153,3 +153,15 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 有什么推荐性价比高的1t ssd吗？西数sn740如何？什么渠道什么价位靠谱？pdd很多56百的ssd靠谱吗？ ...</blockquote>
 我买了一个杂牌的舒赫试试，看了一下说是性能要求不高，杂牌的只要不是暴毙就好了。
 
+
+
+*****
+
+####  gzhx  
+##### 2058#       发表于 2023-1-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59377777&amp;ptid=2015700" target="_blank">u2deack 发表于 2023-1-16 22:13</a>
+
+Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示视频）都播放不了，大家有碰到这个问题么。搜了 ...</blockquote>
+用兼容模式打开游戏试试
+
