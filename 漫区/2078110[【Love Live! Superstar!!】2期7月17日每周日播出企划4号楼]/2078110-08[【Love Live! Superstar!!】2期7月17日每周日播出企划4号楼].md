@@ -7347,3 +7347,21 @@ sif2立绘
 
 可可的那个周边期待了好久，结果出来之后感觉不仅下巴有点歪，眼神也有点溃散<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 11150#       发表于 2023-1-17 16:07
+
+可可周边绘猫猫嘴频率也太高了，能不能换一换。。
+
+*****
+
+####  ads147147  
+##### 11151#       发表于 2023-1-17 16:07
+
+香音没写年级，看来还是得等到三期生确定后在确定年纪了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
