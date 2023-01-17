@@ -1760,3 +1760,12 @@ jimmy老师画的</blockquote>
 是不是准备到22号在动了</blockquote>
 应该不会吧，mea上次直播时也说了这礼拜还是会照常活动，只是会提几嘴22号的事情（当然，她摸到22号也可以说是“照常”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  秋游刃  
+##### 13095#       发表于 2023-1-17 16:42
+
+至少20号会动，犬山那有个电台<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
