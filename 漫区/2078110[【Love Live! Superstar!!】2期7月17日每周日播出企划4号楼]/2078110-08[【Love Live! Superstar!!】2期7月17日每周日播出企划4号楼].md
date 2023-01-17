@@ -7328,3 +7328,13 @@ https://www.youtube.com/watch?v=9-P-BZ21hy8 虹（确信）星联动，参加的
 
 2023-1-17 14:08 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 11148#       发表于 2023-1-17 15:11
+
+sif2立绘
+<img src="https://p.sda1.dev/9/ba20de56fb033b07cc60185f8a59e8b0/CMP_20230117151055783.jpg" referrerpolicy="no-referrer">
+
