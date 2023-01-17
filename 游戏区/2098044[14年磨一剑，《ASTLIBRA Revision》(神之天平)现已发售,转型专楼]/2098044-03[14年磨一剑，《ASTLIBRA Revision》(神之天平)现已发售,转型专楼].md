@@ -4981,3 +4981,14 @@ b站也有 ...</blockquote>
 盖亚迷宫刷爱情刷得想哭，每个队友送的两个爱情都拿到了，由于之前剧情里的爱情没拿，所以我需要接着下迷宫刷。每次带着黑去打第四层，打了好多好多次boss，开箱开不出一个爱情，快把我逼疯了。
 我正愁着怎么办呢，结果换了队友之后立竿见影，打boss一口气爆出三个爱情！5个箱子出3个这算啥。所以契机是换不同的队友吗？本来恼羞成怒止不住想喷这游戏太依赖刷了，然后情绪就被安抚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 3417#       发表于 2023-1-17 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59381072&amp;ptid=2098044" target="_blank">manysun 发表于 2023-1-17 09:17</a>
+盖亚迷宫刷爱情刷得想哭，每个队友送的两个爱情都拿到了，由于之前剧情里的爱情没拿，所以我需要接着下迷宫 ...</blockquote>
+黑不爱你<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
