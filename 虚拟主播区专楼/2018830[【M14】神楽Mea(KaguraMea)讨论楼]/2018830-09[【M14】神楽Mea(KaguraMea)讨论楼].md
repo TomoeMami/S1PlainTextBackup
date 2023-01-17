@@ -1748,3 +1748,15 @@ jimmy老师画的</blockquote>
 
 是不是准备到22号在动了
 
+
+
+*****
+
+####  汇聚群光  
+##### 13094#       发表于 2023-1-17 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59381238&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2023-1-17 09:34</a>
+
+是不是准备到22号在动了</blockquote>
+应该不会吧，mea上次直播时也说了这礼拜还是会照常活动，只是会提几嘴22号的事情（当然，她摸到22号也可以说是“照常”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

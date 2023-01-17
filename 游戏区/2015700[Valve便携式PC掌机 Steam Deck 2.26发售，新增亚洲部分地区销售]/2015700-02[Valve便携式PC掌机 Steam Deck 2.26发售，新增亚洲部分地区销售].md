@@ -118,3 +118,38 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 最近降价了有点心动想搞个来玩模拟器。不过在SteamOS下登录蒸汽账号需要开梯子或者加速吗，以及没网能离线玩吗？
 
+
+
+*****
+
+####  时空之旅  
+##### 2055#       发表于 2023-1-17 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59376427&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-16 20:36</a>
+
+2870目前
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+你说的不是现货价格吧，是要等美国那边发货吧
+
+*****
+
+####  你好s1  
+##### 2056#       发表于 2023-1-17 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59383018&amp;ptid=2015700" target="_blank">时空之旅 发表于 2023-1-17 11:31</a>
+
+你说的不是现货价格吧，是要等美国那边发货吧</blockquote>
+
+  不是，PDD上 你去果园玩会斗地主，能给你个-100的卷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gmlazy  
+##### 2057#       发表于 2023-1-17 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59379610&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-17 01:07</a>
+
+有什么推荐性价比高的1t ssd吗？西数sn740如何？什么渠道什么价位靠谱？pdd很多56百的ssd靠谱吗？ ...</blockquote>
+我买了一个杂牌的舒赫试试，看了一下说是性能要求不高，杂牌的只要不是暴毙就好了。
+
