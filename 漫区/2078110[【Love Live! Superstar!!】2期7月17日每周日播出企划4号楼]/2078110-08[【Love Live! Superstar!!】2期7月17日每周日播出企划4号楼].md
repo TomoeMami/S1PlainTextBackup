@@ -7365,3 +7365,15 @@ sif2立绘
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ruffian  
+##### 11152#       发表于 2023-1-17 16:39
+
+樱小路和芽衣这个发型太好看了，特别是芽衣发型的樱小路哪还有土妹子的样子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+随便可可这发型解开怕不是要过肩了(想看中长发可x<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

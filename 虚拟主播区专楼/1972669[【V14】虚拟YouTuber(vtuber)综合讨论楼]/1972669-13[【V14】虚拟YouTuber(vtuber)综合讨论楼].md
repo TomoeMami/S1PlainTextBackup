@@ -671,3 +671,13 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报告书不都写了，top20占营收50%，那剩下的不算小废物算什么
 
+
+
+*****
+
+####  ghgfg  
+##### 18340#       发表于 2023-1-17 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 所以塔罗牌那22张牌就是这22个人？
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 其他人都不配过五周年了是，
+
