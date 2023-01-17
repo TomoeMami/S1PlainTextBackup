@@ -7474,3 +7474,14 @@ pay我笑死了，葱撒地上，鸡肉又撒地上。
 
 小学男生行为<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 11161#       发表于 2023-1-17 19:35
+
+打铁还是很调皮的，鲤鱼被她捉弄好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
