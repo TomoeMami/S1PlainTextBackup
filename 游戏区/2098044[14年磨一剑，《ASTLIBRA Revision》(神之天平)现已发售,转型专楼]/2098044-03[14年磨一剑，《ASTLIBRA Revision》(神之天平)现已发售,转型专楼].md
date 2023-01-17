@@ -5099,3 +5099,12 @@ b站也有 ...</blockquote>
 
 还有人物塑造的也有些问题，就我自身感受来说，黑和白更像女主，真女主一直到新章里面才跟主角互动多一点
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3427#       发表于 2023-1-17 23:59
+
+女主只记得呐呐呐，二次元的尬味要溢出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

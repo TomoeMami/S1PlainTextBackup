@@ -771,3 +771,20 @@ fantasia女组预约甚至都没有男组一半，lrgk
 
 [https://twitter.com/tenmilia](https://twitter.com/tenmilia)
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18350#       发表于 2023-1-17 23:55
+
+CR的king和nijisanji的king碰一块了
+
+<img src="https://img.saraba1st.com/forum/202301/17/235438ypnpr1lljrq6r567.jpg" referrerpolicy="no-referrer">
+
+<strong>FmrOYMraMAA0jYR.jpg</strong> (224.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-17 23:54 上传
+
