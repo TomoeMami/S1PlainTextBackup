@@ -5014,3 +5014,17 @@ b站也有 ...</blockquote>
 盖亚迷宫刷爱情刷得想哭，每个队友送的两个爱情都拿到了，由于之前剧情里的爱情没拿，所以我需要接着下迷宫 ...</blockquote>
 新章掉落好像有隐藏保底机制，刷到一定程度，如果之前一直都没掉过，会在某一个时间段连续掉落，只能说作者不愧是自己玩同时也是做过手游的，知道玩家的爽点在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 3420#       发表于 2023-1-17 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59381072&amp;ptid=2098044" target="_blank">manysun 发表于 2023-1-17 09:17</a>
+
+盖亚迷宫刷爱情刷得想哭，每个队友送的两个爱情都拿到了，由于之前剧情里的爱情没拿，所以我需要接着下迷宫 ...</blockquote>
+总结还是运气不够好。两次通关在刷队友的同时能获得2个左右的爱情、
+
+可以尝试分解心形巧克力获取爱情，
+
