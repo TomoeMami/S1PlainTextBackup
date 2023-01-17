@@ -7400,3 +7400,19 @@ sif2立绘
 
 pay我笑死了，葱撒地上，鸡肉又撒地上。
 
+
+
+*****
+
+####  starring  
+##### 11155#       发表于 2023-1-17 18:34
+
+给鲤鱼种下一堆miku<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11156#       发表于 2023-1-17 18:36
+
+难怪拍照时坐那么后面，直接被“你啥都不用做”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
