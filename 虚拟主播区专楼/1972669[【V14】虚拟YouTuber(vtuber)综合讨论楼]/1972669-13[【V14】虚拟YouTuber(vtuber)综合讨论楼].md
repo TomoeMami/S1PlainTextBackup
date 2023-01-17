@@ -690,3 +690,12 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 青桐高校跟本社这两三年都没来往吧。现在互相甩掉历史包袱而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18342#       发表于 2023-1-17 16:51
+
+泥哥怎么还做着按牌面选人的梦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这么久了还没看透你虹吗，这选10个女的人气都还过得去都看得到女粉在喊不想捆女的了，巴不得选21个男的。
+
