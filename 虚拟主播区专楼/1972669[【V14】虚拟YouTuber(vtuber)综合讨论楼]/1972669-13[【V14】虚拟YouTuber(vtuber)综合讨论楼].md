@@ -699,3 +699,33 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 泥哥怎么还做着按牌面选人的梦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这么久了还没看透你虹吗，这选10个女的人气都还过得去都看得到女粉在喊不想捆女的了，巴不得选21个男的。
 
+
+
+*****
+
+####  Suny08  
+##### 18343#       发表于 2023-1-17 17:23
+
+迟早要男女谷子分开的，就今年吧，以后估计live也是
+
+*****
+
+####  psnsic8nag  
+##### 18344#       发表于 2023-1-17 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59387162&amp;ptid=1972669" target="_blank">ghgfg 发表于 2023-1-17 16:33</a>
+
+所以塔罗牌那22张牌就是这22个人？
+
+ 其他人都不配过五周年了是， ...</blockquote>
+底边收收味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 18345#       发表于 2023-1-17 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细一看vta势怎么挑了seraph，先斗宁数据哪里不如seraph了
+
+voltaction &gt; ranunculus么
+
