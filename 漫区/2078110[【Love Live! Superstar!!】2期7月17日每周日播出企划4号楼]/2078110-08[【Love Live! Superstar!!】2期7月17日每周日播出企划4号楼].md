@@ -7494,3 +7494,24 @@ pay我笑死了，葱撒地上，鸡肉又撒地上。
 
 这期裂垃圾鲤鱼嗓子是不是有点哑？总感觉声音不像以前那么清亮了
 
+
+
+*****
+
+####  player3960  
+##### 11163#       发表于 2023-1-17 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59390369&amp;ptid=2078110" target="_blank">qty 发表于 2023-1-17 20:10</a>
+
+这期裂垃圾鲤鱼嗓子是不是有点哑？总感觉声音不像以前那么清亮了</blockquote>
+倒没觉得嗓子哑，只觉得好像没什么精神，是不是太累了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11164#       发表于 2023-1-17 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59390555&amp;ptid=2078110" target="_blank">player3960 发表于 2023-1-17 20:23</a>
+倒没觉得嗓子哑，只觉得好像没什么精神，是不是太累了</blockquote>
+与全世界战斗很费能量的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
