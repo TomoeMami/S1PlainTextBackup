@@ -729,3 +729,25 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 voltaction &gt; ranunculus么
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18346#       发表于 2023-1-17 17:51
+
+ 本帖最后由 aritaatsu222 于 2023-1-17 17:53 编辑 
+
+volta选小红确实有可以商榷的地方，云雀同时符合数字比他高和愿意唱歌两点
+
+syl
+
+fantasia女组预约甚至都没有男组一半，lrgk
+
+*****
+
+####  poipanchao  
+##### 18347#       发表于 2023-1-17 17:56
+
+就看2023年第一位大明星roko能不能打出风采了
+
