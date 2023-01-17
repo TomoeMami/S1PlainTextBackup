@@ -105,3 +105,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我要白兔啊…怎么老是歪。上期100抽没up，这期吃井好难受<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  startea15  
+##### 234#       发表于 2023-1-17 11:28
+
+经典抽一井一，还好存了9500无课钻和换了14票，补井也没算补很多，还是得只抽xp不能都抽
+
