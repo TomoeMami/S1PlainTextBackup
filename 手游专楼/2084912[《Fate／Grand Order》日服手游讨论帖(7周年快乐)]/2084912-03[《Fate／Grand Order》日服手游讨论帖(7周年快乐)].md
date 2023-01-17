@@ -15095,3 +15095,25 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 
 究竟是否有卧底...
 
+
+
+*****
+
+####  khxooo  
+##### 4349#       发表于 2023-1-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59385635&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-17 14:44</a>
+
+我有预感今天会有动静！</blockquote>
+没 事 发 生<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4350#       发表于 2023-1-17 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59389440&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-17 19:06</a>
+
+没 事 发 生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要急！明天也是今天（错乱
+
