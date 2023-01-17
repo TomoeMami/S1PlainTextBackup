@@ -527,3 +527,25 @@ bravegroup现在是打算专心做3D舞台支持吗？
 
 5周年这人选……
 
+
+
+*****
+
+####  真飞鸟i  
+##### 18325#       发表于 2023-1-17 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五周年为啥虹女连一半都没了，不至于拿不出第十一人吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fastary  
+##### 18326#       发表于 2023-1-17 09:58
+
+几个人气双人组都上了，居然有唯没有咲<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+如果黛灰不毕业的话可能就是黛灰了，好想要指偶和塔罗牌………他走的还是太早了，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
