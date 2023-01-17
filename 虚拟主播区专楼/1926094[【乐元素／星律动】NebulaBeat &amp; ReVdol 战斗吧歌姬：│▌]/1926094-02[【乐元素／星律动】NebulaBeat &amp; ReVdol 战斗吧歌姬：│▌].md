@@ -14033,3 +14033,17 @@ NBL一期生官宣。新来四个讲道理只熟悉娜娜和霍鹭鹭，其他�
 
 【给予你温柔之手 | Departures 〜あなたにおくるアイの歌〜【阿买翻唱】-哔哩哔哩】 [https://b23.tv/kk5QRyg](https://b23.tv/kk5QRyg)
 
+
+
+*****
+
+####  joll9000  
+##### 2951#       发表于 2023-1-17 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59358494&amp;ptid=1926094" target="_blank">天青月白 发表于 2023-1-15 14:29</a>
+
+笑死，看到一个视频，nb小年夜参与次数排名，最多的是小桃和纯姐，比所有nb厂的都多 ...</blockquote>
+谁是NB厂一姐一目了然了，是小桃！
+
+NB厂？虚研社分社罢了
+
