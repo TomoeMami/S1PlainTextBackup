@@ -580,3 +580,31 @@ bls怎么上的是项羽不是圆圆<img src="https://static.saraba1st.com/image
 
 这人选没有问题呀，一贯的top带小废物模式，表现彩虹大家庭人人都有份，甚至跳过ssk和slm 表示我们并不看重数字，太感动了
 
+
+
+*****
+
+####  aritaatsu222  
+##### 18330#       发表于 2023-1-17 10:25
+
+说是带小废物也没选真正的底边啊XD有本事带mahiro美夜子那种赔钱货吗
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 18331#       发表于 2023-1-17 10:27
+
+怎么唐突美夜子，嫌人家做了五年素人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psnsic8nag  
+##### 18332#       发表于 2023-1-17 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59381850&amp;ptid=1972669" target="_blank">Suny08 发表于 2023-1-17 10:20</a>
+
+这人选没有问题呀，一贯的top带小废物模式，表现彩虹大家庭人人都有份，甚至跳过ssk和slm 表示我们并不看重 ...</blockquote>
+放ID跟KR底边试试，股东看了都要落泪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
