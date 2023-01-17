@@ -7425,3 +7425,31 @@ pay我笑死了，葱撒地上，鸡肉又撒地上。
 
 笑死，2nd的花絮打铁坐鲤鱼怀里把她的鞋带解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11158#       发表于 2023-1-17 19:00
+
+<blockquote>各グループのSpotifyリスナー数ｗｗｗｗ
+
+涩谷かのん　　23672人
+
+唐可可　　　　22430人
+
+岚千砂都　　　12611人
+
+平安名すみれ　12414人
+
+叶月恋　　　　5585人
+
+米女メイ　　　2142人
+
+若菜四季　　　2051人
+
+鬼冢夏美　　　2210人
+
+桜小路きな子　2242人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们可少听点小星星吧
+
