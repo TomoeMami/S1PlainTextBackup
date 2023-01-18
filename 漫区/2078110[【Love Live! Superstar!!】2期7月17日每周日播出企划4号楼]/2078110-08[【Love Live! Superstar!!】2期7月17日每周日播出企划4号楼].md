@@ -7742,3 +7742,16 @@ liella日记
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 11183#       发表于 2023-1-18 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59399415&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-18 13:46</a>
+就是啊……
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传播理论里面，重复是一个重要说服技巧，无论故意过失反正它是这么做了
+

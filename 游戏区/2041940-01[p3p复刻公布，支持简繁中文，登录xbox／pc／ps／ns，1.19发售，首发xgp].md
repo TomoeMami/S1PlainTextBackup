@@ -1038,3 +1038,21 @@ P3的新重制有准信吗？还是只是玩家猜的？
 
 P3那爬塔简直不想玩第二遍<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  饭冢武也  
+##### 110#       发表于 2023-1-18 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59399061&amp;ptid=2041940" target="_blank">winggg 发表于 2023-1-18 13:15</a>
+
+P3的新重制有准信吗？还是只是玩家猜的？
+
+不太想重温AVG选单式移动的P3P。</blockquote>
+怎么可能
+
+移植版又不是不想卖了
+
+都是舅舅说的
+
