@@ -7730,3 +7730,15 @@ liella日记
  ...</blockquote>
 额，真有彩蛋埋在一单里都比一专好吧。
 
+
+
+*****
+
+####  ruffian  
+##### 11182#       发表于 2023-1-18 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59399057&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-01-18 13:15:28</a>
+一般的理解不应该是前三集是真的三集后都是假的吗</blockquote>就是啊……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
