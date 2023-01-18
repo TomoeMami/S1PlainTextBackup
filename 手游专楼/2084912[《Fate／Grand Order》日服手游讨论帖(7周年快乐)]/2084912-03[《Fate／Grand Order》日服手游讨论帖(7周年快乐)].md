@@ -15471,3 +15471,31 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃…上线看了一下除了开了个池子别的没了？然后我下线了，看着卡面在考虑要不要丢几个石头试试……
 
+
+
+*****
+
+####  白金口袋  
+##### 4387#       发表于 2023-1-18 18:23
+
+3呼符出了，这就是之前丢号换回来的RP守恒吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4388#       发表于 2023-1-18 18:25
+
+60石
+
+见到3星狂变金色，之后出来次天童子(宝1)
+
+*****
+
+####  alucardcz  
+##### 4389#       发表于 2023-1-18 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402791&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-1-18 18:21</a>
+
+呃…上线看了一下除了开了个池子别的没了？然后我下线了，看着卡面在考虑要不要丢几个石头试试…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钻多可抽 反正是常驻（
+
