@@ -1126,3 +1126,16 @@ p3p一点没改吗，和模拟器玩有啥区别</blockquote>
 —— 来自 realme RMX3310, Android 13上的 S1Next-鹅版 v2 ...</blockquote>
 [https://bbs.saraba1st.com/2b/thread-2110240-1-1.html](https://bbs.saraba1st.com/2b/thread-2110240-1-1.html) 仅供参考，微软版和steam版最后应该是一样的
 
+
+
+*****
+
+####  a2276382  
+##### 118#       发表于 2023-1-19 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407637&amp;ptid=2041940" target="_blank">Elrist 发表于 2023-1-19 01:31</a>
+https://bbs.saraba1st.com/2b/thread-2110240-1-1.html 仅供参考，微软版和steam版最后应该是一样的 ...</blockquote>
+谢谢 看了下 没什么重大更新 还是玩p3了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
