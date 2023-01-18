@@ -1789,3 +1789,12 @@ jimmy老师画的</blockquote>
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  airclab  
+##### 13098#       发表于 2023-1-18 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
