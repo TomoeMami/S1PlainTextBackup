@@ -247,3 +247,25 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 昨晚凌晨刷到一个价格不错的百亿补贴，春节期间没忍住，2813入手了。</blockquote>
 你应该是搞了-70的多多支付， 感觉2800左右是极限了，除非后续港版大面积铺货，还能再降
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2066#       发表于 2023-1-18 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59327259&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2023-1-13 10:39</a>
+
+机器还躺在海关，估计年前是拿不到了。海淘体验真的屌差等了快两个月还没到不说现在国内电商直接买也贵不了 ...</blockquote>
+多多 2870 常态， 券多的可能2840不到都有，海淘便宜不了多少吧？ 
+
+*****
+
+####  妄想中毒  
+##### 2067#       发表于 2023-1-18 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403089&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-18 18:52</a>
+
+多多 2870 常态， 券多的可能2840不到都有，海淘便宜不了多少吧？</blockquote>
+2个月前国内现货3400
+
