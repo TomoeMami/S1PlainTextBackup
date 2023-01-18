@@ -7972,3 +7972,21 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 或者说桑尼趴也加人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 如果运营选择不当人，就是桑尼趴前辈毕业，后辈继承名号来打团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 11203#       发表于 2023-1-18 23:18
+
+原神也带不动pay这个游戏黑洞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+FmwcP6UaAAEJLoe.jpg
+(446.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/231803ysggvwkgus79r1v9.jpg" referrerpolicy="no-referrer">
+
