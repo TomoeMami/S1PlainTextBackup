@@ -7679,3 +7679,17 @@ liella日记
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 11178#       发表于 2023-1-18 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59398691&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-18 12:39</a>
+人物介绍照搬的官网吧。
+
+所以说也别说什么前三集才是意外的阴谋论了……前三集五个人的人设跟官网的介绍以 ...</blockquote>
+就整体表现来说，前三集是意外也不是阴谋论吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+后来失控都是常态了，可不显着还算正常的几集比较意外嘛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
