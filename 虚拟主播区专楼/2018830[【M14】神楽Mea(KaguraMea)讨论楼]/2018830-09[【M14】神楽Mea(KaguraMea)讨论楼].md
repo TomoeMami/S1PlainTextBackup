@@ -1778,3 +1778,14 @@ jimmy老师画的</blockquote>
 
 过年感觉会来阿b要压岁钱
 
+
+
+*****
+
+####  十九号大侠  
+##### 13097#       发表于 2023-1-18 09:52
+
+应该不会吧，他还知道有b站的粉丝吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
