@@ -5108,3 +5108,14 @@ b站也有 ...</blockquote>
 
 女主只记得呐呐呐，二次元的尬味要溢出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  又花了五块钱  
+##### 3428#       发表于 2023-1-18 09:22
+
+问个低级问题：刚入坑，有时候平a前面那个透明方块是什么意思？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
