@@ -1172,3 +1172,15 @@ Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新�
 
 睡不着，就想着进游戏看看，然后XGP显示操作过早<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  refiver  
+##### 122#       发表于 2023-1-19 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407950&amp;ptid=2041940" target="_blank">tureleona 发表于 2023-1-19 03:52</a>
+
+睡不着，就想着进游戏看看，然后XGP显示操作过早</blockquote>
+我也看了一眼说是北京时间今天下午1点
+
