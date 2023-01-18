@@ -7780,3 +7780,14 @@ liella日记
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nufawneafg  
+##### 11186#       发表于 2023-1-18 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59400333&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-1-18 14:58</a>
+其实也没什么证据说肯定是12人吧，vn的生日有公开么？而且vn入队明明是算二年级结果还是三期生本身也挺奇怪 ...</blockquote>
+总得有个预期，当下的信号混乱就只能找以前的路径参考了，啥预期也没有了那是真完球了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
