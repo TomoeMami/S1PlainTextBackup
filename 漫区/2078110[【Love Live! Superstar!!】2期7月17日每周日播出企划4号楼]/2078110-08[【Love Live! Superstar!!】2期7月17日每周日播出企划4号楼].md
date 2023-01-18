@@ -7578,3 +7578,15 @@ liella日记
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 11170#       发表于 2023-1-18 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59396572&amp;ptid=2078110" target="_blank">愛さ実 发表于 2023-1-18 09:44</a>
+
+打铁坐怀里解鱼鞋带pay还要帮绑，太扭了吧而且这什么渣男坐姿，怀里抱着一个，腿上还搭着一 ...</blockquote>
+更正，是腿上搭着两个（pay和nako）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

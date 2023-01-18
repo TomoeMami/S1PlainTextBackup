@@ -5145,3 +5145,16 @@ b站也有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tansapple  
+##### 3431#       发表于 2023-1-18 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59396707&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-18 09:56</a>
+连击数加成buff是什么我教程全跳了
+
+—— 来自 S1Fun</blockquote>
+就是游戏画面上连击数累计到一定数量之后，在连击数下面显示的各种加成，包括减伤、攻击范围、金币加成等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
