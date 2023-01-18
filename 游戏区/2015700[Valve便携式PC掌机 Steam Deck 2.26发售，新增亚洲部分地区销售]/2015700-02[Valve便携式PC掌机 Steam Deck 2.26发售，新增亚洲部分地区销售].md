@@ -295,3 +295,14 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mggr  
+##### 2070#       发表于 2023-1-18 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403062&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-18 18:49</a>
+ 你应该是搞了-70的多多支付， 感觉2800左右是极限了，除非后续港版大面积铺货，还能再降 ...</blockquote>
+今天pdd 2599了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
