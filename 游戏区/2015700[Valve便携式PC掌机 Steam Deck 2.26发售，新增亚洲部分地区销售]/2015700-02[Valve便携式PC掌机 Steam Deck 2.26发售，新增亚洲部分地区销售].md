@@ -400,3 +400,14 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 想问下之前说更新系统换了根目录名字导致模拟器还是双系统失效这个v社还是emudeck有修复了吗？一直没有更新系统就是这个原因<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinnfin  
+##### 2078#       发表于 2023-1-19 07:34
+
+<img src="https://p.sda1.dev/9/e0212af0bc932c55ef1855c1b4d75035/CMP_20230119073342516.jpg" referrerpolicy="no-referrer">
+pdd的都靠谱吗？很心动啊。。。
+虽然买来也不知道玩啥   
+
