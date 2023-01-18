@@ -317,3 +317,16 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 问下deck或者其他windows掌机有类似geforce experience这种稳定录屏的方式吗
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2072#       发表于 2023-1-19 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59405561&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-18 22:33</a>
+今天pdd 2599了</blockquote>
+这么低不知道怎么做到的，直接人肉运输？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI PAD 4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -800,3 +800,16 @@ CR的king和nijisanji的king碰一块了
 楼上的图里有几个队长是不是弄反了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/ba004ccf59c7295dfc0aad1024872a98/CMP_20230118080713980.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 18352#       发表于 2023-1-19 00:01
+
+月奈队怒取两连鸡
+
+海藻头最协就把麻吉的练度搞出来，加上现在是希尔环境，心音精准定位
+
+钻头折磨，钻头结束接希尔的打断，究极折磨王了
+
