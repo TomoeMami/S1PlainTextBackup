@@ -1139,3 +1139,17 @@ https://bbs.saraba1st.com/2b/thread-2110240-1-1.html 仅供参考，微软版和
 
 —— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  翼宿一  
+##### 119#       发表于 2023-1-19 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407583&amp;ptid=2041940" target="_blank">a2276382 发表于 2023-1-19 01:18</a>
+话说这次的p4跟之前steam的p4 有啥区别
+
+—— 来自 realme RMX3310, Android 13上的 S1Next-鹅版 v2 ...</blockquote>
+Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新版加的东西会通过更新给 Steam 版也加上，所以实质上没有差别。
+通常来说不是加新剧情应该没人会重打吧，这俩掌机冷饭都是没新内容的，连 HD 化都不算。
+
