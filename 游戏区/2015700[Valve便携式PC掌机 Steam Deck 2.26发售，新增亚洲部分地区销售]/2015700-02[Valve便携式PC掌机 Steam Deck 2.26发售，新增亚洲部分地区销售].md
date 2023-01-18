@@ -330,3 +330,17 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 —— 来自 Xiaomi MI PAD 4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  传说中的天才  
+##### 2073#       发表于 2023-1-19 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59405981&amp;ptid=2015700" target="_blank">Onelooker 发表于 2023-1-18 23:03</a>
+
+夕夕发力了
+
+问下deck或者其他windows掌机有类似geforce experience这种稳定录屏的方式吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">去Steam Deck社区报Bug的时候顺道看了下Feature Request里第一的就是这个。
+
