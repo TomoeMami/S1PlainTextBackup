@@ -15499,3 +15499,19 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 呃…上线看了一下除了开了个池子别的没了？然后我下线了，看着卡面在考虑要不要丢几个石头试试…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钻多可抽 反正是常驻（
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4390#       发表于 2023-1-18 18:33
+
+没有四星尼托的可以抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 4391#       发表于 2023-1-18 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">0石0呼符没出货
+
