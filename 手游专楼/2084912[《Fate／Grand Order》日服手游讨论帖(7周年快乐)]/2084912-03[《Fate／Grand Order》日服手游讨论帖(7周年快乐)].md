@@ -15561,3 +15561,38 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 第一眼看到1破短发就有种既视感，满破了定睛一看，黑皮、金眼、白毛、短发青头带，满破卡面红黑为主点缀金色白色，这不是二世村正吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 4397#       发表于 2023-1-18 20:57
+
+搞啥啊，常驻
+
+还以为限定
+
+不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 4398#       发表于 2023-1-18 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401904&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-18 17:16</a>
+
+搬一下卡面和数据：</blockquote>
+漫威月光骑士里的有
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4399#       发表于 2023-1-18 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403259&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-1-18 19:07</a>
+
+算了，想想2.7其他那些，是我太苛刻了</blockquote>
+看看黑豹男脱下面具的样子！ 这尼托难道不值得吹爆吗！
+
