@@ -3614,3 +3614,14 @@ Tokyo MX版的提供：
 
 虽然制作穷，但叙事依然稳
 
+
+
+*****
+
+####  万里小路さん  
+##### 444#       发表于 2023-1-18 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59378043&amp;ptid=2050199" target="_blank">Renes 发表于 2023-01-16 22:34:01</a></blockquote>还有两家，一家是女儿叛逆，还有家儿子人不错，但想拿下桃花剑妹妹，感觉都是药丸啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
