@@ -765,3 +765,33 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 这游戏steamdeck玩怎么这么卡
 
+
+
+*****
+
+####  LrGsite  
+##### 63#       发表于 2023-1-19 01:30
+
+<img src="https://img.saraba1st.com/forum/202301/19/012121qsld605gu0m0d000.png" referrerpolicy="no-referrer">
+
+<strong>タイトル画像.png</strong> (324.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 01:21 上传
+
+[mega盘：DemonsRoots-SoundTrack-](https://mega.nz/file/A2BxTbqA#mSZSqk8pLBvWBpbWpM3fX_XgRd-jCj-rwZoFbxEBaLs)
+[红唯まと（深爪贵族）](https://ci-en.dlsite.com/creator/1793)
+
+<img src="https://img.saraba1st.com/forum/202301/19/012542wnmj0kuuceklv3nh.png" referrerpolicy="no-referrer">
+
+<strong>8`1)Z4HMPW50Y]Z}RC5CAHT.png</strong> (108.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 01:25 上传
+
+分享一下游戏的soundtract，有能力的还是去CI-EN主页支持一下作者。
+
+主要是shade的7首曲子，以及里面还有个特典，教会岛的咖啡馆，可以在咖啡馆里一边听BGM不同的BGM会有不同的NPC来点谈话小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能看到和伙伴安静的坐在一起闲聊喝咖啡，连前作的哪位也来了。
+

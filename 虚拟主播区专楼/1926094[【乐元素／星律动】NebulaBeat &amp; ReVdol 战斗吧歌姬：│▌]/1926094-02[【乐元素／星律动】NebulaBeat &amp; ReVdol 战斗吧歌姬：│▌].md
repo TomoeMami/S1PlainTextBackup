@@ -14065,3 +14065,15 @@ NB厂？虚研社分社罢了
 
 夏老大又直球喷某些人在无关视频下面瞎比at了。我疑心是在说前几天李氏那边搞的那个东西？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是蛮叹为观止的，皮套粉的极境了属于是
 
+
+
+*****
+
+####  ladiesman802  
+##### 2954#       发表于 2023-1-19 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59405689&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-18 22:43</a>
+
+夏老大又直球喷某些人在无关视频下面瞎比at了。我疑心是在说前几天李氏那边搞的那个东西？还是蛮叹 ...</blockquote>
+年后乐元素来一波清算就好看了，到时候别原地打滚就行
+

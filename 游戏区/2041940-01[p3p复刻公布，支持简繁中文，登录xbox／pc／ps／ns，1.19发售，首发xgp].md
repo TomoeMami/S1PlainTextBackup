@@ -1112,3 +1112,17 @@ p3p一点没改吗，和模拟器玩有啥区别</blockquote>
 
 —— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Elrist  
+##### 117#       发表于 2023-1-19 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407583&amp;ptid=2041940" target="_blank">a2276382 发表于 2023-1-19 01:18</a>
+
+话说这次的p4跟之前steam的p4 有啥区别
+
+—— 来自 realme RMX3310, Android 13上的 S1Next-鹅版 v2 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2110240-1-1.html](https://bbs.saraba1st.com/2b/thread-2110240-1-1.html) 仅供参考，微软版和steam版最后应该是一样的
+
