@@ -15552,3 +15552,12 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 算了，想想2.7其他那些，是我太苛刻了
 
+
+
+*****
+
+####  xiongxingyu  
+##### 4396#       发表于 2023-1-18 20:42
+
+第一眼看到1破短发就有种既视感，满破了定睛一看，黑皮、金眼、白毛、短发青头带，满破卡面红黑为主点缀金色白色，这不是二世村正吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
