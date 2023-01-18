@@ -14056,3 +14056,12 @@ NB厂？虚研社分社罢了
 
 叶子除了nb原来还在做声优，绿色懒狗不懒，只是去接外快是吧
 
+
+
+*****
+
+####  MinFOrder  
+##### 2953#       发表于 2023-1-18 22:43
+
+夏老大又直球喷某些人在无关视频下面瞎比at了。我疑心是在说前几天李氏那边搞的那个东西？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是蛮叹为观止的，皮套粉的极境了属于是
+
