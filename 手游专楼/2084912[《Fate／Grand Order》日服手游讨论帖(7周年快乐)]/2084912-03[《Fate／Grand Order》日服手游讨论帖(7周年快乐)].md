@@ -15131,3 +15131,68 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 
 只能说现在这个情况是符合岩上这些决策层的心意的
 
+
+
+*****
+
+####  阿提拉  
+##### 4352#       发表于 2023-1-18 17:02
+
+草，空降五星尼托
+
+*****
+
+####  Jamaisvu  
+##### 4353#       发表于 2023-1-18 17:03
+
+复仇尼托<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是专门杀回来锤ruler雨神的吗
+
+*****
+
+####  Jamaisvu  
+##### 4354#       发表于 2023-1-18 17:07
+
+ 本帖最后由 Jamaisvu 于 2023-1-18 17:08 编辑 
+
+新造型的表情有点像罪恶装备的拉姆啊，但是下半身什么鬼，不看脸还以为是WOW的虚灵商人...
+
+扔了几发十连发现是常驻...等歪吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4355#       发表于 2023-1-18 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然出新卡？ 咋回事
+
+*****
+
+####  仰望神的括约肌  
+##### 4356#       发表于 2023-1-18 17:08
+
+60石get!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202301/18/170801zlt7khk297fkp5hu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-01-18-17-06-25-73_13e7a6b10873871.jpg</strong> (546.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 17:08 上传
+
+*****
+
+####  miro112233  
+##### 4357#       发表于 2023-1-18 17:10
+
+空降前篇根本没出现的角色，这就是螺旋狗的防剧透吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 4358#       发表于 2023-1-18 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是常驻。。。。。
+
