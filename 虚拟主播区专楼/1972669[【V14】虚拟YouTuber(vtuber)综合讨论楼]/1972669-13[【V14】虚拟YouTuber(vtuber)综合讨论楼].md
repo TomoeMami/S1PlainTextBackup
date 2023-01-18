@@ -788,3 +788,15 @@ CR的king和nijisanji的king碰一块了
 
 2023-1-17 23:54 上传
 
+
+
+*****
+
+####  FCCHua  
+##### 18351#       发表于 2023-1-18 08:04
+
+ 本帖最后由 FCCHua 于 2023-1-18 08:07 编辑 
+
+楼上的图里有几个队长是不是弄反了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/ba004ccf59c7295dfc0aad1024872a98/CMP_20230118080713980.jpg" referrerpolicy="no-referrer">
+
