@@ -15596,3 +15596,23 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 算了，想想2.7其他那些，是我太苛刻了</blockquote>
 看看黑豹男脱下面具的样子！ 这尼托难道不值得吹爆吗！
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 4400#       发表于 2023-1-18 21:17
+
+三破这堆要素直接出戏到游戏王，还是还没开始打牌的前几卷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/e3359ae3f43a742ed82a8fdb8b38a252/CMP_20230118211736634.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/461c1ca5430c9776eac0ae604754591b/游戏王 - 第02卷 - 141.webp" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  onemoment  
+##### 4401#       发表于 2023-1-18 21:20
+
+1石0宝没出不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
