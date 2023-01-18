@@ -5238,3 +5238,18 @@ b站也有 ...</blockquote>
 刚通关完，据说面包店女孩的剧情会单独出dlc，不过竞技场会长的坑还没有填，感觉这与弥露为何能新章开始就 ...</blockquote>
 会长就是作者本人化身啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  christiny  
+##### 3438#       发表于 2023-1-19 07:09
+
+好多致敬其他游戏的地方。
+
+1,5章致敬恶魔城，副武器，还有牛头怪的素材斧头可以当道具扔出去。
+
+2，研究所的管道闸门包括音效，升降机。一眼就看出来是银河战士。
+
+3，终章斗技场最后一场叫幻想舞台，结合小女孩的造型，可以猜测是东方系列来的灵感。其实整个游戏都是以消弹为主，这也很东方。<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
