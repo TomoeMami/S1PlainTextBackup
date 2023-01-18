@@ -15443,3 +15443,22 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 所谓不出新卡防剧透就是产能低模组没做好而已
 
+
+
+*****
+
+####  alucardcz  
+##### 4384#       发表于 2023-1-18 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402402&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2023-1-18 17:49</a>
+
+这尼托满破攻击模组几乎一点动作都没的  除了瞬移就抬手（幅度最大的动作）仰头闭眼加各种特效排列组合 宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常驻而已（不是
+
+*****
+
+####  areklose  
+##### 4385#       发表于 2023-1-18 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">100发 抽不出。沉料了。完全不想氪
+
