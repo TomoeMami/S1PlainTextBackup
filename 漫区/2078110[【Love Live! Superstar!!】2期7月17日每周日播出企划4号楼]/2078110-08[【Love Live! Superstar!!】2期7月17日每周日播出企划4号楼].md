@@ -7635,3 +7635,12 @@ liella日记
 
 这太阳般的存在还在呢，可以删了挪给香音了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 11174#       发表于 2023-1-18 12:12
+
+看了下推有一个观点说，因为前奏里有秒针跳动的声音，所以不如说可能12人才是ユニゾン的完成版
+
