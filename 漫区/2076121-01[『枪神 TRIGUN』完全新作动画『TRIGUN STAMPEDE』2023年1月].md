@@ -2197,3 +2197,14 @@ ED挺好听的
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Mr1z  
+##### 206#       发表于 2023-1-18 19:28
+
+不是，这村里都什么人才啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

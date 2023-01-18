@@ -7901,3 +7901,35 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 这怎么看菜宝都是翻译位啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11196#       发表于 2023-1-18 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人选就是把角色人气top拉来吗？
+
+*****
+
+####  斉藤朱夏  
+##### 11197#       发表于 2023-1-18 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">救救我
+
+----发送自 [HUAWEI LIO-AN00,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nufawneafg  
+##### 11198#       发表于 2023-1-18 19:29
+
+泥潭戏服合格<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11199#       发表于 2023-1-18 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2年没看通风口这直播还是那么虚无
+
