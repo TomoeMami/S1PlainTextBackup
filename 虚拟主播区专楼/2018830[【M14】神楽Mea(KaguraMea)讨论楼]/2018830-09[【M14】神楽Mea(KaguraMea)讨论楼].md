@@ -1807,3 +1807,12 @@ jimmy老师画的</blockquote>
 
 比起b站，你麻把tc台忘得更久了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">好久没听过在tc台有一搭没一搭聊天的小麻了
 
+
+
+*****
+
+####  TiHaru  
+##### 13100#       发表于 2023-1-18 15:03
+
+有空间就没有tc了
+
