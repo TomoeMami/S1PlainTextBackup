@@ -7644,3 +7644,16 @@ liella日记
 
 看了下推有一个观点说，因为前奏里有秒针跳动的声音，所以不如说可能12人才是ユニゾン的完成版
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 11175#       发表于 2023-1-18 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59398385&amp;ptid=2078110" target="_blank">saya1892 发表于 2023-1-18 12:12</a>
+看了下推有一个观点说，因为前奏里有秒针跳动的声音，所以不如说可能12人才是ユニゾン的完成版
+
+ ...</blockquote>
+没注意过，好奇这歌的秒钟有响过几下，如何是十二下，那还算有点意思的，不然我觉得有点强行，咋不说是60人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
