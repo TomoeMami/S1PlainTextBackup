@@ -15346,3 +15346,49 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 
 大号公主罢了，伤害强点，没公主群充
 
+
+
+*****
+
+####  alucardcz  
+##### 4373#       发表于 2023-1-18 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401984&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2023-1-18 17:21</a>
+
+大号公主罢了，伤害强点，没公主群充</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不一定大号公主  回收寄的了话可能还不如公主  不过蓝红卡也没什么好比的
+
+*****
+
+####  qixinno2  
+##### 4374#       发表于 2023-1-18 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 歪了欧罗巴
+
+*****
+
+####  都谷捻柏  
+##### 4375#       发表于 2023-1-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401900&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-18 17:16</a>
+
+光看技能有一种要上天的感觉 什么水伊吹 渣渣（</blockquote>
+不如道满
+
+*****
+
+####  AbigailWilliams  
+##### 4376#       发表于 2023-1-18 17:28
+
+哪天绿卡能有这强度模组<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4377#       发表于 2023-1-18 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402091&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-1-18 17:28</a>
+
+哪天绿卡能有这强度模组</blockquote>
+YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
