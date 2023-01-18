@@ -42,3 +42,15 @@
 
 也不算在面对大量敌人，巨大敌人会严重卡死，去水都、湖边再加下雨也会不稳等情况
 
+
+
+*****
+
+####  cxasuka  
+##### 385#       发表于 2023-1-18 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401371&amp;ptid=1993889" target="_blank">2082082012 发表于 2023-1-18 16:36</a>
+
+这pc配置有点高啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3070 2k 30fps不能让瘟疫独领**么？
+

@@ -5174,3 +5174,20 @@ b站也有 ...</blockquote>
 
 新章是loop所以重来了一遍……
 
+
+
+*****
+
+####  牙狼GARO  
+##### 3433#       发表于 2023-1-18 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59392655&amp;ptid=2098044" target="_blank">hersi 发表于 2023-1-17 22:29</a>
+在修改器的帮助下终于通关了  
+
+话说这剧情是不是很多前面的伏笔没有收啊，比如两次初见红毛，红毛都 ...</blockquote>
+明云说大狗给他托梦，而且家族世代都有这种的，搞不好是沼泽的爷爷奶奶后代
+
+至于红毛，可能真的是起夜上厕所走丢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
