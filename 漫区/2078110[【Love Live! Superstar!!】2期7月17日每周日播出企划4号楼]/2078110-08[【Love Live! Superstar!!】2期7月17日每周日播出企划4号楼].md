@@ -7834,3 +7834,26 @@ vn不是初三吗？</blockquote>
 和snp斗舞的时候就高一了啊，第九集开口，当时没给解释相关讨论可是直接炸了（虽然我觉得给了解释也是差不 ...</blockquote>
 所以实际上二期是招了五个人（假设结那也是成员），那三期又来五人？
 
+
+
+*****
+
+####  ViyViy  
+##### 11190#       发表于 2023-1-18 18:15
+
+按贵企划路径依赖肯定只有两个了，再五个可以不用做那破逼动画了，回回都要花半程讲狗屁加人还要兼顾一年跨度的剧情，对目前的灵长类要求太高了。
+
+
+
+*****
+
+####  Kfly  
+##### 11191#       发表于 2023-1-18 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402479&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-18 17:56</a>
+
+所以实际上二期是招了五个人（假设结那也是成员），那三期又来五人？</blockquote>
+不敢想，第二季四个都炸了，哪敢再来五个啊（即使不是这个数都不指望第三季）
+
+比较常见的讨论不是再来三个人吗，正好十二人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

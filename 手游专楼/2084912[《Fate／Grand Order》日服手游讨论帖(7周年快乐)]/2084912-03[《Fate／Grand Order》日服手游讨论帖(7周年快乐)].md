@@ -15462,3 +15462,12 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">100发 抽不出。沉料了。完全不想氪
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 4386#       发表于 2023-1-18 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃…上线看了一下除了开了个池子别的没了？然后我下线了，看着卡面在考虑要不要丢几个石头试试……
+
