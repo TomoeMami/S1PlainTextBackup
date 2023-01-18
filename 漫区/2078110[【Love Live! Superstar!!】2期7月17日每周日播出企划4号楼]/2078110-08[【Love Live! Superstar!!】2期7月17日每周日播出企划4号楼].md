@@ -7802,3 +7802,24 @@ liella日记
 其实也没什么证据说肯定是12人吧，vn的生日有公开么？而且vn入队明明是算二年级结果还是三期生本身也挺奇怪 ...</blockquote>
 vn不是初三吗？
 
+
+
+*****
+
+####  Kfly  
+##### 11188#       发表于 2023-1-18 17:42
+
+ 本帖最后由 Kfly 于 2023-1-18 17:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401803&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-18 17:08</a>
+
+vn不是初三吗？</blockquote>
+和snp斗舞的时候就高一了啊，第九集开口，当时没给解释相关讨论可是直接炸了（虽然我觉得给了解释也是差不多的结果）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202301/18/175103g3b5idstmmn53tst.png" referrerpolicy="no-referrer">
+
+<strong>【星二期·11集】维恩升上高一.png</strong> (407.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 17:51 上传
+

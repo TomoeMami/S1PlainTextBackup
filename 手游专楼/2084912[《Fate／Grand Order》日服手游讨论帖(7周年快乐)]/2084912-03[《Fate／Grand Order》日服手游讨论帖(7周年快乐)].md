@@ -15420,3 +15420,26 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holyblood  
+##### 4381#       发表于 2023-1-18 17:49
+
+这卡面感觉有点像冥斗士，是我的错觉么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 4382#       发表于 2023-1-18 17:49
+
+这尼托满破攻击模组几乎一点动作都没的  除了瞬移就抬手（幅度最大的动作）仰头闭眼加各种特效排列组合 宝具动画也是换个角度杵在那<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzxa  
+##### 4383#       发表于 2023-1-18 17:51
+
+所谓不出新卡防剧透就是产能低模组没做好而已
+
