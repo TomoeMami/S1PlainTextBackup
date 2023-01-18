@@ -355,3 +355,28 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zeroboss  
+##### 2075#       发表于 2023-1-19 02:15
+
+<img src="https://img.saraba1st.com/forum/202301/19/021532k5959hphn69zcjj6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230119020940.jpg</strong> (232.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 02:15 上传
+
+<img src="https://img.saraba1st.com/forum/202301/19/021532t3cnjrl7l3xvddz7.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230119020944.jpg</strong> (93.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 02:15 上传
+
+太疯狂了
+
