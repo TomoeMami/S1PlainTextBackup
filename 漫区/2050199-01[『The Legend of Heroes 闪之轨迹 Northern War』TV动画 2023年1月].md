@@ -3718,3 +3718,14 @@ Tokyo MX版的提供：
 
 说起来北猎现在都解散了
 
+
+
+*****
+
+####  lil_is  
+##### 449#       发表于 2023-1-19 02:46
+
+去海都啊，帽子女主好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
