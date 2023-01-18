@@ -1082,3 +1082,12 @@ p3不止是爬塔，有些p升到一定等级会给稀有装备道具但是升�
 这太原汁原味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 atlus真的是懒狗啊
 
+
+
+*****
+
+####  猫不萌  
+##### 114#       发表于 2023-1-19 00:59
+
+p3p一点没改吗，和模拟器玩有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
