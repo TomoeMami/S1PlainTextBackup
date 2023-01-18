@@ -68,3 +68,20 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  eilot  
+##### 387#       发表于 2023-1-18 19:55
+
+ 本帖最后由 eilot 于 2023-1-18 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403720&amp;ptid=1993889" target="_blank">saber2054 发表于 2023-1-18 19:51</a>
+
+2018年2060都没出吧，你再想想？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+打漏了，是2018出的PC版，用现在的3060TI都成问题，严重优化缺陷问题
+
+官方跑分测出的分数和实际表现不符，2080可惜是2018年差不多年底才出，如果早些少出的话，规格表应该能写回吧...当时1060都说卡得要死，4K根本用不到，拖了一年后再补回DLSS才叫稍为正常
+

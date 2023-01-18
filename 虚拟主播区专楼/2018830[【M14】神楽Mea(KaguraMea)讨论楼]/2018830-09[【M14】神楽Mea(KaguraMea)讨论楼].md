@@ -1845,3 +1845,14 @@ jimmy老师画的</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  往世雷书  
+##### 13104#       发表于 2023-1-18 19:59
+
+阳了还有精力自闭？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
