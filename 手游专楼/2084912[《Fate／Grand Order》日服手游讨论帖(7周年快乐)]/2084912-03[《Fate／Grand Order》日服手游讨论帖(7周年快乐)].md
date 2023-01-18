@@ -15196,3 +15196,153 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是常驻。。。。。
 
+
+
+*****
+
+####  alucardcz  
+##### 4359#       发表于 2023-1-18 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蓝卡100自充光炮
+
+*****
+
+####  黑上シグマ  
+##### 4360#       发表于 2023-1-18 17:14
+
+常驻，蓝卡全体，复仇……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明今后抽池子看到金仇卡背不一定是狗子了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  areklose  
+##### 4361#       发表于 2023-1-18 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动就别指望妇科料。活动那点护肤石头都不想给你。只会出新卡。让你赶紧氪。
+
+*****
+
+####  alucardcz  
+##### 4362#       发表于 2023-1-18 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光看技能有一种要上天的感觉 什么水伊吹 渣渣（
+
+等一个评测 常驻那么强我不信
+
+*****
+
+####  里村紅葉  
+##### 4363#       发表于 2023-1-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401876&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-18 17:14</a>
+
+常驻，蓝卡全体，复仇……
+
+说明今后抽池子看到金仇卡背不一定是狗子了</blockquote>
+然后我就金仇卡背翻了个狗子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4364#       发表于 2023-1-18 17:16
+
+搬一下卡面和技能：
+
+<img src="https://img.saraba1st.com/forum/202301/18/171343x4gtum48tycz1mg4.jpg" referrerpolicy="no-referrer">
+
+<strong>4B367D1998E14BA7BD7921D0416B03B1.jpg</strong> (299.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 17:13 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/171345zp6jdcs8c81mnlll.jpg" referrerpolicy="no-referrer">
+
+<strong>5DF5C3904FE5791B2B9FBC8A395F4DA6.jpg</strong> (551.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 17:13 上传
+
+感觉不特攻的话比水伽摩强吧？蓝卡50，100自充，宝具还有前置OC...
+
+*****
+
+####  alucardcz  
+##### 4365#       发表于 2023-1-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401904&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-18 17:16</a>
+
+搬一下卡面和技能：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这技能组直接爆炸好吗（
+
+现在就看会在什么地方下毒了
+
+*****
+
+####  areklose  
+##### 4366#       发表于 2023-1-18 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401915&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-18 17:17</a>
+
+这技能组直接爆炸好吗（
+
+现在就看会在什么地方下毒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">即死啊
+
+*****
+
+####  黑上シグマ  
+##### 4367#       发表于 2023-1-18 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而我迦摩3宝，没尼托什么事
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 4368#       发表于 2023-1-18 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401939&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-18 17:18</a>
+
+即死啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 你不看解包的吗 这可是高贵的后置即死
+
+*****
+
+####  khxooo  
+##### 4369#       发表于 2023-1-18 17:20
+
+还是常驻的草，没想到今年第一个常驻就这么出来了
+
+*****
+
+####  alucardcz  
+##### 4370#       发表于 2023-1-18 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先奶一口回收gg  不然这卡要撕了很多很多卡了
+
+*****
+
+####  Jamaisvu  
+##### 4371#       发表于 2023-1-18 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59401915&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-18 17:17</a>
+
+这技能组直接爆炸好吗（
+
+现在就看会在什么地方下毒了</blockquote>
+有三回合散装蓝卡up的角色一般回收不会太好，比如枪龙马和马琴...但这个100自充太夸张了，极大地提高了下限...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是抱紧我的水伽摩等等限定五星吧...这种时候出常驻强卡可能有骗石头的嫌疑<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 4372#       发表于 2023-1-18 17:21
+
+大号公主罢了，伤害强点，没公主群充
+
