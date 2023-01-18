@@ -15117,3 +15117,17 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 没 事 发 生</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要急！明天也是今天（错乱
 
+
+
+*****
+
+####  UNISONIA  
+##### 4351#       发表于 2023-1-18 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59387690&amp;ptid=2084912" target="_blank">eilot 发表于 2023-1-17 17:09</a>
+
+明明是一隻金蛋但由得他生草，不搞真正意义的活动、復刻也不搞是不想加入角色代币这个新系统吧，金闪闪祭这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面说了叶良树算是奉旨卧底啊，当然实际上他实权也不大就是了（相比盐川）
+
+只能说现在这个情况是符合岩上这些决策层的心意的
+
