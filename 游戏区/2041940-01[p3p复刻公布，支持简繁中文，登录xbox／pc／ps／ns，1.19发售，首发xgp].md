@@ -1091,3 +1091,24 @@ atlus真的是懒狗啊
 
 p3p一点没改吗，和模拟器玩有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  翼宿一  
+##### 115#       发表于 2023-1-19 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407448&amp;ptid=2041940" target="_blank">猫不萌 发表于 2023-1-19 00:59</a>
+p3p一点没改吗，和模拟器玩有啥区别</blockquote>
+简单总结新版卖点就这些：首次官中；2D 资源有升级（主要是贴图，其他的 UI 之类看上去都是算法直接放大）；新增回忆社群对话功能；可以一周目选任意难度；即时存档（中断存档，只能读取一次）。
+要和模拟器比的话我认为是不如模拟器的，像是变速、即时 SL 这些都没有。要补 P3 不如等 P3F 汉化做完了再补，给这个送钱实在没必要。
+
+*****
+
+####  a2276382  
+##### 116#       发表于 2023-1-19 01:18
+
+话说这次的p4跟之前steam的p4 有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
