@@ -3625,3 +3625,24 @@ Tokyo MX版的提供：
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  roxas.sora  
+##### 445#       发表于 2023-1-18 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59378043&amp;ptid=2050199" target="_blank">Renes 发表于 2023-1-16 22:34</a>
+
+帝国贵族派和平民派现在什么样，很简单，看托尔兹就一目了然了。
+
+黎老师刚入学的时候，很多描写都告诉你， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要小看地精科技啊，万一能生呢！
+
+*****
+
+####  Aeons  
+##### 446#       发表于 2023-1-18 14:47
+
+好像要去海都
+
