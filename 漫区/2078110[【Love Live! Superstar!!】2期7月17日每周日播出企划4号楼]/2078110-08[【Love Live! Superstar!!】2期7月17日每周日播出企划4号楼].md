@@ -7961,3 +7961,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 还有谁没有和鲤鱼姐一起拍抖音来着？
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 11202#       发表于 2023-1-18 22:13
+
+星3的BOSS可以把桑尼趴叫回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+或者说桑尼趴也加人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+如果运营选择不当人，就是桑尼趴前辈毕业，后辈继承名号来打团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
