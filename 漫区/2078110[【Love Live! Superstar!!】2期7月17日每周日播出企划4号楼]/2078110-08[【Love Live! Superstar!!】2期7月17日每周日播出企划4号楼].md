@@ -7990,3 +7990,15 @@ FmwcP6UaAAEJLoe.jpg
 
 <img src="https://img.saraba1st.com/forum/202301/18/231803ysggvwkgus79r1v9.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 11204#       发表于 2023-1-18 23:57
+
+ 本帖最后由 nufawneafg 于 2023-1-18 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59406223&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-18 23:18</a>
+原神也带不动pay这个游戏黑洞</blockquote>
+虽然但是原来真的有人在用mbp13 2020(重点错)
+

@@ -1072,3 +1072,13 @@ p3不止是爬塔，有些p升到一定等级会给稀有装备道具但是升�
 
 p3不止是爬塔，有些p升到一定等级会给稀有装备道具但是升级都没捷径只能刷怪硬练，非常痛苦
 
+
+
+*****
+
+####  星野航  
+##### 113#       发表于 2023-1-18 23:58
+
+这太原汁原味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+atlus真的是懒狗啊
+
