@@ -54,3 +54,17 @@
 这pc配置有点高啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3070 2k 30fps不能让瘟疫独领**么？
 
+
+
+*****
+
+####  saber2054  
+##### 386#       发表于 2023-1-18 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403458&amp;ptid=1993889" target="_blank">eilot 发表于 2023-01-18 19:27:02</a>
+算是吸收教训，能启动游戏不代表能正常玩到，
+
+当初FF15的最低写的也不高，在2018年用3060都是特效全关下 ...</blockquote>2018年2060都没出吧，你再想想？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
