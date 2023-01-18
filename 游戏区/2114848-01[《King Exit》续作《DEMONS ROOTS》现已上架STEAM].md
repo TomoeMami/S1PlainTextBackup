@@ -756,3 +756,12 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧情向jrpg只能指望同人游戏了吗
 
+
+
+*****
+
+####  LMBS  
+##### 62#       发表于 2023-1-18 21:35
+
+这游戏steamdeck玩怎么这么卡
+
