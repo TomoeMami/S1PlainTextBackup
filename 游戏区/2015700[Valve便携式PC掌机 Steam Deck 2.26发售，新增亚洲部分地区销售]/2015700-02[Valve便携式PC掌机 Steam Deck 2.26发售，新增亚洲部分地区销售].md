@@ -380,3 +380,14 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 太疯狂了
 
+
+
+*****
+
+####  脸宽  
+##### 2076#       发表于 2023-1-19 03:20
+
+我触摸板左右震感不一样左边好强，感觉像连点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
