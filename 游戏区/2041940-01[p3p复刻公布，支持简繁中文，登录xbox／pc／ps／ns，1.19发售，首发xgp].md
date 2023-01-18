@@ -1163,3 +1163,12 @@ Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新�
 靠，就是高清贴图的模拟器套壳，画面还不如玩家自制的ai插值psp高清纹理补丁
 [https://bbs.saraba1st.com/2b/thread-2115579-1-1.html](https://bbs.saraba1st.com/2b/thread-2115579-1-1.html)
 
+
+
+*****
+
+####  tureleona  
+##### 121#       发表于 2023-1-19 03:52
+
+睡不着，就想着进游戏看看，然后XGP显示操作过早<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
