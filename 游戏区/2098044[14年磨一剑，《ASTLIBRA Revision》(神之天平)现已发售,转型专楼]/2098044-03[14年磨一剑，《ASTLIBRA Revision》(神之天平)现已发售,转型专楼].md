@@ -5119,3 +5119,16 @@ b站也有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tansapple  
+##### 3429#       发表于 2023-1-18 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59396314&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-18 09:22</a>
+问个低级问题：刚入坑，有时候平a前面那个透明方块是什么意思？
+
+—— 来自 S1Fun ...</blockquote>
+连击数加成buff的动画效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
