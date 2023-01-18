@@ -391,3 +391,12 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  isa2456  
+##### 2077#       发表于 2023-1-19 06:09
+
+想问下之前说更新系统换了根目录名字导致模拟器还是双系统失效这个v社还是emudeck有修复了吗？一直没有更新系统就是这个原因<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
