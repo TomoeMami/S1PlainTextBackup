@@ -306,3 +306,14 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
  你应该是搞了-70的多多支付， 感觉2800左右是极限了，除非后续港版大面积铺货，还能再降 ...</blockquote>
 今天pdd 2599了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Onelooker  
+##### 2071#       发表于 2023-1-18 23:03
+
+夕夕发力了
+
+问下deck或者其他windows掌机有类似geforce experience这种稳定录屏的方式吗
+
