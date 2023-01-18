@@ -7657,3 +7657,25 @@ liella日记
  ...</blockquote>
 没注意过，好奇这歌的秒钟有响过几下，如何是十二下，那还算有点意思的，不然我觉得有点强行，咋不说是60人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 11176#       发表于 2023-1-18 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59398625&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2023-1-18 12:33</a>
+没注意过，好奇这歌的秒钟有响过几下，如何是十二下，那还算有点意思的，不然我觉得有点强行，咋不说是60 ...</blockquote>
+60人草，欢乐多
+
+*****
+
+####  ruffian  
+##### 11177#       发表于 2023-1-18 12:39
+
+人物介绍照搬的官网吧。
+
+所以说也别说什么前三集才是意外的阴谋论了……前三集五个人的人设跟官网的介绍以及杂志广播剧等等的预热基本一致的，明明就是后来剧情失控了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
