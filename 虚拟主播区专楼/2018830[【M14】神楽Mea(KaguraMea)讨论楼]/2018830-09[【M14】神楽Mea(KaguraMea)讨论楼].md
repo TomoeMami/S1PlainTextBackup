@@ -1834,3 +1834,14 @@ jimmy老师画的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pei23333  
+##### 13103#       发表于 2023-1-18 19:14
+
+别是什么发现阳了自闭了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
