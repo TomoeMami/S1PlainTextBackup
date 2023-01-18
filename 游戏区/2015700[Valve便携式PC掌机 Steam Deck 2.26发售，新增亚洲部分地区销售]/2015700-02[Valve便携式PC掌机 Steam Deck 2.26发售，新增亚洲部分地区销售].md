@@ -282,3 +282,16 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 —— 来自 S1Fun ...</blockquote>
 话说的太满了，群里问了几个问题都没人知道的，按理说莎木12也不算太冷门啊
 
+
+
+*****
+
+####  zris  
+##### 2069#       发表于 2023-1-18 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59404368&amp;ptid=2015700" target="_blank">blueelf 发表于 2023-1-18 20:45</a>
+话说的太满了，群里问了几个问题都没人知道的，按理说莎木12也不算太冷门啊 ...</blockquote>
+莎木1和2 能玩啊，我之前测试过。你问啥了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
