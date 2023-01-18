@@ -5216,3 +5216,14 @@ b站也有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  valand  
+##### 3436#       发表于 2023-1-19 05:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59407686&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-19 01:43</a>
+再问个低级问题……为啥我现在连击数下面不显示buff了？我记得拿树枝平a数上去了都有buff，换武器反而没 ...</blockquote>
+打开菜单，嘉隆那边重新选一下
+
