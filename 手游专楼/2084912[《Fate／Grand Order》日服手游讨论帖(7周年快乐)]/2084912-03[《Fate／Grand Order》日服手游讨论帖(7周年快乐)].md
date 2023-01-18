@@ -15636,3 +15636,22 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 （贞德：对老同志差别对待是吧？）
 
+
+
+*****
+
+####  khxooo  
+##### 4404#       发表于 2023-1-19 00:17
+
+所以，连仇阶都有了常驻光炮，就剩下裁阶和杀阶没有常驻光炮了，裁阶可以理解，杀阶就真的是理解不能了。
+
+*****
+
+####  黑上シグマ  
+##### 4405#       发表于 2023-1-19 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59406978&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-19 00:17</a>
+
+所以，连仇阶都有了常驻光&amp;#x7 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀阶还背着0.9倍debuff，就是单方面歧视
+
