@@ -1153,3 +1153,13 @@ https://bbs.saraba1st.com/2b/thread-2110240-1-1.html 仅供参考，微软版和
 Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新版加的东西会通过更新给 Steam 版也加上，所以实质上没有差别。
 通常来说不是加新剧情应该没人会重打吧，这俩掌机冷饭都是没新内容的，连 HD 化都不算。
 
+
+
+*****
+
+####  JudgmentEye  
+##### 120#       发表于 2023-1-19 03:19
+
+靠，就是高清贴图的模拟器套壳，画面还不如玩家自制的ai插值psp高清纹理补丁
+[https://bbs.saraba1st.com/2b/thread-2115579-1-1.html](https://bbs.saraba1st.com/2b/thread-2115579-1-1.html)
+
