@@ -3646,3 +3646,66 @@ Tokyo MX版的提供：
 
 好像要去海都
 
+
+
+*****
+
+####  evangelina  
+##### 447#       发表于 2023-1-18 14:59
+
+ 本帖最后由 evangelina 于 2023-1-18 15:01 编辑 
+
+<img src="https://img.saraba1st.com/forum/202301/18/145948ymrmjef5hw4nmwa1.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (120.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/145954jdg0r9eeumehbg30.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (73.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/145955aqffq8efnx288gnc.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (84.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/145955j224px29gem2zmux.jpg" referrerpolicy="no-referrer">
+
+<strong>006.jpg</strong> (105.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/145956furcmb9zhhmu19ts.jpg" referrerpolicy="no-referrer">
+
+<strong>007.jpg</strong> (115.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202301/18/145956ecnnx3rtctciec9c.jpg" referrerpolicy="no-referrer">
+
+<strong>008.jpg</strong> (87.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-18 14:59 上传
+
+【第3话】闇に覆われた绀碧への招待
+
+「帝国の英雄」についての情报を得るため、エレボニア帝国への内侦调査を命じられたラヴィたち４人は、帝国西部ラマール州・オルディスにいた。最初の命令である祝贺パーティへの潜入から早々に离脱したラヴィと、彼女を追うタリオンは、オルディスで帝国の繁栄を目の当たりにする。
+
+そんな矢先、港湾の仓库に不审な人影が集まっているのを目撃する。
+

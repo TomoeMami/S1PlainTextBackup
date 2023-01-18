@@ -7755,3 +7755,28 @@ liella日记
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传播理论里面，重复是一个重要说服技巧，无论故意过失反正它是这么做了
 
+
+
+*****
+
+####  ads147147  
+##### 11184#       发表于 2023-1-18 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59398222&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-18 11:59</a>
+肯定都是模板换色搞批量，问题是一副欠设计师钱被报复的模样到底是淦三小。
+
+这太阳般的存在还在呢，可以删 ...</blockquote>
+可可是太阳，但是没说香音是地球啊，大香老师明明是银河系（民警：！）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 11185#       发表于 2023-1-18 14:58
+
+其实也没什么证据说肯定是12人吧，vn的生日有公开么？而且vn入队明明是算二年级结果还是三期生本身也挺奇怪的，总不会强行留一年当一年级？
+反正这破片子后面的剧情逻辑充斥着混乱，当初给二期生有伏笔连op气球那么扯淡的东西也说算暗示证据。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
