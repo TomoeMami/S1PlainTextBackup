@@ -344,3 +344,14 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 问下deck或者其他windows掌机有类似geforce experience这种稳定录屏的方式吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">去Steam Deck社区报Bug的时候顺道看了下Feature Request里第一的就是这个。
 
+
+
+*****
+
+####  脸宽  
+##### 2074#       发表于 2023-1-19 01:43
+
+爽是真的爽，我steam上买了太多独立游戏了，把ns的sd卡插到sd上直接用。玩了一个小时左右，手有点麻。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

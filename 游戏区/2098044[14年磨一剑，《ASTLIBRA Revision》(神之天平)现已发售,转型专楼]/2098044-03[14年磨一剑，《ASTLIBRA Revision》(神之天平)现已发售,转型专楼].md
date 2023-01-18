@@ -5202,3 +5202,17 @@ b站也有 ...</blockquote>
 
 能在新章开始就记得之前记忆的NPC里黑是神器驱魔琴的主人，宰相是远古时期某个种族后裔都可以解
 
+
+
+*****
+
+####  又花了五块钱  
+##### 3435#       发表于 2023-1-19 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59396760&amp;ptid=2098044" target="_blank">tansapple 发表于 2023-1-18 10:00</a>
+就是游戏画面上连击数累计到一定数量之后，在连击数下面显示的各种加成，包括减伤、攻击范围、金币加成等 ...</blockquote>
+再问个低级问题……为啥我现在连击数下面不显示buff了？我记得拿树枝平a数上去了都有buff，换武器反而没了
+这种古早味的rpg，好像确实不太适合我这被罐头喂坏了的懒人玩家<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
