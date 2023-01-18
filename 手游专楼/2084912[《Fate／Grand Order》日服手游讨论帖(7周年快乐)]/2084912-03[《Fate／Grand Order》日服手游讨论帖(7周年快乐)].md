@@ -15392,3 +15392,31 @@ FGO关服前怕不是一张满破的素材掉落礼装都凑不齐，白白占�
 哪天绿卡能有这强度模组</blockquote>
 YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4378#       发表于 2023-1-18 17:36
+
+尼托细想一下挺一般的，能不能比过仇凛水迦摩都是问题，更别想和水伊吹比了
+
+只能说是符合常驻身份的强度
+
+*****
+
+####  exiaexa  
+##### 4379#       发表于 2023-1-18 17:37
+
+尼托套个阿努比斯都能双ex，拉二你什么时候降神一个拉来重铸古埃及荣光
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 4380#       发表于 2023-1-18 17:37
+
+常驻？淦
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
