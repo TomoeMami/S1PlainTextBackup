@@ -5227,3 +5227,14 @@ b站也有 ...</blockquote>
 再问个低级问题……为啥我现在连击数下面不显示buff了？我记得拿树枝平a数上去了都有buff，换武器反而没 ...</blockquote>
 打开菜单，嘉隆那边重新选一下
 
+
+
+*****
+
+####  765PRO  
+##### 3437#       发表于 2023-1-19 06:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403926&amp;ptid=2098044" target="_blank">谁介意 发表于 2023-1-18 20:08</a>
+刚通关完，据说面包店女孩的剧情会单独出dlc，不过竞技场会长的坑还没有填，感觉这与弥露为何能新章开始就 ...</blockquote>
+会长就是作者本人化身啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
