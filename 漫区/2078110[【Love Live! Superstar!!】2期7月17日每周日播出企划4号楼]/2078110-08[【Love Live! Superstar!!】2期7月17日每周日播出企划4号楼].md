@@ -7705,3 +7705,15 @@ liella日记
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 11180#       发表于 2023-1-18 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59398886&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-18 12:59</a>
+
+客观上确实是这样，但主观上肯定是后来犯了啥大病，跟我说前三集的她们都是假的后来的才是真的也怪侮辱人的 ...</blockquote>
+一般的理解不应该是前三集是真的三集后都是假的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
