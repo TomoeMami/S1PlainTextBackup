@@ -15515,3 +15515,22 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">0石0呼符没出货
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 4392#       发表于 2023-1-18 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402845&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-18 18:26</a>
+
+钻多可抽 反正是常驻（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常驻也难歪啊，不过石头不到半井，还是留着看泳装有没水摩根吧
+
+*****
+
+####  eilot  
+##### 4393#       发表于 2023-1-18 18:49
+
+四星尼托没有顺便追加新幕间或强化...
+
