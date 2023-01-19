@@ -2243,3 +2243,12 @@ ED挺好听的
 
 —— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  uponutopia  
+##### 210#       发表于 2023-1-19 22:58
+
+技术很好，歌不错，受不了这种早古日痴弱智桥段，演出也很反常识，已弃
+
