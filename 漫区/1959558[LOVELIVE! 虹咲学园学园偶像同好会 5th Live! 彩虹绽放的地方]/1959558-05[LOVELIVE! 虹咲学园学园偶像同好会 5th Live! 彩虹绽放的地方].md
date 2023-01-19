@@ -1601,3 +1601,22 @@ A7FE8938-C4AB-4129-B034-A6C13B502B60.jpeg
 
 7.        にじたびTOKIMEKI FAN MEETING TOUR 举办日期以及场贩（见下图）<img src="https://p.sda1.dev/9/d588c7c04116f87672d7bc08f69e82e7/CMP_20230119213931122.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  川陀  
+##### 6921#       发表于 2023-1-19 21:56
+
+FMTlogo上的大巴，就是永远的一瞬封面上面那一辆吧
+
+<img src="https://img.saraba1st.com/forum/202301/19/215627nfyiigf5miykikce.jpg" referrerpolicy="no-referrer">
+
+<strong>26ba362b-2fce-42d9-a1f6-4a4523510841.jpg</strong> (317.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 21:56 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
