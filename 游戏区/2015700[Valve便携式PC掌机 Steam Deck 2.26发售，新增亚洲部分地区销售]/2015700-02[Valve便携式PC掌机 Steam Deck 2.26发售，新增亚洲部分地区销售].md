@@ -519,3 +519,12 @@ SD的震动是触摸板在震动，你把那个调大就有了
 
 虽然还是图一乐
 
+
+
+*****
+
+####  Sayuki1025  
+##### 2088#       发表于 2023-1-19 16:01
+
+电源按键附近外壳按起来有响声<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
