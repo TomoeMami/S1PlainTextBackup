@@ -15695,3 +15695,15 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 
 就原的非热点新角色的榜上排名情况，和弹珠已经开了4天的下降量来看，推移的绝对值不会多乐观的
 
+
+
+*****
+
+####  poor  
+##### 4409#       发表于 2023-1-19 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402420&amp;ptid=2084912" target="_blank">rzxa 发表于 2023-1-18 17:51</a>
+
+所谓不出新卡防剧透就是产能低模组没做好而已</blockquote>
+也不一定，现在出立绘的几个除了雨神感觉怎么出也有点猜不透，也有可能整个大的，4个卡面4个人（或者3个人）画，每个都是不同形态，这样的话还是需要防下剧透的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
