@@ -8133,3 +8133,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 歌单
 
+
+
+*****
+
+####  player3960  
+##### 11217#       发表于 2023-1-19 18:10
+
+不可思议巧克力之夜，有点期待成品啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
