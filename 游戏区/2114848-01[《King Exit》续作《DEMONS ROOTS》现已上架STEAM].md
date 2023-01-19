@@ -795,3 +795,14 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 主要是shade的7首曲子，以及里面还有个特典，教会岛的咖啡馆，可以在咖啡馆里一边听BGM不同的BGM会有不同的NPC来点谈话小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能看到和伙伴安静的坐在一起闲聊喝咖啡，连前作的哪位也来了。
 
+
+
+*****
+
+####  tand177  
+##### 64#       发表于 2023-1-19 13:31
+
+安洁的背叛是不能原谅的，剧情里就那么一笔带过很隔应
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
