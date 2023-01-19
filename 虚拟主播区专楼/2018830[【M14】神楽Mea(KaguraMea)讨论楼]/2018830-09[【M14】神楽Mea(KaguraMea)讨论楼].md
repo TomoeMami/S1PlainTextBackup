@@ -2043,3 +2043,20 @@ y1s1，算上舞元是三代目了
 
 舞元不算，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13126#       发表于 2023-1-19 20:21
+
+才发现啊，情侣服，虽然配色符合个人，但是黄搭白和水蓝我梦回高中校服……
+
+<img src="https://img.saraba1st.com/forum/202301/19/202019ja48fanyc487c4fc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-19 20:20 上传
+
