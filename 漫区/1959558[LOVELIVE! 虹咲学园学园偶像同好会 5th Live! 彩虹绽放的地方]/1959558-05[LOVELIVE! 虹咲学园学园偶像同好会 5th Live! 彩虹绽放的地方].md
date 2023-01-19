@@ -1579,3 +1579,25 @@ A7FE8938-C4AB-4129-B034-A6C13B502B60.jpeg
 
 长一米<img src="https://p.sda1.dev/9/f45eec5480aa00bdcc9d6b8eb838d071/CMP_20230118112629734.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6920#       发表于 2023-1-19 21:40
+
+今天1月19日R3后夜祭生放中公布的消息如下： 
+1.        12月月中投票结果：拉面店岚珠 咖喱店彼方
+
+2.        1月投票内容：游戏编程员和游戏设计者
+
+3.        AS情报：虹四格放送纪念活动 主题曲わちゅごなどう—上线
+
+4.        虹四格op单曲情报/虹四格BD情报/小组live门票情报（见下图）
+
+5.        5thBD将于3月22日发售
+
+6..        四小组场刊UNIT LIVE!2023 COMPLETE BOOK制作决定
+
+7.        にじたびTOKIMEKI FAN MEETING TOUR 举办日期以及场贩（见下图）<img src="https://p.sda1.dev/9/d588c7c04116f87672d7bc08f69e82e7/CMP_20230119213931122.jpg" referrerpolicy="no-referrer">
+
