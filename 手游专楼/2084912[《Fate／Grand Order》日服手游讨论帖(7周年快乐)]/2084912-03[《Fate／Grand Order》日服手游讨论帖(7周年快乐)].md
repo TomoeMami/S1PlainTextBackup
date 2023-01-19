@@ -15667,3 +15667,15 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 月球母猪直接送日服登顶了...............一个尼托突袭就嗷嗷叫去冲了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明猪确实无论丢啥过去都会拼命啃
 
+
+
+*****
+
+####  roxas.sora  
+##### 4407#       发表于 2023-1-19 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408995&amp;ptid=2084912" target="_blank">yzj134100 发表于 2023-1-19 09:39</a>
+
+说明猪确实无论丢啥过去都会拼命啃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然尼托这卡面算你月顶级水平了，构图上色都好看，冲也不是不理解，不过2.7.2出场的话就有点降维打击的意思，毕竟2.7卡面整体质量非常低
+
