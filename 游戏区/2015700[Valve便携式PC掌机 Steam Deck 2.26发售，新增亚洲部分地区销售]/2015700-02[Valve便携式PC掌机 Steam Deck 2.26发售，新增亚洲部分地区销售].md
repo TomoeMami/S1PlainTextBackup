@@ -455,3 +455,27 @@ pdd的都靠谱吗？很心动啊。。。
 
 没了就没了，我再等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  李喜睡  
+##### 2083#       发表于 2023-1-19 09:27
+
+64g换1t的3999价位值吗
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  脸宽  
+##### 2084#       发表于 2023-1-19 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408878&amp;ptid=2015700" target="_blank">李喜睡 发表于 2023-1-19 09:27</a>
+64g换1t的3999价位值吗
+
+—— 来自 samsung SM-G9550, Android 9上的 S1Next-鹅版 v2.5.3</blockquote>
+不值，换的都是sn740。五六百1t。自己买来换一起三千出头
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
