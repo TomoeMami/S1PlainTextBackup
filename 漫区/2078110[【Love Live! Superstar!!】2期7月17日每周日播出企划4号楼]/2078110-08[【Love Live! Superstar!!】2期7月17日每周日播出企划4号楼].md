@@ -8098,3 +8098,12 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别问，问就是媚中
 
+
+
+*****
+
+####  ads147147  
+##### 11214#       发表于 2023-1-19 16:32
+
+外包不是不行，问题是这种代工，代理什么的也挺麻烦的。最近暴雪的破事搞得人也挺难受的
+
