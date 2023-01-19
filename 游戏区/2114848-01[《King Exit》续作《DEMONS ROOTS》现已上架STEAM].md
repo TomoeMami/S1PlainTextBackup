@@ -806,3 +806,18 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  子夜微雪  
+##### 65#       发表于 2023-1-19 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59411261&amp;ptid=2114848" target="_blank">tand177 发表于 2023-1-19 13:31</a>
+安洁的背叛是不能原谅的，剧情里就那么一笔带过很隔应
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+不是专门给你做了一个不原谅的结局嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -8060,3 +8060,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 —— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  stygian  
+##### 11210#       发表于 2023-1-19 13:32
+
+以前水搞国别イメージガール投票时候曜是中国担当
+
+拉板一堆人猜sif2不会是找的中国公司来开发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
