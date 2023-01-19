@@ -5253,3 +5253,17 @@ b站也有 ...</blockquote>
 
 3，终章斗技场最后一场叫幻想舞台，结合小女孩的造型，可以猜测是东方系列来的灵感。其实整个游戏都是以消弹为主，这也很东方。<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  缤纷如落絮  
+##### 3439#       发表于 2023-1-19 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59392655&amp;ptid=2098044" target="_blank">hersi 发表于 2023-1-17 22:29</a>
+
+在修改器的帮助下终于通关了  
+
+话说这剧情是不是很多前面的伏笔没有收啊，比如两次初见红毛，红毛都 ...</blockquote>
+初章那就是在闹鬼啊，不是红毛消失，是鬼魂把主角拉入到了灵异现象
+
