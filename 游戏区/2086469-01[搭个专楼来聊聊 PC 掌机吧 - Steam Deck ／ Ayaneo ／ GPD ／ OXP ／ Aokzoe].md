@@ -157,3 +157,14 @@ slide和next2还有那个kun都是7系，而且说不会是zen3+的马甲U，现
 说独显了，但是也得是7系吧，等它出的时候还上6系不得被喷死。那个kun，我咋感觉按照鲲双形态和大的神话 ...</blockquote>
 那不就oxp2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jojohunter  
+##### 633#       发表于 2023-1-20 07:42
+
+这里搭车问一下6800u掌机要不要上32g内存，我玩老滚整合包的……
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
