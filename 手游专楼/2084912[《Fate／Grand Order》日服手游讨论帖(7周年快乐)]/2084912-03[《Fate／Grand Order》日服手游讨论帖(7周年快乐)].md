@@ -15765,3 +15765,28 @@ WYS哥哥行行好，让烟雾镜毫无强度美可以吗
 蝙蝠侠做好没有，272就靠雨神撑流水么，烟雾镜和黑豹卡面不行啊</blockquote>
 再来多次上下编和载冠式吧，那连情人节都可以不用做，草多一个月
 
+
+
+*****
+
+####  swordreader  
+##### 4415#       发表于 2023-1-20 00:46
+
+<img src="https://img.saraba1st.com/forum/202301/20/004447gsho4k1kolh1hoq7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230120004436.png</strong> (21.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-20 00:44 上传
+
+<img src="https://img.saraba1st.com/forum/202301/20/004448o43z07z272ykm33m.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230120004439.png</strong> (54.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-20 00:44 上传
+
+尼托alter二破这个造型是不是涉嫌抄袭装甲饿鬼村正里的二世村正，就多俩兔耳朵
+
