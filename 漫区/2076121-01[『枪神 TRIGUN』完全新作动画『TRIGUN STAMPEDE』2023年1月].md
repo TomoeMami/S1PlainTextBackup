@@ -2230,3 +2230,16 @@ ED挺好听的
 
 这片子都二十年前的了，居然没看过旧作？
 
+
+
+*****
+
+####  赛U灵  
+##### 209#       发表于 2023-1-19 22:48
+
+把老动画两口气补完，好好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+虽然找的版本字幕有些烂看的有点糟心，平均一集里会出现两三处直接影响剧情理解的错译<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+法修·史丹比特保守来讲也成为我acg喜爱角色前二十了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">有空把漫画也补了
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
