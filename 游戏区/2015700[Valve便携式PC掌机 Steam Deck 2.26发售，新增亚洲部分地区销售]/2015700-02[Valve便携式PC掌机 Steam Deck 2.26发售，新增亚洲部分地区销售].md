@@ -425,3 +425,14 @@ pdd的都靠谱吗？很心动啊。。。
 虽然买来也不知道玩啥</blockquote>
 百亿补贴的靠谱，其他的基本看概率吧
 
+
+
+*****
+
+####  shinnfin  
+##### 2080#       发表于 2023-1-19 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408288&amp;ptid=2015700" target="_blank">芷雅居 发表于 2023-1-19 07:58</a>
+百亿补贴的靠谱，其他的基本看概率吧</blockquote>
+<img src="https://p.sda1.dev/9/cb41b4c26277cf3071c82ad8389cafe6/4f43c3071662695e.jpg" referrerpolicy="no-referrer">
+
