@@ -821,3 +821,15 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tand177  
+##### 66#       发表于 2023-1-19 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59411305&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-01-19 13:35:10</a>
+不是专门给你做了一个不原谅的结局嘛</blockquote>我第一次没多想就点了be，结果你是个结局也没让我手刃叛徒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -528,3 +528,16 @@ SD的震动是触摸板在震动，你把那个调大就有了
 
 电源按键附近外壳按起来有响声<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Motoko-9  
+##### 2089#       发表于 2023-1-19 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59412503&amp;ptid=2015700" target="_blank">硫黄 发表于 2023-1-19 15:24</a>
+SD的震动是触摸板在震动，你把那个调大就有了
+
+虽然还是图一乐</blockquote>
+居然没有握把马达<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

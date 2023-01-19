@@ -8089,3 +8089,12 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 能让盛趣做可以偷笑了，虽然它的命运歌姬和宝石幻想质量算不上顶级，但爆鲨as sif绰绰有余的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 11213#       发表于 2023-1-19 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别问，问就是媚中
+
