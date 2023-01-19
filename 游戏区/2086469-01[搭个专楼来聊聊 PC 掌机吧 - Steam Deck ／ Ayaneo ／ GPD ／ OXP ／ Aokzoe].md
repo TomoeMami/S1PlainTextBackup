@@ -115,3 +115,22 @@ air pro感觉被背刺了，主要是出的时候5系就落后了，尤其是6�
 这几个产品线最高6800u，像slide还处于ppt状态，到时出了又要被下半年7系秒了 ...</blockquote>
 slide和next2还有那个kun都是7系，而且说不会是zen3+的马甲U，现在7系低压U还没发布，标压的zen4是第一季度末上市，所以你看这几个上市时间也到下半年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  恋妖壶  
+##### 629#       发表于 2023-1-19 09:40
+
+一直不懂，尾巴不觉得自己产品线太多了吗？到最后哪个都被人记不住
+
+*****
+
+####  医生狼多  
+##### 630#       发表于 2023-1-19 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408734&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2023-1-19 09:11</a>
+slide和next2还有那个kun都是7系，而且说不会是zen3+的马甲U，现在7系低压U还没发布，标压的zen4是第一季 ...</blockquote>
+对哦，我都忘了slide ppt半年到现在都变成7系了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过next2不是说了独显吗？
+

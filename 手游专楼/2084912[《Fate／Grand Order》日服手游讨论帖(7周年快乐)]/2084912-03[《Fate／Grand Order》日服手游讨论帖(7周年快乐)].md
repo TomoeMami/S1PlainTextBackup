@@ -15655,3 +15655,15 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 所以，连仇阶都有了常驻光&amp;#x7 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀阶还背着0.9倍debuff，就是单方面歧视
 
+
+
+*****
+
+####  yzj134100  
+##### 4406#       发表于 2023-1-19 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59405741&amp;ptid=2084912" target="_blank">roxas.sora 发表于 2023-1-18 22:47</a>
+
+月球母猪直接送日服登顶了...............一个尼托突袭就嗷嗷叫去冲了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明猪确实无论丢啥过去都会拼命啃
+

@@ -8002,3 +8002,15 @@ FmwcP6UaAAEJLoe.jpg
 原神也带不动pay这个游戏黑洞</blockquote>
 虽然但是原来真的有人在用mbp13 2020(重点错)
 
+
+
+*****
+
+####  adw667  
+##### 11205#       发表于 2023-1-19 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402914&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-18 18:35</a>
+
+LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报♪SP</blockquote>
+学园偶像祭的活动，要是不请典狱长不成了酸菜鱼三期了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
