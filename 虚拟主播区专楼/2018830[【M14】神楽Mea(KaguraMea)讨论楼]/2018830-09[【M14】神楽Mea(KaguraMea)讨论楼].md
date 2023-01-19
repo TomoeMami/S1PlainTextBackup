@@ -1921,3 +1921,35 @@ jimmy老师画的</blockquote>
 
 可爱呢
 
+
+
+*****
+
+####  clvan_  
+##### 13112#       发表于 2023-1-19 19:54
+
+还有合唱还行
+
+*****
+
+####  古战场亡魂  
+##### 13113#       发表于 2023-1-19 19:55
+
+出个合唱，chocolate box
+
+*****
+
+####  呓亘  
+##### 13114#       发表于 2023-1-19 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 13115#       发表于 2023-1-19 19:58
+
+所以说你麻现在穿的跟猫眼三姐妹一样在罗贝尔面前蹦蹦跳跳吗…
+
+怎么会这样<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
