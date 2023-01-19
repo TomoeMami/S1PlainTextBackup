@@ -2263,3 +2263,16 @@ ED挺好听的
 
 至于橘子社新作，哎，除了流畅的迪士尼式动作戏，其他甚至还不如老版TV
 
+
+
+*****
+
+####  赛U灵  
+##### 212#       发表于 2023-1-20 06:37
+
+草，大规模原创吗，说实话看到后面的确有那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+作画给我的感觉是做到后面不行了，其实开始几集还是有质量不错的打戏吧，往后越来越多回忆填数感觉有点把万策尽写脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过看到了很多赛璐璐时期独有的bug说实话还挺好玩的233
+虽然把回忆杀编排的还好就算有点吐槽也看的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
