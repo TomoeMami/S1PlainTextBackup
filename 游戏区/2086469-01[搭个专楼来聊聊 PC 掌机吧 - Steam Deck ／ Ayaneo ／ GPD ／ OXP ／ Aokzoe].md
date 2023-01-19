@@ -81,3 +81,37 @@
 
 2023-1-19 08:43 上传
 
+
+
+*****
+
+####  luffyzhou  
+##### 626#       发表于 2023-1-19 09:04
+
+air pro感觉被背刺了，主要是出的时候5系就落后了，尤其是6系在gpu提升很明显，当时尾巴说6系放不进air里（嗯，可以放到air plus里<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">）
+
+按尾巴的话来说，aya的产品线主要就是按照屏幕尺寸来分，从5.5到8寸，机型多真就契合了过气旗舰不如狗，迭代太快，22年年初的时候5800u，第三季度就开始6800u，直接秒掉上一代，买首发的还好玩了大半年，后买的除非是咸鱼入手，否则真就49年入国军。
+
+看起来阀门说SD下一代性能不升级主要改进屏幕和续航，还是订制芯片给力。
+
+昨儿还发布了的air模具的安卓机，这个估计性能应该不次于奥丁，按尾巴的作风备不住上8系骁龙呢，这个倒是值得期待下。
+
+*****
+
+####  医生狼多  
+##### 627#       发表于 2023-1-19 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408663&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2023-1-19 09:04</a>
+air pro感觉被背刺了，主要是出的时候5系就落后了，尤其是6系在gpu提升很明显，当时尾巴说6系放不进air里（ ...</blockquote>
+这几个产品线最高6800u，像slide还处于ppt状态，到时出了又要被下半年7系秒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  luffyzhou  
+##### 628#       发表于 2023-1-19 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408701&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-1-19 09:08</a>
+
+这几个产品线最高6800u，像slide还处于ppt状态，到时出了又要被下半年7系秒了 ...</blockquote>
+slide和next2还有那个kun都是7系，而且说不会是zen3+的马甲U，现在7系低压U还没发布，标压的zen4是第一季度末上市，所以你看这几个上市时间也到下半年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
