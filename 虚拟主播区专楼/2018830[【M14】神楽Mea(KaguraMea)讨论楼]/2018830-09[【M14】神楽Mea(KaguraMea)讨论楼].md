@@ -2212,3 +2212,23 @@ y1s1，算上舞元是三代目了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">来晚了，野男人民今天赢了吗
 
+
+
+*****
+
+####  路人庚  
+##### 13145#       发表于 2023-1-19 23:49
+
+野男人不灭！<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">🕶️👌🤣
+
+*****
+
+####  十九号大侠  
+##### 13146#       发表于 2023-1-19 23:50
+
+气死了，气死了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
