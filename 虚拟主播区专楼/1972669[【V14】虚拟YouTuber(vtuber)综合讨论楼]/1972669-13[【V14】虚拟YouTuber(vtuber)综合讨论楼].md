@@ -1061,3 +1061,16 @@ APEX都亡了啊，除非下一个爆款fps出来
 
 不然枪女没强度
 
+
+
+*****
+
+####  请问有猪扒饭吗  
+##### 18380#       发表于 2023-1-20 02:04
+
+纯个人主观排名：索菲亚&gt;五十岚≈石神&gt;小清水
+
+索菲亚不多说；五十岚感觉阳角女v不至于太差吧；石神模板莎皇，能达到莎皇1/5就算兑现天赋；至于小清水，只能说看完我对梅拉出道更有信心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
