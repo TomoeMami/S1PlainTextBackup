@@ -822,3 +822,26 @@ CR的king和nijisanji的king碰一块了
 
 果然梨花是张藏起来的炸弹
 
+
+
+*****
+
+####  Suny08  
+##### 18354#       发表于 2023-1-19 19:23
+
+有特定了吗
+
+*****
+
+####  格林卡罗尔  
+##### 18355#       发表于 2023-1-19 19:24
+
+观感是彩虹koyori<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 18356#       发表于 2023-1-19 19:27
+
+V综侦探呢，该认真办案了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

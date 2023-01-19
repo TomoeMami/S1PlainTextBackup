@@ -32,3 +32,12 @@
 
 一百多颗石头想捞个金钻头二宝，结果真就不给面子了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  恶搞之王  
+##### 44133#       发表于 2023-1-19 19:28
+
+阴兵太猛了，500柱没指望了，冲冲400柱算了
+
