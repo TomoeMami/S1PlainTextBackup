@@ -873,3 +873,21 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 故事里还是能看到一些长篇构思产生的bug，病床躺了三年的鸟人和大狗……感觉是半当中才插入了年份跨度的叙 ...</blockquote>
 因为有专门找过公司测试bug和数值，难度调低过的
 
+
+
+*****
+
+####  LrGsite  
+##### 70#       发表于 2023-1-20 03:15
+
+<img src="https://img.saraba1st.com/forum/202301/20/031432r5aojle75o597j5z.png" referrerpolicy="no-referrer">
+
+<strong>S3]N(C`HG9@G]S16BA5SC@A.png</strong> (132.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-20 03:14 上传
+
+红唯和shade的对谈，自由果然也是同人game的特点之一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV13K411D7mp](https://www.bilibili.com/video/BV13K411D7mp)
+
