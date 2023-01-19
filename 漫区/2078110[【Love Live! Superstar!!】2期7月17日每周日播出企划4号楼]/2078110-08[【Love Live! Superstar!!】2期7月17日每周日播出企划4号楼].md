@@ -8023,3 +8023,16 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 水那边得派人的，劳模就咻卡爱香了，姐姐和逢田姐也可以。按节目现货的吧，爱香逢田姐来挺不错
 
+
+
+*****
+
+####  ads147147  
+##### 11207#       发表于 2023-1-19 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59410167&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-19 11:38</a>
+水那边得派人的，劳模就咻卡爱香了，姐姐和逢田姐也可以。按节目现货的吧，爱香逢田姐来挺不错 ...</blockquote>
+姐姐来也不错，就是感觉姐姐在的时候会压住酸菜鱼整活，节目效果不好说。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
