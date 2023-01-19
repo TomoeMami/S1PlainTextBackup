@@ -503,3 +503,19 @@ deck玩怪物猎人崛起没有震动正常吗？
 —— 来自 S1Fun</blockquote>
 兼容层选什么？游戏正常运行，但是没有语音
 
+
+
+*****
+
+####  硫黄  
+##### 2087#       发表于 2023-1-19 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59412273&amp;ptid=2015700" target="_blank">Motoko-9 发表于 2023-1-19 15:03</a>
+
+deck玩怪物猎人崛起没有震动正常吗？
+
+之前刷神之天平没有震动我以为是技术力不够不支持，结果mhr也没有， ...</blockquote>
+SD的震动是触摸板在震动，你把那个调大就有了
+
+虽然还是图一乐
+
