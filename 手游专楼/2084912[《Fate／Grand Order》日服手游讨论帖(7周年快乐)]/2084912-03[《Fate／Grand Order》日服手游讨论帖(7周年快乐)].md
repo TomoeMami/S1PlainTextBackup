@@ -15679,3 +15679,19 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 说明猪确实无论丢啥过去都会拼命啃</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然尼托这卡面算你月顶级水平了，构图上色都好看，冲也不是不理解，不过2.7.2出场的话就有点降维打击的意思，毕竟2.7卡面整体质量非常低
 
+
+
+*****
+
+####  UNISONIA  
+##### 4408#       发表于 2023-1-19 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59405741&amp;ptid=2084912" target="_blank">roxas.sora 发表于 2023-1-18 22:47</a>
+
+月球母猪直接送日服登顶了...............一个尼托突袭就嗷嗷叫去冲了</blockquote>
+因为本周日服前排游戏开新卡池的只有个原，出的还是个男性SSR……
+
+弹珠是1月14开（上周六）的新卡池
+
+就原的非热点新角色的榜上排名情况，和弹珠已经开了4天的下降量来看，推移的绝对值不会多乐观的
+
