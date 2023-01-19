@@ -2232,3 +2232,19 @@ y1s1，算上舞元是三代目了
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  呓亘  
+##### 13147#       发表于 2023-1-20 00:25
+
+能不能安慰下破防楼友<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  planetcd  
+##### 13148#       发表于 2023-1-20 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">意思意思，太痛了
+
