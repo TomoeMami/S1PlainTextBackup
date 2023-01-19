@@ -15707,3 +15707,17 @@ YLS：准了，烟雾镜100自充绿光炮<img src="https://static.saraba1st.com
 所谓不出新卡防剧透就是产能低模组没做好而已</blockquote>
 也不一定，现在出立绘的几个除了雨神感觉怎么出也有点猜不透，也有可能整个大的，4个卡面4个人（或者3个人）画，每个都是不同形态，这样的话还是需要防下剧透的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 4410#       发表于 2023-1-19 14:06
+
+终于把尼托和麻婆喂满了
+
+就是一想到至少还有3个人要喂就脑壳痛
+
+WYS哥哥行行好，让烟雾镜毫无强度美可以吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
