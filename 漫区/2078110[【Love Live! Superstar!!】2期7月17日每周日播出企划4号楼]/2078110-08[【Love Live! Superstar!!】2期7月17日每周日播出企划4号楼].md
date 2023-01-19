@@ -8171,3 +8171,12 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代理应该还好吧，暴雪那事是白皮一如既往的傲慢，小日子不至于也把这个学去了，大概
 
+
+
+*****
+
+####  ViyViy  
+##### 11221#       发表于 2023-1-19 21:27
+
+给小日子做代理更烦吧，最好说话的反而是韩游，现在进不来了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

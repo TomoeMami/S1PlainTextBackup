@@ -10857,3 +10857,23 @@ GTA6什么时候能出，虽然OL还能再玩很久
 
 阿夸和koyo来互动,气氛就欢乐起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 4013#         楼主| 发表于 2023-1-19 21:22
+
+那不是阿夸
+
+阿夸播MC那多少年前了
+
+*****
+
+####  qesto  
+##### 4014#       发表于 2023-1-19 21:32
+
+真的看不腻吗？mc😅
+
+后面又是火建联动吧
+
