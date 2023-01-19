@@ -10831,3 +10831,29 @@ GTA6什么时候能出，虽然OL还能再玩很久
 
 总算封上岩浆了
 
+
+
+*****
+
+####  rs5621  
+##### 4010#       发表于 2023-1-19 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59416003&amp;ptid=2086637" target="_blank">holoan 发表于 2023-1-19 20:50</a>
+
+过年那个MV最后唱stella的，运营录了2个版本，未公开的版本是平常直播里的neta版，现在在问运营能不能特别 ...</blockquote>
+草台班子,都几年了还能搞错
+
+*****
+
+####  holoan  
+##### 4011#         楼主| 发表于 2023-1-19 21:20
+
+这都是小事，你看一下刚才的官推发了什么商品内容搞错的道歉推对比一下
+
+*****
+
+####  rs5621  
+##### 4012#       发表于 2023-1-19 21:20
+
+阿夸和koyo来互动,气氛就欢乐起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
