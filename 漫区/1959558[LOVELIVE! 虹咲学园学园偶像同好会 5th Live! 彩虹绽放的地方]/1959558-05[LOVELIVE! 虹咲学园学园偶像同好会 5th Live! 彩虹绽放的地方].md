@@ -1620,3 +1620,12 @@ FMTlogo上的大巴，就是永远的一瞬封面上面那一辆吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 6922#       发表于 2023-1-19 22:00
+
+<img src="https://p.sda1.dev/9/27ee3b9b2ed576a257136f322aa767a0/CMP_20230119215458155.jpg" referrerpolicy="no-referrer">
+
