@@ -134,3 +134,26 @@ slide和next2还有那个kun都是7系，而且说不会是zen3+的马甲U，现
 对哦，我都忘了slide ppt半年到现在都变成7系了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不过next2不是说了独显吗？
 
+
+
+*****
+
+####  luffyzhou  
+##### 631#       发表于 2023-1-19 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59409009&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-1-19 09:40</a>
+
+对哦，我都忘了slide ppt半年到现在都变成7系了
+
+不过next2不是说了独显吗？ ...</blockquote>
+说独显了，但是也得是7系吧，等它出的时候还上6系不得被喷死。那个kun，我咋感觉按照鲲双形态和大的神话设定，不会是平板+拆卸手柄+独显底座的设定吧……
+
+*****
+
+####  医生狼多  
+##### 632#       发表于 2023-1-19 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59409246&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2023-1-19 10:05</a>
+说独显了，但是也得是7系吧，等它出的时候还上6系不得被喷死。那个kun，我咋感觉按照鲲双形态和大的神话 ...</blockquote>
+那不就oxp2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
