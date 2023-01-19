@@ -2096,3 +2096,37 @@ y1s1，算上舞元是三代目了
 
 —— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  呓亘  
+##### 13131#       发表于 2023-1-19 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">杀了我吧杀了我吧
+
+*****
+
+####  雪风utopia  
+##### 13132#       发表于 2023-1-19 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 13133#       发表于 2023-1-19 20:53
+
+吐槽：
+
+这SB一样的CC字幕我干嘛要考虑，我还要用尼玛AEG自己打一个舒服的点的时间轴才不用对这你睿的弱智卡头较劲
+
+*****
+
+####  希洛克吃西瓜冰  
+##### 13134#       发表于 2023-1-19 20:57
+
+我将停止呼吸，直至小小麻出生长大开始直播<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22101316C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
