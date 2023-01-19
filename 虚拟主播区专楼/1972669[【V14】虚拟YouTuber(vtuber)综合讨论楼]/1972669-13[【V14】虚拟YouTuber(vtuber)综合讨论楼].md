@@ -845,3 +845,21 @@ CR的king和nijisanji的king碰一块了
 
 V综侦探呢，该认真办案了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 18357#       发表于 2023-1-19 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">哪个stf教他们初配信就性癖展示的？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 18358#       发表于 2023-1-19 19:44
+
+第一个像是小声优，第二个应该就是底边主播了，不知道是不是vspo 没选上的
+
