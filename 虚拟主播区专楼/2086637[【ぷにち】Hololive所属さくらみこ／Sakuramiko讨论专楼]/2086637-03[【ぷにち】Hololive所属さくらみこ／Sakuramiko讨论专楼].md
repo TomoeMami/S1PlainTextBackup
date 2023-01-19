@@ -10811,3 +10811,14 @@ GTA6什么时候能出，虽然OL还能再玩很久
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">mc开荒!
 
+
+
+*****
+
+####  holoan  
+##### 4008#         楼主| 发表于 2023-1-19 20:50
+
+过年那个MV最后唱stella的，运营录了2个版本，未公开的版本是平常直播里的neta版，现在在问运营能不能特别公开
+
+发现官推发的那个倒计时小视频写成一期生，这个小视频录制时还有NG
+

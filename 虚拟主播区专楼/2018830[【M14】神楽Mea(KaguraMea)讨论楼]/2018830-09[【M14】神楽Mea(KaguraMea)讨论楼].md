@@ -2069,3 +2069,30 @@ y1s1，算上舞元是三代目了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thisisaspider  
+##### 13128#       发表于 2023-1-19 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不要野男人
+
+*****
+
+####  掉头学姐  
+##### 13129#       发表于 2023-1-19 20:41
+
+怎么还把瞳色调一样了？
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 13130#       发表于 2023-1-19 20:43
+
+甜甜甜甜甜甜
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

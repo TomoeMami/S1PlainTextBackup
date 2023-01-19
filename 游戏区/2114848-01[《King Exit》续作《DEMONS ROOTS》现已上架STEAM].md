@@ -846,3 +846,30 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 
 数值策划倒是调校挺平衡的，虽然没有太高的系统深度追求也始终没崩，不像KE最后BOSS过于血牛消耗耐心，只有魔法防壁那段带防护罩的杂兵战过多拖节奏。
 
+
+
+*****
+
+####  Ravio  
+##### 68#       发表于 2023-1-19 20:44
+
+ 本帖最后由 Ravio 于 2023-1-19 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59402387&amp;ptid=2114848" target="_blank">LrGsite 发表于 2023-1-18 17:48</a>
+
+通关了差点就要买机票去给红唯送刀片了，总的来说是happy ending，想问一下二周目有啥特殊隐藏要素 ...</blockquote>
+你有去第二帝国打皇帝前的档的话读档就可以了，可以买火箭弹和打镜中解放军
+
+解放军经验很多，我印象里比逆世界树好刷不少，莉莉等级不低或者有连击装洋葱的话随便刷刷就可以打了。
+
+重点还是速度和幸运戒指还有百闪安洁要配好，前面女武神项链没拿的话建议开二周目。
+
+*****
+
+####  awertg  
+##### 69#       发表于 2023-1-19 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59414021&amp;ptid=2114848" target="_blank">千里孤坟 发表于 2023-1-19 17:38</a>
+
+故事里还是能看到一些长篇构思产生的bug，病床躺了三年的鸟人和大狗……感觉是半当中才插入了年份跨度的叙 ...</blockquote>
+因为有专门找过公司测试bug和数值，难度调低过的
+
