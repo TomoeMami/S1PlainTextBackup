@@ -15739,3 +15739,17 @@ WYS哥哥行行好，让烟雾镜毫无强度美可以吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蝙蝠侠做好没有，272就靠雨神撑流水么，烟雾镜和黑豹卡面不行啊
 
+
+
+*****
+
+####  UNISONIA  
+##### 4413#       发表于 2023-1-19 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59411872&amp;ptid=2084912" target="_blank">roxas.sora 发表于 2023-1-19 14:26</a>
+
+蝙蝠侠做好没有，272就靠雨神撑流水么，烟雾镜和黑豹卡面不行啊</blockquote>
+真的要做就不会让兔老师先发稿了，明显是后面还要拿他捏alter的能力搞个独立活动吧
+
+另外还有那个不明身份的库库尔坎呢，好歹也算个女角色
+
