@@ -14,3 +14,19 @@
 
 blast是懂流量的，小组赛就有真假a队之战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">题外话🐝新队服好丑
 
+
+
+*****
+
+####  朔方原的星  
+##### 3093#         楼主| 发表于 2023-1-20 02:15
+
+我超这buzz首秀上来先打一个手枪局ace，这就是阿汤严选吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 3094#       发表于 2023-1-20 02:16
+
+这X队的OP在打个毛啊
+
