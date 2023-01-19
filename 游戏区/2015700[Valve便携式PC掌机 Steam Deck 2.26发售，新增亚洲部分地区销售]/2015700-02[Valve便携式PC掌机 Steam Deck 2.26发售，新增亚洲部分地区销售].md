@@ -411,3 +411,17 @@ Deck玩鬼泣5游戏里的视频（历史介绍视频，商店里的招式演示
 pdd的都靠谱吗？很心动啊。。。
 虽然买来也不知道玩啥   
 
+
+
+*****
+
+####  芷雅居  
+##### 2079#       发表于 2023-1-19 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59408210&amp;ptid=2015700" target="_blank">shinnfin 发表于 2023-1-19 07:34</a>
+
+pdd的都靠谱吗？很心动啊。。。
+
+虽然买来也不知道玩啥</blockquote>
+百亿补贴的靠谱，其他的基本看概率吧
+
