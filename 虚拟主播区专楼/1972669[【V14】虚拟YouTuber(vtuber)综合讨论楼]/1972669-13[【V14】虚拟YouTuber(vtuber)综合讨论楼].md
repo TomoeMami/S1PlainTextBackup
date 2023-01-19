@@ -1020,3 +1020,15 @@ V综侦探呢，该认真办案了<img src="https://static.saraba1st.com/image/s
 
 and 特定班呢？
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18376#       发表于 2023-1-19 21:32
+
+[https://www.twitch.tv/neoki_valo](https://www.twitch.tv/neoki_valo)
+[https://www.youtube.com/@user-dz1xf6pb8c](https://www.youtube.com/@user-dz1xf6pb8c)
+
+ソフィア・ヴァレンタイン
+
