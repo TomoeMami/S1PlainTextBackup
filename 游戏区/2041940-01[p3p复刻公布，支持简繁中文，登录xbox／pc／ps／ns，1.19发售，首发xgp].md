@@ -1195,3 +1195,14 @@ Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新�
 
 With 3 games in dev, I’m still shocked they keep cancelling/changing reveal timing with events/press.</blockquote>
 
+
+
+*****
+
+####  宛若青空  
+##### 124#       发表于 2023-1-21 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59429938&amp;ptid=2041940" target="_blank">医生狼多 发表于 2023-1-21 00:45</a>
+关于重制版的传言</blockquote>
+好像不止一次听到阿特拉斯更改公开时间的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
