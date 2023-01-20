@@ -2297,3 +2297,26 @@ ED挺好听的
 草，大规模原创吗，说实话看到后面的确有那种感觉就有那种动画把剧情改了的迷之预感（）但是大规模 ...</blockquote>
 其实老版动画前期还是基本顺着漫画走的，大概十几集之后才开始原创走向，因为当时漫画也还在连载。(以上都是看枪神漫画粉丝说的)
 
+
+
+*****
+
+####  赛U灵  
+##### 215#       发表于 2023-1-20 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59419644&amp;ptid=2076121" target="_blank">混沌大陆 发表于 2023-1-20 08:35</a>
+其实老版动画前期还是基本顺着漫画走的，大概十几集之后才开始原创走向，因为当时漫画也还在连载。(以上 ...</blockquote>
+看了些漫画感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">更不用提后面突入主线后也有够魔改的
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  赛U灵  
+##### 216#       发表于 2023-1-20 16:02
+
+总算能搞清楚动画一些很微妙的地方到底什么情况，比如为啥牧师哥十字架用法还变过一次，我看的时候以为是作者觉得最开始设计的不帅后面又重改一次，这下看来应该是动画组当时做到牧师哥原创剧情时不知道武器真面目所以自己设计了，结果漫画第二部继续连载开始展示武器就按着漫画改了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不得不说还是内藤懂如何把武器设计的那么时髦啊
+看到现在也感觉漫画和动画的一些人物塑造也是有一点微妙的不同，但不排除只是因为看到现在，之后还没看。虽然有些微妙的不同，但是感觉目前为止漫画版法修的塑造我更喜欢了（
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
