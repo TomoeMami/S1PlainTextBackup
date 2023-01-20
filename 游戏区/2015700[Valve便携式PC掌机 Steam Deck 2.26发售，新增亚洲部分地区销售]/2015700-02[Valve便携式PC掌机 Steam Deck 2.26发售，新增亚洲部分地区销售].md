@@ -673,3 +673,17 @@ PDD怎么做到的，这个价格确实心动了
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 又不是所有游戏都涨价了
 
+
+
+*****
+
+####  硫黄  
+##### 2101#       发表于 2023-1-20 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425923&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-20 18:43</a>
+
+不是说阿区现在价格没有优势了吗
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">大部分游戏涨完还是比国区低
+
