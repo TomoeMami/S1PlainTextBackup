@@ -904,3 +904,15 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 什么社恐
 
+
+
+*****
+
+####  LrGsite  
+##### 72#       发表于 2023-1-20 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59419982&amp;ptid=2114848" target="_blank">若菜 发表于 2023-1-20 09:18</a>
+
+什么社恐</blockquote>
+是啊,感觉基本上是shade在讲话,红唯自己讲话感觉声音又小还很害羞,真的是感觉社恐
+
