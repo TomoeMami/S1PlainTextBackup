@@ -1198,3 +1198,12 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18394#       发表于 2023-1-20 21:15
+
+星街这次同接目测15w往上，nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
