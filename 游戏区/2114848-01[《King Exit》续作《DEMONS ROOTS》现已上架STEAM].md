@@ -981,3 +981,15 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 故事里还是能看到一些长篇构思产生的bug，病床躺了三年的鸟人和大狗……感觉是半当中才插入了年份跨度的叙 ...</blockquote>
 我没记错的话第一次打不是靠莉莉跳出来杀掉吗？主角从中发现白骨的防御对人类无效啊
 
+
+
+*****
+
+####  千里孤坟  
+##### 78#       发表于 2023-1-20 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59427186&amp;ptid=2114848" target="_blank">涂鸦恶魔 发表于 2023-1-20 20:24</a>
+
+我没记错的话第一次打不是靠莉莉跳出来杀掉吗？主角从中发现白骨的防御对人类无效啊 ...</blockquote>
+莉莉跳出来是偶然事件。主角其实压根没有任何白骨对策，和前面主动揽下打白骨工作的信心存在矛盾。
+
