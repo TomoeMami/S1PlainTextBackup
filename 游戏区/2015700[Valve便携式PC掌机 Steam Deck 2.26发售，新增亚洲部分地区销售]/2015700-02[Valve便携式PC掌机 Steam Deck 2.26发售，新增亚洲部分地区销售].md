@@ -564,3 +564,14 @@ SD的震动是触摸板在震动，你把那个调大就有了
 虽然还是图一乐</blockquote>
 啥?几个月来我都没注意过没有手柄马达. 我只感慨过主机有震动, 触摸板有震动, 四个马达可真舍得啊
 
+
+
+*****
+
+####  otani  
+##### 2092#       发表于 2023-1-20 12:49
+
+虽然不是史低，价格也可以了，接近官方指导价<img src="https://p.sda1.dev/9/84d472d08ed855a989e150040c9cb722/CMP_20230120124900870.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
