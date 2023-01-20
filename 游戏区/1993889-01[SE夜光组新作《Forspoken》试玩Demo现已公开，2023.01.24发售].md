@@ -135,3 +135,16 @@ vgc、rpg site等多家游戏媒体表示se拒绝提供评测码因此无法给�
 
 不是有人已经玩上了？给了7分，战斗移动好玩，开放世界标准罐头，对话尴尬垃圾，整体情节有让人看看接下来发生什么的欲望，大概就这样
 
+
+
+*****
+
+####  超赛锡纸烫  
+##### 393#       发表于 2023-1-21 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403607&amp;ptid=1993889" target="_blank">cxasuka 发表于 2023-1-18 19:40</a>
+3070 2k 30fps不能让瘟疫独领**么？
+
+懂了，4080和6800xt和是一个水平的东西！黄狗升天！这波我站se ...</blockquote>
+看了下pc版特性的介绍pv，是个纯amd优化游戏，合理怀疑nv的那些技术特性应该是不支持的
+
