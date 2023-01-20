@@ -687,3 +687,29 @@ PDD怎么做到的，这个价格确实心动了
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">大部分游戏涨完还是比国区低
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2102#       发表于 2023-1-20 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425469&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2023-1-20 17:53</a>
+
+固态速度比tf卡快啊
+
+阿区你要有阿区梯子然后买个游戏估计才能转区</blockquote>
+我玩独立游戏居多，3A 玩的少， 不过感觉还是买个ssd性价比高
+
+*****
+
+####  暗示我7酱  
+##### 2103#       发表于 2023-1-20 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425469&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2023-1-20 17:53</a>
+
+固态速度比tf卡快啊
+
+阿区你要有阿区梯子然后买个游戏估计才能转区</blockquote>
+现在锁账号风险大么，阿区土区
+

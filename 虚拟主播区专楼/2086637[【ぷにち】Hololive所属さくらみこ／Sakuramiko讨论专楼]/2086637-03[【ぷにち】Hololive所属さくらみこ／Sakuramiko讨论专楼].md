@@ -11034,3 +11034,12 @@ syl这片评分还挺高。
 
 嗯？直接看第四集啊，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今天累的要死，看电影刚刚好
 
+
+
+*****
+
+####  tesparu  
+##### 4029#       发表于 2023-1-20 21:11
+
+挺好，4是系列重启之作没看前面的也不影响什么，这片大部分都是实景拍摄，打斗戏占比大节奏畅快，很爽的片
+

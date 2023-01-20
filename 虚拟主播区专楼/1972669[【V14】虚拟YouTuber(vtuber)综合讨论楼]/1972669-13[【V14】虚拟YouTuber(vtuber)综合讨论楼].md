@@ -1186,3 +1186,15 @@ roko最强！roko最强！
 
 [https://www.youtube.com/@naeji5362](https://www.youtube.com/@naeji5362)
 
+
+
+*****
+
+####  真飞鸟i  
+##### 18393#       发表于 2023-1-20 21:09
+
+FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
+最近あったNiziUで3.4万で去年のAimerのカタオモイで2.8万
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
