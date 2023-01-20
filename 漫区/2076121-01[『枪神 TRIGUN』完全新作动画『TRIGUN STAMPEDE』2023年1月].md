@@ -2345,3 +2345,12 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 
 —— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Ichthys  
+##### 219#       发表于 2023-1-21 00:23
+
+动作捕捉加抽帧感觉emmm，渲染倒是可圈可点，感觉和一些老横版的感觉一样。
+
