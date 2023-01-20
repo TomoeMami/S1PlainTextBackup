@@ -5314,3 +5314,17 @@ b站也有 ...</blockquote>
 
 磨磨唧唧玩到第六章，本来以为是魔幻类的作品，怎么感觉剧情开始往科幻路线靠拢了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdfg  
+##### 3445#       发表于 2023-1-20 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59419625&amp;ptid=2098044" target="_blank">白金口袋 发表于 2023-1-19 19:29</a>
+
+磨磨唧唧玩到第六章，本来以为是魔幻类的作品，怎么感觉剧情开始往科幻路线靠拢了呢 ...</blockquote>
+未来人解析了魔法
+
+但是从新章来看，未来人只是以为他们解析了魔法……
+
