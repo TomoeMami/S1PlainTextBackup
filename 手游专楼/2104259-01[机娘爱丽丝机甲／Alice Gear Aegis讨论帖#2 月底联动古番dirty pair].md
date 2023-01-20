@@ -236,3 +236,14 @@ FA小结（逃）</blockquote>
 
 妈的阿金这十大就没一个能打的。生放估计除了卡池外也没啥大的了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 179#         楼主| 发表于 2023-1-20 17:34
+
+笑死，金字塔的战斗策划太丢人了ANBBA的SP无限终结技DPS还是比不上剑炮<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/warabimoss/status/1616102016409047041](https://twitter.com/warabimoss/status/1616102016409047041)
+
