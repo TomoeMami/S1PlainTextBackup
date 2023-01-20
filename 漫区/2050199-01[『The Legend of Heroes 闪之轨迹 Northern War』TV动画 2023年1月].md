@@ -3879,3 +3879,19 @@ B站港澳台：
 
 拉薇的肉搏竟然打不过马戏团的小丑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（我也知道男女体力可能有差距），要靠智取才行，这话像是过度的感觉，上面那位女性表情来看帝国应该已经注意到四个人了吧
 
+
+
+*****
+
+####  lil_is  
+##### 465#       发表于 2023-1-20 23:57
+
+这集到底在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">福利回吗
+
+*****
+
+####  秘银mithril  
+##### 466#       发表于 2023-1-21 00:02
+
+这集和前两集是同一个编剧吗？被下降头了？
+
