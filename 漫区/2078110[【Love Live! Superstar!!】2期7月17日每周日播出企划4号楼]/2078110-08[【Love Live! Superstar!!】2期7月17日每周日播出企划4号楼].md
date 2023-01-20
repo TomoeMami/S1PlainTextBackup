@@ -8200,3 +8200,12 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 限定版好像新塞了张随机的照片？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也太客气了
 
+
+
+*****
+
+####  仟音一心  
+##### 11224#       发表于 2023-1-20 08:34
+
+【【中字·花絮】2nd LoveLive!  ～What a Wonderful Dream!!～  Blu-ray Memorial BOX Making-哔哩哔哩】 [https://b23.tv/GgyjKR5](https://b23.tv/GgyjKR5)
+
