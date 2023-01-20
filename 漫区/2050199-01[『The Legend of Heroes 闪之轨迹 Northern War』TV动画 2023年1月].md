@@ -3895,3 +3895,25 @@ B站港澳台：
 
 这集和前两集是同一个编剧吗？被下降头了？
 
+
+
+*****
+
+####  aptx8285144  
+##### 467#       发表于 2023-1-21 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59429575&amp;ptid=2050199" target="_blank">秘银mithril 发表于 2023-1-21 00:02</a>
+
+这集和前两集是同一个编剧吗？被下降头了？</blockquote>
+看了一下，似乎和前两集的编辑不同，这话是大西信介，前两话是凉村千夏
+
+*****
+
+####  秘银mithril  
+##### 468#       发表于 2023-1-21 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59429639&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-1-21 00:08</a>
+
+看了一下，似乎和前两集的编辑不同，这话是大西信介，前两话是凉村千夏 ...</blockquote>
+有种强烈的“最后让黑兔出来看一眼，其他随便自由发挥”的感觉
+
