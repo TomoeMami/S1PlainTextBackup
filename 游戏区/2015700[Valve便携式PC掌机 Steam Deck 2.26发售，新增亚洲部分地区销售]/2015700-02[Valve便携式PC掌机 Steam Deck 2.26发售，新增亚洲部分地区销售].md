@@ -541,3 +541,12 @@ SD的震动是触摸板在震动，你把那个调大就有了
 虽然还是图一乐</blockquote>
 居然没有握把马达<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  back57992  
+##### 2090#       发表于 2023-1-20 12:09
+
+借楼问下有没有内置类似PC STEAM的语音聊天？有内置麦克风吗？
+

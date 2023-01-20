@@ -8274,3 +8274,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 现在该醒了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一绪  
+##### 11232#       发表于 2023-1-20 12:18
+
+What a Wonderful Dream
+
+回家的路上看完了花絮，这是五角星的馈赠
+
