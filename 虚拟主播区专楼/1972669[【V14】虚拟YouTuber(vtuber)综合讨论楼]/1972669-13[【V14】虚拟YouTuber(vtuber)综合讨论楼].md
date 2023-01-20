@@ -1234,3 +1234,16 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 诸位别毒奶啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 18398#       发表于 2023-1-21 04:18
+
+去搜了下间谍，找到一年前跟一个30W+英语管主的系列联动视频
+
+用软萌声线各种夸人家厉害什么的，仿佛专业陪玩（），似乎还有做asmr
+
+感觉是gachi界的新星（还有点宅圈公主的茶味）
+
