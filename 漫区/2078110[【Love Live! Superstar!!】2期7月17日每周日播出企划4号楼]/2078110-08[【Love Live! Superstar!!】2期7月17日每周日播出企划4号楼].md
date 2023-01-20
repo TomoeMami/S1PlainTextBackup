@@ -8218,3 +8218,12 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 花絮里二期生四人也在后台
 
+
+
+*****
+
+####  仟音一心  
+##### 11226#       发表于 2023-1-20 09:23
+
+<img src="https://p.sda1.dev/9/f377ea3d185a5f825ca32bc47ec3b557/CMP_20230120092230186.jpg" referrerpolicy="no-referrer">
+
