@@ -588,3 +588,14 @@ SD的震动是触摸板在震动，你把那个调大就有了
 
 求大神解答。
 
+
+
+*****
+
+####  传说中的天才  
+##### 2094#       发表于 2023-1-20 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59421948&amp;ptid=2015700" target="_blank">back57992 发表于 2023-1-20 12:09</a>
+借楼问下有没有内置类似PC STEAM的语音聊天？有内置麦克风吗？</blockquote>
+软件应该有但是没试过，应该直接Steam聊天就行，内置麦克风是有的。
+
