@@ -659,3 +659,17 @@ PDD怎么做到的，这个价格确实心动了
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  妄想中毒  
+##### 2100#       发表于 2023-1-20 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425923&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-20 18:43</a>
+
+不是说阿区现在价格没有优势了吗
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+又不是所有游戏都涨价了
+
