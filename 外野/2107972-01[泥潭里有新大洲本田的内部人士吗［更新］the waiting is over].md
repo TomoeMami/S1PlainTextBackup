@@ -31,3 +31,16 @@
 广东来个厂山寨一下电驴cub应该会比现在这个好多</blockquote>
 好几年就有了 五羊本田净原h2
 
+
+
+*****
+
+####  fange  
+##### 94#       发表于 2023-1-20 22:05
+
+ 本帖最后由 fange 于 2023-1-20 22:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59426046&amp;ptid=2107972" target="_blank">camio 发表于 2023-1-20 18:55</a>
+
+好几年就有了 五羊本田净原h2</blockquote>
+百度了下看起来像是UBE的前身……
+

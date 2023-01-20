@@ -3774,3 +3774,24 @@ Tokyo MX版的提供：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来播了吗
 
+
+
+*****
+
+####  酷乐  
+##### 455#       发表于 2023-1-20 22:05
+
+B站港澳台：
+[https://www.bilibili.com/bangumi/play/ep721996](https://www.bilibili.com/bangumi/play/ep721996)
+
+*****
+
+####  Aeons  
+##### 456#       发表于 2023-1-20 22:07
+
+ 本帖最后由 Aeons 于 2023-1-20 22:08 编辑 
+
+没看明白，搞笑回吗，然后拉薇原来是这样的性格吗。
+
+感觉比较有意义的应该是感受到了诺州和帝国的区别。
+
