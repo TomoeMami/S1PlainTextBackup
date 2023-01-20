@@ -624,3 +624,24 @@ deck本来就没有震动马达，steam手柄当初也没有，俩这个方面�
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  妄想中毒  
+##### 2097#       发表于 2023-1-20 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59423114&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-20 13:59</a>
+1.固态做双系统和tf做双系统有什么区别呢？
+
+2.现在新号是不是没法去阿区了？转号呢？</blockquote>
+固态速度比tf卡快啊
+阿区你要有阿区梯子然后买个游戏估计才能转区
+
+*****
+
+####  TTAA  
+##### 2098#       发表于 2023-1-20 17:56
+
+PDD怎么做到的，这个价格确实心动了
+
