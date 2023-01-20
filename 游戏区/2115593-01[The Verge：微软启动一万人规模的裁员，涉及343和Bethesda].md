@@ -730,3 +730,14 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
 
 所以真的能既稳也快的第一方就任天堂,但如果他们下一代主机性能提昇"足够高"的话,那到时或多或少也要受到影响
 
+
+
+*****
+
+####  泰坦失足  
+##### 67#       发表于 2023-1-20 15:17
+
+ 本帖最后由 泰坦失足 于 2023-1-20 15:19 编辑 
+
+上线看看光环无限的奥利奥联动皮肤效果如何, 然后扫到了几个月前Year1 HCS送的阿迪达斯联动皮肤. 光环无限第一款不通过罕见商品Cdkey, 大范围发放的联动皮肤. 它名字叫'步入正轨'<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
