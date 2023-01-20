@@ -8243,3 +8243,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 2nd宛如梦一场
 
+
+
+*****
+
+####  player3960  
+##### 11229#       发表于 2023-1-20 10:20
+
+可能是对这个团的心态已经变化太久了，这花絮仿佛是在看上古文物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
