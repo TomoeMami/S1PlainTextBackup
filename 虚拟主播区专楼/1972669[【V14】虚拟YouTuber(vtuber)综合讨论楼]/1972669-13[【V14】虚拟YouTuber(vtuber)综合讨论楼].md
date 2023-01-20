@@ -1216,3 +1216,12 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 星街2专销量先看个4万没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18396#       发表于 2023-1-20 21:36
+
+很想支持vta素人但小清水透这种老梗废人系音声作品女主感有点涩，声音尤其，感觉只要不原都可以看看，只要不原…
+
