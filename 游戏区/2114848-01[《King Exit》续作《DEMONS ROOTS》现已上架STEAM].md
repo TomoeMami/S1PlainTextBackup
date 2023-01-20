@@ -941,3 +941,17 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 后1/2，我接受了平行世界设定
 结尾，续上了，意外+感慨
 
+
+
+*****
+
+####  亦饮阑珊  
+##### 75#       发表于 2023-1-20 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425873&amp;ptid=2114848" target="_blank">best32167 发表于 2023-1-20 18:37</a>
+
+说多了也算一定程度的剧透？你自己定看不看。我不知道直接玩的感觉挺好
+
+前1/2时，对比KE我有强烈的违和感 ...</blockquote>
+感谢，我已经打完了，但感觉好像有些不太对劲。
+
