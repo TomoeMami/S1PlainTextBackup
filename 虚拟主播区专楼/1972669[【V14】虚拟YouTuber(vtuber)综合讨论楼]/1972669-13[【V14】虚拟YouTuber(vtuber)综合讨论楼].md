@@ -1225,3 +1225,12 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 很想支持vta素人但小清水透这种老梗废人系音声作品女主感有点涩，声音尤其，感觉只要不原都可以看看，只要不原…
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18397#       发表于 2023-1-20 22:12
+
+诸位别毒奶啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3795,3 +3795,25 @@ B站港澳台：
 
 感觉比较有意义的应该是感受到了诺州和帝国的区别。
 
+
+
+*****
+
+####  ciokex  
+##### 457#       发表于 2023-1-20 22:13
+
+这后半段也太抽象了
+
+*****
+
+####  lokifreya  
+##### 458#       发表于 2023-1-20 22:18
+
+这集编剧明显背景设定都没研究过，敷衍了事
+
+完全看不出一点轨迹的痕迹
+
+一整集无用剧情，主角团也写得太表面了，而且好弱……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+也就换的几件衣服和路人人设还不错<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
