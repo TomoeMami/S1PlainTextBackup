@@ -697,3 +697,16 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  D-JoeII  
+##### 65#       发表于 2023-1-20 14:03
+
+<blockquote>codecloud 发表于 2023-1-20 12:06
+扯呢,订阅制对中小型制作者无疑是个利好,能扩大收入源.
+
+以前没有订阅制的时期,你一样不会多看一眼中小制 ...</blockquote>
+因为有些人真的以为上XGP就没压力，不用看业绩，花钱模式只有一种所以天天说XGP怎样负面怎样"短视"，实际上看过饼图都知进XGP的80分以上游戏占主流，全都是不愿了解+自己想像出来的"XGP"
+
