@@ -645,3 +645,17 @@ deck本来就没有震动马达，steam手柄当初也没有，俩这个方面�
 
 PDD怎么做到的，这个价格确实心动了
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2099#       发表于 2023-1-20 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425469&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2023-1-20 17:53</a>
+固态速度比tf卡快啊
+阿区你要有阿区梯子然后买个游戏估计才能转区</blockquote>
+不是说阿区现在价格没有优势了吗
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
