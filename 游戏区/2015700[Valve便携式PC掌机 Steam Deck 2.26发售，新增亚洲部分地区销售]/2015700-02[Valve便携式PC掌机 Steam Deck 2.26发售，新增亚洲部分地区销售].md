@@ -599,3 +599,17 @@ SD的震动是触摸板在震动，你把那个调大就有了
 借楼问下有没有内置类似PC STEAM的语音聊天？有内置麦克风吗？</blockquote>
 软件应该有但是没试过，应该直接Steam聊天就行，内置麦克风是有的。
 
+
+
+*****
+
+####  慕容断月  
+##### 2095#       发表于 2023-1-20 16:14
+
+ 本帖最后由 慕容断月 于 2023-1-20 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59412273&amp;ptid=2015700" target="_blank">Motoko-9 发表于 2023-1-19 15:03</a>
+deck玩怪物猎人崛起没有震动正常吗？
+
+之前刷神之天平没有震动我以为是技术力不够不支持，结果mhr也没有， ...</blockquote>
+deck本来就没有震动马达，steam手柄当初也没有，俩这个方面一样，这个在阀门家控制设备上是祖传问题
+
