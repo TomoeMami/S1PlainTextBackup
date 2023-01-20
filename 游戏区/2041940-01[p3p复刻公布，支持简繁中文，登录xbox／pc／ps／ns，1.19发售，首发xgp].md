@@ -1206,3 +1206,14 @@ With 3 games in dev, I’m still shocked they keep cancelling/changing reveal ti
 关于重制版的传言</blockquote>
 好像不止一次听到阿特拉斯更改公开时间的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 125#         楼主| 发表于 2023-1-21 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59430024&amp;ptid=2041940" target="_blank">宛若青空 发表于 2023-1-21 00:58</a>
+好像不止一次听到阿特拉斯更改公开时间的事了</blockquote>
+反正去年live肯定是改过计划，桌游压轴就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
