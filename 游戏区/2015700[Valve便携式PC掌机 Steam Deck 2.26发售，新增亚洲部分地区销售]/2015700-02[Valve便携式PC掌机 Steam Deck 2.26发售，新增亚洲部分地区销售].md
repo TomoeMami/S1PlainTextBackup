@@ -550,3 +550,17 @@ SD的震动是触摸板在震动，你把那个调大就有了
 
 借楼问下有没有内置类似PC STEAM的语音聊天？有内置麦克风吗？
 
+
+
+*****
+
+####  泰坦失足  
+##### 2091#       发表于 2023-1-20 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59412503&amp;ptid=2015700" target="_blank">硫黄 发表于 2023-1-19 15:24</a>
+
+SD的震动是触摸板在震动，你把那个调大就有了
+
+虽然还是图一乐</blockquote>
+啥?几个月来我都没注意过没有手柄马达. 我只感慨过主机有震动, 触摸板有震动, 四个马达可真舍得啊
+
