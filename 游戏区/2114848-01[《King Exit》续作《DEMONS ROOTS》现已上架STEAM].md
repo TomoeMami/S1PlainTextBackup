@@ -891,3 +891,16 @@ BE的话是的，存档的重要性，处刑迷宫省心得 ...</blockquote>
 红唯和shade的对谈，自由果然也是同人game的特点之一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV13K411D7mp](https://www.bilibili.com/video/BV13K411D7mp)
 
+
+
+*****
+
+####  若菜  
+##### 71#       发表于 2023-1-20 09:18
+
+<blockquote>LrGsite 发表于 2023-1-20 03:15
+红唯和shade的对谈，自由果然也是同人game的特点之一
+
+https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
+什么社恐
+
