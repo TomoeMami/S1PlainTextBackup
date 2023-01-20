@@ -2320,3 +2320,15 @@ ED挺好听的
 
 —— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  cementerio  
+##### 217#       发表于 2023-1-20 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59424355&amp;ptid=2076121" target="_blank">赛U灵 发表于 2023-1-20 15:56</a>
+
+看了些漫画感觉魔改的力度的确大，前四集是纯原创啊我真的惊了，的确没想到从第五集开始才是漫画 ...</blockquote>
+TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，但魔改多是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
