@@ -35,7 +35,7 @@ def parse_html(html,threadict):
                     threadict[threadid]['level'] = level
 
 if __name__ == '__main__':
-    blacklist = [2104652,2056385,1842868,334540,1971007,1915305,2023780,2085181,2105283,2045161,2106883]
+    blacklist = [2104652,2056385,1842868,334540,1971007,1915305,2023780,2085181,2105283,2045161,2106883,2068300]
     high_level = 14
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
