@@ -1217,3 +1217,12 @@ With 3 games in dev, I’m still shocked they keep cancelling/changing reveal ti
 好像不止一次听到阿特拉斯更改公开时间的事了</blockquote>
 反正去年live肯定是改过计划，桌游压轴就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  看别人玩游戏  
+##### 126#       发表于 2023-1-21 04:50
+
+最好是真重制，那个迷宫思路放现在要被新玩家喷出屎来…
+
