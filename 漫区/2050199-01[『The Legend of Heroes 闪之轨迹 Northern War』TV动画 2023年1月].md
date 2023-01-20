@@ -3848,3 +3848,23 @@ B站港澳台：
 
 完全不知所云的一集，前两集前功尽弃了
 
+
+
+*****
+
+####  上坂莲华  
+##### 462#       发表于 2023-1-20 23:08
+
+ 本帖最后由 上坂莲华 于 2023-1-20 23:09 编辑 
+
+这表现不直接进新7班建议严查麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后编剧大概拿的闪2剧本在研究，建议看看闪3再来搞黑兔人设<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 463#       发表于 2023-1-20 23:10
+
+感觉是在表现游戏支线？ 怪怪的。
+
