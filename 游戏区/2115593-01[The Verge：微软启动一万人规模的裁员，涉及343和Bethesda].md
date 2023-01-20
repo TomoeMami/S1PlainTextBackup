@@ -663,3 +663,37 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
  索索？ 老实说，要是索尼工作室管理成这样，内容产出如此拉胯，早已经被喷化了  </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你想多了，你卵第一方拉胯跟xgp没啥关系
 
+
+
+*****
+
+####  D-JoeII  
+##### 63#       发表于 2023-1-20 13:55
+
+<blockquote>槐聚 发表于 2023-1-20 10:04
+微软对工作室群的管理就是一泡污，还内包，一泡污甩给另一泡污？
+
+另外，XGP给微软赚足了吆喝，但是我认为 ...</blockquote>
+微软收购后的工作室发售的游戏只有两个评分不行，NT的Bleeding Edge同Tango的东京幽默线，后者还是PS5限时主机独占没进XGP
+
+而且实际上真的拉胯的工作室数来数去还不是343一个，还是给足资源和时间下依然爆炸
+
+而开发速度这事，也就3个要花5年以上时间开发：343（H5到HI，然后爆了），Turn10（弄新引擎，1月底有新片+公布发售日），We Happy Few那家（没人理），其余在3到5年内都出过游戏
+
+说到底就是持续把343当全个XGS然后强行说他们全部一泡污全部管理不行，但讲来讲去就是343
+
+所以343爆了也好，两边都不能用来当藉口了不是嘛
+
+*****
+
+####  JudgmentEye  
+##### 64#       发表于 2023-1-20 13:59
+
+<blockquote>引用第60楼槐聚于2023-01-20 12:21发表的  :
+
+本帖最后由 槐聚 于 2023-1-20 12:24 编辑 引用:codecloud 发表于 202......</blockquote>
+用户花xgp的钱 x
+用户花羊毛价 x（ps5）
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
