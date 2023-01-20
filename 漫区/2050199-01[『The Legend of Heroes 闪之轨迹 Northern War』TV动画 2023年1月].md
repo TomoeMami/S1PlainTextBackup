@@ -3933,3 +3933,15 @@ B站港澳台：
 
 战斗PPT.....
 
+
+
+*****
+
+####  月夜凝雪  
+##### 471#       发表于 2023-1-21 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59429652&amp;ptid=2050199" target="_blank">秘银mithril 发表于 2023-1-21 00:10</a>
+
+有种强烈的“最后让黑兔出来看一眼，其他随便自由发挥”的感觉</blockquote>
+最后出场一下单纯说明她不搞乱也有人会解决吧
+
