@@ -1184,3 +1184,14 @@ Steam 版是原味拉伸，新版是加了点没诚意的新功能，但是新�
 睡不着，就想着进游戏看看，然后XGP显示操作过早</blockquote>
 我也看了一眼说是北京时间今天下午1点
 
+
+
+*****
+
+####  医生狼多  
+##### 123#         楼主| 发表于 2023-1-21 00:45
+
+关于重制版的传言<blockquote>Remake is pretty far along last I saw but so was 6. Last I heard, summer reveal.
+
+With 3 games in dev, I’m still shocked they keep cancelling/changing reveal timing with events/press.</blockquote>
+
