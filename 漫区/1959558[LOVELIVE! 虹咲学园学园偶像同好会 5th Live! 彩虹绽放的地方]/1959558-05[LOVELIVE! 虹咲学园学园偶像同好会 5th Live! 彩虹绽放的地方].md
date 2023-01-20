@@ -1680,3 +1680,16 @@ BD BOX 封面
 
 <img src="https://p.sda1.dev/9/a865313090bf267f1a876c00a0d132f1/CMP_20230120221845297.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6928#       发表于 2023-1-20 22:41
+
+步女士这个团子梗笑死了。
+
+步梦还真是设定上不怕鬼啊，还以为s2e5里是在侑面前逞强来着。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

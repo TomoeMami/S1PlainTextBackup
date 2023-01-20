@@ -1004,3 +1004,12 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  焚舟  
+##### 80#       发表于 2023-1-20 22:48
+
+手里有份chineseherbatea个人汉化，这个和官中质量比哪个更好啊?
+

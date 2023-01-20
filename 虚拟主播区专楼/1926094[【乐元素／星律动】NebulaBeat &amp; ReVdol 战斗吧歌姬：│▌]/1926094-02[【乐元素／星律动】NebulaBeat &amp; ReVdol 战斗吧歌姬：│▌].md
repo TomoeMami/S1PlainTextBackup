@@ -14126,3 +14126,12 @@ NB厂？虚研社分社罢了
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2960#         楼主| 发表于 2023-1-20 22:49
+
+全笋音质大擂台 还挺适合藻声线的
+
