@@ -955,3 +955,17 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 前1/2时，对比KE我有强烈的违和感 ...</blockquote>
 感谢，我已经打完了，但感觉好像有些不太对劲。
 
+
+
+*****
+
+####  best32167  
+##### 76#       发表于 2023-1-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59426187&amp;ptid=2114848" target="_blank">亦饮阑珊 发表于 2023-1-20 19:07</a>
+
+感谢，我已经打完了，但感觉好像有些不太对劲。</blockquote>
+一般是前作印象深刻后，对这作美化侵略行为产生的违和感吧
+
+还有那个预言书搅局，时不时提醒下你前作是怎样的
+
