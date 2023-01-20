@@ -925,3 +925,19 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 我有些忘了kingexit的剧情，是不是看起来像衔接前作剧情，实际上有一定出入？
 
+
+
+*****
+
+####  best32167  
+##### 74#       发表于 2023-1-20 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425441&amp;ptid=2114848" target="_blank">亦饮阑珊 发表于 2023-1-20 17:50</a>
+
+我有些忘了kingexit的剧情，是不是看起来像衔接前作剧情，实际上有一定出入？ ...</blockquote>
+说多了也算一定程度的剧透？你自己定看不看。我不知道直接玩的感觉挺好
+
+前1/2时，对比KE我有强烈的违和感
+后1/2，我接受了平行世界设定
+结尾，续上了，意外+感慨
+

@@ -103,3 +103,26 @@
 
 vgc、rpg site等多家游戏媒体表示se拒绝提供评测码因此无法给出首日游戏评测，我看有些人说是se没有准备pc版的评测码，反正不管怎么样看上去也不是个好消息……
 
+
+
+*****
+
+####  415452356  
+##### 390#       发表于 2023-1-20 18:35
+
+  这游戏翻车肯定连新闻都算不上，如果真的好玩才是新闻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  godless2020  
+##### 391#       发表于 2023-1-20 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59425733&amp;ptid=1993889" target="_blank">leove25 发表于 2023-1-20 18:20</a>
+
+vgc、rpg site等多家游戏媒体表示se拒绝提供评测码因此无法给出首日游戏评测，我看有些人说是se没有准备pc ...</blockquote>
+主机板评测呢，啥时出分......
+
