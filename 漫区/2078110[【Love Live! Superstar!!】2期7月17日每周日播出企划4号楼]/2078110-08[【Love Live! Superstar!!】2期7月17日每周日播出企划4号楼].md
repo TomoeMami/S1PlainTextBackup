@@ -8263,3 +8263,14 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 除了鲤鱼其他4个练习的时候都全妆上阵的吗？
 
+
+
+*****
+
+####  starring  
+##### 11231#       发表于 2023-1-20 11:16
+
+看完这花絮，2nd真是一场美梦。
+
+现在该醒了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
