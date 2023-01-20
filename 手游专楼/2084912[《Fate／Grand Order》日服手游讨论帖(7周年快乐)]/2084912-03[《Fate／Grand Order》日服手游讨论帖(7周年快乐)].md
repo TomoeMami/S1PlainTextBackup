@@ -15806,3 +15806,21 @@ WYS哥哥行行好，让烟雾镜毫无强度美可以吗
 
 尼托的画师缟乌冬在村正发售的时候人还在Nitro+，2013年才加入Notes.社
 
+
+
+*****
+
+####  都谷捻柏  
+##### 4417#       发表于 2023-1-20 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59418436&amp;ptid=2084912" target="_blank">swordreader 发表于 2023-1-20 00:46</a>
+
+尼托alter二破这个造型是不是涉嫌抄袭装甲饿鬼村正里的二世村正，就多俩兔耳朵
+
+ ...</blockquote>
+没有抄袭，这叫致敬。
+
+装甲饿鬼村正里还不赶紧发推庆祝。
+
+DOG
+
