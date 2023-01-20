@@ -15790,3 +15790,19 @@ WYS哥哥行行好，让烟雾镜毫无强度美可以吗
 
 尼托alter二破这个造型是不是涉嫌抄袭装甲饿鬼村正里的二世村正，就多俩兔耳朵
 
+
+
+*****
+
+####  UNISONIA  
+##### 4416#       发表于 2023-1-20 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59418436&amp;ptid=2084912" target="_blank">swordreader 发表于 2023-1-20 00:46</a>
+
+尼托alter二破这个造型是不是涉嫌抄袭装甲饿鬼村正里的二世村正，就多俩兔耳朵
+
+ ...</blockquote>
+装甲恶鬼村正的画师是画不夜C和特总的生肉ATK吧
+
+尼托的画师缟乌冬在村正发售的时候人还在Nitro+，2013年才加入Notes.社
+

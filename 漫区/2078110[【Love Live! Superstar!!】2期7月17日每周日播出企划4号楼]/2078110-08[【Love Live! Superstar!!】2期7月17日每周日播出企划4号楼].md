@@ -8227,3 +8227,19 @@ LoveLive！学园偶像祭2 MIRACLE LIVE!生放送 为大家带来丰盛情报�
 
 <img src="https://p.sda1.dev/9/f377ea3d185a5f825ca32bc47ec3b557/CMP_20230120092230186.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11227#       发表于 2023-1-20 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这花絮，看到snp就难蚌
+
+*****
+
+####  奥柏伦亲王  
+##### 11228#       发表于 2023-1-20 10:00
+
+2nd宛如梦一场
+
