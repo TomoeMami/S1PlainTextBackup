@@ -1207,3 +1207,12 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 星街这次同接目测15w往上，nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  noHentai  
+##### 18395#       发表于 2023-1-20 21:25
+
+星街2专销量先看个4万没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

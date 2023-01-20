@@ -993,3 +993,14 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 我没记错的话第一次打不是靠莉莉跳出来杀掉吗？主角从中发现白骨的防御对人类无效啊 ...</blockquote>
 莉莉跳出来是偶然事件。主角其实压根没有任何白骨对策，和前面主动揽下打白骨工作的信心存在矛盾。
 
+
+
+*****
+
+####  moonmagian  
+##### 79#       发表于 2023-1-20 21:33
+
+记得第一次打白骨主角说了是白骨比起以前变强了对策没起效？
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
