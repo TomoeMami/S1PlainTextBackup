@@ -1261,3 +1261,17 @@ xgp原价买的人主力是欧美玩家，泥潭xgp玩家数能有1万出头吗�
 
 正如我说的，你这个人很有意思，一方面指控我凭想象，另一方面又用自己作为案例来告诉我，普通人你就是得凭想象，因为普通人想调查另外一个普通人的可能想法，就是有这么难<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hentianwuya  
+##### 102#       发表于 2023-1-21 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433875&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 15:14</a>
+
+我联想要有资格？
+
+你的这个说法很有意思。因为我从小到大，从来没有听说过联想需要有资格，我相信没有任 ...</blockquote>
+说的是你拿你的联想来辩经需要资格，毕竟你人微言轻，你没有数据支撑，没有事实理论，没有官方背书，你的联想就是狗肉上不了宴席，自言自语得了，到论坛辩经？那不行。
+
