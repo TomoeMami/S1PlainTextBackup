@@ -1084,3 +1084,16 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  子夜微雪  
+##### 86#       发表于 2023-1-21 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436066&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-1-21 19:37</a>
+我猜安洁搞事的机会是铁傀儡剧情时离队的那一会，但这人的人设压根就不是往这路来的，我玩到那里没见她在 ...</blockquote>
+其实还真不是一笔带过，只不过原不原谅都有理由罢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

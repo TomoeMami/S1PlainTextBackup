@@ -5398,3 +5398,25 @@ b站专栏搜神之天平</blockquote>
 
 唯一要额外刷刷刷的就是队友好感度。下一趟三层就能拿一个爱情，打快一点的话，大概1小时多可以把5个队友拿满。
 
+
+
+*****
+
+####  christiny  
+##### 3452#       发表于 2023-1-21 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59403926&amp;ptid=2098044" target="_blank">谁介意 发表于 2023-1-18 20:08</a>
+
+刚通关完，据说面包店女孩的剧情会单独出dlc，不过竞技场会长的坑还没有填，感觉这与弥露为何能新章开始就 ...</blockquote>
+会长就是作者本人啊。斗技场全通之后，会长会说一句台词，表明作者身份。
+
+*****
+
+####  christiny  
+##### 3453#       发表于 2023-1-21 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59417658&amp;ptid=2098044" target="_blank">雪城飞鸟 发表于 2023-1-19 23:18</a>
+
+其实他这个装备盘应该早点出来，重打了一遍地狱发现前期也是数值碾压，还不如早点出些有意思的刷刷刷做调剂 ...</blockquote>
+这个版本时重制版，新系统加不进本篇啦。
+

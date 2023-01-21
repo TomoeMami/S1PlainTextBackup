@@ -8492,3 +8492,31 @@ What a Wonderful Dream
 
 总不能攒着等三期万一起死回生到时候对三期生说吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 11253#       发表于 2023-1-21 20:44
+
+就是一个定心丸作用咯，对二期生和观众。像隔壁兔那次生放，但说得很沉重。先不管后面怎样。新加入成员心态和观众先缓解吧
+
+*****
+
+####  Kfly  
+##### 11254#       发表于 2023-1-21 20:48
+
+ 本帖最后由 Kfly 于 2023-1-21 20:49 编辑 
+
+还是别想多，没必要钻牛角尖（这也是在催眠我自己）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+唉，要是官方没那么多骚操作，这句话可能也不会有那么大反应吧（场内场外都是）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我听到这句话还是比较感动的
+
+*****
+
+####  懂你意思  
+##### 11255#       发表于 2023-1-21 20:49
+
+说实话并没有，虽然不排斥九人，但确实各方面不如5人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
