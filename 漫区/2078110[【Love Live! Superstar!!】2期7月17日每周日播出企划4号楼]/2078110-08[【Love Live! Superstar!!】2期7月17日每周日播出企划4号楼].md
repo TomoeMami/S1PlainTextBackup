@@ -8302,3 +8302,12 @@ What a Wonderful Dream
 
 感觉马内甲也好忙
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11234#       发表于 2023-1-21 16:33
+
+今天的live场子2nd也来过，那时候官方说法到场8000，这次直接少了好几块区域拿东西盖上了，到场人数却有约10000啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
