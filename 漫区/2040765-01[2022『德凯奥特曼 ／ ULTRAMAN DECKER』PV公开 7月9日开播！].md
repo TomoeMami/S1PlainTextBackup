@@ -113,3 +113,52 @@
 
 —— 来自 Xiaomi 21051182C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  pokemon最爱  
+##### 887#       发表于 2023-1-21 14:43
+
+德凯这个剧情高开低走很有隔壁Revice那个感觉，虽然没Revice的台词那么离谱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+基本上就是博士拉低了后期观感。
+
+*****
+
+####  Piano-Forest  
+##### 888#         楼主| 发表于 2023-1-21 14:43
+
+剧场新PV：[https://youtu.be/HV332w_1yZE](https://youtu.be/HV332w_1yZE)
+
+＋ーーー
+
+＃ウルトラマンディナス
+
+　　　　　　　　ーーー＋
+
+身长：55m
+
+体重：4万5千t
+
+ラヴィー星人ディナス(演: #中村加弥乃 )が
+
+ウルトラDフラッシャーに
+
+ディナスカードを使って変身する
+
+デッカーの姿に似たウルトラマン。
+
+怪獣カードを用いた技を得意とする。
+<img src="https://p.sda1.dev/9/3e5507fbbc2bc2491a293561720090e2/20230121054948.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/77c97f6d8872a2899881aeec18003584/20230121055049.png" referrerpolicy="no-referrer">
+
+【 #ツブイマ 视聴特典】
+
+4月中旬に公开予定の
+
+「イマジネーション オブ 『ウルトラマンデッカー』」
+
+阅覧クーポンの配布。
+<img src="https://p.sda1.dev/9/6fab12de6f4edf9fae73670270add4bc/20230121055200.png" referrerpolicy="no-referrer">
+
