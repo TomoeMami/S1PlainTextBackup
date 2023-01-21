@@ -722,3 +722,14 @@ PDD怎么做到的，这个价格确实心动了
 
 楼里有没有好心人帮忙测一下I/O Revision II的汉化版在steamOS下能否运行吗，感激不尽！
 
+
+
+*****
+
+####  妄想中毒  
+##### 2105#       发表于 2023-1-21 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59427710&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-20 21:08</a>
+现在锁账号风险大么，阿区土区</blockquote>
+锁啥啊，我阿区小号用了2年了
+
