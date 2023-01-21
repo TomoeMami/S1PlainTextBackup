@@ -897,3 +897,61 @@ XGP人人按美金原价买可能是可持续的，但现在很多买的人都�
 
 我倒觉得，你学那个GK倒是学会了，胡言乱语大放厥词确实有一套
 
+
+
+*****
+
+####  ultraseven  
+##### 78#       发表于 2023-1-21 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432220&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 12:05</a>
+
+砍内容？所有发售游戏都是被砍内容的，不可能原来设计做多少成品就做多少，这个属于业界常事
+
+法环也被砍掉 ...</blockquote>
+别的不清楚，forza 8 不都定档今年上半年了怎么还说是没影子的事<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+微软是不是在做慈善我不知道，但没有第一方首发入库的号召力这个订阅制根本做不起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就凭老游戏和首发的独游会有多少人买账？既要想推个新东西又不肯下血本出力怎么可能成功？
+
+*****
+
+####  D-JoeII  
+##### 79#       发表于 2023-1-21 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432220&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 12:05</a>
+
+砍内容？所有发售游戏都是被砍内容的，不可能原来设计做多少成品就做多少，这个属于业界常事
+
+法环也被砍掉 ...</blockquote>
+"《Forza 8》有影子吗？"
+
+其他就算了,这个你是认真问的吗?
+
+当然微软确实太多游戏过早公布,不过也因为这样今年上半年还真能拿几个出来发售
+
+而且你问一堆微软游戏有没有影子有影响到今年索尼第一方的游戏数量嘛
+
+*****
+
+####  hentianwuya  
+##### 80#       发表于 2023-1-21 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432848&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 13:08</a>
+
+有人一顶帽子扣过来，说你靠想象
+
+那我指出他分析存在的问题，并且指出他也是在靠想象，这叫打滚吗？</blockquote>
+有人回复说你没数据不也是靠想象，你却反而说自己“更”不靠想象，既然没数据，你这个“更”是从哪部分开始量化的？
+
+你凭啥就说这个“更”，凭你脸大还是凭你是索索啊？说你打滚还冤枉你了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 81#       发表于 2023-1-21 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432779&amp;ptid=2115593" target="_blank">allenz3 发表于 2023-1-21 13:01</a>
+
+XGP人人按美金原价买可能是可持续的，但现在很多买的人都是冲着低价去的，假如3年之后微软把低价渠道关了还 ...</blockquote>
+XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一人付了多少
+
