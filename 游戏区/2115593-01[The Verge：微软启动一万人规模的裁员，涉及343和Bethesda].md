@@ -863,3 +863,16 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
 
 尼玛微软的帖子拐到索尼也就算了，毕竟这贴索索浓度过高，居然还拐到腾讯，等会还要拐到腾任是吧，就这种货色以前居然还在泥潭标称自己是纯玩家。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  allenz3  
+##### 76#       发表于 2023-1-21 13:01
+
+XGP人人按美金原价买可能是可持续的，但现在很多买的人都是冲着低价去的，假如3年之后微软把低价渠道关了还有多少人要续是个问号
+
+想起几年前一窝蜂买斐讯路由器回去刷机，买的卖的心里都清楚不赚钱，只是为了资本故事能说下去罢了
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
