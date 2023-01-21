@@ -1079,3 +1079,16 @@ XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一�
 
 赛车游戏到期了都会退啊，而且xgp只有标准版，想入更高级版本（或升级包）的不是自己还要买一份。更何况steam deck上又没有xgp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  allenz3  
+##### 91#       发表于 2023-1-21 13:54
+
+ 本帖最后由 allenz3 于 2023-1-21 13:56 编辑 
+
+反正就是很神奇，同样是pc平台，按微软声称的数据仿佛微软玩家人均按美元全价付费（但我看泥潭没一个这么信仰的软软），而隔壁的steam大量低价区嫖，阿根廷区注册用户比阿根廷总人口还多G胖不得不大幅调高低价区的价格，微软在XGP“大赚特赚”的同时居然还暗示第一方游戏要涨价到70刀XGP也要涨价，直接现价几年干死索尼不更好？我暂且蒙在鼓里
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
