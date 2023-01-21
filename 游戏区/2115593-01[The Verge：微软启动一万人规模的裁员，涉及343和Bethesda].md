@@ -1423,3 +1423,45 @@ VGtime说
 
 所以，我不知道这怎么能够影响我前面的分析
 
+
+
+*****
+
+####  槐聚  
+##### 110#       发表于 2023-1-21 16:12
+
+你遮遮掩掩的样子真可怜，要么就痛快告诉我VGtime怎么错了
+
+如果觉得直接告诉我太过廉价，让我占便宜
+
+那就正儿八经给个靠谱的线索
+
+就这张截图里，微软把自己的数据跟索尼放在一起，那么按照常识肯定是按照同样的算法。所以微软的算法里自己的订阅占30-40%，那索尼的就占40-50%
+
+然后我分析这个数字肯定包括了其他成分，所以才显得这么大，有问题吗？
+
+真的，现在看起来，你确实水平不太够，讨论问题只是遮遮掩掩
+
+还是那句话，做人哪怕你是女人，**方方更好，我喜欢大方的女人
+
+*****
+
+####  hentianwuya  
+##### 111#       发表于 2023-1-21 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434343&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 16:09</a>
+
+打肿脸充胖子的是你
+
+你一直在说有问题
+
+但是缺不告诉我那里有问题，连一点线索都不给</blockquote>
+好吧，我都叫你搜原文了，你不愿意搜非得伸脸给我打，那我就却之不恭了，这张图是巴西监管机构CADE提供的，里面的数据也是CADE提供的。<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 112#       发表于 2023-1-21 16:16
+
+老实说，你要是没那么相信vgtime，而是拿那串数字直接百度，都不会被vgtime给拐到沟里去，现在嘛，只能说自作自受了，得了，您拜拜嘞，继续去找别个数据联想吧。<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
