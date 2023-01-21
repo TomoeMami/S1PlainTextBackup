@@ -2372,3 +2372,12 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 
 橘子的3d做起大场面来也不虚啊（这实力差距也太大了，后面怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  charlespfan  
+##### 222#       发表于 2023-1-22 03:00
+
+剧情什么玩意，难道在做同人动画吗
+
