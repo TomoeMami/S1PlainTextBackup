@@ -237,3 +237,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">平稳落地？烂尾！
 
+
+
+*****
+
+####  游蜓  
+##### 897#       发表于 2023-1-21 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434547&amp;ptid=2040765" target="_blank">RainbowSealife 发表于 2023-1-21 16:30</a>
+
+高开低走？也没飞起来吧？low B反派毁观感，角色塑造不如美剑。至少奏大还挺讨喜，比斯麦鲁强就行， ...</blockquote>
+特利迦中期开始角色塑造还是正常的，就是剧情实在是没得看
+
