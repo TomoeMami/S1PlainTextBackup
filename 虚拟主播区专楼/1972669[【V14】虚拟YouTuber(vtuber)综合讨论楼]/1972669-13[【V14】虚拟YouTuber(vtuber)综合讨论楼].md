@@ -1319,3 +1319,44 @@ cheeky真是好事一个不干，乱创人，生气💢
 
 官方推特现场剪了一段tsuna第四场的高光时刻，除了selly只有她有这待遇
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 18407#       发表于 2023-1-21 20:50
+
+实质虹杏赢vspo当老二是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 18408#       发表于 2023-1-21 20:53
+
+vspo包揽2-4，不能说输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 18409#       发表于 2023-1-21 20:57
+
+怎么b站连个苏菲娅的转播都没有，彩虹真不行<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 18410#       发表于 2023-1-21 20:57
+
+ 本帖最后由 poipanchao 于 2023-1-21 21:01 编辑 
+
+风怒
+
+*****
+
+####  poipanchao  
+##### 18411#       发表于 2023-1-21 20:57
+
+ 本帖最后由 poipanchao 于 2023-1-21 20:59 编辑 
+
+风怒，就当翻页了
+

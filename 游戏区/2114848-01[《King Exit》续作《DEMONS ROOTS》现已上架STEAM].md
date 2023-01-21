@@ -1097,3 +1097,17 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  人生败犬河大吉  
+##### 87#       发表于 2023-1-21 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436150&amp;ptid=2114848" target="_blank">tand177 发表于 2023-1-21 19:45</a>
+
+最最隔应的是安洁很强，还得一直用她
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+我50多级打大机器人全靠安洁苟着，好几次差点翻车，结果打完就给一把破枪。
+
