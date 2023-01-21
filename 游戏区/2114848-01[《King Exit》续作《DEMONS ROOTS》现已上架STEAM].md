@@ -1072,3 +1072,15 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 看楼里后续居然对安洁的背叛一笔带过就更膈应了。
 
+
+
+*****
+
+####  tand177  
+##### 85#       发表于 2023-1-21 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436066&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-01-21 19:37:08</a>
+我猜安洁搞事的机会是铁傀儡剧情时离队的那一会，但这人的人设压根就不是往这路来的，我玩到那里没见她 ...</blockquote>最最隔应的是安洁很强，还得一直用她
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
