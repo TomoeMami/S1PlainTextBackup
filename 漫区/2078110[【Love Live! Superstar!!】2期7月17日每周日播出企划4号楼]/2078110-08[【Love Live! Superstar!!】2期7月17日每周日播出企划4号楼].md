@@ -8311,3 +8311,12 @@ What a Wonderful Dream
 
 今天的live场子2nd也来过，那时候官方说法到场8000，这次直接少了好几块区域拿东西盖上了，到场人数却有约10000啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 11235#       发表于 2023-1-21 17:47
+
+我觉得星团也可以考虑一下出星的四格动画，也许效果不错
+
