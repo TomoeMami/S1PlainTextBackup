@@ -1013,3 +1013,15 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 手里有份chineseherbatea个人汉化，这个和官中质量比哪个更好啊?
 
+
+
+*****
+
+####  LrGsite  
+##### 81#       发表于 2023-1-21 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59428757&amp;ptid=2114848" target="_blank">焚舟 发表于 2023-1-20 22:48</a>
+
+手里有份chineseherbatea个人汉化，这个和官中质量比哪个更好啊?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">其实我挺喜欢steam的翻译的,有些技能翻译的感觉比个人汉化的好,但是又有莉莉基拉这种,总的来讲我觉得差别不大
+

@@ -1092,3 +1092,30 @@ XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一�
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ultraseven  
+##### 92#       发表于 2023-1-21 14:06
+
+pgp按月买的人肯定有，毕竟港区价格全球第三低，1个月20多块钱。
+
+xgp原价买的人主力是欧美玩家，泥潭xgp玩家数能有1万出头吗？
+
+*****
+
+####  hentianwuya  
+##### 93#       发表于 2023-1-21 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433140&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 13:40</a>
+
+第三方会定期退XGP，要继续玩必须买，这个我知道，也理解，并且也符合常识
+
+但我的理解是，微软第一方没有 ...</blockquote>
+第一方不只登录XGP，XGP也不是只有第一方，你把这两者捆绑起来批斗，却又没有数据支撑，一口一个常识、信仰、心态，你但凡结合下微软财报我都能当你练习时长超过2个月可以口嗨了。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+另外你再仔细看一遍我的签名，我的签名哪里提到了XGP？按你的想象，以我的签名来看，我高低不得当个索索头子？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+哦，你想知道我的心态？我XGP随用随买，泥潭索索特别喜欢意淫买XGP的都是3年超低价的，不好意思，我不是这种，反正一个月XGP就一顿饭钱，红酒沙发我享受不起，饭钱我还出不起？<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
