@@ -1693,3 +1693,25 @@ BD BOX 封面
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 6929#       发表于 2023-1-21 08:28
+
+第3话「米娅与步梦与恐怖」
+
+翻译：潮风
+
+嵌字：crusader 
+
+A3C3A988-A663-4CA6-810E-B40829F68477.jpeg
+(581.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 08:28 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/082806m48iis21n2kp4eai.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
