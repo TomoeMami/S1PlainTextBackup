@@ -8725,3 +8725,19 @@ AF229B5F-CCC1-4B6C-868F-15EB9128B2E5.jpeg
 
 2期生访谈本来就是铃原和绘森提到鲤了，这次又是她们两个哭，这下好感不得刷爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 11267#       发表于 2023-1-21 23:31
+
+迷你专的yellow和牛奶糖戳中好球曲，好听
+
+*****
+
+####  cybernetics31  
+##### 11268#       发表于 2023-1-21 23:32
+
+迷你专调音比以前好
+
