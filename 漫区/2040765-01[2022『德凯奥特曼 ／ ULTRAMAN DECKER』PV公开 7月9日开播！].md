@@ -162,3 +162,25 @@
 阅覧クーポンの配布。
 <img src="https://p.sda1.dev/9/6fab12de6f4edf9fae73670270add4bc/20230121055200.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  硫黄  
+##### 889#       发表于 2023-1-21 14:55
+
+ 本帖最后由 硫黄 于 2023-1-21 15:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近感觉的特摄，把企划阶段的设计好的包袱抛完以后就不知道怎么搞了
+
+编拍编改的问题从烂尾，变成中段就坠毁
+
+除了暴太郎(?
+
+*****
+
+####  Cloudslin  
+##### 890#       发表于 2023-1-21 15:02
+
+这片的结局打的还不如特利迦回归那集的月面战，场面大有压迫感
+
