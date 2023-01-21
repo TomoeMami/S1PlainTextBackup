@@ -8576,3 +8576,21 @@ What a Wonderful Dream
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新年快乐，今年的目标就是见鱼
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 11261#       发表于 2023-1-21 23:01
+
+我觉得鱼是在关心同事吧，在live的现场，给二期生一些正面的激励，不是挺温暖的一件事吗。
+
+*****
+
+####  一个陆仁贾  
+##### 11262#       发表于 2023-1-21 23:06
+
+就当是鲤鱼前辈形象极大提升的一天<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
