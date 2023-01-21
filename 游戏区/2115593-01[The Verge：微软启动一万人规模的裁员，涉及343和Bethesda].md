@@ -1147,3 +1147,19 @@ xgp原价买的人主力是欧美玩家，泥潭xgp玩家数能有1万出头吗�
 
 你不是告诉我了吗？XGP和独立购买并不冲突，那么我调查下在拥有XGP的情况下继续独立购买，是出于什么样的心态。我相信我这个不是恶意提问<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hentianwuya  
+##### 95#       发表于 2023-1-21 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433576&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 14:29</a>
+
+批斗？为啥要批斗。单纯就是对这个模式的讨论而已
+
+你觉得我质疑这个模式的可持续性以及对第一方3A的可能 ...</blockquote>
+我“指控”你靠想象？你自己想象了一大堆之后我才回你的贴子，现在你的想象成了是我指控的了？那你可真够无耻的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+我说的“XGP和独立购买不冲突”怎么就变成“出于什么心态在拥有XGP的情况下继续独立购买”，这恶意不恶意我不知道，这算是你树个靶子打歪了你再在打歪处重新画个靶子是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
