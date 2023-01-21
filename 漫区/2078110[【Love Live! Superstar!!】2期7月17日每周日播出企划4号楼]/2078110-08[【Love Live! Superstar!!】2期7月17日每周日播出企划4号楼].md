@@ -8543,3 +8543,14 @@ What a Wonderful Dream
 <blockquote>正しくは5人から9人になったLiellaどうですか！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来并不是那么直球，难怪会惊讶有人哭
 
+
+
+*****
+
+####  player3960  
+##### 11258#       发表于 2023-1-21 21:38
+
+楼友们新年快年!鲤鱼也是倒霉啊，元旦要熬夜上电视，除夕还得开live，年夜饭都没得吃<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

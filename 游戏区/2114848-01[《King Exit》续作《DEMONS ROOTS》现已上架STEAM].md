@@ -1185,3 +1185,26 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  人生败犬河大吉  
+##### 94#       发表于 2023-1-21 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437920&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-1-21 21:27</a>
+
+虽然你没玩到后面，但我的解释已经直白到这个地步了，就不考虑一下这个说法并非来自于汴京吗……
+
+——  ...</blockquote>
+以安洁的情况，她有足够的资源解决她关于洗 脑的疑问。她有作为女主随从的身份，有钱、有行动的自由、还有两年以上的窗口期。然后这些资源都被她用来害人了。
+
+*****
+
+####  tand177  
+##### 95#       发表于 2023-1-21 21:40
+
+不好意思，我不是尼尔大仙贝粉丝，还吸粉呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">咱们客观点，安洁事实上就是个没管住下半身被人指使，杀害残渣以及整个水生魔族，血债累累的忘恩负义之徒，原谅她的洋葱跟二代的艾莉也相去不远
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
