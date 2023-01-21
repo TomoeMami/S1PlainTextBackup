@@ -1226,3 +1226,22 @@ With 3 games in dev, I’m still shocked they keep cancelling/changing reveal ti
 
 最好是真重制，那个迷宫思路放现在要被新玩家喷出屎来…
 
+
+
+*****
+
+####  hockfly  
+##### 127#       发表于 2023-1-21 13:39
+
+有人玩了吗？重置效果如何？
+
+*****
+
+####  硫黄  
+##### 128#       发表于 2023-1-21 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433113&amp;ptid=2041940" target="_blank">hockfly 发表于 2023-1-21 13:39</a>
+
+有人玩了吗？重置效果如何？</blockquote>
+PSP模拟器
+

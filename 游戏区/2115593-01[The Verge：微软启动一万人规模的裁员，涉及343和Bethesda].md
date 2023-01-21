@@ -1021,3 +1021,52 @@ XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一�
 
 笑爆了，学到打滚新名词【更会想象】<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ultraseven  
+##### 87#       发表于 2023-1-21 13:33
+
+废渣地平线5首周1000万玩家，另外有将近一百万人通过购买高级版提前解锁游戏，7个月后官宣超过2000万玩家；前作地平线4，首周两百万销量，发售9个月后玩家数超过1000万。没有xgp地平线5首周是能卖1000万吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 88#       发表于 2023-1-21 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432963&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 13:25</a>
+
+靠想象当然有上下之分
+
+有纯粹靠信仰的，有基于常识靠直觉判断的
+
+单纯相信微软敢首发进XGP，于是解决了资 ...</blockquote><blockquote>跟对比3A游戏的开发资金需求以及销量预期，包括本身订阅服务就有的基数，凭直觉判断<strong>单纯靠订阅模式</strong>是不能以可持续的方式来支撑的</blockquote>
+如果你连XGP和单独购买游戏并不冲突这一点都不了解，你还有什么脸在这大放厥词呢？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+对了，如果你要说有XGP就不会有人另外购买游戏了，那请你先拿出数据来，而不是靠你的信仰来判断。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+就你这水平先跟泰坦失足学习做两年半练习生再说吧。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  槐聚  
+##### 89#       发表于 2023-1-21 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433048&amp;ptid=2115593" target="_blank">hentianwuya 发表于 2023-1-21 13:33</a>
+
+如果你连XGP和单独购买游戏并不冲突这一点都不了解，你还有什么脸在这大放厥词呢？
+
+对了，如果你 ...</blockquote>
+第三方会定期退XGP，要继续玩必须买，这个我知道，也理解，并且也符合常识
+
+但我的理解是，微软第一方没有退XGP的先例吧？
+
+明知第一方一直在XGP中，还继续买一份（内购不算），这种玩家的心态我确实不理解
+
+确实已经无法靠常识来判断的地步了，可能需要通过数据来进行调差
+
+要不从泥潭开始吧，看你的签名，像是XGP玩家，那你说说你有没有这么做，如果这么做了，心态是怎样的
+
+比如说，自己买了才算是真实拥有了游戏，还是单纯希望掏钱多买一份支持工作室？
+
