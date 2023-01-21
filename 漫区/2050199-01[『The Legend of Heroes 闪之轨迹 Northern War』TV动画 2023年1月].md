@@ -4019,3 +4019,21 @@ B站港澳台：
 
 很有轨迹范的一集，注水的任务然后关键人物在最后冒个头
 
+
+
+*****
+
+####  纯夏  
+##### 480#       发表于 2023-1-21 18:31
+
+这集剧本也太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  三月的老虎  
+##### 481#       发表于 2023-1-21 18:32
+
+这第三话也太屎了，情节编排也是，打斗演出也是<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
