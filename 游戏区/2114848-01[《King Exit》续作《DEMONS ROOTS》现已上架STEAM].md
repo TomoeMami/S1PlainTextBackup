@@ -1040,3 +1040,18 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 忍受苦难是为了复仇 否则毫无意义
 
+
+
+*****
+
+####  子夜微雪  
+##### 83#       发表于 2023-1-21 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59435878&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-1-21 19:16</a>
+艹了 安洁背叛什么鬼 为了反转而反转 一点铺垫都没有 甚至连亲手处决叛徒都做不到 
+
+这作者怎么回事 每次都 ...</blockquote>
+安洁背叛的铺垫其实有很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
