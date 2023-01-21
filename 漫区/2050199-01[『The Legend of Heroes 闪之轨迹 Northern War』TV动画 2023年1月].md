@@ -4058,3 +4058,12 @@ B站港澳台：
 这第三话也太屎了，情节编排也是，打斗演出也是</blockquote>
 歌OP ED 100分其他当笑片看
 
+
+
+*****
+
+####  妄想中毒  
+##### 484#       发表于 2023-1-22 00:47
+
+真的太弱智了，怎么动画也来游戏注水的那套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

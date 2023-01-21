@@ -811,3 +811,16 @@ steam deck吧
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
 这种小心黑卡黑刀，出问题没有啥回旋余地的
 
+
+
+*****
+
+####  nozomitech  
+##### 2112#       发表于 2023-1-22 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59429699&amp;ptid=2015700" target="_blank">violettor 发表于 2023-1-20 17:16</a>
+楼里有没有好心人帮忙测一下I/O Revision II的汉化版在steamOS下能否运行吗，感激不尽！ ...</blockquote>
+我试过，可以，但是过场动画没法播，会直接报错然后跳过，比方说OP什么的。
+所以我最后还是在电脑上玩了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
