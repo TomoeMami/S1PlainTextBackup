@@ -733,3 +733,17 @@ PDD怎么做到的，这个价格确实心动了
 现在锁账号风险大么，阿区土区</blockquote>
 锁啥啊，我阿区小号用了2年了
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2106#       发表于 2023-1-21 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59431808&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2023-1-21 11:17</a>
+锁啥啊，我阿区小号用了2年了</blockquote>
+昨晚恶补了一下外区知识<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，外区小号是不是买游戏或者登录时必须挂魔法？不然会被遣返？那如果小号游戏多了不就成大号了？steam deck上不知道有没有家庭共享
+还有我看有些淘宝余额，充值啥的说也会有风险？最好用什么网易的平台自己交易最安全？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
