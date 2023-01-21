@@ -1278,3 +1278,33 @@ syl つな刚刚才看清优胜奖励是DMM点数，脱口而出赛马娘，感�
 
 月奈和海藻头，为管人正名
 
+
+
+*****
+
+####  天天座理世  
+##### 18402#       发表于 2023-1-21 20:27
+
+哇，最后一届最后一局，selly搞这么厉害干嘛
+
+*****
+
+####  winda  
+##### 18403#       发表于 2023-1-21 20:32
+
+selly带着towa最后一把21杀大逆转夺冠，好剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 18404#       发表于 2023-1-21 20:32
+
+selly带着towa最后一把21杀大逆转夺冠，好剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 18405#       发表于 2023-1-21 20:34
+
+cheeky真是好事一个不干，乱创人，生气💢
+
