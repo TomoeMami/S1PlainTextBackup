@@ -4067,3 +4067,15 @@ B站港澳台：
 
 真的太弱智了，怎么动画也来游戏注水的那套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 485#       发表于 2023-1-22 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438771&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-21 22:09</a>
+
+想起当年小艾在卢安捉怪盗，大概也是这么弱智，不过fc那是郊游，这里北猎公款吃喝就太艹了 ...</blockquote>
+怪盗本身也就玩玩,这里是Terrorist袭击,还搞得像儿戏一样...
+
