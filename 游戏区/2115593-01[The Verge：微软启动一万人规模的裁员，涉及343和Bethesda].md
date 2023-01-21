@@ -1070,3 +1070,12 @@ XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一�
 
 比如说，自己买了才算是真实拥有了游戏，还是单纯希望掏钱多买一份支持工作室？
 
+
+
+*****
+
+####  ultraseven  
+##### 90#       发表于 2023-1-21 13:45
+
+赛车游戏到期了都会退啊，而且xgp只有标准版，想入更高级版本（或升级包）的不是自己还要买一份。更何况steam deck上又没有xgp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
