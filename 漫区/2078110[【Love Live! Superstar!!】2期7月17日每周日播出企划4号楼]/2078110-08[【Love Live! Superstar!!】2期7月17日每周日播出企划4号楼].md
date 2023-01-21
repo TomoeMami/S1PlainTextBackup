@@ -8422,3 +8422,55 @@ What a Wonderful Dream
 <blockquote>liyuu「4人がliella!に入ってもっと良くなりましたよね？」→会场拍手→えものん号泣</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话是好话
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11245#       发表于 2023-1-21 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我有梁木了，怎么感觉有点阴阳
+
+*****
+
+####  starring  
+##### 11246#       发表于 2023-1-21 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">寻思这样的话应该由立德说，但想了想已经没所谓
+
+*****
+
+####  优妮可  
+##### 11247#       发表于 2023-1-21 20:07
+
+小百合来说可能有点沉重，换鱼想愉快点也说的过去。
+
+*****
+
+####  stygian  
+##### 11248#       发表于 2023-1-21 20:07
+
+差不多得啦，大过年的何必非得往阴湿着想<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11249#       发表于 2023-1-21 20:10
+
+<blockquote>61名无しで叶える物语(しうまい)2023/01/21(土) 20:52:12.14ID:PBm54Sgf&gt;&gt;64&gt;&gt;85
+
+ってかこれは声援付きの千秋楽で言うべきでは？
+
+&gt;&gt;61
+
+2ndで来た城ホで、2ndのBDも出たことだしって前振りだったからね
+
+りーはそんな重い话のつもりはなかったみたいで、泣かれて惊いてた</blockquote>大概是这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说着玩的
+
+*****
+
+####  starring  
+##### 11250#       发表于 2023-1-21 20:17
+
+也不是往阴暗方面想，过那么久早就释然了，该推哪个继续推<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
