@@ -54,3 +54,32 @@
 
 屎中屎
 
+
+
+*****
+
+####  DARKGRAY  
+##### 882#       发表于 2023-1-21 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59431926&amp;ptid=2040765" target="_blank">Aeroblast 发表于 2023-1-21 11:29</a>
+
+好歹给斯麦鲁个下线的理由吧，怎么让他在下面当普通队员</blockquote>
+大概是想表达吸的时候也捱了不少打，没体力维持变身战斗吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 883#       发表于 2023-1-21 12:15
+
+高开低走，这起码两集的东西被博士占用一集，最后收尾弱得一比
+
+*****
+
+####  好面子的懒虫  
+##### 884#       发表于 2023-1-21 12:17
+
+一言以蔽之：武居不会拍玩具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+捧朝影这么久不就为了特辣肥渣这黑机器人吗？新生代最近老是在反派身上做文章搞玩具，好处是没有以前旧奥的boss那样随时下线然后结尾来得那么滴突然，坏处是占用短短24集内其它团队角色的戏份，泽塔里的卡列卡列星人走暗线没吃太多剧情；伽古拉不必多说，欧布就是绕他和凯俩人转的；贝利亚有前作人气；路基爱尔、格利扎、彩龙有逼格，但也是和旧平成一样突然的上线。朝影完全可以写成被斯菲亚利用失忆最后被德凯嘴炮恢复记忆洗白，迅速了解恩怨，把戏份让给胜利队和斯菲亚搞事，后面你要卖机器人就让哈乃次郎开啊，你不就图那个破机器人变身器嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拖这么久恶心大伙
+美剑虽然魔怔但人家筹划这么久而且炸地球确实有可能炸死彩龙，你朝影死个老婆就穿越时空抽干地球向斯菲亚投降。。
+结局又是喊口号然后永恒核心开挂赢赢赢，这哪是什么致敬泽塔，这nm是复刻特利迦啊，要不是德凯前期质量不错+龙门唯千夏他们有梗，观众早tm喷烂了，只能说看过特利迦之后啥奥都能“平稳落地”了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
