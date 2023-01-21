@@ -1339,3 +1339,87 @@ xgp原价买的人主力是欧美玩家，泥潭xgp玩家数能有1万出头吗�
 
 发个原图给你，省得你瞎联想连TM具体数据是怎么来的都搞不懂，我就纳了闷了，就您这辨别来源的能力，你是怎么好意思东想西想的。<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  槐聚  
+##### 106#       发表于 2023-1-21 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434217&amp;ptid=2115593" target="_blank">hentianwuya 发表于 2023-1-21 15:55</a>
+
+“我也用实例来说明了，按照微软的说法，索尼订阅服务占总收入的 40%～50%，因此在微软的数据里，这个订 ...</blockquote>
+[https://view.inews.qq.com/a/20221010A02LX900](https://view.inews.qq.com/a/20221010A02LX900)
+
+我确实是随手查的
+
+来源是游戏时光VGtime的二手，而且也附上了微软官方的截图
+
+就我的认知来说，VGtime算是一个相对靠谱的媒体，不是不靠谱的自媒体
+
+既然你告诉我人微言轻，那我相信你对你自己人微言轻也是有清醒的认识的
+
+因此，相比VGtime和你我更愿意相信谁，不用我多说
+
+在这个意义上，对我来说我完成了我自己的认知义务。一方面，我认为我的来源还算靠谱。另一方面，你的反论过于笼统，以至于我不认为你的反论回驳了VGtime那篇二手
+
+至于最后一句，我再加一句。整个大学生涯告诉我，想增长学问，除了自己下苦工外，那就是得自己到处问，哪怕是人微言轻，会基于无知或者误解问出许多幼稚的问题。不要怕丢脸
+
+设想，在讲座或者课程里问问题，最后被证明是各种幼稚问题，在一定程度上是自己的想当然，真的是很丢脸的吗？我不认为
+
+所以，问题在于两方面
+
+一方面，我们确实需要提升自己的知识水平，尽可能地不然自己的问题和观点太幼稚
+
+另一方面，我们寄希望打我们脸的人，是真正的大牛，而不是靠似是而非毫无营养的东西自以为打别人脸。前者我们能学习到知识，后者我们只能欣赏到一些人可笑的表演
+
+*****
+
+####  hentianwuya  
+##### 107#       发表于 2023-1-21 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434298&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 16:04</a>
+
+https://view.inews.qq.com/a/20221010A02LX900
+
+我确实是随手查的
+
+来源是游戏时光VGtime的二手，而且也附 ...</blockquote>
+说了叫你看原文，还TM搁这打肿脸充胖子呢？<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  槐聚  
+##### 108#       发表于 2023-1-21 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434272&amp;ptid=2115593" target="_blank">hentianwuya 发表于 2023-1-21 16:01</a>
+
+发个原图给你，省得你瞎联想连TM具体数据是怎么来的都搞不懂，我就纳了闷了，就您这辨别来源的能力，你是 ...</blockquote>
+这个图就在VGtime的文章里，怎么了？
+
+VGtime说
+
+“同时公开文件中还展示了索尼、任天堂、EA 订阅服务的一些数据。
+
+虽没有提供具体数据，但微软认为 2021 年索尼的订阅服务占软件服务收入的 40%～50%；同期任天堂的订阅服务收入为 9.32 亿美元，占软件服务收入的 10%～20%；EA 的会员订阅服务收入为 3.56 亿，微软估计这只占 EA 软件服务收入的 10% 或更低。”
+
+你是认为VGtime解读错了？
+
+*****
+
+####  槐聚  
+##### 109#       发表于 2023-1-21 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434312&amp;ptid=2115593" target="_blank">hentianwuya 发表于 2023-1-21 16:06</a>
+
+说了叫你看原文，还TM搁这打肿脸充胖子呢？</blockquote>
+打肿脸充胖子的是你
+
+你一直在说有问题
+
+但是缺不告诉我那里有问题，连一点线索都不给
+
+你别以为给张截图就算线索了，这张图就在VGtime文章里，我不认为VGtime的二手有啥问题
+
+所以，我不知道这怎么能够影响我前面的分析
+
