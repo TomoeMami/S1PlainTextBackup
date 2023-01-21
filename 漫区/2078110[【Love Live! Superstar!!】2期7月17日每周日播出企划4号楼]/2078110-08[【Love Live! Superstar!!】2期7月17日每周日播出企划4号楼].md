@@ -8474,3 +8474,21 @@ What a Wonderful Dream
 
 也不是往阴暗方面想，过那么久早就释然了，该推哪个继续推<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 11251#       发表于 2023-1-21 20:27
+
+我觉得挺好的，5厕还老爱说鲤鱼是5人原教的，这下可没得说了吧
+
+*****
+
+####  稀勢のささ  
+##### 11252#       发表于 2023-1-21 20:32
+
+本来我是觉得在明显变遭的情况下说这话有点难蚌，但好像3期出来之前也没啥好转的可能了
+
+总不能攒着等三期万一起死回生到时候对三期生说吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
