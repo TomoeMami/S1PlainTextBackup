@@ -786,3 +786,14 @@ PDD怎么做到的，这个价格确实心动了
 —— 来自 S1Fun ...</blockquote>
 密码是啥  steamdeck  steamdick都不行
 
+
+
+*****
+
+####  传说中的天才  
+##### 2110#       发表于 2023-1-21 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59439271&amp;ptid=2015700" target="_blank">柠檬渣 发表于 2023-1-21 22:34</a>
+密码是啥  steamdeck  steamdick都不行</blockquote>
+steam deck吧
+
