@@ -8403,3 +8403,22 @@ What a Wonderful Dream
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436060&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-21 19:36</a></blockquote>
 多了个Shooting Vioce 9人版
 
+
+
+*****
+
+####  优妮可  
+##### 11243#       发表于 2023-1-21 19:54
+
+<blockquote>仟音一心 发表于 2023-1-21 19:52
+多了个Shooting Voice! 9人版</blockquote>
+知道，看了发过来的
+
+*****
+
+####  稀勢のささ  
+##### 11244#       发表于 2023-1-21 19:58
+
+<blockquote>liyuu「4人がliella!に入ってもっと良くなりましたよね？」→会场拍手→えものん号泣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话是好话
+
