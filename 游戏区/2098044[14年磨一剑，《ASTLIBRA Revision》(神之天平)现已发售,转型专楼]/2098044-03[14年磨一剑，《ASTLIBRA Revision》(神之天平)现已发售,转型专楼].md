@@ -5465,3 +5465,27 @@ b站专栏搜神之天平</blockquote>
 装备好像都有专精技能 那每个装备都得买来用到专精吗。还有绿色水晶要怎么得，是只有装备专精后才给？ ...</blockquote>
 宝箱扭蛋和斗技场也会给
 
+
+
+*****
+
+####  christiny  
+##### 3458#       发表于 2023-1-21 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438415&amp;ptid=2098044" target="_blank">谁介意 发表于 2023-1-21 21:53</a>
+
+队员的爱情似乎与杀敌数量有关，去故乡刷虫子更快</blockquote>
+噢，还以为是经验……那应该更快了，一小时能刷满。
+
+*****
+
+####  christiny  
+##### 3459#       发表于 2023-1-21 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438249&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-21 21:44</a>
+
+装备好像都有专精技能 那每个装备都得买来用到专精吗。还有绿色水晶要怎么得，是只有装备专精后才给？ ...</blockquote>
+装备一定要多买，多练。有些关键技能，当然也有不少废技能。打BOSS的时候，带盾+最好武器就行。
+
+魔晶石来源，装备专精，扭蛋机，隐藏宝箱，斗技场。
+
