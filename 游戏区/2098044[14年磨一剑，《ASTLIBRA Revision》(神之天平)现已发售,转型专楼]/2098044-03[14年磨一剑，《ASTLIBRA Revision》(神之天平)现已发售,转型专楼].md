@@ -5443,3 +5443,25 @@ b站专栏搜神之天平</blockquote>
 
 装备好像都有专精技能 那每个装备都得买来用到专精吗。还有绿色水晶要怎么得，是只有装备专精后才给？
 
+
+
+*****
+
+####  谁介意  
+##### 3456#       发表于 2023-1-21 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436545&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-21 20:14</a>
+真结局通关了，打了76小时。
+
+没卡过关，游戏90%的谜题在NPC那都有提示，只要多对话几遍就行。城里的NPC每次 ...</blockquote>
+队员的爱情似乎与杀敌数量有关，去故乡刷虫子更快
+
+*****
+
+####  迷途lite  
+##### 3457#       发表于 2023-1-21 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438249&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-21 21:44</a>
+装备好像都有专精技能 那每个装备都得买来用到专精吗。还有绿色水晶要怎么得，是只有装备专精后才给？ ...</blockquote>
+宝箱扭蛋和斗技场也会给
+
