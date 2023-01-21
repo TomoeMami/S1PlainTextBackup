@@ -747,3 +747,15 @@ PDD怎么做到的，这个价格确实心动了
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Mimic  
+##### 2107#       发表于 2023-1-21 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434038&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-21 15:36</a>
+
+昨晚恶补了一下外区知识，外区小号是不是买游戏或者登录时必须挂魔法？不然会被遣返？那如果小号 ...</blockquote>
+非官方渠道充值都又风险，包括网易的那个啥。只有实体卡跟自己充是唯一确定完全安全的办法，但是这样不省钱。
+
