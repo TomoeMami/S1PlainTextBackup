@@ -772,3 +772,17 @@ PDD怎么做到的，这个价格确实心动了
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  柠檬渣  
+##### 2109#       发表于 2023-1-21 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59375211&amp;ptid=2015700" target="_blank">zris 发表于 2023-1-16 18:56</a>
+
+继续吆喝 欢迎新到手的兄弟们加群，群里基本可以释疑一切疑难杂症
+
+—— 来自 S1Fun ...</blockquote>
+密码是啥  steamdeck  steamdick都不行
+

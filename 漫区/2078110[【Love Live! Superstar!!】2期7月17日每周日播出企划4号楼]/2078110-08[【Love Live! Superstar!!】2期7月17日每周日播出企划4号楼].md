@@ -8554,3 +8554,16 @@ What a Wonderful Dream
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 11259#       发表于 2023-1-21 22:39
+
+我已经做好了等12人Liella之后再评价这个企划了。虽然23年应该不太可能上半年公布选人。
+
+至少大家新年过得开心最重要。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
