@@ -1360,3 +1360,12 @@ vspo包揽2-4，不能说输了<img src="https://static.saraba1st.com/image/smil
 
 风怒，就当翻页了
 
+
+
+*****
+
+####  FCCHua  
+##### 18412#       发表于 2023-1-21 21:19
+
+hnn队和selly队做跳点邻居，只有前两局有游戏体验，不过因为训练赛的体验早有心理准备，现在三人开心竞技场＋排位二次会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

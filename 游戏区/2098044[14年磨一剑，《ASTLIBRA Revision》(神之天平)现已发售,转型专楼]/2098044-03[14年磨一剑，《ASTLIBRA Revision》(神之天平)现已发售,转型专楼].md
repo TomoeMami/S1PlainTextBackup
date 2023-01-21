@@ -5420,3 +5420,17 @@ b站专栏搜神之天平</blockquote>
 其实他这个装备盘应该早点出来，重打了一遍地狱发现前期也是数值碾压，还不如早点出些有意思的刷刷刷做调剂 ...</blockquote>
 这个版本时重制版，新系统加不进本篇啦。
 
+
+
+*****
+
+####  不会武术  
+##### 3454#       发表于 2023-1-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59436331&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-21 20:02</a>
+
+这龙全靠技能打，天山稍微好一点。
+
+这BOSS就是教会你战斗的基本模式。攻击蓄能，技能打伤害或者无敌躲伤 ...</blockquote>
+天山会插歪，总是死于后跳一屁股坐火球上，刚发现枸杞可以买，等我带30个枸杞再去干他
+

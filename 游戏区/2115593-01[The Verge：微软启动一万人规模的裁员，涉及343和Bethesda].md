@@ -1531,3 +1531,17 @@ vgtime的译文“同时公开文件中还展示了索尼、任天堂、EA 订�
 
 拿好滚吧，我这算摆谱，你算什么？都跟你说了直接拿数据百度就行了，还装尼玛婴幼儿衣来伸手，饭来张口是吧？
 
+
+
+*****
+
+####  ultraseven  
+##### 116#       发表于 2023-1-21 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59433875&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 15:14</a>
+
+我联想要有资格？
+
+你的这个说法很有意思。因为我从小到大，从来没有听说过联想需要有资格，我相信没有任 ...</blockquote>
+怎么还在吵啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且像第一方的赛车游戏到期了都会退啊，更何况steam deck上又没有xgp
+

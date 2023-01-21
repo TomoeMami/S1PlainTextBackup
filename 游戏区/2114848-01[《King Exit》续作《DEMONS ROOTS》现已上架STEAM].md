@@ -1122,3 +1122,30 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  人生败犬河大吉  
+##### 89#       发表于 2023-1-21 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437078&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-1-21 20:50</a>
+
+其实还真不是一笔带过，只不过原不原谅都有理由罢了
+
+铺垫有很多，猜反骨仔我第一个猜的就是她：
+
+一来她天 ...</blockquote>
+解除洗 脑的魔术很简单，安洁作为女主的随从可以自由行动，是不是洗 脑她一试便知。而且她是跟随女主最久经历最多的人，魔族什么做法，人类老爷什么做法，还有奴隶是什么待遇她一清二楚，结果暴露后她的辩解纯粹是胡诌一通，看不出脑子在哪里，完全配不上她做下这等事的行动力。不过我没有继续玩下来，不知道背后驱使她的谁，但这里很割裂。说她蠢，她做了傻子做不了的大事，说她聪明，认知上表现得像个傻子，但凡有点脑子也不至于一点脑子都没有。
+
+*****
+
+####  子夜微雪  
+##### 90#       发表于 2023-1-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437521&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-1-21 21:14</a>
+解除洗 脑的魔术很简单，安洁作为女主的随从可以自由行动，是不是洗 脑她一试便知。而且她是跟随女主最久 ...</blockquote>
+第一句就错了，人家只是懂魔族的洗恼而已，安洁那些是确确实实的铺垫。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
