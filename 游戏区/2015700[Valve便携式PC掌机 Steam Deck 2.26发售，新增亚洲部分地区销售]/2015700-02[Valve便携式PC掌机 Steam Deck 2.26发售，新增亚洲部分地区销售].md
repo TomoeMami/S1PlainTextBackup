@@ -797,3 +797,17 @@ PDD怎么做到的，这个价格确实心动了
 密码是啥  steamdeck  steamdick都不行</blockquote>
 steam deck吧
 
+
+
+*****
+
+####  Mimic  
+##### 2111#       发表于 2023-1-21 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59435471&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-21 18:21</a>
+
+怪不得还真有阿根廷本地代充服务
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+这种小心黑卡黑刀，出问题没有啥回旋余地的
+

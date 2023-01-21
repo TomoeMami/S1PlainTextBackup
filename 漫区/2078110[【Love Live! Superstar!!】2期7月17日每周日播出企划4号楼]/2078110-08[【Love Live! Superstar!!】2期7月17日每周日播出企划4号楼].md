@@ -8605,3 +8605,123 @@ What a Wonderful Dream
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 11264#       发表于 2023-1-21 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59439919&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2023-1-21 23:01</a>
+
+我觉得鱼是在关心同事吧，在live的现场，给二期生一些正面的激励，不是挺温暖的一件事吗。 ...</blockquote>
+按现地所说，全文是 “前两天发售的BD，Liella 2nd最后一场也是在这里，大阪城ホール5个人在这里演出过，现如今9个人的live，大家觉得怎么样，是否有变得更好呢。”
+
+我觉得没啥问题，反正新成员是被感动到了（我也）
+
+*****
+
+####  仟音一心  
+##### 11265#       发表于 2023-1-21 23:23
+
+大阪day1
+
+28F17CFB-8303-4298-88D0-D31E1AD60A5E.jpeg
+(453.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232245yg6ogjsgojbbdbg5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+42358A88-B8E1-406D-8111-B4B3068F2E0B.jpeg
+(660.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232245dfeg5gjwjjj44duj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D069768E-6081-4062-84BE-9014FA58E9D6.jpeg
+(399.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232245wy466yv9rp2fbpvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C4C514FE-3626-449A-8232-7EA611EC7A39.jpeg
+(355.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232246y4bb3h8ef7r4g83z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+473B1B30-5AEB-4FB1-9DB8-950C0140FDE1.jpeg
+(622.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232246yklzw8wuqi8ke0wg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A02AF9DB-609C-42D2-906F-AB6C8665888B.jpeg
+(503.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232246qerr3mudvdooromo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7C9CD557-987E-484C-9C6F-D610AE1FEA5A.jpeg
+(571.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232247e6wy746z6r3y536y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0793F853-772F-4581-BC81-08F3B8277F4F.jpeg
+(334.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232247tsjn0jh40unylmsm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AF229B5F-CCC1-4B6C-868F-15EB9128B2E5.jpeg
+(998.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232247mo9oefoypzwptggw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4363A6BE-1FDD-467B-B6DE-E46904097B80.jpeg
+(1004.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202301/21/232248r9heqi14vz3hvq11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 11266#       发表于 2023-1-21 23:24
+
+[https://twitter.com/conodon2/status/1616765801046102022](https://twitter.com/conodon2/status/1616765801046102022)
+
+2期生访谈本来就是铃原和绘森提到鲤了，这次又是她们两个哭，这下好感不得刷爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
