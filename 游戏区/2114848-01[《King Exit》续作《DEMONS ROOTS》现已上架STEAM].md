@@ -1149,3 +1149,39 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  人生败犬河大吉  
+##### 91#       发表于 2023-1-21 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437808&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-1-21 21:23</a>
+
+第一句就错了，人家只是懂魔族的洗恼而已，安洁那些是确确实实的铺垫。
+
+—— 来自 S1Fun ...</blockquote>
+自由行动的含金量也要汴京？
+
+*****
+
+####  子夜微雪  
+##### 92#       发表于 2023-1-21 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437461&amp;ptid=2114848" target="_blank">tand177 发表于 2023-1-21 21:11</a>
+还不够一笔带过么，我要是魔族不把她和亡国奴女王就地正法绝不收手，那时候洋葱又不是使徒，想保她也没这能 ...</blockquote>
+有专门的跳崖剧情呀，这段是给安洁吸粉最多的剧情了，至少剧情处理并非一笔带过，魔族的怒火则发泄在幕后黑手上了而已，这段甚至延续到KE呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  子夜微雪  
+##### 93#       发表于 2023-1-21 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437838&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-1-21 21:24</a>
+自由行动的含金量也要汴京？</blockquote>
+虽然你没玩到后面，但我的解释已经直白到这个地步了，就不考虑一下这个说法并非来自于汴京吗……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
