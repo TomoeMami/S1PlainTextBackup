@@ -1111,3 +1111,14 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 我50多级打大机器人全靠安洁苟着，好几次差点翻车，结果打完就给一把破枪。
 
+
+
+*****
+
+####  tand177  
+##### 88#       发表于 2023-1-21 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59437078&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-01-21 20:50:56</a></blockquote>还不够一笔带过么，我要是魔族不把她和亡国奴女王就地正法绝不收手，那时候洋葱又不是使徒，想保她也没这能力，何况章鱼和洋葱那是上千年的交情
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
