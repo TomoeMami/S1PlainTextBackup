@@ -845,3 +845,21 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
 
 楼上多跟泰坦失足这个GK学学，人家虽然整天胡言乱语大放厥词，但很少打滚。
 
+
+
+*****
+
+####  415452356  
+##### 74#       发表于 2023-1-21 12:33
+
+  泥潭的人拿着腾讯的钱又不肯发群号给大家一起赚钱真的很让人心寒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hentianwuya  
+##### 75#       发表于 2023-1-21 12:40
+
+尼玛微软的帖子拐到索尼也就算了，毕竟这贴索索浓度过高，居然还拐到腾讯，等会还要拐到腾任是吧，就这种货色以前居然还在泥潭标称自己是纯玩家。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
