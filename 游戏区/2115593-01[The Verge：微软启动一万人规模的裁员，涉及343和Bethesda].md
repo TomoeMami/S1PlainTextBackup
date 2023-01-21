@@ -1545,3 +1545,20 @@ vgtime的译文“同时公开文件中还展示了索尼、任天堂、EA 订�
 你的这个说法很有意思。因为我从小到大，从来没有听说过联想需要有资格，我相信没有任 ...</blockquote>
 怎么还在吵啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且像第一方的赛车游戏到期了都会退啊，更何况steam deck上又没有xgp
 
+
+
+*****
+
+####  泰坦失足  
+##### 117#       发表于 2023-1-22 07:35
+
+<img src="https://img.saraba1st.com/forum/202301/22/073337bmij1ngjioeovvfj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-22 07:33 上传
+
+HoloLens整个组都没了, 虽然我觉得VR元宇宙不一定靠谱, 但是这砍法有砍了WP7/8那味了
+
