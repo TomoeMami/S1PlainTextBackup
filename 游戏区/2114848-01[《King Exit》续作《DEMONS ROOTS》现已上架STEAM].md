@@ -1055,3 +1055,20 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  人生败犬河大吉  
+##### 84#       发表于 2023-1-21 19:37
+
+ 本帖最后由 人生败犬河大吉 于 2023-1-21 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59435959&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-1-21 19:24</a>
+
+安洁背叛的铺垫其实有很多
+
+—— 来自 S1Fun</blockquote>
+我猜安洁搞事的机会是铁傀儡剧情时离队的那一会，但这人的人设压根就不是往这路来的，我玩到那里没见她在情绪上有过对魔族憎恶的表达
+
+看楼里后续居然对安洁的背叛一笔带过就更膈应了。
+
