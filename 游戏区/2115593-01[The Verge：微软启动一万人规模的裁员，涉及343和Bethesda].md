@@ -955,3 +955,69 @@ XGP人人按美金原价买可能是可持续的，但现在很多买的人都�
 XGP人人按美金原价买可能是可持续的，但现在很多买的人都是冲着低价去的，假如3年之后微软把低价渠道关了还 ...</blockquote>
 XGP 2021年29亿刀营收,你可以用2021年的XGP会员数算一下平均一人付了多少
 
+
+
+*****
+
+####  槐聚  
+##### 82#       发表于 2023-1-21 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432928&amp;ptid=2115593" target="_blank">hentianwuya 发表于 2023-1-21 13:19</a>
+
+有人回复说你没数据不也是靠想象，你却反而说自己“更”不靠想象，既然没数据，你这个“更”是从哪部分开 ...</blockquote>
+靠想象当然有上下之分
+
+有纯粹靠信仰的，有基于常识靠直觉判断的
+
+单纯相信微软敢首发进XGP，于是解决了资金问题，并且设想是可持续的
+
+跟对比3A游戏的开发资金需求以及销量预期，包括本身订阅服务就有的基数，凭直觉判断单纯靠订阅模式是不能以可持续的方式来支撑的
+
+在我看来，前者比后者当然更靠想象
+
+说白了你就是不愿意去认真看问题，觉得只要让自己拒绝去进一步讨论，于是就能把两个进路都打成靠想象，没有高低之分
+
+恕我直言，你不仅胡言乱语大放厥词，而且撒泼打滚的功夫更是了得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 83#       发表于 2023-1-21 13:27
+
+343是不是可以似一似了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ESAKA!!!!  
+##### 84#       发表于 2023-1-21 13:27
+
+何时取缔343？
+就在今天，就在今天！
+
+*****
+
+####  槐聚  
+##### 85#       发表于 2023-1-21 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59432926&amp;ptid=2115593" target="_blank">D-JoeII 发表于 2023-1-21 13:19</a>
+
+"《Forza 8》有影子吗？"
+
+其他就算了,这个你是认真问的吗?
+
+当然微软确实太多游戏过早公布,不过也因为这样 ...</blockquote>
+“其他就算了”是吧？
+
+那很好啊，Forza 8有影子就好，今年微软还有星空呢，对吧？
+
+我前面已经说了，微软拿得出内容来就可以，让别人无话可说
+
+今年？今年才一月份，急啥呢？我都对微软今年的表现很乐观，你就不能替索尼乐观一些吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HATENA  
+##### 86#       发表于 2023-1-21 13:31
+
+笑爆了，学到打滚新名词【更会想象】<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
