@@ -1465,3 +1465,15 @@ VGtime说
 
 老实说，你要是没那么相信vgtime，而是拿那串数字直接百度，都不会被vgtime给拐到沟里去，现在嘛，只能说自作自受了，得了，您拜拜嘞，继续去找别个数据联想吧。<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈词与芍药  
+##### 113#       发表于 2023-1-21 16:23
+
+看了下这几天的消息，裁员对游戏部门来说，对343的影响最大，说是已经影响到了几乎一半的343员工，估计微软对343的定位会发生改变
+其次是world‘s edge和b社，不过看推也没几个，后者只看到一俩个社区经理说自己失业了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
