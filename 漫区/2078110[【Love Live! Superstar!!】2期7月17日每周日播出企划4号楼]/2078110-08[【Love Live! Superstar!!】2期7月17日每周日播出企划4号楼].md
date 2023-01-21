@@ -8320,3 +8320,16 @@ What a Wonderful Dream
 
 我觉得星团也可以考虑一下出星的四格动画，也许效果不错
 
+
+
+*****
+
+####  ads147147  
+##### 11236#       发表于 2023-1-21 18:03
+
+星四格确实可以，现在的小插图效果也很好。
+
+不过也应该等人到齐吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
