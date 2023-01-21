@@ -4046,3 +4046,15 @@ B站港澳台：
 
 想起当年小艾在卢安捉怪盗，大概也是这么弱智，不过fc那是郊游，这里北猎公款吃喝就太艹了
 
+
+
+*****
+
+####  kria  
+##### 483#       发表于 2023-1-22 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59435555&amp;ptid=2050199" target="_blank">三月的老虎 发表于 2023-1-21 18:32</a>
+
+这第三话也太屎了，情节编排也是，打斗演出也是</blockquote>
+歌OP ED 100分其他当笑片看
+
