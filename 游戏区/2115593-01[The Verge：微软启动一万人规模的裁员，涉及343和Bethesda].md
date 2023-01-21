@@ -741,3 +741,33 @@ Halo的Reddit真是好消息不断<img src="https://static.saraba1st.com/image/s
 
 上线看看光环无限的奥利奥联动皮肤效果如何, 然后扫到了几个月前Year1 HCS送的阿迪达斯联动皮肤. 光环无限第一款不通过罕见商品Cdkey, 大范围发放的联动皮肤. 它名字叫'步入正轨'<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  槐聚  
+##### 68#       发表于 2023-1-21 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59423352&amp;ptid=2115593" target="_blank">D-JoeII 发表于 2023-1-20 14:23</a>
+
+索尼在2021年6月的瑞奇到2022年2月的地平线2之间8个月一样没新作推出,去年11月战神后下一个第一方也要预 ...</blockquote>
+砍内容？所有发售游戏都是被砍内容的，不可能原来设计做多少成品就做多少，这个属于业界常事
+
+法环也被砍掉了大量内容，结果还不是GOTY拿到手软
+
+跟索尼比，微软也公布了不少游戏了，有多少是有影子的？
+
+《State of Decay 3》有影子吗？
+
+《Forza 8》有影子吗？
+
+《Everwild》有影子吗？
+
+《Avowed》有影子吗？
+
+《Fable》有影子吗？
+
+哦，还有公布了N久的《Hell blade2》，都tm多少年了？
+
+这档子事，你围索还真救不了软，因为软实在是太拉胯了
+
