@@ -1304,3 +1304,38 @@ xgp原价买的人主力是欧美玩家，泥潭xgp玩家数能有1万出头吗�
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hentianwuya  
+##### 104#       发表于 2023-1-21 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59434158&amp;ptid=2115593" target="_blank">槐聚 发表于 2023-1-21 15:49</a>
+
+人微言轻？你看，你又犯了同样的毛病，特别喜欢使用暗示身份门槛的词语
+
+如果说我人微言轻[/b ...</blockquote>
+<strong>“我也用实例来说明了，按照微软的说法，索尼订阅服务占总收入的 40%～50%，因此在微软的数据里，这个订阅收入肯定不是死的订阅费加起来的收入。既然不是死的订阅费的收入，那怎么用这个数字就不能一概而论了”</strong>
+
+这句话居然还成了现存官方文件？这是被国内自媒体害的吧？想象也得靠原文件，泰坦失足这方面做得比你好多了，它基本都是在google和youtube上搜有源黑料，你这个直接从错误译文上联想算怎么回事？
+
+你去看看原文怎么说的吧，你一直拿个错误译文在那胜天半子是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+你说得对，我也是人微言轻，所以我很少发表你这种高谈阔论，因为我知道一定有更牛逼的人物打我的脸，而你就不同了，你现在是在被我打脸还在嘴硬。<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 105#       发表于 2023-1-21 16:01
+
+<img src="https://img.saraba1st.com/forum/202301/21/155957r40phdkz34pxxvlk.jpg" referrerpolicy="no-referrer">
+
+<strong>捕获2.JPG</strong> (97.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-21 15:59 上传
+
+发个原图给你，省得你瞎联想连TM具体数据是怎么来的都搞不懂，我就纳了闷了，就您这辨别来源的能力，你是怎么好意思东想西想的。<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
