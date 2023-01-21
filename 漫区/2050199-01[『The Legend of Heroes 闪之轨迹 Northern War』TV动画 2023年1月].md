@@ -4037,3 +4037,12 @@ B站港澳台：
 
 这第三话也太屎了，情节编排也是，打斗演出也是<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  6030sylar  
+##### 482#       发表于 2023-1-21 22:09
+
+想起当年小艾在卢安捉怪盗，大概也是这么弱智，不过fc那是郊游，这里北猎公款吃喝就太艹了
+
