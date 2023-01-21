@@ -1208,3 +1208,27 @@ https://www.bilibili.com/video/BV13K411D7m ...</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  子夜微雪  
+##### 96#       发表于 2023-1-21 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438090&amp;ptid=2114848" target="_blank">人生败犬河大吉 发表于 2023-1-21 21:36</a>
+以安洁的情况，她有足够的资源解决她关于洗 脑的疑问。她有作为女主随从的身份，有钱、有行动的自由、还有 ...</blockquote>
+你这么问就是想听剧透对吧。一来这个洗恼魔族确实不会解，他们连察觉都做不到。二来安洁确实是傻白甜，她说的话逻辑对不上就是因为都是被洗恼灌输进去的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  子夜微雪  
+##### 97#       发表于 2023-1-21 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59438167&amp;ptid=2114848" target="_blank">tand177 发表于 2023-1-21 21:40</a>
+不好意思，我不是尼尔大仙贝粉丝，还吸粉呢咱们客观点，安洁事实上就是个没管住下半身被人指使，杀 ...</blockquote>
+洋葱原谅她其实是出于同罪相怜就是了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
