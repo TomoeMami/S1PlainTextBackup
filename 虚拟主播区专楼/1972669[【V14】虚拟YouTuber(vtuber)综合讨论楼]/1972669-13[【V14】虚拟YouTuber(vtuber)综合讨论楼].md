@@ -1256,3 +1256,16 @@ FIRST TAKE调べても最高同接がYOASOBIとSIXTONESの12万
 
 finana这3d跟她直播一样无聊 最终也得到了德匹下的同接数字
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18400#       发表于 2023-1-21 17:00
+
+ 本帖最后由 格林卡罗尔 于 2023-1-21 17:08 编辑 
+
+最后一届cr apex也要开始了，可惜selen,kohaku,dtto这些人还是没机会参加
+
+syl つな刚刚才看清优胜奖励是DMM点数，脱口而出赛马娘，感觉没少氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
