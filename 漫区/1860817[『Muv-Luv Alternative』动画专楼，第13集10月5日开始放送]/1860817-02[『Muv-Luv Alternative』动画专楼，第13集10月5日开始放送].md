@@ -90,3 +90,15 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  oskneo  
+##### 2254#       发表于 2023-1-22 21:57
+
+刚看完12话，白银怎么跟纯夏和好了？
+他们的不和才是揭开那件事的铺垫，这样后面怎么演？
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
