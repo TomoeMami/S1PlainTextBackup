@@ -334,3 +334,16 @@ TV在4月份，新主角，听介绍，挺像501发进+静夏视觉的感觉（�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有今年怎么会场都租不起了就站公司门口吹冷风，也太惨了吧
 
+
+
+*****
+
+####  thee  
+##### 189#       发表于 2023-1-22 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59446302&amp;ptid=2104259" target="_blank">madcow 发表于 2023-1-22 15:07</a>
+我现在好怕AN铁炉哥就长图里那个碎甲马春花样啊草</blockquote>
+an铁炉出了啊，都进an混沌池了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
