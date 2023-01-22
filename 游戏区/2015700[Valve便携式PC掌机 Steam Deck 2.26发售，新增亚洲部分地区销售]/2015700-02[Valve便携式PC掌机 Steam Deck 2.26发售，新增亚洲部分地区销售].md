@@ -873,3 +873,15 @@ steam deck吧
 是同规格，换的sn740，看贴吧说原因是SN740比原装SSD厚，导致散热盖被SSD顶上去一点，导致电源IC接触不到 ...</blockquote>
 我靠，那换哪家SSD比较保险
 
+
+
+*****
+
+####  nage560  
+##### 2117#       发表于 2023-1-22 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59444497&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-22 11:20</a>
+
+看到了，估计要垫个硅胶垫，或者注意下。 贴吧说SN740 功耗太高，买个二手BG4 就行了？ 好像也有道理 ...</blockquote>
+大过年的买导热垫一时半会也寄不来，不知道用硅脂行不行？
+
