@@ -279,3 +279,12 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  carrasco21  
+##### 901#       发表于 2023-1-22 17:06
+
+你奥再不把系列构成和卖玩具策略改一改，我相信高开低走这种事可以一直持续下去，后期没东西写这种事哪怕是泽塔也出现了那么三四集。。不过这几年q3q4看财报都卖的飞起，估计也不会鸟一下作品本身的质量就是了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
