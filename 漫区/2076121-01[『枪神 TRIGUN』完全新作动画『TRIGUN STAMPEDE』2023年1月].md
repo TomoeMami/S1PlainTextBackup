@@ -2437,3 +2437,15 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 大妈之家就有漫画原作，有时间请看一眼吧真的很好看的
 [https://manhua.dmzj.com/qiangshen](https://manhua.dmzj.com/qiangshen)
 
+
+
+*****
+
+####  赛U灵  
+##### 228#       发表于 2023-1-22 18:01
+
+说的对，说到底亚撒西的不杀主义主角多的是，特别容易写的观感不好，为什么法修·斯坦比特能脱颖而出是真的有他非常独特的人格魅力，不会让读者对他的坚持感到厌烦（漫画看完了，感觉保守估计法修已经也成我最喜欢的前十名的角色了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）
+新作的确……全都补完后会感觉旧动画和剧场版都感觉不是完全准，但是就现在三集的情况就感觉新作气质跑偏最严重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然是原创企划啦好像要求完全对上也不大可能，但是看着就是不那么舒服也是真的（。）
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
