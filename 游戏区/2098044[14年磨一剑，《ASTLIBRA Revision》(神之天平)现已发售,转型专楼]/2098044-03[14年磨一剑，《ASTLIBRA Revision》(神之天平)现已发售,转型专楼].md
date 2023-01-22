@@ -5489,3 +5489,12 @@ b站专栏搜神之天平</blockquote>
 
 魔晶石来源，装备专精，扭蛋机，隐藏宝箱，斗技场。
 
+
+
+*****
+
+####  白金口袋  
+##### 3460#       发表于 2023-1-22 09:03
+
+第七章感想：妹子算个P，我要我的鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

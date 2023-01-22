@@ -833,3 +833,16 @@ steam deck吧
 
 我看贴吧有人说换硬盘后要给电源ic处贴导热垫，不然会烧，请问是会这样吗？
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2114#       发表于 2023-1-22 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59443295&amp;ptid=2015700" target="_blank">nage560 发表于 2023-1-22 07:33</a>
+我看贴吧有人说换硬盘后要给电源ic处贴导热垫，不然会烧，请问是会这样吗？ ...</blockquote>
+同规格SSD 不需要啊，估计是拆机时把什么搞错了
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
