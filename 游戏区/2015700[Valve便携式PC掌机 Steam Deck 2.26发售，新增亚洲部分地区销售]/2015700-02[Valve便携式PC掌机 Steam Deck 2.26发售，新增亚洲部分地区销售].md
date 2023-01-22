@@ -1030,3 +1030,19 @@ steam os比较傻，linux不熟的话还是重装steam  os，在里面先分�
 
 但是原系统这个强制更新啊，太傻了……能不能成功全看脸，而且最后一步失败的话会从头下载，太蠢了
 
+
+
+*****
+
+####  shinnfin  
+##### 2130#       发表于 2023-1-22 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448556&amp;ptid=2015700" target="_blank">烟萝 发表于 2023-1-22 19:28</a>
+steam os比较傻，linux不熟的话还是重装steam  os，在里面先分好区再装win10。
+
+但是原系统这个强制更新啊 ...</blockquote>
+steamos我倒是无所谓。。。我steam的游戏不多
+就想当win机补补老游戏的
+群里有人说全程都可以用pe操作<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+我还是等研究透了再折腾
+
