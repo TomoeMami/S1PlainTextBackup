@@ -1046,3 +1046,14 @@ steamos我倒是无所谓。。。我steam的游戏不多
 群里有人说全程都可以用pe操作<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 我还是等研究透了再折腾
 
+
+
+*****
+
+####  3123  
+##### 2131#       发表于 2023-1-22 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">网络，挺无脑的呀，路由挂个UU就结束了
+
+倒是官方应用在家里串流效果一塌糊涂，被装了steamlink的手机吊着锤，明明进桌面模式看到连上5g了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
