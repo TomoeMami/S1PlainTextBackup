@@ -846,3 +846,18 @@ steam deck吧
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nage560  
+##### 2115#       发表于 2023-1-22 09:33
+
+ 本帖最后由 nage560 于 2023-1-22 09:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59443586&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-22 09:09</a>
+
+同规格SSD 不需要啊，估计是拆机时把什么搞错了
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅 ...</blockquote>
+是同规格，换的sn740，看贴吧说原因是SN740比原装SSD厚，导致散热盖被SSD顶上去一点，导致电源IC接触不到散热盖引起散热不良。
+

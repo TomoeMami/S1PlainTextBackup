@@ -2381,3 +2381,16 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 
 剧情什么玩意，难道在做同人动画吗
 
+
+
+*****
+
+####  赛U灵  
+##### 223#       发表于 2023-1-22 09:40
+
+我已经不知道我究竟是因为看过更好的，所以对现在的剧情有画面加成也很想吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉目前大部分剧情情节都可以在原作或者旧动画里找到类似的，并且都处理比新作好，这不会显得新作很尴尬吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽然三弟做的真的好看，奈切山头这段也太精彩了orz
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
