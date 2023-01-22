@@ -8948,3 +8948,14 @@ https://www.bilibili.com/read/cv21339767
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 11290#       发表于 2023-1-22 16:46
+
+大阪day2
+1. 开场mc前 sayu: 今天鲤酱有话对大家说 鲤: 今天是中国的正月初一 我教给了大家あけましておめでとう的汉语 这时sayu伸手不停戳鲤鱼胳膊说 你再教一遍嘛 鲤鱼: 你果然又没记住 sayu: 大家也想先听你说一遍嘛 (大家附和) 鱼: 新～年～快～乐～大家: 新?嫩～快～落～
+2. 选妃 sayu被指后发出怪叫 鲤鱼: 你是人类吗 sayu: 是的，我是人类
+
