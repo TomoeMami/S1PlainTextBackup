@@ -885,3 +885,14 @@ steam deck吧
 看到了，估计要垫个硅胶垫，或者注意下。 贴吧说SN740 功耗太高，买个二手BG4 就行了？ 好像也有道理 ...</blockquote>
 大过年的买导热垫一时半会也寄不来，不知道用硅脂行不行？
 
+
+
+*****
+
+####  violettor  
+##### 2118#       发表于 2023-1-22 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59442079&amp;ptid=2015700" target="_blank">nozomitech 发表于 2023-1-22 00:50</a>
+ 我试过，可以，但是过场动画没法播，会直接报错然后跳过，比方说OP什么的。 所以我最后还是在电脑上玩了  ...</blockquote>
+谢谢，我用exagear在手机上跑也是一样的问题，看来只能考虑win掌机了。。
+
