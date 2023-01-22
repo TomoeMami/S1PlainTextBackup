@@ -861,3 +861,15 @@ steam deck吧
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅 ...</blockquote>
 是同规格，换的sn740，看贴吧说原因是SN740比原装SSD厚，导致散热盖被SSD顶上去一点，导致电源IC接触不到散热盖引起散热不良。
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2116#       发表于 2023-1-22 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59443696&amp;ptid=2015700" target="_blank">nage560 发表于 2023-1-22 09:33</a>
+
+是同规格，换的sn740，看贴吧说原因是SN740比原装SSD厚，导致散热盖被SSD顶上去一点，导致电源IC接触不到 ...</blockquote>
+我靠，那换哪家SSD比较保险
+
