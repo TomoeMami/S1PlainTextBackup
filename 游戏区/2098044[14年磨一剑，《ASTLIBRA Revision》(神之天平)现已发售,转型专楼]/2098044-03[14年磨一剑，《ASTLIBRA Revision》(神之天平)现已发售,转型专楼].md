@@ -5498,3 +5498,14 @@ b站专栏搜神之天平</blockquote>
 
 第七章感想：妹子算个P，我要我的鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希鲁夫  
+##### 3461#       发表于 2023-1-22 20:39
+
+第三章打完了火山神什么玩意儿力大砖飞硬莽过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外求教魔杖要怎么用，那个落雷的魔杖打点纯随机的啊
+
