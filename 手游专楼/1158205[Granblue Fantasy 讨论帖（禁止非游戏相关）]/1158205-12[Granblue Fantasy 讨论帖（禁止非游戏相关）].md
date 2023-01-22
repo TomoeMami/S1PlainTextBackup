@@ -36,3 +36,12 @@
 
 卡面好看还是有用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然大概率fkhr不会给免费角色多么优秀的性能，这个女帝太好看了还是打算刷起来
 
+
+
+*****
+
+####  Niu  
+##### 17273#       发表于 2023-1-23 06:04
+
+火龙的裸围裙太过冲击了。
+
