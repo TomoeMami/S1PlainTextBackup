@@ -424,3 +424,31 @@ FA，手滑了（
 
 我甚至怀疑外国的审核也是以皮肤露出面积来算的了.......
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 196#         楼主| 发表于 2023-1-22 20:53
+
+ 本帖最后由 江戸前ルナ 于 2023-1-22 20:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59449586&amp;ptid=2104259" target="_blank">孙光龙 发表于 2023-1-22 20:44</a>
+
+增加了后背的露出度，但是前面包的死死的
+
+我甚至怀疑外国的审核也是以皮肤露出面积来算的了....... ...</blockquote>
+应该不是这个问题。我猜的是岛田和阿金的小99：可持续性吸引消费<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（以后好设计
+
+第二年卖黑丝开胸乳，第三年灰丝侧乳，第四年可脱+类旗袍（卖侧大腿+腰股线条），今年的卖点是绝对领域+变色+裸背。比如今年再把侧面扣一块加个裸侧乳，不但无伤大雅而且还更性感，但可以留作以后的卖点为什么一次全都给你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就跟寡妇的原版和AN一个道理，明明AN可以做成原版的凸点，但偏偏让上身穿板甲不给你凸只给了个“一眼裸下身”，给原版保留一个优势<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 197#       发表于 2023-1-22 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">行吧，那我等着卖生足和屁股的那年
+
+如果还能多活几年的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
