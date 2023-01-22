@@ -5564,3 +5564,12 @@ b站专栏搜神之天平</blockquote>
 
 2023有游戏没自动存档？我半个小时白打！
 
+
+
+*****
+
+####  scrolli  
+##### 3467#       发表于 2023-1-23 03:26
+
+宝物图鉴里，天平洞窟那一栏最下面那个问号是有什么讲究吗，刷了好多趟不出了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
