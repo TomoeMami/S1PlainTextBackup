@@ -2467,3 +2467,57 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集的剧情真是一坨屎，主角这什么事都没干成只会逼逼的衰样真的恶心
 
+
+
+*****
+
+####  Piano-Forest  
+##### 231#         楼主| 发表于 2023-1-22 20:24
+
+<img src="https://p.sda1.dev/9/db7b5347f6ae31656b465e069c8633b7/20230122_202044.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/0883b276b98f6593a71f3defc7580f90/20230122_202106.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/621f6a792f91de8dbf3571ba4996615a/20230122_202110.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/2710b268aa291b6d6b84f7f9510e4617/20230122_202116.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/57c07ff5af9d579948bcf946aaafb28f/20230122_202121.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/df4dba3f829b1219b3a75cde1d839bf7/20230122_202124.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 232#       发表于 2023-1-22 20:25
+
+没看动画前看标题我还以为男主会是个逼王类的人设，第一集看完就感觉这男主好废啊，第二集跳着看了下男主还是没雄起我就弃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 233#         楼主| 发表于 2023-1-22 20:29
+
+[https://twitter.com/yujikaneko/status/1612724264070950912](https://twitter.com/yujikaneko/status/1612724264070950912)
+
+トライガンスタンピード一话のジュネオラロックのボードです。ジュネオラロックは３Dモデルを画用纸に印刷して絵の具で加笔するなんか大変な仕方をやっています。结局は描くので皆さん大変ご苦労を挂けてしまいました汗
+<img src="https://p.sda1.dev/9/607689c596084a538bbda9aec16da6ce/20230122_202326.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/866e589276d29c3595d60d41a09f95ec/20230122_202327.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/shunpei_ishida/status/1616838786570424320](https://twitter.com/shunpei_ishida/status/1616838786570424320)
+<img src="https://p.sda1.dev/9/319121ec3c20a7440329213aadeeb3c2/20230122_202530.jpg" referrerpolicy="no-referrer">
+
+2话ご视聴ありがとうございました。
+
+今回はヴァッシュが桥が崩れるのに気づくところからネブラスカが崩れる桥から飞び移るところまでのアニメーションを担当しました。
+
+ネブラスカは元気でパワフルなおじいちゃんなので动きを付けてて楽しかったです。
+<img src="https://p.sda1.dev/9/98841160d82bfd2dc2c657660eb9baad/20230122_202544.jpg" referrerpolicy="no-referrer">
+
+3话ご视聴ありがとうございました。
+
+今回はメリルがカメラでパシャっとするところから「心中ですわよ！」って言うカットあたりのアニメーションを担当させていただきました。
+
+メリルは表情がコロコロ変わるので动かしてて楽しいですね。
+<img src="https://p.sda1.dev/9/2a7bec0019a7003eed3ed574edd4acdc/20230122_202552.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/9/15a79d3af8bc4c7f6ec69bad21b5f49b/20230122_202755.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/4a9dafbc3c0bbee9895c2cbf86ca52ca/20230122_202758.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/2079abe0be9139b62546b44f7733d7fc/20230122_202800.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/19e86c7aa8ed3ea329cea892cec8127e/20230122_202802.jpg" referrerpolicy="no-referrer">
+
