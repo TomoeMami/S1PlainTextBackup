@@ -5527,3 +5527,12 @@ b站专栏搜神之天平</blockquote>
 
 后期攻速叠高之后，好几个魔杖强的就是个BUG……前期可以用丢球的两把逃逃课。
 
+
+
+*****
+
+####  希鲁夫  
+##### 3463#       发表于 2023-1-22 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我想知道第四章救小黑的时候如果选了去买石臼会怎么样
+
