@@ -396,3 +396,20 @@ FA，手滑了（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关服前做个单机版让我爽爽全角色吧
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 194#         楼主| 发表于 2023-1-22 20:01
+
+<img src="https://img.saraba1st.com/forum/202301/22/200135uz95np59nf9bk5rb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230122195916.png</strong> (62.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-22 20:01 上传
+
+妈的太绅士了<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
