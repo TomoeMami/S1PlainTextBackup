@@ -376,3 +376,14 @@ FA，手滑了（
 
 他妈的，阿嘎怎么成了这么个样子，我要将BBA们从这里一个不留的，驱逐出去啊！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 192#         楼主| 发表于 2023-1-22 19:16
+
+柳濑的贺图是故意的吧，我记得以前有岛田不是帮他修的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外这次周年捶饼，难道就这大冷天在外面捶24小时？成子坂虐待女演员又多了一条恶行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

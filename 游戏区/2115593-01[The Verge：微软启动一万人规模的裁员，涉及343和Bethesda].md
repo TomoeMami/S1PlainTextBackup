@@ -1676,3 +1676,32 @@ Mixed Reality Toolkit整个组都没了, HoloLens组也大范围被裁员潮影�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  clover293  
+##### 127#       发表于 2023-1-22 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59446643&amp;ptid=2115593" target="_blank">P02 发表于 2023-1-22 15:52</a>
+
+理想情况下是这样没错的……毕竟活生生的现金流，从根本上杀死二手，绕过发行商争取最大利润。只不过目前 ...</blockquote>
+outrider这个钱估计还是给到发行商，一些独立游戏估计会直接给到开发商
+
+*****
+
+####  415452356  
+##### 128#       发表于 2023-1-22 19:13
+
+  人能飞说他们没从outrider上盈利过一毛钱，SE没把钱给他们
+
+*****
+
+####  P02  
+##### 129#       发表于 2023-1-22 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448386&amp;ptid=2115593" target="_blank">clover293 发表于 2023-1-22 19:11</a>
+
+outrider这个钱估计还是给到发行商，一些独立游戏估计会直接给到开发商</blockquote>
+盈利的话会有分成给人来飞；人来飞是这样说的
+

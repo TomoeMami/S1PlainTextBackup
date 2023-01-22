@@ -992,3 +992,27 @@ C口都能充，PD协议应该都能激活快充
 
 我又得从头装……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinnfin  
+##### 2127#       发表于 2023-1-22 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448379&amp;ptid=2015700" target="_blank">烟萝 发表于 2023-1-22 19:10</a>
+不小心在win10里删除efi盘符的时候把分区删了
+
+我又得从头装…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">兄弟刷完win说说要注意啥   我也准备刷了
+
+*****
+
+####  shinnfin  
+##### 2128#       发表于 2023-1-22 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448379&amp;ptid=2015700" target="_blank">烟萝 发表于 2023-1-22 19:10</a>
+不小心在win10里删除efi盘符的时候把分区删了
+
+我又得从头装…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">兄弟刷完win说说要注意啥   我也准备刷了
+
