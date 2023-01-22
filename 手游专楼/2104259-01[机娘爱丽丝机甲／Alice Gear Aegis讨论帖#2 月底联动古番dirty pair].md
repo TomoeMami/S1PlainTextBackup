@@ -361,3 +361,18 @@ an铁炉出了啊，都进an混沌池了
 —— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 FA，手滑了（
 
+
+
+*****
+
+####  delphinian  
+##### 191#       发表于 2023-1-22 18:38
+
+数了下你游近十个普池pu新角色
+
+分别是：大鸟（22） 龙子（22） 尾长（23） 花浪（16） 师姐（21） 利佳（22） もえ（16） 老板娘（25） 神婆（20）  我龙&amp;光（18）
+
+未成年人只有两个，正牌JK只有一个！
+
+他妈的，阿嘎怎么成了这么个样子，我要将BBA们从这里一个不留的，驱逐出去啊！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

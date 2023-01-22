@@ -954,3 +954,30 @@ C口都能充，PD协议应该都能激活快充
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这么复杂吗
 我还没开机
 
+
+
+*****
+
+####  烟萝  
+##### 2124#       发表于 2023-1-22 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59447548&amp;ptid=2015700" target="_blank">shinnfin 发表于 2023-1-22 17:43</a>
+
+这么复杂吗
+
+我还没开机</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">根据我年轻时候折腾的经验……
+
+不熟悉这些东西又没有相应设备的人，埋在里头一周开不了机应该是可能的
+
+*****
+
+####  shinnfin  
+##### 2125#       发表于 2023-1-22 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448054&amp;ptid=2015700" target="_blank">烟萝 发表于 2023-1-22 18:37</a>
+根据我年轻时候折腾的经验……
+
+不熟悉这些东西又没有相应设备的人，埋在里头一周开不了机应该是可 ...</blockquote>
+开机没啥啊。。。我还没折腾win系统就是了   得去找教程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
