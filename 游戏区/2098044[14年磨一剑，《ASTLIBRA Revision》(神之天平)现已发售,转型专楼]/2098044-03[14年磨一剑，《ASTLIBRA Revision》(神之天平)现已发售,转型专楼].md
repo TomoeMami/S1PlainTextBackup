@@ -5536,3 +5536,15 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我想知道第四章救小黑的时候如果选了去买石臼会怎么样
 
+
+
+*****
+
+####  h1r0  
+##### 3464#       发表于 2023-1-22 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59451925&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-22 23:34</a>
+
+我想知道第四章救小黑的时候如果选了去买石臼会怎么样</blockquote>
+少个爱情，没啥影响
+
