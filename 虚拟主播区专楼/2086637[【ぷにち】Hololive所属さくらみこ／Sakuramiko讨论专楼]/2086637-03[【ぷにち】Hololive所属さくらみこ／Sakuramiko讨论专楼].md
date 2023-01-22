@@ -11275,3 +11275,14 @@ ID已经在播最后生还者了之前说想玩但是运营好像不允许播不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有mc这个最后的堡垒了
 
+
+
+*****
+
+####  holoan  
+##### 4049#         楼主| 发表于 2023-1-22 22:52
+
+みこち「やれ！」
+
+ヤゴー「はぃぃ」
+
