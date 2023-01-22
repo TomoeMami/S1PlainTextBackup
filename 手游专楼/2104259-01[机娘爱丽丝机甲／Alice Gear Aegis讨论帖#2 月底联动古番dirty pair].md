@@ -347,3 +347,17 @@ an铁炉出了啊，都进an混沌池了<img src="https://static.saraba1st.com/i
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  madcow  
+##### 190#       发表于 2023-1-22 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59446505&amp;ptid=2104259" target="_blank">thee 发表于 2023-1-22 15:37</a>
+
+an铁炉出了啊，都进an混沌池了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+FA，手滑了（
+
