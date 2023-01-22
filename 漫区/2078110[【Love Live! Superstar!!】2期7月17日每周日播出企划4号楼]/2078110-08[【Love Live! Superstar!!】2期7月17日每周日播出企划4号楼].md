@@ -8873,3 +8873,14 @@ https://www.bilibili.com/read/cv21339767
 
 新年快乐
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 11282#       发表于 2023-1-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59440398&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-21 23:21</a>
+按现地所说，全文是 “前两天发售的BD，Liella 2nd最后一场也是在这里，大阪城ホール5个人在这里演出过， ...</blockquote>
+反正本人作为铁杆五老星箱推觉得鱼这话说的特别体贴，老粉丝有什么想法是老粉丝的事，对于鱼来说把9人（以及未来的12人）liella搞得和睦融融不是很好吗
+
