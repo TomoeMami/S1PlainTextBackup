@@ -1016,3 +1016,17 @@ C口都能充，PD协议应该都能激活快充
 我又得从头装…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">兄弟刷完win说说要注意啥   我也准备刷了
 
+
+
+*****
+
+####  烟萝  
+##### 2129#       发表于 2023-1-22 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448452&amp;ptid=2015700" target="_blank">shinnfin 发表于 2023-1-22 19:18</a>
+
+兄弟刷完win说说要注意啥   我也准备刷了</blockquote>
+steam os比较傻，linux不熟的话还是重装steam  os，在里面先分好区再装win10。
+
+但是原系统这个强制更新啊，太傻了……能不能成功全看脸，而且最后一步失败的话会从头下载，太蠢了
+

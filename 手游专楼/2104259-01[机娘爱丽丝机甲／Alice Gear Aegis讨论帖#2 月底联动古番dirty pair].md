@@ -387,3 +387,12 @@ FA，手滑了（
 
 另外这次周年捶饼，难道就这大冷天在外面捶24小时？成子坂虐待女演员又多了一条恶行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 193#       发表于 2023-1-22 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关服前做个单机版让我爽爽全角色吧
+
