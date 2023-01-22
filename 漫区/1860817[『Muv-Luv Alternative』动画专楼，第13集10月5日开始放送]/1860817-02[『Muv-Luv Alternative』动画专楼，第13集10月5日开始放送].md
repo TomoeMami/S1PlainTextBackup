@@ -77,3 +77,16 @@
 
 2023-1-22 19:47 上传
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2253#       发表于 2023-1-22 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448784&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2023-1-22 19:47</a>
+看片不仔细，有升力风扇的</blockquote>
+战术机就只有jump unit了，像勇哉只剩一个也能飞就比较不科学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
