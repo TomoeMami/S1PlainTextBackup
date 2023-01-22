@@ -1573,3 +1573,15 @@ HoloLens整个组都没了, 虽然我觉得VR元宇宙不一定靠谱, 但是这
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  D-JoeII  
+##### 119#       发表于 2023-1-22 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59443298&amp;ptid=2115593" target="_blank">泰坦失足 发表于 2023-1-22 07:35</a>
+
+Mixed Reality Toolkit整个组都没了, HoloLens组也大范围被裁员潮影响, 虽然我觉得VR元宇宙不一定靠谱, 但 ...</blockquote>
+这关Xbox的事情吗
+
