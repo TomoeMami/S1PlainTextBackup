@@ -940,3 +940,17 @@ C口都能充，PD协议应该都能激活快充
 我这还是设备技术齐全 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国人也卡更新最后一秒
 
+
+
+*****
+
+####  shinnfin  
+##### 2123#       发表于 2023-1-22 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59446874&amp;ptid=2015700" target="_blank">烟萝 发表于 2023-1-22 16:22</a>
+还没装双系统呢已经折腾了一天了，这光网络问题和登录就劝退一帮人啊
+
+我这还是设备技术齐全 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这么复杂吗
+我还没开机
+
