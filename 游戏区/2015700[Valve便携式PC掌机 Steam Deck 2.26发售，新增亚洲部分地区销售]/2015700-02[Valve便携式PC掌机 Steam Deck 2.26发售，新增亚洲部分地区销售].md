@@ -896,3 +896,24 @@ steam deck吧
  我试过，可以，但是过场动画没法播，会直接报错然后跳过，比方说OP什么的。 所以我最后还是在电脑上玩了  ...</blockquote>
 谢谢，我用exagear在手机上跑也是一样的问题，看来只能考虑win掌机了。。
 
+
+
+*****
+
+####  oldttt  
+##### 2119#       发表于 2023-1-22 15:04
+
+问一下ns充电器给deck用行么 我看参数功率差一些
+
+*****
+
+####  硫黄  
+##### 2120#       发表于 2023-1-22 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59446284&amp;ptid=2015700" target="_blank">oldttt 发表于 2023-1-22 15:04</a>
+
+问一下ns充电器给deck用行么 我看参数功率差一些</blockquote>
+C口都能充，PD协议应该都能激活快充
+
+功率不够只是慢
+
