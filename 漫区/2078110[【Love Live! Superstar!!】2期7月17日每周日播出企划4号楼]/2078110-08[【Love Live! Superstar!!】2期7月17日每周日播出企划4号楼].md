@@ -8833,3 +8833,16 @@ AF229B5F-CCC1-4B6C-868F-15EB9128B2E5.jpeg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  後藤正文  
+##### 11278#       发表于 2023-1-22 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59440774&amp;ptid=2078110" target="_blank">adw667 发表于 2023-1-21 23:44</a>
+https://www.bilibili.com/read/cv21339767
+
+还挺合身</blockquote>
+什么战鹰<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

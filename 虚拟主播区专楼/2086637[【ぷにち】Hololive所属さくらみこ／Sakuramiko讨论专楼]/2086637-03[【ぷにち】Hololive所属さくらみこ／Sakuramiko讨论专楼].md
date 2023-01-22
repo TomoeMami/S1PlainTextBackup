@@ -11232,3 +11232,15 @@ syl这片评分还挺高。
 
 真的假的，感觉这弄成铃声是要社死的节奏
 
+
+
+*****
+
+####  rs5621  
+##### 4045#       发表于 2023-1-22 09:18
+
+泡芙，这个能发么，不行我换个其他的。
+这个带点其他主播梗的对话还蛮好玩的<img src="https://p.sda1.dev/9/02d8f0043c03d372399829adf37563b9/CMP_20230122091748689.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
