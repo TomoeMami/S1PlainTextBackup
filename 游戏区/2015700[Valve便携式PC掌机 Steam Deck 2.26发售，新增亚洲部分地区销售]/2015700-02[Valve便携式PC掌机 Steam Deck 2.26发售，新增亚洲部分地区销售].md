@@ -981,3 +981,14 @@ C口都能充，PD协议应该都能激活快充
 不熟悉这些东西又没有相应设备的人，埋在里头一周开不了机应该是可 ...</blockquote>
 开机没啥啊。。。我还没折腾win系统就是了   得去找教程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烟萝  
+##### 2126#       发表于 2023-1-22 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+我又得从头装……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
