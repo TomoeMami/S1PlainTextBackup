@@ -448,3 +448,22 @@ ff15剧本短是小田田弄了超超超超超大的剧本但只做了3成，这
 是同一个人，荒牧岳志。forspoken这游戏是18年3月立项的，小田田离职是18年9月，6个月顶多前期工作完成， ...</blockquote>
 小甜甜怕是看到这玩意直接吓跑了
 
+
+
+*****
+
+####  hideo13  
+##### 424#       发表于 2023-1-24 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461092&amp;ptid=1993889" target="_blank">ff2077 发表于 2023-1-23 22:28</a>
+
+7re后续的导演不就是个程序吗</blockquote>
+浜口好歹出身是跟着松野泰己做分镜的，并不能算是像小林裕幸那种除了程序之外满脑浆糊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShiKi847  
+##### 425#       发表于 2023-1-24 00:18
+
+说实在的，夜光组的人如果被解散，估计会被丢去手游组做手游了，北濑的第一开发部和吉田的第三开发部估计也不想接盘
+

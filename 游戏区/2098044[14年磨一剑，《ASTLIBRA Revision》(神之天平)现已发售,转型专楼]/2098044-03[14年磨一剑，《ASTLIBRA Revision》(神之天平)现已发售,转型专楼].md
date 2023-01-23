@@ -5730,3 +5730,55 @@ b站专栏搜神之天平</blockquote>
 
 建议去打掉封印城下面的邪神，拿到神之左手技能，提升非常大。
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3482#       发表于 2023-1-24 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462067&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-23 23:54</a>
+
+这个难度曲线是不是有问题？中等难度，前六章没怎么卡关，第七章回故乡开始鬼畜一不小心就被秒，第八章实在 ...</blockquote>
+什么稀有/传说装备？本篇只看面板，稀有度有个卵用。
+
+该不会是没拿到高级配方，导致合成不了高面板装备吧
+
+*****
+
+####  yufangwen  
+##### 3483#       发表于 2023-1-24 00:15
+
+ 本帖最后由 yufangwen 于 2023-1-24 00:16 编辑 
+
+第二章有个宝箱死活拿不到，看攻略也没有说这有宝箱的。进城里第一天晚上会看到阿奴李斯，追出去一直往右。射了几十只箭射终于射到了，然而只听到音效，也没有宝箱出来，是之后才能拿到吗？
+
+<img src="https://img.saraba1st.com/forum/202301/24/001504tzvs6as58o2c6zvs.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230124001450.png</strong> (206.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 00:15 上传
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3484#       发表于 2023-1-24 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462311&amp;ptid=2098044" target="_blank">yufangwen 发表于 2023-1-24 00:15</a>
+
+第二章有个宝箱死活拿不到，看攻略也没有说这有宝箱的。进城里第一天晚上会看到阿奴李斯，追出去一直往右。 ...</blockquote>
+箭靶消失才算成功吧，宝箱要渡河才能看见
+
+*****
+
+####  yufangwen  
+##### 3485#       发表于 2023-1-24 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462343&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-24 00:18</a>
+箭靶消失才算成功吧，宝箱要渡河才能看见</blockquote>
+已经消失了，那么什么时候才能过河呢，如果快的话我就sl一下看之后能捡到不
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
