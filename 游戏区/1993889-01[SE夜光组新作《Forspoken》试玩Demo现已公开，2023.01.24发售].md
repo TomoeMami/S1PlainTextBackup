@@ -467,3 +467,25 @@ ff15剧本短是小田田弄了超超超超超大的剧本但只做了3成，这
 
 说实在的，夜光组的人如果被解散，估计会被丢去手游组做手游了，北濑的第一开发部和吉田的第三开发部估计也不想接盘
 
+
+
+*****
+
+####  2082082012  
+##### 426#       发表于 2023-1-24 00:26
+
+滨口能上位和15年出的最终幻想莫比乌斯这个手游有不少关系
+看staff就知道原来ff核心人物基本流放搞这个手游了的这里面导演鸟山求，脚本野岛，制作人北濑，项目负责人就是滨口了。
+等到这帮老家伙回来，滨口一下就拿到正作ff导演位置之一了。第一部三个导演也明显有带新人的意思
+<img src="https://p.sda1.dev/9/1c6a4fdb3114d54ddd4c687153f80855/CMP_20230124002642717.jpg" referrerpolicy="no-referrer">
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BigLittle1999  
+##### 427#       发表于 2023-1-24 00:29
+
+女主身世弃婴+开局盗窃上法庭，黑人刻板印象拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

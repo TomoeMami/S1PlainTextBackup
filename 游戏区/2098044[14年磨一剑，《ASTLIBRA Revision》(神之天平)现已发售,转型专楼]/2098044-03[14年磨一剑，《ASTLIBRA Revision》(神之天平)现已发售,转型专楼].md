@@ -5782,3 +5782,56 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3486#       发表于 2023-1-24 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462357&amp;ptid=2098044" target="_blank">yufangwen 发表于 2023-1-24 00:20</a>
+
+已经消失了，那么什么时候才能过河呢，如果快的话我就sl一下看之后能捡到不
+
+—— 来自 S1Fun ...</blockquote>
+要拿到空中步行能力才能过，先往后打吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yufangwen| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  M1NG  
+##### 3487#       发表于 2023-1-24 00:24
+
+ 本帖最后由 M1NG 于 2023-1-24 00:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462357&amp;ptid=2098044" target="_blank">yufangwen 发表于 2023-1-24 00:20</a>
+
+已经消失了，那么什么时候才能过河呢，如果快的话我就sl一下看之后能捡到不
+
+—— 来自 S1Fun ...</blockquote>
+相对比较后期才行，是一个挺牛逼的饰品装备来着，楼里较久前有楼友说过用某凭依技可以偷鸡提前拿到，可以往前翻翻
+
+找到了，是在2528楼，用雷枪
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yufangwen| + 1|好评加鹅|
+
+查看全部评分
+
