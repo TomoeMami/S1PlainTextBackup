@@ -9561,3 +9561,52 @@ sid这个封面，so可可。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 11333#       发表于 2023-1-23 19:01
+
+ 本帖最后由 starring 于 2023-1-23 19:02 编辑 
+
+pay3月21日1st live
+
+<img src="https://img.saraba1st.com/forum/202301/23/190251o9aaqfgv9aeje9q1.jpg" referrerpolicy="no-referrer">
+
+<strong>20230123190230.jpg</strong> (72.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-23 19:02 上传
+
+*****
+
+####  Kfly  
+##### 11334#       发表于 2023-1-23 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459245&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-23 18:53</a>
+也不能说完全没效果，可可在单人同人这一块现在冷的不像票选第一，看同人的繁盛度你可能觉得可可都 ...</blockquote>
+个人塑造S1E3后基本为零，甚至负塑造，全去成全其他角色是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+粉丝已经很难想象可可自己独自一人会去做些什么了
+（可恋快凑一对玩游戏去吧）
+
+*****
+
+####  saya1892  
+##### 11335#       发表于 2023-1-23 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不错，就是听到是伊能津所以才有动力每天花式变换昵称凑组合写理由投可可单人，大概投了20多票吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 稀勢のささ| + 2|思路广|
+
+查看全部评分
+
