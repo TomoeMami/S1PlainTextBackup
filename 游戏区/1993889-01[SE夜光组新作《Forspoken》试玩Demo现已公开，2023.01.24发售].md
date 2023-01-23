@@ -349,3 +349,21 @@ re1都多少老人在，而且浜口主张的最后战那又长又臭的boss实�
 
 没……没事……也不是第一次当冤大头了……我没事……<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 415#       发表于 2023-1-23 23:26
+
+这游戏曝光度很高了吧，这都雷了…
+
+*****
+
+####  名字已被吃  
+##### 416#       发表于 2023-1-23 23:30
+
+demo出来后，不雷才是新闻，连着巴比伦和这个，有点怀疑索尼还硬推这俩是不是因为ff16和7re签的捆绑协议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

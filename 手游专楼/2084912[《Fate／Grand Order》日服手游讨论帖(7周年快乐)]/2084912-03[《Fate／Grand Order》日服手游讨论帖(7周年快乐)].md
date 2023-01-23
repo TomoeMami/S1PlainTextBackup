@@ -290,3 +290,14 @@
 
 我现在脑子里的剧本是，蘑菇这逼又搞小任性，2.7就是上下，但他写了一堆和主线没啥关系但他自己很满足的东西，然后交给别的写手（大概率是他的灵魂之友樱井光）写275擦屁股。最后拖到年底出2.0终章。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 4448#       发表于 2023-1-23 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终章前还得回次冬木，今年真的见得到终章吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

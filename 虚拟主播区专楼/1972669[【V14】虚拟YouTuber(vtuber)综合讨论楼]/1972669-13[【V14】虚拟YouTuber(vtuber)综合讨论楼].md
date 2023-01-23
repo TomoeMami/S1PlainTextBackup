@@ -1407,3 +1407,19 @@ hnn队和selly队做跳点邻居，只有前两局有游戏体验，不过因为
 
 莎皇那歌原来是工商，可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18417#       发表于 2023-1-23 23:21
+
+事实证明vta只能起到一个辅助的作用，小清水透最强
+
+*****
+
+####  CielChloe  
+##### 18418#       发表于 2023-1-23 23:28
+
+游戏打得好是不需要vta的呀，下限是能保证的
+
