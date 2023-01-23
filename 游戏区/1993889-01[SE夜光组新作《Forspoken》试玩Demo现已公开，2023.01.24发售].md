@@ -601,3 +601,16 @@ CC 高清版怎么分这么低
 
 SE这几年除了FF7RE还有不是答辩的游戏吗
 
+
+
+*****
+
+####  navarra  
+##### 439#       发表于 2023-1-24 06:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59463304&amp;ptid=1993889" target="_blank">江南映月 发表于 2023-1-24 03:32</a>
+CC 高清版怎么分这么低</blockquote>
+官方模拟器都做不好……
+
+—— 来自 samsung SM-G9880, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
