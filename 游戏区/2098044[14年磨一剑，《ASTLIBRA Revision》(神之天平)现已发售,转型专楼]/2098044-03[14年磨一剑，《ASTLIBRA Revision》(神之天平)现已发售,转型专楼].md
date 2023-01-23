@@ -5844,3 +5844,52 @@ b站专栏搜神之天平</blockquote>
 
 用雷枪拿也挺麻烦的，而且那个饰品只是一个成长晶体1.3倍饰品，属于前期有的话锦上添花，能更快点满当前章节的成长盘，但是没有的话也不会影响很大的道具。
 
+
+
+*****
+
+####  又花了五块钱  
+##### 3489#       发表于 2023-1-24 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462311&amp;ptid=2098044" target="_blank">yufangwen 发表于 2023-1-24 00:15</a>
+第二章有个宝箱死活拿不到，看攻略也没有说这有宝箱的。进城里第一天晚上会看到阿奴李斯，追出去一直往右。 ...</blockquote>
+我很好奇你第二章怎么过的守卫……我第七章拿了秘药才过的……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  又花了五块钱  
+##### 3490#       发表于 2023-1-24 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462404&amp;ptid=2098044" target="_blank">M1NG 发表于 2023-1-24 00:24</a>
+相对比较后期才行，是一个&amp;#x ...</blockquote>
+什么饰品？一直没找到别人视频里空中步行的能力，我是用第六章拿了空步冲过去的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  又花了五块钱  
+##### 3491#       发表于 2023-1-24 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462304&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-24 00:14</a>
+什么稀有/传说装备？本篇只看面板，稀有度有个卵用。
+
+该不会是没拿到高级配方，导致合成不了高面板装备吧 ...</blockquote>
+比如第七章，我穿着第六章刷出来的最好的盔甲，最好面板的锤子，被蚂蚱+大树秒到怀疑人生……
+我知道可以躲，但是我不想玩的和黑魂一样啊，上一章顶级装备下一章根一张纸一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Earendil_C  
+##### 3492#       发表于 2023-1-24 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462756&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:08</a>
+比如第七章，我穿着第六章刷出来的最好的盔甲，最好面板的锤子，被蚂蚱+大树秒到怀疑人生……
+我知道可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第八章就是难度最粪的一章，充满了各种无前摇攻击的坦克
+在刷出第一个第八章装备之前可以洗点魔导力拿弓箭一路射，简单又轻松
+
