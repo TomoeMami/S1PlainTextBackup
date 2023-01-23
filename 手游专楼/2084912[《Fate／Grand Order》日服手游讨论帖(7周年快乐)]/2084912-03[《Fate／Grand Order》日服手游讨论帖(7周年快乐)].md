@@ -97,3 +97,20 @@
 甚至狩猎本都不开 你还想复课</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太TMD弱智了 这帮人没被人捅死只能说霓虹人太废物了
 
+
+
+*****
+
+####  Blackson  
+##### 4429#       发表于 2023-1-23 18:46
+
+说实话，我甚至有种它们要用2.7下章来鸽掉以往的惯例情人节活动的感觉
+只能说日本人真就给颗糖（指开新角卡池）就忘了痛（长草没事做）
+
+*****
+
+####  里村紅葉  
+##### 4430#       发表于 2023-1-23 18:49
+
+等一个31号再发消息说还没做完接着鸽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5607,3 +5607,15 @@ b站专栏搜神之天平</blockquote>
 第七章感想：妹子算个P，我要我的鸟</blockquote>
 男人可以没有老婆孩子，但是不能没有鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  s32244153  
+##### 3471#       发表于 2023-1-23 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59453619&amp;ptid=2098044" target="_blank">scrolli 发表于 2023-1-23 03:26</a>
+
+宝物图鉴里，天平洞窟那一栏最下面那个问号是有什么讲究吗，刷了好多趟不出了 ...</blockquote>
+最高级宝箱的设计图吧 难度没选太高的话回头刷就行了
+
