@@ -9350,3 +9350,23 @@ sid这个封面，so可可。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 11313#       发表于 2023-1-23 11:43
+
+吧友修改版[https://tieba.baidu.com/p/823033 ... 3D5A856D6AB610C0FDC](https://tieba.baidu.com/p/8230330640?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.35.1.0&amp;st=1674445366&amp;is_video=false&amp;unique=DB9F4F31A6BC23D5A856D6AB610C0FDC)
+<img src="https://p.sda1.dev/9/7746f5254ddd7efbd4bac7a33f1ca2ce/CMP_20230123114159663.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11314#       发表于 2023-1-23 11:50
+
+<blockquote>帽子は一期生カラーの花と手首には緑のブレスレットか
+
+なるほどね</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好家伙原来唐可可你才是真正的五人原理
+
