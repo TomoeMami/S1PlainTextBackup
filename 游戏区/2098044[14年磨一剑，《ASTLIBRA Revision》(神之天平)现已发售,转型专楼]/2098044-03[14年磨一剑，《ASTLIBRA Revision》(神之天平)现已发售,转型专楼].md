@@ -5696,3 +5696,23 @@ b站专栏搜神之天平</blockquote>
 试玩版能玩多久？</blockquote>
 估计1-2小时……
 
+
+
+*****
+
+####  又花了五块钱  
+##### 3479#       发表于 2023-1-23 23:54
+
+这个难度曲线是不是有问题？中等难度，前六章没怎么卡关，第七章回故乡开始鬼畜一不小心就被秒，第八章实在受不了了改成了简单，打boss还是刮痧，不注意跳到弹幕口或者激光没躲开就是被秒，真的离了大谱，我这还一身稀有/传说装备，8个托盘太平配的100%各种极。我只想看下剧情+无双啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  otakun  
+##### 3480#       发表于 2023-1-23 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462067&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-23 23:54</a>
+这个难度曲线是不是有问题？中等难度，前六章没怎么卡关，第七章回故乡开始鬼畜一不小心就被秒，第八章实在 ...</blockquote>
+成长和装备刷满了吗，这游戏不是第七章开始怪就不够看了？弹幕都是血瓶，一直剑舞一直回血一直爽
+
