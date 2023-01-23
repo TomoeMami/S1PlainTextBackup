@@ -2521,3 +2521,12 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 <img src="https://p.sda1.dev/9/2079abe0be9139b62546b44f7733d7fc/20230122_202800.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/19e86c7aa8ed3ea329cea892cec8127e/20230122_202802.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ichthys  
+##### 234#       发表于 2023-1-24 01:23
+
+出血量有点大啊 一转黑深残酷？
+

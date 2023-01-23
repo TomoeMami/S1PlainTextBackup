@@ -5920,3 +5920,17 @@ b站专栏搜神之天平</blockquote>
 —— 来自 S1Fun ...</blockquote>
 力量晶体勋章，加力量晶体获得率的。空中步行还要再往后才拿到，叫“失重”，在第八章一个宝箱会出
 
+
+
+*****
+
+####  M1NG  
+##### 3495#       发表于 2023-1-24 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462741&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:05</a>
+
+我很好奇你第二章怎么过的守卫……我第七章拿了秘药才过的……
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前三章有两次被大贤者拉进其他次元的时候，那时候全城都没人可以随便走
+
