@@ -9649,3 +9649,23 @@ pay3月21日1st live</blockquote>
 这就开live？唱什么呢？不会都是翻唱吧</blockquote>
 去年宣布的原创曲企划已经完成收录，live上会唱
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 11340#       发表于 2023-1-23 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459342&amp;ptid=2078110" target="_blank">saya1892 发表于 2023-1-23 19:04</a>
+不错，就是听到是伊能津&amp;#x62 ...</blockquote>
+辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 11341#       发表于 2023-1-23 20:07
+
+pay的solo活动还是很期待的
+
