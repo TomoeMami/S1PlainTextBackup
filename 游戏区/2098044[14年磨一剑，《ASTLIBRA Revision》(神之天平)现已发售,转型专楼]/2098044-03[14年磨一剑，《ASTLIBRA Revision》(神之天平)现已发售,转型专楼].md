@@ -5949,3 +5949,14 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ⑨  
+##### 3497#       发表于 2023-1-24 01:51
+
+打到第五章了，带不带百真的会严重影响后面的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
