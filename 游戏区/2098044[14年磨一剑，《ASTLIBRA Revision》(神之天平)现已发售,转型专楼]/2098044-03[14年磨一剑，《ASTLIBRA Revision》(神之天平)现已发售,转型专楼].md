@@ -5960,3 +5960,18 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  M1NG  
+##### 3498#       发表于 2023-1-24 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462971&amp;ptid=2098044" target="_blank">⑨ 发表于 2023-1-24 01:51</a>
+打到第五章了，带不带百真的会严重影响后面的剧情吗
+
+—— 来自 Xiaomi 2211133C, Android 13上的 S ...</blockquote>
+反而说其实是完全没有影响，就是膈应你一下<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
