@@ -5934,3 +5934,18 @@ b站专栏搜神之天平</blockquote>
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前三章有两次被大贤者拉进其他次元的时候，那时候全城都没人可以随便走
 
+
+
+*****
+
+####  又花了五块钱  
+##### 3496#       发表于 2023-1-24 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462779&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-24 01:12</a>
+是的，上一章顶级装备就是下一章根一张纸，所以去合成这章的装备吧。
+
+上一章的装备淘汰了也不亏，毕竟给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打败了世界魔王的勇者回老家被路边蚂蚱一口喷死也是jrpg醍醐味不可不尝
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
