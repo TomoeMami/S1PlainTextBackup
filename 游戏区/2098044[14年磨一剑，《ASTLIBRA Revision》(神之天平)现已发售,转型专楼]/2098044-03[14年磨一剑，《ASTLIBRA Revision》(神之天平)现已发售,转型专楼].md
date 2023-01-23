@@ -5672,3 +5672,27 @@ b站专栏搜神之天平</blockquote>
 
 试玩版能玩多久？
 
+
+
+*****
+
+####  christiny  
+##### 3477#       发表于 2023-1-23 23:40
+
+【如何在魔神打出1000次成就（困难难度）】 
+[https://www.bilibili.com/video/BV1Ux4y1M7Se/](https://www.bilibili.com/video/BV1Ux4y1M7Se/)
+
+玩第二遍了，自录困难模式，魔神很多人没发现火球环的变化，火焰环发射子弹时，内圈是没有伤害判定的。利用这一点可以疯狂输出。
+
+我第一遍玩的时候在这里拿到了1000连击成就。
+
+*****
+
+####  christiny  
+##### 3478#       发表于 2023-1-23 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461674&amp;ptid=2098044" target="_blank">mggr 发表于 2023-1-23 23:19</a>
+
+试玩版能玩多久？</blockquote>
+估计1-2小时……
+

@@ -367,3 +367,14 @@ demo出来后，不雷才是新闻，连着巴比伦和这个，有点怀疑索�
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lazycat233  
+##### 417#       发表于 2023-1-23 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩到demo战斗就是哪个技能cd好了就按哪个，甚至有按完一个技能给你切下一个cd好了的技能接着按，技能一开就啥都看不到，闪避也是按一个按键自动闪避突出一个无脑
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
