@@ -5628,3 +5628,15 @@ b站专栏搜神之天平</blockquote>
 
 选了个地狱难度开始玩，前期还好，后面打到第七章回故乡绷不住了，各种堆怪加boss前不给存档点，堪比魂2蓝高达，甚至更恶臭
 
+
+
+*****
+
+####  tansapple  
+##### 3473#       发表于 2023-1-23 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59460303&amp;ptid=2098044" target="_blank">sdbone 发表于 2023-1-23 21:08</a>
+
+选了个地狱难度开始玩，前期还好，后面打到第七章回故乡绷不住了，各种堆怪加boss前不给存档点，堪比魂2蓝 ...</blockquote>
+善用雷魔杖和逃课神器弩箭进行卡画面输出，虽然打起来很磨叽，但是胜在安逸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

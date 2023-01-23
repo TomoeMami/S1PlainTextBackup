@@ -161,3 +161,39 @@ vgc、rpg site等多家游戏媒体表示se拒绝提供评测码因此无法给�
 官方跑分测出的分数和实际表现不符， ...</blockquote>
 事实上，个人的感觉是ff15的瓶颈很大程度上是cpu，在4k渲染100%所有选项拉满并且不开dlss的情况下，9900k平台显卡从2080ti到3090到4090，性能一直上不去，稳定60都很难。但是换成13900k 4090之后，直接120满帧了。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 395#         楼主| 发表于 2023-1-23 22:04
+
+ 本帖最后由 Piano-Forest 于 2023-1-23 22:08 编辑 
+
+IGN 6：
+[https://www.ign.com/articles/forspoken-review](https://www.ign.com/articles/forspoken-review)
+
+GS 5：
+[https://www.gamespot.com/reviews ... saken/1900-6418019/](https://www.gamespot.com/reviews/forspoken-review-forsaken/1900-6418019/)
+
+MC 67 9 评：
+[https://www.metacritic.com/game/playstation-5/forspoken](https://www.metacritic.com/game/playstation-5/forspoken)
+
+*****
+
+####  ShiKi847  
+##### 396#       发表于 2023-1-23 22:07
+
+ 本帖最后由 ShiKi847 于 2023-1-23 22:10 编辑 
+
+太惨了，小田田走后这个组反而不会做游戏了，引擎也迭代着迭代着迭烂了
+
+这工作室负责人兼导演是一个程序出生的，好像还是SE三大天才程序员之一,只能说程序还是做不了导演么
+
+*****
+
+####  nage560  
+##### 397#       发表于 2023-1-23 22:08
+
+竟然这个都雷了，去年被se坑惨了，这次不上当了，骨折再考虑一下。
+
