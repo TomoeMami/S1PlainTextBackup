@@ -578,3 +578,17 @@ MC 60+的游戏好久没看到了，牛哇</blockquote>
 
 —— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  江南映月  
+##### 437#       发表于 2023-1-24 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59463231&amp;ptid=1993889" target="_blank">sword混沌 发表于 2023-1-24 02:57</a>
+
+说明你看少了，光前两年就一堆
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+CC 高清版怎么分这么低
+
