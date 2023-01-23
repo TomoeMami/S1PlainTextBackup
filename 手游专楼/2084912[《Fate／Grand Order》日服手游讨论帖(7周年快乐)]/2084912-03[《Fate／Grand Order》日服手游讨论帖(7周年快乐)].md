@@ -171,3 +171,47 @@
 
 <img src="https://p.sda1.dev/9/ad48b3209c2b005e91d5c9a4ba836f70/CMP_20230123214252321.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 4437#       发表于 2023-1-23 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59460589&amp;ptid=2084912" target="_blank">zakki 发表于 2023-1-23 21:42</a>
+
+来点儿精英论坛的精英发言</blockquote>
+不意外，当初菌类说2.0主线完了fgo就关服，隔壁骂的就挺狠的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过，这事还是得分开看，没fgo估计你月现在也不会这么滋润。虽然拖了这么久，现在确实有点挤压其他作品的空间了。
+
+*****
+
+####  黑上シグマ  
+##### 4438#       发表于 2023-1-23 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59460589&amp;ptid=2084912" target="_blank">zakki 发表于 2023-1-23 21:42</a>
+
+来点儿精英论坛的精英发言</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在？为什么要倒垃圾？
+
+*****
+
+####  Jamaisvu  
+##### 4439#       发表于 2023-1-23 22:36
+
+1.31开就1.31开吧，只希望快点实装几个新角色让我开开眼，看看螺旋社废寝忘食拖了好几个月做的人物有多华丽。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+烟雾镜最好也赶紧放出来，后篇pick up 2就可以......千万别拖到3月当白情限定男从者，我真的受不了那种刺激...<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 4440#       发表于 2023-1-23 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461132&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2023-1-23 22:31</a>
+不意外，当初菌类说2.0主线完了fgo就关服，隔壁骂的就挺狠的。
+
+不过，这事还是得分开看，没fgo估 ...</blockquote>
+没人否认fgo的贡献和重要程度，但隔壁总是喜欢屁大点儿事就搬出fgo和索尼绑架蘑菇和型月，属实是有点儿玩不起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5651,3 +5651,15 @@ b站专栏搜神之天平</blockquote>
 
 搞笑部分的剧情挺有味道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 3475#       发表于 2023-1-23 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59460303&amp;ptid=2098044" target="_blank">sdbone 发表于 2023-1-23 21:08</a>
+
+选了个地狱难度开始玩，前期还好，后面打到第七章回故乡绷不住了，各种堆怪加boss前不给存档点，堪比魂2蓝 ...</blockquote>
+多用弩箭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然看起来很玩具，但伤害确实爆高
+

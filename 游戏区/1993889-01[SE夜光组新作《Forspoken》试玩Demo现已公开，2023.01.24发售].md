@@ -261,3 +261,40 @@ demo那素质，不出意外的答辩啊<img src="https://static.saraba1st.com/i
 
 这分基本是答辩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ShiKi847  
+##### 406#       发表于 2023-1-23 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461092&amp;ptid=1993889" target="_blank">ff2077 发表于 2023-1-23 22:28</a>
+
+7re后续的导演不就是个程序吗</blockquote>
+滨口直树算在re1证明自己了吧，好像最后打萨菲罗斯也是他要求加进去的
+
+*****
+
+####  2082082012  
+##### 407#       发表于 2023-1-23 22:32
+
+夜光引擎开始负责人早在做15的时候就跑了，现在夜光就是个烂摊子真的很好本部早用上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  任天索尼子  
+##### 408#       发表于 2023-1-23 22:37
+
+依托答辩，不知道索尼掏了多少钱做冤大头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShiKi847  
+##### 409#       发表于 2023-1-23 22:39
+
+索尼估计也是被当初第一个内部demo骗到了，再加上制作组是做FF15的，就下单了
+
+还是高估了夜光引擎这个垃圾啊，这引擎是真能缩+优化差啊
+
