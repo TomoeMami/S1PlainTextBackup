@@ -197,3 +197,19 @@ MC 67 9 评：
 
 竟然这个都雷了，去年被se坑惨了，这次不上当了，骨折再考虑一下。
 
+
+
+*****
+
+####  zpl123  
+##### 398#       发表于 2023-1-23 22:18
+
+《Forspoken》媒体评分解禁，目前MC平均分66分，共收录33家媒体。GameSpot 5分，IGN 6分。
+
+*****
+
+####  ff2077  
+##### 399#       发表于 2023-1-23 22:19
+
+demo那素质，不出意外的答辩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
