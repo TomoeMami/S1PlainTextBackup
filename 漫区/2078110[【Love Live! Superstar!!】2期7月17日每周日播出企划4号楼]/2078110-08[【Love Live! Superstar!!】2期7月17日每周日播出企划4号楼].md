@@ -9390,3 +9390,21 @@ sid这个封面，so可可。
 
 画的挺好的，把手环颜色换成橙色就更好了真是无时无刻不插缝卖你那CP
 
+
+
+*****
+
+####  lj205  
+##### 11317#       发表于 2023-1-23 14:35
+
+太可爱了
+
+*****
+
+####  player3960  
+##### 11318#       发表于 2023-1-23 14:38
+
+这封面投票，值了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
