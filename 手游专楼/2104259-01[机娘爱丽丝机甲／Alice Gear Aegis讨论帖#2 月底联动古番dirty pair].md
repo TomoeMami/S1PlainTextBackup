@@ -452,3 +452,14 @@ FA，手滑了（
 
 如果还能多活几年的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 198#         楼主| 发表于 2023-1-23 11:38
+
+【【中字】TV动画「Alice・Gear・Aegis Expansion」第1话先行特别PV-哔哩哔哩】 [https://b23.tv/tQm3dAa](https://b23.tv/tQm3dAa)
+
+右下角夜露小人跳出来时笑死我了
+

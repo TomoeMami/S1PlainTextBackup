@@ -1080,3 +1080,14 @@ steamos我倒是无所谓。。。我steam的游戏不多
 
 你们L2和R2扳机键手感一样吗？
 
+
+
+*****
+
+####  shinzero  
+##### 2134#       发表于 2023-1-23 11:31
+
+虽然我用U盘插deck的帖子被大家一顿狂喷，但我还是觉得用U盘装WINDOWS还是不错的。不用折腾双系统，性能也比用TF卡好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
