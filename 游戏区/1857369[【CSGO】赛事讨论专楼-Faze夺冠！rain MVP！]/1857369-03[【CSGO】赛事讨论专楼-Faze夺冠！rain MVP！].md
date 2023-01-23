@@ -57,3 +57,15 @@ Niko小镇防守纯纯的犯罪啊
 
 niko这把跟队友磕个头吧，这防守真的看的高血压犯了，有的东西真的不是数据能体现的
 
+
+
+*****
+
+####  aimpoint  
+##### 3098#       发表于 2023-1-24 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462660&amp;ptid=1857369" target="_blank">dddyghr 发表于 2023-1-24 00:54</a>
+
+niko这把跟队友磕个头吧，这防守真的看的高血压犯了，有的东西真的不是数据能体现的 ...</blockquote>
+有优势就猛送，太典了。
+
