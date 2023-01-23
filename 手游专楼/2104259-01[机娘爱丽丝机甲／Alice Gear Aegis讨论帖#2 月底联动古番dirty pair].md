@@ -472,3 +472,20 @@ FA，手滑了（
 
 明年应该是今年的黑色版，再调整一部分设计
 
+
+
+*****
+
+####  yygundam  
+##### 200#       发表于 2023-1-23 12:47
+
+ 本帖最后由 yygundam 于 2023-1-23 12:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448059&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-1-22 18:38</a>
+
+数了下你游近十个普池pu新角色
+
+分别是：大鸟（22） 龙子（22） 尾长（23） 花浪（16） 师姐（21） 利佳（22 ...</blockquote>
+所以我现在异常期待战女复刻了，那边都是正牌JK和JC（
+
+顺带一提我现在事务所3个人里有俩是战女的
+
