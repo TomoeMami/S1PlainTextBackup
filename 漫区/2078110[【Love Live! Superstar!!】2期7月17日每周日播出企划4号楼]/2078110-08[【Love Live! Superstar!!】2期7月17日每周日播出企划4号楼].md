@@ -9726,3 +9726,12 @@ pay的solo活动还是很期待的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连去4期的意思？
 
+
+
+*****
+
+####  lj205  
+##### 11348#       发表于 2023-1-24 00:46
+
+好奇这个助理是做啥，看维基说是点自己想唱的歌然后わし会弹吉他伴奏给自己唱？
+

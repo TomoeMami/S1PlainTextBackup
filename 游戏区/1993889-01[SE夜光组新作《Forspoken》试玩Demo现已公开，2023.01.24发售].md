@@ -498,3 +498,12 @@ ff15剧本短是小田田弄了超超超超超大的剧本但只做了3成，这
 
 se的又一坨，这喷射效率也太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫出没注意  
+##### 429#       发表于 2023-1-24 00:48
+
+只能说很符合se近些年整体游戏质量给人的印象。
+

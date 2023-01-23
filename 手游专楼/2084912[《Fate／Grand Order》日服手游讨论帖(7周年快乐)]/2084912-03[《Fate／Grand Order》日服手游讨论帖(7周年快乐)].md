@@ -312,3 +312,12 @@
 
 虽然情人节大多数剧情都是每年再重用，1.31开主线而要2月第2星期就开活动，也太辛苦营运了...
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4450#       发表于 2023-1-24 00:50
+
+每年必须给新卡新增内容的情人节是不可能没有的，不要虚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
