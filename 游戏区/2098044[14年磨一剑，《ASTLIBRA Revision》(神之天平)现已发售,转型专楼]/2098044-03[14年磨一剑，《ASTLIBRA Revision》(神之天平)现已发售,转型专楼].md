@@ -5975,3 +5975,12 @@ b站专栏搜神之天平</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  空集  
+##### 3499#       发表于 2023-1-24 03:11
+
+感觉有小时候玩伊苏那种味了。。。冒险RPG 在这个年代真的很可贵啊 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
