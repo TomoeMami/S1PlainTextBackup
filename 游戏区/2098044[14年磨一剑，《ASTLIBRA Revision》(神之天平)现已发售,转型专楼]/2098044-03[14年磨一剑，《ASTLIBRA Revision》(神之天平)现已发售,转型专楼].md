@@ -5595,3 +5595,15 @@ b站专栏搜神之天平</blockquote>
 这游戏存档点设置还是不错了，每隔2几个房间或者过一段剧情必然有存档。养成勤存档的好习惯。 ...</blockquote>
 主要我选的困难小怪伤害有点高加上太久没玩传统存档游戏了  好在丢的当时只是很前期的东西
 
+
+
+*****
+
+####  narizen  
+##### 3470#       发表于 2023-1-23 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59443558&amp;ptid=2098044" target="_blank">白金口袋 发表于 2023-1-22 09:03</a>
+
+第七章感想：妹子算个P，我要我的鸟</blockquote>
+男人可以没有老婆孩子，但是不能没有鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

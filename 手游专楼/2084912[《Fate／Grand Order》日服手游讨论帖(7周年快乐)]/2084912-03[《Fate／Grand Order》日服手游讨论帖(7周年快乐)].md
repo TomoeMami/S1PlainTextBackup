@@ -61,3 +61,39 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太NB了 还真tm的31号
 
+
+
+*****
+
+####  黑上シグマ  
+##### 4425#       发表于 2023-1-23 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得找个地方把剩的茶壶用掉，当天晚上我估计我是来不及用
+
+*****
+
+####  qixinno2  
+##### 4426#       发表于 2023-1-23 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 这么长时间随便出个轻量复刻之类的也行啊
+
+*****
+
+####  alucardcz  
+##### 4427#       发表于 2023-1-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459057&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-1-23 18:33</a>
+
+艹 这么长时间随便出个轻量复刻之类的也行啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至狩猎本都不开 你还想复课
+
+*****
+
+####  qixinno2  
+##### 4428#       发表于 2023-1-23 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459074&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-23 18:34</a>
+
+甚至狩猎本都不开 你还想复课</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太TMD弱智了 这帮人没被人捅死只能说霓虹人太废物了
+
