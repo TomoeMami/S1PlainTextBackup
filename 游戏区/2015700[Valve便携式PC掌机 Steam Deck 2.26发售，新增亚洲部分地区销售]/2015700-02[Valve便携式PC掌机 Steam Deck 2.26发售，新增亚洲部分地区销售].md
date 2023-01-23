@@ -1057,3 +1057,17 @@ steamos我倒是无所谓。。。我steam的游戏不多
 
 倒是官方应用在家里串流效果一塌糊涂，被装了steamlink的手机吊着锤，明明进桌面模式看到连上5g了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉沃契金  
+##### 2132#       发表于 2023-1-23 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59448599&amp;ptid=2015700" target="_blank">shinnfin 发表于 2023-1-22 19:31</a>
+steamos我倒是无所谓。。。我steam的游戏不多
+就想当win机补补老游戏的
+群里有人说全程都可以用pe操作[f: ...</blockquote>
+要只是装win，过程和重装电脑一样，就是记得最后去官网下几个驱动
+要是双系统，那有的折腾……挑网络，挑u盘，我折腾了两个晚上，启动项还没折腾完
+
