@@ -5573,3 +5573,14 @@ b站专栏搜神之天平</blockquote>
 
 宝物图鉴里，天平洞窟那一栏最下面那个问号是有什么讲究吗，刷了好多趟不出了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  christiny  
+##### 3468#       发表于 2023-1-23 08:51
+
+<blockquote>空集 发表于 2023-1-23 02:23
+2023有游戏没自动存档？我半个小时白打！</blockquote>
+这游戏存档点设置还是不错了，每隔2几个房间或者过一段剧情必然有存档。养成勤存档的好习惯。
+
