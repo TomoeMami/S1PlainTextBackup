@@ -5893,3 +5893,30 @@ b站专栏搜神之天平</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第八章就是难度最粪的一章，充满了各种无前摇攻击的坦克
 在刷出第一个第八章装备之前可以洗点魔导力拿弓箭一路射，简单又轻松
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3493#       发表于 2023-1-24 01:12
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2023-1-24 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462756&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:08</a>
+比如第七章，我穿着第六章刷出来的最好的盔甲，最好面板的锤子，被蚂蚱+大树秒到怀疑人生……
+我知道可以 ...</blockquote>
+是的，上一章顶级装备就是下一章根一张纸，所以去合成这章的装备吧。
+
+上一章的装备淘汰了也不亏，毕竟给魔导水晶和技能
+
+*****
+
+####  M1NG  
+##### 3494#       发表于 2023-1-24 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462746&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:06</a>
+
+什么饰品？一直没找到别人视频里空中步行的能力，我是用第六章拿了空步冲过去的
+
+—— 来自 S1Fun ...</blockquote>
+力量晶体勋章，加力量晶体获得率的。空中步行还要再往后才拿到，叫“失重”，在第八章一个宝箱会出
+
