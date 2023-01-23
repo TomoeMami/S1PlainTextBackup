@@ -244,3 +244,22 @@
 大胆点 直接周年从者 大统领直接下周年</blockquote>
 强度够的话周年从者也无所谓，我就是不想看到白情那堆漂亮礼装旁边摆着一张抽象的handsome脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 4444#       发表于 2023-1-23 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461211&amp;ptid=2084912" target="_blank">zakki 发表于 2023-1-23 22:37</a>
+
+没人否认fgo的贡献和重要程度，但隔壁总是喜欢屁大点儿事就搬出fgo和索尼绑架蘑菇和型月，属实是有点儿玩 ...</blockquote>
+隔壁一直都挺玩不起的。看个乐就完事了。
+
+*****
+
+####  kuarwbwe  
+##### 4445#       发表于 2023-1-23 23:01
+
+作为一个一直奶3月出的2.7下的，能31号出对我而言已经很惊讶了。不过究其根源，大概是我早就不指望你游运营（同时指国服和日服）能整出什么让我激动的活了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
