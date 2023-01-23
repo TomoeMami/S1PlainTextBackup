@@ -5984,3 +5984,14 @@ b站专栏搜神之天平</blockquote>
 
 感觉有小时候玩伊苏那种味了。。。冒险RPG 在这个年代真的很可贵啊 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  sdbone  
+##### 3500#       发表于 2023-1-24 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461258&amp;ptid=2098044" target="_blank">M1NG 发表于 2023-1-23 22:41</a>
+多用弩箭 虽然看起来很玩&amp;# ...</blockquote>
+看出来了，以前真以为是玩具，这尼玛射出来是核弹啊，wtmsb<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
