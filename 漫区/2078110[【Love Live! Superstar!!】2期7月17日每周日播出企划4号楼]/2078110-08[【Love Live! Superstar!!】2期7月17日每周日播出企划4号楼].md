@@ -9526,3 +9526,19 @@ sid这个封面，so可可。
 毕竟一期就一副可/香与其他的样子，二期的大香老师待遇好归好那也不是能吸粉的样子啊至于脱粉的怕 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就内地最喜欢拿着大喇叭喊我转X推可怜XX了吧
 
+
+
+*****
+
+####  牛李  
+##### 11329#       发表于 2023-1-23 18:14
+
+你们让花田怎么办啊，他二期都这么尽力降可可人气了，这不是没效果吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11330#       发表于 2023-1-23 18:19
+
+只是笔墨上的消耗能搞出来负外部性我是服气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
