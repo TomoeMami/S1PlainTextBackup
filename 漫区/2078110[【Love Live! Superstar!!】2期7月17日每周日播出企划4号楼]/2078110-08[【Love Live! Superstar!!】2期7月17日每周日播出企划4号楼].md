@@ -9494,3 +9494,14 @@ sid这个封面，so可可。
 是</blockquote>
 企划这么欺负可可结果还是人气最高…
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11326#       发表于 2023-1-23 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59458519&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2023-1-23 17:21</a>
+企划这么欺负可可结果还是人气最高…</blockquote>
+毕竟一期就一副可/香与其他的样子，二期的大香老师待遇好归好那也不是能吸粉的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">至于脱粉的怕是直接就跑了谁会转推其他角色啊
+
