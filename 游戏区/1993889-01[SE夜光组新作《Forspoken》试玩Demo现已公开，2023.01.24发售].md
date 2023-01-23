@@ -298,3 +298,15 @@ demo那素质，不出意外的答辩啊<img src="https://static.saraba1st.com/i
 
 还是高估了夜光引擎这个垃圾啊，这引擎是真能缩+优化差啊
 
+
+
+*****
+
+####  2082082012  
+##### 410#       发表于 2023-1-23 22:42
+
+这游戏还卖这么贵，配置要求还高
+se我哭死，又出demo还只坑富人钱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

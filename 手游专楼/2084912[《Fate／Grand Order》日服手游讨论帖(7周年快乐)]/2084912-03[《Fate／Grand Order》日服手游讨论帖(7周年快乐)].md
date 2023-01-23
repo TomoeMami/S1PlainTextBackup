@@ -215,3 +215,32 @@
 不过，这事还是得分开看，没fgo估 ...</blockquote>
 没人否认fgo的贡献和重要程度，但隔壁总是喜欢屁大点儿事就搬出fgo和索尼绑架蘑菇和型月，属实是有点儿玩不起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4441#       发表于 2023-1-23 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461200&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-23 22:36</a>
+
+1.31开就1.31开吧，只希望快点实装几个新角色让我开开眼，看看螺旋社废寝忘食拖了好几个月做的人物有多华丽 ...</blockquote>
+大胆点 直接周年从者 大统领直接下周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 4442#       发表于 2023-1-23 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">随便出 反正我0石0呼符 
+
+*****
+
+####  Jamaisvu  
+##### 4443#       发表于 2023-1-23 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461254&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-23 22:40</a>
+
+大胆点 直接周年从者 大统领直接下周年</blockquote>
+强度够的话周年从者也无所谓，我就是不想看到白情那堆漂亮礼装旁边摆着一张抽象的handsome脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
