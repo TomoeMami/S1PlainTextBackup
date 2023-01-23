@@ -9669,3 +9669,26 @@ pay3月21日1st live</blockquote>
 
 pay的solo活动还是很期待的
 
+
+
+*****
+
+####  仟音一心  
+##### 11342#       发表于 2023-1-23 20:53
+
+<img src="https://p.sda1.dev/9/a63405a95246bfabc46a89b9b4d67e5f/1639181004.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 11343#       发表于 2023-1-23 20:56
+
+<img src="https://p.sda1.dev/9/629e089a8c93c0d13663c9019ea6c3f7/419912942.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 11344#       发表于 2023-1-23 20:56
+
+<img src="https://p.sda1.dev/9/629e089a8c93c0d13663c9019ea6c3f7/419912942.jpg" referrerpolicy="no-referrer">
+
