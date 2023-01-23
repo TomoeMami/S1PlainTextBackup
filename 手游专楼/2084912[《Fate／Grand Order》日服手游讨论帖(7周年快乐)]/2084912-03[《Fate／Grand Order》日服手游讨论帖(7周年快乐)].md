@@ -263,3 +263,15 @@
 
 作为一个一直奶3月出的2.7下的，能31号出对我而言已经很惊讶了。不过究其根源，大概是我早就不指望你游运营（同时指国服和日服）能整出什么让我激动的活了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4446#       发表于 2023-1-23 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461488&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2023-1-23 23:01</a>
+
+作为一个一直奶3月出的2.7下的，能31号出对我而言已经很惊讶了。不过究其根源，大概是我早就不指望你游运营 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能你说下 和实际的下 不是一回事   真下篇（完结篇） 3月出
+

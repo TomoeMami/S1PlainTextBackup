@@ -310,3 +310,23 @@ se我哭死，又出demo还只坑富人钱<img src="https://static.saraba1st.com
 
 —— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  飞甩姬猫  
+##### 411#       发表于 2023-1-23 23:06
+
+<blockquote>ShiKi847 发表于 2023-1-23 22:32
+滨口直树算在re1证明自己了吧，好像最后打萨菲罗斯也是他要求加进去的</blockquote>
+re1都多少老人在，而且浜口主张的最后战那又长又臭的boss实在不行
+
+*****
+
+####  415452356  
+##### 412#       发表于 2023-1-23 23:07
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼连巴比伦这种大便都硬着头皮推了一波，这个不太可能比巴比伦差
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
