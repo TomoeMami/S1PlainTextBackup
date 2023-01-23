@@ -9542,3 +9542,22 @@ sid这个封面，so可可。
 
 只是笔墨上的消耗能搞出来负外部性我是服气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 11331#       发表于 2023-1-23 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不能说完全没效果，可可在单人同人这一块现在冷的不像票选第一，看同人的繁盛度你可能觉得可可都去和恋平起平坐了
+
+*****
+
+####  ruffian  
+##### 11332#       发表于 2023-1-23 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459245&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-01-23 18:53:30</a>
+也不能说完全没效果，可可在单人同人这一块现在冷的不像票选第一，看同人的繁盛度你可能觉得可可都去和恋平 ...</blockquote>cp工具人是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
