@@ -213,3 +213,51 @@ MC 67 9 评：
 
 demo那素质，不出意外的答辩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小米稀饭-  
+##### 400#       发表于 2023-1-23 22:22
+
+笑死了，赶紧把夜光组和引擎打包卖一卖吧，纯纯浪费资源瞎搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 401#       发表于 2023-1-23 22:23
+
+打扰了，看来demo的问题一个都没解决……
+
+*****
+
+####  米高扬  
+##### 402#       发表于 2023-1-23 22:24
+
+虽然肯定了战斗但还是公式化开放世界啊
+
+*****
+
+####  光与暗的转生  
+##### 403#       发表于 2023-1-23 22:27
+
+这游戏送我我都不玩
+
+*****
+
+####  ff2077  
+##### 404#       发表于 2023-1-23 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59460859&amp;ptid=1993889" target="_blank">ShiKi847 发表于 2023-1-23 22:07</a>
+太惨了，小田田走后这个组反而不会做游戏了，引擎也迭代着迭代着迭烂了
+
+这工作室负责人兼导演是一个程序出 ...</blockquote>
+7re后续的导演不就是个程序吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 405#       发表于 2023-1-23 22:29
+
+这分基本是答辩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5640,3 +5640,14 @@ b站专栏搜神之天平</blockquote>
 选了个地狱难度开始玩，前期还好，后面打到第七章回故乡绷不住了，各种堆怪加boss前不给存档点，堪比魂2蓝 ...</blockquote>
 善用雷魔杖和逃课神器弩箭进行卡画面输出，虽然打起来很磨叽，但是胜在安逸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希鲁夫  
+##### 3474#       发表于 2023-1-23 22:24
+
+打完第四章了，这剧情变化有点快啊
+
+搞笑部分的剧情挺有味道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
