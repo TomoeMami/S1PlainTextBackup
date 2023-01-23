@@ -614,3 +614,12 @@ CC 高清版怎么分这么低</blockquote>
 
 —— 来自 samsung SM-G9880, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  valand  
+##### 440#       发表于 2023-1-24 07:02
+
+就se这几年的发挥，ff16大概率也是雷
+
