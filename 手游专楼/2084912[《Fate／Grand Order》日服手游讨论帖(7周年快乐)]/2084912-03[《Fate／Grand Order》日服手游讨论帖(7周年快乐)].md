@@ -275,3 +275,18 @@
 作为一个一直奶3月出的2.7下的，能31号出对我而言已经很惊讶了。不过究其根源，大概是我早就不指望你游运营 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能你说下 和实际的下 不是一回事   真下篇（完结篇） 3月出
 
+
+
+*****
+
+####  kuarwbwe  
+##### 4447#       发表于 2023-1-23 23:14
+
+ 本帖最后由 kuarwbwe 于 2023-1-23 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461500&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-23 23:02</a>
+
+有没有可能你说下 和实际的下 不是一回事   真下篇（完结篇） 3月出</blockquote>
+3月能有个真下篇能看不错了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我现在脑子里的剧本是，蘑菇这逼又搞小任性，2.7就是上下，但他写了一堆和主线没啥关系但他自己很满足的东西，然后交给别的写手（大概率是他的灵魂之友樱井光）写275擦屁股。最后拖到年底出2.0终章。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -330,3 +330,22 @@ re1都多少老人在，而且浜口主张的最后战那又长又臭的boss实�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Rintani_Yahato  
+##### 413#       发表于 2023-1-23 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461534&amp;ptid=1993889" target="_blank">飞甩姬猫 发表于 2023-1-23 23:06</a>
+
+re1都多少老人在，而且浜口主张的最后战那又长又臭的boss实在不行</blockquote>
+菲拉好像不是他的主意，他只说要加个萨菲罗斯
+
+*****
+
+####  ef6270  
+##### 414#       发表于 2023-1-23 23:21
+
+没……没事……也不是第一次当冤大头了……我没事……<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
