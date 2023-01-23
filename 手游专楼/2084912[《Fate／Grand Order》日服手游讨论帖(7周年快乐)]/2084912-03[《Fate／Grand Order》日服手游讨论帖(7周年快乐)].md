@@ -27,3 +27,19 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qixinno2  
+##### 4421#       发表于 2023-1-23 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的纯废物 去年二部回忆拖了多长时间 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4422#       发表于 2023-1-23 18:06
+
+哦牛批，这什么几把产能
+
