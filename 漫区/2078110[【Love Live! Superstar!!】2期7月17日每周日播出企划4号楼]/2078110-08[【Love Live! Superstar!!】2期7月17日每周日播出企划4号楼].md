@@ -9473,3 +9473,24 @@ sid这个封面，so可可。
 
 这个封面是根据人气投票来的吗
 
+
+
+*****
+
+####  Kfly  
+##### 11324#       发表于 2023-1-23 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59458400&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2023-1-23 17:07</a>
+这个封面是根据人气投票来的吗</blockquote>
+是
+<img src="https://p.sda1.dev/9/8d7c460b29ec689c80f8b5183ba00e59/b9055521@oss-1674458216497.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 11325#       发表于 2023-1-23 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59458482&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-23 17:16</a>
+是</blockquote>
+企划这么欺负可可结果还是人气最高…
+
