@@ -9619,3 +9619,33 @@ pay3月21日1st live
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本懒狗也投了十几票但没写理由，也不知道有多少算进去了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11337#       发表于 2023-1-23 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459317&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-23 19:01</a>
+pay3月21日1st live</blockquote>
+好像才690的场子 是不是小了点
+
+*****
+
+####  qty  
+##### 11338#       发表于 2023-1-23 19:44
+
+<blockquote>starring 发表于 2023-1-23 19:01
+pay3月21日1st live</blockquote>
+这就开live？唱什么呢？不会都是翻唱吧
+
+*****
+
+####  starring  
+##### 11339#       发表于 2023-1-23 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59459645&amp;ptid=2078110" target="_blank">qty 发表于 2023-1-23 19:44</a>
+
+这就开live？唱什么呢？不会都是翻唱吧</blockquote>
+去年宣布的原创曲企划已经完成收录，live上会唱
+
