@@ -565,3 +565,16 @@ se的又一坨，这喷射效率也太高了<img src="https://static.saraba1st.c
 
 MC 60+的游戏好久没看到了，牛哇
 
+
+
+*****
+
+####  sword混沌  
+##### 436#       发表于 2023-1-24 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59463048&amp;ptid=1993889" target="_blank">缺德猫 发表于 2023-1-24 02:09</a>
+MC 60+的游戏好久没看到了，牛哇</blockquote>
+说明你看少了，光前两年就一堆<img src="https://p.sda1.dev/9/ab1d6fbace4ff8d91b08f9349fdf0a98/-1a3a088aa92d164d.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
