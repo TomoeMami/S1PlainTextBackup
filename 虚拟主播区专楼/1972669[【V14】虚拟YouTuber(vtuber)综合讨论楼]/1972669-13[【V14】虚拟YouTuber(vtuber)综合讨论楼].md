@@ -1489,3 +1489,29 @@ syl vspo也来研究生制度，乐了
 
 是不是田园时代有类似的啊，35啥的
 
+
+
+*****
+
+####  高等黑暗  
+##### 18426#       发表于 2023-1-24 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462288&amp;ptid=1972669" target="_blank">poipanchao 发表于 2023-1-24 00:12</a>
+
+真的不是原批的力量吗</blockquote>
+完全不是 同期另一个女人迟小清水1天开原，晚上10点黄金时段同接只有1000出头，播其他的时候反而同接高点，可以说原完全是负加成
+
+小清水原到早晨5点还有5000人，开播的时候更多
+
+*****
+
+####  poipanchao  
+##### 18427#       发表于 2023-1-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59469805&amp;ptid=1972669" target="_blank">高等黑暗 发表于 2023-1-24 19:44</a>
+
+完全不是 同期另一个女人迟小清水1天开原，晚上10点黄金时段同接只有1000出头，播其他的时候反而同接高点 ...</blockquote>
+开原以后订阅激增连超大明星和苏菲就是了，那个时候刚好有群友在斗虫
+
+不过，是不是各种剪辑发力就不知道了
+
