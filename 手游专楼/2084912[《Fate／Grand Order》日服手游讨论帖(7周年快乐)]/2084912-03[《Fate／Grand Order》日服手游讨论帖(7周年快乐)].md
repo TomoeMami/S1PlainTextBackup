@@ -366,3 +366,12 @@
 ----发送自  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能在买！
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 4455#       发表于 2023-1-24 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护符出了尼托，看来fgo的确是新年这一段运气会比较好
+
