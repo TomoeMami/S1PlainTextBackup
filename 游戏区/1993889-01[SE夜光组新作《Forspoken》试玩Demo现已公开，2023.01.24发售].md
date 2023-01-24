@@ -1371,3 +1371,14 @@ FF16又是新引擎，但夜光时不时发个什么更新演示，还做个这�
 
 PC载了试玩 DLSS质量下能有90帧 感觉还行  原本夜光演示的那个妹子怕是能骗到我  尼妹最多等5折<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈词与芍药  
+##### 508#       发表于 2023-1-25 05:11
+
+通关了，8小时半，建议严查夜光组或者解散吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
