@@ -690,3 +690,33 @@ CC 高清版怎么分这么低</blockquote>
 
 当年看这个演示我还挺喜欢主角这个造型，非常符合我的短发性癖，怎么最后成了这副模样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  P02  
+##### 448#       发表于 2023-1-24 09:56
+
+<blockquote>HankHill 发表于 2023-1-24 09:51
+我看到有人说这作源自当年那个Agni’s philosophy (https://b23.tv/toBNtqL)演示，后来开发方向变了几次就 ...</blockquote>
+数毛社？好像提到了
+
+*****
+
+####  nancygreenlife  
+##### 449#       发表于 2023-1-24 09:57
+
+SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公司内部得有个评估吧？要是内部评价很烂的话，那为什么还要端出来？要是内部评价很好，那SE的判断力已经退化到如此地步了吗？
+
+*****
+
+####  HankHill  
+##### 450#       发表于 2023-1-24 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464115&amp;ptid=1993889" target="_blank">P02 发表于 2023-1-24 09:56</a>
+
+数毛社？好像提到了</blockquote>
+4chan一个楼里看到的，说是蓝鸟有个游戏编辑说这游戏开发的时候经历了特别重大的开发方向变更。
+
+如果数毛社也说过那看来信源不止一个，有点震撼到了，SE这几年都在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
