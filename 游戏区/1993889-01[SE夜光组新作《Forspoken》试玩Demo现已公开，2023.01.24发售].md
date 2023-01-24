@@ -1074,3 +1074,25 @@ se的自研引擎之路算是断了老老实实虚幻全家桶吧
 
 这是骗索尼独占费？
 
+
+
+*****
+
+####  GuardHei  
+##### 481#       发表于 2023-1-24 15:23
+
+ 本帖最后由 GuardHei 于 2023-1-24 15:24 编辑 
+
+去年gdc，夜光组来分享的人表示这是他第一次做游戏引擎
+整体技术选型也都是5-8年前的感觉，demo里还有很多技术本来能解决但是明显地编没摆好出bug了
+有没有可能就是待遇不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhacaizn  
+##### 482#       发表于 2023-1-24 15:30
+
+se这一串雷作，ff16真的能例外吗
+
