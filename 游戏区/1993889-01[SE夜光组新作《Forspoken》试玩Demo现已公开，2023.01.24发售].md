@@ -1197,3 +1197,14 @@ SE现在全社资源是不是都投到FF16和FF7RB去了，近一两年不管外
 
 ff16不可能雷，雷了吉田就要切腹谢罪了
 
+
+
+*****
+
+####  rustincohle  
+##### 492#       发表于 2023-1-24 18:41
+
+cy，看看评价怎么样。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

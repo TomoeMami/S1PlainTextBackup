@@ -3216,3 +3216,19 @@ jk我的jk<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" 
 
 索尼又卜是傻，什么红什么凉心里没数吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  汇聚群光  
+##### 13254#       发表于 2023-1-24 18:33
+
+今晚九点在副频道上有翻唱投稿？
+
+*****
+
+####  路人庚  
+##### 13255#       发表于 2023-1-24 18:36
+
+是的，居然又来了首翻唱，会是孤独摇滚吗（
+

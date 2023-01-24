@@ -6082,3 +6082,16 @@ b站专栏搜神之天平</blockquote>
 
 反正一周目终章刷刷刷给我的感觉就是什么神明凭依技都不如2秒一个冷弹好用，全时间覆盖的消弹+能吸实在太霸道了，不知道新章体验会不会有变化。
 
+
+
+*****
+
+####  skgaminger1988  
+##### 3508#       发表于 2023-1-24 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467367&amp;ptid=2098044" target="_blank">就是剑鞘 发表于 2023-1-24 15:46</a>
+只有精灵王弓必须要失重吧，晶体饰品的那条河用三段跳+缓降+冲刺足够过去了。
+
+顺便问问，不考虑天平BUFF的 ...</blockquote>
+没变化 大多数还是在冷弹 穿插着魔法扫帚和加速<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
