@@ -642,3 +642,12 @@ CC 高清版怎么分这么低</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  小米稀饭-  
+##### 443#       发表于 2023-1-24 09:17
+
+这游戏是怎么立项的谁科普下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，前身是不是当初夜光引擎的技术演示cg阿格尼的哲学？为了迎合欧美政治正确改成这样？
+
