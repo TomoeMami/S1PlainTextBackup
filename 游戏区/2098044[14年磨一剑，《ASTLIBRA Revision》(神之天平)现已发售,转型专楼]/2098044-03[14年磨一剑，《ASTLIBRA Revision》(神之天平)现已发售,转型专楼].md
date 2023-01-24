@@ -6142,3 +6142,12 @@ b站专栏搜神之天平</blockquote>
 —— 来自 S1Fun ...</blockquote>
 你知道吗，作者把game over画面配成黄昏田野是非常有道理而体贴的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 3512#       发表于 2023-1-25 01:04
+
+把第三章的魔神打了 真好久没体验那么紧张的战斗了 这个流血的设计确实挺有意思 一度掉到只有16血狂按血瓶终于吃上了
+
