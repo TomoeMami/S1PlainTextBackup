@@ -2587,3 +2587,12 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 男主这面相，让我想起了热气巴 ...</blockquote>
 在补漫画,只能说动画确实非常OOC,漫画的法修比动画里的有魅力的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 239#       发表于 2023-1-24 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我有先见之明，看了PV就决定不看这坨闹心玩意儿
+
