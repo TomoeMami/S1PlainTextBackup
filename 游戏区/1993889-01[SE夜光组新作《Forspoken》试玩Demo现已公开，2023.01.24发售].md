@@ -670,3 +670,23 @@ CC 高清版怎么分这么低</blockquote>
 
 最离谱的是se怎么会觉得黑妹做主角的游戏卖的出去的，决定立项的人可以开除了。弄一个蒂法这样的主角骗一波不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Guildenstern  
+##### 446#       发表于 2023-1-24 09:44
+
+别忘了，索尼买了这玩意和巴比伦陨落的独占权。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  HankHill  
+##### 447#       发表于 2023-1-24 09:51
+
+我看到有人说这作源自当年那个Agni’s philosophy ([https://b23.tv/toBNtqL](https://b23.tv/toBNtqL))演示，后来开发方向变了几次就成了政治正确大罐头，这个说法丁真吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+当年看这个演示我还挺喜欢主角这个造型，非常符合我的短发性癖，怎么最后成了这副模样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
