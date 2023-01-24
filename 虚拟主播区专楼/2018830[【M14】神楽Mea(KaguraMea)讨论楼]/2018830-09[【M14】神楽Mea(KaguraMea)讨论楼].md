@@ -3187,3 +3187,14 @@ jk我的jk<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" 
 
 身為C位的神樂小姐是否應負起責任，放棄ろる，苦練俄羅斯方塊
 
+
+
+*****
+
+####  十九号大侠  
+##### 13251#       发表于 2023-1-24 15:56
+
+索尼应该不记得有这个组合
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
