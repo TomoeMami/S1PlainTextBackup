@@ -9883,3 +9883,14 @@ twi：_CelticWhite_
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59468438&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-24 17:48</a></blockquote>
 二期生第一次独立的活动，各方面都可以证明一下自己<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11361#       发表于 2023-1-25 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59471762&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-24 22:09</a>
+二期生第一次独立的活动，各方面都可以证明一下自己</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正就400的场子
+
