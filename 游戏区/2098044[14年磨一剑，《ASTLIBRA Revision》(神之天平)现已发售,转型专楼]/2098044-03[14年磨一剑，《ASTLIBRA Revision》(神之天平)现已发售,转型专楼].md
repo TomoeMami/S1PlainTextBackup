@@ -5995,3 +5995,15 @@ b站专栏搜神之天平</blockquote>
 多用弩箭 虽然看起来很玩&amp;# ...</blockquote>
 看出来了，以前真以为是玩具，这尼玛射出来是核弹啊，wtmsb<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 3501#       发表于 2023-1-24 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462756&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:08</a>
+比如第七章，我穿着第六章刷出来的最好的盔甲，最好面板的锤子，被蚂蚱+大树秒到怀疑人生……
+我知道可以 ...</blockquote>
+这游戏以前分章节更新发售，上章顶配装备不如下章低配是没办法的，就当成版本更新的装备追赶制度吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
