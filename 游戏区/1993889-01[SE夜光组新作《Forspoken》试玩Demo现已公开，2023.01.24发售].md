@@ -888,3 +888,29 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 
 —— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gulant  
+##### 464#       发表于 2023-1-24 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50671031&amp;ptid=1993889" target="_blank">Booorunestud 发表于 2021-3-19 07:21</a>
+
+主角换成美少女亚洲区销量和评分能上几个档次吧
+
+白皮的脑子我就不懂了</blockquote>
+白皮的美少女也不要期待，丰乳肥臀的筋肉女兽人看了就没趣。
+
+*****
+
+####  诚司  
+##### 465#       发表于 2023-1-24 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465087&amp;ptid=1993889" target="_blank">whzfjk 发表于 2023-1-24 11:59</a>
+
+欧美weeboo啊，市场已经被培养得很好了，只是价格敏感。不过媒体完全被zzzq的把持着 ...</blockquote>
+欧美weeb加上本土，基本上限300w，显然se不满意这个上限
+
+虽然xb2海外都有本土八九倍销量，但说到底是欧美市场太大了，什么玩家都有，除了bn这种没啥水平也路径依赖的，都不如一步到位，直接拥抱欧美主流<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
