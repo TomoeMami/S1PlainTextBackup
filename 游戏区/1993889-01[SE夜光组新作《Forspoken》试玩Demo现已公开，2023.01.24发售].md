@@ -1118,3 +1118,28 @@ se这一串雷作，ff16真的能例外吗
 
 2023-1-24 15:58 上传
 
+
+
+*****
+
+####  2082082012  
+##### 485#       发表于 2023-1-24 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467467&amp;ptid=1993889" target="_blank">时空之旅 发表于 2023-1-24 15:57</a>
+这游戏不知道怎么立项的，从头到尾就没感觉能大卖。。。</blockquote>
+这游戏应该就是当年小甜甜接手夜光的遗产，
+估计是当初已经立项开始开发了后面小甜甜跑路了，se舍不得投下的资源才搞出来这个玩意。
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  emmerMK2  
+##### 486#       发表于 2023-1-24 16:08
+
+整一个尼格做主角，谁看了想玩啊
+
+就算能吸引尼格，人家也是零元购啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

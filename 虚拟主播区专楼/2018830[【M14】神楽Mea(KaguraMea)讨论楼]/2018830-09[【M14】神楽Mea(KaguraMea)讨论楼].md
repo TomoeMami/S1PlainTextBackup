@@ -3198,3 +3198,12 @@ jk我的jk<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" 
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13252#       发表于 2023-1-24 16:04
+
+忙着和苔苔联动呢，含苔量惊人。
+
