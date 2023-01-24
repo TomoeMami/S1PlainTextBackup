@@ -2561,3 +2561,15 @@ p.s.不得不感叹这个星球的生存环境实在恶劣，几天内一个小�
 纯新&amp;#x4F5C ...</blockquote>
 tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔改的逼玩意儿？还没异化三体有乐子呢
 
+
+
+*****
+
+####  DARILBALDE  
+##### 237#       发表于 2023-1-24 21:29
+
+成功被楼里安利了漫画，有空看看。小时候就看过枪神的一个剧场版还是啥的。
+男主这面相，让我想起了热气巴萨拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望能有巴神一样的魅力。
+
+—— 来自 HUAWEI ELS-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

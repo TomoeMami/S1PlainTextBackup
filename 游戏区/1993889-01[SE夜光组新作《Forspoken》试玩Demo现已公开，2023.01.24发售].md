@@ -1291,3 +1291,16 @@ cy，看看评价怎么样。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rustincohle  
+##### 501#       发表于 2023-1-24 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467071&amp;ptid=1993889" target="_blank">mjzs07 发表于 2023-1-24 15:05</a>
+这是骗索尼独占费？</blockquote>
+Sony的独占，雷了几个了，能想起来的有幽灵线，巴比伦陨落。大家补充一下。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
