@@ -875,3 +875,16 @@ se老总是e那边的，e那边的dq都不是自己开发的。</blockquote>
 黑妹怎么也比黑蜘蛛迈尔斯好看，倒不是拿这玩意和索尼第一方比，但是说到底东亚人是不懂欧美玩家到底怎么 ...</blockquote>
 欧美weeboo啊，市场已经被培养得很好了，只是价格敏感。不过媒体完全被zzzq的把持着
 
+
+
+*****
+
+####  你好s1  
+##### 463#       发表于 2023-1-24 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464119&amp;ptid=1993889" target="_blank">nancygreenlife 发表于 2023-1-24 09:57</a>
+SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公司内部得有个评估吧？要是内部评价很烂的话，那为 ...</blockquote>
+就跟巴比伦陨落一样，索尼给钱了，不得不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
