@@ -1038,3 +1038,19 @@ se的自研引擎之路算是断了老老实实虚幻全家桶吧
 
 云完全剧情后，算是标准的王子...公主復仇记
 
+
+
+*****
+
+####  xiaosayang  
+##### 477#       发表于 2023-1-24 14:23
+
+据说pc是锁30帧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 本来就只打算玩玩魔法战斗评价低点也会试试的 这下不能接受了
+
+*****
+
+####  伊芙琳  
+##### 478#       发表于 2023-1-24 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么SE老出这种大得要命，流程却短的要命的游戏啊
+
