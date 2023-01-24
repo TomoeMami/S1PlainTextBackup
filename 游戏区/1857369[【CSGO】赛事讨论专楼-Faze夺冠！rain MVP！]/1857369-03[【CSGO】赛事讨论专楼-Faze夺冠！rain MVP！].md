@@ -78,3 +78,12 @@ niko这把跟队友磕个头吧，这防守真的看的高血压犯了，有的�
 
 这场真是把G2刻板形象拉满了来自: iPhone客户端
 
+
+
+*****
+
+####  dev2ce  
+##### 3100#       发表于 2023-1-24 15:48
+
+今晚eg能不能再干x队一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不管x队状态如何，真的是遇🐝一次宰一次，多久没赢过了
+
