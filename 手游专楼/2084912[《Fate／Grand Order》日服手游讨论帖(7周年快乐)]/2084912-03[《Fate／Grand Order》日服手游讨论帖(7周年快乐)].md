@@ -343,3 +343,26 @@
 
 当然不会没有情人节，但可以复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 4453#       发表于 2023-1-24 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这帮弱智在地铁站买的大型广告29号就撤掉，推特民纷纷吐槽你广告撤掉了后篇都还未开啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 4454#       发表于 2023-1-24 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465769&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-24 13:06</a>
+
+这帮弱智在地铁站买的大型广告29号就撤掉，推特民纷纷吐槽你广告撤掉了后篇都还未开啊
+
+----发送自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能在买！
+
