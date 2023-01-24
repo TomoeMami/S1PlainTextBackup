@@ -1335,3 +1335,19 @@ ff16再差都有15「保底」，之前PV如果不是纯播片骗人的话，画
 
 这游戏玩试玩前还挺期待的，毕竟法术战斗很帅，试玩出了之后第一时间下载......只能说se挺心疼我的钱包的
 
+
+
+*****
+
+####  rukimin  
+##### 505#       发表于 2023-1-25 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467239&amp;ptid=1993889" target="_blank">GuardHei 发表于 2023-1-24 15:23</a>
+
+去年gdc，夜光组来分享的人表示这是他第一次做游戏引擎
+
+整体技术选型也都是5-8年前的感觉，demo里还有很多 ...</blockquote>
+要么是夜光引擎原来的核心开发人员跑路，要么SE没给钱
+
+FF16又是新引擎，但夜光时不时发个什么更新演示，还做个这游戏出来。以上两者皆不是的话，估计有什么内部斗争，SE该不会早就把夜光重组了然后去开发水晶引擎吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
