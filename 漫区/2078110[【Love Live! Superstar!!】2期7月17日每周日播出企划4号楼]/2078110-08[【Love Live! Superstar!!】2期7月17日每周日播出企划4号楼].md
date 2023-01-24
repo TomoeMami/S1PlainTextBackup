@@ -9782,3 +9782,22 @@ pay的solo活动还是很期待的
 
 这个会算在年终那个活动统计里吗？
 
+
+
+*****
+
+####  仟音一心  
+##### 11354#       发表于 2023-1-24 14:53
+
+岚珠和可可的新年贺图<img src="https://p.sda1.dev/9/e6f60a189bd66b3320d73165ce8cca51/CMP_20230124145342486.jpg" referrerpolicy="no-referrer">
+twi：_CelticWhite_
+
+*****
+
+####  後藤正文  
+##### 11355#       发表于 2023-1-24 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464233&amp;ptid=2078110" target="_blank">qty 发表于 2023-1-24 10:12</a>
+今年这活动频次确实挺多，和其他人渐渐拉开差距了</blockquote>
+专辑和巡演宣传期，肯定多刷刷脸
+
