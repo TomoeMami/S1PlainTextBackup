@@ -742,3 +742,12 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 我看到有人说这作源自当年那个Agni’s philosophy (https://b23.tv/toBNtqL)演示，后来开发方向变了几次就 ...</blockquote>
 听说编剧和脸模都是SIE找的，这下都怪索尼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 453#       发表于 2023-1-24 10:14
+
+这游戏debuff真得全部拉满，难道真指望尼哥们一人买三份吗，还是说se被索尼忽悠瘸了
+
