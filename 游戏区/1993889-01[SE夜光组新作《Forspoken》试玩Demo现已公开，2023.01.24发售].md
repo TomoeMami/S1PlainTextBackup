@@ -1278,3 +1278,16 @@ cy，看看评价怎么样。
 
 我是真没想到阿格尼的哲学最后变成这玩意
 
+
+
+*****
+
+####  rustincohle  
+##### 500#       发表于 2023-1-24 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59469369&amp;ptid=1993889" target="_blank">日日日日日野 发表于 2023-1-24 19:09</a>
+别插了，这楼里估计会买的不超过三份</blockquote>
+我觉得不能吧，S1也是有无聊的坛友的嘛，主要是想看长篇批判，把SE这个组吊起来打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
