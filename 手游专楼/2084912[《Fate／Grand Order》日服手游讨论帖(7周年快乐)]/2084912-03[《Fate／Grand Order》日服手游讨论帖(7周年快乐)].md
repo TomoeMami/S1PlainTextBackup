@@ -387,3 +387,12 @@
 护符出了尼托，看来fgo的确是新年这一段运气会比较好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶的欧洲人 羡慕
 
+
+
+*****
+
+####  qixinno2  
+##### 4457#       发表于 2023-1-24 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我怎么没出
+
