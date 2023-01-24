@@ -6095,3 +6095,36 @@ b站专栏搜神之天平</blockquote>
 顺便问问，不考虑天平BUFF的 ...</blockquote>
 没变化 大多数还是在冷弹 穿插着魔法扫帚和加速<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  christiny  
+##### 3509#       发表于 2023-1-24 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467367&amp;ptid=2098044" target="_blank">就是剑鞘 发表于 2023-1-24 15:46</a>
+
+只有精灵王弓必须要失重吧，晶体饰品的那条河用三段跳+缓降+冲刺足够过去了。
+
+顺便问问，不考虑天平BUFF的 ...</blockquote>
+新章还是弹幕洗澡，大威力的全屏技能还是有用，清怪方便。BOSS战还是消消乐。
+
+目测精力提升量只有靠天平加成。
+
+*****
+
+####  christiny  
+##### 3510#       发表于 2023-1-24 20:13
+
+ 本帖最后由 christiny 于 2023-1-24 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467127&amp;ptid=2098044" target="_blank">不会武术 发表于 2023-1-24 15:10</a>
+
+得了能选难度不玩最高难度就会死的病
+
+游戏内时间8小时，steam时间23小时
+
+听说最高难度最恶心就前三章，第 ...</blockquote>
+第一次玩别玩狂暴，魂斗罗直接变成恐怖游戏。
+
+狂暴的武器图纸就是火山金宝箱出。
+
