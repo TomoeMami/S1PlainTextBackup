@@ -1161,3 +1161,30 @@ se这一串雷作，ff16真的能例外吗
 
 我感觉ff16有很大几率地雷
 
+
+
+*****
+
+####  葵  
+##### 489#       发表于 2023-1-24 17:01
+
+笑死了，居然连及格分都混不到，我还以为靠政治正确buff能混个6、7分呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+SE现在全社资源是不是都投到FF16和FF7RB去了，近一两年不管外包还是自社的游戏出一个雷一个，真是丢人现眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  littlezoo  
+##### 490#       发表于 2023-1-24 17:07
+
+这说明在目前这个节点看还真是尴尬。。。。
+
+屏幕截图 2023-01-24 020612.jpg
+(42.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202301/24/170645q2rguiuzluiihksv.jpg" referrerpolicy="no-referrer">
+
