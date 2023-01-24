@@ -761,3 +761,47 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 这游戏是不是一开始都没打算冲着能大卖弄的，sie要的就是ps5次世代上一定要有这么个符合欧美年轻人主流审美的zzzq的游戏（俊男靓女+黑皮？为什么找se？你要搁欧美爷做估计只剩下黑皮了
 要你们知道这种游戏只有我们ps5有，别的平台都没有，要的就是这个宣传效果！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（什么，pcmr会买这个游戏呢？
 
+
+
+*****
+
+####  汪达  
+##### 455#       发表于 2023-1-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464119&amp;ptid=1993889" target="_blank">nancygreenlife 发表于 2023-1-24 09:57</a>
+
+SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公司内部得有个评估吧？要是内部评价很烂的话，那为 ...</blockquote>
+都有60分了，在SE眼里已经算眉清目秀了
+
+<img src="https://img.saraba1st.com/forum/202301/24/110003qjj9iwy2nawnxj9z.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (70.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 11:00 上传
+
+<img src="https://img.saraba1st.com/forum/202301/24/110003kexksk4wx5ylkyxq.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (68.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 11:00 上传
+
+<img src="https://img.saraba1st.com/forum/202301/24/110003ow5th9dc89u98kwn.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (71.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 11:00 上传
+
+<img src="https://img.saraba1st.com/forum/202301/24/110004yrw1wjqrkdr0zr11.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (76.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 11:00 上传
+
