@@ -1524,3 +1524,16 @@ syl vspo也来研究生制度，乐了
 
 郡为了戒耳机跑去巴勒斯坦休息了…巴勒斯坦…？休息…？？？
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18429#       发表于 2023-1-24 20:31
+
+ 本想着ソフィア如果能一直保持这个精神状态+声音，后面就算联动男人也没关系
+
+可惜还是没绷住
+
+上一个游戏是カセット，什么老姨<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

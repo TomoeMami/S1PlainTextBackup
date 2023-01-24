@@ -1240,3 +1240,23 @@ cy，看看评价怎么样。
 
 雷得毫无意外
 
+
+
+*****
+
+####  ultraseven  
+##### 496#       发表于 2023-1-24 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59468012&amp;ptid=1993889" target="_blank">littlezoo 发表于 2023-1-24 17:07</a>
+
+这说明在目前这个节点看还真是尴尬。。。。</blockquote>
+虽然没登陆xbox主机但登陆了windows商店啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 497#         楼主| 发表于 2023-1-24 20:35
+
+<img src="https://p.sda1.dev/9/7623ae9ba26bf32548ea2a66adbb17e8/20230124_202039.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/5b023a49797f1c6f254d3c1825b0956e/20230124_202044.jpg" referrerpolicy="no-referrer">
+
