@@ -375,3 +375,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护符出了尼托，看来fgo的确是新年这一段运气会比较好
 
+
+
+*****
+
+####  alucardcz  
+##### 4456#       发表于 2023-1-24 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465956&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-1-24 13:20</a>
+
+护符出了尼托，看来fgo的确是新年这一段运气会比较好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶的欧洲人 羡慕
+
