@@ -1208,3 +1208,17 @@ cy，看看评价怎么样。
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  日日日日日野  
+##### 493#       发表于 2023-1-24 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59469028&amp;ptid=1993889" target="_blank">rustincohle 发表于 2023-1-24 18:41</a>
+
+cy，看看评价怎么样。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+别插了，这楼里估计会买的不超过三份
+

@@ -2547,3 +2547,17 @@ TV第4话是改的读切短篇，记得是放在单行本2卷和完全版2卷，
 
 p.s.不得不感叹这个星球的生存环境实在恶劣，几天内一个小镇就被几个暴力的疯子轮番破坏直至粉碎，艰难的生存压力造就的忘恩负义民风多少还是能理解。另外大肚婆扛着枪到处乱跑居然都没流产确实彪悍。
 
+
+
+*****
+
+####  charlespfan  
+##### 236#       发表于 2023-1-24 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59468113&amp;ptid=2076121" target="_blank">oneoutsider 发表于 2023-1-24 17:19</a>
+
+你都保护了些什么啊.jpg
+
+纯新&amp;#x4F5C ...</blockquote>
+tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔改的逼玩意儿？还没异化三体有乐子呢
+
