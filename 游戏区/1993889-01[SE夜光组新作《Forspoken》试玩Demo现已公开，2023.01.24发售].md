@@ -661,3 +661,12 @@ CC 高清版怎么分这么低</blockquote>
 擦 发售日记错了 还以为25号
 预购了特意没开自动下载打算等评分出来再退来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨翼free  
+##### 445#       发表于 2023-1-24 09:34
+
+最离谱的是se怎么会觉得黑妹做主角的游戏卖的出去的，决定立项的人可以开除了。弄一个蒂法这样的主角骗一波不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

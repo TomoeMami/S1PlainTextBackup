@@ -6007,3 +6007,12 @@ b站专栏搜神之天平</blockquote>
 我知道可以 ...</blockquote>
 这游戏以前分章节更新发售，上章顶配装备不如下章低配是没办法的，就当成版本更新的装备追赶制度吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3502#       发表于 2023-1-24 09:35
+
+伊苏玩家要玩进去这游戏真的不难，开场森林BGM突然嗨起来就有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
