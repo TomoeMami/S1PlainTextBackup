@@ -1326,3 +1326,12 @@ ff16再差都有15「保底」，之前PV如果不是纯播片骗人的话，画
 
 主线才8个小时<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lanyu_u  
+##### 504#       发表于 2023-1-24 23:57
+
+这游戏玩试玩前还挺期待的，毕竟法术战斗很帅，试玩出了之后第一时间下载......只能说se挺心疼我的钱包的
+
