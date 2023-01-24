@@ -1537,3 +1537,19 @@ syl vspo也来研究生制度，乐了
 
 上一个游戏是カセット，什么老姨<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 18430#       发表于 2023-1-24 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59470387&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2023-1-24 20:31</a>
+
+本想着ソフィア如果能一直保持这个精神状态+声音，后面就算联动男人也没关系
+
+可惜还是没绷住</blockquote>
+刚好随便看了一点valo感觉没啥蹦不住啊
+
+难道没蹦住声线？
+

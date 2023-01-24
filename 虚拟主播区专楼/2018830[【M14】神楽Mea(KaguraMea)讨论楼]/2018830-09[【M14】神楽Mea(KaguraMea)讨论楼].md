@@ -3241,3 +3241,21 @@ jk我的jk<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" 
 
 拼图联动本质上杂谈联动，把人聚在一起就是有人看。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 13257#       发表于 2023-1-24 21:05
+
+挺不错的，比混的好听多了
+
+*****
+
+####  掉头学姐  
+##### 13258#       发表于 2023-1-24 21:09
+
+说唱女王
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
