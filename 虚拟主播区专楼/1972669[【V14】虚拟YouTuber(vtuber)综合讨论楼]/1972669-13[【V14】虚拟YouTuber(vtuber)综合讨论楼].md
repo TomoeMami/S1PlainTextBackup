@@ -1478,3 +1478,14 @@ oh…不是讲数字，只是说对我来讲ｲﾛｹ大于同学情，抱歉…
 老师跑去旅游真是毫不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 syl vspo也来研究生制度，乐了
 
+
+
+*****
+
+####  poipanchao  
+##### 18425#       发表于 2023-1-24 18:27
+
+先个人出道再升格，还支援电脑
+
+是不是田园时代有类似的啊，35啥的
+
