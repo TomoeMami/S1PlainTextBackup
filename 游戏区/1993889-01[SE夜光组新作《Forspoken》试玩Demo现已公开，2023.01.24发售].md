@@ -1188,3 +1188,12 @@ SE现在全社资源是不是都投到FF16和FF7RB去了，近一两年不管外
 
 <img src="https://img.saraba1st.com/forum/202301/24/170645q2rguiuzluiihksv.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ShiKi847  
+##### 491#       发表于 2023-1-24 18:06
+
+ff16不可能雷，雷了吉田就要切腹谢罪了
+

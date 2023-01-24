@@ -1468,3 +1468,13 @@ oh…不是讲数字，只是说对我来讲ｲﾛｹ大于同学情，抱歉…
 
 郡桑休止是为了周年纪念跑去旅游，太她妈符合设定了好难受…
 
+
+
+*****
+
+####  FCCHua  
+##### 18424#       发表于 2023-1-24 18:09
+
+老师跑去旅游真是毫不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl vspo也来研究生制度，乐了
+
