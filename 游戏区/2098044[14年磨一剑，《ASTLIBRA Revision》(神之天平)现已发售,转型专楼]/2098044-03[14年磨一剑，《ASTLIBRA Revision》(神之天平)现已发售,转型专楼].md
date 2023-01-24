@@ -6032,3 +6032,19 @@ b站专栏搜神之天平</blockquote>
 
 荒谬搞到第三章boss，小怪已经没啥压力了，这个boss是不是有点离谱，周围一圈有伤害，蹭两下直接死了，二阶段的大火球摸一下残血+出血没法吃药，二阶段大火球是能用盾还是不能用盾啊，还有二阶段的光圈打上去不回蓝的，岩盾都开不出来
 
+
+
+*****
+
+####  christiny  
+##### 3505#       发表于 2023-1-24 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465589&amp;ptid=2098044" target="_blank">不会武术 发表于 2023-1-24 12:50</a>
+
+荒谬搞到第三章boss，小怪已经没啥压力了，这个boss是不是有点离谱，周围一圈有伤害，蹭两下直接死了，二阶 ...</blockquote>
+看3477楼……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+火圈发射子弹时，内圈是无伤害的。
+
+说实话，第一遍不建议玩这么高的难度，会变成恐怖游戏。
+
