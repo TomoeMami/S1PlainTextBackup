@@ -720,3 +720,25 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 
 如果数毛社也说过那看来信源不止一个，有点震撼到了，SE这几年都在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ckseng  
+##### 451#       发表于 2023-1-24 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59463995&amp;ptid=1993889" target="_blank">雨翼free 发表于 2023-1-24 09:34</a>
+
+最离谱的是se怎么会觉得黑妹做主角的游戏卖的出去的，决定立项的人可以开除了。弄一个蒂法这样的主角骗一波 ...</blockquote>
+醒醒，这游戏质量低到蒂法也带不起来的
+
+*****
+
+####  Rintani_Yahato  
+##### 452#       发表于 2023-1-24 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464078&amp;ptid=1993889" target="_blank">HankHill 发表于 2023-1-24 09:51</a>
+
+我看到有人说这作源自当年那个Agni’s philosophy (https://b23.tv/toBNtqL)演示，后来开发方向变了几次就 ...</blockquote>
+听说编剧和脸模都是SIE找的，这下都怪索尼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
