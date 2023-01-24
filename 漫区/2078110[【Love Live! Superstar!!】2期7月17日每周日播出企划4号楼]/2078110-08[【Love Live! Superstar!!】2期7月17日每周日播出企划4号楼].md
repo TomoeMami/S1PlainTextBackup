@@ -9801,3 +9801,26 @@ twi：_CelticWhite_
 今年这活动频次确实挺多，和其他人渐渐拉开差距了</blockquote>
 专辑和巡演宣传期，肯定多刷刷脸
 
+
+
+*****
+
+####  Kfly  
+##### 11356#       发表于 2023-1-24 17:48
+
+<img src="https://img.saraba1st.com/forum/202301/24/174815bbxsh4f44hc44sb1.jpg" referrerpolicy="no-referrer">
+
+<strong>FnOnKmaaUAAEMs3.jpg</strong> (241.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 17:48 上传
+
+<img src="https://img.saraba1st.com/forum/202301/24/174818snmll8ab7ebljibi.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 036 - 推文 _ Twitter - twitter.com.png</strong> (101.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 17:48 上传
+
