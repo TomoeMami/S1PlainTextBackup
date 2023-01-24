@@ -288,3 +288,20 @@
 
 你奥再不把系列构成和卖玩具策略改一改，我相信高开低走这种事可以一直持续下去，后期没东西写这种事哪怕是泽塔也出现了那么三四集。。不过这几年q3q4看财报都卖的飞起，估计也不会鸟一下作品本身的质量就是了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 902#       发表于 2023-1-24 12:59
+
+原来新世代TDG指的是Trigger Decker和Guts<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202301/24/125949cg8azat7t8e9zmrt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74709A69-873C-4DBA-89C7-CF41A382150B.jpeg</strong> (521.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-24 12:59 上传
+

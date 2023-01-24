@@ -914,3 +914,26 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 
 虽然xb2海外都有本土八九倍销量，但说到底是欧美市场太大了，什么玩家都有，除了bn这种没啥水平也路径依赖的，都不如一步到位，直接拥抱欧美主流<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 466#       发表于 2023-1-24 12:54
+
+  就现在白皮的创作环境就算给你设定成白皮金发也的给你加一堆buff还裹得严严实实，不如就现在这样当个笑话看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  唯_change  
+##### 467#       发表于 2023-1-24 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59461150&amp;ptid=1993889" target="_blank">2082082012 发表于 2023-1-23 22:32</a>
+
+夜光引擎开始负责人早在做15的时候就跑了，现在夜光就是个烂摊子真的很好本部早用上了
+
+—— 来自 s ...</blockquote>
+之前还有若智说夜光引擎不烂，真好用KH3就不会半路改用虚幻4了。DQ12FF7FF16KH4这些最重量级的没有一个用夜光就知道夜光真的是被弃用的垃圾引擎，已经无法和虚幻比
+
