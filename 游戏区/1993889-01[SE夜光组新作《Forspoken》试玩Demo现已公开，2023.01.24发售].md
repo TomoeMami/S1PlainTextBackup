@@ -1317,3 +1317,12 @@ ff16再差都有15「保底」，之前PV如果不是纯播片骗人的话，画
 
 而且FF系列还有一些玩家期待项目如小游戏、还有多不多有料或无料DLC...
 
+
+
+*****
+
+####  真实之影  
+##### 503#       发表于 2023-1-24 22:42
+
+主线才8个小时<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
