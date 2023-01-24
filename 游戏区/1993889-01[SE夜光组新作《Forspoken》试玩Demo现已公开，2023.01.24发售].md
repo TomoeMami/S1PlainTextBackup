@@ -830,3 +830,48 @@ SE对这些游戏到底是怎么看的？游戏做出点样子以后起码在公
 
 看老外说这个工作室是se老总嫡系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  5353  
+##### 459#       发表于 2023-1-24 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59464898&amp;ptid=1993889" target="_blank">ff2077 发表于 2023-1-24 11:38</a>
+
+看老外说这个工作室是se老总嫡系</blockquote>
+se老总是e那边的，e那边的dq都不是自己开发的。
+
+*****
+
+####  诚司  
+##### 460#       发表于 2023-1-24 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59463995&amp;ptid=1993889" target="_blank">雨翼free 发表于 2023-1-24 09:34</a>
+
+最离谱的是se怎么会觉得黑妹做主角的游戏卖的出去的，决定立项的人可以开除了。弄一个蒂法这样的主角骗一波 ...</blockquote>
+黑妹怎么也比黑蜘蛛迈尔斯好看，倒不是拿这玩意和索尼第一方比，但是说到底东亚人是不懂欧美玩家到底怎么想的……
+
+我觉得黑妹已经比90％的欧美游戏女主角好看了，至少比渡神纪女主好看一百倍，然而99％欧美游戏都不能看
+
+但说到底，日厂早就明白了，日本玩家已经越来越轻度化，除了任天堂别的都翻不了几个浪。无论是看fami通的实体出货还是看ps日服的blog，战神5最多也就和二线二次元厂不分胜负。都这样了，不舔点欧美zzzq能卖个什么啊
+
+*****
+
+####  米高扬  
+##### 461#       发表于 2023-1-24 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465036&amp;ptid=1993889" target="_blank">5353 发表于 2023-1-24 11:54</a>
+
+se老总是e那边的，e那边的dq都不是自己开发的。</blockquote>
+松田洋佑square出身啊，福岛康博是enix，但他是会长，dq11和10也是se自己开发了
+
+*****
+
+####  whzfjk  
+##### 462#       发表于 2023-1-24 11:59
+
+<blockquote>诚司 发表于 2023-1-24 11:55
+黑妹怎么也比黑蜘蛛迈尔斯好看，倒不是拿这玩意和索尼第一方比，但是说到底东亚人是不懂欧美玩家到底怎么 ...</blockquote>
+欧美weeboo啊，市场已经被培养得很好了，只是价格敏感。不过媒体完全被zzzq的把持着
+
