@@ -6128,3 +6128,17 @@ b站专栏搜神之天平</blockquote>
 
 狂暴的武器图纸就是火山金宝箱出。
 
+
+
+*****
+
+####  永远的访客  
+##### 3511#       发表于 2023-1-24 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59462886&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-24 01:35</a>
+
+打败了世界魔王的勇者回老家被路边蚂蚱一口喷死也是jrpg醍醐味不可不尝
+
+—— 来自 S1Fun ...</blockquote>
+你知道吗，作者把game over画面配成黄昏田野是非常有道理而体贴的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
