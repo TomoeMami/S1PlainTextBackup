@@ -623,3 +623,22 @@ CC 高清版怎么分这么低</blockquote>
 
 就se这几年的发挥，ff16大概率也是雷
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 441#       发表于 2023-1-24 07:51
+
+暴雪的今天会是SE的明天吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reimei  
+##### 442#       发表于 2023-1-24 07:54
+
+真是毫不意外的评分<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+这很se
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
