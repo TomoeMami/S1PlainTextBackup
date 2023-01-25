@@ -1507,3 +1507,19 @@ ffo距离脱离三位数也不远了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">STEAM评论区看了下，很罕见的好评差评基本都是差评的游戏
 
+
+
+*****
+
+####  断翼  
+##### 520#       发表于 2023-1-25 13:22
+
+DF说技术比ff15时还倒退了不少
+
+*****
+
+####  jpwhzh  
+##### 521#       发表于 2023-1-25 13:24
+
+se去年出了这么多坨，十年后辣鸡游戏怀旧up有福了。
+
