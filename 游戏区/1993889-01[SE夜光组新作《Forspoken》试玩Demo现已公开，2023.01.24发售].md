@@ -1576,3 +1576,31 @@ se去年出了这么多坨，十年后辣鸡游戏怀旧up有福了。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  monolithsoft  
+##### 525#       发表于 2023-1-25 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59479674&amp;ptid=1993889" target="_blank">415452356 发表于 2023-1-25 18:18</a>
+
+下了demo测试看看优化到底有多差，一进实操部分就有点难蹦，这光影还不如FF15怎么配置要求翻了几倍，这破 ...</blockquote>
+画面这么这么烂的嘛
+
+不细看还以为是龙之信条呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 526#       发表于 2023-1-25 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59479790&amp;ptid=1993889" target="_blank">monolithsoft 发表于 2023-1-25 18:32</a>
+画面这么这么烂的嘛
+
+不细看还以为是龙之信条呢</blockquote>
+
+别尬黑，龙之信条光影比这个好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
