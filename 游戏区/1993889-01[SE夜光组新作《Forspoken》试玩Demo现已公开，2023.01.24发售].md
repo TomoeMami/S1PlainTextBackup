@@ -1534,3 +1534,45 @@ se去年出了这么多坨，十年后辣鸡游戏怀旧up有福了。
 
 有一个亮点，这游戏是第一个支持Direct Storage技术的，加载时间比PS5的那块SSSSSD还要快。。。。
 
+
+
+*****
+
+####  415452356  
+##### 523#       发表于 2023-1-25 18:18
+
+<img src="https://img.saraba1st.com/forum/202301/25/181735pyb2lyvul6oxz1as.jpg" referrerpolicy="no-referrer">
+
+<strong>20230125181506_1.jpg</strong> (913.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-25 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202301/25/181737frsz41q0dumqdnru.jpg" referrerpolicy="no-referrer">
+
+<strong>20230125181536_1.jpg</strong> (806.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-25 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202301/25/181742ysnm2xzm20nzvxvv.jpg" referrerpolicy="no-referrer">
+
+<strong>20230125181619_1.jpg</strong> (982.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-25 18:17 上传
+
+下了demo测试看看优化到底有多差，一进实操部分就有点难蹦，这光影还不如FF15怎么配置要求翻了几倍，这破烂夜光引擎赶紧丢了吧。
+
+*****
+
+####  定春A梦  
+##### 524#       发表于 2023-1-25 18:20
+
+夜光引擎正式入土再也不见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
