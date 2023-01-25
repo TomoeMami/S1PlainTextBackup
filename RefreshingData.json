@@ -1141,7 +1141,7 @@
     "newtitle": "[Granblue Fantasy 讨论帖（禁止非游戏相关）]",
     "lastedit": 1674425040,
     "category": "手游专楼",
-    "active": true
+    "active": false
   },
   "1570791": {
     "totalreply": 7457,
@@ -1720,18 +1720,18 @@
     "active": false
   },
   "1857369": {
-    "totalreply": 3103,
+    "totalreply": 3104,
     "title": "[【CSGO】赛事讨论专楼-Faze夺冠！rain MVP！]",
     "newtitle": "[【CSGO】赛事讨论专楼-VP夺冠！Jame MVP！]",
-    "lastedit": 1674677880,
+    "lastedit": 1674684626,
     "category": "游戏区",
     "active": true
   },
   "2050172": {
-    "totalreply": 1908,
+    "totalreply": 1909,
     "title": "[推荐一个新的骑行UP主，徐云流浪中国]",
     "newtitle": "[推荐一个新的骑行UP主，徐云流浪中国]",
-    "lastedit": 1674677880,
+    "lastedit": 1674684626,
     "category": "外野",
     "active": true
   },
@@ -4456,10 +4456,10 @@
     "active": false
   },
   "2112870": {
-    "totalreply": 2540,
+    "totalreply": 2541,
     "title": "[曹丹的2022年再见，2023年鹅乌新年专楼]",
     "newtitle": "[曹丹的2022年再见，2023年鹅乌新年专楼]",
-    "lastedit": 1674668160,
+    "lastedit": 1674684724,
     "category": "外野",
     "active": true
   },
@@ -7379,7 +7379,7 @@
     "totalreply": 11289,
     "title": "[水星の魔女スレミオ（红白）病栋C区（二号楼）]",
     "newtitle": "[水星の魔女スレミオ（红白）病栋C区（二号楼）]",
-    "lastedit": 1674684090,
+    "lastedit": 1674683820,
     "category": "漫区",
     "active": true
   },
