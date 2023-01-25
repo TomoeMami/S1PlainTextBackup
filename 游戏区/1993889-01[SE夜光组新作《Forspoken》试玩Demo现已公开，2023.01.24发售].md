@@ -1664,3 +1664,52 @@ SE这几年像窜稀一样，普利埔里爆出一堆粪作。
 
 看上去和ff15一个观感水平，2023年的大作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千千千千鸟  
+##### 533#       发表于 2023-1-25 22:42
+
+永远放弃什么夜光吧，都用虚幻得了，我看FF7RE运行的就挺不错的。隔壁巫师系列也抛弃自研引擎了。
+
+这么说来，卡普空有这么厉害吗，re引擎顺的不行啊，没拉跨过，就差一个MHW2的高清大世界来证明自己了吧。
+
+*****
+
+####  415452356  
+##### 534#       发表于 2023-1-25 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482579&amp;ptid=1993889" target="_blank">千千千千鸟 发表于 2023-1-25 22:42</a>
+
+永远放弃什么夜光吧，都用&amp;#x8 ...</blockquote>
+  RE应该延续了MT的不少代码，是在MT已经成熟的基础上改的，BIO2R一些奇怪的光照问题和雨打在角色身上莫名的油腻感和MHW是同款油腻。
+
+*****
+
+####  断翼  
+##### 535#       发表于 2023-1-25 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59480000&amp;ptid=1993889" target="_blank">Rintani_Yahato 发表于 2023-1-25 18:54</a>
+
+DF说光照是画面观感差的最主要原因，之前也有国人SE员工在微博上吐槽这游戏光照看上去怎么这么烂（她本人是 ...</blockquote>
+DF说读取快，动态光，体积雾，衣服头发拟真都很好
+
+但光栅技术比FF15后期版本还落后，建筑阴影的烘焙水平连大革命都不如
+
+FF15那边好歹是有实时动态变化，这次都不会有月升日落还搞成这样简直离奇
+
+*****
+
+####  herryk159  
+##### 536#       发表于 2023-1-25 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482043&amp;ptid=1993889" target="_blank">rustincohle 发表于 2023-1-25 21:59</a>
+
+快快快，我想看看。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+【开春第一泡！《forspoken》 暴躁吐槽评测 | SE巨献魔法3ARPG大作《魔咒之地》】 [https://www.bilibili.com/video/B ... ddca19f354ddacf9bee](https://www.bilibili.com/video/BV1QM411q7es/?share_source=copy_web&amp;vd_source=8b0ff036ea3d7ddca19f354ddacf9bee)
+
+这UP还说之后会做一期批斗SE<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
