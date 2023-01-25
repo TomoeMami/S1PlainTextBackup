@@ -1998,3 +1998,17 @@ ign只给了6分</blockquote>
 论坛助手,iPhone</blockquote>
 我玩了12个小时还在第四章没打第一个魔女
 
+
+
+*****
+
+####  GuardHei  
+##### 558#       发表于 2023-1-26 06:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482579&amp;ptid=1993889" target="_blank">千千千千鸟 发表于 2023-1-25 22:42</a>
+永远放弃什么夜光吧，都用&amp;#x8 ...</blockquote>
+严格来说不好比较
+ff15基本也是大世界还有实时光影变化，forspoken好歹也是大世界，re目前做的比较多的还是行动比较受限的场景
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
