@@ -11460,3 +11460,14 @@ ID已经在播最后生还者了之前说想玩但是运营好像不允许播不
 
 [推特](https://twitter.com/Hedgehog_0516/status/1617907868929519621?s=20&amp;t=pYULOwJILZzfKvg03-aMhA)
 
+
+
+*****
+
+####  rs5621  
+##### 4065#       发表于 2023-1-25 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
