@@ -522,3 +522,14 @@ FA，手滑了（
 
 这一次能吸引到白河豚拯救这个ip吗
 
+
+
+*****
+
+####  外骨骼  
+##### 204#       发表于 2023-1-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59258183&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-1-8 16:00</a>
+哎，阿嘎有生之年能进化吗？那个“黑点”并不是痣而是鼻子唉。鼻子其实做了轮廓但只点了下黑点……于是 ...</blockquote>
+是痣的话不就更涩了吗？！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
