@@ -1498,3 +1498,12 @@ ffo距离脱离三位数也不远了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  jy000129  
+##### 519#       发表于 2023-1-25 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">STEAM评论区看了下，很罕见的好评差评基本都是差评的游戏
+
