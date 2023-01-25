@@ -40,3 +40,15 @@
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  MinFOrder  
+##### 2971#       发表于 2023-1-25 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59480935&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-25 20:27</a>
+
+怀疑仓鼠佬的财力了，一晚花销应该也有10万吧，泥潭大佬月姬住酒店也就5w一晚 ...</blockquote>
+这种八成是和B站有协议的吧？
+

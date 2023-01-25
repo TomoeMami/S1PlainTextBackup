@@ -9961,3 +9961,12 @@ twi：_CelticWhite_
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11368#       发表于 2023-1-25 20:57
+
+<blockquote>スタッフ(天の声)｢この画角彼氏ん家に料理作りに来たみたいで良いね｣ えもりん｢…(无视して黙々と料理する)｣</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这staff
+
