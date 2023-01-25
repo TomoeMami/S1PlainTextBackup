@@ -1393,3 +1393,17 @@ PC载了试玩 DLSS质量下能有90帧 感觉还行  原本夜光演示的那
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mcq_2  
+##### 510#       发表于 2023-1-25 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59472004&amp;ptid=1993889" target="_blank">eilot 发表于 2023-1-24 22:30</a>
+
+ff16再差都有15「保底」，之前PV如果不是纯播片骗人的话，画质应该也是没问题(可接受)
+
+是考虑剧本量会否受 ...</blockquote>
+你这个15保底有什么意义？
+
