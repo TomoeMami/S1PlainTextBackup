@@ -1725,3 +1725,25 @@ FF15那边好歹是有实时动态变化，这次都不会有月升日落还搞�
 永远放弃什么夜光吧，都用&amp;#x8 ...</blockquote>
 re引擎先解决僵尸十米开外就掉帧抽抽的问题行不<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acg_gyancDF  
+##### 538#       发表于 2023-1-25 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59474241&amp;ptid=1993889" target="_blank">陈词与芍药 发表于 2023-1-25 05:11</a>
+通关了，8小时半，建议严查夜光组或者解散吧
+
+—— 来自 S1Fun</blockquote>
+啊，这么短？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  acg_s1  
+##### 539#       发表于 2023-1-25 23:05
+
+这游戏虽然主角是个黑妹本应有pc加成，但是违和的写作和刻板印象满满的设定在这加成前乘了个负号
+
