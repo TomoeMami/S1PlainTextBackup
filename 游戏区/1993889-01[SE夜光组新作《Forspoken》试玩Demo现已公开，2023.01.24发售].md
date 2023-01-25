@@ -1778,3 +1778,21 @@ re引擎先解决僵尸十米开外就掉帧抽抽的问题行不<img src="https
 re引擎先解决僵尸十米开外就掉帧抽抽的问题行不</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这叫取舍 不然哪有这么好的优化
 
+
+
+*****
+
+####  センコウ  
+##### 542#       发表于 2023-1-25 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482922&amp;ptid=1993889" target="_blank">ShiKi847 发表于 2023-1-25 23:13</a>
+
+这游戏还真是小田田给立的项，但是估计前期工作完成它就离职了
+
+2017-10-12
+
+《最终幻想15》的制作人田畑端 ...</blockquote>
+这游戏什么剧本人设全是找白皮做的，小田田虽然当了个小头头但对这些怕是没啥话语权。多半看得这玩意hold不住连这个小头头都不要了直接跑了
+
+有一说一小田田做的玩意还真没啥正确成分
+
