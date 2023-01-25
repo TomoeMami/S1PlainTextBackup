@@ -1834,3 +1834,29 @@ re引擎先解决僵尸十米开外就掉帧抽抽的问题行不</blockquote>
 
 感觉是小田田在开会时听到上层不再给他钱去搞未来黎明，新计画书完全不合眼缘，作死成份更多，而外面有新金主找他，趁机走人...
 
+
+
+*****
+
+####  suttv  
+##### 545#       发表于 2023-1-26 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么破玩意3070ti 2K都稳不了，我看国内自媒体还吹不吹SE是日厂技术力顶峰了
+
+*****
+
+####  tmmd  
+##### 546#       发表于 2023-1-26 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59470408&amp;ptid=1993889" target="_blank">ultraseven 发表于 2023-1-24 20:32</a>
+
+虽然没登陆xbox主机但登陆了windows商店啊</blockquote>
+微软自己连xbox商店和windows商店都懒得湹清,这几天用10元/月嫖的pc版 xgp给侄子下载了地平线4开车,如果用xbox app启动,点到付费项目进入xbox账户付款页面.如果不用xboxapp而是直接用磁贴之类的启动,点到付费项目则会跳转到windows商店付款页面.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  套路设计师  
+##### 547#       发表于 2023-1-26 00:08
+
+ign只给了6分
+
