@@ -423,3 +423,12 @@
 
 无事发生
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4461#       发表于 2023-1-25 17:23
+
+突然怀疑等主线剧情完结后，螺旋社是不是也打算这样减半+复刻+毫无征兆新角色落地...循环往复混日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
