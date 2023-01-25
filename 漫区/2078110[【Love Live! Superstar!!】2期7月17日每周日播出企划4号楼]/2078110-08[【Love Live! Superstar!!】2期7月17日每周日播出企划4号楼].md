@@ -9922,3 +9922,14 @@ twi：_CelticWhite_
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59477319&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-25 13:52</a></blockquote>
 <img src="https://p.sda1.dev/9/491a38c6b92419ce99084cd5e5e821e7/-1050125193.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  长日留痕  
+##### 11365#       发表于 2023-1-25 14:06
+
+二期生立绘比一期生顺眼多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
