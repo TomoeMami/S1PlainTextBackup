@@ -52,3 +52,15 @@
 怀疑仓鼠佬的财力了，一晚花销应该也有10万吧，泥潭大佬月姬住酒店也就5w一晚 ...</blockquote>
 这种八成是和B站有协议的吧？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2972#       发表于 2023-1-25 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59481196&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-25 20:51</a>
+
+这种八成是和B站有协议的吧？</blockquote>
+又不是工会，有协议的话，也是对自家旗下主播有利而已
+

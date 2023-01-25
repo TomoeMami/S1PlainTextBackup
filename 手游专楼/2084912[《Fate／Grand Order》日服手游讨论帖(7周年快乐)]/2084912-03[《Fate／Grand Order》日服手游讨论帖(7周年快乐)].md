@@ -453,3 +453,15 @@
 
 现在ios的fgo下载完全部数据，应该占用多少空间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 4464#       发表于 2023-1-25 21:06
+
+ 本帖最后由 exiaexa 于 2023-1-25 21:11 编辑 
+
+其实真完结也不是不行，回到154那种无拘束写剧本不挺好的，2.0整个连续剧结果就是菌鸽鸽自己都不怎么玩，估摸着又是终章强行收束
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

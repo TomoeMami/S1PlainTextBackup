@@ -9970,3 +9970,38 @@ twi：_CelticWhite_
 
 <blockquote>スタッフ(天の声)｢この画角彼氏ん家に料理作りに来たみたいで良いね｣ えもりん｢…(无视して黙々と料理する)｣</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这staff
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11369#       发表于 2023-1-25 21:05
+
+<img src="https://img.saraba1st.com/forum/202301/25/210459sppcepsos191t7tc.jpg" referrerpolicy="no-referrer">
+
+<strong>FnToRvzaAAAvEW1.jpg</strong> (20.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-25 21:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗乃果  
+##### 11370#       发表于 2023-1-25 21:06
+
+可可的人设可爱
+鲤鱼本人也可爱
+
+
+
+*****
+
+####  Piano-Forest  
+##### 11371#       发表于 2023-1-25 21:09
+
+<img src="https://p.sda1.dev/9/8c1420052072d84cc79126ad19cab825/image _2_.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/041866baa3ba5201fea7e0ceb31fddbb/20230125_210901.jpg" referrerpolicy="no-referrer">
+
