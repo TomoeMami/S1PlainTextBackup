@@ -444,3 +444,12 @@
 突然怀疑等主线剧情完结后，螺旋社是不是也打算这样减半+复刻+毫无征兆新角色落地...循环往复混日子 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主线剧情完结？　２０３２年前可以做到吗
 
+
+
+*****
+
+####  rooarr  
+##### 4463#       发表于 2023-1-25 20:29
+
+现在ios的fgo下载完全部数据，应该占用多少空间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
