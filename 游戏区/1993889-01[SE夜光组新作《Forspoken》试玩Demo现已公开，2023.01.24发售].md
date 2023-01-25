@@ -1955,3 +1955,18 @@ ign只给了6分</blockquote>
 
 不知道是否只在早~中期章节才这样，如果全程都是这样搞就太无奈或赶工了
 
+
+
+*****
+
+####  陈词与芍药  
+##### 555#       发表于 2023-1-26 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482818&amp;ptid=1993889" target="_blank">acg_gyancDF 发表于 2023-1-25 10:02</a>
+啊，这么短？
+
+论坛助手,iPhone</blockquote>
+8小时的主线，b站的全流程也基本8-10小时
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
