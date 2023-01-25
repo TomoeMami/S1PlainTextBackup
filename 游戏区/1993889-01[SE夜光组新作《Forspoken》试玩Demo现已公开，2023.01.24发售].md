@@ -1860,3 +1860,45 @@ re引擎先解决僵尸十米开外就掉帧抽抽的问题行不</blockquote>
 
 ign只给了6分
 
+
+
+*****
+
+####  Rintani_Yahato  
+##### 548#       发表于 2023-1-26 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59483386&amp;ptid=1993889" target="_blank">suttv 发表于 2023-1-26 00:03</a>
+
+这什么破玩意3070ti 2K都稳不了，我看国内自媒体还吹不吹SE是日厂技术力顶峰了 ...</blockquote>
+夜光运作早就独立化了，Forspoken这玩意儿预告放出来本部都有人在嘲笑
+
+*****
+
+####  戏言学者  
+##### 549#       发表于 2023-1-26 00:14
+
+夜光死的好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mcq_2  
+##### 550#       发表于 2023-1-26 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59483490&amp;ptid=1993889" target="_blank">套路设计师 发表于 2023-1-26 00:08</a>
+
+ign只给了6分</blockquote>
+给高了，肯定塞钱了。
+
+*****
+
+####  2082082012  
+##### 551#       发表于 2023-1-26 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59483127&amp;ptid=1993889" target="_blank">eilot 发表于 2023-1-25 23:35</a>
+玩过小田田的第3次生日，ff0、近期则是FF15和FF7CC，忘记了GBA王国心钥匙都好像是他
+
+真心感觉不到有「正确 ...</blockquote>
+小甜甜参与kh只有编码，小甜甜入社时是做手机游戏的。ff7bc，编码都是手游。而且那时候这些有游戏加不加zzzq还是创意总监，人设野村说的算。小甜甜在这方面没啥话语权
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
