@@ -1970,3 +1970,17 @@ ign只给了6分</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  GuardHei  
+##### 556#       发表于 2023-1-26 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59477942&amp;ptid=1993889" target="_blank">littlezoo 发表于 2023-1-25 15:02</a>
+有一个亮点，这游戏是第一个支持Direct Storage技术的，加载时间比PS5的那块SSSSSD还要快。。。。 ...</blockquote>
+官方gdc分享
+支持完direct storage也就比没支持之前快了10min，解压还是在cpu上的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
