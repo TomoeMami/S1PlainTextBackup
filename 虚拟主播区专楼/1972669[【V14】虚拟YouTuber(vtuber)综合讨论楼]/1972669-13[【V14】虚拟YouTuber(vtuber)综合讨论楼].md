@@ -1571,3 +1571,12 @@ syl vspo也来研究生制度，乐了
 
 想去看耶路撒冷确实好机会不是很多，但去巴勒斯坦疗养耳朵还是很幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 18433#       发表于 2023-1-25 13:30
+
+感觉vspo 的研修生更大逃杀一点，毕竟现在vspo 也是大明星了
+
