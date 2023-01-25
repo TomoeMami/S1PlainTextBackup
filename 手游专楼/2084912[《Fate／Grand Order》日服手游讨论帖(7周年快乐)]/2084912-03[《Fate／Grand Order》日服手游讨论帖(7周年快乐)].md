@@ -477,3 +477,12 @@
 现在ios的fgo下载完全部数据，应该占用多少空间我的用了15g感觉太多了想删掉重新安装了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下我１６ｇ了　　　感觉没必要　万一把号搞丢了
 
+
+
+*****
+
+####  alucardcz  
+##### 4466#       发表于 2023-1-25 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">减半时间到了。。关了然后又开了　已经２次了。。。这傻子都能看出运营事故了
+
