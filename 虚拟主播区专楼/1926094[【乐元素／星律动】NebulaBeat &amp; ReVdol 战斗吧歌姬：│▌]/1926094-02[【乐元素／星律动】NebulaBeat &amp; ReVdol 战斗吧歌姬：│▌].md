@@ -91,3 +91,15 @@
 
 纸今天时间没安排好，感觉老问题了，应有的安排和即兴杂谈不能平衡，有的时候杂谈才能太强也是个障碍
 
+
+
+*****
+
+####  ladiesman802  
+##### 2976#       发表于 2023-1-26 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59483458&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-26 00:06</a>
+
+纸今天时间没安排好，感觉老问题了，应有的安排和即兴杂谈不能平衡，有的时候杂谈才能太强也是个障碍 ...</blockquote>
+直到直播结束都没进入主题是常事
+
