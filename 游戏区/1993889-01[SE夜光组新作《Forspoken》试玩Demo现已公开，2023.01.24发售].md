@@ -1633,3 +1633,34 @@ DF说光照是画面观感差的最主要原因，之前也有国人SE员工在�
 
 虽然他接盘给狒狒15那坨屎做巧克力色包装没搞成,直接把一坨屎给完整的端了出来,接盘侠没做好,确实该骂.虽然野村粑粑风评不减已经够让人迷惑了,但这么多年后的黑皮异世界溜冰大赛这坨屎的锅怎么还能栽赃到小甜甜头上?我觉得以小甜甜的离职时间来看,这坨屎当时只怕还没开工立项吧?
 
+
+
+*****
+
+####  herryk159  
+##### 530#       发表于 2023-1-25 21:54
+
+SE这几年像窜稀一样，普利埔里爆出一堆粪作。
+
+不知道有没有什么UP激情开喷的？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rustincohle  
+##### 531#       发表于 2023-1-25 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59481989&amp;ptid=1993889" target="_blank">herryk159 发表于 2023-1-25 21:54</a>
+SE这几年像窜稀一样，普利埔里爆出一堆粪作。
+
+不知道有没有什么UP激情开喷的？ ...</blockquote>
+快快快，我想看看。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  BREEEEZE  
+##### 532#       发表于 2023-1-25 22:01
+
+看上去和ff15一个观感水平，2023年的大作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
