@@ -1437,3 +1437,34 @@ ff16再差都有15「保底」，之前PV如果不是纯播片骗人的话，画
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  415452356  
+##### 514#       发表于 2023-1-25 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59474792&amp;ptid=1993889" target="_blank">医生狼多 发表于 2023-1-25 09:22</a>
+50包邮过分了，估计和ffo一个价吧</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ffo距离脱离三位数也不远了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  铅笔  
+##### 515#       发表于 2023-1-25 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59467484&amp;ptid=1993889" target="_blank">大哀之君 发表于 2023-1-24 15:58</a></blockquote>
+真有这个画面质量也可以啊
+
+*****
+
+####  铅笔  
+##### 516#       发表于 2023-1-25 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59465036&amp;ptid=1993889" target="_blank">5353 发表于 2023-1-24 11:54</a>
+
+se老总是e那边的，e那边的dq都不是自己开发的。</blockquote>
+合并了二十年了，全社都是E的形状了。
+
