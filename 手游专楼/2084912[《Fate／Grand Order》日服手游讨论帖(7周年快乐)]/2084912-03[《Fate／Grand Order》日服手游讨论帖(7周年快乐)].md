@@ -432,3 +432,15 @@
 
 突然怀疑等主线剧情完结后，螺旋社是不是也打算这样减半+复刻+毫无征兆新角色落地...循环往复混日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4462#       发表于 2023-1-25 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59479188&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-25 17:23</a>
+
+突然怀疑等主线剧情完结后，螺旋社是不是也打算这样减半+复刻+毫无征兆新角色落地...循环往复混日子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主线剧情完结？　２０３２年前可以做到吗
+
