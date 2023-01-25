@@ -6162,3 +6162,30 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  orz100  
+##### 3514#       发表于 2023-1-25 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59477288&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-25 13:47</a>
+打到雪山怎么开始缺钱了，有啥效率些的刷钱方法不
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v ...</blockquote>
+有换金道具，多出来的怪物材料也可以卖一些，加钱徽章也早点拿好
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白軍浪  
+##### 3515#       发表于 2023-1-25 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59477288&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-25 13:47</a>
+
+打到雪山怎么开始缺钱了，有啥效率些的刷钱方法不
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v ...</blockquote>
+挖矿的时候有副产品宝石，这个是专门卖钱的
+
