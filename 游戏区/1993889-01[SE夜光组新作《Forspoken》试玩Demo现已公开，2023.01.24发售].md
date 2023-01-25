@@ -1902,3 +1902,35 @@ ign只给了6分</blockquote>
 
 —— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  eilot  
+##### 552#       发表于 2023-1-26 00:42
+
+ 本帖最后由 eilot 于 2023-1-26 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59483386&amp;ptid=1993889" target="_blank">suttv 发表于 2023-1-26 00:03</a>
+
+这什么破玩意3070ti 2K都稳不了，我看国内自媒体还吹不吹SE是日厂技术力顶峰了 ...</blockquote>
+3070也只是建议标准，现在都是等4080/4090的报告
+
+或者AMD系会比较好?
+
+找到油管试频，4090...
+
+全特效最大，但没开DLSS，4K、120FPS模式
+
+平均才70多，打龙才约50上下起跳...
+
+开了DLSS
+
+平均约100~90，打龙约80~90多...
+
+*****
+
+####  P02  
+##### 553#       发表于 2023-1-26 00:50
+
+这游戏在PS5的性能模式下渲染分辨率720P再FSR2.0输出到1440P……服
+
