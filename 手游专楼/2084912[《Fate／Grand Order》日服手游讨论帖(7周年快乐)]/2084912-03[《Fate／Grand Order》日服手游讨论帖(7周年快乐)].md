@@ -465,3 +465,15 @@
 其实真完结也不是不行，回到154那种无拘束写剧本不挺好的，2.0整个连续剧结果就是菌鸽鸽自己都不怎么玩，估摸着又是终章强行收束
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4465#       发表于 2023-1-25 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59480950&amp;ptid=2084912" target="_blank">rooarr 发表于 2023-1-25 20:29</a>
+
+现在ios的fgo下载完全部数据，应该占用多少空间我的用了15g感觉太多了想删掉重新安装了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下我１６ｇ了　　　感觉没必要　万一把号搞丢了
+
