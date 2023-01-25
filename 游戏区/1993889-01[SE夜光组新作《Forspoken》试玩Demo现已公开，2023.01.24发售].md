@@ -1984,3 +1984,17 @@ ign只给了6分</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ky7913  
+##### 557#       发表于 2023-1-26 04:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482818&amp;ptid=1993889" target="_blank">acg_gyancDF 发表于 2023-1-25 23:02</a>
+
+啊，这么短？
+
+论坛助手,iPhone</blockquote>
+我玩了12个小时还在第四章没打第一个魔女
+
