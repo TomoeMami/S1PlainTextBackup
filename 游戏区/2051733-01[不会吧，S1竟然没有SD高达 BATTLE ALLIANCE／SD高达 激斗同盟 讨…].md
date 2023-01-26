@@ -108,3 +108,14 @@ dlc的极限之龙，无插件就可以实现无限空连，全物理面板适�
 你需要把所有普通关卡包括正史和破史（不包含混战和dlc），以普通难度通关一遍来解锁困难难度，在困难难 ...</blockquote>
 比较恶心的是原创MA的几个EX图，其他的其实是可以带两个NPC单刷的，两个MS一组的图也很简单
 
+
+
+*****
+
+####  Jtyt  
+##### 810#       发表于 2023-1-26 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59488508&amp;ptid=2051733" target="_blank">godless2020 发表于 2023-1-26 13:16</a>
+格斗有设么推荐吗，易上手，操作门槛低就行.....</blockquote>
+格斗机不太依赖副武器，所以其实都可以用，从空连好上手的角度的话，宗师，超越龙，巴耶力，无正连招都比较简单
+
