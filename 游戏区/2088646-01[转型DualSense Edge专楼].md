@@ -140,3 +140,20 @@
 
 快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？
 
+
+
+*****
+
+####  何处分可  
+##### 187#       发表于 2023-1-26 23:03
+
+<img src="https://img.saraba1st.com/forum/202301/26/230339h7oxca2w8gto5xt9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-26 23:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

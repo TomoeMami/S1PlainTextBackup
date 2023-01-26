@@ -666,3 +666,12 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  TTAA  
+##### 69#       发表于 2023-1-26 23:08
+
+这游戏在国内社区巨冷门我草，发售首日阿B现在就三个小UP直播玩，这完全没有一点宣发啊，明明本地化都做完了
+
