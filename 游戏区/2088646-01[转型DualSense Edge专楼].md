@@ -26,3 +26,14 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  葵  
+##### 178#       发表于 2023-1-26 17:55
+
+看评测，续航其实没缩多少，就少了半小时左右，而且电池和普通版一样的，续航缩了点据说是因为震感加强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便各位已入手的能评测下三角方块XO回弹有改善么？普通版的我觉得偏软绵了，要是这个改善了我就入了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
