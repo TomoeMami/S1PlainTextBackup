@@ -380,3 +380,33 @@ https://b23.tv/XiE69ae
 ●只选一个人当反派其实也是武居拍了罗布的经验谈。
 罗布是前期后期两个反派（爱染+美剑），但拍完之后武居觉得两个角色都拍得有种半途而废不完整的感觉。德凯之中把反派固定在阿迦慕斯一个人上，也是武居认为群像剧里面聚焦的人物少一点比较好。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 908#       发表于 2023-1-26 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495798&amp;ptid=2040765" target="_blank">仟音一心 发表于 2023-1-26 22:04</a>
+
+●阿迦慕斯这个角色几乎是在最后的关头（根原执笔德凯1~3话剧本前）才定下来的。最大的原因在于上面给要求 ...</blockquote>
+这么一想罗布也是为美剑的事情拖了很久，合着真把这俩放在主要反派的位置上了，但那个还好彩龙只是最后才来，斯菲亚却是一上来就在线占着主要矛盾，某种意义上和小中在盖亚里的问题一个样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游蜓  
+##### 909#       发表于 2023-1-26 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">搞传统点设定成阿加慕斯是被斯菲亚侵蚀导致被**不就得了，这样后面奏大被侵蚀不能变身还可以写个迷茫桥段（思维被侵蚀以及不能变身带来的迷茫），不会变成现在的脑子不好使的主角被反派瞎扯淡的话耍的团团转的恶心观感了
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  游蜓  
+##### 910#       发表于 2023-1-26 22:19
+
+又想到一点，按我上面说的，如果是奏大被侵蚀之后破除迷茫获得强劲型，那强劲型就有合理的理由有对斯菲亚特攻能力了，最后一集扳机传功也会合理很多，因为只有德凯能破除斯菲亚
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
