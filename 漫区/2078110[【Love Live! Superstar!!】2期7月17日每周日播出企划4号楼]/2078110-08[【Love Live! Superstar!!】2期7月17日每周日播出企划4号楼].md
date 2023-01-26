@@ -10108,3 +10108,19 @@ liella全员里包括结那诶。
 
 发音得到鲤鱼姐点👍的：Pay，Nako，Nagi，Kuma，Emori
 
+
+
+*****
+
+####  starring  
+##### 11383#       发表于 2023-1-26 19:35
+
+有的人说新年快乐，有的人说新年欢乐，还有一个东北口音说不清<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11384#       发表于 2023-1-26 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差距有点大
+

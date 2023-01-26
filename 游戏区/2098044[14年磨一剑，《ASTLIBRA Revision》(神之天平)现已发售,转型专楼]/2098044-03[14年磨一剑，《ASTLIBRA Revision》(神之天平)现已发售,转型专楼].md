@@ -6262,3 +6262,16 @@ b站专栏搜神之天平</blockquote>
 
 感觉大魔女比第六章的boss强多了
 
+
+
+*****
+
+####  DDWarrior  
+##### 3522#       发表于 2023-1-26 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59477288&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-25 13:47</a>
+打到雪山怎么开始缺钱了，有啥效率些的刷钱方法不
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v ...</blockquote>
+就在雪山这章，乐园最后的一张图里面有一群盾兵，他们掉的盾非常值钱，而且离存档点近，我当时是在这刷钱的
+
