@@ -350,3 +350,17 @@ https://b23.tv/XiE69ae
 1、大BOSS肯定要是斯菲亚，但是主人公战斯菲亚之前要战一个挡在主人公面前的强敌， ...</blockquote>
 论甲方怎么又毁了一部剧
 
+
+
+*****
+
+####  DARKGRAY  
+##### 906#       发表于 2023-1-26 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493027&amp;ptid=2040765" target="_blank">好面子的懒虫 发表于 2023-1-26 19:01</a>
+
+https://b23.tv/XiE69ae
+
+1、大BOSS肯定要是斯菲亚，但是主人公战斯菲亚之前要战一个挡在主人公面前的强敌， ...</blockquote>
+普通人看第一点想到的套路是弄一个实力强的强敌，跨越之后就能和前辈并肩打主线，结局打BOSS独当一面；制作组想到的套路是弄一个反复折腾的牛皮糖拖到结局，打完直接拼BOSS然后靠超大弱点推掉BOSS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
