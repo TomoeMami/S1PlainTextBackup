@@ -6244,3 +6244,21 @@ b站专栏搜神之天平</blockquote>
 他的开门设计是根据门的形状配对钥匙的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">同样的门钥匙就是通用的
 不过五章结束就40集也太能刷了吧
 
+
+
+*****
+
+####  sigh  
+##### 3521#       发表于 2023-1-26 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59490225&amp;ptid=2098044" target="_blank">Earendil_C 发表于 2023-1-26 15:47</a>
+
+他的开门设计是根据门的形状配对钥匙的同样的门钥匙就是通用的
+
+不过五章结束就40集也太能刷了吧 ...</blockquote>
+第六章过了，钥匙拿到了。
+
+我26级照着攻略想逃课魔女，试了2个小时没过，等到五章结束打完魔王等级32级用飞刀战胜斗神后又去挑战魔女，结果试了一晚上还是没过。然后回去练级，把1~5章的装备全练满了，成长盘的高级技能也点出来不少，再去挑战，有了抹除弹幕的技能，重试了四五次总算过了。
+
+感觉大魔女比第六章的boss强多了
+

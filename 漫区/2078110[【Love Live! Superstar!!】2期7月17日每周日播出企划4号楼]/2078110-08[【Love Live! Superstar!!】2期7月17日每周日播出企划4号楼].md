@@ -10041,3 +10041,41 @@ twi：_CelticWhite_
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 11376#       发表于 2023-1-26 18:52
+
+一上来就是pay，干得好啊鲤鱼
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 11377#       发表于 2023-1-26 18:54
+
+携liella全员，开头pay，结尾结那，好耶。
+
+话说青山发音好标准，比某位自称选修中文的好多了w
+
+*****
+
+####  lj205  
+##### 11378#       发表于 2023-1-26 18:55
+
+打铁和朱茵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 11379#       发表于 2023-1-26 18:56
+
+ 本帖最后由 player3960 于 2023-1-26 18:58 编辑 
+
+第一眼看到鲤鱼这视频标题还以为又是哪个up主整活，原来是本尊，鲤鱼你干得好啊!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

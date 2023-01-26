@@ -50,3 +50,15 @@
 看评测，续航其实没缩多少，就少了半小时左右，而且电池和普通版一样的，续航缩了点据说是因为震感加强了[f ...</blockquote>
 我手上的版本比普通版更加软绵，有点像微软精英手柄
 
+
+
+*****
+
+####  葵  
+##### 180#       发表于 2023-1-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59492690&amp;ptid=2088646" target="_blank">Fuero 发表于 2023-1-26 18:37</a>
+
+我手上的版本比普通版更加软绵，有点像微软精英手柄，段落感不强，但回弹凌厉 ...</blockquote>
+谢谢，看来还是得去实体店摸一下再入手<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
