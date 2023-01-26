@@ -6232,3 +6232,15 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Earendil_C  
+##### 3520#       发表于 2023-1-26 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59487760&amp;ptid=2098044" target="_blank">sigh 发表于 2023-1-26 12:32</a>
+城镇里魔女房间那个宝箱怎么打？看了各种攻略打不过魔女，最终五章结束练到40级终于正面打过了，拿到奖励后 ...</blockquote>
+他的开门设计是根据门的形状配对钥匙的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">同样的门钥匙就是通用的
+不过五章结束就40集也太能刷了吧
+
