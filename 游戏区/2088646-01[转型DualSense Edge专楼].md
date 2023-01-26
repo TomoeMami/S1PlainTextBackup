@@ -37,3 +37,16 @@
 
 顺便各位已入手的能评测下三角方块XO回弹有改善么？普通版的我觉得偏软绵了，要是这个改善了我就入了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fuero  
+##### 179#       发表于 2023-1-26 18:37
+
+ 本帖最后由 Fuero 于 2023-1-26 18:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59492034&amp;ptid=2088646" target="_blank">葵 发表于 2023-1-26 17:55</a>
+
+看评测，续航其实没缩多少，就少了半小时左右，而且电池和普通版一样的，续航缩了点据说是因为震感加强了[f ...</blockquote>
+我手上的版本比普通版更加软绵，有点像微软精英手柄
+
