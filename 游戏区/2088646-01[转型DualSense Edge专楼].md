@@ -228,3 +228,12 @@
 我现在就是好奇实际玩家测试，续航多长</blockquote>
 我自己体感2个多小时就想充电了，因为会看到手柄电量只有1格，引发焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  downforce  
+##### 195#       发表于 2023-1-27 06:44
+
+好吧，充电宝在家也有用了。
+
