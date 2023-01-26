@@ -909,3 +909,15 @@ xyy聚怪强，xxyyy是少有的挑空技，都是非常实用的技能，打输
 
 你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗
 
+
+
+*****
+
+####  Hanzong  
+##### 92#       发表于 2023-1-27 06:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59498870&amp;ptid=2116452" target="_blank">sug2shake 发表于 2023-1-27 05:55</a>
+
+你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗 ...</blockquote>
+踩不准就开简单，不丢人
+
