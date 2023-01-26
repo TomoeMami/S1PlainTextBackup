@@ -503,3 +503,15 @@ https://b23.tv/XiE69ae
 之前就一直觉得扯朝影的逻辑没有意义，制作组就是要写这么一个人，这种性格也绝对算不上不能写，只不过这 ...</blockquote>
 问题最大的是还非得给奏大安排一个拯救朝影的任务 然后谁都想不出来这么一个疯子该怎么救 结果就陷入了毫无疑义的反复拉扯之中 连带着把奏大都弄崩了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 919#       发表于 2023-1-27 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59498607&amp;ptid=2040765" target="_blank">renkan119 发表于 2023-1-27 02:52</a>
+
+问题最大的是还非得给奏大安排一个拯救朝影的任务 然后谁都想不出来这么一个疯子该怎么救 结果就陷入了毫 ...</blockquote>
+他这个拉扯没有一点循序渐进，甚至搞了一次失忆也没啥重新审视自己的描写，浪费几集时间接上醒悟还是那么突兀，干脆把拉扯去掉省下空间去讲主线就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
