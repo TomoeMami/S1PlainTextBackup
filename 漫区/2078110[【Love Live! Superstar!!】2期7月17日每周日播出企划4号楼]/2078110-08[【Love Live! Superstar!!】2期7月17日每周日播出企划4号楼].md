@@ -10099,3 +10099,12 @@ liella全员里包括结那诶。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  仟音一心  
+##### 11382#       发表于 2023-1-26 19:22
+
+发音得到鲤鱼姐点👍的：Pay，Nako，Nagi，Kuma，Emori
+
