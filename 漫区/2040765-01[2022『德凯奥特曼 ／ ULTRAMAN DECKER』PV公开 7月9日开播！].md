@@ -336,3 +336,17 @@ https://b23.tv/XiE69ae
 
 5、然后战斗机和机器人就分开搞了，以戴斯法萨为原型的无法变形的泰拉菲扎也定下了。
 
+
+
+*****
+
+####  仟音一心  
+##### 905#       发表于 2023-1-26 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493027&amp;ptid=2040765" target="_blank">好面子的懒虫 发表于 2023-1-26 19:01</a>
+
+https://b23.tv/XiE69ae
+
+1、大BOSS肯定要是斯菲亚，但是主人公战斯菲亚之前要战一个挡在主人公面前的强敌， ...</blockquote>
+论甲方怎么又毁了一部剧
+
