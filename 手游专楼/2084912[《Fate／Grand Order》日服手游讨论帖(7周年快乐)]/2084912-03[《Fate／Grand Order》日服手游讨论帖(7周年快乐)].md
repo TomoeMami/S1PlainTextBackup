@@ -486,3 +486,22 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">减半时间到了。。关了然后又开了　已经２次了。。。这傻子都能看出运营事故了
 
+
+
+*****
+
+####  廖化  
+##### 4467#       发表于 2023-1-26 20:01
+
+推上运营还在装死，我就看看你们怎么收场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4468#       发表于 2023-1-26 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493787&amp;ptid=2084912" target="_blank">廖化 发表于 2023-1-26 20:01</a>
+
+推上运营还在装死，我就看看你们怎么收场</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">31号下半+个新卡池直接登顶笑嘻嘻  收场？ 我继续躺（
+

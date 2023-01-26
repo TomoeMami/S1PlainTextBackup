@@ -77,3 +77,16 @@
 
 —— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 182#       发表于 2023-1-26 20:09
+
+神他妈profile翻译成“简介”，我还迷糊半天这什么鬼？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/fb02f2782dc6ae24b65d7979fec3ef09/CMP_20230126200822416.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/b3538ef6acfb813a2ad8edd6b5d45708/CMP_20230126200822538.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
