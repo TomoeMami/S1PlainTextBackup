@@ -805,3 +805,14 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  秋色如歌  
+##### 82#       发表于 2023-1-27 00:45
+
+打完第一关，这种战斗模式太好了，因为战斗都是跟着节奏，大部分战斗我都能无伤
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
