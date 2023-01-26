@@ -836,3 +836,16 @@ xyy聚怪强，xxyyy是少有的挑空技，都是非常实用的技能，打输
 
 云了开头20分钟，感觉有点对上电波，这游戏有没有啥雷点吗？我有点想冲xgp下了，正好今年巨硬家的阵容还不错
 
+
+
+*****
+
+####  DSFdff  
+##### 85#       发表于 2023-1-27 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59497205&amp;ptid=2116452" target="_blank">Rowen233 发表于 2023-1-26 23:44</a>
+还有一个问题 这游戏少一个朗朗上口的官方中文译名
+
+—— 来自 S1Fun</blockquote>
+有官方名字，《完美音浪》，不过国内都没宣传
+
