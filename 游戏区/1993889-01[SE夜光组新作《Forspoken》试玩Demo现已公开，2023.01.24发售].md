@@ -2026,3 +2026,18 @@ ff15基本也是大世界还有实时光影变化，forspoken好歹也是大世�
 支持完direct storage也就比没支持之前快了10min，解压还是在cpu上的</blockquote>
 那感觉还是很初期啊，毕竟原意有一点就是解放CPU
 
+
+
+*****
+
+####  GuardHei  
+##### 560#       发表于 2023-1-26 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59487181&amp;ptid=1993889" target="_blank">P02 发表于 2023-1-26 11:49</a>
+那感觉技术支持上还是很初期啊，毕竟目的有一点就是解放CPU</blockquote>
+那个要等后面api更新
+不过forspoken这个更多的还是加载瓶颈在别的地方
+单纯加载+解压，m2 ssd上用ds能有快80%的速度提升，但是实际loading大概就快了0.2s…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
