@@ -755,3 +755,17 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Rowen233  
+##### 78#       发表于 2023-1-26 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59496867&amp;ptid=2116452" target="_blank">陈词与芍药 发表于 2023-1-26 23:17</a>
+这游戏在美国推特趋势占了好久的前十，国内就b社发个预告片，xbox官号更是提都不提，估计过年是真不上班
+ ...</blockquote>
+还有一个问题 这游戏少一个朗朗上口的官方中文译名<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
