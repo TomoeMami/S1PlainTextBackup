@@ -38,3 +38,14 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rgauss  
+##### 826#         楼主| 发表于 2023-1-26 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">哦 不对 有些前锋和护卫不堆血 要攻速
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
