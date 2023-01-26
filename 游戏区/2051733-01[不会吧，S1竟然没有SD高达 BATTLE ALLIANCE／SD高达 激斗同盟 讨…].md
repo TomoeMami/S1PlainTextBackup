@@ -76,3 +76,15 @@ DLC3今天放出来了，这游戏算是告一段落了吧，周末再细品一�
 好的，H难度刚开，现在上线不知道还有没有人</blockquote>
 现在格斗机超硬，单刷也是没问题的，就是打ma 慢一些
 
+
+
+*****
+
+####  godless2020  
+##### 807#       发表于 2023-1-26 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59486409&amp;ptid=2051733" target="_blank">Jtyt 发表于 2023-1-26 10:41</a>
+
+现在格斗机超硬，单刷也是没问题的，就是打ma 慢一些</blockquote>
+格斗有设么推荐吗，易上手，操作门槛低就行.....
+
