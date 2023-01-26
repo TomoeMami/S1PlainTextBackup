@@ -90,3 +90,15 @@
 
 —— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  泰坦失足  
+##### 183#         楼主| 发表于 2023-1-26 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493902&amp;ptid=2088646" target="_blank">泥潭办证先锋 发表于 2023-1-26 20:09</a>
+
+神他妈profile翻译成“简介”，我还迷糊半天这什么鬼？</blockquote>
+说明翻译水平直接对标Xbox控制台精英控制器了.<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
