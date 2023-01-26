@@ -675,3 +675,34 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 这游戏在国内社区巨冷门我草，发售首日阿B现在就三个小UP直播玩，这完全没有一点宣发啊，明明本地化都做完了
 
+
+
+*****
+
+####  陈词与芍药  
+##### 70#         楼主| 发表于 2023-1-26 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59496578&amp;ptid=2116452" target="_blank">UnrealApartheid 发表于 2023-1-26 09:58</a>
+感觉这游戏宣发的最佳时机是在去年的TGA上，能够作为继FromSoftware的《装甲核心6》的另一大惊喜赚满讨论度 ...</blockquote>
+这游戏在美国推特趋势占了好久的前十，国内就b社发个预告片，xbox官号更是提都不提，估计过年是真不上班
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KarsusNeko  
+##### 71#       发表于 2023-1-26 23:20
+
+我xgp，用x1怎么下不了，点进去后让购买
+
+*****
+
+####  陈词与芍药  
+##### 72#         楼主| 发表于 2023-1-26 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59496896&amp;ptid=2116452" target="_blank">KarsusNeko 发表于 2023-1-26 10:20</a>
+我xgp，用x1怎么下不了，点进去后让购买</blockquote>
+主机只上了xsx/s
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
