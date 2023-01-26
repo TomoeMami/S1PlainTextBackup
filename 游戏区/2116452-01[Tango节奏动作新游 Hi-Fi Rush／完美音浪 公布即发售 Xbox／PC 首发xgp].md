@@ -654,3 +654,15 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">安保部这武士哥太强了 狠狠地交学费
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 68#       发表于 2023-1-26 22:58
+
+感觉这游戏宣发的最佳时机是在去年的TGA上，能够作为继FromSoftware的《装甲核心6》的另一大惊喜赚满讨论度……
+搞这种突击发售简直就是错过了时机……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
