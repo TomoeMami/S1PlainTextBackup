@@ -166,3 +166,17 @@
 
 索尼真的....这电量能用4个小时吗?
 
+
+
+*****
+
+####  陈词与芍药  
+##### 189#       发表于 2023-1-26 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495946&amp;ptid=2088646" target="_blank">ybfelix 发表于 2023-1-26 09:12</a>
+快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？ ...</blockquote>
+很不错，感觉更扎实点，盒子里也提供了桨型背健可以替换
+我觉得除了续航没啥缺点了hhh
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
