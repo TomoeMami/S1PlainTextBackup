@@ -10133,3 +10133,16 @@ liella全员里包括结那诶。
 
 nagi是想起了学的内容还是跟鱼学的多啊，好标准
 
+
+
+*****
+
+####  nufawneafg  
+##### 11386#       发表于 2023-1-26 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493995&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-26 20:15</a>
+nagi是想起了学的内容还是跟鱼学的多啊，好标准</blockquote>
+新年快乐这种程度的大学稍微学学就忘不了吧
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

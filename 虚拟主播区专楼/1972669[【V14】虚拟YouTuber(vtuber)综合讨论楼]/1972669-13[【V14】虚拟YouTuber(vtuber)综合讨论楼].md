@@ -1660,3 +1660,44 @@ syl vspo也来研究生制度，乐了
 
 当偶像 - 幼龙（有箱） - 箱解散转个人 - 个人势毕业 - 加入774成为小森met - 转会到vspo
 
+
+
+*****
+
+####  ヒトニナル  
+##### 18443#       发表于 2023-1-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59494035&amp;ptid=1972669" target="_blank">poipanchao 发表于 2023-1-26 20:18</a>
+我没记错的话，met的经历是
+
+当偶像 - 幼龙（有箱） - 箱解散转个人 - 个人势毕业 - 加入774成为小森met - ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是挺波澜壮阔的虚拟人生了
+
+*****
+
+####  CielChloe  
+##### 18444#       发表于 2023-1-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59494021&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2023-1-26 20:17</a>
+那有些箱以后干脆当青训队培养完主播靠卖人赚钱算了</blockquote>
+这说法让我想到过去的B站直播区，当然叔叔留不住人也卖不了钱
+
+*****
+
+####  winda  
+##### 18445#       发表于 2023-1-26 20:27
+
+ 本帖最后由 winda 于 2023-1-26 20:28 编辑 
+
+met当初在的vgaming本来也是和vspo相对的枪女箱，不过一个解散，一个成了第三箱，都是命啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+vspo上一次收商业箱转生还是qp，倒也时间不远
+
+*****
+
+####  CielChloe  
+##### 18446#       发表于 2023-1-26 20:27
+
+ 本帖最后由 CielChloe 于 2023-1-26 20:29 编辑 
+
+再想想，反过来从大箱跑去小箱当头牌的可能存在吗？
+
