@@ -410,3 +410,15 @@ https://b23.tv/XiE69ae
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DARKGRAY  
+##### 911#       发表于 2023-1-26 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59496051&amp;ptid=2040765" target="_blank">游蜓 发表于 2023-1-26 22:19</a>
+
+又想到一点，按我上面说的，如果是奏大被侵蚀之后破除迷茫获得强劲型，那强劲型就有合理的理由有对斯菲亚特 ...</blockquote>
+原创的或许会这么操作，可这鬼东西是为了致敬，过去还丢人地当过狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

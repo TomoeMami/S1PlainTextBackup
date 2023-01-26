@@ -10190,3 +10190,14 @@ pay这脸真是吃打光，打光上去了真是惊艳
 还记得去年的我是立本人</blockquote>
 平翘舌就是下个境界了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 11391#       发表于 2023-1-26 22:30
+
+草啊yabu的嘴皮子和舌头仿佛不是自己的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
