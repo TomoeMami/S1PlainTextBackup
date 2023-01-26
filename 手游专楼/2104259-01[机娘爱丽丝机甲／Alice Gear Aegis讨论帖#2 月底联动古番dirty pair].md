@@ -573,3 +573,14 @@ FA，手滑了（
 这一次能吸引到白河豚拯救这个ip吗</blockquote>
 aga本体的百合度也不低了也没见吸引到几个河豚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lxh00770077  
+##### 208#       发表于 2023-1-26 17:44
+
+能把动画入门门槛整低点让一般路人可以轻松观赏就已经阿弥陀佛了
+
+别整的和战女高动画一样不补手游剧情根本不知道这些人在讲什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

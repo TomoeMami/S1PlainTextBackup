@@ -47,3 +47,15 @@
 我问个问题，鹅球怎么退出登录换号</blockquote>
 点左上角三道，再点头像，然后设置里
 
+
+
+*****
+
+####  OedoSoldier  
+##### 1420#       发表于 2023-1-26 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59491732&amp;ptid=1220112" target="_blank">软软人 发表于 2023-1-26 17:31</a>
+
+点左上角三道，再点头像下面的名字</blockquote>
+感谢
+
