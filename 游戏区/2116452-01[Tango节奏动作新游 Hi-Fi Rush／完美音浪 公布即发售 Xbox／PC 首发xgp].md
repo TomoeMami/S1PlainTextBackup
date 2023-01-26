@@ -816,3 +816,14 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Sliurus  
+##### 83#       发表于 2023-1-27 00:59
+
+有了格挡后整个游戏瞬间难度下降<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，因为攻击都是按节奏来所以无脑按节拍点格挡必定成功，而且是360度比闪避更安全
+xyy聚怪强，xxyyy是少有的挑空技，都是非常实用的技能，打输出目前没发现什么好用的
+被骗去用日语语音各种不适，一开英语瞬间对味了，这种画风就该听英语<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。男主好像是蜘蛛侠的配音，小薄荷像渡鸦和ts
+
