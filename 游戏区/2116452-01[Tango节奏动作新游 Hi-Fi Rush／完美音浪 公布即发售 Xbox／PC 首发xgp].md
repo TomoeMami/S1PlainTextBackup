@@ -706,3 +706,41 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  KarsusNeko  
+##### 73#       发表于 2023-1-26 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59496910&amp;ptid=2116452" target="_blank">陈词与芍药 发表于 2023-1-26 23:21</a>
+主机只上了xsx/s
+
+—— 来自 S1Fun</blockquote>
+感谢
+
+*****
+
+####  lazycat233  
+##### 74#       发表于 2023-1-26 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我过完第一章有BUG啊，在沙发上进下一章播动画会跳回主界面，跳动画也没用
+
+*****
+
+####  黑修士  
+##### 75#       发表于 2023-1-26 23:27
+
+意外的不错，最近新游戏感觉玩不过来了，准备把风帆纪元停一停先通关这个。
+
+*****
+
+####  灰色的狐狸  
+##### 76#       发表于 2023-1-26 23:27
+
+得加个offset+1
+
+让我想起有点像上年得metal hellsinger
+
+不过那个是打枪来着。。
+
