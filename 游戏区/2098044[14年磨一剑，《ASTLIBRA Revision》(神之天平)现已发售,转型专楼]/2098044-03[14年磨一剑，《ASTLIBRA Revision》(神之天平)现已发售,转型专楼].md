@@ -6219,3 +6219,16 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第六章进到乐园里有个一直放史莱姆的怪要怎么打 打一半就回满血了啊
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 3519#       发表于 2023-1-26 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59489283&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-26 14:23</a>
+第六章进到乐园里有个一直放史莱姆的怪要怎么打 打一半就回满血了啊 ...</blockquote>
+有个会飞的怪给其他怪回血，先杀那个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
