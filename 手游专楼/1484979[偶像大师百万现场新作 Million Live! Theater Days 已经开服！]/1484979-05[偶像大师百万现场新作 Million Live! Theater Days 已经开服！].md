@@ -12,3 +12,12 @@
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  花开安菲路  
+##### 7070#       发表于 2023-1-26 12:01
+
+玛德，活动又白打了，21w2600名，以后还是摸鱼拿低保吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
