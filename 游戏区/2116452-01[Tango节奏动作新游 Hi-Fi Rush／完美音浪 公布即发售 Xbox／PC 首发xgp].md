@@ -860,3 +860,12 @@ xyy聚怪强，xxyyy是少有的挑空技，都是非常实用的技能，打输
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  XIEGC  
+##### 87#       发表于 2023-1-27 02:20
+
+刚打完第一章，跟着节拍连段好爽<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，这几天有的玩了
+
