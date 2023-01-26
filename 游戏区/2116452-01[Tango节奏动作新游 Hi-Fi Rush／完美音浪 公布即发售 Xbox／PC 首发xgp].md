@@ -827,3 +827,12 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 xyy聚怪强，xxyyy是少有的挑空技，都是非常实用的技能，打输出目前没发现什么好用的
 被骗去用日语语音各种不适，一开英语瞬间对味了，这种画风就该听英语<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。男主好像是蜘蛛侠的配音，小薄荷像渡鸦和ts
 
+
+
+*****
+
+####  CswStar  
+##### 84#       发表于 2023-1-27 01:24
+
+云了开头20分钟，感觉有点对上电波，这游戏有没有啥雷点吗？我有点想冲xgp下了，正好今年巨硬家的阵容还不错
+
