@@ -6284,3 +6284,16 @@ b站专栏搜神之天平</blockquote>
 
 试着吧战神和洛丽塔魔女打了 给的武器重量好高啊 这个要怎么搭配使用？
 
+
+
+*****
+
+####  Rainwedell  
+##### 3524#       发表于 2023-1-26 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495011&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-1-26 21:19</a>
+试着吧战神和洛丽塔魔女打了 给的武器重量好高啊 这个要怎么搭配使用？</blockquote>
+天平减重拉满，然后就是加灵巧（还是敏捷来着）
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
