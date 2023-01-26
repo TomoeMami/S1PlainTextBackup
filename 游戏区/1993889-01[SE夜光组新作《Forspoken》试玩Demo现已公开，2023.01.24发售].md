@@ -2012,3 +2012,17 @@ ff15基本也是大世界还有实时光影变化，forspoken好歹也是大世�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  P02  
+##### 559#       发表于 2023-1-26 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59485061&amp;ptid=1993889" target="_blank">GuardHei 发表于 2023-1-26 03:23</a>
+
+官方gdc分享
+
+支持完direct storage也就比没支持之前快了10min，解压还是在cpu上的</blockquote>
+那感觉还是很初期啊，毕竟原意有一点就是解放CPU
+
