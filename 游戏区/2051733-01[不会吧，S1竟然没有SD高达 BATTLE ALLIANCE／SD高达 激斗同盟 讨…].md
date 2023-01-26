@@ -65,3 +65,14 @@ DLC3今天放出来了，这游戏算是告一段落了吧，周末再细品一�
 你需要把所有普通关卡包括正史和破史（不包含混战和dlc），以普通难度通关一遍来解锁困难难度，在困难难 ...</blockquote>
 好的，H难度刚开，现在上线不知道还有没有人
 
+
+
+*****
+
+####  Jtyt  
+##### 806#       发表于 2023-1-26 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59486069&amp;ptid=2051733" target="_blank">godless2020 发表于 2023-1-26 10:08</a>
+好的，H难度刚开，现在上线不知道还有没有人</blockquote>
+现在格斗机超硬，单刷也是没问题的，就是打ma 慢一些
+
