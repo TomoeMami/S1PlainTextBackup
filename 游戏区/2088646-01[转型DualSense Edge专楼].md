@@ -62,3 +62,18 @@
 我手上的版本比普通版更加软绵，有点像微软精英手柄，段落感不强，但回弹凌厉 ...</blockquote>
 谢谢，看来还是得去实体店摸一下再入手<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 181#       发表于 2023-1-26 20:01
+
+简单玩了下，手感挺好的，比原装重一点。
+给了2种背键，3种摇杆帽，还有1根超长编织线，还给个USB-C的锁。东西感觉有点少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+先用个几天再说吧。
+<img src="https://p.sda1.dev/9/e9d081fcec99d457c9e27dfdec171de5/CMP_20230126195833527.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/fe0cbe3355dcf6d6d36c201f028a61e6/CMP_20230126195833660.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
