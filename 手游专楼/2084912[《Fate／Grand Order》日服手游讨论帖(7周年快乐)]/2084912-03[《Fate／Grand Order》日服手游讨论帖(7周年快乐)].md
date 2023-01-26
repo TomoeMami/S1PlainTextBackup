@@ -539,3 +539,18 @@
 这不是把受众pua得死死的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 4472#       发表于 2023-1-27 00:15
+
+ 本帖最后由 eilot 于 2023-1-27 00:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493787&amp;ptid=2084912" target="_blank">廖化 发表于 2023-1-26 20:01</a>
+
+推上运营还在装死，我就看看你们怎么收场</blockquote>
+1月初有买福袋，之后整个月就算差不多都躺X平X都能估算累积56亿，去到1.31有新池时还不狂笑
+
+每年一月根本不用担心赚不来，之前圣诞也是一直躺X平
+

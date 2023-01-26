@@ -769,3 +769,25 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一之江瑞江  
+##### 79#       发表于 2023-1-27 00:11
+
+这游戏怪种类还可以啊 看来吸取幽灵线教训了？
+
+*****
+
+####  爱护动物抓根宝  
+##### 80#       发表于 2023-1-27 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59497005&amp;ptid=2116452" target="_blank">灰色的狐狸 发表于 2023-1-26 23:27</a>
+得加个offset+1
+
+让我想起有点像上年得metal hellsinger，都套得节奏地牢的机制？
+
+不过那个是打枪来着。。 ...</blockquote>
+体量还是差的挺大的，这游戏长得比地狱歌手还像独立游戏，但完成度和内容都要高不少
+
