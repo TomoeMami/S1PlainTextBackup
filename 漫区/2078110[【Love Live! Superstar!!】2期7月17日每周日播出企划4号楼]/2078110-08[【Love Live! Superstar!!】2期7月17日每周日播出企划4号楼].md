@@ -10146,3 +10146,12 @@ nagi是想起了学的内容还是跟鱼学的多啊，好标准</blockquote>
 
 —— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  qty  
+##### 11387#       发表于 2023-1-26 21:00
+
+pay这脸真是吃打光，打光上去了真是惊艳
+
