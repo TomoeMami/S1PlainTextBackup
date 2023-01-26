@@ -619,3 +619,29 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 日款了，PC上的XGP这游戏下不了？只有主机XGP才能下？
 
+
+
+*****
+
+####  昔日之影  
+##### 64#       发表于 2023-1-26 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59494011&amp;ptid=2116452" target="_blank">myep 发表于 2023-01-26 20:16:39</a>
+质量不错，曲途想成为的样子</blockquote>这游戏就是拿3a级别美术资源和qa能力去弄个独立游戏
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  TTAA  
+##### 65#       发表于 2023-1-26 21:56
+
+目前打了六个小时困难难度，流程看起来才过一半，内容分量是够的。杂兵和boss战都很不错，出乎意料了。有些地方很让人想起魔女1，甚至还有魔兽追击草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 66#       发表于 2023-1-26 21:59
+
+前面几楼说跳跃冲刺手感问题，其实跳跃和冲刺也是可以节拍目押的，场景机关和敌人攻击也是按节拍来所以不需要乱按，跟着节拍就无比顺畅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
