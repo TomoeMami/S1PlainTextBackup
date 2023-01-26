@@ -18,3 +18,23 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全员放假
 
+
+
+*****
+
+####  火腿煎蛋  
+##### 824#       发表于 2023-1-26 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回坑重新玩一下，前锋和护卫的装备应该怎么弄，有必要搞血/防的黑套武器/护具吗，还是赌T7
+
+*****
+
+####  rgauss  
+##### 825#         楼主| 发表于 2023-1-26 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59487021&amp;ptid=2028054" target="_blank">火腿煎蛋 发表于 2023-1-26 11:36</a>
+回坑重新玩一下，前锋和护卫的装备应该怎么弄，有必要搞血/防的黑套武器/护具吗，还是赌T7 ...</blockquote>
+只要血 t7的一般要武器洗出来远/近减，血量这些
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
