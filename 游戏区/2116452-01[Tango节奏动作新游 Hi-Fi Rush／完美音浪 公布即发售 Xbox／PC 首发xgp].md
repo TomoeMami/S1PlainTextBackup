@@ -744,3 +744,14 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 不过那个是打枪来着。。
 
+
+
+*****
+
+####  502307501  
+##### 77#       发表于 2023-1-26 23:36
+
+这个难道不是十年前的 remember me精神续作吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个游戏虽然没有强调节奏，但各种动作的前后摇简直就是给这个铺的路，加上自己搭配的连击总有一种既视感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
