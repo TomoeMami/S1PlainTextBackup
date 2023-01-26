@@ -505,3 +505,15 @@
 推上运营还在装死，我就看看你们怎么收场</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">31号下半+个新卡池直接登顶笑嘻嘻  收场？ 我继续躺（
 
+
+
+*****
+
+####  khxooo  
+##### 4469#       发表于 2023-1-26 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493787&amp;ptid=2084912" target="_blank">廖化 发表于 2023-1-26 20:01</a>
+
+推上运营还在装死，我就看看你们怎么收场</blockquote>
+为什么要收场，开个卡池母猪门就嗷嗷氪金抽卡了，装死？这种事谁还记得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

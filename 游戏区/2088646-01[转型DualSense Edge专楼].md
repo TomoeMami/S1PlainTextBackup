@@ -102,3 +102,12 @@
 神他妈profile翻译成“简介”，我还迷糊半天这什么鬼？</blockquote>
 说明翻译水平直接对标Xbox控制台精英控制器了.<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fuero  
+##### 184#       发表于 2023-1-26 20:34
+
+下午打apex+原神+gt7到现在，感觉还是超预期的，手感非常不错，常打apex、战地、cod等fps的话很推荐整一个，官方背键和高低摇杆帽太实用了，价格和那些高价MOD手柄比也能接受（望向两千块的SCUF）
+
