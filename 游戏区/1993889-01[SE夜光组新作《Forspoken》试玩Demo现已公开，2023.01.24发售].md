@@ -2041,3 +2041,19 @@ ff15基本也是大世界还有实时光影变化，forspoken好歹也是大世�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  P02  
+##### 561#       发表于 2023-1-26 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59487866&amp;ptid=1993889" target="_blank">GuardHei 发表于 2023-1-26 12:37</a>
+
+那个要等后面api更新
+
+不过forspoken这个更多的还是加载瓶颈在别的地方
+
+单纯加载+解压，m2 ssd上用ds能有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜了 forspoken的GDC技术分享没人翻译；生肉也没看到
+

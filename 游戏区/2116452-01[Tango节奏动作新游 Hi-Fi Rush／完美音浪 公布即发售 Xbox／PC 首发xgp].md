@@ -610,3 +610,12 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  时空之旅  
+##### 63#       发表于 2023-1-26 21:48
+
+日款了，PC上的XGP这游戏下不了？只有主机XGP才能下？
+

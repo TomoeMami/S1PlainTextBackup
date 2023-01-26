@@ -111,3 +111,23 @@
 
 下午打apex+原神+gt7到现在，感觉还是超预期的，手感非常不错，常打apex、战地、cod等fps的话很推荐整一个，官方背键和高低摇杆帽太实用了，价格和那些高价MOD手柄比也能接受（望向两千块的SCUF）
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 185#       发表于 2023-1-26 21:43
+
+顺便看了下iOS支持应该是还没跟上，估计以后iOS版本支持？现在只能连上蓝牙实际却根本不能用。
+而且edge连上会提示影响其他蓝牙设备使用，其他3个手柄不会有这个提示，不过我试了下连AirPods好像也没什么问题。
+
+<img src="https://img.saraba1st.com/forum/202301/26/213937oh1rod59igcsmidd.png" referrerpolicy="no-referrer">
+
+<strong>img_6645.png</strong> (475.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-26 21:39 上传
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
