@@ -791,3 +791,17 @@ xgp pc起手一个UE4已崩溃即将关闭<img src="https://static.saraba1st.com
 不过那个是打枪来着。。 ...</blockquote>
 体量还是差的挺大的，这游戏长得比地狱歌手还像独立游戏，但完成度和内容都要高不少
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 81#       发表于 2023-1-27 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59497680&amp;ptid=2116452" target="_blank">爱护动物抓根宝 发表于 2023-1-27 00:21</a>
+体量还是差的挺大的，这游戏长得比地狱歌手还像独立游戏，但完成度和内容都要高不少 ...</blockquote>
+完成度和内容肯定比hellsinger高的
+我怀疑hellsinger砸了不少钱去请乐队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

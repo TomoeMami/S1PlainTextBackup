@@ -460,3 +460,15 @@ https://b23.tv/XiE69ae
 但太过于悲伤，又失去了去处，加上爱的暴走导致整个人变得不正常。
 所以主创团队是明白阿迦慕斯逻辑站不住脚的，但还是想去刻画一个因为失去了挚爱之人变得疯癫的，悲哀的科学家反派。以此来表现出阿迦慕斯与其他新生代反派的不同……
 
+
+
+*****
+
+####  DARKGRAY  
+##### 915#       发表于 2023-1-27 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59497706&amp;ptid=2040765" target="_blank">仟音一心 发表于 2023-1-27 00:23</a>
+
+●阿迦慕斯的作战在根元的想法里是“瞬间完成”的。因为他的目的就是从未来把斯菲亚带到过去，然后斯菲亚把 ...</blockquote>
+之前就一直觉得扯朝影的逻辑没有意义，制作组就是要写这么一个人，这种性格也绝对算不上不能写，只不过这样的人不够格担当主要反派。而且播放期正好碰上P5R上STEAM，某人给我的感觉也一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

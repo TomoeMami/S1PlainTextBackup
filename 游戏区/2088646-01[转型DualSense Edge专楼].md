@@ -209,3 +209,22 @@
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  葵  
+##### 193#       发表于 2023-1-27 00:34
+
+尼玛玩那种震动和自适应板机全开的游戏比如死亡回归、瑞奇叮当之类的原手柄也就撑5、6个小时，这要是再砍3分之一……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 194#       发表于 2023-1-27 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59497575&amp;ptid=2088646" target="_blank">leo204672099 发表于 2023-1-27 00:11</a>
+
+我现在就是好奇实际玩家测试，续航多长</blockquote>
+我自己体感2个多小时就想充电了，因为会看到手柄电量只有1格，引发焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
