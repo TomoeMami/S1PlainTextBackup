@@ -517,3 +517,14 @@
 推上运营还在装死，我就看看你们怎么收场</blockquote>
 为什么要收场，开个卡池母猪门就嗷嗷氪金抽卡了，装死？这种事谁还记得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4470#       发表于 2023-1-26 20:46
+
+【【FGO】盖提亚单挑七冠位-哔哩哔哩】 [https://b23.tv/CWJR7pR](https://b23.tv/CWJR7pR)
+
+现在解包水平越来越高超了...电子斗蛐蛐还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
