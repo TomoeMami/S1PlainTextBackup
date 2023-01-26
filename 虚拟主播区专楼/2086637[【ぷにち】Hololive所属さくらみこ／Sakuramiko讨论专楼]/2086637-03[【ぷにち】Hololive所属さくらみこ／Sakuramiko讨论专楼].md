@@ -11632,3 +11632,14 @@ MV应该是在这的频道发了，不知道什么时候发
 
 还有1小时听歌
 
+
+
+*****
+
+####  rs5621  
+##### 4081#       发表于 2023-1-26 22:06
+
+选手权那个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说我都快忘了还有这东西，估计是忘了吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
