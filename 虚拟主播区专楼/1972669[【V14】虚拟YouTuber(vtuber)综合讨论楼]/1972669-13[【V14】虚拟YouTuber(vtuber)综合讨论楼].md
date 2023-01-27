@@ -1867,3 +1867,21 @@ VGaming成员还真的算是有含金量的，散是满天星了属于。还有�
 感觉拿小箱当跳板不如直接去大箱当练习生吧</blockquote>
 雷子要是能带皮进虹还会选VTA吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18462#       发表于 2023-1-27 19:14
+
+iwaiwa是自己出来单干吧，甚至最早的项目还给了个ickr的帽子
+
+*****
+
+####  _Ra1nMaker  
+##### 18463#       发表于 2023-1-27 19:18
+
+<blockquote>OldGlory 发表于 2023-1-27 18:32
+雷子要是能带皮进虹还会选VTA吗</blockquote>
+她不带皮走都引了那么一帮贵物来团建，带皮转生简直不敢想象
+

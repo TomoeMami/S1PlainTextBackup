@@ -1171,3 +1171,15 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 闪避按shift和跳跳乐可能是个问题，xgp版不支持ps手柄用键盘玩还是有点难受的
 
+
+
+*****
+
+####  conanoysq  
+##### 117#       发表于 2023-1-27 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59505677&amp;ptid=2116452" target="_blank">穿着熊 发表于 2023-1-27 19:04</a>
+
+闪避按shift和跳跳乐可能是个问题，xgp版不支持ps手柄用键盘玩还是有点难受的 ...</blockquote>
+八位堂买个usb转换器就可以用ds了
+
