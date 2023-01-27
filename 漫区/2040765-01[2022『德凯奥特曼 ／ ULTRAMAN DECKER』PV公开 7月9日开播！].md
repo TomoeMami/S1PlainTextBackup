@@ -563,3 +563,15 @@ https://b23.tv/XiE69ae
 
 从后代乱入要求奏大救博士开始觉得有点不对劲，后面发现剧情围着博士这个只会道德绑架无能狂怒不说人话的家伙转就懒得追了，没想到最后居然能崩得人人喊打，艹了。两部致敬作甚至连平稳落地都做不到，明年不拍新盖真是明智的决定。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 924#       发表于 2023-1-28 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509560&amp;ptid=2040765" target="_blank">毛头子 发表于 2023-1-27 23:43</a>
+
+从后代乱入要求奏大救博士开始觉得有点不对劲，后面发现剧情围着博士这个只会道德绑架无能狂怒不说人话的家 ...</blockquote>
+毕竟没想到制作组居然觉得可以围着他走到结局前，虽然再不好也还没到那种地步啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
