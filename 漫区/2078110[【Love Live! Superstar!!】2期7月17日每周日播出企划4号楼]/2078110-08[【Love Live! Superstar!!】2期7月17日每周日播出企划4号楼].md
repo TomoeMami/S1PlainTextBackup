@@ -10264,3 +10264,19 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 双N和彩说的最标准，这仨人里两个学过中文的，所以我宣布nako是liella语言天才<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 11397#       发表于 2023-1-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59499396&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-27 09:10</a>
+
+@ViyViy
+
+这张无字是原图还是网友去码图？我看贴吧好像说的网友p的</blockquote>
+我仔细对比了一下最大的蓝花和粉花，和公布的封面不一样，这个应该是P的。
+
+草，看来大家都很急<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
