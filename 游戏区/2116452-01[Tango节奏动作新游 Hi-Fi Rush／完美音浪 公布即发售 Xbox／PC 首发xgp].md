@@ -1077,3 +1077,17 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 过场动画明明是60帧但是总感觉卡卡的
 
+
+
+*****
+
+####  D-JoeII  
+##### 108#       发表于 2023-1-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59502815&amp;ptid=2116452" target="_blank">伊克路西安 发表于 2023-1-27 14:43</a>
+
+过场动画明明是60帧但是总感觉卡卡的</blockquote>
+日系三渲二动画很多都这样,说是模仿2D动画
+
+我也觉得没必要就是
+
