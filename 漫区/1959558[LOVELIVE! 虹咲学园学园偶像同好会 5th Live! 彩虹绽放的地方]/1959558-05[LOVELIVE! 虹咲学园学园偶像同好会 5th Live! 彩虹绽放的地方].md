@@ -1795,3 +1795,20 @@ ksm生日
 由手机上传
 2023-1-27 11:42 上传
 
+
+
+*****
+
+####  Skyline_R  
+##### 6936#       发表于 2023-1-27 16:00
+
+这四十号人的立绘里，只有侑的胸部有明显的阴影，剩下的小偶像们反而没有以前室田画风的胸部阴影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202301/27/155749geoojrmoej55yj7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (394.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 15:57 上传
+

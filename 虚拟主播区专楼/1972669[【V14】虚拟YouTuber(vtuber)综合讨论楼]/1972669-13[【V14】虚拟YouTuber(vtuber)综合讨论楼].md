@@ -1837,3 +1837,12 @@ VGaming成员还真的算是有含金量的，散是满天星了属于。还有�
 
 现在开了转会的先例，很多小箱可能要变成野心家的跳板了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 18459#       发表于 2023-1-27 15:56
+
+感觉拿小箱当跳板不如直接去大箱当练习生吧
+
