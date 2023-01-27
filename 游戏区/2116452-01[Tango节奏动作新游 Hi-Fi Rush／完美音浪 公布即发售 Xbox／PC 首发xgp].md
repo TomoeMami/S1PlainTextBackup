@@ -1489,3 +1489,12 @@ xgp 手机云玩效果怎么样？
 前面教学有说敌人攻击也是配合节拍的，找准节拍按闪避顺手了以后读条也不用看了 ...</blockquote>
 道理我都懂，但是一旦打起来还是会乱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lugiyahan  
+##### 146#       发表于 2023-1-28 06:14
+
+这日配，是REX吧？~~~
+
