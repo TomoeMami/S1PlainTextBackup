@@ -1032,3 +1032,14 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗 ...</blockquote>
 我第一关踩拍率也就70%多吧，稍微体会到了爽感
 
+
+
+*****
+
+####  lazycat233  
+##### 103#       发表于 2023-1-27 13:52
+
+ 本帖最后由 lazycat233 于 2023-1-27 13:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面有一段BOSS全程节奏游戏，一轮次内打错一拍重来本轮，节奏感不好的属实折磨。打完以为结束了还有一个唐突QTE属实整蛊人了
+

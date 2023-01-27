@@ -713,3 +713,24 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 而且你游其实一直以来都很过分啊，百3的出率，没有硬性保底，各种3pu ...</blockquote>
 只能说深海鱼炎上不起来没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孫光龍  
+##### 216#       发表于 2023-1-27 13:55
+
+这个粉丝数量还行吧...
+老咸鱼常用的那些人肯定早都够了...
+
+*****
+
+####  Rincewind  
+##### 217#       发表于 2023-1-27 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59502348&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-1-27 13:55</a>
+这个粉丝数量还行吧...
+老咸鱼常用的那些人肯定早都够了...</blockquote>
+老咸鱼也不一定会一直带自己喜欢的(仓管)角色刷粉的吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+尤其是200w粉就有称号的情况下，为了解锁语音还要专门再刷100w，没个几十天一两个月刷不起来的
+
