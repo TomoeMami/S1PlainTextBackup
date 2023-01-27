@@ -1103,3 +1103,12 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 嘴炮环节有点爽，最后要是不接住会怎样</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是以为结束了放下手柄，结果她摔下来了，
 
+
+
+*****
+
+####  lazycat233  
+##### 110#       发表于 2023-1-27 15:43
+
+后面的火焰debuff是谁想的，真的恶心，蹭一下火烧屁股还要摇遥杆断好久的节奏，还不如做个易伤状态，这种长时间断节奏而且搓遥杆的反馈不明显，好大可能搓出来又吃一个火
+
