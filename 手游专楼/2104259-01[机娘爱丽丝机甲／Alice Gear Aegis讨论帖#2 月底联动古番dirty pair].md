@@ -700,3 +700,16 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 
 只能说玩的久了被pua了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 215#       发表于 2023-1-27 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59501366&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-1-27 12:26</a>
+反正也不会真有人为了这个去氪金吧
+
+而且你游其实一直以来都很过分啊，百3的出率，没有硬性保底，各种3pu ...</blockquote>
+只能说深海鱼炎上不起来没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
