@@ -10421,3 +10421,18 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 2023-1-27 18:54 上传
 
+
+
+*****
+
+####  P02  
+##### 11403#       发表于 2023-1-27 19:31
+
+ 本帖最后由 P02 于 2023-1-27 19:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天可太趣了
+
+1：🐟提到北京LisAni的回忆了，说那时候还没出道，大屏上打出其他人名字的时候，鼓掌欢呼都很响，打出我的名字的时候，一片寂静；🐟：这谁？
+
+2：<strong>MC</strong>问🐟最近学到的日语是啥 🐟：切腹；<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">精彩的是后面还玩起了梗 ；🐟：大家巡演要来哦 <strong>MC</strong>：不来切腹 🐟：没。。。没有那回事
+
