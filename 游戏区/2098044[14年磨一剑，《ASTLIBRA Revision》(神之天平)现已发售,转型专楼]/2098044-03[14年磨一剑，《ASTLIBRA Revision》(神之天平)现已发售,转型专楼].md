@@ -6367,3 +6367,21 @@ b站专栏搜神之天平</blockquote>
 新章里过了魔王城怎么去法师塔打隐藏？</blockquote>
 还是自己的小屋背后有传送，但是新章开始几个剧情好像不行，不能自由行动。
 
+
+
+*****
+
+####  RockingHorse  
+##### 3532#       发表于 2023-1-27 21:32
+
+不是解的方法，传送去哪个地点呢？我用道具和小屋的传送没找到法师塔
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3533#       发表于 2023-1-27 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59507683&amp;ptid=2098044" target="_blank">RockingHorse 发表于 2023-1-27 21:32</a>
+不是解的方法，传送去哪个地点呢？我用道具和小屋的传送没找到法师塔</blockquote>
+继续往后打，之后才会开放塔的传送
+

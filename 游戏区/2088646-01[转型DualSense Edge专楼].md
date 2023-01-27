@@ -452,3 +452,14 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 —— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  soli1tude0  
+##### 215#       发表于 2023-1-27 21:33
+
+我的x太松，从上边推侧边就能陷下去一大半，倒是没触发，看了圈好像是普遍的品控问题？在考虑要不要换
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
