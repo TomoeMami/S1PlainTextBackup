@@ -545,3 +545,12 @@ https://b23.tv/XiE69ae
 
 看来我在博士刚开始发癫的时候觉得不妙弃了是正确决定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 922#       发表于 2023-1-27 23:21
+
+所以这群傻逼没一个人考虑过博士被斯菲亚吞了一样会暴露老家位置这件事对吧，建议把所有人绑起来循环看环太平洋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
