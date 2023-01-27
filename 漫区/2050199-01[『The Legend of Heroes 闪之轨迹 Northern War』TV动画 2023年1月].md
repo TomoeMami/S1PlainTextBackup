@@ -4286,3 +4286,22 @@ B站港澳台：
 
 —— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aptx8285144  
+##### 507#       发表于 2023-1-27 23:17
+
+伊赛莉亚这段自白好像是真心话，这是准备随时跳反吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，珍娜这是在布置什么战术吗
+
+*****
+
+####  aptx8285144  
+##### 508#       发表于 2023-1-27 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59508785&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-27 22:44</a>
+
+下话就是再做一个支线和另一个队友搞好关系？</blockquote>
+最后再全部跳反到帝国那边去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

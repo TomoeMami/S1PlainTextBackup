@@ -2524,3 +2524,15 @@ deepl机翻：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏和讨鬼相似度有多少
 
+
+
+*****
+
+####  葵  
+##### 294#       发表于 2023-1-27 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59507977&amp;ptid=2092050" target="_blank">TheOccuria 发表于 2023-1-27 21:54</a>
+
+这游戏和讨鬼相似度有多少</blockquote>
+我看了几个武器演示觉得基本上就是讨鬼传秽土转生2.0<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
