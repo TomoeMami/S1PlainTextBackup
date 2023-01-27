@@ -974,3 +974,15 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 玩了一个小时，很爽，感觉是act版节奏天国。一开始还怕自己比较苦手选的普通，现在来看普通太简单了，各位建议往高难度选更爽
 
+
+
+*****
+
+####  D-JoeII  
+##### 98#       发表于 2023-1-27 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59498870&amp;ptid=2116452" target="_blank">sug2shake 发表于 2023-1-27 05:55</a>
+
+你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗 ...</blockquote>
+我建议是别开显示在下面的那个辅助,按自己的节奏打反而会比较好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

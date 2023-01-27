@@ -670,3 +670,15 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 
 我可乐200W信赖我没所谓，什么时候轮到，很急<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 213#       发表于 2023-1-27 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59500563&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-1-27 11:27</a>
+我可乐200W信赖我没所谓，什么时候轮到，很急</blockquote>
+主要还是解锁内容又不是什么非常特别的东西(何况文本wiki每次都有人第一次录入，虽然是非官方的就是了)
+非要锁在重课/爆肝后面就有点不知所谓<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
