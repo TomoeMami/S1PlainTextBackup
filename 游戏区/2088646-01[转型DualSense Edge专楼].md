@@ -269,3 +269,15 @@
 
 都这个价了为啥还要砍电池？真当有线用了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  喵喵叫的猫  
+##### 199#       发表于 2023-1-27 14:01
+
+有ps4背键的前车之鉴
+收到后第一件事就是试这个 2种背键都不会卡到 2只手柄也不会互相干涉
+终极解决电量焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/f3910959ccb072b0515141b9a125ce4f/CMP_20230127140115743.JPG" id="aimg_x3N7r" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
