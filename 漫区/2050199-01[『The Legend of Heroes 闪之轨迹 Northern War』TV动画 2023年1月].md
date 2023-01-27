@@ -4266,3 +4266,23 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">下话就是再做一个支线和另一个队友搞好关系？
 
+
+
+*****
+
+####  酷乐  
+##### 505#       发表于 2023-1-27 22:52
+
+ 本帖最后由 酷乐 于 2023-1-27 23:01 编辑 
+
+女汤里有猿羊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过是闪4的粉色
+
+*****
+
+####  stephenwolf  
+##### 506#       发表于 2023-1-27 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">鉴定为人物彩蛋加轨迹特有无意义任务
+
+—— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
