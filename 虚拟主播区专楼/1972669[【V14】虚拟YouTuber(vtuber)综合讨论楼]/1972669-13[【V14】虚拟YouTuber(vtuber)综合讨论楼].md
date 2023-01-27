@@ -1855,3 +1855,15 @@ VGaming成员还真的算是有含金量的，散是满天星了属于。还有�
 
 确实，你圈和别的行业一样选择&gt;&gt;&gt;&gt;努力，不说直播员，看看被一脚踢出世一箱的iwaiwa后面混成什么鸟样就知道了
 
+
+
+*****
+
+####  OldGlory  
+##### 18461#       发表于 2023-1-27 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59503521&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2023-1-27 15:56</a>
+
+感觉拿小箱当跳板不如直接去大箱当练习生吧</blockquote>
+雷子要是能带皮进虹还会选VTA吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
