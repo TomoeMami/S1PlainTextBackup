@@ -152,3 +152,15 @@
 
 完了，小火驴对叶子入脑了，就差明天坐飞机回国向叶子求婚了
 
+
+
+*****
+
+####  MinFOrder  
+##### 2982#       发表于 2023-1-28 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509608&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-27 23:47</a>
+
+居然是外包的，那k9她们的美工跑了吗</blockquote>
+这些信息她们估计也不会轻易漏出来。只能猜测nb北京迁上海可能流失了不少骨干
+
