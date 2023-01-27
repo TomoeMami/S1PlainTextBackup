@@ -4257,3 +4257,12 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">众所周知,轨迹在终章之前都是无厘头任务,没意义的
 
+
+
+*****
+
+####  Aeons  
+##### 504#       发表于 2023-1-27 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">下话就是再做一个支线和另一个队友搞好关系？
+
