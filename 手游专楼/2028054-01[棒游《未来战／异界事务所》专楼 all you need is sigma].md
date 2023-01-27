@@ -60,3 +60,14 @@
 
 T7有钱有肝（挂）太强了 潜力无限的 黑套是给穷人保底的
 
+
+
+*****
+
+####  rgauss  
+##### 828#         楼主| 发表于 2023-1-27 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">nm 我想要吊瓶
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
