@@ -1112,3 +1112,14 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 后面的火焰debuff是谁想的，真的恶心，蹭一下火烧屁股还要摇遥杆断好久的节奏，还不如做个易伤状态，这种长时间断节奏而且搓遥杆的反馈不明显，好大可能搓出来又吃一个火
 
+
+
+*****
+
+####  Rowen233  
+##### 111#       发表于 2023-1-27 16:21
+
+下野纮配音+郎情妾意QTE 
+
+我将册封它为新的潭游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
