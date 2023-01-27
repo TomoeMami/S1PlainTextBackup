@@ -1266,3 +1266,15 @@ jamphibian!
 
 按教程的意思是重击在命中瞬间按重击可以直接出刀？就是说可以无视那个两拍才能命中的规则？感觉涉及到轻重混合的招式我按起来就有点略变扭 尤其是空中XYXY那招 很难抓准
 
+
+
+*****
+
+####  白軍浪  
+##### 126#       发表于 2023-1-27 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506957&amp;ptid=2116452" target="_blank">Emmerich 发表于 2023-1-27 20:37</a>
+
+按教程的意思是重击在命中瞬间按重击可以直接出刀？就是说可以无视那个两拍才能命中的规则？感觉涉及到轻重 ...</blockquote>
+试试在没有按钮的地方空按一下来过那下2拍
+

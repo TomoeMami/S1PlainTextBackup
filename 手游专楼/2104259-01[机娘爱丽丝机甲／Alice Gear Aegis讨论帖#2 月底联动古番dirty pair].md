@@ -745,3 +745,13 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 
 还有就是解决了一个问题，就是开天赋树后有不少人抱怨刷点数很亏，因为喜欢的人早就200W了而又要给喜欢的人刷点数，于是现在就给他们加了点目标<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 219#       发表于 2023-1-27 21:01
+
+[https://twitter.com/RBnMzcw6O47rnab/status/1618745747905867776 ](https://twitter.com/RBnMzcw6O47rnab/status/1618745747905867776)
+<img src="https://p.sda1.dev/9/4b668ff95fd025722605312ec42e4806/CMP_20230127210142722.jpg" referrerpolicy="no-referrer">
+
