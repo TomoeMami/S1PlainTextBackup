@@ -1278,3 +1278,12 @@ jamphibian!
 按教程的意思是重击在命中瞬间按重击可以直接出刀？就是说可以无视那个两拍才能命中的规则？感觉涉及到轻重 ...</blockquote>
 试试在没有按钮的地方空按一下来过那下2拍
 
+
+
+*****
+
+####  lazycat233  
+##### 127#       发表于 2023-1-27 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是很讨厌这种要固定招破盾的机制
+

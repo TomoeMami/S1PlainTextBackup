@@ -10516,3 +10516,48 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 <img src="https://img.saraba1st.com/forum/202301/27/210751v19w9nd25n26wkt5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 11410#       发表于 2023-1-27 21:17
+
+<blockquote>#Liyuu[超话]# リスアニ ！LIVE 2023✨1/27 “EXTRA STAGE”第一次在武道馆演出真的超级荣幸超级开心✌🏻 </blockquote>
+
+FD4122BD-A9D1-4196-8009-C71B68EB6ADC.jpeg
+(496.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202301/27/211636cjfy4g109b1y1zkx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+634EB735-636D-423B-B568-0B47636C6AE9.jpeg
+(418.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202301/27/211642iiiass6s2m9uyjma.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+86A477CA-36EC-46F8-8CCA-061CC14AE891.jpeg
+(779.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202301/27/211636adqaykeeaev3f3nm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5B5959FD-D266-4235-8FC3-3AB7D916C109.jpeg
+(699.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202301/27/211636miy7ei1ej4eh887y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
