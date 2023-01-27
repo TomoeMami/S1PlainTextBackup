@@ -4391,3 +4391,15 @@ B站港澳台：
 
 还有金发女路人啊
 
+
+
+*****
+
+####  Aeons  
+##### 518#       发表于 2023-1-28 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59510261&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-1-28 00:46</a>
+
+看这个的观众不就是想看看动画的旧7新7,在座的各位有多少真的冲着看这主角4人组来的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我还是想看点对诺州和北方战争的描写的，前两话还像那么点回事
+
