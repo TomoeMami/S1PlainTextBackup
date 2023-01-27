@@ -986,3 +986,24 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗 ...</blockquote>
 我建议是别开显示在下面的那个辅助,按自己的节奏打反而会比较好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 99#       发表于 2023-1-27 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59500049&amp;ptid=2116452" target="_blank">余情自取 发表于 2023-01-27 10:38:23</a>
+玩了一个小时，很爽，感觉是act版节奏天国。一开始还怕自己比较苦手选的普通，现在来看普通太简单了，各 ...</blockquote>普通难度后面怪多了就难了，，后面两种盾的怪，不破防打不了，要切援护破盾真的手忙脚乱的，，，主要是这平a还爱自动吸到有盾的怪上
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lazycat233  
+##### 100#       发表于 2023-1-27 11:45
+
+这游戏平台跳跃部分太多了，暴露了跳跃手感特别差的缺点
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
