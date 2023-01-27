@@ -932,3 +932,14 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 感觉唯一一个打分媒体还是是自发评测的
 
+
+
+*****
+
+####  发光的球  
+##### 94#       发表于 2023-1-27 09:35
+
+这是不是就是3d版的节奏地牢
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

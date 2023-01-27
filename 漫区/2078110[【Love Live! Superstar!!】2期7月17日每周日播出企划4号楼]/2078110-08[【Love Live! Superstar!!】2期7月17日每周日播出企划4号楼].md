@@ -10253,3 +10253,14 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 11396#       发表于 2023-1-27 09:34
+
+小百合和朱音都是典型日本发音习惯，小百合不知道说中文要张嘴所以发不出音，朱音意识到要把嘴巴打开但是控制不了肌肉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+双N和彩说的最标准，这仨人里两个学过中文的，所以我宣布nako是liella语言天才<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
