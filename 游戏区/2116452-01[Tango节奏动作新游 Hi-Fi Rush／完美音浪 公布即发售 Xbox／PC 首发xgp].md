@@ -1215,3 +1215,22 @@ jamphibian!
 真不愧是鬼佬做的act，也太简单了吧，极难难度第一关除了boss就没死过，boss也就死了2次就过了，bos ...</blockquote>
 我困难开局第二关开始平均续关5次，两三个枪兵同时架枪，怪多起来啥都看不清<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AEmpire  
+##### 121#       发表于 2023-1-27 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506004&amp;ptid=2116452" target="_blank">CswStar 发表于 2023-1-27 19:26</a>
+
+真不愧是鬼佬做的act，也太简单了吧，极难难度第一关除了boss就没死过，boss也就死了2次就过了，bos ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这才到哪。。放心，后期强度很高的
+
+*****
+
+####  madcow  
+##### 122#       发表于 2023-1-27 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有萝卜版的恶灵附身男一男二
+

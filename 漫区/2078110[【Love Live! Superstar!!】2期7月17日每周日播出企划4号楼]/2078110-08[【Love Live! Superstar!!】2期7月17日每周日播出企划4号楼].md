@@ -10467,3 +10467,14 @@ pay这脸真是吃打光，打光上去了真是惊艳
 二宫结衣教的</blockquote>
 是之前的广播里吗？好像阴キャ也是她教的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  P02  
+##### 11407#       发表于 2023-1-27 20:19
+
+<blockquote>稀勢のささ 发表于 2023-1-27 20:04
+是之前的广播里吗？好像阴キャ也是她教的？</blockquote>
+是啊
+
