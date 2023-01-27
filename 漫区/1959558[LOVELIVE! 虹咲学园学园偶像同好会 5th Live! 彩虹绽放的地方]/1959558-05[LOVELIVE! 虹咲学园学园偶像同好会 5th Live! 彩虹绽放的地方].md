@@ -1827,3 +1827,13 @@ ksm生日
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  仟音一心  
+##### 6938#       发表于 2023-1-27 21:45
+
+にじよん あにめーしょん 04
+​果林：我看我自己<img src="https://p.sda1.dev/9/8084634aa9925826db9d65bd6103907f/CMP_20230127214535965.jpg" referrerpolicy="no-referrer">
+

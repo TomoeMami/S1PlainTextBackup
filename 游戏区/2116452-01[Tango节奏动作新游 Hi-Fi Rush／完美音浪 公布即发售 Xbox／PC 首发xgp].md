@@ -1287,3 +1287,17 @@ jamphibian!
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是很讨厌这种要固定招破盾的机制
 
+
+
+*****
+
+####  CswStar  
+##### 128#       发表于 2023-1-27 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506622&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-27 20:12</a>
+
+我困难开局第二关开始平均续关5次，两三个枪兵同时架枪，怪多起来啥都看不清 ...</blockquote>
+我刚把第二关过了，这游戏从第二关才开始有点意思，大剑和枪兵的组合才让我觉得有点压力，关底boss很有魄力，我打了20次才过去，她的歌很好听，但我老是踩不到拍子上<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+第二关把能力解锁了才像个act，要是能有踩怪重置二段跳和offset就好了
+
