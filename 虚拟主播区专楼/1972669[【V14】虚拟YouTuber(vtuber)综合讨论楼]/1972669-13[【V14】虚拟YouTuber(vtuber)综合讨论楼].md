@@ -1797,3 +1797,21 @@ VGaming成员还真的算是有含金量的，散是满天星了属于。还有�
 
 主要本身她的皮质量也好，换个动物园的皮恐怕早跑了。
 
+
+
+*****
+
+####  毛头小希  
+##### 18456#       发表于 2023-1-27 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59482181&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2023-1-25 22:09</a>
+
+以为出了一期之后们vta机制也该辨明了，结果更晕。无组合名无组合曲，想说没事反正成员感情真，结果混合出 ...</blockquote>
+九埜日下部本来就是二期生里男女各自的top当然没问题啊，倒不如说把一期生的top放了一年压到最后才出道是个什么鸡掰操作，前述这两个也要经历这种待遇的话只能说vta制度真的迷上加迷<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+佐伯感觉非常的有热情应该也是没问题的吧，倒不如说目前来看只要不中途跑路出道都是没问题的，然而压着不出道的时间越长跑路几率就越高……
+
+至于组合名组合曲的问题，当初三个人隐藏了vta档却没有声息的时候有人猜测是创作组合曲的作曲家还是作词家？被炎上逮捕了所以要花时间重做歌曲和mv，现在就不知道是什么原因了，可能是七个人不好弄？
+
+说到底本来就没有vta毕业出道一定自带组合名组合曲的官方说法，只能说是金凤花和VOLTA带来的思维定式了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
