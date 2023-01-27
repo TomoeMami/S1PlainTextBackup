@@ -10445,3 +10445,25 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是哪儿学的啊
 
+
+
+*****
+
+####  P02  
+##### 11405#       发表于 2023-1-27 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506345&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-27 19:53</a>
+
+这是哪儿学的啊</blockquote>
+二宫结衣教的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11406#       发表于 2023-1-27 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506431&amp;ptid=2078110" target="_blank">P02 发表于 2023-1-27 20:00</a>
+
+二宫结衣教的</blockquote>
+是之前的广播里吗？好像阴キャ也是她教的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
