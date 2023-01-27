@@ -1477,3 +1477,15 @@ xgp 手机云玩效果怎么样？
 
 普通难度随便玩玩，一晚上过得好快，有种在看成龙历险记的感觉，开心
 
+
+
+*****
+
+####  Sliurus  
+##### 145#       发表于 2023-1-28 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506808&amp;ptid=2116452" target="_blank">穿着熊 发表于 2023-1-27 20:25</a>
+
+前面教学有说敌人攻击也是配合节拍的，找准节拍按闪避顺手了以后读条也不用看了 ...</blockquote>
+道理我都懂，但是一旦打起来还是会乱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
