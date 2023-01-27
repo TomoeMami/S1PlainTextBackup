@@ -248,3 +248,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Fuero  
+##### 197#       发表于 2023-1-27 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495946&amp;ptid=2088646" target="_blank">ybfelix 发表于 2023-1-26 22:12</a>
+
+快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？ ...</blockquote>
+挺微妙，比喻一下有点像按option键和按普通按钮的差别，都很舒服，可以哪个顺手用哪个
+
