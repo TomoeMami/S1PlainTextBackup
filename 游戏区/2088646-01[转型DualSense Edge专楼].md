@@ -260,3 +260,12 @@
 快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？ ...</blockquote>
 挺微妙，比喻一下有点像按option键和按普通按钮的差别，都很舒服，可以哪个顺手用哪个
 
+
+
+*****
+
+####  rainsheep  
+##### 198#       发表于 2023-1-27 13:43
+
+都这个价了为啥还要砍电池？真当有线用了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
