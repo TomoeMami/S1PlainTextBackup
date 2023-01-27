@@ -341,3 +341,19 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  joker9527  
+##### 205#       发表于 2023-1-27 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59503150&amp;ptid=2088646" target="_blank">马金葛 发表于 2023-1-27 15:21</a>
+
+7页下来没看到有人插到PC用的啊，我是26号0点JD付款，今早拿到了，那我可以先来说说了。
+
+省流：PC目前基本 ...</blockquote>
+steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
+
+本来想买个接pc打鬼泣5的，查了一圈没有人用pc
+
