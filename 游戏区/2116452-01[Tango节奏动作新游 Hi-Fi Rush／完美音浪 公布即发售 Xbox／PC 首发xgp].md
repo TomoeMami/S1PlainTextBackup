@@ -1234,3 +1234,14 @@ jamphibian!
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有萝卜版的恶灵附身男一男二
 
+
+
+*****
+
+####  穿着熊  
+##### 123#       发表于 2023-1-27 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506622&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-27 20:12</a>
+我困难开局第二关开始平均续关5次，两三个枪兵同时架枪，怪多起来啥都看不清 ...</blockquote>
+前面教学有说敌人攻击也是配合节拍的，找准节拍按闪避顺手了以后读条也不用看了
+
