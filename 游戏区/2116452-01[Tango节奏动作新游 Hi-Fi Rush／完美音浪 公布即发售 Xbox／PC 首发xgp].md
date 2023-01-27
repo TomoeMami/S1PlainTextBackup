@@ -1007,3 +1007,16 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  konev  
+##### 101#       发表于 2023-1-27 13:02
+
+<blockquote>发光的球 发表于 2023-1-27 09:35
+这是不是就是3d版的节奏地牢
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.4</blockquote>
+节奏版鬼泣...但卖相是在玩动画片
+
