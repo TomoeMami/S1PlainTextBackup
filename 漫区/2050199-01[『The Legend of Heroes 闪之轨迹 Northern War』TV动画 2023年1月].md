@@ -4357,3 +4357,14 @@ B站港澳台：
 
 女主慢慢改变中
 
+
+
+*****
+
+####  6030sylar  
+##### 515#       发表于 2023-1-28 00:14
+
+导力器只塞个绿色的晶片应该只有通讯功能，但凡插个攻击力1放个火球都能跑掉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+熟人太多了，每集放一两个出来钓老玩家是吧<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
