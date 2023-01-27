@@ -943,3 +943,23 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  Sliurus  
+##### 95#       发表于 2023-1-27 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59499548&amp;ptid=2116452" target="_blank">发光的球 发表于 2023-1-27 09:35</a>
+ 这是不是就是3d版的节奏地牢  — from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.4</blockquote>
+不太一样，打节拍是奖励不是强制，轻攻击4/4拍，重攻击2/4拍，重到轻按起来蛮容易乱的
+
+*****
+
+####  Sliurus  
+##### 96#       发表于 2023-1-27 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59498870&amp;ptid=2116452" target="_blank">sug2shake 发表于 2023-1-27 05:55</a>
+ 你们玩的爽的踩拍率有多少，我节奏感一坨踩拍率就5、60果然是爽不起来了吗 ...</blockquote>
+有辅助节拍器，可以看着按练练手感。节拍除了按下去的节奏还得听背景的节奏，所以不能随便起手
+
