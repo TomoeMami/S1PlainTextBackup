@@ -441,3 +441,14 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 周围不亮，就一个白色小灯</blockquote>
 谢谢，还以为灯坏了呢
 
+
+
+*****
+
+####  windspearw  
+##### 214#       发表于 2023-1-27 21:22
+
+只给2背键就不吐槽了，手柄本体加上usb锁扣是真的重，建议非刚需用户不要用锁扣
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
