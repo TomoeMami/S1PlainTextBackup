@@ -164,3 +164,17 @@
 居然是外包的，那k9她们的美工跑了吗</blockquote>
 这些信息她们估计也不会轻易漏出来。只能猜测nb北京迁上海可能流失了不少骨干
 
+
+
+*****
+
+####  ladiesman802  
+##### 2983#       发表于 2023-1-28 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59510719&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-28 01:40</a>
+
+这些信息她们估计也不会轻易漏出来。只能猜测nb北京迁上海可能流失了不少骨干 ...</blockquote>
+看乐元素招聘不就知道了么？之前不是急招程序员么？
+
+反正现在基本从0开始了，春节假期居然连小年夜表演都不做切片投稿，可知用人紧张
+
