@@ -10436,3 +10436,12 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 2：<strong>MC</strong>问🐟最近学到的日语是啥 🐟：切腹；<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">精彩的是后面还玩起了梗 ；🐟：大家巡演要来哦 <strong>MC</strong>：不来切腹 🐟：没。。。没有那回事
 
+
+
+*****
+
+####  稀勢のささ  
+##### 11404#       发表于 2023-1-27 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是哪儿学的啊
+
