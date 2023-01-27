@@ -1043,3 +1043,12 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面有一段BOSS全程节奏游戏，一轮次内打错一拍重来本轮，节奏感不好的属实折磨。打完以为结束了还有一个唐突QTE属实整蛊人了
 
+
+
+*****
+
+####  wpcc  
+##### 104#       发表于 2023-1-27 14:16
+
+大作玩起来像音游是因为复读最大收益连招的问题 那些玩意还带完美判定罢了
+
