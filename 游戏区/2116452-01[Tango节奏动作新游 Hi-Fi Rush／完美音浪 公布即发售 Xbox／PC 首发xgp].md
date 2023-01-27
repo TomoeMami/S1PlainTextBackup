@@ -1183,3 +1183,23 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 闪避按shift和跳跳乐可能是个问题，xgp版不支持ps手柄用键盘玩还是有点难受的 ...</blockquote>
 八位堂买个usb转换器就可以用ds了
 
+
+
+*****
+
+####  thee  
+##### 118#       发表于 2023-1-27 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59485203&amp;ptid=2116452" target="_blank">sughiy 发表于 2023-1-26 05:55</a>
+这游戏是用来讽刺大部分动作游戏的吧，既然你们模式那么单一跟音游一样，那我就给你个音游。 我之前一种关 ...</blockquote>
+jamphibian!
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CswStar  
+##### 119#       发表于 2023-1-27 19:26
+
+真不愧是鬼佬做的act，也太简单了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，极难难度第一关除了boss就没死过，boss也就死了2次就过了，boss战还是过一个阶段就给存个档的，希望后面能难一点吧，难道真是个音游吗？不过确实挺爽的，打着打着我也跟着抖了。
+
