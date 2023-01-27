@@ -1132,3 +1132,22 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，后面还有XG的梗
 
+
+
+*****
+
+####  Rowen233  
+##### 113#       发表于 2023-1-27 16:34
+
+虚假的xb2-2：xb3
+
+真正的xb2-2：Hi-Fi Rush
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 114#       发表于 2023-1-27 16:38
+
+这游戏属实黑马啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
