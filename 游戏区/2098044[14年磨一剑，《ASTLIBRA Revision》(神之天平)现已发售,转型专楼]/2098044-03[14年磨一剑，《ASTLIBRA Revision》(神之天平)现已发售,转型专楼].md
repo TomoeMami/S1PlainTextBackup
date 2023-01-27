@@ -6355,3 +6355,15 @@ b站专栏搜神之天平</blockquote>
 
 还记得老家那边你对拦路的npc做啥了不？王城的士兵同理。太喜欢这种完全不告诉你解法但是处处告诉着你解法的游戏了
 
+
+
+*****
+
+####  christiny  
+##### 3531#       发表于 2023-1-27 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59506833&amp;ptid=2098044" target="_blank">RockingHorse 发表于 2023-1-27 20:27</a>
+
+新章里过了魔王城怎么去法师塔打隐藏？</blockquote>
+还是自己的小屋背后有传送，但是新章开始几个剧情好像不行，不能自由行动。
+
