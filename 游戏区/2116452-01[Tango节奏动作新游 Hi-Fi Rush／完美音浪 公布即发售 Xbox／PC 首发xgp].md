@@ -1162,3 +1162,12 @@ meta现在都没分 敢情真没送测啊<img src="https://static.saraba1st.com/
 开局选语音日配，味真纯正，男主又又又是下野纮，小薄荷声音也配的极好
 玩到后面整个人都在一抖一抖，嗨爆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  穿着熊  
+##### 116#       发表于 2023-1-27 19:04
+
+闪避按shift和跳跳乐可能是个问题，xgp版不支持ps手柄用键盘玩还是有点难受的
+
