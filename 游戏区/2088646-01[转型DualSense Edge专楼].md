@@ -357,3 +357,17 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 本来想买个接pc打鬼泣5的，查了一圈没有人用pc
 
+
+
+*****
+
+####  马金葛  
+##### 206#       发表于 2023-1-27 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59504597&amp;ptid=2088646" target="_blank">joker9527 发表于 2023-1-27 17:31</a>
+
+steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
+
+本来想买个接pc打鬼泣5的，查了一圈没有人 ...</blockquote>
+我觉得恐怕是不行的（其实我也没试过），PC上不出官方设置工具我觉得基本上只能当个普通版的用。
+
