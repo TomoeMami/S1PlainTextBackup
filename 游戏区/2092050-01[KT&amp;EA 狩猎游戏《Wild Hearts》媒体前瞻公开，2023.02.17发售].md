@@ -2515,3 +2515,12 @@ deepl机翻：
 
 新实机演示：[https://youtu.be/_OvvUYWhwdQ](https://youtu.be/_OvvUYWhwdQ)
 
+
+
+*****
+
+####  TheOccuria  
+##### 293#       发表于 2023-1-27 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏和讨鬼相似度有多少
+

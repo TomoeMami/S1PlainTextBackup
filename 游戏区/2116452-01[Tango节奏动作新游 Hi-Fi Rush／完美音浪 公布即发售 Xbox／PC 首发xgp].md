@@ -1301,3 +1301,15 @@ jamphibian!
 
 第二关把能力解锁了才像个act，要是能有踩怪重置二段跳和offset就好了
 
+
+
+*****
+
+####  TTAA  
+##### 129#       发表于 2023-1-27 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59507465&amp;ptid=2116452" target="_blank">lazycat233 发表于 2023-1-27 21:15</a>
+
+还是很讨厌这种要固定招破盾的机制，这最终BOSS是真的弱智，花里胡哨的特效加必须破盾的机制，真的 ...</blockquote>
+我基本靠J防破盾打完的，普攻和队友很难打伤害，boss有个浮游炮连击，全部挡中必破
+
