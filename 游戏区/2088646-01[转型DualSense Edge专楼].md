@@ -281,3 +281,20 @@
 终极解决电量焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/f3910959ccb072b0515141b9a125ce4f/CMP_20230127140115743.JPG" id="aimg_x3N7r" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+
+*****
+
+####  马金葛  
+##### 200#       发表于 2023-1-27 15:21
+
+7页下来没看到有人插到PC用的啊，我是26号0点JD付款，今早拿到了，那我可以先来说说了。
+
+省流：PC目前基本不支持，需要等待各方更新。
+
+和dualsence普通版本国行首发刚拿回来的时候差不多，整个PC上只有两个东西能认出来这玩意儿，第一个就是windows，能正确显示手柄的名字；第二个就是steam，能在大屏幕模式里面操作，然后对于绝大部分的游戏，都是一个无法识别为手柄的一个设备，包括试了几个原生支持dualsence的游戏，比如COD19、巫师3次世代版、死亡搁浅岛剪版之类，都是完全没反应，直接就是“没有检测到控制器”，别的能原生支持的游戏还没多试，搞不好一圈弄下来说不定真有几个会支持的。而我抢着首发买dualsence edge还在PC上用，大多还是源于目前来看，新游戏支持dualsence其实不算少的，几家大厂的比如动视育碧的根本查都不用查，肯定原生支持自适应扳机，特别是索尼第一方移植过来的游戏，就算是不支持自适应扳机，至少还是能做到即插即用当作一个有线的PS4手柄使用的这样的一个前提，谁知现在算是一夜回到解放前了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，后续再试多几个游戏再更新一下。
+
+当然，既然steam能支持，那在steam的控制器设置页面里面勾上那个“playstation配置支持”，就可以实现将dualsence edge模拟成XBOX系手柄，那就是正常当个XBOX手柄在用了，至少像怪猎崛起、P5R一类可以自定义图标的情况下，是可以正常实现能用+图标识别的。
+
+另外，能算是意料之中的是，PC上用来更新dualsence固件的那个软件还是绝赞认不出，估计近期会更新吧，而且还需要能自定义按键的功能啊不然我买这玩意儿不就是个其实摸起来都没大区别的dualsence嘛<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
