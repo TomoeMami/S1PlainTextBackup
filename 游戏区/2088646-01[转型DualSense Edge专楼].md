@@ -429,3 +429,15 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 不知道是不是错觉，震感好像是比普通版更强？
 
+
+
+*****
+
+####  wyy123  
+##### 213#       发表于 2023-1-27 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59504958&amp;ptid=2088646" target="_blank">Fuero 发表于 2023-1-27 18:08</a>
+
+周围不亮，就一个白色小灯</blockquote>
+谢谢，还以为灯坏了呢
+
