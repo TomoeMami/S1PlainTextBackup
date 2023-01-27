@@ -10201,3 +10201,27 @@ pay这脸真是吃打光，打光上去了真是惊艳
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 11392#       发表于 2023-1-27 08:44
+
+之前杂志标题遮着，现在无水印无遮挡的图感觉帽子上的花有点糙啊，通俗点说不像一体成型的，像其它地方拉来的素材然后抠图没抠干净<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道原稿没这些花，花的光影貌似都跟整张图不合。
+
+<img src="https://img.saraba1st.com/forum/202301/27/083949stty1y01bxboz1jg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230127083725.jpg</strong> (78.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-27 08:39 上传
+
+*****
+
+####  lj205  
+##### 11393#       发表于 2023-1-27 08:50
+
+无水印图分享一下呗
+
