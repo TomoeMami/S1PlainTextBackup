@@ -1909,3 +1909,14 @@ iwaiwa是自己出来单干吧，甚至最早的项目还给了个ickr的帽子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这张熊猫人超棒的。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18466#       发表于 2023-1-28 02:02
+
+露娜玩邪恶冥刻战术还不错，难道说其实是vspo里最聪明的？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
