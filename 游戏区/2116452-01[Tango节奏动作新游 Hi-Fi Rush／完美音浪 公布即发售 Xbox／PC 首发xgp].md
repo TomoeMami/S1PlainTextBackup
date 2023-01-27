@@ -1313,3 +1313,41 @@ jamphibian!
 还是很讨厌这种要固定招破盾的机制，这最终BOSS是真的弱智，花里胡哨的特效加必须破盾的机制，真的 ...</blockquote>
 我基本靠J防破盾打完的，普攻和队友很难打伤害，boss有个浮游炮连击，全部挡中必破
 
+
+
+*****
+
+####  lazycat233  
+##### 130#       发表于 2023-1-27 22:04
+
+通了，后面几个BOSS的关卡音乐节奏感特别好，打起来都顺手很多，缺点就是因为这个切换后援的方式很不方便再加上要利用这个破盾机制玩起来真的手忙脚乱，而且战斗摄像机有时候会很奇怪帮你拉到一些很偏的视角（大招锁定判定也特别奇怪）。很多BOSS战斗都玩得很爽，除了最终BOSS（疯狂后撤步）。 狼人是我觉得里面最好的boss，节奏感强打起来也顺手很多、关卡设计因为这个跳跃手感确实感觉不咋地就不评价了。整体来说这游戏还是很吃节奏感的，没节奏感的估计会特别苦手，就算自己战斗节奏乱也能打伤害，但是怪的攻击是跟着节奏的，而且有些QTE处决还挺难的。
+
+*****
+
+####  lazycat233  
+##### 131#       发表于 2023-1-27 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59508059&amp;ptid=2116452" target="_blank">TTAA 发表于 2023-1-27 22:00</a>
+
+我基本靠J防破盾打完的，普攻和队友很难打伤害，boss有个浮游炮连击，全部挡中必破 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">BOSS疯狂后撤步真的打不出伤害，只能靠他放地波的时候拉到他背后去偷伤害还有躲完落雷偷几次鸡。死了十次会躲他落雷才过的，落雷伤害高还带火，吃一发基本半血没了
+
+*****
+
+####  dave606  
+##### 132#       发表于 2023-1-27 22:08
+
+好爽好劲 还这么好听<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+治好了我的电子阳痿，玩了之后感觉浑身充满了力量🤣
+还没打到后面，这初体验足够满分了。
+
+*****
+
+####  TTAA  
+##### 133#       发表于 2023-1-27 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59508197&amp;ptid=2116452" target="_blank">lazycat233 发表于 2023-1-27 22:07</a>
+
+BOSS疯狂后撤步真的打不出伤害，只能靠他放地波的时候拉到他背后去偷伤害还有躲完落雷偷几次鸡。 ...</blockquote>
+三阶段落雷判定太严格了，怀疑是围绕节奏三连闪做的
+
