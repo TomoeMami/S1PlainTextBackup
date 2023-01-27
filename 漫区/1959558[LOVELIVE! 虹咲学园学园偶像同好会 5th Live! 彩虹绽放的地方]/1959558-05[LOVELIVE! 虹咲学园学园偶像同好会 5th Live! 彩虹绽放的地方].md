@@ -1812,3 +1812,18 @@ ksm生日
 
 2023-1-27 15:57 上传
 
+
+
+*****
+
+####  ads147147  
+##### 6937#       发表于 2023-1-27 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59503557&amp;ptid=1959558" target="_blank">Skyline_R 发表于 2023-1-27 16:00</a>
+这四十号人的立绘里，只有侑的胸部有明显的阴影，剩下的小偶像们反而没有以前室田画风的胸部阴影了
+
+ ...</blockquote>
+因为不是偶像反而可以涩涩是吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

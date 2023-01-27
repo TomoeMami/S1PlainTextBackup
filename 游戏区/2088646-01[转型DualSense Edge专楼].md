@@ -397,3 +397,26 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 你们的精英手柄触摸面板周围亮灯吗，我这个第一次接usb线亮灯，玩游戏啥的不亮灯。
 
+
+
+*****
+
+####  Fuero  
+##### 210#       发表于 2023-1-27 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59504876&amp;ptid=2088646" target="_blank">wyy123 发表于 2023-1-27 18:00</a>
+
+你们的精英手柄触摸面板周围亮灯吗，我这个第一次接usb线亮灯，玩游戏啥的不亮灯。 ...</blockquote>
+周围不亮，就一个白色小灯
+
+
+
+*****
+
+####  超赛锡纸烫  
+##### 211#       发表于 2023-1-27 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495946&amp;ptid=2088646" target="_blank">ybfelix 发表于 2023-1-26 22:12</a>
+快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？ ...</blockquote>
+用的既然是同一个孔位，区别自然有限，主要更不容易误触，额外的就是按下去会稳一些
+
