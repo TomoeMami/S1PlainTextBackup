@@ -2536,3 +2536,14 @@ deepl机翻：
 这游戏和讨鬼相似度有多少</blockquote>
 我看了几个武器演示觉得基本上就是讨鬼传秽土转生2.0<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 295#       发表于 2023-1-27 23:38
+
+  还用猜吗，这不就是不叫讨鬼3的讨鬼3
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
