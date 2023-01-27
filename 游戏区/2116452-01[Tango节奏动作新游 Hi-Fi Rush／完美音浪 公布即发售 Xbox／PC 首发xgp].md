@@ -1434,3 +1434,17 @@ xgp 手机云玩效果怎么样？
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  harmonytree  
+##### 141#       发表于 2023-1-27 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509473&amp;ptid=2116452" target="_blank">crosz1985 发表于 2023-1-27 23:37</a>
+
+那种火门怎么过去啊
+
+论坛助手,iPhone</blockquote>
+后面能获得灭火能力，不过之前关卡的火门要二周目回去解了
+

@@ -1837,3 +1837,20 @@ ksm生日
 にじよん あにめーしょん 04
 ​果林：我看我自己<img src="https://p.sda1.dev/9/8084634aa9925826db9d65bd6103907f/CMP_20230127214535965.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6939#       发表于 2023-1-27 23:46
+
+ 本帖最后由 仟音一心 于 2023-1-27 23:49 编辑 
+
+<img src="https://p.sda1.dev/9/d404fe69740a6e674f8af121b81e92e7/CMP_20230127234603118.jpg" referrerpolicy="no-referrer">
+
+第4话「果林和栞子的将来」
+
+翻译：潮风
+
+嵌字：糖少许 ​​​
+

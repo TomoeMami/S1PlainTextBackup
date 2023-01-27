@@ -131,3 +131,15 @@
 
 叶子今晚漏的情报：之前小年夜那次3D使用的模型是仓促之下外包的（原话：不是厂工做的），所以一坨答辩，但之后联系了歌姬时代的模型师承诺帮忙修一修
 
+
+
+*****
+
+####  ladiesman802  
+##### 2980#       发表于 2023-1-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509203&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-1-27 23:16</a>
+
+叶子今晚漏的情报：之前小年夜那次3D使用的模型是仓促之下外包的（原话：不是厂工做的），所以一坨答辩，但 ...</blockquote>
+居然是外包的，那k9她们的美工跑了吗
+
