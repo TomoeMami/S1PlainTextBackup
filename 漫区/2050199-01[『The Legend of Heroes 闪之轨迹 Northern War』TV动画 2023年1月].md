@@ -4368,3 +4368,17 @@ B站港澳台：
 
 熟人太多了，每集放一两个出来钓老玩家是吧<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  镜hinata  
+##### 516#       发表于 2023-1-28 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509969&amp;ptid=2050199" target="_blank">6030sylar 发表于 2023-1-28 00:14</a>
+
+导力器只塞个绿色的晶片应该只有通讯功能，但凡插个攻击力1放个火球都能跑掉
+
+熟人太多了，每集放一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看这个的观众不就是想看看动画的旧7新7,在座的各位有多少真的冲着看这主角4人组来的
+
