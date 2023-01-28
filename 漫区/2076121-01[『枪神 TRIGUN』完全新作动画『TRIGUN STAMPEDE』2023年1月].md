@@ -2636,3 +2636,12 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 我把原作全忘光之后，感觉当做原创作品还是可以继续看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lg19850717  
+##### 244#       发表于 2023-1-28 08:51
+
+这动画厉害了
+

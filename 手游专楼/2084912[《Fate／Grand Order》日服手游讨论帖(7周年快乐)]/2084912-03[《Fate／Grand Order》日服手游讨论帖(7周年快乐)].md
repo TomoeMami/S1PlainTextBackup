@@ -572,3 +572,17 @@
 
 每天下午5点登入，没事发生
 
+
+
+*****
+
+####  UNISONIA  
+##### 4475#       发表于 2023-1-28 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59498562&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-1-27 02:31</a>
+
+随便都能登顶换我我也躺，但这不代表我不会喷死螺旋社23333现在就每天种树等1.31会不会有新的幺蛾子 ...</blockquote>
+现在登顶又没含金量的，project sekai和灰姑娘都能登顶24~48小时，跟现在的废狗登顶持续时间也差不多
+
+早就不是17、18年那时候随便出个空降卡池就能登顶168小时的情况了
+
