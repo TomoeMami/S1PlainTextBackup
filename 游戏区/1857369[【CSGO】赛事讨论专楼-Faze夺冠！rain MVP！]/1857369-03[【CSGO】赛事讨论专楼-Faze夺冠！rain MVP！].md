@@ -215,3 +215,11 @@ Jks你毁了一切
 要不c9今年结束之后考虑一下p电两个人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霍师傅今年打完估计也退了，buster不看好
 枪男真的不适合当指挥，魔男之前当过一会，架枪都架不住了
 
+
+*****
+
+####  dev2ce  
+##### 3115#       发表于 2023-1-28 22:25
+
+x9真的该退了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，难道a队改走流量路线了？老a队粉心情复杂（跟着杜魔zonic爬墙小蜜蜂了）
+

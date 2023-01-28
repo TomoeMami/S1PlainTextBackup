@@ -6526,3 +6526,17 @@ b站专栏搜神之天平</blockquote>
 
 艾尔登法环15级头铁近战打噩兆都没这么苦。玩穿这游戏，就感觉自己牛逼疯了，I wanna都能挑战一下了。
 
+
+*****
+
+####  otakun  
+##### 3545#       发表于 2023-1-28 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521741&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-28 22:15</a>
+这游戏也太难了。困难难度。
+
+每章开始第一面都被小怪一刀半血打成猪头。
+
+见到个远程怪就要噔噔咚。远程怪一 ...</blockquote>
+哪有那么难，泥潭都是直接推荐困难难度一次过全成就的，你太抬举了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

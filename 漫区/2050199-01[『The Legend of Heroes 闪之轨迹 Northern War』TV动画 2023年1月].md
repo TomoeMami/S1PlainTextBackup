@@ -4677,3 +4677,24 @@ B站港澳台：
 
 但不说笑的话情报局限制下早就知道身份的四个人的情报来源问题不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxas.sora  
+##### 546#       发表于 2023-1-28 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">悠米尔观光宣传片是吧，不是你们北猎的装备是不是太太太简陋了，这种感觉七班没毕业就能随便a的东西啊草
+
+*****
+
+####  Aeons  
+##### 547#       发表于 2023-1-28 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521759&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-28 22:17</a>
+说不定一转诅咒呢
+
+忘了也不是没有可能 也可能是吃书
+
+但不说笑的话情报局限制下早就知道身份的四个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黎恩的名字上过帝国时报，不说全帝国，大部分人都知道吧，路边问个小孩都知道，情报局这怎么限制
+
