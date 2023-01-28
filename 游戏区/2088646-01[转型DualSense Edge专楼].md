@@ -563,3 +563,14 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 拨片的存在意义是什么，手指没法握紧手柄悬空反而更累
 
+
+*****
+
+####  新世界的派蒙  
+##### 226#       发表于 2023-1-28 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59516238&amp;ptid=2088646" target="_blank">heimu 发表于 2023-1-28 15:04</a>
+
+拨片的存在意义是什么，手指没法握紧手柄悬空反而更累</blockquote>
+看一下是不是左右插反了，一般来说无名指都很多地方可以固定手柄
+
