@@ -1599,3 +1599,11 @@ xgp 手机云玩效果怎么样？
 
 这游戏差一个印象深刻的主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 157#       发表于 2023-1-28 18:30
+
+最高难度打完jojo梗的干部，中间几场连战如果挂了要从头打（还得听对话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）还是有点难顶，但队友连携成型之后基本很难受伤
+

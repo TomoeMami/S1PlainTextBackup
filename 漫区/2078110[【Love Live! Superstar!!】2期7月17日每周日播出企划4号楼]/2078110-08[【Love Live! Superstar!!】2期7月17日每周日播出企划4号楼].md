@@ -10802,3 +10802,40 @@ Go restart看看团长鱼就关了，毕竟day1没有赛车<img src="https://sta
 
 会有用了科学唱法音色反而不如白嗓的情况吗？
 
+
+*****
+
+####  稀勢のささ  
+##### 11439#       发表于 2023-1-28 18:20
+
+ 本帖最后由 稀勢のささ 于 2023-1-28 18:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论折磨耳朵不输non起头那两次，但那时候好歹接后边的是紧张拉满的彩，也没好哪儿去
+
+*****
+
+####  aoaoaodedede  
+##### 11440#       发表于 2023-1-28 18:21
+
+今天好不容易有个时间，去看电影了
+
+星这歌单其实不就一二巡一样的逻辑，主体歌单不改，就轮换或换个把“新歌”，线上看个一次新鲜劲就过了，再外加一系列的debuff，更影响观感
+有一说一，如果说想听solo part，随着人越来越多，每个人的part也会越来越少，除非开类似小组live那种，不然就只能期待那种绝对的C位曲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11441#       发表于 2023-1-28 18:25
+
+set list三期换新音乐P还是有机会救的。。。而且演出方面已经挺不错了，还是当初选曲问题太大，导致演唱会时的节奏缓急不好处理
+
+*****
+
+####  starring  
+##### 11442#       发表于 2023-1-28 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59518774&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-28 18:19</a>
+
+会有用了科学唱法音色反而不如白嗓的情况吗？</blockquote>
+就今天这表现没觉得科学多少，前三四首歌还没完成暖机气息又急又短促，高音部分更加难绷。下半场才好一些
+
