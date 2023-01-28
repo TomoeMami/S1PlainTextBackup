@@ -1591,3 +1591,11 @@ xgp 手机云玩效果怎么样？
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59516448&amp;ptid=2116452" target="_blank"> 烛堡巡礼者 发表于 2023-1-28 15:19</a> 啪嗒嘭精神续作！ 就是电视玩音游实在不咋地，平均准确率60%多，这还是电视开了游戏模式，尤其是连击之后那个红绿圈判定很怪，反而连点出来的几率大些。 顺便问问索尼8500开了游戏模式后有啥改善画质的设置吗 </blockquote>
 索尼那堆味精用哪个都会增加延迟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  Rowen233  
+##### 156#       发表于 2023-1-28 15:32
+
+这游戏差一个印象深刻的主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

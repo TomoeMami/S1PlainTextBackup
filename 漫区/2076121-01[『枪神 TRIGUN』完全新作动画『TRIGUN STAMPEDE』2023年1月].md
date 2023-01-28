@@ -2654,3 +2654,11 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 前两集的表现我还能把期望放后面，结果第三集就给我来个大的…<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">高情商：能看到上限在哪了。
 
+
+*****
+
+####  kuglv  
+##### 246#       发表于 2023-1-28 15:36
+
+漫画原作先入为主导致我第一集根本看不下去，虽然你们都吹画面牛逼但是我就是觉得没内味，现在看来后面也不用去看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
