@@ -777,3 +777,19 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 
 <img src="https://p.sda1.dev/9/77ed2f4fa37b2a77d92371a2de887944/CMP_20230128110925735.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 221#         楼主| 发表于 2023-1-28 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59513353&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-1-28 11:10</a>
+
+实装没几天就迎来生日的大凤
+
+https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
+熏子的奇妙味觉还坑最强，说了很久了吧<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+（昨天生日贝拿了3Q1的最后那件，太难得了
+
