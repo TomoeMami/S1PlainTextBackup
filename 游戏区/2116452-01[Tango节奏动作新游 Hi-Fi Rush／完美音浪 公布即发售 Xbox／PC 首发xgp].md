@@ -1827,3 +1827,21 @@ xgp 手机云玩效果怎么样？</blockquote>
 这游戏差一个印象深刻的主题曲</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">岩浆关number girl一开爽的批爆
 
+
+*****
+
+####  tpsg  
+##### 181#       发表于 2023-1-28 23:41
+
+好爽啊<img src="https://img.saraba1st.com/forum/202301/27/094843fhjqmfzfko7uwfox.gif" referrerpolicy="no-referrer">，虽然没玩过音游也不懂节拍
+
+*****
+
+####  shanajiang  
+##### 182#       发表于 2023-1-28 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59519506&amp;ptid=2116452" target="_blank">boxloli 发表于 2023-1-28 19:19</a>
+
+开简单自动模式乱玩应该可以？毕竟算半个音游，打不准评价基本就没了</blockquote>
+可能是节奏感太差 教学都不过去 按不准。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
