@@ -6540,3 +6540,23 @@ b站专栏搜神之天平</blockquote>
 见到个远程怪就要噔噔咚。远程怪一 ...</blockquote>
 哪有那么难，泥潭都是直接推荐困难难度一次过全成就的，你太抬举了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qderaaa  
+##### 3546#       发表于 2023-1-28 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521930&amp;ptid=2098044" target="_blank">otakun 发表于 2023-1-28 22:29</a>
+
+哪有那么难，泥潭都是直接推荐困难难度一次过全成就的，你太抬举了 ...</blockquote>
+我怕剧透，尽可能不看攻略。然后某些Boss卡关了就赢刮痧。某些技能不会躲，去B站查视频攻略，发现都是一帮大佬用毕业装备把boss按在地上打，十秒钟完成击杀，Boss根本来不及出这招。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 3547#       发表于 2023-1-28 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522587&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-28 23:14</a>
+我怕剧透，尽可能不看攻略。然后某些Boss卡关了就赢刮痧。某些技能不会躲，去B站查视频攻略，发现都是一 ...</blockquote>
+前期成长盘有锁，升级加点有衰减线，秒怪都7-8章后的事了，但每一章刷满装备和成长再打boss 会舒服很多。
+
