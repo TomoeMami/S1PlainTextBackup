@@ -584,3 +584,13 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zris  
+##### 228#       发表于 2023-1-28 16:27
+
+看了楼上这么多锐评，有点怕了，但是ps5的背健解决方案好像也就，要嘛scuf或者一些第三方拆解魔改。我各类机种手柄倒是一堆，等有时间去线下摸摸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
