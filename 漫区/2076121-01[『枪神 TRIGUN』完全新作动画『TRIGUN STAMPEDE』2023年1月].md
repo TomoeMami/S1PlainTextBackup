@@ -2710,3 +2710,11 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  charlespfan  
+##### 252#       发表于 2023-1-29 00:59
+
+笑死，还特意请来配老版Vash的 小野坂昌也 来客串ラジオDJ（广播DJ），看看新版松冈配的什么玩意，脸还挂得住么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
