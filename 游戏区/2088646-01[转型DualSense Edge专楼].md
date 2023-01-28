@@ -472,3 +472,12 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PS旗舰店订的，昨天到的公司，今天拿到了，包装还坏了，真的卧了个艹...
 
+
+
+*****
+
+####  heimu  
+##### 217#       发表于 2023-1-28 09:44
+
+暂时没发现应用场景
+
