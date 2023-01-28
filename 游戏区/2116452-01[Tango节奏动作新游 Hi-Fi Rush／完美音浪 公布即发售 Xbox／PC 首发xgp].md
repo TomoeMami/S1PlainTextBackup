@@ -1498,3 +1498,32 @@ xgp 手机云玩效果怎么样？
 
 这日配，是REX吧？~~~
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 147#       发表于 2023-1-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59511544&amp;ptid=2116452" target="_blank">lugiyahan 发表于 2023-01-28 06:14:58</a>
+这日配，是REX吧？~~~</blockquote>是
+主角团包括行成桃姬、间宫康弘和吉野裕行
+敌方分别是子安武人、井上喜久子和齐藤贵美子
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Sliurus  
+##### 148#       发表于 2023-1-28 11:19
+
+<img src="https://img.saraba1st.com/forum/202301/28/111823u2kt9xxwtwo2wwow.jpg" referrerpolicy="no-referrer">
+
+<strong>20230127233738_1.jpg</strong> (120.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-28 11:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">XG精神续作 X
+
