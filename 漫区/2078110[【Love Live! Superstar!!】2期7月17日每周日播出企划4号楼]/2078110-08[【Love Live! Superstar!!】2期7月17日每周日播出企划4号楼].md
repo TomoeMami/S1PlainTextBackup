@@ -10975,3 +10975,12 @@ day1宫城九人过了
 
 歌单和大阪完全一样，也就是还剩最后一首TO BE CONTINUED
 
+
+*****
+
+####  仟音一心  
+##### 11459#       发表于 2023-1-28 19:25
+
+全程没懂结那在讲啥笑话的🐠
+<img src="https://p.sda1.dev/9/f91754dfcd688ec07792f1aba935c35b/img-1674904798070f511559130ef64ac02542e182011af5bb84e48f3cd0c25075d20245845b36684.jpg" referrerpolicy="no-referrer">
+
