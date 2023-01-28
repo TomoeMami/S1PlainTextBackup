@@ -10672,3 +10672,25 @@ FD4122BD-A9D1-4196-8009-C71B68EB6ADC.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对3rd这歌单真是几乎一点期待都没有
 
+
+*****
+
+####  Kfly  
+##### 11424#       发表于 2023-1-28 17:47
+
+ 本帖最后由 Kfly 于 2023-1-28 17:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59518269&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-1-28 17:39</a>
+对3rd这歌单真是几乎一点期待都没有，翻开一看就没啥想听的。体验远不如生日会minilive ...</blockquote>
+动画的杀伤力，会回想起微妙的记忆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+跟动画关联不大的歌的观感变相up<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以及歌单基本没惊喜 惊吓 也算原因之一
+
+*****
+
+####  starring  
+##### 11425#       发表于 2023-1-28 17:48
+
+ 本帖最后由 starring 于 2023-1-28 17:49 编辑 
+
+一模一样的歌单，原汁原味的表演（褒义贬义都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
