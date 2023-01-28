@@ -61,3 +61,27 @@
 
 那我还是看看里线去，等不了了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nanjolno  
+##### 1537#       发表于 2023-1-29 00:03
+
+1的话那个就是琥珀啦，除了翡翠恐男之外，这里对志贵的称呼文本也跟翡翠不一样 <blockquote>10/眩病月
+
+翡翠（？）「お帰りなさいませ、志貴<strong>様</strong>」
+
+翡翠（？）「失礼しました。どうぞこちらに。まだ熱があるのですね。遠慮なさらず、わたしの肩を使いください」
+
+　　翡翠はいつも「志貴<strong>さま</strong>」と呼ぶから、そしてあの男性恐怖症の翡翠は自ら志貴を触るとは思えない、となるとここの下手人は変装した琥珀さんね</blockquote>
+
+*****
+
+####  DARKGRAY  
+##### 1538#       发表于 2023-1-29 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521756&amp;ptid=1980597" target="_blank">ky怪 发表于 2023-1-28 22:17</a>
+
+那我还是看看里线去，等不了了</blockquote>
+可是加了堆东西之后里线肯定大改，看也很尴尬的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
