@@ -4646,3 +4646,19 @@ B站港澳台：
 
 估计早就被情报局盯上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 544#       发表于 2023-1-28 21:48
+
+ 本帖最后由 Aeons 于 2023-1-28 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521089&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-1-28 21:34</a>
+
+请柬是稻草人给的
+
+黑兔一路监视
+
+估计早就被情报局盯上了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">情报局能把半年前帝国时报就刊登的黎恩信息抹的干干净净，能让遇到的所有人都说不出黎恩的名字吗，这强制力不比诅咒厉害多了。
+
