@@ -4629,3 +4629,20 @@ B站港澳台：
 
 怎么到你这就谁都不知道了，你们还是冲着里爷来打听的都打听不出来，严查，啊，严查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小小的信义  
+##### 543#       发表于 2023-1-28 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520998&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-1-28 21:29</a>
+
+闪3不是是个人都知道里爷就是灰骑，路边阿猫阿狗都要尊称一声英雄
+
+怎么到你这就谁都不知道了，你们还是冲着 ...</blockquote>
+请柬是稻草人给的
+
+黑兔一路监视
+
+估计早就被情报局盯上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

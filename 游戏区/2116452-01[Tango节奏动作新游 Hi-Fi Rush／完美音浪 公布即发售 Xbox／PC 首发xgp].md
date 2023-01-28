@@ -1721,3 +1721,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 一开始买了很多动作感觉没啥必要，怪多了锁敌很乱，大概应该拿去开芯片槽升级芯片搞满回头再来搞动作得感觉。
 
+
+*****
+
+####  harmonytree  
+##### 170#       发表于 2023-1-28 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520818&amp;ptid=2116452" target="_blank">onezer0618 发表于 2023-1-28 21:16</a>
+
+第一章boss打出硬直之后那个qte没太明白，是快速xx，还是等缩圈之后x，试了好几次都没成功，结果boss已经没 ...</blockquote>
+两个圈重合时候点
+
