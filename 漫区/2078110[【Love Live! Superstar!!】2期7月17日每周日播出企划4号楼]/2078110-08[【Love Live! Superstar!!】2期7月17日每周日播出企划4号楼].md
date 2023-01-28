@@ -10984,3 +10984,34 @@ day1宫城九人过了
 全程没懂结那在讲啥笑话的🐠
 <img src="https://p.sda1.dev/9/f91754dfcd688ec07792f1aba935c35b/img-1674904798070f511559130ef64ac02542e182011af5bb84e48f3cd0c25075d20245845b36684.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 11460#       发表于 2023-1-28 19:36
+
+鱼solo时间，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saya1892  
+##### 11461#       发表于 2023-1-28 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">啊啊啊啊啊啊啊啊啊
+
+rnm花田
+
+这才是2期9话可可该说的话
+
+花田你这狗日的听到了吗
+
+整场都平静无波看完到最后突然被鱼这句即兴给破防了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 11462#       发表于 2023-1-28 19:41
+
+鱼啊，线上也能看到新年祝福，真是有心了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

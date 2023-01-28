@@ -8,3 +8,11 @@
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qixinno2  
+##### 44137#       发表于 2023-1-28 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">应该是没必要了 现在九成的卡都在吃灰
+
