@@ -6459,3 +6459,26 @@ b站专栏搜神之天平</blockquote>
 
 顺便说句，之前你选用嘴喂药给黑也能拿一个。
 
+
+*****
+
+####  浅井惠  
+##### 3541#       发表于 2023-1-28 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520328&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-28 20:34</a>
+
+这个其实没啥重大影响，少一个拿爱情而已。</blockquote>
+如果出于剧情塑造需要出现的人物牺牲剧情我是可以理解的，比如3章末尾黑的死，我是以为真死了也没太在意，但是这种可选性死人-而且还是很久之前给个选项埋雷，半天之后才告诉你选错了就得死人就是纯纯的恶心人了，继续打下去是恶心自己，重新打一遍没那个时间，玩个游戏，还是放过自己吧，就是可惜了浪费的几十小时时间
+
+*****
+
+####  浅井惠  
+##### 3542#       发表于 2023-1-28 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520418&amp;ptid=2098044" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-1-28 20:42</a>
+
+爱情这玩意之后能大量刷，不是什么贵重品。
+
+顺便说句，之前你选用嘴喂药给黑也能拿一个。 ...</blockquote>
+倒不是道具问题，主要是剧情膈应，就准备打一周目过剧情的，打完就这么结束总感觉不完满，二周目重新打又太麻烦，干脆就停在这吧
+
