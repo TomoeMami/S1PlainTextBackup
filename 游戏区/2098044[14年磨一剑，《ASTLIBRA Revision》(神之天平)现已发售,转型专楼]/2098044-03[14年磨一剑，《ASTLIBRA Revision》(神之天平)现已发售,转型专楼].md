@@ -6385,3 +6385,15 @@ b站专栏搜神之天平</blockquote>
 不是解的方法，传送去哪个地点呢？我用道具和小屋的传送没找到法师塔</blockquote>
 继续往后打，之后才会开放塔的传送
 
+
+
+*****
+
+####  adw667  
+##### 3534#       发表于 2023-1-28 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59493531&amp;ptid=2098044" target="_blank">DDWarrior 发表于 2023-1-26 19:39</a>
+
+就在雪山这章，乐园最后的一张图里面有一群盾兵，他们掉的盾非常值钱，而且离存档点近，我当时是在这刷钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是盾兵攻击判定无论是范围还是帧数都非常离谱
+
