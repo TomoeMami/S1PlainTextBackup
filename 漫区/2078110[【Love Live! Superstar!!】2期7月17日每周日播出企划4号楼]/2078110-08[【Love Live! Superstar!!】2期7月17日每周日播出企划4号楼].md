@@ -10839,3 +10839,27 @@ set list三期换新音乐P还是有机会救的。。。而且演出方面已�
 会有用了科学唱法音色反而不如白嗓的情况吗？</blockquote>
 就今天这表现没觉得科学多少，前三四首歌还没完成暖机气息又急又短促，高音部分更加难绷。下半场才好一些
 
+
+*****
+
+####  stygian  
+##### 11443#       发表于 2023-1-28 18:47
+
+可以竞猜一期时代哪首要被九人化了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11444#       发表于 2023-1-28 18:49
+
+shooting voice<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 11445#       发表于 2023-1-28 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59519111&amp;ptid=2078110" target="_blank">stygian 发表于 2023-1-28 18:47</a>
+可以竞猜一期时代哪首要被九人化了</blockquote>
+shooting voice 9人化过了
+

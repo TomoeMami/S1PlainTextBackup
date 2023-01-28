@@ -1607,3 +1607,11 @@ xgp 手机云玩效果怎么样？
 
 最高难度打完jojo梗的干部，中间几场连战如果挂了要从头打（还得听对话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）还是有点难顶，但队友连携成型之后基本很难受伤
 
+
+*****
+
+####  Asukalangley33  
+##### 158#       发表于 2023-1-28 18:47
+
+打了几个小时才知道日配主角是下野纮，换了之后果然一股熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
