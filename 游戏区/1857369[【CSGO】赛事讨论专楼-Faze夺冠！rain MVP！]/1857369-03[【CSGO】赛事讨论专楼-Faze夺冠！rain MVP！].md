@@ -237,3 +237,35 @@ x9真的该退了吧，难道a队改走流量路线了？老a队粉心情复杂�
 
 小蜜蜂本来理论上也还行，但只要还有apex的存在我只能说......
 
+
+*****
+
+####  朔方原的星  
+##### 3117#         楼主| 发表于 2023-1-28 23:04
+
+老汤是真顶不住了，猛空枪，看看还能不能往回调整调整吧
+
+被REZ杀穿了，神REZ真的狠
+
+*****
+
+####  dev2ce  
+##### 3118#       发表于 2023-1-28 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522458&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-1-28 23:04</a>
+老汤是真顶不住了，猛空枪，看看还能不能往回调整调整吧
+
+被REZ杀穿了，神REZ真的狠 ...</blockquote>
+调整调整吧，一年多没打t1比赛了
+
+*****
+
+####  dev2ce  
+##### 3119#       发表于 2023-1-28 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522018&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-1-28 22:35</a>
+每盘都有新菜法，A队比赛真是除了知道这几个人还活着之外没什么别的期待可言了
+
+小蜜蜂本来理论上也 ...</blockquote>
+只能希望本土major别犯病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一来个大的不进major就精彩了
+

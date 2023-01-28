@@ -1776,3 +1776,16 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Sliurus  
+##### 176#       发表于 2023-1-28 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522381&amp;ptid=2116452" target="_blank">ko1p 发表于 2023-1-28 22:59</a>
+
+请问是roguelike吗 还是固定的关卡和小怪？ 因为看到有人用哈迪斯比较
+
+  -- 来自 有消息提醒的 Sta ...</blockquote>
+传统的关卡制，这俩游戏我觉得没任何关联，非要说都是美式漫画风格
+
