@@ -6568,3 +6568,13 @@ b站专栏搜神之天平</blockquote>
 
 游戏在新章之前的数值平衡还算合理，日文wiki还是应该看看，不然都不知道弓弩之类的计算伤害看魔力，升级加属性有衰减之类。我是地狱难度才打完，死的最多的BOSS是哥布林王和最后的女神，哥布林是遇到麻痹状态不知道怎么处理，打女神是因为伤害太刮痧老是拖太久翻车，后来换狂暴发现二阶段是个木桩。新章之后剧情和游戏平衡都放飞自我了，怪可能变强了，但是主角能力是飞升。除非刻意限制自己不上buff不用那些超模的替换技，不然打啥都是秒，造物主可能也就多几秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 3549#       发表于 2023-1-29 01:27
+
+现在人这都都接受不了了吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
