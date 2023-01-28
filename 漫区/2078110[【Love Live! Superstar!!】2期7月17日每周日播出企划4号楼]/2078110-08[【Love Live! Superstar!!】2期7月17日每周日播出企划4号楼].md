@@ -11094,3 +11094,40 @@ rnm花田
 
 无聊的去数了下花篮，总共49个，3个可香，9个单独的
 
+
+*****
+
+####  stygian  
+##### 11472#       发表于 2023-1-28 20:24
+
+最后一句是那个，ワタルシミ
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  P02  
+##### 11473#       发表于 2023-1-28 20:24
+
+ 本帖最后由 P02 于 2023-1-28 20:26 编辑 
+
+海贼王.jpg
+
+6376f218258ee73a.jpg
+(173.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-28 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202301/28/202424rji734ix5j92il5r.jpg" referrerpolicy="no-referrer">
+
+112661c805e917b8.jpg
+(141.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-28 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202301/28/202430yuty9trcyuft2zyv.jpg" referrerpolicy="no-referrer">
+
