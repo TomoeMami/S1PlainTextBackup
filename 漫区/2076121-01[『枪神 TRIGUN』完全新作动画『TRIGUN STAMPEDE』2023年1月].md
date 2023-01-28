@@ -2718,3 +2718,15 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 笑死，还特意请来配老版Vash的 小野坂昌也 来客串ラジオDJ（广播DJ），看看新版松冈配的什么玩意，脸还挂得住么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  百里屠苏  
+##### 253#       发表于 2023-1-29 02:28
+
+<blockquote>新HGCG 发表于 2023-1-28 22:25
+艹 反派正太是樱桃小丸子
+
+难怪声音怎么听怎么熟悉但就是想不起来</blockquote>
+牧师比那个反派正太年龄小哦
+
