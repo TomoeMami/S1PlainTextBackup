@@ -24,3 +24,16 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nocode  
+##### 103#       发表于 2023-1-28 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522328&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-1-28 22:56</a>
+
+花诗后去问托迪拉，他会告诉你学变身就把使徒核心给用了这种道具进结局肯定要处理的呀
+
+正经打rpg ...</blockquote>
+那是我忽略了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

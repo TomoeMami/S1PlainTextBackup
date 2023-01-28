@@ -1797,3 +1797,33 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 感觉即使在最高难度下，CD队友流依然给劲（后面的关卡还没打）
 
+
+*****
+
+####  kindcat  
+##### 178#       发表于 2023-1-28 23:21
+
+好玩<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+刚下岩浆地图没多久已经4个小时了，那些通讯画面出现的都是boss吧？那之前看说8小时通关的太快了。。。
+男主的红围巾又让我想起忍了
+
+*****
+
+####  boxloli  
+##### 179#       发表于 2023-1-28 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59519893&amp;ptid=2116452" target="_blank">TTAA 发表于 2023-1-28 19:51</a>
+
+第一关节奏大师难度战点全A关卡评价还是D，踩拍率比重也太大了吧。有些战点只有一个大型敌人的都来不及做 ...</blockquote>
+不是，是你死的太多掉评价
+
+*****
+
+####  boxloli  
+##### 180#       发表于 2023-1-28 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59516608&amp;ptid=2116452" target="_blank">Rowen233 发表于 2023-1-28 15:32</a>
+
+这游戏差一个印象深刻的主题曲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">岩浆关number girl一开爽的批爆
+

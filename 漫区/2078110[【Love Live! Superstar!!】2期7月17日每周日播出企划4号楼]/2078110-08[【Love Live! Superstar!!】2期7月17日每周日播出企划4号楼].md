@@ -11146,3 +11146,18 @@ rnm花田
  ...</blockquote>
 花田这sb二期的台本表现我觉得叫小太刀来都比他强。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 11475#       发表于 2023-1-28 23:22
+
+翻了翻5厕发现鱼串基本没人聊今天的live，反倒是昨天的有不少，sayu串也差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是个活香啊
+
+*****
+
+####  优妮可  
+##### 11476#       发表于 2023-1-28 23:31
+
+他们看了那么多次，没整大活也没啥好聊的。差不多的歌单
+
