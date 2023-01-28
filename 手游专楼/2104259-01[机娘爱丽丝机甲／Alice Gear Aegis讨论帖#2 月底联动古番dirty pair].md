@@ -827,3 +827,11 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 打活动给一星吗？</blockquote>
 百家聪鸣活动的第一节剧情就给两位新角色的一星。
 
+
+*****
+
+####  madcow  
+##### 225#       发表于 2023-1-28 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">开不出装备，装备是啥时候给换来着？池子关了以后？
+

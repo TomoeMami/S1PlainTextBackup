@@ -10759,3 +10759,46 @@ Go restart看看团长鱼就关了，毕竟day1没有赛车<img src="https://sta
 
 今天结那两首歌的表现都秒杀自己宫城场两天更棒了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">不过导播还是埋了吧
 
+
+*****
+
+####  稀勢のささ  
+##### 11433#       发表于 2023-1-28 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 11434#       发表于 2023-1-28 18:14
+
+这是第几个版本的交响曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 11435#       发表于 2023-1-28 18:15
+
+忘了今天有巡演了，一会看切片吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11436#       发表于 2023-1-28 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sayu换唱法到现在我都没习惯，还是听得难受
+
+*****
+
+####  stygian  
+##### 11437#       发表于 2023-1-28 18:17
+
+我说难听点打铁现在就比non好一点点的级别
+
+*****
+
+####  ViyViy  
+##### 11438#       发表于 2023-1-28 18:19
+
+会有用了科学唱法音色反而不如白嗓的情况吗？
+
