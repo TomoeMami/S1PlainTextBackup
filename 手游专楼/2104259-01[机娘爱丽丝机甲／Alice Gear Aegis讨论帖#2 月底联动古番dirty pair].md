@@ -755,3 +755,25 @@ aga本体的百合度也不低了也没见吸引到几个河豚<img src="https:/
 [https://twitter.com/RBnMzcw6O47rnab/status/1618745747905867776 ](https://twitter.com/RBnMzcw6O47rnab/status/1618745747905867776)
 <img src="https://p.sda1.dev/9/4b668ff95fd025722605312ec42e4806/CMP_20230127210142722.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 220#       发表于 2023-1-28 11:10
+
+实装没几天就迎来生日的大凤<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/colopl_alice/status/1619168389007540225](https://twitter.com/colopl_alice/status/1619168389007540225)
+
+生日通知：
+熏子：“好歹是生日，吃点别的吧” 
+加纯：“今天的泡面比平常内容更豪华哟” 
+熏子：“真是的……我正打算出门吃饭，一起去吗？” 
+加纯：“啊，那就——” 
+熏子：“找到了会提供特别的当药料理的店家哦” 
+加纯：“果然还是算了” 
+（*当药是一种特别苦的草药。aga拿这个玩梗已经第三次了）
+
+<img src="https://p.sda1.dev/9/77ed2f4fa37b2a77d92371a2de887944/CMP_20230128110925735.jpg" referrerpolicy="no-referrer">
+

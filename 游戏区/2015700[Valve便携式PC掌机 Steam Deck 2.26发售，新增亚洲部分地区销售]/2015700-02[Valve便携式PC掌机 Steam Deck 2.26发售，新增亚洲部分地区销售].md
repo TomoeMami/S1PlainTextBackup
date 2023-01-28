@@ -9,3 +9,16 @@
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  暗示我7酱  
+##### 2136#       发表于 2023-1-28 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59454471&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-23 10:07</a>
+你们L2和R2扳机键手感一样吗？</blockquote>
+我的一样，就是左摇杆会向，不过这玩意做工你懂的，看人品了，
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

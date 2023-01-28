@@ -504,3 +504,17 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 昨天玩了1个小时cod，比普通手柄还是有提升。L2和R2用最短键程可以更快的瞄准和射击。背键1个改成了跑步比按R3手感好太多了，另一个试了下跳跃和扔手雷，还是跳跃好点。
 
+
+
+*****
+
+####  Fuero  
+##### 220#       发表于 2023-1-28 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59513080&amp;ptid=2088646" target="_blank">泥潭办证先锋 发表于 2023-1-28 10:45</a>
+
+一开始插的桨形，打Apex压力一上来就各种误触……
+
+换成半圆形确实手感更扎实且不容易误触，但是位 ...</blockquote>
+我是混插，半圆对应原来的option，桨型对应小技能，还在适应中。。。
+
