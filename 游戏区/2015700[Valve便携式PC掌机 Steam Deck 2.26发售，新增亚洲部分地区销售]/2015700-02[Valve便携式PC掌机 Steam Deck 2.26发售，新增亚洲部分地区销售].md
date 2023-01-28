@@ -22,3 +22,13 @@
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  暗示我7酱  
+##### 2137#       发表于 2023-1-28 18:59
+
+正常的type C 扩展坞能不能充电啊，感觉那种台式的纯粹就是为了个支撑，溢价太严重了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

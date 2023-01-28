@@ -1615,3 +1615,14 @@ xgp 手机云玩效果怎么样？
 
 打了几个小时才知道日配主角是下野纮，换了之后果然一股熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  harmonytree  
+##### 159#       发表于 2023-1-28 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59513918&amp;ptid=2116452" target="_blank">harmonytree 发表于 2023-1-28 11:55</a>
+
+求助，pc xgp版，用360手柄按B键格挡也会触发跳跃，有人遇到过这种情况吗</blockquote>
+草，把steam退了就好了，映射冲突了
+

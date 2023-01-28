@@ -10863,3 +10863,78 @@ shooting voice<img src="https://static.saraba1st.com/image/smiley/face2017/037.p
 可以竞猜一期时代哪首要被九人化了</blockquote>
 shooting voice 9人化过了
 
+
+*****
+
+####  仟音一心  
+##### 11446#       发表于 2023-1-28 18:52
+
+<img src="https://p.sda1.dev/9/877085b7af778cc683317101605ff546/img-16749030899470c59aff59b5880ad3129f99ad9ff9edcdb501ecc68df721c36ee331ecd02a620.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11447#       发表于 2023-1-28 18:52
+
+ 本帖最后由 stygian 于 2023-1-28 18:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59519159&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-1-28 18:50</a>
+
+shooting voice 9人化过了</blockquote>
+还有好几首呢，不慌<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+结果又是已经唱过的w
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11448#       发表于 2023-1-28 18:54
+
+day1之前有9人吗好久没看都忘了哪些9人化了
+
+*****
+
+####  ViyViy  
+##### 11449#       发表于 2023-1-28 18:55
+
+day1三巡第一场就惨遭九人了
+
+*****
+
+####  starring  
+##### 11450#       发表于 2023-1-28 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SV这歌全程都是五老星在唱，真的给二期生训练了这歌吗
+
+*****
+
+####  we89623  
+##### 11451#       发表于 2023-1-28 18:55
+
+加了下天空，手机壁纸，有需要拿去。
+
+<img src="https://img.saraba1st.com/forum/202301/28/185435ebamxihjzvqagpvx.jpg" referrerpolicy="no-referrer">
+
+<strong>插画35.jpg</strong> (381.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-28 18:54 上传
+
+*****
+
+####  stygian  
+##### 11452#       发表于 2023-1-28 18:56
+
+day1宫城九人过了
+
+这首九人化我觉得挺好的，歌词寓意好
+
+*****
+
+####  仟音一心  
+##### 11453#       发表于 2023-1-28 18:58
+
+<img src="https://p.sda1.dev/9/aa9e4a68c49214cf942c944063610495/CMP_20230128185849798.jpg" referrerpolicy="no-referrer">
+
