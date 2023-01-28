@@ -4586,3 +4586,36 @@ B站港澳台：
 
 不用看报纸，问下小丑就知道了吧
 
+
+*****
+
+####  jiklp87  
+##### 539#       发表于 2023-1-28 21:12
+
+<blockquote>Aeons 发表于 2023-1-28 19:23
+等一下，黎恩的名字和大头照不都被报纸开完了吗，为什么动画里说他的名字没有公开。
+
+【社会】《灰色 ...</blockquote>
+因为动画组这两集的脚本没看设定
+
+*****
+
+####  小小的信义  
+##### 540#       发表于 2023-1-28 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59510261&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-1-28 00:46</a>
+
+看这个的观众不就是想看看动画的旧7新7,在座的各位有多少真的冲着看这主角4人组来的 ...</blockquote>
+我现在看主角团也挺乐的
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+依照进度下一话估计就是队长回 然后6集进主线吧
+
+
+*****
+
+####  Aeons  
+##### 541#       发表于 2023-1-28 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">根据cv访谈，6集后应该就分开了，突入主线然后小队分开，emmm。
+

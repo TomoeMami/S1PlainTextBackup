@@ -1704,3 +1704,20 @@ xgp 手机云玩效果怎么样？</blockquote>
 不是踩点的原因，你续关续了11次降了很多分</blockquote>
 原来那个继续是续关的意思，明白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onezer0618  
+##### 168#       发表于 2023-1-28 21:16
+
+第一章boss打出硬直之后那个qte没太明白，是快速xx，还是等缩圈之后x，试了好几次都没成功，结果boss已经没血了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  夜之光  
+##### 169#       发表于 2023-1-28 21:22
+
+一开始买了很多动作感觉没啥必要，怪多了锁敌很乱，大概应该拿去开芯片槽升级芯片搞满回头再来搞动作得感觉。
+
