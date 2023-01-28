@@ -481,3 +481,17 @@ steam选了ps手柄支持之后，dualsense edge的背键能被识别吗？
 
 暂时没发现应用场景
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 218#       发表于 2023-1-28 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59495946&amp;ptid=2088646" target="_blank">ybfelix 发表于 2023-1-26 22:12</a>
+
+快递还在路上，急急。话说那个半圆帽形背键实际手感如何？臆想过去应该比桨形背板按压要更扎实？ ...</blockquote>
+一开始插的桨形，打Apex压力一上来就各种误触……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+换成半圆形确实手感更扎实且不容易误触，但是位置感觉有点不适应，导致我经常忘记背键这个东西的存在。
+
