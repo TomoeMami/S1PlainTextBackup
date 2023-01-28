@@ -37,3 +37,16 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 正经打rpg ...</blockquote>
 那是我忽略了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 104#       发表于 2023-1-29 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59522237&amp;ptid=2114848" target="_blank">nocode 发表于 2023-1-28 22:50</a>
+
+rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角色数量限制住的背景下更能把故事把持住，往大了 ...</blockquote>
+确实重新穿一遍所有人的装备实在是太草了，当时玩的时候就想骂娘了，圣地攻略战从逃脱到回忆再到绝体绝命逆转，对战贤者这章我觉得是全游戏中最棒的一章了，一气呵成从前面的先抑再到后面的扬丝滑的不得了，然后再配上shade的blossom把情绪烘托到极点，真的是最喜欢的一集了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+另外过年回家又打了一遍把所有ex清了，发现通关之后的clear！文件夹是tm在游戏目录上一级的SteamLibrary\steamapps\common\clear!里的，太离谱了，也算是吧小bug吧
+
