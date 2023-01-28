@@ -10657,3 +10657,18 @@ FD4122BD-A9D1-4196-8009-C71B68EB6ADC.jpeg
 
 虽然是白嫖还是说一句，渣音质也掩盖不了车祸组的表现，好像比第一场进步了又好像没有，十分微妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 11422#       发表于 2023-1-28 17:33
+
+挂着当BGM吧，毕竟上班时间+这巡演除了可堇曲鱼也没多唱几句，没精力特地去看互动，反正有特色的互动也会有人切出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11423#       发表于 2023-1-28 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对3rd这歌单真是几乎一点期待都没有
+
