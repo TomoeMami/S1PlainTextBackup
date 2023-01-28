@@ -11934,3 +11934,14 @@ MV我感觉按她们的水准已经是能做出来的最复杂表现力最丰富
 
 查看全部评分
 
+
+
+*****
+
+####  rs5621  
+##### 4096#       发表于 2023-1-28 13:09
+
+七赤，你……<img src="https://p.sda1.dev/9/0b1203bcf6bb3d87d756cfa45788fd1c/CMP_20230128130852962.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -815,3 +815,15 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 打活动给一星吗？</blockquote>
 一星一直都是没得抽啊，主线给或者活动给。这次活动有一星给。
 
+
+
+*****
+
+####  Rincewind  
+##### 224#       发表于 2023-1-28 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59514150&amp;ptid=2104259" target="_blank">孙光龙 发表于 2023-1-28 12:17</a>
+一星都没抽到，甚至不配拿生日箱子
+打活动给一星吗？</blockquote>
+百家聪鸣活动的第一节剧情就给两位新角色的一星。
+
