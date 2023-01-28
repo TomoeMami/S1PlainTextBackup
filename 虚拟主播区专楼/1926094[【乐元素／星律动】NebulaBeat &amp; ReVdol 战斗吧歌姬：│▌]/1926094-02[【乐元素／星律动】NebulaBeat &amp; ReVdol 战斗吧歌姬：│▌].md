@@ -235,3 +235,16 @@
 反正现在基本从0开始了，春节假期居然连小年夜表演都 ...</blockquote>
 其实也不是一个人都没带过来，白子姐（万子姐）说和nb的人吃饭，因为很多是从北京刚迁来的所以还带北京口音
 
+
+*****
+
+####  awy47  
+##### 2989#       发表于 2023-1-28 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59511068&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-1-28 02:28</a>
+
+看乐元素招聘不就知道了么？之前不是急招程序员么？
+
+反正现在基本从0开始了，春节假期居然连小年夜表演都 ...</blockquote>
+招了，去年12月在招美术
+

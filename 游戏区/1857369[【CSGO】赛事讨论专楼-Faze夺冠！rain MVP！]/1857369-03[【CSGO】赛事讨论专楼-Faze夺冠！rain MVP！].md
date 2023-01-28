@@ -223,3 +223,17 @@ Jks你毁了一切
 
 x9真的该退了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，难道a队改走流量路线了？老a队粉心情复杂（跟着杜魔zonic爬墙小蜜蜂了）
 
+
+*****
+
+####  朔方原的星  
+##### 3116#         楼主| 发表于 2023-1-28 22:35
+
+ 本帖最后由 朔方原的星 于 2023-1-28 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521869&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-1-28 22:25</a>
+
+x9真的该退了吧，难道a队改走流量路线了？老a队粉心情复杂（跟着杜魔zonic爬墙小蜜蜂了） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每盘都有新菜法，A队比赛真是除了知道这几个人还活着之外没什么别的期待可言了
+
+小蜜蜂本来理论上也还行，但只要还有apex的存在我只能说......
+

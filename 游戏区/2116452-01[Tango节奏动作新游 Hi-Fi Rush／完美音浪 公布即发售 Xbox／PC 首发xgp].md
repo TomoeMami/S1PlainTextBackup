@@ -1740,3 +1740,13 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 弹远程攻击，为什么成功了还会受伤害?
 
+
+*****
+
+####  madcow  
+##### 172#       发表于 2023-1-28 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个芯片功能是去掉冲刺吸附道具的效果
+
+“我就是想测试下你买之前有没有在看说明”
+

@@ -4698,3 +4698,27 @@ B站港澳台：
 但不说笑的话情报局限制下早就知道身份的四个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黎恩的名字上过帝国时报，不说全帝国，大部分人都知道吧，路边问个小孩都知道，情报局这怎么限制
 
+
+*****
+
+####  小小的信义  
+##### 548#       发表于 2023-1-28 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521929&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-28 22:29</a>
+
+黎恩的名字上过帝国时报，不说全帝国，大部分人都知道吧，路边问个小孩都知道，情报局这怎么限制 ...</blockquote>
+所以我说了说不定是吃书
+
+不过真要做可以参考鸟笼计划那种做法 筛自己选好的人流到主角团那边去呗
+
+也可能是他们压根儿就没找普通人打听，参考本集台词“反正普通人也什么都不知道”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过说到底看编剧怎么写 看6集之后主线会不会解释吧
+
+*****
+
+####  Aeons  
+##### 549#       发表于 2023-1-28 22:36
+
+这两话吃喝玩乐属实是乐不思蜀，我早就想当帝国人了.jpg
+
