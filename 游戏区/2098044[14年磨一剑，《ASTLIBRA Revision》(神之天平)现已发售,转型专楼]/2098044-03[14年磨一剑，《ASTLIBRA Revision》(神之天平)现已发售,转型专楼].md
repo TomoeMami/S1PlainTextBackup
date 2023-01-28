@@ -6446,3 +6446,16 @@ b站专栏搜神之天平</blockquote>
 太恶心了，本来之前玩着体验都很好，结果打到第五章突然告诉我白死了，一查才发现，居然要进城前选不带她， ...</blockquote>
 这个其实没啥重大影响，少一个拿爱情而已。
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3540#       发表于 2023-1-28 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520303&amp;ptid=2098044" target="_blank">浅井惠 发表于 2023-1-28 20:31</a>
+
+太恶心了，本来之前玩着体验都很好，结果打到第五章突然告诉我白死了，一查才发现，居然要进城前选不带她， ...</blockquote>
+爱情这玩意之后能大量刷，不是什么贵重品。
+
+顺便说句，之前你选用嘴喂药给黑也能拿一个。
+
