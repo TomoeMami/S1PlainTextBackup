@@ -1527,3 +1527,12 @@ xgp 手机云玩效果怎么样？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">XG精神续作 X
 
+
+
+*****
+
+####  harmonytree  
+##### 149#       发表于 2023-1-28 11:55
+
+求助，pc xgp版，用360手柄按B键格挡也会触发跳跃，有人遇到过这种情况吗
+

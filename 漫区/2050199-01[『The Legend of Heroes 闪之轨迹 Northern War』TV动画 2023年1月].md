@@ -4446,3 +4446,14 @@ B站港澳台：
 
 什么狗币剧情，这tm比闪二三的注水猪肉还空了，你们真的是来刺探情报的吗？
 
+
+
+*****
+
+####  酷乐  
+##### 524#       发表于 2023-1-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59513392&amp;ptid=2050199" target="_blank">sd4442312 发表于 2023-1-28 11:12</a>
+什么狗币剧情，这tm比闪二三的注水猪肉还空了，你们真的是来刺探情报的吗？ ...</blockquote>
+第三集的邀请函上写着邀请者稻草人，所以再过两集就可以看到帝国情报局“一切尽在掌握”了。
+
