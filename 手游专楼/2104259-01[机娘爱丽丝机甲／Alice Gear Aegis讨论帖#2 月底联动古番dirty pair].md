@@ -835,3 +835,22 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">开不出装备，装备是啥时候给换来着？池子关了以后？
 
+
+*****
+
+####  江戸前ルナ  
+##### 226#         楼主| 发表于 2023-1-28 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59518672&amp;ptid=2104259" target="_blank">madcow 发表于 2023-1-28 18:13</a>
+
+开不出装备，装备是啥时候给换来着？池子关了以后？</blockquote>
+一般是池子最后的5~7天
+
+*****
+
+####  孫光龍  
+##### 227#       发表于 2023-1-28 19:20
+
+合着重装改进是弄了半天不知道哪种好
+给你全塞插件里了自己挑着玩是吧
+

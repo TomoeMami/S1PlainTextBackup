@@ -1634,3 +1634,20 @@ xgp 手机云玩效果怎么样？
 
 音箱帅侠
 
+
+*****
+
+####  boxloli  
+##### 161#       发表于 2023-1-28 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59509266&amp;ptid=2116452" target="_blank">shanajiang 发表于 2023-1-27 23:23</a>
+xgp 手机云玩效果怎么样？</blockquote>
+开简单自动模式乱玩应该可以？毕竟算半个音游，打不准评价基本就没了
+
+*****
+
+####  boxloli  
+##### 162#       发表于 2023-1-28 19:21
+
+玩到jojo干部，作为音游的判定还是很宽松的，普通难度认真打一下能打个80准确，但是后面老感觉分数打不上去
+
