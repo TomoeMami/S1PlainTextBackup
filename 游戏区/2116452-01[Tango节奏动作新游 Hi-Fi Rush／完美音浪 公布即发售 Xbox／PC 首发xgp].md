@@ -1845,3 +1845,50 @@ xgp 手机云玩效果怎么样？</blockquote>
 开简单自动模式乱玩应该可以？毕竟算半个音游，打不准评价基本就没了</blockquote>
 可能是节奏感太差 教学都不过去 按不准。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  齿轮轴君  
+##### 183#       发表于 2023-1-28 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">红毛boss战完全get到了节奏游戏的爽点，把格挡相关的技能优先拉满让体验指数级上升，不过类似格挡后的抓人以及轻攻击蓄力不太泛用，重攻击蓄力只用来轻扫地机器人，期待红毛队友是什么辅助能力
+
+*****
+
+####  boxloli  
+##### 184#       发表于 2023-1-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523093&amp;ptid=2116452" target="_blank">shanajiang 发表于 2023-1-28 23:49</a>
+
+可能是节奏感太差 教学都不过去 按不准。。。</blockquote>
+云游戏有延迟，打这个很难把
+
+*****
+
+####  Ne0  
+##### 185#       发表于 2023-1-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523093&amp;ptid=2116452" target="_blank">shanajiang 发表于 2023-1-28 23:49</a>
+
+可能是节奏感太差 教学都不过去 按不准。。。</blockquote>
+教学的ui设计不太好, 那个判定点出来之后立刻就要开始按了, 不好反应, 而实际游玩的时候不会要求你做反应的. 进训练场多摸索一下就知道怎么跟着节奏按了.
+
+*****
+
+####  Ne0  
+##### 186#       发表于 2023-1-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523093&amp;ptid=2116452" target="_blank">shanajiang 发表于 2023-1-28 23:49</a>
+
+可能是节奏感太差 教学都不过去 按不准。。。</blockquote>
+教学的ui设计不太好, 那个判定点出来之后立刻就要开始按了, 不好反应, 而实际游玩的时候不会要求你做反应的. 进训练场多摸索一下就知道怎么跟着节奏按了.
+
+*****
+
+####  zqqwe  
+##### 187#       发表于 2023-1-28 23:54
+
+弹反的性能比想象中还高，火山图的岩浆、轨道战的路牌，乃至精英怪的qte起手气浪都可以弹掉，想跳过qte阶段的可以注意练习
+另外连续攻击可以利用指定方向的精确弹反附送的无敌时间来增加容错
+感觉战斗系统设计上每个角度都考虑到了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
