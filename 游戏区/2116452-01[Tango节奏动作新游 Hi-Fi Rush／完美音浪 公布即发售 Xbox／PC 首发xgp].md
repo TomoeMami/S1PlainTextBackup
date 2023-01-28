@@ -1682,3 +1682,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 第一关节奏大师难度战点全A关卡评价还是D，踩拍率比重也太大了吧。有些战点只有一个大型敌人的都来不及做 ...</blockquote>
 不是踩点的原因，你续关续了11次降了很多分
 
+
+*****
+
+####  Sliurus  
+##### 166#       发表于 2023-1-28 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59519893&amp;ptid=2116452" target="_blank">TTAA 发表于 2023-1-28 19:51</a>
+
+第一关节奏大师难度战点全A关卡评价还是D，踩拍率比重也太大了吧。有些战点只有一个大型敌人的都来不及做 ...</blockquote>
+续关对评价影响很大的，一命通关最少能A
+
