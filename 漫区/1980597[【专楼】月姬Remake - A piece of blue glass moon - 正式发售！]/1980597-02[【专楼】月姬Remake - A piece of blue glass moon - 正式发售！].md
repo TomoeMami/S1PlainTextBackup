@@ -53,3 +53,11 @@
 
 4.绷带人是新角色，这部分是新剧情，玩旧里线得不到答案的，应该是下半部的这里会安排给志贵1个队友放哨
 
+
+*****
+
+####  ky怪  
+##### 1536#       发表于 2023-1-28 22:17
+
+那我还是看看里线去，等不了了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

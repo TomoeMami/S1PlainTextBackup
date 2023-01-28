@@ -4662,3 +4662,18 @@ B站港澳台：
 估计早就被情报局盯上了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">情报局能把半年前帝国时报就刊登的黎恩信息抹的干干净净，能让遇到的所有人都说不出黎恩的名字吗，这强制力不比诅咒厉害多了。
 
+
+*****
+
+####  小小的信义  
+##### 545#       发表于 2023-1-28 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521310&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-28 21:48</a>
+
+情报局能把半年前帝国报纸就刊登的黎恩信息抹的干干净净，能让遇到的所有人都说不出黎恩的名字吗， ...</blockquote>
+说不定一转诅咒呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+忘了也不是没有可能 也可能是吃书
+
+但不说笑的话情报局限制下早就知道身份的四个人的情报来源问题不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
