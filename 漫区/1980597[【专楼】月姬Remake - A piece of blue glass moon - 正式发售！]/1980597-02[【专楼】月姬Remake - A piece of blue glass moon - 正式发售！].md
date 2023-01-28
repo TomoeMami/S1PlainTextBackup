@@ -14,3 +14,20 @@
 
 4. 选择探索远野槙久的房间会被绷带人背后捅死，教学提示说带上另一个学姐以外的可以放哨的人再来探索，这是原版里线内容吗？
 
+
+*****
+
+####  突发性哮喘病患  
+##### 1534#       发表于 2023-1-28 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59521106&amp;ptid=1980597" target="_blank">ky怪 发表于 2023-1-28 21:36</a>
+打完了Remake，有几个问题不知道要不要玩一下原版里线。画风有点难接受
+
+1. 第九章选择去见公主后第十章会 ...</blockquote>
+1记不得回答234 
+2 直接用直死魔眼切断了，不可逆，自然转生也一同停止，最后还被学姐的第七圣典补了一枪，灰飞烟灭
+3 因为琥珀吸血鬼化了，所以一直活着照顾。 
+4 被补刀是非原版内容
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
