@@ -1750,3 +1750,29 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 “我就是想测试下你买之前有没有在看说明”
 
+
+*****
+
+####  zqqwe  
+##### 173#       发表于 2023-1-28 22:56
+
+打到红毛入队，再一次感叹这游戏的音效和震动反馈简直完美啊，隔壁卡表在次世代全面走向写实风格后再也没有这种夸张爽快的音效了
+
+*****
+
+####  ko1p  
+##### 174#       发表于 2023-1-28 22:59
+
+请问是roguelike吗 还是固定的关卡和小怪？ 因为看到有人用哈迪斯比较<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ko1p  
+##### 175#       发表于 2023-1-28 23:01
+
+请问是roguelike吗 还是固定的关卡和小怪？ 因为看到有人用哈迪斯比较
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
