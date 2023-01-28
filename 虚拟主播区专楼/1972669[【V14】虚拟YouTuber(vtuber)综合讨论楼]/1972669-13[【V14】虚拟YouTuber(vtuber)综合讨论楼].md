@@ -1920,3 +1920,12 @@ iwaiwa是自己出来单干吧，甚至最早的项目还给了个ickr的帽子
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  FCCHua  
+##### 18467#       发表于 2023-1-28 12:18
+
+那想的有点多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

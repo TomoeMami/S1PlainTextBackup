@@ -4457,3 +4457,36 @@ B站港澳台：
 什么狗币剧情，这tm比闪二三的注水猪肉还空了，你们真的是来刺探情报的吗？ ...</blockquote>
 第三集的邀请函上写着邀请者稻草人，所以再过两集就可以看到帝国情报局“一切尽在掌握”了。
 
+
+
+*****
+
+####  Aeons  
+##### 525#       发表于 2023-1-28 12:11
+
+ 本帖最后由 Aeons 于 2023-1-28 12:13 编辑 
+
+只能解释本来就是被逼着来的没那个心思呗，讲道理你出任务结果纯粹是吃喝玩乐，这个态度很难让人共情你诺州的问题啊。
+
+当然你说最后是这几位直接归顺帝国那当我没说。
+
+*****
+
+####  三友非三清  
+##### 526#       发表于 2023-1-28 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59514099&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-1-28 12:11</a>
+
+只能解释本来就是被逼着来的没那个心思呗，讲道理你出任务结果纯粹是吃喝玩乐，这个态度很难让人共情你诺州 ...</blockquote>
+不，PART3指出小队去哪里压根就是白毛女指定的，所以搞得小队成员自己都不明白去这些地方有啥意义
+
+*****
+
+####  Aeons  
+##### 527#       发表于 2023-1-28 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59514149&amp;ptid=2050199" target="_blank">三友非三清 发表于 2023-1-28 12:17</a>
+
+不，PART3指出小队去哪里压根就是白毛女指定的，所以搞得小队成员自己都不明白去这些地方有啥意义 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">理由不都说了吗，英雄宴会和英雄家乡，结果不还是吃喝玩乐。
+

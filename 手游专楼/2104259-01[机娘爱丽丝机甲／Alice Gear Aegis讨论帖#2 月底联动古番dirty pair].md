@@ -793,3 +793,25 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 
 （昨天生日贝拿了3Q1的最后那件，太难得了
 
+
+
+*****
+
+####  孫光龍  
+##### 222#       发表于 2023-1-28 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一星都没抽到，甚至不配拿生日箱子
+打活动给一星吗？
+
+*****
+
+####  江戸前ルナ  
+##### 223#         楼主| 发表于 2023-1-28 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59514150&amp;ptid=2104259" target="_blank">孙光龙 发表于 2023-1-28 12:17</a>
+
+一星都没抽到，甚至不配拿生日箱子
+
+打活动给一星吗？</blockquote>
+一星一直都是没得抽啊，主线给或者活动给。这次活动有一星给。
+
