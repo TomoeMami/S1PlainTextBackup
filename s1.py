@@ -164,9 +164,9 @@ def FormatStr(namelist, replylist,totalreply):
         replys.append(i)
     for i in range(len(replylist)):
         if(lastreply < replynumber[i]):
-            output = output + '\n\n*****\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
+            output = output + '\n*****\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
     output = re.sub(r'\r','\n',output)
-    output = re.sub(r'\n{3,}','\n\n', output)
+    output = re.sub(r'\n{2,}','\n\n', output)
     lastreply = replynumber[-1]
     return output,lastreply
 
