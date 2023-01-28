@@ -189,3 +189,17 @@
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2985#       发表于 2023-1-28 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59511994&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2023-1-28 08:58</a>
+
+昨晚小叶子测智商赢了吗
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+107，因为迟了几分钟开始，小火驴加分25，然而这是小火驴的阴谋，为了天天请叶子喝奶茶和聊天
+
