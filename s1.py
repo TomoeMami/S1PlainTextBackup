@@ -1,5 +1,5 @@
 #!/usr/bin/env/ python3
-# -*- coding: UTF-8 -*-
+
 import requests
 from bs4 import BeautifulSoup
 import re
@@ -84,7 +84,7 @@ def thread_merge(oridir,desdir):
         thread_dict(desdir,des)
     result = ''
     for i in sorted(list(set(ori.keys())-set(des.keys()))):
-        result = result +  ("*****") + ori[i] 
+        result = result +  ("*****") + ori[i]
     with open (desdir,'a',encoding='UTF-8')as f:
         f.write(result)
     os.remove(oridir)
@@ -220,7 +220,7 @@ async def UpdateThread(threaddict,semaphore):
                     for i in filedir_src_list:
                         j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2023',i)
                         thread_merge(i,j)
-                else:    
+                else:
                     thread_merge(filedir_src,filename_des)
             else:
                 filedir_des = '/home/ubuntu/S1PlainTextArchive2023/' +thdata[threaddict['id']]['category']+'/'
