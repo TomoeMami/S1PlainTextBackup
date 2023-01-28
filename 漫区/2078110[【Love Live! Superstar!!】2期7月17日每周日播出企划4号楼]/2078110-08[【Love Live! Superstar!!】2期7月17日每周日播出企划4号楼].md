@@ -10694,3 +10694,60 @@ FD4122BD-A9D1-4196-8009-C71B68EB6ADC.jpeg
 
 一模一样的歌单，原汁原味的表演（褒义贬义都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11426#       发表于 2023-1-28 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">导播埋了吧，已经不知道抖了多少次镜头了
+
+*****
+
+####  稀勢のささ  
+##### 11427#       发表于 2023-1-28 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59518358&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-1-28 17:47</a>
+
+动画的杀伤力，会回想起微妙的记忆
+
+跟动画关联不大的歌的观感变相up
+
+以及歌单基本没惊喜[s ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单纯是歌本身大部分都不戳我，没动画补正是另一码事了
+
+*****
+
+####  P02  
+##### 11428#       发表于 2023-1-28 17:55
+
+看来没开14场线上配送也是件好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11429#       发表于 2023-1-28 17:57
+
+刚回家，看了两首
+
+是太久没看了么，二期表现力好像又进步了
+
+歌我是觉得没那么差啦。。。
+
+*****
+
+####  starring  
+##### 11430#       发表于 2023-1-28 17:59
+
+连MC都只剩最后感想发言那段，MC1~3都是补水就继续唱
+
+
+*****
+
+####  player3960  
+##### 11431#       发表于 2023-1-28 18:01
+
+Go restart看看团长鱼就关了，毕竟day1没有赛车<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
