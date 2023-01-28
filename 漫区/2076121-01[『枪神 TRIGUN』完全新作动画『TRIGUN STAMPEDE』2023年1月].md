@@ -2645,3 +2645,12 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 这动画厉害了
 
+
+
+*****
+
+####  saevey  
+##### 245#       发表于 2023-1-28 09:08
+
+前两集的表现我还能把期望放后面，结果第三集就给我来个大的…<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">高情商：能看到上限在哪了。
+
