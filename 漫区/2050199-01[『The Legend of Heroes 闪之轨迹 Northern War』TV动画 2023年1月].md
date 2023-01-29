@@ -4864,3 +4864,32 @@ B站港澳台：
 
 都是毁天灭地的牛逼回路
 
+
+*****
+
+####  roxas.sora  
+##### 562#       发表于 2023-1-29 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得起码插满导力器，有点小魔法和中魔法才正常吧
+
+*****
+
+####  yongze  
+##### 563#       发表于 2023-1-29 10:43
+
+黎2讲到了ngo组织要准备和治理东边的荒漠化一起治理北方盐桩事件后荒废的土地
+
+*****
+
+####  镜hinata  
+##### 564#       发表于 2023-1-29 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526064&amp;ptid=2050199" target="_blank">kenqqex 发表于 2023-1-29 10:28</a>
+如果轨迹世界观的一般兵和中等精英连回路都买不起的话我们玩的十几作里面的角色都是什么英雄好汉
+
+都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说呢，概括下可控制的角色就明白啦
+艾，总帅女儿，队友都是什么王国储君总帅徒弟工房老大孙女帝国皇子游击士A级大佬
+黎，实质上一把手儿子，队友基本全是二代
+罗，可能出身低点，但队友一个议长孙女一个财团特派
+

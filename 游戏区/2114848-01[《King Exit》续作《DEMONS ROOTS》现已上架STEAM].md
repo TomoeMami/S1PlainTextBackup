@@ -50,3 +50,11 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 另外过年回家又打了一遍把所有ex清了，发现通关之后的clear！文件夹是tm在游戏目录上一级的SteamLibrary\steamapps\common\clear!里的，太离谱了，也算是吧小bug吧
 
+
+*****
+
+####  突发性哮喘病患  
+##### 105#       发表于 2023-1-29 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重新快速过了一下KE的剧情，发现古伊奈你个罪魁祸首天天说风凉话，选择放弃未来的不就是你嘛
+
