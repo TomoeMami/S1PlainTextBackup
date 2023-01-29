@@ -1892,3 +1892,11 @@ xgp 手机云玩效果怎么样？</blockquote>
 另外连续攻击可以利用指定方向的精确弹反附送的无敌时间来增加容错
 感觉战斗系统设计上每个角度都考虑到了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BK10  
+##### 188#       发表于 2023-1-29 08:22
+
+一部分媒体给已经出了<img src="https://p.sda1.dev/9/b96ebbd830425804f2b9baa93ae2ea7c/CMP_20230129082121125.jpg" referrerpolicy="no-referrer">还有mc4家88分
+
