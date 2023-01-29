@@ -2080,3 +2080,11 @@ xgp 手机云玩效果怎么样？</blockquote>
 比较尴尬的是马卡龙的重力炮不带破盾效果，小薄荷的蓄力炮后期也能作为破盾主要手段，就是这个游戏的锁定 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在我不把场上人盾全消了都不想开打 进人堆里普攻很容易一巴掌拍带盾的上面
 
+
+*****
+
+####  gawain  
+##### 207#       发表于 2023-1-29 19:45
+
+xgp送就直接下了玩，意外的不错。 今年再来两个这xgp就赚了！
+

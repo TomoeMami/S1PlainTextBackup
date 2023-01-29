@@ -11439,3 +11439,49 @@ rnm花田
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 11502#       发表于 2023-1-29 19:44
+
+不踩刹车反而继续油门，小日子对味，不破不立是吧，你可没那底力年年八强最后卧薪夺冠，坐看24年动画三期后全面崩盘。
+
+*****
+
+####  优妮可  
+##### 11503#       发表于 2023-1-29 19:47
+
+不是？没说三期生啊？情报哪里说三期生了？突然聊三期生什么鬼
+
+*****
+
+####  ruffian  
+##### 11504#       发表于 2023-1-29 19:47
+
+真的是给我一种要踩油门的感觉……
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 11505#       发表于 2023-1-29 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533598&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-29 19:41</a>
+
+不是，我的意思是三期生真的要和二期生一样赶吗？二期生毕竟选拔的更早，三期生海选现在还没结束，要是按二 ...</blockquote>
+走一期生的路子，cast公布后靠生放送广播剧和外景这些活动来刷熟脸，到动画播放后即使再烂，也有已经刷熟练的新cast当盾
+
+*****
+
+####  Kfly  
+##### 11506#       发表于 2023-1-29 19:50
+
+ 本帖最后由 Kfly 于 2023-1-29 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533675&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-29 19:47</a>
+不是？没说三期生啊？情报哪里说三期生了？突然聊三期生什么鬼</blockquote>
+是428这个日期的衍生ptsd，不过应该不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+嗯，应该
+星的现有操作确实是容易胡思乱想的，毕竟官方也就令人失望这点上从令人未失望过
+

@@ -12160,3 +12160,69 @@ N E W
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4118#         楼主| 发表于 2023-1-29 19:41
+
+这馅没搞好确实容易溢出来，这就要技巧了
+
+所以没那么好做的
+
+*****
+
+####  神澈  
+##### 4119#       发表于 2023-1-29 19:44
+
+这屏幕原来能变大啊。
+
+*****
+
+####  holoan  
+##### 4120#         楼主| 发表于 2023-1-29 19:44
+
+[https://amzn.asia/d/0KbjpBm](https://amzn.asia/d/0KbjpBm)
+
+<img src="https://img.saraba1st.com/forum/202301/29/194425wt3hydtt5ney7et3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-29 19:44 上传
+
+这粉丝送的机器感觉还可以
+
+*****
+
+####  holoan  
+##### 4121#         楼主| 发表于 2023-1-29 19:48
+
+果然是先失败一下再进入正题
+
+*****
+
+####  神澈  
+##### 4122#       发表于 2023-1-29 19:49
+
+这手套脏不脏啊。。。
+
+*****
+
+####  holoan  
+##### 4123#         楼主| 发表于 2023-1-29 19:50
+
+还准备了台本
+
+可以
+
+*****
+
+####  rs5621  
+##### 4124#       发表于 2023-1-29 19:50
+
+看不到后面，应该是隔着纸袋拿的？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
