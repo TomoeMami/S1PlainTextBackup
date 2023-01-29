@@ -1920,3 +1920,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 我现在都怀疑是不是杯赛故意裹挟媒体了，反正关系不好，我又对自己游戏有信心，干脆直接放出来，你们媒体就看着steam98好评mc92分自己想办法吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈词与芍药  
+##### 191#         楼主| 发表于 2023-1-29 10:33
+
+刚打完红发女干部，感觉杯赛和微软这游戏卖我30刀亏了
+刚发现用背键来格挡成功率高了不少（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
