@@ -2047,3 +2047,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 两个援护都能点格挡追击的技能，除了boss型都能强控+秒破盾
 另外50000还是30000那个4格大招威力高的一比，只要没盾就是清场，考虑到评分连击占比不高，如果不是打段子完全不用顾虑随便用就是了
 
+
+*****
+
+####  Emmerich  
+##### 204#       发表于 2023-1-29 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532169&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-29 17:38</a>
+
+格挡后的援助攻击能快速破盾</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嗯后来多看了几眼商店整明白了
+
