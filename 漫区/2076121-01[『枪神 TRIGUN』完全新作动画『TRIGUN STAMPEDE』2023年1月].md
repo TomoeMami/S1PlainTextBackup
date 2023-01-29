@@ -2799,3 +2799,15 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 主角还没圣母病发作呢牧师怎么就开始念叨上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 261#       发表于 2023-1-29 17:22
+
+ 本帖最后由 charlespfan 于 2023-1-29 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59531590&amp;ptid=2076121" target="_blank">1010248485 发表于 2023-1-29 16:57</a>
+
+主角还没圣母病发作呢牧师怎么就开始念叨上了</blockquote>
+因为脚本在发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

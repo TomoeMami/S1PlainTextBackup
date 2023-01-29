@@ -11215,3 +11215,13 @@ rnm花田
 结合流浪地球看鱼这简直是拿着自家女儿电子骨灰盒的老图</blockquote>
 你这么一说提醒我了，正好2有个数字定制的周边，刻个可可上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">就是臭官方死不公布具体年份，只能盲选06年了
 
+
+*****
+
+####  stygian  
+##### 11483#       发表于 2023-1-29 17:24
+
+ 本帖最后由 stygian 于 2023-1-29 17:27 编辑 
+
+可以基本确定琦玉encore是unison和byebye了吧。。。？前提还是这套歌单的话
+
