@@ -95,3 +95,27 @@ typec拓展坞也得看具体有哪些口,支持哪些功能.
 
 想搞一台回来打仁王2，爬楼看到前面也有说闪退，想问现在情况咋样，不太在意帧数的情况下不折腾能爽玩么？
 
+
+*****
+
+####  暗示我7酱  
+##### 2143#       发表于 2023-1-29 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59525964&amp;ptid=2015700" target="_blank">droople 发表于 2023-1-29 10:21</a>
+@暗示我7酱
+
+烧鸡是接触不良还是其他原因啊</blockquote>
+贴吧传出来的，也是人云亦云了。有的烧可能是用了杂牌，有的可能是本来就换了硬盘。。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  暗示我7酱  
+##### 2144#       发表于 2023-1-29 14:05
+
+https://tieba.baidu.com/p/8212928359?see_lz=0
+这玩意组装还有雷啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
