@@ -314,3 +314,16 @@ NAVI现在simple要打自己舒服的位置，bit没脑子npl没枪法，只有p
 
 navi一天不解放电，一天都不用看好
 
+
+*****
+
+####  andychen  
+##### 3125#       发表于 2023-1-29 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59525384&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-1-29 09:35</a>
+
+憨豆自从踢了Alex之后就接任指挥，已经三年了，还不是日常脑溢血他从起源就在打了 ...</blockquote>
+憨豆指挥说实话完爆电子哥
+
+憨豆有时候憨了点，电子哥完全是不及格的水平
+
