@@ -12089,3 +12089,13 @@ N E W
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4111#         楼主| 发表于 2023-1-29 16:31
+
+今天料理啊
+
+最后正月衣装live的回顾杂谈过了一个月也没做……
+
