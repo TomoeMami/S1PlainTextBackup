@@ -1966,3 +1966,11 @@ millie这个年度好活</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mille这个算天皇聊天室的威力超加强版了
 
+
+*****
+
+####  格林卡罗尔  
+##### 18472#       发表于 2023-1-29 17:55
+
+语C聊天室加强到4chan匿名版，属于下了猛药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

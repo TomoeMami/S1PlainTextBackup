@@ -11225,3 +11225,11 @@ rnm花田
 
 可以基本确定琦玉encore是unison和byebye了吧。。。？前提还是这套歌单的话
 
+
+*****
+
+####  稀勢のささ  
+##### 11484#       发表于 2023-1-29 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊个MC还得强调是一期的香音（而不是二期的教主） 也太难了
+
