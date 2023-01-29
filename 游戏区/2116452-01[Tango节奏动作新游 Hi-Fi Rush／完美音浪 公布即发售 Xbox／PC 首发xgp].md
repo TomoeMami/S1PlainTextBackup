@@ -2161,3 +2161,25 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 
 第一关的大萝卜怎么打烂脸？一直打脸打到死都没烂
 
+
+*****
+
+####  5353  
+##### 215#       发表于 2023-1-29 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536205&amp;ptid=2116452" target="_blank">4869Bi 发表于 2023-1-29 23:07</a>
+
+猫都对上了</blockquote>
+你也用的日语啊.又听到雷老板的声音了.
+
+*****
+
+####  Rowen233  
+##### 216#       发表于 2023-1-29 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536205&amp;ptid=2116452" target="_blank">4869Bi 发表于 2023-1-29 23:07</a>
+猫都对上了</blockquote>
+为了声优这碟醋包的这盘饺子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

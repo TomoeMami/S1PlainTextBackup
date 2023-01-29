@@ -6768,3 +6768,13 @@ b站专栏搜神之天平</blockquote>
 
 4个遗迹兵容错率高，容易复制的打法来啦，堆高防御，适用于困难模式。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 3568#       发表于 2023-1-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536152&amp;ptid=2098044" target="_blank">christiny 发表于 2023-1-29 23:04</a>
+好像挨打不会掉能量啊，掉能量是长时间没有普攻，会自然衰减。要消弹的话，需要常驻冷弹，72消耗。本篇后 ...</blockquote>
+挨打掉能量的盲猜一个装了自动格挡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
