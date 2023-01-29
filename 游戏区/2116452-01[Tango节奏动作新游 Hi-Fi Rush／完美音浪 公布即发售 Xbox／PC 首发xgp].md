@@ -2229,3 +2229,28 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  散装星空  
+##### 221#       发表于 2023-1-30 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537361&amp;ptid=2116452" target="_blank">烛堡巡礼者 发表于 2023-1-30 00:30</a>
+
+怕有人cpu烧了（比如我）姑且提醒一句，二段跳后是可以冲刺的……
+
+印象中教程没提？当然更可能是我没注意， ...</blockquote>
+这游戏动作要素都挺常规的，跳+冲刺+跳和2段跳+冲刺都是可行的。
+
+*****
+
+####  散装星空  
+##### 222#       发表于 2023-1-30 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536233&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-29 23:09</a>
+
+12小时困难通关，看片尾动画似乎还有点LGBT要素？虽然含量微乎其微
+
+剧情就是王道少年漫，就是卡尔的 ...</blockquote>
+二周目会直接继承全部获得的能力和技能，你勾爪会直接上他脸的，攻击效率比等他手落地高多了（而且因为招式设置所以你如果保持浮空攻击的话基本上他碰都碰不到你）。
+

@@ -820,3 +820,95 @@ MD的光明力量2古代封印没上榜，看来过时了。<img src="https://st
 
 有的那个，也大概率是我前面说的，<blockquote>因为会去补冷门主机游戏的王牌游戏的人，独辟蹊径，背时而动，也不愿意将自己的探索说成是无用功。</blockquote>这种人。
 
+
+*****
+
+####  绝对防御将军  
+##### 73#       发表于 2023-1-30 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537797&amp;ptid=2116976" target="_blank">电磁炮233 发表于 2023-1-30 01:33</a>
+
+不是从你暴论白皮不懂16位JRPG开始歪楼的？
+
+然而事实上就你提的那几个游戏，这网站上都有人玩过，而且打 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202301/30/014047d21hhgfqkpklm2cp.png" referrerpolicy="no-referrer">
+
+<strong>天外魔境zero.png</strong> (107.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/014047plcq5mznnz7liw55.png" referrerpolicy="no-referrer">
+
+<strong>鲁多拉秘宝.png</strong> (133.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/014046fmbbtzy0sb5obmsb.png" referrerpolicy="no-referrer">
+
+<strong>财宝猎人G.png</strong> (105.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:40 上传
+
+这是同属白皮打分网站的gamefaqs的评分。也是5分满分。
+
+差这么远说明什么呢？
+
+*****
+
+####  绝对防御将军  
+##### 74#       发表于 2023-1-30 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537850&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:41</a>
+
+这是同属白皮打分网站的gamefaqs的评分。也是5分满分。
+
+差这么远说明什么呢？</blockquote>
+哦，看到了，gamefaqs上的评分数还比backloggd上的多点。
+
+*****
+
+####  电磁炮233  
+##### 75#         楼主| 发表于 2023-1-30 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537820&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:36</a>
+再补充两点吧。
+
+第一。
+
+从我这个逻辑里，也能推出来：销量榜游戏有销量榜游戏的高分法，婆罗门游戏有婆罗 ...</blockquote>
+你这第二点根本没有证据支持，如果成立，那么越冷门的机子上这种小众神作越多，然而事实完全相反，新主机上的高分作品更多更泛滥。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绝对防御将军  
+##### 76#       发表于 2023-1-30 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537874&amp;ptid=2116976" target="_blank">电磁炮233 发表于 2023-1-30 01:46</a>
+
+你这第二点根本没有证据支持，如果成立，那么越冷门的机子上这种小众神作越多，然而事实完全相反，新主机 ...</blockquote>
+有没有可能这就像是我前面说的那样。 <blockquote>有官方英化版打分人数上了个档次，打分严格度则是降了个档次。没见识的人看什么电影都给5星，肖申克的救赎影史最强？</blockquote>
+是游戏玩家群体的扩大，和互联网+导致的。0x年时在网上给游戏评分的人更geek些，2x年时在网上给游戏评分的人已经是玩潮玩的了？
+
+*****
+
+####  电磁炮233  
+##### 77#         楼主| 发表于 2023-1-30 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537850&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:41</a>
+这是同属白皮打分网站的gamefaqs的评分。也是5分满分。
+
+差这么远说明什么呢？</blockquote>
+说明data量越少分数越离谱越不可信呗，这也是我设置门槛的原因。
+更何况不同网站的用户群体又不是同一批，豆瓣和bangumi差的也远了去了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
