@@ -1952,3 +1952,21 @@ xgp 手机云玩效果怎么样？</blockquote>
 红毛boss战完全get到了节奏游戏的爽点，把格挡相关的技能优先拉满让体验指数级上升，不过类似格挡后 ...</blockquote>
 重攻击蓄力可以配合拳套的长按援护重力波定怪之后用
 
+
+*****
+
+####  Rowen233  
+##### 194#       发表于 2023-1-29 15:40
+
+早期泄漏图
+
+<img src="https://img.saraba1st.com/forum/202301/29/154013d21u7on2q4z4cbtu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2411.JPG</strong> (351.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-29 15:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
