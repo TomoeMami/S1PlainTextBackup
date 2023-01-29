@@ -11410,3 +11410,32 @@ rnm花田
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starring  
+##### 11499#       发表于 2023-1-29 19:32
+
+出来活动也不奇怪，没新歌顶多不参加live
+
+*****
+
+####  P02  
+##### 11500#       发表于 2023-1-29 19:33
+
+<blockquote>ruffian 发表于 2023-1-29 19:25
+啥意思啊，三期生不会真的今年就出来活动吧？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+肯定是今年出来活动的啊
+
+*****
+
+####  ruffian  
+##### 11501#       发表于 2023-1-29 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533509&amp;ptid=2078110" target="_blank">P02 发表于 2023-01-29 19:33:02</a>
+肯定是今年出来活动的啊</blockquote>不是，我的意思是三期生真的要和二期生一样赶吗？二期生毕竟选拔的更早，三期生海选现在还没结束，要是按二期生去年的节奏来过于赶鸭子上架了吧？(而且鱼上次还说9人的咧啦还会活动很久，今天又说不知道9人咧啦还有多久emmmm不会计划又有什么变动吧……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
