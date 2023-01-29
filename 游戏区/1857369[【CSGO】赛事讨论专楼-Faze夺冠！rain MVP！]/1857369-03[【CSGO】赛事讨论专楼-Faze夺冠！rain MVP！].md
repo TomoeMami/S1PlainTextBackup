@@ -335,3 +335,14 @@ navi一天不解放电，一天都不用看好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡托科隆EPL今年好像虎牙都是独播 
 
+
+*****
+
+####  stplum  
+##### 3127#       发表于 2023-1-29 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59535329&amp;ptid=1857369" target="_blank">zpl123 发表于 2023-1-29 22:04</a>
+
+卡托科隆EPL今年好像虎牙都是独播</blockquote>
+虎牙好歹还有能看的主播，只要别是睿国怎么都好
+

@@ -12386,3 +12386,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 <img src="https://img.saraba1st.com/forum/202301/29/222105xbau4mhgccc9m2aa.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 4140#         楼主| 发表于 2023-1-29 22:25
+
+这人asmr跟一年前比确实是长进很多
+
+今年开始这么忙还想着给粉丝做asmr确实是不容易了
+
