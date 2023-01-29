@@ -6748,3 +6748,23 @@ b站专栏搜神之天平</blockquote>
 给我印象最深的其实是大贤者那句“果然有手段，不愧是诓骗了老夫两个女儿的男 ...</blockquote>
 没证据说明黑与白是亲姐妹和大贤者女儿（见过姐妹头发颜色差那么多的吗？），至少从前几章完全看不出来有这个伏笔的意思，我觉得大贤者自己才是LSP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 3566#       发表于 2023-1-29 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59531728&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-29 17:07</a>
+
+回血倒是好说，真正弹幕压制到无法吃药的场景不多。我比较纠结挨打掉能量，这个容易造成能量积攒不起来， ...</blockquote>
+好像挨打不会掉能量啊，掉能量是长时间没有普攻，会自然衰减。要消弹的话，需要常驻冷弹，72消耗。本篇后期500-600的精力，可以开4，5次冷弹，根本不会有什么弹幕啦<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  christiny  
+##### 3567#       发表于 2023-1-29 23:07
+
+【4遗迹兵攻略】 [https://www.bilibili.com/video/B ... 0013675f31439d631cc](https://www.bilibili.com/video/BV1ds4y1s7pJ/?share_source=copy_web&amp;vd_source=8e9f2e742bfad0013675f31439d631cc)
+
+4个遗迹兵容错率高，容易复制的打法来啦，堆高防御，适用于困难模式。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

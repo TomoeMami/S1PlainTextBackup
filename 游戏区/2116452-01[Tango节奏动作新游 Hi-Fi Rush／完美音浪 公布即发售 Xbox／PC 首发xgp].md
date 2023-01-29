@@ -2134,3 +2134,30 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 
 在xgp里试了一下，被自己菜哭了。
 
+
+*****
+
+####  4869Bi  
+##### 213#       发表于 2023-1-29 23:07
+
+<img src="https://img.saraba1st.com/forum/202301/29/230615mcp6fui8c6cpupeu.png" referrerpolicy="no-referrer">
+
+<strong>1674958445961168.png</strong> (87.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-29 23:06 上传
+
+猫都对上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 214#       发表于 2023-1-29 23:09
+
+12小时困难通关，看片尾动画似乎还有点LGBT要素？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然含量微乎其微
+
+剧情就是王道少年漫，就是卡尔的目的有点搞笑，可能这就是资本家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一关的大萝卜怎么打烂脸？一直打脸打到死都没烂
+
