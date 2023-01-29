@@ -166,3 +166,36 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 —— 来自 Xiaomi M2007J ...</blockquote>
 改散热可以吗
 
+
+*****
+
+####  may66  
+##### 2149#       发表于 2023-1-29 18:23
+
+<blockquote>stair楼梯 发表于 2023-1-29 11:36
+想搞一台回来打仁王2，爬楼看到前面也有说闪退，想问现在情况咋样，不太在意帧数的情况下不折腾能爽玩么？ ...</blockquote>
+我玩了十几个小时闪退过一次，画质很低，相对的帧数比较稳定，我是锁50帧玩的，关掉妖技跟处决镜头演出，全程都不会怎么掉帧
+
+*****
+
+####  暗示我7酱  
+##### 2150#       发表于 2023-1-29 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532656&amp;ptid=2015700" target="_blank">droople 发表于 2023-1-29 18:19</a>
+改散热可以吗</blockquote>
+贴吧有试的
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  droople  
+##### 2151#       发表于 2023-1-29 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532707&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-29 18:24</a>
+
+贴吧有试的
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+成功了吗
+

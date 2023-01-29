@@ -15,3 +15,11 @@
 
 巨大boss活动要开了，这次是水属性，你看风属性的场子这不就来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MEKA  
+##### 236#       发表于 2023-1-29 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">新卡还真是主角团，钱包大危机
+

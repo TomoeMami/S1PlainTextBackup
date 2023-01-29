@@ -11233,3 +11233,15 @@ rnm花田
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊个MC还得强调是一期的香音（而不是二期的教主） 也太难了
 
+
+*****
+
+####  ads147147  
+##### 11485#       发表于 2023-1-29 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523888&amp;ptid=2078110" target="_blank">P02 发表于 2023-1-29 01:07</a>
+草死，🐟在广播说了爷的那句名台词</blockquote>
+ヒ了？
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
