@@ -11380,3 +11380,23 @@ rnm花田
 
 等等，又是428啊，正好选这天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  P02  
+##### 11496#       发表于 2023-1-29 19:20
+
+<blockquote>Kfly 发表于 2023-1-29 19:09
+等等，又是428啊，正好选这天</blockquote>
+428是啥日子啊？二期生？
+
+*****
+
+####  Kfly  
+##### 11497#       发表于 2023-1-29 19:21
+
+ 本帖最后由 Kfly 于 2023-1-29 19:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533359&amp;ptid=2078110" target="_blank">P02 发表于 2023-1-29 19:20</a>
+428是啥日子啊？二期生？</blockquote>
+是啊，那天公布的情报
+
