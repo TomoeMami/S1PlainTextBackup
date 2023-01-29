@@ -6705,3 +6705,14 @@ b站专栏搜神之天平</blockquote>
 天平有缓慢回血词条，被动也有你的魔法自动减少时会回复相应数值生命的被动 ...</blockquote>
 回血倒是好说，真正弹幕压制到无法吃药的场景不多。我比较纠结挨打掉能量，这个容易造成能量积攒不起来，被一些boss弹幕糊脸难以近身。
 
+
+*****
+
+####  adw667  
+##### 3562#       发表于 2023-1-29 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59531728&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-29 17:07</a>
+
+回血倒是好说，真正弹幕压制到无法吃药的场景不多。我比较纠结挨打掉能量，这个容易造成能量积攒不起来， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">推荐使用大剑，大锤，长枪这类手长的武器，只要点上力拔千钧被动再把重量压到0攻速其实也不算慢，而且重武器单次命中回的能量更多。魔法可以常驻月光，虽然后期输出乏力但是便宜且性能不错
+

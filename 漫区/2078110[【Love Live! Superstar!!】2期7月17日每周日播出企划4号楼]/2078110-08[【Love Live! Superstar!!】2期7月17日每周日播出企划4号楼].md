@@ -11204,3 +11204,14 @@ rnm花田
 <img src="https://p.sda1.dev/9/a555e7188ea3ba2d8197872096da93db/img-16749662354893bfaf7ce6d4aeedb05c44609ec1d0d94185f8a912538a708c856a2c723e69770.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 11482#       发表于 2023-1-29 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59527737&amp;ptid=2078110" target="_blank">甘蓝巧克力 发表于 2023-1-29 12:23</a>
+
+结合流浪地球看鱼这简直是拿着自家女儿电子骨灰盒的老图</blockquote>
+你这么一说提醒我了，正好2有个数字定制的周边，刻个可可上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">就是臭官方死不公布具体年份，只能盲选06年了
+

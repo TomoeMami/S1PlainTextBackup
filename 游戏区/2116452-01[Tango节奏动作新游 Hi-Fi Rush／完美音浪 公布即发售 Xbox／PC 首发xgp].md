@@ -2005,3 +2005,25 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 本身9分的质量 加上SE送了个人头 一对比直接奔满分去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 199#       发表于 2023-1-29 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一周目最高难度初见武士怪被qte砍死30多次我佛了  说起来那些电磁屏障和盾牌哥 真就只能靠cd技能耗掉再输出 有点膈应
+
+*****
+
+####  tureleona  
+##### 200#       发表于 2023-1-29 17:20
+
+之前那个节奏地狱射击的游戏打的我便秘一般的感受本来是拒绝的，但换成ACT就无比流畅舒服一口气干到第五关，红毛保安队长完美对上我XP，我也想被锁喉<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗箭  
+##### 201#       发表于 2023-1-29 17:22
+
+我喜欢小薄荷
+

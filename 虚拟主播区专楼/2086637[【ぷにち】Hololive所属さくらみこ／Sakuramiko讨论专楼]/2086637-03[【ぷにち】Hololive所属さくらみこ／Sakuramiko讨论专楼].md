@@ -12099,3 +12099,13 @@ N E W
 
 最后正月衣装live的回顾杂谈过了一个月也没做……
 
+
+*****
+
+####  rs5621  
+##### 4112#       发表于 2023-1-29 17:19
+
+最近这么多事，怕不是忘记了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
