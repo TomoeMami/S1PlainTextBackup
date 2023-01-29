@@ -11650,3 +11650,17 @@ rnm花田
 估计是谈妥了。对等的政策下，应该是不挂牌的了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了一眼那个指定核酸机构，我觉得还不是很乐观，不过还有3个月时间，我已经把4月的票都抽上了，希望到时一切正常吧
 
+
+*****
+
+####  ads147147  
+##### 11524#       发表于 2023-1-29 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533643&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-29 19:44</a>
+不踩刹车反而继续油门，小日子对味壁吧那位也是真敢想，西武就公布三期动画时间，争取三年内就烂完 ...</blockquote>
+多少有点早死早超生的味道（无奈
+
+西武能把新成员有谁公开了不。反正结那都是板上钉钉了，角色也早就设计好了吧，cv藏住不就好了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
