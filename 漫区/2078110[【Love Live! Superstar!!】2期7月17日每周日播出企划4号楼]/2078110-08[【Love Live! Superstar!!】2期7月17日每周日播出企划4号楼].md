@@ -11599,3 +11599,26 @@ rnm花田
 
 说起来今天最后yabu那句「なこのとなり」没绷住
 
+
+*****
+
+####  lj205  
+##### 11519#       发表于 2023-1-29 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59534739&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2023-1-29 21:18</a>
+去不起，去不起，只能等她回家了</blockquote>
+我觉得应该是快恢复了，就是不知道过去还挂不挂狗牌<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在知道的就是只针对大陆过去的做核酸
+
+*****
+
+####  稀勢のささ  
+##### 11520#       发表于 2023-1-29 21:44
+
+<blockquote>#リスアニ ！LIVE 2023
+
+3/17～19に配信决定🎥❕
+
+＼
+
+“リスアニ！LIVE 2023”の #dTV プレミア配信が决定しました！さらに3DAYS通しチケット购入者限定で #XRWorld でのリピート配信视聴も可能に！アバターでの新たな视聴体験をお楽しみください👀⚡</blockquote>前两天的拼盘
+
