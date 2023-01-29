@@ -2183,3 +2183,16 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 217#       发表于 2023-1-29 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536233&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-29 23:09</a>
+
+12小时困难通关，看片尾动画似乎还有点LGBT要素？虽然含量微乎其微
+
+剧情就是王道少年漫，就是卡尔的 ...</blockquote>
+攻击手部，过载后它的手上会有互动提示，进一段qte，两只手各能触发一次
+
