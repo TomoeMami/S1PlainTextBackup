@@ -683,3 +683,62 @@ JRPG小白先入为主导致的马太效应。根本不了解同期别的游戏�
 你在一个十六位机时代不但&amp;# ...</blockquote>
 懂了，日本人有条件玩，美国人没条件玩的JRPG毫无意义。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  战狼PTSD  
+##### 65#       发表于 2023-1-30 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537628&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:06</a>
+
+懂了，日本人有条件玩，美国人没条件玩的JRPG毫无意义。</blockquote>
+所以这是欧美榜单啊，你是不是完全不看标题？
+
+*****
+
+####  绝对防御将军  
+##### 66#       发表于 2023-1-30 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537676&amp;ptid=2116976" target="_blank">战狼PTSD 发表于 2023-1-30 01:14</a>
+
+所以这是欧美榜单啊，你是不是完全不看标题？</blockquote>
+所以我怎么一步步说到16位游戏的？你是不是不看前面楼层？ <blockquote>冷门主机独占的某领域最强游戏，是否会有得天独厚的得分优势？
+
+因为有那台主机的人，差不多就被那个游戏独占童年了。往后的玩家，也很难补这个游戏。于是会去评分的，就只有有童年滤镜的人。
+
+而做综合榜单的人，往往大多数游戏都靠云。云的话，就是比谁吹的更狠。反过来，这又会巩固珍视自己童年的人的自信，形成不容侵犯的神秘立场，隐形的地位气氛。
+
+最终成就了冷门主机的某领域的“神话”，也无人能去戳破。因为会去补冷门主机游戏的王牌游戏的人，独辟蹊径，背时而动，也不愿意将自己的探索说成是无用功。</blockquote><blockquote>冷门主机是指PCE、3DO那些吗？你说的这种现象是有但肯定被我的筛选条件过滤了，能有三百个人评已经算不上多冷门了</blockquote><blockquote>比如DC/NGC的永恒的阿卡迪亚。</blockquote><blockquote>阿卡迪亚算比较冷的，但NGC这台机器在欧美肯定没有到冷门的地步，至少比WIIU火太多了
+
+你说的现象肯定有，但不会存在于有成熟模拟器的机种上，因为我就算没实机，拿模拟器跑ROM就知道你吹的是真是假了</blockquote><blockquote>MD也不是冷门主机。但对于RPG来说，MD就是冷门主机。史克威尔、恩尼科斯、南梦宫等等都没下场。这种情况下独砍九十五分以上的游戏的含金量就是可疑的。</blockquote>
+
+*****
+
+####  电磁炮233  
+##### 67#         楼主| 发表于 2023-1-30 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537593&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 00:59</a>
+这算下套吗？只玩过一部3D平台跳跃游戏的有资格说这游戏3D平台跳跃游戏最高作吗？少说得打十款以上吧？
+
+ ...</blockquote>
+大哥我这只是按分数由高到低拉了个单，又不是某某某标榜史上最强的一百个RPG，有什么资格不资格的，你这么厉害可以自己列一个给大伙看看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  萼绿华  
+##### 68#       发表于 2023-1-30 01:18
+
+不过这网站南亚/东南亚成分大概能占几成？并不是英语网站就一定欧美的，隔壁MAL上可是半壁江山都是印尼人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝对防御将军  
+##### 69#       发表于 2023-1-30 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537695&amp;ptid=2116976" target="_blank">电磁炮233 发表于 2023-1-30 01:17</a>
+
+大哥我这只是按分数由高到低拉了个单，又不是某某某标榜史上最强的一百个RPG，有什么资格不资格的，你这 ...</blockquote>
+我就是提个老游戏评分的马太效应的看法，你急什么急。不然我怎么回你这楼，啊我喜欢的XXX上榜了耶，不会吧我喜欢的YYY没有诶，这样你就开心了？那行吧，下次你发帖我不回了好么，估计你也巴不得。
+
