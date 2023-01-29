@@ -2207,3 +2207,14 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 
 —— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  朔方原的星  
+##### 219#       发表于 2023-1-30 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537361&amp;ptid=2116452" target="_blank">烛堡巡礼者 发表于 2023-1-30 00:30</a>
+怕有人cpu烧了（比如我）姑且提醒一句，二段跳后是可以冲刺的……
+印象中教程没提？当然更可能是我没注意， ...</blockquote>
+有个小冰箱提过
+
