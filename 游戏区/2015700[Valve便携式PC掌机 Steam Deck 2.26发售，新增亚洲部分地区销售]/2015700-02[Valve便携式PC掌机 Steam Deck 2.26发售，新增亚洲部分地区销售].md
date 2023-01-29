@@ -119,3 +119,12 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  脚本水平  
+##### 2145#       发表于 2023-1-29 15:22
+
+问一下steam deck的游戏统计时间是不是有问题啊
+玩了十几个小时结果看电脑上怎么只有2小时
+
