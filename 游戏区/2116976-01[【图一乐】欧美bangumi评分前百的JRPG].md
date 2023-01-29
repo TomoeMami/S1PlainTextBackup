@@ -672,3 +672,14 @@ JRPG小白先入为主导致的马太效应。根本不了解同期别的游戏�
 
 主机ACT是不是平庸之作，玩个两三个小时就差不多认知清楚了。JRPG一部几十小时起步的耗时，这种问题就会凸显得非常严重。另外一个重灾区就是街机游戏，公用游戏网站的评分基本没法看，因为都是不停续币的人全在评不知道什么鬼东西，和一币通关的人的体验两码事。
 
+
+*****
+
+####  绝对防御将军  
+##### 64#       发表于 2023-1-30 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537425&amp;ptid=2116976" target="_blank">战狼PTSD 发表于 2023-1-30 00:36</a>
+
+你在一个十六位机时代不但&amp;# ...</blockquote>
+懂了，日本人有条件玩，美国人没条件玩的JRPG毫无意义。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

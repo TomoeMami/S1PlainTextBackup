@@ -2218,3 +2218,14 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 印象中教程没提？当然更可能是我没注意， ...</blockquote>
 有个小冰箱提过
 
+
+*****
+
+####  陈词与芍药  
+##### 220#         楼主| 发表于 2023-1-30 01:04
+
+10小时通关了，真挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+最后，808/小薄荷/寇西嘉贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
