@@ -11506,3 +11506,11 @@ rnm花田
 星的现有操作确实是容易胡思乱想的，毕竟 ...</blockquote>
 三期生终审是三月底还是四月来着，公布还是杂志先的，难道要那天既公布人选又安排活动？三期生没歌，那428不就是公布个fmt之类的带新人咯。那二专之后live安排生放公布？捋不清了。
 
+
+*****
+
+####  稀勢のささ  
+##### 11509#       发表于 2023-1-29 20:12
+
+<blockquote>もう9人のWE WILL聴けなくなるかもしれないって话も今日闻いたの3回目くらい</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
