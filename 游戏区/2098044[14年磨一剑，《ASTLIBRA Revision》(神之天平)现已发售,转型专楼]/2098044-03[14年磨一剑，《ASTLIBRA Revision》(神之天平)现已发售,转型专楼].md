@@ -6682,3 +6682,26 @@ b站专栏搜神之天平</blockquote>
 城镇里魔女房间那个宝箱怎么打？看了各种攻略打不过魔女，最终五章结束练到40级终于正面打过了，拿到奖励后 ...</blockquote>
 监狱钥匙，主角入狱后就有了
 
+
+*****
+
+####  adw667  
+##### 3560#       发表于 2023-1-29 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526764&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-29 11:14</a>
+
+我带了消除和技能回血，感觉这两项经常冲突。如果我需要吃弹幕来回血，就应该不去消除弹幕。
+
+如果给个嘉 ...</blockquote>
+天平有缓慢回血词条，被动也有你的魔法自动减少时会回复相应数值生命的被动
+
+*****
+
+####  qderaaa  
+##### 3561#       发表于 2023-1-29 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59531684&amp;ptid=2098044" target="_blank">adw667 发表于 2023-1-29 17:04</a>
+
+天平有缓慢回血词条，被动也有你的魔法自动减少时会回复相应数值生命的被动 ...</blockquote>
+回血倒是好说，真正弹幕压制到无法吃药的场景不多。我比较纠结挨打掉能量，这个容易造成能量积攒不起来，被一些boss弹幕糊脸难以近身。
+
