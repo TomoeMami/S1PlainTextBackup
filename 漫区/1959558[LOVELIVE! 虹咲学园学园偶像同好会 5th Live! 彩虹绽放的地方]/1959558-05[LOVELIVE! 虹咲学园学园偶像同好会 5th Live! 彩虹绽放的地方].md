@@ -1920,3 +1920,11 @@ Ai's Episode
 详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
 <img src="https://p.sda1.dev/9/b95429454549c546cae43a0df9e7e5cf/img-16750292958081bf77d7fce22a1d40e36d456d039fc96911b692463066d89ca92180c87742610.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯莱塔墨丘利  
+##### 6944#       发表于 2023-1-30 06:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难不觉得是故意的
+
