@@ -1942,3 +1942,13 @@ xgp 手机云玩效果怎么样？</blockquote>
 弹反的性能比想象中还高，火山图的岩浆、轨道战的路牌，乃至精英怪的qte起手气浪都可以弹掉，想跳过qte阶段 ...</blockquote>
 无敌时间有个问题，就是无敌后格挡没判定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 193#       发表于 2023-1-29 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523141&amp;ptid=2116452" target="_blank">齿轮轴君 发表于 2023-1-28 23:52</a>
+红毛boss战完全get到了节奏游戏的爽点，把格挡相关的技能优先拉满让体验指数级上升，不过类似格挡后 ...</blockquote>
+重攻击蓄力可以配合拳套的长按援护重力波定怪之后用
+
