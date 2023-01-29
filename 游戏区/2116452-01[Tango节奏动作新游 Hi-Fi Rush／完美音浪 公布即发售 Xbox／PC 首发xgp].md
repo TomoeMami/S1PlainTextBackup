@@ -2099,3 +2099,11 @@ xgp送就直接下了玩，意外的不错。 今年再来两个这xgp就赚了�
 比较尴尬的是马卡龙的重力炮不带破盾效果，小薄荷的蓄力炮后期也能作为破盾主要手段，就是这个游戏的锁定 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">锁定太抽象了，我用夫妇合击的大招经常打空
 
+
+*****
+
+####  tureleona  
+##### 209#       发表于 2023-1-29 21:13
+
+BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
