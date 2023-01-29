@@ -12352,3 +12352,37 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 什么王决定战，而且还不是在youtube直播而是在自己的FC里做，不知道怎么想的
 
+
+*****
+
+####  holoan  
+##### 4138#         楼主| 发表于 2023-1-29 22:21
+
+<img src="https://img.saraba1st.com/forum/202301/29/222057ejoioufn7o9qoyz9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-29 22:20 上传
+
+……
+
+那个，夸在直播
+
+*****
+
+####  rs5621  
+##### 4139#       发表于 2023-1-29 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+6(J6698VNB49[%IBBB6_1AA.gif
+(803.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-29 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/222105xbau4mhgccc9m2aa.gif" referrerpolicy="no-referrer">
+

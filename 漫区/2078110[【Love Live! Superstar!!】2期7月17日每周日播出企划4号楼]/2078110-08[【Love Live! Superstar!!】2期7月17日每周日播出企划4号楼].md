@@ -11640,3 +11640,13 @@ rnm花田
 我觉得应该是快恢复了，就是不知道过去还挂不挂狗牌现在知道的就是只针对大陆过去的做核酸 ...</blockquote>
 估计是谈妥了。对等的政策下，应该是不挂牌的了。
 
+
+*****
+
+####  lj205  
+##### 11523#       发表于 2023-1-29 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59535367&amp;ptid=2078110" target="_blank">靡宜 发表于 2023-1-29 22:07</a>
+估计是谈妥了。对等的政策下，应该是不挂牌的了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了一眼那个指定核酸机构，我觉得还不是很乐观，不过还有3个月时间，我已经把4月的票都抽上了，希望到时一切正常吧
+
