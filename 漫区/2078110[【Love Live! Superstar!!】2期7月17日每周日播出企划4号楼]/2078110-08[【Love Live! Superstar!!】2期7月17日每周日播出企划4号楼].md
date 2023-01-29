@@ -11329,3 +11329,54 @@ rnm花田
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532912&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-29 18:42</a></blockquote>
 大**佩顿尚未好帅<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Enakina  
+##### 11492#       发表于 2023-1-29 19:03
+
+ 本帖最后由 Enakina 于 2023-1-29 19:07 编辑 
+
+二专接4th吧，老套路，4th办完能消停消停，再然后就该三期和三期生了
+居然是428公布吗，这个刻在dna的日期
+
+*****
+
+####  Piano-Forest  
+##### 11493#       发表于 2023-1-29 19:06
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+　　「Second Sparkle」
+
+　  オリジナル盘・フォト盘
+
+　　⭐️ジャケット公开⭐️
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+#Liella! 2ndアルバム
+
+2023年3月15日 発売
+
+ご予约をお忘れなく‼️
+
+▶️[https://www.lovelive-anime.jp/yu ... etail.php?p=01_1471](https://www.lovelive-anime.jp/yuigaoka/topics/detail.php?p=01_1471)
+<img src="https://p.sda1.dev/9/7531fb100c3d9330c5287882886f828e/20230129_190504.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/e53726bf41985476d24ad37d77c8b6bd/20230129_190517.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/2fe1737e65b4f873896a6ff73d862a8a/20230129_190519.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11494#       发表于 2023-1-29 19:07
+
+尤文图斯
+
+*****
+
+####  Kfly  
+##### 11495#       发表于 2023-1-29 19:09
+
+等等，又是428啊，正好选这天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
