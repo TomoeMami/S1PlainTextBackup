@@ -6640,3 +6640,13 @@ b站专栏搜神之天平</blockquote>
 
 这游戏到最后，宰相弟弟的坑、男主角长得像女子的坑是不是没填。
 
+
+*****
+
+####  otakun  
+##### 3556#       发表于 2023-1-29 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526781&amp;ptid=2098044" target="_blank">qderaaa 发表于 2023-1-29 11:15</a>
+这游戏到最后，宰相弟弟的坑、男主角长得像女子的坑是不是没填。</blockquote>
+个人理解是暗示主角是宰相弟弟，同样的长得像女人，同时还有对应宰相他妈那句“要找到弟弟，一起拯救世界”的话
+
