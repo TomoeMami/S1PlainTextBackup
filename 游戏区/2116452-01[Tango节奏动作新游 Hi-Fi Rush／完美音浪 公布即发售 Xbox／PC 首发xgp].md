@@ -2027,3 +2027,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 我喜欢小薄荷
 
+
+*****
+
+####  Sliurus  
+##### 202#       发表于 2023-1-29 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59531807&amp;ptid=2116452" target="_blank">Emmerich 发表于 2023-1-29 17:12</a>
+
+一周目最高难度初见武士怪被qte砍死30多次我佛了  说起来那些电磁屏障和盾牌哥 真就只能靠cd技能耗 ...</blockquote>
+格挡后的援助攻击能快速破盾
+

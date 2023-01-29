@@ -6716,3 +6716,22 @@ b站专栏搜神之天平</blockquote>
 回血倒是好说，真正弹幕压制到无法吃药的场景不多。我比较纠结挨打掉能量，这个容易造成能量积攒不起来， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">推荐使用大剑，大锤，长枪这类手长的武器，只要点上力拔千钧被动再把重量压到0攻速其实也不算慢，而且重武器单次命中回的能量更多。魔法可以常驻月光，虽然后期输出乏力但是便宜且性能不错
 
+
+*****
+
+####  valand  
+##### 3563#       发表于 2023-1-29 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59527158&amp;ptid=2098044" target="_blank">otakun 发表于 2023-1-29 11:38</a>
+个人理解是暗示主角是宰相弟弟，同样的长得像女人，同时还有对应宰相他妈那句“要找到弟弟，一起拯救世界 ...</blockquote>
+还有宰相明明是绿毛，他妈却和和主角一样是金毛
+
+*****
+
+####  白金口袋  
+##### 3564#       发表于 2023-1-29 17:40
+
+一周目通关，接下来准备新章
+
+给我印象最深的其实是大贤者那句“果然有手段，不愧是诓骗了老夫两个女儿的男人”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
