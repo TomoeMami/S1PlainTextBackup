@@ -2811,3 +2811,18 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 主角还没圣母病发作呢牧师怎么就开始念叨上了</blockquote>
 因为脚本在发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 262#       发表于 2023-1-29 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526692&amp;ptid=2076121" target="_blank">faxi 发表于 2023-1-29 11:10</a>
+
+松岗还是老问题，没抓住法修的特质，只往他擅长的方向配了，导致最后的形象往年轻人跑偏了。
+
+至于剧情部分 ...</blockquote>
+应该说跟马趴没区别吧  
+
+也不是黑龙哥 龙哥跟炫技这事也不沾边吧
+
