@@ -294,3 +294,15 @@ x9真的该退了吧，难道a队改走流量路线了？老a队粉心情复杂�
 
 NAVI现在simple要打自己舒服的位置，bit没脑子npl没枪法，只有perfecto当个人。电子哥开始指挥以后自己只能算半个人指挥得还特别僵硬
 
+
+*****
+
+####  dev2ce  
+##### 3123#       发表于 2023-1-29 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59524503&amp;ptid=1857369" target="_blank">andychen 发表于 2023-1-29 04:37</a>
+这电子哥怎么感觉越指挥越差了啊
+
+NAVI现在simple要打自己舒服的位置，bit没脑子npl没枪法，只有perfecto当 ...</blockquote>
+憨豆自从踢了Alex之后就接任指挥，已经三年了，还不是日常脑溢血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他从起源就在打了
+
