@@ -1947,3 +1947,14 @@ millie这个年度好活
 九埜日下部本来就是二期生里男女各自的top当然没问题啊，倒不如说把一期生的top放了一年压到最后才出道是 ...</blockquote>
 佐伯哥几个都被拉去当音声外援了应该是没问题，只是我对这个完全没发挥培养出的人际关系作用的出道组合不理解…
 
+
+*****
+
+####  撕叁  
+##### 18470#       发表于 2023-1-29 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59527318&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2023-1-29 11:50</a>
+
+millie这个年度好活</blockquote>
+变相说明vt常见话题中这个视频里不敢提的都是真的，比方说shulira<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
