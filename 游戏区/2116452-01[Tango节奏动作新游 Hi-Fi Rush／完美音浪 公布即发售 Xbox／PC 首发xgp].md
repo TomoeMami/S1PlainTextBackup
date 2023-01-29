@@ -1970,3 +1970,13 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rainwedell  
+##### 195#       发表于 2023-1-29 16:04
+
+昨晚困难稍微试了一下，前两关大概接近70%合拍。一进第三关开始猛死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
