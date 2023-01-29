@@ -141,3 +141,15 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 这玩意组装还有雷啊，确实山寨做工</blockquote>
 这真是抽奖了
 
+
+*****
+
+####  暗示我7酱  
+##### 2147#       发表于 2023-1-29 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59530286&amp;ptid=2015700" target="_blank">droople 发表于 2023-1-29 15:28</a>
+这真是抽奖了</blockquote>
+电源IC 不行，超过85℃就危险了，贴吧有几个是玩游戏快没电了后充电过热烧ic的
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

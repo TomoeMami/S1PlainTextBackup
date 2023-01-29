@@ -6735,3 +6735,16 @@ b站专栏搜神之天平</blockquote>
 
 给我印象最深的其实是大贤者那句“果然有手段，不愧是诓骗了老夫两个女儿的男人”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 3565#       发表于 2023-1-29 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532192&amp;ptid=2098044" target="_blank">白金口袋 发表于 2023-1-29 17:40</a>
+
+一周目通关，接下来准备新章
+
+给我印象最深的其实是大贤者那句“果然有手段，不愧是诓骗了老夫两个女儿的男 ...</blockquote>
+没证据说明黑与白是亲姐妹和大贤者女儿（见过姐妹头发颜色差那么多的吗？），至少从前几章完全看不出来有这个伏笔的意思，我觉得大贤者自己才是LSP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
