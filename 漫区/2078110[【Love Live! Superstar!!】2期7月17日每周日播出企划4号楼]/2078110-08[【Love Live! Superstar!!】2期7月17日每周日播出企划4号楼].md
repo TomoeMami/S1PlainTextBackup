@@ -11707,3 +11707,29 @@ rnm花田
 
 说到底还是家底大随便挥霍，财团B不思进取越做越倒退，无论是LL还是高达<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saya1892  
+##### 11530#       发表于 2023-1-29 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">きせかえリエラ简直可香人狂欢
+
+而且这个卡农的动作，已经能想到可可是什么动作了
+
+*****
+
+####  lj205  
+##### 11531#       发表于 2023-1-29 23:34
+
+对话硬是让土妹上，肉眼可见的不甘心是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 11532#       发表于 2023-1-29 23:40
+
+咋不让芽衣上呢？毕竟是设定上的从kuka时代追过来的老粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

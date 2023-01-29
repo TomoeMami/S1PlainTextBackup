@@ -199,3 +199,13 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 成功了吗
 
+
+*****
+
+####  xrxtzz  
+##### 2152#       发表于 2023-1-29 23:36
+
+海淘了个官方的底座，接在电视上试了下串流，效果有点爽<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">2k分辨率基本没啥延迟
+
+通过docking station接电视后确实有掌机主机二合一的感觉了，前端体验没话说，串流体验也比之前moonlight和nvidia shield都好
+

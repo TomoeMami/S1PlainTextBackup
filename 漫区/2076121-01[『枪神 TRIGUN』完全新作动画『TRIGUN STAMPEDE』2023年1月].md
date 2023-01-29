@@ -2826,3 +2826,16 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 也不是黑龙哥 龙哥跟炫技这事也不沾边吧
 
+
+*****
+
+####  宝月夜宵  
+##### 263#       发表于 2023-1-29 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59314899&amp;ptid=2076121" target="_blank">saturnus 发表于 2023-1-12 13:19</a>
+
+trigun的精神内核和Trinity blood太相似了，从年份上看应该是后者借鉴了不少前者的东西，比如男主都是百年 ...</blockquote>
+亚伯还有个人皇妹妹呀
+
+一生的遗憾，圣魔之血的时髦度加上现在资源不知有多屌
+
