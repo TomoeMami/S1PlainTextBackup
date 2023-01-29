@@ -4925,3 +4925,11 @@ B站港澳台：
 
 而且这回比晓轨还聪明一点，尽量让原创人物和原作人物减少交集，不然就会像晓轨那样运营了三年后被社长打为平行世界。
 
+
+*****
+
+####  Aeons  
+##### 568#       发表于 2023-1-29 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实没提过，近藤说大公侄女是不是lif还一定，只是有这么个侄女
+
