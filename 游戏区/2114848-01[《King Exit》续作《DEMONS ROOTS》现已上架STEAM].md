@@ -58,3 +58,15 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重新快速过了一下KE的剧情，发现古伊奈你个罪魁祸首天天说风凉话，选择放弃未来的不就是你嘛
 
+
+*****
+
+####  子夜微雪  
+##### 106#       发表于 2023-1-29 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526219&amp;ptid=2114848" target="_blank">突发性哮喘病患 发表于 2023-1-29 10:42</a>
+重新快速过了一下KE的剧情，发现古伊奈你个罪魁祸首天天说风凉话，选择放弃未来的不就是你嘛 ...</blockquote>
+本来就没那种东西，4次跟洋葱通敌被无视，临了还说啥未来不未来的都洗洗睡吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
