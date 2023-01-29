@@ -4854,3 +4854,13 @@ B站港澳台：
  ...</blockquote>
 土地再生实验成功了在重建盐化的土地了当然独立了
 
+
+*****
+
+####  kenqqex  
+##### 561#       发表于 2023-1-29 10:28
+
+如果轨迹世界观的一般兵和中等精英连回路都买不起的话我们玩的十几作里面的角色都是什么英雄好汉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+都是毁天灭地的牛逼回路
+

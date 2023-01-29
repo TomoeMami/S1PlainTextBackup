@@ -306,3 +306,11 @@ NAVI现在simple要打自己舒服的位置，bit没脑子npl没枪法，只有p
 NAVI现在simple要打自己舒服的位置，bit没脑子npl没枪法，只有perfecto当 ...</blockquote>
 憨豆自从踢了Alex之后就接任指挥，已经三年了，还不是日常脑溢血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他从起源就在打了
 
+
+*****
+
+####  那由  
+##### 3124#       发表于 2023-1-29 10:23
+
+navi一天不解放电，一天都不用看好
+
