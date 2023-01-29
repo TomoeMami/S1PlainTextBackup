@@ -11699,3 +11699,11 @@ rnm花田
 有时候难免在想，究竟是观念性问题多一点，还是技术性问题多一点，想了半天只能说互为表里，一边轻佻计划纲举目张，一边无心过失集腋成裘
 还是过得太舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11529#       发表于 2023-1-29 23:28
+
+说到底还是家底大随便挥霍，财团B不思进取越做越倒退，无论是LL还是高达<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
