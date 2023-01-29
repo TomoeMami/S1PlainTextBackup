@@ -750,3 +750,73 @@ JRPG小白先入为主导致的马太效应。根本不了解同期别的游戏�
 
 MD的光明力量2古代封印没上榜，看来过时了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电磁炮233  
+##### 71#         楼主| 发表于 2023-1-30 01:33
+
+ 本帖最后由 电磁炮233 于 2023-1-30 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537721&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:21</a>
+我就是提个老游戏评分的马太效应的看法，你急什么急。不然我怎么回你这楼，啊我喜欢的XXX上榜了耶，不会吧 ...</blockquote>
+不是从你暴论白皮不懂16位JRPG开始歪楼的？
+然而事实上就你提的那几个游戏，这网站上都有人玩过，而且打分人数都比豆瓣多，我不知道你这个结论是怎么得出来的
+
+<img src="https://img.saraba1st.com/forum/202301/30/013647hxzxxlhkxemqjd2t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230130_013450_com.huawei.browser_edit_471554971368148.jpg</strong> (318.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:36 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/013647s9u9uieugg0kx6pu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230130_013556_com.huawei.browser_edit_471598420043141.jpg</strong> (330.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:36 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/013315z7m7ij874v0f50f7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230130_013008_com.huawei.browser_edit_471401936393171.jpg</strong> (369.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:33 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/013315kefkk6fzvfnknvem.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230130_013039_com.huawei.browser_edit_471389569731194.jpg</strong> (381.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 01:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绝对防御将军  
+##### 72#       发表于 2023-1-30 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537692&amp;ptid=2116976" target="_blank">绝对防御将军 发表于 2023-1-30 01:17</a>
+
+所以我怎么一步步说到16位游戏的？你是不是不看前面楼层？</blockquote>
+再补充两点吧。
+
+第一。
+
+从我这个逻辑里，也能推出来：销量榜游戏有销量榜游戏的高分法，婆罗门游戏有婆罗门游戏的高分法。都有各自的马太效应。可能被炒得失真的高。
+
+鲁多拉秘宝我拿来对线的时候被单独点名了，但鲁多拉秘宝就有那么好吗？就凭编编咒语，有点新意？不见得吧。
+
+豆腐白菜各有所爱的东西真有什么客观优劣吗？
+
+第二。 <blockquote>拿模拟器跑ROM就知道你吹的是真是假了</blockquote>是不太成立的。时间成本太高昂了。别说补一遍，云一遍的时间成本都太高昂了。年轻人没兴趣，社会人没空。
+
+如果有相应游戏的吹子跳脸，可能想去试试证伪的行动力还会稍微高点。纯粹因为在排行榜上评分高，就去玩一个自己毫无情结的主机上，大概率玩了也不会给自己带来什么惊世骇俗的体验的游戏，这种人十万个里面能有一个吗？
+
+有的那个，也大概率是我前面说的，<blockquote>因为会去补冷门主机游戏的王牌游戏的人，独辟蹊径，背时而动，也不愿意将自己的探索说成是无用功。</blockquote>这种人。
+
