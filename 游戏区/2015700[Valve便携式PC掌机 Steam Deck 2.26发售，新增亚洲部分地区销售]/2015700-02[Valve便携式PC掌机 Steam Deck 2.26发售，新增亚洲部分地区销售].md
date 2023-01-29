@@ -128,3 +128,16 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 问一下steam deck的游戏统计时间是不是有问题啊
 玩了十几个小时结果看电脑上怎么只有2小时
 
+
+*****
+
+####  droople  
+##### 2146#       发表于 2023-1-29 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59529095&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-29 14:05</a>
+
+https://tieba.baidu.com/p/8212928359?see_lz=0
+
+这玩意组装还有雷啊，确实山寨做工</blockquote>
+这真是抽奖了
+

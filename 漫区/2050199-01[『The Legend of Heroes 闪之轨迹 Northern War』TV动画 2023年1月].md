@@ -4933,3 +4933,13 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实没提过，近藤说大公侄女是不是lif还一定，只是有这么个侄女
 
+
+*****
+
+####  上海王厂长  
+##### 569#       发表于 2023-1-29 15:30
+
+<blockquote>镜hinata 发表于 2023-1-28 00:46
+看这个的观众不就是想看看动画的旧7新7,在座的各位有多少真的冲着看这主角4人组来的 ...</blockquote>
+我啊，想看空零碧的故人出场
+
