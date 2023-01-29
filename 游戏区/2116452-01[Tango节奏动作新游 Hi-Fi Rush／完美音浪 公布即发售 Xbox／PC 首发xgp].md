@@ -1900,3 +1900,15 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 一部分媒体给已经出了<img src="https://p.sda1.dev/9/b96ebbd830425804f2b9baa93ae2ea7c/CMP_20230129082121125.jpg" referrerpolicy="no-referrer">还有mc4家88分
 
+
+*****
+
+####  陈词与芍药  
+##### 189#         楼主| 发表于 2023-1-29 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59524827&amp;ptid=2116452" target="_blank">BK10 发表于 2023-1-28 19:22</a>
+一部分媒体给已经出了还有mc4家88分</blockquote>
+草，mc终于凑够4个媒体出分了么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

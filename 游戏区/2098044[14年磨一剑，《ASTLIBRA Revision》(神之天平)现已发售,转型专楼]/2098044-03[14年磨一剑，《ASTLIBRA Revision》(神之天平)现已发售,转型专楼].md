@@ -6578,3 +6578,14 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  adw667  
+##### 3550#       发表于 2023-1-29 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523798&amp;ptid=2098044" target="_blank">sdbone 发表于 2023-1-29 00:55</a>
+
+游戏在新章之前的数值平衡还算合理，日文wiki还是应该看看，不然都不知道弓弩之类的计算伤害看魔力，升级加 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都没想过去用指令拳，太快了反而不爽，还是互相刮痧有意思
+
