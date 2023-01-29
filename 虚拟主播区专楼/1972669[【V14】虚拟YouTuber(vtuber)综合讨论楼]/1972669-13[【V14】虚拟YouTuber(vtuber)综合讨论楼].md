@@ -1974,3 +1974,13 @@ millie这个年度好活</blockquote>
 
 语C聊天室加强到4chan匿名版，属于下了猛药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lhawp  
+##### 18473#       发表于 2023-1-29 19:58
+
+EN是真玩得开啊……
+
+有没有人提供一下前情提要？
+
