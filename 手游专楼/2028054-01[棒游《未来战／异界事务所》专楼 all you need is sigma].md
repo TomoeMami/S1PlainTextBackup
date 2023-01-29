@@ -91,3 +91,13 @@ T7有钱有肝（挂）太强了 潜力无限的 黑套是给穷人保底的
 
 没有原批的命得了原批的病，傻批游戏再见<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heta261  
+##### 831#       发表于 2023-1-29 12:56
+
+怎么加命座了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

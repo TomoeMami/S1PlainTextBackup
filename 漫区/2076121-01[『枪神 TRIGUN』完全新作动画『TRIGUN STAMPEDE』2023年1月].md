@@ -2773,3 +2773,13 @@ tnnd，你知道漫画原作评价高还不去看漫画？还要继续看这魔�
 
 动画不是只有画面好看就可以的，不然就变成了变形金刚3了，橘子社只会炫技的做法和中山龙根本没分别
 
+
+*****
+
+####  有钱多买小人  
+##### 258#       发表于 2023-1-29 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523825&amp;ptid=2076121" target="_blank">charlespfan 发表于 2023-1-29 00:59</a>
+笑死，还特意请来配老版Vash的 小野坂昌也 来客串ラジオDJ（广播DJ），看看新版松冈配的什么玩意，松冈你脸 ...</blockquote>
+我现在很庆幸没有找老班底来配，这样可以完全割裂，不会影响我回忆老版和漫画<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
