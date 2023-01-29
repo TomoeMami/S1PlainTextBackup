@@ -2332,3 +2332,13 @@ Hi-Fi Rush早前泄露的概念图，那会还以为是科幻射击
 
 简直是可以捏脸的游戏的默认造型。。。。。。
 
+
+*****
+
+####  littlezoo  
+##### 226#       发表于 2023-1-30 07:04
+
+BOSS还是个JOJO饭
+
+<img src="https://s1.ax1x.com/2023/01/30/pSdrYU1.jpg" referrerpolicy="no-referrer">
+
