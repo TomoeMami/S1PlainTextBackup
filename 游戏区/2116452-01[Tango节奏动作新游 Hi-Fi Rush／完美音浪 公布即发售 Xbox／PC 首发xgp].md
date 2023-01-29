@@ -1980,3 +1980,20 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  crosz1985  
+##### 196#       发表于 2023-1-29 16:37
+
+这游戏只卖30刀属实大善人了，明明是60刀体量的游戏
+
+*****
+
+####  BallanceHZ  
+##### 197#       发表于 2023-1-29 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59530464&amp;ptid=2116452" target="_blank">Rowen233 发表于 2023-1-29 15:40</a>
+早期泄漏图</blockquote>
+这泄漏图完全无法和成品关联<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
