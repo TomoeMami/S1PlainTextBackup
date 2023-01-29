@@ -6663,3 +6663,22 @@ b站专栏搜神之天平</blockquote>
 
 然后新章就会以一种完全不同的性质出现……就是，“啊啊啊啊啊啊终于让我逮到你们了全都去死吧！！！！”
 
+
+*****
+
+####  巭孬嫑夯昆  
+##### 3558#       发表于 2023-1-29 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520303&amp;ptid=2098044" target="_blank">浅井惠 发表于 2023-1-28 20:31</a>
+太恶心了，本来之前玩着体验都很好，结果打到第五章突然告诉我白死了，一查才发现，居然要进城前选不带她， ...</blockquote>
+厉害了，当时选的时候故意逗逗她以为还能选，结果直接赖那了，还以为选错了呢，打算以后重新读档的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巭孬嫑夯昆  
+##### 3559#       发表于 2023-1-29 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59487760&amp;ptid=2098044" target="_blank">sigh 发表于 2023-1-26 12:32</a>
+城镇里魔女房间那个宝箱怎么打？看了各种攻略打不过魔女，最终五章结束练到40级终于正面打过了，拿到奖励后 ...</blockquote>
+监狱钥匙，主角入狱后就有了
+
