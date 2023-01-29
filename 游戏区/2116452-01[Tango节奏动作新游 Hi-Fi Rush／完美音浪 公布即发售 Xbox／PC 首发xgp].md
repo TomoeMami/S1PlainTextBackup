@@ -2058,3 +2058,14 @@ xgp 手机云玩效果怎么样？</blockquote>
 格挡后的援助攻击能快速破盾</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嗯后来多看了几眼商店整明白了
 
+
+*****
+
+####  Sliurus  
+##### 205#       发表于 2023-1-29 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532934&amp;ptid=2116452" target="_blank">Emmerich 发表于 2023-1-29 18:44</a>
+
+嗯后来多看了几眼商店整明白了</blockquote>
+比较尴尬的是马卡龙的重力炮不带破盾效果，小薄荷的蓄力炮后期也能作为破盾主要手段，就是这个游戏的锁定有些抽象
+

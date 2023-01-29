@@ -12140,3 +12140,13 @@ N E W
 
 你的信用！！！！！！！！！！！
 
+
+*****
+
+####  rs5621  
+##### 4116#       发表于 2023-1-29 19:29
+
+摄像头怎么还关了啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
