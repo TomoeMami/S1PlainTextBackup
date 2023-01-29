@@ -153,3 +153,16 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  droople  
+##### 2148#       发表于 2023-1-29 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532528&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-29 18:07</a>
+
+电源IC 不行，超过85℃就危险了，贴吧有几个是玩游戏快没电了后充电过热烧ic的
+
+—— 来自 Xiaomi M2007J ...</blockquote>
+改散热可以吗
+
