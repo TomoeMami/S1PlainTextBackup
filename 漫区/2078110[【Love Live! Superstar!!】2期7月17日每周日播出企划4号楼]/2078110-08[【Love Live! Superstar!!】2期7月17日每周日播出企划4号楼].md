@@ -11765,3 +11765,31 @@ rnm花田
 
 还是保持观点，动画是硬件，“没硬件的帮助你破解个屁”。
 
+
+*****
+
+####  稀勢のささ  
+##### 11536#       发表于 2023-1-30 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能借到还两说呢，一个个的MC在聊蛋推也在聊蛋，我看背后有人真的急了
+
+*****
+
+####  nufawneafg  
+##### 11537#       发表于 2023-1-30 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536970&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-29 23:56</a>
+现在这叫吃老本吗，烧老本还差不多。
+
+靠着解禁出声的东风星运营怕是又要沾沾自喜我没问题了。
+
+还是保持观点 ...</blockquote>
+这不在搞皮套人了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 11538#       发表于 2023-1-30 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四个团我想想都觉得呵呵
+
