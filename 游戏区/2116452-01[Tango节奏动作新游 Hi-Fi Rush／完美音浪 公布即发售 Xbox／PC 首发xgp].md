@@ -1912,3 +1912,11 @@ xgp 手机云玩效果怎么样？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 190#       发表于 2023-1-29 09:57
+
+我现在都怀疑是不是杯赛故意裹挟媒体了，反正关系不好，我又对自己游戏有信心，干脆直接放出来，你们媒体就看着steam98好评mc92分自己想办法吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
