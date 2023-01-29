@@ -6778,3 +6778,21 @@ b站专栏搜神之天平</blockquote>
 好像挨打不会掉能量啊，掉能量是长时间没有普攻，会自然衰减。要消弹的话，需要常驻冷弹，72消耗。本篇后 ...</blockquote>
 挨打掉能量的盲猜一个装了自动格挡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mlfans  
+##### 3569#       发表于 2023-1-30 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59520679&amp;ptid=2098044" target="_blank">浅井惠 发表于 2023-1-28 21:04</a>
+如果出于剧情塑造需要出现的人物牺牲剧情我是可以理解的，比如3章末尾黑的死，我是以为真死了也没太在意 ...</blockquote>
+其实你对这游戏的理解有问题，倒不如说白这次提前死去是非常贴合这游戏意境的。
+
+反而白不死才算是个隐藏福利，在剧情上根本没啥推动作用不说，甚至可以说是负面作用。如果真要追求剧情上的通顺性反而应该是提前让白死掉。
+
+作为打通游戏的玩家，我现在是后悔第五章还去读档救了白的，少了很多对游戏上的感受。
+
+当然你老兄为了几把玩也没错，毕竟如果不是打通整个游戏谁会愿意让个可爱妹子提前挂掉呢。
+
+—— 来自 vivo V2254A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

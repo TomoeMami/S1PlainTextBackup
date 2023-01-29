@@ -2254,3 +2254,81 @@ BOSS战真爽啊，有种玩节奏天国的感觉，蔻西嘉夹死我<img src="
 剧情就是王道少年漫，就是卡尔的 ...</blockquote>
 二周目会直接继承全部获得的能力和技能，你勾爪会直接上他脸的，攻击效率比等他手落地高多了（而且因为招式设置所以你如果保持浮空攻击的话基本上他碰都碰不到你）。
 
+
+*****
+
+####  貓血発動機  
+##### 223#       发表于 2023-1-30 02:03
+
+最后结局颇有一种在百合之间当灯泡的感觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 224#         楼主| 发表于 2023-1-30 02:08
+
+ 本帖最后由 陈词与芍药 于 2023-1-29 13:10 编辑 
+
+Hi-Fi Rush早前泄露的概念图，那会还以为是科幻射击
+
+<img src="https://img.saraba1st.com/forum/202301/29/130803crcd6j8fmmej8dm6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6525.JPG</strong> (117.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/130803d8e50oovv88sss5f.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6526.JPG</strong> (178.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/130803j3gkwklxe0tj1zx0.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6527.JPG</strong> (98.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/130803l5r2b25sl8fe2rlz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6528.JPG</strong> (933.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/130804zgpssp8vsggso2ss.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6529.JPG</strong> (426.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202301/29/131002jxxi1vfop4pxliif.jpg" referrerpolicy="no-referrer">
+
+<strong>91A4DF0F-7417-421B-A133-6EDCD28BAF41.jpg</strong> (369.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 02:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  轮太  
+##### 225#       发表于 2023-1-30 02:26
+
+目前最不满的就是男主的那张脸。。。。。
+
+简直是可以捏脸的游戏的默认造型。。。。。。
+
