@@ -2419,3 +2419,22 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 这游戏能反响这么好感觉还是因为尼哥之地的衬托</blockquote>
 本身有一定实力 再加上魔咒之地全方面反向衬托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lazycat233  
+##### 233#       发表于 2023-1-30 09:45
+
+主要是没宣发直接上架吧，没有任何预期，直接上手，就算有一些小问题但是整体体验够好。如果是宣传了好久，预期高的话一些小问题都会放大降低评价
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Rowen233  
+##### 234#       发表于 2023-1-30 09:47
+
+别给古川学会了 以后直面会不开了 一律推特宣发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

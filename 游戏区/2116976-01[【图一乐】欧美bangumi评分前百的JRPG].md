@@ -1220,3 +1220,11 @@ MD也不是冷门主机。但对于RPG来说，MD就是冷门主机。史克威�
 
 不得不说传颂之物在欧美比在国内要更有受众，从久远的评价就能看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vmon  
+##### 103#       发表于 2023-1-30 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抱歉如龙7我是真的无法理解。。。。。
+
