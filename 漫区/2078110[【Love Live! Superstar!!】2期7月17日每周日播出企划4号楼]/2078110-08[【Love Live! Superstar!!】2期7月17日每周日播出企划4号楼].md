@@ -12517,3 +12517,13 @@ payton尚未开通tiktok https://www.bilibili.com/video/BV1s24y1674S/?spm_id_fro
 
 毕竟……sma……
 
+
+*****
+
+####  starring  
+##### 11607#       发表于 2023-1-31 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59550197&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-1-30 23:44</a>
+禁了那么久么，记得鲤鱼好像去年儿童节前夕就可以提队友了，那晚提了好多人，青山的更早。 ...</blockquote>
+虽然没明确说是禁止事项，但是去年的节目即使弹幕有问到相关的内容，一次也没回答或者用别的工作指代。今天开场就说鲤鱼教她说新年快乐
+

@@ -825,3 +825,16 @@
 明天要是没所长卡池，就要化身月黑了</blockquote>
 为什么不奶所长白送？隔壁街机都白送5星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 4500#       发表于 2023-1-31 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549812&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-30 23:14</a>
+
+为什么不奶所长白送？隔壁&amp;# ...</blockquote>
+圣诞新年都没任何表示，最低限度都来一张4星/5星自选普通角的卷吧...
+
+上次送自选卷是何时?
+
