@@ -354,3 +354,13 @@ navi一天不解放电，一天都不用看好
 
 瓦罗兰特玩机器要上线了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  20002000  
+##### 3129#       发表于 2023-1-30 08:14
+
+为啥我打ak总是三枪88伤害 然后被打死<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+— from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
