@@ -1268,3 +1268,22 @@ DQ、暗黑编年史、空轨、龙战士3、4、LAL、伊苏8、马路RPG3、�
 —— 来自 S1Fun ...</blockquote>
 里面大量迪士尼经典动画素材吧
 
+
+*****
+
+####  5353  
+##### 108#       发表于 2023-1-30 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59540289&amp;ptid=2116976" target="_blank">wgoenitz 发表于 2023-1-30 10:49</a>
+
+里面大量迪士尼经典动画素材吧</blockquote>
+这只是这个系列一直以来的特点和卖点.
+
+主要原因还是在于游戏本身.
+
+之前为了玩三代,去补课了一下这个系列.
+
+基本上是理解了为什么这个系列拥趸很多.
+
+用最简单的人物讲最复杂的故事.
+

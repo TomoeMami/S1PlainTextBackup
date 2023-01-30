@@ -2477,3 +2477,14 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 
 揍社长像那个游戏内成就的日文名是强韧!无敌!社长様ん!，这游戏梗是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真实之影  
+##### 239#       发表于 2023-1-30 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59538377&amp;ptid=2116452" target="_blank">littlezoo 发表于 2023-1-30 07:04</a>
+
+BOSS还是个JOJO饭</blockquote>
+赞佐一开始在视频通话里就在摆jojo立了，而且见他的时候还说了月下里德古拉的经典台词
+

@@ -2850,3 +2850,11 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 —— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  UNacher  
+##### 265#       发表于 2023-1-30 10:54
+
+新版这张衰仔脸说话真的是没啥说服力，还有最新一集牧师打扮得也太像韩寒了
+
