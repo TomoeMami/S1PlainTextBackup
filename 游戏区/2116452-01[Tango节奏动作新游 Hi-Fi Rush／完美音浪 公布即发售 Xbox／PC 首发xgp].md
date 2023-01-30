@@ -2607,3 +2607,11 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 Xiaomi M2012K11AG, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Rowen233  
+##### 251#       发表于 2023-1-30 14:17
+
+MC 86<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也还行
+
