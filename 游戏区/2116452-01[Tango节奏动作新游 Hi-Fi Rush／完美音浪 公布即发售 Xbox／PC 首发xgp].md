@@ -2594,3 +2594,16 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 也可能这种画风的美国动画看过不少，顶着这种脸说日语很违和。英配除 ...</blockquote>
 英配我玩了一会觉得不对味就改成了日配，808英配是怎么叫的，也是やおや吗？
 
+
+*****
+
+####  indtability  
+##### 250#       发表于 2023-1-30 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542371&amp;ptid=2116452" target="_blank">tureleona 发表于 2023-1-30 13:21</a>
+英配我玩了一会觉得不对味就改成了日配，808英配是怎么叫的，也是やおや吗？ ...</blockquote>
+我云了会英配和日配，日配确实不错，喜欢日配的人用起来应该不至于感觉到违和，但口型确确实实是英配的口型，都不用看多久，chai第一句yep那个嘴形就是日语里不可能出现的嘴形，还有下一句future rockstar，都显然是英配口型。
+游戏里有很多日式元素，不过角色的性格对话情节，我感觉都挺美式的，像我对英配日配没有偏好，这部作品会更喜欢英配一点，另外猫猫叫eight o eight(エトエ?)，看起来好像是不如日配好听哈哈，不过游戏里听起来还不错。
+
+—— 来自 Xiaomi M2012K11AG, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
