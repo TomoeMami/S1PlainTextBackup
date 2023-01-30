@@ -217,3 +217,26 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 终于搞定扳机键手感便秘的问题了，原来要打磨后盖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 2154#       发表于 2023-1-30 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59454471&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-23 10:07</a>
+你们L2和R2扳机键手感一样吗？</blockquote>
+不一样。左边涩一点，右边顺滑一点
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  脸宽  
+##### 2155#       发表于 2023-1-30 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59540189&amp;ptid=2015700" target="_blank">mggr 发表于 2023-1-30 10:40</a>
+终于搞定扳机键手感便秘的问题了，原来要打磨后盖</blockquote>
+有教程吗
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

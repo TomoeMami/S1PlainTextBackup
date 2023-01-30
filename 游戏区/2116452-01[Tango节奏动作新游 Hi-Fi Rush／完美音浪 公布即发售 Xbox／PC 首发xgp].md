@@ -2529,3 +2529,23 @@ BOSS还是个JOJO饭</blockquote>
  有没有人讲下日配和英配哪个是初设啊？看起来是欧美画风所以用了英配玩，结果退出来发现桌面上的快捷方式是 ...</blockquote>
 嘴型是英配，日本元素应该是上世纪科幻作品的醍醐味，不过里面日本acg要素不少，所以也可能是制作人喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷途lite  
+##### 244#       发表于 2023-1-30 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59541073&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-30 11:37</a>
+嘴型是英配，日本元素应该是上世纪科幻作品的醍醐味，不过里面日本acg要素不少，所以也可能是制作人喜欢[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">谢谢，那我继续用英配玩了
+
+*****
+
+####  Rowen233  
+##### 245#       发表于 2023-1-30 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59540999&amp;ptid=2116452" target="_blank">迷途lite 发表于 2023-1-30 11:33</a>
+
+有没有人讲下日配和英配哪个是初设啊？看起来是欧美画风所以用了英配玩，结果退出来发现桌面上的快捷方式是 ...</blockquote>
+HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
