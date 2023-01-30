@@ -803,3 +803,14 @@
 所长最快也要周年或者下个元旦吧，当然欢迎螺旋社打我脸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破游戏还能有下个元旦？
 
+
+*****
+
+####  sosgame67  
+##### 4498#       发表于 2023-1-30 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548955&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-30 22:01</a>
+
+这破游戏还能有下个元旦&amp;#x ...</blockquote>
+躺平收益这么高，拖戏功夫那么强，2.0完结了也能继续拖啦<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
