@@ -2957,3 +2957,11 @@ tango某种程度也算卡普空青训营出来的吧<img src="https://static.sa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  loneblade  
+##### 283#       发表于 2023-1-30 21:23
+
+主设计师就是四叶草老人 肯定有卡普空味啊
+
