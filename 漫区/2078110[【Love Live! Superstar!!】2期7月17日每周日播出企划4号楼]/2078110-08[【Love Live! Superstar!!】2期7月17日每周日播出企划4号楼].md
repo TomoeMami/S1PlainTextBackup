@@ -12174,3 +12174,56 @@ non这像是被事务所给教育了，今天赶紧发了个文
 还能看别人拉黑谁吗，突然有趣起来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是在这MC之后看了看5厕才知道的，去年的事了，被拉黑的几个B攻击性也确实很强
 
+
+*****
+
+####  stygian  
+##### 11570#       发表于 2023-1-30 20:14
+
+铃原就那几个吧，去年的事，有一个逼一直挺跳的
+
+*****
+
+####  P02  
+##### 11571#       发表于 2023-1-30 20:16
+
+<blockquote>稀勢のささ 发表于 2023-1-30 19:54
+抗压确实不咋滴，推特好像拉黑了不少人（然后被拉黑的人更起劲了）</blockquote>
+拉黑？谁拉黑谁
+
+*****
+
+####  ruffian  
+##### 11572#       发表于 2023-1-30 20:17
+
+那不是活该吗不拉黑留着过年？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+kuma不开推是对的，据说emo跟鱼一样也是个自搜狂魔，我就佩服这些心大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 11573#       发表于 2023-1-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547808&amp;ptid=2078110" target="_blank">P02 发表于 2023-1-30 20:16</a>
+
+拉黑？谁拉黑谁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是铃原拉黑小黑子啊
+
+*****
+
+####  仟音一心  
+##### 11574#       发表于 2023-1-30 20:20
+
+三巡花篮统计
+
+<img src="https://img.saraba1st.com/forum/202301/30/202003a5pvm400vpbtdjea.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A78C8023-39E9-4AD8-953F-4B80990D32FD.jpeg</strong> (95.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-1-30 20:20 上传
+
