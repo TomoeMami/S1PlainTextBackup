@@ -2980,3 +2980,20 @@ tango某种程度也算卡普空青训营出来的吧<img src="https://static.sa
 
 玩了一下 感觉像是ps2游戏 便利性功能挺现代，换言之ps2时代叼
 
+
+*****
+
+####  彩虹肥宅  
+##### 286#       发表于 2023-1-30 21:51
+
+这游戏的最后boss就是大便吧，机制解法，浮游炮藏伤害，如果这游戏之前能打9分，这个最终boss我倒扣2分。
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  harmonytree  
+##### 287#       发表于 2023-1-30 22:01
+
+同意，最后boss第二阶段有点便秘
+

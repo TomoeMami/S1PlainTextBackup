@@ -792,3 +792,14 @@
 
 所长最快也要周年或者下个元旦吧，当然欢迎螺旋社打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 4497#       发表于 2023-1-30 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548727&amp;ptid=2084912" target="_blank">sosgame67 发表于 2023-1-30 21:39</a>
+
+所长最快也要周年或者下个元旦吧，当然欢迎螺旋社打我脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破游戏还能有下个元旦？
+

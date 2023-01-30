@@ -12436,3 +12436,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4145#         楼主| 发表于 2023-1-30 21:53
+
+据说3天2夜，包括今天
+
+大概周三回来
+
