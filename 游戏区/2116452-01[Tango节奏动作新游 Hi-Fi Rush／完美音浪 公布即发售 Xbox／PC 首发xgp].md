@@ -2745,3 +2745,18 @@ qte太多才说明是音游啊
 带电的拳头虽然没法格挡，但是闪避也能稳住评价 ...</blockquote>
 闪避也涨就回去再试试看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，前面有几次以为带电拳能格挡，还以为是没按中
 
+
+*****
+
+####  真实之影  
+##### 264#       发表于 2023-1-30 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543980&amp;ptid=2116452" target="_blank">zqzs 发表于 2023-1-30 15:07</a>
+
+刚打完了蕾卡，boss投技给的巨帅，太爽了这游戏。
+
+不知道三上真司这作参与了多少。萌百的注释给了个只是挂 ...</blockquote>
+游戏开头就有啊，制作人
+
+导演是恶灵1的DLC和恶灵2的导演
+
