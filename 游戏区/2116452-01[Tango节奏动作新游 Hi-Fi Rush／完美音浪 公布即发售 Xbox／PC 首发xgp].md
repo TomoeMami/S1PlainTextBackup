@@ -2615,3 +2615,36 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 
 MC 86<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也还行
 
+
+*****
+
+####  tureleona  
+##### 252#       发表于 2023-1-30 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542769&amp;ptid=2116452" target="_blank">indtability 发表于 2023-1-30 13:48</a>
+
+我云了会英配和日配，日配确实不错，喜欢日配的人用起来应该不至于感觉到违和，但口型确确实实是英配的口 ...</blockquote>
+我回复那会正好在玩第十关，开头的播片日语口型除了808最后一句几乎全能对上，刚看了看英配确实应该是原配，不过日配能做到这样对口型真的尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 253#       发表于 2023-1-30 14:26
+
+打到现在，还是有些缺点：
+
+1.后期战斗太乱了，根本看不清发生了什么
+
+2.有些关卡的基底的bgm节奏不明显，爽不起来
+
+3.糟糕的锁定 
+
+4.qte太多了。
+
+*****
+
+####  Rowen233  
+##### 254#       发表于 2023-1-30 14:30
+
+QTE确实有点多了 加上下野的声音 我有种玩xb2的错觉 就差个喊麦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

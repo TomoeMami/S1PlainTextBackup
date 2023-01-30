@@ -1421,3 +1421,24 @@ caligula2和蓝反帝为什么能有这么高分是我从注册到现在最疑�
 
 2023-1-30 14:07 上传
 
+
+*****
+
+####  灰谷真实  
+##### 120#       发表于 2023-1-30 14:23
+
+二白这种玩意怎么排到那么高的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Guildenstern  
+##### 121#       发表于 2023-1-30 14:29
+
+<blockquote>引用第119楼灰谷真实于2023-01-30 14:23发表的  :
+
+二白这种玩意怎么排到那么高的。</blockquote>
+二白能不能排历史前十暂且不提，国内对这游戏这么大敌意是为啥呢？我玩的时候没感觉有什么雷点。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
