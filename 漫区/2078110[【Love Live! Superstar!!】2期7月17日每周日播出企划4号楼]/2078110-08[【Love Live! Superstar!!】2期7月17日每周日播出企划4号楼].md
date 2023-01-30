@@ -11814,3 +11814,15 @@ rnm花田
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 11541#       发表于 2023-1-30 08:07
+
+皮套ll那边，六个人剪影下面看到各种玩游戏王link召唤的梗，牌佬这么密集的吗。
+
+唯一不在玩link梗的再问会不会再加三人，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
