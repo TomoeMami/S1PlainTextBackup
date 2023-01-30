@@ -2568,3 +2568,16 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 嘴型是英配，日本元素应该是上世纪科幻作品的醍醐味，不过里面日本acg要素不少，所以也可能是制作人喜欢[ ...</blockquote>
 我选的日配，口型是明显是日语的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 248#       发表于 2023-1-30 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59541915&amp;ptid=2116452" target="_blank">tureleona 发表于 2023-1-30 12:41</a>
+
+我选的日配，口型是明显是日语的</blockquote>
+我一开始选日配总感觉对不上
+
+也可能这种画风的美国动画看过不少，顶着这种脸说日语很违和<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。英配除了寇西嘉的配音有点大妈以外都挺好的
+
