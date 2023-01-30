@@ -1238,3 +1238,33 @@ MD也不是冷门主机。但对于RPG来说，MD就是冷门主机。史克威�
 
 DQ、暗黑编年史、空轨、龙战士3、4、LAL、伊苏8、马路RPG3、如龙7、阿卡迪亚、FF9、天地创造、北欧女神能入选真是太好了~
 
+
+*****
+
+####  wgoenitz  
+##### 105#       发表于 2023-1-30 10:47
+
+传说最高的居然是深渊，然后仙乐，薄暮查无此人还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wgoenitz  
+##### 106#       发表于 2023-1-30 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59535407&amp;ptid=2116976" target="_blank">Bernoulli 发表于 2023-1-29 22:10</a>
+
+如龙还不够日本么？难道是美少女成分不足？</blockquote>
+如龙不是rpg是动作冒险类吧
+
+*****
+
+####  wgoenitz  
+##### 107#       发表于 2023-1-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59535007&amp;ptid=2116976" target="_blank">貓血発動機 发表于 2023-1-29 21:38</a>
+
+一直很好奇王国之心为什么欧美评价那么高，是剧情特别好还是战斗系统设计的好
+
+—— 来自 S1Fun ...</blockquote>
+里面大量迪士尼经典动画素材吧
+
