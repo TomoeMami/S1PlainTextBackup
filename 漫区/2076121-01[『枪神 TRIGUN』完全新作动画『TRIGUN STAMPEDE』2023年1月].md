@@ -2839,3 +2839,14 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 一生的遗憾，圣魔之血的时髦度加上现在资源不知有多屌
 
+
+*****
+
+####  赛U灵  
+##### 264#       发表于 2023-1-30 07:56
+
+转枪是真的帅，虽然画面做的越好就会越蛋疼（或者说越可惜）剧本问题（。）
+这集大致剧情看着没啥问题，但的确也很想吐槽法修也还没在牧师（啊，现在该叫葬仪社哥了吧（。）前咋舍身救人怎么就开始被说教了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">代入一下会觉得有点怪（
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
