@@ -3618,3 +3618,11 @@ yysy官组也是纯纯的fw，点就点了，这点风浪直接就殉爆了我�
 
 别尬黑，雷书帖子下面借机踩你麻头的还蛮多的捏<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gogomw  
+##### 13297#       发表于 2023-1-30 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说我就不知道臭傻逼去NGA发那个贴是想干嘛,让他的泥畜好朋友进去复读三OO、天空之城、中文困惑、辱华、停B限等'光辉历史'再捧一下他们舔的各式拉夫贵物？这种臭傻逼和20年底的冲蝗Crew有什么区别?
+

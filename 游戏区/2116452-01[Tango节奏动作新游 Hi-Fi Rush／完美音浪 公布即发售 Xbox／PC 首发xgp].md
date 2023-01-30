@@ -2783,3 +2783,24 @@ qte太多才说明是音游啊
 英配我玩了一会觉得不对味就改成了日配，808英配是怎么叫的，也是やおや吗？ ...</blockquote>
 eight O eight
 
+
+*****
+
+####  CswStar  
+##### 267#       发表于 2023-1-30 16:35
+
+ 本帖最后由 CswStar 于 2023-1-30 16:39 编辑 
+
+打了三关，这节奏也太苛刻了，我的同步率才勉强到50%，音游也太恐怖了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这游戏也没解决act里群挑太过混乱的问题，敌人攻击前有音效提醒这设定很好，但我经常注意不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 268#       发表于 2023-1-30 16:39
+
+果然大家都看不懂武士的qte<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有时候莫名其妙能按出个处决但根本不记得是啥节奏
+
+鸟在雕像上打的时候才明白节奏是12 12 123 12，主要太长很难记
+
