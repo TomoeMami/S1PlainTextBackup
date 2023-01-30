@@ -1457,3 +1457,20 @@ caligula2和蓝反帝为什么能有这么高分是我从注册到现在最疑�
 
 二白后期剧情完全是崩坏的。沃西斯那三个跟班莫名其妙地就变成了牛皮糖，阴魂不散，久远的举动也是迷惑至极。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 123#       发表于 2023-1-30 14:55
+
+鬼佬就这么喜欢xeno和轨迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shiko  
+##### 124#       发表于 2023-1-30 14:58
+
+xb3排名这么高的东西还往泥潭搬，大胆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
