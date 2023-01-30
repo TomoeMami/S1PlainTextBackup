@@ -1330,3 +1330,16 @@ p5 p4g p2 smt3 smt4 dsj 雷道2 奶1 奶2 dds1+2
 
 geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
 
+
+*****
+
+####  钦念以忱  
+##### 112#       发表于 2023-1-30 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59537958&amp;ptid=2116976" target="_blank">噗呸破屁诚 发表于 2023-1-30 02:03</a>
+
+（什么，欧美bangumi不应该是vndb？
+
+讲真bangumi上排jrpg图一乐的程度可能还不如这个榜，bangumi上 ...</blockquote>
+老游戏因为data数太少，受贝叶斯算法影响太大，导致排名奇葩。
+
