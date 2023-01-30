@@ -209,3 +209,11 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 通过docking station接电视后确实有掌机主机二合一的感觉了，前端体验没话说，串流体验也比之前moonlight和nvidia shield都好
 
+
+*****
+
+####  mggr  
+##### 2153#       发表于 2023-1-30 10:40
+
+终于搞定扳机键手感便秘的问题了，原来要打磨后盖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
