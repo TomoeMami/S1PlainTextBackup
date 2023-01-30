@@ -3584,3 +3584,20 @@ syl 主播怎么最近这么勤奋
 
 反正已经成功取消合作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着一些群的群友还纳闷怎么取消了我就感觉很troll
 
+
+*****
+
+####  gogomw  
+##### 13293#       发表于 2023-1-30 16:10
+
+ 本帖最后由 gogomw 于 2023-1-30 16:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来懒得说的,但一想到跑去NGA发癫虚空索敌乱骂然后真要拉进去对线又缩卵,我就忍不住
+
+*****
+
+####  Dualist彩  
+##### 13294#       发表于 2023-1-30 16:18
+
+yysy官组也是纯纯的fw，点就点了，这点风浪直接就殉爆了我实在没绷住，我还准备等雷书闹大了⛵尼哥狠狠地踩你麻头踩破防他呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
