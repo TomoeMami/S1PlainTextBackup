@@ -2467,3 +2467,13 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 
 主要还是游戏质量过硬
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 238#       发表于 2023-1-30 10:22
+
+ 本帖最后由 爱护动物抓根宝 于 2023-1-30 10:25 编辑 
+
+揍社长像那个游戏内成就的日文名是强韧!无敌!社长様ん!，这游戏梗是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
