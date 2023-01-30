@@ -6808,3 +6808,22 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  又花了五块钱  
+##### 3571#       发表于 2023-1-30 21:15
+
+问下已经到新章了，攻略说要刷14个爱情给阿努里斯，但是我大概给了10个就提示“敞开心扉，结局改变了”，到公会给了荧光棒，后面带着爱情去聊天也不提示给爱情了是怎么回事？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  valand  
+##### 3572#       发表于 2023-1-30 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548448&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-30 21:15</a>
+问下已经到新章了，攻略说要刷14个爱情给阿努里斯，但是我大概给了10个就提示“敞开心扉，结局改变了”，到 ...</blockquote>
+进公会就满了吧
+

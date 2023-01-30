@@ -12304,3 +12304,22 @@ kuma不开推是对的，据说emo跟鱼一样也是个自搜狂魔，我就佩�
 
 这次筹划了3个花篮，多少算积累点经验，接下来集中精力准备鲤鱼个唱的花篮
 
+
+*****
+
+####  仟音一心  
+##### 11583#       发表于 2023-1-30 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547996&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-30 20:33</a>
+之前看到过彩前同事以前工作时的照片，一群大叔在不到一米的距离内围着拍照，看着都哈人 ...</blockquote>
+彩妹之前那个小学生偶像组合中一个前成员的退团理由写的是：和萝莉控打交道太累了
+
+*****
+
+####  starring  
+##### 11584#       发表于 2023-1-30 21:22
+
+payton尚未开通tiktok [https://www.bilibili.com/video/B ... 57abfcd502f2db10b76](https://www.bilibili.com/video/BV1s24y1674S/?spm_id_from=444.41.list.card_archive.click&amp;vd_source=3e77e8355e8d757abfcd502f2db10b76)
+
+今天的个人节目里提了几次liella和鲤鱼，去年还是禁止事项今年解禁了
+

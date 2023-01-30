@@ -2943,3 +2943,17 @@ eight O eight
 
 玩的第一个十分钟就有种这是卡普空做的错觉。
 
+
+*****
+
+####  Rowen233  
+##### 282#       发表于 2023-1-30 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548237&amp;ptid=2116452" target="_blank">zag 发表于 2023-1-30 20:55</a>
+动作游戏的本质就是音游！这游戏日式动作味儿很正，动作设计也不错。
+
+玩的第一个十分钟就有种这是卡普空做 ...</blockquote>
+tango某种程度也算卡普空青训营出来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

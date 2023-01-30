@@ -2759,3 +2759,11 @@ app应该可以，298楼有下载地址
 
 app恢复有段时间了，请问这是长期的还是临时的？<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybtao  
+##### 308#       发表于 2023-1-30 21:14
+
+目前通过[https://singlelogin.me](https://singlelogin.me) 可以在tg创建私人机器人, 捐赠过的用户也可以获取私人访问的公网网址
+
