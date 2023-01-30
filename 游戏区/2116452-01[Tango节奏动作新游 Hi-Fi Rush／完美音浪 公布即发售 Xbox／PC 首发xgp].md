@@ -2845,3 +2845,11 @@ eight O eight
 
 立回时多用三连dash可以保持评价
 
+
+*****
+
+####  tureleona  
+##### 273#       发表于 2023-1-30 17:45
+
+精英怪和BOSS的QTE其实就是节奏天国么，武士俳句第一印象简直节奏天国外星人翻译关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

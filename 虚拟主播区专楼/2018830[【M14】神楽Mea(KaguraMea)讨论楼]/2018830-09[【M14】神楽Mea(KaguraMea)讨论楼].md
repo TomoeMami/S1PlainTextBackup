@@ -3641,3 +3641,18 @@ yysy官组也是纯纯的fw，点就点了，这点风浪直接就殉爆了我�
 
 傻逼又死不绝
 
+
+*****
+
+####  Dualist彩  
+##### 13300#       发表于 2023-1-30 17:46
+
+天狗是这样的，摆最烂的嘴，记最深的仇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 13301#       发表于 2023-1-30 17:48
+
+别吵了，今天晚上要被野男人爆杀了
+
