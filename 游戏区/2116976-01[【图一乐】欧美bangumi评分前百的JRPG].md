@@ -1379,3 +1379,16 @@ geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
 
 这榜单是什么赛博氰化物，要被最后一行第一个给笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电磁炮233  
+##### 117#         楼主| 发表于 2023-1-30 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542352&amp;ptid=2116976" target="_blank">woodcoin 发表于 2023-1-30 13:19</a>
+
+有战国兰斯没兰斯10
+
+黄油部分不服</blockquote>
+兰斯10没有英化
+
