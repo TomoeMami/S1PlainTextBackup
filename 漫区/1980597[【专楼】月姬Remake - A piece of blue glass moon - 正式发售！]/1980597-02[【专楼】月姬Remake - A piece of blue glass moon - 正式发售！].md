@@ -135,3 +135,16 @@
 
 2023-1-30 10:17 上传
 
+
+*****
+
+####  剣崎比留子  
+##### 1544#       发表于 2023-1-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59523266&amp;ptid=1980597" target="_blank">nanjolno 发表于 2023-1-29 00:03</a>
+
+1的话那个就是琥珀啦，除了&amp;#x ...</blockquote>
+对琥珀的称呼也有变化
+
+平时翡翠是用姉さん的，变成了姉
+
