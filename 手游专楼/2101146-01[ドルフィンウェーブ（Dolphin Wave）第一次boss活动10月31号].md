@@ -71,3 +71,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可爱的沙包，快点进池啊
 
+
+*****
+
+####  小五的拖鞋  
+##### 239#         楼主| 发表于 2023-1-30 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凹分排位活动，也算是日游不得不品的老套路了，直接开摆就好。如果要凹的话，反正就是凹最强一击，前戏把攻击力暴击爆伤和对面减防拉满，然后主C倍率最高的技能趁对面MAX破防去凹就完事了，另外多破盾（加最后分数结算倍率）
+

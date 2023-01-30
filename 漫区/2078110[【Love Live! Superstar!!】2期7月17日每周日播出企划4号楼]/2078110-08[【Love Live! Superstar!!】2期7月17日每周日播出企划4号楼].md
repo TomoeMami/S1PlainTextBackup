@@ -12488,3 +12488,15 @@ V的企划介绍的时候就说有动画了</blockquote>
 
 万一就老是冲突呢，上次生放都是啥时候了，指不定他们觉得外景跟生放一样没那么重要就不（配）耽误个人行程了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s3081260  
+##### 11604#       发表于 2023-1-30 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549642&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-30 22:57</a>
+神奇，为什么总觉得鱼头好大，是因为发型吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+确实比团里的小个子妹子们大一些，不过之前微博上的造型挺好看的不显大，感觉鱼适合扎起来再在两边留点头发修轮廓的发型
+
