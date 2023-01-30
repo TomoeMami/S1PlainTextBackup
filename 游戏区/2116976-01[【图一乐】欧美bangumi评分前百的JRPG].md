@@ -1354,3 +1354,28 @@ geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  yangqizhi45  
+##### 114#       发表于 2023-1-30 13:24
+
+看得出鬼佬对JRPG还是很宽容的。
+
+*****
+
+####  whzfjk  
+##### 115#       发表于 2023-1-30 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59538908&amp;ptid=2116976" target="_blank">sd4442312 发表于 2023-1-30 08:54</a>
+
+创轨这么高？到底是舞跳的不够尬了还是剧情翻来覆去次数不够多了？</blockquote>
+鬼佬哪来的创轨玩，官方英文版不是还没出吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 116#       发表于 2023-1-30 13:31
+
+这榜单是什么赛博氰化物，要被最后一行第一个给笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

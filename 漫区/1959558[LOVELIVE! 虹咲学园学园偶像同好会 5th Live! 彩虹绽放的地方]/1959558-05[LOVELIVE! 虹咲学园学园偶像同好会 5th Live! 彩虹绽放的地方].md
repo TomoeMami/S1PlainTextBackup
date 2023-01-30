@@ -1944,3 +1944,11 @@ Ai's Episode
 
 很难说不是在拱火。
 
+
+*****
+
+####  斯莱塔墨丘利  
+##### 6947#       发表于 2023-1-30 13:29
+
+吃干抹净<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
