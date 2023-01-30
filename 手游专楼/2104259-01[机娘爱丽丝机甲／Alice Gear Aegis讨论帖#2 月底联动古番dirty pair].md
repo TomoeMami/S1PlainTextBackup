@@ -862,3 +862,12 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 
 刚看了下，两周年时候开始玩的，粉丝最多的真理也才299万（
 
+
+*****
+
+####  孫光龍  
+##### 229#       发表于 2023-1-30 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这活动剧情好二啊
+来个新人，处处和大鸟抬杠，这能招人喜欢吗
+
