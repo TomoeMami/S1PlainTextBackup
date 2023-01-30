@@ -281,3 +281,20 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  5353  
+##### 2159#       发表于 2023-1-31 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59551315&amp;ptid=2015700" target="_blank">暗示我7酱 发表于 2023-1-31 01:44</a>
+
+有root 密码随便整
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+我自己查的要改密码还要在弄镜像。
+
+懒的弄了。
+
+反正我暂时主要在win上玩。
+
