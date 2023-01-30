@@ -12411,3 +12411,21 @@ V的企划介绍的时候就说有动画了</blockquote>
 我是希望24年三期也别出，你这烂摊子一年就想理清楚，不可能。
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">再说了，企划和运营不是觉得动画无足轻重吗，那急什么呢。
 
+
+*****
+
+####  牛李  
+##### 11595#       发表于 2023-1-30 22:46
+
+动画是谁写谁拍这很关键<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11596#       发表于 2023-1-30 22:47
+
+ 本帖最后由 nufawneafg 于 2023-1-30 22:51 编辑 
+
+...十年这种东西不好下定论<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+22财年两个季报来看，四个部门就ip部盈利同比21年萎缩，就万代这种不折腾不舒服式的做派，指不定啥时候再给你部门调整，又是一轮推诿扯皮
+
