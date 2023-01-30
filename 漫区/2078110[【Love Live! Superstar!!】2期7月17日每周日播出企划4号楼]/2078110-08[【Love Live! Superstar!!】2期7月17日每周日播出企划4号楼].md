@@ -12367,3 +12367,47 @@ anime japan联合舞台没星……………………今年估计是不用受动
 这次筹划了3个花篮，多少算积累点经验，接下来集中精力准备鲤鱼个唱的花篮 ...</blockquote>
 个唱不好说，之前貌似是不让送的。🤧
 
+
+*****
+
+####  lj205  
+##### 11590#       发表于 2023-1-30 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549222&amp;ptid=2078110" target="_blank">靡宜 发表于 2023-1-30 22:22</a>
+个唱不好说，之前貌似是不让送的。🤧</blockquote>
+我之前看鱼串好像说是可以送来着，感觉这次应该会放开吧
+
+*****
+
+####  ViyViy  
+##### 11591#       发表于 2023-1-30 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549184&amp;ptid=2078110" target="_blank">Enakina 发表于 2023-1-30 22:19</a>
+
+比起这个，带v玩的话，是不是说明有做动画的意向，还是单纯来蹭一蹭的</blockquote>
+V的企划介绍的时候就说有动画了
+
+*****
+
+####  仟音一心  
+##### 11592#       发表于 2023-1-30 22:25
+
+花篮之前也不太清楚怎么送，现在会了，隔壁这周末AZUNA的live我也参加了一个花篮。
+
+*****
+
+####  Enakina  
+##### 11593#       发表于 2023-1-30 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549242&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-1-30 22:24</a>
+V的企划介绍的时候就说有动画了</blockquote>
+那挺好，香火一直续，破企划看来还能狗个十年，短时间还死不了(失望)
+
+*****
+
+####  ViyViy  
+##### 11594#       发表于 2023-1-30 22:30
+
+我是希望24年三期也别出，你这烂摊子一年就想理清楚，不可能。
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">再说了，企划和运营不是觉得动画无足轻重吗，那急什么呢。
+
