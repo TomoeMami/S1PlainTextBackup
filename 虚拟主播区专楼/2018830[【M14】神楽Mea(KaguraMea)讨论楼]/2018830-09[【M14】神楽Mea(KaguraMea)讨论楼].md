@@ -3519,3 +3519,20 @@ syl 主播怎么最近这么勤奋
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  十九号大侠  
+##### 13285#       发表于 2023-1-30 12:23
+
+都没人看
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Dualist彩  
+##### 13286#       发表于 2023-1-30 12:29
+
+你组怎么就被人点了一下就炸了？
+

@@ -1997,3 +1997,26 @@ EN是真玩得开啊……
 有没有人提供一下前情提要？</blockquote>
 这种东西一般都是很突然的，说得上前情提要的大概是直播里提到的基本都是/vt/里常见的话题（车轱辘）
 
+
+*****
+
+####  IL282  
+##### 18475#       发表于 2023-1-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59527318&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2023-1-29 11:50</a>
+millie这个年度好活</blockquote>
+是被删档的会限嘛，错过了回头一看没了
+
+—— 来自 OnePlus IN2025, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 18476#       发表于 2023-1-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59527318&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2023-1-29 11:50</a>
+millie这个年度好活</blockquote>
+是被删档的会限嘛，错过了回头一看没了
+
+—— 来自 OnePlus IN2025, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
