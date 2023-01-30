@@ -2488,3 +2488,18 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 BOSS还是个JOJO饭</blockquote>
 赞佐一开始在视频通话里就在摆jojo立了，而且见他的时候还说了月下里德古拉的经典台词
 
+
+*****
+
+####  Sliurus  
+##### 240#       发表于 2023-1-30 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59539822&amp;ptid=2116452" target="_blank">黑暗箭 发表于 2023-1-30 10:11</a>
+
+完美音浪也有尼妹啊
+
+主要还是游戏质量过硬</blockquote>
+小薄荷一家是拉丁裔吧
+
+姐贵不是主角，反派丑不丑又没人care。一堆歪瓜裂枣boss里唯一好看的还入队了
+

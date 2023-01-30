@@ -1984,3 +1984,16 @@ EN是真玩得开啊……
 
 有没有人提供一下前情提要？
 
+
+*****
+
+####  格林卡罗尔  
+##### 18474#       发表于 2023-1-30 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59533810&amp;ptid=1972669" target="_blank">lhawp 发表于 2023-1-29 19:58</a>
+
+EN是真玩得开啊……
+
+有没有人提供一下前情提要？</blockquote>
+这种东西一般都是很突然的，说得上前情提要的大概是直播里提到的基本都是/vt/里常见的话题（车轱辘）
+

@@ -6796,3 +6796,15 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 vivo V2254A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牙狼GARO  
+##### 3570#       发表于 2023-1-30 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59532470&amp;ptid=2098044" target="_blank">永远的访客 发表于 2023-1-29 18:02</a>
+没证据说明黑与白是亲姐妹和大贤者女儿（见过姐妹头发颜色差那么多的吗？），至少从前几章完全看不出来有 ...</blockquote>
+不一定是真的女儿，前面也讲了黑白从小跟着大贤者学习，把自己学生当女儿看待总比当异性看待要正常不少（笑）
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
