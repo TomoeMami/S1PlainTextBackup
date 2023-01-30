@@ -2549,3 +2549,11 @@ BOSS还是个JOJO饭</blockquote>
 有没有人讲下日配和英配哪个是初设啊？看起来是欧美画风所以用了英配玩，结果退出来发现桌面上的快捷方式是 ...</blockquote>
 HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  余情自取  
+##### 246#       发表于 2023-1-30 12:35
+
+我感觉日配挺好的，特别是一些机器人NPC配的相当到位。
+
