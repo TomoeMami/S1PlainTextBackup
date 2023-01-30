@@ -1550,3 +1550,15 @@ sfc上ff5没有发行美版，ff5a上了
 
 看完只觉得atlus鬼佬粉丝还真挺多
 
+
+*****
+
+####  syndrome2032  
+##### 132#       发表于 2023-1-30 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544352&amp;ptid=2116976" target="_blank">cowgp01 发表于 2023-1-30 15:32</a>
+看完只觉得atlus鬼佬粉丝还真挺多</blockquote>
+geek度摆在这。
+
+p2和真2都是没官方英文同人自制英文补丁的典范。
+

@@ -703,3 +703,36 @@
 他真的很急 连惯例小把戏都不玩了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个是生放通知，开放估计要8点了
 
+
+*****
+
+####  alucardcz  
+##### 4488#       发表于 2023-1-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546553&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-30 18:21</a>
+
+这个是生放通知，开放估计要8点了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不懂日语吗  写着20点开 18点半放录像
+
+*****
+
+####  areklose  
+##### 4489#       发表于 2023-1-30 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546566&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-30 18:22</a>
+
+你不懂日语吗  写着20点开 18点半放录像</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你截图明明只有5点半，而且我点进去公告也没写8点开。我说的当然是北京时间
+
+*****
+
+####  alucardcz  
+##### 4490#       发表于 2023-1-30 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546613&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-30 18:26</a>
+
+你截图明明只有5点半，而且我点进去公告也没写8点开。我说的当然是北京时间 ...</blockquote>
+？？？？？？？？
+
+你图没刷出来还是看岔楼了？ 我图上写着20：00开幕
+
