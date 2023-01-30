@@ -2772,3 +2772,14 @@ qte太多才说明是音游啊
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Sliurus  
+##### 266#       发表于 2023-1-30 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542371&amp;ptid=2116452" target="_blank">tureleona 发表于 2023-1-30 13:21</a>
+
+英配我玩了一会觉得不对味就改成了日配，808英配是怎么叫的，也是やおや吗？ ...</blockquote>
+eight O eight
+

@@ -2888,3 +2888,13 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 要不电锯给橘子社3d重制吧，这打戏不比马趴一整季的那种瞎几把晃镜头高了好几个山头
 
+
+*****
+
+####  Rainwedell  
+##### 269#       发表于 2023-1-30 16:27
+
+这两集节奏太怪了，再看一集如果还是这样估计得弃了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
