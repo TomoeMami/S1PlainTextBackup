@@ -1343,3 +1343,14 @@ geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
 讲真bangumi上排jrpg图一乐的程度可能还不如这个榜，bangumi上 ...</blockquote>
 老游戏因为data数太少，受贝叶斯算法影响太大，导致排名奇葩。
 
+
+*****
+
+####  woodcoin  
+##### 113#       发表于 2023-1-30 13:19
+
+有战国兰斯没兰斯10
+黄油部分不服
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

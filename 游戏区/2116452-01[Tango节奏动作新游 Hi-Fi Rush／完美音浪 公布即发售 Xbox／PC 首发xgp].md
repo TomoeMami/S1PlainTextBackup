@@ -2581,3 +2581,16 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 
 也可能这种画风的美国动画看过不少，顶着这种脸说日语很违和<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。英配除了寇西嘉的配音有点大妈以外都挺好的
 
+
+*****
+
+####  tureleona  
+##### 249#       发表于 2023-1-30 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542210&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-30 13:08</a>
+
+我一开始选日配总感觉对不上
+
+也可能这种画风的美国动画看过不少，顶着这种脸说日语很违和。英配除 ...</blockquote>
+英配我玩了一会觉得不对味就改成了日配，808英配是怎么叫的，也是やおや吗？
+
