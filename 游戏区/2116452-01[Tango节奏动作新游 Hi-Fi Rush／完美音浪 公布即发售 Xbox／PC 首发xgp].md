@@ -2648,3 +2648,32 @@ MC 86<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 QTE确实有点多了 加上下野的声音 我有种玩xb2的错觉 就差个喊麦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 255#       发表于 2023-1-30 14:31
+
+808太可爱了
+
+这作要是商业成绩不错的话有没有可能来点周边什么的<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 256#       发表于 2023-1-30 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543385&amp;ptid=2116452" target="_blank">Asukalangley33 发表于 2023-1-30 14:31</a>
+
+808太可爱了
+
+这作要是商业成绩不错的话有没有可能来点周边什么的</blockquote>
+感觉可以<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 257#       发表于 2023-1-30 14:37
+
+合理怀疑jojo boss那里乱用预算是不是让陶德叔叔以为说自己急眼了 所以怒删宣发（纯脑洞）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
