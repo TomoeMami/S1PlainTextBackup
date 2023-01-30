@@ -12457,3 +12457,11 @@ V的企划介绍的时候就说有动画了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是很大。外景啥的指不定对日程很麻烦
 
+
+*****
+
+####  ViyViy  
+##### 11600#       发表于 2023-1-30 23:06
+
+那不都是一天或两天录完切出来慢慢放的，定个录制日期告知事务所别冲突了不就行了。。
+

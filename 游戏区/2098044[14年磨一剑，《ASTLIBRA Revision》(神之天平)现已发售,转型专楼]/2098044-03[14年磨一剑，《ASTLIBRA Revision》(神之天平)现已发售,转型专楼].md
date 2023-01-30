@@ -6851,3 +6851,14 @@ b站专栏搜神之天平</blockquote>
 —— 来自 S1Fun</blockquote>
 继续走啊，打最终BOSS会提示你不能回头的
 
+
+*****
+
+####  asdfg  
+##### 3575#       发表于 2023-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548448&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-30 08:15</a>
+
+问下已经到新章了，攻略说要刷14个爱情给阿努里斯，但是我大概给了10个就提示“敞开心扉，结局改变了”，到 ...</blockquote>
+是一共给她14个不是必须要刷出14个。一周目流程中所有选项选对有三个加上竞技场一个，所以刷10个差不多。
+
