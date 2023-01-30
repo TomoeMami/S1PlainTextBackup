@@ -12257,3 +12257,14 @@ kuma不开推是对的，据说emo跟鱼一样也是个自搜狂魔，我就佩�
 那倒是很正常</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">理解归能理解，这不只会让人更起劲吗 “她急了“
 
+
+*****
+
+####  稀勢のささ  
+##### 11578#       发表于 2023-1-30 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547945&amp;ptid=2078110" target="_blank">Enakina 发表于 2023-1-30 20:27</a>
+
+绘森那9岁就在全是死宅大叔的舞台做偶像活动了，一比较这都是洒洒水了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前看到过彩前同事以前工作时的照片，一群大叔在不到一米的距离内围着拍照，看着都哈人
+
