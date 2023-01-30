@@ -871,3 +871,25 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这活动剧情好二啊
 来个新人，处处和大鸟抬杠，这能招人喜欢吗
 
+
+*****
+
+####  madcow  
+##### 230#       发表于 2023-1-30 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544524&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-1-30 15:45</a>
+
+这活动剧情好二啊
+
+来个新人，处处和大鸟抬杠，这能招人喜欢吗</blockquote>
+倒也还好，因为议题都挺随便的（？？
+
+008sIu6ugy1hah88rlx91j30j8085dhl.jpg
+(46.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/192729vn55zo2we6evv6nu.jpg" referrerpolicy="no-referrer">
+
