@@ -1602,3 +1602,18 @@ xb3排名这么高的东西还往泥潭搬，大胆
 
 表里面肉眼可见的轨迹估计也这样，轨迹对那边的人来说应该还是很陌生的游戏罢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酷乐  
+##### 137#       发表于 2023-1-30 23:42
+
+ 本帖最后由 酷乐 于 2023-1-30 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548386&amp;ptid=2116976" target="_blank">灰谷真实 发表于 2023-1-30 21:08</a>
+
+反过来说能顶着语言壁垒啃生肉的，首先对于日语就有一定了解，其次能把生肉啃完，对这游戏感官就不会太差 ...</blockquote>
+
+轨迹就剩黎还没英文了，今年会出碧轨和创轨的英文版，后者有英配。
+
+1月的闪轨动画，Crunchyroll也做了英文配音。
+
