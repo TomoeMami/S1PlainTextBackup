@@ -2455,3 +2455,15 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59539465&amp;ptid=2116452" target="_blank"> lazycat233 发表于 2023-1-30 09:45</a> 主要是没宣发直接上架吧，没有任何预期，直接上手，就算有一些小问题但是整体体验够好。如果是宣传了好久，预期高的话一些小问题都会放大降低评价    -- 来自 能手机投票的 Stage1官方 Android客户端 </blockquote>
 顺便直接没给脑瘫媒体们送测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，shadow drop宣发真好活来自: iPhone客户端
 
+
+*****
+
+####  黑暗箭  
+##### 237#       发表于 2023-1-30 10:11
+
+<blockquote>Suny08 发表于 2023-1-30 09:06
+这游戏能反响这么好感觉还是因为尼哥之地的衬托</blockquote>
+完美音浪也有尼妹啊
+
+主要还是游戏质量过硬
+
