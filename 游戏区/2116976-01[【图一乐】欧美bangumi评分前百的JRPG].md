@@ -1474,3 +1474,59 @@ xb3排名这么高的东西还往泥潭搬，大胆<img src="https://static.sara
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  尘落樱飞  
+##### 125#       发表于 2023-1-30 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59542352&amp;ptid=2116976" target="_blank">woodcoin 发表于 2023-1-30 13:19</a>
+
+有战国兰斯没兰斯10
+
+黄油部分不服</blockquote>
+兰斯10这个网站只有几十人评分
+
+4.5+吧好像
+
+*****
+
+####  BallanceHZ  
+##### 126#       发表于 2023-1-30 15:03
+
+我现在很好奇黎2能多少分，之前闪2欧美评价也不差吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫将军  
+##### 127#       发表于 2023-1-30 15:04
+
+差不多吧，好玩的有名的都上榜了…不过为啥有ff6没ff5？
+
+*****
+
+####  killbillwillil  
+##### 128#       发表于 2023-1-30 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543030&amp;ptid=2116976" target="_blank">电磁炮233 发表于 2023-1-30 14:10</a>
+
+感谢帮我转帖的朋友，其实之间那个图漏的实在太多了并不是很严谨，牧场物语算不算JRPG确实有争议，我这里姑 ...</blockquote>
+蓝反无印本身属于有想法但是做出来相当不好玩的
+
+T就相对没那种鸡肋感，各方面相对都算中或者中上，不算白开水又没什么雷点的感觉吧（虽然基本没啥多周目动力
+
+你说lgbt吧，这群里面标明女童的也就一对，其它也就gust近年那种轻百性质，感觉也不至于
+
+卡里古拉没玩过就真不知道为啥了（
+
+*****
+
+####  电磁炮233  
+##### 129#         楼主| 发表于 2023-1-30 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543915&amp;ptid=2116976" target="_blank">猫将军 发表于 2023-1-30 15:04</a>
+差不多吧，好玩的有名的都上榜了…不过为啥有ff6没ff5？</blockquote>
+sfc上ff5没有发行美版，ff5a上了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

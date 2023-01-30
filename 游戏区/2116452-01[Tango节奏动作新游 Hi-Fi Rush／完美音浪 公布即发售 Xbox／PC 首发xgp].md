@@ -2677,3 +2677,39 @@ QTE确实有点多了 加上下野的声音 我有种玩xb2的错觉 就差个�
 
 合理怀疑jojo boss那里乱用预算是不是让陶德叔叔以为说自己急眼了 所以怒删宣发（纯脑洞）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sword混沌  
+##### 258#       发表于 2023-1-30 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543277&amp;ptid=2116452" target="_blank">彩虹肥宅 发表于 2023-1-30 14:26</a>
+打到现在，还是有些缺点：
+
+1.后期战斗太乱了，根本看不清发生了什么
+
+2.有些关卡的基底的bgm节奏不明显，爽 ...</blockquote>
+qte太多才说明是音游啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zqzs  
+##### 259#       发表于 2023-1-30 15:07
+
+刚打完了蕾卡，boss投技给的巨帅，太爽了这游戏。
+不知道三上真司这作参与了多少。萌百的注释给了个只是挂名，但没写来源。
+
+*****
+
+####  彩虹肥宅  
+##### 260#       发表于 2023-1-30 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543920&amp;ptid=2116452" target="_blank">sword混沌 发表于 2023-1-30 15:04</a>
+
+qte太多才说明是音游啊
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+有几个qte节奏太难抓了，结合那种节奏不明显的背景音乐，拍子很难找<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
