@@ -12429,3 +12429,31 @@ V的企划介绍的时候就说有动画了</blockquote>
 ...十年这种东西不好下定论<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 22财年两个季报来看，四个部门就ip部盈利同比21年萎缩，就万代这种不折腾不舒服式的做派，指不定啥时候再给你部门调整，又是一轮推诿扯皮
 
+
+*****
+
+####  ads147147  
+##### 11597#       发表于 2023-1-30 22:56
+
+都快鞭尸一年了，懒得说了。外景怎么还不准备安排上。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ruffian  
+##### 11598#       发表于 2023-1-30 22:57
+
+神奇，为什么总觉得鱼头好大，是因为发型吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 11599#       发表于 2023-1-30 22:57
+
+ 本帖最后由 稀勢のささ 于 2023-1-30 22:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是很大。外景啥的指不定对日程很麻烦
+

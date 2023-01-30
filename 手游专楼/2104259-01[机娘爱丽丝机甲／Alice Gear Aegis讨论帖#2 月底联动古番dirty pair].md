@@ -909,3 +909,24 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 
 请教下，凤的开刃终结目押，有没什么诀窍……比如动作位置提示之类的
 
+
+*****
+
+####  Rincewind  
+##### 233#       发表于 2023-1-30 22:52
+
+ 本帖最后由 Rincewind 于 2023-1-30 22:55 编辑 
+
+这活动不就是豆腐脑/月饼/等等等等偏好斗争的现代日本版吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就玩个梗而已
+
+syl
+凤这个目押终结技的时间点……
+大概是整个投矛都开始发光的时候，脚底也会有闪光提醒
+体感上这个跟吉妮天音差不多是比较慢的目押。wiki暂时还没有帧数表
+不过确实不太容易看到
+<img src="https://p.sda1.dev/9/8e89a7926e0dfa5cb4301d039f45bc0c/CMP_20230130225031936.jpg" referrerpolicy="no-referrer">
+
+再syl
+今天把快结束的高难和MEGA先生配乐的复刻高难打了，感觉道中难度是不是有所下调……没有我印象里Forxythia（有个怪堆里打VW的关卡）那时候的道中那么凶了
+基于xp超得了个奈奈扔高难用了用，出乎意料还挺好用的，有一定奶量输出还不受影响，强追踪步枪道中好用，SP打起来也很快
+
