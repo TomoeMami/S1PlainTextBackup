@@ -269,3 +269,15 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 这桌面模式好迷啊。我昨天装302还很顺利，结果今天密码怎么试都不对，真怪。也懒得弄了。
 
+
+*****
+
+####  暗示我7酱  
+##### 2158#       发表于 2023-1-31 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543145&amp;ptid=2015700" target="_blank">5353 发表于 2023-1-30 14:18</a>
+这桌面模式好迷啊。我昨天装302还很顺利，结果今天密码怎么试都不对，真怪。也懒得弄了。 ...</blockquote>
+有root 密码随便整
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
