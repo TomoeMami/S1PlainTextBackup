@@ -2898,3 +2898,11 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  arisato  
+##### 270#       发表于 2023-1-30 22:33
+
+确定会看完了，然后看完新动画再去补漫画，收获两份快乐<img src="https://static.saraba1st.com/image/smiley/carton2017/256.png" referrerpolicy="no-referrer">
+

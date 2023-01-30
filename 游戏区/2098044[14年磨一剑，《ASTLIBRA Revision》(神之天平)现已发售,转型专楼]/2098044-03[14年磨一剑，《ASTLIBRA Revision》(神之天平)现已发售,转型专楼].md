@@ -6839,3 +6839,15 @@ b站专栏搜神之天平</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  valand  
+##### 3574#       发表于 2023-1-30 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59549072&amp;ptid=2098044" target="_blank">又花了五块钱 发表于 2023-1-30 22:10</a>
+意思是可以继续过了3-5往下走了？
+
+—— 来自 S1Fun</blockquote>
+继续走啊，打最终BOSS会提示你不能回头的
+
