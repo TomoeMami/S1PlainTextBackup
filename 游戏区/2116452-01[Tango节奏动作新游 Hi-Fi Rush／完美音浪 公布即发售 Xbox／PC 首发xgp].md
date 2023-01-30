@@ -2713,3 +2713,35 @@ qte太多才说明是音游啊
 —— 来自 HUAWEI JEF-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 有几个qte节奏太难抓了，结合那种节奏不明显的背景音乐，拍子很难找<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TTAA  
+##### 261#       发表于 2023-1-30 15:11
+
+蕾卡最高难度二阶段触电无法近战，开场评价一掉到D就挂，有什么对策吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harmonytree  
+##### 262#       发表于 2023-1-30 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544049&amp;ptid=2116452" target="_blank">TTAA 发表于 2023-1-30 15:11</a>
+
+蕾卡最高难度二阶段触电无法近战，开场评价一掉到D就挂，有什么对策吗 ...</blockquote>
+我的方法是放队友稳住评价先，等放完电赶紧上去捶几下
+
+带电的拳头虽然没法格挡，但是闪避也能稳住评价
+
+*****
+
+####  TTAA  
+##### 263#       发表于 2023-1-30 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544104&amp;ptid=2116452" target="_blank">harmonytree 发表于 2023-1-30 15:14</a>
+
+我的方法是放队友稳住评价先，等放完电赶紧上去捶几下
+
+带电的拳头虽然没法格挡，但是闪避也能稳住评价 ...</blockquote>
+闪避也涨就回去再试试看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，前面有几次以为带电拳能格挡，还以为是没按中
+

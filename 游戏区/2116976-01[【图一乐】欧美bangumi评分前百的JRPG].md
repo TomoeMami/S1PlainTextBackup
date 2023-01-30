@@ -1530,3 +1530,15 @@ sfc上ff5没有发行美版，ff5a上了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  猫将军  
+##### 130#       发表于 2023-1-30 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543957&amp;ptid=2116976" target="_blank">电磁炮233 发表于 2023-1-30 15:07</a>
+sfc上ff5没有发行美版，ff5a上了
+
+—— 来自 S1Fun</blockquote>
+学习了
+

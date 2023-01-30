@@ -2870,3 +2870,13 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 一生的遗憾，圣魔之血的时髦度加上现在资源不知有多屌 ...</blockquote>
 人皇妹妹=牧师基友吧，都属于敌对阵营，都因主角在决战前牺牲，内心深处都能理解主角<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  流行云  
+##### 267#       发表于 2023-1-30 15:18
+
+国内感觉太在乎圣母不圣母的问题，实际还是剧情编排问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
