@@ -814,3 +814,14 @@
 这破游戏还能有下个元旦&amp;#x ...</blockquote>
 躺平收益这么高，拖戏功夫那么强，2.0完结了也能继续拖啦<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 4499#       发表于 2023-1-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546934&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-1-30 18:58</a>
+
+明天要是没所长卡池，就要化身月黑了</blockquote>
+为什么不奶所长白送？隔壁街机都白送5星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
