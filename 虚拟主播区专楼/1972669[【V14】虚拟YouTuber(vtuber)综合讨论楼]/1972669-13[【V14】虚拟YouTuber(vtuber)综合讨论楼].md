@@ -2089,3 +2089,14 @@ Screenshot_20230130_191726.jpg
 
 虹en这cue4ch和维阿cues1一个味道了
 
+
+*****
+
+####  格林卡罗尔  
+##### 18479#       发表于 2023-1-30 23:59
+
+后果好像也很相似，各路粉丝问自家liver有没有参与
+millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
