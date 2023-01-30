@@ -2020,3 +2020,64 @@ millie这个年度好活</blockquote>
 
 —— 来自 OnePlus IN2025, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  毛头小希  
+##### 18477#       发表于 2023-1-30 19:19
+
+ 不得不说虹社五周年这塔罗牌还是挺唬人的，捞女粉的钱还是那么有一套（搓手等开团）
+
+0 . THE FOOL：葛叶
+
+Ⅰ . THE MAGICIAN：セラフ・ダズルガーデン
+
+Ⅱ . THE HIGH PRIESTESS : 樋口枫
+
+Ⅲ . THE EMPRESS：リゼ・ヘルエスタ
+
+Ⅳ . THE EMPEROR：イブラヒム
+
+Ⅴ . THE HIEROPHANT：不破凑
+
+Ⅵ . THE LOVERS：アンジュ・カトリーナ
+
+Ⅶ . THE CHARIOT：加贺美ハヤト
+
+Ⅷ . STRENGTH：相羽ういは
+
+Ⅸ . THE HERMIT：社筑
+
+Ⅹ . WHEEL of FORTUNE：椎名唯华
+
+Ⅺ . JUSTICE：长尾景
+
+Ⅻ . THE HANGED MAN：剣持刀也
+
+ⅩⅢ . DEATH：ましろ爻
+
+ⅩⅣ . TEMPERANCE：健屋花那
+
+ⅩⅤ . THE DEVIL：レオス・ヴィンセント
+
+ⅩⅥ . THE TOWER：勇気ちひろ
+
+ⅩⅦ . THE STAR：星川サラ
+
+ⅩⅧ . THE MOON：月ノ美兎
+
+ⅩⅨ . THE SUN：伏见ガク
+
+ⅩⅩ . JUDGEMENT：戌亥とこ
+
+ⅩⅩⅠ . THE WORLD：叶
+
+Screenshot_20230130_191726.jpg
+(388.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/191923nvkd4felbccgzldk.jpg" referrerpolicy="no-referrer">
+
