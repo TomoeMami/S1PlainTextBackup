@@ -12093,3 +12093,25 @@ non这像是被事务所给教育了，今天赶紧发了个文
 </blockquote>
 一时之间感情上没蚌住，能理解。有时候我也这样
 
+
+*****
+
+####  cat1230  
+##### 11562#       发表于 2023-1-30 19:42
+
+<blockquote>引用第11558楼长日留痕于2023-01-30 19:03发表的  :
+
+二期生的压力也挺大的，三期生恐怕只会更大。</blockquote>
+@长日留痕
+
+薇恩也是三期，压力不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  starring  
+##### 11563#       发表于 2023-1-30 19:45
+
+铃原的性格本来就阴暗，现在能把这样的话说出来说明慢慢在改变挺好的，估计队友给了不少帮助
+

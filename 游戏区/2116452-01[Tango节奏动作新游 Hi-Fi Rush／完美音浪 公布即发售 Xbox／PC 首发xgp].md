@@ -2874,3 +2874,11 @@ eight O eight
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">试了下日配，感觉比英配好听一点，代价是听不懂只能看字幕了
 
+
+*****
+
+####  shudushimo  
+##### 276#       发表于 2023-1-30 19:45
+
+黑皮cv是坂本真绫吗？听着像飞跃巅峰2的黑皮
+
