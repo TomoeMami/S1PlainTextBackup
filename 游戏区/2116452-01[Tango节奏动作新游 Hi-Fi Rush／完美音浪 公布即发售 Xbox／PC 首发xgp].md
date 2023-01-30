@@ -2895,3 +2895,41 @@ eight O eight
 
 看别人传的，好像是叫行成桃姬？
 
+
+*****
+
+####  zag  
+##### 278#       发表于 2023-1-30 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546400&amp;ptid=2116452" target="_blank">朔方原的星 发表于 2023-1-30 18:06</a>
+
+我玩游戏也是按照制作公司选“原配”的
+
+不过玩这个之前看到有人提过日配体验很好，说像扳机的动画
+
+我就日 ...</blockquote>
+本来就是日本的工作室，制作人员主要是日本人
+
+*****
+
+####  zag  
+##### 279#       发表于 2023-1-30 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59540999&amp;ptid=2116452" target="_blank">迷途lite 发表于 2023-1-30 11:33</a>
+
+有没有人讲下日配和英配哪个是初设啊？看起来是欧美画风所以用了英配玩，结果退出来发现桌面上的快捷方式是 ...</blockquote>
+你看过开头CAST全部都是日文名字也应该知道是日文了
+
+*****
+
+####  齿轮轴君  
+##### 280#       发表于 2023-1-30 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">普通难度通关了，最后两章打的真爽，你们ACT最终决斗都喜欢上天台的吗！
+
+小毛病基本就是楼友说的那些，视角是真的可以再调整，锁定和跳跃感觉是为了节拍的自肃做出的退让，这两者太容易打乱节拍。
+
+动作的手感是真的爽到了，不知道有没有楼友试过纯格挡流，能不能当青春版皇家护卫玩？
+
+接下来就是慢慢清隐藏要素了，战斗评价旁边带星是代表什么？无伤吗？
+
