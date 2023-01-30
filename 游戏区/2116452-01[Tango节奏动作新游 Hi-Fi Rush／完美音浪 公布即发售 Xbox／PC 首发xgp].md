@@ -2503,3 +2503,12 @@ BOSS还是个JOJO饭</blockquote>
 
 姐贵不是主角，反派丑不丑又没人care。一堆歪瓜裂枣boss里唯一好看的还入队了
 
+
+*****
+
+####  余情自取  
+##### 241#       发表于 2023-1-30 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">机器人里那个扫地机器人真的好萌。。
+就是后面不小心打到它才发现是会爆齿轮和补给的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
