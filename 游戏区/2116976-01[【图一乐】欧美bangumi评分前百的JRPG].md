@@ -1589,3 +1589,16 @@ xb3排名这么高的东西还往泥潭搬，大胆
 
 火纹776也是没英文版吧，分数这么高？
 
+
+*****
+
+####  灰谷真实  
+##### 136#       发表于 2023-1-30 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548286&amp;ptid=2116976" target="_blank">绿冰 发表于 2023-1-30 21:00</a>
+
+火纹776也是没英文版吧，分数这么高？</blockquote>
+反过来说能顶着语言壁垒啃生肉的，首先对于日语就有一定了解，其次能把生肉啃完，对这游戏感官就不会太差了，分数不会低。
+
+表里面肉眼可见的轨迹估计也这样，轨迹对那边的人来说应该还是很陌生的游戏罢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
