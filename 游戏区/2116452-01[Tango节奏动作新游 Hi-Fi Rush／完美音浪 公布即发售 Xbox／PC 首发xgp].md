@@ -2379,3 +2379,16 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TTAA  
+##### 229#       发表于 2023-1-30 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59538702&amp;ptid=2116452" target="_blank">陈词与芍药 发表于 2023-1-30 08:29</a>
+
+《Hi-Fi Rush》是John Johanas的梦想游戏，他在完成《恶灵附身2》的工作后，于2017年提出了这个想法。
+
+这款 ...</blockquote>
+难怪部分关卡演出一股魔女味，原来有老员工参与到了开发
+
