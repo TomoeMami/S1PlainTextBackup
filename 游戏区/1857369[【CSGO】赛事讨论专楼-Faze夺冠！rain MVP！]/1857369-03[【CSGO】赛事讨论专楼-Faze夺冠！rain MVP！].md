@@ -364,3 +364,15 @@ navi一天不解放电，一天都不用看好
 
 — from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  heseran  
+##### 3130#       发表于 2023-1-30 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59538604&amp;ptid=1857369" target="_blank">20002000 发表于 2023-1-30 08:14</a>
+为啥我打ak总是三枪88伤害 然后被打死
+
+— from motorola moto g power (2021), Android 11 of S1 N ...</blockquote>
+有甲三枪打不死也太正常了，但是近距离打裆能三枪死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这下知道打裆的含金量了吧
+
