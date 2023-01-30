@@ -2760,3 +2760,15 @@ qte太多才说明是音游啊
 
 导演是恶灵1的DLC和恶灵2的导演
 
+
+*****
+
+####  Rainwedell  
+##### 265#       发表于 2023-1-30 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544042&amp;ptid=2116452" target="_blank">彩虹肥宅 发表于 2023-1-30 15:10</a>
+有几个qte节奏太难抓了，结合那种节奏不明显的背景音乐，拍子很难找红发女那关的基底bgm就是那种类 ...</blockquote>
+打通了寇西嘉qte之后除了武士qte后面基本都能过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我自己打感觉就是个qte教学
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
