@@ -1442,3 +1442,18 @@ caligula2和蓝反帝为什么能有这么高分是我从注册到现在最疑�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  灰谷真实  
+##### 122#       发表于 2023-1-30 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543334&amp;ptid=2116976" target="_blank">Guildenstern 发表于 2023-1-30 14:29</a>
+
+二白能不能排历史前十暂且不提，国内对这游戏这么大敌意是为啥呢？我玩的时候没感觉有什么雷点。
+
+----发 ...</blockquote>
+很简单，就是烂尾了。
+
+二白后期剧情完全是崩坏的。沃西斯那三个跟班莫名其妙地就变成了牛皮糖，阴魂不散，久远的举动也是迷惑至极。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
