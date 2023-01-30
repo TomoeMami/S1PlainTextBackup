@@ -1574,3 +1574,18 @@ xb3排名这么高的东西还往泥潭搬，大胆
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
 连创轨都比不过，搬就搬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰谷真实  
+##### 134#       发表于 2023-1-30 20:57
+
+话又说回来，装甲在异度系里没排到最前，每一个评分old ass都有责任。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 135#       发表于 2023-1-30 21:00
+
+火纹776也是没英文版吧，分数这么高？
+
