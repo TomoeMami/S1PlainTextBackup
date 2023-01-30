@@ -2408,3 +2408,14 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 
 这游戏能反响这么好感觉还是因为尼哥之地的衬托
 
+
+*****
+
+####  Rowen233  
+##### 232#       发表于 2023-1-30 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59539036&amp;ptid=2116452" target="_blank">Suny08 发表于 2023-1-30 09:06</a>
+
+这游戏能反响这么好感觉还是因为尼哥之地的衬托</blockquote>
+本身有一定实力 再加上魔咒之地全方面反向衬托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
