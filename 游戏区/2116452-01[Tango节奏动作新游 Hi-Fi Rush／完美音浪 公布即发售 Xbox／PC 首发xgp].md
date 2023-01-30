@@ -2820,3 +2820,28 @@ eight O eight
 
 打的过程上了A评价人声喊的太大了
 
+
+*****
+
+####  Rainwedell  
+##### 271#       发表于 2023-1-30 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59545152&amp;ptid=2116452" target="_blank">CswStar 发表于 2023-1-30 16:35</a>
+打了三关，这节奏也太苛刻了，我的同步率才勉强到50%，音游也太恐怖了吧
+
+这游戏也没解决act里群挑太 ...</blockquote>
+后面还会跌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我跌倒55%左右认命了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zqqwe  
+##### 272#       发表于 2023-1-30 17:38
+
+ 本帖最后由 zqqwe 于 2023-1-30 17:39 编辑 
+
+也许是因为有半吊子的乐器基础和手柄震动的反馈太好，最高难度到博物馆了同步率基本没低过80%，发挥好了有92～95%<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+立回时多用三连dash可以保持评价
+
