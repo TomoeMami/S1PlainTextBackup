@@ -2438,3 +2438,20 @@ Johanas表示虽然Tango Gameworks以恐怖游戏而闻名，但该工作室长�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  余情自取  
+##### 235#       发表于 2023-1-30 09:53
+
+最后打卡尔一股p5s打近卫明的味道啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+也是社长也是来打
+
+*****
+
+####  zid99825  
+##### 236#       发表于 2023-1-30 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59539465&amp;ptid=2116452" target="_blank"> lazycat233 发表于 2023-1-30 09:45</a> 主要是没宣发直接上架吧，没有任何预期，直接上手，就算有一些小问题但是整体体验够好。如果是宣传了好久，预期高的话一些小问题都会放大降低评价    -- 来自 能手机投票的 Stage1官方 Android客户端 </blockquote>
+顺便直接没给脑瘫媒体们送测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，shadow drop宣发真好活来自: iPhone客户端
+
