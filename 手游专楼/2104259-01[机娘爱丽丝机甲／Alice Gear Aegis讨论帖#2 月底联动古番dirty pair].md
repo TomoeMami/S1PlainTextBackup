@@ -893,3 +893,11 @@ https://twitter.com/colopl_alice/status/1619168389007540225</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202301/30/192729vn55zo2we6evv6nu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  delphinian  
+##### 231#       发表于 2023-1-30 20:29
+
+无所谓吧，大鸟主线也没多少戏份，就是个背景板，人设还抄少佐，说实话也没多招人喜欢
+

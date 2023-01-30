@@ -12227,3 +12227,33 @@ kuma不开推是对的，据说emo跟鱼一样也是个自搜狂魔，我就佩�
 由手机上传
 2023-1-30 20:20 上传
 
+
+*****
+
+####  P02  
+##### 11575#       发表于 2023-1-30 20:26
+
+<blockquote>稀勢のささ 发表于 2023-1-30 20:19
+当然是铃原拉黑小黑子啊，当然小黑子的攻击性内容里也包含“完全受不了这人，已经拉黑了”之类的 ...</blockquote>
+那倒是很正常
+
+*****
+
+####  Enakina  
+##### 11576#       发表于 2023-1-30 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547817&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-1-30 20:17</a>
+那不是活该吗不拉黑留着过年？
+kuma不开推是对的，据说emo跟鱼一样也是个自搜狂魔，我就佩服这些心 ...</blockquote>
+绘森那9岁就在全是死宅大叔的舞台做偶像活动了，一比较这都是洒洒水了
+
+*****
+
+####  稀勢のささ  
+##### 11577#       发表于 2023-1-30 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547923&amp;ptid=2078110" target="_blank">P02 发表于 2023-1-30 20:26</a>
+
+那倒是很正常</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">理解归能理解，这不只会让人更起劲吗 “她急了“
+
