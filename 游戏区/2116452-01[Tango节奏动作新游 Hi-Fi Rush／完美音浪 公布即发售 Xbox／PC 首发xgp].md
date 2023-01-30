@@ -2853,3 +2853,16 @@ eight O eight
 
 精英怪和BOSS的QTE其实就是节奏天国么，武士俳句第一印象简直节奏天国外星人翻译关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 274#       发表于 2023-1-30 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59540999&amp;ptid=2116452" target="_blank">迷途lite 发表于 2023-1-30 11:33</a>
+有没有人讲下日配和英配哪个是初设啊？看起来是欧美画风所以用了英配玩，结果退出来发现桌面上的快捷方式是 ...</blockquote>
+我玩游戏也是按照制作公司选“原配”的
+不过玩这个之前看到有人提过日配体验很好，说像扳机的动画
+我就日语开试了下，发现真的不错，甚至怀疑真的是以日配为基准做的（NPC有些台词文本和语音不太一样，不过也只说明中文翻译来源是英语文本）
+比如808的名字什么的是真的顺口，我就一直用日配玩了
+
