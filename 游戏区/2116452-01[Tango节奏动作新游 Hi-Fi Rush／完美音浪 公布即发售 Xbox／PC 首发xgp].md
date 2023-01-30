@@ -2557,3 +2557,14 @@ HIBIKI是开发代号<img src="https://static.saraba1st.com/image/smiley/face201
 
 我感觉日配挺好的，特别是一些机器人NPC配的相当到位。
 
+
+*****
+
+####  tureleona  
+##### 247#       发表于 2023-1-30 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59541073&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-1-30 11:37</a>
+
+嘴型是英配，日本元素应该是上世纪科幻作品的醍醐味，不过里面日本acg要素不少，所以也可能是制作人喜欢[ ...</blockquote>
+我选的日配，口型是明显是日语的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
