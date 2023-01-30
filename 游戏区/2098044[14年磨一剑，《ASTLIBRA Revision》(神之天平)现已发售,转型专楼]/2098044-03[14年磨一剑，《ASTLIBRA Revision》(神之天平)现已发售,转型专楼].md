@@ -6827,3 +6827,15 @@ b站专栏搜神之天平</blockquote>
 问下已经到新章了，攻略说要刷14个爱情给阿努里斯，但是我大概给了10个就提示“敞开心扉，结局改变了”，到 ...</blockquote>
 进公会就满了吧
 
+
+*****
+
+####  又花了五块钱  
+##### 3573#       发表于 2023-1-30 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59548485&amp;ptid=2098044" target="_blank">valand 发表于 2023-1-30 21:18</a>
+进公会就满了吧</blockquote>
+意思是可以继续过了3-5往下走了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
