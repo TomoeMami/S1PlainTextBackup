@@ -1212,3 +1212,11 @@ MD也不是冷门主机。但对于RPG来说，MD就是冷门主机。史克威�
 
 纸马千年之门好高啊，这作评价这么好的吗。另外尼尔我一直当动作游戏看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  疾鹏  
+##### 102#       发表于 2023-1-30 09:26
+
+不得不说传颂之物在欧美比在国内要更有受众，从久远的评价就能看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
