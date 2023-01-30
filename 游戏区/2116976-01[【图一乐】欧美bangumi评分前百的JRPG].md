@@ -1562,3 +1562,15 @@ geek度摆在这。
 
 p2和真2都是没官方英文同人自制英文补丁的典范。
 
+
+*****
+
+####  smdzh2  
+##### 133#       发表于 2023-1-30 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59543825&amp;ptid=2116976" target="_blank">shiko 发表于 2023-1-30 15:58</a>
+xb3排名这么高的东西还往泥潭搬，大胆
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+连创轨都比不过，搬就搬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

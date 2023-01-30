@@ -736,3 +736,16 @@
 
 你图没刷出来还是看岔楼了？ 我图上写着20：00开幕
 
+
+*****
+
+####  areklose  
+##### 4491#       发表于 2023-1-30 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546626&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-30 18:27</a>
+
+？？？？？？？？
+
+你图没刷出来还是看岔楼了？ 我图上写着20：00开幕</blockquote>
+哦，再认真看一下。的确是我看漏了，竟然还写了具体时间开放
+
