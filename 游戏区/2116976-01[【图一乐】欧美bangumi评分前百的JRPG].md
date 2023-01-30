@@ -1318,3 +1318,15 @@ RPGCodex排的榜单也挺神奇的
 
 <img src="https://img.saraba1st.com/forum/202301/30/115711scij5ipybcg57glv.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 111#       发表于 2023-1-30 12:05
+
+ 本帖最后由 syndrome2032 于 2023-1-30 12:08 编辑 
+
+p5 p4g p2 smt3 smt4 dsj 雷道2 奶1 奶2 dds1+2
+
+geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
+
