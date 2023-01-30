@@ -1392,3 +1392,32 @@ geek含量其实还是挺高的。毕竟这么多年altus头次爆款还得是p5
 黄油部分不服</blockquote>
 兰斯10没有英化
 
+
+*****
+
+####  zzy516232108  
+##### 118#       发表于 2023-1-30 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他的我都忍了
+
+女武神4？
+
+*****
+
+####  电磁炮233  
+##### 119#         楼主| 发表于 2023-1-30 14:10
+
+感谢帮我转帖的朋友，其实之间那个图漏的实在太多了并不是很严谨，牧场物语算不算JRPG确实有争议，我这里姑且算它是
+
+顺便放个记录时顺手做的候选名单，评分在区间内但是评分数在200-300之间的，未来随着data量增多高概率能进榜的几个游戏
+
+caligula2和蓝反帝为什么能有这么高分是我从注册到现在最疑惑的问题，LGBT加成？
+
+<img src="https://img.saraba1st.com/forum/202301/30/140712od8t00d0sfd8d0t9.png" referrerpolicy="no-referrer">
+
+<strong>82FZYFKKP_4Z[OUM[8KRZAK.png</strong> (344.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 14:07 上传
+

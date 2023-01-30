@@ -240,3 +240,24 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  mggr  
+##### 2156#       发表于 2023-1-30 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59541166&amp;ptid=2015700" target="_blank">脸宽 发表于 2023-1-30 11:44</a>
+
+有教程吗
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+打磨背壳和扳机键接触的地方，多试几次，就能解决。
+
+<img src="https://img.saraba1st.com/forum/202301/30/140948ipffg2ev43fesmvb.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230130111520.png</strong> (20.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 14:09 上传
+
