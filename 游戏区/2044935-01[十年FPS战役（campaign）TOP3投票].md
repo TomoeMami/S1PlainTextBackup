@@ -834,3 +834,27 @@ TTF2其实某种意义上算半个阀门系，关卡设计真的太阀门了，�
 
 工厂关完全就是传送门里搬过来的
 
+
+*****
+
+####  Kazepollar  
+##### 86#       发表于 2023-1-30 17:30
+
+看了一下楼主的贴子好多投票和排行榜，怀疑是Ign中国小号
+
+*****
+
+####  Kazepollar  
+##### 87#       发表于 2023-1-30 17:30
+
+看了一下楼主的贴子好多投票和排行榜，怀疑是Ign中国小号
+
+*****
+
+####  byisme001  
+##### 88#       发表于 2023-1-30 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59545940&amp;ptid=2044935" target="_blank">Kazepollar 发表于 2023-1-30 17:30</a>
+看了一下楼主的贴子好多投票和排行榜，怀疑是Ign中国小号</blockquote>
+ign中国也不是自己出视频，基本就是汉化组啊
+
