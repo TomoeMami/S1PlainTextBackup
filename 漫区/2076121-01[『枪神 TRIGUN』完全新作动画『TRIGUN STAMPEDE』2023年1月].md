@@ -2858,3 +2858,15 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 新版这张衰仔脸说话真的是没啥说服力，还有最新一集牧师打扮得也太像韩寒了
 
+
+*****
+
+####  saturnus  
+##### 266#       发表于 2023-1-30 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59536743&amp;ptid=2076121" target="_blank">宝月夜宵 发表于 2023-1-29 23:40</a>
+亚伯还有个人皇妹妹呀
+
+一生的遗憾，圣魔之血的时髦度加上现在资源不知有多屌 ...</blockquote>
+人皇妹妹=牧师基友吧，都属于敌对阵营，都因主角在决战前牺牲，内心深处都能理解主角<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
