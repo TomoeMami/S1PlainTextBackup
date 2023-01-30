@@ -776,3 +776,11 @@
 明天要是没所长卡池，就要化身月黑了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必不可能有
 
+
+*****
+
+####  qixinno2  
+##### 4495#       发表于 2023-1-30 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">无所谓 反正我只有2石 连绿方块都抽不了
+
