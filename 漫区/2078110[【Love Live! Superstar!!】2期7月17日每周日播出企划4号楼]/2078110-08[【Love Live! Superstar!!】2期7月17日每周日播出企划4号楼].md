@@ -12115,3 +12115,38 @@ non这像是被事务所给教育了，今天赶紧发了个文
 
 铃原的性格本来就阴暗，现在能把这样的话说出来说明慢慢在改变挺好的，估计队友给了不少帮助
 
+
+*****
+
+####  稀勢のささ  
+##### 11564#       发表于 2023-1-30 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抗压确实不咋滴，推特好像拉黑了不少人（然后被拉黑的人更起劲了）
+
+*****
+
+####  nufawneafg  
+##### 11565#       发表于 2023-1-30 19:58
+
+还是太年轻了，容易钻牛角尖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 11566#       发表于 2023-1-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547534&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-1-30 19:54</a>
+抗压确实不咋滴，推特好像拉黑了不少人（然后被拉黑的人更起劲了）</blockquote>
+还能看别人拉黑谁吗，突然有趣起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11567#       发表于 2023-1-30 20:01
+
+被上头大人直言你不如别人，练一年再出来
+
+是你你也麻
+
+有句话我憋好久了，稀势のささ老哥是不是把这边当管人代餐啊？环境不同直接平移那边思路过来是不是略
+
