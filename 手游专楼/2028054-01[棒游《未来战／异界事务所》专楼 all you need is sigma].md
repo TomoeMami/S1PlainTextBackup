@@ -101,3 +101,14 @@ T7有钱有肝（挂）太强了 潜力无限的 黑套是给穷人保底的
 
 —— 来自 vivo V2183A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 832#         楼主| 发表于 2023-1-30 13:38
+
+ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是六翼，估计要打罗有病了，管理者估计要走到台前了。
+命座和当初再武装一样，典型的解决韩服溢出资源，其他服遭殃，再武装产能跟不上，现在搞出来个命座。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
