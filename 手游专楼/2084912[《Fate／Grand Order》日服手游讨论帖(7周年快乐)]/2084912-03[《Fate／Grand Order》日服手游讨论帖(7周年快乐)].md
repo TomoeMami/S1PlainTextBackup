@@ -784,3 +784,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">无所谓 反正我只有2石 连绿方块都抽不了
 
+
+*****
+
+####  sosgame67  
+##### 4496#       发表于 2023-1-30 21:39
+
+所长最快也要周年或者下个元旦吧，当然欢迎螺旋社打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2965,3 +2965,18 @@ tango某种程度也算卡普空青训营出来的吧<img src="https://static.sa
 
 主设计师就是四叶草老人 肯定有卡普空味啊
 
+
+*****
+
+####  阿卵真是牛逼  
+##### 284#       发表于 2023-1-30 21:33
+
+最近下野纮含量超标了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  back57992  
+##### 285#       发表于 2023-1-30 21:40
+
+玩了一下 感觉像是ps2游戏 便利性功能挺现代，换言之ps2时代叼
+
