@@ -12150,3 +12150,27 @@ non这像是被事务所给教育了，今天赶紧发了个文
 
 有句话我憋好久了，稀势のささ老哥是不是把这边当管人代餐啊？环境不同直接平移那边思路过来是不是略
 
+
+*****
+
+####  长日留痕  
+##### 11568#       发表于 2023-1-30 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547388&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-1-30 19:42</a>
+
+@长日留痕
+
+薇恩也是三期，压力不大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">VN差不多相当于二期生了，和青山姐来自同一星系（确信）
+
+*****
+
+####  稀勢のささ  
+##### 11569#       发表于 2023-1-30 20:10
+
+ 本帖最后由 稀勢のささ 于 2023-1-30 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59547600&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-30 20:00</a>
+
+还能看别人拉黑谁吗，突然有趣起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是在这MC之后看了看5厕才知道的，去年的事了，被拉黑的几个B攻击性也确实很强
+
