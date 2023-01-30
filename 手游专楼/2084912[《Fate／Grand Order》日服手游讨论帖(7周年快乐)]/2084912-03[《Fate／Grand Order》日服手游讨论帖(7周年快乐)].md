@@ -655,3 +655,17 @@
 该奶一下。明天会不会继续分拆！</blockquote>
 肯定拆，现在的坑就后篇不可能填完。
 
+
+*****
+
+####  廖化  
+##### 4484#       发表于 2023-1-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59544641&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-30 15:57</a>
+
+该奶一下。明天会不会继续分拆！</blockquote>
+2.7(X)
+
+2.8A（√）
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
