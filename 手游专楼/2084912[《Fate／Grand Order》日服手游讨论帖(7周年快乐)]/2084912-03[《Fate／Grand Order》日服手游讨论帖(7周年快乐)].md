@@ -692,3 +692,14 @@
 
 该出雨神了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 4487#       发表于 2023-1-30 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59545599&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-30 17:05</a>
+
+他真的很急 连惯例小把戏都不玩了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个是生放通知，开放估计要8点了
+

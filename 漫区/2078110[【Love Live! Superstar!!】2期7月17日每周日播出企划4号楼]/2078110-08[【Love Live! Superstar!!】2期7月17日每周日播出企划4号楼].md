@@ -12000,3 +12000,58 @@ horipro社长好像前天还去了现场
 
 鱼这合照是在配合LLD发售吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Enakina  
+##### 11553#       发表于 2023-1-30 18:13
+
+non这像是被事务所给教育了，今天赶紧发了个文
+【那是过去铃原的心情，绝对没有不想活在当下——铃原希实Liella!3rd巡演感想-哔哩哔哩】 https://b23.tv/x0srB1u
+
+*****
+
+####  P02  
+##### 11554#       发表于 2023-1-30 18:17
+
+合鲤
+
+1675073648115.jpg
+(234.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-30 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202301/30/181717ogm0wymvzypoerjp.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11555#       发表于 2023-1-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59546474&amp;ptid=2078110" target="_blank">Enakina 发表于 2023-1-30 18:13</a>
+
+non这像是被事务所给教育了，今天赶紧发了个文
+
+【那是过去铃原的心情，绝对没有不想活在当下——铃原希实Li ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那话听着是很烦啊，相比起来彩就专业多了，好感度UPUP
+
+*****
+
+####  lj205  
+##### 11556#       发表于 2023-1-30 18:20
+
+推上写未来的声音，微博写可香，暗示着合鲤的美好未来<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 11557#       发表于 2023-1-30 18:21
+
+<blockquote>Enakina 发表于 2023-1-30 18:13
+non这像是被事务所给教育了，今天赶紧发了个文
+
+【那是过去铃原的心情，绝对没有不想活在当下——铃原希实Li ...</blockquote>
+还是个孩子
+
