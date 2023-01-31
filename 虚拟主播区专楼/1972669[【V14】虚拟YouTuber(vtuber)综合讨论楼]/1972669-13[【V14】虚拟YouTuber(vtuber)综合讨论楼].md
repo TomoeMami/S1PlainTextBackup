@@ -2227,3 +2227,13 @@ neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚�
 
 3w2你圈什么水平
 
+
+*****
+
+####  真飞鸟i  
+##### 18492#       发表于 2023-1-31 23:37
+
+木口第一不如虹，v圈前几 吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
