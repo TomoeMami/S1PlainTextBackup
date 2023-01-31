@@ -2140,3 +2140,30 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 怎么女生的塔罗都那么好看<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">要找代购了吗
 
+
+*****
+
+####  格林卡罗尔  
+##### 18485#       发表于 2023-1-31 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59552100&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2023-1-31 08:46</a>
+
+瞄了一眼股价……
+
+已经比开盘价低一千日元了</blockquote>
+还不确定是不是，但名字是VTA最后的一期生
+[https://twitter.com/hayasuzu0202](https://twitter.com/hayasuzu0202)
+
+*****
+
+####  fastary  
+##### 18486#       发表于 2023-1-31 17:39
+
+望月好会画<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+人都死半年了还是想买黛灰美图谷<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+已化身“看到美丽柄图就开始感慨黛灰要是还没毕业没准也能吃上口小锅饭”地缚灵<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+三年还是太短了……
+

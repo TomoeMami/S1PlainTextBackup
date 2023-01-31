@@ -847,3 +847,13 @@ B站直播间：[https://live.bilibili.com/21462472](https://live.bilibili.com/2
 
 所以这种全方位散发暴死气息的作品当然要观望到发售以后啦，还怕断货涨价不成<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 80#       发表于 2023-1-31 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59557548&amp;ptid=2051671" target="_blank">毛头小希 发表于 2023-1-31 17:08</a>
+从老爱知道的森仓，妹子确实画的很美很可爱，这是我第一次看她画的男人，果然一股画惯了萌萌美少女画出来的 ...</blockquote>
+男的应该不是森仓画的，是足立，那画风很明显。
+
