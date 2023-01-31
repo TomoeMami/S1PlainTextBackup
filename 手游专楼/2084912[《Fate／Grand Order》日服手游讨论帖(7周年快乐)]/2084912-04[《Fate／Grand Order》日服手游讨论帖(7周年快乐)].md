@@ -373,3 +373,151 @@ fgo作为2016年的手游业界奇迹，它在向我们展示，在2023年，它
 
 nb，堪比奇迹48h的好活
 
+
+*****
+
+####  kuarwbwe  
+##### 4543#       发表于 2023-1-31 18:43
+
+就螺旋社现在这惨样，还不如按我之前说的，延到情人节以后出得了。不过就你游这样估计他们也不在乎丢人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4544#       发表于 2023-1-31 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558480&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-31 18:33</a>
+
+我输了。竟然是延期。这样的话。情人节根本没时间做吧。是不是今年没情人节了 ...</blockquote>
+以前情人节不是1月底就是2月初，总之是情人节前就会开，今次可能拖到2.14正日吧
+
+不过以前开主线的话，那个月就会草，千万不要说中今年是情人和白色情人合併吧...
+
+*****
+
+####  UnrealApartheid  
+##### 4545#       发表于 2023-1-31 18:44
+
+帝王花灵衣，开放
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Jamaisvu  
+##### 4546#       发表于 2023-1-31 18:45
+
+ 本帖最后由 Jamaisvu 于 2023-1-31 18:52 编辑 
+
+雨神是伪装者，估计缝了南蜂鸟。
+
+话说宝具还是1.5那种？？？，估计要通关才能正常倍率。
+
+烟雾镜竟然是杀阶，看来冠位狂果然换人了，希望孙悟空那个预测是真的...
+
+话说冥界果然和艾蕾有关啊，不知道黑不黑化...
+
+*****
+
+####  UnrealApartheid  
+##### 4547#       发表于 2023-1-31 18:46
+
+ 本帖最后由 UnrealApartheid 于 2023-1-31 18:52 编辑 
+
+新从者，烟雾镜
+
+EDIT：认错了，抱歉，是Assassin
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 4548#       发表于 2023-1-31 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558597&amp;ptid=2084912" target="_blank">UnrealApartheid 发表于 2023-1-31 18:46</a>
+
+新从者，复仇者烟雾镜
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 不是阿杀信吗
+
+*****
+
+####  khxooo  
+##### 4549#       发表于 2023-1-31 18:47
+
+冠位狂，但是杀阶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnrealApartheid  
+##### 4550#       发表于 2023-1-31 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558604&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-01-31 18:47:11</a>
+？ 不是阿杀信吗</blockquote>认错了，抱歉
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  khxooo  
+##### 4551#       发表于 2023-1-31 18:49
+
+艾蕾！！！！！
+
+*****
+
+####  angelooo  
+##### 4552#       发表于 2023-1-31 18:50
+
+再也没有什么冠位狂了哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  Erikas  
+##### 4553#       发表于 2023-1-31 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了
+
+*****
+
+####  areklose  
+##### 4554#       发表于 2023-1-31 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558572&amp;ptid=2084912" target="_blank">eilot 发表于 2023-1-31 18:43</a>
+
+以前情人节不是1月底就是2月初，总之是情人节前就会开，今次可能拖到2.14正日吧
+
+不过以前开主线的话，那 ...</blockquote>
+我意思不是日程。我是说主线都没做完。除非提前做了情人节的。否则来不及做吧
+
+*****
+
+####  rooarr  
+##### 4555#       发表于 2023-1-31 18:53
+
+这也能延期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 4556#       发表于 2023-1-31 18:53
+
+这也能延期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4557#       发表于 2023-1-31 18:54
+
+烟雾镜虽然是杀阶输出这个尴尬的定位...不过至少有追星的加成在里面，不至于太弱吧...
+
+（难不成是来取代王哈的...）
+
+*****
+
+####  LrGsite  
+##### 4558#       发表于 2023-1-31 18:55
+
+图转群，川澄北<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过说回来延期两次是真没想到啊，绝对是事故了
+
