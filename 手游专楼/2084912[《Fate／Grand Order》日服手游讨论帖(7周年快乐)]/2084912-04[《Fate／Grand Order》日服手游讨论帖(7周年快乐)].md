@@ -1016,3 +1016,16 @@ PV里的...这是谁捞上来的海葵？
 以现在标准要补偿多少石头啊</blockquote>
 之前都说了，以后无论维护多长时间，上限统一10个石头10个金苹果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 4612#       发表于 2023-1-31 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560697&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-31 21:41</a>
+
+之前都说了，以后无论维护&amp;# ...</blockquote>
+开始主线、维修，再开，那就赔一次
+
+之后系统回流，再维修，再开，又赔多次
+
