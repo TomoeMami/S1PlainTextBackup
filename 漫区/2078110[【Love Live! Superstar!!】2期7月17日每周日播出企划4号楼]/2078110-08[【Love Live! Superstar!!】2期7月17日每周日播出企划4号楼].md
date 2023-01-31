@@ -12718,3 +12718,13 @@ talk show
 
 2023-1-31 15:07 上传
 
+
+*****
+
+####  ads147147  
+##### 11620#       发表于 2023-1-31 15:30
+
+sif 3月31停服。国服没说，没看到有离线版，估摸着会无缝衔接sif2。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
