@@ -1716,3 +1716,81 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 5护符果然毫无收获<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 4683#       发表于 2023-1-31 23:13
+
+明年国服开池子我抽个雨神收藏，要是出了烟雾镜我就直接把他分了。练都不练。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+2.0快收尾了还能整这种击穿下限的立绘，也是牛逼。但一想到是这游戏好像又挺正常了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 4684#       发表于 2023-1-31 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561602&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-31 23:02</a>
+
+广江礼威其实也是老漫画家了在FGO这堆外援里算是超水平发挥
+
+我推荐蘑菇去粉一下大暮维人或 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位我有印象，之前给对魔忍RPG画的角色也还可以，可能因为对魔忍的画风也比较混杂
+
+*****
+
+####  qixinno2  
+##### 4685#       发表于 2023-1-31 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD为什么不让HXD来画南丁
+
+*****
+
+####  alucardcz  
+##### 4686#       发表于 2023-1-31 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戈壁看到个新的2.7banner.   不知道是真的没完还是打的途中会变
+
+*****
+
+####  alucardcz  
+##### 4687#       发表于 2023-1-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561753&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2023-1-31 23:13</a>
+
+明年国服开池子我抽个雨神收藏，要是出了烟雾镜我就直接把他分了。练都不练。
+
+2.0快收尾了还能整这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一日服又登顶了怎么办(
+
+*****
+
+####  Humpy  
+##### 4688#       发表于 2023-1-31 23:21
+
+<img src="https://img.saraba1st.com/forum/202301/31/232056dlvoz04e06sccuu6.png" referrerpolicy="no-referrer">
+
+<strong>对比.png</strong> (124.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 23:20 上传
+
+在NGA看到一张CG感觉特别有打牌味，加了一点内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4689#       发表于 2023-1-31 23:21
+
+<img src="https://img.saraba1st.com/forum/202301/31/232002f5jtm65d35gpzpth.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 23:20 上传
+
+就不能让田岛画个草稿人设，然后交给其他专业画师完成立绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
