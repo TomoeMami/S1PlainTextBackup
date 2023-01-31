@@ -12798,3 +12798,13 @@ pv2 该端上来了吧
 
 国服也停，这倒是都计划联系好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 11629#       发表于 2023-1-31 17:54
+
+上游戏把卡面都截图保存了
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
