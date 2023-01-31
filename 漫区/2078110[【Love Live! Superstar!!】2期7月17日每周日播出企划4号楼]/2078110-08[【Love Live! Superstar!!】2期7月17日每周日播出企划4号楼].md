@@ -12881,3 +12881,14 @@ pv2 该端上来了吧
 难道不是因为西武能出声+虹动画碟卖完了吗？不如说这样初动都还只有1万真是一副药丸的样子。倒是你 ...</blockquote>
 正常吧，电视节目曲广播节目曲都这么玩
 
+
+*****
+
+####  稀勢のささ  
+##### 11638#       发表于 2023-2-1 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563016&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-1 01:19</a>
+
+正常吧，电视节目曲广播节目曲都这么玩，节目得一直做，歌是活的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要印象里看过的为数不多几个综艺也没放歌的，可能刚好没有
+
