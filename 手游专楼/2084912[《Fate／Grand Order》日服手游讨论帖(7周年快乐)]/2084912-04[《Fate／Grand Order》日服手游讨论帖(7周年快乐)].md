@@ -2101,3 +2101,32 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rooarr  
+##### 4723#       发表于 2023-2-1 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563146&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-1 01:40</a>
+ 用羽蛇神打她就能削Buff，上&amp;#x62D ...</blockquote>
+之前5ap的基本都是拖过去就行，我用了两个灵脉石打到25t还没过，才想起来去看看攻略<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4724#       发表于 2023-2-1 01:51
+
+<blockquote>RiesbyfeAtlasia 发表于 2023-2-1 00:16
+你游用过伯爵称呼艾德蒙吗
+
+我感觉这个伯爵应该是未出场的新角色</blockquote>
+復讐者、として世界最高の知名度を有する人物。
+
+通称「巌窟王」もしくは「モンテ・クリスト伯爵」として知られる。
+
+人物资料里有这个称呼，剧情里没印象了...
+
+主要是突然空降一个新角色说他一直默默监视迦勒底，然后大家还都不知道，这安保系统也太掉价了...
+
+（不过小教授也属于无法预料的人，虽然不能说完全和迦勒底没交集，毕竟年长版一直在......但此伯爵非彼伯爵也有可能。）
+
