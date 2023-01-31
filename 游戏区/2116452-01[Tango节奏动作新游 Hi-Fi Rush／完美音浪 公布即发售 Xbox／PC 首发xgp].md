@@ -3113,3 +3113,11 @@ a9某些人脑子里就全是屎。
 
 要是首发xgp，就是xgp/微软又毁了一款游戏。
 
+
+*****
+
+####  Tissuesea  
+##### 300#       发表于 2023-1-31 13:16
+
+笔记本玩这个可能会卡就开始云了，看日配出double rift这招总是想起XB2啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。还有云的时候感觉先看动画一样，就是跑路和打架的时间感觉有点长
+
