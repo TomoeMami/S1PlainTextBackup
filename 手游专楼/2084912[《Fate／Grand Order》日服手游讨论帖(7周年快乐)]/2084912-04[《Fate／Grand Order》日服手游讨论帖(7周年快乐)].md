@@ -916,3 +916,11 @@ PV里的...这是谁捞上来的海葵？
 
 这宝具看着都挺拉胯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4602#       发表于 2023-1-31 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这么丑还是杀 萌新又不傻 护符都不会丢一张 有本事做成拐啊
+
