@@ -32,3 +32,21 @@ P流汗.jpg
 
 翼终于来了，上次发型吃了井，这次应该不至于吧，梦一个免费20连直接出货
 
+
+*****
+
+####  花开安菲路  
+##### 7073#       发表于 2023-1-31 14:37
+
+60抽歪了桃子SHS，出了张没有的SSR就还行，对这游戏爆率已经没有奢望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 7074#       发表于 2023-1-31 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59554700&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-1-31 12:58</a>
+
+翼终于来了，上次发型吃了井，这次应该不至于吧，梦一个免费20连直接出货 ...</blockquote>
+有白嫖10连送的吗？明天开始？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
