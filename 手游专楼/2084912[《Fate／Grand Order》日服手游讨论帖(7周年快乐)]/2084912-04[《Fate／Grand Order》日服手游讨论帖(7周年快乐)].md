@@ -1511,3 +1511,83 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 帝王花有没即死耐性，2百万血再无限使用HP增殖，拖了十回合都未完，宝具又无效，又绑了小文西和羽神
 
+
+*****
+
+####  exiaexa  
+##### 4663#       发表于 2023-1-31 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561243&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:28</a>
+
+话说烟雾镜50自冲30群充啊  大佬为了你多核的未来 该满宝了!</blockquote>
+人不能，至少不应该
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4664#       发表于 2023-1-31 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561285&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-31 22:31</a>
+
+1W多点的ATK因为杀阶的0.9倍实际等于1W都不到，这数值太棒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 你可以喂120+2000
+
+*****
+
+####  都谷捻柏  
+##### 4665#       发表于 2023-1-31 22:32
+
+2.7的卡只有这种强度么，也太寒酸了。你们这样，会显得ORT就是个菜比啊。
+
+*****
+
+####  黑上シグマ  
+##### 4666#       发表于 2023-1-31 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561290&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:31</a>
+
+不要慌 你可以喂120+2000</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不抽的，你在说什么怪话
+
+*****
+
+####  リッチ  
+##### 4667#       发表于 2023-1-31 22:33
+
+为了麻婆的新四星礼装抽了两单，烟雾镜四宝了
+
+现在看着三破立绘感觉心情很平静<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 4668#       发表于 2023-1-31 22:36
+
+不过有钱人拉满应该是个强力副手吧，只能说还好是杀阶，狂阶今晚论坛要论战了
+
+*****
+
+####  霧谷藤乃  
+##### 4669#       发表于 2023-1-31 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561181&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:21</a>
+
+2023年第2个5星从者 怎么了!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真请fgo不要再消费老漫画家了，奥伯龙就是个错误的开始
+
+*****
+
+####  kyonkoism  
+##### 4670#       发表于 2023-1-31 22:41
+
+<img src="https://img.saraba1st.com/forum/202301/31/224105xmtdmzttycyg3g7g.jpg" referrerpolicy="no-referrer">
+
+<strong>4VXZ5SQ{TCU`L8$~RX70_O6.jpg</strong> (59.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:41 上传
+
+配上一行字就让我笑了2分钟，这立绘确实太顶级了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
