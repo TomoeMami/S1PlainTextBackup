@@ -1053,3 +1053,102 @@ PV里的...这是谁捞上来的海葵？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神TM一括要下1.5G
 
+
+*****
+
+####  霧谷藤乃  
+##### 4616#       发表于 2023-1-31 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下载快300M，大概有戏？反正我还没推到后面
+
+*****
+
+####  黑上シグマ  
+##### 4617#       发表于 2023-1-31 22:05
+
+烟雾镜的立绘哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  Jamaisvu  
+##### 4618#       发表于 2023-1-31 22:05
+
+ 本帖最后由 Jamaisvu 于 2023-1-31 22:11 编辑 
+
+搬运一下新角色解包：
+
+烟雾镜：
+
+<img src="https://img.saraba1st.com/forum/202301/31/220526hzghgjxfswg2ph9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (435.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202301/31/221054o9bc6mc5y9bmtytk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:10 上传
+
+雨神：
+
+<img src="https://img.saraba1st.com/forum/202301/31/220548omsjjhgfshfemscc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (447.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202301/31/221103cwlxx1lw7w7xwaxa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:11 上传
+
+*****
+
+####  khxooo  
+##### 4619#       发表于 2023-1-31 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4620#       发表于 2023-1-31 22:09
+
+<img src="https://img.saraba1st.com/forum/202301/31/220903qmhs2h0khkkubo9h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:09 上传
+
+太TM丑了，我这就把多重人格侦探的漫画放进地下室去...
+
+武内这是收了劣质立绘后决定和田岛互相伤害是吧...
+
+
+*****
+
+####  霧谷藤乃  
+##### 4621#       发表于 2023-1-31 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有开新池子，有勇士上么
+
+*****
+
+####  miro112233  
+##### 4622#       发表于 2023-1-31 22:11
+
+谢谢FGO带给我的小小震撼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
