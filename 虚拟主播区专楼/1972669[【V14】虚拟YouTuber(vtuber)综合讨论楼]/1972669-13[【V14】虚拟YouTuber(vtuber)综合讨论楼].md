@@ -2219,3 +2219,11 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚拟桃源了...
 
+
+*****
+
+####  Ouro_Kronii  
+##### 18491#       发表于 2023-1-31 23:28
+
+3w2你圈什么水平
+

@@ -1794,3 +1794,56 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 就不能让田岛画个草稿人设，然后交给其他专业画师完成立绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 4690#       发表于 2023-1-31 23:27
+
+看剧透2.7是真结束了，后半劲爆元素还是挺多的不多剧透，能说的就是异星神不出意外和大伙猜的一样
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Karen329  
+##### 4691#       发表于 2023-1-31 23:28
+
+我算看出来了，型月还是离不开同人社团的根，FGO与其说是一款手机游戏，不如说是一个许多创作者命题创作大型合订同人本。
+
+*****
+
+####  Karen329  
+##### 4692#       发表于 2023-1-31 23:28
+
+我算看出来了，型月还是离不开同人社团的根，FGO与其说是一款手机游戏，不如说是一个许多创作者命题创作大型合订同人本。
+
+*****
+
+####  保罗赫伯特  
+##### 4693#       发表于 2023-1-31 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561860&amp;ptid=2084912" target="_blank">Humpy 发表于 2023-1-31 23:21</a>
+
+在NGA看到一张CG感觉特别有打牌味，加了一点内容</blockquote>
+看起来像是要雷普了似的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4694#       发表于 2023-1-31 23:29
+
+大蜘蛛还是没了，嘛看剧透起码有牌面，逼格没掉就是了。
+
+*****
+
+####  kuarwbwe  
+##### 4695#       发表于 2023-1-31 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561837&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 23:19</a>
+
+万一日服又登顶了怎么办(</blockquote>
+真登顶了我也完全不意外，倒不如说这游戏七年了，件事过破游**小小节奏的人都不会指望日本人能站出来炎上。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+硬要说的话，这次要是卡池收入差点我还能感慨一句太君还有点救。
+
