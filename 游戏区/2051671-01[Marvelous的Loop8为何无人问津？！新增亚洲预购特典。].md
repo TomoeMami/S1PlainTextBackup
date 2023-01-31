@@ -829,3 +829,21 @@ B站直播间：[https://live.bilibili.com/21462472](https://live.bilibili.com/2
 
 3月买游戏的压力小了
 
+
+*****
+
+####  毛头小希  
+##### 79#       发表于 2023-1-31 17:08
+
+从老爱知道的森仓，妹子确实画的很美很可爱，这是我第一次看她画的男人，果然一股画惯了萌萌美少女画出来的那种gal男主味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+特别是大概男二位？的那个眼镜仔，角色介绍好像说是失忆帅哥吧
+
+但是我左看右看不管是五官还是发型还是服装特别那副眼镜都是土中土
+
+妹子们嘛，光看脸也都是很模板，模板巫女，模板洋妞，模板兽耳娘，模板阳光现充，模板妹妹etc
+
+再看系统，也有种制作组拼命在说“我们准备整一个很有深度很有创意的大活哦！”但是整砸几率极高的感觉
+
+所以这种全方位散发暴死气息的作品当然要观望到发售以后啦，还怕断货涨价不成<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

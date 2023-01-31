@@ -80,3 +80,24 @@ Data lost battle，果然是小号百重塔吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哇 今天居然还开了3个辣鸡本 诸位 感动吗
 
+
+*****
+
+####  eilot  
+##### 4509#       发表于 2023-1-31 17:04
+
+ 本帖最后由 eilot 于 2023-1-31 17:07 编辑 
+
+素材礼装今天才开???
+
+太感动了
+
+不过主线还未开...可以先放工回家后才开始
+
+*****
+
+####  alucardcz  
+##### 4510#       发表于 2023-1-31 17:05
+
+主线20点 日本时间（<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

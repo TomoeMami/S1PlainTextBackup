@@ -12790,3 +12790,11 @@ pv2 该端上来了吧
 
 日服停了，国服该怎么苟呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吊游戏也给我搞个单机版留个念想嘛。
 
+
+*****
+
+####  nufawneafg  
+##### 11628#       发表于 2023-1-31 17:07
+
+国服也停，这倒是都计划联系好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
