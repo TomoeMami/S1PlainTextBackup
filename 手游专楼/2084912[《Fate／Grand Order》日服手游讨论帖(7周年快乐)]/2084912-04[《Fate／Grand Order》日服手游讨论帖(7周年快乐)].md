@@ -101,3 +101,18 @@ Data lost battle，果然是小号百重塔吗</blockquote>
 
 主线20点 日本时间（<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仰望神的括约肌  
+##### 4511#       发表于 2023-1-31 18:01
+
+延期了 补偿10石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4512#       发表于 2023-1-31 18:02
+
+延期了哈哈哈哈哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
