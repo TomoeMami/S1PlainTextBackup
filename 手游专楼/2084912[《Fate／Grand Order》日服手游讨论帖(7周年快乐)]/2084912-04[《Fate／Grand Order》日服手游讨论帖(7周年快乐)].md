@@ -308,3 +308,68 @@ Data lost battle，果然是小号百重塔吗</blockquote>
 
 我只能说太nb了，还是那种我有心理准备但还是被震撼到的nb。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AbigailWilliams  
+##### 4535#       发表于 2023-1-31 18:32
+
+fgo作为2016年的手游业界奇迹，它在向我们展示，在2023年，它依旧是新时代手游业界的奇迹游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">业界头部手游我就问谁敢学
+
+*****
+
+####  黑上シグマ  
+##### 4536#       发表于 2023-1-31 18:33
+
+光头的推特：哈延期了？！
+
+*****
+
+####  areklose  
+##### 4537#       发表于 2023-1-31 18:33
+
+我输了。竟然是延期。这样的话。情人节根本没时间做吧。是不是今年没情人节了
+
+*****
+
+####  仰望神的括约肌  
+##### 4538#       发表于 2023-1-31 18:34
+
+尼托池明天结束 卡池高低得来一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4539#       发表于 2023-1-31 18:34
+
+所长可能真要周年出了吧......而且搞不好是2.7完结后紧接着出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  廖化  
+##### 4540#       发表于 2023-1-31 18:34
+
+就这产能别做游戏了，回家卖红薯吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4541#       发表于 2023-1-31 18:35
+
+<img src="https://img.saraba1st.com/forum/202301/31/183524k3vvnjnikzwfnnon.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230131_183510_tv.danmaku.bili.jpg</strong> (403 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 18:35 上传
+
+群 魔 乱 舞
+
+*****
+
+####  壳壳牛  
+##### 4542#       发表于 2023-1-31 18:41
+
+nb，堪比奇迹48h的好活
+
