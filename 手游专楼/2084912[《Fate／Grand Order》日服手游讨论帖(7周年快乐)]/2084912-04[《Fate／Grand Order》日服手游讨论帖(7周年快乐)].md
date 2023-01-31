@@ -1908,3 +1908,68 @@ D74677B1-2256-4383-816F-1D4BB420D7BD.png
 
 妈的就这？
 
+
+*****
+
+####  Jamaisvu  
+##### 4702#       发表于 2023-1-31 23:53
+
+蝙蝠神是beast......感觉实装可能性下降了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4703#       发表于 2023-1-31 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562092&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-31 23:43</a>
+
+啥？狛爵是反贼？</blockquote>
+老福是侦探，莫里亚蒂是教授，所以伯爵应该是代号而不是指仇阶那个伯爵。
+
+*****
+
+####  里村紅葉  
+##### 4704#       发表于 2023-1-31 23:55
+
+所以那个date lost battle是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4705#       发表于 2023-1-31 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562149&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-1-31 23:48</a>
+
+还以为能像金星UO一样变成美少女
+
+妈的就这？</blockquote>
+金星天之亡骸那个我记得人形是个金发沙耶（误）。
+
+ORT就变成个宝可梦，蘑菇的审美下降了啊......
+
+*****
+
+####  gpx234mqx  
+##### 4706#       发表于 2023-1-31 23:57
+
+还有烟雾j想请王哈退一下，那他就是冠位杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4707#       发表于 2023-1-31 23:58
+
+果然之后都是锁助战，不过小妖精都算好，用自己的可以突满宝石翁先开一炮之后技2再多一炮，可惜还是宝4中，绑学妹更要绑前场才噁心，还要限4人出战，令咒也不是经常用到
+
+*****
+
+####  eilot  
+##### 4708#       发表于 2023-2-1 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562217&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-31 23:55</a>
+
+所以那个date lost battle是什么东西</blockquote>
+千万不要来主线来百层塔，如果没浴室休息室的话就**拖慢游戏进度，
+
+或者和以前的百层塔大多都是1万多血兼没甚么特效，任何光炮加突满宝石翁开场来一发就完场
+
