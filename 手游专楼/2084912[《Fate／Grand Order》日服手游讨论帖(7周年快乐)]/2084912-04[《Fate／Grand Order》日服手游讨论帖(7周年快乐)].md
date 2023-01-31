@@ -1029,3 +1029,27 @@ PV里的...这是谁捞上来的海葵？
 
 之后系统回流，再维修，再开，又赔多次
 
+
+*****
+
+####  rooarr  
+##### 4613#       发表于 2023-1-31 21:58
+
+来来来，准备开游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4614#       发表于 2023-1-31 22:02
+
+终于都开了
+
+先下载200MB
+
+*****
+
+####  黑上シグマ  
+##### 4615#       发表于 2023-1-31 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神TM一括要下1.5G
+
