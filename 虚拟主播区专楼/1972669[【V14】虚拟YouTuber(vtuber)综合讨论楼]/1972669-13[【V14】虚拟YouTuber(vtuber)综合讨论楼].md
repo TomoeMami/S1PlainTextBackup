@@ -2109,3 +2109,26 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 瞄了一眼股价……
 已经比开盘价低一千日元了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 18481#       发表于 2023-1-31 08:46
+
+瞄了一眼股价……
+已经比开盘价低一千日元了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 18482#       发表于 2023-1-31 09:34
+
+昨天大晚上vspo竟然没人播，令人发指啊
+
+*****
+
+####  rzrbtk  
+##### 18483#       发表于 2023-1-31 13:56
+
+被温度差气晕，月之对索菲亚是“想约出去玩解谜”，对透就扔给豆猫组烟鬼俱乐部，リョナ爱好者差不多得了
+
