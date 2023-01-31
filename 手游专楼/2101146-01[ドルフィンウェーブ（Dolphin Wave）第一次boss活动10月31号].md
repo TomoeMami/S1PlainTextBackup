@@ -168,3 +168,26 @@
 
 风怒
 
+
+*****
+
+####  小五的拖鞋  
+##### 248#         楼主| 发表于 2023-1-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59554393&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-1-31 12:24</a>
+
+增量氪金包会每月刷新吗？这次又黑了难受</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">超出我的知识范围了，wiki上没找到
+
+*****
+
+####  小五的拖鞋  
+##### 249#         楼主| 发表于 2023-1-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558022&amp;ptid=2101146" target="_blank">无念 发表于 2023-1-31 17:48</a>
+
+这次是没倍卡对吧，那我70抽毕业不用补到100抽换ur支援了咯
+
+—— 来自 HONOR SDY-AN00, Android 12上的 S1 ...</blockquote>
+没倍卡，不用补了
+
