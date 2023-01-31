@@ -837,3 +837,27 @@ PV里的...这是谁捞上来的海葵？
 我先等一个杀阶强度</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要准备狗叫了吗
 
+
+*****
+
+####  qixinno2  
+##### 4593#       发表于 2023-1-31 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新好久没抽卡了 肯定到时候一发十连豹跳的
+
+*****
+
+####  千叶铁矢  
+##### 4594#       发表于 2023-1-31 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558743&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 19:00</a>
+去看了下 真的有</blockquote>
+？？？竟然抢救回来了？
+
+*****
+
+####  里村紅葉  
+##### 4595#       发表于 2023-1-31 19:48
+
+等一个萌新十连满宝，然后上来哭诉烟雾镜强度大寄特寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
