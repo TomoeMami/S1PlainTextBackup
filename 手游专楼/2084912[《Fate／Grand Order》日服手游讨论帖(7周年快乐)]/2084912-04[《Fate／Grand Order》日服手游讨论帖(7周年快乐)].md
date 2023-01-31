@@ -1973,3 +1973,45 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 或者和以前的百层塔大多都是1万多血兼没甚么特效，任何光炮加突满宝石翁开场来一发就完场
 
+
+*****
+
+####  黑上シグマ  
+##### 4709#       发表于 2023-2-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562216&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-31 23:55</a>
+
+老福是侦探，莫里亚蒂是教&amp;#x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但，同样也可以指爱德蒙为伯爵啊……
+
+*****
+
+####  khxooo  
+##### 4710#       发表于 2023-2-1 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562330&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-1 00:03</a>
+
+但，同样也可以指爱德蒙&amp;#x ...</blockquote>
+那就看蘑菇是不是想刀玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，反正现在没有任何石锤，等更新就是了。
+
+
+*****
+
+####  gpx234mqx  
+##### 4711#       发表于 2023-2-1 00:06
+
+雨神5护符<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+本期完
+
+*****
+
+####  kuarwbwe  
+##### 4712#       发表于 2023-2-1 00:11
+
+ 本帖最后由 kuarwbwe 于 2023-2-1 00:12 编辑 
+
+反正要真是基督山伯爵，突然好奇那275会不会真是按我之前说的，让樱井光上，然后把伯爵刀了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我其实更好奇，假如275也是蘑菇写。然后伯爵真的被刀了，会不会有人把自己的不满甩给大妈。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
