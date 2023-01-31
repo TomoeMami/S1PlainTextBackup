@@ -945,3 +945,31 @@ PV里的...这是谁捞上来的海葵？
 说不定11点开2.7，然后马上说因为技术原因停服维护</blockquote>
 准时开始，即时维修，明天赔石后再维修...
 
+
+*****
+
+####  qixinno2  
+##### 4605#       发表于 2023-1-31 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560049&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 20:49</a>
+
+这么丑还是杀 萌新又不傻 护符都不会丢一张 有本事做成拐啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坐等真香
+
+*****
+
+####  SY.Autumnman  
+##### 4606#       发表于 2023-1-31 21:05
+
+这可是社长偶像的卡，等一个三技能100自充转狂阶，金时直接跪下投降<img src="https://static.saraba1st.com/image/smiley/carton2017/232.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4607#       发表于 2023-1-31 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560253&amp;ptid=2084912" target="_blank">SY.Autumnman 发表于 2023-1-31 21:05</a>
+
+这可是社长偶像的卡，等一个三技能100自充转狂阶，金时直接跪下投降</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转狂又不会加白值
+
