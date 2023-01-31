@@ -924,3 +924,24 @@ PV里的...这是谁捞上来的海葵？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这么丑还是杀 萌新又不傻 护符都不会丢一张 有本事做成拐啊
 
+
+*****
+
+####  rooarr  
+##### 4603#       发表于 2023-1-31 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560049&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 20:49</a>
+
+这么丑还是杀 萌新又不傻 护符都不会丢一张 有本事做成拐啊</blockquote>
+坐等豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4604#       发表于 2023-1-31 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59559469&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-1-31 20:00</a>
+
+说不定11点开2.7，然后马上说因为技术原因停服维护</blockquote>
+准时开始，即时维修，明天赔石后再维修...
+
