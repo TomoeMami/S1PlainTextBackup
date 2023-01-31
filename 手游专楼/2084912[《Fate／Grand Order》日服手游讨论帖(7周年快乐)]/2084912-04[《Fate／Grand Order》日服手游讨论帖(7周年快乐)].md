@@ -973,3 +973,24 @@ PV里的...这是谁捞上来的海葵？
 这可是社长偶像的卡，等一个三技能100自充转狂阶，金时直接跪下投降</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转狂又不会加白值
 
+
+*****
+
+####  里村紅葉  
+##### 4608#       发表于 2023-1-31 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560179&amp;ptid=2084912" target="_blank">eilot 发表于 2023-1-31 20:59</a>
+
+准时开始，即时维修，明天赔石后再维修...</blockquote>
+梦回开服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一口气年轻了七岁
+
+*****
+
+####  areklose  
+##### 4609#       发表于 2023-1-31 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560324&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-31 21:11</a>
+
+梦回开服一口气年轻了七岁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来个复刻48小时又48小时。
+
