@@ -870,3 +870,13 @@ ign中国也不是自己出视频，基本就是汉化组啊
 
 剩下的是泰坦陨落2和耻辱1
 
+
+*****
+
+####  faithlifer  
+##### 90#       发表于 2023-1-31 20:04
+
+ttf2没什么悬念<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
