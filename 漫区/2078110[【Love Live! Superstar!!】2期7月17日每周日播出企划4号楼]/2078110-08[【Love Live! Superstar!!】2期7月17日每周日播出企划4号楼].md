@@ -12862,3 +12862,11 @@ pv2 该端上来了吧
 九、十集算是彻底犯病前最后的余晖（?），第九集不提，第十集情况一度有所好转（可以从好评率看出）
 之后发生什么大家相必也清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 11636#       发表于 2023-2-1 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是因为西武能出声+虹动画碟卖完了吗？不如说这样初动都还只有1万真是一副药丸的样子
+
