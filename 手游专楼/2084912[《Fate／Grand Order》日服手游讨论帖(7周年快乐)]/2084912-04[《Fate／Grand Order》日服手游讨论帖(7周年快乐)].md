@@ -2015,3 +2015,20 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 不过我其实更好奇，假如275也是蘑菇写。然后伯爵真的被刀了，会不会有人把自己的不满甩给大妈。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 4713#       发表于 2023-2-1 00:13
+
+喷了，明明是2.7为什么妖兰还会有全新的差分立绘啊，真是摊到了一个好爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4714#       发表于 2023-2-1 00:16
+
+你游用过伯爵称呼艾德蒙吗
+
+我感觉这个伯爵应该是未出场的新角色
+
