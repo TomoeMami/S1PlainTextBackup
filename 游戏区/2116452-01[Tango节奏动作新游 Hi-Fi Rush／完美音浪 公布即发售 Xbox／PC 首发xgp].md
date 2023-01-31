@@ -3048,3 +3048,37 @@ tango某种程度也算卡普空青训营出来的吧<img src="https://static.sa
 
 但愿后续更新能追加上镜头控制的键位设置
 
+
+*****
+
+####  TTAA  
+##### 293#       发表于 2023-1-31 10:22
+
+这游戏在豆瓣和游民都被恶意打低分了，豆瓣都没几个人，才一天评分就从9.几掉到7.3
+
+*****
+
+####  psvsd  
+##### 294#       发表于 2023-1-31 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文很明显是从英文翻过来的
+等一个根据日文重新翻译的mod
+
+*****
+
+####  onezer0618  
+##### 295#       发表于 2023-1-31 10:27
+
+跳跃有点僵硬，手感怪怪的，学会弹反后，感觉难度高了一些（没玩过音游），不过拍子全对上还挺爽的
+
+*****
+
+####  aruruu  
+##### 296#       发表于 2023-1-31 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59552941&amp;ptid=2116452" target="_blank">TTAA 发表于 2023-1-31 10:22</a>
+这游戏在豆瓣和游民都被恶意打低分了，豆瓣都没几个人，才一天评分就从9.几掉到7.3 ...</blockquote>
+短评全是2星3星，估计是某群体受刺激了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
