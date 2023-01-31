@@ -857,3 +857,25 @@ B站直播间：[https://live.bilibili.com/21462472](https://live.bilibili.com/2
 从老爱知道的森仓，妹子确实画的很美很可爱，这是我第一次看她画的男人，果然一股画惯了萌萌美少女画出来的 ...</blockquote>
 男的应该不是森仓画的，是足立，那画风很明显。
 
+
+*****
+
+####  毛头小希  
+##### 81#       发表于 2023-1-31 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59557927&amp;ptid=2051671" target="_blank">宛若青空 发表于 2023-1-31 17:39</a>
+
+男的应该不是森仓画的，是足立，那画风很明显。</blockquote>
+我还以为森仓提供人物原案，足立负责转成动画风？
+
+搜了一下才知道足立是哪位，这不还是萌萌美少女路线的嘛
+
+反正不管哪边我对角色外观的评价都一样啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyy123  
+##### 82#       发表于 2023-1-31 18:12
+
+前几天刚预定了实体版，直接延期2个半月
+
