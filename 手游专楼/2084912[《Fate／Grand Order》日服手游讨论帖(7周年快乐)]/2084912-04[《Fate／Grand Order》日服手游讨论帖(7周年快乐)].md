@@ -1318,3 +1318,196 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 和再绑一隻不同的助战
 
+
+*****
+
+####  angelooo  
+##### 4642#       发表于 2023-1-31 22:22
+
+讲真烟雾镜的满破真的可以……但前面的几张都他妈是什么啊，顺便雨神啥时候单独up啊艹
+
+*****
+
+####  alucardcz  
+##### 4643#       发表于 2023-1-31 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该继续复习我的海猫了  明天起来是不是就能看到2.7有没有真的完结?
+
+*****
+
+####  areklose  
+##### 4644#       发表于 2023-1-31 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561106&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:16</a>
+
+解包已经出了 人类威胁特攻红卡光炮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">只能说生错职阶
+
+*****
+
+####  我爱喵喵  
+##### 4645#       发表于 2023-1-31 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">震撼我妈一整年
+
+*****
+
+####  里村紅葉  
+##### 4646#       发表于 2023-1-31 22:23
+
+外星人？别真是ort的人形端末吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 4647#       发表于 2023-1-31 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想丢个几发十连抽个雨神就跑路的，结果雨神没来，烟雾镜二宝了，说好的四星概率上调呢
+
+*****
+
+####  alucardcz  
+##### 4648#       发表于 2023-1-31 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561204&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2023-1-31 22:24</a>
+
+想丢个几发十连抽个雨神就跑路的，结果雨神没来，烟雾镜二宝了，说好的四星概率上调呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 但不羡慕
+
+*****
+
+####  areklose  
+##### 4649#       发表于 2023-1-31 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雨神看着还行，但是抽到那个五星我不能忍。
+
+*****
+
+####  exiaexa  
+##### 4650#       发表于 2023-1-31 22:27
+
+这羽蛇神肉眼可见的强，翡翠色特效也顺眼
+
+是你守护了大家的钱包，谢谢你烟雾镜
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4651#       发表于 2023-1-31 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561228&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-1-31 22:27</a>
+
+这羽蛇神肉眼可见的强
+
+是你守护了大家的钱包，谢谢你烟雾镜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是是外星人
+
+*****
+
+####  不垃圾屌丝  
+##### 4652#       发表于 2023-1-31 22:28
+
+每回合10颗星，这被动落地要缩水吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 4653#       发表于 2023-1-31 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561228&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-1-31 22:27</a>
+
+这羽蛇神肉眼可见的强，翡翠色特效也顺眼
+
+是你守护了大家的钱包，谢谢你烟雾镜
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说烟雾镜50自冲30群充啊  大佬为了你多核的未来 该满宝了!
+
+*****
+
+####  rooarr  
+##### 4654#       发表于 2023-1-31 22:28
+
+强度应该都不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 4655#       发表于 2023-1-31 22:28
+
+在群里嘲笑了10分钟之前说万一强度美所以打算抽的人
+
+想起来NGA一堆说万一是奥伯龙2.0怎么办的，现在只能说，爱跟爱也是有分别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奥伯龙三破满破我都能欣赏得来，这烟雾镜就是依托答辩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4656#       发表于 2023-1-31 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561249&amp;ptid=2084912" target="_blank">上坂莲华 发表于 2023-1-31 22:28</a>
+在群里嘲笑了10分钟之前说万一强度美所以打算抽的人
+
+想起来NGA一堆说万一是奥伯龙2.0怎么办的，现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 真奥伯龙2.0 依托答辩也得抽啊(  
+
+还好没有强度美
+
+*****
+
+####  exiaexa  
+##### 4657#       发表于 2023-1-31 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561234&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:27</a>
+
+但是是外星人</blockquote>
+当你外星人抽多了以后，就不会有这个顾虑了，反正都是靠特攻吃饭
+
+问题在于怎么又双叒叕是个地特攻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 4658#       发表于 2023-1-31 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561242&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2023-1-31 22:28</a>
+
+每回合10颗星，这被动落地要缩水吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不会缩水吧，她这仨技能每个都有消耗10颗星触发的额外效果
+
+*****
+
+####  JMFluorece  
+##### 4659#       发表于 2023-1-31 22:30
+
+这烟雾镜二破三破丑的很抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会有人喜欢这立绘吗
+
+*****
+
+####  areklose  
+##### 4660#       发表于 2023-1-31 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">其实我觉得羽蛇神现在不怎么好看。还是仇尼托好看。
+
+*****
+
+####  黑上シグマ  
+##### 4661#       发表于 2023-1-31 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1W多点的ATK因为杀阶的0.9倍实际等于1W都不到，这数值太棒了
+
+*****
+
+####  eilot  
+##### 4662#       发表于 2023-1-31 22:31
+
+帝王花有没即死耐性，2百万血再无限使用HP增殖，拖了十回合都未完，宝具又无效，又绑了小文西和羽神
+

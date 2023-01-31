@@ -2185,3 +2185,19 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 另外吐槽一下望月画的男谷感觉都被强行幼化了一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 18488#       发表于 2023-1-31 22:25
+
+<img src="https://img.saraba1st.com/forum/202301/31/222457romb1401mj04b0iz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230131222448.jpg</strong> (175.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:24 上传
+
+星街新专初动3w2
+
