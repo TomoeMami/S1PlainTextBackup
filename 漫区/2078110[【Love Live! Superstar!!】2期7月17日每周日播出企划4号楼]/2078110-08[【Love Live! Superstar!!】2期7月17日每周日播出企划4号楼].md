@@ -12892,3 +12892,22 @@ pv2 该端上来了吧
 正常吧，电视节目曲广播节目曲都这么玩，节目得一直做，歌是活的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要印象里看过的为数不多几个综艺也没放歌的，可能刚好没有
 
+
+*****
+
+####  cat1230  
+##### 11639#       发表于 2023-2-1 01:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼的经纪公司某种意义上也挺牛的，贴不到动画还能贴这个，以前没关注过，希望叔叔家有UP可以上传。
+
+*****
+
+####  nufawneafg  
+##### 11640#       发表于 2023-2-1 01:36
+
+ 本帖最后由 nufawneafg 于 2023-2-1 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563070&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-1 01:28</a>
+主要印象里看过的为数不多几个综艺也没放歌的，可能刚好没有。广播更是只有宣传的时候才会去听，根 ...</blockquote>
+已经不是三大媒介时代了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+荣耀归于因特奈特<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

@@ -2074,3 +2074,30 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 没想到蝙蝠的声优是桧山修之啊。
 
+
+*****
+
+####  rooarr  
+##### 4720#       发表于 2023-2-1 01:33
+
+有病吧，真要打200w血的帝王花啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4721#       发表于 2023-2-1 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563106&amp;ptid=2084912" target="_blank">rooarr 发表于 2023-2-1 01:33</a>
+
+有病吧，真要打200w血的帝王花啊</blockquote>
+用羽蛇神打她就能削Buff，上拐保羽蛇神就可以了。
+
+*****
+
+####  eden_hazard  
+##### 4722#       发表于 2023-2-1 01:40
+
+300来石才抽到雨神，更可气的是第一发就抽到那啥了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
