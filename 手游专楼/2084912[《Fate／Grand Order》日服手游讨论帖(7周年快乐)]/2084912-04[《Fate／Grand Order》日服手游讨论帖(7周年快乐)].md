@@ -908,3 +908,11 @@ PV里的...这是谁捞上来的海葵？
 
 如果实装也是这个ATK，然后作为输出而非拐...那就太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">杀阶君11？
 
+
+*****
+
+####  霄度天  
+##### 4601#       发表于 2023-1-31 20:26
+
+这宝具看着都挺拉胯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
