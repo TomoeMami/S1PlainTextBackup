@@ -1152,3 +1152,169 @@ PV里的...这是谁捞上来的海葵？
 
 谢谢FGO带给我的小小震撼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 4623#       发表于 2023-1-31 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560976&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-31 22:05</a>
+
+搬运一下新角色解包：
+
+烟雾镜：</blockquote>
+烟雾镜这个蓝光炮杀阶在不触发特攻的情况下感觉不如泳装女武神...
+
+雨神算是补了伪装者绿宝具的这个空缺吧...不过也没啥意思...
+
+*****
+
+####  exiaexa  
+##### 4624#       发表于 2023-1-31 22:13
+
+啊哈哈哈哈这烟雾镜什么东西啊，虽然感觉能用但是我拒绝
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+一宝雨神跑路
+
+*****
+
+####  Erikas  
+##### 4625#       发表于 2023-1-31 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4626#       发表于 2023-1-31 22:16
+
+苍月!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+我错怪你了!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+*****
+
+####  areklose  
+##### 4627#       发表于 2023-1-31 22:16
+
+开局羽蛇神助战 外星人，红色宝具用不了
+
+*****
+
+####  音無麻理亜  
+##### 4628#       发表于 2023-1-31 22:16
+
+雨神还是可爱的，但是烟雾镜让我选择攒石头<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 4629#       发表于 2023-1-31 22:16
+
+what the hell<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4630#       发表于 2023-1-31 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561093&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-31 22:16</a>
+
+开局羽蛇神助战 外星人，红色宝具用不了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解包已经出了 人类威胁特攻红卡光炮
+
+*****
+
+####  eilot  
+##### 4631#       发表于 2023-1-31 22:17
+
+感谢可以省回石头
+
+*****
+
+####  quanlix  
+##### 4632#       发表于 2023-1-31 22:17
+
+等羽蛇神了，看着解包还稍微能打一点，不过给了外星人这阶也是够操蛋的
+
+*****
+
+####  保罗赫伯特  
+##### 4633#       发表于 2023-1-31 22:17
+
+烟雾镜这突破立绘吓我一跳，不只是脸，身材比例也很奇怪，潦草到抽象的地步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一比较初始立绘反而是最能看得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 4634#       发表于 2023-1-31 22:18
+
+两宝雨神跑路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没出烟雾镜可太好了
+
+*****
+
+####  angelooo  
+##### 4635#       发表于 2023-1-31 22:18
+
+wada杀死了比赛，苍月现在不是垫底的了23333
+
+*****
+
+####  onemoment  
+##### 4636#       发表于 2023-1-31 22:19
+
+这烟雾镜立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 4637#       发表于 2023-1-31 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看到图了，之前没刷出来，这是什么啊……
+
+*****
+
+####  AbigailWilliams  
+##### 4638#       发表于 2023-1-31 22:21
+
+还好是杀阶，有钱人的强力玩具了，不然感觉还是水枪
+
+*****
+
+####  Jamaisvu  
+##### 4639#       发表于 2023-1-31 22:21
+
+<img src="https://img.saraba1st.com/forum/202301/31/222053obao9v119z9w9ve1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (512.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 22:20 上传
+
+羽蛇神这个被动有点意思，无敌效果会被换成对肃正防御...看来2.7的逼格她一人扛下了...
+
+*****
+
+####  alucardcz  
+##### 4640#       发表于 2023-1-31 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561162&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-1-31 22:20</a>
+
+我看到图了，之前没刷出来，这是什么啊……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2023年第2个5星从者 怎么了!
+
+*****
+
+####  eilot  
+##### 4641#       发表于 2023-1-31 22:21
+
+现在每一关都绑死羽蛇，不过宝具禁用
+
+和再绑一隻不同的助战
+
