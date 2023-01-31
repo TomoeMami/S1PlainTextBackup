@@ -12492,3 +12492,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 有道理……
 
+
+*****
+
+####  rs5621  
+##### 4149#       发表于 2023-1-31 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">一起发还行
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
