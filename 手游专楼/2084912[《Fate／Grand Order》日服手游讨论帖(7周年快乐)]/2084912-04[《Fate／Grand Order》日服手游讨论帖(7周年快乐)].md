@@ -173,3 +173,105 @@ Data lost battle，果然是小号百重塔吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  alucardcz  
+##### 4520#       发表于 2023-1-31 18:14
+
+延期了  牛比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4521#       发表于 2023-1-31 18:16
+
+ 本帖最后由 Jamaisvu 于 2023-1-31 18:25 编辑 
+
+废物，铁废物<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+搞得什么幺蛾子啊，看贴吧的解包说ORT战可能要弄成百重塔那种战败者水晶化无法使用的效果，那也不至于做这么长时间吧？难道2.7结束准备换UI一转3.0？
+
+可就是这么拖了一个多月也太过分了吧？这次生放YLS切腹谢罪好了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">业界笑话啊。
+
+...至少放点新人物让大家看看吧，既然敢预计今天开幕那角色应该做好了吧...实在不行把数据放进游戏让解包的弄个斗兽玩玩...
+
+*****
+
+####  黑上シグマ  
+##### 4522#       发表于 2023-1-31 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558330&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-31 18:16</a>
+
+废物，铁废物
+
+搞得什么幺蛾子啊，看贴吧的解包说ORT战可能要弄成百重塔那种战败者水晶化无法使用的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒，哪来生放，今天是录像
+
+*****
+
+####  alucardcz  
+##### 4523#       发表于 2023-1-31 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这录播还不赶紧叫停啊  丢人的
+
+*****
+
+####  里村紅葉  
+##### 4524#       发表于 2023-1-31 18:18
+
+属于是天天发通知请人看小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">录播还放不放了
+
+*****
+
+####  Jamaisvu  
+##### 4525#       发表于 2023-1-31 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558335&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-1-31 18:16</a>
+
+醒醒，哪来生放，今天是&amp;#x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">那就更艹蛋了...过于敷衍。
+
+如果一会儿YLS入镜的时候梶田光头用手上那个加特林把他突突了，我倒可能开心一下...<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4526#       发表于 2023-1-31 18:22
+
+话说生放送既然是录播，那应该有PU1的新从者情报吧...不知道池子还开不...希望不是黑豹二世。
+
+*****
+
+####  alucardcz  
+##### 4527#       发表于 2023-1-31 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558387&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-31 18:22</a>
+
+话说生放送既然是录播，那应该有PU1的新从者情报吧...不知道池子还开不...希望不是黑豹二世。 ...</blockquote>
+现在在放
+
+*****
+
+####  qixinno2  
+##### 4528#       发表于 2023-1-31 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当你以为他们已经废物的不能再废物的时候 他们总是能带给你惊喜
+
+*****
+
+####  alucardcz  
+##### 4529#       发表于 2023-1-31 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558357&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-31 18:18</a>
+
+属于是天天发通知请人看小丑了录播还放不放了</blockquote>
+录播现在在放 你叶哥哥语音在说31号开 下面配图是未定 笑死我了
+
+*****
+
+####  angelooo  
+##### 4530#       发表于 2023-1-31 18:27
+
+哈哈哈哈果然整了惊天烂活
+
