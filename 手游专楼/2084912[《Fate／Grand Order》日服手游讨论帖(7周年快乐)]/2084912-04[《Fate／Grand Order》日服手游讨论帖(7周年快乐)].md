@@ -861,3 +861,32 @@ PV里的...这是谁捞上来的海葵？
 
 等一个萌新十连满宝，然后上来哭诉烟雾镜强度大寄特寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 4596#       发表于 2023-1-31 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕萌新这么狗
+
+*****
+
+####  霧谷藤乃  
+##### 4597#       发表于 2023-1-31 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没开抽呢你们就贷萌新十连满宝！（羡慕
+
+*****
+
+####  都谷捻柏  
+##### 4598#       发表于 2023-1-31 20:00
+
+说不定11点开2.7，然后马上说因为技术原因停服维护
+
+*****
+
+####  khxooo  
+##### 4599#       发表于 2023-1-31 20:01
+
+萌新太可怕了，没有开服就能10连满宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

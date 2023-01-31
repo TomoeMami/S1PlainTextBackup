@@ -2167,3 +2167,21 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 三年还是太短了……
 
+
+*****
+
+####  格林卡罗尔  
+##### 18487#       发表于 2023-1-31 19:56
+
+<img src="https://img.saraba1st.com/forum/202301/31/195434t5z0aochosokygk9.png" referrerpolicy="no-referrer">
+
+<strong>90446978_p0.png</strong> (552.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 19:54 上传
+
+望月的画里我最喜欢的是这个kanata，望月绘里少有的气质比较柔和的图
+
+另外吐槽一下望月画的男谷感觉都被强行幼化了一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
