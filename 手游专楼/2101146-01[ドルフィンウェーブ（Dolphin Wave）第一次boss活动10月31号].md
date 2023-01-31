@@ -108,3 +108,29 @@
 对应box不全的话很值得抽的，不然还是不急，对活动也没有额外加成。女主很强，加攻削防双buff她一个人包 ...</blockquote>
 好的，顺便再问一下，这次活动怎么才能一击分打尽可能高？
 
+
+*****
+
+####  小五的拖鞋  
+##### 243#         楼主| 发表于 2023-1-31 10:35
+
+ 本帖最后由 小五的拖鞋 于 2023-1-31 10:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59552169&amp;ptid=2101146" target="_blank">startea15 发表于 2023-1-31 09:01</a>
+
+好的，顺便再问一下，这次活动怎么才能一击分打尽可能高？</blockquote>
+基础就是前戏做足，保证攻击力40%和削防20%的buff叠满（5次），双暴buff叠满（只能维持2回合，战斗中点开角色和boss头像查看状态），boss处于最大破防状态（MAX BREAK）
+
+然后现在唯一的风系主C，UR赛蕾娜，大招出暴击是增伤的，所以以上前戏做完就是凹暴击
+
+<img src="https://img.saraba1st.com/forum/202301/31/103201anw8fazzfkofmajp.png" referrerpolicy="no-referrer">
+
+<strong>662876385384194d073555347f397a574020ceee.png</strong> (108.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 10:32 上传
+
+结算画面，从上到下四个指标分别是最大一击、难度系数（凹分肯定选最难）、破防次数（一般5次就差不多了）、行动回数（boss行动也消耗玩家回数，所以前排玩家都是用和服冰织控住boss）
+
+凹点主要是削防牌抽不到、赛蕾娜大招没暴击
+

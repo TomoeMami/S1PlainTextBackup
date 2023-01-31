@@ -3082,3 +3082,34 @@ tango某种程度也算卡普空青训营出来的吧<img src="https://static.sa
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DSFdff  
+##### 297#       发表于 2023-1-31 10:33
+
+a9的评论区确实有点典
+
+*****
+
+####  吃鸡南小鸟  
+##### 298#       发表于 2023-1-31 10:36
+
+IGN JP<img src="https://p.sda1.dev/9/761ba52c5f0a3b47d66c1ef061f94502/CMP_20230131103611926.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  5353  
+##### 299#       发表于 2023-1-31 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59553071&amp;ptid=2116452" target="_blank">DSFdff 发表于 2023-1-31 10:33</a>
+
+a9的评论区确实有点典</blockquote>
+a9某些人脑子里就全是屎。
+
+要感谢se前几天那坨是索尼那边的。
+
+要是首发xgp，就是xgp/微软又毁了一款游戏。
+
