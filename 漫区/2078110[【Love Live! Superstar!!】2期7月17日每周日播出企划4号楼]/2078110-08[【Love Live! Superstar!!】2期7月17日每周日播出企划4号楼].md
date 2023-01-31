@@ -12540,3 +12540,15 @@ payton尚未开通tiktok https://www.bilibili.com/video/BV1s24y1674S/?spm_id_fro
 
 但即使在里面也有伊达大叔在跳就是了
 
+
+*****
+
+####  ruffian  
+##### 11609#       发表于 2023-1-31 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59550048&amp;ptid=2078110" target="_blank">s3081260 发表于 2023-01-30 23:34:19</a>
+确实比团里的小个子妹子们大一些，不过之前微博上的造型挺好看的不显大，感觉鱼适合扎起来再在两边留点头 ...</blockquote>她长发的时候就觉得头没那么大了
+其实是看到二期生外景里的鱼，一眼“好细的腰，好大的头”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

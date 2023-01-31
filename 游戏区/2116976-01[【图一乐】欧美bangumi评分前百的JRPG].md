@@ -1630,3 +1630,22 @@ xb3排名这么高的东西还往泥潭搬，大胆
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  张叔夜  
+##### 139#       发表于 2023-1-31 08:31
+
+怎么没看到空轨fc？
+
+—— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  张叔夜  
+##### 140#       发表于 2023-1-31 08:31
+
+怎么没看到空轨fc？
+
+—— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
