@@ -639,3 +639,112 @@ PUA是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 我们叶鸽鸽说好1月就是1月！ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 4572#       发表于 2023-1-31 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558757&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 19:01</a>
+
+我们叶鸽鸽说好1月就是1月！</blockquote>
+秘技——（在一月和二月的边界）反复横跳！
+
+*****
+
+####  exiaexa  
+##### 4573#       发表于 2023-1-31 19:02
+
+极限赶31日太草，就差1小时
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 4574#       发表于 2023-1-31 19:03
+
+哇哈哈哈哈哈哈哈他是懂流量的
+
+*****
+
+####  eilot  
+##### 4575#       发表于 2023-1-31 19:03
+
+弹出又弹入，星爷电影吗...
+
+*****
+
+####  yyzcacxg  
+##### 4576#       发表于 2023-1-31 19:03
+
+乐.jpg，运营真会整活啊
+
+*****
+
+####  alucardcz  
+##### 4577#       发表于 2023-1-31 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558771&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-1-31 19:02</a>
+
+极限赶31日太草，就差1小时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你先别急  还能延！ 万一出啥问题修不好呢
+
+*****
+
+####  eilot  
+##### 4578#       发表于 2023-1-31 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558788&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 19:03</a>
+
+你先别急  还能延！ 万一出啥问题修不好呢</blockquote>
+直到最后也不要放弃希望，
+
+如果营运放弃的话，主线又会延期
+
+*****
+
+####  Jamaisvu  
+##### 4579#       发表于 2023-1-31 19:09
+
+看了下贴吧，五点更新的内容竟然有新东西：
+
+游戏里的卡玛兹佐本体：
+
+<img src="https://img.saraba1st.com/forum/202301/31/190531x22yf5zfzjnb5bfo.jpg" referrerpolicy="no-referrer">
+
+<strong>E14235602CCF8C2141FA430761201F60.jpg</strong> (113.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 19:05 上传
+
+PV里的...这是谁捞上来的海葵？
+
+<img src="https://img.saraba1st.com/forum/202301/31/190532zas0z7sb70et7e3i.jpg" referrerpolicy="no-referrer">
+
+<strong>A2F799F8029D4C4BFA89B2BA2AF46577.jpg</strong> (60.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 19:05 上传
+
+蝙蝠神就这么变成怪物了，NPC可能性增加，就好像机神们似的...希望后续有反转...白情实装他我还真不介意...
+
+*****
+
+####  yyzcacxg  
+##### 4580#       发表于 2023-1-31 19:09
+
+其实想来也挺正常的，当年玩pso2的时候每到周三也是看运营大变申维护延迟——延迟pse burst——延迟cross burst的花式拉跨，这操作搁螺旋社也不意外，只不过2.7铺垫了一年又长草了一个月搞到今天，录播都开始放了突然延迟真的很有喜剧效果www
+
+*****
+
+####  exiaexa  
+##### 4581#       发表于 2023-1-31 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558788&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 19:03</a>
+
+你先别急  还能延！ 万一出啥问题修不好呢</blockquote>
+先把羽蛇神卡池交了我就原谅他
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
