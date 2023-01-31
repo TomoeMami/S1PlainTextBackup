@@ -12691,3 +12691,14 @@ QQ图片20230131124455.jpg
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 之前在五厕也看到有说网上照片看头发，现地一看发现并没有<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 11618#       发表于 2023-1-31 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59555279&amp;ptid=2078110" target="_blank">靡宜 发表于 2023-01-31 14:04:06</a>
+之前在五厕也看到有说网上照片看头发，现地一看发现并没有</blockquote>啊？日本人也觉得她头大了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
