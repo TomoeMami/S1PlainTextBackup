@@ -521,3 +521,121 @@ EDIT：认错了，抱歉，是Assassin
 
 图转群，川澄北<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过说回来延期两次是真没想到啊，绝对是事故了
 
+
+*****
+
+####  eilot  
+##### 4559#       发表于 2023-1-31 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558643&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-31 18:52</a>
+
+我意思不是日程。我是说主线都没做完。除非提前做了情人节的。否则来不及做吧 ...</blockquote>
+最终奥义
+
+以前所有情人节总集编，拖两星期以上
+
+但还是要为上年新增的35位从者和今年的新仇职尼想情人节短编...
+
+*****
+
+####  alucardcz  
+##### 4560#       发表于 2023-1-31 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会不会先开卡池
+
+
+*****
+
+####  Jamaisvu  
+##### 4561#       发表于 2023-1-31 18:57
+
+这次生放就好像是婚礼现场放VLOG的时候新娘因为情感纠纷逃婚了，然后两家忙着处理后事，一堆随份子的宾客看着屏幕上两口子笑靥如花，不知所措。
+
+*****
+
+####  angelooo  
+##### 4562#       发表于 2023-1-31 18:58
+
+卡池也不开，是是是防剧透是吧（手动狗头
+
+*****
+
+####  alucardcz  
+##### 4563#       发表于 2023-1-31 18:58
+
+听说官方更新了 今天又要开了（
+
+*****
+
+####  Jamaisvu  
+##### 4564#       发表于 2023-1-31 18:59
+
+<blockquote>alucardcz 发表于 2023-1-31 18:58
+听说官方更新了 今天又要开了（</blockquote>
+耍猴呢吧....有没有准啊！
+
+推荐官方都去看看流浪地球2，时间到了再决定发不发延期公告...
+
+*****
+
+####  任天索尼子  
+##### 4565#       发表于 2023-1-31 18:59
+
+PUA是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4566#       发表于 2023-1-31 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59558730&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-1-31 18:59</a>
+
+耍猴呢吧....有没有准啊！
+
+推荐官方都去看看流浪地球2，时间到了再决定发不发延期公告... ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202301/31/190029a3bf3p6fqwzz03cn.png" referrerpolicy="no-referrer">
+
+<strong>22222.png</strong> (50.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 19:00 上传
+
+去看了下 真的有
+
+*****
+
+####  khxooo  
+##### 4567#       发表于 2023-1-31 19:00
+
+他赶上了，他赶上31号了哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 4568#       发表于 2023-1-31 19:00
+
+10点，看还延不延
+
+*****
+
+####  仰望神的括约肌  
+##### 4569#       发表于 2023-1-31 19:00
+
+10点开 说好的31号没骗你吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4570#       发表于 2023-1-31 19:00
+
+晚上十点开...我先把茶壶都用了吧┐( ‾᷅㉨‾᷅ )┌ 
+
+*****
+
+####  alucardcz  
+##### 4571#       发表于 2023-1-31 19:01
+
+我们叶鸽鸽说好1月就是1月！ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
