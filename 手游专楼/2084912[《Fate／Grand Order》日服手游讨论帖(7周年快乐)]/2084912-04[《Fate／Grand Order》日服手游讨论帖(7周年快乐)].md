@@ -763,3 +763,51 @@ PV里的...这是谁捞上来的海葵？
 
 今儿晚上最多抽个卡，主线还是先别推了，总觉得是顶着bug硬上的
 
+
+*****
+
+####  xiongxingyu  
+##### 4584#       发表于 2023-1-31 19:23
+
+神tm晚上23点开新章，仿佛就是癌症晚期病人突然被跳大神救活了一般的操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 4585#       发表于 2023-1-31 19:24
+
+之后要是再来个强行上线，却因为重大bug最后不得不再屈辱延期就完满了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  热带低气压  
+##### 4586#       发表于 2023-1-31 19:25
+
+操作太骚了。
+
+屑兄妹一点都不想抽
+
+*****
+
+####  霧谷藤乃  
+##### 4587#       发表于 2023-1-31 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便点点突入2.7第六节，C呆居然先于摩根12绊了……
+
+*****
+
+####  eilot  
+##### 4588#       发表于 2023-1-31 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59559055&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2023-1-31 19:24</a>
+
+之后要是再来个强行上线，却因为重大bug最后不得不再屈辱延期就完满了。 ...</blockquote>
+赔石就能解决问题
+
+*****
+
+####  areklose  
+##### 4589#       发表于 2023-1-31 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然今天开。还是继续奶，会不会分拆！
+
