@@ -72,3 +72,11 @@ Data lost battle，果然是小号百重塔吗</blockquote>
 
 反正只有1护符3石头，随便喇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4508#       发表于 2023-1-31 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哇 今天居然还开了3个辣鸡本 诸位 感动吗
+
