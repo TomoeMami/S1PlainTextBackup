@@ -12764,3 +12764,29 @@ pv2 该端上来了吧
 
 后天那个生放应该有实机演示了吧，不知道会不会比as还烂呢
 
+
+*****
+
+####  ViyViy  
+##### 11625#       发表于 2023-1-31 16:13
+
+再无缝你到时候也只有个纸片人，我不信素人能一个月速成配音；
+
+今年靠sif2重播文字版的答辩再创一次<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11626#       发表于 2023-1-31 16:14
+
+这样的话应该是下下个月的LLD宣布CV情报
+
+*****
+
+####  长日留痕  
+##### 11627#       发表于 2023-1-31 16:15
+
+ 本帖最后由 长日留痕 于 2023-1-31 16:17 编辑 
+
+日服停了，国服该怎么苟呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吊游戏也给我搞个单机版留个念想嘛。
+
