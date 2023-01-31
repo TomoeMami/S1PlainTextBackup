@@ -2906,3 +2906,11 @@ trigun的精神内核和Trinity blood太相似了，从年份上看应该是后�
 
 确定会看完了，然后看完新动画再去补漫画，收获两份快乐<img src="https://static.saraba1st.com/image/smiley/carton2017/256.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolfwood  
+##### 271#       发表于 2023-1-31 21:30
+
+爷的武器升级成比姆炮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

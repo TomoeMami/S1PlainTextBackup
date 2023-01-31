@@ -994,3 +994,14 @@ PV里的...这是谁捞上来的海葵？
 梦回开服一口气年轻了七岁</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来个复刻48小时又48小时。
 
+
+*****
+
+####  里村紅葉  
+##### 4610#       发表于 2023-1-31 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560443&amp;ptid=2084912" target="_blank">areklose 发表于 2023-1-31 21:21</a>
+
+来个复刻48小时又48小时。</blockquote>
+以现在标准要补偿多少石头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

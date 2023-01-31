@@ -12824,3 +12824,11 @@ pv2 该端上来了吧
 
 啥玩意儿，国服也要停？我还有好心没抽。这游戏我从开服第一秒就完开始全勤玩到现在。活动一次不拉。
 
+
+*****
+
+####  adw667  
+##### 11632#       发表于 2023-1-31 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盛趣你有本事倒是FF14也同步啊
+
