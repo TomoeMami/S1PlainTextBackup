@@ -3131,3 +3131,26 @@ a9某些人脑子里就全是屎。
 
 —— 来自 OnePlus GM1910, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  loneblade  
+##### 302#       发表于 2023-1-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59555736&amp;ptid=2116452" target="_blank">Xerxes_2 发表于 2023-1-31 14:47</a>
+
+有什么推荐买的连段吗
+
+—— 来自 OnePlus GM1910, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+xyxxx 高伤害 浮空
+
+空xyyy 最后一击对地aoe并且自己停在空中
+
+xxyyy 浮空连击 最后人和怪都在空中可以跟其他连招
+
+yyxx 大范围 有时候其他连段按错了可以按这个
+
+yxy aoe击飞 救命用
+
+个人常用这几个
+
