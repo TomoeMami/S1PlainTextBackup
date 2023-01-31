@@ -12870,3 +12870,14 @@ pv2 该端上来了吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是因为西武能出声+虹动画碟卖完了吗？不如说这样初动都还只有1万真是一副药丸的样子
 
+
+*****
+
+####  nufawneafg  
+##### 11637#       发表于 2023-2-1 01:19
+
+ 本帖最后由 nufawneafg 于 2023-2-1 01:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562930&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-1 01:09</a>
+难道不是因为西武能出声+虹动画碟卖完了吗？不如说这样初动都还只有1万真是一副药丸的样子。倒是你 ...</blockquote>
+正常吧，电视节目曲广播节目曲都这么玩
+
