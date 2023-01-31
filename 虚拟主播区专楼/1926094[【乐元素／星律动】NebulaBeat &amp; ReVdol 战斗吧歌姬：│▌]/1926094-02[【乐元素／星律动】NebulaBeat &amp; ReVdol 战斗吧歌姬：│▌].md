@@ -297,3 +297,16 @@
 
 穷疯了不至于 再怎么说还有个棚子呢
 
+
+*****
+
+####  ladiesman802  
+##### 2996#       发表于 2023-1-31 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560829&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2023-1-31 21:52</a>
+
+这个QA给我一种厂子突然穷疯了的感觉。之前太烧钱了么
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+还不如说之前的投入都打水漂了
+

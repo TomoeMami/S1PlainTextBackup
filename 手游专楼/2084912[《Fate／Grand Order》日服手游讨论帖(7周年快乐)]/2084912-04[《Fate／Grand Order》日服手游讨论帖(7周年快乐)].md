@@ -1591,3 +1591,54 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 配上一行字就让我笑了2分钟，这立绘确实太顶级了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4671#       发表于 2023-1-31 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561334&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-1-31 22:36</a>
+
+不过有钱人拉满应该是个强力副手吧，只能说还好是杀阶，狂阶今晚论坛要论战了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂的话 要完蛋了 爆杀水伊吹 成为新的强度美?
+
+*****
+
+####  alucardcz  
+##### 4672#       发表于 2023-1-31 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561358&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-1-31 22:40</a>
+
+讲真请fgo不要再消费老漫画家了，奥伯龙就是个错误的开始</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说苍月 当年还喷高桥哥哥 你现在再看看 南丁画的那是多美啊(
+
+*****
+
+####  白金口袋  
+##### 4673#       发表于 2023-1-31 22:47
+
+打定主意就扔10张符，多了不给，结果第10张符1雨神，烟雾镜也没来，简直完美，胜利跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 4674#       发表于 2023-1-31 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561413&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:45</a>
+
+不说苍月 当年还喷高桥哥哥 你现在再看看 南丁画的那是多美啊(</blockquote>
+不行，不能出了一坨更臭的大便就说上上上一坨不臭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 4675#       发表于 2023-1-31 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561413&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-1-31 22:45</a>
+
+不说苍月 当年还喷高桥哥哥 你现在再看看 南丁画的那是多美啊(</blockquote>
+你别说，看多了以后
+
+同人里南丁不是死鱼眼都不习惯了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

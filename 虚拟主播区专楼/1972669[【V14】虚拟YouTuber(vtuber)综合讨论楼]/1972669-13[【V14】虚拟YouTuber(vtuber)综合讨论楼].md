@@ -2211,3 +2211,11 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 应该还没有其他holomen说过这个词吧
 
+
+*****
+
+####  tiro_finale  
+##### 18490#       发表于 2023-1-31 22:46
+
+neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚拟桃源了...
+
