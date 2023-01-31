@@ -2032,3 +2032,21 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 我感觉这个伯爵应该是未出场的新角色
 
+
+*****
+
+####  qb0079  
+##### 4715#       发表于 2023-2-1 00:29
+
+库库尔坎有点帅，想抽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 4716#       发表于 2023-2-1 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59562447&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-1 00:13</a>
+
+喷了，明明是2.7为什么妖兰还会有全新的差分立绘啊，真是摊到了一个好爹啊 ...</blockquote>
+之前不是有人加过嘛
+

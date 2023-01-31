@@ -12840,3 +12840,16 @@ pv2 该端上来了吧
 
 什么嘛第五卷还是卖了一万份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11634#       发表于 2023-2-1 00:30
+
+9、10集吧，都忘了讲啥了，还是很难想象购买时的精神状态
+不过是好事，起码二期有受众了
+
+鲤鱼mini专主打 tie了一个月朝日台的节目
+
+<img src="https://p.sda1.dev/9/c42b08d9b6aaed8f72df18c666cf54d4/IMG_CMP_165880307.jpeg" referrerpolicy="no-referrer">
+
