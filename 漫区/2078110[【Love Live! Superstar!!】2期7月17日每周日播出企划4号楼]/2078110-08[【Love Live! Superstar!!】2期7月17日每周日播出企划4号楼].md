@@ -12552,3 +12552,14 @@ payton尚未开通tiktok https://www.bilibili.com/video/BV1s24y1674S/?spm_id_fro
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  优妮可  
+##### 11610#       发表于 2023-1-31 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59550646&amp;ptid=2078110" target="_blank">starring 发表于 2023-1-31 00:20</a>
+
+虽然没明确说是禁止事项，但是去年的节目即使弹幕有问到相关的内容，一次也没回答或者用别的工作指代。今 ...</blockquote>
+想起来圣诞那天发合照的时候，pay是不是也在做节目<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

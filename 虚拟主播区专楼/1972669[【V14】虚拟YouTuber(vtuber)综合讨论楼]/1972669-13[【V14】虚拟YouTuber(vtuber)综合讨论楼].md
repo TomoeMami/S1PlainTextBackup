@@ -2100,3 +2100,12 @@ millie还因此发了篇算是道歉的推特<img src="https://static.saraba1st.
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  渡鸦骑士  
+##### 18480#       发表于 2023-1-31 08:46
+
+瞄了一眼股价……
+已经比开盘价低一千日元了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
