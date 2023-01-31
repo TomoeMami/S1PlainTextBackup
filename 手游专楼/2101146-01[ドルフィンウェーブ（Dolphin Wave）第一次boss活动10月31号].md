@@ -201,3 +201,11 @@
 超出我的知识范围了，wiki上没找到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事，明天就知道了
 
+
+*****
+
+####  羽出  
+##### 251#       发表于 2023-1-31 21:32
+
+这游戏原来还有UID啊，一款完全没有社交和pvp元素的游戏要UID什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

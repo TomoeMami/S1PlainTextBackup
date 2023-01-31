@@ -1005,3 +1005,14 @@ PV里的...这是谁捞上来的海葵？
 来个复刻48小时又48小时。</blockquote>
 以现在标准要补偿多少石头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 4611#       发表于 2023-1-31 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59560523&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-1-31 21:27</a>
+
+以现在标准要补偿多少石头啊</blockquote>
+之前都说了，以后无论维护多长时间，上限统一10个石头10个金苹果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
