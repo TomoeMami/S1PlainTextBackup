@@ -2050,3 +2050,11 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 喷了，明明是2.7为什么妖兰还会有全新的差分立绘啊，真是摊到了一个好爹啊 ...</blockquote>
 之前不是有人加过嘛
 
+
+*****
+
+####  khxooo  
+##### 4717#       发表于 2023-2-1 00:42
+
+草，那恐龙的真实身份令我震惊，没想到是他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
