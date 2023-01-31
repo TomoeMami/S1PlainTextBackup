@@ -890,3 +890,21 @@ PV里的...这是谁捞上来的海葵？
 
 萌新太可怕了，没有开服就能10连满宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 4600#       发表于 2023-1-31 20:12
+
+<img src="https://img.saraba1st.com/forum/202301/31/201112m8olhx68rmr8zbzm.png" referrerpolicy="no-referrer">
+
+<strong>1675167019398.png</strong> (307.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-1-31 20:11 上传
+
+去年12.25解包出来的空白面板，现在看应该就是烟雾镜了...
+
+如果实装也是这个ATK，然后作为输出而非拐...那就太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">杀阶君11？
+
