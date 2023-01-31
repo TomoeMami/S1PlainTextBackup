@@ -53,3 +53,14 @@
 
 Data lost battle，果然是小号百重塔吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 4506#       发表于 2023-1-31 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59556315&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-1-31 15:29</a>
+
+Data lost battle，果然是小号百重塔吗</blockquote>
+这下大家都是大笨蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
