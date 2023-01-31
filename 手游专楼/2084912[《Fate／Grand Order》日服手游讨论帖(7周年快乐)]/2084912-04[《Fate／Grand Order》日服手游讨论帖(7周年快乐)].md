@@ -37,3 +37,11 @@
 
 这样搞下去不如像之前深海潜那些关卡一样，基本上每场都是直接锁了那些角色出战吧...
 
+
+*****
+
+####  alucardcz  
+##### 4504#       发表于 2023-1-31 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天就等一个会不会有2.7完结篇的消息了
+
