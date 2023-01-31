@@ -954,3 +954,20 @@ syl
 烧了500多 ...</blockquote>
 我手是那个生日贝给的，剩下开出来的全是近战和腿，懒得刷了（
 
+
+*****
+
+####  Rincewind  
+##### 236#       发表于 2023-1-31 15:12
+
+ 本帖最后由 Rincewind 于 2023-1-31 15:16 编辑 
+
+MASAKI负责BGM的高难（Resonance Ring）这次复刻的关卡名和称号设计有微小的改动（关卡名全翻新，左右护法称号图标从腰带扣变成音叉）
+那之前特摄活动期间那一期的称号怕不是绝版了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+感谢微博信息号群群友C-TRA的截图。
+<img src="https://p.sda1.dev/9/6cad84494a8182ae61e6661a0c5cb19c/4ac5fc08a44a725d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/f3b192c3bff2f88e90cba2a1e88c01e4/-7bfd9e23d426cc38.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/e06851e216d00b536d40c90d68759e92/4cf8663d3514e339.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/0ea0b917a953cc8783c6275948fa2755/-74298012e44ec833.jpg" referrerpolicy="no-referrer">
+
