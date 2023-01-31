@@ -1694,3 +1694,25 @@ wada杀死了比赛，苍月现在不是垫底的了23333
 
 好，等下礼拜抽羽蛇神
 
+
+*****
+
+####  Jamaisvu  
+##### 4681#       发表于 2023-1-31 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561358&amp;ptid=2084912" target="_blank">雾谷藤乃 发表于 2023-1-31 22:40</a>
+
+讲真请fgo不要再消费老漫画家了，奥伯龙就是个错误的开始</blockquote>
+广江礼威其实也是老漫画家了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+我推荐蘑菇去粉一下大暮维人或者あずま京太郎，别的不说至少人设精致线条好看。
+
+（好吧这是我个人私货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">...）
+
+*****
+
+####  rooarr  
+##### 4682#       发表于 2023-1-31 23:09
+
+5护符果然毫无收获<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
