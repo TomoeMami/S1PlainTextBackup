@@ -69,3 +69,22 @@ P流汗.jpg
 
 半井，只有一张，不过出了就好，不亏不赚吧
 
+
+*****
+
+####  花开安菲路  
+##### 7077#       发表于 2023-1-31 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59556246&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-1-31 15:22</a>
+前段时间送了两套衣服，有两个十连票</blockquote>
+这个啊，我拿到就抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 7078#       发表于 2023-1-31 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59556246&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-1-31 15:22</a>
+前段时间送了两套衣服，有两个十连票</blockquote>
+这个啊，我拿到就抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
