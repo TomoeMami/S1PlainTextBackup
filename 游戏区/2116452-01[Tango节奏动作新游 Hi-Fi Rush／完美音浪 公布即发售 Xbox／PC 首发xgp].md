@@ -3416,3 +3416,14 @@ yxy aoe击飞 救命用
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  loneblade  
+##### 329#       发表于 2023-2-2 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59569629&amp;ptid=2116452" target="_blank">caicaistar 发表于 2023-2-1 16:13</a>
+笑死，这游戏怎么还neta异度装甲的 你们也后期没钱赶工是吧（bushi</blockquote>
+你说的完全正确
+<img src="https://p.sda1.dev/9/5fe7e5d375f765c091fc9fbb3c65ae1b/CMP_20230202010337001.jpg" referrerpolicy="no-referrer">
+
