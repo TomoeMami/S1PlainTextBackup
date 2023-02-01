@@ -25,3 +25,20 @@
 
 突然发现鹿人不就是数字生命派吗……
 
+
+*****
+
+####  嘉术2015  
+##### 1115#       发表于 2023-2-1 10:05
+
+巨大安康鱼在哪，通关了都没碰到过感觉亏了
+
+*****
+
+####  囧Smith  
+##### 1116#       发表于 2023-2-1 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59564827&amp;ptid=1992654" target="_blank">嘉术2015 发表于 2023-2-1 10:05</a>
+巨大安康鱼在哪，通关了都没碰到过感觉亏了</blockquote>
+黑棘星里的啊，通关怎么可能不遇到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
