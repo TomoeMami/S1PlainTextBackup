@@ -3352,3 +3352,16 @@ yxy aoe击飞 救命用
 
 跳跳乐确实太多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 323#       发表于 2023-2-1 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59570709&amp;ptid=2116452" target="_blank">760194962 发表于 2023-2-1 17:34</a>
+
+🤔不包括啊 那怪不得 我为了减少死亡升了下血量相关的 招式也不想记太多所以打到第五关也就开了六七个这 ...</blockquote>
+我一周目通关是四格第二条血，续关挺多的
+
+伙伴技能建议优先升满，主角的xxyyy和空中连段比较常用，其它随意
+

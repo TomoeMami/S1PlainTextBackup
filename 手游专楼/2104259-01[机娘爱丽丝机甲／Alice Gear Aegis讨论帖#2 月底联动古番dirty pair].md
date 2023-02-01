@@ -1022,3 +1022,17 @@ MASAKI负责BGM的高难（Resonance Ring）这次复刻的关卡名和称号设
 
 是说礼物来源就是抽卡和情人节那对巧克力？
 
+
+*****
+
+####  Rincewind  
+##### 241#       发表于 2023-2-1 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59573752&amp;ptid=2104259" target="_blank">madcow 发表于 2023-2-1 21:55</a>
+刚反应过来50W好感是不是比300W粉丝更鬼畜，哪来这么多礼物（（</blockquote>
+取决于玩家了
+如果肝调查多课金少，那就是300w粉丝带着多打打调查就有了，能带到200w大不了浪费点时间再带100w的
+如果课金多调查少这100w粉丝就成了天险了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过50w好感除非是一抽11牛肉的重课否则都很难绷得住，能买两个半20w粉丝称号了（
+
