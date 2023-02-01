@@ -3245,3 +3245,18 @@ yxy aoe击飞 救命用
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  harmonytree  
+##### 313#       发表于 2023-2-1 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59569786&amp;ptid=2116452" target="_blank">760194962 发表于 2023-2-1 16:26</a>
+
+还有就是给的材料是不是有点太少了（
+
+—— 来自 S1Fun</blockquote>
+秘密基地壁画那里送的钱领了吗
+
+我第七关才知道这个，一下领了快20万
+
