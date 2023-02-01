@@ -3332,3 +3332,23 @@ yxy aoe击飞 救命用
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  loneblade  
+##### 321#       发表于 2023-2-1 22:36
+
+ 本帖最后由 loneblade 于 2023-2-1 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59573923&amp;ptid=2116452" target="_blank">crosz1985 发表于 2023-2-1 22:13</a>
+第七关玻璃外面血量碎片怎么拿啊
+
+论坛助手,iPhone</blockquote>
+如果我没记错是二周目要素 附近应该有发电机 但是一周目这里没有科西嘉
+
+*****
+
+####  Rowen233  
+##### 322#       发表于 2023-2-1 22:43
+
+跳跳乐确实太多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
