@@ -2479,3 +2479,11 @@ PS：第21节是data lost ...</blockquote>
 
 2023-2-1 13:09 上传
 
+
+*****
+
+####  xiongxingyu  
+##### 4757#       发表于 2023-2-1 13:54
+
+满破卡面绑定3破立绘也算是经典历史遗留问题了，水武藏、平景清、弓呆这种三破拉胯但满破卡面给力的差不多可以组个受害者协会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
