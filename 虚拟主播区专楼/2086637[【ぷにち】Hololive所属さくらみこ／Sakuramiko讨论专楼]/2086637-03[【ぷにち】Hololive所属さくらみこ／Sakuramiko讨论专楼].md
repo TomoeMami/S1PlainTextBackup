@@ -12564,3 +12564,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 4157#       发表于 2023-2-1 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">她们几个关系好的到处玩真好，我酸了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
