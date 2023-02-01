@@ -74,3 +74,11 @@ CD 有三曲那挺好，一个组合一年两首不够听
 
 为什么要让管人翻唱偶像的solo曲，退一万步说翻组合曲全体曲都好一点，这联动对拉新有一点点作用吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shadowof  
+##### 2703#         楼主| 发表于 2023-2-1 17:21
+
+跟V都联动好几年了，要没用不会一直继续搞的，这点不用担心。
+
