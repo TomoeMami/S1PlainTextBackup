@@ -38,3 +38,16 @@
 换了新电脑以后打开游戏显示存档损坏，还有的救吗？最重要的是现在连游戏都进不去 ...</blockquote>
 删掉再重装？理论上存档是保存在xbox cloud上
 
+
+*****
+
+####  Y.Cassano  
+##### 2515#       发表于 2023-2-1 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59567576&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2023-2-1 13:27</a>
+
+应该是描述标题或文件名问题
+
+换一下写法应该就可以了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">干，去试着踢去文件名里的车型，成功，RS4 GT4这种居然算违规字符，本来命名想着带上车型方便别人好找车子，保时捷一堆911车型非死忠找起来太痛苦了。最后退而求其次只能角色名+年份来尽可能缩小别人查找难度
+
