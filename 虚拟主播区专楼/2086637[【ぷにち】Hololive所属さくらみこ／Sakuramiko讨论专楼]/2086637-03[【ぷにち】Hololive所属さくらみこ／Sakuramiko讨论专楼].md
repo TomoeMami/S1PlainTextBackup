@@ -12544,3 +12544,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 那真tm的是远
 
+
+*****
+
+####  rs5621  
+##### 4155#       发表于 2023-2-1 20:26
+
+泡澡看直播还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
