@@ -12584,3 +12584,22 @@ no胖？
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4159#         楼主| 发表于 2023-2-1 21:05
+
+miko跟很多人关系都很好啊，你怕是要成大醋坛
+
+*****
+
+####  rs5621  
+##### 4160#       发表于 2023-2-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59573252&amp;ptid=2086637" target="_blank">holoan 发表于 2023-2-1 21:05</a>
+miko跟很多人关系都很好啊，你怕是要成大醋坛</blockquote>
+不是啊，是喜欢她们那种相处氛围，看着很享受<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
