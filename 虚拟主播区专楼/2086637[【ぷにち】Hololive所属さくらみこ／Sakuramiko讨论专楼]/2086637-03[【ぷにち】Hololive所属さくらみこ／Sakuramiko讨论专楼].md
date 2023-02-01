@@ -12517,3 +12517,22 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 跑486推限了
 
+
+*****
+
+####  rs5621  
+##### 4152#       发表于 2023-2-1 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">北京时间8点，在mio窗开啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4153#         楼主| 发表于 2023-2-1 18:35
+
+看来没有线下了
+
+不知道怎么回事
+
