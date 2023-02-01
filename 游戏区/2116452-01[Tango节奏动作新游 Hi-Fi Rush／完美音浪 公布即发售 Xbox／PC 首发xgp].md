@@ -3281,3 +3281,28 @@ yxy aoe击飞 救命用
 
 玩了一会感觉没说的那么简单啊 打的时候还要看节奏有点烦 还没转视角
 
+
+*****
+
+####  760194962  
+##### 316#       发表于 2023-2-1 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59569880&amp;ptid=2116452" target="_blank">harmonytree 发表于 2023-2-1 16:34</a>
+秘密基地壁画那里送的钱领了吗
+
+我第七关才知道这个，一下领了快20万</blockquote>
+也有领 过阵子再看看 20也不算很多吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  760194962  
+##### 317#       发表于 2023-2-1 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59570450&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-2-1 17:14</a>
+一周目通关基本能把招式全解锁，不包括特殊攻击和道具升级</blockquote>
+🤔不包括啊 那怪不得 我为了减少死亡升了下血量相关的 招式也不想记太多所以打到第五关也就开了六七个这样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

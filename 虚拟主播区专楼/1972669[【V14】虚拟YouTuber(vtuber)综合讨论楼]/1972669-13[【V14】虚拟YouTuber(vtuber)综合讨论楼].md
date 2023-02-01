@@ -2282,3 +2282,18 @@ neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚�
 
 还是基于现在模式的附属吧。
 
+
+*****
+
+####  zhangruiy  
+##### 18498#       发表于 2023-2-1 17:32
+
+大姐头一边活动一边告还赢了，roa两年杳无音信。这就是一期生特权吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 18499#       发表于 2023-2-1 17:39
+
+感觉口了是不想玩了吧，官司就是争口气
+
