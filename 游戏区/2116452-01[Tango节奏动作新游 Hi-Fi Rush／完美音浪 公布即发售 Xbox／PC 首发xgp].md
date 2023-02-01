@@ -3314,3 +3314,11 @@ yxy aoe击飞 救命用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">激光无人机的拍子居然是自己独立的啊
 
+
+*****
+
+####  散装星空  
+##### 319#       发表于 2023-2-1 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刚到第五关，只能说真的爽，真的爽。不过想借这个游戏问一下我疑惑很久的问题，像这类用滚轮切动作的游戏除了换设备以外有啥办法能很好地解决一下切过头的问题吗。
+

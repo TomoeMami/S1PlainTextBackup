@@ -2657,3 +2657,18 @@ THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚�
 
 前面已经懒得去想，反正还有2X粒灵脉石，BREAK一条血条就解除强化也无视，靠磨来打
 
+
+*****
+
+####  Jamaisvu  
+##### 4773#       发表于 2023-2-1 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59572673&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-1 20:20</a>
+
+THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚多3粒钻)
+
+刚打到第一次见到beast，暂时休息， ...</blockquote>
+加油，其实打ORT的时候有场地buff（尤其是一阶段），低星单体进去单挑也能干掉不少血量...
+
+注意二阶段最后300W血和三阶段人形态打败后都有10000羁绊和1亿QP，有条件可以带加成礼装<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

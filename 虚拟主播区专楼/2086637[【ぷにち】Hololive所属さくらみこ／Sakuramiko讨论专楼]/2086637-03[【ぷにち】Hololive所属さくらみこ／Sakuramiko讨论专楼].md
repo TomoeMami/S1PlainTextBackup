@@ -12554,3 +12554,13 @@ ASMR来了！！！！！！！！！！！！！！！！！！！！！！！�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 4156#       发表于 2023-2-1 20:37
+
+这尖叫，35被羊车了？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
