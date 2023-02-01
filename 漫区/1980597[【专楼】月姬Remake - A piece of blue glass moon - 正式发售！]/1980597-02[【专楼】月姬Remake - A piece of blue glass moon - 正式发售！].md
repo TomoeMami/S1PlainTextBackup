@@ -173,3 +173,27 @@
 
 不过看奈须的访谈说这切走廊杀腿是有点意义的，大概还有什么说法
 
+
+*****
+
+####  尼特子很辛苦哟  
+##### 1547#       发表于 2023-2-1 23:30
+
+还是忍不住吐槽，学姐线最终战的翻译实在是太莫名其妙了……汉化组可能觉得自己很幽默吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/01/232958y4vdiduxvoomvjjo.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230201231813.png</strong> (310.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-1 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202302/01/232959cm44uv61srpast3p.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230201231727.png</strong> (382.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-1 23:29 上传
+
