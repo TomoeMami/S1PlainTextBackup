@@ -2327,3 +2327,13 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 这么看的话岩窟王兴许能逃过一劫？
 
+
+*****
+
+####  ac死或生  
+##### 4745#       发表于 2023-2-1 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563084&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-1 01:29</a>
+没想到蝙蝠的声优是桧山修&amp;#x4 ...</blockquote>
+我超，真的是勇者王
+

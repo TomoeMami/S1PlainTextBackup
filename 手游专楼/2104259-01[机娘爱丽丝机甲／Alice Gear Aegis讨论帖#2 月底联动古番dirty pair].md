@@ -971,3 +971,13 @@ MASAKI负责BGM的高难（Resonance Ring）这次复刻的关卡名和称号设
 <img src="https://p.sda1.dev/9/e06851e216d00b536d40c90d68759e92/4cf8663d3514e339.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/0ea0b917a953cc8783c6275948fa2755/-74298012e44ec833.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rincewind  
+##### 237#       发表于 2023-2-1 11:30
+
+不打年糕改开店了
+
+<img src="https://p.sda1.dev/9/9dcfe609c9af4477803737408d6162ed/CMP_20230201112957013.jpg" referrerpolicy="no-referrer">
+
