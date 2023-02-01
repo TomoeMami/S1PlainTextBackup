@@ -2688,3 +2688,14 @@ THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚�
 
 尼托搞什么.....和武藏一样也玩从嘉乐迪彻底消失这套么
 
+
+*****
+
+####  大巨傻  
+##### 4776#       发表于 2023-2-1 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566793&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 12:21</a>
+
+17节Beast蝙蝠神，18节雨神战。19节有不会放宝具的仇阶黑豹、每回合给自己上无敌的ruler烟雾镜，最后是戴 ...</blockquote>
+懂了，谢谢说明
+

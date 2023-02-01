@@ -989,3 +989,36 @@ MASAKI负责BGM的高难（Resonance Ring）这次复刻的关卡名和称号设
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">刚反应过来50W好感是不是比300W粉丝更鬼畜，哪来这么多礼物（（
 
+
+*****
+
+####  genki  
+##### 239#       发表于 2023-2-1 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59573752&amp;ptid=2104259" target="_blank">madcow 发表于 2023-2-1 21:55</a>
+
+刚反应过来50W好感是不是比300W粉丝更鬼畜，哪来这么多礼物（（</blockquote>
+好感真不难，大把大把的礼物都还没送，粉丝真的只有拿时间去肝出来<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/01/221645kfbpo2xq73phfs84.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230201221628.jpg</strong> (40.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-1 22:16 上传
+
+*****
+
+####  madcow  
+##### 240#       发表于 2023-2-1 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59573957&amp;ptid=2104259" target="_blank">genki 发表于 2023-2-1 22:17</a>
+
+好感真不难，大把大把的礼物都还没送，粉丝真的只有拿时间去肝出来
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">堆一个人是没问题，多堆几个就不行了吧（
+
+是说礼物来源就是抽卡和情人节那对巧克力？
+
