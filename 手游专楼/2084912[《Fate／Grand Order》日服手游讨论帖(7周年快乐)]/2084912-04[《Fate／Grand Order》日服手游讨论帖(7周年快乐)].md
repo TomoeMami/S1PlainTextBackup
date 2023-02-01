@@ -2625,3 +2625,35 @@ ORT：心脏要逃走了.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Jamaisvu  
+##### 4771#       发表于 2023-2-1 20:14
+
+ 本帖最后由 Jamaisvu 于 2023-2-1 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59572305&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-1 19:47</a>
+
+后头有提黑麻雀的剑是谁给的吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+好像没提...至少和孙悟空没关系...不过倒是说了王哈教红阎魔如何赋予死亡概念然后一剑重创ORT...
+
+那个剑的重量一万三千五百斤比较可疑，姑且算是卫星上天了吧...
+
+*****
+
+####  eilot  
+##### 4772#       发表于 2023-2-1 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59571875&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 19:11</a>
+
+自己最多上六个人，战败后会变成水晶消失（data lost），下次换人进大蜘蛛保持之前的血量。
+
+大蜘蛛一阶段 ...</blockquote>
+THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚多3粒钻)
+
+刚打到第一次见到beast，暂时休息，反正令咒大多数都不能用，有机会见到就直接开宝具来清场
+
+前面已经懒得去想，反正还有2X粒灵脉石，BREAK一条血条就解除强化也无视，靠磨来打
+

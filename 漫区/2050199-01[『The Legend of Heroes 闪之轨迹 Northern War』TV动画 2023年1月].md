@@ -4968,3 +4968,13 @@ B站港澳台：
 
 第5集一堆原作角色要开口了。
 
+
+*****
+
+####  maoyou  
+##### 573#       发表于 2023-2-1 20:20
+
+轨！狠狠的轨！
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
