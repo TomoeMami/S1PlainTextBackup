@@ -298,3 +298,26 @@ https://tieba.baidu.com/p/8212928359?see_lz=0
 
 反正我暂时主要在win上玩。
 
+
+*****
+
+####  脸宽  
+##### 2160#       发表于 2023-2-1 13:03
+
+1t固态装win的话分多少比较合适
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  5353  
+##### 2161#       发表于 2023-2-1 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59567290&amp;ptid=2015700" target="_blank">脸宽 发表于 2023-2-1 13:03</a>
+
+1t固态装win的话分多少比较合适
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+【【爱折腾】SteamDeck完全折腾指南-哔哩哔哩】 [https://b23.tv/Ssu371z](https://b23.tv/Ssu371z)
+

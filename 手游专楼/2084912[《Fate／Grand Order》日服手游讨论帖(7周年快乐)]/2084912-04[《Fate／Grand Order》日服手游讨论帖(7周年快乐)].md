@@ -2449,3 +2449,33 @@ PS：第21节是data lost ...</blockquote>
 
 估计就卡里奥斯特罗或者圣日耳曼？正好今年fsf也有新动作
 
+
+*****
+
+####  Jamaisvu  
+##### 4755#       发表于 2023-2-1 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59567191&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-2-1 12:55</a>
+
+岩窟王那个只能把濒死的回满，大总统死透了不适用
+
+估计就卡里奥斯特罗或者圣日耳曼？正好今年fsf也有新动作 ...</blockquote>
+大总统临别时的CG跟马修在时间神殿那张差不多，我差点以为会有个什么东西舍弃兽位把大总统救回来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">（不过大总统自己也算BEAST，还是想办法自救吧...）
+
+另外希望完结前能出够六个兽。（街机的不算！）
+
+*****
+
+####  Jamaisvu  
+##### 4756#       发表于 2023-2-1 13:10
+
+话说2.7这个白公主代餐，我越看越像overlord里的白蜥蜴人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/01/130942ydn4yg7nqlzllj34.jpg" referrerpolicy="no-referrer">
+
+<strong>7035c2cab7aba417ca957c2b1ae4a7576ad01e4b_raw.jpg</strong> (97.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-1 13:09 上传
+
