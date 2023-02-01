@@ -75,3 +75,13 @@
 视角问题，你用mod切到第三人称会发现还是挺大的
 <img src="https://p.sda1.dev/9/7f47e01e02a2bc7708629af550aaa3f6/IMG_CMP_217964631.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  土狼菌  
+##### 1120#       发表于 2023-2-1 14:37
+
+被剧透有安康鱼后，第一次被吞反而有一种安心感<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+但是最后通关过程中被吞还是被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
