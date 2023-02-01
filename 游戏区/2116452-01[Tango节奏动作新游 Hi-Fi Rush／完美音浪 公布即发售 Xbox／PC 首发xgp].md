@@ -3191,3 +3191,11 @@ yxy aoe击飞 救命用
 
 不过跳跃确实是坨shi，还经常出现那种“二段跳够不到，冲刺又过头了”那种尴尬距离，好在平台边缘不是那么脚滑。
 
+
+*****
+
+####  Rowen233  
+##### 307#       发表于 2023-2-1 15:47
+
+视角问题+没锁定是真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
