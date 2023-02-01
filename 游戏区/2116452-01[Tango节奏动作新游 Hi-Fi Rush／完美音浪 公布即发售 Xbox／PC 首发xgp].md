@@ -3427,3 +3427,13 @@ yxy aoe击飞 救命用
 你说的完全正确
 <img src="https://p.sda1.dev/9/5fe7e5d375f765c091fc9fbb3c65ae1b/CMP_20230202010337001.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  soliz  
+##### 330#       发表于 2023-2-2 02:12
+
+二周目困难难度打收集和评分的时候，节拍准确率从六七十到八九十，评分从B到A到S，和一周目普通难度的记录比真的肉眼可见发现自己变强了
+
+录了视频上传到B站，看的时候就感觉“老子原来能打得这么花哨”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
