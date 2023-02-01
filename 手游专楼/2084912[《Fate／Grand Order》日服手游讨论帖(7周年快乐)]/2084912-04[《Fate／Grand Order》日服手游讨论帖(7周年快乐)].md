@@ -2360,3 +2360,23 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 很壮烈 ...</blockquote>
 啊这，我只能往好处想了，没开宝具，还有伏笔，说不定后面还有戏份<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 4748#       发表于 2023-2-1 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">推到17了 各种卡 要不是为了灵衣真的懒得打
+
+*****
+
+####  大巨傻  
+##### 4749#       发表于 2023-2-1 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59564144&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 09:00</a>
+
+主线总共有24节。（有两关无战斗。另外还有两个看剧情的断章，算作26关也可以。）
+
+PS：第21节是data lost ...</blockquote>
+谢谢，21打完爬大蜘蛛塔就结束了还是还有什么有点难度的其他敌人？
+

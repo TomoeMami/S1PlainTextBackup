@@ -12963,3 +12963,17 @@ pv2 该端上来了吧
 
 我就希望有人能录录星相关的屏看看整什么活就行了，加人和二期前还有些人干这个甚至有翻译，现在完全没了。
 
+
+*****
+
+####  nufawneafg  
+##### 11646#       发表于 2023-2-1 11:42
+
+ 本帖最后由 nufawneafg 于 2023-2-1 11:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563697&amp;ptid=2078110" target="_blank">名津流 发表于 2023-2-1 07:24</a>
+综艺节目的片尾曲？先不说能放几期，一般也就片尾那主持人还在说结束语，底下开始滚staff表字幕的时候当背 ...</blockquote>
+还是比直接发好一点的，毕竟给mini专里的歌找个联动不是本分是情分，前一天晚上才说那就是我们是这么做了但你不用太在意不是啥大事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+其实专辑直接发也没什么能指摘的
+
+也不能真就开始找综艺电视剧刷脸，不是搞舞台出来的，不对口不合适<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
