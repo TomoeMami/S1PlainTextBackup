@@ -27,3 +27,14 @@
 
 换一下写法应该就可以了
 
+
+*****
+
+####  真实之影  
+##### 2514#       发表于 2023-2-1 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563073&amp;ptid=2033303" target="_blank">半江瑟瑟半江红 发表于 2023-2-1 01:28</a>
+
+换了新电脑以后打开游戏显示存档损坏，还有的救吗？最重要的是现在连游戏都进不去 ...</blockquote>
+删掉再重装？理论上存档是保存在xbox cloud上
+

@@ -2487,3 +2487,11 @@ PS：第21节是data lost ...</blockquote>
 
 满破卡面绑定3破立绘也算是经典历史遗留问题了，水武藏、平景清、弓呆这种三破拉胯但满破卡面给力的差不多可以组个受害者协会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 4758#       发表于 2023-2-1 14:10
+
+像卡里奥斯特罗、圣日耳曼这种历史上真实存在的神棍，tm这种以都市奇谭（至少月姬和fate无印算是）为主背景的世界观里不用上才奇怪。现在横飞姬已经有了，另外几位齐名的完全可以安排上。甚至有神父在前，稍微晚了几十年的大光头也不是不能考虑啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
