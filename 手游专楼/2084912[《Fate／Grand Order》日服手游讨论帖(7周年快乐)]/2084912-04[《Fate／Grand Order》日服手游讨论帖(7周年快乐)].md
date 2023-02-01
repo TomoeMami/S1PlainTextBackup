@@ -2253,3 +2253,21 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 看了剧透，难怪羽蛇神是外星人
 
+
+*****
+
+####  保罗赫伯特  
+##### 4737#       发表于 2023-2-1 09:43
+
+最后所长的宝具能放了吗
+
+*****
+
+####  UNISONIA  
+##### 4738#       发表于 2023-2-1 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59564273&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 09:11</a>
+
+烟雾镜初始有一套动作模组，一破三破有第二套动作模组；初始一破是一个宝具动画，三破独占一个宝具动画（正 ...</blockquote>
+烟雾镜的宝具念成Firstsun Xibalba，假羽蛇神第三再临的宝具念成Lastsun Xibalba，动画是呼应的，背后分别出现黑曜石的太阳/翡翠的太阳
+
