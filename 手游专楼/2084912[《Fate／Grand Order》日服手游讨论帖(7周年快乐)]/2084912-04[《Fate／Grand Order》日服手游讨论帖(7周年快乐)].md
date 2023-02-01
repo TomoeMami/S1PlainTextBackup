@@ -2380,3 +2380,28 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 PS：第21节是data lost ...</blockquote>
 谢谢，21打完爬大蜘蛛塔就结束了还是还有什么有点难度的其他敌人？
 
+
+*****
+
+####  UNISONIA  
+##### 4750#       发表于 2023-2-1 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59565296&amp;ptid=2084912" target="_blank">roxas.sora 发表于 2023-2-1 10:38</a>
+
+不是吧，这卡池都有人氪爆么，惊呆了</blockquote>
+开卡池次日第三都能算氪爆的话那你狗以前出个非强度常驻卡都能登顶一周的时候算什么
+
+*****
+
+####  UNISONIA  
+##### 4751#       发表于 2023-2-1 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59565751&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 11:07</a>
+
+看到一个说法，异星使徒中的“伯爵”，有可能是炼金术士卡里奥斯特罗（也称巴尔萨莫伯爵）。
+
+以前有个访谈 ...</blockquote>
+你们都不看台词原文的么，麻婆有描述如果是“伯爵”的话就可能把已经没有灵魂了的大总统复活
+
+喜欢玩弄死者很明显是老男人无误啊
+
