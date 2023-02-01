@@ -3170,3 +3170,14 @@ yxy aoe击飞 救命用
 
 太好玩了 这游戏是我的电子伟哥
 
+
+*****
+
+####  Sliurus  
+##### 305#       发表于 2023-2-1 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59554844&amp;ptid=2116452" target="_blank">Tissuesea 发表于 2023-1-31 13:16</a>
+
+笔记本玩这个可能会卡就开始云了，看日配出double rift这招总是想起XB2啊。还有云的时候感觉先看动 ...</blockquote>
+上手的话会嫌打斗太少跑路太长，跳跳乐实在太多了，还有限时跳跳乐更是折磨
+
