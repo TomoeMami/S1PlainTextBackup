@@ -2554,3 +2554,16 @@ ORT：心脏要逃走了.jpg
 烟雾镜，我cnm</blockquote>
 欧 然而一点都不羡慕
 
+
+*****
+
+####  廖化  
+##### 4765#       发表于 2023-2-1 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566793&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 12:21</a>
+
+17节有个Beast蝙蝠神，18节雨神战，19节戴比特带着一堆影从者外星人打御主战（很难，六个人两波上）。
+
+21 ...</blockquote>
+…………哕了，这什么鬼关卡看完就不想打了<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
