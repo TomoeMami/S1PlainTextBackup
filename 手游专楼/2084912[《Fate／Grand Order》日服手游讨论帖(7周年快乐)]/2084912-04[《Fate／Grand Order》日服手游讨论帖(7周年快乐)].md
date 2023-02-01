@@ -2225,3 +2225,23 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 （终于明白可以自选卡面和指令卡是多好的文明了...）
 
+
+*****
+
+####  gpx234mqx  
+##### 4734#       发表于 2023-2-1 09:15
+
+烟雾j满破卡面帅啊
+
+*****
+
+####  Jamaisvu  
+##### 4735#       发表于 2023-2-1 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59564313&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-1 09:15</a>
+
+烟雾j满破卡面帅啊</blockquote>
+但是选择满破卡面的话，升级技能和喂狗粮啥的都会跑出来那个原始人立绘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+无论FGO挑画师的审美如何，建模师真的是力挽狂澜，化腐朽为神奇啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

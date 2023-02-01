@@ -46,3 +46,11 @@ CD 有三曲那挺好，一个组合一年两首不够听
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很久没玩了。这三卡池什么鬼
 
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2700#       发表于 2023-2-1 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这改动真无语了，评分逻辑改了后ex爆率直接大砍一刀。三倍合书后两本的词条根据你没继承的词条里抽选，直接把3倍合书roll头砍死回归以前1倍合书
+
