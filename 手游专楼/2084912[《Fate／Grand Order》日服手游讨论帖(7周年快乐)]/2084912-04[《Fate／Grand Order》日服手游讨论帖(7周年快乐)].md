@@ -2699,3 +2699,18 @@ THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚�
 17节Beast蝙蝠神，18节雨神战。19节有不会放宝具的仇阶黑豹、每回合给自己上无敌的ruler烟雾镜，最后是戴 ...</blockquote>
 懂了，谢谢说明
 
+
+*****
+
+####  exiaexa  
+##### 4777#       发表于 2023-2-1 23:13
+
+打完了，怎么说呢
+故事整体还是很流畅的，属于正常发挥，就是读起来味道好怪
+
+阿菌你这锅乱炖真的不是因为死线要到了所以摆烂交公粮吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便烟雾镜3破宝具做得比羽蛇神帅是怎么回事
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
