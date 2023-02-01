@@ -2279,3 +2279,37 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 蝙蝠神猴年马月才能落地
 
+
+*****
+
+####  qixinno2  
+##### 4740#       发表于 2023-2-1 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">库库尔坎单挑艾蕾这爽快度 这TMD才是剧情助战该给的强度啊混蛋
+
+
+*****
+
+####  Jamaisvu  
+##### 4741#       发表于 2023-2-1 10:36
+
+<blockquote>保罗赫伯特 发表于 2023-2-1 09:43
+最后所长的宝具能放了吗</blockquote>
+没有...恢复记忆后大吼着“我是迦勒底所长！保护职员是我的责任啊啊啊”，然后与ORT同归于尽了。
+
+很壮烈，很奥尔加。
+
+*****
+
+####  qixinno2  
+##### 4742#       发表于 2023-2-1 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长又死了 笑
+
+*****
+
+####  roxas.sora  
+##### 4743#       发表于 2023-2-1 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧，这卡池都有人氪爆么，惊呆了
+
