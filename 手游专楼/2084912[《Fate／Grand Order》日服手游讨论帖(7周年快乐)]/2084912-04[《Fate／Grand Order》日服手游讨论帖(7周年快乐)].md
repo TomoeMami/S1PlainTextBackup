@@ -2495,3 +2495,11 @@ PS：第21节是data lost ...</blockquote>
 
 像卡里奥斯特罗、圣日耳曼这种历史上真实存在的神棍，tm这种以都市奇谭（至少月姬和fate无印算是）为主背景的世界观里不用上才奇怪。现在横飞姬已经有了，另外几位齐名的完全可以安排上。甚至有神父在前，稍微晚了几十年的大光头也不是不能考虑啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 4759#       发表于 2023-2-1 15:33
+
+ORT：心脏要逃走了.jpg
+
