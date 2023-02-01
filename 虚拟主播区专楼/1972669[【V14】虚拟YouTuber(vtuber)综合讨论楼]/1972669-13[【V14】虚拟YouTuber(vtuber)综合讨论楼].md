@@ -2252,3 +2252,17 @@ neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚�
 
 初动3w2仅次于葛皇rofmao，不过星街一专2.5倍后劲，说不定再卖一年就超了
 
+
+*****
+
+####  渡鸦骑士  
+##### 18495#       发表于 2023-2-1 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59561430&amp;ptid=1972669" target="_blank">tiro_finale 发表于 2023-1-31 22:46</a>
+neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚拟桃源了...</blockquote>
+有趣归有趣……
+但是现在的对话ai能不能建立起性格和记忆点呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+新鲜感应该还能持续一段时间吧。
+
+顺便我感觉可以预见到ai主播大战的未来。
+
