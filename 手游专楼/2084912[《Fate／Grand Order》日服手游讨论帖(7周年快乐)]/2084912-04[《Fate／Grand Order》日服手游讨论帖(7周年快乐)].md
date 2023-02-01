@@ -2245,3 +2245,11 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 无论FGO挑画师的审美如何，建模师真的是力挽狂澜，化腐朽为神奇啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 4736#       发表于 2023-2-1 09:32
+
+看了剧透，难怪羽蛇神是外星人
+
