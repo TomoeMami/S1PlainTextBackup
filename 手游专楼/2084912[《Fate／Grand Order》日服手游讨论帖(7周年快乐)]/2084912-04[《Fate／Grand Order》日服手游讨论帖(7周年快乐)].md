@@ -2672,3 +2672,11 @@ THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚�
 
 注意二阶段最后300W血和三阶段人形态打败后都有10000羁绊和1亿QP，有条件可以带加成礼装<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 4774#       发表于 2023-2-1 20:56
+
+得，还得想辙花点qp
+
