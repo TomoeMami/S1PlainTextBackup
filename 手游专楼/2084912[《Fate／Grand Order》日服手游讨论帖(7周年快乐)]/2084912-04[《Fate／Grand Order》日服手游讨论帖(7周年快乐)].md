@@ -2714,3 +2714,11 @@ THX...见到内容已经脱力，幸好其他没用角色都升满级(为了赚�
 顺便烟雾镜3破宝具做得比羽蛇神帅是怎么回事
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 4778#       发表于 2023-2-1 23:57
+
+讲过去异闻带的故事就直接把以前的战斗复制粘贴一边吗，还能这么偷懒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

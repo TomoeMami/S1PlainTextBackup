@@ -3400,3 +3400,19 @@ yxy aoe击飞 救命用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">惊了，二周目用马卡龙打赢那个必败的带盾怪还有特殊对话彩蛋
 
+
+*****
+
+####  陈词与芍药  
+##### 328#         楼主| 发表于 2023-2-1 23:55
+
+<img src="https://img.saraba1st.com/forum/202302/01/105501nzyky5zej8mz5jmk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6620.PNG</strong> (907.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-1 23:55 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
