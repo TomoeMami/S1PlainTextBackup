@@ -85,3 +85,18 @@
 
 但是最后通关过程中被吞还是被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  只蕉  
+##### 1121#       发表于 2023-2-1 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59568466&amp;ptid=1992654" target="_blank">土狼菌 发表于 2023-2-1 14:37</a>
+
+被剧透有安康鱼后，第一次被吞反而有一种安心感
+
+但是最后通关过程中被吞还是被吓到了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+那个场景的安康鱼就是制作组故意的，这种jump scare偶尔来一下真的很经典
+
