@@ -2337,3 +2337,26 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 没想到蝙蝠的声优是桧山修&amp;#x4 ...</blockquote>
 我超，真的是勇者王
 
+
+*****
+
+####  khxooo  
+##### 4746#       发表于 2023-2-1 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566043&amp;ptid=2084912" target="_blank">ac死或生 发表于 2023-2-1 11:27</a>
+我超，真的是勇者王</blockquote>
+是啊，看到名字我也喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，难怪找桧山来配
+
+*****
+
+####  保罗赫伯特  
+##### 4747#       发表于 2023-2-1 11:38
+
+ 本帖最后由 保罗赫伯特 于 2023-2-1 11:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59565255&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 10:36</a>
+
+没有...恢复记忆后大吼着“我是迦勒底所长！保护职员是我的责任啊啊啊”，然后与ORT同归于尽了。
+
+很壮烈 ...</blockquote>
+啊这，我只能往好处想了，没开宝具，还有伏笔，说不定后面还有戏份<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
