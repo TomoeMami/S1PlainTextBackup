@@ -2503,3 +2503,14 @@ PS：第21节是data lost ...</blockquote>
 
 ORT：心脏要逃走了.jpg
 
+
+*****
+
+####  武男  
+##### 4760#       发表于 2023-2-1 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566043&amp;ptid=2084912" target="_blank">ac死或生 发表于 2023-2-1 11:27</a>
+
+我超，真的是勇者王</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">蝙蝠：人类爱之名非吾所需，最强之名寄予一抓之上。。
+
