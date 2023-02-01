@@ -53,3 +53,14 @@
 草 开局安康鱼太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果比起安康鱼让你更害怕的是深巨星的巨物恐惧
 其实深巨星反倒算是这几个星球里难度最低的了
 
+
+*****
+
+####  嘉术2015  
+##### 1118#       发表于 2023-2-1 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59564915&amp;ptid=1992654" target="_blank">囧Smith 发表于 2023-2-1 10:11</a>
+
+黑棘星里的啊，通关怎么可能不遇到</blockquote>
+那个大小也不算大啊，我还以为有那种比一般安康鱼还大的特殊个体，还在核心里找了好久
+
