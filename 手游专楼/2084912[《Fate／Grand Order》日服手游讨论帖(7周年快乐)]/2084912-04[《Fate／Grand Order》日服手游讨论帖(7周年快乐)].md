@@ -2200,3 +2200,16 @@ ORT就变成个宝可梦，蘑菇的审美下降了啊......
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Jamaisvu  
+##### 4732#       发表于 2023-2-1 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59563549&amp;ptid=2084912" target="_blank">大巨傻 发表于 2023-2-1 04:41</a>
+
+哪位打通了？请告知一下后篇是从11节到多少节结束？</blockquote>
+主线总共有24节。
+
+另外第21节是data lost battle，百重塔车轮战大蜘蛛，输到没从者会重头再来，需要小心对待。
+
