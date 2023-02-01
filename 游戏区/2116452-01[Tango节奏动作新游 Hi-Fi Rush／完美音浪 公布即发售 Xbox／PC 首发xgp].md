@@ -3260,3 +3260,16 @@ yxy aoe击飞 救命用
 
 我第七关才知道这个，一下领了快20万
 
+
+*****
+
+####  Sliurus  
+##### 314#       发表于 2023-2-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59569786&amp;ptid=2116452" target="_blank">760194962 发表于 2023-2-1 16:26</a>
+
+还有就是给的材料是不是有点太少了（
+
+—— 来自 S1Fun</blockquote>
+一周目通关基本能把招式全解锁，不包括特殊攻击和道具升级
+
