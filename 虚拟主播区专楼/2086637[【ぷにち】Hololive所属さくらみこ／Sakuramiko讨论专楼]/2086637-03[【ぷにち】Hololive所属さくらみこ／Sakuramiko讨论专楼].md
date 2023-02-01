@@ -12603,3 +12603,39 @@ miko跟很多人关系都很好啊，你怕是要成大醋坛</blockquote>
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4161#         楼主| 发表于 2023-2-1 21:15
+
+几个女孩子出去玩嘛正常而已，这还只是短途2天
+
+平时天天忙都没机会出去玩好不容易有个机会出去还不放松享受
+
+当然以她们收入来说大可以出去玩半把个月了，还不都是放不下这边
+
+*****
+
+####  rs5621  
+##### 4162#       发表于 2023-2-1 21:16
+
+这么快就出了啊
+瑟图警告
+https://twitter.com/nekonekoni_/status/1620768665871474689?s=20&amp;t=aocJwkc1947YFoV-kWoi-g
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qesto  
+##### 4163#       发表于 2023-2-1 21:19
+
+486←裸族
+
+mio←nopan
+
+miko←nopan
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
