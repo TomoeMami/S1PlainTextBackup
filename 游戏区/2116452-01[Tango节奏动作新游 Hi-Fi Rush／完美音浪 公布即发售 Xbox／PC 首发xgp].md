@@ -3322,3 +3322,13 @@ yxy aoe击飞 救命用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刚到第五关，只能说真的爽，真的爽。不过想借这个游戏问一下我疑惑很久的问题，像这类用滚轮切动作的游戏除了换设备以外有啥办法能很好地解决一下切过头的问题吗。
 
+
+*****
+
+####  crosz1985  
+##### 320#       发表于 2023-2-1 22:13
+
+第七关这里怎么拿啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
