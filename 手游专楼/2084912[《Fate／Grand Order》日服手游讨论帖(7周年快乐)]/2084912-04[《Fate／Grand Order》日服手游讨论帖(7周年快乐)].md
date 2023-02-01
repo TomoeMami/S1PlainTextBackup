@@ -2567,3 +2567,16 @@ ORT：心脏要逃走了.jpg
 21 ...</blockquote>
 …………哕了，这什么鬼关卡看完就不想打了<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4766#       发表于 2023-2-1 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59571112&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-1 18:07</a>
+
+给雨神补宝被gank了
+
+烟雾镜，我cnm</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人不能，至少不应该
+
