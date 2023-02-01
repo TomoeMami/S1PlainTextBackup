@@ -2615,3 +2615,13 @@ ORT：心脏要逃走了.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">恐龙人的都市陷落后有出现一段独白描写第7异闻带和恐龙人的生态的着作....最后出现的这作者名是谁
 
+
+*****
+
+####  quanlix  
+##### 4770#       发表于 2023-2-1 19:47
+
+后头有提黑麻雀的剑是谁给的吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
