@@ -3199,3 +3199,23 @@ yxy aoe击飞 救命用
 
 视角问题+没锁定是真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  emmer  
+##### 308#       发表于 2023-2-1 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59568615&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-2-1 14:47</a>
+
+上手的话会嫌打斗太少跑路太长，跳跳乐实在太多了，还有限时跳跳乐更是折磨 ...</blockquote>
+中肯
+
+我也是这个感觉，跳跃一泡污还做一堆跳跳乐
+
+*****
+
+####  760194962  
+##### 309#       发表于 2023-2-1 15:59
+
+买来最高难度打了一阵子 发现虽然节奏不错但是最大难点/问题还是视角和被群殴 换回困难打打 不然评价因为continue掉的很难看很受打击
+
