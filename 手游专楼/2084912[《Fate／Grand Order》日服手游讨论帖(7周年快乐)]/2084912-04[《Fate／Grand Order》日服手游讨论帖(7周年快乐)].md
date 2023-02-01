@@ -2580,3 +2580,30 @@ ORT：心脏要逃走了.jpg
 烟雾镜，我cnm</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人不能，至少不应该
 
+
+*****
+
+####  eilot  
+##### 4767#       发表于 2023-2-1 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566793&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-1 12:21</a>
+
+17节有个Beast蝙蝠神，18节雨神战，19节戴比特带着一堆影从者外星人打御主战（很难，六个人两波上）。
+
+21 ...</blockquote>
+百重塔是每次出场都是打同一血量，打完血量或我方死光，出击角色就消失?
+
+能否用朋友?
+
+*****
+
+####  Jamaisvu  
+##### 4768#       发表于 2023-2-1 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59571796&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-1 19:04</a>
+
+百重塔是每次出场都是打同一血量，打完血量或我方死光，出击角色就消失?
+
+能否用朋友? ...</blockquote>
+自己最多上六个人，战败后会变成水晶消失（data lost），下次换人进大蜘蛛保持之前的血量，另外它中途会变换职介，用克制单体打手慢慢磨就行。
+
