@@ -981,3 +981,11 @@ MASAKI负责BGM的高难（Resonance Ring）这次复刻的关卡名和称号设
 
 <img src="https://p.sda1.dev/9/9dcfe609c9af4477803737408d6162ed/CMP_20230201112957013.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 238#       发表于 2023-2-1 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">刚反应过来50W好感是不是比300W粉丝更鬼畜，哪来这么多礼物（（
+
