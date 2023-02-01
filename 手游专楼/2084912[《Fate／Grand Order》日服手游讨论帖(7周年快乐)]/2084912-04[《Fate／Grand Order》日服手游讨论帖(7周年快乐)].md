@@ -2514,3 +2514,13 @@ ORT：心脏要逃走了.jpg
 我超，真的是勇者王</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">蝙蝠：人类爱之名非吾所需，最强之名寄予一抓之上。。
 
+
+*****
+
+####  リッチ  
+##### 4761#       发表于 2023-2-1 16:50
+
+通关了
+
+希望蝙蝠神别太快实装，让我攒一攒石头<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

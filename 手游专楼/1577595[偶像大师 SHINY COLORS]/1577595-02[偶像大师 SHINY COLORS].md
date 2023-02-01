@@ -66,3 +66,11 @@ CD 有三曲那挺好，一个组合一年两首不够听
 
 改rank评价可能是有人用脚本刷STEP，现在等于多一个点技能的过程复杂化。
 
+
+*****
+
+####  kobushi  
+##### 2702#       发表于 2023-2-1 16:41
+
+为什么要让管人翻唱偶像的solo曲，退一万步说翻组合曲全体曲都好一点，这联动对拉新有一点点作用吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
