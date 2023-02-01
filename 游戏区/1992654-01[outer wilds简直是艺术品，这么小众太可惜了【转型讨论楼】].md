@@ -64,3 +64,14 @@
 黑棘星里的啊，通关怎么可能不遇到</blockquote>
 那个大小也不算大啊，我还以为有那种比一般安康鱼还大的特殊个体，还在核心里找了好久
 
+
+*****
+
+####  filo916  
+##### 1119#       发表于 2023-2-1 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566706&amp;ptid=1992654" target="_blank">嘉术2015 发表于 2023-2-1 12:13</a>
+那个大小也不算大啊，我还以为有那种比一般安康鱼还大的特殊个体，还在核心里找了好久 ...</blockquote>
+视角问题，你用mod切到第三人称会发现还是挺大的
+<img src="https://p.sda1.dev/9/7f47e01e02a2bc7708629af550aaa3f6/IMG_CMP_217964631.jpeg" referrerpolicy="no-referrer">
+

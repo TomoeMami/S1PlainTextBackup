@@ -6893,3 +6893,14 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">游戏挺好的，就是刷子要素有点难顶了，年纪大了刷一会儿就累，不刷又拿不到想要的核心技能，决定还是云一下剧情就好了
 
+
+*****
+
+####  yodiudiu  
+##### 3579#       发表于 2023-2-1 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59566699&amp;ptid=2098044" target="_blank">浩二先辈 发表于 2023-2-1 12:13</a>
+
+游戏挺好的，就是刷子要素有点难顶了，年纪大了刷一会儿就累，不刷又拿不到想要的核心技能，决定还 ...</blockquote>
+可以用cheat engine适当的修改一下，小改怡情
+
