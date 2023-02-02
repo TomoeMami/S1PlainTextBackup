@@ -236,3 +236,13 @@
 增量不会刷新，不过抽卡卷礼包应该是每月更新了...还差10抽每日优惠单抽满满抽吧，唉 ...</blockquote>
 有能力氪金的话就买月卡+2个抽卡包差不多了，每个月4500也不便宜了，增量还是沉船后的最终手段。以后应该会有只能用有偿石的超得池或者step池，还是别上头了。
 
+
+*****
+
+####  MEKA  
+##### 255#       发表于 2023-2-2 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59574011&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2023-2-1 22:21</a>
+有能力氪金的话就买月卡+2个抽卡包差不多了，每个月4500也不便宜了，增量还是沉船后的最终手段。以后应该 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢…上头了确实难受。常驻毕竟还是能歪出来,忍住等看看后面半周年有没有限定吧
+
