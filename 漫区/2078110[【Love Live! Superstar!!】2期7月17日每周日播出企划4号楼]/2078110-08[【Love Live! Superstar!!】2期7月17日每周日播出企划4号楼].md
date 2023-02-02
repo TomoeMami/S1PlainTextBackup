@@ -13144,3 +13144,13 @@ pay：不自搜了
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  愛さ実  
+##### 11664#       发表于 2023-2-2 17:37
+
+才发现这三人生日都是相邻的，甚至咻咔还比菜宝小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
