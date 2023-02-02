@@ -51,3 +51,15 @@
 换一下写法应该就可以了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">干，去试着踢去文件名里的车型，成功，RS4 GT4这种居然算违规字符，本来命名想着带上车型方便别人好找车子，保时捷一堆911车型非死忠找起来太痛苦了。最后退而求其次只能角色名+年份来尽可能缩小别人查找难度
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2516#       发表于 2023-2-2 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59568114&amp;ptid=2033303" target="_blank">真实之影 发表于 2023-2-1 14:10</a>
+删掉再重装？理论上存档是保存在xbox cloud上</blockquote>
+解决了，果然遇事不决删了重下可以解决一切问题
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
