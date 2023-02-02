@@ -3768,3 +3768,23 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 反正小芬奇死定了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是小芬奇的愿望可是给你迦送终，这么多次快退场的flag都苟下来了，没准真能送走你迦再死
 
+
+*****
+
+####  alucardcz  
+##### 4871#       发表于 2023-2-2 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59587398&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-2 21:59</a>
+
+蝙蝠用杀狐公主组合挺好打的啊 红卡暴击20W+伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  森兰丸  
+##### 4872#       发表于 2023-2-2 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">话说回来卡多克还真成了A组唯一幸存下来的成员....看这架势也算是正式在新嘉乐迪安定下来了
+
+还是挺感概的.....不知道以后在活动中会不会正式作为常驻人物出场
+

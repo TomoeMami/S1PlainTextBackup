@@ -14001,3 +14001,48 @@ ios预约页面是预期4月30日开服
 突然想起来那换装企划还有个写小作文应援的部分，好想整点阴阳怪气的内容过去啊 ...</blockquote>
 不会选上的，除非总编也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  愛さ実  
+##### 11765#       发表于 2023-2-2 22:35
+
+<img src="https://img.saraba1st.com/forum/202302/02/223229pjj05j0zju200y04.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5559.PNG</strong> (832.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 22:32 上传
+
+“个性溢れるイラスト”
+连体就是可可个性吗，可别恶心我了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 11766#       发表于 2023-2-2 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585327&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2023-2-2 19:37</a>
+有图吗，想看
+
+—— 来自 OPPO PDRM00, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+才看到，我周末再发上来
+
+*****
+
+####  稀勢のささ  
+##### 11767#       发表于 2023-2-2 22:40
+
+<img src="https://img.saraba1st.com/forum/202302/02/224034eogxgav8omo5mac7.jpg" referrerpolicy="no-referrer">
+
+<strong>Fn9UzlTaAAU5Czd.jpg</strong> (412.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 22:40 上传
+
+还是整点乐的吧
+
