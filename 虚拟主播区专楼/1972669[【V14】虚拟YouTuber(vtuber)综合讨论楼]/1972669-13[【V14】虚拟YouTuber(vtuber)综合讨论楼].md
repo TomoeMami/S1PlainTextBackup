@@ -2314,3 +2314,11 @@ neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚�
 油这个纪念动画有点东西啊，质量过关的同时还把高光时刻很好的表现出来了
 虽然基本没看过，但还是瑞思拜了
 
+
+*****
+
+####  布莱士·西伯利  
+##### 18502#       发表于 2023-2-2 11:48
+
+油这个动画怎么感觉是国产的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
