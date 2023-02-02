@@ -3549,3 +3549,11 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 打多连击的同时也不会被其他敌人攻击干扰
 
+
+*****
+
+####  Rowen233  
+##### 343#       发表于 2023-2-2 16:35
+
+这游戏会出2吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
