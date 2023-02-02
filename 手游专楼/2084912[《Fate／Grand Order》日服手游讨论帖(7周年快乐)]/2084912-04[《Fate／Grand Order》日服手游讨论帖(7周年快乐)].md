@@ -2997,3 +2997,27 @@ PU1 ...</blockquote>
 
 另外过去22年开这么多卡池就为了ORT战这个馅，估计今年还会变本加厉地开更多卡池
 
+
+*****
+
+####  khxooo  
+##### 4801#       发表于 2023-2-2 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579571&amp;ptid=2084912" target="_blank">Blackson 发表于 2023-2-2 12:07</a>
+看2.7这个ORT战还挺麻烦的，只希望今年日服的活动别硬性要求通关2.7才能玩
+
+另外过去22年开这么多卡池就为了 ...</blockquote>
+不麻烦，我甚至除了降临者职介外没有用过任何一个5星，4星也就用了10个左右就过了。
+
+*****
+
+####  Jamaisvu  
+##### 4802#       发表于 2023-2-2 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579410&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-2 11:58</a>
+
+黑豹解包出来是5星复仇，这章就雨神一个4星</blockquote>
+谢天谢地，那估计是单独一个卡池了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最好是通关欧证，省得以后见到他...
+
+（其实看多了镜子哥感觉蒙二带着面具也没那么难看，而且不排除古海钟一藏了一手优质三破，可惜剧情里没啥亮点...）
+
