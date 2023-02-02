@@ -14243,3 +14243,35 @@ ios预约页面是预期4月30日开服
 
 遇见能说明白话的就调调，讨论氛围这玩意多享受一会是一会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 11788#       发表于 2023-2-3 00:25
+
+你们看，还一堆洗地的说双人卡是传统何必大惊小怪，那其他两个角色怎么就能单人卡？到可可这就非得捆着另一个？初始就不配拥有自己的单人卡？非得跟运营互相理解？
+
+*****
+
+####  nufawneafg  
+##### 11789#       发表于 2023-2-3 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588999&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-3 00:25</a>
+你们看，还一堆洗地的说双人卡是传统何必大惊小怪，那其他两个角色怎么就能单人卡？到可可这就非得捆着另一 ...</blockquote>
+和运营妹相互理解啊，在骂了，和角色推相互理解了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 11790#       发表于 2023-2-3 00:29
+
+重CV轻角色不会有那么大情绪波动，不过大多数人反过来，路人粉更是都不重视三个月后再换一个推就好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 11791#       发表于 2023-2-3 00:30
+
+反正我现在就是个连直播live 都不看的单推，还是继续安静看乐子吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">毕竟官方再怎么硬推观众也会用投票结果说话
+
