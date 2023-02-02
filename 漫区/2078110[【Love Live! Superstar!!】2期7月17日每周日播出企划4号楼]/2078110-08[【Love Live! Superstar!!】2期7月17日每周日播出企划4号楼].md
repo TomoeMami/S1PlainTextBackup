@@ -13236,3 +13236,35 @@ pay：不自搜了
 
 可以打全曲？
 
+
+*****
+
+####  cybernetics31  
+##### 11675#       发表于 2023-2-2 19:13
+
+二赖子都有了，全曲了
+
+*****
+
+####  starring  
+##### 11676#       发表于 2023-2-2 19:15
+
+跟sif一模一样的操作，是土秽转生术
+
+*****
+
+####  adw667  
+##### 11677#       发表于 2023-2-2 19:18
+
+低情绪打CALL还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11678#       发表于 2023-2-2 19:19
+
+ 本帖最后由 稀勢のささ 于 2023-2-2 19:21 编辑 
+
+突然弹出来的立绘确实很烦就是了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所谓画面进化有没有懂哥评价下
+
