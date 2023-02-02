@@ -14275,3 +14275,20 @@ ios预约页面是预期4月30日开服
 
 反正我现在就是个连直播live 都不看的单推，还是继续安静看乐子吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">毕竟官方再怎么硬推观众也会用投票结果说话
 
+
+*****
+
+####  稀勢のささ  
+##### 11792#       发表于 2023-2-3 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟角色推对线又分不出胜负，不如去官推下面阴阳怪气，反正我是舒服了不少
+
+*****
+
+####  nufawneafg  
+##### 11793#       发表于 2023-2-3 00:39
+
+ 本帖最后由 nufawneafg 于 2023-2-3 00:41 编辑 
+
+虽然现在最能让我舒心的就是帝国的覆灭，但是在一个第三方设置好的战场上天天互相用主观断言魔法对轰也不是个事儿<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
