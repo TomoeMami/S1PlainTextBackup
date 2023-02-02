@@ -3788,3 +3788,12 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 还是挺感概的.....不知道以后在活动中会不会正式作为常驻人物出场
 
+
+*****
+
+####  alucardcz  
+##### 4873#       发表于 2023-2-2 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说从这大蜘蛛战可以感受到 以前部分送的活动从者真他妹的强 单人轻松100万 要不是破条就会死 都不知道一个人能打几条
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想比某些5星 铁废物（
+

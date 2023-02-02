@@ -14070,3 +14070,21 @@ ios预约页面是预期4月30日开服
 不是，隔壁某位不都说二期后不关注了吗？咋还跨专楼诉苦呢。
 自己也只敢在专楼车轱辘搞客观不敢出门汴京拉攻击性拽住同担现在倒打一耙骂人魔怔还圣母替其他星角色推申冤，也有脸说别人紫吧骑脸不敢放屁内斗内行？需要你内斗拉住同担输出情绪的时候不上现在就别下场。
 
+
+*****
+
+####  player3960  
+##### 11770#       发表于 2023-2-2 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588146&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-02-02 23:07:42</a>
+不是，隔壁某位不都说二期后不关注了吗？咋还跨专楼诉苦呢。</blockquote>就是个魔怔堇推，还特喜欢嘴可推，怕不是带入了，也不知道是谁喜欢内战<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 11771#       发表于 2023-2-2 23:20
+
+啥玩意啊？隔壁那个魔怔民警推？从她一个劲说可可怎么怎么金毛就可以完全无视她了
+

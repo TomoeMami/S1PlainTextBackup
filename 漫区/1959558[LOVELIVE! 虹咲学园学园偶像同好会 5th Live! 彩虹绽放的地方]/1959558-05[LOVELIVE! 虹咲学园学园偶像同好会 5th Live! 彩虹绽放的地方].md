@@ -2151,3 +2151,15 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  yicihanshu  
+##### 6961#       发表于 2023-2-2 23:19
+
+这个发型我唯一有明确印象的也就这里，冲进来自爆这段
+<img src="https://p.sda1.dev/9/695bd97110838af01469d41dfea0ca16/CMP_20230202231753966.jpg" referrerpolicy="no-referrer">
+但雪菜也不至于因为动画喊过自己是雪菜就头发也不打理得这么没事在路上吧…
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
