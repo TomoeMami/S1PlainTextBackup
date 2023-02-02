@@ -3478,3 +3478,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 我忽然发现 拿到碎片的BGM是不是跟塞尔达一样
 
+
+*****
+
+####  CswStar  
+##### 336#       发表于 2023-2-2 10:33
+
+电击地板太恶心了，配上鸟和两个喷火兵把我干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+本来打完红毛感觉自己又行了，什么武士、盾兵全是鸡，在摸透了他们的攻防转换规律后都不难，然后下一关就给我整电击地板+火焰debuff+三连战<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+

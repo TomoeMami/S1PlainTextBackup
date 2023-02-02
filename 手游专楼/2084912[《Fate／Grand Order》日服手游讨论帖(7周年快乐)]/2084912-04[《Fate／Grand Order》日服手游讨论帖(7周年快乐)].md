@@ -2813,3 +2813,16 @@ FSF的问题是动作和废狗、或者说日本Aniplex关系不大
 就是让你宝具对轰直接一次性轰死对面</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真蛋疼 以为是跟之前一样自带三次无敌 带的贯通礼装 换黑杯秒了
 
+
+*****
+
+####  zakki  
+##### 4787#       发表于 2023-2-2 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59574578&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-1 23:13</a>
+
+打完了，怎么说呢
+
+故事整体还是很流畅的，属于正常发挥，就是读起来味道好怪</blockquote>
+那你觉得和2.6比怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
