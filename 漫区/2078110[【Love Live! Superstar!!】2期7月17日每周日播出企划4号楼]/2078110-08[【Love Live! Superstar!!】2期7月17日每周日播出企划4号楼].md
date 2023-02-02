@@ -14046,3 +14046,18 @@ ios预约页面是预期4月30日开服
 
 还是整点乐的吧
 
+
+*****
+
+####  yicihanshu  
+##### 11768#       发表于 2023-2-2 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59587243&amp;ptid=2078110" target="_blank">toshima 发表于 2023-2-2 21:47</a>
+这个上rock live我是真不理解。。。是木谷高明发现票卖不出去了叫拉拉人来填场子么。。。 ...</blockquote>
+那个活动本来就奇怪，一宣布的时候倒是先给自家一些ip粉丝气的不轻，像男邦粉丝表示自家拼盘都已经完全不管自己了，就算后面追加也不去。
+不过他社ip有追加可太正常了，毕竟两边协调时间必然不如自家容易，先公布了自家一些确定下来的参加者而已。
+武士道手里ip，拉拉虽然是他社ip，但这个体量可不小，能协调自然乐意拉来
+不过对星来说，万代大概单纯就是觉得星团可以往死里用罢了，有啥活能上就上，创造价值不能停。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

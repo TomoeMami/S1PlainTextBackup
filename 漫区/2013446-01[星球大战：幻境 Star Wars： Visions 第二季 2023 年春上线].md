@@ -2738,3 +2738,74 @@ Fun Fact:
 5月4日开播，9个工作室各一集
 <img src="https://p.sda1.dev/9/67beba137031586c40b08851af7d839a/20230202_223311.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 211#       发表于 2023-2-2 22:57
+
+ 本帖最后由 Piano-Forest 于 2023-2-2 22:58 编辑 
+
+5月4日开播，9个工作室各一集
+<img src="https://p.sda1.dev/9/67beba137031586c40b08851af7d839a/20230202_223311.jpg" referrerpolicy="no-referrer">
+
+详情：[https://www.starwars.com/news/star-wars-visions-volume-2](https://www.starwars.com/news/star-wars-visions-volume-2)
+
+各工作室作品名称：
+
+El Guiri (Spain)
+
+“Sith” 
+
+Writer-director: Rodrigo Blaas
+
+Cartoon Saloon (Ireland)
+
+“Screecher’s Reach”
+
+Director: Paul Young
+
+Punkrobot (Chile)
+
+“In the Stars”
+
+Writer-director: Gabriel Osorio
+
+Aardman (United Kingdom)
+
+“I Am Your Mother”
+
+Director: Magdalena Osinska
+
+Studio Mir (South Korea) 
+
+“Journey to the Dark Head”
+
+Director: Hyeong Geun Park
+
+Studio La Cachette (France)
+
+“The Spy Dancer”
+
+Writer-director: Julien Chheng
+
+88 Pictures (India)
+
+ “The Bandits of Golak”
+
+Director: Ishan Shukla
+
+D'art Shtajio (Japan)
+
+“The Pit”
+
+Writer-director-executive producer: LeAndre Thomas
+
+Co-director: Justin Ridge
+
+Triggerfish (South Africa)
+
+“Aau’s Song”
+
+Writer-directors: Nadia Darries and Daniel Clarke
+
