@@ -13134,3 +13134,13 @@ pay：不自搜了
 
 就在今天！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 11663#       发表于 2023-2-2 17:10
+
+官推宣布全面开声了，反正之前也是掩耳盗铃。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
