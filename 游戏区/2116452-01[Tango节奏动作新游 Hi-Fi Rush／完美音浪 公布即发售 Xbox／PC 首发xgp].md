@@ -3575,3 +3575,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 我发现连击后的队友技能死活按不准是怎么回事 只能触发普通的队友入场 触发不了有特殊过场的队友技能 这个判定这么严吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laoz  
+##### 346#       发表于 2023-2-2 18:04
+
+<blockquote>760194962 发表于 2023-2-2 18:01
+我发现连击后的队友技能死活按不准是怎么回事 只能触发普通的队友入场 触发不了有特殊过场的队友技能 这个 ...</blockquote>
+这个要消耗电量
+

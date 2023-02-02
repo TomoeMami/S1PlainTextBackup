@@ -13169,3 +13169,23 @@ pay：不自搜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然觉得酸菜鱼3期难产别是因为内部早就决定sif要停所以大挑战环节不好做吧
 
+
+*****
+
+####  adw667  
+##### 11667#       发表于 2023-2-2 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584191&amp;ptid=2078110" target="_blank">长日留痕 发表于 2023-2-2 17:53</a>
+
+三个角色两个中国人，是&amp;#x4E ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">印象里涉及游戏的直播都少不了酸菜鱼
+
+*****
+
+####  1096beam  
+##### 11668#       发表于 2023-2-2 18:07
+
+<blockquote>长日留痕 发表于 2023-2-2 17:53
+三个角色两个中国人，是&amp;#x4E ...</blockquote>
+水团搞的世界看板娘活动渡边曜还是代表中国的
+
