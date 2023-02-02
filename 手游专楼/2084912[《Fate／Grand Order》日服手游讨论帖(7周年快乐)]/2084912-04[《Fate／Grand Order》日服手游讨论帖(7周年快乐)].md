@@ -3537,3 +3537,16 @@ PU1 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">最近沉迷打BA。这主线还没推。打算等到周末才打2.7.这次总算没分拆了。那么下一章是不是真真真第二部结尾。
 
+
+*****
+
+####  黑上シグマ  
+##### 4848#       发表于 2023-2-2 14:25
+
+<blockquote>引用第4846楼areklose于2023-02-02 14:04发表的  :
+
+最近沉迷打BA。这主线还没推。打算等到周末才打2.7.这次总算没分拆了。那么下一章是不是真真真第二部......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别忘了还要回次冬木呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
