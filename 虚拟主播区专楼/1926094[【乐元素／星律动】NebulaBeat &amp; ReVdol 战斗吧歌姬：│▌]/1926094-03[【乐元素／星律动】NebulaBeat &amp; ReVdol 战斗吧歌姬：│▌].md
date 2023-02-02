@@ -19,3 +19,13 @@
 
 为了进厂直播还特意回国办银行卡
 
+
+*****
+
+####  再迷  
+##### 3003#       发表于 2023-2-2 20:34
+
+纸哥真逆天，新粉感受不到情怀，看着主播这么沉迷过去感觉五味杂陈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

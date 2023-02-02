@@ -2109,3 +2109,13 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dozen  
+##### 6958#       发表于 2023-2-2 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586057&amp;ptid=1959558" target="_blank">川陀 发表于 2023-2-2 20:27</a>
+sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquote>
+这只是剧情中用了雪菜和菜菜中间态的立绘吧，官网发型没变
+

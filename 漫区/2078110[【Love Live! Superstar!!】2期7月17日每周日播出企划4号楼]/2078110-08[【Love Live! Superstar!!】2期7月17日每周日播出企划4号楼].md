@@ -13778,3 +13778,83 @@ ios预约页面是预期4月30日开服
 
 这都不只是烂不烂的问题了，天天推天天推每个能塞的地方都塞你换哪对上都不行啊，还是说你拉本质不是学院偶像粉丝一天到晚只爱嗑cp啊
 
+
+*****
+
+####  ads147147  
+##### 11742#       发表于 2023-2-2 20:33
+
+反正双人卡，你换民警以外的任何人可能都没有这么强的ptsd，只能说真有你的啊运营。
+
+而且我记得岚珠手上的是栞子吧，更说明问题了w
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ruffian  
+##### 11743#       发表于 2023-2-2 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585981&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-02-02 20:22:23</a>
+如果旁边是香音，会变成骂官方还记得可香吗？</blockquote>如果换成香音，也许争议会小点，但我同样不满，因为这踏马是可可的ur，跟另外两张单人卡摆一起塞谁都不行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  懂你意思  
+##### 11744#       发表于 2023-2-2 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586179&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-2 20:34</a>
+
+如果换成香音，也许争议会小点，但我同样不满，因为这踏马是可可的ur，跟另外两张单人卡摆一起塞谁都不行
+
+ ...</blockquote>
+介绍单人卡的环节，你像岚珠那样弄个步梦小彩蛋还行，直接另一个人塞脸上算什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 11745#       发表于 2023-2-2 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586163&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-2 20:33</a>
+
+反正双人卡，你换民警以外的任何人可能都没有这么强的ptsd，只能说真有你的啊运营。
+
+而且我记得岚珠手上的 ...</blockquote>
+拿的是步梦的
+
+*****
+
+####  愛さ実  
+##### 11746#       发表于 2023-2-2 20:38
+
+啥比吧，卡面也这样搞？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 11747#       发表于 2023-2-2 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586217&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-2 20:37</a>
+拿的是步梦的</blockquote>
+看了下微博大图，应该是步梦。所以说运营真是，费尽心思干死可香乃至可可的任何cp捏。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  优妮可  
+##### 11748#       发表于 2023-2-2 20:41
+
+唉，也不知道说啥了，到处都在聊卡面。只能代哥是懂流量的，展示玩法不如一张卡面有冲击力。
+
+*****
+
+####  lj205  
+##### 11749#       发表于 2023-2-2 20:41
+
+放香音我照样喷
+
