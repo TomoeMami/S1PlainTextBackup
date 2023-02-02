@@ -14219,3 +14219,27 @@ ios预约页面是预期4月30日开服
 
 大部分人都会觉得自己这一方是“受害者”，但不一定会觉得对方是“受害者”，当这种认知上的不均衡被放大到难以调和的地步，对立不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Enakina  
+##### 11785#       发表于 2023-2-3 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588805&amp;ptid=2078110" target="_blank">cat1230 发表于 2023-2-3 00:05</a>
+忘记看2号的直播了，刚上线发现3号了无聊的直播没弹幕看不下去。</blockquote>
+弹幕啊，这边不建议看哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想鉴别物种多样性的话，当我没说
+
+*****
+
+####  aoaoaodedede  
+##### 11786#       发表于 2023-2-3 00:17
+
+别指望调和矛盾了，已经基本上算是做不到的事了，只能接受现在的讨论氛围了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11787#       发表于 2023-2-3 00:21
+
+遇见能说明白话的就调调，讨论氛围这玩意多享受一会是一会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

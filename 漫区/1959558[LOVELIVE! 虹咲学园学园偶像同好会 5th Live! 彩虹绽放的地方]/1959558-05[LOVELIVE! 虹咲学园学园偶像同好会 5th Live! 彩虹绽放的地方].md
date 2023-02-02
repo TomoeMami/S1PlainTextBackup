@@ -2171,3 +2171,14 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 
 竟然是动画世界观吗？是不是意味着雨野写的那坨以后会成为黑历史？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6963#       发表于 2023-2-3 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588454&amp;ptid=1959558" target="_blank">牛李 发表于 2023-2-2 23:32</a>
+
+竟然是动画世界观吗？是不是意味着雨野写的那坨以后会成为黑历史？</blockquote>
+把支线扒拉扒拉就好，主线能滚多远就滚多远吧，如果有人要攻击性那么去论坛里公开支持那一坨一定能收获不少了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
