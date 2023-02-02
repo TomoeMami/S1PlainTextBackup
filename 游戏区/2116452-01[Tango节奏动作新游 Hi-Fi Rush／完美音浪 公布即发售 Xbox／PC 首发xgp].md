@@ -3567,3 +3567,11 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 这游戏会出2吗</blockquote>
 大胆点，e3（也不对现在微软不参加e3了）公布皇家版，我要玩蔻西嘉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 345#       发表于 2023-2-2 18:01
+
+我发现连击后的队友技能死活按不准是怎么回事 只能触发普通的队友入场 触发不了有特殊过场的队友技能 这个判定这么严吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

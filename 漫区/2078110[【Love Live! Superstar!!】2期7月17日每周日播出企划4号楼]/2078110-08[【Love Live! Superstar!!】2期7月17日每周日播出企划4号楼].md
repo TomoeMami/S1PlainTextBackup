@@ -13154,3 +13154,18 @@ pay：不自搜了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  长日留痕  
+##### 11665#       发表于 2023-2-2 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">三个角色两个中国人，是不是sif国服流水比日服多（
+
+*****
+
+####  adw667  
+##### 11666#       发表于 2023-2-2 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然觉得酸菜鱼3期难产别是因为内部早就决定sif要停所以大挑战环节不好做吧
+
