@@ -22,3 +22,11 @@
 
 就算cy肯给钱继续维持推特放野，填表网自己也要出钱吧，这大概率没法靠广告活下来，看好暴死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  404489039  
+##### 17278#       发表于 2023-2-2 23:58
+
+死就死 这傻逼游戏
+
