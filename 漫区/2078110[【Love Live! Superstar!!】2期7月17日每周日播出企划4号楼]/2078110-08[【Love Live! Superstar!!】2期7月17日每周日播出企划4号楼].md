@@ -13550,3 +13550,133 @@ AS里觉醒前的双人卡面也有，看后续放出吧
 不不不，我意思是按运营路子你猜他会不会整拉郎配剧情</blockquote>
 我倒是希望整个跨团拉郎配<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 11713#       发表于 2023-2-2 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585690&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-2 20:01</a>
+
+我倒是希望整个跨团拉郎配</blockquote>
+AS卡面跨团双人不少的，都是活动剧情相关就是了
+
+*****
+
+####  ViyViy  
+##### 11714#       发表于 2023-2-2 20:03
+
+不知道是我电脑屏幕不行还是啥，怎么感觉这个出特效的时候很难看清下落的圈？下落的圈颜色太淡了。。
+
+*****
+
+####  lj205  
+##### 11715#       发表于 2023-2-2 20:04
+
+这换汤不换药的游戏还能有50万人吗？
+
+*****
+
+####  stygian  
+##### 11716#       发表于 2023-2-2 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585717&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-2 20:03</a>
+
+不知道是我电脑屏幕不行还是啥，怎么感觉这个出特效的时候很难看清下落的圈？ ...</blockquote>
+玩sif关特效是基本操作，三个人一直在吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 11717#       发表于 2023-2-2 20:05
+
+小日子可不会学国内“调控”，别等会一半都没有就尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11718#       发表于 2023-2-2 20:06
+
+反正我没啥兴趣，没mv没3d玩它干啥，还不如指望as加星进来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 11719#       发表于 2023-2-2 20:06
+
+春天，那不就是无缝。
+
+不对，3月算初春<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11720#       发表于 2023-2-2 20:07
+
+ios预约页面是预期4月30日开服
+
+*****
+
+####  稀勢のささ  
+##### 11721#       发表于 2023-2-2 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不敢给准确时间，不会是怕做不完吧
+
+*****
+
+####  优妮可  
+##### 11722#       发表于 2023-2-2 20:07
+
+感觉这sif2还没as吃性能
+
+*****
+
+####  adw667  
+##### 11723#       发表于 2023-2-2 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">这就完啦？
+
+*****
+
+####  wsdbyh  
+##### 11724#       发表于 2023-2-2 20:09
+
+这SIF2没有超美丽3DLIVE，又没有精美2DMV，这炒冷饭怎么玩啊
+
+*****
+
+####  stygian  
+##### 11725#       发表于 2023-2-2 20:10
+
+背景那个屏幕可能是之后追加mv功能
+
+*****
+
+####  ViyViy  
+##### 11726#       发表于 2023-2-2 20:10
+
+就是换了个开发商环境换现代的开苟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 11727#       发表于 2023-2-2 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">感觉像是读了一小时台本，果然还是期待太高了
+
+*****
+
+####  starring  
+##### 11728#       发表于 2023-2-2 20:12
+
+提不起半点兴趣，继续拥抱我头像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 11729#       发表于 2023-2-2 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
