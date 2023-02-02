@@ -2819,3 +2819,11 @@ Writer-directors: Nadia Darries and Daniel Clarke
 
 搜了下，这次请的工作室和导演履历都挺不错的，一堆奥斯卡/艾美奖得主，就韩国和南非弱一些；美资日本工作室 D’art Shtajio 有点迷，不过导演和编剧都是卢卡斯的，感觉口碑可能会比第一季好。
 
+
+*****
+
+####  玄天大佐  
+##### 213#       发表于 2023-2-3 01:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是你妈妈……
+
