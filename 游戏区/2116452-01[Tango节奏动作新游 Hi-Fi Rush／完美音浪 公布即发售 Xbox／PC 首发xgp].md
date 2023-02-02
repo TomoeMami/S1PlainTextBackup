@@ -3515,3 +3515,27 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 豪华版也就几个替换服装(一周目还用不了)以及2w齿轮(杯水车薪) 买了几乎就是没用的
 要是能把原创曲原声塞进去就好了……
 
+
+*****
+
+####  陈词与芍药  
+##### 340#         楼主| 发表于 2023-2-2 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578642&amp;ptid=2116452" target="_blank">loneblade 发表于 2023-2-1 22:10</a>
+豪华版也就几个替换服装(一周目还用不了)以及2w齿轮(杯水车薪) 买了几乎就是没用的
+要是能把原创曲原声塞 ...</blockquote>
+一周目可以直接换豪华版的服装
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  loneblade  
+##### 341#       发表于 2023-2-2 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578734&amp;ptid=2116452" target="_blank">陈词与芍药 发表于 2023-2-2 11:16</a>
+一周目可以直接换豪华版的服装
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这样吗
+
