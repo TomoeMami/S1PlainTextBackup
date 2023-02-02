@@ -3504,3 +3504,14 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 推上不少日本人求移植NS版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  loneblade  
+##### 339#       发表于 2023-2-2 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578305&amp;ptid=2116452" target="_blank">牛奶笛 发表于 2023-2-2 10:50</a>
+有买了豪华版的吗？是否推荐买啊</blockquote>
+豪华版也就几个替换服装(一周目还用不了)以及2w齿轮(杯水车薪) 买了几乎就是没用的
+要是能把原创曲原声塞进去就好了……
+
