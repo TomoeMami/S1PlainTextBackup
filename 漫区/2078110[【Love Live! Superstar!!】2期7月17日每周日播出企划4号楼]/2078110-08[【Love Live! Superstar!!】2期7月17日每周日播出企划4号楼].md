@@ -13951,3 +13951,34 @@ ios预约页面是预期4月30日开服
 你 ...</blockquote>
 今年三巡线上缩场呢还想达到最后这种半壁江山，笑死，隔壁甚至担心起来会不会解禁了直接一场不给了都给我来日朝拜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aoaoaodedede  
+##### 11760#       发表于 2023-2-2 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586907&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-2 21:21</a>
+
+企划是服务受众的，不是让受众把它供起来的，受众太软它就过的太舒服不知道自己老几，滑向毁灭
+
+你 ...</blockquote>
+我记得万南的这个中期计划还有几个词叫“Connect with Fans”，可能咱们不算粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  toshima  
+##### 11761#       发表于 2023-2-2 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585529&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-2-2 19:49</a></blockquote>
+这个上rock live我是真不理解。。。是木谷高明发现票卖不出去了叫拉拉人来填场子么。。。
+
+*****
+
+####  nufawneafg  
+##### 11762#       发表于 2023-2-2 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59587196&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2023-2-2 21:43</a>
+我记得万南的这个中期计划&amp;# ...</blockquote>
+对，每次它搞“编读往来”式的半双工通信我就会想到这个slogan，就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
