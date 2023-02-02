@@ -3400,3 +3400,67 @@ Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当�
 从头到尾没提过坎帝国打的是什么状态
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 4835#       发表于 2023-2-2 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580473&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 13:18</a>
+
+盖章之前别边瞎猜边给别人科普吧
+
+从头到尾没提过坎帝国打的是什么状态
+
+ ...</blockquote>
+这个是早期~中期设定集的共通规则吧（神秘度是战斗中最重要的部分，数量级很多时候什么都决定不了），要是真靠数量级就能打，那钢陆也不至于在Eden和GODO参战之前被那几个UO打成那么惨了
+
+*****
+
+####  exiaexa  
+##### 4836#       发表于 2023-2-2 13:25
+
+ 本帖最后由 exiaexa 于 2023-2-2 13:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580513&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 13:21</a>
+这个是早期~中期设定集的共通规则吧（神秘度是战斗中最重要的部分，数量级很多时候什么都决定不了），要 ...</blockquote>
+神他妈共同规则
+当年还默认学姐只能跟评论从者打防御战呢，现在都开挂到啥地步了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没盖章的东西你吹水无所谓，拿出来正经论战差不多得了
+
+*****
+
+####  武男  
+##### 4837#       发表于 2023-2-2 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579935&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 12:38</a>
+
+因为这个ORT是摔死复活以后的弱化版，勇者王打的那个已经比泛人类史的ORT要弱很多了（参考月姬公主复活了 ...</blockquote>
+摔死这个就挺草的了，不过百特曼能够偷心成功也证明BEST和UO的关系应该和他们跟冠位差不多吧。要从一堆大主神和BEST，冠位，圣剑使啥的里面过关当上地球UO，打到最后升级也很正常。
+
+*****
+
+####  budong  
+##### 4838#       发表于 2023-2-2 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580587&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-2 13:27</a>
+摔死这个就挺草的了，不过百特曼能够偷心成功也证明BEST和UO的关系应该和他们跟冠位差不多吧。要从一堆大 ...</blockquote>
+600万年前的和Ort打的只有蝙蝠神一族<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 4839#       发表于 2023-2-2 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580554&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 13:25</a>
+
+神他妈共同规则
+
+当年还默认学姐干不过评论从者呢，现在都开挂到啥地步了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Ciel的命运在月姬2反正是确定的，月R加的再强也改变不了她没办法从艾尔斯伯里活着出来
+
+而且月R学姐线她打掉光体也不是靠自己的纯实力的，后面那段选错了就是直接死
+
+我只是提下月R也没有否掉旧版死过一次会降上限的说法（因为他们这些“没死亡概念者”那个特殊的再生机制，这个是解释过的）；以及单凭力量的数量级有时候是干不掉上位者的，必须掏出克制性（月R也没有否定这点，断头台和那个弓性质上还是克制公主的）
+
