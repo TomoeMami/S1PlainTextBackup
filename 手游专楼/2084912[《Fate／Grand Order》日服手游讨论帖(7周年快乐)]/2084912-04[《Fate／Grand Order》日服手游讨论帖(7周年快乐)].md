@@ -2954,3 +2954,11 @@ PU2：五星欧证杀雾镜，四星欧证仇豹二世。
 
 杀雾镜和冠位丑这两个外号让我笑了半天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格雷殿下  
+##### 4797#       发表于 2023-2-2 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了几天，终于想明白了，上这个立绘是热度玩法
+

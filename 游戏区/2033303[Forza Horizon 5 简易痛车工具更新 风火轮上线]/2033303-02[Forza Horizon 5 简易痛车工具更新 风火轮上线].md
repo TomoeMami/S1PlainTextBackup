@@ -63,3 +63,20 @@
 
 —— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  真实之影  
+##### 2517#       发表于 2023-2-2 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59576713&amp;ptid=2033303" target="_blank">半江瑟瑟半江红 发表于 2023-2-2 08:49</a>
+
+解决了，果然遇事不决删了重下可以解决一切问题
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 S1Next-鹅 ...</blockquote>
+估计是你存档没同步下来，就卡在这边了
+
+其实这种不方便备份的存档只靠云的思路在PC上太邪门了，让人没安全感
+
+以前GFWL也是类似这样，而且机制更奇怪，导致我蝙蝠侠阿卡姆疯人院打了2回全收集
+
