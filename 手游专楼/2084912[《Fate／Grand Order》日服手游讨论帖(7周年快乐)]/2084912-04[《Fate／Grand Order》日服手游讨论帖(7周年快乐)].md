@@ -2785,3 +2785,31 @@ FSF的问题是动作和废狗、或者说日本Aniplex关系不大
 
 111的周回终于出现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 4784#       发表于 2023-2-2 10:13
+
+最后这什么鬼 不能普通攻击 放完宝具后直接全队晕
+
+*****
+
+####  quanlix  
+##### 4785#       发表于 2023-2-2 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59577730&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-2 10:13</a>
+
+最后这什么鬼 不能普通攻击 放完宝具后直接全队晕</blockquote>
+就是让你宝具对轰直接一次性轰死对面
+
+*****
+
+####  qixinno2  
+##### 4786#       发表于 2023-2-2 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59577805&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-2 10:18</a>
+
+就是让你宝具对轰直接一次性轰死对面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真蛋疼 以为是跟之前一样自带三次无敌 带的贯通礼装 换黑杯秒了
+
