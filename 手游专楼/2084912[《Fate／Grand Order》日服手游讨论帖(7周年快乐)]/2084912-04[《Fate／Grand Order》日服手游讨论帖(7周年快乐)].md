@@ -3562,3 +3562,13 @@ PU1 ...</blockquote>
 不写出来的都是白搭
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 4850#       发表于 2023-2-2 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59581083&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-2 14:04</a>
+最近沉迷打BA。这主线还没推。打算等到周末才打2.7.这次总算没分拆了。那么下一章是不是真真真第二 ...</blockquote>
+蘑菇之前访谈说2.7会揭晓真正的敌人和最终战的地点，现在说了真敌人迦勒底亚斯，战斗地点南极，而且迦勒底也去南极了，不出意外的话下一章应该就是终章了
+
