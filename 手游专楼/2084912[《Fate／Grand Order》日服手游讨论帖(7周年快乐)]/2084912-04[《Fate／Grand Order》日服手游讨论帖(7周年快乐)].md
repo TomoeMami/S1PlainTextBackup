@@ -3464,3 +3464,34 @@ Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当�
 
 我只是提下月R也没有否掉旧版死过一次会降上限的说法（因为他们这些“没死亡概念者”那个特殊的再生机制，这个是解释过的）；以及单凭力量的数量级有时候是干不掉上位者的，必须掏出克制性（月R也没有否定这点，断头台和那个弓性质上还是克制公主的）
 
+
+*****
+
+####  武男  
+##### 4840#       发表于 2023-2-2 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579933&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 12:38</a>
+
+我对2.6的评价是起手托尔金，收尾一米四，属于典型的眼高手低，你把作家名字换个人绝对是要被喷出屎，亮 ...</blockquote>
+说起来菌类不是说过要让玛修成长嘛，这章感觉没啥出彩的啊。。
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4841#       发表于 2023-2-2 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580452&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 13:17</a>
+
+外星人目前最高ATK是杨贵妃，90级12342。库库尔坎解包是90级ATK12584，外星人最高ATK，全从者ATK排名第十 ...</blockquote>
+外星人没职阶补正，真实atk也就相当于1w1+的仇狂，单纯是自buff太高大力出奇迹了
+
+*****
+
+####  UNISONIA  
+##### 4842#       发表于 2023-2-2 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580683&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-2 13:36</a>
+
+说起来菌类不是说过要让玛修成长嘛，这章感觉没啥出彩的啊。。</blockquote>
+直接忘记掉“要让玛修找到战斗理由”这回事了。本章女主地位有大总统顶了，挡枪的工作都高扬承担了，大概茄子的作用只剩下不让迦皇看福利了
+
