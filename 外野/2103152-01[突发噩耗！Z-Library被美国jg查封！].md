@@ -2791,3 +2791,40 @@ app恢复有段时间了，请问这是长期的还是临时的？<img src="http
 
 怎么邮箱收到一封说恢复的邮件了
 
+
+*****
+
+####  kara2000  
+##### 312#       发表于 2023-2-2 09:04
+
+tor好像是复活了，但是下载不稳定断断续续，大体积的PDF下得让人烦躁
+
+*****
+
+####  当光停止  
+##### 313#       发表于 2023-2-2 09:05
+
+刚收到zlib的邮件，看起来现在每个用户可以用几个个人链接访问zlib服务器。不过我在上班，没有测试真实性。
+
+<blockquote>Hello, !
+We have great news for you! After a long time, Z-Library is accessible on the web again. You can enter the library now using the personal domains below:
+
+Link 1: 
+
+Link 2:
+
+Please keep your domains private! Don’t disclose your personal domains and don’t share links to your domains, as they are protected with your own password and cannot be accessed by other users. We recommend saving the links to your bookmarks list, so you don’t lose or forget them.
+
+Join our official Telegram channel [https://t.me/zlibrary_official](https://t.me/zlibrary_official) to follow the latest news, announcements and actual domains.
+
+In addition, you can always access the library using the TOR and I2P networks.
+
+[backcolor=var(--bg)]In case you can’t access your personal domains or encounter another issue, feel free to contact us by 1libsupp@1lib.to</blockquote>
+
+*****
+
+####  吃不饱的土匪  
+##### 314#       发表于 2023-2-2 09:09
+
+貌似之前捐助过的用户，会生成一个独立的访问地址，挂着代理直接访问web
+

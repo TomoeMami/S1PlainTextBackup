@@ -3463,3 +3463,18 @@ yxy aoe击飞 救命用
 
 BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  loneblade  
+##### 334#       发表于 2023-2-2 09:06
+
+打分要多利用即兴演奏(终结连击使用同伴rt) 空中狂欢(空连) 磁力演奏(连击中用钩 一般是先击飞再勾上天的敌人) 嚣杀(即兴演奏击杀敌人)以及有分数加成的大招
+
+*****
+
+####  Rowen233  
+##### 335#       发表于 2023-2-2 09:06
+
+我忽然发现 拿到碎片的BGM是不是跟塞尔达一样
+
