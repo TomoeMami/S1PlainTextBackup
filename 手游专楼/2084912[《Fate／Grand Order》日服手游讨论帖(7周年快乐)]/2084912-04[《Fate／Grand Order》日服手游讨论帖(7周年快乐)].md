@@ -3550,3 +3550,15 @@ PU1 ...</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  exiaexa  
+##### 4849#       发表于 2023-2-2 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580683&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-2 13:36</a>
+说起来菌类不是说过要让玛修成长嘛，这章感觉没啥出彩的啊。。</blockquote>
+这时候就要搬出那句老话了，三流月厨信蘑菇
+不写出来的都是白搭
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
