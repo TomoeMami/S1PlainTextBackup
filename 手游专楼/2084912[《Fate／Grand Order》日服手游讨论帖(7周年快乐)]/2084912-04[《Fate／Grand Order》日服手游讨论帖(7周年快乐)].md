@@ -3313,3 +3313,90 @@ Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当�
 你居然敢质疑计算器大神？ 不过目前解包的数据的确挺强</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我用助战的确是感觉到技能组是够强的。但是时至今日的90++本。如果不是触发特攻+高宝。白字那伤害还是不够吧。
 
+
+*****
+
+####  Jamaisvu  
+##### 4828#       发表于 2023-2-2 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580328&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 13:07</a>
+
+所以我说是没有完全破坏的情况下不能再生，现在心脏是被夺走状态，必须得这个假羽蛇神挂了才能把已经不存 ...</blockquote>
+想起了美剧传教士，第一季有个天使，死了之后会从最近的门里走出来复活，最后男主把她削成人棍放进冰水浴缸，处于半死不活的状态才算控制住。后来救援的警察帮忙给了她一枪才重启成功。
+
+蘑菇为了保证ORT的逼格真是煞费苦心啊，玩了命的削弱，明贬实褒。
+
+*****
+
+####  UNISONIA  
+##### 4829#       发表于 2023-2-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580355&amp;ptid=2084912" target="_blank">budong 发表于 2023-2-2 13:09</a>
+
+所以我说的是和蝙蝠一族打的Ort是带原装心脏经过6000万年时间恢复的</blockquote>
+完全恢复的UO不像是只堆了力量级（指一亿人的血）没有提升神秘度的死徒能干掉的
+
+其实老月姬也有提到公主死了一次的损失是不可逆的
+
+*****
+
+####  exiaexa  
+##### 4830#       发表于 2023-2-2 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580373&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 13:10</a>
+话说勇者王找勇者王来配cv是在玩梗吗</blockquote>
+明显是吧，只不过走了be，打赢了原种队友全没了
+更别说是恐龙姬直接原文盖章勇者王了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 4831#       发表于 2023-2-2 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580309&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 13:05</a>
+
+好像是外星人第二atk，然后技能纯属面板怪，三个乘区全都有，自带地特攻
+
+外星人系数没问题，印象差根本 ...</blockquote>
+外星人目前最高ATK是杨贵妃，90级12342。库库尔坎解包是90级ATK12584，外星人最高ATK，全从者ATK排名第十五，次于宇宙伊斯塔。
+
+仇阶那堆白字有多能打，库库尔坎应该就有多强。
+
+*****
+
+####  alucardcz  
+##### 4832#       发表于 2023-2-2 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580428&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 13:15</a>
+
+明显是吧，只不过走了be，打赢了原种队友全没了
+
+更别说是恐龙姬直接原文盖章勇者王了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不算霸界王  他勇者王本质也是be（
+
+*****
+
+####  yyzcacxg  
+##### 4833#       发表于 2023-2-2 13:17
+
+就现在这产能，这活动安排，这长草时间，我都不知道继续抽卡是为啥了，做的再强有啥用，长草丢仓库吃灰？
+
+这次主线也是，恶心的BOSS都是机制，动不动套个全伤害减免罩子，再给你来一堆恶心的Debuff，或者直接即死点名，打到后面我都放弃思考堆灵脉石，反正送那么多还有时限不用白不用。
+
+*****
+
+####  exiaexa  
+##### 4834#       发表于 2023-2-2 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580421&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 13:14</a>
+完全恢复的UO不像是只堆了力量级（指一亿人的血）没有提升神秘度的死徒能干掉的
+
+其实老月姬也有提到公主 ...</blockquote>
+盖章之前别边瞎猜边给别人科普吧
+从头到尾没提过坎帝国打的是什么状态
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
