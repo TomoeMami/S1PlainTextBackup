@@ -3572,3 +3572,33 @@ PU1 ...</blockquote>
 最近沉迷打BA。这主线还没推。打算等到周末才打2.7.这次总算没分拆了。那么下一章是不是真真真第二 ...</blockquote>
 蘑菇之前访谈说2.7会揭晓真正的敌人和最终战的地点，现在说了真敌人迦勒底亚斯，战斗地点南极，而且迦勒底也去南极了，不出意外的话下一章应该就是终章了
 
+
+*****
+
+####  武男  
+##### 4851#       发表于 2023-2-2 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580714&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 13:37</a>
+
+直接忘记掉“要让玛修找到战斗理由”这回事了。本章女主地位有大总统顶了，挡枪的工作都高扬承担了，大概 ...</blockquote>
+2.7居然还是这种同事氛围嘛，看看终章能不能把她和主线联系在一起吧。
+
+*****
+
+####  武男  
+##### 4852#       发表于 2023-2-2 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59581599&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-2 14:45</a>
+
+这时候就要搬出那句老话了，三流月厨信蘑菇
+
+不写出来的都是白搭</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不过想想也是，所长天降青梅，还有戴这对主从，之后的百特曼也要篇幅，剩下还有异闻带的各种剧情，玛修和他们也没啥直接关系。。
+
+*****
+
+####  angelooo  
+##### 4853#       发表于 2023-2-2 15:33
+
+275之类的肯定也会有吧
+
