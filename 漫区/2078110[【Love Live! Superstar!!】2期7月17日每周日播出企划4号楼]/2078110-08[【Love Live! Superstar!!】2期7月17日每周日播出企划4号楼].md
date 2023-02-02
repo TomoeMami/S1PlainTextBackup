@@ -14099,3 +14099,20 @@ ios预约页面是预期4月30日开服
 那个人啊，我也有印象，他之前还说过，自己不厨星，只推堇，每次总能找到意想不到的观点，就，挺独特的吧
 叠个甲，不会变成隔空对线了吧，我可无意参与<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11773#       发表于 2023-2-2 23:33
+
+ 本帖最后由 nufawneafg 于 2023-2-2 23:35 编辑 
+
+怎么还闹到s1里来了...网络对线而已，你们巨魔的尊严呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11774#       发表于 2023-2-2 23:37
+
+说起来，鲤鱼的台历也拿到了，用料真是浪费那么好的图…………顺便中文版真就直接套模版，什么建军节啥的都有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -3797,3 +3797,35 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说从这大蜘蛛战可以感受到 以前部分送的活动从者真他妹的强 单人轻松100万 要不是破条就会死 都不知道一个人能打几条
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想比某些5星 铁废物（
 
+
+*****
+
+####  qixinno2  
+##### 4874#       发表于 2023-2-2 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为太强了 所以完全不舍的扔进常驻让错过的人再拿到了
+
+*****
+
+####  森兰丸  
+##### 4875#       发表于 2023-2-2 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588210&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 23:13</a>
+
+话说从这大蜘蛛战可以感受到 以前部分送的活动从者真他妹的强 单人轻松100万 要不是破条就会死 都不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">活动角色满送5宝啊....如果是单体宝具那伤害怎么都不会低
+
+反正打这蜘蛛又不用考虑NP回转率什么的....上个满破宝石第一回合就把技能都开了....就是打一次性伤害
+
+*****
+
+####  alucardcz  
+##### 4876#       发表于 2023-2-2 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588533&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-2 23:39</a>
+
+活动角色满送5宝啊....如果是单体宝具那伤害怎么都不会低
+
+反正打这蜘蛛又不用考虑NP回转率什么的. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是要考虑的  你看狗蛋和小黑单人轻松连发 只可惜破条就寄 不然一个人打穿了（
+

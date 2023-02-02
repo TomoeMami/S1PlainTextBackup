@@ -2163,3 +2163,11 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牛李  
+##### 6962#       发表于 2023-2-2 23:32
+
+竟然是动画世界观吗？是不是意味着雨野写的那坨以后会成为黑历史？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

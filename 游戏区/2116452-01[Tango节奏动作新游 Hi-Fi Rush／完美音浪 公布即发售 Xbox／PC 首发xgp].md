@@ -3606,3 +3606,25 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 不过极难B节奏大师A不知道为什么最下面的光谱写着S 什么意思
 
+
+*****
+
+####  loneblade  
+##### 349#       发表于 2023-2-2 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588165&amp;ptid=2116452" target="_blank">760194962 发表于 2023-2-2 23:09</a>
+哦擦 continue数都给记着了 game over画面退出也没用 有什么刷S的邪道吗
+
+不过极难B节奏大师A不知道 ...</blockquote>
+光谱房的分是独立算的
+
+*****
+
+####  760194962  
+##### 350#       发表于 2023-2-2 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588469&amp;ptid=2116452" target="_blank">loneblade 发表于 2023-2-2 23:33</a>
+
+光谱房的分是独立算的</blockquote>
+哦原来是那个隐藏房间（
+
