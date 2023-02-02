@@ -13349,3 +13349,61 @@ pay：不自搜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不知道的还以为你可是什么底边只能捆绑销售
 
+
+*****
+
+####  adw667  
+##### 11690#       发表于 2023-2-2 19:32
+
+旁边两个是真正玩游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 11691#       发表于 2023-2-2 19:33
+
+只能说这个可堇真的是非常扎眼呢。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  懂你意思  
+##### 11692#       发表于 2023-2-2 19:34
+
+移动血包是吧，可得被吸到啥时候<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  懂你意思  
+##### 11693#       发表于 2023-2-2 19:34
+
+移动血包是吧，可得被吸到啥时候<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 11694#       发表于 2023-2-2 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584495&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-2 18:21</a>
+可可匡威鞋到咯居然没被税</blockquote>
+有图吗，想看
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 11695#       发表于 2023-2-2 19:37
+
+傻逼运营，直接可以不玩了
+
+*****
+
+####  ads147147  
+##### 11696#       发表于 2023-2-2 19:38
+
+真人cm，原来你也玩sif啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

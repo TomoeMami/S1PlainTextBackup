@@ -1266,3 +1266,11 @@ AEGiS东京本部：
 
 有一说一，我也没有往火锅里下过鸡翅根
 
+
+*****
+
+####  madcow  
+##### 244#       发表于 2023-2-2 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">见过下翅尖的，算汤底？
+
