@@ -3539,3 +3539,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这样吗
 
+
+*****
+
+####  760194962  
+##### 342#       发表于 2023-2-2 15:51
+
+有点懂了 关键是把敌人打上天然后X连击加抓钩再连击 这点是不是跟鬼泣像
+
+打多连击的同时也不会被其他敌人攻击干扰
+
