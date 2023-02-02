@@ -3712,3 +3712,11 @@ FGO的主线一向都是如何噁心/脑残，抽多少卡都不能在主线大�
 
 给两个杯子，挺好
 
+
+*****
+
+####  septemsky  
+##### 4865#       发表于 2023-2-2 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想接下来还有什么能拖剧情的坑呢，伯爵？b5？年底前有可能出终章吗？
+

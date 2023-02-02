@@ -2119,3 +2119,23 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了
 sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquote>
 这只是剧情中用了雪菜和菜菜中间态的立绘吧，官网发型没变
 
+
+*****
+
+####  川陀  
+##### 6959#       发表于 2023-2-2 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586256&amp;ptid=1959558" target="_blank">dozen 发表于 2023-2-2 20:39</a>
+这只是剧情中用了雪菜和菜菜中间态的立绘吧，官网发型没变</blockquote>
+后面菜宝打歌那里的卡面也是这样的，这一套应该就是最初始的R卡吧
+
+<img src="https://img.saraba1st.com/forum/202302/02/204908nj2ddnt47q8kv49v.jpg" referrerpolicy="no-referrer">
+
+<strong>-1dd26cfba96b0382.jpg</strong> (10.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 20:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

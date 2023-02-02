@@ -13888,3 +13888,36 @@ ios预约页面是预期4月30日开服
 
 更像是拼命否认一期前三话来拉低平均水平从而让后面那些破逼东西看起来没那么弱智
 
+
+*****
+
+####  稀勢のささ  
+##### 11753#       发表于 2023-2-2 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">投票没赢过见缝插针没输过
+
+*****
+
+####  nufawneafg  
+##### 11754#       发表于 2023-2-2 20:56
+
+所以说后面那些东西能建立起什么体系结构呢
+动机这么强的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 11755#       发表于 2023-2-2 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586281&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-2 20:41</a>
+
+唉，也不知道说啥了，到处都在聊卡面。只能说代哥是懂流量的，展示玩法不如一张卡面有冲击力。只能感慨星别 ...</blockquote>
+二次元已经没指望过了，就那动画整出的效果，已经是积重难返了，除非它运营把动画给重置了，不然哪怕就算以后好起来了，以前的疤还在那里，目前看来企划可能还是“感觉良好”，那问题就不可能解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11756#       发表于 2023-2-2 20:59
+
+琦玉场演完记得填表喷，在中文网络上发怒除了让自己不爽没啥意义，推上#クゥすみtag下面一堆喊尊い只会让运营沾沾自喜
+
