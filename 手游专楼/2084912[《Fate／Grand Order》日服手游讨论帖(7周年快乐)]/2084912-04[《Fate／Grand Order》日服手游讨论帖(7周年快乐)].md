@@ -3212,3 +3212,104 @@ Ort连丢失心脏都能再生，如果有心脏6000万年还不能恢复过来�
 说个题外话 隔壁的计算机仙人通过起精湛的计算 算出了大姐姐=狂娜pro max  然后开始了新一轮强度焦 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">外星人有那么强吗
 
+
+*****
+
+####  Jamaisvu  
+##### 4819#       发表于 2023-2-2 13:04
+
+ 本帖最后由 Jamaisvu 于 2023-2-2 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580238&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-2 13:01</a>
+
+外星人有那么强吗</blockquote>
+开技能要多按三个键（阿周那不用三技能，四个键），扣大分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+搬一张计算器图，不过我也看不大懂...：
+
+<img src="https://img.saraba1st.com/forum/202302/02/130740b7w0z8z0kt7ebict.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-bff7K21T1kSeq-sg.jpg</strong> (73.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 13:07 上传
+
+*****
+
+####  budong  
+##### 4820#       发表于 2023-2-2 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580096&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 12:49</a>
+后面用的心脏是大总统的。
+
+关键器官应该是和公主的头发一样，如果是“夺走”而不是“完全摧毁”，应该是 ...</blockquote>
+Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当心脏做成的太阳熄灭时Ort就会开始再生心脏，所长心脏是让Ort直接苏醒
+
+*****
+
+####  alucardcz  
+##### 4821#       发表于 2023-2-2 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580238&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-2 13:01</a>
+
+外星人有那么强吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你居然敢质疑计算器大神？ 不过目前解包的数据的确挺强
+
+*****
+
+####  exiaexa  
+##### 4822#       发表于 2023-2-2 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580238&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-2 13:01</a>
+外星人有那么强吗</blockquote>
+好像是外星人第二atk，然后技能纯属面板怪，三个乘区全都有，自带地特攻
+
+外星人系数没问题，印象差根本问题是技能太怪了没几个正常人，比如水阿比，这是正常人给得出来的光炮技能组吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 4823#       发表于 2023-2-2 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580276&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 13:04</a>
+
+开技能要多按三个键（阿周那不用三技能，四个键），扣大分</blockquote>
+其实是多6个要不要吃星的确认（2技能就算不吃星也要点两次），杀狐冷却会开两轮技能
+
+*****
+
+####  UNISONIA  
+##### 4824#       发表于 2023-2-2 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580290&amp;ptid=2084912" target="_blank">budong 发表于 2023-2-2 13:04</a>
+
+Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当心脏做成的太阳熄灭时Ort就会开始再生心脏，所长 ...</blockquote>
+所以我说是没有完全破坏的情况下不能再生，现在心脏是被夺走状态，必须得这个假羽蛇神挂了才能把已经不存在在世界上的心脏再生出来
+
+*****
+
+####  budong  
+##### 4825#       发表于 2023-2-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580328&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 13:07</a>
+所以我说是没有完全破坏的情况下不能再生，现在心脏是被夺走状态，必须得这个假羽蛇神挂了才能把已经不存 ...</blockquote>
+所以我说的是和蝙蝠一族打的Ort是带原装心脏经过6000万年时间恢复的
+
+*****
+
+####  alucardcz  
+##### 4826#       发表于 2023-2-2 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说勇者王找勇者王来配cv是在玩梗吗
+
+*****
+
+####  areklose  
+##### 4827#       发表于 2023-2-2 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580292&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 13:04</a>
+
+你居然敢质疑计算器大神？ 不过目前解包的数据的确挺强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我用助战的确是感觉到技能组是够强的。但是时至今日的90++本。如果不是触发特攻+高宝。白字那伤害还是不够吧。
+
