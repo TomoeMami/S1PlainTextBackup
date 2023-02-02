@@ -2962,3 +2962,28 @@ PU2：五星欧证杀雾镜，四星欧证仇豹二世。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了几天，终于想明白了，上这个立绘是热度玩法
 
+
+*****
+
+####  武男  
+##### 4798#       发表于 2023-2-2 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578917&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 11:26</a>
+
+这么一想，最后戴比特与烟雾镜那场决战还有点报恩对决的意思。
+
+天灾终被抗衡，末路已被打开。纪念胜利的 ...</blockquote>
+不过2.7出来，地球UO的含金量又可以提升了，这么多神神鬼鬼的势力加在一块连奥尔特云的UO都白给了，要是真能克服万难当上地球的UO，吹奥尔特云恒星级的台词倒是可以用到未出现的地球UO那。
+
+*****
+
+####  quanlix  
+##### 4799#       发表于 2023-2-2 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578694&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 11:13</a>
+
+如果官方稍微有点良心、认为烟雾镜和黑豹的造型确实难以服众的话，其实可以把卡池稍微调整一下下...：
+
+PU1 ...</blockquote>
+黑豹解包出来是5星复仇，这章就雨神一个4星
+
