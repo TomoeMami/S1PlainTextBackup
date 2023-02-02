@@ -13680,3 +13680,34 @@ ios预约页面是预期4月30日开服
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 11730#       发表于 2023-2-2 20:12
+
+敢不敢开跨团cp投票？可可和岚珠都比你不要脸推的可J还受欢迎
+想到那张卡面就恶心
+
+
+*****
+
+####  优妮可  
+##### 11731#       发表于 2023-2-2 20:16
+
+双人卡之后也会有，只是这个时候放上来有点引发矛盾
+
+*****
+
+####  Skyline_R  
+##### 11732#       发表于 2023-2-2 20:18
+
+出CP卡也学学隔壁邦邦吧，人家CP卡都有Live2D的动画小桥段
+
+*****
+
+####  稀勢のささ  
+##### 11733#       发表于 2023-2-2 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有归有专挑这个放不就是有毛病吗
+
