@@ -13110,3 +13110,11 @@ pay：不自搜了
 
 自搜。。蓝鸟举报一堆账号了。
 
+
+*****
+
+####  Skyline_R  
+##### 11661#       发表于 2023-2-2 16:09
+
+看了一下AS国服的流水，每个月一百多万，跟21年国服SIF的流水差不多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

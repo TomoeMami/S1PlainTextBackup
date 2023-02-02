@@ -3630,3 +3630,16 @@ PU1 ...</blockquote>
 
 感觉应该会在路上发现什么问题然后回冬木和麻婆决战之后再去南极
 
+
+*****
+
+####  UNISONIA  
+##### 4857#       发表于 2023-2-2 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59582198&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-2-2 15:33</a>
+
+275之类的肯定也会有吧</blockquote>
+不好说，去年叶良树出265的时候有隐约提一下以后要不不弄点5了，改回主线性质的活动（类似大海战、通古斯这种）来处理间章
+
+265实装以后，点5反而遭到官方的淡化地位也说明了这一点（无论是rt7宣传、AJ宣传还是FES宣传都不把点5当成正规章节了
+
