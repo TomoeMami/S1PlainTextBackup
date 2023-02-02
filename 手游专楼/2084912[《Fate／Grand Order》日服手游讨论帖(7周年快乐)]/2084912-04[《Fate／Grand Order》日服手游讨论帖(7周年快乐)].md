@@ -3757,3 +3757,14 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 手游这边其实就Beast IV Lostbelt开始的改动看，有一定可能不出正常的后续Beast，而是改出一些“异闻带的Beast”（除了最后的Beast VII）。Syno有不少内容暗示原本点6是有Beast的（但是遭到了废弃），卡玛佐兹这个总感觉是在捏他奥西里斯之砂+弗洛夫
 
+
+*****
+
+####  UNISONIA  
+##### 4870#       发表于 2023-2-2 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584523&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-2 18:24</a>
+
+反正小芬奇死定了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是小芬奇的愿望可是给你迦送终，这么多次快退场的flag都苟下来了，没准真能送走你迦再死
+
