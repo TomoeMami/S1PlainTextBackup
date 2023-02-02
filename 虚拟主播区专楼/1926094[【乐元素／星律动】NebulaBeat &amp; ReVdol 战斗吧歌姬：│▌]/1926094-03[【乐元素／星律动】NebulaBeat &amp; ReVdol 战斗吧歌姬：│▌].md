@@ -82,3 +82,15 @@
 
 噩梦穹顶 复活
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3010#       发表于 2023-2-2 21:04
+
+B组活了，能跳一个in the light of darkness吗
+
+我的第6人呢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

@@ -3720,3 +3720,11 @@ FGO的主线一向都是如何噁心/脑残，抽多少卡都不能在主线大�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想接下来还有什么能拖剧情的坑呢，伯爵？b5？年底前有可能出终章吗？
 
+
+*****
+
+####  miro112233  
+##### 4866#       发表于 2023-2-2 21:09
+
+B6呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个可是直接开了4个小号，街机那边才解决一个呢
+

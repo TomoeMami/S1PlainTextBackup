@@ -2139,3 +2139,15 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 6960#       发表于 2023-2-2 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586057&amp;ptid=1959558" target="_blank">川陀 发表于 2023-2-2 20:27</a>
+sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquote>
+之前不是说了是动画世界观么，动画世界线的雪菜确实校服比较多。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
