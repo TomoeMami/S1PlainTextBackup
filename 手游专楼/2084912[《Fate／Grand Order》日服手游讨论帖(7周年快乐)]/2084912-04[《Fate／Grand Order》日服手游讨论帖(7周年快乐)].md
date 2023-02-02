@@ -3021,3 +3021,82 @@ PU1 ...</blockquote>
 
 （其实看多了镜子哥感觉蒙二带着面具也没那么难看，而且不排除古海钟一藏了一手优质三破，可惜剧情里没啥亮点...）
 
+
+*****
+
+####  UNISONIA  
+##### 4803#       发表于 2023-2-2 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578694&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 11:13</a>
+
+如果官方稍微有点良心、认为烟雾镜和黑豹的造型确实难以服众的话，其实可以把卡池稍微调整一下下...：
+
+PU1 ...</blockquote>
+伊斯卡利还是没有镜像模组，凉了一大半了
+
+*****
+
+####  exiaexa  
+##### 4804#       发表于 2023-2-2 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578080&amp;ptid=2084912" target="_blank">zakki 发表于 2023-2-2 10:37</a>
+那你觉得和2.6比怎么样</blockquote>
+我对2.6的评价是起手托尔金，收尾一米四，属于典型的眼高手低，你把作家名字换个人绝对是要被喷出屎，亮点绝对盖不过缺点的那种
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2.7质量就平稳得多，没什么特别出彩的但是也没有大短板，小亮点很很多，属于能看得很舒服的章节。重点是故事主线非常流畅，历史分歧点和太阳历结合的也很有感觉，坎帝国属实震撼我妈。
+没有2.6那堆傻逼谜语人和从0开始的妖精国故事环节真是太好了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+个人喜好的话，勇者王（无误）和尼托的部分算是亮点，另外三个alter只能算是给尼托alter铺垫的工具人。
+烟雾镜那一大家子人无视颜值的话其实讲的挺不错，没有一眼傻逼的弱智人。
+羽蛇神反而是拉了胯的那个，所长一般，至于月姬爱情故事（Ver.恐龙）还是留给喜欢月姬的人去评价吧
+
+*****
+
+####  UNISONIA  
+##### 4805#       发表于 2023-2-2 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579364&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-2 11:55</a>
+
+不过2.7出来，地球UO的含金量又可以提升了，这么多神神鬼鬼的势力加在一块连奥尔特云的UO都白给了，要是 ...</blockquote>
+因为这个ORT是摔死复活以后的弱化版，勇者王打的那个已经比泛人类史的ORT要弱很多了（参考月姬公主复活了一次以后实力不到原来三成），剧情打的还不如勇者王那个的强度（正版心脏被挖出去造了人工太阳）
+
+*****
+
+####  alucardcz  
+##### 4806#       发表于 2023-2-2 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579718&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 12:21</a>
+
+谢天谢地，那估计是单独一个卡池了最好是通关欧证，省得以后见到他...
+
+（其实看多了镜子哥感觉蒙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关欧证的话现在已经能抽了 大概有不缺钱的真课佬都抽到了  这明显还没做完啊
+
+*****
+
+####  岸浪白野  
+##### 4807#       发表于 2023-2-2 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579718&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 12:21</a>
+
+谢天谢地，那估计是单独一个卡池了最好是通关欧证，省得以后见到他...
+
+（其实看多了镜子哥感觉蒙 ...</blockquote>
+这个不是镜像模组，不是拿来实装的，和前2个咕哒咕哒活动的柴田新兵卫一样，再说蝙蝠神没实装前都找好了cv，这个连cv都没找，已经很明显的待遇了
+
+*****
+
+####  Jamaisvu  
+##### 4808#       发表于 2023-2-2 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579881&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 12:34</a>
+
+伊斯卡利还是没有镜像模组，凉了一大半了</blockquote>
+而且没有语音，凉了二分之三<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+短期内实装可能性不大，不过解包里有宝具数据，说不定哪天就突然落地了...
+
+千万别给做成白情五星啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">...
+
