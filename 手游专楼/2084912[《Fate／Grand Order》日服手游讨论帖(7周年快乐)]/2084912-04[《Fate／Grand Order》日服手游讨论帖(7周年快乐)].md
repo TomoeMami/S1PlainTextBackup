@@ -3181,3 +3181,34 @@ Ort连丢失心脏都能再生，如果有心脏6000万年还不能恢复过来�
 总之就是希望丑男远离我的卡池范 ...</blockquote>
 李书文起码是一开始就做好因为档期才拖到新年出卡池，志度内直接2.2都没做的纯剧情出场，这黑豹一上来就是专门的敌方模组已经判死刑了，2.7就做了4个从者罢了，蝙蝠神才是最有可能后面出的
 
+
+*****
+
+####  alucardcz  
+##### 4816#       发表于 2023-2-2 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说个题外话 隔壁的计算机仙人通过起精湛的计算 算出了大姐姐=狂娜pro max  然后开始了新一轮强度焦虑
+
+*****
+
+####  Jamaisvu  
+##### 4817#       发表于 2023-2-2 12:59
+
+ 本帖最后由 Jamaisvu 于 2023-2-2 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580121&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2023-2-2 12:51</a>
+
+李书文起码是一开始就做好因为档期才拖到新年出卡池，志度内直接2.2都没做的纯剧情出场，这黑豹一上来就 ...</blockquote>
+蝙蝠神能实装就太好了＼(^▽^)／！声优经典情怀，画风精美狂气，剧情上一个人的最后战争真的很戳我，最后还洗白救了尼托，作为异闻带的兽也不算锁死对立面，白情出他的话一定氪爆<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+（其实螺旋社这个产能，白情很难有新人，但是之前看有人说白情实装买买提二世把我笑惨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  areklose  
+##### 4818#       发表于 2023-2-2 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580127&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 12:52</a>
+
+说个题外话 隔壁的计算机仙人通过起精湛的计算 算出了大姐姐=狂娜pro max  然后开始了新一轮强度焦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">外星人有那么强吗
+
