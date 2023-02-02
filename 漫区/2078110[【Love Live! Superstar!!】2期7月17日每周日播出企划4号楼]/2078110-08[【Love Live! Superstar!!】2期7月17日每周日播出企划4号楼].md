@@ -13711,3 +13711,70 @@ ios预约页面是预期4月30日开服
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有归有专挑这个放不就是有毛病吗
 
+
+*****
+
+####  优妮可  
+##### 11734#       发表于 2023-2-2 20:22
+
+如果旁边是香音，会变成骂官方还记得可香吗？
+
+*****
+
+####  ruffian  
+##### 11735#       发表于 2023-2-2 20:24
+
+我真的是不懂啊，ur肯定不止一张吧？为啥这个时候放这张？怎么着所有ur全都塞了人是吗？就见缝插针推这逼官推，到底是图什么呢？可堇厨的厨力有那么强大让你们这么惦记？这么厉害为啥上次打歌服投票可可投中的是小星星不是非虚构呢？当可可没有单推是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 11736#       发表于 2023-2-2 20:25
+
+这个游戏难怪那么快，这个游戏没救了，寄了
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  player3960  
+##### 11737#       发表于 2023-2-2 20:26
+
+运营纯sb，预祝1年后关服<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11738#       发表于 2023-2-2 20:26
+
+ 本帖最后由 nufawneafg 于 2023-2-2 20:28 编辑 
+
+一如既往地算盘珠子糊脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+很诚实吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 11739#       发表于 2023-2-2 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585981&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-2 20:22</a>
+如果旁边是香音，会变成骂官方还记得可香吗？</blockquote>
+感觉应该不会，但对此感到不满的人还是会有，只是不会成现在这样。
+现在千言万语，最主要的还是可堇这对cp塑造太烂了，已经ptsd了都<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 11740#       发表于 2023-2-2 20:29
+
+只能说官方喜欢弹幕最多的整法，运营那点小心思属实呼之欲出了，三张卡一起看就很乐了，sif玩的不多，很好奇以前有双人的卡是什么情况什么数量出现的
+
+*****
+
+####  稀勢のささ  
+##### 11741#       发表于 2023-2-2 20:31
+
+这都不只是烂不烂的问题了，天天推天天推每个能塞的地方都塞你换哪对上都不行啊，还是说你拉本质不是学院偶像粉丝一天到晚只爱嗑cp啊
+
