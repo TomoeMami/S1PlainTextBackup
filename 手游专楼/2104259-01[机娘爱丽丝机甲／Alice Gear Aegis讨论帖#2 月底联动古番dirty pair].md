@@ -1274,3 +1274,13 @@ AEGiS东京本部：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">见过下翅尖的，算汤底？
 
+
+*****
+
+####  孫光龍  
+##### 245#       发表于 2023-2-2 19:54
+
+票又满了，有没有大佬透一下下一个池的小道消息？
+
+没啥想抽的就再给周年池扔个10连了
+

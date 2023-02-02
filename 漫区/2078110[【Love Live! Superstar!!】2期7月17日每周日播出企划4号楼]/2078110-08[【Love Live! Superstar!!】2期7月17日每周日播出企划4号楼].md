@@ -13480,3 +13480,73 @@ AS里觉醒前的双人卡面也有，看后续放出吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  stygian  
+##### 11705#       发表于 2023-2-2 19:50
+
+其实比起卡面我更在意这卡的觉醒剧情。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 11706#       发表于 2023-2-2 19:54
+
+本来就没打算玩，看这实机画面，小日子手游开发这技术力也是服了，都不是腊肉了，简直就是僵尸肉，国内有冤种会代理吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 11707#       发表于 2023-2-2 19:56
+
+不知道国服啥时候了。
+
+*****
+
+####  ruffian  
+##### 11708#       发表于 2023-2-2 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585541&amp;ptid=2078110" target="_blank">stygian 发表于 2023-2-2 19:50</a>
+
+其实比起卡面我更在意这卡的觉醒剧情。。。</blockquote>
+应该是做衣服，可可坐地上裁布料？凳子上有针线盒，堇手里拿的本子应该是设计图
+
+*****
+
+####  ViyViy  
+##### 11709#       发表于 2023-2-2 19:57
+
+叔叔可能会，现在国内渠道也不好做，抢不着肉不如搞代理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 11710#       发表于 2023-2-2 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585624&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-2 19:56</a>
+
+应该是做衣服，可可坐地上裁布料？凳子上有针线盒，堇手里拿的本子应该是设计图 ...</blockquote>
+不不不，我意思是按运营路子你猜他会不会整拉郎配剧情<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+倒是翻到个花凛卡面，不过是SR<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+琦玉公演演完的调查问卷记得喷嗷
+
+*****
+
+####  adw667  
+##### 11711#       发表于 2023-2-2 20:01
+
+*你的妈在上海<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 11712#       发表于 2023-2-2 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585652&amp;ptid=2078110" target="_blank">stygian 发表于 2023-2-2 19:59</a>
+
+不不不，我意思是按运营路子你猜他会不会整拉郎配剧情</blockquote>
+我倒是希望整个跨团拉郎配<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
