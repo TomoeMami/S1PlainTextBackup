@@ -3596,3 +3596,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 这个要消耗电量</blockquote>
 哦对。。。
 
+
+*****
+
+####  760194962  
+##### 348#       发表于 2023-2-2 23:09
+
+哦擦 continue数都给记着了 game over画面退出也没用 有什么刷S的邪道吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过极难B节奏大师A不知道为什么最下面的光谱写着S 什么意思
+
