@@ -13268,3 +13268,84 @@ pay：不自搜了
 突然弹出来的立绘确实很烦就是了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所谓画面进化有没有懂哥评价下
 
+
+*****
+
+####  adw667  
+##### 11679#       发表于 2023-2-2 19:23
+
+突如其来的小剧场
+
+*****
+
+####  ViyViy  
+##### 11680#       发表于 2023-2-2 19:24
+
+这个还行，但我怀疑更新频率。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 11681#       发表于 2023-2-2 19:26
+
+可堇，又是可堇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11682#       发表于 2023-2-2 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给我整笑了
+
+*****
+
+####  starring  
+##### 11683#       发表于 2023-2-2 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一天不残害粉丝不得安心
+
+*****
+
+####  ViyViy  
+##### 11684#       发表于 2023-2-2 19:27
+
+不是有那个大病吧，前两都是单人，为啥到可可了还在惦记你那B**阿
+
+*****
+
+####  Kfly  
+##### 11685#       发表于 2023-2-2 19:27
+
+只有可可这带一个堇………
+可堇……唉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 11686#       发表于 2023-2-2 19:28
+
+服了，可可的ur多塞个人进来就算了，堇占据卡面的比例让我怀疑这特么到底是可可ur还是双人ur
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  抱犊崮  
+##### 11687#       发表于 2023-2-2 19:30
+
+感谢避雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 11688#       发表于 2023-2-2 19:30
+
+这运营真是有大病额<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11689#       发表于 2023-2-2 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不知道的还以为你可是什么底边只能捆绑销售
+

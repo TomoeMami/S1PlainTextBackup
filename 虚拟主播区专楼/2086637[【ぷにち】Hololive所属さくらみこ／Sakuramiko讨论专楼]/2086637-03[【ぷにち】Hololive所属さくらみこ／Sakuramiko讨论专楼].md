@@ -12719,3 +12719,30 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qesto  
+##### 4170#       发表于 2023-2-2 19:25
+
+造天空刷怪塔啊，这也算是一种贴贴吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 4171#         楼主| 发表于 2023-2-2 19:28
+
+你们要这么觉得也可以
+
+*****
+
+####  rs5621  
+##### 4172#       发表于 2023-2-2 19:29
+
+ 本帖最后由 rs5621 于 2023-2-2 19:32 编辑 
+
+这新家还挺好看的<img src="https://p.sda1.dev/9/0a031087d4a0740d4f7875b783794371/-612c0a69e3c4d4f5.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -606,3 +606,15 @@ DS上那个是全方位阉割版，地图随手抄了几张瞎J8拼起来，和�
 
 系统印象中也差很远，但是垃圾地图印象太深了，别的都不太记得了。
 
+
+*****
+
+####  买表大户  
+##### 62#       发表于 2023-2-2 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584673&amp;ptid=2117129" target="_blank">Tring 发表于 2023-2-2 18:40</a>
+DS上那个是全方位阉割版，地图随手抄了几张瞎J8拼起来，和原版感觉差太多了。
+
+系统印象中也差很远，但是 ...</blockquote>
+可以当做是沿用了部分美术音乐素材的一个全新RPG游戏
+

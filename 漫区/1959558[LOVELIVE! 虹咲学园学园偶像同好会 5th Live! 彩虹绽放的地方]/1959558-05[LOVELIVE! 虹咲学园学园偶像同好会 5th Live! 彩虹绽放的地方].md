@@ -2058,3 +2058,13 @@ aznlive能出声了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 6954#       发表于 2023-2-2 19:23
+
+曜酱果然正中间坐牢了
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
