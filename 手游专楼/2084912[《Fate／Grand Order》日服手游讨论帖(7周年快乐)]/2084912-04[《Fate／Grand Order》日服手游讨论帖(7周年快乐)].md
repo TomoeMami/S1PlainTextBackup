@@ -3744,3 +3744,16 @@ B6呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">蝙蝠用杀狐公主组合挺好打的啊 红卡暴击20W+伤害
 
+
+*****
+
+####  UNISONIA  
+##### 4869#       发表于 2023-2-2 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59586723&amp;ptid=2084912" target="_blank">miro112233 发表于 2023-2-2 21:09</a>
+
+B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockquote>
+【S和G】有可能是相对于【R和L】的发展版本，街机那边不知道为什么B6的力量被强化了
+
+手游这边其实就Beast IV Lostbelt开始的改动看，有一定可能不出正常的后续Beast，而是改出一些“异闻带的Beast”（除了最后的Beast VII）。Syno有不少内容暗示原本点6是有Beast的（但是遭到了废弃），卡玛佐兹这个总感觉是在捏他奥西里斯之砂+弗洛夫
+

@@ -13990,3 +13990,14 @@ ios预约页面是预期4月30日开服
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来那换装企划还有个写小作文应援的部分，好想整点阴阳怪气的内容过去啊
 
+
+*****
+
+####  ViyViy  
+##### 11764#       发表于 2023-2-2 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59587375&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-2 21:57</a>
+
+突然想起来那换装企划还有个写小作文应援的部分，好想整点阴阳怪气的内容过去啊 ...</blockquote>
+不会选上的，除非总编也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
