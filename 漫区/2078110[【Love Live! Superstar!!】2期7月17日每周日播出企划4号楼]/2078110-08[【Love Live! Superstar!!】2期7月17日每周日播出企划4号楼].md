@@ -13982,3 +13982,11 @@ ios预约页面是预期4月30日开服
 我记得万南的这个中期计划&amp;# ...</blockquote>
 对，每次它搞“编读往来”式的半双工通信我就会想到这个slogan，就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 11763#       发表于 2023-2-2 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来那换装企划还有个写小作文应援的部分，好想整点阴阳怪气的内容过去啊
+

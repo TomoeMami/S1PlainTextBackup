@@ -3736,3 +3736,11 @@ B6呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 蝙蝠神这boss战弄得什么玩意儿，干脆直接把技能和宝具全禁了只能平a然后砸灵脉石得了
 
+
+*****
+
+####  qixinno2  
+##### 4868#       发表于 2023-2-2 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">蝙蝠用杀狐公主组合挺好打的啊 红卡暴击20W+伤害
+
