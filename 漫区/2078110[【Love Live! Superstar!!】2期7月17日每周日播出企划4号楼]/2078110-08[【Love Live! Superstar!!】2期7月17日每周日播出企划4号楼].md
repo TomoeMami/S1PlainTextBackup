@@ -13407,3 +13407,76 @@ pay：不自搜了
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 11697#       发表于 2023-2-2 19:42
+
+弹幕又来了
+
+*****
+
+####  ruffian  
+##### 11698#       发表于 2023-2-2 19:42
+
+除非其他队友的ur也是多人
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 11699#       发表于 2023-2-2 19:43
+
+ 本帖最后由 stygian 于 2023-2-2 19:44 编辑 
+
+AS里觉醒前的双人卡面也有，看后续放出吧
+
+不过印象里的确没有这种CP卡面，我去翻翻，这破运营我也是服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 11700#       发表于 2023-2-2 19:44
+
+还惦记着那破cp啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViyViy  
+##### 11701#       发表于 2023-2-2 19:44
+
+那也不行，single就是single，像岚珠那样有彩蛋都可以，人都直接出来还比卡主画的都完整是什么意思。
+
+*****
+
+####  优妮可  
+##### 11702#       发表于 2023-2-2 19:47
+
+别告诉我画师也是分团安排的
+
+*****
+
+####  仟音一心  
+##### 11703#       发表于 2023-2-2 19:49
+
+<img src="https://img.saraba1st.com/forum/202302/02/194931djytyxcco2bjzy2s.png" referrerpolicy="no-referrer">
+
+<strong>0729D193-F2E3-431A-98CC-D09CB9A3BBE5.png</strong> (224.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-2 19:49 上传
+
+*****
+
+####  ruffian  
+##### 11704#       发表于 2023-2-2 19:50
+
+退一步越想越气，我看见这张卡第一眼看见的不是可可是堇，这他妈是可可的ur？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
