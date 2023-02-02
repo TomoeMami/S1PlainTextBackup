@@ -3496,3 +3496,11 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 有买了豪华版的吗？是否推荐买啊
 
+
+*****
+
+####  Rowen233  
+##### 338#       发表于 2023-2-2 10:57
+
+推上不少日本人求移植NS版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

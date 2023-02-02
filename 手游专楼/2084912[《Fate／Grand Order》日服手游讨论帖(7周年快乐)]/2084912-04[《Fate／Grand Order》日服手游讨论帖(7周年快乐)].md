@@ -2855,3 +2855,30 @@ FSF的问题是动作和废狗、或者说日本Aniplex关系不大
 
 至于帮咕哒这个，我也没搞懂...或许是伪装的人性在作祟，也可能是希望咕哒下冥界打败蝙蝠神为释放ORT消除阻力？
 
+
+*****
+
+####  武男  
+##### 4789#       发表于 2023-2-2 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578158&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 10:42</a>
+
+对于戴比特的身份问题，我觉得可以参考哲学问题“沼泽人”：
+
+一个人出门去散步，在经过一个沼泽边上的时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">干大事的心是戴的神性一面，帮咕哒算是残留的人性，感觉也是给自己一个悔棋的机会，如果他们做得真的更好，那老所长的谋划也可以被阻止，这样就不用承受最极端的后果吧。
+
+*****
+
+####  Jamaisvu  
+##### 4790#       发表于 2023-2-2 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578080&amp;ptid=2084912" target="_blank">zakki 发表于 2023-2-2 10:37</a>
+
+那你觉得和2.6比怎么样</blockquote>
+2.7的流程和1.7差不多，突入古代文明，直面危机，敌友互换，与NPC交流，参与日常活动，一转攻势大战灭世BOSS，下冥界泡女神，鏖战奥罗，直面克苏恩，地图剧变，我方减员，BOSS转阶段，我方牺牲，拯救世界，最后打一个没人样的BOSS。
+
+2.6就类似于...新本格推理小说？为了一个噱头不惜毁灭固有人设和既定世界观，一切的一切为了结局垫脚，看到最后有种出乎意料的刺激和惊艳，但回过头来细想就感觉异常的荒诞、都合以及猎奇。
+
+（剧情上大概类似于魔偶马戏团演到初战午夜马戏团的时候白金突然跳脸自爆那种情况，众恶皆苦，虫豸独大。）
+
