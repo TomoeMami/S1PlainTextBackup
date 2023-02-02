@@ -1284,3 +1284,13 @@ AEGiS东京本部：
 
 没啥想抽的就再给周年池扔个10连了
 
+
+*****
+
+####  thee  
+##### 246#       发表于 2023-2-3 02:01
+
+aegis最年长女演员怎么听都不像好话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6919,3 +6919,14 @@ b站专栏搜神之天平</blockquote>
 
 一开始看的b的攻略真有点害人 这游戏可玩空间太大了
 
+
+*****
+
+####  gwchobit  
+##### 3582#       发表于 2023-2-3 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588576&amp;ptid=2098044" target="_blank">空集 发表于 2023-2-2 23:43</a>
+
+一开始看的b的攻略真有点害人 这游戏可玩空间太大了</blockquote>
+哈哈哈 欢迎二周目荒谬受苦，看看自己是不是真的玩明白了
+
