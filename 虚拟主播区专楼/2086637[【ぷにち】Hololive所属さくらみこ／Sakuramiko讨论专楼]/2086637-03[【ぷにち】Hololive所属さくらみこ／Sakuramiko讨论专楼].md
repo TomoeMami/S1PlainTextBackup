@@ -12663,3 +12663,29 @@ miko←nopan
 
 https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyTg3TyXp1hxZG9G_A
 
+
+*****
+
+####  holoan  
+##### 4166#         楼主| 发表于 2023-2-2 10:30
+
+<img src="https://img.saraba1st.com/forum/202302/02/102619y6j83qtysi03i1j6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (326.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 10:26 上传
+
+[https://www.chugai-contents.jp/blog/event/sakuramiko_taiyaki/](https://www.chugai-contents.jp/blog/event/sakuramiko_taiyaki/)
+
+全部买的话35000日元，差不多2份全套纪念周边的钱，但是东西是真的多啊，特别是平时miko的周边就特别少
+
+<img src="https://img.saraba1st.com/forum/202302/02/103039owrrokrkf1voosqd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 10:30 上传
+
