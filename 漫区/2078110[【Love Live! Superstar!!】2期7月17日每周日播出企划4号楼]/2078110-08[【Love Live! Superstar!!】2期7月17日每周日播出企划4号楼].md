@@ -13921,3 +13921,20 @@ ios预约页面是预期4月30日开服
 
 琦玉场演完记得填表喷，在中文网络上发怒除了让自己不爽没啥意义，推上#クゥすみtag下面一堆喊尊い只会让运营沾沾自喜
 
+
+*****
+
+####  ads147147  
+##### 11757#       发表于 2023-2-2 21:18
+
+官方这样强推cp也不是一次两次了，只能说只是这次动画做崩了才让人一直恶心到现在。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  nufawneafg  
+##### 11758#       发表于 2023-2-2 21:21
+
+企划是服务受众的，不是让受众把它供起来的，受众太软它就过的太舒服不知道自己老几，滑向毁灭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
