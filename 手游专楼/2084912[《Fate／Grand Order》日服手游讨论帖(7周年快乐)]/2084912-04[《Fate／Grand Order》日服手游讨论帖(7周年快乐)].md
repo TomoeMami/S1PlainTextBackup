@@ -3517,3 +3517,23 @@ Ort的确可以在心脏被破坏的情况下再生心脏，剧情里说了当�
 
 我没感觉到问题 甚至5星还没上。。。可能对新人不友好  但推到2。7了 怎么也不能叫新人了
 
+
+*****
+
+####  zakki  
+##### 4846#       发表于 2023-2-2 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578694&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 11:13</a>
+
+如果官方稍微有点良心、认为烟雾镜和黑豹的造型确实难以服众的话，其实可以把卡池稍微调整一下下...：
+
+PU1 ...</blockquote>
+黑豹基本没可能出吧，连个语音都没有
+
+*****
+
+####  areklose  
+##### 4847#       发表于 2023-2-2 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">最近沉迷打BA。这主线还没推。打算等到周末才打2.7.这次总算没分拆了。那么下一章是不是真真真第二部结尾。
+
