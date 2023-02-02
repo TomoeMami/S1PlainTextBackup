@@ -626,3 +626,16 @@ DS上那个是全方位阉割版，地图随手抄了几张瞎J8拼起来，和�
 
 我也试了试这服，说实话目前感觉还得把升级经验再砍砍才合适...
 
+
+*****
+
+####  岸波  
+##### 64#       发表于 2023-2-3 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584673&amp;ptid=2117129" target="_blank">Tring 发表于 2023-2-2 18:40</a>
+DS上那个是全方位阉割版，地图随手抄了几张瞎J8拼起来，和原版感觉差太多了。
+
+系统印象中也差很远，但是 ...</blockquote>
+就不是一个路数的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+战斗手感那可吊打原版太多了。ds版4个职业角色独立又相互交织的剧情也比原版约等于无的4职业剧情有趣多了。
+
