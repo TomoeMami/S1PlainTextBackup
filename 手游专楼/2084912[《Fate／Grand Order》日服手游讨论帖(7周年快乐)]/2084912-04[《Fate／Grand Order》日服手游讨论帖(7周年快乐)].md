@@ -3100,3 +3100,84 @@ PU1 ...</blockquote>
 
 千万别给做成白情五星啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">...
 
+
+*****
+
+####  UNISONIA  
+##### 4809#       发表于 2023-2-2 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579941&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 12:38</a>
+
+通关欧证的话现在已经能抽了 大概有不缺钱的真课佬都抽到了  这明显还没做完啊 ...</blockquote>
+没记错的话，黑A以后的欧证全都不是通关以后塞剧情池的，都是第一次Pick UP结束了以后才会塞进去
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4810#       发表于 2023-2-2 12:44
+
+黑豹塑造稀烂卡面也稀烂干脆就别落地了
+
+你月总不至于专门拿出一个白情给黑豹补剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那真是牛逼大了
+
+*****
+
+####  Jamaisvu  
+##### 4811#       发表于 2023-2-2 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579941&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-2 12:38</a>
+
+通关欧证的话现在已经能抽了 大概有不缺钱的真课佬都抽到了  这明显还没做完啊 ...</blockquote>
+欧证也有老年李书文和志度内这种主线剧情完结后在其他活动实装的吧...
+
+总之就是希望丑男远离我的卡池范围<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  budong  
+##### 4812#       发表于 2023-2-2 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59579935&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-2 12:38</a>
+因为这个ORT是摔死复活以后的弱化版，勇者王打的那个已经比泛人类史的ORT要弱很多了（参考月姬公主复活了 ...</blockquote>
+Ort连丢失心脏都能再生，如果有心脏6000万年还不能恢复过来可以自杀了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 4813#       发表于 2023-2-2 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580030&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-2-2 12:44</a>
+黑豹塑造稀烂卡面也稀烂干脆就别落地了
+
+你月总不至于专门拿出一个白情给黑豹补剧情吧那真是牛逼大了 ...</blockquote>
+黑豹明显就是智商加点出问题了
+比他聪明的靠智商，比他智商低的靠灵感
+就他自己被忽悠得上蹿下跳，结果好不容易情商占领高地了又被上司背刺
+
+看到后面我看到他只想笑，平均加点害人啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 4814#       发表于 2023-2-2 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580076&amp;ptid=2084912" target="_blank">budong 发表于 2023-2-2 12:48</a>
+
+Ort连丢失心脏都能再生，如果有心脏6000万年还不能恢复过来可以自杀了 ...</blockquote>
+后面用的心脏是大总统的。
+
+关键器官应该是和公主的头发一样，如果是“夺走”而不是“完全摧毁”，应该是不能再生的
+
+*****
+
+####  岸浪白野  
+##### 4815#       发表于 2023-2-2 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580043&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-2 12:45</a>
+
+欧证也有老年李书文和志度内这种主线剧情完结后在其他活动实装的吧...
+
+总之就是希望丑男远离我的卡池范 ...</blockquote>
+李书文起码是一开始就做好因为档期才拖到新年出卡池，志度内直接2.2都没做的纯剧情出场，这黑豹一上来就是专门的敌方模组已经判死刑了，2.7就做了4个从者罢了，蝙蝠神才是最有可能后面出的
+

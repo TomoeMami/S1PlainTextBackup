@@ -2337,3 +2337,15 @@ neuro sama越来越有意思了，gpt那套再迭代几年真的能创造出虚�
 
 你虹怎么又取消了个演唱会啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IL282  
+##### 18505#       发表于 2023-2-2 12:44
+
+<img src="https://p.sda1.dev/9/1bb3d52fd3e03fe5c40e1de9462234dc/CMP_20230202124352728.jpg" referrerpolicy="no-referrer">
+
+还闹疫情纳
+
+—— 来自 OnePlus IN2025, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
