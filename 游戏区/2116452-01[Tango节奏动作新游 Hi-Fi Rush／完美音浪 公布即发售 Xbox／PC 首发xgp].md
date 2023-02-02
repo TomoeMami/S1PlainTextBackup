@@ -3557,3 +3557,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 这游戏会出2吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 344#       发表于 2023-2-2 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59583053&amp;ptid=2116452" target="_blank">Rowen233 发表于 2023-2-2 16:35</a>
+这游戏会出2吗</blockquote>
+大胆点，e3（也不对现在微软不参加e3了）公布皇家版，我要玩蔻西嘉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
