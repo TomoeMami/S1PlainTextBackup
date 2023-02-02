@@ -221,3 +221,11 @@
 
 这个汉化里，西耶尔线很多假名没除，后半段出戏翻译太多，观感……
 
+
+*****
+
+####  陆久舟  
+##### 1551#       发表于 2023-2-2 17:47
+
+这种傻逼自嗨式翻译，以后回头看不觉得羞耻吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
