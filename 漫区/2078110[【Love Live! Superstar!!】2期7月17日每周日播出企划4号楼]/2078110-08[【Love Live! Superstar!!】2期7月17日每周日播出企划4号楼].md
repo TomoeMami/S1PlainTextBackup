@@ -14174,3 +14174,48 @@ ios预约页面是预期4月30日开服
 二次元这边能吵的也就带上可相关，其她人都查无此人了。一直怀念的可香，不被看好的可堇，可推，堇推。本都 ...</blockquote>
 都是受害者就不会这么大怨气了，当时言论切割CP都是轻的，从团里切割出去的声音都到处都是。
 
+
+*****
+
+####  cat1230  
+##### 11780#       发表于 2023-2-3 00:05
+
+忘记看2号的直播了，刚上线发现3号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无聊的直播没弹幕看不下去。
+
+*****
+
+####  ruffian  
+##### 11781#       发表于 2023-2-3 00:06
+
+我觉得大家都是受害者，关键是有人不觉得可推是受害者啊，第9集播出那会我在叔叔那抱怨几句，也没有说的很过分吧？就梳理了一下我不满在哪方面，好家伙那给我嘴捂的，吓得我仔细反思了下是不是我太贪得无厌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我特么除了看我推挨了几个月骂我得到啥了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+矛盾就是这么来的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 11782#       发表于 2023-2-3 00:07
+
+<blockquote>2148214 发表于 2023-2-3 00:03
+都是受害者就不会这么大怨气了，当时言论切割CP都是轻的，从团里切割出去的声音都到处都是。 ...</blockquote>
+我是觉得不能以小部分或者极端的言论代表大部分人。
+
+*****
+
+####  nufawneafg  
+##### 11783#       发表于 2023-2-3 00:07
+
+ 本帖最后由 nufawneafg 于 2023-2-3 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588789&amp;ptid=2078110" target="_blank">2148214 发表于 2023-2-3 00:03</a>
+都是受害者就不会这么大怨气了，当时言论切割CP都是轻的，从团里切割出去的声音都到处都是。 ...</blockquote>
+还是那句话，冤有头债有主，角色推又不是决策者，要从结果论出发那这问题没法办了虽然本来就没法办，但是结果论这思路就正中运营“既定事实”的下怀了
+
+*****
+
+####  Kfly  
+##### 11784#       发表于 2023-2-3 00:10
+
+大部分人都会觉得自己这一方是“受害者”，但不一定会觉得对方是“受害者”，当这种认知上的不均衡被放大到难以调和的地步，对立不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
