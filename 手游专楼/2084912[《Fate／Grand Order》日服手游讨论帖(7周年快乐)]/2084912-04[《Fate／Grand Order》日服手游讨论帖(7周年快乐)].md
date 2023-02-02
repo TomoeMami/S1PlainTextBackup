@@ -3610,3 +3610,23 @@ PU1 ...</blockquote>
 
 回南极回冬木去一个不影响地球环境的地方决战，这三个都是要达成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  miro112233  
+##### 4855#       发表于 2023-2-2 15:53
+
+达维特·布鲁布克和加拉哈德这俩本来以为很重要的人已经人间蒸发到不知道去哪儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+达维特和戴比特名字那么像，戴比特出身的内华达也就是51区是达维特旅行的终点，结果到头来一点关系也没有，不知道是真的障眼法还是改剧情了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4856#       发表于 2023-2-2 15:55
+
+回南极就是直接终章了吧
+
+感觉应该会在路上发现什么问题然后回冬木和麻婆决战之后再去南极
+
