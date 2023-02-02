@@ -3675,3 +3675,32 @@ PU1 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开始新一年的road to 终章了吧
 
+
+*****
+
+####  qixinno2  
+##### 4862#       发表于 2023-2-2 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正小芬奇死定了 
+
+*****
+
+####  eilot  
+##### 4863#       发表于 2023-2-2 18:25
+
+ 本帖最后由 eilot 于 2023-2-2 18:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59580464&amp;ptid=2084912" target="_blank">yyzcacxg 发表于 2023-2-2 13:17</a>
+
+就现在这产能，这活动安排，这长草时间，我都不知道继续抽卡是为啥了，做的再强有啥用，长草丢仓库吃灰？
+
+ ...</blockquote>
+FGO的主线一向都是如何噁心/脑残，抽多少卡都不能在主线大多时间使用
+
+不像以前打掉血条后就消我方BUFF再狂上多次无敌再放全体必杀光炮、日常普攻消BUFF消无敌再放光炮已经算好了
+
+今次只是后期强化率大减(圣诞南丁先用技2补了后还有机会上不到强化)，出战人数绑4~5人，当中更绑死3~4人，
+
+又或者出场队伍只绑能自选的一人，可以改为小妖精出场非常好，开场光炮后就自杀，不用再出垃圾学妹
+
+学妹技2千万不要强化，用来快快自杀，早死早退场，千万不要给个故事限定根性...
+
