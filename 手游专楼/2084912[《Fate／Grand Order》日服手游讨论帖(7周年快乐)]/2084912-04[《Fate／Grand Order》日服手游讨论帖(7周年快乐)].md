@@ -3728,3 +3728,11 @@ FGO的主线一向都是如何噁心/脑残，抽多少卡都不能在主线大�
 
 B6呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个可是直接开了4个小号，街机那边才解决一个呢
 
+
+*****
+
+####  quanlix  
+##### 4867#       发表于 2023-2-2 21:36
+
+蝙蝠神这boss战弄得什么玩意儿，干脆直接把技能和宝具全禁了只能平a然后砸灵脉石得了
+
