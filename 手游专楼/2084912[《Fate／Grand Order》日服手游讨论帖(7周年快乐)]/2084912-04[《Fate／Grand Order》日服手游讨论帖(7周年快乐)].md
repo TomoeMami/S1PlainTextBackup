@@ -3829,3 +3829,13 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 反正打这蜘蛛又不用考虑NP回转率什么的. ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是要考虑的  你看狗蛋和小黑单人轻松连发 只可惜破条就寄 不然一个人打穿了（
 
+
+*****
+
+####  eilot  
+##### 4877#       发表于 2023-2-2 23:44
+
+旧活动就欠信长、茶茶、金田、圣诞LOLI贞和圣诞黑傻，
+
+圣诞系都不知道会否像復活系出总集编
+

@@ -14116,3 +14116,31 @@ ios预约页面是预期4月30日开服
 
 说起来，鲤鱼的台历也拿到了，用料真是浪费那么好的图…………顺便中文版真就直接套模版，什么建军节啥的都有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 11775#       发表于 2023-2-2 23:44
+
+ 本帖最后由 优妮可 于 2023-2-2 23:45 编辑 
+
+台历都没摆出来，放箱子吃土了。今天还下单了nagi的日历。估计也是差不多的吧。这价格就不能做大气点么
+
+*****
+
+####  aoaoaodedede  
+##### 11776#       发表于 2023-2-2 23:47
+
+啥玩意，看懵了，没太整明白<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不吃瓜了，虽然圈里难免会有摩擦，但是整个社区讨论氛围越来越差也是官方整活催化的结果，星1当时也有一段时间吵的，星2后，矛盾激化更重了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11777#       发表于 2023-2-2 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588615&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2023-2-2 23:47</a>
+啥玩意，看懵了，没太整明白
+不吃瓜了，虽然圈里难免会有摩擦，但是整个社区讨论氛围越来越差也是官 ...</blockquote>
+...说实话你要是欣欣向荣搞点摩擦也正常，这都泰坦尼克了，还玩这个，不如拉一首nearer my god to thee还安心点儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
