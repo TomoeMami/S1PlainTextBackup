@@ -13118,3 +13118,19 @@ pay：不自搜了
 
 看了一下AS国服的流水，每个月一百多万，跟21年国服SIF的流水差不多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adw667  
+##### 11662#       发表于 2023-2-2 16:22
+
+<img src="https://img.saraba1st.com/forum/202302/02/162202zbnnsnoui4u3xq1o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (445.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-2 16:22 上传
+
+就在今天！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -3643,3 +3643,11 @@ PU1 ...</blockquote>
 
 265实装以后，点5反而遭到官方的淡化地位也说明了这一点（无论是rt7宣传、AJ宣传还是FES宣传都不把点5当成正规章节了
 
+
+*****
+
+####  qixinno2  
+##### 4858#       发表于 2023-2-2 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">打完2.7 某女同事羁绊上限从8变9 笑死
+
