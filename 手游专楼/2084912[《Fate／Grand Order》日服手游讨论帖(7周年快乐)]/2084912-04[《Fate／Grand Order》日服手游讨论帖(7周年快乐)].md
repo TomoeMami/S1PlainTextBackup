@@ -4403,3 +4403,14 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 今次前编一开始为学妹新增无敌贯通，算是配合本章那群无敌恐龙来打，但下半没给强化率增加(那怕只是故事限定)，还要绑前场出战就彻底成为垃圾角色，就算想用技能都没用
 
+
+*****
+
+####  DARKGRAY  
+##### 4926#       发表于 2023-2-3 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59597076&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-3 17:03</a>
+
+芙芙全程神隐也没说干嘛去了</blockquote>
+恐龙人不懂比较吃不到好处，直接摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

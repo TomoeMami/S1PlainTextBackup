@@ -3675,3 +3675,11 @@ IGN总部：9
 
 <img src="https://p.sda1.dev/9/7665dc9ea8dcbd2da3377230b548d493/CMP_20230203135509962.jpg" referrerpolicy="no-referrer">Gs也是9
 
+
+*****
+
+####  BallanceHZ  
+##### 356#       发表于 2023-2-3 18:07
+
+normal已通关，我也给9/10，这最终boss战差一口气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
