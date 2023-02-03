@@ -14876,3 +14876,14 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
      経営阵が可可ちゃんを嫌っているわけではありません。 会社はお金に目がくらんでいます。</blockquote>
 妈耶，在推上倒苦水居然有陌生日本网友回复，貌似没认出来我是哪国人，感觉自己快成祥林嫂了......<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 11842#       发表于 2023-2-3 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59602617&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-3 21:50</a>
+
+妈耶，在推上倒苦水居然有陌生日本网友回复，貌似没认出来我是哪国人，感觉自己快成祥林嫂了...... ...</blockquote>
+我看到了，那什么臭寄吧理论，投票第一买谷最欢的可可需要你平安名堇捆绑拉销量？
+
