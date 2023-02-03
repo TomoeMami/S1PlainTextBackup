@@ -3729,3 +3729,15 @@ normal已通关，我也给9/10，这最终boss战差一口气<img src="https://
 
 可惜这游戏没有bgm大战，我觉得如果能有场主角和boss的斗歌对决就好了，就是一场战斗里特地把主角的血设计和boss一样厚，boss会打各种连段也会连段失误，两个人都有个实时战斗评分，谁的分高就放谁的bgm。用鬼泣5类比的话，就是但丁打维吉尔打出S，开始放“you can not kill me!I'm omega!"，这时维吉尔反手一套把但丁连到S就掐断但丁的bgm，放”I am the storm that is approaching!"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Earendil_C  
+##### 361#       发表于 2023-2-4 01:46
+
+ 本帖最后由 Earendil_C 于 2023-2-4 01:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">被武士的诡异节奏整不会了，打了一整关下来就完整格下来一次
+红毛的格挡战格的很爽，就是最后打赢的时候兴奋地放下手柄，然后让红毛摔了个狗啃泥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很是欢乐
+这游戏的跳跳乐很多都是跳过头就不能折返的，想回去搜搜不了，以及动作关卡如果能给一个快捷的重开就更好了，方便刷刷评价
+
