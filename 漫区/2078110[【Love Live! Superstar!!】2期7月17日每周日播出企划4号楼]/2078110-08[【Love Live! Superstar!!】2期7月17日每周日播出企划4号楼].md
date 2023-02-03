@@ -14464,3 +14464,39 @@ ios预约页面是预期4月30日开服
 
 如果说vn去了音乐科，还能玩个什么liella3：内战，毕竟as又不是没弄过，既然vn追随大香老师了，就不会再有什么敌团了吧，都三年级了该讲传承这种惯例了吧。
 
+
+*****
+
+####  优妮可  
+##### 11808#       发表于 2023-2-3 10:24
+
+<blockquote>ViyViy 发表于 2023-2-3 09:50
+所以看板娘手办的联合生放是真准备拿来给隔壁顶替灯的新人驾盾是吗</blockquote>
+虽然这算是隔壁的事，但让新人来和鱼做看板娘生放，鱼压力也大啊。个人觉得还是灯好点，毕竟上次跟爱香开过了，但不到两个月了，不像是会有生放安排的样子。
+
+*****
+
+####  starring  
+##### 11809#       发表于 2023-2-3 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591349&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-3 10:13</a>
+
+三期应该不会还玩什么前后辈实力差距这种破事吧。京极、花田，那种事情不要啊。
+
+如果说vn去了音乐科，还 ...</blockquote>
+搞内战的话一间学校只有一队人能参加大赛，那样做的话招募的就不应该叫三期生，肯定不会那样做，如果真做了我倒是想看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+cast方面真好奇能天降一个什么样的人，面对几个能力拉满的前辈，又招纯素人然后育成怕不是要先把抗压能力练满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 11810#       发表于 2023-2-3 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59590906&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-3 09:41</a>
+
+不说sif归西那些破事了，这次生放送还算挺有趣的，也难怪要让咻卡来镇场子，要是只有菜宝和鲤鱼怕不是会把 ...</blockquote>
+国服遥遥无期啊，希望盛趣能支棱起来<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+昨天看咻卡玩普通谱面我突然产生了我上我也行的错觉还想去试试，结果之后酸菜鱼打EX直接给我劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
