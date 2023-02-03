@@ -4237,3 +4237,50 @@ ORT战金卡基本都能一人一条血，人形态没巴姐用莉莉丝绿卡�
 最后这大地图上的ort整个一坨会动的马赛克</blockquote>
 高情商：像素风<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4912#       发表于 2023-2-3 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596358&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-3 16:15</a>
+
+2.7下篇打完了，虽然这次ort的形态多到可以凑够一套卡面，但涉及他的关卡难度整体不高。觉醒前的mini版ort ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你被坑了 戴比特召唤的东西你上几个人就有几个  所以只上所长马修自己再上一个杀生院 对面只有3个怪 脚打
+
+*****
+
+####  保罗赫伯特  
+##### 4913#       发表于 2023-2-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59584523&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-2 18:24</a>
+
+反正小芬奇死定了</blockquote>
+玛修续的得，小芬奇续不得？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+syl 想起了以前看过的大芬奇黑幕论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 4914#       发表于 2023-2-3 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596459&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 16:22</a>
+
+你被坑了 戴比特召唤的东西你上几个人就有几个  所以只上所长马修自己再上一个杀生院 对面只有3个 ...</blockquote>
+还有这事<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+我看攻略里用的也是杀生院，然而日服没有，那关又不能借<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4915#       发表于 2023-2-3 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596575&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-3 16:29</a>
+
+还有这事
+
+我看攻略里用的也是杀生院，然而日服没有，那关又不能借 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便带个光炮小丑就行了  主要还是只上3人
+
