@@ -14597,3 +14597,33 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 你们说的都对，但是鲤鱼到现在没有一首单C位的歌，分词只拿到最后半句而别人能唱整句的情况数不胜数，动画角色开局人气最高之一后期人设被毁的最惨，相比之下按头搞CP属实是洒洒水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11819#       发表于 2023-2-3 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591731&amp;ptid=2078110" target="_blank">D麦林 发表于 2023-2-3 10:37</a>
+
+也不是不可能 毕竟真搞内战剧情上肯定是先战然后最后加入合一的
+
+但真要这么搞的话我恐怕花田驾驭这种剧情 ...</blockquote>
+上头派下来的任务能猜测的会跟一二季差不多，新角色个人回然后固定集数卖歌，其它放任乱来。
+
+现在的花田大师搞对决收队友的模式，那画面可太美<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">摆烂做12集喝茶聊日常说不定还没那么难看
+
+*****
+
+####  Kfly  
+##### 11820#       发表于 2023-2-3 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591837&amp;ptid=2078110" target="_blank">D麦林 发表于 2023-2-3 10:44</a>
+
+我也不是洗地 但是这三个角色也不是成套的啊 甚至都不是一个团的
+
+初始UR算套的话已知都一共39个角色呢 只 ...</blockquote>
+还不是怨气太重了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+本质还是对官方操作的不满，以及对可堇cp的敏感，再加上“别人的卡怎么就没有多人”的放大。
+（这么想或许没有道理，但偏偏在这时候这么做真的不好会有被“特殊待遇”的想法吗？如果官方没这个意思，那我也希望这是真的，自作多情被打脸倒也不算什么了）
+
