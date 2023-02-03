@@ -3638,3 +3638,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 节奏大师第一关刷了两三次打到全S结果之前的无伤被覆盖了 索性不折磨自己了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  时空之旅  
+##### 352#       发表于 2023-2-3 11:48
+
+<blockquote>Rowen233 发表于 2023-2-2 10:57
+推上不少日本人求移植NS版</blockquote>
+我觉得移植到ns的可能性还真别说完全不可能。。。
+

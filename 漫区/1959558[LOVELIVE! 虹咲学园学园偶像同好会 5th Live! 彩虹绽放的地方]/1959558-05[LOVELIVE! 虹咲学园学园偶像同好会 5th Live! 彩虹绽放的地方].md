@@ -2182,3 +2182,20 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 竟然是动画世界观吗？是不是意味着雨野写的那坨以后会成为黑历史？</blockquote>
 把支线扒拉扒拉就好，主线能滚多远就滚多远吧，如果有人要攻击性那么去论坛里公开支持那一坨一定能收获不少了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 6964#       发表于 2023-2-3 11:49
+
+虹四格 05 「エマとミアと歌」先行图
+
+<img src="https://img.saraba1st.com/forum/202302/03/114947lvalao3jflh0lylq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>73F70389-AF6E-4806-9AD4-29DE0D37A54D.jpeg</strong> (296.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-3 11:49 上传
+

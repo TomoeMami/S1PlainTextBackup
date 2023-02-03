@@ -3932,3 +3932,11 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 全他妈是喂屎本，懒得想对策了，直接吃灵脉石
 
+
+*****
+
+####  qixinno2  
+##### 4886#       发表于 2023-2-3 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自由本想拿石 结果还是那么卡 真的难受的要死
+
