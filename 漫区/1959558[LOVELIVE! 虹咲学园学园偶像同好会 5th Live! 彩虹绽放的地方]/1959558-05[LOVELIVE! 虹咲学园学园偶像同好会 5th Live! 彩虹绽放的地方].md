@@ -2227,3 +2227,13 @@ sif2雪菜发型变了，也不像as那样穿着打歌服到处跑了</blockquot
 AZUNA live特典四格
 <img src="https://p.sda1.dev/9/8693f91538559c41b8e15300e8dfd0b2/CMP_20230203220955398.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dozen  
+##### 6967#       发表于 2023-2-4 00:18
+
+艾玛没有正常比例的2D绘啊，这么说上一话栞子也没有，看来是少数角色的福利了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">另外这两话有点鸡汤、
+

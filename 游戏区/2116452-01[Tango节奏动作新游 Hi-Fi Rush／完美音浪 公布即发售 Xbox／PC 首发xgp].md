@@ -3691,3 +3691,19 @@ normal已通关，我也给9/10，这最终boss战差一口气<img src="https://
 
 打了会分 发现这游戏复读惩罚挺重的 获得分数直接x0.7……
 
+
+*****
+
+####  陈词与芍药  
+##### 358#         楼主| 发表于 2023-2-4 00:14
+
+<img src="https://img.saraba1st.com/forum/202302/03/111454mwpqca6cwsbw78c8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0130.PNG</strong> (495.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-4 00:14 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
