@@ -4361,3 +4361,31 @@ syl 想起了以前看过的大芬奇黑幕论<img src="https://static.saraba1st
 syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">谁给小芬奇续呢
 
+
+*****
+
+####  ATEX  
+##### 4922#       发表于 2023-2-3 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596459&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 16:22</a>
+
+你被坑了 戴比特召唤的东西你上几个人就有几个  所以只上所长马修自己再上一个杀生院 对面只有3个 ...</blockquote>
+带个拐上满BUFF和强解耐性所长单挑也行，难点是怎么快速送掉学妹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 4923#       发表于 2023-2-3 17:03
+
+芙芙全程神隐也没说干嘛去了
+
+*****
+
+####  J-002  
+##### 4924#       发表于 2023-2-3 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 16:35</a>
+
+不知道剧情里有没有提示看我方人数  我不记得了（</blockquote>
+有，蝙蝠王兽化之前说的，打之前还特意回忆了这句话给提示
+
