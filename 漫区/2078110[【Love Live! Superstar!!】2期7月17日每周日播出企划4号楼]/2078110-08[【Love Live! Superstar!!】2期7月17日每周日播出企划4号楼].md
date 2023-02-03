@@ -14887,3 +14887,23 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 妈耶，在推上倒苦水居然有陌生日本网友回复，貌似没认出来我是哪国人，感觉自己快成祥林嫂了...... ...</blockquote>
 我看到了，那什么臭寄吧理论，投票第一买谷最欢的可可需要你平安名堇捆绑拉销量？
 
+
+*****
+
+####  nufawneafg  
+##### 11843#       发表于 2023-2-3 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59603262&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-3 22:22</a>
+我看到了，那什么臭寄吧理论，投票第一买谷最欢的可可需要你平安名堇捆绑拉销量？ ...</blockquote>
+说到捆绑了，考虑考虑团名，这种事情以后只多不少好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 11844#       发表于 2023-2-3 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59603262&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-02-03 22:22:19</a>
+我看到了，那什么臭寄吧理论，投票第一买谷最欢的可可需要你平安名堇捆绑拉销量？ ...</blockquote>真的很想多说两句可惜语言水平不允许……为什么其他人不用这套理论呢？<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

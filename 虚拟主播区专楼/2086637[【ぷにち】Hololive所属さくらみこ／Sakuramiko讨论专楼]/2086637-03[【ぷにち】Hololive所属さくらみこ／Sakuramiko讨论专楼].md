@@ -12817,3 +12817,11 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 不过也是没办法的事了，上个月也忙这个月还在忙也没看其他人那么忙啊，不知道是不是真的在准备sololive的事
 
+
+*****
+
+####  rs5621  
+##### 4180#       发表于 2023-2-3 22:36
+
+嗯,sololive?<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
