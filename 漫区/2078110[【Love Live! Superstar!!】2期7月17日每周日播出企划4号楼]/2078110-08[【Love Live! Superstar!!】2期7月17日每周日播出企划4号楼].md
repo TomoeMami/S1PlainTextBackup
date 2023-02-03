@@ -14966,3 +14966,33 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 厕所人会一自摸塔塔开，所以嗓门大，正常人自然只能被捂嘴。
 
+
+*****
+
+####  D麦林  
+##### 11851#       发表于 2023-2-3 23:24
+
+要旧事重提的话
+所以按之前的那个报道
+难道官方真的对虹加三个人过程中产生的数次炎上风波视而不见反而觉得结果好就一切都好吗 然后就想在新出的团上复制“成功经验”？
+甚至往深里说 难道说虹四格和虹二动画的那些救火剧情其实纯靠制作阵自我厨力完成 完全没有官方指示？
+至于花田这边官方都没让他干什么他就按自己想法随便写了咯 然后得到我们看到的成品<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11852#       发表于 2023-2-3 23:25
+
+感觉鲤鱼经纪人日语也在退化<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11853#       发表于 2023-2-3 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59604180&amp;ptid=2078110" target="_blank">D麦林 发表于 2023-2-3 23:24</a>
+要旧事重提的话
+所以按之前的那个报道
+难道官方真的对虹加三个人过程中产生的数次炎上风波视而不见反而觉得 ...</blockquote>
+这时候就需要复读泥潭经典《草台论》了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
