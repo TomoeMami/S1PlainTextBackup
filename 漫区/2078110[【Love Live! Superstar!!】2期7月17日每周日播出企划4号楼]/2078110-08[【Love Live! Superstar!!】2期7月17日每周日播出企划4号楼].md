@@ -14863,3 +14863,16 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 你们说解禁后会不会放动画过场一片嘘声</blockquote>
 不至于...先不论厄介问题，日本人那德行，考虑一下“耻文化”好吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 11841#       发表于 2023-2-3 21:50
+
+<blockquote>可可ちゃんは一人で主役になれるキャラだと思います。 彼女がいなければ、今のチーム（リエラ）は存在しません。
+
+     そこにいた5人が出会えたのは、可可ちゃんの勇気があったからだと思います。
+
+     経営阵が可可ちゃんを嫌っているわけではありません。 会社はお金に目がくらんでいます。</blockquote>
+妈耶，在推上倒苦水居然有陌生日本网友回复，貌似没认出来我是哪国人，感觉自己快成祥林嫂了......<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
