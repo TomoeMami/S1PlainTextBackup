@@ -14846,3 +14846,20 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 放过日升2组吧………………他们活太多了
 
+
+*****
+
+####  ViyViy  
+##### 11839#       发表于 2023-2-3 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说解禁后会不会放动画过场一片嘘声
+
+*****
+
+####  nufawneafg  
+##### 11840#       发表于 2023-2-3 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59602054&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-3 21:26</a>
+你们说解禁后会不会放动画过场一片嘘声</blockquote>
+不至于...先不论厄介问题，日本人那德行，考虑一下“耻文化”好吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
