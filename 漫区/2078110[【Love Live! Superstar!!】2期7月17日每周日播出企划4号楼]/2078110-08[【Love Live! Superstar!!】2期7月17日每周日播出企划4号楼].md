@@ -14364,3 +14364,44 @@ ios预约页面是预期4月30日开服
 
 我相信直到现在都有不少可推有怨气。
 
+
+*****
+
+####  toshima  
+##### 11800#       发表于 2023-2-3 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588025&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2023-2-2 22:55</a>
+
+那个活动本来就奇怪，一宣布的时候倒是先给自家一些ip粉丝气的不轻，像男邦粉丝表示自家拼盘都已经完全不 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/03/092220l1fyhbgwdiwwob22.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230203102137.png</strong> (414.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-3 09:22 上传
+
+就男邦这个画风。。。那些日本星厨连能出声应援都不能接受的。。。我怕给他们一些小小的rock震撼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 11801#       发表于 2023-2-3 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588999&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-3 00:25</a>
+
+你们看，还一堆洗地的说双人卡是传统何必大惊小怪，那其他两个角色怎么就能单人卡？到可可这就非得捆着另一 ...</blockquote>
+搞的as双人多常见，有人去翻才翻出6张，虽然没说是不是仅UR这个级别。
+
+看鲤鱼昨天试玩的结算界面，怀疑星因为加的晚比较新先用“老”卡顶着，没画多少新的。
+
+最阴暗的就是轮到星就偷懒了，除了香音solo其余八位学拳头画张大图裁剪，人家是重竞技-皮肤是添头的游戏，你卖卡游戏也这样属实牛，和隔壁烟雾镜恶劣程度不相上下。
+
+*****
+
+####  甘蓝巧克力  
+##### 11802#       发表于 2023-2-3 09:28
+
+废狗烟雾镜还能解释为老漫画家的手绘风格和卡面立绘不兼容，sif这纯粹就是偷工捡烂了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
