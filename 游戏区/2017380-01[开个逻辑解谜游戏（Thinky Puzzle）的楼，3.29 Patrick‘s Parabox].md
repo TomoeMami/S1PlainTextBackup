@@ -1784,3 +1784,14 @@ Unmurk
 3D拼图
 [https://store.steampowered.com/app/1923960/Unmurk/](https://store.steampowered.com/app/1923960/Unmurk/)
 
+
+*****
+
+####  mqm  
+##### 118#       发表于 2023-2-3 10:47
+
+14扫雷变体挺好玩的，春节玩的最多的竟然是它（没有计时压力，进度自动保存
+玩到#关卡的时候感觉背后生成谜题的算法应该挺妙的，但终究是生成的关卡，规则又弯弯绕绕的，#关玩起来不爽
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

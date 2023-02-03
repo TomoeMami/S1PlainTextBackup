@@ -3875,3 +3875,14 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 无所谓，我会出手.jpg</blockquote>
 第四个，咕哒某方面来说也做到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 4881#       发表于 2023-2-3 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591661&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-3 10:33</a>
+
+第四个，咕哒某方面来说也做到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大主神宙斯和UO所长
+
