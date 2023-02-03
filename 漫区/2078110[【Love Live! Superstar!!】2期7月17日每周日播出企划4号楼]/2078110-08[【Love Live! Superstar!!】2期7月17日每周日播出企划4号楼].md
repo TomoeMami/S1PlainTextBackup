@@ -14349,3 +14349,18 @@ ios预约页面是预期4月30日开服
 
 2023-2-3 08:30 上传
 
+
+*****
+
+####  2148214  
+##### 11799#       发表于 2023-2-3 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59588823&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-3 00:07</a>
+
+我是觉得不能以小部分或者极端的言论代表大部分人。</blockquote>
+确实，但是背刺就要遭人记恨。
+
+难道顺风输出了完了就算了么。
+
+我相信直到现在都有不少可推有怨气。
+
