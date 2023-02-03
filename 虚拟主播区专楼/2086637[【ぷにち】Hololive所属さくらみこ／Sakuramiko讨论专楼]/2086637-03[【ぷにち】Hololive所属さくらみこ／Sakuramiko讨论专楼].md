@@ -12807,3 +12807,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4179#         楼主| 发表于 2023-2-3 22:03
+
+这一整个星期就实际只直播了1天……
+
+不过也是没办法的事了，上个月也忙这个月还在忙也没看其他人那么忙啊，不知道是不是真的在准备sololive的事
+
