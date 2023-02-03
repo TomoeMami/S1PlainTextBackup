@@ -14707,3 +14707,29 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 一期生毕业跟让水fl不是一样的愚蠢么。
 
+
+*****
+
+####  D麦林  
+##### 11828#       发表于 2023-2-3 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59592007&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-3 10:55</a>
+
+我有说是你吗？要是所有人卡面都一碗水端平，我没话说，为什么就可可非得特殊？再说这游戏我也不会去玩， ...</blockquote>
+我就是想说为什么要纠结在特殊不特殊这一点上
+
+事实就是现在已公布的卡面上有多人的都不止这一张了 这也说不上是什么特殊待遇
+
+当然Liella全公布卡面了就这一张是多人的话倒是可以从另一个角度去横向比较
+
+其实我觉得就哪怕直说我就是不想可可被CP强绑定什么的也好过强调什么特殊化
+
+当然就是想发泄情绪的话我也管不着 我就这么一说<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  懂你意思  
+##### 11829#       发表于 2023-2-3 11:55
+
+怎么可能毕业，大把资源投入然后毕业把粉丝割走，运营搁这做慈善呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
