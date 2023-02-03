@@ -4060,3 +4060,15 @@ buff又足打上三清个普通本不挺好使的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬又欧又有钱 霉B现在只有60石 库库尔坎应该只能听个响了
 
+
+*****
+
+####  exiaexa  
+##### 4897#       发表于 2023-2-3 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593609&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 12:44</a>
+
+醒醒  你抽的是那个男人</blockquote>
+NMD我要挂出去相互伤害
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
