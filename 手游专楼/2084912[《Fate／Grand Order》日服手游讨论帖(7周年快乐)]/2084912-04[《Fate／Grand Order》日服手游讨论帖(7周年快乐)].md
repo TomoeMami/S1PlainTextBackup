@@ -4091,3 +4091,14 @@ NMD我要挂出去相互伤害
 NMD我要挂出去相互伤害</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大佬把这玩意撤了吧 我受伤了
 
+
+*****
+
+####  alucardcz  
+##### 4900#       发表于 2023-2-3 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593893&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-2-3 13:09</a>
+
+不如聊聊让手机烧起来的神优化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于不至于 虽然的确有点烫 反正蜘蛛打完就好了
+

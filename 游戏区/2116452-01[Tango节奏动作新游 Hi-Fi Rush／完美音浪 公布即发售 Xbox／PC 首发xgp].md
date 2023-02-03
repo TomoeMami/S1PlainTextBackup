@@ -3648,3 +3648,11 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 推上不少日本人求移植NS版</blockquote>
 我觉得移植到ns的可能性还真别说完全不可能。。。
 
+
+*****
+
+####  Rowen233  
+##### 353#       发表于 2023-2-3 13:37
+
+IGN总部：9
+
