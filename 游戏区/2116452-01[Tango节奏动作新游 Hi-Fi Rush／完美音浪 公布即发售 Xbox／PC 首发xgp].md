@@ -3628,3 +3628,13 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 光谱房的分是独立算的</blockquote>
 哦原来是那个隐藏房间（
 
+
+*****
+
+####  760194962  
+##### 351#       发表于 2023-2-3 09:17
+
+原来每关单次战斗最佳战绩是记不住的吗 还是不以无伤为最高优先度而是分数？
+
+节奏大师第一关刷了两三次打到全S结果之前的无伤被覆盖了 索性不折磨自己了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
