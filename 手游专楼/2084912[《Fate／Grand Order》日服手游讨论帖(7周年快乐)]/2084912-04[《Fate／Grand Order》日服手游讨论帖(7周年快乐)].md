@@ -4414,3 +4414,18 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 芙芙全程神隐也没说干嘛去了</blockquote>
 恐龙人不懂比较吃不到好处，直接摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 4927#       发表于 2023-2-3 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596575&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-3 16:29</a>
+
+还有这事
+
+我看攻略里用的也是杀生院，然而日服没有，那关又不能借 ...</blockquote>
+这场我是用道满(宝1)，学妹用4星加防的礼装，拼一些人品前期出的卡都是道満
+
+现在加防礼装又没各种限制及回合数，还是4星那件+20防吗?看手上那些5星都是只对男/女性防，和只得3回合效果
+
