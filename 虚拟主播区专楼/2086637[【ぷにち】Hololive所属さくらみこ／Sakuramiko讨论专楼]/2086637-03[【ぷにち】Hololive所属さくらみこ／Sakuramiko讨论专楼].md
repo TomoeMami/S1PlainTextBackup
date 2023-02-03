@@ -12797,3 +12797,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 今晚好像是看电影，不知道有没有其他直播，没有的话说不定polka的凸会去
 
+
+*****
+
+####  rs5621  
+##### 4178#       发表于 2023-2-3 21:55
+
+啊，本周同步视听没了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
