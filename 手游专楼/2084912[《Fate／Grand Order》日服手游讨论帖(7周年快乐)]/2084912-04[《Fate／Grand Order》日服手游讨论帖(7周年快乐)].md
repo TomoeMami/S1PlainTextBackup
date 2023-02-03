@@ -3908,3 +3908,27 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 不知怎么就被黑成逼氪/不照顾玩家了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4884#       发表于 2023-2-3 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59592394&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 11:19</a>
+
+说起来大蜘蛛战确实是被云玩家吹夸张了
+
+我当时是直接3宝石克制单体骑脸的，剩血皮就随便拉点低星光炮收掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">云玩家自己又没打过 后面血厚了基本1个人轻松1条血 血少的时候2个低星也足够收了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我5星都没怎么上 本来还想着最后几条血用黄金大队  结果他直接变300万了。。。
+
+然后300w机械龙娘2发带走。。
+
+*****
+
+####  quanlix  
+##### 4885#       发表于 2023-2-3 11:30
+
+全他妈是喂屎本，懒得想对策了，直接吃灵脉石
+
