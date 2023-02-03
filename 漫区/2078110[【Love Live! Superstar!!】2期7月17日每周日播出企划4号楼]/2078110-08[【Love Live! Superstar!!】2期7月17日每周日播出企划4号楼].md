@@ -14751,3 +14751,13 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 虽然感觉你们说的这个应该不至于<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
  毕竟是喜欢选弹幕最多的玩法的那个运营啊 
 
+
+*****
+
+####  ads147147  
+##### 11832#       发表于 2023-2-3 12:25
+
+不过sif2说是9+9+12+9，侑没有不奇怪，这个liella注定10人起的，这没定好就急着上，草台程度也不是一次两次。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
