@@ -14438,3 +14438,16 @@ ios预约页面是预期4月30日开服
 
 所以看板娘手办的联合生放是真准备拿来给隔壁顶替灯的新人驾盾是吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11806#       发表于 2023-2-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59590893&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2023-2-3 09:40</a>
+
+补了3rd东京day1的熟肉，这结那进步太明显了，发声正确多了，相比之下……</blockquote>
+跟第一场比上台不紧张了，舞蹈更加干净利落很好看，唱歌也稳定（butterfly wing也没唱岔气<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）不过结那的高音有点虚，多练一些可能还能进步
+
+除非又抽到两张UR，不然三期生的压力拉满了
+
