@@ -15015,3 +15015,32 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这推特怎么闲着没事清死号啊，你鱼推关注都掉下70万了，关注的画师里也有掉了几千的
 
+
+*****
+
+####  nufawneafg  
+##### 11856#       发表于 2023-2-3 23:53
+
+ 本帖最后由 nufawneafg 于 2023-2-3 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59604508&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-3 23:51</a>
+这推特怎么闲着没事清死号啊，你鱼推关注都掉下70万了，关注的画师里也有掉了几千的 ...</blockquote>
+马一龙这段时间抱着twi这个烫手山芋正难受着呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 11857#       发表于 2023-2-3 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59604180&amp;ptid=2078110" target="_blank">D麦林 发表于 2023-2-3 23:24</a>
+要旧事重提的话
+所以按之前的那个报道
+难道官方真的对虹加三个人过程中产生的数次炎上风波视而不见反而觉得 ...</blockquote>
+反正逻辑对不上真只能用草台论解释了。
+
+你说花田京极做了十几年动画了，不是没犯浑过，但是这种一路往粉丝雷点狂奔动画我还是第三次见，其他两次是游戏王arcv和兽娘2，都能和这两个卧龙凤雏比了，没场外因素我是不相信的（巧的是a5和兽娘2都是导演编剧引发的问题，甚至还有制片下场，很难不想到星2的症结在哪）
+
+代哥对as加人满意在我看到杂志之前我也觉得这怎么可能，但是对外宣传就是这样，只能说是嘴硬是一定会嘴硬的。这事大概率会变成一期生啥时候知道二期生存在一样的罗生门。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
