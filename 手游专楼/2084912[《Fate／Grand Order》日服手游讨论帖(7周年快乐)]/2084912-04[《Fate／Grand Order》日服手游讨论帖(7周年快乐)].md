@@ -4213,3 +4213,27 @@ ORT战金卡基本都能一人一条血，人形态没巴姐用莉莉丝绿卡�
 
 每次只上一个，给np李庄
 
+
+*****
+
+####  保罗赫伯特  
+##### 4910#       发表于 2023-2-3 16:15
+
+ 本帖最后由 保罗赫伯特 于 2023-2-3 16:17 编辑 
+
+2.7下篇打完了，虽然这次ort的形态多到可以凑够一套卡面，但涉及他的关卡难度整体不高。觉醒前的mini版ort是新羽蛇神的试用关，打冠位外星人ort，助战buff加到最后都满溢出来了。车轮战在剧情里说要出动全图鉴300骑来打，实际上有三四十个满破角色带np礼装单挑就能打通了，和爬百重塔的感受类似，打前面一阶段大蜘蛛舍不得用五星主力，到二阶段飞碟发现没多少机会用了。打爆血条必死这个机制有点不太爽，像小恩和XX毛这种人类威胁特攻对上的，不强制退场，打完一条还能接着打<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+真的难的是兽化蝙蝠神最终战和戴比特召唤的六个外星人影从者，前者限制宝具输出，得用卑弥呼和始皇帝这类暴击选手，推荐用卑呆梅。后者虽然每个怪的三血条血量都不算高，但是机制真的有够恶心人，各种弱体debuff+强化解除+高抗性，还非要带着所长和马修一起，虽然都是咕哒的翅膀，但唯独这个时候不想看见你们啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+剧情方面，最大的进展是印证了地球仪成精的猜想，以及挑明了消灭七个异闻带也是老所长计划的一部分，但戴先生还是发挥了不讲重点的优良传统，就是不告诉你阴谋的全貌，所长和被检验体E之间的关系也只是接所长的口撩拨了一下，总体只是确定了一个大方向，很多细节问题还是要等后续补充<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 4911#       发表于 2023-2-3 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59594258&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-3 13:42</a>
+
+最后这大地图上的ort整个一坨会动的马赛克</blockquote>
+高情商：像素风<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
