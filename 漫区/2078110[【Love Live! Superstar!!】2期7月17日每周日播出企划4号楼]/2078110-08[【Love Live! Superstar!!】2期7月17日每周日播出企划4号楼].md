@@ -14451,3 +14451,16 @@ ios预约页面是预期4月30日开服
 
 除非又抽到两张UR，不然三期生的压力拉满了
 
+
+*****
+
+####  ads147147  
+##### 11807#       发表于 2023-2-3 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591302&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-3 10:10</a>
+
+跟第一场比上台不紧张了，舞蹈更加干净利落很好看，唱歌也稳定（butterfly wing也没唱岔气）不过 ...</blockquote>
+三期应该不会还玩什么前后辈实力差距这种破事吧。京极、花田，那种事情不要啊。
+
+如果说vn去了音乐科，还能玩个什么liella3：内战，毕竟as又不是没弄过，既然vn追随大香老师了，就不会再有什么敌团了吧，都三年级了该讲传承这种惯例了吧。
+
