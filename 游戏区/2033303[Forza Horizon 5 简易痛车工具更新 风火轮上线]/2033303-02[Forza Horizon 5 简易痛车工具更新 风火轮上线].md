@@ -88,3 +88,14 @@
 
 你们现在还做任务吗，感觉玩不动了
 
+
+*****
+
+####  Y.Cassano  
+##### 2519#       发表于 2023-2-4 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59599707&amp;ptid=2033303" target="_blank">团结奋进碇真嗣 发表于 2023-2-3 19:58</a>
+
+你们现在还做任务吗，感觉玩不动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">车子基本都齐了，除非他推出新款。5代停止更新维护的话，我没准就回四代了，五代我这偶尔会卡死，四代几乎不会。
+
