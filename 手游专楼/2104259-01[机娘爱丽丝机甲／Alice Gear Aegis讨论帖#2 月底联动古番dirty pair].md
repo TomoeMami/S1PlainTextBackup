@@ -1319,3 +1319,25 @@ FA一条/小鸟游
 具体顺序不明
 信源是英文discord拆包
 
+
+*****
+
+####  Rincewind  
+##### 249#       发表于 2023-2-3 23:31
+
+ 本帖最后由 Rincewind 于 2023-2-3 23:34 编辑 
+
+[https://www.inside-games.jp/article/2023/02/03/143650.html](https://www.inside-games.jp/article/2023/02/03/143650.html)
+你游程序组史上第二次接受专访<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+比较长不太好读，诸君自便
+细节和槽点都挺多的
+
+我读了四分之一就意识到这玩意恐怕没法翻译了x
+
+我的主要感想是
+·功能和优化方面下的功夫很多
+·为了后面添加的功能/内容不得不回去花大功夫重做的东西很多
+·很多内容都是联动时为了保留致敬风味加上的
+
+不愧是阿金，功力全用在普通玩家一点看不到的地方<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

@@ -12825,3 +12825,11 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 嗯,sololive?<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 4181#         楼主| 发表于 2023-2-3 23:32
+
+如果明晚还不能直播 那很可能明天早上会突击直播
+
