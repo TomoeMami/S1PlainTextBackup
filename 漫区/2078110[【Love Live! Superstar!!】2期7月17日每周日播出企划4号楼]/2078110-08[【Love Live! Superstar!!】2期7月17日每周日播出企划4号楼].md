@@ -14996,3 +14996,22 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 难道官方真的对虹加三个人过程中产生的数次炎上风波视而不见反而觉得 ...</blockquote>
 这时候就需要复读泥潭经典《草台论》了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D麦林  
+##### 11854#       发表于 2023-2-3 23:48
+
+本来Liella本就不多
+
+山田たいし老师的这个场限小册子算是目前为止最色的Liella本了（个人意见
+
+恋恋真是Liella最涩的角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 11855#       发表于 2023-2-3 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这推特怎么闲着没事清死号啊，你鱼推关注都掉下70万了，关注的画师里也有掉了几千的
+
