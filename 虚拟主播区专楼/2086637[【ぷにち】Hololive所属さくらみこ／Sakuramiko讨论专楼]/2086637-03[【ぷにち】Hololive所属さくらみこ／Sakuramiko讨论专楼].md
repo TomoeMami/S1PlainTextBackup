@@ -12787,3 +12787,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4177#         楼主| 发表于 2023-2-3 18:02
+
+今天开始连续3天每天长时间收录
+
+今晚好像是看电影，不知道有没有其他直播，没有的话说不定polka的凸会去
+
