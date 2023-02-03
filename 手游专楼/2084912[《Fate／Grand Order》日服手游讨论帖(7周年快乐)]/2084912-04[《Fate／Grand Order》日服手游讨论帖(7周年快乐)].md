@@ -3940,3 +3940,25 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自由本想拿石 结果还是那么卡 真的难受的要死
 
+
+*****
+
+####  UNISONIA  
+##### 4887#       发表于 2023-2-3 12:03
+
+蜘蛛后面的职阶变化应该是随机的，不排除新玩家没有足够克职的情况下打不破某职阶的一条（虽然可以送掉一个酱油来刷新职阶）
+
+*****
+
+####  alucardcz  
+##### 4888#       发表于 2023-2-3 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593079&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-3 12:03</a>
+
+蜘蛛后面的职阶变化应该是随机的，不排除新玩家没有足够克职的情况下打不破某职阶的一条（虽然可以送掉一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1  2。7了还能叫新玩家吗？
+
+2 有没有可能真正的新玩家连送个人换职业都送不起
+
