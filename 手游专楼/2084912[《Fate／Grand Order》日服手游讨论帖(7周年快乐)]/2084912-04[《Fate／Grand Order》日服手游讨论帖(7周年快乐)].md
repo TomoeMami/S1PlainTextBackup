@@ -4080,3 +4080,14 @@ NMD我要挂出去相互伤害
 
 不如聊聊让手机烧起来的神优化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 4899#       发表于 2023-2-3 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593739&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 12:55</a>
+
+NMD我要挂出去相互伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大佬把这玩意撤了吧 我受伤了
+
