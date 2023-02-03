@@ -5071,3 +5071,11 @@ B站港澳台：
 
 ed什么时候有完整版？发售日期知道吗，很喜欢
 
+
+*****
+
+####  Cloudslin  
+##### 585#       发表于 2023-2-4 00:36
+
+这集终于要正式展开故事了——标志就是进入比家还熟悉的下水道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">制作是真滴贫穷，但黎老师的修正还蛮在线的。
+
