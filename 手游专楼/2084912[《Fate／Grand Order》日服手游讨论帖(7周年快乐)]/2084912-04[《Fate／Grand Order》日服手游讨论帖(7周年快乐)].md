@@ -3962,3 +3962,35 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 2 有没有可能真正的新玩家连送个人换职业都送不起
 
+
+*****
+
+####  ATEX  
+##### 4889#       发表于 2023-2-3 12:36
+
+ORT战金卡基本都能一人一条血，人形态没巴姐用莉莉丝绿卡队也没难度，就想问问什么时候能撕了学妹简直恶心透了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 4890#       发表于 2023-2-3 12:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道是不是幻觉 在2。7被杀后台的几率极高。。之前基本不会被杀的
+
+
+*****
+
+####  exiaexa  
+##### 4891#       发表于 2023-2-3 12:40
+
+NMD，我抽打free的时候用了下都市精发现挺好使
+
+可了两单打算追个5，然后现在都市精+0，烟雾镜3宝了
+
+我已经感觉羽蛇神我要爆炸了
+
+我是傻逼，常驻等歪
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
