@@ -3865,3 +3865,13 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 <img src="https://img.saraba1st.com/forum/202302/03/100804sby3zxolj1q3joz3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 4880#       发表于 2023-2-3 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591272&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-3 10:08</a>
+无所谓，我会出手.jpg</blockquote>
+第四个，咕哒某方面来说也做到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

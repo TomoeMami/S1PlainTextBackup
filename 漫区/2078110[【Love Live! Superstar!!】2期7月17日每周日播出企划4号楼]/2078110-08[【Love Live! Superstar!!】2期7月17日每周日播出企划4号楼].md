@@ -14500,3 +14500,34 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 昨天看咻卡玩普通谱面我突然产生了我上我也行的错觉还想去试试，结果之后酸菜鱼打EX直接给我劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D麦林  
+##### 11811#       发表于 2023-2-3 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591536&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-3 10:25</a>
+
+搞内战的话一间学校只有一队人能参加大赛，那样做的话招募的就不应该叫三期生，肯定不会那样做，如果真做 ...</blockquote>
+也不是不可能 毕竟真搞内战剧情上肯定是先战然后最后加入合一的
+
+但真要这么搞的话我恐怕花田驾驭这种剧情的能力会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我不知道官方有没有负责管住花田的人 但是我是官方的话我会让他第三季就搞点安稳的别再弄冲突了
+
+*****
+
+####  奥柏伦亲王  
+##### 11812#       发表于 2023-2-3 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59591302&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-3 10:10</a>
+跟第一场比上台不紧张了，舞蹈更加干净利落很好看，唱歌也稳定（butterfly wing也没唱岔气）不过 ...</blockquote>
+高音这个老天爷赏饭吃最重要，感觉结那应该达不到pay那种逆天的又稳又准的水平，不过整体已经比第一场好处几个档次了，太惊喜。三期生有她，应该不会再像二期这么拧巴了
+
+*****
+
+####  ViyViy  
+##### 11813#       发表于 2023-2-3 10:39
+
+别管了，直接踹了，也不在乎什么临阵换将了，让小太刀来我都愿意。
+
