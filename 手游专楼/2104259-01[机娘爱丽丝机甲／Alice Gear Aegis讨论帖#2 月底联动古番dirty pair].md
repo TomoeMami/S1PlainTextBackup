@@ -1302,3 +1302,20 @@ aegis最年长女演员怎么听都不像好话<img src="https://static.saraba1s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是最年长女演员味觉有问题吧（
 
+
+*****
+
+####  Rincewind  
+##### 248#       发表于 2023-2-3 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59585596&amp;ptid=2104259" target="_blank">孙光龙 发表于 2023-2-2 19:54</a>
+票又满了，有没有大佬透一下下一个池的小道消息？
+
+没啥想抽的就再给周年池扔个10连了 ...</blockquote>
+FA双子复刻
+AN宫南光
+FA一条/小鸟游
+
+具体顺序不明
+信源是英文discord拆包
+
