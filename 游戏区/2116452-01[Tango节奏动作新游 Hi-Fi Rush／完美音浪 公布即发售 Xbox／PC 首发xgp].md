@@ -3656,3 +3656,22 @@ BSS CSS最后就是全A<img src="https://static.saraba1st.com/image/smiley/face2
 
 IGN总部：9
 
+
+*****
+
+####  IRIS虹  
+##### 354#       发表于 2023-2-3 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59578305&amp;ptid=2116452" target="_blank">牛奶笛 发表于 2023-2-2 10:50</a>
+有买了豪华版的吗？是否推荐买啊</blockquote>
+豪华版不值，普通版可以考虑
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  BK10  
+##### 355#       发表于 2023-2-3 13:55
+
+<img src="https://p.sda1.dev/9/7665dc9ea8dcbd2da3377230b548d493/CMP_20230203135509962.jpg" referrerpolicy="no-referrer">Gs也是9
+

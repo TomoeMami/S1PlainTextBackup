@@ -4120,3 +4120,26 @@ NMD我要挂出去相互伤害</blockquote>
 直接忘记掉“要让玛修找到战斗理由”这回事了。本章女主地位有大总统顶了，挡枪的工作都高扬承担了，大概 ...</blockquote>
 大总统序章死一次，这一次又。。咕哒恢复正常生活几天会不会也学基神去看海回忆过往。。
 
+
+*****
+
+####  alucardcz  
+##### 4903#       发表于 2023-2-3 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要急  大总统估计还会出来 不过这次应该是没有灵魂的躯壳了
+
+*****
+
+####  exiaexa  
+##### 4904#       发表于 2023-2-3 13:59
+
+我去玩了下3宝烟雾镜
+
+虽然看解包就知道这个技能组很好使，但是实际好使程度已经出乎意料了，感觉被pua了是怎么回事
+
+特别是跟恩普萨对比一下就更好使了
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+顺便饭量真的大，2.7的大量基础素材就算了，**开20NP怎么也要吃仪式剑
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
