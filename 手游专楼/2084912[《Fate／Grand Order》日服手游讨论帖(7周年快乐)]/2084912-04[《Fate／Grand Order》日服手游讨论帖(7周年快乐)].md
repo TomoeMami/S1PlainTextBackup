@@ -3994,3 +3994,69 @@ NMD，我抽打free的时候用了下都市精发现挺好使
 我是傻逼，常驻等歪
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4892#       发表于 2023-2-3 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593567&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 12:40</a>
+
+NMD，我抽打free的时候用了下都市精发现挺好使
+
+可了两单打算追个5，然后现在都市精+0，烟雾镜3宝了
+
+我已经 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看你前面说过什么！ 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">人不能，至少不应该！
+
+*****
+
+####  exiaexa  
+##### 4893#       发表于 2023-2-3 12:42
+
+ 本帖最后由 exiaexa 于 2023-2-3 12:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593547&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 12:39</a>
+
+不知道是不是幻觉 在2。7被杀后台的几率极高。。之前基本不会被杀的</blockquote>
+错觉吧，我打的那几天，第一天因为出差太困了拿着收集睡着，第二天还在
+
+后两天都是在边跑企业边推，都是打到一半关屏幕塞裤兜，没被杀过
+
+iqoo5pro
+
+*****
+
+####  exiaexa  
+##### 4894#       发表于 2023-2-3 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593588&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 12:42</a>
+
+看看你前面说过什么！ 
+
+人不能，至少不应该！</blockquote>
+都市精多可爱啊
+
+buff又足打上三清个普通本不挺好使的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4895#       发表于 2023-2-3 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593599&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 12:43</a>
+
+都市精多可爱啊
+
+buff又足打上三清个普通本不挺好使的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒  你抽的是那个男人
+
+*****
+
+####  qixinno2  
+##### 4896#       发表于 2023-2-3 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬又欧又有钱 霉B现在只有60石 库库尔坎应该只能听个响了
+
