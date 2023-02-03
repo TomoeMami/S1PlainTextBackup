@@ -15044,3 +15044,16 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  D麦林  
+##### 11858#       发表于 2023-2-4 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59604508&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-3 23:51</a>
+这推特怎么闲着没事清死号啊，你鱼推关注都掉下70万了，关注的画师里也有掉了几千的 ...</blockquote>
+这波都被称作推特寒冬了
+我关注的拉拉画师大号被冻的就有三四个 可能还不止
+这可能就是互联网保存数据的不靠谱之处吧 甚至能被发现被冻的只有现在活跃的账号
+那种很久不活动的画师的账号 也许直到某一天想起来要重温却找不到才会发现他账号已经被冻结了
+
