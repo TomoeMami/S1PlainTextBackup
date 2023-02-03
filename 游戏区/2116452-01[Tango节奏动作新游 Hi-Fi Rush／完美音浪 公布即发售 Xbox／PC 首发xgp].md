@@ -3683,3 +3683,11 @@ IGN总部：9
 
 normal已通关，我也给9/10，这最终boss战差一口气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  loneblade  
+##### 357#       发表于 2023-2-3 21:22
+
+打了会分 发现这游戏复读惩罚挺重的 获得分数直接x0.7……
+
