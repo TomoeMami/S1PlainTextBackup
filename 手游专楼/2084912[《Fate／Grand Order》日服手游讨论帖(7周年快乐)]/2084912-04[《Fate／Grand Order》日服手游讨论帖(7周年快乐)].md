@@ -3894,3 +3894,17 @@ B6呗这个可是直接开了4个小号，街机那边才解决一个呢</blockq
 
 话说大蜘蛛我打到后面疯狂掉真 手机甚至还能感觉到有点烫 神优化 dw我的废物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 4883#       发表于 2023-2-3 11:19
+
+说起来大蜘蛛战确实是被云玩家吹夸张了
+我当时是直接3宝石克制单体骑脸的，剩血皮就随便拉点低星光炮收掉
+
+就这样我也没用过5星，唯一一次是为了爽就乔老师+西飞爽了一波伤害
+
+不知怎么就被黑成逼氪/不照顾玩家了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

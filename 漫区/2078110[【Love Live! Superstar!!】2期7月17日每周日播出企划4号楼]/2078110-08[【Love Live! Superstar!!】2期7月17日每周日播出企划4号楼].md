@@ -14627,3 +14627,50 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 本质还是对官方操作的不满，以及对可堇cp的敏感，再加上“别人的卡怎么就没有多人”的放大。
 （这么想或许没有道理，但偏偏在这时候这么做真的不好会有被“特殊待遇”的想法吗？如果官方没这个意思，那我也希望这是真的，自作多情被打脸倒也不算什么了）
 
+
+*****
+
+####  稀勢のささ  
+##### 11821#       发表于 2023-2-3 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">他官方要是平时不喜欢见缝插针到处塞我就信他不是故意的，活生生给我逼成anti了
+
+不过这都无所谓啦，还不如盼着早点把估计还是一坨的三期端出来然后尽快开分组吧，现在的live只能跳着看
+
+*****
+
+####  Kfly  
+##### 11822#       发表于 2023-2-3 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59592136&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-3 11:04</a>
+
+上头派下来的任务能猜测的会跟一二季差不多，新角色个人回然后固定集数卖歌，其它放任乱来。
+
+现在的花田 ...</blockquote>
+没有外敌想斗起来也就只能内战了，但以花老师现在的精神状态，不继续把角色崩下去我是不信的
+
+花老师快想起你的初心，去试着做最开始想做的喝茶日常吧，或许还比较好处理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 11823#       发表于 2023-2-3 11:20
+
+<img src="https://img.saraba1st.com/forum/202302/03/111932gf3u9xlazbxuck3b.jpg" referrerpolicy="no-referrer">
+
+<strong>b30c1f6fa15dbd4.jpg</strong> (66.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-3 11:19 上传
+
+<img src="https://img.saraba1st.com/forum/202302/03/111932s2gb0bgr2u2s8o2b.jpg" referrerpolicy="no-referrer">
+
+<strong>-12390b8463a93805.jpg</strong> (89.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-3 11:19 上传
+
+完全一样的时间，开始相撞了，好忙
+
