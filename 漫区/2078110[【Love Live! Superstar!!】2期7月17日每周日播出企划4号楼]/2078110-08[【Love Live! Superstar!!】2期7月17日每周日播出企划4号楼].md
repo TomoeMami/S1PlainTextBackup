@@ -14733,3 +14733,21 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 怎么可能毕业，大把资源投入然后毕业把粉丝割走，运营搁这做慈善呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 11830#       发表于 2023-2-3 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这运营最厉害的地方不就是他能让部分粉丝觉得他真可能做的出来吗
+
+*****
+
+####  Kfly  
+##### 11831#       发表于 2023-2-3 12:20
+
+都到现在了，“这样的运营……兴许做得出来”，没有这样的想法反而很奇怪吧。
+
+虽然感觉你们说的这个应该不至于<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+ 毕竟是喜欢选弹幕最多的玩法的那个运营啊 
+
