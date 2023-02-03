@@ -4284,3 +4284,56 @@ syl 想起了以前看过的大芬奇黑幕论<img src="https://static.saraba1st
 我看攻略里用的也是杀生院，然而日服没有，那关又不能借 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便带个光炮小丑就行了  主要还是只上3人
 
+
+*****
+
+####  exiaexa  
+##### 4916#       发表于 2023-2-3 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596595&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 16:30</a>
+
+随便带个光炮小丑就行了  主要还是只上3人</blockquote>
+我塞满外星人被打吐了
+
+然后干脆躺平，闭着眼睛砸灵脉石宝具对轰
+
+本章最难无误
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4917#       发表于 2023-2-3 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596645&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 16:34</a>
+
+我塞满外星人被打吐了
+
+然后干脆躺平，闭着眼睛砸灵脉石宝具对轰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道剧情里有没有提示看我方人数  我不记得了（
+
+*****
+
+####  exiaexa  
+##### 4918#       发表于 2023-2-3 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 16:35</a>
+
+不知道剧情里有没有提示看我方人数  我不记得了（</blockquote>
+大半夜的谁管剧情提示嘛
+
+赶紧砸石头过了得了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4919#       发表于 2023-2-3 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59596703&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-3 16:37</a>
+
+大半夜的谁管剧情提示嘛
+
+赶紧砸石头过了得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大 反正石头不用也要过期
+
