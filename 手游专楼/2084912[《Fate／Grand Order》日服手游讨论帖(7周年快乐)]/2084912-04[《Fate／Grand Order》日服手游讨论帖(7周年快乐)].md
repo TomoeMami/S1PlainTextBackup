@@ -4143,3 +4143,25 @@ NMD我要挂出去相互伤害</blockquote>
 顺便饭量真的大，2.7的大量基础素材就算了，**开20NP怎么也要吃仪式剑
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 4905#       发表于 2023-2-3 14:02
+
+原来四星要开被动至少要3宝，YLS尼美舒乐<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 4906#       发表于 2023-2-3 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59593161&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-3 12:09</a>
+
+1  2。7了还能叫新玩家吗？
+
+2 有没有可能真正的新玩家连送个人换职业都送不起 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不知道那群转生玩家都是买的2.6过本号吗，集中几个强度金卡总BOX超浅的那种，跟一直玩下来的无氪都没办法比。之后265的战斗又没什么难度的
+
+有好几个本土直播主打了新号超低配流程的，也不是没办法打
+
