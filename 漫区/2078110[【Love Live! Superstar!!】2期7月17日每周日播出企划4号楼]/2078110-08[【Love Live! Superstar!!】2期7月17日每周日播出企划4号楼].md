@@ -14907,3 +14907,40 @@ cast方面真好奇能天降一个什么样的人，面对几个能力拉满的�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  优妮可  
+##### 11845#       发表于 2023-2-3 22:52
+
+鱼后天会有什么重大发表？
+
+*****
+
+####  优妮可  
+##### 11846#       发表于 2023-2-3 22:54
+
+跟桥儿搞组合？
+
+*****
+
+####  ruffian  
+##### 11847#       发表于 2023-2-3 22:56
+
+再补一刀，时不时被截图到这楼里的那个日本可香人又被搞发癫了，因为四个二期生的新语音又踏马在卖可堇<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+虽然我很乐意日本人替我发癫，但是想到国内可推在简中(真不想用这个词啊)发癫会被捂嘴挂厕所群嘲就乐不出来了(所以只能在外网出出气这样子✘<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 11848#       发表于 2023-2-3 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59603588&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-3 22:40</a>
+
+真的很想多说两句可惜语言水平不允许……为什么其他人不用这套理论呢？
+
+昨天就说了，可堇人购买力 ...</blockquote>
+无所谓，度娘会出手，我上了，简单反复翻译后我看着还挺通顺的（大概）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
