@@ -128,3 +128,15 @@ B组活了，能跳一个in the light of darkness吗
 
 长发红毛跳舞是吧
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3015#       发表于 2023-2-3 19:50
+
+嘴好像还没修
+
+小时候看这集吓哭了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
