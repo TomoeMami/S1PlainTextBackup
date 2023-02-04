@@ -5138,3 +5138,23 @@ ort最终战有帝王花的话也可以单挑非常安逸
 
 烟雾镜最后那场基本送的，我用的大公布丁C呆，1宝大公20级黑杯一发宝具一管血给我都看傻了……
 
+
+*****
+
+####  黑上シグマ  
+##### 5000#       发表于 2023-2-5 01:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总算是打完了，然后看到你游接下来还要战伯爵，战麻婆，回冬木，打异星，再苟两年完全不是问题
+
+*****
+
+####  eilot  
+##### 5001#       发表于 2023-2-5 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59615581&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-4 23:22</a>
+
+ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
+今章突然加了黑艾雷和帝王花的新灵衣
+
+会否在情人节前开抽...
+
