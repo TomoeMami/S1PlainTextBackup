@@ -5082,3 +5082,24 @@ ort最终战有帝王花的话也可以单挑非常安逸
 哦还有你只要用3个或者3个以上的技能，就会给你上一回合的技能强化成功率下降的Debuff ...</blockquote>
 用了3个技能他还会给自己拍一个普攻带即死的BUFF<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 4995#       发表于 2023-2-5 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59615879&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-4 23:40</a>
+
+用了3个技能他还会给自己拍一个普攻带即死的BUFF</blockquote>
+是的，我就是被这坑了1颗灵脉石，当时冷静下来估计能不用灵脉石过的，但是当时已经被成功率下降搞得心烦，选择清空脑袋用灵脉石莽过去了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4996#       发表于 2023-2-5 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614888&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-4 22:39</a>
+
+原来被月癌克，我还拿阿国跟他折腾了几十个回合</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不用无敌的灵卖石
+

@@ -12929,3 +12929,22 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 4191#       发表于 2023-2-5 00:04
+
+<blockquote>寂しい気持ちなので
+
+気まぐれリプ返のみこちやる！！
+
+₍₍ ꒰ঌ ₍ ^.  ̫ .^ ₎ ໒꒱ ₎₎
+
+🌸#おいでよみこち🌸
+
+で呟いてくれたらエゴサするにぇ！
+
+すたああああぁぁとっ！</blockquote>
+嗯?我也去回一个
+
