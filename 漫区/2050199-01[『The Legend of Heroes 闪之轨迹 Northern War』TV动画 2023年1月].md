@@ -5087,3 +5087,18 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">桃花剑你在演么，黑兔你当boss的时候没那么菜啊，怎么打个魔兽磨磨唧唧的
 
+
+*****
+
+####  灰谷真实  
+##### 587#       发表于 2023-2-4 09:31
+
+ 本帖最后由 灰谷真实 于 2023-2-4 09:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59605819&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-2-4 02:54</a>
+
+桃花剑你在演么，黑兔你当boss的时候没那么菜啊，怎么打个魔兽磨磨唧唧的 ...</blockquote>
+
+黎同学铁演了，连招里疾风都不放。我看闪2通关配置可以秒那蝎子十遍不止。
+
+至于黑兔那没啥好说的，本来就菜，忘了闪2间章被黎同学连人带光剑一剑打墙上？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
