@@ -5061,3 +5061,13 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 没有象神，不过还是准备打之前人型ORT中，考虑如何打她7条血，大不了全前后队都各上机械龙娘，用灵脉石解 ...</blockquote>
 ort最终战有帝王花的话也可以单挑非常安逸
 
+
+*****
+
+####  khxooo  
+##### 4993#       发表于 2023-2-4 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614888&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-4 22:39</a>
+原来被月癌克，我还拿阿国跟他折腾了几十个回合</blockquote>
+哦还有你只要用3个或者3个以上的技能，就会给你上一回合的技能强化成功率下降的Debuff
+

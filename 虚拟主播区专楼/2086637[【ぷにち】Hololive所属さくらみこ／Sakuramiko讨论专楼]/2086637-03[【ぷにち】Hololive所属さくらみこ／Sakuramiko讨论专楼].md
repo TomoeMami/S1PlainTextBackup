@@ -12919,3 +12919,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 专辑收录也不会这么晚
 
+
+*****
+
+####  rs5621  
+##### 4190#       发表于 2023-2-4 23:27
+
+这收录强度有点高，这个点才下班
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
