@@ -4694,3 +4694,26 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 这次作为5星落地骗氪我就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 4958#       发表于 2023-2-4 17:03
+
+自信点，265相关剧情都烂完了，这位女士真的能骗氪吗？如果是大拐当我没说23333
+
+*****
+
+####  exiaexa  
+##### 4959#       发表于 2023-2-4 17:11
+
+无所谓，阿出会给你表演正义切割的
+
+又不是第一次了，君11都能切，琼安当然也能
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种支线女角色能不能骗氪剧情无所谓的，画的涩就行了
+
+只是琼安这性格拿来舔玩家也怪怪的，要担心的是作为教皇会不会越往上突破穿得越多
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
