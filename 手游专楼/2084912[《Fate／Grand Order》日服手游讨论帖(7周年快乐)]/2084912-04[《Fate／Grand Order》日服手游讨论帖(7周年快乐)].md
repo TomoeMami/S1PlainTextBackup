@@ -4881,3 +4881,23 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 萌新上次出货已经是去年了  非的一猫</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这几年抽卡只有出和不出没怎么歪过的我 今年已经歪了俩了 感觉很难受
 
+
+*****
+
+####  AbigailWilliams  
+##### 4976#       发表于 2023-2-4 19:15
+
+卡面画好点，fgo的底子女角色随随便便登顶的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情无所谓的
+
+*****
+
+####  DARKGRAY  
+##### 4977#       发表于 2023-2-4 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59611114&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-4 17:42</a>
+
+村姑和玛尔达的幕间讲了些啥...真没印象了
+
+要我说的话当初在265里就别设计成幻灵....完全没必要 ...</blockquote>
+东出想要那个惨的背景啊，真不存在且没啥人信她存在不够格当架空英灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

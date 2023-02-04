@@ -12833,3 +12833,57 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 如果明晚还不能直播 那很可能明天早上会突击直播
 
+
+*****
+
+####  holoan  
+##### 4182#         楼主| 发表于 2023-2-4 19:13
+
+<img src="https://img.saraba1st.com/forum/202302/04/191309wekspzezu79rzru7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-4 19:13 上传
+
+牙白牙白
+
+今年怎么了这是！？
+
+*****
+
+####  rs5621  
+##### 4183#       发表于 2023-2-4 19:14
+
+ 本帖最后由 rs5621 于 2023-2-4 19:17 编辑 
+
+草，看错了，还以为是田所那个节目
+
+悠木碧好啊，这下双厨狂喜了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Map-2  
+##### 4184#       发表于 2023-2-4 19:18
+
+看来下一个TFT是撒库拉米口了
+
+*****
+
+####  holoan  
+##### 4185#         楼主| 发表于 2023-2-4 19:19
+
+看得出来不是偶然 miko跟这群声优私下关系这么好的
+
+这下以后有得看了
+
+*****
+
+####  holoan  
+##### 4186#         楼主| 发表于 2023-2-4 19:21
+
+别TFT了，M1还行
+
