@@ -3800,3 +3800,26 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 这里打得血压都上来了。艹
 
+
+*****
+
+####  760194962  
+##### 367#       发表于 2023-2-4 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59605452&amp;ptid=2116452" target="_blank">CswStar 发表于 2023-2-4 01:26</a>
+极难通了，感觉还是还是非常不错的，特别是作为一个新的ACT IP来说的话。把音游和ACT结合起来这个创意不错 ...</blockquote>
+呜呜 就爱就爱玩音游 不要太靠act了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风浦可符香(P.N)  
+##### 368#       发表于 2023-2-4 23:40
+
+现在甚至希望这玩意后续能出点小型DLC关卡，但重点是捆绑关卡指定曲包，说夸张点，要是能整几首AC/DC，Queen啥的
+
+比方说，你XX·XXX五连正好是唱到<strong>D</strong>irty <strong>D</strong>eeds <strong>D</strong>one <strong>D</strong>irt <strong>C</strong>heap，想想都感觉✝升天✝了
+
+想到这我觉得明天可以关了音乐拿手机放几首试试XD
+
