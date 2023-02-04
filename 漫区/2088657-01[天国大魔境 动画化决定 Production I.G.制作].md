@@ -117,3 +117,13 @@
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Garterbelt  
+##### 102#       发表于 2023-2-4 08:20
+
+说起来开头的时候还有时雄和真流是否同一人物以及时雄的性别诡述，看声优选角是直接没准备藏了吗？
+
+另外天国的那张宣传图也太darling了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
