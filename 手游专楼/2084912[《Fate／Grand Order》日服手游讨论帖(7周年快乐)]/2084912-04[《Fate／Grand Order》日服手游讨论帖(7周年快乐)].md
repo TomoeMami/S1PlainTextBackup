@@ -4528,3 +4528,22 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 但手机真是有点热，用的是XR
 
+
+*****
+
+####  quanlix  
+##### 4938#       发表于 2023-2-4 14:14
+
+勇者王救了尼托之后被城市精补刀拿了人头了，后头见着城市精的时候说她拿着勇者王残骸一类的东西
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  khxooo  
+##### 4939#       发表于 2023-2-4 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608943&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-4 13:57</a>
+勇者王打完后直接查无此人了。。本来我也以为后面会出来</blockquote>
+他为了救尼托直接便当了吧
+
