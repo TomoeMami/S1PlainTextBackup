@@ -15095,3 +15095,17 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 至于一期什么时候知道二期，这种问题甚至算不上问题，可以问问自己，这是有变动余地的事项吗。
 
+
+*****
+
+####  ads147147  
+##### 11861#       发表于 2023-2-4 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59604934&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-4 00:32</a>
+题都开了，就哔哔完吧，过完这把输出的瘾以后不提了
+首先这个逻辑并不仅仅指动画
+其次需要指出的 ...</blockquote>
+这种解释其实也没有让人多释怀到哪里去。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

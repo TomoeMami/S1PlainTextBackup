@@ -2521,3 +2521,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 几个招募的结局还是两个三个凑一起的，一起去干啥干啥了。比如商人和教会女合伙，达利亚杀手和预言盲女和XX组了个女性组织、维图林和帕罗弗写了本战争编年史没反响等等
 
+
+*****
+
+####  maninhole  
+##### 213#       发表于 2023-2-4 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59606911&amp;ptid=2067291" target="_blank">Hidewhite 发表于 2023-2-4 10:14</a>
+罗宾的弓没拿到，真的坑啊。
+
+我看B站做结局的都只有几张图。我打完谢拉结局还附带了字，而且把不同队友的 ...</blockquote>
+独眼龙韩信啥结局?
+
