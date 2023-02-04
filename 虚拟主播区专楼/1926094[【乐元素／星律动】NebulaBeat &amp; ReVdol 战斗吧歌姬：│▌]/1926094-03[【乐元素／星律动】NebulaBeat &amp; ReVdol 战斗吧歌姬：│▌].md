@@ -181,3 +181,13 @@ B组活了，能跳一个in the light of darkness吗
 
 阿和正在直播细数过去应援团办的各种活动，哎，都四五年过去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3020#       发表于 2023-2-4 18:35
+
+恭喜桃子万粉
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
