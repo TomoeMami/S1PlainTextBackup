@@ -5010,3 +5010,33 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 这蝙蝠神BOSS战做的什么杰宝东西，限制我方每回合使用技能还反复给自己挂宝具耐性，是有什么机制我没发现吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 4988#       发表于 2023-2-4 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614784&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-4 22:31</a>
+
+这蝙蝠神BOSS战做的什么杰宝东西，限制我方每回合使用技能还反复给自己挂宝具耐性，是有什么机制我没发现吗 ...</blockquote>
+就是很烦，技能和宝具计数的机制抵消不了，用吉娜可单挑最省事，打上解弱体的纹章，效率不高但是很稳
+
+*****
+
+####  khxooo  
+##### 4989#       发表于 2023-2-4 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614784&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-4 22:31</a>
+这蝙蝠神BOSS战做的什么杰宝东西，限制我方每回合使用技能还反复给自己挂宝具耐性，是有什么机制我没发现吗 ...</blockquote>
+被月癌完美克制，建议上水BB暴击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 4990#       发表于 2023-2-4 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614863&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-4 22:37</a>
+
+被月癌完美克制，建议上水BB暴击</blockquote>
+原来被月癌克，我还拿阿国跟他折腾了几十个回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
