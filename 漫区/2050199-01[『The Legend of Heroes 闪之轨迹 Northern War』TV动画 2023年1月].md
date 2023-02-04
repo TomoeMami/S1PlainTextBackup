@@ -5239,3 +5239,11 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两眼50米拉太搞笑了，跟举着psv端详似的，反正都随身带着钓竿了，我就当他还随身带着psv吧
 
+
+*****
+
+####  kongxian  
+##### 602#       发表于 2023-2-4 21:48
+
+黎老师这时段有对诺州做什么吗，女主反应这么激烈干啥，对英雄两字这么过敏?
+
