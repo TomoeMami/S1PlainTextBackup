@@ -2581,3 +2581,16 @@ tokimeki runners<img src="https://p.sda1.dev/9/40150e3bc31d1331172108d723451a81/
 
 <img src="https://p.sda1.dev/9/0c773939a149e33aaacc8a271baf2ea4/CMP_20230204191655953.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 6989#       发表于 2023-2-4 22:45
+
+看到阿b一个评论让伤感变笑出声：
+这三个变圆了啊，一个拉面巡回，一个年初摆烂，一个缺乏运动。  
+
+灯灯虽然不能剧烈运动但是也不能不运动吧，不要变成凹酱(贾玲)哦  
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
