@@ -5220,3 +5220,14 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 这么看女主被攻略不太可能了？黎2（1209年2月）支线里提过一年半前诺州才重新独立，比克州还晚小半年（创轨结局1207年3月），估计按女主这样子结局是留在诺州搞独立了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 600#       发表于 2023-2-4 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608674&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-2-4 13:31</a>
+
+什么撞大运"撞"上黎老师,就是黎老师主动接触这4人而这几人不自知吧</blockquote>
+主要是对这几个人来讲，这不就是公款旅行中等着撞大运吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
