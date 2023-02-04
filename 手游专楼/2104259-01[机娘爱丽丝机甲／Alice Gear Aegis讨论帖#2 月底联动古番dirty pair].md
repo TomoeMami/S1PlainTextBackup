@@ -1341,3 +1341,11 @@ FA一条/小鸟游
 
 不愧是阿金，功力全用在普通玩家一点看不到的地方<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拍不到脑袋  
+##### 250#       发表于 2023-2-4 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内玩家应该都是比较新的手机吧，不知道海对面什么样
+
