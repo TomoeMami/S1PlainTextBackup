@@ -15195,3 +15195,13 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 这点3个人够吃吗？不如再煮点螺蛳粉跟队友一起吃。
 
+
+*****
+
+####  player3960  
+##### 11870#       发表于 2023-2-4 22:15
+
+芝士火锅热量爆炸，唯一的肉只有香肠，感觉已经算是很克制了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
