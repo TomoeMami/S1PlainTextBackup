@@ -4717,3 +4717,29 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 只是琼安这性格拿来舔玩家也怪怪的，要担心的是作为教皇会不会越往上突破穿得越多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 4960#       发表于 2023-2-4 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59610488&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-4 16:42</a>
+
+这女教皇我没记错的话当初是说根本就连英灵都不是只是个幻灵.....设定里幻灵本身就比英灵低级
+
+结果在6.5里 ...</blockquote>
+反正按照贞德和玛尔达的幕间，鸽子大概也就是个老父亲角色
+
+指不定是看着被黑出屎了心疼，就手抖多给了点buff，想开点啦
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 4961#       发表于 2023-2-4 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59610689&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-02-04 17:03:10</a>
+自信点，265相关剧情都烂完了，这位女士真的能骗氪吗？如果是大拐当我没说23333 ...</blockquote>265她戏份挺多的，争议点主要就是和君十一凑cp，但是在我看来更像是君十一硬凑上去，这位女士的塑造我倒觉得没什么问题，要说崩那也是君十一写崩了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

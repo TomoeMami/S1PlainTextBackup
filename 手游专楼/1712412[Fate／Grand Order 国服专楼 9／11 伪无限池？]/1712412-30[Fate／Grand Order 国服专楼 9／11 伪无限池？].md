@@ -24,3 +24,13 @@
 
 日服街机联动可还行，是时候问出那个问题了，国服到时候有版权吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 44142#       发表于 2023-2-4 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59610544&amp;ptid=1712412" target="_blank">kuarwbwe 发表于 2023-2-4 16:49</a>
+日服街机联动可还行，是时候问出那个问题了，国服到时候有版权吗？</blockquote>
+肯定没吧
+

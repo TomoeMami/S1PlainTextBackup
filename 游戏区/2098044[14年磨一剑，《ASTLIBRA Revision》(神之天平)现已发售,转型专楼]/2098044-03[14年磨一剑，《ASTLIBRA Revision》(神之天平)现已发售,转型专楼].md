@@ -7003,3 +7003,14 @@ b站专栏搜神之天平</blockquote>
 
 尽量早一点去打通新章斗技场，拿到K徽章，这个东西可以极大提升穿戴装备的装备盘掉率。
 
+
+*****
+
+####  希鲁夫  
+##### 3588#       发表于 2023-2-4 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59607463&amp;ptid=2098044" target="_blank">christiny 发表于 2023-2-4 11:22</a>
+
+1，最高多少不知道，一般强化到20-30就很顶了，再加上装备盘（我估计是没有上限）。武器选择主要还是考虑 ...</blockquote>
+明白了 感谢！
+
