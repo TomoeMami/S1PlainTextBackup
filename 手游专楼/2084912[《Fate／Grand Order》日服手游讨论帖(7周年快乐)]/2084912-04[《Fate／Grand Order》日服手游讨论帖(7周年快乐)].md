@@ -4476,3 +4476,21 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 得，打完了觉着烟雾镜这角色还挺有意思，有点想抽
 
+
+*****
+
+####  zooandtoo  
+##### 4933#       发表于 2023-2-4 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59597076&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-3 17:03</a>
+
+芙芙全程神隐也没说干嘛去了</blockquote>
+狐狸有说过芙不想跟ORT扯上关系就缩了
+
+*****
+
+####  vacuumsword  
+##### 4934#       发表于 2023-2-4 13:11
+
+刚打完。体感比之前几章的高难战还简单点。蝙蝠神可以拿象头神单挑，烟雾镜用绘理世随便冲死，人型ort莉莉丝单挑。倒是戴比特初战上了巴杰特，打了才想起反击不能破条耗了很久。
+
