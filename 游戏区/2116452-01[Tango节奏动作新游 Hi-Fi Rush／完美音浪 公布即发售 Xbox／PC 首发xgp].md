@@ -3831,3 +3831,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 话说我之前还以为这游戏曲子全是原创，但第十关唐突一首The Prodigy的Invaders Must Die，非常带感，甚至觉得多加一首Omen也不是不可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CswStar  
+##### 370#       发表于 2023-2-4 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59615875&amp;ptid=2116452" target="_blank">风浦可符香(P.N) 发表于 2023-2-4 23:40</a>
+
+现在甚至希望这玩意后续能出点小型DLC关卡，但重点是捆绑关卡指定曲包，说夸张点，要是能整几首AC/DC，Quee ...</blockquote>
+你这个点子好啊，我也想听着Queen的歌打游戏，演唱会那关我就一直在想主角怎么不能把音箱抢过来放自己的bgm啊
+
