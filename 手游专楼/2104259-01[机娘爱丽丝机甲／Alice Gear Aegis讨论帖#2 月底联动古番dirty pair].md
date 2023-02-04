@@ -1349,3 +1349,11 @@ FA一条/小鸟游
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内玩家应该都是比较新的手机吧，不知道海对面什么样
 
+
+*****
+
+####  madcow  
+##### 251#       发表于 2023-2-4 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">18年秋想要上的BOSS，18年夏天开始做，到22年夏天才放出来
+
