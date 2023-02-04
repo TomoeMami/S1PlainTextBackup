@@ -5158,3 +5158,16 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 会否在情人节前开抽...
 
+
+*****
+
+####  khxooo  
+##### 5002#       发表于 2023-2-5 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59617019&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-5 01:38</a>
+
+今章突然加了黑艾雷和帝王花的新灵衣
+
+会否在情人节前开抽...</blockquote>
+花花新年就复刻过了，应该不会这么短就再次复刻，艾蕾估计有机会。
+

@@ -5333,3 +5333,59 @@ I am your father
 
 除了下降头，还能怎么整
 
+
+*****
+
+####  纯夏  
+##### 607#       发表于 2023-2-5 02:15
+
+我只想知道黎恩从哪里拿出来这么长的钓鱼竿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+难不成这钓鱼竿是伸缩式的
+
+*****
+
+####  月夜凝雪  
+##### 608#       发表于 2023-2-5 02:48
+
+ 本帖最后由 月夜凝雪 于 2023-2-5 02:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59617202&amp;ptid=2050199" target="_blank">纯夏 发表于 2023-2-5 02:15</a>
+我只想知道黎恩从哪里拿出来这么长的钓鱼竿
+
+难不成这钓鱼竿是伸缩式的 ...</blockquote>
+伸缩鱼竿又不是什么稀罕的东西，拉薇身上也看不出来上衣哪里能藏起她突然抽出来的刀，不要太在意ACG角色的东西都藏哪里了，
+反而是黎恩特意画了个腰间带刀，叫出萝卜却是来了个虚空抽刀。
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 609#       发表于 2023-2-5 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526218&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-1-29 10:42</a>
+我觉得起码插满导力器，有点小魔法和中魔法才正常吧</blockquote>
+要看行事风格，你看空FC阿加特的导力器那菊花链完全没开孔，那时候已经有名号重剑了
+他能打出名堂不就靠卖血嘛，导力器都是寂寞
+那时候老金的导力器也好不到哪里去，从FC开始跟瘦狼打都靠龙神功肉搏，就没见过这两菜刀搓过魔法，哪怕到了黎轨，老金瘦狼的演出一样没用过魔法。老金的塞法导力器只用来打电话和给VAN传任务以外根本没其他用途！
+
+*****
+
+####  月夜凝雪  
+##### 610#       发表于 2023-2-5 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59617345&amp;ptid=2050199" target="_blank">蒸汽投石BuBu車 发表于 2023-2-5 02:56</a>
+要看行事风格，你看空FC阿加特的导力器那菊花链完全没开孔，那时候已经有名号重剑了
+他能打出名堂不就靠 ...</blockquote>
+这东西游戏里插满的为了游戏性，故事里不可能都插满的，就闪轨的演出来看导力器还会和使用者共鸣，不是单纯的纯机械使用魔法，应该还存在使用适应性问题不是谁拿到手都可以用全魔法的，导力器可能是降低了魔法的门槛但还没到白菜价谁都随便按个按钮就能核爆的成都
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 611#       发表于 2023-2-5 04:06
+
+路被堵了，酷酱和嘎酱这种刚S的不是能直接拆路障吗
+大意了，其实根本不用拆，因为酷酱会飞！帝国人太狡猾了都在演
+

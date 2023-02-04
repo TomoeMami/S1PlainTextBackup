@@ -3863,3 +3863,11 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 这游戏最大的缺点是女主（小薄荷）甚至没有猫猫可爱。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sug2shake  
+##### 373#       发表于 2023-2-5 04:36
+
+一周目普通难度通关真不戳啊，前面关卡太平了一点，都像第10关一样的战点密度和节奏该多好
+
