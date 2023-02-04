@@ -5212,3 +5212,11 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  whitefang  
+##### 599#       发表于 2023-2-4 16:06
+
+这么看女主被攻略不太可能了？黎2（1209年2月）支线里提过一年半前诺州才重新独立，比克州还晚小半年（创轨结局1207年3月），估计按女主这样子结局是留在诺州搞独立了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
