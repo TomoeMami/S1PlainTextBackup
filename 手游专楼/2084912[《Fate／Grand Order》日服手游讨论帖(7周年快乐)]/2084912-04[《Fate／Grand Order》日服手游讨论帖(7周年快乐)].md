@@ -4563,3 +4563,50 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 怎么还有蝙蝠神配音的cm
 
+
+*****
+
+####  黑上シグマ  
+##### 4942#       发表于 2023-2-4 15:46
+
+情人节是女教皇实装
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4943#       发表于 2023-2-4 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么是这个
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4944#       发表于 2023-2-4 15:49
+
+还要长两周草
+
+*****
+
+####  不垃圾屌丝  
+##### 4945#       发表于 2023-2-4 15:49
+
+过完情人节再来活动是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 4946#       发表于 2023-2-4 15:50
+
+新年的麻婆，情人节的女教皇，都是之前剧情就铺垫过的角色，看来FGO开始逐渐收回卫星，减少突然落地新人物的情况，应该是在为完结收尾了...
+
+（也可能是产能不足整不出来活...）
+
+*****
+
+####  黑上シグマ  
+##### 4947#       发表于 2023-2-4 15:50
+
+神TM联动街机哈哈哈哈哈哈哈哈哈哈，是不是实装兽尼禄？
+
