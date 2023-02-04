@@ -4751,3 +4751,11 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说了那么多然后又登顶了怎么办
 
+
+*****
+
+####  霧谷藤乃  
+##### 4963#       发表于 2023-2-4 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">登顶有什么奇怪的，FGO家大业大，经得起败，而且都多少年的老游戏了，核心fan早结晶了
+
