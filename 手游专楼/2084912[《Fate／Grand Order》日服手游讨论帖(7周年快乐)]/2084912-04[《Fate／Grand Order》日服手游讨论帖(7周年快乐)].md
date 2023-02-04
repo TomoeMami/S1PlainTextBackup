@@ -4982,3 +4982,13 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 剧情也就那样吧，卡的话等着出库库尔坎和所长后抽个6宝完事，之后接着种苹果
 
+
+*****
+
+####  AbigailWilliams  
+##### 4985#       发表于 2023-2-4 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612498&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-4 19:55</a>
+17年以后，自从2019年第一个新角色未事实登顶的SW2以来，一共有12位新女五星（不包括双人和性别有问题的角 ...</blockquote>
+原来这么拉啊，看来我还活在过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
