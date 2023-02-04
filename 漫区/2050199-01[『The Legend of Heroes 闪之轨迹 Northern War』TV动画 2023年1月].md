@@ -5118,3 +5118,29 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 那三位说要回去也对，再不回去就要被亚尔缇娜报告上去被采取措施可能性了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙之峰  
+##### 590#       发表于 2023-2-4 12:20
+
+本来以为还会给队长一个个人回，没想到直接走主线了。看来队长的信息要到之后北方战役再说了。
+
+黎爷看上去怎么像个阳光大男孩啊，眼睛里是克洛的画面有点gay。比较好的是用几句台词就交代了和黑兔之间的距离感。
+
+贵族少爷的转折有些突兀，画面也是一如既往地穷。
+
+拉薇很可爱，后半段不甘心的样子更可爱了。
+
+*****
+
+####  aptx8285144  
+##### 591#       发表于 2023-2-4 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608006&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-2-4 12:20</a>
+
+本来以为还会给队长一个个人回，没想到直接走主线了。看来队长的信息要到之后北方战役再说了。
+
+黎爷看上去 ...</blockquote>
+贵族少爷更像是一个搞笑角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
