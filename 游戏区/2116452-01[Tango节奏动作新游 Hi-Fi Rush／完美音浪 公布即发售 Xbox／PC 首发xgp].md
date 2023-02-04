@@ -3751,3 +3751,14 @@ normal已通关，我也给9/10，这最终boss战差一口气<img src="https://
 
 剧情太平了，人设也很一般，光靠gameplay不够吸引我啊。
 
+
+*****
+
+####  BallanceHZ  
+##### 363#       发表于 2023-2-4 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59605590&amp;ptid=2116452" target="_blank">Earendil_C 发表于 2023-2-4 01:46</a>
+被武士的诡异节奏整不会了，打了一整关下来就完整格下来一次
+红毛的格挡战格的很爽，就是最后打赢的 ...</blockquote>
+我也觉得红毛战是做的最好的
+
