@@ -191,3 +191,11 @@ B组活了，能跳一个in the light of darkness吗
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  ladiesman802  
+##### 3021#       发表于 2023-2-4 20:17
+
+桃神降临！出道一周200舰
+

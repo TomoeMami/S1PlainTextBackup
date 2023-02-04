@@ -15158,3 +15158,14 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 这是大熊送的那台机器吗？
 
+
+*****
+
+####  player3960  
+##### 11866#       发表于 2023-2-4 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612516&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-02-04 19:56:18</a>
+这是大熊送的那台机器吗？</blockquote>看颜色就是的，果然是拿来经常聚餐用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
