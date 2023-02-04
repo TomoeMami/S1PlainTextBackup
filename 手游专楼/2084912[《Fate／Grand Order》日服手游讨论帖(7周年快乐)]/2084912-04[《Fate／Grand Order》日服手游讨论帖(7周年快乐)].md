@@ -4951,3 +4951,16 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 大姐姐我都在考虑要不要跳过 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然跳过！5宝王姐在那！
 
+
+*****
+
+####  UNISONIA  
+##### 4982#       发表于 2023-2-4 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612055&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-2-4 19:15</a>
+
+卡面画好点，fgo的底子女角色随随便便登顶的吧剧情无所谓的</blockquote>
+17年以后，自从2019年第一个新角色未事实登顶的SW2以来，一共有12位新女五星（不包括双人和性别有问题的角色）未完成苹果谷歌两大平台官方定义的登顶（指保持在单榜第一24小时以上）
+
+好消息是你游这三年OKSG执笔的情人节都登顶了（清少纳言、卡莲、巴姐），也算是上半年一个例常收入点吧
+
