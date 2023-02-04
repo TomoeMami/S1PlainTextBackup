@@ -3842,3 +3842,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 现在甚至希望这玩意后续能出点小型DLC关卡，但重点是捆绑关卡指定曲包，说夸张点，要是能整几首AC/DC，Quee ...</blockquote>
 你这个点子好啊，我也想听着Queen的歌打游戏，演唱会那关我就一直在想主角怎么不能把音箱抢过来放自己的bgm啊
 
+
+*****
+
+####  onezer0618  
+##### 371#       发表于 2023-2-5 00:34
+
+没怎么接触过音游，普通难度十几个小时通关了，好爽好爽<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+打罗克福的bgm也太狂气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

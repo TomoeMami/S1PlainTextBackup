@@ -5103,3 +5103,13 @@ ort最终战有帝王花的话也可以单挑非常安逸
 原来被月癌克，我还拿阿国跟他折腾了几十个回合</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不用无敌的灵卖石
 
+
+*****
+
+####  森兰丸  
+##### 4997#       发表于 2023-2-5 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大蝙蝠战最恶心+1....主要是用技能时还要有个停顿提醒你用了几次技能
+
+我反正不管那个傻逼提示想怎么用技能就怎么用....大不了全灭了再用灵石
+
