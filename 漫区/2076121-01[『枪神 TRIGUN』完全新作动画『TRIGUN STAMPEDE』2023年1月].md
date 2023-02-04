@@ -67,3 +67,14 @@ Wolfwood离便当越来越近了，第6话他师弟登场了耶
 用钉弩手提箱的人妖变成小女孩了有点搞啊，这集最后抄的旧TV原创的牧师杀野兽扎吉那段嘛，说实话本来先看漫 ...</blockquote>
 Legato不属GUNG-HO-GUNS，13个魔人里不含他
 
+
+*****
+
+####  charlespfan  
+##### 278#       发表于 2023-2-5 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59617543&amp;ptid=2076121" target="_blank">百里屠苏 发表于 2023-2-5 05:17</a>
+
+Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
+我知道啊，所以我才把他单列出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
