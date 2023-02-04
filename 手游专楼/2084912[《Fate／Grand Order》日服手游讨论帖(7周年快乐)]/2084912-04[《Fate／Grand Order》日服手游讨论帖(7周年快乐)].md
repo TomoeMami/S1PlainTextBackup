@@ -4992,3 +4992,21 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 17年以后，自从2019年第一个新角色未事实登顶的SW2以来，一共有12位新女五星（不包括双人和性别有问题的角 ...</blockquote>
 原来这么拉啊，看来我还活在过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 4986#       发表于 2023-2-4 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59613317&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-2-4 20:52</a>
+
+原来这么拉啊，看来我还活在过去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">近三年反而男五星排位上还行的，这点上看起来官方调查的女玩家大幅度增加是客观事实（然而日活这几年下挫的特别厉害，弃坑的人还是太多了）
+
+*****
+
+####  里村紅葉  
+##### 4987#       发表于 2023-2-4 22:31
+
+这蝙蝠神BOSS战做的什么杰宝东西，限制我方每回合使用技能还反复给自己挂宝具耐性，是有什么机制我没发现吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
