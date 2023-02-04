@@ -3853,3 +3853,13 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  安瓦尔阿明  
+##### 372#       发表于 2023-2-5 00:59
+
+动作苦手，还是通了，感觉不错。难度还行，只在卡尔三阶段死了多次。由于记不住搓招表，而且节拍打得不太准，分总是不高。
+
+这游戏最大的缺点是女主（小薄荷）甚至没有猫猫可爱。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
