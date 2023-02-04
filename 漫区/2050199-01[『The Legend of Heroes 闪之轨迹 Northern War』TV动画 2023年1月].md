@@ -5144,3 +5144,11 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 黎爷看上去 ...</blockquote>
 贵族少爷更像是一个搞笑角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxas.sora  
+##### 592#       发表于 2023-2-4 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为boss出场给桃花剑秀一波终之太刀晓或者里疾风的，结果装逼场面给了瓦尼玛，画面还很穷
+
