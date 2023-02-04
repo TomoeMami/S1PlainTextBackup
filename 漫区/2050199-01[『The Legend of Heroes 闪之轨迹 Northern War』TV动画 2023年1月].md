@@ -5198,3 +5198,17 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 那么能一秒看出女主真实身份的里爷到了闪3为什么连个绿毛和小混混都看不穿，子承父业一起演是吧，建议跟麻婆一起严查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 598#       发表于 2023-2-4 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59609533&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-2-4 14:51</a>
+这贵族一秒变脸明显是大地之龙开了啊，建议严查麻婆
+
+黑兔就是又菜又爱装啊，现在还在这摆司马脸，等 ...</blockquote>
+那个猎兵娃娃睡重要物品怎么也不像是帝国人吧
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
