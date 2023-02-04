@@ -4972,3 +4972,13 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 想起来玛丽所长2.52刚登场的时候有个兽之冠位的设定吧，怎么后来都没提了，麻婆最后说她本质是个从者<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 4984#       发表于 2023-2-4 20:48
+
+2.7打完，ORT一个一个从者打比一队人打简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情也就那样吧，卡的话等着出库库尔坎和所长后抽个6宝完事，之后接着种苹果
+
