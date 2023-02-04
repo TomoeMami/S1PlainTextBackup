@@ -2546,3 +2546,19 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 没像史实韩信有反叛迹象。人物后续基本都属于大团圆后日谈 。
 
+
+*****
+
+####  maninhole  
+##### 215#       发表于 2023-2-4 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608617&amp;ptid=2067291" target="_blank">Hidewhite 发表于 2023-2-4 13:24</a>
+分封了地（地名记不清了），当封地贵族去了。好像还建了个佣兵团，这部分记不清了。
+
+没像史实韩信有反叛 ...</blockquote>
+很多人不满的似乎是韩信不能泡没有浪漫结局<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这个韩信的个性反了还真不奇怪
+
+不同的老婆结局文字也不同应该?正宫萧何泡了是啥结局
+
