@@ -2558,3 +2558,18 @@ Just Believe（全员版）
 
 <img src="https://img.saraba1st.com/forum/202302/04/185812vqqqzg9ysg7bgp96.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 6986#       发表于 2023-2-4 19:04
+
+这场词唱错有点多，是不是耳返有问题
+
+*****
+
+####  仟音一心  
+##### 6987#       发表于 2023-2-4 19:09
+
+tokimeki runners<img src="https://p.sda1.dev/9/40150e3bc31d1331172108d723451a81/CMP_20230204190911684.jpg" referrerpolicy="no-referrer">
+
