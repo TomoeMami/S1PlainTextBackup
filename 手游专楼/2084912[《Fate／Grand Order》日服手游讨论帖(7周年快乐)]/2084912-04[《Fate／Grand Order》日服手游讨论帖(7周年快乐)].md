@@ -4759,3 +4759,27 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">登顶有什么奇怪的，FGO家大业大，经得起败，而且都多少年的老游戏了，核心fan早结晶了
 
+
+*****
+
+####  森兰丸  
+##### 4964#       发表于 2023-2-4 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59610802&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-4 17:14</a>
+
+反正按照贞德和玛尔达的幕间，鸽子大概也就是个老父亲角色
+
+指不定是看着被黑出屎了心疼，就手抖多给了点b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村姑和玛尔达的幕间讲了些啥...真没印象了
+
+要我说的话当初在265里就别设计成幻灵....完全没必要啊....就设计成一个稍微有点实力的英灵又能怎么样
+
+总不能是当时模型没做好这种理由吧
+
+*****
+
+####  alucardcz  
+##### 4965#       发表于 2023-2-4 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到模型 现在有一个异闻带之王至今还在天上呢  怎么肥四
+
