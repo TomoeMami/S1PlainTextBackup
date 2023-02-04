@@ -5040,3 +5040,24 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 被月癌完美克制，建议上水BB暴击</blockquote>
 原来被月癌克，我还拿阿国跟他折腾了几十个回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 4991#       发表于 2023-2-4 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614845&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-4 22:36</a>
+
+就是很烦，技能和宝具计数的机制抵消不了，用吉娜可单挑最省事，打上解弱体的纹章，效率不高但是很稳 ...</blockquote>
+没有象神，不过还是准备打之前人型ORT中，考虑如何打她7条血，大不了全前后队都各上机械龙娘，用灵脉石解决对方
+
+*****
+
+####  quanlix  
+##### 4992#       发表于 2023-2-4 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59615438&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-4 23:14</a>
+
+没有象神，不过还是准备打之前人型ORT中，考虑如何打她7条血，大不了全前后队都各上机械龙娘，用灵脉石解 ...</blockquote>
+ort最终战有帝王花的话也可以单挑非常安逸
+
