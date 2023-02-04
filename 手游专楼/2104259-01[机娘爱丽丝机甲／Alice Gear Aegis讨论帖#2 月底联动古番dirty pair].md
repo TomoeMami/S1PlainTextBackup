@@ -1389,3 +1389,16 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 <img src="https://p.sda1.dev/9/f6dea2ed295940f12b1a6a929589e98f/CMP_20230204182232615.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/c98ce5ec663181113af8b78835fa705e/CMP_20230204182232724.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 253#         楼主| 发表于 2023-2-4 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59609645&amp;ptid=2104259" target="_blank">madcow 发表于 2023-2-4 15:05</a>
+
+18年秋想要上的BOSS，18年夏天开始做，到22年夏天才放出来</blockquote>
+那天群友直播翻译就吐槽了。阿金应该是底层或者引擎还是啥太菜了，活动复刻要重新调动作（所以不解决这个问题阿嘎就不可能像别的游戏那样搞常态的轮换复刻或大量的常驻复刻），连脸红这种功能加入和改动都要额外全部重新调，效率真的是太太太低了。还有AN桃歌SP插歌，AN风纪的摩托等都问题多多等等，大量的精力被耗费在这种原本非必要的地方。
+
+当然把这种菜鸡事讲成匠心轶事，也是非常日本人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
