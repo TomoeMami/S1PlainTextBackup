@@ -4901,3 +4901,53 @@ syl 想起了以前看过的大芬奇黑幕论 ...</blockquote>
 要我说的话当初在265里就别设计成幻灵....完全没必要 ...</blockquote>
 东出想要那个惨的背景啊，真不存在且没啥人信她存在不够格当架空英灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 4978#       发表于 2023-2-4 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612066&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2023-2-4 19:15</a>
+
+东出想要那个惨的背景啊，真不存在且没啥人信她存在不够格当架空英灵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就别设计这么一出一上场就能让大部分有相关信仰的英灵下跪的戏码啊....不矛盾么
+
+这是没什么人信的什么野鸡教皇所能干出来的事吗
+
+*****
+
+####  alucardcz  
+##### 4979#       发表于 2023-2-4 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612360&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-4 19:44</a>
+
+那就别设计这么一出一上场就能让大部分有相关信仰的英灵下跪的戏码啊....不矛盾么
+
+这是没什么人信 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说 不豹个烟雾镜吗（
+
+*****
+
+####  森兰丸  
+##### 4980#       发表于 2023-2-4 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612401&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-4 19:48</a>
+
+话说 不豹个烟雾镜吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">醒醒....我连奥伯龙都没抽你为什么会认为我会抽这个更下限的烟雾镜
+
+大姐姐我都在考虑要不要跳过
+
+
+*****
+
+####  alucardcz  
+##### 4981#       发表于 2023-2-4 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59612434&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-4 19:50</a>
+
+醒醒....我连奥伯龙都没抽你为什么会认为我会抽这个更下限的烟雾镜
+
+大姐姐我都在考虑要不要跳过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然跳过！5宝王姐在那！
+
