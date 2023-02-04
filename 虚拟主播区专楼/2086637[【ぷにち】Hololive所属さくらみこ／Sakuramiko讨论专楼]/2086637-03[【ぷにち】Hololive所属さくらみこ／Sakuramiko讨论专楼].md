@@ -12887,3 +12887,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 别TFT了，M1还行
 
+
+*****
+
+####  rs5621  
+##### 4187#       发表于 2023-2-4 21:09
+
+<img src="https://p.sda1.dev/9/fe8f7260f140ff9ba549be8d4a9fbd06/CMP_20230204210818765.jpg" referrerpolicy="no-referrer">那你开直播呗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
