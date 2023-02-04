@@ -2300,3 +2300,13 @@ twi：kou7303
 
 <img src="https://p.sda1.dev/9/8ca69df21320bf25e492e46d94d0ac12/CMP_20230204171619766.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 6972#       发表于 2023-2-4 17:29
+
+灯运动量大么。有点担心她的身体情况。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

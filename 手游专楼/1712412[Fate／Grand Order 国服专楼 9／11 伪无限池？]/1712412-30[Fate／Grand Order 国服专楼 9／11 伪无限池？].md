@@ -34,3 +34,14 @@
 日服街机联动可还行，是时候问出那个问题了，国服到时候有版权吗？</blockquote>
 肯定没吧
 
+
+*****
+
+####  kuarwbwe  
+##### 44143#       发表于 2023-2-4 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59610806&amp;ptid=1712412" target="_blank">sandro 发表于 2023-2-4 17:14</a>
+
+肯定没吧</blockquote>
+这个东西其实有没有无所谓，重点还是有没有都会被拉出来嘲讽。
+
