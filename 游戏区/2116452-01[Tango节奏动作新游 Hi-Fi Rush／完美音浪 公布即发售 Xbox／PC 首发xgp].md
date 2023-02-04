@@ -3823,3 +3823,11 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 想到这我觉得明天可以关了音乐拿手机放几首试试XD
 
+
+*****
+
+####  tureleona  
+##### 369#       发表于 2023-2-4 23:49
+
+话说我之前还以为这游戏曲子全是原创，但第十关唐突一首The Prodigy的Invaders Must Die，非常带感，甚至觉得多加一首Omen也不是不可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
