@@ -15125,3 +15125,20 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 哦对了千生日除了liella之歌套装还多出了一套个人商品，这会是今年的套路还是单纯的端水补偿？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11864#       发表于 2023-2-4 18:02
+
+ 本帖最后由 nufawneafg 于 2023-2-4 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608516&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-4 13:14</a>
+这种解释其实也没有让人多释怀到哪里去。
+
+—— 来自 OPPO PGU110, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+目的倒也不是说点漂亮话让人释怀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只是我觉得搞到现在“一往无前”的状态，很多东西需要重新评估
+想想之前企划国内社群的经验，如果一意孤行，那就向失控奔去了
+释怀与否还是在个人
+我一个消费者，服务提供者的结构性矛盾为什么要我释怀，该干啥干啥，就是别过红线<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

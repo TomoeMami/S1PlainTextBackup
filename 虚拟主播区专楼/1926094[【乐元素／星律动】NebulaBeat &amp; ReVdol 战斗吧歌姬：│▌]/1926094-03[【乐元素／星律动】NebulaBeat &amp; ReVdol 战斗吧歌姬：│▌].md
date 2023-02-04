@@ -173,3 +173,11 @@ B组活了，能跳一个in the light of darkness吗
 昨天错过直播了，今天看的切片，感觉nb厂的每次3d直播都是神回似乎</blockquote>
 你入脑了，贴吧还有不少人挑毛病的
 
+
+*****
+
+####  MinFOrder  
+##### 3019#       发表于 2023-2-4 18:06
+
+阿和正在直播细数过去应援团办的各种活动，哎，都四五年过去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -2614,3 +2614,17 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 其他赫克托尔之类就没提到了。
 
+
+*****
+
+####  maninhole  
+##### 217#       发表于 2023-2-4 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59609060&amp;ptid=2067291" target="_blank">Hidewhite 发表于 2023-2-4 14:08</a>
+去网上看了下，韩信有结局CG图，是个互相举杯的动作。
+
+6个关系结局动作里，玛雪儿和谢拉一组，都是拥抱。 ...</blockquote>
+更新的文字哪里能查到?用英文谷歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+国内查了一下发现最后更新的也是年底的视频了
+
