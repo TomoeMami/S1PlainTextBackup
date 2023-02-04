@@ -2533,3 +2533,16 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 我看B站做结局的都只有几张图。我打完谢拉结局还附带了字，而且把不同队友的 ...</blockquote>
 独眼龙韩信啥结局?
 
+
+*****
+
+####  Hidewhite  
+##### 214#       发表于 2023-2-4 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59608520&amp;ptid=2067291" target="_blank">maninhole 发表于 2023-2-4 13:14</a>
+
+独眼龙韩信啥结局?</blockquote>
+分封了地（地名记不清了），当封地贵族去了。好像还建了个佣兵团，这部分记不清了。
+
+没像史实韩信有反叛迹象。人物后续基本都属于大团圆后日谈 。
+
