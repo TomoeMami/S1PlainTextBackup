@@ -3762,3 +3762,17 @@ normal已通关，我也给9/10，这最终boss战差一口气<img src="https://
 红毛的格挡战格的很爽，就是最后打赢的 ...</blockquote>
 我也觉得红毛战是做的最好的
 
+
+*****
+
+####  zqqwe  
+##### 364#       发表于 2023-2-4 22:02
+
+VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽然还是试错挂了几次<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，同时发现攻击动作其实也是有防御判定的，但实战很难用出来。
+
+特殊技最好用是回血和hibiki，不过为了多看几眼画伯还是装回了双人乱舞技<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+3DACT发展到现在，舍弃了ftg的复杂方向指令后，压键、连打、目押算是最常用的增加操作深度手法，这次hifi基本只保留了目押，对手指非常友好，而且敌我互动和音乐节奏结合后减轻了视觉压力，算是走出一条新路了。
+
+最意外的其实是这毫不婆妈的剧情，全部boss轰杀至渣，也没一转家庭伦理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
