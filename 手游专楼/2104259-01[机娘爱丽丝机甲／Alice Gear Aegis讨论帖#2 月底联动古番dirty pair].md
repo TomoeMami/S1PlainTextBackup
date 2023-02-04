@@ -1357,3 +1357,35 @@ FA一条/小鸟游
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">18年秋想要上的BOSS，18年夏天开始做，到22年夏天才放出来
 
+
+*****
+
+####  Rincewind  
+##### 252#       发表于 2023-2-4 18:23
+
+ 本帖最后由 Rincewind 于 2023-2-4 18:25 编辑 
+
+沟口Shard集会6情报一览：
+
+OST6预约纪念任务(以及已经开了几星期的高难复刻)
+<img src="https://p.sda1.dev/9/27bbec0a0bd5c567bb9aa717cc045606/CMP_20230204181844258.jpg" referrerpolicy="no-referrer">
+
+高难再次翻新
+<img src="https://p.sda1.dev/9/a69a5b61bf07ca0fe7ea5ec8ee02ea87/CMP_20230204181844366.jpg" referrerpolicy="no-referrer">
+
+Gift Token交管所新饰品，猫耳耳机
+<img src="https://p.sda1.dev/9/c9c2b2454684a5c4ac543f30729d88a9/CMP_20230204182020263.jpg" referrerpolicy="no-referrer">
+
+法蒂玛蓝票服
+<img src="https://p.sda1.dev/9/0bc929ddcbd1db9ccb03778ad8296c77/CMP_20230204182020339.jpg" referrerpolicy="no-referrer">
+
+Noble Hills三人组游戏内语音图鉴实装
+<img src="https://p.sda1.dev/9/e3b90e1480f26dace074232a911f9e9a/CMP_20230204182020468.jpg" referrerpolicy="no-referrer">
+
+<strong>AN宫南光 2月9日落地</strong>
+<img src="https://p.sda1.dev/9/0c2cfe2bb57e4325ca95d026a47482cd/CMP_20230204182020590.jpg" referrerpolicy="no-referrer">
+
+LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">够巨魔
+<img src="https://p.sda1.dev/9/f6dea2ed295940f12b1a6a929589e98f/CMP_20230204182232615.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/c98ce5ec663181113af8b78835fa705e/CMP_20230204182232724.jpg" referrerpolicy="no-referrer">
+

@@ -2628,3 +2628,18 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 国内查了一下发现最后更新的也是年底的视频了
 
+
+*****
+
+####  Hidewhite  
+##### 218#       发表于 2023-2-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59611385&amp;ptid=2067291" target="_blank">maninhole 发表于 2023-2-4 18:03</a>
+
+谢谢分享
+
+更新的文字哪里能查到?用英文谷歌吗</blockquote>
+steam游戏库里新闻直接有，1月30日更新的1.5版本公告，英文的
+
+内容主要更新了结局和最后一战的剧情buff
+
