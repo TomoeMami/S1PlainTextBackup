@@ -5186,3 +5186,15 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 现在的黎老师还是托尔兹二年生，只有开鬼化才能用里疾风，还没那么厉害。到闪3成年了才变成里疾风走路的男人
 
+
+*****
+
+####  上坂莲华  
+##### 597#       发表于 2023-2-4 14:51
+
+这贵族一秒变脸明显是大地之龙开了啊，建议严查麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑兔就是又菜又爱装啊，现在还在这摆司马脸，等闪3被悠娜当妹妹爆炒两次就乖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那么能一秒看出女主真实身份的里爷到了闪3为什么连个绿毛和小混混都看不穿，子承父业一起演是吧，建议跟麻婆一起严查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
