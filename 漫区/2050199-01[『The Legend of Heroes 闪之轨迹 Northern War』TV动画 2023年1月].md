@@ -5102,3 +5102,11 @@ ed什么时候有完整版？发售日期知道吗，很喜欢
 
 至于黑兔那没啥好说的，本来就菜，忘了闪2间章被黎同学连人带光剑一剑打墙上？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeaha123  
+##### 588#       发表于 2023-2-4 09:39
+
+这蜈蚣身上那么多晶石，怎么感觉有点像伊苏那只
+

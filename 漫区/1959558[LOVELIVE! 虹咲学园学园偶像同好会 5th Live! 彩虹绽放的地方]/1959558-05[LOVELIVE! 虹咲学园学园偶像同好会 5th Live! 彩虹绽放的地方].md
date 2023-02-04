@@ -2237,3 +2237,35 @@ AZUNA live特典四格
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">另外这两话有点鸡汤、
 
+
+*****
+
+####  仟音一心  
+##### 6968#       发表于 2023-2-4 09:34
+
+虹之咲字幕组
+
+翻译：潮风
+
+嵌字：光风
+
+<img src="https://img.saraba1st.com/forum/202302/04/093414h8dp3g0pp6c6ppop.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6EC2F2D1-6ED5-4D4D-A88D-15ADDA2164F3.jpeg</strong> (230.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-4 09:34 上传
+
+twi：kou7303
+
+<img src="https://img.saraba1st.com/forum/202302/04/093431xuc5hoc67dvohfh5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>92B8FBB7-BAAE-4E08-ACAA-201859B7A0AC.jpeg</strong> (328.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-4 09:34 上传
+
