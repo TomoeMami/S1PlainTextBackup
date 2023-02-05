@@ -5244,3 +5244,16 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 这次主角在这个异闻带已经没了两条命吧，第一条是坠机的时候，第二条是打完ORT的时候，打完还要继续和戴这对继续打，战斗至死不休，这不就是在烟雾镜的XP上了。
 
+
+*****
+
+####  黑上シグマ  
+##### 5009#       发表于 2023-2-5 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621333&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-2-5 15:02</a>
+
+终于通了，比2.6观感好太多，光是最后猴子们舍命+恐龙们奋起+冥界御主战我就可以给高分
+
+另外讲真玛修这角色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到最终战限制玛修不可出战，我真的是感天动地泪流满面好吗
+
