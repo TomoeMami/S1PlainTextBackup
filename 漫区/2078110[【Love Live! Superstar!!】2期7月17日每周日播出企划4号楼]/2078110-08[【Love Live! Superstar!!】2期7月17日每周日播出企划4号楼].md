@@ -15269,3 +15269,20 @@ api都开始收费搞会员制了<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://img.saraba1st.com/forum/202302/05/112751in9w0hbea0969br7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 11872#       发表于 2023-2-5 12:57
+
+小孩子文艺表演都是画成这样吗ww
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  starring  
+##### 11873#       发表于 2023-2-5 13:00
+
+似乎访谈提到nagi对抗过校园欺凌
+
