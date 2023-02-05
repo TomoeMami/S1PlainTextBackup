@@ -5580,3 +5580,16 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 想屁吃....我才不信运营舍得扔掉这棵摇钱树.....赌1元钱还会有第3部</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如先开个盘今年内会完结吗 我觉得不会（
 
+
+*****
+
+####  森兰丸  
+##### 5039#       发表于 2023-2-6 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627988&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-6 00:39</a>
+
+不如先开个盘今年内会完结吗 我觉得不会（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定不会啊....这主线的更新周期是越来越长了....2.6到2.7已经用了1年多的时间
+
+终章前已经摆明了有个断章还不知道是什么性质的
+
