@@ -5468,3 +5468,15 @@ I am your father
 
 有这段被救过的”交情“（都可以算两次了）在，如果是先入为主的误解，那应该有机会解开吧
 
+
+*****
+
+####  we89623  
+##### 619#       发表于 2023-2-5 18:53
+
+ 本帖最后由 we89623 于 2023-2-5 18:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59619930&amp;ptid=2050199" target="_blank">Yeaha123 发表于 2023-2-5 12:51</a>
+
+拉薇没玩过闪轨，不熟悉黎恩为人</blockquote>
+不就是尤娜复刻吗？ 坐等把我的诺桑普里亚自治州还回来。 也就是帅强惨的老好人的黎恩才能被这么玩。
+
