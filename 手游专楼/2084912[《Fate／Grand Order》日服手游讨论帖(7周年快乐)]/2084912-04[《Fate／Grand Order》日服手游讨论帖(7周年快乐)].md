@@ -5496,3 +5496,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 小妖精非常好用啊，突满宝石翁开场先来一炮清场，下回合技1可以帮他人补血(需要的话)，技2即时再开多炮， ...</blockquote>
 我说剧情上有她和没她也是一样
 
+
+*****
+
+####  DARKGRAY  
+##### 5031#       发表于 2023-2-5 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625844&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-5 21:28</a>
+
+我说剧情上有她和没她也是一样</blockquote>
+剧情的话现在人家是常驻黑枪管理员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

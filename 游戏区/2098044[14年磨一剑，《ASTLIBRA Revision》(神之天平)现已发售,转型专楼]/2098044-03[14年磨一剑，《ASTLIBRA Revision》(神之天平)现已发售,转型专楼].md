@@ -7057,3 +7057,16 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 感觉这男主形象逐渐重男化 
 
+
+*****
+
+####  空集  
+##### 3594#       发表于 2023-2-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59592855&amp;ptid=2098044" target="_blank">christiny 发表于 2023-2-3 11:47</a>
+
+是的，一般风精灵和火精灵都常驻，高难度下，还要考虑属性克制。
+
+另外还有高魔力的打法，主加魔力带魔杖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是 属性克制毕竟加成太大 我基本也都会考虑。主要这游戏确实搞懂和不搞懂差距太大，新章刚打斗技场艰难打到会长被薄纱，现在想起来去打下上完状态一路小跑找到他 天平女神两枪直接戳死了 
+

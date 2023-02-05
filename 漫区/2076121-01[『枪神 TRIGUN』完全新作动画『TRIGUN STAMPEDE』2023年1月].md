@@ -138,3 +138,17 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 都第5集了  主角就这一路表演圣母？？？</blockquote>
 主人公是真圣母，原作漫画从头至没杀过人，这次动画看情况也如此吧
 
+
+*****
+
+####  charlespfan  
+##### 285#       发表于 2023-2-5 21:36
+
+ 本帖最后由 charlespfan 于 2023-2-5 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625671&amp;ptid=2076121" target="_blank">百里屠苏 发表于 2023-2-5 21:16</a>
+
+主人公是真圣母，原作漫画从头至没杀过人，这次动画看情况也如此吧</blockquote>
+你别扯原作，我不承认新版跑神和原作枪神是同一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便一问，Legato和July市的全市市民怎么死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
