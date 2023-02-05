@@ -152,3 +152,11 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 顺便一问，Legato和July市的全市市民怎么死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1010248485  
+##### 286#       发表于 2023-2-5 21:43
+
+起码舍得开枪了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
