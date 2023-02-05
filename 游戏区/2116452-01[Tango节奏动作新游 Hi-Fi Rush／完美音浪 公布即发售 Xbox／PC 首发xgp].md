@@ -4011,3 +4011,13 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 话说boss是不是都不吃猫猫，之前打最终boss忘记换大招，卡尔说自己是爱狗人士 ...</blockquote>
 只有卡尔他本人是爱狗派，其他BOSS都是会被控的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 387#       发表于 2023-2-5 22:03
+
+分享个b站看到的猫猫合集<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+【HI-FI RUSH  808的各种可爱表情-哔哩哔哩】 https://b23.tv/vAdrk47
+之前还看见有个油管主吐槽过场太长，但这游戏的动画真的做的太棒了
+
