@@ -657,3 +657,13 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 低倍率的私服pq的意义就出来了，还能打发时间。高倍率服，pq狗都不碰，除了去收集卡片的。
 随便不成逻辑的写了点抱怨下。
 
+
+*****
+
+####  伊克路西安  
+##### 66#       发表于 2023-2-5 22:33
+
+下了个079单机版玩玩，问下不同等级时期怎么提升跑图体验? 走路实在是太慢了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
