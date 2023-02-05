@@ -5548,3 +5548,13 @@ I am your father
 
 变光球进骑神在游戏里这么表现我认为是你法能力不足或者偷懒不想做进驾驶舱的过场演出，动画原封不动的还原感觉就很蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酷乐  
+##### 627#       发表于 2023-2-6 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627486&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-2-5 23:41</a>
+变光球进骑神在游戏里这么表现我认为是你法能力不足或者偷懒不想做进驾驶舱的过场演出，动画原封不动的还原 ...</blockquote>
+不是致敬魔神英雄传吗
+
