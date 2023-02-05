@@ -5389,3 +5389,16 @@ I am your father
 路被堵了，酷酱和嘎酱这种刚S的不是能直接拆路障吗
 大意了，其实根本不用拆，因为酷酱会飞！帝国人太狡猾了都在演
 
+
+*****
+
+####  roxas.sora  
+##### 612#       发表于 2023-2-5 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59617472&amp;ptid=2050199" target="_blank">蒸汽投石BuBu車 发表于 2023-2-5 04:06</a>
+
+路被堵了，酷酱和嘎酱这种刚S的不是能直接拆路障吗
+
+大意了，其实根本不用拆，因为酷酱会飞！帝国人太狡猾了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">光剑不是一炮就能把这堆石头轰飞么
+

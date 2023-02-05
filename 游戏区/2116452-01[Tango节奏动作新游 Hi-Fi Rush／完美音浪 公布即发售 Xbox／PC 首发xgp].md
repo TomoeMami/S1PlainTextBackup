@@ -3889,3 +3889,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 顺便萨姆来的QTE熟悉后还行，就是什么时候开始这个时机不好掌握
 
+
+*****
+
+####  Sliurus  
+##### 376#       发表于 2023-2-5 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59614403&amp;ptid=2116452" target="_blank">zqqwe 发表于 2023-2-4 22:02</a>
+
+VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽然还是试错挂了几次，同时发现攻击动作其 ...</blockquote>
+姐贵原地爆炸掉钥匙时，我都惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。主角看起来这么少年，动起手来居然这么狠
+
