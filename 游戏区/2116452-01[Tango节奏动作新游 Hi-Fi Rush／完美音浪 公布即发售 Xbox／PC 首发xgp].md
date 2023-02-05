@@ -4021,3 +4021,17 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 【HI-FI RUSH  808的各种可爱表情-哔哩哔哩】 https://b23.tv/vAdrk47
 之前还看见有个油管主吐槽过场太长，但这游戏的动画真的做的太棒了
 
+
+*****
+
+####  zqqwe  
+##### 388#       发表于 2023-2-5 23:07
+
+ 本帖最后由 zqqwe 于 2023-2-5 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59622645&amp;ptid=2116452" target="_blank">soliz 发表于 2023-2-5 17:16</a>
+
+血宫技能要配置好，能量饮料必带，靠商店回血太亏了；然后第二个技能正攻就hibiki逃课就猫猫魅惑，有些恶 ...</blockquote>
+打完第二个boss层还是不够时间了，感觉限时卡这么紧就必须用比较极端的速杀，开场蓄个重击然后用快速出just又大范围高伤的攻击拉加时，例如YXY，满电就开hibiki，为了蹭S的12秒加时还要装30%评价增幅芯片，剩下就堆电量。和隔壁的三连次元清场有得一拼
+
+个人还是喜欢魔女和忍龙那种完全不限时的挑战模式，可以多点自由发挥
+

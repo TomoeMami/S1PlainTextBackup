@@ -5515,3 +5515,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 黑花花看见咕哒拖着个死人脸出来立马变卦那段差点没笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 5033#       发表于 2023-2-5 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59626489&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-5 22:14</a>
+
+黑花花看见咕哒拖着个死人脸出来立马变卦那段差点没笑死我</blockquote>
+与其说是死人脸，不如说是被撅了，我是咕哒夫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
