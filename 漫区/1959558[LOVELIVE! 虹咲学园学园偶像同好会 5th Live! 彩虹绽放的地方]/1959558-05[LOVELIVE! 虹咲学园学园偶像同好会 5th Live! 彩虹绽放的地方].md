@@ -2722,3 +2722,15 @@ kou7303
 
 今天虹团成员到场确认有：萌P，秀秀，菜宝，阿卡林，麻圆，奈奈，田中大叔
 
+
+*****
+
+####  仟音一心  
+##### 7003#       发表于 2023-2-5 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59626886&amp;ptid=1959558" target="_blank">P02 发表于 2023-2-5 22:45</a>
+今天虹团成员到场确认有：萌P，秀秀，菜宝，阿卡林，麻圆，奈奈，田中大叔 ...</blockquote>
+Day1 奈酱 切咪 阿卡林 萌P 秀秀 菜宝 
+Day2 厂长 未梦 麻圆 
+也就是除了hnk因为突击莉莉没来 无人缺席
+

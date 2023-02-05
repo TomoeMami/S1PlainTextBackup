@@ -160,3 +160,13 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 起码舍得开枪了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshenc  
+##### 287#       发表于 2023-2-5 23:29
+
+这瓦修在新枪神里的水平，果然是赏金缩水1万倍后对应的实力同步缩水啊...
+
+老版GUNG-HO-GUNS里任一个都可以单刷他的感觉，雷卡特感觉可以刷一万个新瓦修...
+
