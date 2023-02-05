@@ -13033,3 +13033,19 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4197#         楼主| 发表于 2023-2-5 17:51
+
+<img src="https://img.saraba1st.com/forum/202302/05/175054cjn2yo1rl2kfk7yr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-5 17:50 上传
+
+还是主动邀请的
+
