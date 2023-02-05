@@ -15561,3 +15561,11 @@ Nagi也有过类似男性对象的演出吧？应该不至于。mv 内容肯定�
 
 微博上有个老哥在池袋遇到了小百合nako和pay<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11905#       发表于 2023-2-5 15:09
+
+怎么演个MV都要限定男女演员，有个男性演员出镜都得爆炸的程度吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
