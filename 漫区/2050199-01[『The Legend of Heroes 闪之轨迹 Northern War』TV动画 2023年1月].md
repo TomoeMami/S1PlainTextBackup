@@ -5402,3 +5402,15 @@ I am your father
 大意了，其实根本不用拆，因为酷酱会飞！帝国人太狡猾了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">光剑不是一炮就能把这堆石头轰飞么
 
+
+*****
+
+####  秘银mithril  
+##### 613#       发表于 2023-2-5 11:59
+
+瓦里马出场后拉薇那两个闪回，是脑补？
+
+黎恩应该还没去过北方吧
+
+还是挺难想象黎恩会挥刀向平民的，即使说是战争不可避免……我只能想象黎恩砍战车之类的
+
