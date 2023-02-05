@@ -16,3 +16,14 @@ peekdo好像也快要发货了，在B站上看群友价是1588（单屏幕），
 
 两个月前的版本测试延迟是29ms，去掉屏幕自身延迟10ms，实际在十多ms左右？等付费测评了，感觉还可以。
 
+
+*****
+
+####  bypass  
+##### 635#         楼主| 发表于 2023-2-5 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59616065&amp;ptid=2086469" target="_blank">フカミ 发表于 2023-2-4 23:56</a>
+
+https://www.kickstarter.com/projects/handheld-game-device/peakdo-mm-wave-streaming-handheld-game-dev ...</blockquote>
+神奇，居然还有这种掌机 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
