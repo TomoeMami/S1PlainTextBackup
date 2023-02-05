@@ -5183,3 +5183,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 —— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  angelooo  
+##### 5004#       发表于 2023-2-5 10:55
+
+灵脉石令人感到安心，反正不用也要过期23333
+

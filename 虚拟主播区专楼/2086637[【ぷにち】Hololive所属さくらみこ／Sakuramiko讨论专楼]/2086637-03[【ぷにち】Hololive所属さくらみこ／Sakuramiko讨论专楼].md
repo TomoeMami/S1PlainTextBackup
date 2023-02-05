@@ -13005,3 +13005,21 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 [推特](https://twitter.com/hokage2035/status/1621785283430879233?s=20&amp;t=NpaDcaHzKPChTY3IUDsbKg)
 
+
+*****
+
+####  holoan  
+##### 4195#         楼主| 发表于 2023-2-5 10:57
+
+<img src="https://img.saraba1st.com/forum/202302/05/105635x64vqkglgqxgh67x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-5 10:56 上传
+
+昨天阿心也发推说要玩，基本没跑了
+
+大概率是下周先通关马车然后刚好发售就播了
+
