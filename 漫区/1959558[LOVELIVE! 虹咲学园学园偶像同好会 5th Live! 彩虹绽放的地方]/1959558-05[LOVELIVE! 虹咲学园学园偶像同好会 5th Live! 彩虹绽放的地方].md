@@ -2654,3 +2654,20 @@ kou7303
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  梶原ひかり  
+##### 6997#       发表于 2023-2-5 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 我希望一直再演下去 灯露不要走
+
+*****
+
+####  梶原ひかり  
+##### 6998#       发表于 2023-2-5 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 没有你的虹咲 不是我心中的虹咲 
+楠木灯 你永远是 优木雪菜
+优木雪菜 永远是 楠木灯 
+
