@@ -5488,3 +5488,14 @@ I am your father
 
 女主那是祖父那"英雄"这个心病作祟。对英雄两字反应相当强烈，至于诺州怎样对女主来说反而是附属的。相较下尤娜可正常多了
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 621#       发表于 2023-2-5 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59624146&amp;ptid=2050199" target="_blank">kongxian 发表于 2023-2-5 19:28</a>
+
+女主那是祖父那"英雄"这个心病作祟。对英雄两字反应相当强烈，至于诺州怎样对女主来说反而是附属的。相较下 ...</blockquote>
+闪3一上来新7全是些作妖的憨批,我要是黎爷宁愿找分校长开个后门,把洁宝拉过来,把这群作妖的全踢走
+

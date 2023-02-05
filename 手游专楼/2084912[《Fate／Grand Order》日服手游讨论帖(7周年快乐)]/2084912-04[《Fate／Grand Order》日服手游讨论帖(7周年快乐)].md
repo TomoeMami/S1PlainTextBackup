@@ -5403,3 +5403,29 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 记得你还说过盾娘现在还是半成品以后肯定会有补丁加强之类的话....现在都2.7了还是这副鸟样......当初我还真没骂错
 
+
+*****
+
+####  alucardcz  
+##### 5023#       发表于 2023-2-5 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59624162&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-5 19:29</a>
+
+当年开2.1的时候我就骂过盾娘一个防御角色给个红魔放简直是有大病....又不可能拿盾娘去打输出的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要急！ 还有机会！你看现在不依然是个半成品！
+
+*****
+
+####  zooandtoo  
+##### 5024#       发表于 2023-2-5 19:40
+
+ 本帖最后由 zooandtoo 于 2023-2-5 19:41 编辑 
+
+直接把哈贝喵的技能组给马修也没那么多P事了，反正都是用黑枪射魔力炮。
+
+加强还是有加强的，但这剧情都快完了还像是半身卡马桶都不知道怎么想的
+
+按照正常逻辑都这了角色也该各种意义上的完成
+
