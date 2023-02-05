@@ -4000,3 +4000,14 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 血宫技能要配置好，能量饮料必带，靠商店回血太亏了；然后第二个技能正攻就hibiki逃课就猫猫魅惑，有些恶 ...</blockquote>
 话说boss是不是都不吃猫猫，之前打最终boss忘记换大招，卡尔说自己是爱狗人士<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  散装星空  
+##### 386#       发表于 2023-2-5 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59623553&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-2-5 18:37</a>
+
+话说boss是不是都不吃猫猫，之前打最终boss忘记换大招，卡尔说自己是爱狗人士 ...</blockquote>
+只有卡尔他本人是爱狗派，其他BOSS都是会被控的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

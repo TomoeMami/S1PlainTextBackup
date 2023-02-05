@@ -5346,3 +5346,15 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 谁给小芬奇续呢</blockquote>
 当然是万能的水果阿姨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 5018#       发表于 2023-2-5 18:49
+
+[https://bbs.nga.cn/read.php?tid=35276806&amp;_fp=2](https://bbs.nga.cn/read.php?tid=35276806&amp;_fp=2)
+
+虽然是LowGA，但意外得整理的挺好的帖子
+
+实在不想看LowGA的话，油管原地址是：[https://www.youtube.com/watch?v=jRtZ0aotiVo](https://www.youtube.com/watch?v=jRtZ0aotiVo)
+
