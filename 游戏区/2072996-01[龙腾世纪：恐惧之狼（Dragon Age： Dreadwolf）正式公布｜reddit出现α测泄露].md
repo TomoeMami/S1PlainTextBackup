@@ -537,3 +537,13 @@ And that's about all I can think was noteworthy. If you have any questions, happ
 
 要求不高，来点正常的女性队友就行
 
+
+*****
+
+####  Flechette  
+##### 63#       发表于 2023-2-5 16:34
+
+系统上似乎和审判很接近，以生软现在的水平恐怕也做不出优秀的gameplay了
+
+还是看看蛋头怎么整活吧
+

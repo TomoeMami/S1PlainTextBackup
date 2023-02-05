@@ -3947,3 +3947,15 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 最后就是，这游戏的演出使得一周目的体验相当不错，但是在多周目的刷刷刷流程里就显得有点臃肿了…希望以后可以优化一下
 
+
+*****
+
+####  soliz  
+##### 381#       发表于 2023-2-5 16:33
+
+炼节奏大师难度卡尔无伤的时候心态发生了一系列变化：我好菜——我好强——我好倒霉
+
+前两个阶段练好了之后是真的可以做到全程连贯爽打，但是p3三连打雷的苛刻判定和某个全格挡也有概率直接着火的4连刀是真的搞心态<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+不过练了5小时终于成功的那一刻还是很开心的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
