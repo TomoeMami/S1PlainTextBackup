@@ -3969,3 +3969,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 血宫的限时我连第一个boss都过不去<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">明明前面都是S评价加成，2分钟还是打不完
 
+
+*****
+
+####  soliz  
+##### 383#       发表于 2023-2-5 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59622257&amp;ptid=2116452" target="_blank">zqqwe 发表于 2023-2-5 16:44</a>
+
+节奏大师的难点其实是boss攻击意识没有太大加强，战点一开始C评价打底是最容易暴毙的，尤其是最终boss每个 ...</blockquote>
+血宫技能要配置好，能量饮料必带，靠商店回血太亏了；然后第二个技能正攻就hibiki逃课就猫猫魅惑，有些恶心小怪（投弹机器人、贴盾摩托、两种鸟、绿狗）如果不开场快速处理掉会非常痛苦
+
