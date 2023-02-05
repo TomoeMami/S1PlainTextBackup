@@ -3989,3 +3989,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 今天steam deck到了，试了下玩xgp云，节奏准确率高的吓人
 
+
+*****
+
+####  Sliurus  
+##### 385#       发表于 2023-2-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59622645&amp;ptid=2116452" target="_blank">soliz 发表于 2023-2-5 17:16</a>
+
+血宫技能要配置好，能量饮料必带，靠商店回血太亏了；然后第二个技能正攻就hibiki逃课就猫猫魅惑，有些恶 ...</blockquote>
+话说boss是不是都不吃猫猫，之前打最终boss忘记换大招，卡尔说自己是爱狗人士<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
