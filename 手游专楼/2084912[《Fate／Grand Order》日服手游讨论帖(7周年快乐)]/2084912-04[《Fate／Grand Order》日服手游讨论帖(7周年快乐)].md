@@ -5485,3 +5485,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 比起学妹想她即时退场就要用衣服，浪费了一次换人机会，有时候用技2对方也不合作秒不到她，又没有以前那张被集火的礼装
 
+
+*****
+
+####  areklose  
+##### 5030#       发表于 2023-2-5 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625503&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-5 21:06</a>
+
+小妖精非常好用啊，突满宝石翁开场先来一炮清场，下回合技1可以帮他人补血(需要的话)，技2即时再开多炮， ...</blockquote>
+我说剧情上有她和没她也是一样
+
