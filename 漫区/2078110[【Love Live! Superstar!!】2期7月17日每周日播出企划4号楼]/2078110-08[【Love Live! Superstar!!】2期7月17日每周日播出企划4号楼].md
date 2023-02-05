@@ -15489,3 +15489,34 @@ yura加yellow，这怎么输
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  稀勢のささ  
+##### 11897#       发表于 2023-2-5 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59620961&amp;ptid=2078110" target="_blank">player3960 发表于 2023-2-5 14:26</a>
+
+呀咩咯!打铁欧吉会崩溃的
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕的打铁欧吉看着有不少已经因为non的几次爆哭移情别恋了，一周发情快400串的含金量
+
+*****
+
+####  ViyViy  
+##### 11898#       发表于 2023-2-5 14:36
+
+嘴上移情别恋没用，除非也能冲个一万写真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 11899#       发表于 2023-2-5 14:41
+
+<blockquote>愛さ実 发表于 2023-2-5 14:32
+不说sayu，我怕有些nagi粉也接受不了，反而来迁怒鱼
+
+—— 来自 S1Fun ...</blockquote>
+看mv剧情怎么演咯，💣是这个男满员吧，最坏情况是隔壁说的，nagi和男的演，鱼是完全没参与的第三视角？
+
