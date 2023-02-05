@@ -2714,3 +2714,11 @@ kou7303
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">她们太好了
 
+
+*****
+
+####  P02  
+##### 7002#       发表于 2023-2-5 22:45
+
+今天虹团成员到场确认有：萌P，秀秀，菜宝，阿卡林，麻圆，奈奈，田中大叔
+
