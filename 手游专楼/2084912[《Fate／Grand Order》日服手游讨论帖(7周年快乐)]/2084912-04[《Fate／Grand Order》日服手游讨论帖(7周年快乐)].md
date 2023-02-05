@@ -5544,3 +5544,18 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 草，雨神CV一个十连抽到2个雨神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 5036#       发表于 2023-2-6 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627263&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-5 23:20</a>
+
+正在清2.7的FREE，感觉一样有些卡，是今次整个版本都有问题还是甚么...但没打ORT和UFO时手机发热情况
+
+而且 ...</blockquote>
+上次更新后就整体渣优化时不时的有卡顿还会闪退了....看看下次更新后会不会修复吧
+
+一个开服6年多的游戏了优化还越做越差也是没准了
+
