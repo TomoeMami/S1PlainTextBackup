@@ -15397,3 +15397,26 @@ yura加yellow，这怎么输
 
 我已经等不及了，快让我看
 
+
+*****
+
+####  starring  
+##### 11887#       发表于 2023-2-5 13:44
+
+@洲崎惠梨  [https://weibo.com/5625403030/MrAO10My7](https://weibo.com/5625403030/MrAO10My7)
+
+简直和三月的狮子的小雏一样 <blockquote>充满正义感而且具有同理心
+
+中学的时候因为保护受欺凌的同学反而被欺凌团伙盯上了，虽然也有在被子里哭，一点都不想去学校的时候。但是如果在学校里哭出来，说坏话的话不是反而让他们称心如意了吗？知道这点以后不管被怎么说都装作不在乎了</blockquote>
+
+*****
+
+####  Enakina  
+##### 11888#       发表于 2023-2-5 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59620503&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-5 13:44</a>
+@洲崎惠梨  https://weibo.com/5625403030/MrAO10My7
+
+简直和三月的狮子的小雏一样</blockquote>
+草，我也第一反应想到三狮了，简直一模一样啊
+
