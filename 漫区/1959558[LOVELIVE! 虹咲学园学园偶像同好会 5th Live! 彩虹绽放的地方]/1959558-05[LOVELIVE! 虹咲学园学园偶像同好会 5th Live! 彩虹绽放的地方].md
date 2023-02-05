@@ -2594,3 +2594,14 @@ tokimeki runners<img src="https://p.sda1.dev/9/40150e3bc31d1331172108d723451a81/
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 6990#       发表于 2023-2-5 11:49
+
+kou7303
+<img src="https://p.sda1.dev/9/2bfc3672e65af069c**69b5157fb19/CMP_20230205114928889.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/9/3ea8ba91ee6e4166b9a4ed614c311dfa/CMP_20230205114928957.jpg" referrerpolicy="no-referrer">
+

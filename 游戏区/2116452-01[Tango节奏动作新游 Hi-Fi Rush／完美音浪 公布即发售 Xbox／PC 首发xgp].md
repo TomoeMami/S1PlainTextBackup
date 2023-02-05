@@ -3908,3 +3908,14 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 原来一命通关还会有个皇冠。。。。算了曲目4以后再重打吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CswStar  
+##### 378#       发表于 2023-2-5 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59618857&amp;ptid=2116452" target="_blank">Sliurus 发表于 2023-2-5 11:18</a>
+
+姐贵原地爆炸掉钥匙时，我都惊呆了。主角看起来这么少年，动起手来居然这么狠 ...</blockquote>
+可是阿茶都25了啊，其实他挺狠的，对敌人就没手软过，典型的人狠话又多类型
+
