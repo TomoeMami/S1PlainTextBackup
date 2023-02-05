@@ -15590,3 +15590,14 @@ Nagi也有过类似男性对象的演出吧？应该不至于。mv 内容肯定�
 
 2023-2-5 15:14 上传
 
+
+*****
+
+####  starring  
+##### 11907#       发表于 2023-2-5 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621133&amp;ptid=2078110" target="_blank">愛さ実 发表于 2023-2-5 14:42</a>
+non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍照的原因，笑容背后总有股阴郁气质
+ ...</blockquote>
+鉴于YJ的摄影师以前的表现，倾向于摄影师不会拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">non那套图除了红裙子那几张好看，其它都很一般
+
