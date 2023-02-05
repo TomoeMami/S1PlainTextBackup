@@ -5593,3 +5593,16 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 终章前已经摆明了有个断章还不知道是什么性质的
 
+
+*****
+
+####  alucardcz  
+##### 5040#       发表于 2023-2-6 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628063&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-6 00:52</a>
+
+肯定不会啊....这主线的更新周期是越来越长了....2.6到2.7已经用了1年多的时间
+
+终章前已经摆明了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个断章甚至只是断章的序章
+
