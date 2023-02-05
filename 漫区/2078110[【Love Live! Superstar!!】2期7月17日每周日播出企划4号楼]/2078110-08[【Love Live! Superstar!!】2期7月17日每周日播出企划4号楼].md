@@ -15469,3 +15469,23 @@ yura加yellow，这怎么输
 
 <blockquote>なぎさがMV出演かあ… 恋爱ものだからさゆとかのんには絶対受けれない仕事だな</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  player3960  
+##### 11895#       发表于 2023-2-5 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59620900&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-02-05 14:19:31</a></blockquote>呀咩咯!打铁欧吉会崩溃的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  愛さ実  
+##### 11896#       发表于 2023-2-5 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59620900&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-5 14:19</a></blockquote>
+不说sayu，我怕有些nagi粉也接受不了，反而来迁怒鱼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
