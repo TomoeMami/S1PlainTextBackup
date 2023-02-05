@@ -1433,3 +1433,15 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
   -- 来自 有消息提醒 ...</blockquote>
 你猜的没错
 
+
+*****
+
+####  Rincewind  
+##### 257#       发表于 2023-2-6 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625334&amp;ptid=2104259" target="_blank">vacuumsword 发表于 2023-2-5 20:54</a>
+弱问星级不同的角色获取粉丝数不同的么？我同时开刷的4星龙比1星凤要高不少粉丝数。
+
+  -- 来自 有消息提醒 ...</blockquote>
+四星攒粉丝速度大概是一星的两倍。
+

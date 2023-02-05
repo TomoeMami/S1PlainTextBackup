@@ -7078,3 +7078,42 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 现在比较犹豫要不要照日文wiki推荐直接把不准备用的武器防具首饰等直接卖了 这样就不会掉相关的装备盘了  毕竟万一之后还想要 能卖的似乎本来就是能买回来的 而且卖掉验证了下甚至原本在上面的盘子都不会变。
 
+
+*****
+
+####  gwchobit  
+##### 3596#       发表于 2023-2-6 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59626129&amp;ptid=2098044" target="_blank">空集 发表于 2023-2-5 21:47</a>
+
+现在比较犹豫要不要照日文wiki推荐直接把不准备用的武器防具首饰等直接卖了 这样就不会掉相关的装 ...</blockquote>
+不用犹豫.直接卖,就是减少随机性.当然如果装备kz卡,专属掉落身上装备的盘不卖问题也不大.
+
+而且不是所有都能卖掉.也可以留自己喜欢的
+
+*****
+
+####  空集  
+##### 3597#       发表于 2023-2-6 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628452&amp;ptid=2098044" target="_blank">gwchobit 发表于 2023-2-6 02:24</a>
+
+不用犹豫.直接卖,就是减少随机性.当然如果装备kz卡,专属掉落身上装备的盘不卖问题也不大.
+
+而且不是所有都 ...</blockquote>
+确实 主要装备KZ刷了几遍发现确实掉自己的频率高不少但是还是有很多搞人的基础武器在掉
+
+*****
+
+####  空集  
+##### 3598#       发表于 2023-2-6 02:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 虽然我是0力加点但是我现在甚至懒得用魔法
+
+*****
+
+####  dent  
+##### 3599#       发表于 2023-2-6 03:37
+
+说实话，这游戏属性没上限，大量强化卖装备刷武器盘根本没必要，你就算正常打指令拳或者光剑成型之后整个荒谬就没怪够你打的
+
