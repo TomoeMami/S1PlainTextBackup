@@ -1402,3 +1402,11 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 当然把这种菜鸡事讲成匠心轶事，也是非常日本人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 254#       发表于 2023-2-5 19:19
+
+话说后面做御好烧的真的都是分别广岛和大阪出身的女演员吗，还是只是单纯随机的
+

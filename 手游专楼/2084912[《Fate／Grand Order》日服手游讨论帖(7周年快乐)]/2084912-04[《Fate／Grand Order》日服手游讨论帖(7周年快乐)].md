@@ -5375,3 +5375,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 退一步来说，就算你还想吃圆桌那半碗饭，一技能发动的时候作为输出也还凑活，**倒是给个指令卡变色+出星啊，现在哪怕刻意围绕玛修组队也打不出啥大伤害，除了恶心人屁用没有
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5020#       发表于 2023-2-5 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁助战你们怎么能怪马修呢  这不是她的错！ 她只不过就是个路人而已！
+
