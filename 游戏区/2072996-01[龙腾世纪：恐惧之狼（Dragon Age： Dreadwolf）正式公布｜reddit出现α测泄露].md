@@ -547,3 +547,16 @@ And that's about all I can think was noteworthy. If you have any questions, happ
 
 还是看看蛋头怎么整活吧
 
+
+*****
+
+####  真实之影  
+##### 64#       发表于 2023-2-5 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621192&amp;ptid=2072996" target="_blank">2014720 发表于 2023-2-5 14:47</a>
+
+龙腾3那系统不挺好的</blockquote>
+dai不就已经动作化了
+
+一开始还没给键鼠做独立控制导致被喷死
+

@@ -5317,3 +5317,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 这ORT飞碟还会拷贝我方外星人技能的吗偶像BX开2技能然后对面给自己拍了个一模一样的技能 ...</blockquote>
 和我方外星人没关系，飞碟那边的技能，我记得效果还翻倍来着
 
+
+*****
+
+####  里村紅葉  
+##### 5015#       发表于 2023-2-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59622419&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-5 16:57</a>
+
+和我方外星人没关系，飞碟&amp;# ...</blockquote>
+它还特地有个对机械会心率上升的技能吗，图啥呀这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
