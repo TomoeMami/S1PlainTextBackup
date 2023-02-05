@@ -3900,3 +3900,11 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽然还是试错挂了几次，同时发现攻击动作其 ...</blockquote>
 姐贵原地爆炸掉钥匙时，我都惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。主角看起来这么少年，动起手来居然这么狠
 
+
+*****
+
+####  760194962  
+##### 377#       发表于 2023-2-5 11:30
+
+原来一命通关还会有个皇冠。。。。算了曲目4以后再重打吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
