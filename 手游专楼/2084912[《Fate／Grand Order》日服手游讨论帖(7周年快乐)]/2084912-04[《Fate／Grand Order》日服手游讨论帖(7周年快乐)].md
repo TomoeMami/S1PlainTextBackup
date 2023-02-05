@@ -5171,3 +5171,15 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 会否在情人节前开抽...</blockquote>
 花花新年就复刻过了，应该不会这么短就再次复刻，艾蕾估计有机会。
 
+
+*****
+
+####  里村紅葉  
+##### 5003#       发表于 2023-2-5 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59616265&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-5 00:12</a>
+为什么不用无敌的灵卖石</blockquote>
+用了两颗啊，你不会以为绿卡队有续航吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
