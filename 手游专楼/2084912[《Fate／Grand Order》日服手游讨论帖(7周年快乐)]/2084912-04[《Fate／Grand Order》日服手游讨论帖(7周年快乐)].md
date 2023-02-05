@@ -5358,3 +5358,20 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 实在不想看LowGA的话，油管原地址是：[https://www.youtube.com/watch?v=jRtZ0aotiVo](https://www.youtube.com/watch?v=jRtZ0aotiVo)
 
+
+*****
+
+####  exiaexa  
+##### 5019#       发表于 2023-2-5 19:05
+
+玛修变成现在这种讨人嫌的角色真的是阿菌全锅
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+作为一个吃圆桌半碗饭的原创角色，一直缺一个跟加拉哈德和解/冲突的毕业战，但是随着阿菌对圆桌越来越没兴趣，直接把玛修给整成个半吊子，2.6一堆套皮圆桌人跟玛修有个屁关系，强行进剧情结果绕了一圈啥都没改变
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+性能上也是有病，剧情上已经变成个黑枪炮架了还惦记你那破圆桌宝具干啥，直接使用一技能以后宝具变成输出不好吗
+
+退一步来说，就算你还想吃圆桌那半碗饭，一技能发动的时候作为输出也还凑活，**倒是给个指令卡变色+出星啊，现在哪怕刻意围绕玛修组队也打不出啥大伤害，除了恶心人屁用没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
