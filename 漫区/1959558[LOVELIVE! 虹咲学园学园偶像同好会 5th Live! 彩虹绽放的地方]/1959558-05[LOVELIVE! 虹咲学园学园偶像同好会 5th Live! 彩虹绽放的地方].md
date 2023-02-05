@@ -2644,3 +2644,13 @@ kou7303
 
 仿佛就这样消失在了舞台尽头<img src="https://p.sda1.dev/9/b3d59b00eba0f5c74ff97e2e71414941/CMP_20230205173355186.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 6996#       发表于 2023-2-5 18:10
+
+列车一定会往下一站行驶，那么我们呢。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -78,3 +78,13 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他
 Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 我知道啊，所以我才把他单列出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Burabura  
+##### 279#       发表于 2023-2-5 18:01
+
+动画党，这男主到现在还没表现出特别强的战斗力（好像很挨揍），是在给后面憋大的吗
+
+男二这一副要便当的样
+
