@@ -5414,3 +5414,14 @@ I am your father
 
 还是挺难想象黎恩会挥刀向平民的，即使说是战争不可避免……我只能想象黎恩砍战车之类的
 
+
+*****
+
+####  月夜凝雪  
+##### 614#       发表于 2023-2-5 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59618814&amp;ptid=2050199" target="_blank">roxas.sora 发表于 2023-2-5 11:14</a>
+
+光剑不是一炮就能把这堆石头轰飞么</blockquote>
+所以特地选了地下水道吧，随便轰有可能造成倒塌，像拉薇乱来也砸到了水道
+
