@@ -170,3 +170,13 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 老版GUNG-HO-GUNS里任一个都可以单刷他的感觉，雷卡特感觉可以刷一万个新瓦修...
 
+
+*****
+
+####  有钱多买小人  
+##### 288#       发表于 2023-2-5 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625671&amp;ptid=2076121" target="_blank">百里屠苏 发表于 2023-2-5 21:16</a>
+主人公是真圣母，原作漫画从头至没杀过人，这次动画看情况也如此吧</blockquote>
+你再想想牧师他兄弟是怎么活下来的？
+

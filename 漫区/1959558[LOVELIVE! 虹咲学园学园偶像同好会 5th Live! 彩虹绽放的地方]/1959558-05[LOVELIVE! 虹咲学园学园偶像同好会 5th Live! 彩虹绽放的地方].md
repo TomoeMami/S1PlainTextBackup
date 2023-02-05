@@ -2734,3 +2734,34 @@ Day1 奈酱 切咪 阿卡林 萌P 秀秀 菜宝
 Day2 厂长 未梦 麻圆 
 也就是除了hnk因为突击莉莉没来 无人缺席
 
+
+*****
+
+####  P02  
+##### 7004#       发表于 2023-2-5 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627344&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-2-5 23:29</a>
+
+Day1 奈酱 切咪 阿卡林 萌P 秀秀 菜宝 
+
+Day2 厂长 未梦 麻圆 
+
+也就是除了hnk因为突击莉莉没来 无人缺席 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不留遗憾了
+
+*****
+
+####  仟音一心  
+##### 7005#       发表于 2023-2-5 23:59
+
+去SMA水印
+<img src="https://p.sda1.dev/9/b3d81b14de3f275da2e9d4e245f8e1ec/299073157.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7006#       发表于 2023-2-6 00:00
+
+去SMA水印
+<img src="https://p.sda1.dev/9/b3d81b14de3f275da2e9d4e245f8e1ec/299073157.jpg" referrerpolicy="no-referrer">
+

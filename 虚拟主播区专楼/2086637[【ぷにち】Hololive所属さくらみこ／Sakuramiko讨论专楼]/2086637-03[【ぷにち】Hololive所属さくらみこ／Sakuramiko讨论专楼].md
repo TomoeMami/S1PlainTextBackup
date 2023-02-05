@@ -13138,3 +13138,26 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 ame早回国了
 
+
+*****
+
+####  qesto  
+##### 4208#       发表于 2023-2-5 23:56
+
+ぺこら→在同一个收录现场偶遇过鲨鱼和船长
+
+みこち→在同一个收录现场偶遇过鲨鱼和船长
+
+也就是说...
+
+是录mosh race的时候吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 4209#         楼主| 发表于 2023-2-5 23:59
+
+还是那句话，你们觉得是就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外一提跟原创曲没关系，原创曲这个月发表基本收录期是去年，二gura来是今年的事
+
