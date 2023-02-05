@@ -207,3 +207,13 @@ B组活了，能跳一个in the light of darkness吗
 
 舞爷和阿买都去了nb，舞爷难道要献唱一曲？
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3023#       发表于 2023-2-5 19:44
+
+什么？舞爷也在？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
