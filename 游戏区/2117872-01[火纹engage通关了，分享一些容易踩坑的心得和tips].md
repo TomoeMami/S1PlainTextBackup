@@ -688,3 +688,17 @@ HARD通关了，但是被投资坑了，后面几关根本没钱强化武器和�
 
 只要对面不能追击你···
 
+
+*****
+
+####  Youszsh  
+##### 65#       发表于 2023-2-5 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59607013&amp;ptid=2117872" target="_blank">KTD 发表于 2023-2-4 10:25</a>
+心得：
+
+1：新人别打困难，打普通
+
+2：新人别打困难，打普通</blockquote>
+困难也可以保留经验值重开的，要钱可以打遭遇战。只要把大师证和sp这种稀缺资源提前做好规划，钱和经验都可以刷，重开多两次就当学下棋了
+

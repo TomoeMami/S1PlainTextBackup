@@ -5536,3 +5536,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 而且在EXTRA任务中已经长时间没追加新每清10个FREE就送10钻的任务，
 
+
+*****
+
+####  里村紅葉  
+##### 5035#       发表于 2023-2-5 23:39
+
+草，雨神CV一个十连抽到2个雨神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

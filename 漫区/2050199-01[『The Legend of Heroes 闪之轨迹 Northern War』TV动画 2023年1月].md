@@ -5540,3 +5540,11 @@ I am your father
 分校长：拉 ...</blockquote>
 蓬蓬和兔子不属于是作妖的那伙人啊,这俩都是大爹级关系户<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 626#       发表于 2023-2-5 23:41
+
+变光球进骑神在游戏里这么表现我认为是你法能力不足或者偷懒不想做进驾驶舱的过场演出，动画原封不动的还原感觉就很蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
