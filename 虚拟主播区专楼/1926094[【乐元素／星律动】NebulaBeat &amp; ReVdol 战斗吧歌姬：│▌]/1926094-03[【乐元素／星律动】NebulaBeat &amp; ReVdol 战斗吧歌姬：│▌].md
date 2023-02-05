@@ -230,3 +230,13 @@ B组活了，能跳一个in the light of darkness吗
   -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
 看来只是去nb，但没有出场，阿买也没有，但画了一幅画
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3025#       发表于 2023-2-5 23:40
+
+今晚节目猜谐音梗太逆天了，其他都还可以
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
