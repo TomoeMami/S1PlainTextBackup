@@ -5383,3 +5383,23 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁助战你们怎么能怪马修呢  这不是她的错！ 她只不过就是个路人而已！
 
+
+*****
+
+####  vacuumsword  
+##### 5021#       发表于 2023-2-5 19:26
+
+突然想起来去年某次直播是不是说让大家多刷羁绊等级的？这个最后用到哪儿了？
+
+*****
+
+####  森兰丸  
+##### 5022#       发表于 2023-2-5 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59623980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-5 19:15</a>
+
+锁助战你们怎么能怪马修呢  这不是她的错！ 她只不过就是个路人而已！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年开2.1的时候我就骂过盾娘一个防御角色给个红魔放简直是有大病....又不可能拿盾娘去打输出的
+
+记得你还说过盾娘现在还是半成品以后肯定会有补丁加强之类的话....现在都2.7了还是这副鸟样......当初我还真没骂错
+
