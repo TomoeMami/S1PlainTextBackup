@@ -15569,3 +15569,24 @@ Nagi也有过类似男性对象的演出吧？应该不至于。mv 内容肯定�
 
 怎么演个MV都要限定男女演员，有个男性演员出镜都得爆炸的程度吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kfly  
+##### 11906#       发表于 2023-2-5 15:16
+
+ 本帖最后由 Kfly 于 2023-2-5 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621386&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-5 15:09</a>
+
+怎么演个MV都要限定男女演员，有个男性演员出镜都得爆炸的程度吗</blockquote>
+和主题有关吧，如果要多找个人来，不如索性来个一男一女？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+宅宅的神经这么紧绷的吗？
+
+<img src="https://img.saraba1st.com/forum/202302/05/151416c970aziava7oa7o7.png" referrerpolicy="no-referrer">
+
+<strong>%NM1DR7}3}%(L7@5$AAI$LT.png</strong> (3.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-5 15:14 上传
+
