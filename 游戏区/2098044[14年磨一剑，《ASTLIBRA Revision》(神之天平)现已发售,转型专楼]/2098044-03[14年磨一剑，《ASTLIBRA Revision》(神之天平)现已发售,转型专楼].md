@@ -7022,3 +7022,14 @@ b站专栏搜神之天平</blockquote>
 
 呃 武器已经3个装备盘了，新刷出来的要怎么替换啊，还是只能默认替换第一个？
 
+
+*****
+
+####  christiny  
+##### 3590#       发表于 2023-2-5 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621680&amp;ptid=2098044" target="_blank">希鲁夫 发表于 2023-2-5 15:45</a>
+
+呃 武器已经3个装备盘了，新刷出来的要怎么替换啊，还是只能默认替换第一个？ ...</blockquote>
+可以选择……移动选择框就行……
+

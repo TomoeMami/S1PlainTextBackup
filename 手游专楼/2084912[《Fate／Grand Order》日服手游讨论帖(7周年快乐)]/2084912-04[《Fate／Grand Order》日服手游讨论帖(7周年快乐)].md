@@ -5328,3 +5328,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 和我方外星人没关系，飞碟&amp;# ...</blockquote>
 它还特地有个对机械会心率上升的技能吗，图啥呀这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 5016#       发表于 2023-2-5 17:27
+
+原来左下角随着进度有差分啊
+
