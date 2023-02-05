@@ -3959,3 +3959,13 @@ VH难度一周目通关了，最后子安的浮游炮派生防起来很爽，虽
 
 不过练了5小时终于成功的那一刻还是很开心的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 382#       发表于 2023-2-5 16:44
+
+节奏大师的难点其实是boss攻击意识没有太大加强，战点一开始C评价打底是最容易暴毙的，尤其是最终boss每个形态不继承评价，必须靠三连dash拉评价保命
+
+血宫的限时我连第一个boss都过不去<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">明明前面都是S评价加成，2分钟还是打不完
+

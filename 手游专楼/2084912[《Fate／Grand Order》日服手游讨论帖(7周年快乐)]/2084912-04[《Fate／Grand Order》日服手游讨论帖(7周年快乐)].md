@@ -5298,3 +5298,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以说明明时间神殿就那么死了多好 或者就像1.5那阵一样彻底没法战斗也行 结果第二部剧情战斗全都拉胯还强制登场恶心人
 
+
+*****
+
+####  里村紅葉  
+##### 5013#       发表于 2023-2-5 16:46
+
+这ORT飞碟还会拷贝我方外星人技能的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
