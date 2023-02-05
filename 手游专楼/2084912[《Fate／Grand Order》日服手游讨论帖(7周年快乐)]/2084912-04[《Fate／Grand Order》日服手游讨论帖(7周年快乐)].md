@@ -5465,3 +5465,23 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 打完了。不明白哈贝猫这次得存在意义。多亏了一大堆灵脉石，本来恶心得战斗随便砸随便过。想要雨神 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没意义了 能开炮！ 至少抢了女路人90%的戏份！
 
+
+*****
+
+####  黑上シグマ  
+##### 5028#       发表于 2023-2-5 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完2.7去油管看了点考察，你游第二部最可能的结局就是穿回冬木暴打老所长，世界回归SN正史，整个废狗世界被剪掉，关服
+
+*****
+
+####  eilot  
+##### 5029#       发表于 2023-2-5 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625276&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-5 20:51</a>
+
+打完了。不明白哈贝猫这次得存在意义。多亏了一大堆灵脉石，本来恶心得战斗随便砸随便过。想要雨神 ...</blockquote>
+小妖精非常好用啊，突满宝石翁开场先来一炮清场，下回合技1可以帮他人补血(需要的话)，技2即时再开多炮，技3帮主攻手上一层无敌/根性/每回合补血后就自己退场，
+
+比起学妹想她即时退场就要用衣服，浪费了一次换人机会，有时候用技2对方也不合作秒不到她，又没有以前那张被集火的礼装
+

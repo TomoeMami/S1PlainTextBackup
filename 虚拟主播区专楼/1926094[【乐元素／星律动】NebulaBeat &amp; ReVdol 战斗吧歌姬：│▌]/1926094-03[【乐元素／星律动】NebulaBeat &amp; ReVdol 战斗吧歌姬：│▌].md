@@ -217,3 +217,16 @@ B组活了，能跳一个in the light of darkness吗
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  ladiesman802  
+##### 3024#       发表于 2023-2-5 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59624362&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2023-2-5 19:44</a>
+
+什么？舞爷也在？
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+看来只是去nb，但没有出场，阿买也没有，但画了一幅画
+
