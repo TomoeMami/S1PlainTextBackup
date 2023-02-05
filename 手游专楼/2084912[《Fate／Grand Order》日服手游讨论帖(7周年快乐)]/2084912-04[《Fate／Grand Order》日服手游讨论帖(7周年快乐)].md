@@ -5446,3 +5446,11 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 只是奢望一下好吧...
 
+
+*****
+
+####  areklose  
+##### 5026#       发表于 2023-2-5 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了。不明白哈贝猫这次得存在意义。多亏了一大堆灵脉石，本来恶心得战斗随便砸随便过。想要雨神巧克力。虽然剧情烟雾镜还行，但是我还石不想抽到你啊
+
