@@ -5526,3 +5526,13 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 黑花花看见咕哒拖着个死人脸出来立马变卦那段差点没笑死我</blockquote>
 与其说是死人脸，不如说是被撅了，我是咕哒夫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 5034#       发表于 2023-2-5 23:20
+
+正在清2.7的FREE，感觉一样有些卡，是今次整个版本都有问题还是甚么...但没打ORT和UFO时手机发热情况
+
+而且在EXTRA任务中已经长时间没追加新每清10个FREE就送10钻的任务，
+
