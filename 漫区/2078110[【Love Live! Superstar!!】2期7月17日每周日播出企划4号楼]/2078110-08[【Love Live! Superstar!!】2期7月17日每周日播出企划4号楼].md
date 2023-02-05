@@ -15437,3 +15437,27 @@ yura加yellow，这怎么输
 看了预览貌似有男的我就说不可能这么大胆………………</blockquote>
 毕竟歌曲内容是青梅竹马，正常
 
+
+*****
+
+####  优妮可  
+##### 11891#       发表于 2023-2-5 14:03
+
+ 本帖最后由 优妮可 于 2023-2-5 14:06 编辑 
+
+我倒感觉因为这次专辑主题是恋爱，mv单单找男的女的都不妥，都找感觉好点。
+
+*****
+
+####  仟音一心  
+##### 11892#       发表于 2023-2-5 14:07
+
+<img src="https://p.sda1.dev/9/8156580ea35e0300d177afd2ce57d3c3/1phm3fst2lxlzvoguuae51b92.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 11893#       发表于 2023-2-5 14:07
+
+<img src="https://p.sda1.dev/9/8156580ea35e0300d177afd2ce57d3c3/1phm3fst2lxlzvoguuae51b92.jpg" referrerpolicy="no-referrer">
+
