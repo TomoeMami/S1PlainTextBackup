@@ -15359,3 +15359,41 @@ QQ图片20230205133010.jpg
 
 我超，水渚鱼
 
+
+*****
+
+####  player3960  
+##### 11882#       发表于 2023-2-5 13:32
+
+鲤鱼各种曲线救CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 11883#       发表于 2023-2-5 13:34
+
+cast尽力了，动画CBA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 11884#       发表于 2023-2-5 13:35
+
+yura加yellow，这怎么输
+
+*****
+
+####  starring  
+##### 11885#       发表于 2023-2-5 13:36
+
+想看yura？鲤鱼姐实现你们的愿望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 11886#       发表于 2023-2-5 13:40
+
+我已经等不及了，快让我看
+
