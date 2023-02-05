@@ -7041,3 +7041,11 @@ b站专栏搜神之天平</blockquote>
 
 【神之天平 荒谬难度群星-哔哩哔哩】 https://b23.tv/ytetAIE             推荐一个群星打法。高格挡+盾牌龙卷无敌，到目前为止算是容错最高的，可以复制打法了，也不依赖练度。
 
+
+*****
+
+####  希鲁夫  
+##### 3592#       发表于 2023-2-5 21:14
+
+70小时困难全部通关了，指令拳面前众生平等，boss都撑不过30秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
