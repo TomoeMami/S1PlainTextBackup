@@ -5447,3 +5447,16 @@ I am your father
 
 拉薇没玩过闪轨，不熟悉黎恩为人
 
+
+*****
+
+####  秘银mithril  
+##### 617#       发表于 2023-2-5 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59619928&amp;ptid=2050199" target="_blank">Renes 发表于 2023-2-5 12:51</a>
+
+主要她是猎兵，所以明白在诺州再怎么对父老乡亲好，出去干活也不能手软的，这是猎兵基本价值观。活可以不 ...</blockquote>
+所以应该就是脑补吧
+
+我倒是能理解她脑补未来，就是感觉这里没演清楚，那俩闪回就像黎恩已经把诺森比亚毁了一样
+
