@@ -5454,3 +5454,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了。不明白哈贝猫这次得存在意义。多亏了一大堆灵脉石，本来恶心得战斗随便砸随便过。想要雨神巧克力。虽然剧情烟雾镜还行，但是我还石不想抽到你啊
 
+
+*****
+
+####  alucardcz  
+##### 5027#       发表于 2023-2-5 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625276&amp;ptid=2084912" target="_blank">areklose 发表于 2023-2-5 20:51</a>
+
+打完了。不明白哈贝猫这次得存在意义。多亏了一大堆灵脉石，本来恶心得战斗随便砸随便过。想要雨神 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没意义了 能开炮！ 至少抢了女路人90%的戏份！
+
