@@ -691,3 +691,17 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 
 阿里安特也有个NPC可以回金银岛，不过降落的地点是随机的
 
+
+*****
+
+####  伊克路西安  
+##### 68#       发表于 2023-2-6 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627446&amp;ptid=2117129" target="_blank">kuglv 发表于 2023-2-5 23:38</a>
+低级没什么捷径，多带回城卷就好
+
+后面比较麻烦的是天空之城到玩具城之间的这段路，直接点的方法是在码头坐 ...</blockquote>
+其实问的是怎么提高移动速度<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
