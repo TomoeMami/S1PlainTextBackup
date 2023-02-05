@@ -5559,3 +5559,24 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 一个开服6年多的游戏了优化还越做越差也是没准了
 
+
+*****
+
+####  森兰丸  
+##### 5037#       发表于 2023-2-6 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59625468&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-5 21:04</a>
+
+打完2.7去油管看了点考察，&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想屁吃....我才不信运营舍得扔掉这棵摇钱树.....赌1元钱还会有第3部
+
+*****
+
+####  alucardcz  
+##### 5038#       发表于 2023-2-6 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627927&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-6 00:31</a>
+
+想屁吃....我才不信运营舍得扔掉这棵摇钱树.....赌1元钱还会有第3部</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如先开个盘今年内会完结吗 我觉得不会（
+
