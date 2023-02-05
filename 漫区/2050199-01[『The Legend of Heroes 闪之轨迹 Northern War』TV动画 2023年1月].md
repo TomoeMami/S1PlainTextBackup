@@ -5509,3 +5509,21 @@ I am your father
 
 而且看女主前面表现，属于烫手芋头巴不得踢给别的组。作为猎兵看来也不太合适，说女主有多明白猎兵素养也没什么说服力。什么家国情怀肯定没私心重
 
+
+*****
+
+####  yangqizhi45  
+##### 623#       发表于 2023-2-5 19:58
+
+珍惜这打通缉魔兽都能拉王尼玛的时光，闪3闪4就没有这个必要咯<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 624#       发表于 2023-2-5 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59624227&amp;ptid=2050199" target="_blank">大丈夫萌大乃 发表于 2023-2-5 19:33</a>
+闪3一上来新7全是些作妖的憨批,我要是黎爷宁愿找分校长开个后门,把洁宝拉过来,把这群作妖的全踢走 ...</blockquote>
+开玩笑，别以为只有旧7全是二代，新7也全是关系户，分校长开后门踢人都踢不走她实质上司妙洁
+分校长：拉人可以，踢人别想
+
