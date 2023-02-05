@@ -13023,3 +13023,13 @@ https://twitter.com/marumaru_marua/status/1620805278878040066?s=20&amp;t=vIjlDyT
 
 大概率是下周先通关马车然后刚好发售就播了
 
+
+*****
+
+####  rs5621  
+##### 4196#       发表于 2023-2-5 14:48
+
+好好好，我昨晚刚在楼里问完，今晚就碰到35玩那个恐怖游戏了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15520,3 +15520,20 @@ yura加yellow，这怎么输
 —— 来自 S1Fun ...</blockquote>
 看mv剧情怎么演咯，💣是这个男满员吧，最坏情况是隔壁说的，nagi和男的演，鱼是完全没参与的第三视角？
 
+
+*****
+
+####  愛さ実  
+##### 11900#       发表于 2023-2-5 14:42
+
+non拍写真总感觉是在假笑<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 11901#       发表于 2023-2-5 14:48
+
+Nagi也有过类似男性对象的演出吧？应该不至于。mv 内容肯定是要事务所审过吧？要是不符合目标粉的内容肯定不同意
+
