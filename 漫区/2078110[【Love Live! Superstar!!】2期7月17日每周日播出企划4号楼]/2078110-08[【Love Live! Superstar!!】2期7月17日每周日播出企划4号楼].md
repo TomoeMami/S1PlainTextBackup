@@ -15901,3 +15901,35 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 三十六天罡星七十二地煞星有在搞吗
 
+
+*****
+
+####  奥柏伦亲王  
+##### 11934#       发表于 2023-2-6 22:25
+
+二期生消息一出很多人都猜最后会扩到12人了，真安排成12星座才正常，不过性格和星座的对应性么，图一乐呗
+
+*****
+
+####  ads147147  
+##### 11935#       发表于 2023-2-6 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59638584&amp;ptid=2078110" target="_blank">P02 发表于 2023-2-6 21:39</a>
+坛友，那份星十二座空缺图。现在还有吗</blockquote>
+去第三个楼里翻吧，大概是七千楼开始，那天简直是地狱绘卷，一晚上睡不着在群里哀嚎。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ads147147  
+##### 11936#       发表于 2023-2-6 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59639113&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-6 22:17</a>
+三十六天罡星七十二地煞星有在搞吗
+草，突然想到，无印的时候台长的那个拉拉好汉歌了，哦 ...</blockquote>
+台长每一代都做了好汉歌。
+实际上德井大爷自己就唱过了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
