@@ -828,3 +828,50 @@ HARD通关了，但是被投资坑了，后面几关根本没钱强化武器和�
 还有想吐槽，这作早期给 ...</blockquote>
 然后你会发现后面敌方术士能二连把你路易秒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狩野すみれ  
+##### 78#       发表于 2023-2-6 12:52
+
+<blockquote>引用第75楼红魔馆的糖于2023-02-06 12:45发表的  :
+
+引用:狩野すみれ 发表于 2023-2-6 12:38一周目L经典，刚过第五章，感觉就靠有戒指的三个......</blockquote>
+就想吐槽这坑真多，初始职业物理的巨乳天马姐姐，要转魔法，初始职业魔法的正太小绿，要转物理
+第一次玩不查攻略，就要被坑…一路正常练级往上转职，只能练出两不沾废人，玩起来真不爽啊
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  kamarus  
+##### 79#       发表于 2023-2-6 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632005&amp;ptid=2117872" target="_blank">灰谷真实 发表于 2023-2-6 12:46</a>
+然后你会发现后面敌方术士能二连把你路易秒了。</blockquote>
+火山爆焰.jpg
+
+*****
+
+####  hugosol  
+##### 80#       发表于 2023-2-6 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631929&amp;ptid=2117872" target="_blank">狩野すみれ 发表于 2023-2-6 12:38</a>
+
+一周目L经典，刚过第五章，感觉就靠有戒指的三个人无双了，其他人只能蹭两下补刀
+
+还有想吐槽，这作早期给 ...</blockquote>
+应该说流程上有些人物就是给你过渡用的，也不用觉得经验给了他们浪费了，发现国内大部分玩家就喜欢看攻略盯着成长最高的人物去练，但这样其实也少了不少乐趣
+
+我还是挺喜欢每个人物都去用一下的，当然超难没那么多资源给你养全部人，但也不至于养不出怪物就死档，更何况这作新系统这么多，能用的破局手法也比以往要多，ai还都是按旧作的思路来行动的，已经很好欺负了，要都还只会站个无敌的回避t把对面全反死也太无聊了
+
+*****
+
+####  红魔馆的糖  
+##### 81#         楼主| 发表于 2023-2-6 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632079&amp;ptid=2117872" target="_blank">狩野すみれ 发表于 2023-2-6 12:52</a>
+就想吐槽这坑真多，初始职业物理的巨乳天马姐姐，要转魔法，初始职业魔法的正太小绿，要转物理
+第一次玩不 ...</blockquote>
+我第一次重开就是因为角色没规划搞废了，虽然不影响过关但是还是忍不了重开了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

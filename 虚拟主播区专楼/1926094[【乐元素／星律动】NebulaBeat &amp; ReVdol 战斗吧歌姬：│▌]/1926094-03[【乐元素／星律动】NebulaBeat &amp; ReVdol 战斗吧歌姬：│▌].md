@@ -240,3 +240,13 @@ B组活了，能跳一个in the light of darkness吗
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3026#       发表于 2023-2-6 12:56
+
+周五厂长回厂3D回
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
