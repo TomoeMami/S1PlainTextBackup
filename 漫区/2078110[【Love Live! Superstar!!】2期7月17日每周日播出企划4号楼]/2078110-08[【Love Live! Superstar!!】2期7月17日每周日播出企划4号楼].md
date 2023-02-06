@@ -15883,3 +15883,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来虹团水瓶座就有3个，霞艾玛岚珠
 
+
+*****
+
+####  Kfly  
+##### 11932#       发表于 2023-2-6 21:56
+
+真和星座有关倒也不是没有可能，这些和角色有关的东西属于夸的时候算锦上添花、骂的时候算火上浇油的额外部分，主要看情况
+
+现在这情况我是夸不起来，所以看着挺无语的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
