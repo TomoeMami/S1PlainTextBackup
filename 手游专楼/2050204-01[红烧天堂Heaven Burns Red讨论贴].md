@@ -22,3 +22,11 @@
 
 爽哦ab联动 ab续作何必是ab<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无意义小号  
+##### 869#       发表于 2023-2-6 10:18
+
+中文要实装了，想要好好玩玩，这个游戏每个月氪多少能玩的比较舒服呀
+

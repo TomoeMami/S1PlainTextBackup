@@ -15677,3 +15677,16 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 乐归乐但总不能说这部分粉丝不多所以就不要了吧，肯定还是慎重点好，指不定就两三个远景 ...</blockquote>
 这种事事务所会衡量，MV肯定已经拍完只等公开，真不会有粉丝就因为这个男演员而罢买CD吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  长日留痕  
+##### 11915#       发表于 2023-2-6 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628419&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-2-6 02:09</a>
+
+网友：鱼和nagi在拍mv（</blockquote>
+社恐三人组。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+记得上次有人偶遇小百合和她打招呼她也是一脸惊讶的样子。果然还是前辈在这方面应付的更游刃有余一点啊。
+
