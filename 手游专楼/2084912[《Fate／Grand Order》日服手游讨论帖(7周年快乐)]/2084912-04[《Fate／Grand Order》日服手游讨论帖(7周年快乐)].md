@@ -5728,3 +5728,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 烟雾镜最大的缺点，就是不能用一破模组+3破宝具，顺带还有216个黑曜石刃</blockquote>
 216个材料现在已经是标准要求了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 5050#       发表于 2023-2-6 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631160&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-6 11:42</a>
+216个材料现在已经是标准要求了吧</blockquote>
+有的是吃金银材料的啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

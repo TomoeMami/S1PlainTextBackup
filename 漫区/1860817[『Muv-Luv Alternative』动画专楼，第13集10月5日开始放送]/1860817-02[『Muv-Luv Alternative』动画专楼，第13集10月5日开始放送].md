@@ -11,3 +11,14 @@
 —— 来自 OnePlus HD1900, Androi ...</blockquote>
 飞机的话推力和升力合力在重心附近就能飞，垂起的时候没有空气升力全靠硬推。然后战术机的那个推力摆动范围实在是大。
 
+
+*****
+
+####  慕容断月  
+##### 2257#       发表于 2023-2-6 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59147943&amp;ptid=1860817" target="_blank">镜hinata 发表于 2022-12-31 04:01</a>
+
+动画播到这里,大约相当于原作的什么进度?</blockquote>
+AL的一半吧
+

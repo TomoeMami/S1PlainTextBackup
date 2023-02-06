@@ -4100,3 +4100,25 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 
 没辅助器10中2
 
+
+*****
+
+####  ff2077  
+##### 395#       发表于 2023-2-6 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631230&amp;ptid=2116452" target="_blank">Onelooker 发表于 2023-2-6 11:46</a>
+而且我操作有问题吗，总觉得连闪很难按啊
+
+没辅助器10中2</blockquote>
+压中节拍后要按节拍连闪，不是中了就能连续按
+
+*****
+
+####  Onelooker  
+##### 396#       发表于 2023-2-6 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631327&amp;ptid=2116452" target="_blank">ff2077 发表于 2023-2-6 11:52</a>
+
+压中节拍后要按节拍连闪，不是中了就能连续按</blockquote>
+第一个闪也要跟节拍按吗
+
