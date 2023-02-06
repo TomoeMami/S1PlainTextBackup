@@ -717,3 +717,17 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 —— 来自 motorola moto g(100), Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
 玩飞侠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊克路西安  
+##### 70#       发表于 2023-2-6 09:14
+
+ 本帖最后由 伊克路西安 于 2023-2-6 09:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629157&amp;ptid=2117129" target="_blank">kuglv 发表于 2023-2-6 08:59</a>
+
+玩飞侠</blockquote>
+其他职业有什么提升跑图体验的技能吗？是不是有个职业能瞬移来着
+
+共通的提升移速是升到70级搞骑宠吗？
+
