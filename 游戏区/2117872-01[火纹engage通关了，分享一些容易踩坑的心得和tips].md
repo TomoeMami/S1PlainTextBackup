@@ -762,3 +762,13 @@ HARD通关了，但是被投资坑了，后面几关根本没钱强化武器和�
 
 困难遭遇战无限刷的 通关前我已经练了好几个小绿人了
 
+
+*****
+
+####  Bojenkins  
+##### 72#       发表于 2023-2-6 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59630774&amp;ptid=2117872" target="_blank">卡奥斯·克斯拉 发表于 2023-2-6 11:15</a>
+超难11章以前哪来的遭遇战啊</blockquote>
+一般情况下杀了四狗，尤娜卡或其他主力等级就飙起来了，后面遭遇战就不好练了，这么个意思
+
