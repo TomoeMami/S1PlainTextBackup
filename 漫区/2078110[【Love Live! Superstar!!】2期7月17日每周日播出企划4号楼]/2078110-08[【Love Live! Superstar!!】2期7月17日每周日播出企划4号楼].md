@@ -15648,3 +15648,21 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 这两人又不是打造百合的人设，gachi粉比例也不算高，一个恋爱主题的MV找男性演员也能炎上。想到之前看到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐归乐但总不能说这部分粉丝不多所以就不要了吧，肯定还是慎重点好，指不定就两三个远景
 
+
+*****
+
+####  s3081260  
+##### 11912#       发表于 2023-2-6 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629511&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-6 09:39</a>
+这两人又不是打造百合的人设，gachi粉比例也不算高，一个恋爱主题的MV找男性演员也能炎上。想到之前看到 ...</blockquote>
+这俩人gachi恋比率是不高，不过百合厨应该不少，看合理花篮在cp里一骑绝尘，双n粉也不少，她俩客串一把应该不会招致反感，就是挺出戏的
+
+*****
+
+####  nufawneafg  
+##### 11913#       发表于 2023-2-6 09:59
+
+一个mv而已...不整大活，也翻不起什么浪
+不过又到了嘲笑笼中鸟情结的时候了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
