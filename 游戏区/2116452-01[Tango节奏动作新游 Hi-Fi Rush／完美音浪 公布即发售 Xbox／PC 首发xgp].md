@@ -4184,3 +4184,33 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 
 三上这徒弟还是别做恐怖游戏了 给我狠狠的出完美音浪续作<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 402#       发表于 2023-2-6 15:33
+
+测试了下替换存档 应该是只需要备份SaveGameSlot1.sav这个文件就行了（为了不记录continue数）
+
+profile.sav应该不会记录continue数字 当然保险的话还是两个都备份好些 毕竟是同时覆写的
+
+*****
+
+####  760194962  
+##### 403#       发表于 2023-2-6 15:36
+
+另外 章节无伤通关的总评小星星好像不会在选关的时候显示？那就无所谓不用追求了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woodcoin  
+##### 404#       发表于 2023-2-6 15:41
+
+这个游戏通关后 ,有些要素才开放收集
+
+就应该给个无剧情模式，再不行手动跳过也可以，结果连能力说明这些都不让跳过
+
+然后每个战点，都应该给个重回checkpoint的选项，就算降关卡评价也好，起码减少练习成本
+
+现在收集和刷分太麻烦了，困难通关后玩两关就没动力了
+
