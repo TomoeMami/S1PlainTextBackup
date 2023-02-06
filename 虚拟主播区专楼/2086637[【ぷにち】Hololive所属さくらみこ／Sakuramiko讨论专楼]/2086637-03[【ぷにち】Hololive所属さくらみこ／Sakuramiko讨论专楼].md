@@ -13194,3 +13194,22 @@ ame早回国了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  holoan  
+##### 4214#         楼主| 发表于 2023-2-6 19:05
+
+？
+
+睡一天
+
+*****
+
+####  rs5621  
+##### 4215#       发表于 2023-2-6 19:06
+
+准备玩啥
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
