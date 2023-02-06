@@ -5585,3 +5585,14 @@ I am your father
 
 黎爷没怎么崩吧，大部分静态都挺好看的
 
+
+*****
+
+####  小小的信义  
+##### 631#       发表于 2023-2-6 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627486&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-2-5 23:41</a>
+
+变光球进骑神在游戏里这么表现我认为是你法能力不足或者偷懒不想做进驾驶舱的过场演出，动画原封不动的还原 ...</blockquote>
+超级系机体光球进驾驶舱很常见吧...
+
