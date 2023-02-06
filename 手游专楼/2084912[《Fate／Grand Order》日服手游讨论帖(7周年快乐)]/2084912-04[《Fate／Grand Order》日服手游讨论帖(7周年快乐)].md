@@ -5982,3 +5982,26 @@ Just Morgan<img src="https://static.saraba1st.com/image/smiley/face2017/088.png"
 
 烟哥人确实不错，但立绘实在是……第二套宝具帅的一比好像还和大姐姐那套宝具互相对应，但三破立绘太死亡了
 
+
+*****
+
+####  budong  
+##### 5070#       发表于 2023-2-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59635350&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-6 17:16</a>
+一破那个鬼畜紧身衣不知道参考的啥，反正挺魔性的...
+
+说实话我宁愿看他带着豹子面具，也比现在这个 ...</blockquote>
+羽蛇神是白镜这设定还在，只是黑镜不想变
+
+
+*****
+
+####  不垃圾屌丝  
+##### 5071#       发表于 2023-2-6 23:47
+
+烟雾镜打烦了，扔了石头
+怎么想到的每回合赌恐怖加强化成功率下降一起来这种出生机制的
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
