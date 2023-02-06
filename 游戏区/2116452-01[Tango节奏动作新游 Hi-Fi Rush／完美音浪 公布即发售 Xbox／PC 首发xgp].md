@@ -4168,3 +4168,11 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 
 比较可惜的是越到后期越难打一套完整的连段，经常打两个轻击重击就被迫格挡or闪避，这也导致我分数很难提上去
 
+
+*****
+
+####  彩虹肥宅  
+##### 400#       发表于 2023-2-6 14:14
+
+火兵这玩意真的好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
