@@ -3935,3 +3935,35 @@ mea说今晚和野男人联动后自己可能播也可能不播，总之一切�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">上次和兰熊互动是什么时候
 
+
+*****
+
+####  古战场亡魂  
+##### 13331#       发表于 2023-2-6 20:42
+
+除了兰熊，都是大号车队的好朋友。
+
+*****
+
+####  古战场亡魂  
+##### 13332#       发表于 2023-2-6 20:48
+
+在低端局掌控雷电
+
+<img src="https://img.saraba1st.com/forum/202302/06/204849xcjqf8rfft1rtfct.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20230206204754682.jpg</strong> (8.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 20:48 上传
+
+image.png
+(10.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202302/06/204804sc5wrr7iwi5rc878.png" referrerpolicy="no-referrer">
+
