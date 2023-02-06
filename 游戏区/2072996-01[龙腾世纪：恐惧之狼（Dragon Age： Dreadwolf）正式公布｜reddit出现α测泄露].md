@@ -605,3 +605,11 @@ dai不就已经动作化了
 怎么和隔壁ff16一样想对系列进行大改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 参考游戏是新战神系列，队友貌似不可控（说是和ff15的系统类似），高质量的过场动画
 
+
+*****
+
+####  ufo2222  
+##### 70#       发表于 2023-2-6 10:38
+
+突然想起，龙腾3的天邈汉化好了没，苦等这个一直没去玩
+
