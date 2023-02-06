@@ -15729,3 +15729,13 @@ EC941D9C-705A-429F-8AFA-C14614E4F67F.jpeg
 
 <img src="https://img.saraba1st.com/forum/202302/06/121954gwdg4dwntthdh2wg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11919#       发表于 2023-2-6 12:25
+
+鲤鱼要拍mv，mv画面上却是nagi与一位男演员演情感戏
+那么鲤鱼呢？粉丝问道
+鲤鱼在画外音里唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
