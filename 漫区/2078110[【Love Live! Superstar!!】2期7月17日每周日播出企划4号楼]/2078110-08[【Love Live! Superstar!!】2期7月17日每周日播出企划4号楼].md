@@ -15666,3 +15666,14 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 一个mv而已...不整大活，也翻不起什么浪
 不过又到了嘲笑笼中鸟情结的时候了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11914#       发表于 2023-2-6 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629545&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-6 09:42</a>
+
+乐归乐但总不能说这部分粉丝不多所以就不要了吧，肯定还是慎重点好，指不定就两三个远景 ...</blockquote>
+这种事事务所会衡量，MV肯定已经拍完只等公开，真不会有粉丝就因为这个男演员而罢买CD吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
