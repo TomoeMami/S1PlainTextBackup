@@ -15760,3 +15760,15 @@ EC941D9C-705A-429F-8AFA-C14614E4F67F.jpeg
 
 娘的，有时候真看不懂日本人儿的社交平台逻辑，一边一堆人跟你讲话有陌生人关注你不安desu一边自己要干啥喜欢谁大摇大摆的挂昵称上
 
+
+*****
+
+####  nufawneafg  
+##### 11922#       发表于 2023-2-6 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59634284&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-6 15:58</a>
+日本人啊别把关键词挂昵称上啊，搜出来几乎都是一个人在讲话，靠！网页端改过搜索逻辑老过滤条件还用不了[f ...</blockquote>
+还真别说，我还真在泥潭见过类似的帖子
+https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
+大概就是用关键字OR排除掉同样昵称的搜索结果
+

@@ -5836,3 +5836,37 @@ y1sy，烟雾镜这剧情塑造、myroom语音加技能组强度，但凡卡面�
 
 其实田岛画各种表情都是完全新绘，算得上上心了，服饰看着也是下了功夫考察的。只能说大部分漫画家不太适合二次元手游这套模式
 
+
+*****
+
+####  Jamaisvu  
+##### 5060#       发表于 2023-2-6 16:57
+
+ 本帖最后由 Jamaisvu 于 2023-2-6 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59634285&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-6 15:59</a>
+
+看隔壁说的，以后好像没解包数据可看了</blockquote>
+B站之前有个up用解包模组玩电子斗蛐蛐（目前已经删光了，动态里有相关解释）：【K8SAY的个人空间-哔哩哔哩】 [https://b23.tv/jN9mHZR](https://b23.tv/jN9mHZR)
+
+以往可能会有人管一管，不过现在普遍乐子人，大家就欣然接受了...
+
+结果那个up用的是其他人的解包软件，现在原作者害怕官方找麻烦，决定取消对于FGO的解包支持...
+
+<img src="https://img.saraba1st.com/forum/202302/06/165527zwanmouudiqnxnnd.jpg" referrerpolicy="no-referrer">
+
+<strong>1675673542262.jpg</strong> (72.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 16:55 上传
+
+目前整活up在与原作者沟通，看看后续如何吧...只要官方不下场还好说...
+
+<img src="https://img.saraba1st.com/forum/202302/06/165527nj058f6j2t3500z6.png" referrerpolicy="no-referrer">
+
+<strong>1675673575991.png</strong> (180.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 16:55 上传
+
