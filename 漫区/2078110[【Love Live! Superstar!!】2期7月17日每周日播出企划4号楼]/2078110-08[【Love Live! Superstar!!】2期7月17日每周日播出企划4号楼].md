@@ -15893,3 +15893,11 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 现在这情况我是夸不起来，所以看着挺无语的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11933#       发表于 2023-2-6 22:17
+
+三十六天罡星七十二地煞星有在搞吗
+
