@@ -15750,3 +15750,13 @@ EC941D9C-705A-429F-8AFA-C14614E4F67F.jpeg
 至于说某些人迁怒鱼 某些人指的是那个某些人的话他们干什么不迁怒鱼 喝水呛着了他们都觉得是鱼的错
 为什么要照顾这帮人的感情<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 11921#       发表于 2023-2-6 15:58
+
+日本人啊别把关键词挂昵称上啊，搜出来几乎都是一个人在讲话，靠！网页端改过搜索逻辑老过滤条件还用不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+娘的，有时候真看不懂日本人儿的社交平台逻辑，一边一堆人跟你讲话有陌生人关注你不安desu一边自己要干啥喜欢谁大摇大摆的挂昵称上
+
