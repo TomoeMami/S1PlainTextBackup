@@ -64,3 +64,11 @@
 
 我买初始快俩月了还好好的，现在买的话一定要带李映夏和旗袍圣华的
 
+
+*****
+
+####  Skyline_R  
+##### 873#       发表于 2023-2-7 04:29
+
+从安卓到iOS到Steam全都显示P21，用移动数据也不行、WiFi也不行、有线网也不行，直连也不行、挂代理也不行，全都显示P21（浏览器打开帮助页面显示Forbidden），有没有什么解决方法<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

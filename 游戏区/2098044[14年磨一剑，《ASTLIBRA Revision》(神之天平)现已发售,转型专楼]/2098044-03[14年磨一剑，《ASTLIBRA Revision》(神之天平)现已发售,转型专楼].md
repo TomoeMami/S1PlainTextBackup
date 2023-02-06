@@ -7128,3 +7128,11 @@ b站专栏搜神之天平</blockquote>
 终章打完所有boss，片尾结束后问是否存档，手抖点到了取消键，全白打了，就不能放个水晶吗 ...</blockquote>
 一样的 之后开了个简单模式直接无双了 只允许手动存档真的很蠢
 
+
+*****
+
+####  空集  
+##### 3601#       发表于 2023-2-7 02:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 实在没靶子又去找了会长 发现我已经可以一枪直接戳死他了 该收拾收拾通关了 独孤求败了属于 
+

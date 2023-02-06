@@ -188,3 +188,16 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 好在还有男二会骂男主伪善
 
+
+*****
+
+####  charlespfan  
+##### 290#       发表于 2023-2-7 05:36
+
+ 本帖最后由 charlespfan 于 2023-2-7 05:39 编辑 
+
+[原创] 为人类而歌唱吧，爱的战士--内藤泰弘与枪神TRIGUN MAXIMUM
+[https://bbs.saraba1st.com/2b/thread-1005599-1-1.html](https://bbs.saraba1st.com/2b/thread-1005599-1-1.html)
+
+搜专楼的时候找到的老帖子，非常全面细致地介绍作者与枪神漫画的文章
+
