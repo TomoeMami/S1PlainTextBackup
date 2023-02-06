@@ -15801,3 +15801,14 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 摩羯人，愤怒了😡
 不过说正经的，日本人确实喜欢玩这种星座啊占卜啊这种玄乎的东西
 
+
+*****
+
+####  ruffian  
+##### 11925#       发表于 2023-2-6 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59635397&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-02-06 17:20:10</a>
+和群里的人讨论加人的事，突然想起之前那个星十二座空缺图，然后就发现现在九个人的性格就挺往星座性格上靠 ...</blockquote>这有点牵强吧？可可我是没看出来占有欲有多强不管是对谁(感觉不如千砂都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
