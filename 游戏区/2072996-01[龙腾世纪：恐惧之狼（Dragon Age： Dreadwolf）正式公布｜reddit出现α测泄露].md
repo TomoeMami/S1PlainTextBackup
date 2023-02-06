@@ -586,3 +586,13 @@ dai不就已经动作化了
 
 3代的系统和ui也差不多阿，反正后期队友基本全酱油，只有主角输出（t），千刀贼瓶子贼或者魔法骑士一个人杀穿副本，队友全部是拿来上状态触发被动的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Guildenstern  
+##### 68#       发表于 2023-2-6 08:23
+
+要求不高，战斗比巫师3强就行。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
