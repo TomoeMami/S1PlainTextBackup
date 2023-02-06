@@ -760,3 +760,16 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 
 —— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kuglv  
+##### 73#       发表于 2023-2-6 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632396&amp;ptid=2117129" target="_blank">Vicarious 发表于 2023-2-6 13:22</a>
+其实现在的冒险岛才是职业同质化越来越严重。。。
+大部分都是180秒爆发周期或者少数240秒周期or极少数不规 ...</blockquote>
+哪有用BUFF周期来批判同质化的，何况大部分职业爆发周期都不一样，而且从英雄职业开始的新职业大部分都有属于自己的一套机制，最同质化的也就4转前的那一小段时间
+
+至于练级路线，这个很大程度上是由地图决定的，极小部分才会因为职业有区别，200级前地图多，还算有多个选择，200级后就这么点地图，那练级路线可不得一样吗
+
