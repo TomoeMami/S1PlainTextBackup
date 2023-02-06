@@ -5605,3 +5605,14 @@ I am your father
 这BGM生怕你不知道黎老师偷偷用掉了一个自由行动日的羁绊点数是吧
 黑兔现在还是漏风小棉袄状态，和闪3入学时候的态度差好远，黎老师起码要砸5个羁绊点下去才行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰谷真实  
+##### 633#       发表于 2023-2-6 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632053&amp;ptid=2050199" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-2-6 12:50</a>
+
+连黎老爷个人回都崩和各种偷懒</blockquote>
+我倒觉得恰恰相反，黎同学和黑兔出场的镜头是少数能看的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
