@@ -4122,3 +4122,25 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 压中节拍后要按节拍连闪，不是中了就能连续按</blockquote>
 第一个闪也要跟节拍按吗
 
+
+*****
+
+####  ff2077  
+##### 397#       发表于 2023-2-6 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631406&amp;ptid=2116452" target="_blank">Onelooker 发表于 2023-2-6 11:57</a>
+第一个闪也要跟节拍按吗</blockquote>
+是的，三连闪都要按对节拍才能，三连闪之后会空一个节拍后就能继续三连闪
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Onelooker| + 1|好评加鹅|
+
+查看全部评分
+
