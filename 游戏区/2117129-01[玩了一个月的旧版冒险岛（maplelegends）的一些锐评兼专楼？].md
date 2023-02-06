@@ -783,3 +783,20 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 
 问下各位有没有纯背景图啊？感激不尽
 
+
+*****
+
+####  kuglv  
+##### 75#       发表于 2023-2-6 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59633891&amp;ptid=2117129" target="_blank">mxdmfml 发表于 2023-2-6 15:29</a>
+
+我非常喜欢冒险岛的背景图，很想收集几张当桌面，可惜找到的背景图都是带有可跳跃平台的，没有纯背景图，
+
+ ...</blockquote>
+[https://m.inven.co.kr/board/maple/2447/4071?iskin=maple](https://m.inven.co.kr/board/maple/2447/4071?iskin=maple)
+
+这里有一些，不过不是很全
+
+你要完全没有平台不太现实，因为平台也是环境的一部分，游戏真的算得上背景的大多只是几层模糊图层，单独提取出来不太能看
+
