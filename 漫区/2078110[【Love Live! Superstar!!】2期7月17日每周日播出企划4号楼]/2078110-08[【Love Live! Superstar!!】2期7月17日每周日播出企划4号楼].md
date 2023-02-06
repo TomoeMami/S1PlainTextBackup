@@ -15637,3 +15637,14 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 旁边不是有个鲤鱼王么</blockquote>
 这两人又不是打造百合的人设，gachi粉比例也不算高，一个恋爱主题的MV找男性演员也能炎上。想到之前看到因为打铁喜欢back number而破防的伊达大叔，真是不能理解又被乐到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 11911#       发表于 2023-2-6 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629511&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-6 09:39</a>
+
+这两人又不是打造百合的人设，gachi粉比例也不算高，一个恋爱主题的MV找男性演员也能炎上。想到之前看到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐归乐但总不能说这部分粉丝不多所以就不要了吧，肯定还是慎重点好，指不定就两三个远景
+
