@@ -5813,3 +5813,26 @@ y1sy，烟雾镜这剧情塑造、myroom语音加技能组强度，但凡卡面�
 
 看隔壁说的，以后好像没解包数据可看了
 
+
+*****
+
+####  rollingusagi  
+##### 5058#       发表于 2023-2-6 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59633569&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-02-06 15:07:50</a>
+y1sy，烟雾镜这剧情塑造、myroom语音加技能组强度，但凡卡面稍微看得过去点都是抽爆，要是卡面强度爆炸或者 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我现在看烟先生比奥伯龙顺眼，菌类垫了整个2.6来塑造的手法我是喜欢不起来，相比之下烟先生是真的很有趣，立绘差分经常看的我想笑，人设又很适合恶搞和迫害，就是确实不符合当今市场的美型风格
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  UNISONIA  
+##### 5059#       发表于 2023-2-6 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59633569&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-6 15:07</a>
+
+y1sy，烟雾镜这剧情塑造、myroom语音加技能组强度，但凡卡面稍微看得过去点都是抽爆，要是卡面强度爆炸或者 ...</blockquote>
+我猜如果不追星的话有可能给画过秋星的小山画。
+
+其实田岛画各种表情都是完全新绘，算得上上心了，服饰看着也是下了功夫考察的。只能说大部分漫画家不太适合二次元手游这套模式
+
