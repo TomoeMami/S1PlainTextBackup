@@ -5705,3 +5705,16 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 按照章节图标左右左右的顺序，黄金树海在左，而迦勒底之门正好在右边，下一站南极有可能是去迦勒底旧址找寻 ...</blockquote>
 冠位现在都不咋够看了，咕哒现在在冥界召唤英灵军团都把ORT这个怪物给揍趴下了，这个只能当餐前甜点来食用了
 
+
+*****
+
+####  exiaexa  
+##### 5048#       发表于 2023-2-6 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629788&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-6 10:08</a>
+总算抽出时间把主线打完了，锁助战虽然一如既往的恶心，不过比2.6还是好点。就是这难度曲线实在是谜，大蝙 ...</blockquote>
+烟雾镜最大的缺点，就是不能用一破模组+3破宝具，顺带还有216个黑曜石刃
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

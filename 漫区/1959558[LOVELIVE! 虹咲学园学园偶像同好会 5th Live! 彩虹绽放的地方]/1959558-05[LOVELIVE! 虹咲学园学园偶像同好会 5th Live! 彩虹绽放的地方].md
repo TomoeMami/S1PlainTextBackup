@@ -2765,3 +2765,13 @@ Day2 厂长 未梦 麻圆
 去SMA水印
 <img src="https://p.sda1.dev/9/b3d81b14de3f275da2e9d4e245f8e1ec/299073157.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dozen  
+##### 7007#       发表于 2023-2-6 11:00
+
+live结束后夜里想了下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+这种仿佛无事发生的处理方式还是令我不舒服，感谢前田最后挽回了点
+之前暗示的正式谈论降板的场合可能就是azn后夜祭了吧，到最后也不是在live这样直面粉丝的场合交代，感到遗憾
+
