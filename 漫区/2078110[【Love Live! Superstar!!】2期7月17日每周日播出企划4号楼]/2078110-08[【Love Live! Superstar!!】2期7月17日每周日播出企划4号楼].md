@@ -15613,3 +15613,14 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 <img src="https://p.sda1.dev/9/a57639a54196e7177d0657372b6dd7c2/CMP_20230206020649076.jpg" referrerpolicy="no-referrer">
 网友：鱼和nagi在拍mv（ <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 11909#       发表于 2023-2-6 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59621386&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-5 15:09</a>
+怎么演个MV都要限定男女演员，有个男性演员出镜都得爆炸的程度吗</blockquote>
+会炎上，还不如找个长得高的女生的来演男人
+旁边不是有个鲤鱼王么
+
