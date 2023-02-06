@@ -5763,3 +5763,26 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 他这么努力不拉满怎么好意思
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5053#       发表于 2023-2-6 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632218&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-6 13:04</a>
+
+他要是个1宝也就算了，可是他3宝了啊
+
+他这么努力不拉满怎么好意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说 人终究还是能的(
+
+*****
+
+####  exiaexa  
+##### 5054#       发表于 2023-2-6 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632292&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-6 13:12</a>
+所以说 人终究还是能的(</blockquote>
+真香.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
