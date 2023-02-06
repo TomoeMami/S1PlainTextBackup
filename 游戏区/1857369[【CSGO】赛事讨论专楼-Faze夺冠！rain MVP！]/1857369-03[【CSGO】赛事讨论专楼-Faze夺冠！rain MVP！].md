@@ -62,3 +62,11 @@ Big这阿努比斯有点东西呀，可惜后面连着几回合被打懵了
 
 蒙古队是真的打国内CS界的耳光<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Eric_方歌阙  
+##### 3139#       发表于 2023-2-6 08:52
+
+这图1，jks真开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

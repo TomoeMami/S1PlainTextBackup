@@ -705,3 +705,15 @@ legends好像也**小小有点问题，想要找到一个相对理想的私服�
 
 —— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kuglv  
+##### 69#       发表于 2023-2-6 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628726&amp;ptid=2117129" target="_blank">伊克路西安 发表于 2023-2-6 07:23</a>
+其实问的是怎么提高移动速度
+
+—— 来自 motorola moto g(100), Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+玩飞侠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

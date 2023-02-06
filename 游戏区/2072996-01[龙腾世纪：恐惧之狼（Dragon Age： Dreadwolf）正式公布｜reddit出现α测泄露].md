@@ -596,3 +596,12 @@ dai不就已经动作化了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ff2077  
+##### 69#       发表于 2023-2-6 08:53
+
+怎么和隔壁ff16一样想对系列进行大改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+参考游戏是新战神系列，队友貌似不可控（说是和ff15的系统类似），高质量的过场动画
+

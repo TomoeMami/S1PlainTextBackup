@@ -5643,3 +5643,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 有么有组织群号啊，萌新求
 
+
+*****
+
+####  UNISONIA  
+##### 5043#       发表于 2023-2-6 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628289&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-6 01:26</a>
+
+按照章节图标左右左右的顺序，黄金树海在左，而迦勒底之门正好在右边，下一站南极有可能是去迦勒底旧址找寻 ...</blockquote>
+其实按照钻头哥山羊兔他们考察，老马那次圣杯战争本来规则应该是和FSN规则近似的，只是废狗世界后世记录的是已经被他认知改变（或者是空想树篡改）过的“虚假的圣杯战争”。
+
