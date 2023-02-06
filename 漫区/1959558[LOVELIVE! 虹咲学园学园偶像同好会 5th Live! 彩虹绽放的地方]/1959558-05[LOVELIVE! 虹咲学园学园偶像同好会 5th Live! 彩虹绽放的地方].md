@@ -2775,3 +2775,21 @@ live结束后夜里想了下<img src="https://static.saraba1st.com/image/smiley/
 这种仿佛无事发生的处理方式还是令我不舒服，感谢前田最后挽回了点
 之前暗示的正式谈论降板的场合可能就是azn后夜祭了吧，到最后也不是在live这样直面粉丝的场合交代，感到遗憾
 
+
+*****
+
+####  DarthAka  
+##### 7008#       发表于 2023-2-6 11:45
+
+那要咋样，全场陪着哭丧？
+
+*****
+
+####  toshima  
+##### 7009#       发表于 2023-2-6 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631207&amp;ptid=1959558" target="_blank">DarthAka 发表于 2023-2-6 11:45</a>
+
+那要咋样，全场陪着哭丧？</blockquote>
+邦当初有利息换由贵的时候还专门整个交接仪式，不过这对你拉拉运营来说要求太高了，反正人情味的事情真的一点都不干，全靠艺人自己发挥
+
