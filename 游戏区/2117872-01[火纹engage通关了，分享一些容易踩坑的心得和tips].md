@@ -803,3 +803,28 @@ HARD通关了，但是被投资坑了，后面几关根本没钱强化武器和�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  红魔馆的糖  
+##### 76#         楼主| 发表于 2023-2-6 12:45
+
+ 本帖最后由 红魔馆的糖 于 2023-2-6 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631929&amp;ptid=2117872" target="_blank">狩野すみれ 发表于 2023-2-6 12:38</a>
+一周目L经典，刚过第五章，感觉就靠有戒指的三个人无双了，其他人只能蹭两下补刀
+
+还有想吐槽，这作早期给 ...</blockquote>
+早期入队的这些人都是要前期规划后期bd的，天马速度底子好，后期转依靠魔力转法骑，靠补正打拳，或者维持天马高速用后期的真伤戒指都还行，小红水桶腰后期转勇士拿光弓和长弓也不错。总之还是数值游戏，给多少资源转化多少战斗力
+
+*****
+
+####  灰谷真实  
+##### 77#       发表于 2023-2-6 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631929&amp;ptid=2117872" target="_blank">狩野すみれ 发表于 2023-2-6 12:38</a>
+
+一周目L经典，刚过第五章，感觉就靠有戒指的三个人无双了，其他人只能蹭两下补刀
+
+还有想吐槽，这作早期给 ...</blockquote>
+然后你会发现后面敌方术士能二连把你路易秒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

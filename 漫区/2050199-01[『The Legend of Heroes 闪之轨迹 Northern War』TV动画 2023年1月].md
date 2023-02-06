@@ -5569,3 +5569,11 @@ I am your father
 变光球进骑神在游戏里这么表现我认为是你法能力不足或者偷懒不想做进驾驶舱的过场演出，动画原封不动的还原 ...</blockquote>
 王尼玛根本就没有能打开的地方 不变光球还能怎么进驾驶舱啊…
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 629#       发表于 2023-2-6 12:50
+
+连黎老爷个人回都崩和各种偷懒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

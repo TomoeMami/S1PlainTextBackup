@@ -5739,3 +5739,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 有的是吃金银材料的啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5051#       发表于 2023-2-6 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631419&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-6 11:58</a>
+
+有的是吃金银材料的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么回事 还要拉满他 说好的 人至少不能呢
+

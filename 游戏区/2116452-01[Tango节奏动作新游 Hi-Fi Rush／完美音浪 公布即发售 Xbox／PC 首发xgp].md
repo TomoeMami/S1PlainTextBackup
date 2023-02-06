@@ -4144,3 +4144,15 @@ xgp云是不是有什么神必加成啊<img src="https://static.saraba1st.com/im
 
 查看全部评分
 
+
+*****
+
+####  760194962  
+##### 398#       发表于 2023-2-6 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59631672&amp;ptid=2116452" target="_blank">ff2077 发表于 2023-2-6 12:16</a>
+是的，三连闪都要按对节拍才能，三连闪之后会空一个节拍后就能继续三连闪 ...</blockquote>
+我喜欢第三拍的时候加个轻击
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
