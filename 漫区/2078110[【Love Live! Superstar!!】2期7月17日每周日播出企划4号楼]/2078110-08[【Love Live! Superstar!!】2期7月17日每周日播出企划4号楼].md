@@ -15624,3 +15624,16 @@ non拍写真总感觉是在假笑，不知道是妆造还是本身不太会拍�
 会炎上，还不如找个长得高的女生的来演男人
 旁边不是有个鲤鱼王么
 
+
+*****
+
+####  starring  
+##### 11910#       发表于 2023-2-6 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59629179&amp;ptid=2078110" target="_blank">蒸汽投石BuBu車 发表于 2023-2-6 09:03</a>
+
+会炎上，还不如找个长得高的女生的来演男人
+
+旁边不是有个鲤鱼王么</blockquote>
+这两人又不是打造百合的人设，gachi粉比例也不算高，一个恋爱主题的MV找男性演员也能炎上。想到之前看到因为打铁喜欢back number而破防的伊达大叔，真是不能理解又被乐到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
