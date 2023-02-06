@@ -5974,3 +5974,11 @@ DE937720-40F7-4706-A902-FA995AB73444.jpeg
 巴萨卡只要一个就够了</blockquote>
 Just Morgan<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 5069#       发表于 2023-2-6 19:30
+
+烟哥人确实不错，但立绘实在是……第二套宝具帅的一比好像还和大姐姐那套宝具互相对应，但三破立绘太死亡了
+
