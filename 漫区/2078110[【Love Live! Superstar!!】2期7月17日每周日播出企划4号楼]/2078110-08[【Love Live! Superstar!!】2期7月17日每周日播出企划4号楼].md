@@ -15830,3 +15830,18 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 11927#       发表于 2023-2-6 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59635818&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-6 17:50</a>
+摩羯人，愤怒了😡
+不过说正经的，日本人确实喜欢玩这种星座啊占卜啊这种玄乎的东西 ...</blockquote>
+是，日本人就特玄乎这些。所以说真要是要这样当人设和剧情推动来写也不是不能理解。比如我们很难理解可堇互怼，但是喜欢星座的就觉得这样很正常啊，她们就是互冲的星座，可能这样吧。
+
+不过这东西只能说是拿去找补，多少多点合理性。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
