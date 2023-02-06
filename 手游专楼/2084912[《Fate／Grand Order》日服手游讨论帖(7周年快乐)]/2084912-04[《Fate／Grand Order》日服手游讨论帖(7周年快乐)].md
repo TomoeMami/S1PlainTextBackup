@@ -5786,3 +5786,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 真香.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 5055#       发表于 2023-2-6 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628379&amp;ptid=2084912" target="_blank">lv7 发表于 2023-2-6 01:53</a>
+
+有么有组织群号啊，萌新求</blockquote>
+602677219
+
