@@ -13346,3 +13346,22 @@ tybf看了都要打人
 
 还是这群观众有意思
 
+
+*****
+
+####  holoan  
+##### 4227#         楼主| 发表于 2023-2-6 21:47
+
+霍格沃茨据说评价不好？
+
+不知道播起来效果如何
+
+*****
+
+####  a2276382  
+##### 4228#       发表于 2023-2-6 21:49
+
+怎么说呢 如果是哈利系统粉丝 肯定是好的作品 如果是路人就见仁见智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

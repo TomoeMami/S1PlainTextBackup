@@ -15865,3 +15865,21 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 <strong>但是没想到星团真的这么做了</strong>
 
+
+*****
+
+####  P02  
+##### 11930#       发表于 2023-2-6 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59638614&amp;ptid=2078110" target="_blank">牛李 发表于 2023-2-6 21:41</a>
+
+这么说吧当初二期生的消息刚出来的时候，泥漏有人直接骂一句“为什么不来十二星座”，然后造假药说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实也不是没根据的，主要是真没重复的
+
+*****
+
+####  cxj649  
+##### 11931#       发表于 2023-2-6 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来虹团水瓶座就有3个，霞艾玛岚珠
+
