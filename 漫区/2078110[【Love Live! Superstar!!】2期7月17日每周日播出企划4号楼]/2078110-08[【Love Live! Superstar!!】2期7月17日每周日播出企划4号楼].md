@@ -15845,3 +15845,23 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  P02  
+##### 11928#       发表于 2023-2-6 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59635397&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-6 17:20</a>
+
+和群里的人讨论加人的事，突然想起之前那个星十二座空缺图，然后就发现现在九个人的性格就挺往星座性格上靠 ...</blockquote>
+坛友，那份星十二座空缺图。现在还有吗
+
+*****
+
+####  牛李  
+##### 11929#       发表于 2023-2-6 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么说吧当初二期生的消息刚出来的时候，泥漏有人直接骂一句“为什么不来十二星座”，然后造假药说什么以后12个人，按大部分人来说，都觉得是气话
+
+<strong>但是没想到星团真的这么做了</strong>
+
