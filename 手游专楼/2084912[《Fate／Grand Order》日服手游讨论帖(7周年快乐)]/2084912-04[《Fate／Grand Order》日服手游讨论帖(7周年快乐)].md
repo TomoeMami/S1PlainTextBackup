@@ -5870,3 +5870,16 @@ B站之前有个up用解包模组玩电子斗蛐蛐（目前已经删光了，�
 
 2023-2-6 16:55 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 5061#       发表于 2023-2-6 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59634876&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2023-2-6 16:44</a>
+
+反正我现在看烟先生比奥伯龙顺眼，菌类垫了整个2.6来塑造的手法我是喜欢不起来，相比之下烟先生是真 ...</blockquote>
+有趣的灵魂百里挑一<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+难看的皮囊万里挑一<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
