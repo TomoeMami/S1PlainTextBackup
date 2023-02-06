@@ -613,3 +613,22 @@ dai不就已经动作化了
 
 突然想起，龙腾3的天邈汉化好了没，苦等这个一直没去玩
 
+
+*****
+
+####  BK10  
+##### 71#       发表于 2023-2-6 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59630184&amp;ptid=2072996" target="_blank">ufo2222 发表于 2023-2-6 10:38</a>
+突然想起，龙腾3的天邈汉化好了没，苦等这个一直没去玩</blockquote>
+贴吧接手了，在做
+
+*****
+
+####  BK10  
+##### 72#       发表于 2023-2-6 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59630184&amp;ptid=2072996" target="_blank">ufo2222 发表于 2023-2-6 10:38</a>
+突然想起，龙腾3的天邈汉化好了没，苦等这个一直没去玩</blockquote>
+贴吧接手了，在做
+

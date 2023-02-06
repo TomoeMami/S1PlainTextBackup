@@ -5694,3 +5694,14 @@ ort最终战有帝王花的话也可以单挑非常安逸</blockquote>
 
 剧情方面感观还行，一方面是上下部间隔没有2.6那么夸张，另一方面控制了登场人物数量，有没有套皮“新人物”，主要人物刻画给得挺足。说真的，烟雾镜大哥人设剧情真的很戳我XP，又潮又谐，平时有点癫，但关键问题又不马虎，和戴维这个闷葫芦简直绝配。只可惜这个卡面啊，算了0破卡面加模组，勉强能用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 5047#       发表于 2023-2-6 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59628289&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-6 01:26</a>
+
+按照章节图标左右左右的顺序，黄金树海在左，而迦勒底之门正好在右边，下一站南极有可能是去迦勒底旧址找寻 ...</blockquote>
+冠位现在都不咋够看了，咕哒现在在冥界召唤英灵军团都把ORT这个怪物给揍趴下了，这个只能当餐前甜点来食用了
+
