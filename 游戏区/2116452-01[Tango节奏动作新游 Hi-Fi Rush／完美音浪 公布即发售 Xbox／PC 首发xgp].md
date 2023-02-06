@@ -4257,3 +4257,13 @@ profile.sav应该不会记录continue数字 当然保险的话还是两个都备
 
 有没有老哥说说绯句是个啥玩意，感觉不出啥节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cranberries  
+##### 410#       发表于 2023-2-6 20:59
+
+不懂啥技术，这游戏的画面的动画观感太好了。
+
+xjb乱按都挺爽。
+
