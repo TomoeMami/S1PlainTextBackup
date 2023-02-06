@@ -13321,3 +13321,28 @@ ame早回国了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个玛琳箱有创意
 
+
+*****
+
+####  rs5621  
+##### 4225#       发表于 2023-2-6 21:29
+
+<img src="https://img.saraba1st.com/forum/202302/06/212935f84o1cogooffz1c5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 21:29 上传
+
+tybf看了都要打人
+
+*****
+
+####  holoan  
+##### 4226#         楼主| 发表于 2023-2-6 21:30
+
+这是wwe里miko捏的kanata形象
+
+还是这群观众有意思
+
