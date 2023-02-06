@@ -714,3 +714,11 @@ HARD通关了，但是被投资坑了，后面几关根本没钱强化武器和�
 
 —— 来自 OPPO PAFM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  svmkty  
+##### 67#       发表于 2023-2-6 10:53
+
+谢大佬总结
+
