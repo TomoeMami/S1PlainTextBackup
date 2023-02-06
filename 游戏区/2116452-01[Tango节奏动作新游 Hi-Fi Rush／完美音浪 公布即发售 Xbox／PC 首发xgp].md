@@ -4297,3 +4297,15 @@ xjb乱按都挺爽。
 
 goty
 
+
+*****
+
+####  Cranberries  
+##### 414#       发表于 2023-2-7 00:21
+
+<img src="https://s1.ax1x.com/2023/02/07/pSgZfC4.png" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2023/02/07/pSgZ2UU.png" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2023/02/07/pSgZXPe.png" referrerpolicy="no-referrer">
+
+睡了，游戏做得很好，动画演出真不错。
+
