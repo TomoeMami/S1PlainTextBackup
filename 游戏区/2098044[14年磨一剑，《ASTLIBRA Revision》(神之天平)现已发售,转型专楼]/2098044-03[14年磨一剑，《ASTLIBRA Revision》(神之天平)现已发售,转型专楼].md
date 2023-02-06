@@ -7117,3 +7117,14 @@ b站专栏搜神之天平</blockquote>
 
 说实话，这游戏属性没上限，大量强化卖装备刷武器盘根本没必要，你就算正常打指令拳或者光剑成型之后整个荒谬就没怪够你打的
 
+
+*****
+
+####  South_of_Asia  
+##### 3600#       发表于 2023-2-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59517626&amp;ptid=2098044" target="_blank">sigh 发表于 2023-1-28 16:52</a>
+
+终章打完所有boss，片尾结束后问是否存档，手抖点到了取消键，全白打了，就不能放个水晶吗 ...</blockquote>
+一样的 之后开了个简单模式直接无双了 只允许手动存档真的很蠢
+
