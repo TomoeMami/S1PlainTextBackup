@@ -15812,3 +15812,21 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ruffian  
+##### 11926#       发表于 2023-2-6 18:48
+
+不过星座这种东西真的有人特别相信啊……我是有点不太能理解
+
+(与题无关，就是突然想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+年前去见一个发小，突然问我什么星座
+我：射手吧？
+她：啊？你咋是射手啊？射手都可渣
+我：？
+她：可能是你没谈过恋爱所以不知道自己渣
+我：？？？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
