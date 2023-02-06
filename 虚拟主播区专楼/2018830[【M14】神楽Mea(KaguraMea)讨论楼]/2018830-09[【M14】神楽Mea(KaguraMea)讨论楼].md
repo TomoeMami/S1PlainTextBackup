@@ -4029,3 +4029,12 @@ image.png
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 13340#       发表于 2023-2-7 00:50
+
+一转partygame
+今天拿了一次五杀
+
