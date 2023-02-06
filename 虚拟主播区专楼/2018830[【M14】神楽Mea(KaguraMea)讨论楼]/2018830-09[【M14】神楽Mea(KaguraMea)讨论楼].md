@@ -4019,3 +4019,13 @@ image.png
 
 来点兰mea本子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十九号大侠  
+##### 13339#       发表于 2023-2-6 22:46
+
+哈哈哈哈
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

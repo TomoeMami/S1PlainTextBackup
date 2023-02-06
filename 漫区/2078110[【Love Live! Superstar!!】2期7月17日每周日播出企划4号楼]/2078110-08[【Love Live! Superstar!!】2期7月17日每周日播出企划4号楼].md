@@ -15933,3 +15933,38 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  stygian  
+##### 11937#       发表于 2023-2-6 22:48
+
+<img src="https://img.saraba1st.com/forum/202302/06/224716mjbodmggh3d5kmd5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 22:47 上传
+
+这个吧，我当时还把一巡时候开场十二星组成裂啦logo截图给推上的日本阿宅看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  P02  
+##### 11938#       发表于 2023-2-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59639224&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-6 22:26</a>
+
+去第三个楼里翻吧，大概是七千楼开始，那天简直是地狱绘卷，一晚上睡不着在群里哀嚎。
+
+—— 来自 OPPO P ...</blockquote>
+前3个楼都在内容审核中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我的账号问题吗
+
+*****
+
+####  lj205  
+##### 11939#       发表于 2023-2-6 22:50
+
+鲤鱼又开始深夜打工模式
+
