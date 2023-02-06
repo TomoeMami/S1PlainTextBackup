@@ -5883,3 +5883,32 @@ B站之前有个up用解包模组玩电子斗蛐蛐（目前已经删光了，�
 
 难看的皮囊万里挑一<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 5062#       发表于 2023-2-6 17:16
+
+ 本帖最后由 Jamaisvu 于 2023-2-6 17:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59634902&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-6 16:46</a>
+
+我猜如果不追星的话有可能给画过秋星的小山画。
+
+其实田岛画各种表情都是完全新绘，算得上上心了，服饰看 ...</blockquote>
+一破那个鬼畜紧身衣不知道参考的啥，反正挺魔性的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">...
+
+说实话我宁愿看他带着豹子面具，也比现在这个死妈脸顺眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（主线关卡里好像有戴面具的模型，估计以后会出简易灵衣）
+
+不过三破这个造型就有点违和。按照神话，众神在创世纪前击杀了鳄鱼怪，而烟雾镜为此献出了一只脚，看宝具动画三破应该是他作为第一太阳神的形态，但是脚还好好的...也许三破那个受肉状态下重拾神格的状态，所以肉身是完整的？
+
+模组倒还挺用心，一破用黑曜石义肢踹人的动作在三破换成了用长矛捅。
+
+*****
+
+####  quanlix  
+##### 5063#       发表于 2023-2-6 17:20
+
+又去逛了一圈，好像急的都是不看具体机制和配置就不打图的人和专门玩计算器的人
+
