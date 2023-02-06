@@ -3989,3 +3989,17 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">已经脑补出本子剧情了
 
+
+*****
+
+####  古战场亡魂  
+##### 13336#       发表于 2023-2-6 21:04
+
+<img src="https://img.saraba1st.com/forum/202302/06/210412ei6ree2e2em2rr95.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20230206210343505.jpg</strong> (112.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-6 21:04 上传
+
