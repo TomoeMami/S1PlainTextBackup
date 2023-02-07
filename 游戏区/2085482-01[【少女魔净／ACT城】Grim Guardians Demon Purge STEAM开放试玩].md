@@ -677,3 +677,25 @@ demo通了，一共两关
 
 还么下demo，但boss技能不知道怎么躲？我的苍蓝雷霆ptsd要犯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oidoid  
+##### 65#       发表于 2023-2-7 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59647769&amp;ptid=2085482" target="_blank">shlyy123 发表于 2023-2-7 16:00</a>
+
+这是银河城还是老恶魔城</blockquote>
+最接近的模式还是恶魔城3吧
+
+*****
+
+####  格雷殿下  
+##### 66#       发表于 2023-2-7 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我知道蝙蝠技能怎么躲
+
+飞过来撞人那个蹲下就行了
+
+射4次小蝙蝠那个早点跳就行了
+
