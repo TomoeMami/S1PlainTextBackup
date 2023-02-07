@@ -6365,3 +6365,96 @@ nmd说好的四星up呢
 啥 非萌很就没new了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我抽光石头护符勉强出了 羡慕萌新随便出货啊
 
+
+*****
+
+####  里村紅葉  
+##### 5107#       发表于 2023-2-7 17:13
+
+<img src="https://img.saraba1st.com/forum/202302/07/171234mkmyssjrkjqrk56k.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230207171216.jpg</strong> (364.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 17:12 上传
+
+雨神3宝，等6绊就可以开二被动开冲了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5108#       发表于 2023-2-7 17:14
+
+<img src="https://img.saraba1st.com/forum/202302/07/171254f0lezjhrlfdylbdr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230207_171241.jpg</strong> (145 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 17:12 上传
+
+该来的还是来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+以后可以放心地用一破造型了（不是）
+
+*****
+
+####  alucardcz  
+##### 5109#       发表于 2023-2-7 17:14
+
+烟雾镜居然还有个灵衣本。。。这关卡界面差点把我吓死
+
+*****
+
+####  森兰丸  
+##### 5110#       发表于 2023-2-7 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648960&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:10</a>
+
+那我又要来了  5宝限定！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都1年多了早就过了时效了
+
+*****
+
+####  保罗赫伯特  
+##### 5111#       发表于 2023-2-7 17:16
+
+烟雾镜带上面具还是怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5112#       发表于 2023-2-7 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 大姐姐只要45个新材料
+
+*****
+
+####  Jamaisvu  
+##### 5113#       发表于 2023-2-7 17:21
+
+库库尔坎的声优竟然不是远藤绫，而是诹访彩花...看来是要切割成两个人了。
+
+（毕竟魁扎尔算是外星植物生命，库库尔坎是ORT心脏。）
+
+*****
+
+####  里村紅葉  
+##### 5114#       发表于 2023-2-7 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649122&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:20</a>
+
+好消息 大姐姐只要45个新材料</blockquote>
+太阳皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5115#       发表于 2023-2-7 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649122&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:20</a>
+
+好消息 大姐姐只要45个新材料</blockquote>
+你少算了满破再临需要的十个太阳皮，55个啦。
+
