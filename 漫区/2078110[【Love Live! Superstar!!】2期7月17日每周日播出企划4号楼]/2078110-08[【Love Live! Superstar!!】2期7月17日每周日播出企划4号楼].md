@@ -15994,3 +15994,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ads147147  
+##### 11943#       发表于 2023-2-7 08:05
+
+不是很懂这种洁癖感从何而来。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
