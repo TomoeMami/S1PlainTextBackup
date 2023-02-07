@@ -7027,3 +7027,11 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 被特佩乌直死秒掉的血条还正好是第十七条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 5174#       发表于 2023-2-8 06:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就90石头啥也没出，然后凑凑最后十连来了两羽蛇神
+
