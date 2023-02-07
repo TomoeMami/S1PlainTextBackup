@@ -13444,3 +13444,42 @@ PS5可以提前玩啊
 
 2023-2-7 10:57 上传
 
+
+*****
+
+####  holoan  
+##### 4235#         楼主| 发表于 2023-2-7 17:59
+
+随便打开个马自立的MC直播就开始夸miko
+
+还是夸声音
+
+*****
+
+####  rs5621  
+##### 4236#       发表于 2023-2-7 18:00
+
+看了别人发哈利波特的截图，法术还能打人裆部，有点意思。35玩得时候估计整不少好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4237#         楼主| 发表于 2023-2-7 18:01
+
+<img src="https://img.saraba1st.com/forum/202302/07/180107rojchyyemk3pjto0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 18:01 上传
+
+*****
+
+####  holoan  
+##### 4238#         楼主| 发表于 2023-2-7 18:01
+
+先马3通关了再说哈利波特吧
+

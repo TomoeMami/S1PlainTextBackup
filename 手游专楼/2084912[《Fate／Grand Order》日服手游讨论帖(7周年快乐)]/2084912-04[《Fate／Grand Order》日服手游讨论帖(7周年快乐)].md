@@ -6683,3 +6683,41 @@ nmd说好的四星up呢
 一会儿没看，发现大家都这么欧的么</blockquote>
 除了我都是海豹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 5139#       发表于 2023-2-7 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649520&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-7 17:47</a>
+
+好狗啊 不愧是5宝王姐的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒....你被萌新催眠了
+
+*****
+
+####  森兰丸  
+##### 5140#       发表于 2023-2-7 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649593&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:51</a>
+
+欧皇依然那么欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新这不比我欧的更早么
+
+*****
+
+####  alucardcz  
+##### 5141#       发表于 2023-2-7 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649657&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-7 17:55</a>
+
+萌新这不比我欧的更早么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本非萌就个1宝 扔仓库的  哪像欧皇不是5宝就是3宝 能比吗
+
+*****
+
+####  里村紅葉  
+##### 5142#       发表于 2023-2-7 17:59
+
+娘希匹，我白芙芙都没库存了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
