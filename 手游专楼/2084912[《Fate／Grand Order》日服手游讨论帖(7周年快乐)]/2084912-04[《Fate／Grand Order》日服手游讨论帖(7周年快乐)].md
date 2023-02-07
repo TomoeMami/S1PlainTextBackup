@@ -6772,3 +6772,24 @@ nmd说好的四星up呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼了怎么就一个大佬非其他全是海豹呢  看着都想去抽2宝了。。又想了想2宝也是扔仓库的只能算了
 
+
+*****
+
+####  黑上シグマ  
+##### 5149#       发表于 2023-2-7 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650071&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 18:24</a>
+
+这楼了怎么就一个大佬非其他全是海豹呢  看着都想去抽2宝了。。又想了想2宝也是扔仓库的只能算了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一个豹的不就是你这混球吗
+
+*****
+
+####  alucardcz  
+##### 5150#       发表于 2023-2-7 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650169&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-7 18:32</a>
+
+第一个豹的不就是你这混&amp;#x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但萌新就开个图鉴啊？
+
