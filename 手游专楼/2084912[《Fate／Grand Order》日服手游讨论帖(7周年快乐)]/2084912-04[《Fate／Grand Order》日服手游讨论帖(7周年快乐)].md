@@ -6183,3 +6183,26 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 这垃圾运营是整不出什么新活了是吧....油管账号2小时前上传了个视频还以为是什么....点进去一看就是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等会17点说不定又要登顶了 为什么要站起来？
 
+
+*****
+
+####  UNISONIA  
+##### 5088#       发表于 2023-2-7 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59645667&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-7 13:36</a>
+
+这垃圾运营是整不出什么新活了是吧....油管账号2小时前上传了个视频还以为是什么....点进去一看就是 ...</blockquote>
+这个动作是没问题的，如果你平时有在用推而且fo了废狗官号+平时搜废狗内容多的话，应该能注意到去年年末推送给你的FGO官方广告开始掺杂第一部的了（船长、小莫这种）
+
+应该是金沢去年底开始的新宣传策略里的内容，为什么要那么做就不清楚了
+
+*****
+
+####  里村紅葉  
+##### 5089#       发表于 2023-2-7 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59647638&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-7 15:52</a>
+
+这个动作是没问题的，如果你平时有在用推而且fo了废狗官号+平时搜废狗内容多的话，应该能注意到去年年末 ...</blockquote>
+死鱼扑腾几下告诉别人自己还活着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
