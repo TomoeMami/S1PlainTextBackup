@@ -6533,3 +6533,57 @@ nmd说好的四星up呢
 （毕竟魁扎尔算是外星植物生命 ...</blockquote>
 看剧情里这个新羽蛇神也能沟通外星细菌的集群意志，虽然不太理解为什么能做到
 
+
+*****
+
+####  仰望神的括约肌  
+##### 5124#       发表于 2023-2-7 17:33
+
+80连唯一金卡大姐姐 剩下的留着等所长了
+
+*****
+
+####  khxooo  
+##### 5125#       发表于 2023-2-7 17:33
+
+210石，只有2宝雨神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 5126#       发表于 2023-2-7 17:36
+
+90石+20呼符，雨神3宝、1大姐姐，然后意外new了个黄飞虎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5127#       发表于 2023-2-7 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649122&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:20</a>
+好消息 大姐姐只要45个新材料</blockquote>
+坏消息，和城市精撞材料
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5128#       发表于 2023-2-7 17:38
+
+卧槽我看到两个好友挂了30+10的烟雾镜，这什么秃子
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 5129#       发表于 2023-2-7 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没想到那被动竟然一点都不改的直接就出来了 
+
+*****
+
+####  alucardcz  
+##### 5130#       发表于 2023-2-7 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然原封不动落地 那隔壁会有大戏能看吗
+
