@@ -296,3 +296,14 @@ B组活了，能跳一个in the light of darkness吗
 
 感觉自己心态变了，她不再是九夏就没有支持的动力，歌听到一半就关了
 
+
+*****
+
+####  MinFOrder  
+##### 3032#       发表于 2023-2-8 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654891&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-2-8 00:29</a>
+
+感觉自己心态变了，她不再是九夏就没有支持的动力，歌听到一半就关了</blockquote>
+一样的，独唱我还有耐心听完，联合投稿听一半也不想听了
+

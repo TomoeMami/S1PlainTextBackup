@@ -242,3 +242,15 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  meaninglessd  
+##### 295#       发表于 2023-2-8 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59627609&amp;ptid=2076121" target="_blank">有钱多买小人 发表于 2023-2-5 23:57</a>
+你再想想牧师他兄弟是怎么活下来的？</blockquote>
+看到那一段我就觉得有腐女氪vash和wolfwood的CP是情有可原的……刀太狠了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
