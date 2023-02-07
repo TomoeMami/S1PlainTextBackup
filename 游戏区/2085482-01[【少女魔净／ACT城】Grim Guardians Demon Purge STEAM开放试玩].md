@@ -699,3 +699,23 @@ demo通了，一共两关
 
 射4次小蝙蝠那个早点跳就行了
 
+
+*****
+
+####  电磁炮233  
+##### 67#       发表于 2023-2-7 16:15
+
+最近玩了一堆高机动性的2D游戏，现在用这废物机体打怪浑身难受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wiksy  
+##### 68#       发表于 2023-2-7 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59647663&amp;ptid=2085482" target="_blank">姬茧墨 发表于 2023-2-7 15:54</a>
+
+demo通了，一共两关
+
+未探索区域还是挺多的，还是传统的后期拿到钥匙再回到前面拿道具</blockquote>
+要怎么复活？我好像见到某块教学版上提过一句但是不知道摔进坑里的人要怎么复活，只能硬着头皮往前跑（然后挂掉）
+
