@@ -6025,3 +6025,23 @@ Just Morgan<img src="https://static.saraba1st.com/image/smiley/face2017/088.png"
 
 ort我一开始就五星三个三个上尽量一回合爆破打到最后都有富余 就是一阶段就把拐用完了二阶段有些磨人
 
+
+*****
+
+####  Jamaisvu  
+##### 5074#       发表于 2023-2-7 11:19
+
+<img src="https://img.saraba1st.com/forum/202302/07/111623xwcayrjrnywrrrcn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230207_111541.jpg</strong> (339.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 11:16 上传
+
+今天是田岛昭宇老师的生日。
+
+给FGO供稿也算是他漫画家生涯中浓墨重彩的一笔了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">。
+
+（虽然上色很浅...）
+
