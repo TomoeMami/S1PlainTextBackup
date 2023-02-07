@@ -747,3 +747,22 @@ demo通了，一共两关
 
 我看了OP，里面出现了GALGUN系列全部主角，我得把GALGUN全玩一遍了
 
+
+*****
+
+####  cmyk1234  
+##### 72#         楼主| 发表于 2023-2-7 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648290&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-2-7 16:32</a>
+我看了OP，里面出现了GALGUN系列全部主角，我得把GALGUN全玩一遍了</blockquote>
+好像没见到一代的女主野野宫奏美。
+
+*****
+
+####  cmyk1234  
+##### 73#         楼主| 发表于 2023-2-7 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648018&amp;ptid=2085482" target="_blank">电磁炮233 发表于 2023-2-7 16:15</a>
+最近玩了一堆高机动性的2D游戏，现在用这废物机体打怪浑身难受</blockquote>
+比月之诅咒强，月之诅咒的跳跃不能转体。
+
