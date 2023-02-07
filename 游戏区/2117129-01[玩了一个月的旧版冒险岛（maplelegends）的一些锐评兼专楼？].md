@@ -882,3 +882,39 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 不，我差不多是当时的开服玩家了。那时候还没有三转的，三转起码是我玩了差不多一年才上的。可能 ...</blockquote>
 我也是玩刀飞，图的就是六连斩帅啊，这游戏远程职业都不怎么好玩，法师算好的，标飞弓手怪物近身不能射击神烦~~~~
 
+
+*****
+
+####  topia  
+##### 82#       发表于 2023-2-7 16:55
+
+这游戏音乐现在还有几首有印象的
+
+但我记得最傻逼的是当年盛大好像改了经验倍率<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuglv  
+##### 83#       发表于 2023-2-7 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59647672&amp;ptid=2117129" target="_blank">mhss 发表于 2023-2-7 15:54</a>
+
+以前玩的战士二转选了剑客，觉得终极剑这技能名字好牛X，升级点满！结果被打怪后技能发动砍空气的硬直恶心 ...</blockquote>
+没印象有加速过，就算真有那也是100来个版本后的事了，那时候前期的这种前期的忍耐任务已经没有意义了，奖励太少，后面倒是有一些，速度也正常
+
+*****
+
+####  Vicarious  
+##### 84#       发表于 2023-2-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59632541&amp;ptid=2117129" target="_blank">kuglv 发表于 2023-2-6 13:37</a>
+哪有用BUFF周期来批判同质化的，何况大部分职业爆发周期都不一样，而且从英雄职业开始的新职业大部分都有 ...</blockquote>
+本质玩法都一样
+用一样的路线练级，一样的思路搞装备，打boss也基本就分偏爆发和偏持续，大部分职业都是开场打一波，然后等180s，一轮武公+塔戒配合绑技再来这样打循环。。。
+
+基本上区别就是偏持续还是偏爆发、伤害压缩程度、有没有无敌、有没有真减伤、有没有方便的位移之类的
+
+作为一个有50左右职业的游戏来说已经相当同质化了
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
