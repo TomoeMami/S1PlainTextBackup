@@ -6738,3 +6738,22 @@ nmd说好的四星up呢
 
 麻了，烟雾镜大保底0五星，库库尔坎27发11连1宝，合着我660发下去就1个五星？这大保底实装之后老子连千石一宝都达不到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 5145#       发表于 2023-2-7 18:12
+
+ 本帖最后由 sosgame67 于 2023-2-7 18:17 编辑 
+
+300石2宝库库尔坎9宝雨神，跑路跑路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 5146#       发表于 2023-2-7 18:18
+
+450石二宝库库尔，雨神满宝，可以了，幸好前半池子没为了雨神继续抽，不然铁溢出
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

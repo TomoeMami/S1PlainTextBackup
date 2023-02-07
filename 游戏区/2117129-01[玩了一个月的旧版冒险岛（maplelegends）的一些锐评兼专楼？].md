@@ -974,3 +974,13 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 搜了下，这个视频里33分钟起那些镖的速度就是加速后的，印象里这调整出来时三转都没开
 [www.bilibili.com/video/av335904254/](http://www.bilibili.com/video/av335904254/)
 
+
+*****
+
+####  kuglv  
+##### 89#       发表于 2023-2-7 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649798&amp;ptid=2117129" target="_blank">mhss 发表于 2023-2-7 18:04</a>
+比如森林那种里上下或是左右移动的回旋镖机关，初期活动范围偏小速度也比较慢，很好抓节奏，后期突然增大 ...</blockquote>
+那应该我玩的时候已经加速过了，我开始玩的时候刚开三转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是我那时候觉得这速度还算正常的，也不算特别难，后面废都地铁的那叫一个恶心
+
