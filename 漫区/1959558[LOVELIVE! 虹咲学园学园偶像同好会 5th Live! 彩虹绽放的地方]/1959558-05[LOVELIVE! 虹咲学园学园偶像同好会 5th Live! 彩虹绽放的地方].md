@@ -2813,3 +2813,18 @@ as活动up曲第一首就是chase！
 
 唉，都想说躲开这个曲子的。
 
+
+*****
+
+####  yicihanshu  
+##### 7012#       发表于 2023-2-8 04:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650673&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-2-7 19:09</a>
+as活动up曲第一首就是chase！
+
+唉，都想说躲开这个曲子的。</blockquote>
+到sif2还是得打，起码你要说现在灯还在。
+我看那天sif2生放鱼玩完一首，出来左边推荐还是like it love it，演唱者还特地给你括号标出来cv楠木灯，到那时候灯退了新人都来了，但你听这些歌还是灯唱的，不更感慨<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

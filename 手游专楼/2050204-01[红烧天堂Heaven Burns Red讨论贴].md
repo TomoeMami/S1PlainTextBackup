@@ -129,3 +129,14 @@ steam入库方法
 以及，不刷初始/不氪金会被卡主线很难受吗，个人真不喜欢买初始 ...</blockquote>
 这游戏有绝对人权  不刷初始是折磨自己 何必
 
+
+*****
+
+####  Skyline_R  
+##### 879#       发表于 2023-2-8 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59641434&amp;ptid=2050204" target="_blank">范坚强 发表于 2023-2-7 06:20</a>
+
+ios用uu（手游）试试？</blockquote>
+安卓端成功登进去了，UU加速器/biubiu加速器开了之后会卡Now Loading，按网上说是卡谷歌验证了，换梯子又报403，然后直接把Play三件套冻结就进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
