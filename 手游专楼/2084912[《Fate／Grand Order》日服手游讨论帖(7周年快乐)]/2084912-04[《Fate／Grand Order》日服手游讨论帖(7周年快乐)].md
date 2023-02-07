@@ -7008,3 +7008,14 @@ E849A06C-A9A1-4CB9-8377-7E62A89534CE.jpeg
 肯定会，而且还是回合无敌的话那真的打不动了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只希望高难不要出现她了 
 
+
+*****
+
+####  khxooo  
+##### 5172#       发表于 2023-2-8 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654787&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-8 00:18</a>
+
+只希望高难不要出现她了</blockquote>
+YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

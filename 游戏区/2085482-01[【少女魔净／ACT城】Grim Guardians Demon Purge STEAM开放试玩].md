@@ -934,3 +934,15 @@ BGM 有点不够带劲
 
 不知能否无拾取通关。
 
+
+*****
+
+####  cmyk1234  
+##### 92#         楼主| 发表于 2023-2-8 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654853&amp;ptid=2085482" target="_blank">MobileMeowbot 发表于 2023-2-8 00:25</a>
+音效还行，纸鹤攀岩，受击保护，死亡演出锁血一格，石化监视右侧灭起跳，地滚球炸桥捡十发扩容。
+
+不知能否 ...</blockquote>
+boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半）
+
