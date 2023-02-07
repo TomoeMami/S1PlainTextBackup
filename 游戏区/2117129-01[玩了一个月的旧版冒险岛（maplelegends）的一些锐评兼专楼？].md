@@ -842,3 +842,18 @@ https://m.inven.co.kr/board/maple/2447/4071?iskin=maple
 
 只有我一个人不会去玩
 
+
+*****
+
+####  proselyte  
+##### 79#         楼主| 发表于 2023-2-7 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59590177&amp;ptid=2117129" target="_blank">kassne 发表于 2023-2-3 08:17</a>
+
+现在的官服ms才叫同质化高。
+
+legends好像也多多少少有点问题，想要找到一个相对理想的私服还是比较困难的。 ...</blockquote>
+2xexp，3xquest确实后面也不够
+
+现在65级已经觉得不怎么好升
+
