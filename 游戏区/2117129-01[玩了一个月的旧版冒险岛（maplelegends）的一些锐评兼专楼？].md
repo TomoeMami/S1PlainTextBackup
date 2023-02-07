@@ -946,3 +946,17 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 
 想起当年火毒好不容易等到开雪域，升级效率高了点，就被开着无敌吸怪外挂的风雷恶心弃坑了。音乐真心好，地图也有意思。。
 
+
+*****
+
+####  kuglv  
+##### 87#       发表于 2023-2-7 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648798&amp;ptid=2117129" target="_blank">Vicarious 发表于 2023-2-7 17:02</a>
+
+本质玩法都一样
+
+用一样的路线练级，一样的思路搞装备，打boss也基本就分偏爆发和偏持续，大部分职业都是 ...</blockquote>
+另外不知道你是不是只打过神秘河之前的那些BOSS <blockquote>大部分职业都是开场打一波，然后等180s，一轮武公+塔戒配合绑技</blockquote>
+这种打法在神秘河之后除了超重课玩家虐菜基本是行不通的，光是飞侠三兄弟每个人的爆发手法就完全不一样，终极隐身术也是190秒一波，完全对不上180秒的，还有虎影这种200秒一个大周期的奇葩，不知道你怎么会觉得大家都是180秒爆发一波<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

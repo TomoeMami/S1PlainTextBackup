@@ -6587,3 +6587,99 @@ nmd说好的四星up呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然原封不动落地 那隔壁会有大戏能看吗
 
+
+*****
+
+####  exiaexa  
+##### 5131#       发表于 2023-2-7 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649454&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:41</a>
+既然原封不动落地 那隔壁会有大戏能看吗</blockquote>
+贴吧去看狂娜神乐子不必隔壁多吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 5132#       发表于 2023-2-7 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这卡B的2.7没有刷材料的欲望啊
+
+*****
+
+####  森兰丸  
+##### 5133#       发表于 2023-2-7 17:45
+
+<img src="https://img.saraba1st.com/forum/202302/07/174323xac1yqinarppemum.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (197.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202302/07/174329h9l7m4w95r45xjje.png" referrerpolicy="no-referrer">
+
+<strong>335.png</strong> (207.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 17:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一共600多石头45护符出了3个库库尔坎和5个雨神.....最后还以为要沉船的时候给我来了个双黄
+
+可我原本库库尔坎只想抽个2宝啊.....也不知道是该哭还是该笑
+
+这下又要存石了......希望所长起码过个半年后再落地
+
+*****
+
+####  qixinno2  
+##### 5134#       发表于 2023-2-7 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649501&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-7 17:45</a>
+
+一共600多石头45护符出了3个库库尔坎和5个雨神.....最后还以为要沉船的时候给我来了个双黄
+
+可我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好狗啊 不愧是5宝王姐的人
+
+*****
+
+####  eilot  
+##### 5135#       发表于 2023-2-7 17:48
+
+60石+10符
+
+一隻4星珀西瓦里(宝5)，之前4星都不是那个池的UP 4星来...
+
+*****
+
+####  霧谷藤乃  
+##### 5136#       发表于 2023-2-7 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一会儿没看，发现大家都这么欧的么
+
+*****
+
+####  alucardcz  
+##### 5137#       发表于 2023-2-7 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649501&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-7 17:45</a>
+
+一共600多石头45护符出了3个库库尔坎和5个雨神.....最后还以为要沉船的时候给我来了个双黄
+
+可我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇依然那么欧  
+
+*****
+
+####  khxooo  
+##### 5138#       发表于 2023-2-7 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649570&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-2-7 17:50</a>
+一会儿没看，发现大家都这么欧的么</blockquote>
+除了我都是海豹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
