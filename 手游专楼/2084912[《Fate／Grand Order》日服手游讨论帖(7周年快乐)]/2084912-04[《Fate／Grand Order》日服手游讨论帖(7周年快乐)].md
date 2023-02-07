@@ -6154,3 +6154,11 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 就这样到现在为止都有64万播放数了....我要是运营这不躺平简直天理难容
 
+
+*****
+
+####  areklose  
+##### 5085#       发表于 2023-2-7 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">还是性能太差了。当年是个战神。现在技能组搞成不伦不类。你可以把她变弱。但能不能不要强制前排出战。后排我都认了。
+
