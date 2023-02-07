@@ -116,3 +116,16 @@ steam入库方法
 
 另外P403很常见，甚至梯子开日本ip都能403（用棒子或者4v ip有时候倒没事）
 
+
+*****
+
+####  alucardcz  
+##### 878#       发表于 2023-2-7 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644387&amp;ptid=2050204" target="_blank">BallanceHZ 发表于 2023-2-7 11:58</a>
+
+这玩意steam现在还能入库吗？
+
+以及，不刷初始/不氪金会被卡主线很难受吗，个人真不喜欢买初始 ...</blockquote>
+这游戏有绝对人权  不刷初始是折磨自己 何必
+
