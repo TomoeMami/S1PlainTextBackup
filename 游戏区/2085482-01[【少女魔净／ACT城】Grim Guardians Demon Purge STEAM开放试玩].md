@@ -885,3 +885,11 @@ BGM 有点不够带劲
 
 实际玩起来更像是魔界村<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 88#       发表于 2023-2-7 23:04
+
+试玩版还行，难度不高，100发的机关枪是真的好使<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
