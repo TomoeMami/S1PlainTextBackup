@@ -6847,3 +6847,20 @@ nmd说好的四星up呢
 狗萌新随便扔石开图签还有余力2宝 本非洲人全部梭哈勉强抽到一个</blockquote>
 你看着我再说一次非洲人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 5157#       发表于 2023-2-7 19:56
+
+3300石大姐姐6宝达成，歪了个三藏和双子，黑杯强满一个，说实话很非…
+
+*****
+
+####  qixinno2  
+##### 5158#       发表于 2023-2-7 19:57
+
+<blockquote>khxooo 发表于 2023-2-7 19:33
+你看着我再说一次非洲人</blockquote>
+拜见酋长
+
