@@ -6938,3 +6938,43 @@ nmd说好的四星up呢
 这库库尔坎特性全空 绝大多数特攻都不吃</blockquote>
 是啊，如果她站在对面相当棘手，有特攻的不是打她蓝字就是白字，只能用Ae单体硬打，而AE单体没有一个开过宝具本的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5167#       发表于 2023-2-7 23:33
+
+ 本帖最后由 gpx234mqx 于 2023-2-7 23:38 编辑 
+
+妈的，70连才出
+
+到此6个异闻带之王全了
+
+E849A06C-A9A1-4CB9-8377-7E62A89534CE.jpeg
+(938.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 23:33 上传
+
+<img src="https://img.saraba1st.com/forum/202302/07/233339coz4odggzemdp892.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9517E4DE-8B31-4644-9706-36FCB253D56E.jpeg
+(479.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202302/07/233822fmpb8ylwvia2lhi6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5168#       发表于 2023-2-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654136&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-7 23:16</a>
+
+是啊，如果她站在对面相当棘手，有特攻的不是打她蓝字就是白字，只能用Ae单体硬打，而AE单体没有一个开过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙娘秒了 怕啥
+
