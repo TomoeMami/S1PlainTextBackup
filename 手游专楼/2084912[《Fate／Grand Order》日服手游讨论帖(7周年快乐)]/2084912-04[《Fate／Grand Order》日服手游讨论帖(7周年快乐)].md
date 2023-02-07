@@ -6458,3 +6458,78 @@ nmd说好的四星up呢
 好消息 大姐姐只要45个新材料</blockquote>
 你少算了满破再临需要的十个太阳皮，55个啦。
 
+
+*****
+
+####  alucardcz  
+##### 5116#       发表于 2023-2-7 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649143&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-7 17:21</a>
+
+太阳皮吗</blockquote>
+是啊
+
+*****
+
+####  黑上シグマ  
+##### 5117#       发表于 2023-2-7 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">好耶，33连出了大姐姐
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  里村紅葉  
+##### 5118#       发表于 2023-2-7 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649170&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 17:22</a>
+
+是啊</blockquote>
+完了，我进太阳皮地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 5119#       发表于 2023-2-7 17:24
+
+诶？那黑麻雀呢？我还以为四星是黑麻雀陪跑，那现在黑麻雀灵衣也没有新卡也没有？
+
+*****
+
+####  angelooo  
+##### 5120#       发表于 2023-2-7 17:24
+
+卧槽烟雾镜这灵衣的意义是什么
+
+*****
+
+####  angelooo  
+##### 5121#       发表于 2023-2-7 17:25
+
+<blockquote>白金口袋 发表于 2023-2-7 17:24
+诶？那黑麻雀呢？我还以为四星是黑麻雀陪跑，那现在黑麻雀灵衣也没有新卡也没有？ ...</blockquote>
+黑麻雀估计要变新卡了，等一个活动
+
+*****
+
+####  Jamaisvu  
+##### 5122#       发表于 2023-2-7 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649197&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-2-7 17:24</a>
+
+诶？那黑麻雀呢？我还以为四星是黑麻雀陪跑，那现在黑麻雀灵衣也没有新卡也没有？ ...</blockquote>
+朱瑞鸟的攻击特效和原版都不一样，肯定不会是灵衣吧...指不定什么时候缺流水就空降了...
+
+*****
+
+####  保罗赫伯特  
+##### 5123#       发表于 2023-2-7 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59649139&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-7 17:21</a>
+
+库库尔坎的声优竟然不是远藤绫，而是诹访彩花...看来是要切割成两个人了。
+
+（毕竟魁扎尔算是外星植物生命 ...</blockquote>
+看剧情里这个新羽蛇神也能沟通外星细菌的集群意志，虽然不太理解为什么能做到
+
