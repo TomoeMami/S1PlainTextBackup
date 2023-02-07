@@ -827,3 +827,18 @@ https://m.inven.co.kr/board/maple/2447/4071?iskin=maple
 
 10-20级的时候四倍经验感觉还不太明显，20级之后连四倍经验都觉得挺慢了，开了10倍感觉才正常的，楼主明明讨厌刷刷刷还能接受这服务器的2倍经验吗。。
 
+
+*****
+
+####  proselyte  
+##### 78#         楼主| 发表于 2023-2-7 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59646522&amp;ptid=2117129" target="_blank">伊克路西安 发表于 2023-2-7 14:40</a>
+
+玩了会079单机版，坐不了魔法密林去天空之城的船，二转三转任务也没了只能从菜单里直接转职，爆率也跟我记 ...</blockquote>
+我前面说了啊
+
+被朋友拉去玩的，有小圈子一起玩刷刷刷还能接受
+
+只有我一个人不会去玩
+
