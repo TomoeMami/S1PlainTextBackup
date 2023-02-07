@@ -16052,3 +16052,19 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感谢健叔，太乐了这节目
 
+
+*****
+
+####  优妮可  
+##### 11950#       发表于 2023-2-7 19:19
+
+<img src="https://img.saraba1st.com/forum/202302/07/191742reo1t3yt5d05tf7j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230207_190908.jpg</strong> (135.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 19:17 上传
+
+13号巧克力手渡会，晚上鹫叔广播，14号直播广播。。。没巡演工作也是拉满
+
