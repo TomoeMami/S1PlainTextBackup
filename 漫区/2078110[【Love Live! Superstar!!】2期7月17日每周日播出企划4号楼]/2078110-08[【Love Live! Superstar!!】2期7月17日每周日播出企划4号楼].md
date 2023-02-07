@@ -16004,3 +16004,11 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  player3960  
+##### 11944#       发表于 2023-2-7 08:27
+
+鲤鱼唱tune the rainbow啊，ヘミソフィア要不要也安排一下<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
