@@ -6085,3 +6085,21 @@ ort我一开始就五星三个三个上尽量一回合爆破打到最后都有�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  qixinno2  
+##### 5079#       发表于 2023-2-7 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间神殿的马修还行 第二部的女同事就算了吧 死人就该留在回忆里 硬要复活就是给活人添麻烦
+
+*****
+
+####  eilot  
+##### 5080#       发表于 2023-2-7 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59641639&amp;ptid=2084912" target="_blank">v22325 发表于 2023-2-7 08:14</a>
+
+加急把2.7打完了，几个难打的地方之前楼里看了眼上手就好打了，就是这个ort战也太烦了，第二形态还特别卡… ...</blockquote>
+只用过一次5星杀的杰克，理由只是刚用了屠龙杀手小次郎，都能直接打去一条血
+
