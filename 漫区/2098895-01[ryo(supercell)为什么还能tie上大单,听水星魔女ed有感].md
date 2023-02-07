@@ -1101,3 +1101,16 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 真恶心
 
+
+*****
+
+####  killbillwillil  
+##### 126#       发表于 2023-2-7 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644210&amp;ptid=2098895" target="_blank">Onelooker 发表于 2023-2-7 11:47</a>
+
+火纹每次sl都要听两秒这破op
+
+真恶心</blockquote>
+开头大小写也不一样，是完全没关系的一个人，这飞来横锅过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

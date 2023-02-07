@@ -6103,3 +6103,17 @@ ort我一开始就五星三个三个上尽量一回合爆破打到最后都有�
 加急把2.7打完了，几个难打的地方之前楼里看了眼上手就好打了，就是这个ort战也太烦了，第二形态还特别卡… ...</blockquote>
 只用过一次5星杀的杰克，理由只是刚用了屠龙杀手小次郎，都能直接打去一条血
 
+
+*****
+
+####  里村紅葉  
+##### 5081#       发表于 2023-2-7 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644349&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-7 11:56</a>
+有句刚句你游开服玩到现在我就没喜欢过玛修
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
