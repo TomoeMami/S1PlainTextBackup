@@ -16099,3 +16099,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 希望一切顺利
 
+
+*****
+
+####  nufawneafg  
+##### 11955#       发表于 2023-2-7 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650786&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-7 19:19</a>
+13号巧克力手渡会，晚上鹫叔广播，14号直播广播。。。没巡演工作也是拉满 ...</blockquote>
+这波地方广播安排的挺全乎，这是又回首都圈来了
+

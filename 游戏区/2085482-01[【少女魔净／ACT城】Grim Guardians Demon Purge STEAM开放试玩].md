@@ -822,3 +822,22 @@ demo通了，一共两关
 
 感觉趣味性一般呀，可能还是想要正统风味那种能换武器能捡多道具才有意思
 
+
+*****
+
+####  moonmagian  
+##### 81#       发表于 2023-2-7 22:02
+
+整体还算满意，就是体验版难度有点低<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不知道是不是前两关的原因，有这么长射程的武器，关卡配置却还是按恶魔城的来，一路突突过去感觉不到什么压力
+
+BGM 有点不够带劲
+
+*****
+
+####  smileboom  
+##### 82#       发表于 2023-2-7 22:07
+
+用键盘玩，wasd移动按a键会触发副武器，怎么调都调不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
