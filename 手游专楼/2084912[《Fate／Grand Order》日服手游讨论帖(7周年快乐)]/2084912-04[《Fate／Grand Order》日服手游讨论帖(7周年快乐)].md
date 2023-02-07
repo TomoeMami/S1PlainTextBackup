@@ -6117,3 +6117,15 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 —— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  exiaexa  
+##### 5082#       发表于 2023-2-7 12:23
+
+玛修的人设还是做的太正经了，导致这个角色非常的无聊
+明明优等生是个很容易做xp发散的属性
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说整个tm出于不知道的原因把她保护的太好了
+

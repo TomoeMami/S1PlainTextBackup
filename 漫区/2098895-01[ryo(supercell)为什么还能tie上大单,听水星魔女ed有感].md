@@ -1114,3 +1114,14 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 真恶心</blockquote>
 开头大小写也不一样，是完全没关系的一个人，这飞来横锅过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Onelooker  
+##### 127#       发表于 2023-2-7 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644606&amp;ptid=2098895" target="_blank">killbillwillil 发表于 2023-2-7 12:14</a>
+
+开头大小写也不一样，是完全没关系的一个人，这飞来横锅过分了啊</blockquote>
+啊，一样支离破碎的编曲，专楼都说是一耳丁真<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
