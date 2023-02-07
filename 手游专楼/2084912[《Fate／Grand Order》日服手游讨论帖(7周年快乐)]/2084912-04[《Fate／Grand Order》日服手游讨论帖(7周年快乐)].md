@@ -6884,3 +6884,31 @@ nmd说好的四星up呢
 大姐姐用的太阳皮快刷完&amp;#x4E ...</blockquote>
 大佬打的哪图 我这一管体力就2有点难刷阿
 
+
+*****
+
+####  quanlix  
+##### 5161#       发表于 2023-2-7 20:32
+
+躺大平原啊，俩新素材都能刷，我已经310挂出去了
+
+*****
+
+####  黑上シグマ  
+##### 5162#       发表于 2023-2-7 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59651749&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-7 20:26</a>
+
+大佬打的哪图 我这一管体力就2有点难刷阿</blockquote>
+新素材都刷就大平原，单刷太阳皮的话第五层烤玉米田
+
+*****
+
+####  qixinno2  
+##### 5163#       发表于 2023-2-7 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59651867&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-7 20:35</a>
+
+新素材都刷就大平原，单刷&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就是在烤玉米刷的 脸黑没救了
+

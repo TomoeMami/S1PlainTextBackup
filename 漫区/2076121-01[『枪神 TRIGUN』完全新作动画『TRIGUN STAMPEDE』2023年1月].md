@@ -232,3 +232,13 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yyf1940  
+##### 294#       发表于 2023-2-7 20:32
+
+补了原作的表示，这动画就看着图一乐吧，剧情人设比原作差远了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
