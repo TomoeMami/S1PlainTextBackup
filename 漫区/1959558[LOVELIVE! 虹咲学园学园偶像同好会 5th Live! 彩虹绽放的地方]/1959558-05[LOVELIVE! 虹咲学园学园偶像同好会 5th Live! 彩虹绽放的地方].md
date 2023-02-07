@@ -2803,3 +2803,13 @@ live结束后夜里想了下<img src="https://static.saraba1st.com/image/smiley/
 那要咋样，全场陪着哭丧？</blockquote>
 不是现地势不清楚，前田提了后场下哭丧了么
 
+
+*****
+
+####  ads147147  
+##### 7011#       发表于 2023-2-7 19:09
+
+as活动up曲第一首就是chase！
+
+唉，都想说躲开这个曲子的。
+

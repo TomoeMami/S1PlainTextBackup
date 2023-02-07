@@ -6803,3 +6803,14 @@ nmd说好的四星up呢
 
 再有就是，看到烟雾镜这个灵衣本我只想爆笑，顺便感慨一下你月是真的屌。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5152#       发表于 2023-2-7 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650270&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 18:39</a>
+
+但萌新就开个图鉴啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新随便扔石开图签还有余力2宝 本非洲人全部梭哈勉强抽到一个
+
