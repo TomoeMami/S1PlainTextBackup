@@ -209,3 +209,16 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 编剧对原作理解之肤浅和烂俗，我是服气的。
 
+
+*****
+
+####  赛U灵  
+##### 292#       发表于 2023-2-7 12:49
+
+谢谢推荐，老贴真好，可惜不能给作者加鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+以及我在想，虽然肯定不会，不可能这么离谱的，也可能我记漏了什么，什么时候再看遍漫画，但是就是，我在想编剧是不是没怎么看过原作，直接按动画版改的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">偷plant学剧场版，野兽设定tv版，包括小女孩也不是对标男大姐，其实对标的是tv版给博士原创的那个无口萝莉啥的（。）
+好吧不可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算不喜欢这编剧也不能说人家不看原作啊
+而且仔细想想萝莉的发型和性格都有点像男大姐，怎么可能是对标tv原创呢
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
