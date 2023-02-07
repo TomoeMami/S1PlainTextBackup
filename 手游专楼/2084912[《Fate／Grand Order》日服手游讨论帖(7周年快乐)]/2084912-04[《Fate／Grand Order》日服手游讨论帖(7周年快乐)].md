@@ -6793,3 +6793,13 @@ nmd说好的四星up呢
 第一个豹的不就是你这混&amp;#x ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但萌新就开个图鉴啊？
 
+
+*****
+
+####  kuarwbwe  
+##### 5151#       发表于 2023-2-7 18:51
+
+我现在的感想就是，不用为了雨神抽烟雾镜池子了，感谢库库尔坎。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+再有就是，看到烟雾镜这个灵衣本我只想爆笑，顺便感慨一下你月是真的屌。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
