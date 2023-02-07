@@ -719,3 +719,31 @@ demo通了，一共两关
 未探索区域还是挺多的，还是传统的后期拿到钥匙再回到前面拿道具</blockquote>
 要怎么复活？我好像见到某块教学版上提过一句但是不知道摔进坑里的人要怎么复活，只能硬着头皮往前跑（然后挂掉）
 
+
+*****
+
+####  电磁炮233  
+##### 69#       发表于 2023-2-7 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648115&amp;ptid=2085482" target="_blank">Wiksy 发表于 2023-2-7 16:22</a>
+
+要怎么复活？我好像见到某块教学版上提过一句但是不知道摔进坑里的人要怎么复活，只能硬着头皮往前跑（然 ...</blockquote>
+摔死的尸体会留在坑旁边
+
+*****
+
+####  姬茧墨  
+##### 70#       发表于 2023-2-7 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648115&amp;ptid=2085482" target="_blank">Wiksy 发表于 2023-2-7 16:22</a>
+
+要怎么复活？我好像见到某块教学版上提过一句但是不知道摔进坑里的人要怎么复活，只能硬着头皮往前跑（然 ...</blockquote>
+你角色掉坑里了尸体会出现在你掉下去的那个悬崖上啊，用另一个角色过去复活她就行了
+
+*****
+
+####  猫坤  
+##### 71#       发表于 2023-2-7 16:32
+
+我看了OP，里面出现了GALGUN系列全部主角，我得把GALGUN全玩一遍了
+
