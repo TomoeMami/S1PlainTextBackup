@@ -960,3 +960,17 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 另外不知道你是不是只打过神秘河之前的那些BOSS <blockquote>大部分职业都是开场打一波，然后等180s，一轮武公+塔戒配合绑技</blockquote>
 这种打法在神秘河之后除了超重课玩家虐菜基本是行不通的，光是飞侠三兄弟每个人的爆发手法就完全不一样，终极隐身术也是190秒一波，完全对不上180秒的，还有虎影这种200秒一个大周期的奇葩，不知道你怎么会觉得大家都是180秒爆发一波<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 88#       发表于 2023-2-7 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648783&amp;ptid=2117129" target="_blank">kuglv 发表于 2023-2-7 17:01</a>
+
+没印象有加速过，就算真有那也是100来个版本后的事了，那时候前期的这种前期的忍耐任务已经没有意义了， ...</blockquote>
+比如森林那种里上下或是左右移动的回旋镖机关，初期活动范围偏小速度也比较慢，很好抓节奏，后期突然增大了移动距离，速度也快了好几倍，因为我非常喜欢跳跃任务，即使主线做完了都会重复进去玩，所以记得很清楚
+
+搜了下，这个视频里33分钟起那些镖的速度就是加速后的，印象里这调整出来时三转都没开
+[www.bilibili.com/video/av335904254/](http://www.bilibili.com/video/av335904254/)
+

@@ -6721,3 +6721,20 @@ nmd说好的四星up呢
 
 娘希匹，我白芙芙都没库存了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5143#       发表于 2023-2-7 18:08
+
+<blockquote>森兰丸 发表于 2023-2-7 17:54
+醒醒....你被萌新催眠了</blockquote>
+我柠檬发自真心
+
+*****
+
+####  xiongxingyu  
+##### 5144#       发表于 2023-2-7 18:11
+
+麻了，烟雾镜大保底0五星，库库尔坎27发11连1宝，合着我660发下去就1个五星？这大保底实装之后老子连千石一宝都达不到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
