@@ -1125,3 +1125,22 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 开头大小写也不一样，是完全没关系的一个人，这飞来横锅过分了啊</blockquote>
 啊，一样支离破碎的编曲，专楼都说是一耳丁真<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  噗呸破屁诚  
+##### 128#       发表于 2023-2-7 12:34
+
+火纹op我也觉得是真不太行，其实这贴是不是该转型ryo真爱楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  ipcjs  
+##### 129#       发表于 2023-2-7 12:35
+
+听不出来，没这艺术修养<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

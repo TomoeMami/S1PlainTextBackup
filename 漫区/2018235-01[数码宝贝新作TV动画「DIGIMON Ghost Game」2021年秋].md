@@ -31,3 +31,14 @@
 
 spy靠宙进化了，感觉以后会成比邻星兽的挂件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天光逸  
+##### 441#       发表于 2023-2-7 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59624902&amp;ptid=2018235" target="_blank">maoyou 发表于 2023-2-5 20:21</a>
+
+间谍兽靠宙进化还行，数码畜生看的少，有这种先例吗</blockquote>
+幽灵游戏设定上目前一直挺模糊的，可能只是卖玩具需要，也可能之后会解释。
+

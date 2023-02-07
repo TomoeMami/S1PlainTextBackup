@@ -6129,3 +6129,18 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 只能说整个tm出于不知道的原因把她保护的太好了
 
+
+*****
+
+####  eilot  
+##### 5083#       发表于 2023-2-7 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644729&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-7 12:23</a>
+
+玛修的人设还是做的太正经了，导致这个角色非常的无聊
+
+明明优等生是个很容易做xp发散的属性</blockquote>
+应该说学妹的正经性格也不太「稳定」
+
+有时去到对面RE0的EMT地步甚至天然呆，但有时不知道为何会站在另一方(之前的班扬...)
+
