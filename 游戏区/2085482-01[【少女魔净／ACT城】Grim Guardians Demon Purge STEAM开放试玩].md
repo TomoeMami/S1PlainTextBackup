@@ -841,3 +841,37 @@ BGM 有点不够带劲
 
 用键盘玩，wasd移动按a键会触发副武器，怎么调都调不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 83#         楼主| 发表于 2023-2-7 22:42
+
+单人游戏大招是发射直线驱魔子弹，双人游戏大招是全屏火箭筒攻击。
+
+*****
+
+####  cmyk1234  
+##### 84#         楼主| 发表于 2023-2-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59653197&amp;ptid=2085482" target="_blank">smileboom 发表于 2023-2-7 22:07</a>
+用键盘玩，wasd移动按a键会触发副武器，怎么调都调不好</blockquote>
+这个是键盘A和手柄A编程编一块了吧
+
+*****
+
+####  smileboom  
+##### 85#       发表于 2023-2-7 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59653695&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-7 22:43</a>
+
+这个是键盘A和手柄A编程编一块了吧</blockquote>
+突发奇想把手柄拔了就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vidomina  
+##### 86#       发表于 2023-2-7 22:49
+
+完全就是可以返回之前关卡的月咒嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，可惜主人公的像素绘制的感觉不行，其他还好。
+
