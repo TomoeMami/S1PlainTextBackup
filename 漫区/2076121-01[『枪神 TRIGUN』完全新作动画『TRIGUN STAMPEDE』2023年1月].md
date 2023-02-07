@@ -222,3 +222,13 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 —— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Mr1z  
+##### 293#       发表于 2023-2-7 13:28
+
+抽空去把原作看了去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
