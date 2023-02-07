@@ -13410,3 +13410,37 @@ PS5可以提前玩啊
 
 得等指示厨先玩，不然数字不好看<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 4234#         楼主| 发表于 2023-2-7 10:57
+
+昨天看到推特有人在说这玩意好像是真的
+
+什么时候正式发表
+
+<img src="https://img.saraba1st.com/forum/202302/07/105536fjg2hjzfln2gd3dn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 10:55 上传
+
+<img src="https://img.saraba1st.com/forum/202302/07/105549lj14r2u4j0tz0xij.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 10:55 上传
+
+<img src="https://img.saraba1st.com/forum/202302/07/105745p4tv88shvblz2bps.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-7 10:57 上传
+
