@@ -893,3 +893,14 @@ BGM 有点不够带劲
 
 试玩版还行，难度不高，100发的机关枪是真的好使<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫坤  
+##### 89#       发表于 2023-2-7 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650272&amp;ptid=2085482" target="_blank">病態極端 发表于 2023-2-7 18:39</a>
+
+能不能降低說話頻率，經常&amp;#x5 ...</blockquote>
+看来是没玩过迷宫画廊
+

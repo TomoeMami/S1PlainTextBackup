@@ -6928,3 +6928,13 @@ nmd说好的四星up呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这库库尔坎特性全空 绝大多数特攻都不吃
 
+
+*****
+
+####  khxooo  
+##### 5166#       发表于 2023-2-7 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59653325&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-7 22:15</a>
+这库库尔坎特性全空 绝大多数特攻都不吃</blockquote>
+是啊，如果她站在对面相当棘手，有特攻的不是打她蓝字就是白字，只能用Ae单体硬打，而AE单体没有一个开过宝具本的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
