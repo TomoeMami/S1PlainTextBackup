@@ -16012,3 +16012,11 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 鲤鱼唱tune the rainbow啊，ヘミソフィア要不要也安排一下<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 11945#       发表于 2023-2-7 08:49
+
+鱼上大叔节目已经完全没有拘束了，4期相当于一个短期研修，希望也能好好学习提升一下个人的主持功力
+

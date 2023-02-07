@@ -5237,3 +5237,16 @@ WEB有意思的就是阿基拉的各种事后反省
 
 看到文库版10卷，主角下手有点狠啊
 
+
+*****
+
+####  redsouris  
+##### 424#       发表于 2023-2-7 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59638728&amp;ptid=1913585" target="_blank">selain.meneth 发表于 2023-2-6 21:48</a>
+看到文库版10卷，主角下手有点狠啊</blockquote>
+文库主角已经加了很多人情味了
+WEB版才是真心理扭曲
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
