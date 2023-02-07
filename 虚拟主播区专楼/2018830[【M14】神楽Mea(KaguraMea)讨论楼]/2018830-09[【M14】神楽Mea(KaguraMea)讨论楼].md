@@ -4088,3 +4088,22 @@ image.png
 
 —— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  往世雷书  
+##### 13347#       发表于 2023-2-7 16:43
+
+海带头是谁，这次联动的嘉宾？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  往世雷书  
+##### 13348#       发表于 2023-2-7 16:44
+
+还在玩？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
