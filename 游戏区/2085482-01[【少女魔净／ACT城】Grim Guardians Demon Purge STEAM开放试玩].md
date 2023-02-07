@@ -875,3 +875,13 @@ BGM 有点不够带劲
 
 完全就是可以返回之前关卡的月咒嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，可惜主人公的像素绘制的感觉不行，其他还好。
 
+
+*****
+
+####  57042711  
+##### 87#       发表于 2023-2-7 23:01
+
+真的是除了音乐都还可以的样子···
+
+实际玩起来更像是魔界村<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
