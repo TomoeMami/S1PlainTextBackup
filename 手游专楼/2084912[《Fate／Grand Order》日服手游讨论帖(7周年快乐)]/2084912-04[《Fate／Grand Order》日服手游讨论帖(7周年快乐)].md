@@ -6978,3 +6978,33 @@ E849A06C-A9A1-4CB9-8377-7E62A89534CE.jpeg
 是啊，如果她站在对面相当棘手，有特攻的不是打她蓝字就是白字，只能用Ae单体硬打，而AE单体没有一个开过 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙娘秒了 怕啥
 
+
+*****
+
+####  qixinno2  
+##### 5169#       发表于 2023-2-8 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654136&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-7 23:16</a>
+
+是啊，如果她站在对面相当棘手，有特攻的不是打她蓝字就是白字，只能用Ae单体硬打，而AE单体没有一个开过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道带框的无敌会不会转成对肃正防御 会的话简直无情
+
+*****
+
+####  khxooo  
+##### 5170#       发表于 2023-2-8 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654738&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-8 00:13</a>
+不知道带框的无敌会不会转成对肃正防御 会的话简直无情</blockquote>
+肯定会，而且还是回合无敌的话那真的打不动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 5171#       发表于 2023-2-8 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654759&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-8 00:15</a>
+
+肯定会，而且还是回合无敌的话那真的打不动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只希望高难不要出现她了 
+
