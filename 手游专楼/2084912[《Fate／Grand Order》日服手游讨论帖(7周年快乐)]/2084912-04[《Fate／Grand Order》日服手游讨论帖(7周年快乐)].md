@@ -6053,3 +6053,25 @@ ort我一开始就五星三个三个上尽量一回合爆破打到最后都有�
 
 已经有云玩家拿着切片和大纲攻击玛修了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">，玛修杀了他全家吗这么大仇
 
+
+*****
+
+####  exiaexa  
+##### 5076#       发表于 2023-2-7 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59643855&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2023-2-7 11:23</a>
+已经有云玩家拿着切片和大纲攻击玛修了，玛修杀了他全家吗这么大仇</blockquote>
+只会舔阿菌是这样的
+明明这些问题按着阿菌锤就完事儿了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 5077#       发表于 2023-2-7 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59641639&amp;ptid=2084912" target="_blank">v22325 发表于 2023-2-7 08:14</a>
+
+加急把2.7打完了，几个难打的地方之前楼里看了眼上手就好打了，就是这个ort战也太烦了，第二形态还特别卡… ...</blockquote>
+不急，情人节剧情保你重新yangwei<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
