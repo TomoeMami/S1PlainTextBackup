@@ -6162,3 +6162,13 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">还是性能太差了。当年是个战神。现在技能组搞成不伦不类。你可以把她变弱。但能不能不要强制前排出战。后排我都认了。
 
+
+*****
+
+####  高木なつめ  
+##### 5086#       发表于 2023-2-7 14:15
+
+其实攻击也就算了，还乱翻译扭曲原文。
+
+不禁就觉得明明材料那么多真是一点都不想看。
+
