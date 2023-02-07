@@ -1144,3 +1144,16 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 — from Google Pixel 6 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  killbillwillil  
+##### 130#       发表于 2023-2-7 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59644776&amp;ptid=2098895" target="_blank">Onelooker 发表于 2023-2-7 12:26</a>
+
+啊，一样支离破碎的编曲，专楼都说是一耳丁真</blockquote>
+fe编曲肯定例行社内搞的啊，按照以前主作曲管vocal曲的尿性（if是森下，三房和回声是金崎），这次是应该是马场写的。
+
+开个wiki都能查到十几个干音乐的ryo，这乱联想的太不合适
+

@@ -6144,3 +6144,13 @@ yysy确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 有时去到对面RE0的EMT地步甚至天然呆，但有时不知道为何会站在另一方(之前的班扬...)
 
+
+*****
+
+####  森兰丸  
+##### 5084#       发表于 2023-2-7 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这垃圾运营是整不出什么新活了是吧....油管账号2小时前上传了个视频还以为是什么....点进去一看就是个剪辑了各种老画面的一个15秒宣传片....背景BGM还是色彩...简直莫名其妙
+
+就这样到现在为止都有64万播放数了....我要是运营这不躺平简直天理难容
+
