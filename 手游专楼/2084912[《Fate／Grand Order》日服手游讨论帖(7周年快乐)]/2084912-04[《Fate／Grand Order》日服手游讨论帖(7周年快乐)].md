@@ -6757,3 +6757,18 @@ nmd说好的四星up呢
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  都谷捻柏  
+##### 5147#       发表于 2023-2-7 18:22
+
+烟雾镜这是痛苦面具灵衣吗，嘲讽为了雨神下卡池1的人。
+
+*****
+
+####  alucardcz  
+##### 5148#       发表于 2023-2-7 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼了怎么就一个大佬非其他全是海豹呢  看着都想去抽2宝了。。又想了想2宝也是扔仓库的只能算了
+
