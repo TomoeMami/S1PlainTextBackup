@@ -6864,3 +6864,23 @@ nmd说好的四星up呢
 你看着我再说一次非洲人</blockquote>
 拜见酋长
 
+
+*****
+
+####  都谷捻柏  
+##### 5159#       发表于 2023-2-7 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59651019&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-7 19:33</a>
+
+隔壁不愧是隔壁  我以为大姐姐下来该大战狂娜  结果隔壁却在轮暗狐</blockquote>
+大概因为对狂阿周那结论出来了吧，算是狂阿周那plus版
+
+*****
+
+####  qixinno2  
+##### 5160#       发表于 2023-2-7 20:26
+
+<blockquote>黑上シグマ 发表于 2023-2-7 19:32
+大姐姐用的太阳皮快刷完&amp;#x4E ...</blockquote>
+大佬打的哪图 我这一管体力就2有点难刷阿
+
