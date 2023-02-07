@@ -258,3 +258,13 @@ B组活了，能跳一个in the light of darkness吗
 
 舞  病危  甲亢
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3028#       发表于 2023-2-7 20:45
+
+月月新翻唱，没听出来
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
