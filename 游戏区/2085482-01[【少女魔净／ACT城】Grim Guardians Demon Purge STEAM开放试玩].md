@@ -806,3 +806,11 @@ demo通了，一共两关
 
 死了很多次 近战血太少了 挨打三下就成了插件 好几个坑真的恶趣味 冲就是坑 boss一梭子就行了 围绕着一梭子如何破解boss的招式 然后插件就可以按招式登场扩大输出<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Errey  
+##### 79#       发表于 2023-2-7 21:47
+
+比较讨厌的是跳跃很滑，射击不准走，没有恶魔城的后撤真没啥操作的感觉在
+
