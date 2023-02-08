@@ -580,3 +580,21 @@ TSM这边还是高坡，对面这个阵容HAL甲都不用打直接开直升机
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  泥潭办证先锋  
+##### 63#       发表于 2023-2-8 19:46
+
+ 本帖最后由 泥潭办证先锋 于 2023-2-8 19:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59664418&amp;ptid=2117723" target="_blank">arbilest 发表于 2023-2-8 18:07</a>
+
+经常就是对面倒了一个，人冲过去追他队友结果准星被倒地的吸过去
+
+—— 来自 S1Fun ...</blockquote>
+这我倒是常有，但是也是要很近距离才能触发……<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+我看贴吧和批站因为ALGS手柄厉害，吹得跟洪水猛兽似的，说都好像45米就能触发。
+
+实际我自己玩，这距离感觉辅助没啥屌用，该手动跟枪还是要手动跟枪。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

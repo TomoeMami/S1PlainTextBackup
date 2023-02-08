@@ -1092,3 +1092,13 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 点retry从上一个续关点重来，收集保留，除非退出关卡。</blockquote>
 看来以后探索要用无限续关模式了
 
+
+*****
+
+####  cmyk1234  
+##### 107#         楼主| 发表于 2023-2-8 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665156&amp;ptid=2085482" target="_blank">白军浪 发表于 2023-2-8 19:11</a>
+看来以后探索要用无限续关模式了</blockquote>
+死光所有续命也只是回到关卡开头的传送点，影响不大。最难的传奇猎人模式还没有解锁。
+

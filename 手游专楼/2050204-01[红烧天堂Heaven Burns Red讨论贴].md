@@ -140,3 +140,15 @@ steam入库方法
 ios用uu（手游）试试？</blockquote>
 安卓端成功登进去了，UU加速器/biubiu加速器开了之后会卡Now Loading，按网上说是卡谷歌验证了，换梯子又报403，然后直接把Play三件套冻结就进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z-hunter  
+##### 880#       发表于 2023-2-8 19:42
+
+这玩意繁中服会不会不用加速器就能玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前日服开服入坑，被杀了2次。第2次还是辛苦玩了1个多月后被杀了，直接弃了……
+
+ios下载的话是切换到繁中服找app store吗
+

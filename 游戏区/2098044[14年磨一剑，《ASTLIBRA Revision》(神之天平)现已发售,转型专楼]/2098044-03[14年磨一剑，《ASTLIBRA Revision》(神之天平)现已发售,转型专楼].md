@@ -7136,3 +7136,11 @@ b站专栏搜神之天平</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 实在没靶子又去找了会长 发现我已经可以一枪直接戳死他了 该收拾收拾通关了 独孤求败了属于 
 
+
+*****
+
+####  christiny  
+##### 3602#       发表于 2023-2-8 19:44
+
+【大精灵杖鬼畜-哔哩哔哩】 https://b23.tv/Z5DrUPU         爆发+暗黑的鬼畜玩法，后期和新章都是切菜了。
+
