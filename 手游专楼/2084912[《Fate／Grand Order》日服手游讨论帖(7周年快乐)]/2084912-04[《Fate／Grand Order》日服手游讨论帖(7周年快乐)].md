@@ -7243,3 +7243,18 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 而且比较搞笑的是，本来烟雾镜是跟克系有关系的，结果蘑菇一句不提直接无关了，反而是戴先生被乐子人坑得想死
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 5194#       发表于 2023-2-8 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59662086&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-8 15:24</a>
+
+毕竟烟雾镜是无常之风，爽就完事儿了
+
+而且比较搞笑的是，本来烟雾镜是跟克系有关系的，结果蘑菇一句不提 ...</blockquote>
+戴先生本来是召唤不出人类侧从者的，召唤烟雾镜也是卡了克系特性的bug
+
+烟雾镜总体还是挺靠谱的，召唤其他从者，建设城市和培育豹人都是他做的，虽然沉迷打架和爆头下属是有点深井冰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

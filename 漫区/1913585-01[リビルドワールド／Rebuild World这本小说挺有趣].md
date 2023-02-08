@@ -5250,3 +5250,12 @@ WEB版才是真心理扭曲
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kiralzb  
+##### 425#       发表于 2023-2-8 16:40
+
+看到这帖想起了11卷还没买，马上入手，找时间看了一点，大姐姐们真和谐，都不带吃醋的，就屑女人在心机，关键主角还吃这套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+毕竟搞笑的是医生疯狂暗示主角换机械手，不过这切片手术确实看着就难顶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
