@@ -168,3 +168,11 @@ ios下载的话是切换到繁中服找app store吗
 
 是台服还是日服号啊？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hemis  
+##### 883#       发表于 2023-2-8 22:11
+
+台服都没开哪有初始，另外几个服进度相同，日服初始资源多更好开局
+

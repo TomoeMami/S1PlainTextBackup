@@ -16251,3 +16251,22 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 这是说谁</blockquote>
 さゆ串里的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打铁大叔管的太宽了
 
+
+*****
+
+####  优妮可  
+##### 11965#       发表于 2023-2-8 22:16
+
+<blockquote>nufawneafg 发表于 2023-2-8 22:10
+さゆ串里的打铁大叔管的太宽了，打铁广播外景去买东西了，碰上男店员导购了然后就开始了 ...</blockquote>
+是在说鲨鱼今天的节目？
+
+*****
+
+####  nufawneafg  
+##### 11966#       发表于 2023-2-8 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59667278&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-8 22:16</a>
+是在说鲨鱼今天的节目？</blockquote>
+时间话题都对的上的，说买盘子的事儿嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
