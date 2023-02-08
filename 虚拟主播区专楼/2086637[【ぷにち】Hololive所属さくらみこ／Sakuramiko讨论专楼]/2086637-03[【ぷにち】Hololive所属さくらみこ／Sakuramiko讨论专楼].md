@@ -13647,3 +13647,11 @@ A锐评
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4252#         楼主| 发表于 2023-2-8 19:16
+
+她以前在什么地方测过一次分院好像说那个结果会继承过来
+
