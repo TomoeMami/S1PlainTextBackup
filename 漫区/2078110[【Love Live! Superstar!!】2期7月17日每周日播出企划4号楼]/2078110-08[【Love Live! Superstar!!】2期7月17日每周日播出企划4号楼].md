@@ -16325,3 +16325,23 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 省略号很好的体现了大叔们的心情。
 
+
+*****
+
+####  稀勢のささ  
+##### 11972#       发表于 2023-2-9 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59667098&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-8 22:03</a>
+
+这是说谁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星里粉丝能这么癫的大概就打铁了吧
+
+*****
+
+####  stygian  
+##### 11973#       发表于 2023-2-9 00:42
+
+之前广播里说喜欢back number都一堆人破防，单独某个男人也罢了对一个乐队破防我是真的乐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
