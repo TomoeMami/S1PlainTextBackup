@@ -1124,3 +1124,13 @@ demo通了第二关boss以后，远程角拿到手雷找柱子回去第一关，
 
 全十二种副武器都能拿到强化配件。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 110#       发表于 2023-2-8 21:35
+
+how much
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
