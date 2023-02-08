@@ -7353,3 +7353,16 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 这眼珠子怎么怪怪的</blockquote>
 原设就这样<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 5201#       发表于 2023-2-8 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665316&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-8 19:27</a>
+
+街机卡米拉灵衣
+
+手游啥时候也来一套</blockquote>
+手游先实装黑贞最后跳舞那件灵衣(?)吧
+
