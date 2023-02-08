@@ -13665,3 +13665,11 @@ A锐评
 
 —— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4254#         楼主| 发表于 2023-2-8 19:35
+
+确实不过自己选就没意思了
+
