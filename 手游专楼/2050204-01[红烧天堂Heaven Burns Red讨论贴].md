@@ -160,3 +160,11 @@ ios下载的话是切换到繁中服找app store吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便挑了两初始一问300多
 
+
+*****
+
+####  凝灵  
+##### 882#       发表于 2023-2-8 21:53
+
+是台服还是日服号啊？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
