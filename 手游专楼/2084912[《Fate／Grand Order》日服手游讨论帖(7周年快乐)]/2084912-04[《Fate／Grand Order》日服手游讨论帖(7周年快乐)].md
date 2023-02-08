@@ -7116,3 +7116,11 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 肃正防一回合也太霸道，术呆才1次，用了也机会被秒</blockquote>
 现在螺旋社的方针已经很明确了，与其加强旧从者不如出新卡，也就周年开几个不疼不痒的强化糊弄过去，所以旧从者就别想翻身了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5182#       发表于 2023-2-8 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">B站看到个2160只出来一个的霉B 我感觉心情好了很多
+
