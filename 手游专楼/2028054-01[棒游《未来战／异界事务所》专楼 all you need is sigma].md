@@ -26,3 +26,13 @@
 
 不滑跪认错修改这游戏也就到头了
 
+
+*****
+
+####  rgauss  
+##### 836#         楼主| 发表于 2023-2-8 16:19
+
+你看朴哪次认错了 不都是柳出来给他擦屁股的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
