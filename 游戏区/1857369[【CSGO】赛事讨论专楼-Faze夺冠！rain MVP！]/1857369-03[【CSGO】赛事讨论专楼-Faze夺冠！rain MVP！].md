@@ -116,3 +116,21 @@ G2现在太强了吧，感觉不到有队能威胁他们
 
 这就是队里有杆世界级狙的威慑力，更别说队里除了指挥都是顶级枪男了
 
+
+*****
+
+####  heseran  
+##### 3146#       发表于 2023-2-8 09:02
+
+ 本帖最后由 heseran 于 2023-2-8 09:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202302/08/090622lts8rnsr6846qs61.jpg" referrerpolicy="no-referrer">
+
+<strong>deQjk0-cgbiZ11T3cSv9-ld.jpg.medium.jpg</strong> (38.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-8 09:06 上传
+
+被小孩捶麻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
