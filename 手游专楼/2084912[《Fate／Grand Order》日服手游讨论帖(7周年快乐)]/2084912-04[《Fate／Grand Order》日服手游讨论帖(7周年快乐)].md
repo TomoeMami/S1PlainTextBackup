@@ -7291,3 +7291,13 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 烟雾镜看到了就跳下来找乐子，但是系统不批假，于是整了个人身钻进去强行现界
 
+
+*****
+
+####  不垃圾屌丝  
+##### 5197#       发表于 2023-2-8 17:49
+
+打完到FREE挖了点石头凑了发十连，终于出雨神了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
