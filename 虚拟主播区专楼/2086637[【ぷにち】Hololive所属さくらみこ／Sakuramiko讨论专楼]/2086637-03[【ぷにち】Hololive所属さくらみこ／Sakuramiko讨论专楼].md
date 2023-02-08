@@ -13673,3 +13673,13 @@ A锐评
 
 确实不过自己选就没意思了
 
+
+*****
+
+####  rs5621  
+##### 4255#       发表于 2023-2-8 20:16
+
+久违的高速呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
