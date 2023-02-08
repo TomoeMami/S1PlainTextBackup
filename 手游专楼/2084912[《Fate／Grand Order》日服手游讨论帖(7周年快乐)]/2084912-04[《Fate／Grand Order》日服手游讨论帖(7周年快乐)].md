@@ -7180,3 +7180,24 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 话说这回库库尔坎还真就是惊异的100%友方率，七个异闻带里唯一一个一场都没有和主角团打过的异闻带之王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家CBA虽然基本上也是全程友方，但好歹最后也走了个形式意思一下。倒是烟雾镜这儿冠位从头到脚都站对面，陪戴维打完全场，一点儿也不向着泛人类史，属实良心从者。
 
+
+*****
+
+####  alucardcz  
+##### 5188#       发表于 2023-2-8 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59661293&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-8 14:21</a>
+
+话说这回库库尔坎还真就是惊异的100%友方率，七个异闻带里唯一一个一场都没有和主角团打过的异闻带之王[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然没战斗但开头直接射暴了船
+
+*****
+
+####  武男  
+##### 5189#       发表于 2023-2-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59661293&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-8 14:21</a>
+
+话说这回库库尔坎还真就是惊异的100%友方率，七个异闻带里唯一一个一场都没有和主角团打过的异闻带之王[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开头不就暴打了所长一顿，都把所长给打失忆了，这次咕哒死的两条命里面有一条就是她动手搞出来的坠机事件。
+
