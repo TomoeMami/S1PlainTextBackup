@@ -13619,3 +13619,13 @@ A锐评
 
 2023-2-8 13:21 上传
 
+
+*****
+
+####  rs5621  
+##### 4249#       发表于 2023-2-8 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今晚玩哈利波特
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
