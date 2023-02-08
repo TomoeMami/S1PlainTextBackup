@@ -86,3 +86,66 @@
 
 限定版130刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幻想病  
+##### 644#       发表于 2023-2-9 07:11
+
+王泪可以建造自己想要的交通工具。 甚至可以造高达来自: iPhone客户端
+
+*****
+
+####  Sherlock08  
+##### 645#       发表于 2023-2-9 07:13
+
+<img src="https://p.sda1.dev/9/7cb384b2791ba231fe5b780aca5f4511/CMP_20230209071244862.jpg" referrerpolicy="no-referrer">
+
+再看一遍pv最感兴趣的是左侧这个掉落的方块是啥东东
+
+*****
+
+####  Arisita  
+##### 646#       发表于 2023-2-9 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670230&amp;ptid=1997982" target="_blank">huge_cat 发表于 2023-2-9 07:10</a>
+
+限定版130刀</blockquote>
+猪怪敲石头那个场景和打石头人那里
+
+*****
+
+####  冷泉夜月  
+##### 647#       发表于 2023-2-9 07:16
+
+《塞尔达传说 王国之泪》现已上架港服eShop，售价499港币，容量约18.2G！
+本作确认仅支持1人游玩，无多人模式。
+
+吼吼果然是32G卡带<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  wsktcy  
+##### 648#       发表于 2023-2-9 07:17
+
+还是涨价了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 649#       发表于 2023-2-9 07:17
+
+不知道海拉鲁大陆内容占比多少，真不太想跑了
+
+*****
+
+####  纱布光环  
+##### 650#       发表于 2023-2-9 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670268&amp;ptid=1997982" target="_blank">Sherlock08 发表于 2023-2-9 07:13</a>
+
+再看一遍pv最感兴趣的是左侧这个掉落的方块是啥东东</blockquote>
+感觉就是空岛掉落的碎石吧，PV1有展示过利用时间倒流搭乘碎石返回空岛，地图里明显多了很多原本没有的碎石，应该就是让玩家利用能力前往空岛的
+
