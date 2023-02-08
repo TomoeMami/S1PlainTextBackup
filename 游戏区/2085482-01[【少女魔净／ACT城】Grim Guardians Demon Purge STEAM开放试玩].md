@@ -1001,3 +1001,24 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 试了下感觉马马虎虎，多半还是和8bit血污一样打折入。说起来这种既不是线性关卡又不是银河城的横版act应该叫什么，淫帝城？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 99#       发表于 2023-2-8 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59660923&amp;ptid=2085482" target="_blank">hyakusiki 发表于 2023-2-8 13:50</a>
+试了下感觉马马虎虎，多半还是和8bit血污一样打折入。说起来这种既不是线性关卡又不是银河城的横版act应该 ...</blockquote>
+叫横版过关，不然呢
+
+*****
+
+####  电磁炮233  
+##### 100#       发表于 2023-2-8 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59660923&amp;ptid=2085482" target="_blank">hyakusiki 发表于 2023-2-8 13:50</a>
+试了下感觉马马虎虎，多半还是和8bit血污一样打折入。说起来这种既不是线性关卡又不是银河城的横版act应该 ...</blockquote>
+其实还是线性关卡只不过可以回溯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

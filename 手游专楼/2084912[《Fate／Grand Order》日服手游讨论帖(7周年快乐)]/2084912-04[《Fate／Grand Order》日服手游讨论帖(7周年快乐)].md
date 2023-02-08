@@ -7161,3 +7161,14 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 到此6个异闻带之王全了</blockquote>
 6个异闻带之王：我们之中有一个哥们没落地，是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5186#       发表于 2023-2-8 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59660115&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-2-8 12:43</a>
+
+6个异闻带之王：我们之中有一个哥们没落地，是谁呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6和7是不一样的!6和7
+
