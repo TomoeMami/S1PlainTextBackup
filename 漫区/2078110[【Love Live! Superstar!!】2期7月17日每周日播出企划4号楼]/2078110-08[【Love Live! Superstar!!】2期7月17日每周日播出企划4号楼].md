@@ -16185,3 +16185,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59666390&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-8 20:54</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11959#       发表于 2023-2-8 21:23
+
+ 本帖最后由 nufawneafg 于 2023-2-8 21:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59666390&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-8 20:54</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">说实话我觉得大叔们已经代入到乐在其中了
+

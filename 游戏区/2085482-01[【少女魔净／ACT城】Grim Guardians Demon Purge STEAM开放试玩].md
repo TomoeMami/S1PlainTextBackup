@@ -1110,3 +1110,17 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 demo通了第二关boss以后，远程角拿到手雷找柱子回去第一关，城门拿盾拿斧头那里的降到地板的升降桥可以蹲下滚手雷炸掉，下去捡到个冲锋**上限+10的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 109#         楼主| 发表于 2023-2-8 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59666058&amp;ptid=2085482" target="_blank">smileboom 发表于 2023-2-8 20:28</a>
+demo通了第二关boss以后，远程角拿到手雷找柱子回去第一关，城门拿盾拿斧头那里的降到地板的升降桥可以蹲下 ...</blockquote>
+已知的副武器列表：
+忍：飞刀，手榴弹，地雷，火箭筒，钩索，还有一种未知。
+真夜： 式神屏障，纸鹤，冰企鹅，死神镰刀，遥控机器人，雨伞。
+
+全十二种副武器都能拿到强化配件。
+
