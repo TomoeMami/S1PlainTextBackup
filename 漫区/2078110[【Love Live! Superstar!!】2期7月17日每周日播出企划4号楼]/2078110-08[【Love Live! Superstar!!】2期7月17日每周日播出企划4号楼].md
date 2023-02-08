@@ -16109,3 +16109,17 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 13号巧克力手渡会，晚上鹫叔广播，14号直播广播。。。没巡演工作也是拉满 ...</blockquote>
 这波地方广播安排的挺全乎，这是又回首都圈来了
 
+
+*****
+
+####  优妮可  
+##### 11956#       发表于 2023-2-8 13:10
+
+<img src="https://img.saraba1st.com/forum/202302/08/131002csmcofjlcn99c0fm.jpg" referrerpolicy="no-referrer">
+
+<strong>20230208_130731.jpg</strong> (112.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-8 13:10 上传
+

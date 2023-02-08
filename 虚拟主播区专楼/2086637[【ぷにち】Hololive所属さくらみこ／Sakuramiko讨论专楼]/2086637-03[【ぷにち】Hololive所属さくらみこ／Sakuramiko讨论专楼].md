@@ -13579,3 +13579,27 @@ PS5可以提前玩啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6个半小时终于过了,明天可以耍哈利波特
 
+
+*****
+
+####  holoan  
+##### 4247#         楼主| 发表于 2023-2-8 13:15
+
+[https://prtimes.jp/main/html/rd/p/000004106.000052467.html](https://prtimes.jp/main/html/rd/p/000004106.000052467.html) <blockquote>（２）主な活动内容
+
+　　　东京の魅力及び観光情报を発信する活动 等
+
+（３）活动开始日
+
+　　　令和５年２月13日（月曜日）※同日に就任式を実施</blockquote>
+
+粉丝锐评
+
+<img src="https://img.saraba1st.com/forum/202302/08/131513zz0ka0lgl7ieizyi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-8 13:15 上传
+
