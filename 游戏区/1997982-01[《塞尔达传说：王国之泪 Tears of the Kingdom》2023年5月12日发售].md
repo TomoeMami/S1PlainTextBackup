@@ -149,3 +149,66 @@
 再看一遍pv最感兴趣的是左侧这个掉落的方块是啥东东</blockquote>
 感觉就是空岛掉落的碎石吧，PV1有展示过利用时间倒流搭乘碎石返回空岛，地图里明显多了很多原本没有的碎石，应该就是让玩家利用能力前往空岛的
 
+
+*****
+
+####  冷泉夜月  
+##### 651#       发表于 2023-2-9 07:21
+
+草，刷amiibo可以到专门的店里替换滑翔伞的图案，有点好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  巴尔干炮  
+##### 652#       发表于 2023-2-9 07:22
+
+这次的片主要展示的是地面，应该有专场直面会
+
+*****
+
+####  Waldeinsamkeit  
+##### 653#       发表于 2023-2-9 07:23
+
+听了下德文版Pv，发现了英文版中的盲点：
+英文版最后塞尔达说please lend him a hand，感觉好像是希望林克去帮助什么人，但德文版是ihr müsst ihm helfen，ihr是第二人称复数也就是“你们”，那看起来这句台词更像塞尔达在请求谁去帮助林克<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恋妖壶  
+##### 654#       发表于 2023-2-9 07:24
+
+我困了，地狱能不能把限定链接赶紧上了我要睡觉
+
+*****
+
+####  冷泉夜月  
+##### 655#       发表于 2023-2-9 07:25
+
+<img src="https://img.saraba1st.com/forum/202302/09/072525c92n8496z2lhns25.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230209_072432.jpg</strong> (694.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 07:25 上传
+
+草，希卡之石迭代到NS版了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  儿童环  
+##### 656#       发表于 2023-2-9 07:26
+
+这作能稳定30FPS吗？
+
+*****
+
+####  cayon  
+##### 657#       发表于 2023-2-9 07:29
+
+字面意思：借只手
+

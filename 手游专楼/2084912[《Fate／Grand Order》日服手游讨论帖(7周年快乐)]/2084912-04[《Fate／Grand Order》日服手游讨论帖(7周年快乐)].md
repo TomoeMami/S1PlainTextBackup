@@ -7374,3 +7374,16 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">街机怎么还不死999/1
 
+
+*****
+
+####  恶搞之王  
+##### 5203#       发表于 2023-2-9 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654787&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-8 00:18</a>
+
+只希望高难不要出现她了</blockquote>
+出现在高难里的话，最优解是自己揍自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是要是保留无敌转肃正被动，那可真是太刺激了，一回合肃正还跟自充绑定，头要被打裂开
+
