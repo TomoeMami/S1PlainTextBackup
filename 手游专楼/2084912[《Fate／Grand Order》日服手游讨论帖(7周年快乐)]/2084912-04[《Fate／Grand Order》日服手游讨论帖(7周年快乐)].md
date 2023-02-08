@@ -7148,3 +7148,16 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 而现在开强化本时，都是为了能同时体验强化本的送石
 
+
+*****
+
+####  白金口袋  
+##### 5185#       发表于 2023-2-8 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654346&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-7 23:33</a>
+
+妈的，70连才出
+
+到此6个异闻带之王全了</blockquote>
+6个异闻带之王：我们之中有一个哥们没落地，是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
