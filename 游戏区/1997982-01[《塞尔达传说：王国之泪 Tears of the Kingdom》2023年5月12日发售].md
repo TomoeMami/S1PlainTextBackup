@@ -212,3 +212,51 @@
 
 字面意思：借只手
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 658#       发表于 2023-2-9 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670378&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-9 07:25</a>
+
+草，希卡之石迭代到NS版了</blockquote>
+啊啊啊好漂亮的图！！！
+
+求一下官网地址，我怎么也找不到了……
+
+*****
+
+####  shqingda_  
+##### 659#       发表于 2023-2-9 07:35
+
+公主的八块腹肌
+
+*****
+
+####  纱布光环  
+##### 660#       发表于 2023-2-9 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670428&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-9 07:33</a>
+
+啊啊啊好漂亮的图！！！
+
+求一下官网地址，我怎么也找不到了……</blockquote>
+这是推上的图吧  官网好像没有？
+
+[https://twitter.com/ZeldaOfficialJP/](https://twitter.com/ZeldaOfficialJP/)
+
+
+*****
+
+####  冷泉夜月  
+##### 661#       发表于 2023-2-9 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670428&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-09 07:33:58</a>
+啊啊啊好漂亮的图！！！
+
+求一下官网地址，我怎么也找不到了……</blockquote>[https://www.nintendo.co.jp/character/zelda/index.html](https://www.nintendo.co.jp/character/zelda/index.html)
+我是看官推发了，官推开始腹泻式更新<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
