@@ -13655,3 +13655,13 @@ A锐评
 
 她以前在什么地方测过一次分院好像说那个结果会继承过来
 
+
+*****
+
+####  a2276382  
+##### 4253#       发表于 2023-2-8 19:24
+
+官网那个 没事 可以自己选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

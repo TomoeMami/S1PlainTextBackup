@@ -7301,3 +7301,31 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gpx234mqx  
+##### 5198#       发表于 2023-2-8 19:27
+
+ 本帖最后由 gpx234mqx 于 2023-2-8 19:30 编辑 
+
+街机卡米拉灵衣
+
+手游啥时候也来一套
+
+<img src="https://img.saraba1st.com/forum/202302/08/192956wvhgz1o5ov7oebb5.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2023-02-08 192907.png</strong> (146.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-8 19:29 上传
+
+<img src="https://img.saraba1st.com/forum/202302/08/192726vw7gwwtbwznisczt.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2023-02-08 192637.png</strong> (113.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-8 19:27 上传
+
