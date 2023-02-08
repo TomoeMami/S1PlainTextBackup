@@ -328,3 +328,16 @@ B组活了，能跳一个in the light of darkness吗
 
 值得一提，桃姆q还吸引了几个大的切片man，实力还是有的
 
+
+*****
+
+####  MinFOrder  
+##### 3035#       发表于 2023-2-8 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59662104&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-2-8 15:26</a>
+
+那可以多支持稳重的阿买，或者社畜小火驴，反正时间段都是错开的
+
+值得一提，桃姆q还吸引了几个大的切片ma ...</blockquote>
+恰恰是这点让我不太舒服，首播就主动引流青叶这些切片man，感觉整个人透露出一股过于精明的气质，只能说确实比较懂怎么把自己炒起来。不太喜欢这挂的
+
