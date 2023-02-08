@@ -7258,3 +7258,36 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 烟雾镜总体还是挺靠谱的，召唤其他从者，建设城市和培育豹人都是他做的，虽然沉迷打架和爆头下属是有点深井冰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 5195#       发表于 2023-2-8 16:54
+
+ 本帖最后由 exiaexa 于 2023-2-8 16:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59663111&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-8 16:33</a>
+戴先生本来是召唤不出人类侧从者的，召唤烟雾镜也是卡了克系特性的bug
+
+烟雾镜总体还是挺靠谱的，召唤其他 ...</blockquote>
+你瞎说啥呢，卡bug指的是烟雾镜为了现界附身捏好的人体，然后利用土地羁绊召唤自己，然后跟戴先生签约，所以他是冠位但是战力捉鸡
+
+咋就克系联动了，从头到尾就没提过烟雾镜跟克系有关系
+
+说不定阿菌自己都不知道还有这茬
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5196#       发表于 2023-2-8 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59663111&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-8 16:33</a>
+戴先生本来是召唤不出人类侧从者的，召唤烟雾镜也是卡了克系特性的bug
+
+烟雾镜总体还是挺靠谱的，召唤其他 ...</blockquote>
+你可以理解成戴先生想摇个人但是没路子
+然后给米克特兰的土地画了个召唤阵顺带供了个魔
+于是米克特兰土地就开始召唤跟自己有关系的中南美从者
+
+烟雾镜看到了就跳下来找乐子，但是系统不批假，于是整了个人身钻进去强行现界
+
