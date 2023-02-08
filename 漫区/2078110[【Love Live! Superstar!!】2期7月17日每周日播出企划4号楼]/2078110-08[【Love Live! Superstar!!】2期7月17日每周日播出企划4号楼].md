@@ -16345,3 +16345,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  稀勢のささ  
+##### 11974#       发表于 2023-2-9 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都在乐，都被人拿来当成梗嘲讽了
+
+ “希望我推有事没事能多说点自己的事” “确实，比如聊一聊喜欢的乐队什么的”
+
