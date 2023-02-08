@@ -1043,3 +1043,15 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 可选择分支，主线性流程，特别是boss残血反击，很有血之轮回的味道
 
+
+*****
+
+####  姬茧墨  
+##### 103#       发表于 2023-2-8 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59664544&amp;ptid=2085482" target="_blank">白軍浪 发表于 2023-2-8 18:17</a>
+针刺坑加吊灯蜘蛛这种组合现在就有点难了，后面计时塔不知道怎么搞</blockquote>
+吊灯蜘蛛直接跳它背上去就行狂砍就行，打起来最简单的精英怪
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

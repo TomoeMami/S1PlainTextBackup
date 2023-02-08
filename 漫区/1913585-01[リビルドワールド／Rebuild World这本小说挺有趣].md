@@ -5259,3 +5259,11 @@ WEB版才是真心理扭曲
 看到这帖想起了11卷还没买，马上入手，找时间看了一点，大姐姐们真和谐，都不带吃醋的，就屑女人在心机，关键主角还吃这套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 毕竟搞笑的是医生疯狂暗示主角换机械手，不过这切片手术确实看着就难顶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 426#       发表于 2023-2-8 18:48
+
+看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不太支棱<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
