@@ -1453,3 +1453,14 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 阿金那个插件插拔改动和新插件槽有说什么时候实装吗
 
+
+*****
+
+####  overmind00  
+##### 259#       发表于 2023-2-8 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654077&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-2-7 23:10</a>
+
+阿金那个插件插拔改动和新插件槽有说什么时候实装吗</blockquote>
+阿金看了泥潭的帖子后加班写信回复了，答案是：未定<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

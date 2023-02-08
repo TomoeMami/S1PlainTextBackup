@@ -13683,3 +13683,13 @@ A锐评
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 4256#       发表于 2023-2-8 20:41
+
+放个魔法把她给激动的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
