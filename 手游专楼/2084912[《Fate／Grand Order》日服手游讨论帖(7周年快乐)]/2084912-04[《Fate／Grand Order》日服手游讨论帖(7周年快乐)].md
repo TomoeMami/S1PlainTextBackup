@@ -7201,3 +7201,21 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 话说这回库库尔坎还真就是惊异的100%友方率，七个异闻带里唯一一个一场都没有和主角团打过的异闻带之王[f:0 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开头不就暴打了所长一顿，都把所长给打失忆了，这次咕哒死的两条命里面有一条就是她动手搞出来的坠机事件。
 
+
+*****
+
+####  xiongxingyu  
+##### 5190#       发表于 2023-2-8 15:03
+
+开头爆船那个就相当于2.5下进门被雷劈，走正常流程打个招呼而已，结果力用大了，连船带所长一起劈翻了。事后人家不是也道歉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 5191#       发表于 2023-2-8 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59661404&amp;ptid=2084912" target="_blank">武男 发表于 2023-2-8 14:31</a>
+开头不就暴打了所长一顿，都把所长给打失忆了，这次咕哒死的两条命里面有一条就是她动手搞出来的 ...</blockquote>
+导致所长失忆的应该是最后烟雾镜的掏心和补枪吧
+
