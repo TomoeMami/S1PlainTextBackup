@@ -1134,3 +1134,15 @@ how much
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cmyk1234  
+##### 111#         楼主| 发表于 2023-2-8 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59666790&amp;ptid=2085482" target="_blank">ParadiseMartyr 发表于 2023-2-8 21:35</a>
+how much
+
+—— 来自 S1Fun</blockquote>
+Xbox/ps/ns数字版日服3480日元/25美元，steam没给价格。
+
