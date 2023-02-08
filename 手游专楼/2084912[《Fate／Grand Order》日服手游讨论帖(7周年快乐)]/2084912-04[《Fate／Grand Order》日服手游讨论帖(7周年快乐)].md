@@ -7077,3 +7077,18 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 尝试刷了两次，按键按到放弃治疗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 5179#       发表于 2023-2-8 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59654738&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-8 00:13</a>
+
+不知道带框的无敌会不会转成对肃正防御 会的话简直无情</blockquote>
+会，也同时每回合补10星补NP
+
+肃正防一回合也太霸道，术呆才1次，用了也机会被秒
+
+不过自从肃正防出现后，贞德的宝具何时才再强化，而且之前的技能强化也是搞笑用...由减对方宝具伤害再追加减对方防后再多次减防，问题对方只要是BOSS一向都是自带不吃NERF技能
+
