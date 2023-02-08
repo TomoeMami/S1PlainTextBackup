@@ -954,3 +954,14 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 玩了下，姐姐这远程太强了，妹妹这性能对的起inti的近战吗
 
+
+*****
+
+####  pf67  
+##### 94#       发表于 2023-2-8 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648290&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-2-7 16:32</a>
+
+我看了OP，里面出现了GALGUN系列全部主角，我得把GALGUN全玩一遍了</blockquote>
+我玩的时候都没注意这游戏还有女主角？
+

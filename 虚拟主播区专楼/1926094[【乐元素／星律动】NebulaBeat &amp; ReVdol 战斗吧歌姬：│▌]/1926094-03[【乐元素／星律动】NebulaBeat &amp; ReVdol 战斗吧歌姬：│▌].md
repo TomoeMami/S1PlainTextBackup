@@ -307,3 +307,11 @@ B组活了，能跳一个in the light of darkness吗
 感觉自己心态变了，她不再是九夏就没有支持的动力，歌听到一半就关了</blockquote>
 一样的，独唱我还有耐心听完，联合投稿听一半也不想听了
 
+
+*****
+
+####  MinFOrder  
+##### 3033#       发表于 2023-2-8 10:48
+
+感觉现在好多老观众都被桃姆Q吸引过去了，我是对这小姑娘提不起多大兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
