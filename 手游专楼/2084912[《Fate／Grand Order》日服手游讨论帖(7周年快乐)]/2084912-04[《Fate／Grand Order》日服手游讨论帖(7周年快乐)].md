@@ -7092,3 +7092,27 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 不过自从肃正防出现后，贞德的宝具何时才再强化，而且之前的技能强化也是搞笑用...由减对方宝具伤害再追加减对方防后再多次减防，问题对方只要是BOSS一向都是自带不吃NERF技能
 
+
+*****
+
+####  qixinno2  
+##### 5180#       发表于 2023-2-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59658726&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-8 11:18</a>
+
+会，也同时每回合补10星补NP
+
+肃正防一回合也太霸道，术呆才1次，用了也机会被秒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常驻从者强度也就这样了 你还想怎样
+
+*****
+
+####  khxooo  
+##### 5181#       发表于 2023-2-8 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59658726&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-8 11:18</a>
+会，也同时每回合补10星补NP
+
+肃正防一回合也太霸道，术呆才1次，用了也机会被秒</blockquote>
+现在螺旋社的方针已经很明确了，与其加强旧从者不如出新卡，也就周年开几个不疼不痒的强化糊弄过去，所以旧从者就别想翻身了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
