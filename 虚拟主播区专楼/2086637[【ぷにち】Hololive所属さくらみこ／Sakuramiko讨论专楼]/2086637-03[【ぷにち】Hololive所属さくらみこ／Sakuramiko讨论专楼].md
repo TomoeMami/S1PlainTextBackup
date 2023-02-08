@@ -13701,3 +13701,13 @@ A锐评
 
 一上来直接来个阿瓦达啃大瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 4258#       发表于 2023-2-8 21:18
+
+选帽子来啦
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
