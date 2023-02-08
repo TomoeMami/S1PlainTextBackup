@@ -993,3 +993,11 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 打完吸血鬼boss点了柱子给我传回出生地了 怎么才能传回来？</blockquote>
 城门前往右走有传送用的喷泉
 
+
+*****
+
+####  hyakusiki  
+##### 98#       发表于 2023-2-8 13:50
+
+试了下感觉马马虎虎，多半还是和8bit血污一样打折入。说起来这种既不是线性关卡又不是银河城的横版act应该叫什么，淫帝城？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
