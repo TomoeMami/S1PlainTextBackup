@@ -7230,3 +7230,16 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 导致所长失忆的应该是最后烟雾镜的掏心和补枪吧</blockquote>
 最后下手的是这俩，不过还是中了光之巨人的手刀才会有机可趁
 
+
+*****
+
+####  exiaexa  
+##### 5193#       发表于 2023-2-8 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59661293&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-8 14:21</a>
+话说这回库库尔坎还真就是惊异的100%友方率，七个异闻带里唯一一个一场都没有和主角团打过的异闻带之王[f:0 ...</blockquote>
+毕竟烟雾镜是无常之风，爽就完事儿了
+
+而且比较搞笑的是，本来烟雾镜是跟克系有关系的，结果蘑菇一句不提直接无关了，反而是戴先生被乐子人坑得想死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
