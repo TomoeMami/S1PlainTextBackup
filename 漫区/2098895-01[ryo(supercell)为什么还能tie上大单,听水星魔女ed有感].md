@@ -1157,3 +1157,13 @@ fe编曲肯定例行社内搞的啊，按照以前主作曲管vocal曲的尿性�
 
 开个wiki都能查到十几个干音乐的ryo，这乱联想的太不合适
 
+
+*****
+
+####  暗示我7酱  
+##### 131#       发表于 2023-2-8 08:35
+
+前阵子看台长黑网管，翻出来重听真滴好听<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -254,3 +254,11 @@ Legato不属GUNG-HO-GUNS，13个魔人里不含他</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UNacher  
+##### 296#       发表于 2023-2-8 08:38
+
+我看出来了，日本人可能真的喜欢优柔寡断这一套，我实在想不通怎么这一版能把法修改得那么衰仔，而且还不是前传
+
