@@ -16312,3 +16312,16 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 美少女 ...</blockquote>
 真鲤
 
+
+*****
+
+####  cat1230  
+##### 11971#       发表于 2023-2-9 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59666390&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-8 20:54</a></blockquote>
+伊达大叔废话了那么多，还是截图最后一楼总结的好，また男としゃべってる・・・
+
+又跟男人讲话...
+
+省略号很好的体现了大叔们的心情。
+
