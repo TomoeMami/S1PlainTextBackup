@@ -7053,3 +7053,11 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 豹跳豹跳
 
+
+*****
+
+####  xiongxingyu  
+##### 5177#       发表于 2023-2-8 09:20
+
+话说昨天更新完偷偷给烟雾镜塞了个简易灵衣？这一波是不是能竞争一下落地之后最速强化记录了，还是史诗级强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

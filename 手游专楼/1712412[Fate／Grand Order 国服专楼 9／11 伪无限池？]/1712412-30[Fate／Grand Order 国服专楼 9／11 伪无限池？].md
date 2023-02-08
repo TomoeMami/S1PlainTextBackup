@@ -63,3 +63,11 @@
 
 虽然到周年前是一张卡都不会抽了，但是视情况可能泳装也不要了
 
+
+*****
+
+####  没有演技  
+##### 44146#       发表于 2023-2-8 09:19
+
+到周年攒两个井，一个rba，一个公主。梅丽随缘，其它的每日一抽的付费石乐下就算完事<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
