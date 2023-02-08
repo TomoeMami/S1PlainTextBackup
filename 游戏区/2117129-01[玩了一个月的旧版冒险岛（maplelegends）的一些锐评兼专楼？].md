@@ -1041,3 +1041,19 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 
 —— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kuglv  
+##### 94#       发表于 2023-2-8 17:23
+
+ 本帖最后由 kuglv 于 2023-2-8 17:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59663530&amp;ptid=2117129" target="_blank">Vicarious 发表于 2023-2-8 17:07</a>
+
+我说了大部分180啊......
+
+爆发cd在180左右或者能跟上180周期的，大家不都是等塔戒武公+绑技打一波么，有 ...</blockquote>
+你难道除了爆发之外都不干别的事了吗，拿打BOSS流程里的一个环节来说现在越来越同质化？你抛开职业手法说大伙打起来都是一样的，那我还说大部分RPG游戏都是一样的，就是对着怪输出把怪血条打空<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+大巨变以前打个BOSS还按着一两个攻击技能不放呢，时间到了扔点BUFF或者DEBUFF，也就后面出了英雄才有点区别，BOSS也只会AOE死光招小怪三件套，不懂怎么能觉得现在比以前同质化的
+
