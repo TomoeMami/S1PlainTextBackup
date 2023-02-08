@@ -7061,3 +7061,19 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 话说昨天更新完偷偷给烟雾镜塞了个简易灵衣？这一波是不是能竞争一下落地之后最速强化记录了，还是史诗级强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 5178#       发表于 2023-2-8 11:04
+
+玩了一下，怎么说呢
+
+我选暗狐狸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+激烈的指令卡战斗太他妈傻逼了艹
+
+尝试刷了两次，按键按到放弃治疗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

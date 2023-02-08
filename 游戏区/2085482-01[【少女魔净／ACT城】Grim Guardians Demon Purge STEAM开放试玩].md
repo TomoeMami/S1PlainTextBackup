@@ -965,3 +965,13 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 我看了OP，里面出现了GALGUN系列全部主角，我得把GALGUN全玩一遍了</blockquote>
 我玩的时候都没注意这游戏还有女主角？
 
+
+*****
+
+####  cmyk1234  
+##### 95#         楼主| 发表于 2023-2-8 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59656803&amp;ptid=2085482" target="_blank">soranoguiji 发表于 2023-2-8 09:28</a>
+玩了下，姐姐这远程太强了，妹妹这性能对的起inti的近战吗</blockquote>
+对得起啊。妹妹近战抬手延迟比麒麟要长一些，算好提前量很强。
+
