@@ -260,3 +260,85 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Sherlock08  
+##### 662#       发表于 2023-2-9 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670318&amp;ptid=1997982" target="_blank">纱布光环 发表于 2023-2-9 07:18</a>
+感觉就是空岛掉落的碎石吧，PV1有展示过利用时间倒流搭乘碎石返回空岛，地图里明显多了很多原本没有的碎 ...</blockquote>
+可能熬夜脑袋晕了:因为是要利用时间倒流能力驱动的，可以认为石块自己不会往返运动。那地上林克看到的应该总是已经落地的石块？或者“传送石”的解锁需要一定条件，刚好是解锁成功刚刚从天上落下？但林克距离又有点远？
+
+*****
+
+####  白面互撸娃  
+##### 663#       发表于 2023-2-9 07:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经等不及看阿婆主锐评王泪不如○了
+
+*****
+
+####  Piano-Forest  
+##### 664#         楼主| 发表于 2023-2-9 07:46
+
+【リンク】
+
+『ゼルダの伝説　ティアーズ オブ ザ キングダム』の主人公。
+
+その姿は前作から変化が见られますが、いったい何があったのでしょうか。
+<img src="https://p.sda1.dev/9/20326b517a9c29daa01001e60f7107f8/20230209_074439.jpg" referrerpolicy="no-referrer">
+
+【ゼルダ】
+
+ハイラル王国の姫君。
+
+左手に见惯れぬ物を持っているようですが…？
+<img src="https://p.sda1.dev/9/173efbe5a474f855b0f396fc9d07feb6/20230209_074442.jpg" referrerpolicy="no-referrer">
+
+【ボコブリン】
+
+ハイラルに住んでいる魔物の一种。なかでも子分を率いている重量级の魔物は、「ボスボコブリン」と呼ばれ、最近频繁に目撃されています。
+<img src="https://p.sda1.dev/9/c9ac8eac61836b895276ed3591e52cdd/20230209_074509.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  纱布光环  
+##### 665#       发表于 2023-2-9 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670485&amp;ptid=1997982" target="_blank">Sherlock08 发表于 2023-2-9 07:43</a>
+
+可能熬夜脑袋晕了:因为是要利用时间倒流能力驱动的，可以认为石块自己不会往返运动。那地上林克看到的应 ...</blockquote>
+没看太懂你想表达的意思，   
+
+我个人的想法还是： 这些石头从空岛掉落，玩家可以通过这些石头返回空岛，
+
+我没记错的话之前老任公布的专利里面有说明，时间倒流能力本身并不是倒流时间，而是记录物体运动的轨迹，玩家利用能力令物体按原本运动轨迹返回，途中可以产生物理互动，和时间其实并没有关系
+
+*****
+
+####  Waldeinsamkeit  
+##### 666#       发表于 2023-2-9 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670465&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-9 07:40</a>
+
+https://www.nintendo.co.jp/character/zelda/index.html
+
+我是看官推发了，官推开始腹泻式更新</blockquote>
+哦原来如此，我都还没来的及去刷推<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感谢！！！飞奔去存图
+
+*****
+
+####  lanyu_u  
+##### 667#       发表于 2023-2-9 07:50
+
+<blockquote>Piano-Forest 发表于 2023-2-9 07:46
+【リンク】
+
+『ゼルダの伝説　ティアーズ オブ ザ キングダム』の主人公。
+
+その姿は前作から変化が见られま ...</blockquote>
+老大波哥布林应该是新怪了
+
