@@ -1030,3 +1030,16 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 针刺坑加吊灯蜘蛛这种组合现在就有点难了，后面计时塔不知道怎么搞
 
+
+*****
+
+####  KOL2022  
+##### 102#       发表于 2023-2-8 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59660923&amp;ptid=2085482" target="_blank">hyakusiki 发表于 2023-2-8 13:50</a>
+
+试了下感觉马马虎虎，多半还是和8bit血污一样打折入。说起来这种既不是线性关卡又不是银河城的横版act应该 ...</blockquote>
+整体思路是恶魔城 血之轮回的感觉，相当于在银河出现之前的城
+
+可选择分支，主线性流程，特别是boss残血反击，很有血之轮回的味道
+

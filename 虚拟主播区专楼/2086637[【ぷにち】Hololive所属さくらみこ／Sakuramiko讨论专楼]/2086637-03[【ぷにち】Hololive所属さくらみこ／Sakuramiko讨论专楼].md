@@ -13637,3 +13637,13 @@ A锐评
 
 绝对不会分到格兰芬多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话放在这了
 
+
+*****
+
+####  rs5621  
+##### 4251#       发表于 2023-2-8 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的假的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
