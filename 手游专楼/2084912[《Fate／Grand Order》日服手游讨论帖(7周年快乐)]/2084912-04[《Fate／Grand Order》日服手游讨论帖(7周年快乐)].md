@@ -7219,3 +7219,14 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 开头不就暴打了所长一顿，都把所长给打失忆了，这次咕哒死的两条命里面有一条就是她动手搞出来的 ...</blockquote>
 导致所长失忆的应该是最后烟雾镜的掏心和补枪吧
 
+
+*****
+
+####  武男  
+##### 5192#       发表于 2023-2-8 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59661912&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-8 15:11</a>
+
+导致所长失忆的应该是最后烟雾镜的掏心和补枪吧</blockquote>
+最后下手的是这俩，不过还是中了光之巨人的手刀才会有机可趁
+
