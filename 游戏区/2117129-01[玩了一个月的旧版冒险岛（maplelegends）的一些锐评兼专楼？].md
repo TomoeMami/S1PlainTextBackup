@@ -992,3 +992,14 @@ legends好像也多多少少有点问题，想要找到一个相对理想的私�
 
 说实话，我更喜欢玩几个角色满级了做一下装备就毕业的，无聊了就逛逛图，或者组队打个boss，而不是日以继夜的肝日常打工坐牢，网游的强行延寿只能让我感到不适。
 
+
+*****
+
+####  kemyes  
+##### 91#       发表于 2023-2-8 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59648521&amp;ptid=2117129" target="_blank">adrftgyh 发表于 2023-2-7 16:46</a>
+
+我也是玩刀飞，图的就是六连斩帅啊，这游戏远程职业都不怎么好玩，法师算好的，标飞弓手怪物近身不能射击 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">六连斩看演示的时候帅，自己上手了只觉得傻，站着放就是一个大硬直，距离我记得甚至比一转时的二连还近。
+
