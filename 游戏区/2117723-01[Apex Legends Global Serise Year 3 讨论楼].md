@@ -623,3 +623,16 @@ TSM这边还是高坡，对面这个阵容HAL甲都不用打直接开直升机
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  泥潭办证先锋  
+##### 67#       发表于 2023-2-8 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665895&amp;ptid=2117723" target="_blank">浊世臭臭泥 发表于 2023-2-8 20:16</a>
+一说辅瞄就是没用，一让关就是不关，手柄侠刻板印象了。真没用algs拿那么多烟妹干嘛，就是烟能克制手把的辅 ...</blockquote>
+你先别急。
+有没有一种可能，只玩主机的玩家是真的对这东西没什么正确认知呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

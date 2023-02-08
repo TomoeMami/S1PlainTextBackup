@@ -16270,3 +16270,24 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 是在说鲨鱼今天的节目？</blockquote>
 时间话题都对的上的，说买盘子的事儿嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11967#       发表于 2023-2-8 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59667073&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-2-8 22:01</a></blockquote>
+单纯的铃原仅仅认为鲤鱼馋的是果酱<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 11968#       发表于 2023-2-8 22:26
+
+548名無しで叶える物語(もんじゃ) (ﾜｯﾁｮｲ 3ff9-7fps)2023/02/08(水) 23:01:51.27ID:FU1B8Nzm0
+美少女が居る所、りーちゃんは生えてくる
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
