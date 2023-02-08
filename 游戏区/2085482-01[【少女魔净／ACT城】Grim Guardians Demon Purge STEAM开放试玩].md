@@ -983,3 +983,13 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 
 打完吸血鬼boss点了柱子给我传回出生地了 怎么才能传回来？
 
+
+*****
+
+####  cmyk1234  
+##### 97#         楼主| 发表于 2023-2-8 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59658801&amp;ptid=2085482" target="_blank">アルメリア 发表于 2023-2-8 11:22</a>
+打完吸血鬼boss点了柱子给我传回出生地了 怎么才能传回来？</blockquote>
+城门前往右走有传送用的喷泉
+

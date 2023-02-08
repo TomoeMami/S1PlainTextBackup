@@ -2828,3 +2828,18 @@ as活动up曲第一首就是chase！
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 7013#       发表于 2023-2-8 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59655615&amp;ptid=1959558" target="_blank">yicihanshu 发表于 2023-2-8 04:04</a>
+
+到sif2还是得打，起码你要说现在灯还在。
+
+我看那天sif2生放鱼玩完一首，出来左边推荐还是like it love it ...</blockquote>
+这样想，大概率虽然会出翻唱，但是游戏里的版本还是保留灯的，多少会好受点吧。
+
+愈发觉得这个新来的压力大的一笔。
+
