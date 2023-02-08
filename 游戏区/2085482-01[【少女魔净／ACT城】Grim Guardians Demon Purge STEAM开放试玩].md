@@ -1081,3 +1081,14 @@ boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半�
 妹妹死在只有纸鹤才能到达的地方了，姐姐就只能干瞪眼这个你们怎么解决的？还 ...</blockquote>
 点retry从上一个续关点重来，收集保留，除非退出关卡。
 
+
+*****
+
+####  白軍浪  
+##### 106#       发表于 2023-2-8 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665045&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-8 19:00</a>
+
+点retry从上一个续关点重来，收集保留，除非退出关卡。</blockquote>
+看来以后探索要用无限续关模式了
+

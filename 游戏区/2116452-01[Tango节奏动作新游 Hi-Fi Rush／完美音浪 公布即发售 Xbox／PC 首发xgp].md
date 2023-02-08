@@ -4329,3 +4329,13 @@ goty
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  肉搏光头  
+##### 417#       发表于 2023-2-8 19:10
+
+[https://www.bilibili.com/video/BV1nd4y1p7PQ](https://www.bilibili.com/video/BV1nd4y1p7PQ)
+
+用吉他拯救世界！
+

@@ -2869,3 +2869,11 @@ as活动up曲第一首就是chase！
 
 肯定是双版本啊，人过来救火还不让人录歌了……
 
+
+*****
+
+####  仟音一心  
+##### 7017#       发表于 2023-2-8 19:03
+
+<img src="https://p.sda1.dev/9/1b88a81eba06984da5786e84bfcc8951/CMP_20230208190326521.jpg" referrerpolicy="no-referrer">
+
