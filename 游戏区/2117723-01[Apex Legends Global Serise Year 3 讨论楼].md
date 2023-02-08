@@ -566,3 +566,17 @@ TSM这边还是高坡，对面这个阵容HAL甲都不用打直接开直升机
 我从开服到现在都是用主机玩的，换平台也只是X1换到PS4到现在PS5玩 ...</blockquote>
 对不用的人来说最有效
 
+
+*****
+
+####  arbilest  
+##### 62#       发表于 2023-2-8 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59658806&amp;ptid=2117723" target="_blank">泥潭办证先锋 发表于 2023-2-8 11:23</a>
+看到贴吧整天在吵手柄辅助瞄准这事……
+
+我从开服到现在都是用主机玩的，换平台也只是X1换到PS4到现在PS5玩 ...</blockquote>
+经常就是对面倒了一个，人冲过去追他队友结果准星被倒地的吸过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
