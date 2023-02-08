@@ -946,3 +946,11 @@ BGM 有点不够带劲
 不知能否 ...</blockquote>
 boss的临死攻击有一些可以躲掉，有一些可以反杀（劈成两半）
 
+
+*****
+
+####  soranoguiji  
+##### 93#       发表于 2023-2-8 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 玩了下，姐姐这远程太强了，妹妹这性能对的起inti的近战吗
+
