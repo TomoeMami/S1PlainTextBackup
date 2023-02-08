@@ -7124,3 +7124,27 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">B站看到个2160只出来一个的霉B 我感觉心情好了很多
 
+
+*****
+
+####  gpx234mqx  
+##### 5183#       发表于 2023-2-8 12:02
+
+旧的再强化也强不到哪里去
+
+*****
+
+####  eilot  
+##### 5184#       发表于 2023-2-8 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59658948&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-8 11:30</a>
+
+现在螺旋社的方针已经很明确了，与其加强旧从者不如出新卡，也就周年开几个不疼不痒的强化糊弄过去，所以 ...</blockquote>
+小恩都算，但金闪闪一直都是长年抽不到的限角来...再之前的每章故事池也没金闪闪爷爷他们，就是当中普池再PICKUP，根本不明白营运一直收藏做甚么
+
+但出新卡也比其他游戏慢得多，上年35名新角还有3名本质是同一隻来，其他游戏的话，一早换皮肤换装再出新角吧...
+
+不过以前就算开强化本，抽池也未必有相关角色，也是搞笑用
+
+而现在开强化本时，都是为了能同时体验强化本的送石
+
