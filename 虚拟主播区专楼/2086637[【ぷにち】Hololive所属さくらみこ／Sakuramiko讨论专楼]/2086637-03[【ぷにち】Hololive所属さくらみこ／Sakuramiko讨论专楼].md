@@ -13693,3 +13693,11 @@ A锐评
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qesto  
+##### 4257#       发表于 2023-2-8 20:43
+
+一上来直接来个阿瓦达啃大瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
