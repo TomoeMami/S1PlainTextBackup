@@ -16521,3 +16521,11 @@ QQ图片20230209151401.jpg
 
 隔壁步梦觉醒还不如觉醒前，这游戏行不行啊，单一个卡面画风人员安排什么的就槽点满满，还没开服就这样了。，
 
+
+*****
+
+####  nufawneafg  
+##### 11993#       发表于 2023-2-9 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1541,3 +1541,16 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  恋妖壶  
+##### 780#       发表于 2023-2-9 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677844&amp;ptid=1997982" target="_blank">胖胖Ω 发表于 2023-2-9 16:17</a>
+
+又看了几遍新PV，还是挺好看的。开头部分盖侬说什么“将海拉鲁赶尽杀绝！”，各种新怪向林克逼近，营造一种 ...</blockquote>
+肯定会有，这片子和BOTW的PV3比起来完全是战五渣
+
+我希望TOTK能有个PV3一样质量的片子
+

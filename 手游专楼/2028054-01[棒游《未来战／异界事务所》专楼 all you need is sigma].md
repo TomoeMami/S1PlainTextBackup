@@ -52,3 +52,22 @@
 
 最后再偷偷问一下，大家玩吊瓶一般用啥狙？黑妹吗？目前已经攒了几个吊瓶了，虽然地减和广减还没出，不过目前是吊瓶池子，打算趁机捞一波试试，求各位大佬指点一下吊瓶队有啥要注意的吗？就是前排堆肉然后拖吗？雷克被ban的时候一般上啥？
 
+
+*****
+
+####  rgauss  
+##### 838#         楼主| 发表于 2023-2-9 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677138&amp;ptid=2028054" target="_blank">xiongxingyu 发表于 2023-2-9 15:31</a>
+
+我说怎么找不到输码的地方，原来得随便开个号进了教程再引继，一下从日服来到国际服，好多东西都没见过啊。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">酒女就是偷后排的 看当周主流队伍塞得一张对策卡。
+
+复制人没必要了
+
+乐团不久一个狙吗，我还是觉得不行 乐团除开卡门都不能单独评价 他们是一个体系。
+
+遗迹本没啥必要，因为之前的肯定没洗好。
+
+吊瓶队核心就是控线 所以首发基本就黑皮，骑马大哥哥，沃登。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">至于要注意啥我也不知道，因为我是被吊瓶队恶心的。
+
