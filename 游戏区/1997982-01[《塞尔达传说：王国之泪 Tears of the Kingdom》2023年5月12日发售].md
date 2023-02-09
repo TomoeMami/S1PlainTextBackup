@@ -1008,3 +1008,14 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 官网下单狂给我报错，想买都不给买？我是储值购买又不存在信用卡问题
 
+
+*****
+
+####  king520kyo  
+##### 730#       发表于 2023-2-9 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674762&amp;ptid=1997982" target="_blank">raii 发表于 2023-2-9 12:28</a>
+
+官网下单狂给我报错，想买都不给买？我是储值购买又不存在信用卡问题</blockquote>
+看看是不是地址问题 用代购地址就会不让你买
+
