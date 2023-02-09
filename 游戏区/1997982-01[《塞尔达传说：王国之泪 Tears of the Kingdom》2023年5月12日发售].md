@@ -1803,3 +1803,19 @@ md明明知道没有hdr还是想买lg c2来玩这个游戏
 这次pv里出现的怪头上都长出了各种各样的东西</blockquote>
 这些东西最后都会成为林克的组装品。
 
+
+*****
+
+####  Arisita  
+##### 803#       发表于 2023-2-9 19:44
+
+<img src="https://img.saraba1st.com/forum/202302/09/194238f7xos82sskfb5bg8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 19:42 上传
+
+这次的纵向探索感觉不得了啊，不止有山洞和地底，天空上的岛还是一层一层往上叠的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
