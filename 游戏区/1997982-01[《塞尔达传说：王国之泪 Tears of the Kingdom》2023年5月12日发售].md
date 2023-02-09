@@ -383,3 +383,23 @@ eshop已经开了（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  GuardHei  
+##### 672#       发表于 2023-2-9 08:35
+
+港服多少钱啊，什么时候任亏卷再卖一把。。。
+
+*****
+
+####  硫黄  
+##### 673#       发表于 2023-2-9 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670930&amp;ptid=1997982" target="_blank">GuardHei 发表于 2023-2-9 08:35</a>
+
+港服多少钱啊，什么时候任亏卷再卖一把。。。</blockquote>
+任天堂港服“任亏卷”再次发售，价格为 649 港币，新加入《塞尔达传说 王国之泪》等 4 款游戏可兑换。
+
+可在 2月9日7:00 ～ 3月12日23:59 期间内购买。
+

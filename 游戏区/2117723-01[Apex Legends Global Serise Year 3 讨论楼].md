@@ -649,3 +649,17 @@ TSM这边还是高坡，对面这个阵容HAL甲都不用打直接开直升机
 有没有一种可能，只玩主机的玩家是真的对这东西没什么正确认知呢？</blockquote>
 也不用急，有没有可能手柄这玩意只要花钱就能买到，辅瞄有没有用只要插在usb口上就能体验得清清楚楚呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泥潭办证先锋  
+##### 69#       发表于 2023-2-9 08:40
+
+ 本帖最后由 泥潭办证先锋 于 2023-2-9 08:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59669266&amp;ptid=2117723" target="_blank">浊世臭臭泥 发表于 2023-2-9 03:19</a>
+也不用急，有没有可能手柄这玩意只要花钱就能买到，辅瞄有没有用只要插在usb口上就能体验得清清楚楚呢[f: ...</blockquote>
+没玩过PC版，没用过鼠标亲自感受所谓手柄侠一梭子秒，不太清楚辅助怎么运作不是很正常。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+又没人说辅助完全没用，不知道自个在这急个啥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
