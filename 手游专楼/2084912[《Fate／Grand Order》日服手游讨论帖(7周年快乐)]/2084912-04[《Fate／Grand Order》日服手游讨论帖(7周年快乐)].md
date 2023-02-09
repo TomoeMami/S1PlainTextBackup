@@ -7453,3 +7453,22 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然烟现在的描写和2.4是矛盾的，2.4明确说了他有冠位灵基（2.7出了以后这部分文本也没暗搓搓改动，只是把戴的立绘手上的令咒改掉了）
 
+
+*****
+
+####  Jamaisvu  
+##### 5208#       发表于 2023-2-9 16:10
+
+NGA看到一个很搞笑的说法，戴比特卫宫士郎说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+内心空虚、模仿善行、能手撕从者、找不到亲生父亲的独行侠男主，
+
+金发碧眼、实力强大、双向奔赴、在彼岸乐园等候男主的从者女一，
+
+魔道名门、乐观开朗、非常信任男主、有一个黑皮从者的嬢様女二，
+
+天赋异禀、幼年不幸、被男主在危难时刻搭救、单箭头的紫毛女三，
+身居高位、前期人生导师、后期相爱相杀、有一个被折磨得不轻的便宜女儿的大龄女四
+
+看来2.7不仅致敬月姬，还缅怀了一下FSN<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
