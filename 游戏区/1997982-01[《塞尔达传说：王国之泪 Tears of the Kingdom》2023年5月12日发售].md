@@ -1389,3 +1389,13 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aqualyre  
+##### 766#       发表于 2023-2-9 14:34
+
+日亚典藏版补货了，先定了一份，之后看看港版什么价钱，比日版便宜的话就把日亚退了……
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
