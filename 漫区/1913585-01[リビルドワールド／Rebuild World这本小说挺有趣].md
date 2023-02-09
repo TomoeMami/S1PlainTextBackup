@@ -5277,3 +5277,14 @@ WEB版才是真心理扭曲
 看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不 ...</blockquote>
 看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 428#       发表于 2023-2-10 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683269&amp;ptid=1913585" target="_blank">selain.meneth 发表于 2023-2-9 23:36</a>
+
+看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来也有点微妙，这部的版权在角川，角川又把重装机兵卖给了cy，硬蹭蹭也算沾亲带故了
+

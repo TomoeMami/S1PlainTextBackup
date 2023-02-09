@@ -1318,3 +1318,18 @@ galgun啊，本家联动了属于是
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一个蝙蝠boss我倒是一次过
 妹妹开盾上去平砍换血就行，不过我打的是普通难度，不知道demo有没有困难难度
 
+
+*****
+
+####  x_ray_zero  
+##### 126#       发表于 2023-2-10 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59664839&amp;ptid=2085482" target="_blank">姬茧墨 发表于 2023-2-8 18:43</a>
+
+吊灯蜘蛛直接跳它背上去就行狂砍就行，打起来最简单的精英怪
+
+—— 来自 Sony XQ-AT52, Android 11上的 S ...</blockquote>
+蜘蛛地图最右边那个像个灵魂的道具单人模式能拿么？还是要双打或者等拿纸鹤才能拿到？
+
+我以为可以引蜘蛛上背过去，结果好像蜘蛛不会跑到版边<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
