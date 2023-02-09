@@ -862,3 +862,90 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  heseran  
+##### 720#       发表于 2023-2-9 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674512&amp;ptid=1997982" target="_blank">aqualyre 发表于 2023-2-9 12:12</a>
+好消息：日亚的典藏版上了
+坏消息：已经切了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 721#       发表于 2023-2-9 12:15
+
+ 本帖最后由 moekyo 于 2023-2-9 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674512&amp;ptid=1997982" target="_blank">aqualyre 发表于 2023-2-9 12:12</a>
+
+好消息：日亚的典藏版上了
+
+坏消息：已经切了</blockquote>
+切了是什么意思，删了？
+
+明白了，原来是在庫切れ，卖完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  king520kyo  
+##### 722#       发表于 2023-2-9 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674553&amp;ptid=1997982" target="_blank">moekyo 发表于 2023-2-9 12:15</a>
+
+切了是什么意思，删了？</blockquote>
+品切 卖完了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| moekyo| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  愚钝兔子  
+##### 723#       发表于 2023-2-9 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674553&amp;ptid=1997982" target="_blank">moekyo 发表于 2023-2-9 12:15</a>
+切了是什么意思，删了？</blockquote>
+售罄的意思吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| moekyo| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  moekyo  
+##### 724#       发表于 2023-2-9 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674587&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 12:17</a>
+
+品切 卖完了</blockquote>
+日亚看了眼，确实卖完了，不过肯定补的，不慌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  macongju1  
+##### 725#       发表于 2023-2-9 12:19
+
+都第四个预告了还是只有这么点东西
+
