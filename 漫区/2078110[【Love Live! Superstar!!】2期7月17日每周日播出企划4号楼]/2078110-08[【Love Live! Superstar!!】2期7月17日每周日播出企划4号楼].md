@@ -16473,3 +16473,36 @@ QQ图片20230209151401.jpg
 
 五角星，懂了，星团的卡觉醒前都是多人卡
 
+
+*****
+
+####  Kfly  
+##### 11987#       发表于 2023-2-9 15:24
+
+香音 和她的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果星觉醒前都是多人的话，有些好奇恋觉醒前会和谁<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 11988#       发表于 2023-2-9 15:25
+
+这个香音为什么那么大jpg
+
+恋恋肯定是和她的狗合影啊。
+
+*****
+
+####  adw667  
+##### 11989#       发表于 2023-2-9 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">五角星这骂也不是不骂也不是，搁这试探底线是吧
+
+*****
+
+####  starring  
+##### 11990#       发表于 2023-2-9 15:25
+
+是成神前的香哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

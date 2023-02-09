@@ -1442,3 +1442,45 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 楼上日亚的典藏链接能给个么，日亚好像下架了搜不到了
 
+
+*****
+
+####  aqualyre  
+##### 772#       发表于 2023-2-9 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59676842&amp;ptid=1997982" target="_blank">funkie 发表于 2023-2-9 15:11</a>
+楼上日亚的典藏链接能给个么，日亚好像下架了搜不到了</blockquote>
+https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hu794  
+##### 773#       发表于 2023-2-9 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674186&amp;ptid=1997982" target="_blank">ouyang菌 发表于 2023-2-9 11:53</a>
+
+右边这个不知道是单纯就是骷髅的新怪还是新怪的骷髅形态
+
+右上角这感觉也是新怪？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/09/152712g727zzk9krhexze2.png" referrerpolicy="no-referrer">
+
+<strong>115554s7y9x2x3w0c0x97w.png</strong> (84.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 15:27 上传
+
+这个怪的原型应该来自初代。
+
+9%2P_UI3U3@{]4094A9~O45.png
+(23.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 15:27 上传
+
+<img src="https://img.saraba1st.com/forum/202302/09/152736olkq48kp1kuh8p4t.png" referrerpolicy="no-referrer">
+
