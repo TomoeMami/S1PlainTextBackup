@@ -5267,3 +5267,13 @@ WEB版才是真心理扭曲
 
 看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不太支棱<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  selain.meneth  
+##### 427#       发表于 2023-2-9 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59664921&amp;ptid=1913585" target="_blank">ardito 发表于 2023-2-8 18:48</a>
+看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不 ...</blockquote>
+看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
