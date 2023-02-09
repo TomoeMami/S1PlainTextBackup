@@ -7436,3 +7436,20 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 毕竟召唤主体又不是他，他只是觉得作为无常之风的烟雾镜才有可能来帮自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 5207#       发表于 2023-2-9 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671757&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-9 09:44</a>
+
+烟雾镜已经确认是冠位，为了完整现界需要冠位灵基
+
+然而并不能，这可不就是系统不批假</blockquote>
+王哈的那个已经算明说冠位Servant的行动不符合抑止力的意志会被收冠位了吧，虽然这种设定内容塞在17年的AJ访谈这种细枝末节地方的蘑菇也挺屑的（第七章虽然说了然而说的很含糊，可以理解成王哈燃烧冠位灵基来强化自己赋予提妈“死亡”了，但是后续描写补充来说完全不是这么一回事）。
+
+至于真正的神灵从者的现界有没有附加条件，只能说现在这方面的信息还是语焉不详（月神相关也是明确说了不可以，只能借俄里翁的号）。卡住烟雾镜以完全形态现界的原因是他是神灵级，他的冠位没有像王哈一样被拿走寄存在别人那边，说明抑止力多少是默许了他回应戴比特的召唤的，最多就是像你说的一样这只能算私人活儿不能算公差了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然烟现在的描写和2.4是矛盾的，2.4明确说了他有冠位灵基（2.7出了以后这部分文本也没暗搓搓改动，只是把戴的立绘手上的令咒改掉了）
+
