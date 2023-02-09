@@ -380,3 +380,14 @@ B组活了，能跳一个in the light of darkness吗
 
 卡姐魔法期这个是谁透露的？看了纸、杜、约的好像都没提到这事，只说没进去泡
 
+
+*****
+
+####  别里科夫  
+##### 3040#       发表于 2023-2-9 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665777&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-2-8 20:05</a>
+
+恰恰是这点让我不太舒服，首播就主动引流青叶这些切片man，感觉整个人透露出一股过于精明的气质，只能说 ...</blockquote>
+不由让我想到李桑。桃姆q现在确实够蹭，社内蹭前辈，社外蹭扇宝。扇宝都关注她了，也许有联动。
+

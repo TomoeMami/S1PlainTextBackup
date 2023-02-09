@@ -16576,3 +16576,13 @@ QQ图片20230209151401.jpg
 
 <img src="https://p.sda1.dev/9/b93fb8a77cf59f01f5e138c315f5558a/-2e3e3d7c8eb6082c_edit_331659497069938.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 11998#       发表于 2023-2-9 17:08
+
+(仿)水彩的颗粒感我到挺喜欢的
+但是人体结构<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这也是需要用心看而不是用眼看的那种艺术吗
+
