@@ -1732,3 +1732,16 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 美版现在能订了吗？
 
+
+*****
+
+####  99mxw  
+##### 796#       发表于 2023-2-9 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59679407&amp;ptid=1997982" target="_blank">stoiorz 发表于 2023-2-9 18:06</a>
+没找到，只看到24480的。官网的也没了。</blockquote>
+是没有商品图片、商家是amazon japan的那个。
+如果是隐藏了的话可能还会补，毕竟店特还是未定。
+
+—— 来自 OPPO R11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
