@@ -649,3 +649,37 @@ https://store-jp.nintendo.com/list/software/HAC_R_AXN7A.html</blockquote>
 
 没怎么买过限定版，不知道会不会上亚马逊之类的
 
+
+*****
+
+####  shqingda_  
+##### 699#       发表于 2023-2-9 09:52
+
+和林克握手的是天剑塞尔达么
+
+*****
+
+####  mashav  
+##### 700#       发表于 2023-2-9 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671774&amp;ptid=1997982" target="_blank">ajunsama 发表于 2023-2-9 09:45</a>
+
+任天堂商店好像只送日本的？选不了国内地址
+
+没怎么买过限定版，不知道会不会上亚马逊之类的 ...</blockquote>
+可以试试转运，运气好地址没被日任拉黑就能下单
+
+日亚可能会上吧，看了眼火纹豪华版是有的
+
+*****
+
+####  ajunsama  
+##### 701#       发表于 2023-2-9 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671918&amp;ptid=1997982" target="_blank">mashav 发表于 2023-2-9 09:54</a>
+
+可以试试转运，运气好地址没被日任拉黑就能下单
+
+日亚可能会上吧，看了眼火纹豪华版是有的 ...</blockquote>
+感谢，那我等日亚看看
+
