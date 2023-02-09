@@ -1893,3 +1893,24 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 塞尔达2不是1986年就发售了吗？
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 812#       发表于 2023-2-9 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681441&amp;ptid=1997982" target="_blank">cst3108 发表于 2023-2-9 21:10</a>
+塞尔达2不是1986年就发售了吗？</blockquote>
+按日版来算的话，86年是塞尔达1，87年才是塞尔达2<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 813#       发表于 2023-2-9 21:14
+
+反正已经请朋友帮我顶了日版<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不知道为什么要请企鹅代理，野吹都没过审呢
+

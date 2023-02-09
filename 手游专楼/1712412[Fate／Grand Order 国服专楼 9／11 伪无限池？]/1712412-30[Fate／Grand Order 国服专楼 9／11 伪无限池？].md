@@ -79,3 +79,13 @@
 
 充能不是未来的标准，团队增伤和特攻已经取代连发成为阴间周回的第一位了
 
+
+*****
+
+####  电波系腑海林  
+##### 44148#       发表于 2023-2-9 21:12
+
+买的亲妈画的C100巴姐本当作圣遗物果然有用<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，650石头，人生第一次满宝，甚至是7宝溢出。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
