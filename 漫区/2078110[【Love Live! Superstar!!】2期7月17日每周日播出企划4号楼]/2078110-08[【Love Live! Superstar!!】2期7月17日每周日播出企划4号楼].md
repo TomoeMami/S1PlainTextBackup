@@ -16597,3 +16597,11 @@ QQ图片20230209151401.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 12000#       发表于 2023-2-9 18:01
+
+<img src="https://p.sda1.dev/9/0bb2472270f2272894873346ca820817/CMP_20230209180107311.jpg" referrerpolicy="no-referrer">
+
