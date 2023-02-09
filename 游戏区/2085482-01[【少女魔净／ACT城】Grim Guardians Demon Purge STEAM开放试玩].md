@@ -1298,3 +1298,14 @@ dlc怕不是又是各种苍蓝银白什么的联动角色……
 
 你们说的GUNGAL是什么游戏……？我只搜索到了一个轨道射击游戏，感觉说的应该不是同一个。
 
+
+*****
+
+####  水边井  
+##### 124#       发表于 2023-2-10 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683652&amp;ptid=2085482" target="_blank">睡不醒的虾米 发表于 2023-2-10 00:17</a>
+
+你们说的GUNGAL是什么游戏……？我只搜索到了一个轨道射击游戏，感觉说的应该不是同一个。 ...</blockquote>
+galgun啊，本家联动了属于是
+
