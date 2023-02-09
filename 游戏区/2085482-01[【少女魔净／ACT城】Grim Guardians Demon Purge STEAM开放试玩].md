@@ -1185,3 +1185,15 @@ Xbox/ps/ns数字版日服3480日元/25美元，steam没给价格。
 
 顺带吐槽一下，这游戏手柄键位提示是固定的，不能切换软软、任任、索索三种布局，用任任和索索手柄的只能颅内转换一下按键提示
 
+
+*****
+
+####  cmyk1234  
+##### 115#         楼主| 发表于 2023-2-9 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682182&amp;ptid=2085482" target="_blank">幻想风靡_ 发表于 2023-2-9 22:05</a>
+试玩版就有吗？这下得再跑跑图了
+
+顺带吐槽一下，这游戏手柄键位提示是固定的，不能切换软软、任任、索索 ...</blockquote>
+正式版才有金色强化。
+

@@ -1974,3 +1974,16 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 能说说塞尔达2上一个代理是谁吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 821#       发表于 2023-2-9 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682359&amp;ptid=1997982" target="_blank">poppin 发表于 2023-2-9 22:15</a>
+
+国内典藏版怎么买，能靠谱而且不坑啊。现在黄鱼上带卡带的最便宜都要1200，有点贵
+
+—— 来自 vivo V1981A, ...</blockquote>
+日亚和2000fun这种香港直邮、任天堂官网买然后转运。
+

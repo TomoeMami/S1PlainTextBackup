@@ -730,3 +730,14 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 异度装甲这游戏能排这么高我是不认同的……我个人很喜欢这游戏，但是就冲disc2烂尾这游戏也不配进前50。
 
+
+*****
+
+####  白帽子  
+##### 70#       发表于 2023-2-9 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677414&amp;ptid=2118761" target="_blank">CQTK 发表于 2023-2-9 15:48</a>
+
+之前那个我记得如龙七也挺靠前的，鬼佬老害们都这么喜欢的吗</blockquote>
+毕竟这些年制作大一些的剧情胡逼向jrpg也就只有如龙7了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
