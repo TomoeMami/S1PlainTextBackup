@@ -1564,3 +1564,18 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rincewind  
+##### 266#       发表于 2023-2-9 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59680558&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-2-9 19:48</a>
+这次情人节巧克力做出来的是武器，什么鬼
+
+另外推特上一堆整活拍摄大师</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">用来打倒巧克力僵尸的
+
+我也跟风贴张老女人营业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/ec6c2284812d2a6bc83604723a937215/CMP_20230209212839408.jpg" referrerpolicy="no-referrer">
+
