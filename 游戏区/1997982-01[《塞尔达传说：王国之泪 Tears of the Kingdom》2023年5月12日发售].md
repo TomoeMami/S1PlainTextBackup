@@ -1701,3 +1701,16 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 —— 来自 OPPO R11, Android 9上的 S1Next-鹅 ...</blockquote>
 不是发货才实际扣款的吗
 
+
+*****
+
+####  stoiorz  
+##### 793#       发表于 2023-2-9 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59679149&amp;ptid=1997982" target="_blank">99mxw 发表于 2023-2-9 17:45</a>
+
+14520的一直都在啊，你再看看？
+
+—— 来自 OPPO R11, Android 9上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+没找到，只看到24480的。官网的也没了。
+

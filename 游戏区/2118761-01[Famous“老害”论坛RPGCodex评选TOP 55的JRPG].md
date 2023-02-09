@@ -673,3 +673,11 @@ rpgcodex是以pc crpg玩家为主的论坛，所有的日式、看得出来产�
 
 战国兰斯算slg才对，sl大于策略
 
+
+*****
+
+####  格林卡罗尔  
+##### 64#       发表于 2023-2-9 18:04
+
+很有欧美风范的FF5胜于6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
