@@ -683,3 +683,39 @@ https://store-jp.nintendo.com/list/software/HAC_R_AXN7A.html</blockquote>
 日亚可能会上吧，看了眼火纹豪华版是有的 ...</blockquote>
 感谢，那我等日亚看看
 
+
+*****
+
+####  GuardHei  
+##### 702#       发表于 2023-2-9 10:00
+
+pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
+
+到现在没看到主要亮点是啥，虽然说单纯加量我也认了
+
+*****
+
+####  leafS  
+##### 703#       发表于 2023-2-9 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671496&amp;ptid=1997982" target="_blank">Loony 发表于 2023-2-9 09:23</a>
+
+为什么现在日服比港服便宜了</blockquote>
+日元贬值，港币跟美元强挂钩，你说呢
+
+*****
+
+####  奥F特  
+##### 704#       发表于 2023-2-9 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671408&amp;ptid=1997982" target="_blank">孙女 发表于 2023-2-9 09:17</a>
+怕国产某游戏突然一个大更新，然后512后说塞尔达抄袭</blockquote>
+那个游戏机制都限死了 技能都整不出啥新玩意 安心更新4399活动吧
+
+*****
+
+####  清浦刹那  
+##### 705#       发表于 2023-2-9 10:05
+
+限定是官网独占吗？
+
