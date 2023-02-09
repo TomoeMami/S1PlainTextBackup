@@ -800,3 +800,15 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  VictorWJ  
+##### 77#       发表于 2023-2-10 06:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681534&amp;ptid=2118761" target="_blank">A1LI 发表于 2023-2-9 21:17</a>
+异度装甲这游戏能排这么高我是不认同的……我个人很喜欢这游戏，但是就冲disc2烂尾这游戏也不配进前50。 ...</blockquote>
+欧美rpg烂尾的也不少，可能是习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
