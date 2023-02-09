@@ -1231,3 +1231,19 @@ ps，认识的人解包说可能总共是10关左右，就是这种小品级的�
 
 这游戏居然是掉坑即死，配合僵硬的跳跃手感，第一关那几个浮动平台就死了很多次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 118#         楼主| 发表于 2023-2-9 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682621&amp;ptid=2085482" target="_blank">jellyhero 发表于 2023-2-9 22:36</a>
+开放下载第一天趁着夜班前一个半小时打完了来说说
+
+基本上是月之诅咒试的，关卡风格更像老城，靠掉坑和击退 ...</blockquote>
+我预计是8加1或者9加1关，这次请给ps4版double peace唱旧OP的歌手客串cv，很大可能有一个隐藏的真结局。传奇猎人难度也可能在真结局通关后触发。
+
+另外，steamdb显示苍蓝雷霆3还有一个未发布的dlc。
+
+可是我想在恶魔城操作麒麟。
+
