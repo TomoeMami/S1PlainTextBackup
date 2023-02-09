@@ -2008,3 +2008,24 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 —— 来自 vivo V1981A, ...</blockquote>
 最不折腾的应该是玛莎代购吧，就是日亚的直营那个页面刷出来要看运气
 
+
+*****
+
+####  hansel  
+##### 824#       发表于 2023-2-9 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671629&amp;ptid=1997982" target="_blank">topia 发表于 2023-2-9 09:34</a>
+一开始给那么大的月亮特写还以为要掉下来呢
+
+铁板驾驶员玩法直接给扶正了还行 ...</blockquote>
+有没有可能月亮掉个碎片下来，通过月岩登月打盖侬
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wwdzcjsmxx  
+##### 825#       发表于 2023-2-9 23:56
+
+368预定了一个普通版。。。懒得折腾了
+

@@ -1280,3 +1280,13 @@ ps，认识的人解包说可能总共是10关左右，就是这种小品级的�
 
 dlc怕不是又是各种苍蓝银白什么的联动角色……
 
+
+*****
+
+####  cmyk1234  
+##### 122#         楼主| 发表于 2023-2-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683016&amp;ptid=2085482" target="_blank">whzfjk 发表于 2023-2-9 23:13</a>
+恶魔城的麒麟像素怕是太低了点</blockquote>
+超惑星战记zero3没有dlc的原因，我猜也许因为银白钢铁2苍蓝雷霆3少女魔净用了新的开发工具，不再向旧兼容了。
+
