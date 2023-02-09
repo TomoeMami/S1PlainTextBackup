@@ -1399,3 +1399,28 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  超时空鉴定师  
+##### 767#       发表于 2023-2-9 14:41
+
+请问没玩过前作能玩这个吗？包含前作内容吗？
+
+*****
+
+####  牛奶笛  
+##### 768#       发表于 2023-2-9 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59676423&amp;ptid=1997982" target="_blank">超时空鉴定师 发表于 2023-2-9 14:41</a>
+
+请问没玩过前作能玩这个吗？包含前作内容吗？</blockquote>
+不包括，是续作。剧情是连着的，但剧情不是很重要，就是勇者打败大魔王救公主。玩法可能有很多不同。前作有时间可以玩，正在打折
+
+*****
+
+####  WHK9208  
+##### 769#       发表于 2023-2-9 14:49
+
+典藏版不支持直邮美国了？也许是因为日元贬值？
+
