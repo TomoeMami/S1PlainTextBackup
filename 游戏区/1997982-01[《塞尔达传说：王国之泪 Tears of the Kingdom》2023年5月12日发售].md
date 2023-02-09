@@ -949,3 +949,62 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 都第四个预告了还是只有这么点东西
 
+
+*****
+
+####  leove25  
+##### 726#       发表于 2023-2-9 12:25
+
+<blockquote>macongju1 发表于 2023-2-9 12:19
+都第四个预告了还是只有这么点东西</blockquote>
+但是还只是pv2🤣
+
+*****
+
+####  moekyo  
+##### 727#       发表于 2023-2-9 12:26
+
+但是为毛日亚上贵那多啊，和官网比也没多什么啊
+
+<img src="https://img.saraba1st.com/forum/202302/09/122519uj2zh2zf9o5totfr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 12:25 上传
+
+<img src="https://img.saraba1st.com/forum/202302/09/122615xfk9v4hr3ywrhwrb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 12:26 上传
+
+官网的
+
+<img src="https://img.saraba1st.com/forum/202302/09/122642ka65wceb4m6nf844.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 12:26 上传
+
+*****
+
+####  ouyang菌  
+##### 728#       发表于 2023-2-9 12:28
+
+其实野炊1的pv就信息量很大了，基本遍历了一遍地图+希卡之石能力，pv2虽然短但是四英杰已经开始登场了，更不用说pv3了
+
+现在最大的问题还是新地图的画面太少了，而且比起野炊的14g王泪只多了4g，很难不去担忧王泪究竟有多少新内容
+
+*****
+
+####  raii  
+##### 729#       发表于 2023-2-9 12:28
+
+官网下单狂给我报错，想买都不给买？我是储值购买又不存在信用卡问题
+
