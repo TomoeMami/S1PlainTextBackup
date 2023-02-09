@@ -359,3 +359,16 @@ B组活了，能跳一个in the light of darkness吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ladiesman802  
+##### 3038#       发表于 2023-2-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670519&amp;ptid=1926094" target="_blank">林宏 发表于 2023-2-9 07:47</a>
+
+没想到卡姐泡澡还能去儿童区( ﾟ∀。)
+
+—— 来自 S1Fun</blockquote>
+卡姐好像是魔法期，出去外面逗小孩了
+

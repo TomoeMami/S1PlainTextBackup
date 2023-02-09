@@ -771,3 +771,46 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 等pv3吧，野炊在pv3之前的pv也是水得不行
 
+
+*****
+
+####  wwdzcjsmxx  
+##### 712#       发表于 2023-2-9 11:43
+
+你们实体都在哪买？找了以前买过的店358欧版港版368
+这价格比一代还便宜了？我记得那时候400多啊
+
+*****
+
+####  heseran  
+##### 713#       发表于 2023-2-9 11:44
+
+任亏券加官网不带游戏的限定套装<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lanyu_u  
+##### 714#       发表于 2023-2-9 11:47
+
+<blockquote>牛奶笛 发表于 2023-2-9 10:24
+突然想起来，目前是一个npc或配角都没公布。比如古代四英杰，新的呀哈哈等 ...</blockquote>
+之前有舅舅爆料过这次可以和NPC同行，还挺期待的
+
+*****
+
+####  岸波  
+##### 715#       发表于 2023-2-9 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59672678&amp;ptid=1997982" target="_blank">尤伽 发表于 2023-2-9 10:38</a>
+等种草家开港版限定再订好了，正好我野炊的卡带也是港版</blockquote>
+请问一下种草家是哪家店<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  king520kyo  
+##### 716#       发表于 2023-2-9 11:49
+
+港版这次看种草说包装和日版不一样了 设定集也是中文封面 
+
+想想挺怪的你要么全给中文 要么全日文 搞个不伦不类的干嘛…还是订个日版好了
+
