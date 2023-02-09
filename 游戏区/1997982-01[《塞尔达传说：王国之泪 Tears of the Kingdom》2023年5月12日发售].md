@@ -1666,3 +1666,38 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 准备实体数字各入一份
 
+
+*****
+
+####  99mxw  
+##### 790#       发表于 2023-2-9 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59678680&amp;ptid=1997982" target="_blank">南宫月汐 发表于 2023-2-9 17:13</a>
+日亚现在全是3w左右的价格，疯了
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+14520的一直都在啊，你再看看？
+
+—— 来自 OPPO R11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  99mxw  
+##### 791#       发表于 2023-2-9 17:47
+
+日亚信用卡预订是怎么扣款的？订完只扣了1日元验证有效性。
+
+—— 来自 OPPO R11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  moekyo  
+##### 792#       发表于 2023-2-9 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59679175&amp;ptid=1997982" target="_blank">99mxw 发表于 2023-2-9 17:47</a>
+
+日亚信用卡预订是怎么扣款的？订完只扣了1日元验证有效性。
+
+—— 来自 OPPO R11, Android 9上的 S1Next-鹅 ...</blockquote>
+不是发货才实际扣款的吗
+
