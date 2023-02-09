@@ -1868,3 +1868,28 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 新代理是腾讯，以后中文封面可能出现腾讯那个贴纸。。 ...</blockquote>
 那种事情不要啊。。。。
 
+
+*****
+
+####  uanlice  
+##### 809#       发表于 2023-2-9 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这种事情不要啊
+
+*****
+
+####  Awanano  
+##### 810#       发表于 2023-2-9 21:10
+
+日版呢日版呢救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  cst3108  
+##### 811#       发表于 2023-2-9 21:10
+
+塞尔达2不是1986年就发售了吗？
+
