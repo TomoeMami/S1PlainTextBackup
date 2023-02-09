@@ -1306,3 +1306,61 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 等美任那边限定版出来就能知道是steel还是still了</blockquote>
 754楼。美任和美塞官网写的都是steel
 
+
+*****
+
+####  猫不萌  
+##### 758#       发表于 2023-2-9 13:50
+
+这个绿色logo应该就是车轮子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 759#         楼主| 发表于 2023-2-9 13:52
+
+珍藏版（限定版）
+
+“Collector's Edition”除了盒装版游戏本体，还包含刊登了设定资料等的“画集”、铁盒规格的“Nintendo Switch游戏卡盒”、“钢铁材质海报（Iconart™️规格）”及4种“别针徽章组合”
+<img src="https://p.sda1.dev/9/6c25fd9342b081370fb5ada661aebdf4/The-Legend-of-Zelda-Tears-of-the-Kingdom_2023_02-08-23_033 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/a68233b2a81e73669e9459e1cf0e25b4/The-Legend-of-Zelda-Tears-of-the-Kingdom_2023_02-08-23_034.png" referrerpolicy="no-referrer">
+
+新的amiibo“林克 王国之泪”登场
+
+在《塞尔达传说 王国之泪》点触这个amiibo，除了材料和武器以外，也会获得特别的“滑翔伞的布料”。在游戏中到访的某些店铺里，可以更换滑翔伞的布料。
+<img src="https://p.sda1.dev/9/201045d2a0d9276211325e5dc55a7893/The-Legend-of-Zelda-Tears-of-the-Kingdom_2023_02-08-23_035.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/9d7503b59e4915a3385cac8b0aa53fa2/The-Legend-of-Zelda-Tears-of-the-Kingdom_2023_02-08-23_036.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/12ef4c8b81ca8ca4194aadcdee697aa1/20230209_134151.jpg" referrerpolicy="no-referrer">
+
+还有，点触过去已发售的“塞尔达传说”系列amiibo，除了可以获得对冒险有帮助的材料或武器之外，运气好的话，还可以获得对应点触角色的“装备”和“滑翔伞的布料”。
+<img src="https://p.sda1.dev/9/8c905b8e1d43bb43803727f3a574a503/20230209_134158.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/8d2b125cfae6e59e7b458d9e3ac9920f/20230209_134159.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/b6b70b486fcdc36fe3a05d1e195f37e7/20230209_134200.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 760#       发表于 2023-2-9 13:56
+
+我两个小时前上去看实体已经没了
+定了个不带游戏的限定
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  heseran  
+##### 761#       发表于 2023-2-9 13:58
+
+是的，带游戏的限定版卖得超快。。。
+
+*****
+
+####  Anselmus  
+##### 762#       发表于 2023-2-9 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675772&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:42</a>
+
+等美任那边限定版出来就能知道是steel还是still了</blockquote>
+都不用等美任[https://www.youtube.com/watch?v=3FKtKZeDEn4](https://www.youtube.com/watch?v=3FKtKZeDEn4)
+
