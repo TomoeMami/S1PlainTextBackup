@@ -2029,3 +2029,13 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 368预定了一个普通版。。。懒得折腾了
 
+
+*****
+
+####  aqualyre  
+##### 826#       发表于 2023-2-10 00:13
+
+试了一下hmv日本的典藏版可以直邮国内，但是走ems可能邮费比较贵而且有税的风险，手贱一路点了下单现在变成有两份了（扶额
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
