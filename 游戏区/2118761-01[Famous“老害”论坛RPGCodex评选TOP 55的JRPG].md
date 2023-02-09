@@ -689,3 +689,13 @@ rpgcodex是以pc crpg玩家为主的论坛，所有的日式、看得出来产�
 
 战兰地城部分就是RPG啊
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 66#       发表于 2023-2-9 21:00
+
+MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH有个屁的扮演感。论玩法和内容，xx不爆杀4g，极限化应该是历代最粪设定了
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
