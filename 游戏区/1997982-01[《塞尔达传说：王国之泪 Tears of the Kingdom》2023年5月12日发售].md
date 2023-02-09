@@ -1364,3 +1364,11 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 等美任那边限定版出来就能知道是steel还是still了</blockquote>
 都不用等美任[https://www.youtube.com/watch?v=3FKtKZeDEn4](https://www.youtube.com/watch?v=3FKtKZeDEn4)
 
+
+*****
+
+####  Junakr  
+##### 763#       发表于 2023-2-9 14:02
+
+说起来这次 pv 完全没有出现林克的散发空岛装扮呀，不会是在一堆触手那里强制变装的吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">。
+

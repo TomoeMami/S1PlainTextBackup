@@ -683,3 +683,14 @@ TSM这边还是高坡，对面这个阵容HAL甲都不用打直接开直升机
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FanKiE  
+##### 72#       发表于 2023-2-9 14:10
+
+玩了几百小时手柄，终于是能做到中近距离一梭子高额伤害了，打不过也高低给对面打掉层皮；可回头一玩Kovaak‘s，1w6t定位和controlsphere跟枪全是一坨，那我到底配不配打出这个高额伤害呢？我真的不知道，反正我转回去了，老老实实还债。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+哦，就算不提打架，玩手柄也挺枯燥的，喷子和狙基本不会去碰，还有那么多奇奇怪怪的身法连试一试的机会都没有。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
