@@ -1950,3 +1950,27 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 看zeltik数毛，空岛甚至有个正方体的，看来大部分神庙移到空中了，单个空岛内部、小群岛、太空电梯都可以做文章，但这样地上会不会太空荡荡了？
 
+
+*****
+
+####  nakosm  
+##### 818#       发表于 2023-2-9 22:12
+
+手一滑订了两份收藏版，想退了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poppin  
+##### 819#       发表于 2023-2-9 22:15
+
+国内典藏版怎么买，能靠谱而且不坑啊。现在黄鱼上带卡带的最便宜都要1200，有点贵
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  whzfjk  
+##### 820#       发表于 2023-2-9 22:17
+
+能说说塞尔达2上一个代理是谁吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
