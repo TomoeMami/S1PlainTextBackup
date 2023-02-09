@@ -2230,3 +2230,13 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 —— 来自 S1Fun</blockquote>
 猜到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 843#       发表于 2023-2-10 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684628&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-10 05:08:29</a></blockquote>有点期待首周能卖多少了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
