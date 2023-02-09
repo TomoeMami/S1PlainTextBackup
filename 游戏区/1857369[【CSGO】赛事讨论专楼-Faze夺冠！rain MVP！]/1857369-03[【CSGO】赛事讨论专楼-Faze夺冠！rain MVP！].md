@@ -134,3 +134,11 @@ G2现在太强了吧，感觉不到有队能威胁他们
 
 被小孩捶麻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dev2ce  
+##### 3147#       发表于 2023-2-9 08:51
+
+决赛估计是g2Navi四番战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

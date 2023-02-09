@@ -437,3 +437,27 @@ eshop已经开了（
 英文版最后塞尔达说please lend him your power，感觉好像是希望 ...</blockquote>
 日语版很明显啊，中段的时候说林克这样下去就算是你也赢不了，最后说的是还请赐予他（林克）力量吧。
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 677#       发表于 2023-2-9 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671064&amp;ptid=1997982" target="_blank">Raumanzug 发表于 2023-2-9 08:50</a>
+日语版很明显啊，中段的时候说林克这样下去就算是你也赢不了，最后说的是还请赐予他（林克）力量吧。 ...</blockquote>
+因为我不懂日语呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MMIno  
+##### 678#       发表于 2023-2-9 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670799&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-9 08:22</a>
+
+eshop已经开了（
+
+日任那典藏版都可以直接订了，羡慕</blockquote>
+已预购，任亏卷直接换了
+

@@ -16373,3 +16373,11 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 主要是这种控制欲太现眼了，总觉得已经超过幻想的程度了，这真的是大叔？大叔才没有这么脆弱好吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 11977#       发表于 2023-2-9 08:57
+
+打铁大叔与back number不共戴天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

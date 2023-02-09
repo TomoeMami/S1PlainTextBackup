@@ -7387,3 +7387,32 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 但是要是保留无敌转肃正被动，那可真是太刺激了，一回合肃正还跟自充绑定，头要被打裂开
 
+
+*****
+
+####  qixinno2  
+##### 5204#       发表于 2023-2-9 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670350&amp;ptid=2084912" target="_blank">恶搞之王 发表于 2023-2-9 07:23</a>
+
+出现在高难里的话，最优解是自己揍自己
+
+但是要是保留无敌转肃正被动，那可真是太刺激了，一回合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能的还好 还能靠强解 就怕是带框的那种或者被动给个强解耐性
+
+*****
+
+####  UNISONIA  
+##### 5205#       发表于 2023-2-9 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59663448&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-8 17:01</a>
+
+你可以理解成戴先生想摇个人但是没路子
+
+然后给米克特兰的土地画了个召唤阵顺带供了个魔
+
+于是米克特兰土地 ...</blockquote>
+不是系统不批假，而是特斯卡特利波卡的规格（地缘传说的正统神灵）没办法完整地创建一个自己的复制品（Servant）现界（这里采用FSN Material开始提到的“Servant是座上英灵的复制品”的说法），只能降低规格变成Quetzalcoatl那种“转移到人身上（人间に乗り移って）”的形态。不过烟多少还是动了手脚的，他的容器是这次新造出来的（不是大姐姐那种召唤“以前的容器”的性质），所以有了拟似从者和“今を生きる人类”的属性
+
+剧情里有提到戴一开始的标的就是召唤烟的，恰好烟也看上他了
+
