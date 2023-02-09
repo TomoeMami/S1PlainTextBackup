@@ -763,3 +763,11 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Zeno_5  
+##### 711#       发表于 2023-2-9 11:17
+
+等pv3吧，野炊在pv3之前的pv也是水得不行
+
