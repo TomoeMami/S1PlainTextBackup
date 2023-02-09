@@ -617,3 +617,35 @@ PV很失望，完全没有前2个预告那种惊艳感了，快发售了还这�
 
 铁板驾驶员玩法直接给扶正了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  samuel.j  
+##### 696#       发表于 2023-2-9 09:41
+
+喜欢黑暗海拉鲁王国世界风格，但是PV的既视感的确没有前作那么惊艳
+
+看下次直面会PV还能塞进多少东西
+
+*****
+
+####  mashav  
+##### 697#       发表于 2023-2-9 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671598&amp;ptid=1997982" target="_blank">ajunsama 发表于 2023-2-9 09:32</a>
+
+国内除了淘宝还有啥其他渠道能订日本的限定版吗？</blockquote>
+[https://store-jp.nintendo.com/list/software/HAC_R_AXN7A.html](https://store-jp.nintendo.com/list/software/HAC_R_AXN7A.html)
+
+*****
+
+####  ajunsama  
+##### 698#       发表于 2023-2-9 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671738&amp;ptid=1997982" target="_blank">mashav 发表于 2023-2-9 09:43</a>
+
+https://store-jp.nintendo.com/list/software/HAC_R_AXN7A.html</blockquote>
+任天堂商店好像只送日本的？选不了国内地址
+
+没怎么买过限定版，不知道会不会上亚马逊之类的
+

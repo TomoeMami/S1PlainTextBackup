@@ -7416,3 +7416,23 @@ YLS：马上给你安排上<img src="https://static.saraba1st.com/image/smiley/f
 
 剧情里有提到戴一开始的标的就是召唤烟的，恰好烟也看上他了
 
+
+*****
+
+####  exiaexa  
+##### 5206#       发表于 2023-2-9 09:44
+
+ 本帖最后由 exiaexa 于 2023-2-9 09:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671090&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-2-9 08:52</a>
+
+不是系统不批假，而是特斯卡特利波卡的规格（地缘传说的正统神灵）没办法完整地创建一个自己的复制品（Se ...</blockquote>
+烟雾镜已经确认是冠位，为了完整现界需要冠位灵基
+
+然而并不能，这可不就是系统不批假
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+至于戴先生想叫烟雾镜那得叫双向奔赴
+
+毕竟召唤主体又不是他，他只是觉得作为无常之风的烟雾镜才有可能来帮自己
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
