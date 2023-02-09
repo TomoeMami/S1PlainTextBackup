@@ -600,3 +600,20 @@ PV很失望，完全没有前2个预告那种惊艳感了，快发售了还这�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然很急很想玩，但是这pv水平真的不行
 
+
+*****
+
+####  ajunsama  
+##### 694#       发表于 2023-2-9 09:32
+
+国内除了淘宝还有啥其他渠道能订日本的限定版吗？
+
+*****
+
+####  topia  
+##### 695#       发表于 2023-2-9 09:34
+
+一开始给那么大的月亮特写还以为要掉下来呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+铁板驾驶员玩法直接给扶正了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
