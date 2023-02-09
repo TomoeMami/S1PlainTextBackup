@@ -1337,3 +1337,14 @@ syl，感觉在三期对比下，vta二期箱感太强了，希望到时候出�
 
 —— 来自 OnePlus IN2025, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  psnsic8nag  
+##### 63#       发表于 2023-2-9 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59667625&amp;ptid=2117684" target="_blank">poipanchao 发表于 2023-2-8 22:50</a>
+
+不是说犹太人吗，尼哥不要来碰瓷</blockquote>
+能踩的雷全踩了，哪天乳了也不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
