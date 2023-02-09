@@ -1554,3 +1554,85 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 我希望TOTK能有个PV3一样质量的片子
 
+
+*****
+
+####  hu794  
+##### 781#       发表于 2023-2-9 16:31
+
+<img src="https://img.saraba1st.com/forum/202302/09/163044hyrr4nkhyrrrwj4n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 16:30 上传
+
+注意看，山上有个洞
+
+*****
+
+####  Waldeinsamkeit  
+##### 782#       发表于 2023-2-9 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677876&amp;ptid=1997982" target="_blank">asion617 发表于 2023-2-9 16:19</a>
+会员券四月过期能用来预购吗
+
+论坛助手,iPhone</blockquote>
+不能，你的券必须至少在发售前7天内还是有效的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hu794  
+##### 783#       发表于 2023-2-9 16:32
+
+<img src="https://img.saraba1st.com/forum/202302/09/163149rgg4gn0hgjlhgm0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 16:31 上传
+
+奇怪的山，野炊里面好像没有
+
+*****
+
+####  asion617  
+##### 784#       发表于 2023-2-9 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59678060&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-9 16:31</a>
+不能，你的券必须至少在发售前7天内还是有效的
+
+—— 来自 S1Fun</blockquote>
+谢谢解答，又要被迫换一个不打算玩的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hu794  
+##### 785#       发表于 2023-2-9 16:35
+
+<img src="https://img.saraba1st.com/forum/202302/09/163451p4r8o7frfvlyddfs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 16:34 上传
+
+出现了坐标轴。
+
+*****
+
+####  beer  
+##### 786#       发表于 2023-2-9 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675940&amp;ptid=1997982" target="_blank">Anselmus 发表于 2023-2-9 13:59</a>
+
+都不用等美任https://www.youtube.com/watch?v=3FKtKZeDEn4</blockquote>
+真的很怪，胸章死活只展示第一个。第二个露了半边出来，感觉像个面具？
+
