@@ -1058,3 +1058,66 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 大概最早的teaser和之前延期谢罪的不作数
 
+
+*****
+
+####  ouyang菌  
+##### 735#       发表于 2023-2-9 12:53
+
+全新的磁力（？）操控器，感觉是不局限于金属制品啥都能控了
+
+结合pv1和发售日宣传片的时间倒流能力，感觉每个希卡能力都会有一个升级
+
+Screenshot_20230209_123229.jpg
+(278.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202302/09/125215exf17hbyxl7b3gr1.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20230209_124834.jpg
+(185.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202302/09/125218fs8yhnww9hbszyh8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  moekyo  
+##### 736#       发表于 2023-2-9 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675113&amp;ptid=1997982" target="_blank">竜破斬 发表于 2023-2-9 12:49</a>
+
+看清楚卖家，这个价钱肯定是第三方卖家不是日亚</blockquote>
+对对对，应该不是直营的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NeverCU  
+##### 737#       发表于 2023-2-9 12:54
+
+对喔，王泪pv现在还没有出现一个npc吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  moekyo  
+##### 738#       发表于 2023-2-9 12:57
+
+找到这个，可以海淘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 739#       发表于 2023-2-9 12:57
+
+预告片里出现的车子，飞毯会不会是玩家自己拼的
+
+—— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
