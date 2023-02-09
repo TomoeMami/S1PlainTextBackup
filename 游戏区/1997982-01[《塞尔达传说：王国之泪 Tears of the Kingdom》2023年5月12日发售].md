@@ -342,3 +342,23 @@ https://www.nintendo.co.jp/character/zelda/index.html
 その姿は前作から変化が见られま ...</blockquote>
 老大波哥布林应该是新怪了
 
+
+*****
+
+####  干将莫邪  
+##### 668#       发表于 2023-2-9 07:51
+
+pv有点失望，希望新机制能惊艳我(
+
+*****
+
+####  纱布光环  
+##### 669#       发表于 2023-2-9 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670485&amp;ptid=1997982" target="_blank">Sherlock08 发表于 2023-2-9 07:43</a>
+
+可能熬夜脑袋晕了:因为是要利用时间倒流能力驱动的，可以认为石块自己不会往返运动。那地上林克看到的应 ...</blockquote>
+还有一种可能是：  天上掉落的是载具零件？ 
+
+目前PV1和PV2来看载具可能是可DIY的，那零件从哪来？除了湖中吸取之外天上掉落也是一种可能
+
