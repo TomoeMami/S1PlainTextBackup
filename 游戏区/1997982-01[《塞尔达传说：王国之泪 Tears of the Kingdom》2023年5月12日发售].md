@@ -1279,3 +1279,30 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 英语官网也是steel。除非美任的人都是猪头，不然就是你想多了
 
+
+*****
+
+####  uanlice  
+##### 755#       发表于 2023-2-9 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真的没见过什么钢铁海报，难道是钢板装饰画吗
+
+*****
+
+####  king520kyo  
+##### 756#       发表于 2023-2-9 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675735&amp;ptid=1997982" target="_blank">heseran 发表于 2023-2-9 13:39</a>
+
+这就不太清楚了，港任也写的钢铁材质海报</blockquote>
+等美任那边限定版出来就能知道是steel还是still了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  斯皮内西  
+##### 757#       发表于 2023-2-9 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675772&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:42</a>
+等美任那边限定版出来就能知道是steel还是still了</blockquote>
+754楼。美任和美塞官网写的都是steel
+
