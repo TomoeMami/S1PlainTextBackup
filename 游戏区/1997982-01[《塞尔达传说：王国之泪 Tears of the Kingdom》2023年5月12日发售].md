@@ -842,3 +842,23 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 右上角这感觉也是新怪？
 
+
+*****
+
+####  挖泥船  
+##### 718#       发表于 2023-2-9 12:10
+
+这PV有点失望<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，感觉把前面的pv又缝了一些新的进来，就仨月了按说不该来点硬的吗，你的解谜玩法呢？
+
+感觉最惊艳还是第二个PV。
+
+*****
+
+####  aqualyre  
+##### 719#       发表于 2023-2-9 12:12
+
+好消息：日亚的典藏版上了
+坏消息：已经切了
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -16439,3 +16439,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 反正之前多少年两地能看到的各种怪现状，都是这种脑回路搞出来的
 过于抽象很难不用后现代去解构
 
+
+*****
+
+####  starring  
+##### 11984#       发表于 2023-2-9 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59673854&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-2-9 11:36</a>
+楼里有没有去拉版看到伊达大叔把自己和小百合P到一起还晒出来的</blockquote>
+挺早前看过，又冒出新的？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
