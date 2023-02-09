@@ -782,3 +782,21 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 吹女武神4的有一个算一个都是……
 
+
+*****
+
+####  山岚夜雨  
+##### 75#       发表于 2023-2-10 05:26
+
+如龙7算是给了欧美一个小小的如龙震撼吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仔细一想确实如龙7无论定位全新主角剧情还是发售时机都是最容易让那边在这代入坑，但是审判系列不知道为啥没给算进来JRPG？
+
+*****
+
+####  rusuna  
+##### 76#       发表于 2023-2-10 05:43
+
+你也是jrpg？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+泥潭自己开一个呗，投票这种东西本身玩过的人数多占优才是正常的，真当是学院评奖呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

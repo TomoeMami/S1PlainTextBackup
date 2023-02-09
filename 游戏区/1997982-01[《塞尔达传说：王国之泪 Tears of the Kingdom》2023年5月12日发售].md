@@ -2056,3 +2056,136 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Sherlock08  
+##### 829#       发表于 2023-2-10 01:59
+
+涨价没啥讨论的啊，难道还有人必须买涨价美版的？
+
+*****
+
+####  Waldeinsamkeit  
+##### 830#       发表于 2023-2-10 03:13
+
+哎，羡慕你们已经有各种渠道还都订上了。
+我这边无论官网还是零售都没开，不停刷新真的是一件令人焦躁的事情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  硫黄  
+##### 831#       发表于 2023-2-10 03:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几天任亏券买了
+
+日服点卡1w现在495,前阵子日元最低的时候480没买
+
+亏了15
+
+*****
+
+####  斯皮内西  
+##### 832#       发表于 2023-2-10 03:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684521&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 03:13</a>
+哎，羡慕你们已经有各种渠道还都订上了。
+我这边无论官网还是零售都没开，不停刷新真的是一件令人焦躁的事 ...</blockquote>
+买数字版啊，特典之后再找机会买就是了。
+
+欧任应该也会出特典only的版本吧
+
+*****
+
+####  Cybellybanana  
+##### 833#       发表于 2023-2-10 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684521&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 03:13</a>
+
+哎，羡慕你们已经有各种渠道还都订上了。
+
+我这边无论官网还是零售都没开，不停刷新真的是一件令人焦躁的事 ...</blockquote>
+英任官网有个注册链接，填邮箱后说开卖会通知。欧任估计也有吧
+
+*****
+
+####  Waldeinsamkeit  
+##### 834#       发表于 2023-2-10 04:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684556&amp;ptid=1997982" target="_blank">斯皮内西 发表于 2023-2-10 03:41</a>
+
+买数字版啊，特典之后再找机会买就是了。
+
+欧任应该也会出特典only的版本吧 ...</blockquote>
+数字版昨天就兑换啦，然后这种游戏肯定要数字+实体典藏双收嘛，19年买织梦岛给我买出PTSD了，现在就是很紧张生怕抢不到<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 835#       发表于 2023-2-10 04:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684561&amp;ptid=1997982" target="_blank">Cybellybanana 发表于 2023-2-10 03:46</a>
+
+英任官网有个注册链接，填邮箱后说开卖会通知。欧任估计也有吧</blockquote>
+那个我填了，但我经常蹲售卖信息的网站上有人说，他蹲XB3 CE的时候，收到邮件第一时间去my nintendo store，然后已经sold out了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自从欧任商店升级后我还没在官网买过CE没什么经验，而且看很多老外都在说那是my scalper store，就很慌<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 836#       发表于 2023-2-10 04:55
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-10 05:04 编辑 
+
+[https://youtu.be/Owc8k87HlPg](https://youtu.be/Owc8k87HlPg)
+
+Zeltik出片了~
+
+我觉得里面比较有趣的点是天空上方方正正的那个“岛”下方正对洛美人迷宫，所以是不是有可能……野炊里的那几个迷宫都是从空岛掉下去的呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">另一个就是19年预告片和这次的矛盾：19年林克抓住塞尔达手的时候，他的胳膊看起来并没有受损，但这次的最后一个场景，他伸向塞尔达的手是已经被malice污染的手。不过这个倒也很好解释，开发过程中调整动画也是挺正常的事情。
+
+这次的预告片里至少出现了三处地下场景，感觉这一次的纵轴真的很厉害……再加上可以DIY的海（？）陆空载具，真的有上天入地的感觉了。
+
+*****
+
+####  Waldeinsamkeit  
+##### 837#       发表于 2023-2-10 05:08
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-10 05:34 编辑 
+
+[https://www.nintendo.co.uk/Games ... 576884.html#Gallery](https://www.nintendo.co.uk/Games/Nintendo-Switch-games/The-Legend-of-Zelda-Tears-of-the-Kingdom-1576884.html#Gallery)
+
+顺便eshop更新了很多高清截图，真的感觉是次世代画面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外刷Fami刷到一个法国第一日预购数据：
+
+1.2万份CE，80万份普通版，1.5万份Amiibo……
+
+感觉有点……惊人。
+
+另外法国都能订了，为什么我这还是没影<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽灵部长助理  
+##### 838#       发表于 2023-2-10 05:46
+
+ 本帖最后由 幽灵部长助理 于 2023-2-9 16:47 编辑 
+
+别的不说，我就想看佐纳乌公主版塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">袍子和首饰都好好看，古朴又端庄，粗犷的线条衬出女孩子纤细的身体，啊啊啊，我犯畜生病了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuardHei  
+##### 839#       发表于 2023-2-10 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684628&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 05:08</a>
+https://www.nintendo.co.uk/Games ... 576884.html#Gallery
+
+顺便eshop更新了很多高清截图，真的感觉是次 ...</blockquote>
+画面和botw没区别啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

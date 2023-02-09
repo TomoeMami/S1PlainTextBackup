@@ -1309,3 +1309,12 @@ dlc怕不是又是各种苍蓝银白什么的联动角色……
 你们说的GUNGAL是什么游戏……？我只搜索到了一个轨道射击游戏，感觉说的应该不是同一个。 ...</blockquote>
 galgun啊，本家联动了属于是
 
+
+*****
+
+####  zzy516232108  
+##### 125#       发表于 2023-2-10 02:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一个蝙蝠boss我倒是一次过
+妹妹开盾上去平砍换血就行，不过我打的是普通难度，不知道demo有没有困难难度
+
