@@ -409,3 +409,13 @@ saku加入了老爱的衍生计划。b站评论下面全是喷的，唉
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ladiesman802  
+##### 3043#       发表于 2023-2-10 01:31
+
+saku也就配音打工而已，还是说甚至要直播开live？
+
+不过saku还是读书为主吧，就算日本声优卷不下去，回来nb肯定欢迎她
+
