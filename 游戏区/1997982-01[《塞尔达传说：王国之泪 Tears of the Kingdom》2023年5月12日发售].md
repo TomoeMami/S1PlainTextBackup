@@ -1484,3 +1484,21 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 <img src="https://img.saraba1st.com/forum/202302/09/152736olkq48kp1kuh8p4t.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwdzcjsmxx  
+##### 774#       发表于 2023-2-9 15:38
+
+没人买普通版吗。。现在是淘宝好还是任亏券日服还可以操作？好久没买实体游戏了
+
+*****
+
+####  jtwing  
+##### 775#       发表于 2023-2-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670268&amp;ptid=1997982" target="_blank">Sherlock08 发表于 2023-2-9 07:13</a>
+
+再看一遍pv最感兴趣的是左侧这个掉落的方块是啥东东</blockquote>
+看后面组装出来的东西，应该是类似于粘合用的能量的东西？  多个带有这个绿色的东西才能把普通的木板之类的拼接起来。
+
