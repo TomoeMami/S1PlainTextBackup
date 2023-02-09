@@ -1502,3 +1502,23 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 再看一遍pv最感兴趣的是左侧这个掉落的方块是啥东东</blockquote>
 看后面组装出来的东西，应该是类似于粘合用的能量的东西？  多个带有这个绿色的东西才能把普通的木板之类的拼接起来。
 
+
+*****
+
+####  funkie  
+##### 776#       发表于 2023-2-9 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59676975&amp;ptid=1997982" target="_blank">aqualyre 发表于 2023-2-9 15:22</a>
+
+https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
+
+—— 来自 HUAWEI TET-AN0 ...</blockquote>
+感恩，也先下单到转运了，还是不能直邮啊
+
+*****
+
+####  被击坠王  
+##### 777#       发表于 2023-2-9 15:46
+
+又要多N种SM死法了，逼真流氓传说：怪物之泪
+
