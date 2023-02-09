@@ -1019,3 +1019,42 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 官网下单狂给我报错，想买都不给买？我是储值购买又不存在信用卡问题</blockquote>
 看看是不是地址问题 用代购地址就会不让你买
 
+
+*****
+
+####  heseran  
+##### 731#       发表于 2023-2-9 12:44
+
+典藏版竟然是金属海报？？？是我理解的那个意思吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 732#       发表于 2023-2-9 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674762&amp;ptid=1997982" target="_blank">raii 发表于 2023-2-9 12:28</a>
+官网下单狂给我报错，想买都不给买？我是储值购买又不存在信用卡问题</blockquote>
+如果是转运的话可能是转运地址被任天堂拉黑了
+
+*****
+
+####  竜破斬  
+##### 733#       发表于 2023-2-9 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674729&amp;ptid=1997982" target="_blank">moekyo 发表于 2023-2-9 12:26</a>
+
+但是为毛日亚上贵那多啊，&amp;#x5 ...</blockquote>
+看清楚卖家，这个价钱肯定是第三方卖家不是日亚
+
+*****
+
+####  GuardHei  
+##### 734#       发表于 2023-2-9 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674610&amp;ptid=1997982" target="_blank">macongju1 发表于 2023-2-9 12:19</a>
+
+都第四个预告了还是只有这么点东西</blockquote>
+按官方口径这只算pv2
+
+大概最早的teaser和之前延期谢罪的不作数
+
