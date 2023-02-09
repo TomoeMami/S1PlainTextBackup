@@ -1839,3 +1839,19 @@ md明明知道没有hdr还是想买lg c2来玩这个游戏
 
 HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SaitoYuki  
+##### 806#       发表于 2023-2-9 20:35
+
+2000fun听说容易被税，我还是等墨策吧
+
+*****
+
+####  cxl6191467  
+##### 807#       发表于 2023-2-9 20:40
+
+得知一个消息，亚洲版塞尔达2换了代理，
+新代理是腾讯，以后中文封面可能出现腾讯那个贴纸。。
+
