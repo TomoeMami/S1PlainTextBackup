@@ -1855,3 +1855,16 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 得知一个消息，亚洲版塞尔达2换了代理，
 新代理是腾讯，以后中文封面可能出现腾讯那个贴纸。。
 
+
+*****
+
+####  heseran  
+##### 808#       发表于 2023-2-9 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681129&amp;ptid=1997982" target="_blank">cxl6191467 发表于 2023-2-9 20:40</a>
+
+得知一个消息，亚洲版塞尔达2换了代理，
+
+新代理是腾讯，以后中文封面可能出现腾讯那个贴纸。。 ...</blockquote>
+那种事情不要啊。。。。
+
