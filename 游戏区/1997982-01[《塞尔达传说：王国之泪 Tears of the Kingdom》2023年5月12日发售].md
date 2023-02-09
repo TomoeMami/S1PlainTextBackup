@@ -1434,3 +1434,11 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 如果按照这个规律，王泪oled公布日可能是3月8日，发售日是4月28日。按照异度3，喷3的规律，专属直面会可能是4月6日或13日。
 
+
+*****
+
+####  funkie  
+##### 771#       发表于 2023-2-9 15:11
+
+楼上日亚的典藏链接能给个么，日亚好像下架了搜不到了
+
