@@ -84,3 +84,20 @@
 
 国际服沃登和骑马小哥短时间内估计来不了，先拉个黑皮吧。之前日服200名左右这环境已经有点群魔乱舞了，既有各种空降反向、圣女薄暮骗大招的高玩，也有一身T7黄遗迹攻速、CD，什么up角色都能拉出个110的来用的巨氪，甚至还有完全体偷家队（全体T7蓝装，15秒就嘎了我的蓝桥）尤其是改了匹配范围之后，我甚至会匹配到某个油管日服生放送从不缺席的知名up主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 840#         楼主| 发表于 2023-2-9 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59678330&amp;ptid=2028054" target="_blank">xiongxingyu 发表于 2023-2-9 16:50</a>
+调酒师，不是酒鬼，酒鬼肯定是落地拉满，不然pvp要被吊打两个礼拜乐团不是一个近战狙一个召唤狙吗 ...</blockquote>
+
+调酒师 士兵队的玩具罢了
+<img src="https://p.sda1.dev/9/d694cdfb85072c7c52a67244a3063151/CMP_20230209165425131.jpg" referrerpolicy="no-referrer">爱乐组织目前就这三加飞天盾
+
+<img src="https://p.sda1.dev/9/565bced38803807b2f638b9fdd73c139/CMP_20230209165448464.jpg" referrerpolicy="no-referrer">
+你说的召唤狙是双子的姐姐啊 标准下水道
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
