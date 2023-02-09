@@ -2204,3 +2204,29 @@ https://www.nintendo.co.uk/Games ... 576884.html#Gallery
 
 个人感觉也比botw里的清晰，之前我开采集卡录过一些夜间片段，刚去看了下静态帧，没eshop提供的这些清晰……
 
+
+*****
+
+####  GuardHei  
+##### 841#       发表于 2023-2-10 06:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684656&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 06:02</a>
+至少比油管的预告片视频截图清晰很多
+
+个人感觉也比botw里的清晰，之前我开采集卡录过一些夜间片段 ...</blockquote>
+botw当时官网截图甚至都是4k的…一看就是pc上截的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Waldeinsamkeit  
+##### 842#       发表于 2023-2-10 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684694&amp;ptid=1997982" target="_blank">GuardHei 发表于 2023-2-10 06:41</a>
+
+botw当时官网截图甚至都是4k的…一看就是pc上截的
+
+—— 来自 S1Fun</blockquote>
+猜到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
