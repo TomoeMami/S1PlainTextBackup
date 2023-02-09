@@ -1381,3 +1381,13 @@ syl，感觉在三期对比下，vta二期箱感太强了，希望到时候出�
 
  本来就挺好看的，3D的造型也很不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 68#       发表于 2023-2-9 21:35
+
+郡gachi有推荐的vta男吗 最近奥术听腻了想听点别的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+刚看了律传的玩全员一致的切片还挺有意思的
+
