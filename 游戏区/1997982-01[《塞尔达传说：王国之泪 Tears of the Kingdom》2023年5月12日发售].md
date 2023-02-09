@@ -1121,3 +1121,32 @@ Screenshot_20230209_124834.jpg
 
 —— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  uanlice  
+##### 740#       发表于 2023-2-9 13:03
+
+急急急我是急急国王
+
+观感上我喜欢21年E3那个片，开头音乐配上新造型林克我太兴奋了
+
+*****
+
+####  king520kyo  
+##### 741#       发表于 2023-2-9 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675035&amp;ptid=1997982" target="_blank">heseran 发表于 2023-2-9 12:44</a>
+
+典藏版竟然是金属海报？？？是我理解的那个意思吗？</blockquote>
+金属徽章吧
+
+*****
+
+####  屑猫猫  
+##### 742#       发表于 2023-2-9 13:06
+
+笑死，还有群友提到坎巴拉，要是坎巴拉那种建造过程对大家而言还是太复杂了。我也想让载具升天啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
