@@ -1987,3 +1987,11 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 —— 来自 vivo V1981A, ...</blockquote>
 日亚和2000fun这种香港直邮、任天堂官网买然后转运。
 
+
+*****
+
+####  hav666  
+##### 822#       发表于 2023-2-9 23:22
+
+官网+转运之类950左右可以到手 但现在想定但官网没货了 早上看到都有货的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
