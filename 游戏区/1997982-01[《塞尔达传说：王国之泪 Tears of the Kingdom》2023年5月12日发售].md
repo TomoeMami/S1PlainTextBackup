@@ -1995,3 +1995,16 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 官网+转运之类950左右可以到手 但现在想定但官网没货了 早上看到都有货的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 823#       发表于 2023-2-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682359&amp;ptid=1997982" target="_blank">poppin 发表于 2023-2-9 22:15</a>
+
+国内典藏版怎么买，能靠谱而且不坑啊。现在黄鱼上带卡带的最便宜都要1200，有点贵
+
+—— 来自 vivo V1981A, ...</blockquote>
+最不折腾的应该是玛莎代购吧，就是日亚的直营那个页面刷出来要看运气
+
