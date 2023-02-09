@@ -2189,3 +2189,18 @@ https://www.nintendo.co.uk/Games ... 576884.html#Gallery
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 840#       发表于 2023-2-10 06:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684650&amp;ptid=1997982" target="_blank">GuardHei 发表于 2023-2-10 05:49</a>
+
+画面和botw没区别啊
+
+—— 来自 S1Fun</blockquote>
+至少比油管的预告片视频截图清晰很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+个人感觉也比botw里的清晰，之前我开采集卡录过一些夜间片段，刚去看了下静态帧，没eshop提供的这些清晰……
+
