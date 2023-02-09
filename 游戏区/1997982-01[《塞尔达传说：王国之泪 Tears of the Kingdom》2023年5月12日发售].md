@@ -1829,3 +1829,13 @@ md明明知道没有hdr还是想买lg c2来玩这个游戏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ChengChung  
+##### 805#       发表于 2023-2-9 20:29
+
+目前HMV收藏版有货
+
+HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
