@@ -1200,3 +1200,48 @@ Screenshot_20230209_124834.jpg
 金属徽章吧</blockquote>
 又去看了一下，好像确实是一张金属海报
 
+
+*****
+
+####  uanlice  
+##### 747#       发表于 2023-2-9 13:22
+
+金属海报是什么样，有点想象不能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 748#       发表于 2023-2-9 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675548&amp;ptid=1997982" target="_blank">uanlice 发表于 2023-2-9 13:22</a>
+
+金属海报是什么样，有点想象不能</blockquote>
+可能是铁盒那种感觉的放大版吧
+
+*****
+
+####  king520kyo  
+##### 749#       发表于 2023-2-9 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675492&amp;ptid=1997982" target="_blank">heseran 发表于 2023-2-9 13:16</a>
+
+又去看了一下，好像确实是一张金属海报</blockquote>
+スチールポスター（Iconart™仕様）翻译问题吧 意思应该是静止画海报 スチール被翻译成铁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  king520kyo  
+##### 750#       发表于 2023-2-9 13:29
+
+スチール（【訳】still：静止した）とは动きのない静止画写真のこと。写真。元来、映画のような映像収録现场において、撮影する写真をスチール写真、スチールと呼んでおり、「スチール写真」は写真そのものを指す言叶である。现在でも、映画・ドラマ・テレビ収録・CM収録现场及びそれらに付随する业界で撮影する写真をスチール写真（メイキングスチール）と呼ぶ。スチール写真を撮影する写真家をスチールカメラマン（スチールマン）と呼ぶ。
+
+
+*****
+
+####  斯皮内西  
+##### 751#       发表于 2023-2-9 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675637&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:29</a>
+スチール（【訳】still：静止した）とは动きのない静止画写真のこと。写真。元来、映画のような映像収録现 ...</blockquote>
+但是英语新闻（不管大小媒体）都是写steel poster的
+
