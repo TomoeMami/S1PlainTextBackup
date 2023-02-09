@@ -1261,3 +1261,22 @@ ps，认识的人解包说可能总共是10关左右，就是这种小品级的�
 
 —— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  whzfjk  
+##### 120#       发表于 2023-2-9 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682762&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-9 22:48</a>
+
+我预计是8加1或者9加1关，这次请给ps4版double peace唱旧OP的歌手客串cv，很大可能有一个隐藏的真结局。 ...</blockquote>
+恶魔城的麒麟像素怕是太低了点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  A1LI  
+##### 121#       发表于 2023-2-9 23:13
+
+dlc怕不是又是各种苍蓝银白什么的联动角色……
+
