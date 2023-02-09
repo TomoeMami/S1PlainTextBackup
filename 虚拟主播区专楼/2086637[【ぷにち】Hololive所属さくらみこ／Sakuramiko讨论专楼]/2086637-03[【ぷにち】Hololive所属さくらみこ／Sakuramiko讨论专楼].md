@@ -13730,3 +13730,11 @@ A锐评
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tesparu  
+##### 4261#       发表于 2023-2-9 22:05
+
+看困了，这游戏前期还是太无聊了，还不能联机打
+

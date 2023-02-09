@@ -1172,3 +1172,16 @@ Xbox/ps/ns数字版日服3480日元/25美元，steam没给价格。
 通过后给 ...</blockquote>
 纸鹤拿了金色强化新增上投动作
 
+
+*****
+
+####  幻想风靡_  
+##### 114#       发表于 2023-2-9 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59682073&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-9 21:57</a>
+
+纸鹤拿了金色强化新增上投动作</blockquote>
+试玩版就有吗？这下得再跑跑图了
+
+顺带吐槽一下，这游戏手柄键位提示是固定的，不能切换软软、任任、索索三种布局，用任任和索索手柄的只能颅内转换一下按键提示
+

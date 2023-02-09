@@ -97,3 +97,11 @@
 
 看到卡莲强化本第三面的摇滚明星突然有些感伤，安莲这对真是永远的意难平，狗菌类至少让他们见个面也好啊
 
+
+*****
+
+####  Urakawa  
+##### 44150#       发表于 2023-2-9 22:08
+
+300石头歪了福利多和三藏，甚至new了上个卡池的faker<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
