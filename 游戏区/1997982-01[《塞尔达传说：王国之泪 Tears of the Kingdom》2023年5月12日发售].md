@@ -1658,3 +1658,11 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  siansian  
+##### 789#       发表于 2023-2-9 17:25
+
+准备实体数字各入一份
+

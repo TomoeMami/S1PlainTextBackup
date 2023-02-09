@@ -16586,3 +16586,14 @@ QQ图片20230209151401.jpg
 但是人体结构<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这也是需要用心看而不是用眼看的那种艺术吗
 
+
+*****
+
+####  stygian  
+##### 11999#       发表于 2023-2-9 17:29
+
+弹吉他留指甲。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
