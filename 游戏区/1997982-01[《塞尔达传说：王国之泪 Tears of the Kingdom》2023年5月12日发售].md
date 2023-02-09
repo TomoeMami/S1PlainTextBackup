@@ -1245,3 +1245,37 @@ Screenshot_20230209_124834.jpg
 スチール（【訳】still：静止した）とは动きのない静止画写真のこと。写真。元来、映画のような映像収録现 ...</blockquote>
 但是英语新闻（不管大小媒体）都是写steel poster的
 
+
+*****
+
+####  king520kyo  
+##### 752#       发表于 2023-2-9 13:37
+
+ 本帖最后由 king520kyo 于 2023-2-9 13:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675647&amp;ptid=1997982" target="_blank">斯皮内西 发表于 2023-2-9 13:30</a>
+
+但是英语新闻（不管大小媒体）都是写steel poster的</blockquote>你日不管steel还是still念出来都是スチール啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 753#       发表于 2023-2-9 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675614&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:27</a>
+
+スチールポスター（Iconart™仕様）翻译问题吧 意思应该是静止画海报 スチール被翻译成铁了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就不太清楚了，港任也写的钢铁材质海报
+
+*****
+
+####  斯皮内西  
+##### 754#       发表于 2023-2-9 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675715&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:37</a>
+你日不管steel还是still念出来都是スチール啊</blockquote>
+[https://www.zelda.com/tears-of-the-kingdom/#buy](https://www.zelda.com/tears-of-the-kingdom/#buy)
+
+Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, SteelBook® case, Steel Poster, and a set of four pin badges.
+
+英语官网也是steel。除非美任的人都是猪头，不然就是你想多了
+
