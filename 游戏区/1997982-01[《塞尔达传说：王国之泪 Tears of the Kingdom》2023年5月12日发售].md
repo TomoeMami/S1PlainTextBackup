@@ -1755,3 +1755,34 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 因为日亚amiibo和典藏版好像都没设购买数量限制。导致链接一出来基本被机器人倒爷扫完了。后续大概率会重新补货的。
 
+
+*****
+
+####  兰开夏  
+##### 798#       发表于 2023-2-9 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677907&amp;ptid=1997982" target="_blank">恋妖壶 发表于 2023-2-9 16:21</a>
+
+肯定会有，这片子和BOTW的PV3比起来完全是战五渣
+
+我希望TOTK能有个PV3一样质量的片子 ...</blockquote>
++1
+
+虽然听到pv3的bgm变奏已经好感动了
+
+*****
+
+####  兰开夏  
+##### 799#       发表于 2023-2-9 19:13
+
+md明明知道没有hdr还是想买lg c2来玩这个游戏
+
+可恶
+
+*****
+
+####  heseran  
+##### 800#       发表于 2023-2-9 19:15
+
+这次pv里出现的怪头上都长出了各种各样的东西<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
