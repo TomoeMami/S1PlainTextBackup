@@ -814,3 +814,31 @@ pv剪的节奏有问题，不过荒野之息主要也是pv3剪的好吧
 
 想想挺怪的你要么全给中文 要么全日文 搞个不伦不类的干嘛…还是订个日版好了
 
+
+*****
+
+####  ouyang菌  
+##### 717#       发表于 2023-2-9 11:53
+
+ 本帖最后由 ouyang菌 于 2023-2-9 11:57 编辑 
+
+<img src="https://img.saraba1st.com/forum/202302/09/115253ef9fc907nd9y9yqn.png" referrerpolicy="no-referrer">
+
+<strong>5606316759133742.png</strong> (129.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 11:52 上传
+
+右边这个不知道是单纯就是骷髅的新怪还是新怪的骷髅形态
+
+<img src="https://img.saraba1st.com/forum/202302/09/115554s7y9x2x3w0c0x97w.png" referrerpolicy="no-referrer">
+
+<strong>3230516759133462.png</strong> (83.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 11:55 上传
+
+右上角这感觉也是新怪？
+

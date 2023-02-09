@@ -16414,3 +16414,28 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 我一直觉得鲨鱼的粉丝应该平均度挺高的，本子那边那么奇怪么，有点超脱我对粉丝这个群体的理解了。 ...</blockquote>
 只能说本子那边更喜欢这种娇小玲珑的妹子？
 
+
+*****
+
+####  稀勢のささ  
+##### 11982#       发表于 2023-2-9 11:56
+
+ 本帖最后由 稀勢のささ 于 2023-2-9 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59673854&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-2-9 11:36</a>
+
+楼里有没有去拉版看到伊达大叔把自己和小百合P到一起还晒出来的</blockquote>
+不止，那人甚至还P了个孩子上去，配的文字好像直接就是“我跟sayu的孩子”<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 11983#       发表于 2023-2-9 11:57
+
+ 本帖最后由 nufawneafg 于 2023-2-9 11:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674102&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-9 11:48</a>
+我一直觉得鲨鱼的粉丝应该平均度挺高的，本子那边那么奇怪么，有点超脱我对粉丝这个群体的理解了。 ...</blockquote>
+还是人多嘴杂的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正之前多少年两地能看到的各种怪现状，都是这种脑回路搞出来的
+过于抽象很难不用后现代去解构
+
