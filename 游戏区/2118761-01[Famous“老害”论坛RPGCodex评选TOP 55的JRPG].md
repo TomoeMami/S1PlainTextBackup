@@ -812,3 +812,13 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  S.T.A.L.K.E.R  
+##### 78#       发表于 2023-2-10 07:11
+
+我只是单纯进来缅怀下天地创造
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
