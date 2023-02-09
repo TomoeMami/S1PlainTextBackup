@@ -512,3 +512,91 @@ PV很失望，完全没有前2个预告那种惊艳感了，快发售了还这�
 
 感觉这一作会黑暗很多，不像旷野之息那样，除了几个地点之外都是给人一种孤独静谧中带点温馨的感觉
 
+
+*****
+
+####  吐槽不能  
+##### 685#       发表于 2023-2-9 09:21
+
+买王国之泪可以直接玩吗 还是需要前作野炊  野炊卡带都卖了好久了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 686#       发表于 2023-2-9 09:22
+
+还有3个月就要发售了，除了干尸外续篇的新角色一个都没登场呢。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 687#       发表于 2023-2-9 09:22
+
+这播片完全不爽，也没有看出很多信息的样子，啊总之就是早起虽然蹲到了喜欢的游戏但是觉得回放也可以……
+
+*****
+
+####  nage560  
+##### 688#       发表于 2023-2-9 09:23
+
+ 本帖最后由 nage560 于 2023-2-9 09:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671408&amp;ptid=1997982" target="_blank">孙女 发表于 2023-2-9 09:17</a>
+
+怕国产某游戏突然一个大更新，然后512后说塞尔达抄袭</blockquote>
+就3个月发售了，某厂要是能这么短时间抄出成品来那也是另一种厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Loony  
+##### 689#       发表于 2023-2-9 09:23
+
+为什么现在日服比港服便宜了
+
+*****
+
+####  牛奶笛  
+##### 690#       发表于 2023-2-9 09:24
+
+应该是4月中旬开专属直面会，公布最终pv，限定机，dlc等等
+
+
+*****
+
+####  dumplingpro  
+##### 691#       发表于 2023-2-9 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670512&amp;ptid=1997982" target="_blank">Piano-Forest 发表于 2023-2-9 07:46</a>
+
+【リンク】
+
+『ゼルダの伝説　ティアーズ オブ ザ キングダム』の主人公。
+
+その姿は前作から変化が见られま ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/09/092620uv2r3lh6vlkt774t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 09:26 上传
+
+等等，这是类似古希腊那种腹肌甲？
+
+*****
+
+####  冷泉夜月  
+##### 692#       发表于 2023-2-9 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671535&amp;ptid=1997982" target="_blank">dumplingpro 发表于 2023-02-09 09:27:05</a>
+等等，这是类似古希腊那种腹肌甲？</blockquote>这个其实野炊时就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  十字骷髅高达  
+##### 693#       发表于 2023-2-9 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然很急很想玩，但是这pv水平真的不行
+
