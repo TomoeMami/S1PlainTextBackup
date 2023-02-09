@@ -1745,3 +1745,13 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 
 —— 来自 OPPO R11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  h122h  
+##### 797#       发表于 2023-2-9 18:46
+
+日亚特典大概率和之前几个老任游戏一样是个大号特别色纸吧。
+
+因为日亚amiibo和典藏版好像都没设购买数量限制。导致链接一出来基本被机器人倒爷扫完了。后续大概率会重新补货的。
+
