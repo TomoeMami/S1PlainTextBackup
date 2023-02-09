@@ -403,3 +403,37 @@ eshop已经开了（
 
 可在 2月9日7:00 ～ 3月12日23:59 期间内购买。
 
+
+*****
+
+####  hu794  
+##### 674#       发表于 2023-2-9 08:41
+
+波克布林和新的波克布林老大应该都可以使用头槌攻击了。
+
+*****
+
+####  GuardHei  
+##### 675#       发表于 2023-2-9 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670958&amp;ptid=1997982" target="_blank">硫黄 发表于 2023-2-9 08:39</a>
+
+任天堂港服“任亏卷”再次发售，价格为 649 港币，新加入《塞尔达传说 王国之泪》等 4 款游戏可兑换。
+
+可 ...</blockquote>
+感谢
+
+看了，港服499hkd，不再是429了
+
+*****
+
+####  Raumanzug  
+##### 676#       发表于 2023-2-9 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670349&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-9 07:23</a>
+
+听了下德文版Pv，发现了英文版中的盲点：
+
+英文版最后塞尔达说please lend him your power，感觉好像是希望 ...</blockquote>
+日语版很明显啊，中段的时候说林克这样下去就算是你也赢不了，最后说的是还请赐予他（林克）力量吧。
+

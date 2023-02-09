@@ -16363,3 +16363,13 @@ https://bbs.saraba1st.com/2b/thread-2088207-1-1.html
 
 打铁大叔有点恶心过了头了
 
+
+*****
+
+####  nufawneafg  
+##### 11976#       发表于 2023-2-9 08:45
+
+ 本帖最后由 nufawneafg 于 2023-2-9 08:47 编辑 
+
+主要是这种控制欲太现眼了，总觉得已经超过幻想的程度了，这真的是大叔？大叔才没有这么脆弱好吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
