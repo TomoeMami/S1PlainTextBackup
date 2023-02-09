@@ -741,3 +741,14 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 之前那个我记得如龙七也挺靠前的，鬼佬老害们都这么喜欢的吗</blockquote>
 毕竟这些年制作大一些的剧情胡逼向jrpg也就只有如龙7了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BonesDlc  
+##### 71#       发表于 2023-2-9 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677133&amp;ptid=2118761" target="_blank">布里兰特 发表于 2023-2-9 15:31</a>
+
+这个满搞怪的。。有兰斯7没兰斯10，有伊苏没轨迹，村姑几乎全家都有，</blockquote>
+兰斯10还没有英文版
+
