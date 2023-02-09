@@ -2039,3 +2039,20 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  elshaddai  
+##### 827#       发表于 2023-2-10 01:24
+
+没人讨论涨价的事？
+
+*****
+
+####  Waldeinsamkeit  
+##### 828#       发表于 2023-2-10 01:27
+
+外面两个讨论涨价的帖子了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
