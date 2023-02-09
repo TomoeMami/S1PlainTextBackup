@@ -1636,3 +1636,25 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 都不用等美任https://www.youtube.com/watch?v=3FKtKZeDEn4</blockquote>
 真的很怪，胸章死活只展示第一个。第二个露了半边出来，感觉像个面具？
 
+
+*****
+
+####  aki1ostt  
+##### 787#       发表于 2023-2-9 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674755&amp;ptid=1997982" target="_blank">ouyang菌 发表于 2023-2-9 12:28</a>
+
+其实野炊1的pv就信息量很大了，基本遍历了一遍地图+希卡之石能力，pv2虽然短但是四英杰已经开始登场了，更 ...</blockquote>
+这个其实是不必担心的，有人分析过野炊的内容组成，音乐、播片、语言和引擎其实就占了一半多一点了。剩下的大部分是模型再占一半，最后材质、神庙数据和地形数据几乎平分。
+
+这么一分析，音乐播片语言引擎这些假设不变的话，算7G，那么实际内容还剩11G，是野炊7G的1.5倍。也就是实际游玩的内容量上面是野炊的1.5倍，实际上已经很客观了，再考虑到模型和地形的复用实际上应该更多。
+
+*****
+
+####  南宫月汐  
+##### 788#       发表于 2023-2-9 17:13
+
+日亚现在全是3w左右的价格，疯了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
