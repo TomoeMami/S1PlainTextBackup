@@ -1930,3 +1930,23 @@ HMV的amiibo明明看着有货点进去就是说没货<img src="https://static.s
 
 ？哪里来的相关消息，不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 816#       发表于 2023-2-9 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681129&amp;ptid=1997982" target="_blank">cxl6191467 发表于 2023-2-9 20:40</a>
+
+得知一个消息，亚洲版塞尔达2换了代理，
+
+新代理是腾讯，以后中文封面可能出现腾讯那个贴纸。。 ...</blockquote>
+应该不会吧。那个贴纸写着“国行正品，腾讯引进”，明显不可能。
+
+*****
+
+####  nma  
+##### 817#       发表于 2023-2-9 22:00
+
+看zeltik数毛，空岛甚至有个正方体的，看来大部分神庙移到空中了，单个空岛内部、小群岛、太空电梯都可以做文章，但这样地上会不会太空荡荡了？
+

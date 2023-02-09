@@ -1158,3 +1158,17 @@ Xbox/ps/ns数字版日服3480日元/25美元，steam没给价格。
 
 通过后给折纸鹤应该能去很多之前去不成的地方了，等正式版再去探索吧
 
+
+*****
+
+####  cmyk1234  
+##### 113#         楼主| 发表于 2023-2-9 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59680796&amp;ptid=2085482" target="_blank">幻想风靡_ 发表于 2023-2-9 20:10</a>
+打通了试玩版，感觉妹妹也很强呀
+
+打很多怪一刀秒，打两种盾怪无视格挡，打飞天怪可以开副武器的盾
+
+通过后给 ...</blockquote>
+纸鹤拿了金色强化新增上投动作
+
