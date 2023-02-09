@@ -16560,3 +16560,11 @@ QQ图片20230209151401.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">游戏卡面就随便画画啦，反正这正儿八经联动的也没好到哪儿去
 
+
+*****
+
+####  ads147147  
+##### 11996#       发表于 2023-2-9 16:50
+
+这个联动的画风，我只能说喜欢的人会喜欢吧
+

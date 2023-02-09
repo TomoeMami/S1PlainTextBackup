@@ -71,3 +71,16 @@
 
 吊瓶队核心就是控线 所以首发基本就黑皮，骑马大哥哥，沃登。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">至于要注意啥我也不知道，因为我是被吊瓶队恶心的。
 
+
+*****
+
+####  xiongxingyu  
+##### 839#       发表于 2023-2-9 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59677889&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-2-9 16:20</a>
+
+酒女就是偷后排的 看当周&amp;# ...</blockquote>
+调酒师，不是酒鬼，酒鬼肯定是落地拉满，不然pvp要被吊打两个礼拜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">乐团不是一个近战狙一个召唤狙吗？我看中文wiki都是标准下水道，但是最近看到油管上韩服大佬PVP排名居然到s级，和火鸡、黑徐、罗哥这些过气觉醒一档了，属实有点惊讶。
+
+国际服沃登和骑马小哥短时间内估计来不了，先拉个黑皮吧。之前日服200名左右这环境已经有点群魔乱舞了，既有各种空降反向、圣女薄暮骗大招的高玩，也有一身T7黄遗迹攻速、CD，什么up角色都能拉出个110的来用的巨氪，甚至还有完全体偷家队（全体T7蓝装，15秒就嘎了我的蓝桥）尤其是改了匹配范围之后，我甚至会匹配到某个油管日服生放送从不缺席的知名up主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
