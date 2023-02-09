@@ -113,3 +113,15 @@
 
 小安和巴姐这对也不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 44152#       发表于 2023-2-10 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681464&amp;ptid=1712412" target="_blank">电波系腑海林 发表于 2023-2-9 21:12</a>
+买的亲妈画的C100巴姐本当作圣遗物果然有用，650石头，人生第一次满宝，甚至是7宝溢出。
+
+—— 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">太豹了吧
+
