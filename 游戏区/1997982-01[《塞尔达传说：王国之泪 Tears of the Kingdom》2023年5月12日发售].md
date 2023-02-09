@@ -370,3 +370,16 @@ pv有点失望，希望新机制能惊艳我(
 
 好急，啥时候开预售
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 671#       发表于 2023-2-9 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59670773&amp;ptid=1997982" target="_blank">MMIno 发表于 2023-2-9 08:20</a>
+好急，啥时候开预售</blockquote>
+eshop已经开了（
+日任那典藏版都可以直接订了，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
