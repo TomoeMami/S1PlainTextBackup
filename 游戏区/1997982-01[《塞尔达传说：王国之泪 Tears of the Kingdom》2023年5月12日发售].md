@@ -485,3 +485,30 @@ eshop已经开了（
 
 PV很失望，完全没有前2个预告那种惊艳感了，快发售了还这样遮遮掩掩地干嘛呢？
 
+
+*****
+
+####  洁西卡  
+##### 682#       发表于 2023-2-9 09:16
+
+能不能再跳两年，我玩不过来啊，
+
+—— 来自 vivo V1955A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  孙女  
+##### 683#       发表于 2023-2-9 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59671311&amp;ptid=1997982" target="_blank">nage560 发表于 2023-2-9 09:09</a>
+
+PV很失望，完全没有前2个预告那种惊艳感了，快发售了还这样遮遮掩掩地干嘛呢？ ...</blockquote>
+怕国产某游戏突然一个大更新，然后512后说塞尔达抄袭<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KIRI小威  
+##### 684#       发表于 2023-2-9 09:18
+
+感觉这一作会黑暗很多，不像旷野之息那样，除了几个地点之外都是给人一种孤独静谧中带点温馨的感觉
+
