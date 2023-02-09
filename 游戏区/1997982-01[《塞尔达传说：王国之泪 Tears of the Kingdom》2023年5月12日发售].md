@@ -1786,3 +1786,20 @@ md明明知道没有hdr还是想买lg c2来玩这个游戏
 
 这次pv里出现的怪头上都长出了各种各样的东西<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ACFUNBILI  
+##### 801#       发表于 2023-2-9 19:30
+
+国内实体版怎么买
+
+*****
+
+####  hu794  
+##### 802#       发表于 2023-2-9 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59680187&amp;ptid=1997982" target="_blank">heseran 发表于 2023-2-9 19:15</a>
+这次pv里出现的怪头上都长出了各种各样的东西</blockquote>
+这些东西最后都会成为林克的组装品。
+
