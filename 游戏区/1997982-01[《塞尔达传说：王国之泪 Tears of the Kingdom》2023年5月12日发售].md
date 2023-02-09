@@ -1150,3 +1150,53 @@ Screenshot_20230209_124834.jpg
 
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  raii  
+##### 743#       发表于 2023-2-9 13:14
+
+<blockquote>heseran 发表于 2023-2-9 12:45
+如果是转运的话可能是转运地址被任天堂拉黑了</blockquote>
+活人地址啊
+
+*****
+
+####  wlgdc  
+##### 744#       发表于 2023-2-9 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">播片插入了这段我还以为林克要被人棍了 看看那理发器 应该是获得道具的
+
+<img src="https://img.saraba1st.com/forum/202302/09/131404n22zmokooofwh1fk.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2023-02-09_13-13-43.png</strong> (190.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 13:14 上传
+
+*****
+
+####  moekyo  
+##### 745#       发表于 2023-2-9 13:15
+
+下单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/09/131533odggi4ggpl0fl0hz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 13:15 上传
+
+*****
+
+####  heseran  
+##### 746#       发表于 2023-2-9 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59675347&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-2-9 13:04</a>
+
+金属徽章吧</blockquote>
+又去看了一下，好像确实是一张金属海报
+
