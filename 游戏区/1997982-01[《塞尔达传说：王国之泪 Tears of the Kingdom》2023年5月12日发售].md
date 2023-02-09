@@ -1372,3 +1372,20 @@ Includes The Legend of Zelda: Tears of the Kingdom (physical version), Artbook, 
 
 说起来这次 pv 完全没有出现林克的散发空岛装扮呀，不会是在一堆触手那里强制变装的吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  hsheep  
+##### 764#       发表于 2023-2-9 14:23
+
+这游戏不到20G某种程度也算是好事，sd卡快满了。
+
+*****
+
+####  lazycat233  
+##### 765#       发表于 2023-2-9 14:29
+
+重新看了下pv，发现一些武器盾牌貌似也可以装上零件，比如那个喷火的盾牌和放炮的木棍，发动条件可能是用身上带的便携能量？  pv里车头跟喷火那个盾牌龙头好像是同一个部件
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
