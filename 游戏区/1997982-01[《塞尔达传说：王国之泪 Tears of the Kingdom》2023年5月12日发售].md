@@ -1714,3 +1714,21 @@ https://www.amazon.co.jp/gp/aw/d/B0BV97QD6G?ref=ppx_pt2_mob_b_prod_image
 —— 来自 OPPO R11, Android 9上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
 没找到，只看到24480的。官网的也没了。
 
+
+*****
+
+####  moekyo  
+##### 794#       发表于 2023-2-9 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59679407&amp;ptid=1997982" target="_blank">stoiorz 发表于 2023-2-9 18:06</a>
+
+没找到，只看到24480的。官网的也没了。</blockquote>
+感觉是没货隐藏了，我几分钟前刷是有的
+
+*****
+
+####  清浦刹那  
+##### 795#       发表于 2023-2-9 18:19
+
+美版现在能订了吗？
+
