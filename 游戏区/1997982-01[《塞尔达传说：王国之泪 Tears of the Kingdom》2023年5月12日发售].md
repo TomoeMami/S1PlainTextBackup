@@ -2933,3 +2933,11 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 虽然上次买织梦岛林克amiibo的经历极其糟糕，但希望这些年过去了，gamestop能有改进吧orz
 
+
+*****
+
+####  moekyo  
+##### 905#       发表于 2023-2-11 00:33
+
+还是决定退了限定入数字，什么特典都赶不上第一时间玩到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
