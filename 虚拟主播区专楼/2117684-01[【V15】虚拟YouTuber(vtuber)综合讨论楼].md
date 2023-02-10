@@ -1507,3 +1507,16 @@ BGV散伙了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png
 
 日顷ご支援いただいている皆様におかれましては突然の発表となってしまい大変恐缩ですが、残りの活动期间も変わらぬご声援をお愿いいたします。
 
+
+*****
+
+####  fastary  
+##### 77#       发表于 2023-2-10 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59687167&amp;ptid=2117684" target="_blank">毛头小希 发表于 2023-2-10 11:08</a>
+
+VTA三期我还一个都没看，VTA二期当之无愧的三个top是男：九埜，女：日下部、未来丹。可以说二期的关注度 ...</blockquote>
+哇 谢谢 贴贴营业真是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+大家都挺好，暂时没有特别偏好的，我顺着都看看
+
