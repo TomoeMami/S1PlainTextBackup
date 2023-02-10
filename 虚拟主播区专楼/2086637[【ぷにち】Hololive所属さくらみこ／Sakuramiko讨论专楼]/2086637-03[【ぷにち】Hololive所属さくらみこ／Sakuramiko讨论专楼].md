@@ -13889,3 +13889,50 @@ https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2q
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老喜欢贴墙走
 
+
+*****
+
+####  神澈  
+##### 4278#       发表于 2023-2-10 22:55
+
+上次就玩的稀烂一轮游，这次一点长进都没有。
+
+这种BUFF游都这样，不知道对这人还有什么可期待的。
+
+*****
+
+####  rs5621  
+##### 4279#       发表于 2023-2-10 22:58
+
+<img src="https://img.saraba1st.com/forum/202302/10/225843sr1yrg14irg9ng49.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 22:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 4280#       发表于 2023-2-10 22:59
+
+还是用自己好玩
+
+<img src="https://img.saraba1st.com/forum/202302/10/225923puq62bpm6kmxkakz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 22:59 上传
+
+*****
+
+####  rs5621  
+##### 4281#       发表于 2023-2-10 23:01
+
+草,用个手柄叫这么大声,尬死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

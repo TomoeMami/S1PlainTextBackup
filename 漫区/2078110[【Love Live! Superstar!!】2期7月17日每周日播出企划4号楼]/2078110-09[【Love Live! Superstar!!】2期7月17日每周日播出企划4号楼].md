@@ -566,3 +566,12 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 一期生现在这样也不错，至少能持续保持一定的曝光率
 
+
+*****
+
+####  nufawneafg  
+##### 12062#       发表于 2023-2-10 23:02
+
+嘛，流水前波让后波
+追着屁股要业绩也要不到消费者头上，有啥担心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
