@@ -246,3 +246,44 @@ ios下载的话是切换到繁中服找app store吗
 
 现在就孔明比较强势吗，话说不刷初始的话，被卡的地方多不多，不多就不刷了
 
+
+*****
+
+####  alucardcz  
+##### 892#       发表于 2023-2-10 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691475&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-2-10 16:54</a>
+
+现在就孔明比较强势吗，话说不刷初始的话，被卡的地方多不多，不多就不刷了 ...</blockquote>
+现在2大天 孔明和圣华  开局没有建议直接放弃这游戏  
+
+这游戏开服剧情难度非常非常高  可以说卡死了90%的人 然后被喷的降难度了  
+
+所以不排除以后新剧情又犯病的可能(我觉得可能性非常之高
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然摆烂剧情打不过都无所谓的话 随意  
+
+*****
+
+####  真绯瑠之眷属  
+##### 893#       发表于 2023-2-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691663&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-10 17:05</a>
+
+现在2大天 孔明和圣华  开局没有建议直接放弃这游戏  
+
+这游戏开服剧情难度非常非常高  可以说卡死了90%的 ...</blockquote>
+这么吓人，那我还是刷一个吧...
+
+*****
+
+####  alucardcz  
+##### 894#       发表于 2023-2-10 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691692&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-2-10 17:06</a>
+
+这么吓人，那我还是刷一个吧...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚开服是这样的   虽然现在好很多了
+
+但是既然新入坑 没有理由不好好起步
+

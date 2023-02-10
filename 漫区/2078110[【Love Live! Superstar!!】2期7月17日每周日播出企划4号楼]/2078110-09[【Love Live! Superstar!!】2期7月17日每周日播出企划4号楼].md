@@ -113,3 +113,26 @@ kuma衣服上的字翻转过来
 
 大熊用的一次性杯，每来一次都要画一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 12011#       发表于 2023-2-10 17:08
+
+<img src="https://img.saraba1st.com/forum/202302/10/170831um0y6mizrsh8v6dy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230210_170818.jpg</strong> (64.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 17:08 上传
+
+还可以呀，看看可可的
+
+*****
+
+####  starring  
+##### 12012#       发表于 2023-2-10 17:12
+
+看起来可以，毛皮可能以后难打理，不过比景品厂那个一团没细节的塑胶好看了
+

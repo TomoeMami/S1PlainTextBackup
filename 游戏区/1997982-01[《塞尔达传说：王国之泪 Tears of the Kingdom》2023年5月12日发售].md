@@ -2633,3 +2633,25 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  umbasa  
+##### 882#       发表于 2023-2-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691425&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-10 16:51</a>
+
+林克的右手就是塞尔达？什么美鸟在身边
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+也不是不可以，这下真的右手老婆了
+
+*****
+
+####  Waldeinsamkeit  
+##### 883#       发表于 2023-2-10 17:07
+
+在这里聊天的功夫，某个第三方供应商终于出货了，但秒把CE价格从139提到了159，还不包邮<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+含泪先订了，等有更好的价格再取消好了……
+
