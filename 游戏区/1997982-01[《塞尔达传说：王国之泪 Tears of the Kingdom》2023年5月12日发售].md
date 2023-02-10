@@ -2248,3 +2248,16 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 
 顺便 eshop可以预定了。
 
+
+*****
+
+####  牛奶笛  
+##### 845#       发表于 2023-2-10 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684751&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-10 07:17</a>
+
+有点期待首周能卖多少了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+参考喷3首周将近600万，朱紫首周1000万，王泪大概首周七八百万的水平
+
