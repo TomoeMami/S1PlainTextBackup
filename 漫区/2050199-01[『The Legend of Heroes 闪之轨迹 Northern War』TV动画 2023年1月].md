@@ -5636,3 +5636,19 @@ TVアニメ『The Legend of Heroes
 <img src="https://p.sda1.dev/9/e214da40d5101e8fb13ffca034b799d2/20230210_200003.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/3cea206b4218be5c350074681c6b34f8/bg-top.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 635#       发表于 2023-2-10 21:31
+
+开幕难绷
+
+*****
+
+####  酷乐  
+##### 636#       发表于 2023-2-10 21:39
+
+B站港澳台：
+[https://www.bilibili.com/bangumi/play/ep721999](https://www.bilibili.com/bangumi/play/ep721999)
+

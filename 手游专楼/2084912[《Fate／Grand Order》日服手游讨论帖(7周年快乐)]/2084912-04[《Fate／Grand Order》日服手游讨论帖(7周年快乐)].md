@@ -8068,3 +8068,27 @@ PV中出现的词汇：
 
 接着作死吧，是真的嫌fgo现在死的太慢是吧，然后自己往里面加把柴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  J-002  
+##### 5264#       发表于 2023-2-10 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694843&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-10 21:09</a>
+
+给人类史送温暖来了</blockquote>
+《你不准进入人理》
+
+*****
+
+####  v22325  
+##### 5265#       发表于 2023-2-10 21:40
+
+<img src="https://img.saraba1st.com/forum/202302/10/213950horj4bc1afbgr01l.jpg" referrerpolicy="no-referrer">
+
+<strong>1676033974217.jpg</strong> (591.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 21:39 上传
+

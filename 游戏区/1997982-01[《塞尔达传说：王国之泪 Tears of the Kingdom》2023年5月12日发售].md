@@ -2789,3 +2789,14 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 
 早上那个10分钟内从129.99涨到了159.99，刚才好不容易刷到一个正价129.99的，我刚买完，马上就涨到了149.99<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 897#       发表于 2023-2-10 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694135&amp;ptid=1997982" target="_blank">hu794 发表于 2023-2-10 20:16</a>
+
+应该开始正式宣发了吧，下周会有新东西吗？</blockquote>
+开始了，但目前的宣发是带玩家“回顾旷野之息”，以及拉新人玩前作。真新消息还得等
+
