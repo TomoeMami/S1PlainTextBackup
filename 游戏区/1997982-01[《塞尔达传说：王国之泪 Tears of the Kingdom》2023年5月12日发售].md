@@ -2418,3 +2418,11 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 问一下，潭舅真的暗示过可以操作第二人吗，我好像错过了很多消息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 860#       发表于 2023-2-10 14:59
+
+谭舅一直都是硬件方面的吧，好像没见过有说操作第二人相关
+
