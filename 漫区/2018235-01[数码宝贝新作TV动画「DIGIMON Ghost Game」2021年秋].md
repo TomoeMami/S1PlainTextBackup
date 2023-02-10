@@ -70,3 +70,16 @@ DGG确定这一季完结，这...进了数码世界只有2、3集的篇幅了，
 
 伽马兽还有3个进化形态没出来，要剑圣大和了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天光逸  
+##### 444#       发表于 2023-2-10 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59685829&amp;ptid=2018235" target="_blank">liekong 发表于 2023-2-10 09:45</a>
+
+DGG确定这一季完结，这...进了数码世界只有2、3集的篇幅了，能把故事讲完吗，烂尾的节奏啊，
+
+原本估计这个 ...</blockquote>
+致敬网络侦探，去数码世界只是去打boss XD
+

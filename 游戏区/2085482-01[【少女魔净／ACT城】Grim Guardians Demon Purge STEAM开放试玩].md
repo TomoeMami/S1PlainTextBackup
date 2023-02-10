@@ -1356,3 +1356,13 @@ galgun啊，本家联动了属于是
 galgun啊，本家联动了属于是</blockquote>
 原来真是那个轨道射击游戏！
 
+
+*****
+
+####  Lisylfn  
+##### 129#       发表于 2023-2-10 09:52
+
+这个demo版我有线连接精英2, 需要禁用steam输入才能识别手柄, 然后移动的时候摇杆/十字都会触发"在菜单选项切换"的音效, 我现在走起路来就是当当当当当的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+有人有这个问题吗
+
