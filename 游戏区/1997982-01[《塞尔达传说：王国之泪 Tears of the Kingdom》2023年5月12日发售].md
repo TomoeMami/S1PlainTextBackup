@@ -2552,3 +2552,73 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  宛若青空  
+##### 874#       发表于 2023-2-10 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691199&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 16:37</a>
+其实Fami那边也在猜playable Zelda的可能性，因为官图里她手中那个全新的希卡石板……游戏外我们自然知道是 ...</blockquote>
+衷心希望P2是塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lanyu_u  
+##### 875#       发表于 2023-2-10 16:46
+
+<blockquote>牛奶笛 发表于 2023-2-10 16:24
+以前风之杖就有操作NPC跟林克一起解密的</blockquote>
+风棍那种程度的解谜和野炊解火神兽的差不多吧，我猜这次说的组队应该会更深入点吧。
+
+好像说可以组队的不是塞尔达。
+
+*****
+
+####  zzp05402  
+##### 876#       发表于 2023-2-10 16:48
+
+塞尔达会不会是和战神或者最后的守护者那样是双人AI伙伴，那我可太期待了
+
+*****
+
+####  downnote  
+##### 877#       发表于 2023-2-10 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这PV里面塞尔达如果是变成灵体的话，那就是cos大地的汽笛啰，可以附身控制东西之类
+
+*****
+
+####  Waldeinsamkeit  
+##### 878#       发表于 2023-2-10 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691266&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-10 16:41</a>
+
+会不会林克在外面撒丫子乱跑，塞尔达在地下深处专门破解一些不注重战斗的大迷宫，利用新希卡之石的能力[f:0 ...</blockquote>
+反正我已经预感到不少林塞糖了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+预告片里塞尔达说“你一个人无法战胜他（Ganondorf）”肯定发生在塞尔达掉下去之后，说明至少塞尔达还是有办法单线联系上林克的；而塞尔达掉下去之后没有死，就说明她被什么人救了或者血脉显灵到了什么圣域之类……啊，然后就是我最喜欢的，你为了救我竭尽全力，我为了帮你也竭尽全力的双向奔赴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+（快住脑
+
+咳咳，总之，很可能率先和佐纳乌神祇那边打交道的是塞尔达，所以真的挺希望能看到塞尔达这边的视角。虽然退一万步用过场动画交代也不是不行，但毕竟可操作才有代入感不是……哪怕可操作的部分和初代纸马中的桃子公主一样我都满足了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sherlock08  
+##### 879#       发表于 2023-2-10 16:51
+
+ 本帖最后由 Sherlock08 于 2023-2-10 16:52 编辑 
+
+公主可操作那就太棒了，甚至在想能不能把她老公踹一边搞个真正的塞尔达传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 880#       发表于 2023-2-10 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691401&amp;ptid=1997982" target="_blank">downnote 发表于 2023-02-10 16:50:06</a>
+这PV里面塞尔达如果是变成灵&amp;# ...</blockquote>林克的右手就是塞尔达？什么美鸟在身边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
