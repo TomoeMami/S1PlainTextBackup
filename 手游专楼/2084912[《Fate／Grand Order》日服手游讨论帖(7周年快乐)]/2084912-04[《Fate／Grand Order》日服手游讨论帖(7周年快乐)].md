@@ -7822,3 +7822,49 @@ PV中出现的词汇：
 
 被检体会不会是所长？因为雷夫将所长丢进了迦勒底亚斯，导致所长被迦勒底亚斯的人研究了100年，因为某种事情而异变，从而导致整个迦勒底亚斯白纸化。然后搞掂盖提亚后置换魔术启动，导致白纸化的迦勒底亚斯覆盖到地球，然后开始7个异闻带的争斗？
 
+
+*****
+
+####  不垃圾屌丝  
+##### 5241#       发表于 2023-2-10 19:23
+
+我没理解错的话，讨论被检体E的时候还在以为是躺在地上那个吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  里村紅葉  
+##### 5242#       发表于 2023-2-10 19:24
+
+反正还有两年半就十周年了，多拖一会儿也没啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 5243#       发表于 2023-2-10 19:26
+
+ 本帖最后由 zakki 于 2023-2-10 19:27 编辑 
+
+没劲，还是指望月姬里线吧，好不容易被2.7点起来的热情已经全浇灭了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 5244#       发表于 2023-2-10 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692423&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2023-2-10 17:52</a>
+
+人王先说4又改口说3个 我看多半是7个ex阶每样来一个 加拉哈德搞不好也能掺一脚 ...</blockquote>
+剩下那个是星空【
+
+*****
+
+####  黑上シグマ  
+##### 5245#       发表于 2023-2-10 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693414&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-10 19:21</a>
+
+被检体会不会是所长？因为&amp;#x9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2.7里所长不已经在说了吗，“我一直在喊我是人”
+
