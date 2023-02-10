@@ -2674,3 +2674,24 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 我猜pv2塞尔达请求去帮助林克的应该是一万年前佐纳乌族公主
 
+
+*****
+
+####  宛若青空  
+##### 886#       发表于 2023-2-10 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691827&amp;ptid=1997982" target="_blank">YIIIIIno 发表于 2023-2-10 17:13</a>
+说起来那套衣服在最新的eshop官图里消失了，林克变成了裸上身背着断掉的大师剑（官图啊，不穿上衣感觉好 ...</blockquote>
+可能那套服装也是要根据某个剧情获得的吧，一开始是裸上身？
+
+*****
+
+####  nakosm  
+##### 887#       发表于 2023-2-10 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690714&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-10 16:05</a>
+我用萌购在HMV订，竟然还给我按会员价下单了，笑死
+
+  -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
+hmv直接买就好了啊，为什么还要给萌购交手续费
+

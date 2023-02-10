@@ -152,3 +152,24 @@ kuma衣服上的字翻转过来
 
 复习了下宣传图发现可千恋是丝带，不知道也是用真丝带做定型，还是透明件代替不觉得会用真的搞定型
 
+
+*****
+
+####  D麦林  
+##### 12015#       发表于 2023-2-10 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692131&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-10 17:32</a>
+复习了下宣传图发现可千恋是丝带，不知道也是用真丝带做定型，还是透明件代替不觉得会用真的搞定型[/backco ...</blockquote>
+毛绒的话应该是实物会效果好些
+但是丝带用实物的话八成还得塞定型铁丝 可能还得到手了自己掰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么想都感觉是灾难 感觉不如直接用透明件
+
+*****
+
+####  D麦林  
+##### 12016#       发表于 2023-2-10 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692131&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-10 17:32</a>
+复习了下宣传图发现可千恋是丝带，不知道也是用真丝带做定型，还是透明件代替不觉得会用真的搞定型[/backco ...</blockquote>
+毛绒的话应该是实物会效果好些
+但是丝带用实物的话八成还得塞定型铁丝 可能还得到手了自己掰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么想都感觉是灾难 感觉不如直接用透明件
+
