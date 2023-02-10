@@ -2921,3 +2921,21 @@ as活动up曲第一首就是chase！
 <img src="https://p.sda1.dev/9/810f623537a261fa62b4b510d4c4dfc3/CMP_20230210112822068.jpg" referrerpolicy="no-referrer">
 『にじよんあにめーしょん』 06 璃奈ちゃんRunRuns 先行图
 
+
+*****
+
+####  dozen  
+##### 7023#       发表于 2023-2-10 19:54
+
+azn live和莲团生放(?)都捞不动你楼，令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ALSE  
+##### 7024#       发表于 2023-2-10 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693793&amp;ptid=1959558" target="_blank">dozen 发表于 2023-2-10 19:54</a>
+
+azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
+都在隔壁NGA聊了吧
+

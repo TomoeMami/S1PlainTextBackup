@@ -299,3 +299,24 @@ ios下载的话是切换到繁中服找app store吗
 
 打完Day1把送的石头和券全抽了，出了仨SS，看节奏榜都在T1，省了笔买初始号的钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leitingkai  
+##### 896#       发表于 2023-2-10 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我是开服玩的
+当初的主线剧情难度堪称逆天
+我是脸非常黑那种 初始刷了两个ss（不是当时的人权原皮星罗，我玩到现在都没有星罗）
+后面玩到最难的第三章打通都只抽到两个ss
+一个还因为太弱被我淘汰换成了强力的S
+
+努力一下还是可以靠3SS和免费主角SS、活动的满破S忍者和两个强辅助S打过第三章
+
+那时的活动s卡还被喂屎数值远低于卡池水平，这个s忍者只能拿来刷break数值
+但是现在活动s卡数值已经调整有正常水平了
+
+当时的难度都可以做到的话
+现在这个卡池强度大幅上升还有一堆满破活动s卡和白送的ss联动仲村，剧情难度又大幅调低了
+想打过剧情我觉得毫无难度<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

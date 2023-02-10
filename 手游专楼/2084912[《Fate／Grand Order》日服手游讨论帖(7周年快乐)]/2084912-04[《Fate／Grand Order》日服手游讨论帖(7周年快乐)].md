@@ -7915,3 +7915,34 @@ PV中出现的词汇：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么弱智理由
 
+
+*****
+
+####  eilot  
+##### 5251#       发表于 2023-2-10 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693660&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-10 19:44</a>
+
+有点没看懂....カルデアス不就是个极小型的地球模拟器吗
+
+这东西再怎么说也只是泛人类史的人造物.... ...</blockquote>
+庄周梦蝶???
+
+你以为你是在观察，其实是对方的一场梦?
+
+又或者是当年多拉A梦有一编人工地球模型，最后都有类似情况，最后2人望入去小地球时，看到入面也有另一组正在...
+
+*****
+
+####  J-002  
+##### 5252#       发表于 2023-2-10 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693660&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-2-10 19:44</a>
+
+有点没看懂....カルデアス不就是个极小型的地球模拟器吗
+
+这东西再怎么说也只是泛人类史的人造物.... ...</blockquote>
+迦勒底亚斯你就理解成哆啦A梦电影里大雄做那个地球模拟器就行，虽然是模拟地球但对地球来说也是另一个星球
+
+被研体E是所长就说的通了，她被雷夫扔迦勒底亚斯后，就相当于地球人到了火星就成了外星人，但地球人再调查她遗体就会得出只是个地球人类的结论
+
