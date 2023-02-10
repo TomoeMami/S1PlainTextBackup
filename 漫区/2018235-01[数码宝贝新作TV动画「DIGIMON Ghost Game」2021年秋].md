@@ -50,3 +50,23 @@ spy靠宙进化了，感觉以后会成比邻星兽的挂件<img src="https://st
 
 看预告65集终于要去数码世界了
 
+
+*****
+
+####  liekong  
+##### 443#       发表于 2023-2-10 09:45
+
+<img src="https://img.saraba1st.com/forum/202302/10/094320dz6m0skb4pk0w5kb.jpg" referrerpolicy="no-referrer">
+
+<strong>Y8@0$~_09W054_0SNQG3A8J.jpg</strong> (367.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 09:43 上传
+
+DGG确定这一季完结，这...进了数码世界只有2、3集的篇幅了，能把故事讲完吗，烂尾的节奏啊，
+
+原本估计这个主线推进节奏还要大概一季的时间的，
+
+伽马兽还有3个进化形态没出来，要剑圣大和了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
