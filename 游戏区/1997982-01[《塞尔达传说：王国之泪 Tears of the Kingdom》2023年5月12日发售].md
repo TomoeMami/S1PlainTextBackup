@@ -2718,3 +2718,28 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 
 神秘绿色力量操纵佐那乌地下城堡飞上宇宙和开海拉鲁城堡的盖侬对撞好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 891#       发表于 2023-2-10 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692151&amp;ptid=1997982" target="_blank">lanyu_u 发表于 2023-2-10 17:34</a>
+
+我猜pv2塞尔达请求去帮助林克的应该是一万年前佐纳乌族公主
+
+哦，佐纳乌族是一万年前再以前来着？一万年前是 ...</blockquote>
+一万年前是古代的海拉鲁公主和勇者一起封印的灾厄盖侬。
+
+现在对PV2里那个穿着打扮和一万年后的塞尔达相似又不尽相同的女性有三个猜测：
+
+1. 一万年前的塞尔达
+
+2. 佐那乌公主
+
+3. 海利亚女神
+
+我不懂日语不过看到有人说，日版预告片里塞尔达请求什么人帮助林克时用的敬语等级很高，但至少德语预告片里用的确确实实是尊严复数，一般是用来称呼皇室成员或者神明的，所以以上三种身份都不是没可能。
+
+但现在信息太少了，我甚至觉得可能只有游戏发售后，我们才能知道这名神秘女性的真实身份<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
