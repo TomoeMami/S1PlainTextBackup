@@ -862,3 +862,13 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 至少这个榜单不全都是”安全“的标准答案，这点挺有意思的。
 
+
+*****
+
+####  Gmanager  
+##### 83#       发表于 2023-2-10 11:29
+
+投票人数还没这楼当前的讨论人次多
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
