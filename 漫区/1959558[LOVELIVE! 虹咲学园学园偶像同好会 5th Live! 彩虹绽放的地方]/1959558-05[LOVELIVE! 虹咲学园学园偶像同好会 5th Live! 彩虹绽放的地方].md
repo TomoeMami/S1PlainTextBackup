@@ -2970,3 +2970,29 @@ nga没巨魔那味儿啊（</blockquote>
 你楼缺点隔壁5人原理那样的固定人口
 但现在契机有了，比如楠木雪菜姨姥<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梶原ひかり  
+##### 7028#       发表于 2023-2-10 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694437&amp;ptid=1959558" target="_blank">dozen 发表于 2023-2-10 20:40</a>
+
+你楼缺点隔壁5人原理那样的固定人口
+
+但现在契机有了，比如楠木雪菜姨姥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">也不会有的 推灯的很多都退坑了..
+
+隔壁5人原理 最重要还是鲤鱼一直在呢..话题 和 热度都有
+
+*****
+
+####  stygian  
+##### 7029#       发表于 2023-2-10 20:56
+
+ 本帖最后由 stygian 于 2023-2-10 20:59 编辑 
+
+虹本来活动就不多，最大黑泥点也马上彻底切割了
+
+也没啥特别好巨魔好黑泥的啊。。。嗯黑泥只能出门左转紫吧了
+

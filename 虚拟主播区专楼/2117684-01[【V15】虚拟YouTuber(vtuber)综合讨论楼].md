@@ -1489,3 +1489,21 @@ VTA三期我还一个都没看，VTA二期当之无愧的三个top是男：九�
 老爱那个动画出了15个。
 正好今天ll的莲团也要新消息了。看看能塞多少个
 
+
+*****
+
+####  free  
+##### 76#       发表于 2023-2-10 20:57
+
+BGV散伙了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/_BOOGEY_VOXX_/status/1624015365805334533](https://twitter.com/_BOOGEY_VOXX_/status/1624015365805334533)
+
+🍥大切なお知らせ🔩
+
+2023年3月6日をもって、Ci, FraはBOOGEY VOXXを脱退しグループとしての活动を终了いたします。
+
+详细は画像をご覧ください。
+
+日顷ご支援いただいている皆様におかれましては突然の発表となってしまい大変恐缩ですが、残りの活动期间も変わらぬご声援をお愿いいたします。
+
