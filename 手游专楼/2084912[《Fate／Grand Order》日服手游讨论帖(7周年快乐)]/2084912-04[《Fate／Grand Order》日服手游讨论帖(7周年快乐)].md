@@ -7670,3 +7670,77 @@ UFO🕷️各种好玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">而且这坑挖的挺大 说不定都可以直接把“第3部”赛进去   这终章啊  2025年能见到就是胜利（
 
+
+*****
+
+####  kisskick  
+##### 5227#       发表于 2023-2-10 18:31
+
+有mb？
+
+69C79447-A1BC-4D28-8799-D8DE0116096B.png
+(263.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202302/10/183143jnxe3kocnz0wnx37.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 5228#       发表于 2023-2-10 18:32
+
+当初是打算看完第二部就退坑的，现在这情况不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5229#       发表于 2023-2-10 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692672&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-10 18:18</a>
+
+而且这坑挖的挺大 说不定都可以直接把“第3部”赛进去   这终章啊  2025年能见到就是胜利（ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/10/182704oypepgnon3ojogo3.jpg" referrerpolicy="no-referrer">
+
+<strong>1676024745054.jpg</strong> (127.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 18:27 上传
+
+第三部应该是放在第二部终章之后吧，不过这次硬续三章确实太难看了...简单出个间章交代一下伯爵的目的就好了...
+
+又臭又长，中间还换了公司，这是在连载银魂吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5230#       发表于 2023-2-10 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692810&amp;ptid=2084912" target="_blank">kisskick 发表于 2023-2-10 18:31</a>
+
+有mb？</blockquote>
+MBTL联动也扯不到阿特拉斯院吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">紫苑的DLC都没影呢...
+
+*****
+
+####  alucardcz  
+##### 5231#       发表于 2023-2-10 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692825&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-10 18:33</a>
+
+第三部应该是放在第二部终章之后吧，不过这次硬续三章确实太难看了...简单出个间章交代一下伯爵的目的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思是 现在这个坑挖的很随意 里面内容可以随便填  直接赛全新的内容拖时间都不是问题
+
+*****
+
+####  卡蓮  
+##### 5232#       发表于 2023-2-10 18:38
+
+这也太硬续了…
+
+如果和阿特拉斯院相关，估计能用上sion的战损立绘
+

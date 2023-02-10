@@ -173,3 +173,16 @@ kuma衣服上的字翻转过来
 毛绒的话应该是实物会效果好些
 但是丝带用实物的话八成还得塞定型铁丝 可能还得到手了自己掰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么想都感觉是灾难 感觉不如直接用透明件
 
+
+*****
+
+####  Enakina  
+##### 12017#       发表于 2023-2-10 18:36
+
+<blockquote> 榆井希実(ホーリーピーク)
+花宫初奈（青二プロ)
+野中ここな(アミューズ)
+佐々木琴子（スタイルキューブ)
+菅叶和（俳协）
+月音こな( Apollo bay ) </blockquote>果然有个阿波罗的人
+
