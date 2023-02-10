@@ -1273,3 +1273,13 @@ odds&amp;ends后面我就当ryo死了
 
 每次打开火纹就心里发毛
 
+
+*****
+
+####  wenze  
+##### 144#       发表于 2023-2-10 15:17
+
+确实就上面说的一样，ryo自pp以后的写的歌我个人感觉里确实是远远不如wowaka乐队出道后的作品，听感突出一个莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
