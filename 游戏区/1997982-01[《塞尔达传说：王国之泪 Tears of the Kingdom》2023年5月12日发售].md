@@ -2261,3 +2261,16 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 参考喷3首周将近600万，朱紫首周1000万，王泪大概首周七八百万的水平
 
+
+*****
+
+####  冷泉夜月  
+##### 846#       发表于 2023-2-10 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59685279&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-02-10 08:57:21</a>
+
+参考喷3首周将近600万，朱紫首周1000万，王泪大概首周七八百万的水平</blockquote>
+如果法国首日预订能有80万，感觉首周不止七八百万<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
