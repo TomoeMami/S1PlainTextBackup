@@ -2322,3 +2322,11 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  yuwe0714  
+##### 852#       发表于 2023-2-10 12:44
+
+官网没货了，重新上架的时候坛友提一嘴啊，手慢了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

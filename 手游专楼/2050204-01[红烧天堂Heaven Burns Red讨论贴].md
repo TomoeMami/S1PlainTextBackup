@@ -209,3 +209,14 @@ ios下载的话是切换到繁中服找app store吗
 
 第一次玩这种游戏，是随便搞个初始号入坑吗
 
+
+*****
+
+####  叶雾  
+##### 888#       发表于 2023-2-10 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59687521&amp;ptid=2050204" target="_blank">h33 发表于 2023-2-10 11:29</a>
+
+第一次玩这种游戏，是随便搞个初始号入坑吗</blockquote>
+看剧情随意，追求强度要选好初始
+
