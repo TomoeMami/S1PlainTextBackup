@@ -1283,3 +1283,14 @@ odds&amp;ends后面我就当ryo死了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  左眼  
+##### 145#       发表于 2023-2-10 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839071&amp;ptid=2098895" target="_blank">nage560 发表于 2022-10-10 01:28</a>
+
+15年做完勇气默示录2后就感觉不行了，量这么低为什么质量还能滑坡这么厉害所以现在我觉得大家都diss ...</blockquote>
+泽野弘之连给《龙族》动画做的超敷衍流水线都是好听的，真正的商业作曲家还是不一样。
+

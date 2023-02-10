@@ -2426,3 +2426,37 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 谭舅一直都是硬件方面的吧，好像没见过有说操作第二人相关
 
+
+*****
+
+####  lanyu_u  
+##### 861#       发表于 2023-2-10 15:24
+
+ 本帖最后由 lanyu_u 于 2023-2-10 15:27 编辑 
+
+另外一个潭舅，但是我记得是可以和npc组队
+
+*****
+
+####  Waldeinsamkeit  
+##### 862#       发表于 2023-2-10 15:26
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-10 15:27 编辑 
+
+有的，有个本地化坛舅，ID就不在这里写出来了。
+他一次提到“可以操作第二个人”一次提到“还有很多玩法没有展现出来”。坛舅还是很早就在论坛说阿尔宙斯非常好玩的人，也知道火纹和XB3是老任早就做好了压着不发。鉴于我也干本地化这行我基本能猜到他大概跑的是哪个环节，所以我很信任他<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lanyu_u  
+##### 863#       发表于 2023-2-10 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690210&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 15:26</a>
+
+有的，有个本地化坛舅，ID就不在这里写出来了。
+
+他一次提到“可以操作第二个人”一次提到“还有很多玩法没 ...</blockquote>
+超级值得信任，21年就说过火纹新作会有历代角色
+
