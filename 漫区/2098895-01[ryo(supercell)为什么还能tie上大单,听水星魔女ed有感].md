@@ -1187,3 +1187,14 @@ my dearest和departures确实是神仙。
 
 水星这ed只有副歌前面一段小短句主歌到副歌第一句是能听的，其他都是答辩。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花礫  
+##### 134#       发表于 2023-2-10 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57859945&amp;ptid=2098895" target="_blank">Yugao 发表于 2022-10-11 15:02</a>
+
+夜鹿 真夜中 畿田女士这仨我经常分不清谁是谁</blockquote>
+夜鹿还挺好分出来的，suis风格多样可盐可甜，踢了拿不拿从美声到泽野都能唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
