@@ -7797,3 +7797,11 @@ PV中出现的词汇：
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Jamaisvu  
+##### 5238#       发表于 2023-2-10 19:03
+
+我一会得去游戏生涯那个帖子把“我咋喜欢这个”改成FGO了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

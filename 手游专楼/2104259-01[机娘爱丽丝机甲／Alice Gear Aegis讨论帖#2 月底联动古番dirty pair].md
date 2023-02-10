@@ -1603,3 +1603,13 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 加大力度<img src="https://p.sda1.dev/9/d5ae90e19406dd36dcb009f8faadf7fb/4b0a2d503835f622.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rincewind  
+##### 270#       发表于 2023-2-10 19:10
+
+把MASAKI那期高难（Resonance Ring）的BGM拆出来细听了下
+感觉燃的部分确实燃，旋律也有不错的部分，但是跟他这两年给Groove Coaster那边写的魔王曲一个问题，节奏太快转调太多，拆出来的还只有1LOOP，听着真是又乱又累。
+感觉MASAKI确实挺有才的，也确实是被音游害惨了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
