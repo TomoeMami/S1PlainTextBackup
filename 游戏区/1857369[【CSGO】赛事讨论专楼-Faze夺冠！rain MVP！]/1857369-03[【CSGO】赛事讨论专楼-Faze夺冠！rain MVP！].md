@@ -293,3 +293,11 @@ g!
 
 寄，这状态赢了打g2也是送
 
+
+*****
+
+####  天妇罗  
+##### 3167#       发表于 2023-2-11 07:51
+
+g2王朝<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
