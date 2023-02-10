@@ -5288,3 +5288,16 @@ WEB版才是真心理扭曲
 看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来也有点微妙，这部的版权在角川，角川又把重装机兵卖给了cy，硬蹭蹭也算沾亲带故了
 
+
+*****
+
+####  人生败犬河大吉  
+##### 429#       发表于 2023-2-10 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56414198&amp;ptid=1913585" target="_blank">鬼谷ask 发表于 2022-6-25 22:20</a>
+
+看完web296了，这几天连着看下来有些疲劳，尤其是一直高强度打架
+
+个人最喜欢的片段还是成为赏金目标然后当 ...</blockquote>
+请问护卫这段在WEB版是多少话开始的？
+
