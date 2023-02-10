@@ -7883,3 +7883,35 @@ PV中出现的词汇：
 
 用ex职介犯法了不让进？那能不能带着一群特殊职介直接把地球炸了不救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 5248#       发表于 2023-2-10 19:44
+
+ 本帖最后由 森兰丸 于 2023-2-10 19:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">有点没看懂....カルデアス不就是个极小型的地球模拟器吗
+
+这东西再怎么说也只是泛人类史的人造物.....为什么里面也会发展出文明和生命啊
+
+这カルデアス里面的历史是不是就是异闻带
+
+还有教授不都说的很明白了被检体E是宇宙人....怎么还因为整体组织和人类相似就断定被捡体E是人类......人类有必要研究人类吗
+
+教授在这种时刻没可能说谎或者说错的吧
+
+*****
+
+####  qixinno2  
+##### 5249#       发表于 2023-2-10 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女同事可以趁这机会强化了
+
+*****
+
+####  DET  
+##### 5250#       发表于 2023-2-10 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么弱智理由
+
