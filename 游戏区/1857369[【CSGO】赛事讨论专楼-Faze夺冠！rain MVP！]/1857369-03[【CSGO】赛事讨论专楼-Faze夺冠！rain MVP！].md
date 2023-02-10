@@ -142,3 +142,11 @@ G2现在太强了吧，感觉不到有队能威胁他们
 
 决赛估计是g2Navi四番战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Niyah  
+##### 3148#       发表于 2023-2-10 23:15
+
+vp新人够狠
+
