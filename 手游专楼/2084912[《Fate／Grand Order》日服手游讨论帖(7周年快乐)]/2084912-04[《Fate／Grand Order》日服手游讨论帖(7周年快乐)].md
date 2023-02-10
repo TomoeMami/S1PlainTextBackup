@@ -7995,3 +7995,19 @@ PV中出现的词汇：
 😂这大统领也不知道能不能实装 ...</blockquote>
 大统领肯定还有后续，她宝具都没解锁呢，而且2.7最后麻婆和医生的对话里不也提到她是从者了吗，入池不迟早的事
 
+
+*****
+
+####  gpx234mqx  
+##### 5257#       发表于 2023-2-10 20:43
+
+ 本帖最后由 gpx234mqx 于 2023-2-10 20:50 编辑 
+
+本来嘛，Fate/Requiem说了之前战争召唤了个EX职介外国人，结果大家差点完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+迦勒底那么多外国人，是想造人理反啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我迦勒底现在能干掉任何人类史啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且盖亚侧公主和反人理的奥伯龙都能带入队，从人理来看完全就是人理之敌的样子啊，用那么多反贼你是造反啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
