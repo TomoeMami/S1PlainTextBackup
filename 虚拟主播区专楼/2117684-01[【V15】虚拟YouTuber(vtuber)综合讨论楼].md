@@ -1449,3 +1449,34 @@ zaion脾气这么大啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 大概是推黛灰残留的盐系倾向+音色确实不错吧
 
+
+*****
+
+####  毛头小希  
+##### 74#       发表于 2023-2-10 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59681764&amp;ptid=2117684" target="_blank">fastary 发表于 2023-2-9 21:35</a>
+
+郡gachi有推荐的vta男吗 最近奥术听腻了想听点别的
+
+刚看了律传的玩全员一致的切片还挺有意思的 ...</blockquote>
+VTA三期我还一个都没看，VTA二期当之无愧的三个top是男：九埜，女：日下部、未来丹。可以说二期的关注度就是靠这三个人再加上二期强大的凝聚力拉起来的
+
+九埜的特色就是正太皮+烟鬼嗓的反差、对抖M和文学的造诣，以及对直播认真准备的态度吧
+
+其他VTA男也都还算有特色，除开性别不明而且已经隐藏档的蕨，喜欢downer系废人就是小柳，喜欢自称阴角的关西阳角就是御子柴，喜欢两个DK互cue就是佐伯和宇佐美，喜欢整活就是星导，鬼伏声音和皮都很美但是直播内容太文艺了，桧山……完了我想不出他的特征是啥
+
+星导曾经做过一个集合VTA二期男做的乙游PV风小短片，方便把所有人快速过一遍看哪个合眼缘
+[https://www.bilibili.com/video/BV1LY4y1F754](https://www.bilibili.com/video/BV1LY4y1F754)
+
+另外私心推荐几个VTA二期男两两隔空互动的切片熟肉，希望这几个组合出道的时候都不要拆
+
+九埜+鬼伏
+[https://www.bilibili.com/video/BV1Xa411n7Sy](https://www.bilibili.com/video/BV1Xa411n7Sy)
+
+御子柴+小柳
+[https://www.bilibili.com/video/BV1fF411P7gX](https://www.bilibili.com/video/BV1fF411P7gX)
+
+宇佐美+佐伯
+[https://www.bilibili.com/video/BV1Na411f7Bh](https://www.bilibili.com/video/BV1Na411f7Bh)
+
