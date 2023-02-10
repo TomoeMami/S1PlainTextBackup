@@ -317,3 +317,34 @@ kuma衣服上的字翻转过来
 
 。
 
+
+*****
+
+####  P02  
+##### 12033#       发表于 2023-2-10 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星这边甚至还没有完全体
+
+*****
+
+####  lj205  
+##### 12034#       发表于 2023-2-10 19:34
+
+Yellow好好听
+
+*****
+
+####  player3960  
+##### 12035#       发表于 2023-2-10 19:35
+
+yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 12036#       发表于 2023-2-10 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691723&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-10 17:08</a>
+还可以呀，看看可可的</blockquote>
+还挺精细，300以内考虑，150以内无脑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
