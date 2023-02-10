@@ -1198,3 +1198,11 @@ my dearest和departures确实是神仙。
 夜鹿 真夜中 畿田女士这仨我经常分不清谁是谁</blockquote>
 夜鹿还挺好分出来的，suis风格多样可盐可甜，踢了拿不拿从美声到泽野都能唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  流川枫枫  
+##### 135#       发表于 2023-2-10 10:30
+
+说真的能记住的单曲就两首…物语ED和うたかた花火，13年的专辑《ZIGAEXPERIENTIA》之后出的东西就完蛋了，我一直认定ryo在13年出完专辑就燃尽了
+
