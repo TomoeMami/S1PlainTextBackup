@@ -2901,3 +2901,25 @@ PV1最后的壁画是海拉尔公主和佐纳乌公主的手勾在一起，代�
 
 一万年前再以前，两族合力对抗加农（非初代），最后以佐纳乌王国灭亡为代价，封印了加农道夫。
 
+
+*****
+
+####  lanyu_u  
+##### 903#       发表于 2023-2-10 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59695992&amp;ptid=1997982" target="_blank">hosilly 发表于 2023-2-10 22:24</a>
+
+hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面会不会被砍单啊
+
+—— 来自 OnePlus GM1910 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/10/235302unwyvywen622f656.jpg" referrerpolicy="no-referrer">
+
+<strong>1676044301660.jpg</strong> (188.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 23:53 上传
+
+看起来有可能会，当然也有可能是一般的免责声明
+
