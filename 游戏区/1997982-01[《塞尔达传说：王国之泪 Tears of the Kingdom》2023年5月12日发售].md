@@ -2838,3 +2838,13 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 901#       发表于 2023-2-10 22:36
+
+我笑疯了，早上法国亚马逊有一个标题是Nintendo August 2020 4的商品，什么内容也没有，被冲上了热卖第一，因为所有人都认为这个是王国之泪典藏版……
+
+然后现在，这个什么都没有的链接已经售罄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
