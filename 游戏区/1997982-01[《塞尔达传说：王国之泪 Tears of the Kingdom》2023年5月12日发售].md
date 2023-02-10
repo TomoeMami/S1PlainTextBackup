@@ -2695,3 +2695,18 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
   -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
 hmv直接买就好了啊，为什么还要给萌购交手续费
 
+
+*****
+
+####  nma  
+##### 888#       发表于 2023-2-10 17:57
+
+无限拉高期待啊，在掉坑里和建立起单线联系之间发生了什么，谁来引导这段时间的任务？另外如果塞尔达掉进祖坟里，发挥了考古学家的聪明才智，发现了操纵空岛的机关，是不是很cooool？目前看这股绿色能量是玄之又玄，你说它能把地底建筑直接弹射到空中我也信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuwe0714  
+##### 889#       发表于 2023-2-10 18:02
+
+求求你们不要分析了，越分析越心痒痒，光是期待最终pv就够难受了，今晚看看zeltik的录像去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
