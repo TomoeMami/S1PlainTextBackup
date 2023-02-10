@@ -2622,3 +2622,14 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  冷泉夜月  
+##### 881#       发表于 2023-2-10 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691415&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-10 16:51:11</a>
+反正我已经预感到不少林塞糖了</blockquote>毕竟野炊里的塞尔达在城堡里困了整个游戏最后才出来，换个角度说只要在王泪里有一点她的视角她的主动行动，那都是赚啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
