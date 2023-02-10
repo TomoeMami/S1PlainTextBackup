@@ -13783,3 +13783,14 @@ A锐评
 
 https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2qln4GofYcPE9M2bjA
 
+
+*****
+
+####  holoan  
+##### 4266#         楼主| 发表于 2023-2-10 18:05
+
+ベールズ、みこち＆そら先辈との初対面を果たす
+[https://youtu.be/xcZp49buhIs](https://youtu.be/xcZp49buhIs)
+
+这次收录碰到的海外成员还不少
+
