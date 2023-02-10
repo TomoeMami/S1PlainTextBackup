@@ -1537,3 +1537,11 @@ Fra沾上毒品交易了<img src="https://static.saraba1st.com/image/smiley/face
 
 2023-2-10 21:55 上传
 
+
+*****
+
+####  ヒトニナル  
+##### 79#       发表于 2023-2-10 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很符合我对rapper的刻板印象
+

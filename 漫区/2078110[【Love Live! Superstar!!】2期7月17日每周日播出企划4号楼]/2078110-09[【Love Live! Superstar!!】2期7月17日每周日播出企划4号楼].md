@@ -545,3 +545,24 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 我得找找app画面，没看完整...因为总有说不出的相似感<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 12060#       发表于 2023-2-10 22:45
+
+看水那边已经开始担心了，不过星这边我倒是觉得无所谓，如果今年真的把重心放在莲上，星半放养一段时间（毕竟星还不是完全体暂时不可能完全停摆），对星来说不是坏事。
+之前有人一通分析说星团危险了要被代哥放弃了巴拉巴拉……我：还有这种好事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 12061#       发表于 2023-2-10 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">星接下来还有海选的三期呢，阿波罗怎么可能放弃自推的艺人
+
+一期生现在这样也不错，至少能持续保持一定的曝光率
+
