@@ -2330,3 +2330,15 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 
 官网没货了，重新上架的时候坛友提一嘴啊，手慢了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hu794  
+##### 853#       发表于 2023-2-10 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59687718&amp;ptid=1997982" target="_blank">NeverCU 发表于 2023-2-10 11:47</a>
+是官方备货吧，朱紫也是80万。真是预约不可能这么巧合
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+嗯看错了，应该是官方备货
+

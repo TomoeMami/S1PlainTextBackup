@@ -872,3 +872,24 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lee_haku  
+##### 84#       发表于 2023-2-10 13:07
+
+战国兰斯是啥，我甚至都不知道它是一款游戏
+
+*****
+
+####  电磁炮233  
+##### 85#       发表于 2023-2-10 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59687396&amp;ptid=2118761" target="_blank">asd6381238 发表于 2023-2-10 11:20</a>
+这个榜单看似一坨糨糊，实际上很有逻辑。满足了所有人，但又让所有人不满足。
+
+你让我来列，我也列不出有说 ...</blockquote>
+依我看是纯纯的脑残榜单，FF679CT无论从任何方面都有资格排进前五十，但投票的人可能为了突出自己的独特品味和超凡脱俗，不仅把CT和FF6投到倒数，79直接查无此人。但又把P5如龙7投上去了，属于严重精神分裂的晚期了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
