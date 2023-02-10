@@ -405,3 +405,18 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 对比星出道那会，星实惨</blockquote>
 别惨了，比惨怕是又得虹水缪开始比了。
 
+
+*****
+
+####  stygian  
+##### 12044#       发表于 2023-2-10 20:32
+
+怕不是过两个月就是虹信星÷联合战线反莲了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12045#       发表于 2023-2-10 20:35
+
+没有兴趣，不是很想为企划中任何一派摇旗呐喊付出精力，都是万南坐收渔翁之利
+

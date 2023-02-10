@@ -2949,3 +2949,24 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 都在隔壁NGA聊了吧</blockquote>
 nga没巨魔那味儿啊（
 
+
+*****
+
+####  梶原ひかり  
+##### 7026#       发表于 2023-2-10 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694280&amp;ptid=1959558" target="_blank">dozen 发表于 2023-2-10 20:27</a>
+
+nga没巨魔那味儿啊（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">泥潭还是星比较受欢迎
+
+*****
+
+####  dozen  
+##### 7027#       发表于 2023-2-10 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694355&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-2-10 20:33</a>
+泥潭还是星比较受欢迎</blockquote>
+你楼缺点隔壁5人原理那样的固定人口
+但现在契机有了，比如楠木雪菜姨姥<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
