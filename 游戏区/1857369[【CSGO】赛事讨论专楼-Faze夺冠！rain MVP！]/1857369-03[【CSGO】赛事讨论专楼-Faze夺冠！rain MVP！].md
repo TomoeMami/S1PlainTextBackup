@@ -236,3 +236,60 @@ g2现在状态越好，越越怕他们来点g2式震撼。去年esl也是小组�
 
 g!
 
+
+*****
+
+####  朔方原的星  
+##### 3159#         楼主| 发表于 2023-2-11 03:05
+
+草，怎么突然虐菜无情，是不是下半场差不多该开始犯病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3160#         楼主| 发表于 2023-2-11 03:32
+
+这就对了 快进到19-15<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 3161#       发表于 2023-2-11 03:51
+
+3分包赢
+
+*****
+
+####  cwlo  
+##### 3162#       发表于 2023-2-11 03:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太离谱了
+
+*****
+
+####  AbigailWilliams  
+##### 3163#       发表于 2023-2-11 04:01
+
+小蜜蜂的op前两天又不是没看过，这场只能说两边的进攻旗鼓相当，但下半场的choke让液体手热起来了，相对的对面的手感那叫一个冰凉，薯薯这把得背锅的
+
+*****
+
+####  dev2ce  
+##### 3164#       发表于 2023-2-11 04:27
+
+珍爱生命，远离🐝，还好太晚了没看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 3165#       发表于 2023-2-11 04:51
+
+上半场薯薯手感回来的真快
+
+*****
+
+####  dev2ce  
+##### 3166#       发表于 2023-2-11 05:51
+
+寄，这状态赢了打g2也是送
+

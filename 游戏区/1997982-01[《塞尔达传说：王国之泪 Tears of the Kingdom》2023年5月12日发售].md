@@ -2983,3 +2983,26 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 那自然是限定数字双入，什么都不耽误</blockquote>
 太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 910#       发表于 2023-2-11 04:35
+
+说个鬼故事：
+目前欧洲只有个别电商开了预定，无论哪个国家，无论多高的价钱（129.99-179.99）几乎都在10分钟内售罄，而且价格一涨再涨。我蹲的楼已经1600层了，真的有从昨天就见到的熟面孔一直刷到现在。
+然后刚刚朋友给我看了下英国shopto的排队人数，6698<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+联想到昨天Fami看来的法国12000套CE出货数据（虽然英国出货量肯定大于法国），我感觉这次CE的供求关系会非常恐怖……
+就看全欧的任天堂官方店、亚马逊还有各国大电商什么时候发力了，但对普通玩家来说估计情况仍然不会特别乐观，与此同时，eBay上已经把价格炒到300欧以上了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+欧任真的弟中弟拉中拉，现在唯一的限定优势也没了，就只能整这些折磨玩家的幺蛾子找存在感了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+一想到限定机我还要经历一遍一模一样的，就真有想死的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lanyu_u  
+##### 911#       发表于 2023-2-11 05:04
+
+如果到时候限定机也要贵个6，7成才买的到的话，我就不准备当这个冤大头了
+
