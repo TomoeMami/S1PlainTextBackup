@@ -5652,3 +5652,13 @@ TVアニメ『The Legend of Heroes
 B站港澳台：
 [https://www.bilibili.com/bangumi/play/ep721999](https://www.bilibili.com/bangumi/play/ep721999)
 
+
+*****
+
+####  酷乐  
+##### 637#       发表于 2023-2-10 21:48
+
+冰之少女！这会已经比剑之少女年龄还大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+「焼き讨ち」翻译成“作战”，也太春秋笔法了吧
+

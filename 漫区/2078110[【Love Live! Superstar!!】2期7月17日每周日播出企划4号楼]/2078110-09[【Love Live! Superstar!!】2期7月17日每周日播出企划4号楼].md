@@ -473,3 +473,46 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 拉拉怎么可能让你说开直播就开直播，角色也不是cast所有的
 ©PL的含金量当然是一毛不拔
 
+
+*****
+
+####  稀勢のささ  
+##### 12052#       发表于 2023-2-10 21:43
+
+ 本帖最后由 稀勢のささ 于 2023-2-10 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59695045&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-10 21:23</a>
+
+说不定企划给写大纲台本呢
+
+拉拉怎么可能让你说开直播就开直播，角色也不是cast所有的
+
+©PL的含金 ...</blockquote>
+不好说，管人皮套也都是公司所有的啊，而且隔壁偶像大师是搞那种接力直播，拉拉未必干不出来
+
+不过无论是搞小剧场还是啥，至少她这3d质量只能说不输19、20年的皮套人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没啥多不一样的，无非是一个吃企划老本一个吃箱推
+
+*****
+
+####  nufawneafg  
+##### 12053#       发表于 2023-2-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59695357&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-10 21:43</a>
+不好说，管人皮套也都是公司所有的啊，而且隔壁偶像大师是搞那种接力直播，拉拉未必干不出来
+
+不过无论是搞 ...</blockquote>
+那就希望莲团运营对版权(着作权)的理解跑步进入二十一世纪第三个十年吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 12054#       发表于 2023-2-10 21:46
+
+一个月四周，五团并行以后活动谁的日期撞车谁尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 12055#       发表于 2023-2-10 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草这皮套人水平，还是别这么大开大合地动吧，感觉不如隔壁爱马仕前几天直播整活的皮套质量好
+

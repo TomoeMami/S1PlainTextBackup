@@ -8092,3 +8092,30 @@ PV中出现的词汇：
 
 2023-2-10 21:39 上传
 
+
+*****
+
+####  klzxs  
+##### 5266#       发表于 2023-2-10 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">嘛，和一个系统较真也没意义，
+
+又不是人类复活了开个投票把你踢出去，
+
+免疫系统判断不出是毒还是药也不是什么不可思议的事，何况身上确实有危险的东西
+
+当然现实说来很明显就是型月想多续一下
+
+本以为要决战了又插入了看起来不算小的篇章
+
+去年还在想2022怎么也打可以完2.7进决战了
+
+现在2023才2月已经不会觉得今年能到南极了
+
+*****
+
+####  qixinno2  
+##### 5267#       发表于 2023-2-10 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口今年周年是所长
+
