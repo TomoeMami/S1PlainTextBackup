@@ -8027,3 +8027,27 @@ PV中出现的词汇：
 
 给人类史送温暖来了
 
+
+*****
+
+####  angelooo  
+##### 5259#       发表于 2023-2-10 21:13
+
+真不好意思，我EX阶最多的就是外星人2333
+
+*****
+
+####  fantuanxiaoyi  
+##### 5260#       发表于 2023-2-10 21:14
+
+从理由到台本都是闪轨级别。
+
+*****
+
+####  gpx234mqx  
+##### 5261#       发表于 2023-2-10 21:18
+
+新章就是要出冠位裁定，冠位复仇和冠位小丑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+冠位外国人有了，那么冠位月癌和冠位伪装啥时候出呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

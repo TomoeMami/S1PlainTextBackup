@@ -2996,3 +2996,15 @@ nga没巨魔那味儿啊（</blockquote>
 
 也没啥特别好巨魔好黑泥的啊。。。嗯黑泥只能出门左转紫吧了
 
+
+*****
+
+####  dozen  
+##### 7030#       发表于 2023-2-10 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694635&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-2-10 20:54</a>
+也不会有的 推灯的很多都退坑了..
+
+隔壁5人原理 最重要还是鲤鱼一直在呢..话题 和 热度都有 ...</blockquote>
+那看来给后辈爆金币义不容辞了
+

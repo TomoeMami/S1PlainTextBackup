@@ -438,3 +438,20 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">舞时已到
 
+
+*****
+
+####  喜闻乐见  
+##### 3046#         楼主| 发表于 2023-2-10 21:15
+
+厂长为了念一次名言 用心良苦
+
+*****
+
+####  黄金鸡屁屁  
+##### 3047#       发表于 2023-2-10 21:17
+
+金句: 不是我们的罗兹
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
