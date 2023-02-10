@@ -893,3 +893,14 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  asd6381238  
+##### 86#       发表于 2023-2-10 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59688502&amp;ptid=2118761" target="_blank">电磁炮233 发表于 2023-2-10 13:09</a>
+
+依我看是纯纯的脑残榜单，FF679CT从任何方面都有资格排进前五十，但投票的人可能为了突出自己的独特品味 ...</blockquote>
+只能说不愧是老害论坛
+
