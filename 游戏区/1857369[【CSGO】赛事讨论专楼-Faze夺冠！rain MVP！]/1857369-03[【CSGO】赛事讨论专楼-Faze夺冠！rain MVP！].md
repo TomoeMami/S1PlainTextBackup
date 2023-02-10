@@ -198,3 +198,23 @@ g2现在状态越好，越越怕他们来点g2式震撼<img src="https://static.
 g2现在状态越好，越越怕他们来点g2式震撼。去年esl也是小组赛全胜，最后来个淘汰赛光速出局，接下来 ...</blockquote>
 看其他几个队现在这个样g2得很努力地犯病才有可能输其他几个队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 3155#       发表于 2023-2-11 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697493&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-2-11 00:29</a>
+看其他几个队现在这个样g2得很努力地犯病才有可能输其他几个队</blockquote>
+万一最后是打小蜜蜂来个抽象对创就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咸鱼先生  
+##### 3156#       发表于 2023-2-11 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697635&amp;ptid=1857369" target="_blank">heseran 发表于 2023-2-11 00:43</a>
+
+万一最后是打小蜜蜂来个抽象对创就有意思了</blockquote>
+很合理<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

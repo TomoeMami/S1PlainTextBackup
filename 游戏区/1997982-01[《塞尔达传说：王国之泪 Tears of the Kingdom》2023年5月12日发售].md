@@ -2941,3 +2941,24 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 还是决定退了限定入数字，什么特典都赶不上第一时间玩到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 906#       发表于 2023-2-11 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697547&amp;ptid=1997982" target="_blank">moekyo 发表于 2023-2-11 00:33</a>
+
+还是决定退了限定入数字，&amp;#x4 ...</blockquote>
+那自然是限定数字双入，什么都不耽误<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liekong  
+##### 907#       发表于 2023-2-11 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697547&amp;ptid=1997982" target="_blank">moekyo 发表于 2023-2-11 00:33</a>
+
+还是决定退了限定入数字，&amp;#x4 ...</blockquote>
+限定不是有不带本体的么，买那个再另外买个数字不就行了
+
