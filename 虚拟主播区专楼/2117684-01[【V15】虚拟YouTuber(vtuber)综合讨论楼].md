@@ -1433,3 +1433,19 @@ zaion脾气这么大啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 星川有新专和个人live，真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 73#       发表于 2023-2-10 09:32
+
+<blockquote>rzrbtk 发表于 2023-2-9 23:24
+男人我不懂啊，我喜欢佐伯（男）宇佐美（男）还是因为两位有京阿尼轻百味...
+
+据串友的排名，九埜低音重度 ...</blockquote>
+哇谢谢，主要是人太多一个个听不过来，我就先从这几位补起吧
+
+说起来其实我对(打枪)游戏势不感兴趣，也说不上喜欢哪里，但就是能听rou一直说下去……
+
+大概是推黛灰残留的盐系倾向+音色确实不错吧
+

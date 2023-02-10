@@ -1345,3 +1345,14 @@ galgun啊，本家联动了属于是
 我以为可 ...</blockquote>
 那是奖励一条命
 
+
+*****
+
+####  睡不醒的虾米  
+##### 128#       发表于 2023-2-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683828&amp;ptid=2085482" target="_blank">水边井 发表于 2023-2-10 00:38</a>
+
+galgun啊，本家联动了属于是</blockquote>
+原来真是那个轨道射击游戏！
+
