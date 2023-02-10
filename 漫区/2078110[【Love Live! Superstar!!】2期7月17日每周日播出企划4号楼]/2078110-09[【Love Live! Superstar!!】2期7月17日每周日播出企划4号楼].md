@@ -371,3 +371,11 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 怎么没人开新企划楼
 
+
+*****
+
+####  lj205  
+##### 12040#       发表于 2023-2-10 20:22
+
+对比星出道那会，星实惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

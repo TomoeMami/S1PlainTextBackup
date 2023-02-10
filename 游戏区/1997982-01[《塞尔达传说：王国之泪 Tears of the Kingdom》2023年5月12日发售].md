@@ -2762,3 +2762,20 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 可能那套服装也是要根据某个剧情获得的吧，一开始是裸上身？</blockquote>
 要说裸上身野炊一开始倒也是裸的。。。分析不出什么来。。。主要还是喜欢绿衣林林，想看绿衣林林，感觉英杰服没有新衣服好看<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 894#       发表于 2023-2-10 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693371&amp;ptid=1997982" target="_blank">YIIIIIno 发表于 2023-2-10 19:18</a>
+要说裸上身野炊一开始倒也是裸的。。。分析不出什么来。。。主要还是喜欢绿衣林林，想看绿衣林林，感觉英 ...</blockquote>
+仔细看了看裸漂在天上好潇洒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hu794  
+##### 895#       发表于 2023-2-10 20:16
+
+应该开始正式宣发了吧，下周会有新东西吗？
+

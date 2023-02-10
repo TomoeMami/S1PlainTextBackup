@@ -1613,3 +1613,19 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 感觉燃的部分确实燃，旋律也有不错的部分，但是跟他这两年给Groove Coaster那边写的魔王曲一个问题，节奏太快转调太多，拆出来的还只有1LOOP，听着真是又乱又累。
 感觉MASAKI确实挺有才的，也确实是被音游害惨了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 271#       发表于 2023-2-10 20:11
+
+双胞胎配合也一般
+
+<img src="https://img.saraba1st.com/forum/202302/10/201036xzjv5774j5nfbv5z.png" referrerpolicy="no-referrer">
+
+<strong>Twins.png</strong> (175.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 20:10 上传
+

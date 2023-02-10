@@ -7946,3 +7946,28 @@ PV中出现的词汇：
 
 被研体E是所长就说的通了，她被雷夫扔迦勒底亚斯后，就相当于地球人到了火星就成了外星人，但地球人再调查她遗体就会得出只是个地球人类的结论
 
+
+*****
+
+####  exiaexa  
+##### 5253#       发表于 2023-2-10 20:13
+
+好消息，氪金有效期变长了
+坏消息，氪金总量又变大了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5254#       发表于 2023-2-10 20:16
+
+ 本帖最后由 exiaexa 于 2023-2-10 20:18 编辑 
+
+不过玩梗成真还挺乐的
+"老乡开门啊，我们是来拯救人理的"
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过怎么想都肯定有一章降临者，现在这堆外星人打穿人理真是一点问题都没有
+老盖还机智的留了个余地
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
