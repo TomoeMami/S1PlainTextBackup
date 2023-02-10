@@ -575,3 +575,32 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 嘛，流水前波让后波
 追着屁股要业绩也要不到消费者头上，有啥担心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 12063#       发表于 2023-2-10 23:02
+
+星就一个运营问题，解决就万事大吉
+
+*****
+
+####  ViyViy  
+##### 12064#       发表于 2023-2-10 23:06
+
+不说别的，我不信贵IP现在有足够人手供曲，曲比别人次了这可比那些七七八八资源的多和少更敏感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 12065#       发表于 2023-2-10 23:07
+
+音乐P的问题赶紧解决掉罢，**
+
+*****
+
+####  cxj649  
+##### 12066#       发表于 2023-2-10 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为最早看管人的表示莲团在管人圈现在也就晚了5年的肥秋的227那种吧，无论进场还是3D质量都5年之差
+
