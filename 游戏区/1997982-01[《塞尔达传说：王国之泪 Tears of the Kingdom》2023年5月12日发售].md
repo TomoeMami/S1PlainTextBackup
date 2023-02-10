@@ -2828,3 +2828,13 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 
 本地大电商跟死了一样一动不动，真的是急死人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hosilly  
+##### 900#       发表于 2023-2-10 22:24
+
+hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面会不会被砍单啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

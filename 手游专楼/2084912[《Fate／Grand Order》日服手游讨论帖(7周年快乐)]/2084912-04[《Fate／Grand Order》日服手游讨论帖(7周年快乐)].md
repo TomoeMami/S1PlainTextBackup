@@ -8127,3 +8127,20 @@ PV中出现的词汇：
 
 往好点想 说不定完结之时真能无缝衔接到月姬R里线<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 为防你们等得心急 先来几个间章调剂一下
 
+
+*****
+
+####  里村紅葉  
+##### 5269#       发表于 2023-2-10 22:21
+
+现在给第二部续命说明真的没有第三部了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 5270#       发表于 2023-2-10 22:22
+
+<blockquote>v22325 发表于 2023-2-10 21:40
+</blockquote>
+所以很奇怪，现在的白纸化地球真的是地球吗，真正的地球是不应该存在51区的
+
