@@ -5741,3 +5741,11 @@ ED最后有变化。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他干猎兵都愧疚，就兰迪那种呗，有啥黑深残的
 
+
+*****
+
+####  Yeaha123  
+##### 647#       发表于 2023-2-11 00:13
+
+这集作画好像没那么崩
+
