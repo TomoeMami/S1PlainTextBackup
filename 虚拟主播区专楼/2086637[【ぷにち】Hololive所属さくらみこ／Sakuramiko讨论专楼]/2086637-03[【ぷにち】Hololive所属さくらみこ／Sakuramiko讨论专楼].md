@@ -13936,3 +13936,35 @@ https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2q
 
 草,用个手柄叫这么大声,尬死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 4282#       发表于 2023-2-10 23:22
+
+七字母合体!
+
+*****
+
+####  rs5621  
+##### 4283#       发表于 2023-2-10 23:26
+
+<img src="https://img.saraba1st.com/forum/202302/10/232606uee1ycdap1cpzd17.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 23:26 上传
+
+菜到气绝
+
+耻辱下播
+
+*****
+
+####  holoan  
+##### 4284#         楼主| 发表于 2023-2-10 23:27
+
+玩了这么多年游戏，还是PS手柄玩起来最舒服，鼠标键盘都不行
+
