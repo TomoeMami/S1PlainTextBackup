@@ -188,3 +188,13 @@ vp新人够狠
 
 g2现在状态越好，越越怕他们来点g2式震撼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过那次小组赛还挺焦灼的，这次是一路碾压，而且现在g2的图池也有点隐患，除了nuke和小镇，其他图感觉没那么强势，特别是g2大厦，一等一的抽象
 
+
+*****
+
+####  朔方原的星  
+##### 3154#         楼主| 发表于 2023-2-11 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697230&amp;ptid=1857369" target="_blank">咸鱼先生 发表于 2023-2-11 00:07</a>
+g2现在状态越好，越越怕他们来点g2式震撼。去年esl也是小组赛全胜，最后来个淘汰赛光速出局，接下来 ...</blockquote>
+看其他几个队现在这个样g2得很努力地犯病才有可能输其他几个队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -622,3 +622,11 @@ LL这企划真的加速药丸。
 
 星1期几个人个活开展的还行。比上不足比下有余。
 
+
+*****
+
+####  starring  
+##### 12069#       发表于 2023-2-11 00:29
+
+只要卖身契还在，一期生谁也别想跳出LL这个框框参加别的企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于刷番就得看事务所给不给资源去推
+
