@@ -144,3 +144,11 @@ kuma衣服上的字翻转过来
 
 这毛到时候会不会掉或者清理困难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
 
+
+*****
+
+####  ViyViy  
+##### 12014#       发表于 2023-2-10 17:32
+
+复习了下宣传图发现可千恋是丝带，不知道也是用真丝带做定型，还是透明件代替不觉得会用真的搞定型
+
