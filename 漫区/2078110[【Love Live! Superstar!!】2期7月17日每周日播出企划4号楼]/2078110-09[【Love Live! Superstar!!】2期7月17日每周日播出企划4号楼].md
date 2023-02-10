@@ -254,3 +254,41 @@ kuma衣服上的字翻转过来
 除了动画，基本都有……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也正常，就往小的说拉拉ip，往大的说万南ip部<strong>急需</strong>新增长点，来证明自己ip，自己事业部的价值
 
+
+*****
+
+####  starring  
+##### 12025#       发表于 2023-2-10 19:13
+
+复刻虹的路动画也会有，做完夜羽和星三估计就把行程提上，然后在此前先开几场live<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 12026#       发表于 2023-2-10 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 12027#       发表于 2023-2-10 19:15
+
+经过星团后，不会再入这sb企划的任何坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 12028#       发表于 2023-2-10 19:19
+
+ 本帖最后由 Enakina 于 2023-2-10 19:20 编辑 
+
+。
+
+*****
+
+####  Enakina  
+##### 12029#       发表于 2023-2-10 19:19
+
+的确一口气拉满了，出道，分小组，cd，live，周边，专属app……没准混的好就能从裂啦接过企划主力军的大旗了，还有这等好事
+

@@ -2751,3 +2751,14 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 
 为什么美版的限定和普通版都额外贵了一大截？
 
+
+*****
+
+####  YIIIIIno  
+##### 893#       发表于 2023-2-10 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692308&amp;ptid=1997982" target="_blank">宛若青空 发表于 2023-2-10 17:43</a>
+
+可能那套服装也是要根据某个剧情获得的吧，一开始是裸上身？</blockquote>
+要说裸上身野炊一开始倒也是裸的。。。分析不出什么来。。。主要还是喜欢绿衣林林，想看绿衣林林，感觉英杰服没有新衣服好看<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
