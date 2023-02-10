@@ -1175,3 +1175,15 @@ fe编曲肯定例行社内搞的啊，按照以前主作曲管vocal曲的尿性�
 
 一开始还想说他只要是想着给v写的曲子也不会差太多，但是最近看egoist歌手单飞出来让粉丝作曲，直接搞了新专出来。明知道ryo没产能还绑死我除了骂索尼罪恶滔天也没什么可以说了
 
+
+*****
+
+####  Schwarzess  
+##### 133#       发表于 2023-2-10 08:47
+
+其实我觉得gc的op2ed2也不咋样。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+my dearest和departures确实是神仙。
+到pp的时候无名怪物也很好，all alone with you和fallen不是很喜欢，但也不是不能听。
+
+水星这ed只有副歌前面一段小短句主歌到副歌第一句是能听的，其他都是答辩。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
