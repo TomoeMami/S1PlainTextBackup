@@ -186,3 +186,20 @@ kuma衣服上的字翻转过来
 菅叶和（俳协）
 月音こな( Apollo bay ) </blockquote>果然有个阿波罗的人
 
+
+*****
+
+####  nufawneafg  
+##### 12018#       发表于 2023-2-10 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59692879&amp;ptid=2078110" target="_blank">Enakina 发表于 2023-2-10 18:36</a>
+果然有个阿波罗的人</blockquote>
+对于拉拉来说，俳协青二还挺意外的...
+
+*****
+
+####  cybernetics31  
+##### 12019#       发表于 2023-2-10 18:50
+
+隔壁新团起步有点强。。。。啊不 是很强。。。。。<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
