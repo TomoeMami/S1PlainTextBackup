@@ -2813,3 +2813,18 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 早上那个10分钟内从129.99涨到了159.99，刚才好不容易刷到一个正价129.99 ...</blockquote>
 真良心啊，日亚从一开始就是翻倍
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 899#       发表于 2023-2-10 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59695588&amp;ptid=1997982" target="_blank">nma 发表于 2023-2-10 21:58</a>
+
+真良心啊，日亚从一开始就是翻倍</blockquote>
+并不良心，现在开始砍单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我暂时还没收到通知不过还是感觉很不保险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本地大电商跟死了一样一动不动，真的是急死人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
