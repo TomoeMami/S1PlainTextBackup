@@ -2342,3 +2342,15 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 嗯看错了，应该是官方备货
 
+
+*****
+
+####  aqualyre  
+##### 854#       发表于 2023-2-10 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59688200&amp;ptid=1997982" target="_blank">yuwe0714 发表于 2023-2-10 12:44</a>
+官网没货了，重新上架的时候坛友提一嘴啊，手慢了</blockquote>
+日本hmv有货，不用等官网
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
