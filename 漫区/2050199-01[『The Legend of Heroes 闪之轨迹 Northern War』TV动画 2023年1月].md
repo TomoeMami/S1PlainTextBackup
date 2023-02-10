@@ -5760,3 +5760,13 @@ ED最后有变化。
 稻草人+黑白兔抓4个猎兵都能放跑3个这比上集里爷还划水稻草人你那直觉不是对标里爷观之眼吗，就硬玩 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稻草人哪次不是划水的啊
 
+
+*****
+
+####  6030sylar  
+##### 649#       发表于 2023-2-11 07:35
+
+雷克特学长你**女生洗澡好变态我要告诉露西学姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
