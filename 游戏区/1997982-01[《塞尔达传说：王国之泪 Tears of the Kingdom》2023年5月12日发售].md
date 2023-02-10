@@ -2962,3 +2962,24 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 还是决定退了限定入数字，&amp;#x4 ...</blockquote>
 限定不是有不带本体的么，买那个再另外买个数字不就行了
 
+
+*****
+
+####  moekyo  
+##### 908#       发表于 2023-2-11 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697686&amp;ptid=1997982" target="_blank">liekong 发表于 2023-2-11 00:48</a>
+
+限定不是有不带本体的么，买那个再另外买个数字不就行了</blockquote>
+那个只有官网才有，自己折腾的话，支付和转运什么的太麻烦了，如果玛莎能支持这个我就直接入了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moekyo  
+##### 909#       发表于 2023-2-11 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697667&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-11 00:46</a>
+
+那自然是限定数字双入，什么都不耽误</blockquote>
+太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
