@@ -604,3 +604,11 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为最早看管人的表示莲团在管人圈现在也就晚了5年的肥秋的227那种吧，无论进场还是3D质量都5年之差
 
+
+*****
+
+####  Enakina  
+##### 12067#       发表于 2023-2-10 23:50
+
+人设立绘挺好的，歌也不错。但这个皮是真的拉，和网恋奔现似的，就不能好好做做吗
+

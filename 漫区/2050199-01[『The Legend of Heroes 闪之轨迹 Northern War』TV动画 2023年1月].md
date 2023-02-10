@@ -5713,3 +5713,23 @@ ED最后有变化。
 
 这三演得比上一话的黎同学还离谱啊，真的想抓人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 644#       发表于 2023-2-10 23:46
+
+还是便宜动画的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这话有印象的就是红毛队长的爆发那里
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 645#       发表于 2023-2-10 23:47
+
+其实稻草人从一开始就想抓团长吧
+一贯作风就是马后炮，团长上当了
+想要造宣称，抓实行犯比孙女更有用吧
+但稻草人好会装把孙女当目标骗全场
+团长太菜了这都看不懂，加上团员吹两句就上头去送，之前铺垫的黑深残全部木大
+希 望 之 花
+
