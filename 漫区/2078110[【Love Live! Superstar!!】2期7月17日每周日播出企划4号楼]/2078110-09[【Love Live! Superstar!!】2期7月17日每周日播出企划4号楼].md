@@ -136,3 +136,11 @@ kuma衣服上的字翻转过来
 
 看起来可以，毛皮可能以后难打理，不过比景品厂那个一团没细节的塑胶好看了
 
+
+*****
+
+####  ViyViy  
+##### 12013#       发表于 2023-2-10 17:14
+
+这毛到时候会不会掉或者清理困难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+

@@ -1328,3 +1328,11 @@ odds&amp;ends后面我就当ryo死了
 wowaka我很吃他的电子舞曲风和调教，我觉得所有的翻唱版本都比不过v版<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 他们转商业算比较早的还不是找歌姬合作自己唱，当时觉得他们肯定扑街马上给我回来搞v，后来……算了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜留歌  
+##### 149#       发表于 2023-2-10 17:14
+
+请问要学啥知识才能和坛友一样锐评歌曲质量
+

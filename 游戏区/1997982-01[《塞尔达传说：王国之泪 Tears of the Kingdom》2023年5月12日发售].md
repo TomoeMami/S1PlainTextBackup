@@ -2655,3 +2655,14 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 含泪先订了，等有更好的价格再取消好了……
 
+
+*****
+
+####  YIIIIIno  
+##### 884#       发表于 2023-2-10 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690492&amp;ptid=1997982" target="_blank">whzfjk 发表于 2023-2-10 15:51</a>
+
+第二个也就是雅典风林克吧（</blockquote>
+说起来那套衣服在最新的eshop官图里消失了，林克变成了裸上身背着断掉的大师剑（官图啊，不穿上衣感觉好怪），而且作为前面PV1首发亮相的服装PV2却连影子都没有感觉就像被藏起来了一样，现在都只能看到英杰服林克了。就很神秘
+
