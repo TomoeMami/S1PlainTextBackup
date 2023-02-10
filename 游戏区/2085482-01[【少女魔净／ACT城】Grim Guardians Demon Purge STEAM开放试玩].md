@@ -1333,3 +1333,15 @@ galgun啊，本家联动了属于是
 
 我以为可以引蜘蛛上背过去，结果好像蜘蛛不会跑到版边<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 127#         楼主| 发表于 2023-2-10 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684762&amp;ptid=2085482" target="_blank">x_ray_zero 发表于 2023-2-10 07:21</a>
+蜘蛛地图最右边那个像个灵魂的道具单人模式能拿么？是啥效果？还是要双打或者等拿纸鹤才能拿到？
+
+我以为可 ...</blockquote>
+那是奖励一条命
+
