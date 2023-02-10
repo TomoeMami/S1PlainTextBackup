@@ -2374,3 +2374,27 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  downnote  
+##### 856#       发表于 2023-2-10 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59689294&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-10 14:10</a>
+
+塔是地下入口，绿色螺旋是天空区域入口；
+
+地下代表盖侬，天空代表佐纳乌；
+
+在天上重铸大师剑，在地面收集泪 ...</blockquote>
+懂了，应该入美版
+
+*****
+
+####  sword混沌  
+##### 857#       发表于 2023-2-10 14:19
+
+班卓熊的自定义载具还是太超前了<img src="https://p.sda1.dev/9/aa6d1e90cca76fa14a7b6a4e4e151584/CMP_20230210141850279.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -105,3 +105,11 @@ kuma衣服上的字翻转过来
 “能量之源”
 是鱼的衣服吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 12010#       发表于 2023-2-10 14:21
+
+大熊用的一次性杯，每来一次都要画一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
