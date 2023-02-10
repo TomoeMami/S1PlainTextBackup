@@ -2398,3 +2398,15 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yuwe0714  
+##### 858#       发表于 2023-2-10 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59688661&amp;ptid=1997982" target="_blank">aqualyre 发表于 2023-2-10 13:21</a>
+日本hmv有货，不用等官网
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+感谢，已经拿下
+

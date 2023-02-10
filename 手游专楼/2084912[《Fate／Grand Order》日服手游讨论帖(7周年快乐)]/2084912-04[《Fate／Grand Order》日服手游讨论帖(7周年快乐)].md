@@ -7546,3 +7546,32 @@ UFO🕷️各种好玩
 
 吃井无歪，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 5214#       发表于 2023-2-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59686323&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-10 10:17</a>
+
+话说异闻带都能有不计入总数的Beast，岂不是说Beast数量根本不可控</blockquote>
+但每条世界线也就只能有七个兽吧，比如芙芙舍弃力量了暗兔才有机会上位。恶性化身千千万，人类之恶不过十。
+
+蘑菇好像比较喜欢必要之恶这样的设定，估计只要善恶失衡，兽就会没完没了的出现...
+
+转一张图：
+
+<img src="https://img.saraba1st.com/forum/202302/10/142538h1g516656t2ij9e2.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (69.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-10 14:25 上传
+
+有个问题是兽阶对应冠位的特权是什么，理和nega权能究竟是成为后补的资格还是持证上岗的证明...
+
+翻了下资料，盖提亚的反召唤和提亚马特的反创世都有对从者特防的效果，估计应该是成为beast后得到的专有能力吧...
+
+（然后冠位能赋予破防特攻的效果。）
+
