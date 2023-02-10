@@ -2513,3 +2513,42 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 以前风之杖就有操作NPC跟林克一起解密的
 
+
+*****
+
+####  umbasa  
+##### 870#       发表于 2023-2-10 16:33
+
+要是大地汽笛那样能让公主回归就好了，虽然我自己也觉得王泪流程里公主不大可能陪林克冒险
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 871#       发表于 2023-2-10 16:37
+
+其实Fami那边也在猜playable Zelda的可能性，因为官图里她手中那个全新的希卡石板……游戏外我们自然知道是从Wiiu pad升级到Switch了，不过游戏里面肯定要有个交代。并且第一，这个石板在塞尔达手里（且在几个预告片里都没有出现过），第二，官推专门提醒大家去看，里面大概有文章吧。
+
+不过这肯定也不算决定性证据，游戏开发过程中改动画，或者为了保密起见藏东西都是再正常不过的事情。
+
+总之我会衷心期希望坛舅提的那个第二人是塞尔达的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 872#       发表于 2023-2-10 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59691199&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-10 16:37:31</a>
+其实Fami那边也在猜playable Zelda的可能性，因为官图里她手中那个全新的希卡石板……游戏外我们自然知道是 ...</blockquote>会不会林克在外面撒丫子乱跑，塞尔达在地下深处专门破解一些不注重战斗的大迷宫，利用新希卡之石的能力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeverCU  
+##### 873#       发表于 2023-2-10 16:42
+
+塞尔达可操作是有可能的，毕竟还要拍电影。抬一手女主角也有利，免得日后被打拳，做成彩蛋放二周目也挺好的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
