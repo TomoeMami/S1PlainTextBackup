@@ -2800,3 +2800,16 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 应该开始正式宣发了吧，下周会有新东西吗？</blockquote>
 开始了，但目前的宣发是带玩家“回顾旷野之息”，以及拉新人玩前作。真新消息还得等
 
+
+*****
+
+####  nma  
+##### 898#       发表于 2023-2-10 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59695099&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-10 21:26</a>
+
+这些电商网站穷疯了是不是
+
+早上那个10分钟内从129.99涨到了159.99，刚才好不容易刷到一个正价129.99 ...</blockquote>
+真良心啊，日亚从一开始就是翻倍
+

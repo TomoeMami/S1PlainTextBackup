@@ -516,3 +516,32 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草这皮套人水平，还是别这么大开大合地动吧，感觉不如隔壁爱马仕前几天直播整活的皮套质量好
 
+
+*****
+
+####  stygian  
+##### 12056#       发表于 2023-2-10 21:53
+
+今天这一套组合拳下来是把我原来以为他的玩法全给破掉了，只能说静观看运营怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 12057#       发表于 2023-2-10 21:55
+
+不关心V，只希望赶紧起飞让企划转移重心，对现在的星来说半停滞才是最好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12058#       发表于 2023-2-10 21:58
+
+可以学习先人经验，每周轮流重大发表升级3d模型到2.0 3.0爆米<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12059#       发表于 2023-2-10 22:00
+
+我得找找app画面，没看完整...因为总有说不出的相似感<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

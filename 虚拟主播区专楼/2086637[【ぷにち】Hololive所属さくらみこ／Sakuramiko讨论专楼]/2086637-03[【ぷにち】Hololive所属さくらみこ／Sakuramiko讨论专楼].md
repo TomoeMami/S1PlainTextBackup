@@ -13869,3 +13869,15 @@ https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2q
 
 非要往人堆里挤。。
 
+
+*****
+
+####  rs5621  
+##### 4276#       发表于 2023-2-10 21:58
+
+ 本帖最后由 rs5621 于 2023-2-10 21:59 编辑 
+
+不强化巧克角和斧头，血吸不上来，伤害也没有。还想搞七字母，能过有鬼了。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
