@@ -2893,3 +2893,14 @@ as活动up曲第一首就是chase！
 
 灯现在的状态，感觉是长时间站桩也有点麻烦了。少歌那边可能过段时间也会有消息吧。
 
+
+*****
+
+####  toshima  
+##### 7020#       发表于 2023-2-10 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59684671&amp;ptid=1959558" target="_blank">Mc凉月奏酱 发表于 2023-2-10 06:19</a>
+
+楠木灯少歌那边也没动静啊 还是说武士道真不打算再让凛明馆上台了</blockquote>
+少歌现在主推飞哥院了，其他几所学校偶尔出几个有空人就行，不上就不上呗，有个楠木灯还能保留点人气
+
