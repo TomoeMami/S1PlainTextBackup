@@ -379,3 +379,29 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 对比星出道那会，星实惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 12041#       发表于 2023-2-10 20:24
+
+ 本帖最后由 nufawneafg 于 2023-2-10 20:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星突出一个藏着掖着，把观众当敌人来保密
+
+*****
+
+####  稀勢のささ  
+##### 12042#       发表于 2023-2-10 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这3d皮套，果然就是个噱头吧
+
+*****
+
+####  优妮可  
+##### 12043#       发表于 2023-2-10 20:26
+
+<blockquote>lj205 发表于 2023-2-10 20:22
+对比星出道那会，星实惨</blockquote>
+别惨了，比惨怕是又得虹水缪开始比了。
+

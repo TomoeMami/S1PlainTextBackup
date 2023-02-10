@@ -2939,3 +2939,13 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨<img src="https://sta
 azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 都在隔壁NGA聊了吧
 
+
+*****
+
+####  dozen  
+##### 7025#       发表于 2023-2-10 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693828&amp;ptid=1959558" target="_blank">ALSE 发表于 2023-2-10 19:58</a>
+都在隔壁NGA聊了吧</blockquote>
+nga没巨魔那味儿啊（
+

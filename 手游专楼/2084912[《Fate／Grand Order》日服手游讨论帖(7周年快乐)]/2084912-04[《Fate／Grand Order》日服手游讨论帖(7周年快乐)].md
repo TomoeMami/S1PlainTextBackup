@@ -7971,3 +7971,27 @@ PV中出现的词汇：
 老盖还机智的留了个余地
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 5255#       发表于 2023-2-10 20:26
+
+<blockquote>J-002 发表于 2023-2-10 19:59
+迦勒底亚斯你就理解成哆啦A梦电影里大雄做那个地球模拟器就行，虽然是模拟地球但对地球来说也是另一个星 ...</blockquote>
+那所长这也太惨了，刚刚这又死了一次，这不是只能在四格里面开心了么……
+
+😂这大统领也不知道能不能实装…
+
+*****
+
+####  J-002  
+##### 5256#       发表于 2023-2-10 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694272&amp;ptid=2084912" target="_blank">v22325 发表于 2023-2-10 20:26</a>
+
+那所长这也太惨了，刚刚这又死了一次，这不是只能在四格里面开心了么……
+
+😂这大统领也不知道能不能实装 ...</blockquote>
+大统领肯定还有后续，她宝具都没解锁呢，而且2.7最后麻婆和医生的对话里不也提到她是从者了吗，入池不迟早的事
+
