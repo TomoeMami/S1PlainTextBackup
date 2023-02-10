@@ -287,3 +287,15 @@ ios下载的话是切换到繁中服找app store吗
 
 但是既然新入坑 没有理由不好好起步
 
+
+*****
+
+####  Skyline_R  
+##### 895#       发表于 2023-2-10 18:53
+
+ 本帖最后由 Skyline_R 于 2023-2-10 18:55 编辑 
+
+出台服之后挂代理终于不报P21/P403了，直连也能玩，就是慢了点
+
+打完Day1把送的石头和券全抽了，出了仨SS，看节奏榜都在T1，省了笔买初始号的钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

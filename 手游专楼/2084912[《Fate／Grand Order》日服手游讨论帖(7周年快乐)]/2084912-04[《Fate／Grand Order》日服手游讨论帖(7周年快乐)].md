@@ -7744,3 +7744,56 @@ MBTL联动也扯不到阿特拉斯院吧<img src="https://static.saraba1st.com/i
 
 如果和阿特拉斯院相关，估计能用上sion的战损立绘
 
+
+*****
+
+####  白金口袋  
+##### 5233#       发表于 2023-2-10 18:41
+
+Begin in 2023，别忘了2023年12月31日23点59分59秒也是2023年哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5234#       发表于 2023-2-10 18:52
+
+ 本帖最后由 Jamaisvu 于 2023-2-10 19:01 编辑 
+<blockquote>alucardcz 发表于 2023-2-10 18:37
+我意思是 现在这个坑挖的很随意 里面内容可以随便填  直接赛全新的内容拖时间都不是问题
+
+ ...</blockquote>
+对的，随随便便就加了特殊职介不能现世的设定，迦勒底是真的无奈。不召唤特殊职介就不能阻止人理烧却，召唤了就会被泛人类史拒之门外。合着第一部忙活半天是给当活傻子累了，我现在深刻理解了异闻带原住民的心情...
+
+第三部开头可以接着说，“虽然迦勒底回归了泛人类史，但也导致月癌、降临、伪装几个特殊职介跟了过来，触发了新的特异点”，然后再引入点别的世界观或神话体系，无止境地挖坑灌水<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+新时代没给FGO这个旧时代的残党留船票，结果它成了深潜者，越活越滋润<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5235#       发表于 2023-2-10 18:55
+
+PV中出现的词汇：
+
+【残渣】【エーテライト(以太光纤，Ether·Line)】【樱花】【神曲】【喇叭(らっぱ)】【终点】【岚之女】【R.A.N.I】【炎】【平面之月】【伯爵】【炎】【家族】【罪与罚】【东京】【圣杯战争】【AI】【贪欲】【憎恶和嫌恶】
+
+*****
+
+####  不垃圾屌丝  
+##### 5236#       发表于 2023-2-10 19:00
+
+你也知道EX职出太多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下FGO又可以续个两年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  不垃圾屌丝  
+##### 5237#       发表于 2023-2-10 19:00
+
+你也知道EX职出太多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下FGO又可以续个两年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -203,3 +203,24 @@ kuma衣服上的字翻转过来
 
 隔壁新团起步有点强。。。。啊不 是很强。。。。。<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nufawneafg  
+##### 12020#       发表于 2023-2-10 18:55
+
+ 本帖最后由 nufawneafg 于 2023-2-10 18:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693083&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2023-2-10 18:50</a>
+隔壁新团起步有点强。。。。啊不 是很强。。。。。</blockquote>
+哪一方面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我来晚了，点进去没几分钟就是事前登录奖励部分，颇有图还没穷匕就见了的节目效果
+
+*****
+
+####  nufawneafg  
+##### 12021#       发表于 2023-2-10 18:55
+
+ 本帖最后由 nufawneafg 于 2023-2-10 18:56 编辑 
+
+风怒
+
