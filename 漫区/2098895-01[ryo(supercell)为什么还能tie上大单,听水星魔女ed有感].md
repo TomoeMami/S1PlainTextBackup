@@ -1206,3 +1206,13 @@ my dearest和departures确实是神仙。
 
 说真的能记住的单曲就两首…物语ED和うたかた花火，13年的专辑《ZIGAEXPERIENTIA》之后出的东西就完蛋了，我一直认定ryo在13年出完专辑就燃尽了
 
+
+*****
+
+####  lance231726  
+##### 136#       发表于 2023-2-10 10:44
+
+ryo从16，17年开始就入魔了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
