@@ -2460,3 +2460,23 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 他一次提到“可以操作第二个人”一次提到“还有很多玩法没 ...</blockquote>
 超级值得信任，21年就说过火纹新作会有历代角色
 
+
+*****
+
+####  南宫月汐  
+##### 864#       发表于 2023-2-10 15:47
+
+某魔法师是吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  冷泉夜月  
+##### 865#       发表于 2023-2-10 15:50
+
+我知道那个潭舅，卖鸡小子雷德嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+按他的说法王泪可玩的东西可太多了，怀疑老任会一直藏到发售<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
