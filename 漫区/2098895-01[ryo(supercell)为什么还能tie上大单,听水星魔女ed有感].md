@@ -1304,3 +1304,16 @@ odds&amp;ends后面我就当ryo死了
 确实就上面说的一样，ryo自pp以后的写的歌我个人感觉里确实是远远不如wowaka乐队出道后的作品，听感突出一 ...</blockquote>
 当初我觉得wowaka和hachi唱歌都不好听，没想到hachi爆了，wowaka无了，世事无常<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wenze  
+##### 147#       发表于 2023-2-10 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690556&amp;ptid=2098895" target="_blank">Oshino 发表于 2023-2-10 15:55</a>
+当初我觉得wowaka和hachi唱歌都不好听，没想到hachi爆了，wowaka无了，世事无常 ...</blockquote>
+唉，个人是觉得wowaka的声音还是很符合他的歌的风格的。他死前一段时间还挺高产的，创作欲旺盛，最后一专也是在搞之前没搞过的曲类。当时我还以为越来越好了，结果人就没了，世事难料啊。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+八爷我反而是喜欢他v时期的风格，出道后就不怎么听了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

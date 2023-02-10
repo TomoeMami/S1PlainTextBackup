@@ -2495,3 +2495,13 @@ B站看到一个评论<img src="https://static.saraba1st.com/image/smiley/face20
 
 在hmv定了一个, 不知道会不会砍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 868#       发表于 2023-2-10 16:05
+
+我用萌购在HMV订，竟然还给我按会员价下单了，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

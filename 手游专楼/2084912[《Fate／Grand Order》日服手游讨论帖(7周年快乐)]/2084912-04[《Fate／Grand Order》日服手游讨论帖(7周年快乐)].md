@@ -7575,3 +7575,11 @@ UFO🕷️各种好玩
 
 （然后冠位能赋予破防特攻的效果。）
 
+
+*****
+
+####  DARKGRAY  
+##### 5215#       发表于 2023-2-10 16:05
+
+异闻带当然能有异闻带自己的BEAST嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
