@@ -5749,3 +5749,14 @@ ED最后有变化。
 
 这集作画好像没那么崩
 
+
+*****
+
+####  镜hinata  
+##### 648#       发表于 2023-2-11 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59696353&amp;ptid=2050199" target="_blank">戏言卿 发表于 2023-2-10 22:53</a>
+
+稻草人+黑白兔抓4个猎兵都能放跑3个这比上集里爷还划水稻草人你那直觉不是对标里爷观之眼吗，就硬玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稻草人哪次不是划水的啊
+
