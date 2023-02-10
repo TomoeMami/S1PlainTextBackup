@@ -356,3 +356,18 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 
 关注夕雾缀理喵，关注夕雾缀理谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 12038#       发表于 2023-2-10 20:03
+
+是后天就能看到mv了吗
+
+*****
+
+####  斯莱塔墨丘利  
+##### 12039#       发表于 2023-2-10 20:09
+
+怎么没人开新企划楼
+

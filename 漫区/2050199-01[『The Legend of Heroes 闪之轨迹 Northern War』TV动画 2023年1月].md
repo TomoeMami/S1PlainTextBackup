@@ -5616,3 +5616,23 @@ I am your father
 连黎老爷个人回都崩和各种偷懒</blockquote>
 我倒觉得恰恰相反，黎同学和黑兔出场的镜头是少数能看的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 634#         楼主| 发表于 2023-2-10 20:01
+
+TVアニメ『The Legend of Heroes 
+
+　闪の轨迹 Northern War』
+
+◤ 第二弾ビジュアル解禁 ◢
+
+ラヴィら北の猟兵と太刀を持つリィン
+
+后ろに耸え立つヴァリマールが
+
+ノーザンブリアと帝国の波乱の展开を予感させる💥
+<img src="https://p.sda1.dev/9/e214da40d5101e8fb13ffca034b799d2/20230210_200003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/3cea206b4218be5c350074681c6b34f8/bg-top.jpg" referrerpolicy="no-referrer">
+
