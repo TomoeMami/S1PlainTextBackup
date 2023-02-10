@@ -2311,3 +2311,14 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 
 日任商店早上想买无游戏限定版已经切了，后面还会补货吗
 
+
+*****
+
+####  NeverCU  
+##### 851#       发表于 2023-2-10 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59687368&amp;ptid=1997982" target="_blank">hu794 发表于 2023-02-10 11:18:32</a>
+如果法国首日预约80w确切的话，那肯定远远超过这两个游戏的。想想看喷3和朱紫在法国首日销量是多少？ ...</blockquote>是官方备货吧，朱紫也是80万。真是预约不可能这么巧合
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
