@@ -2904,3 +2904,11 @@ as活动up曲第一首就是chase！
 楠木灯少歌那边也没动静啊 还是说武士道真不打算再让凛明馆上台了</blockquote>
 少歌现在主推飞哥院了，其他几所学校偶尔出几个有空人就行，不上就不上呗，有个楠木灯还能保留点人气
 
+
+*****
+
+####  HACHIMAN  
+##### 7021#       发表于 2023-2-10 10:55
+
+由水獭祈接班必将狠狠煽sma一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

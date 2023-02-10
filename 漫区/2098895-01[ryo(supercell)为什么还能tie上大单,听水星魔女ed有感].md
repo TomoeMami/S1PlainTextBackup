@@ -1216,3 +1216,12 @@ ryo从16，17年开始就入魔了。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  你妈的为什么  
+##### 137#       发表于 2023-2-10 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人死了 他还活着（指wowaka）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人活着 他已经死了（指ryo）
+
