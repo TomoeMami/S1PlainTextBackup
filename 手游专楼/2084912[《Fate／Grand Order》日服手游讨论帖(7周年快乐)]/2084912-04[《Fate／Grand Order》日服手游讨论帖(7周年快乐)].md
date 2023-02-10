@@ -8051,3 +8051,20 @@ PV中出现的词汇：
 
 冠位外国人有了，那么冠位月癌和冠位伪装啥时候出呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5262#       发表于 2023-2-10 21:22
+
+革命尚未成功就开始卸磨杀驴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+清君侧不可免<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 5263#       发表于 2023-2-10 21:27
+
+接着作死吧，是真的嫌fgo现在死的太慢是吧，然后自己往里面加把柴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -4364,3 +4364,15 @@ goty
 
 三上这是把四叶草的老员工挖了多少过来，这玩意和红侠乔伊简直异曲同工
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 421#       发表于 2023-2-10 21:22
+
+steam又买了一份支持一下
+
+另外强烈推荐各位看看shenpai这个实况↓，这疯娘们（褒义）把我想说的全说了XD
+
+[https://www.youtube.com/watch?v=THldsFkKwNs](https://www.youtube.com/watch?v=THldsFkKwNs)
+

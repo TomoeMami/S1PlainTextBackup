@@ -453,3 +453,23 @@ yellow全曲很好听啊，等一个mv公开<img src="https://static.saraba1st.c
 莲这个除非它真的吸引到管人的粉入坑，不然还是得靠企划老粉来顶。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就我自己的印象来讲啊，想要吸新粉的话只能指望这几位直播的时候很会搞节目效果或者有一个新奇人设并且RP的非常好，要不然就只能当个3位数同接臭底边，或者天天嚼烂梗/鬼叫/屎屁尿/RSQ，剩下的全交给箱推（企划粉）
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12050#       发表于 2023-2-10 21:21
+
+不感兴趣捏，只看星团，等星团也没得看了就不看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12051#       发表于 2023-2-10 21:23
+
+ 本帖最后由 nufawneafg 于 2023-2-10 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694997&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-10 21:20</a>
+就我自己的印象来讲啊，想要吸新粉的话只能指望这几位直播的时候很会搞节目效果或者有一个新奇人 ...</blockquote>
+说不定企划给写大纲台本呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+拉拉怎么可能让你说开直播就开直播，角色也不是cast所有的
+©PL的含金量当然是一毛不拔
+

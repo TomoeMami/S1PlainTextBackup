@@ -2779,3 +2779,13 @@ hmv直接买就好了啊，为什么还要给萌购交手续费
 
 应该开始正式宣发了吧，下周会有新东西吗？
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 896#       发表于 2023-2-10 21:26
+
+这些电商网站穷疯了是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+早上那个10分钟内从129.99涨到了159.99，刚才好不容易刷到一个正价129.99的，我刚买完，马上就涨到了149.99<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
