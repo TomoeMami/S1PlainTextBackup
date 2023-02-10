@@ -2282,3 +2282,24 @@ botw当时官网截图甚至都是4k的…一看就是pc上截的
 
 法国首日能八十万？法国市场我记得都没英国大
 
+
+*****
+
+####  hu794  
+##### 848#       发表于 2023-2-10 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59685415&amp;ptid=1997982" target="_blank">yuwe0714 发表于 2023-2-10 09:11</a>
+
+法国首日能八十万？法国市场我记得都没英国大</blockquote>
+不是首日80w，是昨天开了预约，一天就达到了普通版80w预约，限定版1.2w预约的成绩
+
+*****
+
+####  hu794  
+##### 849#       发表于 2023-2-10 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59685279&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-2-10 08:57</a>
+
+参考喷3首周将近600万，朱紫首周1000万，王泪大概首周七八百万的水平</blockquote>
+如果法国首日预约80w确切的话，那肯定远远超过这两个游戏的。想想看喷3和朱紫在法国首日销量是多少？
+

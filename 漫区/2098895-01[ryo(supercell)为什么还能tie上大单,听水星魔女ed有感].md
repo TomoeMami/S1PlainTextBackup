@@ -1225,3 +1225,11 @@ ryo从16，17年开始就入魔了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人死了 他还活着（指wowaka）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人活着 他已经死了（指ryo）
 
+
+*****
+
+####  新人马甲2  
+##### 138#       发表于 2023-2-10 11:16
+
+这歌其实起头还行，但是越后面越不行，不知道是不是顾虑人类唱不了那么高，但既然这样不要起那么高的调不就好了吗……
+
