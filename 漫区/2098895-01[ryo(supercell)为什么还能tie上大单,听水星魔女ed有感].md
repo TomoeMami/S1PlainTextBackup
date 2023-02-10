@@ -1317,3 +1317,14 @@ odds&amp;ends后面我就当ryo死了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Oshino  
+##### 148#       发表于 2023-2-10 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690713&amp;ptid=2098895" target="_blank">wenze 发表于 2023-2-10 16:05</a>
+唉，个人是觉得wowaka的声音还是很符合他的歌的风格的。他死前一段时间还挺高产的，创作欲旺盛，最后一专 ...</blockquote>
+wowaka我很吃他的电子舞曲风和调教，我觉得所有的翻唱版本都比不过v版<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+他们转商业算比较早的还不是找歌姬合作自己唱，当时觉得他们肯定扑街马上给我回来搞v，后来……算了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
