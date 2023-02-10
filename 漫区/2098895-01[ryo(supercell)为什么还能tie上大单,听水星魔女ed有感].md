@@ -1294,3 +1294,13 @@ odds&amp;ends后面我就当ryo死了
 15年做完勇气默示录2后就感觉不行了，量这么低为什么质量还能滑坡这么厉害所以现在我觉得大家都diss ...</blockquote>
 泽野弘之连给《龙族》动画做的超敷衍流水线都是好听的，真正的商业作曲家还是不一样。
 
+
+*****
+
+####  Oshino  
+##### 146#       发表于 2023-2-10 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690099&amp;ptid=2098895" target="_blank">wenze 发表于 2023-2-10 15:17</a>
+确实就上面说的一样，ryo自pp以后的写的歌我个人感觉里确实是远远不如wowaka乐队出道后的作品，听感突出一 ...</blockquote>
+当初我觉得wowaka和hachi唱歌都不好听，没想到hachi爆了，wowaka无了，世事无常<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

@@ -912,3 +912,16 @@ MH算进JRPG也就算了，凭什么4g排的比世界和崛起好？旧时代MH�
 
 74人选了55个游戏，好奇投票机制是怎样的？
 
+
+*****
+
+####  zris  
+##### 88#         楼主| 发表于 2023-2-10 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59690067&amp;ptid=2118761" target="_blank">莱欧纳多 发表于 2023-2-10 15:15</a>
+
+74人选了55个游戏，好奇投票机制是怎样的？</blockquote>
+是只节选了55，为啥55，我也不知道
+
+完整名单其实是300多
+
