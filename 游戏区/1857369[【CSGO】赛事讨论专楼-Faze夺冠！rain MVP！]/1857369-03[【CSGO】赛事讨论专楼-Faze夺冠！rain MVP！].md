@@ -166,3 +166,25 @@ vp新人够狠
 
 抽象
 
+
+*****
+
+####  keleemo123  
+##### 3151#       发表于 2023-2-10 23:53
+
+这种不拿图权是什么战术 是场外被压力了吗？？
+
+*****
+
+####  roydimus  
+##### 3152#       发表于 2023-2-11 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">旗鼓相当的对手
+
+*****
+
+####  咸鱼先生  
+##### 3153#       发表于 2023-2-11 00:07
+
+g2现在状态越好，越越怕他们来点g2式震撼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过那次小组赛还挺焦灼的，这次是一路碾压，而且现在g2的图池也有点隐患，除了nuke和小镇，其他图感觉没那么强势，特别是g2大厦，一等一的抽象
+

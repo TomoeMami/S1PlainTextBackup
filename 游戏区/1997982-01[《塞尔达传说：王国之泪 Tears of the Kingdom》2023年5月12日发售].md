@@ -2923,3 +2923,13 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 看起来有可能会，当然也有可能是一般的免责声明
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 904#       发表于 2023-2-11 00:09
+
+好了，我安稳了，Gamestop不装死了，我可以把其他什么丹麦瑞典店铺的预定取消，然后安心过周末了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然上次买织梦岛林克amiibo的经历极其糟糕，但希望这些年过去了，gamestop能有改进吧orz
+
