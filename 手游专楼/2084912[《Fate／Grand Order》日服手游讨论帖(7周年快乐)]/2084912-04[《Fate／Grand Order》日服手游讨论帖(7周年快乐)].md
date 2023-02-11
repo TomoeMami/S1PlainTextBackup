@@ -8482,3 +8482,18 @@ PV中出现的词汇：
 
 2023-2-11 19:15 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 5299#       发表于 2023-2-11 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701557&amp;ptid=2084912" target="_blank">klzxs 发表于 2023-2-11 13:54</a>
+
+现在外墙排个毒很多玩家都想手撕人理了
+
+如果结局真是把迦勒底切割了得要给个什么处理才能说服玩家呢 ...</blockquote>
+直接让整个迦勒底合并进英灵座，超脱时空，遗世独立，不再受泛人类史指指点点。
+
+没事就在英灵座开冠位orgy，有事了就去特异点过个万圣节圣诞节，美滋滋。
+
