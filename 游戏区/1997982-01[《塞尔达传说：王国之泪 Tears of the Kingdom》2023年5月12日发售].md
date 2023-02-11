@@ -3060,3 +3060,26 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  寒川LanterYeah  
+##### 917#       发表于 2023-2-11 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59698937&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-11 08:40</a>
+
+我这边现在最绝望的就是，连最大的电子消费品商家的员工都不知道什么时候能开预定……今天一堆人快把亚马 ...</blockquote>
+我一想到我5月大概率回国，我寻思要不直接看看国内能否订一份吧，直接回国的时候玩了，不陪这钓鱼老外玩了。
+
+*****
+
+####  Waldeinsamkeit  
+##### 918#       发表于 2023-2-11 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59698964&amp;ptid=1997982" target="_blank">寒川LanterYeah 发表于 2023-2-11 08:46</a>
+我一想到我5月大概率回国，我寻思要不直接看看国内能否订一份吧，直接回国的时候玩了，不陪这钓鱼老外玩了 ...</blockquote>
+啊那真的宁愿国内定吧……看楼上定日版还挺容易的感觉……
+欧洲这边属于只要你错过正价，就得花四五倍的价格去黄牛那里买，这边黄牛巨猖獗，还巨多人给捧场，真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
