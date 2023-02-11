@@ -5770,3 +5770,11 @@ ED最后有变化。
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  柳柳昭陵  
+##### 650#       发表于 2023-2-11 12:11
+
+这动画直接喊王尼玛就出来了，闪轨3那么长台词就是给人打断的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

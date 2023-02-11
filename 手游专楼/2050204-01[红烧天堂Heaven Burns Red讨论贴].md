@@ -353,3 +353,28 @@ ios下载的话是切换到繁中服找app store吗
 另外这玩意抽卡概率如何啊？</blockquote>
 日服开服就杀初始，中文服不清楚
 
+
+*****
+
+####  alucardcz  
+##### 900#       发表于 2023-2-11 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693823&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-2-10 19:57</a>
+
+我是开服玩的
+
+当初的主线剧情难度堪称逆天
+
+我是脸非常黑那种 初始刷了两个ss（不是当时的人权原皮星 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你打通的是削弱前还是后  
+
+
+*****
+
+####  leitingkai  
+##### 901#       发表于 2023-2-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59700697&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-11 12:19</a>
+你打通的是削弱前还是后</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的明白是削弱前了啊
+
