@@ -765,3 +765,14 @@ back number又是你<img src="https://static.saraba1st.com/image/smiley/face2017
 
 nako当初为了试镜把头发内侧染白
 
+
+*****
+
+####  稀勢のささ  
+##### 12082#       发表于 2023-2-11 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59705854&amp;ptid=2078110" target="_blank">P02 发表于 2023-2-11 20:38</a>
+
+对了，现在三期生海选结束了没</blockquote>
+3月底
+
