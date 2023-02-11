@@ -8530,3 +8530,27 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 话说如果蘑菇那时候就做好了给第二部续命的打算，可真是蔫坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  miro112233  
+##### 5301#       发表于 2023-2-11 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59705612&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-11 20:23</a>
+
+随便塞翻了一下：
+
+想要理解的心意：不死心，不放弃。</blockquote>
+菌类从5周年的访谈开始就不断口胡后面的内容还有很多（到2.5为止只写了三分之一之类的），填坑填不完，所以要开.5章节来填坑
+
+之前有次访谈别人问有没有7.5，他还说要看到时候写到哪儿了来决定有没有，现在看来确实没有了，而是7.1，7.2，7.3，……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 5302#       发表于 2023-2-11 20:35
+
+ 本帖最后由 miro112233 于 2023-2-11 20:38 编辑 
+
+顺便日服2.6之前有次更新莫名其妙把1.6里医生说茄子是2000年出生的改成了1999年出生的，估计那时候就是在准备奏章的剧情，所以去改了前面的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3069,3 +3069,11 @@ nga没巨魔那味儿啊（</blockquote>
 
 昨天莲团 6个人中有2个人是AMUSE和Apollo的..Amuse和Apollo在拉拉企划里主要角色高达13人 Apollo里更是占到全所女声优半数以上...感觉Amuse直接塞人也不是不可能 
 
+
+*****
+
+####  仟音一心  
+##### 7037#       发表于 2023-2-11 20:39
+
+R3BIRTH超次元音乐祭<img src="https://p.sda1.dev/9/3d1df6beac88083ec79d33ac460fe1ae/CMP_20230211203829896.jpg" referrerpolicy="no-referrer">
+
