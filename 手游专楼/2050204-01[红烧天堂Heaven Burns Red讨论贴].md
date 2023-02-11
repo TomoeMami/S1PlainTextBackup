@@ -378,3 +378,20 @@ ios下载的话是切换到繁中服找app store吗
 你打通的是削弱前还是后</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的明白是削弱前了啊
 
+
+*****
+
+####  alucardcz  
+##### 902#       发表于 2023-2-11 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59700706&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-2-11 12:21</a>
+
+我说的明白是削弱前了啊
+
+剧情更新好没几天我就打过了
+
+我还记得生放说要削弱的时候举例说削弱后的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦
+
+不过我还是推荐刷初始  可以有个好底子没必要浪 除非不打算长玩
+
