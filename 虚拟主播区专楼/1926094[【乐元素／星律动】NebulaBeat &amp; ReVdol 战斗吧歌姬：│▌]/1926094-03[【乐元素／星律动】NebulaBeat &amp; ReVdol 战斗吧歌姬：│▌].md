@@ -545,3 +545,13 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  一叶丈育  
+##### 3058#       发表于 2023-2-11 21:07
+
+我超！爷青回了，老店重开
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
