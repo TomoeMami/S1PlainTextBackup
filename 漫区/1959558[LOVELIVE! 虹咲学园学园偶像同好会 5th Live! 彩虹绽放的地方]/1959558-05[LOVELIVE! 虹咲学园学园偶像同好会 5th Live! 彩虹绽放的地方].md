@@ -3093,3 +3093,13 @@ R3BIRTH超次元音乐祭<img src="https://p.sda1.dev/9/3d1df6beac88083ec79d33ac
 
 <img src="https://p.sda1.dev/9/b59a541358a8aa9d8aa6ed57c34817e8/CMP_20230211233325524.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yicihanshu  
+##### 7040#       发表于 2023-2-12 00:15
+
+萌p还是应该先想想自己以前说了什么<img src="https://p.sda1.dev/9/25363acdc6eee8c15e727cc9a1be0369/CMP_20230212001536441.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
