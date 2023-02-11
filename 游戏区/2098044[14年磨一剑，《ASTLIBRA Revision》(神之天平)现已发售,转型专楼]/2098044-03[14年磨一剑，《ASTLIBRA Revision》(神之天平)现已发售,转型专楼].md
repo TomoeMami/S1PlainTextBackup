@@ -7162,3 +7162,11 @@ b站专栏搜神之天平</blockquote>
 收尾了下 全成就达成  我心中伊苏8后最好的JPRG ，甚至从玩法和剧情的完成度而言更好。只能说我有生之年唯 ...</blockquote>
 本作也是我唯一一款steam全成就的游戏，看你这么说打算有生之年去试试伊苏8了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3605#       发表于 2023-2-11 09:50
+
+伊苏8熟练度只给技能，没有神之天平给被动有意思。同样给被动的xanadu next一直没续作，在伊苏9还是只有代号的阶段，我看图很有xanadu next气质，还挺兴奋来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
