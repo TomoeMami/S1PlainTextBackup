@@ -8403,3 +8403,40 @@ PV中出现的词汇：
 
 人王怎么现在混到帮抑制力传话了，招安了这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5295#       发表于 2023-2-11 17:44
+
+ 本帖最后由 gpx234mqx 于 2023-2-11 17:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701557&amp;ptid=2084912" target="_blank">klzxs 发表于 2023-2-11 13:54</a>
+
+现在外墙排个毒很多玩家都想手撕人理了
+
+如果结局真是把迦勒底切割了得要给个什么处理才能说服玩家呢 ...</blockquote>
+黄袍加身需要理由吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+问就是兵强马壮者为天子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 5296#       发表于 2023-2-11 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59703556&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2023-2-11 17:38</a>
+
+看了翻译的剧情，感觉是抑制力故意找理由让加勒底加班帮他多解决几个麻烦的特异点（误）
+
+人王怎么现 ...</blockquote>
+我现在怀疑3章就是咕哒拆了迦勒底亚斯的泛人类史<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这什么世界毁灭者<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 5297#       发表于 2023-2-11 17:51
+
+这是要一年一章，再混三年啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
