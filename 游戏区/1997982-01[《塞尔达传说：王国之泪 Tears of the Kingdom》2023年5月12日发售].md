@@ -3035,3 +3035,14 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 虽 ...</blockquote>
 我之前xb3收藏版就这个状态，ns网站卡了半年买不到然后每天都等啊，好不容易等那天开了，结果下班回家的时候网页卡加载，好不容易加入到购物车开始刷卡的时候继续卡，等好不容易卡出来的时候直接提示卖完了无法付款。寄！加拿大这边 amazon, the best buy, 都是秒没。听说可以亲自去gamestop店面定游戏，特别绝望
 
+
+*****
+
+####  冷泉夜月  
+##### 915#       发表于 2023-2-11 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59698745&amp;ptid=1997982" target="_blank">巴尔干炮 发表于 2023-02-11 07:41:36</a>
+日版首日预约38P，首周百万看上去很轻松。</blockquote>好久没关注了预约数据了，38P跟喷喷3和朱紫同期比怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
