@@ -3218,3 +3218,11 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 这么猛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次王泪不会三天千万吧
 
+
+*****
+
+####  lanyu_u  
+##### 930#       发表于 2023-2-12 01:13
+
+毕竟单平台，受众面也不可能和宝可梦马车这种比，3天能有个500W以上就挺高了吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
