@@ -3056,3 +3056,16 @@ nga没巨魔那味儿啊（</blockquote>
 
 泥漏这都是没影儿的事，类似的消息随便编，毕竟大差不差的人选太多了，比如wug的老幺，高木美佑，现在主混d4dj，从十月起突然跑去和未梦一起主持那个81P事务所广播，这要以后去几个虹虹成员当嘉宾？
 
+
+*****
+
+####  梶原ひかり  
+##### 7036#       发表于 2023-2-11 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59700059&amp;ptid=1959558" target="_blank">DarthAka 发表于 2023-2-11 11:16</a>
+
+泥漏这都是没影儿的事，类似的消息随便编，毕竟大差不差的人选太多了，比如wug的老幺，高木美佑，现在主混d ...</blockquote>
+论编的感觉 AMUSE和Apollo直接选人进去可能性很大..
+
+昨天莲团 6个人中有2个人是AMUSE和Apollo的..Amuse和Apollo在拉拉企划里主要角色高达13人 Apollo里更是占到全所女声优半数以上...感觉Amuse直接塞人也不是不可能 
+
