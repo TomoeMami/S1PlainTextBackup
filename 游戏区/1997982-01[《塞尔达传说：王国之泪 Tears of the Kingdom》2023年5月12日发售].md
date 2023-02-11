@@ -3226,3 +3226,24 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 毕竟单平台，受众面也不可能和宝可梦马车这种比，3天能有个500W以上就挺高了吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sword混沌  
+##### 931#       发表于 2023-2-12 01:22
+
+别吹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再吹就吹死了
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aki1ostt  
+##### 932#       发表于 2023-2-12 01:24
+
+ 本帖最后由 aki1ostt 于 2023-2-12 01:25 编辑 
+
+看pv感觉没多少东西，但是越看别人的解析越感觉即使是现在透露出来的这冰山一角的内容也多到不可思议，刚才看了zeltik的解析视频已经把期待值拉满了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+可是为什么还有三个月才发售<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
