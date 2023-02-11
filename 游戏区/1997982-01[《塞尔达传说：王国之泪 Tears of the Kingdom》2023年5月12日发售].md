@@ -3199,3 +3199,14 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 这问卷除了明示大伙都看出来的新场景交互还有洞穴探索之外，怎么看着对这部续作好像特别信心满满，以及似乎有在剧情上发力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 928#       发表于 2023-2-11 23:45
+
+欧任有心情开问卷调查没时间上架CE，我服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+粗粗看了一遍，该怎么说，不愧是藤林？有藤林参与的塞尔达，剧情一般都挺稳的，难道这次要创下新高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

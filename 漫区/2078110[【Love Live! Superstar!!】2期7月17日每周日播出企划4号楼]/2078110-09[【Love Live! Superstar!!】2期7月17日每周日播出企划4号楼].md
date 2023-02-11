@@ -808,3 +808,38 @@ back number又是你</blockquote>
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nufawneafg  
+##### 12086#       发表于 2023-2-11 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59708065&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-11 23:40</a>
+所以说真是为了避开大叔粉而刻意喜欢的吗？
+这个bm是什么来头</blockquote>
+...back number那个风格小姑娘喜欢太正常了，你跺你也麻
+
+*****
+
+####  toshima  
+##### 12087#       发表于 2023-2-11 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59708065&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-11 23:40</a>
+
+所以说真是为了避开大叔粉而刻意喜欢的吗？
+
+这个bm是什么来头</blockquote>
+鬼鬼，痛亲王不知道？
+
+打开音乐软件搜一下吧，bn算是我最喜欢的乐队了
+
+*****
+
+####  ads147147  
+##### 12088#       发表于 2023-2-11 23:47
+
+角色应该是已经出人设了吧，只是定cv是谁而已，西武把人设图爆出来也不奇怪。
+怎么感觉我这条一个月前说过好像。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
