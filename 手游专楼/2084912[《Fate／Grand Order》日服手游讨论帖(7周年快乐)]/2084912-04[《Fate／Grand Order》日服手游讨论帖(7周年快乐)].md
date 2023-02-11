@@ -8554,3 +8554,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 顺便日服2.6之前有次更新莫名其妙把1.6里医生说茄子是2000年出生的改成了1999年出生的，估计那时候就是在准备奏章的剧情，所以去改了前面的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 5303#       发表于 2023-2-12 01:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 烟雾镜怎么人气越来越火了，梗图大爆发。还有雨神湿度也好高。
+

@@ -7170,3 +7170,13 @@ b站专栏搜神之天平</blockquote>
 
 伊苏8熟练度只给技能，没有神之天平给被动有意思。同样给被动的xanadu next一直没续作，在伊苏9还是只有代号的阶段，我看图很有xanadu next气质，还挺兴奋来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hwubh  
+##### 3606#       发表于 2023-2-12 01:33
+
+玩起来让人畅快淋漓，单纯的好玩。个人心目中22年最优秀的jrpg作品<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
