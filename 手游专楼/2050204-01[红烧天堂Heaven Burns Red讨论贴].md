@@ -341,3 +341,15 @@ ios下载的话是切换到繁中服找app store吗
 
 这次活动剧情还是和上次海岛活动一样前后割裂的毛病，不过这次前面的段子部分和后面的煽情部分都要更好点
 
+
+*****
+
+####  shiriruzero  
+##### 899#       发表于 2023-2-11 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59636520&amp;ptid=2050204" target="_blank">Ashice 发表于 2023-2-6 18:45</a>
+这游戏杀初始吗？不杀的话我就买几个日服抽抽了，杀的话就开个台服号得了
+
+另外这玩意抽卡概率如何啊？</blockquote>
+日服开服就杀初始，中文服不清楚
+

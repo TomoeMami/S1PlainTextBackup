@@ -488,3 +488,13 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一叶丈育  
+##### 3052#       发表于 2023-2-11 10:11
+
+娜娜真是个好女人啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">心动了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

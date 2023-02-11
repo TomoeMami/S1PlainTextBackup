@@ -8250,3 +8250,16 @@ PV中出现的词汇：
 
 不是地球的咕哒而是球里的咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡蓮  
+##### 5280#       发表于 2023-2-11 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697480&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-11 00:28</a>
+
+手上EX阶最多是仇阶9个，小丑8个，裁都有7个，外星人5个，月和欺也是各3个
+
+题外话，那盾属于甚么...最后会 ...</blockquote>
+盖提亚说了4个，然后减少到3个，伦敦那个说不定就是解决盾阶的
+
