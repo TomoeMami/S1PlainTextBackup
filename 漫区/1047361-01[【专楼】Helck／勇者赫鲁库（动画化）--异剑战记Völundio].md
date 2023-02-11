@@ -6,3 +6,22 @@
 
 突然发现老师个人博客2022年之前的内容全清了，啥情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 1039#       发表于 2023-2-11 11:43
+
+后悔之前没爬全站，发一下从里头手动存的彩图吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/d9e0b42dea998adcf39fdccbd3efd484/5fbd60b5.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/3bd531f21583de72d583ec8f24cba52c/92c20a21.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/1544873d60bc7f55bf4a38e52b5d46b4/9718a7e2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/c702f9141a82c253fc6bdff8c26ce562/fdeb38aa.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/0d82cf347742bf5d72938f1b06d008ec/9be7e867.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/b479b4e5bde3cf11cbf166884cbb84ad/2c7b7704.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/7e5fe7031edb833fd6734d20fd7d0038/9ea4a00c.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/335fa8feded501e8e87cc9036e40b914/59ed6f88-s.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/737d18519c4a68960e2e7248b2b790c3/c58435ed-s.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/f0cb4a72109019ee9fdc4b96cf554911/4e119259-s.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/786fed55c488d1ccb8fc18318575fae9/ed89e372.png" referrerpolicy="no-referrer">
+

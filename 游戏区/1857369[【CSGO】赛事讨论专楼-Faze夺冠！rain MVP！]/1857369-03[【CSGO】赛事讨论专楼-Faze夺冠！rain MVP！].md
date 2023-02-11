@@ -319,3 +319,13 @@ g2王朝<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" re
 
 哇 2分也能赢？
 
+
+*****
+
+####  dev2ce  
+##### 3170#       发表于 2023-2-11 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59700105&amp;ptid=1857369" target="_blank">米德 发表于 2023-2-11 11:20</a>
+哇 2分也能赢？</blockquote>
+🐝番薯不发挥还想赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且op太容易翻盘了，里约faze打c9也是大比分上半场直接被翻
+
