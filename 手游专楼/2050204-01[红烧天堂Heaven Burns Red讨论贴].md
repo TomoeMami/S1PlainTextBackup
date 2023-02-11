@@ -469,3 +469,11 @@ ios下载的话是切换到繁中服找app store吗
 
 麻子这剧本会不会进展太快了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">很难想象明年还有多少角色可抽
 
+
+*****
+
+####  PunkEgg  
+##### 910#       发表于 2023-2-11 21:51
+
+初始刷到昏迷，一小时不见立华奏
+
