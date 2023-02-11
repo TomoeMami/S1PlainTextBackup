@@ -3021,3 +3021,17 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 百万？千万！
 
+
+*****
+
+####  寒川LanterYeah  
+##### 914#       发表于 2023-2-11 07:54
+
+ 本帖最后由 寒川LanterYeah 于 2023-2-11 07:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59697258&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-11 00:09</a>
+
+好了，我安稳了，Gamestop不装死了，我可以把其他什么丹麦瑞典店铺的预定取消，然后安心过周末了
+
+虽 ...</blockquote>
+我之前xb3收藏版就这个状态，ns网站卡了半年买不到然后每天都等啊，好不容易等那天开了，结果下班回家的时候网页卡加载，好不容易加入到购物车开始刷卡的时候继续卡，等好不容易卡出来的时候直接提示卖完了无法付款。寄！加拿大这边 amazon, the best buy, 都是秒没。听说可以亲自去gamestop店面定游戏，特别绝望
+
