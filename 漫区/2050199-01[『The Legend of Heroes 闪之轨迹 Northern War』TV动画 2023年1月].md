@@ -5841,3 +5841,15 @@ ED最后有变化。
 
 就是双方都觉得帝国短时间内即将对诺州动手
 
+
+*****
+
+####  Oshino  
+##### 657#       发表于 2023-2-11 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59703037&amp;ptid=2050199" target="_blank">三友非三清 发表于 2023-2-11 16:45</a>
+这里有个前提
+
+就是双方都觉得帝国短时间内即将对诺州动手</blockquote>
+光是亚洲这一片历史上以弱胜强的例子也有啊，弱国作为守家的一方凝聚力可是相当高。只能说这个剧本没点鬼子血统都想不出来<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
