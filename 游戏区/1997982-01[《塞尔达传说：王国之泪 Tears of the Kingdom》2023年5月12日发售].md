@@ -3317,3 +3317,22 @@ Zeltik发了新片，讨论的是DIY载具，然后我边看边想，这应该�
 
 我这是什么巨大的脑洞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JoelBirch  
+##### 937#       发表于 2023-2-12 07:44
+
+确实很期待剧情啊，毕竟青沼说过有学习大镖客2，大镖客2的诸多设计里最可能提供给王泪思路的感觉也就是叙事了
+
+*****
+
+####  冷泉夜月  
+##### 938#       发表于 2023-2-12 07:45
+
+ 本帖最后由 冷泉夜月 于 2023-2-12 07:48 编辑 
+
+看了下COMG，昨天是21P，两天加起来59P了，明天就要超过马上发售的卡比了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
