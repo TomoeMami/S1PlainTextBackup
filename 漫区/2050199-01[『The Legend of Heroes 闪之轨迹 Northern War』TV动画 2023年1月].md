@@ -5909,3 +5909,16 @@ ED最后有变化。
 没想到还能看到克州制服的冰女，赚到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雷克特画挺帅的，感觉比闪轨立绘要好。
 这片看的时候和你轨如出一辙，得靠脑补自行补全。
 
+
+*****
+
+####  小小的信义  
+##### 663#       发表于 2023-2-12 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701024&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-2-11 12:51</a>
+
+没想到能看到这么可爱动画白兔</blockquote>
+罗根觉得结社撑腰
+
+天下无敌吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
