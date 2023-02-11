@@ -1545,3 +1545,11 @@ Fra沾上毒品交易了<img src="https://static.saraba1st.com/image/smiley/face
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很符合我对rapper的刻板印象
 
+
+*****
+
+####  高等黑暗  
+##### 80#       发表于 2023-2-11 10:01
+
+崩铁的彩虹工商给这7个人……金憨憨惨遭开除米籍
+
