@@ -5828,3 +5828,16 @@ ED最后有变化。
 
 白兔好可爱，动画表现比黑兔好多了
 
+
+*****
+
+####  三友非三清  
+##### 656#       发表于 2023-2-11 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701024&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-2-11 12:51</a>
+
+没想到能看到这么可爱动画白兔</blockquote>
+这里有个前提
+
+就是双方都觉得帝国短时间内即将对诺州动手
+
