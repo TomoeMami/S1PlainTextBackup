@@ -8279,3 +8279,11 @@ PV中出现的词汇：
 
 看贴吧一帖子说像老头环，一想是有点像，阿褪一路折腾到王城最后给你来个拒绝的刺
 
+
+*****
+
+####  廖化  
+##### 5283#       发表于 2023-2-11 12:43
+
+真实前方吃紧后方紧吃，阿赖耶识你也是月球势力吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
