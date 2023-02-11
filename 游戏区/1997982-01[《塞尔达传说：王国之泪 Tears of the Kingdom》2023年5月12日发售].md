@@ -3046,3 +3046,17 @@ hmv这么牛逼？直接填好信息直邮？我下单了但没扣款，后面�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 916#       发表于 2023-2-11 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59698782&amp;ptid=1997982" target="_blank">寒川LanterYeah 发表于 2023-2-11 07:54</a>
+我之前xb3收藏版就这个状态，ns网站卡了半年买不到然后每天都等啊，好不容易等那天开了，结果下班回家的时 ...</blockquote>
+我这边现在最绝望的就是，连最大的电子消费品商家的员工都不知道什么时候能开预定……今天一堆人快把亚马逊客服打爆了，也有人直接杀去实体店，员工一问三不知，系统里也查不到，真的不知道欧任到底在干什么……
+你根本不知道NS商店和这些大电商到底什么时候上货，NS商店说是发邮件，但很多人都说收到邮件的时候已经售罄了；大电商这边更是连个通知都没有，只能特别焦虑地机械刷新专门整盒购买信息的网页然后拼手速，简直了……
+一想到我还得这么抢限定机和新机，我觉得我的绝望都快实体化了……<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
