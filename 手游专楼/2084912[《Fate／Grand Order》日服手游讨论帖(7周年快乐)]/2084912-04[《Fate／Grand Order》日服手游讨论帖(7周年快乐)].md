@@ -8368,3 +8368,28 @@ PV中出现的词汇：
 迦勒底那么多外国人， ...</blockquote>
 不收编这些反贼的话，你人理到时候又要喊救命了，给个编制怎么这么难
 
+
+*****
+
+####  alucardcz  
+##### 5292#       发表于 2023-2-11 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701523&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-11 13:51</a>
+
+立绘不好看的打手我都放2号位的，正好我不太喜欢大姐姐的立绘
+
+—— 来自 OnePlus NE2210, Androi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从开服羊成的习惯  打手放1号位 已经改不掉了
+
+*****
+
+####  J-002  
+##### 5293#       发表于 2023-2-11 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59699189&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-02-11 09:25:11</a>
+所长这个是雷夫故意的呢
+
+雷夫可以杀了她但是没杀，而是丢进球里</blockquote>但是盖提亚没理由在启动人理烧却后还去帮前所长的计划，只能说雷夫也不知道迦勒底亚斯的真相，或者雷夫知道所以把所长扔进去妨碍
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -416,3 +416,19 @@ ios下载的话是切换到繁中服找app store吗
 
 去年4月7月降过2次难度，0突S卡上限60级那会才叫刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BrainDead  
+##### 905#       发表于 2023-2-11 15:10
+
+紫色长发+制服，越看越像HSI，那就加上兔耳装饰罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/11/150850rha8tquwdrig08cq.png" referrerpolicy="no-referrer">
+
+<strong>FK}(MLSNT8JXQO6A@MAJ_V6.png</strong> (108.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-11 15:08 上传
+
