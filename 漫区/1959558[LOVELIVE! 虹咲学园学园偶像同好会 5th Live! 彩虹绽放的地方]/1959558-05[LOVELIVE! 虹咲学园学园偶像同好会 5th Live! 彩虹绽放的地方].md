@@ -3029,3 +3029,14 @@ nga没巨魔那味儿啊（</blockquote>
 <img src="https://p.sda1.dev/9/fd3f6eb2881892f09df763fb1dfe2eb2/CMP_20230210215902493.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/912c4b371cd24e0b5ffe9b741d385070/CMP_20230210215902534.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 7033#       发表于 2023-2-11 10:46
+
+虹之咲字幕组
+第6话「璃奈RunRuns」
+翻译：潮风
+嵌字：光风<img src="https://p.sda1.dev/9/a0309970a1486b2ad392457fbea1481f/CMP_20230211104554867.jpg" referrerpolicy="no-referrer">
+
