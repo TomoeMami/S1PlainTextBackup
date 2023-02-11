@@ -345,3 +345,32 @@ g2王朝<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" re
 
 navi回家咯
 
+
+*****
+
+####  heseran  
+##### 3173#       发表于 2023-2-12 00:50
+
+被打得毫无还手之力啊navi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不喜欢看屁股是吧，被偷得赢了都攒不下钱哈哈哈
+
+*****
+
+####  Niyah  
+##### 3174#       发表于 2023-2-12 00:52
+
+森这状态，拉得没眼看
+
+*****
+
+####  andychen  
+##### 3175#       发表于 2023-2-12 00:53
+
+这X队后面完全不当人了啊
+
+*****
+
+####  heseran  
+##### 3176#       发表于 2023-2-12 00:58
+
+最后一把一鸟狙两大狙和点子哥下水道偷人太秀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电子哥想都想不到下水道前点顶了个大狙哈哈哈哈哈，x队今天这状态真好啊
+
