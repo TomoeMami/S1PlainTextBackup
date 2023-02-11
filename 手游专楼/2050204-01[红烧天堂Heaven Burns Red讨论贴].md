@@ -485,3 +485,13 @@ ios下载的话是切换到繁中服找app store吗
 
 老虎也是母老虎，指不定哪天就在新皮变成兽耳娘了
 
+
+*****
+
+####  pf67  
+##### 912#       发表于 2023-2-12 03:15
+
+买了个石头号抽到了ss孔明和奏，也还行吧
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1620,3 +1620,21 @@ en塔明牌有女友的又不是没有，死不了的
 
 细说盒皇倒了
 
+
+*****
+
+####  OldGlory  
+##### 87#       发表于 2023-2-12 01:58
+
+他引流来的粉丝不是已经被其他en男吸的差不多了吗，死了也不会怎么样
+
+*****
+
+####  CarlSteve  
+##### 88#       发表于 2023-2-12 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59707913&amp;ptid=2117684" target="_blank">NBXX 发表于 2023-2-11 23:28</a>
+
+https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
+原本希伯来语有五个，已经毕业了两个，算上这个是三个
+

@@ -5934,3 +5934,18 @@ ED最后有变化。
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  shamanda  
+##### 665#       发表于 2023-2-12 04:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59708958&amp;ptid=2050199" target="_blank">小小的信义 发表于 2023-2-12 01:12</a>
+
+罗根觉得结社撑腰
+
+天下无敌吧</blockquote>
+到底是罗根勾结结社还是团长勾结结社？
+
+这次他们对谈最后团长不是说在你看不到的地方一切早就开始了，我还以为指的就是结社。
+

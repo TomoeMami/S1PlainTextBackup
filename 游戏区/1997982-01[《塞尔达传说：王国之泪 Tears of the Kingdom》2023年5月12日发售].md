@@ -3247,3 +3247,73 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 可是为什么还有三个月才发售<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 933#       发表于 2023-2-12 01:59
+
+新要素什么的感觉不会特意去看了，多保留点惊喜体验给自己。
+
+*****
+
+####  jtwing  
+##### 934#       发表于 2023-2-12 02:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">哪位能给个消息朱紫/喷3预定的时候是什么样的？
+
+王泪有这么火吗？？？
+
+*****
+
+####  Waldeinsamkeit  
+##### 935#       发表于 2023-2-12 02:28
+
+鉴于法国首日出货量80万和朱紫双版本加一起持平，感觉至少欧洲这次的备货量是比着朱紫来的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Waldeinsamkeit  
+##### 936#       发表于 2023-2-12 04:42
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-12 05:12 编辑 
+
+[https://www.youtube.com/watch?v=3bKg7Onc46I&amp;ab_channel=Zeltik](https://www.youtube.com/watch?v=3bKg7Onc46I&amp;ab_channel=Zeltik)
+
+Zeltik发了新片，讨论的是DIY载具，然后我边看边想，这应该就是你任对玩家重复探索botw里跑烂的地图的激励方式之一……特别是eShop这个描述基本明示了这个设计： <blockquote>In this sequel to The Legend of Zelda: Breath of the Wild, you’ll decide your own path through the sprawling landscapes of Hyrule and the mysterious islands floating in the vast skies above. </blockquote>
+想了想，现在地面较之以前主要变化有：
+
+&gt; 发光的塔（取代希卡塔？）
+
+&gt; 绿色旋转能量（取代小神庙传送？）
+
+&gt; 意义不明且夜间会发光的佐纳乌大幅图画（说起来空中鸟瞰确实有小时候看考古之谜这类书里那种神神叨叨赤道上图画的感觉）
+
+&gt; 一些地形改变（比如多出来的山洞和地下空间)
+
+&gt; 消失的德库树（去哪儿了？）
+
+&gt; 升起的海拉鲁城堡
+
+&gt; 喷发malice的死亡火山
+
+&gt; 黑雾全部散去的某个遗迹（我忘了名字了= =就是那个一片漆黑的地方）
+
+&gt; 还有空中掉下来的各种各样的玩意儿（石头之类的应该可以用时间回溯功能当成电梯去相应空岛，材料拿来DIY载具和武器）
+
+&gt; 海布拉地区上空出现的巨大气旋（严格意义上说这不算地面，不过还是加进来）
+
+&gt; 一些全新怪和“新”怪（还是没办法跟多了一根角或脑袋上顶个头盔/三叉戟的老怪和解= =）
+
+这么看来，地面能吸引人去探索的地方还是挺多的，就是这次不知道这次迷宫是不是主要集中在天上或……地下？
+
+另外，可DIY的武器不知道是不是任天堂用来解决武器耐久度的方法，我想了想感觉似乎还挺不错的？
+
+另外，GS在[这个视频](https://www.youtube.com/watch?v=BrFxYCQf1DQ&amp;ab_channel=GameSpot)里提到了很有意思的一点（4：22），那就是Ganondorf用怨念给怪物上buff的片段中，初始台地边缘的城墙是完好无损的，同时在botw里，这里是被白雪所覆盖的破损的城墙。
+
+说明……这一段很有可能发生在过去？或者整个海拉鲁大地的时间被倒转了一万年（所以希卡之塔和神庙都没了，以及头顶上能看到空岛了）？？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+我这是什么巨大的脑洞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
