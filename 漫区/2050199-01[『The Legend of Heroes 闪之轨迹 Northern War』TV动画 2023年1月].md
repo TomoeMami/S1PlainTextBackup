@@ -5809,3 +5809,11 @@ ED最后有变化。
 没想到能看到这么可爱动画白兔</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了他利贝尔干得我就不干得吗
 
+
+*****
+
+####  无动于衷  
+##### 654#       发表于 2023-2-11 15:28
+
+为了剧情需要把黑白兔降智到这个程度我是真心佩服
+
