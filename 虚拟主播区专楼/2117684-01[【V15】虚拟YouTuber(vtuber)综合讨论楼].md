@@ -1590,3 +1590,13 @@ en塔明牌有女友的又不是没有，死不了的
 
 倒是之前和reimu那事一直有毒唯一边叫嫂子一边骂，这下不攻自破了（小女友是圈外人吧……？
 
+
+*****
+
+####  psnsic8nag  
+##### 84#       发表于 2023-2-11 14:32
+
+直播内容大半男友运营，这下好似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+某露还没他露骨
+

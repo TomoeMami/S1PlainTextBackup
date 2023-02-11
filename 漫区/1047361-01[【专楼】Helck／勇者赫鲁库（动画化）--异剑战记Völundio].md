@@ -35,3 +35,15 @@
 
 —— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  azbhg1  
+##### 1041#       发表于 2023-2-11 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701504&amp;ptid=1047361" target="_blank">紫水晶 发表于 2023-2-11 13:49</a>
+啊b买后好久都没见新的了，也不见放出。到底啥情况
+
+—— 来自 OnePlus KB2000, Android 13上的 S1Next-鹅 ...</blockquote>
+群友说是三原色没翻完
+

@@ -8355,3 +8355,16 @@ PV中出现的词汇：
 
 如果结局真是把迦勒底切割了得要给个什么处理才能说服玩家呢
 
+
+*****
+
+####  武男  
+##### 5291#       发表于 2023-2-11 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59694476&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-10 20:43</a>
+
+本来嘛，Fate/Requiem说了之前战争召唤了个EX职介外国人，结果大家差点完蛋
+
+迦勒底那么多外国人， ...</blockquote>
+不收编这些反贼的话，你人理到时候又要喊救命了，给个编制怎么这么难
+
