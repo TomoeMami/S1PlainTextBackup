@@ -301,3 +301,13 @@ g!
 
 g2王朝<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 3168#       发表于 2023-2-11 09:11
+
+看好x队一点，jabbi是超进化了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
