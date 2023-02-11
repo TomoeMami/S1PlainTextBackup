@@ -648,3 +648,19 @@ LL这企划真的加速药丸。
 
 星这个卖身契没限制多少吧，小百合也去了突击莉莉的手游，nagi也配了番剧，鱼更是忙的飞起。
 
+
+*****
+
+####  稀勢のささ  
+##### 12072#       发表于 2023-2-11 16:31
+
+<blockquote>おっほ！いい仕事でぇす
+
+SNSで学ぶ　推し活はかどる中国语 [https://books.rakuten.co.jp/rb/17429260/](https://books.rakuten.co.jp/rb/17429260/)
+
+★豪华音声付録付き★
+
+中国语音声（第1~3章）のナレーションを担当するのは、「ラブライブ！スーパースター!!」で上海出身のメンバーである「唐 可可」役を务め、歌手・コスプレイヤー・声优で大活跃のLiyuu（リーユウ）さん。
+
+Liyuuさんと一绪に耳からも楽しく中国语を学べます。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋还有这种出版物
+

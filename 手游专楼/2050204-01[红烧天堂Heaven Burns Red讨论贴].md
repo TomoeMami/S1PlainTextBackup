@@ -432,3 +432,11 @@ ios下载的话是切换到繁中服找app store吗
 
 2023-2-11 15:08 上传
 
+
+*****
+
+####  wcorvo  
+##### 906#       发表于 2023-2-11 16:23
+
+这游戏又是只有女角色吗？是的话就不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
