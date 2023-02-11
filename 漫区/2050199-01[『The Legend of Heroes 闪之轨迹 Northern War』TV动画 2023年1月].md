@@ -5922,3 +5922,15 @@ ED最后有变化。
 
 天下无敌吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 664#       发表于 2023-2-12 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59702210&amp;ptid=2050199" target="_blank">镜hinata 发表于 2023-2-11 15:05</a>
+都说了他利贝尔干得我就不干得吗</blockquote>
+就算不提辉之环这个底牌利贝尔本身就是导力技术先进国而且资金充足，这吃饭都成问题的穷地方怎么类比
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
