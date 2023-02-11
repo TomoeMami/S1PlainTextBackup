@@ -14028,3 +14028,13 @@ https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2q
 
 醒了醒了
 
+
+*****
+
+####  rs5621  
+##### 4292#       发表于 2023-2-11 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是想过关啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
