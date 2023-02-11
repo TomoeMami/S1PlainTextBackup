@@ -4212,3 +4212,13 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  掉头学姐  
+##### 13362#       发表于 2023-2-11 18:22
+
+咩歌
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
