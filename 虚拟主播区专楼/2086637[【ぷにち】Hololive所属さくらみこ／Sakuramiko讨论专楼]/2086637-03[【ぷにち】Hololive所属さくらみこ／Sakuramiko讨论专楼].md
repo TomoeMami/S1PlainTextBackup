@@ -14048,3 +14048,13 @@ https://twitter.com/SHINOBU_Acerola/status/1623632561431019520?s=20&amp;t=9yrk2q
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4294#         楼主| 发表于 2023-2-11 19:57
+
+holocure的新角色自有技能绝赞中
+
+不过确实neta都很巧妙
+
