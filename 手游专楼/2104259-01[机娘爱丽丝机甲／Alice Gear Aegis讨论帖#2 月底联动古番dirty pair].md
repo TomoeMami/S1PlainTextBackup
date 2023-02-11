@@ -1645,3 +1645,17 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 怎么特异boss还不准给私营打的，可是不都杀过几百遍了
 
+
+*****
+
+####  Rincewind  
+##### 273#       发表于 2023-2-11 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59706488&amp;ptid=2104259" target="_blank">delphinian 发表于 2023-2-11 21:31</a>
+怎么特异boss还不准给私营打的，可是不都杀过几百遍了</blockquote>
+虽然属性特异鸟是老朋友没错
+但你什么时候打过有角三倍速的特异鸟了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+剧情里这鸟也确实是特殊的
+
+什么信息都没有的新怪先派最精锐部队去探虚实挺正常的，总不能让民间女演员吃初见杀吧（虽然高难天天吃初见杀)
+
