@@ -8298,3 +8298,21 @@ PV中出现的词汇：
 往好点想 说不定完结之时真能无缝衔接到月姬R里线 为防你们等得心急 先来几个间章调剂一下 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">月姬线？魔伊线！
 
+
+*****
+
+####  alucardcz  
+##### 5285#       发表于 2023-2-11 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃饱没事拿大姐姐刷free  充能点错好多次。。 还得放2号位避免点错
+
+*****
+
+####  里村紅葉  
+##### 5286#       发表于 2023-2-11 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701378&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-11 13:33</a>
+
+吃饱没事拿大姐姐刷free  充能点错好多次。。 还得放2号位避免点错</blockquote>
+弹钢琴占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
