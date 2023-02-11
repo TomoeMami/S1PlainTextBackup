@@ -440,3 +440,16 @@ ios下载的话是切换到繁中服找app store吗
 
 这游戏又是只有女角色吗？是的话就不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 907#       发表于 2023-2-11 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59702836&amp;ptid=2050204" target="_blank">wcorvo 发表于 2023-2-11 16:23</a>
+
+这游戏又是只有女角色吗？是的话就不玩了</blockquote>
+是
+
+哦不对 还有个老虎(
+
