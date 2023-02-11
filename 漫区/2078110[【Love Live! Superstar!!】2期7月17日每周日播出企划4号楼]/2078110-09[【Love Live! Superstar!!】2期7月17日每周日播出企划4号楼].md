@@ -794,3 +794,17 @@ nako当初为了试镜把头发内侧染白
 
 <img src="https://p.sda1.dev/9/cc1770eaf13f0d537daa165bbe41888d/CMP_20230211225848495.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 12085#       发表于 2023-2-11 23:40
+
+ 本帖最后由 ads147147 于 2023-2-11 23:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59704118&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-11 18:36</a>
+back number又是你</blockquote>
+所以说真是为了避开大叔粉而刻意喜欢的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+这个bm是什么来头
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
