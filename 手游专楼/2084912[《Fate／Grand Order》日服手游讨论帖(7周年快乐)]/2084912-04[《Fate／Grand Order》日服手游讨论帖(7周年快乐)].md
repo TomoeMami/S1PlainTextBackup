@@ -8231,3 +8231,22 @@ PV中出现的词汇：
 
 泳装小达芬奇也是尺阶呀，这下不得不清算了。
 
+
+*****
+
+####  gpx234mqx  
+##### 5278#       发表于 2023-2-11 09:25
+
+所长这个是雷夫故意的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+雷夫可以杀了她但是没杀，而是丢进球里
+
+*****
+
+####  gpx234mqx  
+##### 5279#       发表于 2023-2-11 09:26
+
+现在推上在猜测序章躺地睡觉的咕哒是不是其实被置换了
+
+不是地球的咕哒而是球里的咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

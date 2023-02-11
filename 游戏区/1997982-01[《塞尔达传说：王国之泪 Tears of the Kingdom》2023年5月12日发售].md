@@ -3103,3 +3103,16 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 还有一点就是白衣牵手画面，应该是林克的一段回忆。所以新作的剧情应该也是插叙，就是你到了某个回忆点，会进入回忆片段，跟野炊是一样的。
 
+
+*****
+
+####  寒川LanterYeah  
+##### 921#       发表于 2023-2-11 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59698980&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-11 08:49</a>
+
+啊那真的宁愿国内定吧……看楼上定日版还挺容易的感觉……
+
+欧洲这边属于只要你错过正价，就得花四五倍的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">都一样，只要错过就黄牛贼多导致现在导出黄牛满地走。啥玩意限量都加好几倍价格卖。我是宁可国内海运寄过来我也不想从黄牛那加四倍价格买。
+
