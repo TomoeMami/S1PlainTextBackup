@@ -395,3 +395,16 @@ ios下载的话是切换到繁中服找app store吗
 
 不过我还是推荐刷初始  可以有个好底子没必要浪 除非不打算长玩
 
+
+*****
+
+####  alucardcz  
+##### 903#       发表于 2023-2-11 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693114&amp;ptid=2050204" target="_blank">Skyline_R 发表于 2023-2-10 18:53</a>
+
+出台服之后挂代理终于不报P21/P403了，直连也能玩，就是慢了点
+
+打完Day1把送的石头和券全抽了，出了仨SS， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真能直连了。。。。。。。。。希望别几天后又403了
+
