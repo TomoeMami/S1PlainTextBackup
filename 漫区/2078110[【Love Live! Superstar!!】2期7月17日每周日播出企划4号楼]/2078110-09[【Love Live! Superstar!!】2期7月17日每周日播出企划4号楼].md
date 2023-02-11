@@ -843,3 +843,11 @@ back number又是你</blockquote>
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  优妮可  
+##### 12089#       发表于 2023-2-12 00:26
+
+人设这种要想爆，肯定是这个月底杂志先啊。新闻不知道这个月生放会不会有，还有那个4.28公布可能性也大。
+
