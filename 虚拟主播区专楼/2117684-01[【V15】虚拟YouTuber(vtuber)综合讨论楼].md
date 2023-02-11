@@ -1580,3 +1580,13 @@ zaion干的事也没啥啊 还挺based 但是她是个原批 只能说好似喵
 
 被逮住有小女友了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 83#       发表于 2023-2-11 14:08
+
+en塔明牌有女友的又不是没有，死不了的
+
+倒是之前和reimu那事一直有毒唯一边叫嫂子一边骂，这下不攻自破了（小女友是圈外人吧……？
+
