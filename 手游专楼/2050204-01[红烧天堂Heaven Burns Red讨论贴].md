@@ -495,3 +495,11 @@ ios下载的话是切换到繁中服找app store吗
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  在海岸  
+##### 913#       发表于 2023-2-12 07:36
+
+这游戏的buff除非特别说明都是当回合效果？debuff呢？
+

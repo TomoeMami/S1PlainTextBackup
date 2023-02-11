@@ -859,3 +859,18 @@ back number又是你</blockquote>
 
 鱼这次写的词好像并没有中文
 
+
+*****
+
+####  ads147147  
+##### 12091#       发表于 2023-2-12 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59708152&amp;ptid=2078110" target="_blank">toshima 发表于 2023-2-11 23:47</a>
+鬼鬼，痛亲王不知道？
+
+打开音乐软件搜一下吧，bn算是我最喜欢的乐队了</blockquote>
+只听anisong的能记住宇多田光就不错了jpg
+不过听了下确实可以，不知道五厕那边发什么颠。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
