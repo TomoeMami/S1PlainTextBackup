@@ -8316,3 +8316,32 @@ PV中出现的词汇：
 吃饱没事拿大姐姐刷free  充能点错好多次。。 还得放2号位避免点错</blockquote>
 弹钢琴占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5287#       发表于 2023-2-11 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701405&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-11 13:36</a>
+
+弹钢琴占模</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我打手习惯放1号位 这用手机充能太容易点错了  
+
+*****
+
+####  gpx234mqx  
+##### 5288#       发表于 2023-2-11 13:50
+
+欺软怕硬泛人类史<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 5289#       发表于 2023-2-11 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701471&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-11 13:45</a>
+我打手习惯放1号位 这用手机充能太容易点错了</blockquote>
+立绘不好看的打手我都放2号位的，正好我不太喜欢大姐姐的立绘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -25,3 +25,13 @@
 <img src="https://p.sda1.dev/9/f0cb4a72109019ee9fdc4b96cf554911/4e119259-s.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/786fed55c488d1ccb8fc18318575fae9/ed89e372.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫水晶  
+##### 1040#       发表于 2023-2-11 13:49
+
+啊b买后好久都没见新的了，也不见放出。到底啥情况
+
+—— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
