@@ -8393,3 +8393,13 @@ PV中出现的词汇：
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  保罗赫伯特  
+##### 5294#       发表于 2023-2-11 17:38
+
+看了翻译的剧情，感觉是抑制力故意找理由让加勒底加班帮他多解决几个麻烦的特异点（误）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人王怎么现在混到帮抑制力传话了，招安了这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

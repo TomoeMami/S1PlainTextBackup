@@ -3157,3 +3157,16 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 那几句旁白 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">飞到天上发现了在天上的神庙，进去后穿越时空见到了天剑的塞尔达公主
 
+
+*****
+
+####  尤伽  
+##### 925#       发表于 2023-2-11 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59674080&amp;ptid=1997982" target="_blank">岸波 发表于 2023-2-9 11:47</a>
+
+请问一下种草家是哪家店</blockquote>
+微博号叫种草神机，淘宝店同名
+
+天猫店墨策电玩就是他家的，想订原封收藏可以找他家，香港直发
+
