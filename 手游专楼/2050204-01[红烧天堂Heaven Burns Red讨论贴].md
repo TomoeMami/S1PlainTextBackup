@@ -408,3 +408,11 @@ ios下载的话是切换到繁中服找app store吗
 打完Day1把送的石头和券全抽了，出了仨SS， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真能直连了。。。。。。。。。希望别几天后又403了
 
+
+*****
+
+####  乙山法純  
+##### 904#       发表于 2023-2-11 14:18
+
+去年4月7月降过2次难度，0突S卡上限60级那会才叫刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

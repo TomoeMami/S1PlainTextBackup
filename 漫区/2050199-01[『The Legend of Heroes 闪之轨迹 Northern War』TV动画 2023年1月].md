@@ -5788,3 +5788,14 @@ ED最后有变化。
 
 这剧本也太难崩了点，诺州全体都知道毫无胜算的情况下罗根偏要进攻帝国是什么神风特工队思维，而且提出翻盘的点子居然是集北猎兵力去进攻帝国最重要的地方，感觉帝国的恐怖 组织都比你们会来事。chatgpt编的都比这个正常点吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Layvaten  
+##### 652#       发表于 2023-2-11 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59701024&amp;ptid=2050199" target="_blank">Oshino 发表于 2023-2-11 12:51</a>
+
+没想到能看到这么可爱动画白兔</blockquote>
+一切战术转换家，合理的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
