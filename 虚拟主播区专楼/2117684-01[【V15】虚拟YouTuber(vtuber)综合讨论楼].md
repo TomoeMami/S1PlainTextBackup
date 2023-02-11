@@ -1600,3 +1600,15 @@ en塔明牌有女友的又不是没有，死不了的
 
 某露还没他露骨
 
+
+*****
+
+####  NBXX  
+##### 85#       发表于 2023-2-11 23:28
+
+[https://twitter.com/idol_corp/status/1624095852942831624](https://twitter.com/idol_corp/status/1624095852942831624)
+<img src="https://p.sda1.dev/9/d67f1a59fe25d76cfd167ce0af12e337/T_@9Y3QT8B_16_5R_5RUM53.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/82132accb2b2a753a72a938b9d6a4b72/E_RQ_48_X6I0NNJTOP_SM2V.png" referrerpolicy="no-referrer">
+
+以色列箱出现了第一个毕业生
+

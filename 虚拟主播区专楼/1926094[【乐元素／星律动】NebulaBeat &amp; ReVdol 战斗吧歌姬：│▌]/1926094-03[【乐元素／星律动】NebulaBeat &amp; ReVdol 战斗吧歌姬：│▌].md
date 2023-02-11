@@ -565,3 +565,14 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 开头大概十几分钟没看，说没有说模型怎么恁快修好的？上周还是依托来着，这是重起炉灶又做了一个？
 
+
+*****
+
+####  joll9000  
+##### 3060#       发表于 2023-2-11 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59665777&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-2-8 20:05</a>
+
+恰恰是这点让我不太舒服，首播就主动引流青叶这些切片man，感觉整个人透露出一股过于精明的气质，只能说 ...</blockquote>
+的确是很精明，她之前的号有一小半投稿是合作视频，而且涉猎广泛，人脉贼广
+
