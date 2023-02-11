@@ -5817,3 +5817,14 @@ ED最后有变化。
 
 为了剧情需要把黑白兔降智到这个程度我是真心佩服
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 655#       发表于 2023-2-11 16:18
+
+罗根集结部队攻击帝国最重要的地方是分校长老家吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看地图还得绕着走水路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+白兔好可爱，动画表现比黑兔好多了
+

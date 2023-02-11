@@ -514,3 +514,14 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 有段时间没关注豆芽，一看最近在B站怎么多起来了？是今后常态在B套皮活动了还是仅仅为了宣传那个手游？
 
+
+*****
+
+####  ladiesman802  
+##### 3055#       发表于 2023-2-11 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59702110&amp;ptid=1926094" target="_blank">MinFOrder 发表于 2023-2-11 14:52</a>
+
+有段时间没关注豆芽，一看最近在B站怎么多起来了？是今后常态在B套皮活动了还是仅仅为了宣传那个手游？ ...</blockquote>
+都有吧，估计公司想要豆芽去开拓市场？
+
