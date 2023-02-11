@@ -5778,3 +5778,13 @@ ED最后有变化。
 
 这动画直接喊王尼玛就出来了，闪轨3那么长台词就是给人打断的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 651#       发表于 2023-2-11 12:51
+
+没想到能看到这么可爱动画白兔<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+这剧本也太难崩了点，诺州全体都知道毫无胜算的情况下罗根偏要进攻帝国是什么神风特工队思维，而且提出翻盘的点子居然是集北猎兵力去进攻帝国最重要的地方，感觉帝国的恐怖 组织都比你们会来事。chatgpt编的都比这个正常点吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
