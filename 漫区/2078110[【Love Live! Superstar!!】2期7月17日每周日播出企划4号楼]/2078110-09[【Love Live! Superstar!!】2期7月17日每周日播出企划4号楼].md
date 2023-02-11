@@ -664,3 +664,45 @@ SNSで学ぶ　推し活はかどる中国语 [https://books.rakuten.co.jp/rb/17
 
 Liyuuさんと一绪に耳からも楽しく中国语を学べます。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋还有这种出版物
 
+
+*****
+
+####  lj205  
+##### 12073#       发表于 2023-2-11 17:09
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买一本来学习
+
+*****
+
+####  ads147147  
+##### 12074#       发表于 2023-2-11 17:09
+
+不是，按鱼的水平应该出学习日语的中国版吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  player3960  
+##### 12075#       发表于 2023-2-11 17:11
+
+交点正经的中文行不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Screenshot_20230211_165223.jpg
+(113.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-11 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202302/11/170948zc9jhcd33yejc1e0.jpg" referrerpolicy="no-referrer">
+
+4ff46fe3b606670f.jpg
+(104.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-11 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202302/11/171007ozt2muw2xwssuuky.jpg" referrerpolicy="no-referrer">
+
