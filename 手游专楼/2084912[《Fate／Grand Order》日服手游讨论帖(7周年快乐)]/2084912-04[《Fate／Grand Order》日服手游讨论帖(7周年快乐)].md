@@ -8497,3 +8497,36 @@ PV中出现的词汇：
 
 没事就在英灵座开冠位orgy，有事了就去特异点过个万圣节圣诞节，美滋滋。
 
+
+*****
+
+####  Jamaisvu  
+##### 5300#       发表于 2023-2-11 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59704505&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-11 19:15</a>
+
+摩根的谜语解答法
+
+莫非就是三个奏章攻略法</blockquote>
+随便塞翻了一下：
+
+想要理解的心意：不死心，不放弃。
+
+想要接受的心意：不受挫，不怨憎。
+
+想要消除的心意：不污染，不流逝。
+
+前面大概指的是奏章的BOSS，后面是攻略方法？
+
+（胡扯一下）
+
+ruler打算理解我们，而迦勒底不放弃回到泛人类史的希望，于是展现人类的觉悟感动他们？
+
+avenger打算接受我们，号召大家一起给异星打工，但是迦勒底并不抱怨泛人类史的双标？
+
+alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切，但迦勒底不退不降不悔？
+
+（好烂俗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+话说如果蘑菇那时候就做好了给第二部续命的打算，可真是蔫坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

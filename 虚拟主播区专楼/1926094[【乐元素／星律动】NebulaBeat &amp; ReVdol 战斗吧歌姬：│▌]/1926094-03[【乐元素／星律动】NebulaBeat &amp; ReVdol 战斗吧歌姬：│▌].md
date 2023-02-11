@@ -535,3 +535,13 @@ saku也就配音打工而已，还是说甚至要直播开live？
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黄金鸡屁屁  
+##### 3057#       发表于 2023-2-11 20:25
+
+哥们好会扭<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
