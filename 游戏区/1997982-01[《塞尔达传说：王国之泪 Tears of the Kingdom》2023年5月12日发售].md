@@ -3145,3 +3145,15 @@ PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附
 
 —— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  heseran  
+##### 924#       发表于 2023-2-11 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59699072&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-2-11 09:06</a>
+PV里那个白衣神秘角色应该就是塞尔达（古代版或古代灵魂附身版），最大证据就是声优是一个人。
+
+那几句旁白 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">飞到天上发现了在天上的神庙，进去后穿越时空见到了天剑的塞尔达公主
+
