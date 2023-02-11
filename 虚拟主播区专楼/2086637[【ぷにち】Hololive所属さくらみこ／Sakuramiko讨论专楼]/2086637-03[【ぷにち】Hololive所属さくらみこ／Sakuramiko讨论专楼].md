@@ -14068,3 +14068,13 @@ holocure的新角色自有技能绝赞中
 
 讨论了10分钟了，今天怎么回事
 
+
+*****
+
+####  rs5621  
+##### 4296#       发表于 2023-2-11 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶，看到蜘蛛哈恰玛居然没啥大反应
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
