@@ -848,3 +848,12 @@ g2这气势真的是王朝开端啊 牛逼啊
 
 王朝！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doublehit  
+##### 3239#       发表于 2023-2-13 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721365&amp;ptid=1857369" target="_blank"> heseran 发表于 2023-2-13 02:20</a> 引用:doublehit 发表于 2023-2-13 02:17 前面打的不那么激进已经要准备握手了…… 第二回合说实话没看懂跳烟送ak真是手枪局赢了后能做出的操作吗 </blockquote>
+一觉醒来又是一场胜利，小choke 不算choke <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
