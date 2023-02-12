@@ -940,3 +940,56 @@ AI拉屎的速度和隐蔽性可就强多了，不像人类小编还去套模版
 waitlist怎么排了一天还没排到</blockquote>
 我都排了好几天了，慢慢等吧
 
+
+*****
+
+####  大江户战士  
+##### 93#       发表于 2023-2-12 17:42
+
+还是很多错误啊
+
+*****
+
+####  Quelaan  
+##### 94#       发表于 2023-2-12 17:45
+
+刚加入waitlist，希望能吃上热乎的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CrayS1  
+##### 95#       发表于 2023-2-12 17:45
+
+搜索引擎更新换代的时候到了   预计google股价狂跌
+
+*****
+
+####  Quelaan  
+##### 96#       发表于 2023-2-12 17:45
+
+刚加入waitlist，希望能吃上热乎的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Quelaan  
+##### 97#       发表于 2023-2-12 17:45
+
+刚加入waitlist，希望能吃上热乎的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CrayS1  
+##### 98#       发表于 2023-2-12 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714791&amp;ptid=2119233" target="_blank">kula01 发表于 2023-2-12 15:52</a>
+
+好了，还是那个老问题，你引用知乎，可知乎里有我胡说八道恶搞还被乐子人点到6000赞的回答啊。面对1000个答 ...</blockquote>
+以前的搜索引擎也分不出来, 总体还是进步非常多的.
+
+*****
+
+####  pzk  
+##### 99#       发表于 2023-2-12 17:52
+
+之前不是说每次更新数据的开销很高吗，看起来时效性也很好啊
+
