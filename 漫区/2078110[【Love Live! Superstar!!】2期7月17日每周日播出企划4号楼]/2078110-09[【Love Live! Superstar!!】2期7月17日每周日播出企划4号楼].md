@@ -1211,3 +1211,18 @@ QQ图片20230212224438.jpg
 
 说自拍那里笑死，你台下观众读读空气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 12127#       发表于 2023-2-12 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观众：能喊了管你台上咋说呢
+
+*****
+
+####  ruffian  
+##### 12128#       发表于 2023-2-12 23:04
+
+服了，是我登陆的时机不对？每次上老福特唐可可tag总能碰见憨批出没。。。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
