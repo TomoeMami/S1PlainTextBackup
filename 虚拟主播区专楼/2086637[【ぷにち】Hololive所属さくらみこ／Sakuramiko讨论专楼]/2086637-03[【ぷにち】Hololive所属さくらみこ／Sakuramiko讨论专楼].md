@@ -14188,3 +14188,20 @@ holocure的新角色自有技能绝赞中
 
 [https://youtu.be/L0leviARghA](https://youtu.be/L0leviARghA)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨鱼和35见面好好玩
 
+
+*****
+
+####  holoan  
+##### 4308#         楼主| 发表于 2023-2-13 01:10
+
+明早5~6点突击直播可能性
+
+*****
+
+####  holoan  
+##### 4309#         楼主| 发表于 2023-2-13 01:10
+
+我怕是起不来
+
+今晚还要打祭典
+
