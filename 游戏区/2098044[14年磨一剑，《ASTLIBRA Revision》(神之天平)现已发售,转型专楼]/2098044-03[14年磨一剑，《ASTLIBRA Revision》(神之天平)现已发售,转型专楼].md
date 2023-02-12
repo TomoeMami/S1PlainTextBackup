@@ -7210,3 +7210,14 @@ b站专栏搜神之天平</blockquote>
 曹，第八章三阶段boss怎么都打不过去，弹幕太多了。开技能居然没法回血。网上搜攻略才发现抹除和能量吸收抵 ...</blockquote>
 其实，你用低消耗的水弹，一次72精力。可以一直消消乐，基本不用担心弹幕…… 不过，圣龙有一个全屏激光无法消除，必须吸收顶过去。
 
+
+*****
+
+####  fifman  
+##### 3610#       发表于 2023-2-12 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59711324&amp;ptid=2098044" target="_blank">christiny 发表于 2023-2-12 10:28</a>
+
+其实，你用低消耗的水弹，一次72精力。可以一直消消乐，基本不用担心弹幕…… 不过，圣龙有一个全屏激光 ...</blockquote>
+消消乐没法回血啊
+
