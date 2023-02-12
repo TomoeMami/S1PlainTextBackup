@@ -533,3 +533,15 @@ ios下载的话是切换到繁中服找app store吗
 —— 来自 Xiaomi M2102J2SC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 看你自己的网络运营商 我这是广东移动 选日服能直连 这边直连好多十一区手游都没压力除了要检测谷歌三件套的时候
 
+
+*****
+
+####  垃圾人  
+##### 917#       发表于 2023-2-12 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59711612&amp;ptid=2050204" target="_blank">红叶 发表于 2023-2-12 11:00</a>
+你们选哪个服务器能直连啊
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我台服可以
+
