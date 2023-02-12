@@ -558,3 +558,18 @@ G2拿不下NUKE真3-0了
 
 质疑什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大厦还是图五，冠军基本G2了
 
+
+*****
+
+####  liva  
+##### 3201#       发表于 2023-2-13 00:47
+
+米垃圾要被暴打了 
+
+*****
+
+####  heseran  
+##### 3202#       发表于 2023-2-13 00:49
+
+已经被暴打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

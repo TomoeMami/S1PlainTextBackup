@@ -6014,3 +6014,11 @@ ED最后有变化。
 2月14日出OP完整版</blockquote>
 我最期待的是ed完整版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不知道什么时候有（
 
+
+*****
+
+####  roxas.sora  
+##### 671#       发表于 2023-2-13 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为白兔会用大锤模式打的，果然没啥经费么
+
