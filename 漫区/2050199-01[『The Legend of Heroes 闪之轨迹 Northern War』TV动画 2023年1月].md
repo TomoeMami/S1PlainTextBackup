@@ -6003,3 +6003,14 @@ ED最后有变化。
 
 2月14日出OP完整版
 
+
+*****
+
+####  aptx8285144  
+##### 670#       发表于 2023-2-12 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59719588&amp;ptid=2050199" target="_blank">酷乐 发表于 2023-2-12 22:48</a>
+
+2月14日出OP完整版</blockquote>
+我最期待的是ed完整版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不知道什么时候有（
+
