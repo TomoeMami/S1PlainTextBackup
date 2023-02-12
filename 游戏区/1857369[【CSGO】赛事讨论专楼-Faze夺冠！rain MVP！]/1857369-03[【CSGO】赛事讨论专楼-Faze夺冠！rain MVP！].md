@@ -573,3 +573,11 @@ G2拿不下NUKE真3-0了
 
 已经被暴打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liva  
+##### 3203#       发表于 2023-2-13 00:53
+
+X队脑子是不是有问题。。上半场最后两把都是天禄干拉送。。
+
