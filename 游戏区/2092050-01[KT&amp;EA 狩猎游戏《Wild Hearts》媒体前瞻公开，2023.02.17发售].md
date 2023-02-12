@@ -120,3 +120,16 @@
 
 看演示怎么有点影牢的味道
 
+
+*****
+
+####  415452356  
+##### 312#       发表于 2023-2-12 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59719216&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-12 22:16</a>
+自己家的两个游戏就差半个月，还都是偏动作类的，当然算撞车……
+我估计是因为宣发分ea和微软管，两变没 ...</blockquote>
+  我觉得这两家根本没怎么卖力宣传，卧龙还好点，这个不叫讨鬼3的讨鬼3连介绍游戏整体的最终pv都没有，ea那边该不会是连做宣传的钱都没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
