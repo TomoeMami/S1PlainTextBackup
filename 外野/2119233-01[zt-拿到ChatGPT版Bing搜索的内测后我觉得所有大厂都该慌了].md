@@ -1159,3 +1159,14 @@ edge起飞，百度算什么东西连google都不如。
 
 难搞，放国内的话会触碰到高压线，这下真的要闭关了
 
+
+*****
+
+####  大江户战士  
+##### 116#       发表于 2023-2-12 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718344&amp;ptid=2119233" target="_blank">爱尔米娜 发表于 2023-2-12 20:56</a>
+
+难搞，放国内的话会触碰到高压线，这下真的要闭关了</blockquote>
+chatGPT本身就做了信息过滤，一开始还有不少政治不正确的回答现在都说不出来的，类似服务国内也能做到
+
