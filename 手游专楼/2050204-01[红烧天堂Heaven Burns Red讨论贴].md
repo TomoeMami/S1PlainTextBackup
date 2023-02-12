@@ -511,3 +511,13 @@ ios下载的话是切换到繁中服找app store吗
 
 点一下就能看到buff本身的说明 一般都是一回/一回合之类的 同类buff/debuff都可以叠两个 要是不能同时生效的会变暗以供识别
 
+
+*****
+
+####  红叶  
+##### 915#       发表于 2023-2-12 11:00
+
+你们选哪个服务器能直连啊
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
