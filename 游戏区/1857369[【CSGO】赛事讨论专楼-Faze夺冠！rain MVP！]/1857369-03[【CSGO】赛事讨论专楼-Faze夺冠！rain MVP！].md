@@ -581,3 +581,18 @@ G2拿不下NUKE真3-0了
 
 X队脑子是不是有问题。。上半场最后两把都是天禄干拉送。。
 
+
+*****
+
+####  heseran  
+##### 3204#       发表于 2023-2-13 01:13
+
+什么东西啊G2，表哥和jks俩人拉出来把中路杀完了直接<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liva  
+##### 3205#       发表于 2023-2-13 01:17
+
+小孩：从夜店回来的劲缓过来了，发力发力
+
