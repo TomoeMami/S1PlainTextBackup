@@ -1148,3 +1148,11 @@ pop talking根本就没编舞吧
 
 今年十月直接星3 一点难度都没有吧 总不能让3月选出的三期生等快半年以上吧
 
+
+*****
+
+####  cybernetics31  
+##### 12120#       发表于 2023-2-12 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好说呢，二期有人都等1年了
+
