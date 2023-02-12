@@ -887,3 +887,13 @@ back number又是你</blockquote>
 阿尼桑作为一个主题概念而非一种技术流派(或地域概念)不能完全和秋叶原系电波系画等号<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 阿尼桑九宫格.jpg，安全地带都可以是阿尼桑
 
+
+*****
+
+####  player3960  
+##### 12093#       发表于 2023-2-12 09:47
+
+日系摇滚听的不多，还是以男女solo为主，除了B'z和安全地带外，像彩虹和RADWIMPS都是通过动画认识的，bn要不是5厕天天cue，还真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
