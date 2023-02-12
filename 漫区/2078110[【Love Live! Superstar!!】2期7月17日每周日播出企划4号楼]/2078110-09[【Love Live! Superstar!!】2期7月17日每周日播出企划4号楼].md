@@ -874,3 +874,16 @@ back number又是你</blockquote>
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nufawneafg  
+##### 12092#       发表于 2023-2-12 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59710148&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-12 07:35</a>
+只听anisong的能记住宇多田光就不错了jpg
+不过听了下确实可以，不知道五厕那边发什么颠。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是我是广义阿尼桑派
+阿尼桑作为一个主题概念而非一种技术流派(或地域概念)不能完全和秋叶原系电波系画等号<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+阿尼桑九宫格.jpg，安全地带都可以是阿尼桑
+
