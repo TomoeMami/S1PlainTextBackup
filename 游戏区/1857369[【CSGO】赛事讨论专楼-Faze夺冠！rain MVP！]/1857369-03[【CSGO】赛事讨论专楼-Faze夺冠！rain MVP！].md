@@ -475,3 +475,11 @@ jks有望拿下卡托连冠啊，而且也是mvp有力争夺者，就看今晚�
 
 G2拿不下NUKE真3-0了
 
+
+*****
+
+####  zpl123  
+##### 3190#       发表于 2023-2-12 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这x队应对做得挺好的
+

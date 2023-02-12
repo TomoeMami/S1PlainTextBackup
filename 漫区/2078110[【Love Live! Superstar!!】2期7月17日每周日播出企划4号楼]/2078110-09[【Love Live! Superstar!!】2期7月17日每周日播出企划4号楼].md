@@ -1237,3 +1237,14 @@ QQ图片20230212224438.jpg
 服了，是我登陆的时机不对？每次上老福特唐可可tag总能碰见憨批出没。。。 ...</blockquote>
 之前人家单人TAG自嗨“看不下去”想主持正义结果被嘴了越想越气<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 12130#       发表于 2023-2-12 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720106&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-02-12 23:30:48</a>
+之前人家单人TAG自嗨“看不下去”想主持正义结果被嘴了越想越气</blockquote>对这破软件快有心理阴影了，前年登上一次正好被推送忘了谁了在唐可可tag里控诉唐可可然后一击脱离，去年被动画创翻肚想去找点正常同人粮结果点进tag被某些人二创……按热度排序回顾下旧粮吧，前年那个可黑帖子还被顶那么高又给我看见了，妈的三创。这会怎么又出幺蛾子了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
