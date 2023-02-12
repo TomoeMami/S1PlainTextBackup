@@ -404,3 +404,18 @@ g2进决赛辣
 
 提前恭喜尼公子拿下卡托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dev2ce  
+##### 3181#       发表于 2023-2-12 07:28
+
+主要狙这个位置差距有点大，点子指挥一流，但当年去北美组队总是有原因的
+
+*****
+
+####  heseran  
+##### 3182#       发表于 2023-2-12 09:21
+
+不好说，估计是ban anubis和overpass吧，但是jabbi和teses最近有点变态的，就看哪边状态更好吧
+
