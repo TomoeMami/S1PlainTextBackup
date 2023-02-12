@@ -1638,3 +1638,14 @@ en塔明牌有女友的又不是没有，死不了的
 https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 原本希伯来语有五个，已经毕业了两个，算上这个是三个
 
+
+*****
+
+####  NBXX  
+##### 89#       发表于 2023-2-12 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59709306&amp;ptid=2117684" target="_blank">CarlSteve 发表于 2023-2-12 02:17</a>
+
+原本希伯来语有五个，已经毕业了两个，算上这个是三个</blockquote>
+原来Neo Sparkles和Emi Suika也毕业了，我看官号上还挂着他们俩的频道以为还在活动。
+

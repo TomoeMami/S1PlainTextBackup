@@ -1156,3 +1156,25 @@ pop talking根本就没编舞吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好说呢，二期有人都等1年了
 
+
+*****
+
+####  stygian  
+##### 12121#       发表于 2023-2-12 21:01
+
+补了下超次元，打铁这次还行，还能幻想下气短的问题能再解决一点<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12122#       发表于 2023-2-12 21:07
+
+硬上肯定能上，不行就多塞点给外包，再不行放着放着延期呗，就是可能影响卖碟跟后续live啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 12123#       发表于 2023-2-12 21:11
+
+应该不会有吧，要不年底演唱会也接不上啊
+
