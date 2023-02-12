@@ -686,3 +686,165 @@ x队心态被打崩了啊，真的可惜了
 
 先开为敬！
 
+
+*****
+
+####  liva  
+##### 3218#       发表于 2023-2-13 01:58
+
+让你们感受下让二追三
+
+*****
+
+####  heseran  
+##### 3219#       发表于 2023-2-13 02:02
+
+好不容易攒个长枪局敢call这种战术？傻逼吧
+
+*****
+
+####  doublehit  
+##### 3220#       发表于 2023-2-13 02:17
+
+前面打的不那么激进已经要准备握手了……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  奈纪亚美  
+##### 3221#       发表于 2023-2-13 02:19
+
+G2把天崩开局
+
+*****
+
+####  heseran  
+##### 3222#       发表于 2023-2-13 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721356&amp;ptid=1857369" target="_blank">doublehit 发表于 2023-2-13 02:17</a>
+前面打的不那么激进已经要准备握手了……</blockquote>
+第二回合说实话没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳烟送ak真是手枪局赢了后能做出的操作吗
+
+*****
+
+####  heseran  
+##### 3223#       发表于 2023-2-13 02:41
+
+艹，不看了，打的什么东西
+
+*****
+
+####  奈纪亚美  
+##### 3224#       发表于 2023-2-13 02:50
+
+完了呀，后面俩图G2很容易出问题啊
+
+*****
+
+####  咸鱼先生  
+##### 3225#       发表于 2023-2-13 02:56
+
+g214分不choke了，别来个bo5被连翻3局choke<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3226#       发表于 2023-2-13 02:56
+
+优势图池打完了，接下来不好说了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  laputah  
+##### 3227#       发表于 2023-2-13 02:56
+
+这X队 把把香蕉道扔一堆东西不进人的 G2也配合把把不从板子出去的 回去看DEMO要蛋疼了 
+
+*****
+
+####  liva  
+##### 3228#       发表于 2023-2-13 03:04
+
+香蕉道扔东西不进人不是什么新战术了。。很多队伍都一直在用，NAZI都经常用
+
+*****
+
+####  奈纪亚美  
+##### 3229#       发表于 2023-2-13 03:56
+
+来了来了！
+
+*****
+
+####  cwlo  
+##### 3230#       发表于 2023-2-13 04:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恭喜G2
+
+*****
+
+####  keleemo123  
+##### 3231#       发表于 2023-2-13 04:01
+
+瓜点！冲啊！！！！
+
+*****
+
+####  奈纪亚美  
+##### 3232#       发表于 2023-2-13 04:03
+
+卧槽，G2遗迹该不会练出来了吧
+
+*****
+
+####  米德  
+##### 3233#       发表于 2023-2-13 04:03
+
+恭喜g2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keleemo123  
+##### 3234#       发表于 2023-2-13 04:04
+
+jks！强！
+
+*****
+
+####  liva  
+##### 3235#       发表于 2023-2-13 04:04
+
+FAZE的遗迹都打不过G2，凭啥X队能打得过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+恭喜G2
+
+*****
+
+####  我是小卯  
+##### 3236#       发表于 2023-2-13 04:10
+
+ 本帖最后由 我是小卯 于 2023-2-13 04:35 编辑 
+
+恭喜恭喜~
+
+话说jks mvp应该稳了
+
+给了欧尼酱啊，也行，合理:）
+
+*****
+
+####  金馆长  
+##### 3237#       发表于 2023-2-13 04:11
+
+g2这气势真的是王朝开端啊 牛逼啊
+
+—— 来自 HUAWEI ANA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  天妇罗  
+##### 3238#       发表于 2023-2-13 04:37
+
+王朝！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

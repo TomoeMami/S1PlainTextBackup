@@ -1279,3 +1279,18 @@ chatgpt能火爆和产品一开始就用一种聊天机器人娱乐化的呈现�
 
 GPT是虚空终端，离线模型库就是罐装知识了，全对上了
 
+
+*****
+
+####  wszweill  
+##### 127#       发表于 2023-2-13 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714773&amp;ptid=2119233" target="_blank">晨曦之下 发表于 2023-2-12 02:51</a>
+
+这个世界从来不缺想法 只不过有想法的人大多没能力实现不了 
+
+chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
+单纯讨论chatpgt的话，中文互联网被百度等污染成啥样子了，能学出什么好玩意<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+就百度本体的搜索业务也是被骂多少年了，别的AI或许能指望，文本训练脱离了自己的土壤不就是搞笑呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
