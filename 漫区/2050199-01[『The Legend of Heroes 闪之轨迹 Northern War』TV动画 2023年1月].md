@@ -5981,3 +5981,17 @@ ED最后有变化。
 
 你上帝视觉当然利贝尔有它优势的地方而诺州啥都没有,但当事人觉得自己武德充沛又有什么问题
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 668#       发表于 2023-2-12 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59709941&amp;ptid=2050199" target="_blank">shamanda 发表于 2023-2-12 04:58</a>
+到底是罗根勾结结社还是团长勾结结社？
+
+这次他们对谈最后团长不是说在你看不到的地方一切早就开始了，我 ...</blockquote>
+不如说结社两头通吃吧，两头下注谁赢帮谁，要是谁都赢不了，那就嘴硬我在做实验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小丑用乐子人形象试图掩盖结社的谐星本质，嘴硬负责人，回城第一人
+结社早已从空轨时候的恐 怖组织变成谐星组织了，幻焰计划前前后后瞎忙活，最后还得宰相亲自来，要知耻
+
