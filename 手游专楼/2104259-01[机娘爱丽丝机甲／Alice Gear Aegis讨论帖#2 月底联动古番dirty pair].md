@@ -1659,3 +1659,11 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 什么信息都没有的新怪先派最精锐部队去探虚实挺正常的，总不能让民间女演员吃初见杀吧（虽然高难天天吃初见杀)
 
+
+*****
+
+####  江戸前ルナ  
+##### 274#         楼主| 发表于 2023-2-12 14:25
+
+看完个人绊剧情，这阿龙的性格也太臭了，也就晶乃这老好人护着她。这类人一般有个人拴住就好，比如四水的疯狗评价，但问题是“监护人”晶乃也拴不住<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
