@@ -80,3 +80,18 @@ w1748.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  gpx234mqx  
+##### 1555#       发表于 2023-2-12 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59712686&amp;ptid=1980597" target="_blank">阿姆罗二世 发表于 2023-2-12 12:41</a>
+
+这玩意太抽象了直接切割了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+type earth先不说看到后面直死魔眼就该认出来了吧
+
+这就是命运啊，即使种族不同，两人还是会相遇
+
