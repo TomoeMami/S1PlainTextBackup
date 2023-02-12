@@ -31,3 +31,13 @@
 
 原来伞是可以格挡的，有点意思
 
+
+*****
+
+####  conanoysq  
+##### 302#       发表于 2023-2-12 20:27
+
+这游戏真是冷得可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在pc上面eaplay明晚11点开始可以试玩10小时，把ea账号绑定Xgp就可以玩，新号开xgp只要8块，有兴趣想省钱的可以弄一个试试水
+
