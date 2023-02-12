@@ -23,3 +23,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近怕是有血光之灾啊
 
+
+*****
+
+####  花开安菲路  
+##### 7081#       发表于 2023-2-12 21:22
+
+好耶，白嫖10连双彩，今天没看live的补偿<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

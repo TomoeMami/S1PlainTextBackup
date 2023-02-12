@@ -82,3 +82,14 @@
 
    这游戏感觉跟卧龙是有点撞车的，不知道光荣为什么没阻止EA换个时间发
 
+
+*****
+
+####  415452356  
+##### 308#       发表于 2023-2-12 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718500&amp;ptid=2092050" target="_blank">你好s1 发表于 2023-2-12 21:12</a>
+
+这游戏感觉跟卧龙是有点撞车的，不知道光荣为什么没阻止EA换个时间发</blockquote>
+  2.16和3.3都能叫撞车？
+
