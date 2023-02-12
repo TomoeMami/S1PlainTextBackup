@@ -101,3 +101,14 @@
 
   已经在steam预载好的怎么通过eaplay识别出来然后进入10小时试玩？
 
+
+*****
+
+####  医生狼多  
+##### 310#       发表于 2023-2-12 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718663&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-12 21:28</a>
+2.16和3.3都能叫撞车？</blockquote>
+自己家的两个游戏就差半个月，还都是偏动作类的，当然算撞车……
+我估计是因为宣发分ea和微软管，两变没咋考虑到对面情况
+
