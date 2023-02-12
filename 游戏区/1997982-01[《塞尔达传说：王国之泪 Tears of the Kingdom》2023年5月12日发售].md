@@ -3349,3 +3349,15 @@ https://www.youtube.com/watch?v=3bKg7Onc46I&amp;ab_channel=Zeltik
 Zeltik发了新片，讨论的是DIY载具，然后 ...</blockquote>
 可能驱动力从冷兵器损坏变成了绿色能量耗尽，不知道螺旋能不能充电。。种种描述似乎把这套系统抬得很高，不像是随便加的甜点。可以想象有的地方没有直升机去不了，但车子怎么成为限制不好说，zeltik认为是需要载重。我最期待的依然是把这套系统放大，空岛粘在一起组成巨神兽（，大战城堡
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 940#       发表于 2023-2-12 17:31
+
+[https://www.youtube.com/watch?v= ... channel=MonsterMaze](https://www.youtube.com/watch?v=MIeMUMN-tfs&amp;ab_channel=MonsterMaze)
+
+Monster Maze出片，他这个视频讨论的第一点非常有意思：我之前只想到洛美人大迷宫是从天空掉下来的，但没想到这些迷宫似乎还可以重复升至空中？不知道这是不是游戏里的某种机制；最后关于阳光、影子方向和季节的分析也让人眼前一亮，虽然并不能完全解释初始台地城墙的矛盾，但，啊我就是喜欢这样学院派的塞学家！！
+
+相当期待他和zeltik强强联合的下个片<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+

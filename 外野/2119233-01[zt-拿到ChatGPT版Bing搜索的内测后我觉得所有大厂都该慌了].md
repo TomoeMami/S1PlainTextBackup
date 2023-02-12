@@ -864,3 +864,30 @@ bing还没被墙不就是因为愿意配合做一个特供版吗
 
 估计最大的作用是CIA拿来在全世界用小号才操纵舆论<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wddely  
+##### 85#       发表于 2023-2-12 17:22
+
+好，什么时候接入动森<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rsgdn  
+##### 86#       发表于 2023-2-12 17:23
+
+赛博大撕裂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲤鱼奶奶  
+##### 87#       发表于 2023-2-12 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59715800&amp;ptid=2119233" target="_blank">kurisu35 发表于 2023-2-12 17:19</a>
+
+还是解决不了垃圾内容问题
+
+—— 来自 S1Fun</blockquote>
+解决不了垃圾内容，但是可以慢慢把你们人类都训练成搞不清哪些内容是垃圾的垃圾嘛。
+
