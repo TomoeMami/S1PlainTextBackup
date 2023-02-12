@@ -1111,3 +1111,16 @@ edge起飞，百度算什么东西连google都不如。
 ----发送自 STAGE1 App for Android.</blockquote>
 有一说一, 这个能用new bing的bing.com基本等同于墙了啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ccchirose  
+##### 112#       发表于 2023-2-12 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714468&amp;ptid=2119233" target="_blank">朝游北海 发表于 2023-2-12 15:23</a>
+
+不太懂这方面的，问一下训练完的模型如果厂家想加广告和卖搜索排名怎么办？ ...</blockquote>
+这就是微软作为后来者的底气和优势了，广告是谷歌的命脉，微软可不在乎。本来bing在搜索引擎市场上就没啥占有率，能狙击谷歌就行了，没必要搞广告和竞价排名。
+
+以后微软加载了chatGPT的new bing就不加广告，谷歌你看着办呗。
+
