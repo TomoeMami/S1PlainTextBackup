@@ -891,3 +891,52 @@ bing还没被墙不就是因为愿意配合做一个特供版吗
 —— 来自 S1Fun</blockquote>
 解决不了垃圾内容，但是可以慢慢把你们人类都训练成搞不清哪些内容是垃圾的垃圾嘛。
 
+
+*****
+
+####  zerobr  
+##### 88#       发表于 2023-2-12 17:33
+
+【接中央网信办通知，要求企业全面排查基于或实现类似chatGPT的产品、服务、功能”的情况，如有，需正式报备并接受监管部门安全评估，评估通过后可上线。如未经监管部门评估报备就上线，监管部门将采取处置措施。】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲤鱼奶奶  
+##### 89#       发表于 2023-2-12 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714658&amp;ptid=2119233" target="_blank">HZLJ 发表于 2023-2-12 15:41</a>
+
+可知乎现在就已经遍地答辩了啊
+
+是AI拉的屎，还是人类小编拉的屎，又有什么所谓呢 ...</blockquote>
+AI拉屎的速度和隐蔽性可就强多了，不像人类小编还去套模版
+
+*****
+
+####  哈扎马  
+##### 90#       发表于 2023-2-12 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59715437&amp;ptid=2119233" target="_blank">maritimus 发表于 2023-2-12 16:48</a>
+
+和chatgpt没有本质区别，还是会一本正经的唬人。折现率那个，首先它自己公式带错了，其次用它的公式算：</blockquote>
+这几天各大平台水军浓度过高，看破不说破<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  battleship64  
+##### 91#       发表于 2023-2-12 17:41
+
+没事，反正谷歌同学多，希望好死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Dreki  
+##### 92#       发表于 2023-2-12 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714594&amp;ptid=2119233" target="_blank">H2Ofrozen 发表于 2023-2-12 15:35</a>
+waitlist怎么排了一天还没排到</blockquote>
+我都排了好几天了，慢慢等吧
+
