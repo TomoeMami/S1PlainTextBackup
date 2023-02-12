@@ -654,3 +654,27 @@ x队心态被打崩了啊，真的可惜了
 
 术士跟昨天树懒都是，之前稳了那么久，突然一局隐身，可惜
 
+
+*****
+
+####  doublehit  
+##### 3214#       发表于 2023-2-13 01:30
+
+我怎么感觉这g2只要四个大哥不拉垮就是auto win啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  奈纪亚美  
+##### 3215#       发表于 2023-2-13 01:31
+
+两爹平，三爹四爹随便赢啊
+
+*****
+
+####  heseran  
+##### 3216#       发表于 2023-2-13 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721162&amp;ptid=1857369" target="_blank">doublehit 发表于 2023-2-13 01:30</a>
+我怎么感觉这g2只要四个大哥不拉垮就是auto win啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩人拉出来把对面中路3个人转完了怎么打嘛
+

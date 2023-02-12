@@ -1277,3 +1277,15 @@ QQ图片20230212224438.jpg
 
 是台本啊，观众喊鲤酱都把nagi整懵了笑死
 
+
+*****
+
+####  ruffian  
+##### 12134#       发表于 2023-2-13 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720686&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-02-13 00:19:33</a></blockquote>乐子不止这些，我昨天晚上看匿名网站的时候，正好新帖底下第一个推荐就是可ur换头那个帖，随手点进去看了眼，本来一周多之前的旧帖多半不会再有人来了的，结果阴差阳错正好看见10点半左右有个破防人搁那连发三条癫，这人跟老福特那只幺蛾子百分百一个人话术都一样……
+你提醒之后我闲的爬到老福特那个p图的看了眼，就，怎么说呢……评论区就他一个人在撒泼打滚，还被怼到无话可说，然后时间显示两天前又跑过来让可推给香音p图？结果根本没人理他，于是昨天10点多终于绷不住了跑到匿名网站发癫，老福特两个2.6的评论他当初不回现在才质问人家，然后又打着唐可可的tag单独发帖跳脸，而且帖子和自己的评论各有1个赞整整齐齐也不知道是不是他自己点的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太草了也，怎么能有人破防成这样的，感觉像演的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
