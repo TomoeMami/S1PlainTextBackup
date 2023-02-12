@@ -1248,3 +1248,16 @@ QQ图片20230212224438.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 12131#       发表于 2023-2-13 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720210&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-12 23:39</a>
+
+对这破软件快有心理阴影了，前年登上一次正好被推送忘了谁了在唐可可tag里控诉唐可可然后一击脱离，去年被 ...</blockquote>
+上周有人把可可那张UR，P成了可单人挂loft（原帖连LL和liela的词条都没挂，就挂个可可的词条）；
+
+它“看不惯”想汴京，没出几楼就开始滑坡、查成分、摆资历、爆其他平台ID来信砍，最为经典的就是说你这么P是毁掉了他人和可可的美好回忆。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和S2E9刚出的时候“得到了堇的爱”可以并列第一了。
+
