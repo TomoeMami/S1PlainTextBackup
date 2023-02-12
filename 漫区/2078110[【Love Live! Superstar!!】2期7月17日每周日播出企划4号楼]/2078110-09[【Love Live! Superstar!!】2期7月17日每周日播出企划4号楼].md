@@ -1226,3 +1226,14 @@ QQ图片20230212224438.jpg
 
 服了，是我登陆的时机不对？每次上老福特唐可可tag总能碰见憨批出没。。。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 12129#       发表于 2023-2-12 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59719753&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-12 23:04</a>
+
+服了，是我登陆的时机不对？每次上老福特唐可可tag总能碰见憨批出没。。。 ...</blockquote>
+之前人家单人TAG自嗨“看不下去”想主持正义结果被嘴了越想越气<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

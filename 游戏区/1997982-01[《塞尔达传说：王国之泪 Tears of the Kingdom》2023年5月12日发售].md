@@ -3442,3 +3442,18 @@ botw基本是高度越高温度越低，但是这次有天空城了，空中飞�
 
 hmv再次反映了立本人网站做得是什么屎<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">百度搜了下还不是个例，还得写邮件给客服解决
 
+
+*****
+
+####  sdh45e6  
+##### 947#       发表于 2023-2-12 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59710172&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-12 07:45</a>
+
+看了下COMG，昨天是21P，两天加起来59P了，明天就要超过马上发售的卡比了而且目前收藏版比普通版点 ...</blockquote>
+FF16感觉没啥吸引人的特点
+
+感觉就是大杂汇
+
+连"开放世界"都没有大杂汇
+
