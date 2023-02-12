@@ -8593,3 +8593,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 只能说蘑菇愿意的话，能够用文字捧出任意一个角色，甚至写了一半三破都不交代，也能靠着找个好画师来维持人气。饭圈真是给玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5305#       发表于 2023-2-12 13:35
+
+2.7最有魅力的两个男人一个立绘烂了一个没进卡池
+
+要不是立绘太抽象烟雾镜应该也能有奥伯龙水平的人气吧，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
