@@ -923,3 +923,18 @@ back number又是你</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cqc1021  
+##### 12097#       发表于 2023-2-12 11:43
+
+三次元小偶像一堆说喜欢back number的，这样显得自己又时尚又有品位，比说喜欢J舍效果好得多。只能说，二刺螈不够包容<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12098#       发表于 2023-2-12 11:50
+
+我倒是觉得对人家喜欢啥指指点点的人比较奇怪啦<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
