@@ -913,3 +913,13 @@ back number又是你</blockquote>
 
 喜欢邦摇有什么新鲜的……
 
+
+*****
+
+####  愛さ実  
+##### 12096#       发表于 2023-2-12 11:36
+
+玩摇滚的懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得眼圈都红了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
