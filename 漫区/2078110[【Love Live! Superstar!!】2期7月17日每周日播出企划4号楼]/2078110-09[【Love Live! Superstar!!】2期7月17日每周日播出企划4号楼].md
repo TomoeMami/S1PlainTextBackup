@@ -1089,3 +1089,28 @@ pop talking根本就没编舞吧
 
 明天能听二专的歌了，鱼的mv什么时候出啊，快乐一起来吧
 
+
+*****
+
+####  稀勢のささ  
+##### 12114#       发表于 2023-2-12 20:37
+
+你鱼这首yellow听的时候只是觉得还好，结果有几段旋律时不时就擅自冒出来开始脑内再生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 12115#       发表于 2023-2-12 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年应该没有星3动画了吧，隔壁夜羽7月
+
+*****
+
+####  梶原ひかり  
+##### 12116#       发表于 2023-2-12 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718122&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2023-2-12 20:39</a>
+
+今年应该没有星3动画了吧，隔壁夜羽7月</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">十月呀..一年做两部TV动画 应该压力不大吧
+
