@@ -40,3 +40,11 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  startea15  
+##### 259#       发表于 2023-2-13 06:50
+
+楼友们都很强啊，我摆烂在1w2开外<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，完全不想凹
+
