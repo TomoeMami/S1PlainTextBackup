@@ -695,3 +695,63 @@ chatGPT这公司的体量可没百度大 百度自己没做出成果和运气可
 
 好了，还是那个老问题，你引用知乎，可知乎里有我胡说八道恶搞还被乐子人点到6000赞的回答啊。面对1000个答案，900个是胡说八道的时候，它要怎么甄别啊？现在还没开始大量搞信息污染呐
 
+
+*****
+
+####  不见不散  
+##### 69#       发表于 2023-2-12 16:02
+
+我感觉bing马上要墙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  bairn  
+##### 70#       发表于 2023-2-12 16:04
+
+new bing本来也没对国内开放，微软大量feature都因为法律问题只开放了有限的地区
+
+*****
+
+####  GoInDown  
+##### 71#       发表于 2023-2-12 16:04
+
+可预见的是百度或者谁或者一票企业会以版权保护的理由把巨硬墙出中国<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  宅方泉  
+##### 72#       发表于 2023-2-12 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714893&amp;ptid=2119233" target="_blank">不见不散 发表于 2023-2-12 16:02</a>
+
+我感觉bing马上要墙了
+
+----发送自 STAGE1 App for Android.</blockquote>
+bing还没被墙不就是因为愿意配合做一个特供版吗
+
+现在没被墙以后也不会被墙，只要愿意配合这点不变
+
+*****
+
+####  imhuay  
+##### 73#       发表于 2023-2-12 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714791&amp;ptid=2119233" target="_blank">kula01 发表于 2023-2-12 15:52</a>
+好了，还是那个老问题，你引用知乎，可知乎里有我胡说八道恶搞还被乐子人点到6000赞的回答啊。面对1000个答 ...</blockquote>
+有问题,你大量污染的话,慌的是知乎还是chatgpt,你要说知乎禁止爬虫,知乎刚刚还因为被引用股价涨了一波,真禁了慌的又是谁?另外现在是chatgpt主动在跟我们切割,而不是被我们禁止;另外经过之前几次AI事件,这些公司应该不可能把所有用户的输入都无脑拿来训练了,你想污染也只能局限在本次会话中,影响不到全局模型的
+
+*****
+
+####  mffx  
+##### 74#       发表于 2023-2-12 16:10
+
+不过此时，它的答案对不对，已经不重要了。它似乎强的一塌糊涂，它几乎拥有和人类一样的思维，去对话，去理解，还能以人类永远无法超越的效率，去查阅各种资料。它现在还有缺陷，但未来前途光明。这一刻，我们感觉我们仿佛在见证一个科技互联网行业的新的历史。最后，我们问了 New Bing，它是否会抢占同行的份额？（ ChatGPT 是不会回答这个问题的 ）它的回答，保守，但又自信。
+
+搜索引擎功能，对不对，不重要<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
