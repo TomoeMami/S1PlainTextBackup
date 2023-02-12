@@ -129,3 +129,11 @@
 
 —— 来自 vivo V2183A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  要嗝屁了  
+##### 844#       发表于 2023-2-12 18:58
+
+但是这样的话 自动46+ 和110+跃入怎么安排啊  死掉的队伍没法支援 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 没法1234主力5队杀王了吗
+
