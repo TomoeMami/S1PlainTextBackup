@@ -1190,3 +1190,26 @@ chatGPT本身就做了信息过滤，一开始还有不少政治不正确的回�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试用了一下感觉只是从 chatGPT 的漫天吹水瞎编变成了有理有据的瞎编，关键是这个引擎相当于把判断内容是否优质和准确的权力从搜索者手中交到了 AI 手中，而 AI 是不会学习的，它认为正确可能只是因为执此词的人比较多，等现在人们对这种问答式搜索引擎的新鲜劲一过，怎么深耕内容保证内容正确性可能是下一个问题，毕竟搜索引擎保证内容正确性是第一位
 
+
+*****
+
+####  d2loader  
+##### 119#       发表于 2023-2-13 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720472&amp;ptid=2119233" target="_blank">水也 发表于 2023-2-12 23:58</a>
+
+试用了一下感觉只是从 chatGPT 的漫天吹水瞎编变成了有理有据的瞎编，关键是这个引擎相当于把判断内 ...</blockquote>
+别说正确性了，百度知道和知乎提出版权问题怎么办
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 微软大概率会出钱买
+
+*****
+
+####  鲤鱼奶奶  
+##### 120#       发表于 2023-2-13 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720472&amp;ptid=2119233" target="_blank">水也 发表于 2023-2-12 23:58</a>
+
+试用了一下感觉只是从 chatGPT 的漫天吹水瞎编变成了有理有据的瞎编，关键是这个引擎相当于把判断内 ...</blockquote>
+到时候wikipedia可就值大钱了。
+

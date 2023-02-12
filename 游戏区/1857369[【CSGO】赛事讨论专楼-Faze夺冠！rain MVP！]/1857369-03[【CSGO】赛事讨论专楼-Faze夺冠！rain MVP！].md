@@ -498,3 +498,55 @@ G2拿不下NUKE真3-0了
 
 来了来了
 
+
+*****
+
+####  奈纪亚美  
+##### 3193#       发表于 2023-2-13 00:04
+
+先下一城避免0封
+
+*****
+
+####  cwlo  
+##### 3194#       发表于 2023-2-13 00:04
+
+精彩啊
+
+*****
+
+####  米德  
+##### 3195#       发表于 2023-2-13 00:05
+
+满足了 不被零封 可以睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3196#       发表于 2023-2-13 00:05
+
+残局确实送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过g2这种机会是真能靠个人能力接得住也是牛逼
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  liva  
+##### 3197#       发表于 2023-2-13 00:05
+
+欧尼酱太特么牛逼了
+
+*****
+
+####  heseran  
+##### 3198#       发表于 2023-2-13 00:07
+
+点子哥杀了两次jabbi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这难道也是伏笔吗
+
+*****
+
+####  keleemo123  
+##### 3199#       发表于 2023-2-13 00:08
+
+尼酱！！！！！！
+
