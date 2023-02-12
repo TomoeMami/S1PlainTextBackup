@@ -1114,3 +1114,37 @@ pop talking根本就没编舞吧
 今年应该没有星3动画了吧，隔壁夜羽7月</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">十月呀..一年做两部TV动画 应该压力不大吧
 
+
+*****
+
+####  cybernetics31  
+##### 12117#       发表于 2023-2-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718160&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2023-2-12 20:42</a>
+十月呀..一年做两部TV动画 应该压力不大吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹ova 夜羽tv 星三连着做的话怕不是制作现场要炸了
+
+*****
+
+####  starring  
+##### 12118#       发表于 2023-2-12 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718160&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2023-2-12 20:42</a>
+
+十月呀..一年做两部TV动画 应该压力不大吧</blockquote>
+连轴那么多部要累死三癞子的staff，闪哈2，种，还有未知是否做50集的水魔，创系列十周年等等，怕不是要献祭哪个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 12119#       发表于 2023-2-12 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59718177&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2023-2-12 20:43</a>
+
+虹ova 夜羽tv 星三连着做的话怕不是制作现场要炸了</blockquote>
+虹OVA撑死也就 两集到三集TV动画的时长..重点还是幻日 和 星三
+
+去年二组可是直接做了四月的虹咲2 七月的星2..问题也不大 
+
+今年十月直接星3 一点难度都没有吧 总不能让3月选出的三期生等快半年以上吧
+
