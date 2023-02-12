@@ -1098,3 +1098,16 @@ edge起飞，百度算什么东西连google都不如。
 
 不过当时ai应该还差的很远，当初做这个描述的人是在纯粹做科幻设想？亏我当时还以为他们已经可以做到七七八八了
 
+
+*****
+
+####  Lisylfn  
+##### 111#       发表于 2023-2-12 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714893&amp;ptid=2119233" target="_blank">不见不散 发表于 2023-2-12 16:02</a>
+
+我感觉bing马上要墙了
+
+----发送自 STAGE1 App for Android.</blockquote>
+有一说一, 这个能用new bing的bing.com基本等同于墙了啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

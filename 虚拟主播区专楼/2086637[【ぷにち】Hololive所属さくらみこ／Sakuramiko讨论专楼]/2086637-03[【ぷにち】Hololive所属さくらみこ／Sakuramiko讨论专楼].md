@@ -14129,3 +14129,11 @@ holocure的新角色自有技能绝赞中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时间好紧凑啊
 
+
+*****
+
+####  神澈  
+##### 4302#       发表于 2023-2-12 19:34
+
+一个长方形的场景，为什么镜头要设置在长边的墙上？放短边的墙上视野不是更远吗？
+
