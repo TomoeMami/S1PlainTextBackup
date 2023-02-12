@@ -1124,3 +1124,17 @@ edge起飞，百度算什么东西连google都不如。
 
 以后微软加载了chatGPT的new bing就不加广告，谷歌你看着办呗。
 
+
+*****
+
+####  pistossss  
+##### 113#       发表于 2023-2-12 19:58
+
+<img src="https://img.saraba1st.com/forum/202302/12/195833aizke78upex89yl6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-02-12-12-57-55-384-edit_com.opera.browser.jpg</strong> (187.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-12 19:58 上传
+
