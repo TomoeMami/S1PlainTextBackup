@@ -545,3 +545,22 @@ ios下载的话是切换到繁中服找app store吗
 —— 来自 Xiaomi M2102J2SC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 我台服可以
 
+
+*****
+
+####  alucardcz  
+##### 918#       发表于 2023-2-12 15:41
+
+建议各位别想着什么直连  
+
+这游戏迷的很 新号刚玩能直连一段时间后就会403。。也不知道为什么
+
+这次开中文突然能直连了 但不保证哪天又莫名其妙403了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rsa1zc  
+##### 919#       发表于 2023-2-12 15:48
+
+能否直连和所在区域，网络运营商都有关<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
