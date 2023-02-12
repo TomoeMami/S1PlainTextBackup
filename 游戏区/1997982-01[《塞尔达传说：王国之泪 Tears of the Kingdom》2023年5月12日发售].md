@@ -3410,3 +3410,17 @@ botw基本是高度越高温度越低，但是这次有天空城了，空中飞�
 
 已经不敢看塞学家的片了，一切都留给三个月后，本来说四月再复健的，这下每天一小时狠狠逛图了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 944#       发表于 2023-2-12 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59717674&amp;ptid=1997982" target="_blank">lanyu_u 发表于 2023-2-12 19:59</a>
+雪地的消失我猜和这次的温度机制变化有关系。
+
+botw基本是高度越高温度越低，但是这次有天空城了，空中飞行 ...</blockquote>
+其实就是把游戏里的海利亚套装穿英杰服里面了，我一开始还以为是回归锁子甲的老设定，不过你这么一讲我感觉也很有道理！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
