@@ -1041,3 +1041,11 @@ pop talking根本就没编舞吧
 
 麦真不行，导播行。守恒定理了
 
+
+*****
+
+####  稀勢のささ  
+##### 12108#       发表于 2023-2-12 16:24
+
+<blockquote>さゆの心の支えは俺たちじゃなくてback numberだし</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
