@@ -3336,3 +3336,16 @@ Zeltik发了新片，讨论的是DIY载具，然后我边看边想，这应该�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nma  
+##### 939#       发表于 2023-2-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59709883&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-12 04:42</a>
+
+https://www.youtube.com/watch?v=3bKg7Onc46I&amp;ab_channel=Zeltik
+
+Zeltik发了新片，讨论的是DIY载具，然后 ...</blockquote>
+可能驱动力从冷兵器损坏变成了绿色能量耗尽，不知道螺旋能不能充电。。种种描述似乎把这套系统抬得很高，不像是随便加的甜点。可以想象有的地方没有直升机去不了，但车子怎么成为限制不好说，zeltik认为是需要载重。我最期待的依然是把这套系统放大，空岛粘在一起组成巨神兽（，大战城堡
+
