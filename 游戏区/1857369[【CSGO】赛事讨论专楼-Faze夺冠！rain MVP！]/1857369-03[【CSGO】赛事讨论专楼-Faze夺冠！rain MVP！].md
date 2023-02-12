@@ -678,3 +678,11 @@ x队心态被打崩了啊，真的可惜了
 我怎么感觉这g2只要四个大哥不拉垮就是auto win啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩人拉出来把对面中路3个人转完了怎么打嘛
 
+
+*****
+
+####  奈纪亚美  
+##### 3217#       发表于 2023-2-13 01:47
+
+先开为敬！
+
