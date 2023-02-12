@@ -59,3 +59,24 @@ w1748.jpg
 
 <img src="https://img.saraba1st.com/forum/202302/12/123045yqkjjajz7fj8srb0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿姆罗二世  
+##### 1554#       发表于 2023-2-12 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59712573&amp;ptid=1980597" target="_blank">gpx234mqx 发表于 2023-02-12 12:32:10</a>
+忘帖了
+
+七章遗像
+
+恐龙人的直死和白
+
+あの远い夜の日に
+
+わたしのトモダチはテペウ兄と、
+
+いつも见守って ...</blockquote>这玩意太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直接切割了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
