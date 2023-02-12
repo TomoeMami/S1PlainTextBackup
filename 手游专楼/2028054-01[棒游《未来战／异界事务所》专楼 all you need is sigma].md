@@ -111,3 +111,11 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  消失的八月  
+##### 842#       发表于 2023-2-12 12:10
+
+新的跃入系统看不懂呢，怎么只有我第一个队伍在打？
+
