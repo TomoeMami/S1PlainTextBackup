@@ -3361,3 +3361,30 @@ Monster Maze出片，他这个视频讨论的第一点非常有意思：我之�
 
 相当期待他和zeltik强强联合的下个片<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 941#       发表于 2023-2-12 19:16
+
+法国任天堂给零售商准备的#塞尔达传说王国之泪# 首周出货数量
+普通实体版：800000
+限定版：12000
+林克amiibo：15000
+
+普通版的80万份也是迄今为止任天堂在法国地区最大的首周出货，说明法任还是比较看好这款游戏的首发表现的。
+
+其余一些在法国首周出货比较多的NS游戏，供参考：
+宝可梦朱紫 - 715000
+宝可梦剑盾 - 715000
+宝可梦珍钻复刻 - 710000
+精灵宝可梦 Let's Go- 640000
+任天堂明星大乱斗 特别版 - 450000
+斯普拉遁 3 - 400000
+
+Twi：nintendalerts
+
+之前传的80万出货，可以跟其他游戏的数据做个对比<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1059,3 +1059,30 @@ waitlist怎么排了一天还没排到</blockquote>
 
 edge起飞，百度算什么东西连google都不如。
 
+
+*****
+
+####  ZHUzx0219  
+##### 107#       发表于 2023-2-12 19:14
+
+我能想到比较好的结局就是那些大的内容社区选择效仿微软给chatgpt投钱定制一个自己社区版的ai问答助手。
+
+—— 来自 HUAWEI ABR-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  深蓝巫妖  
+##### 108#       发表于 2023-2-12 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59714332&amp;ptid=2119233" target="_blank">TI三冠王AME 发表于 2023-02-12 15:08:50</a>
+值得期待，赶紧把垃圾百度干烂</blockquote>百度亲爹是那堵墙，干不死的…………
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  onezeron  
+##### 109#       发表于 2023-2-12 19:17
+
+我不知道是不是我的问题，我玩的时候，玩着玩着就玩不到他厉害的一面，为啥这些新闻都可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
