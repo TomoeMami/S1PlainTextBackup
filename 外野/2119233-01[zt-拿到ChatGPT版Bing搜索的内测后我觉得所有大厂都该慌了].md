@@ -1596,3 +1596,36 @@ chatGPT来中国应该能拯救现在的搜索引擎，利空小红书等一切U
 
 UGC的内容是包罗万象的，不是只有前沿科技发展 才是“内容”
 
+
+*****
+
+####  同醉  
+##### 157#       发表于 2023-2-13 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726563&amp;ptid=2119233" target="_blank">アトラクナクア 发表于 2023-2-13 14:03</a>
+
+早该死死了，社会上除了一线采访的记者和前沿科技的科学家在出新东西，剩下在互联网上折腾的哪一个不是你 ...</blockquote>
+那怎么覆盖所有用户的需求？如果现在的问答网站，百科网站，游戏攻略类网站都倒闭了，AI能解决问题嘛？
+
+*****
+
+####  アトラクナクア  
+##### 158#       发表于 2023-2-13 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726639&amp;ptid=2119233" target="_blank">HZLJ 发表于 2023-2-13 14:10</a>
+
+太傲慢了
+
+UGC的内容是包罗万象的，不是只有前沿科技发展 才是“内容”</blockquote>
+刚才说了啊。除了科研期刊，地球上所有图书馆都喂进去不比几个科普号包罗万象。有新产品喂说明书就行。
+
+*****
+
+####  アトラクナクア  
+##### 159#       发表于 2023-2-13 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726701&amp;ptid=2119233" target="_blank">同醉 发表于 2023-2-13 14:13</a>
+
+那怎么覆盖所有用户的需求？如果现在的问答网站，百科网站，游戏攻略类网站都倒闭了，AI能解决问题嘛？ ...</blockquote>
+问答百科用图书馆和期刊的信息薄纱啊。攻略可以归类到说明书一类。剩下的不用太严谨的，可以和ai绘画一样驯化用户让他们缩小需求。
+
