@@ -4376,3 +4376,13 @@ steam又买了一份支持一下
 
 [https://www.youtube.com/watch?v=THldsFkKwNs](https://www.youtube.com/watch?v=THldsFkKwNs)
 
+
+*****
+
+####  Booorunestud  
+##### 422#       发表于 2023-2-13 09:21
+
+一周目最高难度打到红毛了，每关死十几次总评价D
+
+不知道后期有没有魔女那样的刷评价捷径
+
