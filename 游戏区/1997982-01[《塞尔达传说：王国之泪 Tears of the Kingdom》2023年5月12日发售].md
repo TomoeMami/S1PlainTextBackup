@@ -3577,3 +3577,52 @@ FF16感觉没啥吸引人的特点
 这次我吸取上次教训，什么情报都不看。
 免得和上次一样，被公主是黑的是最终boss这种假剧透骗了。
 
+
+*****
+
+####  lanyu_u  
+##### 960#       发表于 2023-2-13 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732798&amp;ptid=1997982" target="_blank">勿徊哉 发表于 2023-2-13 21:32</a>
+
+这次我吸取上次教训，什么情报都不看。
+
+免得和上次一样，被公主是黑的是最终boss这种假剧透骗了。 ...</blockquote>
+是说这种结局么？
+
+<img src="https://img.saraba1st.com/forum/202302/13/224440g83w3u3ic8daaaiy.png" referrerpolicy="no-referrer">
+
+<strong>20de38c263f3092e14185a698d347fde1847193523.png</strong> (140.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:44 上传
+
+再说黑的也挺可爱的吧。
+
+<img src="https://img.saraba1st.com/forum/202302/13/224447t3r2xmxd2vrzrrzr.png" referrerpolicy="no-referrer">
+
+<strong>FMpm8TBVIAIJFPe.png</strong> (137.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:44 上传
+
+附赠两张搞笑的图
+
+<img src="https://img.saraba1st.com/forum/202302/13/224451qhqaazyckhzhrhs0.png" referrerpolicy="no-referrer">
+
+<strong>FmUL-QmaEAA6PQ-.png</strong> (87.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:44 上传
+
+<img src="https://img.saraba1st.com/forum/202302/13/224455x33ssuhgu5zlpjfw.png" referrerpolicy="no-referrer">
+
+<strong>Fl3jC4eaYAAEiX-.png</strong> (587.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:44 上传
+

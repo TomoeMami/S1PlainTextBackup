@@ -14396,3 +14396,14 @@ holocure的新角色自有技能绝赞中
 
 反正ASMR肯定会有
 
+
+*****
+
+####  rs5621  
+##### 4328#       发表于 2023-2-13 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732862&amp;ptid=2086637" target="_blank">神澈 发表于 2023-2-13 21:38</a>
+
+在486直播里出声了？哪段？</blockquote>
+[https://youtu.be/kGCJuuSFpbM?t=362](https://youtu.be/kGCJuuSFpbM?t=362)
+
