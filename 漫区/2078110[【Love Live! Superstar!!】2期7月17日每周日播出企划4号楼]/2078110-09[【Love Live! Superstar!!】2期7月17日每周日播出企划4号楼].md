@@ -1453,3 +1453,14 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 说明运营非常的公平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和解了呢
 
+
+*****
+
+####  懂你意思  
+##### 12151#       发表于 2023-2-13 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721211&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-13 01:40</a>
+
+乐子不止这些，我昨天晚上看匿名网站的时候，正好新帖底下第一个推荐就是可ur换头那个帖，随手点进去看了眼 ...</blockquote>
+上老福特看了眼id挺眼熟的，当时生放的时候鲤群里有人表达了对双人卡面的不满就被他打成可毒唯了，平时也没少因为可堇在群里和人辩，极端可堇推吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
