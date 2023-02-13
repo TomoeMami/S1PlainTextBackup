@@ -736,3 +736,11 @@ ios下载的话是切换到繁中服找app store吗
 
 —— 来自 Lenovo TB-9707F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  PunkEgg  
+##### 937#       发表于 2023-2-13 20:58
+
+爱上了求而不得，刷初始的感觉，千万别出孔明or旗袍妹
+
