@@ -9007,3 +9007,15 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  eilot  
+##### 5345#       发表于 2023-2-14 00:13
+
+ 本帖最后由 eilot 于 2023-2-14 00:16 编辑 
+
+十张符，好久不见灰卡变金卡，但金枪于出了芬恩...
+
+刚好宝5了
+

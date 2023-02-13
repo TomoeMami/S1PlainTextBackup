@@ -411,3 +411,18 @@ Matt Frank
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  theworld  
+##### 339#       发表于 2023-2-14 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">动作模组感觉忍者组有帮忙，场景也挺好，其他方面有点一言难尽
+
+*****
+
+####  h122h  
+##### 340#       发表于 2023-2-14 00:17
+
+把画质从最高拉到中了，还是一样卡，什么鬼……
+

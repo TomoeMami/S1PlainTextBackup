@@ -1546,3 +1546,17 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这广播，nico源卡的要死，A&amp;Ｇ经典渣画质
 
+
+*****
+
+####  player3960  
+##### 12161#       发表于 2023-2-14 00:20
+
+今晚鹫叔广播翻唱：
+
+ファンサ
+
+世界は恋に落ちている
+
+然后各种人设段子玩了个遍，真是情人节福利大放送<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
