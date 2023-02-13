@@ -8939,3 +8939,35 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 我这次2.7总共3五星1雨神，&amp;#x662 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹言
 
+
+*****
+
+####  alucardcz  
+##### 5339#       发表于 2023-2-13 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732690&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-13 21:22</a>
+
+只有我没出五星了是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你有高宝雨神 我都没有雨神 欧羡慕
+
+*****
+
+####  qixinno2  
+##### 5340#       发表于 2023-2-13 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732951&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 21:48</a>
+
+你有高宝雨神 我都没有雨神 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新不当人子
+
+
+*****
+
+####  alucardcz  
+##### 5341#       发表于 2023-2-13 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732962&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-13 21:49</a>
+
+狗萌新不当人子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我什么妖高妖崔也都没有 欧羡慕
+

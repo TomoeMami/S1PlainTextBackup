@@ -1515,3 +1515,17 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 今天手渡会有Miracle Chocolate Night的完整版，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 12158#       发表于 2023-2-13 21:42
+
+<img src="https://img.saraba1st.com/forum/202302/13/214216wxi0zr0hn8exyh3s.png" referrerpolicy="no-referrer">
+
+<strong>F83FB195-2B66-44BD-B254-229B3A7E352B.png</strong> (415.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 21:42 上传
+
