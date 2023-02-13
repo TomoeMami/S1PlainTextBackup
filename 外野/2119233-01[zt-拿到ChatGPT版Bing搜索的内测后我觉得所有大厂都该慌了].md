@@ -1364,3 +1364,33 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 其实能做到"帮我在点评上搜个性价比不错, 合适约会的餐厅预约下", 我估计愿意付费的人就不少了.
 
+
+*****
+
+####  水也  
+##### 135#       发表于 2023-2-13 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59724459&amp;ptid=2119233" target="_blank">Viteeee 发表于 2023-2-13 11:25</a>
+
+你说得有道理，这种聊天式的界面确实有可能会让用户忘了对面只是个高配版弱智小冰，不是真正理解了信息内 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以人对物体的抽象能力是很强的，很多人没玩过 深度学习 或者 自然语言处理 ，对于 chatGPT 感到新奇是正常的，但是对这种产品的感觉不应该过于抽象，有的人真的以为现在这玩意儿就是未来私人助手的雏形，需要什么直接问就行了，然后试用之后发现这玩意儿说出的东西只是乱编的让你觉得它是真的会了，其实从底层来看这东西就是一堆自然语言的模糊模仿，底层其实远没有那么高深，就跟 AI 照着一副油画在创作一样，画出来确实像模像样，有的人就把他抽象成一位真正的画家，其实 AI 根本不知道自己在干啥，只是在模仿一位画家，离真正的画家远得很，这种问答式引擎也是在模仿一个万能人在回答你的问题，它根本不知道你在问什么，自己在答什么，而人们自然把它抽象成一位万能问答助手，矛盾就在这里
+
+*****
+
+####  Viteeee  
+##### 136#       发表于 2023-2-13 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59724648&amp;ptid=2119233" target="_blank">水也 发表于 2023-2-13 11:33</a>
+
+所以人对物体的抽象能力是很强的，很多人没玩过 深度学习 或者 自然语言处理 ，对于 chatGPT 感到 ...</blockquote>
+大概因为人类只能理解和自己相近的智能，所以在面对“看起来有智力”的东西时会自然的把对方抽象成另一个人？当然从科技公司不断给AI拟人化这点上看，显然也没什么刻意纠正用户的想法，反而是乐见其成的。
+
+从这个角度上说，chatgpt不断复读“我只是个语言模型”可以说是相当诚实了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangh  
+##### 137#       发表于 2023-2-13 11:40
+
+国内很容易被炸弹人玩坏吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
