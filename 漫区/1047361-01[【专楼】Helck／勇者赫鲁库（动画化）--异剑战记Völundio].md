@@ -57,3 +57,16 @@
 
 一般只落后生肉最新进度一话，最新生肉贴吧不定期会搬运
 
+
+*****
+
+####  03e7  
+##### 1043#       发表于 2023-2-13 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59723591&amp;ptid=1047361" target="_blank">瓦米里奥 发表于 2023-2-13 10:34</a>
+
+实在等不及的可以先看下英肉：https://mangakatana.com/manga/verndio-surreal-sword-saga.25082
+
+一般只落 ...</blockquote>
+贴吧那些生肉贴东一个西一个找得心烦，有没有哪里整合好的
+
