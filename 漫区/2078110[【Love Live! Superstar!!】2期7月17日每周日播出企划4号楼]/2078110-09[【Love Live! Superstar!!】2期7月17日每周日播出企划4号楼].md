@@ -1360,3 +1360,20 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 贵游要有丰厚的美术资源，每个月都能给每个角色供给目前公布水平的UR可以原谅一秒钟，但我不觉得做得到，等个把时间出了张图结果被挂羊头卖狗肉，啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这种过场CG水平的图麻烦让它待在它该出现的地方，出来骗钱以为自己很良心我要感动。2023还站桩到底的游戏，太涩了，连最好哄的FGO场景和特殊CG都是该拉满的就拉满的。
 
+
+*****
+
+####  saya1892  
+##### 12142#       发表于 2023-2-13 12:26
+
+从1期OPED发售活动到现在第一次听鲤鱼的麦这么大声，好不适应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话这场大家都太激动了声音没压稳，不过导播的镜头切得是真的稳
+
+*****
+
+####  player3960  
+##### 12143#       发表于 2023-2-13 12:30
+
+今晚又有健叔的广播，看看鲤鱼翻唱啥<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
