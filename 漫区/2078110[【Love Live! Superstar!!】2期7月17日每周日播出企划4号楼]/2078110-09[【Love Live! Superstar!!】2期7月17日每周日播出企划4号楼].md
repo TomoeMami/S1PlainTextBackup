@@ -1579,3 +1579,13 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 好像没人发推</blockquote>
 还有两次机会，虽然我觉得大概率还是不会有人发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  player3960  
+##### 12164#       发表于 2023-2-14 00:55
+
+话说Maaya和honeyworks都出现了，如果按之前鲤鱼烂铁广播的推荐的话，接下来两周该不会是kon和缪斯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

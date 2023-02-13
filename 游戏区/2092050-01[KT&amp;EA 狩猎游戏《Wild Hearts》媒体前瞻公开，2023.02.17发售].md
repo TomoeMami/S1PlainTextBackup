@@ -475,3 +475,40 @@ Matt Frank
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  猫不萌  
+##### 347#       发表于 2023-2-14 00:56
+
+打猎体验很新颖啊，可惜优化太拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanoysq  
+##### 348#       发表于 2023-2-14 00:56
+
+优化太渣了，因为掉帧，3060拉倒1080p全低都卡<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+视角问题和预想的一样非常严重，接近怪物后基本看不见怪物的动作，尤其是打琥珀主，用伞只能瞎鸡儿格挡，当然不排除不熟悉怪物攻击招式的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有些战斗场景也是各种石头台阶大斜坡地形非常复杂，在不熟悉地图的情况下容易被在不利地形被暴打，结合视角问题体验极差。
+
+有的场景过于复杂，打琥珀主最后的场地上琥珀光污染太多，观感不好。
+
+两小时锐评，不要和猛汉比，还是能得到武器动作系统新鲜感的快乐，只用了太刀和伞，手感突出一个飘，不能和猛汉一样一板一眼的扣动作。
+
+*****
+
+####  萱时令  
+##### 349#       发表于 2023-2-14 00:58
+
+意外的不错，这开放世界地图值得mh学习，自建营地自建设施
+
+*****
+
+####  nage560  
+##### 350#       发表于 2023-2-14 01:01
+
+nga和阿9都有很多人给好评啊，泥潭怎么画风不一样。
+

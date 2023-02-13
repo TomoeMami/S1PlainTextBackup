@@ -98,3 +98,14 @@
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  killcal  
+##### 7089#       发表于 2023-2-14 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735183&amp;ptid=1484979" target="_blank">moonmagian 发表于 2023-2-14 00:44</a>
+如果不计体力药/碎石头回体力的成本的话，开火收益最大的肯定还是全最高倍率打活动曲
+这么打活动道具会不 ...</blockquote>
+听起来怎么和周年差不多……但是我看又有额外的队伍pt……
+
