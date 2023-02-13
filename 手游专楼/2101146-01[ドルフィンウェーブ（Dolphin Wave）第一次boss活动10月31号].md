@@ -48,3 +48,15 @@
 
 楼友们都很强啊，我摆烂在1w2开外<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，完全不想凹
 
+
+*****
+
+####  MEKA  
+##### 260#       发表于 2023-2-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721215&amp;ptid=2101146" target="_blank">无念 发表于 2023-2-13 01:41</a>
+话说有伤害教程么，最简单的那种也行，我现在属于拿完抽卡券伤害就上不去了
+
+—— 来自 HONOR SDY-AN00, An ...</blockquote>
+可以看看243楼，楼主说的很详细了(不过实际操作可能要凸好久…)
+
