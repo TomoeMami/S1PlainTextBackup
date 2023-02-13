@@ -426,3 +426,35 @@ Matt Frank
 
 把画质从最高拉到中了，还是一样卡，什么鬼……
 
+
+*****
+
+####  advane  
+##### 341#       发表于 2023-2-14 00:24
+
+看了一下直播，动作画面演出真不错，有点心动了
+
+*****
+
+####  AEmpire  
+##### 342#       发表于 2023-2-14 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59734869&amp;ptid=2092050" target="_blank">h122h 发表于 2023-2-14 00:17</a>
+
+把画质从最高拉到中了，还是一样卡，什么鬼……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也是，画质从最高拉到低，帧数一点没变，喷了
+
+*****
+
+####  储安平  
+##### 343#       发表于 2023-2-14 00:26
+
+喷了，土耳其1199
+
+*****
+
+####  医生狼多  
+##### 344#       发表于 2023-2-14 00:32
+
+看上去优化又寄了，不论是主机还是4090都吐槽卡顿掉帧的……
+
