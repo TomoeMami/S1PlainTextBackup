@@ -1529,3 +1529,20 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 2023-2-13 21:42 上传
 
+
+*****
+
+####  lj205  
+##### 12159#       发表于 2023-2-13 23:05
+
+一开场就聊吃的
+
+看看今晚有没有人发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12160#       发表于 2023-2-13 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这广播，nico源卡的要死，A&amp;Ｇ经典渣画质
+
