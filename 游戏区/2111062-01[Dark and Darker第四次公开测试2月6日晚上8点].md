@@ -625,3 +625,12 @@ buff流感觉有点东西？看zard他们玩的一个法师一个牧师给野蛮
 
 如果外挂问题能解决，这游戏必然大火，只可惜几乎不可能
 
+
+*****
+
+####  hagenda4  
+##### 63#       发表于 2023-2-13 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731008&amp;ptid=2111062" target="_blank">战狼PTSD 发表于 2023-2-13 19:12</a></blockquote>
+提取码是啥？
+

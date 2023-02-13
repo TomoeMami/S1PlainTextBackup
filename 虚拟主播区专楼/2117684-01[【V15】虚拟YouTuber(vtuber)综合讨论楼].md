@@ -1681,3 +1681,19 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 
 本来嫌弃梨花老师“对阿宅温柔的辣妹”人设太土，现在看来确实需要有一个人在同期讲冷笑话的时候捧场
 
+
+*****
+
+####  格林卡罗尔  
+##### 94#       发表于 2023-2-13 22:00
+
+<img src="https://img.saraba1st.com/forum/202302/13/215950mntxy80kaz1m6eez.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230213215857.png</strong> (198.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 21:59 上传
+
+🦄＜PEXしたのか・・・俺以外のやつと・・・
+
