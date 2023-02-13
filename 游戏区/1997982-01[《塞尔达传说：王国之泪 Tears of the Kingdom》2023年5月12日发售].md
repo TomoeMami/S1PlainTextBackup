@@ -3522,3 +3522,15 @@ FF16感觉没啥吸引人的特点
 
 官网一般隔多久放货的？想买7700好像只有这一个渠道
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 955#       发表于 2023-2-13 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732178&amp;ptid=1997982" target="_blank">nma 发表于 2023-2-13 20:43</a>
+官网一般隔多久放货的？想买7700好像只有这一个渠道</blockquote>
+据说港服2月27号会再放一批货
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

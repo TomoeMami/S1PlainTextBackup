@@ -1411,3 +1411,16 @@ galgun啊，本家联动了属于是</blockquote>
 
 如果真要捏画廊库洛那大概连管家都混不上
 
+
+*****
+
+####  cmyk1234  
+##### 134#         楼主| 发表于 2023-2-13 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730566&amp;ptid=2085482" target="_blank">zooandtoo 发表于 2023-2-13 18:30</a>
+
+就第二关这融合怪来看房东位只有GALGUN男主能当了吧
+
+如果真要捏画廊库洛那大概连管家都混不上 ...</blockquote>
+既然开头是库落娜碰到镜子造出了城，那么房东位可能是镜子吧？但预告中库萝娜二阶段释放“接地雷电”就很让人在意。
+

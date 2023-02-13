@@ -14325,3 +14325,23 @@ holocure的新角色自有技能绝赞中
 
 [https://www.tokyoheadline.com/676123/4/](https://www.tokyoheadline.com/676123/4/)
 
+
+*****
+
+####  holoan  
+##### 4320#         楼主| 发表于 2023-2-13 21:10
+
+很奇怪
+
+现在这人到底在哪
+
+
+*****
+
+####  rs5621  
+##### 4321#       发表于 2023-2-13 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看486去了吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -332,3 +332,29 @@ ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都�
 
 这游戏真D尴尬，夹在一堆作品之间....
 
+
+*****
+
+####  Piano-Forest  
+##### 332#         楼主| 发表于 2023-2-13 21:06
+
+贺图
+
+开田 裕治
+<img src="https://p.sda1.dev/9/4406259211d0c865d1b53469fd4e7f37/illustS.webp" referrerpolicy="no-referrer">
+
+桃桃子（ぴーちももこ）
+<img src="https://p.sda1.dev/9/77e16a92f66d797785e334bdec3d1e1c/20230213_205700.jpg" referrerpolicy="no-referrer">
+
+泉朝树
+<img src="https://p.sda1.dev/9/3a39dfd50b6312a85ace1e7a6525f4ce/20230213_205802.jpg" referrerpolicy="no-referrer">
+
+hippo
+<img src="https://p.sda1.dev/9/09f01cff27cfdc545d0af6ef8cc05113/20230213_205807.jpg" referrerpolicy="no-referrer">
+
+Matt Frank
+<img src="https://p.sda1.dev/9/6f667a171294af2b5a8f73ad6e663ec0/20230213_205751.jpg" referrerpolicy="no-referrer">
+
+ユウキレイ
+<img src="https://p.sda1.dev/9/510f9c270ed93bcff7fac71aa4d81833/20230213_205757.jpg" referrerpolicy="no-referrer">
+
