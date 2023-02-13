@@ -8971,3 +8971,29 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 狗萌新不当人子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我什么妖高妖崔也都没有 欧羡慕
 
+
+*****
+
+####  qixinno2  
+##### 5342#       发表于 2023-2-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732974&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 21:50</a>
+
+说起来我什么妖高妖崔也都没有 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">四星都变成五星了是吧
+
+*****
+
+####  仰望神的括约肌  
+##### 5343#       发表于 2023-2-13 22:37
+
+呼符+几颗石头凑了个10连 一下来了俩 
+
+<img src="https://img.saraba1st.com/forum/202302/13/223600w2aqaszknj0nryya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-02-13-17-08-16-00_13e7a6b10873871.jpg</strong> (516.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:36 上传
+
