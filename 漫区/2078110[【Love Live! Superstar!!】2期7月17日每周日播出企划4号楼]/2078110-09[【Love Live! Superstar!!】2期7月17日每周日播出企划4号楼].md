@@ -1297,3 +1297,15 @@ QQ图片20230212224438.jpg
 
 之前我的感觉就是星三期明年一月概率最大，三月底完成选拔，素人培训需要时间，还有动画档期、制作方的人力、演唱会排期一系列问题，不排除年中fmt+minilive，下半年四巡这么安排，四巡结束公布新人和三期动画，生放外景刷三个月脸，1月开播，总之不能再像二期这样节奏观感都一泡污了
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12136#       发表于 2023-2-13 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59720962&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-13 00:55</a>
+是台本啊，观众喊鲤酱都把nagi整懵了笑死</blockquote>
+台本写的太尬了，说是大锅饭，铃原反复发言而nako没有专门的问题，yabu甚至都没张嘴（就当她是过于内向吧），说是贴近真实又搞出强行que彩妹这种操作，人家观众能出声了谁管你台本怎么编的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计台本作家不是LL御用那位，不然写不出这么尴尬的内容
+
