@@ -582,3 +582,11 @@ ios下载的话是切换到繁中服找app store吗
 
 主要刷了个带天使的6ssr的初始号，不想换了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真绯瑠之眷属  
+##### 922#       发表于 2023-2-13 10:06
+
+呱！剧情打着打着忘记刷初始了，现在完全不想刷了，四个ssr先用着吧。话说哪里有节奏榜，我想看下我这几个ssr什么水平，感觉好缺输出，全在靠两个奶撑回合数
+

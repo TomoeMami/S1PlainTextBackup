@@ -60,3 +60,15 @@
 —— 来自 HONOR SDY-AN00, An ...</blockquote>
 可以看看243楼，楼主说的很详细了(不过实际操作可能要凸好久…)
 
+
+*****
+
+####  MEKA  
+##### 261#       发表于 2023-2-13 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59719537&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2023-2-12 22:44</a>
+抽了那么多期，确实该休息攒攒了
+
+排位太卷了，我前排角色几乎都有也被踢出5000以外了，因为我赛蕾 ...</blockquote>
+也算好事啦，流水高游戏才长久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
