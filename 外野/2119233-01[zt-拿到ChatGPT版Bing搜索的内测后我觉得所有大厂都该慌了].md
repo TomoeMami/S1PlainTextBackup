@@ -1470,3 +1470,19 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 问题在于AI直接给答案以后谁还去其他网站，其他网站倒闭了AI又去哪里查答案，整个互联网生态都要变了
 
+
+*****
+
+####  warjuggler  
+##### 145#       发表于 2023-2-13 12:48
+
+<img src="https://img.saraba1st.com/forum/202302/13/124803igimp0oap1goa5p9.png" referrerpolicy="no-referrer">
+
+<strong>49d7f4d658140a5f35e86823354749d.png</strong> (152.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 12:48 上传
+
+刚用上了，没想到bing你也是op啊
+
