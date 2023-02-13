@@ -1435,3 +1435,13 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 —— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ruffian  
+##### 12149#       发表于 2023-2-13 16:31
+
+我都能想到到有些人会说什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

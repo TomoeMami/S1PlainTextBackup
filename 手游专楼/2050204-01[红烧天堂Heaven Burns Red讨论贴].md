@@ -706,3 +706,21 @@ ios下载的话是切换到繁中服找app store吗
 后面主线难度被砍过了 等级上限也增加了  满级基本没难度  打不过就睡觉练级 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，那就行，反正我也就看个剧情
 
+
+*****
+
+####  真绯瑠之眷属  
+##### 934#       发表于 2023-2-13 16:24
+
+看了下强度表，我运气真好，五个包括女主都是tire1，看来没人权还能再玩一会。话说角色等级的话只能晚上睡觉挂机竞技场吗
+
+*****
+
+####  小之星海果  
+##### 935#       发表于 2023-2-13 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59728731&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-2-13 16:24</a>
+
+看了下强度表，我运气真好，五个包括女主都是tire1，看来没人权还能再玩一会。话说角色等级的话只能晚上睡 ...</blockquote>
+棱镜战给很多经验，消耗体力的给经验都多
+
