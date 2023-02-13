@@ -605,3 +605,80 @@ xsx版，对帧数不敏感，但能感觉出来有些场景掉帧，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RinC  
+##### 360#       发表于 2023-2-14 01:51
+
+所以现在是普通EAplay和pro都是只能打10小时玩到村口而已是吗 那有没有买本体或者豪华版提前进村开进度的说法啊
+
+
+*****
+
+####  DJYDJYD  
+##### 361#       发表于 2023-2-14 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735666&amp;ptid=2092050" target="_blank">RinC 发表于 2023-2-14 01:51</a>
+
+所以现在是普通EAplay和pro都是只能打10小时玩到村口而已是吗 那有没有买本体或者豪华版提前进村开进度的说 ...</blockquote>
+应该无，之前看pro写着16号解锁机巧版，没写更多
+
+*****
+
+####  swordofsoul1  
+##### 362#       发表于 2023-2-14 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735666&amp;ptid=2092050" target="_blank">RinC 发表于 2023-2-14 01:51</a>
+所以现在是普通EAplay和pro都是只能打10小时玩到村口而已是吗 那有没有买本体或者豪华版提前进村开进度的说 ...</blockquote>
+pro能进村继续打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bm7号  
+##### 363#       发表于 2023-2-14 02:54
+
+steam销售排名上来了，准备买机巧版，打不过的时候招人来可以磕头。
+
+我2080ti+1080p显示器还能hold住光荣游戏。
+
+hdr还算能看，起码比仁王2强。
+
+跑图采集那一套做的有模有样了，不知道莱莎3能吸收多少。
+
+*****
+
+####  DJYDJYD  
+##### 364#       发表于 2023-2-14 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735804&amp;ptid=2092050" target="_blank">swordofsoul1 发表于 2023-2-14 02:33</a>
+
+pro能进村继续打
+
+—— 来自 S1Fun</blockquote>
+隔壁甚至有人说pro根本进不了游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/14/025755a2mvrrrr7ur3pz69.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 02:57 上传
+
+*****
+
+####  skyfaker305  
+##### 365#       发表于 2023-2-14 03:16
+
+我在steam买了不能进村吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhacaizn  
+##### 366#       发表于 2023-2-14 06:00
+
+云了下感觉这怪物ai真的怪，飞来飞去的
+

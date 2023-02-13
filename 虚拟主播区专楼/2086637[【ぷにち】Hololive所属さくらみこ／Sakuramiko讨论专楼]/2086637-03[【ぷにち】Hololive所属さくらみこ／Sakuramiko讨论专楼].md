@@ -14407,3 +14407,22 @@ holocure的新角色自有技能绝赞中
 在486直播里出声了？哪段？</blockquote>
 [https://youtu.be/kGCJuuSFpbM?t=362](https://youtu.be/kGCJuuSFpbM?t=362)
 
+
+*****
+
+####  rs5621  
+##### 4329#       发表于 2023-2-14 05:04
+
+ 本帖最后由 rs5621 于 2023-2-14 05:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">情人节怎么少得了我八字母民,没糖自己造
+
+八字母情人节.jpg
+(312.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 05:15 上传
+
+<img src="https://img.saraba1st.com/forum/202302/14/051514gtp09bfst0oksfba.jpg" referrerpolicy="no-referrer">
+

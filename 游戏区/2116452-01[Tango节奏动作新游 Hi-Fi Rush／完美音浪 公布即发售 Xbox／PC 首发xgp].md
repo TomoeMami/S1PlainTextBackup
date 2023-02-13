@@ -4414,3 +4414,12 @@ steam又买了一份支持一下
 
 极难难度第一章评级D，心情仿佛第一次玩音游被评级嘲讽的气急败坏<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 425#       发表于 2023-2-14 02:32
+
+极难打完了 基本全关卡BCD 回头刷刷
+boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不说就算成功了也要继续档后续三连雷，死磕这玩意多死了几十条命
+
