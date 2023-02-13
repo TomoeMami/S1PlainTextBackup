@@ -1649,3 +1649,11 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 原本希伯来语有五个，已经毕业了两个，算上这个是三个</blockquote>
 原来Neo Sparkles和Emi Suika也毕业了，我看官号上还挂着他们俩的频道以为还在活动。
 
+
+*****
+
+####  poipanchao  
+##### 90#       发表于 2023-2-13 18:00
+
+堇这个风纪企划没选那几个特别过分的，有点可惜
+
