@@ -631,3 +631,14 @@ ios下载的话是切换到繁中服找app store吗
 
 初始要抽哪个池子呀，AB的联动池可以吗
 
+
+*****
+
+####  alucardcz  
+##### 927#       发表于 2023-2-13 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726450&amp;ptid=2050204" target="_blank">Acerola 发表于 2023-2-13 13:54</a>
+
+初始要抽哪个池子呀，AB的联动池可以吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别不大 看你爱好  要刷的人反正都不up
+

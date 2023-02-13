@@ -1377,3 +1377,13 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 今晚又有健叔的广播，看看鲤鱼翻唱啥<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 12144#       发表于 2023-2-13 14:11
+
+[https://www.jizhazha.com/jv3133](https://www.jizhazha.com/jv3133)
+
+结那也是从小学开始参加演艺活动。有一个小三岁患有先天性耳聋的妹妹，于是学了手语
+

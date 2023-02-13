@@ -1572,3 +1572,27 @@ chatGPT来中国应该能拯救现在的搜索引擎，利空小红书等一切U
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">这个拿来找色图感觉会更加方便了.
 
+
+*****
+
+####  アトラクナクア  
+##### 155#       发表于 2023-2-13 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726464&amp;ptid=2119233" target="_blank">同醉 发表于 2023-2-13 13:55</a>
+
+总会有新东西的吧，搜索引擎靠竞价赚钱，但是重要的是没有断了第三方网站的生路。如果只有AI搜索自己赚钱 ...</blockquote>
+
+早该死死了，社会上除了一线采访的记者和前沿科技的科学家在出新东西，剩下在互联网上折腾的哪一个不是你抄我我抄你整天震惊制造垃圾污染的人体蜈蚣。以后只留核心期刊和几家不依赖流量的大报社就行，ai从他们那里吸取内容。其他网站禁止抓取可以，很快就会成为无人拜访的孤岛。
+
+*****
+
+####  HZLJ  
+##### 156#       发表于 2023-2-13 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726563&amp;ptid=2119233" target="_blank">アトラクナクア 发表于 2023-2-13 14:03</a>
+
+早该死死了，社会上除了一线采访的记者和前沿科技的科学家在出新东西，剩下在互联网上折腾的哪一个不是你 ...</blockquote>
+太傲慢了
+
+UGC的内容是包罗万象的，不是只有前沿科技发展 才是“内容”
+
