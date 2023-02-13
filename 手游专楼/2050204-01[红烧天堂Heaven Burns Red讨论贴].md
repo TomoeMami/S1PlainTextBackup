@@ -653,3 +653,35 @@ ios下载的话是切换到繁中服找app store吗
 无课的话可以参考下这个https://forum.gamer.com.tw/C.php?bsn=37697&amp;snA=914&amp;tnum=23</blockquote>
 感谢，够详细的
 
+
+*****
+
+####  TheOccuria  
+##### 929#       发表于 2023-2-13 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？这游戏主线还能卡人的？我就想看个剧情手刷了个天使初始玩了几天..
+
+*****
+
+####  alucardcz  
+##### 930#       发表于 2023-2-13 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727666&amp;ptid=2050204" target="_blank">TheOccuria 发表于 2023-2-13 15:22</a>
+
+啊？这游戏主线还能卡人的？我就想看个剧情手刷了个天使初始玩了几天.. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚开服难度极高 现在随便打  大概自动也能过？
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不过马上出新主线了 不知道会不会梦回开服
+
+
+*****
+
+####  TheOccuria  
+##### 931#       发表于 2023-2-13 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727764&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-13 15:28</a>
+
+刚开服难度极高 现在随便打  大概自动也能过？
+
+不过马上出新主线了 不知道会不会梦回开服</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还在第一章，刚打完ab联动，战斗能自动的都自动，战力低几百也能过，后面不会难度陡增吧
+

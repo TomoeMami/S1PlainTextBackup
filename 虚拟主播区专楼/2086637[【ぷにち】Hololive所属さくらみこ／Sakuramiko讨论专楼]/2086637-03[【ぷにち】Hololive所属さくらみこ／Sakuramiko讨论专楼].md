@@ -14256,3 +14256,11 @@ holocure的新角色自有技能绝赞中
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tesparu  
+##### 4315#       发表于 2023-2-13 15:27
+
+这个小池知事哈哈，想起35在gta里一边喊着“密です！”一边狙杀路人了
+
