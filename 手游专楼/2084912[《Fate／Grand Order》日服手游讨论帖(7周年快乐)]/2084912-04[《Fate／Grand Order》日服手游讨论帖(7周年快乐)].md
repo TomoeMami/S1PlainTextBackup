@@ -8771,3 +8771,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">换的5张票边看油管边点扔错池扔到烟雾镜池子去了，然后他来了…………
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">赶紧剩下几张回大姐姐池，啥都没出……
 
+
+*****
+
+####  lv7  
+##### 5324#       发表于 2023-2-13 18:55
+
+投入烟雾镜池，来了个武后…
+
