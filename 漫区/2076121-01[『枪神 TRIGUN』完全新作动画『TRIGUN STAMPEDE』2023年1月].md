@@ -34,3 +34,11 @@
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  首领  
+##### 301#       发表于 2023-2-13 10:16
+
+众生平等的low，所有人的格调都在地板上乱爬。太残忍了。
+

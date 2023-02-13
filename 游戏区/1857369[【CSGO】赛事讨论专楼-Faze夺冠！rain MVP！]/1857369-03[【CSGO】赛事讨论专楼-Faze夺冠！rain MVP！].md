@@ -867,3 +867,18 @@ g2这气势真的是王朝开端啊 牛逼啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  heseran  
+##### 3241#       发表于 2023-2-13 09:51
+
+一觉醒来遗迹竟然赢得这么轻松，早知道看完了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Eric_方歌阙  
+##### 3242#       发表于 2023-2-13 10:10
+
+呼吸确实有东西的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
