@@ -1294,3 +1294,11 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 就百度本体的搜索业务也是被骂多少年了，别的AI或许能指望，文本训练脱离了自己的土壤不就是搞笑呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hikiyaga⑧man  
+##### 128#       发表于 2023-2-13 08:25
+
+这下肯定要被墙了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">至于盈利 在ai的回答里插入广告不比传统搜索广告污染整个版面要用户自己挑有效回答强多了
+
