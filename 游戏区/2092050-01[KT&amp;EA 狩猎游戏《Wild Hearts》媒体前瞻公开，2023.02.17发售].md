@@ -191,3 +191,34 @@
 
 说起来这游戏如果只是想体验完整流程，充个pro会员是不是更划算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 319#       发表于 2023-2-13 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59729844&amp;ptid=2092050" target="_blank">skyfaker305 发表于 2023-2-13 17:37</a>
+
+说起来这游戏如果只是想体验完整流程，充个pro会员是不是更划算</blockquote>
+为啥这么说？
+
+*****
+
+####  陈词与芍药  
+##### 320#       发表于 2023-2-13 18:37
+
+这个今天我实体版到了，下班了可以玩玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 321#       发表于 2023-2-13 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730621&amp;ptid=2092050" target="_blank">captoon 发表于 2023-2-13 05:35</a>
+为啥这么说？</blockquote>
+pro相当于提前解锁，可以不限时游玩好像
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
