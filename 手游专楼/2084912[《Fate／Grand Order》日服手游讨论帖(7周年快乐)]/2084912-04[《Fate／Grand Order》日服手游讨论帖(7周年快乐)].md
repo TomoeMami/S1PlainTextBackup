@@ -8615,3 +8615,23 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 人王给你透消息一是他是现在NPC人员里唯一有未来视的了，二是他现在的目的或许和抑止力也不矛盾
 
+
+*****
+
+####  武男  
+##### 5307#       发表于 2023-2-13 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59710283&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-12 08:19</a>
+
+烟雾镜虽然立绘离大谱，但是剧情和设定极大加分。
+
+神话原典就是个愉悦犯+乐子人+精神病，个性十足，梗比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">而且救了咕哒两条命啊，不然咕哒开局就没了
+
+*****
+
+####  roxas.sora  
+##### 5308#       发表于 2023-2-13 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你这欺软怕硬就很搞了，裁判复仇他人格重拳出击，伪装外星人唯唯诺诺，ex职介还有个盾兵呢，一视同仁行不行
+
