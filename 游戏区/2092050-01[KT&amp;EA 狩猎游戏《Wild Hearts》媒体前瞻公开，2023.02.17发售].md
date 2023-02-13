@@ -566,3 +566,23 @@ xsx版，对帧数不敏感，但能感觉出来有些场景掉帧，
 港服XGP没有试玩吗？我还真没找到</blockquote>
 因为只是试玩，所以不在xgp里，要自己搜游戏
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 356#       发表于 2023-2-14 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735513&amp;ptid=2092050" target="_blank">有点追求 发表于 2023-2-14 01:26</a>
+
+港服XGP没有试玩吗？我还真没找到</blockquote>
+要上ea play下试玩，xgp提供ea play会员罢了
+
+*****
+
+####  火的意志  
+##### 357#       发表于 2023-2-14 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735393&amp;ptid=2092050" target="_blank">猫不萌 发表于 2023-2-14 01:04</a>
+我觉得还可以吧，难度不高，动作瞎打一看6分出头，感觉比怪猎更能大众化点 ...</blockquote>
+比怪猎更大众化，那不是奔着1,500万去了
+
