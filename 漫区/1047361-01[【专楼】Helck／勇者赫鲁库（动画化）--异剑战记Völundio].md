@@ -47,3 +47,13 @@
 —— 来自 OnePlus KB2000, Android 13上的 S1Next-鹅 ...</blockquote>
 群友说是三原色没翻完
 
+
+*****
+
+####  瓦米里奥  
+##### 1042#       发表于 2023-2-13 10:34
+
+实在等不及的可以先看下英肉：[https://mangakatana.com/manga/verndio-surreal-sword-saga.25082](https://mangakatana.com/manga/verndio-surreal-sword-saga.25082)
+
+一般只落后生肉最新进度一话，最新生肉贴吧不定期会搬运
+
