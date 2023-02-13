@@ -151,3 +151,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么都下午还没人玩吗，我还差点忘记今天能玩了
 
+
+*****
+
+####  Sopp  
+##### 315#       发表于 2023-2-13 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59719216&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-12 22:16</a>
+
+自己家的两个游戏就差半个月，还都是偏动作类的，当然算撞车……
+
+我估计是因为宣发分ea和微软管，两变没 ...</blockquote>
+这游戏打通了都还没到3月3呢……
+
