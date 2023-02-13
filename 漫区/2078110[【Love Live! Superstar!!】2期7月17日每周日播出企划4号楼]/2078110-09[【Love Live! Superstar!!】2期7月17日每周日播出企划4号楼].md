@@ -1423,3 +1423,15 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 拉板虹信星÷反串再反串常规操作了，习惯就好，不想被污染找个matome站看干货就行
 
+
+*****
+
+####  一个陆仁贾  
+##### 12148#       发表于 2023-2-13 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727713&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-13 15:24</a>
+隔壁水的卡，感觉是sif2的画师是不是都有问题</blockquote>
+更加典的三人行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，动画结束后杂志特别喜欢玩这种，这么正大光明放游戏卡里我印象是第一次
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

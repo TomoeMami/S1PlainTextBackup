@@ -8664,3 +8664,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有本事开几个强化本
 
+
+*****
+
+####  DARKGRAY  
+##### 5312#       发表于 2023-2-13 16:01
+
+四天后就开活动了，肯定无事发生啦
+
