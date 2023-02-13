@@ -1409,3 +1409,18 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 会用表情包的聊天ai，我可以！！！
 
+
+*****
+
+####  银白色暴风雪  
+##### 140#       发表于 2023-2-13 11:54
+
+在中文语料中还有这种表现吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crye1se  
+##### 141#       发表于 2023-2-13 11:59
+
+他发流汗黄豆的时候我也想揍他，但他写诗的时候突然就释怀了，感觉像教自己家孩子，吵的再凶，他亲一下自己就不生气了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
