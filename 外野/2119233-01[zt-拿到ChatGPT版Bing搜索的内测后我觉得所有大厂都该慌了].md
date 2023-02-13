@@ -1629,3 +1629,28 @@ UGC的内容是包罗万象的，不是只有前沿科技发展 才是“内容�
 那怎么覆盖所有用户的需求？如果现在的问答网站，百科网站，游戏攻略类网站都倒闭了，AI能解决问题嘛？ ...</blockquote>
 问答百科用图书馆和期刊的信息薄纱啊。攻略可以归类到说明书一类。剩下的不用太严谨的，可以和ai绘画一样驯化用户让他们缩小需求。
 
+
+*****
+
+####  kara2000  
+##### 160#       发表于 2023-2-13 14:24
+
+以后慢慢就会给你塞私活了，谁能举出反例？
+
+*****
+
+####  cc-2  
+##### 161#       发表于 2023-2-13 14:25
+
+挺好的，最近用百度的感觉就是越来越废了，要么搜不到什么，要么都是竞价排名或广告
+
+*****
+
+####  otjuly  
+##### 162#       发表于 2023-2-13 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59725605&amp;ptid=2119233" target="_blank">warjuggler 发表于 2023-2-13 12:48</a>
+
+刚用上了，难绷</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，笑话别只讲一半啊，下面呢
+

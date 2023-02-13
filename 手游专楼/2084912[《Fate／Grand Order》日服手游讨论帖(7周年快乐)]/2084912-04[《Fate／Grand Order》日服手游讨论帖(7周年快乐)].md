@@ -8648,3 +8648,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 至于MC，严格来讲也是fgo原创的“职阶”，在原作CCC里BB是高级AI不是从者，MC也是BB的独有称号。fgo的MC职阶则更接近与屑AI为了以从者身份落地特意给自己开的一个后门（顺便让和MC关系匪浅的杀生院以及和月球关系紧密的公主打了个便车）。而且上次这帮子月球人搞事已经是大前年的泳装了，是时候刷一波存在感了，主线三个职阶不代表某人不能再活动搞事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5310#       发表于 2023-2-13 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天会更新个什么预告吗
+
