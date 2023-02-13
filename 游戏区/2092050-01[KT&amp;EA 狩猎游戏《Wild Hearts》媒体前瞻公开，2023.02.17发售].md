@@ -143,3 +143,11 @@
 
 再说光荣特库摩的忍者组和无双组本来也不是一家，两个动作游戏工作室内部又分了好几个小组负责不同的游戏，还做了一堆外包，现在的光荣公司恐怕就是育碧的相反面：工作室间各做各的，但又没有完全的不协同开发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫不萌  
+##### 314#       发表于 2023-2-13 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么都下午还没人玩吗，我还差点忘记今天能玩了
+
