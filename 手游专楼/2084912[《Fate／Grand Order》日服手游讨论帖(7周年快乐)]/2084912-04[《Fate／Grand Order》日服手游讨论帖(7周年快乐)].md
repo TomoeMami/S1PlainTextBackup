@@ -8882,3 +8882,23 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 我就不一样了没抽烟雾镜池子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  eilot  
+##### 5334#       发表于 2023-2-13 21:13
+
+虽然本编刚刚出了黑艾雷，也顺便补了一件灵衣，因此也出抽池
+
+但居然没强化本?营运连2粒钻也不愿意施舍
+
+*****
+
+####  qixinno2  
+##### 5335#       发表于 2023-2-13 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730986&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 19:09</a>
+
+什么 居然真会出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新好欧啊
+
