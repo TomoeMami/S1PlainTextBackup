@@ -8635,3 +8635,16 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你这欺软怕硬就很搞了，裁判复仇他人格重拳出击，伪装外星人唯唯诺诺，ex职介还有个盾兵呢，一视同仁行不行
 
+
+*****
+
+####  xiongxingyu  
+##### 5309#       发表于 2023-2-13 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59723054&amp;ptid=2084912" target="_blank">roxas.sora 发表于 2023-2-13 09:51</a>
+
+不是，你这欺软怕硬就很搞了，裁判复仇他人格重拳出击，伪装外星人唯唯诺诺，ex职介还有个盾兵呢， ...</blockquote>
+仇阶是无印就有的职阶，尺阶的f/a和ae的extra/ccc也是老作品了，可以当作是系统内编制外的特殊存在，一般所谓的“extra”应该就是指这三个。盾阶目前就马修一个，我方也不存在滥用一说，而且人王一开始说4个又改口3个也是个伏笔。而伪装者和外乡人则是fgo的剧情里首次出现的，并且目前为止没有出现在与fgo没有直接关联的作品之中，可以理解为例外中的例外，抑制力表示不熟，不归我管。
+
+至于MC，严格来讲也是fgo原创的“职阶”，在原作CCC里BB是高级AI不是从者，MC也是BB的独有称号。fgo的MC职阶则更接近与屑AI为了以从者身份落地特意给自己开的一个后门（顺便让和MC关系匪浅的杀生院以及和月球关系紧密的公主打了个便车）。而且上次这帮子月球人搞事已经是大前年的泳装了，是时候刷一波存在感了，主线三个职阶不代表某人不能再活动搞事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

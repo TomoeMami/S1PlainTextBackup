@@ -623,3 +623,11 @@ ios下载的话是切换到繁中服找app store吗
 呱！剧情打着打着忘记刷初始了，现在完全不想刷了，四个ssr先用着吧。话说哪里有节奏榜，我想看下我这几个s ...</blockquote>
 [https://game8.jp/heavenburnsred/425643](https://game8.jp/heavenburnsred/425643) 2Q我是看的这个
 
+
+*****
+
+####  Acerola  
+##### 926#       发表于 2023-2-13 13:54
+
+初始要抽哪个池子呀，AB的联动池可以吗
+
