@@ -8683,3 +8683,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 仇阶是无印就有的职阶，尺阶的f/a和ae的extra/ccc也是老作品了，可以当作是系统内编制外的特殊存在，一般 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就感觉一种欺软怕硬，外星人后台个个都不是省油的灯，他人格缝合怪，尺子复仇都是编制内的东西，杀熟
 
+
+*****
+
+####  alucardcz  
+##### 5314#       发表于 2023-2-13 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2700dl 爱蕾  开心吗（
+
