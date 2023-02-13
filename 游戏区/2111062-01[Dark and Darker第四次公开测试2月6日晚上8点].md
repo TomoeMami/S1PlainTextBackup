@@ -612,3 +612,16 @@ buff流感觉有点东西？看zard他们玩的一个法师一个牧师给野蛮
 
 但是那种带了蛮子的队伍，杀戮欲望过于膨胀，迎面碰上那可一声怪叫就冲上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuglv  
+##### 62#       发表于 2023-2-13 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731318&amp;ptid=2111062" target="_blank">哈曼的YY 发表于 2023-2-13 19:41</a>
+
+草 意思有队伍还得一个个走 不断减员的 最后一个撤离的是断后倒霉鬼啊</blockquote>
+一般门不够的队伍还会把重要的东西交给一个人让他带着先走，也有施展各种手段去抢别的队伍开的门的，残局的时候比单纯的缩圈游戏欢乐多了
+
+如果外挂问题能解决，这游戏必然大火，只可惜几乎不可能
+

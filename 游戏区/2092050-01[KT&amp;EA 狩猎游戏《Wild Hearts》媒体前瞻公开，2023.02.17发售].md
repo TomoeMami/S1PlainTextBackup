@@ -291,3 +291,11 @@ ea play pro相当于隔壁的Ubisoft+ 首发就可以玩ea游戏的豪华版，1
 看了下，PS商店里没EA PRO会员，只有普通会员</blockquote>
 ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都没有上
 
+
+*****
+
+####  Piano-Forest  
+##### 328#         楼主| 发表于 2023-2-13 20:01
+
+剧情PV：[https://youtu.be/_grFGQ2oWUQ](https://youtu.be/_grFGQ2oWUQ)
+

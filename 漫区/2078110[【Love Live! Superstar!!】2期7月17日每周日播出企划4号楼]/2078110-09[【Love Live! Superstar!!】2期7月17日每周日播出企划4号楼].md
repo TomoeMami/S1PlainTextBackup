@@ -1507,3 +1507,11 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 新歌感觉挺不错（开头的旋律一下子想到女武神永不放弃
 
+
+*****
+
+####  player3960  
+##### 12157#       发表于 2023-2-13 20:07
+
+今天手渡会有Miracle Chocolate Night的完整版，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
