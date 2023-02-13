@@ -3534,3 +3534,26 @@ FF16感觉没啥吸引人的特点
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nma  
+##### 956#       发表于 2023-2-13 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732440&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-13 21:01</a>
+
+据说港服2月27号会再放一批货
+
+—— 来自 S1Fun</blockquote>
+2000fun吗，港服官方只找到数字版
+
+*****
+
+####  牛奶笛  
+##### 957#       发表于 2023-2-13 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730933&amp;ptid=1997982" target="_blank">🐳❕ 发表于 2023-2-13 19:04</a>
+
+又看了一遍所以pv感觉这次出生点很可能是在空岛上，pv里陆地的镜头太多了，正式游戏应该会给一个不一样的开 ...</blockquote>
+很有可能。那个绿衣林克，应该就是新手村状态。可能又是失忆，希卡石板也没了，所以一开始是白板，重新学新技能。可能完成初始岛试炼后，林克就能一跃而下
+

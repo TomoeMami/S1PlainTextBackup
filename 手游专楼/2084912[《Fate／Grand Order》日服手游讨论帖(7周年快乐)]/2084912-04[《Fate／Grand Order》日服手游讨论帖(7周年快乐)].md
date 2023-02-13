@@ -8902,3 +8902,29 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 什么 居然真会出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新好欧啊
 
+
+*****
+
+####  qixinno2  
+##### 5336#       发表于 2023-2-13 21:22
+
+<img src="https://img.saraba1st.com/forum/202302/13/212238jczs9cw1ss86e4ns.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 21:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有我没出五星了是吧
+
+*****
+
+####  黑上シグマ  
+##### 5337#       发表于 2023-2-13 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732690&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-13 21:22</a>
+
+只有我没出五星了是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这次2.7总共3五星1雨神，是不是概率设定反了
+
