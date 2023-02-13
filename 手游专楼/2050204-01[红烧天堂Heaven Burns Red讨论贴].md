@@ -685,3 +685,24 @@ ios下载的话是切换到繁中服找app store吗
 不过马上出新主线了 不知道会不会梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还在第一章，刚打完ab联动，战斗能自动的都自动，战力低几百也能过，后面不会难度陡增吧
 
+
+*****
+
+####  alucardcz  
+##### 932#       发表于 2023-2-13 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727791&amp;ptid=2050204" target="_blank">TheOccuria 发表于 2023-2-13 15:29</a>
+
+现在还在第一章，刚打完ab联动，战斗能自动的都自动，战力低几百也能过，后面不会难度陡增吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面主线难度被砍过了 等级上限也增加了  满级基本没难度  打不过就睡觉练级
+
+*****
+
+####  TheOccuria  
+##### 933#       发表于 2023-2-13 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727812&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-13 15:30</a>
+
+后面主线难度被砍过了 等级上限也增加了  满级基本没难度  打不过就睡觉练级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，那就行，反正我也就看个剧情
+
