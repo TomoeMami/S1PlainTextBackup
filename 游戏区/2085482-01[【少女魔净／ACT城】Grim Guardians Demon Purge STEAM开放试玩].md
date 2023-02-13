@@ -1386,3 +1386,18 @@ galgun啊，本家联动了属于是</blockquote>
 
 想请问下，PC连xbox手柄，A键跳跃到平台后，为什么再按A键又跳下来了，向上跳必须按↑+A，但是键盘却没有这个烦恼，想问下是咋回事了？
 
+
+*****
+
+####  rizutoaoitori  
+##### 132#       发表于 2023-2-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683652&amp;ptid=2085482" target="_blank">睡不醒的虾米 发表于 2023-2-10 00:17</a>
+
+你们说的GUNGAL是什么游戏……？我只搜索到了一个轨道射击游戏，感觉说的应该不是同一个。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是那款可以射击小裤裤的游戏
+
+萌妹做封面真吸睛，一眼就认出来了
+
+然而实际上手难度可不低
+
