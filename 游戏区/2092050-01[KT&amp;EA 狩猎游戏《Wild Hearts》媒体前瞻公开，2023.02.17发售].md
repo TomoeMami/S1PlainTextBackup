@@ -690,3 +690,13 @@ pro能进村继续打
 
 无双组把做2作巨人立体机动的经验放在这游戏的一把武器里去了，利威尔模拟器
 
+
+*****
+
+####  布拉德莱恩  
+##### 368#       发表于 2023-2-14 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736076&amp;ptid=2092050" target="_blank">ShiKi847 发表于 2023-2-14 06:58</a>
+看直播，评价挺高的，没公布的武器里面，有几个比公布的机关伞还强</blockquote>
+八种武器都公布了吧，只不过有些没在视频里演示，官网是早就都放出来了
+

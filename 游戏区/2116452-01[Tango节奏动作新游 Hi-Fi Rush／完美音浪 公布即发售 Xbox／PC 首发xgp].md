@@ -4423,3 +4423,26 @@ steam又买了一份支持一下
 极难打完了 基本全关卡BCD 回头刷刷
 boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不说就算成功了也要继续档后续三连雷，死磕这玩意多死了几十条命
 
+
+*****
+
+####  760194962  
+##### 426#       发表于 2023-2-14 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735802&amp;ptid=2116452" target="_blank">Booorunestud 发表于 2023-2-14 02:32</a>
+极难打完了 基本全关卡BCD 回头刷刷
+boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不说就算成功了 ...</blockquote>
+格挡好的话可以直接破防 或者稳一点的用猫猫开大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  760194962  
+##### 427#       发表于 2023-2-14 07:41
+
+搞了两周多全节奏大师皇冠S了 这游戏收集品显示很差劲
+还剩全难度关卡S以及广告无人机射击就差不多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
