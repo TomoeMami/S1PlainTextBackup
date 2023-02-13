@@ -1716,3 +1716,14 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 
 可惜主播有逆反心理，近期热门的一个没碰，更别说原神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  psnsic8nag  
+##### 97#       发表于 2023-2-13 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59733847&amp;ptid=2117684" target="_blank">FCCHua 发表于 2023-2-13 23:00</a>
+
+可惜hnn有逆反心理，近期热门的一个没碰，更别说原神了</blockquote>
+拿出魔法卡后同接没破万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

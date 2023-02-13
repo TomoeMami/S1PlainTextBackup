@@ -8997,3 +8997,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 2023-2-13 22:36 上传
 
+
+*****
+
+####  風卷豹  
+##### 5344#       发表于 2023-2-13 23:14
+
+丢了4单只有一宝大姐姐，出货率过于标准瞬间不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
