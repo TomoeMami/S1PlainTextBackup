@@ -1543,3 +1543,14 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 chatGPT来中国应该能拯救现在的搜索引擎，利空小红书等一切UGC社区、直播带货
 
+
+*****
+
+####  アトラクナクア  
+##### 152#       发表于 2023-2-13 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59725891&amp;ptid=2119233" target="_blank">同醉 发表于 2023-2-13 13:12</a>
+
+绘画数据多了当然可以脱离人类自己创作，但是AI问答会一直需要最新信息，没有人类创作的AI怎么自行创作内 ...</blockquote>
+其实那些网站上所谓的内容创作也不过是搬运工重复发明轮子而已，并没有真正的创新。把图书馆和最新科研期刊扫一下喂给ai就可以让内容产出者和科普号失业了。
+
