@@ -4406,3 +4406,11 @@ steam又买了一份支持一下
 
 哪天更新了无剧情模式再来刷一遍
 
+
+*****
+
+####  Kanou  
+##### 424#       发表于 2023-2-13 17:22
+
+极难难度第一章评级D，心情仿佛第一次玩音游被评级嘲讽的气急败坏<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
