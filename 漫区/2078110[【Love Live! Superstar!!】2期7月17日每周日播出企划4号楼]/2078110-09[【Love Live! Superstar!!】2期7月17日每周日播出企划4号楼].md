@@ -1337,3 +1337,13 @@ QQ图片20230212224438.jpg
 
 二专live要还是3.5这种形式的话那四巡就是特典曲大放送呗。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 12140#       发表于 2023-2-13 09:04
+
+<blockquote>奥柏伦亲王 发表于 2023-2-13 08:13
+台本写的太尬了，说是大锅饭，铃原反复发言而nako没有专门的问题，yabu甚至都没张嘴（就当她是过于内向吧 ...</blockquote>
+kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至于non爆了两次。nagi的换成鱼，然后pay那个改成nako或者彩爆料pay去鱼家被禁止了
+
