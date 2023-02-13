@@ -273,3 +273,11 @@ ea play pro相当于隔壁的Ubisoft+ 首发就可以玩ea游戏的豪华版，1
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  captoon  
+##### 326#       发表于 2023-2-13 19:04
+
+看了下，PS商店里没EA PRO会员，只有普通会员
+

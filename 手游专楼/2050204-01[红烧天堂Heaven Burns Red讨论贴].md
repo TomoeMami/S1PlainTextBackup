@@ -724,3 +724,15 @@ ios下载的话是切换到繁中服找app store吗
 看了下强度表，我运气真好，五个包括女主都是tire1，看来没人权还能再玩一会。话说角色等级的话只能晚上睡 ...</blockquote>
 棱镜战给很多经验，消耗体力的给经验都多
 
+
+*****
+
+####  Acerola  
+##### 936#       发表于 2023-2-13 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726613&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-13 14:07</a>
+区别不大 看你爱好  要刷的人反正都不up</blockquote>
+看了一眼出率，刷出人权卡也太难了，现在把联动的都刷出来了，至于人权准备攒石等up<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB-9707F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
