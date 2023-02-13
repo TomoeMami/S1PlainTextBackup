@@ -358,3 +358,18 @@ Matt Frank
 ユウキレイ
 <img src="https://p.sda1.dev/9/510f9c270ed93bcff7fac71aa4d81833/20230213_205757.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skyfaker305  
+##### 333#       发表于 2023-2-13 23:46
+
+玩了一下，下雪场景惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laoz  
+##### 334#       发表于 2023-2-13 23:49
+
+把那只老鼠打掉了，突出一个它玩它的，我打我的，这玩意跟个傻逼一样全场乱跑，我还要追它来打，输出全程上跳板登龙完事。笔记本1660ti玩这玩意真的不行，全低30帧还会掉帧，明天新电脑到了再玩一下
+
