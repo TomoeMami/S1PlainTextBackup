@@ -137,3 +137,14 @@
 
 但是这样的话 自动46+ 和110+跃入怎么安排啊  死掉的队伍没法支援 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 没法1234主力5队杀王了吗
 
+
+*****
+
+####  拍不到脑袋  
+##### 845#       发表于 2023-2-13 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59716936&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2023-2-12 18:58</a>
+
+但是这样的话 自动46+ 和110+跃入怎么安排啊  死掉的队伍没法支援  没法1234主力5队杀王了吗 ...</blockquote>
+直接扫荡打关底吧
+
