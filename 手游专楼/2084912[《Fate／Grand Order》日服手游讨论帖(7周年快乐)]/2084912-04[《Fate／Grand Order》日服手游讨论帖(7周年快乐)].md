@@ -8672,3 +8672,14 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 四天后就开活动了，肯定无事发生啦
 
+
+*****
+
+####  roxas.sora  
+##### 5313#       发表于 2023-2-13 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59726484&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-13 13:57</a>
+
+仇阶是无印就有的职阶，尺阶的f/a和ae的extra/ccc也是老作品了，可以当作是系统内编制外的特殊存在，一般 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就感觉一种欺软怕硬，外星人后台个个都不是省油的灯，他人格缝合怪，尺子复仇都是编制内的东西，杀熟
+
