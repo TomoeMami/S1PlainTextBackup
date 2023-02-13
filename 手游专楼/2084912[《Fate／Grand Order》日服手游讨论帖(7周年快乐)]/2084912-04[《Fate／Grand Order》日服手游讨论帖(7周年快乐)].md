@@ -8752,3 +8752,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 谢谢叶哥哥，大姐姐2宝了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶哥哥：2宝有什么用  5宝啊
 
+
+*****
+
+####  千叶铁矢  
+##### 5322#       发表于 2023-2-13 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730335&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 18:14</a>
+叶哥哥：2宝有什么用  5宝啊</blockquote>
+没钱，氪不起了，白嫖2宝知足了
+

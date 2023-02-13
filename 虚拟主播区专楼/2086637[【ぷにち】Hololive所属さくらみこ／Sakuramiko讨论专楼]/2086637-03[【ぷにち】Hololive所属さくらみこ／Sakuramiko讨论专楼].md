@@ -14307,3 +14307,21 @@ holocure的新角色自有技能绝赞中
 
 想到早上的直播还在担心没人去买最近一直在使劲宣传，我看唯一需要担心的是店售的周边现货库存是否够撑得到下个月的生日……
 
+
+*****
+
+####  holoan  
+##### 4319#         楼主| 发表于 2023-2-13 18:30
+
+媒体报道里还有一个很有意思的细节
+
+<img src="https://img.saraba1st.com/forum/202302/13/182908yg0cslzbcsgbbsvt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (247.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 18:29 上传
+
+[https://www.tokyoheadline.com/676123/4/](https://www.tokyoheadline.com/676123/4/)
+

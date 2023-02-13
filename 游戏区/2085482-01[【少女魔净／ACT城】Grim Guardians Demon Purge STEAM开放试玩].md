@@ -1401,3 +1401,13 @@ galgun啊，本家联动了属于是</blockquote>
 
 然而实际上手难度可不低
 
+
+*****
+
+####  zooandtoo  
+##### 133#       发表于 2023-2-13 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就第二关这融合怪来看房东位只有GALGUN男主能当了吧
+
+如果真要捏画廊库洛那大概连管家都混不上
+
