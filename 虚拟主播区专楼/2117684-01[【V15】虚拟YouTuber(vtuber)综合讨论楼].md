@@ -1708,3 +1708,11 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 怎么sumire也要玩原了，vspo是不是也准备吃mhy的工商了</blockquote>
 抽卡拼同接破万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FCCHua  
+##### 96#       发表于 2023-2-13 23:00
+
+可惜主播有逆反心理，近期热门的一个没碰，更别说原神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

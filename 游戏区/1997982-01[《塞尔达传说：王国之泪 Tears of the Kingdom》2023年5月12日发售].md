@@ -3626,3 +3626,13 @@ FF16感觉没啥吸引人的特点
 
 2023-2-13 22:44 上传
 
+
+*****
+
+####  Rainwedell  
+##### 961#       发表于 2023-2-13 22:53
+
+这次限定懒得入了，等着买限定机冤种
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
