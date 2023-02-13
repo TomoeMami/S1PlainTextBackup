@@ -299,3 +299,23 @@ ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都�
 
 剧情PV：[https://youtu.be/_grFGQ2oWUQ](https://youtu.be/_grFGQ2oWUQ)
 
+
+*****
+
+####  s32244153  
+##### 329#       发表于 2023-2-13 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731587&amp;ptid=2092050" target="_blank">Piano-Forest 发表于 2023-2-13 20:01</a>
+
+剧情PV：https://youtu.be/_grFGQ2oWUQ</blockquote>
+这是要和村民齐心协力击退老山熊吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 330#       发表于 2023-2-13 20:25
+
+狗屎，半天没上XGP，也没个时间，真要别人都开始玩了才开始下载吗
+
+会员和会员之间亦有差距
+
