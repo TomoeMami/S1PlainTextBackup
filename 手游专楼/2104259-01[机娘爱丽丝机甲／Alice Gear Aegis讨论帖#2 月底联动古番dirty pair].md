@@ -1667,3 +1667,12 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 看完个人绊剧情，这阿龙的性格也太臭了，也就晶乃这老好人护着她。这类人一般有个人拴住就好，比如四水的疯狗评价，但问题是“监护人”晶乃也拴不住<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rincewind  
+##### 275#       发表于 2023-2-13 15:22
+
+果然又是拍片结局<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阿光什么鬼才导演
+不过那个乌贼巧克力是真心的吗
+

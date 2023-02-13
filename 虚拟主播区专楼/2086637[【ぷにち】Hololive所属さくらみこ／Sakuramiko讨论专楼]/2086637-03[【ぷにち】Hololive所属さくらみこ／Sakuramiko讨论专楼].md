@@ -14246,3 +14246,13 @@ holocure的新角色自有技能绝赞中
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rs5621  
+##### 4314#       发表于 2023-2-13 15:16
+
+<img src="https://p.sda1.dev/9/f03b3f89d8d2f19545b2a980174efb71/CMP_20230213151622048.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

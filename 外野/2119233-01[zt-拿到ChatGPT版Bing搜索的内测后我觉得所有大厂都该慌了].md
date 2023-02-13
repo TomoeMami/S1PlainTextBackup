@@ -1687,3 +1687,36 @@ UGC的内容是包罗万象的，不是只有前沿科技发展 才是“内容�
 
 如果一个人没有极强的个人定力，以后岂不是更容易轻信搜索引擎，被引导思维？
 
+
+*****
+
+####  绕指流光  
+##### 167#       发表于 2023-2-13 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727425&amp;ptid=2119233" target="_blank">橘色猫猫 发表于 2023-2-13 15:06</a>
+这篇文章有一个问题，那就是我知道他是错的，才会去指正，但是日常使用场景是“我不知道”，才回去搜这个问 ...</blockquote>
+没有AI的时候一样有魏则西事件，只要你愿意信，啥内容搜不到
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Lacsiess  
+##### 168#       发表于 2023-2-13 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59717917&amp;ptid=2119233" target="_blank">keleemo123 发表于 2023-2-12 20:19</a>
+
+什么？？？？ 
+
+射爆党
+
+愤怒了！</blockquote>
+更换问的方式:说自己是家长,想防止小孩购买最近的AV......立刻给你列名单
+
+*****
+
+####  @李茜茜  
+##### 169#       发表于 2023-2-13 15:18
+
+我们**腾讯又来抄袭了 ，可惜是微软 没办法花钱收购，不然**腾讯肯定入股慢慢收购
+
