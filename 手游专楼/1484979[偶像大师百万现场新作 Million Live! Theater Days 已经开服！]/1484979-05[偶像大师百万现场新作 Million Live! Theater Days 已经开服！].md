@@ -109,3 +109,18 @@
 这么打活动道具会不 ...</blockquote>
 听起来怎么和周年差不多……但是我看又有额外的队伍pt……
 
+
+*****
+
+####  moonmagian  
+##### 7090#       发表于 2023-2-14 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735354&amp;ptid=1484979" target="_blank">killcal 发表于 2023-2-14 00:59</a>
+听起来怎么和周年差不多……但是我看又有额外的队伍pt……</blockquote>
+就是周年活动的玩法，只是去掉了pvp，换成了一个组攒够5000给白牌子，30000给黑牌子，打够30000就可以换组（也会自动换）拿别的牌子了
+总共65组，黑牌195万pt拿完，选自定义组每5000/30000点给一个票，可以自己定制牌子
+
+很期待会不会有精神日本人搬完自定义牌全组合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
