@@ -1394,3 +1394,18 @@ chatGPT这公司的体量可没百度大 百度自己没 ...</blockquote>
 
 国内很容易被炸弹人玩坏吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nosmokingspp  
+##### 138#       发表于 2023-2-13 11:42
+
+反正有局域网保护，慌啥
+
+*****
+
+####  sevenight  
+##### 139#       发表于 2023-2-13 11:47
+
+会用表情包的聊天ai，我可以！！！
+
