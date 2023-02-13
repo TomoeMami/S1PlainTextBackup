@@ -49,3 +49,21 @@
 下午忘登陆错过一次彩票的机会</blockquote>
 没有的吧，我晚上7点多清体力换奖励啊，没看到更新啊。
 
+
+*****
+
+####  吉诺爱比利  
+##### 7084#       发表于 2023-2-14 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59734497&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-2-13 23:49</a>
+
+没有的吧，我晚上7点多清体力换奖励啊，没看到更新啊。</blockquote>
+看贴吧，昨天13号零点就能参加了
+
+*****
+
+####  killcal  
+##### 7085#       发表于 2023-2-14 00:09
+
+这个新活动怎么打.....
+

@@ -381,3 +381,33 @@ Matt Frank
 
 优化为啥能拉成这样
 
+
+*****
+
+####  thecatnie  
+##### 336#       发表于 2023-2-14 00:00
+
+感觉又是那种日本骗欧美人外包费的东西
+
+*****
+
+####  DJYDJYD  
+##### 337#       发表于 2023-2-14 00:07
+
+卡死了，为这游戏搞余额的我真蠢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+垃圾D加密
+
+*****
+
+####  zris  
+##### 338#       发表于 2023-2-14 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731953&amp;ptid=2092050" target="_blank">refiver 发表于 2023-2-13 20:25</a>
+狗屎，半天没上XGP，也没个时间，真要别人都开始玩了才开始下载吗
+
+会员和会员之间亦有差距 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可以用xbox app提前预载
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
