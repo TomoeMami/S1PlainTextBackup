@@ -590,3 +590,36 @@ ios下载的话是切换到繁中服找app store吗
 
 呱！剧情打着打着忘记刷初始了，现在完全不想刷了，四个ssr先用着吧。话说哪里有节奏榜，我想看下我这几个ssr什么水平，感觉好缺输出，全在靠两个奶撑回合数
 
+
+*****
+
+####  rsa1zc  
+##### 923#       发表于 2023-2-13 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59723183&amp;ptid=2050204" target="_blank">aricks 发表于 2023-2-13 10:01</a>
+看到说4月会复刻楼里说的人权，新号2个月能存多少钻？
+
+主要刷了个带天使的6ssr的初始号，不想换了 ...</blockquote>
+无课的话可以参考下这个https://forum.gamer.com.tw/C.php?bsn=37697&amp;snA=914&amp;tnum=23
+
+*****
+
+####  rsa1zc  
+##### 924#       发表于 2023-2-13 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59723183&amp;ptid=2050204" target="_blank">aricks 发表于 2023-2-13 10:01</a>
+看到说4月会复刻楼里说的人权，新号2个月能存多少钻？
+
+主要刷了个带天使的6ssr的初始号，不想换了 ...</blockquote>
+无课的话可以参考下这个https://forum.gamer.com.tw/C.php?bsn=37697&amp;snA=914&amp;tnum=23
+
+*****
+
+####  zukunes  
+##### 925#       发表于 2023-2-13 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59723249&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-2-13 10:06</a>
+
+呱！剧情打着打着忘记刷初始了，现在完全不想刷了，四个ssr先用着吧。话说哪里有节奏榜，我想看下我这几个s ...</blockquote>
+[https://game8.jp/heavenburnsred/425643](https://game8.jp/heavenburnsred/425643) 2Q我是看的这个
+

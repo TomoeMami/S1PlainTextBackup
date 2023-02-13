@@ -5328,3 +5328,17 @@ Delete
 
 某只记得当年看到那个堪称写作反面教材的被轻小说用了一万多遍的开头就弃了，什么主角意义不明地狂奔与意义不明的魔兽生死搏斗之类的浪费了上千字然后用更长的篇幅交待世界观，原来后面评价还不错吗
 
+
+*****
+
+####  redsouris  
+##### 433#       发表于 2023-2-13 11:16
+
+ 本帖最后由 redsouris 于 2023-2-13 11:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59722384&amp;ptid=1913585" target="_blank">新人马甲2 发表于 2023-2-13 09:00</a>
+某只记得当年看到那个堪称写作反面教材的被轻小说用了一万多遍的开头就弃了，什么主角意义不明地狂奔与意义 ...</blockquote>你和其他作品搞混了吧？
+这小说开头不是在煞风景的废墟里看到一个不穿衣服的美女吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后面打怪所有行动都是这位美女给的指示，怎么就意义不明了？
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
