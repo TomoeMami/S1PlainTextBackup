@@ -8795,3 +8795,54 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 居然真会出
 
+
+*****
+
+####  霧谷藤乃  
+##### 5326#       发表于 2023-2-13 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730986&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 19:09</a>
+
+什么 居然真会出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁让你天天用这个表情，那必然会吸引来乐子人烟哥哥啊（🐕
+
+*****
+
+####  alucardcz  
+##### 5327#       发表于 2023-2-13 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731015&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-2-13 19:13</a>
+
+谁让你天天用这个表情，那必然会吸引来乐子人烟哥哥啊（🐕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这表情用的人那么多（
+
+*****
+
+####  gpx234mqx  
+##### 5328#       发表于 2023-2-13 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730986&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 19:09</a>
+
+什么 居然真会出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真是豹跳如雷
+
+*****
+
+####  霧谷藤乃  
+##### 5329#       发表于 2023-2-13 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731019&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 19:13</a>
+
+这表情用的人那么多（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你看去抽这卡池的楼友们不几乎人手一只（大概？
+
+*****
+
+####  alucardcz  
+##### 5330#       发表于 2023-2-13 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731050&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-2-13 19:16</a>
+
+所以你看去抽这卡池的楼友们不几乎人手一只（大概？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你必须马上拥有（
+
