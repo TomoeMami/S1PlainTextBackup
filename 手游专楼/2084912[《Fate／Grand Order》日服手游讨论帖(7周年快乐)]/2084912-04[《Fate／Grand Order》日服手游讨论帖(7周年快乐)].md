@@ -8699,3 +8699,29 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有种预感 这个星期就这样了  没其他事情了
 
+
+*****
+
+####  fireship  
+##### 5316#       发表于 2023-2-13 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+波澜不惊，突出一个养老环境的安逸感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 5317#       发表于 2023-2-13 17:15
+
+艾蕾现在除了卖卖萌还有啥就业空间吗
+
+*****
+
+####  Jamaisvu  
+##### 5318#       发表于 2023-2-13 17:18
+
+ 本帖最后由 Jamaisvu 于 2023-2-13 17:20 编辑 
+
+签到第七天的十个呼符换成了30石头...这个改动还可以，省得一张张点...（如果以后十连能自动消耗呼符就好了）
+
