@@ -75,3 +75,26 @@
 
 不是，这个选人纯纯随机啊，好没意思。
 
+
+*****
+
+####  moonmagian  
+##### 7087#       发表于 2023-2-14 00:41
+
+好肝啊，全黑牌195万点...
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  moonmagian  
+##### 7088#       发表于 2023-2-14 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59734777&amp;ptid=1484979" target="_blank">killcal 发表于 2023-2-14 00:09</a>
+这个新活动怎么打.....</blockquote>
+如果不计体力药/碎石头回体力的成本的话，开火收益最大的肯定还是全最高倍率打活动曲
+这么打活动道具会不够用，每天要额外打不少道具
+平衡一点的就是开火打3到4把道具再打活动曲
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
