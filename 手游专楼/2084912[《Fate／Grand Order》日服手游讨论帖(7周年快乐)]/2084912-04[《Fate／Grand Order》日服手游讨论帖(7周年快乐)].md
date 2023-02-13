@@ -8928,3 +8928,14 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 只有我没出五星了是吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这次2.7总共3五星1雨神，是不是概率设定反了
 
+
+*****
+
+####  qixinno2  
+##### 5338#       发表于 2023-2-13 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732736&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-13 21:25</a>
+
+我这次2.7总共3五星1雨神，&amp;#x662 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹言
+

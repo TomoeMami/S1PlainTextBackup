@@ -3557,3 +3557,23 @@ FF16感觉没啥吸引人的特点
 又看了一遍所以pv感觉这次出生点很可能是在空岛上，pv里陆地的镜头太多了，正式游戏应该会给一个不一样的开 ...</blockquote>
 很有可能。那个绿衣林克，应该就是新手村状态。可能又是失忆，希卡石板也没了，所以一开始是白板，重新学新技能。可能完成初始岛试炼后，林克就能一跃而下
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 958#       发表于 2023-2-13 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59732683&amp;ptid=1997982" target="_blank">nma 发表于 2023-2-13 21:22</a>
+2000fun吗，港服官方只找到数字版</blockquote>
+啊对的，2000fun
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  勿徊哉  
+##### 959#       发表于 2023-2-13 21:32
+
+这次我吸取上次教训，什么情报都不看。
+免得和上次一样，被公主是黑的是最终boss这种假剧透骗了。
+

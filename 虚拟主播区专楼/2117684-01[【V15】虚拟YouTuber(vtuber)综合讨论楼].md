@@ -1673,3 +1673,11 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 
 怎么sumire也要玩原了，vspo是不是也准备吃mhy的工商了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rzrbtk  
+##### 93#       发表于 2023-2-13 21:32
+
+本来嫌弃梨花老师“对阿宅温柔的辣妹”人设太土，现在看来确实需要有一个人在同期讲冷笑话的时候捧场
+
