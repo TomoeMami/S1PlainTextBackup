@@ -222,3 +222,54 @@ pro相当于提前解锁，可以不限时游玩好像
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  captoon  
+##### 322#       发表于 2023-2-13 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730659&amp;ptid=2092050" target="_blank">陈词与芍药 发表于 2023-2-13 18:38</a>
+
+pro相当于提前解锁，可以不限时游玩好像
+
+—— 来自 S1Fun</blockquote>
+纳尼？为啥游戏购买界面我没看到这个说明
+
+*****
+
+####  猫不萌  
+##### 323#       发表于 2023-2-13 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730685&amp;ptid=2092050" target="_blank">captoon 发表于 2023-2-13 18:41</a>
+纳尼？为啥游戏购买界面我没看到这个说明</blockquote>
+xgp附赠的ea play会员还能免费玩10小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mimikami  
+##### 324#       发表于 2023-2-13 18:43
+
+真的没有热度，明天下班时间有人一起联机吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈词与芍药  
+##### 325#       发表于 2023-2-13 18:45
+
+ 本帖最后由 陈词与芍药 于 2023-2-13 05:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730685&amp;ptid=2092050" target="_blank">captoon 发表于 2023-2-13 05:41</a>
+纳尼？为啥游戏购买界面我没看到这个说明</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/13/054458a1ggpel72k7llkbc.jpg" referrerpolicy="no-referrer">
+
+<strong>41A9FC6B-00CA-43B1-B07D-5EC599A148C0.jpg</strong> (336.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 18:44 上传
+
+透过 EA PLAY PRO无限畅玩
+ea play pro相当于隔壁的Ubisoft+ 首发就可以玩ea游戏的豪华版，100刀一年
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

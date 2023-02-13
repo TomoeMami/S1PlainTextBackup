@@ -8762,3 +8762,12 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 叶哥哥：2宝有什么用  5宝啊</blockquote>
 没钱，氪不起了，白嫖2宝知足了
 
+
+*****
+
+####  黑上シグマ  
+##### 5323#       发表于 2023-2-13 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">换的5张票边看油管边点扔错池扔到烟雾镜池子去了，然后他来了…………
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">赶紧剩下几张回大姐姐池，啥都没出……
+
