@@ -1347,3 +1347,16 @@ QQ图片20230212224438.jpg
 台本写的太尬了，说是大锅饭，铃原反复发言而nako没有专门的问题，yabu甚至都没张嘴（就当她是过于内向吧 ...</blockquote>
 kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至于non爆了两次。nagi的换成鱼，然后pay那个改成nako或者彩爆料pay去鱼家被禁止了
 
+
+*****
+
+####  ViyViy  
+##### 12141#       发表于 2023-2-13 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59721211&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-13 01:40</a>
+
+乐子不止这些，我昨天晚上看匿名网站的时候，正好新帖底下第一个推荐就是可ur换头那个帖，随手点进去看了眼 ...</blockquote>
+估计是哪儿不知道的战场被爆杀了气死了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+贵游要有丰厚的美术资源，每个月都能给每个角色供给目前公布水平的UR可以原谅一秒钟，但我不觉得做得到，等个把时间出了张图结果被挂羊头卖狗肉，啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这种过场CG水平的图麻烦让它待在它该出现的地方，出来骗钱以为自己很良心我要感动。2023还站桩到底的游戏，太涩了，连最好哄的FGO场景和特殊CG都是该拉满的就拉满的。
+
