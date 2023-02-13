@@ -164,3 +164,22 @@
 我估计是因为宣发分ea和微软管，两变没 ...</blockquote>
 这游戏打通了都还没到3月3呢……
 
+
+*****
+
+####  医生狼多  
+##### 316#       发表于 2023-2-13 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727125&amp;ptid=2092050" target="_blank">Sopp 发表于 2023-2-13 14:43</a>
+这游戏打通了都还没到3月3呢……</blockquote>
+一个是这玩意是mhlike，还带联机元素，理论是要考虑endgame内容的，另一个是除了偏核心的动作类玩家，没什么人会很急着半个月连着打两个动作游戏的，肯定会对客户选择造成分流
+
+*****
+
+####  zris  
+##### 317#       发表于 2023-2-13 15:08
+
+真猎人不得不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+什么，原来不是讨鬼啊
+
