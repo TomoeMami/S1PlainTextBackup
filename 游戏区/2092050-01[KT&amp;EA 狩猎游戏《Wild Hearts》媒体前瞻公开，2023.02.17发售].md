@@ -586,3 +586,22 @@ xsx版，对帧数不敏感，但能感觉出来有些场景掉帧，
 我觉得还可以吧，难度不高，动作瞎打一看6分出头，感觉比怪猎更能大众化点 ...</blockquote>
 比怪猎更大众化，那不是奔着1,500万去了
 
+
+*****
+
+####  猫不萌  
+##### 358#       发表于 2023-2-14 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735590&amp;ptid=2092050" target="_blank">火的意志 发表于 2023-2-14 01:40</a>
+比怪猎更大众化，那不是奔着1,500万去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是从难度感觉上来说的，新手流程我感觉比怪猎更像普通的3A，不过这是个新ip，能卖200w就不错呢
+
+*****
+
+####  swordofsoul1  
+##### 359#       发表于 2023-2-14 01:47
+
+太好玩了 真讨鬼传精神续作 现在pc平台的优化一坨屎 全系列显卡众生平等 不知ps5版优化如何
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
