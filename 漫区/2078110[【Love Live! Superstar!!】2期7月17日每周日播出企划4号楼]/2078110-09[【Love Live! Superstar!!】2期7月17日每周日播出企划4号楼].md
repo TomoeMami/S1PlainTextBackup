@@ -1568,3 +1568,14 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 好像没人发推
 
+
+*****
+
+####  player3960  
+##### 12163#       发表于 2023-2-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59734970&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-14 00:26</a>
+
+好像没人发推</blockquote>
+还有两次机会，虽然我觉得大概率还是不会有人发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -458,3 +458,20 @@ Matt Frank
 
 看上去优化又寄了，不论是主机还是4090都吐槽卡顿掉帧的……
 
+
+*****
+
+####  DJYDJYD  
+##### 345#       发表于 2023-2-14 00:35
+
+打开超分辨率，现在又有PSP画质又有卡顿了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈词与芍药  
+##### 346#       发表于 2023-2-14 00:40
+
+刚拿到，等会看看，看朋友试玩感觉不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
