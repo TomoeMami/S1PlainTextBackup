@@ -3465,3 +3465,13 @@ FF16感觉没啥吸引人的特点
 
 销量目标应该是6月30日之前卖1500万份，进入财报前10。朱紫同期是2000万份，喷3同期大约1000万
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 949#       发表于 2023-2-13 17:04
+
+天老爷，本地电商终于开预购了，但也大咧咧涨价涨到149.99<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+无论如何现在有三份预定在手了（其中一个大概率被砍单），我终于可以摆脱F5噩梦，安心上班了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

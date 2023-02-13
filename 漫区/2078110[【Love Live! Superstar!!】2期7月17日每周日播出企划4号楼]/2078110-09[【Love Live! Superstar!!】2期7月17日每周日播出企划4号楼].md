@@ -1445,3 +1445,11 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  稀勢のささ  
+##### 12150#       发表于 2023-2-13 17:04
+
+说明运营非常的公平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和解了呢
+
