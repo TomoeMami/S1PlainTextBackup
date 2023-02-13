@@ -3514,3 +3514,11 @@ FF16感觉没啥吸引人的特点
 
 如果可以自由组合不受约束那就牛逼了，以后王国之泪就是“电子”乐高了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nma  
+##### 954#       发表于 2023-2-13 20:43
+
+官网一般隔多久放货的？想买7700好像只有这一个渠道
+

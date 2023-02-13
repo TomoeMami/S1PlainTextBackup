@@ -319,3 +319,16 @@ ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都�
 
 会员和会员之间亦有差距
 
+
+*****
+
+####  captoon  
+##### 331#       发表于 2023-2-13 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731121&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-13 19:23</a>
+
+ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都没有上</blockquote>
+不折腾了，等看别人试玩报告了.....
+
+这游戏真D尴尬，夹在一堆作品之间....
+
