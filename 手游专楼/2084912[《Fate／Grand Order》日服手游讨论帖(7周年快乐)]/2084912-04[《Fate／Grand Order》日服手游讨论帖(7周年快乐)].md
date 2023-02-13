@@ -8846,3 +8846,39 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 所以你看去抽这卡池的楼友们不几乎人手一只（大概？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你必须马上拥有（
 
+
+*****
+
+####  里村紅葉  
+##### 5331#       发表于 2023-2-13 19:23
+
+<img src="https://img.saraba1st.com/forum/202302/13/192254kyn4jkr4yy4y5l52.jpg" referrerpolicy="no-referrer">
+
+<strong>2233.jpg</strong> (568.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 19:22 上传
+
+我就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽烟雾镜池子
+
+*****
+
+####  霧谷藤乃  
+##### 5332#       发表于 2023-2-13 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731104&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-13 19:21</a>
+
+你必须马上拥有（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我又不会去下烟池，已经开摆等周年泳装了
+
+*****
+
+####  alucardcz  
+##### 5333#       发表于 2023-2-13 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59731120&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-13 19:23</a>
+
+我就不一样了没抽烟雾镜池子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

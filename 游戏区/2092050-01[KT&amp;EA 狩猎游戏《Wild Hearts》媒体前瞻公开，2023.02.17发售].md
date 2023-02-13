@@ -281,3 +281,13 @@ ea play pro相当于隔壁的Ubisoft+ 首发就可以玩ea游戏的豪华版，1
 
 看了下，PS商店里没EA PRO会员，只有普通会员
 
+
+*****
+
+####  医生狼多  
+##### 327#       发表于 2023-2-13 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59730934&amp;ptid=2092050" target="_blank">captoon 发表于 2023-2-13 19:04</a>
+看了下，PS商店里没EA PRO会员，只有普通会员</blockquote>
+ea pro是绑着ea desktop和origin两个辣鸡一起的，主机steam应该都没有上
+
