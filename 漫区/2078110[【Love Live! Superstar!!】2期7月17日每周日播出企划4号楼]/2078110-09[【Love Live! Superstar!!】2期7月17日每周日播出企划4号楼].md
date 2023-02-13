@@ -1589,3 +1589,12 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lj205  
+##### 12165#       发表于 2023-2-14 06:29
+
+她不说的话可能真的没人会发<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+毕竟日本人
+
