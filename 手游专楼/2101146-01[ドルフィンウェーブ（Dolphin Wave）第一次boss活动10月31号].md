@@ -72,3 +72,19 @@
 排位太卷了，我前排角色几乎都有也被踢出5000以外了，因为我赛蕾 ...</blockquote>
 也算好事啦，流水高游戏才长久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小五的拖鞋  
+##### 262#         楼主| 发表于 2023-2-13 22:23
+
+<img src="https://img.saraba1st.com/forum/202302/13/222321i8mmxdfem7z67n48.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230213222302.png</strong> (205.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-13 22:23 上传
+
+这次活动每个人还有额外剧情，好评
+
