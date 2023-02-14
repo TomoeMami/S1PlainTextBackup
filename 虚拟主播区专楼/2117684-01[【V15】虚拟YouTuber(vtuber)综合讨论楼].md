@@ -1927,3 +1927,16 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 年报不行的话，该把浪费资源虹女都踢了精炼费用了
 
+
+*****
+
+####  psnsic8nag  
+##### 118#       发表于 2023-2-14 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742560&amp;ptid=2117684" target="_blank">poipanchao 发表于 2023-2-14 15:58</a>
+
+年报不行的话，该把浪费资源的虹女都踢了精炼费用了</blockquote>
+底边yt不行为何不放来B站养？
+
+彩虹免疫ruler也不用担心炸吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
