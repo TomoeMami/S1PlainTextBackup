@@ -2155,3 +2155,13 @@ pay 一单</blockquote>
 
 [https://radiko.jp/#!/ts/NACK5/20230214220000](https://radiko.jp/#!/ts/NACK5/20230214220000)  这个吧 20分钟出场 直接点播放只有3分钟但点分享那里就可以听完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 12215#       发表于 2023-2-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59748726&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-14 22:29</a>
+https://radiko.jp/#!/ts/NACK5/20230214220000  这个吧 20分钟出场 直接点播放只有3分钟但点分享那里就可 ...</blockquote>
+有人传了，但是听下开只有open up和yellow<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
