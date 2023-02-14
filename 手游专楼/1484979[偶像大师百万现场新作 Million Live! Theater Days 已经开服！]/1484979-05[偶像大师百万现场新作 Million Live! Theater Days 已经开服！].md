@@ -156,3 +156,13 @@
 
 所以第二天选谁推理出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 7095#       发表于 2023-2-14 13:40
+
+贴吧有个作业，kana julia serika 72
+
+只靠第一天还是不好推出来，不过还是先抄了再说
+

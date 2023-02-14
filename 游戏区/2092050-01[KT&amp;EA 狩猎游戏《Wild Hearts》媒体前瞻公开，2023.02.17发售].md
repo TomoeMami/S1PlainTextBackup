@@ -941,3 +941,11 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 哪个平台好点，昨晚试了下xss&amp; ...</blockquote>
 至少PC不行，野猪王完全卡住一帧情况很常见
 
+
+*****
+
+####  布拉德莱恩  
+##### 393#       发表于 2023-2-14 13:49
+
+刃伞真是潮出水，GP练好了节奏感和观赏性超高。当然难点在于GP是这武器的硬性要求，武器机制决定了不开伞（伞变红）就几乎没伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
