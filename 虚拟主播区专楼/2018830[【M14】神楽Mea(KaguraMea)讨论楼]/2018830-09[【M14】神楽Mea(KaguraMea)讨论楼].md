@@ -4326,3 +4326,42 @@ image.png
 
 有告知还行，估计是谷子
 
+
+*****
+
+####  古战场亡魂  
+##### 13375#       发表于 2023-2-14 18:30
+
+说不定是cosplay服，我好像在推特上看到mea新衣服的cosplay服快出了。
+
+*****
+
+####  yywzjsw  
+##### 13376#       发表于 2023-2-14 18:33
+
+今天感觉好兴奋
+
+*****
+
+####  十九号大侠  
+##### 13377#       发表于 2023-2-14 18:35
+
+嘻嘻嘻嘻嘻
+
+*****
+
+####  JY要塞  
+##### 13378#       发表于 2023-2-14 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">早开播早下播，之后干什么不敢想
+
+*****
+
+####  游山赫乃丈丶  
+##### 13379#       发表于 2023-2-14 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59745384&amp;ptid=2018830" target="_blank">JY要塞 发表于 2023-2-14 18:37</a>
+
+早开播早下播，之后干什么不敢想</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">还用想吗？
+
