@@ -4530,3 +4530,13 @@ do not force yourself
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十九号大侠  
+##### 13400#       发表于 2023-2-14 20:15
+
+疯狂圈钱的
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

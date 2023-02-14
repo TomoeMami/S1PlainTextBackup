@@ -2003,3 +2003,44 @@ pay 一单</blockquote>
 
 是亚布力，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 12201#       发表于 2023-2-14 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746594&amp;ptid=2078110" target="_blank">Enakina 发表于 2023-2-14 19:55</a>
+
+发售时间这么近，估计也不打算做宣发了，也没正式出道，算发着玩的吧</blockquote>
+也没主流出道，发着先看看成绩吧，看pay串说的鱼和同社的灯都是这么个流程
+
+当然卖不动的就没下文了
+
+*****
+
+####  稀勢のささ  
+##### 12202#       发表于 2023-2-14 20:15
+
+🐟下午的坐客广播里  一句国内学校不让早恋给主持人整不会了
+
+*****
+
+####  优妮可  
+##### 12203#       发表于 2023-2-14 20:19
+
+应该不是鱼吧，是矢野好像她的fc卖了几百
+
+*****
+
+####  starring  
+##### 12204#       发表于 2023-2-14 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746814&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-14 20:12</a>
+
+也没主流出道，发着先看看成绩吧，看pay串说的鱼和同社的灯都是这么个流程
+
+当然卖不动的就没下文了 ...</blockquote>
+只在sma的网站售卖貌似不统计销量，灯是跟唱片公司签约算正式歌手出道不一样的
+
+看sma的做法，大概走hnk的路线发展
+

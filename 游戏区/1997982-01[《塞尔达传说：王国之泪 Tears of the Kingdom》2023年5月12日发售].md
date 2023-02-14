@@ -3762,3 +3762,11 @@ Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三�
 
 黄牛猖獗倒霉高价区用户羡慕嫉妒地看着你们，我感觉没有任天堂官方的内地买这些东西，比有任天堂官方的欧洲用户要方便便宜太多了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuwe0714  
+##### 974#       发表于 2023-2-14 20:19
+
+感觉任天堂打算在三月底或者四月初的王国之泪前先宣传一波旷野之息，再吸引一波新人先入坑前作啊，这段时间一直在发旷野之息的宣传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
