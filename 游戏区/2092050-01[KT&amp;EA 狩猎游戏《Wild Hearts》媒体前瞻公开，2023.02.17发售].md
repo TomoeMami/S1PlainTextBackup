@@ -930,3 +930,14 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  猫不萌  
+##### 392#       发表于 2023-2-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59740383&amp;ptid=2092050" target="_blank">Booorunestud 发表于 2023-2-14 13:18</a>
+
+哪个平台好点，昨晚试了下xss&amp; ...</blockquote>
+至少PC不行，野猪王完全卡住一帧情况很常见
+
