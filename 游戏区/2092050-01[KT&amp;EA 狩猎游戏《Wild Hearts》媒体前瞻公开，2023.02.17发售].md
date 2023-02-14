@@ -901,3 +901,32 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 话说为啥不接着做讨鬼3呢~
 
+
+*****
+
+####  Booorunestud  
+##### 389#       发表于 2023-2-14 13:18
+
+哪个平台好点，昨晚试了下xss走路掉帧，ps5和pc表现哪个好
+
+*****
+
+####  布拉德莱恩  
+##### 390#       发表于 2023-2-14 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59740232&amp;ptid=2092050" target="_blank">树上有游戏机 发表于 2023-2-14 13:08</a>
+玩了一个小时，就感觉画面太拉了，开始下雪那里我还以为是恐怖游戏的诡异场景。不愧是技术的光荣。
+
+不过还 ...</blockquote>
+因为讨鬼传背景太日本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂野之心相对比较中性，受众明显是后者更多
+
+
+*****
+
+####  415452356  
+##### 391#       发表于 2023-2-14 13:20
+
+  这玩意就是不叫讨鬼3的讨鬼3，讨鬼传：世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
