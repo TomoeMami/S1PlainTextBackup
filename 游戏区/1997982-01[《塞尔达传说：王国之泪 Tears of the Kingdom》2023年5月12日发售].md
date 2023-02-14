@@ -3812,3 +3812,30 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  阿布都督  
+##### 979#       发表于 2023-2-15 02:21
+
+美任确实拉，直面会结束之后日任官网直接就放了预购，美任官网毛都没有，典藏版全靠第三方卖，然而第三方多会开的预购完全不知道，等我知道的时候早就卖完了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 980#       发表于 2023-2-15 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751203&amp;ptid=1997982" target="_blank">阿布都督 发表于 2023-2-15 02:21</a>
+美任确实拉，直面会结束之后日任官网直接就放了预购，美任官网毛都没有，典藏版全靠第三方卖，然而第三方多 ...</blockquote>
+你得去蹲推特或者电报群，或者你们本地专门更新各个店铺上货情况的情报整合网站，然后一直刷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+很折磨但也最有用，官网大概是最没用的那个——虽然它说它会给你发邮件通知，但服务器太烂分分钟能把网页挤爆挤卡，这些天我蹲我们本地类似的网站的时候，看到一群人抱怨XB3简直是噩梦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sherlock08  
+##### 981#       发表于 2023-2-15 04:45
+
+之前加的动森群里确实有好几个人在问，我在纠结如果把一始村说成家园系统良心会不会痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -73,3 +73,13 @@
 
 没看V的第一年零几天，希望绫总还活着<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stmule  
+##### 14503#       发表于 2023-2-15 03:01
+
+<img src="https://p.sda1.dev/9/9fbd7b6756cf0ff69d9c65ad0832a7dc/CMP_20230215030115286.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

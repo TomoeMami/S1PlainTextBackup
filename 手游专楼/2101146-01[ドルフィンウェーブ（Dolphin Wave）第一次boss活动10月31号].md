@@ -163,3 +163,11 @@
 公告里有写是bug了，不过获得的量是没问题的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好吧，原来公告里写了
 
+
+*****
+
+####  startea15  
+##### 270#       发表于 2023-2-15 02:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">195抽一个up角都没，彩海豚就出了两个歪了一个歌舞伎冰织一个普通紫苑，哭了
+
