@@ -2134,3 +2134,14 @@ pay 一单</blockquote>
 听了Miracle Chocolate Night的全曲，真好听啊，目前出来的三首全曲都好棒</blockquote>
 哪儿听的
 
+
+*****
+
+####  player3960  
+##### 12213#       发表于 2023-2-14 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59748193&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-14 21:49</a>
+
+哪儿听的</blockquote>
+晚上的广播，b站很快应该有人会搬的
+

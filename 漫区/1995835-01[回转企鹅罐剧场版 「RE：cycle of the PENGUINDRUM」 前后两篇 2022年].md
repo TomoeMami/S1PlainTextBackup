@@ -2768,3 +2768,11 @@ TV重剪辑上映，太长了。有点像EVA的death，TV精彩回顾，适合�
 
 后篇汉化已出
 
+
+*****
+
+####  虚无连斩  
+##### 249#       发表于 2023-2-14 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">晚上有点忙就跳着看完了，新ED挺好听的……感觉节奏很快，一些TV不错的细节都被删了
+

@@ -1245,3 +1245,18 @@ KT 要步 SE 后尘了吗（
 
 看到后续更新计划眼前一黑了，bug修复和武器强化都要放到发售后，这玩意是真EA啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 427#       发表于 2023-2-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59748333&amp;ptid=2092050" target="_blank">bm7号 发表于 2023-2-14 21:59</a>
+
+这游戏比讨鬼传强多了，我印象里讨鬼传是一个刀剑乱舞无双水平的游戏。
+
+光荣游戏最晚从17，18年那会开始最 ...</blockquote>
+光荣游戏pc移植两大坑去年还在，用高刷新率屏幕游戏会变两倍速和不链接手柄游戏会出现卡顿。最烂移植非他莫属
+
+不如说是顶配显卡力大砖飞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
