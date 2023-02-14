@@ -717,3 +717,40 @@ pro能进村继续打
 
 感觉不如.....讨鬼.......人设<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">,左真牛逼
 
+
+*****
+
+####  喵喵叫的猫  
+##### 371#       发表于 2023-2-14 08:53
+
+看了直播除了对那些长瘤子的小怪其他都还挺满意的
+
+不过霍格华兹成就还没打完马上又一大堆新作完全没时间玩 ps5的怪物猎人也还没打到能解锁dlc的进度
+
+还挺犹豫要不要买的
+
+*****
+
+####  刘震云  
+##### 372#       发表于 2023-2-14 09:00
+
+昨天晚上玩了2个多小时，干死超级野猪王就下了
+
+几个感想：
+
+1.PC优化太拉了，3080不开超分辨率4k只能50帧，而且画质预设低中高基本帧数没区别（？）
+
+开了超分辨率锁了个60帧但是画面却不时有卡顿感，60多帧CPU却占用高，这是D加密的锅没跑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+2.BUG多，我两个多小时的游玩时间就碰到一个除了BGM其他音效全都消失的BUG，看贴吧里还有各种闪退的BUG（估计是配置要求的锅）
+
+3.怪物攻击强修正，最后那个超级野猪王的猪车和下压<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，逼你用机关术，机关术跳劈伤害就是高啊，不得不用
+
+4.这作武器很有趣，野太刀应该对标的大剑，但是蓄力是居合<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，还能弹反？
+
+伞刃也是主打弹反，普攻和弹反能累计技能条增加攻击段数和伤害，普攻伤害低，但弹反攻击伤害巨高！空中也可以弹，就是弹反后退位移太大导致反击很多时候打不到人
+
+大锤我看的官方演示视频，攻击中还可以变身长柄锤，**增加了攻击范围（比怪猎的小锤好多了）
+
+远程武器的防御和近战武器的防御一样，也就是说远程和近战一样硬？我太刀野猪王打了半天猫了两次，看主播弓箭随便射射就过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
