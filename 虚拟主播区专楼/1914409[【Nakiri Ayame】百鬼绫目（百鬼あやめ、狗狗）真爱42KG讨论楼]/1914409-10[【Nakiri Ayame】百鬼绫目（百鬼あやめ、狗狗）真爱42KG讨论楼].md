@@ -65,3 +65,11 @@
 
 只敢在小号说今天没直播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  昆西昆希昆  
+##### 14502#       发表于 2023-2-15 00:32
+
+没看V的第一年零几天，希望绫总还活着<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
