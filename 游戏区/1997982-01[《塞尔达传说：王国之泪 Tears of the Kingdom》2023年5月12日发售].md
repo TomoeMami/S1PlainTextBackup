@@ -3739,3 +3739,16 @@ My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  竜破斬  
+##### 972#       发表于 2023-2-14 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742799&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-14 16:13</a>
+
+现在最容易预订收藏版的还是日本各种商店卖场的店头，随便订还有折扣，这就是主场优势吧
+
+  -- 来自 ...</blockquote>
+而且考虑到现在日元汇率，日区现在还是任天堂的低价区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

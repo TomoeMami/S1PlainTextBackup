@@ -116,3 +116,19 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  心之光  
+##### 266#       发表于 2023-2-14 16:34
+
+最近游戏里skip时候都不显示数字了，是我这个版本有问题了吗
+
+<img src="https://img.saraba1st.com/forum/202302/14/163414kxav137xeabcp1hx.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230214163336.jpg</strong> (241.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 16:34 上传
+
