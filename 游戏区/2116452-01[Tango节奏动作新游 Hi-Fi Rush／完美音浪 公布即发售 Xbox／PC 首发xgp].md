@@ -4459,3 +4459,16 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 是能直接破防，但后面的三连雷似乎有发生确保，挡完三连雷他也恢复硬直了所以硬挡不是好选择
 不知道挡完立刻挑空能不能躲掉，晚上去试试
 
+
+*****
+
+####  760194962  
+##### 429#       发表于 2023-2-14 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736496&amp;ptid=2116452" target="_blank">Booorunestud 发表于 2023-2-14 08:40</a>
+是能直接破防，但后面的三连雷似乎有发生确保，挡完三连雷他也恢复硬直了所以硬挡不是好选择
+不知道挡完 ...</blockquote>
+要是黄条已经差不多满了你格挡破防然后等三个落雷那好像确实不太行 他会恢复
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
