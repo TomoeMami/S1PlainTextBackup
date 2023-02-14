@@ -3705,3 +3705,27 @@ My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到
 现在剩GameStop 129 ...</blockquote>
 欧任现在还没给收藏版MSRP？这是什么迷之操作……
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 969#       发表于 2023-2-14 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742443&amp;ptid=1997982" target="_blank">竜破斬 发表于 2023-2-14 15:49</a>
+
+欧任现在还没给收藏版MSRP？这是什么迷之操作……</blockquote>
+没给，现在有些以前就有砍单劣迹的小商店有99.99-119.99的价格，上周开预定的几个店涨价是以分钟计的，分分钟飙到179.99，昨天本地最大的电商和亚马逊终于上货了，但全部标价149.99（与此同时英亚也上架了，但折合欧元125），反而平时以高价着称的Gamestop这次只卖129.99……
+
+全欧的my nintendo store到现在一点动静都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+有欧任这种废物点心在，你任欧洲市场做不起来不是没道理的= =
+
+*****
+
+####  宛若青空  
+##### 970#       发表于 2023-2-14 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742548&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-14 15:57</a>
+没给，现在有些以前就有砍单劣迹的小商店有99.99-119.99的价格，上周开预定的几个店涨价是以分钟计的，分 ...</blockquote>
+之前Xb3限定时欧任就搞得很糟糕了，虽然美任也好不到哪里去，真的废<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
