@@ -2123,3 +2123,14 @@ pay 一单</blockquote>
 
 听了Miracle Chocolate Night的全曲，真好听啊，目前出来的三首全曲都好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 12212#       发表于 2023-2-14 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59747944&amp;ptid=2078110" target="_blank">player3960 发表于 2023-2-14 21:28</a>
+
+听了Miracle Chocolate Night的全曲，真好听啊，目前出来的三首全曲都好棒</blockquote>
+哪儿听的
+
