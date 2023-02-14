@@ -1174,3 +1174,11 @@ PS5能用xgpu送的EA会员吗
 想试试水</blockquote>
 用不了 你要微软给钱ps上花吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 419#       发表于 2023-2-14 21:11
+
+靠，傻逼啊，今天猎了2小时突然觉得有点腻，但这游戏的优化看起来根本玩不了的样子，就感觉好烦躁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

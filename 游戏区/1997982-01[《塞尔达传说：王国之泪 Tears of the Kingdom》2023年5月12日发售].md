@@ -3780,3 +3780,15 @@ Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三�
 
 不过确实看到不少人最近因为王泪要发售了开始玩野炊
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 976#       发表于 2023-2-14 21:21
+
+我才安利了一个坛友玩野炊，然后他现在不仅趁打折买了DLC，还被我忽悠预购了王泪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+与此同时，我好几个野炊没打完的同事最近也开始动了……
+挺好，感觉又能给野炊拉一波销量了，特别是数字版DLC，卖出的每一份都是纯赚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
