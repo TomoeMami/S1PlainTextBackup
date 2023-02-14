@@ -14426,3 +14426,13 @@ holocure的新角色自有技能绝赞中
 
 <img src="https://img.saraba1st.com/forum/202302/14/051514gtp09bfst0oksfba.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 4330#         楼主| 发表于 2023-2-14 10:15
+
+昨天果然线下跟EN的2个人在一起
+
+好像直播里说还送了个鲷焼き
+
