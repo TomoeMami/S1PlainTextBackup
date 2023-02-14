@@ -1653,3 +1653,28 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 玩葱的pay子也宅吧
 
+
+*****
+
+####  csolfans  
+##### 12172#       发表于 2023-2-14 10:23
+
+<blockquote>优妮可 发表于 2023-2-14 10:19
+玩葱的pay子也宅吧</blockquote>
+但是她最早睡
+
+*****
+
+####  nufawneafg  
+##### 12173#       发表于 2023-2-14 10:25
+
+pay虽然宅但是没有点夜猫子属性
+健康宅<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 12174#       发表于 2023-2-14 10:26
+
+nako好像也宅但是藏得挺密，pay是高纯度的术口力厨也是个大友（最喜欢微笑和丽华会长，去年看了派Q然后发推说想被公主抱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
