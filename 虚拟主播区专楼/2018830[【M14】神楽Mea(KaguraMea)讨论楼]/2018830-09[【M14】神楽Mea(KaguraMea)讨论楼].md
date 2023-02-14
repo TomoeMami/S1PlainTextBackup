@@ -4375,3 +4375,62 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  十九号大侠  
+##### 13381#       发表于 2023-2-14 19:01
+
+果然是买谷子
+
+*****
+
+####  古战场亡魂  
+##### 13382#       发表于 2023-2-14 19:01
+
+果然是谷子。
+
+*****
+
+####  秋游刃  
+##### 13383#       发表于 2023-2-14 19:01
+
+果然谷子。
+
+*****
+
+####  息衍  
+##### 13384#       发表于 2023-2-14 19:02
+
+<img src="https://img.saraba1st.com/forum/202302/14/190243orl4dn9hzq0cx2yy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 19:02 上传
+
+*****
+
+####  yywzjsw  
+##### 13385#       发表于 2023-2-14 19:08
+
+日，这次谷子也太骗钱了吧
+
+*****
+
+####  路人庚  
+##### 13386#       发表于 2023-2-14 19:09
+
+<img src="https://img.saraba1st.com/forum/202302/14/190822z630jbj6w7f7jxtt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3F286BE9-1C20-49A5-81F1-1B4A1F4D016C.jpeg</strong> (109.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 19:08 上传
+
+音声+周边
+
+（顺便一提四天前兔菊也用这个平台发售过周边
+
