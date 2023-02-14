@@ -853,3 +853,24 @@ pa5版优化也太差了，但是看到了黑皮大姐姐，所以我选择原�
 
 官网更新了武器介绍
 
+
+*****
+
+####  超赛锡纸烫  
+##### 384#       发表于 2023-2-14 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59735841&amp;ptid=2092050" target="_blank">DJYDJYD 发表于 2023-2-14 02:57</a>
+隔壁甚至有人说pro根本进不了游戏的</blockquote>
+ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的origin入库提前玩，用ea app没法入库的，小困扰满多的
+
+*****
+
+####  aha  
+##### 385#       发表于 2023-2-14 12:50
+
+看了下飞燕刀的介绍。
+
+[https://www.youtube.com/watch?v=WAdWgsIhfjI](https://www.youtube.com/watch?v=WAdWgsIhfjI)
+
+以前我在想这种没有盾的武器是怎么躲跟踪性强的龙车的，一看视频发现原来是靠飞。重攻击和方向键组合可以带位移，自带二段跳，跳跃能取消攻击动作。R2可以从怪身上拉一条线，然后可以绕着怪飞，还能拉远拉近，拉线时造成定量伤害能激活高伤害终结技。
+
