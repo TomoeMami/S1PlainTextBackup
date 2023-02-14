@@ -802,3 +802,13 @@ pc有game pass，但是找不到这个游戏，去ea play看有游戏，但我�
 
 不行，PC我进不去游戏。。启动个几分钟然后又弹回EA APP的界面。。。烂橘子还是我熟悉的哪个烂橘子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈词与芍药  
+##### 379#       发表于 2023-2-14 09:36
+
+pa5版优化也太差了，但是看到了黑皮大姐姐，所以我选择原谅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
