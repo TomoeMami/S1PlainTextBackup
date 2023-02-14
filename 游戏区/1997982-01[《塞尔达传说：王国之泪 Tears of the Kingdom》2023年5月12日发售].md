@@ -3792,3 +3792,11 @@ Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冷泉夜月  
+##### 977#       发表于 2023-2-14 21:33
+
+王泪这波肯定能带野炊再冲一波，估计能超过大乱斗爬到第三位了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
