@@ -2145,3 +2145,13 @@ pay 一单</blockquote>
 哪儿听的</blockquote>
 晚上的广播，b站很快应该有人会搬的
 
+
+*****
+
+####  稀勢のささ  
+##### 12214#       发表于 2023-2-14 22:29
+
+ 本帖最后由 稀勢のささ 于 2023-2-14 22:30 编辑 
+
+[https://radiko.jp/#!/ts/NACK5/20230214220000](https://radiko.jp/#!/ts/NACK5/20230214220000)  这个吧 20分钟出场 直接点播放只有3分钟但点分享那里就可以听完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
