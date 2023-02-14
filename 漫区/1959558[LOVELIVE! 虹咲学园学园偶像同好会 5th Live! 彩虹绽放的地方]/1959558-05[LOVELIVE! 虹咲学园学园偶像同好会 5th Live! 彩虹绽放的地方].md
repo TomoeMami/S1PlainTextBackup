@@ -3103,3 +3103,22 @@ R3BIRTH超次元音乐祭<img src="https://p.sda1.dev/9/3d1df6beac88083ec79d33ac
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 7041#       发表于 2023-2-14 23:25
+
+[https://twitter.com/ohkowai/status/1625510181978402817](https://twitter.com/ohkowai/status/1625510181978402817)
+
+🎉🎉🎉🎉🎉ランジュちゃん诞生日おめでとう〜〜！！🥩🍖🥩🍖🥩🥩💪🎉🎉🎉🎉🍰
+
+#钟岚珠生诞祭2023
+
+#钟岚珠诞生祭2023
+
+#钟岚珠
+
+#虹ヶ咲
+<img src="https://p.sda1.dev/9/e53ccab89a72d0295569dde619234284/20230214_232322.jpg" referrerpolicy="no-referrer">
+

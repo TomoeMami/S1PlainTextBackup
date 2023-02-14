@@ -2176,3 +2176,14 @@ https://radiko.jp/#!/ts/NACK5/20230214220000  这个吧 20分钟出场 直接�
 有人传了，但是听下开只有open up和yellow</blockquote>
 那就不知道了 我才听到一半
 
+
+*****
+
+####  player3960  
+##### 12217#       发表于 2023-2-14 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59748979&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-14 22:50</a>
+
+有人传了，但是听下开只有open up和yellow</blockquote>
+不是这个广播，是这个月的FM FUKUOKA「あにぺろ」的『Liyuuのkoiiばな』[https://fmfukuoka.co.jp/program/anime/](https://fmfukuoka.co.jp/program/anime/)
+

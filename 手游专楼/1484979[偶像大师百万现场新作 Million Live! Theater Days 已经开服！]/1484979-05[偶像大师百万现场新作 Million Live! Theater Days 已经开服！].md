@@ -182,3 +182,13 @@
 
 你游这个活动是不是又在作死了？运营你明天最好开小号来提醒一下规律<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moonmagian  
+##### 7098#       发表于 2023-2-14 23:29
+
+笑死，分析了半天结果一个没中，不会真是全随机吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
