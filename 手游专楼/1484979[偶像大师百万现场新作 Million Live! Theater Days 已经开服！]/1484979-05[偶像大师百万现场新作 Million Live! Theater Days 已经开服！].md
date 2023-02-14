@@ -192,3 +192,11 @@
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  吉诺爱比利  
+##### 7099#       发表于 2023-2-14 23:54
+
+起码学双色球搞个二奖三奖，全中才有太搞了
+

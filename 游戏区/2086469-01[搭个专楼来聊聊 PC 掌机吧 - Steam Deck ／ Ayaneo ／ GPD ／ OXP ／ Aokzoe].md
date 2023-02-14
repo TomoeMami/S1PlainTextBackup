@@ -27,3 +27,25 @@ GPD WIN 4 的尾款 27s 付了，但还在纠结要不要留这个机器 <img sr
 GPD WIN 4 的尾款 27s 付了，但还在纠结要不要留这个机器</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我纠结要不要买win4一直纠结到说要出win2复刻，感觉还是win2复刻动心一点。。。
 
+
+*****
+
+####  医生狼多  
+##### 639#       发表于 2023-2-14 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59749656&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2023-2-14 23:36</a>
+我纠结要不要买win4一直纠结到说要出win2复刻，感觉还是win2复刻动心一点。。。 ...</blockquote>
+win2复刻是啥时候的消息
+
+*****
+
+####  魔法酪饼  
+##### 640#       发表于 2023-2-15 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59749949&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-2-14 23:54</a>
+
+win2复刻是啥时候的消息</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">“在奥克群看到群友说他之前在看gpd直播的时候官方人员表示年内会有基于新U的win2复刻版”
+
+大概就是这种感觉
+
