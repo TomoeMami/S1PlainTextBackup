@@ -3729,3 +3729,13 @@ My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到
 没给，现在有些以前就有砍单劣迹的小商店有99.99-119.99的价格，上周开预定的几个店涨价是以分钟计的，分 ...</blockquote>
 之前Xb3限定时欧任就搞得很糟糕了，虽然美任也好不到哪里去，真的废<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 971#       发表于 2023-2-14 16:13
+
+现在最容易预订收藏版的还是日本各种商店卖场的店头，随便订还有折扣，这就是主场优势吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1940,3 +1940,11 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 彩虹免疫ruler也不用担心炸吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzp05402  
+##### 119#       发表于 2023-2-14 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还是很怀疑vtuber公司的盈利能力的
+
