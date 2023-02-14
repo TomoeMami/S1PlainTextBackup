@@ -98,3 +98,11 @@
 
 同款暴击增伤大招，诗绘就比赛蕾娜扣掉一点点基础攻击力，然后大招倍率直接加了50%，杏里给了15%爆伤buff在大招里，应该是现在游戏里最高的爆伤buff了。
 
+
+*****
+
+####  MEKA  
+##### 264#       发表于 2023-2-14 12:37
+
+可惜剧情没语音，强度随他去了，玩这游戏是为了强度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

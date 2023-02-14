@@ -843,3 +843,13 @@ pa5版优化也太差了，但是看到了黑皮大姐姐，所以我选择原�
 这游戏会进xgp吗？我有xgp会员，是不是发售日就能免费玩？</blockquote>
 没进XGP。
 
+
+*****
+
+####  布拉德莱恩  
+##### 383#       发表于 2023-2-14 12:34
+
+[https://www.ea.com/zh-tw/games/w ... eapons-introduction](https://www.ea.com/zh-tw/games/wild-hearts/wild-hearts/news/weapons-introduction)
+
+官网更新了武器介绍
+
