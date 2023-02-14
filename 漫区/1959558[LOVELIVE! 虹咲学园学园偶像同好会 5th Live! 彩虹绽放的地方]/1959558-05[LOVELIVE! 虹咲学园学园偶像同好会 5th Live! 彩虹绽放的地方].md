@@ -3122,3 +3122,14 @@ R3BIRTH超次元音乐祭<img src="https://p.sda1.dev/9/3d1df6beac88083ec79d33ac
 #虹ヶ咲
 <img src="https://p.sda1.dev/9/e53ccab89a72d0295569dde619234284/20230214_232322.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 7042#       发表于 2023-2-15 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59693793&amp;ptid=1959558" target="_blank">dozen 发表于 2023-2-10 19:54</a>
+
+azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
+战吧和NGA已经满足绝大部分讨论需求了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
