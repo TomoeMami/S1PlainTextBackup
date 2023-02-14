@@ -1260,3 +1260,11 @@ KT 要步 SE 后尘了吗（
 
 不如说是顶配显卡力大砖飞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sine77  
+##### 428#       发表于 2023-2-14 22:51
+
+忍着720p的分辨率打完了试玩的三只怪，可能是我没玩明白吧，战斗体验感觉还不如讨鬼传。特别是那头猪，用锤子打着打着就变成了拔刀登龙流，幸好血不多并且有白送的破绽，让坐牢一般的狩猎时间短了不少<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+

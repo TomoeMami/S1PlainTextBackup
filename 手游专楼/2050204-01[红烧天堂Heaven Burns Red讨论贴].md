@@ -784,3 +784,15 @@ ios下载的话是切换到繁中服找app store吗
 
 你楼好冷清
 
+
+*****
+
+####  南去  
+##### 942#       发表于 2023-2-14 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59738876&amp;ptid=2050204" target="_blank">叶雾 发表于 2023-2-14 11:41</a>
+中文翻译叫废域
+
+棱镜战上一个选项</blockquote>
+记忆迷宫是废域的一部分而已
+
