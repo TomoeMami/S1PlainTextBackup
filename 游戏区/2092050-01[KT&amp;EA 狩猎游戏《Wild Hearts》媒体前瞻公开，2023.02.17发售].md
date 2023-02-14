@@ -1182,3 +1182,11 @@ PS5能用xgpu送的EA会员吗
 
 靠，傻逼啊，今天猎了2小时突然觉得有点腻，但这游戏的优化看起来根本玩不了的样子，就感觉好烦躁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Du_alone  
+##### 420#       发表于 2023-2-14 21:23
+
+这游戏闪退这么严重的吗？我4090刚进游戏还卡顿
+
