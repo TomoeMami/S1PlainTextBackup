@@ -949,3 +949,18 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 刃伞真是潮出水，GP练好了节奏感和观赏性超高。当然难点在于GP是这武器的硬性要求，武器机制决定了不开伞（伞变红）就几乎没伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raumanzug  
+##### 394#       发表于 2023-2-14 14:17
+
+到村口了，打起来真是卡麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 395#       发表于 2023-2-14 14:18
+
+草了 也太卡了，ea还宣传的3a，这画面比得过mhw吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
