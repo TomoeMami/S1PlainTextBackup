@@ -1730,3 +1730,11 @@ nako好像也宅但是藏得挺密，pay是高纯度的术口力厨也是个大�
 玩葱的pay子也宅吧</blockquote>
 pay之前有次在ins上说在看EVA，是香党<img src="https://static.saraba1st.com/image/smiley/carton2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 12178#       发表于 2023-2-14 14:00
+
+说起来3月8号的eva终bd，pay子应该会买吧，毕竟特典是短发香登场的-46h。
+
