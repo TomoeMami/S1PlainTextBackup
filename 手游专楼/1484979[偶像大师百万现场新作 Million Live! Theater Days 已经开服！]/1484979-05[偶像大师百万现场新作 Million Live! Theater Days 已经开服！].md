@@ -140,3 +140,11 @@
 
 只打算摆烂拿几个组的3W。简单算了下，开火状态打6次720票活动，再打2次450卷刚好30060。剩下2次开火次数随便打打好了。
 
+
+*****
+
+####  花开安菲路  
+##### 7093#       发表于 2023-2-14 11:54
+
+当然是直接躺平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
