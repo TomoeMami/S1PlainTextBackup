@@ -2044,3 +2044,20 @@ pay 一单</blockquote>
 
 看sma的做法，大概走hnk的路线发展
 
+
+*****
+
+####  稀勢のささ  
+##### 12205#       发表于 2023-2-14 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746939&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-14 20:20</a>
+
+只在sma的网站售卖貌似不统计销量，灯是跟唱片公司签约算正式歌手出道不一样的
+
+看sma的做法，大概走hnk的 ...</blockquote>
+是有人担心インディーズ出道会不会就没主流出道（即你说的签唱片公司）了
+
+然后有人搬出了鱼灯矢这三位，都是先インディーズ出道，然后卖的动的才主流出道
+
+至于数据哪怕外面不统计你社内总有数吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

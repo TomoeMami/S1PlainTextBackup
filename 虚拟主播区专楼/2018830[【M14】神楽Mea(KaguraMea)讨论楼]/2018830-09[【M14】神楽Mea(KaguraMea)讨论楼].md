@@ -4540,3 +4540,11 @@ do not force yourself
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yywzjsw  
+##### 13401#       发表于 2023-2-14 20:24
+
+爆率那么高的吗？我看到最起码4个抽到了，还有个在我面前
+

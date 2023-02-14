@@ -1162,3 +1162,15 @@ PS5能用xgpu送的EA会员吗<img src="https://static.saraba1st.com/image/smile
 
 说起来讨鬼还真希望有3的。
 
+
+*****
+
+####  萱时令  
+##### 418#       发表于 2023-2-14 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746607&amp;ptid=2092050" target="_blank">新庄运切 发表于 2023-2-14 19:56</a>
+PS5能用xgpu送的EA会员吗
+
+想试试水</blockquote>
+用不了 你要微软给钱ps上花吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
