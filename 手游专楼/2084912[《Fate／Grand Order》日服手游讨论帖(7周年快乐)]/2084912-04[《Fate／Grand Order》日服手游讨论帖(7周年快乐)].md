@@ -9101,3 +9101,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好多真香人
 
+
+*****
+
+####  AbigailWilliams  
+##### 5355#       发表于 2023-2-14 22:38
+
+要是狂阶都不用真香，第一天大伙都all in了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度美就是那么真实啊
+
