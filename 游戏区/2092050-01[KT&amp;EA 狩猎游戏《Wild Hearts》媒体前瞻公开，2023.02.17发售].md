@@ -1276,3 +1276,13 @@ KT 要步 SE 后尘了吗（
 
 优化太逆天了，帧生成时间比这烂的游戏应该不存在，没有一秒能稳住16.6ms的
 
+
+*****
+
+####  415452356  
+##### 430#       发表于 2023-2-15 01:05
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到我刚配的4080不到两个月就遇上坎了，现在退款买主机版应该是最好的选择吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

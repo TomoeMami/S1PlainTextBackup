@@ -3800,3 +3800,15 @@ Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三�
 
 王泪这波肯定能带野炊再冲一波，估计能超过大乱斗爬到第三位了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rusuna  
+##### 978#       发表于 2023-2-15 01:05
+
+在美国，不理解不抢典藏版的话有必要这么早惦记预购吗，我买普通实体的预购完全没翻过车……尤其是野炊没打完的不知道跟着着什么急，说真的就塞尔达系列那点剧情也没什么好害怕剧透的，透谜题我才会生气，一两句也说不清楚……看到有的人问野炊王泪选哪个，回复里有买新不买旧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然老粉肯定相信王泪的质量，但是没玩过的哪来的信心啊
+我最近在玩黄昏公主HD，感觉整个人心态都平和了许多，一想到还有缩小帽和果实玩，就不着急了
+gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙扣之类的东西……不过有特典至少给比数字版多花的钱找到了理由，心理平衡了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
