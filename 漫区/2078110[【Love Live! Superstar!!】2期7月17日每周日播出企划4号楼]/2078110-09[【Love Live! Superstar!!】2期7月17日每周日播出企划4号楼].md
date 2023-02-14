@@ -1977,3 +1977,21 @@ pay 一单
 pay 一单</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼五厕已经在担心切割了，
 
+
+*****
+
+####  Enakina  
+##### 12198#       发表于 2023-2-14 19:55
+
+发售时间这么近，估计也不打算做宣发了，也没正式出道，算发着玩的吧
+
+*****
+
+####  starring  
+##### 12199#       发表于 2023-2-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746452&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-14 19:46</a>
+
+看了眼五厕已经在担心切割了，</blockquote>
+五厕特有的发散思维<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

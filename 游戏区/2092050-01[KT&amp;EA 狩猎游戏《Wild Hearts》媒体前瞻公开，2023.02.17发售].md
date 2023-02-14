@@ -1129,3 +1129,28 @@ ps5优化的怎么样？有2k吗
 
 卧槽d加密，玩个几把啊
 
+
+*****
+
+####  delphinian  
+##### 415#       发表于 2023-2-14 19:53
+
+这个光石是不是试玩版捡不到？
+
+<img src="https://img.saraba1st.com/forum/202302/14/195221xs5f41vyv1o3t552.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230214195206.png</strong> (214.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 19:52 上传
+
+*****
+
+####  新庄運切  
+##### 416#       发表于 2023-2-14 19:56
+
+PS5能用xgpu送的EA会员吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想试试水
+
