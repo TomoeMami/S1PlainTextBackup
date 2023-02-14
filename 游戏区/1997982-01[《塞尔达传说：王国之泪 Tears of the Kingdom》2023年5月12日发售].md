@@ -3770,3 +3770,13 @@ Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三�
 
 感觉任天堂打算在三月底或者四月初的王国之泪前先宣传一波旷野之息，再吸引一波新人先入坑前作啊，这段时间一直在发旷野之息的宣传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uanlice  
+##### 975#       发表于 2023-2-14 20:53
+
+王国之泪的宣发从宣发旷野之息开始是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过确实看到不少人最近因为王泪要发售了开始玩野炊
+
