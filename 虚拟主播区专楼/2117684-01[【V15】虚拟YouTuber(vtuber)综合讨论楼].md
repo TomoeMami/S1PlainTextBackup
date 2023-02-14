@@ -1751,3 +1751,23 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 
 最好卷到游戏女仆版本回归<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  輝夜月  
+##### 100#       发表于 2023-2-14 09:25
+
+有理由怀疑原神是vspo运营今年的涨粉策略之一
+
+*****
+
+####  psnsic8nag  
+##### 101#       发表于 2023-2-14 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736981&amp;ptid=2117684" target="_blank">輝夜月 发表于 2023-2-14 09:25</a>
+
+有理由怀疑原神是vspo运营今年的涨粉策略之一</blockquote>
+不用怀疑了，就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但并不看好，要涨粉就只能学那几位个人势只播原不播其它的
+

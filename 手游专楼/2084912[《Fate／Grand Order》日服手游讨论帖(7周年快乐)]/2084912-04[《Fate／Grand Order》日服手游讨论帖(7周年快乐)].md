@@ -9037,3 +9037,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 这黑皮艾蕾爱了爱了
 
+
+*****
+
+####  xiongxingyu  
+##### 5348#       发表于 2023-2-14 09:25
+
+不死心想给烟雾镜冲个3宝，30发下去歪了个护士长，老老实实交盘子跑路了。这回抽了3个O蛇2个烟雾镜，然后中间歪了拉二、手办、奶奶和护士长，我甚至一度以为我在抽隔壁O神了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

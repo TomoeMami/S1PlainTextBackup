@@ -762,3 +762,43 @@ pro能进村继续打
 
 pc有game pass，但是找不到这个游戏，去ea play看有游戏，但我已经有了ea play with game pass权限，但是还是要我付费。那到底要怎么才能玩呢？
 
+
+*****
+
+####  猫不萌  
+##### 374#       发表于 2023-2-14 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736921&amp;ptid=2092050" target="_blank">elven119 发表于 2023-2-14 09:20</a>
+pc有game pass，但是找不到这个游戏，去ea play看有游戏，但我已经有了ea play with game pass权限，但是还 ...</blockquote>
+感觉bug可能要重新绑定一下吧，
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 375#       发表于 2023-2-14 09:24
+
+艹，以前没怎么用过ea play，今天才知道ps和pc版的ea play会员还是分开的，本来还想着试试ps5版体验怎么样，这下没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，kt找谁发行不好找ea这货
+
+*****
+
+####  AEmpire  
+##### 376#       发表于 2023-2-14 09:27
+
+试了下xsx版，画质模式30帧但是fsr拉满，物体边缘都虚化了，不过感觉比PC上跟手
+
+帧数模式确实顺滑，但是目测只有1080p，糊的没眼看
+
+*****
+
+####  空气先生  
+##### 377#       发表于 2023-2-14 09:27
+
+所以键鼠操作咋样
+
+*****
+
+####  有点追求  
+##### 378#       发表于 2023-2-14 09:30
+
+不行，PC我进不去游戏。。启动个几分钟然后又弹回EA APP的界面。。。烂橘子还是我熟悉的哪个烂橘子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
