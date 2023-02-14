@@ -1873,3 +1873,24 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就不看好虹未来的发展吧，情人节营收高不是正常的吗，并不会因此抬高股价
 
+
+*****
+
+####  psnsic8nag  
+##### 112#       发表于 2023-2-14 15:23
+
+ 本帖最后由 psnsic8nag 于 2023-2-14 15:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59741963&amp;ptid=2117684" target="_blank">zzp05402 发表于 2023-2-14 15:17</a>
+
+就不看好虹未来的发展吧，情人节营收高不是正常的吗，并不会因此抬高股价 ...</blockquote>
+挺奇怪的，AR live跟exID的3D披露都临时取消。
+
+彩虹接工商的钱花哪去了？
+
+*****
+
+####  _Ra1nMaker  
+##### 113#       发表于 2023-2-14 15:27
+
+别问，问就是你不懂股票解除禁售后跌破发行价是正常现象！ 
+

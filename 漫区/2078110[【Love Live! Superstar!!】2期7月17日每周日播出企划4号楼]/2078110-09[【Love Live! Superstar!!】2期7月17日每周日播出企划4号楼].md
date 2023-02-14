@@ -1749,3 +1749,11 @@ pay之前有次在ins上说在看EVA，是香党<img src="https://static.saraba1
 nako好像也宅但是藏得挺密，pay是高纯度的术力口厨也是个大友（最喜欢微笑和丽华会长，去年看了派Q然后发推 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老大友了
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12180#       发表于 2023-2-14 15:23
+
+大友们知道了应该很兴奋吧，现役偶像小妹妹小时候最喜欢看微笑Q娃什么的……
+
