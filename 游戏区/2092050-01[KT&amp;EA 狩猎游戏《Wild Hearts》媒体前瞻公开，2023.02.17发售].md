@@ -980,3 +980,11 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 1660ti根本是没法玩的程度，直接卸载，前面打小怪还有30-40帧左右，只是偶尔卡顿，打大怪直接ppt了，目测不超过20帧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 398#       发表于 2023-2-14 15:20
+
+D加密+ea app，pc玩家真是倒大霉了
+

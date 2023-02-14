@@ -3680,3 +3680,15 @@ FF16感觉没啥吸引人的特点
 
 原来英亚已经卖两次限定版了，每次卖半小时，这么搞很烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 967#       发表于 2023-2-14 15:17
+
+哈哈哈我周六订的119.99的果然被砍单了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且看了下好像无差别砍单，应砍尽砍……
+现在剩GameStop 129.99, 本地电商自取149.99和亚马逊149.99，后面俩有保价条款，希望发售前能把价格降到一个合理的程度吧……
+My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到底是多少而已<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

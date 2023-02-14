@@ -1845,3 +1845,31 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 原当初彩虹除了第一批大规模工商之外金憨憨等人可是吃了接近2年的长期工商，如果能带动新观众就更是赢了又赢的双赢大生意，作为运营方我觉得不可能不心动
 
+
+*****
+
+####  渡鸦骑士  
+##### 109#       发表于 2023-2-14 15:12
+
+你虹股价新低<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">今天十点的时候跌到了4685。
+情人节不应该是业绩高峰嘛<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psnsic8nag  
+##### 110#       发表于 2023-2-14 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59741873&amp;ptid=2117684" target="_blank">渡鸦骑士 发表于 2023-2-14 15:12</a>
+
+你虹股价新低今天十点的时候跌到了4685。
+
+情人节不应该是业绩高峰嘛 ...</blockquote>
+泥潭说了，股价跟经营状况毫无关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzp05402  
+##### 111#       发表于 2023-2-14 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就不看好虹未来的发展吧，情人节营收高不是正常的吗，并不会因此抬高股价
+

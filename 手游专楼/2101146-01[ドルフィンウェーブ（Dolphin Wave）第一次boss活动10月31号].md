@@ -106,3 +106,13 @@
 
 可惜剧情没语音，强度随他去了，玩这游戏是为了强度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 265#       发表于 2023-2-14 15:11
+
+这期抽了100抽一次海豚都没见，全歪支援卡去了，裸加成打吧，没钻了
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
