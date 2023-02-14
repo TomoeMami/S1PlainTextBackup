@@ -1043,3 +1043,13 @@ D加密+ea app，pc玩家真是倒大霉了
 
 画面太逆天了，感觉观感还不如ns上的mhr<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  umbasa  
+##### 405#       发表于 2023-2-14 17:47
+
+<blockquote>塞利斯 发表于 2023-2-14 17:13
+这游戏支持DLSS或FSR等优化技术吗？</blockquote>
+主机上的动态4k画面模式已经用fsr拉过了，至于pc上目前还没支持dlss，等正式发售再看吧
+
