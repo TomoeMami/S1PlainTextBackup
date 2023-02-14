@@ -1957,3 +1957,25 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 养底边很花钱嘛……
 很花钱的应该是那堆活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 121#       发表于 2023-2-14 16:52
+
+希望天焦禄不要不知好歹，把jp生日套的生日板还回来你虹还能再续两年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 122#       发表于 2023-2-14 16:55
+
+说起来偶像业那么成熟的毕业生回来参加大live的传统，Vtuber就不能学一下吗
+
+*****
+
+####  Ouro_Kronii  
+##### 123#       发表于 2023-2-14 16:57
+
+其实就是当年吹了一通有的没的最后一看还是传统娱乐业的模式，直播员/艺人暴雷/出走整个生意就没了，那凭什么给你那么高的PE。也难怪隔壁yagoo all in杏神想搞点不一样的，只是我也不看好罢了
+

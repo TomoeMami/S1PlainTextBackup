@@ -9063,3 +9063,33 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 只要有20np就可以成为快乐的地铺人
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5351#       发表于 2023-2-14 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743447&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-14 16:51</a>
+
+烟雾镜成型了，确实快乐
+
+只要有20np就可以成为快乐的地铺人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人至少！！
+
+*****
+
+####  exiaexa  
+##### 5352#       发表于 2023-2-14 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743477&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-14 16:53</a>
+人至少！！</blockquote>
+用多了也不是不能
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 5353#       发表于 2023-2-14 16:58
+
+人可以，至少该试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。yls这一手实在是高。
+

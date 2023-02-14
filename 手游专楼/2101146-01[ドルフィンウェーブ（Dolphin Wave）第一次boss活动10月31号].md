@@ -143,3 +143,23 @@
 最近游戏里skip时候都不显示数字了，是我这个版本有问题了吗</blockquote>
 我也是这样
 
+
+*****
+
+####  MEKA  
+##### 268#       发表于 2023-2-14 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743156&amp;ptid=2101146" target="_blank">心之光 发表于 2023-2-14 16:34</a>
+最近游戏里skip时候都不显示数字了，是我这个版本有问题了吗</blockquote>
+公告里有写是bug了，不过获得的量是没问题的
+
+*****
+
+####  心之光  
+##### 269#       发表于 2023-2-14 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743540&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-2-14 16:56</a>
+
+公告里有写是bug了，不过获得的量是没问题的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好吧，原来公告里写了
+
