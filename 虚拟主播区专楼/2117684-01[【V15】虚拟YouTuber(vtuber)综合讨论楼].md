@@ -1948,3 +1948,12 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还是很怀疑vtuber公司的盈利能力的
 
+
+*****
+
+####  渡鸦骑士  
+##### 120#       发表于 2023-2-14 16:43
+
+养底边很花钱嘛……
+很花钱的应该是那堆活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

@@ -132,3 +132,14 @@
 
 2023-2-14 16:34 上传
 
+
+*****
+
+####  小五的拖鞋  
+##### 267#         楼主| 发表于 2023-2-14 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743156&amp;ptid=2101146" target="_blank">心之光 发表于 2023-2-14 16:34</a>
+
+最近游戏里skip时候都不显示数字了，是我这个版本有问题了吗</blockquote>
+我也是这样
+
