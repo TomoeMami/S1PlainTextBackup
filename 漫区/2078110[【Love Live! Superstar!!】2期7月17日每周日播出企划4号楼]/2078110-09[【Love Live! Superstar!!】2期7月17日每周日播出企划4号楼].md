@@ -1616,3 +1616,14 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  adw667  
+##### 12168#       发表于 2023-2-14 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59727713&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-13 15:24</a>
+
+隔壁水的卡，感觉是sif2的画师是不是都有问题</blockquote>
+搁这卖名场面亚克力板是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
