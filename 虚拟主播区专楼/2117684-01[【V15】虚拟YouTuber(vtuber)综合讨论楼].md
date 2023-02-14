@@ -1821,3 +1821,11 @@ ema的原神直播挺好看的，但原神确实不是每个人都适合播的
 syl，hnn简直是突然进入直播废人模式了
 难道过年回家受刺激了吗
 
+
+*****
+
+####  FCCHua  
+##### 107#       发表于 2023-2-14 12:11
+
+草，这不很符合她的习惯吗，把直播当生活，去年直播时长仅次于mimi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
