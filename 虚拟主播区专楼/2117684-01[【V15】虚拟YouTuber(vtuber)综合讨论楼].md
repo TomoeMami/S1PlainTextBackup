@@ -2040,3 +2040,11 @@ King跟盒皇没了还有下位替代品可以养起来（叶及凑，Ver及Ren�
 
 <img src="https://img.saraba1st.com/forum/202302/14/184439fdo6ffyxnxsby4iv.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rzrbtk  
+##### 128#       发表于 2023-2-14 19:01
+
+おうとう圣诞节联了情人节又联，ngo实质监护人也就算了，琥珀真的不去现充爬梯吗…
+

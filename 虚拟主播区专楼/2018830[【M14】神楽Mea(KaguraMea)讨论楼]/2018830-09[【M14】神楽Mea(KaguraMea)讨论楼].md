@@ -4365,3 +4365,13 @@ image.png
 早开播早下播，之后干什么不敢想</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">还用想吗？
 
+
+*****
+
+####  缺陷电气杨永信  
+##### 13380#       发表于 2023-2-14 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

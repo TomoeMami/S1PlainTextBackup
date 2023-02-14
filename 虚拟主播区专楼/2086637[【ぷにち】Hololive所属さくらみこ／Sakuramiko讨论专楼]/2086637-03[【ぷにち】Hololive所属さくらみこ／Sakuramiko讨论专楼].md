@@ -14471,3 +14471,13 @@ holocure的新角色自有技能绝赞中
 
 这同接还不如开开杂谈。
 
+
+*****
+
+####  rs5621  
+##### 4335#       发表于 2023-2-14 19:02
+
+不太行
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
