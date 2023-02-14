@@ -1738,3 +1738,14 @@ pay之前有次在ins上说在看EVA，是香党<img src="https://static.saraba1
 
 说起来3月8号的eva终bd，pay子应该会买吧，毕竟特典是短发香登场的-46h。
 
+
+*****
+
+####  csolfans  
+##### 12179#       发表于 2023-2-14 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59737767&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-14 10:26</a>
+
+nako好像也宅但是藏得挺密，pay是高纯度的术力口厨也是个大友（最喜欢微笑和丽华会长，去年看了派Q然后发推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老大友了
+

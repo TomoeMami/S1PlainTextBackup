@@ -964,3 +964,11 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 草了 也太卡了，ea还宣传的3a，这画面比得过mhw吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raumanzug  
+##### 396#       发表于 2023-2-14 14:25
+
+进村前就野猪王琥珀主大老鼠这三只能打？应该没漏吧。
+
