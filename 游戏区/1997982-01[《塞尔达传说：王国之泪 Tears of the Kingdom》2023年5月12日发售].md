@@ -3654,3 +3654,13 @@ FF16感觉没啥吸引人的特点
 
 <img src="https://p.sda1.dev/9/ee35f90e4dc41d1e55865e2a33a243f1/20230214_093955.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 964#       发表于 2023-2-14 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59738374&amp;ptid=1997982" target="_blank">Piano-Forest 发表于 2023-02-14 11:08:02</a></blockquote>王泪官网一进去也是这个图案，怀疑是和野炊用希卡之石开希卡塔一样的核心机制，这次是用右手<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
