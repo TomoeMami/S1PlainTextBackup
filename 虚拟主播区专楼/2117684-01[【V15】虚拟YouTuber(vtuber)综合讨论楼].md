@@ -2014,3 +2014,29 @@ King跟盒皇没了还有下位替代品可以养起来（叶及凑，Ver及Ren�
 
 杏这边顶部就真没下位替代品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛头小希  
+##### 127#       发表于 2023-2-14 18:44
+
+不知道能不能评一个最kimo虹男，箱内前辈们都被他kimo到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+-zue37Q2r-3ug7ZnT3cStj-td.jpg
+(141.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202302/14/184439pq3oqq3issswceij.jpg" referrerpolicy="no-referrer">
+
+-zue37Q2r-5mcpK2aT3cSyi-c1.jpg
+(25.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-14 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202302/14/184439fdo6ffyxnxsby4iv.jpg" referrerpolicy="no-referrer">
+
