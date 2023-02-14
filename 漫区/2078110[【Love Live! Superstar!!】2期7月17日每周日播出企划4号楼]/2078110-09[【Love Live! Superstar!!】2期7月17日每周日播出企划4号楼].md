@@ -1606,3 +1606,13 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 
 她不说人都未必知道上这个节目了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更何况还得开会员才知道有这茬
 
+
+*****
+
+####  player3960  
+##### 12167#       发表于 2023-2-14 08:34
+
+每周开播前鲤鱼和staff都会发推，所以只要刷推总会有成员看见吧，只不过不会去听就是了。反正图一乐，鲤鱼第一周就说过肯定没人会发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

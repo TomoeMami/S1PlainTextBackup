@@ -4446,3 +4446,16 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Booorunestud  
+##### 428#       发表于 2023-2-14 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736190&amp;ptid=2116452" target="_blank">760194962 发表于 2023-2-14 07:40</a>
+格挡好的话可以直接破防 或者稳一点的用猫猫开大
+
+—— 来自 S1Fun</blockquote>
+是能直接破防，但后面的三连雷似乎有发生确保，挡完三连雷他也恢复硬直了所以硬挡不是好选择
+不知道挡完立刻挑空能不能躲掉，晚上去试试
+
