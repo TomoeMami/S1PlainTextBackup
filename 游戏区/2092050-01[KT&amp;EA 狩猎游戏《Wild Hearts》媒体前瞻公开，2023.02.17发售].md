@@ -754,3 +754,11 @@ pro能进村继续打
 
 远程武器的防御和近战武器的防御一样，也就是说远程和近战一样硬？我太刀野猪王打了半天猫了两次，看主播弓箭随便射射就过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 373#       发表于 2023-2-14 09:20
+
+pc有game pass，但是找不到这个游戏，去ea play看有游戏，但我已经有了ea play with game pass权限，但是还是要我付费。那到底要怎么才能玩呢？
+
