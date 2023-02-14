@@ -752,3 +752,16 @@ ios下载的话是切换到繁中服找app store吗
 
 大佬们，我又来啦。记忆宫殿在哪里啊，4000难度的棱镜战一定要通关这玩意第十层，我都没找到
 
+
+*****
+
+####  叶雾  
+##### 939#       发表于 2023-2-14 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59738276&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-2-14 11:01</a>
+
+大佬们，我又来啦。记忆宫殿在哪里啊，4000难度的棱镜战一定要通关这玩意第十层，我都没找到 ...</blockquote>
+中文翻译叫废域
+
+棱镜战上一个选项
+

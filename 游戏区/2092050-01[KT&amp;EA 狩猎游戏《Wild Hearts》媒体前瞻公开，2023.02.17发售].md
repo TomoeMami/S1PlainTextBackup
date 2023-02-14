@@ -832,3 +832,14 @@ pa5版优化也太差了，但是看到了黑皮大姐姐，所以我选择原�
 
 这游戏会进xgp吗？我有xgp会员，是不是发售日就能免费玩？
 
+
+*****
+
+####  铁甲钢弹  
+##### 382#       发表于 2023-2-14 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59738663&amp;ptid=2092050" target="_blank">elven119 发表于 2023-2-14 11:26</a>
+
+这游戏会进xgp吗？我有xgp会员，是不是发售日就能免费玩？</blockquote>
+没进XGP。
+
