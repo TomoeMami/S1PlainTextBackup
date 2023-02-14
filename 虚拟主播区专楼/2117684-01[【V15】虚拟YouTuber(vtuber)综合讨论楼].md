@@ -1798,3 +1798,14 @@ ema的原神直播挺好看的，但原神确实不是每个人都适合播的
 
 梨花的人设很贴合她的性格，但一般来说她表现出高冷一些的感觉人气会更高，也不知道她和运营是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FCCHua  
+##### 105#       发表于 2023-2-14 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59736292&amp;ptid=2117684" target="_blank">poipanchao 发表于 2023-2-14 08:09</a>
+单轮同接的话，vspo就很有19虹杏的味道
+破万当皇，但是经常卡9</blockquote>
+直播有说过要调整作息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
