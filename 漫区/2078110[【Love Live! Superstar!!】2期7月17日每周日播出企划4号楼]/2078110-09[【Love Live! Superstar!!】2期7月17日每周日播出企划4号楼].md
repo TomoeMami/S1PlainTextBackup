@@ -2061,3 +2061,18 @@ pay 一单</blockquote>
 
 至于数据哪怕外面不统计你社内总有数吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 12206#       发表于 2023-2-14 20:35
+
+鱼一单正经动画贴曲………………应该就是sma那套吧
+
+*****
+
+####  稀勢のささ  
+##### 12207#       发表于 2023-2-14 20:40
+
+一单前也有歌啊，龙约的3首角色歌，大概说的是那个吧
+
