@@ -3672,3 +3672,11 @@ FF16感觉没啥吸引人的特点
 
 像是封印之类，物体上可以要用来解开或者封印住的标记，或者手在空中结印之类的么
 
+
+*****
+
+####  Cybellybanana  
+##### 966#       发表于 2023-2-14 12:20
+
+原来英亚已经卖两次限定版了，每次卖半小时，这么搞很烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
