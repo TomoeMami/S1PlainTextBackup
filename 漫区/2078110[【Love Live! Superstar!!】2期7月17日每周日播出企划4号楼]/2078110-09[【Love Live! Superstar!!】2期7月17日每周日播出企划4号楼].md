@@ -1598,3 +1598,11 @@ kuma的问题可以让yabu爆料，或者鲨鱼的给nako爆料，这样不至�
 她不说的话可能真的没人会发<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 毕竟日本人
 
+
+*****
+
+####  稀勢のささ  
+##### 12166#       发表于 2023-2-14 08:13
+
+她不说人都未必知道上这个节目了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更何况还得开会员才知道有这茬
+
