@@ -3752,3 +3752,13 @@ My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到
   -- 来自 ...</blockquote>
 而且考虑到现在日元汇率，日区现在还是任天堂的低价区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 973#       发表于 2023-2-14 17:04
+
+Amiibo也订好了，顺手买了个大乱斗Ganondorf，这下我时之笛三角力量amiibo全齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黄牛猖獗倒霉高价区用户羡慕嫉妒地看着你们，我感觉没有任天堂官方的内地买这些东西，比有任天堂官方的欧洲用户要方便便宜太多了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

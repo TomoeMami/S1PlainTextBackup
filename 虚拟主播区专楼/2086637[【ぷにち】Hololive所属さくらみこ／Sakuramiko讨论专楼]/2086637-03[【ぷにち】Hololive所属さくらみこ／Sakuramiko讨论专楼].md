@@ -14436,3 +14436,13 @@ holocure的新角色自有技能绝赞中
 
 好像直播里说还送了个鲷焼き
 
+
+*****
+
+####  rs5621  
+##### 4331#       发表于 2023-2-14 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">待会做情人节巧克力啊，她心里有35p
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

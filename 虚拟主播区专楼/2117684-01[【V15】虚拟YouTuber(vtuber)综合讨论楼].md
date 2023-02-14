@@ -1979,3 +1979,14 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 
 其实就是当年吹了一通有的没的最后一看还是传统娱乐业的模式，直播员/艺人暴雷/出走整个生意就没了，那凭什么给你那么高的PE。也难怪隔壁yagoo all in杏神想搞点不一样的，只是我也不看好罢了
 
+
+*****
+
+####  psnsic8nag  
+##### 124#       发表于 2023-2-14 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743550&amp;ptid=2117684" target="_blank">Ouro_Kronii 发表于 2023-2-14 16:57</a>
+
+其实就是当年吹了一通有的没的最后一看还是传统娱乐业的模式，直播员/艺人暴雷/出走整个生意就没了，那凭什 ...</blockquote>
+田角无限抽卡池就是分散风险，盒皇没了还有替代品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
