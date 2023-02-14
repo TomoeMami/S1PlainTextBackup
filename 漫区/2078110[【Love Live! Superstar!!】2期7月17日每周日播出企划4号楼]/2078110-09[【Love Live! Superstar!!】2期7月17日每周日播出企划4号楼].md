@@ -1885,3 +1885,49 @@ eva是香党pm是瑟妹党，而且爱活Q娃双修，大友赶紧加推啊<img 
 non好看
 但是这个index的标号间距...认真的？空格打到一半不想打了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 12189#       发表于 2023-2-14 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59745106&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-14 18:21</a>
+
+non好看
+
+但是这个index的标号间距...认真的？空格打到一半不想打了是吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接少了一首
+
+*****
+
+####  nufawneafg  
+##### 12190#       发表于 2023-2-14 18:24
+
+ 本帖最后由 nufawneafg 于 2023-2-14 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59745158&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-14 18:23</a>
+直接少了一首</blockquote>
+草看太快了没发现，企划真nb，还处于脑死亡状态吧大概
+
+*****
+
+####  emmer  
+##### 12191#       发表于 2023-2-14 18:27
+
+pay的头好小啊，鲤鱼大头宝宝
+
+*****
+
+####  稀勢のささ  
+##### 12192#       发表于 2023-2-14 18:28
+
+不过这新专一共13首solo就占了9（大概），新团曲就俩，有4th的话怕不是可以摸爆
+
+*****
+
+####  优妮可  
+##### 12193#       发表于 2023-2-14 18:32
+
+<blockquote>nufawneafg 发表于 2023-2-14 18:24
+草看太快了没发现，企划真nb，还处于脑死亡状态吧大概</blockquote>
+少的那首是我的交响曲啊
+

@@ -1103,3 +1103,11 @@ ps5优化的怎么样？有2k吗
 
 可以等等看首日补丁，现在这情况只能开最低画质狩猎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shabadadoo  
+##### 412#       发表于 2023-2-14 18:24
+
+有现货了，买张玩玩
+
