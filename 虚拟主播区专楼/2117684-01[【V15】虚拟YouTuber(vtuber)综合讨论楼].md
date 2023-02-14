@@ -2001,3 +2001,16 @@ VSPO现在的动作我觉得明显是看着崩铁要来了米忽悠马上大规�
 田角无限抽卡池就是分散风险，盒皇没了还有替代品</blockquote>
 事实证明king和盒皇还真的很难有替代品，香顶边之所以是香顶边那都是有理由的。
 
+
+*****
+
+####  psnsic8nag  
+##### 126#       发表于 2023-2-14 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59743873&amp;ptid=2117684" target="_blank">Ouro_Kronii 发表于 2023-2-14 17:13</a>
+
+事实证明king和盒皇还真的很难有替代品，香顶边之所以是香顶边那都是有理由的。 ...</blockquote>
+King跟盒皇没了还有下位替代品可以养起来（叶及凑，Ver及Ren）
+
+杏这边顶部就真没下位替代品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
