@@ -1334,3 +1334,13 @@ xss打完了，有一种ps4初版怪物猎人世界的美
 另外遇到音效bug的坛友把帧数限制到60就不会触发了
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  415452356  
+##### 436#       发表于 2023-2-15 06:56
+
+  懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
