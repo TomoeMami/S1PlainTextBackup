@@ -1004,3 +1004,11 @@ D加密+ea app，pc玩家真是倒大霉了
 
 我是从宇宙来的机械松尾一号
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 400#       发表于 2023-2-14 15:41
+
+还有一点我感觉这作人物美术是真不行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，为啥装备都是这种全身包裹的严严实实的，一股土味扑面而来，npc捏人和光荣自己比也是退步明显<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，打得我想去玩之前只开了个头的讨鬼传了，美术比这个强太多了
+
