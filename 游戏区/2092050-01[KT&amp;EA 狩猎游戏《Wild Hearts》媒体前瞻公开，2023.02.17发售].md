@@ -1053,3 +1053,25 @@ D加密+ea app，pc玩家真是倒大霉了
 这游戏支持DLSS或FSR等优化技术吗？</blockquote>
 主机上的动态4k画面模式已经用fsr拉过了，至于pc上目前还没支持dlss，等正式发售再看吧
 
+
+*****
+
+####  qappip  
+##### 406#       发表于 2023-2-14 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">xsx画质模式 糊成狗，部分材质比如树根啥的梦回ps3
+
+*****
+
+####  Eadric  
+##### 407#       发表于 2023-2-14 17:52
+
+ps5优化的怎么样？有2k吗
+
+*****
+
+####  laoz  
+##### 408#       发表于 2023-2-14 18:00
+
+笔记本4080 2k全高平均只有66帧，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么拉的帧数就算了，打的时候还可能会有卡顿，加上这些怪都是换区达人的节奏，PC玩起来恶心的一逼
+
