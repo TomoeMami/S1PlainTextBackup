@@ -653,3 +653,11 @@ buff流感觉有点东西？看zard他们玩的一个法师一个牧师给野蛮
 
 看寅子直播成型法爷也太猛了 会加速会隐身会附魔 配个辅助可以加满buff追着战士捅
 
+
+*****
+
+####  格雷殿下  
+##### 66#       发表于 2023-2-14 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金大斧死后生活这么贵的吗
+
