@@ -3692,3 +3692,16 @@ My Nintendo Store怎么还不开预定，急死了，我就想看看官方价到
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  竜破斬  
+##### 968#       发表于 2023-2-14 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59741953&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-14 15:17</a>
+
+哈哈哈我周六订的119.99的果然被砍单了而且看了下好像无差别砍单，应砍尽砍……
+
+现在剩GameStop 129 ...</blockquote>
+欧任现在还没给收藏版MSRP？这是什么迷之操作……
+
