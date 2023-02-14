@@ -874,3 +874,18 @@ ea这个pro是这样的，之前极品飞车甚至出现只能用已经停更的
 
 以前我在想这种没有盾的武器是怎么躲跟踪性强的龙车的，一看视频发现原来是靠飞。重攻击和方向键组合可以带位移，自带二段跳，跳跃能取消攻击动作。R2可以从怪身上拉一条线，然后可以绕着怪飞，还能拉远拉近，拉线时造成定量伤害能激活高伤害终结技。
 
+
+*****
+
+####  zzp05402  
+##### 386#       发表于 2023-2-14 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看直播这游戏是不是欠打磨啊，感觉是没做完被强推出来的
+
+*****
+
+####  猫不萌  
+##### 387#       发表于 2023-2-14 12:53
+
+野猪王这里掉帧攻击也太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
