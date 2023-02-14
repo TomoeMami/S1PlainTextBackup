@@ -1727,3 +1727,12 @@ https://twitter.com/idol_corp/status/1624095852942831624</blockquote>
 可惜hnn有逆反心理，近期热门的一个没碰，更别说原神了</blockquote>
 拿出魔法卡后同接没破万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 98#       发表于 2023-2-14 08:09
+
+单轮同接的话，vspo现在就很有19虹杏的味道
+破万当皇，但是经常卡9
+
