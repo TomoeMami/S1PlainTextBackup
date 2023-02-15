@@ -2405,3 +2405,11 @@ nagio这张反倒没有平时美
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看电寄人和马趴取关龙哥有感，你星也硬一个？
 
+
+*****
+
+####  starring  
+##### 12240#       发表于 2023-2-15 21:52
+
+星的服装总是在某个地方掉链子，二专这套衣服单看上半身还行，到了裙子就乱了。裙子的条纹密集又跟上衣对不上接缝<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
