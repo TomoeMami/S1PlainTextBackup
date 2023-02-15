@@ -3937,3 +3937,13 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 手会说话还是有点惊悚，我不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 991#       发表于 2023-2-15 20:34
+
+林克肯定不会失忆啊，再来一次失忆铁烂梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
