@@ -4489,3 +4489,21 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 开了节奏大师打卡尔刷S评居然打了仨小时…
 节奏感忒烂
 
+
+*****
+
+####  陈词与芍药  
+##### 432#         楼主| 发表于 2023-2-15 15:53
+
+<img src="https://img.saraba1st.com/forum/202302/15/025314kay2x7muemxma6p7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7136.JPG</strong> (538.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-15 15:53 上传
+
+有点想来俩管了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
