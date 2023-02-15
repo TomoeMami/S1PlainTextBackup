@@ -3871,3 +3871,28 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 我对黄金国的唯一扣分点就是这个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啊哈哈哈
 
+
+*****
+
+####  清浦刹那  
+##### 985#       发表于 2023-2-15 19:42
+
+<img src="https://img.saraba1st.com/forum/202302/15/194201ieieqbicrieqeqk2.jpg" referrerpolicy="no-referrer">
+
+<strong>FogdfIjaIAEXBoo.jpg</strong> (57.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-15 19:42 上传
+
+字体设计是技术活，选起来好纠结。
+
+*****
+
+####  冷泉夜月  
+##### 986#       发表于 2023-2-15 19:50
+
+作为原教旨主义者还是入日版，个人感觉这次英文LOGO稍微有点堆砌得太“重”了，有点累赘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
