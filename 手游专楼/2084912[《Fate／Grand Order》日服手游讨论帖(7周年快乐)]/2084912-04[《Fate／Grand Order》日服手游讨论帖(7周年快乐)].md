@@ -9204,3 +9204,14 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 今年这活动连个低星加成角色都没了
 
+
+*****
+
+####  芭德薇  
+##### 5365#       发表于 2023-2-15 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752061&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-2-15 09:04</a>
+
+最近删了波30天以上的干尸好友，又多出些位子，求一波红茶烟雾镜好友打地铺。这边烟雾镜3宝，1,2技能和被动 ...</blockquote>
+只有1宝，先申请了……估计晚上就能升6绊开2被动
+
