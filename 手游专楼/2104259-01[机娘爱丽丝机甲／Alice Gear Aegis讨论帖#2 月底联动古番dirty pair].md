@@ -1691,3 +1691,15 @@ LINE表情包开卖。还有好多Vice的<img src="https://static.saraba1st.com/
 
 这个建模在当前来看有点呆……
 
+
+*****
+
+####  外骨骼  
+##### 278#       发表于 2023-2-15 22:16
+
+<img src="https://s1.ax1x.com/2023/02/15/pS7HjPJ.md.jpg" referrerpolicy="no-referrer">
+
+<img src="https://s1.ax1x.com/2023/02/15/pS7HvG9.md.png" referrerpolicy="no-referrer">
+
+可以说是一模一样了
+
