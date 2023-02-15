@@ -3839,3 +3839,11 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 之前加的动森群里确实有好几个人在问，我在纠结如果把一始村说成家园系统良心会不会痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 982#       发表于 2023-2-15 10:48
+
+野炊村子更像是XB1的复兴殖民地。那么王国之泪不如弄个XB2的人和之力吧，游戏前半帮助了大家，然后加农出来大战一场，村庄毁灭王国落泪<img src="https://static.saraba1st.com/image/smiley/carton2017/383.png" referrerpolicy="no-referrer">然后进后半正篇
+
