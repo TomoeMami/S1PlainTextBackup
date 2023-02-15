@@ -4297,3 +4297,27 @@ link，新的垃圾工程师
 
 这个“像回事”也不是说她发的具体内容很准确，而是“希卡之石有相关的动画”这件事可能是真的
 
+
+*****
+
+####  Adif  
+##### 1025#       发表于 2023-2-16 00:34
+
+<img src="https://img.saraba1st.com/forum/202302/16/003350md9pdnpdbctkxegt.jpg" referrerpolicy="no-referrer">
+
+<strong>Fo2zM7HagAISMdF.jpg</strong> (53.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-16 00:33 上传
+
+*****
+
+####  Adif  
+##### 1026#       发表于 2023-2-16 00:35
+
+ 本帖最后由 Adif 于 2023-2-16 00:38 编辑 
+
+不谈破坏心情的东西了，看点好看的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">网友分享的西班牙地区王国之泪贴纸，可以看到塞尔达立绘的全身（twi:@littlebirdzelda）
+
