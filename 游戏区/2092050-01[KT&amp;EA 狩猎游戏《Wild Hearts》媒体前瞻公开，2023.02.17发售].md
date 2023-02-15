@@ -1689,3 +1689,14 @@ BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/
 
 EA以为这样就能打进日本市场和洗脱臭名声？暗荣以为这样就能刷西方好感和证明自己？  
 
+
+*****
+
+####  病態極端  
+##### 469#       发表于 2023-2-15 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59760901&amp;ptid=2092050" target="_blank">封面杀手 发表于 2023-2-15 21:15</a>
+
+EA以为这样就能打进日本市场和洗脱臭掉的名声？暗荣以为这样就能得到西方垂青和证明自己研究共斗多年没白费 ...</blockquote>
+ea已經靠apex殺穿日本了
+
