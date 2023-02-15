@@ -3906,3 +3906,34 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 再加上已经加入USK教很久了，美版欧版我都看不上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lazycat233  
+##### 988#       发表于 2023-2-15 20:16
+
+我怎么感觉这代绿手会说话，而且这次林克没失忆，但是要去找古代勇者的记忆
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  emmer  
+##### 989#       发表于 2023-2-15 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59759870&amp;ptid=1997982" target="_blank">清浦刹那 发表于 2023-2-15 19:42</a>
+
+字体设计是技术活，选起来好纠结。</blockquote>
+主观感受 日版&gt;英文&gt;中文
+
+英文堆太密了
+
+中文太平庸
+
+*****
+
+####  uanlice  
+##### 990#       发表于 2023-2-15 20:17
+
+手会说话还是有点惊悚，我不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
