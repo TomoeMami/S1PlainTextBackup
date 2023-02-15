@@ -9109,3 +9109,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 要是狂阶都不用真香，第一天大伙都all in了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度美就是那么真实啊
 
+
+*****
+
+####  xiongxingyu  
+##### 5356#       发表于 2023-2-15 09:04
+
+最近删了波30天以上的干尸好友，又多出些位子，求一波红茶烟雾镜好友打地铺。这边烟雾镜3宝，1,2技能和被动2都满了。5宝公主、暗狐、奥宝这些常用地铺打手基本上都挂着红茶或者蒙娜丽莎。
+
+777878854，还有7个位子，先到先得了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

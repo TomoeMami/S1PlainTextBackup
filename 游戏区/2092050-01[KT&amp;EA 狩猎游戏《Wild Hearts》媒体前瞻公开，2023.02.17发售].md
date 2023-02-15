@@ -1355,3 +1355,102 @@ ps5版打完岩鸣熊了，居然是流程怪
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  失身招领处  
+##### 438#       发表于 2023-2-15 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  失身招领处  
+##### 439#       发表于 2023-2-15 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  失身招领处  
+##### 440#       发表于 2023-2-15 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  415452356  
+##### 441#       发表于 2023-2-15 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751862&amp;ptid=2092050" target="_blank">失身招领处 发表于 2023-2-15 08:35</a>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。</blockquote>
+  懂了，感谢。
+  在外面没法看steam解锁时间，今晚0点能玩吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 442#       发表于 2023-2-15 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751862&amp;ptid=2092050" target="_blank">失身招领处 发表于 2023-2-15 08:35</a>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。</blockquote>
+  懂了，感谢。
+  在外面没法看steam解锁时间，今晚0点能玩吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  万里小路さん  
+##### 443#       发表于 2023-2-15 08:50
+
+这罗刹，疯了吧，用跳台时机早了点然后就被满血秒杀了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  失身招领处  
+##### 444#       发表于 2023-2-15 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  失身招领处  
+##### 445#       发表于 2023-2-15 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

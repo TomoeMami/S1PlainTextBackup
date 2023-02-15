@@ -2187,3 +2187,17 @@ https://radiko.jp/#!/ts/NACK5/20230214220000  这个吧 20分钟出场 直接�
 有人传了，但是听下开只有open up和yellow</blockquote>
 不是这个广播，是这个月的FM FUKUOKA「あにぺろ」的『Liyuuのkoiiばな』[https://fmfukuoka.co.jp/program/anime/](https://fmfukuoka.co.jp/program/anime/)
 
+
+*****
+
+####  梶原ひかり  
+##### 12218#       发表于 2023-2-15 08:49
+
+ 本帖最后由 梶原ひかり 于 2023-2-15 08:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59746939&amp;ptid=2078110" target="_blank">starring 发表于 2023-2-14 20:20</a>
+
+只在sma的网站售卖貌似不统计销量，灯是跟唱片公司签约算正式歌手出道不一样的
+
+看sma的做法，大概走hnk的 ...</blockquote>
+SMA现在是会报销量的
+
