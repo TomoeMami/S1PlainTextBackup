@@ -14669,3 +14669,19 @@ MC的1.20更新加入了真正的樱花树了
 
 fbk是主持，也就是开赛前的空闲时间一起玩一下而已吧
 
+
+*****
+
+####  holoan  
+##### 4353#         楼主| 发表于 2023-2-15 18:08
+
+<img src="https://img.saraba1st.com/forum/202302/15/180824j7cwu777uj70h00y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-15 18:08 上传
+
+正式官宣
+
