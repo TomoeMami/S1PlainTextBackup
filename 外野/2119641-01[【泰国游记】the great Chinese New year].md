@@ -907,3 +907,15 @@ up该处出一份
 
 大概多少预算？<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 99#       发表于 2023-2-15 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59757205&amp;ptid=2119641" target="_blank">cy6959 发表于 2023-2-15 15:58</a>
+话说，有没有类似的日本游记看？我对日本那边洗澡师傅更好奇
+
+—— 来自 vivo NEX S, Android 10上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那边洗澡师傅可贵多了
+

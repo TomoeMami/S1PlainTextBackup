@@ -9131,3 +9131,42 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  exiaexa  
+##### 5358#       发表于 2023-2-15 16:07
+
+ 本帖最后由 exiaexa 于 2023-2-15 16:08 编辑 
+
+如果衣服都练满了没有练级需求的话
+
+烟雾镜算是变相利好红卡，增幅挺猛的
+
+80攻60魔放20星
+
+杀猪王子关底就是
+
+10宝威80攻110魔放50星100巨大特攻50爆伤
+
+你们三个一起杀猪.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 5359#       发表于 2023-2-15 16:08
+
+池子都关了，你们现在吹还有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5360#       发表于 2023-2-15 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59757360&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-15 16:08</a>
+
+池子都关了，你们现在吹还有什么意义</blockquote>
+这楼里玩双烟的几个印象里都3宝往上了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
