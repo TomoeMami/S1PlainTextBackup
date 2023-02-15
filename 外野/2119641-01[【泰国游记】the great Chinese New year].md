@@ -580,3 +580,37 @@ the great Chinese New year<img src="https://static.saraba1st.com/image/smiley/fa
 
  想起TGFC的第二十X次泰国之行什么的了，但凡国内贵鬼们用舔的钱一年去两三次泰国耍耍，就知道自己是多么**了。我师兄根据攻略去了一年，什么舔的心思都没有了，一门心思撸铁练腰然后去凑时间去新马泰。
 
+
+*****
+
+####  Rainnnnnnn  
+##### 64#       发表于 2023-2-15 10:04
+
+所以怎么一张图都没有<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">
+
+*****
+
+####  明斯克  
+##### 65#       发表于 2023-2-15 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752699&amp;ptid=2119641" target="_blank">Rainnnnnnn 发表于 2023-2-15 10:04</a>
+
+所以怎么一张图都没有</blockquote>
+好孩子看不见  
+
+*****
+
+####  4591  
+##### 66#       发表于 2023-2-15 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752699&amp;ptid=2119641" target="_blank">Rainnnnnnn 发表于 2023-2-15 10:04</a>
+所以怎么一张图都没有</blockquote>
+桂珍大师会没图？不是你有问题就是你的设备有问题
+
+*****
+
+####  嵐色羽空  
+##### 67#       发表于 2023-2-15 10:09
+
+去的时候可以找楼主咨询下吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
