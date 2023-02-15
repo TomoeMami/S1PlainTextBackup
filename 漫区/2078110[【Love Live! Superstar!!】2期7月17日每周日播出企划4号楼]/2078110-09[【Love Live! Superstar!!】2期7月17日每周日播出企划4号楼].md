@@ -2255,3 +2255,23 @@ SMA现在是会报销量的
 
 亚巡有可能吗？虽然现在对裂啦国内的人气没啥底数，毕竟跑了很多粉丝，
 
+
+*****
+
+####  任天索尼子  
+##### 12225#       发表于 2023-2-15 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754771&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-15 12:48</a>
+
+企划要重新创微博号了，难不成真有大的</blockquote>
+别想太多 到时候直接喂你一脸SIF归来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12226#       发表于 2023-2-15 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754966&amp;ptid=2078110" target="_blank">任天索尼子 发表于 2023-2-15 13:08</a>
+别想太多 到时候直接喂你一脸SIF归来</blockquote>
+十分合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
