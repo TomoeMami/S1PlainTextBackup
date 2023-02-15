@@ -9196,3 +9196,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 不如来奶一口17号活动延期</blockquote>
 17号23点59分开活动是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 5364#       发表于 2023-2-15 18:24
+
+今年这活动连个低星加成角色都没了
+
