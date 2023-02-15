@@ -1493,3 +1493,11 @@ steam买的eaplay.试玩体验了2个多小时到了村门口感觉还不错,就
 
 4090也就60多帧,显卡就100多w在睡大觉.挺莫名的.
 
+
+*****
+
+####  鈴姉御肌  
+##### 449#       发表于 2023-2-15 14:13
+
+为啥主播都能玩后面的内容了 试玩不是打完野猪就无了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
