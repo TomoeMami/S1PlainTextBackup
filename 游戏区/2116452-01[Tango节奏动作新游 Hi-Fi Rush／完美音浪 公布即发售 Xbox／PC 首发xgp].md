@@ -4507,3 +4507,11 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  妄想中毒  
+##### 433#       发表于 2023-2-15 21:02
+
+前四关困难难度感觉还很轻松，第五关新敌人武士和鸟直接把我给打蒙了，武士最后的俳句死了无数次才找准节奏，鸟完全不知道怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

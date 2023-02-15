@@ -14726,3 +14726,22 @@ fbk是主持，也就是开赛前的空闲时间一起玩一下而已吧
 
 如果是排在前半组的话估计早回了
 
+
+*****
+
+####  rs5621  
+##### 4358#       发表于 2023-2-15 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还在打啊，回家都不知道多少点了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4359#         楼主| 发表于 2023-2-15 21:04
+
+决赛了，半小时内结束了吧
+
+但是说不定还想一起出去吃个饭什么的不知道
+

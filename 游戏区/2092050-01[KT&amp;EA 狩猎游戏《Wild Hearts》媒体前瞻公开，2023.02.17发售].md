@@ -1671,3 +1671,11 @@ BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Xkarl  
+##### 467#       发表于 2023-2-15 21:01
+
+优化很烂 闪退了两次服了
+
