@@ -1527,3 +1527,11 @@ ea pro不限制，随便玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以提前玩的坛友感觉主机优化怎么样？
 
+
+*****
+
+####  acg_s1  
+##### 453#       发表于 2023-2-15 14:33
+
+sunbreak都还没玩，这个观望一下好了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
