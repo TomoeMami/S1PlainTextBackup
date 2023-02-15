@@ -226,3 +226,11 @@
 <img src="https://imgur.com/a/0OzHa25" id="aimg_yIFvF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太jb黑了，感觉非限定以后都不抽卡了
 
+
+*****
+
+####  羽出  
+##### 277#       发表于 2023-2-16 06:29
+
+上期还是忍不住抽了，经过了之前的二连井，这次还是不失众望继续朝着三连井的方向前行，不过这次是不够石下井了，池子结束的时候还差二十多抽
+
