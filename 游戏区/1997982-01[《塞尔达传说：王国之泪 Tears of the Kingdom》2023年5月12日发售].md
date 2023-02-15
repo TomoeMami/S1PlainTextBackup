@@ -4130,3 +4130,31 @@ link，新的垃圾工程师
 我刚才把坛舅的帖子翻了一遍，可能也 ...</blockquote>
 塞尔达为主角视角的故事这个点子天剑开发时期就出现过，最后因为种种原因没有实现。按照塞尔达组的习惯在新作实现前作未实现的点子是完全有可能的。不过潭舅说的这个队友（们）即使不包括塞尔达好像也和这个点子不冲突，也有可能是林克可以和npc组队，同时塞尔达是另一个可操控的主角。主要是那个动画师的微博虽然语气很微妙但是居然和最新的宣传对得上，不过还是别期待太多为好……
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1010#       发表于 2023-2-15 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59761989&amp;ptid=1997982" target="_blank">Adif 发表于 2023-2-15 22:47</a>
+
+塞尔达为主角视角的故事这个点子天剑开发时期就出现过，最后因为种种原因没有实现。按照塞尔达组的习惯在 ...</blockquote>
+我知道那个动画师，其实泥潭病栋都讨论过两回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有坛友求证过说她RPG，我倾向于她可能多少知道点啥，但是她是不是窃为己有，有没有给自己脸上贴金，这个就只有她自己知道了。
+
+我对她的发言反正没啥好感，因为我记得她用很轻狂的语气说自己交的动画在品质上留有余地，而任天堂既然通过了那“动画也就只能是这种品质了”，反正让期待游戏的人看着挺不舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adif  
+##### 1011#       发表于 2023-2-15 22:56
+
+ 本帖最后由 Adif 于 2023-2-15 23:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762030&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-15 22:50</a>
+
+我知道那个动画师，其实泥潭病栋都讨论过两回了
+
+有坛友求证过说她RPG，我倾向于她可能多少知道点 ...</blockquote>
+真的，当时看她的微博看得我表情非常微妙……说实话很多都可以看成某种车轱辘话，而且有种不太在乎普通玩家体验感的感觉，希卡之石这条微博给我留下比较深的印象是因为在当时看来完全是以旷野之息的内容为蓝本对续作进行着拙劣的瞎编，还是那种但凡稍微关注了续作消息就绝对不会编得那么离谱的瞎编<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在看来真不一定了，但是她语气确实让玩家不太舒服……
+
