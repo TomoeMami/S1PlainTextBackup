@@ -1710,3 +1710,20 @@ ea已經靠apex殺穿日本了
 和风不就意味着没有怪猎那些奇怪的瑟装了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和风就不能搞奇怪的瑟装了吗？ 和风岂是如此不便之物 让我们相信光荣几十年来搞瑟瑟的能力
 
+
+*****
+
+####  奥F特  
+##### 471#       发表于 2023-2-16 00:11
+
+天蝶龙的美术设计挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我怎么感觉有点像卧龙PV里的那条龙啊
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 472#       发表于 2023-2-16 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59760097&amp;ptid=2092050" target="_blank">ckseng 发表于 2023-2-15 20:02</a>
+和风不就意味着没有怪猎那些奇怪的瑟装了</blockquote>
+怪猎和风也有惨爪套，在访谈时设计者明说就是在搞黄色，非常实诚
+
