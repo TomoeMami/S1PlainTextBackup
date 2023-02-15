@@ -4515,3 +4515,15 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 前四关困难难度感觉还很轻松，第五关新敌人武士和鸟直接把我给打蒙了，武士最后的俳句死了无数次才找准节奏，鸟完全不知道怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CswStar  
+##### 434#       发表于 2023-2-15 21:26
+
+ 本帖最后由 CswStar 于 2023-2-15 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59760751&amp;ptid=2116452" target="_blank">妄想中毒 发表于 2023-2-15 21:02</a>
+
+前四关困难难度感觉还很轻松，第五关新敌人武士和鸟直接把我给打蒙了，武士最后的俳句死了无数次才找准节奏 ...</blockquote>
+鸟在拉过去后无脑平a它，用最短的时间打出编织攻击，啊!不对，那个技能的名字我忘了，就是消耗能量召唤队友进行最后一下终结技，连续来3次它差不多就要进qte了，鸟的qte不算难
+
