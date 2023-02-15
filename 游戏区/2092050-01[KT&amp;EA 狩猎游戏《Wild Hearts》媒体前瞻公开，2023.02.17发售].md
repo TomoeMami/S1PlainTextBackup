@@ -1553,3 +1553,15 @@ sunbreak都还没玩，这个观望一下好了<img src="https://static.saraba1s
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Leomai  
+##### 456#       发表于 2023-2-15 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59756163&amp;ptid=2092050" target="_blank">再迷 发表于 2023-2-15 14:52</a>
+信不过无双组做的boss战体验，何况这还是个boss战占大头的游戏
+
+—— 来自 OnePlus GM1910, Android 11上的 ...</blockquote>
+讨鬼传已经是时代的眼泪了吗
+
