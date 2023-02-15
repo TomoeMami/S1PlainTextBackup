@@ -2201,3 +2201,15 @@ https://radiko.jp/#!/ts/NACK5/20230214220000  这个吧 20分钟出场 直接�
 看sma的做法，大概走hnk的 ...</blockquote>
 SMA现在是会报销量的
 
+
+*****
+
+####  saya1892  
+##### 12219#       发表于 2023-2-15 10:18
+
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1676380135](https://itest.5ch.net/fate/test/read.cgi/lovelive/1676380135)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">伊达大叔怎么见不得别人好专门开一贴来踩啊，昨晚还在版里看到踩佩酱的 <blockquote>161 怎么有宅宅在指点江山啊，比你们脑子好多了当然知道界线在哪好吧，你们想象中的栽跟头一辈子都不会到来</blockquote>
+前情提要↓
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1676378209](https://itest.5ch.net/fate/test/read.cgi/lovelive/1676378209)
+
