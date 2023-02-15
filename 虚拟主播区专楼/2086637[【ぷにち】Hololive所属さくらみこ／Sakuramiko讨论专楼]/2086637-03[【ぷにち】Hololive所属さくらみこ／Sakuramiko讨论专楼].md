@@ -14659,3 +14659,13 @@ MC的1.20更新加入了真正的樱花树了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4352#         楼主| 发表于 2023-2-15 17:48
+
+今天参赛的都在工作室现场啊
+
+fbk是主持，也就是开赛前的空闲时间一起玩一下而已吧
+
