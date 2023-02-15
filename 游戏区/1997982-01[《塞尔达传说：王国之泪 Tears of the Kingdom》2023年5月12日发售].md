@@ -3947,3 +3947,11 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Sherlock08  
+##### 992#       发表于 2023-2-15 20:53
+
+我对绿手的唯一期待就是能成为要你命3000那样的武器集合体<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">既然“绿胶”能粘合各种部件diy交通工具，经由绿手收集材料生成各式武器不过分吧
+

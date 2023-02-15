@@ -1648,3 +1648,26 @@ BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/
 至少在捏脸这方面能赢怪猎</blockquote>
 和风不就意味着没有怪猎那些奇怪的瑟装了
 
+
+*****
+
+####  失身招领处  
+##### 465#       发表于 2023-2-15 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751532&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-15 06:56</a>
+懒得搞傻逼eaplay直接等明天解锁了，有玩上的说一下这次锁定系统运作的咋样吗，顺溜吗
+
+—— 来自 S1Fun ...</blockquote>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  失身招领处  
+##### 466#       发表于 2023-2-15 21:00
+
+进不进Xgp？
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
