@@ -4246,3 +4246,28 @@ link，新的垃圾工程师
 她说等你们玩了新作可能会讨厌她，后面又说她改了一开始一 ...</blockquote>
 这句我也记得，这是她后面发的内容了。当时我是去翻了原来那条微博，她和网友的交流前因后果大概是这样的：网友说续作还没出她怎么知道呢，她说自己是制作组已经通关了，网友继续说可是大部分人都没玩到，希望她照顾一下玩家的体验况且很多人真心喜欢小公主，她继续回复说和人物是否讨喜无关是游戏难度的问题，她实在为玩家捏了把汗（……）然后莫名其妙就开始在那个评论楼里偶尔蹦一两条动画进度更新，还说了什么剧情有点巧思，接下来就是接截图里面的内容了，就感觉多少有点前后矛盾……
 
+
+*****
+
+####  Adif  
+##### 1020#       发表于 2023-2-15 23:43
+
+咱们就不聊她了吧，感觉已经有点反胃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 1021#       发表于 2023-2-15 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762396&amp;ptid=1997982" target="_blank">JoelBirch 发表于 2023-2-15 23:19</a>
+
+小仙女发言信一半都算多，就算内容没问题，看着吹的花枝招展，实际上不知道被退了多少稿；
+
+退一步讲，野 ...</blockquote>
+谢谢坛友，我倒没有因为这个焦虑啦，游戏的最终素质我还是很有信心的。
+
+微妙感大概就在于我这么喜欢期待的一个游戏却被这么个不知真假、爱蹦爱炫、肤浅又轻狂的人拿来当夸耀自己的资本……就有了种附骨之疽的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+某种意义上和我对游戏发售前跑出来跳脸的破解偷跑小鬼的厌恶感是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
