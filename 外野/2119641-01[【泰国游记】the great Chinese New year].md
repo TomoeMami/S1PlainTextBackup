@@ -945,3 +945,11 @@ up该处出一份
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  老贝  
+##### 103#       发表于 2023-2-15 17:57
+
+大师不愧是大师，贵在真实。
+
