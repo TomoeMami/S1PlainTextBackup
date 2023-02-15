@@ -9119,3 +9119,15 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 777878854，还有7个位子，先到先得了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 5357#       发表于 2023-2-15 14:46
+
+ 本帖最后由 rollingusagi 于 2023-2-15 14:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">双烟这波真的救活了好多仓管啊，特别是有毅力的，典型代表辣馒头，自带20自充和毅力，不用开被动不用绑定金色庆典就能6加成周回，其他绿卡枪光炮做得到吗？要是再来个宝具本直接咸鱼翻身成为最强绿卡枪光炮（有宝具本又有自充和毅力，哪咤：没错，正是在下）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
