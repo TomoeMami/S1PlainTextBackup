@@ -6022,3 +6022,11 @@ ED最后有变化。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为白兔会用大锤模式打的，果然没啥经费么
 
+
+*****
+
+####  上坂莲华  
+##### 672#       发表于 2023-2-15 18:50
+
+看情报说动画还有一个方案打算做50米拉，简直笑死，什么近藤亲爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
