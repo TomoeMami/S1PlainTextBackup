@@ -1629,3 +1629,11 @@ PC：2月16日晚11点
 
 BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥F特  
+##### 463#       发表于 2023-2-15 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少在捏脸这方面能赢怪猎
+
