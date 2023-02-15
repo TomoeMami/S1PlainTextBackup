@@ -171,3 +171,29 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">195抽一个up角都没，彩海豚就出了两个歪了一个歌舞伎冰织一个普通紫苑，哭了
 
+
+*****
+
+####  MEKA  
+##### 271#       发表于 2023-2-15 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751163&amp;ptid=2101146" target="_blank">startea15 发表于 2023-2-15 02:13</a>
+195抽一个up角都没，彩海豚就出了两个歪了一个歌舞伎冰织一个普通紫苑，哭了 ...</blockquote>
+这游戏彩海豚率也就2%，黑起来还是挺恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MEKA  
+##### 272#       发表于 2023-2-15 12:49
+
+ 本帖最后由 MEKA 于 2023-2-15 15:45 编辑 
+
+风怒
+
+*****
+
+####  MEKA  
+##### 273#       发表于 2023-2-15 15:45
+
+风怒
+

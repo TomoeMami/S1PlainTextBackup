@@ -1606,3 +1606,26 @@ sunbreak都还没玩，这个观望一下好了<img src="https://static.saraba1s
 我看主播玩感觉还真是挺有意思的，伞好多人吹，但我看着感觉其实一般，主要不怎么喜欢gp为主的系统，机关棍 ...</blockquote>
 伞其实感觉很一般 就试玩版我体验下来单论输出来看技巧刀都完爆伞了，伞的输出全体现在红槽上。但是伞的平A模组攒槽特别慢，没红槽纯刮痧，机制直接变成了犯蹭等gp，问题吧槽又消得很快，槽一开始消就得一直用踏板追击派生去蹭，属于性能强但是输出费劲的武器，技巧刀倒是朴实无华的那种的,只要复读xxx 接rt都能毛很高的输出。。。
 
+
+*****
+
+####  Piano-Forest  
+##### 461#         楼主| 发表于 2023-2-15 15:44
+
+正式解锁时间
+
+PC：2月16日晚11点
+
+主机：2月16晚12点
+<img src="https://p.sda1.dev/9/a76b813992540b70bfd63bac43141831/20230215_154221.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/1ad11b9f4d587fddf1e024b1bb686cea/20230215_154222.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/9/6ef24a293c57e4a3e9a80cfa9f92e80b/20230215_154218.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刘震云  
+##### 462#       发表于 2023-2-15 15:46
+
+BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
