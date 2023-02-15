@@ -3896,3 +3896,13 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 987#       发表于 2023-2-15 20:10
+
+我则是折腾日版太麻烦了，而且无论如何都不能第一时间拿到……
+
+再加上已经加入USK教很久了，美版欧版我都看不上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1637,3 +1637,14 @@ BOSS里有一条中国龙诶<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少在捏脸这方面能赢怪猎
 
+
+*****
+
+####  ckseng  
+##### 464#       发表于 2023-2-15 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59757826&amp;ptid=2092050" target="_blank">奥F特 发表于 2023-2-15 16:39</a>
+
+至少在捏脸这方面能赢怪猎</blockquote>
+和风不就意味着没有怪猎那些奇怪的瑟装了
+
