@@ -4205,3 +4205,32 @@ link，新的垃圾工程师
 
 反正真没必要因为这个焦虑，游戏素质怎么样又不是几帧动画就能决定的，要因为这个把自己恶心到了属实得不偿失
 
+
+*****
+
+####  uanlice  
+##### 1016#       发表于 2023-2-15 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一说她我还是会想起她洋洋得意的说自己给公主设计的动画非常牛逼老任不懂游戏日本人不行，所有发言都让我生理性地感到不适
+
+*****
+
+####  Adif  
+##### 1017#       发表于 2023-2-15 23:27
+
+无法忘记她在一个bot底下说新作出了你们可能不太喜欢公主（那个BOT的微博原本只是关于旷野之息的内容），别的网友大概也是被吓到了去留言她为什么，她才继续回复说和人设无关是游戏难度的问题巴拉巴拉的，就非常不适……
+
+*****
+
+####  Waldeinsamkeit  
+##### 1018#       发表于 2023-2-15 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762508&amp;ptid=1997982" target="_blank">Adif 发表于 2023-2-15 23:27</a>
+
+无法忘记她在一个bot底下说新作出了你们可能不太喜欢公主（那个BOT的微博原本只是关于旷野之息的内容），别 ...</blockquote>
+不是，那个因为我截图了所以我印象非常深刻：
+
+她说等你们玩了新作可能会讨厌她，后面又说她改了一开始一组镜头的演技，这时候你们就完全不会讨厌她了，因为她把小日本的浮夸和虚情假意改成了真挚率真勇敢的公主殿下<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+还是动画演技相关的，和游戏难度没有关系……
+

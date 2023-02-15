@@ -1700,3 +1700,13 @@ EA以为这样就能打进日本市场和洗脱臭名声？暗荣以为这样就
 EA以为这样就能打进日本市场和洗脱臭掉的名声？暗荣以为这样就能得到西方垂青和证明自己研究共斗多年没白费 ...</blockquote>
 ea已經靠apex殺穿日本了
 
+
+*****
+
+####  奥F特  
+##### 470#       发表于 2023-2-15 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59760097&amp;ptid=2092050" target="_blank">ckseng 发表于 2023-2-15 20:02</a>
+和风不就意味着没有怪猎那些奇怪的瑟装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和风就不能搞奇怪的瑟装了吗？ 和风岂是如此不便之物 让我们相信光荣几十年来搞瑟瑟的能力
+
