@@ -4271,3 +4271,14 @@ link，新的垃圾工程师
 
 某种意义上和我对游戏发售前跑出来跳脸的破解偷跑小鬼的厌恶感是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 1022#       发表于 2023-2-15 23:56
+
+其实仔细想想那人说的东西也没那么有料吧，
+基本都是从已有的信息里能脑补出来的东西，并没有什么真正意义上让人眼前一亮的信息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

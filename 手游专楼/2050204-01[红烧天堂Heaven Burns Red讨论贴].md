@@ -845,3 +845,11 @@ ios下载的话是切换到繁中服找app store吗
 是旗袍</blockquote>
 两个都是旗袍啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  在海岸  
+##### 948#       发表于 2023-2-15 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">挂2-14一晚上技能涨了两三点 这个真是正常游玩方式？
+
