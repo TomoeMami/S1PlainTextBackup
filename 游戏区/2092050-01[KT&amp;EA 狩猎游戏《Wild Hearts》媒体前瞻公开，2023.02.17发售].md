@@ -1501,3 +1501,29 @@ steam买的eaplay.试玩体验了2个多小时到了村门口感觉还不错,就
 
 为啥主播都能玩后面的内容了 试玩不是打完野猪就无了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laoz  
+##### 450#       发表于 2023-2-15 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59755671&amp;ptid=2092050" target="_blank">鈴姉御肌 发表于 2023-2-15 14:13</a>
+
+为啥主播都能玩后面的内容了 试玩不是打完野猪就无了吗</blockquote>
+ea pro不限制，随便玩
+
+
+*****
+
+####  HATENA  
+##### 451#       发表于 2023-2-15 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以提前玩的坛友感觉主机优化怎么样？
+
+*****
+
+####  HATENA  
+##### 452#       发表于 2023-2-15 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以提前玩的坛友感觉主机优化怎么样？
+

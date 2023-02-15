@@ -834,3 +834,14 @@ ios下载的话是切换到繁中服找app store吗
 孔明</blockquote>
 是旗袍
 
+
+*****
+
+####  范坚强  
+##### 947#       发表于 2023-2-15 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754794&amp;ptid=2050204" target="_blank">鸯凰麟翔子 发表于 2023-2-15 12:50</a>
+
+是旗袍</blockquote>
+两个都是旗袍啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

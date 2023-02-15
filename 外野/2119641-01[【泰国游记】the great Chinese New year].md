@@ -751,3 +751,36 @@ up该处出一份
 
 这师傅一看手就是技艺精湛....<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainnnnnnn  
+##### 83#       发表于 2023-2-15 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752728&amp;ptid=2119641" target="_blank">4591 发表于 2023-2-15 10:06</a>
+
+桂珍大师会没图？不是你有问题就是你的设备有问题</blockquote>
+。。。我拿浏览器看的啊，没看到图
+
+*****
+
+####  椎名mahuyo  
+##### 84#       发表于 2023-2-15 14:26
+
+我记得LZ几年前去泰国也发过帖子纠结那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainnnnnnn  
+##### 85#       发表于 2023-2-15 14:27
+
+真没看到图。。。
+
+<img src="https://img.saraba1st.com/forum/202302/15/142645lkzkzlnebhkdd5qh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (232.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-15 14:26 上传
+
