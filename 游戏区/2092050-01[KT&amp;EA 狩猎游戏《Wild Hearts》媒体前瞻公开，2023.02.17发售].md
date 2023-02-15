@@ -1543,3 +1543,13 @@ sunbreak都还没玩，这个观望一下好了<img src="https://static.saraba1s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这游戏是被赶鸭子上架发售的吧
 
+
+*****
+
+####  再迷  
+##### 455#       发表于 2023-2-15 14:52
+
+信不过无双组做的boss战体验，何况这还是个boss战占大头的游戏
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
