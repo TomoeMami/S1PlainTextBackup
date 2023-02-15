@@ -2305,3 +2305,26 @@ SMA现在是会报销量的
 别想太多 到时候直接喂你一脸SIF归来</blockquote>
 然后天天发一些404链接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 12230#       发表于 2023-2-15 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59751939&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2023-2-15 08:49</a>
+SMA现在是会报销量的</blockquote>
+杏树这是只撑了一周啊？
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  梶原ひかり  
+##### 12231#       发表于 2023-2-15 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59755334&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2023-2-15 13:44</a>
+杏树这是只撑了一周啊？
+
+—— 来自 OPPO PDRM00, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没有挂 只在自己平台卖是这样的
+
