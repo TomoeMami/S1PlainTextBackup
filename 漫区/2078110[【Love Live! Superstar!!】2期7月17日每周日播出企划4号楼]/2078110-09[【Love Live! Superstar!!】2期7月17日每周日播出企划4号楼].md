@@ -2275,3 +2275,22 @@ SMA现在是会报销量的
 别想太多 到时候直接喂你一脸SIF归来</blockquote>
 十分合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 12227#       发表于 2023-2-15 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754774&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-15 12:49</a>
+亚巡有可能吗？虽然现在对裂啦国内的人气没啥底数，毕竟跑了很多粉丝，</blockquote>
+搞个live问题还是不大的，除非它自信到直接上梅奔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 12228#       发表于 2023-2-15 13:14
+
+<blockquote>任天索尼子 发表于 2023-2-15 13:08
+别想太多 到时候直接喂你一脸SIF归来</blockquote>
+那边都是sif的蓝鸟直接转生2来用的，这边要停也是停盛趣的号啊。不至于停这个
+

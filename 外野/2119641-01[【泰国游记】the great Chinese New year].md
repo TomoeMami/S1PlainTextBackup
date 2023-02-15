@@ -687,3 +687,33 @@ up该处出一份
 云了云了，lz放一些风景照呀！</blockquote>
 放了，加下面了
 
+
+*****
+
+####  loushi2  
+##### 76#       发表于 2023-2-15 13:12
+
+ 本帖最后由 loushi2 于 2023-2-15 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752368&amp;ptid=2119641" target="_blank">eshen8423 发表于 2023-2-15 09:37</a>
+
+想起TGFC的第二十X次泰国之行什么的了，但凡国内贵鬼们用舔的钱一年去两三次泰国耍耍，就知道自己是多么** ...</blockquote>
+求攻略 去过几次 找不到好看还奶大的 还差点被孙子撅了
+
+*****
+
+####  如月尤菲  
+##### 77#         楼主| 发表于 2023-2-15 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754994&amp;ptid=2119641" target="_blank">loushi2 发表于 2023-2-15 13:12</a>
+求攻略 去过几次 找不到好看还奶大的 还差点被孙子撅了</blockquote>
+要服务去日按，奶大漂亮可以去高级泰浴，或者进蛇美自己问价格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  藤香樱雪  
+##### 78#       发表于 2023-2-15 13:21
+
+爱看游记！
+
+打个卡~改天摸鱼来看~
+
