@@ -2294,3 +2294,14 @@ SMA现在是会报销量的
 别想太多 到时候直接喂你一脸SIF归来</blockquote>
 那边都是sif的蓝鸟直接转生2来用的，这边要停也是停盛趣的号啊。不至于停这个
 
+
+*****
+
+####  ViyViy  
+##### 12229#       发表于 2023-2-15 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59754966&amp;ptid=2078110" target="_blank">任天索尼子 发表于 2023-2-15 13:08</a>
+
+别想太多 到时候直接喂你一脸SIF归来</blockquote>
+然后天天发一些404链接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
