@@ -14639,3 +14639,13 @@ MC的1.20更新加入了真正的樱花树了
 
 2023-2-15 13:06 上传
 
+
+*****
+
+####  rs5621  
+##### 4350#       发表于 2023-2-15 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七字母民好多
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
