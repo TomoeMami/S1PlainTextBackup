@@ -661,3 +661,13 @@ buff流感觉有点东西？看zard他们玩的一个法师一个牧师给野蛮
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金大斧死后生活这么贵的吗
 
+
+*****
+
+####  ETdiablo  
+##### 67#       发表于 2023-2-15 09:50
+
+昨天试了下，为啥有好几轮我出生都是在一间屋子里，有一个门框可以出去，但无论如何卡在里面出不来，这是常态吗？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+另外为啥我人物贴图加载不出？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
