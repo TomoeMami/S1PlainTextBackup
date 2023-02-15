@@ -1583,3 +1583,26 @@ sunbreak都还没玩，这个观望一下好了<img src="https://static.saraba1s
 
 —— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  阿露酱  
+##### 459#       发表于 2023-2-15 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59755671&amp;ptid=2092050" target="_blank">铃姉御肌 发表于 2023-2-15 14:13</a>
+
+为啥主播都能玩后面的内容了 试玩不是打完野猪就无了吗</blockquote>
+买了游戏也没限制,10小时内可以继续玩.游戏内是这么提示的,
+
+具体我昨天买了游戏就进不去游戏了.还不知道是不是这样.
+
+*****
+
+####  EiTa  
+##### 460#       发表于 2023-2-15 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59756646&amp;ptid=2092050" target="_blank">千千千千鸟 发表于 2023-2-15 15:25</a>
+
+我看主播玩感觉还真是挺有意思的，伞好多人吹，但我看着感觉其实一般，主要不怎么喜欢gp为主的系统，机关棍 ...</blockquote>
+伞其实感觉很一般 就试玩版我体验下来单论输出来看技巧刀都完爆伞了，伞的输出全体现在红槽上。但是伞的平A模组攒槽特别慢，没红槽纯刮痧，机制直接变成了犯蹭等gp，问题吧槽又消得很快，槽一开始消就得一直用踏板追击派生去蹭，属于性能强但是输出费劲的武器，技巧刀倒是朴实无华的那种的,只要复读xxx 接rt都能毛很高的输出。。。
+
