@@ -823,3 +823,14 @@ ios下载的话是切换到繁中服找app store吗
 
 攒石等老李复刻真痛苦，现在就靠圣华和天使过日子。
 
+
+*****
+
+####  鸯凰麟翔子  
+##### 946#       发表于 2023-2-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59753389&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-15 10:53</a>
+
+孔明</blockquote>
+是旗袍
+
