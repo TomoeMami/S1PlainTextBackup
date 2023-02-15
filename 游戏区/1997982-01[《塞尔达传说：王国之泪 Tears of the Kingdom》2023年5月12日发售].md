@@ -4158,3 +4158,18 @@ link，新的垃圾工程师
 有坛友求证过说她RPG，我倾向于她可能多少知道点 ...</blockquote>
 真的，当时看她的微博看得我表情非常微妙……说实话很多都可以看成某种车轱辘话，而且有种不太在乎普通玩家体验感的感觉，希卡之石这条微博给我留下比较深的印象是因为在当时看来完全是以旷野之息的内容为蓝本对续作进行着拙劣的瞎编，还是那种但凡稍微关注了续作消息就绝对不会编得那么离谱的瞎编<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在看来真不一定了，但是她语气确实让玩家不太舒服……
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1012#       发表于 2023-2-15 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762100&amp;ptid=1997982" target="_blank">Adif 发表于 2023-2-15 22:56</a>
+
+真的，当时看她的微博看得我表情非常微妙……说实话很多都可以看成某种车轱辘话，而且有种不太在乎普通玩 ...</blockquote>
+其实现在看来，她的发言多多少少能对上一些了，比如说林克有神明风格的衣服（那套绿衣服，确实是古希腊罗马神祇的常服），上上下下探索地图（空岛-地面-地下），大龙在空中飞来飞去（这次官方截图里确实多了一条新龙），而且我记得这些发言都在出PV前……
+[https://bbs.saraba1st.com/2b/for ... age=159#pid59680516](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2108952&amp;page=159#pid59680516)
+
+↑之前病栋讨论贴，当时大家可能零零散散聊了七八页，你直接翻就行。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
