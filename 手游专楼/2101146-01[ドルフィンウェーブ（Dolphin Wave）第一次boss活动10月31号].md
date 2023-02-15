@@ -215,3 +215,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startea15  
+##### 276#       发表于 2023-2-16 00:47
+
+ 本帖最后由 startea15 于 2023-2-15 09:48 编辑 
+
+<img src="https://imgur.com/a/0OzHa25" id="aimg_yIFvF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太jb黑了，感觉非限定以后都不抽卡了
+

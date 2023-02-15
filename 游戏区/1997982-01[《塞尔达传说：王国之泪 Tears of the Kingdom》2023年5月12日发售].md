@@ -4321,3 +4321,11 @@ link，新的垃圾工程师
 
 不谈破坏心情的东西了，看点好看的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">网友分享的西班牙地区王国之泪贴纸，可以看到塞尔达立绘的全身（twi:@littlebirdzelda）
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1027#       发表于 2023-2-16 00:45
+
+英国有预购特典，西班牙有预购特典，就我在的鬼地方卖得又贵又什么特典都没有<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
