@@ -4081,3 +4081,31 @@ link，新的垃圾工程师
 这次又带不了塞尔达，是又被抓走了吗</blockquote>
 预告片里那么明显的掉下去了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adif  
+##### 1005#       发表于 2023-2-15 22:33
+
+如果潭舅的原句是“二代有队友”，那确实一切皆有可能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从经常在剧情里给提示的指导角色到可操控的第二个主角什么都有可能，说不定就给你搞出个电话系统呢，什么林克用右手和塞尔达拿希卡石板打电话之类的（我纯瞎掰）
+
+*****
+
+####  宛若青空  
+##### 1006#       发表于 2023-2-15 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59761738&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-15 22:27</a>
+想问下坛友，你是在哪里看到坛舅说可以和NPC组队但不是公主的
+
+我刚才把坛舅的帖子翻了一遍，可能也 ...</blockquote>
+刚想翻坛舅回复看看他有没有明确说过，看来不用翻了，怀抱希望并期待着<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NeverCU  
+##### 1007#       发表于 2023-2-15 22:37
+
+有队友，应该不是第二个可操作角色，更可能是跟班
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
