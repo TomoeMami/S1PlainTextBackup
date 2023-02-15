@@ -6038,3 +6038,15 @@ ED最后有变化。
 
 那真是排面拉满
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 674#       发表于 2023-2-15 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59759351&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-2-15 18:50</a>
+看情报说动画还有一个方案打算做50米拉，简直笑死，什么近藤亲爹啊</blockquote>
+这个时间点做同志C？
+是肥仔地精表演挖坟还是看齐格飞爆诞？
+这种剧情肯定要放在BD特典小剧场里，哪有放正片里的
+

@@ -4046,3 +4046,38 @@ link，新的垃圾工程师
 
 这次又带不了塞尔达，是又被抓走了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adif  
+##### 1002#       发表于 2023-2-15 22:21
+
+话说潭舅的原句是啥，有说过和NPC组队但是不能带塞尔达吗
+
+*****
+
+####  Waldeinsamkeit  
+##### 1003#       发表于 2023-2-15 22:27
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-15 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59761259&amp;ptid=1997982" target="_blank">lanyu_u 发表于 2023-2-15 21:47</a>
+
+按照潭舅的说法，可以和NPC组队，但是还是不能带塞尔达。
+
+所以还是不要抱有太大期待的好。 ...</blockquote>
+想问下坛友，你是在哪里看到坛舅说可以和NPC组队但不是公主的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+我刚才把坛舅的帖子翻了一遍，可能也看得比较粗心，就看到坛舅提了一句“二代有队友”（原话，之前我写的“可以操作第二个人”是我自己记错了），别的好像就没说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过说实话，如果是按照“队友”来理解的话，我顿时也觉得不太可能是塞尔达了……我个人感觉更倾向的还是林克和公主两条线，后者占的比重不会太大但是至少短暂可控，给我们看另一个视角的故事……不过谁知道呢，一切皆有可能，我还是不想放弃“队友”是公主这个梦想<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 1004#       发表于 2023-2-15 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59761618&amp;ptid=1997982" target="_blank">aiyouo 发表于 2023-2-15 22:17</a>
+
+这次又带不了塞尔达，是又被抓走了吗</blockquote>
+预告片里那么明显的掉下去了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

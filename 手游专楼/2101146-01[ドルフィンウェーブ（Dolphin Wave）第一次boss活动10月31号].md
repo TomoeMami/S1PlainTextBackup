@@ -197,3 +197,13 @@
 
 风怒
 
+
+*****
+
+####  小五的拖鞋  
+##### 274#         楼主| 发表于 2023-2-15 22:28
+
+制作组通讯vol2，这下真PVP来了，大概类似于pcr的竞技场，只能说PVP就是好赚，日厂也还是翻不出新花样。
+
+本来还指望他能在更衣室换装和角色互动方面多花点心思，看来还是想多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
