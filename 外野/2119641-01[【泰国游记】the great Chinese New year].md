@@ -961,3 +961,29 @@ up该处出一份
 
 lz三年前的帖子要255权限，有备份吗
 
+
+*****
+
+####  阿鲁卡多  
+##### 105#       发表于 2023-2-15 18:16
+
+哥们就喜欢俗的？
+
+*****
+
+####  如月尤菲  
+##### 106#         楼主| 发表于 2023-2-15 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59758943&amp;ptid=2119641" target="_blank">nagitoY 发表于 2023-2-15 18:12</a>
+lz三年前的帖子要255权限，有备份吗</blockquote>
+我改掉好了
+
+*****
+
+####  如月尤菲  
+##### 107#         楼主| 发表于 2023-2-15 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59758943&amp;ptid=2119641" target="_blank">nagitoY 发表于 2023-2-15 18:12</a>
+lz三年前的帖子要255权限，有备份吗</blockquote>
+我改掉好了
+
