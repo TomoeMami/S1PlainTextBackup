@@ -1454,3 +1454,22 @@ ps5版打完岩鸣熊了，居然是流程怪
 
 —— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  火的意志  
+##### 446#       发表于 2023-2-15 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752082&amp;ptid=2092050" target="_blank">失身招领处 发表于 2023-2-15 09:06</a>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。</blockquote>
+你这怎么隔了30分钟还会风怒
+
+*****
+
+####  火的意志  
+##### 447#       发表于 2023-2-15 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752082&amp;ptid=2092050" target="_blank">失身招领处 发表于 2023-2-15 09:06</a>
+锁定是镜头自动追踪的。效果只能说一般，比没有好。</blockquote>
+你这怎么隔了30分钟还会风怒
+
