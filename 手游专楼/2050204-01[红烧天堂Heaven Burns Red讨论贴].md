@@ -804,3 +804,14 @@ ios下载的话是切换到繁中服找app store吗
 
 问一下 旗袍和孔明之间的优先度那个更高啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 944#       发表于 2023-2-15 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752488&amp;ptid=2050204" target="_blank">72单推人 发表于 2023-2-15 09:50</a>
+
+问一下 旗袍和孔明之间的优先度那个更高啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孔明
+

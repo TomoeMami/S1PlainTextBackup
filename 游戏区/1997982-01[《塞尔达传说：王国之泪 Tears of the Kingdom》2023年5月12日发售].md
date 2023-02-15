@@ -3847,3 +3847,27 @@ gamestop的特典有点抽象，感觉不如海报或者体积小一些的钥匙
 
 野炊村子更像是XB1的复兴殖民地。那么王国之泪不如弄个XB2的人和之力吧，游戏前半帮助了大家，然后加农出来大战一场，村庄毁灭王国落泪<img src="https://static.saraba1st.com/image/smiley/carton2017/383.png" referrerpolicy="no-referrer">然后进后半正篇
 
+
+*****
+
+####  斯皮内西  
+##### 983#       发表于 2023-2-15 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59753304&amp;ptid=1997982" target="_blank">downnote 发表于 2023-2-15 10:48</a>
+野炊村子更像是XB1的复兴殖民地。那么王国之泪不如弄个XB2的人和之力吧，游戏前半帮助了大家，然后加农出来 ...</blockquote>
+人和之力可太可怕了
+
+我对黄金国的唯一扣分点就是这个
+
+*****
+
+####  downnote  
+##### 984#       发表于 2023-2-15 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59753367&amp;ptid=1997982" target="_blank">斯皮内西 发表于 2023-2-15 10:52</a>
+
+人和之力可太可怕了
+
+我对黄金国的唯一扣分点就是这个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啊哈哈哈
+
