@@ -853,3 +853,16 @@ ios下载的话是切换到繁中服找app store吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">挂2-14一晚上技能涨了两三点 这个真是正常游玩方式？
 
+
+*****
+
+####  Skyline_R  
+##### 949#       发表于 2023-2-16 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742155&amp;ptid=2050204" target="_blank">yuan96 发表于 2023-2-14 15:29</a>
+
+抱着百合后宫的预期来玩的。
+
+但是玩下来。。。额，其实是一对对锁死的吧。</blockquote>
+除了屑粉毛那种，真正多对一的百合后宫作品其实很少吧，一些被冠上dd、后宫王、万雌王名号的角色都有自己的CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
