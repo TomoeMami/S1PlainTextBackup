@@ -6050,3 +6050,15 @@ ED最后有变化。
 是肥仔地精表演挖坟还是看齐格飞爆诞？
 这种剧情肯定要放在BD特典小剧场里，哪有放正片里的
 
+
+*****
+
+####  Aeons  
+##### 675#       发表于 2023-2-15 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59761761&amp;ptid=2050199" target="_blank">蒸汽投石BuBu車 发表于 2023-2-15 22:28</a>
+这个时间点做同志C？
+是肥仔地精表演挖坟还是看齐格飞爆诞？
+这种剧情肯定要放在BD特典小剧场里，哪有放 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎二设定集里提到的，是做朱莱克洛的剧情
+
