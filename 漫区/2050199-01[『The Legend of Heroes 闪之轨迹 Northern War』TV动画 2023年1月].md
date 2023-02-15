@@ -6062,3 +6062,13 @@ ED最后有变化。
 这种剧情肯定要放在BD特典小剧场里，哪有放 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎二设定集里提到的，是做朱莱克洛的剧情
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 676#       发表于 2023-2-16 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762616&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-2-15 23:36</a>
+黎二设定集里提到的，是做朱莱克洛的剧情</blockquote>
+这剧情哪里来的看头，不就是宰相玩胡萝卜大棒玩得溜吗。在飞船不是都说得清清楚楚了？克洛他爷技不如人，能怪人么
+
