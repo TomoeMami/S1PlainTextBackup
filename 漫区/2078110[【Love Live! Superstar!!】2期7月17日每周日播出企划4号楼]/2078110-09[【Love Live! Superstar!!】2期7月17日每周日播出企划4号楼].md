@@ -2492,3 +2492,14 @@ nagio这张反倒没有平时美
 
 鲤鱼这次迷你专质量可以啊，目前放出的几首一首比一首好听，水平明显比之前的歌要高
 
+
+*****
+
+####  csolfans  
+##### 12249#       发表于 2023-2-16 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59765174&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-16 09:47</a>
+
+广州签证还是没放开……妈的</blockquote>
+坛友准备飞过去看西武吗
+
