@@ -1842,3 +1842,14 @@ ea已經靠apex殺穿日本了
 
 原来野太刀拔刀术中用任何机关都回耐力？那满蓄力其实很快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不用担心耐力条空了
 
+
+*****
+
+####  阿露酱  
+##### 483#       发表于 2023-2-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59765112&amp;ptid=2092050" target="_blank">布拉德莱恩 发表于 2023-2-16 09:42</a>
+
+原来野太刀拔刀术中用任何机关都回耐力？那满蓄力其实很快啊还不用担心耐力条空了 ...</blockquote>
+原来可以用机关回?
+

@@ -866,3 +866,14 @@ ios下载的话是切换到繁中服找app store吗
 但是玩下来。。。额，其实是一对对锁死的吧。</blockquote>
 除了屑粉毛那种，真正多对一的百合后宫作品其实很少吧，一些被冠上dd、后宫王、万雌王名号的角色都有自己的CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuan96  
+##### 950#       发表于 2023-2-16 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59763407&amp;ptid=2050204" target="_blank">Skyline_R 发表于 2023-2-16 00:58</a>
+除了屑粉毛那种，真正多对一的百合后宫作品其实很少吧，一些被冠上dd、后宫王、万雌王名号的角色都有自己 ...</blockquote>
+其实这样也挺好的。yuki和月歌还是很配的。
+啥时候yuki能攻一下月歌就更好了。
+
