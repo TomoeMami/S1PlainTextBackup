@@ -4429,3 +4429,16 @@ link，新的垃圾工程师
 
 是不是形态变化她其实没有说，只是说“可以看到不一样的林克小可爱”，以及有两种标题比有二周目内容还要奇怪，不过这确实是比其他车轱辘话要明显一些的要素了……不管她了，游戏出了自见分晓
 
+
+*****
+
+####  SaitoYuki  
+##### 1039#       发表于 2023-2-16 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59766246&amp;ptid=1997982" target="_blank">我不是套霸 发表于 2023-2-16 11:04</a>
+
+本来以为种草家会开王泪限定就想着先等等看，结果现在哪哪都切了
+
+先做好要等高价吃现的心理准备了 ...</blockquote>
+昨天问种草说tb 3.8大促前都没法上预售商品，最快3.8后上，不过感觉也不会便宜<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
