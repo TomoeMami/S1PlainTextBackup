@@ -1913,3 +1913,18 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 有什么渠道买便宜点的嘛，STEAM卖300欸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 491#         楼主| 发表于 2023-2-16 23:19
+
+IGN 8：
+[https://www.ign.com/articles/wild-hearts-review](https://www.ign.com/articles/wild-hearts-review)
+
+GS 8：
+[https://www.gamespot.com/reviews ... me-up/1900-6418030/](https://www.gamespot.com/reviews/wild-hearts-review-build-me-up/1900-6418030/)
+
+MC 80 / 18评：
+[https://www.metacritic.com/game/playstation-5/wild-hearts](https://www.metacritic.com/game/playstation-5/wild-hearts)
+

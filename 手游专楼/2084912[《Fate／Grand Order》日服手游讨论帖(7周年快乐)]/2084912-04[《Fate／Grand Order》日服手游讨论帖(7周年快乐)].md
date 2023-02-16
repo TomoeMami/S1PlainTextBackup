@@ -9225,3 +9225,11 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 看碟下菜吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 5367#       发表于 2023-2-16 23:21
+
+虽然不抱期待，不知道明天开活动时有没顺便开一些强化本
+

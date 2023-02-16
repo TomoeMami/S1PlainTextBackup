@@ -971,3 +971,46 @@ FpGHifAaYAMN8e2.jpg
 
 撅迪奥撅死他
 
+
+*****
+
+####  gpx234mqx  
+##### 91#         楼主| 发表于 2023-2-16 23:13
+
+ 本帖最后由 gpx234mqx 于 2023-2-16 23:15 编辑 
+
+这中介人...拿18%，近2成108万美元，算多还是少？
+
+FpGBAx3agAYmSwg.jpg
+(156.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/231256w6brzlmllvsrumvr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 92#       发表于 2023-2-16 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775987&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 23:06</a>
+女的
+
+荒木还没高级到会搞LGBT出来</blockquote>
+但这里不是写的阿尼(兄)吗
+<img src="https://p.sda1.dev/9/fc6d9145d61b2054e2a7e8d9e1dbd7df/CMP_20230216231502745.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 93#         楼主| 发表于 2023-2-16 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776062&amp;ptid=2114828" target="_blank">zakki 发表于 2023-2-16 23:15</a>
+
+但这里不是写的阿尼(兄)吗</blockquote>
+荒木还真搞LGBT了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说他好骚的推特老美该吐血了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
