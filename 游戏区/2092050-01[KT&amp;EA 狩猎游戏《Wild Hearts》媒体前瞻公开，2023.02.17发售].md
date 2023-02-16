@@ -1879,3 +1879,11 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">感觉这些npc颜值被讨鬼传薄纱啊
 
+
+*****
+
+####  LamdaHT  
+##### 487#       发表于 2023-2-16 12:42
+
+不知道是不是自己的问题，总感觉在一些地表不平坦的地方放机关会出现莫名其妙的卡地形，不能触发上箱子动作
+
