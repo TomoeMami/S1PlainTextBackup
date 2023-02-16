@@ -240,3 +240,13 @@
 
 还是那套熟悉的草台，不过白嫖10连总是赚的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 7104#       发表于 2023-2-16 17:45
+
+草，还能这样
+
+不过有点担心会把追加的限定票吞了，52亿也快到了
+

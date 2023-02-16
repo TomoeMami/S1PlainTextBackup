@@ -4479,3 +4479,21 @@ link，新的垃圾工程师
 不便宜也没关系，就当图个不砍单和包装好吧
 谢谢告知<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 1044#       发表于 2023-2-16 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59771507&amp;ptid=1997982" target="_blank">yuwe0714 发表于 2023-2-16 16:59</a>
+
+哪个，有熟肉地址吗，让我康康</blockquote>
+b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期
+
+*****
+
+####  chain_233  
+##### 1045#       发表于 2023-2-16 17:49
+
+我后知后觉了，这次日版限定版找了很多店铺都预定完了，什么情况啊…… <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
