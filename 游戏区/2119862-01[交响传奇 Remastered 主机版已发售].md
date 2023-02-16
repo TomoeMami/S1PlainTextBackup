@@ -669,3 +669,13 @@ TOA，TODR，加上中文端上来，你真的不HD我都买
 
 重置不用心也会大暴死
 
+
+*****
+
+####  苇原雪道  
+##### 66#       发表于 2023-2-17 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59768532&amp;ptid=2119862" target="_blank">司马千晶 发表于 2023-2-16 13:36</a>
+V的高清版做了三年，而且v移植那个初版我记得还是有点问题。</blockquote>
+好吧，作为tob才入坑的新人，tov当时真的玩的挺开心的，虽然剧情一言难尽，但是人物都很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

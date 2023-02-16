@@ -1954,3 +1954,21 @@ ea真的是，在ea app打不开这游戏<img src="https://static.saraba1st.com/
 
 制作组推特发话了，优化布丁在做了，一周后才有<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 495#       发表于 2023-2-17 00:11
+
+steam版会弹ea启动器吗？
+
+*****
+
+####  Nosgoth  
+##### 496#       发表于 2023-2-17 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776582&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-17 00:11</a>
+
+steam版会弹ea启动器吗？</blockquote>
+Incorporates 3rd-party DRM: EA online activation and EA app software installation and background use required.
+
