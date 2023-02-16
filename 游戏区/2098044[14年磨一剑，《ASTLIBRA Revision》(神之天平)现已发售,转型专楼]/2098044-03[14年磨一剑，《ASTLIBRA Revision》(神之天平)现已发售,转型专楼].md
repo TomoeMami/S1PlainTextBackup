@@ -7256,3 +7256,30 @@ B站一搜一大堆。其实新章开始，都是弹幕洗澡，天平很好配�
 
 剩下的搞点经验和金币UP。
 
+
+*****
+
+####  christiny  
+##### 3614#       发表于 2023-2-16 11:19
+
+<img src="https://img.saraba1st.com/forum/202302/16/112009atd80pngfty4l4tg.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230216104501.png</strong> (69.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 11:20 上传
+
+第一遍玩了80小时，第二遍玩了35小时。完结了。
+
+到了新章都是切菜爽游……<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+QQ图片20230118210118.png
+(13.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/111834cwgfdkwhtzqdp9ar.png" referrerpolicy="no-referrer">
+

@@ -1861,3 +1861,13 @@ ea已經靠apex殺穿日本了
 
 steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  布拉德莱恩  
+##### 485#       发表于 2023-2-16 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59765468&amp;ptid=2092050" target="_blank">阿露酱 发表于 2023-2-16 10:11</a>
+原来可以用机关回?</blockquote>
+有视频，拔刀术中打火把、踩跷板、蹬箱子都能回耐力，野太刀根本不用担心蓄力时间和耐力条
+
