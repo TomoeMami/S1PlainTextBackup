@@ -1258,3 +1258,11 @@ jodio 替身十一月的雨 替身的下面会下雨 雨滴似乎质量很高 �
 历代连载第一话的杂志封面</blockquote>
 可恶，不知道sbr得到哪年了
 
+
+*****
+
+####  katern  
+##### 113#       发表于 2023-2-17 01:00
+
+我佛了，以为是姐弟局，结果是兄弟，还是个futa，荒木真的年轻啊，各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
