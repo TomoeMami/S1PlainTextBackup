@@ -234,3 +234,14 @@
 
 上期还是忍不住抽了，经过了之前的二连井，这次还是不失众望继续朝着三连井的方向前行，不过这次是不够石下井了，池子结束的时候还差二十多抽
 
+
+*****
+
+####  小五的拖鞋  
+##### 278#         楼主| 发表于 2023-2-16 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59763320&amp;ptid=2101146" target="_blank">startea15 发表于 2023-2-16 00:47</a>
+
+太jb黑了，感觉非限定以后都不抽卡了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉限定在路上了，可以开始憋了
+
