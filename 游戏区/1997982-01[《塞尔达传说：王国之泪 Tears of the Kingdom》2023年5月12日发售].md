@@ -4505,3 +4505,29 @@ b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期
 
 干，我真的不喜欢耐久，不如设计成对不同怪加成……不过还是要买
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1047#       发表于 2023-2-16 18:01
+
+其实我觉得耐久度可能会换一种方式存在，类似于野炊里的大师剑的充能。毕竟很明显DIY的载具也好武器也好都是由神秘绿色能源驱动的，搞不好就是你能随便造，但是绿色能量有限，用完了就灰了只能等重新充好电，或者直接扔了造一个新的什么的……
+
+*****
+
+####  heseran  
+##### 1048#       发表于 2023-2-16 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59772174&amp;ptid=1997982" target="_blank">嘉术2015 发表于 2023-2-16 17:42</a>
+b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期</blockquote>
+艹，这人一开头的吐槽功力也太深厚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 1049#       发表于 2023-2-16 18:06
+
+讲道理这个耐久的设定更能体验林克高手的水平嘛，拿起什么都能砍，砍烂就换，不挑剔不抱怨，真正意义上物尽其用的职业军人，突出一个专业<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

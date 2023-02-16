@@ -2513,3 +2513,25 @@ nagio这张反倒没有平时美
 坛友准备飞过去看西武吗</blockquote>
 没有，看鲤鱼的巡回，还有2个月，慢慢等，我票都抽好了
 
+
+*****
+
+####  优妮可  
+##### 12251#       发表于 2023-2-16 18:08
+
+<img src="https://img.saraba1st.com/forum/202302/16/180833au3du6bl6ug2jvlu.jpg" referrerpolicy="no-referrer">
+
+<strong>-1629c3468f983417.jpg</strong> (104.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/180833fgawusug88k5ajvo.jpg" referrerpolicy="no-referrer">
+
+<strong>1fda302afdfb8c56.jpg</strong> (83.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 18:08 上传
+
