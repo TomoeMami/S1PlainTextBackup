@@ -4497,3 +4497,11 @@ b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期
 
 我后知后觉了，这次日版限定版找了很多店铺都预定完了，什么情况啊…… <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxlice  
+##### 1046#       发表于 2023-2-16 17:53
+
+干，我真的不喜欢耐久，不如设计成对不同怪加成……不过还是要买
+
