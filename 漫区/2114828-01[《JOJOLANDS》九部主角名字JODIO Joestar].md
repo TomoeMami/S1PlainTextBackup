@@ -1014,3 +1014,89 @@ FpGBAx3agAYmSwg.jpg
 
 说他好骚的推特老美该吐血了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  包菜  
+##### 94#       发表于 2023-2-16 23:22
+
+这……不懂tran，来个懂哥介绍一下这是女跨男还是男跨女啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+据我看ao3同人的经验这应该是女跨男吧……
+
+*****
+
+####  zakki  
+##### 95#       发表于 2023-2-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776120&amp;ptid=2114828" target="_blank">包菜 发表于 2023-2-16 23:22</a>
+这……不懂tran，来个懂哥介绍一下这是女跨男还是男跨女啊
+
+据我看ao3同人的经验这应该是女跨男吧… ...</blockquote>
+看肤色的话，像是吃了洛卡卡卡，男女融合？
+
+*****
+
+####  gpx234mqx  
+##### 96#         楼主| 发表于 2023-2-16 23:25
+
+老米翻译用he了
+
+FpGRY5laEAA0RSh.jpg
+(206.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 23:25 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/232523hsgutoa71tzscycz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 97#         楼主| 发表于 2023-2-16 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776120&amp;ptid=2114828" target="_blank">包菜 发表于 2023-2-16 23:22</a>
+
+这……不懂tran，来个懂哥介绍一下这是女跨男还是男跨女啊
+
+据我看ao3同人的经验这应该是女跨男吧… ...</blockquote>
+嗯，这个问题值得探讨，有奶有棍，穿女人衣服，但是被弟弟叫做哥哥，而不是姐姐
+
+这按LGBT分类莫非是跨性别？
+
+*****
+
+####  包菜  
+##### 98#       发表于 2023-2-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776138&amp;ptid=2114828" target="_blank">zakki 发表于 2023-2-16 23:24</a>
+
+看肤色的话，像是吃了洛卡卡卡，男女融合？</blockquote>
+因为介绍的时候说是哥哥，那至少官方给的性别是男吧……
+
+但是我看的图透很多特写相当妩媚，女跨男会这样吗……不太懂……
+
+*****
+
+####  zakki  
+##### 99#       发表于 2023-2-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776184&amp;ptid=2114828" target="_blank">包菜 发表于 2023-2-16 23:28</a>
+因为介绍的时候说是哥哥，那至少官方给的性别是男吧……
+
+但是我看的图透很多特写相当妩媚，女跨男会这样 ...</blockquote>
+所以说可能是吃了洛卡卡卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来是哥哥，吃了后和一个黑皮女人融合了，成了双性人
+
+*****
+
+####  包菜  
+##### 100#       发表于 2023-2-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776182&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 23:27</a>
+
+嗯，这个问题值得探讨，有奶有棍，穿女人衣服，但是被弟弟叫做哥哥，而不是姐姐
+
+这按LGBT分类莫非是跨性 ...</blockquote>
+女跨男也可以穿女人衣服的，但是（在我的刻板印象里）不会这么的女性化，比如说可能会穿运动胸罩，更男性化的衣服之类的，这个角色看起来还是很妩媚的
+

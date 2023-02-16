@@ -1928,3 +1928,11 @@ GS 8：
 MC 80 / 18评：
 [https://www.metacritic.com/game/playstation-5/wild-hearts](https://www.metacritic.com/game/playstation-5/wild-hearts)
 
+
+*****
+
+####  skyfaker305  
+##### 492#       发表于 2023-2-16 23:25
+
+ea真的是，在ea app打不开这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
