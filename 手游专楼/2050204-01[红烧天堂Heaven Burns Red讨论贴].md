@@ -927,3 +927,11 @@ ios下载的话是切换到繁中服找app store吗
 
 这池子多久更新一次，不会一个池子开一月吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 956#       发表于 2023-2-16 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">幻神初始是不是太贵了点
+

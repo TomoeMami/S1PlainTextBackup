@@ -1905,3 +1905,11 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这游戏带光追的么  怎么这么吃显卡
 
+
+*****
+
+####  千千千千鸟  
+##### 490#       发表于 2023-2-16 19:38
+
+有什么渠道买便宜点的嘛，STEAM卖300欸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
