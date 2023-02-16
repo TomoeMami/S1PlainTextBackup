@@ -4539,3 +4539,11 @@ b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期</bl
 
 希望保持林克半神的实力，而不是充电宝用完就浑身难受的凡人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adif  
+##### 1051#       发表于 2023-2-16 18:56
+
+只要林克时间还存在，林克就是半神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
