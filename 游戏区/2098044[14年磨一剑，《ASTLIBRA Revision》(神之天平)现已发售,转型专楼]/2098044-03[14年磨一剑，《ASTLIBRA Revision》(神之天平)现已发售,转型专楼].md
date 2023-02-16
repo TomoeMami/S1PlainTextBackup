@@ -7241,3 +7241,18 @@ b站专栏搜神之天平</blockquote>
 
 新章以后天平搭配有推荐吗，求一个
 
+
+*****
+
+####  christiny  
+##### 3613#       发表于 2023-2-16 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59759478&amp;ptid=2098044" target="_blank">奇里奥斯 发表于 2023-2-15 19:02</a>
+
+新章以后天平搭配有推荐吗，求一个</blockquote>
+B站一搜一大堆。其实新章开始，都是弹幕洗澡，天平很好配置了。
+
+因为攻防魔的收益很低，最有用的就是，精力提升量，效果时间，最大精力最大体力。
+
+剩下的搞点经验和金币UP。
+
