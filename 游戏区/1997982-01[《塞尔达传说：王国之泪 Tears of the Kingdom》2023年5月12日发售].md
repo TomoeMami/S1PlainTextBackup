@@ -4337,3 +4337,14 @@ link，新的垃圾工程师
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">更喜欢散发造型，任天堂快给我更多绿衣散发林克
 
+
+*****
+
+####  牛奶笛  
+##### 1029#       发表于 2023-2-16 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762880&amp;ptid=1997982" target="_blank">Adif 发表于 2023-2-16 00:03</a>
+
+现在看来只有希卡之石那个最像回事，毕竟当时但凡看过新作预告（那时预告应该有俩了），比起对着希卡之石瞎 ...</blockquote>
+她有明确说过她负责做二周目的标题啥的，还说能见到不一样的林克。这点是判断是否瞎编的重要依据。不过她后来也没爆料了，仅限那些了。
+
