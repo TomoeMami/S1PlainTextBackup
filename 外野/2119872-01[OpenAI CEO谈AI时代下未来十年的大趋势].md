@@ -691,3 +691,11 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 
 大家都在担心啥，AI调教师？
 
+
+*****
+
+####  奥古斯都  
+##### 62#       发表于 2023-2-16 16:41
+
+总部发邮件，严格禁止将代码直接copy到chatgpt提问，但是鼓励大家尝试提高效率、提升代码质量的小工具。我想用gptcommit，被上司驳回了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
