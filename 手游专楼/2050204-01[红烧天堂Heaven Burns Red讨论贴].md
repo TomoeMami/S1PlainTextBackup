@@ -919,3 +919,11 @@ ios下载的话是切换到繁中服找app store吗
 日服有繁中吗，还是只能去台服啊</blockquote>
 有
 
+
+*****
+
+####  Merdesony  
+##### 955#       发表于 2023-2-16 18:42
+
+这池子多久更新一次，不会一个池子开一月吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

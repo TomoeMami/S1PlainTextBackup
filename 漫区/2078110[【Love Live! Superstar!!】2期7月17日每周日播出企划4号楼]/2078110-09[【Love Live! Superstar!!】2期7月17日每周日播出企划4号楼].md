@@ -2552,3 +2552,22 @@ nagio这张反倒没有平时美
 
 还挺不错
 
+
+*****
+
+####  lj205  
+##### 12254#       发表于 2023-2-16 18:45
+
+想要摇滚可<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 12255#       发表于 2023-2-16 18:50
+
+新歌我觉得。。不太行，和前两个可可曲没法比
+
+个专没找宫野，可可曲听着也不像宫野写的，难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不过烂铁迷你专路子倒是想通了，就多搞黑人音乐这片的就对了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
