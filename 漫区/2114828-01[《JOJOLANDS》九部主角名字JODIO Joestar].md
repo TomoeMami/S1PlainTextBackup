@@ -794,3 +794,62 @@ FpF_5ZOaIAQkCmZ.jpg
 
 故事开始是接委托，去夏威夷的某个豪宅闯空门，去偷一个价值600万美元的砖石，必须四人组队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hamartia  
+##### 77#       发表于 2023-2-16 22:33
+
+这引子，荒木是玩上了GTA吧
+
+到处接合法不合法的任务，收队友，把生意做大，最后成为本市一霸
+
+某人曾豪言过“有人崇拜足球明星。我不一样，我的梦想是黑帮之星……”的令和版
+
+*****
+
+####  Evomenon  
+##### 78#       发表于 2023-2-16 22:34
+
+好GTA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后主角这个十一月雨，还挺帅的，有点像那个外星人榨橙汁机<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gpx234mqx  
+##### 79#         楼主| 发表于 2023-2-16 22:37
+
+黑皮姐的确乔家血统，有星星
+
+FpGDoYlaIAQgvzY.jpg
+(146.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:37 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/223702oisk2jgbqjvqggsf.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 80#         楼主| 发表于 2023-2-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775683&amp;ptid=2114828" target="_blank">Evomenon 发表于 2023-2-16 22:34</a>
+
+好GTA
+
+然后主角这个十一月雨，还挺帅的，有点像那个外星人榨橙汁机</blockquote>
+嗯，很像
+
+FpFsA8FXwAIs7K6.jpg
+(26.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:38 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/223843d7z00afaqxacx00i.jpg" referrerpolicy="no-referrer">
+
