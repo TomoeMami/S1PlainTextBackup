@@ -1871,3 +1871,11 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 原来可以用机关回?</blockquote>
 有视频，拔刀术中打火把、踩跷板、蹬箱子都能回耐力，野太刀根本不用担心蓄力时间和耐力条
 
+
+*****
+
+####  MiteOra  
+##### 486#       发表于 2023-2-16 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">感觉这些npc颜值被讨鬼传薄纱啊
+
