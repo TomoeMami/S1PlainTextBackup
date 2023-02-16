@@ -65,3 +65,13 @@ win2复刻是啥时候的消息</blockquote>
 
 GPD Win 4 512G 白色发货了。
 
+
+*****
+
+####  医生狼多  
+##### 642#       发表于 2023-2-16 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59770935&amp;ptid=2086469" target="_blank">bypass 发表于 2023-2-16 16:20</a>
+GPD Win 4 512G 白色发货了。</blockquote>
+44s，还没反应
+
