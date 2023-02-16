@@ -1972,3 +1972,20 @@ steam版会弹ea启动器吗？
 steam版会弹ea启动器吗？</blockquote>
 Incorporates 3rd-party DRM: EA online activation and EA app software installation and background use required.
 
+
+*****
+
+####  crosz1985  
+##### 497#       发表于 2023-2-17 00:22
+
+这评分真够稳定的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御坂MKII  
+##### 498#       发表于 2023-2-17 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer"> pc这什么性能，3080ti 只能 4k 低画质 30 帧，还没 dlss 开
+
