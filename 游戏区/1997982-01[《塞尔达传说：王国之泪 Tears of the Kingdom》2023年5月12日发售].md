@@ -4408,3 +4408,14 @@ link，新的垃圾工程师
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  牛奶笛  
+##### 1037#       发表于 2023-2-16 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59764927&amp;ptid=1997982" target="_blank">Adif 发表于 2023-2-16 09:26</a>
+
+就怕二周目可操控别的角色然后林克开口说话，那种事不要啊</blockquote>
+应该不会。她指的是衣服或形态方面的变化
+
