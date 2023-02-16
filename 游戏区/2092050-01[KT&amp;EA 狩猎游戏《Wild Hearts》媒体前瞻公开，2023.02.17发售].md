@@ -1936,3 +1936,13 @@ MC 80 / 18评：
 
 ea真的是，在ea app打不开这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 493#       发表于 2023-2-16 23:51
+
+进游戏看了下，默认中等特效给我20多帧，全低能有30-40，直接关游戏睡觉，希望明天能有优化补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

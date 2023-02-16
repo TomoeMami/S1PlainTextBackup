@@ -1159,3 +1159,53 @@ FpGRY5laEAA0RSh.jpg
 
 第八部都玩四蛋人了，其实早就想过荒木玩这花样的可能性
 
+
+*****
+
+####  renkan119  
+##### 106#       发表于 2023-2-16 23:45
+
+jodio 替身十一月的雨 替身的下面会下雨 雨滴似乎质量很高 龙 替身Smooth Operator 看起来是能够自由改变物体 像是把耳朵拉到脑袋后面之类的 名字太长不知道怎么念 替身The hustle 好像可以自由控制手臂上的肌肉
+
+*****
+
+####  renkan119  
+##### 107#       发表于 2023-2-16 23:46
+
+<blockquote>gpx234mqx 发表于 2023-2-16 23:35
+推上有人坚持他是女性，JB是用替身能力变出来的，自称男性也是为了保护自己
+
+等明天性别问题应该更 ...</blockquote>
+jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么样 毕竟从他的替身来看 想自己捏胸还是捏jb都没有问题…
+
+*****
+
+####  gpx234mqx  
+##### 108#         楼主| 发表于 2023-2-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776326&amp;ptid=2114828" target="_blank">renkan119 发表于 2023-2-16 23:45</a>
+
+jodio 替身十一月的雨 替身的下面会下雨 雨滴似乎质量很高 龙 替身Smooth Operator 看起来是能够自由改变物 ...</blockquote>
+调情圣手啊
+
+能力应该是随意改变物体部分
+
+推特装个JB说法转这样看也是可行的
+
+不过可能反过来装奶。把自己改造成女人的样子？
+
+*****
+
+####  朗姆酒hentai  
+##### 109#       发表于 2023-2-16 23:49
+
+这个替身...
+
+<img src="https://img.saraba1st.com/forum/202302/16/234924qg9gjblcuuzb7sbz.png" referrerpolicy="no-referrer">
+
+<strong>截图.png</strong> (9.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 23:49 上传
+
