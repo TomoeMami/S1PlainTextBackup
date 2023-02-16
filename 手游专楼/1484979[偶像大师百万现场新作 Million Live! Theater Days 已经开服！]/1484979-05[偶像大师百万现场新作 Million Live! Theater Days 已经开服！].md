@@ -210,3 +210,33 @@
 
 —— 来自 OnePlus PGP110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  moonmagian  
+##### 7101#       发表于 2023-2-16 17:10
+
+也没办法，被解包人解出了全正解
+也不知道之前两天是不是解包人答对了，只能全收回了
+不算特别好的处理，但也想不到啥更好的处理手段了，只能怪代码写的太草台没把数据藏好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  花开安菲路  
+##### 7102#       发表于 2023-2-16 17:16
+
+运营水平实在太低，以至于抄都不会抄，抽奖活动给搞得蠢成这样，以这种形式收场反而没那么蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+摆烂还挺舒服的，自动券送的多爆率似乎也变高了，躺平党基本不用手打。
+
+活动曲前面我会莫名其妙miss一个，打了10几遍都搞不懂，最后把速度调到150%（之前一直只有130%）就FC了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  supergilaboy  
+##### 7103#       发表于 2023-2-16 17:18
+
+还是那套熟悉的草台，不过白嫖10连总是赚的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

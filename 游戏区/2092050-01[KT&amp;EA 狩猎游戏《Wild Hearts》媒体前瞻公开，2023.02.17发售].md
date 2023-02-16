@@ -1897,3 +1897,11 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 感觉这些npc颜值被讨鬼传薄纱啊</blockquote>
 确切地说，是讨鬼传1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨鬼传2的妹子不仅少也不能打，唯一的大姐姐还动不动就男人脸
 
+
+*****
+
+####  evaqyqx  
+##### 489#       发表于 2023-2-16 17:15
+
+这游戏带光追的么  怎么这么吃显卡
+
