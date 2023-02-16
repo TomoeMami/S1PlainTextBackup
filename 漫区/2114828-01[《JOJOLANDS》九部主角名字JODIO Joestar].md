@@ -563,3 +563,14 @@ jodio这是西语里的fuck，dragona是母龙，还挺乐呵的</blockquote>
 
 有说故事发生的时间吗，对这个比较感兴趣
 
+
+*****
+
+####  gpx234mqx  
+##### 62#         楼主| 发表于 2023-2-16 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773722&amp;ptid=2114828" target="_blank">Schwftyyyyy 发表于 2023-2-16 19:53</a>
+
+有说故事发生的时间吗，对这个比较感兴趣</blockquote>
+乔瑟夫（仗世文）乔斯达后裔。时间不明<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

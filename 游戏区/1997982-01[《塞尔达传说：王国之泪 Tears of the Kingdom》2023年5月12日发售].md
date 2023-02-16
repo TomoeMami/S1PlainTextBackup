@@ -4555,3 +4555,21 @@ b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期</bl
 
 有一些渠道疑似泄露3月10日王国之泪限定机开始预购，仅供参考
 
+
+*****
+
+####  宛若青空  
+##### 1053#       发表于 2023-2-16 20:06
+
+不会推特丢个视频吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不是没可能
+
+*****
+
+####  冷泉夜月  
+##### 1054#       发表于 2023-2-16 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773870&amp;ptid=1997982" target="_blank">宛若青空 发表于 2023-02-16 20:06:11</a>
+不会推特丢个视频吧也不是没可能</blockquote>参考喷喷和朱紫，可不就是丢个视频么，专属直面会不会特意讲限定机的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
