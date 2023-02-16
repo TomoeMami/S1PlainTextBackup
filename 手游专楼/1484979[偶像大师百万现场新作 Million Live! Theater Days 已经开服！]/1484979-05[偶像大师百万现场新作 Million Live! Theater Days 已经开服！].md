@@ -200,3 +200,13 @@
 
 起码学双色球搞个二奖三奖，全中才有太搞了
 
+
+*****
+
+####  超法拉  
+##### 7100#       发表于 2023-2-16 15:56
+
+土豆 整活的神
+
+—— 来自 OnePlus PGP110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
