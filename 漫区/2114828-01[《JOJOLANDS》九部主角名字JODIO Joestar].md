@@ -883,3 +883,41 @@ a08b87d6277f9e2f07085eb3977afe24b899a901557f.jpg
 
 <img src="https://img.saraba1st.com/forum/202302/16/224950l6i6c6ryrz0rr36x.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 83#       发表于 2023-2-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775829&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 22:49</a>
+
+牙ACT12还是能看出类人型的样子的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊，我觉得牙1牙2的人形度明细比这个jo吊的要低啊，尤其牙一，比这个11月语抽象太多了吧
+
+*****
+
+####  gpx234mqx  
+##### 84#         楼主| 发表于 2023-2-16 22:58
+
+ 本帖最后由 gpx234mqx 于 2023-2-16 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775891&amp;ptid=2114828" target="_blank">厄神之息 发表于 2023-2-16 22:57</a>
+
+啊，我觉得牙1牙2的人形度明细比这个jo吊的要低啊，尤其牙一，比这个11月语抽象太多了吧 ...</blockquote>
+有手有脚，玩具的样子，总之还是能看出来的
+
+*****
+
+####  gpx234mqx  
+##### 85#         楼主| 发表于 2023-2-16 23:00
+
+肤色对比很明显的
+
+FpGIKqXaYAEMFAd.jpg
+(312.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:58 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/225831vza8fkghck23ua99.jpg" referrerpolicy="no-referrer">
+
