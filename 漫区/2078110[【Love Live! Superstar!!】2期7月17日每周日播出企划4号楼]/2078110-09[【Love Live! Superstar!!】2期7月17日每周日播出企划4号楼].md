@@ -2503,3 +2503,13 @@ nagio这张反倒没有平时美
 广州签证还是没放开……妈的</blockquote>
 坛友准备飞过去看西武吗
 
+
+*****
+
+####  lj205  
+##### 12250#       发表于 2023-2-16 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59767633&amp;ptid=2078110" target="_blank">csolfans 发表于 2023-2-16 12:37</a>
+坛友准备飞过去看西武吗</blockquote>
+没有，看鲤鱼的巡回，还有2个月，慢慢等，我票都抽好了
+
