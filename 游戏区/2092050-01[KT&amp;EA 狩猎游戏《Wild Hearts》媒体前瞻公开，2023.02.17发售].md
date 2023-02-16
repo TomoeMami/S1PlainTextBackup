@@ -1834,3 +1834,11 @@ ea已經靠apex殺穿日本了
 
 最终boss是条“卧龙”<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  布拉德莱恩  
+##### 482#       发表于 2023-2-16 09:42
+
+原来野太刀拔刀术中用任何机关都回耐力？那满蓄力其实很快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不用担心耐力条空了
+
