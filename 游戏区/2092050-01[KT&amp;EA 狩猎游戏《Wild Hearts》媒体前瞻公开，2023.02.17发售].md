@@ -1989,3 +1989,67 @@ Incorporates 3rd-party DRM: EA online activation and EA app software installatio
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer"> pc这什么性能，3080ti 只能 4k 低画质 30 帧，还没 dlss 开
 
+
+*****
+
+####  415452356  
+##### 499#       发表于 2023-2-17 02:06
+
+<img src="https://img.saraba1st.com/forum/202302/17/020623m7gy0la80yt172tg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (672.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 02:06 上传
+
+我的眼珠子，疼
+
+*****
+
+####  半江瑟瑟半江红  
+##### 500#       发表于 2023-2-17 02:34
+
+这大野猪也太强了，打了快三个小时也没打过去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+招式追踪性未免有些夸张了
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Raumanzug  
+##### 501#       发表于 2023-2-17 02:43
+
+三星猴子有点难打啊，还摇不到人武器感觉升不上去了防具也没什么技能好的。
+
+*****
+
+####  bm7号  
+##### 502#       发表于 2023-2-17 02:44
+
+我的绘卷是大太法师咒体，就像回家了一样。
+
+<img src="https://img.saraba1st.com/forum/202302/17/024430cixx0xaavvx4mizf.jpg" referrerpolicy="no-referrer">
+
+<strong>20220430231617_1.jpg</strong> (283.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 02:44 上传
+
+*****
+
+####  Raumanzug  
+##### 503#       发表于 2023-2-17 03:03
+
+第四次去直接卡相争动画不动了，然后雨伞打桩锯了感觉有六七分钟才锯死<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 504#       发表于 2023-2-17 05:27
+
+  这游戏都没把显卡的性能给用起来，我4080打了三个小时风扇根本没响过，风扇吹出来的甚至是冷风<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
