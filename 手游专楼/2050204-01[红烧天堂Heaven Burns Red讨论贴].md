@@ -953,3 +953,22 @@ ios下载的话是切换到繁中服找app store吗
 幻神初始是不是太贵了点</blockquote>
 现在的初始号很不正常，月签到都是满的，有隐患，自己刷一个吧比较放心。
 
+
+*****
+
+####  leitingkai  
+##### 959#       发表于 2023-2-17 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59742155&amp;ptid=2050204" target="_blank">yuan96 发表于 2023-2-14 15:29</a>
+
+抱着百合后宫的预期来玩的。
+
+但是玩下来。。。额，其实是一对对锁死的吧。</blockquote>
+月歌暧昧的苍井和白河都有对她们抱有单箭头的人
+
+鉴于月哥月嫂的稳定程度 估计她们那边就是两对另外的cp<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+唯独和月歌有关系但没有和其他女性有高浓度关系的在所有人之中就只有病娇毛子了
+
+所以这个游戏根本就不是让玩家看月歌视角开百合后宫的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">连伪后宫都算不上 纯爱的一笔
+
