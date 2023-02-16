@@ -4596,3 +4596,14 @@ b站搜kiyo 塞尔达 这人话又多又爱玩光初始台地就逛了三期</bl
 
 神之领域：剑盾766，动森805，喷三868，大乱斗935，朱紫1238
 
+
+*****
+
+####  冷泉夜月  
+##### 1057#       发表于 2023-2-16 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59774127&amp;ptid=1997982" target="_blank">宛若青空 发表于 2023-02-16 20:26:36</a>
+希望专属直面会能来个王泪PRO手柄</blockquote>对吼，喷喷都出pro了，塞尔达出个pro也很合理<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
