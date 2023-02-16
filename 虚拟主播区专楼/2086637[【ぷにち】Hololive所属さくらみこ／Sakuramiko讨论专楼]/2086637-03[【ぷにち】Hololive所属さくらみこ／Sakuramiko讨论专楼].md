@@ -14809,3 +14809,11 @@ FC一把赢了风真
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4365#         楼主| 发表于 2023-2-16 21:32
+
+563和shion顺了家里一堆东西草
+
