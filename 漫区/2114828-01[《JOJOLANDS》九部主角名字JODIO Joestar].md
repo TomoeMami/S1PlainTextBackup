@@ -748,3 +748,49 @@ FpF-Y-baAAQ8zzP.jpg
 
 <img src="https://img.saraba1st.com/forum/202302/16/220612w5ba8znaabxlnjxc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 75#         楼主| 发表于 2023-2-16 22:23
+
+ 本帖最后由 gpx234mqx 于 2023-2-16 22:32 编辑 
+
+直接用替身能力打趴JS<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+比意大利黑帮还牛逼
+
+<img src="https://img.saraba1st.com/forum/202302/16/222338rixd7gbtz57pq5qt.jpg" referrerpolicy="no-referrer">
+
+<strong>FpF_5ZLaEAEFbzi.jpg</strong> (413.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/222341y5gdd1d1md1bpakp.jpg" referrerpolicy="no-referrer">
+
+<strong>FpF_5ZMagAI_LPc.jpg</strong> (404.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:23 上传
+
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=1247176&amp;size=300x300&amp;key=8b49ac3d17cc98a1&amp;nocache=yes&amp;type=fixnone" id="aimg_Xx26T" onclick="zoom(this, this.src, 0, 0, 0)" width="300"/)
+
+FpF_5ZOaIAQkCmZ.jpg
+(128.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/222334xoeh6e86rz2g6mmh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 76#         楼主| 发表于 2023-2-16 22:27
+
+故事开始是接委托，去夏威夷的某个豪宅闯空门，去偷一个价值600万美元的砖石，必须四人组队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
