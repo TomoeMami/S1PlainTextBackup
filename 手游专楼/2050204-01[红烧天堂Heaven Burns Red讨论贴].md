@@ -943,3 +943,13 @@ ios下载的话是切换到繁中服找app store吗
 
 一年出了47个SS
 
+
+*****
+
+####  南去  
+##### 958#       发表于 2023-2-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773570&amp;ptid=2050204" target="_blank">chivalry 发表于 2023-2-16 19:40</a>
+幻神初始是不是太贵了点</blockquote>
+现在的初始号很不正常，月签到都是满的，有隐患，自己刷一个吧比较放心。
+
