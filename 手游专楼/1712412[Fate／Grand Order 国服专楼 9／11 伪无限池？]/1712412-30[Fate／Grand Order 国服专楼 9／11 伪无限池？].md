@@ -48,3 +48,13 @@
 
 O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一般不作为（手动）周回选手讨论。高难和单挑确实挺强的，buff足生存也有
 
+
+*****
+
+####  GALLADE  
+##### 44158#       发表于 2023-2-16 18:19
+
+谢谢解答
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">很好，直接攒石摸一摸RBA完事了
+
