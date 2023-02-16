@@ -1100,3 +1100,62 @@ FpGRY5laEAA0RSh.jpg
 这按LGBT分类莫非是跨性 ...</blockquote>
 女跨男也可以穿女人衣服的，但是（在我的刻板印象里）不会这么的女性化，比如说可能会穿运动胸罩，更男性化的衣服之类的，这个角色看起来还是很妩媚的
 
+
+*****
+
+####  包菜  
+##### 101#       发表于 2023-2-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776196&amp;ptid=2114828" target="_blank">zakki 发表于 2023-2-16 23:29</a>
+
+所以说可能是吃了洛卡卡卡啊本来是哥哥，吃了后和一个黑皮女人融合了，成了双性人 ...</blockquote>
+不知道这种情况会不会被lgbt人士出警<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 102#         楼主| 发表于 2023-2-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776197&amp;ptid=2114828" target="_blank">包菜 发表于 2023-2-16 23:29</a>
+
+女跨男也可以穿女人衣服的，但是（在我的刻板印象里）不会这么的女性化，比如说可能会穿运动胸罩，更男性 ...</blockquote>
+男跨女的话都是自称女性，而不会称男性
+
+嗯嗯嗯，第三性？？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 103#         楼主| 发表于 2023-2-16 23:35
+
+ 本帖最后由 gpx234mqx 于 2023-2-16 23:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776229&amp;ptid=2114828" target="_blank">包菜 发表于 2023-2-16 23:34</a>
+
+不知道这种情况会不会被lgbt人士出警</blockquote>
+推上有人坚持他是女性，JB是用替身能力变出来的，自称男性也是为了保护自己<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+等明天性别问题应该更热闹了
+
+推上很多jo迷都没反应过来
+
+*****
+
+####  包菜  
+##### 104#       发表于 2023-2-16 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776230&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 23:34</a>
+
+男跨女的话都是自称女性，而不会称男性
+
+嗯嗯嗯，第三性？？</blockquote>
+9jo欧美人气直接加成百分之三百<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+加上这主角的名字，这部原地起飞<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盖尔杰特克  
+##### 105#       发表于 2023-2-16 23:40
+
+第八部都玩四蛋人了，其实早就想过荒木玩这花样的可能性
+
