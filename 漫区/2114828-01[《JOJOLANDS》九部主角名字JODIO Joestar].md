@@ -921,3 +921,53 @@ FpGIKqXaYAEMFAd.jpg
 
 <img src="https://img.saraba1st.com/forum/202302/16/225831vza8fkghck23ua99.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 86#       发表于 2023-2-16 23:04
+
+到底是男的女的，还是吃了洛卡卡卡
+
+*****
+
+####  gpx234mqx  
+##### 87#         楼主| 发表于 2023-2-16 23:04
+
+历代连载第一话的杂志封面
+
+FpGHifAaYAMN8e2.jpg
+(730.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/230411wgiup5rcxjkp3gyz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88#         楼主| 发表于 2023-2-16 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775963&amp;ptid=2114828" target="_blank">zakki 发表于 2023-2-16 23:04</a>
+
+到底是男的女的，还是吃了洛卡卡卡</blockquote>
+女的
+
+荒木还没高级到会搞LGBT出来
+
+*****
+
+####  gpx234mqx  
+##### 89#         楼主| 发表于 2023-2-16 23:09
+
+推上都疯了，都在等杂志出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 90#       发表于 2023-2-16 23:12
+
+撅迪奥撅死他
+
