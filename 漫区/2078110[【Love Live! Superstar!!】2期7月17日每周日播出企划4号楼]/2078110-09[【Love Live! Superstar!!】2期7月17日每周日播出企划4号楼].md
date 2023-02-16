@@ -2582,3 +2582,43 @@ nagio这张反倒没有平时美
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  player3960  
+##### 12257#       发表于 2023-2-16 19:42
+
+可可在这团就这风格了，鲤鱼的发挥也被限死了，曲风真是没啥新鲜感。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还得是mini专，虽然还有一周，有点期待my beating的全曲，还有yellow的mv什么时候公布<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 12258#       发表于 2023-2-16 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773049&amp;ptid=2078110" target="_blank">stygian 发表于 2023-2-16 18:50</a>
+新歌我觉得。。不太行，和前两个可可曲没法比
+
+个专没找宫野，可可曲听着也不像宫野写的，难受，不 ...</blockquote>
+新专最后一首是宫野写的吧？
+
+*****
+
+####  player3960  
+##### 12259#       发表于 2023-2-16 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773615&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-16 19:43</a>
+
+新专最后一首是宫野写的吧？</blockquote>
+虽然不知道他说的宫野是哪位，不过专辑最后是宫嶋老师
+
+*****
+
+####  lj205  
+##### 12260#       发表于 2023-2-16 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59773635&amp;ptid=2078110" target="_blank">player3960 发表于 2023-2-16 19:45</a>
+虽然不知道他说的宫野是哪位，不过专辑最后是宫嶋老师</blockquote>
+哦对
+
