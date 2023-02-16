@@ -699,3 +699,13 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 
 总部发邮件，严格禁止将代码直接copy到chatgpt提问，但是鼓励大家尝试提高效率、提升代码质量的小工具。我想用gptcommit，被上司驳回了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nvis  
+##### 63#       发表于 2023-2-16 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59769539&amp;ptid=2119872" target="_blank">雷诺4001 发表于 2023-2-16 14:47</a>
+我相信你描述的场景最终可以实现，问题是把这套玩意儿的硬件成本、可靠性、维护成本这些降到能替代生活中 ...</blockquote>
+经历过这几十年电子数码技术革新和算力爆炸带来的震撼，你把ai和机器自动化低成本化类比成核聚变，什么一两百年。这话放几十年前还能让人沉思一下，放现在只会摇头笑笑说一句你想多了。
+
