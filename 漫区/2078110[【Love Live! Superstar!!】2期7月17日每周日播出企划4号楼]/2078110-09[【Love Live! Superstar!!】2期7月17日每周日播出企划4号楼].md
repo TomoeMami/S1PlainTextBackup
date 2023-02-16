@@ -2571,3 +2571,14 @@ nagio这张反倒没有平时美
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ruffian  
+##### 12256#       发表于 2023-2-16 19:14
+
+虽然没有帅可不过这首也还行
+什么时候来点帅可？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
