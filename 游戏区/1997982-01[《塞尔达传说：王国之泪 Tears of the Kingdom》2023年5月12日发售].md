@@ -4442,3 +4442,11 @@ link，新的垃圾工程师
 先做好要等高价吃现的心理准备了 ...</blockquote>
 昨天问种草说tb 3.8大促前都没法上预售商品，最快3.8后上，不过感觉也不会便宜<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nma  
+##### 1040#       发表于 2023-2-16 16:41
+
+那些微博出现那么多违和点，最有可能是junior包装自己贪全组之功，要么是熟人谈资做点粉饰接到自己身上，里面的直接事实信了无所谓的，但描述的关系、评价也就当个八卦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
