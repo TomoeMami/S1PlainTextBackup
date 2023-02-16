@@ -148,3 +148,11 @@
 但是这样的话 自动46+ 和110+跃入怎么安排啊  死掉的队伍没法支援  没法1234主力5队杀王了吗 ...</blockquote>
 直接扫荡打关底吧
 
+
+*****
+
+####  rgauss  
+##### 846#         楼主| 发表于 2023-2-16 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">塔米尔出场就对管理者说 我的爱 管理者罪孽深重啊
+
