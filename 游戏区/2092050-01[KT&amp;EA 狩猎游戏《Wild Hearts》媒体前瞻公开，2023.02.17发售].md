@@ -1887,3 +1887,13 @@ steamdeck平均20帧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 不知道是不是自己的问题，总感觉在一些地表不平坦的地方放机关会出现莫名其妙的卡地形，不能触发上箱子动作
 
+
+*****
+
+####  布拉德莱恩  
+##### 488#       发表于 2023-2-16 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59766827&amp;ptid=2092050" target="_blank">MiteOra 发表于 2023-2-16 11:38</a>
+感觉这些npc颜值被讨鬼传薄纱啊</blockquote>
+确切地说，是讨鬼传1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨鬼传2的妹子不仅少也不能打，唯一的大姐姐还动不动就男人脸
+

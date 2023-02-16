@@ -4458,3 +4458,13 @@ link，新的垃圾工程师
 
 昨晚看到一个日本实况主22年做的野炊初见实况，一连看了四个小时（然后后面就没有熟肉了），真是勾起了自己当初玩野炊的美好记忆
 
+
+*****
+
+####  yuwe0714  
+##### 1042#       发表于 2023-2-16 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59771330&amp;ptid=1997982" target="_blank">嘉术2015 发表于 2023-2-16 16:47</a>
+昨晚看到一个日本实况主22年做的野炊初见实况，一连看了四个小时（然后后面就没有熟肉了），真是勾起了自己 ...</blockquote>
+哪个，有熟肉地址吗，让我康康<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

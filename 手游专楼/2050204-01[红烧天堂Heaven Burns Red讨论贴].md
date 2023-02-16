@@ -877,3 +877,26 @@ ios下载的话是切换到繁中服找app store吗
 其实这样也挺好的。yuki和月歌还是很配的。
 啥时候yuki能攻一下月歌就更好了。
 
+
+*****
+
+####  pf67  
+##### 951#       发表于 2023-2-16 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59762850&amp;ptid=2050204" target="_blank">在海岸 发表于 2023-2-15 23:58</a>
+
+挂2-14一晚上技能涨了两三点 这个真是正常游玩方式？</blockquote>
+这个该怎么挂机？
+
+*****
+
+####  alucardcz  
+##### 952#       发表于 2023-2-16 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59771433&amp;ptid=2050204" target="_blank">pf67 发表于 2023-2-16 16:54</a>
+
+这个该怎么挂机？</blockquote>
+不能纯挂 得用脚本 开自动2头来回跑
+
+2-14等级太低  升技能几率也低
+
