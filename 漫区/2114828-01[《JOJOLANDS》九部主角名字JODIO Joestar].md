@@ -1239,3 +1239,22 @@ jodio 替身十一月的雨 替身的下面会下雨 雨滴似乎质量很高 �
 
 2023-2-17 00:23 上传
 
+
+*****
+
+####  酒瓶止迁  
+##### 111#       发表于 2023-2-17 00:36
+
+ 本帖最后由 酒瓶止迁 于 2023-2-17 00:38 编辑 
+
+草，其实没那么复杂吧，不就是黄油里常见的扶她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过想想，也可能是人妖，放弃思考XD
+
+*****
+
+####  Alicest  
+##### 112#       发表于 2023-2-17 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775966&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 23:04</a>
+历代连载第一话的杂志封面</blockquote>
+可恶，不知道sbr得到哪年了
+

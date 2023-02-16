@@ -679,3 +679,11 @@ TOA，TODR，加上中文端上来，你真的不HD我都买
 V的高清版做了三年，而且v移植那个初版我记得还是有点问题。</blockquote>
 好吧，作为tob才入坑的新人，tov当时真的玩的挺开心的，虽然剧情一言难尽，但是人物都很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忧郁  
+##### 67#       发表于 2023-2-17 00:36
+
+富泽什么时候滚啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
