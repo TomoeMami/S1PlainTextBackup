@@ -14799,3 +14799,13 @@ FC一把赢了风真
 
 2、怎么在公开场合亲亲我我，要聊去line上聊
 
+
+*****
+
+####  rs5621  
+##### 4364#       发表于 2023-2-16 20:29
+
+35专用猜拳机
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
