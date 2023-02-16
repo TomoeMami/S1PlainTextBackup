@@ -908,3 +908,14 @@ ios下载的话是切换到繁中服找app store吗
 
 日服有繁中吗，还是只能去台服啊
 
+
+*****
+
+####  alucardcz  
+##### 954#       发表于 2023-2-16 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59772524&amp;ptid=2050204" target="_blank">不应 发表于 2023-2-16 18:06</a>
+
+日服有繁中吗，还是只能去台服啊</blockquote>
+有
+

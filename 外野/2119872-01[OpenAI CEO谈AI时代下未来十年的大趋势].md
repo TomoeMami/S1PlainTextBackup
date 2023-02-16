@@ -730,3 +730,15 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 
 搞软件的老觉得自己高人一等，自己已经写出来了绝妙的代码，都是那些搞硬件的贱民太不给力，不然早就世界大同了，是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nvis  
+##### 65#       发表于 2023-2-16 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59772267&amp;ptid=2119872" target="_blank">雷诺4001 发表于 2023-2-16 17:47</a>
+这话术忒老了
+
+近二十年能爆炸性发展的是哪些行业，你自己心里没点b数嘛？</blockquote>
+是的你说的都对，目前汽车技术跟二十年前一样，没啥进步。制造业的技术发展速度跟不上摩尔定律的话就不算革新。智能手机、智能家电、显示屏换代、变频电机技术都是码农推动的，跟机电工程和微电子无关。我搞了几十年机电一体化和机床改良研发，都不如你说的码农那样能主宰世界，真的很抱歉。
+
