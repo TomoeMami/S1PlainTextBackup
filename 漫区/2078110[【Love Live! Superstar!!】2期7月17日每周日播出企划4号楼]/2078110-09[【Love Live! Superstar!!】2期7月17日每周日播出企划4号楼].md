@@ -2648,3 +2648,11 @@ nagio这张反倒没有平时美
 
 今年目标就是看鱼，但是也实在没钱飞日本，只能期待国内来场live了
 
+
+*****
+
+####  ViyViy  
+##### 12264#       发表于 2023-2-16 22:20
+
+我这木头耳朵觉得加上“可可”这一条件后鱼并不适合唱太激昂的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，比如无尽赛道，尽管鱼确实唱的很顶。像小圆OP、天降二期OP、俺妹OP这类感觉挺合适的。
+
