@@ -1745,3 +1745,14 @@ ea已經靠apex殺穿日本了
 
 游戏要全程联网吗？
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 475#       发表于 2023-2-16 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59757826&amp;ptid=2092050" target="_blank">奥F特 发表于 2023-2-15 16:39</a>
+
+至少在捏脸这方面能赢怪猎</blockquote>
+但是人靠衣装，这作的衣服几乎没有好看的，而且还全是很粗旷的风格<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，还tm不如怪猎吧
+
