@@ -4535,3 +4535,11 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 之前看标题一直以为是纯音游，一玩直接停不下来一口气通了。打的困难难度，分数和时间基本都是s但是精准只有一次在70以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外打完发现左右键完全没用处，还以为是有什么新系统等着解锁，感觉伙伴键完全可以rtlt都放上然后右键换rt边的人就行，三人一键切是真的麻烦。
 
+
+*****
+
+####  Amibo  
+##### 436#       发表于 2023-2-16 08:30
+
+有无寇西嘉美图，想打了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
