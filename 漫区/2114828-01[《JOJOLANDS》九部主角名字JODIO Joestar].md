@@ -853,3 +853,33 @@ FpFsA8FXwAIs7K6.jpg
 
 <img src="https://img.saraba1st.com/forum/202302/16/223843d7z00afaqxacx00i.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 81#       发表于 2023-2-16 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59774398&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-16 20:48</a>
+
+十一月雨</blockquote>
+瘸子才是非人形替身第一个吧，牙一牙二替身显形的时候不是人形，平常也是一直当小手枪用的，人形的牙三牙四快结束了才登的场。
+
+*****
+
+####  gpx234mqx  
+##### 82#         楼主| 发表于 2023-2-16 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59775746&amp;ptid=2114828" target="_blank">厄神之息 发表于 2023-2-16 22:41</a>
+
+瘸子才是非人形替身第一个吧，牙一牙二替身显形的时候不是人形，平常也是一直当小手枪用的，人形的牙三牙 ...</blockquote>
+牙ACT12还是能看出类人型的样子的
+
+a08b87d6277f9e2f07085eb3977afe24b899a901557f.jpg
+(57.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-16 22:49 上传
+
+<img src="https://img.saraba1st.com/forum/202302/16/224950l6i6c6ryrz0rr36x.jpg" referrerpolicy="no-referrer">
+
