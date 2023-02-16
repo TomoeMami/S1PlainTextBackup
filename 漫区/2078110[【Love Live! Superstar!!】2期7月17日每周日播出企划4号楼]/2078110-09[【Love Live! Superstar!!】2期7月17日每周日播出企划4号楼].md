@@ -2484,3 +2484,11 @@ nagio这张反倒没有平时美
 
 广州签证还是没放开……<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">妈的
 
+
+*****
+
+####  qty  
+##### 12248#       发表于 2023-2-16 09:56
+
+鲤鱼这次迷你专质量可以啊，目前放出的几首一首比一首好听，水平明显比之前的歌要高
+
