@@ -4398,3 +4398,13 @@ link，新的垃圾工程师
 本来以为种草家会开王泪限定就想着先等等看，结果现在哪哪都切了
 先做好要等高价吃现的心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 1036#       发表于 2023-2-16 11:25
+
+预约开始一周，目前COMG普通版68P，收藏版40P，合计108P了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
