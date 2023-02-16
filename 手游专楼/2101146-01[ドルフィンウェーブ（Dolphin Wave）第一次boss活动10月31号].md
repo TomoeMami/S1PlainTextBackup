@@ -245,3 +245,11 @@
 太jb黑了，感觉非限定以后都不抽卡了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉限定在路上了，可以开始憋了
 
+
+*****
+
+####  MEKA  
+##### 279#       发表于 2023-2-16 21:26
+
+半周年应该会有个fes，还有几十天可以挥霍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
