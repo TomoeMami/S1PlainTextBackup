@@ -794,3 +794,14 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 
 当然影响肯定是巨大的，确实会改变世界，但感觉还算不上技术奇点吧，
 
+
+*****
+
+####  绕指流光  
+##### 71#       发表于 2023-2-16 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59774758&amp;ptid=2119872" target="_blank">勿徊哉 发表于 2023-2-16 21:18</a>
+
+这人擅长的投资吧。</blockquote>
+是的，这位是斯坦福计算机系退学，原本就是Y Combinator的总裁，reddit有他参股，OPENAI最早的时候就是火星马跟YC投资的，后来马一龙退出换成了微软入局
+
