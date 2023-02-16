@@ -4543,3 +4543,11 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 有无寇西嘉美图，想打了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 437#       发表于 2023-2-16 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">刷S有点恼火
+
