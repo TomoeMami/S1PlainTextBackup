@@ -4468,3 +4468,14 @@ link，新的垃圾工程师
 昨晚看到一个日本实况主22年做的野炊初见实况，一连看了四个小时（然后后面就没有熟肉了），真是勾起了自己 ...</blockquote>
 哪个，有熟肉地址吗，让我康康<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我不是套霸  
+##### 1043#       发表于 2023-2-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59770787&amp;ptid=1997982" target="_blank">SaitoYuki 发表于 2023-2-16 16:10</a>
+ 昨天问种草说tb 3.8大促前都没法上预售商品，最快3.8后上，不过感觉也不会便宜 ...</blockquote>
+不便宜也没关系，就当图个不砍单和包装好吧
+谢谢告知<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
