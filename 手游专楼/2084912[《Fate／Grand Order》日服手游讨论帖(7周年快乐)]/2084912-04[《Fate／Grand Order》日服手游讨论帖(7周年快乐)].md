@@ -9358,3 +9358,92 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坏了，看了就回不去了
 
+
+*****
+
+####  gpx234mqx  
+##### 5381#       发表于 2023-2-17 17:42
+
+但是强度不高啊
+
+*****
+
+####  v22325  
+##### 5382#       发表于 2023-2-17 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这特异点笑到了，商店居然还是石像……
+
+*****
+
+####  gpx234mqx  
+##### 5383#       发表于 2023-2-17 17:46
+
+ 本帖最后由 gpx234mqx 于 2023-2-17 17:48 编辑 
+
+虽然蓝拐，但是很普通啊 
+
+也就蓝卡暴100好点
+
+スキル1 幻想の圣人 A【CT:8~6】 
+
+味方単体のアーツのスター集中度をアップ(3T/3000%~5000%) 
+
+アーツのクリティカル威力をアップ(3T/50%~100%) 
+
+自身に毎Tスター获得状态を付与(3T/5个~10个) 
+
+スキル2 アーツ忌避されし祭礼行列 C【CT:9~7】 
+
+味方全体のアーツ性能をアップ(3T/10%~20%) 
+
+弱体无効状态を付与(1回・3T) 
+
+被ダメージカット状态を付与(3T/500~1000) 
+
+自身のNPを増やす(20%~30%) 
+
+スキル3 毎ターンNP获得教皇论议 EX【CT:10~8】 
+
+味方全体に毎TNP获得状态を付与(3T/10%~20%) 
+
+攻撃力をアップ(3T/10%~20%)
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5384#       发表于 2023-2-17 17:47
+
+很菜，评价是狗都不抽
+
+没想到本来就不怎么样的教皇装还是三破，卡面强度双拉稀
+
+*****
+
+####  quanlix  
+##### 5385#       发表于 2023-2-17 17:50
+
+这什么垃圾玩意儿
+
+*****
+
+####  gpx234mqx  
+##### 5386#       发表于 2023-2-17 17:51
+
+就李庄好看这次
+
+3E9B396B-ACE8-42F4-B791-55A952C11268.jpeg
+(375.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/175049rvmtqfvt8vtfffrt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 5387#       发表于 2023-2-17 17:52
+
+省石头了，继续等所长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

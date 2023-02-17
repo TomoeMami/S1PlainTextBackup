@@ -2357,3 +2357,16 @@ ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face
 炼狱猴要多用跳板重攻击冲回去蹭刀，有大点的硬直就上跳台登龙，我用太刀顶着掉帧打了17分钟打掉的 ...</blockquote>
 太刀趁早扔了，后面的武器一个比一个猛
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 532#       发表于 2023-2-17 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785149&amp;ptid=2092050" target="_blank">布拉德莱恩 发表于 2023-2-17 16:49</a>
+退款等bug修完优化做完我再买底子是好的，有希望做成系列</blockquote>
+EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步失败挂加速器爬梯子都不行真是恶心死了
+我这Uplay云存档同步都没问题，ea app就不行
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

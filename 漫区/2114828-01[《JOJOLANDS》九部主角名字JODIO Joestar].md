@@ -1623,3 +1623,16 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 老妖时代变了，阶级固化躺平的时代看这种大纲就下头，歌颂黄金精神还能有些共感，发财关我个韭菜屁事[f:037 ...</blockquote>
 就因为阶级固化所以只能通过歪路子发达啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gary76  
+##### 149#       发表于 2023-2-17 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785366&amp;ptid=2114828" target="_blank">冰原狼 发表于 2023-2-17 17:03</a>
+
+胸就是两块赘肉啊，从腰上挪它个二斤来
+
+—— 来自 S1Fun</blockquote>
+那只是挪一圈后备轮胎<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
