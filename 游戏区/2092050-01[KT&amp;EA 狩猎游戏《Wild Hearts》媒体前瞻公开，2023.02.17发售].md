@@ -2061,3 +2061,13 @@ Incorporates 3rd-party DRM: EA online activation and EA app software installatio
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，这游戏还是得组队才安全点，boss怒后基本是二三手连着来，还挺难找空子
 
+
+*****
+
+####  土路生優里  
+##### 506#       发表于 2023-2-17 08:08
+
+昨天玩了会，除了优化稀烂其他体验居然还挺不错的
+
+—— 来自 OnePlus KB2005, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
