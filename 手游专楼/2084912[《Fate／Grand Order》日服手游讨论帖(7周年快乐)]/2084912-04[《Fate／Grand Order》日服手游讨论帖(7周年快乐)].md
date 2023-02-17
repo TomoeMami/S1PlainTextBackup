@@ -9268,3 +9268,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 时间快到了 等一个延期/解包</blockquote>
 解包不是之前被一个脑痰弄没了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 5372#       发表于 2023-2-17 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59784888&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-17 16:31</a>
+解包不是之前被一个脑痰弄没了吗</blockquote>
+不同情况吧，一种是根据App更新的资料解包，就好像上次第七章的DATA LOST BATTLE就是这样解出来的。上次那个脑瘫是直接用工具将游戏没羽蛇神还没有解锁的动作直接解出来，之前的盖提亚和队长打蝙蝠侠的视频就是这样来的。
+
