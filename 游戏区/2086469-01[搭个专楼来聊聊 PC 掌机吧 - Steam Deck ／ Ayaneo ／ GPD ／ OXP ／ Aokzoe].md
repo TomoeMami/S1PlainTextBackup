@@ -123,3 +123,13 @@ GPD Win 4 512G 白色发货了。</blockquote>
 我非常有掌机需求，但是我不需要3A或者说大型游戏，这续航吃的住吗？带娃打游戏不被老婆骂吗 ...</blockquote>
 pc掌机的续航都不行，基本上默认就是插电玩，临睡前在床上捧着玩一会这样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总比开笔记本插一堆线玩一个点就又得收起来强。半夜娃娃有需求也能及时扔一边，出门带着当个备用机也比背着笔记本方便，反正还是看个人需求吧，有大把时间坐在自家电脑桌前面玩的话确实没必要买pc掌机，我这是明明没时间玩但又割舍不下电脑里的游戏才买的
 
+
+*****
+
+####  医生狼多  
+##### 648#       发表于 2023-2-17 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59781084&amp;ptid=2086469" target="_blank">zxlice 发表于 2023-2-17 12:05</a>
+我非常有掌机需求，但是我不需要3A或者说大型游戏，这续航吃的住吗？带娃打游戏不被老婆骂吗 ...</blockquote>
+不玩3a的话2，3小时总有的
+
