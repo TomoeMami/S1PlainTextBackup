@@ -834,3 +834,14 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 
 这是它目前最有想象空间的地方，它可以让很多程序都更强大/更好卖了，可以让计算机更好的辅助人，提供效率了。
 
+
+*****
+
+####  Muteki_Link  
+##### 74#       发表于 2023-2-17 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59764988&amp;ptid=2119872" target="_blank">nvis 发表于 2023-2-16 09:31</a>
+
+资本家也不值钱了，只留下极少数寡头权阀来垄断支撑起ai产业链即可，其他中小微型企业主可以全部去死了。 ...</blockquote>
+确实，提早进入赛博朋克世界
+
