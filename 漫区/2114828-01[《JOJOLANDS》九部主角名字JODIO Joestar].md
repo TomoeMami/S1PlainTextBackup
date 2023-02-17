@@ -1443,3 +1443,35 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 
 还是说这事儿其实另有他人委托？
 
+
+*****
+
+####  久保由利香  
+##### 132#       发表于 2023-2-17 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778338&amp;ptid=2114828" target="_blank">Elevation 发表于 2023-2-17 08:55</a>
+说起来600w当中八尺老板抽成18%，四人组分2%，剩下80%归谁？地下市场固然不可能原价出手，但加起来出手价只 ...</blockquote>
+四人组每人2%，扣掉开销，剩下的估计上交mechanism
+
+*****
+
+####  gpx234mqx  
+##### 133#         楼主| 发表于 2023-2-17 09:02
+
+ 本帖最后由 gpx234mqx 于 2023-2-17 09:03 编辑 
+
+诶，和四蛋同年代吧
+
+乔屌他妈 芭芭拉 安 乔斯达和贺丽是姐妹
+
+父亲不明
+
+2B835A39-7555-4715-88E2-886B0D98E016.png
+(243.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/090233xqmaekz6e6jezv7c.png" referrerpolicy="no-referrer">
+

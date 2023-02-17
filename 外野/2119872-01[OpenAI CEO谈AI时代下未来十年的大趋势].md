@@ -845,3 +845,24 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 资本家也不值钱了，只留下极少数寡头权阀来垄断支撑起ai产业链即可，其他中小微型企业主可以全部去死了。 ...</blockquote>
 确实，提早进入赛博朋克世界
 
+
+*****
+
+####  Muteki_Link  
+##### 75#       发表于 2023-2-17 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59765191&amp;ptid=2119872" target="_blank">ceruleancard 发表于 2023-2-16 09:49</a>
+
+不好说，体力不值钱，脑力不值钱，最终的结果可能是产品也不值钱了</blockquote>
+我觉得未必，决定价格的并不是你实际成本的高低，而是市场的需求。只要你能刺激到市场产生足够的需求，那定价权就在你这边。身边太多成本本应越来越低但实际价格越来越高的例子了，奢侈品的存在也是差不多的道理。
+
+*****
+
+####  ceruleancard  
+##### 76#       发表于 2023-2-17 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778424&amp;ptid=2119872" target="_blank">Muteki_Link 发表于 2023-2-17 09:03</a>
+
+我觉得未必，决定价格的并不是你实际成本的高低，而是市场的需求。只要你能刺激到市场产生足够的需求，那 ...</blockquote>
+不是，你市场需求再高，没钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">体力也不值钱，脑力也不值钱，人手上的钱就够买个馒头，再需要肉糜又有什么用呢
+
