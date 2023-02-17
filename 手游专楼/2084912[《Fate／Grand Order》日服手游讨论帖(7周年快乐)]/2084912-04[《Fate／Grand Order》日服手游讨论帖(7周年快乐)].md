@@ -9736,3 +9736,16 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 第一天玩废狗？新素材怎&amp;#x ...</blockquote>
 是...是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能我没怎么养过新从者
 
+
+*****
+
+####  eilot  
+##### 5415#       发表于 2023-2-17 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790146&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-17 22:49</a>
+
+这次连个强化本都没有么</blockquote>
+印象中近半年的活动都没顺便出强化本，有的都是之前章节抽池顺便出的
+
+强化周及幕间周就算了，要一口气想出多个角色的短编剧情，也太辛苦营运了，也不舍得送那么多石，上年随便出数个素材礼装关卡就能拖星期，但这年连这招拖时间都没...
+

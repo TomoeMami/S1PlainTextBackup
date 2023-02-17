@@ -6162,3 +6162,11 @@ B站港澳台：
 
 没想到基神都能出场，该不会主角团最后打基神吧？反正其他5个都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeaha123  
+##### 684#       发表于 2023-2-17 23:50
+
+竟然补充游戏剧情了
+
