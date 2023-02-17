@@ -2312,3 +2312,11 @@ ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face
 
 昨晚ps5开帧数模式关掉动态模糊一切舒适，练了练和伞的弹反。正反馈爽的直轰脑门。今天一天上班都惦记着这感觉。人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raumanzug  
+##### 527#       发表于 2023-2-17 17:15
+
+这作的难度意外的高啊，地狱猴和冰狼两个升星主线怪都不好打，攻击频率太高了我变形棍根本不敢变形攒槽，好不容易攒半管换区了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+

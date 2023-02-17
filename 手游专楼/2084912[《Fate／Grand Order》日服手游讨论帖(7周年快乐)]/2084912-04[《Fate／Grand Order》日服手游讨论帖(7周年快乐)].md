@@ -9300,3 +9300,45 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 为什么猫头鹰后面几张卡面没了艹，不抽了
 
+
+*****
+
+####  里村紅葉  
+##### 5376#       发表于 2023-2-17 17:14
+
+群体20缓冲真的高贵到值得8回合CD吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5377#       发表于 2023-2-17 17:16
+
+<img src="https://img.saraba1st.com/forum/202302/17/171637jyyhzahax2eeohcl.jpg" referrerpolicy="no-referrer">
+
+<strong>99.jpg</strong> (563.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 17:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好歹是个拐  居然出了（
+
+*****
+
+####  黑上シグマ  
+##### 5378#       发表于 2023-2-17 17:17
+
+欧洲限定佬又豹跳了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  exiaexa  
+##### 5379#       发表于 2023-2-17 17:18
+
+本来还以为又是个ATK废物，结果80-90的atk暴涨1500
+
+烟雾镜UCCU
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
