@@ -9457,3 +9457,58 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 这次搞啥呢
 
+
+*****
+
+####  exiaexa  
+##### 5389#       发表于 2023-2-17 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785888&amp;ptid=2084912" target="_blank">v22325 发表于 2023-2-17 17:43</a>
+
+这特异点笑到了，商店居然还是石像……</blockquote>
+这沙雕主线故事讲着讲着DLC都冒出来了，差点没喷出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 5390#       发表于 2023-2-17 18:06
+
+<img src="https://img.saraba1st.com/forum/202302/17/180536g17n87gilgltinn6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230217180518.jpg</strong> (125.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 18:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 5391#       发表于 2023-2-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785559&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-17 17:16</a>
+
+好歹是个拐  居然出了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新 何等的豹跳
+
+*****
+
+####  Jamaisvu  
+##### 5392#       发表于 2023-2-17 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785926&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-17 17:46</a>
+
+虽然蓝拐，但是很普通啊 
+
+也就蓝卡暴100好点</blockquote>
+三回合全体每T20NP获得也不错，还有20攻击。
+
+不过地铺本蓝卡光炮的位置被烟雾镜霸占了，感觉无用武之地...
+
+双特攻宝具看着可以，可惜人之力蓝光炮特攻有充能更多、BUFF更强、攻击更高的仇尼托了...
+
+话说如果白情复刻小教授是不是对琼安的一种羞辱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

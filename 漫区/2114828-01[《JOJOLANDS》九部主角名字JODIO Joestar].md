@@ -1636,3 +1636,13 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 —— 来自 S1Fun</blockquote>
 那只是挪一圈后备轮胎<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 150#         楼主| 发表于 2023-2-17 18:11
+
+<blockquote>鹿叔叔 发表于 2023-2-17 17:27
+就因为阶级固化所以只能通过歪路子发达啊</blockquote>
+就是乔瑟夫错过了发财机会，孙子才要走歪路啊
+
