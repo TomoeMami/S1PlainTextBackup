@@ -3160,3 +3160,16 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 7045#       发表于 2023-2-17 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790153&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-2-17 22:49</a>
+我都怀疑制作组是故意玩新年梗了，步梦让后辈抽走鬼牌，然后joker就一直在岚珠手上www
+
+—— 来自 OPPO PGU ...</blockquote>
+虹四格制作很早，所以应该只是巧合。
+制作组想玩的是海爷梗。
+
