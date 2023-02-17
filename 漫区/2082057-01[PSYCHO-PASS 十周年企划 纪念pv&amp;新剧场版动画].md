@@ -725,3 +725,14 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 2023年5月12日（ ...</blockquote>
 特报PV：[https://youtu.be/huVtTW6_eCg](https://youtu.be/huVtTW6_eCg)
 
+
+*****
+
+####  LeonsCat  
+##### 78#       发表于 2023-2-17 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328440&amp;ptid=2082057" target="_blank">meailove 发表于 2023-1-13 12:03</a>
+
+pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了啊第三季突发奇想换主角是为什么呢，继续 ...</blockquote>
+因为已经圣人化没法写了吧。
+
