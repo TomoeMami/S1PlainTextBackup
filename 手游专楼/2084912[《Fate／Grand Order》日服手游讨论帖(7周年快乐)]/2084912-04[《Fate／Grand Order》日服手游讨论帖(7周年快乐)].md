@@ -9700,3 +9700,21 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 这个商店都是什么垃圾材料啊，没有书皮和小刀？
 
+
+*****
+
+####  上坂莲华  
+##### 5411#       发表于 2023-2-17 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">之前豹跳过尼托了这次女教皇不来了，我还挺喜欢这个宝具动画的，逼真读心GO
+
+*****
+
+####  黑上シグマ  
+##### 5412#       发表于 2023-2-17 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59789324&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2023-2-17 21:49</a>
+
+这个商店都是什么垃圾材料啊，没有书皮和小刀？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一天玩废狗？新素材怎么可能立刻进活动商店
+

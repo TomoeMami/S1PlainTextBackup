@@ -6101,3 +6101,48 @@ B站港澳台：
 
 哦牛批原来还有这种隐情，古拉格半真半假吧，死的一瞬间就光速陷害，这肯定是有预谋吧，小鬼还看了他一眼。
 
+
+*****
+
+####  酷乐  
+##### 680#       发表于 2023-2-17 22:30
+
+推上晒的转发奖品：
+
+<img src="https://img.saraba1st.com/forum/202302/17/223018hcw8861w903b3908.jpg" referrerpolicy="no-referrer">
+
+<strong>FpJyEHfacAE_wKN.jpg</strong> (288.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/223018qowbnxs2bnobbkew.jpg" referrerpolicy="no-referrer">
+
+<strong>FpKStGgagAA_JgX.jpg</strong> (110.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/223018kxn6mifhf9xhmnvm.jpg" referrerpolicy="no-referrer">
+
+<strong>FpKegyvacAEVsmr.jpg</strong> (438.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 22:30 上传
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 681#       发表于 2023-2-17 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59789487&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-2-17 22:00</a>
+哦牛批原来还有这种隐情，古拉格半真半假吧，死的一瞬间就光速陷害，这肯定是有预谋吧，小鬼还看了他一眼。 ...</blockquote>
+在那个位置出现一个敌方小鬼本来就离谱，肯定有内鬼。但硬要强行让黑骑诅咒背锅也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+何况北猎靠沙拉爹团结一直没事，突然沙拉爹被小鬼干掉，还瞬间陷害另一个大佬，你说这是你俩要商量好的？不如说干掉沙拉爹你俩合伙的吧，这谁信啊
+沙拉爹的出现也是个局，沙拉是怎么陷入快被围杀的场面的，估计也是被队友卖了。以至于要让沙拉爹救，本来剧本是沙拉父女一窝端，幸好老爹救了沙拉却被小鬼补刀。
+同时古拉格威胁你不是也有个孙女吗，不想跟沙拉一个下场就自觉背锅滚蛋。
+古拉格纯黑的，现在想骗孙女当炮灰，只能靠黎老师救了
+
