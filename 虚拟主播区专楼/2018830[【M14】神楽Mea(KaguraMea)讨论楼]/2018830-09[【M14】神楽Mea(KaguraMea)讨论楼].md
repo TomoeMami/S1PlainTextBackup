@@ -4742,3 +4742,13 @@ ai进化的真tm快啊……
 
 2023-2-18 00:36 上传
 
+
+*****
+
+####  JY要塞  
+##### 13414#       发表于 2023-2-18 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59791384&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2023-2-18 00:37</a>
+ai进化的真tm快啊……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大半夜的第一张吓到我了
+
