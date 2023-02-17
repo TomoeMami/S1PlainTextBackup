@@ -9546,3 +9546,16 @@ Q•E•D
 
 50抽没有，新卡再见
 
+
+*****
+
+####  保罗赫伯特  
+##### 5396#       发表于 2023-2-17 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59786873&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-2-17 19:01</a>
+
+新卡男人只抽了麻婆就直接把本命给他了
+
+结果这人几句话应付掉咕哒和小安打哑谜聊了半天 ...</blockquote>
+送了名贵手表，也算有心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
