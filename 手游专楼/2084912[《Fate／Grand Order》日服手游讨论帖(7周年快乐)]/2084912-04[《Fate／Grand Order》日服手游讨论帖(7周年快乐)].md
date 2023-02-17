@@ -9528,3 +9528,13 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 Q•E•D
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5394#       发表于 2023-2-17 19:01
+
+新卡男人只抽了麻婆就直接把本命给他了
+
+结果这人几句话应付掉咕哒和小安打哑谜聊了半天<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
