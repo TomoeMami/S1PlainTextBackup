@@ -2450,3 +2450,11 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 —— 来自 HUAWEI NOP-AN ...</blockquote>
 我玩了快4小时，不到半小时就退来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shabadadoo  
+##### 540#       发表于 2023-2-17 22:27
+
+早就习惯了358引擎的破烂图像，ps5帧数模式感觉很好，玩起来爽飞了
+
