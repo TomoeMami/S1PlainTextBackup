@@ -984,3 +984,30 @@ ios下载的话是切换到繁中服找app store吗
 鉴于月哥月嫂的稳定程度 估计她们那边就是两对另外的cp[f: ...</blockquote>
 百合前辈以前也看不出有，所以不好说<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不知道谁是31X这个倒霉备胎
 
+
+*****
+
+####  yuan96  
+##### 961#       发表于 2023-2-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777269&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-2-17 01:44</a>
+月歌暧昧的苍井和白河都有对她们抱有单箭头的人
+
+鉴于月哥月嫂的稳定程度 估计她们那边就是两对另外的cp[f: ...</blockquote>
+主要还是月歌这边太稳了。
+哪怕相对来说最暧昧的aoi，距离yuki的程度也太远了。
+根本就不像是一个赛道的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leitingkai  
+##### 962#       发表于 2023-2-17 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59781567&amp;ptid=2050204" target="_blank">yuan96 发表于 2023-2-17 12:33</a>
+主要还是月歌这边太稳了。
+哪怕相对来说最暧昧的aoi，距离yuki的程度也太远了。
+根本就不像是一个赛道的[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这游戏cp太多了
+但基本都是两两绑定的cp很少贵乱
+最贵乱的可能是可怜和东城，两个人能拉两对cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但本质还是纯爱
+
