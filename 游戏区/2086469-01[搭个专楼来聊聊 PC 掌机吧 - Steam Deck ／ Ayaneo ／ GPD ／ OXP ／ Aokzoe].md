@@ -104,3 +104,11 @@ GPD Win 4 512G 白色发货了。</blockquote>
 曾经我也是这么想的，直到我有了孩子对我来说pc掌机是带娃时的摸鱼神器 ...</blockquote>
 我非常有掌机需求，但是我不需要3A或者说大型游戏，这续航吃的住吗？带娃打游戏不被老婆骂吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bypass  
+##### 646#         楼主| 发表于 2023-2-17 12:16
+
+原价到付出一个 GPD WIN 4 白色 512G 吧，不纠结了，我继续用 Deck。昨天已经发货路上了。
+

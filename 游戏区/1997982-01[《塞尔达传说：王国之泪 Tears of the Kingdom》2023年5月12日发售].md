@@ -4733,3 +4733,11 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 然后pv2一出大师剑就给林克扔了（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lanyu_u  
+##### 1070#       发表于 2023-2-17 12:13
+
+最主要的资源管理要素不可能删的，但是应该会有优化吧，最起码背包格子多加点
+
