@@ -4959,3 +4959,25 @@ BOTW的剧情播片里塞尔达的鼻孔存在感有点强<img src="https://stat
 
 zeltik的新视频不错，那个绿色螺旋的不少分析细节还是第一次看到
 
+
+*****
+
+####  冷泉夜月  
+##### 1092#       发表于 2023-2-18 00:45
+
+ 本帖最后由 冷泉夜月 于 2023-2-18 00:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202302/18/004342dvjvovgmnxnxp7en.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230218_004325.jpg</strong> (588.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:43 上传
+
+大师之剑，腐朽。
+
+“在系列的最新作中，它的面貌将发生巨大的变化…”
+
+好耶！我心心念念的大师剑MKII<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
