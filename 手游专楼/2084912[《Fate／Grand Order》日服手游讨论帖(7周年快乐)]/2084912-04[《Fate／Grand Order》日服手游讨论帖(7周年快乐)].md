@@ -9278,3 +9278,25 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 解包不是之前被一个脑痰弄没了吗</blockquote>
 不同情况吧，一种是根据App更新的资料解包，就好像上次第七章的DATA LOST BATTLE就是这样解出来的。上次那个脑瘫是直接用工具将游戏没羽蛇神还没有解锁的动作直接解出来，之前的盖提亚和队长打蝙蝠侠的视频就是这样来的。
 
+
+*****
+
+####  alucardcz  
+##### 5373#       发表于 2023-2-17 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡面0分  技能是拐  除了缓充外没有亮点  
+
+*****
+
+####  里村紅葉  
+##### 5374#       发表于 2023-2-17 17:11
+
+70抽没出，停手了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 5375#       发表于 2023-2-17 17:11
+
+为什么猫头鹰后面几张卡面没了艹，不抽了
+

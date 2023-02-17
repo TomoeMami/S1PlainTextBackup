@@ -1600,3 +1600,15 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 哥哥是可以把摸到的东西“移动”，例如车牌上面的数字或者脸上面的五官，但是也就这样了，不能捏器官 ...</blockquote>
 所以能不能把自己的JB给摸到那里去，或者把别人的胸摸到自己身上呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰原狼  
+##### 147#       发表于 2023-2-17 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785272&amp;ptid=2114828" target="_blank">gary76 发表于 2023-2-17 16:57</a>
+所以能不能把自己的JB给摸到那里去，或者把别人的胸摸到自己身上呢 ...</blockquote>
+胸就是两块赘肉啊，从腰上挪它个二斤来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

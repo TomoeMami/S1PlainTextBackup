@@ -2304,3 +2304,11 @@ ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face
 
 我现在只有一个想法，微软放着EA不买买什么狗屁AB，赶紧把EA买了砍掉弱智Origin和EA app<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">我在steam上玩游戏还要被强制装个EA app也太恶心人了
 
+
+*****
+
+####  Leomai  
+##### 526#       发表于 2023-2-17 17:04
+
+昨晚ps5开帧数模式关掉动态模糊一切舒适，练了练和伞的弹反。正反馈爽的直轰脑门。今天一天上班都惦记着这感觉。人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
