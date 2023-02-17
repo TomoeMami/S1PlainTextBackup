@@ -9559,3 +9559,20 @@ Q•E•D
 结果这人几句话应付掉咕哒和小安打哑谜聊了半天 ...</blockquote>
 送了名贵手表，也算有心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 5397#       发表于 2023-2-17 19:41
+
+这破游戏今年真就不停调整我的下限啊，55发11连2宝，中间还歪了个三藏（盘子），今年除了麻婆80连搞了个1宝，其他几个5星人均150发往上，最近这一波歪率也快向隔壁某神看齐了，中一个，歪一个，这3个卡池已经歪了5个常驻了，0.8%仿佛是写着好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 5398#       发表于 2023-2-17 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这活动剧情也太沙雕了喷了好几次了，什么超大型羞耻play，女教皇这是要被刻在历史耻辱柱上的节奏啊，我猜还是卡莲假扮女教皇搞事，还把小安也拉上了当共犯
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

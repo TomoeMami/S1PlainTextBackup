@@ -14835,3 +14835,13 @@ FC一把赢了风真
 
 明天跟谁联动
 
+
+*****
+
+####  rs5621  
+##### 4368#       发表于 2023-2-17 19:37
+
+是空妈，很好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
