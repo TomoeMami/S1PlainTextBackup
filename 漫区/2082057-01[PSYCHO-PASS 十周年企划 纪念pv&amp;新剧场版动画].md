@@ -789,3 +789,14 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 感觉是最终作了
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 84#       发表于 2023-2-17 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59783893&amp;ptid=2082057" target="_blank">kisstv22 发表于 2023-2-17 15:25</a>
+
+感觉是最终作了</blockquote>
+按规划的话这肯定不是最终作，毕竟这部只补了PP3前传的坑，PP3后续的坑还有呢（如法斑当了局长、小朱当了法定执行官）。当然，关键还是要看资方的商业评估。
+

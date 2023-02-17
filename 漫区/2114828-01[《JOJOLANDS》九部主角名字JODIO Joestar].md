@@ -1589,3 +1589,14 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  gary76  
+##### 146#       发表于 2023-2-17 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777461&amp;ptid=2114828" target="_blank">久保由利香 发表于 2023-2-17 02:26</a>
+
+哥哥是可以把摸到的东西“移动”，例如车牌上面的数字或者脸上面的五官，但是也就这样了，不能捏器官 ...</blockquote>
+所以能不能把自己的JB给摸到那里去，或者把别人的胸摸到自己身上呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
