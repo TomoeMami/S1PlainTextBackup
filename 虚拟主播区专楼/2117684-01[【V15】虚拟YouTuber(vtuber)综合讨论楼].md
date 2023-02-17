@@ -2116,3 +2116,21 @@ vspo也自己开个store绕开第三方抽成
 <img src="https://p.sda1.dev/9/6bc6b8a9ec51204afd3c8ddfcc3e07fc/image.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/5bc87633f76ede668839f572317b238d/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  free  
+##### 137#       发表于 2023-2-17 16:50
+
+[https://twitter.com/cover_corp/status/1626479300424921088](https://twitter.com/cover_corp/status/1626479300424921088)
+
+【お知らせ】
+
+本日、カバー株式会社は东京证券取引所グロース市场への新规上场を承认されましたのでお知らせいたします。
+
+创业以来、ご支援ご高配を赐りました全てのステークホルダーの皆様に心より厚く御礼申し上げます。
+
+[https://cover-corp.com/news/detail/20230217_notice_c](https://cover-corp.com/news/detail/20230217_notice_c)
+
+2022财年营收136亿，利润18亿
+
