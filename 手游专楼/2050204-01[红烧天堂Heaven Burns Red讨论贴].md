@@ -1011,3 +1011,13 @@ ios下载的话是切换到繁中服找app store吗
 但基本都是两两绑定的cp很少贵乱
 最贵乱的可能是可怜和东城，两个人能拉两对cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但本质还是纯爱
 
+
+*****
+
+####  一里ぼっち  
+##### 963#       发表于 2023-2-17 13:47
+
+可怜和东城排列组合不应该可以拉四对cp吗(
+
+毛妹什么时候捅月歌, 我已经等不及了
+
