@@ -9613,3 +9613,19 @@ Q•E•D
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现2700DL有5个护符，换了丢进教皇池结果第一发雨神让我怀疑抽错池子了，然后五发下去无事发生……
 
+
+*****
+
+####  angelooo  
+##### 5403#       发表于 2023-2-17 20:33
+
+<blockquote>Jamaisvu 发表于 2023-2-17 19:49
+惊了，黄飞虎四个儿子在剧情里都有立绘和声音，这也太用心了吧
+
+（不过四人共用一个CV...）
+
+</blockquote>
+npc一个比一个用心，落地的……
+
+你游特别擅长挑战氪金母猪的极限
+

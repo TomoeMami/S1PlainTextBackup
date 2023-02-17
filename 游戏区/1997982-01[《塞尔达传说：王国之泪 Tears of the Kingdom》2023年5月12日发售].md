@@ -4836,3 +4836,23 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  jellyhero  
+##### 1080#       发表于 2023-2-17 20:33
+
+唉，武器就不说了，我希望如果国泪有换衣系统，请至少给我足够的衣服格子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  uanlice  
+##### 1081#       发表于 2023-2-17 20:36
+
+我对野炊后来杀完群怪一开宝箱是琥珀蛋白石不满，后来看一个推测还是什么。说最初宝石可能是初期需要对应宝石制作属性箭
+
+武器耐久倒是还行
+

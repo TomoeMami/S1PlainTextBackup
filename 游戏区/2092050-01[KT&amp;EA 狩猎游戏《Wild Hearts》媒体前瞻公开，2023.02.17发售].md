@@ -2412,3 +2412,16 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 —— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  千千千千鸟  
+##### 537#       发表于 2023-2-17 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787845&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 20:21</a>
+
+13900k+4070ti在1080分辨率下都会偶发掉帧，这代优化不能说特别差，只能说完全没有
+
+—— 来自 HUAWEI NO ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">忍受不了，退款了，等以后优化好了再买
+
