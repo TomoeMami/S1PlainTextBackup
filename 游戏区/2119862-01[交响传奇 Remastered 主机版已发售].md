@@ -752,3 +752,12 @@ NS版进沙漠地区后沙尘特效下疯狂拖慢掉帧（包括伊芙利特遗
 
 根本就是不合格移植吧
 
+
+*****
+
+####  JudgmentEye  
+##### 75#       发表于 2023-2-18 01:06
+
+pc中文coming soon
+[https://bbs.saraba1st.com/2b/thread-2120232-1-1.html](https://bbs.saraba1st.com/2b/thread-2120232-1-1.html)
+
