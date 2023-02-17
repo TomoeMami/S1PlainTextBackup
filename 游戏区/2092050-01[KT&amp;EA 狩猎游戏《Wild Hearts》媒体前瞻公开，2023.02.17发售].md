@@ -2172,3 +2172,21 @@ steam版会弹ea启动器吗？</blockquote>
 招式追踪性未免有些夸张了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大下砸用跳板躲，踩跳板有无敌帧，而且不短，平时回避的无敌帧也挺长的。可以用来躲猪牙横扫之类的招式
 
+
+*****
+
+####  laoz  
+##### 514#       发表于 2023-2-17 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777482&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 02:34</a>
+这大野猪也太强了，打了快三个小时也没打过去
+招式追踪性未免有些夸张了</blockquote>
+野猪蓄力冲和蓄力下砸的时候建个城墙给它撞就会倒地，其他招回避躲根据硬直大小上跳板登龙就完事
+
+*****
+
+####  刘震云  
+##### 515#       发表于 2023-2-17 09:49
+
+打不过的话推荐用弓箭，和其他武器难度不是一个等级的，地狱猿随便射射就过了，滑步无敌帧很长的，还可以连续滑步
+
