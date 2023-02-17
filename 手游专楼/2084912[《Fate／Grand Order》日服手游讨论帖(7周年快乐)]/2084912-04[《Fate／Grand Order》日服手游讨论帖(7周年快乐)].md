@@ -9641,3 +9641,11 @@ npc一个比一个用心，落地的……
 你游特别擅长挑战氪金母猪的极限</blockquote>
 NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 5405#       发表于 2023-2-17 20:58
+
+千利休的剧情不错，有搞笑有温馨。
+
