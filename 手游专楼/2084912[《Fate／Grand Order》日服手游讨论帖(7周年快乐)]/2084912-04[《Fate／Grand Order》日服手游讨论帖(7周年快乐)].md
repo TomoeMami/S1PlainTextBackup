@@ -9576,3 +9576,24 @@ Q•E•D
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Jamaisvu  
+##### 5399#       发表于 2023-2-17 19:49
+
+ 本帖最后由 Jamaisvu 于 2023-2-17 19:52 编辑 
+
+惊了，黄飞虎四个儿子在剧情里都有立绘和声音，这也太用心了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+（不过四人共用一个CV...）
+
+*****
+
+####  fantuanxiaoyi  
+##### 5400#       发表于 2023-2-17 19:50
+
+早上付费石单抽一个大姐姐二宝，下午十连出了，但是真的好弱又难看。。。
+
+另一个意义上很配樱11.......
+
