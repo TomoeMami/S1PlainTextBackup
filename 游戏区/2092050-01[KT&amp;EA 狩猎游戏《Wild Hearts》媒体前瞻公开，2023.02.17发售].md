@@ -2511,3 +2511,14 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 显卡驱动更新了吗？我5700X+3080在2K全高能稳定60帧</blockquote>
 2月8号的驱动吗？更了
 
+
+*****
+
+####  andychen  
+##### 546#       发表于 2023-2-18 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59791091&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-18 00:08</a>
+
+2月8号的驱动吗？更了</blockquote>
+看了下我也是这个版本，那搞不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
