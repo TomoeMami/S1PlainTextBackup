@@ -972,3 +972,15 @@ ios下载的话是切换到繁中服找app store吗
 
 所以这个游戏根本就不是让玩家看月歌视角开百合后宫的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">连伪后宫都算不上 纯爱的一笔
 
+
+*****
+
+####  poor  
+##### 960#       发表于 2023-2-17 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777269&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-2-17 01:44</a>
+月歌暧昧的苍井和白河都有对她们抱有单箭头的人
+
+鉴于月哥月嫂的稳定程度 估计她们那边就是两对另外的cp[f: ...</blockquote>
+百合前辈以前也看不出有，所以不好说<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不知道谁是31X这个倒霉备胎
+
