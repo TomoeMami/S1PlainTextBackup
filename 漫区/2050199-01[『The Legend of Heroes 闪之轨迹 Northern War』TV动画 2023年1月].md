@@ -6154,3 +6154,11 @@ B站港澳台：
 
 怎么后面还有基尔巴特的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  戏言卿  
+##### 683#       发表于 2023-2-17 23:06
+
+没想到基神都能出场，该不会主角团最后打基神吧？反正其他5个都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

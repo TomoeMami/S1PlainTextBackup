@@ -4909,3 +4909,32 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄昏原版钱袋满了会把钱放回宝箱才牛逼 舔迷宫人大敌
 
+
+*****
+
+####  forzen  
+##### 1087#       发表于 2023-2-17 23:02
+
+BOTW的剧情播片里塞尔达的鼻孔存在感有点强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jellyhero  
+##### 1088#       发表于 2023-2-17 23:07
+
+老塞尔达不止做半天给你二十块钱打发你，你捡多了钱包还会爆呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+比起来野炊真是通货膨胀，三千块在其他塞尔达是巨款，在野炊根本杯水车薪，老任自己还了个支线吐槽，好像是叫勇者的私房钱吧
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  冷泉夜月  
+##### 1089#       发表于 2023-2-17 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790369&amp;ptid=1997982" target="_blank">jellyhero 发表于 2023-02-17 23:07:25</a>
+老塞尔达不止做半天给你二十块钱打发你，你捡多了钱包还会爆呢 v2.5.4</blockquote>勇者的私房钱就一个金卢比，价值300，穷得一批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

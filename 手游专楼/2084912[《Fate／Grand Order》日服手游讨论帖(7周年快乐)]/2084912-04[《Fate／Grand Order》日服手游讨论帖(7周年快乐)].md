@@ -9726,3 +9726,13 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次连个强化本都没有么
 
+
+*****
+
+####  千叶铁矢  
+##### 5414#       发表于 2023-2-17 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790042&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-17 22:38</a>
+第一天玩废狗？新素材怎&amp;#x ...</blockquote>
+是...是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能我没怎么养过新从者
+
