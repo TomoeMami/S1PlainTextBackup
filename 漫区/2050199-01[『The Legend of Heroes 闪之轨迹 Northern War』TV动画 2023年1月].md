@@ -6185,3 +6185,13 @@ B站港澳台：
 
 罗根说的不忍对小鬼下手也是见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，这种你死我活的时刻哪还讲究这玩意，最起码也是抓起来先
 
+
+*****
+
+####  酷乐  
+##### 687#       发表于 2023-2-18 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790930&amp;ptid=2050199" target="_blank">aptx8285144 发表于 2023-2-17 23:54</a>
+这话气氛渲染和剧情推进到是很不错，但是回忆杀英雄是怎么死的感觉有些奇怪呀，这冲突的背景是啥？感觉没看 ...</blockquote>
+1198年8月22日，埃雷波尼亚帝国亚拉贡矿山附近受贵族雇佣的北方猎兵与尼德霍格发生战斗，战役中，北方猎兵的领导者巴雷斯坦上校阵亡。
+

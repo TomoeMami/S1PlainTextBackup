@@ -2488,3 +2488,26 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 主线过半，不知道是光荣这次克制了粒子效果的使用还是搞定了粒子效果，本作显卡温度明显低于仁王2和最终幻 ...</blockquote>
 是垃圾优化，PC上吃不满硬件
 
+
+*****
+
+####  andychen  
+##### 544#       发表于 2023-2-18 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787845&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 20:21</a>
+
+13900k+4070ti在1080分辨率下都会偶发掉帧，这代优化不能说特别差，只能说完全没有
+
+—— 来自 HUAWEI NO ...</blockquote>
+显卡驱动更新了吗？我5700X+3080在2K全高能稳定60帧
+
+*****
+
+####  半江瑟瑟半江红  
+##### 545#       发表于 2023-2-18 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59791003&amp;ptid=2092050" target="_blank">andychen 发表于 2023-2-18 00:01</a>
+
+显卡驱动更新了吗？我5700X+3080在2K全高能稳定60帧</blockquote>
+2月8号的驱动吗？更了
+
