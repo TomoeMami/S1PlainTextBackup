@@ -2053,3 +2053,11 @@ Incorporates 3rd-party DRM: EA online activation and EA app software installatio
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火红之眼  
+##### 505#       发表于 2023-2-17 07:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，这游戏还是得组队才安全点，boss怒后基本是二三手连着来，还挺难找空子
+
