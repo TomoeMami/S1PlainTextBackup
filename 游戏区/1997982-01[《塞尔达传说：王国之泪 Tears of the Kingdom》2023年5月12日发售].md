@@ -4714,3 +4714,22 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  hu794  
+##### 1068#       发表于 2023-2-17 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59780585&amp;ptid=1997982" target="_blank">时之放浪者 发表于 2023-2-17 11:34</a>
+野炊这种武器破损随拿随用，也是基于他战斗系统整个设计都比较简洁。换武器成本很低。如果老头环做成武器 ...</blockquote>
+肯定不可能是一键制作，应该是直接在地图上制作，最新的pv里面是用这种能力的时候出现了坐标轴，明显就是方便地图上直接定位制作的。
+
+*****
+
+####  Adif  
+##### 1069#       发表于 2023-2-17 12:11
+
+ 本帖最后由 Adif 于 2023-2-17 12:12 编辑 
+
+然后pv2一出大师剑就给林克扔了（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

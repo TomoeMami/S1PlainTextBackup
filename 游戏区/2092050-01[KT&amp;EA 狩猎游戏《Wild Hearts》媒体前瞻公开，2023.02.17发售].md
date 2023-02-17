@@ -2250,3 +2250,12 @@ steam版会弹ea启动器吗？</blockquote>
 
   弓箭这个曲射箭雨的瞄准逻辑居然还是反转的，无双组你们还活在做352和353的时候吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanhan0410  
+##### 521#       发表于 2023-2-17 12:13
+
+昨天和朋友联机玩了两个小时
+就感觉新手指引做的真是一炮污<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

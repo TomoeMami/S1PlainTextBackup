@@ -94,3 +94,13 @@ GPD Win 4 512G 白色发货了。</blockquote>
 不知道为什么要在掌机上玩3A，感觉这类型产品有点类似手机的倾向？</blockquote>
 曾经我也是这么想的，直到我有了孩子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对我来说pc掌机是带娃时的摸鱼神器
 
+
+*****
+
+####  zxlice  
+##### 645#       发表于 2023-2-17 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59779137&amp;ptid=2086469" target="_blank">zyf199212 发表于 2023-2-17 10:04</a>
+曾经我也是这么想的，直到我有了孩子对我来说pc掌机是带娃时的摸鱼神器 ...</blockquote>
+我非常有掌机需求，但是我不需要3A或者说大型游戏，这续航吃的住吗？带娃打游戏不被老婆骂吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
