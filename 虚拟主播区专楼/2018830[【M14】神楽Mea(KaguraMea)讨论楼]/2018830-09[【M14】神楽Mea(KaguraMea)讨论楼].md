@@ -4642,3 +4642,37 @@ do not force yourself
 
 这女人真好啊啊啊啊啊啊啊啊啊
 
+
+*****
+
+####  古战场亡魂  
+##### 13411#       发表于 2023-2-17 18:42
+
+看了同好会的转发才发现现在ai绘画已经进化到这种地步了。随便整了点。那位发的lora模型没有想象中好用，还得加上我之前提取的模型才行。
+
+手不知道哪年能一步到位啊。
+
+<img src="https://img.saraba1st.com/forum/202302/17/184033cfh72idf7puedgfu.png" referrerpolicy="no-referrer">
+
+<strong>03190-20230217183327.png</strong> (53.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 18:40 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/184033vaeyqvmavtab11ah.png" referrerpolicy="no-referrer">
+
+<strong>03204-20230217183644.png</strong> (58.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 18:40 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/184033mrrhrpueoipwqqwe.png" referrerpolicy="no-referrer">
+
+<strong>03209-20230217183858.png</strong> (71.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 18:40 上传
+
