@@ -4951,3 +4951,11 @@ BOTW的剧情播片里塞尔达的鼻孔存在感有点强<img src="https://stat
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 一万年，通货膨胀很正常<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otjuly  
+##### 1091#       发表于 2023-2-18 00:39
+
+zeltik的新视频不错，那个绿色螺旋的不少分析细节还是第一次看到
+

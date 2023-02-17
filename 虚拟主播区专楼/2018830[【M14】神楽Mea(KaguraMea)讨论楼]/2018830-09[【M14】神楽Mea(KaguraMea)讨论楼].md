@@ -4686,3 +4686,59 @@ do not force yourself
 看了同好会的转发才发现现在ai绘画已经进化到这种地步了。随便整了点。那位发的lora模型没有想象中好用，还 ...</blockquote>
 扣扣发我，正好拿来当封面摆烂
 
+
+*****
+
+####  古战场亡魂  
+##### 13413#       发表于 2023-2-18 00:37
+
+ai进化的真tm快啊……
+
+<img src="https://img.saraba1st.com/forum/202302/18/002735ut8sctaq8fss4tac.jpg" referrerpolicy="no-referrer">
+
+<strong>u=659507562,427628863&amp;amp;fm=253&amp;amp;fmt=auto&amp;amp;app=138&amp;amp;f=JPEG.webp.jpg</strong> (27.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/002850vqye4u64tx1x1e41.png" referrerpolicy="no-referrer">
+
+<strong>00007-1259543685.png</strong> (52.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/003434smmggw8f7g27vw76.jpg" referrerpolicy="no-referrer">
+
+<strong>au5643823.jpg</strong> (96.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/003458q5d555rmt5656g5m.png" referrerpolicy="no-referrer">
+
+<strong>00013-2987765873.png</strong> (85.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/003635gfxz95t27xlgv98y.jpg" referrerpolicy="no-referrer">
+
+<strong>u=4034482006,2727750444&amp;amp;fm=253&amp;amp;fmt=auto&amp;amp;app=138&amp;amp;f=JPEG.webp.jpg</strong> (33.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:36 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/003649qeloawe00c733a7o.png" referrerpolicy="no-referrer">
+
+<strong>00014-404393378.png</strong> (59.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 00:36 上传
+
