@@ -1654,3 +1654,16 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那对于荒木来说钱不单纯只是我们社会生活中一般意义上某种用于交换的一般等价物。这点七八部以及这话对于“钱”为何物的思考都很明白的表述了。
 
+
+*****
+
+####  pokemon最爱  
+##### 152#       发表于 2023-2-17 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59783875&amp;ptid=2114828" target="_blank">gpx234mqx 发表于 2023-2-17 15:24</a>
+
+乔瑟夫不努力，乔屌也不是富三代啊
+
+不然像仗助一样躺着就能继承纽约不动产王三分之一的遗产，还努力个屁 ...</blockquote>
+主要我怀疑这钻石是东方家的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
