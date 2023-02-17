@@ -930,3 +930,24 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 我相信会 ...</blockquote>
 马车夫、黄包车车夫也砸过小汽车，还不是该怎样就怎样
 
+
+*****
+
+####  价值十块钱  
+##### 82#       发表于 2023-2-17 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778640&amp;ptid=2119872" target="_blank">nvis 发表于 2023-2-17 09:23</a>
+所以我才说你在行业里白呆了，别说那些使用厨具模组或者直接上三四轴臂的中高级货，就算是最常见的搅拌桶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你认真回个杠精干什么 
+他的回复完全外行 都只是从网上道听途说的观念罢了
+
+*****
+
+####  价值十块钱  
+##### 83#       发表于 2023-2-17 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778640&amp;ptid=2119872" target="_blank">nvis 发表于 2023-2-17 09:23</a>
+所以我才说你在行业里白呆了，别说那些使用厨具模组或者直接上三四轴臂的中高级货，就算是最常见的搅拌桶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">一直很期待无人化餐厅 
+最理想化的程度只有一个入料口和出餐口 控制好出入口就能避免老鼠小强的污染问题了吧
+
