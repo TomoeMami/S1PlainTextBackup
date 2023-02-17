@@ -1360,3 +1360,28 @@ jodio 替身十一月的雨 替身的下面会下雨 雨滴似乎质量很高 �
 jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么样 毕竟从他的替身来看 想自己捏胸还是捏jb都 ...</blockquote>
 看来是男➡️女了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">镜像安娜苏
 
+
+*****
+
+####  哈扎马  
+##### 124#       发表于 2023-2-17 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777428&amp;ptid=2114828" target="_blank">久保由利香 发表于 2023-2-17 02:17</a>
+
+就是男的，打了丰胸的东西，荷尔蒙不知道有没有了，药娘主角
+
+两兄弟在帮mechanism干活，这次的组织就叫mech ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">之前非黄漫的商业漫画有出现过药娘主角吗？
+
+*****
+
+####  gpx234mqx  
+##### 125#         楼主| 发表于 2023-2-17 08:17
+
+ 本帖最后由 gpx234mqx 于 2023-2-17 08:19 编辑 
+<blockquote>哈扎马 发表于 2023-2-17 08:13
+之前非黄漫的商业漫画有出现过药娘主角吗？</blockquote>
+黄本这个题材是叫男姐吧
+
+都是弟弟上哥哥
+
