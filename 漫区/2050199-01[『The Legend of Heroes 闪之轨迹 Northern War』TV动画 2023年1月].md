@@ -6093,3 +6093,11 @@ ED最后有变化。
 B站港澳台：
 [https://www.bilibili.com/bangumi/play/ep722000](https://www.bilibili.com/bangumi/play/ep722000)
 
+
+*****
+
+####  Aeons  
+##### 679#       发表于 2023-2-17 22:00
+
+哦牛批原来还有这种隐情，古拉格半真半假吧，死的一瞬间就光速陷害，这肯定是有预谋吧，小鬼还看了他一眼。
+

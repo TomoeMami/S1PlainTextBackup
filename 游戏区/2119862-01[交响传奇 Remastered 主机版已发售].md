@@ -695,3 +695,25 @@ V的高清版做了三年，而且v移植那个初版我记得还是有点问题
 
     tox12十周年屁都没有   富泽牛逼！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JudgmentEye  
+##### 69#       发表于 2023-2-17 21:59
+
+ns有中文了
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+*****
+
+####  JudgmentEye  
+##### 70#       发表于 2023-2-17 22:02
+
+<blockquote>引用第33楼exiaexa于2023-02-16 11:26发表的  :
+
+我比较好奇，SBGI是把TOX12和TOG的代码搞丢了吗宁可往死里薅TOS也不移植这两代</blockquote>
+我猜是懒得写代码适配，tos当年ngc-ps2时候已经改过一回代码了，后来都是照抄到ps3/pc/ps4
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
