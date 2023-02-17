@@ -9605,3 +9605,11 @@ Q•E•D
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水伊吹的剧情好色
 
+
+*****
+
+####  霧谷藤乃  
+##### 5402#       发表于 2023-2-17 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现2700DL有5个护符，换了丢进教皇池结果第一发雨神让我怀疑抽错池子了，然后五发下去无事发生……
+
