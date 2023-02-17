@@ -1550,3 +1550,13 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 
 这钻石别偷到自家人身上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  katern  
+##### 142#       发表于 2023-2-17 14:22
+
+看了第一话，这乔迪奥性格怎么有点像上班族啊，而且熟读《定位》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是有点兄控，爱了
+
