@@ -2221,3 +2221,24 @@ steam版会弹ea启动器吗？</blockquote>
 
 —— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laoz  
+##### 519#       发表于 2023-2-17 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59779150&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 10:05</a>
+
+城墙是哪一项？我就跟着系统qte造了一回墙，平时按lb能造的只有箱子和跳板两个东西
+
+—— 来自 HUAWEI NO ...</blockquote>
+堆6个箱子
+
+<img src="https://img.saraba1st.com/forum/202302/17/101434ayh9x9ppsyurooiy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (251.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 10:14 上传
+
