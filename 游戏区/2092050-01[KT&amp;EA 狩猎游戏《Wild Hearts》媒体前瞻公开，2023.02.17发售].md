@@ -2190,3 +2190,22 @@ steam版会弹ea启动器吗？</blockquote>
 
 打不过的话推荐用弓箭，和其他武器难度不是一个等级的，地狱猿随便射射就过了，滑步无敌帧很长的，还可以连续滑步
 
+
+*****
+
+####  415452356  
+##### 516#       发表于 2023-2-17 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778794&amp;ptid=2092050" target="_blank">laoz 发表于 2023-2-17 09:37</a>
+炼狱猴要多用跳板重攻击冲回去蹭刀，有大点的硬直就上跳台登龙，我用太刀顶着掉帧打了17分钟打掉的 ...</blockquote>
+  和当年泰坦陨落7一样，程序写的垃圾连显卡一半的性能都发挥不出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightmare902015  
+##### 517#       发表于 2023-2-17 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">天照守这什么鸟，这一战的设计有什么道理吗，非要在村里地图换个滤镜打？没有野外的补给，机巧天弦全靠上身掏？这上身的手感做的又一坨屎，还各种破地形卡住十万火急的时候显示不能建造，哇真的坐大牢啊
+
