@@ -2089,3 +2089,86 @@ Incorporates 3rd-party DRM: EA online activation and EA app software installatio
 
 好玩得要死，就是能不能别闪退了()
 
+
+*****
+
+####  EndlessDied  
+##### 509#       发表于 2023-2-17 09:33
+
+果然这破游戏最大的风险是EA
+
+EAapp怎么不去死一下啊亲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+运行方面我这2060的卡2k中高60帧稳定还行，画面也没明显的大问题
+
+但是他妈的EAapp把我恶心坏了
+
+云存档走的是EAapp可真是天才，上传失败下载失败，每次失败弹个框
+
+然后存档压根传不到SD上，想着在SD上试一下结果点进去没有存档
+
+————
+
+中间插入一下
+
+SD上也要装一轮EAapp，然后启动的时候SD上的EAapp会和PC上的EAapp抢登录
+
+然后SD启动的时候PC弹窗，你不在PC上点那个确定SD就一直黑屏
+
+简直服气
+
+————
+
+嗯，没存档就没存档吧，SD反正有网也可以直接和PC云
+
+然后启动流式传输，然后PC那边启动
+
+然后EAapp又他妈弹云存档的窗，不在PC上面按确定又启动不了
+
+最后在手机上下了个TeamViewer远程点确定才解决
+
+然后EAapp我找了半天没找到云存档在哪关——直接导致我甚至不敢手动拷存档
+
+然后EAapp我给他进离线模式，游戏直接无法启动（EAapp报错）
+
+这傻逼玩意是怎么设计出来的？
+
+*****
+
+####  415452356  
+##### 510#       发表于 2023-2-17 09:36
+
+  弓箭这个输出循环简单无脑啊，但是闪避很膈应
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  laoz  
+##### 511#       发表于 2023-2-17 09:37
+
+炼狱猴要多用跳板重攻击冲回去蹭刀，有大点的硬直就上跳台登龙，<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我用太刀顶着掉帧打了17分钟打掉的，打的过程细看了一下这破岛的画面还不如曙光，曙光都能4k144，这垃圾画面竟然会掉到个位数
+
+*****
+
+####  EndlessDied  
+##### 512#       发表于 2023-2-17 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59776582&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-17 00:11</a>
+
+steam版会弹ea启动器吗？</blockquote>
+不仅弹EA，云存档还走的EA，还没法关（hetui）
+
+*****
+
+####  欠雷  
+##### 513#       发表于 2023-2-17 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59777482&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 02:34</a>
+
+这大野猪也太强了，打了快三个小时也没打过去
+
+招式追踪性未免有些夸张了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大下砸用跳板躲，踩跳板有无敌帧，而且不短，平时回避的无敌帧也挺长的。可以用来躲猪牙横扫之类的招式
+
