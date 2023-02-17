@@ -4818,3 +4818,21 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 亚马逊周一就把amiibo上架但一直没开预售，我刚刚跑去看了一眼，一群人真的从周一刷到周五，纷纷抱怨比定典藏版还折磨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tidus_zl  
+##### 1078#       发表于 2023-2-17 20:02
+
+单说野炊里武器有耐久我是喜欢的，我把身上的武器打坏了才拿下敌人的营地，营地的宝箱给我一把更好的武器就是一种奖励机制。后期为什么不如前期就是因为背包格子多了武器多了，我看到敌人的营地，野外藏土里的宝箱都懒的拿，就是因为没有动力了。
+
+*****
+
+####  冷泉夜月  
+##### 1079#       发表于 2023-2-17 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787492&amp;ptid=1997982" target="_blank">tidus_zl 发表于 2023-02-17 20:02:10</a>
+单说野炊里武器有耐久我是喜欢的，我把身上的武器打坏了才拿下敌人的营地，营地的宝箱给我一把更好的武器就 ...</blockquote>而且后期可能打完营地捡到也是辣鸡武器，收入不如支出<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

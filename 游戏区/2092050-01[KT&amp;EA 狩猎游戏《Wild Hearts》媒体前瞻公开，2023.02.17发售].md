@@ -2388,3 +2388,13 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  千千千千鸟  
+##### 535#       发表于 2023-2-17 20:12
+
+再怎么样1070+6700k，打起来十几帧也太过分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
