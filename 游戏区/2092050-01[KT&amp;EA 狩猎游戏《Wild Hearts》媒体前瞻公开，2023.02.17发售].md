@@ -2477,3 +2477,14 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 主线过半，不知道是光荣这次克制了粒子效果的使用还是搞定了粒子效果，本作显卡温度明显低于仁王2和最终幻想起源。
 
+
+*****
+
+####  andychen  
+##### 543#       发表于 2023-2-18 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790881&amp;ptid=2092050" target="_blank">bm7号 发表于 2023-2-17 23:49</a>
+
+主线过半，不知道是光荣这次克制了粒子效果的使用还是搞定了粒子效果，本作显卡温度明显低于仁王2和最终幻 ...</blockquote>
+是垃圾优化，PC上吃不满硬件
+

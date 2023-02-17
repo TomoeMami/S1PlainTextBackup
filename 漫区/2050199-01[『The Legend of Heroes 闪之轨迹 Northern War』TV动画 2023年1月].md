@@ -6170,3 +6170,18 @@ B站港澳台：
 
 竟然补充游戏剧情了
 
+
+*****
+
+####  aptx8285144  
+##### 685#       发表于 2023-2-17 23:54
+
+这话气氛渲染和剧情推进到是很不错，但是回忆杀英雄是怎么死的感觉有些奇怪呀，这冲突的背景是啥？感觉没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 686#       发表于 2023-2-17 23:59
+
+罗根说的不忍对小鬼下手也是见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，这种你死我活的时刻哪还讲究这玩意，最起码也是抓起来先
+
