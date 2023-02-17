@@ -4938,3 +4938,16 @@ BOTW的剧情播片里塞尔达的鼻孔存在感有点强<img src="https://stat
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1090#       发表于 2023-2-17 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790404&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-17 23:10</a>
+
+勇者的私房钱就一个金卢比，价值300，穷得一批
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+一万年，通货膨胀很正常<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

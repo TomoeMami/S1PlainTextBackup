@@ -3173,3 +3173,46 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 虹四格制作很早，所以应该只是巧合。
 制作组想玩的是海爷梗。
 
+
+*****
+
+####  仟音一心  
+##### 7046#       发表于 2023-2-17 23:30
+
+ミヤコヒト07原作前半
+
+第7话「岚珠和鬼牌」
+
+虹之咲字幕组
+
+翻译：潮风
+
+嵌字：crusader 
+
+<img src="https://img.saraba1st.com/forum/202302/17/233030rv484ij0t8z09iua.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BF3E50AD-4560-40ED-B983-E97B6E82CE61.jpeg</strong> (603.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-17 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/233034nr09hpvl570dv9cl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FF832610-22D9-426F-B3B3-67C1A904E654.jpeg</strong> (373.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-17 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202302/17/233037wtotik0h6td5x5pp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>243FFBFF-9A9B-464C-8ED7-64CA8A612BB4.jpeg</strong> (142.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-17 23:30 上传
+
