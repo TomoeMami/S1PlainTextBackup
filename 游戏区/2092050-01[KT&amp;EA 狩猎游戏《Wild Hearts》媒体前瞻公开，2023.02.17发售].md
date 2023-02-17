@@ -2398,3 +2398,17 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 —— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 536#       发表于 2023-2-17 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787641&amp;ptid=2092050" target="_blank">千千千千鸟 发表于 2023-2-17 20:12</a>
+再怎么样1070+6700k，打起来十几帧也太过分了吧
+
+—— 来自 vivo V2227A, Android 13上的 S1Next-鹅 ...</blockquote>
+13900k+4070ti在1080分辨率下都会偶发掉帧，这代优化不能说特别差，只能说完全没有
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
