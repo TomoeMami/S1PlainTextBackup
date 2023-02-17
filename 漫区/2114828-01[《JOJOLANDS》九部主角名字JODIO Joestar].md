@@ -1705,3 +1705,15 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 为啥几乎完全没见到有人讨论主角替身能力，十一月雨好像是第一次主角掏替身了但是没解释能力的，茸总第一次 ...</blockquote>
 第一话所有替身都没有解释  现在感觉也挺难讨论的 信息量不是很足
 
+
+*****
+
+####  アトラクナクア  
+##### 157#       发表于 2023-2-17 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785697&amp;ptid=2114828" target="_blank">鹿叔叔 发表于 2023-2-17 17:27</a>
+
+就因为阶级固化所以只能通过歪路子发达啊</blockquote>
+
+看来是的<img src="https://static.saraba1st.com/image/smiley/animal2017/026.png" referrerpolicy="no-referrer"> 
+
