@@ -2328,3 +2328,32 @@ ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face
 
 没有ps5，羡慕了
 
+
+*****
+
+####  阿露酱  
+##### 529#       发表于 2023-2-17 17:33
+
+冰狼居然是五星怪.
+
+天守阁里被打傻了.
+
+武器都没做.单刷打的痛苦死了
+
+*****
+
+####  Dunphy  
+##### 530#       发表于 2023-2-17 17:36
+
+想问下能跨平台联机吗
+
+*****
+
+####  andychen  
+##### 531#       发表于 2023-2-17 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778794&amp;ptid=2092050" target="_blank">laoz 发表于 2023-2-17 09:37</a>
+
+炼狱猴要多用跳板重攻击冲回去蹭刀，有大点的硬直就上跳台登龙，我用太刀顶着掉帧打了17分钟打掉的 ...</blockquote>
+太刀趁早扔了，后面的武器一个比一个猛
+
