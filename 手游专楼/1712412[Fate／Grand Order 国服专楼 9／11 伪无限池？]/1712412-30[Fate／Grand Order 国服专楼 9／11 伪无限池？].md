@@ -58,3 +58,11 @@ O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">很好，直接攒石摸一摸RBA完事了
 
+
+*****
+
+####  azccc52  
+##### 44159#       发表于 2023-2-17 17:31
+
+日服情人节也出了吧，问一下好哥哥们，国服目前到日服进度的ml角色有哪些？提前感谢解答
+

@@ -1612,3 +1612,14 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  鹿叔叔  
+##### 148#       发表于 2023-2-17 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59341591&amp;ptid=2114828" target="_blank">アトラクナクア 发表于 2023-1-14 06:11</a>
+
+老妖时代变了，阶级固化躺平的时代看这种大纲就下头，歌颂黄金精神还能有些共感，发财关我个韭菜屁事[f:037 ...</blockquote>
+就因为阶级固化所以只能通过歪路子发达啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

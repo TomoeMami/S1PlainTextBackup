@@ -2320,3 +2320,11 @@ ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face
 
 这作的难度意外的高啊，地狱猴和冰狼两个升星主线怪都不好打，攻击频率太高了我变形棍根本不敢变形攒槽，好不容易攒半管换区了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxlice  
+##### 528#       发表于 2023-2-17 17:25
+
+没有ps5，羡慕了
+
