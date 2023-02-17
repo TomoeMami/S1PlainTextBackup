@@ -2259,3 +2259,11 @@ steam版会弹ea启动器吗？</blockquote>
 昨天和朋友联机玩了两个小时
 就感觉新手指引做的真是一炮污<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aha  
+##### 522#       发表于 2023-2-17 13:18
+
+打出飞燕刀了，果然很强，给崛起双刀的搓背比起来更安全，而且也可以单点爆破伤害（方块键），空中的攻击可以用跳取消。
+
