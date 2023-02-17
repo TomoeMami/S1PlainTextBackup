@@ -1398,3 +1398,31 @@ jodio说是哥哥 胸是注射起来的 警察有摸到jb 但也不好说怎么�
 两兄弟在帮mechanism干活，这次的组织就叫mech ...</blockquote>
 想上面说的，很GTA
 
+
+*****
+
+####  gpx234mqx  
+##### 127#         楼主| 发表于 2023-2-17 08:34
+
+推上哥哥的称呼叫 ドラゴナ兄さん
+
+*****
+
+####  ads147147  
+##### 128#       发表于 2023-2-17 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">荒木还是实现了过去在安娜苏上没实现的梦想，超越性别的角色。
+
+又黑又t又爱吃西瓜，什么buff叠满了，不愧是日本人。
+
+*****
+
+####  久保由利香  
+##### 129#       发表于 2023-2-17 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778192&amp;ptid=2114828" target="_blank">ads147147 发表于 2023-2-17 08:37</a>
+荒木还是实现了过去在安娜苏上没实现的梦想，超越性别的角色。
+
+又黑又t又爱吃西瓜，什么buff叠满了 ...</blockquote>
+黑应该是美黑或者晒黑了，吃西瓜是为了保持身材，看鼻子就不像黑人
+
