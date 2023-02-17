@@ -9629,3 +9629,15 @@ npc一个比一个用心，落地的……
 
 你游特别擅长挑战氪金母猪的极限
 
+
+*****
+
+####  khxooo  
+##### 5404#       发表于 2023-2-17 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59788047&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-2-17 20:33</a>
+npc一个比一个用心，落地的……
+
+你游特别擅长挑战氪金母猪的极限</blockquote>
+NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
