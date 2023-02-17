@@ -4879,3 +4879,14 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 更惨的是，钱包满了....卢比白拿了
 
+
+*****
+
+####  Zhangsmallquan  
+##### 1084#       发表于 2023-2-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59789060&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-17 21:31</a>
+
+老塞尔达的宝箱里也没啥好东西啊，经常5卢比10卢比50卢比敷衍你……特别老塞尔达也没啥花钱的地方，我印象 ...</blockquote>
+说到花钱，黄昏那个黄金甲挺有意思，本身购买流程就超花钱，穿上去打试炼能扣很多钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
