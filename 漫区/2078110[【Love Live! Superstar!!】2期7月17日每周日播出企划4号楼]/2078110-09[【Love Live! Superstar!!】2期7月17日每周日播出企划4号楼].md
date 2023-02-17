@@ -2656,3 +2656,17 @@ nagio这张反倒没有平时美
 
 我这木头耳朵觉得加上“可可”这一条件后鱼并不适合唱太激昂的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，比如无尽赛道，尽管鱼确实唱的很顶。像小圆OP、天降二期OP、俺妹OP这类感觉挺合适的。
 
+
+*****
+
+####  优妮可  
+##### 12265#       发表于 2023-2-17 11:13
+
+<img src="https://img.saraba1st.com/forum/202302/17/111333rycr9hyhyycmjc54.jpg" referrerpolicy="no-referrer">
+
+<strong>20230217_111138.jpg</strong> (303.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-17 11:13 上传
+
