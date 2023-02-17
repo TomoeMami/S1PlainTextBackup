@@ -2437,3 +2437,16 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 —— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  千千千千鸟  
+##### 539#       发表于 2023-2-17 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59788340&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-17 20:49</a>
+
+这次优化太拉垮了，以至于steam放宽了退款条件，玩三个小时申请退款都有成功的
+
+—— 来自 HUAWEI NOP-AN ...</blockquote>
+我玩了快4小时，不到半小时就退来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

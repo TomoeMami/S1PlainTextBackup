@@ -9660,3 +9660,25 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 我第一个十连也是跳了个5宝雨神，把我看懵了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5407#       发表于 2023-2-17 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59788640&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-17 21:09</a>
+
+我第一个十连也是跳了个5宝雨神，把我看懵了</blockquote>
+都市爱你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+移民墨西哥吧
+
+*****
+
+####  khxooo  
+##### 5408#       发表于 2023-2-17 21:32
+
+烟雾镜：地球姬我CNM
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
