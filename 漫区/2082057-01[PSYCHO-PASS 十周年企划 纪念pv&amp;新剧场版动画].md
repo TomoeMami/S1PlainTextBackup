@@ -766,3 +766,11 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 目前pv来说大几率是朱的案件（涉及灼爹死亡？）导致call去了外务省
 
+
+*****
+
+####  lvseqiji  
+##### 81#       发表于 2023-2-17 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放弃看剧情了，就看看ntxl
+
