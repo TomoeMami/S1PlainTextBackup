@@ -9765,3 +9765,11 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 算了算新增的巧克力，也就多了10多个，对自己的非洲程度有了新的认识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 5418#       发表于 2023-2-18 02:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雨神这直接送钥匙也太重了
+

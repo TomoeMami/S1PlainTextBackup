@@ -2522,3 +2522,11 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 2月8号的驱动吗？更了</blockquote>
 看了下我也是这个版本，那搞不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  船见  
+##### 547#       发表于 2023-2-18 05:30
+
+12400+6750xt 2k全高稳60，显卡吃满cpu吃一半，非常的神秘，不看论坛都不知道优化血崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
