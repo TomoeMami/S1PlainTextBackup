@@ -9649,3 +9649,14 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 千利休的剧情不错，有搞笑有温馨。
 
+
+*****
+
+####  exiaexa  
+##### 5406#       发表于 2023-2-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787897&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-2-17 20:24</a>
+才发现2700DL有5个护符，换了丢进教皇池结果第一发雨神让我怀疑抽错池子了，然后五发下去无事发生… ...</blockquote>
+我第一个十连也是跳了个5宝雨神，把我看懵了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

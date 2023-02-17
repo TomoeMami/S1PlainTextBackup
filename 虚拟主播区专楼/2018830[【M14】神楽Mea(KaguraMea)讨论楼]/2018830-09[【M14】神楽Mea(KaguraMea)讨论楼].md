@@ -4676,3 +4676,13 @@ do not force yourself
 
 2023-2-17 18:40 上传
 
+
+*****
+
+####  时间在我手中  
+##### 13412#       发表于 2023-2-17 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59786650&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2023-2-17 18:42</a>
+看了同好会的转发才发现现在ai绘画已经进化到这种地步了。随便整了点。那位发的lora模型没有想象中好用，还 ...</blockquote>
+扣扣发我，正好拿来当封面摆烂
+
