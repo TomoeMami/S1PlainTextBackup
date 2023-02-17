@@ -9512,3 +9512,19 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 话说如果白情复刻小教授是不是对琼安的一种羞辱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 5393#       发表于 2023-2-17 18:13
+
+ 本帖最后由 Jamaisvu 于 2023-2-17 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59786198&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-17 18:06</a></blockquote>
+野兽前辈因为在街上脱出而被愤怒的信众用石头砸死<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+数字论证：女教皇继任时间是853年，(1+1)x4=8，5=5，(—1+4)=3。
+
+女教皇退位时间是855年，(1+1)x4=8，5=5，(1+4)=5。
+
+Q•E•D
+

@@ -2370,3 +2370,11 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 —— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  captoon  
+##### 533#       发表于 2023-2-17 18:18
+
+大炮啥时候出呀
+

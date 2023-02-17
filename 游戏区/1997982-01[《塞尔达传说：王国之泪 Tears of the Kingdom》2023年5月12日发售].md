@@ -4808,3 +4808,13 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1077#       发表于 2023-2-17 18:22
+
+还好我周二把amiibo定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+亚马逊周一就把amiibo上架但一直没开预售，我刚刚跑去看了一眼，一群人真的从周一刷到周五，纷纷抱怨比定典藏版还折磨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
