@@ -2458,3 +2458,14 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 早就习惯了358引擎的破烂图像，ps5帧数模式感觉很好，玩起来爽飞了
 
+
+*****
+
+####  swordofsoul1  
+##### 541#       发表于 2023-2-17 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785818&amp;ptid=2092050" target="_blank">Dunphy 发表于 2023-2-17 17:36</a>
+
+想问下能跨平台联机吗</blockquote>
+可以 联机队友会显示对应平台的图标
+

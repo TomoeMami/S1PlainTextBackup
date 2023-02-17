@@ -3150,3 +3150,13 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 由手机上传
 2023-2-17 11:19 上传
 
+
+*****
+
+####  ads147147  
+##### 7044#       发表于 2023-2-17 22:49
+
+我都怀疑制作组是故意玩新年梗了，步梦让后辈抽走鬼牌，然后joker就一直在岚珠手上www
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -9718,3 +9718,11 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 这个商店都是什么垃圾材料啊，没有书皮和小刀？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一天玩废狗？新素材怎么可能立刻进活动商店
 
+
+*****
+
+####  qixinno2  
+##### 5413#       发表于 2023-2-17 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次连个强化本都没有么
+
