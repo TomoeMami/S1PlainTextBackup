@@ -6084,3 +6084,12 @@ ED最后有变化。
 
 某岛第5集的串好长，再一看基本和动画无关……
 
+
+*****
+
+####  酷乐  
+##### 678#       发表于 2023-2-17 21:38
+
+B站港澳台：
+[https://www.bilibili.com/bangumi/play/ep722000](https://www.bilibili.com/bangumi/play/ep722000)
+
