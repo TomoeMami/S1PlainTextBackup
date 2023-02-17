@@ -4866,3 +4866,16 @@ comg的系数现在是不是不太准了，好像偏差大了很多？</blockquo
 
 倒是野炊里感觉钱各种不够用……我当时是看了攻略跑去刷龙角（那会儿脑补的雷龙还是恐龙里的雷龙Brontosaurus），不过意外获得了超棒的雷龙出水体验<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 1083#       发表于 2023-2-17 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59789060&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-17 21:31</a>
+
+老塞尔达的宝箱里也没啥好东西啊，经常5卢比10卢比50卢比敷衍你……特别老塞尔达也没啥花钱的地方，我印象 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">确实经常折腾了一番好不容易到达那个看得见摸不着的宝箱后，发现里面也就50、100卢比，
+
+更惨的是，钱包满了....卢比白拿了
+

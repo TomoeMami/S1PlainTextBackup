@@ -9682,3 +9682,21 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 5409#       发表于 2023-2-17 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59787270&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2023-2-17 19:43</a>
+
+这活动剧情也太沙雕了喷了好几次了，什么超大型羞耻play，女教皇这是要被刻在历史耻辱柱上的节奏啊 ...</blockquote>
+序章什么地下圣杯魔术师我还以为情人节难道走严肃向了不成？！结果后面卡莲和小安一出来气氛就不对劲了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 5410#       发表于 2023-2-17 21:49
+
+这个商店都是什么垃圾材料啊，没有书皮和小刀？
+
