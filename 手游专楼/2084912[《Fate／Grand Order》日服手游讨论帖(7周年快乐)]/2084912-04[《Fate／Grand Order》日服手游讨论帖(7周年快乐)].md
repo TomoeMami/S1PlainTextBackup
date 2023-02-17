@@ -9257,3 +9257,14 @@ alterego打算消除我们，在东京圣杯战争释放兽六打算毁灭一切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间快到了 等一个延期/解包
 
+
+*****
+
+####  里村紅葉  
+##### 5371#       发表于 2023-2-17 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59784554&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-17 16:09</a>
+
+时间快到了 等一个延期/解包</blockquote>
+解包不是之前被一个脑痰弄没了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

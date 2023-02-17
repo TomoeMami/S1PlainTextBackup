@@ -2283,3 +2283,14 @@ steam版会弹ea启动器吗？</blockquote>
 
 后面的限制型机巧，太厉害了，联机可以让狩猎变打木桩。
 
+
+*****
+
+####  ouyang菌  
+##### 524#       发表于 2023-2-17 16:28
+
+ps5的画面表现如何<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能稳60帧吗
+我已经不对我的3060 laotop抱希望了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
