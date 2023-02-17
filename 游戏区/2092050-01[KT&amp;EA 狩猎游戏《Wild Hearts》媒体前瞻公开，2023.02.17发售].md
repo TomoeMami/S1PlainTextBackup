@@ -2209,3 +2209,15 @@ steam版会弹ea启动器吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">天照守这什么鸟，这一战的设计有什么道理吗，非要在村里地图换个滤镜打？没有野外的补给，机巧天弦全靠上身掏？这上身的手感做的又一坨屎，还各种破地形卡住十万火急的时候显示不能建造，哇真的坐大牢啊
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 518#       发表于 2023-2-17 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778879&amp;ptid=2092050" target="_blank">laoz 发表于 2023-2-17 09:45</a>
+野猪蓄力冲和蓄力下砸的时候建个城墙给它撞就会倒地，其他招回避躲根据硬直大小上跳板登龙就完事 ...</blockquote>
+城墙是哪一项？我就跟着系统qte造了一回墙，平时按lb能造的只有箱子和跳板两个东西
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
