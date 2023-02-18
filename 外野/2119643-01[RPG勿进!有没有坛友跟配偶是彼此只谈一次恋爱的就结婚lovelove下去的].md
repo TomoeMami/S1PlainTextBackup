@@ -520,3 +520,14 @@ BTW这个舍友当年给我起的外号是“奶奶”，婚礼上我这个“�
 
 有认识的同学，初中开始谈恋爱，两个学习都很好的，听说好像最后结婚了
 
+
+*****
+
+####  BensonDarr  
+##### 66#       发表于 2023-2-18 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752233&amp;ptid=2119643" target="_blank">mayox 发表于 2023-2-15 09:22</a>
+
+其实我一直觉得，感情只是用心是不够的，还得用脑子，指望自己碰上一个天生就百分百契合自己的满意的伴侣是 ...</blockquote>
+太特么真实了cao 这是言情故事里从来不会讲的
+

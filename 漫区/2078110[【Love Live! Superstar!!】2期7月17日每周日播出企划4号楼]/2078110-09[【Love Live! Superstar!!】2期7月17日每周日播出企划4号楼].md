@@ -2961,3 +2961,13 @@ The Tyranny of Merit.pdf
 然后就被打成虹信了
 这个套路这么都那么好懂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  player3960  
+##### 12290#       发表于 2023-2-18 23:26
+
+ 本帖最后由 player3960 于 2023-2-18 23:29 编辑 
+
+幸好这次没有鲤鱼，以后遇到这些烂活还是躲着点的好，你们小日子的文化特色，咱赛里斯还是无福消受啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
