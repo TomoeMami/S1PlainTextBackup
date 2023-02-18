@@ -14965,3 +14965,35 @@ miko也不紧张啊
 
 又和上次SAO番组一样变成粉丝交流会了
 
+
+*****
+
+####  holoan  
+##### 4381#         楼主| 发表于 2023-2-18 18:48
+
+ 本帖最后由 holoan 于 2023-2-18 18:50 编辑 
+
+这两人相性这么好真意外
+
+以后看来搞不好还有更多展开
+
+刚说ao就主动提到联动的事情了
+
+*****
+
+####  rs5621  
+##### 4382#       发表于 2023-2-18 18:49
+
+悠木碧怎么聊着有点界限化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4383#         楼主| 发表于 2023-2-18 18:51
+
+你看过去年miko参加的那个SAO作者的番组直播吗
+
+那个作者也是这个样的
+

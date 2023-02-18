@@ -2822,3 +2822,22 @@ ps5版为什么随便一个过场就黑屏转进度条，印象里xss试玩时�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 578#       发表于 2023-2-18 18:45
+
+j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优化烂，好家伙叠BUFF呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 579#       发表于 2023-2-18 18:47
+
+今天本来想进去买一个，看到要什么EA APP
+
+再见<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+请问这游戏值得顶着这么多麻烦的东西和优化买么，我这还是小破2070
+
