@@ -2793,3 +2793,37 @@ nagio这张反倒没有平时美
 
 傻逼日综，还有惯例的傻逼运营
 
+
+*****
+
+####  saya1892  
+##### 12275#       发表于 2023-2-18 21:36
+
+终于申请到new bing了，这就来编故事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/18/213633maqmq3asmfm14mqm.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (171.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202302/18/213638oqe6y4zbd2fgzdb5.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (174.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 21:36 上传
+
+*****
+
+####  nufawneafg  
+##### 12276#       发表于 2023-2-18 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801143&amp;ptid=2078110" target="_blank">saya1892 发表于 2023-2-18 21:36</a>
+终于申请到new bing了，这就来编&amp;#x6 ...</blockquote>
+正常发挥的编剧水平≈new bing的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我的资格还没下来，软软失格<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
