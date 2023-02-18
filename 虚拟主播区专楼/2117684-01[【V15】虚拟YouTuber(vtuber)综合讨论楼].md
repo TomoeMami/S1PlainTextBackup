@@ -2173,3 +2173,11 @@ vspo也自己开个store绕开第三方抽成
 那为什么以联想旗下的君联为代表的投资公司会打算出售占流通股份11%的股份呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
 利润高乖乖收分红不好嘛。
 
+
+*****
+
+####  空集  
+##### 142#       发表于 2023-2-18 13:52
+
+利润再高也不如出售高啊 不过你日确实锁定期忒短
+
