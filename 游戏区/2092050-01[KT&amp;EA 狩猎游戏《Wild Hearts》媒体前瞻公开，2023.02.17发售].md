@@ -2979,3 +2979,14 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 通关了，这最终boss什么究极粪怪.....体验无比吃屎，不带结基本就是等死，跟2个野人刮痧第五阶段全 ...</blockquote>
 这个联机得换弓，仇恨分散了基本和打桩差不多，两轮甲箭一发共鸣乙直接坠机。第二战应该纯演出性质吧，打人都不怎么掉血，不知道死了会怎么样。
 
+
+*****
+
+####  火红之眼  
+##### 594#       发表于 2023-2-19 06:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59804110&amp;ptid=2092050" target="_blank">Raumanzug 发表于 2023-2-19 05:30</a>
+
+这个联机得换弓，仇恨分散了基本和打桩差不多，两轮甲箭一发共鸣乙直接坠机。第二战应该纯演出性质吧，打 ...</blockquote>
+后来去野了几盘，3个都会打就简单不少了，基本就用机关大箭打，落地群殴一次安定一阶段，挨个部位破完基本10分钟收工<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
