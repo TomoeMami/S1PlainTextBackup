@@ -9953,3 +9953,14 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 不过也没耐心在列表里翻祝福从者，最后还是借拐为主...
 
+
+*****
+
+####  不垃圾屌丝  
+##### 5434#       发表于 2023-2-18 22:36
+
+<img src="https://p.sda1.dev/9/da7254df999eba3cb0d70d56f57015bf/CMP_20230218223533279.png" referrerpolicy="no-referrer">
+好贵的回礼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
