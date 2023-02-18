@@ -5015,3 +5015,17 @@ zeltik的新视频不错，那个绿色螺旋的不少分析细节还是第一�
 
 旷吹是不是只有一套女装…这个淑女套装的分色有点差<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1097#       发表于 2023-2-19 06:11
+
+zeltik和monster maze合作视频出了，没想到讨论的问题之一也是“是否可以在续作里操作塞尔达”，泥潭讨论领先了一个星期w
+[https://www.youtube.com/watch?v=ysY1E3OH2J4&amp;ab_channel=Zeltik](https://www.youtube.com/watch?v=ysY1E3OH2J4&amp;ab_channel=Zeltik)  
+
+Zeltik这边主要讨论塞尔达，提出的一些设想其实跟本楼聊的大差不差，不过因为他之前提过一个“塞尔达和海利亚之间可以相互转换”的设想，所以他其中一个猜测是正如当年海利亚选择成为凡人，死去后转生成为塞尔达，王国之泪里塞尔达死了，然后变回海利亚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v= ... channel=MonsterMaze](https://www.youtube.com/watch?v=svaBF_xQqcc&amp;t=17s&amp;ab_channel=MonsterMaze)  
+
+monster maze这边主要就在聊地下探索，绿色螺旋的作用大家探讨差不多了，不过好像还真的没人留意到那些似乎有怨念从地下开的各种口子……嗯，搞不好这次地下的探索范围超出我们的想象。
+
