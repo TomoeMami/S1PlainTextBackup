@@ -6400,3 +6400,11 @@ B站港澳台：
 古拉格那边和帝国应该有默契，主角团去 ...</blockquote>
 珍娜那句终焉到来，给人一种怎么抵抗帝国都只是拖延时间而期待or喜欢破灭的美感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，园崎的声线太魔性了简直像是魔女一样，希望逼格不要太低（
 
+
+*****
+
+####  roxas.sora  
+##### 703#       发表于 2023-2-18 17:23
+
+杜巴莉她们居然也来了，太劳模了吧，碧轨开始就到处跑了
+
