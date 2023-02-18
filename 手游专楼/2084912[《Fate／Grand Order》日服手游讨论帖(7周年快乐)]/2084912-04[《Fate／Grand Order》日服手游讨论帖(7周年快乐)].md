@@ -9833,3 +9833,32 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 我们大废狗平衡性好的很，氪金从者一个个都又有特色又厉害，哪里需要强化 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟强化老角色也不能赚钱 
 
+
+*****
+
+####  Jamaisvu  
+##### 5425#       发表于 2023-2-18 18:06
+
+ 本帖最后由 Jamaisvu 于 2023-2-18 18:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202302/18/180301e1ucjj5xvg1jvwwu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230218_180256_com.huawei.photos.jpg</strong> (199.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-18 18:03 上传
+
+今天的新剧情出现了般度五子里的怖军，有人说这个造型有些像奏章PV三人众里的第一个：
+
+<img src="https://img.saraba1st.com/forum/202302/18/180906n17xj5n7tdljdj0j.png" referrerpolicy="no-referrer">
+
+<strong>4950116767149332.png</strong> (214.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 18:09 上传
+
+真要是的话那就迷惑起来了，PV里出了神曲的字样，还以为是基督教，结果又跑出来印度教的人物...话说这么早就发射卫星，估计奏章实装也快了吧...
+
