@@ -1044,3 +1044,12 @@ ios下载的话是切换到繁中服找app store吗
 
 这几天才入坑。也太肝了把。到底有几套养成系统啊
 
+
+*****
+
+####  森下未散  
+##### 966#       发表于 2023-2-18 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推完第三章，这展开也太神必了，游戏题材都变了喂
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后就被4-2的主线迷宫小怪揍了满头包，赶紧润了
+
