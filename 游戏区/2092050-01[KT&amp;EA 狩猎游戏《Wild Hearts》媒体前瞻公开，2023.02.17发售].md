@@ -2620,3 +2620,17 @@ yysy现在mhr的回避收益很高啊，有嘲讽防御3级=5回性，加上巧�
 
   改了，没 有明显变化
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 557#       发表于 2023-2-18 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795889&amp;ptid=2092050" target="_blank">医生狼多 发表于 2023-2-18 14:18</a>
+有没有试下
+
+在游戏论坛，Ryan Johnson玩家发现，将《狂野之心》的音频设定从默认立体声改为7.1/5.1便可大 ...</blockquote>
+试了下，没解决偶发掉帧，解决了每次开机第一次进游戏必定没声音问题
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
