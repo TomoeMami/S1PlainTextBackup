@@ -2719,3 +2719,14 @@ http://b23.tv/9iKlE2o</blockquote>
 我擦这有点厉害啊，虽然感觉类似思路是不是在哪里看到过（）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  415452356  
+##### 567#       发表于 2023-2-18 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59796506&amp;ptid=2092050" target="_blank">nightmare902015 发表于 2023-2-18 15:29</a>
+
+我擦这有点厉害啊，虽然感觉类似思路是不是在哪里看到过（）</blockquote>
+  盾斧爆弹GP？
+

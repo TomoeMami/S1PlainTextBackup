@@ -258,3 +258,16 @@
 
 今年的周年前后草台这么早就完成了也是没想到，虽然这次是因为对方强连服务器
 
+
+*****
+
+####  花开安菲路  
+##### 7106#       发表于 2023-2-18 15:50
+
+五周年的服装都是什么天才配色啊，大灰、大白、又来个大军装绿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就知道以艾米莉的人设，百分之百会搞黑发换色，有点小惊艳啊，可以去当反派追加q娃了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/ad6606ff97e5c3202553b59bece69053/CMP_20230218154741607.jpg" referrerpolicy="no-referrer">
+
+试抽了30连2ssr都歪了，就不强抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
