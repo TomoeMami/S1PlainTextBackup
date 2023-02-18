@@ -1145,3 +1145,11 @@ GP上千万，不用两月就能到
 萌新只有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这类本不看克制 只要不是被克基本都是一套秒了
 
+
+*****
+
+####  一里ぼっち  
+##### 975#       发表于 2023-2-18 21:12
+
+克制不重要 重要的是要站得住奶得起来 buff上好一波送走
+

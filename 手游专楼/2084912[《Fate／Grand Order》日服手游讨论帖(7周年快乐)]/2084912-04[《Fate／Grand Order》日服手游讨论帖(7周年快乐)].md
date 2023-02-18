@@ -9935,3 +9935,11 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 你在说啥？不是有吗？</blockquote>
 哈？翻了遍列表没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，看来是看漏了...
 
+
+*****
+
+####  angelooo  
+##### 5432#       发表于 2023-2-18 21:04
+
+这怖军一眼magi里的辛巴达给我笑死了
+
