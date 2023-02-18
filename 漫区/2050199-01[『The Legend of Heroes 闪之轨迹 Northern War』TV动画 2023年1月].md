@@ -6364,3 +6364,39 @@ B站港澳台：
 
 但上集他却说自己的计划早已开始了。。
 
+
+*****
+
+####  aptx8285144  
+##### 700#       发表于 2023-2-18 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795229&amp;ptid=2050199" target="_blank">三友非三清 发表于 2023-2-18 13:14</a>
+
+主要是拉维祖父自己揽锅了
+
+古拉格说的应该是更接近真相的
+
+因为当时看到上校被杀真相的人不少</blockquote>
+主要是这个在场的人怎么会同意或者说默认放走小鬼呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，揽锅是后来的事情
+
+*****
+
+####  三友非三清  
+##### 701#       发表于 2023-2-18 16:26
+
+<blockquote>aptx8285144 发表于 2023-2-18 16:22
+主要是这个在场的人怎么会同意或者说默认放走小鬼呢，揽锅是后来的事情 ...</blockquote>
+没提小鬼是被当场放走的吧，只说小鬼最终是没杀
+
+*****
+
+####  aptx8285144  
+##### 702#       发表于 2023-2-18 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795425&amp;ptid=2050199" target="_blank">龙之峰 发表于 2023-2-18 13:29</a>
+
+这集整挺好的，还给上集黑白兔挽了尊，果然是手下留情才弄成那样。
+
+古拉格那边和帝国应该有默契，主角团去 ...</blockquote>
+珍娜那句终焉到来，给人一种怎么抵抗帝国都只是拖延时间而期待or喜欢破灭的美感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，园崎的声线太魔性了简直像是魔女一样，希望逼格不要太低（
+
