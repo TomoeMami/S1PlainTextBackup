@@ -9802,3 +9802,34 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 麻婆这整个一个主线剧情 直接看剧本了是吧  2.7这几个挺乐的</blockquote>
 只有烟雾镜受伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5422#       发表于 2023-2-18 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59794603&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-18 12:14</a>
+
+只有烟雾镜受伤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠谱的角色就是用来被迫害的
+
+*****
+
+####  都谷捻柏  
+##### 5423#       发表于 2023-2-18 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790146&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-17 22:49</a>
+
+这次连个强化本都没有么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们大废狗平衡性好的很，氪金从者一个个都又有特色又厉害，哪里需要强化
+
+*****
+
+####  qixinno2  
+##### 5424#       发表于 2023-2-18 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59794835&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-18 12:39</a>
+
+我们大废狗平衡性好的很，氪金从者一个个都又有特色又厉害，哪里需要强化 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟强化老角色也不能赚钱 
+
