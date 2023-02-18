@@ -2160,3 +2160,16 @@ vspo也自己开个store绕开第三方抽成
 
 不过我要是不了解管人圈的股民，一眼看上去肯定虹更好，营收相差无几，虹利润明显高一截
 
+
+*****
+
+####  渡鸦骑士  
+##### 141#       发表于 2023-2-18 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790186&amp;ptid=2117684" target="_blank">free 发表于 2023-2-17 22:52</a>
+股民都在杏楼斗吧...
+
+不过我要是不了解管人圈的股民，一眼看上去肯定虹更好，营收相差无几，虹利润明显高一 ...</blockquote>
+那为什么以联想旗下的君联为代表的投资公司会打算出售占流通股份11%的股份呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+利润高乖乖收分红不好嘛。
+
