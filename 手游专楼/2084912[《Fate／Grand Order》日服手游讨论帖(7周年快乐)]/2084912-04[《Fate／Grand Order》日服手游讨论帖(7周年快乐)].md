@@ -9943,3 +9943,13 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 这怖军一眼magi里的辛巴达给我笑死了
 
+
+*****
+
+####  Jamaisvu  
+##### 5433#       发表于 2023-2-18 21:23
+
+刚发现喂了祝福巧克力的助战从者，借用时也是满NP开局。借了下别人的300NP公主，连着放两次宝具，还挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过也没耐心在列表里翻祝福从者，最后还是借拐为主...
+
