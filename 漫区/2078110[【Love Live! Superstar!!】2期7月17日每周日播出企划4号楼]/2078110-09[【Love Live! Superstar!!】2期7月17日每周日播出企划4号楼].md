@@ -2744,3 +2744,21 @@ nagio这张反倒没有平时美
 
 2023-2-18 18:04 上传
 
+
+*****
+
+####  Kfly  
+##### 12270#       发表于 2023-2-18 20:32
+
+对日本综艺节目有些无语……就算是整蛊……<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/18/203045ujcp1wj6iey2ij2g.png" referrerpolicy="no-referrer">
+
+<strong>E0B(I`0O}1OCRI8MR06LM{J.png</strong> (131.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 20:30 上传
+
+记得nagi说她少有的害怕的东西就是G不过这玩意基本是个人都怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
