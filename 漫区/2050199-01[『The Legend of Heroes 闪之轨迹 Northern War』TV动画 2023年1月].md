@@ -6244,3 +6244,17 @@ B站港澳台：
 
 马蒂跟雷克特互相讨价还价的部分倒是远超预期，居然能在闪轨里看到这么自然的讨价还价
 
+
+*****
+
+####  aptx8285144  
+##### 692#       发表于 2023-2-18 12:12
+
+ 本帖最后由 aptx8285144 于 2023-2-18 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59794252&amp;ptid=2050199" target="_blank">evangelina 发表于 2023-2-18 11:42</a>
+
+这话剧情推动本来意外地不错的，就是这个沙拉爹被杀的部分跟儿戏一样
+
+杀人的是个小鬼就够离谱的了，在场 ...</blockquote>
+我感觉罗根不像是那种对方是小鬼所以理解你没杀他的角色，所以看得大吃一惊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

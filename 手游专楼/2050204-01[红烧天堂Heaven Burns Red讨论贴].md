@@ -1067,3 +1067,14 @@ ios下载的话是切换到繁中服找app store吗
 迷宫饰品随便搞点过度就可以
 除了属性迷宫的加属攻饰品能一直用下去和+3sp的饰品在后期宝石富裕前能用很久，基本都是会被淘汰的过度饰品
 
+
+*****
+
+####  wuliaozheX  
+##### 968#       发表于 2023-2-18 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59792393&amp;ptid=2050204" target="_blank">辽远的海的相思 发表于 2023-2-18 03:24</a>
+
+这几天才入坑。也太肝了把。到底有几套养成系统啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -9792,3 +9792,13 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻婆这整个一个主线剧情 直接看剧本了是吧  2.7这几个挺乐的
 
+
+*****
+
+####  khxooo  
+##### 5421#       发表于 2023-2-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59794502&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-18 12:03</a>
+麻婆这整个一个主线剧情 直接看剧本了是吧  2.7这几个挺乐的</blockquote>
+只有烟雾镜受伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
