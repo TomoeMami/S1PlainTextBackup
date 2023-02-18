@@ -2912,3 +2912,40 @@ new bing我也没申到，GPT能有一样的效果不<img src="https://static.sa
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nufawneafg  
+##### 12285#       发表于 2023-2-18 22:23
+
+ 本帖最后由 nufawneafg 于 2023-2-18 22:26 编辑 
+<blockquote>弹幕有个增值的g多少算笑点，反正我觉得这个真就是本子这种压迫社会才喜欢玩的无聊综艺。</blockquote><blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801645&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-18 22:21</a>
+这种设计属于多重嵌套动物园捏，总觉得运营对裂啦的定位就一直都有问题。
+
+—— 来自 OPPO PGU110, Andro ...</blockquote><blockquote>这种节目之前就看过，都算是传统了，一般就爱让什么当红的三次元偶像整这烂活，像摸那种黏糊糊的东西的，故意吓人的啥的，而且最后还得给你陪笑感动大德，看的真恶心，日综最烦这种了</blockquote>
+The Tyranny of Merit.pdf
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 12286#       发表于 2023-2-18 22:23
+
+这种节目之前就看过，都算是传统了，一般就爱让什么当红的三次元偶像整这烂活，像摸那种黏糊糊的东西的，故意吓人的啥的，而且最后还得给你陪笑感动大德，看的真恶心，日综最烦这种了
+
+*****
+
+####  稀勢のささ  
+##### 12287#       发表于 2023-2-18 22:27
+
+ 本帖最后由 稀勢のささ 于 2023-2-18 22:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最典的是那种不小心就惹怒了某大人物的整蛊，是上班没被领导喷够吗综艺还搞这个，还是说他们就是爱“哇，你看他好像条狗诶，就跟我在公司一样”
+
+*****
+
+####  lj205  
+##### 12288#       发表于 2023-2-18 22:32
+
+也就日韩这种封建社会喜欢这些
+
