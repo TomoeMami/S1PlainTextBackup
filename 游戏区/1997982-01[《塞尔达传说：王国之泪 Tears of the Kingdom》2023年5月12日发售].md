@@ -4989,3 +4989,11 @@ zeltik的新视频不错，那个绿色螺旋的不少分析细节还是第一�
 
 我看完zeltik最新一期，已经不敢再看了，感觉目前藏着的机制和设定有相当一部分被分析出来了，这作时间线大概率真的有问题。之后maze和zeltik好像还会出个大篇，再看下去感觉会破坏到时候初见的惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Thio  
+##### 1094#       发表于 2023-2-18 13:26
+
+我就想和塞尔达一起去冒险，如果塞尔达的ai能到10年前老滚里面大小姐，bioshock里面elizbath或者Glados的水平的话，这游戏我能玩一整年
+
