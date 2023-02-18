@@ -3216,3 +3216,16 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 由手机上传
 2023-2-17 23:30 上传
 
+
+*****
+
+####  ads147147  
+##### 7047#       发表于 2023-2-18 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790527&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-2-17 23:18</a>
+虹四格制作很早，所以应该只是巧合。
+制作组想玩的是海爷梗。</blockquote>
+漫画版没写从谁手里抽的，估计这块是有设计的。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
