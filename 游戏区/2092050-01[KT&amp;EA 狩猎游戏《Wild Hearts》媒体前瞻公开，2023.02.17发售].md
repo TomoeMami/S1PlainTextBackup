@@ -2934,3 +2934,14 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xgp居然是真的试玩版，只有仨怪，ea真有你的
 
+
+*****
+
+####  Booorunestud  
+##### 589#       发表于 2023-2-19 01:31
+
+ 本帖最后由 Booorunestud 于 2023-2-19 01:39 编辑 
+
+解锁飞燕刃之后完全放弃和怪立回变成回合制了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+野太刀刮了四十分钟的地狱猴十分钟砍完
+
