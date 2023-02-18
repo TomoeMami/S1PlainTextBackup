@@ -43,3 +43,11 @@ Deck（以及Big Screen模式）上的帐号选择界面也有更新：
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  空集  
+##### 2166#       发表于 2023-2-19 01:01
+
+尼玛 今天到货换ssd 直接滑丝了 这个螺丝太垃圾 现在已经无解要么买电烙铁了
+
