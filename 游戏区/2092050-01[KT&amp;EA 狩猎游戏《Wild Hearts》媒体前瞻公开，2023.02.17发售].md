@@ -2730,3 +2730,24 @@ http://b23.tv/9iKlE2o</blockquote>
 我擦这有点厉害啊，虽然感觉类似思路是不是在哪里看到过（）</blockquote>
   盾斧爆弹GP？
 
+
+*****
+
+####  laoz  
+##### 568#       发表于 2023-2-18 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59796765&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-18 15:57</a>
+
+盾斧爆弹GP？</blockquote>
+MHR太刀侠最喜欢的爆桶开刃
+
+*****
+
+####  onemoment  
+##### 569#       发表于 2023-2-18 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59796765&amp;ptid=2092050" target="_blank">415452356 发表于 2023-2-18 15:57</a>
+
+盾斧爆弹GP？</blockquote>
+太刀爆弹开刃吧，伞的gp派生倒是像盾斧超解那下伤害
+
