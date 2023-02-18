@@ -15007,3 +15007,13 @@ miko也不紧张啊
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4385#         楼主| 发表于 2023-2-18 20:50
+
+提到生日企划说有一个很早的时候就在准备的东西
+
+不知道指企划还是周边
+

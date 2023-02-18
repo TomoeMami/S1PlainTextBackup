@@ -9898,3 +9898,29 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 看雨神剧情，看着字幕是シミュレーター结果语音是シュミレーター就很不爽（
 
+
+*****
+
+####  onemoment  
+##### 5429#       发表于 2023-2-18 20:46
+
+想看公主的剧情结果没有，想想没有也挺正常的，有才不对劲，就看了大姐姐的，结果有公主，意外之喜了
+
+*****
+
+####  黑上シグマ  
+##### 5430#       发表于 2023-2-18 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59800545&amp;ptid=2084912" target="_blank">onemoment 发表于 2023-2-18 20:46</a>
+
+想看公主的剧情结果没有，想想没有也挺正常的，有才不对劲，就看了大姐姐的，结果有公主，意外之喜了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你在说啥？不是有吗？
+
+<img src="https://img.saraba1st.com/forum/202302/18/205202qu9cvbcmjj3nxbjo.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0174.jpg</strong> (119.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-18 20:52 上传
+
