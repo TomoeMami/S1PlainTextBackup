@@ -6221,3 +6221,26 @@ B站港澳台：
 
 珍娜副官口吻给一种期待自治州破灭的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，还是说有什么大棋（）
 
+
+*****
+
+####  evangelina  
+##### 691#       发表于 2023-2-18 11:42
+
+ 本帖最后由 evangelina 于 2023-2-18 11:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59790002&amp;ptid=2050199" target="_blank">蒸汽投石BuBu车 发表于 2023-2-17 22:36</a>
+
+在那个位置出现一个敌方小鬼本来就离谱，肯定有内鬼。但硬要强行让黑骑诅咒背锅也不是不行
+
+何况北 ...</blockquote>
+
+这话剧情推动本来意外地不错的，就是这个沙拉爹被杀的部分跟儿戏一样
+
+杀人的是个小鬼就够离谱的了，在场那么多人居然没一个想到先扣下他问罪。然后古拉格当着大伙的面明着栽赃是拉薇爷爷开的枪.......
+
+这莎拉和马蒂、罗根几个看着不完全站古拉格的成员都还在现场呢，不管他有没有跟拉薇爷爷演戏（古拉格的说辞简直像是为了忽悠这孙女瞎编的），真当大伙是瞎子不会怀疑啊？
+
+简直比当年拐圣他哥被暗杀的名场面还离谱<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+马蒂跟雷克特互相讨价还价的部分倒是远超预期，居然能在闪轨里看到这么自然的讨价还价
+
