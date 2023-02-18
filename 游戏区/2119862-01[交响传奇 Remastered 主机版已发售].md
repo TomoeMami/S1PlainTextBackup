@@ -777,3 +777,14 @@ NS版好像有个更新补丁？但是我打了以后没看到任何优化，它
 
 捏马的 这不是仙乐传说吗  我都不知道你是怎么整出这么个译名的
 
+
+*****
+
+####  zero12  
+##### 78#       发表于 2023-2-18 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801890&amp;ptid=2119862" target="_blank">cppaaliu 发表于 2023-2-18 22:40</a>
+
+捏马的 这不是仙乐传说吗  我都不知道你是怎么整出这么个译名的</blockquote>
+这译名是“皇军”的官方认证
+
