@@ -9972,3 +9972,23 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 有月相历的表挺多的，虽然不一定有这款那么多但是普遍5W以上了
 
+
+*****
+
+####  Jamaisvu  
+##### 5436#       发表于 2023-2-18 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801850&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2023-2-18 22:36</a>
+
+好贵的回礼啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+麻婆本来想送护身短剑的，但是为了自己的生命安全只能破费了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 5437#       发表于 2023-2-18 23:47
+
+尼托Alter这巧克力即恐怖又生草啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

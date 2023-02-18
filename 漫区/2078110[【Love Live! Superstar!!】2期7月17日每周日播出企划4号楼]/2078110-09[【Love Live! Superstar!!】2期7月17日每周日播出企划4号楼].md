@@ -2987,3 +2987,14 @@ The Tyranny of Merit.pdf
 它最好是有逼数<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 例证不足直接推定某种情况只会带来不幸
 
+
+*****
+
+####  player3960  
+##### 12293#       发表于 2023-2-18 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59802480&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-18 23:36</a>
+
+为啥都在说幸好没有鲤鱼的，企划没这个胆子放鱼过去整吧，可以说运营有病。但对这方面还是有逼数的 ...</blockquote>
+我可不觉得运营有这么好心，要不是鲤鱼没档期，要不就是单纯没安排她，反正是不幸中的万幸<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
