@@ -2971,3 +2971,19 @@ The Tyranny of Merit.pdf
 
 幸好这次没有鲤鱼，以后遇到这些烂活还是躲着点的好，你们小日子的文化特色，咱赛里斯还是无福消受啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 12291#       发表于 2023-2-18 23:36
+
+为啥都在说幸好没有鲤鱼的，企划没这个胆子放鱼过去整吧，可以说运营有病。但对这方面还是有逼数的
+
+*****
+
+####  nufawneafg  
+##### 12292#       发表于 2023-2-18 23:41
+
+它最好是有逼数<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+例证不足直接推定某种情况只会带来不幸
+
