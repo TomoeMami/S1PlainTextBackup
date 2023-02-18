@@ -2208,3 +2208,11 @@ vspo也自己开个store绕开第三方抽成
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CarlSteve  
+##### 145#       发表于 2023-2-19 00:32
+
+venture capital肯定会卖的，运营模式就是投资初创企业然后通过IPO退出
+
