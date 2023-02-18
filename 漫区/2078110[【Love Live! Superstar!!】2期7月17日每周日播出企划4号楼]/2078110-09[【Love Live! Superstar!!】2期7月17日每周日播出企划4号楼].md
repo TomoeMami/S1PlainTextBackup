@@ -2998,3 +2998,33 @@ The Tyranny of Merit.pdf
 为啥都在说幸好没有鲤鱼的，企划没这个胆子放鱼过去整吧，可以说运营有病。但对这方面还是有逼数的 ...</blockquote>
 我可不觉得运营有这么好心，要不是鲤鱼没档期，要不就是单纯没安排她，反正是不幸中的万幸<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2148214  
+##### 12294#       发表于 2023-2-19 01:59
+
+ 本帖最后由 2148214 于 2023-2-19 02:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对星运营真的是越来越难蚌了。
+
+还好我推个活起来了。
+
+不然被莲全方位薄纱的那天(如果有那一天），都不知道该如何面对了。
+
+*****
+
+####  cat1230  
+##### 12295#       发表于 2023-2-19 02:09
+
+日综传统，能刷个脸吧，希望对涨粉有点用
+
+*****
+
+####  stygian  
+##### 12296#       发表于 2023-2-19 03:46
+
+没找🐟多半是事务所ng了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2236,3 +2236,15 @@ vtuber这个题材被虹拿去骗过一次钱了，杏需要再吹点东西出�
 
 cpsp上黛灰遗照被人认成诚哥的那条wb都有1k2+转了，主播最火不会就是这个时候了吧好无语
 
+
+*****
+
+####  oceanneo  
+##### 148#       发表于 2023-2-19 02:08
+
+元宇宙也过气了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最近那个新玩意跟管人也没啥厉害关系
+
+syl
+
+myy不上过热搜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

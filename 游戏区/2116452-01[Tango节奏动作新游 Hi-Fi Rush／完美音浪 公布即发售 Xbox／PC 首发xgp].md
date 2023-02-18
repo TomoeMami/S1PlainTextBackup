@@ -4551,3 +4551,11 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">刷S有点恼火
 
+
+*****
+
+####  MiaoJi  
+##### 438#       发表于 2023-2-19 02:51
+
+问一下为什么打着的时候评价S，后面记分数据除了通关时间一个S都没，打架时候的评价到底根据什么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
