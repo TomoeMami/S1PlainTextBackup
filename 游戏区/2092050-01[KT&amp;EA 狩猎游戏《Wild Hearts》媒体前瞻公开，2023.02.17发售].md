@@ -2645,3 +2645,22 @@ yysy现在mhr的回避收益很高啊，有嘲讽防御3级=5回性，加上巧�
 伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑 ...</blockquote>
 伞风险高是真，gp容易暴毙，不过启动和回报不低吧，开场机巧派生攒一段槽，防御派生再打个两三次左右就到三段了，伤害还可以吧。真要说回报低的话，怪物换区跑半个地图把武器槽耗空重新打是真的恶心。飞燕刀还没解锁，不太清楚强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yt5wt2c  
+##### 559#       发表于 2023-2-18 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都当mmo玩的，攒木头然后一套机关棍几千伤害，立回不可能的。
+
+*****
+
+####  布拉德莱恩  
+##### 560#       发表于 2023-2-18 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795620&amp;ptid=2092050" target="_blank">nightmare902015 发表于 2023-2-18 13:49</a>
+伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑 ...</blockquote>
+火把+炸弹起手开仞了解一下？
+
+[http://b23.tv/9iKlE2o](http://b23.tv/9iKlE2o)
+
