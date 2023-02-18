@@ -31,3 +31,15 @@ Deck（以及Big Screen模式）上的帐号选择界面也有更新：
 
 附：[【具体更新日誌】](https://steamcommunity.com/games/1675200/announcements/detail/3673285123502439066)
 
+
+*****
+
+####  牙狼GARO  
+##### 2165#       发表于 2023-2-18 21:14
+
+有朋友用良值底座的么
+我这个底座时不时就连不上电视了，虽然是出差宾馆的破电视，但hdmi还是有的
+一开始我觉得是充电的关系，就等连好电视画面上去了再充着电，但有时候断着电还是连不上电视，不知道问题出在哪里
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
