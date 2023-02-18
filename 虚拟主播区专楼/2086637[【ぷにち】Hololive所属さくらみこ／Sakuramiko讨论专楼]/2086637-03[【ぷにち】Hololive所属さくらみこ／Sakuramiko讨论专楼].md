@@ -14919,3 +14919,49 @@ https://twitter.com/heppoco_seijin/status/1626016032195489792?s=20
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4376#         楼主| 发表于 2023-2-18 18:32
+
+？？？？？？？？？？？？
+
+ao你怎么这么兴奋
+
+*****
+
+####  holoan  
+##### 4377#         楼主| 发表于 2023-2-18 18:34
+
+悲报
+
+ao酱35P化。
+
+*****
+
+####  holoan  
+##### 4378#         楼主| 发表于 2023-2-18 18:36
+
+miko也不紧张啊
+
+感觉就是普通朋友聊天的感觉
+
+*****
+
+####  rs5621  
+##### 4379#       发表于 2023-2-18 18:38
+
+双厨狂喜
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4380#         楼主| 发表于 2023-2-18 18:40
+
+怎么聊了10分钟，都是在聊miko的事情……
+
+又和上次SAO番组一样变成粉丝交流会了
+

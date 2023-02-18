@@ -9862,3 +9862,14 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 真要是的话那就迷惑起来了，PV里出了神曲的字样，还以为是基督教，结果又跑出来印度教的人物...话说这么早就发射卫星，估计奏章实装也快了吧...
 
+
+*****
+
+####  alucardcz  
+##### 5426#       发表于 2023-2-18 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59798129&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-18 18:06</a>
+
+今天的新剧情出现了般度五子里的怖军，有人说这个造型有些像奏章PV三人众里的第一个：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说2。0pv是几几年的事情？
+

@@ -2810,3 +2810,15 @@ ps5版为什么随便一个过场就黑屏转进度条，印象里xss试玩时�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我说怎么自己打天照的时候都没人进，心血来潮进了个剧情天照房，打完还要看房主播片....播完了到第二段播片时主角已经是我自己了，却提示guest不能skip，傻乎乎的又看了一大段动画
 
+
+*****
+
+####  415452356  
+##### 577#       发表于 2023-2-18 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59797105&amp;ptid=2092050" target="_blank">Booorunestud 发表于 2023-2-18 16:29</a>
+ps5版为什么随便一个过场就黑屏转进度条，印象里xss试玩时没这么多啊</blockquote>
+  垃圾优化是这样的，我pc把这游戏丢ssd里面也照样是要看这个转圈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
