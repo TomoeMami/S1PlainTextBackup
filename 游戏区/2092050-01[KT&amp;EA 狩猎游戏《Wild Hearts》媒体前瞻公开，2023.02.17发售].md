@@ -2530,3 +2530,13 @@ EA APP我都可以捏鼻子忍了，但这个踏马的EA APP存档居然同步�
 
 12400+6750xt 2k全高稳60，显卡吃满cpu吃一半，非常的神秘，不看论坛都不知道优化血崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  violettor  
+##### 548#       发表于 2023-2-18 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59778940&amp;ptid=2092050" target="_blank">刘震云 发表于 2023-2-17 09:49</a>
+ 打不过的话推荐用弓箭，和其他武器难度不是一个等级的，地狱猿随便射射就过了，滑步无敌帧很长的，还可以连 ...</blockquote>
+滑步是指r+a吗
+
