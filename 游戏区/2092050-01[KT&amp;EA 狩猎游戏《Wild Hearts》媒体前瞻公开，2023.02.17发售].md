@@ -2802,3 +2802,11 @@ ps5版为什么随便一个过场就黑屏转进度条，印象里xss试玩时�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火红之眼  
+##### 576#       发表于 2023-2-18 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我说怎么自己打天照的时候都没人进，心血来潮进了个剧情天照房，打完还要看房主播片....播完了到第二段播片时主角已经是我自己了，却提示guest不能skip，傻乎乎的又看了一大段动画
+

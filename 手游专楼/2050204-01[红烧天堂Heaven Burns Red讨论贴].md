@@ -1120,3 +1120,15 @@ GP上千万，不用两月就能到
 
 现在挂机战斗也能获得宝石  
 
+
+*****
+
+####  森下未散  
+##### 973#       发表于 2023-2-18 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59797587&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-18 17:16</a>
+
+调你要练的颜色的宝石一起打。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼要LV13才必出钻石，结果DP加伤和HP加伤的火本和雷本需要的输出角色都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新只有天使，看来只能打那个光斩弱点的宝石本了
+
