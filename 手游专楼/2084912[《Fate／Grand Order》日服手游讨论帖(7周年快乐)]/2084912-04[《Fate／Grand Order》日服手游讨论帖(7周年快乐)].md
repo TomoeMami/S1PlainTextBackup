@@ -9924,3 +9924,14 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 2023-2-18 20:52 上传
 
+
+*****
+
+####  onemoment  
+##### 5431#       发表于 2023-2-18 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59800609&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-18 20:52</a>
+
+你在说啥？不是有吗？</blockquote>
+哈？翻了遍列表没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，看来是看漏了...
+

@@ -2894,3 +2894,13 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 感觉最麻烦的是用手柄玩会有怪猎的肌肉记忆，这个机巧按键用起来也很反直觉。
 
+
+*****
+
+####  siro1987  
+##### 585#       发表于 2023-2-18 20:56
+
+[https://twitter.com/CanYouPetTheDog/status/1626657740960718850](https://twitter.com/CanYouPetTheDog/status/1626657740960718850)
+
+不知道有没有人发过, 这游戏可以撸小动物<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
