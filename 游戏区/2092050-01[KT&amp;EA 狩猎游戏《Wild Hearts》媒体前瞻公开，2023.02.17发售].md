@@ -2702,3 +2702,20 @@ http://b23.tv/9iKlE2o</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Raumanzug  
+##### 565#       发表于 2023-2-18 15:44
+
+这个换区设定太恶心了，掉点血就开始换个不停，机巧也留不住<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布拉德莱恩  
+##### 566#       发表于 2023-2-18 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59796506&amp;ptid=2092050" target="_blank">nightmare902015 发表于 2023-2-18 15:29</a>
+我擦这有点厉害啊，虽然感觉类似思路是不是在哪里看到过（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

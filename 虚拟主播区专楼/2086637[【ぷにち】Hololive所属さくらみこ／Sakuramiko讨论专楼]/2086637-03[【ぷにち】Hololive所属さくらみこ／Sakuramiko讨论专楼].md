@@ -14888,3 +14888,14 @@ https://twitter.com/heppoco_seijin/status/1626016032195489792?s=20
 
 这35做的的有点厉害啊
 
+
+*****
+
+####  rs5621  
+##### 4373#       发表于 2023-2-18 15:44
+
+笨，时间搞错了还行。
+话说我的同步视听呢，好像很久没看了？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
