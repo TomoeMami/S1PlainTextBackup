@@ -4752,3 +4752,11 @@ ai进化的真tm快啊……
 ai进化的真tm快啊……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大半夜的第一张吓到我了
 
+
+*****
+
+####  路人庚  
+##### 13415#       发表于 2023-2-18 19:07
+
+Queen的翻唱还行
+

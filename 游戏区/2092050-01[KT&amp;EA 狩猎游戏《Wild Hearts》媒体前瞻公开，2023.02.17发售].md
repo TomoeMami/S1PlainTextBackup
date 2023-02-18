@@ -2854,3 +2854,16 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 再见</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以等他优化做好了再说
 
+
+*****
+
+####  AEmpire  
+##### 581#       发表于 2023-2-18 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59798709&amp;ptid=2092050" target="_blank">红魔馆的糖 发表于 2023-2-18 18:47</a>
+
+今天本来想进去买一个，看到要什么EA APP
+
+再见</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我捏着鼻子玩的很开心，但是现在非常不推荐，等优化吧
+
