@@ -2904,3 +2904,11 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 不知道有没有人发过, 这游戏可以撸小动物<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raumanzug  
+##### 586#       发表于 2023-2-18 21:56
+
+进了上位以后亚种浓度有点高，做套弓装备打了一天的各种鸟。
+

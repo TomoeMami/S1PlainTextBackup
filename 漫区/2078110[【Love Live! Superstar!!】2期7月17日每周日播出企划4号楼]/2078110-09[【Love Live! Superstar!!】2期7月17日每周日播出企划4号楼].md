@@ -2827,3 +2827,15 @@ nagio这张反倒没有平时美
 正常发挥的编剧水平≈new bing的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我的资格还没下来，软软失格<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 12277#       发表于 2023-2-18 21:57
+
+这个傻x整蛊节目，好笑吗，很好笑，讨厌吗，超级讨厌。
+
+这个节目的安排和之前的猴子完全不是一个性质吧，多少有点大病。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
