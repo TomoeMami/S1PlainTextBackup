@@ -2569,3 +2569,27 @@ ea账号这设计真是傻逼至极，ps上哪服买的就在哪玩吧，我港�
 伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑的性能<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 yysy现在mhr的回避收益很高啊，有嘲讽防御3级=5回性，加上巧击和异常必定积累的收益，回避根本不比gp差，甚至更优先选择回避。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 552#       发表于 2023-2-18 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795620&amp;ptid=2092050" target="_blank">nightmare902015 发表于 2023-2-18 13:49</a>
+伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑 ...</blockquote>
+这不也是先砍断腿再给的糖么，毕竟MHR快到版本末期了，什么套路都放开让玩家玩
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 553#       发表于 2023-2-18 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795756&amp;ptid=2092050" target="_blank">半江瑟瑟半江红 发表于 2023-2-18 14:03</a>
+
+这不也是先砍断腿再给的糖么，毕竟MHR快到版本末期了，什么套路都放开让玩家玩
+
+—— 来自 HUAWEI NOP-AN ...</blockquote>
+的确是的，版本末期打法百花齐放也算是意料之中。就是不知道狂野之心这游戏的未来更新意味着啥方向<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在很多时候打怪还挺痛苦的
+
