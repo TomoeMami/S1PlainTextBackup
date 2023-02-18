@@ -1132,3 +1132,16 @@ GP上千万，不用两月就能到
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼要LV13才必出钻石，结果DP加伤和HP加伤的火本和雷本需要的输出角色都没有
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新只有天使，看来只能打那个光斩弱点的宝石本了
 
+
+*****
+
+####  alucardcz  
+##### 974#       发表于 2023-2-18 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59797902&amp;ptid=2050204" target="_blank">森下未散 发表于 2023-2-18 17:47</a>
+
+看了眼要LV13才必出钻石，结果DP加伤和HP加伤的火本和雷本需要的输出角色都没有
+
+萌新只有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这类本不看克制 只要不是被克基本都是一套秒了
+

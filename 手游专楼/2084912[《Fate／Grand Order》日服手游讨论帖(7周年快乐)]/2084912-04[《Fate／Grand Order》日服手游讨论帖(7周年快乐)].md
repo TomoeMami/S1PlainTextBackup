@@ -9873,3 +9873,18 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 今天的新剧情出现了般度五子里的怖军，有人说这个造型有些像奏章PV三人众里的第一个：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说2。0pv是几几年的事情？
 
+
+*****
+
+####  UNISONIA  
+##### 5427#       发表于 2023-2-18 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59798577&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-18 18:40</a>
+
+话说2。0pv是几几年的事情？</blockquote>
+2017年12月31日
+
+不过奏章这个PV本来应该也是定在2022年12月31日出的，菌皇把LB7拖稿了而已
+
+废狗自2017年开始上Anime Japan宣传之后，是固定在每年三月下旬Anime Japan上会进行春季主线章的宣传的。例子有AJ2017上宣传了新宿（不过新宿是AJ之前就实装了的）和终章内容的补遗、AJ2018上宣传的是俄罗斯异闻带、AJ2019原定要宣传印度异闻带的（后因为开发进度落下取消）、AJ2020宣传的奥林波斯……
+

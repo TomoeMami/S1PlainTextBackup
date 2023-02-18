@@ -14997,3 +14997,13 @@ miko也不紧张啊
 
 那个作者也是这个样的
 
+
+*****
+
+####  rs5621  
+##### 4384#       发表于 2023-2-18 18:59
+
+聊天氛围好欢乐，这种多搞点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
