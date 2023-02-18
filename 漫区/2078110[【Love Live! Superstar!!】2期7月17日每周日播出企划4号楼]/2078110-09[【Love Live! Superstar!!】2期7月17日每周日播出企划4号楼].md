@@ -2839,3 +2839,42 @@ nagio这张反倒没有平时美
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ViyViy  
+##### 12278#       发表于 2023-2-18 22:03
+
+new bing我也没申到，GPT能有一样的效果不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 12279#       发表于 2023-2-18 22:06
+
+这玩意还有几期啊
+
+*****
+
+####  nufawneafg  
+##### 12280#       发表于 2023-2-18 22:09
+
+ 本帖最后由 nufawneafg 于 2023-2-18 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801408&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-18 21:57</a>
+这个傻x整蛊节目，好笑吗，很好笑，讨厌吗，超级讨厌。
+
+这个节目的安排和之前的猴子完全不是一个性质吧， ...</blockquote>
+主要是这种恶趣味太典了，多少年一个套路，看动物昆虫吓人还用来你电视台？动物园就满足了，完全浪费时间。多看一眼就是我输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+每到这个时候就想问：日本人失去创造力了吗
+
+*****
+
+####  仟音一心  
+##### 12281#       发表于 2023-2-18 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801408&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-18 21:57</a>
+这个傻x整蛊节目，好笑吗，很好笑，讨厌吗，超级讨厌。
+
+这个节目的安排和之前的猴子完全不是一个性质吧， ...</blockquote>
+完全没觉得哪里好笑了
+
