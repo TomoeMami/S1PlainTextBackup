@@ -2878,3 +2878,37 @@ new bing我也没申到，GPT能有一样的效果不<img src="https://static.sa
 这个节目的安排和之前的猴子完全不是一个性质吧， ...</blockquote>
 完全没觉得哪里好笑了
 
+
+*****
+
+####  长日留痕  
+##### 12282#       发表于 2023-2-18 22:14
+
+ 本帖最后由 长日留痕 于 2023-2-18 22:16 编辑 
+
+上次青山姐那个被猴子吓的节目，猴子愣了一下，有一个转头的动作，估计是看到镜头外的人的指示才开始大叫拍玻璃青山姐的，还有人说时猴子被青山姐吓到了，明显不是嘛。
+
+日本人的综艺永远都这么无趣。
+
+*****
+
+####  ads147147  
+##### 12283#       发表于 2023-2-18 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801542&amp;ptid=2078110" target="_blank">仟音一心 发表于 2023-2-18 22:10</a>
+完全没觉得哪里好笑了</blockquote>
+弹幕有个增值的g多少算笑点，反正我觉得这个真就是本子这种压迫社会才喜欢玩的无聊综艺。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ads147147  
+##### 12284#       发表于 2023-2-18 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59801524&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2023-2-18 22:09</a>
+主要是这种恶趣味太典了，多少年一个套路，看动物昆虫吓人还用来你电视台？动物园就满足了，还是说您这电 ...</blockquote>
+这种设计属于多重嵌套动物园捏，总觉得运营对裂啦的定位就一直都有问题。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
