@@ -2912,3 +2912,25 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 进了上位以后亚种浓度有点高，做套弓装备打了一天的各种鸟。
 
+
+*****
+
+####  御坂MKII  
+##### 587#       发表于 2023-2-19 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59798709&amp;ptid=2092050" target="_blank">红魔馆的糖 发表于 2023-2-18 18:47</a>
+
+今天本来想进去买一个，看到要什么EA APP
+
+再见</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等优化补丁发了再看吧，我3080ti将将次低画质2k60
+
+同学应该是2080ti吧，1080不稳60
+
+*****
+
+####  御坂MKII  
+##### 588#       发表于 2023-2-19 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xgp居然是真的试玩版，只有仨怪，ea真有你的
+
