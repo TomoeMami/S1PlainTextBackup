@@ -1096,3 +1096,27 @@ ios下载的话是切换到繁中服找app store吗
 
 GP上千万，不用两月就能到
 
+
+*****
+
+####  森下未散  
+##### 971#       发表于 2023-2-18 17:14
+
+炼成饰品的钻石的常规获取渠道是啥，自己挑一个最好打的宝石棱镜最高难度去打吗？
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 972#       发表于 2023-2-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59797564&amp;ptid=2050204" target="_blank">森下未散 发表于 2023-2-18 17:14</a>
+
+炼成饰品的钻石的常规获取渠道是啥，自己挑一个最好打的宝石棱镜最高难度去打吗？
+
+—— 来自 Xiaomi 22081 ...</blockquote>
+调你要练的颜色的宝石一起打。。。
+
+现在挂机战斗也能获得宝石  
+

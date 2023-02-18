@@ -14909,3 +14909,13 @@ https://twitter.com/heppoco_seijin/status/1626016032195489792?s=20
 
 以前来说周日有radio出演节目的时候都没有主动避让的习惯有直播也直接撞过去，这次为什么突然刻意避开了就很奇怪，大概率是运营特地提醒了，但是为什么就今天的radio非得避开不可……
 
+
+*****
+
+####  rs5621  
+##### 4375#       发表于 2023-2-18 17:14
+
+因为是悠木碧吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
