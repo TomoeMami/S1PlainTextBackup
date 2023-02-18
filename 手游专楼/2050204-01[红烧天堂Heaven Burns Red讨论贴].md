@@ -1078,3 +1078,13 @@ ios下载的话是切换到繁中服找app store吗
 这几天才入坑。也太肝了把。到底有几套养成系统啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 969#       发表于 2023-2-18 12:30
+
+总算推到4-1可以买最强晶片了，一看一个要95w，一个都买不起，按照挂机刷图速度至少得大半个月才能攒齐要的gp吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
