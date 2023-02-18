@@ -2679,3 +2679,16 @@ yysy现在mhr的回避收益很高啊，有嘲讽防御3级=5回性，加上巧�
 
 我对怪猎有ptsd，光荣的游戏本该必买的，但这个只能看看算了
 
+
+*****
+
+####  nightmare902015  
+##### 563#       发表于 2023-2-18 15:29
+
+ 本帖最后由 nightmare902015 于 2023-2-18 15:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59796220&amp;ptid=2092050" target="_blank">布拉德莱恩 发表于 2023-2-18 14:59</a>
+火把+炸弹起手开仞了解一下？
+
+http://b23.tv/9iKlE2o</blockquote>
+我擦这有点厉害啊，虽然感觉类似思路是不是在哪里看到过（）
+
