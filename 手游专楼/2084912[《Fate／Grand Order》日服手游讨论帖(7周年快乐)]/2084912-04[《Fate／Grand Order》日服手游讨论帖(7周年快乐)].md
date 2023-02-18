@@ -9773,3 +9773,12 @@ NPC警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雨神这直接送钥匙也太重了
 
+
+*****
+
+####  exiaexa  
+##### 5419#       发表于 2023-2-18 11:58
+
+所以飞嫂根本不是先做角色后选cv吧，阿出你是不是辉夜看上头了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

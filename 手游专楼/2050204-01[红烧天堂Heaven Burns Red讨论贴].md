@@ -1053,3 +1053,17 @@ ios下载的话是切换到繁中服找app store吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推完第三章，这展开也太神必了，游戏题材都变了喂
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后就被4-2的主线迷宫小怪揍了满头包，赶紧润了
 
+
+*****
+
+####  leitingkai  
+##### 967#       发表于 2023-2-18 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59792393&amp;ptid=2050204" target="_blank">辽远的海的相思 发表于 2023-2-18 03:24</a>
+这几天才入坑。也太肝了把。到底有几套养成系统啊</blockquote>
+新手暂时不需要管强化宝珠、异层圈、饰品最后一格那个珠子
+这三个系统<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+宝石炼成饰品先随缘搞点加高dp的就可以，不用强求，馒馒来
+迷宫饰品随便搞点过度就可以
+除了属性迷宫的加属攻饰品能一直用下去和+3sp的饰品在后期宝石富裕前能用很久，基本都是会被淘汰的过度饰品
+
