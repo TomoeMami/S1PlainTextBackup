@@ -4598,3 +4598,14 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MiaoJi  
+##### 442#       发表于 2023-2-19 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59804960&amp;ptid=2116452" target="_blank">woodcoin 发表于 2023-2-19 10:14</a>
+伤害多用招后台 三个人轮流招 它们不算是拍子
+时间S很充裕 留个小怪用三连冲刺把准确率拉回来再打</blockquote>
+不是很喜欢后台这个机制，感觉换人操作手感有点一般（
+
