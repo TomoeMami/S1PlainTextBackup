@@ -139,3 +139,11 @@
 
 昨天意外了今天继续<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stedckk  
+##### 14511#       发表于 2023-2-19 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在绫总的观念里面，在别的直播间播了，或者发了歌，或者在别人的直播发评论了，或者发推了，都可以算上班打卡的一天。
+
