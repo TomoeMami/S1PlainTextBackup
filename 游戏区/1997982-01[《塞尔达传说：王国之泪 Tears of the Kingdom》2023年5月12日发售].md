@@ -5172,3 +5172,20 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 整本设定集看完了，真的没什么剧透，主要就是把预告片里的那些东西的设定更详尽地画出来给你看，衣服啊，建筑结构啊什么的，别难受了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otjuly  
+##### 1113#       发表于 2023-2-20 07:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 1114#       发表于 2023-2-20 07:31
+
+快速扫了一下贴吧里发的设定集，爽到，料也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
