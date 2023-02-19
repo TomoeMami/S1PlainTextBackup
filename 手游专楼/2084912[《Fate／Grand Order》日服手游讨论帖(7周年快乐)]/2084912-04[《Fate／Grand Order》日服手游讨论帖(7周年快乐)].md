@@ -10130,3 +10130,16 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 黑杯C呆是什么游戏理解</blockquote>
 难道不是礼装展示环节<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 5448#       发表于 2023-2-19 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59811150&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-19 20:03</a>
+
+笑死，上油管看了个整活周回，打算抽个女教皇给陈老板当炮弹用了
+
+ ...</blockquote>
+第一眼还以为君十一露肚脐了，小黑这张礼装的颜色还挺搭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
