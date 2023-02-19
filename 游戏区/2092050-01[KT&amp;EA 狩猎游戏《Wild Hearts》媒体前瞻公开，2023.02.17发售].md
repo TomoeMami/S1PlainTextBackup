@@ -3148,3 +3148,13 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">伞的动作值是不是全给gp之后的反击动作了，感觉其他动作就算气槽满了也刮的不行。。
 
+
+*****
+
+####  Znesmoc  
+##### 612#       发表于 2023-2-20 01:40
+
+天照守这任务重复刷就得重复看过场和QTE到底是谁想的……
+
+然后这地方也没处给你补血药，鸟还很喜欢上房子，体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
