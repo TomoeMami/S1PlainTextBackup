@@ -794,3 +794,16 @@ gymbag集散地<img src="https://static.saraba1st.com/image/smiley/face2017/035.
 
 看了切片被狠狠震撼
 
+
+*****
+
+####  与天争锋_LZ  
+##### 62#       发表于 2023-2-19 10:53
+
+ 本帖最后由 与天争锋_LZ 于 2023-2-19 10:59 编辑 
+
+【Miyune】谈谈我对Neuro-sama的看法和展望...._哔哩哔哩_bilibili
+[https://www.bilibili.com/video/BV1ET411D74Z](https://www.bilibili.com/video/BV1ET411D74Z)
+
+Miyune也很棒啊，很少有英V也能让人感觉如此的“二次元”（？）
+
