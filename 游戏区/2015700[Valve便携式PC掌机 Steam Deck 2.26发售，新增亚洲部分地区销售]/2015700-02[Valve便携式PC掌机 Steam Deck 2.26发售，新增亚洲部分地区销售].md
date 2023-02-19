@@ -63,3 +63,15 @@ Deck（以及Big Screen模式）上的帐号选择界面也有更新：
 —— 来自 Xiaomi M2102K1C, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 兄弟你最后怎么解决的
 
+
+*****
+
+####  柠檬渣  
+##### 2168#       发表于 2023-2-19 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59803293&amp;ptid=2015700" target="_blank">空集 发表于 2023-2-19 01:03</a>
+兄弟你最后怎么解决的</blockquote>
+换个长的螺丝能用上力的大力出奇迹
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
