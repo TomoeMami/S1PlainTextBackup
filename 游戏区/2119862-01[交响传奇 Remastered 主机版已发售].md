@@ -808,3 +808,11 @@ NS版好像有个更新补丁？但是我打了以后没看到任何优化，它
 
 真是太感动啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 81#       发表于 2023-2-19 18:33
+
+虽然我玩的第一个传说就是TOS，但是这种垃圾我吃不下去，你这么喜欢薅TOS你有本事直接重制啊，辣鸡移植唬谁呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -44,3 +44,28 @@ Blu－ray第4巻 ジャケット公开🔨✨</blockquote>
 
 DIY就是豚豚和萌二都能看得舒服的百合浓度吧
 
+
+*****
+
+####  千恋万花  
+##### 668#       发表于 2023-2-19 18:33
+
+／
+
+Music Collection
+
+試聴動画公開📹✨
+
+＼
+
+物語を彩ったサントラと #筆安一幸 さん書き下ろし&amp;メインキャスト総出演のオリジナルドラマ試聴動画をYOUTUBEで公開👍
+
+📹サントラ視聴
+[https://youtu.be/Pk-YJptKec4](https://youtu.be/Pk-YJptKec4)
+
+📹ドラマ視聴
+[https://youtu.be/0Nwmoyav3ik](https://youtu.be/0Nwmoyav3ik)
+
+💿購入
+[https://avex.lnk.to/DIY_MC_PKG/](https://avex.lnk.to/DIY_MC_PKG/)
+
