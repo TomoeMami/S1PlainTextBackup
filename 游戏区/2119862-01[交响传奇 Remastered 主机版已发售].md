@@ -835,3 +835,14 @@ NS版好像有个更新补丁？但是我打了以后没看到任何优化，它
 【《刀剑神域 异绊集结》实机战斗画面宣传视频（一般战斗Ver.）-哔哩哔哩】 https://b23.tv/ddiymn3   那个 ...</blockquote>
 应该不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，富泽说原本是新IP，就叫ARISE
 
+
+*****
+
+####  z692689995  
+##### 84#       发表于 2023-2-20 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59770750&amp;ptid=2119862" target="_blank">qiyu1234 发表于 2023-2-16 16:08</a>
+
+如果按销量统计从上往下排，跳过已经在本世代平台发售的游戏（TOZ TOB只上过PS和PC，没那么丧心病狂的话应 ...</blockquote>
+深渊可能性更大吧，跟TOSTOV同一小组，欧美日本人气都不错，TOD欧美人气不太行，2D高清起来也比3D麻烦多了，很多东西要重绘
+
