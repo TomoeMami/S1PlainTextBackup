@@ -10093,3 +10093,16 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 笑死，上油管看了个整活周回，打算抽个女教皇给陈老板当炮弹用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 5445#       发表于 2023-2-19 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59811150&amp;ptid=2084912" target="_blank">quanlix 发表于 2023-2-19 20:03</a>
+
+笑死，上油管看了个整活周回，打算抽个女教皇给陈老板当炮弹用了
+
+ ...</blockquote>
+黑杯C呆是什么游戏理解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
