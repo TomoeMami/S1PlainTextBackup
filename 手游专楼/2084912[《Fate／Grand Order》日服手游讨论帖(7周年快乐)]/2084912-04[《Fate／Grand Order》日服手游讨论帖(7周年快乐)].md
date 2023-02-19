@@ -10069,3 +10069,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻婆不一直都是随便找个凛家的古董卖吗……
 
+
+*****
+
+####  白金口袋  
+##### 5443#       发表于 2023-2-19 18:58
+
+虽然知道夜谈是保留节目，但2.7的夜里刚连着撩完大总统和库库尔坎，紧接着情人节就在这跟女教皇吹夜风，就突然觉得自己是个特别渣的知心大哥哥，主持午夜广播电台那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
