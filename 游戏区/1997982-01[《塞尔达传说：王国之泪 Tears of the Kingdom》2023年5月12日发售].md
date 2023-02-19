@@ -5084,3 +5084,21 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 老头环跟野炊的感觉是最像的，开荒的体验太美妙了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1104#       发表于 2023-2-19 16:29
+
+<img src="https://img.saraba1st.com/forum/202302/19/162654c33jjazmngjnanex.jpg" referrerpolicy="no-referrer">
+
+<strong>FpSANsvaMAANfEc.jpg</strong> (172.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-19 16:26 上传
+
+要不是这张同人图，我都没发现Ganondorf腰带扣是Ω诶（当然你也可以说是马蹄铁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+不过考虑到他在PV2里的台词，Ω还挺适合他身份的！
+
