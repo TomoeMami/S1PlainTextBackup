@@ -3094,3 +3094,11 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 请问一下怎么和龙脉互动， 我靠近那个B龙穴没有反应。 接触龙穴这个选项也没有 是不是游戏BUG了 ...</blockquote>
 不就L2调查？
 
+
+*****
+
+####  onemoment  
+##### 606#       发表于 2023-2-19 21:45
+
+能搜到连到人但一直弹连接失败，什么弱智bug<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
