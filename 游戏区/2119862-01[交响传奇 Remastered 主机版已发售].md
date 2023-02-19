@@ -824,3 +824,14 @@ NS版好像有个更新补丁？但是我打了以后没看到任何优化，它
 
 【《刀剑神域 异绊集结》实机战斗画面宣传视频（一般战斗Ver.）-哔哩哔哩】 [https://b23.tv/ddiymn3](https://b23.tv/ddiymn3)   那个，破晓传说原本标题不会是刀剑神域吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qiyu1234  
+##### 83#         楼主| 发表于 2023-2-19 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59810400&amp;ptid=2119862" target="_blank">司马千晶 发表于 2023-2-19 19:24</a>
+
+【《刀剑神域 异绊集结》实机战斗画面宣传视频（一般战斗Ver.）-哔哩哔哩】 https://b23.tv/ddiymn3   那个 ...</blockquote>
+应该不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，富泽说原本是新IP，就叫ARISE
+
