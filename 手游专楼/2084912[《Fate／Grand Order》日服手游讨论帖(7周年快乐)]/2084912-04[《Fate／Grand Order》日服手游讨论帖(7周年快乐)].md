@@ -10035,3 +10035,21 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 麻婆本来想送护身短剑的，但是为了自己的生命安全只能破费了</blockquote>
 我不想要表，只想要一把宝石剑啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 5440#       发表于 2023-2-19 14:09
+
+ 本帖最后由 Jamaisvu 于 2023-2-19 14:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59806566&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-19 12:51</a>
+
+我不想要表，只想要一把宝石剑啊
+
+话说当年时臣如果也送表给麻婆呢</blockquote>
+（宝石剑在卡池里呢，图鉴里第一个三星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
+
+当年麻婆被闪闪蛊惑，确实是动了杀心的，没有剑的话估计会用戴着表的那只手一拳打爆时臣的头，然后把染过血的手表擦干净，送给凛当礼物。<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+不过手表这种对于魔术师来说华而不实的东西有可能会被凛拿去卖掉......兴许麻婆能在FSN的呆毛线少挨一刀？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
