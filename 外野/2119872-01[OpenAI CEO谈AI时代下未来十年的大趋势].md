@@ -951,3 +951,18 @@ AI能不能取代人类不好说，但是能让人类劳动岗位继续大幅减
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">一直很期待无人化餐厅 
 最理想化的程度只有一个入料口和出餐口 控制好出入口就能避免老鼠小强的污染问题了吧
 
+
+*****
+
+####  雷诺4001  
+##### 84#       发表于 2023-2-19 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59781690&amp;ptid=2119872" target="_blank">价值十块钱 发表于 2023-2-17 12:42</a>
+
+你认真回个杠精干什么 
+
+他的回复完全外行 都只是从网上道听途说的观念罢了 ...</blockquote>
+啊对对对，我就是个无业死宅，从来没有干过制造业，前面都是我编的，网上道听途说的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+只不过你们商业互吹的时候能不能买个像样点的号？一个20权限的小号可是太丢人了，没点说服力啊
+

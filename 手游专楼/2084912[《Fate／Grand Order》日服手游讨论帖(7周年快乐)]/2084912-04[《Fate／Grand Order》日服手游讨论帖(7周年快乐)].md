@@ -10077,3 +10077,19 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 虽然知道夜谈是保留节目，但2.7的夜里刚连着撩完大总统和库库尔坎，紧接着情人节就在这跟女教皇吹夜风，就突然觉得自己是个特别渣的知心大哥哥，主持午夜广播电台那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 5444#       发表于 2023-2-19 20:03
+
+<img src="https://img.saraba1st.com/forum/202302/19/200215irrrjaa99orowoqa.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230219200147.png</strong> (160.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-19 20:02 上传
+
+笑死，上油管看了个整活周回，打算抽个女教皇给陈老板当炮弹用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

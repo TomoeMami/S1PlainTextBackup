@@ -147,3 +147,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在绫总的观念里面，在别的直播间播了，或者发了歌，或者在别人的直播发评论了，或者发推了，都可以算上班打卡的一天。
 
+
+*****
+
+####  因为你不会  
+##### 14512#       发表于 2023-2-19 20:07
+
+绫总连上网就算上班了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
