@@ -3158,3 +3158,16 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 然后这地方也没处给你补血药，鸟还很喜欢上房子，体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skyfaker305  
+##### 613#       发表于 2023-2-20 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59815255&amp;ptid=2092050" target="_blank">Znesmoc 发表于 2023-2-20 01:40</a>
+
+天照守这任务重复刷就得重复看过场和QTE到底是谁想的……
+
+然后这地方也没处给你补血药，鸟还很喜欢上房子， ...</blockquote>
+听说这是联机bug，我单人打是可以跳过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
