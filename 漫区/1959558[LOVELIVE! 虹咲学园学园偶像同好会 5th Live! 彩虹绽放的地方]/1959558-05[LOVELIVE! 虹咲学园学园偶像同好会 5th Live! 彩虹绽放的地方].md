@@ -3254,3 +3254,27 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 
 不出意外，幻想着3月底有什么的才是不切实际
 
+
+*****
+
+####  ads147147  
+##### 7051#       发表于 2023-2-19 20:23
+
+灯已经知道后继者是谁了，估计这个月底也快公开了吧，下个月交接。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  とらドラ!  
+##### 7052#       发表于 2023-2-19 20:24
+
+雪菜你不要走<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7053#       发表于 2023-2-19 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
