@@ -3128,3 +3128,23 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御坂MKII  
+##### 610#       发表于 2023-2-20 01:23
+
+机关棍是一轮8种状态吗。刚打到之后稍微试了下，发下大手里剑有两种轻攻击，所以是4种武器，2个状态。一个循环长度是8？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+飞燕刀确实挺双刀的，搓背都有
+
+*****
+
+####  御坂MKII  
+##### 611#       发表于 2023-2-20 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59795620&amp;ptid=2092050" target="_blank">nightmare902015 发表于 2023-2-18 13:49</a>
+
+伞就是典型的陷阱，事实上变成了高风险慢启动低回报。这游戏你想打立回那还得是飞燕刀，把其他武器变成小丑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">伞的动作值是不是全给gp之后的反击动作了，感觉其他动作就算气槽满了也刮的不行。。
+
