@@ -1200,3 +1200,13 @@ GP上千万，不用两月就能到
 如果是已经有号想在pc端上买月卡的话，可以直接用引继码绑到steam的客户端上去，用steam的支付接口吧... ...</blockquote>
 我一开始就是在PC上玩的，打steam不能买月卡，于是就打算弄个安卓模拟器来搞……也就氪金的时候引继过去而已
 
+
+*****
+
+####  zing223  
+##### 981#       发表于 2023-2-19 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814320&amp;ptid=2050204" target="_blank">飞天意面怪 发表于 2023-2-19 23:44</a>
+我一开始就是在PC上玩的，打steam不能买月卡，于是就打算弄个安卓模拟器来搞……也就氪金的时候引继过去 ...</blockquote>
+试了下还真是...只是试过在pc和安卓机之间引继没出过问题，抱歉没有相关经验<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

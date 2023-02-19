@@ -3349,3 +3349,14 @@ twi：koaranin9981
 
 <img src="https://p.sda1.dev/10/11f443a127bae3e26a18e15dc8161c99/-58f814ad87337e98.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梶原ひかり  
+##### 7063#       发表于 2023-2-19 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 毕竟不是邦邦那时候...这是虹咲从什么都没有的17年到今天的五年光阴
+真的很难接受 因为LIVE的原因而无法再演绎雪菜..
+LIVE有这么重要吗？
+或许对于LOVELIVE来说LIVE就是一切一切的吧.
+

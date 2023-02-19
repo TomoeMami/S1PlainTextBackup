@@ -3118,3 +3118,13 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 看了一下几个视频，捏脸比猛汉好看不少但装备全包的严严实实到底是什么鬼思路<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Eadric  
+##### 609#       发表于 2023-2-20 00:01
+
+真就巨人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
