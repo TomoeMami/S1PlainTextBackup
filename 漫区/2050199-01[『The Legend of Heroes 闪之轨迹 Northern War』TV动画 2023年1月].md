@@ -6422,3 +6422,11 @@ B站港澳台：
 
 最后居然基神也有出场是真的没想到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 705#       发表于 2023-2-19 14:16
+
+为什么每一集最后都要整一个显示器强制息屏的特效，别跟我说整个这出戏也是演算出来的东西
+

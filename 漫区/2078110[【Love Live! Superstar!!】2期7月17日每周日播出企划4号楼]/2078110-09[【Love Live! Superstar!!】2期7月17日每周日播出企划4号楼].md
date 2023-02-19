@@ -3063,3 +3063,13 @@ The Tyranny of Merit.pdf
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">还是期待新专吧，没几天了
 
+
+*****
+
+####  stygian  
+##### 12301#       发表于 2023-2-19 14:15
+
+决定整谁和运营没什么关系，综艺节目整人不一定要告知本人但是肯定会和每个人的事务所经纪人对过台本确定什么能搞什么NG
+
+甚至说上这节目本身可能和运营都没什么关系，看上去可能是AB那边的コネ
+
