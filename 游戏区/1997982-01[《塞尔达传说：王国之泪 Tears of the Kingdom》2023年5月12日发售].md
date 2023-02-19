@@ -5152,3 +5152,15 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1111#       发表于 2023-2-20 06:13
+
+看塞学家分析是一回事（因为大部分都是猜测或者过度分析，图个乐），讨论实体偷跑物料（还是设定集）是另一回事……啊！
+
+如果真的想讨论可以麻烦另外开一个专帖吗<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+从现在就开始全面断网也太难受了啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
