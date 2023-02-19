@@ -3053,3 +3053,11 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
   立体机动装置这个输出循环确实简单粗暴，R2打中敌人之后的操作甚至和巨人大差不差，最后追加攻击可以打500多确实爽啊
 
+
+*****
+
+####  火红之眼  
+##### 602#       发表于 2023-2-19 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">通关后这堆要门票的任务都野不到人.....20分钟1猫就够坐牢了，solo本来输出空间就少<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
