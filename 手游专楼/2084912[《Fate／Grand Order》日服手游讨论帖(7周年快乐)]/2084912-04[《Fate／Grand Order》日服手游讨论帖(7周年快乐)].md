@@ -10024,3 +10024,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 附录SCP-FGO-1790-003：根据试验记录#FGO-1790-05，严禁Dr.Fujimaru以外的员工投喂或接触SCP-FGO-1790-2。
 
+
+*****
+
+####  gpx234mqx  
+##### 5439#       发表于 2023-2-19 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59802543&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-18 23:44</a>
+
+麻婆本来想送护身短剑的，但是为了自己的生命安全只能破费了</blockquote>
+我不想要表，只想要一把宝石剑啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
