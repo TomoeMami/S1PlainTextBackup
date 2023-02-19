@@ -4586,3 +4586,15 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 准确率 也就是多少打在了拍子上</blockquote>
 感谢，看来还是得练踩拍子<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woodcoin  
+##### 441#       发表于 2023-2-19 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59804841&amp;ptid=2116452" target="_blank">MiaoJi 发表于 2023-02-19 09:56:13</a>
+感谢，看来还是得练踩拍子</blockquote>伤害多用招后台 三个人轮流招 它们不算是拍子
+时间S很充裕 留个小怪用三连冲刺把准确率拉回来再打
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
