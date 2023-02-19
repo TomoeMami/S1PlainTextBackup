@@ -5058,3 +5058,21 @@ monster maze这边主要就在聊地下探索，绿色螺旋的作用大家探�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Adif  
+##### 1101#       发表于 2023-2-19 13:31
+
+OLED限定机可能会和最终pv一起公布吧
+
+*****
+
+####  冷泉夜月  
+##### 1102#       发表于 2023-2-19 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59807085&amp;ptid=1997982" target="_blank">Adif 发表于 2023-02-19 13:31:54</a>
+OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的限定机都是单独一个pv发出来的，估计王泪也是这个套路吧，喷喷3专属直面会是发售前一个月，那王泪的估计就是4月<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
