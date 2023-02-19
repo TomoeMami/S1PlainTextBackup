@@ -3237,3 +3237,20 @@ azn live和莲团生放(?)都捞不动你楼，令人感慨</blockquote>
 
 <img src="https://p.sda1.dev/10/8ca4ccffb775d187aaabbd8970b8f88b/CMP_20230219185858470.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7049#       发表于 2023-2-19 20:14
+
+唉，灯的最后一次生放吗。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  dozen  
+##### 7050#       发表于 2023-2-19 20:16
+
+不出意外，幻想着3月底有什么的才是不切实际
+

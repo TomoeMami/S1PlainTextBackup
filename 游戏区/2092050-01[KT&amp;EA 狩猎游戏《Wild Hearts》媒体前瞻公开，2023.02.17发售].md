@@ -3069,3 +3069,17 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 请问一下怎么和龙脉互动， 我靠近那个B龙穴没有反应。 接触龙穴这个选项也没有 是不是游戏BUG了 我刚开始玩2小时 就卡主线 
 
+
+*****
+
+####  Sheryl.Nome  
+##### 604#       发表于 2023-2-19 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59808390&amp;ptid=2092050" target="_blank">火红之眼 发表于 2023-2-19 16:07</a>
+
+通关后这堆要门票的任务都野不到人.....20分钟1猫就够坐牢了，solo本来输出空间就少
+
+------ ...</blockquote>
+
+请问一下怎么和龙脉互动， 我靠近那个B龙穴没有反应。 接触龙穴这个选项也没有 是不是游戏BUG了
+
