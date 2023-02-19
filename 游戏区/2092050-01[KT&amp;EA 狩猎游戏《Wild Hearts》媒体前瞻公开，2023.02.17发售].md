@@ -3171,3 +3171,70 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 然后这地方也没处给你补血药，鸟还很喜欢上房子， ...</blockquote>
 听说这是联机bug，我单人打是可以跳过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 614#       发表于 2023-2-20 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59815286&amp;ptid=2092050" target="_blank">skyfaker305 发表于 2023-2-20 01:47</a>
+
+听说这是联机bug，我单人打是可以跳过的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 联机的时候一个剧情都不让跳的我还是第一次见，一起的同学说，房主的我去搞任务对话的时候，就算是支线任务也会打断他当时的行为
+
+*****
+
+####  Znesmoc  
+##### 615#       发表于 2023-2-20 02:27
+
+灵机一动在多人联机的情况下就很靠运气触发，结果打个天照守半天没解锁，还坐牢一样看了好几遍动画<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+联机情况下只要有人进了特写对话就全体一起卡过去<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+还是联机，只要有人在传送前进菜单卡着不出来就剩下俩人一直黑屏坐牢等最后一个人<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+怪给的素材也是抠门的不行，完全搞不懂前期限制素材获取量干啥，一些小素材还要求玩家顺路摸一些小怪小动物<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+13700K+4070TI 2K分辨率全程CPU显卡占用不过50%，平时60-90来回跳也不稳定，雪天帧数直接爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+要不是有立体机动装置怕是早受不了了
+
+*****
+
+####  Leomai  
+##### 616#       发表于 2023-2-20 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59815175&amp;ptid=2092050" target="_blank">御坂MKII 发表于 2023-2-20 01:27</a>
+
+伞的动作值是不是全给gp之后的反击动作了，感觉其他动作就算气槽满了也刮的不行。。 ...</blockquote>
+伞最猛的动作是红伞后弹反动作（不需要成功）派生的平A连舞，最后会把伞飞出去当电锯，有一个很变态的高连击伤害。
+
+周末打了两天伞，经验就是
+
+R2弹反后派生平A连段容易攒连舞槽，高连舞状态下可以打高输出爆发。
+
+平时翻滚动作的转身，派生三角会有一个平地前冲的小钻头，位移+高伤害多hit，也是不错的打连舞槽的手段。
+
+伞在做出牛逼的增加弹反判定窗口的武器之前，要出高伤害还是要尽快学会怎么自己手打连舞，机巧派生攻击和弹反派生攻击都是不错的手段。当然最好还是GP弹个2-3次，红伞转电锯爽玩。
+
+看了下伞专属技能，主要是延长GP成功帧，减少槽消耗或者更快打出连舞槽。本质感觉就是多了GP玩法的讨鬼剃刀，如何快速打出连舞然后电锯（以前记得是电风扇？）转死怪才是主要课题
+
+*****
+
+####  御坂MKII  
+##### 617#       发表于 2023-2-20 03:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 看了视频才知道太刀的大居合也有无敌帧，喷了
+
+*****
+
+####  御坂MKII  
+##### 618#       发表于 2023-2-20 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59815468&amp;ptid=2092050" target="_blank">Leomai 发表于 2023-2-20 02:37</a>
+
+伞最猛的动作是红伞后弹反动作（不需要成功）派生的平A连舞，最后会把伞飞出去当电锯，有一个很变态的高连 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+gp起来了反击确实伤害很高，还是不太习惯，先去试试别的武器了
+

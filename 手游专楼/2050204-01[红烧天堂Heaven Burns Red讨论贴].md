@@ -1239,3 +1239,28 @@ GP上千万，不用两月就能到
 
 说起来你游同人好少...明明热度还可以？ 搜了下我cpめぐタマ开服那会儿少就算了现在还是少<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 984#       发表于 2023-2-20 02:19
+
+ 本帖最后由 zing223 于 2023-2-20 04:24 编辑 
+
+...看了下繁中的宣传片，直接把第二章透了个底朝天啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">[\s]
+似乎确实是开服剧透...那没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猴子囹圄  
+##### 985#       发表于 2023-2-20 02:42
+
+日本开服时放的cm一样剧透第二章
+
+*****
+
+####  猴子囹圄  
+##### 986#       发表于 2023-2-20 02:44
+
+开服玩到现在的号因为最近用了几次迅游10000006了，小氪过几次，看贴吧的帖子，运营不会告诉你因为犯什么事被封，还有办法挽回一些损失吗
+

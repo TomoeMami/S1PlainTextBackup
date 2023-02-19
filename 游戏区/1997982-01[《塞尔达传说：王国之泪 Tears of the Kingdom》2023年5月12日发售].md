@@ -5102,3 +5102,53 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 不过考虑到他在PV2里的台词，Ω还挺适合他身份的！
 
+
+*****
+
+####  余情自取  
+##### 1105#       发表于 2023-2-20 03:49
+
+王国之泪限定里的设定集已经被扒出来了，内含林克新衣装和一堆新怪物的设定，可能涉及严重剧透，想看的塞吧有帖子
+
+*****
+
+####  Waldeinsamkeit  
+##### 1106#       发表于 2023-2-20 03:52
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-20 03:59 编辑 
+
+瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+希望本楼大家不要讨论剧透啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 1107#       发表于 2023-2-20 04:28
+
+完了，现在透光光到发售时候就是跌落神坛了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽灵部长助理  
+##### 1108#       发表于 2023-2-20 04:46
+
+只玩过野吹又不是塞学家，看完了之后只是“哇看起来真好玩啊”并没怎么被剧透到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，当然老玩家就不要尝试了
+
+看样子整本书都会被放出来？那真的不敢看了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haixings  
+##### 1109#       发表于 2023-2-20 05:43
+
+又不是rpg，和马里奥剧透一样，看了也没影响的。
+
+*****
+
+####  GuardHei  
+##### 1110#       发表于 2023-2-20 05:51
+
+没啥剧透的，都是概念画，实际游戏里有没有都两说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
