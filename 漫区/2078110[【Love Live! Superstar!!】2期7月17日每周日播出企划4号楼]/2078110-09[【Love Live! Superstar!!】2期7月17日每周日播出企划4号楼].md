@@ -3036,3 +3036,14 @@ The Tyranny of Merit.pdf
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这企划有个屁的b数，除非两期是一起录的有的选，不然从人员安排看就只是刚好没赶上
 
+
+*****
+
+####  优妮可  
+##### 12298#       发表于 2023-2-19 08:42
+
+ 本帖最后由 优妮可 于 2023-2-19 08:48 编辑 
+<blockquote>player3960 发表于 2023-2-18 23:43
+我可不觉得运营有这么好心，要不是鲤鱼没档期，要不就是单纯没安排她，反正是不幸中的万幸 ...</blockquote>
+这次是青山 non yabu sayu pay，上次是鱼 青山 nako 熊 彩，除了青山两次，其她人只上了一次。我觉得是安排好了的，要么没有了，要么就还有至少两期。
+
