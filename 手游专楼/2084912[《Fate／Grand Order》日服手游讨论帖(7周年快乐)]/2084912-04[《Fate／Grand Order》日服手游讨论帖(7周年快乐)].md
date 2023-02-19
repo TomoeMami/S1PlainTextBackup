@@ -10119,3 +10119,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
  ...</blockquote>
 逆天的队伍
 
+
+*****
+
+####  alucardcz  
+##### 5447#       发表于 2023-2-19 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59812279&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-19 21:11</a>
+
+黑杯C呆是什么游戏理解</blockquote>
+难道不是礼装展示环节<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
