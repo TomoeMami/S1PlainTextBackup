@@ -4559,3 +4559,30 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
 
 问一下为什么打着的时候评价S，后面记分数据除了通关时间一个S都没，打架时候的评价到底根据什么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woodcoin  
+##### 439#       发表于 2023-2-19 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59803883&amp;ptid=2116452" target="_blank">MiaoJi 发表于 2023-02-19 02:51:25</a>
+问一下为什么打着的时候评价S，后面记分数据除了通关时间一个S都没，打架时候的评价到底根据什么来的 ...</blockquote>每个小关卡评价分为三项
+华丽度  右边的分数 
+准确率 也就是多少打在了拍子上
+时间 打这个检查的的用时 
+
+平时连招看到的s只是战斗风格 不代表上面任意一项
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  MiaoJi  
+##### 440#       发表于 2023-2-19 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59804821&amp;ptid=2116452" target="_blank">woodcoin 发表于 2023-2-19 09:53</a>
+每个小关卡评价分为三项
+华丽度  右边的分数 
+准确率 也就是多少打在了拍子上</blockquote>
+感谢，看来还是得练踩拍子<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
