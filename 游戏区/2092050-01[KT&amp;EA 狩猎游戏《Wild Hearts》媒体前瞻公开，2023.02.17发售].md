@@ -3102,3 +3102,11 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 能搜到连到人但一直弹连接失败，什么弱智bug<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 607#       发表于 2023-2-19 22:55
+
+该咋说呢，没想到还没一个月就能看到比engage的站桩过场更垃圾的常规剧情演出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
