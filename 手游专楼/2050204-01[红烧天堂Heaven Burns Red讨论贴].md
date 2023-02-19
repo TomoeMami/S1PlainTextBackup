@@ -1179,3 +1179,13 @@ GP上千万，不用两月就能到
 
 求教一下，这游戏能用模拟器玩吗？搞不定ios港区的绑卡了，但手里又没有安卓设备，只能这样买月卡了
 
+
+*****
+
+####  zing223  
+##### 979#       发表于 2023-2-19 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59813999&amp;ptid=2050204" target="_blank">飞天意面怪 发表于 2023-2-19 23:18</a>
+求教一下，这游戏能用模拟器玩吗？搞不定ios港区的绑卡了，但手里又没有安卓设备，只能这样买月卡了 ...</blockquote>
+可以用引继码绑到steam的客户端上去吧...？不知道港服的话怎么折腾
+
