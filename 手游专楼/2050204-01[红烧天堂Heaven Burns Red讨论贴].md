@@ -1189,3 +1189,14 @@ GP上千万，不用两月就能到
 求教一下，这游戏能用模拟器玩吗？搞不定ios港区的绑卡了，但手里又没有安卓设备，只能这样买月卡了 ...</blockquote>
 可以用引继码绑到steam的客户端上去吧...？不知道港服的话怎么折腾
 
+
+*****
+
+####  飞天意面怪  
+##### 980#       发表于 2023-2-19 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814148&amp;ptid=2050204" target="_blank">zing223 发表于 2023-2-19 23:29</a>
+
+如果是已经有号想在pc端上买月卡的话，可以直接用引继码绑到steam的客户端上去，用steam的支付接口吧... ...</blockquote>
+我一开始就是在PC上玩的，打steam不能买月卡，于是就打算弄个安卓模拟器来搞……也就氪金的时候引继过去而已
+

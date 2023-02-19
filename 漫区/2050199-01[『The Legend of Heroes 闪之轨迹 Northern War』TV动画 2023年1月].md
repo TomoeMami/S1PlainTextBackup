@@ -6440,3 +6440,11 @@ B站港澳台：
 
 莎拉你自己羁绊剧情1打9都能反杀，结果被个没脸的打飞武器，黎2金也持续掉价，是不是混不下去的才会去当游击士啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 707#       发表于 2023-2-19 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来结社这边存粹就是小丑乐子人来搞事的，没任何别的目的
+
