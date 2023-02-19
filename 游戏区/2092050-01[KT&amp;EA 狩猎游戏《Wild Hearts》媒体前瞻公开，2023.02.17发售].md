@@ -3083,3 +3083,14 @@ j今天STEAM多半差评，点进去一看D加密 + EA App + 全程联网 + 优�
 
 请问一下怎么和龙脉互动， 我靠近那个B龙穴没有反应。 接触龙穴这个选项也没有 是不是游戏BUG了
 
+
+*****
+
+####  火红之眼  
+##### 605#       发表于 2023-2-19 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59811379&amp;ptid=2092050" target="_blank">Sheryl.Nome 发表于 2023-2-19 20:15</a>
+
+请问一下怎么和龙脉互动， 我靠近那个B龙穴没有反应。 接触龙穴这个选项也没有 是不是游戏BUG了 ...</blockquote>
+不就L2调查？
+
