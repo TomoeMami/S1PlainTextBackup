@@ -106,3 +106,17 @@
 
 枪神不用枪的嘛？
 
+
+*****
+
+####  charlespfan  
+##### 310#       发表于 2023-2-19 20:52
+
+ 本帖最后由 charlespfan 于 2023-2-19 20:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59811618&amp;ptid=2076121" target="_blank">狗剩大魔王 发表于 2023-2-19 20:31</a>
+
+枪神不用枪的嘛？</blockquote>
+No,no,no，前面的楼友不是说了嘛，新版这个叫跑神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（
+
+要看枪神建议去看原作漫画、剧场版或者旧TV
+
