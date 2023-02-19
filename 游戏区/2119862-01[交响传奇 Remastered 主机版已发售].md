@@ -816,3 +816,11 @@ NS版好像有个更新补丁？但是我打了以后没看到任何优化，它
 
 虽然我玩的第一个传说就是TOS，但是这种垃圾我吃不下去，你这么喜欢薅TOS你有本事直接重制啊，辣鸡移植唬谁呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  司马千晶  
+##### 82#       发表于 2023-2-19 19:24
+
+【《刀剑神域 异绊集结》实机战斗画面宣传视频（一般战斗Ver.）-哔哩哔哩】 [https://b23.tv/ddiymn3](https://b23.tv/ddiymn3)   那个，破晓传说原本标题不会是刀剑神域吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
