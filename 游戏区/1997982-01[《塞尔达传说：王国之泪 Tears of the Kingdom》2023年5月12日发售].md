@@ -5041,3 +5041,20 @@ monster maze这边主要就在聊地下探索，绿色螺旋的作用大家探�
 
 直面会新PV出了再叫我（）
 
+
+*****
+
+####  yuwe0714  
+##### 1099#       发表于 2023-2-19 13:16
+
+专场直面会之前确实感觉没什么好分析了，可惜专场至少还要三月底<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 1100#       发表于 2023-2-19 13:20
+
+总之先指王泪OLED限定机3月8日推特发布会（X），我18年的老机子终于可以换了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
