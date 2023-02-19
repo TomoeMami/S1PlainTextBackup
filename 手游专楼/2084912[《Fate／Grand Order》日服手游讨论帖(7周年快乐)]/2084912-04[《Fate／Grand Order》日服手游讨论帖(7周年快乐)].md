@@ -10061,3 +10061,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 女帝这打灰头子的身份是甩不掉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  J-002  
+##### 5442#       发表于 2023-2-19 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻婆不一直都是随便找个凛家的古董卖吗……
+
