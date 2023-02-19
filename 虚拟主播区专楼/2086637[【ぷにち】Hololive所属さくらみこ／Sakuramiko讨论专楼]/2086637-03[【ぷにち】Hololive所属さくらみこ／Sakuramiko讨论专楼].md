@@ -15150,3 +15150,13 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 今天新闻又上TBS电视台的节目报道了
 
+
+*****
+
+####  rs5621  
+##### 4401#       发表于 2023-2-19 18:51
+
+<img src="https://p.sda1.dev/10/ab41a2b3c38c1e5209ac1d4244e33bba/CMP_20230219185044828.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
