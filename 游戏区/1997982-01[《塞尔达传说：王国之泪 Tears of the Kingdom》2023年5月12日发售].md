@@ -5328,3 +5328,23 @@ zeltk发推说他只会根据官方公布的信息做分析。
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nma  
+##### 1131#       发表于 2023-2-20 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59817046&amp;ptid=1997982" target="_blank">Gniyehz 发表于 2023-2-20 09:55</a>
+
+zeltk发推说他只会根据官方公布的信息做分析。
+
+—— 来自 Xiaomi 2211133C, Android 13上的 S1Next-鹅 ...</blockquote>
+首先是做了会吓跑一部分观众，而且万一中间被掺了假货就白做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽灵部长助理  
+##### 1132#       发表于 2023-2-20 10:12
+
+几十万的关注者，做了就直接被任天堂斩首了。
+
