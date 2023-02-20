@@ -3148,3 +3148,11 @@ DJとして #JUVENILE さんの参加も决定🎶
 
 <blockquote>他出演者见たらガチのDJイベントじゃないかｗ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 12308#       发表于 2023-2-20 19:35
+
+主页那么大的mogra几个字写着呢。。。你就当大号anikura就行了，anisong歌手过去唱几首没啥问题
+
