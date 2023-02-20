@@ -3286,3 +3286,11 @@ JUVENILE也去，应该会有改编吧
 
 下周节目上俩人都要戴个耳朵装饰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caicaistar  
+##### 12317#       发表于 2023-2-21 01:16
+
+鱼唱了君の知らない物语<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">物语粉丝很惊喜，真好，唱的也真好
+
