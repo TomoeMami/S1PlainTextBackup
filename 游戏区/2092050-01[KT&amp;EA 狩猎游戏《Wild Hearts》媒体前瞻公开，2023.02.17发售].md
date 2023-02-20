@@ -3251,3 +3251,13 @@ gp起来了反击确实伤害很高，还是不太习惯，先去试试别的武
 gp起来了反击确实伤害 ...</blockquote>
 伞等到做出增加GP判定成功时间的武器后，手感就会有飞跃了。前期水属性的飞鼠的武器有这个技能（20%），看了下油管视频，最后能加到80%左右<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  415452356  
+##### 620#       发表于 2023-2-20 12:54
+
+  进度到天照鸟了，是不是没几个怪可以打了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
