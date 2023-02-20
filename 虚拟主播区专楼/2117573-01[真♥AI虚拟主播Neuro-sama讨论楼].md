@@ -823,3 +823,17 @@ Miyune也很棒啊，很少有英V也能让人感觉如此的“二次元”（�
 
 各种逆天切片笑死
 
+
+*****
+
+####  poptopzip  
+##### 65#       发表于 2023-2-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59805270&amp;ptid=2117573" target="_blank">与天争锋_LZ 发表于 2023-2-19 10:53</a>
+【Miyune】谈谈我对Neuro-sama的看法和展望...._哔哩哔哩_bilibili
+
+https://www.bilibili.com/video/BV1ET4 ...</blockquote>
+veibae nyanners也挺二次元的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
