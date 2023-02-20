@@ -15261,3 +15261,25 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 其他的都只要几百一千
 
+
+*****
+
+####  holoan  
+##### 4410#         楼主| 发表于 2023-2-20 18:22
+
+<img src="https://img.saraba1st.com/forum/202302/20/182225rwcfrquy3mhr6d8y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-20 18:22 上传
+
+这刚联动开始一星期
+
+有的店铺的联动限定的包装袋就没了
+
+有的店是限定馅没了
+
+这下尬了不知道以后会不会补
+
