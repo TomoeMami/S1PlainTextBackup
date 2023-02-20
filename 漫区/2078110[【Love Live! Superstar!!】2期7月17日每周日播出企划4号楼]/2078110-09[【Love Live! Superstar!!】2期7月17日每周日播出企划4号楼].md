@@ -3274,3 +3274,15 @@ JUVENILE也去，应该会有改编吧
 
 2023-2-20 22:30 上传
 
+
+*****
+
+####  稀勢のささ  
+##### 12316#       发表于 2023-2-21 00:17
+
+ 本帖最后由 稀勢のささ 于 2023-2-21 00:18 编辑 
+
+今天唱了好几首，包含一首吉他伴奏的yellow
+
+下周节目上俩人都要戴个耳朵装饰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

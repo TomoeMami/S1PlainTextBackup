@@ -4792,3 +4792,11 @@ Queen的翻唱还行
 
 生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺陷电气杨永信  
+##### 13420#       发表于 2023-2-21 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">生日快乐
+
