@@ -3446,3 +3446,16 @@ LIVE有这么重要吗？
 </blockquote>
 灯比雪菜需要面对的事情多得多，尤其是现实不是虹咲学园这么理想的箱庭啊……
 
+
+*****
+
+####  ads147147  
+##### 7068#       发表于 2023-2-20 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823409&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-2-20 16:57</a>
+
+重看虹咲一期第三集...真是感慨万千
+
+雪菜：</blockquote>
+至少现在虹团line是14人，不会有人离去，这是目前最好的选择了。
+

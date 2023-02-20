@@ -659,3 +659,16 @@ k9那时还是开荒，营收太低，底薪才是大头
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ladiesman802  
+##### 3070#       发表于 2023-2-20 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59826493&amp;ptid=1926094" target="_blank">林宏 发表于 2023-2-20 21:06</a>
+
+官号怎么改名了
+
+—— 来自 S1Fun</blockquote>
+厂长说了啊，想申请蓝v，但是蓝v又不方便直播，干脆开两个号
+
