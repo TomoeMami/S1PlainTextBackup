@@ -5525,3 +5525,22 @@ B站已经一堆泄露图做成的视频了，甚至有8分钟纯享版，做的
 
 我看剧透图，感觉没什么太大影响，反而期待值更高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jtwing  
+##### 1152#       发表于 2023-2-20 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草啊   今天忙上天，终于抽时间刷一下论坛看到大家提醒有人王泪跳脸，我正跟同事笑谈此事呢一刷b站，剧透就跳我脸上了！
+
+*****
+
+####  Waldeinsamkeit  
+##### 1153#       发表于 2023-2-20 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59826354&amp;ptid=1997982" target="_blank">jtwing 发表于 2023-2-20 20:56</a>
+草啊   今天忙上天，终于抽时间刷一下论坛看到大家提醒有人王泪跳脸，我正跟同事笑谈此事呢一刷b站 ...</blockquote>
+我昨晚就把B站和油管账号全部登出保平安了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
