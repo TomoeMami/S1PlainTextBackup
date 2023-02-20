@@ -10151,3 +10151,21 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">送的30石又是毛都没出 好非啊
 
+
+*****
+
+####  v22325  
+##### 5450#       发表于 2023-2-20 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/20/090008fzzror2q5hm5w56q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-02-20-08-52-36-54.jpg</strong> (556.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-20 09:00 上传
+
+谢谢签到石，好久没双黄了，第二个彩还以为能2宝
+

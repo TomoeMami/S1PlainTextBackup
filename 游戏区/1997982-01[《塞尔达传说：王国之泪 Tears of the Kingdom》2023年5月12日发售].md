@@ -5252,3 +5252,11 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  白面互撸娃  
+##### 1122#       发表于 2023-2-20 08:59
+
+预告片放太多，等下正式发售前就被友商缝走了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
