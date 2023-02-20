@@ -15348,3 +15348,21 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 2023-2-20 21:21 上传
 
+
+*****
+
+####  holoan  
+##### 4417#         楼主| 发表于 2023-2-20 21:36
+
+<img src="https://img.saraba1st.com/forum/202302/20/213604wbvdv298ufddv4b4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-20 21:36 上传
+
+仔细看了一下
+
+哦不对不是185斤，是……
+
