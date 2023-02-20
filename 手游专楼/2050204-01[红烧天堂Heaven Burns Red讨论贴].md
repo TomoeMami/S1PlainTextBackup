@@ -1264,3 +1264,14 @@ GP上千万，不用两月就能到
 
 开服玩到现在的号因为最近用了几次迅游10000006了，小氪过几次，看贴吧的帖子，运营不会告诉你因为犯什么事被封，还有办法挽回一些损失吗
 
+
+*****
+
+####  zing223  
+##### 987#       发表于 2023-2-20 15:21
+
+ 本帖最后由 zing223 于 2023-2-20 15:24 编辑 
+
+打完了ab联动剧情...麻味纯正啊...<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+虽然对新之介的反转也在意料之中...篇幅是不是太赶了点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
