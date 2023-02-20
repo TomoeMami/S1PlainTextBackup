@@ -4784,3 +4784,11 @@ Queen的翻唱还行
 
 老麻生日快乐（虽然体调不良但也要快乐捏<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  甘栗No.007  
+##### 13419#       发表于 2023-2-21 00:00
+
+生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
