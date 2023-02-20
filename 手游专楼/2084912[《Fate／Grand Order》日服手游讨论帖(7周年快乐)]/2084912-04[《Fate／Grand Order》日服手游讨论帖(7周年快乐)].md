@@ -10169,3 +10169,16 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 谢谢签到石，好久没双黄了，第二个彩还以为能2宝
 
+
+*****
+
+####  gpx234mqx  
+##### 5451#       发表于 2023-2-20 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59800609&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-18 20:52</a>
+
+你在说啥？不是有吗？</blockquote>
+话说黑胡子被打成平面，折叠了10次
+
+这是多贱啊
+
