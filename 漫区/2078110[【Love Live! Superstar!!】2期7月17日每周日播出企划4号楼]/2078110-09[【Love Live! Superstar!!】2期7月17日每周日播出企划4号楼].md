@@ -3081,3 +3081,25 @@ The Tyranny of Merit.pdf
 
 新发型可爱🐟
 
+
+*****
+
+####  稀勢のささ  
+##### 12303#       发表于 2023-2-20 17:45
+
+ 本帖最后由 稀勢のささ 于 2023-2-20 17:49 编辑 
+
+「Music Unity 2023」DAY1メインステージに #Liyuu の出演が决定‼️
+
+DJとして #JUVENILE さんの参加も决定🎶
+
+2023年3月25日(土)
+
+开场12:00/开演13:00/闭演21:00予定
+
+会场：羽田空港第二ターミナル国际线エリア
+
+チケット贩売情报等は公式サイトをご确认ください。
+
+公式サイト：[https://mu2023.jp](https://mu2023.jp) 这下机场live了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
