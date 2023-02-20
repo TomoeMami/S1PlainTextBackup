@@ -5389,3 +5389,11 @@ zeltk发推说他只会根据官方公布的信息做分析。
 另外就是最新pv里面，新的塔下面有四个灯射向天空，感觉会不会是林克从天空降落时定位用的？就和飞机降落差不多。
 这里有没有在机场工作的，机场有类似的灯光设置定为导向吗？
 
+
+*****
+
+####  nma  
+##### 1138#       发表于 2023-2-20 13:12
+
+Zeltik和monstermaze分别用gigantic和massive形容新作，大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 印刷厂真是狗啊
+
