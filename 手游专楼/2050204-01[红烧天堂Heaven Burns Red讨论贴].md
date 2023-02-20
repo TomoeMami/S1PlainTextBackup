@@ -1313,3 +1313,14 @@ GP上千万，不用两月就能到
 
 虽然不知道为什么 但有的加速器就是必封 没解的可能
 
+
+*****
+
+####  范坚强  
+##### 990#       发表于 2023-2-20 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814890&amp;ptid=2050204" target="_blank">鱼飞卡斯泰露 发表于 2023-2-20 00:46</a>
+
+说起来你游同人好少...明明热度还可以？ 搜了下我cpめぐタマ开服那会儿少就算了现在还是少 ...</blockquote>
+官方玩遍各种梗逼死同人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

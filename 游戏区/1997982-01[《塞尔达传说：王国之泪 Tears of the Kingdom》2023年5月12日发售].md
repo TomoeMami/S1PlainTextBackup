@@ -5442,3 +5442,48 @@ edit: 朋友说，我除了XXX看到的XXX啥也没记住……
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  中野梓  
+##### 1143#       发表于 2023-2-20 16:40
+
+3个月，我觉得躲不掉了
+
+*****
+
+####  downnote  
+##### 1144#       发表于 2023-2-20 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59820379&amp;ptid=1997982" target="_blank">王二黑 发表于 2023-2-20 13:20</a>
+
+泄露的应该是豪华限定版附赠的美术集，里面的内容应该是没有废案的。等之后发售的大师之书里估计能有废案 ...</blockquote>
+应该是没有完全抛弃的废案，但是有些图是提供了设计过程中新旧多个方案，这样旧的就算是“废案”了吧。
+
+*****
+
+####  Waldeinsamkeit  
+##### 1145#       发表于 2023-2-20 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823076&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-20 16:36</a>
+
+B站已经一堆泄露图做成的视频了，甚至有8分钟纯享版，做的人还是个老任饭
+
+  -- 来自 有消息提醒的  ...</blockquote>
+这些我都自我封印了，我万万没想到能有认识的人链接甩脸而且还是剧透了……………………
+
+我想把微信名改成“提totk就拉黑”了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 1146#       发表于 2023-2-20 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823146&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-20 16:41:20</a>
+这些我都自我封印了，我万万没想到能有认识的人链接甩脸而且还是剧透了……………………
+
+我想把微信名改 ...</blockquote>我早上犹豫了一下还是去看了，因为感觉太难避免被透了，与其被人无意间剧透，不如自己快速过一遍，所谓——你透你的，我看我的，以我为主，保持主动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+而且，早看早忘（好的现在忘不掉了）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
