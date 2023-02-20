@@ -15205,3 +15205,21 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 看了新的推,私下还要玩,楼友还不如期待她早点通关换游戏得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 4406#         楼主| 发表于 2023-2-20 11:07
+
+[https://prtimes.jp/main/html/rd/p/000000899.000030268.html](https://prtimes.jp/main/html/rd/p/000000899.000030268.html)
+
+联动直播22号19点
+
+<img src="https://img.saraba1st.com/forum/202302/20/110703eftjwxhfoh43xhhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-20 11:07 上传
+
