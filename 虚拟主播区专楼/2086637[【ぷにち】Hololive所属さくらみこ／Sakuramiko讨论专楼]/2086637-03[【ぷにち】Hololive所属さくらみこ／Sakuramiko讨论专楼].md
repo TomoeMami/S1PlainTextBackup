@@ -15241,3 +15241,13 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 致死量
 
+
+*****
+
+####  rs5621  
+##### 4408#       发表于 2023-2-20 15:21
+
+这工商的车好贵
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
