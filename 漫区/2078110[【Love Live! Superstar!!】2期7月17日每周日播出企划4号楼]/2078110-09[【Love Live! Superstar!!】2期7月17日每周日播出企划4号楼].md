@@ -3252,3 +3252,11 @@ JUVENILE也去，应该会有改编吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能把hori pro的服装师拖出去打一顿吗，老是安排鲤鱼穿这种夸张复古味的衣服
 
+
+*****
+
+####  稀勢のささ  
+##### 12314#       发表于 2023-2-20 22:17
+
+这节目介绍的好正经啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
