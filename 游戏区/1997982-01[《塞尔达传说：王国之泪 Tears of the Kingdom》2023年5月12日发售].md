@@ -5260,3 +5260,27 @@ OLED限定机可能会和最终pv一起公布吧</blockquote>喷喷3和朱紫的
 
 预告片放太多，等下正式发售前就被友商缝走了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anselmus  
+##### 1123#       发表于 2023-2-20 09:14
+
+只能说就那样吧，大师剑都没有。
+
+*****
+
+####  十字骷髅高达  
+##### 1124#       发表于 2023-2-20 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完设定集，感觉只是冰山一角，还藏了好多
+
+*****
+
+####  冷泉夜月  
+##### 1125#       发表于 2023-2-20 09:17
+
+确实透了，但是藏的更多，最关键的大师剑新形态都没有<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
