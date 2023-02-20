@@ -10210,3 +10210,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此时的萌新正在想几天后能不能让绿王2宝
 
+
+*****
+
+####  qixinno2  
+##### 5454#       发表于 2023-2-20 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59821070&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-20 14:13</a>
+
+此时的萌新正在想几天后能不能让绿王2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好羡慕狗萌新 我也想这么欧
+
