@@ -5397,3 +5397,11 @@ zeltk发推说他只会根据官方公布的信息做分析。
 
 Zeltik和monstermaze分别用gigantic和massive形容新作，大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 印刷厂真是狗啊
 
+
+*****
+
+####  zzzplht  
+##### 1139#       发表于 2023-2-20 13:13
+
+画集里很多都是废案
+
