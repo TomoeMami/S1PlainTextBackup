@@ -531,3 +531,15 @@ BTW这个舍友当年给我起的外号是“奶奶”，婚礼上我这个“�
 其实我一直觉得，感情只是用心是不够的，还得用脑子，指望自己碰上一个天生就百分百契合自己的满意的伴侣是 ...</blockquote>
 太特么真实了cao 这是言情故事里从来不会讲的
 
+
+*****
+
+####  纯情小鸭鸭  
+##### 67#       发表于 2023-2-20 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59752233&amp;ptid=2119643" target="_blank">mayox 发表于 2023-2-15 09:22</a>
+
+其实我一直觉得，感情只是用心是不够的，还得用脑子，指望自己碰上一个天生就百分百契合自己的满意的伴侣是 ...</blockquote>
+请看一下pm。
+[@mayox](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=237470)
+

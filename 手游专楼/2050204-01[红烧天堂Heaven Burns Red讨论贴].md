@@ -1275,3 +1275,41 @@ GP上千万，不用两月就能到
 打完了ab联动剧情...麻味纯正啊...<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 虽然对新之介的反转也在意料之中...篇幅是不是太赶了点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猴子囹圄  
+##### 988#       发表于 2023-2-20 16:22
+
+お客さま
+
+「ヘブンバーンズレッド」をご利用いただきありがとうございます。
+
+ヘブンバーンズレッド 运営事务局です。
+
+お客さまのアカウントを确认したところ、规约に抵触していることを确认いたしました。
+
+そのため、ご利用を停止としておりますこと、ご理解赐りますようお愿いいたします。
+
+なお、アカウント停止理由の个别回答はできかねます。
+
+データ復旧対応もお受けいたしかねますこと、あしからずご了承ください。
+
+皆さまに<strong>安心安全</strong><img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">についてご利用いただくための対応となっておりますこと、ご理解のほどお愿いいたします。
+
+引き続き、「ヘブンバーンズレッド」をよろしくお愿いいたします。
+
+*****
+
+####  alucardcz  
+##### 989#       发表于 2023-2-20 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59822822&amp;ptid=2050204" target="_blank">猴子囹圄 发表于 2023-2-20 16:22</a>
+
+お客さま
+
+「ヘブンバーンズレッド」をご利用いただきありがとうございます。</blockquote>
+你可能忘记了ourplay的惨案
+
+虽然不知道为什么 但有的加速器就是必封 没解的可能
+
