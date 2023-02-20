@@ -3373,3 +3373,16 @@ LIVE有这么重要吗？
 
 —— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 7065#       发表于 2023-2-20 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814487&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-2-19 23:58</a>
+毕竟不是邦邦那时候...这是虹咲从什么都没有的17年到今天的五年光阴
+真的很难接受 因为LIVE的原因 ...</blockquote>
+对于代哥来说是吧，愈发觉得虹s1e3那句不去lovelive不就好了的可贵。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
