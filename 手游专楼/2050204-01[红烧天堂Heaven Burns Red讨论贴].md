@@ -1324,3 +1324,29 @@ GP上千万，不用两月就能到
 说起来你游同人好少...明明热度还可以？ 搜了下我cpめぐタマ开服那会儿少就算了现在还是少 ...</blockquote>
 官方玩遍各种梗逼死同人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猴子囹圄  
+##### 991#       发表于 2023-2-20 18:14
+
+ 本帖最后由 猴子囹圄 于 2023-2-20 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59822822&amp;ptid=2050204" target="_blank">猴子囹圄 发表于 2023-2-20 16:22</a>
+
+お客さま
+
+「ヘブンバーンズレッド」をご利用いただきありがとうございます。</blockquote>
+日本でも消费者の基本的な知らされる権利が保障されると思いましたが、それならもっと安心安全できますけど、しょうがないですね
+
+*****
+
+####  猴子囹圄  
+##### 992#       发表于 2023-2-20 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59822950&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-20 16:30</a>
+
+你可能忘记了ourplay的惨案
+
+虽然不知道为什么 但有的加速器就是必封 很谜</blockquote>
+开服时迅游没提供hbr的加速服务，后来就没关注了
+
