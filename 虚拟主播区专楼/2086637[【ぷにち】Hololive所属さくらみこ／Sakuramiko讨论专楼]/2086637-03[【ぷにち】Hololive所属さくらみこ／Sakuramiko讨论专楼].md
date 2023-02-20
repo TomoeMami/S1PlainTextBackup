@@ -15291,3 +15291,13 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 这周妈妈生日会来自己家里过生日
 
+
+*****
+
+####  rs5621  
+##### 4412#       发表于 2023-2-20 20:20
+
+好久没听到这地雷歌了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

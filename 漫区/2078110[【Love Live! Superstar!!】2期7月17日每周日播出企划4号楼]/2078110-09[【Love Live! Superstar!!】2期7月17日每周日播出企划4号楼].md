@@ -3156,3 +3156,16 @@ DJとして #JUVENILE さんの参加も决定🎶
 
 主页那么大的mogra几个字写着呢。。。你就当大号anikura就行了，anisong歌手过去唱几首没啥问题
 
+
+*****
+
+####  伊卡石  
+##### 12309#       发表于 2023-2-20 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59824198&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-20 17:45</a>
+
+「Music Unity 2023」DAY1メインステージに #Liyuu の出演が决定‼️
+
+DJとして #JUVENILE さんの参加も决定 ...</blockquote>
+JUVENILE也去，应该会有改编吧
+
