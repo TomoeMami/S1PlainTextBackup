@@ -10221,3 +10221,13 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 此时的萌新正在想几天后能不能让绿王2宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好羡慕狗萌新 我也想这么欧
 
+
+*****
+
+####  eilot  
+##### 5455#       发表于 2023-2-20 17:37
+
+昨天的30石再加10张符抽卡连池
+
+1隻雨神(NEW)
+

@@ -2272,3 +2272,13 @@ myy不上过热搜吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 虹en4期和KFC联动，上周听见还以为是假消息，今天图都漏完了
 
+
+*****
+
+####  cckuku  
+##### 151#       发表于 2023-2-20 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823963&amp;ptid=2117684" target="_blank">alcoholic1000 发表于 2023-2-20 17:28</a>
+ 虹en4期和KFC联动，上周听见还以为是假消息，今天图都漏完了</blockquote>
+那个消息挺早就看到有人在说了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不是上周。
+
