@@ -3238,3 +3238,16 @@ R2弹反后派生平A连段容易攒连舞槽，高连舞状态下可以打高�
 
 gp起来了反击确实伤害很高，还是不太习惯，先去试试别的武器了
 
+
+*****
+
+####  Leomai  
+##### 619#       发表于 2023-2-20 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59815529&amp;ptid=2092050" target="_blank">御坂MKII 发表于 2023-2-20 03:10</a>
+
+伞的gp还不是很习惯，总感觉有些怪，换伞的第一把直接三猫回家了
+
+gp起来了反击确实伤害 ...</blockquote>
+伞等到做出增加GP判定成功时间的武器后，手感就会有飞跃了。前期水属性的飞鼠的武器有这个技能（20%），看了下油管视频，最后能加到80%左右<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
