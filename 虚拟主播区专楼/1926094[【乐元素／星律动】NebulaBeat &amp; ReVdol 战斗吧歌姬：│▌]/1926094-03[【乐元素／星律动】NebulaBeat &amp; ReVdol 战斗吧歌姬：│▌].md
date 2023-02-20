@@ -672,3 +672,11 @@ k9那时还是开荒，营收太低，底薪才是大头
 —— 来自 S1Fun</blockquote>
 厂长说了啊，想申请蓝v，但是蓝v又不方便直播，干脆开两个号
 
+
+*****
+
+####  MinFOrder  
+##### 3071#       发表于 2023-2-20 22:26
+
+一个星律动有限公司企业号，一个星律动虚拟主播企划号，感觉挺好理解的，不知道为什么这么多人发散<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">手里掌握一个蓝v企业号应该在卖货、抽实体礼物或者投诉维权这些方面更容易吧
+
