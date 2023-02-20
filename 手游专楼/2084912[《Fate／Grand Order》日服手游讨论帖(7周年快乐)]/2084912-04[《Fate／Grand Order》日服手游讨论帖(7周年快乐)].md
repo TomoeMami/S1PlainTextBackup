@@ -10202,3 +10202,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 蓝卡，为你拯救仓管
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5453#       发表于 2023-2-20 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此时的萌新正在想几天后能不能让绿王2宝
+
