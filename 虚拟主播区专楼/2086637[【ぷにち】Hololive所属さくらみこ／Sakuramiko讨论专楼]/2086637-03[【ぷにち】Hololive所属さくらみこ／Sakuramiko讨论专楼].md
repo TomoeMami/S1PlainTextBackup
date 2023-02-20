@@ -15410,3 +15410,58 @@ taiyaki的联动过于火以至于影响到了一般顾客的体验
 
 笑了，写个早安推这么纠结
 
+
+*****
+
+####  holoan  
+##### 4423#         楼主| 发表于 2023-2-20 23:43
+
+明天5点35闹钟
+
+*****
+
+####  holoan  
+##### 4424#         楼主| 发表于 2023-2-20 23:43
+
+大名人的烦恼
+
+写个推特要考虑1小时
+
+*****
+
+####  rs5621  
+##### 4425#       发表于 2023-2-20 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉楼友又要被气死了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 4426#       发表于 2023-2-20 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59828534&amp;ptid=2086637" target="_blank">holoan 发表于 2023-2-20 23:43</a>
+大名人的烦恼
+
+写个推特要考虑1小时</blockquote>
+草，闲的慌
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4427#         楼主| 发表于 2023-2-20 23:47
+
+观光大使的凌晨3点的东京
+
+*****
+
+####  holoan  
+##### 4428#         楼主| 发表于 2023-2-20 23:51
+
+难得有这么闲的时候能和自己的粉丝闹着玩
+
+也是fansa的一种了
+
