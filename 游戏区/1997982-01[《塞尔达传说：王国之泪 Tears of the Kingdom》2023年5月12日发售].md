@@ -5314,3 +5314,17 @@ zeltik这些人会根据泄露内容做视频吗？毕竟是无法证实的
 
 还是有不少可以看的，比如说之前pv2女性的设定图......不过往好的方面想，反正限定艺术集本来就是和游戏同时拿到的，看着艺术集再玩游戏应该也没什么关系，所以重点内容应该是不会放在艺术集里面的吧
 
+
+*****
+
+####  Gniyehz  
+##### 1130#       发表于 2023-2-20 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59816972&amp;ptid=1997982" target="_blank">nma 发表于 2023-2-20 09:50</a>
+zeltik这些人会根据泄露内容做视频吗？毕竟是无法证实的</blockquote>
+<img src="https://p.sda1.dev/10/fa63bdfcfeac6b3b191ca7f206c97786/CMP_20230220095437556.png" referrerpolicy="no-referrer">
+
+zeltk发推说他只会根据官方公布的信息做分析。
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
