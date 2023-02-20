@@ -1350,3 +1350,11 @@ GP上千万，不用两月就能到
 虽然不知道为什么 但有的加速器就是必封 很谜</blockquote>
 开服时迅游没提供hbr的加速服务，后来就没关注了
 
+
+*****
+
+####  白帽子  
+##### 993#       发表于 2023-2-20 21:58
+
+刚开始玩，这主角团怎么大嗓门的那么多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
