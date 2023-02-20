@@ -5415,3 +5415,30 @@ Zeltik和monstermaze分别用gigantic和massive形容新作，大的要来了<im
 画集里很多都是废案</blockquote>
 泄露的应该是豪华限定版附赠的美术集，里面的内容应该是没有废案的。等之后发售的大师之书里估计能有废案内容
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1141#       发表于 2023-2-20 16:35
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-20 16:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才一个朋友直接甩我一个小红书链接，收到消息就有不好预感，瞥了一眼标题，居然都把泄露图做成视频了……（还好标题也没提什么核心内容）
+
+朋友还笑呵呵说来看粉丝恶搞作，我……我现在就这表情：<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+edit: 朋友说，我除了XXX看到的XXX啥也没记住……
+
+我：……………………你这不是还是剧透我了吗啊啊啊啊啊啊？？？？？
+
+我想死<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 1142#       发表于 2023-2-20 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823050&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-02-20 16:35:33</a></blockquote>B站已经一堆泄露图做成的视频了，甚至有8分钟纯享版，做的人还是个老任饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
