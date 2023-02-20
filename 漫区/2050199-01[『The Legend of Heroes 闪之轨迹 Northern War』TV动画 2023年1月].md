@@ -6475,3 +6475,18 @@ B站港澳台：
 莎拉你自己羁绊剧情1打9都能反杀，结果被个没脸的打飞武器，黎2金也持续掉价，是不 ...</blockquote>
 莎拉这时候才十几岁，当A级都24岁了。金在黎2主要吃了老实人的亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三友非三清  
+##### 710#       发表于 2023-2-21 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59813902&amp;ptid=2050199" target="_blank">上坂莲华 发表于 2023-2-19 23:11</a>
+
+最年轻的A级游击士（笑
+
+莎拉你自己羁绊剧情1打9都能反杀，结果被个没脸的打飞武器，黎2金也持续掉价，是不 ...</blockquote>
+莎拉表现其实一直挺那啥的
+
+闪2主线莎拉单挑5个北猎高级猎兵，只能打的两败俱伤。。
+

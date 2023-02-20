@@ -4856,3 +4856,20 @@ Queen的翻唱还行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">又老了一岁，再也不能装嫩了
 
+
+*****
+
+####  呓亘  
+##### 13425#       发表于 2023-2-21 02:11
+
+小麻生日快乐！！！
+
+*****
+
+####  掉头学姐  
+##### 13426#       发表于 2023-2-21 05:49
+
+老麻生日快乐
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10250,3 +10250,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 麻婆声音是不是感觉老了好多啊，拉斯普京没抽到,库库尔坎的情人节剧情里一听哑的不行了…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">快70了，不老才不正常啊
 
+
+*****
+
+####  DARKGRAY  
+##### 5458#       发表于 2023-2-21 02:46
+
+劣化好久了吧其实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
