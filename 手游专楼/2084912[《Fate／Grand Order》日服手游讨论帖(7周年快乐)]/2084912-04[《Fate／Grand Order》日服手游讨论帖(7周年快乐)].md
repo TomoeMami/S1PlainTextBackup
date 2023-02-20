@@ -10182,3 +10182,23 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 这是多贱啊
 
+
+*****
+
+####  exiaexa  
+##### 5452#       发表于 2023-2-20 12:14
+
+ 本帖最后由 exiaexa 于 2023-2-20 12:21 编辑 
+
+草，刚才用了下琼安+烟雾镜
+
+然后突然发现不需要好友的烟雾镜了，还不锁战续，烟雾镜是40攻，琼安是20攻20魔放
+
+只不过仅限活动打地铺，抽的时候完全没反应起来这也是个40充
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+20+20+30+10
+
+蓝卡，为你拯救仓管
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
