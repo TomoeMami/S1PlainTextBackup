@@ -864,3 +864,11 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 
 柯蕾特 cv 大冢明夫    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再多来点，游戏有变黄金之风的潜质，是好事。
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 87#       发表于 2023-2-21 13:28
+
+等实体版暴跌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

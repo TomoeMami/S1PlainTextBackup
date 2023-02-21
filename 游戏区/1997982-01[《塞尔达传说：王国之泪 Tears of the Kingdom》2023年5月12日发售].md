@@ -5744,3 +5744,23 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1173#       发表于 2023-2-21 13:27
+
+所以我虽然有B站号还偶尔上传点林塞视频，但我从来不在B站看任何塞尔达相关视频也没关注任何相关up<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+出于本能不信任，毕竟已经是无授权转载啊，抄袭洗稿啊，还有强行往自己脸上贴金的重灾区了，我是真的不信在流量面前，这些人能守规矩不心动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然油管上乌七八糟的也挺多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正直到发售前，这些人估计都跟见了尸体的秃鹫一样蹭热度抢流量强度拉满（特别是偷跑出来后），普通人届时真的只能断网保平安了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  为了mf注册  
+##### 1174#       发表于 2023-2-21 13:29
+
+有人知道现在哪个平台上预定典藏版加上限定机比较划算吗？最好是国内的
+
