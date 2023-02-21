@@ -3531,3 +3531,18 @@ yellow mv出了这要是打铁上打铁大叔们确实要疯的
 青山是艺名，怎么可能，本名是齐藤啊</blockquote>
 把这茬给忘了，年龄什么的也都对不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 12341#       发表于 2023-2-21 15:50
+
+<blockquote>引用第12337楼qty于2023-02-21 13:30发表的  :
+
+看完还是感觉青山确实没什么表演天赋，大部分时间的表演都显得过于刻意，不够自然。</blockquote>
+@qty
+
+毕竟在演戏这块，完全是素人，多练练就好了。不过机会好像不多，毕竟从偶像声优这条塞到去到演员的赛道。不知道青山有没有想去舞台剧。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
