@@ -10514,3 +10514,39 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 让你们再看不起当期up</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一被全克制的就是普通BB 
 
+
+*****
+
+####  Jamaisvu  
+##### 5482#       发表于 2023-2-21 23:47
+
+分享个傻事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">：看泳装武则天礼物剧情时因为网速不太好，立绘变成了除脸之外都是黑色，还以为是什么特别演出，感觉挺色的...
+
+然后因为太卡重开了一遍，看回放时发现只是正常的立绘没加载出来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/21/234545h3yugiyoyp0xou4y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230221_213443_com.aniplex.fategrandorder.jpg</strong> (242.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 23:45 上传
+
+<img src="https://img.saraba1st.com/forum/202302/21/234547arxxcwnrxum4xwz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230221_233921_com.aniplex.fategrandorder.jpg</strong> (264.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 23:45 上传
+
+*****
+
+####  xunit  
+##### 5483#       发表于 2023-2-21 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59840464&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-21 23:47</a>
+
+分享个傻事：看泳装武则天礼物剧情时因为网速不太好，立绘变成了除脸之外都是黑色，还以为是什么特 ...</blockquote>
+草，BGO限时体验<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
