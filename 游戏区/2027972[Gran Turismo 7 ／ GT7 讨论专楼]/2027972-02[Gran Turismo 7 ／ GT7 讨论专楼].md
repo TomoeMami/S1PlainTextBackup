@@ -58,3 +58,15 @@ ai是限时活动的样子，估计就训练了那几条赛道，期待效果
 
 eurogamer的实机试玩，可以把进度条拖到前面一些[https://www.youtube.com/watch?v=3ZY6QDhux_8](https://www.youtube.com/watch?v=3ZY6QDhux_8)
 
+
+*****
+
+####  一个陆仁贾  
+##### 1732#       发表于 2023-2-22 00:08
+
+更新物理没变吧，感觉有点不适应啊
+
+1v1都是给难操控的街车，根本看不出ai强在哪<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
