@@ -5724,3 +5724,13 @@ BOTW这套物理引擎带来的玩法是组合式的，上限取决于玩家的�
 totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧透程度差不多。我觉得不用太夸大了。
 <img src="https://www.gameinformer.com/s3/files/styles/body_default/s3/legacy-images/imagefeed/Everything%20We%20Know%20About%20The%20Legend%20Of%20Zelda%3A%20Breath%20Of%20The%20Wild%E2%80%99s%20Dungeons/botwdungeon_5F00_610.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1171#       发表于 2023-2-21 13:10
+
+我觉得那个什么公羽到时候绝对会偷跑放视频....
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
