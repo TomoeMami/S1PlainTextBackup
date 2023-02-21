@@ -2332,3 +2332,23 @@ VOX的原因吧，5缺1<img src="https://static.saraba1st.com/image/smiley/face2
 
 最协好耶，就爱看纯管人的比赛
 
+
+*****
+
+####  格林卡罗尔  
+##### 158#       发表于 2023-2-21 19:32
+
+cr ow2也要开始了 selly兜兜转转还是得打ow真是笑死
+
+今年最协AkukinMaster已不再，恐怕难复去年风光，不过还是希望葛皇也能像去年一样开几个星期自定义就好了
+
+*****
+
+####  FCCHua  
+##### 159#       发表于 2023-2-21 19:38
+
+ 本帖最后由 FCCHua 于 2023-2-21 19:39 编辑 
+
+hnn2月底到3月初好忙，新衣服，cr杯，SBI比赛
+4月的最协也安定参加<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
