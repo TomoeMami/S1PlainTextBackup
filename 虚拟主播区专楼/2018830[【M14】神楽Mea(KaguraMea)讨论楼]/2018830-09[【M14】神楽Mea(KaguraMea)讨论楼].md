@@ -4881,3 +4881,13 @@ Queen的翻唱还行
 
 生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  往世雷书  
+##### 13428#       发表于 2023-2-21 08:27
+
+生日快乐，世界因她而精彩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
