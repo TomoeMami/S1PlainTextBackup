@@ -2282,3 +2282,11 @@ myy不上过热搜吗<img src="https://static.saraba1st.com/image/smiley/face201
  虹en4期和KFC联动，上周听见还以为是假消息，今天图都漏完了</blockquote>
 那个消息挺早就看到有人在说了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不是上周。
 
+
+*****
+
+####  格林卡罗尔  
+##### 152#       发表于 2023-2-21 15:40
+
+这离计划的活动时间就剩一周了还没宣传，看起来怕是要延期了
+
