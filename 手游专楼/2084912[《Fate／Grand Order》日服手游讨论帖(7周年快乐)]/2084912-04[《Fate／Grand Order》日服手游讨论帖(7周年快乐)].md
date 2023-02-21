@@ -10335,3 +10335,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  DARKGRAY  
+##### 5464#       发表于 2023-2-21 11:28
+
+现在还得从15年算起那一搞不好这么多年连第一部实际上一直都是在迦勒底亚斯的地球里做的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

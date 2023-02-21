@@ -3432,3 +3432,17 @@ nagi和鱼对视跑开之后，远景一拉鱼那个位置是不是根本没人�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starring  
+##### 12331#       发表于 2023-2-21 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832079&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-21 11:07</a>
+yellow mv出了这要是打铁上打铁大叔们确实要疯的
+
+草  Cast：Nagisa Aoyama, Ryota Aoyama
+
+这不会是n ...</blockquote>
+连买东西的店员是男性也不行，打铁要是出演这MV还跟男演员挽手，伊达大叔要原地爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
