@@ -10467,3 +10467,24 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 就BB一个人属性，不给BB很难收场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5478#       发表于 2023-2-21 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59837813&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2023-2-21 19:14</a>
+
+就BB一个人属性，不给BB很难收场</blockquote>
+为啥不能是院院
+
+*****
+
+####  DARKGRAY  
+##### 5479#       发表于 2023-2-21 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59837941&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-21 19:25</a>
+
+为啥不能是院院</blockquote>
+被自带严重稀释的卵用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
