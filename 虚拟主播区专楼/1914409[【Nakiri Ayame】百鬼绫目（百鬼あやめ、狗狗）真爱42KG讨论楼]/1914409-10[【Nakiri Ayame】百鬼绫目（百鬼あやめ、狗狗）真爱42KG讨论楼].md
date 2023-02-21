@@ -187,3 +187,18 @@
 
 那绫总这个月提前宣布烂掉
 
+
+*****
+
+####  stedckk  
+##### 14517#       发表于 2023-2-21 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总宣布不再播宝可梦，这是被指示厨搞烦了么，这也不想播那也不想播，歌回老本行也丢了，那你到底还能播什么，索性不播了是吧。
+
+*****
+
+####  Map-2  
+##### 14518#       发表于 2023-2-21 20:07
+
+有些楼友明明知道能播什么还问<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
