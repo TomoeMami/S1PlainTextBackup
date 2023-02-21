@@ -3478,3 +3478,13 @@ yellow mv出了这要是打铁上打铁大叔们确实要疯的
 
 <blockquote>なぎ推しだけどぶっちゃけハグか手繋ぎくらいは期待してた</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 12336#       发表于 2023-2-21 12:50
+
+mv真棒，剧情+外景就是好啊，比摄影棚k歌试的MV好多了。打光和滤镜也舒服，citypop？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

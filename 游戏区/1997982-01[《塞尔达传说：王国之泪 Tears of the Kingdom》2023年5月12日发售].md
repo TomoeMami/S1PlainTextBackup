@@ -5709,3 +5709,18 @@ b站有什么能拉黑up从此再也看不到它的办法吗，我真的不想�
 
 BOTW这套物理引擎带来的玩法是组合式的，上限取决于玩家的想象力和对游戏机制的理解是否通透，是无法被剧透的。
 
+
+*****
+
+####  竜破斬  
+##### 1170#       发表于 2023-2-21 12:46
+
+ 本帖最后由 竜破斬 于 2023-2-21 12:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59833188&amp;ptid=1997982" target="_blank">panda_vs_panda 发表于 2023-2-21 12:28</a>
+
+游戏里的各种初见体验，官方初期一点没透，正式游戏时看到各种奇观，惊喜一波又一波 ...</blockquote>
+我主要针对他说的从山洞出来例子而已。
+
+totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧透程度差不多。我觉得不用太夸大了。
+<img src="https://www.gameinformer.com/s3/files/styles/body_default/s3/legacy-images/imagefeed/Everything%20We%20Know%20About%20The%20Legend%20Of%20Zelda%3A%20Breath%20Of%20The%20Wild%E2%80%99s%20Dungeons/botwdungeon_5F00_610.jpg" referrerpolicy="no-referrer">
+
