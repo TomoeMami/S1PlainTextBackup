@@ -837,3 +837,11 @@ veibae nyanners也挺二次元的<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  IornMilk_铁牛奶  
+##### 66#       发表于 2023-2-21 15:09
+
+昨晚的煮饭联动非常精彩 【Neuro-sama/Onigiri 非常好AI，走进寻常家！做饭联动之 买菜篇！】 [https://www.bilibili.com/video/B ... 3c366914fe267db0816](https://www.bilibili.com/video/BV1rj411P7FT/?share_source=copy_web&amp;vd_source=da809eef517a73c366914fe267db0816)
+

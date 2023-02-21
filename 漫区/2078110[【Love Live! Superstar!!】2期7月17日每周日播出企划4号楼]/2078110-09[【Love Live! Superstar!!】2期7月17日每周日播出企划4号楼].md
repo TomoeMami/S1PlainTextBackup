@@ -3506,3 +3506,28 @@ mv真棒，剧情+外景就是好啊，比摄影棚k歌试的MV好多了。打�
 
 看完还是感觉青山确实没什么表演天赋，大部分时间的表演都显得过于刻意，不够自然。
 
+
+*****
+
+####  星降る森  
+##### 12339#       发表于 2023-2-21 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832079&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-21 11:07</a>
+
+yellow mv出了这要是打铁上打铁大叔们确实要疯的
+
+草  Cast：Nagisa Aoyama, Ryota Aoyama
+
+这不会是n ...</blockquote>
+青山是艺名，怎么可能，本名是齐藤啊
+
+*****
+
+####  稀勢のささ  
+##### 12340#       发表于 2023-2-21 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59834907&amp;ptid=2078110" target="_blank">星降る森 发表于 2023-2-21 15:06</a>
+
+青山是艺名，怎么可能，本名是齐藤啊</blockquote>
+把这茬给忘了，年龄什么的也都对不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
