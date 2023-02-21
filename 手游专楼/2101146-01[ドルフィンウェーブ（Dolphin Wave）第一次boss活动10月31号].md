@@ -15,3 +15,11 @@
 
 这次魔法少女强度直接把炎上子和中二爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羽出  
+##### 282#       发表于 2023-2-21 21:06
+
+这游戏目前营收如何，能活过一年吗
+
