@@ -3312,3 +3312,11 @@ JUVENILE也去，应该会有改编吧
 
 yellow的MV今天该放出来了吧，cd明天就卖了喂！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 12320#       发表于 2023-2-21 09:47
+
+中午的好消息会是公布yellow的mv吧，要是巡演的线上也能公布就好了
+
