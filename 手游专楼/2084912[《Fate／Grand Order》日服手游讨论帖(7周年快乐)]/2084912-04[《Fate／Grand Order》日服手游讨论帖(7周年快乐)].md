@@ -10297,3 +10297,31 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 那个手表有群友说是奥尔加所长的手表</blockquote>
 表针停在2015年，那年所长死了
 
+
+*****
+
+####  Jamaisvu  
+##### 5462#       发表于 2023-2-21 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59831286&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2023-2-21 10:10</a>
+
+那个手表有群友说是奥尔加所长的手表</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/21/102938gb93a1ri1bz6y77i.jpg" referrerpolicy="no-referrer">
+
+<strong>221.jpg</strong> (179.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 10:29 上传
+
+翻了下设定集，奥尔加玛丽好像没有戴手表的习惯？而且买表也不一定买男女兼用款的吧...
+
+麻婆礼物所谓的冻结在2015年的时间应该指的是2015.7.30，FGO开服，人理烧却开始的时间。
+
+虽说那天是奥尔加玛丽的忌日，但她也没留下什么东西吧。
+
+这个时间应该指的是FGO世界线与主世界发生巨大分歧的节点，堪称“命运停驻之日”。
+
+...总不能是麻婆去迦勒底亚斯51区接机的时候从研究所顺的吧...难道麻婆喜欢变卖扶养对象资产的坏毛病是改不掉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
