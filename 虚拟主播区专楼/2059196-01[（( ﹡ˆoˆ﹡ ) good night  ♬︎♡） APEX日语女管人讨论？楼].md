@@ -30,3 +30,20 @@ towa看上届cr apex感觉已经练出东西了，看好这次比赛
 
 tsuna让人回想起去年的AkukinMaster，虽然能力更加全面，但没有绝活。想想还挺怀念去年的恐怖专注人的，现在也觉得非常nb，只不过就算能参加近战打现在的r99也很困难
 
+
+*****
+
+####  poipanchao  
+##### 597#       发表于 2023-2-21 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59838089&amp;ptid=2059196" target="_blank">格林卡罗尔 发表于 2023-2-21 19:41</a>
+
+bsyl 聊一点瞩目枪女
+
+刚看了眼dtto和selen联动的延迟，感觉人至少是在东南亚一带参赛问题不大，就是不知道 ...</blockquote>
+tsuna有两个绝活，狗子和地平线，全被砍了
+
+不过cr之后意外的把麻吉练出来了，又碰上麻吉职业加强
+
+现在是无情的钻头人
+
