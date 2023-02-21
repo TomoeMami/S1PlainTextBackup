@@ -10275,3 +10275,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://img.saraba1st.com/forum/202302/21/073939ec4lm02lbcm4gd1e.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日蚀之阳  
+##### 5460#       发表于 2023-2-21 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59802543&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-18 23:44</a>
+
+麻婆本来想送护身短剑的，但是为了自己的生命安全只能破费了</blockquote>
+那个手表有群友说是奥尔加所长的手表
+
