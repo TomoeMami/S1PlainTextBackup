@@ -5648,3 +5648,16 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 
 而游戏里面是实际操作林克，身临其境看到的视角完全不同。
 
+
+*****
+
+####  冷泉夜月  
+##### 1164#       发表于 2023-2-21 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832371&amp;ptid=1997982" target="_blank">downnote 发表于 2023-2-21 11:28</a>
+
+还是有点区别，概念图里面就是弄个大俯视视角，边上画了个林克表示比例。但就算知道比例也没有多少感觉。
+
+ ...</blockquote>
+纸上谈兵与身临其境的区别，目前我们处在纸上谈兵的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

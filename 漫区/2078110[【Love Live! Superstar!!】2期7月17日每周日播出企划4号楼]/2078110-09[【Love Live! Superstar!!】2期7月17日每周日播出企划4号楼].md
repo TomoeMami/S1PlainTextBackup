@@ -3446,3 +3446,27 @@ yellow mv出了这要是打铁上打铁大叔们确实要疯的
 这不会是n ...</blockquote>
 连买东西的店员是男性也不行，打铁要是出演这MV还跟男演员挽手，伊达大叔要原地爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 12332#       发表于 2023-2-21 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就喜欢看大叔们爆炸
+
+*****
+
+####  奥柏伦亲王  
+##### 12333#       发表于 2023-2-21 11:37
+
+希望青山没有那么多傻逼大叔粉吧，不过即使有也没事，我觉得青山应该根本不care
+
+*****
+
+####  player3960  
+##### 12334#       发表于 2023-2-21 11:38
+
+那个男演员01年的，难怪看着那么稚嫩，这和两个大姐姐拍MV<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
