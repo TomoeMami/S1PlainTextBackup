@@ -3365,3 +3365,70 @@ yellow的MV今天该放出来了吧，cd明天就卖了喂！<img src="https://s
 
 yellow mv出了
 
+
+*****
+
+####  lj205  
+##### 12325#       发表于 2023-2-21 11:12
+
+草，我一看到镜头里的青山总有种下一秒她就会搞事的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 12326#       发表于 2023-2-21 11:14
+
+歌好听，MV也拍得好看（男演员戴了眼镜后的样子也挺帅气<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 12327#       发表于 2023-2-21 11:16
+
+ 本帖最后由 saya1892 于 2023-2-21 11:20 编辑 
+
+在鱼串里看到经纪人是K氏，在MV里找了一圈，是这个名字？
+
+<img src="https://img.saraba1st.com/forum/202302/21/111554yxrhxe4raerrlhh0.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (4.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 11:15 上传
+
+找到了
+
+<img src="https://img.saraba1st.com/forum/202302/21/111957yjsqemjxtxqynpjn.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (239.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 11:19 上传
+
+*****
+
+####  奥柏伦亲王  
+##### 12328#       发表于 2023-2-21 11:19
+
+我还挺喜欢鱼这张mini album的曲风和视觉风格的，一专说实话个人感觉一般。
+
+yellow这mv，青山姐为什么看上去憨憨的，女友感尽失啊，是因为男主角也姓aoyama吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12329#       发表于 2023-2-21 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手机是自己出的 男人是自己出的 指不定那条狗也是（）
+
+*****
+
+####  ruffian  
+##### 12330#       发表于 2023-2-21 11:22
+
+nagi和鱼对视跑开之后，远景一拉鱼那个位置是不是根本没人？什么灵异事件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

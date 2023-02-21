@@ -5625,3 +5625,16 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 对于塞尔达来说，美术设定被剧透其实更严重，因为这样的开放世界，奇观的初见是最震撼的。
 就好像野炊从山洞出来，老头环初见地下星空，如果被透了，这种初见的震撼就没了，体验感绝对是大打折扣的。
 
+
+*****
+
+####  冷泉夜月  
+##### 1162#       发表于 2023-2-21 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832012&amp;ptid=1997982" target="_blank">hu794 发表于 2023-2-21 11:04</a>
+
+对于塞尔达来说，美术设定被剧透其实更严重，因为这样的开放世界，奇观的初见是最震撼的。
+
+就好像野炊从 ...</blockquote>
+这个确实是的，不过光看平面美术图除非反复观看钻研，一般人应该没那么容易像游戏里体验那样印入脑子，只能这样自我安慰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

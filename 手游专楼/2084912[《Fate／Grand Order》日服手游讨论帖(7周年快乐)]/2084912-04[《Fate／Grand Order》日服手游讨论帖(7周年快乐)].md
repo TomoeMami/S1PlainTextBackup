@@ -10325,3 +10325,13 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 ...总不能是麻婆去迦勒底亚斯51区接机的时候从研究所顺的吧...难道麻婆喜欢变卖扶养对象资产的坏毛病是改不掉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 5463#       发表于 2023-2-21 11:22
+
+我也觉得麻婆说的手表会再动是指回归正史世界线的时候
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
