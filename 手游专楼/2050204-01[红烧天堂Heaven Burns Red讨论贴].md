@@ -1366,3 +1366,14 @@ GP上千万，不用两月就能到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了快一井了没提升 是不是可以跑了
 
+
+*****
+
+####  范坚强  
+##### 995#       发表于 2023-2-21 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59827494&amp;ptid=2050204" target="_blank">在海岸 发表于 2023-2-20 22:27</a>
+
+抽了快一井了没提升 是不是可以跑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">常态操作常态操作 反正现在版本要过主线靠送的都能打过去 这破游也没任何pvp要素 放着慢慢玩吧 过几天说不好每日白嫖出货了呢
+
