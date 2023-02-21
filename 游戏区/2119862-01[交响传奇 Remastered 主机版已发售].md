@@ -899,3 +899,13 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 想不明白工作室 轨迹的冷饭 新作都能出的这么快，传说怎么连个冷饭都炒不好 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钱不到位呗，钱到位啥屎山都能想办法解决
 
+
+*****
+
+####  qiyu1234  
+##### 91#         楼主| 发表于 2023-2-21 14:03
+
+传说是现在万南内部主要title中极少数新作还只有繁体中文的系列了
+
+破晓在STEAM商店里那个简体中文标了快1年了，啥语言更新都没有
+
