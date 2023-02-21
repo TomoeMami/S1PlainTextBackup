@@ -10499,3 +10499,18 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 让你们再看不起当期up
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5481#       发表于 2023-2-21 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59839055&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-21 21:39</a>
+
+泳装杀生院吧，克制+人+恶
+
+特攻拉满，琼安自己还有活动的特攻，直接大力出奇迹
+
+让你们再看不起当期up</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一被全克制的就是普通BB 
+
