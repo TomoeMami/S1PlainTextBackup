@@ -10423,3 +10423,31 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望明天的90++能有大戏看
 
+
+*****
+
+####  quanlix  
+##### 5473#       发表于 2023-2-21 18:24
+
+我奶明天90++打大象
+
+*****
+
+####  qixinno2  
+##### 5474#       发表于 2023-2-21 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59836981&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-21 17:49</a>
+
+不是有个打手正在Up 吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道又要打BB么
+
+*****
+
+####  qixinno2  
+##### 5475#       发表于 2023-2-21 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59837011&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-21 17:51</a>
+
+首先排除当期up</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必须排除
+
