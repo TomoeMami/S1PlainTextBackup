@@ -10459,3 +10459,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 又是MC啊……
 
+
+*****
+
+####  DARKGRAY  
+##### 5477#       发表于 2023-2-21 19:14
+
+就BB一个人属性，不给BB很难收场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
