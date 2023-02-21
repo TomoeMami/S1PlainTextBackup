@@ -3470,3 +3470,11 @@ yellow mv出了这要是打铁上打铁大叔们确实要疯的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  稀勢のささ  
+##### 12335#       发表于 2023-2-21 12:13
+
+<blockquote>なぎ推しだけどぶっちゃけハグか手繋ぎくらいは期待してた</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
