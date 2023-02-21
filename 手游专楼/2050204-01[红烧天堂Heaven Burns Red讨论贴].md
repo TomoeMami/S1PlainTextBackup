@@ -1408,3 +1408,21 @@ gamekee上也有红烧的wiki<img src="https://static.saraba1st.com/image/smiley
 
 [https://hbr.gamekee.com/151539.html](https://hbr.gamekee.com/151539.html)
 
+
+*****
+
+####  辽远的海的相思  
+##### 999#       发表于 2023-2-21 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59834315&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-2-21 14:14</a>
+
+https://game8.jp/heavenburnsred</blockquote>
+谢谢。
+
+*****
+
+####  辽远的海的相思  
+##### 1000#       发表于 2023-2-21 23:15
+
+s必出券出ss的概率是不是比抽卡高一点...
+
