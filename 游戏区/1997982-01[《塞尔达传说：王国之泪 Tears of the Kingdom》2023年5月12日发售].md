@@ -5583,3 +5583,16 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 
 —— 来自 samsung SM-G9980, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jtwing  
+##### 1158#       发表于 2023-2-21 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59826405&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-20 20:59</a>
+
+我昨晚就把B站和油管账号全部登出保平安了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">太难受了…………
+

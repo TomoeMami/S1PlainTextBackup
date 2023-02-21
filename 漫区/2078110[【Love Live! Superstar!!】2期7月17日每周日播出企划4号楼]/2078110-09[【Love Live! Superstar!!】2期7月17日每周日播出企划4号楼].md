@@ -3320,3 +3320,14 @@ yellow的MV今天该放出来了吧，cd明天就卖了喂！<img src="https://s
 
 中午的好消息会是公布yellow的mv吧，要是巡演的线上也能公布就好了
 
+
+*****
+
+####  愛さ実  
+##### 12321#       发表于 2023-2-21 10:00
+
+还特地说是国内转播日本live第一名，肯定是官方渠道确定的了。这数字我们看不到阿b肯定懂<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+希望这次也有转播吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
