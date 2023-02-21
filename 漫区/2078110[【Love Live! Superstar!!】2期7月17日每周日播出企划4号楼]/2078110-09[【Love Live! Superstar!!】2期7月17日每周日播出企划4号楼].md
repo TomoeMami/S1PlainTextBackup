@@ -3655,3 +3655,22 @@ nagi那种用力过猛的演技日本人不是蛮喜欢的么，喜庆。
 
 全文：[https://fy.jzz.cool/jv3171](https://fy.jzz.cool/jv3171)
 
+
+*****
+
+####  lj205  
+##### 12351#       发表于 2023-2-21 18:44
+
+为啥宣传不穿那套格子的？我挺喜欢专辑封面的造型啊
+
+*****
+
+####  lj205  
+##### 12352#       发表于 2023-2-21 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59837505&amp;ptid=2078110" target="_blank">唧喳姬 发表于 2023-2-21 18:41</a>
+日本死宅破防啦 </blockquote>
+站长翻译辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+反串不少
+
