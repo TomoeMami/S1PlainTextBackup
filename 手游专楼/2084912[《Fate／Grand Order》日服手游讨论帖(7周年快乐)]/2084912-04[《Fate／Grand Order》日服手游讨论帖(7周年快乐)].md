@@ -10286,3 +10286,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 麻婆本来想送护身短剑的，但是为了自己的生命安全只能破费了</blockquote>
 那个手表有群友说是奥尔加所长的手表
 
+
+*****
+
+####  日蚀之阳  
+##### 5461#       发表于 2023-2-21 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59831286&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2023-2-21 10:10</a>
+
+那个手表有群友说是奥尔加所长的手表</blockquote>
+表针停在2015年，那年所长死了
+
