@@ -5604,3 +5604,13 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 
 没想到还有这么多人在意塞尔达的剧情
 
+
+*****
+
+####  冷泉夜月  
+##### 1160#       发表于 2023-2-21 10:49
+
+说是剧透其实透的都是美术设定，你说剧情透了多少还真没有，但是这种把塞尔达一棒子打死成没人在意剧情的游戏，也算是当今社会把复杂的事物都符号化扁平化的缩影了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
