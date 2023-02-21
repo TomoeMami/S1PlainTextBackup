@@ -3546,3 +3546,15 @@ yellow mv出了这要是打铁上打铁大叔们确实要疯的
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  nufawneafg  
+##### 12342#       发表于 2023-2-21 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832017&amp;ptid=2078110" target="_blank">Piano-Forest 发表于 2023-2-21 11:04</a>
+【表纸初公开🎉】
+
+ラブライブ！シリーズの最新情报＆オリジナル企画満载のLoveLive!Days2023年4月号の表纸 ...</blockquote>
+难得的一对<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

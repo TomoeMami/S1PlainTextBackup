@@ -105,3 +105,14 @@ O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一�
 
 主要是没那个伤害加成的话要求有点高，但要刷加成感觉刷完就结束了
 
+
+*****
+
+####  qixinno2  
+##### 44165#       发表于 2023-2-21 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59835389&amp;ptid=1712412" target="_blank">待宵 发表于 2023-2-21 15:43</a>
+
+90+用哈贝喵双C呆有点腻了，还有别的玩法吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我用的摩根巴姐太公
+
