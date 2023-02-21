@@ -5661,3 +5661,23 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
  ...</blockquote>
 纸上谈兵与身临其境的区别，目前我们处在纸上谈兵的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  竜破斬  
+##### 1165#       发表于 2023-2-21 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832012&amp;ptid=1997982" target="_blank">hu794 发表于 2023-2-21 11:04</a>
+
+对于塞尔达来说，美术设定被剧透其实更严重，因为这样的开放世界，奇观的初见是最震撼的。
+
+就好像野炊从 ...</blockquote>
+没那么严重。按你这个说法，任何在botw发售前关注过的人游戏体验都大打折扣了，毕竟整个初始高台和核心的玩法在2016年e3就都被透光了。
+
+*****
+
+####  uanlice  
+##### 1166#       发表于 2023-2-21 11:55
+
+b站有什么能拉黑up从此再也看不到它的办法吗，我真的不想再看到短塞了，一边吃偷跑热度一边假惺惺说自己不懂偷跑圈规矩<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
