@@ -2317,3 +2317,18 @@ VOX的原因吧，5缺1<img src="https://static.saraba1st.com/image/smiley/face2
 
 又到了最协的前夕了
 
+
+*****
+
+####  Map-2  
+##### 156#       发表于 2023-2-21 18:18
+
+今年还有最协？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 157#       发表于 2023-2-21 18:20
+
+最协好耶，就爱看纯管人的比赛
+
