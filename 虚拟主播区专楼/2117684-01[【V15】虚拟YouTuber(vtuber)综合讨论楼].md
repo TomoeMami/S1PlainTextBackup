@@ -2290,3 +2290,14 @@ myy不上过热搜吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 这离计划的活动时间就剩一周了还没宣传，看起来怕是要延期了
 
+
+*****
+
+####  psnsic8nag  
+##### 153#       发表于 2023-2-21 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59835365&amp;ptid=2117684" target="_blank">格林卡罗尔 发表于 2023-2-21 15:40</a>
+
+这离计划的活动时间就剩一周了还没宣传，看起来怕是要延期了</blockquote>
+VOX的原因吧，5缺1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

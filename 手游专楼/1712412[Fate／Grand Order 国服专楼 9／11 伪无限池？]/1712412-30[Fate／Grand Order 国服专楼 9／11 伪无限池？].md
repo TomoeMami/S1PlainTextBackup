@@ -116,3 +116,40 @@ O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一�
 90+用哈贝喵双C呆有点腻了，还有别的玩法吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我用的摩根巴姐太公
 
+
+*****
+
+####  J-002  
+##### 44166#       发表于 2023-2-21 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59785745&amp;ptid=1712412" target="_blank">azccc52 发表于 2023-2-17 17:31</a>
+
+日服情人节也出了吧，问一下好哥哥们，国服目前到日服进度的ml角色有哪些？提前感谢解答 ...</blockquote>
+都市精特诺奇蒂特兰，硬刚玛修的强者
+
+语音里和玛修抢圣杯，开宝具时直球告白，情人节送立香自己驾驶舱的钥匙，还邀请立香到自己房间休息
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|谢谢|
+
+查看全部评分
+
+*****
+
+####  J-002  
+##### 44167#       发表于 2023-2-21 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59765813&amp;ptid=1712412" target="_blank">GALLADE 发表于 2023-2-16 10:34</a>
+
+是时候开启新一轮的大战了，有满配宇宙凛，水伊吹和库库需要抽吗，还是直接120凛算了 ...</blockquote>
+同配置下，伊吹回收比凛好，打大部分阶红字输出略高，但你都已经满配了没太大必要再氪一个只是上限略高的满配……
+
+库库尔坎相当强，日基那边评价点满技能1宝能顶摩根3宝输出……但异邦人实用度有问题，打红字的机会太少，开技能需要多点一次在周回时也挺麻烦的，配双狐需要多点六下
+

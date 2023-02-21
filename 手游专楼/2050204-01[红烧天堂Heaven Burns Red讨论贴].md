@@ -1396,3 +1396,15 @@ GP上千万，不用两月就能到
 请问在哪里可以看迷宫小地图？迷路会浪费好的能量。</blockquote>
 [https://game8.jp/heavenburnsred](https://game8.jp/heavenburnsred)
 
+
+*****
+
+####  森下未散  
+##### 998#       发表于 2023-2-21 16:03
+
+gamekee上也有红烧的wiki<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[https://hbr.gamekee.com/150823.html](https://hbr.gamekee.com/150823.html)
+
+[https://hbr.gamekee.com/151539.html](https://hbr.gamekee.com/151539.html)
+
