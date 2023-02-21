@@ -889,3 +889,13 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  laoz  
+##### 90#       发表于 2023-2-21 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59833977&amp;ptid=2119862" target="_blank">LMBS 发表于 2023-2-21 13:46</a>
+想不明白工作室 轨迹的冷饭 新作都能出的这么快，传说怎么连个冷饭都炒不好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钱不到位呗，钱到位啥屎山都能想办法解决
+
