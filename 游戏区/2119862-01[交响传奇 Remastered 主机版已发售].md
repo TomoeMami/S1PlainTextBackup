@@ -872,3 +872,20 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 
 等实体版暴跌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LMBS  
+##### 88#       发表于 2023-2-21 13:46
+
+想不明白工作室 轨迹的冷饭 新作都能出的这么快，传说怎么连个冷饭都炒不好
+
+*****
+
+####  Rainwedell  
+##### 89#       发表于 2023-2-21 13:51
+
+看贴吧说的是bnei罗马尼亚分社做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
