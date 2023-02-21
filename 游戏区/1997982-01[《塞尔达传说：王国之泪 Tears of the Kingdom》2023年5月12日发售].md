@@ -5596,3 +5596,11 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">太难受了…………
 
+
+*****
+
+####  subject07  
+##### 1159#       发表于 2023-2-21 10:26
+
+没想到还有这么多人在意塞尔达的剧情
+
