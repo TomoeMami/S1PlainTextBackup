@@ -845,3 +845,11 @@ veibae nyanners也挺二次元的<img src="https://static.saraba1st.com/image/sm
 
 昨晚的煮饭联动非常精彩 【Neuro-sama/Onigiri 非常好AI，走进寻常家！做饭联动之 买菜篇！】 [https://www.bilibili.com/video/B ... 3c366914fe267db0816](https://www.bilibili.com/video/BV1rj411P7FT/?share_source=copy_web&amp;vd_source=da809eef517a73c366914fe267db0816)
 
+
+*****
+
+####  cot495  
+##### 67#       发表于 2023-2-21 22:22
+
+这期厨房联动笑疯了，狠狠的拷打
+
