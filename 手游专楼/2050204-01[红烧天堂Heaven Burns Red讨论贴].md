@@ -1385,3 +1385,14 @@ GP上千万，不用两月就能到
 
 请问在哪里可以看迷宫小地图？迷路会浪费好的能量。
 
+
+*****
+
+####  alucardcz  
+##### 997#       发表于 2023-2-21 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59834232&amp;ptid=2050204" target="_blank">辽远的海的相思 发表于 2023-2-21 14:06</a>
+
+请问在哪里可以看迷宫小地图？迷路会浪费好的能量。</blockquote>
+[https://game8.jp/heavenburnsred](https://game8.jp/heavenburnsred)
+
