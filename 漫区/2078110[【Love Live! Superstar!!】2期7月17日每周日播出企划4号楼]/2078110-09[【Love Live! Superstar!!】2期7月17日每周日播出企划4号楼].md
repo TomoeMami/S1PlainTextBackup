@@ -3304,3 +3304,11 @@ JUVENILE也去，应该会有改编吧
 
 不过今年要直播可能比较麻烦，毕竟政策改了
 
+
+*****
+
+####  player3960  
+##### 12319#       发表于 2023-2-21 08:37
+
+yellow的MV今天该放出来了吧，cd明天就卖了喂！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

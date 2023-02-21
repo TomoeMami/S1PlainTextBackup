@@ -3332,3 +3332,11 @@ gp起来了反击确实伤害 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  欠雷  
+##### 629#       发表于 2023-2-21 08:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨晚打完薪王化身结果游戏黑屏，重启游戏又打一遍天蝶龙，还三猫了一次，气死我了，这b怪双刀棍子弓箭打起来都不舒服，不知道大剑大锤咋样
+
