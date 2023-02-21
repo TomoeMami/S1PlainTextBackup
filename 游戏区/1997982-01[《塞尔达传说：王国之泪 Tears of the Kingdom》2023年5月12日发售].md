@@ -5681,3 +5681,31 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 
 b站有什么能拉黑up从此再也看不到它的办法吗，我真的不想再看到短塞了，一边吃偷跑热度一边假惺惺说自己不懂偷跑圈规矩<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  panda_vs_panda  
+##### 1167#       发表于 2023-2-21 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59823146&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-20 16:41</a>
+这些我都自我封印了，我万万没想到能有认识的人链接甩脸而且还是剧透了……………………
+
+我想把微信名改 ...</blockquote>
+绝交啊，这种人不能深交
+
+*****
+
+####  panda_vs_panda  
+##### 1168#       发表于 2023-2-21 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59832732&amp;ptid=1997982" target="_blank">竜破斬 发表于 2023-2-21 11:52</a>
+没那么严重。按你这个说法，任何在botw发售前关注过的人游戏体验都大打折扣了，毕竟整个初始高台和核心的 ...</blockquote>
+游戏里的各种初见体验，官方初期一点没透，正式游戏时看到各种奇观，惊喜一波又一波
+
+*****
+
+####  巴尔干炮  
+##### 1169#       发表于 2023-2-21 12:29
+
+BOTW这套物理引擎带来的玩法是组合式的，上限取决于玩家的想象力和对游戏机制的理解是否通透，是无法被剧透的。
+
