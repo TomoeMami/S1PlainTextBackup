@@ -10367,3 +10367,22 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 拿送的30石11抽结果抽到二宝新卡，终于没那么非了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 5468#       发表于 2023-2-21 16:46
+
+<img src="https://img.saraba1st.com/forum/202302/21/164402aaf2vbv0stmszt26.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2r-9d5nZ1iT3cSu0-19e.jpeg.medium.jpg</strong> (116.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-2-21 16:44 上传
+
+田岛昭宇要在C102出烟雾镜的同人志......这么看还挺上心的，但应该没有奥伯龙那么反响热烈，毕竟现在的风评也就那样了...看看能不能一雪前耻吧...
+
+（话说烟雾镜实装都三周了，他那个贺图还发不发啊...）
+
