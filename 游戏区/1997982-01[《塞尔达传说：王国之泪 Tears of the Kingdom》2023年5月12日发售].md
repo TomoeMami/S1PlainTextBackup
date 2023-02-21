@@ -5570,3 +5570,16 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角<i
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aallqqppaa  
+##### 1157#       发表于 2023-2-21 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59829630&amp;ptid=1997982" target="_blank">lly778 发表于 2023-2-21 02:23</a>
+zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</blockquote>
+地底的小怪都是给林克送下来的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+等等 那塞尔达是不是可以见到四英杰和老国王了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
