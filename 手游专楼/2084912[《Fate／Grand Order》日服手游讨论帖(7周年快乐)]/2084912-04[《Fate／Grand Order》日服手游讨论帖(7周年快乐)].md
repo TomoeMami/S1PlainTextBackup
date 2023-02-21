@@ -10351,3 +10351,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 麻婆那手表转动应该是在咕哒结束拯救世界，回归正常生活后开始吧。
 
+
+*****
+
+####  UNISONIA  
+##### 5466#       发表于 2023-2-21 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来你版的人都对Fha的剧情不熟悉
+
