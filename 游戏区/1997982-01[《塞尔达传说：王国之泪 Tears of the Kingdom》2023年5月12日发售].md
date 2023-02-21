@@ -5614,3 +5614,14 @@ zeltik猜测塞尔达死了，地底世界就是塞尔达去了阴间的视角</
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  hu794  
+##### 1161#       发表于 2023-2-21 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59831761&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-21 10:49</a>
+说是剧透其实透的都是美术设定，你说剧情透了多少还真没有，但是这种把塞尔达一棒子打死成没人在意剧情的游 ...</blockquote>
+对于塞尔达来说，美术设定被剧透其实更严重，因为这样的开放世界，奇观的初见是最震撼的。
+就好像野炊从山洞出来，老头环初见地下星空，如果被透了，这种初见的震撼就没了，体验感绝对是大打折扣的。
+
