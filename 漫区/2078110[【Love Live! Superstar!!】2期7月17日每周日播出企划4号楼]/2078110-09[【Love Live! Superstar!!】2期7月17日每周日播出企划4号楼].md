@@ -3674,3 +3674,15 @@ nagi那种用力过猛的演技日本人不是蛮喜欢的么，喜庆。
 
 反串不少
 
+
+*****
+
+####  starring  
+##### 12353#       发表于 2023-2-21 18:53
+
+ 本帖最后由 starring 于 2023-2-21 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59837505&amp;ptid=2078110" target="_blank">唧喳姬 发表于 2023-2-21 18:41</a>
+
+日本死宅破防啦 </blockquote>
+一点开就看到60多条留言，大家都很喜欢看gachi粉破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
