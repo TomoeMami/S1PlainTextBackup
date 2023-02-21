@@ -43,3 +43,18 @@ GT7 VR mode实机试玩
 
 ai是限时活动的样子，估计就训练了那几条赛道，期待效果
 
+
+*****
+
+####  onemoment  
+##### 1730#       发表于 2023-2-21 22:21
+
+和Sophy跑体会到了当拓海对手的压力，全程在视野范围内贴着车跑，稍微一个失误就被超，这压迫力有点高
+
+*****
+
+####  Fuero  
+##### 1731#       发表于 2023-2-21 22:27
+
+eurogamer的实机试玩，可以把进度条拖到前面一些[https://www.youtube.com/watch?v=3ZY6QDhux_8](https://www.youtube.com/watch?v=3ZY6QDhux_8)
+
