@@ -853,3 +853,29 @@ veibae nyanners也挺二次元的<img src="https://static.saraba1st.com/image/sm
 
 这期厨房联动笑疯了，狠狠的拷打
 
+
+*****
+
+####  与天争锋_LZ  
+##### 68#       发表于 2023-2-21 23:24
+
+赢！
+
+<img src="https://img.saraba1st.com/forum/202302/21/232417l7hnvtzu5465nwvo.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-104595187.jpg</strong> (110.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202302/21/232417r0ssj49uj19drdoc.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-104607250.jpg</strong> (74.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-21 23:24 上传
+
+这是因为联动对象有很多中国要素，还是单纯把chat听错了
+
