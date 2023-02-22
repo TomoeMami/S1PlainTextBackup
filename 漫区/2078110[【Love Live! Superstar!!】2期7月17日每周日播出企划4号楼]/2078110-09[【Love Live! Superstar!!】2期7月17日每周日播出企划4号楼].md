@@ -3823,3 +3823,13 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 
 鲤鱼这最后一首歌感觉特别适合tie个什么动画
 
+
+*****
+
+####  lj205  
+##### 12366#       发表于 2023-2-22 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59840997&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-22 00:57</a>
+牛奶糖的旋律总感觉很熟悉，但就是想不起是啥歌</blockquote>
+我觉得像姬样的永远的一人，刚好那首也是白户写的
+

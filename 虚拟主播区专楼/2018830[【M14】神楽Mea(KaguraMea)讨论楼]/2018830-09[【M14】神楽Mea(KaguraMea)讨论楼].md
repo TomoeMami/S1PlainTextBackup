@@ -4956,3 +4956,14 @@ Queen的翻唱还行
 
 所以你们是从哪里得到了她恨嫁的消息<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这吊人不是已经连续三天没任何动静了吗
 
+
+*****
+
+####  若风之景  
+##### 13435#       发表于 2023-2-22 08:12
+
+小麻生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+虽然晚了一天说这事情
+
+—— 来自 vivo V2244A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
