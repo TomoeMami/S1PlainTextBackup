@@ -1681,3 +1681,17 @@ king exit里古伊奈当然可以崩溃，和dr里的古伊奈比起来就很小
 
 “这游戏里都明显分了接KE的正史线和歪了的邪道线了，为什么还要拿正史的未来古伊娜去套邪道的未来古伊娜” 125楼@wingzerocos
 
+
+*****
+
+####  子夜微雪  
+##### 137#       发表于 2023-2-22 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848344&amp;ptid=2114848" target="_blank">火的意志 发表于 2023-2-22 18:29</a>
+“我被你给说麻了，这整一栋楼不就你提到“第三章的古伊奈”这几个字？这咋还无中生有了。”
+
+“KE的古伊 ...</blockquote>
+KE古伊奈是接第三章的正史，跟DR第三章的古伊奈这两个说法可谓是天差地别，你现在承不承认“第三章的古伊奈才比较合理”这句话是你生造的了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

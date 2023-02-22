@@ -10929,3 +10929,11 @@ BX自带50+兔子50
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后第2把就翻车了
 
+
+*****
+
+####  xiongxingyu  
+##### 5518#       发表于 2023-2-22 20:09
+
+80级5宝铁拳圣女吃奥宝的buff就能一拳80w+，随便拉个吃单拐能打20w的就能6加成了（我自己上了卡莲），马达宝具还前置减防，基本上能一炮轰死一面的都能补掉二面。
+

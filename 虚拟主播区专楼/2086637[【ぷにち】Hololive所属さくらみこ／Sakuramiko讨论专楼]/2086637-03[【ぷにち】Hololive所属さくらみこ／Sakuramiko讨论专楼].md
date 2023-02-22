@@ -15576,3 +15576,22 @@ miko：以后注意
 
 全程指示厨
 
+
+*****
+
+####  rs5621  
+##### 4438#       发表于 2023-2-22 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好歹是最后一把拿了第一，不然得气死
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4439#         楼主| 发表于 2023-2-22 20:08
+
+没事，本来第一也没那么简单的要不这游戏就没意思了
+
+另外明天还有luna的一场直播搞不好更菜
+

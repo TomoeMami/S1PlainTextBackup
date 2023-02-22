@@ -4043,3 +4043,34 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 <img src="https://p.sda1.dev/10/33ae947bf190da4188a2529114e961e7/image _4_.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/0c6379dde70ef6ce35358b7bedc789aa/20230222_193630.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 12387#       发表于 2023-2-22 19:43
+
+我现在只想知道专辑credit栏里到底有没有音p
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 12388#       发表于 2023-2-22 19:47
+
+其实感觉起来也都是老问题，企划想要的可能和粉丝想要的对不上号，老“优势在我”了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12389#       发表于 2023-2-22 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 12390#       发表于 2023-2-22 19:51
+
+粉丝能做的也就只有相信打铁了。
+
