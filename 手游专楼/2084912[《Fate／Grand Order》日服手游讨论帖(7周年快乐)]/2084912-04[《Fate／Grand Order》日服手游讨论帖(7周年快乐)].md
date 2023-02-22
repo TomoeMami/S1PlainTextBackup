@@ -10701,3 +10701,23 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 这次活动巧克力是加初始np和绊获取，不加伤害。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">竟然不加伤害么 GG
 
+
+*****
+
+####  exiaexa  
+##### 5499#       发表于 2023-2-22 18:26
+
+仅供参考
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/ccfae50c6ee000dda2055ded01322459/CMP_20230222182620119.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/629795fe19656140962e36fde7cb104f/CMP_20230222182620259.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 5500#       发表于 2023-2-22 18:31
+
+用大象那还真是恶心了所有人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
