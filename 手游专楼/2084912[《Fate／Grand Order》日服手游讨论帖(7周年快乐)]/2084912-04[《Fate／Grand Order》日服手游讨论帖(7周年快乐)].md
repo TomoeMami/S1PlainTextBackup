@@ -10748,3 +10748,30 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 用壹与试了一下，攻击太低，带黑杯都只能打一半血...看来还是要找个单体打手...唉，祝福巧克力给早了[f:068 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这问题不要太简单 上个尺番茄不就行了  还是你是要不换人
 
+
+*****
+
+####  quanlix  
+##### 5504#       发表于 2023-2-22 18:43
+
+又印度卫星又石像的，除了大象还能是谁
+
+*****
+
+####  Jamaisvu  
+##### 5505#       发表于 2023-2-22 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848480&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 18:41</a>
+
+你这问题不要太简单 上个尺番茄不就行了  还是你是要不换人</blockquote>
+想试试能不能双光炮一拐快速解决战斗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是难度有点大...
+
+多谢提醒，金钻头羁绊快满了，正好拿尺番茄试试手<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5506#       发表于 2023-2-22 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹  忘了大象有对魔力  狂娜爆破有概率翻车
+

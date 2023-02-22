@@ -3951,3 +3951,13 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 为什么，这么擅长做一些很没有逻辑的事情
 这真的能塔诺西吗
 
+
+*****
+
+####  长日留痕  
+##### 12376#       发表于 2023-2-22 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59847651&amp;ptid=2078110" target="_blank">Kfly 发表于 2023-02-22 17:27:22</a></blockquote>正脸还挺英气的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
