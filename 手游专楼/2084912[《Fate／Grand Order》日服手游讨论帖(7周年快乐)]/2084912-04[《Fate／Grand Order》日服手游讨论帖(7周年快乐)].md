@@ -10653,3 +10653,51 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qixinno2  
+##### 5494#       发表于 2023-2-22 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑杯一宝的RBA宝具只能炸掉70W左右 难道要喂巧克力
+
+*****
+
+####  芭德薇  
+##### 5495#       发表于 2023-2-22 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848182&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-22 18:14</a>
+
+黑杯一宝的RBA宝具只能炸掉70W左右 难道要喂巧克力</blockquote>
+找个高宝rba大腿？
+
+*****
+
+####  qixinno2  
+##### 5496#       发表于 2023-2-22 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848193&amp;ptid=2084912" target="_blank">芭德薇 发表于 2023-2-22 18:15</a>
+
+找个高宝rba大腿？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得刷大腿打手 算了 瞎JB打了
+
+*****
+
+####  都谷捻柏  
+##### 5497#       发表于 2023-2-22 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848182&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-22 18:14</a>
+
+黑杯一宝的RBA宝具只能炸掉70W左右 难道要喂巧克力</blockquote>
+这次活动巧克力是加初始np和绊获取，不加伤害。
+
+*****
+
+####  qixinno2  
+##### 5498#       发表于 2023-2-22 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848225&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-22 18:18</a>
+
+这次活动巧克力是加初始np和绊获取，不加伤害。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">竟然不加伤害么 GG
+
