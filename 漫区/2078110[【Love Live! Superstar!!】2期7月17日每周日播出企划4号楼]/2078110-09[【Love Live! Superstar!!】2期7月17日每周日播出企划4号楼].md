@@ -4167,3 +4167,15 @@ AJ联合发布会没有星，星三今年应该不大可能了吧
 
 形象吸引吧
 
+
+*****
+
+####  稀勢のささ  
+##### 12401#       发表于 2023-2-22 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59852480&amp;ptid=2078110" target="_blank">lj205 发表于 2023-2-22 22:21</a>
+
+新特典曲说是可C？谁听过的说说？已经很久没听星团的歌了</blockquote>
+歌词确实多给了几句
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但BD特典曲这东西好像就FM唱过几首吧
+
