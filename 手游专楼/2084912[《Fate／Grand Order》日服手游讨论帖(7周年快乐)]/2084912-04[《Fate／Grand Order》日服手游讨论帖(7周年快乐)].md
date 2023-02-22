@@ -10566,3 +10566,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">清姬警告，呼延灼可爱
 
+
+*****
+
+####  qixinno2  
+##### 5485#       发表于 2023-2-22 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59840945&amp;ptid=2084912" target="_blank">v22325 发表于 2023-2-22 00:50</a>
+
+清姬警告，呼延灼可爱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呼延灼的奥数魔刃
+
