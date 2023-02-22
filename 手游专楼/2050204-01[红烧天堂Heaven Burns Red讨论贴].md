@@ -1462,3 +1462,16 @@ s必出券出ss的概率是不是比抽卡高一点...
 
 而且奖励里也只有S入江是没有其他入手途径的, 其他东西没了也就是感觉有点亏而已
 
+
+*****
+
+####  Skyline_R  
+##### 1004#       发表于 2023-2-23 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814890&amp;ptid=2050204" target="_blank">鱼飞卡斯泰露 发表于 2023-2-20 00:46</a>
+
+说起来你游同人好少...明明热度还可以？ 搜了下我cpめぐタマ开服那会儿少就算了现在还是少 ...</blockquote>
+隔壁pjsk也是开服第一年热度很高但没啥二创的，
+
+但是pjsk在2022年二创势头很猛，看日后吧
+
