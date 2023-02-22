@@ -10775,3 +10775,24 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹  忘了大象有对魔力  狂娜爆破有概率翻车
 
+
+*****
+
+####  qixinno2  
+##### 5507#       发表于 2023-2-22 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">俩阵容都要补刀 很烦
+
+*****
+
+####  exiaexa  
+##### 5508#       发表于 2023-2-22 19:00
+
+光速掉礼装又打了一个阵容
+
+<img src="https://p.sda1.dev/10/542a5379092e536610639a7da4ca9c02/CMP_20230222185920900.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/d4ef697bb32376e62d198368b806af70/CMP_20230222185921038.jpg" referrerpolicy="no-referrer">
+
+明明应该是狂信主场，都怪兔子太拉了，反而bx按着艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
