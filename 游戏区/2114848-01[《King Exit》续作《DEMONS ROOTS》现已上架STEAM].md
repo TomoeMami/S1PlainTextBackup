@@ -1491,3 +1491,16 @@ king exit里古伊奈当然可以崩溃，和dr里的古伊奈比起来就很小
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火的意志  
+##### 123#       发表于 2023-2-22 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59844210&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-2-22 11:59</a>
+你仍然没有解释其中关联性，为什么我搞反侵略就不能被侵略者搞到崩溃？是谁相比谁退步了，KE里被侵略者搞 ...</blockquote>
+为什么我搞反侵略就不能被侵略者搞到崩溃？
+可以啊，没人规定不可以啊
+如果是dr第三章的古伊奈，可以，并且合情合理，人物轨迹顺滑
+如果是dr最后一章的古伊奈，可以，很小丑，就这个区别
+
