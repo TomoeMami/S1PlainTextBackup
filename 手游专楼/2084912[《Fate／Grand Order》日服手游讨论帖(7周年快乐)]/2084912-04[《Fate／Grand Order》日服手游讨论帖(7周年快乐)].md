@@ -11105,3 +11105,43 @@ BX自带50+兔子50
 
 用壱与打的第三个90++了，给喂了个梦火继续加班，当初茶道的时候就给壱与喂到百级310实在是太正确了
 
+
+*****
+
+####  alucardcz  
+##### 5537#       发表于 2023-2-22 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59852437&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-22 22:19</a>
+
+黑杯卡莲乱杀，爽到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能5加成呢（
+
+*****
+
+####  里村紅葉  
+##### 5538#       发表于 2023-2-22 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59852493&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 22:22</a>
+
+你怎么能5加成呢（</blockquote>
+我这辈子就没六加成打过最高难度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5539#       发表于 2023-2-22 22:25
+
+看不起绿卡没抽rba这下报应了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+只能安慰自己90+煌星髓液都缺刷了不亏
+
+*****
+
+####  alucardcz  
+##### 5540#       发表于 2023-2-22 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59852512&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-2-22 22:23</a>
+
+我这辈子就没六加成打过最高难度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能摆了呢（
+

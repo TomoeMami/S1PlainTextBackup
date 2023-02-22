@@ -4125,3 +4125,20 @@ AJ联合发布会没有星，星三今年应该不大可能了吧
 所以说这套结构体系现在就卡在这了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 结构性矛盾，创造力不在这一边了
 
+
+*****
+
+####  lj205  
+##### 12396#       发表于 2023-2-22 22:21
+
+新特典曲说是可C？谁听过的说说？已经很久没听星团的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 12397#       发表于 2023-2-22 22:24
+
+一个饭量是一顿3块面包的人，塞给她5块甚至更多面包，她吃得下就不惨，吃不下就不好说
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
