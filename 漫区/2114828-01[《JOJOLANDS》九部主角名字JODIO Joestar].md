@@ -37,3 +37,16 @@
 老实说</blockquote>
 现在我倒希望9能争点气，不然会成为红脖老保《一沾lgbt就拉跨》的又一个例子，虽然蛋蛋加倍的8下半段早就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dfas0077  
+##### 167#       发表于 2023-2-22 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59841246&amp;ptid=2114828" target="_blank">sdh45e6 发表于 2023-2-22 02:00</a>
+
+第一话出了
+
+老实说</blockquote>
+我觉得还挺好，荒木不适合8部那种调调，卖关子太多容易翻车，这个第一话感觉该说的都说得还挺清楚的，主角队几个看着也不是那种太抽象的替身能力
+
