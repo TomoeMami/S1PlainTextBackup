@@ -1462,3 +1462,18 @@ king exit里古伊奈当然可以崩溃，和dr里的古伊奈比起来就很小
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  千里孤坟  
+##### 121#       发表于 2023-2-22 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59844175&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-2-22 11:56</a>
+
+四个问题
+
+1.薄荷螺丝是正常国家且被魔族侵略成为据点，是KE就定好的事情，DR整个框架的改变都影响不了大 ...</blockquote>
+这不四句至少三句都是在赞同并补充我吗，有什么问题？看人家不想附和你这样的情绪，不想做你这样的人似乎会让你很难受。
+
+最后一句跟114楼主题也偏离甚远不是一回事。
+
