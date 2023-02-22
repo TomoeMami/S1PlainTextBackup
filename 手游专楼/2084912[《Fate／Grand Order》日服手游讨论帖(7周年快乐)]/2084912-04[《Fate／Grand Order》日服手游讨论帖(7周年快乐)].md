@@ -11242,3 +11242,20 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 上面说过了你换个别的自buff50充吃巧克力只会更猛
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 5549#       发表于 2023-2-23 06:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855098&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-23 06:11</a>
+
+我那个阵容是为了给老婆拉羁绊
+
+上面说过了你换个别的自buff50充吃巧克力只会更猛
+
+ ...</blockquote>
+给真爱刷绊用这个队伍完全没问题，和我的观点也不矛盾。
+
+这次巧克力没有伤害buff，作用是充满np和绊获取量增加50%，清杂主要还是靠从者自buff打狂的能力。
+
