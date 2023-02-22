@@ -11153,3 +11153,11 @@ BX自带50+兔子50
 
 黑杯卡莲刷起来，6加成累死人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 5542#       发表于 2023-2-23 00:41
+
+OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆，找他人术呆，打了5场都能确定2T完结毋须补刀
+
