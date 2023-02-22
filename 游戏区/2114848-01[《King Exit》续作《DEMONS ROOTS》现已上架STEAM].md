@@ -1529,3 +1529,18 @@ king exit里古伊奈当然可以崩溃，和dr里的古伊奈比起来就很小
 
 这游戏里都明显分了接KE的正史线和歪了的邪道线了，为什么还要拿正史的未来古伊娜去套邪道的未来古伊娜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  子夜微雪  
+##### 126#       发表于 2023-2-22 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59845505&amp;ptid=2114848" target="_blank">火的意志 发表于 2023-2-22 14:04</a>
+为什么我搞反侵略就不能被侵略者搞到崩溃？
+可以啊，没人规定不可以啊
+如果是dr第三章的古伊奈，可以，并 ...</blockquote>
+你在说什么，DR第三章哪有古伊奈，那时候连预言书都没到手，逻辑顺滑个篮子呢。
+并且你依然没解释搞反侵略为何小丑，是不该反侵略，等魔族主动投降吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
