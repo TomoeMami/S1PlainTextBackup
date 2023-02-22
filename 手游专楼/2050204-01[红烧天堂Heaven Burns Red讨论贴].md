@@ -1434,3 +1434,16 @@ s必出券出ss的概率是不是比抽卡高一点...
 
 打完记忆迷宫50层， 后面是不是只能去慢慢刷棱镜王升到满级了？
 
+
+*****
+
+####  z-hunter  
+##### 1002#       发表于 2023-2-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59814763&amp;ptid=2050204" target="_blank">一里ぼっち 发表于 2023-2-20 00:31</a>
+
+先打主线和记忆迷宫, 解锁高等级凌镜战和解锁商店买高级晶片, 塔不花体力没体力的时候去就行了
+
+能开最高 ...</blockquote>
+这次活动以后不能用花后补吗？新人入坑打活动也打不过吧
+

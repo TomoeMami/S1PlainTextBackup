@@ -4967,3 +4967,11 @@ Queen的翻唱还行
 
 —— 来自 vivo V2244A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  路人庚  
+##### 13436#       发表于 2023-2-22 13:42
+
+抽奖企划还行（虽然这个企划开的有点晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
