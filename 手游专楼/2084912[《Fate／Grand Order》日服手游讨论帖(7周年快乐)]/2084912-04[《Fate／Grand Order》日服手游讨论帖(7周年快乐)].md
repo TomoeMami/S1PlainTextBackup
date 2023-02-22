@@ -10577,3 +10577,11 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 清姬警告，呼延灼可爱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呼延灼的奥数魔刃
 
+
+*****
+
+####  霧谷藤乃  
+##### 5486#       发表于 2023-2-22 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一大早发现石头少了很多！想起来昨晚喝酒之后想起楼友们豹跳（bushi）于是怒而抽卡莲池去了……
+
