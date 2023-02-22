@@ -164,3 +164,13 @@ O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一�
 90+用哈贝喵双C呆有点腻了，还有别的玩法吗？</blockquote>
 伊莉莎骑阶+双太公？
 
+
+*****
+
+####  Ousia  
+##### 44169#       发表于 2023-2-22 22:44
+
+卡莲这个坏女人竟然吃掉了我18单<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+这下可以放心地晒那年300石不到太公望5宝，可给我憋坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
