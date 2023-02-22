@@ -86,3 +86,18 @@ eurogamer的实机试玩，可以把进度条拖到前面一些[https://www.yout
 
 我超，大峡谷回来了？GT4给我开出PTSD了
 
+
+*****
+
+####  iou90  
+##### 1735#       发表于 2023-2-22 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842899&amp;ptid=2027972" target="_blank">舌怪 发表于 2023-2-22 10:23</a>
+
+我超，大峡谷回来了？GT4给我开出PTSD了</blockquote>
+section2 去掉了隧道 难度还是好大 section3改动比较大
+
+看着不太一样但实际总体上来说改动比想象中小 
+
+风景是真不错 gtplanet 出了好多细节截图 小动物 各种梗之类的囧
+
