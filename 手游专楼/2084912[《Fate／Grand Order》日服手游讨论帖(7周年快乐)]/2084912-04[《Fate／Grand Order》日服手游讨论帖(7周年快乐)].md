@@ -10796,3 +10796,66 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 明明应该是狂信主场，都怪兔子太拉了，反而bx按着艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5509#       发表于 2023-2-22 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848712&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-22 19:00</a>
+
+光速掉礼装又打了一个阵容</blockquote>
+？
+
+萌新怎么觉得np不够 第1面包鸡？
+
+*****
+
+####  exiaexa  
+##### 5510#       发表于 2023-2-22 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848902&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 19:14</a>
+
+？
+
+萌新怎么觉得np不够 第1面包鸡？</blockquote>
+摩根嗑了巧克力的，换成别的自充50打手也可以
+
+BX自带50+兔子50
+
+摩根第二炮自充50+第二只兔子50
+
+*****
+
+####  eilot  
+##### 5511#       发表于 2023-2-22 19:17
+
+ 本帖最后由 eilot 于 2023-2-22 19:18 编辑 
+
+80级+全技111+1000ATK+黑圣杯的壱与有点危险
+
+两隻术呆都要能开到宝具，自己的容易配合，但找朋友那隻就限定礼装要突满到NP50那张
+
+1T是术呆先宝具再壱与宝具
+
+2T，奥伯隆全BUFF再加换人衣服BUFF多次，术呆宝具后再壱与宝具，有机会打剩3万~8万水平，壱与不能即时补刀就非常危险
+
+*****
+
+####  alucardcz  
+##### 5512#       发表于 2023-2-22 19:17
+
+ 本帖最后由 alucardcz 于 2023-2-22 19:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848915&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-22 19:15</a>
+
+摩根嗑了巧克力的，换成别的自充50打手也可以
+
+BX自带50+兔子50
+
+摩根第二炮自充50+第二只兔子50 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔子是什么 我理解为双rba是否正确
+
+然后这不是还是不够吗   所以第1面要打暴击？
+
+等等 还是说你王姐能一炮直接连第1面大的也能带走？
+

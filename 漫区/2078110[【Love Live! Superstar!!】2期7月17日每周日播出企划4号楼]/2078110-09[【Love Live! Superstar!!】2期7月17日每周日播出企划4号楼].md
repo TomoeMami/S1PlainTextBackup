@@ -3969,3 +3969,31 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 
 不懂安排给打铁这曲的人的想法
 
+
+*****
+
+####  aoaoaodedede  
+##### 12378#       发表于 2023-2-22 19:12
+
+ 本帖最后由 aoaoaodedede 于 2023-2-22 19:15 编辑 
+
+瞎猜一下，说不定管事的觉得live上小百合唱起来会很感人，说不定他们觉得一巡小百合接近燃尽的表演风格很值得复现<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 12379#       发表于 2023-2-22 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">我对打铁有信心……
+
+*****
+
+####  nufawneafg  
+##### 12380#       发表于 2023-2-22 19:16
+
+ 本帖最后由 nufawneafg 于 2023-2-22 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848855&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2023-2-22 19:12</a>
+瞎猜一下，说不定管事的觉&amp;#x5 ...</blockquote>
+不是，拿别人的身体健康复现这玩意
+你踏马以为你是谁啊，很尊重观众么，自我感动吧
+

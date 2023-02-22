@@ -15558,3 +15558,21 @@ miko：以后注意
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4437#         楼主| 发表于 2023-2-22 19:12
+
+官号草
+
+<img src="https://img.saraba1st.com/forum/202302/22/191207ioz47nsnwcrq8qjr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-22 19:12 上传
+
+全程指示厨
+

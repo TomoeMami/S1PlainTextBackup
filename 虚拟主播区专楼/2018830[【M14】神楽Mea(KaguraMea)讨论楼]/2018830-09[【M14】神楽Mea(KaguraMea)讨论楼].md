@@ -4983,3 +4983,13 @@ Queen的翻唱还行
 
 来个保底（
 
+
+*****
+
+####  Dualist彩  
+##### 13438#       发表于 2023-2-22 19:19
+
+呵呵，营业感严重，什么任务型直播
+
+卖不出去就自己抽是吧，钱全打水漂了，算上做周边的钱这把你麻亏到裤裆里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
