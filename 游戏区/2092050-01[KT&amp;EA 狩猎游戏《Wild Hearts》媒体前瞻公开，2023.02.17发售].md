@@ -3424,3 +3424,31 @@ nm云存档没同步成功过
 
   我更新了之后设置全都没改反而顺畅了，TAA效果也更好了
 
+
+*****
+
+####  yanhan0410  
+##### 640#       发表于 2023-2-22 14:30
+
+ 本帖最后由 yanhan0410 于 2023-2-22 15:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和好基友PS5版连着肝了三天
+
+总体评价能到88分吧
+
+游戏还是很不错的 满地图造机巧很有意思
+
+怪物AI也比试玩演示的好很多
+
+武器继承玩一笔画也挺有意思 就是为了拖游戏时长 有些素材的掉率堪称SM<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+问题就是太慢热了 完全体狩猎形式开放的太晚
+
+新手引导做的也极其不友好
+
+怪太少 武器招式太少了
+
+剧情就那么回事吧
+
+好好打磨打磨出个2代我估计还会玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
