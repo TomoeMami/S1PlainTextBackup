@@ -10999,3 +10999,18 @@ BX自带50+兔子50
 
 1宝绿王强无敌（
 
+
+*****
+
+####  eilot  
+##### 5525#       发表于 2023-2-22 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59850339&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 20:27</a>
+
+整个活动</blockquote>
+哗!!!
+
+那就要考虑是否给壹与或狂娜吃好...
+
+不知道将壹与升到90或升满技1和3能否秒到
+

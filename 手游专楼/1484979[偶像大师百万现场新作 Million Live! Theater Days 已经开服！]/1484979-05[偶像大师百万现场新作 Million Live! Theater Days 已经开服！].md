@@ -45,3 +45,11 @@
 
 我是把miki的黑牌拿了，剩下拿完白牌拉倒
 
+
+*****
+
+####  cckuku  
+##### 7111#       发表于 2023-2-22 20:47
+
+是你们太肝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我每天只打10把双倍就下线。
+
