@@ -4142,3 +4142,28 @@ AJ联合发布会没有星，星三今年应该不大可能了吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  toshima  
+##### 12398#       发表于 2023-2-22 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59851061&amp;ptid=2078110" target="_blank">yturieowpq1 发表于 2023-2-22 21:00</a>
+
+作为素人写真卖这么多，粉丝忠心无比，如果这都叫惨，其他声优得跳楼了 ...</blockquote>
+两面性，狂热粉会爆金币，同时也会限制你做很多事情。。说来怪了。。打铁明明没啥偶像营业但是噶起粉这么多，甚至连喜欢个流行乐队是男人都不允许。。。
+
+*****
+
+####  cybernetics31  
+##### 12399#       发表于 2023-2-22 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大叔粉多真的是好事吗
+
+*****
+
+####  lj205  
+##### 12400#       发表于 2023-2-22 22:36
+
+形象吸引吧
+
