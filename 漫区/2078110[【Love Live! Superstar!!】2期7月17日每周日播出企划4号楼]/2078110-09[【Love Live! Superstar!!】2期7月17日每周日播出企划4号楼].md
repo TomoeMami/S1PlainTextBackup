@@ -3833,3 +3833,15 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 牛奶糖的旋律总感觉很熟悉，但就是想不起是啥歌</blockquote>
 我觉得像姬样的永远的一人，刚好那首也是白户写的
 
+
+*****
+
+####  saya1892  
+##### 12367#       发表于 2023-2-22 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有剧情的MV就是容易做误会向
+
+【【水渚鱼/误解向】yura！开摇！】 [https://www.bilibili.com/video/BV19o4y1a7T4/](https://www.bilibili.com/video/BV19o4y1a7T4/)
+
+【Liyuu新单曲-分手快乐 (MINI ALBUM「koii」未收录）】 [https://www.bilibili.com/video/BV1hM41177j8/](https://www.bilibili.com/video/BV1hM41177j8/)
+

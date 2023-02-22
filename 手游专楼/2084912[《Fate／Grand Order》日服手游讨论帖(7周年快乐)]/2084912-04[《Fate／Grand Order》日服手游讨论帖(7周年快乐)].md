@@ -10585,3 +10585,15 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一大早发现石头少了很多！想起来昨晚喝酒之后想起楼友们豹跳（bushi）于是怒而抽卡莲池去了……
 
+
+*****
+
+####  khxooo  
+##### 5487#       发表于 2023-2-22 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842602&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2023-2-22 10:01</a>
+一大早发现石头少了很多！想起来昨晚喝酒之后想起楼友们豹跳（bushi）于是怒而抽卡莲池去了……
+
+攒 ...</blockquote>
+为什么不是石头变多了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
