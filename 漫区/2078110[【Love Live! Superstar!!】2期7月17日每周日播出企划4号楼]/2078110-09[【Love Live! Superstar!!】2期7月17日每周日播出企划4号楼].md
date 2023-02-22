@@ -4179,3 +4179,20 @@ AJ联合发布会没有星，星三今年应该不大可能了吧
 歌词确实多给了几句
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但BD特典曲这东西好像就FM唱过几首吧
 
+
+*****
+
+####  优妮可  
+##### 12402#       发表于 2023-2-22 23:28
+
+pay给鱼的写真点了赞<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+Screenshot_2023-02-22-23-24-41-77_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg
+(224.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-22 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202302/22/232655mgjtjg9i9ammghqn.jpg" referrerpolicy="no-referrer">
+
