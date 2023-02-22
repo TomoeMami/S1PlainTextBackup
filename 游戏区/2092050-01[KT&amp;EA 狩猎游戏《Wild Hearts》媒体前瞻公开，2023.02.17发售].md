@@ -3406,3 +3406,13 @@ gp起来了反击确实伤害 ...</blockquote>
 
 nm云存档没同步成功过
 
+
+*****
+
+####  AEmpire  
+##### 638#       发表于 2023-2-22 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842309&amp;ptid=2092050" target="_blank">Eadric 发表于 2023-2-22 09:33</a>
+ 这游戏联机是真的稳，也不知道是不是人少的原因和各种日文韩文英文名字的大哥联机从来没掉过  ——  ...</blockquote>
+确实，跟美西的朋友联机玩稳定的一逼
+
