@@ -10937,3 +10937,33 @@ BX自带50+兔子50
 
 80级5宝铁拳圣女吃奥宝的buff就能一拳80w+，随便拉个吃单拐能打20w的就能6加成了（我自己上了卡莲），马达宝具还前置减防，基本上能一炮轰死一面的都能补掉二面。
 
+
+*****
+
+####  qixinno2  
+##### 5519#       发表于 2023-2-22 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把巧克力给尺芬奇加OC 不补刀了
+
+*****
+
+####  1a不解释  
+##### 5520#       发表于 2023-2-22 20:20
+
+才开始打活动，问一下怎么让从者满np出场，我带着本人的巧克力礼装没有变化<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  alucardcz  
+##### 5521#       发表于 2023-2-22 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59850220&amp;ptid=2084912" target="_blank">1a不解释 发表于 2023-2-22 20:20</a>
+
+才开始打活动，问一下怎么让从者满np出场，我带着本人的巧克力礼装没有变化
+
+—— 来自 OPPO PENM00 ...</blockquote>
+活动商店里面那个送巧克力 选最右边就是
+

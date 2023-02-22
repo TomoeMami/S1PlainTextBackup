@@ -4074,3 +4074,24 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 
 粉丝能做的也就只有相信打铁了。
 
+
+*****
+
+####  stygian  
+##### 12391#       发表于 2023-2-22 20:19
+
+ 本帖最后由 stygian 于 2023-2-22 20:22 编辑 
+
+AJ联合发布会没有星，星三今年应该不大可能了吧
+
+哦去年也没带星，当我没说。。。
+
+*****
+
+####  一个陆仁贾  
+##### 12392#       发表于 2023-2-22 20:21
+
+想起了当年逢田姐live弹钢琴，杏树后空翻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
