@@ -10721,3 +10721,30 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 
 用大象那还真是恶心了所有人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5501#       发表于 2023-2-22 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我 不想动脑子 直接黑杯狂娜炸穿了
+
+*****
+
+####  Jamaisvu  
+##### 5502#       发表于 2023-2-22 18:34
+
+ 本帖最后由 Jamaisvu 于 2023-2-22 18:37 编辑 
+
+用壹与试了一下，攻击太低，带黑杯都只能打一半血...看来还是要找个单体打手...唉，祝福巧克力给早了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好后悔没给狂娜上祝福...
+
+*****
+
+####  alucardcz  
+##### 5503#       发表于 2023-2-22 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848408&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-2-22 18:34</a>
+
+用壹与试了一下，攻击太低，带黑杯都只能打一半血...看来还是要找个单体打手...唉，祝福巧克力给早了[f:068 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这问题不要太简单 上个尺番茄不就行了  还是你是要不换人
+
