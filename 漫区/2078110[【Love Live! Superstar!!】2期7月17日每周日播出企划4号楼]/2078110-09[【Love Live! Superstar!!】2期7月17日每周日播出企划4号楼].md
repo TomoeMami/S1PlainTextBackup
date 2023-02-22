@@ -3997,3 +3997,49 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 不是，拿别人的身体健康复现这玩意
 你踏马以为你是谁啊，很尊重观众么，自我感动吧
 
+
+*****
+
+####  懂你意思  
+##### 12381#       发表于 2023-2-22 19:23
+
+甚至阴暗点可以说是加速损耗然后换人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 12382#       发表于 2023-2-22 19:27
+
+不至于歪到换人的层面，就是企划不看现实没半点逼数还自我感动
+
+*****
+
+####  stygian  
+##### 12383#       发表于 2023-2-22 19:28
+
+我收回之前的话，现在的音P/拍板定歌的可以直接去死了，脑子有屎
+
+*****
+
+####  ruffian  
+##### 12384#       发表于 2023-2-22 19:35
+
+阴暗点说用她的身体健康来虐粉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nufawneafg  
+##### 12385#       发表于 2023-2-22 19:36
+
+别发散了...没有正面作用的
+
+*****
+
+####  Piano-Forest  
+##### 12386#       发表于 2023-2-22 19:38
+
+<img src="https://p.sda1.dev/10/33ae947bf190da4188a2529114e961e7/image _4_.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/0c6379dde70ef6ce35358b7bedc789aa/20230222_193630.jpg" referrerpolicy="no-referrer">
+

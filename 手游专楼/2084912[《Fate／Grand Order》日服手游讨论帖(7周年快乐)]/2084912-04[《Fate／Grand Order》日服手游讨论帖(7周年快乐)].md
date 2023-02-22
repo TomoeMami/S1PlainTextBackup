@@ -10859,3 +10859,73 @@ BX自带50+兔子50
 
 等等 还是说你王姐能一炮直接连第1面大的也能带走？
 
+
+*****
+
+####  exiaexa  
+##### 5513#       发表于 2023-2-22 19:23
+
+ 本帖最后由 exiaexa 于 2023-2-22 19:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59848942&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 19:17</a>
+
+兔子是什么 我理解为双rba是否正确
+
+然后这不是还是不够吗   所以第1面要打暴击？</blockquote>
+用摩根就是要打暴击啊，自充绑buff就是这么傻逼，不过1t45星闭着眼睛都暴击
+
+只要别整出rba蓝绿+bx蓝+摩根绿就行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你换个别的打手只可能比摩根更稳，比如吃了巧克力的太公望
+
+别的打手buff和自充不捆绑，1t就能开，BX善特攻打大象管够，光炮打手清掉那个狂就行了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5514#       发表于 2023-2-22 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59849039&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-22 19:23</a>
+
+用摩根就是要打暴击啊，自充绑buff就是这么傻逼，不过1t45星闭着眼睛都暴击
+
+只要别整出rba蓝绿+bx蓝+摩根 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新去试试1宝的bx行不行
+
+*****
+
+####  ATEX  
+##### 5515#       发表于 2023-2-22 19:28
+
+兔子王洗牌是真的爽
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 5516#       发表于 2023-2-22 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59849039&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-22 19:23</a>
+
+用摩根就是要打暴击啊，自充绑buff就是这么傻逼，不过1t45星闭着眼睛都暴击
+
+只要别整出rba蓝绿+bx蓝+摩根 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜报 1宝bx居然可以
+
+*****
+
+####  alucardcz  
+##### 5517#       发表于 2023-2-22 19:41
+
+<img src="https://img.saraba1st.com/forum/202302/22/194129ukzump5x8ge37p59.jpg" referrerpolicy="no-referrer">
+
+<strong>232333.jpg</strong> (652.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-22 19:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后第2把就翻车了
+
