@@ -1695,3 +1695,13 @@ KE古伊奈是接第三章的正史，跟DR第三章的古伊奈这两个说法�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火的意志  
+##### 138#       发表于 2023-2-22 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59849645&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-2-22 19:51</a>
+KE古伊奈是接第三章的正史，跟DR第三章的古伊奈这两个说法可谓是天差地别，你现在承不承认“第三章的古伊 ...</blockquote>
+我真不知道差别在哪儿，也看不出其他人的发言和“第三章的古伊奈”有什么区别，你这么在意那帮我修正一下？
+
