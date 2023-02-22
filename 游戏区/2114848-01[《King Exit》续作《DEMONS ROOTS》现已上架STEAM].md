@@ -1346,3 +1346,14 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火的意志  
+##### 112#       发表于 2023-2-22 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842789&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-2-22 10:15</a>
+答案是你的推理已经错了，魔族暴走根本不需要波瑠卡死亡。一个正常国人也能想得到，薄荷螺丝想要复国还能 ...</blockquote>
+是呀，那古伊奈就更该想到king exit会发生什么了，她不就是做好心理准备才来的吗？
+所以我不觉得king exit里那个心态爆炸的古依奈和dr里的是一个人
+
