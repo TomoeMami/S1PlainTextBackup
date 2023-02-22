@@ -10967,3 +10967,35 @@ BX自带50+兔子50
 —— 来自 OPPO PENM00 ...</blockquote>
 活动商店里面那个送巧克力 选最右边就是
 
+
+*****
+
+####  eilot  
+##### 5522#       发表于 2023-2-22 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59850231&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 20:21</a>
+
+活动商店里面那个送巧克力 选最右边就是</blockquote>
+还未用，是一次性满NP，还是整个活动它都是满NP开局，那就能常配黑杯
+
+*****
+
+####  alucardcz  
+##### 5523#       发表于 2023-2-22 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59850302&amp;ptid=2084912" target="_blank">eilot 发表于 2023-2-22 20:25</a>
+
+还未用，是一次性满NP，还是整个活动它都是满NP开局，那就能常配黑杯</blockquote>
+整个活动
+
+*****
+
+####  alucardcz  
+##### 5524#       发表于 2023-2-22 20:28
+
+[https://www.bilibili.com/video/BV1ov4y1Y7WW](https://www.bilibili.com/video/BV1ov4y1Y7WW)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢个录像 就前面大佬说的阵容 
+
+1宝绿王强无敌（
+
