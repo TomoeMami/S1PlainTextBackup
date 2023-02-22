@@ -10597,3 +10597,14 @@ SCP-FGO-1790-2为黑色胡狼形态的生物，四肢散发出淡蓝色低温火
 攒 ...</blockquote>
 为什么不是石头变多了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霧谷藤乃  
+##### 5488#       发表于 2023-2-22 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59843466&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-2-22 11:08</a>
+
+为什么不是石头变多了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能变多，虽然一开始把片换成石头的确多了点，但随着一发又一发的11连丢出去，已经蓝瘦了
+
