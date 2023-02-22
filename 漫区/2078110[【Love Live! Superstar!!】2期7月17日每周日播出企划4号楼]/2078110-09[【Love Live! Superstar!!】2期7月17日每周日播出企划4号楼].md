@@ -3845,3 +3845,25 @@ pay一单的cw曲也公布了，果然是术曲唱起来就是一口气到底没
 
 【Liyuu新单曲-分手快乐 (MINI ALBUM「koii」未收录）】 [https://www.bilibili.com/video/BV1hM41177j8/](https://www.bilibili.com/video/BV1hM41177j8/)
 
+
+*****
+
+####  优妮可  
+##### 12368#       发表于 2023-2-22 16:37
+
+<img src="https://img.saraba1st.com/forum/202302/22/163735xokksjxjkzb06xal.jpg" referrerpolicy="no-referrer">
+
+<strong>20230222_163136.jpg</strong> (146.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-22 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202302/22/163739ecsos4ll2osb9llx.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (460.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-22 16:37 上传
+

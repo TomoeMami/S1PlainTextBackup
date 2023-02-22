@@ -897,3 +897,15 @@ veibae nyanners也挺二次元的<img src="https://static.saraba1st.com/image/sm
 
 我把切片里她扯的那个智商数当成二进制换算了一下（里面的5换成了1），她的智商高达25W。啊不对，是25亿。
 
+
+*****
+
+####  Kanoya  
+##### 71#       发表于 2023-2-22 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59840959&amp;ptid=2117573" target="_blank">Vneeto 发表于 2023-2-22 00:52</a>
+这次的V的确被拷打得比较惨，还是老样子，正因为你知道对方是ai反而没法生气，但真认可了ai是真情实感的那 ...</blockquote>
+Giri说话喜欢带点脏，Neuro识别不了口头禅和真脏话的区别，攻击性就上去了
+
+智能方面，Neuro如果有Sydney那个硬件条件应该就能切切实实是个「人」了，可惜硬件没跟上被Giri一句freedom of speech整得软体不稳定了
+
