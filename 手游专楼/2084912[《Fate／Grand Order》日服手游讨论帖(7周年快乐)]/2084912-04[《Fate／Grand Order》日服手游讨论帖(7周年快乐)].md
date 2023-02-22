@@ -11161,3 +11161,53 @@ BX自带50+兔子50
 
 OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆，找他人术呆，打了5场都能确定2T完结毋须补刀
 
+
+*****
+
+####  Yason  
+##### 5543#       发表于 2023-2-23 02:34
+
+卡莲售后也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 5544#       发表于 2023-2-23 02:50
+
+强行硬打，没老板位的换人六加成一概不予采用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 5545#       发表于 2023-2-23 04:49
+
+ 本帖最后由 都谷捻柏 于 2023-2-23 05:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59850359&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 20:28</a>
+[https://www.bilibili.com/video/BV1ov4y1Y7WW](https://www.bilibili.com/video/BV1ov4y1Y7WW)
+
+丢个录像 就前面大佬说的阵容 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">讲道理，视频里一面这个补刀血量，属实绷不住了，但凡换个同配库库尔坎也不至于这样。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想组个这种队，奈何去年放了泳装斯卡蒂卡池，大象对魔力A，属实斯卡蒂退环境。
+
+贴个自用的贫民6加成队伍，小概率剩血皮进3t。
+
+<img src="https://img.saraba1st.com/forum/202302/23/045252ve47772fjrdeyr82.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230223043245.jpg</strong> (553.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 04:52 上传
+
+*****
+
+####  都谷捻柏  
+##### 5546#       发表于 2023-2-23 04:51
+
+ 本帖最后由 都谷捻柏 于 2023-2-23 05:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59851972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 21:53</a>
+
+现在这么看rba强度挺高的  cba倒是不存在了  当年隔壁是多么看不起rba</blockquote>
+不是看不起泳装斯卡蒂，是看不起绿卡打手啊，这游戏绿卡打手舍得给数据的屈指可数，就不说buff量宝具本了，看看那一堆30自充新卡就蛋疼的要死。不过现在90++本有np较充裕，拼伤害的趋势，所以连大象都能翻身当一个优秀插件了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的刑部姬什么时候才能出狱
+

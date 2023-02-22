@@ -1887,3 +1887,13 @@ abxy只能映射两套按键</blockquote>
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  asakura_tooru  
+##### 192#       发表于 2023-2-23 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842132&amp;ptid=2070699" target="_blank">nailuo1993 发表于 2023-2-22 09:11</a>
+有 在discord pdft群组有一直更新</blockquote>
+能麻烦分享下邀请链接吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
