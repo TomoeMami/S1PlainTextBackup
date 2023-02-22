@@ -1357,3 +1357,17 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 是呀，那古伊奈就更该想到king exit会发生什么了，她不就是做好心理准备才来的吗？
 所以我不觉得king exit里那个心态爆炸的古依奈和dr里的是一个人
 
+
+*****
+
+####  子夜微雪  
+##### 113#       发表于 2023-2-22 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59843155&amp;ptid=2114848" target="_blank">火的意志 发表于 2023-2-22 10:43</a>
+是呀，那古伊奈就更该想到king exit会发生什么了，她不就是做好心理准备才来的吗？
+所以我不觉得king exi ...</blockquote>
+什么道理，我搞反侵略和我知道侵略者会有多不当人有什么关系？
+退一步说，波瑠卡搞侵略计划的时候有做好结局被刺的心理准备吗？序章和结局的波瑠卡是一个人吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
