@@ -153,3 +153,14 @@ O蛇（库库尔、宇蛇神）因为操作按键数甚至超过了陈宫，一�
 
 库库尔坎相当强，日基那边评价点满技能1宝能顶摩根3宝输出……但异邦人实用度有问题，打红字的机会太少，开技能需要多点一次在周回时也挺麻烦的，配双狐需要多点六下
 
+
+*****
+
+####  shimotsuki14  
+##### 44168#       发表于 2023-2-22 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59835389&amp;ptid=1712412" target="_blank">待宵 发表于 2023-2-21 15:43</a>
+
+90+用哈贝喵双C呆有点腻了，还有别的玩法吗？</blockquote>
+伊莉莎骑阶+双太公？
+

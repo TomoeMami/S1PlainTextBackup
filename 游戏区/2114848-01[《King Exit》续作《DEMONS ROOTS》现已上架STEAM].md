@@ -1322,3 +1322,15 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火的意志  
+##### 110#       发表于 2023-2-22 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59842312&amp;ptid=2114848" target="_blank">子夜微雪 发表于 2023-2-22 09:33</a>
+看到的只有双亡的未来和洋葱败给皇帝的未来啊，古伊奈手里可没拿到过正史的未来
+
+—— 来自 S1Fun ...</blockquote>
+我觉得有正常推理能力的人也能猜出来，波琉卡死了魔族暴怒，最后人类还想活下来要经历什么吧？你总不能想着暗杀完了就一了百了魔族主动投降了？
+
