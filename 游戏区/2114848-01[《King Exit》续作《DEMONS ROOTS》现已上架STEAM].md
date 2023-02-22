@@ -1300,3 +1300,13 @@ rpg成分无感，剧情模式玩完，感觉还是KE这样在故事规模和角
 
 玩完一周目，比起中途背叛，这结局也太难受了。明明感觉很不错，气氛也到位了，突然来这一下，破罐破摔也行，又给了点甜头。根本没有ge的感觉，女主哭泣那张cg倒是不错。<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火的意志  
+##### 108#       发表于 2023-2-22 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59526219&amp;ptid=2114848" target="_blank">突发性哮喘病患 发表于 2023-1-29 10:42</a>
+重新快速过了一下KE的剧情，发现古伊奈你个罪魁祸首天天说风凉话，选择放弃未来的不就是你嘛 ...</blockquote>
+早就想这么吐槽了，古伊奈选择去暗杀后面人类遭的苦你不是全在书上看过了？不都是为了最后人类存活必要的牺牲？那她在King exit里绝望个屁呢，不是早该偷着乐了
+

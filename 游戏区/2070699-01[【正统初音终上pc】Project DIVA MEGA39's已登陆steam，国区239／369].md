@@ -1874,3 +1874,16 @@ abxy只能映射两套按键
 买这个steam版的话，有能用的X曲包吗，街机版的发型饰品插件，视角插件还能用吗 ...</blockquote>
 有 在discord pdft群组有一直更新
 
+
+*****
+
+####  moonmagian  
+##### 191#       发表于 2023-2-22 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59841106&amp;ptid=2070699" target="_blank">脚本水平 发表于 2023-2-22 01:24</a>
+这游戏steam版也太阴间了吧
+abxy只能映射两套按键</blockquote>
+感觉segay是不打算修了，早日转肩键4hold的键位吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
