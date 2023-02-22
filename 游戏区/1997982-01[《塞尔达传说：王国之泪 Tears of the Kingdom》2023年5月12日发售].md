@@ -5780,3 +5780,35 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 这样的话，结合限定版四个胸针代表四个能力，没有展示的能力还有两个。
 
+
+*****
+
+####  lanyu_u  
+##### 1176#       发表于 2023-2-23 01:00
+
+<img src="https://img.saraba1st.com/forum/202302/23/005635qwv7hqq1x4qqeh7w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot_VirtualDesktop.Android_2023.02.23-00.50.14.452_710.jpeg</strong> (236.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 00:56 上传
+
+<img src="https://img.saraba1st.com/forum/202302/23/005646iazoc8qpaw4jq4pp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot_VirtualDesktop.Android_2023.02.23-00.48.25.554_443.jpeg</strong> (256.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 00:56 上传
+
+说起来不怕笑话，买了pico4后搞定vd后，立马尝试用大屏玩野炊mod
+
+<img src="https://img.saraba1st.com/forum/202302/23/005702d1b66666ny0yojbd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot_VirtualDesktop.Android_2023.02.23-00.47.52.540_121.jpeg</strong> (236.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 00:57 上传
+
