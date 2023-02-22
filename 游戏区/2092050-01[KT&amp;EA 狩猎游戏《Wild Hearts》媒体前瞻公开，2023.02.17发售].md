@@ -3380,3 +3380,13 @@ gp起来了反击确实伤害 ...</blockquote>
 
 昨天和两大哥打天照守，两大哥用打炮我飞燕刀，他俩上房后完全没仇恨，大鸟就盯着我一个人打。然后我挂掉之后，boss没有目标了原地发呆，大哥们用大炮原地轰木桩轰了十分钟收工，我后面全程远处看戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我也得搞个大炮，得趁称修复前刷个够
 
+
+*****
+
+####  Eadric  
+##### 635#       发表于 2023-2-22 09:33
+
+这游戏联机是真的稳，也不知道是不是人少的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和各种日文韩文英文名字的大哥联机从来没掉过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -50,3 +50,11 @@
 老实说</blockquote>
 我觉得还挺好，荒木不适合8部那种调调，卖关子太多容易翻车，这个第一话感觉该说的都说得还挺清楚的，主角队几个看着也不是那种太抽象的替身能力
 
+
+*****
+
+####  Rhantolk  
+##### 168#       发表于 2023-2-22 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">9我觉得荒木还是清楚自己的优势区间的，开局直接开始公路片，肯定没错
+
