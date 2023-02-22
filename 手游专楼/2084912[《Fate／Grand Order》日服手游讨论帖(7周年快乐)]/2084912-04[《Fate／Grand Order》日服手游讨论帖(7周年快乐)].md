@@ -11211,3 +11211,34 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 不是看不起泳装斯卡蒂，是看不起绿卡打手啊，这游戏绿卡打手舍得给数据的屈指可数，就不说buff量宝具本了，看看那一堆30自充新卡就蛋疼的要死。不过现在90++本有np较充裕，拼伤害的趋势，所以连大象都能翻身当一个优秀插件了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的刑部姬什么时候才能出狱
 
+
+*****
+
+####  exiaexa  
+##### 5547#       发表于 2023-2-23 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59851972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-22 21:53</a>
+
+现在这么看rba强度挺高的  cba倒是不存在了  当年隔壁是多么看不起rba</blockquote>
+理念问题
+
+就像楼上觉得10w+的血量补刀绷不住，当年谁都没意识到rba那个红卡爆伤和群buff有多猛
+
+实际上几次90++打下来都应该知道，10w+完全在rba的斩杀线内，剩个20w+才是头疼的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 5548#       发表于 2023-2-23 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855056&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-23 04:49</a>
+
+讲道理，视频里一面这个补刀血量，属实绷不住了，但凡换个同配库库尔坎也不至于这样。
+
+我也 ...</blockquote>
+我那个阵容是为了给老婆拉羁绊
+
+上面说过了你换个别的自buff50充吃巧克力只会更猛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
