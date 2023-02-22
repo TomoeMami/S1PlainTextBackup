@@ -61,3 +61,13 @@ ns日区解锁
 
 看了别人直播，还蛮不错，但就是BGM实在不怎么好听
 
+
+*****
+
+####  cmyk1234  
+##### 141#         楼主| 发表于 2023-2-23 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59854377&amp;ptid=2085482" target="_blank">112zero 发表于 2023-2-23 00:51</a>
+这次的点阵水平一言难尽啊，等视频通关吧</blockquote>
+难度高的要命。
+
