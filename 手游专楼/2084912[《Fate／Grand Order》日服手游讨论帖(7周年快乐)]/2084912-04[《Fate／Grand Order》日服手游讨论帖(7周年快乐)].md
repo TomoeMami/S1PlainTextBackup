@@ -11336,3 +11336,24 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  angelooo  
+##### 5556#       发表于 2023-2-23 12:13
+
+壹与实在是太超值了，而且卡面建模又好，简直亲女儿
+
+*****
+
+####  alucardcz  
+##### 5557#       发表于 2023-2-23 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855056&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-23 04:49</a>
+
+讲道理，视频里一面这个补刀血量，属实绷不住了，但凡换个同配库库尔坎也不至于这样。
+
+我也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大姐姐猫都不用  我用了一把就决定永远不会再用了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这血量补刀不要太轻松 绷什么?
+
