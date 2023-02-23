@@ -1927,3 +1927,15 @@ abxy只能映射两套按键</blockquote>
 视角插件https://discord.com/channels/698112059014905857/849382549725118474/10707702 ...</blockquote>
 能麻烦拉我进下频道吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没进频道没有权限
 
+
+*****
+
+####  alingzero  
+##### 195#       发表于 2023-2-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862571&amp;ptid=2070699" target="_blank">asakura_tooru 发表于 2023-2-23 20:05</a>
+
+能麻烦拉我进下频道吗没&amp;#x ...</blockquote>
+[https://discord.gg/SxVM6kg](https://discord.gg/SxVM6kg)
+[https://discord.gg/cvBVGDZ](https://discord.gg/cvBVGDZ)
+
