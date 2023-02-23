@@ -28,3 +28,20 @@
 
 air plus月底终于要有新消息了，我999预订款都给aya无息贷款大半年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 652#       发表于 2023-2-23 19:12
+
+<img src="https://p.sda1.dev/10/a5d474f840c46ec839995bed5852537f/CMP_20230223191242496.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  allenz3  
+##### 653#       发表于 2023-2-23 19:15
+
+loki不知道年中能不能玩到<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -101,3 +101,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对战时候看有个人签名是明明AN装备好久没跟了怎么还在不停出AN角
 
+
+*****
+
+####  江戸前ルナ  
+##### 292#         楼主| 发表于 2023-2-23 19:15
+
+ 本帖最后由 江戸前ルナ 于 2023-2-23 19:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59861812&amp;ptid=2104259" target="_blank">madcow 发表于 2023-2-23 18:46</a>
+
+对战时候看有个人签名是明明AN装备好久没跟了怎么还在不停出AN角</blockquote>
+没多久前推特有人翻了下阿金以前的小作文，大概是蛤出ANGEAR后吧，说要大改，请耐心等候。然后就等到现在了。不过放心，AN素组的胶出来时肯定会有更新的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

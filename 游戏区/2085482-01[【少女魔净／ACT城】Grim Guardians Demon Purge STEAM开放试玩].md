@@ -220,3 +220,18 @@ ns日区解锁
 
 玩了三个小时才到中庭，但是好爽
 
+
+*****
+
+####  moonmagian  
+##### 158#       发表于 2023-2-23 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59859618&amp;ptid=2085482" target="_blank">jellyhero 发表于 2023-2-23 15:25</a>
+请问玩上的老哥，ns版卡吗？不卡我就入ns了
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+不卡
+这种16bit点阵要做卡才不容易吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
