@@ -1524,3 +1524,13 @@ s必出券出ss的概率是不是比抽卡高一点...
 
 有两个buffer了，但是很想要aoi，必得池还要抽吗。
 
+
+*****
+
+####  辽远的海的相思  
+##### 1010#       发表于 2023-2-23 23:25
+
+ 本帖最后由 辽远的海的相思 于 2023-2-23 23:27 编辑 
+
+nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

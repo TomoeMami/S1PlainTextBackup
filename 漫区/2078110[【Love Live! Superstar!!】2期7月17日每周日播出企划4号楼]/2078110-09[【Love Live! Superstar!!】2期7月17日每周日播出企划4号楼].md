@@ -4379,3 +4379,30 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 归根结底还不是怪你们五人原理，只要大家都两眼一闭两腿一蹬乖乖支持运营一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 12419#       发表于 2023-2-23 23:24
+
+<blockquote>引用第12415楼ruffian于2023-02-23 23:02发表的  :
+
+我啥都没说，看评论区纠缠几十楼有感  -- 来自 能手机投票的 Stage1官方 Android客户......</blockquote>
+@ruffian
+
+哪里的评论区啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nufawneafg  
+##### 12420#       发表于 2023-2-23 23:25
+
+ 本帖最后由 nufawneafg 于 2023-2-23 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59865120&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-23 23:21</a>
+归根结底还不是怪你们五人原理，只要大家都两眼一闭两腿一蹬乖乖支持运营一切都会好起来的 ...</blockquote>
+翻错书了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+这是信言不美美言不信那本儿<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+下面还有善者不辩辩者不善呢，这不就没招儿了
+
