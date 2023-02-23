@@ -11313,3 +11313,13 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一宝本来就是只能仓库吃灰啊
 
+
+*****
+
+####  rollingusagi  
+##### 5554#       发表于 2023-2-23 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">90++还是老实狂娜五加成换人了，3t问题不大，牌刷的好也能2t，感觉90++暴击重要性真的挺大的，女教皇这卡很可能是将来低配蓝卡也能打90++的必要插件
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
