@@ -5876,3 +5876,34 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 打完雷神兽了，不知道新作有没有前作NPC出场，想看璐菊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 1184#       发表于 2023-2-23 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856104&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-23 10:06</a>
+
+不过老任的宣发真的太迷了，官推上次发文就是转发野炊打折要到期了，已经快一周没说话了。野炊旅游手册发完 ...</blockquote>
+塞尔达官推是那种非常不活跃，只发官方消息的那种，经常大半年不发一个。比如什么纪念日，都不管的。只转发最官方的消息
+
+*****
+
+####  牛奶笛  
+##### 1185#       发表于 2023-2-23 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59860924&amp;ptid=1997982" target="_blank">saynie 发表于 2023-2-23 17:11</a>
+
+打完雷神兽了，不知道新作有没有前作NPC出场，想看璐菊</blockquote>
+感觉会有吧。或许你能看到稍微长大少女一点的璐菊
+
+*****
+
+####  冷泉夜月  
+##### 1186#       发表于 2023-2-23 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59861156&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-02-23 17:33:24</a>
+感觉会有吧。或许你能看到稍微长大少女一点的璐菊</blockquote>然后因为简繁统一，改名叫露珠了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

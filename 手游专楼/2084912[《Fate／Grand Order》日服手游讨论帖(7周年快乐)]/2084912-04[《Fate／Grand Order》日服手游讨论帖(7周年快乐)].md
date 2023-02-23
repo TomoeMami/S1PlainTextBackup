@@ -11514,3 +11514,17 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 1宝w宝具也是秒的，不需要暴击补刀
 
+
+*****
+
+####  miro112233  
+##### 5570#       发表于 2023-2-23 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59861125&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-23 17:29</a>
+不需要补刀啊，2宝黑杯rba秒的
+
+1宝w宝具也是秒的，不需要暴击补刀</blockquote>
+现在隔壁经过几轮90++实战也认识到rba是去年强度上最值得抽的卡了。rba刚落地的时候的风评是多15%红绿魔放没有质变；绿卡不缺星，所以rba的出星没用；红卡爆伤放绿卡队是来搞笑的之类的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
