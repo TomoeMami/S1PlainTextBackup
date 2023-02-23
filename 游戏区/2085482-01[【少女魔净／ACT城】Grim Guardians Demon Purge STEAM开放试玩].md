@@ -134,3 +134,13 @@ ns日区解锁
 
 能不能开头故意送一个,然后单人通关
 
+
+*****
+
+####  cmyk1234  
+##### 149#         楼主| 发表于 2023-2-23 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855918&amp;ptid=2085482" target="_blank">oyss 发表于 2023-2-23 09:37</a>
+能不能开头故意送一个,然后单人通关</blockquote>
+下一关会双人复活，不过不按换人就是了
+
