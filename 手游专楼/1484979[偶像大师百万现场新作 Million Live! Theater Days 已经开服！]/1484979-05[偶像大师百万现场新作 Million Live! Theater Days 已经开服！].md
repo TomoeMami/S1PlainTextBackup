@@ -53,3 +53,16 @@
 
 是你们太肝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我每天只打10把双倍就下线。
 
+
+*****
+
+####  花开安菲路  
+##### 7112#       发表于 2023-2-23 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59847638&amp;ptid=1484979" target="_blank">killcal 发表于 2023-2-22 17:26</a>
+
+我是把miki的黑牌拿了，剩下拿完白牌拉倒</blockquote>
+和我想的差不多
+
+我也是把杏奈黑牌子打了，剩下的看情况收集下白牌子。
+
