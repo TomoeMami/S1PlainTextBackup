@@ -5847,3 +5847,13 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 感觉全力宣发得4月了，3月估计会给大电影让路？
 
+
+*****
+
+####  yuwe0714  
+##### 1181#       发表于 2023-2-23 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856104&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-2-23 10:06</a>
+不过老任的宣发真的太迷了，官推上次发文就是转发野炊打折要到期了，已经快一周没说话了。野炊旅游手册发完 ...</blockquote>
+关键三月底四月初王泪专属直面会之后肯定就要集中宣传王泪了，他总不能在3月份开始腹泻式把野炊各个区域更新完吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

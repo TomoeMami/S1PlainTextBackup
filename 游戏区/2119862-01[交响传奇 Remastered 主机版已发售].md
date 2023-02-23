@@ -1014,3 +1014,16 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定
 PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</blockquote>
 那我等等降价后买PS4版吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusfive  
+##### 101#       发表于 2023-2-23 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856134&amp;ptid=2119862" target="_blank">qiyu1234 发表于 2023-2-23 10:10</a>
+
+万南很鸡贼的改掉了TOS RE官网上对于移植版改良内容的描述
+
+例如将“FPS安定化（30帧）” 改为 “一部分 技 ...</blockquote>
+哈哈，万南好si，太鸡贼了，脸都不要了
+

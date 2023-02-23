@@ -11305,3 +11305,11 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 库库尔坎1宝各种打不动，貌似所有攻略视频都是默认宝2往上的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 5553#       发表于 2023-2-23 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一宝本来就是只能仓库吃灰啊
+
