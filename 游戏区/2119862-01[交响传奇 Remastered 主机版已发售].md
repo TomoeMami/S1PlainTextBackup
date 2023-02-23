@@ -944,3 +944,60 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 
 2023-2-23 10:09 上传
 
+
+*****
+
+####  bill910  
+##### 95#       发表于 2023-2-23 10:14
+
+ps4,ps5版贞数都不稳30吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bill910  
+##### 96#       发表于 2023-2-23 10:14
+
+ 本帖最后由 bill910 于 2023-2-23 10:20 编辑 
+
+重复发送了
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bill910  
+##### 97#       发表于 2023-2-23 10:18
+
+ 本帖最后由 bill910 于 2023-2-23 10:20 编辑 
+
+重复发送了
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bill910  
+##### 98#       发表于 2023-2-23 10:18
+
+ 本帖最后由 bill910 于 2023-2-23 10:19 编辑 
+
+重复发送了
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qiyu1234  
+##### 99#         楼主| 发表于 2023-2-23 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856184&amp;ptid=2119862" target="_blank">bill910 发表于 2023-2-23 10:14</a>
+
+ps4,ps5版贞数都不稳30吗？
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+帧数的描述修改是针对NS版调整的
+
+PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定
+
