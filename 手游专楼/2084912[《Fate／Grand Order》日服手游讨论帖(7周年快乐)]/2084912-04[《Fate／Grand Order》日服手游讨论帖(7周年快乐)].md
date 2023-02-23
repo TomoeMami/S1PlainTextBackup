@@ -11323,3 +11323,16 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  黑上シグマ  
+##### 5555#       发表于 2023-2-23 11:20
+
+<blockquote>引用第5551楼白金口袋于2023-02-23 09:54发表的  :
+
+库库尔坎1宝各种打不动，貌似所有攻略视频都是默认宝2往上的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一天玩废狗？这年头打手1宝除了看仓库还能干嘛？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
