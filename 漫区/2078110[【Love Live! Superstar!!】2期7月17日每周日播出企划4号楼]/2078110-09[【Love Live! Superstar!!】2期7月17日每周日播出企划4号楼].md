@@ -4298,3 +4298,19 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 9.私のsymphony（INSTRUMENTAL）</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 12410#       发表于 2023-2-23 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862378&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2023-2-23 19:48</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 12411#       发表于 2023-2-23 20:18
+
+洗粉盘
+
