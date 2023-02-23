@@ -11278,3 +11278,22 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 主要还是看各人的习惯问题了，好比你组的这个尽量给老婆刷绊的队伍，这个组队思路我是非常赞同的（我自己也是使用的这个组队模式）。
 
+
+*****
+
+####  exiaexa  
+##### 5551#       发表于 2023-2-23 08:11
+
+ 本帖最后由 exiaexa 于 2023-2-23 08:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855123&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-23 06:44</a>
+没人怀疑爆伤能力，比如早就有水伊吹+水斯卡蒂的宝暴队。
+
+其实靠指令卡主要问题还是稳定性，就好比血量上 ...</blockquote>
+你这个想法就是狗萌新问的为什么rba被低估啊，一开始的时候rba给的红buff可都是被认为是无效buff的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以前说暴击不稳那是15张卡roll3张有效输出卡，双兔子给你40星又怎么样，还不是要15roll3，所以大家才不爱赌
+
+现在绿卡补刀能力就是远超红蓝，哪怕用单核，双rba也自带全队30红绿+40攻，就算真的是黑到roll出全蓝卡，那概率也比15roll3好出一条街啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
