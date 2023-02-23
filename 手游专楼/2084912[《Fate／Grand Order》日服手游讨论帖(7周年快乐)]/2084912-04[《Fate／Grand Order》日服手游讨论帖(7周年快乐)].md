@@ -11690,3 +11690,18 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 主要是两个巧克力乱喂了，又要6羁绊加成，又要助战好借.....
 
+
+*****
+
+####  exiaexa  
+##### 5587#       发表于 2023-2-23 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59864344&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2023-2-23 22:24</a>
+我...用了陈宫阵容....看四个宝具....我...
+
+主要是两个巧克力乱喂了，又要6羁绊加成，又要助战好借..... ...</blockquote>
+挺正常的嘛，这次活动因为满充巧克力啥鬼阵容都能用还挺乐的
+
+我现在就是rba摩根金时+好友奥伯龙，整了个羁绊四宝具骑脸队，摩根金时每人扔两个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5923,3 +5923,11 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 王泪的COMG点数已经到野炊的一半了<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arisita  
+##### 1188#       发表于 2023-2-23 22:55
+
+有望超越朱紫吗
+
