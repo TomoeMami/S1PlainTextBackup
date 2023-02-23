@@ -247,3 +247,11 @@ ns日区解锁
 
 ……这一看就知道是老恶魔城（而且特指恶魔城3）的模式啊
 
+
+*****
+
+####  notromeo  
+##### 160#       发表于 2023-2-23 23:44
+
+win11系统玩是不是有啥问题啊，手柄时不时就自动重启，那时就无法操作了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
