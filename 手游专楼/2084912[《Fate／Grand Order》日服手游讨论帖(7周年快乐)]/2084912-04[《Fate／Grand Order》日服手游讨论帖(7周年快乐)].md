@@ -11621,3 +11621,11 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 万圣节那次我就是抄的这个作业</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的不6加成的呢
 
+
+*****
+
+####  都谷捻柏  
+##### 5580#       发表于 2023-2-23 21:08
+
+感觉隔壁不少计算器玩家喜欢单核，喜欢拿光炮打100w6加成，不是太能理解。
+
