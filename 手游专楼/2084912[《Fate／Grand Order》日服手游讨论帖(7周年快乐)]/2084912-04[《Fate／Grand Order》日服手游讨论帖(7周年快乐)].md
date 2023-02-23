@@ -11448,3 +11448,33 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 你加个大象就稳了</blockquote>
 我现在不换人看三宝具也是2t稳过 主要是能省下后排的羁绊加成位
 
+
+*****
+
+####  exiaexa  
+##### 5565#       发表于 2023-2-23 16:59
+
+ 本帖最后由 exiaexa 于 2023-2-23 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59859916&amp;ptid=2084912" target="_blank">miro112233 发表于 2023-2-23 15:52</a>
+
+隔壁与其说瞧不起rba，不如说是瞧不起暴击补刀这种打法，对他们来说只有纯宝具能斩杀才是王道，所以蓝卡队 ...</blockquote>
+不存在的，当初多少狂那/仇凛的补刀阵容
+
+当时像我们这种BOX比较平衡的反而是在反暴击
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要我说真相是在伊吹和rba二选一的时候放弃了RBA的可能性说不定更大一点
+
+毕竟隔壁总喜欢all in赌国运
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5566#       发表于 2023-2-23 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59859916&amp;ptid=2084912" target="_blank">miro112233 发表于 2023-2-23 15:52</a>
+
+隔壁与其说瞧不起rba，不如说是瞧不起暴击补刀这种打法，对他们来说只有纯宝具能斩杀才是王道，所以蓝卡队 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了  打暴击这本来就有啊   主要还是看不起rba本身
+

@@ -15605,3 +15605,11 @@ miko：以后注意
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4441#         楼主| 发表于 2023-2-23 17:02
+
+这次是她妈开车把狗带到东京了
+
