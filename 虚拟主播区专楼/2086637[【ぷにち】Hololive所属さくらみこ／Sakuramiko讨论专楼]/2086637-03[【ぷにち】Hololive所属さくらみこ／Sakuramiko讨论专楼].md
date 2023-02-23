@@ -15595,3 +15595,13 @@ miko：以后注意
 
 另外明天还有luna的一场直播搞不好更菜
 
+
+*****
+
+####  rs5621  
+##### 4440#       发表于 2023-2-23 16:53
+
+<img src="https://p.sda1.dev/10/d2aeb0d04729977f3fddb42d18755b68/CMP_20230223165436186.jpg" referrerpolicy="no-referrer">35说了几年的狗长这样的啊，还蛮好看
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
