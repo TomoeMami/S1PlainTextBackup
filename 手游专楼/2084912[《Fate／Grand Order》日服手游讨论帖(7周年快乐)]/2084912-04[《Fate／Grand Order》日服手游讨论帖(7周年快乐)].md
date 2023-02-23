@@ -11669,3 +11669,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 难道不是因为隔壁动不动就是什么5宝仇凛吗（现在是水伊？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个地方黑武藏和伊吹是zzzq，再加上人均高宝宇宙凛，当然是完全没必要了
 
+
+*****
+
+####  都谷捻柏  
+##### 5585#       发表于 2023-2-23 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59863548&amp;ptid=2084912" target="_blank">sosgame67 发表于 2023-2-23 21:19</a>
+
+单核抽一张卡万能解啊（在他们的脑补里）我是不理解国服计算机玩家一天到晚贩卖焦虑+脑补万能解是 ...</blockquote>
+主要最让我难以理解的是有不少无氪/福袋玩家按照这些规划来抽卡，而不是降加成降配抽喜欢的卡……看来是真的很喜欢这个游戏的系统。
+
