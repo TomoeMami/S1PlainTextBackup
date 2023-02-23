@@ -82,3 +82,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开局就在运白粉和贩白粉，这样的小混混就该布迦拉提和茸茸来制裁啊
 
+
+*****
+
+####  游蜓  
+##### 172#       发表于 2023-2-23 21:00
+
+第八部到定助搞清楚自己身世并决定守护贺莉的时候还行，但是后面被东方家承认有些太突兀了，一直没觉得和东方家感情有多好
+另外替身战太无聊了，感情也没啥爆发点
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
