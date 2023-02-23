@@ -4325,3 +4325,13 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 太阴湿了</blockquote>
 缺个私のsymphony(3rdLiveVer.)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 12413#       发表于 2023-2-23 22:39
+
+尼玛现在喜欢五人版交响曲都说不得了是吧？得叠n个甲<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
