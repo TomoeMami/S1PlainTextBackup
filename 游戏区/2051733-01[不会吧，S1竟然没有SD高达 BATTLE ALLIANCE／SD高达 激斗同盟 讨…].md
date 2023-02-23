@@ -54,3 +54,16 @@
 </blockquote>
 射击要有芯片才够猛，一周目的话，芯片肯定不能太考虑，推荐格斗用超越之龙，万能用的强自，射击用F91，三个里面选一个就好
 
+
+*****
+
+####  蛋饼  
+##### 822#       发表于 2023-2-23 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59847479&amp;ptid=2051733" target="_blank">birdma 发表于 2023-2-22 17:12</a>
+
+射击要有芯片才够猛，一周目的话，芯片肯定不能太考虑，推荐格斗用超越之龙，万能用的强自，射击用F91， ...</blockquote>
+我是用开局的那个100%主弹药量芯片，射击机boss战可以连回三四次弹，主武器没按完boss就躺了，万能机全在垃圾时间等cd。
+
+查了下超越之龙是dlc的，这下只能宗室、骑士、艾比安，OOR里面选了
+
