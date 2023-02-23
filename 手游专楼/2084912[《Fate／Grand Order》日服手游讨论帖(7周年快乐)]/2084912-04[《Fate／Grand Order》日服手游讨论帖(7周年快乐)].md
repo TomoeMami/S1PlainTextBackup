@@ -11658,3 +11658,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 说好的不6加成的呢</blockquote>
 我那次用的还是黑杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 5584#       发表于 2023-2-23 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59863569&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-23 21:20</a>
+
+难道不是因为隔壁动不动就是什么5宝仇凛吗（现在是水伊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个地方黑武藏和伊吹是zzzq，再加上人均高宝宇宙凛，当然是完全没必要了
+
