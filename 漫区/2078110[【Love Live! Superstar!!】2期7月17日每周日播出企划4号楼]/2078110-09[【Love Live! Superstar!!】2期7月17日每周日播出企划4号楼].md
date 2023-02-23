@@ -4213,3 +4213,42 @@ Screenshot_2023-02-22-23-24-41-77_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [Sayu：鲤酱说我不会分配饭菜？只是太饿了！](https://www.bilibili.com/video/BV1HD4y1G7kY)
 
+
+*****
+
+####  saya1892  
+##### 12404#       发表于 2023-2-23 12:23
+
+ 本帖最后由 saya1892 于 2023-2-23 12:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卡农初设明明是「喜欢」唱歌的普通女生，不知道为什么2期要给她造神，弄得好像她是唱得最好的
+
+在一巡用废了之后看整个2期就很讽刺
+
+2专solo普遍都偏高，听了一圈感觉除了1期三巨头之外live都不太能驾驭，水渚鱼发声科学，pay是机能怪，其他人我不好说
+
+*****
+
+####  starring  
+##### 12405#       发表于 2023-2-23 12:32
+
+Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅度小就完全不用担心
+
+*****
+
+####  nufawneafg  
+##### 12406#       发表于 2023-2-23 12:50
+
+ 本帖最后由 nufawneafg 于 2023-2-23 12:59 编辑 
+
+角色设定是角色设定，演出筹划是演出筹划
+这两个不同部门负责的东西对不上号出现问题也能理解
+但是问题都发生了，不看现实一头攒死甚至变本加厉真的是无法用清醒的逻辑理解，突出一个梦游<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12407#       发表于 2023-2-23 12:50
+
+。
+
