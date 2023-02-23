@@ -4422,3 +4422,18 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算在追的消灭了也堵不住跑路骑墙看笑话的和“纯路人”的嘴，加人的那一刻就得做好时不时来几个哔哔“五人”的准备啦
 
+
+*****
+
+####  稀勢のささ  
+##### 12423#       发表于 2023-2-24 00:06
+
+纯路人：首先我纯路人，但我听说五人第一次交响曲也没比9人那惊天动地的好到哪儿去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 12424#       发表于 2023-2-24 00:10
+
+草突然想到废话梗，戳中奇怪的笑点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><blockquote>首先我纯路人，之后我纯路人，虽然我纯路人，但是我还是觉得纯路人，难道只有我一个人纯路人吗</blockquote>
+

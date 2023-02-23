@@ -255,3 +255,15 @@ ns日区解锁
 
 win11系统玩是不是有啥问题啊，手柄时不时就自动重启，那时就无法操作了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 161#         楼主| 发表于 2023-2-24 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59864974&amp;ptid=2085482" target="_blank">oidoid 发表于 2023-2-23 23:09</a>
+差评一半是联机有问题，好吧日厂的联机向来都这样……
+
+一半是不喜欢老城……</blockquote>
+一开始只考虑本地双人设计。
+
