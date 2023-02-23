@@ -1001,3 +1001,16 @@ ps4,ps5版贞数都不稳30吗？
 
 PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定
 
+
+*****
+
+####  bill910  
+##### 100#       发表于 2023-2-23 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856247&amp;ptid=2119862" target="_blank">qiyu1234 发表于 2023-2-23 10:20</a>
+
+帧数的描述修改是针对NS版调整的
+
+PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</blockquote>
+那我等等降价后买PS4版吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
