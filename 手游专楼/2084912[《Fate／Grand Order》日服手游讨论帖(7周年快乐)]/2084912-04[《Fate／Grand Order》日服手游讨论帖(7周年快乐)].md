@@ -11405,3 +11405,14 @@ WRBA就是稳
 c呆要带满破礼装开20np，且t1要开宝具叠oc
 <img src="https://p.sda1.dev/10/1a118ecc8a7d4a6c5363aa479e0c19fe/CMP_20230223145836380.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 5561#       发表于 2023-2-23 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59857828&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2023-2-23 12:37</a>
+
+五加成不换人 大概剩不到10w血，没红卡就一号位的rba宝具补一下</blockquote>
+你加个大象就稳了
+
