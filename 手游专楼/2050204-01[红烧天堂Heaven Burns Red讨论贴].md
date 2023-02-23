@@ -1542,3 +1542,15 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 打了14w开始摆烂，希望下期能打到18w吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HinataY  
+##### 1012#       发表于 2023-2-24 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59865559&amp;ptid=2050204" target="_blank">Ashice 发表于 2023-2-23 23:58</a>
+打了14w开始摆烂，希望下期能打到18w吧
+
+草草草，这鬼游戏打分boss下半期还带变抗性的，这下12w都玄 ...</blockquote>
+官方怕你们没看到那个雷月歌池，赶紧抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
