@@ -927,3 +927,14 @@ ai的拟「人」，先不扯有没「自我」意识啥的，让ai有「感情�
 
 直播间中国人不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚才听着听着突然冒出一句moss是我最好的朋友，我和它一起玩游戏（除了PUBG）。弹幕一堆在问moss是谁的
 
+
+*****
+
+####  Vneeto  
+##### 74#       发表于 2023-2-23 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59863985&amp;ptid=2117573" target="_blank">MixRadio 发表于 2023-2-23 21:52</a>
+
+直播间中国人不少啊刚才听着听着突然冒出一句moss是我最好的朋友，我和它一起玩游戏（除了PUBG）。 ...</blockquote>
+破球在世界的影响力还不够，不懂MOSS。
+
