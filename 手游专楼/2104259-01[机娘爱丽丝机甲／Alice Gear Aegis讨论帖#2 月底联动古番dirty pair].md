@@ -58,3 +58,22 @@
 
 这杂志的新漫画，安里打起来表情怎么完全雌小鬼化了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 287#       发表于 2023-2-23 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59831886&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-2-21 10:57</a>
+还是底层代码太烂
+好像之前看群友说这游戏只有柰子有区别，屁股都是根据身高等比例拉伸的
+一下就失望了，岛 ...</blockquote>
+至少不同衣服的屁股会有区别，赛车女郎高叉的屁股明显比所有紧身衣类型的屁股都要肉一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 288#       发表于 2023-2-23 13:26
+
+风怒
+
