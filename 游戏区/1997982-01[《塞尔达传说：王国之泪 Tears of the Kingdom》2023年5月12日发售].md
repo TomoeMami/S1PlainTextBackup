@@ -5931,3 +5931,17 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 有望超越朱紫吗
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1189#       发表于 2023-2-24 02:47
+
+ 本帖最后由 Waldeinsamkeit 于 2023-2-24 02:50 编辑 
+
+超朱紫想太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+野炊6年还没到3000万，朱紫一个半月2000万，这能比吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+如果说的是预约点数我就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
