@@ -11416,3 +11416,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 五加成不换人 大概剩不到10w血，没红卡就一号位的rba宝具补一下</blockquote>
 你加个大象就稳了
 
+
+*****
+
+####  gpx234mqx  
+##### 5562#       发表于 2023-2-23 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59856024&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-2-23 09:54</a>
+
+库库尔坎1宝各种打不动，貌似所有攻略视频都是默认宝2往上的</blockquote>
+外星人打月癌这不自找麻烦嘛
+

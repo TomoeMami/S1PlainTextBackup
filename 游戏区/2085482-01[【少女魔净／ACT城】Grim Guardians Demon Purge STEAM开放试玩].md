@@ -164,3 +164,13 @@ ns日区解锁
 
 —— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bbbuster  
+##### 152#       发表于 2023-2-23 15:33
+
+双人模式能联机么
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
