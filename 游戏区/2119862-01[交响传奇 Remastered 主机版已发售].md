@@ -917,3 +917,30 @@ TODR TOD2就没在欧美发行过，很多欧美玩家就没玩过这俩作,所�
 
 还好还没买
 
+
+*****
+
+####  qiyu1234  
+##### 93#         楼主| 发表于 2023-2-23 10:09
+
+风怒
+
+*****
+
+####  qiyu1234  
+##### 94#         楼主| 发表于 2023-2-23 10:10
+
+万南很鸡贼的改掉了TOS RE官网上对于移植版改良内容的描述
+
+例如将“FPS安定化（30帧）” 改为 “一部分 技 的FPS安定化 （30帧）”
+
+可惜被日本玩家发现并且引起了更大的愤怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/23/100910smf3sd91zc38zq18.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (111.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 10:09 上传
+

@@ -5830,3 +5830,20 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 但是到现在一个礼拜了订单都没动静，这正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/10/03cf6f43cc8e308258289f9c112b4d09/CMP_20230223081709222.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 1179#       发表于 2023-2-23 10:06
+
+不过老任的宣发真的太迷了，官推上次发文就是转发野炊打折要到期了，已经快一周没说话了。野炊旅游手册发完第一期海布拉地区后也快两周没动静了。。。就这速度，半个月介绍一个地区？介绍到王国之泪发售吗？问他是否清醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1180#       发表于 2023-2-23 10:12
+
+感觉全力宣发得4月了，3月估计会给大电影让路？
+
