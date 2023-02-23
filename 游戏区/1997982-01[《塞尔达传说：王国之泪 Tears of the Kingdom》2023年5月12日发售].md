@@ -5820,3 +5820,13 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 这图都能发？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雾时  
+##### 1178#       发表于 2023-2-23 08:18
+
+求问一下坛友。因为没在2000fun买过东西，所以先买了个amiibo 想试试水，选的非本地到付，看描述用的是顺丰到付。
+
+但是到现在一个礼拜了订单都没动静，这正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/10/03cf6f43cc8e308258289f9c112b4d09/CMP_20230223081709222.jpg" referrerpolicy="no-referrer">
+
