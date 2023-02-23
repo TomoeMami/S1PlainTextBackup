@@ -11528,3 +11528,11 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  AbigailWilliams  
+##### 5571#       发表于 2023-2-23 18:15
+
+隔壁rba现在不也是国服今年强度唯二制定的风向嘛，不过确实有把蓝梅和rba放一起问强度抽哪个的就是了，下面也是碾压式的rba<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
