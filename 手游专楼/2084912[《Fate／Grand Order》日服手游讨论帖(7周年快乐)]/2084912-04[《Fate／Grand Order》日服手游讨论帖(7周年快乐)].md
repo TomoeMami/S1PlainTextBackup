@@ -11547,3 +11547,11 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 还行，起码我们在第一个111配置90艹本就开始用rba了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 5573#       发表于 2023-2-23 18:51
+
+泳装斯卡蒂没办法对标奥伯龙的强度，还不够强。
+
