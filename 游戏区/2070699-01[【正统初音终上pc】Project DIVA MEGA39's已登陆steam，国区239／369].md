@@ -1897,3 +1897,20 @@ abxy只能映射两套按键</blockquote>
 有 在discord pdft群组有一直更新</blockquote>
 能麻烦分享下邀请链接吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alingzero  
+##### 193#       发表于 2023-2-23 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855048&amp;ptid=2070699" target="_blank">asakura_tooru 发表于 2023-2-23 04:38</a>
+
+能麻烦分享下邀请链接吗</blockquote>
+昨天我折腾好了
+
+视角插件[https://discord.com/channels/698 ... 1070770242009178184](https://discord.com/channels/698112059014905857/849382549725118474/1070770242009178184)
+
+模组包[https://gamebanana.com/mods/405848](https://gamebanana.com/mods/405848)好多新歌，好多新衣服
+
+还有其他曲包模组可以在香蕉网上搜
+
