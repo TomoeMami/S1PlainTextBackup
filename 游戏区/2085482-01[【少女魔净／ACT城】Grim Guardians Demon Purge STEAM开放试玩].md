@@ -174,3 +174,15 @@ ns日区解锁
 
 —— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kalavinka  
+##### 153#       发表于 2023-2-23 15:47
+
+ 本帖最后由 kalavinka 于 2023-2-23 15:50 编辑 
+
+手机上用app买了，回去看看sd上表现如何<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">----
+
+草 还没解锁
+
