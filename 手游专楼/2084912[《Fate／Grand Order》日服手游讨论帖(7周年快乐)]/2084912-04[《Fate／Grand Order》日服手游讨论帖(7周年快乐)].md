@@ -11555,3 +11555,18 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 泳装斯卡蒂没办法对标奥伯龙的强度，还不够强。
 
+
+*****
+
+####  alucardcz  
+##### 5574#       发表于 2023-2-23 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59861750&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-23 18:36</a>
+
+为了防止我们被反攻倒算，我跑去爬了下泳装期间的楼
+
+还行，起码我们在第一个111配置90艹本就开始用rba了
+
+[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人这么闲翻那老楼青蒜吧
+

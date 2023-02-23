@@ -15613,3 +15613,13 @@ miko：以后注意
 
 这次是她妈开车把狗带到东京了
 
+
+*****
+
+####  rs5621  
+##### 4442#       发表于 2023-2-23 19:56
+
+今天鸽了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
