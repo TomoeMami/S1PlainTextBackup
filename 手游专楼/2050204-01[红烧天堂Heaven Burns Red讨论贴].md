@@ -1534,3 +1534,11 @@ s必出券出ss的概率是不是比抽卡高一点...
 
 nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 1011#       发表于 2023-2-23 23:58
+
+打了14w开始摆烂，希望下期能打到18w吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
