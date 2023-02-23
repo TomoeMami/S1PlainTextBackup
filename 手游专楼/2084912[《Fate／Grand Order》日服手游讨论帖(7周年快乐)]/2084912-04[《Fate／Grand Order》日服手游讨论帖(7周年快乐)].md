@@ -11357,3 +11357,19 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大姐姐猫都不用  我用了一把就决定永远不会再用了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这血量补刀不要太轻松 绷什么?
 
+
+*****
+
+####  仰望神的括约肌  
+##### 5558#       发表于 2023-2-23 12:37
+
+五加成不换人 大概剩不到10w血，没红卡就一号位的rba宝具补一下
+
+<img src="https://img.saraba1st.com/forum/202302/23/123635xpd58w591v92555q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-02-23-12-01-27-63_13e7a6b10873871.jpg</strong> (557.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 12:36 上传
+
