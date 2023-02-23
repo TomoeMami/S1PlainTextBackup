@@ -1914,3 +1914,16 @@ abxy只能映射两套按键</blockquote>
 
 还有其他曲包模组可以在香蕉网上搜
 
+
+*****
+
+####  asakura_tooru  
+##### 194#       发表于 2023-2-23 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855662&amp;ptid=2070699" target="_blank">alingzero 发表于 2023-2-23 09:05</a>
+
+昨天我折腾好了
+
+视角插件https://discord.com/channels/698112059014905857/849382549725118474/10707702 ...</blockquote>
+能麻烦拉我进下频道吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没进频道没有权限
+

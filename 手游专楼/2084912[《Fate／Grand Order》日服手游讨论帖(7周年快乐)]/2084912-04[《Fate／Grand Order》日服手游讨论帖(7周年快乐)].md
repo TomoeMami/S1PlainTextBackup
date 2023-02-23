@@ -11570,3 +11570,24 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 [f ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人这么闲翻那老楼青蒜吧
 
+
+*****
+
+####  exiaexa  
+##### 5575#       发表于 2023-2-23 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862519&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-23 20:00</a>
+不会真有人这么闲翻那老楼青蒜吧</blockquote>
+醒醒，在这个新楼里
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5576#       发表于 2023-2-23 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862577&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-2-23 20:05</a>
+
+醒醒，在这个新楼里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别不大 不会有人真翻以前的记录青蒜吧（
+
