@@ -11536,3 +11536,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 隔壁rba现在不也是国服今年强度唯二制定的风向嘛，不过确实有把蓝梅和rba放一起问强度抽哪个的就是了，下面也是碾压式的rba<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 5572#       发表于 2023-2-23 18:36
+
+为了防止我们被反攻倒算，我跑去爬了下泳装期间的楼
+
+还行，起码我们在第一个111配置90艹本就开始用rba了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
