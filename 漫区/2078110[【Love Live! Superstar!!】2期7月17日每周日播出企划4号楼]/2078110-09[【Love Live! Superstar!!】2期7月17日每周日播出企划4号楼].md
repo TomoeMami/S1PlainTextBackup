@@ -4335,3 +4335,14 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nufawneafg  
+##### 12414#       发表于 2023-2-23 22:43
+
+ 本帖最后由 nufawneafg 于 2023-2-23 22:50 编辑 
+
+没必要，说话为了交流，没有交流的基础/目标就不说
+省很多精力，少不少事儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
