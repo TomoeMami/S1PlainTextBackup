@@ -15623,3 +15623,34 @@ miko：以后注意
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4443#         楼主| 发表于 2023-2-23 21:17
+
+<img src="https://img.saraba1st.com/forum/202302/23/211652dd3ttigc5skgpdpv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202302/23/211705rqqgppvt2dyrib5a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 21:17 上传
+
+这很贴了确实
+
+*****
+
+####  神澈  
+##### 4444#       发表于 2023-2-23 21:18
+
+周一会限，周二MC，周三工商，周四休息，周五联动，这周五天自己频道的正常直播就一次MC。
+

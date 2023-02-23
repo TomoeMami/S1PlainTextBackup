@@ -11629,3 +11629,21 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 感觉隔壁不少计算器玩家喜欢单核，喜欢拿光炮打100w6加成，不是太能理解。
 
+
+*****
+
+####  sosgame67  
+##### 5581#       发表于 2023-2-23 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59863404&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-23 21:08</a>
+
+感觉隔壁不少计算器玩家喜欢单核，喜欢拿光炮打100w6加成，不是太能理解。 ...</blockquote>
+单核抽一张卡万能解啊（在他们的脑补里）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我是不理解国服计算机玩家一天到晚贩卖焦虑+脑补万能解是干嘛，人人都是号贩子还是没了千里眼不会玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5582#       发表于 2023-2-23 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是因为隔壁动不动就是什么5宝仇凛吗（现在是水伊？
+

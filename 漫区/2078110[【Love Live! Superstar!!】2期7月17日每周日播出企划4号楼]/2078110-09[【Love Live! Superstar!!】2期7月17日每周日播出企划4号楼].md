@@ -4314,3 +4314,14 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 洗粉盘
 
+
+*****
+
+####  csolfans  
+##### 12412#       发表于 2023-2-23 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862378&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2023-2-23 19:48</a>
+
+太阴湿了</blockquote>
+缺个私のsymphony(3rdLiveVer.)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
