@@ -11437,3 +11437,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  仰望神的括约肌  
+##### 5564#       发表于 2023-2-23 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59859507&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-2-23 15:14</a>
+
+你加个大象就稳了</blockquote>
+我现在不换人看三宝具也是2t稳过 主要是能省下后排的羁绊加成位
+
