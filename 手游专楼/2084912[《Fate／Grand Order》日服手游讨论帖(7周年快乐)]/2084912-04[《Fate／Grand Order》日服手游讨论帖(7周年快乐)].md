@@ -11478,3 +11478,11 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 隔壁与其说瞧不起rba，不如说是瞧不起暴击补刀这种打法，对他们来说只有纯宝具能斩杀才是王道，所以蓝卡队 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了  打暴击这本来就有啊   主要还是看不起rba本身
 
+
+*****
+
+####  quanlix  
+##### 5567#       发表于 2023-2-23 17:08
+
+打死我也不会去用虫子的
+
