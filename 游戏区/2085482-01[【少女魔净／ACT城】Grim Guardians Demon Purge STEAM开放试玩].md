@@ -154,3 +154,13 @@ ns日区解锁
 
 怎么和豪血寺一族里王子的站姿一模一样？
 
+
+*****
+
+####  jellyhero  
+##### 151#       发表于 2023-2-23 15:25
+
+请问玩上的老哥，ns版卡吗？不卡我就入ns了
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
