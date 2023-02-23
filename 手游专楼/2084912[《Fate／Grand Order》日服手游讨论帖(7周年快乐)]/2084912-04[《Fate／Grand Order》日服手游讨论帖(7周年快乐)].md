@@ -11373,3 +11373,35 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 
 2023-2-23 12:36 上传
 
+
+*****
+
+####  gpx234mqx  
+##### 5559#       发表于 2023-2-23 14:54
+
+ 本帖最后由 gpx234mqx 于 2023-2-23 14:56 编辑 
+
+稳定2T
+
+WRBA就是稳
+
+一宝黑杯就能秒大象了
+
+017C20FD-B717-4CC7-A1E4-FD5E14BEDB6E.jpeg
+(1003.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-23 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202302/23/145352u5j16bc61c6jjppu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 5560#       发表于 2023-2-23 14:58
+
+有满宝狂信可以试试，不重名6加成2t不补刀
+c呆要带满破礼装开20np，且t1要开宝具叠oc
+<img src="https://p.sda1.dev/10/1a118ecc8a7d4a6c5363aa479e0c19fe/CMP_20230223145836380.jpg" referrerpolicy="no-referrer">
+
