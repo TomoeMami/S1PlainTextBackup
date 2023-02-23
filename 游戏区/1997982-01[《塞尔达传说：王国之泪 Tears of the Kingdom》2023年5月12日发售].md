@@ -5868,3 +5868,11 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  saynie  
+##### 1183#       发表于 2023-2-23 17:11
+
+打完雷神兽了，不知道新作有没有前作NPC出场，想看璐菊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
