@@ -4266,3 +4266,35 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 2023-2-23 18:22 上传
 
+
+*****
+
+####  稀勢のささ  
+##### 12409#       发表于 2023-2-23 19:48
+
+<blockquote>タイトル「Liella! Best of my symphony」
+
+発売日：2023年3月25日
+
+品番：TOCT-30696
+
+価格：￥3,800（税込）
+
+1.私のsymphony
+
+2.私のsymphony(1stLiveVer.)
+
+3.私のsymphony (2ndLiveVer.)
+
+4.私のsymphony (2022Ver.)
+
+5.私のsymphony（EDM.MIX)
+
+6.私のsymphony (kanon SPVer.)
+
+7.私のsymphony(デモ)
+
+8.私のsymphony (humming Ver.)
+
+9.私のsymphony（INSTRUMENTAL）</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
