@@ -11297,3 +11297,11 @@ OK，帮壹与升到技999，帮自己术呆吃了巧克力后，再加奥伯隆
 现在绿卡补刀能力就是远超红蓝，哪怕用单核，双rba也自带全队30红绿+40攻，就算真的是黑到roll出全蓝卡，那概率也比15roll3好出一条街啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 5552#       发表于 2023-2-23 09:54
+
+库库尔坎1宝各种打不动，貌似所有攻略视频都是默认宝2往上的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
