@@ -1554,3 +1554,13 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 草草草，这鬼游戏打分boss下半期还带变抗性的，这下12w都玄 ...</blockquote>
 官方怕你们没看到那个雷月歌池，赶紧抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ☆炫  
+##### 1013#       发表于 2023-2-24 08:02
+
+玩了半个月，后10天每天都在重复刷刷刷…有点疲了，冲动之下把攒的砖石抽光，只歪了一个无用的冰阵，二期打分不想肝了…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
