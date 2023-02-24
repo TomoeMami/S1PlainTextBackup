@@ -5126,3 +5126,13 @@ https://weibo.com/5326193952/4872755541181406
 巡航真的好像那种动画ED，还有我感觉是不是再升个key更好一点？</blockquote>
 这首音域跨度大，再升转音太难了
 
+
+*****
+
+####  lj205  
+##### 12499#       发表于 2023-2-25 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59878074&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-24 23:56</a>
+巡航真的好像那种动画ED，还有我感觉是不是再升个key更好一点？</blockquote>
+赞成，感觉鱼应该可以唱的更开，期待现场版
+

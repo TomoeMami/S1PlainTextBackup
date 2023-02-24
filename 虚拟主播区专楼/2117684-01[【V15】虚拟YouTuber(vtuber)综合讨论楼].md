@@ -2425,3 +2425,18 @@ ow狗都不看
 
 以及她的外号应该是くにお，语感上散发着大叔臭（不是）据说是同期这么叫的就直接给她固定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 167#       发表于 2023-2-25 00:12
+
+ 本帖最后由 格林卡罗尔 于 2023-2-25 00:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59877470&amp;ptid=2117684" target="_blank">毛头小希 发表于 2023-2-24 22:52</a>
+唉不是反过来的吗？
+
+未来丹音羽是个开场词小能手，应该是vta先把名字分配给她（这个属于我个人猜测，感觉 ...</blockquote>
+应该不可能是先有名字后有开场白，首先未来丹这种姓氏就不存在，其次未来に羽ばたく是个常见的宣传用语，未来丹音羽这个名字有一大半是从这句话来的。考虑到本人擅长开场白，反而更像是本人想的名字了。另外她这外号我光记住组成是一部分姓一部分名了，确实是くにお<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
