@@ -1603,3 +1603,11 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 氪金是没法带来幸福的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 1018#       发表于 2023-2-24 12:30
+
+这SB音游手残是不是拿不到奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
