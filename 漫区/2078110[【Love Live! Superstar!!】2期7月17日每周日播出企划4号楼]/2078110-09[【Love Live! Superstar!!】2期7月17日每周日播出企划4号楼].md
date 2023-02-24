@@ -4467,3 +4467,20 @@ Nagi那首solo也是难度比较高，不过如果是站桩或者舞蹈动作幅
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被疯狂吐槽为什么千不是常夏可不是小星星。
 
+
+*****
+
+####  ruffian  
+##### 12428#       发表于 2023-2-24 14:11
+
+emm感觉多少有点ooc，你可的动手能力和学霸设定迟早全交出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+0572c901c6b415db9044ede95931632.jpg
+(9.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202302/24/140932t7r22wlo2qkw2igr.jpg" referrerpolicy="no-referrer">
+
