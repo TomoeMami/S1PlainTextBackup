@@ -321,3 +321,16 @@ win11系统玩是不是有啥问题啊，手柄时不时就自动重启，那时
 
 好像x6救人质
 
+
+*****
+
+####  cmyk1234  
+##### 168#         楼主| 发表于 2023-2-24 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871192&amp;ptid=2085482" target="_blank">quanlix 发表于 2023-2-24 14:17</a>
+好像x6救人质</blockquote>
+更麻烦。三个金色成就相当麻烦
+第一个金色收集成就，要找到所有的次元裂隙取出物品，但裂隙不会在罗盘上显示。
+第二个金色结局成就，要满足第一条收集所有裂隙物品。
+第三个金色挑战成就，要以传奇难度通过boss rush，传奇难度和boss rush由二周目任意结局解锁。
+
