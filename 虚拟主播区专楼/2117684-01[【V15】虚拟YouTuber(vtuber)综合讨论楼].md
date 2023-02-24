@@ -2410,3 +2410,18 @@ ow狗都不看
 
 第一个PV就已经一眼穷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛头小希  
+##### 166#       发表于 2023-2-24 22:52
+
+ 本帖最后由 毛头小希 于 2023-2-24 22:55 编辑 
+<blockquote>格林卡罗尔 发表于 2023-2-24 11:31
+最近刚看一点VTA的未来丹音羽（みくにおとは），她的自我介绍里有句是“未来に羽ばたく音となる！”，名字 ...</blockquote>
+唉不是反过来的吗？
+
+未来丹音羽是个开场词小能手，应该是vta先把名字分配给她（这个属于我个人猜测，感觉由学员给自己起名字的可能性不高）她再根据名字想开场词的，同期有几个男生还请她帮想了开场词，效果……比较喜剧
+
+以及她的外号应该是くにお，语感上散发着大叔臭（不是）据说是同期这么叫的就直接给她固定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
