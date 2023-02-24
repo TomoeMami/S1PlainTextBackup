@@ -1043,3 +1043,11 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</bloc
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/290.png" referrerpolicy="no-referrer">tos钱还是赚的太容易了，做点售后意思一下。
 
+
+*****
+
+####  AKESI  
+##### 104#       发表于 2023-2-24 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">本来有点兴趣的结果这样，现在要补的话玩哪一版最好啊
+

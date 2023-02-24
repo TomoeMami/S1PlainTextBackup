@@ -6557,3 +6557,15 @@ B站港澳台：
 
 为啥人物都是闪轨画师那版，不怕到时候玩家进游戏了发现货不对版吗
 
+
+*****
+
+####  悠悠你心  
+##### 715#       发表于 2023-2-24 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前脚拉薇是指定继承人，后脚古拉格就死了。不会下一集开始诬陷了吧。。。
+
+第8集整体还行，但古拉格的称霸梦竟然是这样落幕的，古拉格的实力都无法确定了。回过去看感觉好小丑啊，竟然是这样的结局(？）。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
