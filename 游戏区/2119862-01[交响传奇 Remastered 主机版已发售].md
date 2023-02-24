@@ -1061,3 +1061,14 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</bloc
 
 —— 来自 Xiaomi 22021211RC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  法拉  
+##### 106#       发表于 2023-2-24 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876854&amp;ptid=2119862" target="_blank">AKESI 发表于 2023-2-24 21:46</a>
+
+本来有点兴趣的结果这样，现在要补的话玩哪一版最好啊</blockquote>
+ngc版有60帧和更原生的特效效果但没有追加内容，要么直接选这次的re版就行
+
