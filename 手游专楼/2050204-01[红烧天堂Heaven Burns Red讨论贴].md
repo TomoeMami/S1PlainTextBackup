@@ -1585,3 +1585,13 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 刚开始玩，这主角团怎么大&amp;#x5 ...</blockquote>
 这应该是表现形式的问题，类似漫画里牙齿变尖的咆哮。
 
+
+*****
+
+####  Ashice  
+##### 1016#       发表于 2023-2-24 10:38
+
+抽光了石头就孔明和旗袍没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+删号删号
+
