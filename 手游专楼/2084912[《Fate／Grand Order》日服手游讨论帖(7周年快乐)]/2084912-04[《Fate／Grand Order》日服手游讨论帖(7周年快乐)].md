@@ -11789,3 +11789,28 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 用着一样的钱（五星从者数量/宝具数），换人，硬是组一些5加成的队伍，我是真的服了
 
+
+*****
+
+####  黑上シグマ  
+##### 5596#       发表于 2023-2-24 15:55
+
+<blockquote>引用第5593楼qixinno2于2023-02-24 13:24发表的  :
+
+引用:alucardcz 发表于 2023-2-24 13:03你怎么乱说呢 好久没出5星了(好久指......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这狗货的好久指24小时
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qixinno2  
+##### 5597#       发表于 2023-2-24 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59872304&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-2-24 15:55</a>
+
+这狗货的好久指24小时
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新太无耻了
+
