@@ -379,3 +379,13 @@ win11系统玩是不是有啥问题啊，手柄时不时就自动重启，那时
 第二次入城是不是每个boss都能打两次拿两颗点心啊，中庭的植物boss我打完拿了紧身裤之后再跑一遍居然复活了 ...</blockquote>
 二周目BOSS应该都是无限打的，每次都能拿点心，拿到全部升级完为止。然后再过镜子的时候，天使就会来送兔女郎装。
 
+
+*****
+
+####  cmyk1234  
+##### 173#         楼主| 发表于 2023-2-24 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59874745&amp;ptid=2085482" target="_blank">vance521 发表于 2023-2-24 18:41</a>
+二周目BOSS应该都是无限打的，每次都能拿点心，拿到全部升级完为止。然后再过镜子的时候，天使就会来送兔 ...</blockquote>
+兔女郎装进入次元裂隙有什么效果呢？
+
