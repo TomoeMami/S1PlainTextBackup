@@ -4571,3 +4571,14 @@ op1这鞋子是拍照用的那双吧，尖头高跟，一专那套也有一双�
 
 最终就是变成一个嘴臭对团队没贡献学渣又不自律的灰毛，做衣服写歌词对偶像的热情也全部有其他人接了
 
+
+*****
+
+####  ruffian  
+##### 12438#       发表于 2023-2-24 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59872270&amp;ptid=2078110" target="_blank">lj205 发表于 2023-02-24 15:53:26</a>
+最终就是变成一个嘴臭对团队没贡献学渣又不自律的灰毛，做衣服写歌词对偶像的热情也全部有其他人接了 ...</blockquote>也许有些人真到这种程度才看得出来企划有多偏心眼吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
