@@ -1673,3 +1673,16 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 没想到救世主 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">请关注めぐタマ关系性（
 
+
+*****
+
+####  有这个可能  
+##### 1025#       发表于 2023-2-24 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876733&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-2-24 21:35</a>
+
+请关注めぐタマ关系性（</blockquote>
+还有机会，好过松花皮蛋<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+没讲过避难所是啥样，主线接下来正好可以讲一下（应该没讲过吧，我有4个活动还没打）
+

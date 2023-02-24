@@ -1051,3 +1051,13 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</bloc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">本来有点兴趣的结果这样，现在要补的话玩哪一版最好啊
 
+
+*****
+
+####  炯Ⅺ  
+##### 105#       发表于 2023-2-24 21:54
+
+这吃相真的难看，越炒越烂的冷饭也是少见。如果以后NS版修到能玩的程度，就等值崩买一份。不然还是算了
+
+—— 来自 Xiaomi 22021211RC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
