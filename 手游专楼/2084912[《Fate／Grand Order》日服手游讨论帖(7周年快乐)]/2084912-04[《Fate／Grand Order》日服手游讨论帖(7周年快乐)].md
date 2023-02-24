@@ -11735,3 +11735,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 突然发现我礼装都没掉  怎么肥丝</blockquote>
 这次5号礼装只能掉不在积分里了？
 
+
+*****
+
+####  UNISONIA  
+##### 5591#       发表于 2023-2-24 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59867439&amp;ptid=2084912" target="_blank">白金口袋 发表于 2023-2-24 09:14</a>
+
+这次5号礼装只能掉不在积分里了？</blockquote>
+跟去年一样，1,800,000pt有一张礼装，保送的
+
