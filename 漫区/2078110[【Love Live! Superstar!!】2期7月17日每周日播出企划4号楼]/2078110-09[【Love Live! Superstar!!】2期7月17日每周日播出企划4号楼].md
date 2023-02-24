@@ -4616,3 +4616,37 @@ op1这鞋子是拍照用的那双吧，尖头高跟，一专那套也有一双�
 
 2023-2-24 17:08 上传
 
+
+*****
+
+####  adw667  
+##### 12442#       发表于 2023-2-24 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871567&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-24 14:49</a></blockquote>
+突然有点羡慕堇恋了，C曲都是5人到齐的，可香千的C都是人不齐就没穿<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 12443#       发表于 2023-2-24 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871894&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-24 15:22</a>
+
+所以说杂志只不过比动画柔和一点，实际上还是削弱一个来垫另一个，明明早期的广播剧和官漫都好好的，咱也 ...</blockquote>
+早期杂志有提过可可平时还是会看书学习的，当时还残留着喜欢学习的属性在
+
+还有做衣服看live到半夜早上6点多起来跑步饿晕了被喂食香蕉奶昔的事
+
+也不知道为啥就需要人morning call了
+
+另外她还会做草莓大福并且邀请恋恋过来吃
+
+*****
+
+####  adw667  
+##### 12444#       发表于 2023-2-24 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59873469&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-24 17:10</a>
+为了醋（情人节立牌）包的饺子到了，放开了后EMS速度还是可以的</blockquote>
+我的摇摇乐还遥遥无期<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+

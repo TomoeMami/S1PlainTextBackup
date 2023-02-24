@@ -71,3 +71,13 @@
 
 道具里的两种关联钥匙在哪里用？有啥用？
 
+
+*****
+
+####  MEKA  
+##### 289#       发表于 2023-2-24 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59873039&amp;ptid=2101146" target="_blank">cwbn 发表于 2023-2-24 16:41</a>
+道具里的两种关联钥匙在哪里用？有啥用？</blockquote>
+一个在更衣室，用钥匙解锁已获得的其他人的衣服。另一个在已购买摩托艇那边，有些有皮肤的摩托艇需要用钥匙解锁皮肤。
+
