@@ -457,3 +457,13 @@ construction.ggb
  ...</blockquote>
 答案是没有，只能在传送界面看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就用上面坛友的那张图对照着看吧
 
+
+*****
+
+####  uneedme  
+##### 179#       发表于 2023-2-25 00:24
+
+支持双人连携 
+
+不过有水平相当的好基友 可太难了
+
