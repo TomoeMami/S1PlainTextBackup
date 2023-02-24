@@ -5115,3 +5115,14 @@ https://weibo.com/5326193952/4872755541181406
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">巡航真的好像那种动画ED，还有我感觉是不是再升个key更好一点？
 
+
+*****
+
+####  caicaistar  
+##### 12498#       发表于 2023-2-25 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59878074&amp;ptid=2078110" target="_blank">ViyViy 发表于 2023-2-24 23:56</a>
+
+巡航真的好像那种动画ED，还有我感觉是不是再升个key更好一点？</blockquote>
+这首音域跨度大，再升转音太难了
+
