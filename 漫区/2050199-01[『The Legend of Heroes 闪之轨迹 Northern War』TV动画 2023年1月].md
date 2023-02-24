@@ -6490,3 +6490,54 @@ B站港澳台：
 
 闪2主线莎拉单挑5个北猎高级猎兵，只能打的两败俱伤。。
 
+
+*****
+
+####  酷乐  
+##### 711#       发表于 2023-2-24 18:56
+
+这边备个份吧，是我一时发热拿去外面发，结果引来一堆路人指指点点……
+
+第7集中，圣亚斯特莱亚女子学院的校徽被换成了鸡：
+
+动画截图：
+<img src="https://img.saraba1st.com/forum/202302/22/204357jfttu68s73a8fbur.jpg" referrerpolicy="no-referrer">
+
+局部放大：
+<img src="https://img.saraba1st.com/forum/202302/22/204424z0longbywn77ncfy.png" referrerpolicy="no-referrer">
+
+原作校徽：
+<img src="https://img.saraba1st.com/forum/202302/22/204447zbfgwbumzafu6xg6.png" referrerpolicy="no-referrer">
+
+游戏截图（闪1）：
+<img src="https://img.saraba1st.com/forum/202302/22/204503fu7uvusp9g37ql9s.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/22/204504xecioudeepdw3hev.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酷乐  
+##### 712#       发表于 2023-2-24 18:57
+
+ 本帖最后由 酷乐 于 2023-2-24 18:59 编辑 
+
+手游已经开始事前预约了：
+
+<img src="https://img.saraba1st.com/forum/202302/24/185736pccda3y1d36d2jag.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>20AFF455-4FC6-4FAE-8B4F-76355C0C4E55.jpeg</strong> (200.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 18:57 上传
+
+说是NW，果然还是和晓轨一样，抽历代人物（晓轨一开始也只出空零碧人物，后来就开始加闪轨人物了）
+
+<img src="https://img.saraba1st.com/forum/202302/24/185845kblx7fks5not47yn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>991767A0-F842-4DF2-ACF5-F292CEC426FA.jpeg</strong> (211.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 18:58 上传
+
