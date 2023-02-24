@@ -5945,3 +5945,13 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冷泉夜月  
+##### 1190#       发表于 2023-2-24 16:46
+
+笑死，真被我说中了，旅游手册还真是半个月更新一次，今天更了奥尔汀地区，然后官推还没转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
