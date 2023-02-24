@@ -442,3 +442,18 @@ construction.ggb
 
 不知道NS版本现在还有没有人打多人了...
 
+
+*****
+
+####  RUANHYC  
+##### 178#       发表于 2023-2-24 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876337&amp;ptid=2085482" target="_blank">冰箱研会长 发表于 2023-2-24 20:58</a>
+
+谁跟我说说这游戏怎么查看地图...
+
+啊啊 我已经习惯了带冲刺的横版游戏, 突然没有了还有点不习惯...
+
+ ...</blockquote>
+答案是没有，只能在传送界面看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就用上面坛友的那张图对照着看吧
+
