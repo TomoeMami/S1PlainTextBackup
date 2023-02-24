@@ -11713,3 +11713,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现我礼装都没掉  怎么肥丝
 
+
+*****
+
+####  UNISONIA  
+##### 5589#       发表于 2023-2-24 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59864045&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-2-23 21:58</a>
+
+那个地方黑武藏和伊吹是zzzq，再加上人均高宝宇宙凛，当然是完全没必要了 ...</blockquote>
+那边黑的伊吹是剑伊吹，狂伊吹还是很鼓吹的，强度美的说法就是那边和贴吧传出来的
+
