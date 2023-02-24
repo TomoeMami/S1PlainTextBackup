@@ -1686,3 +1686,11 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 没讲过避难所是啥样，主线接下来正好可以讲一下（应该没讲过吧，我有4个活动还没打）
 
+
+*****
+
+####  白帽子  
+##### 1026#       发表于 2023-2-24 23:44
+
+怎么进卡池的也能嘎掉的？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

@@ -5093,3 +5093,17 @@ School Idol Musical：堀内麻里菜、西叶瑞希 ​ ​​​
 https://weibo.com/5326193952/4872755541181406
 <img src="https://p.sda1.dev/10/d5e0b66d8e9b3e3861be89529f485572/CMP_20230224213817180.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caicaistar  
+##### 12496#       发表于 2023-2-24 23:50
+
+ 本帖最后由 caicaistar 于 2023-2-24 23:51 编辑 
+
+小百合那首正式版试听出来了...
+
+真的可怕 CD车祸我第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+运营是咋想的，还是你们运营是一点变数都不能有的<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">一定是运营在测试接受度下限
+
