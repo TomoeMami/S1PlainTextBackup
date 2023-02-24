@@ -11768,3 +11768,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 抽卡太狗了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么乱说呢 好久没出5星了(
 
+
+*****
+
+####  qixinno2  
+##### 5594#       发表于 2023-2-24 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59870462&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-24 13:03</a>
+
+你怎么乱说呢 好久没出5星了(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久指几天么 狗萌新不是库库尔坎 烟雾境 女教皇都出了么
+
