@@ -1611,3 +1611,19 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 这SB音游手残是不是拿不到奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkfall  
+##### 1019#       发表于 2023-2-24 12:57
+
+把抽卡运气都用完了，1500钻的10连
+
+<img src="https://img.saraba1st.com/forum/202302/24/125708vrgnrrgnjiy92jdl.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230223_085412.png</strong> (154.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 12:57 上传
+
