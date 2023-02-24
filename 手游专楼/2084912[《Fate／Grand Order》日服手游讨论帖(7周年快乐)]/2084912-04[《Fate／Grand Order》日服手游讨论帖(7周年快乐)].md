@@ -11779,3 +11779,13 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 你怎么乱说呢 好久没出5星了(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久指几天么 狗萌新不是库库尔坎 烟雾境 女教皇都出了么
 
+
+*****
+
+####  都谷捻柏  
+##### 5595#       发表于 2023-2-24 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">为了找90+本的配置，跑去appmedia看了一眼，顺便瞄了下那边90++本，推荐队伍真是绝了
+
+用着一样的钱（五星从者数量/宝具数），换人，硬是组一些5加成的队伍，我是真的服了
+

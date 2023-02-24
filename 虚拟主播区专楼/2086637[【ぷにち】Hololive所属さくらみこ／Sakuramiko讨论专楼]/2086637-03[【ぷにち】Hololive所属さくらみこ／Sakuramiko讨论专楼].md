@@ -15695,3 +15695,15 @@ miko：以后注意
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4448#         楼主| 发表于 2023-2-24 15:48
+
+再贩决定不是holo能左右的
+
+是奸笑运营自己决定的
+
+要不然卖得那么火早就要再贩了
+

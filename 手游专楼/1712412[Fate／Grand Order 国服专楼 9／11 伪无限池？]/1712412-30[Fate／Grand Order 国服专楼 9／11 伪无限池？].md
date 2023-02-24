@@ -228,3 +228,13 @@ RP守恒了
 
 —— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一个陆仁贾  
+##### 44175#       发表于 2023-2-24 15:45
+
+和奥伯龙这种互损的关系也太棒呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

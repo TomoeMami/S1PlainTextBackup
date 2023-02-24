@@ -4553,3 +4553,13 @@ emm感觉多少有点ooc，你可的动手能力和学霸设定迟早全交出�
 
 杂志这些衍生说白了还是根据动画来的
 
+
+*****
+
+####  starring  
+##### 12436#       发表于 2023-2-24 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871698&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-24 15:02</a>
+很迷的2人曲和4人曲没算进去，不过op1和比赛曲也不是不行。op1是尖头皮鞋么，我完全没注意过。 ...</blockquote>
+op1这鞋子是拍照用的那双吧，尖头高跟，一专那套也有一双专门用来拍照的
+
