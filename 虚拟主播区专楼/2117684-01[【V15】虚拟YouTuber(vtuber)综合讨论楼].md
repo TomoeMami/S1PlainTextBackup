@@ -2385,3 +2385,20 @@ ow狗都不看
 不是，你虹股价今天怎么还开场断崖式下跌啊。
 最低都跌到4405了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  free  
+##### 164#       发表于 2023-2-24 20:28
+
+[https://twitter.com/kizunanoallele/status/1629028798476988419](https://twitter.com/kizunanoallele/status/1629028798476988419)
+[https://www.youtube.com/watch?v=BlS3sdzsjOU](https://www.youtube.com/watch?v=BlS3sdzsjOU)
+
+☆…[アニメ新情报解禁💫]☆…☆…☆…
+
+＼ 4月3日深夜1时30分から／ 
+
+テレビ东京、テレビ大阪、テレビ爱知にて放送决定🎉
+
+这贫穷的PV，感觉确实没啥可看的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

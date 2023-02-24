@@ -11894,3 +11894,13 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借了个5宝千里休 自己上了个1宝仇信 3t秒了（
 
+
+*****
+
+####  不垃圾屌丝  
+##### 5606#       发表于 2023-2-24 20:30
+
+好菜的高难，摩根宝具轰轰轰轰就结束了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
