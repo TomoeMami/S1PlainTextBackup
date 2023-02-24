@@ -4492,3 +4492,27 @@ emm感觉多少有点ooc，你可的动手能力和学霸设定迟早全交出�
 
 反正我是无法理解会做衣服，理科学的好的可可怎么会把菜做成黑炭强行让民警扶一手的。不慌，第三季还得挖属性给三期生捏。
 
+
+*****
+
+####  ruffian  
+##### 12430#       发表于 2023-2-24 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871424&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-02-24 14:35:52</a>
+反正我是无法理解会做衣服，理科学的好的可可怎么会把菜做成黑炭强行让民警扶一手的。不慌，第三季还得挖属 ...</blockquote>这点动画里倒是有交代，说是没分配好时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 12431#       发表于 2023-2-24 14:49
+
+<img src="https://img.saraba1st.com/forum/202302/24/144908i9fggxfivoriql9f.jpg" referrerpolicy="no-referrer">
+
+<strong>20230224_144642.jpg</strong> (455.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 14:49 上传
+
