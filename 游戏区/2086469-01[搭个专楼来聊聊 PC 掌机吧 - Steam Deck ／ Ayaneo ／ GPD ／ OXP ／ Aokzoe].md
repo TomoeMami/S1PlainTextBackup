@@ -45,3 +45,28 @@ loki不知道年中能不能玩到<img src="https://static.saraba1st.com/image/s
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yang6451  
+##### 654#       发表于 2023-2-24 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59861486&amp;ptid=2086469" target="_blank">bypass 发表于 2023-2-23 18:01</a>
+
+已经被我加了 150 包邮出掉了</blockquote>
+我本来也参加预购了，一分多点付的尾款，但以为要过一个月才能收到感觉太久就给退了，如果不退估计现在也发货了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+刚才咸鱼收了一台，估计明天拿到。今天是不是放货了，价格突然暴跌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 655#       发表于 2023-2-24 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59862033&amp;ptid=2086469" target="_blank">allenz3 发表于 2023-2-23 19:15</a>
+
+loki不知道年中能不能玩到
+
+—— 来自 Sony XQ-AS72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我觉得悬，当时就觉得肯定会跳票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

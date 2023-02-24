@@ -15685,3 +15685,13 @@ miko：以后注意
 
 2023-2-24 12:10 上传
 
+
+*****
+
+####  rs5621  
+##### 4447#       发表于 2023-2-24 15:05
+
+再版好啊，holo总算干了点人事
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
