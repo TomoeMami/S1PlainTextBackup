@@ -4965,3 +4965,25 @@ sayu眼睛怎么了。。
 
 没了自欺欺人板多好，起码读信坐牢的氛围好了不少，该摸的该贴的都没顾忌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 12485#       发表于 2023-2-24 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876029&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-24 20:29</a>
+
+无所谓啦，她们有自己的理解也很正常，只能寄希望于三期老贼不再发疯，以及某些厨子拎清一点
+
+  --  ...</blockquote>
+还是早点习惯现在可可自带金毛要素的属性吧<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 12486#       发表于 2023-2-24 20:48
+
+讲角色歌的时候鲤鱼提了一嘴毕业然后急忙对着来信解释说高三了毕业可能会润回上海
+
+震惊！唐可可竟是润人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
