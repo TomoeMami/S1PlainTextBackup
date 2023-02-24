@@ -962,3 +962,23 @@ ai的拟「人」，先不扯有没「自我」意识啥的，让ai有「感情�
 是昨天播的吗，有没有大约的时间段我去翻翻 ...</blockquote>
 昨天的录播52分44秒有名为550W_AI发了个Neuro, Who is MOSS？的弹幕，后来neuro就回了一句话
 
+
+*****
+
+####  与天争锋_LZ  
+##### 77#       发表于 2023-2-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59874799&amp;ptid=2117573" target="_blank">MixRadio 发表于 2023-2-24 18:46</a>
+
+昨天的录播52分44秒有名为550W_AI发了个Neuro, Who is MOSS？的弹幕，后来neuro就回了一句话 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202302/24/192048pnww221nn8owogfo.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-174623578.jpg</strong> (149.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 19:20 上传
+
+感谢，都是ai好朋友啊
+
