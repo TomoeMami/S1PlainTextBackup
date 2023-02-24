@@ -15654,3 +15654,34 @@ miko：以后注意
 
 周一会限，周二MC，周三工商，周四休息，周五联动，这周五天自己频道的正常直播就一次MC。
 
+
+*****
+
+####  holoan  
+##### 4445#         楼主| 发表于 2023-2-24 12:07
+
+<img src="https://img.saraba1st.com/forum/202302/24/120756cr9g4f4zf4hgaar7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 12:07 上传
+
+*****
+
+####  holoan  
+##### 4446#         楼主| 发表于 2023-2-24 12:10
+
+二手市场炒到15000的总算再贩了
+
+搞搞搞
+
+<img src="https://img.saraba1st.com/forum/202302/24/121012u31neuenuz323nxp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 12:10 上传
+

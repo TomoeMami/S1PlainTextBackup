@@ -2368,3 +2368,11 @@ ow狗都不看
 
 最近刚看一点VTA的未来丹音羽（みくにおとは），她的自我介绍里有句是“未来に羽ばたく音となる！”，名字也是出自于此，但按顺序来应该是未来丹羽音，说不定是发现和日本海对面的撞名字了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，也有可能是讨厌被人认为是“未来に羽音”这种莫名其妙的东西。不过音羽这个词也是个地名，也可以作为姓氏使用，念名字的时候反而有种在称呼姓氏的疏远感，结果上来说她决定的称呼是におと这种像是ギバラ一样的外号，既不是姓也不是名就是了
 
+
+*****
+
+####  winda  
+##### 162#       发表于 2023-2-24 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，false也被虹拳出击了，从报道khyo到成为khyo，看虹姥爷的傲慢在en行不行得通吧
+
