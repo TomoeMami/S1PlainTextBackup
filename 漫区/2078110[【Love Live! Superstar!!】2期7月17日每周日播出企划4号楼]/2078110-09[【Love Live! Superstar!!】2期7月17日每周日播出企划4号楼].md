@@ -4534,3 +4534,14 @@ emm感觉多少有点ooc，你可的动手能力和学霸设定迟早全交出�
 这点动画里倒是有交代，说是没分配好时间不过可可会做蛋挞没事就做来吃这点怕是已经被扔了，还有早 ...</blockquote>
 说实话，都是自律超人，九个人没见过有需要被打电话叫起床的人设在里面。
 
+
+*****
+
+####  ruffian  
+##### 12434#       发表于 2023-2-24 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871715&amp;ptid=2078110" target="_blank">ads147147 发表于 2023-2-24 15:04</a>
+
+说实话，都是自律超人，九个人没见过有需要被打电话叫起床的人设在里面。 ...</blockquote>
+所以说杂志只不过比动画柔和一点，实际上还是削弱一个来垫另一个，明明早期的广播剧和官漫都好好的，咱也不知道为啥一定要走踩一捧一的不归路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
