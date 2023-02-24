@@ -2376,3 +2376,12 @@ ow狗都不看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，false也被虹拳出击了，从报道khyo到成为khyo，看虹姥爷的傲慢在en行不行得通吧
 
+
+*****
+
+####  渡鸦骑士  
+##### 163#       发表于 2023-2-24 14:10
+
+不是，你虹股价今天怎么还开场断崖式下跌啊。
+最低都跌到4405了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
