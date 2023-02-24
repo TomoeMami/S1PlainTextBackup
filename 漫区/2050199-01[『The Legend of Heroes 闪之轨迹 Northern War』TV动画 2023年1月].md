@@ -6541,3 +6541,11 @@ B站港澳台：
 
 2023-2-24 18:58 上传
 
+
+*****
+
+####  smdzh2  
+##### 713#       发表于 2023-2-24 19:47
+
+游戏名是北方战争，为什么预约奖励是大小姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
