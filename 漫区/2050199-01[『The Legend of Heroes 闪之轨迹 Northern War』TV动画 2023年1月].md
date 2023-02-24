@@ -6617,3 +6617,15 @@ b站港澳台：
 
 我觉得古拉格八成诈死。。
 
+
+*****
+
+####  月夜凝雪  
+##### 721#       发表于 2023-2-25 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59877604&amp;ptid=2050199" target="_blank">Aeons 发表于 2023-2-24 23:05</a>
+古拉格说受到了某个国家帮助，哪个国家啊，手里的又是啥宝贝，古代遗物？  ...</blockquote>
+某个国家就是说着好听，合作的不就是结社
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
