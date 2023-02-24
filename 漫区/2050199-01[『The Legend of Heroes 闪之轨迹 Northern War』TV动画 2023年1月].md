@@ -6577,3 +6577,27 @@ B站港澳台：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集信息量不少啊有点意思
 
+
+*****
+
+####  酷乐  
+##### 717#       发表于 2023-2-24 23:03
+
+ 本帖最后由 酷乐 于 2023-2-24 23:05 编辑 
+
+b站港澳台：
+[https://www.bilibili.com/bangumi/play/ep722001](https://www.bilibili.com/bangumi/play/ep722001)
+
+这集拉薇的脸不停的在变，不过后面总算有一个舍得下本的动作镜头了。
+
+轨迹里另一大谜之伤害来源就是毒了。
+
+*****
+
+####  Aeons  
+##### 718#       发表于 2023-2-24 23:05
+
+ 本帖最后由 Aeons 于 2023-2-24 23:08 编辑 
+
+古拉格说受到了某个国家帮助，哪个国家啊，手里的又是啥宝贝，古代遗物？ 
+
