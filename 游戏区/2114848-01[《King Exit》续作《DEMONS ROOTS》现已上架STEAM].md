@@ -1812,3 +1812,18 @@ KE古伊奈是接第三章的正史，跟DR第三章的古伊奈这两个说法�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  子夜微雪  
+##### 144#       发表于 2023-2-24 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59872769&amp;ptid=2114848" target="_blank">千里孤坟 发表于 2023-2-24 16:22</a>
+你在撒谎。
+
+原话是“**的是有反抗行为，不是有反抗能力的人”。贴吧那帖可没被吞过还在呢。</blockquote>
+我寻思没问题啊，反抗之心不就是有能力和有行为的根本差异吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔族做了的事你说我是大王古，是不是逻辑崩坏了
+你也别扣人帽子了，反驳这一观点，要么你解释一遍为什么菜地里找不到干活的，或者我跟你再讲一遍为什么女仆和商贩都是有心没能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
