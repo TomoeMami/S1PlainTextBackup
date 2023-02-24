@@ -181,3 +181,13 @@ FA大小姐动作说话装淑女笑死我了，特别在更衣室<img src="https
 
 拿到新裙子发现不给看胖次，一看只是普通白色，再一看公告原来bug了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 300#         楼主| 发表于 2023-2-24 20:00
+
+看完两位FA的新剧情了。绫香的剧情竟然给队长发糖了，好顶赞。不但伪见了家长和将来也要见家长，某个角度来说拯救大小姐脱离政治婚姻的命运可以靠队长了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+小鸟就……哎还是那么不幸。交代了小鸟现在去见母亲的情况，当年事情感觉没那么简单还会有后续的样子。虽然小鸟很乐观地依然往前看，清楚现在周围关心她的伙伴才是自己最大的幸福。
+
