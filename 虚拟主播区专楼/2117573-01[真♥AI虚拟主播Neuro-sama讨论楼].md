@@ -949,3 +949,16 @@ ai的拟「人」，先不扯有没「自我」意识啥的，让ai有「感情�
 这么有节目效果居然还没有切片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 是昨天播的吗，有没有大约的时间段我去翻翻
 
+
+*****
+
+####  MixRadio  
+##### 76#       发表于 2023-2-24 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59874226&amp;ptid=2117573" target="_blank">与天争锋_LZ 发表于 2023-2-24 18:00</a>
+
+这么有节目效果居然还没有切片
+
+是昨天播的吗，有没有大约的时间段我去翻翻 ...</blockquote>
+昨天的录播52分44秒有名为550W_AI发了个Neuro, Who is MOSS？的弹幕，后来neuro就回了一句话
+

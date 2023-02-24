@@ -173,3 +173,11 @@ FA大小姐动作说话装淑女笑死我了，特别在更衣室<img src="https
 
 草，小鸟游还每周交周报的，什么社畜之鉴，她真的我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  delphinian  
+##### 299#       发表于 2023-2-24 18:44
+
+拿到新裙子发现不给看胖次，一看只是普通白色，再一看公告原来bug了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
