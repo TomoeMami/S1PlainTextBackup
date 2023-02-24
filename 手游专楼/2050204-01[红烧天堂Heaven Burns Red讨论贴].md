@@ -1595,3 +1595,11 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 删号删号
 
+
+*****
+
+####  辽远的海的相思  
+##### 1017#       发表于 2023-2-24 11:51
+
+氪金是没法带来幸福的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
