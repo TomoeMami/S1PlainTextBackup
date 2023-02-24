@@ -219,3 +219,16 @@ FA大小姐动作说话装淑女笑死我了，特别在更衣室<img src="https
 
 新小鸟用专属好 还是用an
 
+
+*****
+
+####  Rincewind  
+##### 303#       发表于 2023-2-25 04:34
+
+你游天花板还是那个天花板<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉阿金是真的没太考虑平衡，时不时就加强强角或者推出新的超模玩具
+
+syl，回楼上的坛友
+腿用AN，大剑用gift token商店兑换的那把，筒子感觉kiss不是很关键，看你角色是谁，AN就用AN，原版/FA就用原版
+手…………省材料没啥专门做AN的必要。
+
