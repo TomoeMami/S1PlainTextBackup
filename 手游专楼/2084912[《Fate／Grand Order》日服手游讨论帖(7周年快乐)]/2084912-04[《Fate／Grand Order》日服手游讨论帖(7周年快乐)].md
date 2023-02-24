@@ -11757,3 +11757,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 突然发现我礼装都没掉  怎么肥丝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽卡太狗了
 
+
+*****
+
+####  alucardcz  
+##### 5593#       发表于 2023-2-24 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59869624&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-2-24 12:04</a>
+
+抽卡太狗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么乱说呢 好久没出5星了(
+
