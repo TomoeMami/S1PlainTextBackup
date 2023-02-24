@@ -6549,3 +6549,11 @@ B站港澳台：
 
 游戏名是北方战争，为什么预约奖励是大小姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qzfjnv  
+##### 714#       发表于 2023-2-24 20:04
+
+为啥人物都是闪轨画师那版，不怕到时候玩家进游戏了发现货不对版吗
+
