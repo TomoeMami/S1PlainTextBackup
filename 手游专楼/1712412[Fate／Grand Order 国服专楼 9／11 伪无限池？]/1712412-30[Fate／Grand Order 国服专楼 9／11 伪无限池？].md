@@ -216,3 +216,15 @@ RP守恒了
 
 这妖兰巧克力剧情，原来是这种性格吗？
 
+
+*****
+
+####  一个陆仁贾  
+##### 44174#       发表于 2023-2-24 13:37
+
+ 本帖最后由 一个陆仁贾 于 2023-2-24 13:39 编辑 
+
+笑死，妖精的那几个会有c呆出场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
