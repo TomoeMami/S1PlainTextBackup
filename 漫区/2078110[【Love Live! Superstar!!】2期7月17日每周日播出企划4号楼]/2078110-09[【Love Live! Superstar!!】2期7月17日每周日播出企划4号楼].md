@@ -4582,3 +4582,14 @@ op1这鞋子是拍照用的那双吧，尖头高跟，一专那套也有一双�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 12439#       发表于 2023-2-24 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59872552&amp;ptid=2078110" target="_blank">ruffian 发表于 2023-2-24 16:08</a>
+
+也许真到这种程度有些人才看得出来企划有多偏心眼吧</blockquote>
+“不见棺材——”
+
