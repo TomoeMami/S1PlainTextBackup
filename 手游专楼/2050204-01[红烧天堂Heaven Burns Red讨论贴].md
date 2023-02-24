@@ -1644,3 +1644,11 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 终于过了第三章。
 第四章好难啊。大概多少战力能过第四章啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Acerola  
+##### 1022#       发表于 2023-2-24 19:26
+
+抽了人权后发现游戏难度讲了不止一个档次，输出比以前高太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
