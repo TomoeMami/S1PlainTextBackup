@@ -1652,3 +1652,12 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 抽了人权后发现游戏难度讲了不止一个档次，输出比以前高太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有这个可能  
+##### 1023#       发表于 2023-2-24 21:11
+
+入坑两周打完第四章前篇，最后boss要是没有双神也太折磨了吧，又肉又没有弱点还限回合<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+没想到救世主比情报员先奔溃了，做人还是要没心没肺点好，可怜的tama
+

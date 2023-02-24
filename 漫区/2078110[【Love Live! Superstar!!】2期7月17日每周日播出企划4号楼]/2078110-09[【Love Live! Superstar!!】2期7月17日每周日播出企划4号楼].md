@@ -5024,3 +5024,32 @@ sayu眼睛怎么了。。
 
 MORA直接买一首完事
 
+
+*****
+
+####  starring  
+##### 12489#       发表于 2023-2-24 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876316&amp;ptid=2078110" target="_blank">优妮可 发表于 2023-2-24 20:56</a></blockquote>
+小卡片像是拿她们的自拍照当特典，比一专的艺术照卡片差好多
+
+*****
+
+####  ruffian  
+##### 12490#       发表于 2023-2-24 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876212&amp;ptid=2078110" target="_blank">lj205 发表于 2023-02-24 20:44:51</a>
+还是早点习惯现在可可自带金毛要素的属性吧</blockquote>还得习惯有人发疯才行，官方卖的烂归烂，要不是某些厕言厕语推波助澜我也不会这么ptsd，要想快乐要么跑路要么习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然如果真的花田也不摆烂了，某些厨也拎清了，世界将会变成美好的人间，让我梦一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 12491#       发表于 2023-2-24 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这回放感觉看着有点没劲
+
+感觉......不如去烤鱼片
+
