@@ -70,3 +70,11 @@ loki不知道年中能不能玩到
 —— 来自 Sony XQ-AS72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 我觉得悬，当时就觉得肯定会跳票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yang6451  
+##### 656#       发表于 2023-2-24 15:26
+
+顺便问下GPD收的二手能否保修，是否需要订单号啥的购买凭证？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
