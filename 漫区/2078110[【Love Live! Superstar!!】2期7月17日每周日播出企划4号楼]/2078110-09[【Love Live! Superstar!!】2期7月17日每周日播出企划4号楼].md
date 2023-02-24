@@ -5083,3 +5083,13 @@ School Idol Musical：堀内麻里菜、西叶瑞希 ​ ​​​
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  仟音一心  
+##### 12495#       发表于 2023-2-24 21:41
+
+对比
+https://weibo.com/5326193952/4872755541181406
+<img src="https://p.sda1.dev/10/d5e0b66d8e9b3e3861be89529f485572/CMP_20230224213817180.jpg" referrerpolicy="no-referrer">
+

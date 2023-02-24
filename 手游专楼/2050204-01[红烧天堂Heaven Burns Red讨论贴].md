@@ -1661,3 +1661,15 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 入坑两周打完第四章前篇，最后boss要是没有双神也太折磨了吧，又肉又没有弱点还限回合<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 没想到救世主比情报员先奔溃了，做人还是要没心没肺点好，可怜的tama
 
+
+*****
+
+####  leitingkai  
+##### 1024#       发表于 2023-2-24 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876480&amp;ptid=2050204" target="_blank">有这个可能 发表于 2023-2-24 21:11</a>
+入坑两周打完第四章前篇，最后boss要是没有双神也太折磨了吧，又肉又没有弱点还限回合
+
+没想到救世主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">请关注めぐタマ关系性（
+
