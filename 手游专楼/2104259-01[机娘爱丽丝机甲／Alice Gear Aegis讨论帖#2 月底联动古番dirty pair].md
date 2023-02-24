@@ -140,3 +140,20 @@
 
 但是既没有无敌和霸体之类的效果，威力也并不比片手的派生更高，只能沦为玩具了
 
+
+*****
+
+####  江戸前ルナ  
+##### 296#         楼主| 发表于 2023-2-24 15:36
+
+FA大小姐动作说话装淑女笑死我了，特别在更衣室<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外这次抽大小姐真是大重伤，太TM高贵了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 297#         楼主| 发表于 2023-2-24 15:37
+
+绫香的两招SP都是废的，反而FA小鸟的射击SP有点东西
+
