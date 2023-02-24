@@ -11724,3 +11724,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 那个地方黑武藏和伊吹是zzzq，再加上人均高宝宇宙凛，当然是完全没必要了 ...</blockquote>
 那边黑的伊吹是剑伊吹，狂伊吹还是很鼓吹的，强度美的说法就是那边和贴吧传出来的
 
+
+*****
+
+####  白金口袋  
+##### 5590#       发表于 2023-2-24 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59865068&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-23 23:16</a>
+
+突然发现我礼装都没掉  怎么肥丝</blockquote>
+这次5号礼装只能掉不在积分里了？
+
