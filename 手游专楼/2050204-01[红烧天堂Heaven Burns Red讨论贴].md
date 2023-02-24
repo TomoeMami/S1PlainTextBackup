@@ -1574,3 +1574,14 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 玩了半个月，后10天每天都在重复刷刷刷…有点疲了，冲动之下把攒的砖石抽光，只歪了一个无用的冰阵，二期打 ...</blockquote>
 注意关注消息，今天可是有非常好的池啊
 
+
+*****
+
+####  fireawayac  
+##### 1015#       发表于 2023-2-24 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59827130&amp;ptid=2050204" target="_blank">白帽子 发表于 2023-2-20 21:58</a>
+
+刚开始玩，这主角团怎么大&amp;#x5 ...</blockquote>
+这应该是表现形式的问题，类似漫画里牙齿变尖的咆哮。
+
