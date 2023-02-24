@@ -1564,3 +1564,13 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  HinataY  
+##### 1014#       发表于 2023-2-24 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59866812&amp;ptid=2050204" target="_blank">☆炫 发表于 2023-2-24 08:02</a>
+玩了半个月，后10天每天都在重复刷刷刷…有点疲了，冲动之下把攒的砖石抽光，只歪了一个无用的冰阵，二期打 ...</blockquote>
+注意关注消息，今天可是有非常好的池啊
+
