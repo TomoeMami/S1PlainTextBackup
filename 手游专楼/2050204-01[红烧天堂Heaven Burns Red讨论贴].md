@@ -1694,3 +1694,15 @@ nga的hbr群有人吐槽这个池子是下体投票的玩家的报应。<img src
 
 怎么进卡池的也能嘎掉的？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一之江瑞江  
+##### 1027#       发表于 2023-2-25 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">终于打过B50了 然而棱镜只能打过SS
+
+现在这个复刻3倍币的活动商店有哪些是优先搬的吗
+
+我AB活动的还没搬完
+
