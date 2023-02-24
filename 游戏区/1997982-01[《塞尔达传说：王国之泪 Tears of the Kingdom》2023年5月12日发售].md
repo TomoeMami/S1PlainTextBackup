@@ -5955,3 +5955,18 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  牛奶笛  
+##### 1191#       发表于 2023-2-24 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59866343&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-2-24 02:47</a>
+
+超朱紫想太多了吧
+
+野炊6年还没到3000万，朱紫一个半月2000万，这能比吗
+
+如果说的是预约点数 ...</blockquote>
+预约点数朱紫1250左右，是ns历史第一。我估计王泪应该能达到八九百，跟喷喷差不多
+
