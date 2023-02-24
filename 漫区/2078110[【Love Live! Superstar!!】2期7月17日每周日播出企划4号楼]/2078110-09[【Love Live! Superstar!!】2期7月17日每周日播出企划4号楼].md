@@ -5053,3 +5053,33 @@ MORA直接买一首完事
 
 感觉......不如去烤鱼片
 
+
+*****
+
+####  qty  
+##### 12492#       发表于 2023-2-24 21:25
+
+香音这solo曲。。。感觉live时场面会相当不好看
+
+*****
+
+####  仟音一心  
+##### 12493#       发表于 2023-2-24 21:26
+
+<img src="https://p.sda1.dev/10/84f00e01cc94809cf94affe1740f70ba/CMP_20230224212603362.jpg" referrerpolicy="no-referrer">
+LoveLive! ANNG广播
+MC：降幡爱
+Aqours：小林爱香
+虹ヶ咲：矢野妃菜喜
+Liella!：Payton尚未、大熊和奏
+School Idol Musical：堀内麻里菜、西叶瑞希 ​ ​​​
+
+*****
+
+####  ruffian  
+##### 12494#       发表于 2023-2-24 21:32
+
+恋恋这首感觉能编出相当华丽的舞蹈
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

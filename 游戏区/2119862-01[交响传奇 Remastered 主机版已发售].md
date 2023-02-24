@@ -1035,3 +1035,11 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</bloc
 
 官方承认NS版有问题并且正在调查和研究解决方案
 
+
+*****
+
+####  司马千晶  
+##### 103#       发表于 2023-2-24 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/290.png" referrerpolicy="no-referrer">tos钱还是赚的太容易了，做点售后意思一下。
+
