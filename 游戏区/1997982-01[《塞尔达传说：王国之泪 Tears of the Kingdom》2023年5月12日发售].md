@@ -5970,3 +5970,11 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 如果说的是预约点数 ...</blockquote>
 预约点数朱紫1250左右，是ns历史第一。我估计王泪应该能达到八九百，跟喷喷差不多
 
+
+*****
+
+####  熊猫roey  
+##### 1192#       发表于 2023-2-25 23:24
+
+现在还能原价买到典藏版吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
