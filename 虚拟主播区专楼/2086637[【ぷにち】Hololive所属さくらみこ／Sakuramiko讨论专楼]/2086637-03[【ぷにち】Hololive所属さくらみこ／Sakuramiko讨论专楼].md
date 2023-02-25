@@ -15816,3 +15816,25 @@ expo上要提出的自制作品过纳期了……
 
 大概是生日纪念周边了
 
+
+*****
+
+####  holoan  
+##### 4461#         楼主| 发表于 2023-2-25 13:40
+
+ 本帖最后由 holoan 于 2023-2-25 13:42 编辑 
+
+再贩开售不到24小时又冲日亚榜一了
+
+需求到底有多大
+
+<img src="https://img.saraba1st.com/forum/202302/25/134025wkjcod05pq556z6l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 13:40 上传
+
+追加，amiami也是一位了
+
