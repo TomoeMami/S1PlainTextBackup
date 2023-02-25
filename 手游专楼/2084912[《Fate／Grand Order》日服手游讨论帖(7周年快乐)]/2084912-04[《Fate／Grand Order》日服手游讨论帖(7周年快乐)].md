@@ -11912,3 +11912,14 @@ c呆要带满破礼装开20np，且t1要开宝具叠oc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁戏还是多啊 打个本还为什么要3t 
 
+
+*****
+
+####  exiaexa  
+##### 5608#       发表于 2023-2-25 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59882417&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-2-25 13:56</a>
+隔壁戏还是多啊 打个本还为什么要3t</blockquote>
+因为有的红卡打手cd是6？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
