@@ -5238,3 +5238,13 @@ https://weibo.com/5326193952/4872755541181406
 
 这张专辑感觉还挺抓耳的，二期生的曲子都很好听。但是让小百合唱难度这么高的曲子真的合适吗……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  愛さ実  
+##### 12510#       发表于 2023-2-26 03:36
+
+某种意义上小百合唱的确实很抓耳<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
