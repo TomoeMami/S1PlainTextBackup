@@ -5218,3 +5218,23 @@ https://weibo.com/5326193952/4872755541181406
 <img src="https://p.sda1.dev/10/0ab6057e0cda06bf5445aa7f2a365ef4/Fpxx_WKaUAAOte8.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/460f9ea348a035c776a8a73812a8b878/Fpxx_V-aYAAmGVe.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 12508#       发表于 2023-2-25 23:58
+
+[https://twitter.com/kamatamanankotu/status/1629504537152348161](https://twitter.com/kamatamanankotu/status/1629504537152348161)
+
+ロスタイムにギリ间に合いました
+
+#岚千砂都生诞祭2023
+<img src="https://p.sda1.dev/10/cfc4a5c14d1c1fb1c5db822932c21a62/20230225_235756.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 12509#       发表于 2023-2-25 23:59
+
+这张专辑感觉还挺抓耳的，二期生的曲子都很好听。但是让小百合唱难度这么高的曲子真的合适吗……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
