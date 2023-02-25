@@ -3522,3 +3522,16 @@ nm云存档没同步成功过
 
 通关后那4只极度暴躁怪有特殊奖励吗
 
+
+*****
+
+####  超赛锡纸烫  
+##### 648#       发表于 2023-2-26 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59888931&amp;ptid=2092050" target="_blank">magicc 发表于 2023-2-26 01:28</a>
+
+通关后那4只极度暴躁怪有特殊奖励吗</blockquote>
+只有奖杯成就相关，幻珠掉落只卡暴躁
+
+最难的不是极度暴躁，是极度暴躁打完了还得抢尾刀才能解锁
+
