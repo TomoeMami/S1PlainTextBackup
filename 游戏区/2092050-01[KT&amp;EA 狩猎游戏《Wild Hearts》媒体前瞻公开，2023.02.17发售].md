@@ -3477,3 +3477,24 @@ nm云存档没同步成功过
 
 我是3070+12900k 开dlss能到2k 144么
 
+
+*****
+
+####  hqtkkb  
+##### 644#       发表于 2023-2-25 23:43
+
+ 本帖最后由 hqtkkb 于 2023-2-25 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59884030&amp;ptid=2092050" target="_blank">依存香炉 发表于 2023-2-25 17:18</a>
+
+能入手吗？steam版 比较关心优化问题
+
+我是3070+12900k 开dlss能到2k 144么</blockquote>
+这游戏没记错没有dlss。而看过别人的配置你这个估计能稳60多一些。
+
+*****
+
+####  hqtkkb  
+##### 645#       发表于 2023-2-25 23:46
+
+话说这游戏的人物眩晕是咋触发的？跟怪猎一样吗？
+
