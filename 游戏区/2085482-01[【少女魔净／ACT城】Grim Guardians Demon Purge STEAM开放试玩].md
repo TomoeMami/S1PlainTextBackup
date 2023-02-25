@@ -687,3 +687,11 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 原来二周目才是正式开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 202#       发表于 2023-2-26 06:54
+
+原来这游戏最丰富的物品是内裤,每个人画一个内裤还都不重样
+
