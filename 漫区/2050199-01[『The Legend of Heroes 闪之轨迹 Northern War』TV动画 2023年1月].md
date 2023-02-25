@@ -6678,3 +6678,11 @@ b站大陆终于过审了？还是配合手游进度开始播放？
 
 这话节奏太快了，前面公款旅行可以砍掉一话给这话铺垫
 
+
+*****
+
+####  obelisk  
+##### 726#       发表于 2023-2-25 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">搜了一圈 这手游到现在连个游戏画面都没有吗
+
