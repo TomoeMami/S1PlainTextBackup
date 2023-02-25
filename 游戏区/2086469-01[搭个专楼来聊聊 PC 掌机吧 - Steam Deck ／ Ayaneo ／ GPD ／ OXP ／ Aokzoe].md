@@ -102,3 +102,11 @@ https://www.kickstarter.com/projects/handheld-game-device/peakdo-mm-wave-streami
 
  如果是家庭随地使用的话，有类似wii psv那样的手柄就好了
 
+
+*****
+
+####  Deay店长  
+##### 659#       发表于 2023-2-25 18:03
+
+6800U就算玩3A，只要不是优化特别差的游戏，用体感助手设置浮动TDP，关闭睿频，电源设置改平衡，配合能源之星X，关蓝牙等操作优化，功耗能压在12W以内，玩两小时问题不大。优化功耗也算是折腾乐趣之一了
+
