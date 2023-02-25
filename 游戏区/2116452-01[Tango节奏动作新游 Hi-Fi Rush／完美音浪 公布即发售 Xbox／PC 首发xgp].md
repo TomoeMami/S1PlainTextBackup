@@ -4692,3 +4692,25 @@ boss二阶段的插地雷总想着全格挡掉，但实际上失误率极高不�
  也算是暴露战斗设计一 ...</blockquote>
 这个战点绝逼是巨魔设计的，整个流程就这里最难打，把电击地板或火拳手去掉就简单多了
 
+
+*****
+
+####  Napstablook  
+##### 449#       发表于 2023-2-25 18:15
+
+通关才想起成就可以领钱，领了40w，我说怎么一路上这么缺钱，打最终boss芯片才两个槽<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 450#       发表于 2023-2-25 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59863229&amp;ptid=2116452" target="_blank">妹控使徒 发表于 2023-2-23 20:55</a>
+
+营销部这个点的战斗卡了略久  快1个小时才打过  拳击手----狗-----鸟的车轮战略猛
+
+ 也算是暴露战斗设计一 ...</blockquote>
+这个看来大家都很痛苦啊
+
+我之前也是这里卡太久，这一个站点对于一个act来说要关注的东西有点太多了
+
