@@ -5200,3 +5200,21 @@ https://weibo.com/5326193952/4872755541181406
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  starring  
+##### 12507#       发表于 2023-2-25 23:00
+
+<img src="https://p.sda1.dev/10/18c8fbc53bf8c170984390fbc1fddf8f/Fp0CksAacAIrEZw.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/e759390d58f09f8362749585772f2db8/Fp0F7gracAIogs4.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/e773d529d763ed61da83cbcc9b259993/Fp0SE1yaIAAvgHX.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/e4bf2c4691043808797cc4bc8990b8fe/Fp0MoqKaIAE5eCi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/2cc8007fc12cdea9bc4d12f9802caf34/Fpveda2agAAwRXI.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/b95b49c17490d770f9fb995a28cc907a/FpvedHnaUAABSNe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/0ab6057e0cda06bf5445aa7f2a365ef4/Fpxx_WKaUAAOte8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/460f9ea348a035c776a8a73812a8b878/Fpxx_V-aYAAmGVe.jpg" referrerpolicy="no-referrer">
+
