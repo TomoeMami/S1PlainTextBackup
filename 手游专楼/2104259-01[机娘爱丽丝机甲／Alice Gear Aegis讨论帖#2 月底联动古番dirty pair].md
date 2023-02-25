@@ -258,3 +258,11 @@ syl，回楼上的坛友
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 306#       发表于 2023-2-26 00:49
+
+小鸟游这个FA服还……挺怪的，而且裙子上那个装甲（？）上印着的字分辨率好低
+
