@@ -487,3 +487,12 @@ construction.ggb
 
 好吧，从二周目的门兜了一个圈到里面去了
 
+
+*****
+
+####  vance521  
+##### 181#       发表于 2023-2-25 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59875760&amp;ptid=2085482" target="_blank">MobileMeowbot 发表于 2023-2-24 20:08</a></blockquote>
+我试图理解这个地图！理解不能啊！哪个是哪个啊？出生点是哪个啊？
+
