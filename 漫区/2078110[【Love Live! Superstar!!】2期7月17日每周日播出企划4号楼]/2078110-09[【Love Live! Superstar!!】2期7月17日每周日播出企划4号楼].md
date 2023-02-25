@@ -5136,3 +5136,22 @@ https://weibo.com/5326193952/4872755541181406
 巡航真的好像那种动画ED，还有我感觉是不是再升个key更好一点？</blockquote>
 赞成，感觉鱼应该可以唱的更开，期待现场版
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12500#       发表于 2023-2-25 17:06
+
+新专试听了一圈，编曲整体都缺乏惊喜，但一切都比不过逼死小百合那一首solo<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 12501#       发表于 2023-2-25 17:10
+
+只要音响开的足够大，谁在乎唱的好不好jpg
+
+所以说，第三季还有香音c的话，画面太感人了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
