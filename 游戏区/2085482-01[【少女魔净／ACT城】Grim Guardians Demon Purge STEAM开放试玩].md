@@ -540,3 +540,16 @@ construction.ggb
 
 大钟和食堂这俩隐藏房间有什么特殊作用么？
 
+
+*****
+
+####  RUANHYC  
+##### 187#       发表于 2023-2-25 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59882857&amp;ptid=2085482" target="_blank">KOL2022 发表于 2023-2-25 14:37</a>
+
+大钟和食堂这俩隐藏房间有什么特殊作用么？</blockquote>
+大钟的隐藏在哪里？
+
+食堂的锅子可以用伞的蓄力冲刺点燃，然后解锁一个成就
+
