@@ -1018,3 +1018,11 @@ https://azure.microsoft.com/zh-tw/products/cognitive-services/text-to-speech/#fe
 我自己试了下，一摸一样啊，文本是默认提供的文本
 立刻领养你的neruro(误)
 
+
+*****
+
+####  Ousia  
+##### 79#       发表于 2023-2-25 19:15
+
+有种好似内肉被人特定到的微妙感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
