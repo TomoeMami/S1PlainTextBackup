@@ -2460,3 +2460,19 @@ V的姓氏是否真实存在根本无关紧要吧，倒不如说越不存在越�
 
 嘛VTA一期那个中途跑路然后带着名号到别箱出道的男生是什么情况我就不知道了，甚至还不确定是不是本人呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 169#       发表于 2023-2-25 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59880007&amp;ptid=2117684" target="_blank">毛头小希 发表于 2023-2-25 09:31</a>
+
+V的姓氏是否真实存在根本无关紧要吧，倒不如说越不存在越好越“虚拟”
+
+我个人认为名字由学员自己想 ...</blockquote>
+脱退的一期生在这，听这电流麦应该是同一个人，已经在iriam活动一段时间了
+[https://twitter.com/hayasuzu0211](https://twitter.com/hayasuzu0211)
+
+VTA这些学生的名字大半都很日常，比如就像这个凉宫飒，正常得不像个V的名字，也有不太普通的干脆全是片假名的名字，我想名字上是多少能听一点本人意见的
+
