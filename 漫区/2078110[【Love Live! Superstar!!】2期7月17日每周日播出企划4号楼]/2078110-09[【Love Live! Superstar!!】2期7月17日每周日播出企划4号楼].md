@@ -5190,3 +5190,13 @@ https://weibo.com/5326193952/4872755541181406
 
 <img src="https://p.sda1.dev/10/a88c48453ac7911e8754fab750156c9c/CMP_20230225191913942.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 12506#       发表于 2023-2-25 20:52
+
+还是觉得蒙娜丽莎pay最漂亮，刘海感觉不适合她这种混血脸
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

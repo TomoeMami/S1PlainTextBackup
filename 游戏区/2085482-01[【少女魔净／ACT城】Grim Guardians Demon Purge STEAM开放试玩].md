@@ -663,3 +663,11 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  smileboom  
+##### 199#       发表于 2023-2-25 20:52
+
+打了前三关拿到新能力之后总想回去旧关其他路线找隐藏物品，结果还有需要别的能力才能去得到的地方，干脆一口气全通关拿齐能力二周目回来再重新走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
