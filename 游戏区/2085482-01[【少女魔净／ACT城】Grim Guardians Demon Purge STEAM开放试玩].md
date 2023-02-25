@@ -496,3 +496,11 @@ construction.ggb
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59875760&amp;ptid=2085482" target="_blank">MobileMeowbot 发表于 2023-2-24 20:08</a></blockquote>
 我试图理解这个地图！理解不能啊！哪个是哪个啊？出生点是哪个啊？
 
+
+*****
+
+####  tsubaki  
+##### 182#       发表于 2023-2-25 10:26
+
+中庭有个隐藏房里被柱子挡掉的学生怎么救来着，我看旁边没路的
+
