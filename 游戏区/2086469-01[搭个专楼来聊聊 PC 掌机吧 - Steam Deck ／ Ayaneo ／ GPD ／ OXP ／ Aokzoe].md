@@ -89,3 +89,16 @@ loki不知道年中能不能玩到
 https://www.kickstarter.com/projects/handheld-game-device/peakdo-mm-wave-streaming-handheld-game-dev ...</blockquote>
 这种基于无线hdmi方案的机器或者是罗技那种串流掌机不把屏幕规格拉高一点真的还挺浪费的，这种远程运行游戏的掌机真的很希望能完善一些，或者给更多选择。从wiiu和初代shield开始就一直觉得是一个挺有前途但是大家都拿不出有足够完成度和吸引力的方案的领域。搞到现在我只能用三星的s8u平板串流+手柄的奇怪替代。
 
+
+*****
+
+####  zxlice  
+##### 658#       发表于 2023-2-25 15:32
+
+ 本帖最后由 zxlice 于 2023-2-25 15:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59782012&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-2-17 13:04</a>
+
+不玩3a的话2，3小时总有的</blockquote>
+
+ 如果是家庭随地使用的话，有类似wii psv那样的手柄就好了
+
