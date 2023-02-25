@@ -982,3 +982,39 @@ ai的拟「人」，先不扯有没「自我」意识啥的，让ai有「感情�
 
 感谢，都是ai好朋友啊
 
+
+*****
+
+####  生麦之发杀  
+##### 78#       发表于 2023-2-25 19:06
+
+转载自：[Lawson翻译君的动态 - 哔哩哔哩 (bilibili.com)](https://www.bilibili.com/opus/761831841649917974?spm_id_from=333.788.b_636f6d6d656e74.19)neuro语音来源：
+https://azure.microsoft.com/zh-tw/products/cognitive-services/text-to-speech/#features
+
+<img src="https://img.saraba1st.com/forum/202302/25/190117czczvuwuguzu4cvy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230225190020.png</strong> (181.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 19:01 上传
+
+点进去可能默认是中文之类的，需要改的参数是这些，其他默认就行
+
+语言：English（United States）
+
+语音：Ashley（Neural）
+
+音调：1.52
+
+<img src="https://img.saraba1st.com/forum/202302/25/190147opuugzxugj5axxxj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230225190053.png</strong> (72.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 19:01 上传
+
+我自己试了下，一摸一样啊，文本是默认提供的文本
+立刻领养你的neruro(误)
+
