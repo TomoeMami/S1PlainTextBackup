@@ -240,3 +240,21 @@ syl，回楼上的坛友
 
 稍微盯了这服装池子几秒，再结合活动一想，原来人选是一队女高人另一队aegis人。
 
+
+*****
+
+####  江戸前ルナ  
+##### 305#         楼主| 发表于 2023-2-25 20:36
+
+<img src="https://img.saraba1st.com/forum/202302/25/203543n7szpnc0p2gqccwb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230225203511.png</strong> (561.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 20:35 上传
+
+[https://twitter.com/hysd1998/status/1628789271145619458](https://twitter.com/hysd1998/status/1628789271145619458)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
