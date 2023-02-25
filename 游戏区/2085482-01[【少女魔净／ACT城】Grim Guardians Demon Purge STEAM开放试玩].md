@@ -585,3 +585,17 @@ construction.ggb
 
 demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  x_ray_zero  
+##### 191#       发表于 2023-2-25 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883369&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-25 15:49</a>
+第二关后面有个少女要怎么解救，看上去像是很高的地方，难道后面有飞的能力？
+
+论坛助手,iPhone ...</blockquote>
+看B站有人试玩版修改出升级完的纸鹤，可以往上方扔
+
+— from samsung SM-G996B, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
