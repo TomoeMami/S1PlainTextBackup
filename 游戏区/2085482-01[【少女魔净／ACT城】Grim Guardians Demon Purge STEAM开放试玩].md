@@ -553,3 +553,25 @@ construction.ggb
 
 食堂的锅子可以用伞的蓄力冲刺点燃，然后解锁一个成就
 
+
+*****
+
+####  KOL2022  
+##### 188#       发表于 2023-2-25 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883174&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-25 15:21</a>
+
+大钟的隐藏在哪里？
+
+食堂的锅子可以用伞的蓄力冲刺点燃，然后解锁一个成就 ...</blockquote>
+大钟在时钟塔，具体位置...那个地图太抽象了，我只记得在上下的电梯附近<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  notromeo  
+##### 189#       发表于 2023-2-25 15:49
+
+第二关后面有个少女要怎么解救，看上去像是很高的地方，难道后面有飞的能力？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
