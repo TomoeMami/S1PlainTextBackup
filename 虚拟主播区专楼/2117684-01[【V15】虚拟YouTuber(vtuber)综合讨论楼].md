@@ -2485,3 +2485,11 @@ VTA这些学生的名字大半都很日常，比如就像这个凉宫飒，正�
 hnn是什么倒霉蛋，连续两届了
 第三届（如果还有的话)除非也和4cr一队不然真别参加了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rzrbtk  
+##### 171#       发表于 2023-2-25 20:15
+
+vta演技班还是挺有必要的，透应该完全没有academy经历，平时说话只是偶尔卡生僻词，音声里面棒读又滑舌有点新人美了
+
