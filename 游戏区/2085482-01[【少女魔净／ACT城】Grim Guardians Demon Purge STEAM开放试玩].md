@@ -653,3 +653,13 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 东西太少了不够藏啊，一些需要纸鹤和冰冻垫脚才能到的地方居然就给红紫绿药
 
+
+*****
+
+####  notromeo  
+##### 198#       发表于 2023-2-25 18:56
+
+不是像素就好了，不过不是像素的话，敌人很多死亡动画就太血腥了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

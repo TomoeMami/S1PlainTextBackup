@@ -1806,3 +1806,16 @@ redcrimson有苍井顶着，其实挺好打，但是血量有500万加回合数�
 
 这样看下来其实我冰队是最全的，螃蟹、老板娘和冰星罗都有了，问题就是打手只有螃蟹一个，螃蟹这大招真是一言难尽，我现在还记得当初过50层时因为螃蟹大招miss一连重开5次的惨痛经历<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一之江瑞江  
+##### 1034#       发表于 2023-2-25 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59880664&amp;ptid=2050204" target="_blank">有这个可能 发表于 2023-2-25 10:53</a>
+
+我现在打三倍币活动棱镜主要目标是带老板练级，一次能带三个老板
+
+亲身体验，能打SS可以试着往后打 ...</blockquote>
+能打个XI 只能带一个老板 慢慢练了
+
