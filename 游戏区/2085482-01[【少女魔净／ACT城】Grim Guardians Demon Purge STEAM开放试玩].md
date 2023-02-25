@@ -679,3 +679,11 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 低开高走二周目体验飞跃性提高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smileboom  
+##### 201#       发表于 2023-2-26 00:18
+
+原来二周目才是正式开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
