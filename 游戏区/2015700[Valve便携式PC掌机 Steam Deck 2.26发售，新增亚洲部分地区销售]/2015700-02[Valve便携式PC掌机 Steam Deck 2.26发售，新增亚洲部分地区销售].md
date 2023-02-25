@@ -16,3 +16,18 @@
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Testament  
+##### 2171#       发表于 2023-2-25 09:38
+
+滑丝最后换一字螺丝刀解决的。
+
+*****
+
+####  Testament  
+##### 2172#       发表于 2023-2-25 09:38
+
+滑丝最后换一字螺丝刀解决的。
+

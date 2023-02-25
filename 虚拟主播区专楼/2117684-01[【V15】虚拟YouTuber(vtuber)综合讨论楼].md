@@ -2440,3 +2440,23 @@ ow狗都不看
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  毛头小希  
+##### 168#       发表于 2023-2-25 09:31
+
+ 本帖最后由 毛头小希 于 2023-2-25 09:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59878237&amp;ptid=2117684" target="_blank">格林卡罗尔 发表于 2023-2-25 00:12</a>
+
+应该不可能是先有名字后有开场白，首先未来丹这种姓氏就不存在，其次未来に羽ばたく是个常见的宣传用语， ...</blockquote>
+V的姓氏是否真实存在根本无关紧要吧，倒不如说越不存在越好越“虚拟”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+我个人认为名字由学员自己想的可能性不高的原因是，学员一旦出道，这个皮的版权终归还是由enkr所有，包括名字、背景设定和外貌特征等。在这种情况下，创造形象（=商品管理）的工作应该还是由enkr主导的，顶多一定程度上贴近学员的特质或者征询学员的意见，完全由学员本人自由定制不大可能，而且真这样的话未来丹就不会是一个嗨得飞起的性格配个内向文艺少女的皮了
+
+另外就像你说未来に羽ばたく是个常见的宣传用语，STAFF构思的时候先从这个句子联想到名字，未来丹本人再由这个名字联想到句子也不是不可能，毕竟不管是二次元作品还是管人，用谐音梗取名的可太多了，比较典型的就是绝望先生和逆转裁判，几乎全员名字都是谐音梗
+
+当然也有葛叶、樱凛月、安土桃这种自带形象进组的特例，但是我觉得以VTA的运营方针来说未来丹属于这种的可能性比较低
+
+嘛VTA一期那个中途跑路然后带着名号到别箱出道的男生是什么情况我就不知道了，甚至还不确定是不是本人呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
