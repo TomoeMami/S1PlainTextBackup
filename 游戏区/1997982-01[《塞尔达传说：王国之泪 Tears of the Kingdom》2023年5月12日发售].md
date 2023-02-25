@@ -5978,3 +5978,14 @@ totk泄露的同捆美术集的剧透程度，大部分和这张图对botw的剧
 
 现在还能原价买到典藏版吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1193#       发表于 2023-2-25 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59887986&amp;ptid=1997982" target="_blank">熊猫roey 发表于 2023-2-25 23:24</a>
+
+现在还能原价买到典藏版吗</blockquote>
+官网没放货，再等等吧，反正当时没说限量
+
