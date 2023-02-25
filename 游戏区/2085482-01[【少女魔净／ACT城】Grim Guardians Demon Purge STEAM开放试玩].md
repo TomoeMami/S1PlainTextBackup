@@ -504,3 +504,13 @@ construction.ggb
 
 中庭有个隐藏房里被柱子挡掉的学生怎么救来着，我看旁边没路的
 
+
+*****
+
+####  oidoid  
+##### 183#       发表于 2023-2-25 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59880462&amp;ptid=2085482" target="_blank">tsubaki 发表于 2023-2-25 10:26</a>
+中庭有个隐藏房里被柱子挡掉的学生怎么救来着，我看旁边没路的</blockquote>
+要从之前的另外一个路线上去
+
