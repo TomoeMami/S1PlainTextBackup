@@ -575,3 +575,13 @@ construction.ggb
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  GYSS_  
+##### 190#       发表于 2023-2-25 15:58
+
+ 本帖最后由 GYSS_ 于 2023-2-25 16:01 编辑 
+
+demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
