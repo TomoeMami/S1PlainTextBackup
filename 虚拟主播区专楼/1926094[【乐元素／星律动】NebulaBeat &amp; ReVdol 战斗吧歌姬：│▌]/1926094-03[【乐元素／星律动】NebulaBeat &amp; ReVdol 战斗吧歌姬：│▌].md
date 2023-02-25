@@ -38,3 +38,11 @@
 
 能够面对过去，对于叶子来说不容易啊。中之人都走出歌姬的影子了，粉丝们也要往前走了
 
+
+*****
+
+####  喜闻乐见  
+##### 3076#         楼主| 发表于 2023-2-25 21:09
+
+<img src="https://pic4.58cdn.com.cn/nowater/webim/big/n_v2685fb5f244dd4a969ffcca8b02c52b72.png" referrerpolicy="no-referrer">
+

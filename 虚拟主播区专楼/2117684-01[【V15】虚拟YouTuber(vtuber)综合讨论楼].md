@@ -2493,3 +2493,21 @@ hnn是什么倒霉蛋，连续两届了
 
 vta演技班还是挺有必要的，透应该完全没有academy经历，平时说话只是偶尔卡生僻词，音声里面棒读又滑舌有点新人美了
 
+
+*****
+
+####  絵生voice  
+##### 172#       发表于 2023-2-25 21:04
+
+[https://youtu.be/NHLacoBXBvY?t=2540](https://youtu.be/NHLacoBXBvY?t=2540)
+
+抽象艺术家的会面
+
+<img src="https://img.saraba1st.com/forum/202302/25/210455mpdleseqmobozd5o.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230225210234.png</strong> (98.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 21:04 上传
+
