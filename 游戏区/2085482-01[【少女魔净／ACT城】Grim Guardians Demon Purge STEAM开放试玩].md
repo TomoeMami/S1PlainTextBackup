@@ -599,3 +599,22 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 — from samsung SM-G996B, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  oidoid  
+##### 192#       发表于 2023-2-25 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883564&amp;ptid=2085482" target="_blank">x_ray_zero 发表于 2023-2-25 16:17</a>
+看B站有人试玩版修改出升级完的纸鹤，可以往上方扔
+
+— from samsung SM-G996B, Android 13 of S1 Next G ...</blockquote>
+二周目路线，不需要修改
+
+*****
+
+####  RUANHYC  
+##### 193#       发表于 2023-2-25 16:54
+
+我现在发现的隐藏要素成就是第二关给厨房点火，第三章洞窟里帮幽灵成佛，第四章坐椅子上喝茶，第五章找到牢笼里的学生，入口处和时钟塔的在哪里？
+
