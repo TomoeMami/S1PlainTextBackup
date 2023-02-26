@@ -734,3 +734,17 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 — from Xiaomi Redmi Note 7 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  ParadiseMartyr  
+##### 207#       发表于 2023-2-26 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59890306&amp;ptid=2085482" target="_blank">苦瓜师傅 发表于 2023-2-26 10:16</a>
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of S1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
