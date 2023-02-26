@@ -715,3 +715,22 @@ demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太�
 
 老兵模式打到中庭，太受苦了，道中又长，每次只能打一关，估计就要用上存盘复制了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苦瓜师傅  
+##### 205#       发表于 2023-2-26 10:16
+
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  苦瓜师傅  
+##### 206#       发表于 2023-2-26 10:16
+
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
