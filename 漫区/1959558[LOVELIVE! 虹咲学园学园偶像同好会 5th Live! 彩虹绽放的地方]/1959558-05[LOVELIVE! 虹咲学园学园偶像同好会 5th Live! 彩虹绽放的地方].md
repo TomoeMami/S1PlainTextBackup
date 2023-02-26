@@ -45,3 +45,11 @@ DiverDiva GALactic Trip
 
 —— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  DarthAka  
+##### 7074#       发表于 2023-2-26 09:33
+
+DD的live只要坐满加大梦老师别翻大车就行了，CP有点磕不动
+
