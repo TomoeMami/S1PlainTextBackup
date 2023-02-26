@@ -1026,3 +1026,11 @@ https://azure.microsoft.com/zh-tw/products/cognitive-services/text-to-speech/#fe
 
 有种好似内肉被人特定到的微妙感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vneeto  
+##### 80#       发表于 2023-2-26 10:47
+
+刚看了个切片，neuro被问中文名然后回了句没有让你们说完一个，怎么一伙人都在刷Bing Chilling（冰淇凌？）的，然后她就复读一次了。
+
