@@ -53,3 +53,14 @@ DiverDiva GALactic Trip
 
 DD的live只要坐满加大梦老师别翻大车就行了，CP有点磕不动
 
+
+*****
+
+####  仟音一心  
+##### 7075#       发表于 2023-2-26 11:49
+
+过场这个熊的考据
+<img src="https://p.sda1.dev/10/e6057f1f8eab96fbbf023117db8ee1aa/CMP_20230226114842006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/b8a4e03a786fdb07b92d29ce140ad3d9/CMP_20230226114842044.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/fd59aa11fe09d2bf110c714c0e083ac1/CMP_20230226114842089.jpg" referrerpolicy="no-referrer">
+
