@@ -6737,3 +6737,11 @@ b站大陆终于过审了？还是配合手游进度开始播放？
 伊赛利亚可爱又靠谱, ...</blockquote>
 帝国即将入侵，如果最后boss是自家的副官，这也挺黑色笑话的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 732#       发表于 2023-2-26 12:44
+
+感觉根本不用打北方战争，诺州自己就会把自己给作没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
