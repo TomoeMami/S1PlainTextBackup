@@ -6724,3 +6724,16 @@ b站大陆终于过审了？还是配合手游进度开始播放？
 
 古拉格真想称霸世界啊？那么直白的吗？
 
+
+*****
+
+####  aptx8285144  
+##### 731#       发表于 2023-2-26 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883177&amp;ptid=2050199" target="_blank">大丈夫萌大乃 发表于 2023-2-25 15:21</a>
+
+猜到老头这么跳肯定要嗝,没想到一集都没撑过去就嗝了...最后BOSS应该是白毛大姐姐吧?
+
+伊赛利亚可爱又靠谱, ...</blockquote>
+帝国即将入侵，如果最后boss是自家的副官，这也挺黑色笑话的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
