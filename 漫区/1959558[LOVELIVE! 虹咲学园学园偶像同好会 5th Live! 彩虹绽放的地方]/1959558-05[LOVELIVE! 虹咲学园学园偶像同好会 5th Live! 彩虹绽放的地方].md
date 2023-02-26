@@ -35,3 +35,13 @@ DiverDiva GALactic Trip
 
 <img src="https://p.sda1.dev/10/c3ecaf228479042275ef7999b21d0e15/iqajmzdy8jhlfvb0qh9hchos.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7073#       发表于 2023-2-26 09:11
+
+看了mc切片，瞳孔震动jpg
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
