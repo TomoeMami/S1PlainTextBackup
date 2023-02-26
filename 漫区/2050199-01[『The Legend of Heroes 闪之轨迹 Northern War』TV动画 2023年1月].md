@@ -6745,3 +6745,14 @@ b站大陆终于过审了？还是配合手游进度开始播放？
 
 感觉根本不用打北方战争，诺州自己就会把自己给作没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 733#       发表于 2023-2-26 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59891591&amp;ptid=2050199" target="_blank">妄想中毒 发表于 2023-2-26 12:44</a>
+
+感觉根本不用打北方战争，诺州自己就会把自己给作没了</blockquote>
+南明是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
