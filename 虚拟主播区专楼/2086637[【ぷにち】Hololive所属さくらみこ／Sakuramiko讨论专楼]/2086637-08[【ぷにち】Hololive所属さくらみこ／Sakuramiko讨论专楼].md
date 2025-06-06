@@ -125,3 +125,34 @@
 
 补昨天的推特一枚
 
+
+*****
+
+####  holofan  
+##### 11054#       发表于 2025-6-6 16:17
+
+昨天马车联动时候的转圈问题
+
+当时直播卡顿到延迟超过80秒，结果最有意思的是youtube卡掉的那1分钟刚好是跑了一整圈的时间，以至于第一圈结束和第三圈开始的画面声音直接无缝对接连看回放的观众都没注意到
+
+<img src="https://img.stage1st.com/forum/202506/06/161651u5eiio0f5if55e55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:16 上传
+
+*****
+
+####  holofan  
+##### 11055#       发表于 2025-6-6 20:33
+
+<img src="https://img.stage1st.com/forum/202506/06/203336ab89vx0ve1s4j89v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 20:33 上传
+
