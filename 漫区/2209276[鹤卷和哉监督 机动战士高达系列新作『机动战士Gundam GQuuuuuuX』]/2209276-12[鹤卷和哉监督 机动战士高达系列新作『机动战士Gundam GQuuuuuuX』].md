@@ -14594,3 +14594,63 @@ Nt水平看最后对鸭妹就知道了，真不太行，最后才感知到这还
 
 这么想，捷多也是妹妹和普露被炸飞后分别提升了两次功力，卡谬也是艾玛死后才神功大成
 
+
+*****
+
+####  syndrome2032  
+##### 17452#       发表于 2025-6-6 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67892293&amp;ptid=2209276" target="_blank">Sabbah 发表于 2025-6-6 15:55</a>
+骡子和妈形同陌路LVUP，老爹认识错乱LVUP
+
+超能力就得靠祭点亲人来升级这点也跟武侠小说很接近 ...</blockquote>
+骡子真正神功大成还是得捅死拉拉。但是debuff就是得接受拉拉的精神污染。
+
+
+*****
+
+####  岸浪白野  
+##### 17453#       发表于 2025-6-6 16:14
+
+[X 上的 ワタヌキコン🦊イラストレーター：“【お知らせ】 『機動戦士Gundam GQuuuuuuX』 × 極楽湯コラボ の描き起こしミニキャライラストを担当させていただきました♨️ お見かけの際は何卒よろしくお願いいたします！ #GQuuuuuuX #ジークアクス #極楽湯 #お風呂って自由ですか [url]https://t.co/st3IaqD7Lg](https://x.com/wtnkkon/status/1930897452900487614)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/06/161246xogu6wfguiziawuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/161353bhz42jj2d7ljg17c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:13 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/161358fkurduutdgaqgzwu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:13 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/161405pg10ez9g4150kljj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/161410jqsmyyu4tz599mww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:14 上传
+
