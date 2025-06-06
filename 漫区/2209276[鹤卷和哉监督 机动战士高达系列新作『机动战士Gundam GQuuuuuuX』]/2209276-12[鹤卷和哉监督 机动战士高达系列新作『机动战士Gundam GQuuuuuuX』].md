@@ -14814,3 +14814,24 @@ SIDE5剧场版做了改编，马克杯逃过一劫，否则当时就交代在那
 
 夏亚就努力个30年，争取130年给UC一个正经点的环境，大伙也不用看什么血滴子，神之雷，摩托战舰，天使之环这种抽象玩意<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 17465#       发表于 2025-6-6 18:28
+
+[https://sneakerbunko.jp/news/title/entry-12942.html](https://sneakerbunko.jp/news/title/entry-12942.html)
+
+元祖小说继3月全卷重印之后，6月再次全卷重印。Z、ZZ、F91的小说版和《密会 阿姆罗与拉拉》也将陆续重印。
+
+*****
+
+####  赤黑的假面  
+##### 17466#       发表于 2025-6-6 18:29
+
+<blockquote>灵魂收割机 发表于 2025-6-6 18:28
+https://sneakerbunko.jp/news/title/entry-12942.html
+
+元祖小说继3月全卷重印之后，6月再次全卷重印。Z、Z ...</blockquote>
+庵野秀明爽翻天了
+
