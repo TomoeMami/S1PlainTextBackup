@@ -14654,3 +14654,49 @@ Nt水平看最后对鸭妹就知道了，真不太行，最后才感知到这还
 
 2025-6-6 16:14 上传
 
+
+*****
+
+####  vorfeed  
+##### 17454#       发表于 2025-6-6 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67892171&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-6 15:34</a>
+好像說那6台機體的數據都有問題...</blockquote>
+你说的应该是evolve的那段
+不是百式也不是初钢  是开利克迪亚士模拟战打mk2  然后调了架真·3倍速的红扎古  古华多罗被夏亚暴打后恼羞成怒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西洛克  
+##### 17455#       发表于 2025-6-6 16:23
+
+<blockquote>玖羽 发表于 2025-6-6 13:47
+多次对上阿姆罗还能活下来绝对不菜了好吗，不能说不如阿姆罗就是菜
+
+夏亚这个人的悲剧在于，他的上限就是 ...</blockquote>
+领导能力这个不能看剧情表现，毕竟高达是以机师视角展开的作品，uc基本没啥正经领导人的描写，富野倒是在zz访谈提过提过。夏亚真狠下心的话比哈曼之流强的多，不过基本也就局限在打到竞争者这一块，想让全人类变成nt这种理想你让神仙来了也没用
+
+<img src="https://img.stage1st.com/forum/202506/06/162126erf5frkmfvtvvraz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>50cfc897197e0ffe233eec3610c4343e.jpeg</strong> (203.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:21 上传
+
+*****
+
+####  岸浪白野  
+##### 17456#       发表于 2025-6-6 16:24
+
+[X 上的 大河広行・たいがひろゆき（山田隆弥）：“頭空っぽラクガキ１０１０ 「機動戦士Gundam GQuuuuuuX(ジークアクス)」から「シャロンのバルバトス」 ここ数日のシャロンの薔薇大喜利に乗ろうと考えたのだが昔「バルバトスはバラの一種の名前だそうですよ」と聞いたのを思い出した ただ検索引っかからない。記憶違い？ #GQuuuuuuX #ジークアクス [url]https://t.co/46aoTVf5Os](https://x.com/hiroyuki_taiga/status/1930786019542212648)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/06/162404nxeztnds52mzecsd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:24 上传
+
