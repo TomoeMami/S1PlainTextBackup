@@ -14700,3 +14700,43 @@ Nt水平看最后对鸭妹就知道了，真不太行，最后才感知到这还
 
 2025-6-6 16:24 上传
 
+
+*****
+
+####  EFSF  
+##### 17457#       发表于 2025-6-6 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67892230&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-6-6 15:43</a>
+
+如果你被ms从地上近距离打中 基本也就挂了 所以木马的护航ms是吃干饭的吗 ...</blockquote>
+0083年，阿鲁比昂在非洲护航不足，靠两台MS和自身防空火力掩护也是要依靠自身装甲硬吃几发，最后是吉恩残党要跳攻舰桥。
+
+进入到到大气圈，你敞开装甲，都不用到你正下方，只要角度合适就能依靠RPG入魂，你护航够又如何，你肚子大开等于说你别和护航缠斗了，快来点炮吧。除非你贴地飙船。
+
+就GQX里那样米飘要打开装甲用，这样一发就没了。
+
+<img src="https://img.stage1st.com/forum/202506/06/163005ywal0lrwhr4jwxws.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250606162934.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 16:30 上传
+
+
+*****
+
+####  pokemon最爱  
+##### 17458#       发表于 2025-6-6 16:33
+
+假如巅峰79骡的机体不是782而是一台有着类似种里自由系的武装配置的NT1性能的高达（可以连发五彩大炮，多锁可以联动NT能力），那么79骡能否单人杀穿阿巴瓦空呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七里由馬  
+##### 17459#       发表于 2025-6-6 16:35
+
+<blockquote>syndrome2032 发表于 2025-6-6 16:10
+骡子真正神功大成还是得捅死拉拉。但是debuff就是得接受拉拉的精神污染。 ...</blockquote>
+其实纯粹自己吓自己，cca 里已经没啥影响了。
+
