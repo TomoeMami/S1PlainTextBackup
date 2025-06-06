@@ -449,3 +449,11 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 《STRANGER THAN HEAVEN》是人中之龙工作室继“人中之龙”系列、“Virtua Fighter”系列等众多作品后，为大家带来的又一部全新作品。
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 48#       发表于 2025-6-7 07:06
+
+不对呀，四三年都开始太平洋战争了，哪有这种灯红酒绿呀
+
