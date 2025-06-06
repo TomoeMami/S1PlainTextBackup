@@ -3580,3 +3580,11 @@ ex2同时完成了开发机+不死成就，开心。
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ドロロ  
+##### 1803#       发表于 2025-6-6 19:45
+
+之前EX1用妖刀站葵曼沙头顶大扎姆不会跑过来，现在拿斧王站上面大扎姆会跑过来然后一发地图炮<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

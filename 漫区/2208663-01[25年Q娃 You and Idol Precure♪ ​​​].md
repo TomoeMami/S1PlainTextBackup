@@ -1574,3 +1574,21 @@ ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">中间噗哩伦想着小歌，梅洛伦想着姐姐那里给我看出爱大爱跪地上呼喊雷吉娜的感觉了
 
+
+*****
+
+####  咲良うた  
+##### 996#       发表于 2025-6-6 19:38
+
+[https://m.weibo.cn/detail/5174622997975525](https://m.weibo.cn/detail/5174622997975525) <blockquote>偶Q7月预告（连大河内都来写Q娃了）
+
+19（加藤阳一/横内一树）杂志《娱乐奔奔》的记者贵岛纺在镇上到处调查黑白的真相，于是小歌她们找到了记者提出合作
+
+20（金杉弘子/土田丰）
+
+21（大河内一楼/岩井隆央/佐藤雅教）
+
+22 偶像Q娃VSZukyoonKiss</blockquote>
+<img src="https://files.catbox.moe/qmetr8.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4arc9t.jpg" referrerpolicy="no-referrer">
+
