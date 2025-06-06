@@ -13947,3 +13947,24 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 不过还有3集，0079的剧情都顾不过来了，不一定有心搞0080。
 
+
+*****
+
+####  rockroxas  
+##### 17397#       发表于 2025-6-6 10:08
+
+克莉丝跟阿尔？参考黑色二连星，还是去别的世界观生活吧，我看胶达就不错
+
+
+*****
+
+####  七七見奈波  
+##### 17398#       发表于 2025-6-6 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889787&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-6 09:43</a>
+
+其实印度女人的红点是必须已婚而且老公在世才能点的……日本人好像不知道
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+该说印度人没有抗议挺好的还是该说印度人不看高达挺好的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
