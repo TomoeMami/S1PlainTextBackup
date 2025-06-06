@@ -14529,3 +14529,16 @@ GU線的機體殺敵數也算是一個迷?
 <img src="https://p.sda1.dev/24/456af2418c9aa38f8d368bc47e6a8066/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/bc99a13f4b76ec6a35b5cb04a36b675c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 17446#       发表于 2025-6-6 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67892013&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-6 15:07</a></blockquote>
+好像說那6台機體的數據都有問題...
+
+記得有個短編，
+
+是鴨子初次準備開百式，原本還說想油成紅色...其後他和AI對戰是初代鋼彈，不過測試員將AI機體全參數調高10倍還是百倍...最後鴨子算是打贏，令測試員嚇傻了，而鴨子也放開心情說金色也沒所謂...
+
