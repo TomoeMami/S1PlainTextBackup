@@ -13968,3 +13968,16 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 该说印度人没有抗议挺好的还是该说印度人不看高达挺好的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 17399#       发表于 2025-6-6 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888854&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-6-6 00:53</a>
+
+想了想，路人眼中的夏利尔还真是自护第一格鲁古古
+
+一年战争，开着09R和キケロガ两刷所罗门毫发无损。</blockquote>
+就是做到这程度，鸡西莉亚到御前救驾才信任绿叔叔不是大基的人，紫婆这浑身都是心眼，没信任任何人的吧
+

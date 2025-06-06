@@ -69,3 +69,22 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Niu  
+##### 18236#       发表于 2025-6-6 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887500&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2025-6-5 04:30</a>
+
+https://gbf.huijiwiki.com/wiki/Weapon/1040024600
+
+这把。主要现在有LM狐狸了当然要带（当年被人拉入坑 ...</blockquote>
+直接去Youtube上看大老解說吧
+
+這武器是長期戰FA用
+
+或是非法皇編成的短期占用
+[https://www.youtube.com/watch?v=tsj1Nt-2e0M](https://www.youtube.com/watch?v=tsj1Nt-2e0M)
+[https://www.youtube.com/watch?v=bMRRTbEfJpI](https://www.youtube.com/watch?v=bMRRTbEfJpI)
+
