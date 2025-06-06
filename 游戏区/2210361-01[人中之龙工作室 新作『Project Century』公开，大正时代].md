@@ -457,3 +457,23 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 不对呀，四三年都开始太平洋战争了，哪有这种灯红酒绿呀
 
+
+*****
+
+####  泰坦失足  
+##### 49#       发表于 2025-6-7 07:16
+
+[https://zh.wikipedia.org/wiki/1943%E5%B9%B4](https://zh.wikipedia.org/wiki/1943%E5%B9%B4)
+
+1943年不都眼看着二战都能看到哪边胜利吗. 
+
+
+*****
+
+####  qiyu1234  
+##### 50#       发表于 2025-6-7 07:20
+
+不是更改设定，俩宣传片都是这游戏的内容
+
+是PROJECT CENTURY意思就是跨时代的故事
+
