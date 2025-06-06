@@ -13885,3 +13885,23 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 不过谁知道呢，拉拉微操多少次居然只能得出让鸭子上高达的结论，而不是一开始就不让他参军，或者让鸭妹把他腿打断拉上木马，想来是因为拉拉太爱吉翁军装带着奇怪面具的鸭XD
 
+
+*****
+
+####  仟音一心  
+##### 17391#       发表于 2025-6-6 09:42
+
+<img src="https://s3.bmp.ovh/imgs/2025/06/06/49b5c018130d81cd.jpg" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2025/06/06/af8fcce1e73f56ae.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 17392#       发表于 2025-6-6 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889439&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-6 08:48</a>
+虽然其实没有什么强相关性，但是印度黑皮美女脑门点个红点儿+蔷薇很难不穿越到少革里那位同样疑似睡过不止 ...</blockquote>
+其实印度女人的红点是必须已婚而且老公在世才能点的……日本人好像不知道
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

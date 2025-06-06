@@ -23105,3 +23105,13 @@ Mea。I love you love you 谢谢你。  
 
 我这也没有22年12月23日tc播过的记录，倒是24日推特空间播了。
 
+
+*****
+
+####  sino__unnko3  
+##### 18665#       发表于 2025-6-6 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889034&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-6-6 02:41</a>
+2022年12月23日真的在Twicas播过吗，感觉没有印象，去翻了TC帐号和观测局也都没有，白天该去确认我的存档库 ...</blockquote>
+现场评论说的是twitch
+
