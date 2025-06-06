@@ -14794,3 +14794,23 @@ SIDE5剧场版做了改编，马克杯逃过一劫，否则当时就交代在那
 
 骡神已经练成了光枪点浮游炮的绝技（Z高达里只有希洛克用过这招，卡缪靠的是射击甩出去的光剑造成beam散射，百式和后来的杰刚队长是拉近距离），后面更发展到光剑砍浮游炮，白色恶魔恐怖如斯。
 
+
+*****
+
+####  银川智将Kuroky  
+##### 17463#       发表于 2025-6-6 17:59
+
+骡子的恐怖玩玩卫星陨落之地第二张cd自己体验下就知道了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 17464#       发表于 2025-6-6 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67892497&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-6 16:23</a>
+
+领导能力这个不能看剧情表现，毕竟高达是以机师视角展开的作品，uc基本没啥正经领导人的描写，富野倒是在 ...</blockquote>
+其实也不需要多少领导力吧，122年联邦名存实亡，140年已经完蛋
+
+夏亚就努力个30年，争取130年给UC一个正经点的环境，大伙也不用看什么血滴子，神之雷，摩托战舰，天使之环这种抽象玩意<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
