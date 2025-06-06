@@ -13989,3 +13989,18 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 最后不会逆鸭里面失踪的骡子和鸭子是跑到这边来的吧？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 17401#       发表于 2025-6-6 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889688&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-6 09:29</a>
+
+事到如今我觉得他们是极力避免正史出场了，最多擦边碰瓷一下
+
+再说不管骡鸭都不可能扔着gq拉拉在那不管的
+
+不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸭子就是又菜又爱操作的典范，不让他参战难度比让他上高达还难吧
+
