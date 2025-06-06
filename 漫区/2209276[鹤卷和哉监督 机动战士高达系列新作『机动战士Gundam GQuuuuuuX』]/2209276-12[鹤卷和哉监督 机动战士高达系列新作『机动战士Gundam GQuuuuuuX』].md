@@ -14123,3 +14123,56 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 得亏是鸭子nt发动感应到是鸭 ...</blockquote>
 流星锤是冲着自爆扎古去的吧，而且也不是偷袭。当然鸭妹这里确实是打不过鸭子。
 
+
+*****
+
+####  Piano-Forest  
+##### 17413#         楼主| 发表于 2025-6-6 12:16
+
+GQ第9话。虽然是个不显眼的细节，但对我个人来说，索顿号舰底的米诺夫斯基装置启动描写也是一个特别的亮点。这是我小时候的一个小小梦想。（弊社社长谈）
+<img src="https://p.sda1.dev/24/e30b54d43d780639b8d08857983d169a/20250606_120329.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 17414#         楼主| 发表于 2025-6-6 12:17
+
+[https://x.com/kodamazon_kdm/status/1930531914265288788](https://x.com/kodamazon_kdm/status/1930531914265288788)
+<img src="https://p.sda1.dev/24/4eb6be79c4493a783817d49d0821e07d/20250606_120253.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/zap2000jp/status/1930076077734654345](https://x.com/zap2000jp/status/1930076077734654345)
+<img src="https://p.sda1.dev/24/befb1f3de5fb9deca45e30f12b0e230c/20250606_120155.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/z_o_o/status/1930559486458261773](https://x.com/z_o_o/status/1930559486458261773)
+<img src="https://p.sda1.dev/24/9c659e8e0da2a54dc1279b45856e03e9/20250606_120450.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/horocca08/status/1930639514420035866](https://x.com/horocca08/status/1930639514420035866)
+
+メイド服可愛い〜のでコモリ少尉に着せる
+
+エグザベ君にも着せる
+<img src="https://p.sda1.dev/24/128ccaf509e0024f17c4e0ac444ef1bb/20250606_120419.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matahe_i/status/1930593018815398103](https://x.com/matahe_i/status/1930593018815398103)
+<img src="https://p.sda1.dev/24/096f11ed3b3c699b937f9fc4b7eb3a9e/20250606_120401.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kurentu/status/1930246473926750534](https://x.com/kurentu/status/1930246473926750534)
+<img src="https://p.sda1.dev/24/7a9cb198c450a33aade923ea7729b7b6/20250606_120150.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/paulowniamarsh/status/1930598242783502618](https://x.com/paulowniamarsh/status/1930598242783502618)
+<img src="https://p.sda1.dev/24/3432c7928689b6c580f68e8ddc1b3691/20250606_120349.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mm_kc24/status/1930601028770308343](https://x.com/mm_kc24/status/1930601028770308343)
+<img src="https://p.sda1.dev/24/999bf1391acbd0ad3f0899e161d06077/20250606_120249.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 17415#       发表于 2025-6-6 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890785&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-6 11:44</a>
+总帅其实不算菜，开百式能在卡碧尼和铁奥手下活下来算很强了</blockquote>
+不是驾驶技术菜，而是技术以外的操作太菜，鸭子的心气真的只能当个中间管理当不成领导<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
