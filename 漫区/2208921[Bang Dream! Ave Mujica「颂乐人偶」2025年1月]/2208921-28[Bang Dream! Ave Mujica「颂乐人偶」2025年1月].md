@@ -144,3 +144,11 @@
 所以考虑到组员们的辛苦付出还是决定发出来了，还请谅解！</blockquote>
        [https://www.bilibili.com/video/BV1jxTbzCEZW/](https://www.bilibili.com/video/BV1jxTbzCEZW/)
 
+
+*****
+
+####  仟音一心  
+##### 40984#       发表于 2025-6-6 16:39
+
+<img src="https://p.sda1.dev/24/5789c4eea5116a8922e75c4a84fadca9/image.jpg" referrerpolicy="no-referrer">
+
