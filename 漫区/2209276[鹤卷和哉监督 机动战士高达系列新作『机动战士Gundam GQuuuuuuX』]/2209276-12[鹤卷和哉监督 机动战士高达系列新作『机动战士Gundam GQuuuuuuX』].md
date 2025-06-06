@@ -14340,3 +14340,82 @@ G(eneration) ✓
 
 uc一般ace见到杀神时期的骡子存活时间按秒算的吧............总帅能活那么久钦定永世骡一儿确实不菜了<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blood_iron  
+##### 17431#       发表于 2025-6-6 14:16
+
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足
+
+2，没有经过严厉父亲骡一儿的军训，导致实际技术长时间处于虐菜水平，没有长进
+
+3，目前gu时间线上多年没有操作过ms了，跟骡子当初在z时一样
+
+更南蚌的是，即使这样，鸭子也应该是目前gu第一驾驶员。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 17432#       发表于 2025-6-6 14:18
+
+鸭子的骡一儿主要是79开勇士那会一刀断手再一刀要命被拉拉舍身救下，这次也是gqux拉拉天天做梦看的毒电波。
+
+再者就是CCA打骡子被牛夫三拳打到扑街。
+
+这两场都被碾压的太惨了。
+
+*****
+
+####  秋月孝三  
+##### 17433#       发表于 2025-6-6 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891704&amp;ptid=2209276" target="_blank">blood_iron 发表于 2025-6-6 14:16</a>
+
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实Z时代的骡子现在定位已经不是空窗骡，而是凡尔赛之骡了
+
+*****
+
+####  洛克萨斯  
+##### 17434#       发表于 2025-6-6 14:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+4E5F4D23.png
+(1.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 14:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/141948qnstjv2l9ju5dv3n.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 17435#       发表于 2025-6-6 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891704&amp;ptid=2209276" target="_blank">blood_iron 发表于 2025-6-6 14:16</a>
+
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足 ...</blockquote>
+gqux鸭的nt里比正史鸭要强吧。红高达改修装了bit。
+
+正史鸭只能开腿只是装饰玩线控炮
+
+
+*****
+
+####  adretyu67.  
+##### 17436#       发表于 2025-6-6 14:22
+
+Z时期骡子本来就是79、z、cca里相对最弱的那个吧。
+
+没有勇气上宇宙去面对拉拉这一点就已经输了。
+
