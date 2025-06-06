@@ -14835,3 +14835,11 @@ https://sneakerbunko.jp/news/title/entry-12942.html
 元祖小说继3月全卷重印之后，6月再次全卷重印。Z、Z ...</blockquote>
 庵野秀明爽翻天了
 
+
+*****
+
+####  秋月孝三  
+##### 17467#       发表于 2025-6-6 18:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下又有更多人知道富野小说的部分情节有多下头了
+
