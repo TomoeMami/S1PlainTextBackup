@@ -14884,3 +14884,36 @@ https://sneakerbunko.jp/news/title/entry-12942.html
 
 KAPPA PSYGOMU
 
+
+*****
+
+####  岸浪白野  
+##### 17472#       发表于 2025-6-6 19:08
+
+首席的CV
+[X 上的 山下誠一郎 Seiichiro Yamashita：“こんなキケロガのグッズがほしい🫧✍️ (見て描いてもむずかしすぎた) [url]https://t.co/1lY3iD1Jmw](https://x.com/seichiro0521/status/1930909922906239160)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/06/190743xlyskjysz6qs1tsj.png" referrerpolicy="no-referrer">
+
+<strong>XT4VL6MU5JE9%D[S)Y36FPK.png</strong> (407.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 19:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/190747aza1fv1b07jfvbbv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 19:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/06/190754f9rirehn18snrzzn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 19:07 上传
+
