@@ -14307,3 +14307,36 @@ G(eneration) ✓
 然而这其实是个败笔，巡航/作战必不可少的装置必须要开舱暴露在装甲外，而且是下方这种敌人钻进来就大暴 ...</blockquote>
 这不就是美少女给你看内裤的意思，争论战场上不该出现美少女给你看内裤有什么意义吗
 
+
+*****
+
+####  猪突猛进R  
+##### 17427#       发表于 2025-6-6 14:09
+
+觉得鸭菜的可以看0079里一般ACE对上骡时的反应：
+[https://www.bilibili.com/video/BV16fJEzWEHr](https://www.bilibili.com/video/BV16fJEzWEHr)
+
+*****
+
+####  砂糖续香香  
+##### 17428#       发表于 2025-6-6 14:09
+
+为什么一定要骡子出场呢<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ardente  
+##### 17429#       发表于 2025-6-6 14:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">夏亚的悲剧在于他是个男的
+
+
+*****
+
+####  洛克萨斯  
+##### 17430#       发表于 2025-6-6 14:15
+
+uc一般ace见到杀神时期的骡子存活时间按秒算的吧............总帅能活那么久钦定永世骡一儿确实不菜了<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
