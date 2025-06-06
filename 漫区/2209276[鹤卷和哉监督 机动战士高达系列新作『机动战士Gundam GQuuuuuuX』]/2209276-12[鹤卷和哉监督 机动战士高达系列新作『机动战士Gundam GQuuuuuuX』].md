@@ -14506,3 +14506,26 @@ GU線的機體殺敵數也算是一個迷?
 
 <img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EFSF  
+##### 17444#       发表于 2025-6-6 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891531&amp;ptid=2209276" target="_blank">yunluo 发表于 2025-6-6 13:54</a>
+
+这不就是美少女给你看内裤的意思，争论战场上不该出现美少女给你看内裤有什么意义吗 ...</blockquote>
+高达世界战舰出现在战场属于日常，且所有相关作品底层逻辑符合所有人已知的一般军事常识，所以讨论是有意义的，他做得不好不对有啥不能讨论的。
+
+*****
+
+####  仟音一心  
+##### 17445#       发表于 2025-6-6 15:08
+
+肉ネーム@mn38ka
+汉化：和歌坂零
+<img src="https://p.sda1.dev/24/3ae4fa2881a7450abb2ad096218a20b3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3cacb3785931e93f11be460408736de6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/456af2418c9aa38f8d368bc47e6a8066/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/bc99a13f4b76ec6a35b5cb04a36b675c/image.jpg" referrerpolicy="no-referrer">
+
