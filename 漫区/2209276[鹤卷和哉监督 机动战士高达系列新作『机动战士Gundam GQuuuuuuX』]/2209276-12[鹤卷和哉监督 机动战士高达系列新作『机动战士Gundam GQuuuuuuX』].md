@@ -14843,3 +14843,28 @@ https://sneakerbunko.jp/news/title/entry-12942.html
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下又有更多人知道富野小说的部分情节有多下头了
 
+
+*****
+
+####  七里由馬  
+##### 17468#       发表于 2025-6-6 18:46
+
+<blockquote>秋月孝三 发表于 2025-6-6 18:44
+这下又有更多人知道富野小说的部分情节有多下头了</blockquote>
+乌贼水平不是早暴露了，谁当真啊😯
+
+*****
+
+####  YU_JI  
+##### 17469#       发表于 2025-6-6 18:46
+
+实际带货小说啊，鹤卷和哉，这也是你计划的一部分吗
+
+
+*****
+
+####  Sliurus  
+##### 17470#       发表于 2025-6-6 18:53
+
+让富野作品再次伟大！<img src="https://static.stage1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
