@@ -33,3 +33,11 @@
 
 兽尼池真毒，8单4宝<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电波系腑海林  
+##### 47151#       发表于 2025-6-6 12:26
+
+居然花了30抽才补完了上次没抽到满破的五星礼装，怀疑自己不能在学姐池之前攒到一井了
+
