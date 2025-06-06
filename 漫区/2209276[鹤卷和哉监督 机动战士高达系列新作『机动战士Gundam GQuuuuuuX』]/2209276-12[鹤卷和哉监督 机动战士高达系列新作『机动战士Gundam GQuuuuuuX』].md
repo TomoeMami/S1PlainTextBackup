@@ -13922,3 +13922,28 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 话说，舞台都定在side6了，楼里有没有讨论过阿尔跟克丽丝？85年阿尔15岁左右应该上高中了吧
 
+
+*****
+
+####  猪突猛进R  
+##### 17395#       发表于 2025-6-6 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889781&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-6 09:42</a></blockquote>
+已经事业有成的喵安听到番茄被卖到窑子后大怒，立马发动手下给番茄冲业绩。
+
+*****
+
+####  猪突猛进R  
+##### 17396#       发表于 2025-6-6 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889857&amp;ptid=2209276" target="_blank">03e7 发表于 2025-6-6 09:52</a>
+
+话说，舞台都定在side6了，楼里有没有讨论过阿尔跟克丽丝？85年阿尔15岁左右应该上高中了吧 ...</blockquote>
+好消息：巴尼和克丽丝不用相爱相杀了。
+
+坏消息：GQ世界线也许俩人根本不认识。
+
+至于阿尔，如果制作组想的话可以让他在后面露个面。
+
+不过还有3集，0079的剧情都顾不过来了，不一定有心搞0080。
+
