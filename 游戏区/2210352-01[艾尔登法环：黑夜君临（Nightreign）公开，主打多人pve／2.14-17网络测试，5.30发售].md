@@ -7386,3 +7386,16 @@ solo一把人偶妹，出门摸到铃铛，第二夜打boss掉光环。。然后
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  elven119  
+##### 735#       发表于 2025-6-6 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889912&amp;ptid=2210352" target="_blank">pgain2004 发表于 2025-6-6 09:59</a>
+
+光环是指哪个？
+
+顺便三大汉团也挺不错的，可以让许多Boss连续出硬直。或者说其实很多三同色团都不错，除 ...</blockquote>
+就是一个飞碟一样的圆环，这招的好处是射程爆长，消耗巨低，伤害很高，打大体型运气好回来拿一下还能有一次伤害。我拿了2个减蓝耗，用这个东西打，碎片都不怎么吃了。
+

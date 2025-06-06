@@ -14438,3 +14438,71 @@ Z骡用运输机撞MS这手不知道其他人怎么学
 
 鸭子实力大概是天龙八部里鸠摩智的水平，守门员级别，然后比他厉害的都让他遇上了
 
+
+*****
+
+####  cfxiao  
+##### 17439#       发表于 2025-6-6 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890331&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-6 10:49</a>
+
+最后不会逆鸭里面失踪的骡子和鸭子是跑到这边来的吧？</blockquote>
+那拉拉早被酒走了吧。93骡+93鸭偷点MS救个人还是撒撒水的。
+
+*****
+
+####  忘却旋律  
+##### 17440#       发表于 2025-6-6 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891704&amp;ptid=2209276" target="_blank">blood_iron 发表于 2025-6-6 14:16</a>
+
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足 ...</blockquote>
+草 这不是今年TES嘛
+
+那不是等 万一骡子出场后，又要（肯定）稳定尽孝了
+
+
+*****
+
+####  eilot  
+##### 17441#       发表于 2025-6-6 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891704&amp;ptid=2209276" target="_blank">blood_iron 发表于 2025-6-6 14:16</a>
+
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足 ...</blockquote>
+看所羅門最後一場鴨子和夏利亞出擊，每次一發攻擊都有無數機體擊破爆風，BIT或光槍都能同時射穿爆破大量機體
+
+之前領了便當的詩子只是單體攻擊為主，也曾經是極高殺敵數代表之一
+
+GU線的機體殺敵數也算是一個迷?
+
+*****
+
+####  helgarose87  
+##### 17442#       发表于 2025-6-6 15:04
+
+<blockquote>blood_iron 发表于 2025-6-6 14:16
+有一个很难蹦的事实，就是在所有的世界线中，gu的鸭子应该是最弱的。
+
+1，没和拉拉直接相遇，nt能力开发不足 ...</blockquote>
+如果亚赞没死 那么没被骡一儿军训的鸭子是稳死啦
+
+*****
+
+####  洛克萨斯  
+##### 17443#       发表于 2025-6-6 15:07
+
+<img src="https://img.stage1st.com/forum/202506/06/150730quaygky4zgykkfef.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 15:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
