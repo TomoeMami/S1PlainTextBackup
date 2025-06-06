@@ -14004,3 +14004,69 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 不 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸭子就是又菜又爱操作的典范，不让他参战难度比让他上高达还难吧
 
+
+*****
+
+####  rockroxas  
+##### 17402#       发表于 2025-6-6 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890704&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-6 11:32</a>
+
+鸭子就是又菜又爱操作的典范，不让他参战难度比让他上高达还难吧</blockquote>
+所以我说打断腿啊（
+
+上木马不一样是参战
+
+*****
+
+####  syndrome2032  
+##### 17403#       发表于 2025-6-6 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889688&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-6 09:29</a>
+事到如今我觉得他们是极力避免正史出场了，最多擦边碰瓷一下
+
+再说不管骡鸭都不可能扔着gq拉拉在那不管的
+
+不 ...</blockquote>
+79鸭子的故事就是复仇的故事。没有复仇就不会有鸭子这个人。
+
+*****
+
+####  rockroxas  
+##### 17404#       发表于 2025-6-6 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890754&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-6 11:40</a>
+
+79鸭子的故事就是复仇的故事。没有复仇就不会有鸭子这个人。</blockquote>
+所以？qgx是不是79鸭子的故事？复仇呢？
+
+
+*****
+
+####  syndrome2032  
+##### 17405#       发表于 2025-6-6 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890736&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-6 11:37</a>
+所以我说打断腿啊（
+
+上木马不一样是参战</blockquote>
+拉拉做的梦的前提是骡子靠白色机动战士。
+
+所以鸭子改命的前提是无论如何不能让骡子上高达而不是鸭子不参战。
+
+*****
+
+####  syndrome2032  
+##### 17406#       发表于 2025-6-6 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67890759&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-6 11:41</a>
+所以？qgx是不是79鸭子的故事？复仇呢？</blockquote>
+换了个名字回来造卫星炮了，看看有啥算计。
+
+*****
+
+####  洛克萨斯  
+##### 17407#       发表于 2025-6-6 11:44
+
+<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
