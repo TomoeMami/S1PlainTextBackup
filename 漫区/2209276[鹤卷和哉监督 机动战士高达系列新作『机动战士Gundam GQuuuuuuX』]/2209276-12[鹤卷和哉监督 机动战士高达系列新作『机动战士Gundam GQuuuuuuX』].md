@@ -14868,3 +14868,19 @@ https://sneakerbunko.jp/news/title/entry-12942.html
 
 让富野作品再次伟大！<img src="https://static.stage1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 17471#       发表于 2025-6-6 19:02
+
+<img src="https://img.stage1st.com/forum/202506/06/200238sv8tivtju8igs1se.jpg" referrerpolicy="no-referrer">
+
+<strong>Gsp7TRxawAACPLw.jpg</strong> (20.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 19:02 上传
+
+KAPPA PSYGOMU
+
