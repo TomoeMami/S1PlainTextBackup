@@ -7363,3 +7363,16 @@ solo一把人偶妹，出门摸到铃铛，第二夜打boss掉光环。。然后
 
 昨晚野排3弓碰上虫群爽局过了蓝色大鲸鱼，随便逛街就15级了根本不需要运营，也没捡到什么神装，闭着眼睛射箭就把夜王杀了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 733#       发表于 2025-6-6 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888848&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-6 00:52</a>
+
+不过我其实回看了一下小石的访谈，倒也不是洗，他当初强调的是做一款能够让角色快速成型的合作类短rpg游 ...</blockquote>
+我觉得其角色设计很有意思，几乎没有只能一个套路的角色，人物都有不同的玩法体系和重点。
+
+不过在随机性、构筑（说实话我觉得构筑给的太吝啬且次数太少）和辅助机制方面，可以看得出经验不是很充足。虽然事件地图和地形不错，应该一开始就有这个机制，而且多塞几个，这样地图就显得有“大随机”感了。
+

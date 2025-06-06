@@ -115,3 +115,32 @@
 
 好日子在後頭
 
+
+*****
+
+####  堀内爱里衣  
+##### 40983#       发表于 2025-6-6 12:00
+
+       <strong>【全熟】聊不GOU！Kizuna Radio！（嘉宾：小日向美香、高尾奏音）</strong>
+ <blockquote><img src="https://img.stage1st.com/forum/202506/06/115857ok22264p3hf3mfmx.jpg" referrerpolicy="no-referrer">
+[https://radiko.jp/share/?sid=LFR ... 3000&amp;noreload=1](https://radiko.jp/share/?sid=LFR&amp;t=20250428203000&amp;noreload=1)
+
+話しTARINAI！キズナラジオ! （嘉宾：小日向美香、高尾奏音）
+
+2025年4月28日 20:30～21:00
+
+======================
+
+时轴：海狸，aki
+
+翻译：海狸，aki
+
+校对：鸟厨
+
+======================
+
+虽然@枭鸢QWQ  老师已经烤过了，但其实轴翻组员们也很早就完成了，同样是因为缺校对的原因卡了整整一个月（悲）
+
+所以考虑到组员们的辛苦付出还是决定发出来了，还请谅解！</blockquote>
+       [https://www.bilibili.com/video/BV1jxTbzCEZW/](https://www.bilibili.com/video/BV1jxTbzCEZW/)
+
