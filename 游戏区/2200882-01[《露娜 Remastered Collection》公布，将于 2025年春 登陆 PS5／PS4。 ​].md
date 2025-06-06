@@ -1014,3 +1014,15 @@ Steam上360元后面打折都要掂量一下<img src="https://static.stage1st.co
 
 当年号称“感动100万人的RPG”，不知虫豸版能卖多少份。
 
+
+*****
+
+####  牧月萌  
+##### 100#       发表于 2025-6-7 00:09
+
+一代是这样的，错过的东西就真错过了，最坑的就是开头借拉姆斯30块和船上的肥皂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+PSP那个新版本也就那么回事，战斗除了加了个气槽放大招外也不比原版好玩多少，迷宫路窄躲怪反而还更费劲了
+
+我基本是为了二代买这游戏的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
