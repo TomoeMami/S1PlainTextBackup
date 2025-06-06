@@ -119,3 +119,34 @@
 此时应该来一张小图庆祝s1复活 （还是红卡好</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想说点啥又不知道说啥好....还是就一张纯表情吧
 
+
+*****
+
+####  khxooo  
+##### 16864#       发表于 2025-6-5 19:35
+
+呼符来了个4星龙娘，仿佛听见卡池在嘲讽：嘿，不是喜欢龙娘嘛，给你咯<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 16865#       发表于 2025-6-6 08:40
+
+这果子龙背景看着眼熟，仔细一想这不狂龙贝勒吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 16866#       发表于 2025-6-6 10:02
+
+大保底被果子龙带走了，完全忘了紧接着的周年庆和泳装，只能说谨防抽卡上头<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 16867#       发表于 2025-6-6 20:52
+
+<blockquote>白金口袋 发表于 2025-6-6 10:02
+大保底被果子龙带走了，完全忘了紧接着的周年庆和泳装，只能说谨防抽卡上头 ...</blockquote>
+这是yls的阴谋，果子龙出来哪个把持得住
+
