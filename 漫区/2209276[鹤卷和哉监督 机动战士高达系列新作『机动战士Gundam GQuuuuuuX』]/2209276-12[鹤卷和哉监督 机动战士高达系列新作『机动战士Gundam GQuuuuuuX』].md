@@ -15801,3 +15801,24 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  ryanghj  
+##### 17550#       发表于 2025-6-7 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897992&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-6-7 17:51</a>
+想起一茬来
+
+拉拉在79年被骡子捅死的日期是在24号所罗门之后，和30号solar ray之前中间的某一天（有说28的， ...</blockquote>
+我也觉得没有时间穿越，艾尔美斯是同时间点穿越到了gq同位置，只不过正史拉拉死前看到了未来
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  YU_JI  
+##### 17551#       发表于 2025-6-7 18:10
+
+这片想平稳落地真不难，最终幕有整整三集时间呢
+

@@ -1708,3 +1708,22 @@ ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草
 今年不是轮到bg了吗 那个男idol很久没出来了</blockquote>
 今年是轮到百合了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1008#       发表于 2025-6-7 18:05
+
+众所周知 q娃编剧阵容非常考p 监督 系列构成的人脉
+这几年这帮女p们都是废物 今年加藤和金铅球都是外人 也会带自己的关系网 像绫奈老厕妹是加藤关系户 金杉弘子 稻叶央明是今大妈的关系户
+大河内之前没有任何的东映交情 真论关系加藤和大河内隔着日升
+不济就是大河内已经预定了明年的女人系列构成 来实习了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十万年魂环  
+##### 1009#       发表于 2025-6-7 18:11
+
+大河内或许真的就来客串一集呢，怎么就安排明年的女人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
