@@ -1806,3 +1806,11 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 这一闪也太写实了吧，为啥要这么弄，看不太懂，龙信2缺钱也不是这样的啊
 
+
+*****
+
+####  寇马可  
+##### 192#       发表于 2025-6-7 20:32
+
+一闪作为鬼武者核心，不会藏着掖着的。所以不要怀疑，那软绵绵的一刀真的是一闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

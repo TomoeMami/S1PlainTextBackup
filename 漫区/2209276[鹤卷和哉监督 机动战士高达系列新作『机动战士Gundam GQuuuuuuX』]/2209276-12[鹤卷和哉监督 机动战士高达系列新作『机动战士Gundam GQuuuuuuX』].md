@@ -16196,3 +16196,37 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 79鸭和79骡最大的差距其实是在杀意上。让79骡选114514次大概也会选先捅死拉拉再后悔，而79鸭在鸡夸里已经认证过自己绝对不会选择劈死亲妹妹(然而这个亲妹妹是很想让哥哥死的，所以非常地狱笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17563#       发表于 2025-6-7 20:36
+
+ 本帖最后由 qixinno2 于 2025-6-7 20:37 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">79TV 表达错误了 是弹开 反正不是鸭子自己停的 弹开后才看清楚是鸭妹
+
+<img src="https://img.stage1st.com/forum/202506/07/203335zx0dzp3xsi680z53.png" referrerpolicy="no-referrer">
+
+<strong>UJ}}W~DAS[2U[V]1%KI0}DH.png</strong> (103.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:33 上传
+
+<img src="https://img.stage1st.com/forum/202506/07/203405tjryrarmmbihivrr.png" referrerpolicy="no-referrer">
+
+<strong>6T7QP(Y%G6I~2B75}C9K7%2.png</strong> (135.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:34 上传
+
+<img src="https://img.stage1st.com/forum/202506/07/203513fzzmx0tmzbt072tt.png" referrerpolicy="no-referrer">
+
+<strong>~DP(BO051HPLJR@S{UVMR5O.png</strong> (130.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:35 上传
+
