@@ -1771,3 +1771,22 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  葵  
+##### 188#       发表于 2025-6-7 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442951&amp;ptid=2210366" target="_blank">东方定助 发表于 2025-2-16 22:20</a>
+
+感觉不如仁王......怪设</blockquote>
+那不是肯定的，仁王人设和怪设算是找到了真实系和日式魔幻之间非常完美的一个平衡点了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  葵  
+##### 189#       发表于 2025-6-7 16:24
+
+这新pv一出，DLC都想好了，佐佐木小次郎岩流传呗，反正他也有鬼手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
