@@ -16186,3 +16186,13 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 反观79骡的NT能力表现就很朴素 读指令和锁头而已 然而后面说NT能力下降只能靠技术补足这部分显得更变态就是了
 
+
+*****
+
+####  秋月孝三  
+##### 17562#       发表于 2025-6-7 20:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么连拉拉发功定住都出来了？害得我重新看了下剧场版3和GFF
+
+79鸭和79骡最大的差距其实是在杀意上。让79骡选114514次大概也会选先捅死拉拉再后悔，而79鸭在鸡夸里已经认证过自己绝对不会选择劈死亲妹妹(然而这个亲妹妹是很想让哥哥死的，所以非常地狱笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
