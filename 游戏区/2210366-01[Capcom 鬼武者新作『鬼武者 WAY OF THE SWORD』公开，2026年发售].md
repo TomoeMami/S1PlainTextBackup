@@ -1638,3 +1638,13 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 跟忍组是卧龙凤雏了
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 175#       发表于 2025-6-7 08:30
+
+这小次郎外形一眼看上去像井上雄彦浪客行里那个
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
