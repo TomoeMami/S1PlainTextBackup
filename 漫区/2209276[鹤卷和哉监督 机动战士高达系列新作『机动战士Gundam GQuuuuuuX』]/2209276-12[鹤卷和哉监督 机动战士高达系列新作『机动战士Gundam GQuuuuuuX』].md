@@ -15791,3 +15791,13 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 并且我认为GQX世界线与0079世界线应该是完全平行的，所以不存在所谓93骡鸭穿越回来的戏码
 
+
+*****
+
+####  Toby_dak  
+##### 17549#       发表于 2025-6-7 17:59
+
+既然麻球最后回不了SIDE6日常，要不直接润木星，路上偶遇全控<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
