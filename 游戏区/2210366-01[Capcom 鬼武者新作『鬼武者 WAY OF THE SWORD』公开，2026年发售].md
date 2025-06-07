@@ -1753,3 +1753,11 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 另外，武藏的配音是谁？听起来好像是阿部宽？
 
+
+*****
+
+####  Cranberries  
+##### 186#       发表于 2025-6-7 15:30
+
+这个预告比上个预告观感好点
+
