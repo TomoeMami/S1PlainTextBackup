@@ -1824,3 +1824,13 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Eadric  
+##### 194#       发表于 2025-6-8 00:14
+
+这画面看着比仁王的舒服多了，虽然类型差不多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
