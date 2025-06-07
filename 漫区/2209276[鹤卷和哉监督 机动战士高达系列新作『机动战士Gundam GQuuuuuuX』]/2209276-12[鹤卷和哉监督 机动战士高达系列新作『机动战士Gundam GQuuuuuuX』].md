@@ -15724,3 +15724,15 @@ icanbefridaybyday只是把抢男人转化成机器人战斗的意象而已，不
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  mumubear  
+##### 17544#       发表于 2025-6-7 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897083&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-6-7 13:50</a>
+修斯的定位远比两位女主尴尬多了只能说
+
+两位女主至少是对照组以及有两条主线（kirakira和吉翁内战），在得 ...</blockquote>
+突击吉翁，救拉拉
+
