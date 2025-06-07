@@ -1697,3 +1697,14 @@ ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草
 今年不是轮到bg了吗 那个男idol很久没出来了</blockquote>
 去年还不够bg吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1007#       发表于 2025-6-7 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896375&amp;ptid=2208663" target="_blank">199april 发表于 2025-6-7 11:25</a>
+
+今年不是轮到bg了吗 那个男idol很久没出来了</blockquote>
+今年是轮到百合了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

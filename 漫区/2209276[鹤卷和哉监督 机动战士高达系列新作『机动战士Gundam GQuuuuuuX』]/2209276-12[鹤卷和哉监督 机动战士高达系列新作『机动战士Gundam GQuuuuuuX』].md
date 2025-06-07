@@ -15355,3 +15355,14 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 虐?到现在为止鹤卷对番茄比哪些前辈主角不算好吗，父母还只是社死，如果他爸有一定人脉也许只是不能高升吧 ...</blockquote>
 主角失格是最大的虐了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 17512#       发表于 2025-6-7 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896708&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-6-7 12:23</a>
+
+主角失格是最大的虐了</blockquote>
+主要是这片又还不是群像剧路线，另外番茄性格叠加的元素太多，有uc纪元里人物的叛逆心理与新人类的焦躁，现代二次元女性人物正面特质加的又不多，又没有一个好的上司or搭档or cp(那两位各方面其实都差一点意思），于是整个人物形象就很难撑起跨克斯的主角的感觉
+
