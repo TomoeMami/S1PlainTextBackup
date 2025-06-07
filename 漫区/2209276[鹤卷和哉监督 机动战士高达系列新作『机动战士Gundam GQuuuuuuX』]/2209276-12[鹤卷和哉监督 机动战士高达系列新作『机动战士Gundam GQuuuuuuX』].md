@@ -16335,3 +16335,48 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 2025-6-7 20:52 上传
 
+
+*****
+
+####  rockroxas  
+##### 17570#       发表于 2025-6-7 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898708&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-7 20:25</a>
+
+怎么连拉拉发功定住都出来了？害得我重新看了下剧场版3和GFF
+
+79鸭和79骡最大的差距其实是在杀意上。让79骡 ...</blockquote>
+鸡夸里过电那个拉拉要不实锤鸭子自己认不出妹妹要不实锤鸭子其实会杀亲妹妹
+
+93里他知道妹妹在地球会被砸死但还是扔了，失败才说至少不用砸死妹妹
+
+鸭妹79想杀鸭子不也是因为他投敌了
+
+
+*****
+
+####  sliver1997  
+##### 17571#       发表于 2025-6-7 21:03
+
+做 HG 红高达有感——希望山下大师以后别画高达机设了，做得人脑壳疼
+
+*****
+
+####  秋月孝三  
+##### 17572#       发表于 2025-6-7 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898822&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-7 20:53</a>
+
+看了下剧场版的 表现完全不一样了阿 以后出的为准就是鸭子自己停的 但要是像我只看过TV心里一直以为是拉 ...</blockquote>
+TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是塞拉在TV开的是G战机，在剧场版开的是核心推进机，而G战机的装甲是强于核心推进机的，所以剧场版鸭子像TV版一样砍上去塞拉就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17573#       发表于 2025-6-7 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898866&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-7 21:03</a>
+
+TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是塞拉在TV开的是G战机，在剧场版开的是核心推进 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但完全不影响鸭子连自己妹妹都感应不出来的幽默 79年NT还是太弱了 要是Z和ZZ肯定能发功弹开的
+
