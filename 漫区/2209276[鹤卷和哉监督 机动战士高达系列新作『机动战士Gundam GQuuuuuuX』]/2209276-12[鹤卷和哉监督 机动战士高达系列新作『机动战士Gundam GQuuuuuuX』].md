@@ -16380,3 +16380,59 @@ TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是
 TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是塞拉在TV开的是G战机，在剧场版开的是核心推进 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但完全不影响鸭子连自己妹妹都感应不出来的幽默 79年NT还是太弱了 要是Z和ZZ肯定能发功弹开的
 
+
+*****
+
+####  永远的春天  
+##### 17574#       发表于 2025-6-7 21:16
+
+<blockquote>qixinno2 发表于 2025-6-7 20:12
+感觉卡缪纯技术最后也不过跟鸭子差不太多 但Z性能比百式强 NT能力更是强的能放40米大光剑 NT护罩挡射击之类 ...</blockquote>
+新的f90加的补丁，民用生物电脑可以窃听联邦军的军用电脑网络，直接监听镭射传输
+
+*****
+
+####  白色池塘  
+##### 17575#       发表于 2025-6-7 21:16
+
+突然想起个事，前几回里安琪跟夏利亚接头的时候，提到她在GQX上放了遥控炸蛋。假如她说的是实话，那这炸蛋目前还在GQX里面？还是在被掳获到绿木马时拆下来了？觉得这块是个能用的伏笔
+
+*****
+
+####  七里由馬  
+##### 17576#       发表于 2025-6-7 21:17
+
+我现在比较好奇wb队那帮逼现在在干嘛，按原作骡子那逼性格上不了高达也会整别的大新闻才对，更何况还有开这个坏逼。
+
+
+*****
+
+####  qixinno2  
+##### 17577#       发表于 2025-6-7 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898925&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-6-7 21:16</a>
+
+新的f90加的补丁，民用生物电脑可以窃听联邦军的军用电脑网络，直接监听镭射传输 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉越整越扯淡 虽然原来就很扯了就是了
+
+*****
+
+####  永远的春天  
+##### 17578#       发表于 2025-6-7 21:23
+
+<blockquote>qixinno2 发表于 2025-6-7 21:20
+感觉越整越扯淡 虽然原来就很扯了就是了</blockquote>
+不过看起来就算是民用版也不便宜。这个补丁是把独角兽之前和独角兽之后的f91缝起来的
+
+*****
+
+####  pokemon最爱  
+##### 17579#       发表于 2025-6-7 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898884&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-7 21:07</a>
+
+但完全不影响鸭子连自己妹妹都感应不出来的幽默 79年NT还是太弱了 要是Z和ZZ肯定能发功弹开的 ...</blockquote>
+79年的塞可谬性能限制了NT们的发挥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+782要是有个Z高同款生物传感器可能骡子在阿巴瓦空就是拿着40m长大光剑乱挥了（
+
