@@ -16617,3 +16617,14 @@ cca已经出场过了吧，鸭子计划炸所罗门就是。
 下面就该推陨石的绿光了。
 至于陨石当然是停在古拉纳达头顶上的所罗门。
 
+
+*****
+
+####  Sliurus  
+##### 17597#       发表于 2025-6-8 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67899256&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-6-7 22:30</a>
+
+有没有可能千万个世界被鸡一样宰的是真夏亚</blockquote>
+鹤卷都用密会的设定了，你觉得会认可gto版本吗
+
