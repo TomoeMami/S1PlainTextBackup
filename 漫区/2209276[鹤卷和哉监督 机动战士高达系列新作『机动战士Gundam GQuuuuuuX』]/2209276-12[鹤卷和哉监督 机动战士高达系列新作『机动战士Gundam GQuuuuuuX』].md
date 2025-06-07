@@ -16480,3 +16480,22 @@ PS上的新机战更狠，投降主义鸭成了外星人的带路党，带领整
 突然想起个事，前几回里安琪跟夏利亚接头的时候，提到她在GQX上放了遥控炸蛋。假如她说的是实话，那这炸蛋 ...</blockquote>
 你的意思是夏利亚回收GQX之后放着可能存在的炸弹不管就让整备员去修理吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七里由馬  
+##### 17584#       发表于 2025-6-7 21:46
+
+骡子那是到93前都没开过塞克缪机吧。。。就硬感应硬锁头硬闪避。。。
+
+
+*****
+
+####  rockroxas  
+##### 17585#       发表于 2025-6-7 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67899036&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-7 21:43</a>
+
+你的意思是夏利亚回收GQX之后放着可能存在的炸弹不管就让整备员去修理吗 ...</blockquote>
+有可能留着改造成自己控制的到时作为暗杀谁谁的必杀（
+
