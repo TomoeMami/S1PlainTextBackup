@@ -15701,3 +15701,26 @@ gqux拉拉明显是不要去参和这档子的事比较好。
 
 2025-6-7 16:24 上传
 
+
+*****
+
+####  aptx8285144  
+##### 17542#       发表于 2025-6-7 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897628&amp;ptid=2209276" target="_blank">lickey 发表于 2025-6-7 16:21</a>
+
+就结局来说无论是玛秋还是尼娅安，在经历了这么一堆破事之后能老老实实回归日常已经几乎毫无可能，盲猜一个 ...</blockquote>
+那得90年代旧eva的秃子才能写出这样的三死二的结局<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 17543#       发表于 2025-6-7 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897628&amp;ptid=2209276" target="_blank">lickey 发表于 2025-6-7 16:21</a>
+就结局来说无论是玛秋还是尼娅安，在经历了这么一堆破事之后能老老实实回归日常已经几乎毫无可能，盲猜一个 ...</blockquote>
+icanbefridaybyday只是把抢男人转化成机器人战斗的意象而已，不是真的死了人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
