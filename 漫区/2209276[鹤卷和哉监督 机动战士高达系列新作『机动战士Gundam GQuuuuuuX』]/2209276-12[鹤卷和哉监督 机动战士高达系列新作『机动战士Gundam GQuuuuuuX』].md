@@ -15473,3 +15473,49 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 你说这种形式好不好就因人而异了
 
+
+*****
+
+####  ryanghj  
+##### 17524#       发表于 2025-6-7 13:57
+
+短视频动画，其实都是靠小片段塑造人物，不会演长时间的复杂的对手戏
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ヒトニナル  
+##### 17525#       发表于 2025-6-7 13:57
+
+修司目前的作用就是让玛秋从想去地球变成一定要去地球，仅此而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第九话玛秋看到追来的木马一脸吃屎，然后在禁闭室里的眼神一度让我觉得精神小妹要掀桌了，结果下集预告被绿叔叔壁咚又脸红，我是真不知道她到底想怎样
+
+*****
+
+####  ryanghj  
+##### 17526#       发表于 2025-6-7 13:59
+
+ 本帖最后由 ryanghj 于 2025-6-7 14:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897101&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-7 13:57</a>
+修司目前的作用就是让玛秋从想去地球变成一定要去地球，仅此而已
+第九话玛秋看到追来的木马一脸吃屎，然后 ...</blockquote>
+真不好说脸红是怎么回事，说不定是绿叔叔说你喜欢修司吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+修司是玛秋认定的归身之所，显然玛秋对修司的执念并不想很多人以为的那样只是玛秋追寻自由的表象
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  aptx8285144  
+##### 17527#       发表于 2025-6-7 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897100&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-7 13:57</a>
+
+短视频动画，其实都是靠小片段塑造人物，不会演长时间的复杂的对手戏
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+看到”短视频动画“这五个字，我还是忍不住想起了莉可丽丝动画这陀<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
