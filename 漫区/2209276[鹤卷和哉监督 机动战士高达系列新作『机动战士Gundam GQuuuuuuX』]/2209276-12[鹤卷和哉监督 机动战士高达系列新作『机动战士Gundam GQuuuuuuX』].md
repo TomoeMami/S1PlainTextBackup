@@ -15384,3 +15384,13 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 要说格格不入，这话番茄的各种小表情包太多了，搞笑是很搞笑，可爱也还行，但是剧情的严肃或者说妓  院的悲剧感也被冲淡了不少<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 17515#       发表于 2025-6-7 13:02
+
+麻球搅局反过来修正大人们，然后估计就要开始清算之前说麻球要挨修正要成长的人了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+“摆着一副傲慢爹味的老古董们对年轻人指指点点，终于吃瘪了吧”之类的（
+
