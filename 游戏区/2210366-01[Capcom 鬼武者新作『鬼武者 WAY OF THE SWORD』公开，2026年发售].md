@@ -1660,3 +1660,11 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 —— 来自 鹅球 v3.5.99</blockquote>
 我也觉得像
 
+
+*****
+
+####  nage560  
+##### 177#       发表于 2025-6-7 10:32
+
+感觉是要改成偏写实类了，这佐佐木一出来，浪客行味道的确浓。
+
