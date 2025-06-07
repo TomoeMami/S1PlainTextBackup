@@ -150,3 +150,41 @@
 大保底被果子龙带走了，完全忘了紧接着的周年庆和泳装，只能说谨防抽卡上头 ...</blockquote>
 这是yls的阴谋，果子龙出来哪个把持得住
 
+
+*****
+
+####  森兰丸  
+##### 16868#       发表于 2025-6-7 07:13
+
+听了果子龙绊5的语音是一点感想也没有.....这卖的ML是越来越随便了
+
+上个活动还是黑幕BOSS结果这次活动就直接落地成娇了....连傲的过程都省了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过想想上个刚出的莉莉丝好像也是这样就释怀了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 16869#       发表于 2025-6-7 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67895511&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-7 07:13</a>
+
+听了果子龙绊5的语音是一点感想也没有.....这卖的ML是越来越随便了
+
+上个活动还是黑幕BOSS结果这次活动就直 ...</blockquote>
+按照对话，这个果子龙可是攻略完成后提前到迦勒底的，羁绊不就是傲娇将隐藏起来的娇露出来嘛<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16870#       发表于 2025-6-7 11:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">说起来莉莉丝是不是马上要妇科了？ 毕竟冠位狂“马上”要开了
+
+*****
+
+####  DARKGRAY  
+##### 16871#       发表于 2025-6-7 12:03
+
+傲变娇就是这个活动负责的东西吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
