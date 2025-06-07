@@ -15519,3 +15519,29 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 看到”短视频动画“这五个字，我还是忍不住想起了莉可丽丝动画这陀<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 17528#       发表于 2025-6-7 14:15
+
+ 本帖最后由 0aleph37 于 2025-6-7 14:18 编辑 
+
+又是被绿叔叔逮捕，又是拉拉一档子事，也没体验出地球的1G和殖民卫星有多大区别，麻球没兴致不是很正常。
+
+修司对于麻球到底意味着什么，有多重要，无非是一个回溯性的问题，只有到了结局才能下定论。但即使最后是一路追爱了，也没必要把麻球的所有心理活动都归结于修司，那只会留下一个空洞的角色，而无视了途中内在的流露。
+
+
+*****
+
+####  ryanghj  
+##### 17529#       发表于 2025-6-7 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897163&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-6-7 14:15</a>
+又是被绿叔叔逮捕，又是拉拉一档子事，也没体验出地球的1G和殖民卫星有多大区别，麻球没兴致不是很正常。
+
+ ...</blockquote>
+第九集的拉拉你觉得是否空洞？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -1684,3 +1684,13 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 读作姆萨西，写作泡狐龙<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HellMaster  
+##### 180#       发表于 2025-6-7 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896270&amp;ptid=2210366" target="_blank">zqqwe 发表于 2025-6-7 11:04</a>
+女主这长脸神似牙狼第一部的邪美法师，不是传统美少女了</blockquote>
+可能不是女主角，像2代一样是老娘呢？
+
