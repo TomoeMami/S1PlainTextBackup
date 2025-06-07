@@ -16458,3 +16458,25 @@ TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是
 782要是有个Z高同款生物传感器可能骡子在阿巴瓦空就是拿着40m长大光剑 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那真的可以一个人结束战争了 我记得好几次限制骡子的都是弹药不足之类的问题 鸭子真要活不到后面了
 
+
+*****
+
+####  猪突猛进R  
+##### 17582#       发表于 2025-6-7 21:42
+
+机战30骡都能开海牛了，鸭还是只能开那破百式。
+
+而且这作设定鸭是丢完大石头后才死皮赖脸加入的，导致是人是鬼都可以站在道德高地上对鸭指指点点。
+
+PS上的新机战更狠，投降主义鸭成了外星人的带路党，带领整个新吉翁一起做球奸<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 17583#       发表于 2025-6-7 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898927&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-6-7 21:16</a>
+
+突然想起个事，前几回里安琪跟夏利亚接头的时候，提到她在GQX上放了遥控炸蛋。假如她说的是实话，那这炸蛋 ...</blockquote>
+你的意思是夏利亚回收GQX之后放着可能存在的炸弹不管就让整备员去修理吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
