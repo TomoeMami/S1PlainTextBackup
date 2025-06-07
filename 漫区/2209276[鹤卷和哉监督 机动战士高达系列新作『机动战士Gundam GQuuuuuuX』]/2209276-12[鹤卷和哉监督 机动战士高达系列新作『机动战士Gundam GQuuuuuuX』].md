@@ -16230,3 +16230,66 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 2025-6-7 20:35 上传
 
+
+*****
+
+####  秋月孝三  
+##### 17564#       发表于 2025-6-7 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898750&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-7 20:36</a>
+
+79TV 表达错误了 是弹开 反正不是鸭子自己停的 弹开后才看清楚是鸭妹</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/07/204213oz0umhzmhvw5fdjx.jpg" referrerpolicy="no-referrer">
+
+<strong>009_19.jpg</strong> (226.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:42 上传
+
+然而还真是鸭子自己停的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17565#       发表于 2025-6-7 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898771&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-7 20:43</a>
+
+然而还真是鸭子自己停的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是我的问题 反正TV给人的感觉就是被拉拉弹开了后鸭子看到鸭妹愣神了一下被骡子断手了
+
+*****
+
+####  岸浪白野  
+##### 17566#       发表于 2025-6-7 20:46
+
+[X 上的 山下いくと@エヴァンゲリオンANIMA全5巻：“陶器のザクレロの口の中で蚊取り線香焚きたい イラストはアニメとは関係ありません。 [url]https://t.co/hcgCn5b7KN](https://x.com/ikuto_yamashita/status/1931322840751730940)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/07/204636jpmfbnrnhflnzzs2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202506/07/204615t0p3m35dmma253z9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 20:46 上传
+
+*****
+
+####  秋月孝三  
+##### 17567#       发表于 2025-6-7 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898787&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-7 20:45</a>
+
+那是我的问题 反正TV给人的感觉就是被拉拉弹开了后鸭子看到鸭妹愣神了一下被骡子断手了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老TV特有的神秘光污染特效
+
