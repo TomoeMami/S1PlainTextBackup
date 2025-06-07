@@ -1790,3 +1790,11 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 这新pv一出，DLC都想好了，佐佐木小次郎岩流传呗，反正他也有鬼手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ermne  
+##### 190#       发表于 2025-6-7 17:18
+
+怎么哪都有仁批，仁王已经成你们的无暇信仰了，哪方面都想争个第一终结天下，仁王那破怪设也能吹起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
