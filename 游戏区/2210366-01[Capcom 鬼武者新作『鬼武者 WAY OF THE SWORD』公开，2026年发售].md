@@ -1628,3 +1628,13 @@ Fami 通《鬼武者 Way of the Sword》访谈：体验武藏流战斗
 
 PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
+
+*****
+
+####  天神十三煞  
+##### 174#       发表于 2025-6-7 08:19
+
+鬼武者新作这配色
+
+跟忍组是卧龙凤雏了
+
