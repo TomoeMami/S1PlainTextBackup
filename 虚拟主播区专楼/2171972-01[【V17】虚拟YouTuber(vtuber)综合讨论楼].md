@@ -63,3 +63,15 @@ syl
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  fshzx  
+##### 1191#       发表于 2025-6-7 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67895319&amp;ptid=2171972" target="_blank">usodakedo 发表于 2025-6-7 05:06</a>
+有没有这段时间专打黑夜君临野排的管人？
+
+—— 来自 S1Fun</blockquote>
+风乐奏斗和榊奈司，二人固定，再随机组队一个散人，前天12小时耐久，昨晚再打6小时，已通关
+

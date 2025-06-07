@@ -221,3 +221,15 @@
 
        [https://x.com/bang_dream_info/status/1930806852146897162](https://x.com/bang_dream_info/status/1930806852146897162)
 
+
+*****
+
+####  南宮凝香  
+##### 40989#       发表于 2025-6-7 14:50
+
+<blockquote>仟音一心 发表于 2025-6-6 17:11
+后续。</blockquote>
+笑點是這篇的作者竟然是打ANSY
+
+我只能說WSD 的Soulmate 遍地都是
+
