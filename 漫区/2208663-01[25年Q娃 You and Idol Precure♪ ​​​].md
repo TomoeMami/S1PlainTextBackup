@@ -1657,3 +1657,25 @@ ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草
 
 —— 来自 HUAWEI CLS-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  咲良うた  
+##### 1004#       发表于 2025-6-7 11:10
+
+第18話　キミは誰！？ハートズキューンされちゃった♡
+
+脚本：加藤陽一
+
+演出：中島啓太郎
+
+作画監督：竹森由加、赤田信人、ノエル・アンニョヌエボ
+
+美術：戸杉奈津子
+
+突如現れた謎の二人組・キュアズキューンとキュアキッス。そんなキュアズキューンの夢を見て目を覚ますうた（CV.松岡美里）。テレビや学校はすでにキュアズキューンとキュアキッスの話題でもちきりで、うたもずっとキュアズキューンのことが頭から離れず、授業も手につかない。昼休みになり、心配したなな（CV.髙橋ミナミ）がこころ（CV.高森奈津美）のところに連れて行くと、こころはひと目でうたがキュアズキューンのファンになったことを見抜き─。
+<img src="https://files.catbox.moe/32xsh6.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/s0lpfb.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4stf0x.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/tt1dpb.jpg" referrerpolicy="no-referrer">
+

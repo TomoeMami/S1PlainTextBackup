@@ -15304,3 +15304,11 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ヒトニナル  
+##### 17506#       发表于 2025-6-7 11:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">因为修司一直在注视着彼岸的kirakira所以他的视力有问题，这个解释如何
+
