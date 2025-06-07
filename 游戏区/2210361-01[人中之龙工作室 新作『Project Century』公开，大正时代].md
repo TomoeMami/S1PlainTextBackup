@@ -571,3 +571,21 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 这游戏不暴雷的概率大概只有5%吧
 
+
+*****
+
+####  outerish  
+##### 62#       发表于 2025-6-7 13:21
+
+标题快切看到这个
+
+<img src="https://img.stage1st.com/forum/202506/07/131847ltrlhjwjf3lfparr.png" referrerpolicy="no-referrer">
+
+<strong>PXvcFNw.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-7 13:18 上传
+
+1915，1929，1943，考虑到之前暂名是project century，故事会不会要横跨一个世纪？
+
