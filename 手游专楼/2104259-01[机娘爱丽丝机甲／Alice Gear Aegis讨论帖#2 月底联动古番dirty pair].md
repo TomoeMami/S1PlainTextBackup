@@ -164,3 +164,13 @@ FA未罗一开始是讲专用战斗服复杂曲折的开发设定，结果最后
 
 <img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">剧情里怎么还有长发阿唯，ST预定嘛
 
+
+*****
+
+####  冰风血羽  
+##### 1480#       发表于 2025-6-7 19:41
+
+早上起来还没梳妆打扮吧
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
