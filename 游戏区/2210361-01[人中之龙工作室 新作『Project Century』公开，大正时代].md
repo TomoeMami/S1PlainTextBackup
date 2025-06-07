@@ -589,3 +589,23 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 1915，1929，1943，考虑到之前暂名是project century，故事会不会要横跨一个世纪？
 
+
+*****
+
+####  日日日日日野  
+##### 63#       发表于 2025-6-7 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896999&amp;ptid=2210361" target="_blank">outerish 发表于 2025-6-7 13:21</a>
+
+标题快切看到这个
+
+1915，1929，1943，考虑到之前暂名是project century，故事会不会要横跨一个世纪？</blockquote>
+是的，基本上是个跨越百年的故事了，但是以横导及其团队一贯写故事的样子，很难不让人担心
+
+*****
+
+####  TTAA  
+##### 64#       发表于 2025-6-7 13:33
+
+做成打鬼子才有戏，支线支援日共TG，反对侵华战争。不过以前的如龙系列本来在国内就和禁了差不多
+
