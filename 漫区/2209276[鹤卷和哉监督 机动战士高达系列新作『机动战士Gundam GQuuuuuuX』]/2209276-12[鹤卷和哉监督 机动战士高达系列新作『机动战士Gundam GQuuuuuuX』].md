@@ -16436,3 +16436,25 @@ TV版是鸭子砍到了一点所以迸了火花。这里作画改变的原因是
 
 782要是有个Z高同款生物传感器可能骡子在阿巴瓦空就是拿着40m长大光剑乱挥了（
 
+
+*****
+
+####  ティグル  
+##### 17580#       发表于 2025-6-7 21:25
+
+乳鸭最厉害的肯定还是srw啊
+
+基野算是给面子了，srw里只有F，64，impact，GC这几作里面给了他NT9，Z1和MX更是丧心病狂的NT7
+
+*****
+
+####  qixinno2  
+##### 17581#       发表于 2025-6-7 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67898943&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-7 21:23</a>
+
+79年的塞可谬性能限制了NT们的发挥
+
+782要是有个Z高同款生物传感器可能骡子在阿巴瓦空就是拿着40m长大光剑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那真的可以一个人结束战争了 我记得好几次限制骡子的都是弹药不足之类的问题 鸭子真要活不到后面了
+
