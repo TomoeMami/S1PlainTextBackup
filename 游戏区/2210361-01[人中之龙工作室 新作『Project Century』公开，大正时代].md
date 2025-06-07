@@ -609,3 +609,16 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 做成打鬼子才有戏，支线支援日共TG，反对侵华战争。不过以前的如龙系列本来在国内就和禁了差不多
 
+
+*****
+
+####  outerish  
+##### 65#       发表于 2025-6-7 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897029&amp;ptid=2210361" target="_blank">日日日日日野 发表于 2025-6-7 13:32</a>
+
+是的，基本上是个跨越百年的故事了，但是以横导及其团队一贯写故事的样子，很难不让人担心 ...</blockquote>
+第一个预告是1915和这次1943做了两个时代的场景，后面还有60和80？弄那么多素材，野心还蛮大的
+
+最后会接上如龙0的时代吧
+
