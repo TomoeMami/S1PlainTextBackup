@@ -15312,3 +15312,13 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 <img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">因为修司一直在注视着彼岸的kirakira所以他的视力有问题，这个解释如何
 
+
+*****
+
+####  ryanghj  
+##### 17507#       发表于 2025-6-7 11:24
+
+说白了这种设定现在看来对剧情产生不了影响，就像夏利亚的义眼一样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
