@@ -504,3 +504,11 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 而且很难不让人往“反战败”方面去想
 
+
+*****
+
+####  汪达  
+##### 54#       发表于 2025-6-7 08:59
+
+就横导那个喝花酒喝美了在剧本里疯狂给老鸨龟公洗白，给反涩涩游行组织狠狠泼脏水的尿路，这要真是现实背景又要搞什么私货不敢想<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
