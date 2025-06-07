@@ -15553,3 +15553,57 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 电影的优势是它一口气从头播到尾，观众在对过程的不满发酵出强烈的情绪之前就会先看到结末，只要落实的点还不错，也就更容易和过程中的低谷和解，这也是为什么补番观感往往会比追番观感更好。
 
+
+*****
+
+####  0aleph37  
+##### 17531#       发表于 2025-6-7 15:06
+
+<blockquote>ryanghj 发表于 2025-6-7 14:22
+第九集的拉拉你觉得是否空洞？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+你觉得第九集的拉拉是正例还是反例？
+
+*****
+
+####  久井路路  
+##### 17532#       发表于 2025-6-7 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897187&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-7 14:22</a>
+
+第九集的拉拉你觉得是否空洞？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+其实还是夸克斯那一套补丁式角色塑造，主要作用是作为夏泷蔷薇的同位体把骡鸭拉的基础设定讲给麻球听。
+
+但由于她叫拉拉辛，场外补丁多到数之不尽，所以可以轻易补完一套完整的被平行世界的恋情迷住的苦情公主形象……虽然结果来说更被当作话题的还是疑似变成骡鸭存活RTA玩家的正史拉拉就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 17533#       发表于 2025-6-7 15:07
+
+ 本帖最后由 ryanghj 于 2025-6-7 15:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897336&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-6-7 15:06</a>
+你觉得第九集的拉拉是正例还是反例？</blockquote>
+和魔女一样是对玛秋追逐修司的行为继续推波助澜的人物
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ryanghj  
+##### 17534#       发表于 2025-6-7 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897339&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-6-7 15:07</a>
+其实还是夸克斯那一套补丁式角色塑造，主要作用是作为夏泷蔷薇的同位体把骡鸭拉的基础设定讲给麻球听。
+
+ ...</blockquote>
+很多不清楚背景故事的新人也能感受到第九集拉拉塑造的精妙，并不需要额外知识
+
+第九集妙就妙在最后拉拉没跟玛秋走，哪怕女仆都已经把娼馆一把火全烧了她也没放弃继续等待梦中那个人的想法，我觉得玛秋的结局已经可以预见了，就是会追逐修司哪怕粉身碎骨
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

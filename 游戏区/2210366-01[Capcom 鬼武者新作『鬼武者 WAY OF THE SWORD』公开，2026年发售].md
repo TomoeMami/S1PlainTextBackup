@@ -1718,3 +1718,30 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 动作应该再调整一下，至少保留招式的凌厉感
 
+
+*****
+
+####  karastar  
+##### 183#       发表于 2025-6-7 15:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一眼练手奶粉作
+
+
+*****
+
+####  沉睡城市  
+##### 184#       发表于 2025-6-7 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897256&amp;ptid=2210366" target="_blank">Asukalangley33 发表于 2025-6-7 14:43</a>
+
+才看完PV
+
+这一闪是认真的嘛？
+
+没速度感不说，力量感也没有</blockquote>
+不知道是不是一闪，如果是的话，就真特么日了狗。
+
+这一作的动作感太软了，全部预告片都出现过的格挡和牵引，速度和力量感比很多国产武侠烂剧都不如，公园老头老太打太极的既视感。我从小到大看过的所有日式剑戟片或者实际的演武和剑斗视频，都没见过如此软绵缓慢的动作。鬼武者标题的字体也是圆圆胖胖的。
+
+动作天尊+鬼武者，搞出这么个玩意，这是怎样的一种MINDFUCK
+
