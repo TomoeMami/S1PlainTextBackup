@@ -702,3 +702,13 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 第二个 pv 太吸引人了
 之前对如龙完全没兴趣一直觉得画面还差 这次真不错
 
+
+*****
+
+####  陈乔恩  
+##### 74#       发表于 2025-6-8 07:04
+
+超越天堂？世嘉要不做一个JOJO单机，反正也是黑帮游戏<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
