@@ -3588,3 +3588,17 @@ ex2同时完成了开发机+不死成就，开心。
 
 之前EX1用妖刀站葵曼沙头顶大扎姆不会跑过来，现在拿斧王站上面大扎姆会跑过来然后一发地图炮<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  体制  
+##### 1804#       发表于 2025-6-8 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67893596&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-6-6 19:45</a>
+之前EX1用妖刀站葵曼沙头顶大扎姆不会跑过来，现在拿斧王站上面大扎姆会跑过来然后一发地图炮
+
+搞明白了，给 ...</blockquote>
+ex1真的是代哥神秘代码太怪了，i立场、血量芯片都会导致走位不一样。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
