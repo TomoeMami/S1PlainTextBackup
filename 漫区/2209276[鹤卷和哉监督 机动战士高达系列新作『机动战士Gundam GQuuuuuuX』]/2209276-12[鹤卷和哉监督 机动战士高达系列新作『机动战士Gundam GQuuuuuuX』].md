@@ -16121,3 +16121,17 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 拉拉在79年被骡子捅死的日期是在24号所罗门之后，和30号solar ray之前中间的某一天（有说28的， ...</blockquote>
 夏利亞都明說了玫瑰是在一年戰爭“中期”突然冒出來的
 
+
+*****
+
+####  VictorWJ  
+##### 17556#       发表于 2025-6-7 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788118&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-7 02:21</a>
+哈罗想去地球——&gt;哈罗是骡子做的——&gt;骡子是幕后黑手
+
+还有种可能沙仑玫瑰就是骡子，和正史一样被联邦软禁 ...</blockquote>
+草，坛友居然猜对了一半<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
