@@ -15736,3 +15736,23 @@ icanbefridaybyday只是把抢男人转化成机器人战斗的意象而已，不
 两位女主至少是对照组以及有两条主线（kirakira和吉翁内战），在得 ...</blockquote>
 突击吉翁，救拉拉
 
+
+*****
+
+####  0aleph37  
+##### 17545#       发表于 2025-6-7 16:55
+
+ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠，自我和解的瞬间才是重点。
+
+
+*****
+
+####  ryanghj  
+##### 17546#       发表于 2025-6-7 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897763&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-6-7 16:55</a>
+ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠，自我和解的瞬间才是重点。 ...</blockquote>
+爆破头不是亲吻的意象吗，也可以解读为少女牺牲了友情（曹长，剧情中有说他轻信了女二的善意），强吻男人（掠夺资源），保住了自我（少尉）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
