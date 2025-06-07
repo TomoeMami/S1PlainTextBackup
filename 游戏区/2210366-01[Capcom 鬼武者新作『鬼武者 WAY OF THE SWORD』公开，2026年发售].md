@@ -1668,3 +1668,11 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 感觉是要改成偏写实类了，这佐佐木一出来，浪客行味道的确浓。
 
+
+*****
+
+####  zqqwe  
+##### 178#       发表于 2025-6-7 11:04
+
+女主这长脸神似牙狼第一部的邪美法师，不是传统美少女了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

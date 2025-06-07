@@ -15294,3 +15294,13 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 剩下的外传（比如大河内写的08MS）也开始出现效应，角川是真的躺那都有钱捡
 
+
+*****
+
+####  无念  
+##### 17505#       发表于 2025-6-7 10:57
+
+主要UC好像也没几个有名的瞎子啊，总不能直接串到海盗去吧？0085这个时间段最有名的视力障碍者已经出场过了——周锦华<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
