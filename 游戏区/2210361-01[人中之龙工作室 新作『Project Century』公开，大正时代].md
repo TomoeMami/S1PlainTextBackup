@@ -512,3 +512,11 @@ PV2：[https://youtu.be/Opn2ne3rdeo](https://youtu.be/Opn2ne3rdeo)
 
 就横导那个喝花酒喝美了在剧本里疯狂给老鸨龟公洗白，给反涩涩游行组织狠狠泼脏水的尿路，这要真是现实背景又要搞什么私货不敢想<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Demi.Albertini  
+##### 55#       发表于 2025-6-7 09:48
+
+主角叫大东马可，还是个蓝眼睛，估计是个混血，最后还被真老外说jap，看来是那种两边都不待见的人
+
