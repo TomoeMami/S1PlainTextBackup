@@ -1814,3 +1814,13 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 一闪作为鬼武者核心，不会藏着掖着的。所以不要怀疑，那软绵绵的一刀真的是一闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 193#       发表于 2025-6-8 00:04
+
+这招架成功以后的派生敌人直接就像西瓜一样被切开了还是挺带感的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
