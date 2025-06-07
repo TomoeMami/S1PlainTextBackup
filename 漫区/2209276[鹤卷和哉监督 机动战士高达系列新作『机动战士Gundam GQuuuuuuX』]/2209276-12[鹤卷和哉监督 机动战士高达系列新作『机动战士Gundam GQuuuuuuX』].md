@@ -15330,3 +15330,28 @@ Z小说比较可惜，元祖小说效应已经持续了四个月而Z刚开始出
 
 现在只想知道鹤卷要虐茄能不能虐到尾
 
+
+*****
+
+####  aptx8285144  
+##### 17509#       发表于 2025-6-7 12:15
+
+虐?到现在为止鹤卷对番茄比哪些前辈主角不算好吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，父母还只是社死，如果他爸有一定人脉也许只是不能高升吧，就连“不讨喜”程度也其实是“不上不下”的，番茄是有一定的同理心，没有逆夏的葵斯那么极端（当然不代表她不会被夏利亚或谁忽悠）
+
+
+*****
+
+####  syndrome2032  
+##### 17510#       发表于 2025-6-7 12:22
+
+番茄只是像是误入uc世界的现代日本jk，导致和背景格格不入。
+
+*****
+
+####  jojonathan  
+##### 17511#       发表于 2025-6-7 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896667&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-6-7 12:15</a>
+虐?到现在为止鹤卷对番茄比哪些前辈主角不算好吗，父母还只是社死，如果他爸有一定人脉也许只是不能高升吧 ...</blockquote>
+主角失格是最大的虐了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
