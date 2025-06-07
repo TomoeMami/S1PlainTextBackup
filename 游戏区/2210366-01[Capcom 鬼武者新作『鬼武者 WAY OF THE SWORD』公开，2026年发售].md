@@ -1648,3 +1648,15 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lbb3313725  
+##### 176#       发表于 2025-6-7 08:41
+
+<blockquote>伊丽虾皇VI 发表于 2025-6-7 08:30
+这小次郎外形一眼看上去像井上雄彦浪客行里那个
+
+—— 来自 鹅球 v3.5.99</blockquote>
+我也觉得像
+
