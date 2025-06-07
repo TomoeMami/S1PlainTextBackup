@@ -16135,3 +16135,16 @@ ican是放弃了抢男人（手榴弹爆破男人头）,最后少女接住松鼠
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Steel.Haze  
+##### 17557#       发表于 2025-6-7 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67891486&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-6-6 13:47</a>
+
+多次对上阿姆罗还能活下来绝对不菜了好吗，不能说不如阿姆罗就是菜
+
+夏亚这个人的悲剧在于，他的上限就是 ...</blockquote>
+他也打不过亚赞、布兰等人呀。和两个高扎古狙击兵也要周旋很久。一般认为其在第一线中，是比较差的。或者说，夏亚的战斗缺乏压倒力。
+
