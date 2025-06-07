@@ -1842,3 +1842,13 @@ PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
 
 这个系统看着挺不错的，感觉会好玩
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 196#       发表于 2025-6-8 07:45
+
+pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后的音乐让我想起了泡沫之舞。
+
