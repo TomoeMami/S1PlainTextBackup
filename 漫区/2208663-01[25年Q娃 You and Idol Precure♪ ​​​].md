@@ -1878,3 +1878,18 @@ KISS的大招好媚<img src="https://static.stage1st.com/image/smiley/animal2017
 
 本属于噗哩伦的通关结算画面没了<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1022#       发表于 2025-6-8 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900755&amp;ptid=2208663" target="_blank">codezwei 发表于 2025-6-8 11:09</a>
+
+梅伦伦似乎还保留着一部分记忆，还会吟诗
+
+KISS的大招好媚，各种硬直辅助，打团战实用性拉满</blockquote>
+就这集的表现两个妖精付出的代价方向是不同的，噗哩伦付出的是关于最重要的事物的“记忆”，而梅洛珑付出的是关于最重要的事物的“感情”。
+
+以此为基础结合上集猜测光赞暗赞女王用过心闪锁的话，可能当时光赞女王拿的是锁而暗赞女王拿的是钥匙，所以光赞女王知道心闪锁的副作用，并且暗赞女王也是因为心闪锁而黑化的。
+
