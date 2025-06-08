@@ -17757,3 +17757,25 @@ GQX和哈罗上附的是93的骡
 
 终究还是要找个男人
 
+
+*****
+
+####  岸浪白野  
+##### 17672#       发表于 2025-6-8 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67901578&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-8 14:48</a>
+
+X 上的 7月ting：“https://t.co/e2uWypqksV” / X
+
+X 上的 タカフミ@TALI：“ジークアクスのニャアン。 #G ...</blockquote>
+
+半天过去能有14W赞 成今天GQ最火的同人了，也成了是这画师最高点赞的图
+
+<img src="https://img.stage1st.com/forum/202506/08/225353lcxa1eeazzwaa1xg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-8 22:53 上传
+
