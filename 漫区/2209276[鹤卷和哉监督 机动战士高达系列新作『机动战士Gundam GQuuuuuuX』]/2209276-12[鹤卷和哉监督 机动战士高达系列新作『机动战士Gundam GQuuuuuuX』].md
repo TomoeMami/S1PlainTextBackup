@@ -17044,3 +17044,35 @@ X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/Ta
 
 然后问题又来到都为几个主角让路了，几个主角到现在甚至下一话的预期表现都很难让人期待，怎么说呢，文戏技艺水平很高，但是整体故事把握该说是稀烂吧
 
+
+*****
+
+####  LeonsCat  
+##### 17633#       发表于 2025-6-8 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900978&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-8 12:03</a>
+
+不是，应该普遍认为拉拉留下来才是她的“少年狂”吧？至少应该认为这是完全不符合逻辑的“浪漫”吧？怎么 ...</blockquote>
+因为她真的没想过离开啊……她离开能干嘛，难道去偷机体上宇宙开无双？她又不是卡兹。。。
+
+包括楼上说“这就是高级妓院”，咋说呢，是不是高级难说，确实就是妓院，就是揾食。
+
+*****
+
+####  Wondering  
+##### 17634#       发表于 2025-6-8 12:34
+
+顺便一提，烟虫这个小说也有尼漏最爱的色 情描写和交配环节，还有纯爱，只不过可能稍微有点过激罢了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 17635#       发表于 2025-6-8 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67901007&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-6-8 12:13</a>
+
+真正想要看经历过苦难的人建议看看江户川乱步的短篇小说烟虫，江户川乱步经历过日俄战争，侵朝战争和二战， ...</blockquote>
+怕不是小时候看过两天三里冢斗争的新闻就成了经历过（楼里认知的、宏大叙事角度的）苦难了。
+
+但话又说回来了，鹤卷经历过了解过多少难说，漏油也是好歹去读读松本清张，别看个知乎转发Q 群转发音速转发大院的转发链X军故事就直接代入了——顺便当代还是干脆多讨论点Z世代吧。
+
