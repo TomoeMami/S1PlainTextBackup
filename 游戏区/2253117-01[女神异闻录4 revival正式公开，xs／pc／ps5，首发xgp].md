@@ -486,3 +486,11 @@ P3R看上去明明很惊艳
 点开b站预告片就看见某up评论给我恶心到了
 比这更恶心的是这预告做的还没那个up好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ranapocket  
+##### 55#       发表于 2025-6-9 06:50
+
+这还不如同人作品吧
+
