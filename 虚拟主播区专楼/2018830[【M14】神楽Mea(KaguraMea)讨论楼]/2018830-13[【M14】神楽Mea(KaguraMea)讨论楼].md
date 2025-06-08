@@ -28970,3 +28970,12 @@ t台开播了，右上的头像直接变成狼mea了草
 
 据我观察主播生气了只能几个特定id去哄，不然没用
 
+
+*****
+
+####  术士q  
+##### 18690#       发表于 2025-6-9 06:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">那只能当搜达哟的复读机了，要那些人一个不在岂不是会变成2.14的情况
+真的不想再有那样的事情发生了<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
