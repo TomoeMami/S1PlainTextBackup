@@ -477,3 +477,12 @@ P3R看上去明明很惊艳
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡拉德利姆  
+##### 54#       发表于 2025-6-9 06:42
+
+点开b站预告片就看见某up评论给我恶心到了
+比这更恶心的是这预告做的还没那个up好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
