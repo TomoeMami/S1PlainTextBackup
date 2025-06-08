@@ -1852,3 +1852,11 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 
 最后的音乐让我想起了泡沫之舞。
 
+
+*****
+
+####  otakun  
+##### 197#       发表于 2025-6-8 07:55
+
+一闪改成荒野里太刀伤口处决技的动作吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
