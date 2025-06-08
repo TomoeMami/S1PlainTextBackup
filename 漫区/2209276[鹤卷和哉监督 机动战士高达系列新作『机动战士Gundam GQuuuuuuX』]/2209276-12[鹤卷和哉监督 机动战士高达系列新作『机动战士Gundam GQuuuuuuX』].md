@@ -17549,3 +17549,21 @@ SIDE6長大的富裕人家少女長得又白又嫩，還是日系，就比館裡
 ・要让拉拉登场</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">那可是印度。如果不是落到高级场馆这种还有文明可言的地方，醒之前早被灌成泡芙了
 
+
+*****
+
+####  银川智将Kuroky  
+##### 17656#       发表于 2025-6-8 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67901269&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-8 13:23</a>
+
+问题是马球也没多色啊</blockquote>
+你觉得不色而已
+
+*****
+
+####  LOLITA  
+##### 17657#       发表于 2025-6-8 17:00
+
+我不管你们怎么想，麻球在我心里就是高达全系列最色女主角<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
