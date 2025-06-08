@@ -1893,3 +1893,19 @@ KISS的大招好媚，各种硬直辅助，打团战实用性拉满</blockquote>
 
 以此为基础结合上集猜测光赞暗赞女王用过心闪锁的话，可能当时光赞女王拿的是锁而暗赞女王拿的是钥匙，所以光赞女王知道心闪锁的副作用，并且暗赞女王也是因为心闪锁而黑化的。
 
+
+*****
+
+####  leleq  
+##### 1023#       发表于 2025-6-8 16:56
+
+虽然是系构来写的但信息透露的不多。
+
+2人现在的状况人间体都要下一集
+
+噗哩伦全忘了只记得要保护idol了（和和过去的害兽切割）
+
+梅洛伦感情没了但还是防了一下idol算是刻在dna里了么<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+最后“巴祖卡”是什么鬼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
