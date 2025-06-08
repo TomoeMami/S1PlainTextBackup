@@ -39,3 +39,21 @@
 
 作业毁灭者！
 
+
+*****
+
+####  l⑨th_Knight  
+##### 4720#       发表于 2025-6-8 09:49
+
+反恐精英之神！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  heseran  
+##### 4721#       发表于 2025-6-8 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猎鹰不会要被一脚踢死了吧，那也太搞笑了
+
