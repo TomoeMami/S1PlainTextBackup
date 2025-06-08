@@ -458,3 +458,39 @@ GF开发一部长、游戏策划「齐藤优史」近期在接受外媒VGC采访
 由手机上传
 2025-6-9 07:33 上传
 
+
+*****
+
+####  nage560  
+##### 50#       发表于 2025-6-9 07:38
+
+的确一股子网易做的味道，除了女角色建模审美比网易的磨皮脸强。
+
+
+*****
+
+####  HazukiShion  
+##### 51#       发表于 2025-6-9 07:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904531&amp;ptid=2253295" target="_blank">蓝雉 发表于 2025-6-9 01:40</a>
+这是田尻智特批的重点项目,属于齿轮计划里的,GF吸引新鲜血液的重要布局之一
+
+简单来说gf选择了曲线救国, ...</blockquote>
+先骗进来然后再安排去宝可梦吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 52#       发表于 2025-6-9 07:41
+
+https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2133773&amp;extra=&amp;mobile=2
+
+23年就爆料过GF和深银要搞个新ip动作游戏。当时还是嘲讽GF居多。
+
+*****
+
+####  otakun  
+##### 53#       发表于 2025-6-9 07:42
+
+GF的非宝游戏我就玩过一个，一股小厂独游的味道…
+

@@ -530,3 +530,21 @@ P4R预告片反应：主播反应大爆炸，有人破口大骂！Reaction https
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  tsubasa9  
+##### 59#       发表于 2025-6-9 07:37
+
+很难想象在次世代平台还能看到这种ps2时代建模的画面
+
+
+*****
+
+####  InfiniteGyre  
+##### 60#       发表于 2025-6-9 07:43
+
+像用i社游戏搓出来的
+
+—— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

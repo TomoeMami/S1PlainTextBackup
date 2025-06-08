@@ -3191,3 +3191,16 @@ x终于要登场了
 
 —— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  新HGCG  
+##### 280#       发表于 2025-6-9 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905008&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-6-9 07:12</a>
+
+国内打斗做的好的不算少了，感觉是业界确实有一批人才储备配合武打片对国人的影响，打斗这块如果做得好基 ...</blockquote>
+国内原来是这个情况啊
+
+我看那个鲲吞天下的预告，似乎作画也很强
+
