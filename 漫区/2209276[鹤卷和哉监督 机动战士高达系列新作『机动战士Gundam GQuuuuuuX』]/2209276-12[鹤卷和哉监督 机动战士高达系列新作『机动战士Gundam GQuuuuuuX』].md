@@ -16950,3 +16950,15 @@ X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/Ta
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Wondering  
+##### 17625#       发表于 2025-6-8 11:48
+
+ 本帖最后由 Wondering 于 2025-6-8 11:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900305&amp;ptid=2209276" target="_blank">孤舟垂钓 发表于 2025-6-8 09:03</a>
+
+如果你是真的不懂，那我认真的回复你。这就是鹤卷深藏的恶意，是恨铁不成钢，是真正经历过苦难的那一辈老 ...</blockquote>
+苦难n m b呢，鹤卷经历过个屁的苦难？他经历的苦难有你高吗？你要不自己问问自己你经历了什么苦难在这里无病呻吟共情鹤卷？鹤卷是经历二战了还是经济危机时跳楼了？或者是下海了？
+
