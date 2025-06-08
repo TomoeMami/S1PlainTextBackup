@@ -17779,3 +17779,33 @@ X 上的 タカフミ@TALI：“ジークアクスのニャアン。 #G ...</blo
 
 2025-6-8 22:53 上传
 
+
+*****
+
+####  rockroxas  
+##### 17673#       发表于 2025-6-8 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67903605&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-8 22:05</a>
+
+无亲无故名下没有财产，在印度那地方讨饭吃还是挺难的
+
+特别是拉拉那种小身板做不了体力活，又不像X-men那 ...</blockquote>
+非要认真考虑的话，院子烧了之后组织会怎么对待她不知道，会不会被别的组织换不知道，换的话高级鸡八成不会留下（信不过）
+
+死那么多人，我记得地球空屋特别多的，骡子的妈就在难民救助点工作来着？找个类似的地方呗，当然前提是核心飞机能操纵而不是强制扔下拉拉跑路
+
+从绿叔叔的表现来看这片里NT似乎比正史强太多了，gqNT真的有时灵时不灵的说法吗
+
+*****
+
+####  ryanghj  
+##### 17674#       发表于 2025-6-8 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67903871&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-8 22:57</a>
+半天过去能有14W赞 成今天GQ最火的同人了，也成了是这画师画过的图最高点赞的
+
+ ...</blockquote>
+说起来gqux在韩国特别火
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
