@@ -17567,3 +17567,15 @@ SIDE6長大的富裕人家少女長得又白又嫩，還是日系，就比館裡
 
 我不管你们怎么想，麻球在我心里就是高达全系列最色女主角<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 17658#       发表于 2025-6-8 17:28
+
+日经娱乐7月号高达特辑
+【机动战士高达 GQuuuuuuX——主制片人·杉谷勇树访谈：希望能吸引新粉-哔哩哔哩】 https://b23.tv/8Jj6dsB
+【机动战士高达 GQuuuuuuX——机械设计·山下いくと访谈：必须超越过去-哔哩哔哩】 https://b23.tv/mX8cl6U
+【机动战士高达 GQuuuuuuX——监督·鹤卷和哉访谈：希望势头保持到最后-哔哩哔哩】 https://b23.tv/TZJOcnY
+【机动战士高达 GQuuuuuuX——系列构成·榎户洋司访谈：想描绘NewType-哔哩哔哩】 https://b23.tv/LpWnkMI
+
