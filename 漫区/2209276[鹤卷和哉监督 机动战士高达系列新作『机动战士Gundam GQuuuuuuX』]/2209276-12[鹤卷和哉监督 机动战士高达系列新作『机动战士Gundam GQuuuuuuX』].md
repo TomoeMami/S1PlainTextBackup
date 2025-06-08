@@ -16802,3 +16802,17 @@ X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/Ta
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然你问老板说的那句话算不算是在恶心人，我觉得是有点油腻了，因为这句台词玛秋是听不到的（对玛秋是没有用的），可不就是在对观众说嘛
 也没有必要说这句台词是为了塑造一个怎样的老板形象怎样的地球现象云云，大家看到给军官提供服务的娼馆，那这个大环境到底是怎样的早就心知肚明了
 
+
+*****
+
+####  吴怀在  
+##### 17612#       发表于 2025-6-8 10:25
+
+ 本帖最后由 吴怀在 于 2025-6-8 10:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900245&amp;ptid=2209276" target="_blank">kyo1165 发表于 2025-6-8 08:44</a>
+
+妓院这个设定除了恶心人还能有什么用？你吹这是富野设定就算了，龟公还要提一句番茄留在妓院肯定受 ...</blockquote>
+媚宅吧。至少是一代有一代人的媚宅，以前这种剧情多了，纯情破鞋、劝妓从良、出淤泥而不染，至少能媚到老登宅。
+
+本质和女主高达、百合高达能媚到新生代宅一个性质<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
