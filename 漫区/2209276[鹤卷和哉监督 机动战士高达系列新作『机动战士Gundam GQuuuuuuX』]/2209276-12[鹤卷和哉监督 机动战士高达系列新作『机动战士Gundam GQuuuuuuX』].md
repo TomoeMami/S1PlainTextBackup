@@ -16881,3 +16881,16 @@ X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/Ta
 
 作为一个从开始就是为了为爆而爆炒热度的新高达，不管是做鸡下海还是if线狂想，这群老害们不是做得挺成功的么。我看这里面也没啥深刻思想，就是自己爽一下优先。
 
+
+*****
+
+####  plok201  
+##### 17619#       发表于 2025-6-8 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900641&amp;ptid=2209276" target="_blank">kyo1165 发表于 2025-6-8 10:42</a>
+
+大家讨论最多的都是0079if的老角色，新生代主角番茄到现在最爆的话题就是下海，这真的好吗？ ...</blockquote>
+所以我说比起所谓的侧面塑造，大伙还纠结下海台词，搞得出来讨论主角塑造都有点不识趣了
+
+毕竟大家对番茄究竟要穿哪一套出来接客更热情，就很生草<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
