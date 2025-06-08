@@ -17726,3 +17726,34 @@ GQX和哈罗上附的是93的骡
 
 笼络是更高级的玩法，按他描述的黑暗程度笼络之后很快就得变棍了
 
+
+*****
+
+####  大十字紅朔  
+##### 17670#       发表于 2025-6-8 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900572&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-6-8 10:25</a>
+
+媚宅吧。至少是一代有一代人的媚宅，以前这种剧情多了，纯情破鞋、劝妓从良、出淤泥而不染，至少能媚到老 ...</blockquote>
+宅宅有两种人，前一种人是处女厨，后一种人未必是非处女厨但是就是单纯想恶心前者
+
+说真的宅宅数量上看前一种人是绝对多数是衣食父母，但是后一种人总有办法混到制作人的位置上
+
+庵野就是后一种人，他也不是只的讨厌前一种宅，他平等的讨厌自己以外的所有宅宅
+
+所以，被恶心到了，说明get到了制作者的用意了，达成相互理解了<img src="https://static.stage1st.com/image/smiley/carton2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 17671#       发表于 2025-6-8 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67903482&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-8 21:53</a>
+
+那位的说法是UC85拉拉这样的人脱离院子活不过两年，我说不至于，UC真正黑暗的是大规模屠杀，脱离乞丐多大 ...</blockquote>
+无亲无故名下没有财产，在印度那地方讨饭吃还是挺难的
+
+特别是拉拉那种小身板做不了体力活，又不像X-men那种超能力，NT能力时灵时不灵的
+
+终究还是要找个男人
+
