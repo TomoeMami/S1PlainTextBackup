@@ -1909,3 +1909,19 @@ KISS的大招好媚，各种硬直辅助，打团战实用性拉满</blockquote>
 
 最后“巴祖卡”是什么鬼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我吃诗人  
+##### 1024#       发表于 2025-6-8 18:05
+
+哈基藤你这家伙<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是在试图复刻第六集吗但太难看了，写的偶像宅uta就像是奔着吃投诉去的，反串感拉满了简直萌萌人看了都要变黑子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+加藤桑这几集表现真给我感觉不是不小心的是故意的，保留了一点异味让人清醒这才是本物の偶像<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于nana，这集更是不知道该干嘛，破盾1/1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
