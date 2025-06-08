@@ -17129,3 +17129,39 @@ X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/Ta
 
 她是真神棍，靠占卜混口饭不至于棍的，黑街有这么危险小番茄第一集就该进院子了
 
+
+*****
+
+####  Delicatus545  
+##### 17639#       发表于 2025-6-8 13:16
+
+别吵吵了，大伙看到好东西记得来楼里分享就能一团和气了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 17640#       发表于 2025-6-8 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67901228&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-8 13:10</a>
+
+大兵乱窜最多的就是她留下来那块地……放黑光头来写她说完台词下一秒就要被枪爆头
+
+怎么，你觉得留下来就 ...</blockquote>
+SIDE6是有秩序的。哪怕黑帮也是秩序。兵过如篦后是没有秩序的。
+
+要是79年的小姑娘估计会跑路，85年还了解多个世界线的老阿姨，只会把小番茄打发走（注意到，gqx机体在那个场景是由拉拉指挥的，番茄抵抗无效）。
+
+就，要说多少次才能让你意识到，对于老帮菜来说，这个公馆不是啥龙潭虎穴，反倒是跑路已经被无数个平行世界证明了，就是龙潭虎穴。
+
+
+*****
+
+####  syndrome2032  
+##### 17641#       发表于 2025-6-8 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900999&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-8 12:10</a>
+从一开始废案是其它人后来才改成GQ拉拉是1集下线的不奇怪
+
+整一个一周内话题那这个在黄色那方面的讨论热度会 ...</blockquote>
+问题是马球也没多色啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
