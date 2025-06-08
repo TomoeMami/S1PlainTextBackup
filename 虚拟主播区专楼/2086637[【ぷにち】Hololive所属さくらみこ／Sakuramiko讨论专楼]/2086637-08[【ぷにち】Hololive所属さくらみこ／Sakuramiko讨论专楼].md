@@ -156,3 +156,28 @@
 
 2025-6-6 20:33 上传
 
+
+*****
+
+####  holofan  
+##### 11056#       发表于 2025-6-8 14:33
+
+<img src="https://img.stage1st.com/forum/202506/08/143356vzyr8gra9a36crhu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-8 14:33 上传
+
+*****
+
+####  holofan  
+##### 11057#       发表于 2025-6-8 15:37
+
+悲报
+
+vrc服务器故障大半天了，到现在也没修好的迹象
+
+等一下fbk还要先solo直播vrc如果等会也进不去那很可能要改计划了
+
