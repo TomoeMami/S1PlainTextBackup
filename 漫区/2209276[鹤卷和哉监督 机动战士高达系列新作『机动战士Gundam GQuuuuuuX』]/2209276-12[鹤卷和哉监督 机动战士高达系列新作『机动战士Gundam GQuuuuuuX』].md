@@ -17615,3 +17615,16 @@ GQX和哈罗上附的是93的骡
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七七見奈波  
+##### 17662#       发表于 2025-6-8 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67902379&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-8 18:40</a>
+
+要是有这个意图的话，“通过自我选择成为NT才是更纯粹的”（同时还有军人，假如她是自我选择的），同样追 ...</blockquote>
+现在的问题是你从目前为止的故事里看到什么是值得严肃认真地用上“批判”二字来表达的东西了吗？对角色的处理是轻轻放下，对情节的对照也是轻轻放下，对精神病闯进side6大闹的危害还是轻轻放下，对夏利亚、紫婆的态度都很暧昧。都不迷惑的吗？这种处处都只能用vague来形容的态度，不就是“我觉得这事它不好，但我说不上来有没有不好得那么严重”吗？
+
+而且我前面说的怎么横看竖看也不能理解为我觉得麻球和拉拉的现状是“好”吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">再要细说拉拉所谓的“其他更多的选择”是不是真的好，可行性有多强，就又陷入前几页那种俩人捉对说半天，后来自己都不一定记得自己说过啥的讨论了。至于拉拉为什么不告诉麻球会被绿叔叔抓，这集拉拉对麻球说的话有几句是对麻球这个人说的？说了半天大部分都是在说她自己。
+
