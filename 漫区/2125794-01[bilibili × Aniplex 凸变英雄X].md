@@ -3155,3 +3155,19 @@ apart这个公式黑化写得太想当然了。后半和好了倒还行，没走
 我看这集的打戏都能吊打一大堆当季日本冻鳗了 ...</blockquote>
 幽默了，拿便宜动画和根本没战斗的凑一大堆是吧
 
+
+*****
+
+####  DARK_HGCG  
+##### 278#       发表于 2025-6-8 22:18
+
+x终于要登场了
+
+<img src="https://img.stage1st.com/forum/202506/08/221749y2enn7korem75r7n.jpg" referrerpolicy="no-referrer">
+
+<strong>20250608_231554.jpg</strong> (185.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-8 22:17 上传
+
