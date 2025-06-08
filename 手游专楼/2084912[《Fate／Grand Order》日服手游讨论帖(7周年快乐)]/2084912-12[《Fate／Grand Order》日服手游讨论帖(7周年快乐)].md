@@ -188,3 +188,43 @@
 
 傲变娇就是这个活动负责的东西吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 16872#       发表于 2025-6-7 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67895511&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-7 07:13</a>
+
+听了果子龙绊5的语音是一点感想也没有.....这卖的ML是越来越随便了
+
+上个活动还是黑幕BOSS结果这次活动就直 ...</blockquote>
+作为活动boss被锤爆一次然后再给个专门活动落地，这已经是经次于黑贞、lls、C呆级别的待遇了，妖兰和雨神这种才是唐突ml，主线里作为中boss就交手2、3次，落地直接就钻被窝了，不是，我和你们有那么熟吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 16873#       发表于 2025-6-7 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896672&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-6-7 12:15</a>
+
+作为活动boss被锤爆一次然后再给个专门活动落地，这已经是经次于黑贞、lls、C呆级别的待遇了，妖兰和雨神 ...</blockquote>
+所以这么多年过去了到现在为止我最喜欢的ML从者还是艾蕾...黑贞...MLDLLS这些<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 16874#       发表于 2025-6-7 23:00
+
+笑了，又用结界关214
+大概率又和矛盾螺旋一样215出来救场
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  v22325  
+##### 16875#       发表于 2025-6-8 14:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动我看不下去，一个是剧情里动不动就两边主炮动画播放个不停，一个是这角色真没啥魅力，已经跳过了。
+
