@@ -16777,3 +16777,28 @@ cca已经出场过了吧，鸭子计划炸所罗门就是。
 
 2025-6-8 10:13 上传
 
+
+*****
+
+####  qixinno2  
+##### 17610#       发表于 2025-6-8 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900524&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-8 10:14</a>
+
+X 上的 ミモネル：“雑すぎて怒られそうなやつ [https://t.co/TaIwVhlQMT” / X](https://t.co/TaIwVhlQMT” / X)</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是新时代的高达么
+
+
+*****
+
+####  ヒトニナル  
+##### 17611#       发表于 2025-6-8 10:23
+
+为什么是娼馆呢
+・玛秋落地需要一个地方接应
+・要让拉拉登场
+・现成的设定可以直接拿来用
+・“外面有很多乞丐所以我在这里当女仆还算好的”←为了这句话包的饺子
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然你问老板说的那句话算不算是在恶心人，我觉得是有点油腻了，因为这句台词玛秋是听不到的（对玛秋是没有用的），可不就是在对观众说嘛
+也没有必要说这句台词是为了塑造一个怎样的老板形象怎样的地球现象云云，大家看到给军官提供服务的娼馆，那这个大环境到底是怎样的早就心知肚明了
+
