@@ -16750,3 +16750,30 @@ cca已经出场过了吧，鸭子计划炸所罗门就是。
 如果你是真的不懂，那我认真的回复你。这就是鹤卷深藏的恶意，是恨铁不成钢，是真正经历过苦难的那一辈老 ...</blockquote>
 别的不说，鹤卷经历过什么真正的苦难？生于66年，成长期间正好处于霓虹经济最兴旺的时候，19岁就进入业界，飞跃巅峰之后进入gainax，欠钱最困难的时候也没遇上，可能也就经济危机初期过的困难一点，之后宅社凭借eva也是赚的盆满钵满，这种副导演位置的人最基本的生计肯定是能保证的，整体上一路可谓顺风顺水
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 17608#       发表于 2025-6-8 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67900245&amp;ptid=2209276" target="_blank">kyo1165 发表于 2025-6-8 08:44</a>
+
+妓院这个设定除了恶心人还能有什么用？你吹这是富野设定就算了，龟公还要提一句番茄留在妓院肯定受 ...</blockquote>
+当然是让人鸡儿梆硬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 17609#       发表于 2025-6-8 10:14
+
+[X 上的 ミモネル：“雑すぎて怒られそうなやつ [url]https://t.co/TaIwVhlQMT](https://x.com/mimonel/status/1931320206812709160)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/08/101359zg4zhdu48vmrrvlc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-8 10:13 上传
+
