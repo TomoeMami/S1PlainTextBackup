@@ -428,3 +428,18 @@ https://weib ...</blockquote>
 
 这种情况下鱿鱼如果杀了她，怕是真能封个当世圣女。。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  RWolf  
+##### 44#       发表于 2025-6-8 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67901595&amp;ptid=2253204" target="_blank">9号单开道岔 发表于 2025-6-8 14:53</a>
+不一样，通贝里名声大多了，世界级的新闻影响力。
+
+以色列不在乎杀人，但内塔尼亚胡政府要考虑的问题就多了 ...</blockquote>
+以色列国父的影响力更大吧？
+还是公爵
+
+照样杀，现在也没什么事情
+
