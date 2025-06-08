@@ -406,3 +406,33 @@ p4r第一个pv放了场景和跑步
 
 P3R看上去明明很惊艳
 
+
+*****
+
+####  格林达姆  
+##### 47#       发表于 2025-6-9 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904803&amp;ptid=2253117" target="_blank">黄泉川此方 发表于 2025-6-9 02:33</a>
+感觉能探索变大了，起码不动产门口那个视角P4G没印象</blockquote>
+原版这场景应该是正好镜头背着这堆建筑对着神社门口<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许只是补个景观依然啥都没有
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  被击坠王  
+##### 48#       发表于 2025-6-9 02:45
+
+世界树多次胎停就是为了让ATLUS这帮厮在发癫是吧
+
