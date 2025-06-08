@@ -502,3 +502,31 @@ P3R看上去明明很惊艳
 
 这也太敷衍了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Redimercia  
+##### 57#       发表于 2025-6-9 07:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/09/072803sjvjjen1xffzg4ff.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6210.JPG</strong> (56.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 07:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  red2077  
+##### 58#       发表于 2025-6-9 07:31
+
+P4R预告片反应：主播反应大爆炸，有人破口大骂！Reaction https://www.bilibili.com/video/BV1P9ThzAE56
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
