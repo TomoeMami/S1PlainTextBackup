@@ -17579,3 +17579,14 @@ SIDE6長大的富裕人家少女長得又白又嫩，還是日系，就比館裡
 【机动战士高达 GQuuuuuuX——监督·鹤卷和哉访谈：希望势头保持到最后-哔哩哔哩】 https://b23.tv/TZJOcnY
 【机动战士高达 GQuuuuuuX——系列构成·榎户洋司访谈：想描绘NewType-哔哩哔哩】 https://b23.tv/LpWnkMI
 
+
+*****
+
+####  岸浪白野  
+##### 17659#       发表于 2025-6-8 18:18
+
+在企划阶段听说是山下设计的高达时，就觉得光凭这点GQuuuuuuX就值得制作  
+越临近发布的时候就越兴奋期待 
+要不万代桑虑继续出山下高达系列的模型吧
+<img src="https://p.sda1.dev/24/5a172ee0d70fc1034c0e33ee0f257dad/image.jpg" referrerpolicy="no-referrer">
+
