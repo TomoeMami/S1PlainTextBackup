@@ -1,0 +1,408 @@
+﻿
+*****
+
+####  医生狼多  
+##### 1#       楼主       发表于 2025-6-6 23:05
+
+ 本帖最后由 医生狼多 于 2025-6-9 02:04 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/09/015821q7grpiz9b7b07a9x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (539.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 01:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/09/015843l2iz0bvj2uvq5zgb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 01:58 上传
+
+*****
+
+####  医生狼多  
+##### 2#         楼主| 发表于 2025-6-8 16:59
+
+pyoro<img src="https://p.sda1.dev/24/5ac1bf83d2ec5713cf78281ae56d123a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  佛罗伦萨  
+##### 3#       发表于 2025-6-8 17:01
+
+又要像当年p5r一样被嘲笑ns独不占半个月？
+
+*****
+
+####  はちたや  
+##### 4#       发表于 2025-6-8 17:03
+
+什么时候轮到p2 smt 恶幸
+
+桥野粉一个模子玩这么多作真吃不厌啊
+
+*****
+
+####  姐霓姐霓  
+##### 5#       发表于 2025-6-8 17:09
+
+感觉还是会上ns2，估计要整个重置黄金版了
+
+*****
+
+####  抽烟的猴  
+##### 6#       发表于 2025-6-8 17:13
+
+<blockquote>はちたや 发表于 2025-6-8 17:03
+什么时候轮到p2 smt 恶幸
+
+桥野粉一个模子玩这么多作真吃不厌啊</blockquote>
+舅舅之前说过p4r之后就是12重置，快了
+
+*****
+
+####  Lynn冰翎  
+##### 7#       发表于 2025-6-8 18:26
+
+一直有人问旧P什么时候重置似乎就说明为何没有重置。
+
+11年的时候早就趁着3、4的热度搞过了，显然完全没有人在乎。
+
+对如今的影响或许是给目黑将司一种“我做过重置，我也能当游戏制作人”的错觉。
+
+*****
+
+####  医生狼多  
+##### 8#         楼主| 发表于 2025-6-9 01:57
+
+<img src="https://img.stage1st.com/forum/202506/09/015720hocm03u0q44nzomc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (381.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 01:57 上传
+
+*****
+
+####  电磁炮233  
+##### 9#       发表于 2025-6-9 01:58
+
+这画面有点欢乐谷效应了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 10#       发表于 2025-6-9 01:58
+
+先导PV：[https://youtu.be/Y8wgp9eaQRM](https://youtu.be/Y8wgp9eaQRM)
+
+*****
+
+####  dddyghr  
+##### 11#       发表于 2025-6-9 01:59
+
+这画面垃圾得像个早期demo
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  黒鈴ミヲ  
+##### 12#       发表于 2025-6-9 01:59
+
+好奇怪的渲染，我都没敢认
+
+*****
+
+####  电波系腑海林  
+##### 13#       发表于 2025-6-9 01:59
+
+发售一年之后黄金典藏版再上ns2<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kyonkoism  
+##### 14#       发表于 2025-6-9 02:01
+
+纯早期demo画面，明年够呛能玩到<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  抹茶瓜  
+##### 15#       发表于 2025-6-9 02:01
+
+番长 来加班啦<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 16#       发表于 2025-6-9 02:01
+
+这画面看起来好怪
+
+*****
+
+####  医生狼多  
+##### 17#         楼主| 发表于 2025-6-9 02:02
+
+这pv渲染观感感觉还不如p3r……
+
+*****
+
+####  mjzs07  
+##### 18#       发表于 2025-6-9 02:02
+
+垃圾也无所谓了 反正不要钱
+
+*****
+
+####  m99999  
+##### 19#       发表于 2025-6-9 02:02
+
+感觉不如p4g
+
+*****
+
+####  m99999  
+##### 20#       发表于 2025-6-9 02:03
+
+<blockquote>抽烟的猴 发表于 2025-6-8 17:13
+舅舅之前说过p4r之后就是12重置，快了</blockquote>
+讲真p2重制倒是非常有必要的，p5之后系列也可以去青春化一点了，原点回归
+
+这p4r的画面和八十稻羽的规模，想不到有什么重制必要
+
+*****
+
+####  28201  
+##### 21#       发表于 2025-6-9 02:04
+
+画面刚出来还在说不会是这个吧，熟悉的bgm起来才敢确认
+
+*****
+
+####  Booorunestud  
+##### 22#       发表于 2025-6-9 02:05
+
+几秒画面像人工少女
+估计没黄金版新内容
+
+*****
+
+####  鳴上悠  
+##### 23#       发表于 2025-6-9 02:05
+
+<blockquote>引用第14楼抹茶瓜于2025-06-09 02:01发表的  :
+
+番长 来加班啦</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">うるせえ！
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  yanglian72  
+##### 24#       发表于 2025-6-9 02:05
+
+居然没有发售日，估计明年底了
+
+*****
+
+####  黑酒杯  
+##### 25#       发表于 2025-6-9 02:06
+
+跑步姿势很奇怪是错觉吗？
+
+*****
+
+####  叩叩叩  
+##### 26#       发表于 2025-6-9 02:06
+
+日期都没有，27年能出吗
+
+*****
+
+####  戏言学者  
+##### 27#       发表于 2025-6-9 02:06
+
+ 本帖最后由 戏言学者 于 2025-6-9 02:09 编辑 
+
+这街道有点搞笑，真就原比例高清化，感觉甚至不如GF的ORAS用心
+
+*****
+
+####  Onelooker  
+##### 28#       发表于 2025-6-9 02:07
+
+垃圾厂配垃圾平台
+
+阿特拉斯还真是巨硬的soulmate
+
+*****
+
+####  warjuggler  
+##### 29#       发表于 2025-6-9 02:09
+
+这画面质感也差p3r太多了,说是同人作品我都信...
+
+*****
+
+####  FishTail  
+##### 30#       发表于 2025-6-9 02:14
+
+就pv美术风格比不上原来垃圾建模小镇氛围一根
+
+*****
+
+####  Bruce33  
+##### 31#       发表于 2025-6-9 02:15
+
+像furyu和mmv做的游戏<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这画面我宁可玩老版
+
+*****
+
+####  chivalry  
+##### 32#       发表于 2025-6-9 02:20
+
+为啥没 ns2
+
+*****
+
+####  alviaze  
+##### 33#       发表于 2025-6-9 02:20
+
+p3r第一个pv就放完了场景、跑步、剧情片段、战斗、上课日常和放学日常、coop、天鹅绒房间
+
+p4r第一个pv放了场景和跑步
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑指2027
+
+*****
+
+####  逆袭的黑月  
+##### 34#       发表于 2025-6-9 02:22
+
+感觉少了原来镇子的温馨感. 不过出了还是要当凯子
+
+*****
+
+####  segadc  
+##### 35#       发表于 2025-6-9 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904667&amp;ptid=2253117" target="_blank">叩叩叩 发表于 2025-6-9 02:06</a>
+
+日期都没有，27年能出吗</blockquote>
+明年怎么都要出的，还得和p5x联动呢
+
+*****
+
+####  Freakyyu  
+##### 36#       发表于 2025-6-9 02:22
+
+这画面看着好烂，好在已经通过P4G了
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  modkingr  
+##### 37#       发表于 2025-6-9 02:22
+
+什么情况，这镇上跑步的片段感觉还不如徐toso那个饭制二创呢
+
+[https://www.bilibili.com/video/B ... story.content.click](https://www.bilibili.com/video/BV1AUmLYVEzS/?spm_id_from=333.1007.top_right_bar_window_history.content.click)
+
+*****
+
+####  Philpho  
+##### 38#       发表于 2025-6-9 02:23
+
+估计明年会和p5x联动一起上
+
+*****
+
+####  湖静欲成冰  
+##### 39#       发表于 2025-6-9 02:25
+
+期待过度，被耍了！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">气的没法无法闭上眼睛了。
+
+*****
+
+####  医生狼多  
+##### 40#         楼主| 发表于 2025-6-9 02:27
+
+重制版 P4R《女神异闻录4 Revival》正式官宣！
+
+夺目青春×重重谜团×超自然现象交织，RPG游戏的里程碑。
+女神异闻录系列极受欢迎的作品终于迎来重制！
+
+《女神异闻录４ Revival》将在 Xbox Game Pass、Xbox Series X|S、Windows、PlayStation®5、Steam 平台发售！
+
+在日本的乡村小镇——八十稻羽，为期一年的高中生活即将焕然一新，再度开启！
+​​​http://t.cn/A6eXbL90 ​​​
+
+
+*****
+
+####  格林达姆  
+##### 41#       发表于 2025-6-9 02:31
+
+ 本帖最后由 格林达姆 于 2025-6-9 02:33 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是只搭了个场景，墙上贴图都是糊的。这下想要无缝的八十稻羽和玛丽是不是很过分?
+
+*****
+
+####  慕兰  
+##### 42#       发表于 2025-6-9 02:32
+
+这是p3r那套工作管线吗，怎么这个b画面，还是阿特拉斯不用虚幻又在玩祖传引擎？
+
+*****
+
+####  Piano-Forest  
+##### 43#       发表于 2025-6-9 02:33
+
+<img src="https://p.sda1.dev/24/f93d4837d24d06de54de13f1caa5d7de/20250609_023253.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/c73073136f8357c274f8d3565bb55760/20250609_023254.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/2f3c3e4f298c7230aa7113a92546259c/20250609_023256.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黄泉川此方  
+##### 44#       发表于 2025-6-9 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904794&amp;ptid=2253117" target="_blank">格林达姆 发表于 2025-6-9 02:31</a>
+
+想要无缝的八十稻羽是不是很过分?</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉能探索变大了，起码不动产门口那个视角P4G没印象
+
+*****
+
+####  scai  
+##### 45#       发表于 2025-6-9 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904607&amp;ptid=2253117" target="_blank">医生狼多 发表于 2025-6-9 01:57</a></blockquote>
+左边贴图有点抽象啊 这游戏是刚开始做是吗
+
+
+*****
+
+####  怀旧战士  
+##### 46#       发表于 2025-6-9 02:37
+
+这画面一个感觉就是犹如黄油般的廉价感
+
+P3R看上去明明很惊艳
+
