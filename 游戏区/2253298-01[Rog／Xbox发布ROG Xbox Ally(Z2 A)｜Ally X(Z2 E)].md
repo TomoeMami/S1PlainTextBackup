@@ -762,3 +762,17 @@ rog自己的allyx都要卖6k5
 看出来时如何吧 xbox app 在任何平台体验都很烂
 好像是 react native 写的 怪不到框架 tesla 也是 rn xbox app 体验甚至不如机核（也是 rn
 
+
+*****
+
+####  zid99825  
+##### 74#       发表于 2025-6-9 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909068&amp;ptid=2253298" target="_blank">iou90 发表于 2025-6-9 19:05</a>
+嗯 要不也达不到宣传的达到 windows 1/3 的程度了
+
+看出来时如何吧 xbox app 在任何平台体验都很烂</blockquote>
+其实嘛，xbox app非常重<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，超级多的hook和跨进程通讯，自己本身又没什么功能
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
