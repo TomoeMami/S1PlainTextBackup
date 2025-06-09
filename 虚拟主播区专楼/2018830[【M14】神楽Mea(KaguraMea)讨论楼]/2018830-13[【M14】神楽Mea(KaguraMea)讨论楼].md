@@ -28979,3 +28979,15 @@ t台开播了，右上的头像直接变成狼mea了草
 <img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">那只能当搜达哟的复读机了，要那些人一个不在岂不是会变成2.14的情况
 真的不想再有那样的事情发生了<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 18691#       发表于 2025-6-9 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904575&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-9 01:50</a>
+观众或许永远都抵达不了能够在哪里帮上她的真实吧，毕竟发火发完了以后就下播，再之后发生了什么，主播选择 ...</blockquote>
+无解的，单个观众就发发留言已经影响不大了，发发留言能引导她的情绪走向那真可以讨论观众和主播恋爱相关的可能性了
+
+连麦才能形成情绪影响，从这点上对观众来说已经结束了，看她自己吧，她这套menhera连招只能自己打完才能有发泄
+
