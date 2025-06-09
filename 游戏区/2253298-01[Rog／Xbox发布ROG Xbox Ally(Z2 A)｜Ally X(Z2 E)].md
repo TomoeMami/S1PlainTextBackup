@@ -503,3 +503,19 @@ Z2E那款价格不知道多少有可能699/799刀. 就...尊重, 祝福
 
 比较关心能不能给普通电脑装这个，毕竟现在Windows对我来说的唯一意义就是打游戏
 
+
+*****
+
+####  luffyzhou  
+##### 49#       发表于 2025-6-9 12:29
+
+我等支持ally1代的精简win11+官方steamos的双系统教程<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">，现在是win11+奇美拉os，平时主要运行在后者上，玩fifa的时候切win11……
+
+
+*****
+
+####  tsubasa9  
+##### 50#       发表于 2025-6-9 12:34
+
+就win11这个鬼样子，你们还信阿三码农能做出好的精简win？
+
