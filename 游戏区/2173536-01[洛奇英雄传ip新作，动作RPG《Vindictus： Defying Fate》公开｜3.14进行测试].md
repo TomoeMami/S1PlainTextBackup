@@ -804,3 +804,13 @@ PSN的试玩还没出么，搜不到</blockquote>
 后面升了几级加强化完武器后再打地精没那么痛苦了
 就是这绿矿石和中级磨刀石都要联机掉而且联机boss没晕眩槽一下子就变等boss后摇然后打一套滚走的循环就非常没意思<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 201#       发表于 2025-6-10 02:55
+
+机动比魂游强，操作比黑猴呆板，比起一水量产棒游倒能感觉到有想好好做，但主线明显还是网游那套又水又长，没什么关卡设计
+
+感觉还是得靠不断出角色卖皮肤才能救，毕竟底子是真不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
