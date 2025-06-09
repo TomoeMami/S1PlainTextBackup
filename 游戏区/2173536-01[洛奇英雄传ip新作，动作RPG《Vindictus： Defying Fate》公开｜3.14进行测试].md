@@ -715,3 +715,20 @@ PSN的试玩还没出么，搜不到
 
 不过韩游这氪金体验，能期待吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xgazer  
+##### 191#       发表于 2025-6-9 23:52
+
+是有什么系统我没有掌握吗，熊太肉了吧！<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+而且技能对它好像也没什么作用，cd转好了放就行。。
+
+*****
+
+####  laoz  
+##### 192#       发表于 2025-6-9 23:55
+
+全程大剑单人剩两只招募没打，技能树挺幽默的，除了技能后接重击有点额外的体验以外其他就TM喝药速度能明显体现我点了技能树，但是每个技能一场boss战撑死只能用两次，有个甚至一场就只能用一次，大部分时间全靠精防重击派生突刺处理，体验真的不行
+

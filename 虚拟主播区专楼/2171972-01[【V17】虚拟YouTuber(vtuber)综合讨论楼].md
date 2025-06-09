@@ -309,3 +309,13 @@ syl，兔头给月之人偶买的新衣服好可爱
 
 咋的，日推那边炎上了吗？我还是今天刷小红书刷到集美说叶塌房才点进去看了下咋回事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 1210#       发表于 2025-6-9 23:53
+
+这算是被恶意剪辑了吧，rrm本来关系和ファン太没这么差，偶尔还开黑打打枪之类的，这次gta一上来就到处说共演ng，应该是在抛梗。真正的共演ngファン太那是连距离走到五步内都不敢...
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
