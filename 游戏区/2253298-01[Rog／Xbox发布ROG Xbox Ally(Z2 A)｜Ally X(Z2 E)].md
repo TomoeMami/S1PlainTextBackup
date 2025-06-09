@@ -535,3 +535,44 @@ Z2E那款价格不知道多少有可能699/799刀. 就...尊重, 祝福
 
 有点在意这个简化版win11的更新策略是什么，是直接跟着普通win11走还是xbox团队自己更新。如果是xbox自己更新的话能支持几年也是个问题，更别提过几年可能都win12了。还是有很多问题有待观察啊
 
+
+*****
+
+####  大暴死  
+##### 53#       发表于 2025-6-9 13:39
+
+微软画的超过一年的饼先当它不存在就好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过邮局港剧，明年sd2的硬件规格考虑到定价和定位，大概率就是z2e水平。如果sd2表现不错，ns2+sd2可以玩到ps7了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zid99825  
+##### 54#       发表于 2025-6-9 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906445&amp;ptid=2253298" target="_blank">darkjack 发表于 2025-6-9 11:46</a>
+
+介绍说可以运行整个xbox游戏库，能原生运行360,one的游戏还有点意义。</blockquote>
+xbox库微软内部还在做，现在支持的只有XPA游戏
+
+*****
+
+####  zid99825  
+##### 55#       发表于 2025-6-9 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906960&amp;ptid=2253298" target="_blank">dududa 发表于 2025-6-9 13:30</a>
+
+有点在意这个简化版win11的更新策略是什么，是直接跟着普通win11走还是xbox团队自己更新。如果是xbox自己更 ...</blockquote>
+跟windows，本质上是启动时限制desktop和后台服务，加上自启xbox这边做的dashboard和task view。系统本身并没有被删除东西
+
+*****
+
+####  zid99825  
+##### 56#       发表于 2025-6-9 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906694&amp;ptid=2253298" target="_blank">tsubasa9 发表于 2025-6-9 12:34</a>
+
+就win11这个鬼样子，你们还信阿三码农能做出好的精简win？</blockquote>
+xbox组自己去搞的。
+
