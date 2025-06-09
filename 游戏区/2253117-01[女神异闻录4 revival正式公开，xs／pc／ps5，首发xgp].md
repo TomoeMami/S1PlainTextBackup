@@ -1063,3 +1063,23 @@ good enough for xgp
 还真是自证废物了</blockquote>
 零组下一个新作说不定又是八年后发售
 
+
+*****
+
+####  Sopp  
+##### 115#       发表于 2025-6-9 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910169&amp;ptid=2253117" target="_blank">抽烟的猴 发表于 2025-6-9 22:52</a>
+
+零组下一个新作说不定又是八年后发售</blockquote>
+时间还不是关键问题
+
+别是暗喻换皮就行
+
+*****
+
+####  heseran  
+##### 116#       发表于 2025-6-9 23:08
+
+零组下一部作品不是暗喻幻想国王版吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
