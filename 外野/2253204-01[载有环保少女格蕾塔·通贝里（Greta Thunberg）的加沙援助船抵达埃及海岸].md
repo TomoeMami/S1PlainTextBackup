@@ -810,3 +810,16 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 “都是哈马斯”</blockquote>
 如果接下来和马斯克一样转变，那我只能说环保少女不过如此。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TTAA  
+##### 82#       发表于 2025-6-9 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908977&amp;ptid=2253204" target="_blank">遗尿 发表于 2025-6-9 18:48</a>
+如果接下来和马斯克一样转变，那我只能说环保少女不过如此。</blockquote>
+其实要真是用一段视频就把格雷塔忽悠走了反而显得鱿鱼露怯，鱿鱼军宣真有这么神相关视频早就在电报群各自流传了
+这事如果真如你所说，细想下哈马斯短时间还是会在舆论上吃亏。现在格雷塔很大程度上成了欧美白左代言人，如果发生转变，白左群体就此产生分裂也说不定
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
