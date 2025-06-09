@@ -692,3 +692,22 @@ pv已经稳了，从来没有如此美妙的开局
 
 这预告挺好的，免得我还要重玩一遍
 
+
+*****
+
+####  siansian  
+##### 77#       发表于 2025-6-9 09:31
+
+ 本帖最后由 siansian 于 2025-6-9 09:36 编辑 
+
+atlus：我保留了原来的画质，才让你知道玩的是原汁原味的P4<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Amami_Haruka_  
+##### 78#       发表于 2025-6-9 09:31
+
+<blockquote>chivalry 发表于 2025-6-9 02:20
+为啥没 ns2</blockquote>
+p5r那时候xbox和ns也是各开各的。
+
