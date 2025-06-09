@@ -3726,3 +3726,15 @@ Z还有挺多机能出的，UR百式和卡碧尼甚至86骡子也有台零式，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">00第二季和观星者什么时候上
 
+
+*****
+
+####  rockroxas  
+##### 1818#       发表于 2025-6-9 18:13
+
+PVP这个改动让平民怎么活啊……
+
+这次还一堆核弹
+
+这个所谓的地图活动，还以为是地图内捡东西打完算数，现在看根本就是肉鸽
+
