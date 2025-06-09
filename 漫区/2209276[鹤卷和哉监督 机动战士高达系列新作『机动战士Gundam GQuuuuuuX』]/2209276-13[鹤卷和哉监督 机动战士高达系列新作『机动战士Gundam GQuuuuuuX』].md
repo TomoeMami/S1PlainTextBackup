@@ -380,3 +380,24 @@
 黑泽：
 第9话中拉拉的登场就是那么回事……相信各位“木星归来”的粉丝们，光凭这点就能领会到什么了吧(笑)。请大家一定不要错过，直到最后一幕哦！
 
+
+*****
+
+####  岸浪白野  
+##### 17775#       发表于 2025-6-10 02:35
+
+总共2本杂志，有空的可以直接看上面原文
+
+
+*****
+
+####  无念  
+##### 17776#       发表于 2025-6-10 02:42
+
+我也倾向于93骡鸭不会明着出现，可能决战番茄会开聊天室看见对面的骡子然后通过台词来告诉我们她看见了谁
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">接下来就被传送几个海牛浮游炮或者福冈牛浮游大炮来破局
+省了cv争议，老登看了高潮，狗代成功带货<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+这么说起来pgu牛要出了啊，是原版牛的配件也不是没可能呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
