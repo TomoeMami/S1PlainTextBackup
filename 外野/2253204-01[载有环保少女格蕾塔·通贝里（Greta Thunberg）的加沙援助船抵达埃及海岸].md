@@ -757,3 +757,14 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 
 非暴力对鱿鱼没有任何卵用
 
+
+*****
+
+####  卡普空  
+##### 77#       发表于 2025-6-9 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907593&amp;ptid=2253204" target="_blank">metalwill 发表于 2025-6-9 15:25</a>
+
+鱿鱼外交部回应了.往自媒体炒作上头带节奏,说这是个自拍游艇,物资不多,也就一卡车的量. ...</blockquote>
+别说一卡车的量，就算一自行车的量，被以色列炸死的风险也是一样的啊
+

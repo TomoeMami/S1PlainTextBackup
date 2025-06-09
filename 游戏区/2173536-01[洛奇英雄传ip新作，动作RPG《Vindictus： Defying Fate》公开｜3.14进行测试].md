@@ -424,3 +424,16 @@ dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉 ...</b
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Andariel  
+##### 162#       发表于 2025-6-9 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908035&amp;ptid=2173536" target="_blank">华发夜眼[CN] 发表于 2025-6-9 16:26</a>
+是4k 旅馆里站着不动 主要是非窗口模式也不能调分辨率啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">4k那正常了
+70ti毕竟4k入门卡，又赶上ue5这个贼难优化的和棒子的菜逼技术
+
