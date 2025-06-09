@@ -119,3 +119,40 @@ steam不限额测试
 但是我记不得能微调身形了，难道是国服阉割了这个功能么 ...</blockquote>
 至少前几年还一直有的，后面没玩了
 
+
+*****
+
+####  Andariel  
+##### 130#       发表于 2025-6-9 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906131&amp;ptid=2173536" target="_blank">水边井 发表于 2025-6-9 10:59</a>
+这个现在都还没说是纯单机还是共斗吧</blockquote>
+可以共斗，也可以单人带ai队友
+
+*****
+
+####  kuglv  
+##### 131#       发表于 2025-6-9 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906131&amp;ptid=2173536" target="_blank">水边井 发表于 2025-6-9 10:59</a>
+
+这个现在都还没说是纯单机还是共斗吧</blockquote>
+这次说是可以联机组队，但是好像不能指定好友，只能用匹配功能随机组队
+
+*****
+
+####  Andariel  
+##### 132#       发表于 2025-6-9 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906161&amp;ptid=2173536" target="_blank">kuglv 发表于 2025-6-9 11:03</a>
+至少前几年还一直有的，后面没玩了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">看到你说的身形影响攻击范围我好像有点印象了
+昨天已经下好了，中午回家试试，捏个大屁股大粗腿看看<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiの  
+##### 133#       发表于 2025-6-9 11:08
+
+今天回家试试看，反正网游现在都是只挂机不打本了，上次测试的时候显卡是A卡游BUG打BOSS就卡死，这次换成70S了希望顺利吧
+

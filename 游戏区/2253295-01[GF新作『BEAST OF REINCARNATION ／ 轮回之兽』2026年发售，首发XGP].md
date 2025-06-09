@@ -760,3 +760,27 @@ gf：你知道的，斯宾塞是我的兄弟，至于宝可梦，宝批们骂完
  ...</blockquote>
 如何评价特效，我感觉完全是一坨屎啊，程序化生成调都没调
 
+
+*****
+
+####  GuardHei  
+##### 77#       发表于 2025-6-9 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906097&amp;ptid=2253295" target="_blank">绿冰 发表于 2025-6-9 10:55</a>
+……不免感叹有些大厂怎么连大学生水平的画面都拿不出来，虚幻5导致的画面差距是真的小 ...</blockquote>
+赞美这光荣的进化吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+哈哈开玩笑的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  simonroam  
+##### 78#       发表于 2025-6-9 11:13
+
+看下来起码审美这块没问题，用UE5起码开发环境这块要比做宝可梦好多了吧
+
+试想下你是个新人，是用UE5好还是用那帮老登写的内部祖传工具好呢
+
+UE5优化不好可以砍特效啊，实在不行可以多花钱招资深开发，这就是成熟商业引擎的好处
+
