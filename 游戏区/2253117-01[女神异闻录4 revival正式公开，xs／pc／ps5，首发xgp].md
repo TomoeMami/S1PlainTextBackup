@@ -624,3 +624,23 @@ p5流程上全方面改进，把剧情节点分成了一个个起承转合完整
 
 不过P4R肯定是要玩的
 
+
+*****
+
+####  leommoo  
+##### 69#       发表于 2025-6-9 09:14
+
+看了下我的steam库，发现居然还买了，回忆了下psv的也买过<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+一股子刚立项的样子，怎么看都是明年才会有实机，然后sb阿特拉斯大概率搞到27年发售<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 70#       发表于 2025-6-9 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904840&amp;ptid=2253117" target="_blank">plok201 发表于 2025-6-9 02:53</a>
+
+你们说这东西完成度有多少，现在这个PV感觉是一个月前临时立项的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">新建文件夹的水平 这个pv说不定是昨天刚做的
+
