@@ -259,3 +259,13 @@ steam不限额测试
 
 dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉到八九十了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫不理prime  
+##### 145#       发表于 2025-6-9 13:49
+
+我伊菲呢，我伊菲呢，我伊菲呢！
+
+—— 来自 HONOR PTP-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
