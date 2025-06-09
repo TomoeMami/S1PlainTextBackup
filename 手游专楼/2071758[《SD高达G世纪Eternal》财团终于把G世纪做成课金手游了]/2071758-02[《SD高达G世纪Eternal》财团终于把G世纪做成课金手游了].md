@@ -3697,3 +3697,24 @@ Z还有挺多机能出的，UR百式和卡碧尼甚至86骡子也有台零式，
 平民双援攻+平民坚牢 不错</blockquote>
 什么意思？
 
+
+*****
+
+####  光辉传递者  
+##### 1815#       发表于 2025-6-9 16:46
+
+ 本帖最后由 光辉传递者 于 2025-6-9 16:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908030&amp;ptid=2071758" target="_blank">plok201 发表于 2025-6-9 16:25</a>
+
+Z还有挺多机能出的，UR百式和卡碧尼甚至86骡子也有台零式，这次活动有Z高达词条应该是有想法的吧 ...</blockquote>算起来骡子还有Z PLUS吧？
+
+*****
+
+####  kenqqex  
+##### 1816#       发表于 2025-6-9 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908090&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-6-9 16:32</a>
+
+什么意思？</blockquote>
+下个活动送的wz少爷 坐w系机体双援攻
+
