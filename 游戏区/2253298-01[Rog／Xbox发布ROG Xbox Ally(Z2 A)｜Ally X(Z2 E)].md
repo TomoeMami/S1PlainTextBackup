@@ -459,3 +459,13 @@ Z2A何止是SD的对手, 性能都和SD差不多<img src="https://static.stage1s
 
 Z2E那款价格不知道多少有可能699/799刀. 就...尊重, 祝福
 
+
+*****
+
+####  医生狼多  
+##### 44#       发表于 2025-6-9 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905105&amp;ptid=2253298" target="_blank">yyccq 发表于 2025-6-9 08:03</a>
+休眠性能怎么样？能像SD那样随开随玩吗？</blockquote>
+可以，和sd差不多
+
