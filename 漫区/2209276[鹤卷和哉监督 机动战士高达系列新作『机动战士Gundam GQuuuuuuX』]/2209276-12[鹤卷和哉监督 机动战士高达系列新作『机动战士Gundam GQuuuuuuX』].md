@@ -18108,3 +18108,18 @@ X 上的 タカフミ@TALI：“ジークアクスのニャアン。 #G ...</blo
 [https://x.com/gquuu_06/status/1931643439961284864](https://x.com/gquuu_06/status/1931643439961284864)
 <img src="https://p.sda1.dev/24/112ba28223dfdc491e587f4dc63d8371/20250609_114408.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 17694#       发表于 2025-6-9 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906399&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-9 11:39</a>
+
+实在是太像这片会干的事，以至于可信度看起来很高（</blockquote>
+主要是透的也太详细，基本把谜底都揭露了，不像是假的，面上三人组就是勾着新人骗去补老作品的钩子，包括之前的魔女也是。
+
+既然希洛克登场会很麻烦，那么我们把原版鸭骡拿来不就平衡好了。
+
+突然意识到，这个手电筒，该不会是能做到“把智慧马上交给愚民”的玩意把。。
+

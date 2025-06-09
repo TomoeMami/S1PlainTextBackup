@@ -167,3 +167,13 @@ steam不限额测试
 对味了</blockquote>
 金币是付费货币？能在游戏里获取吗
 
+
+*****
+
+####  三谷歩夢  
+##### 135#       发表于 2025-6-9 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906286&amp;ptid=2173536" target="_blank">水边井 发表于 2025-6-9 11:20</a>
+金币是付费货币？能在游戏里获取吗</blockquote>
+开箱子就有，正式版不清楚
+
