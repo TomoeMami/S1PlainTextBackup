@@ -747,3 +747,18 @@ rog自己的allyx都要卖6k5
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  iou90  
+##### 73#       发表于 2025-6-9 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909010&amp;ptid=2253298" target="_blank">zid99825 发表于 2025-6-9 18:54</a>
+说是desktop本身就没启动，程序窗口本身是dwm渲染的，所以理论上应该就是最大化窗口
+
+不过按微软之前的想 ...</blockquote>
+嗯 要不也达不到宣传的达到 windows 1/3 的程度了
+
+看出来时如何吧 xbox app 在任何平台体验都很烂
+好像是 react native 写的 怪不到框架 tesla 也是 rn xbox app 体验甚至不如机核（也是 rn
+
