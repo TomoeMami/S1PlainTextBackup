@@ -784,3 +784,35 @@ gf：你知道的，斯宾塞是我的兄弟，至于宝可梦，宝批们骂完
 
 UE5优化不好可以砍特效啊，实在不行可以多花钱招资深开发，这就是成熟商业引擎的好处
 
+
+*****
+
+####  虚无连斩  
+##### 79#       发表于 2025-6-9 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906092&amp;ptid=2253295" target="_blank">TheOccuria 发表于 2025-6-9 10:55</a>
+
+gf：你知道的，斯宾塞是我的兄弟，至于宝可梦，宝批们骂完记得买
+
+看pv感觉是个剑星级别的作品，感叹一下通 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问题是播片都在掉帧吧……就虚幻5目前出现的游戏都是渣优化这点来看，我感觉大部分人电脑都得跪
+
+*****
+
+####  windtrack  
+##### 80#       发表于 2025-6-9 11:18
+
+从视频看就是个UE5量产品，没什么好看的
+
+不过是个GF证明自己宝可梦做的烂跟自己没关系的机会了
+
+虽然我觉得最后会证明烂的就是GF
+
+
+*****
+
+####  herryk159  
+##### 81#       发表于 2025-6-9 11:20
+
+希夫怎么跑路这里了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">, 质感都一模一样
+

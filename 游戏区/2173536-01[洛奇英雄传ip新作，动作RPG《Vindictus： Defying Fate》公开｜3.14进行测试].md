@@ -156,3 +156,14 @@ steam不限额测试
 
 今天回家试试看，反正网游现在都是只挂机不打本了，上次测试的时候显卡是A卡游BUG打BOSS就卡死，这次换成70S了希望顺利吧
 
+
+*****
+
+####  水边井  
+##### 134#       发表于 2025-6-9 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905998&amp;ptid=2173536" target="_blank">kuglv 发表于 2025-6-9 10:43</a>
+
+对味了</blockquote>
+金币是付费货币？能在游戏里获取吗
+
