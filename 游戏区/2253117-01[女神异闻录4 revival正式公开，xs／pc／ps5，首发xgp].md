@@ -644,3 +644,51 @@ p5流程上全方面改进，把剧情节点分成了一个个起承转合完整
 你们说这东西完成度有多少，现在这个PV感觉是一个月前临时立项的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">新建文件夹的水平 这个pv说不定是昨天刚做的
 
+
+*****
+
+####  黑修士  
+##### 71#       发表于 2025-6-9 09:17
+
+估计又是原版重置，XGP最近的阵容真不错
+
+其他平台割韭菜的同时也给手游联动添了素材<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 72#       发表于 2025-6-9 09:18
+
+才刚刚新建文件夹，这油腻的一点都不符合4代的小镇基调<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 73#       发表于 2025-6-9 09:19
+
+好幽默，给人看笑了
+
+
+*****
+
+####  naclken.  
+##### 74#       发表于 2025-6-9 09:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">黄金版上了PC之后还是出入巴掌大一个房间就要读盘
+
+全镇的地图全加载了也只占很少的内存，还是要读盘读盘读盘
+
+*****
+
+####  空气先生  
+##### 75#       发表于 2025-6-9 09:23
+
+pv已经稳了，从来没有如此美妙的开局
+
+*****
+
+####  辞冬  
+##### 76#       发表于 2025-6-9 09:25
+
+这预告挺好的，免得我还要重玩一遍
+
