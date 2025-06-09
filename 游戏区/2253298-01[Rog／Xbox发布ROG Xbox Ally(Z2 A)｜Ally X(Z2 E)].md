@@ -776,3 +776,15 @@ rog自己的allyx都要卖6k5
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  indtability  
+##### 75#       发表于 2025-6-9 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909027&amp;ptid=2253298" target="_blank">zid99825 发表于 2025-6-9 18:57</a>
+按rog的定价，那就是499/799。win授权oem也就差不多1刀，没什么影响
+
+论坛助手,iPhone ...</blockquote>
+这么低啊，我以为怎么说几十刀呢，之前联想那个两个版本差了一百刀有点误导了。
+
