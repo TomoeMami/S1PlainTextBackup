@@ -494,3 +494,22 @@ https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2133773&amp;extra=&amp;
 
 GF的非宝游戏我就玩过一个，一股小厂独游的味道…
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 54#       发表于 2025-6-9 07:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这很难评
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wanghuanqishi  
+##### 55#       发表于 2025-6-9 07:49
+
+宝可梦做的差，不就是因为做这些了吗，这逻辑才对吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
