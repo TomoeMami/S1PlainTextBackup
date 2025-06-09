@@ -929,3 +929,63 @@ p4r嘛，good for xgp
 
 P6真有做吗？怕不是文件夹都没建吧
 
+
+*****
+
+####  Hinanya  
+##### 104#       发表于 2025-6-9 17:18
+
+ 本帖最后由 Hinanya 于 2025-6-9 17:23 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/09/171436xpv14mf09f9dosof.png" referrerpolicy="no-referrer">
+
+<strong>9be68c808b7928b187c5de217cf878a7.png</strong> (88.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 17:14 上传
+
+这是经典电视颜色卡。
+
+<img src="https://img.stage1st.com/forum/202506/09/171435nttpbru4pyddwfby.png" referrerpolicy="no-referrer">
+
+<strong>854bb09a34480984d7c4cd0d3598598c.png</strong> (13.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 17:14 上传
+
+这是P4G的颜色卡。
+
+<img src="https://img.stage1st.com/forum/202506/09/171435pi8gzuo61ivziuiz.png" referrerpolicy="no-referrer">
+
+<strong>068985e97494af711b722fb364a843c4.png</strong> (32.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 17:14 上传
+
+这是P4R PV1 logo的颜色卡。
+
+为什么Persona 4 Runningman没有蓝色？
+
+不知道是故意的还是纯粹不上心。
+
+阿特拉斯你到底在干什么阿（大嘘）
+
+*****
+
+####  Redimercia  
+##### 105#       发表于 2025-6-9 17:19
+
+2025年了怎么还能端出这种黄油质感的pv啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">明明负责着公司里最赚钱的IP产品，技术力怎么还能被隔壁做老登游戏的SMT按着揍啊
+
+*****
+
+####  星野航  
+##### 106#       发表于 2025-6-9 17:23
+
+又双叒叕的一提
+
+为什么还要期待和田和久？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

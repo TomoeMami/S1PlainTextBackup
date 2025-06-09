@@ -768,3 +768,13 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 鱿鱼外交部回应了.往自媒体炒作上头带节奏,说这是个自拍游艇,物资不多,也就一卡车的量. ...</blockquote>
 别说一卡车的量，就算一自行车的量，被以色列炸死的风险也是一样的啊
 
+
+*****
+
+####  民工业  
+##### 78#       发表于 2025-6-9 17:15
+
+<img src="https://p.sda1.dev/24/5ebea3b835bb22d7161a0d5cda9c2429/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
