@@ -833,3 +833,11 @@ gamebar很好啊 我现在看表截图全靠按西瓜键 steam那截图画质损
 这么低啊，我以为怎么说几十刀呢，之前联想那个两个版本差了一百刀有点误导了。 ...</blockquote>
 这两者的性能差距比的上XSS和XSX了.
 
+
+*****
+
+####  含恨未了切莫死  
+##### 80#       发表于 2025-6-10 07:32
+
+2025年了还有sd同款处理器，开眼了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

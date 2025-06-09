@@ -1091,3 +1091,13 @@ good enough for xgp
 
 看这pv 27年能玩到不错了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 118#       发表于 2025-6-10 07:34
+
+<blockquote>eat路人甲 发表于 2025-6-10 03:43
+看这pv 27年能玩到不错了，希望重制能别加上g里那个破共犯结局</blockquote>
+让新p组不卖腐你觉得可能吗，不把玛丽弄成女路人就很好了
+
