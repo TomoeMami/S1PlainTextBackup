@@ -114,3 +114,15 @@
 
 关了垂直同步能几乎不用技能打过BOSS挑战。
 
+
+*****
+
+####  iceblue  
+##### 2244#       发表于 2025-6-9 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908285&amp;ptid=1978008" target="_blank">紫苑寺美琴 发表于 2025-6-9 17:01</a>
+感觉手感最好的还是关垂直同步+开nvdia reflex，弹反性能相当优秀了
+
+另外这一堆花里胡哨的连段，除了轻轻重 ...</blockquote>
+后期出爆发技能树后开超频重轻轻重长按，打得boss还不了手，boss如果锁血换阶段次元斩砍倒厚继续无脑复读
+
