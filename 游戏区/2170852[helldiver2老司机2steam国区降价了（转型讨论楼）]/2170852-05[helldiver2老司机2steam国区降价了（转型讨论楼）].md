@@ -7728,3 +7728,11 @@ woc，被刺瑶炸惨了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">感觉现在核弹手枪在东线一定程度上都能当500kg用了
 
+
+*****
+
+####  狭义文具爱好者  
+##### 6642#       发表于 2025-6-9 22:12
+
+刚打完光能就去打龙息喷花蚊子可不少人，光能一回来mo星球晚上一看五万人上下
+

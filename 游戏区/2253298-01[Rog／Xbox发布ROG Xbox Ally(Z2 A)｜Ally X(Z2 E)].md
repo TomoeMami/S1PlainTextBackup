@@ -788,3 +788,13 @@ rog自己的allyx都要卖6k5
 论坛助手,iPhone ...</blockquote>
 这么低啊，我以为怎么说几十刀呢，之前联想那个两个版本差了一百刀有点误导了。
 
+
+*****
+
+####  cody198879  
+##### 76#       发表于 2025-6-9 22:10
+
+rog的机器，从来不便宜，1代ally首发可是5k的，只是货产的太多，allyx首发7k，现在5k6，新的xbox机型价格不会和这个差太多
+
+—— 来自 HONOR PTP-AN70, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
