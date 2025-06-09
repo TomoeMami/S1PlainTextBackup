@@ -45,3 +45,21 @@
 麻球对安琪也 ...</blockquote>
 一日夫妻百日恩呀<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 17766#       发表于 2025-6-10 01:26
+
+产能不就看有没有足够的市场吗？
+有足够的市场自然就有投资来扩大产能
+
+*****
+
+####  久井路路  
+##### 17767#       发表于 2025-6-10 01:28
+
+老实说我甚至有点怀疑是故意给自己这个论点找争议的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说麻球是个忘恩负义的人这件事我是没有意见的，不管是对父母挂念得有限、还是喵安帮她打军团战她第一反应是你为什么抢走我的位置，有不止一个支持这个论点的论据，偏偏挑了说服力最倒数的一个“忘恩负义”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
