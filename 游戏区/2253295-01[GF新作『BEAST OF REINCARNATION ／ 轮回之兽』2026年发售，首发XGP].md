@@ -595,3 +595,82 @@ GF的非宝游戏我就玩过一个，一股小厂独游的味道…
 
 怎么突然想起LEVEL5了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky117  
+##### 64#       发表于 2025-6-9 10:07
+
+震惊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuardHei  
+##### 65#       发表于 2025-6-9 10:09
+
+<img src="https://img.stage1st.com/forum/202506/09/100927j004y0rwzg00ax0r.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6018.JPG</strong> (882.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/09/100928gso9ryyzmu19d8up.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6017.JPG</strong> (976.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/09/100929h7yfn74j042pdlff.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6016.JPG</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/09/100929wh6oaaoch3odd7oa.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6015.JPG</strong> (2.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:09 上传
+
+就这画面…gf果然还是很拉，全靠ue5顶着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  巴尔干炮  
+##### 66#       发表于 2025-6-9 10:11
+
+动作游戏这种帧数。。。。。
+
+*****
+
+####  monolithsoft  
+##### 67#       发表于 2025-6-9 10:13
+
+用UE5做UE4水平的游戏
+
+GEN10肯定强到离谱，达到UE3顶级水平！
+
+*****
+
+####  绿冰  
+##### 68#       发表于 2025-6-9 10:16
+
+<blockquote>GuardHei 发表于 2025-6-9 10:09
+就这画面…gf果然还是很拉，全靠ue5顶着
+
+—— 来自 S1Fun</blockquote>
+你说帧数我也挺拉的，画面的话其实拉在哪？
+
+我个人感觉比帕鲁那种虚幻5看起来好多了
+
