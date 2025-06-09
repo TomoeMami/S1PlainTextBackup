@@ -1123,3 +1123,40 @@ GF可以干脆闷声发大财，但他不，他要搞最强御三家团战和背
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 107#       发表于 2025-6-9 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60803877&amp;ptid=2133773" target="_blank">Aeroblast 发表于 2023-5-10 20:56</a>
+
+同类型是指训练师类型？抓宠打架需要有足够多的IP形象，这一点宝可梦全年龄渗透的先发优势和加上长期多媒 ...</blockquote>
+别忘了有妖怪手表，不需要达到宝可梦的水平，叫好叫座的作品完全能做出来
+
+*****
+
+####  何处可分  
+##### 108#       发表于 2025-6-9 16:28
+
+kan
+
+说什么，套一个标准虚幻模板给宝批看高潮了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 高潮了宝可梦也是那一坨的垃圾渲染
+
+*****
+
+####  陈词与芍药  
+##### 109#         楼主| 发表于 2025-6-9 16:31
+
+居然出来了……
+
+[论坛助手,iPad](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  awy002  
+##### 110#       发表于 2025-6-9 16:34
+
+还说泥潭讨论氛围比黑盒好吗，黑盒最不济还能查成分，泥潭什么傻逼都能说一嘴
+

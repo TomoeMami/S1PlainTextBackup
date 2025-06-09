@@ -729,3 +729,31 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 
 论迹不论心，只能说鱿鱼缺德事干太多了
 
+
+*****
+
+####  风景很好  
+##### 74#       发表于 2025-6-9 16:30
+
+<blockquote>发财就收 发表于 2025-6-9 16:16
+据说凶手所属的组织是现在的以色列执政党</blockquote>
+最讽刺这组织领导人还拿了诺贝尔和平奖
+
+*****
+
+####  The_Ether_  
+##### 75#       发表于 2025-6-9 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907593&amp;ptid=2253204" target="_blank">metalwill 发表于 2025-6-9 15:25</a>
+
+鱿鱼外交部回应了.往自媒体炒作上头带节奏,说这是个自拍游艇,物资不多,也就一卡车的量. ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也就一卡车的量还行，这船也不大吧
+
+
+*****
+
+####  Edward0901  
+##### 76#       发表于 2025-6-9 16:33
+
+非暴力对鱿鱼没有任何卵用
+

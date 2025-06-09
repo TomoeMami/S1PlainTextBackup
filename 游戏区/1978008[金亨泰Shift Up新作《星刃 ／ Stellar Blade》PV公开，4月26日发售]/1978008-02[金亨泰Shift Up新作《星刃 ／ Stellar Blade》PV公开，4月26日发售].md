@@ -73,3 +73,18 @@
 
 怎么感觉被针对了，之前发售日提前公布，这更新包也能提前放出来
 
+
+*****
+
+####  Mephisto  
+##### 2241#       发表于 2025-6-9 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907657&amp;ptid=1978008" target="_blank">NameLess2501 发表于 2025-6-9 15:35</a>
+
+先看看是不是开了垂直同步，开了垂直同步的话弹反基本靠猜，连弹更是不可能。
+
+有人测试了弹反，防御动作 ...</blockquote>
+啊对，只狼我还能看招，这个游戏我就是随缘弹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不开垂直同步会简单点？
+
+主要是还想有点交互，技能压制是很强，但太无聊了
+
