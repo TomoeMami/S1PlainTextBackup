@@ -155,3 +155,11 @@ fw自己唱真的是声音又薄又平又扯，但是给人和声不管是和高
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Devi_Lito  
+##### 1195#       发表于 2025-6-9 16:16
+
+にじアン猜了几个月今年虹甲的新人监督阵容，结果今年虹甲没有新人监督<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
