@@ -98,3 +98,19 @@
 
 另外这一堆花里胡哨的连段，除了轻轻重重，还有比较好用的吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NameLess2501  
+##### 2243#       发表于 2025-6-9 17:15
+
+<blockquote>Mephisto 发表于 2025-6-9 16:29
+啊对，只狼我还能看招，这个游戏我就是随缘弹，不开垂直同步会简单点？
+
+主要是还想有点交互，技能压制是 ...</blockquote>
+不是一个游戏。
+
+开垂直同步小怪的二连都弹不了。
+
+关了垂直同步能几乎不用技能打过BOSS挑战。
+

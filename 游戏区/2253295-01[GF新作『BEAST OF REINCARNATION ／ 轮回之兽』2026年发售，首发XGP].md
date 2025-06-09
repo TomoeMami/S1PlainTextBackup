@@ -892,3 +892,14 @@ gf还是二刺螈萌萌哒的人设更好，画面感觉也只是引擎的功劳
 由手机上传
 2025-6-9 16:07 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 89#         楼主| 发表于 2025-6-9 17:13
+
+中字
+
+【《Beast of Reincarnation》2026年首发加入XGP】 
+[https://b23.tv/cuj1zuI](https://b23.tv/cuj1zuI)
+

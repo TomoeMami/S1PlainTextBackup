@@ -3718,3 +3718,11 @@ Z还有挺多机能出的，UR百式和卡碧尼甚至86骡子也有台零式，
 什么意思？</blockquote>
 下个活动送的wz少爷 坐w系机体双援攻
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1817#       发表于 2025-6-9 17:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">00第二季和观星者什么时候上
+
