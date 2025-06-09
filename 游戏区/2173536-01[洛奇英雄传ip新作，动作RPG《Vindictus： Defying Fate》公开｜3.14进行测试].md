@@ -226,3 +226,11 @@ steam不限额测试
 
 不知道是不是错觉，烈士塔感觉比上个demo手感好了一点，主要是打击音效
 
+
+*****
+
+####  荆棘花冠  
+##### 142#       发表于 2025-6-9 12:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这次时装加挺多的，水球奶也强化了
+
