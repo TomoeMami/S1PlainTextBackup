@@ -234,3 +234,13 @@ steam不限额测试
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这次时装加挺多的，水球奶也强化了
 
+
+*****
+
+####  Koromoda  
+##### 143#       发表于 2025-6-9 13:05
+
+数了一下女角色22套时装，属实造福mod社区了。
+
+—— 来自 HONOR PTP-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
