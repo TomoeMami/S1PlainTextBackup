@@ -481,3 +481,29 @@ dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉 ...</b
 
 为啥我一直报告 1970 年测试未开始，这个时间戳错误是咋回事
 
+
+*****
+
+####  Andariel  
+##### 168#       发表于 2025-6-9 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908889&amp;ptid=2173536" target="_blank">你知道我的 发表于 2025-6-9 18:30</a>
+为啥我一直报告 1970 年测试未开始，这个时间戳错误是咋回事</blockquote>
+要开加速器
+
+*****
+
+####  会长辅佐  
+##### 169#       发表于 2025-6-9 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908889&amp;ptid=2173536" target="_blank">你知道我的 发表于 2025-6-9 18:30</a>
+为啥我一直报告 1970 年测试未开始，这个时间戳错误是咋回事</blockquote>
+挂个uu啥的就能进了，概率被墙
+
+*****
+
+####  frankCC  
+##### 170#       发表于 2025-6-9 18:41
+
+除了下半身感觉一般。数值巨刮，俩raid boss打得跟mmo一样。地图完全一<strong></strong><strong></strong>本道，这么多年一点进步没有。系统也很简陋，那点数值成长跟开玩笑似的。四个职业卡鲁没玩，盾娘精防收益好低，呆梨技能又不全，烈士塔直接咸鱼翻身。
+
