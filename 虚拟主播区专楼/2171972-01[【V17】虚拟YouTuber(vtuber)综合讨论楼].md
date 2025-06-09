@@ -319,3 +319,16 @@ syl，兔头给月之人偶买的新衣服好可爱
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Harunoharu  
+##### 1211#       发表于 2025-6-10 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910477&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2025-6-9 23:53</a>
+
+这算是被恶意剪辑了吧，rrm本来关系和ファン太没这么差，偶尔还开黑打打枪之类的，这次gta一上来就到处说共 ...</blockquote>
+恶意剪辑是指事发之后持续强调说ファン太很恶心，让老叶管管他别靠近其他女生不然受害者会变多，和一堆人讲了这件事甚至在和条子打电话的时候直接用“トラウマ”“恐惧”这些直接性的词吗，那作为节目效果来说范围还是挺大的哈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过日本人肯定不会觉得有啥，毕竟连mitti这种男的都能在发生一堆破事暴言之后若无其事的直播混进瓦满编呢<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
