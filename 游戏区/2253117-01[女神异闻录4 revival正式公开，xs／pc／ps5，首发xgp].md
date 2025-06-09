@@ -894,3 +894,13 @@ p6还拿不出来新p组在干嘛</blockquote>
 
 这下能在P6之前在PC上玩上GTA6了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninini212  
+##### 100#       发表于 2025-6-9 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">别人高清重置你同时代3D重制是吧
+
+给我气笑了，另外看这个架势大概率是分割商法，一起重制然后P4G内容卖DLC
+
