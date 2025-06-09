@@ -368,3 +368,16 @@ syl，兔头给月之人偶买的新衣服好可爱
 
 顺带一提rrm在和条子说这件事的时候用词不仅把条子吓了一跳甚至当时在旁边听了全程的hnn重启游戏（还是下播）的时候都特地问了观众发生什么事了，最后说セクハラ也是有人接受有人不接受的，在不相关主播眼里都这样了如果只是neta的话那也是玩的很失败的neta了吧
 
+
+*****
+
+####  poipanchao  
+##### 1214#       发表于 2025-6-10 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910635&amp;ptid=2171972" target="_blank">Harunoharu 发表于 2025-6-10 00:43</a>
+
+是関悠太，kenki和rrm又不熟，至于日本人的社交说辞听听就好了，加藤纯一出轨开审判直播那会他老婆还喊话 ...</blockquote>
+回去听了下确实是seki
+
+我是觉得老叶最大的问题就是跟以往情商高的暖男形象不符，被抓到了
+
