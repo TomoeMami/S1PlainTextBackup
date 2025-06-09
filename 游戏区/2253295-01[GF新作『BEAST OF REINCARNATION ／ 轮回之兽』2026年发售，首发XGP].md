@@ -956,3 +956,18 @@ gf还是二刺螈萌萌哒的人设更好，画面感觉也只是引擎的功劳
 
 这货才是真正的摆烂之王。
 
+
+*****
+
+####  蓝雉  
+##### 95#       发表于 2025-6-9 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909346&amp;ptid=2253295" target="_blank">卢迪克 发表于 2025-6-9 20:02</a>
+
+就Creatures的侦探皮那德行，难。
+
+他什么时候才能把宝可梦建模也跟上。
+
+这货才是真正的摆烂之王。 ...</blockquote>
+宝可梦现在模型外包已经不局限于c社了
+
