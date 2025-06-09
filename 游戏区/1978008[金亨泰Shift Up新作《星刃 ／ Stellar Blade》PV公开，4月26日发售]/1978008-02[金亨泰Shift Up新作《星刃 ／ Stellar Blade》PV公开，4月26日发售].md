@@ -17,3 +17,14 @@
 
 杉果预售基本都是发售头一天才给发码，不用急
 
+
+*****
+
+####  alucardcz  
+##### 2236#       发表于 2025-6-9 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907228&amp;ptid=1978008" target="_blank">quanlix 发表于 2025-6-9 14:26</a>
+
+杉果预售基本都是发售头一天才给发码，不用急</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">上次荒野提前那么多天就发了 只是意外码
+
