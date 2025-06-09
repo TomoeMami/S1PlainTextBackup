@@ -263,3 +263,42 @@
 
 然后没有然后了<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 16880#       发表于 2025-6-9 18:32
+
+all in莉莉丝，果然这个女人届不到。
+
+另外妹妹灵衣开宝具，龙居然是白色的，这波给lxs点个赞。
+
+
+*****
+
+####  DARKGRAY  
+##### 16881#       发表于 2025-6-9 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908420&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-6-9 17:20</a>
+
+狂阶卡池怎么这么早开.....</blockquote>
+不早啦，已经晚几天了，本来应该比狂战早出整整2周的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16882#       发表于 2025-6-9 19:06
+
+<blockquote>alucardcz 发表于 2025-6-9 18:05
+萌新all in lls 3个金狂卡背！优势在我！
+
+然后没有然后了</blockquote>
+欧 羡慕
+
+*****
+
+####  khxooo  
+##### 16883#       发表于 2025-6-9 20:07
+
+草，早知道这么快莉莉丝池就不丢石头到果子龙身上了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，还有LSG是不是SB啊，后续竟然不再给改造螺丝，就生怕玩家满改提丰是吧。
+
