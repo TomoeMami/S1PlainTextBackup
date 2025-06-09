@@ -126,3 +126,11 @@
 另外这一堆花里胡哨的连段，除了轻轻重 ...</blockquote>
 后期出爆发技能树后开超频重轻轻重长按，打得boss还不了手，boss如果锁血换阶段次元斩砍倒厚继续无脑复读
 
+
+*****
+
+####  黑耀星尘  
+##### 2245#       发表于 2025-6-9 17:54
+
+看了泄露的补丁里渡鸦的中配怎么还有口音的<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

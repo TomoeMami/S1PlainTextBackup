@@ -228,3 +228,38 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动我看不下去，一个是剧情里动不动就两边主炮动画播放个不停，一个是这角色真没啥魅力，已经跳过了。
 
+
+*****
+
+####  jackyhuang  
+##### 16876#       发表于 2025-6-9 00:13
+
+本质FZ联动二期是吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  森兰丸  
+##### 16877#       发表于 2025-6-9 07:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这果实龙好歹在之前的活动也是个有点脑子的幕后BOSS.....阴了忒修斯和小牛一把
+
+结果在自己这个主场的活动里就疯狂降智顺风局被对面玩成这样....观感是真的不好
+
+*****
+
+####  壳壳牛  
+##### 16878#       发表于 2025-6-9 17:20
+
+狂阶卡池怎么这么早开.....
+
+*****
+
+####  alucardcz  
+##### 16879#       发表于 2025-6-9 18:05
+
+萌新all in lls 3个金狂卡背！优势在我！
+
+然后没有然后了<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
