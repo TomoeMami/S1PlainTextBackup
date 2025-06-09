@@ -1202,3 +1202,18 @@ GF：你知道的，斯宾塞是我兄弟，微软更是富到不可思议。做
 
 这楼的回复真不赖<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tinglepan  
+##### 116#       发表于 2025-6-9 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60800755&amp;ptid=2133773" target="_blank">u2deack 发表于 2023-5-10 16:07</a>
+
+Tpc摆烂不能证明宝可梦正作只有gf才做得来啊，gf有什么核心技术是别人做不了的吗
+
+ ...</blockquote>
+自然是gf做那么多年宝可梦积累下来的经验，否则大家早就有更好的宝可梦玩了。
+
+游戏行业外的人看到核心技术大多会往引擎相关方向去想，实际上这只是一个方面，并且对许多类型的游戏来说引擎相关的技术是不那么重要的部分。
+
