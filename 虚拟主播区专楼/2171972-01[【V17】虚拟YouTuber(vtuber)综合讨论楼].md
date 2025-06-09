@@ -351,3 +351,20 @@ syl，兔头给月之人偶买的新衣服好可爱
 
 二是老叶黑粉兴风作浪，翻旧账什么的）
 
+
+*****
+
+####  Harunoharu  
+##### 1213#       发表于 2025-6-10 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910602&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-6-10 00:31</a>
+
+刚刷到LLM第二天的解释，至少从她的说辞上我是觉得还处于neta的范围内
+
+老叶被炎也有因为事件发生时不帮ll ...</blockquote>
+是関悠太，kenki和rrm又不熟，至于日本人的社交说辞听听就好了，加藤纯一出轨开审判直播那会他老婆还喊话让观众不要管家事呢，最后不还是离婚了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当天晚上事发的时候看日推就知道这事最后肯定是要包饺子了，真闹大了steamer观众直接就一通v豚拳打过来了把女v给炎上还能怎么样，老叶也是在t台混久了不知道轻重了，自己把rrm丢给ファン太玩xsr情景剧就算了第二天直接略过这件事不提就好了非得提这件事，“xsr难道不好笑吗”都出来了国内女粉肯定不会惯着他啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺带一提rrm在和条子说这件事的时候用词不仅把条子吓了一跳甚至当时在旁边听了全程的hnn重启游戏（还是下播）的时候都特地问了观众发生什么事了，最后说セクハラ也是有人接受有人不接受的，在不相关主播眼里都这样了如果只是neta的话那也是玩的很失败的neta了吧
+

@@ -760,3 +760,21 @@ PSN的试玩还没出么，搜不到
 全程大剑单人剩两只招募没打，技能树挺幽默的，除了技能后接重击有点额外的体验以外其他就TM喝药速度能明显 ...</blockquote>
 可以用下烈士塔，狂怒派生完整一点，主动狂怒cd只有45秒，能用三次，能接被动狂怒，感觉是这次测试里最强的了。
 
+
+*****
+
+####  Andariel  
+##### 196#       发表于 2025-6-10 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910083&amp;ptid=2173536" target="_blank">Bani82 发表于 2025-6-9 22:32</a>
+PSN的试玩还没出么，搜不到</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这游戏的垃圾优化不知道ps5能不能跑
+
+
+*****
+
+####  UnknownRei  
+##### 197#       发表于 2025-6-10 00:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">游戏都进不去，开加速器还是梯子都是连接失败0，我**草死棒子
+
