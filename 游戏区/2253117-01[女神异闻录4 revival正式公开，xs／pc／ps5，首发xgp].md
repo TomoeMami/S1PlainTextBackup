@@ -791,3 +791,30 @@ p5r那时候xbox和ns也是各开各的。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如徐toso做的pv
 
+
+*****
+
+####  卢迪克  
+##### 89#       发表于 2025-6-9 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905910&amp;ptid=2253117" target="_blank">wolf1997 发表于 2025-6-9 10:34</a>
+
+猜一个纯原版重制，不带G，阿特拉斯什么调性已经摸透了</blockquote>
+有摩托车，让我梦想一下
+
+*****
+
+####  starwarszjm  
+##### 90#       发表于 2025-6-9 10:50
+
+[通过对比P4R、P4G和P4，我们能明显看出，P4R是以P4G为基础重制的（音乐也有P4G的，图2-图8），而且应该还有新的内容（视频9、10）。](https://weibo.com/5315344950/PvHydklUO)
+
+*****
+
+####  moonblackwh  
+##### 91#       发表于 2025-6-9 10:54
+
+就这效果可以省钱了
+
+a孝子天天骂徐toso蹭狗，自家做出来的东西还不如人蹭狗用爱发电的
+

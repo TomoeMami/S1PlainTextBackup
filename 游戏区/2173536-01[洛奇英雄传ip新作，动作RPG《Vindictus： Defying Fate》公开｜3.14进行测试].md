@@ -57,3 +57,38 @@ A测demo可以玩了，居然还做了骆驼趾，绝了</blockquote>
 
 对味了
 
+
+*****
+
+####  劳动改造归来  
+##### 123#       发表于 2025-6-9 10:48
+
+目前a测是属于免费谁都可以玩的吗？
+
+
+*****
+
+####  会长辅佐  
+##### 124#       发表于 2025-6-9 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906041&amp;ptid=2173536" target="_blank">劳动改造归来 发表于 2025-6-9 10:48</a>
+目前a测是属于免费谁都可以玩的吗？</blockquote>
+steam不限额测试
+
+*****
+
+####  水边井  
+##### 125#       发表于 2025-6-9 10:56
+
+为什么罐头是敏捷型角色，只穿了一半罐头的反而是力量型角色
+
+*****
+
+####  Andariel  
+##### 126#       发表于 2025-6-9 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905894&amp;ptid=2173536" target="_blank">kuglv 发表于 2025-6-9 10:32</a>
+只是微调身形之类的细节，主体还是那几个角色，原版网游也有的，原版还有身形影响攻速和攻击范围的设定 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好，落英当初只玩过半年
+但是我记不得能微调身形了，难道是国服阉割了这个功能么
+
