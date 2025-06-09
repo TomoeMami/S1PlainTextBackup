@@ -18123,3 +18123,13 @@ X 上的 タカフミ@TALI：“ジークアクスのニャアン。 #G ...</blo
 
 突然意识到，这个手电筒，该不会是能做到“把智慧马上交给愚民”的玩意把。。
 
+
+*****
+
+####  无念  
+##### 17695#       发表于 2025-6-9 12:07
+
+那这话就变成骡子操控两只手抱麻球了啊，戏里戏外都要风评被害是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
