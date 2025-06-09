@@ -665,3 +665,30 @@ xbox组自己去搞的。
 我是建议别对ms能搞好掌机UI做太大期待，到时候能做到win11正常休眠就谢天谢地了 ...</blockquote>
 xbox的ui都一沓糊涂
 
+
+*****
+
+####  zid99825  
+##### 66#       发表于 2025-6-9 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908615&amp;ptid=2253298" target="_blank">indtability 发表于 2025-6-9 17:48</a>
+
+虽然之前就看到相关新闻，不过还是挺意外的，看来 valve 真给了微软不少压力。
+
+大概看下来感觉方向很对， ...</blockquote>
+这次重点是z2e那台，z2a的低端机可以无视的
+
+
+*****
+
+####  ChrisSnake  
+##### 67#       发表于 2025-6-9 18:30
+
+ 本帖最后由 ChrisSnake 于 2025-6-9 18:31 编辑 
+
+rog自己的allyx都要卖6k5
+
+这换了新u不得8k起步 真有人买吗
+
+两个logo中间那个斜杠是真的丑 老外还有审美吗
+

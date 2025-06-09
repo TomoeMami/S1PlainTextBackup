@@ -463,3 +463,21 @@ dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉 ...</b
 <img src="https://p.sda1.dev/24/bb7ef42bfbfc5cfa48a67cf3ab2db469/IMG_F033CD9E7B92BF413AD8F7F26CDB769E.jpeg" referrerpolicy="no-referrer">
 色是真的色，玩起来感觉好别扭
 
+
+*****
+
+####  nightraven  
+##### 166#       发表于 2025-6-9 18:27
+
+我去这优化，我4070ti不会连2K都开不满吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  你知道我的  
+##### 167#       发表于 2025-6-9 18:30
+
+为啥我一直报告 1970 年测试未开始，这个时间戳错误是咋回事
+
