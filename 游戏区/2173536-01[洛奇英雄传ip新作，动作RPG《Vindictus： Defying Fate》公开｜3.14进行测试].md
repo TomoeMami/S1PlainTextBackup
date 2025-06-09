@@ -92,3 +92,30 @@ steam不限额测试
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好，落英当初只玩过半年
 但是我记不得能微调身形了，难道是国服阉割了这个功能么
 
+
+*****
+
+####  水边井  
+##### 127#       发表于 2025-6-9 10:59
+
+这个现在都还没说是纯单机还是共斗吧
+
+*****
+
+####  会长辅佐  
+##### 128#       发表于 2025-6-9 11:02
+
+说是不卖数值，待会看看到底是啥样
+
+*****
+
+####  kuglv  
+##### 129#       发表于 2025-6-9 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906114&amp;ptid=2173536" target="_blank">Andariel 发表于 2025-6-9 10:57</a>
+
+好，落英当初只玩过半年
+
+但是我记不得能微调身形了，难道是国服阉割了这个功能么 ...</blockquote>
+至少前几年还一直有的，后面没玩了
+
