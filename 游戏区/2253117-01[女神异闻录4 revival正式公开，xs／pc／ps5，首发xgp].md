@@ -873,3 +873,24 @@ p6还拿不出来新p组在干嘛
 
 番长走那两下真的看笑了
 
+
+*****
+
+####  抽烟的猴  
+##### 98#       发表于 2025-6-9 15:46
+
+<blockquote>Sopp 发表于 2025-6-9 14:57
+p6还拿不出来新p组在干嘛</blockquote>
+在新建p4r文件夹顶p6空窗期
+
+*****
+
+####  iuiuk2  
+##### 99#       发表于 2025-6-9 15:50
+
+好消息：还是早期开发版本
+
+坏消息：还是早期开发版本
+
+这下能在P6之前在PC上玩上GTA6了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
