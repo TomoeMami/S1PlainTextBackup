@@ -1051,3 +1051,15 @@ good enough for xgp
 
 还真是自证废物了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 114#       发表于 2025-6-9 22:52
+
+<blockquote>Sopp 发表于 2025-6-9 22:24
+别最后零组新作都出了新P还做不出来
+
+还真是自证废物了</blockquote>
+零组下一个新作说不定又是八年后发售
+
