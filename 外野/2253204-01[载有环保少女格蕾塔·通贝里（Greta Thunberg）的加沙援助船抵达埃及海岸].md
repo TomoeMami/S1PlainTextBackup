@@ -800,3 +800,13 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 
 —— 来自 vivo V2324A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  遗尿  
+##### 81#       发表于 2025-6-9 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908473&amp;ptid=2253204" target="_blank">lawsherman 发表于 2025-6-9 17:26</a>
+“都是哈马斯”</blockquote>
+如果接下来和马斯克一样转变，那我只能说环保少女不过如此。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

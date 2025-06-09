@@ -710,3 +710,40 @@ rog自己的allyx都要卖6k5
 难说，看微软什么态度吧，对于生态来说，掌机的价格是很重要的因素，老任和 valve 还算比较拎得清的，掌机的价格也都比较接近，对于最近这些 win 掌机厂商来说，又走不了量又要赚钱，没有平台输血也不打算亏本造生态，定价都不是掌机价格。
 如果这两款定价也都很高的话，那低配确实是个添头，但如果微软想搞生态卖低价的话，低配这个搞不好才是大头，不过微软应该也挺尴尬，还要跟人家收 windows 授权费呢，价格确实不一定能下来。
 
+
+*****
+
+####  iou90  
+##### 70#       发表于 2025-6-9 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907011&amp;ptid=2253298" target="_blank">zid99825 发表于 2025-6-9 13:41</a>
+跟windows，本质上是启动时限制desktop和后台服务，加上自启xbox这边做的dashboard和task view。系统本身 ...</blockquote>
+我的一个疑问是可以做到其他平台游戏也能跟 xbox games 一样的体验吗？打开/待机等
+
+还是其他平台就进桌面了？
+
+
+*****
+
+####  zid99825  
+##### 71#       发表于 2025-6-9 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908972&amp;ptid=2253298" target="_blank">iou90 发表于 2025-6-9 18:47</a>
+我的一个疑问是可以做到其他平台游戏也能跟 xbox games 一样的体验吗？打开/待机等
+
+还是其他平台就进桌 ...</blockquote>
+说是desktop本身就没启动，程序窗口本身是dwm渲染的，所以理论上应该就是最大化窗口
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zid99825  
+##### 72#       发表于 2025-6-9 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908944&amp;ptid=2253298" target="_blank">indtability 发表于 2025-6-9 18:41</a>
+难说，看微软什么态度吧，对于生态来说，掌机的价格是很重要的因素，老任和 valve 还算比较拎得清的，掌 ...</blockquote>
+按rog的定价，那就是499/799。win授权oem也就差不多1刀，没什么影响
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
