@@ -272,3 +272,14 @@ ssk播育成太坐牢了，这么多届都在倒霉吧
 
 syl，兔头给月之人偶买的新衣服好可爱
 
+
+*****
+
+####  若流水  
+##### 1206#       发表于 2025-6-9 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909407&amp;ptid=2171972" target="_blank">usodakedo 发表于 2025-6-9 20:13</a>
+
+我也很喜欢她两次培育的月撇，尤其是22年的王道，整个队又强又有梗，而且这两年mtlz比kemt甜太多了，阴角 ...</blockquote>
+很难想象她敢跟德龙抢人，而且看口号这次很有可能是跟社长抢柴卡，当然德龙真要一指slm也许能有机会，但是一指slm的可能性<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
