@@ -1,0 +1,434 @@
+﻿
+*****
+
+####  泰坦失足  
+##### 1#       楼主       发表于 2025-6-9 03:14
+
+ 本帖最后由 泰坦失足 于 2025-6-9 06:03 编辑 
+
+最关键点: 好像就是SD那个处理器?
+
+看官方的参数表, Z2 A就是Steam deck那个定制Van Gogh.  名字一样, 核心信息也完全相同.
+
+<img src="https://img.stage1st.com/forum/202506/09/031432re77fee4pmar7k7f.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (107.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 03:14 上传
+
+【【4K】ROG Xbox Ally 系列掌机开发者介绍视频 | 来源：Xbox】 [https://www.bilibili.com/video/BV1WATozAEJW/](https://www.bilibili.com/video/BV1WATozAEJW/) &lt;-最新的开发者说明,没啥重要的玩意. 基本自吹自擂, 比如:'Best in Xbox' 'Best in Windows' '名副其实的Xbox主机' '看起来就像一个Xbox'
+
+外观:
+
+<img src="https://img.stage1st.com/forum/202506/09/030704cfmq4qojcjuvf9mf.jpg" referrerpolicy="no-referrer">
+
+<strong>Ally-Hero-cf171ede4ff754c27339.jpg</strong> (212.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 03:07 上传
+
+官方稿件中几个两点:
+
+"ROG Xbox Ally：一款物超所值的必备掌机，适合从休闲玩家到狂热爱好者的所有人。"&lt;-也许说明会很便宜? "ROG Xbox Ally X：为最苛刻的玩家打造的终极高性能掌机。"'
+
+使用 Xbox Ally 和 Xbox Ally X，玩家可以期待一种易于上手的游戏体验，随时随地陪伴在你身边。这两款设备都具有一些全新且前所未有的功能——包括沉浸式的 Xbox 全屏体验、整合的游戏库，能够访问来自领先 PC 商店的已安装游戏，以及更多功能。我们已对 Windows 11 进行了优化，使其在启动时即可在 Xbox Ally 和 Xbox Ally X 上轻松使用。Game Bar 让你轻松返回主界面、浏览游戏库、启动或退出游戏、与朋友聊天、打开应用、调整设置等。现在，结合华硕创新的 Armoury Crate，Game Bar 还为你提供了简化的设备和输入控制访问。锁屏和任务切换器等细节也已调整，方便用手柄进行导航。
+
+<img src="https://img.stage1st.com/forum/202506/09/030901ot66fczfr5uzcbt6.jpg" referrerpolicy="no-referrer">
+
+<strong>Xbox-Home-abf5def86173492e2e30.jpg</strong> (285.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 03:09 上传
+
+当你开启你的 Xbox Ally 时，你将直接进入 Xbox 全屏体验，这是为手持游戏特别优化的新功能。通过新的调整，最大限度地减少后台活动并推迟非必要任务，更多的系统资源专门用于游戏。这意味着更多的内存、更高的帧率，以及为玩家带来完全沉浸式的体验——这一切都得益于 Windows 的多功能性和自由度。
+
+其他数据如重量尺寸接口:
+
+<img src="https://img.stage1st.com/forum/202506/09/031144c2dupmxk5urraunm.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (129.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 03:11 上传
+
+AMD也公布了这个新芯片Z2A的官方数据, 看数据和定位比Z2 Go还低? Z2 Go+windows os的联想掌机反响已经很差了. 但可能Xbox Ally价格会因此很低. 上一代rog ally Z1/Z1E/Z1E(ally X)是599 699 799刀
+
+<img src="https://img.stage1st.com/forum/202506/09/031152ckz20ore30bj3n00.jpg" referrerpolicy="no-referrer">
+
+<strong>AMD-RYZEN-Z2-SERIES-2000x1098.jpg</strong> (278.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 03:11 上传
+
+*****
+
+####  ultraseven  
+##### 2#       发表于 2025-6-9 03:19
+
+Z2A $399？Z2E $699?还行不是啥变态价格。
+
+*****
+
+####  ultraseven  
+##### 3#       发表于 2025-6-9 03:22
+
+Xbox Ally搭载的是精简版win11系统，所有非必要的进程（系统管理类应用），甚至包括Windows 桌面在开机时都不会加载，与操作难度高的 Windows 11 版 ROG Ally X 相比，能瞬间访问游戏，或许是小屏幕设备的优势。
+
+Xbox Full Screen Experience UI最上方，由 4 个游戏图标和 5 组 “4 个游戏图标为一组” 的分组构成，显示 “用户近期游玩的游戏” 。比如在 “Xbox Series X” 玩过的 “Gears of War: Reloaded” ，下次用 ROG Xbox Ally 访问时，会自动移到仪表盘最左侧，外出启动无需繁琐搜索，可直接开玩。
+
+Xbox 全屏体验的菜单（游戏栏）可切换至 Armory Crate 的库模式，也能访问 “Xbox Social” 。无需进入 Windows 11 设置，就能切换网络、蓝牙至飞行模式。
+
+还有类似录像机图标的 “录制模式” ，推测可像 Xbox Series X|S 一样，轻松录制、上传游戏过程。
+
+此外，“Command Center” 可调整 ROG Xbox Ally X 的硬件设置，比如限制帧率，或牺牲电量提升 APU 性能（切换 “Operating Mode” ），玩家能自由调校，体现了 ROG 系列的 “极客定制” 特色。
+
+*****
+
+####  dududa  
+##### 4#       发表于 2025-6-9 03:43
+
+如果真是定制版win11，感觉win掌机能迎来一次大进化啊，提供接近真正掌机的体验
+
+*****
+
+####  ultraseven  
+##### 5#       发表于 2025-6-9 03:48
+
+好快，Linus都有上手视频了
+
+*****
+
+####  我特么吹爆  
+##### 6#       发表于 2025-6-9 03:49
+
+ 本帖最后由 我特么吹爆 于 2025-6-9 03:52 编辑 
+
+眼瞎了，编辑
+
+比ns2稍微大那么一些但不多
+但怎么厚了这么多
+想起ns吧吧主这张可怕的对比图了
+<img src="https://p.sda1.dev/24/4b596c3297f167cb81c00d002f7f5c4f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 7#       发表于 2025-6-9 04:03
+
+ 本帖最后由 御坂MKII 于 2025-6-9 04:05 编辑 
+
+系统精简了是好事，但是还能用 steam 吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+ <blockquote>No Silksong that day, but the Xbox Ally X that I used for about 10 minutes ran Gears of War: Reloaded, displayed a full-screen Xbox interface and apparently had Steam on it, too.</blockquote>看起来可以，好爽
+
+*****
+
+####  江城诀丶  
+##### 8#       发表于 2025-6-9 04:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ally整天耍猴，这玩意能放开卖吗
+
+*****
+
+####  dududa  
+##### 9#       发表于 2025-6-9 04:09
+
+看了一下linus的视频，一闪而过好像把软件都放进了gamebar，然后类似手机系统那样做切页?
+
+*****
+
+####  ultraseven  
+##### 10#       发表于 2025-6-9 04:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904908&amp;ptid=2253298" target="_blank">我特么吹爆 发表于 2025-6-9 03:49</a>
+
+眼瞎了，编辑
+
+比ns2稍微大那么一些但不多</blockquote>
+电池容量？
+
+*****
+
+####  drx66  
+##### 11#       发表于 2025-6-9 04:17
+
+好奇这个win11系统会优化成啥样。如果好用的话SD的优势就不大了
+
+*****
+
+####  瓦拉几亚之夜  
+##### 12#       发表于 2025-6-9 04:26
+
+SD也该有2了
+
+*****
+
+####  御坂MKII  
+##### 13#       发表于 2025-6-9 04:30
+
+<blockquote>The Xbox full screen experience will come first to Ally and Ally X and we will update the in market ROG Ally and Ally X. Similar full screen Xbox experiences will be rolling out to other Windows handhelds beginning next year.</blockquote>
+
+要做发行版说是<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  等等等灯等灯  
+##### 14#       发表于 2025-6-9 04:33
+
+我先立个flag，精简win11对xp-win7时期老游戏的兼容性可能不如steam os 的wine + proton 
+
+*****
+
+####  nozomitech  
+##### 15#       发表于 2025-6-9 04:49
+
+Z2E还是感觉乏善可陈，有了SD暂时不打算买新掌机了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 16#       发表于 2025-6-9 07:16
+
+这不就是rog ally的联名款
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  crosz1985  
+##### 17#       发表于 2025-6-9 07:24
+
+怎么还是7寸屏
+
+*****
+
+####  nage560  
+##### 18#       发表于 2025-6-9 07:41
+
+我关心厚度重量，还是sd那种举重机那就算了。
+
+*****
+
+####  crosz1985  
+##### 19#       发表于 2025-6-9 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905067&amp;ptid=2253298" target="_blank">nage560 发表于 2025-6-9 07:41</a>
+我关心厚度重量，还是sd那种举重机那就算了。</blockquote>
+ROG Xbox Ally - AMD 锐龙 Z2 A 处理器，1080p 7 英寸触控屏，16GB 内存，512GB SSD 可升级存储，60Wh 电池，重 670 克，目标分辨率为720p。
+        
+ROG Xbox Ally X - AMD 锐龙 AI Z2 Extreme 处理器，7 英寸 1080p 触控屏，24GB 内存，1TB SSD 可扩展存储，80Wh 电池，重 715 克，目标分辨率为900p-1080p。
+
+*****
+
+####  大暴死  
+##### 20#       发表于 2025-6-9 07:45
+
+Xbox allyx和allyx定价一样，相当于更换模具+芯片升级。本来以为至少会给32g ram的，最后原地踏步24g换来价格不变<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Dedalus  
+##### 21#       发表于 2025-6-9 07:51
+
+震撼，对游戏业界的冲击不亚于苹果vr联合索尼手柄，这一招强强联合御三家中的steam你怕了吗
+
+*****
+
+####  oi99o  
+##### 22#       发表于 2025-6-9 07:52
+
+Z2A还是个zen2+rdna2芯片，是不是有点落后了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyccq  
+##### 23#       发表于 2025-6-9 08:03
+
+休眠性能怎么样？能像SD那样随开随玩吗？
+
+*****
+
+####  mjzs07  
+##### 24#       发表于 2025-6-9 08:17
+
+没说价格啊
+
+*****
+
+####  慕容断月  
+##### 25#       发表于 2025-6-9 08:26
+
+我对xbox掌机当初只关心它能不能运行xbox的游戏，包括xbox和360还有one的，但看起来真的只是个xpa启动器和精简windows，这就真的没什么吸引力了，不如等可能出现的可以为其他Win掌机安装的发行版
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  银月术士329  
+##### 26#       发表于 2025-6-9 08:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这东西买了大概率送XGP的，有朋友买了微星Clown 258V那款就送了，WIN掌机最值得期待的还是功耗上的可调吧，朋友那颗258V每天调个15W一用用一天
+
+Z2A你就当成STEAM DECK那颗U换皮就行
+
+*****
+
+####  nage560  
+##### 27#       发表于 2025-6-9 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905073&amp;ptid=2253298" target="_blank">crosz1985 发表于 2025-6-9 07:43</a>
+
+ROG Xbox Ally - AMD 锐龙 Z2 A 处理器，1080p 7 英寸触控屏，16GB 内存，512GB SSD 可升级存储，60Wh 电 ...</blockquote>
+省钱了。
+
+*****
+
+####  distrowatch  
+##### 28#       发表于 2025-6-9 08:56
+
+这个精简版WINDOWS能做到游戏睡眠唤醒么，能的话感觉还行啊
+
+*****
+
+####  はちたや  
+##### 29#       发表于 2025-6-9 08:56
+
+只关心这个系统什么时候移植给其他的win掌机
+
+*****
+
+####  zid99825  
+##### 30#       发表于 2025-6-9 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905261&amp;ptid=2253298" target="_blank">はちたや 发表于 2025-6-9 08:56</a>
+只关心这个系统什么时候移植给其他的win掌机</blockquote>
+不是说了明年么<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  那由  
+##### 31#       发表于 2025-6-9 09:01
+
+<img src="https://img.stage1st.com/forum/202506/09/090142dilyt5q6qibfzyfh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (297.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 09:01 上传
+
+不好意思我看到他们还在用这个营销词就没绷住
+
+*****
+
+####  cc-2  
+##### 32#       发表于 2025-6-9 09:04
+
+啥？Z2 还不如Z1E吗
+
+还不如ROG ALLY 1？？
+
+*****
+
+####  zid99825  
+##### 33#       发表于 2025-6-9 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905305&amp;ptid=2253298" target="_blank">cc-2 发表于 2025-6-9 09:04</a>
+啥？Z2 还不如Z1E吗
+
+还不如ROG ALLY 1？？</blockquote>
+Z2A不是Z2
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  awy002  
+##### 34#       发表于 2025-6-9 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905067&amp;ptid=2253298" target="_blank">nage560 发表于 2025-6-9 07:41</a>
+
+我关心厚度重量，还是sd那种举重机那就算了。</blockquote>
+上面写了，z2a的 670g——ai z2的715g
+
+*****
+
+####  normalli  
+##### 35#       发表于 2025-6-9 09:09
+
+其实win掌机主要优点就是兼容性，要是精简了导致这个优势没了就尴尬了，对我来说rog ally主要作用就是玩少女卷轴，当着家人面玩怪不好意思的。
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  iou90  
+##### 36#       发表于 2025-6-9 09:11
+
+处理器不出奇 机器也是又大又重
+
+系统也很关键 这次倒是貌似出奇的好
+
+*****
+
+####  iou90  
+##### 37#       发表于 2025-6-9 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905329&amp;ptid=2253298" target="_blank">normalli 发表于 2025-6-9 09:09</a>
+其实win掌机主要优点就是兼容性，要是精简了导致这个优势没了就尴尬了，对我来说rog ally主要作用就是玩少 ...</blockquote>
+并没有吧
+
+可以看下 d2d 视频
+很好的 ui/ux 下可以显示/管理所有平台上的游戏
+
+*****
+
+####  Slyvan  
+##### 38#       发表于 2025-6-9 09:23
+
+原来是这种XBOX掌机,  只是个添头,  也翻不起什么波澜
+
+*****
+
+####  我在干什么啊  
+##### 39#       发表于 2025-6-9 09:33
+
+ 本帖最后由 我在干什么啊 于 2025-6-9 09:36 编辑 
+
+z2e用上890m了，不过掌机那点功耗下比z1e强不了多少吧，感觉不如lnl，啥时候出个能用fsr4的rdna4的掌机，不然没啥竞争力
+
+*****
+
+####  chizuru  
+##### 40#       发表于 2025-6-9 09:37
+
+竞争对手是v社吧，两家都在推自己的系统给掌机
+
+
+*****
+
+####  Amami_Haruka_  
+##### 41#       发表于 2025-6-9 09:41
+
+<blockquote>那由 发表于 2025-6-9 09:01
+不好意思我看到他们还在用这个营销词就没绷住</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/09/094153zrsec9s2vk7ed30k.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043721.jpg</strong> (52.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 09:41 上传
+
