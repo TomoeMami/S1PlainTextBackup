@@ -1038,3 +1038,16 @@ P6真有做吗？怕不是文件夹都没建吧
 
 good enough for xgp
 
+
+*****
+
+####  Sopp  
+##### 113#       发表于 2025-6-9 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907732&amp;ptid=2253117" target="_blank">抽烟的猴 发表于 2025-6-9 15:46</a>
+
+在新建p4r文件夹顶p6空窗期</blockquote>
+别最后零组新作都出了新P还做不出来
+
+还真是自证废物了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
