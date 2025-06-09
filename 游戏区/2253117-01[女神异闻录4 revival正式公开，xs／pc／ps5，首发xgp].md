@@ -783,3 +783,11 @@ p5r那时候xbox和ns也是各开各的。
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  TheOccuria  
+##### 88#       发表于 2025-6-9 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如徐toso做的pv
+

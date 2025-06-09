@@ -33,3 +33,27 @@ A测demo可以玩了，居然还做了骆驼趾，绝了</blockquote>
 难道有一个自捏主角? ...</blockquote>
 只是微调身形之类的细节，主体还是那几个角色，原版网游也有的，原版还有身形影响攻速和攻击范围的设定
 
+
+*****
+
+####  kuglv  
+##### 122#       发表于 2025-6-9 10:43
+
+<img src="https://img.stage1st.com/forum/202506/09/104300bnftft1xbtluug6g.jpg" referrerpolicy="no-referrer">
+
+<strong>20250609103905.jpg</strong> (235.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:43 上传
+
+<img src="https://img.stage1st.com/forum/202506/09/104300fd6hupdzduc021wt.jpg" referrerpolicy="no-referrer">
+
+<strong>20250609103914.jpg</strong> (241.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 10:43 上传
+
+对味了
+

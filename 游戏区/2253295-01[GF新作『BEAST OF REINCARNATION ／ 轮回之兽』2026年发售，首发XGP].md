@@ -674,3 +674,47 @@ GEN10肯定强到离谱，达到UE3顶级水平！
 
 我个人感觉比帕鲁那种虚幻5看起来好多了
 
+
+*****
+
+####  哆哆鸡  
+##### 69#       发表于 2025-6-9 10:39
+
+前几个刚看了明末的预告片，个人感觉，都是美女打怪兽，就2个预告片感官来说gf的这个完爆了明末的那个
+
+*****
+
+####  nianiania  
+##### 70#       发表于 2025-6-9 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905769&amp;ptid=2253295" target="_blank">绿冰 发表于 2025-6-9 10:16</a>
+你说帧数我也觉得挺拉的，画面的话其实拉在哪？
+
+我个人感觉比帕鲁那种虚幻5看起来好多了</blockquote>
+这植被密度和丰富度就和帕鲁不是一个量级的，真要说的话主要是场景灯光氛围属于ue5附赠那种，地编摆好模型拉个天光lumen拉倒，和明末类似
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  GuardHei  
+##### 71#       发表于 2025-6-9 10:41
+
+ 本帖最后由 GuardHei 于 2025-6-9 10:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905769&amp;ptid=2253295" target="_blank">绿冰 发表于 2025-6-9 10:16</a>
+你说帧数我也觉得挺拉的，画面的话其实拉在哪？
+
+我个人感觉比帕鲁那种虚幻5看起来好多了</blockquote>
+阴影处死黑，植被和场景光照很平，抛开角色的资产精度还算高一点，这地编看起来像哪个ue4游戏的ns port
+除了地编摆的烂，说明这全局光也彻底拉垮了，ue用成这样感觉只说环境画面就大学生毕设水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  phoenixxj  
+##### 72#       发表于 2025-6-9 10:46
+
+我感觉就是科研用的
+
