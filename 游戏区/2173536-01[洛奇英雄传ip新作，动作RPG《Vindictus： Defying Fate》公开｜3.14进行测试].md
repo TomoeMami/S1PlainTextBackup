@@ -705,3 +705,13 @@ PSN的试玩还没出么，搜不到
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Hqchan  
+##### 190#       发表于 2025-6-9 23:38
+
+这战斗有趣程度感觉完全不如初版洛英啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少原版一开始丢矛丢爪子砸石头还挺有意思的，这个a测就能看出来个画面和剧情表现大升级，期待下一测吧
+
+不过韩游这氪金体验，能期待吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
