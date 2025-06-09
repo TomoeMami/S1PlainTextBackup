@@ -244,3 +244,18 @@ steam不限额测试
 
 —— 来自 HONOR PTP-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Andariel  
+##### 144#       发表于 2025-6-9 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906645&amp;ptid=2173536" target="_blank">华发夜眼[CN] 发表于 2025-6-9 12:24</a>
+
+我5070ti 30帧是认真的吗</blockquote>
+4k?
+
+我2k，全高不开dlss的话开头小旅馆里正好60帧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉到八九十了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
