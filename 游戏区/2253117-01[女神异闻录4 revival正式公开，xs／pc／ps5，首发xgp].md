@@ -989,3 +989,11 @@ P6真有做吗？怕不是文件夹都没建吧
 
 为什么还要期待和田和久？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  28201  
+##### 107#       发表于 2025-6-9 17:34
+
+因为深蓝色是玛丽代表色？刚好队友一人一个颜色，可以推出这确实不是G的重制（乱编的
+

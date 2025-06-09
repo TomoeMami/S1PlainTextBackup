@@ -778,3 +778,13 @@ How dare you居然都特么yi情前的梗了，天哪。。。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lawsherman  
+##### 79#       发表于 2025-6-9 17:26
+
+<img src="https://p.sda1.dev/24/983e13355c95befaa84afea72f247b62/20250609172514.png" referrerpolicy="no-referrer">
+
+“都是哈马斯”
+
