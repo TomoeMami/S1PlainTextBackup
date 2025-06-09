@@ -218,3 +218,11 @@ steam不限额测试
 
 优化确实垃圾，大也确实够大，过个动画两颗大奈乱甩，让我想起了玩游戏的初心<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 141#       发表于 2025-6-9 12:51
+
+不知道是不是错觉，烈士塔感觉比上个demo手感好了一点，主要是打击音效
+
