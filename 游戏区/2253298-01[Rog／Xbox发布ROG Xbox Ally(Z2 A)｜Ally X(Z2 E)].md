@@ -584,3 +584,11 @@ xbox组自己去搞的。
 
 我是建议别对ms能搞好掌机UI做太大期待，到时候能做到win11正常休眠就谢天谢地了
 
+
+*****
+
+####  银月术士329  
+##### 58#       发表于 2025-6-9 14:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">市面上这么多WIN11掌机也没见谁说系统不好使的
+
