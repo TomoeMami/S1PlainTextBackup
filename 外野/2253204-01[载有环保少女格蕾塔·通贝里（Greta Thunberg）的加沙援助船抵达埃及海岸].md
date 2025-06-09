@@ -595,3 +595,42 @@ CNN报道：
 
 至少这回不是扔炸弹了.好歹给抓起来了没直接动手.在面对名人的时候多少还知道收敛一点.
 
+
+*****
+
+####  itsmyrailgun  
+##### 61#       发表于 2025-6-9 11:39
+
+推上的被捕活动家名单：
+
+🇫🇷Baptiste Andre
+
+🇫🇷Reva Viard
+
+🇸🇪Greta Thunberg 
+
+🇫🇷Rima Hassan
+
+🇹🇷Suayb Ordu
+
+🇪🇸Sergio Toribio
+
+🇳🇱Mark van Rennes
+
+🇧🇷Thiago Avila
+
+🇫🇷Omar Faiad
+
+🇫🇷Yanis Mhamdi
+
+🇫🇷Pascal Maurieras
+
+🇩🇪Yasemin Acar
+
+*****
+
+####  lily-black  
+##### 62#       发表于 2025-6-9 11:42
+
+这姑娘真可以，知行合一，亲力亲为，如果真被鱿鱼害了，那就是舍生取义了
+

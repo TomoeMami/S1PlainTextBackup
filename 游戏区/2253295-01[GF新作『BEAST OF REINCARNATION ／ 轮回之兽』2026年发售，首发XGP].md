@@ -816,3 +816,11 @@ gf：你知道的，斯宾塞是我的兄弟，至于宝可梦，宝批们骂完
 
 希夫怎么跑路这里了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">, 质感都一模一样
 
+
+*****
+
+####  bm7号  
+##### 82#       发表于 2025-6-9 11:38
+
+末世游戏越来越多了还是好的，虽然这游戏看起来会有溢出的人文关怀。
+

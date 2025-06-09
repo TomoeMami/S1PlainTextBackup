@@ -18046,3 +18046,65 @@ X 上的 タカフミ@TALI：“ジークアクスのニャアン。 #G ...</blo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第九集下面看了一个据说是剧透的玩意，说法是93鸭骡弄了这一堆事。。。这个倒不是重点，反正都到这地步了真来了也没啥，主要是说几个人来的时间点是悉尼时刻，也就是说高清化砸悉尼其实也不是电影院独占，第十集差不多也要播给大家看了（笑，一点没剩下。
 
+
+*****
+
+####  YU_JI  
+##### 17691#       发表于 2025-6-9 11:39
+
+<blockquote>ads147147 发表于 2025-6-9 11:33
+第九集下面看了一个据说是剧透的玩意，说法是93鸭骡弄了这一堆事。。。这个倒不是重点，反正都到这地步了真 ...</blockquote>
+实在是太像这片会干的事，以至于可信度看起来很高（
+
+
+*****
+
+####  mengsu  
+##### 17692#       发表于 2025-6-9 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以这片消费老害的力度来看骡子完全没出场确实不正常，加上这一话gq这个有机魂的感觉，没准真的93螺鸭分头住到gq和红高里面骗小孩去了。
+
+*****
+
+####  Piano-Forest  
+##### 17693#         楼主| 发表于 2025-6-9 11:45
+
+[https://x.com/wtnkkon/status/1930897452900487614](https://x.com/wtnkkon/status/1930897452900487614)
+
+【お知らせ】
+
+『機動戦士Gundam GQuuuuuuX』 ×  極楽湯コラボ
+
+の描き起こしミニキャライラストを担当させていただきました♨️
+
+お見かけの際は何卒よろしくお願いいたします！
+<img src="https://p.sda1.dev/24/abf2b4f6515f90848637b2c4f98f931b/20250609_113207.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ore624/status/1930927864482042303](https://x.com/ore624/status/1930927864482042303)
+<img src="https://p.sda1.dev/24/17f9927b9fedbc5b40cb56c17b051f36/20250609_113430.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/takanocchi9/status/1931176766879813956](https://x.com/takanocchi9/status/1931176766879813956)
+<img src="https://p.sda1.dev/24/344975f29bdce483fa98ce0885998c06/20250609_113126.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/94d63fb7efb2b9aa2d27b2786d92685d/20250609_113130.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tibasa9/status/1931669334985945114](https://x.com/tibasa9/status/1931669334985945114)
+<img src="https://p.sda1.dev/24/3adfc0d122566c9761482c76af3ff248/20250609_112923.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kaibashira4080/status/1930897455891231061](https://x.com/kaibashira4080/status/1930897455891231061)
+<img src="https://p.sda1.dev/24/82f525e0008bc604fd90bf8a61423ec4/20250609_113422.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/BOW999/status/1931060512818864609](https://x.com/BOW999/status/1931060512818864609)
+[https://p.sda1.dev/24/266324df82 ... 20250609_113020.jpg](https://p.sda1.dev/24/266324df82a96157dfe91e91353dd7d3/20250609_113020.jpg)
+
+[https://x.com/haimurakiyotaka/status/1931690661423804860](https://x.com/haimurakiyotaka/status/1931690661423804860)
+<img src="https://p.sda1.dev/24/a2e3f30da6786d0947e8659b5e8850f2/20250609_113006.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ogasanart/status/1930562196381266127](https://x.com/ogasanart/status/1930562196381266127)
+<img src="https://p.sda1.dev/24/ce9d4f8ef9af11c43bc55f81b47a6a8c/20250609_113401.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/panipani_splash/status/1930971656060604660](https://x.com/panipani_splash/status/1930971656060604660)
+<img src="https://p.sda1.dev/24/5a9b036d8fea89422f2868f91e40e67b/20250609_113435.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gquuu_06/status/1931643439961284864](https://x.com/gquuu_06/status/1931643439961284864)
+<img src="https://p.sda1.dev/24/112ba28223dfdc491e587f4dc63d8371/20250609_114408.jpg" referrerpolicy="no-referrer">
+
