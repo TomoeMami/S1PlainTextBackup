@@ -604,3 +604,37 @@ xbox组自己去搞的。
 
 —— 来自 HONOR PTP-AN70, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  herryk159  
+##### 60#       发表于 2025-6-9 15:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丝之歌护航！恐怖如斯
+
+
+*****
+
+####  eternity0079  
+##### 61#       发表于 2025-6-9 15:11
+
+别嫌大，玩Win平台的游戏感觉7寸屏已经是能接受的底线了，我当初就是觉得ROG略大，再三比较下买了GPD win4，1080P 6寸屏，小巧是小巧（相对），但是玩久了觉得屏幕尺寸实在是稍小了
+
+尤其是RPG、字多的游戏，当然，只玩动作类的、模拟器之类的倒是还行。
+
+*****
+
+####  银川智将Kuroky  
+##### 62#       发表于 2025-6-9 15:14
+
+能跑xgp的掌机价格合适的话还是挺能打的
+
+只要我们xgp依然能做到100多一年的话<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  关二爷  
+##### 63#       发表于 2025-6-9 15:14
+
+关键是能不能用ce
+
