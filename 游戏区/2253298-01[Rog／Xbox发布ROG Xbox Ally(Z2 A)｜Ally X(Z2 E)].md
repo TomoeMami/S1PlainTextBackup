@@ -592,3 +592,15 @@ xbox组自己去搞的。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">市面上这么多WIN11掌机也没见谁说系统不好使的
 
+
+*****
+
+####  cody198879  
+##### 59#       发表于 2025-6-9 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907267&amp;ptid=2253298" target="_blank">银月术士329 发表于 2025-6-9 14:33</a>
+市面上这么多WIN11掌机也没见谁说系统不好使的</blockquote>
+不好使的多了去了，不然一堆人干嘛都刷bazzite，奇美拉或者steam os去了
+
+—— 来自 HONOR PTP-AN70, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

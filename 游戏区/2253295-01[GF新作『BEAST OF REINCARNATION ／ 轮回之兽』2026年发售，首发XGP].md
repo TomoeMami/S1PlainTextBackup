@@ -853,3 +853,14 @@ gf：你知道的，斯宾塞是我的兄弟，至于宝可梦，宝批们骂完
 
 虽然看着很有ue的味道，但目前片头没有ue标识，所以不一定是ue做的
 
+
+*****
+
+####  chm007  
+##### 86#       发表于 2025-6-9 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904460&amp;ptid=2253295" target="_blank">被击坠王 发表于 2025-6-9 01:27</a>
+
+果然一提到GF大家就扔掉脑子了，这个几年前就说了是Take-Two投资外包给GF做的，跟GF自身意志没关系的，虽然 ...</blockquote>
+那家工作室早倒闭了
+
