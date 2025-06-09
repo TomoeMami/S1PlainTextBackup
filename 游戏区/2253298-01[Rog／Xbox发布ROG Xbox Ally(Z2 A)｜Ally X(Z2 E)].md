@@ -654,3 +654,14 @@ xbox组自己去搞的。
 
 总的来说还是看好的，感觉 valve 的 sd 是掌机的操作逻辑，但内核还是 pc，背键，触摸板，加上按键映射功能都是对 pc 键鼠的模仿，但微软这边是选择做一台完全模仿 console 的掌机，如果这个系统以后给其他厂商用的话，win掌机这个东西以后怕是要改名 xbox 掌机，然后和 sd 变成泾渭分明的两个阵营了，虽然我还是更喜欢 valve 的开源架构，希望 valve 之后给点力吧。不过反过来看 valve 眼光也够毒的，在传统 pc 厂商和微软都没反应过来的时候就推出了一整套的掌机方案，偷了pc 厂商和微软的家，到四年后这边才跟上做了类似的东西，最逗的是还用了人家四年前的同款 soc，希望下代 sd 能有些惊喜吧。
 
+
+*****
+
+####  sswhxj  
+##### 65#       发表于 2025-6-9 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67907200&amp;ptid=2253298" target="_blank">XxXr 发表于 2025-6-9 14:20</a>
+
+我是建议别对ms能搞好掌机UI做太大期待，到时候能做到win11正常休眠就谢天谢地了 ...</blockquote>
+xbox的ui都一沓糊涂
+
