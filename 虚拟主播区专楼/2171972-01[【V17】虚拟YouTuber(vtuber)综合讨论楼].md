@@ -332,3 +332,22 @@ syl，兔头给月之人偶买的新衣服好可爱
 
 不过日本人肯定不会觉得有啥，毕竟连mitti这种男的都能在发生一堆破事暴言之后若无其事的直播混进瓦满编呢<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 1212#       发表于 2025-6-10 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910557&amp;ptid=2171972" target="_blank">Harunoharu 发表于 2025-6-10 00:14</a>
+
+恶意剪辑是指事发之后持续强调说ファン太很恶心，让老叶管管他别靠近其他女生不然受害者会变多，和一堆人 ...</blockquote>
+刚刷到LLM第二天的解释，至少从她的说辞上我是觉得还处于neta的范围内
+
+老叶被炎也有因为事件发生时不帮llm的原因，以往都有kenki之类的帮腔
+
+这次老叶就在旁边看，跟一贯好哥哥的形象不符吧
+
+（从国内的评论上我感觉一是国内对于xsr的恶感远高于鬼子，某些发言已经可以说是在打拳了
+
+二是老叶黑粉兴风作浪，翻旧账什么的）
+

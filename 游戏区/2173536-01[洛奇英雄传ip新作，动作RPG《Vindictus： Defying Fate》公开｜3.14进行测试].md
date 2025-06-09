@@ -749,3 +749,14 @@ PSN的试玩还没出么，搜不到
 
 呆娅爆衣冲刺跟叠层全删了，打起来比原版还便秘，服了
 
+
+*****
+
+####  frankCC  
+##### 195#       发表于 2025-6-10 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910490&amp;ptid=2173536" target="_blank">laoz 发表于 2025-6-9 23:55</a>
+
+全程大剑单人剩两只招募没打，技能树挺幽默的，除了技能后接重击有点额外的体验以外其他就TM喝药速度能明显 ...</blockquote>
+可以用下烈士塔，狂怒派生完整一点，主动狂怒cd只有45秒，能用三次，能接被动狂怒，感觉是这次测试里最强的了。
+
