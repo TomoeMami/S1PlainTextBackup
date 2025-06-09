@@ -88,3 +88,13 @@
 
 主要是还想有点交互，技能压制是很强，但太无聊了
 
+
+*****
+
+####  紫苑寺美琴  
+##### 2242#       发表于 2025-6-9 17:01
+
+感觉手感最好的还是关垂直同步+开nvdia reflex，弹反性能相当优秀了
+
+另外这一堆花里胡哨的连段，除了轻轻重重，还有比较好用的吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
