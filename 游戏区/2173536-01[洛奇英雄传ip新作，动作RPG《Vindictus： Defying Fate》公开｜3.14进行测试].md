@@ -851,3 +851,18 @@ PSN的试玩还没出么，搜不到</blockquote>
 
 原版网游动作体验就差不多其实，只不过网游可以通过攻速加成（强化，附魔，狼爪）来提升容错率手感啥的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个demo的呆雅完全就给你上白板武器，所以特别笨重
 
+
+*****
+
+####  kisaragi凛  
+##### 206#       发表于 2025-6-10 05:09
+
+原版网游动作体验就差不多其实，只不过网游可以通过攻速加成（强化，附魔，狼爪）来提升容错率手感啥的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个demo的呆雅完全就给你上白板武器，所以特别笨重
+
+*****
+
+####  UnknownRei  
+##### 207#       发表于 2025-6-10 05:58
+
+黛莉娅的防反收益太低了，只能蹭几下刮痧，LLLRR下砸的力量感表现也很糟糕，原版我就好把BOSS残血打飞等结算自动拍照，怎么照着自己十年前的作业抄都能抄成这样<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
