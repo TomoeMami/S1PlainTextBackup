@@ -477,3 +477,21 @@ Z2E那款价格不知道多少有可能699/799刀. 就...尊重, 祝福
 
 以后掌机就是steamos和win精简版的系统之争了吧，完整版win系统放掌机上体验是真的差，虽然兼容性无敌啥都能玩，两个系统各有优缺点也是让人蛋疼
 
+
+*****
+
+####  darkjack  
+##### 46#       发表于 2025-6-9 11:46
+
+介绍说可以运行整个xbox游戏库，能原生运行360,one的游戏还有点意义。
+
+*****
+
+####  泰坦失足  
+##### 47#         楼主| 发表于 2025-6-9 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67906445&amp;ptid=2253298" target="_blank">darkjack 发表于 2025-6-9 11:46</a>
+
+介绍说可以运行整个xbox游戏库，能原生运行360,one的游戏还有点意义。</blockquote>
+然而并不能, 指的是Xbox Cloud运行
+
