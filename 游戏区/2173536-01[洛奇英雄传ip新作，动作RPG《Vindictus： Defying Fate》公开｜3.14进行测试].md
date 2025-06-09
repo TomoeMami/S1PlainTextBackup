@@ -530,3 +530,11 @@ dlss开平衡可以110帧，但是出了小旅馆进了村儿里面就掉 ...</b
 
 动画间歇仅可控制1.5秒左右，而且没办法手控延长，团队贡献大不如前
 
+
+*****
+
+####  noli  
+##### 173#       发表于 2025-6-9 19:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">优化巨屎啊,声效也很差,戴莉娅的终结流星声音都不对了!
+
