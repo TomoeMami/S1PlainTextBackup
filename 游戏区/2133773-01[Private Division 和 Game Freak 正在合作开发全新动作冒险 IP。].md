@@ -1115,3 +1115,11 @@ GF可以干脆闷声发大财，但他不，他要搞最强御三家团战和背
 能不能任天堂独不占啊，反正任豚也不爱玩gf游戏</blockquote>
 现在怎么说？
 
+
+*****
+
+####  九十九忍  
+##### 106#       发表于 2025-6-9 16:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
