@@ -7720,3 +7720,11 @@ woc，被刺瑶炸惨了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  qwased  
+##### 6641#       发表于 2025-6-9 21:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">感觉现在核弹手枪在东线一定程度上都能当500kg用了
+
