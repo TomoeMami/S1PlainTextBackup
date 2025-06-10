@@ -205,3 +205,13 @@
 你这图又不是剑星2的图</blockquote>
 我的错，网上冲浪时看到的没仔细看，原来是开发中的新作<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NameLess2501  
+##### 2253#       发表于 2025-6-10 15:14
+
+<blockquote>爱吃冻鳗的猫 发表于 2025-6-10 10:08
+这游戏难吗？感觉游戏动力是收集衣服，要不要直接选最低难度玩算了</blockquote>
+从试玩版的BOSS挑战看，有一些难度，一不留神就会被打掉半条命。想打的舒服需要背板和比较熟练的弹反和闪避。但并不是全程BOSS表演你乱滚，你用技能一样能打出BOSS的硬直甚至把BOSS打飞。
+
