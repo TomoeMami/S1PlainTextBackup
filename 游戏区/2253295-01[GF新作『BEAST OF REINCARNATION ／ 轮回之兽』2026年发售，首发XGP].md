@@ -1030,3 +1030,14 @@ FIctions是啥公司
 
 女主外型在好球区，但这战斗画面完全看不出吸引力
 
+
+*****
+
+####  医生狼多  
+##### 102#       发表于 2025-6-10 10:35
+
+魂like？
+Game Freak goes Soulslike.
+
+Beast of Reincarnation invites you to a post-apocalyptic Japan on PS5 next year: play.st/45yxw9d
+
