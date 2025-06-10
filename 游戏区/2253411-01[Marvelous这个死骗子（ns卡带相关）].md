@@ -442,3 +442,41 @@ SD卡不就降价了</blockquote>
 但是switch1代的卡带成本一直也没降</blockquote>
 switch1代的卡带成本新闻不多吧，我找了一下也没看到
 
+
+*****
+
+####  多诺  
+##### 44#       发表于 2025-6-10 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912930&amp;ptid=2253411" target="_blank">karastar 发表于 2025-6-10 13:47</a>
+
+switch1代的卡带成本新闻不多吧，我找了一下也没看到</blockquote>
+印象中有提到32G卡带在switch刚发售时价格昂贵，第三方希望过几年32G卡带价格下降（同时推出64G卡）后大作普遍使用，结果最后也没达成这一目标。
+
+*****
+
+####  karastar  
+##### 45#       发表于 2025-6-10 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913090&amp;ptid=2253411" target="_blank">多诺 发表于 2025-6-10 14:23</a>
+
+印象中有提到32G卡带在switch刚发售时价格昂贵，第三方希望过几年32G卡带价格下降（同时推出64G卡）后大 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说明用的人不够多成本下不来，统一64G老任自己就能提供一大批产能，降价会比一代多种容量快
+
+*****
+
+####  绿冰  
+##### 46#       发表于 2025-6-10 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913090&amp;ptid=2253411" target="_blank">多诺 发表于 2025-6-10 14:23</a>
+
+印象中有提到32G卡带在switch刚发售时价格昂贵，第三方希望过几年32G卡带价格下降（同时推出64G卡）后大 ...</blockquote>
+就没几家用32G的，要不是花心思把游戏压到16G以内，要不是摆烂直接卡带只装游戏的基本模式，剩下更新
+
+*****
+
+####  wtyrambo  
+##### 47#       发表于 2025-6-10 14:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有物美价廉的2242不用，用高端TF卡，第三方和玩家的福报
+
