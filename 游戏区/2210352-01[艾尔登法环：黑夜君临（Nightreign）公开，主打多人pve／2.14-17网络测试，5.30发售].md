@@ -8353,3 +8353,15 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 单挑癫羊推荐用无赖，杀鲸霸拳能直接破癫羊的防护罩</blockquote>
 我多试几次看能不能刷出异常抗性的战前交易。
 
+
+*****
+
+####  usodakedo  
+##### 823#       发表于 2025-6-10 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912641&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-10 12:48</a>
+我多试几次看能不能刷出异常抗性的战前交易。</blockquote>
+无赖的小技能减伤率非常高，发动期间其实约等于强盾，还能让精力条有时间回精，所以推荐普攻和小技能交替使用，而且受到伤害后会积攒怒气从而使用增强版杀鲸霸拳，冲击力和失衡值相当于其他人的大招，非常恐怖
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

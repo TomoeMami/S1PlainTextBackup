@@ -994,3 +994,42 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  mumubear  
+##### 17834#       发表于 2025-6-10 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912076&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-10 11:13</a>
+还是问一下，如果结尾番茄什么事都没干，最多和喵安打一架，认知到自己追求的东西实在是没必要然后回归日常 ...</blockquote>
+回归日常也分好几种的啊，你看ew剧场版结局大家都回归日常，卡托鲁一边一边当大少爷一边打灰呢。。。
+就像我第八集好几天说得番茄就是神人tv预备役，回归这样的日常肯定不能接受。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 17835#       发表于 2025-6-10 13:00
+
+欸，战争就是很有青春感的事，已经到00后先上的日子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 17836#       发表于 2025-6-10 13:04
+
+俄乌00后已经死了不少了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 17837#       发表于 2025-6-10 13:05
+
+不过我觉得番茄死了的概率都比回归日常高<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 17838#       发表于 2025-6-10 13:15
+
+最好真的会死哦（笑）
+

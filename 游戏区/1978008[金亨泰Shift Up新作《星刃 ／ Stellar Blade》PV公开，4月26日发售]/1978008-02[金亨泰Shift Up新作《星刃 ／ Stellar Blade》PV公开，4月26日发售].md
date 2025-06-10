@@ -185,3 +185,23 @@
 
 2025-6-10 12:18 上传
 
+
+*****
+
+####  Andariel  
+##### 2251#       发表于 2025-6-10 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912510&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-10 12:20</a>
+其实2代还是有可能加武器类型的吧，这张主角视觉图左女双剑，右女拿的很像匕首</blockquote>
+你这图又不是剑星2的图<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雷攻姛人  
+##### 2252#       发表于 2025-6-10 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912726&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-10 13:01</a>
+
+你这图又不是剑星2的图</blockquote>
+我的错，网上冲浪时看到的没仔细看，原来是开发中的新作<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
