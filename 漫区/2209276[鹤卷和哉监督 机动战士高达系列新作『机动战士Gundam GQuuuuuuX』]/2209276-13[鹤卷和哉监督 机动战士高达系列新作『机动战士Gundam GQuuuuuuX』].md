@@ -5749,3 +5749,85 @@ nya才是有如造孽之前必须给自己找个看起来像话的理由（
 
 就算不被毒死，以战况来看也是路边一条啊。
 
+
+*****
+
+####  LOLITA  
+##### 18316#       发表于 2025-6-11 02:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916678&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-11 02:53</a>
+
+我理解有误还是看漏了什么。
+
+既然紫婆身边全是基连特务，连GFRED都知道，亲卫队全强人出装不可能不知道吧 ...</blockquote>
+有一说一大基天天草这秘书我是理解的<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18317#       发表于 2025-6-11 02:58
+
+ 本帖最后由 岸浪白野 于 2025-6-11 03:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916189&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-11 00:21</a>
+
+一想到第七集楼里全在洗喵安只是求生欲不是抢男人我就笑出声。</blockquote>
+其实楼友们回头乐第7集当时的人太天真想太多是不如石川由依 2本杂志都说绝对不是真的想私奔幽默的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第7集中对修司说的那句“把玛秋和高达都抛下，我们一起从这里逃走吧！”的台词，您是怀着怎样的心情去演绎的呢？
+
+石川：喵安或许是感觉大家都要离自己而去，所以才那么拼命吧。她可能对玛秋抱有些许对抗心理，但我认为当时绝不是想和修司两个人私奔，或者想要抢先一步之类的明确想法。或许，她对玛秋也怀有一种自己会变得孤单的焦躁感，而那种无能为力的焦躁感，我感觉就像一种执念。
+
+在第6集中，喵安曾低语饺子“真想三个人一起吃啊”，但在第7集中，她又向修司呼喊：“玛秋也好，高达也好，全都抛下，我们一起从这里逃走吧！”。对于这种感情上的变化，您在演绎时是如何理解的呢？
+
+石川：虽然她在第7集那么说了，但绝不是明确地想要和修司私奔，或者想要抢先一步离开，而是感觉大家都要离自己而去了，拼命地想要抓住某个人吧。当然，她或许有不想和修司分开的心情，以及对玛秋的一点点对抗心，但我认为在喵安心中，她对玛秋的感情也并未完全割舍。
+
+*****
+
+####  z1212cz  
+##### 18318#       发表于 2025-6-11 02:59
+
+原来修斯去喷喷新作当主角了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/11/025802odvdvtpsp415s5rs.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQvgc6-806kZ2fT3cSx8-18k.png</strong> (202.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 02:58 上传
+
+*****
+
+####  aptx8285144  
+##### 18319#       发表于 2025-6-11 03:00
+
+首席身边的还有不少军人，就这么目送番茄去了吗？?<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 18320#       发表于 2025-6-11 03:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916681&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-6-11 02:56</a>
+
+有一说一大基天天草这秘书我是理解的</blockquote>
+虽然基连本来就是个智障，但是这集的配置给人感觉他连脑子都X出去了。
+
+他看不起新人类，行，两台神棍高达可以不计。
+
+对面这么一个配置，你至少要想一想大扎姆的弱点在哪里吧，就真不带任何MS呗。
+
+
+*****
+
+####  ryanghj  
+##### 18321#       发表于 2025-6-11 03:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916682&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-11 02:58</a>
+其实楼友们回头乐第7集当时的人太天真想太多是不如石川由依 2本杂志都说绝对不是真的想私奔幽默的
+
+第7集中 ...</blockquote>
+实际上转折点发生在神社夜谈，喵安之后实际上已经和玛秋断交了，两人关系全靠修司联系，修司一走两人是不会继续当朋友的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

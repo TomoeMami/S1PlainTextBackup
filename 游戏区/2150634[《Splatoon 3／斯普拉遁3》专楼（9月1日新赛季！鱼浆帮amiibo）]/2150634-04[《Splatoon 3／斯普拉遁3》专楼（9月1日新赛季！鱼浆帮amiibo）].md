@@ -156,3 +156,16 @@
 
 不过这次的第二贴牌武器和前作不完全重合，武器子合集/ta牌武器部分回归可能性微存
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5664#       发表于 2025-6-11 03:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916315&amp;ptid=2150634" target="_blank">KBAC 发表于 2025-6-11 00:48</a>
+
+宣传片里是30把新武器，2代的第二贴牌是29把，比前作多1把就是胜利是吧
+
+不过这次的第二贴牌武器和前作不完 ...</blockquote>
+看目前这架势，估计是准备把喷3当马车8那样再续一段时间，武器不好说，但地图我觉得还会再更新
+
