@@ -3891,3 +3891,16 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 还有两集，估计就绿叔叔+首席了吧
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1834#       发表于 2025-6-11 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910907&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-10 05:35</a>
+
+空出来是什么意思？20w分不会升阶层啊
+
+更难上分是指AI会自动用最大威力的招不会省EN，之前的控血让敌人用 ...</blockquote>
+你队伍的AI也同样会用大招了啊。
+

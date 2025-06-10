@@ -5196,3 +5196,229 @@ Gfed很明确就是启动手电筒用的，然后明知道Gfed在紫婆手里，
 第八话喵安就知道GQX被番茄抢夺坠入地球，现在见面了反而不知道驾驶员是谁？ ...</blockquote>
 感觉以这片对NT的糊逼处理，就是战斗漫那种，啊番茄/喵安经历了地球/月球修行后气的形式已经完全改变一下认不出来了
 
+
+*****
+
+####  Saber琪  
+##### 18262#       发表于 2025-6-11 01:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916562&amp;ptid=2209276" target="_blank">molemole 发表于 2025-6-11 01:53</a>
+这俩人又有什么旧账可言呢，感觉真不熟吧（笑）</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是女人
+
+*****
+
+####  Launce  
+##### 18263#       发表于 2025-6-11 01:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916547&amp;ptid=2209276" target="_blank">PigMourne 发表于 2025-6-11 01:46</a>
+
+你是说，一个摸不到蔷薇、做不了泽科诺瓦实验、甚至不是NT，却凭空解析泽科诺瓦机理然后开发出即插即用大杀 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉单纯是哈基安应激哈气了，紫婆只是交代她去发炮
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 18264#       发表于 2025-6-11 01:58
+
+最搞的是要是没有紫婆这一手消光毒杀，绿叔叔原本打算怎么冲进吉翁大军斩首俩兄妹啊？就算和传统动画套路一样手握神棍机天下无敌但是麻球和GQX可是一点战绩没有不说连武器都只有两把光束刀……
+
+*****
+
+####  轮太  
+##### 18265#       发表于 2025-6-11 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916457&amp;ptid=2209276" target="_blank">fujissw 发表于 2025-6-11 01:18</a>
+
+5年躲着不见面的俩人碰面会火并都没有预料吗，绿叔叔你这好丢人啊</blockquote>
+原作也是啊，紫老太一个情报口出身，之前的画风一直是什么经济渗透啊保存实力啊搞文斗为主的
+
+谁知道进了阿巴瓦库直接0帧起手把老哥崩了
+
+原作基连料不到这里绿叔叔自然也料不到咯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 18266#       发表于 2025-6-11 01:59
+
+一直觉得喵安鲨魔怔这一点，是那张疑似强化人的废案没删干净导致的<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">只要换成强化人这些行为逻辑一下子就通顺了（万用公式）
+
+*****
+
+####  岸浪白野  
+##### 18267#       发表于 2025-6-11 01:59
+
+[X 上的 STAR影法師：“[url]https://t.co/089AgonW3y](https://x.com/starshadowmagic/status/1932495675536867595)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/015931qllwlkhl9zf1l5fy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (604.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:59 上传
+
+*****
+
+####  ティグル  
+##### 18268#       发表于 2025-6-11 01:59
+
+总帅的惊世遗言那是跟自己homie拳拳到肉打完之后在赛后复盘环节也嘴不过对面气急败坏脱口而出的心里话
+
+你换谁来都会有这种发言，只是可能没这么难绷
+
+
+*****
+
+####  我聞如是  
+##### 18269#       发表于 2025-6-11 02:00
+
+<blockquote>windtrack 发表于 2025-6-11 01:49
+这个操作台和Gfred还有艾尔美斯一比，这艾尔美斯是不是有点过于大了.....
+
+</blockquote>
+上話就跟索頓差不多寬了
+
+*****
+
+####  Launce  
+##### 18270#       发表于 2025-6-11 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916577&amp;ptid=2209276" target="_blank">綺々羅々ヴィヴ 发表于 2025-6-11 01:58</a>
+
+最搞的是要是没有紫婆这一手消光毒杀，绿叔叔原本打算怎么冲进吉翁大军斩首俩兄妹啊？就算和传统动画套路一 ...</blockquote>
+GQX全武装了，开始和绿叔叔练习的时候就是全武装形态
+
+*****
+
+####  盐盐盐盐盐  
+##### 18271#       发表于 2025-6-11 02:00
+
+现在是麻球有一个模糊的理想（追求自由/厌恶伤害他人的行为），但喵安没有任何思想她真的单纯当个班上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了生存只能变强但是她干这些事又不是有人拿刀架她脖子上了，而是为了讨基西莉亚的欢心和见到修司，非要说也不过是一种自我中心滥用力量的潜在思想，说不上理想那个层面
+麻球的想见修司可能包含一种同为nt共有同样情感的追随，喵安是纯纯的个人感情，这已经有点高下立现了
+
+*****
+
+####  YU_JI  
+##### 18272#       发表于 2025-6-11 02:01
+
+俩人打起来是绿叔叔意料之内吧，斩首不知道是打算趁战乱斩还是怎么着，意外之外的是废物哈基连见面直接就被秒了，还有紫婆的雷厉风行
+
+*****
+
+####  西洛克  
+##### 18273#       发表于 2025-6-11 02:01
+
+<blockquote>windtrack 发表于 2025-6-11 01:49
+这个操作台和Gfred还有艾尔美斯一比，这艾尔美斯是不是有点过于大了.....
+
+</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/11/020059mv3abmvsfm77bfvc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6777.jpeg</strong> (373.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 02:00 上传
+
+上一集就感觉不对了，宽度和木马差不多…
+
+*****
+
+####  璇瑢子R  
+##### 18274#       发表于 2025-6-11 02:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916451&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 01:17</a>
+其实有个问题，魔改手电筒是在玫瑰失踪的情况下建造的，那靠的是什么科技呢？
+
+就像GQX和Fred一样，科技层面 ...</blockquote>
+科技编剧说有就有，不要搞得那么清楚
+
+*****
+
+####  xunit  
+##### 18275#       发表于 2025-6-11 02:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916553&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 01:48</a>
+那段是紫婆在阴阳怪气吧，大基对外声称自己为战争中半数人类的死亡感到内疚，然后缩在别墅和秘书翻云覆雨 ...</blockquote>
+那段的对话我感觉更像是紫婆顺着上一句话描述汤大基的状态，"后悔害怕到只敢和最信任的秘书猫在自己的宅邸里惶惶不可终日"，然后还表示了她对她哥的蔑视"这种水平也就是个凡骨，只有这种程度的人哪里比得上想要用大手电图图地球的我"
+
+*****
+
+####  xwz  
+##### 18276#       发表于 2025-6-11 02:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916061&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-11 00:02</a>
+
+大基声优确实是山寺，塞西莉娅是爱生</blockquote>
+不是福山润稍微有点失望<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逆袭的黑月  
+##### 18277#       发表于 2025-6-11 02:02
+
+番茄现在感觉已经经过了NT思想改造了,后面应该有一些自己的动机和目标.
+
+喵安还没戒掉kirakira和老太婆过家家,看下集会不会番茄出舱来修正她.
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后牢修的剧情应该和夏亚绑定的,等一个gqux启动alpha杀手dummy系统手撕红高达然后番茄在驾驶舱里面哭
+
+*****
+
+####  Saber琪  
+##### 18278#       发表于 2025-6-11 02:02
+
+快进到牢修变女鬼引导🍅找回家的路去到了地球，喵安因迷路z氧气不足挂了<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 18279#       发表于 2025-6-11 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916567&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-11 01:53</a>
+
+看完了，我只能说联邦输掉一年战争是强行剧情杀，大扎姆本来就是可以靠大群MS掩护少量ACE靠近干掉的，至少 ...</blockquote>
+吉翁也可以组织ms保护大扎姆啊，这集不就是剧情杀，基连派一台ms都没有<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leliel  
+##### 18280#       发表于 2025-6-11 02:03
+
+喵朝着夏亚跑路的方向丢下一句“讨厌的味道”，大半夜的看到这忍不住爆笑了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asdhai  
+##### 18281#       发表于 2025-6-11 02:03
+
+这集小番茄其实还行吧。和绿叔叔掏心掏肺，连鸭子复仇的事都知道，也算是介入事件了；虽然还是会念叨修司，但是她这次参战还是基于朴素的正义感要制止地图炮；和小森的小互动也挺有趣，还是有个人样。整体上来说没啥问题。
+
+*****
+
+####  猪突猛进R  
+##### 18282#       发表于 2025-6-11 02:05
+
+番茄经过上一集确实有成长啊，也算意料之内。
+
+*****
+
+####  璇瑢子R  
+##### 18283#       发表于 2025-6-11 02:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916497&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-11 01:25</a>
+一般来说狗都不信基西莉亚造zknv手电筒照地球有那么高的觉悟
+
+但是看之前念叨夏亚时的神情和gqx基西莉亚现在 ...</blockquote>
+一开始
+吉翁和联邦冷战
+然后联邦路边一条
+基连和基西利亚冷战
+然后基连路边一条
+
+难道冷战说的是主角三人组冷战吗？
+那是好多集没说上话了
+
