@@ -8330,3 +8330,15 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 15级去单挑癫羊打不过，看来只能堆熟练度了，癫火也没有稳定来源。
 
+
+*****
+
+####  usodakedo  
+##### 821#       发表于 2025-6-10 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912073&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-10 11:13</a>
+15级去单挑癫羊打不过，看来只能堆熟练度了，癫火也没有稳定来源。</blockquote>
+单挑癫羊推荐用无赖，杀鲸霸拳能直接破癫羊的防毒罩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
