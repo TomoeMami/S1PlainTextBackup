@@ -5516,3 +5516,79 @@ GQX全武装了，开始和绿叔叔练习的时候就是全武装形态
 发现牢修对🍅和喵安的塑造就是一个🍅这俩谁一开始提牢修，那人物塑造妥妥地往下掉，谁哪集不提牢修（喵安第八集，🍅第十集），人物塑造又成长又好起来了
 看第十一集谁debuff叠的多（）
 
+
+*****
+
+####  xwz  
+##### 18293#       发表于 2025-6-11 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916596&amp;ptid=2209276" target="_blank">ardente 发表于 2025-6-11 02:03</a>
+
+吉翁也可以组织ms保护大扎姆啊，这集不就是剧情杀，基连派一台ms都没有</blockquote>
+问题联邦在资源上是占有绝对优势的，没道理数量上会比不过
+
+*****
+
+####  asdhai  
+##### 18294#       发表于 2025-6-11 02:16
+
+<blockquote>jayce 发表于 2025-6-11 02:07
+啥玩意啊一点逻辑没有，胡子大叔怎么感受到自由了回来又迷茫成行尸走肉了，你到底感悟了啥？
+
+最烦就是动不 ...</blockquote>
+你在说啥啊，紫婆说了以后再也没有什么地球产的香水了，地图炮的密码有两行，一行已经轰了，另一行你猜是哪？栽赃？栽给谁看啊？
+
+*****
+
+####  圣锤修会  
+##### 18295#       发表于 2025-6-11 02:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916613&amp;ptid=2209276" target="_blank">爱吃冻鳗的猫 发表于 2025-6-11 02:14</a>
+这是三笠附身跑高达片场来了？不是，修司才见过几面就这么寻死觅活的，简直是让观众脑补6集情感铺垫嘛？我 ...</blockquote>
+喵安感觉就是z里那几个疯女人模板，不过gqux篇幅太小了，大家感受不深，这作感觉就是很标准的老uc高达，改有的要素都有
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  asikies  
+##### 18296#       发表于 2025-6-11 02:19
+
+<blockquote>爱吃冻鳗的猫 发表于 2025-6-11 02:14
+这是三笠附身跑高达片场来了？不是，修司才见过几面就这么寻死觅活的，简直是让观众脑补6集情感铺垫嘛？我 ...</blockquote>
+只能说这是一部披着现代作品皮的高达，很难相信现代作品会把第一生产力卖cp做得这么差，人家铁血水魔做得再差，至少还能靠卖cp赚得飞起。
+
+*****
+
+####  仓岛千百合  
+##### 18297#       发表于 2025-6-11 02:20
+
+其实我搞不懂就12集的量前面大篇幅打黑拳的目的是为了啥？博美犬那四人干嘛的？本以为大姐头是啥高深莫测的世外高人原来也就是个路人...<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xyion  
+##### 18298#       发表于 2025-6-11 02:20
+
+麻球和喵安对各自背后的立场的理解就是一种我写了你别说我没写的程度，我觉得鹤卷自己都不认为这部分写起来有趣。
+
+*****
+
+####  patema  
+##### 18299#       发表于 2025-6-11 02:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916618&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-11 02:16</a>
+
+问题联邦在资源上是占有绝对优势的，没道理数量上会比不过</blockquote>
+你打不穿if就是打不穿，联邦要拿着加农底子没骡子数据的轻加农突破鸡瘟的护航打格斗战也不容易吧
+
+*****
+
+####  Saber琪  
+##### 18300#       发表于 2025-6-11 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916625&amp;ptid=2209276" target="_blank">xyion 发表于 2025-6-11 02:20</a>
+麻球和喵安对各自背后的立场的理解就是一种我写了你别说我没写的程度，我觉得鹤卷自己都不认为这部分写起来 ...</blockquote>
+夏亚梦男是这样的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">要我说去掉三人组剧情其实没多大影响但是又要吸引年轻观众，不得不说这是对的，我就被吸引过去补了0079
+
