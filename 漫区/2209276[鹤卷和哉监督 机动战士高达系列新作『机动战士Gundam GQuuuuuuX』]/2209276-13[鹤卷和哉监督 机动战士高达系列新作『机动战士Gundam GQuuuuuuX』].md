@@ -1316,3 +1316,23 @@ Suiscout是S u i c i d e Scout的缩写，意为自 杀 式侦查</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  王元姬无惨  
+##### 17864#       发表于 2025-6-10 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我赌一个小森是汤大基的人 已经出场的角色里没有一个总帅派也太可怜了 蛋糕哥和王老吉都自认不是为了总帅 
+
+小森虽然吐槽没停过 但实际她怎么想的描写却一点没有
+
+*****
+
+####  朋友费小号  
+##### 17865#       发表于 2025-6-10 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913126&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-10 14:29</a>
+
+说到军服，这些都是吉翁军服</blockquote>
+答案是设定里可以由军官自己定制和修改军服<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
