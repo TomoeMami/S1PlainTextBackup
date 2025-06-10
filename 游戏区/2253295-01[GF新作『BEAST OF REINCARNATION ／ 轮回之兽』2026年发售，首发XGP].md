@@ -1041,3 +1041,24 @@ Game Freak goes Soulslike.
 
 Beast of Reincarnation invites you to a post-apocalyptic Japan on PS5 next year: play.st/45yxw9d
 
+
+*****
+
+####  wtscfer  
+##### 103#       发表于 2025-6-10 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67905063&amp;ptid=2253295" target="_blank">HazukiShion 发表于 2025-6-9 07:40</a>
+
+先骗进来然后再安排去宝可梦吗？</blockquote>
+是的，当初开发小镇英雄的栃木遥，他当初就是被齿轮计划吸引，从LV5跳槽来的（齿轮计划是你投企划，gf出人给预算，对销量没啥要求，权当技术积累，跑路lv5的原因是lv5总是瞎几把改自己的企划），结果做完小镇英雄之后就被发配去做阿尔宙斯了，现在已经混到ZA的开发总监了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 104#       发表于 2025-6-10 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913747&amp;ptid=2253295" target="_blank">wtscfer 发表于 2025-6-10 16:15</a>
+
+是的，当初开发小镇英雄的栃木遥，他当初就是被齿轮计划吸引，从LV5跳槽来的（齿轮计划是你投企划，gf出 ...</blockquote>
+三年之后又三年<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

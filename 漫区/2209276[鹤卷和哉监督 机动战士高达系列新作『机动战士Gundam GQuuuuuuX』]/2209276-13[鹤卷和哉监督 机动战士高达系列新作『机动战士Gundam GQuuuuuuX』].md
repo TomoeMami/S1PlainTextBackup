@@ -1351,3 +1351,61 @@ gto版本的绿叔叔确实因为看到拉拉就破防了
 </blockquote>
 gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂热的基连簇拥吗？
 
+
+*****
+
+####  plok201  
+##### 17867#       发表于 2025-6-10 16:14
+
+写死番茄最大问题不就你塑造这么个主角最后死了，大伙除了得出结论好好上学下辈子不要和街溜子扯上关系外还有啥，真的要剩下3集弄出足够塑造让观众接受么
+
+写死主角的高达就那么几个，你弄不出像巴尼、哈萨维那种足够沉重的理由说服观众的话，可是会变铁血的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 17868#       发表于 2025-6-10 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913635&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-6-10 15:55</a>
+我赌一个小森是汤大基的人 已经出场的角色里没有一个总帅派也太可怜了 蛋糕哥和王老吉都自认不是为了总帅 
+ ...</blockquote>
+那小森能扛着绿叔叔读心不被发现也挺牛逼<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 17869#       发表于 2025-6-10 16:17
+
+不是别的地方起码还聊聊别人访谈，你楼是只有玛秋了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 17870#       发表于 2025-6-10 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912076&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-10 11:13</a>
+
+还是问一下，如果结尾番茄什么事都没干，最多和喵安打一架，认知到自己追求的东西实在是没必要然后回归日常 ...</blockquote>
+番茄还是老老实实回归日常吧，gq高达事件就作为人生仅有一次的大冒险留在回忆里好了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 17871#       发表于 2025-6-10 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913755&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-10 16:17</a>
+
+不是别的地方起码还聊聊别人访谈，你楼是只有玛秋了吗</blockquote>
+由此可见这楼里只有麻球厨和扭曲的麻球厨<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 17872#       发表于 2025-6-10 16:21
+
+<blockquote>岸浪白野 发表于 2025-6-10 16:17
+不是别的地方起码还聊聊别人访谈，你楼是只有玛秋了吗</blockquote>
+绿叔叔: 明明我才是真女主 访谈也在和鸭子在炒cp
+

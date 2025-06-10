@@ -523,3 +523,16 @@ O在日本已经半死不活了</blockquote>
 
 推测欧美版是完整卡带，日版港版等是完整的NS1+key的升级部分
 
+
+*****
+
+####  怀旧战士  
+##### 52#       发表于 2025-6-10 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913174&amp;ptid=2253411" target="_blank">wtyrambo 发表于 2025-6-10 14:39</a>
+
+有物美价廉的2242不用，用高端TF卡，第三方和玩家的福报</blockquote>
+一张2242的功耗就赶上NS一半的功耗了
+
+就更别说散热压力暴增
+
