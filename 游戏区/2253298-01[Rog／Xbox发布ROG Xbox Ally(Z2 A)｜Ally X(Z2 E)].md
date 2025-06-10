@@ -841,3 +841,34 @@ gamebar很好啊 我现在看表截图全靠按西瓜键 steam那截图画质损
 
 2025年了还有sd同款处理器，开眼了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 81#       发表于 2025-6-10 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67908615&amp;ptid=2253298" target="_blank">indtability 发表于 2025-6-9 17:48</a>
+虽然之前就看到相关新闻，不过还是挺意外的，看来 valve 真给了微软不少压力。
+
+大概看下来感觉方向很对， ...</blockquote>
+阀门没有任何压力，阀门的生态跟Win的还真有些区别，而且他们的思路一直都是拥抱开源，和尽可能底层的提升用户体验与给予用户自由度
+
+至于你提到的阀门他们选择模拟键鼠啥啥的，其实这个对于x86掌机的重要性非常大，很有一部分游戏只能用键鼠，而这部分在xbox ally上等同直接被放弃了，又或者他们东施效颦学steam input自己搞了一套手柄自定义系统，那到头来还是你说的模拟键鼠
+
+我是觉得阀门和国内的x86掌机“先驱”（因为确实是这玩意国内最先起来的）们已经把这条路走通九成了，到头来最佳的解决方案还是valve
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  sswhxj  
+##### 82#       发表于 2025-6-10 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910458&amp;ptid=2253298" target="_blank">XxXr 发表于 2025-6-9 23:45</a>
+
+UI能越改越屎也是一种天赋，MS这帮人是真的没有品味，乔布斯讲得一点没错。
+
+我也不知道楼友为啥会对这机 ...</blockquote>
+我也估计不会有下一代xbox了
+
