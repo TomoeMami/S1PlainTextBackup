@@ -3285,3 +3285,19 @@ x终于要登场了
 那就是蓝吧</blockquote>
 说起来前段时间 买了个键盘 说是蓝色 图里看着也是蓝色 到手发现怎么看都是绿色 和图里也不一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 288#       发表于 2025-6-10 21:41
+
+[https://video.weibo.com/show?fid=1034:5174636598722677](https://video.weibo.com/show?fid=1034:5174636598722677)
+
+<img src="https://img.stage1st.com/forum/202506/10/214110v1b2seu6vkpk4ycu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 21:41 上传
+
