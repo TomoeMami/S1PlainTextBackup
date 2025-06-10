@@ -4787,3 +4787,94 @@ ray消光是什么胶佬梗吗</blockquote>
 
 但怎么都配不上UCif吉翁胜利冷战格局上这盘饺子
 
+
+*****
+
+####  sauron.j  
+##### 18228#       发表于 2025-6-11 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916253&amp;ptid=2209276" target="_blank">弹匣与花窗 发表于 2025-6-11 00:32</a>
+
+越想越想笑，前面打黑拳的时候就自己和对面的事，写角色满脑子一个没塑造的男性角色也就算了
+
+现在开着高达 ...</blockquote>
+鹤卷的片都是这样的，本质世界系，故事背景与其他配角营造的格局都只是舞台装置
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 18229#       发表于 2025-6-11 01:28
+
+开始战斗时有段像是数学摇滚的BGM，和宇宙战相性也太好了。
+
+*****
+
+####  LOLITA  
+##### 18230#       发表于 2025-6-11 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916417&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-11 01:09</a>
+
+喵安本来就是东南亚人种，实锤泰国人也算意料之内吧。</blockquote>
+不是菲律宾人怎么可以！！！
+
+*****
+
+####  Sabbah  
+##### 18231#       发表于 2025-6-11 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916500&amp;ptid=2209276" target="_blank">sauron.j 发表于 2025-6-11 01:26</a>
+
+鹤卷的片都是这样的，本质世界系，故事背景与其他配角营造的格局都只是舞台装置 ...</blockquote>
+在本片故事背景和所谓其他格局显然占据核心叙事地位的情况下不能被称为本质世界系，而只能被称为能力不足。
+
+
+*****
+
+####  冰风血羽  
+##### 18232#       发表于 2025-6-11 01:30
+
+宇宙里死去的悲鸣都听不到，NT就这种程度了
+
+*****
+
+####  AkaiSuisei  
+##### 18233#       发表于 2025-6-11 01:31
+
+几个疑点
+
+1)麻球为啥知道鸭子的目的是向扎比家复仇，GQX世界观官方的说法鸭子还是忠臣吧，总不能夏利亚全给麻球招了
+
+2)吉翁这么紧张的一触即发的内战局势下，怎么两边能合作造伊奥马戈内斯这种一炮把自己人杀完的大杀器的
+
+2.1)那么这么个大杀器的核心搜索工作，基连是哪来的大心脏交给夏利亚这个明面上是紫婆手下的人干的
+
+2.2)夏利亚嘴上逼逼着要把俩人都干死的二五仔，又是哪来的忠心屁颠颠给紫婆打工真出大力去找的
+
+3)喵安在见过zknv和所罗门上面那个大洞之后，为何依旧毫无怀疑帮基婆发动zknv，真单纯地觉得打一炮就能见到修酱吗
+
+*****
+
+####  西洛克  
+##### 18234#       发表于 2025-6-11 01:35
+
+这集基连完全不像0079那样阴险自信啊，说话软绵绵的，紫婆说因为图图太多有精神压力可能不是虚言。
+
+<img src="https://img.stage1st.com/forum/202506/11/013328yfm6fanzblnfezc2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6774.jpeg</strong> (157.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:33 上传
+
+*****
+
+####  朋友费小号  
+##### 18235#       发表于 2025-6-11 01:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">感觉年轻人的故事是烂完了
+
+现在我只想看修司开传送门到现场，背后是他摇来的正史或者非正史杀神骡子把在场的吉翁人们全图图了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
