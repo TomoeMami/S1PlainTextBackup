@@ -1700,3 +1700,35 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 像是全UC的女鬼跑过来了</blockquote>
 致敬传奇机器人动画片Zeta Gundam最终话是吧
 
+
+*****
+
+####  高达age  
+##### 17903#       发表于 2025-6-10 19:29
+
+单机突入大气层。
+
+<img src="https://img.stage1st.com/forum/202506/10/192924cir45mr4f0yijeff.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_突入大气层的玛啾_1749459938_1-00.jpg</strong> (358.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 19:29 上传
+
+<img src="https://img.stage1st.com/forum/202506/10/192925os5afaizzk5qmkfk.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_突入大气层的玛啾_1749459938_1-01.jpg</strong> (255.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 19:29 上传
+
+<img src="https://img.stage1st.com/forum/202506/10/192925nwstwf8tu6pps8pw.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_突入大气层的玛啾_1749459938_1-02.jpg</strong> (271.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 19:29 上传
+

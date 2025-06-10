@@ -370,3 +370,42 @@ all in莉莉丝，果然这个女人届不到。
 
 这个售后本真是面面俱到，玛修+冠位剑+果子龙
 
+
+*****
+
+####  qixinno2  
+##### 16892#       发表于 2025-6-10 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-10 11:26</a>
+
+欧 羡慕 大佬都用马修了  萌新还在用学姐冲90++</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只有没角色的才会用马修多看一个宝具 不如萌新这种随便刷的
+
+*****
+
+####  xy1041  
+##### 16893#       发表于 2025-6-10 16:35
+
+马修现在可以15绊了，当免费五星用咯
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  都谷捻柏  
+##### 16894#       发表于 2025-6-10 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911729&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-6-10 10:16</a>
+
+这就是100宝威的含金量，而且人类威胁特攻虽然范围小，但是数值给得大方，直接就是200的D类，一般的D类特 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是牢青的能力了，弱到谁都救不了，单看技能的数字还特么不低。
+
+*****
+
+####  qixinno2  
+##### 16895#       发表于 2025-6-10 19:33
+
+<blockquote>都谷捻柏 发表于 2025-6-10 19:04
+这就是牢青的能力了，弱到谁都救不了，单看技能的数字还特么不低。</blockquote>
+青子当半个蓝拐用 已经10绊了
+
