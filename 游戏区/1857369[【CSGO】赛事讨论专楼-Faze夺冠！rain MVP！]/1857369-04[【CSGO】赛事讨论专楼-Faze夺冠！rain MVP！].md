@@ -136,3 +136,20 @@
 
 接下去该faze老头队滚了
 
+
+*****
+
+####  zpl123  
+##### 4731#       发表于 2025-6-11 04:03
+
+lvgnb!!!!!
+
+*****
+
+####  DICE20  
+##### 4732#       发表于 2025-6-11 04:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">大家等第二个传奇组等了七年了啊
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
