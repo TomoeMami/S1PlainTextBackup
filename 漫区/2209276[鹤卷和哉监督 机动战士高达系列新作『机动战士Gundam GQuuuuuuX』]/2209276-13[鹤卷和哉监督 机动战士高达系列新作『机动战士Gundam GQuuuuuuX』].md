@@ -5956,3 +5956,11 @@ side6被刺杀也是绿叔叔保护下来的
 
 这zknw比起eva的冲击更像e7的7波吧<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">正巧e7剧场版兰顿爹是骡子 有山寺宏一配的疯子 还有同样找老公找了n年的名塚太太
 
+
+*****
+
+####  kkl12355  
+##### 18333#       发表于 2025-6-11 06:21
+
+确实是平行世界，正常世界握着大杀器玩威慑的是紫婆，毫不犹豫使用的是大基，现在反过来了。紫婆变成疯子了，看来紫婆也kirakira了。
+
