@@ -8365,3 +8365,11 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  医生狼多  
+##### 824#         楼主| 发表于 2025-6-10 13:24
+
+原来双持加工对弓箭没用吗<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我还每次都去捡
+
