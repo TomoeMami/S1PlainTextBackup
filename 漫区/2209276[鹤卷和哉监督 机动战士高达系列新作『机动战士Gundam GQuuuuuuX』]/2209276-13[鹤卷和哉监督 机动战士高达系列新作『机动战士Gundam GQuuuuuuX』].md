@@ -1732,3 +1732,15 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 
 2025-6-10 19:29 上传
 
+
+*****
+
+####  王元姬无惨  
+##### 17904#       发表于 2025-6-10 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913751&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-10 16:17</a>
+那小森能扛着绿叔叔读心不被发现也挺牛逼
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿叔叔早发现了也不奇怪啊 你看首席哥心想“我杀得了他吗”的时候绿叔叔听到没
+
