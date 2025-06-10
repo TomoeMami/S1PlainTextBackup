@@ -4971,3 +4971,228 @@ Gfed很明确就是启动手电筒用的，然后明知道Gfed在紫婆手里，
 
 总感觉这剧说到底是俩女人争一个男人太LOW了...这是高达吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PigMourne  
+##### 18245#       发表于 2025-6-11 01:46
+
+ 本帖最后由 PigMourne 于 2025-6-11 01:48 编辑 
+
+你是说，一个摸不到蔷薇、做不了泽科诺瓦实验、甚至不是NT，却凭空解析泽科诺瓦机理然后开发出即插即用大杀器的超级博士，被紫婆像野狗一样用完就杀了？<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+这紫婆对技术真是没有一点理解啊
+
+*****
+
+####  S.A  
+##### 18246#       发表于 2025-6-11 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916460&amp;ptid=2209276" target="_blank">綺々羅々ヴィヴ 发表于 2025-6-11 01:19</a>
+
+话说这作汤大基也就打算拿手电筒和大扎姆来威胁联邦跪着不要动，从人命的角度来说比想用手电筒打爆地球的紫 ...</blockquote>
+毕竟汤大基这时候才是处于权力顶峰的那个人，他趋向于满足和维持现状可以理解。
+
+而紫婆面对汤大基需要下克上，那么想法就必须更激进。
+
+*****
+
+####  windtrack  
+##### 18247#       发表于 2025-6-11 01:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916546&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-11 01:45</a>
+
+总感觉这剧说到底是俩女人争一个男人太LOW了...这是高达吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">嗨，以前不也是俩男人争一个女人嘛
+
+*****
+
+####  wincle  
+##### 18248#       发表于 2025-6-11 01:48
+
+第八话喵安就知道GQX被番茄抢夺坠入地球，现在见面了反而不知道驾驶员是谁？
+
+*****
+
+####  朋友费小号  
+##### 18249#       发表于 2025-6-11 01:48
+
+基连：
+我们要讲科学，我妹妹只是畜生，又不是傻子，怎么会暗杀我呢？
+难道她还能暗杀完我再变出来一座魔法大炮，一炮干碎我的部队再一炮重创联邦吗？
+……你说“好啊”是什么意思？
+
+要不你們nt把ot全屠了唄，做不到就順其自然<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+什麼叫香水馬上絕版了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  YU_JI  
+##### 18250#       发表于 2025-6-11 01:48
+
+<blockquote>xunit 发表于 2025-6-11 01:45
+话说紫婆对她哥的评价自己信吗，汤大基哪里能是会对干掉半数人类而后悔的人，明明是即使亡灵真找上门也会 ...</blockquote>
+那段是紫婆在阴阳怪气吧，大基对外声称自己为战争中半数人类的死亡感到内疚，然后缩在别墅和秘书翻云覆雨，紫婆这段是在讽刺大基那没人信的鬼话吧
+
+*****
+
+####  windtrack  
+##### 18251#       发表于 2025-6-11 01:49
+
+这个操作台和Gfred还有艾尔美斯一比，这艾尔美斯是不是有点过于大了.....
+
+<img src="https://img.stage1st.com/forum/202506/11/014813m71lt1ff141bt98r.png" referrerpolicy="no-referrer">
+
+<strong>956c3e7ee4f77f0418793a8f2ea612d4.png</strong> (171.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:48 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/014817mdqt6tt0yq2q7cc7.png" referrerpolicy="no-referrer">
+
+<strong>2b90771bbc208b0efd46a8876bab3ac4.png</strong> (222.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:48 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/014824uwdqo6204v2q42w5.png" referrerpolicy="no-referrer">
+
+<strong>c0fece09eb291b6d85421352d6a0d025.png</strong> (244.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:48 上传
+
+
+*****
+
+####  visory  
+##### 18252#       发表于 2025-6-11 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916358&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-6-11 00:57</a>
+
+我来胡扯一下，二号机全身装了屏蔽精神波的系统，没法进入nt聊天室也没法短距离共享意识
+
+自然也无法被对 ...</blockquote>
+确实有这种可能，考虑到二号机的任务，是得要有一些保护措施免得驾驶员的精神遭到损害
+
+*****
+
+####  Saber琪  
+##### 18253#       发表于 2025-6-11 01:50
+
+抢女人是前菜是餐后甜点但不能当主菜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抢男人同理，就算逆鸭本质的矛盾冲突也不是因为拉拉而是夏亚觉得人类没救了
+所以我希望这俩癫婆最好只是把牢修当引子来开始翻旧账嘴炮，不过也跟逆鸭遗言一样难蚌就是了
+
+*****
+
+####  Saber琪  
+##### 18254#       发表于 2025-6-11 01:51
+
+ 本帖最后由 Saber琪 于 2025-6-11 01:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916551&amp;ptid=2209276" target="_blank">wincle 发表于 2025-6-11 01:48</a>
+第八话喵安就知道GQX被番茄抢夺坠入地球，现在见面了反而不知道驾驶员是谁？ ...</blockquote>
+喵安只是惊讶gqux为啥在这儿吧（因为麻球去地球了），真正不知道的是麻球啊
+
+*****
+
+####  盐盐盐盐盐  
+##### 18255#       发表于 2025-6-11 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916551&amp;ptid=2209276" target="_blank">wincle 发表于 2025-6-11 01:48</a>
+ 第八话喵安就知道GQX被番茄抢夺坠入地球，现在见面了反而不知道驾驶员是谁？ ...</blockquote>
+可能她觉得麻球去地球满足心愿就不会回来开gqux了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然我觉得喵安说为什么gqux在这也可能是因为她以为一时半会gqux都还会呆在地球上
+但是很明显麻球不知道gfrd是喵安的话为了对称估计也会安排喵安不知道gqux里是麻球，非得开舱举枪才认出来
+
+*****
+
+####  molemole  
+##### 18256#       发表于 2025-6-11 01:53
+
+<blockquote>Saber琪 发表于 2025-6-11 01:50
+抢女人是前菜是餐后甜点但不能当主菜抢男人同理，就算逆鸭本质的矛盾冲突也不是因为拉拉而是夏亚觉得人类没 ...</blockquote>
+这俩人又有什么旧账可言呢，感觉真不熟吧（笑）
+
+*****
+
+####  仓岛千百合  
+##### 18257#       发表于 2025-6-11 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916550&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-6-11 01:47</a>
+
+嗨，以前不也是俩男人争一个女人嘛</blockquote>
+但那不是主旨也不是内核啊，而这剧俩女主的行为和思考方式都是为了见男人，而且摆在明面上的。
+
+喵安放地图炮的目的是为见修司，阿姆罗推石头的目的也是为了见拉拉吗？
+
+*****
+
+####  YU_JI  
+##### 18258#       发表于 2025-6-11 01:53
+
+<blockquote>Saber琪 发表于 2025-6-11 01:50
+抢女人是前菜是餐后甜点但不能当主菜抢男人同理，就算逆鸭本质的矛盾冲突也不是因为拉拉而是夏亚觉得人类没 ...</blockquote>
+俩人其实背后都有中心思想站台，一个是夏利亚的“拯救新人类”，一个是紫婆的“力量即是生存”，但是如果这嘴炮台词真的只能落到修司修司上，那确实是太无语了
+
+*****
+
+####  CCCTHUN  
+##### 18259#       发表于 2025-6-11 01:53
+
+说到新人类图图旧人类，我只能说
+
+<img src="https://img.stage1st.com/forum/202506/11/015328u76b9c0l5lnunndb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000045898.jpg</strong> (185 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/015328zrc63t3jrmu5mya9.jpg" referrerpolicy="no-referrer">
+
+<strong>1000045899.jpg</strong> (154.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/015328p6bwc8upw0v96zb5.jpg" referrerpolicy="no-referrer">
+
+<strong>1000045897.jpg</strong> (71.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/015329b2m2gi6m3pg9vk2i.jpg" referrerpolicy="no-referrer">
+
+<strong>1000045896.jpg</strong> (191.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:53 上传
+
+*****
+
+####  xwz  
+##### 18260#       发表于 2025-6-11 01:53
+
+看完了，我只能说联邦输掉一年战争是强行剧情杀，大扎姆本来就是可以靠大群MS掩护少量ACE靠近干掉的，至少妈妈魔女的水平在有人配合的情况下应该可以，结果强行要吉翁赢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 18261#       发表于 2025-6-11 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916551&amp;ptid=2209276" target="_blank">wincle 发表于 2025-6-11 01:48</a>
+
+第八话喵安就知道GQX被番茄抢夺坠入地球，现在见面了反而不知道驾驶员是谁？ ...</blockquote>
+感觉以这片对NT的糊逼处理，就是战斗漫那种，啊番茄/喵安经历了地球/月球修行后气的形式已经完全改变一下认不出来了
+
