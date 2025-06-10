@@ -8447,3 +8447,26 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 话说问一下楼里，这些天一直听说这游戏有闪退情况，我是steam平台而且配置挺老的，也没基本开加速器，却从来没闪退过，也就偶尔的掉线。
 有的人说是wegame更新后的反作弊和小蓝中冲突的问题，也有说是qq问题，我没装过wegame，qq也是停在两年多以前的一个版本，所以不清楚到底是啥情况，有没有ps或者xbox平台的朋友说一下会不会遇到闪退
 
+
+*****
+
+####  adretyu67.  
+##### 831#       发表于 2025-6-10 19:50
+
+这游戏我没买，黑夜君临应该和老头环一样用的eac吧。
+
+是有可能随机闪退的基本看个人电脑情况。
+
+
+*****
+
+####  modkingr  
+##### 832#       发表于 2025-6-10 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914746&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-10 19:33</a>
+
+话说问一下楼里，这些天一直听说这游戏有闪退情况，我是steam平台而且配置挺老的，也基本没开加速器，却从 ...</blockquote>
+我有个朋友闪退得根本玩不了
+
+拿游戏名和闪退做关键词有很多深受其害的
+
