@@ -488,3 +488,43 @@
 还能怎么办，九话一点成长不给的叛逆小姑娘就只能充当攻城锤了呗。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">给了一点成长吧，番茄下地球以后被俩女仆噎的说不出话开始反思了都
 
+
+*****
+
+####  灵魂收割机  
+##### 17786#       发表于 2025-6-10 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910843&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-10 03:11</a>
+
+反正gqx下一集再没有正经迈入揭秘和结局大冲突阶段的话我个人这里就定性搞噱头流量的垃圾动画了 ...</blockquote>
+结局大冲突就是处理手电筒，连夏亚都到现场了。不如猜猜这群NT发功会发成什么样。
+
+*****
+
+####  Gaybird  
+##### 17787#       发表于 2025-6-10 09:27
+
+<img src="https://img.stage1st.com/forum/202506/09/202343whu4hum7y0u4h12r.jpg" referrerpolicy="no-referrer">
+
+<strong>img_1372.jpg</strong> (97.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 09:23 上传
+
+有些CV访谈的地方真的……有的时候看得我一股无名火……虽然大多数时候不是CV的责任
+比如说这里，庵野给夏亚写的一大堆膜0079的自言自语台词，被土屋神叶当成夏亚的个性的一部分了。
+谁懂我看到「今、シャアは頑張ってる！」的难绷心情
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  创始’’’天翔  
+##### 17788#       发表于 2025-6-10 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910776&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-6-10 02:09</a>
+
+这个本身没有问题，葵丝为啥跟夏亚走，心理是差不多的，对她来说新吉恩的一切都很新奇，即使被夏亚当工具 ...</blockquote>
+我之前就说了麻球对日常的痛恨完全是空中楼阁，还被人怼说是不能共感呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
