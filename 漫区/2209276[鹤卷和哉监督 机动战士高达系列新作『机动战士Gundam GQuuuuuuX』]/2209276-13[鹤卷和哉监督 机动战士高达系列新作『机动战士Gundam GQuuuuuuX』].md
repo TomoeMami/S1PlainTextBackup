@@ -829,3 +829,15 @@
 
 耐受差一点的菲姐还没溜冰就被迷得自己脱了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dr.Wondering  
+##### 17818#       发表于 2025-6-10 11:37
+
+ 本帖最后由 Dr.Wondering 于 2025-6-10 11:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912213&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-6-10 11:31</a>
+
+都经常做一些乖张别人难以理解的行为，像欧蒂娜一言不合和凤晓生上床、安茜的背刺，你说这些行为的根本放 ...</blockquote>
+首先少革属于几原风格浓郁的作品，从后面没有鹤卷参与的故事也能看得出来，无论是企鹅罐还是百合熊都有你说的能自洽的别人难以理解的行为，都探讨过自由和女性解放话题，鹤卷风格浓厚的也就flcl和top2，这两部就没有你说的那种风格，不知道你把少革和qgx放一起是想证明什么？叙事倾向和探讨主题可谓差之千里
+
