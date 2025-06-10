@@ -3696,3 +3696,95 @@ GQ鸭与GQ拉不认识。</blockquote>
 
 番茄杀进去好歹是为了救拉拉，而且目睹了惨剧，喵安在里面啥也不知道，然后脑子里全是男人这打起来估计突出一个相互理解不了，难道要靠夏亚把拉拉救出来kirakira一下互相理解，新人类携手干紫婆？
 
+
+*****
+
+####  cayon  
+##### 18128#       发表于 2025-6-11 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916278&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 00:38</a>
+
+番茄这一集可以说是强行扭转了形象，不对男人上脑，做事有目的（虽然是夏利尔给的），喵安是彻底黑化了，而 ...</blockquote>
+夏亚火箭筒单刷紫婆就完事了，和0079一样
+
+*****
+
+####  岸浪白野  
+##### 18129#       发表于 2025-6-11 00:42
+
+122之前说的后面集数有爆点就是指下周<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 18130#       发表于 2025-6-11 00:43
+
+都复刻得这么暴力了最后肯定是夏……斯罗兹先生出来刺刺背啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poiqwe  
+##### 18131#       发表于 2025-6-11 00:44
+
+我觉得这话番茄还算讨喜的吧，上一话下一次地球还是有作用的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+喵安是真黑化了，不是强化人胜似强化人了
+
+*****
+
+####  woui003woui  
+##### 18132#       发表于 2025-6-11 00:44
+
+爆点吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正夏亚出来干掉基西莉亚不会是爆点，要不下周来一手修司其实是武装直升机吧
+
+*****
+
+####  199april  
+##### 18133#       发表于 2025-6-11 00:45
+
+老太婆，你的火箭筒来罗
+
+——夏亚笑传之吃吃爆
+
+*****
+
+####  ftyaid  
+##### 18134#       发表于 2025-6-11 00:46
+
+在第十集给了夏亚一个脱出的镜头，那么在第十二集他就一定会射出火箭筒爆头（大雾）
+
+当然用激光枪和手枪爆头也行，不过这群老登肯定是原教旨一比一复刻画面就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 18135#       发表于 2025-6-11 00:46
+
+也许给予枪的目的是为了放下，从夏利亚的回忆来看有可能是这个理由
+
+番茄到最终话不沾血的可能性还是很大的
+
+喵安那边我觉得生存的可能性也有，当然也可能变宇宙女鬼，取决于修司如何显灵和最终话是否还有一个终极敌人
+
+如果最终话还需要对付终极BOSS（比如艾尔美斯），那么喵安有可能生存，除非最终话是番茄修司 俩人MAV
+
+*****
+
+####  民工业  
+##### 18136#       发表于 2025-6-11 00:47
+
+不愧是逃脱型nt（
+<img src="https://p.sda1.dev/24/704eec8a444b51fb534fff94987f4e06/1000123176.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  LOLITA  
+##### 18137#       发表于 2025-6-11 00:47
+
+爱上番茄了，怎么办<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+一个月前我还很讨厌她呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

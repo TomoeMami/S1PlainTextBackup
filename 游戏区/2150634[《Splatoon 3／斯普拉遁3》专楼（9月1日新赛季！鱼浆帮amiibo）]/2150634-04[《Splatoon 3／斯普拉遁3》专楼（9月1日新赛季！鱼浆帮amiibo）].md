@@ -136,3 +136,13 @@
 
 我从来没有诋毁过乌贼研<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5662#       发表于 2025-6-11 00:35
+
+怎么只有海星高架下，10周年顺便把寿司街也上了不好吗
+
+话说喷2第二贴牌我没记错的话是29个，喷3这次30个，比前作多就是胜利是吧
+

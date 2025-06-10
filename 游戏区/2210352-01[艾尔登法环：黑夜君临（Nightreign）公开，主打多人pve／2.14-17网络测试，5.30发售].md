@@ -8515,3 +8515,33 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 【【黑夜君临】“黑夜之智”格诺斯塔三阶段演示-哔哩哔哩】 https://b23.tv/2hMcWMc
 
+
+*****
+
+####  全装甲夏亚  
+##### 837#       发表于 2025-6-11 00:39
+
+为什么我突然开始狂闪退，boss打一半闪退了，再进来说换个遗物然后在换第二个的时候闪退了，然后又进来刚点第一个遗物就闪退了，最后我进去刚靠近石台就闪退了，什么玩意
+
+
+*****
+
+####  budong  
+##### 838#       发表于 2025-6-11 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67915845&amp;ptid=2210352" target="_blank">zakki 发表于 2025-6-10 23:24</a>
+虫子这三阶段完全变出来个新虫子了，看上去红蝴蝶才是操纵俩虫子的。
+感觉所有三阶段越来越像是发售前怕难 ...</blockquote>
+不像是提前砍的，应该是没做完，毕竟游戏文件好几个boss的三阶段根本就没有什么完成度
+
+*****
+
+####  budong  
+##### 839#       发表于 2025-6-11 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916158&amp;ptid=2210352" target="_blank">zakki 发表于 2025-6-11 00:16</a>
+去看了视频，这三阶段红蝴蝶还能复活附身其他两个虫子进行强化，还挺有意思的。看来更新上三阶段的这八个bo ...</blockquote>
+【【黑夜君临】“黑夜之智”格诺斯塔三阶段大招演示-哔哩哔哩】 [https://b23.tv/d3iqpCp](https://b23.tv/d3iqpCp)
+
+红蝴蝶的大招也挺有意思的
+
