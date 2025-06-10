@@ -8399,3 +8399,11 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 比较奇怪的是它插地板的大招只能隔一次打断一 ...</blockquote>
 boss的属性弱点触发一次后会有个CD，表现在boss身上会有属性特效在动，没了才能触发第二次，期间就只能削韧打断了
 
+
+*****
+
+####  woodey  
+##### 827#       发表于 2025-6-10 19:01
+
+更新了一个补丁，但steam页面没有任何说明<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
