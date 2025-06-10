@@ -3865,3 +3865,13 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 吉翁系 满破+14% 好弱 不如新手任务送的UC系好使
 
+
+*****
+
+####  棍机凹升龙  
+##### 1831#       发表于 2025-6-11 00:19
+
+最后一集怕不是送绿叔叔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

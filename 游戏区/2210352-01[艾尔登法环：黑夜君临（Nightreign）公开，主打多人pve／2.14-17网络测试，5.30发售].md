@@ -8505,3 +8505,13 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 当然这种分散的打法开到合适装备的几率会更小一些，这局要不是脸好第一把弓就开到雷弓，打人马可能就要坐牢了
 
+
+*****
+
+####  zakki  
+##### 836#       发表于 2025-6-11 00:16
+
+去看了视频，这三阶段红蝴蝶还能复活附身其他两个虫子进行强化，还挺有意思的。看来更新上三阶段的这八个boss还真就各值20块钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【【黑夜君临】“黑夜之智”格诺斯塔三阶段演示-哔哩哔哩】 https://b23.tv/2hMcWMc
+

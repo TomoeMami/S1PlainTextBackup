@@ -3163,3 +3163,256 @@ magnet:?xt=urn:btih:3ee318ffa7e3d900df12fd3e0f8547cdbf515e97&amp;dn=%5BNew-raws%
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  YU_JI  
+##### 18074#       发表于 2025-6-11 00:18
+
+把哈基连路边一条的死法也模过来了
+
+*****
+
+####  ryanghj  
+##### 18075#       发表于 2025-6-11 00:18
+
+<img src="https://img.stage1st.com/forum/202506/11/001813espwpi5w36zzp56x.png" referrerpolicy="no-referrer">
+
+<strong>8df1bc6b1d74b50cdef6b4497f9a360f.png</strong> (344.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:18 上传
+
+*****
+
+####  patema  
+##### 18076#       发表于 2025-6-11 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916050&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-6-11 00:01</a>
+
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为下一发就是对着地球了吧
+
+*****
+
+####  HOBBITXDD  
+##### 18077#       发表于 2025-6-11 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916114&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 00:09</a>
+
+泽科诺瓦是传送吧，紫婆是不是误会成直接抹杀了，她好像不知道泽科诺瓦不会杀人的信息差 ...</blockquote>
+这么说就突然感觉修司下一集像是被地图炮传送过来一地尸体吓得赶紧窜回去看看怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 18078#       发表于 2025-6-11 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916174&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-11 00:18</a></blockquote>
+越来越真了，但是这两人跟鲁路修朱雀关系没法比<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 18079#       发表于 2025-6-11 00:21
+
+蛋糕哥是对的，我为我上周开始怀疑他一周感到无比自责
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 伊露伊道格拉斯| + 1|支持正义毒杀|
+
+查看全部评分
+
+*****
+
+####  woui003woui  
+##### 18080#       发表于 2025-6-11 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916170&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-6-11 00:17</a>
+你要是真冷酷无情那都算了，结果理由还是惦记那修酱修酱，闹麻了</blockquote>
+已经不想骂场内这三人组人格有问题了，制作组全责，这早八百年不是用恋爱脑能cover过去的剧情了，现在一点正常塑造的线头都不给，观感差绝对不是观众的理解问题
+
+
+*****
+
+####  suzakushi  
+##### 18081#       发表于 2025-6-11 00:21
+
+一想到第七集楼里全在洗喵安只是求生欲不是抢男人我就笑出声。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 猪突猛进R| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Devola  
+##### 18082#       发表于 2025-6-11 00:21
+
+明明有nt，却还没出现过一次背后灵
+
+丢人的ucif
+
+*****
+
+####  P-link  
+##### 18083#       发表于 2025-6-11 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916159&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-11 00:16</a>
+
+夏亚这集溜了实在搞笑</blockquote>
+看到情况不对立马润，真不愧是夏亚。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+话说还有这鸭子都看到艾尔美斯了，绝对知道拉拉的存在，然后继续让拉拉留在某地
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18084#       发表于 2025-6-11 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916174&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-11 00:18</a></blockquote>
+一般的宿敌对决，不说爱恨交织，起码要有戏剧冲突吧。
+
+这俩爱？不熟。恨？就为了修酱，闹麻了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 18085#       发表于 2025-6-11 00:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">玛秋能感应到拉拉在哭，而喵安一点感觉都没有，我真是无话可说了，这个角色真的恶心到我了
+
+*****
+
+####  YU_JI  
+##### 18086#       发表于 2025-6-11 00:23
+
+<blockquote>P-link 发表于 2025-6-11 00:21
+看到情况不对立马润，真不愧是夏亚。
+
+话说还有这鸭子都看到艾尔美斯了，绝对知道拉拉的存在，然后继续让 ...</blockquote>
+这是gq鸭，和拉拉没那么深羁绊吧，但是鸭子后面两集肯定还要出来搞事的，不可能演个脱出就结束了
+
+*****
+
+####  ftyaid  
+##### 18087#       发表于 2025-6-11 00:23
+
+肯定想着把最大的高光放到最后给夏亚拿下吧
+
+这样夏亚就能美美现身当救世主咯！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18088#       发表于 2025-6-11 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916192&amp;ptid=2209276" target="_blank">P-link 发表于 2025-6-11 00:21</a>
+
+看到情况不对立马润，真不愧是夏亚。
+
+话说还有这鸭子都看到艾尔美斯了，绝对知道拉拉的存在，然后继续让 ...</blockquote>
+GQ鸭与GQ拉不认识。
+
+
+*****
+
+####  民工业  
+##### 18089#       发表于 2025-6-11 00:24
+
+番茄正在审问绿叔叔.jpg
+<img src="https://p.sda1.dev/24/25b39d0537615536f68483dc96828374/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cayon  
+##### 18090#       发表于 2025-6-11 00:25
+
+两边就算知道对方身份，感觉也就杀了就杀了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 18091#       发表于 2025-6-11 00:25
+
+爱马仕里面那个才是亲妈
+
+*****
+
+####  a85982313  
+##### 18092#       发表于 2025-6-11 00:25
+
+明明是nt，而且按道理来说番茄和喵安两个都是高级nt
+
+都快面对面了没感应出对面是谁（虽然下一话怎么都得感应到了，这集应该是故意吧）
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么，你们两真的不熟啊？
+
+*****
+
+####  猪突猛进R  
+##### 18093#       发表于 2025-6-11 00:25
+
+看紫婆给的坐标，这是把阿巴奥库传送到地球了，正好杀鸡儆猴，让联邦不敢盲动。
+
+*****
+
+####  ryanghj  
+##### 18094#       发表于 2025-6-11 00:25
+
+夏亚之前就计划利用所罗门落下作战先干掉基西莉亚
+
+这下基西莉亚直接帮他干掉基连，还把整个基连派扬了
+
+接下来只要跳出来登基就行了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 18095#       发表于 2025-6-11 00:26
+
+这集还得多谢夏利亚把玫瑰交给紫婆，现在马上就玩脱了（笑）这就是木星归来者的直觉吗
+
+*****
+
+####  YU_JI  
+##### 18096#       发表于 2025-6-11 00:26
+
+鸭子八成是要最后出来摘桃子的定位
+
+*****
+
+####  leommoo  
+##### 18097#       发表于 2025-6-11 00:27
+
+主角三人的塑造简直就是灾难<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  猪突猛进R  
+##### 18098#       发表于 2025-6-11 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916219&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 00:26</a>
+
+鸭子八成是要最后出来摘桃子的定位</blockquote>
+想桃子，后面还有个骡子
+
