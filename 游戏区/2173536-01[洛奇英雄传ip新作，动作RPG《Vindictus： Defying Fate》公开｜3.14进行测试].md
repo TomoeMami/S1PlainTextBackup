@@ -1101,3 +1101,13 @@ demo期间也不会试图解决这个问题</blockquote>
 问下这游戏本地存档位置在哪，回家玩发现没云存档</blockquote>
 在c:\users\你的用户\appdata下搜一搜vindictus
 
+
+*****
+
+####  zhzij111  
+##### 232#       发表于 2025-6-10 15:46
+
+这大剑妹真得改，被黄光打的满地乱爬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1282,3 +1282,27 @@ gto版本的绿叔叔确实因为看到拉拉就破防了
 索然无味不是鸭子说的吗</blockquote>
 side7才打第一次ms战说明不是gto线
 
+
+*****
+
+####  千恋万花  
+##### 17862#       发表于 2025-6-10 15:36
+
+ 本帖最后由 千恋万花 于 2025-6-10 15:37 编辑 
+
+搬一下贴吧的 <blockquote>【音乐情报】OST新曲包3 今晚第10话将用到的四首BGM曲名
+[https://tieba.baidu.com/p/9779242256](https://tieba.baidu.com/p/9779242256)
+over peek (I_004B)
+
+Night Walk (I_018A)
+
+Suiscout (I_044)
+
+Zeknova (I_056)
+
+前两首是以前集数出现过的，重点是后面两首新曲，更重点是最后一首Zeknova，有很大概率今晚的第10话又会爆发一次Zeknova。
+
+OST曲包3将于6月12日上线。
+
+Suiscout是S u i c i d e Scout的缩写，意为自 杀 式侦查</blockquote>
+
