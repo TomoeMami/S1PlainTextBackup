@@ -1661,3 +1661,20 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 
 和声换拉丁文唱就是刻板JRPG最终BOSS战曲<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是不信能有什么好事
 
+
+*****
+
+####  民工业  
+##### 17899#       发表于 2025-6-10 18:26
+
+这个bgm好劲啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猎人D  
+##### 17900#       发表于 2025-6-10 18:28
+
+为什么就不能是番茄发功呢，gqx是啥东西也该解下密了
+
