@@ -98,3 +98,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Nez  
+##### 5657#       发表于 2025-6-10 22:39
+
+近千小时才三把五星，10星熟练度要肝到天荒地老<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 5658#       发表于 2025-6-10 22:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">デカマライン都能打赢复活赛，夸脏哦
+
