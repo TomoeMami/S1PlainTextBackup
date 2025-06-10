@@ -4044,3 +4044,253 @@ GQ鸭与GQ拉不认识。</blockquote>
 
 有一说一按照绿叔叔现在这个人设，玛秋要是真死了他估计会自责<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 18163#       发表于 2025-6-11 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916340&amp;ptid=2209276" target="_blank">民工业 发表于 2025-6-11 00:54</a>
+
+话说下一集标题里的阿尔法杀手的阿尔法指的是什么？之前说过吗？没想起来有
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+红高达装的就是阿尔法塞克缪。
+
+*****
+
+####  Sliurus  
+##### 18164#       发表于 2025-6-11 00:58
+
+阿尔法在很多科幻作品里都代指一号实验体/零号病人之类的，这里可能是第一个NT？印象里高达没提过这个概念，总不能是骡子吧
+
+*****
+
+####  P-link  
+##### 18165#       发表于 2025-6-11 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916360&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 00:57</a>
+
+有一说一按照绿叔叔现在这个人设，玛秋要是真死了他估计会自责</blockquote>
+那他还给小孩送枪<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 18166#       发表于 2025-6-11 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916353&amp;ptid=2209276" target="_blank">Natsunagi 发表于 2025-6-11 00:56</a>
+
+紫婆是不是说要把整个地球泽克诺瓦掉？</blockquote>
+应该是，给的指令里是俩坐标，炸阿巴空的时候只输入了第一个尾号是1的
+
+*****
+
+####  LOLITA  
+##### 18167#       发表于 2025-6-11 00:59
+
+另外喵安唐突变泰国人令人发笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18168#       发表于 2025-6-11 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916351&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 00:55</a>
+
+大扎姆直到85年也才13台，所以79年展示的那些不会就是全部了吧（）</blockquote>
+那个镜头是NETA EVA有13号机，大扎姆到85生产了22台。
+
+*****
+
+####  ParadiseMartyr  
+##### 18169#       发表于 2025-6-11 00:59
+
+不是，紫色老太婆炸了地球图啥，傻逼么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  猪突猛进R  
+##### 18170#       发表于 2025-6-11 01:00
+
+GQ紫婆比正史紫婆疯逼多了。
+
+*****
+
+####  我聞如是  
+##### 18171#       发表于 2025-6-11 01:01
+
+為免劇透所以用八爺和星街當暗號嗎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 18172#       发表于 2025-6-11 01:01
+
+补了下直播开头没看到的部分
+
+绿叔叔的原计划是趁这次基连和紫老太婆难得在一起，找机会和小番茄两个人一起上直接把两个札比一起噶了
+
+结果谁知道石田三成菜如狗，关原之战一天就打完了
+
+绿叔叔一脸懵逼
+
+*****
+
+####  真爱与热情  
+##### 18173#       发表于 2025-6-11 01:01
+
+喵安不就是科蕾雅mk2嘛，给点甜头就投怀送抱的
+
+*****
+
+####  P-link  
+##### 18174#       发表于 2025-6-11 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916374&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-11 00:59</a>
+
+不是，紫色老太婆炸了地球图啥，傻逼么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+当年原教旨不就是计划把全部人类送上宇宙，地球圣地化，执行一半，把一堆穷人送上宇宙后，老爷们继续留在地球。CCA夏亚的目的算是把人类逼上宇宙，就是手段过于激进。
+
+*****
+
+####  windtrack  
+##### 18175#       发表于 2025-6-11 01:02
+
+阿尔法出现过两次，一次是79部分红高出现的时候说红高搭载的是阿尔法塞克谬，第二次是第三话博美犬黑GQ系统的时候里面出现阿尔法杀手的代码
+
+推测阿尔法杀手应该是下集预告里出现的那个GQ新mode，可能是本来为了干红高准备的
+
+<img src="https://img.stage1st.com/forum/202506/11/010057x33wm3zx3m6xj9sw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:00 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/010150id6tix3imi6g0u3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:01 上传
+
+*****
+
+####  woui003woui  
+##### 18176#       发表于 2025-6-11 01:02
+
+上周对麻球去完地球后的改善不抱任何期待，结果这周好多了
+对未来两周的发展也不做任何期待了，随便吧，现在回想下集预告还是雷的发麻
+
+*****
+
+####  冰风血羽  
+##### 18177#       发表于 2025-6-11 01:02
+
+怎么开场就神秘透视，这四个大扎姆哪冒出来的
+
+*****
+
+####  LOLITA  
+##### 18178#       发表于 2025-6-11 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916383&amp;ptid=2209276" target="_blank">真爱与热情 发表于 2025-6-11 01:01</a>
+
+喵安不就是科蕾雅mk2嘛，给点甜头就投怀送抱的</blockquote>
+可能日本人眼里的东南雅非法移民就是这德行吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 18179#       发表于 2025-6-11 01:03
+
+zknv把阿巴瓦空消灭（？）又是什么原理，手电筒能指定传送去向？传一半裂开了又是为啥，质量太大？那鸭子带着四分之一个所罗门消失的时候也没被撕裂的碎石砸死啊，拉拉亲自手操安定性比手电筒高吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kreis  
+##### 18180#       发表于 2025-6-11 01:04
+
+修酱这电波男是怎么惹上这两疯婆子的？换个性别感觉更有乐子<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 18181#       发表于 2025-6-11 01:04
+
+夏利亚算计大失败，基西莉亚直接2分钟内灭掉了基连。绿毛和夏亚一样的掉链子
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  xunit  
+##### 18182#       发表于 2025-6-11 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916373&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 00:59</a>
+
+那个镜头是NETA EVA有13号机，大扎姆到85生产了22台。</blockquote>
+刚开头绿木马的舰桥里那小哥拿着望远镜说有刚配备的13号机，基连的女秘书说造到22号机的预算刚批下来
+
+*****
+
+####  ヒトニナル  
+##### 18183#       发表于 2025-6-11 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916364&amp;ptid=2209276" target="_blank">P-link 发表于 2025-6-11 00:58</a>
+那他还给小孩送枪</blockquote>
+绿叔叔当初自己也没来得及扣下扳机嘛，一个象征性物品罢了
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不过玛秋就不这么想咯
+
+*****
+
+####  P-link  
+##### 18184#       发表于 2025-6-11 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916392&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-11 01:03</a>
+
+zknv把阿巴瓦空消灭（？）又是什么原理，手电筒能指定传送去向？传一半裂开了又是为啥，质量太大？那鸭子带 ...</blockquote>
+用比较常见的科幻说法就是，把阿巴瓦空传送过来，然后用时空扭曲/风暴，把要塞及舰队卷碎然后再传送到别的地方/时空。
+
+*****
+
+####  hacisiki  
+##### 18185#       发表于 2025-6-11 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916373&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 00:59</a>
+
+那个镜头是NETA EVA有13号机，大扎姆到85生产了22台。</blockquote>
+说的是当年国会批到22台份的预算吧。
+
+*****
+
+####  ティグル  
+##### 18186#       发表于 2025-6-11 01:05
+
+紫婆既不是戴肯主义者，戴肯主义也不是炸地球
+
+哪怕地球圣地主义里最魔怔的加米豆腐也只是想清洗人类
+
+*****
+
+####  ryanghj  
+##### 18187#       发表于 2025-6-11 01:05
+
+修司其实是阿尔法雄性<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/11/010604npa127wrakkk2epk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:06 上传
+

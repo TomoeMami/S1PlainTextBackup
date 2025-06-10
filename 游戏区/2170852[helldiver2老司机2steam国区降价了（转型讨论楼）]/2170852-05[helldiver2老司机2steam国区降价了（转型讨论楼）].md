@@ -7985,3 +7985,16 @@ P-2“和平制造者”
 
 bug越来越多了，更新后大量音效失效，这游戏随着一次次更新逐渐腐烂<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 6654#       发表于 2025-6-11 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67915438&amp;ptid=2170852" target="_blank">rainknine 发表于 2025-6-10 21:48</a>
+
+最后通牒的扎针射击被修了
+
+利维坦是你爹🐴箭头</blockquote>
+是扎针被重做了，现在可以飞扑打针了
+
