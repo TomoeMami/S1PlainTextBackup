@@ -2410,3 +2410,410 @@ Gqux开了，终于开了
 
 牢修终于回来了
 
+
+*****
+
+####  秋月孝三  
+##### 17988#       发表于 2025-6-10 23:58
+
+一个想变成他一个想见他，原来是代餐文学
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  普通哈尼  
+##### 17989#       发表于 2025-6-10 23:58
+
+人死了啊，好多人死了啊！
+
+*****
+
+####  g救世主高达  
+##### 17990#       发表于 2025-6-10 23:58
+
+gux看来真就不会升级了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬0079单机打到结局锕
+
+*****
+
+####  洛克萨斯  
+##### 17991#       发表于 2025-6-10 23:58
+
+喵安这集人头数拉满了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一整个阿巴瓦空啊，是不是已经拿下uc纪元击坠王了
+
+*****
+
+####  amanohanei  
+##### 17992#       发表于 2025-6-10 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉gq好几个ux也没什么能看的机战  烂完了
+
+最后两集?能贡献点吗
+
+*****
+
+####  woui003woui  
+##### 17993#       发表于 2025-6-10 23:58
+
+大的差不多了，我现在对这片能不能说服观众这两台高达的对立有意义持悲观态度
+
+*****
+
+####  Ferrari  
+##### 17994#       发表于 2025-6-10 23:59
+
+这个b ed真tm垃圾，一点也调动不了情绪，就听着鬼叫
+
+*****
+
+####  Evomenon  
+##### 17995#       发表于 2025-6-10 23:59
+
+好消息是下一集肯定有牢修的画面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 17996#       发表于 2025-6-11 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">牢修回来劝架吗，太抽象了
+
+*****
+
+####  伊露伊道格拉斯  
+##### 17997#       发表于 2025-6-11 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881291&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-6-3 23:59</a>
+
+我服了，绿叔叔又双叒叕算到了，你无敌了</blockquote>
+你也有算不到的时候啊，我笑了
+
+*****
+
+####  huanzhi  
+##### 17998#       发表于 2025-6-11 00:00
+
+牢修是什么，绿叔叔才是男主啊
+
+*****
+
+####  游蜓  
+##### 17999#       发表于 2025-6-11 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916028&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-10 23:58</a>
+
+gux看来真就不会升级了？致敬0079单机打到结局锕</blockquote>
+看预告甚至还有没用过的武装/机能
+
+*****
+
+####  Sliurus  
+##### 18000#       发表于 2025-6-11 00:00
+
+感觉也没说明什么东西吧，难道是在网络爆炸的部分？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+喵安说讨厌的味道应该是指对她有敌意的人，GQ靠近的时候恶心得想吐
+
+基连的舰队说看见了地球，那zeknova应该确实是有空间转移的效果，不过也可能是另一个世界的地球
+
+
+*****
+
+####  猪突猛进R  
+##### 18001#       发表于 2025-6-11 00:00
+
+还有两集，来得及塑造牢修吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白马  
+##### 18002#       发表于 2025-6-11 00:00
+
+脱出型NT还在发力
+
+下集牢修终于回来了，想你
+
+*****
+
+####  whzfjd  
+##### 18003#       发表于 2025-6-11 00:01
+
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了
+
+*****
+
+####  Gysumitka  
+##### 18004#       发表于 2025-6-11 00:01
+
+怎么下周才开打啊，修司要闪出来劝架<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  オルガピピック  
+##### 18005#       发表于 2025-6-11 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916050&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-6-11 00:01</a>
+
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
+基连亲卫队是什么德行看过0083还不知道吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 18006#       发表于 2025-6-11 00:02
+
+喵安把吉翁杀穿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HOBBITXDD  
+##### 18007#       发表于 2025-6-11 00:02
+
+汤大基彻底从希特勒的尾巴沦为希特勒的阑尾，鉴定纯废物<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 18008#       发表于 2025-6-11 00:02
+
+大基声优确实是山寺，塞西莉娅是爱生
+
+<img src="https://img.stage1st.com/forum/202506/11/000017lmna6xlbmozix5px.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-06-10 23.54.53.png</strong> (581.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:00 上传
+
+*****
+
+####  m99999  
+##### 18009#       发表于 2025-6-11 00:02
+
+<blockquote>Sliurus 发表于 2025-6-11 00:00
+感觉也没说明什么东西吧，难道是在网络爆炸的部分？
+
+喵安说讨厌的味道应该是指对她有敌意的人，GQ靠近的时 ...</blockquote>
+本质过度回，爆炸的部分除了鸭子的镜头也没啥信息量
+
+*****
+
+####  g救世主高达  
+##### 18010#       发表于 2025-6-11 00:02
+
+被喵安轰死的不会还有卡多吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 18011#       发表于 2025-6-11 00:02
+
+两颠婆打到大道破碎，牢修出来档光束死掉，女人和解，大概这个展开？
+
+*****
+
+####  黒鈴ミヲ  
+##### 18012#       发表于 2025-6-11 00:02
+
+这剧情还是太转进如风了，作为核心推动力是为一个男人扯头花我真的太难绷得住了
+
+*****
+
+####  YU_JI  
+##### 18013#       发表于 2025-6-11 00:02
+
+好多台词没字幕我没太听明白，等我再看一遍机翻熟肉（）
+
+*****
+
+####  RPG-7  
+##### 18014#       发表于 2025-6-11 00:02
+
+鸭子下集一炮送走紫婆 世界线收束
+
+*****
+
+####  plok201  
+##### 18015#       发表于 2025-6-11 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后2集，夏亚只有逃跑画面，新的大杀器什么情况还不好说，俩姐妹和绿叔叔战强人起码要打半集吧，修司预告就那么一帧，然后只有40分钟
+
+话说汤大基太惨了吧，好不容易出来，就那么几分钟就被阴死了，德金不打复活赛真的是高明
+
+*****
+
+####  DARK_HGCG  
+##### 18016#       发表于 2025-6-11 00:03
+
+艹，主动做吉翁残党
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18017#       发表于 2025-6-11 00:03
+
+所以牢鸭消失五年是干嘛的，绿叔叔让麻球找到玫瑰了他来摘桃子了？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jstcsjx  
+##### 18018#       发表于 2025-6-11 00:04
+
+基连被毒气搞死也算是剧组的讽刺吧
+
+*****
+
+####  猪突猛进R  
+##### 18019#       发表于 2025-6-11 00:04
+
+有点失望，第7集是因为没有大的，这集是大的完全预料之内。
+
+*****
+
+####  qiyu1234  
+##### 18020#       发表于 2025-6-11 00:04
+
+感觉节奏略快，以及夏利亚的这个错算。。。哈哈哈不知道该说什么
+
+不过有一点是在意料之中
+
+那就是我之前就认为喵安 玛秋的对战不会发生在最终话
+
+*****
+
+####  ティグル  
+##### 18021#       发表于 2025-6-11 00:04
+
+这真的是夏亚梦男能写出来的剧情吗？
+
+*****
+
+####  ヒトニナル  
+##### 18022#       发表于 2025-6-11 00:04
+
+喵安这集的表现完全推翻之前的只想跑路说，她就是迷上修司了，塑料和塑料姐妹都不要只要男人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 18023#       发表于 2025-6-11 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916061&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-11 00:02</a>
+
+大基声优确实是山寺，塞西莉娅是爱生</blockquote>
+夏亚直接写出来了，行z高达之事是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 18024#       发表于 2025-6-11 00:05
+
+看麻丘和尼亚安对立真的是一点感觉没有，随便你们两个去死去活啦，最后还是要等男人回来救场…
+
+*****
+
+####  洛克萨斯  
+##### 18025#       发表于 2025-6-11 00:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭叔叔还有座驾吗
+
+*****
+
+####  YU_JI  
+##### 18026#       发表于 2025-6-11 00:05
+
+夏亚梦男当然要抓住夏亚最重要的特征，比如脱出和丢人（）
+
+*****
+
+####  Sliurus  
+##### 18027#       发表于 2025-6-11 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916077&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-6-11 00:04</a>
+
+这真的是夏亚梦男能写出来的剧情吗？</blockquote>
+这人物肖像不是挺准确的，出事了马上脱出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  余晖烁烁  
+##### 18028#       发表于 2025-6-11 00:05
+
+<img src="https://img.stage1st.com/forum/202506/11/000538m74l8kzibbfllwfy.png" referrerpolicy="no-referrer">
+
+<strong>86ba7c23e491fb4c84a2fcd7669338cb.png</strong> (145.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/000541ij24480l0j3y31i9.png" referrerpolicy="no-referrer">
+
+<strong>b90b1081d65d418ab143e5af758498a3.png</strong> (21.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:05 上传
+
+*****
+
+####  猪突猛进R  
+##### 18029#       发表于 2025-6-11 00:06
+
+KILLER KILLER<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  只吃干拌面  
+##### 18030#       发表于 2025-6-11 00:06
+
+就算是一队强人好像也会被绿叔叔秒杀啊，跟着老太婆混看来是活不到最后了
+
+*****
+
+####  ftyaid  
+##### 18031#       发表于 2025-6-11 00:06
+
+相信夏亚不上机的战力，他干这个更厉害<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18032#       发表于 2025-6-11 00:07
+
+编辑
+
+image.png
+(378.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/000658lxx1rohcfxi2c2r0.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18033#       发表于 2025-6-11 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916050&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-6-11 00:01</a>
+
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
+笑不了一点，就联邦那破MS/MA生产水平，我估计吉翁内耗完也碰不了一点。
+
+大扎姆不贴身根本破不了I立场，反观联邦的精神病MK2，远程被绿叔叔秒了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且大扎姆只是量产，精神病MK2有没有多台都说不定。
+
+*****
+
+####  灵魂收割机  
+##### 18034#       发表于 2025-6-11 00:07
+
+<blockquote>whzfjd 发表于 2025-6-11 00:01
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
+觉得手电筒强无敌了吧，指哪打哪。
+
