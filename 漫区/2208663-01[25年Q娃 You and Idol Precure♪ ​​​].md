@@ -1925,3 +1925,11 @@ KISS的大招好媚，各种硬直辅助，打团战实用性拉满</blockquote>
 
 kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞野咲  
+##### 1025#       发表于 2025-6-10 08:13
+
+不觉得梅洛伦对噗哩伦的感情献祭掉了啊，现在看来还是很有感情的嘛。会不会是梅洛伦最重要的事物另有其物啊？
+

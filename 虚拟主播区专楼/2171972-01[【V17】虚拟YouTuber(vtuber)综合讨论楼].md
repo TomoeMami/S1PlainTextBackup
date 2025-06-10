@@ -392,3 +392,13 @@ syl，兔头给月之人偶买的新衣服好可爱
 我刚才都野排带好几个傻缺白皮过三狼了，社长这他们怎么还在被b三狼虐，队伍里明明有追踪者大人和无赖大人，虽然还有哈基蜗，这游戏有这么难理解吗？明明日本那好评率还高于法环本体来着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 syl，叶这事也没啥好说的，国内厕妹们今天扯什么看清了，然后明天大概率又要辱追了，日本那也没咋炎起来，真炎起来也大概率就是粉丝互撕最后怪体量小的llm不识趣或者怪她咎由自取
 
+
+*****
+
+####  格林卡罗尔  
+##### 1216#       发表于 2025-6-10 08:06
+
+我是觉得刚开服，什么都还没发生的时候rrm对ファン太差不多就这态度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

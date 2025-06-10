@@ -454,3 +454,11 @@
 
 哎，首席哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 17782#       发表于 2025-6-10 08:16
+
+番茄目前这个形象塑造我觉得也只有一条路可走了吧，描写成一个撞了南墙也不回头叛逆到底最后因此而击碎了所有大人们的阴谋打算的角色可能还有点救？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
