@@ -3274,3 +3274,14 @@ x终于要登场了
 
 2025-6-10 19:56 上传
 
+
+*****
+
+####  fuochai  
+##### 287#       发表于 2025-6-10 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914418&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-6-10 18:20</a>
+
+那就是蓝吧</blockquote>
+说起来前段时间 买了个键盘 说是蓝色 图里看着也是蓝色 到手发现怎么看都是绿色 和图里也不一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
