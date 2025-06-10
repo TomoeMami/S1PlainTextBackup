@@ -561,3 +561,46 @@ O在日本已经半死不活了</blockquote>
 
 因为后期生产卡带烧录的游戏一般都是最新版本
 
+
+*****
+
+####  xbhuang  
+##### 56#       发表于 2025-6-10 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913946&amp;ptid=2253411" target="_blank">liekong 发表于 2025-6-10 16:49</a>
+
+如果只是补丁导致下载数据过大的话，买后期生产的卡带就可以避免这个问题,
+
+因为后期生产卡带烧录的游戏一般 ...</blockquote>
+这种游戏估计就卖首发一波，后续会不会再生产都不一定
+
+*****
+
+####  Kojimaru  
+##### 57#       发表于 2025-6-10 17:08
+
+看了眼数字版容量，ns1是5.9g、ns2是17.8g
+
+这俩减一下不就是补丁的大小
+
+*****
+
+####  Kojimaru  
+##### 58#       发表于 2025-6-10 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912887&amp;ptid=2253411" target="_blank">西多士 发表于 2025-6-10 13:38</a>
+
+这卡还巨贵，420多，how dare you</blockquote>
+国内拼多多卖200多，土澳卖115澳币，比死亡搁浅2贵100块<img src="https://static.stage1st.com/image/smiley/carton2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 59#       发表于 2025-6-10 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914085&amp;ptid=2253411" target="_blank">Kojimaru 发表于 2025-6-10 17:12</a>
+国内拼多多卖200多，土澳卖115澳币，比死亡搁浅2贵100块</blockquote>
+哪儿搜的200，我一搜清一色400
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
