@@ -3904,3 +3904,11 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 更难上分是指AI会自动用最大威力的招不会省EN，之前的控血让敌人用 ...</blockquote>
 你队伍的AI也同样会用大招了啊。
 
+
+*****
+
+####  希望之花  
+##### 1835#       发表于 2025-6-11 06:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ur机体券领完后没动力上线了
+
