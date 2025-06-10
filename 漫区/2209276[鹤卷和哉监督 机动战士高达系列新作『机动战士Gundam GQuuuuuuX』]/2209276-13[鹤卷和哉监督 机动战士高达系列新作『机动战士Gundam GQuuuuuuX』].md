@@ -3416,3 +3416,283 @@ GQ鸭与GQ拉不认识。
 鸭子八成是要最后出来摘桃子的定位</blockquote>
 想桃子，后面还有个骡子
 
+
+*****
+
+####  轮太  
+##### 18099#       发表于 2025-6-11 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916157&amp;ptid=2209276" target="_blank">105gun 发表于 2025-6-11 00:15</a>
+
+中间网络波动不知道漏了啥，所以爆这么多强人是为了近战插爆大扎姆么</blockquote>
+矛上一堆推进器，直接神风上去捅穿
+
+谁管你什么I力场
+
+*****
+
+####  HACHIMAN  
+##### 18100#       发表于 2025-6-11 00:28
+
+这kbfz的育成成本是真的低<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别后面又来我被骗了的剧情吧
+
+*****
+
+####  pokemon最爱  
+##### 18101#       发表于 2025-6-11 00:29
+
+大基死的那里一开始我还以为是紫婆用了塞可谬发动精神感应力场掐脖子，结果是简单粗暴的下毒吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+麻球喵安两个高等级天然NT完全没发现对方身份，不愧是塑料姐妹花，各自发一把枪看来是要激情对射了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸭子再一次发挥了脱出型NT的天赋跑路，不愧是你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 18102#       发表于 2025-6-11 00:30
+
+<blockquote>猪突猛进R 发表于 2025-6-11 00:24
+GQ鸭与GQ拉不认识。</blockquote>
+认识的，所罗门神交过至少，但是有多熟不知道
+
+*****
+
+####  cckuku  
+##### 18103#       发表于 2025-6-11 00:30
+
+嗨呀，一想到之前到处都在洗说番茄只是憧憬牢修身上的反日常，而喵安是追求平稳的生活，还骂现在的新观众需要制作组嚼烂了才能看懂动画，事实证明是新观众比较懂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想系同盟  
+##### 18104#       发表于 2025-6-11 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916003&amp;ptid=2209276" target="_blank">dafangwoo 发表于 2025-6-10 23:56</a>
+总说大的来了大的来了
+
+这下大的真的来了，但总觉得缺点什么</blockquote>
+直播间又炸了，也是一种大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 18105#       发表于 2025-6-11 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916214&amp;ptid=2209276" target="_blank">molemole 发表于 2025-6-11 00:26</a>
+
+这集还得多谢夏利亚把玫瑰交给紫婆，现在马上就玩脱了（笑）这就是木星归来者的直觉吗 ...</blockquote>
+他不交也不行啊，其他部队也参与了打捞，这东西他也没法摁在自己手里。
+
+同时开火的火控部是在基连派手里，那个博士的台词也说得很清楚了，基本就是大家都知道这东西捞着了。基连想那这个瞄准地球当作核威慑，基西莉亚就要拿来把基连派扫光。
+
+这集最逗的还是基连嘎得像路边一条……基西莉亚干的事很符合这集里其他人骂她的台词，特别是博士的那句。
+
+*****
+
+####  Evomenon  
+##### 18106#       发表于 2025-6-11 00:31
+
+ 本帖最后由 Evomenon 于 2025-6-11 00:32 编辑 
+
+为什么有喵安这种NT力这么强却什么也感应不到的NT啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+杀了这么多人就感觉有点恶心想吐，这要换卡缪在附近要么疯了，要么开始发功<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18107#       发表于 2025-6-11 00:31
+
+<img src="https://img.stage1st.com/forum/202506/11/003116zeb6vn5j4f3a0opc.jpg" referrerpolicy="no-referrer">
+
+<strong>IJBH012GJ}WLG5O5KGX8$AH.jpg</strong> (143.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:31 上传
+
+*****
+
+####  ftyaid  
+##### 18108#       发表于 2025-6-11 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916222&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 00:28</a>
+
+想桃子，后面还有个骡子</blockquote>
+骡子？骡子他能有剧情和出场镜头吗，后日谈给一个分镜差不多得了
+
+夏亚摸到紫老太婆背身爆头然后开演讲当救世主，前面丢的人算什么反正最后最大的高光直接拿下了，新人观众对鸭叔叔的印象就无限拔高了
+
+这就是我们夏亚真爱粉拉新的大计划呀！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 18109#       发表于 2025-6-11 00:32
+
+我看比主角三人组塑造更灾难的是紫婆说大基因为殖民卫星坠落计划杀死了一半人口的罪恶感而做噩梦睡不好觉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 18110#       发表于 2025-6-11 00:32
+
+这不是文艺工作者很喜欢搞的大格局下的小诉求吗，你看巨人最后都要来一嘴其实艾伦也舍不得三笠
+
+*****
+
+####  CCCTHUN  
+##### 18111#       发表于 2025-6-11 00:32
+
+只有主角团塑造差吗？我觉得就没有不工具人的角色，每一处剧情发展都能感受到编剧大手。
+
+*****
+
+####  弹匣与花窗  
+##### 18112#       发表于 2025-6-11 00:32
+
+越想越想笑，前面打黑拳的时候就自己和对面的事，写角色满脑子一个没塑造的男性角色也就算了
+现在开着高达上战场一拳捶死至少两个人，开地图炮灭杀了还给玩这套，根本没打算说服观众是吧？还是就准备告诉观众这两人就纯的xx<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这都不是剩下四十分钟够不够圆塑造的事了，这塑造写出来还有圆的必要性吗buddy？
+
+*****
+
+####  EFSF  
+##### 18113#       发表于 2025-6-11 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916245&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-11 00:32</a>
+
+我看比主角三人组塑造更灾难的是紫婆说大基因为殖民卫星坠落计划杀死了一半人口的罪恶感而做噩梦睡不好觉 ...</blockquote>
+那里你当作紫婆自己脑内补完估计黑基连就行，就基连坐下来说得那几句比紫婆形象高大多了。
+
+
+*****
+
+####  1223122  
+##### 18114#       发表于 2025-6-11 00:34
+
+等下周<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 18115#       发表于 2025-6-11 00:34
+
+<img src="https://img.stage1st.com/forum/202506/11/003243k9bwjdyc7z2v7uic.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250611003212.png</strong> (914.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:32 上传
+
+这给不知道的人一看可能真以为紫婆是什么美人吧，这gqux里紫婆的面罩不仅能显著提升颜值还能防毒气，功能性拉满了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 18116#       发表于 2025-6-11 00:35
+
+有个颠婆为了馋你身子穿越时空来**，不吓得马上跑路已经很有定力了。
+
+*****
+
+####  YU_JI  
+##### 18117#       发表于 2025-6-11 00:35
+
+此事在z高达亦有记载
+
+<img src="https://img.stage1st.com/forum/202506/11/003556ud9ff8z2e98jg9x2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5194.png</strong> (152.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:35 上传
+
+*****
+
+####  赤黑的假面  
+##### 18118#       发表于 2025-6-11 00:36
+
+所以卡拉这么多集下来，解构新人类这个概念，到底解构出来什么东西了
+
+*****
+
+####  久井路路  
+##### 18119#       发表于 2025-6-11 00:36
+
+前半部写军团战暗流涌动，三小只的羁绊写得纯空中楼阁，散伙都散得只让人觉得你们很熟吗
+
+末尾超绝加速，三小只一个比一个不讨喜，还要拿那个空中楼阁的三人羁绊说事，简直笑死人
+
+*****
+
+####  hsyg  
+##### 18120#       发表于 2025-6-11 00:36
+
+<blockquote>EFSF 发表于 2025-6-11 00:33
+那里你当作紫婆自己脑内补完估计黑基连就行，就基连坐下来说得那几句比紫婆形象高大多了。 ...</blockquote>
+还说为了生存杀了德金呢，怕不是德金学了吸星大法要吸走基连-200的iq了
+
+
+*****
+
+####  岸波白野  
+##### 18121#       发表于 2025-6-11 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916252&amp;ptid=2209276" target="_blank">CCCTHUN 发表于 2025-6-11 00:32</a>
+
+只有主角团塑造差吗？我觉得就没有不工具人的角色，每一处剧情发展都能感受到编剧大手。 ...</blockquote>
+这不就是大家要的保老登体验，毕竟这些制作人自己就是老登，能画出来基连基妹大手电跑跑鸭就临画涕零了，其他不都可以是就醋的饺子
+
+*****
+
+####  P-link  
+##### 18122#       发表于 2025-6-11 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916264&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 00:35</a>
+
+此事在z高达亦有记载</blockquote>
+有段回忆里真有夏亚，所以也不是不行
+
+*****
+
+####  七七見奈波  
+##### 18123#       发表于 2025-6-11 00:37
+
+这集也算简单地提升了一下麻球的战力，开头她和夏利亚吃小灶回来那时候没开欧米伽塞克谬，应该是全手操，索顿人都啧啧惊叹不愧是NT。考虑到麻球迄今为止驾驶GQX（还有扎古）的经验，可说是神速进步了
+
+*****
+
+####  plok201  
+##### 18124#       发表于 2025-6-11 00:37
+
+话说这是不是唯一一个主角和自家战舰真的不熟的高达
+
+番茄就认识那么2个人吧，舰桥那堆人番茄能叫出名字么<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18125#       发表于 2025-6-11 00:37
+
+不是，夏亚CV这个第8集就吐槽过了啊，还说前半集也真是夏亚所以很巧妙，就没藏过好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 18126#       发表于 2025-6-11 00:38
+
+情报哥都来了，看来是故意透情报吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 18127#       发表于 2025-6-11 00:38
+
+番茄这一集可以说是强行扭转了形象，不对男人上脑，做事有目的（虽然是夏利尔给的），喵安是彻底黑化了，而且傻了。谁给个甜头就上赶着，紫婆和她玩过家家还甘之如饴，但是这部分倒是符合角色总体设计，这种难民小女生做这个倒是符合逻辑，就是场外看着难受。
+
+番茄杀进去好歹是为了救拉拉，而且目睹了惨剧，喵安在里面啥也不知道，然后脑子里全是男人这打起来估计突出一个相互理解不了，难道要靠夏亚把拉拉救出来kirakira一下互相理解，新人类携手干紫婆？
+
