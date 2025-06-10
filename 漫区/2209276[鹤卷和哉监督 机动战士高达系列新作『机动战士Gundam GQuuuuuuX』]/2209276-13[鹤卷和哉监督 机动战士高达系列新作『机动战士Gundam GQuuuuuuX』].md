@@ -982,3 +982,15 @@
 
 现实和电玩是两码事，你应该不会觉得他们真敢上吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 17833#       发表于 2025-6-10 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912497&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-10 12:18</a>
+黑泽提到相遇与离别，那最后应该是分道扬镳，各回各家各找各妈了。马秋目前的确实被刻意控制在一个可以回头 ...</blockquote>
+这片怎么看都不是各回各家的走向
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

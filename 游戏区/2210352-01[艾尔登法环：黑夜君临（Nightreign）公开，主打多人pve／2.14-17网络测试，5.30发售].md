@@ -8342,3 +8342,14 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jacket  
+##### 822#       发表于 2025-6-10 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912619&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-10 12:43</a>
+
+单挑癫羊推荐用无赖，杀鲸霸拳能直接破癫羊的防护罩</blockquote>
+我多试几次看能不能刷出异常抗性的战前交易。
+
