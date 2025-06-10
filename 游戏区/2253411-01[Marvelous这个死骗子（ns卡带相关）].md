@@ -604,3 +604,26 @@ O在日本已经半死不活了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Dreammask  
+##### 60#       发表于 2025-6-10 17:20
+
+ 本帖最后由 Dreammask 于 2025-6-10 17:25 编辑 
+
+我发了个邮件问了一下，Marvelous的答复是NS2实体版里确实有所有内容，下载补丁是系统要求
+
+不过回文里提了句未经允许不得转发，所以就先不贴原文了
+
+另外我是用繁中写的邮件，也明确提到过港版，应该不存在错认成美版的可能
+
+*****
+
+####  chivalry  
+##### 61#       发表于 2025-6-10 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912887&amp;ptid=2253411" target="_blank">西多士 发表于 2025-6-10 13:38</a>
+这卡还巨贵，420多，how dare you</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">330pdd 买的，已经想退了
+

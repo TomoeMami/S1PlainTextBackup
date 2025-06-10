@@ -1500,3 +1500,87 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xwz  
+##### 17883#       发表于 2025-6-10 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913126&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-10 14:29</a>
+
+说到军服，这些都是吉翁军服</blockquote>
+西姆斯那套可以认为是为了让观众认出来是谁，姑且不论
+
+夏利亚那个与其说是军服不如说是礼服
+
+船上其他人才是军服，所以其实也就就两种
+
+*****
+
+####  岸浪白野  
+##### 17884#       发表于 2025-6-10 17:22
+
+ 本帖最后由 岸浪白野 于 2025-6-10 17:24 编辑 
+
+忘了想说这里其实挺草的“已经忘了最终回了”
+
+川田："虽然已经完成录制、知道结局，却依然充满不安（笑）。共演的大家也都说“不记得最终回的内容了”，难道所有人的记忆都被消除了吗？"
+
+新："说不定真被消除了呢。（笑）"
+
+<img src="https://img.stage1st.com/forum/202506/10/172017f1nuuqr2uuq91ngx.jpg" referrerpolicy="no-referrer">
+
+<strong>6LA8XKMRL7G)FQ`B6B1Y3KB.jpg</strong> (66.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 17:20 上传
+
+*****
+
+####  灵魂收割机  
+##### 17885#       发表于 2025-6-10 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914073&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-10 17:10</a>
+
+突然在想，泽克诺瓦可大可小，小的能只传一台红高，大的也未必只能有所罗门这么大，紫婆是不是想要搓一个超 ...</blockquote>
+地球传走了整个地月宙域都要因为引力出大乱子吧，不至于不至于。
+
+*****
+
+####  lickey  
+##### 17886#       发表于 2025-6-10 17:26
+
+听到这个bgm前半段的诶~诶↗诶↗呦~那段第一个联想到的居然是王立宇宙军火箭升空前战斗那场戏的bgm
+
+*****
+
+####  Sliurus  
+##### 17887#       发表于 2025-6-10 17:27
+
+好夸张的插曲，会有大的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然叫zeknova，但直觉告诉我会在手电筒发射时用
+
+*****
+
+####  猪突猛进R  
+##### 17888#       发表于 2025-6-10 17:30
+
+天使之轮手电筒对上3台NT专用精神力大扎姆，BGM宏大点是应该的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  newise  
+##### 17889#       发表于 2025-6-10 17:33
+
+这插曲，高达原来不止会暴走，还会魔女化吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 17890#       发表于 2025-6-10 17:34
+
+小番茄这周能用上光束武器吗？
+
