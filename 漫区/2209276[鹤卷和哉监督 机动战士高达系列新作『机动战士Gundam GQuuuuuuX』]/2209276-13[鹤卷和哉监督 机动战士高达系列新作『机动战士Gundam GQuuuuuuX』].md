@@ -5907,3 +5907,11 @@ side6被刺杀也是绿叔叔保护下来的
 
 这么伟大的贡献，足够在格拉纳达的基西利亚的骑士的雕像旁边给绿叔叔也立一座纯金雕像了吧
 
+
+*****
+
+####  dozen  
+##### 18328#       发表于 2025-6-11 04:13
+
+我原以为这次和「互相理解」「可能性」「退一进二」一个等级的ptsd提词是「KiraKira」，没想到现在是听到“修司”就头疼<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

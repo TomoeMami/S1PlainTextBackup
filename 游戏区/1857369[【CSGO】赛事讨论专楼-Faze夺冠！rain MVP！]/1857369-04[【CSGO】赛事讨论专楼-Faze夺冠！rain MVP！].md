@@ -153,3 +153,20 @@ lvgnb!!!!!
 
 —— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  l⑨th_Knight  
+##### 4733#       发表于 2025-6-11 04:10
+
+全华班传奇组
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恶搞之王  
+##### 4734#       发表于 2025-6-11 04:10
+
+传奇组我们来了<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
