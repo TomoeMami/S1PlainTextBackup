@@ -331,3 +331,42 @@ all in莉莉丝，果然这个女人届不到。
 
 月批+马修，马修一生黑的只能接受现实。
 
+
+*****
+
+####  希望之花  
+##### 16888#       发表于 2025-6-10 04:25
+
+神马修最大的问题是要看两套宝具动画<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+作为补偿那个伤害是真的看不懂
+
+*****
+
+####  xiongxingyu  
+##### 16889#       发表于 2025-6-10 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910887&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-6-10 04:25</a>
+
+神马修最大的问题是要看两套宝具动画
+
+作为补偿那个伤害是真的看不懂</blockquote>
+这就是100宝威的含金量，而且人类威胁特攻虽然范围小，但是数值给得大方，直接就是200的D类，一般的D类特攻都是初始150，OC5才有200，圣剑填装的数值还是对得起多看一个宝具的（某魔法使你好好学学人家）。
+
+*****
+
+####  alucardcz  
+##### 16890#       发表于 2025-6-10 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909598&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-6-9 20:57</a>
+
+天那 90++玛修大人无敌了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 大佬都用马修了  萌新还在用学姐冲90++
+
+*****
+
+####  天王寺凯伊姆  
+##### 16891#       发表于 2025-6-10 11:44
+
+这个售后本真是面面俱到，玛修+冠位剑+果子龙
+

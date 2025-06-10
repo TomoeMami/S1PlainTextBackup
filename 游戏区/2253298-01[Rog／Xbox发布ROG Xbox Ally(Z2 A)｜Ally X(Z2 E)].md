@@ -970,3 +970,28 @@ Z2E比HX370差不少吧
 Steam Deck连大众玩家的堡垒之夜、Apex等GAAS都跑不了。再说触摸板替代鼠标只是聊胜于无罢了。我不如期待 ...</blockquote>
 其实玩不到也没啥. 现在主流的F2P GAAS以大逃杀或者电竞游戏居多. PC掌机用手柄vs高刷大屏键鼠PC. 不亚于小学生拳击场打泰罗. 
 
+
+*****
+
+####  慕容断月  
+##### 92#       发表于 2025-6-10 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911615&amp;ptid=2253298" target="_blank">ultraseven 发表于 2025-6-10 10:00</a>
+
+说再多SteamOS也是靠转译Windows游戏生态，有几个原生Linux游戏？和传统主机的封闭系统比较，这俩都是开 ...</blockquote>
+都不重要，对于游戏机来说，能跑并且玩的好（除了运行情况外也包括操控等方面）才是最重要的
+
+至少目前非微软相关的win掌机，这个没一个做的好。
+
+当然如果你很排斥或者很看不上valve这个路子，那当我什么都没说
+
+*****
+
+####  慕容断月  
+##### 93#       发表于 2025-6-10 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911565&amp;ptid=2253298" target="_blank">karastar 发表于 2025-6-10 09:51</a>
+
+现在键鼠支持最好的掌机是ns2了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你是说那个操控手感稀烂的鼠标模式吗？比起那个我还宁愿用触摸板
+
