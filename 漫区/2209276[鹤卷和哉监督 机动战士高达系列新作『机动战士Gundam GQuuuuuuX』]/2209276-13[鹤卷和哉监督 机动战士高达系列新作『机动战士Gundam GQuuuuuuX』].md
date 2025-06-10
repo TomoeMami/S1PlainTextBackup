@@ -5592,3 +5592,113 @@ GQX全武装了，开始和绿叔叔练习的时候就是全武装形态
 麻球和喵安对各自背后的立场的理解就是一种我写了你别说我没写的程度，我觉得鹤卷自己都不认为这部分写起来 ...</blockquote>
 夏亚梦男是这样的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">要我说去掉三人组剧情其实没多大影响但是又要吸引年轻观众，不得不说这是对的，我就被吸引过去补了0079
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 18301#       发表于 2025-6-11 02:26
+
+突然想起来结局最躺赢的不是联邦是卡尔玛。。。
+
+*****
+
+####  xwz  
+##### 18302#       发表于 2025-6-11 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916628&amp;ptid=2209276" target="_blank">patema 发表于 2025-6-11 02:21</a>
+
+你打不穿if就是打不穿，联邦要拿着加农底子没骡子数据的轻加农突破鸡瘟的护航打格斗战也不容易吧 ...</blockquote>
+大猩猩就是鸭妹干掉的，妈妈魔女那种也不差了
+
+*****
+
+####  Sabbah  
+##### 18303#       发表于 2025-6-11 02:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916625&amp;ptid=2209276" target="_blank">xyion 发表于 2025-6-11 02:20</a>
+
+麻球和喵安对各自背后的立场的理解就是一种我写了你别说我没写的程度，我觉得鹤卷自己都不认为这部分写起来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就目前的表现来看只能归结解读为他的确不认为有趣，或者说做出这种角度不到3度的人物弧本身就是讽刺这两个角色代表人群的行为。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">所以我是很期待这片有第二季的
+
+*****
+
+####  ryanghj  
+##### 18304#       发表于 2025-6-11 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916614&amp;ptid=2209276" target="_blank">darthruse 发表于 2025-6-11 02:14</a>
+
+毒杀这段感觉像致敬了以前很有名的电影延伸小说，配置都差不多</blockquote>
+毒杀就是照搬的高堡奇人
+
+*****
+
+####  未来起航  
+##### 18305#       发表于 2025-6-11 02:28
+
+要说像eva破那段那也像，但绫波丽和修司的角色魅力简直一个天上一个地下<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+而且世界毁灭的真实程度也是截然相反：EVA世界的写实性必须给角色内心的反复拉锯让出时间和空间上的余裕，你非要较真每次出动有没有死人那shinji真就只能立马自尽谢罪了。但刚大木天天都看死人特写镜头<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+（跑题，evaq就恶心在你以为都是世界系的事儿结果他突然给你较真算起人命的账<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">）
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  xunit  
+##### 18306#       发表于 2025-6-11 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916598&amp;ptid=2209276" target="_blank">asdhai 发表于 2025-6-11 02:03</a>
+这集小番茄其实还行吧。和绿叔叔掏心掏肺，连鸭子复仇的事都知道，也算是介入事件了；虽然还是会念叨修司， ...</blockquote>
+这个塑造是没什么问题，如果这个剧情出现在一部篇幅在12集的动画的第六集的话
+现在第十集结束了，下集预告里"两姐妹"好像状态也不太对的样子，发生了这么大的事俩人的战斗目标还都是为了电波蓝毛，这塑造也没什么用啊……
+
+*****
+
+####  PigMourne  
+##### 18307#       发表于 2025-6-11 02:30
+
+这炮的威力应该不可能把地球这么大的东西传到另一个宇宙吧，充其量就是消灭一下关键城市。这种抹消型的攻击也不能像阿克西斯一样摧毁整个气候吧？不知道是怎么快进到连香水都做不了的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 18308#       发表于 2025-6-11 02:30
+
+<blockquote>綺々羅々ヴィヴ 发表于 2025-6-11 02:26
+突然想起来结局最躺赢的不是联邦是卡尔玛。。。</blockquote>
+按照原案紫婆一直在找卡尔玛，然后鸭子把卡尔玛卖给紫婆，正片这段留白了没提而已
+
+*****
+
+####  希望之异热同心  
+##### 18309#       发表于 2025-6-11 02:31
+
+各种伏笔都收的差不多了，夏亚会在手电筒里搞事但不重要，明面上的谜底一定是牢修的愿望，而暗面主题其实一直是新人类（现代年轻人）在前人执念下要怎么找到自己的生活，这个主题到结尾我认为鹤卷也不会给一个明确答案，说教他也说教不来，但经历一切后还是秉承初心追寻自己欲望的麻球做出的选择就是鹤卷对年轻人的寄望吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  未来起航  
+##### 18310#       发表于 2025-6-11 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916643&amp;ptid=2209276" target="_blank">xunit 发表于 2025-6-11 02:29</a>
+这个塑造是没什么问题，如果这个剧情出现在一部篇幅在12集的动画的第六集的话
+现在第十集结束了，下集预 ...</blockquote>
+麻球其实干的都没错，把理由从修斯换成单纯我乐意，也没什么违和
+nya才是有如造孽之前必须给自己找个看起来像话的理由（
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sabbah  
+##### 18311#       发表于 2025-6-11 02:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">番茄第一次目睹死人:要接近牢修；番茄被通缉家业破碎:去地球找牢修；
+
+这次放了个阿巴瓦库大烟花总算想了点其他事
+
