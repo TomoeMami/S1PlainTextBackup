@@ -1420,3 +1420,11 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂热的基连簇拥吗？ ...</blockquote>
 指的是脸比原版像
 
+
+*****
+
+####  岸浪白野  
+##### 17874#       发表于 2025-6-10 16:53
+
+【【含剧透/高达/OST】GQuuuuuuX 第10话使用曲『Zeknova (I_056)』全曲试听！】 [https://www.bilibili.com/video/BV13fTrzzETc/](https://www.bilibili.com/video/BV13fTrzzETc/)
+
