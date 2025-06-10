@@ -5915,3 +5915,13 @@ side6被刺杀也是绿叔叔保护下来的
 
 我原以为这次和「互相理解」「可能性」「退一进二」一个等级的ptsd提词是「KiraKira」，没想到现在是听到“修司”就头疼<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Licheus  
+##### 18329#       发表于 2025-6-11 04:37
+
+好傻逼的片，是什么让我们跟着变傻了？是竹老师吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
