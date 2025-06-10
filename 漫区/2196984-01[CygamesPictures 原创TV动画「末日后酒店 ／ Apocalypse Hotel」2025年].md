@@ -5615,3 +5615,17 @@ https://www.first-film.com/wedding-cost-331/
 
 这里的“三个袋子”是日本结婚祝词常说的夫妻生活圆满所需的三点（这三点正好在日语里对应三个带“袋”的词），即忍耐、钱包和母亲。这里弟弟故意把其中一个换成了“春袋”，是个黄腔。
 
+
+*****
+
+####  KDConan  
+##### 490#       发表于 2025-6-10 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913097&amp;ptid=2196984" target="_blank">石狮鬼 发表于 2025-6-10 14:25</a>
+对我来说第九集最大的问题是非常轻描淡写地把八千代修回原样了，这个东西非常破坏第八集的观感
+
+思考现实一 ...</blockquote>
+是这个问题，既然能修好八千代了那别的服务生机器人是不是也能修了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

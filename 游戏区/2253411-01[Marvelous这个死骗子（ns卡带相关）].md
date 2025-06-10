@@ -480,3 +480,23 @@ switch1代的卡带成本新闻不多吧，我找了一下也没看到</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有物美价廉的2242不用，用高端TF卡，第三方和玩家的福报
 
+
+*****
+
+####  whzfjd  
+##### 48#       发表于 2025-6-10 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912680&amp;ptid=2253411" target="_blank">ascomnet 发表于 2025-6-10 12:54</a>
+
+O在日本已经半死不活了</blockquote>
+只看流水的话也不还是叹息之壁，更别说还得加上铁
+
+*****
+
+####  xbhuang  
+##### 49#       发表于 2025-6-10 15:01
+
+那我想问下，如果我买ns1版本，然后买ns2升级补丁，机器是完整重新下ns2版本呢还是只是更新补丁？
+
+这个补丁要12G？那不就感觉ns1版本也成了key卡了？当初不是辟谣了ns1游戏卡插ns2里不是key卡吗
+
