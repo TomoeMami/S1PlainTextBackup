@@ -1744,3 +1744,13 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿叔叔早发现了也不奇怪啊 你看首席哥心想“我杀得了他吗”的时候绿叔叔听到没
 
+
+*****
+
+####  Evomenon  
+##### 17905#       发表于 2025-6-10 19:57
+
+zekunova这bgm，就像机战里的那些个超级系大能BOSS们穿越过来了，突然屏幕上两行大字：“最终回：通向永无止境的明天”
+
+然后我方可能的阵容是四架真实系：79年老爷机（唯一装备：光剑），85年友善轮椅，85年可疑轮椅，85年改修版老爷机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
