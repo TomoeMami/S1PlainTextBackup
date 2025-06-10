@@ -5831,3 +5831,57 @@ nya才是有如造孽之前必须给自己找个看起来像话的理由（
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 18322#       发表于 2025-6-11 03:08
+
+<blockquote>轮太 发表于 2025-6-11 01:01
+补了下直播开头没看到的部分
+
+绿叔叔的原计划是趁这次基连和紫老太婆难得在一起，找机会和小番茄两个人一起 ...</blockquote>
+指正，没有打完，菜到被毒杀(
+
+*****
+
+####  AraTurambar  
+##### 18323#       发表于 2025-6-11 03:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916692&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-6-11 03:08</a>
+
+指正，没有打完，菜到被毒杀(</blockquote>
+不毒杀也是死，机体战一边倒。
+
+MA不带MS单独行动也是想不开。
+
+*****
+
+####  llysander  
+##### 18324#       发表于 2025-6-11 03:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916114&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 00:09</a>
+
+泽科诺瓦是传送吧，紫婆是不是误会成直接抹杀了，她好像不知道泽科诺瓦不会杀人的信息差 ...</blockquote>
+你看抚子后期的相转移炮也只是强制位移，但是做成了炮，传送到不知道什么地方去跟杀了没区别<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+这集阿巴瓦库国家亲卫队战舰基本死于跟石头一起位移途中撞一起了
+
+
+*****
+
+####  我聞如是  
+##### 18325#       发表于 2025-6-11 03:12
+
+<blockquote>岸浪白野 发表于 2025-6-11 02:58
+其实楼友们回头乐第7集当时的人太天真想太多是不如石川由依 2本杂志都说绝对不是真的想私奔幽默的
+
+第7集中 ...</blockquote>
+畢竟修司是全劇裡唯一一個說「喜歡」喵安的
+
+(但是加了高達說的)
+
+(但但是土屋弟說修司只是藝術家式地對喵安的二象性有興趣)
+
+缺愛小貓就陷下去了
+

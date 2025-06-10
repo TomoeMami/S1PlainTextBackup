@@ -5704,3 +5704,21 @@ https://www.first-film.com/wedding-cost-331/
 
 不过看警察外星人临死前还是自称刑警，也没有主动对坑了自己的主角团动粗，大概是真的警察吧
 
+
+*****
+
+####  NBXX  
+##### 497#       发表于 2025-6-11 03:08
+
+ 本帖最后由 NBXX 于 2025-6-11 03:11 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/11/031151mylpx5rgnddrxpax.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg.jpg</strong> (866.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 03:11 上传
+
+「アポカリプスホテルぷすぷすぷす」#10 漫画汉化
+
