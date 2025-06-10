@@ -1678,3 +1678,25 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 
 为什么就不能是番茄发功呢，gqx是啥东西也该解下密了
 
+
+*****
+
+####  LOLITA  
+##### 17901#       发表于 2025-6-10 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914449&amp;ptid=2209276" target="_blank">民工业 发表于 2025-6-10 18:26</a>
+
+这个bgm好劲啊
+
+—— 来自 鹅球 v3.5.99</blockquote>
+像是全UC的女鬼跑过来了
+
+*****
+
+####  赤黑的假面  
+##### 17902#       发表于 2025-6-10 19:07
+
+<blockquote>LOLITA 发表于 2025-6-10 19:03
+像是全UC的女鬼跑过来了</blockquote>
+致敬传奇机器人动画片Zeta Gundam最终话是吧
+
