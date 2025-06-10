@@ -5637,3 +5637,17 @@ https://www.first-film.com/wedding-cost-331/
 
 这集的预告跟猜的一样完全诈骗。不过neta的电影我只看出了一部闪灵。
 
+
+*****
+
+####  センコウ  
+##### 492#       发表于 2025-6-11 01:22
+
+ 本帖最后由 センコウ 于 2025-6-11 01:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916424&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-6-11 01:11</a>
+
+这集的预告跟猜的一样完全诈骗。不过neta的电影我只看出了一部闪灵。</blockquote>
+火曜サスペンス劇場，不是日本人大概不能懂的梗（刚好这片也是周二。。。
+
+悬疑剧+喜欢结尾在夕阳下的悬崖搞犯人的自白
+
