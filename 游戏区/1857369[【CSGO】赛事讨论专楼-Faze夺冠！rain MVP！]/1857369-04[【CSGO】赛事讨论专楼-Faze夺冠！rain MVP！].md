@@ -103,3 +103,11 @@
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  heseran  
+##### 4727#       发表于 2025-6-10 09:01
+
+大多数人放两次的0-3第二阶段直接3-0晋级，大多数人第二阶段的3-0被一脚踢死，这下猎鹰什么时候官宣换人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
