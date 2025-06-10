@@ -5702,3 +5702,34 @@ nya才是有如造孽之前必须给自己找个看起来像话的理由（
 
 这次放了个阿巴瓦库大烟花总算想了点其他事
 
+
+*****
+
+####  Saber琪  
+##### 18312#       发表于 2025-6-11 02:37
+
+作为喵安厨觉得要是有第二季那喵安还是别死了，不过大概率没有喵安还是给我当女鬼在宇宙里面喵喵叫吧！<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 18313#       发表于 2025-6-11 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916646&amp;ptid=2209276" target="_blank">PigMourne 发表于 2025-6-11 02:30</a>
+这炮的威力应该不可能把地球这么大的东西传到另一个宇宙吧，充其量就是消灭一下关键城市。这种抹消型的攻击 ...</blockquote>
+往地核来一发，引发剧烈地质变动，地表生物就全再见啦（
+
+
+*****
+
+####  岸浪白野  
+##### 18314#       发表于 2025-6-11 02:42
+
+<img src="https://img.stage1st.com/forum/202506/11/024252esry7uy272un4see.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (849.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 02:42 上传
+
