@@ -1159,3 +1159,16 @@ demo期间也不会试图解决这个问题</blockquote>
 
 DEMO还没摸，呆梨有没有加上OFFSET和全程动作可取消，没有的话不用碰了。
 
+
+*****
+
+####  哆哆鸡  
+##### 238#       发表于 2025-6-10 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914199&amp;ptid=2173536" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-6-10 17:36</a>
+
+空挥是玩家为了弥补角色设计失误开发出的技巧，这样出乎制作者设想外的技巧导致相关表现和操作都十分别扭。 ...</blockquote>
+想多了，甚至还把终结流星可以接突刺的派生删了，突刺只能在2sd和防反后接，sp还不够你全程用
+
+没攻速，去打20级组队boss基本只能用防反打伤害
+
