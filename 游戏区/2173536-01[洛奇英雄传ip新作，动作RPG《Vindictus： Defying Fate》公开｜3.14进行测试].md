@@ -1090,3 +1090,14 @@ demo期间也不会试图解决这个问题
 demo期间也不会试图解决这个问题</blockquote>
 回滚了驱动程序还是不行<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">也不知道是不是剩了点什么
 
+
+*****
+
+####  放大镜  
+##### 231#       发表于 2025-6-10 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912984&amp;ptid=2173536" target="_blank">amuro0093 发表于 2025-6-10 14:02</a>
+
+问下这游戏本地存档位置在哪，回家玩发现没云存档</blockquote>
+在c:\users\你的用户\appdata下搜一搜vindictus
+
