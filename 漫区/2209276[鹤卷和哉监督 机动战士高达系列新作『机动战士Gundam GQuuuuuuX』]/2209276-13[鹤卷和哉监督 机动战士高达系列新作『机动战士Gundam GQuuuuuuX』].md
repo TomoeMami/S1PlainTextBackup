@@ -6013,3 +6013,69 @@ yysy
 
 both good and bad interesting……这个事就很麻烦了
 
+
+*****
+
+####  qiyu1234  
+##### 18338#       发表于 2025-6-11 07:37
+
+现在的夏利亚有点尴尬，说实话这个一打多跟巧克力的区别是不是在于他确实有能力无双？或者说有夏亚给他擦屁股？我觉得既然有一个改变吉翁内部政局的大计划，是不是帮手应该多一点。。。
+
+*****
+
+####  zzy516232108  
+##### 18339#       发表于 2025-6-11 07:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我问一句，79if的联邦精英机师塞拉还有消息吗
+
+
+*****
+
+####  体制  
+##### 18340#       发表于 2025-6-11 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916044&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 00:00</a>
+感觉也没说明什么东西吧，难道是在网络爆炸的部分？
+
+喵安说讨厌的味道应该是指对她有敌意的人，GQ靠近的时 ...</blockquote>
+喵安应该是启动大手电杀的人太多+强制艾尔美斯启动导致的精神反冲吧。
+目前看来gq大手电带一个强制位移功能，可以把月球背面的基连派舰队转移到照射路径上杀。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cih  
+##### 18341#       发表于 2025-6-11 07:43
+
+<blockquote>patema 发表于 2025-6-11 02:21
+你打不穿if就是打不穿，联邦要拿着加农底子没骡子数据的轻加农突破鸡瘟的护航打格斗战也不容易吧 ...</blockquote>
+又不是AT福利多，区区光罩不会用实弹么？这集打的突袭已经够懵逼了，首席哥还一脸惊讶的叫有罩子？这难道紫婆连大扎木有罩子都不知道的么？这片的逻辑真不能细想😨
+
+*****
+
+####  不会起名  
+##### 18342#       发表于 2025-6-11 07:43
+
+泽克诺瓦的诺瓦是nova，泽克的词源是什么来着
+
+*****
+
+####  体制  
+##### 18343#       发表于 2025-6-11 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916064&amp;ptid=2209276" target="_blank">好想看Mujica啊 发表于 2025-6-11 00:02</a>
+两颠婆打到大道破碎，牢修出来档光束死掉，女人和解，大概这个展开？</blockquote>
+别忘了手枪，说不定有鲁路修第一季最后一集的的互射镜头<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  helgarose87  
+##### 18344#       发表于 2025-6-11 07:46
+
+这个0079IF和超级小陶的辐射一个味
+
+高达主题公园里头用来炒气氛的烟花<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
