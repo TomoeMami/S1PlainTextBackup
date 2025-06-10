@@ -1336,3 +1336,18 @@ Suiscout是S u i c i d e Scout的缩写，意为自 杀 式侦查</blockquote>
 说到军服，这些都是吉翁军服</blockquote>
 答案是设定里可以由军官自己定制和修改军服<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 17866#       发表于 2025-6-10 16:06
+
+<blockquote>银川智将Kuroky 发表于 2025-6-10 15:08
+gto版本的绿叔叔确实因为看到拉拉就破防了
+
+而且比原作更像g一串u的绿叔叔
+
+搞不好是那个时间线的
+</blockquote>
+gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂热的基连簇拥吗？
+
