@@ -866,3 +866,13 @@ PSN的试玩还没出么，搜不到</blockquote>
 
 黛莉娅的防反收益太低了，只能蹭几下刮痧，LLLRR下砸的力量感表现也很糟糕，原版我就好把BOSS残血打飞等结算自动拍照，怎么照着自己十年前的作业抄都能抄成这样<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1a不解释  
+##### 208#       发表于 2025-6-10 08:22
+
+加了cg之后好歹剧情能看明白了，网游那个纯对话剧情真是让人一头雾水
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

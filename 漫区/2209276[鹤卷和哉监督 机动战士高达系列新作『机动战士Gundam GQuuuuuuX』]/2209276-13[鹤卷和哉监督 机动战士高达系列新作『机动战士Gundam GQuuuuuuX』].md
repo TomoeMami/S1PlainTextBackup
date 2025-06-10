@@ -462,3 +462,18 @@
 
 番茄目前这个形象塑造我觉得也只有一条路可走了吧，描写成一个撞了南墙也不回头叛逆到底最后因此而击碎了所有大人们的阴谋打算的角色可能还有点救？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mengsu  
+##### 17783#       发表于 2025-6-10 08:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还能怎么办，九话一点成长不给的叛逆小姑娘就只能充当攻城锤了呗。
+
+*****
+
+####  Evomenon  
+##### 17784#       发表于 2025-6-10 08:36
+
+反正有全自动轮椅GQX实现麻球的愿望，那么只要愿望够牛逼，就没有什么干不掉的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
