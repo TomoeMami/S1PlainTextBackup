@@ -1428,3 +1428,11 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 
 【【含剧透/高达/OST】GQuuuuuuX 第10话使用曲『Zeknova (I_056)』全曲试听！】 [https://www.bilibili.com/video/BV13fTrzzETc/](https://www.bilibili.com/video/BV13fTrzzETc/)
 
+
+*****
+
+####  YU_JI  
+##### 17875#       发表于 2025-6-10 16:56
+
+这集就炸泽科诺瓦啊，那牢修这集应该会回归了（该说不说，这曲子劲还挺大的，期待插入）
+
