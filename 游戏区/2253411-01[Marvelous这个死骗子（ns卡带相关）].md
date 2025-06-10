@@ -431,3 +431,14 @@ SD卡不就降价了</blockquote>
 为什么都在骂第3方 给第3方这个选择的罪魁祸首不更该骂吗</blockquote>
 垃圾日厂第三方配不上这么好的任天堂
 
+
+*****
+
+####  karastar  
+##### 43#       发表于 2025-6-10 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912886&amp;ptid=2253411" target="_blank">多诺 发表于 2025-6-10 13:38</a>
+
+但是switch1代的卡带成本一直也没降</blockquote>
+switch1代的卡带成本新闻不多吧，我找了一下也没看到
+

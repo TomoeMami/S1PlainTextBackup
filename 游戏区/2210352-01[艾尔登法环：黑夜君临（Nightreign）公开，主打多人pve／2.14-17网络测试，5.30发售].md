@@ -8373,3 +8373,16 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 原来双持加工对弓箭没用吗<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我还每次都去捡
 
+
+*****
+
+####  serj005  
+##### 825#       发表于 2025-6-10 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912823&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-6-10 13:24</a>
+原来双持加工对弓箭没用吗我还每次都去捡</blockquote>
+弓箭少吃一堆加成，包括双持，各持，轻击第一下，连续攻击等等都吃不到。
+蓄力有点忘了能不能吃到了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
