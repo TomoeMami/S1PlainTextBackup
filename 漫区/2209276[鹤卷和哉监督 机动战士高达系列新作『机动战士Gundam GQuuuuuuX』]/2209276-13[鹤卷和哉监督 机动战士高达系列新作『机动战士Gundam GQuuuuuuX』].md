@@ -4878,3 +4878,96 @@ ray消光是什么胶佬梗吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  seedees3  
+##### 18236#       发表于 2025-6-11 01:36
+
+基连死的也太草率了吧
+
+*****
+
+####  岸波白野  
+##### 18237#       发表于 2025-6-11 01:37
+
+还在十万个为什么向鹤卷榎户讨说法的多LOOP几遍星街ED吧真的，或者跳船or预期继续降低到冰点，要不是这片就走到这些UC老脸必须到前台唱戏这种程度，人物动机行为上那种世界系电波感只会更要命
+
+*****
+
+####  ardente  
+##### 18238#       发表于 2025-6-11 01:39
+
+后，原来是阿巴瓦库在叫啊，我还以为可变重力源要跑出来了呢<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 18239#       发表于 2025-6-11 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916516&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-6-11 01:31</a>
+
+几个疑点
+
+1)麻球为啥知道鸭子的目的是向扎比家复仇，GQX世界观官方的说法鸭子还是忠臣吧，总不能夏利亚全给 ...</blockquote>
+另还一点，从第八话夏亚的发言和这一话博士的发言来看
+
+Gfed很明确就是启动手电筒用的，然后明知道Gfed在紫婆手里，手电筒核心部位一点反制措施都没有...
+
+只能说吉连这么大心能活到0085已经不容易了...
+
+
+*****
+
+####  仓岛千百合  
+##### 18240#       发表于 2025-6-11 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916510&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-6-11 01:28</a>
+
+一直以为她是菲律宾人呀</blockquote>
+东南亚国家里随便选一个都是没啥问题。
+
+
+*****
+
+####  Launce  
+##### 18241#       发表于 2025-6-11 01:42
+
+ 本帖最后由 Launce 于 2025-6-11 01:43 编辑 
+
+胶佬喷漆教育短片
+
+<img src="https://img.stage1st.com/forum/202506/11/014200wlz3uztzmcgsc0w5.jpg" referrerpolicy="no-referrer">
+
+<strong>2ME[2}N9I$}SY)MXT@[{_98.jpg</strong> (742.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 01:42 上传
+
+*****
+
+####  狼王卢比奥  
+##### 18242#       发表于 2025-6-11 01:44
+
+这不就是EVA吗，世界系，瞬间被男主攻略的女角，算计的大人们，迷茫的不知道在干什么的主角。
+
+*****
+
+####  xunit  
+##### 18243#       发表于 2025-6-11 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916519&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-11 01:35</a>
+这集基连完全不像0079那样阴险自信啊，说话软绵绵的，紫婆说因为图图太多有精神压力可能不是虚言。
+
+ ...</blockquote>
+话说紫婆对她哥的评价自己信吗，汤大基哪里能是会对干掉半数人类而后悔的人，明明是即使亡灵真找上门也会用歪理骂回去的狠角
+被秘书榨精榨到直不起腰而发出痛苦声音的可能性都比后悔图图的可能性要高
+
+*****
+
+####  仓岛千百合  
+##### 18244#       发表于 2025-6-11 01:45
+
+总感觉这剧说到底是俩女人争一个男人太LOW了...这是高达吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
