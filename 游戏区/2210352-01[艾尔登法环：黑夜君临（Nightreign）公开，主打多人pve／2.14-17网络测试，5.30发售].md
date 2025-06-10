@@ -8310,3 +8310,15 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 感觉徘徊赐福有bug，好几次在boss房里三个人全倒了，一个人身上有徘徊赐福复活了，但是在他复活前另一个人显示defeat被踢出去了
 
+
+*****
+
+####  serj005  
+##### 819#       发表于 2025-6-10 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911900&amp;ptid=2210352" target="_blank">CCMkIII 发表于 2025-6-10 10:42</a>
+感觉徘徊赐福有bug，好几次在boss房里三个人全倒了，一个人身上有徘徊赐福复活了，但是在他复活前另一个人 ...</blockquote>
+很多人提到了，目前联机状态下的徘徊赐福判定很不稳定
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
