@@ -59,3 +59,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5653#       发表于 2025-6-10 22:03
+
+30个新武器，不知道会不会诞生研究所新亲儿子
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

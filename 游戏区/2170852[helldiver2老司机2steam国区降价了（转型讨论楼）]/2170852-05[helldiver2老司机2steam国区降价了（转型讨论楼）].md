@@ -7977,3 +7977,11 @@ P-2“和平制造者”
 最后通牒的扎针射击被修了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 利维坦是你爹🐴箭头
 
+
+*****
+
+####  FLZB  
+##### 6653#       发表于 2025-6-10 22:04
+
+bug越来越多了，更新后大量音效失效，这游戏随着一次次更新逐渐腐烂<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
