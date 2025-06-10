@@ -1062,3 +1062,14 @@ Beast of Reincarnation invites you to a post-apocalyptic Japan on PS5 next year:
 是的，当初开发小镇英雄的栃木遥，他当初就是被齿轮计划吸引，从LV5跳槽来的（齿轮计划是你投企划，gf出 ...</blockquote>
 三年之后又三年<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝雉  
+##### 105#       发表于 2025-6-10 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913747&amp;ptid=2253295" target="_blank">wtscfer 发表于 2025-6-10 16:15</a>
+
+是的，当初开发小镇英雄的栃木遥，他当初就是被齿轮计划吸引，从LV5跳槽来的（齿轮计划是你投企划，gf出 ...</blockquote>
+他现在也还在发个人项目的dev,说不定做完za哪天又去齿轮计划浪了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

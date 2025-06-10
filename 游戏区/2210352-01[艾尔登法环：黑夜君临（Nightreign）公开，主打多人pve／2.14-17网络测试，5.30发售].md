@@ -8386,3 +8386,16 @@ Day3boss门前落地我直接打了一发亚兹勒彗星，女爵心领神会丢
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wasian  
+##### 826#       发表于 2025-6-10 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67910644&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-10 00:45</a>
+
+铁眼14级全雷强化包括雷对蝎都拿了，打人马比较轻松一次过。
+
+比较奇怪的是它插地板的大招只能隔一次打断一 ...</blockquote>
+boss的属性弱点触发一次后会有个CD，表现在boss身上会有属性特效在动，没了才能触发第二次，期间就只能削韧打断了
+

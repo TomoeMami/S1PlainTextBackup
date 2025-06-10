@@ -181,3 +181,39 @@ vrc服务器故障大半天了，到现在也没修好的迹象
 
 等一下fbk还要先solo直播vrc如果等会也进不去那很可能要改计划了
 
+
+*****
+
+####  holofan  
+##### 11058#       发表于 2025-6-9 09:52
+
+<img src="https://img.stage1st.com/forum/202506/09/095234d0fcdnnq9myf07km.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-9 09:52 上传
+
+*****
+
+####  holofan  
+##### 11059#       发表于 2025-6-10 17:41
+
+<img src="https://img.stage1st.com/forum/202506/10/174125drx1rx8a185aahar.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-10 17:41 上传
+
+*****
+
+####  holofan  
+##### 11060#       发表于 2025-6-10 17:59
+
+玩了MC7年以上第一次知道MC的ctrl键可以替代双击w冲刺
+
+太有你了，永远没有任何一款游戏玩得明白过的，玩了这么多游戏之后
+
