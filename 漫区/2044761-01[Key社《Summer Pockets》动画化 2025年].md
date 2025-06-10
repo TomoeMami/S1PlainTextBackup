@@ -27,3 +27,13 @@ key还是那么喜欢八音盒。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">完全没看懂,我就不吐槽你们不怕失火的吗
 
+
+*****
+
+####  没取名啊  
+##### 162#       发表于 2025-6-11 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916251&amp;ptid=2044761" target="_blank">镜hinata 发表于 2025-6-11 00:32</a>
+完全没看懂,我就不吐槽你们不怕失火的吗</blockquote>
+灯塔就在海边，安心啦<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

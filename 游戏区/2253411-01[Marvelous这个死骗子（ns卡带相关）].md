@@ -627,3 +627,14 @@ O在日本已经半死不活了</blockquote>
 这卡还巨贵，420多，how dare you</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">330pdd 买的，已经想退了
 
+
+*****
+
+####  liekong  
+##### 62#       发表于 2025-6-11 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913994&amp;ptid=2253411" target="_blank">xbhuang 发表于 2025-6-10 16:57</a>
+
+这种游戏估计就卖首发一波，后续会不会再生产都不一定</blockquote>
+对，采取买后期卡带的方案来说，这个是最大的担忧
+

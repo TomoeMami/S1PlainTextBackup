@@ -3788,3 +3788,259 @@ GQ鸭与GQ拉不认识。</blockquote>
 
 一个月前我还很讨厌她呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HOBBITXDD  
+##### 18138#       发表于 2025-6-11 00:49
+
+喵安真的越来越像猫了，共情能力不高感觉不到拉拉悲鸣，性格也很单纯有栖身之所即可让干啥干啥但办事又很野路子，喜欢就抱着不放烦了就哈气疯狂乱抓<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 18139#       发表于 2025-6-11 00:51
+
+这集好水，话说这俩人隔着机体都感觉不到对面是谁还是nt力太菜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这只能修司出来救场了不然这俩人真能上演特摄棚隔着皮套不认识的路子把对面当死敌揍
+喵安这下危险度是有点高了，不管如何搞出这种大规模杀伤行为有点过于不做好
+预告里修司看起来好像有点生气的是为什么呢，不会真是因为蔷薇拉拉伤心了他愤怒了吧…
+
+*****
+
+####  newise  
+##### 18140#       发表于 2025-6-11 00:51
+
+菲姐存活但是失明失忆偶遇番茄问路好不好啊？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 18141#       发表于 2025-6-11 00:51
+
+什麼情報哥？什麼122？
+
+*****
+
+####  YU_JI  
+##### 18142#       发表于 2025-6-11 00:51
+
+有个小call back是喵安说只给喜欢的人下厨，回应之前的包饺子
+
+*****
+
+####  windtrack  
+##### 18143#       发表于 2025-6-11 00:51
+
+ 本帖最后由 windtrack 于 2025-6-11 00:52 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">严重怀疑女人打架打到一半然后老修挡刀升天，背景里的夏亚再来一句“人类总是再重复相同的错误”
+
+*****
+
+####  leommoo  
+##### 18144#       发表于 2025-6-11 00:52
+
+火箭筒爆头搞情怀可以，但如果整点新活会更有趣
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  gammatau  
+##### 18145#       发表于 2025-6-11 00:52
+
+虽然喵安动机坏了，但是执行好了啊。吉翁舰队那边都杀了也活该吧
+
+*****
+
+####  大十字紅朔  
+##### 18146#       发表于 2025-6-11 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916236&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 00:31</a>
+
+他不交也不行啊，其他部队也参与了打捞，这东西他也没法摁在自己手里。
+
+同时开火的火控部是在基连派手里 ...</blockquote>
+基连以前不也是这样死得很搞笑嘛……
+
+基连一直想的是“基西莉亚要跟我玩头脑战，要搞政治斗争”
+
+基西莉亚想的是“只要一见面就杀了他”
+
+躲了5年没躲过
+
+*****
+
+####  Sliurus  
+##### 18147#       发表于 2025-6-11 00:53
+
+绿叔叔越来越像鸭子了，平时装逼一套一套的，一到关键时刻就掉链子
+
+*****
+
+####  岸浪白野  
+##### 18148#       发表于 2025-6-11 00:53
+
+因为正片就给你看那次，那只有包饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/11/005242gh3veh213wqnld1v.jpg" referrerpolicy="no-referrer">
+
+<strong>XCOM%$U[MHE)_6`XC)P}RED_tmb.jpg</strong> (73.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:52 上传
+
+*****
+
+####  秋月孝三  
+##### 18149#       发表于 2025-6-11 00:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">side2难民炮轰吉翁军的行为具有天然正义性
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lunaticfool  
+##### 18150#       发表于 2025-6-11 00:53
+
+“这不是基连总帅吗？”
+
+
+*****
+
+####  民工业  
+##### 18151#       发表于 2025-6-11 00:54
+
+话说下一集标题里的阿尔法杀手的阿尔法指的是什么？之前说过吗？没想起来有<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  盐盐盐盐盐  
+##### 18152#       发表于 2025-6-11 00:54
+
+话说gfred那俩耳朵浮游炮也太幽默了这场实战看起来既没有火力优势也没有数量上的全方位攻击优势……就能封俩方向而已，魔女还得配合超高机动打ms，喵安这俩耳朵打大扎姆是来挠痒的吗
+
+*****
+
+####  zzf111  
+##### 18153#       发表于 2025-6-11 00:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18154#       发表于 2025-6-11 00:54
+
+ 本帖最后由 岸浪白野 于 2025-6-11 00:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916340&amp;ptid=2209276" target="_blank">民工业 发表于 2025-6-11 00:54</a>
+
+话说下一集标题里的阿尔法杀手的阿尔法指的是什么？之前说过吗？没想起来有
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+阿尔法赛可缪，红高达的编号才改为gMS-α
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 民工业| + 1|啊对，把这茬给忘了|
+
+查看全部评分
+
+*****
+
+####  武川日玄  
+##### 18155#       发表于 2025-6-11 00:54
+
+ 本帖最后由 武川日玄 于 2025-6-11 00:56 编辑 
+
+基西莉亚·袁莉？
+
+（五秒钟后）
+
+空气传播
+
+*****
+
+####  洛克萨斯  
+##### 18156#       发表于 2025-6-11 00:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修斯挡刀然后两个人基拉阿斯兰化？最后机体大破下地手枪对射，绿叔叔和鸭叔叔给他们收尸
+
+*****
+
+####  YU_JI  
+##### 18157#       发表于 2025-6-11 00:55
+
+大扎姆直到85年也才13台，所以79年展示的那些不会就是全部了吧（）
+
+*****
+
+####  蕾洁之风  
+##### 18158#       发表于 2025-6-11 00:55
+
+这集居然是第三工作室，Gfred连接那里的特写看着就像久寿米木画的，顺便金世俊怎么就当了一集的机械作监
+
+<img src="https://img.stage1st.com/forum/202506/11/005334ox7f772zxnqjph02.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250611-005143.png</strong> (134.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/005337s9ctflpydf5oppat.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250611-005154.png</strong> (692.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:53 上传
+
+*****
+
+####  Natsunagi  
+##### 18159#       发表于 2025-6-11 00:56
+
+紫婆是不是说要把整个地球泽克诺瓦掉？
+
+*****
+
+####  民工业  
+##### 18160#       发表于 2025-6-11 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916353&amp;ptid=2209276" target="_blank">Natsunagi 发表于 2025-6-11 00:56</a>
+紫婆是不是说要把整个地球泽克诺瓦掉？</blockquote>
+我感觉老太婆是这个意思<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  LOLITA  
+##### 18161#       发表于 2025-6-11 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916322&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-11 00:51</a>
+
+这集好水，话说这俩人隔着机体都感觉不到对面是谁还是nt力太菜了这只能修司出来救场了不然这俩人真能上演特 ...</blockquote>
+我来胡扯一下，二号机全身装了屏蔽精神波的系统，没法进入nt聊天室也没法短距离共享意识<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+这样如何？
+
+*****
+
+####  ヒトニナル  
+##### 18162#       发表于 2025-6-11 00:57
+
+有一说一按照绿叔叔现在这个人设，玛秋要是真死了他估计会自责<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
