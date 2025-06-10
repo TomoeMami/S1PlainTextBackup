@@ -1409,3 +1409,14 @@ gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂
 不是别的地方起码还聊聊别人访谈，你楼是只有玛秋了吗</blockquote>
 绿叔叔: 明明我才是真女主 访谈也在和鸭子在炒cp
 
+
+*****
+
+####  银川智将Kuroky  
+##### 17873#       发表于 2025-6-10 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913689&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-10 16:06</a>
+
+gto的绿叔叔的形象和GQ的也差的太远了吧？gto的夏利亚不是狂热的基连簇拥吗？ ...</blockquote>
+指的是脸比原版像
+
