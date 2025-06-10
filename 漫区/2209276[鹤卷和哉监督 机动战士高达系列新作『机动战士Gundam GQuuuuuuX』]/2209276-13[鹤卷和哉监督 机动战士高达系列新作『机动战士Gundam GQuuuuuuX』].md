@@ -1257,3 +1257,28 @@ gto版本的绿叔叔确实因为看到拉拉就破防了
 
 呃
 
+
+*****
+
+####  fujissw  
+##### 17860#       发表于 2025-6-10 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913333&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-6-10 15:08</a>
+
+gto版本的绿叔叔确实因为看到拉拉就破防了
+
+而且比原作更像g一串u的绿叔叔
+
+搞不好是那个时间线的</blockquote>
+索然无味不是鸭子说的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银川智将Kuroky  
+##### 17861#       发表于 2025-6-10 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913458&amp;ptid=2209276" target="_blank">fujissw 发表于 2025-6-10 15:27</a>
+
+索然无味不是鸭子说的吗</blockquote>
+side7才打第一次ms战说明不是gto线
+

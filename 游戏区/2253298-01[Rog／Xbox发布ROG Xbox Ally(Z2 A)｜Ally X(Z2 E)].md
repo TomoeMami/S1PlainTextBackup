@@ -1019,3 +1019,16 @@ ally 一代是触摸屏<img src="https://static.stage1st.com/image/smiley/face20
 阀门没有任何压力，阀门的生态跟Win的还真有些区别，而且他们的思路一直都是拥抱开源，和尽可能底层的提 ...</blockquote>
 它现在都是能安 steam 的状态，那就可以从 steam 启动然后用 steam input<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 96#       发表于 2025-6-10 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912997&amp;ptid=2253298" target="_blank">御坂MKII 发表于 2025-6-10 14:04</a>
+
+它现在都是能安 steam 的状态，那就可以从 steam 启动然后用 steam input</blockquote>
+能用和能全用是两回事，那两块触摸板是摆设吗？
+
+如果有人觉得是摆设那就是这人用不出steam input这套系统的全力了
+
