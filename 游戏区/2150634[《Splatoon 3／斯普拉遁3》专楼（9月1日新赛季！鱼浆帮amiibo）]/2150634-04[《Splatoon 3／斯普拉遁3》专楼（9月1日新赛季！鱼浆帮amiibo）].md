@@ -69,3 +69,22 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5654#       发表于 2025-6-10 22:10
+
+ 本帖最后由 Pumpkin_ccc 于 2025-6-10 22:15 编辑 
+
+三代真正DLC剧情居然出成单独游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过居然有黑栓，又有新武器玩了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pumpkin_ccc  
+##### 5655#       发表于 2025-6-10 22:13
+
+莎莎和曼曼这新造型太棒了
+
