@@ -1306,3 +1306,13 @@ OST曲包3将于6月12日上线。
 
 Suiscout是S u i c i d e Scout的缩写，意为自 杀 式侦查</blockquote>
 
+
+*****
+
+####  57042711  
+##### 17863#       发表于 2025-6-10 15:50
+
+都怪高达主角大都是砍王，番茄要是战斗力和G复国贝尔利一样过剩到没吃过瘪的话<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
