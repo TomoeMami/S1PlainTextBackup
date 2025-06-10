@@ -2817,3 +2817,349 @@ image.png
 内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
 觉得手电筒强无敌了吧，指哪打哪。
 
+
+*****
+
+####  g救世主高达  
+##### 18035#       发表于 2025-6-11 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916050&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-6-11 00:01</a>
+
+内斗这么疯吗，干死头头了还要图图亲卫队，还要图图自家基地，联邦要笑死了 ...</blockquote>
+就靠那破坏力不如正传世界线一根的精神力高达和不会变形没斗士步枪的汉谟拉比？能不能打过雷霆宙域世界线的联邦都是问题
+
+*****
+
+####  YU_JI  
+##### 18036#       发表于 2025-6-11 00:09
+
+泽科诺瓦是传送吧，紫婆是不是误会成直接抹杀了，她好像不知道泽科诺瓦不会杀人的信息差
+
+*****
+
+####  sliver1997  
+##### 18037#       发表于 2025-6-11 00:09
+
+看到最后一个为了见修司一个为了见小修，太难绷了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a85982313  
+##### 18038#       发表于 2025-6-11 00:09
+
+有点搞，下集不论是两个女人抢男人，还是番茄突然醒悟了真的是为什么大义一类的都很搞
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">毕竟番茄和喵安这个对立，非常感觉不到之前这两关系有多好，反正就是不熟感
+
+*****
+
+####  Sliurus  
+##### 18039#       发表于 2025-6-11 00:09
+
+喵安对修司感情还挺重的，马秋现在来看似乎没之前那么执着了
+
+紫婆感觉也是脑子有点问题，怎么说也是同一阵营，直接开地图炮轰是嫌发展太好了吗
+
+*****
+
+####  七七見奈波  
+##### 18040#       发表于 2025-6-11 00:09
+
+鸭改名换姓跑来手电筒多少得干点啥吧，下一集我要看到其实手电筒被他做了手脚（误）
+
+阿巴瓦空的舰队喊看到了地球，到底是看到了别的世界线的地球还是觉得自己本来不应该看到地球但因为从月球背面被传送过来所以震惊大喊就不知道了。不过这话是不是可以理解为实锤GFred和之前预测的一样是可以和手电筒联动，对指定坐标展开泽克诺瓦？被泽克诺瓦的人到底去哪儿了下集总该有说法了吧
+
+
+*****
+
+####  吉吉国王  
+##### 18041#       发表于 2025-6-11 00:09
+
+两个顶级的nt见面都没发现对方身份，情义也太低了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 18042#       发表于 2025-6-11 00:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以鸡夸到底想说啥，女人扯头花是能毁灭世界的?
+
+*****
+
+####  七七見奈波  
+##### 18043#       发表于 2025-6-11 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916081&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-11 00:04</a>
+
+夏亚直接写出来了，行z高达之事是吧</blockquote>
+也不算直接写出来，这集夏亚本来就有台词，是夏利亚回忆里在小黑屋喝酒时说的那些话
+
+*****
+
+####  赤黑的假面  
+##### 18044#       发表于 2025-6-11 00:10
+
+<blockquote>你妈的为什么 发表于 2025-6-11 00:10
+所以鸡夸到底想说啥，女人扯头花是能毁灭世界的?</blockquote>
+不清楚，等amazon源出来了再看一遍
+
+*****
+
+####  久保由利香  
+##### 18045#       发表于 2025-6-11 00:10
+
+基西利亚还是那个不择手段的**，夏亚还是那个害人精，基连还是那个被背刺的自大狂，舒服了！
+德金已经死了，看样子是战后死的？
+<img src="https://p.sda1.dev/24/007299622ad2e41c1de328d8bcea81e1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 18046#       发表于 2025-6-11 00:11
+
+卡多和迪拉兹是不是被喵安一波宰了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猎人D  
+##### 18047#       发表于 2025-6-11 00:11
+
+这集还是没解什么密啊，虽然作画是看过瘾了
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 18048#       发表于 2025-6-11 00:11
+
+女人扯头花就没意思了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Toby_dak  
+##### 18049#       发表于 2025-6-11 00:11
+
+magnet:?xt=urn:btih:3ee318ffa7e3d900df12fd3e0f8547cdbf515e97&amp;dn=%5BNew-raws%5D%20Kidou%20Senshi%20Gundam%20GQuuuuuuX%20-%2010%20%5B1080p%5D%20%5BAMZN%5D.mkv&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18050#       发表于 2025-6-11 00:11
+
+最后俩人百分百要机体互爆，然后互相拔枪对峙，理由是为了争修斯/修酱<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+笑麻了，那么多宿敌对峙可以抄的，你夸克斯选了个最lowB的理由
+
+*****
+
+####  poiqwe  
+##### 18051#       发表于 2025-6-11 00:11
+
+ 本帖最后由 poiqwe 于 2025-6-11 00:13 编辑 
+
+这剩下两话讲完轻轻松松啊，看这集之前没想到基连派直接被团灭了，下集集中解密，最后一集讲些杂七杂八还能外加个后日谈
+
+*****
+
+####  猪突猛进R  
+##### 18052#       发表于 2025-6-11 00:12
+
+哪有什么谜，kirakira实锤是玻色子跳跃，那还有啥大不了的。
+
+*****
+
+####  ヒトニナル  
+##### 18053#       发表于 2025-6-11 00:12
+
+喵安为了见个男人随手砸了两个研究人员，甚至还敢去开手电筒，我反正很讨厌这种人设<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 18054#       发表于 2025-6-11 00:12
+
+小森还能活下来么，船都没了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 18055#       发表于 2025-6-11 00:12
+
+前面嘴麻球塑造的时候还能说她的问题只在青春期少年少女范围之内，只是缺乏清晰明确的自我行动认知
+现在喵安在三集之内完成了难民到一秒蒸发间谍的基西莉亚心腹再到启动战争兵器秒杀大量人类的魔鬼三级跳，其动机是再发动kirakira找到修司
+这人物塑造还有救吗，哈哈<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18056#       发表于 2025-6-11 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916138&amp;ptid=2209276" target="_blank">Ferrari 发表于 2025-6-11 00:12</a>
+
+小森还能活下来么，船都没了</blockquote>
+绿木马不在射程吧，是阿巴奥库被传送走了。
+
+*****
+
+####  DANAmya  
+##### 18057#       发表于 2025-6-11 00:13
+
+如果要遵从79的话，汤大基又被紫色老太婆杀了，那老太婆会不会也还是会被夏亚收头呢，绿叔叔也有可能会没了啊
+
+*****
+
+####  猪突猛进R  
+##### 18058#       发表于 2025-6-11 00:13
+
+3小只的塑造烂完了。
+
+*****
+
+####  kcalb  
+##### 18059#       发表于 2025-6-11 00:14
+
+这集是膜Q下教条区么<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+喵安看来还是要被献祭掉，最后估计被修斯接走修仙了吧，或者再演一次光（kirakira）之宇宙
+
+
+*****
+
+####  lunaticfool  
+##### 18060#       发表于 2025-6-11 00:14
+
+绿叔叔和基西莉亚心心念念的人就在眼皮底下，太难崩了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 18061#       发表于 2025-6-11 00:14
+
+按理说大杀器是个传送，台词里的看到地球应该是传送到地球
+
+但是从2个女主的反应来看这个传送的吉翁军是死定的了
+
+这集最厉害的居然有时间给绿叔叔补木星的设定
+
+虽然回忆的画面有一瞬间让我以为是什么THE POWER发功了，绿叔叔成霸界的眷属了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 18062#       发表于 2025-6-11 00:14
+
+三小只纯工具人，快把夏亚端上来吧<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 18063#       发表于 2025-6-11 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916140&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-6-11 00:12</a>
+
+前面嘴麻球塑造的时候还能说她的问题只在青春期少年少女范围之内，只是缺乏清晰明确的自我行动认知
+
+现在喵 ...</blockquote>
+反正我们伟大菲律宾星街不早就用ED1唱出了这些糊逼老登的心声<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18064#       发表于 2025-6-11 00:15
+
+<img src="https://img.stage1st.com/forum/202506/11/001524ekq44uzzkeg8of44.png" referrerpolicy="no-referrer">
+
+<strong>B@D7WEE`YG7]7U2XM[D$@U4.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/001529b2imngctiaxtkcgb.png" referrerpolicy="no-referrer">
+
+<strong>IFL1{[E9WAV7)$B57~_[E]8.png</strong> (781.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 00:15 上传
+
+*****
+
+####  ftyaid  
+##### 18065#       发表于 2025-6-11 00:15
+
+番茄如果要杀一个且唯一只能杀一个的话，那由她杀掉喵安是最好的
+
+虽然我觉得脱出的"大人"会帮她代行这个责任就是了，承担责任对夏亚来说也是最好的成长吧大概
+
+让小番茄到最后都不沾血而喵安沾血，应该是这样
+
+*****
+
+####  105gun  
+##### 18066#       发表于 2025-6-11 00:15
+
+中间网络波动不知道漏了啥，所以爆这么多强人是为了近战插爆大扎姆么
+
+*****
+
+####  ryanghj  
+##### 18067#       发表于 2025-6-11 00:16
+
+夏亚这集溜了实在搞笑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18068#       发表于 2025-6-11 00:16
+
+直播间提前放下一话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 18069#       发表于 2025-6-11 00:16
+
+玩具位置排满了，鸭子怕是开回红高达去了。
+
+*****
+
+####  Sliurus  
+##### 18070#       发表于 2025-6-11 00:16
+
+突然觉得喵安当年逃亡的时候可能也杀过人，所以对这件事不是很抵触
+
+开地图炮我只能认为主要原因是紫婆的命令，找修酱算是工作里的私心，嗯，只能这么告诉自己了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 18071#       发表于 2025-6-11 00:16
+
+脱出型nt，骡一儿<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+夏亚铁粉了
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18072#       发表于 2025-6-11 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916140&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-6-11 00:12</a>
+
+前面嘴麻球塑造的时候还能说她的问题只在青春期少年少女范围之内，只是缺乏清晰明确的自我行动认知
+
+现在喵 ...</blockquote>
+你要是真冷酷无情那都算了，结果理由还是惦记那修酱修酱，闹麻了
+
+*****
+
+####  真贝尔奈普斯  
+##### 18073#       发表于 2025-6-11 00:17
+
+大基真不是影武者什么的么，死的这么草率
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
