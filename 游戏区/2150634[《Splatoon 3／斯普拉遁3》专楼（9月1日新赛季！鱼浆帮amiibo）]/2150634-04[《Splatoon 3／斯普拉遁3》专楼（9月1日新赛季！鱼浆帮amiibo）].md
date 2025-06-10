@@ -113,3 +113,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">デカマライン都能打赢复活赛，夸脏哦
 
+
+*****
+
+####  墨染白泉  
+##### 5659#       发表于 2025-6-10 22:46
+
+我刷5把小绿25星都刷了好久，现在又加个小绿贴牌，还升到十星，要刷到天荒地老了
+
+*****
+
+####  Pumpkin_ccc  
+##### 5660#       发表于 2025-6-10 22:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曼曼这新造型，如果早点出，祭典胜负还难说，好看了不止一倍
+
