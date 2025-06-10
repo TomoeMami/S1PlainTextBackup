@@ -5933,3 +5933,18 @@ side6被刺杀也是绿叔叔保护下来的
 
 突然想起来，夏亚和修司都还活着，那说明泽克诺瓦可以只瞬移不杀人，那这泽克诺瓦科技的瞬移，能否帮助g复国里金星总统实现"人类带着地球一起跑路"的目标
 
+
+*****
+
+####  ardente  
+##### 18331#       发表于 2025-6-11 04:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916618&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-11 02:16</a>
+
+问题联邦在资源上是占有绝对优势的，没道理数量上会比不过</blockquote>
+大扎姆不就是解决数量的，这集这样单打独斗才不正常
+
+不过这片反正一直没什么战斗逻辑
+
+总不能鹤卷这伙人能有一丝一毫本集所见即所得，只需要拖运战舰和大扎姆，即可达成基连派口中宇宙战无敌的意思？不会吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
