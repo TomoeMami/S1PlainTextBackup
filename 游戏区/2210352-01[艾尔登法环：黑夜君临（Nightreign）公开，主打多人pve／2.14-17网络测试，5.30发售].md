@@ -8480,3 +8480,14 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zakki  
+##### 834#       发表于 2025-6-10 23:24
+
+虫子这三阶段完全变出来个新虫子了，看上去红蝴蝶才是操纵俩虫子的。
+感觉所有三阶段越来越像是发售前怕难度太高砍掉的，这些三阶段完全不像是心中的xx那种基础强化，而是完整boss战的一部分
+
+<img src="https://p.sda1.dev/24/34aee9ccbb525d60dcfedd967f3ae7a5/image.jpg" referrerpolicy="no-referrer">
+
