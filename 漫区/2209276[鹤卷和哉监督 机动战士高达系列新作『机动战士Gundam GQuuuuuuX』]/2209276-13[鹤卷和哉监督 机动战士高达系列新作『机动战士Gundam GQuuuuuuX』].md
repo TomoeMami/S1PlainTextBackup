@@ -1893,3 +1893,254 @@ lovelivegundam卡的不动了, 有备胎吗?
 
 绿叔叔，意外的坦诚
 
+
+*****
+
+####  Devola  
+##### 17919#       发表于 2025-6-10 23:39
+
+对鸭宝具 
+
+对绿叔叔宝具   --&gt; new
+
+*****
+
+####  woui003woui  
+##### 17920#       发表于 2025-6-10 23:39
+
+直接给平民（虽然会开高达）塞手枪还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一之江瑞江  
+##### 17921#       发表于 2025-6-10 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">抱着牢修留下来的小机器人说是护身符啊（
+
+*****
+
+####  hulaoda007  
+##### 17922#       发表于 2025-6-10 23:40
+
+喵安也太压抑了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 17923#       发表于 2025-6-10 23:40
+
+这就半集过去了？
+
+*****
+
+####  Sliurus  
+##### 17924#       发表于 2025-6-10 23:40
+
+你们两姐妹怎么都对首席哥恶意这么重啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RPG-7  
+##### 17925#       发表于 2025-6-10 23:40
+
+Z里面 骡子也给过卡兹一把枪吧
+
+*****
+
+####  秋月孝三  
+##### 17926#       发表于 2025-6-10 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真、真要对射了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  七七見奈波  
+##### 17927#       发表于 2025-6-10 23:42
+
+哦呀大基的声优谁？山寺吗？
+
+*****
+
+####  Sliurus  
+##### 17928#       发表于 2025-6-10 23:43
+
+原力？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 17929#       发表于 2025-6-10 23:43
+
+啊？大基这就挂了？
+
+*****
+
+####  一之江瑞江  
+##### 17930#       发表于 2025-6-10 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这 光速退场
+
+*****
+
+####  秋月孝三  
+##### 17931#       发表于 2025-6-10 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Sliurus  
+##### 17932#       发表于 2025-6-10 23:43
+
+原来是毒气啊，不愧是吉翁
+
+*****
+
+####  BAKA林  
+##### 17933#       发表于 2025-6-10 23:44
+
+啊？就这样处理了？
+
+
+*****
+
+####  ヒトニナル  
+##### 17934#       发表于 2025-6-10 23:44
+
+啊？？？汤大基这就没了？？？
+
+*****
+
+####  poiqwe  
+##### 17935#       发表于 2025-6-10 23:44
+
+直接毒死了
+
+*****
+
+####  YU_JI  
+##### 17936#       发表于 2025-6-10 23:44
+
+虽然被背后爆头同样死的很草率，但是怎么感觉这边更草率（）
+
+*****
+
+####  oi99o  
+##### 17937#       发表于 2025-6-10 23:44
+
+戴肯暗杀也给锤了了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普通哈尼  
+##### 17938#       发表于 2025-6-10 23:44
+
+太fw了汤大基
+
+*****
+
+####  猪突猛进R  
+##### 17939#       发表于 2025-6-10 23:45
+
+毒气把直播也爆了？
+
+*****
+
+####  RPG-7  
+##### 17940#       发表于 2025-6-10 23:46
+
+直播间被紫色老太婆炸了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 17941#       发表于 2025-6-10 23:46
+
+这不哈曼暗算加米托夫那招吗，紫色老太婆也学会了吗
+
+*****
+
+####  amanohanei  
+##### 17942#       发表于 2025-6-10 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">怎么进不去了啊日
+
+*****
+
+####  秋月孝三  
+##### 17943#       发表于 2025-6-10 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">零距离射击还行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Evomenon  
+##### 17944#       发表于 2025-6-10 23:47
+
+紫婆干事还挺利索，直接把观众的网也给毒了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LadySaazbaum  
+##### 17945#       发表于 2025-6-10 23:47
+
+这波啊，这波是防疫党的胜利（不是
+
+*****
+
+####  秋月孝三  
+##### 17946#       发表于 2025-6-10 23:47
+
+这里也送枪，真要对射了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ftyaid  
+##### 17947#       发表于 2025-6-10 23:47
+
+等重播咯，人确实一周比一周多
+
+*****
+
+####  cayon  
+##### 17948#       发表于 2025-6-10 23:48
+
+两女主都给枪了，要对枪了吗
+
+*****
+
+####  花達香奈  
+##### 17949#       发表于 2025-6-10 23:48
+
+番茄喵安手枪互射决定！
+
+*****
+
+####  七七見奈波  
+##### 17950#       发表于 2025-6-10 23:48
+
+怎么还一人一支🔫啊
+
+*****
+
+####  m99999  
+##### 17951#       发表于 2025-6-10 23:48
+
+备了两个直播源，这打戏可以
+
+*****
+
+####  砂糖续香香  
+##### 17952#       发表于 2025-6-10 23:48
+
+等重播了 甘
+

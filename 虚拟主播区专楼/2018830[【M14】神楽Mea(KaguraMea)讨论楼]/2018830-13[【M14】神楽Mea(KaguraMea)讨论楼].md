@@ -32262,3 +32262,21 @@ Queen战啦King战啦各种大赛…  
 
 1:45:34 14. 夢の香りのする朝に。 / 文藝天国
 
+
+*****
+
+####  术士q  
+##### 18701#       发表于 2025-6-10 23:42
+
+ 本帖最后由 术士q 于 2025-6-10 23:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914978&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-6-10 20:18</a>
+看了爱的迫降，想看鱿鱼游戏
+
+唉唉唉怎么中日女生都迷韩剧</blockquote>
+那个日剧确实是非自然死亡，和翻译后的一样（
+想起来之前把Unnatural放到谷歌里搜跳出来个法医女王，其实是非自然死亡来着，难怪感觉怎么看怎么奇怪<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+今天聊了好多电视剧相关的话题，然而不怎么看日剧有一个算一个都没怎么听明白，令人感叹
+
+以及后面说京吹那段确实挺有趣的23333
+
