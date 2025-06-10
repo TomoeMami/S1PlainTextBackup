@@ -7736,3 +7736,60 @@ woc，被刺瑶炸惨了
 
 刚打完光能就去打龙息喷花蚊子可不少人，光能一回来mo星球晚上一看五万人上下
 
+
+*****
+
+####  zerofree0000  
+##### 6643#       发表于 2025-6-9 19:55
+
+刚才上线一看只有2万人在线了，清理光能残党的任务都完成不了。
+
+就说了之前那波热度进来的玩家也就玩几天而已，还把社区搞得乌烟瘴气的。
+
+*****
+
+####  6x6z6w  
+##### 6644#       发表于 2025-6-9 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909307&amp;ptid=2170852" target="_blank">zerofree0000 发表于 2025-6-9 19:55</a>
+
+刚才上线一看只有2万人在线了，清理光能残党的任务都完成不了。
+
+就说了之前那波热度进来的玩家也就玩几天 ...</blockquote>
+2万？现在steam在线有5万多啊<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">挺正常的，新债券还没出都在长草
+
+*****
+
+####  Adrenaline!!!  
+##### 6645#       发表于 2025-6-9 20:39
+
+当个梗玩玩而已，游戏机制搞不清上纲上线的kol们都有新任务在身了，跟着起哄的老玩具继续类星体vs无后座战备鄙视链。明天出新债券了人数会回升的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qwased  
+##### 6646#       发表于 2025-6-9 21:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">感觉现在核弹手枪在东线一定程度上都能当500kg用了
+
+*****
+
+####  狭义文具爱好者  
+##### 6647#       发表于 2025-6-9 22:12
+
+刚打完光能就去打龙息喷花蚊子可不少人，光能一回来mo星球晚上一看五万人上下
+
+*****
+
+####  赤井稻妻  
+##### 6648#       发表于 2025-6-10 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67909307&amp;ptid=2170852" target="_blank">zerofree0000 发表于 2025-6-9 19:55</a>
+
+刚才上线一看只有2万人在线了，清理光能残党的任务都完成不了。
+
+就说了之前那波热度进来的玩家也就玩几天 ...</blockquote>
+打不完光能残党纯粹因为大家不愿意打光能，基本上光能星球玩家占比也就50%左右
+
