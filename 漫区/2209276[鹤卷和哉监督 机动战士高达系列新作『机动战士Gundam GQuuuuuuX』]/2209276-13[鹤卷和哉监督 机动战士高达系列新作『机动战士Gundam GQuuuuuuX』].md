@@ -883,3 +883,28 @@
 
 或者之后一血会交到某个特别的人手上，但是那也不太重要了。因为制作组的目的是推老UC（已达成），剩下的都是锦上添花。
 
+
+*****
+
+####  孙吧星人  
+##### 17823#       发表于 2025-6-10 11:59
+
+除非你的逻辑是能成事可以一直赢赢赢的才能当主角，否则我搞不懂绿叔叔有什么主角形象了。<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dr.Wondering  
+##### 17824#       发表于 2025-6-10 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912386&amp;ptid=2209276" target="_blank">孙吧星人 发表于 2025-6-10 11:59</a>
+
+除非你的逻辑是能成事可以一直赢赢赢的才能当主角，否则我搞不懂绿叔叔有什么主角形象了。 ...</blockquote>
+哈撒韦嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 17825#       发表于 2025-6-10 12:01
+
+黑泽说绿叔叔在走主线 是真的女主角 三小只就负责打打杀杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
