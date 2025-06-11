@@ -11409,3 +11409,16 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 不信的话，你要告诉阿巴瓦的人，总帅和大波波玩太high，把4台大扎姆搞爆炸么<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 18775#       发表于 2025-6-12 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922736&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-12 00:32</a>
+虽然说绿叔叔找夏亚大概率就是为了同时暗杀两个拟人之后让他上位，但根据这集A part来看他没找着夏亚也准备 ...</blockquote>
+至少从这集的逻辑来看
+绿叔叔暗杀也解决不了。一样要清洗两边的嫡系
+
+绿叔叔这边完全没有这个战斗力
+
