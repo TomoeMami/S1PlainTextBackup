@@ -10480,3 +10480,35 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=220927
 雖然我都喜歡 ...</blockquote>
 啊让你误会了抱歉，我的意思是因为那个剧透明里暗里强调修司和麻球的关系非常独特又有趣，就剩两话了很难想象两话内这两人之间能有什么飞速发展并且还能与众不同，加上故事内外都强调过修司是麻球真正的mav，我就只能想到GQX就是修司（特别是未来的修司），因为目前作品里表现出来的除了麻球妈妈外，最喜欢麻球的人就是GQX和哈罗，尤其是第九话GQX拥抱麻球的画面太人性化、太像亲人or恋人了
 
+
+*****
+
+####  YU_JI  
+##### 18693#       发表于 2025-6-11 18:11
+
+<blockquote>体制 发表于 2025-6-11 17:59
+手里的光束步枪你给忘了呀。
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+除了步枪，也能看到后面的光束军刀，和GQX完全一致的配置
+
+*****
+
+####  Sopp  
+##### 18694#       发表于 2025-6-11 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">修司到底干了什么让两个妹子心甘情愿被人利用……
+
+*****
+
+####  体制  
+##### 18695#       发表于 2025-6-11 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918179&amp;ptid=2209276" target="_blank">sephal 发表于 2025-6-11 11:19</a>
+紫色老太婆是相信新人类的，绿叔叔也明言要创立能让新人类能作为新人类活下去的国家
+也就是说他俩是可以统 ...</blockquote>
+从紫婆对喵安说的话来看，她是相信存在新人类，但是要利用新人类称为自己的力量。
+绿叔叔则是解放新人类那一派，和戴肯是一样的。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
