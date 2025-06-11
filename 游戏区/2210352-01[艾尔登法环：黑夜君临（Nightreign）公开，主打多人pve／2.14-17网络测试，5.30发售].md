@@ -8664,3 +8664,13 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  modkingr  
+##### 852#       发表于 2025-6-11 16:34
+
+这游戏的闪退问题真的太变态了，又一个朋友遇到了。我自己虽然不闪退，但是三人黑遇到一个不间断闪退的开黑队友那这一把也几乎等于完全没法玩了，完全是恶性bug
+
+还查不出原因
+

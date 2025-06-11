@@ -9890,3 +9890,56 @@ uc里戴肯的“宇宙移民进化为新人类”和表面继承自戴肯理念
 
 按同级生的说法，杀驾驶员是他自己的决定。他不想让任何人得到手电筒，大概也不会给基连方偷情报。
 
+
+*****
+
+####  Sliurus  
+##### 18663#       发表于 2025-6-11 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920247&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 16:34</a>
+
+当年高达X还不被人认可，因为它借DOME之口，说根本没有什么NT，没有什么适应宇宙的人类，没有人类的革新， ...</blockquote>
+赞斯卡尔的女王就能远程治病，跟tm斜角一样
+
+*****
+
+####  我聞如是  
+##### 18664#       发表于 2025-6-11 16:41
+
+<blockquote>七七見奈波 发表于 2025-6-11 15:19
+4chan那个自称staff的“剧透”如果是真的，说不定还真像前几页楼友猜的，GQX的机魂是未来跳跃过来的修司， ...</blockquote>
+有內容或者圖嗎？
+
+日本也有人猜GQX機魂是修司，而且修司名字和渚薫一樣在玩文字遊戲：
+
+GQX的賽可謬按排序來說本來應該叫Iota psycommu
+
+但是換成了最終字母omega
+
+iota to omega
+
+i(ota) to 終字
+
+Ito shuji (伊藤修司)
+
+
+*****
+
+####  无念  
+##### 18665#       发表于 2025-6-11 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920259&amp;ptid=2209276" target="_blank">有钱多买小人 发表于 2025-6-11 16:36</a>
+不好说。搞不好基连方并不知道详情，只是单纯想阻碍基西莉亚。最初联系同级生本来只是想偷情报罢了。暗杀 ...</blockquote>
+还有紫婆原来的副官呢，那个才是情报大头吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  helgarose87  
+##### 18666#       发表于 2025-6-11 16:43
+
+<blockquote>Saber琪 发表于 2025-6-11 16:30
+草看到贴吧有人说基西莉亚是无孩爱猫女</blockquote>
+无孩爱猫女在中世纪叫女巫。紫色老太婆本来就是这个定位
+
