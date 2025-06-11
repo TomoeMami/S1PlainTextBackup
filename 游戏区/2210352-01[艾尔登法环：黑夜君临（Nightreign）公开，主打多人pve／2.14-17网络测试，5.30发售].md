@@ -8824,3 +8824,12 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 冰龙用铁眼打倒是简单，搞清楚大招怎么躲，其余用滑步躲，不用冰抗也能初见过。
 
+
+*****
+
+####  jacket  
+##### 864#       发表于 2025-6-12 04:08
+
+最终boss的选择画面我老看成这个姿势
+<img src="https://tupian.li/images/2025/06/12/6849e1aee7f18.jpg" referrerpolicy="no-referrer">
+
