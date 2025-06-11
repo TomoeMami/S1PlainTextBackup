@@ -505,3 +505,14 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 
 希望不是野上恒主导
 
+
+*****
+
+####  MRSA  
+##### 57#       发表于 2025-6-11 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67915290&amp;ptid=2253488" target="_blank">mjzs07 发表于 2025-6-10 21:19</a>
+
+爽啊，只想玩单人，我们中国人太难联网了</blockquote>
+是这样 单人打完可以跑路，游戏目标明确
+
