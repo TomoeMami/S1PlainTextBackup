@@ -5752,3 +5752,19 @@ https://www.first-film.com/wedding-cost-331/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">玉子真可爱
 
+
+*****
+
+####  aptx8285144  
+##### 501#       发表于 2025-6-11 13:29
+
+虽然这话很搞笑，但是没看懂这对双胞胎(?)是怎么死的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梦诗歌雪  
+##### 502#       发表于 2025-6-11 13:32
+
+怎么就没了，下集是会给个解谜篇还是直接下个故事，这集根本啥都没说清楚啊。红色的炸弹糖果应该也还在房间里或者尸体身上吧，绿色的应该是真糖，前一天晚上就给玉子了为什么后来玉子是从包里翻出来吃的
+

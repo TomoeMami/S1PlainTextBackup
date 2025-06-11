@@ -8582,3 +8582,92 @@ z世代尤其东亚的z时代都是在读书考试上班这种远离宏大叙事
 
 德金被基连杀，基连被基西莉亚杀，拉拉还是被人研究当作战争机器，吉翁大概率逃脱不了灭亡的命运，除了迟来五年好像什么也没有改变
 
+
+*****
+
+####  wing130083  
+##### 18554#       发表于 2025-6-11 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918720&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-11 12:35</a>
+
+秘书不是老人物吗？没有本子吗？</blockquote>
+刚看过图老的秘书长是个橙发显老的女人，颜值不算高
+
+不少人以为是那张图前面被架出去的那个金发制服妹，其实不是的
+
+看了下cv表，确认名字一样的，就是以前的秘书长<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 18555#       发表于 2025-6-11 13:31
+
+现在这批30 40岁的不也是读书考试看高达吗……写不好就是写不好，别怪观众不行
+
+&gt;除了迟来五年好像什么也没有改变
+
+至少手电筒少照几次卫星少砸几次，拉拉杀的人也多了几千倍，不是很好吗
+
+*****
+
+####  wing130083  
+##### 18556#       发表于 2025-6-11 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918882&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-6-11 13:08</a>
+
+太劲了，昨天快睡觉了突然想起来是周二，忍着没看，现在刚看完
+
+之前剧场版发行的这张OST，四个曲子，真是神 ...</blockquote>
+毒气在紫婆的香水瓶里，可以不见兔子不撒鹰
+
+倒是如果总帅进来之后两句话直接跑了，剩下两位中毒去世的话
+
+可能不大好收场<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 18557#       发表于 2025-6-11 13:33
+
+<blockquote>引用第18535楼wolfwood于2025-06-11 12:35发表的  :
+
+等着看金发秘书的本子了</blockquote>
+<img src="https://p.sda1.dev/24/cff8235159ab5a5f49241c5336d3c7b1/186185917496196672.png" referrerpolicy="no-referrer">
+
+野望里面就有大量出场了，CV还是17岁教主。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  格林达姆  
+##### 18558#       发表于 2025-6-11 13:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">德金直接台词里剧情杀了，那这条世界线卡尔玛应该也挂了吧
+
+*****
+
+####  rockroxas  
+##### 18559#       发表于 2025-6-11 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918993&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-11 13:32</a>
+
+毒气在紫婆的香水瓶里，可以不见兔子不撒鹰
+
+倒是如果总帅进来之后两句话直接跑了，剩下两位中毒去世的话
+
+ ...</blockquote>
+门口的人一样戴口罩，那些倒下的大基亲卫可能不是图图死的而是中毒死的，隔着门都这样那大基只要进来就跑不了
+
+*****
+
+####  Sliurus  
+##### 18560#       发表于 2025-6-11 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918996&amp;ptid=2209276" target="_blank">格林达姆 发表于 2025-6-11 13:33</a>
+
+德金直接台词里剧情杀了，那这条世界线卡尔玛应该也挂了吧</blockquote>
+鸭子以协助逃脱之名算计卡尔玛的可能性大 大增加了，总之就是世界线收束
+
+不知道骡子还参不参军
+
