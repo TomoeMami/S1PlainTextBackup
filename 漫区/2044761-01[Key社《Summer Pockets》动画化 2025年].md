@@ -45,3 +45,11 @@ key还是那么喜欢八音盒。
 
 最后的歌再加上小熊靠在身边的镜头确实很有杀伤力，不过还是差了一点点<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水莲寺流歌  
+##### 164#       发表于 2025-6-11 22:21
+
+这个䌷会出现是为了不让岛上的人忘了大䌷，那现在消失又是因为啥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，感觉这条线看完也没有什么实感
+

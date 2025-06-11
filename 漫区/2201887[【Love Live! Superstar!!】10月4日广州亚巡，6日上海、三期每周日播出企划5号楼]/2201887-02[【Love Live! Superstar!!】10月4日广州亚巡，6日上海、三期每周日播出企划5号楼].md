@@ -110,3 +110,21 @@ StarRise事务所
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1631#       发表于 2025-6-11 22:18
+
+关于“LustQueen 迷你演唱会 &amp; 特典交付会”举办中止的通知
+
+此次，原定于2025年6月15日（周日）在Yodoba音乐厅举办的“LustQueen 迷你演唱会 &amp; 特典交付会”，因各种情况判断难以确保安全，故决定中止举办。
+
+对于原本预定参加的各位，临近举办才通知中止，给大家带来极大不便，我们深表歉意。
+
+恳请大家理解。
+
+关于本事件的咨询联系处
+starrize@fearless.vision
+<img src="https://p.sda1.dev/24/81a26615460c548a2311f3f6b73fb54f/image.jpg" referrerpolicy="no-referrer">
+
