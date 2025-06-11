@@ -37,3 +37,11 @@ key还是那么喜欢八音盒。
 完全没看懂,我就不吐槽你们不怕失火的吗</blockquote>
 灯塔就在海边，安心啦<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moras2694  
+##### 163#       发表于 2025-6-11 13:49
+
+最后的歌再加上小熊靠在身边的镜头确实很有杀伤力，不过还是差了一点点<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
