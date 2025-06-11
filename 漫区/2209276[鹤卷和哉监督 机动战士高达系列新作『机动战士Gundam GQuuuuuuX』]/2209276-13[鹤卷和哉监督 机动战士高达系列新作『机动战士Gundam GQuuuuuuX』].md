@@ -8967,3 +8967,63 @@ side6对于这玩意是兵器大概率是有谱的，参与进来不过是与虎
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ranqI  
+##### 18589#       发表于 2025-6-11 14:08
+
+感觉遮眼夏亚可能也不是这个宇宙本来的夏亚
+
+*****
+
+####  无念  
+##### 18590#       发表于 2025-6-11 14:09
+
+一年战争两边这么多ACE基本都没出场呢，别惦记那个卡多了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你说联邦打光了剩个魔女我能理解，白狼呢，真红呢，青色巨星呢？吉翁侧老早就参军的ACE就剩三连星了？
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zzy516232108  
+##### 18591#       发表于 2025-6-11 14:12
+
+一个猜想不一定对
+
+绿叔叔从木星回来是拉拉干涉的，拉拉把飞船修好了
+
+偷0079的时候夏亚小弟的扎古坏了，是拉拉干涉的
+
+*****
+
+####  岸浪白野  
+##### 18592#       发表于 2025-6-11 14:12
+
+目标，地球上的全人类
+
+<img src="https://img.stage1st.com/forum/202506/11/141218ldpznsinsku6p6ps.png" referrerpolicy="no-referrer">
+
+<strong>E5YKJ_%}IZDUB~N~{%W{D]J.png</strong> (312.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 14:12 上传
+
+*****
+
+####  wing130083  
+##### 18593#       发表于 2025-6-11 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919131&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 13:58</a>
+
+这片的时间概念还是太模糊了，绿色木马的人惊讶马秋驾驶能力的进步，总感觉时间不会太久
+
+这么大的装置从 ...</blockquote>
+研究艾美号肯定是从拿到开始就一直持续的
+
+紫婆筹钱应该是建提供能量的手电筒部分
+
+去side6的时候明显是拿的可行性研究报告，已经有这么大个玩意放在那里就不是这个说辞了
+

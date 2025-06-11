@@ -272,3 +272,14 @@
 
 加特林玩家看到新短弓这配置一哆嗦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  refiver  
+##### 5674#       发表于 2025-6-11 14:10
+
+准备回归噜，看了看好像还是小枪环境，不错不错。
+涂地好像也还没卷到2代末期出家就被虐的时候。
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
