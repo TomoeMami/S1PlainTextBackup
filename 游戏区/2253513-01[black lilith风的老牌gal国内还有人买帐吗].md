@@ -495,3 +495,15 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 纳尼？！国g居然还是请画师而不是用ai美术？肃然起敬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 55#       发表于 2025-6-12 06:53
+
+ 本帖最后由 pf67 于 2025-6-12 06:57 编辑 
+
+图片靠AI生成的GAL,哪怕是你直球搞黄，你也别先意淫，去dl上点开AI生成标签（记得挂日本梯子），看看评分，看看优秀作品和垃圾作品的差距
+
+你搞AI多久了，觉得你真能追上优秀的那档次？
+
