@@ -6340,3 +6340,44 @@ NT是灵能者
 
 如果是这种塑造法这片可能就很无趣了...塞入一堆无所谓的恋爱脑单箭头作为人物的动机（这就是企划和主创们对新人类的理解吗？从某些角度上来说倒也没啥大错）。而且作品塑造的人物圈层和接触环境的封闭感让单薄的动机更加显得乏味了（事实上目前为止拉出来的角色全是提示观众主角特质的装置，虽然迄今为止主角们的刻画并没有很丰富）。角色和剧作结构目前是两头都没讨好，只能看看还能从top2里拉出什么新点子了...
 
+
+*****
+
+####  kaion111  
+##### 18368#       发表于 2025-6-11 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917075&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-6-11 08:55</a>
+最好的是喵安感应到鸭子直接来一句那里有问题。
+
+萝莉控实在是藏不住。</blockquote>
+翻译问题 直译我记得是讨厌的味道
+
+*****
+
+####  asdhai  
+##### 18369#       发表于 2025-6-11 08:59
+
+随着两把契诃夫之枪的出现，剩下两集的剧情也可以一眼望到头了，说起来其实就是三件事：
+
+1，马秋喵安决出胜负（马秋应该会赢，喵安flag都插满了）
+
+2，做掉基西莉亚（按这帮遗老的玩法，用脚指头都知道谁来搞）
+
+3，揭开幕后黑手（揭多揭少不好说，但至少会揭一揭吧）。
+
+两集的篇幅，要挤一挤甚至还能再塞点更多遗老私货。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+  
+
+回顾整个故事大纲，倒也挑不出啥，去掉一集半的0079，用7集半的篇幅把俩社会边缘JK卷入大舞台的核心，鹤卷gg已经很卖力了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以所有的问题归根结底，还是在于篇幅这道紧箍咒，有这道咒框着，怎么挣扎也没用。至于为啥只有12话，是鹤卷gg能力只够写12话呢，还是金主只给12话预算，这种事情我们这些OT搁这瞎猜也没用。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 18370#       发表于 2025-6-11 09:05
+
+相信鹤卷GG，鹤卷GG能用六集做FLCL2，用剩下两集给G夸克斯完美收尾肯定没问题<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
