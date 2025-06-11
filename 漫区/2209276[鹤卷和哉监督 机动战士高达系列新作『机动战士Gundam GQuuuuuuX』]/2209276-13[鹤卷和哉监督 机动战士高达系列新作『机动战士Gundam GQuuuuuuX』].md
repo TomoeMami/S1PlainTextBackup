@@ -7102,3 +7102,75 @@ G一串字母也确实NETA了G高达。
  吉翁图宇 ...</blockquote>
 夏亚难道不是公认的历史级别的小丑吗，翻案过吗？
 
+
+*****
+
+####  岸浪白野  
+##### 18433#       发表于 2025-6-11 10:59
+
+像“キララバッソ”(Kirara Basso)那样名字的最终兵器。
+
+“尤玛恩托”是前田真宏设计的。回忆场景的线条也像是前田先生的风格，所以这可能是前田先生大放异彩的一集。坐在旁边的渭原敏明则被要求画出令人头晕目眩的“尤玛恩托”内部的详细原图。而今早看录播时说出“咦，脸会打开啊”的山下（←什么都没做的那位）
+
+<img src="https://img.stage1st.com/forum/202506/11/105904dvvvqyee9zkpgnvz.png" referrerpolicy="no-referrer">
+
+<strong>(HWYO$J[~G`})67Q31~GL_0.png</strong> (43.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/105905ej37n7pj6nhnh9ns.png" referrerpolicy="no-referrer">
+
+<strong>VW_]_1{$~IYONQ(5%TMIU.png</strong> (92.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:59 上传
+
+*****
+
+####  Sliurus  
+##### 18434#       发表于 2025-6-11 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917327&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-11 09:30</a>
+
+总帅！总帅啊！这路边一条的死法虽然不是不能理解，但还是太喜剧了啊。
+
+这喵安机真就一点主武装没有全靠头 ...</blockquote>
+不还有把枪嘛
+
+*****
+
+####  ryanghj  
+##### 18435#       发表于 2025-6-11 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917617&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 10:09</a>
+有一说一“想成为某某人”这个台词是一点问题都没有的，甚至可以说传统到土，问题在于这个某某人是修司，一 ...</blockquote>
+玛秋说的是想见修司而不是想成为修司
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  黑哥啥时改密码  
+##### 18436#       发表于 2025-6-11 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918023&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-11 10:57</a>
+
+夏亚难道不是公认的历史级别的小丑吗，翻案过吗？</blockquote>
+主要讨论区看一下，鸭子梦男粉可不少呢
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xyion  
+##### 18437#       发表于 2025-6-11 11:06
+
+关于喵安，说实话我没看明白喵安的核心弧光是抢男人还是生存，看社区讨论也存在不同理解。
+
+如果是生存，那喵安不需要洗白，但从作为难民对生存与被接纳的焦虑导致了恶这一弧光的刻画，只能说及格。尤其我最近在看欢愉的艺术，正好是相同的主题，差距非常之大。最核心的点在于导致恶这一过程不是必然，你不能说是难民有对生存和被接纳的焦虑，所以颠佬表现是自然。这里需要其他驱动事件或者对人物独特天性的更多刻画。
+
+正是这种只有及格，让我不敢确信自己的理解。就等收尾吧，反正到时就知道了。
+
