@@ -437,3 +437,43 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 
 这译名真不错<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 53#       发表于 2025-6-11 10:08
+
+<img src="https://img.stage1st.com/forum/202506/11/100634mbghmmfue5qmwdtf.jpg" referrerpolicy="no-referrer">
+
+<strong>69d8bf26e1e7112d83142857639d6d7de41e79467b9cb817cf467451df2deae2.0.JPG</strong> (284.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/100647od9d60w96nbb69rw.jpg" referrerpolicy="no-referrer">
+
+<strong>614b4d5391ad153ac3c5705970bdf5dd77b797071879b654ad825f6b17bb088c.0.JPG</strong> (294.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/100658kp04prcjetn19ndc.jpg" referrerpolicy="no-referrer">
+
+<strong>fca8c90ed4d41fb0311c13b16cb2c3178534d25102e8342ef621ea9bc3fb1b3c.0.JPG</strong> (413.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/100708y0hp4up3gu06uy66.jpg" referrerpolicy="no-referrer">
+
+<strong>b95dbdcabf397762cdacf6f76d15b96d47215ebea5e6bf374ee66ab5cb776191.0.JPG</strong> (294.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:07 上传
+
+官方的截图，从场景看确实更像个动作游戏。
+
