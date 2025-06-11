@@ -10542,3 +10542,66 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=220927
 
 两女人看着就是要打起来嗨到共鸣触发玫瑰特效，然后男人被传送回来，这样翅膀和玫瑰都到手了
 
+
+*****
+
+####  体制  
+##### 18699#       发表于 2025-6-11 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918217&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-6-11 11:23</a>
+其实这戏老太婆已经无敌了吧，骗了所有人找到了无敌博士做了一个不知道原理的大炮，核心是不知道去了哪里的 ...</blockquote>
+大炮很明显是基连搞的啊。不如说明明博士也是基连派，却被紫婆控制了gf能直接启动大炮的家伙。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  帆前  
+##### 18700#       发表于 2025-6-11 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920855&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-11 17:56</a>
+
+关于翻译问题，原文很清楚，是 alphacide alpha+cide
+
+alpha就是阿尔法，第一个希腊字母，可以引申为王牌 ...</blockquote>
+嗯嗯，我觉得王牌就是意译罢
+
+*****
+
+####  帆前  
+##### 18701#       发表于 2025-6-11 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920860&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 17:57</a>
+
+王牌杀手是夏日幻听的翻译吧，他们不是出了名的xjb翻？</blockquote>
+嗯，我也觉得
+
+*****
+
+####  伊露伊道格拉斯  
+##### 18702#       发表于 2025-6-11 18:28
+
+<blockquote>Dai-Dai-Dai-Dai 发表于 2025-6-11 17:27
+真是张非常好的图，好到让我心生恨意，明明年轻人间做好关系性营业这片能更火 ...</blockquote>
+制作组连核心冲突的抢男人的感情线都没有一丝正常的关系性，俩女主都不知道是不是因为kirakira溜大了，就开始修酱修酱修酱了，更何况路人的关系性
+
+*****
+
+####  最终兵器狂战  
+##### 18703#       发表于 2025-6-11 18:29
+
+大太阳那个瞄准缩圈的界面太过于坦克世界了。一炮溅射死整个阿巴瓦空，这标伤得一把出三环了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  体制  
+##### 18704#       发表于 2025-6-11 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918354&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-11 11:39</a>
+那他确实啥也没干，抱着五年前的大扎姆当宝，手电筒也不是自己能控制的。
+
+对面紫婆攒出了初号机和二号机 ...</blockquote>
+谁让基连是个不相信新人类的死硬派呢，结果就是吉翁的新人类研究完全被紫婆垄断了。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
