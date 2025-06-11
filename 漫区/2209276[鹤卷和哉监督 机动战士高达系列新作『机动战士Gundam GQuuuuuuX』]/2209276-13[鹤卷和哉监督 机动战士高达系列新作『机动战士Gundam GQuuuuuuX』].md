@@ -10512,3 +10512,33 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=220927
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 18696#       发表于 2025-6-11 18:17
+
+喵安缺爱本来就喜欢被基西莉亚当工具养，也不完全是为了修司
+麻球算一半吧，了解蔷薇是为了修司不过手电筒这种暴行本来她也看不下去的，她都见过拉拉了
+
+*****
+
+####  liy30dlys  
+##### 18697#       发表于 2025-6-11 18:17
+
+我猜这个玫瑰拉拉+主角机可能能搞出别的大新闻来
+
+不然就不会前面一路说去找拉拉了
+
+如果没有的话
+
+你们两个高达去挡手电筒吧<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moondigi  
+##### 18698#       发表于 2025-6-11 18:22
+
+两女人看着就是要打起来嗨到共鸣触发玫瑰特效，然后男人被传送回来，这样翅膀和玫瑰都到手了
+
