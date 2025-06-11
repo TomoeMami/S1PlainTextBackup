@@ -382,3 +382,14 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  麻生椎子  
+##### 42#       发表于 2025-6-11 15:01
+
+就当你能众筹成功吧
+是不是要搞个外国帐号入帐出帐啊（不太懂这样做能不能避免被帽子叔叔查）
+
+—— 来自 HUAWEI CDY-AN00, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -305,3 +305,13 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 
 话说有人要nikki的码么？我不玩那个手游<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 2263#       发表于 2025-6-11 14:59
+
+完整版已预载完毕，我问了kimi说是明天早上6点解锁？
+
+那个手游码我也用不上想出，有人要吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

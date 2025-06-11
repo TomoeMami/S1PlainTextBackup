@@ -9269,3 +9269,86 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 说起技术力，预告GQX那4个黑球也不好说是啥东西，2号机是为了当大杀器启动扳机，1号机按理说应该也和这个大 ...</blockquote>
 缩退炉，是手搓缩退炉<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 18617#       发表于 2025-6-11 14:56
+
+4个炉子，出力是钢巴斯塔的两倍。
+
+*****
+
+####  cih  
+##### 18618#       发表于 2025-6-11 14:57
+
+<blockquote>无念 发表于 2025-6-11 14:47
+包的，搞不好火箭筒爆头改成吉翁号爆头你问我哪来的吉翁号？基连用来守卫大炮的最终兵器不行么？
+
+——  ...</blockquote>
+呵，汤大基又不玩新人类哪来的鸡瘟号。要么就开大扎木爆头吧，还是这老古董能让老嗨们得劲
+
+*****
+
+####  洛克萨斯  
+##### 18619#       发表于 2025-6-11 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">两台高达对决
+
+1.强袭vs圣盾（双双大破）
+
+2.黑狗vs火星高达（单方面虐杀）
+
+不知道gqx是哪种
+
+*****
+
+####  无念  
+##### 18620#       发表于 2025-6-11 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919558&amp;ptid=2209276" target="_blank">cih 发表于 2025-6-11 14:57</a>
+呵，汤大基又不玩新人类哪来的鸡瘟号。要么就开大扎木爆头吧，还是这老古董能让老嗨们得劲 ...</blockquote>
+但他搞强化人和复制人啊，他只是否认新人类又不是否认塞可缪，不然这大炮的机制也是用塞可缪引导他怎么眼巴巴就过来了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ヒトニナル  
+##### 18621#       发表于 2025-6-11 15:01
+
+其实我想说这俩女的就这么打起来难道不会把手电筒内部给打烂吗，烂了还能打出第二发吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然这个结果对于玛秋来说肯定是求之不得就是了
+
+
+*****
+
+####  storm  
+##### 18622#       发表于 2025-6-11 15:03
+
+开头跑步的6人，就小森的戏份最少了，怎么也该再安排点戏份吧
+
+*****
+
+####  无念  
+##### 18623#       发表于 2025-6-11 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919592&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 15:01</a>
+其实我想说这俩女的就这么打起来难道不会把手电筒内部给打烂吗，烂了还能打出第二发吗当然这个结果对于玛秋 ...</blockquote>
+确实，番茄只要进去别的不管先给艾尔美斯头上那个控制器一枪，这第二炮不知道要延迟多久<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">她又不是没见过艾尔美斯，这玩意是后装的一眼就看出来了啊
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 18624#       发表于 2025-6-11 15:04
+
+话说跃迁之类的传送技术在太空科幻作品里都属于基本设定，甚至只是沾边的都有。高达为了不让人类离开地球太远一直没有，现在算是赶上进度了
+
+*****
+
+####  ryanghj  
+##### 18625#       发表于 2025-6-11 15:04
+
+唯一肯定的一点是下集玛秋和喵安少不了丢人话<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
