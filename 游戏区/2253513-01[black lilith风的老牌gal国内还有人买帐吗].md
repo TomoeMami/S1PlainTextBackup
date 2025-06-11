@@ -487,3 +487,11 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 如果是骗回复当我没说
 
+
+*****
+
+####  kongxian  
+##### 54#       发表于 2025-6-12 05:42
+
+纳尼？！国g居然还是请画师而不是用ai美术？肃然起敬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
