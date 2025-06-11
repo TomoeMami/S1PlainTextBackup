@@ -391,3 +391,20 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 完美格挡时有瞬间的慢动作吧。BOSS的连击被完 ...</blockquote>
 昨晚试了试不限帧数，关掉垂直同步，进了QTE特写，毫无悬念的撕裂了
 
+
+*****
+
+####  zero33333  
+##### 2270#       发表于 2025-6-11 16:52
+
+这码值多少钱
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 2271#       发表于 2025-6-11 16:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">20-30
+
