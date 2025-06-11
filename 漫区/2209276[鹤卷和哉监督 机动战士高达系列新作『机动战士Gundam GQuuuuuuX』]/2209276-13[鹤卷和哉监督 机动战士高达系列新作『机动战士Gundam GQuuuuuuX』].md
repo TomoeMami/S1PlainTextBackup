@@ -6079,3 +6079,31 @@ both good and bad interesting……这个事就很麻烦了
 
 高达主题公园里头用来炒气氛的烟花<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  helgarose87  
+##### 18345#       发表于 2025-6-11 07:53
+
+亲卫队被轰的时候的kilakila,莫名联想到了0083那句“男子汉们灵魂的光辉”
+
+然后笑的停不下来，今西的货太纯了么<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+Z时代傻逼小登来结构傻逼老登倒是好用
+
+*****
+
+####  look900822  
+##### 18346#       发表于 2025-6-11 07:56
+
+<blockquote>冰风血羽 发表于 2025-6-11 01:30
+宇宙里死去的悲鸣都听不到，NT就这种程度了</blockquote>
+太远了吧，隔着一个月球呢
+
+*****
+
+####  YU_JI  
+##### 18347#       发表于 2025-6-11 07:56
+
+下集预告了番茄的情绪看上去比喵安稳定多了
+
