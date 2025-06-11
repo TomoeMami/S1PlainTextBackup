@@ -8833,3 +8833,39 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 最终boss的选择画面我老看成这个姿势
 <img src="https://tupian.li/images/2025/06/12/6849e1aee7f18.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 865#       发表于 2025-6-12 05:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922988&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-12 04:08</a>
+最终boss的选择画面我老看成这个姿势</blockquote>
+看不到你的图，但是我知道大概率是“传不了传不了.jpg”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jacket  
+##### 866#       发表于 2025-6-12 06:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923028&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-12 05:58</a>
+
+看不到你的图，但是我知道大概率是“传不了传不了.jpg”
+
+—— 来自 S1Fun</blockquote>
+差不多，应该都来自一处
+
+*****
+
+####  usodakedo  
+##### 867#       发表于 2025-6-12 06:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923030&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-12 06:01</a>
+差不多，应该都来自一处</blockquote>
+看解包模型，他的两只手分别被匕首和月光大剑刺穿，所以图标看上去这么抽象，但是他在一阶段又能自己解封，所以我猜可能是自我封印，转二阶段的cg也是缺失的，不知道是赶工了还是故意为之还是放在三阶段了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
