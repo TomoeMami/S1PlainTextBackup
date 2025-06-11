@@ -8674,3 +8674,13 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 还查不出原因
 
+
+*****
+
+####  doublehit  
+##### 853#       发表于 2025-6-11 21:56
+
+这癫火该咋打啊，用上癫火印记感觉也没啥用
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
