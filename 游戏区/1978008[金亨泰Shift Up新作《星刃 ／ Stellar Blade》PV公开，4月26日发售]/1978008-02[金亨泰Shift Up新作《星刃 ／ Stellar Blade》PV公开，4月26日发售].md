@@ -419,3 +419,14 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 这游戏难吗？感觉游戏动力是收集衣服，要不要直接选最低难度玩算了</blockquote>
 飞行道具是超级轮椅的无脑技能随便打，没难度的
 
+
+*****
+
+####  jacket  
+##### 2273#       发表于 2025-6-11 20:38
+
+大脸小脸合影拍出了不同图层的效果
+
+[https://x.com/zennyrt/status/1932732745681416207](https://x.com/zennyrt/status/1932732745681416207)
+<img src="https://tupian.li/images/2025/06/11/684976aecc4ff.jpg" referrerpolicy="no-referrer">
+

@@ -10846,3 +10846,66 @@ yysy，索顿看上去也像是只有GQX一台ms的样子（）
 
 看到一张麻球和喵安互相扯头发的同人图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 18727#       发表于 2025-6-11 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921746&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 20:28</a>
+yysy，索顿看上去也像是只有GQX一台ms的样子（）</blockquote>
+说起来首席哥的强人哪里掏出来的，我一直以为是木马上的，可是救场那话来看强人的位置比木马还高，不然小森也看不见啊
+绿叔叔的ma也是，这玩意木马肚子里停的下？所以这两都是直接停殖民卫星军港里的么？
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  detao0452  
+##### 18728#       发表于 2025-6-11 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921798&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-11 20:37</a>
+说起来首席哥的强人哪里掏出来的，我一直以为是木马上的，可是救场那话来看强人的位置比木马还高，不然小 ...</blockquote>
+ma是挂底下的，能看见
+
+*****
+
+####  rockroxas  
+##### 18729#       发表于 2025-6-11 20:41
+
+说来绿叔叔跟鸭像的地方还有一个
+
+鸭说要复仇，给吉翁立功时最积极
+
+绿叔叔说要保护新人类，结果设计整新人类功劳最大，这么多年也没见培养出几个心腹驾驶
+
+
+*****
+
+####  rockroxas  
+##### 18730#       发表于 2025-6-11 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921798&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-11 20:37</a>
+
+说起来首席哥的强人哪里掏出来的，我一直以为是木马上的，可是救场那话来看强人的位置比木马还高，不然小 ...</blockquote>
+强人是老太婆舰上的呗
+
+ma这话能看到挂在木马下边
+
+*****
+
+####  无念  
+##### 18731#       发表于 2025-6-11 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921816&amp;ptid=2209276" target="_blank">detao0452 发表于 2025-6-11 20:40</a>
+ma是挂底下的，能看见</blockquote>
+好吧，估计是看完忘了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 18732#       发表于 2025-6-11 20:48
+
+绿叔叔怎么感觉像骡叔叔在联邦一样被高层提防，士兵里名气大受尊敬，但是没啥权力
+
