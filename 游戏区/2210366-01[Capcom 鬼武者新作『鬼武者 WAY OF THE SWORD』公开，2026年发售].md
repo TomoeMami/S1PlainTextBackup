@@ -43,3 +43,11 @@
 
 因为我玩1代的时候重来都按不出来一闪，所以我支持这作的新一闪<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 201#       发表于 2025-6-11 17:01
+
+这节奏还能有连续一闪吗· 都像避一闪了
+
