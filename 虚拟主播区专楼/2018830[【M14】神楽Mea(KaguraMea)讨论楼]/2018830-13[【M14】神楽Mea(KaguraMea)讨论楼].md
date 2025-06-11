@@ -33748,3 +33748,14 @@ Gawr Gura超爱松屋吧？  
 
 超开心！谢谢大家！  
 
+
+*****
+
+####  thisisaspider  
+##### 18706#       发表于 2025-6-12 05:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67904575&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-9 01:50</a>
+
+观众或许永远都抵达不了能够在哪里帮上她的真实吧，毕竟发火发完了以后就下播，再之后发生了什么，主播选择 ...</blockquote>
+喜欢主播的距离感，帮不到的事情不需要操心。过几天自动好了。讲不出什么好话的事情打个红SC，她心情也会好。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
