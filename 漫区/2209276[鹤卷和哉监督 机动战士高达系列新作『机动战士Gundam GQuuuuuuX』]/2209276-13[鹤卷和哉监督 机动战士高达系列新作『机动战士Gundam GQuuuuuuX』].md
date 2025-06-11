@@ -10305,3 +10305,79 @@ side6分手后，喵安既无颜面对蕃茄，同时又想念修司。
 
 你别说，修司机魂论好像还真行，既模了Eva又把修司缺的塑造部分给找补了很多，从这个角度回头看一些台词还挺有意思的比如第三集的“我就在附近”，修司的配色倒也勉强算得上蓝白红，就是红高达显得像是个乱入的第三者<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 18683#       发表于 2025-6-11 17:41
+
+叠个甲，以下都是我造的假药
+修司GQuuuuuuX机魂说：
+・鸡夸自主性高的诡异
+・修司人设要求是“高达妖精”
+・修司总是楞楞的，是因为他的灵魂有一部分在鸡夸里
+・修司的口头禅“高达说的”，因为他就是高达<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（傻子那：哦？）
+・修司在找蔷薇，而鸡夸可以自主追踪到蔷薇
+
+*****
+
+####  ryanghj  
+##### 18684#       发表于 2025-6-11 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920712&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-11 17:29</a>
+你别说，修司机魂论好像还真行，既模了Eva又把修司缺的塑造部分给找补了很多，从这个角度回头看一些台词还 ...</blockquote>
+红高机魂是玛秋不就完了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  帆前  
+##### 18685#       发表于 2025-6-11 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920436&amp;ptid=2209276" target="_blank">帆前 发表于 2025-6-11 16:57</a>
+
+呱，这集也太颠了，完全就是被教坏的黑化塑和回不去的戏剧性冲突，在篇幅不足时追求高信息密度剧情，在文戏 ...</blockquote>
+六、脱出的夏亚究竟起一个什么作用？
+
+夏亚不能没有作用吧，那可是夏亚啊。
+
+当然了，还不知道那个夏亚是不是gq宇宙的夏亚。但是这个情节里他又没发挥作用。
+
+布局几年，意义呢？
+
+我觉得他可能是用来证明泽克诺瓦现象并非只能单向穿越的，后面可能会起一个引导者的作用。
+<img src="https://p.sda1.dev/24/c912a181ef3eb032e2c17893d8f0960d/119138217496035072.png" referrerpolicy="no-referrer">
+
+七、下集预告
+
+下集预告两女开打555不要狗血啊
+
+修司！偷心电波男！终于回来了
+
+但是下集预告的翻译有出入，不知道为毛出现了“王牌杀手”和“阿尔法毁灭者”两个翻译。
+
+阿尔法似乎是红高达的精神感应装置的名字。
+<img src="https://p.sda1.dev/24/ef62d728912e6a3c0d18533b5f3ddbc8/MTXX_PT20250611_141232418.jpg" referrerpolicy="no-referrer">
+
+有夸克斯身上长小黑洞的画面，不知道是什么形态。
+
+<strong>八、修司有可能是基连侧的克隆强化人/克隆新人类。（猜测）</strong>
+
+<strong>这么猜的原因就是上集有个悬疑的地方：夏利亚猜出了修司全名</strong>
+
+绿叔叔上哪知道的修司姓氏？
+
+修司之前没有告诉谁自己的全名的剧情，读心也不能读出小蕃茄不知道的东西。
+
+从这集看，夏利亚知道的不少，也许知道基连侧的一些事。
+
+修司也许是类似zz里普露系列那样的存在，姓氏就是统一代号。
+
+毕竟基连就这么简单地倒了，未免有点尬。
+
+之前联邦的强化人好歹回收伏笔了，这个坑总不能毫无回收吧。
+
+声优说后面修司会有很让人意外的展开，就看怎么写了。
+

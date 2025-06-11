@@ -84,3 +84,19 @@ StarRise事务所
 事务所不当人结果还是要花承受，太难了</blockquote>
 查了下来栖凛走了后StarRise就剩三个人了。
 
+
+*****
+
+####  仟音一心  
+##### 1629#       发表于 2025-6-11 17:42
+
+不是生放送，是直接上Live？！
+
+<img src="https://img.stage1st.com/forum/202506/11/174215ixx3x5bx705x3xfx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (345.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 17:42 上传
+
