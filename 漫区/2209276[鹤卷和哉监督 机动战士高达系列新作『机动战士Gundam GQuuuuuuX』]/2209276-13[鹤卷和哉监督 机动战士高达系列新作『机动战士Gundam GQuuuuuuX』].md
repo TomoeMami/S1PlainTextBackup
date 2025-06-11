@@ -11422,3 +11422,14 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 绿叔叔这边完全没有这个战斗力
 
+
+*****
+
+####  LOLITA  
+##### 18776#       发表于 2025-6-12 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921441&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-11 19:41</a>
+
+喵安有点像女萝之类的寄生植物，不依附点什么、不把别人当自己的精神支柱就不行，仿佛脑子里只能装下这个人 ...</blockquote>
+确实，可怕的依附型重女，而且还自带悲惨的难民身份，想想就觉得不敢靠近<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
