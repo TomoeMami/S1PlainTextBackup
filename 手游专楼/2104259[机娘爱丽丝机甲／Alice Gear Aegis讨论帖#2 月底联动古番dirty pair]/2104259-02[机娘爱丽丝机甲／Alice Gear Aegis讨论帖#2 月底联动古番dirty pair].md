@@ -29,3 +29,15 @@
 —— 来自 realme RMX3706, Andr ...</blockquote>
 她们俩四星武器没换弹种啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1484#       发表于 2025-6-11 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921241&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-11 19:04</a>
+她们俩四星武器没换弹种啊</blockquote>
+这样的吗，我没有原版四星照着三星去看的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
