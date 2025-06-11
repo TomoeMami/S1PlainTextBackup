@@ -11433,3 +11433,18 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 喵安有点像女萝之类的寄生植物，不依附点什么、不把别人当自己的精神支柱就不行，仿佛脑子里只能装下这个人 ...</blockquote>
 确实，可怕的依附型重女，而且还自带悲惨的难民身份，想想就觉得不敢靠近<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  轮太  
+##### 18777#       发表于 2025-6-12 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922736&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-12 00:32</a>
+
+虽然说绿叔叔找夏亚大概率就是为了同时暗杀两个拟人之后让他上位，但根据这集A part来看他没找着夏亚也准备 ...</blockquote>
+这集专门提了一句吉翁首相（橡皮图章）
+
+而这个首相，和绿叔叔的眼镜妹副官是亲戚
+
+既然专门提到这个人，很有可能就是绿叔叔一党成员，也不算完全没有后续的政治解决方案
+
