@@ -283,3 +283,11 @@
 
 —— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Humpy  
+##### 5675#       发表于 2025-6-11 14:21
+
+问下，我之前文森是带隐游的，我看贴牌文森有雨帘强化了对枪能力，是不是可以考虑隐游换别的技能。
+

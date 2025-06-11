@@ -282,3 +282,18 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  liuguokobe  
+##### 2260#       发表于 2025-6-11 14:22
+
+杉果没货了……把港区该买的黄油买完了转国区来买了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2261#       发表于 2025-6-11 14:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啥意思 是说ps5只能重新买一份完整版才有码？ 光买dlc没有？
+

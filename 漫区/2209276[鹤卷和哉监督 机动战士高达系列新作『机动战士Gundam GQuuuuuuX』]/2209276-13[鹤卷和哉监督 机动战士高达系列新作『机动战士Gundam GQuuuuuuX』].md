@@ -9027,3 +9027,69 @@ side6对于这玩意是兵器大概率是有谱的，参与进来不过是与虎
 
 去side6的时候明显是拿的可行性研究报告，已经有这么大个玩意放在那里就不是这个说辞了
 
+
+*****
+
+####  Vitiate  
+##### 18594#       发表于 2025-6-11 14:16
+
+哈基连，还能哈气吗<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 18595#       发表于 2025-6-11 14:17
+
+所以紫婆这是拿了阿米豆腐的剧本？她变地球圣地派了？难不成是要用Zexovia把地表刮一遍就剩个球么？可你这样地球大气也传送走了啊，这下真的是要变群星了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  YU_JI  
+##### 18596#       发表于 2025-6-11 14:23
+
+ 本帖最后由 YU_JI 于 2025-6-11 14:25 编辑 
+<blockquote>无念 发表于 2025-6-11 14:01
+其实我倒是觉得喵安和番茄不是没认出来，而是不敢相信，无论是喵安略带惊慌的G夸怎么在这里，还是番茄带着 ...</blockquote>
+
+喵大概是知道里面是谁的，但是她想不到GQX会在这里，番茄不靠NT的话完全不可能知道对面机子里是喵安的，她和喵安上一次见面还是在side6地下换机，之后完全断联的，番茄怎么可能想得到喵摇身一变成了吉翁公主、秘密武器
+
+*****
+
+####  adretyu67.  
+##### 18597#       发表于 2025-6-11 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919210&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-11 14:09</a>
+
+一年战争两边这么多ACE基本都没出场呢，别惦记那个卡多了你说联邦打光了剩个魔女我能理解，白狼呢，真红呢 ...</blockquote>
+gqux宇宙联邦代替骡子+元祖组合的是鸭妹+轻加农。兰巴多半突然发现自己追击的敌人是鸭妹所以还是死了，运气好没死应该和黑二连一样退役和哈蒙过日子去了。
+
+*****
+
+####  猪突猛进R  
+##### 18598#       发表于 2025-6-11 14:24
+
+<img src="https://img.stage1st.com/forum/202506/11/142332aojtzhpvucmwcc8m.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-06-11 142142.png</strong> (84.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 14:23 上传
+
+这图迟早变成梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 18599#       发表于 2025-6-11 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919052&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 14:45</a>
+
+我觉得可能不是没开工在筹款，而是快完工但欠款，需要大水喉把钱补上</blockquote>
+<img src="https://p.sda1.dev/24/9125288b6137f6f6cc5c821e7621b168/1000117297.jpg" referrerpolicy="no-referrer">
+
+第7集写着的是计划书。如果是筹尾款的话，应该拿进度报告书给金主看而不是看PPT。
+
