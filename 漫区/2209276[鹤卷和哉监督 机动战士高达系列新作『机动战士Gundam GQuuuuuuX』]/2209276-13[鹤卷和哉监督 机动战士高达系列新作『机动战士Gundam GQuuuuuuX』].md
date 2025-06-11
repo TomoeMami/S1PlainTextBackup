@@ -11101,3 +11101,41 @@ ma是挂底下的，能看见</blockquote>
 
 那修司是gqux机魂的可能性还挺高的，シュウジ=終次=最终+第二个=omega=Ω赛可缪，修司估计也是实验体，被复制了脑波作为Ω赛可缪，后来逃了出来？所以作为二号机的gfred的κ赛可缪就没有机魂了
 
+
+*****
+
+####  ftyaid  
+##### 18750#       发表于 2025-6-11 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922155&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-11 22:06</a>
+
+休斯是这个宇宙疯掉的卡缪可能性多大
+
+同样是疯疯癫癫的，同样是蓝发</blockquote>
+修斯这神神叨叨的真别是卡缪吧，卡缪还是很人类的
+
+*****
+
+####  Sliurus  
+##### 18751#       发表于 2025-6-11 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921935&amp;ptid=2209276" target="_blank">帆前 发表于 2025-6-11 21:09</a>
+
+刚脑幻了一下，修司是从一个和平宇宙穿过来的，在那里三小只都在开心读高中，修司对喵安说“不管哪个喵安我 ...</blockquote>
+我也比较支持喵安<img src="https://static.stage1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">，那些微妙的重女发言我还蛮喜欢的，和身份背景联系一下很带感
+
+
+*****
+
+####  Sliurus  
+##### 18752#       发表于 2025-6-11 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922275&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-11 22:31</a>
+
+我草，我好想突然想通了
+
+所谓阿尔法杀手，是因为吉翁的研究人员把艾尔美斯里的拉拉称作阿尔法的原因吧？不 ...</blockquote>
+红高达机魂是拉拉还真能说得通，毕竟另一个世界的拉拉一直昏迷不醒，可能是灵魂被塞进了赛可谬里，那修司找玫瑰也说得通了
+
+但是被绿叔叔截胡的时候又不出来，拉拉还是被塞进地图炮里，叫得不够大声就不出来吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
