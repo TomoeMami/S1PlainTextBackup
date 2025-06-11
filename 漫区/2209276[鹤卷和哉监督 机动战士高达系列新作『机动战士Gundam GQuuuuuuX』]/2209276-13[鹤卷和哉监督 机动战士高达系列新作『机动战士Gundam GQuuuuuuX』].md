@@ -7174,3 +7174,236 @@ G一串字母也确实NETA了G高达。
 
 正是这种只有及格，让我不敢确信自己的理解。就等收尾吧，反正到时就知道了。
 
+
+*****
+
+####  永远的春天  
+##### 18438#       发表于 2025-6-11 11:08
+
+<blockquote>妄想系同盟 发表于 2025-6-11 10:56
+效命于基连·扎比，他肩负着指挥第58营和殖民卫星镭射炮的任务。在得知镭射炮真正的目标之前，他监督了一次 ...</blockquote>
+密会的剧情
+
+*****
+
+####  AraTurambar  
+##### 18439#       发表于 2025-6-11 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918094&amp;ptid=2209276" target="_blank">xyion 发表于 2025-6-11 11:06</a>
+
+关于喵安，说实话我没看明白喵安的核心弧光是抢男人还是生存，看社区讨论也存在不同理解。
+
+如果是生存，那 ...</blockquote>
+从现在看来难道不是蛋糕哥为民除害的心是好的，可惜业务太差，鉴定为军校文凭买来的么？
+
+不会有人还觉得喵安是任何意义上的好人了吧。
+
+*****
+
+####  秋月孝三  
+##### 18440#       发表于 2025-6-11 11:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭子最大的梦男就在本能寺
+
+
+*****
+
+####  seedees3  
+##### 18441#       发表于 2025-6-11 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918005&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-6-11 10:55</a>
+
+咋了，原作背后一枪爆头就很有铺垫吗</blockquote>
+原作正鏖战中事发突然，本作已经铺垫了好久两兄妹内斗正酣还刚发生一次暗杀未遂，到头来智商240聪明一世的基连就这么草草送命
+
+*****
+
+####  ryanghj  
+##### 18442#       发表于 2025-6-11 11:10
+
+玛秋一直没杀人，而之前和安琪对峙也打歪了
+
+不会是为了玛秋射杀喵安做的铺垫吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Sliurus  
+##### 18443#       发表于 2025-6-11 11:11
+
+其实这集看下来我也不是很讨厌喵安，没想到越来越像丧偶后精神失常的未亡人，心中产生了奇妙的感情<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。就博士父女比较无辜，毕竟博士的初衷是当核威慑用
+
+我现在觉得前面的部分留白，直接从马秋被抓，喵安被收编开始演，然后穿插回忆，观众可能会更容易接受一点。回忆可以把感情当作设定，但演出来观众get不到就不好补了
+
+*****
+
+####  岸浪白野  
+##### 18444#       发表于 2025-6-11 11:12
+
+ 本帖最后由 岸浪白野 于 2025-6-11 11:13 编辑 
+
+头盔还行
+
+<img src="https://img.stage1st.com/forum/202506/11/111209h9wcggd0m9psm4mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (611.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111217wxn211n1om85fo1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (733.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111223kjxrjleqoe5rdeae.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (727.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111230s783ihr6u7ah2irf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (719.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111236jsdyp8ql4yy5dq4u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111357x6z4dzl2342j2kdf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:13 上传
+
+*****
+
+####  璇瑢子R  
+##### 18445#       发表于 2025-6-11 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917944&amp;ptid=2209276" target="_blank">黑哥啥时改密码 发表于 2025-6-11 10:47</a>
+也不算洗吧 就是动机让人绷不住，杀了这么多人还没有所谓“大义”
+
+不过有没有大义真的重要吗 
+
+ 吉翁图宇 ...</blockquote>
+要说双标
+
+联邦丢小行星砸格拉纳达的时候。
+夏亚拆了已经装好的炸药的时候，可没啥观众在乎格拉纳达一城人。
+
+*****
+
+####  Sliurus  
+##### 18446#       发表于 2025-6-11 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918138&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-11 11:12</a>
+
+头盔还行</blockquote>
+猫耳头盔还挺cute的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  07579394  
+##### 18447#       发表于 2025-6-11 11:14
+
+不是，鸡西莉亚你是念能力者还是什么，毒气接触眼睛、皮肤也是可以生效的，你是用了缠隔绝毒气吗...
+
+初号机...哦，不对，二号机突入，中央教条！
+
+阿巴瓦空被卷入kirakira那段，前半的原型应该就是费城实验，后半被吞掉意义不明，沙朗玫瑰是时空门吗
+
+*****
+
+####  xyion  
+##### 18448#       发表于 2025-6-11 11:15
+
+<blockquote>AraTurambar 发表于 2025-6-11 11:09
+从现在看来难道不是蛋糕哥为民除害的心是好的，可惜业务太差，鉴定为军校文凭买来的么？
+
+不会有人还觉得 ...</blockquote>
+其实我八成是觉得你说得对，但我第二段也说了，喵安不是好人她这刻画也就及格。
+
+想了下是好人更难及格。你说得很对啊.jpg
+
+*****
+
+####  岸浪白野  
+##### 18449#       发表于 2025-6-11 11:15
+
+ 本帖最后由 岸浪白野 于 2025-6-11 11:16 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/11/111541ddi8n22ypdndya8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111531nowfd6xinottknng.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (857.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/111648um16585z6dw183l6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (811.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:16 上传
+
+*****
+
+####  ryanghj  
+##### 18450#       发表于 2025-6-11 11:16
+
+喵安不是被哄骗的，她知道尤玛恩托的威力，所以会说“我是个恶魔”
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  88is88  
+##### 18451#       发表于 2025-6-11 11:16
+
+算了，最后93驴穿越过来一边叫着什么情况一边全屠了那我给这片打10分
+
+*****
+
+####  AraTurambar  
+##### 18452#       发表于 2025-6-11 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918155&amp;ptid=2209276" target="_blank">xyion 发表于 2025-6-11 11:15</a>
+
+其实我八成是觉得你说得对，但我第二段也说了，喵安不是好人她这刻画也就及格。
+
+想了下是好人更难及格。 ...</blockquote>
+其实搞不好就是人坏而已。
+
+就像很多人猜测她逃难的时候杀了人，那么更进一步想，是不是为了保护自己必须杀人的情形？
+
+当然，现在没塑造，但是看起来像就是个热爱杀戮的颠婆而已，也没什么道德观念。
+
