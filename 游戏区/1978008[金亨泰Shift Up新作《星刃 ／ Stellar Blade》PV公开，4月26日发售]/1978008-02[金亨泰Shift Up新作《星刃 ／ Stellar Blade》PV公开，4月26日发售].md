@@ -379,3 +379,15 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 可以要，怎么出呢</blockquote>
 私信告诉你
 
+
+*****
+
+####  darkangel0224  
+##### 2269#       发表于 2025-6-11 16:33
+
+<blockquote>NameLess2501 发表于 2025-6-11 15:29
+60Hz显示器，不开帧生成有160多帧，没感到明显的画面撕裂。
+
+完美格挡时有瞬间的慢动作吧。BOSS的连击被完 ...</blockquote>
+昨晚试了试不限帧数，关掉垂直同步，进了QTE特写，毫无悬念的撕裂了
+
