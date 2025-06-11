@@ -430,3 +430,13 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 [https://x.com/zennyrt/status/1932732745681416207](https://x.com/zennyrt/status/1932732745681416207)
 <img src="https://tupian.li/images/2025/06/11/684976aecc4ff.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新庄運切  
+##### 2274#       发表于 2025-6-11 23:00
+
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智
+

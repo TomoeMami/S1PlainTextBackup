@@ -11153,3 +11153,25 @@ GQ的艾尔美斯本来在开发途中，是团队分析了抢来的高达后再
 
 这样确实就想猜阿尔法赛可繆不是单纯只是改个名字称呼正史艾尔美斯用的那套而是复制平行世界的产物
 
+
+*****
+
+####  参考消息  
+##### 18754#       发表于 2025-6-11 23:00
+
+ 本帖最后由 参考消息 于 2025-6-11 23:03 编辑 
+
+夏亚这现代化造型不是抽烟喝酒玩女人的乐队人么？
+
+<img src="https://img.stage1st.com/forum/202506/11/230051wiv2kuwhdhvc7tfc.jpg" referrerpolicy="no-referrer">
+
+<strong>抽烟喝酒玩女人乐队捕获.JPG</strong> (131.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 23:00 上传
+
+到底是大和田秀树抓住了0079的精气神？还是鹤卷致敬宇宙岛的卡尔马呢？
+
+<img src="https://img.stage1st.com/forum/202505/27/230703szr5i1v0ixx0rrzz.jpg" referrerpolicy="no-referrer">
+
