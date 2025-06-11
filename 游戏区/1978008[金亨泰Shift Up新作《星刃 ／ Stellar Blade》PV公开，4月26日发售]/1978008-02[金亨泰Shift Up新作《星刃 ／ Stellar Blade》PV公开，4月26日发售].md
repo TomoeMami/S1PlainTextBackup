@@ -440,3 +440,16 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 
 预购和买了dlc的我也是弱智
 
+
+*****
+
+####  h122h  
+##### 2275#       发表于 2025-6-12 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922399&amp;ptid=1978008" target="_blank">新庄運切 发表于 2025-6-11 23:00</a>
+
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智 ...</blockquote>
+steam显示还有5个小时解锁，可能key要解锁之后才会发。
+
