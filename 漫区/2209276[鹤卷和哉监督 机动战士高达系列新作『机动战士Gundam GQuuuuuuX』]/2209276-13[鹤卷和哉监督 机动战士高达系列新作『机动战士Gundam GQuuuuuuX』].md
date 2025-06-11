@@ -10605,3 +10605,36 @@ alpha就是阿尔法，第一个希腊字母，可以引申为王牌 ...</blockq
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 18705#       发表于 2025-6-11 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920698&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-6-11 17:27</a>
+真是张非常好的图，好到让我心生恨意，明明年轻人间做好关系性营业这片能更火 ...</blockquote>
+说实话不用看到这张图感叹的又不是第一天发同人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第6集就已经说了第3集6月9号到第6集可是跳过了3人20多天以上的日常都选择留白
+更别提科莫里和首席，这两人还是就第4集看黑拳一起在场，正片没放过一起说过话呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 18706#       发表于 2025-6-11 18:39
+
+如果要回收那条搞克隆的线，那么汤大基躲side3宅子里闭门不出除了被金发大波爱生音女秘书榨干（卧槽我愿意，就是怕被暗杀轮到自己头上关起门来做实验搞影武者了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  plok201  
+##### 18707#       发表于 2025-6-11 18:41
+
+<blockquote>盐盐盐盐盐 发表于 2025-6-11 18:17
+喵安缺爱本来就喜欢被基西莉亚当工具养，也不完全是为了修司
+
+麻球算一半吧，了解蔷薇是为了修司不过手电筒 ...</blockquote>
+但是下一集俩人的对话大概率90%都是修司，和你说的这些没关系，外加修司也要出场解密zeknova，大部分观众对三小只的落点怕不都落在抢男人
+
