@@ -264,3 +264,11 @@
 官推目前在一条一条更新，速度挺慢的</blockquote>
 感谢，刷到了。freeze的设定还是不错的
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5673#       发表于 2025-6-11 12:59
+
+加特林玩家看到新短弓这配置一哆嗦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
