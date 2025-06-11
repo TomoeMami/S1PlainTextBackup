@@ -291,3 +291,11 @@
 
 问下，我之前文森是带隐游的，我看贴牌文森有雨帘强化了对枪能力，是不是可以考虑隐游换别的技能。
 
+
+*****
+
+####  doraemonmilmil  
+##### 5676#       发表于 2025-6-11 15:55
+
+文森+雨帘有点恶心了，<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

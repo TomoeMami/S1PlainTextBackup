@@ -9576,3 +9576,101 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 
 最后出场果然是带着月光蝶来的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">人设其实neta的总大将
 
+
+*****
+
+####  pokemon最爱  
+##### 18648#       发表于 2025-6-11 15:58
+
+大基感觉意思是否定NT是“新人类”吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过作为工具利用应该还是会做的。
+
+*****
+
+####  猪突猛进R  
+##### 18649#       发表于 2025-6-11 15:58
+
+昨天就有人说ED里那个迪斯科彩球象征这集的拉拉炮。
+
+*****
+
+####  ProAgressive  
+##### 18650#       发表于 2025-6-11 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919701&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-6-11 15:18</a>
+
+这两个人一个没头盔，一个把头盔摘了
+
+要怎么在宇宙中下机1V1复刻鲁鲁修呢
+
+支持打成核心战机对射 ...</blockquote>
+因为sf设定早就摆了，大手电内部全是空气环境
+
+<img src="https://img.stage1st.com/forum/202506/11/160008o9a7b5w555v4970l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (468.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 16:00 上传
+
+*****
+
+####  岸浪白野  
+##### 18651#       发表于 2025-6-11 16:02
+
+[X 上的 れもん茶：“コモリ少尉がコスプレイヤーの９話 #ジークアクス #GQuuuuuuX [url]https://t.co/sGwifdZBti](https://x.com/Lemoncha08014/status/1932380290061889961)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/155527xbf91z6f15itq63v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 15:55 上传
+
+[X 上的 キツネビ@毎日徐福ちゃんチャレンジ：“カバスの館　マチュ×ドゥー×ヴァーニ #GQuuuuuuX #ジークアクス [url]https://t.co/D2zLgBU9R2](https://x.com/kitunebi_nellws/status/1932422509363917296)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/160051jz7gh7kykjkyk0dc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250611155735.jpg</strong> (664.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 16:00 上传
+
+[X 上的 ばた：“マチュとニャアン [url]https://t.co/zPwrisGWPO](https://x.com/bata55bata/status/1932413050289848349)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/160132rupnp1zb9qbrropn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 16:01 上传
+
+[X 上的 餅饅頭：“💙 [url]https://t.co/VRpg12TTRy](https://x.com/m_manjyu/status/1932441988898635970)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/160159faiiic0c00504raz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 16:01 上传
+
+
+*****
+
+####  DARK_HGCG  
+##### 18652#       发表于 2025-6-11 16:06
+
+<img src="https://img.stage1st.com/forum/202506/11/160557ad9fxfzy0plo9idp.png" referrerpolicy="no-referrer">
+
+<strong>-239d2e569ab7307d.png</strong> (72.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 16:05 上传
+
+别当哥哥了
+
