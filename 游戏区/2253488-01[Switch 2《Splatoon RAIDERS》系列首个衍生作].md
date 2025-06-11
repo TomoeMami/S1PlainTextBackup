@@ -516,3 +516,13 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 爽啊，只想玩单人，我们中国人太难联网了</blockquote>
 是这样 单人打完可以跑路，游戏目标明确
 
+
+*****
+
+####  Nez  
+##### 58#       发表于 2025-6-12 00:21
+
+这不是可以好好翻译吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实splatoon本身也可以翻译成涂击队吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正怎么着都比音译好
+

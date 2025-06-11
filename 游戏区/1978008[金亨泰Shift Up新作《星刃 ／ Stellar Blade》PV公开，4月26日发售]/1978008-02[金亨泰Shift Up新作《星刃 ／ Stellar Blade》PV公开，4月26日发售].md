@@ -453,3 +453,19 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 预购和买了dlc的我也是弱智 ...</blockquote>
 steam显示还有5个小时解锁，可能key要解锁之后才会发。
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 2276#       发表于 2025-6-12 00:20
+
+PS版也给旗袍了。
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 2277#       发表于 2025-6-12 00:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">金亨泰这人是每次事到临头突然显示出脑子有坑的一面来，PS5剑星首发也是，临发售了说我出个补丁给你两件衣服加点布料，被人骂了一圈然后才过段时间更新两件新的同款换色布料减少的说我补偿。
+
