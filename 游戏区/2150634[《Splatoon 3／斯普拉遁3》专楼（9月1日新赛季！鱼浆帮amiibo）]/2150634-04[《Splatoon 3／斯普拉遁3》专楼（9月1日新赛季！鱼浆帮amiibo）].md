@@ -464,3 +464,11 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 
 注意到一个细节，这次的更新预告最后一句关于下一次更新的那句话没提“长期”两个字。
 
+
+*****
+
+####  oi99o  
+##### 5695#       发表于 2025-6-11 19:58
+
+我靠，刮水刀史诗级削弱，再也不能一刀一个声纳了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
