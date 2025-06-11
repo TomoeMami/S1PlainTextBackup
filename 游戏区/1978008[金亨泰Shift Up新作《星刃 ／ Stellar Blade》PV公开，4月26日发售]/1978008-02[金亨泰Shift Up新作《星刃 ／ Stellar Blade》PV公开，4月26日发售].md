@@ -272,3 +272,13 @@ steam是凌晨解锁？
 steam是凌晨解锁？</blockquote>
 steam里不是能看的吗，昨晚算记得是今天半夜，我反正不等<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 2259#       发表于 2025-6-11 13:58
+
+ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

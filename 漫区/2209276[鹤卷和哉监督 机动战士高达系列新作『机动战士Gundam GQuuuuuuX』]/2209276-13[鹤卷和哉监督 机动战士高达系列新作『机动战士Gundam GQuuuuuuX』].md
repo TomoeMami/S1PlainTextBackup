@@ -8854,3 +8854,116 @@ X 上的 YY：“第10話ご視聴いただきありがとうございます！ 
 
 side6对于这玩意是兵器大概率是有谱的，参与进来不过是与虎谋皮，很符合商人唯利是图的表现。反正就算是地图炮，也不太可能第一发就对side6出手，目前看紫婆做完这玩意第一发先对基连卫队下手，然后把联邦基地炸了绝了后患，之后可能就不怎么动用了，side6提供资金建造好处肯定是可以捞不少的。。
 
+
+*****
+
+####  Sliurus  
+##### 18579#       发表于 2025-6-11 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919067&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-11 13:48</a>
+
+你想想这玩意建出来是要干啥的
+
+快完工了只要把它建成还需要在乎欠款的问题吗 ...</blockquote>
+这片的时间概念还是太模糊了，绿色木马的人惊讶马秋驾驶能力的进步，总感觉时间不会太久
+
+这么大的装置从零开始建几个月我还是觉得不太可能，不是快完工也应该是做到一定程度资金链断裂导致计划中止。刚刚看了下鸭子和博士女儿的对话可以对应我的猜想
+
+*****
+
+####  adretyu67.  
+##### 18580#       发表于 2025-6-11 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919131&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 13:58</a>
+
+这片的时间概念还是太模糊了，绿色木马的人惊讶马秋驾驶能力的进步，总感觉时间不会太久
+
+这么大的装置从 ...</blockquote>
+绿色木马从side6去了一趟地球，又从地球回了一趟side6.
+
+来来回回感觉怎么也得一个月了吧
+
+
+*****
+
+####  无念  
+##### 18581#       发表于 2025-6-11 14:01
+
+其实我倒是觉得喵安和番茄不是没认出来，而是不敢相信，无论是喵安略带惊慌的G夸怎么在这里，还是番茄带着怒音的里面到底是谁，其实她们俩在见面的那一刻已经隐约猜到对面是谁了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 18582#       发表于 2025-6-11 14:01
+
+ 本帖最后由 Sliurus 于 2025-6-11 14:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919145&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-11 13:59</a>
+
+绿色木马从side6去了一趟地球，又从地球回了一趟side6.
+
+来来回回感觉怎么也得一个月了吧 ...</blockquote>
+和建造一个地图炮比也算短了，反正我不觉得会跳跃几个月这么久
+
+实际side6到地球大概是三到四天的路程，满打满算下来从离开side6经过一个月多一点我觉得合理，但远不到几个月
+
+*****
+
+####  猪突猛进R  
+##### 18583#       发表于 2025-6-11 14:03
+
+就是没认出来啊，类似于Z里墨镜鸭觉得谁都是骡一样。
+
+她们可能确实有猜测，但不像骡和拉拉那样打一个照面就能认出来。
+
+*****
+
+####  zhongjie  
+##### 18584#       发表于 2025-6-11 14:03
+
+想要看gqux ver的绿螳螂
+
+*****
+
+####  无念  
+##### 18585#       发表于 2025-6-11 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919166&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 14:03</a>
+就是没认出来啊，类似于Z里墨镜鸭觉得谁都是骡一样。
+
+她们可能确实有猜测，但不像骡和拉拉那样打一个照面就 ...</blockquote>
+不是说nt感应，而是按照直觉
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 18586#       发表于 2025-6-11 14:04
+
+偷袭一台，首席+亲卫队一台，喵安一台，还有一台好像没看到？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18587#       发表于 2025-6-11 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919173&amp;ptid=2209276" target="_blank">zhongjie 发表于 2025-6-11 14:03</a>
+
+想要看gqux ver的绿螳螂</blockquote>
+家兔已经被吹飞到异次元的彼方了，是不是还活着都不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 18588#       发表于 2025-6-11 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919159&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 14:01</a>
+和建造一个地图炮比也算短了，反正我不觉得会跳跃几个月这么久
+
+实际side6到地球大概是三到四天的路程，满 ...</blockquote>
+就看狗代啥时候编好年表了，相信对不上剧中表现的乐子肯定有，卡哈这帮人的时间线完全是为了剧情服务的，中间对不上就留白<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
