@@ -9352,3 +9352,61 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 
 唯一肯定的一点是下集玛秋和喵安少不了丢人话<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 18626#       发表于 2025-6-11 15:09
+
+别真把修酱当父亲就行。
+
+*****
+
+####  plok201  
+##### 18627#       发表于 2025-6-11 15:10
+
+跃迁有啊，00Q和TA，问题是大伙不太喜欢罢了，你把跃迁搞出来整个故事基调就全变了
+
+说句难听的，那些跃迁像喝水的科幻，你内核还是那些国与国的争斗其实非常难绷
+
+
+*****
+
+####  EFSF  
+##### 18628#       发表于 2025-6-11 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919559&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-11 14:57</a>
+两台高达对决
+
+1.强袭vs圣盾（双双大破）
+
+2.黑狗vs火星高达（单方面虐杀）</blockquote>
+可以复刻cca打至中破然后下机肉搏手枪互射再爬回去嘛<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  洛克萨斯  
+##### 18629#       发表于 2025-6-11 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919670&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 15:13</a>
+
+可以复刻cca打至中破然后下机肉搏手枪互射再爬回去嘛
+
+—— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.4.9 ...</blockquote>
+刚好有台机体的头是红色的对吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 18630#       发表于 2025-6-11 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919670&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 15:13</a>
+可以复刻cca打至中破然后下机肉搏手枪互射再爬回去嘛
+
+—— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.4.9 ...</blockquote>
+那我希望打成核心战机打核心战机<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这个真没拍过
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

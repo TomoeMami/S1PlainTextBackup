@@ -393,3 +393,13 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 —— 来自 HUAWEI CDY-AN00, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  slend殿  
+##### 43#       发表于 2025-6-11 15:17
+
+什么时候收录到GAL笑话
+
+正经来说，先从做酒馆卡开始吧，开个打赏看看自己的文笔能爆多少米
+
