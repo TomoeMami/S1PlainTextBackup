@@ -7801,3 +7801,76 @@ Z小说中的描写更详细一些
 难道吉翁又变回共和国了 ...</blockquote>
 本来就是个随便改的草台班子，可能就把元首的称号直接固定成总帅了呗。
 
+
+*****
+
+####  猪突猛进R  
+##### 18490#       发表于 2025-6-11 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918380&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 11:43</a>
+
+现在想来，拉拉也是个没什么塑造的神棍，但大家都接受了。问题还是出在修司对两个女主的感情不明确上吧，拉 ...</blockquote>
+做点预知梦而已，GQ拉不神棍，79拉也不神棍，本质都是被时代翻弄的可怜人。
+
+穿越过来的拉拉炮才是神棍。
+
+*****
+
+####  Libartas  
+##### 18491#       发表于 2025-6-11 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918160&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-11 11:15</a></blockquote>
+side6军警察居然还有麦哲伦，uc的出云小平顶吗这是
+
+*****
+
+####  Sliurus  
+##### 18492#       发表于 2025-6-11 11:50
+
+ 本帖最后由 Sliurus 于 2025-6-11 11:51 编辑 
+
+还是第二集太长了。给个五分钟，少膜点0079分镜把事情说完，剩下的把第三集演完，多一集做个搞笑回发点糖，观众都能更能理解三人关系
+
+*****
+
+####  银川智将Kuroky  
+##### 18493#       发表于 2025-6-11 11:51
+
+说来最终话不会是要复刻初版射击直接一个火箭筒然后汤鸡丝的肠肠肚肚都在外面飞吧
+
+*****
+
+####  ads147147  
+##### 18494#       发表于 2025-6-11 11:52
+
+这次还有个很搞的就是，主世界拉拉还说什么死了才是脱离肉体的自由，好了，现在衰样了吧，穿越一下被抓起来当地图炮湿件用，女鬼也配谈自由了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 18495#       发表于 2025-6-11 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918423&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-6-11 11:51</a>
+
+说来最终话不会是要复刻初版射击直接一个火箭筒然后汤鸡丝的肠肠肚肚都在外面飞吧 ...</blockquote>
+基连没被爆头，紫婆当然也不会吃火箭筒。
+
+她不是NT了么，盲猜让她去听自己创造的哀鸣。
+
+
+*****
+
+####  EFSF  
+##### 18496#       发表于 2025-6-11 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918362&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-11 11:41</a>
+军警用麦哲伦绷不住了，你们就算要安排联邦宇宙军老兵也用不上主力舰吧？老老实实退役拆了卖废铁不好吗？ ...</blockquote>
+这说明联邦牛逼啊，side6有钱啊。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+一艘战舰这价格联邦说了算啊，战舰费用，改装费用，培训配用，以及后续养护。
+
+**子宰阿三估计都没联邦宰side6这么嗨。
+
+再次说明这片子设定就笑着看。
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

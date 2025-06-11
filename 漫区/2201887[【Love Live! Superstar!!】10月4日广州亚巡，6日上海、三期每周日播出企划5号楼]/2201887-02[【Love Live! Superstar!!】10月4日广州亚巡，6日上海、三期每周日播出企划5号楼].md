@@ -74,3 +74,13 @@ StarRise事务所
 
 无话可说咯，狗比事务所早点破产吧
 
+
+*****
+
+####  仟音一心  
+##### 1628#       发表于 2025-6-11 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67915347&amp;ptid=2201887" target="_blank">starring 发表于 2025-6-10 21:30</a>
+事务所不当人结果还是要花承受，太难了</blockquote>
+查了下来栖凛走了后StarRise就剩三个人了。
+

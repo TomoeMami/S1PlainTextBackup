@@ -8628,3 +8628,16 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 谁有火山特异地形可以带我打一次吗，就差这个就白了
 
+
+*****
+
+####  hugosol  
+##### 849#       发表于 2025-6-11 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918211&amp;ptid=2210352" target="_blank">火红之眼 发表于 2025-6-11 11:23</a>
+
+印象中除了有夜王要求的都能day1打吧，整个三四级能solo了，夜王那种也不会和day1 day2有支线的队友冲突 ...</blockquote>
+就是夜王那种支线，比如铁眼要打人马，我试了一下普通的野排打完也不算完成任务，要在回想里打才行
+
+回想匹配又半天匹配不到人，实在不想自己去solo夜王了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
