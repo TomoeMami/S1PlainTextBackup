@@ -513,3 +513,14 @@ Switch 2并不支持4K120Hz。
 
 躲地雷拿星星的游戏超级好玩，游戏音乐带感又有点贱贱的，后期通关后能直接选择游玩吗？
 
+
+*****
+
+####  ミズタ  
+##### 44#       发表于 2025-6-12 04:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922270&amp;ptid=2253207" target="_blank">传说中的天才 发表于 2025-6-11 22:29</a>
+
+Switch 2并不支持4K120Hz。</blockquote>
+不支持4k120有什么问题嘛，你买1080 120 或者 4K 60显示设备，前者不是体验不到4k，后者看不见120么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
