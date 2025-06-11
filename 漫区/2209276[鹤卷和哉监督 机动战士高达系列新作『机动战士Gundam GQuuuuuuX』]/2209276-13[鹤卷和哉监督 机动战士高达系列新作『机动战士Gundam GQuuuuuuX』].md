@@ -6107,3 +6107,13 @@ Z时代傻逼小登来结构傻逼老登倒是好用
 
 下集预告了番茄的情绪看上去比喵安稳定多了
 
+
+*****
+
+####  pmoe  
+##### 18348#       发表于 2025-6-11 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916278&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 00:38</a>
+番茄这一集可以说是强行扭转了形象，不对男人上脑，做事有目的（虽然是夏利尔给的），喵安是彻底黑化了，而 ...</blockquote>
+修司换成貂蝉，喵安换成吕布就能理解了<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
