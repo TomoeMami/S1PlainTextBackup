@@ -8641,3 +8641,26 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 回想匹配又半天匹配不到人，实在不想自己去solo夜王了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hirro  
+##### 850#       发表于 2025-6-11 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916728&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-11 04:22</a>
+
+原本钩瓜没火刀时钩敌人容易送或者钩过头，有了火刀后其实等于增加了精准度和范围，同时更重要的是，火刀 ...</blockquote>
+火刀是什么
+
+
+*****
+
+####  hootao  
+##### 851#       发表于 2025-6-11 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919024&amp;ptid=2210352" target="_blank">hirro 发表于 2025-6-11 13:39</a>
+火刀是什么</blockquote>
+职业专属遗物，钩爪后能派生带火焰附魔的斩击
+
+—— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
