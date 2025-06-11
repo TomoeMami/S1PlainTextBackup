@@ -10831,3 +10831,18 @@ gqux机魂是修司不说了前面有人 ...</blockquote>
 
 绿木马上边就首席一个适合驾驶gqux，他当成自己专用机也没什么毛病
 
+
+*****
+
+####  YU_JI  
+##### 18725#       发表于 2025-6-11 20:28
+
+yysy，索顿看上去也像是只有GQX一台ms的样子（）
+
+*****
+
+####  xwz  
+##### 18726#       发表于 2025-6-11 20:29
+
+看到一张麻球和喵安互相扯头发的同人图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

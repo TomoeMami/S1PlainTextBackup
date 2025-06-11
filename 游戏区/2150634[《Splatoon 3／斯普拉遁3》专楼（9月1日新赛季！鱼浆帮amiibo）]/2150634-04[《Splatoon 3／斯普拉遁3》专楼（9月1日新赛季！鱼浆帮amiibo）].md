@@ -472,3 +472,15 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 
 我靠，刮水刀史诗级削弱，再也不能一刀一个声纳了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5696#       发表于 2025-6-11 20:31
+
+翻译完毕，这次声明里「奖励更新」的说法令人在意。
+
+同样也没有下次更新的大体时间，明明更新了这么多武器肯定非常需要平衡调整的……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
