@@ -490,3 +490,15 @@ PS版也给旗袍了。
 
 MD 首发的PS5版不给红莲皮肤CEKY 真是大冤种呀
 
+
+*****
+
+####  xmakoto  
+##### 2280#       发表于 2025-6-12 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922399&amp;ptid=1978008" target="_blank">新庄運切 发表于 2025-6-11 23:00</a>
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智 ...</blockquote>
+红莲皮咬进游戏游玩2小时后，开箱子才能拿到。
+

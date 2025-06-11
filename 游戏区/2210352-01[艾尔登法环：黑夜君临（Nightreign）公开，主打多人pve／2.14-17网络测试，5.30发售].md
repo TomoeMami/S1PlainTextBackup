@@ -8739,3 +8739,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 这游戏的闪退问题真的太变态了，又一个朋友遇到了。我自己虽然不闪退，但是三人黑遇到一个不间断闪退的开黑 ...</blockquote>
 我现在就无限闪退，就算重启也几分钟就闪退，而且还没一点错误提示，就跟直接把游戏关了一样，小高是不是给我攻击键上绑定altF4了
 
+
+*****
+
+####  doublehit  
+##### 859#       发表于 2025-6-12 00:52
+
+用铁眼过了，不过是被一个鸟人大哥带飞了，全程只用带个降低距离伤害消减的装备射射射就行了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
