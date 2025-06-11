@@ -391,3 +391,25 @@
 
 感觉彩绿，豹纹96，黑栓是这一轮贴牌最好看的三把
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5688#       发表于 2025-6-11 17:56
+
+彩弓，标线器+飞机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，也是强啊
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5689#       发表于 2025-6-11 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毫无鲨鱼踪影，研究所怎么回事呢
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5690#       发表于 2025-6-11 17:58
+
+恭迎贴牌绿狙、小绿、96、消防栓四皇登基<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
