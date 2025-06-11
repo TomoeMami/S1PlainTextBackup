@@ -3923,3 +3923,25 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 你队伍的AI也同样会用大招了啊。</blockquote>
 主动控制骗AI的第一发行不通了啊，这PVP就看进攻，能拆解对面阵容的点就这么几个
 
+
+*****
+
+####  winder0707  
+##### 1837#       发表于 2025-6-11 08:35
+
+<blockquote>rockroxas 发表于 2025-6-10 05:35
+空出来是什么意思？20w分不会升阶层啊
+
+更难上分是指AI会自动用最大威力的招不会省EN，之前的控血让敌人用 ...</blockquote>
+就gp02a的速度，还被地图炮已经被打死了吧
+
+*****
+
+####  rockroxas  
+##### 1838#       发表于 2025-6-11 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916970&amp;ptid=2071758" target="_blank">winder0707 发表于 2025-6-11 08:35</a>
+
+就gp02a的速度，还被地图炮已经被打死了吧</blockquote>
+能满GP02的起码有3个援防吧，慢反而不会冲上来被集火
+

@@ -6237,3 +6237,25 @@ NT是灵能者
 正常（？）军事指挥肯定是打贾布罗，但紫婆这集亲口说，“以后就没有大马士革香水了”，总不能第二炮专程 ...</blockquote>
 是没有大马士革玫瑰香水。大马士革玫瑰是一种花
 
+
+*****
+
+####  zoomegg  
+##### 18358#       发表于 2025-6-11 08:39
+
+这真的不是把泰坦变动重力源召出来了吗www
+叫声都一样
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kaion111  
+##### 18359#       发表于 2025-6-11 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916524&amp;ptid=2209276" target="_blank">seedees3 发表于 2025-6-11 01:36</a>
+基连死的也太草率了吧，铺垫了两三集竟然直接下毒解决，你们双方斗得这么厉害就没人想到对方会用这招吗，搞 ...</blockquote>
+紫婆就是这样的人啊 原作战争中已经劣势了居然做的出偷袭总指挥的事，没了指挥吉翁直接一边倒了
+就是个眼光浅显的女人
+
