@@ -469,3 +469,16 @@ PS版也给旗袍了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">金亨泰这人是每次事到临头突然显示出脑子有坑的一面来，PS5剑星首发也是，临发售了说我出个补丁给你两件衣服加点布料，被人骂了一圈然后才过段时间更新两件新的同款换色布料减少的说我补偿。
 
+
+*****
+
+####  黑上シグマ  
+##### 2278#       发表于 2025-6-12 00:28
+
+<blockquote>引用第2274楼h122h于2025-06-12 00:08发表的  :
+
+新庄運切 发表于 2025-6-11 23:00太好了，预购豪华版的人不配有cdkey，shift ......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">他说的应该是PS版拿不到手游码的事
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
