@@ -6220,3 +6220,20 @@ NT是灵能者
 
 —— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  七七見奈波  
+##### 18356#       发表于 2025-6-11 08:31
+
+扎布罗在亚马逊吧？紫婆说香水是大马士革玫瑰，叙利亚离亚马逊还是挺远的<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 18357#       发表于 2025-6-11 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916940&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-11 08:26</a>
+正常（？）军事指挥肯定是打贾布罗，但紫婆这集亲口说，“以后就没有大马士革香水了”，总不能第二炮专程 ...</blockquote>
+是没有大马士革玫瑰香水。大马士革玫瑰是一种花
+
