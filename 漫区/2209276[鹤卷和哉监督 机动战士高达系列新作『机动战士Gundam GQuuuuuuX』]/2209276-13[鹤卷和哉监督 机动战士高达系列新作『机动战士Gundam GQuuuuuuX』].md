@@ -9534,3 +9534,45 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 
 这两女人本来就没啥格局，都谈不上什么丢不丢人
 
+
+*****
+
+####  斯卡哈  
+##### 18644#       发表于 2025-6-11 15:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这地图炮放在高达世界有点超纲了，无法预测+无视防御的时空系地图炮，第一发是无论如何都防不住的，只能趁CD去掏核心部件拉拉或者炮击手
+
+*****
+
+####  ryanghj  
+##### 18645#       发表于 2025-6-11 15:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/11/154911takak3btlbkaq471.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 15:49 上传
+
+*****
+
+####  hsyg  
+##### 18646#       发表于 2025-6-11 15:50
+
+<blockquote>YU_JI 发表于 2025-6-11 15:35
+这么一想不会真死的是影武者吧，基连这里还有很多扣子没收啊，可这样反倒让紫婆显得小丑了 ...</blockquote>
+对真身躲在阿爸挖苦，随时准备好反击（）
+
+
+*****
+
+####  ryanghj  
+##### 18647#       发表于 2025-6-11 15:53
+
+修司打军团战时头像是毛毛虫，外号neta的也是绘本《好饿的毛毛虫》，绘本里的毛毛虫最后成了蝴蝶
+
+最后出场果然是带着月光蝶来的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">人设其实neta的总大将
+
