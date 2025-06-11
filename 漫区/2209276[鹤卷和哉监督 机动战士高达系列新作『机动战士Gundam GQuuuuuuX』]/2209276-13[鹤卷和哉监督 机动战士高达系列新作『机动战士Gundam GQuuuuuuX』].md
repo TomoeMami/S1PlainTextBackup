@@ -10297,3 +10297,11 @@ side6分手后，喵安既无颜面对蕃茄，同时又想念修司。
 <img src="https://img.stage1st.com/forum/202506/11/094209f059khlfo0x0h5hx.png" referrerpolicy="no-referrer"></blockquote>
 真是张非常好的图，好到让我心生恨意，明明年轻人间做好关系性营业这片能更火<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 18682#       发表于 2025-6-11 17:29
+
+你别说，修司机魂论好像还真行，既模了Eva又把修司缺的塑造部分给找补了很多，从这个角度回头看一些台词还挺有意思的比如第三集的“我就在附近”，修司的配色倒也勉强算得上蓝白红，就是红高达显得像是个乱入的第三者<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

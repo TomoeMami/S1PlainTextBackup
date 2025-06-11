@@ -345,3 +345,26 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水球大王这配置一代是给铜喷的，感受一下
 
+
+*****
+
+####  Tachikoma88  
+##### 5682#       发表于 2025-6-11 17:28
+
+这红双纯纯娱乐的吧
+
+*****
+
+####  Pumpkin_ccc  
+##### 5683#       发表于 2025-6-11 17:30
+
+消防栓罩子来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 5684#       发表于 2025-6-11 17:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这消防栓太强了
+
