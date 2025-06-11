@@ -8747,3 +8747,18 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 用铁眼过了，不过是被一个鸟人大哥带飞了，全程只用带个降低距离伤害消减的装备射射射就行了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 860#       发表于 2025-6-12 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922465&amp;ptid=2210352" target="_blank">全装甲夏亚 发表于 2025-6-11 23:17</a>
+
+我现在就无限闪退，就算重启也几分钟就闪退，而且还没一点错误提示，就跟直接把游戏关了一样，小高是不是 ...</blockquote>
+我朋友通过
+
+重启-避开所有腾讯系软件
+
+暂时解决了
+
