@@ -11033,3 +11033,24 @@ ma是挂底下的，能看见</blockquote>
 
 光想想就觉得很实用！
 
+
+*****
+
+####  yone0000  
+##### 18744#       发表于 2025-6-11 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922032&amp;ptid=2209276" target="_blank">高达age 发表于 2025-6-11 21:35</a>
+
+这下GQuX进超级机器人大战就很方便了，
+
+直接一个泽科诺瓦转移，过来一船人，然后夏亚就可以喊 “你是那一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武器只有一把斧头
+
+
+*****
+
+####  conanlm  
+##### 18745#       发表于 2025-6-11 21:46
+
+坐等进机战，各个时空的夏亚见面互撕
+
