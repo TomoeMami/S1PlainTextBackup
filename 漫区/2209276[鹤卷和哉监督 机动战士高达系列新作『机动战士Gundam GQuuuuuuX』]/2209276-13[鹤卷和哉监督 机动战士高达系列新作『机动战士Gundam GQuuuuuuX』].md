@@ -10974,3 +10974,16 @@ ma是挂底下的，能看见</blockquote>
 
 基西莉亚送把枪，绿叔叔也送把枪，这是要让两个女主角下机对枪吗
 
+
+*****
+
+####  洛克萨斯  
+##### 18739#       发表于 2025-6-11 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921853&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-11 20:49</a>
+
+绿叔叔差不多都拿绿色木马当私物使用了还没权吗。
+
+又不是要当军头搞军阀养死士。 ...</blockquote>
+两大派系都不待见他啊，船也是老船了，ms就一台gqx，吉克罗格都是后面加的。有德和骡叔叔的铃铛队规模比他强多了
+
