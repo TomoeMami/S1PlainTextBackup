@@ -408,3 +408,14 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">20-30
 
+
+*****
+
+####  theworld  
+##### 2272#       发表于 2025-6-11 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911673&amp;ptid=1978008" target="_blank">爱吃冻鳗的猫 发表于 2025-6-10 10:08</a>
+
+这游戏难吗？感觉游戏动力是收集衣服，要不要直接选最低难度玩算了</blockquote>
+飞行道具是超级轮椅的无脑技能随便打，没难度的
+

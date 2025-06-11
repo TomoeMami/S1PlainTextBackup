@@ -10255,3 +10255,45 @@ side6分手后，喵安既无颜面对蕃茄，同时又想念修司。
 在我看来GFred的自主性远不及GQuuuuuuX来的强，鸡夸的各种骚操作（特别是伸手抱妹）真的幻视ブレバーン所以 ...</blockquote>
 牢修机魂说还在发力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mengsu  
+##### 18678#       发表于 2025-6-11 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920543&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 17:09</a>
+
+在我看来GFred的自主性远不及GQuuuuuuX来的强，鸡夸的各种骚操作（特别是伸手抱妹）真的幻视ブレバーン所以 ...</blockquote>
+二号机喵安说感觉是老太婆本人，大概就是以基西莉亚为NT样本造出来的。这Gqux有没有用哪个NT来建造就难说了，目前看来唯一能圆上所有剧情的只有修斯吧。
+
+*****
+
+####  yanghuangu  
+##### 18679#       发表于 2025-6-11 17:20
+
+话说紫婆给喵安梳头的时候都是穿浴袍，是不是刚一起泡完澡来着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 18680#       发表于 2025-6-11 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920639&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-11 17:19</a>
+二号机喵安说感觉是老太婆本人，大概就是以基西莉亚为NT样本造出来的。这Gqux有没有用哪个NT来建造就难说 ...</blockquote>
+样本和机魂还是不一样的，鸡夸的自主性高的诡异，只有样本不能这样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+另外我个人认为造这两台东西的时候就没想过那么多，鸡夸里如果真是修司的话那么他成为鸡夸机魂很可能只是一个意外
+造这两台的本意都是アルファ殺し，追杀红高达用的，GQuuuuuuX因为有了修司机魂所以变成了找蔷薇的指南针，GFred则一开始就有作为手电筒钥匙的建造目的
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 18681#       发表于 2025-6-11 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917435&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-11 09:42</a>
+
+我支持这对拉郎
+<img src="https://img.stage1st.com/forum/202506/11/094209f059khlfo0x0h5hx.png" referrerpolicy="no-referrer"></blockquote>
+真是张非常好的图，好到让我心生恨意，明明年轻人间做好关系性营业这片能更火<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
