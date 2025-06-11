@@ -6831,3 +6831,64 @@ zion男儿的灵魂 纯~~
 汤姬丝干嘛第一炮干阿巴瓦空啊，我觉得假冒汤大基的名义让他们顶一下联邦军的反扑有一定可行性嘛 ...</blockquote>
 迪辣子舰队和家兔等人的驻屯地啊，死硬的基连分子。
 
+
+*****
+
+####  Saber琪  
+##### 18414#       发表于 2025-6-11 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917327&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-11 09:30</a>
+总帅！总帅啊！这路边一条的死法虽然不是不能理解，但还是太喜剧了啊。
+
+这喵安机真就一点主武装没有全靠头 ...</blockquote>
+喵安真能洗白嘛？虽然鲨的都是基连派，但鲨人动机已经完全疯魔了，纯纯一半为了基西莉亚，一半为了牢修这个谜语人，甚至应该大半都是为了牢修，🍅我不好说下集会不会也突发牢修牢修地喊，这俩一发癫准跟修司脱不了关系
+
+*****
+
+####  猪突猛进R  
+##### 18415#       发表于 2025-6-11 10:29
+
+番茄虽然有成长，但还是恋爱脑。
+
+<img src="https://img.stage1st.com/forum/202506/11/102854ratmftziwtct1fsb.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQklk-bdl2K13T1kShs-a0.jpg</strong> (40.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:28 上传
+
+尼安不用说了，看上去像正常人，其实是个疯逼。
+
+*****
+
+####  楽園のエル  
+##### 18416#       发表于 2025-6-11 10:31
+
+<img src="https://img.stage1st.com/forum/202506/11/103048zqzdcknmmx2myxxq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (208.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:30 上传
+
+草啊以为宇宙怪兽要出来了 一炮给我干TOP去了是吧
+
+
+*****
+
+####  猪突猛进R  
+##### 18417#       发表于 2025-6-11 10:32
+
+一开始我以为是阿克西斯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楠城旧篱  
+##### 18418#       发表于 2025-6-11 10:36
+
+<blockquote>猪突猛进R 发表于 2025-6-11 10:32
+一开始我以为是阿克西斯</blockquote>
+直播时也有人在刷,而且毒气那段幻视原力锁喉hhh
+

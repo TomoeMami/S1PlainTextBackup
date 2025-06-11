@@ -3311,3 +3311,14 @@ x终于要登场了
 说起来前段时间 买了个键盘 说是蓝色 图里看着也是蓝色 到手发现怎么看都是绿色 和图里也不一样 ...</blockquote>
 后来呢？
 
+
+*****
+
+####  失落之翼  
+##### 290#       发表于 2025-6-11 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67913730&amp;ptid=2125794" target="_blank">fuochai 发表于 2025-6-10 16:12</a>
+
+幸运青</blockquote>
+上海青<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
