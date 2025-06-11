@@ -10764,3 +10764,45 @@ gqux机魂是修司不说了前面有人 ...</blockquote>
 
 尤玛恩托攻击效果像是魔界花一口把猎物吞进肚子里了
 
+
+*****
+
+####  岸浪白野  
+##### 18721#       发表于 2025-6-11 20:09
+
+[X 上的 バンプレストブランド(BANDAI SPIRITS)：“＼パイロットスーツ姿のマチュたちがぬいぐるみに🌠／ 『機動戦士Gundam #GQuuuuuuX』（ジークアクス）から、ともぬいが登場📢 おでかけのお供にピッタリなデフォルメぬいぐるみです🎶 6月24日(火)よりクレーンゲーム景品で順次登場✨ [url]https://t.co/GpKnCJG3S3](https://x.com/BANPRE_PZ/status/1932754728615882885) @G_GQuuuuuuX #ジークアクス [https://t.co/PUa5AhjgTj](https://t.co/PUa5AhjgTj)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/200947yo55z19ryoh4eh5v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 20:09 上传
+
+
+*****
+
+####  岸浪白野  
+##### 18722#       发表于 2025-6-11 20:14
+
+[X 上的 Amazio：“ギレンの秘書官可愛すぎ 別荘ひきこもるのも納得 #ジークアクス　#GQuuuuuuX 　＃ギレン　＃セシリア [url]https://t.co/tQCub8uuqO](https://x.com/amaizio/status/1932635835737997486)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/201356r3rc3kj9aprhh3pp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 20:13 上传
+
+[X 上的 しおたん：“愛人がいたのか…！！！ 部屋でいいこいいこしてもらってたんですね… [url]https://t.co/LIuIuJTwt7](https://x.com/dokata_s/status/1932743140248879168)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/201417bzcow5vvgbcp6ucb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 20:14 上传
+
