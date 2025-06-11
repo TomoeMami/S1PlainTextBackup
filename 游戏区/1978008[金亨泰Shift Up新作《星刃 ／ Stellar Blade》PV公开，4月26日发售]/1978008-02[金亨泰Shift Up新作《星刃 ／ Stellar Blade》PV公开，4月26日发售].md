@@ -532,3 +532,225 @@ MD 首发的PS5版不给红莲皮肤CEKY 真是大冤种呀
 
 我要看油腻的师姐<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 2284#       发表于 2025-6-11 14:59
+
+完整版已预载完毕，我问了kimi说是明天早上6点解锁？
+
+那个手游码我也用不上想出，有人要吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 2285#       发表于 2025-6-11 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919350&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-11 14:27</a>
+啥意思 是说ps5只能重新买一份完整版才有码？ 光买dlc没有？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没错
+但是psn商店的机制是你买过初版就买不了完全版
+就算你真的想花这个冤枉钱都没处花
+
+*****
+
+####  alucardcz  
+##### 2286#       发表于 2025-6-11 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919664&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-11 15:12</a>
+
+没错
+
+但是psn商店的机制是你买过初版就买不了完全版
+
+就算你真的想花这个冤枉钱都没处花 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开小号！
+
+*****
+
+####  Awanano  
+##### 2287#       发表于 2025-6-11 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919441&amp;ptid=1978008" target="_blank">liuguokobe 发表于 2025-6-11 14:40</a>
+
+话说有人要nikki的码么？我不玩那个手游</blockquote>
+可以要，怎么出呢
+
+*****
+
+####  NameLess2501  
+##### 2288#       发表于 2025-6-11 15:29
+
+<blockquote>darkangel0224 发表于 2025-6-10 15:33
+如果开了垂直同步，再开NVIDIA reflex感觉很难挡，关了能挡下一半；不开垂直同步，60Hz显示器又怕画面撕 ...</blockquote>
+60Hz显示器，不开帧生成有160多帧，没感到明显的画面撕裂。
+
+完美格挡时有瞬间的慢动作吧。BOSS的连击被完美格挡时感觉节奏更慢一点。
+
+动作序列感觉是优点，不用像黑猴似的卡着后摇按键，按早了无效输入，按晚了开启新一轮连招。
+
+试玩平A没啥收益，砍多了用出来不能取消的动作就要吃瘪了。
+
+*****
+
+####  liuguokobe  
+##### 2289#       发表于 2025-6-11 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919799&amp;ptid=1978008" target="_blank">Awanano 发表于 2025-6-11 15:29</a>
+
+可以要，怎么出呢</blockquote>
+私信告诉你
+
+*****
+
+####  darkangel0224  
+##### 2290#       发表于 2025-6-11 16:33
+
+<blockquote>NameLess2501 发表于 2025-6-11 15:29
+60Hz显示器，不开帧生成有160多帧，没感到明显的画面撕裂。
+
+完美格挡时有瞬间的慢动作吧。BOSS的连击被完 ...</blockquote>
+昨晚试了试不限帧数，关掉垂直同步，进了QTE特写，毫无悬念的撕裂了
+
+*****
+
+####  zero33333  
+##### 2291#       发表于 2025-6-11 16:52
+
+这码值多少钱
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 2292#       发表于 2025-6-11 16:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">20-30
+
+*****
+
+####  theworld  
+##### 2293#       发表于 2025-6-11 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67911673&amp;ptid=1978008" target="_blank">爱吃冻鳗的猫 发表于 2025-6-10 10:08</a>
+
+这游戏难吗？感觉游戏动力是收集衣服，要不要直接选最低难度玩算了</blockquote>
+飞行道具是超级轮椅的无脑技能随便打，没难度的
+
+*****
+
+####  jacket  
+##### 2294#       发表于 2025-6-11 20:38
+
+大脸小脸合影拍出了不同图层的效果
+
+[https://x.com/zennyrt/status/1932732745681416207](https://x.com/zennyrt/status/1932732745681416207)
+<img src="https://tupian.li/images/2025/06/11/684976aecc4ff.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  新庄運切  
+##### 2295#       发表于 2025-6-11 23:00
+
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智
+
+*****
+
+####  h122h  
+##### 2296#       发表于 2025-6-12 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922399&amp;ptid=1978008" target="_blank">新庄運切 发表于 2025-6-11 23:00</a>
+
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智 ...</blockquote>
+steam显示还有5个小时解锁，可能key要解锁之后才会发。
+
+*****
+
+####  爱撕衣魔刃  
+##### 2297#       发表于 2025-6-12 00:20
+
+PS版也给旗袍了。
+
+*****
+
+####  袄_偶滴小乔  
+##### 2298#       发表于 2025-6-12 00:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">金亨泰这人是每次事到临头突然显示出脑子有坑的一面来，PS5剑星首发也是，临发售了说我出个补丁给你两件衣服加点布料，被人骂了一圈然后才过段时间更新两件新的同款换色布料减少的说我补偿。
+
+*****
+
+####  黑上シグマ  
+##### 2299#       发表于 2025-6-12 00:28
+
+<blockquote>引用第2274楼h122h于2025-06-12 00:08发表的  :
+
+新庄運切 发表于 2025-6-11 23:00太好了，预购豪华版的人不配有cdkey，shift ......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">他说的应该是PS版拿不到手游码的事
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  mikimk3  
+##### 2300#       发表于 2025-6-12 00:41
+
+MD 首发的PS5版不给红莲皮肤CEKY 真是大冤种呀
+
+*****
+
+####  xmakoto  
+##### 2301#       发表于 2025-6-12 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922399&amp;ptid=1978008" target="_blank">新庄運切 发表于 2025-6-11 23:00</a>
+太好了，预购豪华版的人不配有cdkey，shift up还是这么弱智
+
+预购和买了dlc的我也是弱智 ...</blockquote>
+红莲皮咬进游戏游玩2小时后，开箱子才能拿到。
+
+*****
+
+####  LOLITA  
+##### 2302#       发表于 2025-6-12 01:02
+
+买了完整版，等解锁了，幸亏去年忍住了没买PS5<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 2303#       发表于 2025-6-12 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922726&amp;ptid=1978008" target="_blank">黑上シグマ 发表于 2025-6-12 00:28</a>
+
+他说的应该是PS版拿不到手游码的事
+
+----发送自 STAGE1 App for Android.</blockquote>
+哦哦，不好意思，我搞错了……
+
+*****
+
+####  哈迪斯兜帽  
+##### 2304#       发表于 2025-6-12 02:59
+
+几点解锁
+
+我要看油腻的师姐<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anonymous_User  
+##### 2305#       发表于 2025-6-12 06:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922959&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-12 02:59</a>
+
+几点解锁
+
+我要看油腻的师姐</blockquote>
+已经解锁了
+
