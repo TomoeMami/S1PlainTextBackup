@@ -6638,3 +6638,28 @@ zion男儿的灵魂 纯~~
 鸡瘟内战死一片，接下来肉眼可见地往地球图图的行为要被制止
 联邦又躺赢了，我就说只要啥都不干天天别墅吃喝腐败就行吧
 
+
+*****
+
+####  CCMkIII  
+##### 18395#       发表于 2025-6-11 09:49
+
+紫婆毒杀这一段是不是z里哈曼还是希洛克也用过？瓶子好像都是类似的。那最后鸭子如果要杀紫婆会不会也换一种Z时代杀法？
+
+比如说开红色Z高达（GQX式样）西瓜冰紫婆之类的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinoverse  
+##### 18396#       发表于 2025-6-11 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866821&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-5-30 15:28</a>
+
+尤玛恩托是个吃恒星的，虽然放高达这里肯定不会有如此夸张的威力
+
+但反正不会是啥好玩意就是了，“星之贪 ...</blockquote>
+看我说的一点都没错吧，尤玛恩托这名字起的过于合适了
+
+有时候不得不佩服这些老害的文化造纸<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

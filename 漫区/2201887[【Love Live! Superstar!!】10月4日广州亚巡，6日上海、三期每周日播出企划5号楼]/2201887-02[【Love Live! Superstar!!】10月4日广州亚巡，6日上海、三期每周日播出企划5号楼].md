@@ -66,3 +66,11 @@ StarRise事务所
 
 <img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太难受了 祝花花早日康复
 
+
+*****
+
+####  奥柏伦亲王  
+##### 1627#       发表于 2025-6-11 09:54
+
+无话可说咯，狗比事务所早点破产吧
+
