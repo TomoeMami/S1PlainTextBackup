@@ -9410,3 +9410,72 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ftyaid  
+##### 18631#       发表于 2025-6-11 15:18
+
+这两个人一个没头盔，一个把头盔摘了
+
+要怎么在宇宙中下机1V1复刻鲁鲁修呢
+
+支持打成核心战机对射<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 18632#       发表于 2025-6-11 15:19
+
+4chan那个自称staff的“剧透”如果是真的，说不定还真像前几页楼友猜的，GQX的机魂是未来跳跃过来的修司，所以迄今为止只有麻球上来就能开，又是突破大气层伸手抱紧，又是下坠时自动弹出核心战机的，索顿里发消息给麻球开门指路去格纳库。喵安是坐上来好一会儿修司机魂认出来了才给她开，一看喵安不想开就把她丢出去了。蓝眼模式就是修司机魂觉醒，蓝色就很修司嘛<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 18633#       发表于 2025-6-11 15:22
+
+说到紫婆送基连头部beam，午饭的时候打开那一集和同事一起看，同事被粗大的爆头beam、在失重环境里轻飘飘弹来弹去的大基、语气过于平静的“这不是基连总帅嘛”给震惊了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saber2000  
+##### 18634#       发表于 2025-6-11 15:22
+
+<blockquote>无念 发表于 2025-6-11 15:14
+那我希望打成核心战机打核心战机这个真没拍过
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+惊异扎古对创制强袭
+
+*****
+
+####  fireadol  
+##### 18635#       发表于 2025-6-11 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917916&amp;ptid=2209276" target="_blank">Libartas 发表于 2025-6-11 10:44</a>
+
+查普曼这名字好熟悉，就是想不起来在哪登场过了</blockquote>
+武斗传英国冠军啊
+
+*****
+
+####  cih  
+##### 18636#       发表于 2025-6-11 15:24
+
+<blockquote>无念 发表于 2025-6-11 15:00
+但他搞强化人和复制人啊，他只是否认新人类又不是否认塞可缪，不然这大炮的机制也是用塞可缪引导他怎么眼 ...</blockquote>
+他就是不相信新人类的神棍力，怎么会拿来作王牌？他可重来没搞过赛克谬，复制人和强化人那是一回事吗？🤗而且这片里的大鸡真明白这修仙炮的机制？知道一炮能让阿巴库上天还会全放给紫婆？
+
+*****
+
+####  七里由馬  
+##### 18637#       发表于 2025-6-11 15:25
+
+<blockquote>adretyu67. 发表于 2025-6-11 13:55
+问题是大扎姆是0079的机子啊，时代进步85年怎么也得开发出绿螳螂（gqux ver）吧
+
+结果还在死命堆大扎姆。
+</blockquote>
+就游戏里的数据原版大扎用到Zz都没啥问题，gqx的可能性能还升级了一丢丢？
+

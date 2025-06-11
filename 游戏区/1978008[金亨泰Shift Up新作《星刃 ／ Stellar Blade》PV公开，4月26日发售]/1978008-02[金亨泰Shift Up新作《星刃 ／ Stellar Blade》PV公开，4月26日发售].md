@@ -327,3 +327,18 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 但是psn商店的机制是你买过初版就买不了完全版
 就算你真的想花这个冤枉钱都没处花
 
+
+*****
+
+####  alucardcz  
+##### 2265#       发表于 2025-6-11 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919664&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-11 15:12</a>
+
+没错
+
+但是psn商店的机制是你买过初版就买不了完全版
+
+就算你真的想花这个冤枉钱都没处花 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开小号！
+
