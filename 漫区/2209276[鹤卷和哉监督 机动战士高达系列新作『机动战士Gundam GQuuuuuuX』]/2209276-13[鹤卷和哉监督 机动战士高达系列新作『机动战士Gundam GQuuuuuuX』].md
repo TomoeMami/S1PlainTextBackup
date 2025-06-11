@@ -10381,3 +10381,49 @@ side6分手后，喵安既无颜面对蕃茄，同时又想念修司。
 
 声优说后面修司会有很让人意外的展开，就看怎么写了。
 
+
+*****
+
+####  七七見奈波  
+##### 18686#       发表于 2025-6-11 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920293&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-11 16:41</a>
+
+有內容或者圖嗎？
+
+日本也有人猜GQX機魂是修司，而且修司名字和渚薫一樣在玩文字遊戲：</blockquote>
+[https://stage1st.com/2b/forum.ph ... 76&amp;pid=67916800](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2209276&amp;pid=67916800)
+
+指路本楼459页#18335
+
+
+*****
+
+####  缪斯替  
+##### 18687#       发表于 2025-6-11 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920806&amp;ptid=2209276" target="_blank">帆前 发表于 2025-6-11 17:45</a>
+
+六、脱出的夏亚究竟起一个什么作用？
+
+夏亚不能没有作用吧，那可是夏亚啊。</blockquote>
+关于翻译问题，原文很清楚，是 alphacide alpha+cide
+
+alpha就是阿尔法，第一个希腊字母，可以引申为王牌吧
+
+cide是来自拉丁语的后缀，几乎可以等同于killer，表示XX杀手的后缀
+
+所以原文的字面意思就是阿尔法杀手，而王牌杀手则是按引申含义翻译的结果
+
+*****
+
+####  YU_JI  
+##### 18688#       发表于 2025-6-11 17:57
+
+<blockquote>帆前 发表于 2025-6-11 17:45
+六、脱出的夏亚究竟起一个什么作用？
+
+夏亚不能没有作用吧，那可是夏亚啊。
+</blockquote>
+王牌杀手是夏日幻听的翻译吧，他们不是出了名的xjb翻？
+
