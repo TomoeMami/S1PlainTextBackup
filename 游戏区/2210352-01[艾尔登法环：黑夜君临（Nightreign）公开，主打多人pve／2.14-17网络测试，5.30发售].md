@@ -8706,3 +8706,17 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  usodakedo  
+##### 856#       发表于 2025-6-11 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922107&amp;ptid=2210352" target="_blank">doublehit 发表于 2025-6-11 21:56</a>
+这癫火该咋打啊，用上癫火印记感觉也没啥用
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+破阵可以选用无赖，无赖受伤后会积攒怒气，有特效提示，此时再用小技能就会升级，足够打破山羊的罩子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
