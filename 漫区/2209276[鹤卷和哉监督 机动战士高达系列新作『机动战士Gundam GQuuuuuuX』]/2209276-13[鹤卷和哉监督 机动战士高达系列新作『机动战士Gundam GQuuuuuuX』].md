@@ -6968,3 +6968,137 @@ zion男儿的灵魂 纯~~
 
 所以有人双标喵安也正常
 
+
+*****
+
+####  岸浪白野  
+##### 18425#       发表于 2025-6-11 10:49
+
+[X 上的 バンコレ！🔴バンダイファッション【公式】：“機動戦士Gundam GQuuuuuuX マチュの制服ニット [url]https://t.co/02J1rat7ph](https://x.com/BANDAIFN/status/1932573975701565473) マチュが制服着用時に着ているニットをイメージしたアイテムが登場！ 2025年6月11日（水）12時よりご注文受付開始！！ #GQuuuuuuX #ジークアクス [https://t.co/WOzKhnGl0S](https://t.co/WOzKhnGl0S)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/104903hzvygewvxde7l9uy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:49 上传
+
+[X 上的 バンコレ！🔴バンダイファッション【公式】：“機動戦士Gundam GQuuuuuuX マチュのパイロットスーツ ジャージ [url]https://t.co/Kj2Ai02h1t](https://x.com/BANDAIFN/status/1932574055812759931) マチュが着用しているパイロットスーツをイメージしたジャージです！ ポメラニアンズマークの缶バッジが付属します。 2025年6月11日（水）12時よりご注文受付開始！！ #GQuuuuuuX #ジークアクス [https://t.co/hmhWGtllKZ](https://t.co/hmhWGtllKZ)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/104922vxrc00zqk1kfcbrk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.78 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:49 上传
+
+[X 上的 バンコレ！🔴バンダイファッション【公式】：“機動戦士Gundam GQuuuuuuXハイバリーハウス学園 校章ピンズ [url]https://t.co/vWAP1V7TSs](https://x.com/BANDAIFN/status/1932574325066150322) マチュが通っているハイバリーハウス学園の校章ピンズが登場！ 2025年6月11日（水）12時よりご注文受付開始！！ #GQuuuuuuX #ジークアクス [https://t.co/hOsMz9qSnu](https://t.co/hOsMz9qSnu)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/104945edkzs99f6x68dy6y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:49 上传
+
+*****
+
+####  molemole  
+##### 18426#       发表于 2025-6-11 10:50
+
+那么gq的小丑夏亚到底想干什么呢，已经第十集了，还是搞不清他想干什么
+
+*****
+
+####  岸浪白野  
+##### 18427#       发表于 2025-6-11 10:51
+
+[X 上的 バンダイ キャンディ【公式】：“＜怒涛の展開から目が離せない…！＞ 『機動戦士Gundam #GQuuuuuuX 』（#ジークアクス ） カードウエハースは、8月発売予定！！ 人気の機体も描き下ろしイラストで 多数ラインナップ！ 高レアは豪華箔押し仕様！ この機会をお見逃しなく！ [url]https://t.co/AU0PHeBHfs](https://x.com/candytoy_c/status/1932603753351557319) [https://t.co/obmLqo0N7g](https://t.co/obmLqo0N7g)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/105113ncjq5ehvj4mqkmdj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:51 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 18428#       发表于 2025-6-11 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917916&amp;ptid=2209276" target="_blank">Libartas 发表于 2025-6-11 10:44</a>
+
+查普曼这名字好熟悉，就是想不起来在哪登场过了</blockquote>
+我知道你想说G高达里的狮王争霸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+G一串字母也确实NETA了G高达。
+
+<img src="https://img.stage1st.com/forum/202506/11/105321m656guihbcsdmczs.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQklk-j0wmK1pT3cSu0-fs.jpg</strong> (65.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/11/105321e7b5fmnk2bmwf8zf.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (35.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:53 上传
+
+*****
+
+####  银川智将Kuroky  
+##### 18429#       发表于 2025-6-11 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916524&amp;ptid=2209276" target="_blank">seedees3 发表于 2025-6-11 01:36</a>
+
+基连死的也太草率了吧，铺垫了两三集竟然直接下毒解决，你们双方斗得这么厉害就没人想到对方会用这招吗，搞 ...</blockquote>
+咋了，原作背后一枪爆头就很有铺垫吗
+
+*****
+
+####  Evomenon  
+##### 18430#       发表于 2025-6-11 10:56
+
+夏亚要是没在尤恩托玛里掺点料，那我真要看不起他了。既不当复仇王子，又没有阻止紫婆的反人类行为，还让两个拉拉都痛苦不已，
+正史夏亚只是有些丢人之处，哪有这么窝囊啊……
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  妄想系同盟  
+##### 18431#       发表于 2025-6-11 10:56
+
+效命于基连·扎比，他肩负着指挥第58营和殖民卫星镭射炮的任务。在得知镭射炮真正的目标之前，他监督了一次以镭射炮一半功率进行的试射。
+
+当接到向阿·巴瓦·库开火的命令时，其中包括要攻击伦道夫·魏格尔曼中将的指挥中心以及基西莉亚·扎比的战舰，他表现得若无其事，还假装瞄准系统出现故障来欺骗船员。他深信自己是最高指挥官的同谋，因此觉得自己很安全。然而他不知道的是，基连早已派兰巴·拉尔和其他秘密特工来除掉吉罗姆。
+
+兰巴·拉尔及其手下一到，吉罗姆便迅速开始推诿责任，试图把过错推到自己的下属身上，然而这并非兰巴的任务，吉罗姆当场就被开枪打死了。
+
+是初钢小说么
+
+*****
+
+####  AraTurambar  
+##### 18432#       发表于 2025-6-11 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917944&amp;ptid=2209276" target="_blank">黑哥啥时改密码 发表于 2025-6-11 10:47</a>
+
+也不算洗吧 就是动机让人绷不住，杀了这么多人还没有所谓“大义”
+
+不过有没有大义真的重要吗 
+
+ 吉翁图宇 ...</blockquote>
+夏亚难道不是公认的历史级别的小丑吗，翻案过吗？
+
