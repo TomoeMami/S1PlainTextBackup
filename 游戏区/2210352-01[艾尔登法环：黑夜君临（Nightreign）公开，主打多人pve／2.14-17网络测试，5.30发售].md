@@ -8692,3 +8692,17 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 我觉得那种单纯打个boss，什么特殊物品和事件都不用触发的追忆还要进特殊追忆匹配池就很奇葩，比如人偶妹和铁眼追忆半天匹配不到人，就不能直接把这种追忆算在普通匹配池里面吗？
 
+
+*****
+
+####  ohi.02  
+##### 855#       发表于 2025-6-11 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922107&amp;ptid=2210352" target="_blank">doublehit 发表于 2025-6-11 21:56</a>
+这癫火该咋打啊，用上癫火印记感觉也没啥用
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+这个boss的重点还是破阵，前面几次很好破，后面的需要有弓箭，或者大招直接破罩子，颠火只是会让boss短暂发狂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
