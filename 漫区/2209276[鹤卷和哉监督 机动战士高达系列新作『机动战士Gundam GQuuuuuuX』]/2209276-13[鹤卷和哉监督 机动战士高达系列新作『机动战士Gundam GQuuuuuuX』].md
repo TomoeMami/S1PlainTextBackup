@@ -9508,3 +9508,29 @@ G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/im
 
 这么一想不会真死的是影武者吧，基连这里还有很多扣子没收啊
 
+
+*****
+
+####  无念  
+##### 18641#       发表于 2025-6-11 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919777&amp;ptid=2209276" target="_blank">七里由馬 发表于 2025-6-11 15:25</a>
+就游戏里的数据原版大扎用到Zz都没啥问题，gqx的可能性能还升级了一丢丢？ ...</blockquote>
+大扎姆的I立场我记得和炮是冲突的，开炮不能用，不然绿螳螂也不用改成三个小的立场中间空隙放炮口
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  asdhai  
+##### 18642#       发表于 2025-6-11 15:37
+
+真要来句把修酱当父亲那我要给满分了
+
+*****
+
+####  cayon  
+##### 18643#       发表于 2025-6-11 15:40
+
+这两女人本来就没啥格局，都谈不上什么丢不丢人
+
