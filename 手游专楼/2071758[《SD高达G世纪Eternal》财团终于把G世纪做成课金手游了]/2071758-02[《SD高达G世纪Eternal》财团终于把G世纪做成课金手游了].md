@@ -3956,3 +3956,15 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 还有两集，估计就绿叔叔+首席了吧</blockquote>
 不知道下集的战斗能不能顺便给GQUX追加武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然只能一辈子斧王了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 1840#       发表于 2025-6-11 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918880&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-6-11 13:07</a>
+不知道下集的战斗能不能顺便给GQUX追加武器不然只能一辈子斧王了</blockquote>
+追加武器我就sp化<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

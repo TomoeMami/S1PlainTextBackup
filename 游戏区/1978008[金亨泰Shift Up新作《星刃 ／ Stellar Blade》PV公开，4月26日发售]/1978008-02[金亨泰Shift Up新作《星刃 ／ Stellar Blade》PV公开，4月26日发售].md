@@ -297,3 +297,11 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啥意思 是说ps5只能重新买一份完整版才有码？ 光买dlc没有？
 
+
+*****
+
+####  liuguokobe  
+##### 2262#       发表于 2025-6-11 14:40
+
+话说有人要nikki的码么？我不玩那个手游<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

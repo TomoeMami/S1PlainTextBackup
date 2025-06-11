@@ -9156,3 +9156,65 @@ fred早就建造完成了，只差个驾驶员。玫瑰是失踪了没办法
 说起来，夏利亚难道不知道喵安被紫婆拐走了吗？gfred和喵的情报完全没给番茄啊，他明明是知道GQ有两个驾驶 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得吧，绿叔叔和玛秋在一起这段时间里绿叔叔大概已经摸清楚这三个人之间的塑料关系了，所以可能说不说都无所谓了吧
 
+
+*****
+
+####  猪突猛进R  
+##### 18606#       发表于 2025-6-11 14:36
+
+一般人了解了泽克诺瓦：我们来试试远距离传送吧。
+
+扎比家：我们来造个大杀器吧。
+
+*****
+
+####  windlikeman  
+##### 18607#       发表于 2025-6-11 14:40
+
+前三次zeknova发功都在爆心 而且发功的人一起传走了
+
+这次手电筒把远方的目标先转移到眼前 然后在不带走发功本体的情况下打包传送走 
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉黑科技多了 已经不是一个东西了
+
+*****
+
+####  无念  
+##### 18608#       发表于 2025-6-11 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919320&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 14:24</a>
+这图迟早变成梗</blockquote>
+单看这图我总觉得这人应该出现在柯南剧场版<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  银川智将Kuroky  
+##### 18609#       发表于 2025-6-11 14:44
+
+基连扎比，你无所畏惧，我知道你无比坚毅
+
+*****
+
+####  无念  
+##### 18610#       发表于 2025-6-11 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919440&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-6-11 14:40</a>
+前三次zeknova发功都在爆心 而且发功的人一起传走了
+
+这次手电筒把远方的目标先转移到眼前 然后在不带走发功 ...</blockquote>
+我突然想到是逆A世界线的人类不会就是这么冲出太阳系的吧，别大结局是番茄回归日常N个百年后飘来一台turnX啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+老登：谁告诉你只要补到V/cca的<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暴力s  
+##### 18611#       发表于 2025-6-11 14:45
+
+ohno，夏亚又美美隐身了
+
+这次还能拿到基西利亚的击杀吗
+
