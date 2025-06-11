@@ -474,3 +474,16 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 国gal再垃圾，也是正常请画师的，你ai生成的除非剧本是New++/巅峰龙7/潜伏之赤途这档的，否则想卖给谁？
 
+
+*****
+
+####  零壹贰叁  
+##### 53#       发表于 2025-6-12 05:22
+
+ 本帖最后由 零壹贰叁 于 2025-6-12 05:23 编辑 
+
+想多了，不如设计个玩法做成独游
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国gal现在这个风波你就是新靶子
+
+如果是骗回复当我没说
+
