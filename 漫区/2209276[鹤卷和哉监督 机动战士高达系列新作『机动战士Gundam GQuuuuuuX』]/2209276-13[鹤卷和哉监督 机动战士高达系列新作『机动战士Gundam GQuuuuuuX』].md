@@ -7874,3 +7874,89 @@ side6军警察居然还有麦哲伦，uc的出云小平顶吗这是
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  猪突猛进R  
+##### 18497#       发表于 2025-6-11 11:58
+
+基连国葬演说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/11/115817dnpxrixo6s2oidhx.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQklk-11uqK1pT3cSk1-sg.jpg</strong> (63.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 11:58 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| YU_JI| + 1|这个真看乐了|
+
+查看全部评分
+
+*****
+
+####  Lawliet.L  
+##### 18498#       发表于 2025-6-11 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918421&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 11:50</a>
+
+还是第二集太长了。给个五分钟，少膜点0079分镜把事情说完，剩下的把第三集演完，多一集做个搞笑回发点糖， ...</blockquote>
+这群老东西的“修司”本来就是0079的部分<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 18499#       发表于 2025-6-11 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918480&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 11:58</a>
+
+基连国葬演说</blockquote>
+我知道是玩梗，但是卡尔玛必不会出现了吧。
+
+*****
+
+####  岸浪白野  
+##### 18500#       发表于 2025-6-11 12:02
+
+[X 上的 ガンダムフィギュア／魂ネイションズ公式：“◤機動戦士Gundam GQuuuuuuX 　完成品アクションフィギュア最新情報◢ ✅ S.H.Figuarts ニャアン ✅ METAL ROBOT魂 ＜SIDE MS＞ GFreD 商品化決定。 続報は今後順次公開予定!! #ガンダムフィギュア #t_shf #t_robot #フィギュアーツ #ROBOT魂 #GQuuuuuuX #ジークアクス [url]https://t.co/KaRFVXA5v7](https://x.com/gundam_tamashii/status/1932649257691226595)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/11/120200ncgel6rg1bxj44cu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 12:02 上传
+
+
+*****
+
+####  YU_JI  
+##### 18501#       发表于 2025-6-11 12:04
+
+ 本帖最后由 YU_JI 于 2025-6-11 12:06 编辑 
+
+有没有可能khara这帮人其实是小少爷梦男
+
+*****
+
+####  adretyu67.  
+##### 18502#       发表于 2025-6-11 12:04
+
+鸭子不就是出发去赏紫色老太婆那发命运的火箭筒了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+他肯定知道这大炮造出来就是准备轰基连的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+按照紫婆的玩法，大基只有在啊·巴瓦·库被蒸发或者在本话被毒死两条路<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+毕竟可控zeknova，大基往哪跑都没用
+

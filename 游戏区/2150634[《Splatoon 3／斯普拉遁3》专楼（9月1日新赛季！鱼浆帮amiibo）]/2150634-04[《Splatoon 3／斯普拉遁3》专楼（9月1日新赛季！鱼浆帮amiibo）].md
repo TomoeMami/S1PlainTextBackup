@@ -244,3 +244,23 @@
 
 喷3衍生在美国和欧洲好像已经获得评级了？那岂不是做的差不多了
 
+
+*****
+
+####  秋月孝三  
+##### 5671#       发表于 2025-6-11 11:56
+
+ 本帖最后由 秋月孝三 于 2025-6-11 11:59 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">极地精英配置可以啊
+
+*****
+
+####  sloorz  
+##### 5672#       发表于 2025-6-11 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918395&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2025-6-11 11:45</a>
+
+官推目前在一条一条更新，速度挺慢的</blockquote>
+感谢，刷到了。freeze的设定还是不错的
+
