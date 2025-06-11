@@ -3322,3 +3322,14 @@ x终于要登场了
 幸运青</blockquote>
 上海青<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuochai  
+##### 291#       发表于 2025-6-11 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916762&amp;ptid=2125794" target="_blank">达达葱2 发表于 2025-6-11 06:36</a>
+
+后来呢？</blockquote>
+没了 因为很便宜就接着用了 反正本来也不是按颜色买的
+

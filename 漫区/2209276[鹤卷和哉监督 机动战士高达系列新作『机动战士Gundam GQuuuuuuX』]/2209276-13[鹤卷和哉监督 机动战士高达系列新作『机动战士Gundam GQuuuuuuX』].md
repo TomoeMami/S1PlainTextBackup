@@ -9218,3 +9218,54 @@ ohno，夏亚又美美隐身了
 
 这次还能拿到基西利亚的击杀吗
 
+
+*****
+
+####  plok201  
+##### 18612#       发表于 2025-6-11 14:46
+
+说起技术力，预告GQX那4个黑球也不好说是啥东西，2号机是为了当大杀器启动扳机，1号机按理说应该也和这个大杀器脱不了关系
+
+到时候有多神棍多黑科技根本不敢想<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 18613#       发表于 2025-6-11 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919472&amp;ptid=2209276" target="_blank">暴力s 发表于 2025-6-11 14:45</a>
+ohno，夏亚又美美隐身了
+
+这次还能拿到基西利亚的击杀吗</blockquote>
+包的，搞不好火箭筒爆头改成吉翁号爆头<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">你问我哪来的吉翁号？基连用来守卫大炮的最终兵器不行么？
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 18614#       发表于 2025-6-11 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919480&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-11 14:46</a>
+说起技术力，预告GQX那4个黑球也不好说是啥东西，2号机是为了当大杀器启动扳机，1号机按理说应该也和这个大 ...</blockquote>
+G夸的紫眼模式还没开出来过呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哪怕爆光圈了也是绿眼，还有op限定的青色发光脸
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kcalb  
+##### 18615#       发表于 2025-6-11 14:53
+
+对了，大基你搞的复制人呢？
+
+*****
+
+####  有钱多买小人  
+##### 18616#       发表于 2025-6-11 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919480&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-11 14:46</a>
+说起技术力，预告GQX那4个黑球也不好说是啥东西，2号机是为了当大杀器启动扳机，1号机按理说应该也和这个大 ...</blockquote>
+缩退炉，是手搓缩退炉<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

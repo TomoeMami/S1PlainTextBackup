@@ -638,3 +638,11 @@ O在日本已经半死不活了</blockquote>
 这种游戏估计就卖首发一波，后续会不会再生产都不一定</blockquote>
 对，采取买后期卡带的方案来说，这个是最大的担忧
 
+
+*****
+
+####  Dreammask  
+##### 63#       发表于 2025-6-11 14:55
+
+又发了封邮件确认了下版本的问题，Marvelous的回复是所有地区的版本都没任何差异，所以哪怕是美版卡也得下这12G的更新补丁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
