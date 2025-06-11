@@ -6759,3 +6759,75 @@ zion男儿的灵魂 纯~~
 
 抽象啊。需要第二季才能圆回来。
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 18407#       发表于 2025-6-11 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917617&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 10:09</a>
+ 有一说一“想成为某某人”这个台词是一点问题都没有的，甚至可以说传统到土，问题在于这个某某人是修司，一 ...</blockquote>
+听错的人太多了，官方字幕两个人说的都是想见到
+
+*****
+
+####  猪突猛进R  
+##### 18408#       发表于 2025-6-11 10:19
+
+<img src="https://img.stage1st.com/forum/202506/11/101944sbccfrztbzty5uwr.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQklk-6cs0ZiT3cSsg-g8.jpg</strong> (186.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 10:19 上传
+
+*****
+
+####  ヒトニナル  
+##### 18409#       发表于 2025-6-11 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">想见到那就更难绷了，底层逻辑不是又转回来了
+
+
+*****
+
+####  失落之翼  
+##### 18410#       发表于 2025-6-11 10:24
+
+汤姬丝干嘛第一炮干阿巴瓦空啊，我觉得假冒汤大基的名义让他们顶一下联邦军的反扑有一定可行性嘛<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 18411#       发表于 2025-6-11 10:24
+
+这出场人物的数量，就做12集是不是太浪费资源了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  望江南  
+##### 18412#       发表于 2025-6-11 10:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">这集演出看的令人舒适，kirakira手电筒开启时的人声唱诵bgm+鲸歌太适配了，反观修斯消失时的bgm就让人感觉配的什么玩意
+
+不过细究剧请就有点呃呃了，现在看到ep10了基本可以下定论了，我觉得鹤卷完全就是没写好前面日常的内容，搞得现在人物虽然应该都是符逻辑的，但观众怎么看怎么不对，三人组你们真的熟吗这种问题应该是每个人都想问的。。。
+
+喵安这集如果拉开关的时候多念叨一些紫婆就好了，修斯什么的无关心提一嘴就是了，这样就是一个刻画完美的胆小甚微的只在乎自己周围的难民的角色了，这修斯念的真让人摸头，我看前面几话你们真也没干什么事啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+番茄倒是终于花了9话时间当幼稚鬼并唐突在地球见了拉拉龙场悟道了，虽然巨快速，但，唉，起码画了，就接受吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+修斯？谁？
+
+算了，演出确实有点不错，再看两集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 18413#       发表于 2025-6-11 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917728&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-11 10:24</a>
+
+汤姬丝干嘛第一炮干阿巴瓦空啊，我觉得假冒汤大基的名义让他们顶一下联邦军的反扑有一定可行性嘛 ...</blockquote>
+迪辣子舰队和家兔等人的驻屯地啊，死硬的基连分子。
+
