@@ -342,3 +342,40 @@ ps5版的定价真是肉疼<img src="https://static.stage1st.com/image/smiley/fa
 就算你真的想花这个冤枉钱都没处花 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开小号！
 
+
+*****
+
+####  Awanano  
+##### 2266#       发表于 2025-6-11 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919441&amp;ptid=1978008" target="_blank">liuguokobe 发表于 2025-6-11 14:40</a>
+
+话说有人要nikki的码么？我不玩那个手游</blockquote>
+可以要，怎么出呢
+
+*****
+
+####  NameLess2501  
+##### 2267#       发表于 2025-6-11 15:29
+
+<blockquote>darkangel0224 发表于 2025-6-10 15:33
+如果开了垂直同步，再开NVIDIA reflex感觉很难挡，关了能挡下一半；不开垂直同步，60Hz显示器又怕画面撕 ...</blockquote>
+60Hz显示器，不开帧生成有160多帧，没感到明显的画面撕裂。
+
+完美格挡时有瞬间的慢动作吧。BOSS的连击被完美格挡时感觉节奏更慢一点。
+
+动作序列感觉是优点，不用像黑猴似的卡着后摇按键，按早了无效输入，按晚了开启新一轮连招。
+
+试玩平A没啥收益，砍多了用出来不能取消的动作就要吃瘪了。
+
+
+*****
+
+####  liuguokobe  
+##### 2268#       发表于 2025-6-11 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67919799&amp;ptid=1978008" target="_blank">Awanano 发表于 2025-6-11 15:29</a>
+
+可以要，怎么出呢</blockquote>
+私信告诉你
+
