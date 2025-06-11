@@ -6485,3 +6485,100 @@ zick。。。笑死
 
 2025-6-11 09:25 上传
 
+
+*****
+
+####  mengsu  
+##### 18382#       发表于 2025-6-11 09:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总帅！总帅啊！这路边一条的死法虽然不是不能理解，但还是太喜剧了啊。
+
+这喵安机真就一点主武装没有全靠头花？那你这何必做成ms呢？
+
+照这个速度讲故事剩下两话那肯定是够了，一话对决出胜负，一话打死老太婆包饺子，主角转变的塑造只能靠留白的绿叔叔特训了是吧。
+
+*****
+
+####  Evomenon  
+##### 18383#       发表于 2025-6-11 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917327&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-11 09:30</a>
+总帅！总帅啊！这路边一条的死法虽然不是不能理解，但还是太喜剧了啊。
+
+这喵安机真就一点主武装没有全靠头 ...</blockquote>
+其他武装还是有的，这集打大扎姆就是光枪零距离破防<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  邪恶的shah  
+##### 18384#       发表于 2025-6-11 09:31
+
+反正剧情都这样了，我来脑洞一下
+
+这边的鸭子是主宇宙的鸭子，两边互换了
+
+主宇宙鸭子发现世界这样了就要修正，再杀扎比全家一次，这边的鸭子去主宇宙Z里戴墨镜了
+
+Z打完之后两边又换回来了，所以逆袭的鸭子里性格又全变了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 18385#       发表于 2025-6-11 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916484&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-6-11 01:22</a>
+不好说，第一次泽科诺亚发动的时候玫瑰同步消失
+
+紫婆当时还说了句这就是玫瑰干的吗</blockquote>
+技术人员：“这东西的原理上面的大人物不明白的”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就是，这片子所有小细节都细想不了，全部有问题。
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  rockroxas  
+##### 18386#       发表于 2025-6-11 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917170&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-6-11 09:08</a>
+
+之前一直以为“蔷薇要开花了”指的是艾尔梅斯里的拉拉快醒了，结果从本集来看，指的是手电筒发射？那感觉修 ...</blockquote>
+说不定牢修是直接传送11集的（
+
+直奔主题
+
+
+*****
+
+####  helgarose87  
+##### 18387#       发表于 2025-6-11 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917031&amp;ptid=2209276" target="_blank">偶是潜水者 发表于 2025-6-11 08:48</a></blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/11/093530f0kyf1ulm82fyaeo.png" referrerpolicy="no-referrer">
+
+<strong>1fad5263-6fd3-4eb5-a9ac-317ea6c72bbf.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 09:35 上传
+
+zion男儿的灵魂 纯~~
+
+*****
+
+####  闽明  
+##### 18388#       发表于 2025-6-11 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 18389#       发表于 2025-6-11 09:36
+
+下一集标题是阿尔法杀手们，所以塞克缪Kappa也是阿尔法杀手？为什么执着于去针对一个说不定已经消失了的东西（）
+

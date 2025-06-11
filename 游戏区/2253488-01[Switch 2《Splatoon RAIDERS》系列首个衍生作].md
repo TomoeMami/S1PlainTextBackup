@@ -390,3 +390,32 @@ ns2独占怎么可能是作为喷3的dlc开发的啊
 
 麻球，修斯，尼亚安
 
+
+*****
+
+####  Tachikoma88  
+##### 48#       发表于 2025-6-11 09:26
+
+官中译名：斯普拉遁 涂击队
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 49#       发表于 2025-6-11 09:32
+
+译名挺好的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星野航  
+##### 50#       发表于 2025-6-11 09:32
+
+这译名挺有意思
+
+splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上恒别在说缺人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狠狠期待
+
