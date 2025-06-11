@@ -6663,3 +6663,30 @@ zion男儿的灵魂 纯~~
 
 有时候不得不佩服这些老害的文化造纸<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 18397#       发表于 2025-6-11 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917281&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-11 09:25</a>
+
+一起出击过好几次了，比如挽尊哥捅死四姐那次</blockquote>
+那次虽然是同时在机上但总的来说是鸭子带卡缪潜入骡子自己在打吧
+
+*****
+
+####  Schwarzess  
+##### 18398#       发表于 2025-6-11 10:03
+
+炸掉地球一小部分可能还好说，整个地球炸掉对建在拉格朗日点的全殖民地都有很大影响吧...<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  桜庭ななみ  
+##### 18399#       发表于 2025-6-11 10:03
+
+原版基连死的还挺昭和的，这次居然是被毒死有点娘炮
+
