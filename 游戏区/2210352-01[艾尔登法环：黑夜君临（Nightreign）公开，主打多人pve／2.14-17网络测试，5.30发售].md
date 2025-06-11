@@ -8684,3 +8684,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  serj005  
+##### 854#       发表于 2025-6-11 22:00
+
+我觉得那种单纯打个boss，什么特殊物品和事件都不用触发的追忆还要进特殊追忆匹配池就很奇葩，比如人偶妹和铁眼追忆半天匹配不到人，就不能直接把这种追忆算在普通匹配池里面吗？
+
