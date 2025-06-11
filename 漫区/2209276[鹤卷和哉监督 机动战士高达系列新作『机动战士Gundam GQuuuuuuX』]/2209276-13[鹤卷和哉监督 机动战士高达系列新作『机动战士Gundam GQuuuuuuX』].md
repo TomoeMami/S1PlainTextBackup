@@ -6403,3 +6403,85 @@ NT是灵能者
 
 都没剩两集了，仔细一想这部作品里的年轻一辈的塑造都不太行，喵安唐突抢男人，番茄满脑修鸡君，修鸡拟人零塑造，小森路人吐槽役，首席实锤紫婆忠犬，就算最后两集能大反转也很难挽救之前的观感了。
 
+
+*****
+
+####  yichengyu  
+##### 18374#       发表于 2025-6-11 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916835&amp;ptid=2209276" target="_blank">不会起名 发表于 2025-6-11 07:43</a>
+
+泽克诺瓦的诺瓦是nova，泽克的词源是什么来着</blockquote>
+zick。。。笑死
+
+*****
+
+####  wpcc  
+##### 18375#       发表于 2025-6-11 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916451&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-11 01:17</a>
+
+其实有个问题，魔改手电筒是在玫瑰失踪的情况下建造的，那靠的是什么科技呢？
+
+就像GQX和Fred一样，科技层面 ...</blockquote>
+玫瑰一年战争的时候就在研究了啊 手电筒的技术早就有了 没钱造出来而已
+
+*****
+
+####  hououmon  
+##### 18376#       发表于 2025-6-11 09:20
+
+绿叔叔这是几辈子修来的福分啊
+
+一个人气不高的路人反派，居然能在那么多年后的高达TV正座里拿到个讨喜正派的真男主剧本
+
+*****
+
+####  绞首浪漫派丶  
+##### 18377#       发表于 2025-6-11 09:20
+
+总感觉到现在为止的所有剧情都是为了圆梦鸭螺联手这盘醋包的饺子（Z里好像没有一起上过机？）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 18378#       发表于 2025-6-11 09:23
+
+一股子往鲁鲁修第一季结局狂奔的味道。
+
+真没有续订吗？
+
+*****
+
+####  秋月孝三  
+##### 18379#       发表于 2025-6-11 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916827&amp;ptid=2209276" target="_blank">zzy516232108 发表于 2025-6-11 07:39</a>
+
+我问一句，79if的联邦精英机师塞拉还有消息吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有哥哥的金块，没钱买大豪斯了，估计只能继续服役
+
+
+*****
+
+####  秋月孝三  
+##### 18380#       发表于 2025-6-11 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917253&amp;ptid=2209276" target="_blank">绞首浪漫派丶 发表于 2025-6-11 09:20</a>
+
+总感觉到现在为止的所有剧情都是为了圆梦鸭螺联手这盘醋包的饺子（Z里好像没有一起上过机？） ...</blockquote>
+一起出击过好几次了，比如挽尊哥捅死四姐那次<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 18381#       发表于 2025-6-11 09:25
+
+<img src="https://img.stage1st.com/forum/202506/11/092554p64oix99ooojeowe.jpg" referrerpolicy="no-referrer">
+
+<strong>-4d84dd852970a1f6.jpg</strong> (220.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 09:25 上传
+
