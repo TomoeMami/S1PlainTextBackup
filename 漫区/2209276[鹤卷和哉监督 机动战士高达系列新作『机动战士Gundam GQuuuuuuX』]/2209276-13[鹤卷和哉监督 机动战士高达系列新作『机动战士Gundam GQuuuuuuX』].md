@@ -6582,3 +6582,59 @@ zion男儿的灵魂 纯~~
 
 下一集标题是阿尔法杀手们，所以塞克缪Kappa也是阿尔法杀手？为什么执着于去针对一个说不定已经消失了的东西（）
 
+
+*****
+
+####  丹德里恩  
+##### 18390#       发表于 2025-6-11 09:38
+
+鸭子眼神犀利一转脱出那里笑飞了，一定是去拿火箭筒了吧
+
+*****
+
+####  朋友费小号  
+##### 18391#       发表于 2025-6-11 09:42
+
+<img src="https://img.stage1st.com/forum/202506/11/094209f059khlfo0x0h5hx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 09:42 上传
+
+我支持这对拉郎<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 18392#       发表于 2025-6-11 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916133&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-6-11 00:11</a>
+
+最后俩人百分百要机体互爆，然后互相拔枪对峙，理由是为了争修斯/修酱
+
+笑麻了，那么多宿敌对峙可以抄的，你 ...</blockquote>
+这俩除了抢男人没有一点宿敌感 只能这样写
+
+
+*****
+
+####  Geyorkias  
+##### 18393#       发表于 2025-6-11 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917252&amp;ptid=2209276" target="_blank">hououmon 发表于 2025-6-11 09:20</a>
+
+绿叔叔这是几辈子修来的福分啊
+
+一个人气不高的路人反派，居然能在那么多年后的高达TV正座里拿到个讨喜正派 ...</blockquote>
+非要说那也是79小说先干的<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 18394#       发表于 2025-6-11 09:47
+
+鸡瘟内战死一片，接下来肉眼可见地往地球图图的行为要被制止
+联邦又躺赢了，我就说只要啥都不干天天别墅吃喝腐败就行吧
+

@@ -419,3 +419,21 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 
 狠狠期待
 
+
+*****
+
+####  VVhaleVoice  
+##### 51#       发表于 2025-6-11 09:40
+
+想买凃击队👉买了就想入坑喷喷👉但喷喷3PVP操作菜👉菜就不想玩喷喷3👉不想玩喷喷3就不想入坑喷喷👉不想入坑就不想玩凃击队👉不想玩凃击队但看了预告片👉看了预告片就又想买凃击队……
+
+—— 来自 Google Pixel 8, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  天堂大法  
+##### 52#       发表于 2025-6-11 09:43
+
+这译名真不错<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
