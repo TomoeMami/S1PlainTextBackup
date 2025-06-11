@@ -502,3 +502,23 @@ MD 首发的PS5版不给红莲皮肤CEKY 真是大冤种呀
 预购和买了dlc的我也是弱智 ...</blockquote>
 红莲皮咬进游戏游玩2小时后，开箱子才能拿到。
 
+
+*****
+
+####  LOLITA  
+##### 2281#       发表于 2025-6-12 01:02
+
+买了完整版，等解锁了，幸亏去年忍住了没买PS5<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 2282#       发表于 2025-6-12 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922726&amp;ptid=1978008" target="_blank">黑上シグマ 发表于 2025-6-12 00:28</a>
+
+他说的应该是PS版拿不到手游码的事
+
+----发送自 STAGE1 App for Android.</blockquote>
+哦哦，不好意思，我搞错了……
+
