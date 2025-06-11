@@ -10806,3 +10806,28 @@ gqux机魂是修司不说了前面有人 ...</blockquote>
 
 2025-6-11 20:14 上传
 
+
+*****
+
+####  ryanghj  
+##### 18723#       发表于 2025-6-11 20:18
+
+笑死
+
+<img src="https://img.stage1st.com/forum/202506/11/201814ioo7j3yaqfjrqn9f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-11 20:18 上传
+
+*****
+
+####  rockroxas  
+##### 18724#       发表于 2025-6-11 20:21
+
+要说的话机体本来也不是士兵的私有物
+
+绿木马上边就首席一个适合驾驶gqux，他当成自己专用机也没什么毛病
+
