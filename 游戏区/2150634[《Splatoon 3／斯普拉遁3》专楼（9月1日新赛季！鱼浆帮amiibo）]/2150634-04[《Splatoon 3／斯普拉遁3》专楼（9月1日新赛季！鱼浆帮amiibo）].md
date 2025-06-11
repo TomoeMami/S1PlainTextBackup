@@ -202,3 +202,30 @@
 
 贴牌刮水刀 冰壶+rpg
 
+
+*****
+
+####  sloorz  
+##### 5667#       发表于 2025-6-11 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918176&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2025-6-11 11:18</a>
+
+官推已经在更新武器配置了
+
+贴牌针管 毒雾+雨</blockquote>
+哪里能看到详细的啊。
+
+精英枪能有三角雷实在开心....
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5668#       发表于 2025-6-11 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918388&amp;ptid=2150634" target="_blank">sloorz 发表于 2025-6-11 11:44</a>
+
+哪里能看到详细的啊。
+
+精英枪能有三角雷实在开心....</blockquote>
+官推目前在一条一条更新，速度挺慢的
+
