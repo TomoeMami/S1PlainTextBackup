@@ -299,3 +299,49 @@
 
 文森+雨帘有点恶心了，<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5677#       发表于 2025-6-11 17:04
+
+ 本帖最后由 Kiyohara_Yasuke 于 2025-6-11 17:09 编辑 
+
+开始第二波武器更新
+
+贴牌小绿 水球+帝王乌贼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+贴牌热泡 跳点+螃蟹
+
+彩喷 水球+帷幕
+
+*****
+
+####  KBAC  
+##### 5678#       发表于 2025-6-11 17:04
+
+小绿水球大王乌贼卧槽
+
+*****
+
+####  Pumpkin_ccc  
+##### 5679#       发表于 2025-6-11 17:06
+
+这把小绿太漂亮了，配置也逆天
+
+
+*****
+
+####  KBAC  
+##### 5680#       发表于 2025-6-11 17:12
+
+喷枪什么玩意，原先一代铜喷的水球大王乌贼给小绿了
+
+
+*****
+
+####  秋月孝三  
+##### 5681#       发表于 2025-6-11 17:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水球大王这配置一代是给铜喷的，感受一下
+

@@ -10209,3 +10209,49 @@ side6分手后，喵安既无颜面对蕃茄，同时又想念修司。
 米津玄師シングル発売記念「ジークアクス」×「メダリスト」つるまいかだ描き下ろしイラスト公開
 <img src="https://p.sda1.dev/24/785d0280ca6962d9de0cfc2e1493c437/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 18672#       发表于 2025-6-11 17:09
+
+明显没有骡子出场余地了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最后可以当个彩蛋吧
+
+*****
+
+####  ヒトニナル  
+##### 18673#       发表于 2025-6-11 17:09
+
+在我看来GFred的自主性远不及GQuuuuuuX来的强，鸡夸的各种骚操作（特别是伸手抱妹）真的幻视ブレバーン<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以二号机里可能根本就没机魂
+
+*****
+
+####  xwz  
+##### 18674#       发表于 2025-6-11 17:09
+
+别把TURNA传过来就好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leleq  
+##### 18675#       发表于 2025-6-11 17:12
+
+如果最后结局是一炮吧93骡鸭轰出来那我就理解为啥光头前两天说要拍新高达了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 18676#       发表于 2025-6-11 17:13
+
+说到底这个计划为什么非要做两台高达，大手电那堆触手看起来在G夸身上也根本没有能插的地方，像是专门和二号机那个密恐面罩适配的
+
+*****
+
+####  Saber琪  
+##### 18677#       发表于 2025-6-11 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920543&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-11 17:09</a>
+在我看来GFred的自主性远不及GQuuuuuuX来的强，鸡夸的各种骚操作（特别是伸手抱妹）真的幻视ブレバーン所以 ...</blockquote>
+牢修机魂说还在发力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
