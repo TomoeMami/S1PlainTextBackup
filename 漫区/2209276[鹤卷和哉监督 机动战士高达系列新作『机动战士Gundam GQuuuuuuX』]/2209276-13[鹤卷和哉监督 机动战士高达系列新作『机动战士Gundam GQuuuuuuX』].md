@@ -6181,3 +6181,42 @@ NT是灵能者
 
 只能说俗物的评价没有任何问题
 
+
+*****
+
+####  wing130083  
+##### 18353#       发表于 2025-6-11 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916353&amp;ptid=2209276" target="_blank">Natsunagi 发表于 2025-6-11 00:56</a>
+
+紫婆是不是说要把整个地球泽克诺瓦掉？</blockquote>
+第二个坐标是扎布罗吧，应该是第二炮扎布罗消失
+
+靠威慑力镇压宇宙和地球
+
+*****
+
+####  wing130083  
+##### 18354#       发表于 2025-6-11 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916358&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-6-11 00:57</a>
+
+我来胡扯一下，二号机全身装了屏蔽精神波的系统，没法进入nt聊天室也没法短距离共享意识
+
+自然也无法被对 ...</blockquote>
+你别说，二号机接蔷薇的时候需要展开密恐头有线连接，还真的有可能
+
+
+*****
+
+####  Evomenon  
+##### 18355#       发表于 2025-6-11 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916915&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-11 08:19</a>
+第二个坐标是扎布罗吧，应该是第二炮扎布罗消失
+
+靠威慑力镇压宇宙和地球 ...</blockquote>
+正常（？）军事指挥肯定是打贾布罗，但紫婆这集亲口说，“以后就没有大马士革香水了”，总不能第二炮专程去打大马士革吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

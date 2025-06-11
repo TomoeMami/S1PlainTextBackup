@@ -3912,3 +3912,14 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ur机体券领完后没动力上线了
 
+
+*****
+
+####  rockroxas  
+##### 1836#       发表于 2025-6-11 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916571&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-6-11 01:55</a>
+
+你队伍的AI也同样会用大招了啊。</blockquote>
+主动控制骗AI的第一发行不通了啊，这PVP就看进攻，能拆解对面阵容的点就这么几个
+
