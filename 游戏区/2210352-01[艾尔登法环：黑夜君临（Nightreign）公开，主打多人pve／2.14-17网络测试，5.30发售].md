@@ -8601,3 +8601,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 野队还真有不会走地图也没看过攻略的路痴一头扎入隐城，把这局完全搞砸的。
 
+
+*****
+
+####  hugosol  
+##### 846#       发表于 2025-6-11 10:44
+
+个人支线在回想里匹配太坐牢了，为什么不干脆全部做成day1能solo去打的或者单挑战，让大家开开心心做完再去野排不好吗<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
