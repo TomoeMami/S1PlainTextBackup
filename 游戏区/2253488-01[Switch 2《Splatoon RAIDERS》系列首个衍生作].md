@@ -526,3 +526,13 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 
 其实splatoon本身也可以翻译成涂击队吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正怎么着都比音译好
 
+
+*****
+
+####  Ollie  
+##### 59#       发表于 2025-6-12 04:36
+
+我就很喜欢英雄模式，关卡设计赞
+
+期待一下新作，等发售了估计会整台新机玩玩
+
