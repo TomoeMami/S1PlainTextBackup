@@ -8728,3 +8728,14 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 癫羊用铁眼打，前3把15级都没过，第4把熟悉招式以后12级过了，战前选异常抗性交易，第一次用普攻破阵，第二次用大招破阵，第三次不破阵让他强化就硬躲。
 
+
+*****
+
+####  全装甲夏亚  
+##### 858#       发表于 2025-6-11 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67920244&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-11 16:34</a>
+
+这游戏的闪退问题真的太变态了，又一个朋友遇到了。我自己虽然不闪退，但是三人黑遇到一个不间断闪退的开黑 ...</blockquote>
+我现在就无限闪退，就算重启也几分钟就闪退，而且还没一点错误提示，就跟直接把游戏关了一样，小高是不是给我攻击键上绑定altF4了
+
