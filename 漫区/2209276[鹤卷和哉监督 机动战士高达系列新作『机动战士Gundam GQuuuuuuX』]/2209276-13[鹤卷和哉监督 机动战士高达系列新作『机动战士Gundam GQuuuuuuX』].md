@@ -7407,3 +7407,167 @@ G一串字母也确实NETA了G高达。
 
 当然，现在没塑造，但是看起来像就是个热爱杀戮的颠婆而已，也没什么道德观念。
 
+
+*****
+
+####  sephal  
+##### 18453#       发表于 2025-6-11 11:19
+
+紫色老太婆是相信新人类的，绿叔叔也明言要创立能让新人类能作为新人类活下去的国家
+也就是说他俩是可以统一战线的，我没理解错吧
+
+*****
+
+####  AraTurambar  
+##### 18454#       发表于 2025-6-11 11:20
+
+蛋糕哥为了避免同学变成恶魔所以把同学都干掉了，但是有没有可能同学会被他干掉就是因为同学其实都不是恶魔。
+
+而当真正的恶魔站在他面前的时候，下毒也没用，手枪也打不中，恶魔的MS甚至主动帮助她反杀。
+
+恶魔不是可以成为的，不是塞克缪装置可以帮你升魔的，而是反过来恶魔注定驾驭GFRED。
+
+*****
+
+####  盐盐盐盐盐  
+##### 18455#       发表于 2025-6-11 11:22
+
+基西莉亚把nt当战争道具用，夏利亚要创造nt不当杀人道具的世界，合作不了一点
+
+*****
+
+####  wpcc  
+##### 18456#       发表于 2025-6-11 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916530&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-6-11 01:39</a>
+
+另还一点，从第八话夏亚的发言和这一话博士的发言来看
+
+Gfed很明确就是启动手电筒用的，然后明知道Gfed在紫 ...</blockquote>
+因为造这货的博士是基连派
+
+*****
+
+####  希望之异热同心  
+##### 18457#       发表于 2025-6-11 11:23
+
+下一话标题是阿尔法杀手啊，当然我不信麻球真会开gqux把红高达和修斯一起砍了。另外预告台词正剧里面基本都不出现的，2个女孩说的话我更倾向是她们站在各自追寻修斯的路上经历的总结。2个女孩确实是为了追男人走到这一步的，但是却又微妙走上2条不同的人生道路，喵安认为引发zeknova就可以再见到牢修，可以把妨碍自己得一切都灭了。麻球追牢修去到地球，和拉拉和夏利亚交心得知的全是新人类悲剧。两个女孩一个作为新人类彻底成为了大人的工具，另一个决定救出沦为工具的新人类。作为她们目的的终极谜底，故事能不能收尾收好就看下集揭秘的牢修的愿望了。
+
+至于你说大人们的斗争？从一开始就纯是三小只青春故事的舞台罢了！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  prattwhitney  
+##### 18458#       发表于 2025-6-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918120&amp;ptid=2209276" target="_blank">seedees3 发表于 2025-6-11 11:10</a>
+
+原作正鏖战中事发突然，本作已经铺垫了好久两兄妹内斗正酣还刚发生一次暗杀未遂，到头来智商240聪明一世 ...</blockquote>
+其实这样很写实
+
+搞政变暗杀这种事情历史上能成功的绝不是周密筹划深谋远虑早早布局双方缠斗已久最后终于成功，最好的办法就是出其不意一下子来个大的，特别是这种闹政变的，最典型的就是周武帝干掉宇文护，当庭用玉珽砸翻，我猜鹤卷他们可能就参考了这个事
+
+*****
+
+####  hsyg  
+##### 18459#       发表于 2025-6-11 11:23
+
+其实这戏老太婆已经无敌了吧，骗了所有人找到了无敌博士做了一个不知道原理的大炮，核心是不知道去了哪里的玫瑰，发射要不知道怎么启动的高达。
+
+就这样钱都能批下来，一堆人看着还能去建这玩意，最后这么无敌强大的博士甚至没个保镖。随便一脚就死了。
+
+紫婆完全就是因果力集合体，怕不是和拉拉一样是鸭子重女。表面是3人组抢男人，其实是紫婆和拉拉抢男人，两个都是因果力战士就是要吃到鸭子的鸡。
+
+
+*****
+
+####  未来起航  
+##### 18460#       发表于 2025-6-11 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917152&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-11 09:05</a>
+相信鹤卷GG，鹤卷GG能用六集做FLCL2，用剩下两集给G夸克斯完美收尾肯定没问题 ...</blockquote>
+top2第四集诺诺就已经能力觉醒了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第五集低谷一集，第六集大团圆。
+这片看到第十集只会让你感慨前面浪费了那么多时间都讲了些什么没用的东西<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  AraTurambar  
+##### 18461#       发表于 2025-6-11 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918222&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-6-11 11:24</a>
+
+top2第四集诺诺就已经能力觉醒了第五集低谷一集，第六集大团圆。
+
+这片看到第十集只会让你感慨前面浪费了 ...</blockquote>
+其实我觉得杀蛋糕哥那集喵安就已经完成了。
+
+麻球完成得有点突兀，完全没交代，一下子在夏利亚面前转变了这么多。
+
+*****
+
+####  银川智将Kuroky  
+##### 18462#       发表于 2025-6-11 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67916827&amp;ptid=2209276" target="_blank">zzy516232108 发表于 2025-6-11 07:39</a>
+
+我问一句，79if的联邦精英机师塞拉还有消息吗</blockquote>
+在月面开了家医院带了个名字很可爱的男规培生
+
+*****
+
+####  EFSF  
+##### 18463#       发表于 2025-6-11 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918005&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-6-11 10:55</a>
+
+咋了，原作背后一枪爆头就很有铺垫吗</blockquote>
+前面铺垫很够的，初代播到后面集数被砍，后面是压缩了些。
+
+但是整篇来说基西莉亚那么动手倒也还好。权力斗争积怨已久这些铺垫确实够的，基西莉亚支持老爹，但是老爹被基连明着轰死了。基连只是以为基西莉亚再怎么样也得大局等稳了再跟他斗，哪知人是上来爆头的。看下来感官不会像这次一样真的路边一条。
+
+*****
+
+####  wpcc  
+##### 18464#       发表于 2025-6-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918213&amp;ptid=2209276" target="_blank">prattwhitney 发表于 2025-6-11 11:23</a>
+
+其实这样很写实
+
+搞政变暗杀这种事情历史上能成功的绝不是周密筹划深谋远虑早早布局双方缠斗已久最后终于 ...</blockquote>
+第五共和国比这个更草台我只能说 除虫射日是纯一时兴起
+
+*****
+
+####  57042711  
+##### 18465#       发表于 2025-6-11 11:27
+
+联邦:该发动筹划数年的月神二反攻作战了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  AraTurambar  
+##### 18466#       发表于 2025-6-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918243&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-11 11:26</a>
+
+前面铺垫很够的，初代播到后面集数被砍，后面是压缩了些。
+
+但是整篇来说基西莉亚那么动手倒也还好。权力 ...</blockquote>
+这次的基连不是明确告诉你是五年没干正事天天和女秘书在一起的基连么。
+
+可能240的智商早就减半了吧。
+
+*****
+
+####  Evomenon  
+##### 18467#       发表于 2025-6-11 11:28
+
+紫婆和胡子叔的矛盾可以用卡缪那句解释吧，“真正应该排除的是灵魂被重力束缚住的人们，但许多人因此而丧生，这是错误的”
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

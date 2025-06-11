@@ -8609,3 +8609,14 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 个人支线在回想里匹配太坐牢了，为什么不干脆全部做成day1能solo去打的或者单挑战，让大家开开心心做完再去野排不好吗<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火红之眼  
+##### 847#       发表于 2025-6-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67917913&amp;ptid=2210352" target="_blank">hugosol 发表于 2025-6-11 10:44</a>
+
+个人支线在回想里匹配太坐牢了，为什么不干脆全部做成day1能solo去打的或者单挑战，让大家开开心心做完再去 ...</blockquote>
+印象中除了有夜王要求的都能day1打吧，整个三四级能solo了，夜王那种也不会和day1 day2有支线的队友冲突来着
+
