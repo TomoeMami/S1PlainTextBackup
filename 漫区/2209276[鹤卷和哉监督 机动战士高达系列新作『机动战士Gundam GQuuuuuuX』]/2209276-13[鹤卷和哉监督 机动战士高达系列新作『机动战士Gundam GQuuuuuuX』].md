@@ -11175,3 +11175,27 @@ GQ的艾尔美斯本来在开发途中，是团队分析了抢来的高达后再
 
 <img src="https://img.stage1st.com/forum/202505/27/230703szr5i1v0ixx0rrzz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 18755#       发表于 2025-6-11 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922334&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-11 22:44</a>
+
+红高达机魂是拉拉还真能说得通，毕竟另一个世界的拉拉一直昏迷不醒，可能是灵魂被塞进了赛可谬里，那修司 ...</blockquote>
+应该是复制不是剪切，也就是拉拉精神有两个，一个留在艾尔美斯里，一个在红高里
+
+我觉得是这样的，gqux作为阿尔法杀手，是可以让艾尔美斯里的拉拉解脱的存在（和第10话夏利亚的经历类似），所以修司和红高（拉拉）一直在寻找合适的人搭乘gqux然后一起去玫瑰来消灭艾尔美斯里的拉拉，这样相当于拉拉以后只在红高里了
+
+红高里的拉拉才是自由的吧？
+
+*****
+
+####  Sliurus  
+##### 18756#       发表于 2025-6-11 23:17
+
+【《 高 达 GQUUUUUUX 》 第 十 一 话 视 听 流 出】 [https://www.bilibili.com/video/B ... 127da17aad2be2d8ddc](https://www.bilibili.com/video/BV1qTMLzGE7G/?share_source=copy_web&amp;vd_source=54786e9294217127da17aad2be2d8ddc)
+
+ai的效果比mod要神经多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
