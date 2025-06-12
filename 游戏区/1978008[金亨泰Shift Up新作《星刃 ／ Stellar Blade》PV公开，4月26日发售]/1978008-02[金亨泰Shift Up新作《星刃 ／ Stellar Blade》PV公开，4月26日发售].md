@@ -2237,3 +2237,15 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 为了展现女主身姿做了各种轻重派生，结果最该缝的offset反倒没做进来，连带着把闪避砍成了三色闪光的对策按钮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  betasecond  
+##### 2452#       发表于 2025-6-13 00:02
+
+打到废土完，开始通马桶，还算有意思。
+
+衣服都有点贵，一般得2/5个底特币，得跑半天。
+
+废土一定记得先把日光塔打完，别和我一样直接去拿电池。
+

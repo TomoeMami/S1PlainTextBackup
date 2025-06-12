@@ -228,3 +228,11 @@ StarLadder公告原文如下：
 对我世界观冲击太大了
 波哈真王朝了
 
+
+*****
+
+####  heseran  
+##### 4740#       发表于 2025-6-12 23:56
+
+替补进major都这么牛逼，被替补的那支队伍得多屌啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

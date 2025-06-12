@@ -14115,3 +14115,18 @@ GQX的三套官方中文人名翻译有很多不同点，不要太在意  ...<
 
 [https://x.com/ninjamaster_73/sta ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/ninjamaster_73/status/1933145828954362004?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
 
+
+*****
+
+####  Toby_dak  
+##### 18986#       发表于 2025-6-12 23:58
+
+强人由光剑变成实体剑，是不是变成对大扎姆专用MS了…………
+
+*****
+
+####  adretyu67.  
+##### 18987#       发表于 2025-6-13 00:04
+
+gqux强人那个不是实体剑，更像是长枪吧
+
