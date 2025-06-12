@@ -576,3 +576,11 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 <img src="https://img.stage1st.com/forum/202506/12/175745c5bzd8cfmhbpmbh5.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ミズタ  
+##### 5705#       发表于 2025-6-12 18:33
+
+遁3有无可能支持1080P 120帧，switch1除了打工鲑鱼泛滥会掉帧，其他时间还蛮稳定的，switch2补丁仅仅为了稳60帧和城镇60真就显得吕布骑狗了
+

@@ -13636,3 +13636,58 @@ LoveLive×高达</blockquote>
 
 当然GQX里也不一定，这个紫婆好像被泽克诺瓦烧坏脑子了，比正史要癫。
 
+
+*****
+
+####  psycho_Gadfly  
+##### 18946#       发表于 2025-6-12 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926330&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-12 17:11</a>
+
+「ちゃやまち推しフェスティバル2025」BNFW出展决定
+
+LoveLive×高达</blockquote>
+怎么能这么生草<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+团长你。。
+
+*****
+
+####  xwz  
+##### 18947#       发表于 2025-6-12 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924567&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-6-12 11:57</a>
+
+总帅能飒爽几分钟呢？</blockquote>
+那个BGM一共几分钟来着？不到2分？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南朝Sonicbbs  
+##### 18948#       发表于 2025-6-12 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922869&amp;ptid=2209276" target="_blank">轮太 发表于 2025-6-12 01:37</a>
+
+这集专门提了一句吉翁首相（橡皮图章）
+
+而这个首相，和绿叔叔的眼镜妹副官是亲戚
+
+既然专门提到这个人，很 ...</blockquote>
+我去查了一下高达人物百科，真没想到这俩是一家子的。
+
+
+*****
+
+####  LadySaazbaum  
+##### 18949#       发表于 2025-6-12 18:31
+
+<blockquote>stevenzero 发表于 2025-6-12 17:53
+女军官希姆斯 巴哈罗夫还在，说明绿叔叔肯定和戴肯派有关系。79年吉恩首相叫达尔西亚 巴哈罗夫，是个戴肯 ...</blockquote>
+这样也能说通………………？
+
+那么比较可行的方案是他自己开MA送走扎比兄妹，小番茄开GQX拆手电筒。绿叔叔自己肯定是奔着送死去的，小番茄的下场难说，可能让副官亲戚给保下来？
+
+而只关注本片拍出来的内容按我的解读也是通顺的。所以就，新入观众和深度观众都能获得还不错的体验（关于绿叔叔部分）
+
+题外话，现在唯一能阻止绿叔叔壮烈牺牲的就只有卖腐一条路了(/ω＼)
+
