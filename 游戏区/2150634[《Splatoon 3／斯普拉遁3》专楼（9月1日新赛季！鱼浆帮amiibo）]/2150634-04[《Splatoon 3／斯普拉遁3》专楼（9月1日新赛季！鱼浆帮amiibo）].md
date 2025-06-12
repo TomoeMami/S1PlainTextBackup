@@ -529,3 +529,13 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 高架下的鱼虎从关卡到终点的路线该不会只有左边一条吧</blockquote>
 基本上是的，右边高台虽然也可以跳上去但是很难走，这图一代就是鱼虎难图
 
+
+*****
+
+####  秋月孝三  
+##### 5702#       发表于 2025-6-12 13:49
+
+ブキチ废话最多的一次<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -78,3 +78,16 @@
 
 不过这年头射击游戏不是looter shooter再没点枪械改造强化内容，那真是一点也玩不下去
 
+
+*****
+
+####  汪达  
+##### 92#       发表于 2025-6-12 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924479&amp;ptid=2252823" target="_blank">夜雨秋水 发表于 2025-6-12 11:40</a>
+
+这种操作模式键盘怎么布局是个问题。
+
+—— 来自 鹅球 v3.5.99</blockquote>
+WASD移动，鼠标射击，1234放小萝莉技能，猜的
+
