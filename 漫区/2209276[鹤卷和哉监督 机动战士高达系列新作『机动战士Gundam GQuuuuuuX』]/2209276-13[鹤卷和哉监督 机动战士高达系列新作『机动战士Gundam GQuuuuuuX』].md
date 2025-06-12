@@ -14008,3 +14008,16 @@ GQuuuuuuX的场刊没有推翻这设定。
 官方翻译一直都是修司的</blockquote>
 不是说第一次场刊里写的是柊二吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某个字幕组就因为这个一直写作柊二
 
+
+*****
+
+####  wpcc  
+##### 18978#       发表于 2025-6-12 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927104&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 18:57</a>
+
+PAZSD= post-AZ stress disorder
+
+潭友不可能没听说吧，就那个，金发恋母皇帝带着一堆质量兵器要执行地球 ...</blockquote>
+[https://www.bilibili.com/opus/743610421427044358](https://www.bilibili.com/opus/743610421427044358) 居然还有这么变态的东西吗
+

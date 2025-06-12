@@ -1996,3 +1996,11 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  樽——見  
+##### 2427#       发表于 2025-6-12 21:31
+
+PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
+

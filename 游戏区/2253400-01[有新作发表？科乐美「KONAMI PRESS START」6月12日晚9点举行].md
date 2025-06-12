@@ -338,3 +338,58 @@ b站怎么这时候出问题。。。
 
 惊人的手游占比<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 43#       发表于 2025-6-12 21:32
+
+科乐美本来现在就是日本一线手游大场 手游占比多是预料之中的
+
+*****
+
+####  凉良  
+##### 44#       发表于 2025-6-12 21:32
+
+感觉女主移动动作有点僵硬
+
+*****
+
+####  东方定助  
+##### 45#       发表于 2025-6-12 21:32
+
+龙骑士07是哪国人啊？怎么感觉像串子（混血）
+
+*****
+
+####  风景很好  
+##### 46#       发表于 2025-6-12 21:33
+
+第一次见07真容
+
+*****
+
+####  whzfjd  
+##### 47#       发表于 2025-6-12 21:33
+
+突然出现了普通话<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 48#       发表于 2025-6-12 21:34
+
+开发者是中国人吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这个开发组怎么好多中国人
+
+*****
+
+####  凉良  
+##### 49#       发表于 2025-6-12 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928049&amp;ptid=2253400" target="_blank">karastar 发表于 2025-6-12 21:34</a>
+
+开发者是中国人吗</blockquote>
+外包香港公司
+
