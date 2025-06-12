@@ -1285,3 +1285,28 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 可以回到boss前，但是是回到选项前还是选项后玩取决于你打boss中是否死亡回过营地，所以我才讲了一堆不备 ...</blockquote>
 好的，懂了，感谢
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2352#       发表于 2025-6-12 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925640&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-12 15:03</a>
+贴吧那里的建议是：
+
+需要全收集的话，得三周目白金了，一周目百合好感度满最终boss先选牵手，拿到完美结局 ...</blockquote>
+你这个完全不对
+
+百合头像下面那条与其说好感度不如说是反叛度，收集对母主领域不利的资料才会涨进度
+
+牵手结局才分he和be，不牵手的话不管百合那个条什么进度都一样结局的
+
+你要一周目二周目都全部收集得话根本没必要sl，一二周目选不同选项就好，然后再打牵手be
+
+*****
+
+####  哆哆鸡  
+##### 2353#       发表于 2025-6-12 15:16
+
+急需专门建个mod专楼，3dm那边都不让传图，也不标明出处，预览都没法预览，谁去开个楼？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
