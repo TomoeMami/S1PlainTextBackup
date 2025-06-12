@@ -1560,3 +1560,11 @@ beta删档吗<img src="https://static.stage1st.com/image/smiley/face2017/077.png
 beta删档吗虽然手感很粪但是太色了给我玩爽了</blockquote>
 原作能活到现在全靠这些**的服装。
 
+
+*****
+
+####  Errey  
+##### 271#       发表于 2025-6-12 10:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这个重置直接把攻速抬上去体验就不会差，但为什么技能说明比网游时代还差，也不给看出招表和伤害倍率
+
