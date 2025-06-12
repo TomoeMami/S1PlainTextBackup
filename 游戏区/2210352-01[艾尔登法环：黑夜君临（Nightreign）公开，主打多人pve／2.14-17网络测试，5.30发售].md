@@ -8906,3 +8906,29 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 原来去图鉴那里可以重打教程关，打通后奖励一个切武器增加攻击力的特殊遗物，只是忽然换初始状态的追踪者有点难打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 872#       发表于 2025-6-13 06:28
+
+<img src="https://img.stage1st.com/forum/202506/13/062134x5qn8egzmiqz00ap.png" referrerpolicy="no-referrer">
+
+<strong>7FF0E77F57C4E95F42564C04FB3FD0C2.png</strong> (201.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 06:21 上传
+
+全角色单通，下面还有个女爵三狼
+
+可惜被法师断了连胜
+
+法师单通是最弱的，没人顶前面施法还是太难受了
+
+守护者属于是发育很难受，但进boss反而还能打
+
+复仇者有随从拉仇恨反而比法师体验好很多
+
+其他的话除了鹰眼T0乱杀基本都差不多
+
