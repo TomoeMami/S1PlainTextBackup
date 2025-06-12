@@ -594,3 +594,20 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 遁3有无可能支持1080P 120帧，switch1除了打工鲑鱼泛滥会掉帧，其他时间还蛮稳定的，switch2补丁仅仅为了稳 ...</blockquote>
 最多单人模式和广场支持，联机有公平性问题是不可能的
 
+
+*****
+
+####  heseran  
+##### 5707#       发表于 2025-6-12 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926947&amp;ptid=2150634" target="_blank">ミズタ 发表于 2025-6-12 18:33</a>
+遁3有无可能支持1080P 120帧，switch1除了打工鲑鱼泛滥会掉帧，其他时间还蛮稳定的，switch2补丁仅仅为了稳 ...</blockquote>
+除非不能匹配ns，否则60帧打120帧也太不公平了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 5708#       发表于 2025-6-12 18:52
+
+更新之后进游戏，这广场的流畅度<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
