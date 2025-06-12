@@ -13987,3 +13987,14 @@ GQuuuuuuX的场刊没有推翻这设定。
 
 可以敲定シュウジ的官方译名就是修司了？
 
+
+*****
+
+####  ryanghj  
+##### 18976#       发表于 2025-6-12 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927477&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-12 19:54</a>
+
+可以敲定シュウジ的官方译名就是修司了？</blockquote>
+官方翻译一直都是修司的
+
