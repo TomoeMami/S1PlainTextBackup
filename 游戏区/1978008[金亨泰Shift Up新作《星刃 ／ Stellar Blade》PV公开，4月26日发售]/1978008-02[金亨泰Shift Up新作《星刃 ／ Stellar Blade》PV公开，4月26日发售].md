@@ -1800,3 +1800,18 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 2406#       发表于 2025-6-12 19:39
+
+这游戏的杂兵ai是不是太呆了，什么时候出什么招都能背了
+
+*****
+
+####  桥洞底下盖小被  
+##### 2407#       发表于 2025-6-12 19:43
+
+去年ps玩了demo觉得不行就没买，这次为了pc捣鼓mod买的，对游戏性也有心理预期了可是还是觉得有点无聊，刚救下短发妹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
