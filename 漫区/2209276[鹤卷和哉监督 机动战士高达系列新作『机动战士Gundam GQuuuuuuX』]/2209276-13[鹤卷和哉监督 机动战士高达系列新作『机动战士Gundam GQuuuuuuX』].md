@@ -14192,3 +14192,14 @@ gqux强人那个不是实体剑，更像是长枪吧
 
 并非吞噬行星，而是从外空间召唤而来的吞噬者。也符合太阳炮拉拉来自异时间线的设定，zeknova 本身则是吞噬
 
+
+*****
+
+####  pu  
+##### 18995#       发表于 2025-6-13 03:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923868&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-12 10:13</a>
+
+基连秘书太透明了，有印象的图就只有这张</blockquote>
+基连的野望玩的多的话就会很熟悉她
+
