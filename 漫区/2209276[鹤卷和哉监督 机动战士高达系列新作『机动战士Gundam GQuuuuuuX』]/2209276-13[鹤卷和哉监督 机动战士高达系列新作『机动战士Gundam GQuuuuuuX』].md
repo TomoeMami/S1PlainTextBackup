@@ -11802,3 +11802,31 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  mengsu  
+##### 18796#       发表于 2025-6-12 10:13
+
+<img src="https://img.stage1st.com/forum/202506/12/101313gmytyjhhoyfmydfd.jpg" referrerpolicy="no-referrer">
+
+<strong>9f2f070828381f306babef64c7de9f036c06f0bc.jpg</strong> (632.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 10:13 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">基连秘书太透明了，有印象的图就只有这张
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 楠城旧篱| + 1|好高清|
+
+查看全部评分
+
