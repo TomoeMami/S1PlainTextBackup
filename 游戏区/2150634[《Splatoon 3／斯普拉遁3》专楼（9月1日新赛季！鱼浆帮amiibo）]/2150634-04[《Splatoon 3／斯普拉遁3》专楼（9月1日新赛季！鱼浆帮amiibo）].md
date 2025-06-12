@@ -619,3 +619,13 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 打工时终于不掉帧了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5710#       发表于 2025-6-12 21:06
+
+数了一下，目前前作有第二贴牌，这次更新后依然缺失第二贴牌的武器大概15把
+
+像二代一样之后再补一波前作第二贴牌的可能性不低
+
