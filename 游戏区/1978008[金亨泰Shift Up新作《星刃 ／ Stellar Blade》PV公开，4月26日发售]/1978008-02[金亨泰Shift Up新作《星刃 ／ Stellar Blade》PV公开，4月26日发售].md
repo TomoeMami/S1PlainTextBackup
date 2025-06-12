@@ -1815,3 +1815,11 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 去年ps玩了demo觉得不行就没买，这次为了pc捣鼓mod买的，对游戏性也有心理预期了可是还是觉得有点无聊，刚救下短发妹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 2408#       发表于 2025-6-12 19:51
+
+二周目没教程完全忘了操作，结果靠着全解锁的技能瞎几把按把boss连死了，然后我觉得这中配比想象中要烂
+

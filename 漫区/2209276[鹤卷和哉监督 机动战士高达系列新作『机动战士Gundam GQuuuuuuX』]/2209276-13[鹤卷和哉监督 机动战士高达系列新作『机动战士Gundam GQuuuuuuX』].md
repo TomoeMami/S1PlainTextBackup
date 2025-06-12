@@ -13975,3 +13975,15 @@ GQuuuuuuX的场刊没有推翻这设定。
 夏亚向紫婆供情报，紫婆抓了回来还杀了他未婚妻和岳父，紫婆就是用这种手段吓他但不会杀他
 正片没地方塞就选择留白
 
+
+*****
+
+####  ヒトニナル  
+##### 18975#       发表于 2025-6-12 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927168&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-12 19:07</a>
+
+|X 上的 【公式】ガンダムカードゲーム：“||◤NEWS②◢|| 『機動戦士Gundam GQuuuuuuX（ジークアクス）』か ...</blockquote>|
+
+可以敲定シュウジ的官方译名就是修司了？
+
