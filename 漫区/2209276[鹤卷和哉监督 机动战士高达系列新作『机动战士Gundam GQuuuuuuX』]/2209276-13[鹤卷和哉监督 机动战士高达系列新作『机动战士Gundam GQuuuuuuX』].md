@@ -13209,3 +13209,52 @@ GQ的膠到12月每個月都有新貨推出，唯獨10月還沒有
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  stevenzero  
+##### 18912#       发表于 2025-6-12 16:08
+
+感觉这群老害搞的结局会不会收束到原来的初代小说版
+
+1 雷比尔被卫星炮扬了，联邦没赢。（现在差不多）
+2 汤大基被紫婆背刺。（已实现）
+3 战场上骡鸭达成和解，骡子号召停战时被鸭子NT部队一人误解并偷袭，骡子阵亡。（由番茄、喵安代演，鸭子和绿叔叔参与）
+4 在骡子死后NT发功信息号召下，鸭子的NT部队和木马队停战合作。（绿叔叔、番茄、首席、木马队停战合作，可行）
+5 鸭子带队带紫婆回side3夺权（可行）
+6 鸭子干掉紫婆 （可行）
+
+最后鸭子一统天下。
+
+
+*****
+
+####  syndrome2032  
+##### 18913#       发表于 2025-6-12 16:11
+
+鸭子应该对当鸡瘟首脑没兴趣。这点就和小说版不一样了。
+
+*****
+
+####  Toby_dak  
+##### 18914#       发表于 2025-6-12 16:14
+
+开台RX-178-X0<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  岸浪白野  
+##### 18915#       发表于 2025-6-12 16:14
+
+[X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“満を持して登場したのに２分持たずに退場した総帥がいるらしいです　#GQuuuuuuX [url]https://t.co/umGK8fHIXG](https://x.com/takuteks/status/1933035484063932572)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/12/161446uaaaepkekefaakkg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (434.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 16:14 上传
+

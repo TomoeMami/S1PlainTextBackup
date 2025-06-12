@@ -25,3 +25,13 @@
 新角色体型像矮人男骑，但是疑似武士刀柄+翅膀也可以奶一个萝莉体型鸦天狗武士，更新后见分晓了XD</blockquote>
 别幻想了，就是矮子武士，新职业拉流水的时候给你来个矮子男，真的绷不住，男人真的不可能抽
 
+
+*****
+
+####  Flechette  
+##### 407#       发表于 2025-6-12 16:06
+
+虚晃一枪，其实是矮人盗贼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计武士还没做好
+

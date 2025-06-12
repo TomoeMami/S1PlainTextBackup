@@ -1368,3 +1368,37 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  医生狼多  
+##### 2361#       发表于 2025-6-12 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925895&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 15:55</a>
+怎么这游戏几步路就一个篝火</blockquote>
+有篝火不等于能tp<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FFFreddie  
+##### 2362#       发表于 2025-6-12 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925895&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 15:55</a>
+怎么这游戏几步路就一个篝火</blockquote>
+开个篝火就给个硬币，买衣服全靠这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 2363#       发表于 2025-6-12 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925914&amp;ptid=1978008" target="_blank">绯影汐岚 发表于 2025-6-12 16:00</a>
+
+这游戏改不了键位吗，打的好难受
+
+—— 来自 鹅球 v3.3.96</blockquote>
+能改啊 注意看提示 键盘是按空格
+
