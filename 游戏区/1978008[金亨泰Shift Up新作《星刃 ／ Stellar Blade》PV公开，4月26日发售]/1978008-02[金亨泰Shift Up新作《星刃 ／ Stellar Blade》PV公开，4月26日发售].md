@@ -754,3 +754,40 @@ MD 首发的PS5版不给红莲皮肤CEKY 真是大冤种呀
 我要看油腻的师姐</blockquote>
 已经解锁了
 
+
+*****
+
+####  darkangel0224  
+##### 2306#       发表于 2025-6-12 10:15
+
+<blockquote>棍机凹升龙 发表于 2025-6-12 10:05
+那冲码的不就可以买了玩2小时然后拿码退款
+
+—— 来自 samsung SM-F9460, Android 15, 鹅球 v3.5.99-alph ...</blockquote>
+
+蒸汽玩满2小时，应该就不给退了
+
+这个移植看来还是翔尼出力的，和蜘蛛人、末日美国一模一样
+
+拍照模式怎么默认把设置界面拍下来了？
+
+试玩存档也没继承，没绷住，还得重新打一遍。放一份给需要的兄弟，路径
+
+C:\Users\XXX\AppData\Local\SB\Saved\SaveGames\76561198346017357
+
+https://cloud.189.cn/t/nQZnmqQruaI3（访问码：lh7z）
+
+<img src="https://tupian.li/images/2025/06/12/684a2c41462dd.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  darkangel0224  
+##### 2307#       发表于 2025-6-12 10:20
+
+ 本帖最后由 darkangel0224 于 2025-6-12 10:22 编辑 
+<blockquote>AEmpire 发表于 2025-6-12 09:59
+好牛逼的优化，跑全高2K120帧显卡就60%多占用</blockquote>
+
+等把默认开启的DLSS或者FSR关掉，就原形毕露了。偷画质真的一流。要不是帖图错误闪了几下，确实很难发现
+

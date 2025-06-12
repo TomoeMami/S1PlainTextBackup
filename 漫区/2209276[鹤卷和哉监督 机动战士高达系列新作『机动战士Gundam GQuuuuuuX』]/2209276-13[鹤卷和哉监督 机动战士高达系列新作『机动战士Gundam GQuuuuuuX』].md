@@ -11830,3 +11830,16 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 查看全部评分
 
+
+*****
+
+####  Toby_dak  
+##### 18797#       发表于 2025-6-12 10:16
+
+<blockquote>引用第18795楼mengsu于2025-06-12 10:13发表的  :
+
+基连秘书太透明了，有印象的图就只有这张</blockquote>
+比我在18577楼发过的清晰<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
