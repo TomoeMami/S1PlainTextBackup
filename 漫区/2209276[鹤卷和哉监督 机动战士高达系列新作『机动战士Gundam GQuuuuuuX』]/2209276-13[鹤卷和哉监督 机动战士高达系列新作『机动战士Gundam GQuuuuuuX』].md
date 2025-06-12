@@ -13383,3 +13383,21 @@ GQ的膠到12月每個月都有新貨推出，唯獨10月還沒有
 
 紫婆厌恶懦弱者
 
+
+*****
+
+####  孙吧星人  
+##### 18927#       发表于 2025-6-12 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925686&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 15:10</a>
+
+假设紫婆没掀桌子，辣么绿叔叔要用什么话术劝导小番茄冲进去把她顶多听说过压根没见过的两个人给图图了， ...</blockquote>
+不是，他从来都没打算让麻球去帮他杀人过啊...<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">事实上根本没证据证明他的计划里必须要有麻球帮助，现在的剧情是在出了意外的情况下，正常的计划是什么根本没说，但没说≠没有。
+
+*****
+
+####  ryanghj  
+##### 18928#       发表于 2025-6-12 17:01
+
+他的计划应该是他自己去杀了基连基西莉亚，然后派玛秋去解救玫瑰里的拉拉吧
+
