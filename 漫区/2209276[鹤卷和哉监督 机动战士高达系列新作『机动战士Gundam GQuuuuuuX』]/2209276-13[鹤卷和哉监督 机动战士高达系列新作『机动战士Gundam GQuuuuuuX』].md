@@ -14059,3 +14059,19 @@ GQX的三套官方中文人名翻译有很多不同点，不要太在意<img src
 GQX的三套官方中文人名翻译有很多不同点，不要太在意  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正怎么顺口怎么来了
 
+
+*****
+
+####  璇瑢子R  
+##### 18982#       发表于 2025-6-12 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926613&amp;ptid=2209276" target="_blank">孙吧星人 发表于 2025-6-12 17:44</a>
+鹤卷在戏外没设计具体计划很正常，但戏内怎么想都是有的，这是两码事。 ...</blockquote>
+不管剧里说没说
+也不管到底谁当驾驶员
+夏利亚战力只有一台ma一台ms加上绿木马
+
+而且基西利亚面临的基连嫡系问题夏利亚一样有，还要加上基西利亚嫡系
+
+这点战斗力除了强行用主角光环，要不然很显然战斗力远远不够
+

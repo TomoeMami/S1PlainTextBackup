@@ -2099,3 +2099,28 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 —— 来自 samsung SM-G9980, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  双叶杏  
+##### 2437#       发表于 2025-6-12 22:16
+
+是我前几天玩了落英那个测试版的关系么，今天玩剑星感觉是一个味道的战斗系统
+
+*****
+
+####  仰望神的括约肌  
+##### 2438#       发表于 2025-6-12 22:17
+
+也可能是好久没打手生的原因 红莲有点坐牢<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 2439#       发表于 2025-6-12 22:21
+
+这游戏格挡的感觉让我回到了33号冒险队，甚至略有不如<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以现在有一直打开扫描的mod吗，场景有点折磨眼睛了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
