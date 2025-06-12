@@ -393,3 +393,97 @@ b站怎么这时候出问题。。。
 开发者是中国人吗</blockquote>
 外包香港公司
 
+
+*****
+
+####  karastar  
+##### 50#       发表于 2025-6-12 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928054&amp;ptid=2253400" target="_blank">凉良 发表于 2025-6-12 21:35</a>
+
+外包香港公司</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原来是这样啊，外包香港公司好少见，香港公司也是大陆开发者为主的吗
+
+*****
+
+####  Ketestrait  
+##### 51#       发表于 2025-6-12 21:36
+
+开发组是NeoBards（泥巴娱乐）
+
+果不其然评论栏出现了好多闹钟湾湾关系的话题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风景很好  
+##### 52#       发表于 2025-6-12 21:37
+
+果然有寂静岭初代重制
+
+*****
+
+####  凉良  
+##### 53#       发表于 2025-6-12 21:37
+
+艹 无聊 我最后看那团火还以为有恶魔城 
+
+*****
+
+####  duraa  
+##### 54#       发表于 2025-6-12 21:38
+
+浪费时间<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 55#       发表于 2025-6-12 21:38
+
+就因为这些东西把大家叫出来吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kimmmmmm  
+##### 56#       发表于 2025-6-12 21:38
+
+无聊
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  东方定助  
+##### 57#       发表于 2025-6-12 21:38
+
+没有恶魔城……
+
+*****
+
+####  qiyu1234  
+##### 58#       发表于 2025-6-12 21:38
+
+结束了
+
+去下伊甸星原 DEMO了
+
+
+*****
+
+####  Piano-Forest  
+##### 59#         楼主| 发表于 2025-6-12 21:40
+
+『SILENT HILL』リメイク制作中
+
+1999年にPlayStationにて発売した『SILENT HILL 』のリメイクをBloober Teamと制作しています。
+
+ぜひ音声とともに動画をご覧ください。
+
+詳細は今後の続報をお待ちください。
+
+*****
+
+####  穿越护城河  
+##### 60#       发表于 2025-6-12 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还要6月25日再遛大家一次吗
+

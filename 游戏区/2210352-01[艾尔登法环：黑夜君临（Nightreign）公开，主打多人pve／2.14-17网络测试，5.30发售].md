@@ -8869,3 +8869,16 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  全装甲夏亚  
+##### 868#       发表于 2025-6-12 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922857&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-12 01:29</a>
+
+我朋友通过
+
+重启-避开所有腾讯系软件</blockquote>
+我现在完全打不了游戏了，就自从第一次打三狼半血报错之后我只要进去就报错，关了小蓝熊倒是不报错了。这就是个傻逼游戏，气死我了
+

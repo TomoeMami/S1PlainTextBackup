@@ -2004,3 +2004,62 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
+
+*****
+
+####  克里斯蒂娜  
+##### 2428#       发表于 2025-6-12 21:36
+
+手柄切地图有快捷键吗？我没注意看<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2429#       发表于 2025-6-12 21:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">漏油要求太高了 我觉得是尼尔2威力加强版 各方面都比尼尔2不少   
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过尼尔2的剧情。。虽然难懂 但也挺不错的  这游戏有剧情码
+
+*****
+
+####  alucardcz  
+##### 2430#       发表于 2025-6-12 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928062&amp;ptid=1978008" target="_blank">克里斯蒂娜 发表于 2025-6-12 21:36</a>
+
+手柄切地图有快捷键吗？我没注意看</blockquote>
+触摸板能设置 其他手柄不知道
+
+
+*****
+
+####  风景很好  
+##### 2431#       发表于 2025-6-12 21:41
+
+ 本帖最后由 风景很好 于 2025-6-12 21:44 编辑 
+<blockquote>袄_偶滴小乔 发表于 2025-6-12 20:35
+还有个技巧是触摸板往上滑动是地图，往下滑动是任务列表，不知道pc有没有保留 ...</blockquote>
+
+试了下用PS5有
+
+*****
+
+####  saberserker  
+##### 2432#       发表于 2025-6-12 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927749&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-12 20:48</a>
+
+精防感觉收益巨低
+
+对面要是连段你没反应过来白被揍一顿
+
+弹几次也破不了架势，有这个折腾的时间硬砍都给砍死 ...</blockquote>
+精防就是接后续反击连段耍帅的
+
+*****
+
+####  哈迪斯兜帽  
+##### 2433#       发表于 2025-6-12 21:43
+
+我把这玩意儿当尼尔劣化版打的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
