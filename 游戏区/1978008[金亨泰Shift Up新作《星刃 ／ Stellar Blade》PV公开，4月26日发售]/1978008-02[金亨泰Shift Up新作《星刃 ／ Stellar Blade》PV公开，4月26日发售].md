@@ -1349,3 +1349,22 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">捡尸体要各种对准位置才能捡，偏一点点就不行就很不爽
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2359#       发表于 2025-6-12 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925895&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 15:55</a>
+怎么这游戏几步路就一个篝火</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">篝火也算收集品
+
+*****
+
+####  绯影汐岚  
+##### 2360#       发表于 2025-6-12 16:00
+
+这游戏改不了键位吗，打的好难受
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
