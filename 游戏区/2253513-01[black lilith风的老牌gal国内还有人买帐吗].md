@@ -517,3 +517,11 @@ black lilith去掉直球要素不就是咖喱饭没咖喱</blockquote>
 
 —— 来自 vivo V2352A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Ik4ruga  
+##### 57#       发表于 2025-6-12 12:01
+
+不想搞**就单纯搞文字冒险吧
+

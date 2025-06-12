@@ -12323,3 +12323,41 @@ side3独立都是当地政治团体，财阀，旧联邦军人和当地联邦驻
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  变老的大二  
+##### 18840#       发表于 2025-6-12 11:57
+
+总帅能飒爽几分钟呢？
+
+<img src="https://img.stage1st.com/forum/202506/12/115646c6vvvtvnvt5ltd86.jpg" referrerpolicy="no-referrer">
+
+<strong>1000045167.jpg</strong> (110.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 11:56 上传
+
+
+*****
+
+####  nocode  
+##### 18841#       发表于 2025-6-12 12:02
+
+下集能看见鸭子和绿叔叔的精彩mav戏吗
+
+*****
+
+####  wing130083  
+##### 18842#       发表于 2025-6-12 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924343&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-12 11:19</a>
+
+明明是完全正义合理的独立诉求却偏偏催生出了扎比家这种极端组织，这才是0079基础设定上最高明的地方啊， ...</blockquote>
+正义个啥啊
+
+现实世界殖民地是帝国主义开着战舰不劳而获抢来的
+
+高达世界殖民地可都是地球出钱出力造的
+
