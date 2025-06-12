@@ -14036,3 +14036,26 @@ PAZSD= post-AZ stress disorder
 
 GQX的三套官方中文人名翻译有很多不同点，不要太在意<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  我聞如是  
+##### 18980#       发表于 2025-6-12 22:12
+
+港澳版預告本來也是用修司，後來才改成修治的
+
+大概是因為發現了修司廣東話唸出來和收屍同音
+
+*****
+
+####  ヒトニナル  
+##### 18981#       发表于 2025-6-12 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928245&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-12 22:05</a>
+简中和台湾繁中：修司伊藤
+
+香港繁中：修治伊藤
+
+GQX的三套官方中文人名翻译有很多不同点，不要太在意  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正怎么顺口怎么来了
+
