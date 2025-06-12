@@ -1823,3 +1823,13 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 二周目没教程完全忘了操作，结果靠着全解锁的技能瞎几把按把boss连死了，然后我觉得这中配比想象中要烂
 
+
+*****
+
+####  紫苑寺美琴  
+##### 2409#       发表于 2025-6-12 20:13
+
+有没有去扫描cd的修改器或者CT表啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这个扫描功能好烂
+
