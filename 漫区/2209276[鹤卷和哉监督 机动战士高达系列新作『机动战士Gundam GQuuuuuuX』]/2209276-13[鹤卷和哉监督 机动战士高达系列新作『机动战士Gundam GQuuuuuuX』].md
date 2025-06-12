@@ -12403,3 +12403,51 @@ side3独立都是当地政治团体，财阀，旧联邦军人和当地联邦驻
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  szqasd  
+##### 18847#       发表于 2025-6-12 12:40
+
+讨论uc宇宙殖民地独立的合理性，要接受一个基础设定就是扔上太空的人口已经比留在地球的人口多多了。
+
+所以这里并不存在一个出钱又出力最后还被反抗的地球人集体，更准确的说是太空移民即出钱又出力还出人，大家伙为了环保大计都上太空了，你们怎么还留在地球。
+
+
+*****
+
+####  七七見奈波  
+##### 18848#       发表于 2025-6-12 12:42
+
+放狗搜其实能搜到卡片生成器里金发版的塞西莉亚·艾琳，所以这波GQX塞西莉亚是金发也没错儿
+
+Cecilia.jpg
+(24.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 12:40 上传
+
+<img src="https://img.stage1st.com/forum/202506/12/124058vshcxham2nzrlzsy.jpg" referrerpolicy="no-referrer">
+
+832796.jpg
+(19.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 12:40 上传
+
+<img src="https://img.stage1st.com/forum/202506/12/124058zugxuivmmmmcz0mt.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  szqasd  
+##### 18849#       发表于 2025-6-12 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924653&amp;ptid=2209276" target="_blank">asikies 发表于 2025-6-12 12:11</a>
+
+大部分人都不是强迫去的，资源全是地球出的，前期还免税免费医疗教育，现在要收点税回馈地球，你就闹着搞 ...</blockquote>
+不搞强迫能让110亿人里的90亿人上太空?
+
+如果说大部分是因为人真是环保入脑了自愿上去的，那这些环保入脑的太空人觉得留在地球的都是背叛了环保神教的该死的权贵也很正常吧⋯⋯
+
