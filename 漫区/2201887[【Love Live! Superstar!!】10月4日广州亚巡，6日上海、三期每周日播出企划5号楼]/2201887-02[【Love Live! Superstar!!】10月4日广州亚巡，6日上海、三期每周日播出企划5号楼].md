@@ -199,3 +199,17 @@ LoveLive×高达
 
 2025-6-12 17:11 上传
 
+
+*****
+
+####  starring  
+##### 1635#       发表于 2025-6-12 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926337&amp;ptid=2201887" target="_blank">仟音一心 发表于 2025-6-12 17:12</a>
+「ちゃやまち推しフェスティバル2025」BNFW出展决定
+
+LoveLive×高达</blockquote>
+早就应该让两个IP多联动<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -557,3 +557,22 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5704#       发表于 2025-6-12 17:59
+
+给打满了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+贴牌审查者还差50W也能10星
+
+k4Q1ac-6igoZeT3cSsg-lc.jpg
+(140.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 17:57 上传
+
+<img src="https://img.stage1st.com/forum/202506/12/175745c5bzd8cfmhbpmbh5.jpg" referrerpolicy="no-referrer">
+
