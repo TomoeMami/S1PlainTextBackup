@@ -1334,3 +1334,18 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 
 问下有必要买豪华版吗。
 
+
+*****
+
+####  alucardcz  
+##### 2357#       发表于 2025-6-12 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么这游戏几步路就一个篝火
+
+*****
+
+####  黑上シグマ  
+##### 2358#       发表于 2025-6-12 15:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">捡尸体要各种对准位置才能捡，偏一点点就不行就很不爽
+
