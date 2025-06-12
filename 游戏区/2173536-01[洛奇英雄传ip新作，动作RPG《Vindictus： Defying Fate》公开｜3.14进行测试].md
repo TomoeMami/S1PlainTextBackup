@@ -1612,3 +1612,20 @@ beta删档吗虽然手感很粪但是太色了给我玩爽了</blockquote>
 
 结果还是输出略逊的大剑妹有意思，回合制当魂游打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  放大镜  
+##### 276#       发表于 2025-6-13 07:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922449&amp;ptid=2173536" target="_blank">inthecity 发表于 2025-6-11 23:13</a>
+
+目前体感是随机派生，可能掺杂了点读指令，防御最后一爪接防反好像引出这招的概率是会高一点
+
+—— 来自  ...</blockquote>
+SOLO了几次，感觉抓后摇出硬直对两个多人BOSS基本无效，不管抓哪个都是踢铁板
+
+也不知道是因为这俩没做完，还是为了保护多人BOSS搞的房规
+
+如果是后者的话那也太复古了
+
