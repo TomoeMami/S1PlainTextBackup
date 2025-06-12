@@ -13306,3 +13306,29 @@ GQ的膠到12月每個月都有新貨推出，唯獨10月還沒有
 
 这个世界观的夏亚又没有对高达名字的抵触，而力克迪亚斯也是夏亚的代表机体，高达γ真不错吧
 
+
+*****
+
+####  ads147147  
+##### 18920#       发表于 2025-6-12 16:36
+
+<img src="https://img.stage1st.com/forum/202506/12/163554j0e2n2e0m0seyete.png" referrerpolicy="no-referrer">
+
+<strong>3da4a8ccb5d51eb33d0a55cb39ed042e.png</strong> (61.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 16:35 上传
+
+确实是打算第二发爆了地球，阿巴瓦库高约33.75km，直径约22.5km，外神手电筒攻击范围起码在40km往上，地壳平均厚度17km，找个火山多的地方比如黄石公园给他挖走一块地壳盖子，地球直接再次进入恐龙灭绝时代了。
+
+
+*****
+
+####  Saber琪  
+##### 18921#       发表于 2025-6-12 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925779&amp;ptid=2209276" target="_blank">帆前 发表于 2025-6-12 15:31</a>
+唉，追原创番就是这样，喵安推滴泪</blockquote>
+挺好了，刚开始我以为喵安只是花瓶，没想到上机了还是个颠婆，服装发型也换得多，满足<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

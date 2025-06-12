@@ -1447,3 +1447,51 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 
 有电话亭的才是能传送的营地，所以不是那么方便的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clover293  
+##### 2369#       发表于 2025-6-12 16:40
+
+这在线都快10万了，牛逼
+
+*****
+
+####  mhss  
+##### 2370#       发表于 2025-6-12 16:42
+
+这游戏不对照攻略打容易漏东西/成就么？第一遍挺想避开影响通关的。
+
+*****
+
+####  chan  
+##### 2371#       发表于 2025-6-12 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926049&amp;ptid=1978008" target="_blank">罐子 发表于 2025-6-12 16:25</a>
+喜欢弹反的感觉，但是手残+我基本都是顶着串流延迟在玩，经常弹不到
+
+有啥降低弹反难度的mod或者金手指嘛 ...</blockquote>
+n网有mod增加弹反有效时间，不过是试玩版的mod，作者说正式版也会做。
+
+—— 来自 HONOR VER-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  LrGsite  
+##### 2372#       发表于 2025-6-12 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924734&amp;ptid=1978008" target="_blank">你不会没有吧 发表于 2025-6-12 12:27</a>
+
+玩到进主城 门口开箱子就是</blockquote>
+感谢 刚回头继承完demo存档又打了遍亚巴顿
+
+*****
+
+####  LrGsite  
+##### 2373#       发表于 2025-6-12 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925722&amp;ptid=1978008" target="_blank">黑酒杯 发表于 2025-6-12 15:19</a>
+
+走路太飘了，难受</blockquote>
+是的，太飘了，不是一步一步位移的，是那种会滑步的位移
+

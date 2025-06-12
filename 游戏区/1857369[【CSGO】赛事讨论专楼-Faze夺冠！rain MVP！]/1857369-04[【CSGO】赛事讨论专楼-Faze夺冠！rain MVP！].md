@@ -198,3 +198,16 @@ VRS的目标之一是标准化社区赛事，以便能够与Major系列赛事融
 
 关于下一届Major的邀请分配规则，将在BLAST奥斯汀Major结束后公布更多信息。
 
+
+*****
+
+####  Eric_方歌阙  
+##### 4737#       发表于 2025-6-12 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67922705&amp;ptid=1857369" target="_blank">zpl123 发表于 2025-6-12 00:22</a>
+
+StarLadder公告原文如下：
+
+重要更新：取消StarLadder布达佩斯Major地区预选赛（MRQ）</blockquote>
+牛的，变成会员制餐厅了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
