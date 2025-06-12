@@ -1429,3 +1429,21 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 
 有啥降低弹反难度的mod或者金手指嘛<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2367#       发表于 2025-6-12 16:31
+
+游泳手感跟吃屎一样<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+一周目需要关dlc打吗
+
+
+*****
+
+####  洛克萨斯  
+##### 2368#       发表于 2025-6-12 16:36
+
+有电话亭的才是能传送的营地，所以不是那么方便的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

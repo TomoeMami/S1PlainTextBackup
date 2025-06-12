@@ -13266,3 +13266,43 @@ GQ的膠到12月每個月都有新貨推出，唯獨10月還沒有
 
 <img src="https://img.picui.cn/free/2025/06/12/684a8da8e6ae3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 18917#       发表于 2025-6-12 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925679&amp;ptid=2209276" target="_blank">快马疾奔 发表于 2025-6-12 16:09</a>
+
+她不是一直金发的嘛？有别的发色的塞西莉亚·艾琳？</blockquote>
+<img src="https://p.sda1.dev/24/2ca6b0c466f7f26aa4f2a718a5ea6612/1000117537.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3351bb3b4eae420d9d986cbb928df4eb/1000117538.jpg" referrerpolicy="no-referrer">
+
+如果你是野望系列忠实玩家，肯定对每个回合开始时报告各种事务的版本更熟悉。
+
+*****
+
+####  Sliurus  
+##### 18918#       发表于 2025-6-12 16:31
+
+<img src="https://img.stage1st.com/forum/202506/12/163044jx66srkl6gk6434t.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8117.JPG</strong> (56.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 16:30 上传
+
+[https://x.com/ninjamaster_73/sta ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/ninjamaster_73/status/1932797573343109259?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+莫名戳中了笑点<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 18919#       发表于 2025-6-12 16:32
+
+其实鸭叔叔藏了一台高达γ（力克迪亚斯）
+
+这个世界观的夏亚又没有对高达名字的抵触，而力克迪亚斯也是夏亚的代表机体，高达γ真不错吧
+
