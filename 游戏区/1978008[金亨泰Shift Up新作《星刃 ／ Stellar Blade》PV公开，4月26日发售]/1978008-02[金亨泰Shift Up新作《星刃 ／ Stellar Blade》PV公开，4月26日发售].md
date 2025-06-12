@@ -986,3 +986,22 @@ DLC服装请问哪里领噢
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">游戏里甚至还有莫名其妙没有下文的支线任务，把你叫到小巷给你个坏掉的任务道具然后没了
 
+
+*****
+
+####  你不会没有吧  
+##### 2326#       发表于 2025-6-12 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924701&amp;ptid=1978008" target="_blank">LrGsite 发表于 2025-6-12 12:20</a>
+
+DLC服装请问哪里领噢</blockquote>
+玩到进主城 门口开箱子就是
+
+
+*****
+
+####  ladiesman802  
+##### 2327#       发表于 2025-6-12 12:35
+
+草，新衣服又要重新舔图？我刚开二周目不知道要不要三周目，绝了
+
