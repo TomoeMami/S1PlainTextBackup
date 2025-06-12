@@ -65,3 +65,16 @@
 子弹打完报废
 原来是我大Tediore<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 91#       发表于 2025-6-12 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923376&amp;ptid=2252823" target="_blank">hkguty 发表于 2025-6-12 08:58</a>
+
+子弹打完直接报废，感觉会是个很捞的射击游戏</blockquote>
+那不就是黑楼星盟吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这年头射击游戏不是looter shooter再没点枪械改造强化内容，那真是一点也玩不下去
+
