@@ -4019,3 +4019,15 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 活见鬼了，200体力都捕获不到5架00的单位
 
+
+*****
+
+####  棍机凹升龙  
+##### 1847#       发表于 2025-6-12 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927011&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-12 18:43</a>
+活见鬼了，200体力都捕获不到5架00的单位</blockquote>
+那几个女人天天要夺取，男人只要强化好太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

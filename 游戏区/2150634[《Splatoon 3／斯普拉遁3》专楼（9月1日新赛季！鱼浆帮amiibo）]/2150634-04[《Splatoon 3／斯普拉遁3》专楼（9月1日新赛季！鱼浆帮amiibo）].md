@@ -611,3 +611,11 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 更新之后进游戏，这广场的流畅度<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 5709#       发表于 2025-6-12 19:00
+
+打工时终于不掉帧了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
