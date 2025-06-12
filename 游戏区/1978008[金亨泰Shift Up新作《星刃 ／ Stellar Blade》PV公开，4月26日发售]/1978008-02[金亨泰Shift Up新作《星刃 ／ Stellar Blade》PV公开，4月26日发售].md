@@ -861,3 +861,18 @@ https://cloud.189.cn/t/nQZnmqQruaI3（访问码：lh7z）
 后面能幻化成迅驰或者瑞雯吗？</blockquote>
 不打mod应该只能穿这两人的衣服
 
+
+*****
+
+####  会长辅佐  
+##### 2315#       发表于 2025-6-12 11:00
+
+mod作者已经开始发力了<img src="https://p.sda1.dev/24/717b04078735c967dc9a2b0f0962da11/IMG_5FFFBB6B417847EA03D5AF8341689886.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 2316#       发表于 2025-6-12 11:00
+
+谢谢楼上两位<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
