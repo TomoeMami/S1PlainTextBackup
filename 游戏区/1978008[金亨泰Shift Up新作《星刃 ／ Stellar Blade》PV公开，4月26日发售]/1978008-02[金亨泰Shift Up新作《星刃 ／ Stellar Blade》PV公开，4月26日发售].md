@@ -1851,3 +1851,32 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 进主城了。。特典衣服拿到了 但是没看到哪能拿nikke的cdkey。。。
 
+
+*****
+
+####  alucardcz  
+##### 2412#       发表于 2025-6-12 20:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">艹了  原来要同意那个信息收集才能看到码 我看都没看直接一个拒绝结果还要等2小时。。。
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 2413#       发表于 2025-6-12 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927549&amp;ptid=1978008" target="_blank">紫苑寺美琴 发表于 2025-6-12 20:13</a>
+有没有去扫描cd的修改器或者CT表啊
+
+这个扫描功能好烂</blockquote>
+嫌扫描烦的就去设置，协助工具里打开高对比度
+
+*****
+
+####  zhzij111  
+##### 2414#       发表于 2025-6-12 20:33
+
+这游戏是真的除了软涩情全都路边吧，打到金刚快给无聊麻了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
