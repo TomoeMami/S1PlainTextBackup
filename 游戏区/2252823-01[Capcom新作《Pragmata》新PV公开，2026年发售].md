@@ -91,3 +91,23 @@
 —— 来自 鹅球 v3.5.99</blockquote>
 WASD移动，鼠标射击，1234放小萝莉技能，猜的
 
+
+*****
+
+####  夜雨秋水  
+##### 93#       发表于 2025-6-12 14:09
+
+<blockquote>汪达 发表于 2025-6-12 13:49
+WASD移动，鼠标射击，1234放小萝莉技能，猜的</blockquote>
+戴安娜的操作不是放四个技能，而是在骇入界面操作一个单元上下左右移动这样的逻辑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 94#       发表于 2025-6-12 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925335&amp;ptid=2252823" target="_blank">夜雨秋水 发表于 2025-6-12 14:09</a>
+
+戴安娜的操作不是放四个技能，而是在骇入界面操作一个单元上下左右移动这样的逻辑 ...</blockquote>
+和射击同时进行吗？左右互搏？那难度有点高了吧
+
