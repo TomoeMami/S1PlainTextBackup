@@ -12479,3 +12479,13 @@ Cecilia.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这几个月的全球政治局势，你就会发现基连和紫婆都算正常人的。虽然扎比家全家路径依赖都靠刺杀上位，也比现实里靠卖国和反人类上位的正常
 
+
+*****
+
+####  秋月孝三  
+##### 18853#       发表于 2025-6-12 13:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下周来首完整版的夏亚来了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
