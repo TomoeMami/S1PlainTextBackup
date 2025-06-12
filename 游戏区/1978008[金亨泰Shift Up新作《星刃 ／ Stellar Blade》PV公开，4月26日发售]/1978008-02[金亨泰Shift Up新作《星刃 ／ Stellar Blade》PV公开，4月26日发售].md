@@ -2496,3 +2496,15 @@ PC算是认真玩了，都是马桶通完才走主线
 
 2025-6-13 07:03 上传
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2471#       发表于 2025-6-13 07:08
+
+ 本帖最后由 哈迪斯兜帽 于 2025-6-13 07:11 编辑 
+
+百合第一次出来的时候看脸和声音我在想到底是假小子还是正太<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+都打完实验室了发现自己还没点偷袭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
