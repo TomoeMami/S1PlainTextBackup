@@ -2221,3 +2221,11 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 尼尔2nb在哪怕剧情完全看不懂，最后制作人员名单那依旧能感动起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 2450#       发表于 2025-6-12 23:43
+
+这游戏的战斗系统缝了一切你在别的游戏里见到的各种东西，唯独缺一个自己的核心
+
