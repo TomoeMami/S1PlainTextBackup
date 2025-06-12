@@ -2155,3 +2155,28 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 剑星是个拍照音游，不要当动作游戏玩XD
 
+
+*****
+
+####  雷攻姛人  
+##### 2443#       发表于 2025-6-12 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928085&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 21:38</a>
+
+漏油要求太高了 我觉得是尼尔2威力加强版 各方面都比尼尔2不少   
+
+不过尼尔2的剧情。。虽然难懂 但也挺不错 ...</blockquote>
+剧情不都是一股圣经味吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 2444#       发表于 2025-6-12 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928085&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 21:38</a>
+
+漏油要求太高了 我觉得是尼尔2威力加强版 各方面都比尼尔2不少   
+
+不过尼尔2的剧情。。虽然难懂 但也挺不错 ...</blockquote>
+我觉得结局比尼尔好，而且出续集也简单。尼尔2那么多年都没续作，我觉得是结局不好接
+
