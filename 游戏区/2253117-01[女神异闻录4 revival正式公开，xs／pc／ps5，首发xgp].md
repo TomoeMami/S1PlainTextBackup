@@ -1111,3 +1111,16 @@ P3F不是全整DLC了吗
 
 P4G一个套路？
 
+
+*****
+
+####  Lacsiess  
+##### 120#       发表于 2025-6-12 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925319&amp;ptid=2253117" target="_blank">饭冢武也 发表于 2025-6-12 14:06</a>
+
+P3F不是全整DLC了吗
+
+P4G一个套路？</blockquote>
+我稍微乐观一点,P4-P4G的改动基本到了底层,玛丽的剧情贯穿始终,和P5R的路人红毛差远了,DLC可能会卖各种P为主,比如买DLC就有P5R里的大神+真几万的真言,甚至可以加入带大罪穿甲弹的撒旦叶,这种改动量小,但是骗氪能力很强
+

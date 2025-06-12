@@ -139,3 +139,11 @@ Hugh 从一把弹药无限的简单手枪开始，但很快就获得了额外的
 
 感觉这种设定比起单人游玩更适合情侣合作，一个人用键鼠射击另一个人用手柄玩黑客小游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 96#       发表于 2025-6-12 14:41
+
+拇指要按三角圆圈，那么本来是要用上拇指的右摇杆瞄准现在要用哪只手指按？
+
