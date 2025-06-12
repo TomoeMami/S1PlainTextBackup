@@ -33816,3 +33816,14 @@ Gawr Gura超爱松屋吧？  
 
 离七周年越来越近了啊
 
+
+*****
+
+####  术士q  
+##### 18708#       发表于 2025-6-12 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923009&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2025-6-12 05:02</a>
+喜欢主播的距离感，帮不到的事情不需要操心。过几天自动好了。讲不出什么好话的事情打个红SC，她心情也会 ...</blockquote>
+像今晚这样周年前平常却又热烈的一晚要是能成为永恒就好了。
+还是她好
+

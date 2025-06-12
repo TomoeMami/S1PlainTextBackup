@@ -2213,3 +2213,11 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 废土这地图至少可以到处探索下，比第一章有意思
 
+
+*****
+
+####  黑酒杯  
+##### 2449#       发表于 2025-6-12 23:21
+
+尼尔2nb在哪怕剧情完全看不懂，最后制作人员名单那依旧能感动起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

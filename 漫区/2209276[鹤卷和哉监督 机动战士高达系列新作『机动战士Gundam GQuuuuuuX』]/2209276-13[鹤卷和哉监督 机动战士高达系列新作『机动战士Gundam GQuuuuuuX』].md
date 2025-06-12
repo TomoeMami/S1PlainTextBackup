@@ -14091,3 +14091,27 @@ GQX的三套官方中文人名翻译有很多不同点，不要太在意  ...<
 
 简称GM（吉姆）😅
 
+
+*****
+
+####  七七見奈波  
+##### 18984#       发表于 2025-6-12 23:18
+
+怀疑把玛里甘拉出来就是要解决紫婆的嫡系问题，79part玛里甘和夏亚关系挺好的，说不定一见夏亚玛里甘自己就叛变了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 18985#       发表于 2025-6-12 23:24
+
+<img src="https://img.stage1st.com/forum/202506/12/232402o399hg5gh45hvmoe.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8125.JPG</strong> (60.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 23:24 上传
+
+[https://x.com/ninjamaster_73/sta ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/ninjamaster_73/status/1933145828954362004?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
