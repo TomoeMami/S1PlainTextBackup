@@ -2440,3 +2440,28 @@ PC算是认真玩了，都是马桶通完才走主线
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这俩联动肥肠手游了，都是做任务收集素材换衣服
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2467#       发表于 2025-6-13 03:11
+
+戴着耳机
+
+在荒漠走着走着手里的ds4扬声器突然开始说话<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LrGsite  
+##### 2468#       发表于 2025-6-13 03:14
+
+<img src="https://img.stage1st.com/forum/202506/13/031443biw4jv8wthvnvbhv.png" referrerpolicy="no-referrer">
+
+<strong>_C%AW))M(OTCKK5BA`IHLKK.png</strong> (550.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 03:14 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉比原版nikke好玩
+
