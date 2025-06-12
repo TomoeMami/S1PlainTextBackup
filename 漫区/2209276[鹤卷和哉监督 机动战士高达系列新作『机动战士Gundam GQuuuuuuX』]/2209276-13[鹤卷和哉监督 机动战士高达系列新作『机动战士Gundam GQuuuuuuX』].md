@@ -12147,3 +12147,54 @@ fred的驾驶员和穿越来的艾尔美斯。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  wing130083  
+##### 18824#       发表于 2025-6-12 11:16
+
+ 本帖最后由 wing130083 于 2025-6-12 11:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924213&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-12 11:02</a>
+
+绿叔叔的计划很好，同时把大基消灭掉可能还能维持住目前的形势。
+
+但是他没想到紫婆的计划完成的这么快，但 ...</blockquote>
+其实最不好解释的是放任喵安被带走
+
+紫婆缺了喵安这炮是开不了的，没了底牌发癫的几率就小很多
+
+（对普通人我会说就不会发疯了，但这是紫婆，我不敢说<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+但绿叔叔手上有番茄，只要把番茄带过去一样可以启动转移，不管他什么目的都够用了
+
+硬要解释就是紫婆已经知道有人能启动GQX的系统了，必须让紫婆这边弄到一个，不然交不了差
+
+另外感情上来说，喵安也是他要保护的newtype啊，为什么跟番茄区别对待放任她刷kda涨功德(
+
+*****
+
+####  mengsu  
+##### 18825#       发表于 2025-6-12 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924310&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 11:14</a>
+
+是这样的。元祖高达虽然有很多很劲爆的剧情，但是经得住仔细分析，按我喜欢的说法就是“符合基本法”。
+
+就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明明是完全正义合理的独立诉求却偏偏催生出了扎比家这种极端组织，这才是0079基础设定上最高明的地方啊。
+
+
+*****
+
+####  YU_JI  
+##### 18826#       发表于 2025-6-12 11:20
+
+还有另外一个解释是《夏利亚传》还没结束，他还在演，绿叔叔自己也想拿手电筒做些什么，所以才帮紫婆把配件全凑齐了
+
+*****
+
+####  ヒトニナル  
+##### 18827#       发表于 2025-6-12 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然说剧中把绿叔叔描写得神乎其神但他也只是个人类啊，或者说他还是太高看人类的下限了
+
