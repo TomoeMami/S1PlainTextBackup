@@ -2180,3 +2180,21 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 不过尼尔2的剧情。。虽然难懂 但也挺不错 ...</blockquote>
 我觉得结局比尼尔好，而且出续集也简单。尼尔2那么多年都没续作，我觉得是结局不好接
 
+
+*****
+
+####  虚无连斩  
+##### 2445#       发表于 2025-6-12 22:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我感觉比尼尔2好玩，尼尔2我真是get不到任何点，都几年了，到现在就是打不动，大概是我不爱控制小男孩吧
+
+*****
+
+####  alucardcz  
+##### 2446#       发表于 2025-6-12 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928470&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-12 22:44</a>
+
+剧情不都是一股圣经味吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼尔剧情有点东西的 但是不看外部资料能看懂多少我不好说
+
