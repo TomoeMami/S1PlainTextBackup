@@ -1568,3 +1568,13 @@ beta删档吗虽然手感很粪但是太色了给我玩爽了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这个重置直接把攻速抬上去体验就不会差，但为什么技能说明比网游时代还差，也不给看出招表和伤害倍率
 
+
+*****
+
+####  nightraven  
+##### 272#       发表于 2025-6-12 11:12
+
+冰山谷最后那个boss有点粪啊，死了好几次，还是去贴吧找了找打法才过的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

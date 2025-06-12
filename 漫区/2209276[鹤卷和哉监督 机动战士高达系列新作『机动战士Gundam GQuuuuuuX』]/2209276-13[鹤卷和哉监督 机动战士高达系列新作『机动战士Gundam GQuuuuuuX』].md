@@ -12062,3 +12062,88 @@ fred的驾驶员和穿越来的艾尔美斯。
 
 夏亚出来了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 18815#       发表于 2025-6-12 11:08
+
+真男主回来了
+
+*****
+
+####  Sliurus  
+##### 18816#       发表于 2025-6-12 11:08
+
+飒爽登场<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的春天  
+##### 18817#       发表于 2025-6-12 11:08
+
+<blockquote>LadySaazbaum 发表于 2025-6-12 08:29
+上面回复都看了，感谢各位。
+
+——但还是不能完全说服，清除现场大扎姆可以理解（所以我没提），清除基连嫡 ...</blockquote>
+首先基连的人已经渗透进月球，当着老太婆的面打她的脸了，毒死自己的驾驶员，心腹是基连奸细带自己去送死，卖情报给联邦暗杀自己，最刺激她神经的毒死自己老爹。在军队宣传自己妹妹是婊砸，这事不做绝会翻车的。
+
+*****
+
+####  mengsu  
+##### 18818#       发表于 2025-6-12 11:09
+
+所以鸭子果然要跳出来摘桃子？不愧是老渣男了。
+
+*****
+
+####  adretyu67.  
+##### 18819#       发表于 2025-6-12 11:10
+
+夏亚回来赏基西利亚她那发忠诚的火箭筒了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 18820#       发表于 2025-6-12 11:11
+
+来收拾紫婆了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 18821#       发表于 2025-6-12 11:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要开始飒爽了吗
+绿叔叔已经帮你丢过人了，总帅可千万不要再丢人了啊
+
+*****
+
+####  LadySaazbaum  
+##### 18822#       发表于 2025-6-12 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924103&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-12 10:47</a>
+
+并不是得，之前的高达，就算是后续填坑补资料，一些原本剧情的点都是合理且仔细分析也是说得通的，例如 ...</blockquote>
+是这样的。元祖高达虽然有很多很劲爆的剧情，但是经得住仔细分析，按我喜欢的说法就是“符合基本法”。
+
+就其实元祖高达对吉翁的设定也非常别扭，受压迫的宇宙居民要求自主权是非常正当的要求，但是非得设定为反派，于是搞出来一窝子拟人的扎比们。全靠当时的主创们懂基本法，能把剧情兜在合理的范畴内。
+
+现在的问题是，此后的萝卜番包括但不限于GQX把元祖高达独有的设定当成了一般常识，直接拿来用，把自己的原创作品搞成同人的形状，乍一看很像回事但根本经不住推敲，一推就稀里哗啦全塌了。GQX甚至还是其中做比较好的，真正烂的比如我签名里内玩意儿<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+而我会产生疑惑的根本原因在于，我看高达太晚了，是在已经毕业工作已经有了自己的世界观之后才开始看，不可能对里面的设定全盘买单。按我自己的审美宇宙居民要求独立的合理性比联邦要维持现状的合理性高不知道哪里去但是既然元祖剧情基本上合理所以就这样吧 而我看高达出发点还是，某部高达同人烂尾烂得匪夷所思，过来研究一下万恶之源是怎么个回事。
+
+所以真的就是
+
+高达的事情不用搞太清楚.jpg
+
+*****
+
+####  Toby_dak  
+##### 18823#       发表于 2025-6-12 11:15
+
+这什么基连野望的新自护剧本<img src="https://static.stage1st.com/image/smiley/bundam2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
