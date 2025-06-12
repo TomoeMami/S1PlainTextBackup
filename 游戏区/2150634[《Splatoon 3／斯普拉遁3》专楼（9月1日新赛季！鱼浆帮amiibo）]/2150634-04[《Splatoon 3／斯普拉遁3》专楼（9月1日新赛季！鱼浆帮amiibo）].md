@@ -539,3 +539,21 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  shirolin  
+##### 5703#       发表于 2025-6-12 17:37
+
+随手写了一个自虐连线小游戏
+
+<img src="https://img.stage1st.com/forum/202506/12/173653jgsxyk08gik9uvus.jpg" referrerpolicy="no-referrer">
+
+<strong>abcbbca0-5f5a-43c4-8264-0eb60a9f2c1b.jpg</strong> (489.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 17:36 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
