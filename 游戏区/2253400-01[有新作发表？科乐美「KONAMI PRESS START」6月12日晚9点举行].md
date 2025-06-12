@@ -487,3 +487,21 @@ b站怎么这时候出问题。。。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还要6月25日再遛大家一次吗
 
+
+*****
+
+####  Vacuolar  
+##### 61#       发表于 2025-6-12 22:25
+
+konami放弃游戏战略时不是很有信心的吗？游戏就是垃圾业务了，不能比konami其他业务投入的回报，怎么最近这么多游戏要外包啊。
+
+
+*****
+
+####  天选之子  
+##### 62#       发表于 2025-6-12 22:30
+
+<blockquote>Vacuolar 发表于 2025-6-12 22:25
+konami放弃游戏战略时不是很有信心的吗？游戏就是垃圾业务了，不能比konami其他业务投入的回报，怎么最近这 ...</blockquote>
+疫情打击了KONAMI的实体店业务，于是又把以前不屑一顾的主机游戏捡回来了。
+

@@ -2124,3 +2124,34 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 所以现在有一直打开扫描的mod吗，场景有点折磨眼睛了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nosgoth  
+##### 2440#       发表于 2025-6-12 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927617&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-12 20:25</a>
+
+艹了  原来要同意那个信息收集才能看到码 我看都没看直接一个拒绝结果还要等2小时。。。 ...</blockquote>
+我日，还有这么一出，我去把那个打开。
+
+
+*****
+
+####  紫苑寺美琴  
+##### 2441#       发表于 2025-6-12 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927656&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-12 20:32</a>
+
+嫌扫描烦的就去设置，协助工具里打开高对比度</blockquote>
+开高对比度，人物直接成一坨，没了女主这游戏还有玩下去的必要吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+这b扫描真的是垃圾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风浦可符香(P.N)  
+##### 2442#       发表于 2025-6-12 22:35
+
+剑星是个拍照音游，不要当动作游戏玩XD
+
