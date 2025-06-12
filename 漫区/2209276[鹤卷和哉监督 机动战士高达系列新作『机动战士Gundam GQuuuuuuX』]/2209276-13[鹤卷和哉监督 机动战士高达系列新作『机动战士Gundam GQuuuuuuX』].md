@@ -11711,3 +11711,33 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  rockroxas  
+##### 18787#       发表于 2025-6-12 09:23
+
+<blockquote>希望之异热同心 发表于 2025-6-12 09:15
+才想起艾尔美斯才是搭载完成版的阿尔法赛克缪，红高达那是试做版的，那下一集的标题其实玩了个信息差，普通 ...</blockquote>
+标题是复数，答案是大家都要杀阿尔法
+
+*****
+
+####  Toby_dak  
+##### 18788#       发表于 2025-6-12 09:27
+
+这已经不是冷战了，而是最后几成熟的问题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  希望之异热同心  
+##### 18789#       发表于 2025-6-12 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923500&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-12 09:23</a>
+标题是复数，答案是大家都要杀阿尔法</blockquote>
+可能指的是2个人都能启动奥米茄赛克缪，但喵安现在想利用艾尔美斯引发zeknova，麻球是想阻止的人。而且2号机的骨架不是奥米茄是更高级的来着，麻球作为唯一接触过拉拉知道真相的人估计得她来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
