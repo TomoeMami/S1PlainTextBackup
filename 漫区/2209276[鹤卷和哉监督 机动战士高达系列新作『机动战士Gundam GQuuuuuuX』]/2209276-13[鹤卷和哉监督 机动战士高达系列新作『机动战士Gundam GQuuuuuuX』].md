@@ -11677,3 +11677,37 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 就挂在木马肚子下。
 
+
+*****
+
+####  YU_JI  
+##### 18785#       发表于 2025-6-12 09:08
+
+虽然预告里还是在手电筒内部打，但可能最后是要打到外面去的，手电筒外面的建筑结构很接近视觉图的了
+
+<img src="https://img.stage1st.com/forum/202506/12/090833hevj0bttrs06ivb8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5214.png</strong> (161.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 09:08 上传
+
+<img src="https://img.stage1st.com/forum/202506/12/090833mhjwlsjlwli2c7fx.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3206.jpeg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 09:08 上传
+
+
+*****
+
+####  希望之异热同心  
+##### 18786#       发表于 2025-6-12 09:15
+
+才想起艾尔美斯才是搭载完成版的阿尔法赛克缪，红高达那是试做版的，那下一集的标题其实玩了个信息差，普通观众会疑惑麻球为什么要砍红高达，实际是砍艾尔美斯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
