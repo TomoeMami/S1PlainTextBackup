@@ -13332,3 +13332,54 @@ GQ的膠到12月每個月都有新貨推出，唯獨10月還沒有
 唉，追原创番就是这样，喵安推滴泪</blockquote>
 挺好了，刚开始我以为喵安只是花瓶，没想到上机了还是个颠婆，服装发型也换得多，满足<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 18922#       发表于 2025-6-12 16:46
+
+话说汤义刚死了没？绿毛叔要一起干掉汤大基和汤姬丝后是准备扶谁上台？
+
+*****
+
+####  YU_JI  
+##### 18923#       发表于 2025-6-12 16:48
+
+<blockquote>失落之翼 发表于 2025-6-12 16:46
+话说汤义刚死了没？绿毛叔要一起干掉汤大基和汤姬丝后是准备扶谁上台？</blockquote>
+似了，和79一样的死法，只是骡子元祖换成了鸭妹轻加农
+
+*****
+
+####  ads147147  
+##### 18924#       发表于 2025-6-12 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926176&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-12 16:46</a>
+
+话说汤义刚死了没？绿毛叔要一起干掉汤大基和汤姬丝后是准备扶谁上台？</blockquote>
+早就被鸭妹宰了。
+
+目前还能扶持的只有没死的贵公子卡尔马，估计也就是为了这个才设计卡尔马没死的。
+
+
+*****
+
+####  失落之翼  
+##### 18925#       发表于 2025-6-12 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926194&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-12 16:49</a>
+
+早就被鸭妹宰了。
+
+目前还能扶持的只有没死的贵公子卡尔马，估计也就是为了这个才设计卡尔马没死的。 ...</blockquote>
+“夏利亚，你算计我！夏利亚！”<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 18926#       发表于 2025-6-12 16:53
+
+按照场刊设定卡尔玛估计也被紫婆干掉了
+
+紫婆厌恶懦弱者
+
