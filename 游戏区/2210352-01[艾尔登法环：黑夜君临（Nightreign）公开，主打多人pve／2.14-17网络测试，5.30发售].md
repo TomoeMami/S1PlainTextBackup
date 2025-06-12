@@ -8898,3 +8898,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 打隐城失败了好几次，最后过的那次给我在外面刷了癫羊事件，最后顶着debuff毒圈贴脸把成就做了
 
+
+*****
+
+####  jacket  
+##### 871#       发表于 2025-6-13 05:42
+
+原来去图鉴那里可以重打教程关，打通后奖励一个切武器增加攻击力的特殊遗物，只是忽然换初始状态的追踪者有点难打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
