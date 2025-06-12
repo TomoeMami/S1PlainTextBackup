@@ -2465,3 +2465,13 @@ PC算是认真玩了，都是马桶通完才走主线
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉比原版nikke好玩
 
+
+*****
+
+####  重新做人  
+##### 2469#       发表于 2025-6-13 03:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928893&amp;ptid=1978008" target="_blank">浅井惠 发表于 2025-6-13 00:52</a>
+现在买还有预购奖励吗？本来想出之前再买的给忘了...</blockquote>
+除了买那批预购cdkey，别的应该都没奖励了，完整版预购一共7个dlc，不预购只有4个
+
