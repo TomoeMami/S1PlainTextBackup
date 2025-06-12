@@ -512,3 +512,20 @@ S-BLAST：耗墨量增加11%，射击后硬直增加3帧
 
 高架下的鱼虎从关卡到终点的路线该不会只有左边一条吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 5700#       发表于 2025-6-12 12:25
+
+北极星还有希望搬过来吗？
+
+*****
+
+####  幽香  
+##### 5701#       发表于 2025-6-12 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924361&amp;ptid=2150634" target="_blank">oi99o 发表于 2025-6-12 11:22</a>
+高架下的鱼虎从关卡到终点的路线该不会只有左边一条吧</blockquote>
+基本上是的，右边高台虽然也可以跳上去但是很难走，这图一代就是鱼虎难图
+
