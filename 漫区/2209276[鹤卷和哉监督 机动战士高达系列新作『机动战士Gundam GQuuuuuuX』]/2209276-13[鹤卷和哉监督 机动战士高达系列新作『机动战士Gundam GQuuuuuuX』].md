@@ -13823,3 +13823,58 @@ PAZSD= post-AZ stress disorder
  ...</blockquote>
 gunboy的剧本就是打外星人扎古帝国
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 18962#       发表于 2025-6-12 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927104&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 18:57</a>
+
+PAZSD= post-AZ stress disorder
+
+潭友不可能没听说吧，就那个，金发恋母皇帝带着一堆质量兵器要执行地球 ...</blockquote>
+我还真是第一次听说有这书。
+
+*****
+
+####  ヒトニナル  
+##### 18963#       发表于 2025-6-12 19:06
+
+开幕只剩首席哥还真有可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过吧，首席哥以前考虑过如果绿叔叔叛变了自己能不能下手杀了他，为了call back这句话绿叔叔说不定真会交代在首席哥手里
+虽然我根本不知道首席哥要怎样才能赢，临时觉醒超强NT把绿叔叔搞成疯子吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18964#       发表于 2025-6-12 19:07
+
+|[X 上的 【公式】ガンダムカードゲーム：“||◤NEWS②◢|| 『機動戦士Gundam GQuuuuuuX（ジークアクス）』から、新規カード「赤いガンダム」「シュウジ・イトウ」のイラストを公開！ スタートデッキ「Clan Unity[ST06]」は10/25(土)に発売予定です。 #ネクプラ #ガンダムカード #GCG [url]https://t.co/RoCz2G6S2q](https://x.com/GUNDAM_GCG_JP/status/1933118039425421392)” / X[/url]|
+
+<img src="https://img.stage1st.com/forum/202506/12/190720lwre75pg00ffe0rd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 19:07 上传
+
+*****
+
+####  mintslime  
+##### 18965#       发表于 2025-6-12 19:08
+
+看到现在，已经放弃用脑子分析剧情了，你们抢男人就抢吧
+
+就是能不能让首席吃上口饭，吃毒蛋糕没他的分，喵安吃鸡不仅不给他还要骂他下头，前几话从号子赎出来绿叔叔带去喝酒也就干喝，连点花生米都不给，看着甚至感觉饿了起来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 18966#       发表于 2025-6-12 19:09
+
+首席哥那架專用強人其實都是NT 測試機吧
+
+又或者秒了整隊強人隊伍後，他和夏利亞玩雙殺自爆
+

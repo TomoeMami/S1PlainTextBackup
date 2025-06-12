@@ -1728,3 +1728,57 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 你们都是用键盘玩的？</blockquote>
 手柄啊，跑步还好轻推摇杆慢走就会发现人都是飘的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 2398#       发表于 2025-6-12 19:03
+
+所以这游戏死亡没惩罚？我拿完东西直接紫砂回篝火是最快的？
+
+*****
+
+####  ladiesman802  
+##### 2399#       发表于 2025-6-12 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926154&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-12 16:42</a>
+
+这游戏不对照攻略打容易漏东西/成就么？第一遍挺想避开影响通关的。</blockquote>
+不知道pc有什么成就，ps有全营地，全饮料罐收集，全饮料罐可以回去收集，但全营地漏了就比较痛苦
+
+*****
+
+####  卡拉德利姆  
+##### 2400#       发表于 2025-6-12 19:05
+
+无人机在哪里升级啊 手里好几个升级模块了
+
+
+*****
+
+####  h122h  
+##### 2401#       发表于 2025-6-12 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927156&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-12 19:05</a>
+
+无人机在哪里升级啊 手里好几个升级模块了</blockquote>
+要过剧情，之后到主城会解锁升级。
+
+*****
+
+####  mhss  
+##### 2402#       发表于 2025-6-12 19:10
+
+完美格挡感觉比完美闪避好按出来得多，闪避到底是单按还是要带方向键？<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 2403#       发表于 2025-6-12 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927184&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-12 19:10</a>
+
+完美格挡感觉比完美闪避好按出来得多，闪避到底是单按还是要带方向键？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蓝光都要带方向键的
+
