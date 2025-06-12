@@ -13440,3 +13440,38 @@ LoveLive×高达
 
 卡尔玛没对紫婆造成威胁，估计紫婆也不会对他下手吧
 
+
+*****
+
+####  孙吧星人  
+##### 18932#       发表于 2025-6-12 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926365&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 17:15</a>
+
+也对。但肯定涉及到让GQX驾驶员上战场，而这个驾驶员是个未成年小女孩儿。
+
+但是呃我的主要论点是，绿叔 ...</blockquote>
+你说他会“为了眼前的认识的鲜活的小孩儿，放弃掉模糊的长远的关乎宏大概念的目标”我基本同意，这集差不多就是这么演的，但一个最基本且有成功几率的行动计划肯定还是有的，不然他的行为就成纯粹的自杀加坑队友（甚至还要加上更多无辜人）了，一样不符合人设啊...<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LadySaazbaum  
+##### 18933#       发表于 2025-6-12 17:34
+
+<blockquote>孙吧星人 发表于 2025-6-12 17:27
+你说他会“为了眼前的认识的鲜活的小孩儿，放弃掉模糊的长远的关乎宏大概念的目标”我基本同意，这集差不 ...</blockquote>
+yep，我确实认为绿叔叔很可能不存在“一个最基本且有成功几率的行动计划”，或者更直白点说，编剧并没有给他做这样一个计划。他纯纯就是根据直觉走，迄今为止一直能走对（。
+
+这就是NT吗.jpg
+
+*****
+
+####  帆前  
+##### 18934#       发表于 2025-6-12 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926135&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-12 16:38</a>
+
+挺好了，刚开始我以为喵安只是花瓶，没想到上机了还是个颠婆，服装发型也换得多，满足 ...</blockquote>
+哎，没有戏份倒是没有担心过，毕竟是主角团。一眼相中，挺五味杂陈的，希望剧情能对她好点吧
+
