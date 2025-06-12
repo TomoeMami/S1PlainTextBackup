@@ -810,3 +810,54 @@ https://cloud.189.cn/t/nQZnmqQruaI3（访问码：lh7z）
 预购给的衣服和无人机皮肤去哪里拿呀</blockquote>
 安全屋（停机坪）门口的箱子
 
+
+*****
+
+####  LOLITA  
+##### 2310#       发表于 2025-6-12 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923990&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-12 10:32</a>
+
+安全屋（停机坪）门口的箱子</blockquote>
+也就是说要推进一部分剧情？
+
+*****
+
+####  woshenc  
+##### 2311#       发表于 2025-6-12 10:36
+
+女主这脸不太喜欢
+
+后面能幻化成迅驰或者瑞雯吗？
+
+*****
+
+####  洛克萨斯  
+##### 2312#       发表于 2025-6-12 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924018&amp;ptid=1978008" target="_blank">LOLITA 发表于 2025-6-12 10:36</a>
+
+也就是说要推进一部分剧情？</blockquote>
+对，进入第一个主城就能开了，其他dlc也是在这里开的，大概两个小时吧
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 2313#       发表于 2025-6-12 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924018&amp;ptid=1978008" target="_blank">LOLITA 发表于 2025-6-12 10:36</a>
+也就是说要推进一部分剧情？</blockquote>
+要打完阿尔法孽奇拔，也就是正式的boss战要三回以后
+
+*****
+
+####  袄_偶滴小乔  
+##### 2314#       发表于 2025-6-12 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67924020&amp;ptid=1978008" target="_blank">woshenc 发表于 2025-6-12 10:36</a>
+女主这脸不太喜欢
+
+后面能幻化成迅驰或者瑞雯吗？</blockquote>
+不打mod应该只能穿这两人的衣服
+
