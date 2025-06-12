@@ -2077,3 +2077,25 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 弹几次也破不了架势，有这个折腾的时间硬砍都给砍死 ...</blockquote>
 仔细看怪的血条，每种怪都有一定数量的体势值，弹一次少一点。弹完了才能处决。怪强了以后一般攻击只能刮痧，特别是boss。
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2435#       发表于 2025-6-12 21:57
+
+上线看了下nikki联动那几套服装，衣服还行，发型的发量有点多，而且模型有点大，然后戴伊芙这个呆瓜头上格格不入......
+
+*****
+
+####  哈迪斯兜帽  
+##### 2436#       发表于 2025-6-12 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928160&amp;ptid=1978008" target="_blank">HellMaster 发表于 2025-6-12 21:47</a>
+仔细看怪的血条，每种怪都有一定数量的体势值，弹一次少一点。弹完了才能处决。怪强了以后一般攻击只能刮 ...</blockquote>
+刚打完金刚
+就用蓝光闪现和破盾技破盾之后硬撸
+
+前两次打，几下防御失败直接被送走了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

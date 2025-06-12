@@ -14021,3 +14021,18 @@ PAZSD= post-AZ stress disorder
 潭友不可能没听说吧，就那个，金发恋母皇帝带着一堆质量兵器要执行地球 ...</blockquote>
 [https://www.bilibili.com/opus/743610421427044358](https://www.bilibili.com/opus/743610421427044358) 居然还有这么变态的东西吗
 
+
+*****
+
+####  灵魂收割机  
+##### 18979#       发表于 2025-6-12 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927738&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-12 20:47</a>
+
+不是说第一次场刊里写的是柊二吗某个字幕组就因为这个一直写作柊二</blockquote>
+简中和台湾繁中：修司伊藤
+
+香港繁中：修治伊藤
+
+GQX的三套官方中文人名翻译有很多不同点，不要太在意<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
