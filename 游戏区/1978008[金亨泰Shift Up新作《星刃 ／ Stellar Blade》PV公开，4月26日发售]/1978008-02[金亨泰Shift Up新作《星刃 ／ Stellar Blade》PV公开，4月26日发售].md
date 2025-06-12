@@ -924,3 +924,42 @@ mod作者已经开始发力了<img src="https://p.sda1.dev/24/717b04078735c967dc
 
 我说你这个价格这个质量，被星战的绝地武士在本地化方面完爆了，好吗？
 
+
+*****
+
+####  ATRO  
+##### 2321#       发表于 2025-6-12 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923121&amp;ptid=1978008" target="_blank">虚无连斩 发表于 2025-6-12 07:31</a>
+5点50大概就在解锁了...打了一个多小时
+体验版的密码箱密码没找到，怎么又遇到一个找不到密码的箱子
+密码都 ...</blockquote>
+80%的箱子密码都在当前图附近(水里啊，尸体啊，视觉死角啊多搜搜)，有几个大地图的箱子需要很后面的连环任务完成才能解锁，确实不太友好)不行就看攻略吧
+
+另外当前地图是否漏下了收集要素可以看图鉴，包括后面的收集照相任务在图鉴里都有提示
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  永远的访客  
+##### 2322#       发表于 2025-6-12 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923887&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-12 10:15</a>
+
+蒸汽玩满2小时，应该就不给退了
+
+这个移植看来还是翔尼出力的，和蜘蛛人、末日美国一模一样</blockquote>
+试玩存档不是说打完boss能保留吗，打完boss就不能进游戏回头探索了，开新档又会冲掉，为了这个我憋了几天没打，结果不继承？<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Schwarzess  
+##### 2323#       发表于 2025-6-12 12:14
+
+密码箱先别急，很多都是要过这张图后面回来探索才给的。
+比如坐完单轨的水没都市，扫描一下水下全是可探索的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
