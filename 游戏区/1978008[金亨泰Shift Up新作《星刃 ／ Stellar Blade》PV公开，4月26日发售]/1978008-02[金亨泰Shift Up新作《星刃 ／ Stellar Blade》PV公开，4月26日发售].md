@@ -1402,3 +1402,30 @@ n网只找到一个大屁股mod 还是替换初始衣服的，[https://next.nexu
 —— 来自 鹅球 v3.3.96</blockquote>
 能改啊 注意看提示 键盘是按空格
 
+
+*****
+
+####  naihs  
+##### 2364#       发表于 2025-6-12 16:19
+
+风灵月影出了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ——啧  
+##### 2365#       发表于 2025-6-12 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926014&amp;ptid=1978008" target="_blank">naihs 发表于 2025-6-12 16:19</a>
+风灵月影出了吗</blockquote>
+出是出了，但是我用点击修改物品来修改维特币，买不了东西，不知道为啥<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罐子  
+##### 2366#       发表于 2025-6-12 16:25
+
+喜欢弹反的感觉，但是手残+我基本都是顶着串流延迟在玩，经常弹不到
+
+有啥降低弹反难度的mod或者金手指嘛<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
