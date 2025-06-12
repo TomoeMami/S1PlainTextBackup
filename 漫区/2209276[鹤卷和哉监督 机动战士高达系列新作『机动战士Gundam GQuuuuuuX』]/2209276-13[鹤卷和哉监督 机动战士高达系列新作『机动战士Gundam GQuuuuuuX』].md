@@ -11664,3 +11664,16 @@ gq已经是和平时期了，而且一线战斗员（首席）都知道大基紫
 
 比如老太婆下一炮要把地球全部人类都灭了，是把地球湮灭掉吗，重力怎么办？之类的问题
 
+
+*****
+
+####  Toby_dak  
+##### 18784#       发表于 2025-6-12 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67921798&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-11 21:37</a>
+
+说起来首席哥的强人哪里掏出来的，我一直以为是木马上的，可是救场那话来看强人的位置比木马还高，不然小 ...</blockquote>
+<img src="https://p.sda1.dev/24/41a920e77d700581ded08a2c0d97a899/1000117457.jpg" referrerpolicy="no-referrer">
+
+就挂在木马肚子下。
+
