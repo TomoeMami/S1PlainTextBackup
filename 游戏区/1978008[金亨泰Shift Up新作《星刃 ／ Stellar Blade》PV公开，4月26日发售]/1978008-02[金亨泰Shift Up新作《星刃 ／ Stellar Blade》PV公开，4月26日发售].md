@@ -2229,3 +2229,11 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 这游戏的战斗系统缝了一切你在别的游戏里见到的各种东西，唯独缺一个自己的核心
 
+
+*****
+
+####  黑酒杯  
+##### 2451#       发表于 2025-6-12 23:50
+
+为了展现女主身姿做了各种轻重派生，结果最该缝的offset反倒没做进来，连带着把闪避砍成了三色闪光的对策按钮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

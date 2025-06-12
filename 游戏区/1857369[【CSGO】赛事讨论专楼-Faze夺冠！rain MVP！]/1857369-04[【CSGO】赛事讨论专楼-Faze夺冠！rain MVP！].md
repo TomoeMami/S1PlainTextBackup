@@ -219,3 +219,12 @@ StarLadder公告原文如下：
 
 小蜜蜂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyogngn  
+##### 4739#       发表于 2025-6-12 23:54
+
+对我世界观冲击太大了
+波哈真王朝了
+
