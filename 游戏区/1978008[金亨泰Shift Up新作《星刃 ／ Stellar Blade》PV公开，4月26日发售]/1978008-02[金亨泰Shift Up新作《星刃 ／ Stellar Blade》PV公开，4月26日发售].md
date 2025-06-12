@@ -2475,3 +2475,24 @@ PC算是认真玩了，都是马桶通完才走主线
 现在买还有预购奖励吗？本来想出之前再买的给忘了...</blockquote>
 除了买那批预购cdkey，别的应该都没奖励了，完整版预购一共7个dlc，不预购只有4个
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2470#       发表于 2025-6-13 07:05
+
+怎么还有精防强制补课的，六段要全部防住不然直接回满。
+
+虽然捣鼓半天过了，但其实我还是没搞明白判定时机
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+幽默
+
+<img src="https://img.stage1st.com/forum/202506/13/070350yk9bxv83rk3rzve7.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1749769385463.png</strong> (38.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 07:03 上传
+
