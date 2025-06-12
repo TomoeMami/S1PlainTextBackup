@@ -892,3 +892,13 @@ mod作者已经开始发力了<img src="https://p.sda1.dev/24/717b04078735c967dc
 
 怎么这么久了还没有剧情跳过
 
+
+*****
+
+####  zhzij111  
+##### 2319#       发表于 2025-6-12 11:33
+
+女主这脸是真不行，金亨泰非要用她老婆做脸模就图一个全世界玩家说他老婆丑吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
