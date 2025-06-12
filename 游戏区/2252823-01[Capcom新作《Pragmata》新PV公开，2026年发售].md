@@ -38,3 +38,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏到现在所有预告片亮点都是小萝莉，本来以为是真萝莉，结果是梅根，还有就是美术比卡婊最近几年的一大票“写实风”游戏清新高级一点。玩法感觉大概率不如地平线1
 
+
+*****
+
+####  夜雨秋水  
+##### 88#       发表于 2025-6-12 11:40
+
+这种操作模式键盘怎么布局是个问题。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
