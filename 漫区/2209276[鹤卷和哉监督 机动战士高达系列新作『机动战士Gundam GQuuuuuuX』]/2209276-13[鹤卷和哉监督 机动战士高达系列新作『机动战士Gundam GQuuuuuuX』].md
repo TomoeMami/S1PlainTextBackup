@@ -13878,3 +13878,39 @@ PAZSD= post-AZ stress disorder
 
 又或者秒了整隊強人隊伍後，他和夏利亞玩雙殺自爆
 
+
+*****
+
+####  Saber琪  
+##### 18967#       发表于 2025-6-12 19:16
+
+nga专楼有漏油发现的，时间轴上才过去3min啊（）
+<img src="https://p.sda1.dev/24/2095e4cc0a9e1f5e1573ca0fc03b72d4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18968#       发表于 2025-6-12 19:17
+
+|[X 上的 【公式】ガンダムカードゲーム：“||◤NEWS⑩◢|| 「リソース(マチュ＆ジークアクス)」を7/26(土)より全国のガンダムカードゲーム取扱店舗にて配布！ ティーチングアプリの画面を見せてリソースカードをゲットしよう！ ※なくなり次第終了となります ※一部店舗では実施していない場合がございます [url]https://t.co/Em2LXpbWNR](https://x.com/GUNDAM_GCG_JP/status/1933121055226478893)” / X[/url]|
+
+<img src="https://img.stage1st.com/forum/202506/12/191740sn4ickjrsjufrrs9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 19:17 上传
+
+
+*****
+
+####  冷静先找时光机  
+##### 18969#       发表于 2025-6-12 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926215&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-12 16:53</a>
+按照场刊设定卡尔玛估计也被紫婆干掉了
+
+紫婆厌恶懦弱者</blockquote>
+紫婆那么恨大基，一部分原因不也是大基弑父吗，紫婆跟弟弟还是有感情的，怎么可能杀卡尔玛
+

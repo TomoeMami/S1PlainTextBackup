@@ -1782,3 +1782,11 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 完美格挡感觉比完美闪避好按出来得多，闪避到底是单按还是要带方向键？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蓝光都要带方向键的
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 2404#       发表于 2025-6-12 19:23
+
+有人知道pc接ds手柄时l3r3（按摇杆）没反应是什么情况吗，steam输入已经关了
+
