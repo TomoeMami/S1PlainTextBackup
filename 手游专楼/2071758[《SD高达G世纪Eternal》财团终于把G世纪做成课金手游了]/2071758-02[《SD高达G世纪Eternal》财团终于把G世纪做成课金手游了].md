@@ -3984,3 +3984,14 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 这个月直播还不赶紧预告GQ的开池？2集完结趁着热度骗骗钱
 
+
+*****
+
+####  电脑死机  
+##### 1843#       发表于 2025-6-12 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67918880&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-6-11 13:07</a>
+
+不知道下集的战斗能不能顺便给GQUX追加武器不然只能一辈子斧王了</blockquote>
+从模型来看除了斧头按理至少还有光枪的，另外估计也有威压或者乱舞之类的招式
+
