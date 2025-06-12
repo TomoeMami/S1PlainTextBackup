@@ -2269,3 +2269,20 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Andariel  
+##### 2455#       发表于 2025-6-13 00:39
+
+好玩，真的好玩，简直是我梦中情游<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 2456#       发表于 2025-6-13 00:41
+
+问下捅敌人屁股用不用慢走接近啊？
+
+貌似精英怪好像捅不了屁股？
+
