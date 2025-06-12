@@ -4031,3 +4031,15 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 —— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 1848#       发表于 2025-6-13 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927011&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-12 18:43</a>
+活见鬼了，200体力都捕获不到5架00的单位</blockquote>
+感觉几个女人里肯定有一两位会这么恶心你一次，官方还说后面新出高等级的委托不会出现捕获任务，看来它们还是很清楚这任务有多粪<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

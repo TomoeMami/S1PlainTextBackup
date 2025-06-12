@@ -34105,3 +34105,14 @@ Kei先生、TareKei先生～呃…苹果先生～  
 还是她好</blockquote>
 快到周年了，很期待，又有点担心会出什么问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 18711#       发表于 2025-6-13 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928619&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-12 23:16</a>
+搬运自Jimmy佬的歌单，结束戳和中文名很快加上!
+因为一些事情可能要稍微迟点，明天早上加了（）</blockquote>
+最后这段现场完全没注意到，细节咩
+

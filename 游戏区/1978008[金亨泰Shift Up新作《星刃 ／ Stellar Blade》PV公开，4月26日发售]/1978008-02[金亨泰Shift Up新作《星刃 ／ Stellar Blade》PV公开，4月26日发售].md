@@ -2286,3 +2286,46 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 貌似精英怪好像捅不了屁股？
 
+
+*****
+
+####  根正苗红  
+##### 2457#       发表于 2025-6-13 00:50
+
+ 本帖最后由 根正苗红 于 2025-6-13 00:51 编辑 
+
+才玩了几个小时，这也太缝了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+nier背景，只狼战斗，魂地图，奇迹暖暖换装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这货就是东拼西凑缝了个衣服架子。
+
+用的日配，有没有阿女士的mod啊？我要手操阿女士和绿叔叔谈恋爱<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永恒孤心  
+##### 2458#       发表于 2025-6-13 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928589&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-12 23:07</a>
+
+我永游戏里的自拍总是显示保存失败？</blockquote>
+保存失败是因为你的截图文件夹没有创建，自己在Steam\steamapps\common\StellarBlade\文件夹下面手动创建一个Screenshots文件夹才可以拍照
+
+*****
+
+####  永恒孤心  
+##### 2459#       发表于 2025-6-13 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928863&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-13 00:41</a>
+
+问下捅敌人屁股用不用慢走接近啊？
+
+貌似精英怪好像捅不了屁股？</blockquote>
+跑过去接近也可以，这游戏貌似没有脚步声这个说法，反正我都是一路狂奔到怪物后面捅菊花的，没成功就只能一顿狂揍了
+
+
+*****
+
+####  浅井惠  
+##### 2460#       发表于 2025-6-13 00:52
+
+现在买还有预购奖励吗？本来想出之前再买的给忘了...
+
