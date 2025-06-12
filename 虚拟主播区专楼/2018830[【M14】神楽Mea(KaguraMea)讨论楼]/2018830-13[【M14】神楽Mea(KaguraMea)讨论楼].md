@@ -34092,3 +34092,16 @@ Kei先生、TareKei先生～呃…苹果先生～  
 那么下期直播再见啦～拜拜！  
  
 
+
+*****
+
+####  thisisaspider  
+##### 18710#       发表于 2025-6-13 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928653&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-12 23:24</a>
+
+像今晚这样周年前平常却又热烈的一晚要是能成为永恒就好了。
+
+还是她好</blockquote>
+快到周年了，很期待，又有点担心会出什么问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
