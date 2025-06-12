@@ -2063,3 +2063,17 @@ PC上PS BUTTON是暂停键导致没法PS BUTTON+R2截图了
 
 我把这玩意儿当尼尔劣化版打的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HellMaster  
+##### 2434#       发表于 2025-6-12 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927749&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-12 20:48</a>
+精防感觉收益巨低
+
+对面要是连段你没反应过来白被揍一顿
+
+弹几次也破不了架势，有这个折腾的时间硬砍都给砍死 ...</blockquote>
+仔细看怪的血条，每种怪都有一定数量的体势值，弹一次少一点。弹完了才能处决。怪强了以后一般攻击只能刮痧，特别是boss。
+
