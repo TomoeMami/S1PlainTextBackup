@@ -1790,3 +1790,13 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 有人知道pc接ds手柄时l3r3（按摇杆）没反应是什么情况吗，steam输入已经关了
 
+
+*****
+
+####  masokishin  
+##### 2405#       发表于 2025-6-12 19:27
+
+1660s还是跟不上了么、有时场景不卡，打怪卡的不行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
