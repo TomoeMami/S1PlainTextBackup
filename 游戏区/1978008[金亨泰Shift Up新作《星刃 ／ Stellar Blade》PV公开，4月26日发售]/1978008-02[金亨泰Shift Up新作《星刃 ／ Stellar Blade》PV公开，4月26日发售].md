@@ -1880,3 +1880,26 @@ eve这个体模真是一眼亚洲人，两边的胯是平的<img src="https://st
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2415#       发表于 2025-6-12 20:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有个技巧是触摸板往上滑动是地图，往下滑动是任务列表，不知道pc有没有保留
+
+
+*****
+
+####  黑酒杯  
+##### 2416#       发表于 2025-6-12 20:40
+
+恐怖射击游戏环节拖得有点长了，原本还以为只是个调剂，而且这地图要开的门也忒多了吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJO42  
+##### 2417#       发表于 2025-6-12 20:40
+
+这游戏慢镜头的滥用，跟扎克施耐德有的一比
+

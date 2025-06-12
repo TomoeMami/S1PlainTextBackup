@@ -13998,3 +13998,13 @@ GQuuuuuuX的场刊没有推翻这设定。
 可以敲定シュウジ的官方译名就是修司了？</blockquote>
 官方翻译一直都是修司的
 
+
+*****
+
+####  ヒトニナル  
+##### 18977#       发表于 2025-6-12 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927616&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-12 20:25</a>
+官方翻译一直都是修司的</blockquote>
+不是说第一次场刊里写的是柊二吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某个字幕组就因为这个一直写作柊二
+

@@ -1598,3 +1598,17 @@ beta删档吗虽然手感很粪但是太色了给我玩爽了</blockquote>
 把包括通行证上的看起来涩的衣服都集齐了，boss除了联机的也都过了。
 对这游戏的感想只有女角色真的好涩<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离魂仙  
+##### 275#       发表于 2025-6-12 20:37
+
+老落英只在刚公测时玩过一阵，现在这个通行证打完了感觉还不错
+
+双剑在白狼boss战里锁定中侧滑总是会钻进胯下动弹不得被按着揍
+
+盾娘我只会站桩防反，RB键盾流靠目押按不出来 感觉怪怪的
+
+结果还是输出略逊的大剑妹有意思，回合制当魂游打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
