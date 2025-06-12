@@ -56,3 +56,12 @@
 
 这玩法一眼到头
 
+
+*****
+
+####  喵喵叫的猫  
+##### 90#       发表于 2025-6-12 13:34
+
+子弹打完报废
+原来是我大Tediore<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

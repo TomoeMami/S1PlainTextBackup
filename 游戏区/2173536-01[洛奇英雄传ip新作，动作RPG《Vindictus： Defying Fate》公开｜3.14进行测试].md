@@ -1578,3 +1578,14 @@ beta删档吗虽然手感很粪但是太色了给我玩爽了</blockquote>
 
 —— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  h1r0  
+##### 273#       发表于 2025-6-12 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923777&amp;ptid=2173536" target="_blank">Errey 发表于 2025-6-12 10:02</a>
+
+这个重置直接把攻速抬上去体验就不会差，但为什么技能说明比网游时代还差，也不给看出招表和伤害倍率 ...</blockquote>
+这个倒是好理解，他这demo的基础系统都没想好该怎么做，在原版基础上删什么加什么，最后做成哪类游戏，教程和详细数值不可能先做的
+
