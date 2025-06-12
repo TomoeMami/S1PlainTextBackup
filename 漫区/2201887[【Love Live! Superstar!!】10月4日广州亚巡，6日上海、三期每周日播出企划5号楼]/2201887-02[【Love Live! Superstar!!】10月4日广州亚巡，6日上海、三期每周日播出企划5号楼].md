@@ -181,3 +181,21 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202506/12/102224lcd8aa9dydicdbag.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1634#       发表于 2025-6-12 17:12
+
+「ちゃやまち推しフェスティバル2025」BNFW出展决定
+
+LoveLive×高达
+
+<img src="https://img.stage1st.com/forum/202506/12/171143ns7lqx0wm4swdwb7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (449.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-12 17:11 上传
+
