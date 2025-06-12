@@ -2368,3 +2368,43 @@ nier背景，只狼战斗，魂地图，奇迹暖暖换装<img src="https://stat
 不至于吧，墙面攀岩感觉像脚本没可能摔，单杠和绳子这种空中摇摆的你摇杆不要前后来回推，对准要去的方向 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">废土那几个逆天的易拉罐
 
+
+*****
+
+####  Asukalangley33  
+##### 2464#       发表于 2025-6-13 01:59
+
+PS5为了卖盘打的走马观花
+
+PC算是认真玩了，都是马桶通完才走主线
+
+感觉画面好确实比PS5版更容易玩下去，PS5版总有一种微妙的糊感和操作延迟<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+然后NIKKI的联动还真是打枪啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DORO我以为会是一个支线NPC，卖点衣服什么的，结果是个贴纸
+
+最后来点低俗的
+
+<img src="https://img.stage1st.com/forum/202506/13/015810cd5s4zymzqzzy1od.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250613015559.png</strong> (114.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 01:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/13/015812kc88edzxccexdpc5.jpg" referrerpolicy="no-referrer">
+
+<strong>20250612224522_1.jpg</strong> (885.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 01:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/13/015811c540e3u44cmlqc4u.jpg" referrerpolicy="no-referrer">
+
+<strong>20250613000103_1.jpg</strong> (432.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 01:58 上传
+
