@@ -3545,3 +3545,21 @@ Vol.1には1話～7話を収録💿
 <img src="https://p.sda1.dev/24/40437fc2ccfa2a50d539c7bf14c1ff8d/20250613_152833.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/57486890dbddb7ac2536a11d3ad521b0/20250613_152834.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 301#       发表于 2025-6-13 20:34
+
+<blockquote>真忘私绵 发表于 2025-6-13 05:58
+印度发生空难，一架飞机坠毁，一人奇迹生还，幸运…棕？</blockquote>
+至少有日本人是这么联想的
+
+<img src="https://img.stage1st.com/forum/202506/13/203425qair6fbzqw6boz6b.jpg" referrerpolicy="no-referrer">
+
+<strong>_20250613_213222.JPG</strong> (207.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 20:34 上传
+

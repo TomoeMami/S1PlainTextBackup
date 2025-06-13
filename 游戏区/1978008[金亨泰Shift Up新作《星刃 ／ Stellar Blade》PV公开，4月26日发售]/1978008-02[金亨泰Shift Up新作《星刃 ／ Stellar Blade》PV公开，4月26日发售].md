@@ -3399,3 +3399,47 @@ l3切换跑步啊
 脊椎可以升级，组件是不是不能升?
 同一个组件拿到高星的之后低星的还有用吗
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2557#       发表于 2025-6-13 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933807&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-13 19:54</a>
+
+跑到地图角落拿完东西直接自鲨回篝火节约跑图时间 这游戏是这样玩的马</blockquote>
+很快你就会发现自己误入陷阱拼劲全力无法战胜<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iceblue  
+##### 2558#       发表于 2025-6-13 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933961&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-13 20:21</a>
+
+脊椎可以升级，组件是不是不能升?
+
+同一个组件拿到高星的之后低星的还有用吗 ...</blockquote>
+组件可以叠加
+
+
+*****
+
+####  birdma  
+##### 2559#       发表于 2025-6-13 20:34
+
+<blockquote>Sevenzerofive 发表于 2025-6-13 19:37
+这身真不错啊
+
+—— 来自 samsung SM-G7810, Android 11, 鹅球 v3.5.99</blockquote>
+主城进门第一个岔路口尽头满是书的房间里查看书有惊喜
+
+*****
+
+####  HATENA  
+##### 2560#       发表于 2025-6-13 20:35
+
+<blockquote>alucardcz 发表于 2025-6-13 19:51
+怎么感觉跟漏油说的不一样啊 萌新在沙漠一个不小心就死了  感觉在打魂  好在这游戏篝火超近 死了也没惩罚 ...</blockquote>
+建议抛弃繁文缛节，升级伪装骨架去捅怪物**子
+
