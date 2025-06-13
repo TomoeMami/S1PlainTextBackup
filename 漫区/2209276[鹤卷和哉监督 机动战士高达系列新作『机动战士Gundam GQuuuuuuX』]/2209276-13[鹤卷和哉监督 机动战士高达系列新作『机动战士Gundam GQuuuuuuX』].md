@@ -14299,3 +14299,17 @@ image.png
 
 所以难搞的一直是如何防止两方嫡系火并，且似乎目前他的计划与鸭也没有交集，后者另有算计。
 
+
+*****
+
+####  stevenzero  
+##### 19002#       发表于 2025-6-13 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929538&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-13 09:20</a>
+事实上两个人的姓氏不完全一样
+シムス・アル・バハロフ（Simus Al Bakharov）
+ダルシア・バハロ(Darcia B ...</blockquote>
+有说法
+
+在2004年的《机动战士高达》小说修订版中，达尔西亚的姓氏被罗马化为“巴哈罗夫（Bakharov）”。然而，后来的作品，包括《机动战士高达NT》，将其罗马化为“巴哈罗（Bakharo）”。
+
