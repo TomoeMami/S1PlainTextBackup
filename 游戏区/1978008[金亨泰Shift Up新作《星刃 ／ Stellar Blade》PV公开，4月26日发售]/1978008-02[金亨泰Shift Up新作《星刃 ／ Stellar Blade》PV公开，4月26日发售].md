@@ -3535,3 +3535,24 @@ l3切换跑步啊
 是不是暴显存了 我还没闪退过</blockquote>
 四次里只有一次是提示显存不够，其他三次都是其他不明原因的闪退
 
+
+*****
+
+####  alucardcz  
+##### 2569#       发表于 2025-6-13 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934497&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-13 21:55</a>
+
+四次里只有一次是提示显存不够，其他三次都是其他不明原因的闪退</blockquote>
+设置里能看到预估显存实用量 看看有超吗
+
+*****
+
+####  幽远ghofar  
+##### 2570#       发表于 2025-6-13 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934571&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-13 22:10</a>
+
+设置里能看到预估显存实用量 看看有超吗</blockquote>
+我4070tisuper，3440*1440的屏幕，拉到非常高也才占用9.2GB的显存，显然还差得远，反正现在是把画质拉低之后赶快离开这个需要潜水的区域再调回来……
+
