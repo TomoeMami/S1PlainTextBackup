@@ -2646,3 +2646,38 @@ PC算是认真玩了，都是马桶通完才走主线
 机器敌人不能背刺吧，我每次打机器系的都触发不了背刺qte</blockquote>
 野外那种头上长炮塔的没法被刺，拿杖穿斗篷的可以
 
+
+*****
+
+####  Sevenzerofive  
+##### 2485#       发表于 2025-6-13 10:27
+
+流程中会有错过之后就再也收集不到的东西吗？想先推主线再回来通马桶收集<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  五块  
+##### 2486#       发表于 2025-6-13 10:33
+
+这中配实在是一言难尽……看完开场马上换日配了。
+
+*****
+
+####  theworld  
+##### 2487#       发表于 2025-6-13 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929785&amp;ptid=1978008" target="_blank">仰望神的括约肌 发表于 2025-6-13 09:57</a>
+
+我ps5版语音调中文后 boss挑战里的红莲说的是英文</blockquote>
+DLC就没做中配，开日配打吧
+
+*****
+
+####  弗林蒂萨  
+##### 2488#       发表于 2025-6-13 10:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这个跳劈暗杀判定有点病吧，有点距离的敌人先跳一下明明出现按键提示了，却变成了普通攻击
+
