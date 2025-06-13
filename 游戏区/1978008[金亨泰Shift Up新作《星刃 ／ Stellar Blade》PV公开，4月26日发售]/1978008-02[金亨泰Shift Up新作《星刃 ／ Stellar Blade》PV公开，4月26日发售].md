@@ -2858,3 +2858,44 @@ DLC就没做中配，开日配打吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">丸辣 我感觉后面出的衣服全都不如红色旗袍
 
+
+*****
+
+####  ladiesman802  
+##### 2507#       发表于 2025-6-13 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930742&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-13 11:50</a>
+
+问下城里面那些互动了之后没啥东西出来的贩卖机
+
+是就是不会出东西还是有什么机制才会出易拉罐? ...</blockquote>
+就是没有的
+
+
+*****
+
+####  ladiesman802  
+##### 2508#       发表于 2025-6-13 12:32
+
+我觉得一周目的城市猫猫拍照任务衣服不错，还有大沙漠拍照的烽火裙
+
+*****
+
+####  秋月孝三  
+##### 2509#       发表于 2025-6-13 12:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">XXTB用户已经失去收集衣服的欲望了
+
+*****
+
+####  FFFreddie  
+##### 2510#       发表于 2025-6-13 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930267&amp;ptid=1978008" target="_blank">lpzhg 发表于 2025-6-13 10:57</a>
+维特币我怎么记得多得很根本用不完
+
+—— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+我记得是钓鱼还是啥npc那里兑完奖励之后就能兑换币了
+
+—— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -736,3 +736,37 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 真是一张券都不给啊，点进武器店一把都换不了
 
+
+*****
+
+####  幽香  
+##### 5722#       发表于 2025-6-13 12:28
+
+ 本帖最后由 幽香 于 2025-6-13 12:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930188&amp;ptid=2150634" target="_blank">KBAC 发表于 2025-6-13 10:46</a>
+因为二代就是这么做的，这是基于过往经验的合理推测。
+
+说相同贴牌本来就是说武器名字相同，这样也方便讨 ...</blockquote>
+没问题，本来几作之间同一把武器游玩手感都有差别，算不同武器也挺正常啊，况且旧的不去新的不来，我是支持研究所把那些旧的贴牌完全舍弃，重新做新的，或者干脆不出，就像1代，2代也不是所有战斗场所，鲑鱼跑图全部都在3重置一样。
+
+*****
+
+####  shirolin  
+##### 5723#       发表于 2025-6-13 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930361&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2025-6-13 11:08</a>
+真是一张券都不给啊，点进武器店一把都换不了</blockquote>
+换完还剩175张，根本用不完
+
+<img src="https://img.stage1st.com/forum/202506/13/123009tf0cf12898prs8pl.jpg" referrerpolicy="no-referrer">
+
+<strong>20250613122910-01JXJBWPF0QK6S7E6592NT8XRY.jpg</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 12:30 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

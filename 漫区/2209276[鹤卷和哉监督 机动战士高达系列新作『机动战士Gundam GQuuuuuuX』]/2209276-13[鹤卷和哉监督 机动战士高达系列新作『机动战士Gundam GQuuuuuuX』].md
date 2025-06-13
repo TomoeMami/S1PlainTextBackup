@@ -14362,3 +14362,11 @@ image.png
 
 但是致敬一下卡迪公吧
 
+
+*****
+
+####  ardente  
+##### 19007#       发表于 2025-6-13 12:32
+
+这个矛在首席哥横跳的时候都会喷一下，它甚至还是联动全机的机动肢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -3471,3 +3471,14 @@ x终于要登场了
 
 印度发生空难，一架飞机坠毁，一人奇迹生还，幸运…棕？
 
+
+*****
+
+####  rushsong  
+##### 298#       发表于 2025-6-13 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880622&amp;ptid=2125794" target="_blank">草台培训班 发表于 2025-6-3 21:11</a>
+
+这也太弱智了</blockquote>
+日本年轻人本来弱智就居多，毕竟发达国家当久了
+
