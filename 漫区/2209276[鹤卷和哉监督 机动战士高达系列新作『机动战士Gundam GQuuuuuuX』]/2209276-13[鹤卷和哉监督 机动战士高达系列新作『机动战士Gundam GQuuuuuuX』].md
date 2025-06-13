@@ -15112,3 +15112,16 @@ Gto里面是骑兵盔
 从这几天爆发的同人创作可以看出，大部分人都觉得玛秋&amp;绿叔叔&amp;科莫利三人相处得十分愉快（事实上也应如此）
 反观塑料三人组…<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 19046#       发表于 2025-6-13 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934871&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-13 23:18</a>
+
+从这几天爆发的同人创作可以看出，大部分人都觉得玛秋&amp;绿叔叔&amp;科莫利三人相处得十分愉快（事实上也应如此） ...</blockquote>
+前几集同人不大部分都是三人组吗
+
+都是和剧情同步一波一波的啦，第四集之后一堆诗子，第六集之后一堆杜，第九集之后一堆拉拉，一个道理
+

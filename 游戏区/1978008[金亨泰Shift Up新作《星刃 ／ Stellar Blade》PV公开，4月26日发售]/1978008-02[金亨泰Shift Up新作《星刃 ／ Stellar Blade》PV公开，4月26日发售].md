@@ -3620,3 +3620,69 @@ l3切换跑步啊
 荒野救那个突然说话的机器人那里，有个箱子是不是必须要二段跳才能拿到啊？我推箱子到那个断梯下面，怎么看 ...</blockquote>
 是的 必须2段跳
 
+
+*****
+
+####  Andariel  
+##### 2577#       发表于 2025-6-13 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934793&amp;ptid=1978008" target="_blank">Nosgoth 发表于 2025-6-13 22:59</a>
+
+荒野救那个突然说话的机器人那里，有个箱子是不是必须要二段跳才能拿到啊？我推箱子到那个断梯下面，怎么看 ...</blockquote>
+不用二段跳，箱子推的里梯子太近了就不好抓梯子
+
+离得远一点就好抓梯子了，我一次就抓住了
+
+*****
+
+####  Anonymous_User  
+##### 2578#       发表于 2025-6-13 23:27
+
+伊芙脸太丑了不如NPC
+
+<img src="https://img.stage1st.com/forum/202506/13/232127dpsf598inrrfszjk.jpg" referrerpolicy="no-referrer">
+
+<strong>SB-Win64-Shipping_2025_06_13_11_32_54_398.jpg</strong> (779.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 23:21 上传
+
+*****
+
+####  Andariel  
+##### 2579#       发表于 2025-6-13 23:27
+
+提前问下服装获取的问题，一周目获得了设计图但是没有制作出来的话
+
+二周目还能拿到异色吗？还是说必须制作出来才能拿到异色
+
+
+*****
+
+####  alucardcz  
+##### 2580#       发表于 2025-6-13 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934919&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-13 23:26</a>
+
+不用二段跳，箱子推的里梯子太近了就不好抓梯子
+
+离得远一点就好抓梯子了，我一次就抓住了 ...</blockquote>
+你说的是3机关之一的梯子把 还有一个短的梯子 箱子无论放哪都跳不上去
+
+*****
+
+####  江戸前ルナ  
+##### 2581#       发表于 2025-6-13 23:33
+
+我现在最希望的就是有人做DOA人物的MOD换上去<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 2582#       发表于 2025-6-13 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934942&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-13 23:32</a>
+你说的是3机关之一的梯子把 还有一个短的梯子 箱子无论放哪都跳不上去</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘了是不是机关了，反正抓住梯子爬上去能开个箱子
+
