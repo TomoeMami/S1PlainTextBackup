@@ -9002,3 +9002,16 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 还在观望的问下   这作的武器库是完全复制的法环? 还是说额外加了些什么?   尤其是特大类武器上有什么新东西吗  比如黑骑士特大剑回归了   或者其动作模组回归了吗
 
+
+*****
+
+####  modkingr  
+##### 881#       发表于 2025-6-14 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935210&amp;ptid=2210352" target="_blank">妹控使徒 发表于 2025-6-14 00:55</a>
+
+还在观望的问下   这作的武器库是完全复制的法环? 还是说额外加了些什么?   尤其是特大类武器上有什么新东 ...</blockquote>
+武器库完全复制法环，什么额外要素都没有。固定主角拿擅长武器有特殊模组（追踪者拿大剑、无赖拿特大etc.）
+
+没有新东西，甚至黄金树幽影dlc的武器都没有，全是本篇内容
+
