@@ -2774,3 +2774,34 @@ DLC就没做中配，开日配打吧
 啊？只要保存退出就好了吗
 我还怕改成死档了不敢保存<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无连斩  
+##### 2498#       发表于 2025-6-13 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930556&amp;ptid=1978008" target="_blank">五更伪境 发表于 2025-6-13 11:30</a>
+
+我不信有人用旗袍皮肤的时候不盯着屁股看，老金这人行，能处👍</blockquote>
+我还是喜欢送相机那个任务奖励的休闲装，裙子很短，非常养眼
+
+
+*****
+
+####  LrGsite  
+##### 2499#       发表于 2025-6-13 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929278&amp;ptid=1978008" target="_blank">Penelope 发表于 2025-6-13 08:38</a>
+
+帧数太高会导致无法切换锁定目标也太批爆了
+
+有遇到的可以锁到109帧以解决问题 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来这是BUG吗，我还以为是游戏设定
+
+*****
+
+####  洛克萨斯  
+##### 2500#       发表于 2025-6-13 11:44
+
+旗袍皮超好看，还很早就能拿到，非常爽，目前推到11矩阵，体感最好看的皮肤之一<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
