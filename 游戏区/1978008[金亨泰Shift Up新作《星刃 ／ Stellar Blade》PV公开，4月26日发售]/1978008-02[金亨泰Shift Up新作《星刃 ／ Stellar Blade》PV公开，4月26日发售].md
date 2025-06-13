@@ -3271,3 +3271,15 @@ l3切换跑步啊
 
 所以现在有能持续扫描的mod吗大家
 
+
+*****
+
+####  gaiden  
+##### 2547#       发表于 2025-6-13 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932794&amp;ptid=1978008" target="_blank">罐子 发表于 2025-6-13 17:03</a>
+这个成绩大概对等多少销量？</blockquote>
+应该有个3-4倍在线，黑猴之前200多万在线，很快就销量破1000w了
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
