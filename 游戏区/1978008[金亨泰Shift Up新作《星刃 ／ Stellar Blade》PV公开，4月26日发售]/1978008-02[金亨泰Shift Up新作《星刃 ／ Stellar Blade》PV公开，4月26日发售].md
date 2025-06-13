@@ -3718,3 +3718,13 @@ l3切换跑步啊
 反正我跳不上去 很明显能勾到的但就是飞过去了</blockquote>
 就是啊，这个让我感觉很不爽。
 
+
+*****
+
+####  重新做人  
+##### 2586#       发表于 2025-6-14 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934758&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-13 22:49</a>
+他妈的又无故闪退了，这SB是在嘲讽我是吧</blockquote>
+windows的问题也说不定，我闪退几次之后游戏bug了打不开，进游戏只有声音没画面，重装都没用，更新了win10补丁就好了，之后再没闪退过
+
