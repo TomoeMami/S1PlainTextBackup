@@ -14876,3 +14876,196 @@ X 上的 𝑆𝐼𝐴𝑁@C106（土）西 “さ”43ab：“https://t.co/w3YD1
 X 上的 でるれいっち：“ギ ...</blockquote>
 我也很好奇鸭子是不是随身携带这套经典皮肤<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 19040#       发表于 2025-6-13 21:57
+
+夏亚和紫色老太婆都戴着差不多的头盔，这个有啥说法吗？不是情侣头盔？
+
+
+*****
+
+####  岸浪白野  
+##### 19041#       发表于 2025-6-13 22:01
+
+[X 上的 Edgar_syu：“あつ〜〜〜い……(′゜ω。‵) #GQuuuuuuX #ジークアクス [url]https://t.co/ahnyAhYPGo](https://x.com/Edgar_Syu/status/1933117161234645353)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213329k4pw80f4jphzaa4l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:33 上传
+
+[X 上的 しとね：“Amate Yuzuriha / アマテ・ユズリハ （マチュ）❤ #ジークアクス #GQuuuuuuX [url]https://t.co/Vm0NBHPK0i](https://x.com/tuinositone/status/1933086889004687438) ⚠Tap Recommend [https://t.co/ng3T6kbQ4i](https://t.co/ng3T6kbQ4i)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/210145gsc8sssbsbxzlz5y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:01 上传
+
+[X 上的 うおなてれぴん：“毎回獄所に戻されるマチュかっこいいな。 [url]https://t.co/tCfWp227v6](https://x.com/uonaThereminvox/status/1933165764539990223)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/205415u929l6u692gg49yo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (530.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 20:54 上传
+
+[X 上的 インドアゴリラ(絵)/依頼受付中：“視聴者の脳内に流れる、マチュ達の存在しない記憶─── #GQuuuuuuX [url]https://t.co/DxlPIzgbF2](https://x.com/Iindoagorira/status/1933054306711916576)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/210059hkqv7cqluzlcolvg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250613205640.jpg</strong> (542.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:00 上传
+
+[X 上的 このせ：“ヒゲマン・マチュ君・コモりん [url]https://t.co/BQKQfDQdZL](https://x.com/k0nos/status/1933095309963616286)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/212817rm816o9hsmm46o9v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:28 上传
+
+[X 上的 ふじ：“#GQuuuuuuX #ジークアクス 展開が怖すぎて現実逃避とまらん [url]https://t.co/pwkZzfeNEM](https://x.com/f_ukkami/status/1933114304431018248)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/212903zkyj9yrjbzxb5kp0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:29 上传
+
+[X 上的 ハルキ：“🍎 [url]https://t.co/6ihp1NAdBF](https://x.com/haruki_chise/status/1933205057878782315)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213102du7p26qq2qkqk2ni.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:31 上传
+
+[X 上的 ふ：“恋バナ [url]https://t.co/Z5YIUXu9Zj](https://x.com/furuyorufu/status/1933437796829835676)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213152q0caan9dtobk2k07.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:31 上传
+
+[X 上的 上向だい@5巻発売中：“マチュとシャリア・ブル。どんな訓練をしていたのか気になる…。 [url]https://t.co/57oKQvmleL](https://x.com/dai_uemukai/status/1933480484593676457)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213249ck7tf0hkolhmktgk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:32 上传
+
+[X 上的 俺正讀（アジェンド）：“[url]https://t.co/uZnstsM1uu](https://x.com/ireading62/status/1933436659254898923)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/214741aumftmxqdq5dmt1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:47 上传
+
+[X 上的 おいっちくん🍁oicchikun🍁：“#ジークアクス #GQuuuuuuuX 最近いろいろ気になりはじめたコモリ少尉 [url]https://t.co/iynvZerKsO](https://x.com/oicchikun/status/1933156563935801741)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213415bh77w5027th5znnn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:34 上传
+
+[X 上的 錆々【さびさび】：“小盛りん [url]https://t.co/SWxFGUqhzO](https://x.com/Sabi_Sabi1234/status/1933138081424781693)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/213000y0u8zmel58am6ww0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (833.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:30 上传
+
+[X 上的 DNK：“お料理ニャアン [url]https://t.co/cYzy80j8v6](https://x.com/dnkfuaka1/status/1933102364900380750)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/220123rmy4eloc14a89obm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 22:01 上传
+
+[X 上的 Meme tuber 「𝑼𝑹𝑶𝑩𝑶𝑹𝑶𝑺。」：“ข้าวมันไก่น่ะ เขาไม่ใส่มะเขือเทศ!!! #GQuuuuuuX #ジークアクス [url]https://t.co/VOupEsR5h2](https://x.com/Memetuber1/status/1932829617087508752)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/215255bamxms0z636atmks.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:52 上传
+
+[X 上的 POCHIX2：““Nyaan Khao man gai” JP/TH Artist คุณฉุย Chui JP translate by Ninemeowz #GQuuuuuuX #ジークアクス #Gundam #PrimeVideoTH [url]https://t.co/0feElIVFLk](https://x.com/herePochi/status/1932771091799548087)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/215129eoyrv6blpwlwoey9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:51 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ⑧(修正版) #GQuuuuuuX [url]https://t.co/CQDR0JW77k](https://x.com/SuiSui_dm/status/1933466979232592135)” / X[/url]
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ⑨ #GQuuuuuuX [url]https://t.co/Dqv7OagXap](https://x.com/SuiSui_dm/status/1933467071138181385)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/215224ev65ggsdvbj6r4pg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/13/215234gavde3zxi2lez7pi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:52 上传
+
+[X 上的 ゅ：“コンカフェ屋さん～～ [url]https://t.co/XW1tjhT98B](https://x.com/VJ0tv/status/1933430633268982111)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/215832x2gwgrz62brrpdg2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:58 上传
+
