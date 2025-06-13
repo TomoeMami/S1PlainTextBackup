@@ -14548,3 +14548,18 @@ https://ngabbs.com/read.php?tid=44356677
 
 【【个人翻译】飞跃巅峰2！Topless Drama-哔哩哔哩】 https://b23.tv/lC9uRqS
 
+
+*****
+
+####  大十字紅朔  
+##### 19020#       发表于 2025-6-13 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929586&amp;ptid=2209276" target="_blank">kcalb 发表于 2025-6-13 09:27</a>
+
+其实，就本话绿叔叔秒闪现和第七话的表现，“灰色幽灵”真想要斩首，就现在的鸡瘟和联邦两方能拉出一个与 ...</blockquote>
+其实我一直感觉对于MS的斩首行动没有什么能防的住，真像这片子里一样用MS去截，MS之间的交战的余波都够你一个肉身人类喝一壶的
+
+那为什么吉利西亚没死
+
+为什么呢
+
