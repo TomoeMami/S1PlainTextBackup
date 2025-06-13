@@ -3866,3 +3866,11 @@ Events related to exhaustion of system commit limit (virtual memory).
 
 Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部分虚拟内存: SB-Win64-Shipping.exe (19996) 使用了 18729058304 字节；steamwebhelper.exe (21944) 使用了 583405568 字节；dwm.exe (2112) 使用了 460660736 字节。
 
+
+*****
+
+####  HATENA  
+##### 2600#       发表于 2025-6-14 02:45
+
+顺便玩了一下隔壁nikke，感觉联动剧情比本家有意思多了，金桑你怎么回事
+
