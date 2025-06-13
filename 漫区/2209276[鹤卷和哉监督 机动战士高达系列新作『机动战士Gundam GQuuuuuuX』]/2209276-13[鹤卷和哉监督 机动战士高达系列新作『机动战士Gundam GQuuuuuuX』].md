@@ -15103,3 +15103,12 @@ X 上的 でるれいっち：“ギ ...</blockquote>
 夏亚和紫色老太婆都戴着差不多的头盔，这个有啥说法吗？不是情侣头盔？</blockquote>
 Gto里面是骑兵盔
 
+
+*****
+
+####  ヒトニナル  
+##### 19045#       发表于 2025-6-13 23:18
+
+从这几天爆发的同人创作可以看出，大部分人都觉得玛秋&amp;绿叔叔&amp;科莫利三人相处得十分愉快（事实上也应如此）
+反观塑料三人组…<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

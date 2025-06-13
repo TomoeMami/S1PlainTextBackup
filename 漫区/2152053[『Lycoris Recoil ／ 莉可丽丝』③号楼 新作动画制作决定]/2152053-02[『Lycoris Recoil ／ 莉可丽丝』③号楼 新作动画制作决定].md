@@ -22,3 +22,14 @@
 
 第二季有新消息吗
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2348#       发表于 2025-6-13 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929360&amp;ptid=2152053" target="_blank">雷攻姛人 发表于 2025-6-13 08:55</a>
+
+第二季有新消息吗</blockquote>
+暂无<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

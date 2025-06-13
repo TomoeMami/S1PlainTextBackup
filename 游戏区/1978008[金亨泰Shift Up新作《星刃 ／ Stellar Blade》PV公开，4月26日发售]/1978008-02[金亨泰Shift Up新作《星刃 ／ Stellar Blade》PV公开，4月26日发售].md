@@ -3609,3 +3609,14 @@ l3切换跑步啊
 试试换语言，各国配音的人物观感也不一样</blockquote>
 换韩配，伊芙和百合都是软妹
 
+
+*****
+
+####  alucardcz  
+##### 2576#       发表于 2025-6-13 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934793&amp;ptid=1978008" target="_blank">Nosgoth 发表于 2025-6-13 22:59</a>
+
+荒野救那个突然说话的机器人那里，有个箱子是不是必须要二段跳才能拿到啊？我推箱子到那个断梯下面，怎么看 ...</blockquote>
+是的 必须2段跳
+
