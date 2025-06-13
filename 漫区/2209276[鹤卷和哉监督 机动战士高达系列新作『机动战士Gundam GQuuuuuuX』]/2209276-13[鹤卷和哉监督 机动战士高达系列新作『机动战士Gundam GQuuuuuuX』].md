@@ -14619,3 +14619,11 @@ https://ngabbs.com/read.php?tid=44356677
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  灵魂收割机  
+##### 19026#       发表于 2025-6-13 18:06
+
+官推和官网至今没有公布吸毒气三人的人设，哈基连，还能再见吗<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
