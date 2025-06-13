@@ -2963,3 +2963,23 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 我反正是一周目打完后 完成全罐子和钓鱼手机后 拿好 情趣内衣和泳装后 就没玩了 后面的DLC都懒得玩 ...</blockquote>
 我买了尼尔dlc，二周目打了一半，纯跑图解锁了大沙漠所有营地。拿完尼尔全奖励就没打了。现在更新的衣服是要我二周目全收集一遍，然后再三周目全收集一遍<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 2517#       发表于 2025-6-13 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931086&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-13 12:43</a>
+
+离谱，你上n网看看，鬼佬都喜欢大屁股，一大堆都是增加什么丰满感的mod，胯部就跟你说的那样。 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/13/140947p6ig96mkzfmwiwkp.jpg" referrerpolicy="no-referrer">
+
+<strong>89M8I9F_RBJMJ47BIWMM7~I.jpg</strong> (618.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 14:09 上传
+
+不同的衣服就是对体型的观感不同，开始送的这个旗袍两边胯是开叉露出来的，体型直接在外面就看着平不够圆，我现在用的这个第六小队的就感觉非常不错，虽然两侧的胯也平但是衣服衬托的就没那么显眼
+
