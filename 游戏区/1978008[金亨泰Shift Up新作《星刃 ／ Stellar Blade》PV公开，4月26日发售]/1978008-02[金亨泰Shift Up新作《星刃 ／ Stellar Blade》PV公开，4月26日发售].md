@@ -2608,3 +2608,15 @@ PC算是认真玩了，都是马桶通完才走主线
 被发现了伊芙会很明显地从头上拔出刀变成战斗状态</blockquote>
 我还以为是接近敌人就会拔刀
 
+
+*****
+
+####  雷攻姛人  
+##### 2481#       发表于 2025-6-13 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929103&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-13 07:08</a>
+百合第一次出来的时候看脸和声音我在想到底是假小子还是正太
+
+都打完实验室了发现自己还没点偷袭</blockquote>
+试试换语言，各国配音的人物观感也不一样
+

@@ -681,3 +681,14 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 回来了都回来了，半夜服务器崩溃，一堆人在推上吐槽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幽香  
+##### 5717#       发表于 2025-6-13 09:29
+
+ 本帖最后由 幽香 于 2025-6-13 09:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67928753&amp;ptid=2150634" target="_blank">KBAC 发表于 2025-6-12 23:54</a>
+你在说什么？一代只要有第二贴牌的武器在二代全部都有第二贴牌，只是其中有ta牌的就没再给同款的武器子贴 ...</blockquote>
+所以为什么一定要原来贴牌回归呢？为什么就不能出新的？既然副武器大招配置都不一样了，1代继承到2代的贴牌怎么就能算相同贴牌武器呢？那堆相同贴皮回归又有什么意义呢？还不如重新换皮做新的，毕竟每代武器造型也在改变不是么？
+

@@ -236,3 +236,11 @@ StarLadder公告原文如下：
 
 替补进major都这么牛逼，被替补的那支队伍得多屌啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icecry  
+##### 4741#       发表于 2025-6-13 09:25
+
+一上来作业又爆炸了
+
