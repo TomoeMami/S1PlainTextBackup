@@ -199,3 +199,16 @@ Hugh 从一把弹药无限的简单手枪开始，但很快就获得了额外的
 
 肯正经做大脑门萝莉的游戏不多了，最近只在剑星里见过像样的
 
+
+*****
+
+####  汪达  
+##### 102#       发表于 2025-6-13 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930117&amp;ptid=2252823" target="_blank">TimDOK 发表于 2025-6-13 10:39</a>
+
+不得不说小萝莉这个人气真的很高，卡普空B站官网发的视频，小萝莉举牌跳票播放量断崖第一，第二次跳票也是 ...</blockquote>
+【卡表pragmata跳票道歉 vs 腾讯知几庆生、大家自己看个热闹、就图个乐呵】 [https://www.bilibili.com/video/BV1oi4y1o7jp/](https://www.bilibili.com/video/BV1oi4y1o7jp/)
+
+那个片子特别火，以至于被“致敬”了一波，很变态<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

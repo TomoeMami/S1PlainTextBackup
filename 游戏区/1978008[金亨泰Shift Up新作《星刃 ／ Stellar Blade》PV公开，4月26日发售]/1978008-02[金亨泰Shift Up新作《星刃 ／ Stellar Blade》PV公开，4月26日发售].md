@@ -2741,3 +2741,15 @@ DLC就没做中配，开日配打吧
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  江戸前ルナ  
+##### 2495#       发表于 2025-6-13 11:07
+
+看了这个视频，才知道普攻连招有这么多种是有道理的，总之就挑动作硬直最小的复读随时切防就OK了，按这打法还带打断，起码前期终于不会随便被小怪日了。
+
+[https://www.bilibili.com/video/BV1NHMnzMEfP](https://www.bilibili.com/video/BV1NHMnzMEfP)
+
+【星】预热，新人莽夫来刮痧，BOSS充当刮痧技师吐槽生意没法做。
+
