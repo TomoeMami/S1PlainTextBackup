@@ -3556,3 +3556,14 @@ l3切换跑步啊
 设置里能看到预估显存实用量 看看有超吗</blockquote>
 我4070tisuper，3440*1440的屏幕，拉到非常高也才占用9.2GB的显存，显然还差得远，反正现在是把画质拉低之后赶快离开这个需要潜水的区域再调回来……
 
+
+*****
+
+####  alucardcz  
+##### 2571#       发表于 2025-6-13 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934578&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-13 22:12</a>
+
+我4070tisuper，3440*1440的屏幕，拉到非常高也才占用9.2GB的显存，显然还差得远，反正现在是把画质拉低 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这就不知道了 我也是4070tis 4k全高 平衡 目前没闪退过
+
