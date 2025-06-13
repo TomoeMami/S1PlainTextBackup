@@ -3311,3 +3311,32 @@ l3切换跑步啊
 
 2025-6-13 18:50 上传
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2549#       发表于 2025-6-13 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933477&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-13 18:52</a>
+曦安真的有猫吗
+
+荒野蝴蝶在哪
+
+扫描也扫不到</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一只死猫和10个卡通猫贴画
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 2550#       发表于 2025-6-13 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933505&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-13 18:57</a>
+
+有一只死猫和10个卡通猫贴画</blockquote>
+猜到可能是贴图了
+
+找黑猫我还以为能顺便做一下拍照任务呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+刚刚又看了一下任务描述，原来资料库会给图片提示。
+
