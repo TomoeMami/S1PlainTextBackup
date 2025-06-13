@@ -8966,3 +8966,13 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我发现颠火这个祷告真的巨强，体型大的boss贴身来一下随便2000多伤害<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_s1  
+##### 877#       发表于 2025-6-13 21:07
+
+edge 9分 <blockquote>Elden Ring: Nightreign
+
+"Perhaps Nightreign began as a skunkworks experiment, a way to excite a team of designers who were becoming fatigued working to a formula that, while adored, was starting to become repetitive. Whatever the project's origins, the result is a thrilling blend of ideas, a game that, despite its fashionable and familiar components, feels wholly unprecedented. Moreover, Nightreign firmly establishes the studio's designers as not only masters of their own domain, but now a new, hitherto undiscovered realm." [9]</blockquote>
+
