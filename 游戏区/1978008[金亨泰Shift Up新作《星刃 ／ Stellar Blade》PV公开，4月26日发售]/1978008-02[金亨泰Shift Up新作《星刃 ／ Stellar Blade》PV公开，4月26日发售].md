@@ -3513,3 +3513,25 @@ l3切换跑步啊
 暂时也没啥特别好的MOD，现在穿着拍照送的短裙跑起来能看到内裤感觉比直接穿 ...</blockquote>
 落地前翻滚
 
+
+*****
+
+####  alucardcz  
+##### 2567#       发表于 2025-6-13 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934412&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-13 21:35</a>
+
+今天回来，打开游戏，两次都是在那个地下停车场游泳的时候闪退，昨天两次闪退也都是在那里，咋地，和水有仇 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是不是暴显存了 我还没闪退过
+
+
+*****
+
+####  幽远ghofar  
+##### 2568#       发表于 2025-6-13 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934471&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-13 21:49</a>
+
+是不是暴显存了 我还没闪退过</blockquote>
+四次里只有一次是提示显存不够，其他三次都是其他不明原因的闪退
+
