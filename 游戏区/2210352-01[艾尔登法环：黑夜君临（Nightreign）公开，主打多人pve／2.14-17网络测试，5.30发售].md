@@ -8942,3 +8942,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wolfwood  
+##### 874#       发表于 2025-6-13 13:26
+
+鹰眼单通完卸载了，真的很累，因为缩圈机制逼的玩家优化最佳路线高强度重复体力劳动，要是没有缩圈可以慢慢单人玩就好了
+

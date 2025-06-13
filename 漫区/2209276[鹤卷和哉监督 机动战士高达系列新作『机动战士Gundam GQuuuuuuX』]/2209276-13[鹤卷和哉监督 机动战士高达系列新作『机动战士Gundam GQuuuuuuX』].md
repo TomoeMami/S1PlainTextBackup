@@ -14422,3 +14422,36 @@ image.png
 
 2025-6-13 12:58 上传
 
+
+*****
+
+####  ardente  
+##### 19010#       发表于 2025-6-13 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931193&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-13 13:02</a>
+
+最近刚发现一个小细节，下面这人是基西莉亚麾下的莫里根，0079年部分就是他传达希望夏亚助基西莉亚 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官网资料他是中尉升大尉
+
+*****
+
+####  ryanghj  
+##### 19011#       发表于 2025-6-13 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931193&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-13 13:02</a>
+
+最近刚发现一个小细节，下面这人是基西莉亚麾下的莫里根，0079年部分就是他传达希望夏亚助基西莉亚 ...</blockquote>
+胸前标志看是上尉吧
+
+
+*****
+
+####  Toby_dak  
+##### 19012#       发表于 2025-6-13 13:25
+
+<img src="https://p.sda1.dev/24/d96deec5be924d80bca6f2f8b876fa44/1000117722.jpg" referrerpolicy="no-referrer">
+
+中尉。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
