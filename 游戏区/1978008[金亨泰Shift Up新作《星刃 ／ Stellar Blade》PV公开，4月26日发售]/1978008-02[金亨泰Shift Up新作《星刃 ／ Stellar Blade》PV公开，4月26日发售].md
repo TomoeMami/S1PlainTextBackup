@@ -3048,3 +3048,15 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 话说nikke码在哪儿啊
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2525#       发表于 2025-6-13 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932299&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-13 15:51</a>
+不太喜欢主角这个马尾质感啊
+话说nikke码在哪儿啊
+—— 来自 鹅球 v3.3.96</blockquote>
+设置里可以改短马尾和无马尾
+
