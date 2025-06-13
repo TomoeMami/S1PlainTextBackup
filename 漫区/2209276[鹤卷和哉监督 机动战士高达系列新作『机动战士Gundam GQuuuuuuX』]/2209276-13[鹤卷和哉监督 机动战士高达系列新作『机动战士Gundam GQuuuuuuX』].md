@@ -15175,3 +15175,20 @@ Gto里面是骑兵盔
 
 出去放风开MS，开完无缝回牢房可还行
 
+
+*****
+
+####  wing130083  
+##### 19050#       发表于 2025-6-14 07:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934301&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-13 21:14</a>
+
+X 上的 𝑆𝐼𝐴𝑁@C106（土）西 “さ”43ab：“https://t.co/w3YD16KMlu” / X
+
+X 上的 でるれいっち：“ギ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">KDA显示器嘛
+
+杜居然是0，不是还象征性的死了大约100来人
+
+喵安打完一炮头上数字得飙到多少
+
