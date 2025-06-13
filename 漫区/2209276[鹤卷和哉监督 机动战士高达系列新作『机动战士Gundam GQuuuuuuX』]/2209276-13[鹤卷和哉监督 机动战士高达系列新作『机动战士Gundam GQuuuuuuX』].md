@@ -14477,3 +14477,19 @@ image.png
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  ryanghj  
+##### 19015#       发表于 2025-6-13 14:46
+
+一般军队都是2~3年晋升一级，所以五年晋两级是正常速度
+
+<img src="https://img.stage1st.com/forum/202506/13/144618bmdcxdvdooj6d961.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 14:46 上传
+

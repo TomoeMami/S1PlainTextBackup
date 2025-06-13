@@ -8958,3 +8958,11 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 没缩圈那就变成把把三百六十五里路了
 
+
+*****
+
+####  woodey  
+##### 876#       发表于 2025-6-13 14:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我发现颠火这个祷告真的巨强，体型大的boss贴身来一下随便2000多伤害<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
