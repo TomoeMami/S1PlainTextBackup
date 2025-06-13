@@ -3123,3 +3123,36 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 在发行第一天，《剑星》Steam 平台上的玩家人数就已创下记录，达到 183,830 人，该数字创下了PlayStation在Steam所发行所有单人游戏最高记录。
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点夸张了
 
+
+*****
+
+####  xell2alex  
+##### 2532#       发表于 2025-6-13 16:54
+
+解锁精防反击和闪避反击后有点爽快了，感觉战斗系统也没说的那么不堪，就是移动感觉有点滑腻
+
+
+*****
+
+####  alucardcz  
+##### 2533#       发表于 2025-6-13 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932729&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-13 16:51</a>
+
+《剑星》Steam首日玩家峰值破18万，成为PS发行的最佳单人游戏
+
+2024 年的动作游戏《剑星》摆脱了 PS5 独占 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丸辣 我也是其中的一个
+
+*****
+
+####  罐子  
+##### 2534#       发表于 2025-6-13 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932729&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-13 16:51</a>
+
+《剑星》Steam首日玩家峰值破18万，成为PS发行的最佳单人游戏
+
+2024 年的动作游戏《剑星》摆脱了 PS5 独占 ...</blockquote>
+这个成绩大概对等多少销量？
+
