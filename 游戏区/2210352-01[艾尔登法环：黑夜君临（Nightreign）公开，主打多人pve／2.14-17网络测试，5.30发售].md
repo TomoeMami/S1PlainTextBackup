@@ -9015,3 +9015,15 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 没有新东西，甚至黄金树幽影dlc的武器都没有，全是本篇内容
 
+
+*****
+
+####  usodakedo  
+##### 882#       发表于 2025-6-14 01:47
+
+ 本帖最后由 usodakedo 于 2025-6-14 01:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935210&amp;ptid=2210352" target="_blank">妹控使徒 发表于 2025-6-14 00:55</a>
+还在观望的问下   这作的武器库是完全复制的法环? 还是说额外加了些什么?   尤其是特大类武器上有什么新东 ...</blockquote>
+除去角色自带的初始武器外没啥增加的，介意这点还是推荐等打折。
+话说搞不懂为啥不给八个夜王整点灵魂武器作为初始武器的替代，起码算是个添头
+
