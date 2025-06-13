@@ -14627,3 +14627,23 @@ https://ngabbs.com/read.php?tid=44356677
 
 官推和官网至今没有公布吸毒气三人的人设，哈基连，还能再见吗<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 19027#       发表于 2025-6-13 18:34
+
+影武者说可能+1
+
+*****
+
+####  patema  
+##### 19028#       发表于 2025-6-13 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930177&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-6-13 10:45</a>
+
+强人光剑还在。腰上那两个喇叭口就是两把光束刺剑。
+
+这个光束矛估计是战后科技，就是为了对付大扎姆专门 ...</blockquote>
+其实腰部是能看出来强人应该是和gq前后脚开发的，应该是已经吸收了高达的技术的战后世代机，不是独立的纯血吉翁机
+
