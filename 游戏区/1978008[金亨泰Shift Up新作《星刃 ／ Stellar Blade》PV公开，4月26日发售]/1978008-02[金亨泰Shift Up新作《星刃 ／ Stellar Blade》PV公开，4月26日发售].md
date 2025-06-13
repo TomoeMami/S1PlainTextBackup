@@ -2909,3 +2909,14 @@ DLC就没做中配，开日配打吧
 eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不应该手动给胯修的圆一些吗，这平的真不好看吧 ...</blockquote>
 离谱，你上n网看看，鬼佬都喜欢大屁股，一大堆都是增加什么丰满感的mod，胯部就跟你说的那样。
 
+
+*****
+
+####  Andariel  
+##### 2512#       发表于 2025-6-13 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931086&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-13 12:43</a>
+
+离谱，你上n网看看，鬼佬都喜欢大屁股，一大堆都是增加什么丰满感的mod，胯部就跟你说的那样。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我觉得游戏里面这个胯挺好的，有真实感更能让人硬
+

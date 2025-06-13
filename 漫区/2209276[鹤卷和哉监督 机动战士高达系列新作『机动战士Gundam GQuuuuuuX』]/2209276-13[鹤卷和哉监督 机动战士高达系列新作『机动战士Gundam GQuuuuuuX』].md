@@ -14370,3 +14370,11 @@ image.png
 
 这个矛在首席哥横跳的时候都会喷一下，它甚至还是联动全机的机动肢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 19008#       发表于 2025-6-13 12:46
+
+米津其实是老高达迷了，你想想一个遗老看了之后会爆笑的剧情会是神明<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
