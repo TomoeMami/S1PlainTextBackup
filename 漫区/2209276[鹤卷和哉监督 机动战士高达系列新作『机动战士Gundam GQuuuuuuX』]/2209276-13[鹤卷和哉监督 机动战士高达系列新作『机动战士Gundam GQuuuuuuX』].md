@@ -14338,3 +14338,15 @@ image.png
 话说汤义刚死了没？绿毛叔要一起干掉汤大基和汤姬丝后是准备扶谁上台？</blockquote>
 死了。夏利尔显然没准备延续公国制度，准备搞新人类势力，或诱导吉翁共和国化。不会扶持人上台了。如果找到夏亚，那么就是夏亚了。
 
+
+*****
+
+####  Saber琪  
+##### 19005#       发表于 2025-6-13 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929372&amp;ptid=2209276" target="_blank">03e7 发表于 2025-6-13 08:57</a>
+盲猜一个结局：
+
+番茄一斧头准备砍死喵安时，修司一把推开喵安帮她档斧头，番茄和喵安在震惊中进入kirakira ...</blockquote>
+这就是米津玄师哈哈大笑的原因嘛，是我我也笑
+
