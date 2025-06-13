@@ -2920,3 +2920,24 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 离谱，你上n网看看，鬼佬都喜欢大屁股，一大堆都是增加什么丰满感的mod，胯部就跟你说的那样。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我觉得游戏里面这个胯挺好的，有真实感更能让人硬
 
+
+*****
+
+####  忘却旋律  
+##### 2513#       发表于 2025-6-13 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930556&amp;ptid=1978008" target="_blank">五更伪境 发表于 2025-6-13 11:30</a>
+
+我不信有人用旗袍皮肤的时候不盯着屁股看，老金这人行，能处👍</blockquote>
+旗袍皮肤是我当时用的最长的衣服了，入手也早，然后就是 全罐子收集完成后 换的情趣内衣了，还有一套 全黑的 全黑胶衣不错 应该是哪个小队的衣服
+
+*****
+
+####  忘却旋律  
+##### 2514#       发表于 2025-6-13 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930824&amp;ptid=1978008" target="_blank">nagitoY 发表于 2025-6-13 12:02</a>
+
+二周目一堆宝箱衣服都是换色，完全没有重新收集的欲望。问题是不收集二周目的衣服，三周目就只能开到二周 ...</blockquote>
+我反正是一周目打完后 完成全罐子和钓鱼手机后 拿好 情趣内衣和泳装后 就没玩了 后面的DLC都懒得玩
+

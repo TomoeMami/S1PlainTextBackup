@@ -14378,3 +14378,47 @@ image.png
 
 米津其实是老高达迷了，你想想一个遗老看了之后会爆笑的剧情会是神明<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 19009#       发表于 2025-6-13 13:02
+
+      最近刚发现一个小细节，下面这人是基西莉亚麾下的莫里根，0079年部分就是他传达希望夏亚助基西莉亚一臂之力的，然后0085年继续留在基西莉亚侧近。
+
+<img src="https://img.stage1st.com/forum/202506/13/125816vjt6zfmtmrzqtq7u.png" referrerpolicy="no-referrer">
+
+<strong>吉翁军衔3.png</strong> (39.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/13/125817ufh5jgtxwt22rff5.png" referrerpolicy="no-referrer">
+
+<strong>吉翁军衔4.png</strong> (35.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 12:58 上传
+
+      然后值得注意的是军衔，根据左图的披风样式来看0079年他的军衔是少尉（下图最下那个）。
+
+<img src="https://img.stage1st.com/forum/202506/13/125850y986u9uollj01zuy.jpg" referrerpolicy="no-referrer">
+
+<strong>吉翁军衔1.jpg</strong> (88.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 12:58 上传
+
+      但是，在0085年再登场后，他的军衔变成了<strong>准将</strong>（就是下图最下的那个等级，跟着基西莉亚混真能升啊）！
+
+<img src="https://img.stage1st.com/forum/202506/13/125851z9ss6dq6168q466s.jpg" referrerpolicy="no-referrer">
+
+<strong>吉翁军衔2.jpg</strong> (52.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 12:58 上传
+
