@@ -4059,3 +4059,13 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 要捕获任务的女人不出攻击芯片，接了试着做做，做不出就X了等以后慢慢补。
 
+
+*****
+
+####  kenqqex  
+##### 1851#       发表于 2025-6-13 09:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我每次都囤母舰的,而且错开来做
+
+现在全部虏获5台的都完美做完了
+

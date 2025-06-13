@@ -2620,3 +2620,11 @@ PC算是认真玩了，都是马桶通完才走主线
 都打完实验室了发现自己还没点偷袭</blockquote>
 试试换语言，各国配音的人物观感也不一样
 
+
+*****
+
+####  洛克萨斯  
+##### 2482#       发表于 2025-6-13 09:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机器敌人不能背刺吧，我每次打机器系的都触发不了背刺qte
+
