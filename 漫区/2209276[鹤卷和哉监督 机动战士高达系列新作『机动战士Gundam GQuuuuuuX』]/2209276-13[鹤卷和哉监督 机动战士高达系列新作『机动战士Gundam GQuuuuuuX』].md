@@ -14463,3 +14463,17 @@ image.png
 
 我觉得一比一复刻火箭筒最搞笑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 19014#       发表于 2025-6-13 13:40
+
+<blockquote>ardente 发表于 2025-6-13 14:20
+官网资料他是中尉升大尉</blockquote>
+日文里面的大尉对应中文的上尉。
+
+因为中文的军事术语里，大尉和上尉是不一样。PLA在学苏联军事架构时候，曾经有过比上尉大一级的大尉。而现在俄罗斯、朝鲜和德国还是少尉中尉上尉大尉。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
