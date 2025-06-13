@@ -2681,3 +2681,43 @@ DLC就没做中配，开日配打吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这个跳劈暗杀判定有点病吧，有点距离的敌人先跳一下明明出现按键提示了，却变成了普通攻击
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2489#       发表于 2025-6-13 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930008&amp;ptid=1978008" target="_blank">Sevenzerofive 发表于 2025-6-13 10:27</a>
+流程中会有错过之后就再也收集不到的东西吗？想先推主线再回来通马桶收集
+
+—— 来自 samsung SM-G7810, An ...</blockquote>
+你要是不想错过的，等地图开到大沙漠，就该舔图做支线了
+
+*****
+
+####  洛克萨斯  
+##### 2490#       发表于 2025-6-13 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930008&amp;ptid=1978008" target="_blank">Sevenzerofive 发表于 2025-6-13 10:27</a>
+
+流程中会有错过之后就再也收集不到的东西吗？想先推主线再回来通马桶收集
+
+—— 来自 samsung SM-G7810, An ...</blockquote>
+后面有，流程推到某个节点就回不去之前的地图了
+
+
+*****
+
+####  mhss  
+##### 2491#       发表于 2025-6-13 10:41
+
+我目前一周目开的韩配，因为看网上试玩版里中配迅驰那语调实在绷不住。
+日配据说莉莉是假小子音，英配pv里我觉得还好，但是据说女主战斗喊声很粗就没敢试了。
+
+*****
+
+####  ——啧  
+##### 2492#       发表于 2025-6-13 10:46
+
+现在有办法修改维特币了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
