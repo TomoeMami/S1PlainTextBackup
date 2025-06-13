@@ -14711,3 +14711,19 @@ https://ngabbs.com/read.php?tid=44356677
 
 唯一理由就是得抓个人开腿只是装饰吧
 
+
+*****
+
+####  民工业  
+##### 19035#       发表于 2025-6-13 20:13
+
+[https://x.com/kfyipy/status/1933438439774732621](https://x.com/kfyipy/status/1933438439774732621)
+
+<img src="https://img.stage1st.com/forum/202506/13/201337i5nwtviwcvb41phg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (246.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 20:13 上传
+
