@@ -14203,3 +14203,24 @@ gqux强人那个不是实体剑，更像是长枪吧
 基连秘书太透明了，有印象的图就只有这张</blockquote>
 基连的野望玩的多的话就会很熟悉她
 
+
+*****
+
+####  zakufa782  
+##### 18996#       发表于 2025-6-13 08:30
+
+<blockquote>Toby_dak 发表于 2025-6-12 23:58
+强人由光剑变成实体剑，是不是变成对大扎姆专用MS了…………</blockquote>
+模型有光剑，而且两把，虽然我不知道现实点来讲刺剑要怎么双持
+
+1FbPrO4ZS6pYsmSu.jpg
+(108.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 08:30 上传
+
+由手机上传
+
+<img src="https://img.stage1st.com/forum/202506/13/083007lnqnd9n4nymgcmfq.jpg" referrerpolicy="no-referrer">
+
