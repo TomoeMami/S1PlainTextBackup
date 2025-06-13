@@ -15093,3 +15093,13 @@ X 上的 でるれいっち：“ギ ...</blockquote>
 
 鸭：☆（&lt;ゝω·）綺羅星★<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的春天  
+##### 19044#       发表于 2025-6-13 23:10
+
+<blockquote>downnote 发表于 2025-6-13 21:57
+夏亚和紫色老太婆都戴着差不多的头盔，这个有啥说法吗？不是情侣头盔？</blockquote>
+Gto里面是骑兵盔
+
