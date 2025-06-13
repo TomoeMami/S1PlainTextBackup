@@ -646,3 +646,13 @@ O在日本已经半死不活了</blockquote>
 
 又发了封邮件确认了下版本的问题，Marvelous的回复是所有地区的版本都没任何差异，所以哪怕是美版卡也得下这12G的更新补丁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarkDawn  
+##### 64#       发表于 2025-6-13 08:55
+
+那真是纯纯诈骗了
+
+奇怪
+
