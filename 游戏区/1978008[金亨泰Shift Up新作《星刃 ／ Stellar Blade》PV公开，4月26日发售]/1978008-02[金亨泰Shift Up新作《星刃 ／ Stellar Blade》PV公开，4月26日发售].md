@@ -3884,3 +3884,13 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 红莲太变态了，纯恶心人，老年人反应靠把PS5改分辨率优先30帧才弹过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 2602#       发表于 2025-6-14 07:19
+
+有人遇到过锁60FPS前面还好结果莫名其妙失效飙到120害得画面变成快慢刀吗，
+
+我昨晚刚舔进主城遇到了，当反沉迷系统了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
