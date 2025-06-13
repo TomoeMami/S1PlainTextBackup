@@ -2721,3 +2721,23 @@ DLC就没做中配，开日配打吧
 
 现在有办法修改维特币了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lpzhg  
+##### 2493#       发表于 2025-6-13 10:57
+
+维特币我怎么记得多得很根本用不完
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  dddyghr  
+##### 2494#       发表于 2025-6-13 11:02
+
+风大师就能改币 如果遇到不能买东西的bug保存退出重进
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
