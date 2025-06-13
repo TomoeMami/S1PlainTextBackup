@@ -2952,3 +2952,14 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 我觉得游戏里面这个胯挺好的，有真实感更能让人硬</blockquote>
 不同衣服的体型有略微差别 ，体型和衣服绑定的 有些皮肤的屁股和腿明显大过其他皮肤 非衣服收身提臀效果
 
+
+*****
+
+####  nagitoY  
+##### 2516#       发表于 2025-6-13 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931222&amp;ptid=1978008" target="_blank">忘却旋律 发表于 2025-6-13 13:06</a>
+
+我反正是一周目打完后 完成全罐子和钓鱼手机后 拿好 情趣内衣和泳装后 就没玩了 后面的DLC都懒得玩 ...</blockquote>
+我买了尼尔dlc，二周目打了一半，纯跑图解锁了大沙漠所有营地。拿完尼尔全奖励就没打了。现在更新的衣服是要我二周目全收集一遍，然后再三周目全收集一遍<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

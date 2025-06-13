@@ -239,3 +239,14 @@ LoveLive×高达</blockquote>
 
 这下day1二偶团云集了，拉拉、邦邦、爱马仕，刺团，赛马娘（machico）
 
+
+*****
+
+####  仟音一心  
+##### 1639#       发表于 2025-6-13 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931306&amp;ptid=2201887" target="_blank">evestart 发表于 2025-6-13 13:19</a>
+
+这下day1二偶团云集了，拉拉、邦邦、爱马仕，刺团，赛马娘（machico）</blockquote>
+day1就是给二偶的，然后热度最高的mujicaday2day3都去。
+
