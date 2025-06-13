@@ -14745,3 +14745,121 @@ https://ngabbs.com/read.php?tid=44356677
 
 重新补了遍无限地带23，果然这才叫虚假的日常<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 19038#       发表于 2025-6-13 21:14
+
+ 本帖最后由 岸浪白野 于 2025-6-13 21:17 编辑 
+
+[X 上的 𝑆𝐼𝐴𝑁@C106（土）西 “さ”43ab：“](https://x.com/SIAN_FKP_37/status/1932996277127823559)[https://t.co/w3YD16KMlu](https://t.co/w3YD16KMlu)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/211600p88nfx8sjkk8l60j.png" referrerpolicy="no-referrer">
+
+<strong>[G3}E[X@@ZS3R]8CS08U2SU.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:16 上传
+
+[X 上的 でるれいっち：“ギレン総帥にこっそり囁くセシリアさんはどこで見られますか](https://x.com/delraich66/status/1933064296000561525)[https://t.co/ioohF7uGSl](https://t.co/ioohF7uGSl)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/210436rw8g8h3268njo2k3.png" referrerpolicy="no-referrer">
+
+<strong>Y[8(R(09X[F1]Y)`L(Q]5K7.png</strong> (3.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:04 上传
+
+[X 上的 Ervin@Sked1000円で描く男：“ギレンに追加の属性 #GQuuuuuuX #ジークアクス](https://x.com/Ervin0083/status/1933444994523935013)[https://t.co/UIc3amCtVf](https://t.co/UIc3amCtVf)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/210340o4tz94g474zqqz4g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (809.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:03 上传
+
+[X 上的 まぐ太：“セシリアさんがバニーガール](https://x.com/magmag/status/1933023187891364154)[https://t.co/CaGzVWGo4U](https://t.co/CaGzVWGo4U)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/210412gexn1vtxtslvqusq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:04 上传
+
+[X 上的 ツネモク：“がんばれ唯ちゃん #GQuuuuuuX #ジークアクス [url]https://t.co/0OdSme6ATt](https://x.com/tsunemoku/status/1933144904903098399)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/13/211748bdl7jjjd349vd7dy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:17 上传
+
+[X 上的 ふじ：“#GQuuuuuuX #ジークアクス 展開が怖すぎて現実逃避とまらん② 女子高生の謎カワイイ基準](https://x.com/f_ukkami/status/1933296253296914452)[https://t.co/tw4uCjY4PM](https://t.co/tw4uCjY4PM)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/211051lp9tkcp1s74k33lr.png" referrerpolicy="no-referrer">
+
+<strong>TY0RJ4N8KQ7YC$SLZVG]KNC.png</strong> (3.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:10 上传
+
+[X 上的 にゃ🐾7/13🌠day2：“つまり来週はこう…？！ #GQuuuuuuX #ジークアクス #シャア・アズナブル](https://x.com/nyan_co3/status/1933116436433842508)[https://t.co/469ZpD5lbR](https://t.co/469ZpD5lbR)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/210916g2yjwzsuuf3xasar.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:09 上传
+
+[X 上的 大川ぶくぶ/bkub：“](https://x.com/bkub_comic/status/1933359100487946458)[https://t.co/UhnxheUffb](https://t.co/UhnxheUffb)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/211356w92xqhw2wo9ss5ur.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:13 上传
+
+[X 上的 睦月：“シャアがずっとあの軍服保管してた可能性を思うとジワるな…](https://x.com/mousyun/status/1933117635253952857)[https://t.co/lJzes4BlTh](https://t.co/lJzes4BlTh)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/210853kh5t0a0aqrcxx9xx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (382.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:08 上传
+
+[X 上的 大河広行・たいがひろゆき（山田隆弥）：“頭空っぽラクガキ１０１４ 「機動戦士Gundam GQuuuuuuX(ジークアクス)」から「着替えを取りに戻ったシロウズさん」 あのケース、奥行きがそれなりにあったのでヘルメットくらい入ってるのでは？とか思いました。 #GQuuuuuuX #ジークアクス](https://x.com/hiroyuki_taiga/status/1933304560250225140)[https://t.co/Xl4anFTEN4](https://t.co/Xl4anFTEN4)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/211122nj06vkt99jq5kyjj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (814.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:11 上传
+
+[X 上的 ゲロ彗星：“手荷物検査通過シロウズのツイート面白くてつい…](https://x.com/fanfanfantas/status/1933169751653806548)[https://t.co/U74EV2TYYJ](https://t.co/U74EV2TYYJ)” / X
+
+<img src="https://img.stage1st.com/forum/202506/13/211144x1bky5vvcd54kcyc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 21:11 上传
+
