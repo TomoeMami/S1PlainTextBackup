@@ -14684,3 +14684,30 @@ https://ngabbs.com/read.php?tid=44356677
 
 就算死的是影武者，大基派也无力回天了吧，手下军队几乎全灭，对面紫婆手底下还有大杀器跟新人类部队，除了投联邦好像也没路可走了
 
+
+*****
+
+####  xwz  
+##### 19033#       发表于 2025-6-13 19:54
+
+<img src="https://img.stage1st.com/forum/202506/13/195357ec8zz8t8mbcv8y2m.jpg" referrerpolicy="no-referrer">
+
+<strong>527DG7)3G8I1WR[U3PF@BQ3.jpg</strong> (65.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 19:53 上传
+
+看到个绷不住的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 19034#       发表于 2025-6-13 19:55
+
+大基就算没死，手上还剩啥对付zeknova手电筒。
+
+十几台大扎姆吗。
+
+唯一理由就是得抓个人开腿只是装饰吧
+

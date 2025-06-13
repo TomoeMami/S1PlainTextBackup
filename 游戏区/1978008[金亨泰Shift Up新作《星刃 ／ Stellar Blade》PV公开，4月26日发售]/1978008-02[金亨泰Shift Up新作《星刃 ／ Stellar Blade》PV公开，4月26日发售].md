@@ -3367,3 +3367,26 @@ l3切换跑步啊
 扫描也扫不到</blockquote>
 猫跟蝴蝶拍照全都是壁画涂鸦<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 2553#       发表于 2025-6-13 19:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">怎么打着打着进了研究所变成生化危机了
+
+*****
+
+####  alucardcz  
+##### 2554#       发表于 2025-6-13 19:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">怎么感觉跟漏油说的不一样啊 萌新在沙漠一个不小心就死了  感觉在打魂  好在这游戏篝火超近 死了也没惩罚
+
+
+*****
+
+####  alucardcz  
+##### 2555#       发表于 2025-6-13 19:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">跑到地图角落拿完东西直接自鲨回篝火节约跑图时间 这游戏是这样玩的马
+
