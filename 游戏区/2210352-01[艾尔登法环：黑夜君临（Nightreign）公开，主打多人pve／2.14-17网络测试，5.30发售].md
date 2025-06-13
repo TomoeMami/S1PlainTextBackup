@@ -8932,3 +8932,13 @@ ELDEN RING NIGHTREIGN – Patch Notes Version 1.01.2
 
 其他的话除了鹰眼T0乱杀基本都差不多
 
+
+*****
+
+####  doublehit  
+##### 873#       发表于 2025-6-13 11:53
+
+感觉人马这个地图好难刷等级啊，第二天打了好几个森林大怪还是只有13级
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
