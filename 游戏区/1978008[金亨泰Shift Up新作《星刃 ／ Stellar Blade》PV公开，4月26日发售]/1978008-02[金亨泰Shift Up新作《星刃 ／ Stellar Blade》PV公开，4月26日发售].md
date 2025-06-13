@@ -3060,3 +3060,21 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 —— 来自 鹅球 v3.3.96</blockquote>
 设置里可以改短马尾和无马尾
 
+
+*****
+
+####  mhss  
+##### 2526#       发表于 2025-6-13 16:15
+
+开局送的两忍者和红旗袍虽然漏的多，但我感觉都不如默认绿胶衣好看，目前刚解锁个换色橙胶衣我感觉也不如绿的。
+刚下电车那个早期pv出现的人声bgm我觉得挺好听的，结果到了钟楼区域就没了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Schwarzess  
+##### 2527#       发表于 2025-6-13 16:19
+
+我觉得最涩的作战服是第三小队（无飞行夹克）。<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
