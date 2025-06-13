@@ -3482,3 +3482,66 @@ x终于要登场了
 这也太弱智了</blockquote>
 日本年轻人本来弱智就居多，毕竟发达国家当久了
 
+
+*****
+
+####  Piano-Forest  
+##### 299#         楼主| 发表于 2025-6-13 15:27
+
+【【凸变英雄X】幸运青篇02集 作画展示】 [https://b23.tv/zLeZF1D](https://b23.tv/zLeZF1D)
+
+【【凸变英雄X】幸运青篇03集 作画展示】 [https://b23.tv/Fgiju43](https://b23.tv/Fgiju43)
+
+【画了点】 [https://b23.tv/1SbPSKl](https://b23.tv/1SbPSKl)
+
+[https://m.weibo.cn/detail/5176005867866621](https://m.weibo.cn/detail/5176005867866621)
+
+幸运青篇概念图
+
+幸运青篇完结，放一张概念图庆祝下🎉～
+<img src="https://p.sda1.dev/24/ffc00b7cd0cce595265f7fc42a5eb21c/77f57115gy1i2a96b727cj21hb0nm7eb.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 300#         楼主| 发表于 2025-6-13 15:34
+
+アニメ『TO BE HERO X』プロデューサーインタビュー――bilibili×アニプレックスが手がけるオリジナルアニメの裏側
+[https://cocotame.jp/series/110230/](https://cocotame.jp/series/110230/)
+[https://cocotame.jp/series/110254/](https://cocotame.jp/series/110254/)
+
+◤￣￣￣￣￣￣￣￣￣￣￣￣￣
+
+    キャラクタービジュアル
+
+ ShaDow描き下ろしイラスト
+
+＿＿＿＿＿＿＿＿＿＿＿＿＿◢
+
+描き下ろしイラストを使用した
+
+デジコンを配布開始！
+
+▼デジコンはこちら
+[https://tbhx.net/special/wallpaper/](https://tbhx.net/special/wallpaper/)
+<img src="https://p.sda1.dev/24/b54d254f6b2c9255aa4e4e06d2a1e57e/pc_all.png" referrerpolicy="no-referrer">
+
+◤￣￣￣￣￣￣￣￣￣￣￣
+
+        TO BE HERO X
+
+  Blu-ray&amp;DVD発売決定
+
+＿＿＿＿＿＿＿＿＿＿＿◢
+
+Vol.1には1話～7話を収録💿
+
+特典映像の収録やブックレットほか
+
+豪華特典封入！
+
+𝟕.𝟑𝟎 𝐎𝐍 𝐒𝐀𝐋𝐄
+<img src="https://p.sda1.dev/24/40437fc2ccfa2a50d539c7bf14c1ff8d/20250613_152833.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/57486890dbddb7ac2536a11d3ad521b0/20250613_152834.jpg" referrerpolicy="no-referrer">
+

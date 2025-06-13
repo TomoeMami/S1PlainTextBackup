@@ -14516,3 +14516,19 @@ image.png
 米津其实是老高达迷了，你想想一个遗老看了之后会爆笑的剧情会是什么</blockquote>
 辱鸭笑话（
 
+
+*****
+
+####  民工业  
+##### 19018#       发表于 2025-6-13 15:29
+
+[https://x.com/mn38ka/status/1933290770263580800](https://x.com/mn38ka/status/1933290770263580800)
+
+<img src="https://img.stage1st.com/forum/202506/13/152858acczxq9b3sqqsqq5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (252.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 15:28 上传
+
