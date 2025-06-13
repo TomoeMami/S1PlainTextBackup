@@ -878,7 +878,7 @@
     "newtitle": "[【H】黑泥楼4]",
     "lastedit": 1749591007,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1914409": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 15920,
+    "totalreply": 15974,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.12 卡提王朝]",
-    "lastedit": 1749842050,
+    "lastedit": 1749850568,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 151330,
+    "totalreply": 151389,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1749840848,
+    "lastedit": 1749850209,
     "category": "漫区",
     "active": true,
     "update": false
