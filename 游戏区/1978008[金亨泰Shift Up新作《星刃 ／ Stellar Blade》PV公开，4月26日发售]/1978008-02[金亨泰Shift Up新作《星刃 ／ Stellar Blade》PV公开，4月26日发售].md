@@ -3390,3 +3390,12 @@ l3切换跑步啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">跑到地图角落拿完东西直接自鲨回篝火节约跑图时间 这游戏是这样玩的马
 
+
+*****
+
+####  Andariel  
+##### 2556#       发表于 2025-6-13 20:21
+
+脊椎可以升级，组件是不是不能升?
+同一个组件拿到高星的之后低星的还有用吗
+
