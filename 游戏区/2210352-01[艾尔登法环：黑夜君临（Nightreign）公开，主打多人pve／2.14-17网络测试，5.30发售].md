@@ -8976,3 +8976,13 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 "Perhaps Nightreign began as a skunkworks experiment, a way to excite a team of designers who were becoming fatigued working to a formula that, while adored, was starting to become repetitive. Whatever the project's origins, the result is a thrilling blend of ideas, a game that, despite its fashionable and familiar components, feels wholly unprecedented. Moreover, Nightreign firmly establishes the studio's designers as not only masters of their own domain, but now a new, hitherto undiscovered realm." [9]</blockquote>
 
+
+*****
+
+####  modkingr  
+##### 878#       发表于 2025-6-13 22:41
+
+60个小时进入玩无可玩状态了，快更新吧，真好玩儿
+
+全追忆+全成就
+

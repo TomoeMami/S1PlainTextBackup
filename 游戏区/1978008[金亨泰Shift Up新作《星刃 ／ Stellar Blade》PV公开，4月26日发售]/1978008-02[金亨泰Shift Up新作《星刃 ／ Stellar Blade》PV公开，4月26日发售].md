@@ -3567,3 +3567,11 @@ l3切换跑步啊
 我4070tisuper，3440*1440的屏幕，拉到非常高也才占用9.2GB的显存，显然还差得远，反正现在是把画质拉低 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这就不知道了 我也是4070tis 4k全高 平衡 目前没闪退过
 
+
+*****
+
+####  水边井  
+##### 2572#       发表于 2025-6-13 22:38
+
+突然发现，这游戏的美术资产怎么全是英文或者汉字，几乎没看见韩文，韩国人看得懂吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
