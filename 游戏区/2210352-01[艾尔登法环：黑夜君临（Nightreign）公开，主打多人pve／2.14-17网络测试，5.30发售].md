@@ -8986,3 +8986,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 全追忆+全成就
 
+
+*****
+
+####  thealoneer  
+##### 879#       发表于 2025-6-13 22:58
+
+现在排到前三个boss还是新人居多，不会跑图也不听指挥还是太影响游戏体验了（虽然都是从新手期过来的），这游戏还是应该加一个玩家账号等级或者战绩展示之类的，很简单，用颜色区分ID就可以，这样一眼能看出谁经验丰富，当然就算如此有些人也照样我行我素就是了，唉，网游<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
