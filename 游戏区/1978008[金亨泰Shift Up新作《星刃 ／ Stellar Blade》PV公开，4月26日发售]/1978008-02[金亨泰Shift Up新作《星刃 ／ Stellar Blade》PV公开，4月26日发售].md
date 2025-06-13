@@ -2508,3 +2508,19 @@ PC算是认真玩了，都是马桶通完才走主线
 
 都打完实验室了发现自己还没点偷袭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  luffy0085  
+##### 2472#       发表于 2025-6-13 08:02
+
+<img src="https://img.stage1st.com/forum/202506/13/080236nllszz9pw6dg9ui7.jpg" referrerpolicy="no-referrer">
+
+<strong>1749772773122.jpg</strong> (19.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 08:02 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

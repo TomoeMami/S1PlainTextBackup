@@ -3663,10 +3663,10 @@
     "update": false
   },
   "1886285": {
-    "totalreply": 1088,
+    "totalreply": 1089,
     "title": "[20.07『租借女友／彼女、お借りします』专楼]",
     "newtitle": "[20.07『租借女友／彼女、お借りします』专楼]",
-    "lastedit": 1749764046,
+    "lastedit": 1749773287,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7299,10 +7299,10 @@
     "update": false
   },
   "1978008": {
-    "totalreply": 2471,
+    "totalreply": 2472,
     "title": "[金亨泰Shift Up新作《星刃 ／ Stellar Blade》PV公开，4月26日发售]",
     "newtitle": "[金亨泰Shift Up新作《剑星（星刃）／ Stellar Blade》／PC版6月12日发售]",
-    "lastedit": 1749769929,
+    "lastedit": 1749773048,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 170977,
+    "totalreply": 170978,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1749769928,
+    "lastedit": 1749772807,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11255,7 +11255,7 @@
     "newtitle": "[2025年全年推理游戏发售清单(更新至5.31)，2025推理游戏专楼]",
     "lastedit": 1749513970,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2236215": {
@@ -12753,10 +12753,10 @@
     "update": false
   },
   "2252926": {
-    "totalreply": 258,
+    "totalreply": 260,
     "title": "[【俄乌专楼】6月战火依旧 ​​无人机群上大分​]",
     "newtitle": "[【俄乌专楼】6月战火依旧 ​​无人机群上大分​]",
-    "lastedit": 1749771609,
+    "lastedit": 1749772927,
     "category": "外野",
     "active": true,
     "update": false
@@ -14711,6 +14711,15 @@
     "newtitle": "[讲真画质帧数高了确实让人更想玩了]",
     "lastedit": 1749758647,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2253679": {
+    "totalreply": 41,
+    "title": "[b站崩了？]",
+    "newtitle": "[b站崩了？]",
+    "lastedit": 1749773289,
+    "category": "外野",
     "active": true,
     "update": false
   }
