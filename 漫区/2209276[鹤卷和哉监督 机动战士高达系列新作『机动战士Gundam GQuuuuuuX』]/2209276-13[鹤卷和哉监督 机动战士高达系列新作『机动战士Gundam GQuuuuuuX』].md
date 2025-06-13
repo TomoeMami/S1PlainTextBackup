@@ -15192,3 +15192,16 @@ X 上的 でるれいっち：“ギ ...</blockquote>
 
 喵安打完一炮头上数字得飙到多少
 
+
+*****
+
+####  岸浪白野  
+##### 19051#       发表于 2025-6-14 07:31
+
+ 本帖最后由 岸浪白野 于 2025-6-14 07:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926719&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-12 17:58</a>
+街机2周送卡应该是送喵安和GFreD的卡了
+
+X 上的 【公式】機動戦士ガンダム アーセナルベース：“／ 『機動 ...</blockquote>
+街机的2周送卡确实是送喵安，和之前送玛秋修司有放出角色身高的数据不同倒是还在藏着<img src="https://p.sda1.dev/24/508286dcc7e3ac6eb3d3391e84e55511/image.jpg" referrerpolicy="no-referrer">
+
