@@ -1645,3 +1645,14 @@ SOLO了几次，感觉抓后摇出硬直对两个多人BOSS基本无效，不管
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呆雅我记得是有相杀的吧，怎么没了
 
+
+*****
+
+####  放大镜  
+##### 279#       发表于 2025-6-13 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929158&amp;ptid=2173536" target="_blank">HazukiShion 发表于 2025-6-13 07:55</a>
+
+这作是单机还是网游？</blockquote>
+带集会所的可联机单机（
+
