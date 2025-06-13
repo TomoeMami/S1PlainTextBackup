@@ -14596,3 +14596,16 @@ https://ngabbs.com/read.php?tid=44356677
 
 不是一般联邦军的大佐和提坦斯的大佐？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardente  
+##### 19024#       发表于 2025-6-13 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931430&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-6-13 13:40</a>
+
+日文里面的大尉对应中文的上尉。
+
+因为中文的军事术语里，大尉和上尉是不一样。PLA在学苏联军事架构时候， ...</blockquote>
+懒得改他原文
+
