@@ -14563,3 +14563,36 @@ https://ngabbs.com/read.php?tid=44356677
 
 为什么呢
 
+
+*****
+
+####  xwz  
+##### 19021#       发表于 2025-6-13 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931430&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-6-13 13:40</a>
+
+日文里面的大尉对应中文的上尉。
+
+因为中文的军事术语里，大尉和上尉是不一样。PLA在学苏联军事架构时候， ...</blockquote>
+大校和上校在日文里又是怎么区分的呢？
+
+
+*****
+
+####  vorfeed  
+##### 19022#       发表于 2025-6-13 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932889&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-13 17:15</a>
+大校和上校在日文里又是怎么区分的呢？</blockquote>
+大佐=上校
+上级大佐=大校
+
+这是一个日文和中文对应颠倒的例子<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 19023#       发表于 2025-6-13 17:22
+
+不是一般联邦军的大佐和提坦斯的大佐？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
