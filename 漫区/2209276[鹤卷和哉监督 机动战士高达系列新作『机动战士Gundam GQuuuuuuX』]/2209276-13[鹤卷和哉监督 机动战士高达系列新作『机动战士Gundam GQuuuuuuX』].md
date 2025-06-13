@@ -14655,3 +14655,32 @@ https://ngabbs.com/read.php?tid=44356677
 
 汤大基有影武者的可能性，另外俩八成是死透了，都不公布应该是防剧透
 
+
+*****
+
+####  希望之异热同心  
+##### 19030#       发表于 2025-6-13 19:39
+
+其实我好奇汤大基真的舍得把副官送掉么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大十字紅朔  
+##### 19031#       发表于 2025-6-13 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933719&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-13 19:39</a>
+
+其实我好奇汤大基真的舍得把副官送掉么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">其实是潜意识里面不死心，希望后面还有大的，所以希望死得是影武者
+
+*****
+
+####  冷静先找时光机  
+##### 19032#       发表于 2025-6-13 19:41
+
+就算死的是影武者，大基派也无力回天了吧，手下军队几乎全灭，对面紫婆手底下还有大杀器跟新人类部队，除了投联邦好像也没路可走了
+

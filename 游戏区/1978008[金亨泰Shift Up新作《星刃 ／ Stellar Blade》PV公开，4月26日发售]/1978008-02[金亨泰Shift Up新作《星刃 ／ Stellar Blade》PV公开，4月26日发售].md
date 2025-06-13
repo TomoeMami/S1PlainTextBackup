@@ -3340,3 +3340,30 @@ l3切换跑步啊
 
 刚刚又看了一下任务描述，原来资料库会给图片提示。
 
+
+*****
+
+####  Sevenzerofive  
+##### 2551#       发表于 2025-6-13 19:37
+
+<img src="https://p.sda1.dev/24/4d5427c3dda96f82e2ccd7bff0bcb9e7/image.jpg" referrerpolicy="no-referrer">
+
+这身真不错啊<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  waelaZed  
+##### 2552#       发表于 2025-6-13 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933477&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-13 18:52</a>
+
+曦安真的有猫吗
+
+荒野蝴蝶在哪
+
+扫描也扫不到</blockquote>
+猫跟蝴蝶拍照全都是壁画涂鸦<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
