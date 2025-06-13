@@ -57,3 +57,13 @@
 
 其实感觉不同类型装备附带的那些跟自身属性相关的收益都太低了，根本没办法左右装备的选择。
 
+
+*****
+
+####  mobdom  
+##### 410#       发表于 2025-6-13 08:42
+
+最大的更新难道不是补充了叶卡剧情线吗<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">为了封印奈落宁愿牺牲自己，居然算中立，drecom你不是人啊！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

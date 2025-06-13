@@ -14224,3 +14224,19 @@ gqux强人那个不是实体剑，更像是长枪吧
 
 <img src="https://img.stage1st.com/forum/202506/13/083007lnqnd9n4nymgcmfq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 18997#       发表于 2025-6-13 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929243&amp;ptid=2209276" target="_blank">zakufa782 发表于 2025-6-13 08:30</a>
+
+模型有光剑，而且两把，虽然我不知道现实点来讲刺剑要怎么双持</blockquote>
+游戏里就不少，现实里好像确实也有
+[https://www.bilibili.com/video/BV1Lx411V7Z8](https://www.bilibili.com/video/BV1Lx411V7Z8)
+
+B站随便搜了一下，双长剑只有单人演示，长短的有对决设计
+
+不过光剑本身也不太一样吧，星球大战我没怎么看，大概双持的也不会少
+
