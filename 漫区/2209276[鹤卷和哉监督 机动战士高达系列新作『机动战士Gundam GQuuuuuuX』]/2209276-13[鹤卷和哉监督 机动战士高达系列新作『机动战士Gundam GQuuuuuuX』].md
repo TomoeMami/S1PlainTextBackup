@@ -15125,3 +15125,29 @@ Gto里面是骑兵盔
 
 都是和剧情同步一波一波的啦，第四集之后一堆诗子，第六集之后一堆杜，第九集之后一堆拉拉，一个道理
 
+
+*****
+
+####  岸浪白野  
+##### 19047#       发表于 2025-6-14 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934599&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-13 22:15</a>
+
+首席CV：喵安做的泰式海南鸡饭真好吃（幻觉）</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/14/000235icbdrf9id229x96c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (937.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 00:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/14/000240qzh5z59b4kmbya14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 00:02 上传
+

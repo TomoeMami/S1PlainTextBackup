@@ -3707,3 +3707,14 @@ l3切换跑步啊
 习惯了无双起源的弹反，伊芙不能无前摇弹反像个残疾人</blockquote>
 用弹反取消攻击硬直在游戏界里也算是强劲性能啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nosgoth  
+##### 2585#       发表于 2025-6-13 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934961&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-13 23:37</a>
+
+反正我跳不上去 很明显能勾到的但就是飞过去了</blockquote>
+就是啊，这个让我感觉很不爽。
+
