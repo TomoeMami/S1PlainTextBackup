@@ -3096,3 +3096,30 @@ eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不
 
 人棍小姐姐哼的歌也很好听<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水边井  
+##### 2530#       发表于 2025-6-13 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932299&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-13 15:51</a>
+不太喜欢主角这个马尾质感啊
+话说nikke码在哪儿啊
+—— 来自 鹅球 v3.3.96</blockquote>
+打完金刚在主城开箱子
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 2531#       发表于 2025-6-13 16:51
+
+《剑星》Steam首日玩家峰值破18万，成为PS发行的最佳单人游戏
+
+2024 年的动作游戏《剑星》摆脱了 PS5 独占，于昨天6月12日在steam上全球发行。
+
+在发行第一天，《剑星》Steam 平台上的玩家人数就已创下记录，达到 183,830 人，该数字创下了PlayStation在Steam所发行所有单人游戏最高记录。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点夸张了
+
