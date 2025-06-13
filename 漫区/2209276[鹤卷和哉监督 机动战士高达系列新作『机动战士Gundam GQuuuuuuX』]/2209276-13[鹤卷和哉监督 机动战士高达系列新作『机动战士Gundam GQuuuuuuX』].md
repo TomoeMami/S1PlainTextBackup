@@ -14268,3 +14268,15 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202506/13/085127hhid4466ohyu4cfg.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 19000#       发表于 2025-6-13 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67927354&amp;ptid=2209276" target="_blank">轮太 发表于 2025-6-12 19:33</a>
+ 主要是最新一集紫婆台词还专门提到了这个首相 以这帮人的老害程度肯定是有考虑过这选项 ...</blockquote>
+事实上两个人的姓氏不完全一样
+シムス・アル・バハロフ（Simus Al Bakharov）
+ダルシア・バハロ(Darcia Bakharo)
+

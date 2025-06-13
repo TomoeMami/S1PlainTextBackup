@@ -2597,3 +2597,14 @@ PC算是认真玩了，都是马桶通完才走主线
 有遇到的可以锁到109帧以解决问题 ...</blockquote>
 草 我就说怎么切换不了锁定
 
+
+*****
+
+####  棍机凹升龙  
+##### 2480#       发表于 2025-6-13 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929350&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-13 08:54</a>
+
+被发现了伊芙会很明显地从头上拔出刀变成战斗状态</blockquote>
+我还以为是接近敌人就会拔刀
+

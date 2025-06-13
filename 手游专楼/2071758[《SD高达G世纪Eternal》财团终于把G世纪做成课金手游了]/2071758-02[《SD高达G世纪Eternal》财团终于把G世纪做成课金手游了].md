@@ -4051,3 +4051,11 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 昨天晚上3个女人要求我夺取15架机体 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜之光  
+##### 1850#       发表于 2025-6-13 09:18
+
+要捕获任务的女人不出攻击芯片，接了试着做做，做不出就X了等以后慢慢补。
+
