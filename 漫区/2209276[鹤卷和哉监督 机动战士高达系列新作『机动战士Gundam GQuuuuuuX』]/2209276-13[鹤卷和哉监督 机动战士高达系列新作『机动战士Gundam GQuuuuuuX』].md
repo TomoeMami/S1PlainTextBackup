@@ -14493,3 +14493,26 @@ image.png
 
 2025-6-13 14:46 上传
 
+
+*****
+
+####  王留美  
+##### 19016#       发表于 2025-6-13 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929827&amp;ptid=2209276" target="_blank">stevenzero 发表于 2025-6-13 10:02</a>
+
+有说法
+
+在2004年的《机动战士高达》小说修订版中，达尔西亚的姓氏被罗马化为“巴哈罗夫（Bakharov）”。 ...</blockquote>
+卡拉这群遗老！
+
+*****
+
+####  王留美  
+##### 19017#       发表于 2025-6-13 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67931103&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-13 12:46</a>
+
+米津其实是老高达迷了，你想想一个遗老看了之后会爆笑的剧情会是什么</blockquote>
+辱鸭笑话（
+
