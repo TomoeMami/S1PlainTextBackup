@@ -3728,3 +3728,30 @@ l3切换跑步啊
 他妈的又无故闪退了，这SB是在嘲讽我是吧</blockquote>
 windows的问题也说不定，我闪退几次之后游戏bug了打不开，进游戏只有声音没画面，重装都没用，更新了win10补丁就好了，之后再没闪退过
 
+
+*****
+
+####  bixinhaner  
+##### 2587#       发表于 2025-6-14 00:39
+
+配音选哪个最好？中日韩？
+
+
+*****
+
+####  黑酒杯  
+##### 2588#       发表于 2025-6-14 00:41
+
+玩了两天打完第二个打枪关感觉整个游戏流畅性太差，地图、传送、解密开箱，各种不人性化的设计玩的很累，boss体验不错但地图上清小怪很无趣，几乎所有小怪都是慢—快—快的出手逻辑 ，主线也少有能吊起兴致的地方，感觉后面主要玩点就是对着攻略找衣服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ATRO  
+##### 2589#       发表于 2025-6-14 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934758&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-13 22:49</a>
+他妈的又无故闪退了，这SB是在嘲讽我是吧</blockquote>
+频繁闪退的检查一下是不是硬盘的虚拟内存被关了，有的win11优化攻略会让你关虚拟内存加游戏帧数，但这游戏关了就会爆(Demo就不会，很神奇)，我5070ti昨晚一直闪退研究了半天发现是这个原因，开了就好了，4k全高屁事没有
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
