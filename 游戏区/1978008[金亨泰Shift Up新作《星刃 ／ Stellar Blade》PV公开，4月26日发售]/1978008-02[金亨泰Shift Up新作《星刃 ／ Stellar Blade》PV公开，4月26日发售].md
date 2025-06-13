@@ -3874,3 +3874,13 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 顺便玩了一下隔壁nikke，感觉联动剧情比本家有意思多了，金桑你怎么回事
 
+
+*****
+
+####  saberserker  
+##### 2601#       发表于 2025-6-14 02:57
+
+ 本帖最后由 saberserker 于 2025-6-14 02:58 编辑 
+
+红莲太变态了，纯恶心人，老年人反应靠把PS5改分辨率优先30帧才弹过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
