@@ -3575,3 +3575,19 @@ l3切换跑步啊
 
 突然发现，这游戏的美术资产怎么全是英文或者汉字，几乎没看见韩文，韩国人看得懂吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幽远ghofar  
+##### 2573#       发表于 2025-6-13 22:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">他妈的又无故闪退了，这SB是在嘲讽我是吧
+
+<img src="https://img.stage1st.com/forum/202506/13/224927t8g9vjgwxx8cvj9c.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250613224846.jpg</strong> (58.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-13 22:49 上传
+
