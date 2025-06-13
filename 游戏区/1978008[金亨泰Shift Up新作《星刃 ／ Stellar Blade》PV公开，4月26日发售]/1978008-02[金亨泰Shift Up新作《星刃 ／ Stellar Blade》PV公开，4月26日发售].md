@@ -2524,3 +2524,13 @@ PC算是认真玩了，都是马桶通完才走主线
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Schwarzess  
+##### 2473#       发表于 2025-6-13 08:12
+
+说个小彩蛋，尼尔那几套衣服看裙底会触发2b同款踢镜头。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
