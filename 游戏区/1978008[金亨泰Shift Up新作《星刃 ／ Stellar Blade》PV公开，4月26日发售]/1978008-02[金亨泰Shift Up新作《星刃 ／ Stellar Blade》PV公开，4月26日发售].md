@@ -2553,3 +2553,34 @@ PC算是认真玩了，都是马桶通完才走主线
 
 【【剑星】废料处理场爬不上去的梯子宝箱(Stellar Blade 2024)】 [https://www.bilibili.com/video/BV1JU411d7oA/](https://www.bilibili.com/video/BV1JU411d7oA/)
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2476#       发表于 2025-6-13 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929280&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-13 08:39</a>
+妈的弱智
+
+【【剑星】废料处理场爬不上去的梯子宝箱(Stellar Blade 2024)】 https://www.bilibili.com/video ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不就是流程没到没学二段跳高度不够
+
+
+*****
+
+####  棍机凹升龙  
+##### 2477#       发表于 2025-6-13 08:50
+
+敌人是不是没听觉只有视觉好像只要背后跑冲过去有按钮就能刺，他头上没感叹号也不知道有没有发现我，音乐不太明显
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  袄_偶滴小乔  
+##### 2478#       发表于 2025-6-13 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929331&amp;ptid=1978008" target="_blank">棍机凹升龙 发表于 2025-6-13 08:50</a>
+敌人是不是没听觉只有视觉好像只要背后跑冲过去有按钮就能刺，他头上没感叹号也不知道有没有发现我，音乐不 ...</blockquote>
+被发现了伊芙会很明显地从头上拔出刀变成战斗状态
+
