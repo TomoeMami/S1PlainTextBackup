@@ -2899,3 +2899,13 @@ DLC就没做中配，开日配打吧
 
 —— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  双花红棍  
+##### 2511#       发表于 2025-6-13 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926974&amp;ptid=1978008" target="_blank">LrGsite 发表于 2025-6-12 18:39</a>
+eve这个体模真是一眼亚洲人，两边的胯是平的按理说SU难道不应该手动给胯修的圆一些吗，这平的真不好看吧 ...</blockquote>
+离谱，你上n网看看，鬼佬都喜欢大屁股，一大堆都是增加什么丰满感的mod，胯部就跟你说的那样。
+

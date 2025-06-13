@@ -67,3 +67,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Flechette  
+##### 411#       发表于 2025-6-13 12:36
+
+中立怎么了，中立能吃到爱丽丝和蓝精灵的buff呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+叶卡观念上认为能力至上，为了实现目的可以不择手段，但是目的本身是利他的，所以放到中立阵营
+
+个人剧情还挖了和主线相关的坑，楔之力的设定太有日系怪谈风味了，叶卡的血液失去楔之力总觉得和神秘面具人脱不了关系
+
