@@ -15394,3 +15394,59 @@ KDA显示器嘛
 该不会下集或者下下集喵安NT力量爆发变成几百上千公里大的巨大娘，所以要是 ...</blockquote>
 那是奥拉力爆发吧
 
+
+*****
+
+####  noneoneone  
+##### 19069#       发表于 2025-6-14 14:36
+
+我刚意识到绿叔叔和麻球是同病相怜，都念叨着kirakira另一边的男人。
+
+那紫婆是不是也和喵安同病相怜呢。
+
+*****
+
+####  xwz  
+##### 19070#       发表于 2025-6-14 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937039&amp;ptid=2209276" target="_blank">newise 发表于 2025-6-14 13:56</a>
+
+大菠萝=恶魔，加上巨大化，相信大家都猜到接下来
+
+牢修回归就是为了和番茄放合体技石破！lovelove！天惊拳！ ...</blockquote>
+2号机是大菠萝，1号机就应该是巴尔了吧？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 19071#       发表于 2025-6-14 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937039&amp;ptid=2209276" target="_blank">newise 发表于 2025-6-14 13:56</a>
+
+大菠萝=恶魔，加上巨大化，相信大家都猜到接下来
+
+牢修回归就是为了和番茄放合体技石破！lovelove！天惊拳！ ...</blockquote>
+
+是波士
+
+<img src="https://img.stage1st.com/forum/202506/14/144040y7fitfs8enrf88fu.jpg" referrerpolicy="no-referrer">
+
+<strong>GsCRC1Ub0AAIrHg.jpg</strong> (130.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 14:40 上传
+
+*****
+
+####  GehirnZ  
+##### 19072#       发表于 2025-6-14 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935602&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-14 07:31</a>
+
+街机的2周送卡确实是送喵安，和之前开始送玛秋修司有增加放出角色身高的数据不同倒是还在藏着 ...</blockquote>
+？身高有什么好藏的，喵安nt觉醒还能长高吗。另外感觉很少见喵安这种高个子人设了。况且喵安已经算高挑吧，起码172，放现在的老中这身高都不算矮。
+
+能不能nt觉醒发功给迫真好姐妹牢番茄长点个子()，147还是太抽象了
+
