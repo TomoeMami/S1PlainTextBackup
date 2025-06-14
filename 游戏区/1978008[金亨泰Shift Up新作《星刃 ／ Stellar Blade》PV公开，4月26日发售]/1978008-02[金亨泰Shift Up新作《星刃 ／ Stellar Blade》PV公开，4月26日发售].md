@@ -4446,3 +4446,36 @@ xbox手柄居然默认没有开地图的快捷键还要自己设<img src="https:
 
 绕他背，不能背刺，攻击他时会有脚本的反应躲掉你的攻击然后反击<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  五块  
+##### 2652#       发表于 2025-6-14 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937569&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 16:09</a>
+
+中文字幕他叫艾德姆
+
+—— 来自 鹅球 v3.3.96</blockquote>
+女主叫eve，所以这个翻译应该是在避讳什么<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 2653#       发表于 2025-6-14 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937569&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 16:09</a>
+
+中文字幕他叫艾德姆
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">音译吧 
+
+*****
+
+####  qixinno2  
+##### 2654#       发表于 2025-6-14 16:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">避讳宗教相关的吧 比如DNF的十字架都变成一字棍了
+
