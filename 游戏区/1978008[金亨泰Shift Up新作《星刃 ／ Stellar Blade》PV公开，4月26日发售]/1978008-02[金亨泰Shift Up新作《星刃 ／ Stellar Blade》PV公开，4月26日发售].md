@@ -5206,3 +5206,15 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 大沙漠马桶通完了进打枪关，右上角神秘百合槽满了很久了，流程还剩多少
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 2729#       发表于 2025-6-15 06:19
+
+没开二段跳的时候硬是把荒地每一寸角落都杀完了扫了一遍，就找到两件还是三件衣服，感觉都不太喜欢，现在就是非常后悔（<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+现在开着视觉辅助的高对比度回第一张图再扫一遍图
+
+在想既然能做的显眼为什么不默认就显眼呢，如果我不开这个发现不了是不是说明我是视力障碍人士（<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
