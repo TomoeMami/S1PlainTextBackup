@@ -260,3 +260,19 @@ StarLadder公告原文如下：
 
 兵败如山倒了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  11116等  
+##### 4744#       发表于 2025-6-15 01:19
+
+至此，所有战胜过猎鹰的战队都被淘汰了。
+
+
+*****
+
+####  KevinGraham  
+##### 4745#       发表于 2025-6-15 01:22
+
+兵败如山倒desuwa
+
