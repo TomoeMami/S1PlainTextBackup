@@ -1973,3 +1973,11 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 <img src="https://files.catbox.moe/lf67cl.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/ubzk12.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 1029#       发表于 2025-6-14 12:22
+
+我比较想知道会不会讲这段时间俩人形妖精住哪，难道天天回国吗？总不能是就近住桥洞吧。
+

@@ -4084,3 +4084,14 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 可能如日本人喜欢用汉字音译如“夜露死苦”这种词是觉 ...</blockquote>
 我以为是因为我选的中文，所以只有汉字和英文招牌，原来原版也是这样啊...
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2620#       发表于 2025-6-14 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935691&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 08:22</a>
+叮除了经验之外的资源会对流程有影响么(玩家强度超过预设难度)
+主要是想叮了买图纸做衣服，但是衣服又和普 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实你不介意晚点做的话，只要你前面把支线都做了，最终决战前几个商店npc会站在主城门口用非常骨折的价格卖你各种资源
+
