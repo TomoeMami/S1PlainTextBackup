@@ -3972,3 +3972,11 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 有坛友想收nikke兑换码的吗？<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">想要的可以联系我
 
+
+*****
+
+####  幽远ghofar  
+##### 2611#       发表于 2025-6-14 10:30
+
+开了虚拟内存后玩了一个小时没闪退了，真没想到是这么脑残的问题
+

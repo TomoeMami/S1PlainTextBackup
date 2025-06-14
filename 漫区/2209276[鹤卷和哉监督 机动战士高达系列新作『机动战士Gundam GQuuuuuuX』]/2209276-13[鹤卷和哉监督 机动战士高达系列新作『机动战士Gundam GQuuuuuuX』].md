@@ -15272,3 +15272,29 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“／ 
 
 同人创作是自由的
 
+
+*****
+
+####  adretyu67.  
+##### 19058#       发表于 2025-6-14 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935667&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-14 08:10</a>
+
+这不是就看编剧想不想写
+
+想的话能力可以随便编</blockquote>
+gqux连gqux特供版大扎姆机设都没做，只能说明总帅是路边角色。
+
+所以想打赢复活赛只剩开腿只是装饰了
+
+
+*****
+
+####  格林达姆  
+##### 19059#       发表于 2025-6-14 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933740&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-6-13 19:41</a>
+
+就算死的是影武者，大基派也无力回天了吧，手下军队几乎全灭，对面紫婆手底下还有大杀器跟新人类部队，除了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最终战，在麻球和喵安打得难舍难分的时候联邦趁内乱发动奇袭，吉翁军伤亡惨重。夏亚和联邦在民间挖掘的神秘驾驶员联手，成功唤醒拉拉，地图炮被拆。混乱中老太婆打算乘船逃跑。这时，混入其中的基连拿着火箭筒出现在了舷窗前......
+
