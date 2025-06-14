@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 171254,
+    "totalreply": 171257,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1749885371,
+    "lastedit": 1749885972,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 19077,
+    "totalreply": 19078,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1749885374,
+    "lastedit": 1749885612,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 151433,
+    "totalreply": 151434,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1749882610,
+    "lastedit": 1749885609,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 2407,
+    "totalreply": 2409,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
-    "lastedit": 1749885250,
+    "lastedit": 1749885850,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12618,10 +12618,10 @@
     "update": false
   },
   "2252904": {
-    "totalreply": 187,
+    "totalreply": 188,
     "title": "[江苏省城市足球联赛—苏超联赛专楼]",
     "newtitle": "[江苏省城市足球联赛—苏超联赛专楼]",
-    "lastedit": 1749881773,
+    "lastedit": 1749885975,
     "category": "外野",
     "active": true,
     "update": false
@@ -13874,7 +13874,7 @@
     "newtitle": "[特斯拉model y 5月销量又拉了。]",
     "lastedit": 1749626655,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2253417": {
@@ -14580,10 +14580,10 @@
     "update": false
   },
   "2253702": {
-    "totalreply": 1652,
+    "totalreply": 1660,
     "title": "[以色列空袭伊朗, 中东紧张局势升级]",
     "newtitle": "[以色列空袭伊朗, 中东紧张局势升级]",
-    "lastedit": 1749885374,
+    "lastedit": 1749885975,
     "category": "外野",
     "active": true,
     "update": false
@@ -14832,10 +14832,10 @@
     "update": false
   },
   "2252068": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[【正式发布】沙加绯红恩典PC汉化企划（6／14正式发布）]",
     "newtitle": "[【正式发布】沙加绯红恩典PC汉化企划（6／14正式发布）]",
-    "lastedit": 1749885251,
+    "lastedit": 1749885849,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14868,10 +14868,10 @@
     "update": false
   },
   "2253813": {
-    "totalreply": 58,
+    "totalreply": 60,
     "title": "[感觉nga这两年烂得令人发指啊]",
     "newtitle": "[感觉nga这两年烂得令人发指啊]",
-    "lastedit": 1749885136,
+    "lastedit": 1749885975,
     "category": "外野",
     "active": true,
     "update": false
@@ -14882,6 +14882,15 @@
     "newtitle": "[古代祐三宣布正在开发世嘉主机用新游戏]",
     "lastedit": 1749885017,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2253747": {
+    "totalreply": 41,
+    "title": "[话说为啥男足踢得差还能赚钱]",
+    "newtitle": "[话说为啥男足踢得差还能赚钱]",
+    "lastedit": 1749885732,
+    "category": "外野",
     "active": true,
     "update": false
   }

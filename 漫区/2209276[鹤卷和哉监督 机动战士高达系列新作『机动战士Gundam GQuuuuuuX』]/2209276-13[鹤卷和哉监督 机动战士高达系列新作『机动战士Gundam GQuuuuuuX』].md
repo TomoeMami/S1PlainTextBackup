@@ -15516,3 +15516,19 @@ KDA显示器嘛
 
 —— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  9β  
+##### 19078#       发表于 2025-6-14 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67932396&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-6-13 16:04</a>
+https://ngabbs.com/read.php?tid=44356677
+
+看nga
+
+喵安有一定可能性一部分人设是top2龙套角色复用</blockquote>
+除了名字完全没有一样的吧
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
