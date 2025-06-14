@@ -830,3 +830,11 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 而一代图我是一直认为整体比二代憋屈的
 
+
+*****
+
+####  yanglian72  
+##### 5731#       发表于 2025-6-15 01:39
+
+一代对战图大小其实正合适，二代新图有点太大了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
