@@ -4168,3 +4168,20 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 可以的，我自己刚录的https://www.bilibili.com/video/BV1hMMCzLEBb，可能我没说清楚，起跳后不是按闪避 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了  确实上去了  这是不是类似恶魔城那种一定要2段跳的地方但可以用过某种武器的特殊滞空时间偷上去？
 
+
+*****
+
+####  alucardcz  
+##### 2626#       发表于 2025-6-14 12:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不过还是得喷一样 恶魔城至少明眼看上去就是差一点点够不着 这梯子tmd明明都跳上去了但就是不上梯
+
+
+*****
+
+####  qixinno2  
+##### 2627#       发表于 2025-6-14 12:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉触发吸附做的不太行 各种互动歪一点就点不了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手残试了下打红莲 这弹弹弹太难了
+
