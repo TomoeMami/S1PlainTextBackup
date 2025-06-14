@@ -15359,3 +15359,25 @@ KDA显示器嘛
 
 牢修回归就是为了和番茄放合体技石破！lovelove！天惊拳！<img src="https://static.stage1st.com/image/smiley/carton2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasssf  
+##### 19066#       发表于 2025-6-14 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937039&amp;ptid=2209276" target="_blank">newise 发表于 2025-6-14 13:56</a>
+
+大菠萝=恶魔，加上巨大化，相信大家都猜到接下来
+
+牢修回归就是为了和番茄放合体技石破！lovelove！天惊拳！ ...</blockquote>
+为啥不是黑化番茄成为boss然后被牢修和喵安的塞克谬共振love love气醒过来，也是致敬g高达结尾，白富野最爱的套路
+
+*****
+
+####  Saber琪  
+##### 19067#       发表于 2025-6-14 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937080&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-6-14 14:07</a>
+为啥不是黑化番茄成为boss然后被牢修和喵安的塞克谬共振love love气醒过来，也是致敬g高达结尾，白富野最 ...</blockquote>
+🍅不可能黑化了吧
+
