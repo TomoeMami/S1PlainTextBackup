@@ -4230,3 +4230,14 @@ Wz也不是不可以</blockquote>
 
 BF真的是完全没想到，而且这次池子没限定， 继续抽一发不管出不出都跑路
 
+
+*****
+
+####  AminGly  
+##### 1868#       发表于 2025-6-14 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937793&amp;ptid=2071758" target="_blank">captoon 发表于 2025-6-14 17:05</a>
+
+还不是限定机</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">群里那个黄鸡头像也是你么
+

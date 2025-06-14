@@ -555,3 +555,27 @@ Switch 2并不支持4K120Hz。</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 47#         楼主| 发表于 2025-6-14 17:25
+
+ 本帖最后由 绿冰 于 2025-6-14 17:27 编辑 
+<blockquote>TerryBlues 发表于 2025-6-11 21:11
+所以那张广为流传的快充伤电池所以限制了充电功率的截图是真的吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/14/172457clck23lznln11vh3.jpg" referrerpolicy="no-referrer">
+
+<strong>20250613234102-01JXJ9M108XX85XS08ZRR085QM.jpg</strong> (727.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 17:24 上传
+
+真的，而且下一页是这个
+
+国产手机的电池基本上是2到3年就衰退到要换，任天堂这么做也是有道理的
+
+不过国产安卓手机现在算是把持高密度电池的核心技术了，不知道国外什么时候才能用上
+
