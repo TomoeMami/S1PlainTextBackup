@@ -622,3 +622,22 @@ Switch 2并不支持4K120Hz。</blockquote>
 躲地雷拿星星的游戏超级好玩，游戏音乐带感又有点贱贱的，后期通关后能直接选择游玩吗？ ...</blockquote>
 随时都可以重复玩的把，你要直接选择就用X开菜单直接传送过去就是了
 
+
+*****
+
+####  chivalry  
+##### 52#       发表于 2025-6-14 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937982&amp;ptid=2253207" target="_blank">绿冰 发表于 2025-6-14 17:45</a>
+能充电，刻意不做快充，限制了充电功率而已，充电功率估算大约只有20瓦</blockquote>
+<img src="https://static.stage1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">那就行，慢就慢点吧
+
+*****
+
+####  chivalry  
+##### 53#       发表于 2025-6-14 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67938922&amp;ptid=2253207" target="_blank">Linkwjj 发表于 2025-6-14 21:18</a>
+你用哪怕一千w的快充头Switch2在握手的时候都只会跟充电器说请只给我15w</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也行了，短途能玩两三个小时不挂充电宝我忍了
+

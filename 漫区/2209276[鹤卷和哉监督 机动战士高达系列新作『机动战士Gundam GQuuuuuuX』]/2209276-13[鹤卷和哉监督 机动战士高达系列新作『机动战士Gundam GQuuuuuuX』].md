@@ -15913,3 +15913,27 @@ gqux机魂说其实很有力的一点就是哈罗在gqux内可能被当成传声
 
 [https://x.com/sassa323/status/1933846071186457007](https://x.com/sassa323/status/1933846071186457007)
 
+
+*****
+
+####  岸浪白野  
+##### 19111#       发表于 2025-6-14 22:01
+
+香水追加的人物，绿叔叔和首席
+
+<img src="https://img.stage1st.com/forum/202506/14/220121yz6xeo9jnwwytybz.png" referrerpolicy="no-referrer">
+
+<strong>LSGBD4KU$RV25QRGX(B6_2L.png</strong> (607.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 22:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/14/220133buz8v8av3hgenogv.png" referrerpolicy="no-referrer">
+
+<strong></strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 22:01 上传
+
