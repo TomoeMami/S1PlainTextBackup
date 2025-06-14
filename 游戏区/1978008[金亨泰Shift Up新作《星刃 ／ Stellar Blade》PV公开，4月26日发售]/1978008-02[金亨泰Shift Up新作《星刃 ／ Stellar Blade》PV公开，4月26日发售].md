@@ -5067,3 +5067,21 @@ NIKKE那个兑换码要在哪儿拿 我不玩NIKKE
 NIKKE那个兑换码要在哪儿拿 我不玩NIKKE</blockquote>
 剧情打到进入希雍，开头就会看到一个红色盒子，打开就有。需要游戏内时间2小时才能拿兑换码。
 
+
+*****
+
+####  Yinacona  
+##### 2715#       发表于 2025-6-15 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67939567&amp;ptid=1978008" target="_blank">quanlix 发表于 2025-6-14 23:40</a>
+
+第一次到这块，正对面的这个区域是不是进不去，周围绕了得有半个小时了没找着路，就在这图右前方找着个 ...</blockquote>
+这里要找到起重机id后遥控吊着的钢结构来铺路
+
+*****
+
+####  Yinacona  
+##### 2716#       发表于 2025-6-15 01:08
+
+问下季节活动内容和 dlc推荐开吗？刚开游戏时说一开始开着会破坏体验，想知道啥时候开比较好
+
