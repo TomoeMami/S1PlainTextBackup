@@ -4051,3 +4051,36 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 一个动作游戏我打了十个小时所有boss都一次过还不如悬崖强，也是挺神奇的难度设定<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 2618#       发表于 2025-6-14 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936369&amp;ptid=1978008" target="_blank">saberserker 发表于 2025-6-14 11:25</a>
+
+那个梯子你站箱子上靠近了跳起来然后按冲刺就上去了。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/14/115629hnasxj060ln0xbkp.png" referrerpolicy="no-referrer">
+
+<strong>22223.png</strong> (710.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 11:56 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定是这个马 随便你怎么跳怎么冲 都是直接穿过梯子上不去的 我特意查了攻略 必须2段跳
+
+
+*****
+
+####  方舟售票员  
+##### 2619#       发表于 2025-6-14 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935886&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-14 09:22</a>
+
+老金的个人审美吧，他的作品中汉字出场率挺高的。
+
+可能如日本人喜欢用汉字音译如“夜露死苦”这种词是觉 ...</blockquote>
+我以为是因为我选的中文，所以只有汉字和英文招牌，原来原版也是这样啊...
+
