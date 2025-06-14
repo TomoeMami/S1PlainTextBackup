@@ -810,3 +810,13 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 卡到没边了，合理怀疑任天堂是想逼我换ns2了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5729#       发表于 2025-6-14 23:18
+
+打了两次三纲，都是最后剩横纲没打死<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
