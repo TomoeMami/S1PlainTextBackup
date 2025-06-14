@@ -15213,3 +15213,19 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“／ 
 
 藏着是因为之后要因为斗争心巨大化吗
 
+
+*****
+
+####  璇瑢子R  
+##### 19053#       发表于 2025-6-14 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67933812&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-13 19:55</a>
+大基就算没死，手上还剩啥对付zeknova手电筒。
+
+十几台大扎姆吗。</blockquote>
+这不是就看编剧想不想写
+
+想的话能力可以随便编
+
+比如一台基连亲自驾驶的可以无伤硬刚泽克诺瓦的ma什么的
+

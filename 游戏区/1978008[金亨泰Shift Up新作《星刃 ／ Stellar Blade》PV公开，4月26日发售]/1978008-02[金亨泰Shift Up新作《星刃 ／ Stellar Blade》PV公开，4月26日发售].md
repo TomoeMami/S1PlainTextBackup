@@ -3902,3 +3902,12 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这大沙漠满地图跑来跑去做支线好烦啊 各种烦人小怪还硬的一B 不用技能平A打着慢的要死
 
+
+*****
+
+####  Andariel  
+##### 2604#       发表于 2025-6-14 08:13
+
+有没有核对衣服列表的数据库啊
+想看看一周目有没有落下的没拿的衣服
+
