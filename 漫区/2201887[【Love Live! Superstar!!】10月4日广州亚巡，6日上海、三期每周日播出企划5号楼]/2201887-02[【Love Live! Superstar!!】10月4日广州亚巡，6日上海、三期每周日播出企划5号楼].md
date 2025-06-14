@@ -304,3 +304,13 @@ day1就是给二偶的，然后热度最高的mujicaday2day3都去。
 —— 来自 Xiaomi 24129RT7CC, Android 15, 鹅球 v3.5.99</blockquote>
 <img src="https://p.sda1.dev/24/071d92ba12f69b659d7e22933a810a0a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1646#       发表于 2025-6-14 20:39
+
+说起来生放送可以播版权片？不会挂个已授权就那么播完吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
