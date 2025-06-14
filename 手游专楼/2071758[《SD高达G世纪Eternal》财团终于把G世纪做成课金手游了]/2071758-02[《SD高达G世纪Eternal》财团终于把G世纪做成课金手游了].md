@@ -4157,3 +4157,42 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 我感觉机师才是重要的了
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 1861#       发表于 2025-6-14 16:21
+
+死神EW是盾，是因为重炮EW是双持没盾的缘故么，讲道理不应该是沙漠EW是盾么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1862#       发表于 2025-6-14 16:25
+
+迪奥+地狱死神高达(EW) &amp; 岭司+全装备创制强袭高达
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然会是bf，没想到
+
+*****
+
+####  王俊凯  
+##### 1863#       发表于 2025-6-14 16:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">代哥说是啥就是啥
+
+*****
+
+####  洛克萨斯  
+##### 1864#       发表于 2025-6-14 16:28
+
+W的第一个ur应该是wzc吧
+
+艾比安弯道超车也不是不可能哈
+
+Wz也不是不可以
+
+再不行的话卡飞也能接受
+
+怎么是地死ew
+

@@ -4406,3 +4406,21 @@ cdkey咸鱼上一堆，我看都不一定卖的掉啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhzij111  
+##### 2648#       发表于 2025-6-14 16:18
+
+这游戏除了无马尾和换发型还有别的方法能隐藏武器吗，下了个发型mod结果无马尾就光头，后脑勺顶根天线实在太丑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  mhss  
+##### 2649#       发表于 2025-6-14 16:25
+
+xbox手柄居然默认没有开地图的快捷键还要自己设<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明明方向键右键什么东西都没有绑定
+
