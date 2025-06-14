@@ -704,3 +704,11 @@ kl都回郵件了
 
 神经病吧，不知道的还以为杀人放火了
 
+
+*****
+
+####  ヒトニナル  
+##### 1248#       发表于 2025-6-14 16:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为鸣潮是库洛做的呀，你又不是不知道国内哪两个群体声量最大，鸣潮养着其中一个
+

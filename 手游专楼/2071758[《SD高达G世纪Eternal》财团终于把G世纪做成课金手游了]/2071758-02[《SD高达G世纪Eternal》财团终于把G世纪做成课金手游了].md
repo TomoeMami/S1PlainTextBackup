@@ -4196,3 +4196,18 @@ Wz也不是不可以
 
 怎么是地死ew
 
+
+*****
+
+####  AminGly  
+##### 1865#       发表于 2025-6-14 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937633&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-6-14 16:28</a>
+
+W的第一个ur应该是wzc吧
+
+艾比安弯道超车也不是不可能哈
+
+Wz也不是不可以</blockquote>
+还是盾啊，我去
+
