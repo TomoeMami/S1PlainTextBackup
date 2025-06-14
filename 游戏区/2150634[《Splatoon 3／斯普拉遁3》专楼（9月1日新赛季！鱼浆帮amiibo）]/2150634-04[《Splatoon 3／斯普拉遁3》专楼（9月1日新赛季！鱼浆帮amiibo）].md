@@ -820,3 +820,13 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5730#       发表于 2025-6-15 00:53
+
+高架下这图出了之后一对比更凸显出三代图的憋屈
+
+而一代图我是一直认为整体比二代憋屈的
+
