@@ -4193,3 +4193,51 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 打到第二张线性图，主角的手段太多而boss血量太少，闪一次一次红光打远程弱点都能打掉一大格血
 
+
+*****
+
+####  幽远ghofar  
+##### 2629#       发表于 2025-6-14 13:06
+
+ 本帖最后由 幽远ghofar 于 2025-6-14 13:07 编辑 
+
+这游戏的格挡是真的不好玩，完全可以理解为什么黑神话悟空干脆就只留下了躲闪这个完整的系统，只在招式里留一些招架要素了。躲闪+招架+跳跃构成的多维动作系统要做的好玩，真的不是没有动作经验的厂子能玩得来的
+
+*****
+
+####  Asukalangley33  
+##### 2630#       发表于 2025-6-14 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936742&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-14 12:45</a>
+是的，就是很垃圾的设计。所以有人才说开完技能才算正常机体，二周目才有点体验
+
+别的基本和1585楼的概括 ...</blockquote>
+主要平A攒不了什么资源又容易挨打
+同时左右肩键的红蓝能量的派生伤害对比平A实在太高
+砍老半天不如刷三个剑气
+这一来一去就显的A来A去很没意义，不如装个弹刀脊椎站着不动弹，出硬直了砸技能来的快<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+后面就公式化战斗了
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 2631#       发表于 2025-6-14 13:16
+
+而且没有快速突进的手段，突刺居然有cd我是真不懂su战斗策划脑子想的啥
+
+*****
+
+####  saberserker  
+##### 2632#       发表于 2025-6-14 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935675&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-14 08:13</a>
+
+有没有核对衣服列表的数据库啊
+
+想看看一周目有没有落下的没拿的衣服</blockquote>
+看这个[https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm](https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm)
+
