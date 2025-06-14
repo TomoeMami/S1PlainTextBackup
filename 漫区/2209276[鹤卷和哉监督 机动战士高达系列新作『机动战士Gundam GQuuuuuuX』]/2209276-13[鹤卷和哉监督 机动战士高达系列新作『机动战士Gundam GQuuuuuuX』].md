@@ -15488,3 +15488,31 @@ KDA显示器嘛
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  GehirnZ  
+##### 19076#       发表于 2025-6-14 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937255&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-14 14:54</a>
+
+不是说喵安是双重人格嘛
+
+也许觉醒迪亚波罗人格的时候会长高到190cm，性格也会更残暴</blockquote>
+那我缺的打电话这一块（）
+
+*****
+
+####  9β  
+##### 19077#       发表于 2025-6-14 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935322&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-6-14 01:47</a>
+绿色大叔真帅啊
+
+麻球那十足的JK力居然让她把在船上坐牢坐出了上学的感觉
+
+出去放风开MS，开完无缝回牢房可还 ...</blockquote>
+麻球本身就父亲缺位，这下找到个好爸爸了
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

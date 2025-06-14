@@ -4260,3 +4260,36 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 试了  确实上去了  这是不是类似恶魔城那种一定要2段跳的地方但可以用过某种武器的特殊滞空时间偷上去？ ...</blockquote>
 额看了下视频确定是这个地方了 我刚到这里也跳了几下梯子 上不去 然后直接往左边上一点的铁板上跳就吸上去了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 并不需要二段跳
 
+
+*****
+
+####  ladiesman802  
+##### 2635#       发表于 2025-6-14 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937124&amp;ptid=1978008" target="_blank">水边井 发表于 2025-6-14 14:22</a>
+
+女守卫那一套能入手吗？好涩啊</blockquote>
+有，首页boss挑战奖励
+
+*****
+
+####  シルバ  
+##### 2636#       发表于 2025-6-14 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935691&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 08:22</a>
+
+叮除了经验之外的资源会对流程有影响么(玩家强度超过预设难度)
+
+主要是想叮了买图纸做衣服，但是衣服又和普 ...</blockquote>
+做衣服的素材正常流程里是可以无限购买的，换图纸的币也是溢出的，放心叮就是了
+
+*****
+
+####  Asukalangley33  
+##### 2637#       发表于 2025-6-14 15:06
+
+穿2B的衣服还会变bgm啊
+这么一对比，monaca在剑星的表现就很敷衍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
