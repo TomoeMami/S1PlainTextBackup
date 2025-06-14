@@ -3951,3 +3951,16 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 这大沙漠满地图跑来跑去做支线好烦啊 各种烦人小怪还硬的一B 不用技能平A打着慢的要死 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">欧 羡慕  偷袭秒怪啊 还能回血
 
+
+*****
+
+####  alucardcz  
+##### 2609#       发表于 2025-6-14 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935586&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-14 07:19</a>
+
+有人遇到过锁60FPS前面还好结果莫名其妙失效飙到120害得画面变成快慢刀吗，
+
+我昨晚刚舔进主城遇到了，当反 ...</blockquote>
+开了帧生成？
+
