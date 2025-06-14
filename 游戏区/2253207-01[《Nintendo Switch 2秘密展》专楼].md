@@ -641,3 +641,14 @@ Switch 2并不支持4K120Hz。</blockquote>
 你用哪怕一千w的快充头Switch2在握手的时候都只会跟充电器说请只给我15w</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也行了，短途能玩两三个小时不挂充电宝我忍了
 
+
+*****
+
+####  qwased  
+##### 54#       发表于 2025-6-14 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914346&amp;ptid=2253207" target="_blank">ajsh 发表于 2025-6-10 18:08</a>
+
+这个是真玩不下去，我能看到dlss演示就不玩了，因为我买这个的一大原因就是为了看dlss展示，任天堂游戏现在 ...</blockquote>
+喷3不就是用DLSS从1440p拉到4k的吗
+
