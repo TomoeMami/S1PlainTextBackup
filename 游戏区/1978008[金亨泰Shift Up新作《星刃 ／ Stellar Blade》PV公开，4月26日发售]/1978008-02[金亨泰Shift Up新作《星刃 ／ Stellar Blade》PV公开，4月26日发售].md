@@ -3999,3 +3999,24 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 目前打到沙漠，这个地底怪真的烦，经常解密推箱子推着推着被背后窜出来给一刀，大地图没有可以一键回篝火的返回骨片有点烦，因为不是所有篝火都有电话，也不是每次都能自杀
 
+
+*****
+
+####  永远的访客  
+##### 2614#       发表于 2025-6-14 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936001&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-14 09:49</a>
+
+开了帧生成？</blockquote>
+这倒没注意，我再试试<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saberserker  
+##### 2615#       发表于 2025-6-14 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934793&amp;ptid=1978008" target="_blank">Nosgoth 发表于 2025-6-13 22:59</a>
+荒野救那个突然说话的机器人那里，有个箱子是不是必须要二段跳才能拿到啊？我推箱子到那个断梯下面，怎么看 ...</blockquote>
+那个梯子你站箱子上靠近了跳起来然后按冲刺就上去了。
+
