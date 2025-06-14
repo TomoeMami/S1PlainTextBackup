@@ -252,3 +252,11 @@ StarLadder公告原文如下：
 
 2.40rating<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zpl123  
+##### 4743#       发表于 2025-6-15 01:01
+
+兵败如山倒了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
