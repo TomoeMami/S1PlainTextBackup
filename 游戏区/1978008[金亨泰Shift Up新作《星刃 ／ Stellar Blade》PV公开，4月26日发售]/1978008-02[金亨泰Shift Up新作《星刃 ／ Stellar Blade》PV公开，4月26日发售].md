@@ -3894,3 +3894,11 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 我昨晚刚舔进主城遇到了，当反沉迷系统了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 2603#       发表于 2025-6-14 07:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这大沙漠满地图跑来跑去做支线好烦啊 各种烦人小怪还硬的一B 不用技能平A打着慢的要死
+
