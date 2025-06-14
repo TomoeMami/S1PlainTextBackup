@@ -5186,3 +5186,15 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2727#       发表于 2025-6-15 03:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940011&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2025-6-15 02:44</a>
+nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么？
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+是有服装奖励的，一套全种类送的，另一套钓鱼积分换的，积分的估计二周目才解锁吧
+
