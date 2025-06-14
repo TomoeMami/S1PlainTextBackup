@@ -4113,3 +4113,58 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 你现在在剑星里能看到的要素，在攻壳95电影版里也一样能找到
 
+
+*****
+
+####  saberserker  
+##### 2622#       发表于 2025-6-14 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936511&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-14 11:57</a>
+
+确定是这个马 随便你怎么跳怎么冲 都是直接穿过梯子上不去的 我特意查了攻略 必须2段跳</blockquote>
+可以的，我自己刚录的[https://www.bilibili.com/video/BV1hMMCzLEBb](https://www.bilibili.com/video/BV1hMMCzLEBb)，可能我没说清楚，起跳后不是按闪避进行空中冲刺，是按地面上前冲到怪面前攻击那个按键，PS是三角，PC应该是Y吧，空中按Y是一个下砸的招，这招起手时候有个向上的位移正好能被梯子吸住。
+
+*****
+
+####  雷攻姛人  
+##### 2623#       发表于 2025-6-14 12:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/14/123806hr93mlj93jhte8qx.gif" referrerpolicy="no-referrer">
+
+<strong>1749875781704.gif</strong> (459.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 12:38 上传
+
+
+*****
+
+####  darkangel0224  
+##### 2624#       发表于 2025-6-14 12:45
+
+<blockquote>Asukalangley33 发表于 2025-6-14 11:31
+第二次玩还是想吐槽
+
+二段跳放在十小时往后才解锁是不是完全意义不明的操作？
+</blockquote>
+是的，就是很垃圾的设计。所以有人才说开完技能才算正常机体，二周目才有点体验
+
+别的基本和1585楼的概括一样，普攻收益很低
+
+昨晚琢磨了一下没开全技能的残疾模式的套路：起手轻砍两下，等boss出招硬挡（黄光等挡不下的除外），然后boss出2秒空档，你重砍两刀，boss跳走。等boss出远程技，或者跳过来，继续挡或者闪。打光boss平衡值，出QTE或者爆裂技，输出一顿。
+
+反正就是这么枯燥
+
+*****
+
+####  alucardcz  
+##### 2625#       发表于 2025-6-14 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936711&amp;ptid=1978008" target="_blank">saberserker 发表于 2025-6-14 12:38</a>
+
+可以的，我自己刚录的https://www.bilibili.com/video/BV1hMMCzLEBb，可能我没说清楚，起跳后不是按闪避 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了  确实上去了  这是不是类似恶魔城那种一定要2段跳的地方但可以用过某种武器的特殊滞空时间偷上去？
+
