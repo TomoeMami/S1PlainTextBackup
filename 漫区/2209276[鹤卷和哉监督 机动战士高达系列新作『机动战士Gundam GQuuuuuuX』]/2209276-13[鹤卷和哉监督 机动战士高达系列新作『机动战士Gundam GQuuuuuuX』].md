@@ -15381,3 +15381,16 @@ KDA显示器嘛
 为啥不是黑化番茄成为boss然后被牢修和喵安的塞克谬共振love love气醒过来，也是致敬g高达结尾，白富野最 ...</blockquote>
 🍅不可能黑化了吧
 
+
+*****
+
+####  wasssf  
+##### 19068#       发表于 2025-6-14 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936784&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-6-14 12:55</a>
+
+年龄先不说，身高有什么好藏的
+
+该不会下集或者下下集喵安NT力量爆发变成几百上千公里大的巨大娘，所以要是 ...</blockquote>
+那是奥拉力爆发吧
+
