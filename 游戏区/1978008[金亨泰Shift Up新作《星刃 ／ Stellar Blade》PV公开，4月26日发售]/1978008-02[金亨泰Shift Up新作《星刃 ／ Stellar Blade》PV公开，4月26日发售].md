@@ -5154,3 +5154,35 @@ NIKKE那个兑换码要在哪儿拿 我不玩NIKKE</blockquote>
 只有主城和两个野外有地图，其他地方没有</blockquote>
 好的，那就没问题了
 
+
+*****
+
+####  Schwarzess  
+##### 2724#       发表于 2025-6-15 02:44
+
+nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ParadiseMartyr  
+##### 2725#       发表于 2025-6-15 02:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你这游戏，战斗不给开箱子，篝火只能传送点传。
+别的游戏好歹还有类似于返回骨片的道具呢，这游戏是真只能传送点传传送点<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+说实话白天刚舔完废土，要不是有无限跳跃跳过狗屎跑图和推箱子高低差谜题，我还真没法打下去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  masokishin  
+##### 2726#       发表于 2025-6-15 02:50
+
+有没有钓鱼相关的修改器？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
