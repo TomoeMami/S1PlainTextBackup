@@ -9037,3 +9037,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jacket  
+##### 884#       发表于 2025-6-14 09:58
+
+偶尔有几把确实觉得缩圈没那么快
+

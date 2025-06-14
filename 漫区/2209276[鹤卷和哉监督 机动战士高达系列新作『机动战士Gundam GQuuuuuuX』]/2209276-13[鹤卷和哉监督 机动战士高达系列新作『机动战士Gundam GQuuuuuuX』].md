@@ -15237,3 +15237,14 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“／ 
 
 才看到大平在画哈撒韦，不愧是高规格制作，明年可以接上吗
 
+
+*****
+
+####  灵魂收割机  
+##### 19055#       发表于 2025-6-14 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935602&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-14 07:31</a>
+
+街机的2周送卡确实是送喵安，和之前开始送玛秋修司有增加放出角色身高的数据不同倒是还在藏着 ...</blockquote>
+有毛病吧，都要完结了还藏个人信息<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
