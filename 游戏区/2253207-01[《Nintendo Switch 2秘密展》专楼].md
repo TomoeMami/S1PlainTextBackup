@@ -524,3 +524,16 @@ Switch 2并不支持4K120Hz。
 Switch 2并不支持4K120Hz。</blockquote>
 不支持4k120有什么问题嘛，你买1080 120 或者 4K 60显示设备，前者不是体验不到4k，后者看不见120么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  VVhaleVoice  
+##### 45#       发表于 2025-6-14 09:17
+
+除了配件部分都云完了，
+确实做到了补齐信息差的作用，
+估计可以后续少交点什么开源改进装置的智商税。
+这个小游戏整体挺好的。
+
+—— 来自 Google Pixel 8, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

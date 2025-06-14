@@ -3922,3 +3922,21 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  雷攻姛人  
+##### 2606#       发表于 2025-6-14 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934705&amp;ptid=1978008" target="_blank">水边井 发表于 2025-6-13 22:38</a>
+突然发现，这游戏的美术资产怎么全是英文或者汉字，几乎没看见韩文，韩国人看得懂吗 ...</blockquote>
+老金的个人审美吧，他的作品中汉字出场率挺高的。
+可能如日本人喜欢用汉字音译如“夜露死苦”这种词是觉得帅，也可能是觉得汉字能更好的表现东方元素<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雷攻姛人  
+##### 2607#       发表于 2025-6-14 09:23
+
+手残死了N次后终于理解了，要先点生存<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
