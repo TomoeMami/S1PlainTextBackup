@@ -244,3 +244,11 @@ StarLadder公告原文如下：
 
 一上来作业又爆炸了
 
+
+*****
+
+####  zpl123  
+##### 4742#       发表于 2025-6-14 23:39
+
+2.40rating<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
