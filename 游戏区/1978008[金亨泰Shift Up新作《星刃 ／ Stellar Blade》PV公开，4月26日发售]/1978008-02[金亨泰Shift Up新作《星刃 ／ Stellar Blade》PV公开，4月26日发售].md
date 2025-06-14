@@ -4424,3 +4424,25 @@ cdkey咸鱼上一堆，我看都不一定卖的掉啊
 
 xbox手柄居然默认没有开地图的快捷键还要自己设<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明明方向键右键什么东西都没有绑定
 
+
+*****
+
+####  ParadiseMartyr  
+##### 2650#       发表于 2025-6-14 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937600&amp;ptid=1978008" target="_blank">zhzij111 发表于 2025-6-14 16:18</a>
+这游戏除了无马尾和换发型还有别的方法能隐藏武器吗，下了个发型mod结果无马尾就光头，后脑勺顶根天线实在 ...</blockquote>
+来个mod链接
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ネロ  
+##### 2651#       发表于 2025-6-14 16:42
+
+这游戏的老6太恶心了，触发偷袭太快了
+
+绕他背，不能背刺，攻击他时会有脚本的反应躲掉你的攻击然后反击<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
