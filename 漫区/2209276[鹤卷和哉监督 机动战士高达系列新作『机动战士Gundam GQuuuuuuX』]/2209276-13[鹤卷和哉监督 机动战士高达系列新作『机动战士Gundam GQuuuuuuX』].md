@@ -15342,3 +15342,20 @@ KDA显示器嘛
 
 该不会下集或者下下集喵安NT力量爆发变成几百上千公里大的巨大娘，所以要是写身高就会剧透之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 19064#       发表于 2025-6-14 13:51
+
+不是迪亚波罗嘛，结合二号机现在没机魂的情况，喵安跟二号机融合成为真正的恶魔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下身高当然变了（）
+
+*****
+
+####  newise  
+##### 19065#       发表于 2025-6-14 13:56
+
+大菠萝=恶魔，加上巨大化，相信大家都猜到接下来
+
+牢修回归就是为了和番茄放合体技石破！lovelove！天惊拳！<img src="https://static.stage1st.com/image/smiley/carton2017/028.png" referrerpolicy="no-referrer">
+
