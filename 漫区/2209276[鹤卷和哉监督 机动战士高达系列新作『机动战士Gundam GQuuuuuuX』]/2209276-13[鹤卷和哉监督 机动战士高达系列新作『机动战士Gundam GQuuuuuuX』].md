@@ -15450,3 +15450,31 @@ KDA显示器嘛
 
 能不能nt觉醒发功给迫真好姐妹牢番茄长点个子()，147还是太抽象了
 
+
+*****
+
+####  大十字紅朔  
+##### 19073#       发表于 2025-6-14 14:51
+
+配音要是没换的话就不怕毒了
+
+<img src="https://img.stage1st.com/forum/202506/14/145043vzzzo9nsu8nl9sis.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 14:50 上传
+
+*****
+
+####  大十字紅朔  
+##### 19074#       发表于 2025-6-14 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937202&amp;ptid=2209276" target="_blank">GehirnZ 发表于 2025-6-14 14:41</a>
+
+？身高有什么好藏的，喵安nt觉醒还能长高吗。另外感觉很少见喵安这种高个子人设了。况且喵安已经算高挑吧 ...</blockquote>
+不是说喵安是双重人格嘛
+
+也许觉醒迪亚波罗人格的时候会长高到190cm，性格也会更残暴<img src="https://static.stage1st.com/image/smiley/carton2017/294.gif" referrerpolicy="no-referrer">
+

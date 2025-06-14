@@ -4249,3 +4249,14 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 女守卫那一套能入手吗？好涩啊
 
+
+*****
+
+####  wasdfghjkl  
+##### 2634#       发表于 2025-6-14 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936745&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-14 12:45</a>
+
+试了  确实上去了  这是不是类似恶魔城那种一定要2段跳的地方但可以用过某种武器的特殊滞空时间偷上去？ ...</blockquote>
+额看了下视频确定是这个地方了 我刚到这里也跳了几下梯子 上不去 然后直接往左边上一点的铁板上跳就吸上去了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 并不需要二段跳
+
