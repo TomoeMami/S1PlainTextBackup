@@ -4211,3 +4211,22 @@ W的第一个ur应该是wzc吧
 Wz也不是不可以</blockquote>
 还是盾啊，我去
 
+
+*****
+
+####  captoon  
+##### 1866#       发表于 2025-6-14 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937744&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-6-14 16:55</a>
+
+还是盾啊，我去</blockquote>
+还不是限定机
+
+
+*****
+
+####  HEERO.W  
+##### 1867#       发表于 2025-6-14 17:13
+
+BF真的是完全没想到，而且这次池子没限定， 继续抽一发不管出不出都跑路
+
