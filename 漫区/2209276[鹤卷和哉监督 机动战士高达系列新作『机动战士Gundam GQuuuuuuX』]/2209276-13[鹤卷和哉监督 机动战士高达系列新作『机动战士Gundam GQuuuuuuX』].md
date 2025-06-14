@@ -15532,3 +15532,26 @@ https://ngabbs.com/read.php?tid=44356677
 
 —— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  9β  
+##### 19079#       发表于 2025-6-14 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926532&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-12 17:34</a>
+yep，我确实认为绿叔叔很可能不存在“一个最基本且有成功几率的行动计划”，或者更直白点说，编剧并没有 ...</blockquote>
+绿叔叔这边很明显是“只要让这人看起来有计划就行，反正最后他一定要吃瘪碰到计划外，所以根本不需要解释他的具体计划”
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  9β  
+##### 19080#       发表于 2025-6-14 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67926765&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-6-12 18:04</a>
+鸭子下集能开啥？其实当时转移过来的不止爱美号，还有台被砍了一只膀子的红色勇士？ ...</blockquote>
+可选项有很多呢，甚至很大概率是完美吉翁号GQ，一堆经典机体现代化了，很难忍住不把他现代化吧？
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
