@@ -9053,3 +9053,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 任务匹配还是没修好吗
 
+
+*****
+
+####  thealoneer  
+##### 886#       发表于 2025-6-15 01:53
+
+是不是首发的老ass都相继退坑了，这两天匹配到的队友抽象的不行，有追追无赖举盾平a的，有铁眼举着血叉放战技的，还有一声不响自己去开封印监牢或者做任务死了又死的，玩100多小时下来就中间30来小时最舒服，开局粪坑现在又要粪坑了吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

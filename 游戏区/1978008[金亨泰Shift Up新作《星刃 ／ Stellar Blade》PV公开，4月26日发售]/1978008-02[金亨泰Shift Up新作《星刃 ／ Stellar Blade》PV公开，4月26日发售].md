@@ -5111,3 +5111,13 @@ NIKKE那个兑换码要在哪儿拿 我不玩NIKKE</blockquote>
 
 键盘是按M开地图吗？为啥按了没反应，还是说刚开始没地图
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2720#       发表于 2025-6-15 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67939917&amp;ptid=1978008" target="_blank">真红眼教授 发表于 2025-6-15 01:42</a>
+键盘是按M开地图吗？为啥按了没反应，还是说刚开始没地图</blockquote>
+只有主城和两个野外有地图，其他地方没有
+
