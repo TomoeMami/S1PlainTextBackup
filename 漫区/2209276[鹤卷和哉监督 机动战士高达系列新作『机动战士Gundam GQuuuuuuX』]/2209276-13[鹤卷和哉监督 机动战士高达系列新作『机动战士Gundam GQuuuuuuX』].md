@@ -15248,3 +15248,19 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“／ 
 街机的2周送卡确实是送喵安，和之前开始送玛秋修司有增加放出角色身高的数据不同倒是还在藏着 ...</blockquote>
 有毛病吧，都要完结了还藏个人信息<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 19056#       发表于 2025-6-14 10:05
+
+这也太能自己产粮了
+
+<img src="https://img.stage1st.com/forum/202506/14/100537cft5itdwto8hqwiu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (680.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 10:05 上传
+

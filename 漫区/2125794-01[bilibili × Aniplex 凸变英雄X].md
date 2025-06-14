@@ -3571,3 +3571,16 @@ Vol.1には1話～7話を収録💿
 
 香菜要怎么和萝莉产生接点呢
 
+
+*****
+
+####  rushsong  
+##### 303#       发表于 2025-6-14 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734384&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-4-17 14:14</a>
+
+台词人设全按着中文环境来的，改成日语的感觉就和无脑按着日语台本做中配一样
+
+—— 来自 OnePlus IN2020 ...</blockquote>
+这种反而更好，N站弹幕都说台词写的有趣一眼就能看出是中国动画
+
