@@ -738,3 +738,11 @@ kl都回郵件了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  karastar  
+##### 1252#       发表于 2025-6-15 00:38
+
+Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
