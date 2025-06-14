@@ -4315,3 +4315,31 @@ cdkey咸鱼上一堆，我看都不一定卖的掉啊
 ----发送自 STAGE1 App for Android.</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">25秒卖了
 
+
+*****
+
+####  alucardcz  
+##### 2640#       发表于 2025-6-14 15:34
+
+话说为什么有点机器人能刺杀 有的不能？
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 2641#       发表于 2025-6-14 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937311&amp;ptid=1978008" target="_blank">Asukalangley33 发表于 2025-6-14 15:06</a>
+穿2B的衣服还会变bgm啊
+这么一对比，monaca在剑星的表现就很敷衍</blockquote>
+就这一首几乎完爆剑星所有bgm<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 2642#       发表于 2025-6-14 15:45
+
+我到沙丘了，不能回之前的地图么。水都我有些东西没拿到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
