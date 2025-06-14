@@ -712,3 +712,11 @@ kl都回郵件了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为鸣潮是库洛做的呀，你又不是不知道国内哪两个群体声量最大，鸣潮养着其中一个
 
+
+*****
+
+####  _Ra1nMaker  
+##### 1249#       发表于 2025-6-14 17:32
+
+鸣潮不是卖女角色的媚男游戏么 居然这么在乎女性玩家的意见啊 不过这么一搞 以后mhy应该也不敢给他工商了吧
+
