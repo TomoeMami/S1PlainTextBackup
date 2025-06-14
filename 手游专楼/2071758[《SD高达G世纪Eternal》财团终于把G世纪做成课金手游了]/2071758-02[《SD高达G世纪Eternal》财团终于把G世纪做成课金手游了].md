@@ -4116,3 +4116,11 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1857#       发表于 2025-6-14 09:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这游戏是不是有什么独特的检测机制，不接任务捕获机体猛猛出，接了任务一个都没有。就在刚才300体力就抓到2台z系，太疯狂了
+

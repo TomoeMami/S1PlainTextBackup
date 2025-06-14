@@ -3940,3 +3940,14 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 手残死了N次后终于理解了，要先点生存<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 2608#       发表于 2025-6-14 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935628&amp;ptid=1978008" target="_blank">qixinno2 发表于 2025-6-14 07:49</a>
+
+这大沙漠满地图跑来跑去做支线好烦啊 各种烦人小怪还硬的一B 不用技能平A打着慢的要死 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">欧 羡慕  偷袭秒怪啊 还能回血
+
