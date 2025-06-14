@@ -4185,3 +4185,11 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉触发吸附做的不太行 各种互动歪一点就点不了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手残试了下打红莲 这弹弹弹太难了
 
+
+*****
+
+####  卡拉德利姆  
+##### 2628#       发表于 2025-6-14 13:00
+
+打到第二张线性图，主角的手段太多而boss血量太少，闪一次一次红光打远程弱点都能打掉一大格血
+

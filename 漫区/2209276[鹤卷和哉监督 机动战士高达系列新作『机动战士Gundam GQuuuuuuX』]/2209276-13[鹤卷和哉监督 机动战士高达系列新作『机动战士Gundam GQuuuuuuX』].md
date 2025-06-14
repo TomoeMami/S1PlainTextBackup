@@ -15332,3 +15332,13 @@ KDA显示器嘛
 喵安打完一炮头上数字得飙到多少</blockquote>
 这是毒杀数吧
 
+
+*****
+
+####  久井路路  
+##### 19063#       发表于 2025-6-14 12:55
+
+年龄先不说，身高有什么好藏的
+
+该不会下集或者下下集喵安NT力量爆发变成几百上千公里大的巨大娘，所以要是写身高就会剧透之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
