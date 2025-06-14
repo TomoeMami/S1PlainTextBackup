@@ -15298,3 +15298,37 @@ gqux连gqux特供版大扎姆机设都没做，只能说明总帅是路边角色
 就算死的是影武者，大基派也无力回天了吧，手下军队几乎全灭，对面紫婆手底下还有大杀器跟新人类部队，除了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最终战，在麻球和喵安打得难舍难分的时候联邦趁内乱发动奇袭，吉翁军伤亡惨重。夏亚和联邦在民间挖掘的神秘驾驶员联手，成功唤醒拉拉，地图炮被拆。混乱中老太婆打算乘船逃跑。这时，混入其中的基连拿着火箭筒出现在了舷窗前......
 
+
+*****
+
+####  Saber琪  
+##### 19060#       发表于 2025-6-14 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935602&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-14 07:31</a>
+街机的2周送卡确实是送喵安，和之前开始送玛秋修司有增加放出角色身高的数据不同倒是还在藏着 ...</blockquote>
+结尾变使徒了是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 19061#       发表于 2025-6-14 10:59
+
+<blockquote>灵魂收割机 发表于 2025-6-14 09:57
+有毛病吧，都要完结了还藏个人信息</blockquote>
+鬼知道卡拉现在怎么想的
+
+
+*****
+
+####  冷静先找时光机  
+##### 19062#       发表于 2025-6-14 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935568&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-14 07:05</a>
+
+KDA显示器嘛
+
+杜居然是0，不是还象征性的死了大约100来人
+
+喵安打完一炮头上数字得飙到多少</blockquote>
+这是毒杀数吧
+

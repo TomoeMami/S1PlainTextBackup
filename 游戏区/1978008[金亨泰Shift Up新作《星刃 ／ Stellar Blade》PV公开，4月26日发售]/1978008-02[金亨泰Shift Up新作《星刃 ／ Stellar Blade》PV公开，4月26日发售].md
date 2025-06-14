@@ -3980,3 +3980,14 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 
 开了虚拟内存后玩了一个小时没闪退了，真没想到是这么脑残的问题
 
+
+*****
+
+####  qixinno2  
+##### 2612#       发表于 2025-6-14 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935984&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-14 09:45</a>
+
+欧 羡慕  偷袭秒怪啊 还能回血</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我直接叮了移动速度和无限跳 舒服很多
+
