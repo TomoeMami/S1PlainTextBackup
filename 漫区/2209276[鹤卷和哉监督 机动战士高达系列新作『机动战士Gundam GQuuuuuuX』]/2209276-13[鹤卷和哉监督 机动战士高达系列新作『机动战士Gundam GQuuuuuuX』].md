@@ -15865,3 +15865,19 @@ gqux机魂说其实很有力的一点就是哈罗在gqux内可能被当成传声
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，如果哈罗是gqux的嘴替，然后天津律师说看到结局说笑出声，不会最后哈罗冒出来一句我是另一个世界驾驶白色高达的驾驶员，意识寄宿在这台白色高达里面，为了拯救某个丢人的家伙穿越过来吧
 
+
+*****
+
+####  岸浪白野  
+##### 19108#       发表于 2025-6-14 21:33
+
+“这个金发帅哥是谁啊”
+
+<img src="https://img.stage1st.com/forum/202506/14/213317s259unmn8az2gnm7.png" referrerpolicy="no-referrer">
+
+<strong>NUJZRVEZW@ZQD{JQTAF[S_L.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-14 21:33 上传
+
