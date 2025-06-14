@@ -4020,3 +4020,34 @@ Windows 成功诊断出虚拟内存不足的情况。以下程序使用了大部
 荒野救那个突然说话的机器人那里，有个箱子是不是必须要二段跳才能拿到啊？我推箱子到那个断梯下面，怎么看 ...</blockquote>
 那个梯子你站箱子上靠近了跳起来然后按冲刺就上去了。
 
+
+*****
+
+####  Asukalangley33  
+##### 2616#       发表于 2025-6-14 11:31
+
+第二次玩还是想吐槽
+二段跳放在十小时往后才解锁是不是完全意义不明的操作？
+
+前期除了限制几个隐藏点没有任何作用
+起不到银河城那类拿到新能力去新区域的效果，还让玩家很有挫败感，毕竟就差一点高硬是拿不到
+然后告诉你过几个小时随便就能拿
+很神秘
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  五块  
+##### 2617#       发表于 2025-6-14 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67936407&amp;ptid=1978008" target="_blank">Asukalangley33 发表于 2025-6-14 11:31</a>
+
+第二次玩还是想吐槽
+
+二段跳放在十小时往后才解锁是不是完全意义不明的操作？</blockquote>
+就是要你回头拉游戏时长，毕竟如果不搞这些多的探索要素的话，主线怕不是一会就打完了。
+
+一个动作游戏我打了十个小时所有boss都一次过还不如悬崖强，也是挺神奇的难度设定<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
