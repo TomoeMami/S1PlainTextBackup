@@ -4135,3 +4135,15 @@ PVP这个改动让平民更难上分了，这次还一堆核弹
 现在商店能换且还没有的机体是ez8，天鹅，牛，沙扎比。天鹅和牛的辅助功能都有下位替代，所以考虑在ez8和沙 ...</blockquote>
 按目前趋势，以后ex关卡都会有全开发/其他机的任务，所以为了打ex关卡换卡池ur没什么必要，纯功利的话就按照PVP需求挑，不然就选自己喜欢的吧
 
+
+*****
+
+####  马桶3  
+##### 1859#       发表于 2025-6-14 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67934524&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-6-13 22:00</a>
+现在商店能换且还没有的机体是ez8，天鹅，牛，沙扎比。天鹅和牛的辅助功能都有下位替代，所以考虑在ez8和沙 ...</blockquote>
+比起机体更要紧的其实是援护攻击两次的UR机师
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
