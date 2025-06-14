@@ -5129,3 +5129,28 @@ NIKKE那个兑换码要在哪儿拿 我不玩NIKKE</blockquote>
 
 不能随意传送让我想到星战第一部，但人家第一部被骂了第二部就能随意传送了，剑星还搁这点对点传送，第一个大地图还没有地图传送点也少做支线别提有多逆天了，看看第二部能不能优化吧。
 
+
+*****
+
+####  LrGsite  
+##### 2722#       发表于 2025-6-15 02:10
+
+<img src="https://img.stage1st.com/forum/202506/15/020933b6d9lh91rz9drh1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (463.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 02:09 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">伊芙2B这套还可以爆衣，就是这长靴爆不掉了，而且爆衣了之后是唯一一套带皮肤高光的，韩国人明明喜欢比较油腻的怎么就这套衣服有高光效果
+
+*****
+
+####  真红眼教授  
+##### 2723#       发表于 2025-6-15 02:11
+
+<blockquote>袄_偶滴小乔 发表于 2025-6-15 01:48
+只有主城和两个野外有地图，其他地方没有</blockquote>
+好的，那就没问题了
+
