@@ -4343,3 +4343,66 @@ cdkey咸鱼上一堆，我看都不一定卖的掉啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Asukalangley33  
+##### 2643#       发表于 2025-6-14 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937451&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 15:45</a>
+我到沙丘了，不能回之前的地图么。水都我有些东西没拿到
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+跟亚当说话就能去其他图
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 2644#       发表于 2025-6-14 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937499&amp;ptid=1978008" target="_blank">Asukalangley33 发表于 2025-6-14 15:56</a>
+跟亚当说话就能去其他图
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+亚当是谁，推主线会出来的NPC么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qixinno2  
+##### 2645#       发表于 2025-6-14 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937505&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 15:57</a>
+
+亚当是谁，推主线会出来的NPC么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明显是哪个开飞机的
+
+*****
+
+####  Asukalangley33  
+##### 2646#       发表于 2025-6-14 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937505&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-14 15:57</a>
+亚当是谁，推主线会出来的NPC么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+开飞机那个胡子男呀
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 2647#       发表于 2025-6-14 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67937563&amp;ptid=1978008" target="_blank">Asukalangley33 发表于 2025-6-14 16:08</a>
+开飞机那个胡子男呀</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">中文字幕他叫艾德姆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
