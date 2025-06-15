@@ -16944,3 +16944,11 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 走投无路时🍅也不知道在哪儿，就想跟修司一块儿逃
 第十集称自己为“迪亚波罗”，被紫老太婆灌输了有力量才有自由的价值观，回想起自己这一路以来的经历，会狠狠认同吧<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 19156#       发表于 2025-6-15 18:03
+
+说那么多side2也挺搞的，就只看正片，有人知道side2什么情况么，喵安自己知道自己那么想为side2报仇么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -2230,3 +2230,29 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 这样如何呢？因为梅洛伦的心愿是帮助姐姐所以代价是永远关在锁里，现在的kiss只是回应梅洛伦愿望继承了完整记忆的虚拟人。
 
+
+*****
+
+####  modedd  
+##### 1052#       发表于 2025-6-15 17:53
+
+ 本帖最后由 modedd 于 2025-6-15 17:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942611&amp;ptid=2208663" target="_blank">湖静欲成冰 发表于 2025-6-15 17:40</a>
+这样如何呢？因为梅洛伦的心愿是帮助姐姐所以代价是永远关在锁里，现在的kiss只是回应梅洛伦愿望继承了完整 ...</blockquote>
+？
+我有点跟不上你的思路bro…………<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  湖静欲成冰  
+##### 1053#       发表于 2025-6-15 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942681&amp;ptid=2208663" target="_blank">modedd 发表于 2025-6-15 17:53</a>
+
+？
+
+—— 来自 鹅球 v3.5.99</blockquote>
+这种展开不是很酷吗？<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">这样就可以把独角兽那一集出现的意象都用上了。
+
