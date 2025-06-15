@@ -16141,3 +16141,13 @@ gqux机魂说其实很有力的一点就是哈罗在gqux内可能被当成传声
 
 为什么一部日本动画，要根据二道子英文翻译和机翻中文去理解？
 
+
+*****
+
+####  Saber琪  
+##### 19122#       发表于 2025-6-15 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941184&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-15 12:23</a>
+年轻人的第一部高达有点看不懂了，这个绿胡子不是说要把基连和基西利亚一起干掉吗，所以他是站在哪一边的？ ...</blockquote>
+夏亚梦男你说站哪边<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
