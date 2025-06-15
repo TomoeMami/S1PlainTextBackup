@@ -2127,3 +2127,26 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 两害兽人间体一白一黑毛 看来白毛以后也是常驻颜色了
 
+
+*****
+
+####  石狮鬼  
+##### 1042#       发表于 2025-6-15 15:42
+
+<img src="https://img.stage1st.com/forum/202506/15/154159thgroh737uqmzzrw.png" referrerpolicy="no-referrer">
+
+<strong>b749ed24e8cd22ce1745c0aaee58c18d.png</strong> (120.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 15:41 上传
+
+变身bank最喜欢还是这一张，另外感觉整个变身bank里梅洛纶的动作设计比噗哩伦感觉顺眼很多
+
+*****
+
+####  华发夜眼[CN]  
+##### 1043#       发表于 2025-6-15 15:43
+
+小友看这一话结局不会吓哭吗
+
