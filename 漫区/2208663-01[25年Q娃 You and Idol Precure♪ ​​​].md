@@ -2331,3 +2331,11 @@ M08.Awakening Harmony
 
 说起来，这集如果不是乌塔酱偶然拍到了Purirun的照片追着Purirun跑，甚至可能会出现三人组完全不知道记者被变怪的事情就已经被Purirun和Meroron解决的情况吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1059#       发表于 2025-6-15 21:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">田中应该是知道什么的，下集他大概会有一些动作吧？
+
