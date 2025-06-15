@@ -3592,3 +3592,26 @@ Vol.1には1話～7話を収録💿
 
 X终于正式露脸了 不过这能力有点bug啊
 
+
+*****
+
+####  budong  
+##### 305#       发表于 2025-6-15 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67930987&amp;ptid=2125794" target="_blank">rushsong 发表于 2025-6-13 12:28</a>
+日本年轻人本来弱智就居多，毕竟发达国家当久了</blockquote>
+都是这样，幸运青那几集B站评论区还有不少人骂为什么不用中文歌而用英语歌呢
+
+*****
+
+####  budong  
+##### 306#       发表于 2025-6-15 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67914853&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-6-10 19:56</a>
+对一部冻鳗上纲上线的保守太君:
+
+"凸变英雄x中塞满了中文和中国文化。
+
+我认为在早上播出这部动画片是为了向 ...</blockquote>
+都是这样，幸运青那几集B站评论区还有不少人骂为什么不用中文歌而用英语歌呢
+
