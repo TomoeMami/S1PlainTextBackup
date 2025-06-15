@@ -7,3 +7,16 @@
 传言：低配599欧，高配899欧
 鉴定为，微软真觉得xbox是一个有高价值的品牌
 
+
+*****
+
+####  泰坦失足  
+##### 98#         楼主| 发表于 2025-6-15 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942152&amp;ptid=2253298" target="_blank">Herreimu 发表于 2025-6-15 15:53</a>
+
+传言：低配599欧，高配899欧
+
+鉴定为，微软真觉得xbox是一个有高价值的品牌</blockquote>
+Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版, 只能祝它成功了
+
