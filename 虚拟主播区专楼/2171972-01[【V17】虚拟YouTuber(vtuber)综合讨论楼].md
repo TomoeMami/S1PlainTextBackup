@@ -890,3 +890,13 @@ Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 真能转推虹女吗？我想要阿望的黏土人都想疯了，最近还入坑蓓丽，姐妹们转推虹女能关注这两个人吗？<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">求求关注点上去吧。
 
+
+*****
+
+####  fshzx  
+##### 1267#       发表于 2025-6-15 16:41
+
+不求别的，能不能把叶频道第七日有关绑rrm 的切片给举报掉
+这人精得很，切片就切到fanta 蹲下来看rrm 尸体那段，但是fanta 用心脏复苏动作模拟**和摸下体的，知道争议大倒是没敢没切进去。
+又当又立的一直在挑衅观众，拳头硬了
+

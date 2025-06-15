@@ -2170,3 +2170,11 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 所以说梅洛伦到底付出了什么？怎么感觉没变啊？倒是噗哩伦和预计的一样最重要已经变成梅洛伦了这下扭曲的材料已经够了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1046#       发表于 2025-6-15 16:42
+
+纯个人猜想的话，Meroron付出的代价就是对Purirun的沉重感情，由于她有完整的记忆所以为了不让Purirun以及歌她们察觉真相所以刻意维持了跟过去一致的言行以及避免和歌她们见面。
+
