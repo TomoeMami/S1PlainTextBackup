@@ -6139,3 +6139,11 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 拍摄任务可以等到通关前再去做吗</blockquote>
 主城的不行，其他可以
 
+
+*****
+
+####  h122h  
+##### 2819#       发表于 2025-6-16 00:08
+
+钓鱼mod出了，[https://www.nexusmods.com/stellarblade/mods/320](https://www.nexusmods.com/stellarblade/mods/320)。系统选项里也有设置可以稍微简化钓鱼流程。
+
