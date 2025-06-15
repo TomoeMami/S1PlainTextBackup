@@ -1676,3 +1676,20 @@ SOLO了几次，感觉抓后摇出硬直对两个多人BOSS基本无效，不管
 
 服务器是挂了吗，挂代理都进不去
 
+
+*****
+
+####  inthecity  
+##### 282#       发表于 2025-6-15 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67929126&amp;ptid=2173536" target="_blank">放大镜 发表于 2025-6-13 07:33</a>
+
+SOLO了几次，感觉抓后摇出硬直对两个多人BOSS基本无效，不管抓哪个都是踢铁板
+
+也不知道是因为这俩没做完 ...</blockquote>
+这两者都不是,洛奇英雄传网游版本的boss基本上不会有硬直,一般需要用长矛戳弱点/场景道具/压制类大招才能对boss形成控制,抓后摇能出硬直是反抗命运才有的
+
+很多传统职业的玩法都是空挥轻击垫刀+走位,等boss一套攻击打完利用boss攻击间隔用重击打输出,看boss抬手防御/闪避
+
+所以进游戏第一件事就是把锁定方式改为仅锁定视角<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
