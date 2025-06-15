@@ -5275,3 +5275,11 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  qixinno2  
+##### 2736#       发表于 2025-6-15 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这几个拍照任务是真的傻逼 整吐了 钓鱼 罐子还有各种文件资料放弃了
+

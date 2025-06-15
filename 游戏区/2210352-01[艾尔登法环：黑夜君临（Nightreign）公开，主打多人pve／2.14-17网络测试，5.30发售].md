@@ -9071,3 +9071,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jacket  
+##### 888#       发表于 2025-6-15 10:27
+
+除了全人物赢一局以外还剩古老监牢和恶兆事件两个成就，不知道去哪找。
+
