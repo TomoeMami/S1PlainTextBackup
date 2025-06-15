@@ -17066,3 +17066,65 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  ryanghj  
+##### 19167#       发表于 2025-6-15 21:45
+
+喵安本来是两个人都很看重的，结果被玛秋一盆冷水泼下来意识到玛秋其实并不看重自己甚至讨厌自己之后她就放弃玛秋了，于是加倍了对修司的感情
+
+这个其实很明显吧
+
+<img src="https://img.stage1st.com/forum/202506/15/214432dkjbe8accaxilqth.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (213.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 21:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/214503o7oppgtxxr9oh0f1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 21:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/214525kjvzcizqgjicvqoi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 21:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/214536dz3f6qbkm26plk6k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 21:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/214542kugmbmmgdlml2a2g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 21:45 上传
+
+
+*****
+
+####  赤黑的假面  
+##### 19168#       发表于 2025-6-15 21:51
+
+<blockquote>Toby_dak 发表于 2025-6-15 21:40
+好奇对于TOP2第5集7号不辞而别和第6集19号打7号的剧情，当时的评论跟现在的评论有什么分别。
+
+----发送自 S ...</blockquote>
+这个就得翻当时买ova的人的评论了
+
