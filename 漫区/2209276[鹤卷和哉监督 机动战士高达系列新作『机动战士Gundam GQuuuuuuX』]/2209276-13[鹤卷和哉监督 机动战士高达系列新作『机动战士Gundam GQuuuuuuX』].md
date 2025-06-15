@@ -16151,3 +16151,153 @@ gqux机魂说其实很有力的一点就是哈罗在gqux内可能被当成传声
 年轻人的第一部高达有点看不懂了，这个绿胡子不是说要把基连和基西利亚一起干掉吗，所以他是站在哪一边的？ ...</blockquote>
 夏亚梦男你说站哪边<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  9β  
+##### 19123#       发表于 2025-6-15 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67938312&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-14 19:01</a>
+求求你们给喵安留条活路吧。
+
+虽然我不是喵安推，但按这种设定，她死的可能性越来越高了好吧 ...</blockquote>
+呜呜，你不要这么说，喵安一定能活下来的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  9β  
+##### 19124#       发表于 2025-6-15 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941184&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-15 12:23</a>
+年轻人的第一部高达有点看不懂了，这个绿胡子不是说要把基连和基西利亚一起干掉吗，所以他是站在哪一边的？ ...</blockquote>
+夏亚一边的，夏亚本名卡斯巴尔戴肯，他爹是吉翁戴肯，基连和基西莉亚是他爹手下的军头造反窃国
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Piano-Forest  
+##### 19125#         楼主| 发表于 2025-6-15 13:07
+
+<img src="https://p.sda1.dev/24/12209b7c9ad798e7dcf5770ae0fbcbe9/20250613_131842.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/adbc91445c480c90a73e1d3c6219ff15/20250613_131836.jpg" referrerpolicy="no-referrer">
+
+HG 1/144 GFreD 2025年8月发售
+[https://bandai-hobby.net/item/01_5961/](https://bandai-hobby.net/item/01_5961/)
+<img src="https://p.sda1.dev/24/0bcc1b8f922803f77f7e2e6e028d8a50/20250613_131634.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/421ef2dd9aa87063ffed93fdc33a9f9a/79c11837gy1i2bazoeuqxj20xc0iyqc9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/7f8f1bcb450eeeaf05ed78176e6dee32/q74XhFhugGlOo9Za.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/55ac9e8e241a7035f09d528940b0d8a5/XujrM89U2zYjz53X.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1527053a511f9d632e77a7b72d6aa438/Vbh6bxlX6YYpGEFH.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/minitype00/status/1932472515722621143](https://x.com/minitype00/status/1932472515722621143)
+
+✨機動戦士ガンダム GQuuuuuuX
+
+第10話ご視聴いただきありがとうございます!
+
+ギャンとキケロガのモデリングで参加しております！
+
+よろしくお願いいたします😊
+<img src="https://p.sda1.dev/24/51b245ee209fa8f2ccd5940ad80157de/20250613_131406.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 19126#         楼主| 发表于 2025-6-15 13:07
+
+[https://x.com/YY_shibata/status/1932466598423740455](https://x.com/YY_shibata/status/1932466598423740455)
+
+第10話ご視聴いただきありがとうございます！
+
+第二原画、動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/b01df3e59edda453aad1f437ce78013a/20250613_131742.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/fc43f5bd86ce3eab0f04fa62c1460466/20250613_131741.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Coppurin/status/1932467320611631514](https://x.com/Coppurin/status/1932467320611631514)
+
+『機動戦士Gundam GQuuuuuuX』10話演出を担当いたしました。
+
+サンライズ3stの皆さま、カラーの皆さま、各スタッフの皆さま、本当にありがとうございました。
+
+配信でもご覧になれますので是非よろしくお願いします！
+<img src="https://p.sda1.dev/24/bd2d33f847155a2660566ee14fdf09a7/20250613_131732.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/egocoroking/status/1932468093877719187](https://x.com/egocoroking/status/1932468093877719187)
+
+10話、ご視聴ありがとうございました。
+
+残り2話も引き続きご視聴宜しくお願いします。
+
+いつかニャアンも描きたい…
+
+※イラスト許可済み
+<img src="https://p.sda1.dev/24/e055e4ff0558c52fd2eef91ef16a2cca/20250613_131726.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/53mushi2525/status/1932467343583756762](https://x.com/53mushi2525/status/1932467343583756762)
+
+第10話でちょっぴり動画しました
+<img src="https://p.sda1.dev/24/50bbb7b4d11511b736d631da180f8dd1/20250613_131322.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/show_den_kan/status/1932469805313073570](https://x.com/show_den_kan/status/1932469805313073570)
+
+10話お疲れ様でした
+<img src="https://p.sda1.dev/24/fce13f5474f90151e9663b3fceaafa5c/20250613_131438.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/adityar51253736/status/1932469022349721802](https://x.com/adityar51253736/status/1932469022349721802)
+
+I participated in today's Ep 10 of Gundam GQuuuuuuX as a Key Animator.
+
+本日放送のガンダム GQuuuuuuX  #10『イオマグヌッソ封鎖』原画で参加させて頂きました！
+
+とても楽しかったです ! !
+
+ご視聴ありがとうございました！！
+<img src="https://p.sda1.dev/24/3c8e18ffb3bb4fc743913821b7739098/20250613_131313.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_vicke_33/status/1932655558701822177](https://x.com/_vicke_33/status/1932655558701822177)
+
+昨夜放送されました
+
+機動戦士ガンダムジークアクス
+
+第10話「イオマグヌッソ封鎖」
+
+絵コンテで参加させて貰いましたm(__)m
+
+関わったスタッフの皆様お疲れ様でしたm(__)m
+
+見て下さった皆様有難うございますm(__)m
+
+来週もお楽しみにm(__)m(^o^)/✨
+<img src="https://p.sda1.dev/24/676b8f5035969725ac49ceb4dc7f69ee/20250613_131646.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_take_oekaki/status/1932448733620486595](https://x.com/_take_oekaki/status/1932448733620486595)
+
+🏃‍♀️
+<img src="https://p.sda1.dev/24/8e372850ddfc69a098ebcf14df2a312f/20250613_131211.jpg" referrerpolicy="no-referrer">
+
+✧₊本日シングル発売！
+
+　　　お祝いイラストを公開🥇₊✧
+
+TVアニメ『#メダリスト』
+
+第1期OP主題歌を含む #米津玄師 さんの
+
+両A面シングル
+
+「Plazma / BOW AND ARROW」が本日発売！
+
+リリースをお祝いし、つるまいかだ先生から
+
+超豪華なイラストが到着！
+
+ぜひCDをお買い求めくださいね✨
+<img src="https://p.sda1.dev/24/19bc5b373c30196bc04db86d9618d38a/20250613_131615.jpg" referrerpolicy="no-referrer">
+
