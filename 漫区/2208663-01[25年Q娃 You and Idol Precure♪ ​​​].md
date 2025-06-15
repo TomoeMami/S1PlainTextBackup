@@ -2150,3 +2150,23 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 小友看这一话结局不会吓哭吗
 
+
+*****
+
+####  renkan119  
+##### 1044#       发表于 2025-6-15 16:24
+
+噗哩伦现在性格差的快成两个角色了  以后取回记忆要怎么搞啊 变回原来那样？ 还是取个中间值啊
+
+
+*****
+
+####  leleq  
+##### 1045#       发表于 2025-6-15 16:33
+
+水回……虽然是很重要的回数但依旧大量灌水。这集就是为了最后一幕做的，但作画不错，大家也可爱算了。
+
+目前看来就是把1-2集的加人回加水灌到一个月以上保持热度<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+所以说梅洛伦到底付出了什么？怎么感觉没变啊？倒是噗哩伦和预计的一样最重要已经变成梅洛伦了这下扭曲的材料已经够了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
