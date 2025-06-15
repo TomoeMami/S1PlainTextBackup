@@ -16105,3 +16105,39 @@ gqux机魂说其实很有力的一点就是哈罗在gqux内可能被当成传声
 
 绿叔叔应该说的是类似太阳黑子还是耀斑爆发那种情况，电子元件集体宕机
 
+
+*****
+
+####  嘉术2015  
+##### 19120#       发表于 2025-6-15 12:23
+
+ 本帖最后由 嘉术2015 于 2025-6-15 12:25 编辑 
+
+年轻人的第一部高达有点看不懂了，这个绿胡子不是说要把基连和基西利亚一起干掉吗，所以他是站在哪一边的？
+
+
+*****
+
+####  Toby_dak  
+##### 19121#       发表于 2025-6-15 12:24
+
+<img src="https://img.stage1st.com/forum/202506/15/132218dfmdysupuuiqid0d.jpg" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E10.Yomagntho.Blockade.1080p.AMZN.WEB-DL.DUAL.DD.jpg</strong> (385.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 12:22 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/132205ubwsl3bdaw9becw7.jpg" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E10.Yomagntho.Blockade.1080p.AMZN.WEB-DL.DUAL.DD.jpg</strong> (340.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 12:22 上传
+
+辐射超过设计冗余。不单导航系统，连飞控也挂了。
+
+为什么一部日本动画，要根据二道子英文翻译和机翻中文去理解？
+
