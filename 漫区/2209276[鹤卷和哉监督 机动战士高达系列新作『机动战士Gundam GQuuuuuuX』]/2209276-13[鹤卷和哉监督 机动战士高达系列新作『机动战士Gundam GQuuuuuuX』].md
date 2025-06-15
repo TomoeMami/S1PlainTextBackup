@@ -16409,3 +16409,20 @@ TVアニメ『#メダリスト』
 一边希望她不要太惨，一边希望她能够为自己犯的罪孽背负代价， ...</blockquote>
 杀的都是基翁战犯，有什么罪
 
+
+*****
+
+####  shinoverse  
+##### 19131#       发表于 2025-6-15 13:58
+
+虚拟人物不怕死亡，甚至不怕风评差，怕的只有籍籍无名没人在乎
+
+*****
+
+####  Saber琪  
+##### 19132#       发表于 2025-6-15 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941635&amp;ptid=2209276" target="_blank">silvia 发表于 2025-6-15 13:53</a>
+杀的都是基翁战犯，有什么罪</blockquote>
+不论如何，她对人命已经漠视到一种不正常的地步了，这显然是不对的<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+

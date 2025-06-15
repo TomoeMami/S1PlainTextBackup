@@ -51,3 +51,13 @@
 
 不过绫香的派生枪差评，明明是初期老角色给的派生却不如其他初期女演员。
 
+
+*****
+
+####  冰风血羽  
+##### 1486#       发表于 2025-6-15 14:06
+
+挖矿攒了一次十连终于拿下阿唯<img src="https://static.stage1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
