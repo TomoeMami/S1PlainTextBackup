@@ -16371,3 +16371,20 @@ TVアニメ『#メダリスト』
 [https://x.com/matahe_i/status/1932318332998590464](https://x.com/matahe_i/status/1932318332998590464)
 <img src="https://p.sda1.dev/24/822458cedec9047e00abd6341216a62d/1000147873.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 19128#       发表于 2025-6-15 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941184&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-15 12:23</a>
+
+年轻人的第一部高达有点看不懂了，这个绿胡子不是说要把基连和基西利亚一起干掉吗，所以他是站在哪一边的？ ...</blockquote>
+吉翁内部分成三派。
+
+在0079开始以前，夏亚的爹就被扎比家干掉了，剩下的余党被称为戴肯派。
+
+但这一派比较散，没有统一的指导者。
+
+扎比家名义上尊德金公王为元首，内部又分为基连和基西莉亚两派。
+
