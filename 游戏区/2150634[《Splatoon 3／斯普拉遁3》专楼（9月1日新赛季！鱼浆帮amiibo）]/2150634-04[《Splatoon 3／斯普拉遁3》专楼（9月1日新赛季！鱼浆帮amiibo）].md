@@ -855,3 +855,13 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">更新几日后能下判断谁是新的版本之子了吗
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5734#       发表于 2025-6-15 18:33
+
+我服了三连干潮是人打的吗
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
