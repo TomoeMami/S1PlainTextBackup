@@ -2021,3 +2021,66 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 好胡闹的一集，所以meroron的代价究竟是什么?
 
+
+*****
+
+####  jaewoongh_  
+##### 1034#       发表于 2025-6-15 08:19
+
+<img src="https://img.stage1st.com/forum/202506/15/081658djh4zjnrzokylcss.jpg" referrerpolicy="no-referrer">
+
+<strong>GtcVFb4bEAAG0XY.jpg</strong> (540.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 08:16 上传
+
+[https://x.com/tete__a/status/1934037753731457384](https://x.com/tete__a/status/1934037753731457384)
+
+<img src="https://img.stage1st.com/forum/202506/15/081731fyf7tuy7t33cycec.jpg" referrerpolicy="no-referrer">
+
+<strong>GtcWSQHa8AAA2Ie.jpg</strong> (305.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 08:17 上传
+
+[https://x.com/aki_precure/status/1934039086974837044](https://x.com/aki_precure/status/1934039086974837044)
+
+<img src="https://img.stage1st.com/forum/202506/15/081837t8kwvyvqf0qvs40a.jpg" referrerpolicy="no-referrer">
+
+<strong>GtcVOqubgAAdkOb.jpg</strong> (551.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 08:18 上传
+
+[https://x.com/kyoutsuugengo/status/1934038028126921188](https://x.com/kyoutsuugengo/status/1934038028126921188)
+
+*****
+
+####  himfsz  
+##### 1035#       发表于 2025-6-15 08:19
+
+这个双人变身互动不太多啊
+
+*****
+
+####  我吃诗人  
+##### 1036#       发表于 2025-6-15 08:21
+
+意外的还行，uta比上集正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有些活又稍显没活，写回第一集去了
+
+剧情还是一如既往的迷
+
+哎盗摄真有用吧家人们<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 1037#       发表于 2025-6-15 08:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">果然还是不喜欢记者角色……也算是把追人的动机讲得合理了一些，以及今天这演出脚本真的是有点莫名其妙啊？新人有点没把握住，而且加藤阳一这到底在搞什么飞机呢
+
