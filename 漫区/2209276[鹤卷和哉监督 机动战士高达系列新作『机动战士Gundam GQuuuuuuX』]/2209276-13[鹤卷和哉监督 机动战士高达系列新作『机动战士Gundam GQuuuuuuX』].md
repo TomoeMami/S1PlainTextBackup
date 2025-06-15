@@ -17128,3 +17128,14 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 ----发送自 S ...</blockquote>
 这个就得翻当时买ova的人的评论了
 
+
+*****
+
+####  Toby_dak  
+##### 19169#       发表于 2025-6-15 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943941&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-6-15 22:51</a>
+
+这个就得翻当时买ova的人的评论了</blockquote>
+当时早就有一大堆字幕组了，我记得当时就是看汉化字幕版的。
+
