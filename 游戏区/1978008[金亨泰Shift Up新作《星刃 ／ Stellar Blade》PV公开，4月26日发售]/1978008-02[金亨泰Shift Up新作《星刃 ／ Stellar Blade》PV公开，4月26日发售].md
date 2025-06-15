@@ -5283,3 +5283,24 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这几个拍照任务是真的傻逼 整吐了 钓鱼 罐子还有各种文件资料放弃了
 
+
+*****
+
+####  ladiesman802  
+##### 2737#       发表于 2025-6-15 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940075&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-15 05:04</a>
+
+大沙漠马桶通完了进打枪关，右上角神秘百合槽满了很久了，流程还剩多少</blockquote>
+上完轨道电梯就完结了，好感度满了会多一个关卡
+
+
+*****
+
+####  五块  
+##### 2738#       发表于 2025-6-15 10:53
+
+<blockquote>frankCC 发表于 2025-6-15 07:44
+只能说卡赞可惜了，甚至卡赞的中配都要好一点，然而努力比选择重要，各种因素叠加下，突出一个冰火两重天。 ...</blockquote>
+398这定价就注定是给小众的玩具了。
+
