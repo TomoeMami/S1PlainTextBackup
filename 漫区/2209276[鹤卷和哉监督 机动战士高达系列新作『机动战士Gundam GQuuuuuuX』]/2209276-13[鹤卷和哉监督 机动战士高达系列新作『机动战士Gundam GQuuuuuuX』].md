@@ -17212,3 +17212,25 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 拉拉发起床气把什么不得了的东西叫过来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1694295955  
+##### 19176#       发表于 2025-6-15 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944319&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-6-15 22:42</a>
+
+紫婆能活过这周吗</blockquote>
+不好说，按照玩梗的思路来的话这一集脱出的夏亚搞不好马上要去穿宇宙服
+
+后面就是给紫婆脑袋开光了
+
+
+*****
+
+####  Piano-Forest  
+##### 19177#         楼主| 发表于 2025-6-15 23:13
+
+<img src="https://p.sda1.dev/24/332255ccf5aa4c885e6af19015957f89/1000148072.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/381ef855614ab920006971300a453d83/1000148075.jpg" referrerpolicy="no-referrer">
+
