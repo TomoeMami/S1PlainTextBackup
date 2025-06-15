@@ -838,3 +838,12 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 一代对战图大小其实正合适，二代新图有点太大了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 5732#       发表于 2025-6-15 13:52
+
+65场下来一块金鳞片都没见着，太棒啦研究所
+还有这逼图三连退潮就是纯纯的吃屎体验
+
