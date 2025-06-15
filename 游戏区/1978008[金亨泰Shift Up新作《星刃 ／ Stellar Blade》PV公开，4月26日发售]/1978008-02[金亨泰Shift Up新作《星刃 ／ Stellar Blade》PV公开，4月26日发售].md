@@ -5324,3 +5324,27 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 只能说卡赞可惜了，甚至卡赞的中配都要好一点，然而努力比选择重要，各种因素叠加下，突出一个冰火两重天。 ...</blockquote>
 卡赞真的好玩得多<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 2741#       发表于 2025-6-15 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940923&amp;ptid=1978008" target="_blank">桥洞底下盖小被 发表于 2025-6-15 11:36</a>
+卡赞真的好玩得多</blockquote>
+你给我补差价那我也愿意玩卡赞啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  darkangel0224  
+##### 2742#       发表于 2025-6-15 12:06
+
+<blockquote>naclken. 发表于 2025-6-14 21:12
+按照惯例把景深和动态模糊关了，但是打boss依然眼花
+
+镜头晃动是不是开低一点比较好啊 ...</blockquote>
+镜头晃动我都开到3或者0。默认那个10只适合给别人看片欣赏，玩起来太恶心
+
