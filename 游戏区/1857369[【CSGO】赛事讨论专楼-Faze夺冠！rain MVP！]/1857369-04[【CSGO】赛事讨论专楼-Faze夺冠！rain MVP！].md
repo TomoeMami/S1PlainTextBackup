@@ -284,3 +284,14 @@ StarLadder公告原文如下：
 
 3代top1都进八强了
 
+
+*****
+
+####  Mimic  
+##### 4747#       发表于 2025-6-15 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67912163&amp;ptid=1857369" target="_blank">icecry 发表于 2025-6-10 11:24</a>
+
+接下去该faze老头队滚了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
