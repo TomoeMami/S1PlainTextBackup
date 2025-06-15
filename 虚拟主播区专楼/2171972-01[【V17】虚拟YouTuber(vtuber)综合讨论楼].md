@@ -951,3 +951,11 @@ lize这也太倒霉了<img src="https://static.stage1st.com/image/smiley/face201
 阿凛又沉底了……
 皇女还是选了赫国，泪目
 
+
+*****
+
+####  Ketestrait  
+##### 1274#       发表于 2025-6-15 19:23
+
+1年和2年还允许进行练习赛
+

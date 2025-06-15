@@ -5711,3 +5711,16 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 问下收集的这些  我知道罐头和拍照啥的有衣服拿   其他海报啊笔记记忆棒啥的 有什么奖励吗  没有的话懒得看 ...</blockquote>
 一部分海报和记忆棒影响百合那个条，但是一般来讲做任务就能溢出所以问题不大
 
+
+*****
+
+####  半年  
+##### 2778#       发表于 2025-6-15 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942895&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-6-15 18:40</a>
+
+B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这俩连段4HIT除了YXXY的最后一下外全部可以随时 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看初始脊椎和组件+二级以上增加伤害都巴不得打三四段2333，但是长连段硬直高，打Y的时候大硬直遇上闪光什么的就特别寄。
+
+猛攻起手都是YX+派生还好，袭扰的派生其实有两条，一个一三级的起手XY+派生，一个二四的起手XX，分开比较好记
+
