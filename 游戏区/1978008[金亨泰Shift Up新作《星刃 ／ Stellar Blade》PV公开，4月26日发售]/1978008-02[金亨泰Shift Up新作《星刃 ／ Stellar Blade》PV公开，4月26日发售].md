@@ -5757,3 +5757,13 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  水边井  
+##### 2782#       发表于 2025-6-15 19:39
+
+感觉这游戏学爆发前后是两种难度，废土金刚打了半个小时，迅驰初见过
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
