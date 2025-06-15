@@ -5767,3 +5767,27 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alucardcz  
+##### 2783#       发表于 2025-6-15 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943154&amp;ptid=1978008" target="_blank">水边井 发表于 2025-6-15 19:39</a>
+
+感觉这游戏学爆发前后是两种难度，废土金刚打了半个小时，迅驰初见过
+
+—— 来自 HUAWEI NOH-AL10, Android ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">感觉支线boss比流程的强的多
+
+*****
+
+####  水边井  
+##### 2784#       发表于 2025-6-15 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943204&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-15 19:51</a>
+感觉支线boss比流程的强的多</blockquote>
+支线才是完全体，主线金刚没有那招最难躲的二连扑，我死了这么多次就是因为躲不好这招
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
