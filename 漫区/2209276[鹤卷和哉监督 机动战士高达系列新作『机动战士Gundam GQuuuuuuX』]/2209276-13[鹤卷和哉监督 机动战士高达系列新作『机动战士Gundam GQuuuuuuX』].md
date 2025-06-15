@@ -16447,3 +16447,26 @@ TVアニメ『#メダリスト』
 杀的都是基翁战犯，有什么罪</blockquote>
 下一个目标就是地球<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 19135#       发表于 2025-6-15 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941726&amp;ptid=2209276" target="_blank">Sabbah 发表于 2025-6-15 14:18</a>
+没强化人背景背书的后果，喵安进鸡窝一切行为车个强化人背景卡就是大家熟悉的流程。
+
+但换句话说要和强化人 ...</blockquote>
+废案没删干净的后果……<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 19136#       发表于 2025-6-15 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941659&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-15 13:59</a>
+不论如何，她对人命已经漠视到一种不正常的地步了，这显然是不对的</blockquote>
+无语，你这是典型的番茄思维<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">道德是番茄这种有教养的人考虑的事，side2吃鸡冠军宇宙难民没有国没有家的人收钱办事不是很正常
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
