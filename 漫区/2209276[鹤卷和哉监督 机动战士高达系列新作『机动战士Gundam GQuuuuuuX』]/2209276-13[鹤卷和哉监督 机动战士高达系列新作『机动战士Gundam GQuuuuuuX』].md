@@ -17199,3 +17199,16 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 其实到这里为止，好姐妹之间谈不上什么深仇大恨，倒是现在可能会因为拉拉决裂（什么鸭骡复刻）
 
+
+*****
+
+####  kcalb  
+##### 19175#       发表于 2025-6-15 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944319&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-6-15 22:42</a>
+
+紫婆能活过这周吗</blockquote>
+活不过，最终BOSS一定不会是台面上的原作恶役再登用，这是从新奥新假面过来的直觉
+
+拉拉发起床气把什么不得了的东西叫过来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
