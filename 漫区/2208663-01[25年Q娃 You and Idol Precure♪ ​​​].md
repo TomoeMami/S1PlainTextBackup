@@ -2084,3 +2084,15 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">果然还是不喜欢记者角色……也算是把追人的动机讲得合理了一些，以及今天这演出脚本真的是有点莫名其妙啊？新人有点没把握住，而且加藤阳一这到底在搞什么飞机呢
 
+
+*****
+
+####  pokemon最爱  
+##### 1038#       发表于 2025-6-15 09:34
+
+偶Q这队一队傻孩子没救了，开始找人找了一会儿才后知后觉人家可能也是变身的不能暴露变身前的本体可还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这反应速度也太慢了点（
+
+初始三人组除了开头追人是上周变身没解除外这集就没再变身了，这情况好像还挺少见的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两个妖精人间体形象还行，可惜和Q娃态一个问题，就是完全无法让人觉得跟妖精态是同一个人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
