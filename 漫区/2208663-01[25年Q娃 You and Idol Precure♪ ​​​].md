@@ -2256,3 +2256,29 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 —— 来自 鹅球 v3.5.99</blockquote>
 这种展开不是很酷吗？<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">这样就可以把独角兽那一集出现的意象都用上了。
 
+
+*****
+
+####  粉儿alice  
+##### 1054#       发表于 2025-6-15 18:37
+
+<blockquote>M06.なかよしJ♡YFUL
+
+　歌：プリルン(CV：南條愛乃) ＆メロロン(CV：花井美春)　作詞：六ツ見純代　作曲・編曲：EFFY
+
+M07.We are！You ＆ IDOL PRECURE♪
+
+　歌：キュアアイドル(CV：松岡美里)&amp;キュアウインク(CV：髙橋ミナミ)&amp;キュアキュンキュン(CV：高森奈津美)&amp;キュアズキューン(CV：南條愛乃)&amp;キュアキッス(CV：花井美春)　
+
+　作詞：こだまさおり　作曲・編曲：馬瀬みさき
+
+M08.Awakening Harmony
+
+　歌：キュアズキューン(CV：南條愛乃)＆キュアキッス(CV：花井美春)
+
+　作詞：こだまさおり　作曲・編曲：馬瀬みさき</blockquote>
+
+果然南条和花井没有单人的solo了呗 今年配置和拥抱一样3+2 角色歌配置也一样 当年没有让大田村唱solo 这次不让南条唱solo
+
+这就是现在Marvelous对q娃的态度 都偶像q娃了 歌是少得可怜的 作曲是请不起的 cd和bd卖得贱贵的 特典是买椟还珠的 资源是给男舞台剧的<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
