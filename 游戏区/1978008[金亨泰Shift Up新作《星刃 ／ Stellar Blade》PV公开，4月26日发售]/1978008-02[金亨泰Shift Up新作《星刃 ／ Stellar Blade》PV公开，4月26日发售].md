@@ -6147,3 +6147,45 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 钓鱼mod出了，[https://www.nexusmods.com/stellarblade/mods/320](https://www.nexusmods.com/stellarblade/mods/320)。系统选项里也有设置可以稍微简化钓鱼流程。
 
+
+*****
+
+####  夜雨夜雨夜雨  
+##### 2820#       发表于 2025-6-16 00:31
+
+ 本帖最后由 夜雨夜雨夜雨 于 2025-6-16 00:33 编辑 
+
+今天终于做完背刺那个支线了~
+
+<img src="https://img.stage1st.com/forum/202506/16/003307e8yg9nr9maorjroc.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250613_22433000000.png</strong> (3.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 00:33 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/003034b0lwznq01peupveq.jpg" referrerpolicy="no-referrer">
+
+<strong>20250615210251_1.jpg</strong> (232.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/003034qosccwego0qggfyo.jpg" referrerpolicy="no-referrer">
+
+<strong>20250615210520_1.jpg</strong> (180.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/003034ljrxo5eux3sxa3ue.jpg" referrerpolicy="no-referrer">
+
+<strong>20250615212353_1.jpg</strong> (409.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 00:30 上传
+
