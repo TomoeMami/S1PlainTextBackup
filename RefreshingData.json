@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 19160,
+    "totalreply": 19161,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1749984626,
+    "lastedit": 1749985214,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 151976,
+    "totalreply": 151983,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1749984850,
+    "lastedit": 1749985448,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13073,7 +13073,7 @@
     "newtitle": "[噬血代码2公开，2026年发售]",
     "lastedit": 1749726017,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2253077": {
@@ -13194,10 +13194,10 @@
     "update": false
   },
   "2249191": {
-    "totalreply": 172,
+    "totalreply": 173,
     "title": "[推荐 免费放置类页游《银河奶牛放置》网页／Steam双端 官方中文已上线]",
     "newtitle": "[推荐 免费放置类页游《银河奶牛放置》网页／Steam双端 官方中文已上线]",
-    "lastedit": 1749982333,
+    "lastedit": 1749985573,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13680,10 +13680,10 @@
     "update": false
   },
   "2252942": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[2025年6到10月股票帖]",
     "newtitle": "[2025年6到10月股票帖]",
-    "lastedit": 1749809537,
+    "lastedit": 1749985214,
     "category": "外野",
     "active": true,
     "update": false
@@ -14535,10 +14535,10 @@
     "update": false
   },
   "2253702": {
-    "totalreply": 2654,
+    "totalreply": 2662,
     "title": "[以色列空袭伊朗, 中东紧张局势升级]",
     "newtitle": "[以色列空袭伊朗, 中东紧张局势升级]",
-    "lastedit": 1749984852,
+    "lastedit": 1749985573,
     "category": "外野",
     "active": true,
     "update": false
@@ -14733,10 +14733,10 @@
     "update": false
   },
   "2253760": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[为什么索尼总喜欢做一些阴湿老鼠的行为？]",
     "newtitle": "[为什么索尼总喜欢做一些阴湿老鼠的行为？]",
-    "lastedit": 1749984626,
+    "lastedit": 1749985573,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14751,10 +14751,10 @@
     "update": false
   },
   "2253759": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[大家身边对炒股的态度是咋样的，有到谈股色变的程度么]",
     "newtitle": "[大家身边对炒股的态度是咋样的，有到谈股色变的程度么]",
-    "lastedit": 1749977650,
+    "lastedit": 1749985214,
     "category": "外野",
     "active": true,
     "update": false
@@ -15026,6 +15026,15 @@
     "newtitle": "[汉堡王怎么就干不过金拱门呢]",
     "lastedit": 1749984852,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2253212": {
+    "totalreply": 45,
+    "title": "[deadgame居然还有新闻，星际选手全当赌狗抓起来，最多两三个抓错的]",
+    "newtitle": "[deadgame居然还有新闻，星际选手全当赌狗抓起来，最多两三个抓错的]",
+    "lastedit": 1749985570,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
