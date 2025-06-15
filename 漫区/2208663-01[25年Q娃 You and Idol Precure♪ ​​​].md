@@ -2209,3 +2209,14 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 但是现在梅洛对噗哩伦依然是那种很沉重的感觉啊，也看不出来有这是装出来的之类的暗示，而且恢复记忆应该 ...</blockquote>
 还有一种思路是由于梅洛伦的身份特殊导致他使用传奇道具的时候并没有付出代价，但这样对梅洛伦塑造很不好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 1050#       发表于 2025-6-15 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942521&amp;ptid=2208663" target="_blank">凡人 发表于 2025-6-15 17:21</a>
+
+还有一种思路是由于梅洛伦的身份特殊导致他使用传奇道具的时候并没有付出代价，但这样对梅洛伦塑造很不好 ...</blockquote>
+其实我也隐隐有种梅洛失忆可能会被“顺便”处理掉甚至就这么被糊弄过去了，但是这种猜测实在有点阴湿，应该不会这样处理吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
