@@ -35933,3 +35933,43 @@ rnm的巧克力盒子上了xjhx的电台节目
 
 有谁在用啊，我去看看？
 
+
+*****
+
+####  Dualist彩  
+##### 18728#       发表于 2025-6-16 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944679&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-6-16 00:11</a>
+
+？这是哪来的说法
+
+有谁在用啊，我去看看？</blockquote>
+Varium那个二期做短视频唱歌起家的serenade现在就在播
+
+*****
+
+####  Dualist彩  
+##### 18729#       发表于 2025-6-16 00:18
+
+当然，你麻是varium幕后boss的猜想是我自己提出的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiHaru  
+##### 18730#       发表于 2025-6-16 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944701&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2025-6-16 00:17</a>
+
+Varium那个二期做短视频唱歌起家的serenade现在就在播</blockquote>
+刚看到了，我等一会看一下有没有别人也在用
+
+不过大概就是免费素材吧，主播应该不会做这么麻烦的事情，之前的那种联动应该就是BS的面子果实而已
+
+*****
+
+####  TiHaru  
+##### 18731#       发表于 2025-6-16 00:22
+
+不过刚才主播提了一嘴自己的号是品牌账号，这是以前井皇时期的遗留问题吗？
+
