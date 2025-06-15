@@ -5263,3 +5263,15 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Schwarzess  
+##### 2735#       发表于 2025-6-15 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940075&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-15 05:04</a>
+大沙漠马桶通完了进打枪关，右上角神秘百合槽满了很久了，流程还剩多少</blockquote>
+大沙漠的马桶全部通完之后，百合的好感度满就先去埃多斯9号，之后轨道电梯，之后就一路狂奔到结束。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
