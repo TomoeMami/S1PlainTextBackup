@@ -2178,3 +2178,15 @@ kkr，奇怪的大手透视人<img src="https://static.stage1st.com/image/smiley
 
 纯个人猜想的话，Meroron付出的代价就是对Purirun的沉重感情，由于她有完整的记忆所以为了不让Purirun以及歌她们察觉真相所以刻意维持了跟过去一致的言行以及避免和歌她们见面。
 
+
+*****
+
+####  modedd  
+##### 1047#       发表于 2025-6-15 17:12
+
+ 本帖最后由 modedd 于 2025-6-15 17:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942367&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-6-15 16:42</a>
+
+纯个人猜想的话，Meroron付出的代价就是对Purirun的沉重感情，由于她有完整的记忆所以为了不让Purirun以及 ...</blockquote>
+但是现在梅洛对噗哩伦依然是那种很沉重的感觉啊，也看不出来有这是装出来的之类的暗示，而且恢复记忆应该是是要作为一个关键剧情来处理，这部分目前来看大概率将聚焦在噗哩伦和歌两个人身上，梅洛恢复记忆会是另外处理吧？<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

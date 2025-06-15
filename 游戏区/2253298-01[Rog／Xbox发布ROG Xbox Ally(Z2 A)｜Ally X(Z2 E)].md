@@ -45,3 +45,16 @@ Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版,
 Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版, 只能祝它成功了 ...</blockquote>
 哦對,這裡還有人直接拿美版價比歐版價的
 
+
+*****
+
+####  zid99825  
+##### 101#       发表于 2025-6-15 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942152&amp;ptid=2253298" target="_blank">Herreimu 发表于 2025-6-15 15:53</a>
+传言：低配599欧，高配899欧
+鉴定为，微软真觉得xbox是一个有高价值的品牌</blockquote>
+这不就是$499/$799，rog的正常定价，微软甚至没有加价
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

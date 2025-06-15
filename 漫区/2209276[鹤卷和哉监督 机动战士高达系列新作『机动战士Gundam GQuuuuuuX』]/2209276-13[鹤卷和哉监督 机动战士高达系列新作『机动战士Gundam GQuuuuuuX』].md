@@ -16803,3 +16803,68 @@ TVアニメ『#メダリスト』
 亚马逊的中文字幕的锅吧，我看了以后也觉得奇怪，切到英文看了一眼说是控制系统完全失效 ...</blockquote>
 亚马逊的简中字幕是按英文翻的，繁中才是直接翻日文的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  太极八爪鱼  
+##### 19143#       发表于 2025-6-15 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942422&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-15 00:54</a>
+
+亚马逊的简中字幕是按英文翻的，繁中才是直接翻日文的</blockquote>
+亚马逊的简中字幕是英文字幕的简化版<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太极八爪鱼  
+##### 19144#       发表于 2025-6-15 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941588&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-14 21:40</a>
+
+作为喵安厨真对喵安现在的处境感到心情复杂
+
+一边希望她不要太惨，一边希望她能够为自己犯的罪孽背负代价， ...</blockquote>
+她一个side2难民，杀吉翁有什么罪孽？是正义的复仇
+
+*****
+
+####  太极八爪鱼  
+##### 19145#       发表于 2025-6-15 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942208&amp;ptid=2209276" target="_blank">kcalb 发表于 2025-6-15 00:04</a>
+
+如果在下线前能给个闪回补全她那段从side2独自逃出的一路悲惨经历，个人对喵的塑造还是持肯定态度的
+
+另外 ...</blockquote>
+Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还需要补全才能算正面？她杀多少吉翁都算正面
+
+
+*****
+
+####  wincle  
+##### 19146#       发表于 2025-6-15 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942453&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-15 17:05</a>
+她一个side2难民，杀吉翁有什么罪孽？是正义的复仇</blockquote>
+等下一集瞄准地球就老实了
+
+*****
+
+####  阿刚  
+##### 19147#       发表于 2025-6-15 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942457&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-15 17:05</a>
+
+Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还需要补全才能算正面？她杀多少吉翁都算正面 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">表现上感觉她都不知道自己杀得是谁，就单纯想用看irakira把修斯吸回来……
+
+*****
+
+####  太极八爪鱼  
+##### 19148#       发表于 2025-6-15 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942486&amp;ptid=2209276" target="_blank">wincle 发表于 2025-6-15 01:12</a>
+
+等下一集瞄准地球就老实了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">瞄准地球再说，而且下一集不是应该她和番茄王互殴么
+
