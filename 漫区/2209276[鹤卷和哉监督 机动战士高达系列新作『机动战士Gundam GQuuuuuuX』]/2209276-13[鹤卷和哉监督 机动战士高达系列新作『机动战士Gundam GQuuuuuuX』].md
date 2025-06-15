@@ -16470,3 +16470,99 @@ TVアニメ『#メダリスト』
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 19137#       发表于 2025-6-15 14:40
+
+[X 上的 かすみ：“[url]https://t.co/ysjZOcWodb](https://x.com/skchkkooo/status/1933511424808268089)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/142953lyzdsutsevuf9v2a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (910.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:29 上传
+
+[X 上的 遠藤 雅大：“#ジークアクス [url]https://t.co/VIrxKgEfa0](https://x.com/mshrendu/status/1933464777889899002)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143408wwzjm62b7szo3y3p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (935.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:34 上传
+
+[X 上的 있이：“좋아하는 함장님 [url]https://t.co/39DCDY5fkg](https://x.com/8te2w/status/1933549117898437071)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143120ugc1cjtgp61c1ft6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:31 上传
+
+[X 上的 麦：“赤ガンパイロットよ平和であれ [url]https://t.co/INcUb2bmKj](https://x.com/Lamp_mugi/status/1933800986008826106)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143258bcc4p95e84cmolf0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:32 上传
+
+[X 上的 하여：“자유다 [url]https://t.co/RIWyQq5uWF](https://x.com/LY_Howe/status/1933832775620305356)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143341nurxekc5hlecmco4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:33 上传
+
+[X 上的 たくま朋正＠航宙軍8巻発売中：“#ジークアクス #GQuuuuuuX 英雄の帰還 [url]https://t.co/9FkyNvIMxU](https://x.com/yunckle19722000/status/1933582574225666177)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143205dt0wh31mwjvmrt0h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (520.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:32 上传
+
+[X 上的 Lywo：“キャストトークのｼｬ～丼(おたわむれ) [url]https://t.co/TxW9FEqzuJ](https://x.com/lywo_n_candy/status/1934115877638848843)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143511pay73kmyfpf7j0nj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:35 上传
+
+[X 上的 あつあげ：“マチュとシロ [url]https://t.co/1xlMt9JdXa](https://x.com/amo91958757/status/1933900312680755688)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143854o8wy9wwp49l9y975.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:38 上传
+
+[X 上的 ボンクラーズ総長：“シロウズ君の変身シーン予想 #GQuuuuuuX [url]https://t.co/dxJaHvaBYZ](https://x.com/compon/status/1933883303083622857)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/15/143549g5cfuufjgha8g6ls.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (852.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 14:35 上传
+
