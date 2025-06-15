@@ -6017,3 +6017,54 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 当自己是古墓丽影啊你做的来吗你就做 ...</blockquote>
 你跳的啥 剧情那个方块三角xo吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝鸥之魂  
+##### 2807#       发表于 2025-6-15 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942144&amp;ptid=1978008" target="_blank">虚无连斩 发表于 2025-6-15 15:52</a>
+
+那群人背刺美少女竟然只是想着拆零件，太善良了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们的xp被机器污染了
+
+
+*****
+
+####  oyss  
+##### 2808#       发表于 2025-6-15 22:26
+
+ 本帖最后由 oyss 于 2025-6-15 22:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944065&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-15 22:03</a>
+
+草，本来想一周目不凑满百合那个进度条的
+
+但是怎么突然就给满了，只打主线也能涨条啊
+
+有没有进度条不满的好 ...</blockquote>
+一周目收集满比较好,因为一周目你不拿齐衣服,二周目开衣服就还是一周目的衣服.衣服想全就要再多一周目.
+
+为了拿全衣服难免四处跑和做任务,百合也自然满了.
+
+所以一周目全弄满,后面比较方便.
+
+*****
+
+####  mhss  
+##### 2809#       发表于 2025-6-15 22:26
+
+打枪跳跳乐和打枪踩墙壁我都不知道摔死了多少次，脚底抹油不好微调。
+感觉初始胶衣那反人类高跟完全就是为了后面换装偷懒的，高跟平底的骨骼切换据说一直是难题。
+
+*****
+
+####  哈迪斯兜帽  
+##### 2810#       发表于 2025-6-15 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944152&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-15 22:15</a>
+
+你跳的啥 剧情那个方块三角xo吗</blockquote>
+地图爬上爬下找箱子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+那个三角xo摔了两次过了
+
