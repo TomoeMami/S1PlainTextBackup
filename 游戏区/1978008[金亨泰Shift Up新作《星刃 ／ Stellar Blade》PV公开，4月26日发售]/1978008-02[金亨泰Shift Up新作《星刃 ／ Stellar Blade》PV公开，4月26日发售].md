@@ -5890,3 +5890,37 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  盐星  
+##### 2795#       发表于 2025-6-15 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943606&amp;ptid=1978008" target="_blank">虚无连斩 发表于 2025-6-15 21:12</a>
+
+怎么感觉一些发型和马尾不是很搭啊，比如那个创新之作，正面很好看，还有头花
+
+从后面角度看就很怪异</blockquote>
+马尾设置里有个“无马尾”，不合适的发型就关掉
+
+*****
+
+####  虚无连斩  
+##### 2796#       发表于 2025-6-15 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943654&amp;ptid=1978008" target="_blank">盐星 发表于 2025-6-15 21:22</a>
+马尾设置里有个“无马尾”，不合适的发型就关掉</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">问题就是我喜欢马尾....设计出很多不适合马尾的发型就很怪异
+
+—— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qixinno2  
+##### 2797#       发表于 2025-6-15 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943235&amp;ptid=1978008" target="_blank">克拉苏 发表于 2025-6-15 19:57</a>
+
+催眠 下药 灌酒 过完剧情发现钱和装备没了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被小混混一个小刀跳劈偷袭就毫无反抗力的倒了太幽默了 小黄油女主很多都没那么容易倒
+
