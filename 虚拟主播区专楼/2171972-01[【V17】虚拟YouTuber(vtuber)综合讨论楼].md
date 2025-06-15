@@ -908,3 +908,20 @@ Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 月之直接圣谕自己不接受指名直接进轮盘了，楼友的烦恼被解决了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1269#       发表于 2025-6-15 18:06
+
+lize这也太倒霉了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu222  
+##### 1270#       发表于 2025-6-15 18:09
+
+这就是在讨论最掀桌的打法会造成的后果吗，没人这样干就是这件事实际上并没有扩大到管人观众外的证明(厕妹再不看直播再跟风也算是管人观众)，但要有几个比起管人更想看乐子或真的啥的不想要就想要叶死的，那就完全不好说噜
+
+当时yab被大爆，也根本不是因为有正义之士看不下去，而是yab正好惹到有把柄的人
+
