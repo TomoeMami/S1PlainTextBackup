@@ -5304,3 +5304,13 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 只能说卡赞可惜了，甚至卡赞的中配都要好一点，然而努力比选择重要，各种因素叠加下，突出一个冰火两重天。 ...</blockquote>
 398这定价就注定是给小众的玩具了。
 
+
+*****
+
+####  虚无连斩  
+##### 2739#       发表于 2025-6-15 11:26
+
+我发现这个海报其实是初版pv的脸吧？<img src="https://p.sda1.dev/24/ce252eae77d40363f2a035dc07a433e2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
