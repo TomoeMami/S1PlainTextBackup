@@ -17234,3 +17234,29 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 <img src="https://p.sda1.dev/24/332255ccf5aa4c885e6af19015957f89/1000148072.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/381ef855614ab920006971300a453d83/1000148075.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 19178#       发表于 2025-6-15 23:15
+
+突然想起夏利亞以前去木星是採礦的先行摸索團...去採氦3回來
+
+之後UC正史有沒再次提到聯邦、自護、木星歸來男人、木星帝國等已經有完善的採氣技術
+
+
+*****
+
+####  Saber琪  
+##### 19179#       发表于 2025-6-15 23:21
+
+[被紫婆欺骗到最后的喵安](https://x.com/Ervin0083/status/1934185449020645414?t=LnZ_KVxgh0RonfD9WTF3-A&amp;s=19)
+
+<img src="https://img.stage1st.com/forum/202506/15/232113mtl5gzp588at8xrs.jpg" referrerpolicy="no-referrer">
+
+<strong>20250615_231139.jpg</strong> (134.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 23:21 上传
+
