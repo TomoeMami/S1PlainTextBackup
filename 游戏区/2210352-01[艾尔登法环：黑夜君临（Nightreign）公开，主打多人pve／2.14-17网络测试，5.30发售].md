@@ -9110,3 +9110,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 古老监牢还有双神皮，打过一次
 
+
+*****
+
+####  nekomimimode  
+##### 892#       发表于 2025-6-16 06:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">应该给个练习场练习如何在面对boss的同时还要平a救人，基本上开黑也都死在一心二用
+
