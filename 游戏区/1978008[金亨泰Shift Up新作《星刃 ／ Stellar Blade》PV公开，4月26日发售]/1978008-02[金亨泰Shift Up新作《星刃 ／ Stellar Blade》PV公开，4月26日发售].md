@@ -5701,3 +5701,13 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2777#       发表于 2025-6-15 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942513&amp;ptid=1978008" target="_blank">wasdfghjkl 发表于 2025-6-15 17:19</a>
+问下收集的这些  我知道罐头和拍照啥的有衣服拿   其他海报啊笔记记忆棒啥的 有什么奖励吗  没有的话懒得看 ...</blockquote>
+一部分海报和记忆棒影响百合那个条，但是一般来讲做任务就能溢出所以问题不大
+

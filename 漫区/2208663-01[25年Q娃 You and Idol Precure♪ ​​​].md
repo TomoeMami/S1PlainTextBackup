@@ -2282,3 +2282,14 @@ M08.Awakening Harmony
 
 这就是现在Marvelous对q娃的态度 都偶像q娃了 歌是少得可怜的 作曲是请不起的 cd和bd卖得贱贵的 特典是买椟还珠的 资源是给男舞台剧的<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 1055#       发表于 2025-6-15 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942717&amp;ptid=2208663" target="_blank">湖静欲成冰 发表于 2025-6-15 17:59</a>
+
+可这种展开不是很酷吗？这样就可以把独角兽那一集出现的意象都用上了。 ...</blockquote>
+我对于梅洛是否能得到这么多的戏份表示怀疑，目前叙事的中心果然还是小歌吧，梅洛现在作为站在小歌和噗哩伦的阻碍我不太确定她最后到底会是什么样的一个定位<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
