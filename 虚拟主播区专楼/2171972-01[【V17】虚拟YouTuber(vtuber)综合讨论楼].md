@@ -839,3 +839,11 @@ Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 想到这里不得不说简中还是很纯良的，想到自己被欺负了就要用自己的力量(国内手游大厂)打回去，完全没想到外面的世界是洋人在管
 
+
+*****
+
+####  两仪式29  
+##### 1262#       发表于 2025-6-15 15:00
+
+儿童色情都来了，rrm平时直播有半点色情内容吗，还“想到自己被欺负了就要用自己的力量”，到底谁欺负了谁啊，给人整无语了，整件事件到底谁是受害者，和简中网到底有啥关系啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
