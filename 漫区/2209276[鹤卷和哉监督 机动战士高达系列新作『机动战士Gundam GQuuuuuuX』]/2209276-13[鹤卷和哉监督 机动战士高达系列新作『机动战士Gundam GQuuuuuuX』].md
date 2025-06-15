@@ -17314,3 +17314,17 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 诶，能接着漫画做下去就好了。
 
+
+*****
+
+####  ryanghj  
+##### 19185#       发表于 2025-6-16 03:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944929&amp;ptid=2209276" target="_blank">草台培训班 发表于 2025-6-16 01:45</a>
+欧美那边的热度这次基本可弃疗了，第十集过后，Anime Corner跌倒只有32名，Anime Trending跌了6名，MAL上到 ...</blockquote>
+欧美的品味，铁血当个宝<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这片上的流媒平台少也是重要原因，海外只上了亚马逊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
