@@ -900,3 +900,11 @@ Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/
 这人精得很，切片就切到fanta 蹲下来看rrm 尸体那段，但是fanta 用心脏复苏动作模拟**和摸下体的，知道争议大倒是没敢没切进去。
 又当又立的一直在挑衅观众，拳头硬了
 
+
+*****
+
+####  Ketestrait  
+##### 1268#       发表于 2025-6-15 17:22
+
+月之直接圣谕自己不接受指名直接进轮盘了，楼友的烦恼被解决了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16868,3 +16868,41 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 等下一集瞄准地球就老实了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">瞄准地球再说，而且下一集不是应该她和番茄王互殴么
 
+
+*****
+
+####  永远的春天  
+##### 19149#       发表于 2025-6-15 17:14
+
+<blockquote>太极八爪鱼 发表于 2025-6-15 17:05
+Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还需要补全才能算正面？她杀多少吉翁都算正面 ...</blockquote>
+正史里side2拿了戴肯的遗传基因和优秀的女人配种克隆了一堆复制人，忽悠他们做棋子和炮灰。算不算报仇？
+
+*****
+
+####  太极八爪鱼  
+##### 19150#       发表于 2025-6-15 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942493&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-6-15 01:14</a>
+
+正史里side2拿了戴肯的遗传基因和优秀的女人配种克隆了一堆复制人，忽悠他们做棋子和炮灰。算不算报仇？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">正史只算动画吧。
+
+*****
+
+####  永远的春天  
+##### 19151#       发表于 2025-6-15 17:18
+
+<blockquote>太极八爪鱼 发表于 2025-6-15 17:15
+正史只算动画吧。</blockquote>
+手游uce很大概率会加进去后续的版本
+
+*****
+
+####  永远的春天  
+##### 19152#       发表于 2025-6-15 17:19
+
+<blockquote>Saber琪 发表于 2025-6-15 13:59
+不论如何，她对人命已经漠视到一种不正常的地步了，这显然是不对的</blockquote>
+麻烦你背诵一下侠客行
+
