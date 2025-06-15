@@ -17167,3 +17167,21 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 而现在其亦是处于天性释放阶段，那不幸的事是否又将到来捏？
 
+
+*****
+
+####  Sliurus  
+##### 19172#       发表于 2025-6-15 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944136&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-15 22:11</a>
+
+因为玛秋在第一次kirakira体验的时候感应到了红高达，kirakira是美好的，连带着红高达也美好了起来，她把 ...</blockquote>
+所以我觉得修司第一集就已经登场了，只是没露脸，机体是身体的延伸嘛，就像武侠故事里的蒙面人
+
+*****
+
+####  ykyin09  
+##### 19173#       发表于 2025-6-15 22:42
+
+紫婆能活过这周吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
