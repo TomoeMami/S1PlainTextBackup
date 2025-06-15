@@ -16792,3 +16792,14 @@ TVアニメ『#メダリスト』
 
 這麽快就有人畫了
 
+
+*****
+
+####  灵魂收割机  
+##### 19142#       发表于 2025-6-15 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940903&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-15 11:31</a>
+
+亚马逊的中文字幕的锅吧，我看了以后也觉得奇怪，切到英文看了一眼说是控制系统完全失效 ...</blockquote>
+亚马逊的简中字幕是按英文翻的，繁中才是直接翻日文的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
