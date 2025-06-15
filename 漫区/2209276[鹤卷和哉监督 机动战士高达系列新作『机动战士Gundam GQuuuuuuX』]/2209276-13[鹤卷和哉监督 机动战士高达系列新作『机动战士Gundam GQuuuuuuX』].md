@@ -16766,3 +16766,29 @@ TVアニメ『#メダリスト』
 
 带着答案回去看前面一些暧昧表现，感觉别有一番韵味<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 19140#       发表于 2025-6-15 16:04
+
+ 本帖最后由 kcalb 于 2025-6-15 16:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941588&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-15 13:40</a>
+
+作为喵安厨真对喵安现在的处境感到心情复杂
+
+一边希望她不要太惨，一边希望她能够为自己犯的罪孽背负代价， ...</blockquote>
+如果在下线前能给个闪回补全她那段从side2独自逃出的一路悲惨经历，个人对喵的塑造还是持肯定态度的
+
+加外，最好再给配个爱给水星
+
+
+*****
+
+####  我聞如是  
+##### 19141#       发表于 2025-6-15 16:11
+
+昨晚黑澤剛說想看綠色壁咚紅色
+
+這麽快就有人畫了
+
