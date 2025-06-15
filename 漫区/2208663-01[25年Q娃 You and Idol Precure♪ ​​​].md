@@ -2293,3 +2293,13 @@ M08.Awakening Harmony
 可这种展开不是很酷吗？这样就可以把独角兽那一集出现的意象都用上了。 ...</blockquote>
 我对于梅洛是否能得到这么多的戏份表示怀疑，目前叙事的中心果然还是小歌吧，梅洛现在作为站在小歌和噗哩伦的阻碍我不太确定她最后到底会是什么样的一个定位<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 1056#       发表于 2025-6-15 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942512&amp;ptid=2208663" target="_blank">凡人 发表于 2025-6-15 17:19</a>
+什么上当麻条（</blockquote>
+也有可能梅洛珑的感情被封印，同时愿望变成了指令，像大空勇仁。
+
