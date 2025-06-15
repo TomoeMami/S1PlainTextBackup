@@ -987,3 +987,15 @@ lize这也太倒霉了<img src="https://static.stage1st.com/image/smiley/face201
 
 我去，有蓝色莉光看<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这下不得不看了
 
+
+*****
+
+####  zjoi  
+##### 1278#       发表于 2025-6-16 01:21
+
+<blockquote>Harunoharu 发表于 2025-6-14 18:25
+他自己让人抓到把柄上升了啊，多上升一下enkr也可以当rh公司丢出简中市场了，好嫌三百万票你不会以为全是一 ...</blockquote>
+丢出简中市场不是好事吗
+
+从纯粹的角度来说，里面的东西能少沾就少沾
+
