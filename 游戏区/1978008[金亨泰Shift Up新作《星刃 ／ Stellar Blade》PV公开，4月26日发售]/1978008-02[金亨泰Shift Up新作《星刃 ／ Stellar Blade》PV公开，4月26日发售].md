@@ -5791,3 +5791,37 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  克拉苏  
+##### 2785#       发表于 2025-6-15 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942161&amp;ptid=1978008" target="_blank">qixinno2 发表于 2025-6-15 15:54</a>
+那支线我当时也挺无语的 背后捅刀就为了这？ 什么时候小黄油能有这素质就好了 ...</blockquote>
+催眠 下药 灌酒 过完剧情发现钱和装备没了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HATENA  
+##### 2786#       发表于 2025-6-15 20:00
+
+<blockquote>半年 发表于 2025-6-15 15:28
+刚玩一会儿，最大的问题是连段派生XY规律差了点，有时候不知道打哪一套更加合适
+
+ ...</blockquote>
+哪个连段最快打完就用哪个，反正我玩下来基本就是xxxx或者xxyy，大硬直可以打个yxyxy，yxxy
+
+以上仅为理论操作，实际上从中期开始就是xxx然后丢技能，没死补一发高爆，打连段你命可能没硬直长
+
+
+*****
+
+####  寺胖  
+##### 2787#       发表于 2025-6-15 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67942144&amp;ptid=1978008" target="_blank">虚无连斩 发表于 2025-6-15 15:52</a>
+
+那群人背刺美少女竟然只是想着拆零件，太善良了</blockquote>
+简直他们才是天使
+
