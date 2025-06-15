@@ -16426,3 +16426,24 @@ TVアニメ『#メダリスト』
 杀的都是基翁战犯，有什么罪</blockquote>
 不论如何，她对人命已经漠视到一种不正常的地步了，这显然是不对的<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sabbah  
+##### 19133#       发表于 2025-6-15 14:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没强化人背景背书的后果，喵安进鸡窝一切行为车个强化人背景卡就是大家熟悉的流程。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但换句话说要和强化人比精神状态这是否能证明这角色的精神的确不太正常。
+
+
+*****
+
+####  创始’’’天翔  
+##### 19134#       发表于 2025-6-15 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941635&amp;ptid=2209276" target="_blank">silvia 发表于 2025-6-15 13:53</a>
+
+杀的都是基翁战犯，有什么罪</blockquote>
+下一个目标就是地球<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
