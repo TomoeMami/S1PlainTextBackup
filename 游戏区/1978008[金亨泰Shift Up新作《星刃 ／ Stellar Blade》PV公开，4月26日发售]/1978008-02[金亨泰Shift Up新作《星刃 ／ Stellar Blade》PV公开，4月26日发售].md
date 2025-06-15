@@ -5724,3 +5724,36 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 猛攻起手都是YX+派生还好，袭扰的派生其实有两条，一个一三级的起手XY+派生，一个二四的起手XX，分开比较好记
 
+
+*****
+
+####  ladiesman802  
+##### 2779#       发表于 2025-6-15 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941924&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-15 15:01</a>
+
+昨晚打了大约20次才打过荒地的金刚，明明主线是初见就莽赢了，是我菜了还是学的技能多了反而乱章法了还是确 ...</blockquote>
+并不是，是制作人偷懒
+
+*****
+
+####  ladiesman802  
+##### 2780#       发表于 2025-6-15 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941886&amp;ptid=1978008" target="_blank">重新做人 发表于 2025-6-15 14:53</a>
+
+废土那边一个箱子开出来个带靶子的无人机，没打下来飞走了，总不是重要道具吧，手柄远程是真的难绷，打个ni ...</blockquote>
+那个是饮料罐，我当时也找不到
+
+
+*****
+
+####  水边井  
+##### 2781#       发表于 2025-6-15 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941886&amp;ptid=1978008" target="_blank">重新做人 发表于 2025-6-15 14:53</a>
+废土那边一个箱子开出来个带靶子的无人机，没打下来飞走了，总不是重要道具吧，手柄远程是真的难绷，打个ni ...</blockquote>
+那个就是让你去找的，飞起来那段打不了
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
