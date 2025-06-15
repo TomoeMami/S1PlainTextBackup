@@ -5314,3 +5314,13 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 —— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2740#       发表于 2025-6-15 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940189&amp;ptid=1978008" target="_blank">frankCC 发表于 2025-6-15 07:44</a>
+只能说卡赞可惜了，甚至卡赞的中配都要好一点，然而努力比选择重要，各种因素叠加下，突出一个冰火两重天。 ...</blockquote>
+卡赞真的好玩得多<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

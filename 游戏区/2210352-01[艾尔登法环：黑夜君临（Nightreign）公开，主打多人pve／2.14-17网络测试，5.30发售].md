@@ -9079,3 +9079,15 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 除了全人物赢一局以外还剩古老监牢和恶兆事件两个成就，不知道去哪找。
 
+
+*****
+
+####  thealoneer  
+##### 889#       发表于 2025-6-15 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940635&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-15 10:27</a>
+除了全人物赢一局以外还剩古老监牢和恶兆事件两个成就，不知道去哪找。</blockquote>
+就是纯随机的，古老监牢开出来是古龙，我也只打过一次
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
