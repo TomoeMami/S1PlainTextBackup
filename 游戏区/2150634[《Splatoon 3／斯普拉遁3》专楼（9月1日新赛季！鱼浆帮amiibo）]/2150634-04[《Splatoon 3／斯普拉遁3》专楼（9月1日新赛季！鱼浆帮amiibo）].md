@@ -865,3 +865,13 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 5735#       发表于 2025-6-15 21:07
+
+昨天打到康出了9个金鳞片还行吧
+
+这图退潮确实傻逼
+
