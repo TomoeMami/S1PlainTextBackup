@@ -757,3 +757,17 @@ Twisty和Aster爆了<img src="https://static.stage1st.com/image/smiley/face2017/
 叶队一堆人都在嘲老钟，黑x好多开地图炮，不会看日文就滚回去之类的rh 言论
 鸣潮本来就是老钟企业，又想乳又想恰烂钱怎么可能，这不就抓到机会冲掉工商
 
+
+*****
+
+####  两仪式29  
+##### 1254#       发表于 2025-6-15 11:00
+
+ 本帖最后由 两仪式29 于 2025-6-15 11:05 编辑 
+
+“不会看日文就滚回去” 就算rh了还行，而且还不是本人说的，粉丝打架都能冲掉工商，只能说确实还是简中网友力量大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+与此同时，隔壁某个真正ru过的公司，还在美滋滋的B限收租呢
+
+不过鸣潮本身也不是啥好货吧，我看网上都被玩家炎上了无数次了，这种工商感觉不接也罢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
