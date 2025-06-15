@@ -17185,3 +17185,17 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 紫婆能活过这周吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 19174#       发表于 2025-6-15 22:47
+
+ 本帖最后由 Sliurus 于 2025-6-15 22:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943874&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-15 21:45</a>
+
+喵安本来是两个人都很看重的，结果被玛秋一盆冷水泼下来意识到玛秋其实并不看重自己甚至讨厌自己之后她就放 ...</blockquote>
+喵安肯定知道马秋喜欢修司，这里问马秋有种反客为主的感觉。但马秋轻松接下，倒是喵安不敢承认这件事<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+其实到这里为止，好姐妹之间谈不上什么深仇大恨，倒是现在可能会因为拉拉决裂（什么鸭骡复刻）
+
