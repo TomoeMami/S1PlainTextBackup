@@ -674,3 +674,14 @@ Switch 2并不支持4K120Hz。</blockquote>
 你用哪怕一千w的快充头Switch2在握手的时候都只会跟充电器说请只给我15w</blockquote>
 我还怕搞个140w的把ns2撑死<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ajsh  
+##### 57#       发表于 2025-6-15 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67939197&amp;ptid=2253207" target="_blank">qwased 发表于 2025-6-14 22:17</a>
+
+喷3不就是用DLSS从1440p拉到4k的吗</blockquote>
+应该不是的
+
