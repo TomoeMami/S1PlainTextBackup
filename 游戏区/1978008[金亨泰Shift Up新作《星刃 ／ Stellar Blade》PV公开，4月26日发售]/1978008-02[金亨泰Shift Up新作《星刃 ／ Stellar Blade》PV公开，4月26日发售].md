@@ -5251,3 +5251,15 @@ nikke的钓鱼只是单纯收集品么？全集齐之后没什么额外奖励么
 
 3060ti 图像质量开高，然后VRAM 9.23/7.84 GB，超推荐上限一大截， 玩到现在居然还没有闪退过，保险点，我是不是需要手动调低点画质什么的？如果不想折腾只能设置成图像低<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 2734#       发表于 2025-6-15 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940028&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-15 03:08</a>
+是有服装奖励的，一套全种类送的，另一套钓鱼积分换的，积分的估计二周目才解锁吧 ...</blockquote>
+老哥指的全收集奖励是指海女仆之类的？抱歉可能我问得不太明确，我指的是这次nikke联动的6种小垃圾全收集有没有奖励。去钓鱼佬那里晃了一圈没有再给什么。（钓鱼佬卖得两件比基尼已经买了，好像是去年的夏季活动的吧）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
