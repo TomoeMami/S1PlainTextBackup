@@ -16931,3 +16931,16 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 她与修司的唐突感情捆 ...</blockquote>
 她开那个也不是因为想kirakira见修斯啊，不是紫婆让她开的么。她开之前也不知道什么效果。
 
+
+*****
+
+####  Saber琪  
+##### 19155#       发表于 2025-6-15 17:45
+
+喵安的一切底层逻辑就是为了“生存”吧<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+你说她鲨吉翁军为s2复仇了，但作为s2难民的她反而加入了吉翁军
+为了生存不择手段，一开始就把走私品塞🍅包里，后面再偷回来
+好不容易有了朋友吧，自己还融不进他们，等到体验到kirakira的时候，在有生命危机的第一反应还是拿修司挡刀
+走投无路时🍅也不知道在哪儿，就想跟修司一块儿逃
+第十集称自己为“迪亚波罗”，被紫老太婆灌输了有力量才有自由的价值观，回想起自己这一路以来的经历，会狠狠认同吧<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
