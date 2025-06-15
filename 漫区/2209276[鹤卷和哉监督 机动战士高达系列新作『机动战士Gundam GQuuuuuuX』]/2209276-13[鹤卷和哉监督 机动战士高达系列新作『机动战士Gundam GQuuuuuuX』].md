@@ -17139,3 +17139,14 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 这个就得翻当时买ova的人的评论了</blockquote>
 当时早就有一大堆字幕组了，我记得当时就是看汉化字幕版的。
 
+
+*****
+
+####  ヒトニナル  
+##### 19170#       发表于 2025-6-15 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67943079&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-15 19:25</a>
+一见钟情是说马秋一开始就对修司好感度很高，我不否认两人在日常交流和战斗中培养出了感情。而喵安一开始 ...</blockquote>
+因为玛秋在第一次kirakira体验的时候感应到了红高达，kirakira是美好的，连带着红高达也美好了起来，她把红高达和修司联系在一起之后自然会对修司产生好印象
+不把这种好印象转移到修司身上玛秋就得承认自己是机性恋了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

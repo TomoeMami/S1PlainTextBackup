@@ -5992,3 +5992,28 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 当自己是古墓丽影啊你做的来吗你就做
 
+
+*****
+
+####  alucardcz  
+##### 2805#       发表于 2025-6-15 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944099&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-15 22:06</a>
+
+拍照任务，提示内存不足是啥原因，换别的地点的又能拍了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">据说只是位置不太好的提示
+
+*****
+
+####  alucardcz  
+##### 2806#       发表于 2025-6-15 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944102&amp;ptid=1978008" target="_blank">哈迪斯兜帽 发表于 2025-6-15 22:07</a>
+
+这个跳跳乐真是闹麻了
+
+操作不跟手判定又迷
+
+当自己是古墓丽影啊你做的来吗你就做 ...</blockquote>
+你跳的啥 剧情那个方块三角xo吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
