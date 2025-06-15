@@ -6213,3 +6213,16 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  水边井  
+##### 2823#       发表于 2025-6-16 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944753&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-16 00:31</a>
+
+今天终于做完背刺那个支线了~</blockquote>
+这件清凉旗袍mod我打了闪退，不知道为什么。
+
+还有清凉女忍套也是，怎么一个服装替换都会出问题的
+
