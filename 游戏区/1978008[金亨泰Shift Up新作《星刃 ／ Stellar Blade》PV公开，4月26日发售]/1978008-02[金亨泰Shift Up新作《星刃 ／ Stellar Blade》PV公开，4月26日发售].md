@@ -6800,3 +6800,36 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 <img src="https://tupian.li/images/2025/06/16/684fc0385dcb5.png" referrerpolicy="no-referrer">
 <img src="https://ttfou.com/i/2025/06/16/oxac4q.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 2876#       发表于 2025-6-16 15:10
+
+据韩媒ruliweb消息，由Shift Up开发的动作冒险游戏《剑星》PC版发售3天销量便突破100万份，目前该作全平台累计销量已突破300万份！
+
+《剑星》PC版发售当天便荣登Steam全球销量榜冠军宝座，同时在线人数突破18万，创下了SIE单机游戏登陆Steam以来的最高纪录，在之后在周末同时在线人数一度升至19万人。
+
+--这成绩可以啊，2代别PS5（6）独占了，直接上pc吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 2877#       发表于 2025-6-16 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要打光这个没得黑吧
+你在现实里面拍照摄像，打光也是一门学问
+最基础的伦布朗光总得会弄吧
+
+*****
+
+####  寺胖  
+##### 2878#       发表于 2025-6-16 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946173&amp;ptid=1978008" target="_blank">罐子 发表于 2025-6-16 10:30</a>
+
+y1s1，这个马尾金亨泰是真的花心思去做的啊
+
+第一次见到真的能披头散发的头发，还不穿模。当千丝万缕头发散 ...</blockquote>
+我看着老是想抓起她的发梢用来挠鼻孔<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
