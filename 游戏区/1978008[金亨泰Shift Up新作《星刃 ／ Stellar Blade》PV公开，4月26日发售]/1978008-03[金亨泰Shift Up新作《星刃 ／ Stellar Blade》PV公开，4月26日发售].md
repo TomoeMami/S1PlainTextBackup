@@ -54,3 +54,44 @@
 还说渡鸦bgm只有前一分钟好听呢
 我连一分钟都活不过去
 
+
+*****
+
+####  ——啧  
+##### 2966#       发表于 2025-6-16 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950681&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-16 23:27</a>
+好像只有每次好感上涨的时候右上角才能看到，没法主动看</blockquote>
+从来没留意过……
+我现在是上轨道电梯之前，把所有支线跟衣服能收集的都收集了，但是从来没见过有什么进度条……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ——啧  
+##### 2967#       发表于 2025-6-16 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950691&amp;ptid=1978008" target="_blank">LMBS 发表于 2025-6-16 23:30</a>
+季节活动内容是什么，现在都快到轨道电梯了还没开过</blockquote>
+就是把主城的广场放个圣诞树，无伤大雅，直接开吧
+
+*****
+
+####  Andariel  
+##### 2968#       发表于 2025-6-16 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950717&amp;ptid=1978008" target="_blank">——啧 发表于 2025-6-16 23:36</a>
+从来没留意过……
+我现在是上轨道电梯之前，把所有支线跟衣服能收集的都收集了，但是从来没见过有什么进 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上轨道电梯之前百合提议去艾多斯9号那就是好感满了，她没提议就是没满
+
+*****
+
+####  ——啧  
+##### 2969#       发表于 2025-6-16 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950740&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-16 23:41</a>
+上轨道电梯之前百合提议去艾多斯9号那就是好感满了，她没提议就是没满</blockquote>
+草，那就是没满了
+但我基本是支线全做，路上能收集的都收集了，这个满好感要求太高了吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
