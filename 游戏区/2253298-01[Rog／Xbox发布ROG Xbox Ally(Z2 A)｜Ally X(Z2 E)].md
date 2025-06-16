@@ -155,3 +155,16 @@ Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版,
 你想要正常手柄握持，加握把没用，后部支撑的三根手指还是得顶着
 像psp或者这个的握把，手指是可以正常合起来握住
 
+
+*****
+
+####  泰坦失足  
+##### 112#         楼主| 发表于 2025-6-16 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947225&amp;ptid=2253298" target="_blank">恋妖壶 发表于 2025-6-16 13:31</a>
+
+PSP也丑，也舒服
+
+只能说PC掌机定位就是geek玩具，不像任天堂卖给大众的，在不可能的六边形中外观应该是优 ...</blockquote>
+哪个PSP? 哦, 那个PSP啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 还在想为什么PSP会被说丑
+
