@@ -3759,3 +3759,16 @@ X终于正式露脸了 不过这能力有点bug啊
 
 前者真是……
 
+
+*****
+
+####  plazum  
+##### 319#       发表于 2025-6-16 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950381&amp;ptid=2125794" target="_blank">达达葱2 发表于 2025-6-16 22:20</a>
+
+后者我理解
+
+前者真是……</blockquote>
+前者我都怀疑是导演在蹭热度，强行结合时事
+

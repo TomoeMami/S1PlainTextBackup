@@ -1146,3 +1146,53 @@ gqux根本不知道装着alphacide有啥用。fred好歹脑门上还插着两个
 
 按照主创的尿性很可能最后两集的弹幕和流量会捅破天吧，期待再拿出点想不到的整活方式，平稳落地那么无趣的才不要呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 19318#       发表于 2025-6-16 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950428&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-16 22:29</a>
+高达里的MA不都是给MS刷经验的精英怪，就没见过什么高光</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">MA的高光现在就有绿叔叔啦，变形MA也是MA
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  9β  
+##### 19319#       发表于 2025-6-16 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948439&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-16 16:17</a>
+那肯定不同的，西玛阿姨明着告诉她是催眠气体，所以真看到死人了才会发疯
+
+你喵安实打实的知道自己锁定的 ...</blockquote>
+那西马知道灌完催眠瓦斯之后side2要砸到地面上吗？
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  eilot  
+##### 19320#       发表于 2025-6-16 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950428&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-16 22:29</a>
+
+高达里的MA不都是给MS刷经验的精英怪，就没见过什么高光</blockquote>
+今次夏利亞要為所有MA吐一口污氣
+
+之前輕鬆秒了精神病，今次最後單機救瑪秋並面對約10架強人精兵團
+
+上面還有人猜下集是否一開始就已經是死剩首席哥一人
+
+
+*****
+
+####  无念  
+##### 19321#       发表于 2025-6-16 22:44
+
+ma最后的高光不是冰箱打绿螳螂么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
