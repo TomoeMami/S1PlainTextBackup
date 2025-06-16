@@ -265,3 +265,16 @@ GQ我觉得说到底还是描写年轻人（甚至青中年，比如绿叔叔）
 
 你喵安实打实的知道自己锁定的阿巴瓦，除非她以为自己是给阿巴瓦发射怪电波，要不锁定阿巴瓦究竟会发生啥，她这个全作最近距离观察kirakira的能不知道是咋回事？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasssf  
+##### 19262#       发表于 2025-6-16 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948439&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-16 16:17</a>
+
+那肯定不同的，西玛阿姨明着告诉她是催眠气体，所以真看到死人了才会发疯
+
+你喵安实打实的知道自己锁定的 ...</blockquote>
+kirakira是传送啊
+

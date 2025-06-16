@@ -708,3 +708,19 @@ PC有汉化？
 
 <img src="https://p.sda1.dev/24/4f7e5d3ed35f4a694a8035c2534a235d/20250616_120035.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bill910  
+##### 62#       发表于 2025-6-16 16:28
+
+这个实体版只能买日版吧？有中文实体版吗？
+
+
+*****
+
+####  五块  
+##### 63#       发表于 2025-6-16 16:34
+
+高中玩的pc版，神岸明一直是我的理想择偶目标<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
