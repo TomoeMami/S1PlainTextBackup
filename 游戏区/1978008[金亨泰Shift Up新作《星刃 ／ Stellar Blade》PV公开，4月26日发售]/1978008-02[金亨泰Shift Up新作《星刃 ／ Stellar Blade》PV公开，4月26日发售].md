@@ -6605,3 +6605,22 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 游戏中期前还是有点用的，后期才溢出了
 
+
+*****
+
+####  盐星  
+##### 2859#       发表于 2025-6-16 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946254&amp;ptid=1978008" target="_blank">rgm2000 发表于 2025-6-16 10:39</a>
+这游戏里的人类已经和他们口中有机人类完全不是一个东西了吧，XP什么的感觉也完全不是一回事了，但是都已经 ...</blockquote>
+毕竟机器从三楼摔下来也会坏的嘛（）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  秋月孝三  
+##### 2860#       发表于 2025-6-16 12:31
+
+讲真三个主要角色一个夏娃一个亚当一个莉莉，主城叫锡安，敌人还直截了当地叫native，从世设开始就已经演都不演了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
