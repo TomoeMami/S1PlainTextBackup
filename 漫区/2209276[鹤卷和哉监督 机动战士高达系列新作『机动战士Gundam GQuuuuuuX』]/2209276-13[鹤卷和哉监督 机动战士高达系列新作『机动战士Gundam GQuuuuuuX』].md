@@ -17798,3 +17798,66 @@ week#10 未上榜
 
 假如喵安是卡多那种颠佬，或者为了SIDE2复仇什么的，非议会少一些。
 
+
+*****
+
+####  00Q  
+##### 19221#       发表于 2025-6-16 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944922&amp;ptid=2209276" target="_blank">神意 发表于 2025-6-16 01:44</a>
+
+喵安想投提坦斯也没门路啊，谁叫联邦不争气呢
+
+加入吉翁军是为了生活没问题，毕竟side6上是过街老鼠的生活呢 ...</blockquote>
+加入吉翁不是问题，反正到了结局把命献出来就行，当然监督要是包饺子那当我没说，毕竟卡迪公不也没死嘛<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 19222#       发表于 2025-6-16 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947238&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-16 13:33</a>
+
+喵安不是因为什么大义去开大杀器的，而是为了见到修酱。（有点low）
+
+前面不是有人发漫画二创，紫婆算计喵 ...</blockquote>
+这下连性转版卡多都不算了，纯丑角了，那就更要退场了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 19223#       发表于 2025-6-16 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947228&amp;ptid=2209276" target="_blank">00Q 发表于 2025-6-16 13:31</a>
+
+一个性转版卡多能撕半天，你们无敌了，接下来就看不会跟卡多一个结局咯，反正UC历史上开地图炮的除了利迪他 ...</blockquote>
+布莱德算不算善终，我也不太确定<img src="https://static.stage1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 19224#       发表于 2025-6-16 13:41
+
+阿斯兰轰炸难民（虽然不是本意）不也屁事没有，你们还在意这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 19225#       发表于 2025-6-16 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947242&amp;ptid=2209276" target="_blank">00Q 发表于 2025-6-16 13:34</a>
+
+加入吉翁不是问题，反正到了结局把命献出来就行，当然监督要是包饺子那当我没说，毕竟卡迪公不也没死嘛 ...</blockquote>
+怎么又绕回卡迪公了，卖身这个坎是过不去了嘛<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 19226#       发表于 2025-6-16 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947288&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-16 13:41</a>
+
+怎么又绕回卡迪公了，卖身这个坎是过不去了嘛</blockquote>
+是的，过不去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
