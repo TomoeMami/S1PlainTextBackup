@@ -17861,3 +17861,59 @@ week#10 未上榜
 怎么又绕回卡迪公了，卖身这个坎是过不去了嘛</blockquote>
 是的，过不去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 19227#       发表于 2025-6-16 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946780&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-15 20:11</a>
+
+鸭子只是一方面，博士说要启动防御系统，还吼了句“这就是女人掌权的下场”，可能被喵安感应到恶意，所以 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她按钮没有主观能动性吧，及西利亚给她的命令。喵安和西马唯一的不同就是按完以后没有实感。怕不是她在那个炮里面也不知道外面是啥样只看到kirakira了
+
+*****
+
+####  太极八爪鱼  
+##### 19228#       发表于 2025-6-16 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947228&amp;ptid=2209276" target="_blank">00Q 发表于 2025-6-15 21:31</a>
+
+一个性转版卡多能撕半天，你们无敌了，接下来就看不会跟卡多一个结局咯，反正UC历史上开地图炮的除了利迪他 ...</blockquote>
+卡多有主观能动性，明确的知道自己射完的后果。喵安这就拿了一串数字被告知你进去输进去按按钮，这妥妥是西马<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 19229#       发表于 2025-6-16 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947490&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-16 14:17</a>
+
+她按钮没有主观能动性吧，及西利亚给她的命令。喵安和西马唯一的不同就是按完以后没有实感。怕不是她在那 ...</blockquote>
+喵安都自称“迪亚波罗”了，以她之前识破蛋糕哥的敏锐，会不知道是大杀器？
+
+她很明显知道紫婆要她做什么，会死很多人，只不过不知道场面会有多大，以及之后的孕吐反应过于强烈而已。
+
+或者说得再直白些，哪怕她完完全全清楚知道会发生什么结果，用预告里的台词："即便如此，也会为了再次见到修酱而战“。那个按钮她一定会按。
+
+*****
+
+####  ryanghj  
+##### 19230#       发表于 2025-6-16 14:23
+
+喵安的性格就是陷入绝境时只考虑自己
+
+我倒觉得最后她的结局可能是终极牺牲，这是一种成长
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 19231#       发表于 2025-6-16 14:24
+
+个人来说，喵安那种接触几分钟就能感觉到蛋糕哥要宰了自己的人会不知道G弗里德和外神手电筒会用来干啥，可能性太低了。
+
+但是下场确实不好说，特别是让side2难免杀基连派大部队这事太具讽刺效果，很难说鹤卷是不是要故意在这里留一手卡在虽然她有反人类想法，但是最终被番茄阻止，导致结果上是功大于过，所以包饺子的神奇结局。。。
+
