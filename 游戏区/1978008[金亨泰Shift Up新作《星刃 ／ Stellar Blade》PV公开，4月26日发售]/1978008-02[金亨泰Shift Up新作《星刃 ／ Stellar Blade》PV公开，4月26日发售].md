@@ -6869,3 +6869,68 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 4地图、任务没有快捷开启，必须开始按钮进去再按两下切换，需要频繁看地图找点位的时候很难受
 
+
+*****
+
+####  卡拉德利姆  
+##### 2882#       发表于 2025-6-16 15:30
+
+没回城做操蛋的是会在跑回去的路上被几个小怪追杀八百里，不清还坐不了火
+
+*****
+
+####  Andariel  
+##### 2883#       发表于 2025-6-16 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947983&amp;ptid=1978008" target="_blank">mirari 发表于 2025-6-16 15:25</a>
+玩到废土，有几个问题挺难受的
+
+1密码箱太多了，照着密码输入和按上下左右都很无聊
+
+2推箱子游戏太多了，推箱 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快速地图这个是索尼遗毒，默认是滑动触摸板
+你不用ds系手柄默认就没有
+但是可以自己设一个按键→打开快速地图，方向键→默认是没功能的
+
+*****
+
+####  LMBS  
+##### 2884#       发表于 2025-6-16 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947983&amp;ptid=1978008" target="_blank">mirari 发表于 2025-6-16 15:25</a>
+玩到废土，有几个问题挺难受的
+
+1密码箱太多了，照着密码输入和按上下左右都很无聊
+
+2推箱子游戏太多了，推箱 ...</blockquote>
+地图 任务可以设置一个方向键，默认右方向键没有
+
+*****
+
+####  卡拉德利姆  
+##### 2885#       发表于 2025-6-16 15:32
+
+而且最自相矛盾的是设计师反倒给了做完支线后直接返回委托人的选项，但是清支线不都是一揽子清完一揽子交任务吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如人性化
+
+*****
+
+####  alucardcz  
+##### 2886#       发表于 2025-6-16 15:33
+
+做完部分任务会有选项直接送你回城回任务版就很怪 这功能平时一直有不好吗
+
+切地图只能和男人对话就更看不懂了。。
+
+
+*****
+
+####  mirari  
+##### 2887#       发表于 2025-6-16 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948046&amp;ptid=1978008" target="_blank">LMBS 发表于 2025-6-16 15:31</a>
+
+地图 任务可以设置一个方向键，默认右方向键没有</blockquote>
+实际上我最常用的按键是select查找可互动元素。但select按起来并不顺手。
+
+我感觉完全可以把右方向键设置成探查，select设置成地图
+
