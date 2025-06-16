@@ -792,3 +792,11 @@ PC有汉化？
 
 豪华版带的BD高清动画没带中中文字幕，到时等字幕组的动画吧<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninini212  
+##### 70#       发表于 2025-6-17 00:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就是你们说的那个更喜欢toheart2的，二代机器人妹妹更戳我就是了
+
