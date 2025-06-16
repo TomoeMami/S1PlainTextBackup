@@ -7121,3 +7121,11 @@ https://hexed.it/
 4060我用的默认“高”，关闭动态模糊、振动等一切可能导致晕3d的东西。
 目前没卡过。
 
+
+*****
+
+####  方块木偶  
+##### 2906#       发表于 2025-6-16 18:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一周目打完发现营地成就差一个也是无语了，感觉没啥动力进二周目重新舔地图，打算整个全衣服的档看看衣服了
+

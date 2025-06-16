@@ -3720,3 +3720,14 @@ X终于正式露脸了 不过这能力有点bug啊
 话说这集S1怎么评价还不错的样子，我看Bangumi都已经喷起来了 ...</blockquote>
 都喷 什么？
 
+
+*****
+
+####  没取名啊  
+##### 316#       发表于 2025-6-16 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949148&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-6-16 18:06</a>
+
+都喷 什么？</blockquote>
+性别叙事+女王才装了半集逼就被X打倒在地太掉价
+
