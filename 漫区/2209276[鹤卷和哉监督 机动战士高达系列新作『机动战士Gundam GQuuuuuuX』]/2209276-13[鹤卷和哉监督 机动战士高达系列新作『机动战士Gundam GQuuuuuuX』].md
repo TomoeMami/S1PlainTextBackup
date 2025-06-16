@@ -17441,3 +17441,11 @@ reddit榜单gqx排名
 当时上的CR平台是专门做动画的，受众比amazon prime多得多</blockquote>
 真的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你最多只能说cr动画宅受众更稳定吧，日升安排上amazon prime不就是为了扩圈
 
+
+*****
+
+####  zakufa782  
+##### 19195#       发表于 2025-6-16 09:26
+
+MAL的用户第一大群体是美国人，第二大是东南亚人，你在网站上还能看到各种国产动画的讨论
+

@@ -9133,3 +9133,20 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 恶兆突袭就多玩，多玩就会碰到，全突袭没碰到就是玩的少了。
 
+
+*****
+
+####  jacket  
+##### 894#       发表于 2025-6-16 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945552&amp;ptid=2210352" target="_blank">雲夢淵澤 发表于 2025-6-16 09:14</a>
+
+单人出击刷人马day1。左上角刷出雷（圣）属性营地和无属性堡垒。
+
+左上角的监牢会出古龙。
+
+恶兆突袭就多玩 ...</blockquote>
+已经把种子研究出来了吗<img src="https://static.stage1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+恶兆初期见过两次，欺负我不会打，而且这玩意死了就失败，单人没把握一次过。
+
