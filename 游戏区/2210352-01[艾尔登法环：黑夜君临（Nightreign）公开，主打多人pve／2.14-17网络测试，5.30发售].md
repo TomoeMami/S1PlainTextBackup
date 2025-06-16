@@ -9176,3 +9176,27 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 有一说一感觉卡婊还真可以学着出个怪猎版搜打撤
 
+
+*****
+
+####  usodakedo  
+##### 897#       发表于 2025-6-16 18:34
+
+ 本帖最后由 usodakedo 于 2025-6-16 18:36 编辑 
+
+现在最大问题还是内容量不够，你问我好玩吗？我真觉得好玩，但是你要说指198吗？我也真说不出来值，要是内容量是现在1.5到2倍，估计早就到特别好评了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thealoneer  
+##### 898#       发表于 2025-6-16 18:35
+
+黑环队友交互真比怪猎足，怪猎我也是一直玩野队的，除非拿笛子给队友上buff，不然基本都是各打各的，最多撒个粉尘，荒野还弄出个抢弱点的机制出来搞人心态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jacket  
+##### 899#       发表于 2025-6-16 18:36
+
+辉剑不小心刮到大地图上的颠羊，发现不会狂暴只会常规技能，那以后交易完不打白不打了
+
