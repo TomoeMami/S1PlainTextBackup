@@ -7345,3 +7345,34 @@ https://hexed.it/
 做这个的目的是什么，就为了坑玩家一把吗，写撤回委托不行吗 ...</blockquote>
 显示一下人物的小性格，还有那个找东西的后续：我kill我自己
 
+
+*****
+
+####  darkangel0224  
+##### 2928#       发表于 2025-6-16 19:40
+
+<blockquote>卡拉德利姆 发表于 2025-6-16 15:32
+而且最自相矛盾的是设计师反倒给了做完支线后直接返回委托人的选项，但是清支线不都是一揽子清完一揽子交任 ...</blockquote>
+应该是直接抄的UE4开发教程里的案例
+
+这游戏里面好多UE4教程范例，比如荒漠里那个推2个球压板子的设计
+
+
+*****
+
+####  Piano-Forest  
+##### 2929#         楼主| 发表于 2025-6-16 19:43
+
+《剑星》总销量突破300万！感谢中国朋友一直以来的支持和鼓励
+<img src="https://p.sda1.dev/24/04e35431d658172e17ca5e74ed5e2208/1000148121.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/cfff7b9f5719584b7cf59ab843d8dad7/1000148122.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/d20fa233c6ae2bcda685d329928a0f48/1000148008.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  LMBS  
+##### 2930#       发表于 2025-6-16 19:43
+
+二周目会继承文档的收集吗？
+收集度只在九成纠结要不要直接先通了
+
