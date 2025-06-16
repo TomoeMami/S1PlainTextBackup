@@ -17566,3 +17566,23 @@ cr没这实力自己搞配音</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 19206#       发表于 2025-6-16 11:08
+
+不过我觉得哪怕以前不是，现在开始这些配音字幕也应该成为标配了，你想要真正出圈这些基本功夫每一部都不能断的，谁知道哪一部就真正爆火了
+
+*****
+
+####  贝恩德塔  
+##### 19207#       发表于 2025-6-16 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946024&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-16 10:16</a>
+
+这个其实是amazon prime这种平台的标配，不是万代搞的
+
+cr没这实力自己搞配音</blockquote>
+你就说是不是第一次这样搞吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
