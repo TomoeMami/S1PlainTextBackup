@@ -462,3 +462,87 @@ kirakira是传送啊
 
 2025-6-16 16:41 上传
 
+
+*****
+
+####  psycho_Gadfly  
+##### 19264#       发表于 2025-6-16 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947898&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-16 15:14</a>
+
+说难听一点这片根本不需要修司这个人
+
+把这个人删了，红高放kirakir告诉番茄去地球找玫瑰也一样
+
+莫名其妙的m ...</blockquote>
+去掉的话情歌怎么卖，总不能对高达唱吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 19265#       发表于 2025-6-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948596&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-6-16 16:35</a>
+
+kirakira是传送啊</blockquote>
+一个高达的传送能硬生生把SIDE6削出一个大圈，月球能看到上次kirakira的所罗门残骸
+
+喵安最好是看不出破坏力，比狸猫还纯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19266#       发表于 2025-6-16 16:52
+
+[X 上的 錆々【さびさび】：“10話の照れコモりん可愛かった [url]https://t.co/680NW6ZsvF](https://x.com/Sabi_Sabi1234/status/1934223346365050962)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/16/164936w6655j5jzkpyz9w9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (492.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 16:49 上传
+
+[X 上的 Edgar_syu：“color sketch #GQuuuuuuX #ジークアクス [url]https://t.co/pwlIRdYNPe](https://x.com/Edgar_Syu/status/1934204251905073302)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/16/165014h4hci0ub11whhc7w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 16:50 上传
+
+[X 上的 河地りん | Kawachi Rin：“rkgk ニャアン×タイのJK制服🇹🇭 #GQuuuuuuX #ジークアクス [url]https://t.co/NKp1aSfxbO](https://x.com/gingatrain814/status/1934203832067936424)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/16/164545acl6vdcucu62fgwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 16:45 上传
+
+[X 上的 Shio 🌻：“ร้านนี้ดี ค้าขายร่ำรวย 🐈‍⬛✨ [url]https://t.co/P5hjCYJkmx](https://x.com/reversiblekiss/status/1934301161705881687)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/16/164910g59vqqmjm9oo3joy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (886.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 16:49 上传
+
+[X 上的 えいくろ(お仕事募集中)：“[url]https://t.co/HEr3VZdOtE](https://x.com/a96_eikuro/status/1934177001000325546)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/16/165107q8avvwmhcoa5w82f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 16:51 上传
+
+[X 上的 れん田2：“自由 [url]https://t.co/bClFbymvFH](https://x.com/renda_GN/status/1934393085037060481)” / X[/url]
+
