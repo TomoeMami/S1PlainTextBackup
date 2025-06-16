@@ -7637,3 +7637,37 @@ https://hexed.it/
 
 彻底受不了了，纯精神折磨，这游戏可取之处怕是比尼尔2还少吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——啧  
+##### 2958#       发表于 2025-6-16 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950489&amp;ptid=1978008" target="_blank">jacket 发表于 2025-6-16 22:43</a>
+几个重要支线任务加的最多，不想满就跳过不做。</blockquote>
+问下要怎么才能看到lily的好感度？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2959#       发表于 2025-6-16 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950462&amp;ptid=1978008" target="_blank">acg_gyanc 发表于 2025-6-16 22:37</a>
+
+笑死我了，王老菊做的剑星视频第一期，封面是个简笔画的布灵布灵大屁股，结果刚才推送第二期时偶然看到这个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明明是差别歧视  你看看那些个真人的擦边一个个都活的不要太好
+
+--------------
+
+有一说一这游戏传送确实是个大问题  大地图切换非要多一步也不知道是什么技术难题
+
+*****
+
+####  Andariel  
+##### 2960#       发表于 2025-6-16 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950213&amp;ptid=1978008" target="_blank">黑耀星尘 发表于 2025-6-16 21:48</a>
+
+今天刚打完空间站后的演出还行吧，不过也太爱尼尔2了飞出来个几乎一模一样的机甲... ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个装甲的名字都和尼尔的很像
+
