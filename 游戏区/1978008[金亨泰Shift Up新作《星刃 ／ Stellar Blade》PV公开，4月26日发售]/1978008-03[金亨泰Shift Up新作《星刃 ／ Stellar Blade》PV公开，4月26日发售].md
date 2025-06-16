@@ -253,3 +253,13 @@ BOSS挑战红莲也太狠了 苇名一心啊
 
 麻了，上电梯之后连委托都接不了，最后留了一个传说之鱼做不完了
 
+
+*****
+
+####  偶滴小乔  
+##### 2987#       发表于 2025-6-17 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951102&amp;ptid=1978008" target="_blank">——啧 发表于 2025-6-17 03:02</a>
+我真是服了，去到植物园才发现有件衣服忘拿了，开无限跳跃都回不去，全是即死空气墙，什么4m玩意，这9号以 ...</blockquote>
+你甚至可以去完太空电梯回来再去9号
+
