@@ -305,3 +305,14 @@ StarLadder公告原文如下：
 </blockquote>
 这分组，faze要进决赛了
 
+
+*****
+
+####  Mimic  
+##### 4749#       发表于 2025-6-16 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945470&amp;ptid=1857369" target="_blank">icecry 发表于 2025-6-16 08:57</a>
+
+这分组，faze要进决赛了</blockquote>
+能进的话大概率三连亚，cs2唯一指定major亚军，不知道该笑还是该哭
+

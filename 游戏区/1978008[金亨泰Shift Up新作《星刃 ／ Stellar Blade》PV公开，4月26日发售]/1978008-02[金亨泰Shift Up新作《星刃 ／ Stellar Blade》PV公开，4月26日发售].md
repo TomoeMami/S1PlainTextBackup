@@ -6624,3 +6624,36 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 讲真三个主要角色一个夏娃一个亚当一个莉莉，主城叫锡安，敌人还直截了当地叫native，从世设开始就已经演都不演了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 2861#       发表于 2025-6-16 12:46
+
+<blockquote>盐星 发表于 2025-6-16 01:36
+一进大沙漠立刻感觉开始粪了……
+
+机枪和朴刀bot三人一组满地图高密度巡逻，然后这俩机器人硬度还加强了砸技 ...</blockquote>
+沙漠图是全游最差的。
+
+*****
+
+####  爱撕衣魔刃  
+##### 2862#       发表于 2025-6-16 12:47
+
+<blockquote>罐子 发表于 2025-6-16 10:30
+y1s1，这个马尾金亨泰是真的花心思去做的啊
+
+第一次见到真的能披头散发的头发，还不穿模。当千丝万缕头发散 ...</blockquote>
+这个马尾为了防穿模，做了一年多/哭笑
+
+*****
+
+####  棍机凹升龙  
+##### 2863#       发表于 2025-6-16 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945457&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-16 08:56</a>
+
+废土那个日光塔四终端那里，远处有个亮黄色可以拽过去踮脚的箱子，推到合适位置后，你稍微往远拉一点，远 ...</blockquote>
+我拉黄箱过去，结果人在上面卡黄箱和集装箱之间的小缝隙，一直处于下落状态怎么dash都出不来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后被迫读档还好只浪费了8分钟
+
