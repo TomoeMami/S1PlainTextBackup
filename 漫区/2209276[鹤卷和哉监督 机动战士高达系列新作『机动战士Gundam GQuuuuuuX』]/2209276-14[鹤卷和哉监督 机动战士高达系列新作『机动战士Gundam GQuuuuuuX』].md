@@ -1113,3 +1113,14 @@ gqux根本不知道装着alphacide有啥用。fred好歹脑门上还插着两个
 
 也可能令聯邦日後也明白大型MA用途其實不如少量精兵MS
 
+
+*****
+
+####  aptx8285144  
+##### 19315#       发表于 2025-6-16 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949595&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-6-16 19:53</a>
+
+只剩2集了，GQ一串字母能平稳落地吗</blockquote>
+在高达这种被“给予厚望”的赛道里面，跨克斯这种“平庸”或者说平常（无论是褒义还是贬义）玩法早就不可能被认同了（
+

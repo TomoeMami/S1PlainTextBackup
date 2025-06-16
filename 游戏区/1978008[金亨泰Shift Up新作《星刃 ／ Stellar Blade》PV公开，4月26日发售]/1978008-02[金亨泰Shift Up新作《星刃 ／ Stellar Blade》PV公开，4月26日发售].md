@@ -7579,3 +7579,18 @@ https://hexed.it/
 
 莉莉那个是只开衣服都会满好感吗，还是说已经拿过文档的不再拿只开零件，脊椎，衣服这些就不会满足条件了
 
+
+*****
+
+####  ——啧  
+##### 2952#       发表于 2025-6-16 22:10
+
+ 本帖最后由 ——啧 于 2025-6-16 22:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950251&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-16 21:57</a>
+摸了20小时终于进了大沙漠。。。这和荒地有什么区别。。。
+
+然后这坍塌的高级桥的绕路方式让我想起了smtvv ...</blockquote>
+区别就是地图设计更烂<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+荒地还能说是对STM5沙漠的拙劣模仿，沙漠这也就废墟区域的地图设计好点（但是怪物配置又把这个优点整回去了）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

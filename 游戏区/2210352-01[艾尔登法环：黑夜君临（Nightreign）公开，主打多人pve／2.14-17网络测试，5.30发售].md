@@ -9221,3 +9221,16 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 另外就是打死BOSS选择的词条，最最最核心的是防御反击出3个骷髅，还有就是防御反击出现圣属性爆炸，这两个要最优先选，其次就是物理减伤、血量增加、精力恢复
 
+
+*****
+
+####  modkingr  
+##### 901#       发表于 2025-6-16 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950153&amp;ptid=2210352" target="_blank">hirro 发表于 2025-6-16 21:37</a>
+
+我也刚开始研究鸟人
+
+首先我感觉延长技能时间的很有用，本身鸟人的武器属于灵性判定经常打不到怪，很多时 ...</blockquote>
+高级防御拉仇恨是个假词条，游戏里没实装吧
+
