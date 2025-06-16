@@ -856,3 +856,18 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 第十话的玛秋说的是蔷薇在哭，是谁在使用这种可怕的武器，单从这句话来看她关心的是拉拉，比起正义感可能更多的是同理心
 说极端点她可能根本不吊阿巴瓦空<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 19294#       发表于 2025-6-16 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949218&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-16 18:22</a>
+
+现在还觉得麻球没有正义感是突然加上去的是没看第一话吗
+
+麻球不是个看不惯欺软怕硬的人的话根本就不会和gqu ...</blockquote>
+那吉连和基利西亚哪边算软哪边算硬……<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+反正我是觉得“谁造出这么可怕的兵器”这句台词怪怪的，不像是番茄的台词
+

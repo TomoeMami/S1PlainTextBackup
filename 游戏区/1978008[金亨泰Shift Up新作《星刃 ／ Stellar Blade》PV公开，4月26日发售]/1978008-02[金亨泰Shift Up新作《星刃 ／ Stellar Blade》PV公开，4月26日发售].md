@@ -7298,3 +7298,21 @@ https://hexed.it/
 我是从昨天开始的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那看来不是我的问题  有点烦
 
+
+*****
+
+####  Andariel  
+##### 2924#       发表于 2025-6-16 19:24
+
+突然编译的问题试玩版遇到过一次，不过编译完就没再出现了
+
+正式版还没遇到过
+
+*****
+
+####  ——啧  
+##### 2925#       发表于 2025-6-16 19:24
+
+不是，爬了下楼发现，这游戏有三周目才能获得的衣服，而且要把第一周目的支线开过的箱子全部做完，第二周目再重新做一次，进三周目才能获得？？？？
+那进三周目不会是又要把这些支线做一次才能获得吧？<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
