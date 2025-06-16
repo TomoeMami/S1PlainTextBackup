@@ -252,3 +252,16 @@ GQ我觉得说到底还是描写年轻人（甚至青中年，比如绿叔叔）
 
 从剧本上说首先要做的是把这两个不相干的故事给裱糊上，至于有没有主观能动性，像不像是被利用完就仍的打手，这些……这些都不是剧本优先要考虑的问题
 
+
+*****
+
+####  plok201  
+##### 19261#       发表于 2025-6-16 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947499&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-16 14:18</a>
+
+卡多有主观能动性，明确的知道自己射完的后果。喵安这就拿了一串数字被告知你进去输进去按按钮，这妥妥是 ...</blockquote>
+那肯定不同的，西玛阿姨明着告诉她是催眠气体，所以真看到死人了才会发疯
+
+你喵安实打实的知道自己锁定的阿巴瓦，除非她以为自己是给阿巴瓦发射怪电波，要不锁定阿巴瓦究竟会发生啥，她这个全作最近距离观察kirakira的能不知道是咋回事？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -7064,3 +7064,43 @@ https://hexed.it/
 
 有用4060玩的坛友说说画面设置吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">进城就开始卡了
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2900#       发表于 2025-6-16 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948279&amp;ptid=1978008" target="_blank">gaiden 发表于 2025-6-16 16:00</a>
+什么这游戏竟然有地图？我刚打到希雍，扫描和奔跑我绑了背键，不然太不方便了 ...</blockquote>
+就是xion解锁的地图，ps5版其实去地下交了电池回到地面上来才会出教程告诉你触摸板上下滑动是地图和任务
+
+*****
+
+####  名居守  
+##### 2901#       发表于 2025-6-16 16:21
+
+剑星优化很简单
+该低的都低，角色细节有关的调高，环境纹理影响衣服纹理
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  五块  
+##### 2902#       发表于 2025-6-16 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948372&amp;ptid=1978008" target="_blank">unsh 发表于 2025-6-16 16:10</a>
+
+有用4060玩的坛友说说画面设置吗进城就开始卡了</blockquote>
+2070，dlss平衡，2k，人物相关高，其他中，基本能稳60。
+
+*****
+
+####  心灵的乳头  
+##### 2903#       发表于 2025-6-16 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948372&amp;ptid=1978008" target="_blank">unsh 发表于 2025-6-16 16:10</a>
+
+有用4060玩的坛友说说画面设置吗进城就开始卡了</blockquote>
+我是3060ti，图像选高，因为系统重启过一次，目前就把体积雾和阴影质量调低了1档，其他都是默认。你或者试试把显示改成无边框全屏，关掉垂直同步，帧数选择不限制看看。
+
