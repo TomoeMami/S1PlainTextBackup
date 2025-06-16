@@ -144,3 +144,14 @@
 
 —— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  h122h  
+##### 2975#       发表于 2025-6-17 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950886&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-17 00:30</a>
+
+一周目星之泪是不是只有9个根本换不完服装发型？！</blockquote>
+并没有，你去数据库就可以看到一共几个，还有照片提示。
+
