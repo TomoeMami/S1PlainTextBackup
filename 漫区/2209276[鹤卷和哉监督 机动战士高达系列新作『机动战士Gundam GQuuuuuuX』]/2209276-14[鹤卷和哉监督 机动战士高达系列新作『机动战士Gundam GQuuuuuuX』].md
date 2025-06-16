@@ -1283,3 +1283,25 @@ ma最后的高光不是冰箱打绿螳螂么
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 不是新吉翁号吗，巴上帝亲口承认不是伪鸭放水自己早死了，二号机也是干碎了菲尼克斯<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王元姬无惨  
+##### 19329#       发表于 2025-6-17 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950270&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-16 22:01</a>
+除了沒想過智力200還是300的基連會死得那麼XX外
+
+那堆魔霸可是被MS單方面屠殺，除了第一架是偷襲外，其他 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IQ240 野望里汤大基有个技能就叫这个 但他 IQ 就是2400也没改变路边一条的死法啊 原作那个汤大基比目配上一般兵的吐槽（那不总帅吗）简直喜感到飞起
+
+*****
+
+####  大十字紅朔  
+##### 19330#       发表于 2025-6-17 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950428&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-16 22:29</a>
+
+高达里的MA不都是给MS刷经验的精英怪，就没见过什么高光</blockquote>
+这楼不是反复提0083吗
+
