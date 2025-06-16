@@ -7171,3 +7171,130 @@ https://hexed.it/
 
 见鬼了 昨天还好好的 今天每次进游戏都要重新编译着色器。。咋回事 我什么设置都没动过
 
+
+*****
+
+####  darkangel0224  
+##### 2912#       发表于 2025-6-16 18:58
+
+<blockquote>unsh 发表于 2025-6-16 16:10
+有用4060玩的坛友说说画面设置吗进城就开始卡了</blockquote>
+别提了，RTX4070Ti Super剧情进城一样卡。demo帧数60还很稳，到这里暴跌到30帧，DLSS都没救回来
+
+*****
+
+####  雷攻姛人  
+##### 2913#       发表于 2025-6-16 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949366&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-16 18:55</a>
+
+见鬼了 昨天还好好的 今天每次进游戏都要重新编译着色器。。咋回事 我什么设置都没动过 ...</blockquote>
+莫慌，我今天也编译了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2914#       发表于 2025-6-16 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949382&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-16 18:58</a>
+
+莫慌，我今天也编译了</blockquote>
+？ 游戏也没更新过啊 
+
+你现在每次关游戏重开都要重新编译？
+
+*****
+
+####  alucardcz  
+##### 2915#       发表于 2025-6-16 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949380&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-16 18:58</a>
+
+别提了，RTX4070Ti Super剧情进城一样卡。demo帧数60还很稳，到这里暴跌到30帧，DLSS都没救回来 ...</blockquote>
+ 我也是4070tis 不卡啊 4k全高 体积雾低 平衡<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 2916#       发表于 2025-6-16 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949385&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-16 18:59</a>
+？ 游戏也没更新过啊 
+
+你现在每次关游戏重开都要重新编译？</blockquote>
+每次
+
+*****
+
+####  darkangel0224  
+##### 2917#       发表于 2025-6-16 19:02
+
+<blockquote>方块木偶 发表于 2025-6-16 18:07
+一周目打完发现营地成就差一个也是无语了，感觉没啥动力进二周目重新舔地图，打算整个全衣服的档看看衣服了 ...</blockquote>
+已经用风灵修改器改了跑步速度和无限跳
+
+反正就当开车了
+
+*****
+
+####  alucardcz  
+##### 2918#       发表于 2025-6-16 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949393&amp;ptid=1978008" target="_blank">heseran 发表于 2025-6-16 19:01</a>
+
+每次</blockquote>
+你也是今天开始才这样的吗
+
+*****
+
+####  雷攻姛人  
+##### 2919#       发表于 2025-6-16 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949385&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-16 18:59</a>
+？ 游戏也没更新过啊 
+
+你现在每次关游戏重开都要重新编译？</blockquote>
+每次进都编译
+
+*****
+
+####  alucardcz  
+##### 2920#       发表于 2025-6-16 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949404&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-16 19:05</a>
+
+每次进都编译</blockquote>
+也是和我一样昨天还好好的 今天突然就这样了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 2921#       发表于 2025-6-16 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949412&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-16 19:06</a>
+也是和我一样昨天还好好的 今天突然就这样了</blockquote>
+我是从昨天开始的
+
+*****
+
+####  ——啧  
+##### 2922#       发表于 2025-6-16 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945409&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2025-6-16 08:48</a>
+线性关卡都可以回去搜索
+任务板自动拒绝的纯演出，实际没任务
+需要二段跳上去的箱子是收集要素的开关，和 ...</blockquote>
+那个拒绝任务原来是演出……
+做这个的目的是什么，就为了坑玩家一把吗，写撤回委托不行吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2923#       发表于 2025-6-16 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949415&amp;ptid=1978008" target="_blank">heseran 发表于 2025-6-16 19:08</a>
+
+我是从昨天开始的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那看来不是我的问题  有点烦
+

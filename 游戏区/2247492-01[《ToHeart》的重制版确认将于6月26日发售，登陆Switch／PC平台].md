@@ -742,3 +742,34 @@ PC有汉化？
 
 官网在YouTube陆续上传新版的角色曲
 
+
+*****
+
+####  Toby_dak  
+##### 66#       发表于 2025-6-16 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948535&amp;ptid=2247492" target="_blank">bill910 发表于 2025-6-16 17:28</a>
+
+这个实体版只能买日版吧？有中文实体版吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/16/195557f19388v8f830fcm8.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (224.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 18:55 上传
+
+去官网看一下就知道的事。
+
+*****
+
+####  Toby_dak  
+##### 67#       发表于 2025-6-16 19:01
+
+<img src="https://p.sda1.dev/24/9ac7202e4a4ad9b5ef2507b8c796229b/QQ%E5%9B%BE%E7%89%8720250607000338.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=I3gQuASL3YQ](https://www.youtube.com/watch?v=I3gQuASL3YQ)
+
+试玩录像。
+
