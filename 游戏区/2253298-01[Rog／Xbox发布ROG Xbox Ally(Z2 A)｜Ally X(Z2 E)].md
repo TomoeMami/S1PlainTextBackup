@@ -58,3 +58,13 @@ Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版,
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  饭冢武也  
+##### 102#       发表于 2025-6-16 12:50
+
+我觉得比原版rog好看啊
+
+我审美有问题？
+
