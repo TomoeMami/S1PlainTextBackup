@@ -7137,3 +7137,37 @@ https://hexed.it/
 
 设计大沙漠重启日光塔的任务策划真是神人，不过前面舔图比较仔细的话，支线boss也是初见等级压制随便乱杀
 
+
+*****
+
+####  雷攻姛人  
+##### 2908#       发表于 2025-6-16 18:47
+
+这个怪躲在角落突刺出来打一下的设计，真是伤害不大，膈应度极高
+
+*****
+
+####  ladiesman802  
+##### 2909#       发表于 2025-6-16 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949327&amp;ptid=1978008" target="_blank">雷攻姛人 发表于 2025-6-16 18:47</a>
+
+这个怪躲在角落突刺出来打一下的设计，真是伤害不大，膈应度极高</blockquote>
+角落怪和捷径缝的是魂游吧
+
+*****
+
+####  jacket  
+##### 2910#       发表于 2025-6-16 18:53
+
+[https://x.com/StellarBlade/status/1934563105302097943](https://x.com/StellarBlade/status/1934563105302097943)
+<img src="https://tupian.li/images/2025/06/16/684ff77d7925c.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 2911#       发表于 2025-6-16 18:55
+
+见鬼了 昨天还好好的 今天每次进游戏都要重新编译着色器。。咋回事 我什么设置都没动过
+
