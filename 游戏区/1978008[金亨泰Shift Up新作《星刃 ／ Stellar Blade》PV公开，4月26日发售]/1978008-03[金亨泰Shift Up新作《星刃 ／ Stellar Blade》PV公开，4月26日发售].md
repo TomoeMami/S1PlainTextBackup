@@ -287,3 +287,37 @@ BOSS挑战红莲也太狠了 苇名一心啊
 
 2025-6-17 03:59 上传
 
+
+*****
+
+####  HATENA  
+##### 2989#       发表于 2025-6-17 04:27
+
+41.7小时通关了，玩下来最难绷的反而是剧情，从电梯下来之后的展开跟伏笔回收像是临时拍脑袋定的一样，还要硬挖坑等续作，好在不算喂屎也姑且对得起这几天的投入
+
+<img src="https://img.stage1st.com/forum/202506/17/041918zyjbzeqlgtn03geq.png" referrerpolicy="no-referrer">
+
+<strong>Image_1750105100379.png</strong> (29.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 04:19 上传
+
+顺便钓鱼积分换的泳衣很se，欢迎大家一起钓鱼
+
+<img src="https://img.stage1st.com/forum/202506/17/042654ezxpm8d6omdak668.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1750105557474.jpg</strong> (188.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 04:26 上传
+
+<img src="https://img.stage1st.com/forum/202506/17/042709j6d2559uc82fu862.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1750105559598.jpg</strong> (225.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 04:27 上传
+
