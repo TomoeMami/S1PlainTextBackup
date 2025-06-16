@@ -7396,3 +7396,47 @@ https://hexed.it/
 收集度只在九成纠结要不要直接先通了</blockquote>
 完全收集没有成就好像
 
+
+*****
+
+####  Andariel  
+##### 2933#       发表于 2025-6-16 20:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">把百合好感不满的结局打出来了，剩下的时间就是慢慢跑图收集享受看美少女换衣服蹦蹦跳跳的时间了
+
+*****
+
+####  FFFreddie  
+##### 2934#       发表于 2025-6-16 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949472&amp;ptid=1978008" target="_blank">——啧 发表于 2025-6-16 19:24</a>
+不是，爬了下楼发现，这游戏有三周目才能获得的衣服，而且要把第一周目的支线开过的箱子全部做完，第二周目 ...</blockquote>
+你猜对了，我在ps5上真就打了三个周目<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  11116等  
+##### 2935#       发表于 2025-6-16 20:33
+
+我草了，大沙漠404号拾荒者建议旁边的断桥是上不去的，那你放那么多炸药还专门有一段炸毁动画显示大巴车从桥上滑落下来是何意味
+
+*****
+
+####  last炫翻云覆雨  
+##### 2936#       发表于 2025-6-16 20:35
+
+已打造女性友好型游戏（索尼独占英雌）
+
+<img src="https://img.stage1st.com/forum/202506/16/203533pprdd0gd0rd3r3pe.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1750077191794.jpg</strong> (848.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 20:35 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
