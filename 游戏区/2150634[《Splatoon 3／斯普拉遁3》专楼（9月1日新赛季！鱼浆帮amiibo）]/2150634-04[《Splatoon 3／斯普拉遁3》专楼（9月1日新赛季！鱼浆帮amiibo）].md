@@ -887,3 +887,14 @@ k4Q1ac-6igoZeT3cSsg-lc.jpg
 
 这图是退潮傻逼，醋饭海洋公园的涨潮恶心
 
+
+*****
+
+####  laosai13  
+##### 5737#       发表于 2025-6-17 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67941897&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2025-6-15 14:56</a>
+
+更新几日后能下判断谁是新的版本之子了吗</blockquote>
+有种百花齐放的感觉，这次更新除了几个幽默配置（红双使落泪，虽然我不是<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）整体强度还挺好的。旧的版本顶流可能就sb泡削弱了点，铅笔电锯红桶针管啥的还都坚挺。更新后感觉两个弓和墨瀑淋算是都挺不错，新长红泡应该可以跟铅笔竞争一下环境顶流，一时还说不清谁最强。
+
