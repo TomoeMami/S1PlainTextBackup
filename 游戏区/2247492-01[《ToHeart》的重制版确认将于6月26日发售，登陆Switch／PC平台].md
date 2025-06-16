@@ -724,3 +724,13 @@ PC有汉化？
 
 高中玩的pc版，神岸明一直是我的理想择偶目标<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无敌钢人泰坦3  
+##### 64#       发表于 2025-6-16 16:37
+
+<blockquote>bill910 发表于 2025-6-16 16:28
+这个实体版只能买日版吧？有中文实体版吗？</blockquote>
+日版应该带中文
+
