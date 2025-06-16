@@ -1266,3 +1266,176 @@ cy你他m去死吧
 
 steam国际服不转区是不是玩不了啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 101#         楼主| 发表于 2025-6-16 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949841&amp;ptid=2163625" target="_blank">brook55 发表于 2025-6-16 20:34</a>
+
+steam国际服不转区是不是玩不了啊</blockquote>
+把之前事前达成和倒计时的图补下
+
+*****
+
+####  岸浪白野  
+##### 102#         楼主| 发表于 2025-6-16 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949841&amp;ptid=2163625" target="_blank">brook55 发表于 2025-6-16 20:34</a>
+
+steam国际服不转区是不是玩不了啊</blockquote>
+把之前事前达成和倒计时的图补下
+
+<img src="https://img.stage1st.com/forum/202506/16/205127sc05ukiuvz0ii90v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.63 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205308pjtfii3ydtzjibtb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.77 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205137jeuznmma4vr46ruz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205145s33g70g7ssygfvwj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.99 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205155ukgbsddfggrry3gd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205204bgaie3heggg9wgbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.66 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205213g2b2mxexrj62zc6c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.86 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205224bvvtc31s9ccq6ucy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205259puv9izbkio97900j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205321d6x2wrw0a8snuxv2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.83 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205340v5bpp7dnbjuks2sb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205352nbvq886gd6wln6z6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.93 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:53 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205403q56c5grzg8rw9sgo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205409m9h1z5c9qqpcchlz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205418tc2avd28cmghr712.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.03 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205456xmi2s82g8zsmi727.png" referrerpolicy="no-referrer">
+
+<strong>9SWH2ZZ6`I6ZBVBY~I55Z15.png</strong> (3.26 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205547fci7hdt5giiii7wt.png" referrerpolicy="no-referrer">
+
+<strong>VHA(PSPKK9E)S@R]LA54MUP.png</strong> (2.86 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205600er9gnoo5ba3qzb9u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/205611fc3lclafwcoohoac.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.22 MB, 下载次数: )
+
+下载附件
+
+2025-6-16 20:56 上传
+

@@ -976,3 +976,14 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 
 不过现在我也没时间去想为什么
 
+
+*****
+
+####  Sliurus  
+##### 19304#       发表于 2025-6-16 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949869&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-16 20:38</a>
+
+意思差不多吧</blockquote>
+爱机感觉只是又一个首席迫害梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
