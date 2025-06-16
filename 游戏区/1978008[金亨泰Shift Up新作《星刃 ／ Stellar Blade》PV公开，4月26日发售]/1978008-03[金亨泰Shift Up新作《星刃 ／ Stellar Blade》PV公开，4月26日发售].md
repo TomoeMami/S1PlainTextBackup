@@ -187,3 +187,22 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2979#       发表于 2025-6-17 01:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正我觉得只要不叫好感度叫啥都行。印象最深是有一个去7号的记忆中心找有机人类资料的任务，那个任务涨的条特别多
+
+百合那个条纯做主线不碰收集好像都能有大概60%的进度，相关的收集品大概1%到2%的进度，个别直线任务涨得多点
+
+*****
+
+####  双花红棍  
+##### 2980#       发表于 2025-6-17 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950907&amp;ptid=1978008" target="_blank">h122h 发表于 2025-6-17 00:38</a>
+并没有，你去数据库就可以看到一共几个，还有照片提示。</blockquote>
+数据就9张照片，都拿完了，到了大沙漠也没见更新啊
+
