@@ -6255,3 +6255,15 @@ B站视频教的，新手+手残用2个2级连段就行，能触发BUFF而且这
 一开始进废土，音乐和声音一卡一卡的，重启阳光塔之后音乐变了就正常了
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 2827#       发表于 2025-6-16 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945033&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-16 03:14</a>
+完了，埃奎斯9直接飞轨道天梯了，拿超级鱼饵那个委托还没做不会做不完了吧 ...</blockquote>
+之后主城回不去了，但告示板任务可以在大地图的告示板交，主城以外的任务应该不受影响。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
