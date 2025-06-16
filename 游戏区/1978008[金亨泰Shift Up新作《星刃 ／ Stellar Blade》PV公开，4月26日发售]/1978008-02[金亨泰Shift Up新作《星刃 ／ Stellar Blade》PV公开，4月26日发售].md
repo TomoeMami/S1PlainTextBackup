@@ -6562,3 +6562,14 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 任务板上有俩任务接了之后直接拒绝，这就没下文了？
 
+
+*****
+
+####  洛克萨斯  
+##### 2855#       发表于 2025-6-16 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946352&amp;ptid=1978008" target="_blank">quanlix 发表于 2025-6-16 10:54</a>
+
+任务板上有俩任务接了之后直接拒绝，这就没下文了？</blockquote>
+对，纯演出
+
