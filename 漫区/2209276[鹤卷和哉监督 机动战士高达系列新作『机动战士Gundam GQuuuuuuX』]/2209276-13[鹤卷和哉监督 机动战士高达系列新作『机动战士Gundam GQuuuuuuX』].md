@@ -17747,3 +17747,18 @@ week#10 未上榜
 鸭子只是一方面，博士说要启动防御系统，还吼了句“这就是女人掌权的下场”，可能被喵安感应到恶意，所以 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">这几天讨论的风向怎么……军人服从命令进行军事行动打击军事目标要道德审判吗，又不是轰炸了平民
 
+
+*****
+
+####  大十字紅朔  
+##### 19217#       发表于 2025-6-16 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944936&amp;ptid=2209276" target="_blank">tide777 发表于 2025-6-16 01:53</a>
+
+我在别的楼也说了我的想法，GTO就是个人认为现在最适合拉人进UC的动画，制作好，剧情大众容易接受。
+
+诶 ...</blockquote>
+那东西我只是随便看了看但是……
+
+那个动画版连高达都没出吧，怎么给新人看啊，你不要以粉丝角度去想啊
+
