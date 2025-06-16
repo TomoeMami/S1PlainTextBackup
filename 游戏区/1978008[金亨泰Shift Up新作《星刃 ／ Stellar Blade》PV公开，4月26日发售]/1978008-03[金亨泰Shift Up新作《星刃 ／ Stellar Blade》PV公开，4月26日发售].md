@@ -214,3 +214,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">什么时候出扫描优化mod或者高对比度排除伊芙mod啊
 
+
+*****
+
+####  洛克萨斯  
+##### 2982#       发表于 2025-6-17 02:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">哦草，沙漠电塔那个衣服不看攻略鬼知道要这样跳啊
+
