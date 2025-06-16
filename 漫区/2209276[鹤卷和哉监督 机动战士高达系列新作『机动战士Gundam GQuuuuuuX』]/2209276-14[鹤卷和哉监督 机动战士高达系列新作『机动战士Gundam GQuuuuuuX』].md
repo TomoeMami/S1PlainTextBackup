@@ -899,3 +899,16 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 是欺负蔷薇里的拉拉啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 麻球听到拉拉痛苦所以对把拉拉当工具用的使用尤玛恩托的人愤怒，和她第一话对军警乱拆难民房子愤怒都是一样的正义感
 
+
+*****
+
+####  newise  
+##### 19298#       发表于 2025-6-16 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949468&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-16 19:24</a>
+
+那吉连和基利西亚哪边算软哪边算硬……</blockquote>
+誰がこんな恐ろしい兵器を使ったんだ
+
+使用不是制造
+

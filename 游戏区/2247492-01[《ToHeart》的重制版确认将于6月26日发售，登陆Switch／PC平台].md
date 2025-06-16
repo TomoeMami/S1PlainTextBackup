@@ -784,3 +784,11 @@ PC有汉化？
 去官网看一下就知道的事。</blockquote>
 买了，在淘宝店买了，220多块
 
+
+*****
+
+####  bill910  
+##### 69#       发表于 2025-6-16 20:00
+
+豪华版带的BD高清动画没带中中文字幕，到时等字幕组的动画吧<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
