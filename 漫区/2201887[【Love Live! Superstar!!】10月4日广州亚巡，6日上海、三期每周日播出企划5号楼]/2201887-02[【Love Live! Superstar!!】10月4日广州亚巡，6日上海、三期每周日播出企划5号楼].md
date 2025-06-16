@@ -348,3 +348,17 @@ day1就是给二偶的，然后热度最高的mujicaday2day3都去。
 顺便和粉毛浴缸同步唐笑出来真的很好笑 ...</blockquote>
 <img src="https://img.picui.cn/free/2025/06/16/684fb9a452716.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1650#       发表于 2025-6-16 15:44
+
+ 本帖最后由 ads147147 于 2025-6-16 15:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947580&amp;ptid=2201887" target="_blank">仟音一心 发表于 2025-6-16 14:29</a></blockquote>
+《真的很恐怖 突然就拉你去当主唱 赶鸭子上架》
+弹幕：唐可可也干了
+鱼：那能一样吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
