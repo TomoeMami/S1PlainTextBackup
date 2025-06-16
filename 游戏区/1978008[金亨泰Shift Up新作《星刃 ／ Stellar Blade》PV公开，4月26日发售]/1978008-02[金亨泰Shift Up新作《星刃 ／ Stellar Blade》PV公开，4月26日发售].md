@@ -7526,3 +7526,15 @@ https://hexed.it/
 那里能上啊，就是踩着炸下来的bus上去，有一个支线任务要上那座桥</blockquote>
 能把大巴炸下来的地方有两处
 
+
+*****
+
+####  ——啧  
+##### 2946#       发表于 2025-6-16 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949816&amp;ptid=1978008" target="_blank">FFFreddie 发表于 2025-6-16 20:28</a>
+你猜对了，我在ps5上真就打了三个周目
+
+—— 来自 Sony XQ-EC72, Android 15, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太折磨了，以后直接替换完美存档算了
+

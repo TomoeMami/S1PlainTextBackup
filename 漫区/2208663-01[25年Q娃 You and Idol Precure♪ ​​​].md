@@ -2399,3 +2399,19 @@ M08.Awakening Harmony
 ズキュキスなんとか描けた…。😌
 <img src="https://p.sda1.dev/24/e17f74ed0d8ed2b846eb4044ba165bb3/20250616_145623.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1062#       发表于 2025-6-16 21:38
+
+<img src="https://img.stage1st.com/forum/202506/16/213837xjwsrwbwlc0crrsb.png" referrerpolicy="no-referrer">
+
+<strong>533E12931E890D6546C1B76D3981599F.png</strong> (88.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 21:38 上传
+
+剧场版副标题：久等了！传达给你的闪亮live！
+
