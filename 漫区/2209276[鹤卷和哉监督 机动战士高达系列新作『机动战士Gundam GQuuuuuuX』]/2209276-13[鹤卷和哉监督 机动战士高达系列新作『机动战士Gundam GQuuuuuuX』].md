@@ -17469,3 +17469,54 @@ CR锁区，日本没得看
 CR锁区，日本没得看</blockquote>
 gqx在亚马逊上可是十国语言配音29国语言字幕，高达里在播出时流媒体上就大张旗鼓搞这套，说万代不想让gqx出圈你信吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 19198#       发表于 2025-6-16 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945728&amp;ptid=2209276" target="_blank">贝恩德塔 发表于 2025-6-16 09:41</a>
+gqx在亚马逊上可是十国语言配音（但无中文）29国语言字幕，高达里在播出时流媒体上就大张旗鼓搞这套这还是 ...</blockquote>
+这个其实是amazon prime这种平台的标配，不是万代搞的
+
+cr没这实力自己搞配音
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ryanghj  
+##### 19199#       发表于 2025-6-16 10:18
+
+ 本帖最后由 ryanghj 于 2025-6-16 10:19 编辑 
+
+仔细一看是河豚，一句话没说过进来给水魔洗地<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Dr.Wondering  
+##### 19200#       发表于 2025-6-16 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946024&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-16 10:16</a>
+
+这个其实是amazon prime这种平台的标配，不是万代搞的
+
+cr没这实力自己搞配音</blockquote>
+标配也是万代搞的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 19201#       发表于 2025-6-16 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946059&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-16 10:20</a>
+标配也是万代搞的啊你指望亚马逊搞配音？亚马逊也没这种严格的规定没有十国配音就不能上吧 ...</blockquote>
+说明你从来没上过amazon prime netflix这些平台
+
+这些平台所有片都有配音
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
