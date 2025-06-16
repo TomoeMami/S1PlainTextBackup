@@ -17613,3 +17613,24 @@ gqx能上亚马逊是卡拉路径依赖，倒也不是万代的关系<img src="h
 
 2025-6-16 11:20 上传
 
+
+*****
+
+####  ryanghj  
+##### 19210#       发表于 2025-6-16 11:46
+
+ 本帖最后由 ryanghj 于 2025-6-16 11:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946448&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-6-16 11:08</a>
+
+不过我觉得哪怕以前不是，现在开始这些配音字幕也应该成为标配了，你想要真正出圈这些基本功夫每一部都不能 ...</blockquote>
+
+其实现在都是这样搞的
+
+<img src="https://img.stage1st.com/forum/202506/16/114726aezeb8woge0vpo0q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (310.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 11:47 上传
+
