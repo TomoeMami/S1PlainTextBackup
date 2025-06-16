@@ -7487,3 +7487,24 @@ https://hexed.it/
 这游戏进了太空站那个图，越玩越烦躁，又塞跳跳乐 躲激光 躲炮塔，结果我刚刚过了躲炮塔，游戏崩溃，全部重 ...</blockquote>
 那个炮塔确实蛮逆天的，一炮一个小姐姐，一打一个不吱声。好在我有修改器，锁血硬拼了
 
+
+*****
+
+####  11116等  
+##### 2942#       发表于 2025-6-16 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949934&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-16 20:52</a>
+
+那里能上啊，就是踩着炸下来的bus上去，有一个支线任务要上那座桥</blockquote>
+我开了无限连跳甚至都上不了那个桥。。。空气墙。。
+
+*****
+
+####  bm7号  
+##### 2943#       发表于 2025-6-16 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949937&amp;ptid=1978008" target="_blank">手铐君 发表于 2025-6-16 20:53</a>
+
+这游戏进了太空站那个图，越玩越烦躁，又塞跳跳乐 躲激光 躲炮塔，结果我刚刚过了躲炮塔，游戏崩溃，全部重 ...</blockquote>
+炮台一次性的，打烂就行了，不用躲。
+
