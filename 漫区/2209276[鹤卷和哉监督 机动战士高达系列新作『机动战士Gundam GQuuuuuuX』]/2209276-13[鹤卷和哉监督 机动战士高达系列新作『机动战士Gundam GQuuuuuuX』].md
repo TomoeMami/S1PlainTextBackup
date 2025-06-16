@@ -17586,3 +17586,30 @@ cr没这实力自己搞配音</blockquote>
 cr没这实力自己搞配音</blockquote>
 你就说是不是第一次这样搞吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 19208#       发表于 2025-6-16 11:18
+
+gqx能上亚马逊是卡拉路径依赖，倒也不是万代的关系<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 19209#       发表于 2025-6-16 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946448&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-6-16 11:08</a>
+
+不过我觉得哪怕以前不是，现在开始这些配音字幕也应该成为标配了，你想要真正出圈这些基本功夫每一部都不能 ...</blockquote>
+
+其实现在都是这样搞的
+
+<img src="https://img.stage1st.com/forum/202506/16/112032khnhol7hhd4mn77i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (310.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 11:20 上传
+
