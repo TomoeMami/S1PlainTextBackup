@@ -773,3 +773,14 @@ PC有汉化？
 
 试玩录像。
 
+
+*****
+
+####  bill910  
+##### 68#       发表于 2025-6-16 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949373&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-16 18:56</a>
+
+去官网看一下就知道的事。</blockquote>
+买了，在淘宝店买了，220多块
+

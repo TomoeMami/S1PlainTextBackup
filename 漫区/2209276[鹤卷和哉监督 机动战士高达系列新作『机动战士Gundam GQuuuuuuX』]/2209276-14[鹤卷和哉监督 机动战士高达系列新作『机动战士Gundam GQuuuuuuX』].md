@@ -871,3 +871,31 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 
 反正我是觉得“谁造出这么可怕的兵器”这句台词怪怪的，不像是番茄的台词
 
+
+*****
+
+####  赤黑的假面  
+##### 19295#       发表于 2025-6-16 19:53
+
+只剩2集了，GQ一串字母能平稳落地吗
+
+*****
+
+####  西瓜夜行  
+##### 19296#       发表于 2025-6-16 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949595&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-6-16 19:53</a>
+
+只剩2集了，GQ一串字母能平稳落地吗</blockquote>
+只要这段时间它给你带来的快乐是真实的，那就是平稳落地(　ﾟ 3ﾟ)
+
+*****
+
+####  盐盐盐盐盐  
+##### 19297#       发表于 2025-6-16 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949468&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-16 19:24</a>
+ 那吉连和基利西亚哪边算软哪边算硬……   </blockquote>
+是欺负蔷薇里的拉拉啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+麻球听到拉拉痛苦所以对把拉拉当工具用的使用尤玛恩托的人愤怒，和她第一话对军警乱拆难民房子愤怒都是一样的正义感
+
