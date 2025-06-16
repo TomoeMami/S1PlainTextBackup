@@ -263,3 +263,27 @@ BOSS挑战红莲也太狠了 苇名一心啊
 我真是服了，去到植物园才发现有件衣服忘拿了，开无限跳跃都回不去，全是即死空气墙，什么4m玩意，这9号以 ...</blockquote>
 你甚至可以去完太空电梯回来再去9号
 
+
+*****
+
+####  oyss  
+##### 2988#       发表于 2025-6-17 03:59
+
+不用beta和burst技把一周目红莲打死了.进度还没打第二个实验室.红莲打我基本两刀我就死.
+
+<img src="https://img.stage1st.com/forum/202506/17/035853m6k1q84ckh1tr14z.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250616_23422400000.jpg</strong> (397.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 03:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/17/035912q1ag1gd2dcmvuc1l.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250616_22153300000.jpg</strong> (377.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 03:59 上传
+
