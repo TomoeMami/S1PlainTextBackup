@@ -17449,3 +17449,23 @@ reddit榜单gqx排名
 
 MAL的用户第一大群体是美国人，第二大是东南亚人，你在网站上还能看到各种国产动画的讨论
 
+
+*****
+
+####  zakufa782  
+##### 19196#       发表于 2025-6-16 09:37
+
+<blockquote>贝恩德塔 发表于 2025-6-16 09:24
+真的吗CR和amazon prime比流量吗你最多只能说cr动画宅受众更稳定吧，日升安排上amazon prime不就是为了扩 ...</blockquote>
+CR锁区，日本没得看
+
+*****
+
+####  贝恩德塔  
+##### 19197#       发表于 2025-6-16 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945703&amp;ptid=2209276" target="_blank">zakufa782 发表于 2025-6-16 09:37</a>
+
+CR锁区，日本没得看</blockquote>
+gqx在亚马逊上可是十国语言配音29国语言字幕，高达里在播出时流媒体上就大张旗鼓搞这套，说万代不想让gqx出圈你信吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
