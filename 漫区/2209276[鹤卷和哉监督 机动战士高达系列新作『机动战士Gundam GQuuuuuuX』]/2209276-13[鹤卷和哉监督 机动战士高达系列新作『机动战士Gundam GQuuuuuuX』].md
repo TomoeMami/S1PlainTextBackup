@@ -18005,3 +18005,16 @@ week#10 未上榜
 
 同样是被坑，西马是真有罪，她扔的罐子，再怎么被坑也有罪。
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 19240#       发表于 2025-6-16 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67944465&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-15 23:15</a>
+
+突然想起夏利亞以前去木星是採礦的先行摸索團...去採氦3回來
+
+之後UC正史有沒再次提到聯邦、自護、木星歸來 ...</blockquote>
+Z的希羅克是木星歸來的男人，下一位木星歸來者要等到V鋼彈的贊斯卡爾帝國宰相了。
+
