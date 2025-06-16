@@ -1124,3 +1124,25 @@ gqux根本不知道装着alphacide有啥用。fred好歹脑门上还插着两个
 只剩2集了，GQ一串字母能平稳落地吗</blockquote>
 在高达这种被“给予厚望”的赛道里面，跨克斯这种“平庸”或者说平常（无论是褒义还是贬义）玩法早就不可能被认同了（
 
+
+*****
+
+####  Sliurus  
+##### 19316#       发表于 2025-6-16 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950270&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-16 22:01</a>
+
+除了沒想過智力200還是300的基連會死得那麼XX外
+
+那堆魔霸可是被MS單方面屠殺，除了第一架是偷襲外，其他 ...</blockquote>
+高达里的MA不都是给MS刷经验的精英怪，就没见过什么高光<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandaman7777  
+##### 19317#       发表于 2025-6-16 22:33
+
+在我看来每集都有爆点+1
+
+按照主创的尿性很可能最后两集的弹幕和流量会捅破天吧，期待再拿出点想不到的整活方式，平稳落地那么无趣的才不要呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

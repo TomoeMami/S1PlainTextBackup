@@ -7594,3 +7594,11 @@ https://hexed.it/
 
 荒地还能说是对STM5沙漠的拙劣模仿，沙漠这也就废墟区域的地图设计好点（但是怪物配置又把这个优点整回去了）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 2953#       发表于 2025-6-16 22:37
+
+笑死我了，王老菊做的剑星视频第一期，封面是个简笔画的布灵布灵大屁股，结果刚才推送第二期时偶然看到居然这个封面居然被和谐了，标题也改了，B站审核这么炫压抑么，简笔画都忍受不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
