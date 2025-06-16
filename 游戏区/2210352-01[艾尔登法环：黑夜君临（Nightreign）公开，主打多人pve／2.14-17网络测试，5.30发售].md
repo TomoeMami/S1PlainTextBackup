@@ -9150,3 +9150,21 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 恶兆初期见过两次，欺负我不会打，而且这玩意死了就失败，单人没把握一次过。
 
+
+*****
+
+####  modkingr  
+##### 895#       发表于 2025-6-16 15:49
+
+ 本帖最后由 modkingr 于 2025-6-16 15:52 编辑 
+
+日本游戏媒体对黑环steam评价达到特别好评（80％）还有报道
+
+[https://x.com/AUTOMATONJapan/status/1934467469068128256](https://x.com/AUTOMATONJapan/status/1934467469068128256)
+
+结论是好评率随着三狼通过率上升而上升
+
+内容没啥意思 但是评论好多轮荒野的 好搞笑
+
+荒野在日本这个大炎上的程度 我感觉只在FF16那里看到过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4434,3 +4434,25 @@ G商店还更新了个凤凰
 不用体力挺好，但是那个独立的行动点回起来好久啊（</blockquote>
 反正奖励是固定的，回的慢少打几盘不是挺好
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 1890#       发表于 2025-6-16 15:49
+
+先打通boss，之后慢慢再打奖励
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  光辉传递者  
+##### 1891#       发表于 2025-6-16 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946878&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-6-16 12:27</a>
+
+这特别活动开了个寂寞，1.5倍单位经验</blockquote>
+选择这两个作品应该是给新人练机体应对打活动的。
+
+那我顺手练几台Z2等着进ZZ本直接合满级ZZ也不是不行，我自己为了做角色要求一直在压打本进度（
+
