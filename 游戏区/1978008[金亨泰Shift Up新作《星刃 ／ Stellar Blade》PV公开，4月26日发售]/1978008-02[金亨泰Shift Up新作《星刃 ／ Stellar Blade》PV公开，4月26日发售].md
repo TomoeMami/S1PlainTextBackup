@@ -7376,3 +7376,23 @@ https://hexed.it/
 二周目会继承文档的收集吗？
 收集度只在九成纠结要不要直接先通了
 
+
+*****
+
+####  qixinno2  
+##### 2931#       发表于 2025-6-16 20:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">懒得费劲找了 直接通了一周目 融合了就爽那么两下么
+
+*****
+
+####  ladiesman802  
+##### 2932#       发表于 2025-6-16 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949566&amp;ptid=1978008" target="_blank">LMBS 发表于 2025-6-16 19:43</a>
+
+二周目会继承文档的收集吗？
+
+收集度只在九成纠结要不要直接先通了</blockquote>
+完全收集没有成就好像
+
