@@ -7629,3 +7629,11 @@ https://hexed.it/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉还是爆甲后的2B衣服好看
 
+
+*****
+
+####  死神香蕉  
+##### 2957#       发表于 2025-6-16 22:54
+
+彻底受不了了，纯精神折磨，这游戏可取之处怕是比尼尔2还少吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
