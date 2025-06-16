@@ -6714,3 +6714,14 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 伊芙的脸其实是白搭不同风格的衣服的，换迅驰和渡鸦就不行了
 
+
+*****
+
+####  Andariel  
+##### 2870#       发表于 2025-6-16 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947355&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-16 13:54</a>
+伊芙的脸其实是白搭不同风格的衣服的，换迅驰和渡鸦就不行了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还真是
+那两张脸配上可爱的衣服风格就有点搞
+
