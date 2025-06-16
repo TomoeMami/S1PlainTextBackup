@@ -123,3 +123,45 @@
 
 莫名其妙的mav战术一起删了，黑拳单人打就行了
 
+
+*****
+
+####  Piano-Forest  
+##### 19252#         楼主| 发表于 2025-6-16 15:16
+
+[https://x.com/aymipictures/status/1934119078677139655](https://x.com/aymipictures/status/1934119078677139655)
+<img src="https://p.sda1.dev/24/ec7b27375944febbdbc538962b2177a4/20250616_150050.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gingatrain814/status/1934203832067936424](https://x.com/gingatrain814/status/1934203832067936424)
+<img src="https://p.sda1.dev/24/3de9a4b0ff4d09131ed278ac8a51b310/20250616_150044.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nerune_j/status/1934248410867208261](https://x.com/nerune_j/status/1934248410867208261)
+<img src="https://p.sda1.dev/24/2dc7bb1aa0cd9537aae2bdf753ac1ebc/20250616_145955.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/a_iinex3/status/1932028476493832491](https://x.com/a_iinex3/status/1932028476493832491)
+<img src="https://p.sda1.dev/24/34bd169da7753cfb491a1cd126e73400/20250616_151358.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/817a003600be0b02135ec4ffbb7ca52e/20250616_151402.jpg" referrerpolicy="no-referrer">
+
+AI
+[https://x.com/aibanousagi/status/1934172469239406930](https://x.com/aibanousagi/status/1934172469239406930)
+
+マチュとコモリ少尉の日常
+<img src="https://p.sda1.dev/24/d7bd76b5d3e615fdfdab4af9cea082e3/20250616_150056.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yukikoyukiooo/status/1934104560488116514](https://x.com/yukikoyukiooo/status/1934104560488116514)
+<img src="https://p.sda1.dev/24/95b4bd428d72676e1db8ee7d9b2b1d0c/IMG_20250616_150201.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rabigan2/status/1934179402268745808](https://x.com/rabigan2/status/1934179402268745808)
+<img src="https://p.sda1.dev/24/62a8f90c5ba461554a1d3500be9890d1/20250616_150103.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 19253#       发表于 2025-6-16 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947748&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-16 14:55</a>
+
+关于这点有个有趣的假说，即喵安对修司的感情是模仿玛秋，神社里那里见识到玛秋对修司的执着之后她也想这样 ...</blockquote>
+真别解读了把，关于三小只之间的箭头，场外观众可以说是解读一次错一次，现在大家都在说牢修心中对另外两个女的无关心，别到时候下一集突然就告诉你其实牢修爱番茄爱的不行，那真是把观众的脸抽肿了。
+
