@@ -9118,3 +9118,18 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">应该给个练习场练习如何在面对boss的同时还要平a救人，基本上开黑也都死在一心二用
 
+
+*****
+
+####  雲夢淵澤  
+##### 893#       发表于 2025-6-16 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67940635&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-15 10:27</a>
+
+除了全人物赢一局以外还剩古老监牢和恶兆事件两个成就，不知道去哪找。</blockquote>
+单人出击刷人马day1。左上角刷出雷（圣）属性营地和无属性堡垒。
+
+左上角的监牢会出古龙。
+
+恶兆突袭就多玩，多玩就会碰到，全突袭没碰到就是玩的少了。
+

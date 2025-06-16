@@ -17355,3 +17355,27 @@ Side2是被吉翁灌了毒气扔下去的，她一个大难不死的难民，还
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  贝恩德塔  
+##### 19189#       发表于 2025-6-16 09:08
+
+gqx海外最好战绩无疑是红迪，不过红迪榜断层现象太明显了些，例如这周gqx第三，但是第一名猫猫有3014指数，第二名魔女与使魔就断崖式下跌到了963，gqx904，第十名就腰斩到了489<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贝恩德塔  
+##### 19190#       发表于 2025-6-16 09:12
+
+话说自从gqx播出后，泥潭就没看见有人搬这些野榜了，这是这周（四月番第十一周）红迪榜单
+
+<img src="https://img.stage1st.com/forum/202506/16/091119pk49hhccktw3kktd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1023.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 09:11 上传
+
