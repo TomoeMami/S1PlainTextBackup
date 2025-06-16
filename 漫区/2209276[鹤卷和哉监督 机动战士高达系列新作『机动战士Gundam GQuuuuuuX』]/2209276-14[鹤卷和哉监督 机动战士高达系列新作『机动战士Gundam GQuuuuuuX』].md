@@ -1210,3 +1210,20 @@ ma最后的高光不是冰箱打绿螳螂么<img src="https://static.stage1st.co
 
 —— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  plok201  
+##### 19323#       发表于 2025-6-17 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950451&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-16 22:35</a>
+
+那西马知道灌完催眠瓦斯之后side2要砸到地面上吗？
+
+—— 来自 HONOR PGT-AN10, Android 15, 鹅球 v3.5.9 ...</blockquote>
+自由心证了，因为不少吉翁下层是真砸下去才知道这作战是砸下去的，GTO有给你演到要实行了才给兰巴作战的真相
+
+镇压SIDE和不列颠作战中间也有个时间差，西玛上层给她的信息就是催眠气体镇压side2，后面扔东西又是另一回事了，side2那事因为米洛夫斯基粒子太浓，啥消息都没传出去
+
+说到底，西玛舰队就是临时工性质的，你觉得她能知道那么多？
+
