@@ -7538,3 +7538,44 @@ https://hexed.it/
 —— 来自 Sony XQ-EC72, Android 15, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太折磨了，以后直接替换完美存档算了
 
+
+*****
+
+####  黑耀星尘  
+##### 2947#       发表于 2025-6-16 21:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天刚打完空间站后的演出还行吧，不过也太爱尼尔2了飞出来个几乎一模一样的机甲...
+
+
+*****
+
+####  手铐君  
+##### 2948#       发表于 2025-6-16 21:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我也是服气，喜欢藏东西，但是地图错过了就错过了，搜了下只能去钓鱼拿，牛逼
+
+*****
+
+####  袄_偶滴小乔  
+##### 2949#       发表于 2025-6-16 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950148&amp;ptid=1978008" target="_blank">——啧 发表于 2025-6-16 21:36</a>
+这也太折磨了，以后直接替换完美存档算了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在估计要四周目了，本身现在新加衣服放在三周目了，有一个周目为了速通打be估计野外不会去探索，然后还有9号那图的衣服也跳过
+
+*****
+
+####  alucardcz  
+##### 2950#       发表于 2025-6-16 21:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">摸了20小时终于进了大沙漠。。。这和荒地有什么区别。。。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">然后这坍塌的高级桥的绕路方式让我想起了smtvv
+
+*****
+
+####  洛克萨斯  
+##### 2951#       发表于 2025-6-16 21:57
+
+莉莉那个是只开衣服都会满好感吗，还是说已经拿过文档的不再拿只开零件，脊椎，衣服这些就不会满足条件了
+
