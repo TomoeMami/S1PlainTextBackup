@@ -1305,3 +1305,19 @@ ma最后的高光不是冰箱打绿螳螂么
 高达里的MA不都是给MS刷经验的精英怪，就没见过什么高光</blockquote>
 这楼不是反复提0083吗
 
+
+*****
+
+####  88ace88  
+##### 19331#       发表于 2025-6-17 05:13
+
+<img src="https://img.stage1st.com/forum/202506/17/051258oev77zjcv8tez7va.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250617_051154.jpg</strong> (183.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 05:12 上传
+
+现在看自己当初对剧场版的评价，只能说是一叶知秋了
+
