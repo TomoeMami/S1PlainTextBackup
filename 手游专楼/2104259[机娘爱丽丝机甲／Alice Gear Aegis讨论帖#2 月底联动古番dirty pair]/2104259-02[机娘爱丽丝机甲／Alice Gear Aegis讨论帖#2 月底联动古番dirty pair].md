@@ -61,3 +61,27 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  不灭的旋律  
+##### 1487#       发表于 2025-6-16 08:22
+
+有人发现江户川赛艇场（真的赛艇场）新出的管人佐士原七海和现在的桃学校园祭活动中提到的OG名字一模一样，甚至节目的名字都带个gear。再加上之前你游出过一个品质莫名高的赛艇迷你游戏，这已经是有端联想了。
+
+<img src="https://img.stage1st.com/forum/202506/16/080912c6bb33pd6lsllvlp.jpg" referrerpolicy="no-referrer">
+
+<strong>GtTn7jqbMAEUKS9.jpg</strong> (308.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 08:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/16/080920chwt7aea7148kzza.jpg" referrerpolicy="no-referrer">
+
+<strong>GtfbpYAbEAAX_Hb.jpg</strong> (199.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 08:09 上传
+
