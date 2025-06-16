@@ -710,3 +710,18 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 给坐标的是紫婆，捞男人顶多算附带的愿望</blockquote>
 满口说着我要见修司，下集预告还是我要见修司，我看这附带愿望可真强烈啊
 
+
+*****
+
+####  psycho_Gadfly  
+##### 19281#       发表于 2025-6-16 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949073&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-16 17:47</a>
+
+绿叔叔似乎是打算第二天动手，可能四人面谈不是正式会议（看着也不像），没想到见面几分钟就结束了，计划 ...</blockquote>
+只能说本作紫婆依然下手稳准狠（0079TV爆头似乎更有冲击力，虽然死法一样有种纯真的美
+
+是我高估绿叔叔了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+
+那下一话能看到鸭子炮轰紫婆收束世界线吗？
+

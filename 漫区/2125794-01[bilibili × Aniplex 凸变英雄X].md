@@ -3707,3 +3707,16 @@ X终于正式露脸了 不过这能力有点bug啊
 
 话说这集S1怎么评价还不错的样子，我看Bangumi都已经喷起来了
 
+
+*****
+
+####  新HGCG  
+##### 315#       发表于 2025-6-16 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948166&amp;ptid=2125794" target="_blank">plazum 发表于 2025-6-16 15:48</a>
+
+女王画得挺好看的，当然小青也是
+
+话说这集S1怎么评价还不错的样子，我看Bangumi都已经喷起来了 ...</blockquote>
+都喷 什么？
+
