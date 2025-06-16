@@ -68,3 +68,23 @@ Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版,
 
 我审美有问题？
 
+
+*****
+
+####  karastar  
+##### 103#       发表于 2025-6-16 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67947017&amp;ptid=2253298" target="_blank">饭冢武也 发表于 2025-6-16 12:50</a>
+我觉得比原版rog好看啊
+
+我审美有问题？</blockquote>
+虽然但是喜欢和审美无关，能分析出为什么比rog原版好才是审美<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laputah  
+##### 104#       发表于 2025-6-16 13:07
+
+纯舒服手柄难看就难看点吧 我握普通手柄掌机五分钟背面三根手指就麻了令我不在乎外观丑不丑
+

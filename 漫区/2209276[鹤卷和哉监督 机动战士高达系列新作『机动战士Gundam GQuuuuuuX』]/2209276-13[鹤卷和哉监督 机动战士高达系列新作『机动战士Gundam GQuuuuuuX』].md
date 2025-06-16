@@ -17736,3 +17736,14 @@ week#10 未上榜
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  大十字紅朔  
+##### 19216#       发表于 2025-6-16 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946780&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-16 12:11</a>
+
+鸭子只是一方面，博士说要启动防御系统，还吼了句“这就是女人掌权的下场”，可能被喵安感应到恶意，所以 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">这几天讨论的风向怎么……军人服从命令进行军事行动打击军事目标要道德审判吗，又不是轰炸了平民
+
