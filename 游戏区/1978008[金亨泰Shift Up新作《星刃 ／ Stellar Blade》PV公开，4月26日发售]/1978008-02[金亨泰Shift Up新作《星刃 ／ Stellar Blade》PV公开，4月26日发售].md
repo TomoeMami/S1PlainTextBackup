@@ -6585,3 +6585,15 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 1、打完金刚，进入第一个城市以后还能回工地么？有个箱子当时提示需要升级辅助机器人才能开锁 ...</blockquote>
 工地那箱子就是个坑，一点有用的东西都没，掉落全是钱<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  schneehertz  
+##### 2857#       发表于 2025-6-16 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946618&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-16 11:37</a>
+工地那箱子就是个坑，一点有用的东西都没，掉落全是钱</blockquote>
+笑死，我惦记了好几张地图结果回去一开只有钱
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

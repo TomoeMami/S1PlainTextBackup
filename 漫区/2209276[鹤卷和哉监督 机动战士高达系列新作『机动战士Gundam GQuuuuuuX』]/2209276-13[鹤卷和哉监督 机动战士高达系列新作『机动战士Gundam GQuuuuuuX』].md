@@ -17666,3 +17666,40 @@ week#9 未上榜
 
 week#10 未上榜
 
+
+*****
+
+####  七七見奈波  
+##### 19212#       发表于 2025-6-16 12:00
+
+差不多点得了，搁这儿耍什么公司对不起我哥哥但架不住我哥哥就是红吊打皇族废物呢，当爱撕衣是空瓶群呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 19213#       发表于 2025-6-16 12:00
+
+第三大野榜 ac榜，gqx排名
+
+Top 10 Anime of Week
+
+week#1 未上榜
+
+week#2 未上榜
+
+week#3 未上榜
+
+week#4 未上榜
+
+week#5 未上榜
+
+week#6 未上榜
+
+week#7 未上榜
+
+week#8 未上榜
+
+week#9 未上榜
+
+week#10 未上榜
+
