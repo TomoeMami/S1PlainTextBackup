@@ -4466,3 +4466,11 @@ G商店还更新了个凤凰
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  AminGly  
+##### 1893#       发表于 2025-6-16 21:14
+
+死神的数值确实高
+

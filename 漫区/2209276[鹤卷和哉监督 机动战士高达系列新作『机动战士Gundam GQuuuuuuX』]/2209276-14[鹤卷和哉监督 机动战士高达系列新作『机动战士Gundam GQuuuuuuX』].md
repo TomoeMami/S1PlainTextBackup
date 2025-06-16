@@ -987,3 +987,28 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 意思差不多吧</blockquote>
 爱机感觉只是又一个首席迫害梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 19305#       发表于 2025-6-16 21:10
+
+ 本帖最后由 syndrome2032 于 2025-6-16 21:12 编辑 
+
+gqux怎么说也是新锐机体，白强人虽然也是高档ms也只是强人换个涂装证明是队长。
+
+就和z里骡子想法差不多，高达好但是自己只能开里克迪亚斯(最后改成了dj)。
+
+当然，gqux的机魂喜欢nt，首席不是开不了，上机也就是只能当正常机子开，不能发挥机子的全部实力。
+
+*****
+
+####  syndrome2032  
+##### 19306#       发表于 2025-6-16 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949809&amp;ptid=2209276" target="_blank">silvia 发表于 2025-6-16 20:27</a>
+话说卡多也是基连派的吧，这次是不是也噶了</blockquote>
+卡多多半和迪拉兹一起在阿巴瓦库被地月潮汐引力给撕碎了吧。
+
+不过不过外传角色在gqux应该没那么高人权，只能是猜测。
+
