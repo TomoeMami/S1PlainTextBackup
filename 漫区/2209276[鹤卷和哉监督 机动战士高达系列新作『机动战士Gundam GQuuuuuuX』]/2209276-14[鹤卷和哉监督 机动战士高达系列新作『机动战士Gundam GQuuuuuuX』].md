@@ -1196,3 +1196,17 @@ ma最后的高光不是冰箱打绿螳螂么<img src="https://static.stage1st.co
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  9β  
+##### 19322#       发表于 2025-6-16 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950246&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-16 21:55</a>
+狸猫那次可是媽媽剛剛將她進一步洗腦
+
+而且狸猫可是為了救她才將對面那位直接拍X，她是純真地認為殺人是沒 ...</blockquote>
+狸猫本来就没问题啊，脑子有病的是鹦鹉
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
