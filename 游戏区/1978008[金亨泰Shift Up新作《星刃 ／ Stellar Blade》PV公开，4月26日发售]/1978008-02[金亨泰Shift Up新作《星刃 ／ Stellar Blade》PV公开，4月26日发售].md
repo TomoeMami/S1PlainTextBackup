@@ -7056,3 +7056,11 @@ https://hexed.it/
 突进派生你可以按住y不放然后打出第一招后按x也能出，我是完美闪避反打根本用不出 ...</blockquote>
 闪避后的Y反打是要消耗beta能量的，用不出可能是没能量
 
+
+*****
+
+####  unsh  
+##### 2899#       发表于 2025-6-16 16:10
+
+有用4060玩的坛友说说画面设置吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">进城就开始卡了
+
