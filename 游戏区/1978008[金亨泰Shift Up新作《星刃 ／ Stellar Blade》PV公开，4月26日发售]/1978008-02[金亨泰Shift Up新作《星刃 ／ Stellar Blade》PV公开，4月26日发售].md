@@ -6777,3 +6777,26 @@ y1s1，这个马尾金亨泰是真的花心思去做的啊
 
 我玩了好久才知道，原来做衣服那些各种极态先进聚合物材料，地图上翻箱倒柜才能找到一些。结果在商店尼玛才卖30块一个，一瓶复活药都能换50个高级材料了，还是无限量供应 ？？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 2874#       发表于 2025-6-16 15:04
+
+沉迷通马桶中生怕漏任务，不得不说那个任务完成后问你要不要一键返回告示牌真的功能在其他游戏里是真少见。
+不过我都是接一堆支线同时一起做，肯定不会一个个去交的。<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkangel0224  
+##### 2875#       发表于 2025-6-16 15:07
+
+<blockquote>SaitoYuki 发表于 2025-6-15 22:50
+这拍照模式按拍照不会自动隐藏ui的吗，调了10分钟截了张带ui的，服了</blockquote>
+这个拍照系统搞不好还是翔尼给的技术支援，看起来是蜘蛛侠的简化版
+
+但是吧，难崩的一点还是不加光，拍不了一点
+
+<img src="https://tupian.li/images/2025/06/16/684fc0385dcb5.png" referrerpolicy="no-referrer">
+<img src="https://ttfou.com/i/2025/06/16/oxac4q.png" referrerpolicy="no-referrer">
+

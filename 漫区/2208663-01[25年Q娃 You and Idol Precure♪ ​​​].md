@@ -2339,3 +2339,63 @@ M08.Awakening Harmony
 
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">田中应该是知道什么的，下集他大概会有一些动作吧？
 
+
+*****
+
+####  Piano-Forest  
+##### 1060#         楼主| 发表于 2025-6-16 14:55
+
+◤￣￣￣￣￣￣￣￣◥
+
+　新ビジュアル解禁
+
+◣＿＿＿＿＿＿＿＿◢
+
+＃キュアズキューン と ＃キュアキッス が追加登場！！
+
+毎日開催される公演にも登場するよ♪
+
+|||◤チケット一般発売中♡◢|||
+<img src="https://p.sda1.dev/24/4b6c89c6339e7908175c2f96ac7c689d/20250616_144918.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sugimoto_mi_ho_/status/1934039687020323045](https://x.com/sugimoto_mi_ho_/status/1934039687020323045)
+
+キミとアイドルプリキュア♪
+
+19話
+
+ズキューンとキッスのデビュー回
+
+ありがとうございました。
+
+2人同時変身でした…
+
+贅沢すぎる原画を拝見できて、魅力を最大限…いや、それ以上引き出せるように頑張らせて頂きました。
+
+無事放送されて安堵しております🙇‍
+
+そして、終わり方〜〜😭
+
+来週もよろしくお願いします！🏃💨
+<img src="https://p.sda1.dev/24/a59b38985075e984896e93fd1c95be79/20250616_144848.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1061#         楼主| 发表于 2025-6-16 15:01
+
+[https://x.com/kamikitafutago/status/1934021191133700448](https://x.com/kamikitafutago/status/1934021191133700448)
+
+『キミとアイドルプリキュア♪』第19話
+
+「ふたりの誓い♪キュアズキューン＆キュアキッスデビュー！」
+<img src="https://p.sda1.dev/24/00feed9f2d9be00d74ec15ee5f4870f2/20250616_145409.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Itaoka1/status/1934038148469723502](https://x.com/Itaoka1/status/1934038148469723502)
+<img src="https://p.sda1.dev/24/828aea10e72d22f9089df681ff352f9a/20250616_145356.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kyoutsuugengo/status/1934038028126921188](https://x.com/kyoutsuugengo/status/1934038028126921188)
+
+ズキュキスなんとか描けた…。😌
+<img src="https://p.sda1.dev/24/e17f74ed0d8ed2b846eb4044ba165bb3/20250616_145623.jpg" referrerpolicy="no-referrer">
+
