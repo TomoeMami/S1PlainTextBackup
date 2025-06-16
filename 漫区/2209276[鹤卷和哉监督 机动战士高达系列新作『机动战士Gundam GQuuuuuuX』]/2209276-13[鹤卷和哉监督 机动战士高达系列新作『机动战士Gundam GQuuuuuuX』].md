@@ -17520,3 +17520,49 @@ cr没这实力自己搞配音</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Dr.Wondering  
+##### 19202#       发表于 2025-6-16 10:34
+
+ 本帖最后由 Dr.Wondering 于 2025-6-16 10:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946088&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-16 10:23</a>
+
+说明你从来没上过amazon prime netflix这些平台
+
+这些平台所有片都有配音</blockquote>
+其它语言懒得查了，gqx的英配工作是由NYAV Post负责的，NYAV Post还真是日升的英配长期合作伙伴，之前很多部没在亚马逊上线只在cr上线的作品也是NYAV Post负责的，你非要说和日升没关系？
+
+*****
+
+####  ryanghj  
+##### 19203#       发表于 2025-6-16 10:36
+
+ 本帖最后由 ryanghj 于 2025-6-16 10:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67946207&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-16 10:34</a>
+其它语言懒得查了，gqx的英配工作是由NYAV Post负责的，NYAV Post还真是日升的英配长期合作伙伴，之前很多 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">难绷，动画英配一共就那几个公司，还能玩出花来吗
+
+死打难缠真没意思，照你这么说国内引进动画配音也是制作组搞得咯
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  psycho_Gadfly  
+##### 19204#       发表于 2025-6-16 10:42
+
+没啥可说的，uc在欧美本来就路边一条，蹭uc能火？指望这个带动uc在欧美影响力只能说万代在做梦
+
+不如蹭w和铁血(
+
+*****
+
+####  ryanghj  
+##### 19205#       发表于 2025-6-16 10:42
+
+顺带之前有翻译员人在ins上泄露了12集分镜，当时打的水印就是nyav，她提了是给亚马逊打工的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
