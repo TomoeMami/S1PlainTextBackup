@@ -7508,3 +7508,21 @@ https://hexed.it/
 这游戏进了太空站那个图，越玩越烦躁，又塞跳跳乐 躲激光 躲炮塔，结果我刚刚过了躲炮塔，游戏崩溃，全部重 ...</blockquote>
 炮台一次性的，打烂就行了，不用躲。
 
+
+*****
+
+####  qixinno2  
+##### 2944#       发表于 2025-6-16 21:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个B炮塔我也以为跟沙漠的一样能打 结果打上去都不带掉血的 瞬间被秒了
+
+*****
+
+####  oyss  
+##### 2945#       发表于 2025-6-16 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949934&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-16 20:52</a>
+
+那里能上啊，就是踩着炸下来的bus上去，有一个支线任务要上那座桥</blockquote>
+能把大巴炸下来的地方有两处
+

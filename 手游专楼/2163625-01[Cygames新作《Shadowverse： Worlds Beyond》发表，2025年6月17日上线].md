@@ -1447,3 +1447,16 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 没有官方pc客户端下载只能steam或者epic？
 
+
+*****
+
+####  岸浪白野  
+##### 104#         楼主| 发表于 2025-6-16 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950008&amp;ptid=2163625" target="_blank">TheOccuria 发表于 2025-6-16 21:08</a>
+
+没有官方pc客户端下载只能steam或者epic？</blockquote>
+就是只能蒸汽和epic<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过如果想看国服的PC端，那就是只有2022年11月之前的账号才能用
+
