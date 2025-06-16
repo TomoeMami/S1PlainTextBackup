@@ -9168,3 +9168,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 荒野在日本这个大炎上的程度 我感觉只在FF16那里看到过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陛下欲反邪  
+##### 896#       发表于 2025-6-16 17:21
+
+有一说一感觉卡婊还真可以学着出个怪猎版搜打撤
+
