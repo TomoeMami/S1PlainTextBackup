@@ -689,3 +689,24 @@ EVA破、Q三冲数十亿人死得 ...</blockquote>
 唯一的 ...</blockquote>
 绿叔叔似乎是打算第二天动手，可能四人面谈不是正式会议（看着也不像），没想到见面几分钟就结束了，计划要提前进行
 
+
+*****
+
+####  Sliurus  
+##### 19279#       发表于 2025-6-16 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949022&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-16 17:38</a>
+
+我从来不在意死多少人，我只在意死人的原因能不能让我信服，这集喵安为了个臭男人启动手电筒不能让我信服 ...</blockquote>
+给坐标的是紫婆，捞男人顶多算附带的愿望
+
+
+*****
+
+####  ヒトニナル  
+##### 19280#       发表于 2025-6-16 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949081&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-16 17:49</a>
+给坐标的是紫婆，捞男人顶多算附带的愿望</blockquote>
+满口说着我要见修司，下集预告还是我要见修司，我看这附带愿望可真强烈啊
+
