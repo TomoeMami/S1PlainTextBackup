@@ -295,3 +295,13 @@ StarLadder公告原文如下：
 接下去该faze老头队滚了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icecry  
+##### 4748#       发表于 2025-6-16 08:57
+
+<blockquote>Mimic 发表于 2025-6-15 15:17
+</blockquote>
+这分组，faze要进决赛了
+
