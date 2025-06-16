@@ -1270,3 +1270,16 @@ mujica十一集也挺爆的
 舅舅说11集有大的说了三回了，搞毛啊</blockquote>
 这片情报哥有进来说过啥吗？
 
+
+*****
+
+####  g救世主高达  
+##### 19328#       发表于 2025-6-17 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950496&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-16 22:44</a>
+
+ma最后的高光不是冰箱打绿螳螂么
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+不是新吉翁号吗，巴上帝亲口承认不是伪鸭放水自己早死了，二号机也是干碎了菲尼克斯<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
