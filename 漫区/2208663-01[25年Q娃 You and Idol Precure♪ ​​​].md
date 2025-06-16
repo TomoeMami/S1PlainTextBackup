@@ -2415,3 +2415,19 @@ M08.Awakening Harmony
 
 剧场版副标题：久等了！传达给你的闪亮live！
 
+
+*****
+
+####  蒼風なな  
+##### 1063#       发表于 2025-6-16 23:51
+
+<img src="https://img.stage1st.com/forum/202506/16/235049r04p0l0llhx333h4.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250616235018.jpg</strong> (188.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 23:50 上传
+
+嗯，反差……是反差……
+
