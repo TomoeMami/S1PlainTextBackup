@@ -546,3 +546,48 @@ kirakira是传送啊</blockquote>
 
 [X 上的 れん田2：“自由 [url]https://t.co/bClFbymvFH](https://x.com/renda_GN/status/1934393085037060481)” / X[/url]
 
+
+*****
+
+####  Sliurus  
+##### 19267#       发表于 2025-6-16 17:03
+
+木马又不像弦月船那么大，真的能跑步吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的春天  
+##### 19268#       发表于 2025-6-16 17:09
+
+<blockquote>plok201 发表于 2025-6-16 16:17
+那肯定不同的，西玛阿姨明着告诉她是催眠气体，所以真看到死人了才会发疯
+
+你喵安实打实的知道自己锁定的 ...</blockquote>
+08ms外传里，运送毒气的容器没有标识，但是运输船船员已经疑神疑鬼了。 gto里明着在容器罐写着是有毒瓦斯
+
+
+*****
+
+####  Sliurus  
+##### 19269#       发表于 2025-6-16 17:13
+
+话说绿叔叔一集就完成了形象反转，第九集还是算计马秋的阴险大叔，第十集就成了亦师亦友、会袒露心声的胡子男。目前喵安还没对地球开炮，应该还有反转的余地
+
+*****
+
+####  西瓜夜行  
+##### 19270#       发表于 2025-6-16 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948723&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-16 16:52</a>
+
+X 上的 錆々【さびさび】：“10話の照れコモりん可愛かったhttps://t.co/680NW6ZsvF” / X
+
+X 上的 Edgar_s ...</blockquote>
+茄喵还有绿叔叔紫婆对枪这张很有感觉
+
+两个大人用动作的表情就非常好的表达出了差异并形成对比
+
+紫婆：你必须杀死她
+
+绿叔叔：你真的想杀死她吗
+
