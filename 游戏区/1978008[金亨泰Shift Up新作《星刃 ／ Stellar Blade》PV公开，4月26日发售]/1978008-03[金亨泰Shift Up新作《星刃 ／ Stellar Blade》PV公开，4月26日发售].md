@@ -321,3 +321,21 @@ BOSS挑战红莲也太狠了 苇名一心啊
 
 2025-6-17 04:27 上传
 
+
+*****
+
+####  elven119  
+##### 2990#       发表于 2025-6-17 07:36
+
+为什么我拍照只能自拍，而不能像你们一样自由角度？
+
+*****
+
+####  Andariel  
+##### 2991#       发表于 2025-6-17 07:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951246&amp;ptid=1978008" target="_blank">elven119 发表于 2025-6-17 07:36</a>
+为什么我拍照只能自拍，而不能像你们一样自由角度？</blockquote>
+是两个功能
+自由拍照那个按手柄rb+←能开启
+
