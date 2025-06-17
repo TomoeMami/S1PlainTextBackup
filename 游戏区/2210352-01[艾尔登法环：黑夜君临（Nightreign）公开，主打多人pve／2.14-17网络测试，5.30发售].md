@@ -9295,3 +9295,14 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 我看打完还会给一个存款加伤害的buff</blockquote>
 那个是解诅咒的BUFF
 
+
+*****
+
+####  jacket  
+##### 908#       发表于 2025-6-17 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955468&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-6-17 20:02</a>
+
+那个是解诅咒的BUFF</blockquote>
+那之前花几万解诅咒换的buff现在变白嫖，赚了呀！
+

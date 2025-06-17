@@ -1841,3 +1841,16 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 幺妮只是遇上了比她们还抽象的幺姁</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">改了吗，那集美该冲了啊
 
+
+*****
+
+####  Edward0901  
+##### 170#       发表于 2025-6-17 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954347&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:30</a>
+
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔 ...</blockquote>
+之前dota出过类似的被抵制过
+
