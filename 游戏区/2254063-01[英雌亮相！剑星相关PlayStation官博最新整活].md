@@ -1615,3 +1615,55 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 
 要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了
 
+
+*****
+
+####  剑鹰  
+##### 148#       发表于 2025-6-17 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954631&amp;ptid=2254063" target="_blank">刘伯温不博闻 发表于 2025-6-17 17:14</a>
+
+讨论的不是索尼吗？你老引到剑星身上干嘛？
+
+到底是因为真理解不了还是不忍内心的灯塔破碎了啊？ ...</blockquote>
+我是PC党，破碎个啥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所有的游戏，最后都会在PC集结！
+
+*****
+
+####  onlv星骸  
+##### 149#       发表于 2025-6-17 17:38
+
+经典话术之二:我记得xxxx不是也xxxx吗来了。
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 150#       发表于 2025-6-17 17:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这帖不是在讨论集美女拳骑在头上拉屎吗，怎么又转进到lgbt了，不带这么转移话题的吧
+
+
+*****
+
+####  名居守  
+##### 151#       发表于 2025-6-17 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954744&amp;ptid=2254063" target="_blank">uyghgyg 发表于 2025-6-17 17:34</a>
+要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了 ...</blockquote>
+近期，推主@Campster发推称，在任天堂eshop中存在有一个特殊的区域板块，名为Hidden Gems，该板块是一个定期出现的游戏列表，而现在，他发现这一板块的十一款游戏大多都涉及LGBTQ，且使用了彩虹logo，但任天堂却没有提及任何骄傲月相关的字眼。
+
+该推主还表示，他听说任天堂低级别的员工想要发起骄傲月的活动，但被上层拒绝，因此选择了这样的方式进行尝试。
+
+另一方面，他还认为该列表中的很多游戏并非“骄傲游戏”，例如《Bugsnax》是一款关于成瘾和毒品的游戏，这让LGBTQ人群十分不满。
+
+拉剑星下水不够还打算带任天堂吗
+
+*****
+
+####  头发头发  
+##### 152#       发表于 2025-6-17 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

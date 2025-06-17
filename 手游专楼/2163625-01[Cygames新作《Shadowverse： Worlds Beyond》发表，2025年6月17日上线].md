@@ -1759,3 +1759,13 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 不得不喷这傻逼到极点的UI互动  公会聊天不能加好友只能举报 小糖人走到面前也不能加好友 
 
+
+*****
+
+####  super_uni  
+##### 137#       发表于 2025-6-17 17:39
+
+过段时间资源多了就好了，还没玩看别人说2pick还没开呢，别指望kmr改了，只会越改越扣<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

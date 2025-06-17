@@ -4601,3 +4601,16 @@ FAMI通报道《SD高达G世纪 永恒》运营首月(4.16-5.15)营收突破3500
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给财团B尝到甜头以后是不是G世纪就不出单机版了
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1905#       发表于 2025-6-17 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951539&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-6-17 09:00</a>
+
+常驻攒到一井了，巴巴托斯还是沙扎比？
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+EX5过了吗，没有的话拿总帅比较实惠
+
