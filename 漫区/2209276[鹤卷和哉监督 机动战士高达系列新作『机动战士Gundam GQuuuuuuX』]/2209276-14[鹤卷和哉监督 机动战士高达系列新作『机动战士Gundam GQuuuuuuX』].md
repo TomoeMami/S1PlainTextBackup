@@ -8569,3 +8569,28 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  llysander  
+##### 20050#       发表于 2025-6-18 03:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957375&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 02:15</a>
+
+和基西利亚剧场那段至少对人物塑造是有意义的。gqx夏亚没主世界那么魔怔，甚至比裤袜脱落都正常不少。（没 ...</blockquote>
+这个gq鸭是有点场外信息的，可能看了高纬度大菊观使命感之类就冒出来了，
+
+虽然我还是觉得不对劲，鸭可能会利用但什么修正时空相信人类，那是机战里都少见的鸭<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孤狼arcueid  
+##### 20051#       发表于 2025-6-18 03:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">爬楼还有水魔姨姥窝草
+别管好活烂活都比没活儿强
+水魔那可真是<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
