@@ -8773,3 +8773,56 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  xwz  
+##### 20066#       发表于 2025-6-18 07:17
+
+gqux最棒的曲子是哪首？
+
+午夜反射肯定是最好听的吧
+
+HALO也是神中神啊
+
+Plazma也是人气歌
+
+什么叫beyond the time？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 20067#       发表于 2025-6-18 07:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957528&amp;ptid=2209276" target="_blank">downnote 发表于 2025-6-18 04:57</a>
+啊哈哈，看来卡拉弄出来的东西味道就这样吧，至少看着有乐子。而且不要光说TOP2剧情轻度啦，TOP1前面也好不 ...</blockquote>
+如果不再新增备选的话，最符合目前unknown出现规律的是别的宇宙的骡子(修司)。
+
+绿叔叔无法查到unknown的身份说明unknown可能不是这个宇宙的存在。目前唯一非gqux宇宙原生存在的只有2个，玫瑰里的拉拉和修司(骡子)。
+
+首先排除拉拉，自导自演的话还要骡子干啥。
+然后unknown发短信的时候都是马球不认识or无法接触到修司的时候。
+
+*****
+
+####  兰开夏  
+##### 20068#       发表于 2025-6-18 07:21
+
+不看着挺精彩的，发疯图的是啥
+
+*****
+
+####  syndrome2032  
+##### 20069#       发表于 2025-6-18 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957532&amp;ptid=2209276" target="_blank">Leliel 发表于 2025-6-18 05:05</a>
+所以说击垮克斯这台机体造出来是干啥的呢
+
+从最终结果来看作用是解除时间冻结唤醒玫瑰
+
+但是这么干的后果就是 ...</blockquote>
+从fred的机能来看。gqux和fred的基础功能都是一样的吧。代替红高达和玫瑰共鸣发动zeknova的必要部件。
+
