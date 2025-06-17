@@ -1565,3 +1565,14 @@ LOL和DOTA小圈子用什么话骂人那是 ...</blockquote>
 
 到底是因为真理解不了还是不忍内心的灯塔破碎了啊？
 
+
+*****
+
+####  剑鹰  
+##### 143#       发表于 2025-6-17 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954611&amp;ptid=2254063" target="_blank">wondor1111 发表于 2025-6-17 17:12</a>
+
+你个奇葩号是买的吗？抬头看看游戏区版头写的啥？</blockquote>
+S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
