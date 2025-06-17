@@ -1,0 +1,628 @@
+﻿
+*****
+
+####  银月术士329  
+##### 1#       楼主       发表于 2024-11-18 10:25
+
+ 本帖最后由 银月术士329 于 2025-6-17 10:24 编辑 
+
+<img src="https://img.stage1st.com/forum/202411/18/102934wasgsrfx5mgcpa2t.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241118102855.jpg</strong> (91.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 10:29 上传
+
+<[strong>Steam页面</strong>](https://store.steampowered.com/app/1604270/Broken_Arrow/?snr=1_7_7_151_150_1)
+
+本作20号正式发售，STEAM商店和小黑盒都能购买先锋版即刻开始游戏
+
+发售后首个DLC很可能是PLA
+
+目前美俄各四大类别的卡组全部开放，以三选二的形式供玩家组卡
+
+支持个人单排和房间组排参与到5V5的对局中，战役也已开放，目前反应存在不少BUG
+
+同时玩家也可以通过自定义房间进行三个不同难度的PvE战斗，以及自定义人数的PVP战斗
+
+LZ测试版玩了60H，整体平衡度和完成度很不错，正式版目前也是正反馈居多，早上在线一度达到3万3
+
+个人认为是这个类别的RTS在红龙之后最好玩的（比WARNO好玩，能打现代战争谁还喜欢二战冷战的老家伙呢）
+
+*****
+
+####  Steel.Haze  
+##### 2#       发表于 2024-11-18 11:27
+
+感觉大型防空导弹对上升段的拦截又高了，而且现在对战中专门盯炮迹的玩家多了，地导生存力更差了。恩，还是空射战术核弹开路的战术最稳妥。
+
+*****
+
+####  银月术士329  
+##### 3#         楼主| 发表于 2024-11-18 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719870&amp;ptid=2207291" target="_blank">Steel.Haze 发表于 2024-11-18 11:27</a>
+
+感觉大型防空导弹对上升段的拦截又高了，而且现在对战中专门盯炮迹的玩家多了，地导生存力更差了。恩，还是 ...</blockquote>
+地导和身管只要动起来其实不怕反吧 你一次P多发算了
+
+现在身管炮主要威力差 打一轮还能打光快一半弹药。。
+
+*****
+
+####  Steel.Haze  
+##### 4#       发表于 2024-11-18 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720480&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 12:35</a>
+
+地导和身管只要动起来其实不怕反吧 你一次P多发算了
+
+现在身管炮主要威力差 打一轮还能打光快一半弹药。。
+
+ ...</blockquote>
+地导这作算是好养活的。我一般弄两台连射。然后跑路。身边一般跟能防空的装甲车装点步兵以防万一。
+
+身管火炮在我看来主要是适合压制，摧毁力一般。
+
+*****
+
+####  科本学士  
+##### 5#       发表于 2024-11-18 13:09
+
+这游戏正式发售了也要全程联网吗
+
+*****
+
+####  银月术士329  
+##### 6#         楼主| 发表于 2024-11-18 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720720&amp;ptid=2207291" target="_blank">科本学士 发表于 2024-11-18 13:09</a>
+这游戏正式发售了也要全程联网吗</blockquote>
+单机应该不用，参考红蛆
+
+*****
+
+####  银月术士329  
+##### 7#         楼主| 发表于 2024-11-18 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720648&amp;ptid=2207291" target="_blank">Steel.Haze 发表于 2024-11-18 12:57</a>
+地导这作算是好养活的。我一般弄两台连射。然后跑路。身边一般跟能防空的装甲车装点步兵以防万一。
+
+身管 ...</blockquote>
+现在你买152/155身管炮的钱省一省可以上地导或者低空丢铁炸弹的飞机了….
+
+*****
+
+####  沧兰殇  
+##### 8#       发表于 2024-11-18 14:12
+
+不该叫断箭吗？<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Steel.Haze  
+##### 9#       发表于 2024-11-18 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720960&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 13:46</a>
+
+现在你买152/155身管炮的钱省一省可以上地导或者低空丢铁炸弹的飞机了….</blockquote>
+这作的防空导弹还是很有封锁力的，当然，我习惯上还是弄架便宜飞机仍铁炸弹，不要发射门槛的铁炸弹手动定位仍最好了。
+
+*****
+
+####  TTAA  
+##### 10#       发表于 2024-11-18 14:44
+
+不知道会不会有比较带感一点的战役
+
+我基本上没看到过战役做得比较好的现代战争RTS
+
+*****
+
+####  银月术士329  
+##### 11#         楼主| 发表于 2024-11-18 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721300&amp;ptid=2207291" target="_blank">Steel.Haze 发表于 2024-11-18 14:31</a>
+
+这作的防空导弹还是很有封锁力的，当然，我习惯上还是弄架便宜飞机仍铁炸弹，不要发射门槛的铁炸弹手动定 ...</blockquote>
+低飞加力突防地导不好拦的
+
+*****
+
+####  银月术士329  
+##### 12#         楼主| 发表于 2024-11-18 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721140&amp;ptid=2207291" target="_blank">沧兰殇 发表于 2024-11-18 14:12</a>
+
+不该叫断箭吗？
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打错了改了
+
+*****
+
+####  WhiteGlint  
+##### 13#       发表于 2024-11-18 15:07
+
+说起来之前测试的时候玩过战役，这游戏要怎么有效观测和清除建筑里驻扎的步兵群呢，战役的时候没有火炮
+
+单纯靠迫击炮的话效果很差，贸然上前感觉步兵班就是跟对面一换一，靠装甲车去拆经常被抹黑挨了一发AT
+
+战役第二部分解锁导弹感觉对建筑物效果也很差，倒是最后对地机丢炸弹效果倒还行
+
+*****
+
+####  Steel.Haze  
+##### 14#       发表于 2024-11-18 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721495&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 14:58</a>
+
+低飞加力突防地导不好拦的</blockquote>
+【【断箭】KAB1500/Kh35U合成巨大Kh58Ushk，空天军全新反辐射杂技】 [https://www.bilibili.com/video/BV1BqUaYmEGz/](https://www.bilibili.com/video/BV1BqUaYmEGz/)
+
+还有这种比较复杂的玩法。
+
+*****
+
+####  银月术士329  
+##### 15#         楼主| 发表于 2024-11-18 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721617&amp;ptid=2207291" target="_blank">Steel.Haze 发表于 2024-11-18 15:13</a>
+
+【【断箭】KAB1500/Kh35U合成巨大Kh58Ushk，空天军全新反辐射杂技】 https://www.bilibili.com/video/BV1 ...</blockquote>
+感觉不如全球鹰+EA6B+巡航导弹/F-35B突防 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 成本更低 
+
+*****
+
+####  Viteeee  
+##### 16#       发表于 2024-11-18 15:32
+
+有点好奇，从红龙到Warno再到这个，甚至包括什么钢铁之师等等非现代战争背景的，是不是都是同一群玩家在玩？
+
+我自认为也算是传统RTS玩得比较多的，但无论是红龙还是钢铁之师（其实还有个英雄连）不管试了几次都完全上不了手。单位多到性能完全搞不清楚、进入交战范围以后一瞬间就结束完全没有反应时间、还有整个大地图上的单位分散在几十个地方需要的时候根本找不到。各种攻略也都是上来就默认玩过前作直接开始从卡组、阵营、单位性能之类的开始讲，这类游戏到底应该咋入门？
+
+*****
+
+####  TTAA  
+##### 17#       发表于 2024-11-18 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721754&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 15:32</a>
+
+有点好奇，从红龙到Warno再到这个，甚至包括什么钢铁之师等等非现代战争背景的，是不是都是同一群玩家在玩 ...</blockquote>
+不怪你，这些游戏教程通常都和大奋一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。我玩红龙都是一边看B站教程一边自己打简单电脑入门的，不过也不知道算不算入门，我现在也只是打打困难电脑玩
+
+我觉得这些现代战争RTS的操作其实也还好，起码底层操作逻辑都是框框A过去。让我操作崩溃的有一个毛子做的叫战争号令的游戏，需要玩家从RTS到FPS两种模式切换，真正做到机枪左边移动五厘米一样细微的微操
+
+*****
+
+####  银月术士329  
+##### 18#         楼主| 发表于 2024-11-18 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721754&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 15:32</a>
+
+有点好奇，从红龙到Warno再到这个，甚至包括什么钢铁之师等等非现代战争背景的，是不是都是同一群玩家在玩 ...</blockquote>
+
+基本可以归为一个军事游戏爱好者的玩家群体吧
+
+我红龙、SD2再加几个WARNO群聊ID确实重合率能有20-50%<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+然后这帮人多半还玩过什么战雷（这个基本是100%）、SEA POWER、战斗位置太平洋、战斗任务系列这种
+
+FPS往往还玩过战术小队、武装突袭、塔科夫
+
+我几个群聊组可以把上面提过的这些游戏外加你提的英雄连包一个圆好吧，只要想打总能找到人一起打<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+这类游戏相比传统RTS不太需要运营经济，更强调对单位、地形、视野的掌控，高楼、高地、无人机，平时也不依赖什么微操和分队，纯靠SHIFT预设指令就能完成80%的操作，但剩下的20%前线交战石头剪刀布部分是最费精力的，但最轮椅最省心的办法就是当Arty NOOB 打炮和玩飞机。
+
+*****
+
+####  银月术士329  
+##### 19#         楼主| 发表于 2024-11-18 16:16
+
+ 本帖最后由 银月术士329 于 2024-11-18 16:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721962&amp;ptid=2207291" target="_blank">TTAA 发表于 2024-11-18 15:56</a>
+
+不怪你，这些游戏教程通常都和大奋一样。我玩红龙都是一边看B站教程一边自己打简单电脑入门的，不过也不 ...</blockquote>
+战争之人和地狱之门不也是这个味道<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 20#       发表于 2024-11-18 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722123&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 17:16</a>
+战争之人不也是这个味道</blockquote>
+战争号令就是偷鸡小队工作室做的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TTAA  
+##### 21#       发表于 2024-11-18 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722123&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 16:16</a>
+
+战争之人不也是这个味道</blockquote>
+对对<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，一个制作组的
+
+*****
+
+####  Viteeee  
+##### 22#       发表于 2024-11-18 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721962&amp;ptid=2207291" target="_blank">TTAA 发表于 2024-11-18 15:56</a>
+
+不怪你，这些游戏教程通常都和大奋一样。我玩红龙都是一边看B站教程一边自己打简单电脑入门的，不过也不 ...</blockquote>
+就是这种按照地形仔细布好步兵位置、设置了火线、配了侦察和防空，然后三十秒之后被不知哪来的火炮一波炸平的感觉。然后有样学样想拿火炮端对面一个阵地，我炮弹甚至还没落地居然是对面的炮弹先飞过来了……
+
+还有什么自己死贵死贵的飞机刚进场弹还没投就被点掉，对面的飞机顶着不知从哪里一发就把防空带走什么的，要是SC2这会已经在高喊妈的有图逼了。
+
+比起游戏里的内容，可能这类游戏的入门更需要从现代军事理论开始讲起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sql710  
+##### 23#       发表于 2024-11-18 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722004&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 16:01</a>
+
+基本可以归为一个军事游戏爱好者的玩家群体吧
+
+我红龙、SD2再加几个WARNO群聊ID确实重合率能有20-50%
+
+然 ...</blockquote>
+中枪了。。。我再加一个DCS。。。
+
+*****
+
+####  WhiteGlint  
+##### 24#       发表于 2024-11-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722272&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 16:34</a>
+
+就是这种按照地形仔细布好步兵位置、设置了火线、配了侦察和防空，然后三十秒之后被不知哪来的火炮一波炸 ...</blockquote>
+这游戏之前测试能玩战役一进游戏我就傻眼了，我只有装甲车，对面城里埋伏着好几辆T-62<img src="https://static.stage1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 25#       发表于 2024-11-18 17:11
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  真实之影  
+##### 26#       发表于 2024-11-18 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722272&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 16:34</a>
+
+就是这种按照地形仔细布好步兵位置、设置了火线、配了侦察和防空，然后三十秒之后被不知哪来的火炮一波炸 ...</blockquote>
+其实不需要，你这个基本上就是侦察问题
+
+玩过旧的诸如突袭之类的就知道这类游戏首先重要的问题就是侦察和视野，这点和常规RTS差别很大
+
+*****
+
+####  真实之影  
+##### 27#       发表于 2024-11-18 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722559&amp;ptid=2207291" target="_blank">afer 发表于 2024-11-18 17:11</a>
+
+你还可以看到这些人的电脑安装了如下游戏：
+
+FPS：老彩虹六号系列、SWAT系列、ARMA、红色管弦乐系列、战术 ...</blockquote>
+没错，我存的图就是这样的
+
+<img src="https://img.stage1st.com/forum/202411/18/174437pi8bpp5rp85biwgx.jpg" referrerpolicy="no-referrer">
+
+<strong>f838ef29-f15a-473a-9d05-fd2d4f054e63.jpg</strong> (263.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174434lzn7ekowet0awckw.jpg" referrerpolicy="no-referrer">
+
+<strong>b0534e79-4394-41f0-a38a-d611ef076814.jpg</strong> (248.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174435lamllca7rhk9g7jz.jpg" referrerpolicy="no-referrer">
+
+<strong>c476d057-fa9e-49cf-95cf-5b7d819ab3b0.jpg</strong> (245.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174435jm4krt9emrrkum83.jpg" referrerpolicy="no-referrer">
+
+<strong>e1214d5d-9699-4292-96c2-1b3919f4c9c2.jpg</strong> (125.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174436ip4ssk3jhyf9wzs9.jpg" referrerpolicy="no-referrer">
+
+<strong>ed343674-9b71-4c9e-8d4c-cd63cb84e557.jpg</strong> (31.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174523a0wne7y5ev227nxe.jpg" referrerpolicy="no-referrer">
+
+<strong>5c8b86c5-098f-450b-a1f9-8d84540be4f9.jpg</strong> (180.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174525n6p3ci9vrm936fl3.jpg" referrerpolicy="no-referrer">
+
+<strong>d00a9892-dd68-4f58-85f3-cd6cc7aa9ac4.jpg</strong> (153.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174524ly8dsszaaz54ppea.jpg" referrerpolicy="no-referrer">
+
+<strong>02329b44-ac7f-4ed4-a97d-e7695a4265d3.jpg</strong> (166.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174523jp5lwnr3rwaqzplq.jpg" referrerpolicy="no-referrer">
+
+<strong>9ad18044-51aa-4fe1-bdb7-77c12ce35a6f.jpg</strong> (217.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174525a2qfcfalffaohhhj.jpg" referrerpolicy="no-referrer">
+
+<strong>8836a8a4-4957-49df-9188-2b03c888d418.jpg</strong> (27.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174627om33z1k3v33m8tze.jpg" referrerpolicy="no-referrer">
+
+<strong>08d34dc3-5708-4995-a753-60e3deb9b425.jpg</strong> (195.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:46 上传
+
+<img src="https://img.stage1st.com/forum/202411/18/174628b1m919e9a1t6wx9u.jpg" referrerpolicy="no-referrer">
+
+<strong>34c9dd8c-1857-4b14-9c68-d4d50173d6fe.jpg</strong> (98.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 17:46 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| afer| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  银月术士329  
+##### 28#         楼主| 发表于 2024-11-18 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721573&amp;ptid=2207291" target="_blank">WhiteGlint 发表于 2024-11-18 15:07</a>
+
+说起来之前测试的时候玩过战役，这游戏要怎么有效观测和清除建筑里驻扎的步兵群呢，战役的时候没有火炮
+
+单 ...</blockquote>
+靠优势支援火力拆楼和精锐步兵攻楼，战役测试的时候里美军没有Raider和AirBorn 也没有巡航导弹
+
+装甲车辆也没有APS 步兵也没有烟雾弹和奔跑
+
+假如你是美军 你只需要FORCE RECON在高楼间穿梭找人 平地遇袭丢烟撤离 然后raider坐着AAVP7和有主动防御的M1A2/M2A4上去把对方Remove就行了 现在巷战美军带了马润的卡组堪称无敌 
+
+不想亲自动手也可以发送巡航导弹和海玛斯/ATACMS把对方送走
+
+*****
+
+####  Benighted  
+##### 29#       发表于 2024-11-18 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722559&amp;ptid=2207291" target="_blank">afer 发表于 2024-11-18 17:11</a>
+
+你还可以看到这些人的电脑安装了如下游戏：
+
+FPS：老彩虹六号系列、SWAT系列、ARMA、红色管弦乐系列、战术 ...</blockquote>
+电脑差不多的，不过实体没入坑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  martysama  
+##### 30#       发表于 2024-11-18 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721754&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 15:32</a>
+有点好奇，从红龙到Warno再到这个，甚至包括什么钢铁之师等等非现代战争背景的，是不是都是同一群玩家在玩 ...</blockquote>
+红龙的教程其实是同公司十多年前出的欧洲扩张，打熟了买空地一体战玩空军，再熟了再玩红龙
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  WhiteGlint  
+##### 31#       发表于 2024-11-18 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722844&amp;ptid=2207291" target="_blank">银月术士329 发表于 2024-11-18 17:49</a>
+
+靠优势支援火力拆楼和精锐步兵攻楼，战役测试的时候里美军没有Raider和AirBorn 也没有巡航导弹
+
+装甲车辆 ...</blockquote>
+学到了，原来战役里缺蛮多东西的，之前自己打战役研究的方法是先找一队AA摸树林把海岸右侧巡逻的武直点了，然后dragon一个楼一个楼的靠视野盲区把T62射爆，之后步兵班和装甲车组合起来把区域清空，后面能出空军和坦克就简单多了
+
+*****
+
+####  Satory  
+##### 32#       发表于 2024-11-18 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721754&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-18 15:32</a>
+
+有点好奇，从红龙到Warno再到这个，甚至包括什么钢铁之师等等非现代战争背景的，是不是都是同一群玩家在玩 ...</blockquote>
+其他也就算了，英雄连这么简化的系统怎么还能搞不清楚啊
+
+步兵性能基本看武器，轻机枪/步枪远，突击步枪中，冲锋枪近，基本涵盖90%以上的情况
+
+架设类的话重机枪班克步兵圈A，迫击炮克其他架设和蹲坑步兵，反坦克炮克载具
+
+车辆的话如果懒得看说明一般看炮，炮越长的一般打车厉害，炮短的打步兵架设
+
+再说了英雄连是一个被圈外人吐槽“贴脸都打不死”的游戏（被冲锋枪贴脸除外），怎么可能一瞬间就结束
+
+实在不行先从战役开始打，从控制1、2个小队入门吧
+
+*****
+
+####  Viteeee  
+##### 33#       发表于 2024-11-19 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724610&amp;ptid=2207291" target="_blank">Satory 发表于 2024-11-18 23:00</a>
+
+其他也就算了，英雄连这么简化的系统怎么还能搞不清楚啊
+
+步兵性能基本看武器，轻机枪/步枪远，突击步枪 ...</blockquote>
+确实是我没说清楚。英雄连比起那两个还是强不少了，起码单位种类没那么多、每个单位用来做什么、长处短处也很清晰。而且最重要的是单位数量就很少，七八队就已经很多了，反观钢铁之师刚开局部署就起码二十队起步……
+
+但我想说相对于单位的价值，交火之后单位死的还是太快了（借用FPS的说法应该叫TTK太短？）。比如两队人在一个点拼抢，镜头转走几秒再回来可能全队就被一个手雷/鸡尾酒/迫击炮带走了。一般的坦克交火，运气不好两炮被带走，或者直接发动机一发入魂。换成传统RTS比如星际里，一船兵便宜的要死，扔去空投被干掉眼睛都不用眨，但英雄连里被几秒钟干掉一队人、两发带走一辆坦克那是真心疼。
+
+*****
+
+####  Satory  
+##### 34#       发表于 2024-11-19 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726878&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-19 10:46</a>
+
+确实是我没说清楚。英雄连比起那两个还是强不少了，起码单位种类没那么多、每个单位用来做什么、长处短处 ...</blockquote>
+星际有200人口啊，而且没有经验值这个概念，所以兵可以随便死，只要换掉对方更高价值的单位就行。但相对的星际多线操作压力非常大，比赛里前面操作空投的时候后边的造兵开矿一刻也不能闲着
+
+换成魔兽3这种有经验值，人口也相对较少的游戏就注重得多了，拉扯保护血少的兵和回复非常重要
+
+英雄连也是直接关注在交战的部队就好了，每几秒换下一个在打的部队看一眼也不是什么难事吧
+
+*****
+
+####  真实之影  
+##### 35#       发表于 2024-11-19 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726878&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-19 10:46</a>
+
+确实是我没说清楚。英雄连比起那两个还是强不少了，起码单位种类没那么多、每个单位用来做什么、长处短处 ...</blockquote>
+因为这是军事题材，现实军事就这样，一个士兵中弹就基本丧失战斗能力了，坦克被穿甲弹击穿通常就报废了
+
+英雄连这种互相对射半分钟不死人，坦克对射4-5发才被打爆，这已经算是经过电影化的处理了，有高度游戏可玩性的和观赏性的了
+
+3代为了防止单位被秒杀还搞了伤害上限机制，就是为了保证玩家能有个操作余地在
+
+*****
+
+####  Viteeee  
+##### 36#       发表于 2024-11-19 17:28
+
+ 本帖最后由 Viteeee 于 2024-11-19 17:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66730025&amp;ptid=2207291" target="_blank">真实之影 发表于 2024-11-19 16:37</a>
+
+因为这是军事题材，现实军事就这样，一个士兵中弹就基本丧失战斗能力了，坦克被穿甲弹击穿通常就报废了
+
+ ...</blockquote>
+是的，你（和上面那位坛友）说的都没错，因为讨论已经有点跑偏了所以不是太确定要不要继续……
+
+其实其他传统RTS或多或少也有这种“做了某个操作就无事发生，没做就直接崩盘”的设计，比如AOE2远程被两三辆车子砸到也是瞬间死光、SC2里P的那个球没躲开就一下几十人口蒸发之类的。但好像一旦涉及到现代战争的题材这类操作就变得特别多，没架防空被直升机骑脸要崩、雷达没关机被反辐射一发入魂要崩、火炮射完没拉走被隔着半张图反掉要崩、APC进城看到对面架炮没及时下车要崩、步兵看着炮弹没拖走被包圆要崩，甚至飞机退场转弯角度不对被抓尾巴两发打下来也要崩。
+
+尤其像是还要关注每辆坦克后退的时候是屁股朝前还是朝后、机枪前面是不是正好有棵树挡住了火线、城里蹲步兵屋子的窗户是朝南还是朝北开、部署单位时是放在了大路上还是放歪了落在路边两米的草地上这种鸡毛蒜皮的事情，就……要考虑的东西也太多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+前面也说了，英雄连相对来说已经好很多了，红龙那堆套路是真的处理不来。
+
+*****
+
+####  真实之影  
+##### 37#       发表于 2024-11-19 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66730547&amp;ptid=2207291" target="_blank">Viteeee 发表于 2024-11-19 17:28</a>
+
+是的，你（和上面那位坛友）说的都没错，因为讨论已经有点跑偏了所以不是太确定要不要继续……
+
+其实其他 ...</blockquote>
+这类游戏算是从突袭搞出来的通病，没办法
+
+相对而言实际上操作需求量不大，只是需要的特定时机准确的操作，这块才是真正的复杂地方
+
+上面推荐战争游戏初代欧洲告急上手是最合适的，欧洲告急有个完整徐徐渐进的战役和基于关卡挑战的单位解锁机制，能逐步让玩家接触单位，就是这一代没空军只有直升机
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Viteeee| + 1|多谢，我好像库里真的有……|
+
+查看全部评分
+
+*****
+
+####  FROST1997  
+##### 38#       发表于 2024-11-26 10:57
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  magicianxu  
+##### 39#       发表于 2025-6-17 10:44
+
+可以买通行证提前解锁了，有玩到的坛友聊聊好玩吗？
+
+*****
+
+####  银月术士329  
+##### 40#         楼主| 发表于 2025-6-17 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952264&amp;ptid=2207291" target="_blank">magicianxu 发表于 2025-6-17 10:44</a>
+
+可以买通行证提前解锁了，有玩到的坛友聊聊好玩吗？</blockquote>
+在上工，组卡感觉发售版本可能美团强一点
+
+
+*****
+
+####  lDaive  
+##### 41#       发表于 2025-6-17 11:18
+
+这游戏之前是不是说可能会出zg阵营？还是我记混了
+
+
+*****
+
+####  magicianxu  
+##### 42#       发表于 2025-6-17 11:23
+
+dlc吧，据说第一个出pla
+
