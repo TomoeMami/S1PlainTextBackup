@@ -1611,3 +1611,13 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 主要这次你就算说美少女但画风质量也下降了
 
+
+*****
+
+####  zhzij111  
+##### 121#       发表于 2025-6-17 12:07
+
+这次是真没法玩，等kmr滑跪再说吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -50,3 +50,11 @@ PV5 空门苍：[https://youtu.be/3HE9ZjOAqZM](https://youtu.be/3HE9ZjOAqZM)
 呵呵呵，山祭？肠流祭！御社神作祟说是（
 <img src="https://p.sda1.dev/24/f247c96532c1d0e004b35b3fd9182573/Screenshot_20250617_113245_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 170#       发表于 2025-6-17 12:06
+
+金毛太PURE了不喜欢跳过，苍还是回来看看，虽然她又是另一种PURE。
+

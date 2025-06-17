@@ -603,3 +603,11 @@ hard难度的渡鸦是给二周目玩家打的
 
 pc版剑星的衣服已经是和谐过了？我还以为ps的和谐和pc没关系。。太坏了你索= =
 
+
+*****
+
+####  秋月孝三  
+##### 3017#       发表于 2025-6-17 12:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说幸好nexus上有部分衣服的反和谐mod
+
