@@ -1943,3 +1943,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">steam喜提差评如潮
 
+
+*****
+
+####  小黑鱼  
+##### 156#       发表于 2025-6-17 23:17
+
+邀请好友任务自己只能输入一个好友码，任务栏的20好友是只能别人邀请你吗，有点不懂这个机制<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
