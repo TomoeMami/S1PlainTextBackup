@@ -996,3 +996,11 @@ Bunige 脸都不要了，已经不是第一次了
 延期发售
 [https://www.bungie.net/7/en/News/Article/marathon_update](https://www.bungie.net/7/en/News/Article/marathon_update)
 
+
+*****
+
+####  泰坦失足  
+##### 91#       发表于 2025-6-18 03:06
+
+Fairgame+马拉松, 一起剑指2026. 必将歼灭NS2随着游戏机发售陆陆续续来的游戏, 任天堂已无可用之兵.
+
