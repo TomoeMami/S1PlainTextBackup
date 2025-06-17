@@ -6867,3 +6867,367 @@ uc什么的品鉴太多次了，能不能端下去
 
 拿b站kol孝子当参考的就不要批判姨姥了吧，最晚第七话不就该反应过味儿来了
 
+
+*****
+
+####  EFSF  
+##### 19894#       发表于 2025-6-18 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957165&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:17</a>
+
+说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪 ...</blockquote>
+因为这是一个一直在靠玩具公司以及各种喜欢这个作品的人一直补完的世界观。
+
+初代TV悉尼被砸是没有描述的，是靠同人外设逐步转正的，机体资料，世界观，细节，政治态势，都是靠动画以外的点一点点塑造起来的，动画只是基础。世界观来源于动画，但是又形成于动画以外。同时UC时间线是少有的超长命的IP了，光是一些外延设定的外延设定就能玩出花来。
+
+当你脱出主线动画，开始看外传OVA，远超其他高达的那些既唬烂又认真的设定集的时候，就会一点点觉得UC线确实不太一样了。
+
+*****
+
+####  缪斯替  
+##### 19895#       发表于 2025-6-18 01:26
+
+作为一直有点和喵安同病相怜感的观众，我还挺能get到喵安的塑造
+
+以喵安这种向来不大愿意跟人交心，身体配合先于精神沟通的人来说，跟紫婆的母女游戏可能还是逢场作戏的成分更大一点——说是紫婆笼络她，但喵安又何尝不是在配合紫婆呢……
+
+又不是傻子，一边建立在利用价值上的示好和笼络，一边是小女生处过朋友闹僵过，最后还愿意为了同一个男人再通力合作（虽然失败了），哪边的感情更真诚还是很容易判断出来的
+
+*****
+
+####  88ace88  
+##### 19896#       发表于 2025-6-18 01:26
+
+uc世界观最大的优点就是官方时间线拉的够长，所以对新作者来说有足够多的时间点和创作对象可供选择。毕竟完全抛开已有的人物/势力/故事背景的话，对大部分作者来说，也就没必要选择高达这个题材了。
+
+*****
+
+####  灵魂收割机  
+##### 19897#       发表于 2025-6-18 01:27
+
+<blockquote>罥索GFFF 发表于 2025-6-18 01:07
+水魔b站播不了盗版，铁血没人追，这就导致，实际能每周和广大观众见面的高达只有你gqx，从起点到终点全在作 ...</blockquote>
+铁血当年是同步更新官方中字的，你说啥呢。
+
+*****
+
+####  罥索GFFF  
+##### 19898#       发表于 2025-6-18 01:28
+
+<blockquote>Gaybird 发表于 2025-6-18 01:22
+别瞎说，水魔那会我也是先b站某个直播间追一遍，港澳台也是准时上的，起点和gqux到底哪里有区别？
+
+唯一 ...</blockquote>
+
+你是如此，别人是如此吗，渠道天生比别人好，用弹弹play查弹幕数的话，你跨的b站弹幕数是泥水的三倍
+
+*****
+
+####  zakufa782  
+##### 19899#       发表于 2025-6-18 01:28
+
+ 本帖最后由 zakufa782 于 2025-6-18 01:30 编辑 
+
+gqx还真有点像是没找RJ和JJ而是一票油土鳖博主来拍星战后传的感觉，小形P这几年到处拉不同的人来拍各种奇形怪状的高达也有种鲍勃艾格收购其他公司给迪士尼扩大ip库的意思在里面
+
+*****
+
+####  オルガピピック  
+##### 19900#       发表于 2025-6-18 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957087&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 01:06</a>
+
+你知道真正的原因是什么吗，是因为gqx可以bilibili的周三晚上12点钟在线看到1080p的新动画以及uc遗老本质 ...</blockquote>
+不是哥们 你别发癫发的脑子都没了 日五档的水魔楼泥潭还能搜到呢 怎么你在隔壁尼姑庵还要匿名发癫啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 19901#       发表于 2025-6-18 01:28
+
+gqux还是骗小登进来杀比较过分，绕了一大圈最后又转回骡鸭拉身上了。
+
+*****
+
+####  七里由馬  
+##### 19902#       发表于 2025-6-18 01:29
+
+修斯怕不是93两人合体。
+
+*****
+
+####  xunit  
+##### 19903#       发表于 2025-6-18 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957192&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-18 01:22</a>
+
+上集跟紫色老太婆形同母女.
+
+为了紫色老太婆啥都愿意做..
+
+这集前半段跟番茄大打出手..</blockquote>
+喵安在机子里听到紫婆的计划其实是为了和夏亚再会，从紫婆的态度中也感觉到自己只是被培养的死士，是被利用的人，所以不再对紫婆死心塌地
+
+↑这部分我能理解
+
+但好像也不至于为了麻球给紫婆一枪，你俩关系好到这种程度吗
+
+*****
+
+####  罥索GFFF  
+##### 19904#       发表于 2025-6-18 01:30
+
+<blockquote>灵魂收割机 发表于 2025-6-18 01:27
+铁血当年是同步更新官方中字的，你说啥呢。</blockquote>
+眼睛长哪里了不会看评论是吧
+
+*****
+
+####  tianshangtx  
+##### 19905#       发表于 2025-6-18 01:30
+
+感觉休斯应该是元祖的ai生成的人格啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  interzhang  
+##### 19906#       发表于 2025-6-18 01:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达也有自己的扭三而已啦，你看日本人看新三国也挺津津有味的，那大家看G夸也很正常
+
+*****
+
+####  llysander  
+##### 19907#       发表于 2025-6-18 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957155&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 01:15</a>
+
+传元祖过来可能只是为了证明修司≈阿姆罗…</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">特地炫个魔法少女变身应该有特别的含义，正好对应传过来的可能会被梦主人修正成自己认识的版本，
+
+正史拉拉只能知道这版本的高达，那个看着像元祖的东西是uc正史后代的东西可能性微存
+
+*****
+
+####  sliver1997  
+##### 19908#       发表于 2025-6-18 01:30
+
+这不就是我们钢蛋版时王么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又烂又乐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zxtree  
+##### 19909#       发表于 2025-6-18 01:31
+
+新夏亚声音还可以，台词有点中二，b格不够
+
+*****
+
+####  Nom1nee  
+##### 19910#       发表于 2025-6-18 01:31
+
+精彩，看个动画能看出发癫加哈气症状的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jackyhuang  
+##### 19911#       发表于 2025-6-18 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957205&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-6-18 01:25</a>
+我本来想说修斯=骡子跟隔壁fgo随便ooc乱套皮有什么区别
+但想起来那边早就整出过士郎=红A
+还……还是不太一 ...</blockquote>
+拿废狗来解释正好啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+GQX世界=特异点
+艾尔美斯里的拉拉=圣杯持有者，制造特异点的
+特异点放着不管会对人理造成影响
+于是为了解决特异点，召唤了英灵RX78<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+各种膜79本篇的桥段=英灵会受制于自身传说，无法克服传说结局带来的弱点<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  帆前  
+##### 19912#       发表于 2025-6-18 01:32
+
+我想通了，这两女如果最后开始大彻大悟忧天下忧人类搞大格局，反而有点假
+
+就是要那种为了渺小的感情冲动和朴素的善良一直颠到最后，横七竖八胡闹一场，反而意外的改变了世界，的感觉
+
+*****
+
+####  adretyu67.  
+##### 19913#       发表于 2025-6-18 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957226&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 01:30</a>
+
+特地炫个魔法少女变身应该有特别的含义，正好对应传过来的可能会被梦主人修正成自己认识的版本，
+
+正史拉 ...</blockquote>
+有一说一，观众也不想看到鸭子穿四郎那身上红高达吧。
+
+不就只能79面具鸭了
+
+*****
+
+####  西洛克  
+##### 19914#       发表于 2025-6-18 01:32
+
+鸭子觉得世界因为拉拉被扭曲了，需要修正。这里夏亚觉得拉拉还在gqx世界的话迟早要出大问题。而且是因为拉拉救自己才出问题的，消灭拉拉是自己的责任。
+
+修斯就有意思了，他说自己是为了终结拉拉创造的世界（也就是毁灭gqx世界）。但从和麻球以及喵安的互动看这人明显是有那么点人性的，而且很亲近newtype。我感觉这人更像吉姆王（和麻球以及喵安的互动也像伊迪安保护小孩子），为了确认gqx宇宙的新人类能否超越未来，要是能达成比主世界更好的结局就保留，不能的话，伊迪安就要发动了（悲）。
+
+另一个证据就是修斯对喵安的态度，当喵安成为杀人工具后，修斯一直在麻球身边，几乎没和喵安互动过，而伊迪安的路也是在拿起武器杀人后失去了吉姆王的庇护。
+
+*****
+
+####  Alphawalker  
+##### 19915#       发表于 2025-6-18 01:32
+
+故事还是有趣的，但是作为UCIF还是纯粹新人物新支线会更好玩
+
+真想看雷霆宙域没变成大力路传，不写那破壁南洋和尚，不被万代逼着连载的结局<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 19916#       发表于 2025-6-18 01:32
+
+<blockquote>Nom1nee 发表于 2025-6-18 01:31
+精彩，看个动画能看出发癫加哈气症状的</blockquote>
+这种事常有，别舔你那几个老人爹的皮燕子了
+
+*****
+
+####  ヒトニナル  
+##### 19917#       发表于 2025-6-18 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957226&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 01:30</a>
+特地炫个魔法少女变身应该有特别的含义，正好对应传过来的可能会被梦主人修正成自己认识的版本，
+
+正史拉 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">所以我真的想穿越到下周二看高达跨时之战第十二集，快点让我看乐子啊
+
+*****
+
+####  kokyou  
+##### 19918#       发表于 2025-6-18 01:33
+
+<blockquote>仓岛千百合 发表于 2025-6-18 01:22
+上集跟紫色老太婆形同母女.
+
+为了紫色老太婆啥都愿意做..
+
+这集前半段跟番茄大打出手..</blockquote>
+喵安是为了修斯什么都愿意做，这其中就包括听老太婆的命令，现在发现原来番茄的做法才把修斯召唤出来，又听到你老太婆不让我搞玫瑰原来也是表里不一其实为了一个男人。那老太婆要杀本来就有交情，现在又喊出修斯来的番茄，喵安下意识动手很正常吧。
+
+*****
+
+####  llysander  
+##### 19919#       发表于 2025-6-18 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957165&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:17</a>
+
+说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪 ...</blockquote>
+光看tv那就是这样
+
+要沉浸进去从各种擦屁股设定看起才会觉得有意思，再玩玩古早g世纪看看所谓器械的传承，然后再入胶门...
+
+*****
+
+####  你妈的为什么  
+##### 19920#       发表于 2025-6-18 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957149&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-18 01:14</a>
+喵安厨已经心碎了我要调理一下……我现在完全能共情母鸡卡的睦头厨</blockquote>
+待遇够好了吧 不但没死也没黑化 最后大概率包饺子好姐妹 这还不行？
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  pavelpetel  
+##### 19921#       发表于 2025-6-18 01:34
+
+<img src="https://img.stage1st.com/forum/202506/17/203410vululkai5sfnswx5.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1750181406949.jpg</strong> (59.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:34 上传
+
+*****
+
+####  大十字紅朔  
+##### 19922#       发表于 2025-6-18 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957213&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 01:28</a>
+
+你是如此，别人是如此吗，渠道天生比别人好，用弹弹play查弹幕数的话，你跨的b站弹幕数是泥水的三倍 ...</blockquote>
+B站那种游击上传最多也就10万播放
+
+不是，上一部高达比下一部高达好是正常情况，等下一部高达播出了GQ也会好起来，这是高达系列的必然发展规律
+
+这楼就不需要去扯水魔铁血了好吧
+
+*****
+
+####  逆袭的黑月  
+##### 19923#       发表于 2025-6-18 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957192&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-18 01:22</a>
+
+上集跟紫色老太婆形同母女.
+
+为了紫色老太婆啥都愿意做..
+
+这集前半段跟番茄大打出手..</blockquote>
+喵安就是哪有愿意接纳她的地方她就愿意跟着。
+
+可以说她没有任何主观意愿，从头到尾的逻辑都是想找个容纳自己的地方。
+
+只是对修司和番茄更有感情（或者憧憬）一些
+
+*****
+
+####  诸葛天霜  
+##### 19924#       发表于 2025-6-18 01:34
+
+对于我而言，关心的只是这部番对79的推导和脑洞，主角的关系性根本不是我感兴趣的内容，这就是区别<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">关键还是下集给修司和元祖的揭秘，这几集我看的可是非常爽的
+
+*****
+
+####  LOLITA  
+##### 19925#       发表于 2025-6-18 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956504&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-17 23:57</a>
+
+实在太搞了，为了这碟醋包的饺子
+
+所以女主女二真就湿件，无论是穿越剧还是吉翁内斗剧都跟她俩没关系 ...</blockquote>
+错了，女主女二一个是庵野化身一个是鹤卷化身
+
+真正的骡子梦男MAV二人组<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nom1nee  
+##### 19926#       发表于 2025-6-18 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957240&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 01:32</a>
+
+这种事常有，别舔你那几个老人爹的皮燕子了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">乐，石砸狗叫了
+
