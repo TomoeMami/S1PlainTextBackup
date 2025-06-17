@@ -1513,3 +1513,23 @@ BEYOND THE TIME 2025
 
 boss是牛高达吧，毕竟沙扎比都被上篮了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 19351#       发表于 2025-6-17 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952602&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-17 11:24</a>
+
+要是11集就BYD时间了，那12集该演些啥
+
+—— 来自 HUAWEI ELS-AN10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+哦没得多（鼓掌）
+
+*****
+
+####  猪突猛进R  
+##### 19352#       发表于 2025-6-17 11:42
+
+来猜GQX的机魂吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
