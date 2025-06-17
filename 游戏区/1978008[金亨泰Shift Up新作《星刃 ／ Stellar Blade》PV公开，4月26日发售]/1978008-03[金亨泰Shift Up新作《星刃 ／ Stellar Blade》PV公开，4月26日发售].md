@@ -771,3 +771,11 @@ Sb索尼是真会帮倒忙。
 无论是2代的红衣少女还是1代重制版新加的那棵树的双子管理员，都是幼态体型的人类形象
 当然红衣少女的配音是大叔那就是另外一回事儿了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3033#       发表于 2025-6-17 15:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">抄尼尔为啥不能无人机自己开枪，伊芙拔枪还要瞄准射击手感超级差，特别是打妮姬dlc，准星飘的离谱
+
