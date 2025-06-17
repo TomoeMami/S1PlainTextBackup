@@ -808,3 +808,11 @@ PC有汉化？
 
 Demo试玩6月19日上线
 
+
+*****
+
+####  Toby_dak  
+##### 72#       发表于 2025-6-17 22:20
+
+<img src="https://p.sda1.dev/25/f418f3738508a8438616a58ae67bd55f/キャプチャ.JPG" id="aimg_xxC39" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

@@ -2431,3 +2431,19 @@ M08.Awakening Harmony
 
 嗯，反差……是反差……
 
+
+*****
+
+####  modedd  
+##### 1064#       发表于 2025-6-17 22:15
+
+后知后觉，这集这个记者的人设有些过于中性了吧，去年犬q也有这么一位几乎无法只靠外表分辨性别的路人大姐姐（？）来着<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/17/221442czdxxggrr1zqp9xp.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-06-15_07-41-09.png</strong> (271.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 22:14 上传
+
