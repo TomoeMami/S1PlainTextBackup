@@ -8607,3 +8607,17 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 虽然我还是觉得不对劲，鸭可能 ...</blockquote>
 看过Z3部曲的鸭<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤狼arcueid  
+##### 20053#       发表于 2025-6-18 03:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957481&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 03:21</a>
+这个gq鸭是有点场外信息的，可能看了高纬度大菊观使命感之类就冒出来了，
+
+虽然我还是觉得不对劲，鸭可能 ...</blockquote>
+<img src="https://p.sda1.dev/25/7631e423f980ea76399b9412b22a19a8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
