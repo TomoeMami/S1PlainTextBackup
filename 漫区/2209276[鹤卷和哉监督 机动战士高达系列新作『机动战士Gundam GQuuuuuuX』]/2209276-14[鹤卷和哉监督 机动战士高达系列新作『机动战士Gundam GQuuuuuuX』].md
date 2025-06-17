@@ -2208,3 +2208,19 @@ short edition？有没有long version
 這鼓點真舒服~</blockquote>
 那太好了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  失落之翼  
+##### 19424#       发表于 2025-6-17 17:45
+
+如果说是贝子，那骡鸭男男生子我都信<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孤舟垂钓  
+##### 19425#       发表于 2025-6-17 17:53
+
+真漫威宇宙了啊，改写UC史，各种剧本用平行世界的概念交叉引用
+

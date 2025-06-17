@@ -1667,3 +1667,49 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 153#       发表于 2025-6-17 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953336&amp;ptid=2254063" target="_blank">小学生把持不住 发表于 2025-6-17 13:35</a>
+
+不是我想洗，这游戏除了卖雌还有什么，其它部分设计完全是小白瞎捣鼓的灾难性无聊，以前索尼还宣称这是优质 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般通过罐头游戏不都是这个评价，索索地平线两作加起来卖了3KW那系统是很玄奥嘛
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说因为更女性友好所以40%的PS5女用户发力了.
+
+*****
+
+####  emmerMK2  
+##### 154#       发表于 2025-6-17 17:47
+
+怎么冒出个傻逼理客中在这儿打滚
+
+*****
+
+####  昆仑之巅  
+##### 155#         楼主| 发表于 2025-6-17 17:49
+
+典中典配重论之“xx也干了”，话说嗦嗦和OP话术重合程度怎么这么高？
+
+
+*****
+
+####  ubiquity  
+##### 156#       发表于 2025-6-17 17:50
+
+“英雌”这种表述明明是拳怎么有人硬要往lgbt上拐
+
+*****
+
+####  弁天  
+##### 157#       发表于 2025-6-17 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954744&amp;ptid=2254063" target="_blank">uyghgyg 发表于 2025-6-17 17:34</a>
+
+要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了 ...</blockquote>
+图都没有张嘴就是谣？
+
+怪不得造NS2的谣狗这么熟练<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

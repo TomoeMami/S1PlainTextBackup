@@ -4614,3 +4614,11 @@ FAMI通报道《SD高达G世纪 永恒》运营首月(4.16-5.15)营收突破3500
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
 EX5过了吗，没有的话拿总帅比较实惠
 
+
+*****
+
+####  dio999  
+##### 1906#       发表于 2025-6-17 17:48
+
+死神不论游戏强度本身就是高人气机体，有人喜欢抽不奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
