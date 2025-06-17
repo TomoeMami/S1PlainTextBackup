@@ -350,3 +350,15 @@ BOSS挑战红莲也太狠了 苇名一心啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  naclken.  
+##### 2993#       发表于 2025-6-17 08:22
+
+序章完成打败金刚都没吃什么苦<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+但是按照这个打法想要看处决动画是没戏了
+
+正经人谁弹得过来啊
+
