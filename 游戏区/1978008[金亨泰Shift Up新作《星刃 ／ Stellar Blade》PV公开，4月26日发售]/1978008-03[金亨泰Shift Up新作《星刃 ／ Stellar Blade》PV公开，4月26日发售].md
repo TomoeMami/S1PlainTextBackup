@@ -1287,3 +1287,21 @@ DLC开着，不过前面这个锁定是啥意思，会不会有影响
 
 妈的晚上脑子刚被鹤卷哥哥雷普过，打结局出来个裸男把我看呆了
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 3083#       发表于 2025-6-18 03:48
+
+新服装要打三周目，瞬间失去动力<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 3084#       发表于 2025-6-18 03:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957355&amp;ptid=1978008" target="_blank">faxiajin 发表于 2025-6-18 02:09</a>
+
+越打越火大，说到底这红莲的难度至少有一半就要归功于这B游戏的狗屎闪避上，说是所有带闪避的游戏里做的最 ...</blockquote>
+大旋风后是两次不可防御攻击,黄光之后按闪避, 红莲手会再闪一次紫光,闪出来同时按闪避. 时机只能靠背.
+
