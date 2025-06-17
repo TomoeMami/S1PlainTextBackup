@@ -2470,3 +2470,23 @@ ps5是不是没有汉化mod可以打，傻逼机翻官方有处理吗
 
 兄弟们，老滚4重制版值得买吗？
 
+
+*****
+
+####  ParadiseMartyr  
+##### 256#       发表于 2025-6-17 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954036&amp;ptid=2249871" target="_blank">AstraZeneca 发表于 2025-6-17 15:37</a>
+兄弟们，老滚4重制版值得买吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">买来玩了十个小时放置了。画面肯定比老滚5好，但是游戏内核还是原来那个老游戏，玩着肯定不如老滚5舒服。
+找人借个pgp先玩个几小时，如果觉得自己玩的下去，再考虑买不买吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  爱护动物抓根宝  
+##### 257#       发表于 2025-6-17 16:48
+
+终于有空继续玩了，这傻逼汉化bug可算修好了，就是怎么感觉掉帧比首发还严重。
+

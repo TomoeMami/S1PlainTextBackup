@@ -795,3 +795,23 @@ Sb索尼是真会帮倒忙。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">跳跳乐摔死从十万八千里外复活是不是有点过分了  
 
+
+*****
+
+####  darkangel0224  
+##### 3036#       发表于 2025-6-17 16:47
+
+<blockquote>蓝鸥之魂 发表于 2025-6-17 10:07
+为啥伊芙的手的颜色跟她其他部位皮肤的颜色完全不一样啊，是官方的就这样还是有什么设置上的问题 ...</blockquote>
+都说了拍照要打光啊，要打光，不然就是这个样子
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 3037#       发表于 2025-6-17 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952782&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-17 11:50</a>
+pc版剑星的衣服已经是和谐过了？我还以为ps的和谐和pc没关系。。太坏了你索= = ...</blockquote>
+和谐过，不含换色的话算两个衣服，当时老金自己跳出来说他他的。比较抽象的是过了一段时间老金又出来说我把被和谐的衣服做成了不和谐的新泳装又免费更新送给大家
+

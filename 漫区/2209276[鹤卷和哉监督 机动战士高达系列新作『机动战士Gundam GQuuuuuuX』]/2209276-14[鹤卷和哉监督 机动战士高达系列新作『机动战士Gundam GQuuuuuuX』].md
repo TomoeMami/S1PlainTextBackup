@@ -2149,3 +2149,11 @@ CCA剧场版哪儿来的贝子，倩子还差不多<img src="https://static.stag
 那我还是比较希望能中彩票（中它几个小目标然后买下卡拉把这帮人都炒了） ...</blockquote>
 痞子这种版权暴君，你抢不走版权的，只能拿他们的童年ip要挟他们就范，快去收购圆谷把，这样痞子会向你土下座求你把归曼的版权给他拍（
 
+
+*****
+
+####  岸浪白野  
+##### 19418#       发表于 2025-6-17 16:52
+
+【【宇宙基曲2025】BEYOND THE TIME 2025 Short Edit 全曲试听！】 [https://www.bilibili.com/video/BV17oNvzfEgA/](https://www.bilibili.com/video/BV17oNvzfEgA/)
+

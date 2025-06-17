@@ -1400,3 +1400,51 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 
 有人吹狗哨被纷纷反对，理客中跳出来表示从学术上讨论这狗哨自古有之<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剑鹰  
+##### 130#       发表于 2025-6-17 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954407&amp;ptid=2254063" target="_blank">wondor1111 发表于 2025-6-17 16:42</a>
+
+撸狗和刀狗互相侮辱对面英雌，原皮羞辱皱皮鹰雌，这么有攻击性的称呼你觉着没就没啊。以后见面就喊你个奇 ...</blockquote>
+我不玩LOL也不玩DOTA<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wondor1111  
+##### 131#       发表于 2025-6-17 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954425&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:46</a>
+
+我不玩LOL也不玩DOTA</blockquote>
+你个奇葩不能活用百度吗？你说你不玩你又不了解详情，闷个头我认为我觉着然后找喷，觉着自己上网环境太好了吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱马仕不爱生活  
+##### 132#       发表于 2025-6-17 16:50
+
+好了，都删干净了，准备开岁
+
+*****
+
+####  银川智将Kuroky  
+##### 133#       发表于 2025-6-17 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954347&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:30</a>
+
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔 ...</blockquote>
+03年注册，按正常年纪推算也是奔五开始畅想退休生活的年龄了为什么还这么魔怔智障
+
+*****
+
+####  脚本水平  
+##### 134#       发表于 2025-6-17 16:55
+
+楼里这位大概和有人一口一个zng，然后有人跳出来说“不就是宅男哥吗，哪有攻击性”这种情况差不多
+
