@@ -735,3 +735,13 @@ Sb索尼是真会帮倒忙。
 这游戏一周目支线全清大概要多久啊？最近新游有点多，玩不过来了</blockquote>
 30小时-40小时左右
 
+
+*****
+
+####  HellMaster  
+##### 3030#       发表于 2025-6-17 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953489&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-17 14:05</a>
+动作游戏就没必要开帧生成把，我记得剑星都没光追。。。猴子我开光追才需要帧生成，玩到三周目也没问题， ...</blockquote>
+这游戏dlaa都能玩，根本不需要dlss
+
