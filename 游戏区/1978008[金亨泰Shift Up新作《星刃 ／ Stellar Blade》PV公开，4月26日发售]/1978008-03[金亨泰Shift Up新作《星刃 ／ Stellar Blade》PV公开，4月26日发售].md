@@ -435,3 +435,15 @@ BOSS挑战红莲也太狠了 苇名一心啊
 还说渡鸦bgm只有前一分钟好听呢</blockquote>
 hard难度的渡鸦是给二周目玩家打的
 
+
+*****
+
+####  永远的访客  
+##### 3000#       发表于 2025-6-17 09:20
+
+分支任务提示做得不能行，昨天接了那个小孩和店长爸爸闹矛盾要去扔宝物的任务，“废弃集装箱场”根本不知道是指哪里，大峡谷里的船遗址里有一堆集装箱，机器人隐藏地也看着像是藏垃圾的地方，地图上还有一大片垃圾区，来回传送了半天才意外因为触发剧情对话找到方向。另外还有好几个任务也是接完后压根不出现在清单里，还得凭数据库记录提示<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外昨天终于找齐蝴蝶了，最后2个没有2段跳根本做不了，还好我中途放弃先去主线了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+有心的话可以整理一下，这游戏分支任务又多又互相重合，2周目顺序合理的话可以节约大把时间<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

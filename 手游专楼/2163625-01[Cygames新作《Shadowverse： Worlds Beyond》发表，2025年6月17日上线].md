@@ -1539,3 +1539,16 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 — from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  凉良  
+##### 113#       发表于 2025-6-17 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951540&amp;ptid=2163625" target="_blank">super_uni 发表于 2025-6-17 09:00</a>
+
+我看马娘又氪又肝也没完蛋啊，还新开了个原始人版本的国际服，相对良心的弹珠反而第一个死了
+
+— from OPPO ...</blockquote>
+弹珠是说弹射吗 弹射那一堆烂活不死没天理
+
