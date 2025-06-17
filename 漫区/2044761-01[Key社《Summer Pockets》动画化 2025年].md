@@ -92,3 +92,11 @@ PV5 空门苍：[https://youtu.be/3HE9ZjOAqZM](https://youtu.be/3HE9ZjOAqZM)
 
 粉毛老妹看喊错主角那句话也暗示身份了？
 
+
+*****
+
+####  astrayveller  
+##### 175#       发表于 2025-6-17 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">高森这声线真的好听
+

@@ -2596,3 +2596,13 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 感觉第十集后同人更多了，不知道是不是错觉
 
+
+*****
+
+####  Sliurus  
+##### 19440#       发表于 2025-6-17 20:46
+
+因为GQ的风评莫名想到了（凉宫春日）团长，所以重温了一下，结果阿虚吐槽电影里的一段给我整笑了“两个人从相遇到敌对的过程，由于一些原因只能交给观众自行想象。如果大家能大概察觉到本作的演出方针的话，那就再好不过了”<img src="https://static.stage1st.com/image/smiley/carton2017/105.png" referrerpolicy="no-referrer">
+
+如果鹤卷是16岁jk的话，大家都会原谅他吧
+

@@ -1831,3 +1831,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 冰菓任务里头那个什么编辑海报是啥玩意。</blockquote>
 去空间里 换个海报 空间在乐园选项旁边
 
+
+*****
+
+####  olkzdf  
+##### 145#       发表于 2025-6-17 20:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">斧王对砍的结果就是打得和2pick一样，基本把把都能10费，5分钟对局什么的不存在的
+
