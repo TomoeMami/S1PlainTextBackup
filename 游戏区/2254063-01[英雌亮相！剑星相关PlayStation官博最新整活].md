@@ -1448,3 +1448,61 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 
 楼里这位大概和有人一口一个zng，然后有人跳出来说“不就是宅男哥吗，哪有攻击性”这种情况差不多
 
+
+*****
+
+####  剑鹰  
+##### 135#       发表于 2025-6-17 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954467&amp;ptid=2254063" target="_blank">银川智将Kuroky 发表于 2025-6-17 16:52</a>
+
+03年注册，按正常年纪推算也是奔五开始畅想退休生活的年龄了为什么还这么魔怔智障 ...</blockquote>
+我不知道论坛里谁魔怔智障<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过谁先人身攻击的倒是显而易见了
+
+*****
+
+####  黑上シグマ  
+##### 136#       发表于 2025-6-17 16:58
+
+<blockquote>引用第129楼剑鹰于2025-06-17 16:46发表的  :
+
+wondor1111 发表于 2025-6-17 16:42撸狗和刀狗互相侮辱对面英雌，原皮羞辱皱皮......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不玩，所以这事就不存在了是吧？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  银川智将Kuroky  
+##### 137#       发表于 2025-6-17 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954492&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:57</a>
+
+我不知道论坛里谁魔怔智障
+
+不过谁先人身攻击的倒是显而易见了</blockquote>
+我不想和快退休的叔叔玩这种小学生嘴仗
+
+你小时候是没同学和你玩这种反弹再反弹的弱智游戏吗
+
+*****
+
+####  剑鹰  
+##### 138#       发表于 2025-6-17 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954455&amp;ptid=2254063" target="_blank">wondor1111 发表于 2025-6-17 16:50</a>
+
+你个奇葩不能活用百度吗？你说你不玩你又不了解详情，闷个头我认为我觉着然后找喷，觉着自己上网环境太好 ...</blockquote>
+我需要知道这种小圈子的黑话么？
+
+这个帖子讨论的是剑星，不是LOL和DOTA
+
+LOL和DOTA小圈子用什么话骂人那是小圈子的事儿，这种破事还需要了解么？
+
+我知道LOL的祖安玩家没素质，出口成脏，想必不是LOL玩家都这样吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+难道DOTA玩家也这样？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

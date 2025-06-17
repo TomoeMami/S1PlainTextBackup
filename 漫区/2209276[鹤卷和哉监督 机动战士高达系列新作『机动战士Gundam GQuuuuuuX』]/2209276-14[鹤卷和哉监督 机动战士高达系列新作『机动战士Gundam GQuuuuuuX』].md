@@ -2157,3 +2157,33 @@ CCA剧场版哪儿来的贝子，倩子还差不多<img src="https://static.stag
 
 【【宇宙基曲2025】BEYOND THE TIME 2025 Short Edit 全曲试听！】 [https://www.bilibili.com/video/BV17oNvzfEgA/](https://www.bilibili.com/video/BV17oNvzfEgA/)
 
+
+*****
+
+####  七七見奈波  
+##### 19419#       发表于 2025-6-17 16:59
+
+short edition？有没有long version
+
+是说这歌c单曲版和ep版结尾还不太一样（不是expanded版）
+
+*****
+
+####  我聞如是  
+##### 19420#       发表于 2025-6-17 17:03
+
+<blockquote>七七見奈波 发表于 2025-6-17 16:59
+short edition？有没有long version
+
+是说这歌c单曲版和ep版结尾还不太一样（不是expanded版） ...</blockquote>
+有完整版，可能要乖乖等明晚？
+
+這鼓點真舒服~
+
+*****
+
+####  Sliurus  
+##### 19421#       发表于 2025-6-17 17:03
+
+我有点没听出和原版的区别，音质更清晰？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
