@@ -7942,3 +7942,146 @@ O'Neill cylinder已经是有快50年历史的东西了
 小森这集除了唐突解说泽克诺瓦之外还有一句台词让人在意，说绿叔叔要干掉紫婆不是新人类该做的事，一股子幕 ...</blockquote>
 因为紫婆也说了她是消灭陈腐的地球OT才这么做的，至少明面上也是为了开拓NT的未来，这点绿叔叔也说了，“为了NT就要牺牲地球人吗”，所以紫婆至少不是站在NT的对立面
 
+
+*****
+
+####  ryanghj  
+##### 19988#       发表于 2025-6-18 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957346&amp;ptid=2209276" target="_blank">liekong 发表于 2025-6-18 02:03</a>
+
+铁血我一直认为到MA战为止不说优秀吧，起码还是能看的动画，再往后就真的是不行了。
+
+至于水魔，拿水魔来 ...</blockquote>
+水魔原罪是无聊，CP粉不少，但也就CP粉了
+
+*****
+
+####  王留美  
+##### 19989#       发表于 2025-6-18 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957328&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 01:57</a>
+ 能够让人想起庵野的牛高达也是搞笑了</blockquote>
+看不到背包所以就是NEW敢达(草稿3)的可能性也是微存的<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 19990#       发表于 2025-6-18 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957344&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2025-6-18 02:03</a>
+
+O'Neill cylinder已经是有快50年历史的东西了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">年代差异嘛，我之前接触过的太空站类设计都是群星、质量效应（只玩过一代刚开始）、40k那种更像堡垒一样的外形
+
+像这样有正儿八经的科学设想的是真没怎么接触过，这倒是解释了为啥我一眼就被它俘获了，果然基于现实设计的东西就是有种真实感啊
+
+*****
+
+####  kissout  
+##### 19991#       发表于 2025-6-18 02:09
+
+<blockquote>ryanghj 发表于 2025-6-18 02:00
+铁血第一季不论s1还是贴吧评价其实都挺不错的
+
+但是第二季开始很多人就看出不对劲了，到后半口碑已经烂完 ...</blockquote>
+就是看评价不错才准备边补边追，最后的结果吗……大家也都知道了
+
+不过其实ma战的时候，高达吧就有好几个帖说剧情不对，有烂片味，结果真给人说准了
+
+*****
+
+####  岸浪白野  
+##### 19992#       发表于 2025-6-18 02:10
+
+[X 上的 STAR影法師：“もう一度君に 巡り会えるなら~ [url]https://t.co/Kc3aoK6eKM](https://x.com/starshadowmagic/status/1935036677531357478)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/021009vfoqocqhpi0fi505.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 02:10 上传
+
+*****
+
+####  liekong  
+##### 19993#       发表于 2025-6-18 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957353&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 02:07</a>
+
+水魔原罪是无聊，CP粉不少，但也就CP粉了</blockquote>
+所以官方好不容易搞个衍生作，也只保留原作人物，高达什么的背景全扔掉了，跟其他高达衍生作品会做同设定世界背景的其他人的故事完全不同。
+
+*****
+
+####  希望之异热同心  
+##### 19994#       发表于 2025-6-18 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956839&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 00:32</a>
+
+正常来说玛秋肯定不愿意让自己这条世界线被剪定啊，如果商量不出来两全的办法的话那就是干呗，至于干的干 ...</blockquote>
+看完我get到了声优说麻球是一个很强欲的人是什么意思了，就算她和喵安目的都是为了找到修斯，但喵安的意志是随波逐流的而麻球的意志是坚定地，麻球可以被事件推着走但绝对不会去做违心的事情，如果修斯的目的（不让拉拉受伤）导致世界线被毁灭的话，麻球最后把元祖打退（保护她爱的一切）同时把修斯也抢过来（达成自己目的）也不奇怪
+
+*****
+
+####  88ace88  
+##### 19995#       发表于 2025-6-18 02:11
+
+铁血的长线上的问题包括但不限于库赞公这样的小丑迟迟不下线，三明这种类型的主角塑造难度太高等等，至于冈钉也好，希望之花也好，不过是又在棺材板上钉上了几颗显眼的钉子罢了。
+
+*****
+
+####  ヒトニナル  
+##### 19996#       发表于 2025-6-18 02:12
+
+哦对了这集修司不鸟喵安大概率不是因为她杀了很多人而是因为她听不见（不关心）拉拉在悲鸣<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 19997#       发表于 2025-6-18 02:12
+
+铁血我记得很早就有人觉得铁华团很像黑帮了。
+还有交杯酒这种拜把子仪式。
+
+所以铁华团第二季灭团倒不是什么意外事。
+
+*****
+
+####  ryanghj  
+##### 19998#       发表于 2025-6-18 02:12
+
+修司大概是被正史阿姆罗附身的存在，估计他自己也分不清了
+
+结局被玛秋一哈罗打醒的可能性变高了
+
+*****
+
+####  kokyou  
+##### 19999#       发表于 2025-6-18 02:15
+
+水魔什么无聊的臭鱼烂虾也配给一串字母提鞋，狸猫拍番茄酱也能成爆点，白瞎了第零话生日歌开的好头。
+
+*****
+
+####  西洛克  
+##### 20000#       发表于 2025-6-18 02:15
+
+和基西利亚剧场那段至少对人物塑造是有意义的。gqx夏亚没主世界那么魔怔，甚至比裤袜脱落都正常不少。（没有拉拉反而正常成长了吗？）
+
+
+*****
+
+####  隔壁老黄  
+##### 20001#       发表于 2025-6-18 02:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957367&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-18 02:12</a>
+铁血我记得很早就有人觉得铁华团很像黑帮了。
+还有交杯酒这种拜把子仪式。</blockquote>
+被全灭不意外，意外的是巧克力一直运筹帷幄的样子，最后变成了一个哈批，第二季的敌人都太没存在感了，还不如直接杀穿然后同归于尽呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
