@@ -1886,3 +1886,17 @@ sony中国也搞这种lgbtq的运营吗？国内还是太包容了</blockquote>
 拳师跟lgbtq有啥关系了……国外这俩可能是一个生态位，国内两家仇挺大的吧 ...</blockquote>
 说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男
 
+
+*****
+
+####  nma  
+##### 174#       发表于 2025-6-18 02:57
+
+ 本帖最后由 nma 于 2025-6-18 03:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953631&amp;ptid=2254063" target="_blank">昆仑之巅 发表于 2025-6-17 14:32</a>
+
+好吧，双姝和双娇弄清楚了，只是繁中和简中区翻译区别应该没啥多余的意思；
+
+不过楼里嗦嗦们洗地姿势也过于 ...</blockquote>
+弄清楚个锤子，怎么steam上官方大方使用双娇和雙姝，你ps在简中社交媒体既不屑用前者，又不敢用后者，用个杂交不就是暗搓搓地表达点多余的意思么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
