@@ -10,3 +10,11 @@
 
 live方面就比较全面，除了不给换私服还有女主也不给用麻花辫，明明都做出来了
 
+
+*****
+
+####  spaceatom54  
+##### 43#       发表于 2025-6-17 15:35
+
+主楼最后一张可以成为梗图<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

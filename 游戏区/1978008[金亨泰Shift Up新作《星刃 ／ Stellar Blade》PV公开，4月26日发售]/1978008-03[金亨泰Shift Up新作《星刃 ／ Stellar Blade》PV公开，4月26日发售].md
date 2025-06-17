@@ -758,3 +758,16 @@ Sb索尼是真会帮倒忙。
 靠存档备份打了两个结局，怎 ...</blockquote>
 最后母主真身是个萝莉妈妈，金亨泰是真的懂二次元潮流
 
+
+*****
+
+####  Andariel  
+##### 3032#       发表于 2025-6-17 15:32
+
+ 本帖最后由 Andariel 于 2025-6-17 15:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953959&amp;ptid=1978008" target="_blank">nagitoY 发表于 2025-6-17 15:24</a>
+最后母主真身是个萝莉妈妈，金亨泰是真的懂二次元潮流</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抄尼尔而已吧
+无论是2代的红衣少女还是1代重制版新加的那棵树的双子管理员，都是幼态体型的人类形象
+当然红衣少女的配音是大叔那就是另外一回事儿了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

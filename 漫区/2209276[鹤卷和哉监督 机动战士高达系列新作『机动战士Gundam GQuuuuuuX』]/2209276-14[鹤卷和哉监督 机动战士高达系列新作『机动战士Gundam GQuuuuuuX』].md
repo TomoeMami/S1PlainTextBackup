@@ -2035,3 +2035,19 @@ Operation Skuld
 
 修斯当然不可能是真贝子
 
+
+*****
+
+####  朋友费小号  
+##### 19406#       发表于 2025-6-17 15:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我草，不会真的修斯是贝子吧，那我要拟投降书了，以及不会真的12集要叫相逢在宇宙吧
+
+
+*****
+
+####  qixinno2  
+##### 19407#       发表于 2025-6-17 15:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实修司是元祖的化身
+
