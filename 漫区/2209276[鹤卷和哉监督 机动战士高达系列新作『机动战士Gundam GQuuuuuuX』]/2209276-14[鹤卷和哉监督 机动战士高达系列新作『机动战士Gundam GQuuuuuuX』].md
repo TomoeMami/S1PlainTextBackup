@@ -2007,3 +2007,23 @@ Operation Skuld
 
 艾尔美斯（已经出场），zeta，精神病一家，卡碧尼，铁奥，zz，哈曼版新鸡瘟一堆，牛，山楂饼，阿尔法·瓦索隆，绿红鹦鹉
 
+
+*****
+
+####  七七見奈波  
+##### 19403#       发表于 2025-6-17 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953659&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-17 14:37</a>
+
+按我之前看到舅舅党的消息，gqux就是93螺鸭搞出来的事，有byt不奇怪，现在看剧透应该能坐实舅舅的离谱剧透 ...</blockquote>
+修司的真相如果果真是这样，还是比较希望自己能拿这种猜测剧情的运气来买彩票<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 19404#       发表于 2025-6-17 15:15
+
+三人组要么是gq世界独有的，要么三人都有对应的正史人物
+
+我不觉得修司会和正史人物有血缘关系
+
