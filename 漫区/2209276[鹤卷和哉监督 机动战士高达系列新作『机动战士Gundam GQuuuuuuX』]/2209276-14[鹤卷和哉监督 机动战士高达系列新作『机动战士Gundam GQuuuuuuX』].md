@@ -1376,3 +1376,11 @@ ma最后的高光不是冰箱打绿螳螂么
 
 百合高达有什么不好<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bandage_n2_ki  
+##### 19337#       发表于 2025-6-17 09:07
+
+打开X就看到麻球的中之人腐属性逆输入进同人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AJ舞台时就看出来黑泽是夏亚厨，只是没想到这么界限
+
