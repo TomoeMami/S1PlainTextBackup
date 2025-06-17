@@ -339,3 +339,14 @@ BOSS挑战红莲也太狠了 苇名一心啊
 是两个功能
 自由拍照那个按手柄rb+←能开启
 
+
+*****
+
+####  Schwarzess  
+##### 2992#       发表于 2025-6-17 08:16
+
+红莲套一定要两件一起穿才能替换迅驰模式有点难绷，感觉跟之前一样做个耳环就行。
+主要还是nikke联动给的头发都有点大感觉不太适合eve这张脸。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
