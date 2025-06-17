@@ -1361,3 +1361,18 @@ ma最后的高光不是冰箱打绿螳螂么
 
 手里有flt和时光机技术，却打着猴子拿ak47一样的战争，还是机战片，还是女主角，还有肮脏的上一辈，还有一直被利用的倒霉孩子，懂了，是simoun！
 
+
+*****
+
+####  wing130083  
+##### 19336#       发表于 2025-6-17 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951244&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-6-17 07:36</a>
+
+说难听一点这片根本不需要番茄喵安这两个角色，高达就该是男的当主角。我看修司首席绿叔叔谁来当主角都行 ...</blockquote>
+番茄可以说除了篇幅太少没有任何问题
+
+喵安在为男人按按钮之前也没什么大问题
+
+百合高达有什么不好<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

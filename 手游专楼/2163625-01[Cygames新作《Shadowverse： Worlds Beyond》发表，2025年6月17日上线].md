@@ -1521,3 +1521,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 等正式开服进去看一眼 如果真500我直接滚
 
+
+*****
+
+####  duraa  
+##### 111#       发表于 2025-6-17 08:41
+
+捷报频传<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

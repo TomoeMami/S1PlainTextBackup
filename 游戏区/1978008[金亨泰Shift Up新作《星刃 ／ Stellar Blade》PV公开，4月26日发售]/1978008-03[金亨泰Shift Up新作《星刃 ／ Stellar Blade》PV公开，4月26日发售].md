@@ -380,3 +380,29 @@ BOSS挑战红莲也太狠了 苇名一心啊
 主要还是nikke联动给的头 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二次元这种高饱和度的头发拿进写实风就是杀马特啊
 
+
+*****
+
+####  gaiden  
+##### 2996#       发表于 2025-6-17 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951393&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-17 08:22</a>
+
+序章完成打败金刚都没吃什么苦
+
+但是按照这个打法想要看处决动画是没戏了
+
+正经人谁弹得过来啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个mod呗，可以拉到3s格挡时机
+
+
+*****
+
+####  naclken.  
+##### 2997#       发表于 2025-6-17 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951439&amp;ptid=1978008" target="_blank">gaiden 发表于 2025-6-17 08:38</a>
+
+下个mod呗，可以拉到3s格挡时机</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑一下要不要去重战里看
+
