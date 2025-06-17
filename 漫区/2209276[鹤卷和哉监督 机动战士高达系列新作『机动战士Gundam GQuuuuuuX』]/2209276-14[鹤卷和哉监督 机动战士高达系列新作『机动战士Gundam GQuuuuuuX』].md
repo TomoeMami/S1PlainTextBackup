@@ -7487,3 +7487,259 @@ CCA必须要看了
 简直是闹剧啊，我正看鸭子vs老妖婆对戏呢突然闯进来两个z时代精神小妹大闹一场。割裂感就不说了，倒是理解 ...</blockquote>
 所以我觉得最后修司和夏亚的计划也会被玛秋喵安打乱就是了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  西洛克  
+##### 19949#       发表于 2025-6-18 01:46
+
+我对gqx观感不算太差，不过感觉太像网络短剧了。第七集后每隔一小段剧情就有爆点，故事整体逻辑和结构是被弱化的。
+
+*****
+
+####  依然荏苒  
+##### 19950#       发表于 2025-6-18 01:46
+
+只能骂一句什么傻逼玩意
+
+*****
+
+####  ヒトニナル  
+##### 19951#       发表于 2025-6-18 01:46
+
+这话一出来都忘了汤大基了，我看大基应该是死透了吧？就不知道为什么官网不放人物卡
+
+*****
+
+####  罥索GFFF  
+##### 19952#       发表于 2025-6-18 01:47
+
+<blockquote>竹様 发表于 2025-6-18 01:44
+铁血作为除了Greco以外国内唯一同步播放的高达，每周泥潭讨论度都不低，那个位面的没人追？
+
+该不会是看B ...</blockquote>
+泥潭自己都不承认，因为我发帖问过
+
+*****
+
+####  adretyu67.  
+##### 19953#       发表于 2025-6-18 01:47
+
+铁血当年怎么可能没讨论，连基础设定ms基本上光线兵器免疫所以必须靠实体武器破防所以整了个王大锤高达出来都能战。
+
+*****
+
+####  罥索GFFF  
+##### 19954#       发表于 2025-6-18 01:47
+
+就是没人追啊，团长的烂梗都是完结几个月后火起来的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| AkaiSuisei|-2|童厕观察爱好者还在岁月史书|
+
+查看全部评分
+
+*****
+
+####  105gun  
+##### 19955#       发表于 2025-6-18 01:48
+
+绝大部分所谓uc厨在我看来就完全不是富野那几部高达动画的粉丝，仅仅只是把uc世界观下的战争当成一种娱乐来消费。这类粉丝更接近于军迷，比起动画更喜欢消费那些拓展出来的设定，无论是机设还是各种各样的细节，也非常喜欢给uc高达上价值。
+
+我不是想说这种消费方式是对是错，但跟鹤卷这帮人想整的活从根本上就不搭嘎。这帮staff虽然也喜欢搞各种奇异uc纪元小细节，但就拿黑色三连星那集来说好了，他们为什么一定要膜那几个ppt分镜？相比军迷的那种趣味，他们更喜欢原作动画，就连奇怪的细节也想还原，仅此而已。所以让他们搞同人，就会拍出这种动画来。（反过来说，如果是让军迷粉丝拍uc if，他们是会毫不犹豫地把原作的这种演出当作“不严谨”的负面要素，直接剪除的）
+
+gq你觉得屎也好，不屎也罢，总归是在这种心态下拍出来的片子。
+
+*****
+
+####  qqqwwwyyy  
+##### 19956#       发表于 2025-6-18 01:48
+
+我看楼里夸的、骂的、看乐了的都有，大家都挺正常的，怎么就有人上来就扣帽子倒屎了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  28201  
+##### 19957#       发表于 2025-6-18 01:48
+
+设置三小只是因为需要三个不同角度去梦鸭子是吧，这剧情看笑了
+真是流水的主角铁打的鸭子
+
+*****
+
+####  albertfu  
+##### 19958#       发表于 2025-6-18 01:48
+
+这追番体验好久没有过了 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+剧场，魔法少女，beyond the time一串下来，看得人大脑升级了
+
+*****
+
+####  猪突猛进R  
+##### 19959#       发表于 2025-6-18 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957283&amp;ptid=2209276" target="_blank">Sabbah 发表于 2025-6-18 01:44</a>
+
+夏亚和老妖婆这一段根本没准备说有用的东西，都是复述现状的灌水级对白，这种明明是关键对话却根本不敢下 ...</blockquote>
+鸭和紫婆这一幕还灌水啊，实锤了在一部分老害心里，紫婆对鸭是那种感情。
+
+打比方，就像EVA有人说明日香喜欢加持良治一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 19960#       发表于 2025-6-18 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957118&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-18 01:10</a>
+话说喵安的人物塑造已经没救了吧，真的没任何负担的要炸地球，满脑子都是修司，如果没冷却地球真就没了。 ...</blockquote>
+倒没有，喵安的人设就剩一点荒诞感了，品一品倒是和死里逃生的行尸走肉相符。可以反复听一下gfred闯进电影院里那句带着点开心的修酱。
+
+
+*****
+
+####  人形灾害  
+##### 19961#       发表于 2025-6-18 01:49
+
+小森这集除了唐突解说泽克诺瓦之外还有一句台词让人在意，说绿叔叔要干掉紫婆不是新人类该做的事，一股子幕后黑手感，不会是宇宙迪斯科球看太多被什么东西上身了吧
+
+*****
+
+####  adretyu67.  
+##### 19962#       发表于 2025-6-18 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957285&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:45</a>
+
+老套是真不觉得，尤其考虑到如今是个太空歌剧都不大受欢迎的年代，高达这种“比较认真”的宇宙科幻作品还 ...</blockquote>
+0079是大和号和星战结合起来创造出来的作品。只不过大和号的部分直接被定性玩具长得像木马一样怎么可能卖得动。
+
+*****
+
+####  Nom1nee  
+##### 19963#       发表于 2025-6-18 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957298&amp;ptid=2209276" target="_blank">qqqwwwyyy 发表于 2025-6-18 01:48</a>
+
+我看楼里夸的、骂的、看乐了的都有，大家都挺正常的，怎么就有人上来就扣帽子倒屎了 ...</blockquote>
+这个时候你只需要
+
+OIP-C.jpg
+(23.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:50 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/015036vno4folv0aia9l7a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aquakane  
+##### 19964#       发表于 2025-6-18 01:51
+
+发觉自己兜不住（这群老害我觉得一开始就没打算兜住）不是硬圆而是彻底转型搞笑动画挺明智的，青蒜什么的真没必要，包括这集的喵安真没必要再继续黑下去了，已经是搞笑角色了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  88ace88  
+##### 19965#       发表于 2025-6-18 01:51
+
+巴以这么多年都没妥协，地球人和宇宙人为什么要妥协？
+
+*****
+
+####  阿库鲁艾特  
+##### 19966#       发表于 2025-6-18 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957285&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:45</a>
+老套是真不觉得，尤其考虑到如今是个太空歌剧都不大受欢迎的年代，高达这种“比较认真”的宇宙科幻作品还 ...</blockquote>
+不太想扯现实，不过你要认真关心点的话很多地方也没比联邦和吉翁强哪去
+
+*****
+
+####  Devola  
+##### 19967#       发表于 2025-6-18 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957256&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 01:36</a>
+機動戦士Gundam GQuuuuuuX 第11話
+
+と機動戦士Vガンダム
+
+と機動戦士クロスボーン・ガンダム ゴースト</blockquote>
+后一百年的反向传承<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然说完全比不了光翼和砍核弹就是了
+
+
+*****
+
+####  kissout  
+##### 19968#       发表于 2025-6-18 01:53
+
+不是，追过79的人可能s1找不到，追过铁血的人可太多了，这东西也要岁月史书？
+
+题外话，我当年追的时候还是第二季开始的时候才开始在补第一季，因为想等大家的评价，结果只能说是很奇妙的一场旅行……..
+
+*****
+
+####  ヒトニナル  
+##### 19969#       发表于 2025-6-18 01:54
+
+又想起来一个修司骡子说的论据，这话夏亚说修司是被拉拉附身的（取り憑かれてる），好像骡子就是这样的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 19970#       发表于 2025-6-18 01:54
+
+11话概括一下就是
+
+<img src="https://img.stage1st.com/forum/202506/18/015238vh85ui8d64rww6gr.jpg" referrerpolicy="no-referrer">
+
+<strong>Spider-Man.Into.the.Spider-Verse.2018..jpg</strong> (120.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:52 上传
+
+另外，Into the Spider-Verse里开门也是这样kirakira的
+
+<img src="https://img.stage1st.com/forum/202506/18/015231gcccln4nmzdl0zld.jpg" referrerpolicy="no-referrer">
+
+<strong>Spider-Man.Into.the.Spider-Verse488.jpg</strong> (281.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:52 上传
+
+*****
+
+####  缪斯替  
+##### 19971#       发表于 2025-6-18 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957315&amp;ptid=2209276" target="_blank">阿库鲁艾特 发表于 2025-6-18 01:51</a>
+
+不太想扯现实，不过你要认真关心点的话很多地方也没比联邦和吉翁强哪去 ...</blockquote>
+我主要参照的是英苏这俩，一个是揍殖民地死的人一多就犯怂，一个是撑不住压力根本不打世界大战麻溜解体
+
+近现代粗略看的话可能也找不出几个压迫性政权（区别于自卫战争）抗损伤能力有UC联邦的十分之一
+
+*****
+
+####  adretyu67.  
+##### 19972#       发表于 2025-6-18 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957319&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 01:54</a>
+
+又想起来一个修司骡子说的论据，这话夏亚说修司是被拉拉附身的（取り憑かれてる），好像骡子就是这样的吧 ...</blockquote>
+正史鸭子也一样被拉拉附身了。
+
