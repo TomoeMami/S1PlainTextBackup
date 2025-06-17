@@ -1252,3 +1252,22 @@ Heldin</blockquote>
 80-2000年前不少港台武侠小说里确实不少有用“姝”这个词。但这个词2000年后武侠式微基本很少见用了。这次 ...</blockquote>
 好像倚天里就用过“雪岭双姝”把，指的是朱九真和武青婴？
 
+
+*****
+
+####  葵  
+##### 117#       发表于 2025-6-17 14:31
+
+真尼玛龟，卖肉游戏被姐妹入侵以后搞女拳的案例在手游里面还算少么？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们这些索狗再这样我要跑去当任豚了！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昆仑之巅  
+##### 118#         楼主| 发表于 2025-6-17 14:32
+
+好吧，双姝和双娇弄清楚了，只是繁中和简中区翻译区别应该没啥多余的意思；
+
+不过楼里嗦嗦们洗地姿势也过于搞笑了，还想把火引到剑星官方那边去，哪怕坚持洗地是阿索玩梗呢？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
