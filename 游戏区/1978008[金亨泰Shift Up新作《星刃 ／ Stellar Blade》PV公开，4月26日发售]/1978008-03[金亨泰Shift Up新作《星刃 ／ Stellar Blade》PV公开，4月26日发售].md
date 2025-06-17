@@ -470,3 +470,34 @@ hard难度的渡鸦是给二周目玩家打的
 
 为啥伊芙的手的颜色跟她其他部位皮肤的颜色完全不一样啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，是官方的就这样还是有什么设置上的问题
 
+
+*****
+
+####  洛克萨斯  
+##### 3003#       发表于 2025-6-17 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951987&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-17 10:04</a>
+
+终于感受到了废土炮台的恐怖，那个拿海盗啥啥名的易拉罐的要一路冲过几个炮台瞄准，这些炮台能干掉么还是只 ...</blockquote>
+远程直接打掉
+
+*****
+
+####  alucardcz  
+##### 3004#       发表于 2025-6-17 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951987&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-17 10:04</a>
+
+终于感受到了废土炮台的恐怖，那个拿海盗啥啥名的易拉罐的要一路冲过几个炮台瞄准，这些炮台能干掉么还是只 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">直接把他射爆
+
+*****
+
+####  alucardcz  
+##### 3005#       发表于 2025-6-17 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951677&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-17 09:20</a>
+
+分支任务提示做得不能行，昨天接了那个小孩和店长爸爸闹矛盾要去扔宝物的任务，“废弃集装箱场”根本不知道 ...</blockquote>
+我分支都直接看攻略的 有些图根本没有大地图。。谁还记得哪是哪<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
