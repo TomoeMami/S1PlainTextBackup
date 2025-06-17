@@ -2068,3 +2068,42 @@ Operation Skuld
 
 其实很明显三人组都是gq世界的人吧，修司也不会是什么正史穿越来的
 
+
+*****
+
+####  ads147147  
+##### 19410#       发表于 2025-6-17 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953897&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-17 15:14</a>
+
+修司的真相如果果真是这样，还是比较希望自己能拿这种猜测剧情的运气来买彩票这个月刚买了然后一块钱都没 ...</blockquote>
+只能说你的电波已经彻底对上了鹤卷那帮人了，应该做的是去入职khara（笑
+
+
+*****
+
+####  pokemon最爱  
+##### 19411#       发表于 2025-6-17 15:51
+
+CCA剧场版哪儿来的贝子，倩子还差不多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+说起来隐约记得曾经看到个脑洞说胡索家是鸭子和娜娜伊的孩子的后代来着
+
+
+*****
+
+####  ティグル  
+##### 19412#       发表于 2025-6-17 15:56
+
+姓氏说，指认胡索他妈是娜娜依的孙女
+
+纯扯淡
+
+*****
+
+####  57042711  
+##### 19413#       发表于 2025-6-17 15:57
+
+太乐了吧，这就是胡索女难之相的原因吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
