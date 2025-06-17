@@ -4648,3 +4648,11 @@ EX5过了吗，没有的话拿总帅比较实惠</blockquote>
 没有双盾人</blockquote>
 EX5对3行动的要求更高，没有总帅有傻子那和攻击大和也行
 
+
+*****
+
+####  nagamasa  
+##### 1909#       发表于 2025-6-17 19:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这活动地图100%有没有隐藏奖励的？没有的话是不是过了10万就不用浪费pp抓人拿buff了
+
