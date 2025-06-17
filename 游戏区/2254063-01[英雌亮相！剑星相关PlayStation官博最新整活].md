@@ -1271,3 +1271,25 @@ Heldin</blockquote>
 
 不过楼里嗦嗦们洗地姿势也过于搞笑了，还想把火引到剑星官方那边去，哪怕坚持洗地是阿索玩梗呢？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wondor1111  
+##### 119#       发表于 2025-6-17 14:39
+
+ 本帖最后由 wondor1111 于 2025-6-17 14:41 编辑 
+
+<img src="https://p.sda1.dev/24/7e46299b3ff95b845a4e743bac4c2f9e/Image_1750142187003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/78f7add6e50c35c189a50b89eeeaa754/Image_1750141996220.jpg" referrerpolicy="no-referrer">
+
+臣欲战死陛下何故先降
+
+幺妮只是遇上了比她们还抽象的幺姁
+
+*****
+
+####  ARATANG  
+##### 120#       发表于 2025-6-17 14:41
+
+夫草之精秀者为英，兽之特群者为雄，故人之文武茂异者取名于此。是故聪明秀出谓之英，胆力过人谓之雄。此其大体之别名也……英可以为相，雄可以为将，若一人之身兼有英雄，则能长世。
+
