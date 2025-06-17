@@ -9242,3 +9242,24 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 原来铁眼的标记快到时间前会轻微闪烁
 
+
+*****
+
+####  leafS  
+##### 903#       发表于 2025-6-17 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950153&amp;ptid=2210352" target="_blank">hirro 发表于 2025-6-16 21:37</a>
+我也刚开始研究鸟人
+
+首先我感觉延长技能时间的很有用，本身鸟人的武器属于灵性判定经常打不到怪，很多时 ...</blockquote>
+组队还是缓步触发各种特效更有用，尤其是冤魂，拉好仇恨让boss尽量打你给队友创造更多输出空间才是真的，鸟哥那防御反击我玩下来都是精力不够用反而容易掉血
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ouyang菌  
+##### 904#       发表于 2025-6-17 19:37
+
+鸟哥我觉得带三狗遗物的那个攻击回精很有用，不论是能力弹伤还是缓步触发都能吃到这个效果，**提高强力举盾的时间
+
