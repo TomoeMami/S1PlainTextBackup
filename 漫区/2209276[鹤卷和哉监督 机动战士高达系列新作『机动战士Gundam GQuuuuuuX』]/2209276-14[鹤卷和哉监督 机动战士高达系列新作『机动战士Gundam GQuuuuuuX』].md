@@ -2833,3 +2833,203 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 刚看到手抓浮游炮就被ban了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 19464#       发表于 2025-6-17 23:38
+
+真就限制器啊
+
+*****
+
+####  RPG-7  
+##### 19465#       发表于 2025-6-17 23:40
+
+Z的剧场喷了
+
+*****
+
+####  七七見奈波  
+##### 19466#       发表于 2025-6-17 23:40
+
+陌生又熟悉的剧场哈哈哈哈
+
+*****
+
+####  Sliurus  
+##### 19467#       发表于 2025-6-17 23:40
+
+经典剧场对峙<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 19468#       发表于 2025-6-17 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是发胶手
+
+*****
+
+####  猪突猛进R  
+##### 19469#       发表于 2025-6-17 23:41
+
+Z高达果然要补吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 19470#       发表于 2025-6-17 23:41
+
+故地重游，该枪战了
+
+*****
+
+####  shqingda_  
+##### 19471#       发表于 2025-6-17 23:41
+
+我哈曼呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 19472#       发表于 2025-6-17 23:41
+
+果然同款剧场了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  newise  
+##### 19473#       发表于 2025-6-17 23:41
+
+鸭子的疤呢？这是真鸭？
+
+*****
+
+####  ykyin09  
+##### 19474#       发表于 2025-6-17 23:41
+
+剧场故意的吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Evomenon  
+##### 19475#       发表于 2025-6-17 23:41
+
+不是，你们这无论哪条世界线、哪个卫星炮都配建一个标准剧场，宇宙世纪的规范是这么写的吗？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  FMIC  
+##### 19476#       发表于 2025-6-17 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956373&amp;ptid=2209276" target="_blank">newise 发表于 2025-6-17 23:41</a>
+鸭子的疤呢？这是真鸭？</blockquote>
+没有阿姆罗哪来的疤
+
+*****
+
+####  plok201  
+##### 19477#       发表于 2025-6-17 23:42
+
+这不是哈曼（确信）<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Flechette  
+##### 19478#       发表于 2025-6-17 23:43
+
+果然是发胶手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 19479#       发表于 2025-6-17 23:43
+
+野史！野史！
+
+*****
+
+####  Devola  
+##### 19480#       发表于 2025-6-17 23:43
+
+完完全全的uc游乐园啊
+
+
+*****
+
+####  FMIC  
+##### 19481#       发表于 2025-6-17 23:44
+
+松手啊  
+
+*****
+
+####  ヒトニナル  
+##### 19482#       发表于 2025-6-17 23:44
+
+在做一些贪得无厌的事啊！
+
+*****
+
+####  yanghuangu  
+##### 19483#       发表于 2025-6-17 23:44
+
+艹,LOLI控又上手了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FMIC  
+##### 19484#       发表于 2025-6-17 23:45
+
+还会变身啊
+
+*****
+
+####  好想看Mujica啊  
+##### 19485#       发表于 2025-6-17 23:45
+
+艹银河美少年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AAAZZZWWW  
+##### 19486#       发表于 2025-6-17 23:45
+
+魔法少女夏亚 这史太野了
+
+*****
+
+####  YU_JI  
+##### 19487#       发表于 2025-6-17 23:45
+
+真有魔法少女夏亚啊？！
+
+*****
+
+####  秋月孝三  
+##### 19488#       发表于 2025-6-17 23:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">q娃
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  七七見奈波  
+##### 19489#       发表于 2025-6-17 23:45
+
+什么热爱换装游戏的拉拉哈哈哈哈哈哈
+
+*****
+
+####  会长辅佐  
+##### 19490#       发表于 2025-6-17 23:45
+
+搞笑动画隔着呢
+
