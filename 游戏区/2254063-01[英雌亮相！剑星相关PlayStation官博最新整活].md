@@ -1360,3 +1360,43 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 
 女拳师魔怔，某些人我看也好不到哪去
 
+
+*****
+
+####  TheOccuria  
+##### 127#       发表于 2025-6-17 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954347&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:30</a>
+
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔 ...</blockquote>
+是的，我魔怔，你这么理性客观公正，那你应该包容我<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wondor1111  
+##### 128#       发表于 2025-6-17 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954347&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:30</a>
+
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔 ...</blockquote>
+撸狗和刀狗互相侮辱对面英雌，原皮羞辱皱皮鹰雌，这么有攻击性的称呼你觉着没就没啊。以后见面就喊你个奇葩，我是在夸你哦<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五块  
+##### 129#       发表于 2025-6-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954347&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 16:30</a>
+
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔 ...</blockquote>
+感谢跳出来现身说法为什么舆论上打不过拳师。
+
+有人吹狗哨被纷纷反对，理客中跳出来表示从学术上讨论这狗哨自古有之<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
