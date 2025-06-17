@@ -9263,3 +9263,35 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 鸟哥我觉得带三狗遗物的那个攻击回精很有用，不论是能力弹伤还是缓步触发都能吃到这个效果，**提高强力举盾的时间
 
+
+*****
+
+####  Sissii  
+##### 905#       发表于 2025-6-17 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949280&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-16 18:36</a>
+
+辉剑不小心刮到大地图上的颠羊，发现不会狂暴只会常规技能，那以后交易完不打白不打了 ...</blockquote>
+打完就给3w魂，没任何掉落，还难打，打过一次就不想打了，太浪费时间了
+
+
+*****
+
+####  jacket  
+##### 906#       发表于 2025-6-17 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955452&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-6-17 19:57</a>
+
+打完就给3w魂，没任何掉落，还难打，打过一次就不想打了，太浪费时间了</blockquote>
+我看打完还会给一个存款加伤害的buff
+
+*****
+
+####  Sissii  
+##### 907#       发表于 2025-6-17 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955461&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-17 20:00</a>
+
+我看打完还会给一个存款加伤害的buff</blockquote>
+那个是解诅咒的BUFF
+

@@ -1801,3 +1801,22 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 喷了，这世界整的什么玩意那么在乎社交吗，牌佬眼里只有打牌。。
 
+
+*****
+
+####  凉良  
+##### 142#       发表于 2025-6-17 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955303&amp;ptid=2163625" target="_blank">X9999 发表于 2025-6-17 19:25</a>
+
+喷了，这世界整的什么玩意那么在乎社交吗，牌佬眼里只有打牌。。</blockquote>
+已经砍了一堆内容了 本来想搞成幽默元宇宙
+
+
+*****
+
+####  YMS16M  
+##### 143#       发表于 2025-6-17 20:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">冰菓任务里头那个什么编辑海报是啥玩意。
+
