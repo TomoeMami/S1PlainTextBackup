@@ -6519,3 +6519,351 @@ MAV的设定哪里去了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传元祖过来可能只是为了证明修司≈阿姆罗…
 
+
+*****
+
+####  Steel.Haze  
+##### 19864#       发表于 2025-6-18 01:17
+
+如果是倩子的话，可能会引用贝子的些许设定，就是倩恩死时候已经怀孕，然后孩子在精神力框架加持下和后面阿克西斯奇迹产生的通道魂穿了，93的音乐也不是白放的，这个是看上去是782的牛高。然后修斯因为其特殊的诞生经历，实际上他是个高维度人。因为维度的纽带一直是穿越的拉拉，他想完美的解决这个问题。不过这个设定略感地狱。鹤卷的感官体验还是很有冲击，虽然细想起来会有点类似地球质量兵器这种尴味，但是它的第一感官极好。
+
+*****
+
+####  didiren  
+##### 19865#       发表于 2025-6-18 01:17
+
+拆了红高能解决90%的事情
+
+*****
+
+####  adretyu67.  
+##### 19866#       发表于 2025-6-18 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957143&amp;ptid=2209276" target="_blank">dbyboy 发表于 2025-6-18 01:13</a>
+
+早点说你要演创战者不就完了，搞这么麻烦
+
+真的，对基西莉亚开枪的时候我下意识地笑了，这俩女主就纯纯工具 ...</blockquote>
+其实那枪开的没啥意义，紫婆真要开枪估计就是哈罗挡刀了。
+
+*****
+
+####  YU_JI  
+##### 19867#       发表于 2025-6-18 01:17
+
+<blockquote>sauron.j 发表于 2025-6-18 01:16
+不得不说有个好IP蹭情怀就是爽啊，这要是一部白手起家的原创播到11集得被喷成什么样 ...</blockquote>
+前提就不成立，这要是个白手起家就不可能有这片子了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 19868#       发表于 2025-6-18 01:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪哈这条主线带上zz这个外传是个非常动人的系列故事，尤其CCA看了好几遍，但是故事写得好动画做得好看不代表世界观就很严谨或者可靠吧……
+
+以现在的目光审视冷战时期中年人的未来幻想还是会觉得漏洞百出，感觉还是觉得把它当寓言故事的背景一样不去深究来得轻松
+
+*****
+
+####  ftyaid  
+##### 19869#       发表于 2025-6-18 01:18
+
+最大的串子动画，太有乐子了
+
+*****
+
+####  ryanghj  
+##### 19870#       发表于 2025-6-18 01:18
+
+其实我觉得如果是meta设定会更爆，但看起来鹤卷没那个胆量把富野做进动画
+
+如果修司=富野的话就太乐了，玛秋=鹤卷，喵安=庵野？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么终极情书片
+
+*****
+
+####  北条早苗  
+##### 19871#       发表于 2025-6-18 01:19
+
+原来正史满大街的吉翁残党是喵安丢过来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武川日玄  
+##### 19872#       发表于 2025-6-18 01:19
+
+最后出现的是O高达嘛？<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 19873#       发表于 2025-6-18 01:19
+
+我不吐槽剧情了，整挺好
+
+本来Z的那个剧场也挺都合的，再说吧
+
+我比较难崩的是NT部队站着被浮游炮一炮清了，还有PPT，有种放弃治疗的感觉
+
+<img src="https://img.stage1st.com/forum/202506/18/011637qgcegm8mevpcvvej.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:16 上传
+
+*****
+
+####  ヒトニナル  
+##### 19874#       发表于 2025-6-18 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957168&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 01:18</a>
+其实我觉得如果是meta设定会更爆，但看起来鹤卷没那个胆量把富野做进动画
+
+如果修司=富野的话就太乐了，玛 ...</blockquote>
+这、这不能（惊恐）
+
+*****
+
+####  llysander  
+##### 19875#       发表于 2025-6-18 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956888&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 00:37</a>
+
+反正我是想不出来下集要怎么打了
+
+麻球开gqx跟着修司，修司开782？这一队要保拉拉
+
+夏亚开红高，要杀拉拉</blockquote>
+修的意思应该是，只要鸭死了，为了保护鸭创造出来的世界自然终结，所以召唤了爹
+
+鸭那边还有绿叔叔再表演一次红高达kikeroga传奇mav<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+麻球接受了修基也是个拉拉控但是喵安没，神经刀发作也可以加入总帅，唐突降临恋爱脑也算为此伏笔。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Evomenon| + 1|河里|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 19876#       发表于 2025-6-18 01:20
+
+继续复刻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/011959kwb83jkz8p84jwpq.png" referrerpolicy="no-referrer">
+
+<strong>V67_KG16]HU05Y)}FW5TFI8.png</strong> (3.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:19 上传
+
+*****
+
+####  adretyu67.  
+##### 19877#       发表于 2025-6-18 01:20
+
+以gqux膜的程度，元祖上不是骡子或者骡子的特殊形态来个贝子倩子之类的角色真的没法接受吧。
+
+那这样的话修斯的身份藏这么久最后不就是准备告诉你他是骡子，不仅是骡子还是正史骡子，不是gqux骡子。
+
+*****
+
+####  游蜓  
+##### 19878#       发表于 2025-6-18 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957165&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:17</a>
+
+说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪 ...</blockquote>
+本来也是故事写的好才会让人讨论啊，uc世界观很难细究，大家也就是畅想下人物关系变化或者换机体会怎么改变世界罢了。我个人觉得倒a的世界观还比uc正常点。
+
+*****
+
+####  璇瑢子R  
+##### 19879#       发表于 2025-6-18 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957165&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:17</a>
+说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪 ...</blockquote>
+因为年代早，看过而不是云的人不多。
+方便吹逼
+
+*****
+
+####  LOLITA  
+##### 19880#       发表于 2025-6-18 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956701&amp;ptid=2209276" target="_blank">m99999 发表于 2025-6-18 00:15</a>
+
+这集唐突真正的nt发言，下集估计小森爆个大的</blockquote>
+别跟我说小森是93鸭穿越过来变的就行<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 19881#       发表于 2025-6-18 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957149&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-18 01:14</a>
+
+喵安厨已经心碎了我要调理一下……我现在完全能共情母鸡卡的睦头厨</blockquote>
+不是，这集给喵安待遇还不好？
+
+首先，姐妹情还在，对番茄并不是无情无义；
+
+然后，结局大概率不会死了；
+
+最后，修酱是属于拉拉的，也不用继续和番茄扯头花了。
+
+*****
+
+####  ryanghj  
+##### 19882#       发表于 2025-6-18 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957180&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-18 01:20</a>
+
+以gqux膜的程度，元祖上不是骡子或者骡子的特殊形态来个贝子倩子之类的角色真的没法接受吧。
+
+那这样的话修 ...</blockquote>
+这集还是没揭露修司身份，还在藏
+
+虽然明显在暗示他就是骡子了，但是如果他就是骡子又不需要这么藏
+
+*****
+
+####  windsflied  
+##### 19883#       发表于 2025-6-18 01:22
+
+早知道新主角是串起老角色的纯工具人，这片我是不会追的
+
+uc什么的品鉴太多次了，能不能端下去
+
+这集首席对阵绿叔叔的马戏还不错，至少不是一开始就用满屏幕的速度线糊弄
+
+鹤卷要是真的只想写if，能不能全程这条世界线的夏亚视角，就写那些老东西
+
+一开始搞个战争难民喵安、eva杂交的g夸克斯、联邦败者地球魔女等等，靠新世界的可能性把人骗进来
+
+只能说把我的期待抬到了不属于这片的高度
+
+原本以为GQuuuuuuX是主菜，老东西是彩蛋，就像糖心酥，给点甜头得了
+
+结果是一大块糖里包了GQuuuuuuX这点酥皮，真是齁的慌
+
+
+*****
+
+####  Gaybird  
+##### 19884#       发表于 2025-6-18 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957094&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-17 12:07</a>
+水魔b站播不了盗版，铁血没人追，这就导致，实际能每周和广大观众见面的高达只有你gqx，从起点到终点全在作 ...</blockquote>
+别瞎说，水魔那会我也是先b站某个直播间追一遍，港澳台也是准时上的，起点和gqux到底哪里有区别？
+
+唯一起点上的区别就是原创世界观和UC if，那打不过不是很正常
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Simon1000  
+##### 19885#       发表于 2025-6-18 01:22
+
+看懂了，是高与达85号远征队(
+
+*****
+
+####  仓岛千百合  
+##### 19886#       发表于 2025-6-18 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957186&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 01:21</a>
+不是，这集给喵安待遇还不好？
+
+首先，姐妹情还在，对番茄并不是无情无义；</blockquote>
+上集跟紫色老太婆形同母女.
+为了紫色老太婆啥都愿意做..
+这集前半段跟番茄大打出手..
+咋后半段莫名其妙为了番茄又给老太婆一枪？
+你这么看中这个闺蜜那你前半集干嘛想杀了她？
+
+完全搞不定这个角色的行为逻辑..?<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakufa782  
+##### 19887#       发表于 2025-6-18 01:22
+
+<blockquote>缪斯替 发表于 2025-6-18 01:17
+说点比较冒犯的，今年入坑大致补了不少作品我是真不能理解UC作为一个“世界观”到底哪里吸引人
+
+79-z-cca-闪 ...</blockquote>
+富野信徒和喜欢讲设定的军武厨、阵营厨虽然有交集但总体而言是两类观众，高达这ip能活到今天就是因为其受众群体远比一部分所谓遗老想的要多元和宽广
+
+*****
+
+####  隼雷  
+##### 19888#       发表于 2025-6-18 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957192&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-6-18 01:22</a>
+上集跟紫色老太婆形同母女.
+为了紫色老太婆啥都愿意做..
+这集前半段跟番茄大打出手..</blockquote>
+前半集是两个人接触之前打的凶，接触之后明白身份之后意思意思得了基本就不打了
+
+*****
+
+####  盐盐盐盐盐  
+##### 19889#       发表于 2025-6-18 01:24
+
+刚看完，太想看第12集了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个不公开要等最终话才让打开的配布卡，一个是元祖78吧，另一个难道还有什么新东西
+麻球面临着一个经典究极命题，是帮喜欢的人摧毁世界，还是守护世界和喜欢的人为敌，但我看麻球肯定会拿出第三个答案两个都保住最后he
+最终话标题是修司的视点所以，也或许是修司最后被麻球打动了自己选择了某种另外的办法不摧毁gqx世界了
+喵安还没下线且这集已经是癫狂搞笑角色了，我就猜一个喵安跑来无脑站修司然后修司（in782）和喵安（in gfred）打麻球（in gqx）和夏亚（in红高）吧，然后夏亚被喵安肘坠机，麻球和修司打，麻球用她无敌的爱让修司改变主意<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最后修司和拉拉回旧世界线，麻球和喵安抱憾终身<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又或者最后揭示那个发信息的人就是麻球，结局神功大成的麻球也可以干预别的世界了，让别的世界的自己和喵安还能无数次和修司短暂的相遇
+
+*****
+
+####  逆袭的黑月  
+##### 19890#       发表于 2025-6-18 01:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">B站能看到盗版=作弊，这特么什么神论，有人怎么看个动画破防到胡言乱语了。
+
+*****
+
+####  ヒトニナル  
+##### 19891#       发表于 2025-6-18 01:25
+
+我还是比较倾向于修司就是阿姆罗或者是阿姆罗的一部分，回头看了一下玛秋在夏亚身上闻到的味道让她想起了修司
+
+*****
+
+####  人形灾害  
+##### 19892#       发表于 2025-6-18 01:25
+
+我本来想说修斯=骡子跟隔壁fgo随便ooc乱套皮有什么区别
+但想起来那边早就整出过士郎=红A
+还……还是不太一样的，对吧？安纳金帕德梅.jpg
+
+*****
+
+####  AkaiSuisei  
+##### 19893#       发表于 2025-6-18 01:25
+
+拿b站kol孝子当参考的就不要批判姨姥了吧，最晚第七话不就该反应过味儿来了
+
