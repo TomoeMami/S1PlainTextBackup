@@ -1648,3 +1648,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 解锁预组需要1胜是不是有点幽默了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saitohimea  
+##### 125#       发表于 2025-6-17 13:43
+
+现在是经典皇家一日T0环节吗？
+

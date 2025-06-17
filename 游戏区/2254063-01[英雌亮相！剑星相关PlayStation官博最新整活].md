@@ -1169,3 +1169,43 @@ Heldin</blockquote>
 
 都上s1的老登了装傻给谁看呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88ace88  
+##### 109#       发表于 2025-6-17 13:47
+
+<blockquote>剑鹰 发表于 2025-6-17 13:35
+得，又是看到点不同意见就给人打标签
+
+我的意思就是这个词有历史，不是现在生造的
+
+怀疑一个卖肉游戏搞女权 ...</blockquote>
+大家明明在怀疑索尼在打拳，怎么变成怀疑剑星打拳了？这一手移花接木玩的挺溜，是索尼教的么？
+
+*****
+
+####  黑上シグマ  
+##### 110#       发表于 2025-6-17 13:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头还说别人太敏感的不是蠢就是坏
+
+*****
+
+####  黛冬優子  
+##### 111#       发表于 2025-6-17 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953394&amp;ptid=2254063" target="_blank">黑上シグマ 发表于 2025-6-17 13:47</a>
+这年头还说别人太敏感的不是蠢就是坏</blockquote>
+ 急着洗地而已，蠢是不蠢的，只是坏<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 112#       发表于 2025-6-17 13:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">是的，我就敏感了，你这么大度，让让我呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1932,3 +1932,25 @@ Operation Skuld
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  natmk  
+##### 19394#       发表于 2025-6-17 13:50
+
+修司是骡子孩子这种贝子假药难道真的要成真吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  行政裁定书  
+##### 19395#       发表于 2025-6-17 13:51
+
+肯定要出第二季，不然白白展开那么多
+
+*****
+
+####  Sliurus  
+##### 19396#       发表于 2025-6-17 13:54
+
+不是，11集才开始loop也太离谱了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
