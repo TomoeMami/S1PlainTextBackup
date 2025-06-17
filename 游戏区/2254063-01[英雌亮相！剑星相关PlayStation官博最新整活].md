@@ -1713,3 +1713,31 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 
 怪不得造NS2的谣狗这么熟练<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬優子  
+##### 158#       发表于 2025-6-17 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954845&amp;ptid=2254063" target="_blank">ubiquity 发表于 2025-6-17 17:50</a>
+
+“英雌”这种表述明明是拳怎么有人硬要往lgbt上拐</blockquote>
+虽然lgbt和拳完完全全是对立面
+
+但其实在国内受lgbt苦的远没有拳来得多
+
+这么一拐把两者等同了你是不是就觉得好像也没什么了
+
+手艺高超吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 159#       发表于 2025-6-17 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952909&amp;ptid=2254063" target="_blank">suzakushi 发表于 2025-6-17 12:10</a>
+
+有一说一，搜了下港服PSN发现繁中确实叫这个。可能是我没文化，从头到尾我也没看出娇改成姝的拳法寓意在哪 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">女权最讨厌的就是娇妻，所以反对娇这个词
+

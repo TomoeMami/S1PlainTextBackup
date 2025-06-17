@@ -2224,3 +2224,25 @@ short edition？有没有long version
 
 真漫威宇宙了啊，改写UC史，各种剧本用平行世界的概念交叉引用
 
+
+*****
+
+####  猪突猛进R  
+##### 19426#       发表于 2025-6-17 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954810&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-17 17:45</a>
+
+如果说是贝子，那骡鸭男男生子我都信</blockquote>
+有可能啊，就是骡鸭在阿克西斯冲击时诞生的精神体。
+
+所以才一直要找玫瑰（妈妈）。
+
+*****
+
+####  Toby_dak  
+##### 19427#       发表于 2025-6-17 17:59
+
+第12话来首聞こえるか、聞こえるだろう吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+

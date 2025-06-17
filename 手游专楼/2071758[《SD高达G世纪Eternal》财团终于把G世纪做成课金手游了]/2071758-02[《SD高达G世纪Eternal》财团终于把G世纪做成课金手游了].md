@@ -4622,3 +4622,16 @@ EX5过了吗，没有的话拿总帅比较实惠
 
 死神不论游戏强度本身就是高人气机体，有人喜欢抽不奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 1907#       发表于 2025-6-17 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954749&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-6-17 17:35</a>
+EX5过了吗，没有的话拿总帅比较实惠</blockquote>
+就是为了过永恒
+没有双盾人
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
