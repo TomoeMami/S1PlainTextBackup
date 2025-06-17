@@ -2697,3 +2697,14 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 脑洞都开到倩恩了还不如直接开到拉拉，毕竟79里拉拉那个发色画法也可以和修司发色靠一靠嘛<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Theory_茶叶  
+##### 19449#       发表于 2025-6-17 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953659&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-17 14:37</a>
+
+按我之前看到舅舅党的消息，gqux就是93螺鸭搞出来的事，有byt不奇怪，现在看剧透应该能坐实舅舅的离谱剧透 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果鸡夸的机魂是修斯，那么第七话那个把喵安扔出驾驶舱的操作就更加好笑了。
+
