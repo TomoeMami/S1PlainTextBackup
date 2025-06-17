@@ -447,3 +447,26 @@ hard难度的渡鸦是给二周目玩家打的
 
 有心的话可以整理一下，这游戏分支任务又多又互相重合，2周目顺序合理的话可以节约大把时间<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  心灵的乳头  
+##### 3001#       发表于 2025-6-17 10:04
+
+终于感受到了废土炮台的恐怖，那个拿海盗啥啥名的易拉罐的要一路冲过几个炮台瞄准，这些炮台能干掉么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是只能逃，一发我i就躺了。
+
+*****
+
+####  蓝鸥之魂  
+##### 3002#       发表于 2025-6-17 10:07
+
+<img src="https://img.stage1st.com/forum/202506/17/100630jalaucarr7ktgcuc.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (615.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 10:06 上传
+
+为啥伊芙的手的颜色跟她其他部位皮肤的颜色完全不一样啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，是官方的就这样还是有什么设置上的问题
+
