@@ -7743,3 +7743,202 @@ OIP-C.jpg
 又想起来一个修司骡子说的论据，这话夏亚说修司是被拉拉附身的（取り憑かれてる），好像骡子就是这样的吧 ...</blockquote>
 正史鸭子也一样被拉拉附身了。
 
+
+*****
+
+####  Sabbah  
+##### 19973#       发表于 2025-6-18 01:57
+
+ 本帖最后由 Sabbah 于 2025-6-18 01:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957302&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 01:48</a>
+
+鸭和紫婆这一幕还灌水啊，实锤了在一部分老害心里，紫婆对鸭是那种感情。
+
+打比方，就像EVA有人说明日香喜 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">如果你是指这部分的确不算灌水，只算是nonsense所以甚至没纳入考虑。至于你打的这个比方不能说是不恰当，因为不恰当这个说法太委婉。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">所以我看这片总觉得不对的原因就是因为没能和很多内容在同一交集里，如果对作品有个人见解就会被分为老害的话那我就是"另一部分"*N的老害。
+
+*****
+
+####  岸浪白野  
+##### 19974#       发表于 2025-6-18 01:57
+
+能够让人想起庵野的牛高达也是搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/015655pmswj5rz4v45yjhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/015712qdddxhxzeqf6kfdz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (325.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:57 上传
+
+*****
+
+####  ヒトニナル  
+##### 19975#       发表于 2025-6-18 01:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957323&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-18 01:55</a>
+正史鸭子也一样被拉拉附身了。</blockquote>
+修司夏亚说也不是不可以
+野史大舞台，够野你就来
+
+*****
+
+####  吃我大dio  
+##### 19976#       发表于 2025-6-18 01:58
+
+看的就是这个 爽
+
+*****
+
+####  大十字紅朔  
+##### 19977#       发表于 2025-6-18 01:59
+
+ 本帖最后由 大十字紅朔 于 2025-6-18 02:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957285&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:45</a>
+
+老套是真不觉得，尤其考虑到如今是个太空歌剧都不大受欢迎的年代，高达这种“比较认真”的宇宙科幻作品还 ...</blockquote>
+要按现实去理解就不可能会出现地球联邦这种东西<img src="https://static.stage1st.com/image/smiley/carton2017/024.png" referrerpolicy="no-referrer">
+
+吉恩都要独li，那想独li的地方就多了去了，地球联邦就不可能那么完整
+
+……嘿，这方面SEED的设定还现代化一点
+
+*****
+
+####  ryanghj  
+##### 19978#       发表于 2025-6-18 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957317&amp;ptid=2209276" target="_blank">kissout 发表于 2025-6-18 01:53</a>
+
+不是，追过79的人可能s1找不到，追过铁血的人可太多了，这东西也要岁月史书？
+
+题外话，我当年追的时候还是 ...</blockquote>
+铁血第一季不论s1还是贴吧评价其实都挺不错的
+
+但是第二季开始很多人就看出不对劲了，到后半口碑已经烂完了
+
+*****
+
+####  人形灾害  
+##### 19979#       发表于 2025-6-18 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957328&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 01:57</a>
+能够让人想起庵野的牛高达也是搞笑了</blockquote>
+你别说 你还真别说<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星光回路遮断器  
+##### 19980#       发表于 2025-6-18 02:02
+
+不是姐妹，你知不知道你在干什么？
+
+把地球轰了就是为了找男人？？？
+
+<img src="https://img.stage1st.com/forum/202506/18/020135w6ij7dvij6zuidct.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250618_015859.jpg</strong> (194.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-18 02:01 上传
+
+*****
+
+####  竹様  
+##### 19981#       发表于 2025-6-18 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957294&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 01:47</a>
+
+泥潭自己都不承认，因为我发帖问过</blockquote>
+[https://stage1st.com/2b/thread-1148153-1-1.html](https://stage1st.com/2b/thread-1148153-1-1.html)
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这页数虽然比不上引进管人痴和河豚以后的水魔，但还是薄纱现在的绝大多数专楼，怎么看都不像是没人追吧。
+
+*****
+
+####  阿库鲁艾特  
+##### 19982#       发表于 2025-6-18 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957322&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:54</a>
+我主要参照的是英苏这俩，一个是揍殖民地死的人一多就犯怂，一个是撑不住压力根本不打世界大战麻溜解体
+
+近 ...</blockquote>
+那确实套不上，地球联邦这玩意本身就是个背景板硬捏的
+
+*****
+
+####  希望之异热同心  
+##### 19983#       发表于 2025-6-18 02:03
+
+麻球这集把老太婆的计划（清除地球人）和夏亚的计划（破坏艾尔美斯）都搅浑了啊，所以我毫不怀疑下一集麻球会把修斯的计划（结束这条时间线）也搅浑掉。
+
+预告的修斯的2句话，是世界迎来终结，还是超越新人类的命运，世界终结指的就是GQUX世界线结束，回归UC，而超越新人类则是超越UC，找到新人类除了擅长杀人以外命运。我有点get到黑泽朋世说麻球强欲和是受到鹤卷宠爱的意思了，整部剧里面只有唯一一个角色，就是麻球，虽然被各种事件推着走但自己的意志却是从来没改变，目标是找到修斯但也不会去做自己不愿意的事，剧里参与过战斗的新人类手上不是沾了血就是有想杀人的念头（首席哥），唯有麻球手上是不沾血也从来没想过要杀人的。第十一集已经把前面的所有悬念，伏笔全部都解释清楚了，修斯的愿望（不让艾尔美斯里的拉拉受伤）与身世，zeknova是怎么产生的等。因为麻球的搅局，这集结尾拉拉被她唤醒了，随着拉拉醒来，梦（保护夏亚的世界线）要结束了（白色高达来咯，同时也是新人类只擅长杀人这个命运的代表），麻球则成为了这个世界线唯一一个能给出超越新人类命运的答案的人。至于这个答案是什么就期待第十二集麻球的举动吧
+
+*****
+
+####  穿越护城河  
+##### 19984#       发表于 2025-6-18 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957285&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-18 01:45</a>
+
+老套是真不觉得，尤其考虑到如今是个太空歌剧都不大受欢迎的年代，高达这种“比较认真”的宇宙科幻作品还 ...</blockquote>
+O'Neill cylinder已经是有快50年历史的东西了
+
+<img src="https://img.stage1st.com/forum/202506/18/020146pqqsuwj9rrntra67.png" referrerpolicy="no-referrer">
+
+<strong>3ACF5806373BD7427DAC49EDCA57A08D.png</strong> (144.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 02:01 上传
+
+隔壁游戏区的宇宙骑警还在用这个呢
+
+*****
+
+####  liekong  
+##### 19985#       发表于 2025-6-18 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957336&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 02:00</a>
+
+铁血第一季不论s1还是贴吧评价其实都挺不错的
+
+但是第二季开始很多人就看出不对劲了，到后半口碑已经烂完 ...</blockquote>
+铁血我一直认为到MA战为止不说优秀吧，起码还是能看的动画，再往后就真的是不行了。
+
+至于水魔，拿水魔来垫又怎么样，水魔这么一坨臭不可闻，GQuX再烂至少还有很多新人遗老都能看的乐子，水魔有什么，百合吗
+
+*****
+
+####  Huiiii  
+##### 19986#       发表于 2025-6-18 02:05
+
+台词写得太直给了，少了很多美感。
+像一篇散文写到一半发现纸不够开始水议论文了。
+
+你早知道后面篇幅这么紧张就不能前面拉屎时候少抽一卷纸吗！
+
+*****
+
+####  liekong  
+##### 19987#       发表于 2025-6-18 02:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957307&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-6-18 01:49</a>
+
+小森这集除了唐突解说泽克诺瓦之外还有一句台词让人在意，说绿叔叔要干掉紫婆不是新人类该做的事，一股子幕 ...</blockquote>
+因为紫婆也说了她是消灭陈腐的地球OT才这么做的，至少明面上也是为了开拓NT的未来，这点绿叔叔也说了，“为了NT就要牺牲地球人吗”，所以紫婆至少不是站在NT的对立面
+
