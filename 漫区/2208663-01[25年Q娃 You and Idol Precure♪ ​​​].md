@@ -2447,3 +2447,21 @@ M08.Awakening Harmony
 
 2025-6-17 22:14 上传
 
+
+*****
+
+####  jaewoongh_  
+##### 1065#       发表于 2025-6-17 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955989&amp;ptid=2208663" target="_blank">modedd 发表于 2025-6-17 22:15</a>
+
+后知后觉，这集这个记者的人设有些过于中性了吧，去年犬q也有这么一位几乎无法只靠外表分辨性别的路人大姐 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/17/230630pz2azb251bh7e122.png" referrerpolicy="no-referrer">
+
+<strong>0b62b384-4591-4855-a64d-e2f89d40ddfe.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 23:06 上传
+
