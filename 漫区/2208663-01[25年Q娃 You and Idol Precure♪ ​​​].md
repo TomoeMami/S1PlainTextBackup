@@ -2474,3 +2474,14 @@ M08.Awakening Harmony
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956219&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-6-17 23:06</a></blockquote>
 今年的外表更中性但性格和cv都是挺王道的热血傻大姐，去年外表更偏向女性但说话一整个酷哥（虽然一共也就两句台词就是），感觉这俩结合一下小友真的要分不清了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PrincessBanana  
+##### 1067#       发表于 2025-6-18 00:25
+
+每次ZQ都会幻视秋元真夏<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+这两位追加这么写也是让整部剧有看头起来了，祝偶Q好运罢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

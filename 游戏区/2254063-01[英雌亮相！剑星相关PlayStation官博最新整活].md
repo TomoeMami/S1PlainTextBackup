@@ -1854,3 +1854,14 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 女拳师魔怔 ...</blockquote>
 之前dota出过类似的被抵制过
 
+
+*****
+
+####  hisousihou  
+##### 171#       发表于 2025-6-18 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954744&amp;ptid=2254063" target="_blank">uyghgyg 发表于 2025-6-17 17:34</a>
+
+要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了 ...</blockquote>
+这招隔壁贴也已经见过了
+
