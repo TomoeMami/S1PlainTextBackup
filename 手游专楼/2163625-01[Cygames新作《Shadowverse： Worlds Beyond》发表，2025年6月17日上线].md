@@ -1777,3 +1777,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 感觉选的预组也很影响体验，我选的皇家感觉还好，朋友选的龙预组打破防了说是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lesword  
+##### 139#       发表于 2025-6-17 18:30
+
+法和皇是之前看着就强的，鱼丸也还可以，其他的都差点意思
+
