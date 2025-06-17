@@ -2742,3 +2742,19 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 19453#       发表于 2025-6-17 23:02
+
+和昨天看到G永恒解包一样果然是送首席，但没想到GQX也是送的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/17/230139zhiuityl7zz6yhik.png" referrerpolicy="no-referrer">
+
+<strong>@GSB1IM`9P0O%_]TLZRS30K.png</strong> (565.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 23:01 上传
+
