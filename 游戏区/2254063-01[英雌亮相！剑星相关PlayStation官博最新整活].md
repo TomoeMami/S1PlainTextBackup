@@ -1209,3 +1209,46 @@ Heldin</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hisousihou  
+##### 113#       发表于 2025-6-17 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953340&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 13:35</a>
+得，又是看到点不同意见就给人打标签
+
+我的意思就是这个词有历史，不是现在生造的
+
+怀疑一个卖肉游戏搞女权 ...</blockquote>
+又在转移话题，麻烦直面你索的问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  heseran  
+##### 114#       发表于 2025-6-17 14:12
+
+啧啧啧，索尼这训狗技巧就是屌啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都这样了还能找到洗的角度。
+
+*****
+
+####  银川智将Kuroky  
+##### 115#       发表于 2025-6-17 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952793&amp;ptid=2254063" target="_blank">剑鹰 发表于 2025-6-17 11:52</a>
+
+英雌不是近两年才出现的网络词汇，该词早在清朝末年就已被使用。在全国报刊索引搜“英雌”二字，1949年以前 ...</blockquote>
+**本来也是个中性音译词，后来也变成辱华象征了，很难懂吗老杂毛
+
+*****
+
+####  寺胖  
+##### 116#       发表于 2025-6-17 14:15
+
+<blockquote>江戸前ルナ 发表于 2025-6-17 12:13
+80-2000年前不少港台武侠小说里确实不少有用“姝”这个词。但这个词2000年后武侠式微基本很少见用了。这次 ...</blockquote>
+好像倚天里就用过“雪岭双姝”把，指的是朱九真和武青婴？
+
