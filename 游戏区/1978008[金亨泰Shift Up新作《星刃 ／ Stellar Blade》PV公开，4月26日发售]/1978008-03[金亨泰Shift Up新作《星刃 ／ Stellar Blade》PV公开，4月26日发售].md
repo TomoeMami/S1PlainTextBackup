@@ -501,3 +501,25 @@ hard难度的渡鸦是给二周目玩家打的
 分支任务提示做得不能行，昨天接了那个小孩和店长爸爸闹矛盾要去扔宝物的任务，“废弃集装箱场”根本不知道 ...</blockquote>
 我分支都直接看攻略的 有些图根本没有大地图。。谁还记得哪是哪<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  masokishin  
+##### 3006#       发表于 2025-6-17 10:17
+
+神圣护卫套好大啊<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，就是披风有点碍事。
+
+*****
+
+####  洛克萨斯  
+##### 3007#       发表于 2025-6-17 10:20
+
+只有电话亭才能传送简直是脱裤子放屁，地图只有两个大地图才有也是莫名其妙，不同地区传送很麻烦也是莫名其妙，把怪打飞没突进cd太蠢了，只能走过去，我就不懂为啥突进还要有cd的，突进是什么很高贵的技能么<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3008#       发表于 2025-6-17 10:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最怀念黑猴平A自带突进的一集 
+
