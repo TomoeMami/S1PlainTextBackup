@@ -1839,3 +1839,19 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">斧王对砍的结果就是打得和2pick一样，基本把把都能10费，5分钟对局什么的不存在的
 
+
+*****
+
+####  岸浪白野  
+##### 146#         楼主| 发表于 2025-6-17 21:06
+
+很多地方都想捏着鼻子，但还是算能....玩吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/17/210431pqo3k3cnoi3qvtot.jpg" referrerpolicy="no-referrer">
+
+<strong>RA9W(DI8JZ(BGVO%~JU~OHG.jpg</strong> (55.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 21:04 上传
+

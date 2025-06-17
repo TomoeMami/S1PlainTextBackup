@@ -2617,3 +2617,29 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 因为GQ的风评莫名想到了（凉宫春日）团长，所以重温了一下，结果阿虚吐槽电影里的一段给我整笑了“两个人从 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原谅不了一点吧，佛如阿虚都差点给团长个大嘴巴子
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 19442#       发表于 2025-6-17 21:05
+
+效仿流龙马故事，黑色的牛披着着黑色的披风从天而降
+
+
+*****
+
+####  emmerMK2  
+##### 19443#       发表于 2025-6-17 21:12
+
+来个性转的阿姆罗吧
+
+*****
+
+####  Sliurus  
+##### 19444#       发表于 2025-6-17 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955678&amp;ptid=2209276" target="_blank">fujissw 发表于 2025-6-17 20:55</a>
+
+原谅不了一点吧，佛如阿虚都差点给团长个大嘴巴子</blockquote>
+但阿虚最后还是原谅了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9306,3 +9306,14 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 那个是解诅咒的BUFF</blockquote>
 那之前花几万解诅咒换的buff现在变白嫖，赚了呀！
 
+
+*****
+
+####  Sissii  
+##### 909#       发表于 2025-6-17 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955576&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-17 20:30</a>
+
+那之前花几万解诅咒换的buff现在变白嫖，赚了呀！</blockquote>
+花钱解了诅咒才能交易<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 你直接打就没交易了，交易里面的宝箱头才是重点，强打换一个卢恩加攻BUFF，但是没交易纯亏吧
+
