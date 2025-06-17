@@ -5593,3 +5593,362 @@ gqx同样是撕开了所谓uc遗老的真面目，真的能 ...</blockquote>
 你还真别说，最后肯定又是元祖捅红高达，拉拉过来挡刀。</blockquote>
 因为只有这样才能完成拉拉的心愿，保护夏亚，然后世界终结，收束时间线。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mika-S  
+##### 19773#       发表于 2025-6-18 00:45
+
+想了半天不知道说啥，这喵安的每一步行动感觉都让我大受震撼<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 19774#       发表于 2025-6-18 00:45
+
+<blockquote>cckuku 发表于 2025-6-18 00:43
+有点像荷兰弟的蜘蛛侠三了，你别管剧情烂不烂角色行为有没有逻辑，你就说三个蜘蛛侠同框打一堆老对手爽不爽 ...</blockquote>
+可没人会否认蜘蛛侠3是垃圾电影，人家豆瓣评分6.6，你g一串这一坨还7.0挂着呢
+
+*****
+
+####  你妈的为什么  
+##### 19775#       发表于 2025-6-18 00:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏亚一秒变身也太搞笑了吧
+
+*****
+
+####  Devola  
+##### 19776#       发表于 2025-6-18 00:46
+
+这么潮的if都能把姨姥骗上钩<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+真想看if不如翻来覆去看uce的动画
+
+*****
+
+####  罥索GFFF  
+##### 19777#       发表于 2025-6-18 00:46
+
+  如果g一串结局还保持这个高分，我只能说高达粉丝活该吃屎，一帮没救了得家伙
+
+*****
+
+####  marlun  
+##### 19778#       发表于 2025-6-18 00:47
+
+关于为什么是782，其实结合前面拉拉能把夏亚的服饰改成一年战争时期的军服来说，应该是93骡子穿越过来，被拉拉改变成了她印象中最熟悉的元祖高达
+
+*****
+
+####  interzhang  
+##### 19779#       发表于 2025-6-18 00:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三虫虽然荷兰虫大畜生，可是托比和加菲虫又没崩
+
+这动画不配给蜘蛛侠3提鞋好吧
+
+*****
+
+####  seedees3  
+##### 19780#       发表于 2025-6-18 00:47
+
+说不定下周大结局后开启正史新篇章，受到GQUX世界的干涉后0079后全部重启
+
+*****
+
+####  EFSF  
+##### 19781#       发表于 2025-6-18 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956938&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-6-18 00:43</a>
+
+我没有说问题是neta Z里的剧场，我甚至几话前就在构想这个场景了
+
+我说的问题是本话里番茄的几次都合式的 ...</blockquote>
+谁管你转场啊，都不重要了，如果不是这帮制作人员还要点脸，连转场都不给你啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再说了，如果GQX就是拉拉创造的世界，你觉得“梦境”需要合理性么？最后真要是拿这个解释，那根本就不需要什么“合理性”了，怎么做都是对的，0079年拉拉在被骡子捅死前瞬间的南柯一梦，那啥都是合理的。
+
+*****
+
+####  七七見奈波  
+##### 19782#       发表于 2025-6-18 00:47
+
+紫婆掏出一把如此短的枪我是没想到的，毕竟基连beam的时候用的可是一把巨长的枪<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 19783#       发表于 2025-6-18 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956842&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-18 00:32</a>
+
+紫婆都研究出fred这种红高达替代物掌握zeknova发生规律了。
+
+鸭子不想着赏紫婆一发火箭筒而是想着处理拉拉 ...</blockquote>
+一般電影知道有異世界的可能後
+
+多數都是即時發展超科技軍備，表面是會說這時防禦異世界侵略的秘密兵器
+
+但也有可能是對異世界侵略/掠奪行為
+
+送他回去就只得電影主角會想到，而且前提對方是異性主角，方便最後另一方準備回家時有悲戀的感覺
+
+*****
+
+####  Sliurus  
+##### 19784#       发表于 2025-6-18 00:48
+
+79if如此爆笑就该猜到作品风格的，抱有多余的期待是我有问题
+
+*****
+
+####  Evomenon  
+##### 19785#       发表于 2025-6-18 00:48
+
+这集还有一个最最最离谱的地方
+你这卫星炮还是全封闭全供氧的啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+一个两个都不戴头盔，飞来炸去的屁事没有，是否太自信了
+还是说集体给夏亚的魔法少女变身背书<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Mika-S  
+##### 19786#       发表于 2025-6-18 00:49
+
+虽然但是，7.0也能算高分吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">在播时候才7.0的，意思不就是最后也就6点几分的东西，有什么好愤慨的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 19787#       发表于 2025-6-18 00:49
+
+大 爆 笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完这集真的被逗笑了 紫太婆真的是鸭子梦女啊 修司身世还没完全说明元祖带着beyond the time出场还挺感动的驾驶员感觉还在藏  看的出来整部作品都是老害自嗨剧情别多想了看的乐就行了
+
+*****
+
+####  猪突猛进R  
+##### 19788#       发表于 2025-6-18 00:49
+
+还研究啥平行世界，被涮过那么多次再研究不小丑么。
+
+包括之前的偶像梗，整个片就是老害们的游乐场，他们爱怎么写就怎么写，没必要合理化。
+
+*****
+
+####  ヒトニナル  
+##### 19789#       发表于 2025-6-18 00:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都是拉拉在发梦了就别在意这种细节了
+
+*****
+
+####  影伴光生  
+##### 19790#       发表于 2025-6-18 00:49
+
+从铁血到水魔再到现在这部，高达篇幅一路减半——再做几部是不是就该高速信息流速通了
+
+—— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  オルガピピック  
+##### 19791#       发表于 2025-6-18 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956964&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 00:46</a>
+
+如果g一串结局还保持这个高分，我只能说高达粉丝活该吃屎，一帮没救了得家伙 ...</blockquote>
+既然觉得这么屎又何必追呢 还是说追着吃屎的搞不明白这片和水魔 铁血的区别在哪<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ku2154513  
+##### 19792#       发表于 2025-6-18 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956973&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 00:48</a>
+这集还有一个最最最离谱的地方
+你这卫星炮还是全封闭全供氧的啊
+一个两个都不戴头盔，飞来炸去的屁事没有， ...</blockquote>
+gfred还有摔落的演出呢，也不知道重力是个什么情况
+
+
+*****
+
+####  罥索GFFF  
+##### 19793#       发表于 2025-6-18 00:50
+
+<blockquote>Mika-S 发表于 2025-6-18 00:49
+虽然但是，7.0也能算高分吗在播时候也就7.0的，意思不就是最后也就6点几分的东西，有什么好愤慨的 ...</blockquote>
+00剧场版7.0，咒术回战2 7.2，你跨没有任何一个地方能接近一点，甚至你已经烂成这样了，还能维持这个评分就挺搞笑的，这玩意比种自高都是羞辱种自了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Toby_dak|-2|水魔厨收收味，以为不会翻历史发言？.|
+
+查看全部评分
+
+*****
+
+####  猪突猛进R  
+##### 19794#       发表于 2025-6-18 00:50
+
+这片就是完成版的水魔。
+
+*****
+
+####  zzf111  
+##### 19795#       发表于 2025-6-18 00:50
+
+这b动画每次结尾和下集预告的部分才是真正的醋
+
+过程不要细想，就说噱头大不大爆不爆吧
+
+*****
+
+####  Toby_dak  
+##### 19796#       发表于 2025-6-18 00:50
+
+<img src="https://p.sda1.dev/25/a72b8ba2e06e6bb3197d00a05112822b/キャプチャ.JPG" id="aimg_w7Ys5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+看到这推立马把CD翻出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/015032mi1i141go3gfd1d1.jpg" referrerpolicy="no-referrer">
+
+<strong>20250618_004301.JPG</strong> (281.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 00:50 上传
+
+*****
+
+####  冰风血羽  
+##### 19797#       发表于 2025-6-18 00:50
+
+这一集胡逼到我都不知道做什么表情只能笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  kcalb  
+##### 19798#       发表于 2025-6-18 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956823&amp;ptid=2209276" target="_blank">浅川雏羽 发表于 2025-6-18 00:30</a>
+
+我完全明白了，牢修和牢骡的关系就像赛文和赛文X一样
+
+主世界主角为了解决事件抵达平行世界后姿态发生了变化 ...</blockquote>
+要是照7X设定来推，诸星是上了JIN的身子致其失亿，而七爷原本的力量被封印（嗯，秒杀王都还只是新号状态。。）最终话觉醒时才是本人上号真力全开版
+
+那么大概就是骡子上了这边修司的身导致其记忆混乱要找玫瑰，“我来自另一边”这句时骡子已觉醒，下回大概率就是觉醒修司（骡子上号版）开元祖。
+
+*****
+
+####  GJRstone  
+##### 19799#       发表于 2025-6-18 00:51
+
+对了番茄都成国际通缉犯了，故事完了怎么落地啊，不会被夏亚夺了庄园庇护下去吧
+
+*****
+
+####  罥索GFFF  
+##### 19800#       发表于 2025-6-18 00:51
+
+<blockquote>オルガピピック 发表于 2025-6-18 00:49
+既然觉得这么屎又何必追呢 还是说追着吃屎的搞不明白这片和水魔 铁血的区别在哪 ...</blockquote>
+你这话同样可以安在水魔上（没多少人追过铁血就算了），这不构成逃避青蒜的理由
+
+
+*****
+
+####  kuriri  
+##### 19801#       发表于 2025-6-18 00:51
+
+<blockquote>猪突猛进R 发表于 2025-6-18 00:06
+麻球和喵安在感情上都败了，修酱心里只有拉拉。</blockquote>
+很可能是因为，拉拉真的是他的母亲……
+
+*****
+
+####  Mika-S  
+##### 19802#       发表于 2025-6-18 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956990&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 00:50</a>
+
+00剧场版7.0，咒术回战2 7.2，你跨没有任何一个地方能接近一点，甚至你已经烂成这样了，还能维持这个评分 ...</blockquote>
+还没播完急什么，播完了自然会掉到属于自己的分数<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Flechette  
+##### 19803#       发表于 2025-6-18 00:52
+
+看这片的乐趣就和看银梦音mad差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 19804#       发表于 2025-6-18 00:52
+
+这片就图一乐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到制作组这群老害就抛弃真情实感
+
+*****
+
+####  kcalb  
+##### 19805#       发表于 2025-6-18 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956826&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-18 00:31</a>
+
+难道还能演一个元祖进化成牛么</blockquote>
+那咋啦，没看过SSSS古利特最终话爆衣变身特摄版的戏码吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 19806#       发表于 2025-6-18 00:53
+
+到最终话的预告还是NT的议题，三小只的情感和去向无人在乎。
+
+*****
+
+####  marlun  
+##### 19807#       发表于 2025-6-18 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957013&amp;ptid=2209276" target="_blank">lunaticfool 发表于 2025-6-18 00:52</a>
+
+这片就图一乐看到制作组这群老害就抛弃真情实感</blockquote>
+是这样的，要说最终评分我也不会给很高，但是追番体验确实绝佳
+
+*****
+
+####  sauron.j  
+##### 19808#       发表于 2025-6-18 00:53
+
+这一集的俺寻思程度创了新高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老太婆怎么就单刀赴会了、鸭子的变身是什么鬼、绿叔叔突然就能看到老太婆了、不用速度线就无法表现打戏速度的鹤卷哥哥、etc.
+
+*****
+
+####  帆前  
+##### 19809#       发表于 2025-6-18 00:54
+
+突然想起来，这不就是那些跳脱奔放言情小说的颠味吗（），本质大型拉拉乙女同人ጿኈቼዽ （）
+
+*****
+
+####  ヒトニナル  
+##### 19810#       发表于 2025-6-18 00:54
+
+重启世界线呗，就跟OP的歌词一样，在检票口没停下脚步，玛秋不会乘上GQuuuuuuX，一切都不会发生
+

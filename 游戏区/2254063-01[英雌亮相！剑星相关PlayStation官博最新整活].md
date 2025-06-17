@@ -1876,3 +1876,13 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 sony中国也搞这种lgbtq的运营吗？国内还是太包容了</blockquote>
 拳师跟lgbtq有啥关系了……国外这俩可能是一个生态位，国内两家仇挺大的吧
 
+
+*****
+
+####  请问有猪扒饭吗  
+##### 173#       发表于 2025-6-18 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956924&amp;ptid=2254063" target="_blank">密特里奈斯 发表于 2025-6-18 00:41</a>
+拳师跟lgbtq有啥关系了……国外这俩可能是一个生态位，国内两家仇挺大的吧 ...</blockquote>
+说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男
+
