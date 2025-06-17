@@ -2588,3 +2588,11 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  Sliurus  
+##### 19439#       发表于 2025-6-17 20:12
+
+感觉第十集后同人更多了，不知道是不是错觉
+
