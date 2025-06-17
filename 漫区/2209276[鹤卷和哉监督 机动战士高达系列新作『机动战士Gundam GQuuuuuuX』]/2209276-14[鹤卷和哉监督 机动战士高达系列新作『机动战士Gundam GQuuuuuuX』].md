@@ -8247,3 +8247,139 @@ top2我是皱着眉头硬生生看完的，唯一的感想就是
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957246&amp;ptid=2209276" target="_blank">pavelpetel 发表于 2025-6-18 01:34</a></blockquote>
 来的更可能是阿克西斯冲击时的牛高达，但是正像夏亚被强行换装一样，拉拉的认识里阿姆罗开的就应该是RX-78所以被直接强行换装成了初代的样子。
 
+
+*****
+
+####  ardente  
+##### 20020#       发表于 2025-6-18 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957382&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-18 02:17</a>
+
+像鹤卷gg这种做ucif，但是把uc部分抽掉自己的if全部一坨的做法，真的有人能猜到吗？唉，已经有五分钟没听到 ...</blockquote>
+别的不说，top2就不是掐头去尾20分钟的动画，就算是top2六集也不够<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 20021#       发表于 2025-6-18 02:29
+
+说起来GQ拉拉作为一个物理意义上的梦女实在太惨了，这条世界线上鸭子对拉拉没啥感情啊，对穿越来的要杀掉，对GQ的放着不管。
+
+*****
+
+####  无念  
+##### 20022#       发表于 2025-6-18 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957403&amp;ptid=2209276" target="_blank">Devola 发表于 2025-6-18 02:26</a>
+top2我是皱着眉头硬生生看完的，唯一的感想就是
+
+“这是续作？标题真的没写错吗？”</blockquote>
+我个人感觉，top1如果算正剧的话，top2不算结尾的那碟醋就有那种带点萌萌二次元的感觉
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kokyou  
+##### 20023#       发表于 2025-6-18 02:30
+
+<blockquote>无念 发表于 2025-6-18 02:27
+等会，艾尔美斯没法接近那G夸是怎么在海里贴贴的？木马怎么捞上来的？它头上的发射器又是怎么装上去的？这 ...</blockquote>
+感觉反了，应该是是装了链接二号机的那个装置才有立场的吧
+
+*****
+
+####  岸浪白野  
+##### 20024#       发表于 2025-6-18 02:31
+
+GQ夏亚CV新佑树访谈里说惊讶第9集会有GQ拉拉，而且只知道自己有配音集数的信息
+
+那GQ拉拉的后续已经不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 20025#       发表于 2025-6-18 02:32
+
+[X 上的 ideolo✨GSF 3組26/土曜西め-60ab：“最終話これでしょ #GQuuuuuuX [url]https://t.co/esQ4O7I8YJ](https://x.com/ideolo/status/1935037539192353021)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/023234mbdx7huqufbiuibb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (772.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 02:32 上传
+
+*****
+
+####  人形灾害  
+##### 20026#       发表于 2025-6-18 02:32
+
+那下集能不能看见元祖祭出6把浮游光剑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 20027#       发表于 2025-6-18 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957408&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 02:29</a>
+说起来GQ拉拉作为一个物理意义上的梦女实在太惨了，这条世界线上鸭子对拉拉没啥感情啊，对穿越来的要杀掉， ...</blockquote>
+其实鸭子要真去找gq拉拉的话剧情就变成速通吉翁了，从这点来看鸭子还是在丢人，真是熟悉的感觉啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ヒトニナル  
+##### 20028#       发表于 2025-6-18 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957402&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 02:26</a>
+味道像那更应该是正史鸭附近的人，鸭闻着像异世界的骡什么的听着也太gay了
+
+不过其实不管是鸭还是骡都不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都BL the time了，这群老害说不定就喜欢骡鸭这种关系性（叠个甲，我云的UC，不磕UC里任何一对CP）
+修司这个身份推来推去只会越来越谜，don't think just feel吧，反正下周二一切揭晓
+
+*****
+
+####  genki  
+##### 20029#       发表于 2025-6-18 02:35
+
+你们都觉得来的是782？万一是RX-78F00呢，飞到夏亚面前召唤玻璃之翼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 20030#       发表于 2025-6-18 02:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957389&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-6-18 02:20</a>
+
+反正我一直觉得top2作为top的续作是全方位降级的，要是能借一串字母青蒜一下top2，那正是喜闻乐见了。 ...</blockquote>
+TOP2其实刚开始观感比TOP好点，我是说以现在的审美去看TOP前半比较闷。虽然铺垫是必要的，但是毕竟不是80年代了，就算牺牲剧情对比度也会在第一集稍微安排一点爆点让观众看下去（其实在80年代TOP也因为前半的闷在一定程度上被埋没了）
+
+这公司的片子其实剧情大都不太经得起推敲，但是只要造视觉奇观能值回票价，那么自有大儒为我汴京，就好像刃牙一样
+
+GQ的问题还是视觉奇观的长处没能掩盖短处
+
+*****
+
+####  西洛克  
+##### 20031#       发表于 2025-6-18 02:36
+
+<blockquote>Sabbah 发表于 2025-6-18 02:20
+反倒是基西莉亚到底是以什么心态做出那段评价的，除了基西莉亚其实看过CCA这个解释以外我是找不太到底的 ...</blockquote>
+基西莉亚就是很纯粹的“强者就是新人类”，弱者不配生存，和汤大基是一脉相承的。而且她自己因为觉醒了newtype，更加自信自己肩负肃清弱者的使命。夏亚说敏锐而温柔的人是新人类可以说是恰好站在了她的对立面。
+
+另外汤大基上一集那么丧我觉得也是有理由的。他和基西莉亚一样，相信新人类是选民，而且因为泽克诺瓦现象，gqx世界的新人类的表现已经是很具体的了，和0079那会nt对普通人还是个谜不一样。自己没有觉醒nt，那就是应该被消灭的弱者，自然就没有自信了
+
+*****
+
+####  ryanghj  
+##### 20032#       发表于 2025-6-18 02:37
+
+鸭子对修司说的话的意思不就是，拉拉这么干是为了我，那为了我（这个世界能存续下去）就必须要她消失才行
+
+挺无情的，但是gq鸭子也对拉拉没啥感情就是了，这条世界线上他有绿叔叔，也符合夏亚算计人的形象
+
