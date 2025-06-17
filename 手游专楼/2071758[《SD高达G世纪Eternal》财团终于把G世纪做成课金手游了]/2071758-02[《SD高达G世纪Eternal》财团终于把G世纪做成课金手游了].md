@@ -4593,3 +4593,11 @@ FAMI通报道《SD高达G世纪 永恒》运营首月(4.16-5.15)营收突破3500
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在已经可以畅想非凡自由能霸榜多少天了，我相信种厨的战斗力
 
+
+*****
+
+####  希望之花  
+##### 1904#       发表于 2025-6-17 17:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给财团B尝到甜头以后是不是G世纪就不出单机版了
+

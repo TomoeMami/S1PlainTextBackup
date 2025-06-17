@@ -2195,3 +2195,16 @@ short edition？有没有long version
 
 就是剪辑版
 
+
+*****
+
+####  七七見奈波  
+##### 19423#       发表于 2025-6-17 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954542&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-17 17:03</a>
+
+有完整版，可能要乖乖等明晚？
+
+這鼓點真舒服~</blockquote>
+那太好了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
+

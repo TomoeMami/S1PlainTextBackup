@@ -1576,3 +1576,42 @@ LOL和DOTA小圈子用什么话骂人那是 ...</blockquote>
 你个奇葩号是买的吗？抬头看看游戏区版头写的啥？</blockquote>
 S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剑鹰  
+##### 144#       发表于 2025-6-17 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954577&amp;ptid=2254063" target="_blank">stlover 发表于 2025-6-17 17:07</a>
+
+又把索尼替换成剑星了，老英雌本色了</blockquote>
+那我更正一下，这帖子讨论的是剑星相关PlayStation官博最新整活，不是LOL和DOTA
+
+
+*****
+
+####  vvNemo  
+##### 145#       发表于 2025-6-17 17:30
+
+索粉和川粉是我在互联网上遇到的最“忠诚”的两个群体
+
+**全家发虚拟币把川粉当韭菜收割，赚得盆满钵满
+
+索尼不遑多让，大中华区完整70美刀独一份的游戏价格割得孝子们感恩戴德
+
+*****
+
+####  TANA  
+##### 146#       发表于 2025-6-17 17:32
+
+你们真爱和猪在泥坑里摔跤<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+猪很享受的
+
+*****
+
+####  uyghgyg  
+##### 147#       发表于 2025-6-17 17:34
+
+要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了
+
