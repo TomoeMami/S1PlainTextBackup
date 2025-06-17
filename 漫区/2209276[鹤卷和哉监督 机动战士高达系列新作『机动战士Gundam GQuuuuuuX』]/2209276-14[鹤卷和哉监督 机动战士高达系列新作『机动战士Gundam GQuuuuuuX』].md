@@ -1384,3 +1384,18 @@ ma最后的高光不是冰箱打绿螳螂么
 
 打开X就看到麻球的中之人腐属性逆输入进同人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AJ舞台时就看出来黑泽是夏亚厨，只是没想到这么界限
 
+
+*****
+
+####  LadySaazbaum  
+##### 19338#       发表于 2025-6-17 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951585&amp;ptid=2209276" target="_blank">bandage_n2_ki 发表于 2025-6-17 09:07</a>
+
+打开X就看到麻球的中之人腐属性逆输入进同人AJ舞台时就看出来黑泽是夏亚厨，只是没想到这么界限 ...</blockquote>
+Tomoyo很会磕，樱花妹那边赤绿主仆是主流，参透鸭鸭缺爱本质的人才会转向绿赤<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+以及在声优节目之前，十话播出之后，已经有绿叔叔带小番茄的父女组了，这个时候鸭鸭就已经蹭上了继父的身份XD 当然现在更是发扬光大XDD
+
+（但有不少是小番茄修正夏亚sama的走向，不知道Tomoyo会不会喜欢）
+

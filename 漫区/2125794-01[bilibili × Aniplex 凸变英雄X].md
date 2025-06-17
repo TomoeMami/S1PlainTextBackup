@@ -3784,3 +3784,16 @@ X终于正式露脸了 不过这能力有点bug啊
 
 毕竟国内是先拍完送审的，周期长，没法蹭"热点"
 
+
+*****
+
+####  plazum  
+##### 321#       发表于 2025-6-17 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951095&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-6-17 02:45</a>
+
+我觉得不大可能
+
+毕竟国内是先拍完送审的，周期长，没法蹭"热点"</blockquote>
+虽然我说是时事，但是性别叙事也不是最近几个月才流行起来的，所以就算周期长也是不影响存在这种可能性的
+
