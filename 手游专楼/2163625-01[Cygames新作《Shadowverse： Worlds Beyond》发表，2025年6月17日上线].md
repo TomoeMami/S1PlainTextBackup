@@ -1584,3 +1584,20 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 国际服开了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 118#       发表于 2025-6-17 11:25
+
+国服也是能进了
+抽完了送的卡包都是十连一虹卡保底，服了
+
+
+*****
+
+####  a1370303  
+##### 119#       发表于 2025-6-17 11:30
+
+哦牛逼，还有高手，金卡分解从250降到了200，银卡分解从50降到了20。但是合虹卡好像还是3500<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

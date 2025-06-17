@@ -1479,3 +1479,37 @@ BEYOND THE TIME 2025
 
 谁唱，不会是皮套人吧？那可真够XX的
 
+
+*****
+
+####  ryanghj  
+##### 19347#       发表于 2025-6-17 11:31
+
+好家伙，新插曲是beyond the time？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 19348#       发表于 2025-6-17 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952623&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-6-17 11:27</a>
+谁唱，不会是皮套人吧？那可真够XX的</blockquote>
+不是翻唱，就原版
+
+*****
+
+####  七七見奈波  
+##### 19349#       发表于 2025-6-17 11:32
+
+往好了想，兴许是gqx鸭开着萝卜从天（？）而降的bgm呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">天知道我昨天还复习了cca，顺道又听了西川贵教的翻唱，这就告诉我BYT2025了
+
+
+*****
+
+####  ykyin09  
+##### 19350#       发表于 2025-6-17 11:34
+
+boss是牛高达吧，毕竟沙扎比都被上篮了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

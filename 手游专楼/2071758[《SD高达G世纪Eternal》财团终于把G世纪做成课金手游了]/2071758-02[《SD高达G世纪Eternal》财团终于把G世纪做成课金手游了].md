@@ -4500,3 +4500,14 @@ G商店还更新了个凤凰
 
 啊？这都能登顶？我低估w粉丝的购买力了
 
+
+*****
+
+####  夜之光  
+##### 1896#       发表于 2025-6-17 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948071&amp;ptid=2071758" target="_blank">二阶堂真琉 发表于 2025-6-16 15:35</a>
+
+不用体力挺好，但是那个独立的行动点回起来好久啊（</blockquote>
+先打隐藏，每个隐藏给10体力，两关给的20多体够你冲到BOSS面前了
+
