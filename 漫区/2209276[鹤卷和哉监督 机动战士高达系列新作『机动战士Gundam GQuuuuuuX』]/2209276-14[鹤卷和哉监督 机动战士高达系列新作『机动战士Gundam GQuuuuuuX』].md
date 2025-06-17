@@ -2187,3 +2187,11 @@ short edition？有没有long version
 
 我有点没听出和原版的区别，音质更清晰？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 19422#       发表于 2025-6-17 17:10
+
+就是剪辑版
+

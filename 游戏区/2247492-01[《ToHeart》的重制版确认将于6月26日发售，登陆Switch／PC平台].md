@@ -800,3 +800,11 @@ PC有汉化？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就是你们说的那个更喜欢toheart2的，二代机器人妹妹更戳我就是了
 
+
+*****
+
+####  Piano-Forest  
+##### 71#       发表于 2025-6-17 17:07
+
+Demo试玩6月19日上线
+
