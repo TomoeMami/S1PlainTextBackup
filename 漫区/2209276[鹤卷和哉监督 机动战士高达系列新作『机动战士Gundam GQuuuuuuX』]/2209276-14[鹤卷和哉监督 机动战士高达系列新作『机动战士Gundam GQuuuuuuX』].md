@@ -2663,3 +2663,37 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 请给我更多的小森！虽然斜眼瞟着绿叔叔一边心里碎碎念正是小森的迷人之处，但个人情节也太少了，第一话就揭 ...</blockquote>
 可惜小森作用就是绿叔叔吐槽挂件<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 19447#       发表于 2025-6-17 21:28
+
+为啥没人猜修司和青恩有关系，明明都是蓝头发，这里青恩带的精神骨架到处飘，修司不会是精神骨架成精了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+捕获1.PNG
+(1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 21:28 上传
+
+<img src="https://img.stage1st.com/forum/202506/17/212810pibexntdt8k7xnf8.png" referrerpolicy="no-referrer">
+
+捕获2.PNG
+(806.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 21:28 上传
+
+<img src="https://img.stage1st.com/forum/202506/17/212813ptbbh2zkmh00amej.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 19448#       发表于 2025-6-17 21:30
+
+脑洞都开到倩恩了还不如直接开到拉拉，毕竟79里拉拉那个发色画法也可以和修司发色靠一靠嘛<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
