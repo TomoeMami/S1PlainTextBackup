@@ -1954,3 +1954,28 @@ Operation Skuld
 
 不是，11集才开始loop也太离谱了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 19397#       发表于 2025-6-17 14:16
+
+阿姆罗要出场机械降神打爆一切了吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 19398#       发表于 2025-6-17 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡哈：让我们来教你怎么在12话里回顾完老UC
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ryanghj  
+##### 19399#       发表于 2025-6-17 14:23
+
+这曲子明显是冲着和剧情呼应去的而不是要老角色出场啊
+
