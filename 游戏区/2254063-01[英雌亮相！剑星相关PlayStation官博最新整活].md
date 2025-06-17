@@ -1865,3 +1865,14 @@ zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zh
 要说lgbt任天堂我不记得每年那什么骄傲月不也发图庆祝吗 怎么坛友这会对着个英雌高潮了 ...</blockquote>
 这招隔壁贴也已经见过了
 
+
+*****
+
+####  密特里奈斯  
+##### 172#       发表于 2025-6-18 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951543&amp;ptid=2254063" target="_blank">nagitoY 发表于 2025-6-17 09:00</a>
+
+sony中国也搞这种lgbtq的运营吗？国内还是太包容了</blockquote>
+拳师跟lgbtq有啥关系了……国外这俩可能是一个生态位，国内两家仇挺大的吧
+

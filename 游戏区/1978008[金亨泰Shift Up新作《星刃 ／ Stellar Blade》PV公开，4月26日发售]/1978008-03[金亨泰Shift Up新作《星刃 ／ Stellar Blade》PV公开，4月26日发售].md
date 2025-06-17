@@ -1205,3 +1205,41 @@ DLC开着，不过前面这个锁定是啥意思，会不会有影响
 
 废土拍蝴蝶，有个地方要穿过峡谷，有3块红色玻璃板要连续飞檐走壁的，是不是需要解锁2段跳才能搞？
 
+
+*****
+
+####  mhss  
+##### 3075#       发表于 2025-6-18 00:37
+
+钓鱼不开辅助那是人玩的？<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+反向连击x都还好，控制rt的力度是真遭不住，只能不断快速轻按让光标不停的在指定区域来回经过涨条，根本不可能在区域停留，还是我弄错了操作方法？
+
+
+*****
+
+####  oyss  
+##### 3076#       发表于 2025-6-18 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956887&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-18 00:37</a>
+
+钓鱼不开辅助那是人玩的？
+
+反向连击x都还好，控制rt的力度是真遭不住，只能不断快速轻按让光标不停的在指定 ...</blockquote>
+手柄的扳机不够灵敏吧.我用ds5没啥问题.开辅助反而玩不惯.
+
+*****
+
+####  袄_偶滴小乔  
+##### 3077#       发表于 2025-6-18 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956887&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-18 00:37</a>
+
+钓鱼不开辅助那是人玩的？
+
+反向连击x都还好，控制rt的力度是真遭不住，只能不断快速轻按让光标不停的在指定 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">PS5用DUALSENSE钓得好好得，而且关掉力回馈变成普通扳机以后应该更好钓
+
+现在可以改成转圈经过指定区域进行按键的QTE模式吧
+
+该不会是你手柄有问题，扳机按下去直接到底吧
+
