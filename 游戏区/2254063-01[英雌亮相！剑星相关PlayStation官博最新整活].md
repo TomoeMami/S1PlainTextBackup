@@ -1347,3 +1347,16 @@ Heldin</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 我是PC党，谢谢，主机虽然都有吧
 
+
+*****
+
+####  剑鹰  
+##### 126#       发表于 2025-6-17 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953540&amp;ptid=2254063" target="_blank">银川智将Kuroky 发表于 2025-6-17 14:14</a>
+
+**本来也是个中性音译词，后来也变成辱华象征了，很难懂吗老杂毛</blockquote>
+zhi那我知道，问题是英雌什么时候不能用了？官方明确抵制zhi那，英雌抵制过么？泥潭都没屏蔽
+
+女拳师魔怔，某些人我看也好不到哪去
+
