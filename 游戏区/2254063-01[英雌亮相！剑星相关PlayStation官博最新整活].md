@@ -1752,3 +1752,41 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 女权最讨厌的就是娇妻，所以反对娇这个词</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">那娇妻霸道总裁文改编的剧，看着不少女权相关人士也在看啊，都是批判性的看吗
 
+
+*****
+
+####  黑上シグマ  
+##### 161#       发表于 2025-6-17 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954941&amp;ptid=2254063" target="_blank">摸鱼2号 发表于 2025-6-17 18:08</a>
+
+那娇妻霸道总裁文改编的剧，看着不少女权相关人士也在看啊，都是批判性的看吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以看，你不能用
+
+*****
+
+####  月夜凝雪  
+##### 162#       发表于 2025-6-17 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951556&amp;ptid=2254063" target="_blank">D-JoeII 发表于 2025-6-17 09:03</a>
+英雌是近年生造詞嗎,感覺很多年前就見過了,只是用的不多</blockquote>
+20年前的别人用这个词的时候lgbt还不知道在哪里
+<img src="https://p.sda1.dev/25/156fb027cbca8b42d7701f3a4d1fa659/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  请问有猪扒饭吗  
+##### 163#       发表于 2025-6-17 18:16
+
+感觉本帖快要进格斗区了
+
+
+*****
+
+####  snarc1  
+##### 164#       发表于 2025-6-17 18:22
+
+词语的意思是永远不变的吗？在不同的时代有不同的含义，索索这样洗未免难看了些，当然这年头还继续铁血索索而不拷打索尼的，可能确实跟不上时代
+
