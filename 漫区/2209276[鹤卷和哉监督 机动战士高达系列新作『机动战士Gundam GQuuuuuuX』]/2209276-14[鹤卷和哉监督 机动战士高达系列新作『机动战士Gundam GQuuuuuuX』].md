@@ -2051,3 +2051,20 @@ Operation Skuld
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实修司是元祖的化身
 
+
+*****
+
+####  adretyu67.  
+##### 19408#       发表于 2025-6-17 15:37
+
+修斯不是贝子的原因很简单啊，你真要膜也是cca骡鸭互基，而不是贝子。
+
+辱鸭的时候还得是cca遗言深入人心。
+
+*****
+
+####  ryanghj  
+##### 19409#       发表于 2025-6-17 15:39
+
+其实很明显三人组都是gq世界的人吧，修司也不会是什么正史穿越来的
+

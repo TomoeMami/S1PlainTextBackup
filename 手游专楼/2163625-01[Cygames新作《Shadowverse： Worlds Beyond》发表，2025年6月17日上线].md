@@ -1697,3 +1697,14 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 我看有人广场宝箱能开出来100包诶，cy这是什么意思，一个日常奖励上下限这么大？运气差的人不许玩szb？
 
+
+*****
+
+####  凉良  
+##### 130#       发表于 2025-6-17 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953840&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-17 15:04</a>
+
+我看有人广场宝箱能开出来100包诶，cy这是什么意思，一个日常奖励上下限这么大？运气差的人不许玩szb？还是 ...</blockquote>
+有颗痘 三十包三异画 小游戏拿一百包  问问自己是“大”主播吗
+
