@@ -523,3 +523,47 @@ hard难度的渡鸦是给二周目玩家打的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最怀念黑猴平A自带突进的一集 
 
+
+*****
+
+####  心灵的乳头  
+##### 3009#       发表于 2025-6-17 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952030&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-17 10:10</a>
+
+直接把他射爆</blockquote>
+手上的滋水枪搞不过啊，炮台都在制高点，它锁定到发射这点真空期，我弹匣都清不空<img src="https://static.stage1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3010#       发表于 2025-6-17 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952106&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-17 10:20</a>
+只有电话亭才能传送简直是脱裤子放屁，地图只有两个大地图才有也是莫名其妙，不同地区传送很麻烦也是莫名其 ...</blockquote>
+剑星这游戏突进有强制硬直，有cd不奇怪，只不过和其他随便咿呀剑法和尼禄长按y突击一比还是很**就是了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  洛克萨斯  
+##### 3011#       发表于 2025-6-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952243&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-17 10:41</a>
+
+手上的滋水枪搞不过啊，炮台都在制高点，它锁定到发射这点真空期，我弹匣都清不空 ...</blockquote>
+磁轨炮加飞针，你应该这个时候有飞针了
+
+*****
+
+####  洛克萨斯  
+##### 3012#       发表于 2025-6-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952251&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-17 10:42</a>
+
+剑星这游戏突进有强制硬直，有cd不奇怪，只不过和其他随便咿呀剑法和尼禄长按y突击一比还是很**就是了。
+
+ ...</blockquote>
+她挥刀直接把人吸过去也行啊，都不带追踪的，好几次打飞对面然后原地罚站浪费时间
+
