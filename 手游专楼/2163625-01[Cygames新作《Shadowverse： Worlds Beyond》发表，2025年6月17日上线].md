@@ -1820,3 +1820,14 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">冰菓任务里头那个什么编辑海报是啥玩意。
 
+
+*****
+
+####  凉良  
+##### 144#       发表于 2025-6-17 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955476&amp;ptid=2163625" target="_blank">YMS16M 发表于 2025-6-17 20:04</a>
+
+冰菓任务里头那个什么编辑海报是啥玩意。</blockquote>
+去空间里 换个海报 空间在乐园选项旁边
+

@@ -1828,3 +1828,16 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 
 谁说索姁不打逆风局<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Edward0901  
+##### 169#       发表于 2025-6-17 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953671&amp;ptid=2254063" target="_blank">wondor1111 发表于 2025-6-17 14:39</a>
+
+臣欲战死陛下何故先降
+
+幺妮只是遇上了比她们还抽象的幺姁</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">改了吗，那集美该冲了啊
+
