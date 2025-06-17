@@ -32,3 +32,21 @@ PV5 空门苍：[https://youtu.be/3HE9ZjOAqZM](https://youtu.be/3HE9ZjOAqZM)
 
 什么蒙蔽了我双眼<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 169#       发表于 2025-6-17 12:00
+
+这角色蛮好看的
+<img src="https://p.sda1.dev/24/bd4861223fc529707cb26f1897c87d44/Screenshot_20250617_111835_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+可爱捏可爱捏
+<img src="https://p.sda1.dev/24/337e0684ddf7a35c7bc23aa1593d3926/Screenshot_20250617_112407_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+不是哥们. jpg怎么你个非电波角色也有事啊，我算看出来了，你们一个个都身怀绝技. jpg岛上人杰地灵，美少女都是女鬼（
+<img src="https://p.sda1.dev/24/c28201532097d3df4157d91bbe06d93b/Screenshot_20250617_112721_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+呵呵呵，山祭？肠流祭！御社神作祟说是（
+<img src="https://p.sda1.dev/24/f247c96532c1d0e004b35b3fd9182573/Screenshot_20250617_113245_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
