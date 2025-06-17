@@ -8745,3 +8745,31 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 
 我看不懂，可我大受震撼.jpg
 
+
+*****
+
+####  asikies  
+##### 20063#       发表于 2025-6-18 07:03
+
+ 本帖最后由 asikies 于 2025-6-18 07:05 编辑 
+
+有种为了这点醋包这盘饺子的傻逼感…
+
+*****
+
+####  pmoe  
+##### 20064#       发表于 2025-6-18 07:06
+
+越看越觉得，gq宇宙不过是正史拉拉临死前的梦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朋友费小号  
+##### 20065#       发表于 2025-6-18 07:10
+
+我不知道鹤卷和痞子动画播完是不是要高潮，这第十一集让一早爬起来看的我看高潮了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+边看边狂笑，但是最后78出来，bydtime一响还是带点眼泪，这下有笑有泪了，可惜估计看不到骡子叔叔大杀四方，估计是修司接管78开杀了<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
