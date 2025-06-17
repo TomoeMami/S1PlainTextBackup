@@ -745,3 +745,16 @@ Sb索尼是真会帮倒忙。
 动作游戏就没必要开帧生成把，我记得剑星都没光追。。。猴子我开光追才需要帧生成，玩到三周目也没问题， ...</blockquote>
 这游戏dlaa都能玩，根本不需要dlss
 
+
+*****
+
+####  nagitoY  
+##### 3031#       发表于 2025-6-17 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953547&amp;ptid=1978008" target="_blank">LMBS 发表于 2025-6-17 14:15</a>
+
+怎么见了最终BOSS后的存档真就只能打BOSS，还以为能到几个野外图做下文档收集
+
+靠存档备份打了两个结局，怎 ...</blockquote>
+最后母主真身是个萝莉妈妈，金亨泰是真的懂二次元潮流
+

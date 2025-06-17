@@ -1315,3 +1315,14 @@ Heldin</blockquote>
 
 索尼一个宣传LGBT的说他不会打拳？不可思议
 
+
+*****
+
+####  longlivedick  
+##### 123#       发表于 2025-6-17 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953052&amp;ptid=2254063" target="_blank">夜雨夜雨夜雨 发表于 2025-6-17 12:33</a>
+索尼是真的会帮倒忙啊。
+不会做事可以不做的。</blockquote>
+换个角度想，也许是故意的呢？就是看不过pc版销量太好，把打拳的屎往剑星身上抹
+
