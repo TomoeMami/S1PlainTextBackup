@@ -2606,3 +2606,14 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 如果鹤卷是16岁jk的话，大家都会原谅他吧
 
+
+*****
+
+####  fujissw  
+##### 19441#       发表于 2025-6-17 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955638&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-17 20:46</a>
+
+因为GQ的风评莫名想到了（凉宫春日）团长，所以重温了一下，结果阿虚吐槽电影里的一段给我整笑了“两个人从 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原谅不了一点吧，佛如阿虚都差点给团长个大嘴巴子
+
