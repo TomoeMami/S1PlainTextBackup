@@ -1855,3 +1855,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 2025-6-17 21:04 上传
 
+
+*****
+
+####  格雷殿下  
+##### 147#       发表于 2025-6-17 21:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要变日本三国杀了
+

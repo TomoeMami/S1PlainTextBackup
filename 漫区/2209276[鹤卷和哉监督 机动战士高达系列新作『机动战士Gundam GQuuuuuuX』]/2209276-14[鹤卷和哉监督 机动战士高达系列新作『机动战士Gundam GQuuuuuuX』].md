@@ -2643,3 +2643,23 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 原谅不了一点吧，佛如阿虚都差点给团长个大嘴巴子</blockquote>
 但阿虚最后还是原谅了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xell2alex  
+##### 19445#       发表于 2025-6-17 21:21
+
+请给我更多的小森！虽然斜眼瞟着绿叔叔一边心里碎碎念正是小森的迷人之处，但个人情节也太少了，第一话就揭示了对首席哥的想法但后来好像根本没互动啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  洛亚替身  
+##### 19446#       发表于 2025-6-17 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955790&amp;ptid=2209276" target="_blank">xell2alex 发表于 2025-6-17 21:21</a>
+
+请给我更多的小森！虽然斜眼瞟着绿叔叔一边心里碎碎念正是小森的迷人之处，但个人情节也太少了，第一话就揭 ...</blockquote>
+可惜小森作用就是绿叔叔吐槽挂件<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
