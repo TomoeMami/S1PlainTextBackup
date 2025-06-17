@@ -1951,3 +1951,14 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 邀请好友任务自己只能输入一个好友码，任务栏的20好友是只能别人邀请你吗，有点不懂这个机制<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 157#       发表于 2025-6-17 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956259&amp;ptid=2163625" target="_blank">小黑鱼 发表于 2025-6-17 23:17</a>
+
+邀请好友任务自己只能输入一个好友码，任务栏的20好友是只能别人邀请你吗，有点不懂这个机制 ...</blockquote>
+就是让你去拉人头啊 bro  传销懂不懂啊
+
