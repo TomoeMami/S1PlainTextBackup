@@ -1258,3 +1258,14 @@ DLC开着，不过前面这个锁定是啥意思，会不会有影响
 
 联动还要玩nikke真是难绷，血战上海滩还在追我
 
+
+*****
+
+####  kiralzb  
+##### 3080#       发表于 2025-6-18 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956773&amp;ptid=1978008" target="_blank">幽远ghofar 发表于 2025-6-18 00:24</a>
+
+转了几圈没看到，是不是要开季节内容才有？</blockquote>
+三轮车跑得飞快，听到BGM不马上射击很快就跑远见不到了的，得多传送重刷
+
