@@ -2708,3 +2708,15 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 按我之前看到舅舅党的消息，gqux就是93螺鸭搞出来的事，有byt不奇怪，现在看剧透应该能坐实舅舅的离谱剧透 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果鸡夸的机魂是修斯，那么第七话那个把喵安扔出驾驶舱的操作就更加好笑了。
 
+
+*****
+
+####  qixinno2  
+##### 19450#       发表于 2025-6-17 22:11
+
+ 本帖最后由 qixinno2 于 2025-6-17 22:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955720&amp;ptid=2209276" target="_blank">螺旋的小夜曲 发表于 2025-6-17 21:05</a>
+
+效仿流龙马故事，黑色的牛披着着黑色的披风从天而降</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟盖塔ARC的真盖塔虚无一样算了 穿越空间裂缝现身 再随着闪光消失
+

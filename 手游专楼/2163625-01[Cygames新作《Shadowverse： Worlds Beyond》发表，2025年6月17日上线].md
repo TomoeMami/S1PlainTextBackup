@@ -1888,3 +1888,24 @@ steam国际服不转区是不是玩不了啊</blockquote>
 都在骂有没有好哥哥互填一下码  cD7SgFd  <img src="https://static.stage1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 国服国服
 
+
+*****
+
+####  萩原组土狼p  
+##### 150#       发表于 2025-6-17 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955830&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-17 21:33</a>
+
+玩了一天了，感觉可以评价下新经济系统了。
+
+1资源获取数量其实没比以前少，乐园奖励其实比想的好。如果现 ...</blockquote>
+这就是把以前逼你肝，变成逼你社交么，你不社交东西都拿不全
+
+
+*****
+
+####  辞冬  
+##### 151#       发表于 2025-6-17 22:12
+
+乐园奖励真的好吗，我18发抽了得有12发的弱智装扮，卡包就1张，不来点消息我是顶不住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
