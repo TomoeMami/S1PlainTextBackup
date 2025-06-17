@@ -1533,3 +1533,54 @@ boss是牛高达吧，毕竟沙扎比都被上篮了<img src="https://static.sta
 
 来猜GQX的机魂吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 19353#       发表于 2025-6-17 11:44
+
+12集不会是93鸭骡打艾尔梅斯吧
+
+*****
+
+####  EFSF  
+##### 19354#       发表于 2025-6-17 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952602&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-17 11:24</a>
+
+要是11集就BYD时间了，那12集该演些啥
+
+—— 来自 HUAWEI ELS-AN10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+平静的生活<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 19355#       发表于 2025-6-17 11:46
+
+唉，致敬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 19356#       发表于 2025-6-17 11:48
+
+music！
+
+一轮强劲的音乐响起，好像是一首很旧的歌，在八十年代，由一班叫TM NETWORK唱的歌，而更在此刻，两个身影在修斯的背后出现
+
+
+*****
+
+####  灵魂收割机  
+##### 19357#       发表于 2025-6-17 11:50
+
+难道真的是贝子漂流记？
+
+*****
+
+####  YU_JI  
+##### 19358#       发表于 2025-6-17 11:52
+
+BYD time？真就直接放原版啊？
+

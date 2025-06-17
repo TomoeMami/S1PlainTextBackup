@@ -1782,3 +1782,16 @@ SOLO了几次，感觉抓后摇出硬直对两个多人BOSS基本无效，不管
 
 感觉我玩的和你们不是一个游戏，我不喜欢空挥，但是不空挥感觉没法玩，高手到底是怎么玩的
 
+
+*****
+
+####  放大镜  
+##### 289#       发表于 2025-6-17 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950762&amp;ptid=2173536" target="_blank">windaria 发表于 2025-6-16 23:49</a>
+
+感觉我玩的和你们不是一个游戏，我不喜欢空挥，但是不空挥感觉没法玩，高手到底是怎么玩的 ...</blockquote>
+打断规则看楼上，就在本页
+
+纯规则，无技术，没门槛
+

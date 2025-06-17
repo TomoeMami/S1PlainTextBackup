@@ -1601,3 +1601,13 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 哦牛逼，还有高手，金卡分解从250降到了200，银卡分解从50降到了20。但是合虹卡好像还是3500<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 120#       发表于 2025-6-17 11:50
+
+笑了，感觉kr有点非人了
+
+主要这次你就算说美少女但画风质量也下降了
+
