@@ -1686,3 +1686,33 @@ Z高达最好看一下
 
 这下逆鸭不得不看了&lt;——NEW！
 
+
+*****
+
+####  秋月孝三  
+##### 19369#       发表于 2025-6-17 12:14
+
+快进到gaia gear
+
+*****
+
+####  pokemon最爱  
+##### 19370#       发表于 2025-6-17 12:16
+
+早就说了泽克诺瓦这东西摆明了跟阿克西斯奇迹有关系不看79和Z也得看CCA啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过后面加了个2025是编曲有变化呢还是部分重填词呢……
+
+
+*****
+
+####  kuriri  
+##### 19371#       发表于 2025-6-17 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669858&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-17 09:14</a>
+
+我也更新了一下猜测：
+
+1. 鹤卷说高达的核心是新人类，gqx对新人类的概念进行了新的探索，这探索可能是具有 ...</blockquote>
+是时候把3个月前的预测转发出来了
+

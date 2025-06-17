@@ -1621,3 +1621,22 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  辞冬  
+##### 122#       发表于 2025-6-17 12:19
+
+怎么说，还有必要下载下来试试吗
+
+
+*****
+
+####  凉良  
+##### 123#       发表于 2025-6-17 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952975&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-17 12:19</a>
+怎么说，还有必要下载下来试试吗</blockquote>
+你如果有期待可以每天领个包
+你如果对滑轨没期待 直接跑了吧
+
