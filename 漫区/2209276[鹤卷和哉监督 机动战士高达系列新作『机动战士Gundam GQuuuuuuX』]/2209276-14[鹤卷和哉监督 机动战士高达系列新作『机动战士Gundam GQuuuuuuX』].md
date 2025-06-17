@@ -8474,3 +8474,39 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 世界能够存续，玛秋成神 ...</blockquote>
 究极小圆脸是吧<img src="https://static.stage1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruanruande  
+##### 20041#       发表于 2025-6-18 02:49
+
+大胆一点，把脑子扔了，牢修是夏亚和拉拉的儿子，或者说拉拉幻想出来的和夏亚的儿子。
+
+*****
+
+####  ku2154513  
+##### 20042#       发表于 2025-6-18 02:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957450&amp;ptid=2209276" target="_blank">ruanruande 发表于 2025-6-18 02:49</a>
+大胆一点，把脑子扔了，牢修是夏亚和拉拉的儿子，或者说拉拉幻想出来的和夏亚的儿子。 ...</blockquote>
+那小森也可以是阿姆罗和塞拉的女儿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kk霖洞九  
+##### 20043#       发表于 2025-6-18 02:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957375&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 02:15</a>
+和基西利亚剧场那段至少对人物塑造是有意义的。gqx夏亚没主世界那么魔怔，甚至比裤袜脱落都正常不少。（没 ...</blockquote>
+孩子学会独立了
+
+*****
+
+####  kk霖洞九  
+##### 20044#       发表于 2025-6-18 02:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957375&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 02:15</a>
+和基西利亚剧场那段至少对人物塑造是有意义的。gqx夏亚没主世界那么魔怔，甚至比裤袜脱落都正常不少。（没 ...</blockquote>
+既没有能撒娇的妈妈，也没有铜头皮带的严父，孩子当然就正常独立了<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
