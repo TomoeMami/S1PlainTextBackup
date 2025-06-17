@@ -1935,3 +1935,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 好消息么就是 BYD全球范围口碑爆炸  KMR多少还是要滑轨下的。
 
+
+*****
+
+####  alucardcz  
+##### 155#       发表于 2025-6-17 22:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">steam喜提差评如潮
+

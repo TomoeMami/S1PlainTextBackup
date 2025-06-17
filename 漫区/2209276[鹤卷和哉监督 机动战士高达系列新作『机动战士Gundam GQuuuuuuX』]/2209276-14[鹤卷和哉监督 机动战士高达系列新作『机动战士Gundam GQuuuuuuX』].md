@@ -2720,3 +2720,15 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 效仿流龙马故事，黑色的牛披着着黑色的披风从天而降</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟盖塔ARC的真盖塔虚无一样算了 穿越空间裂缝现身 再随着闪光消失
 
+
+*****
+
+####  帆前  
+##### 19451#       发表于 2025-6-17 22:36
+
+今晚牢修身世揭露回，声优说会很让人意外。
+
+主线可以看看。对喵安人设和主角团关系，我就先谨慎不乐观了。
+
+555，我喵安不能被粗暴黑化塑啊，不可以，不可以啊
+
