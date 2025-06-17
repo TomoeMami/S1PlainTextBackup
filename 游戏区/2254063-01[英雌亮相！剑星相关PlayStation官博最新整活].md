@@ -1081,3 +1081,18 @@ Heldin
 
 —— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mamamiya  
+##### 100#       发表于 2025-6-17 13:03
+
+我没文化，搜索资料说英雌是100多年前为了打拳生造出来的，也算是继承先辈遗志了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 101#       发表于 2025-6-17 13:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一小撮人老想着跟大多数正常人杠是觉得自己很英雌么
+

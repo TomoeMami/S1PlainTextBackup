@@ -4519,3 +4519,39 @@ G商店还更新了个凤凰
 
 零式飞翼29w战力4回合败北还限1队W
 
+
+*****
+
+####  arthes  
+##### 1898#       发表于 2025-6-17 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951539&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-6-17 09:00</a>
+
+常驻攒到一井了，巴巴托斯还是沙扎比？
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+哪来那么多常驻票的，我开服到现在一张没花也就90多张。。。还想着等以后池子更新了再用
+
+*****
+
+####  AminGly  
+##### 1899#       发表于 2025-6-17 13:00
+
+<img src="https://img.stage1st.com/forum/202506/17/125952isesbvsq7ssezxs7.jpg" referrerpolicy="no-referrer">
+
+<strong>2959AABEEAD0ACBC7F9A6E5ED2604CDD.jpg</strong> (349.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 12:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/17/125952tecjen1jzmq5fqyh.jpg" referrerpolicy="no-referrer">
+
+<strong>E5072DD72233B60C87496320B589EC59.jpg</strong> (350.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-17 12:59 上传
+
+独角兽出了之后终于全卡池ur了
+

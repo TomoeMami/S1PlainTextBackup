@@ -626,3 +626,14 @@ FPS：老彩虹六号系列、SWAT系列、ARMA、红色管弦乐系列、战术
 
 dlc吧，据说第一个出pla
 
+
+*****
+
+####  银月术士329  
+##### 43#         楼主| 发表于 2025-6-17 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952599&amp;ptid=2207291" target="_blank">magicianxu 发表于 2025-6-17 11:23</a>
+
+dlc吧，据说第一个出pla</blockquote>
+目前战役第一关有欧盟（德军）的部分单位建模
+
