@@ -1922,3 +1922,13 @@ Operation Skuld
 泽克诺瓦已经很像了好吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有撕裂银河不太行
 
+
+*****
+
+####  秋月孝三  
+##### 19393#       发表于 2025-6-17 13:41
+
+想了想应该是pgu牛的广告曲<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
