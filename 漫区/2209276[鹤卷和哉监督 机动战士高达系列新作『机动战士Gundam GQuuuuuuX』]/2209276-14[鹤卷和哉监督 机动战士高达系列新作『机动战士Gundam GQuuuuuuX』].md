@@ -1847,3 +1847,32 @@ Operation Skuld
 
 13集看他们喜不喜欢TA了，不过比起TA，我记得痞子这一群人更喜欢吉姆王怎么办<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 19385#       发表于 2025-6-17 13:07
+
+还在13，就12集
+
+*****
+
+####  kuriri  
+##### 19386#       发表于 2025-6-17 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953016&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-17 12:27</a>
+
+乱猜一下，GQ世界发生了两次穿越，其中沙仑玫瑰已经很清楚了。
+
+另一次发生在战后，穿越来的是牛高达残骸和 ...</blockquote>
+原来红色彗星就是篮球啊……
+
+*****
+
+####  我聞如是  
+##### 19387#       发表于 2025-6-17 13:09
+
+<blockquote>猪突猛进R 发表于 2025-6-17 13:01
+11话就loop了最终话说啥？</blockquote>
+脫離loop的TRUE END啊
+
