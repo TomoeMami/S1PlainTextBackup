@@ -567,3 +567,24 @@ hard难度的渡鸦是给二周目玩家打的
  ...</blockquote>
 她挥刀直接把人吸过去也行啊，都不带追踪的，好几次打飞对面然后原地罚站浪费时间
 
+
+*****
+
+####  ads147147  
+##### 3013#       发表于 2025-6-17 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952261&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-17 10:43</a>
+
+她挥刀直接把人吸过去也行啊，都不带追踪的，好几次打飞对面然后原地罚站浪费时间 ...</blockquote>
+我猜这段真空期是用贝塔技能打远程或者蓄力，但是依然很蠢，只能说金桑做3a还是有点mmo的味道，不够传统。
+
+*****
+
+####  永远的访客  
+##### 3014#       发表于 2025-6-17 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952243&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-17 10:41</a>
+
+手上的滋水枪搞不过啊，炮台都在制高点，它锁定到发射这点真空期，我弹匣都清不空 ...</blockquote>
+可以升级无人机加弹匣。废土我记得一共遇到4处这种猥琐炮台，有一处炮台边上就是油罐，有一处就是让你跑酷（有限时），还有一处可跑酷可打，最后一处靠2段跳可以直接上去砍，总之遇到炮台都可以稍微晚点做，我扫废土下来结论最容易落命的就是这些机器人了，总之绝对不想同时和2个以上开打<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
