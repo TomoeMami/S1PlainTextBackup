@@ -5952,3 +5952,343 @@ gfred还有摔落的演出呢，也不知道重力是个什么情况
 
 重启世界线呗，就跟OP的歌词一样，在检票口没停下脚步，玛秋不会乘上GQuuuuuuX，一切都不会发生
 
+
+*****
+
+####  zhongjie  
+##### 19811#       发表于 2025-6-18 00:54
+
+如果修斯真是倩子或者贝子，他算不算喜欢上了老爸喜欢的女人。拉拉可是能当我母亲的女人啊（震声）
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  青空独  
+##### 19812#       发表于 2025-6-18 00:55
+
+已经看不懂了，老害们开心就好
+
+*****
+
+####  i7s6h1ter  
+##### 19813#       发表于 2025-6-18 00:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">修司就是三个人的孩子啊我看
+
+*****
+
+####  人形灾害  
+##### 19814#       发表于 2025-6-18 00:55
+
+演都不演了，这就是钢弹嘉年华
+
+*****
+
+####  hkguty  
+##### 19815#       发表于 2025-6-18 00:55
+
+所以修司就是阿姆罗？不过知道夏亚声优都换了的时候就在想阿姆罗会不会也换了声优，然后变成别的角色登场玩叙事诡计·······
+
+*****
+
+####  Nom1nee  
+##### 19816#       发表于 2025-6-18 00:55
+
+打分不会高，但我还挺喜欢。追番体验不错
+
+*****
+
+####  你妈的为什么  
+##### 19817#       发表于 2025-6-18 00:56
+
+ 本帖最后由 你妈的为什么 于 2025-6-18 00:59 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这片本来就没啥好讨论的，新角色都是道具，本质就是老害游乐场啊
+
+你别说，我觉得很得劲啊，就是要这个胡逼味，有意思得一笔啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 19818#       发表于 2025-6-18 00:56
+
+<img src="https://img.stage1st.com/forum/202506/18/005619hnim9fpfgpbheyzk.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ95p5-5fefZ2cT3cSu0-16h.jpg.medium.jpg</strong> (117.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 00:56 上传
+
+*****
+
+####  wincle  
+##### 19819#       发表于 2025-6-18 00:58
+
+喵安是真疯啊，瞄准地球，瞄准紫婆，下集不会要瞄准骡子吧
+
+*****
+
+####  白马  
+##### 19820#       发表于 2025-6-18 00:58
+
+又有笑点又有爆点，多好啊
+
+如此有追番体验的动画不多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolfwood  
+##### 19821#       发表于 2025-6-18 00:58
+
+TMD阿姆罗你一直装疯卖傻是吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 19822#       发表于 2025-6-18 00:58
+
+讲真放bl the time结果出来台原汁原味元祖还是有点串味，该不会是想把飛べガンダム留到最后一集吧
+
+*****
+
+####  ヒトニナル  
+##### 19823#       发表于 2025-6-18 00:59
+
+说起来天津律师看得爆笑的桥段应该就是这话结尾吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓岛千百合  
+##### 19824#       发表于 2025-6-18 01:00
+
+这个世界是拉拉为了保护夏亚而创造出来的..？
+
+*****
+
+####  windtrack  
+##### 19825#       发表于 2025-6-18 01:00
+
+ 本帖最后由 windtrack 于 2025-6-18 01:02 编辑 
+
+我猜结局是
+
+绿叔叔和紫婆同归于尽
+
+首席和喵安跟着绿木马
+
+麻球回家找妈
+
+修司带着拉拉回主世界
+
+夏亚去妓院找GQ拉拉
+
+至于元祖，我猜是这个世界之所以存在就是因为有夏亚，如果夏亚死了这个世界就没了，修司为了终结这个世界，就从主世界召唤了击杀夏亚的宝具...
+
+*****
+
+####  帆前  
+##### 19826#       发表于 2025-6-18 01:00
+
+我觉得泽克诺瓦传送a世界物质过来还要传送b世界物质过去的设计，很有点核物理科幻的意思，老元祖的出现恐怕意味着世界的结构更摇滚欲坠/要爆了
+
+*****
+
+####  オルガピピック  
+##### 19827#       发表于 2025-6-18 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957001&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-6-18 00:51</a>
+
+你这话同样可以安在水魔上（没多少人追过铁血就算了），这不构成逃避青蒜的理由 ...</blockquote>
+我水魔看到4号死完没事发生就知道是屎不追了 铁血看完最残虐boss也知道啥玩意不追了 你清算好歹就事论事吧 所以这集是人物崩了还是故事偏了还是亵渎了某些人心中最神圣的uc了 观众觉得乐是因为逛uc主题乐园满足了 对后续还有什么活还有点盼头 其他烂片到这阶段还有啥可看的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 19828#       发表于 2025-6-18 01:02
+
+理性告诉我这片就是一坨来搞笑的小品，但是感性上就是看的超级无敌爽（）
+
+*****
+
+####  adretyu67.  
+##### 19829#       发表于 2025-6-18 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957059&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-6-18 01:00</a>
+
+我猜结局是
+
+绿叔叔和紫婆同归于尽</blockquote>
+喵安估计呼应ed跑去和麻球同居了吧。
+
+紫婆死了以后她没有留在鸡瘟的理由
+
+*****
+
+####  缪斯替  
+##### 19830#       发表于 2025-6-18 01:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">反正我视角跟小孩组的，一开始就没期待过二十一世纪二十年代的高达会讲什么大故事
+
+情感和氛围上能感染我就是好片。看完还是觉得这些人对高达的情怀很真实，对三个小孩的设计塑造也不敷衍。和那些烂炒完扒开一看结果全是技巧一点感情都没有的比起来，还是这种对我胃口太多
+
+*****
+
+####  罥索GFFF  
+##### 19831#       发表于 2025-6-18 01:03
+
+<blockquote>オルガピピック 发表于 2025-6-18 01:01
+我水魔看到4号死完没事发生就知道是屎不追了 铁血看完最残虐boss也知道啥玩意不追了 你清算好歹就事论事 ...</blockquote>
+那你是没调整好预期导致的
+
+
+*****
+
+####  岸浪白野  
+##### 19832#       发表于 2025-6-18 01:04
+
+[X 上的 YY：“第11話ご視聴いただきありがとうございます！ 動画で参加しております！ 配信等でもお楽しみください！ #GQuuuuuuX #ジークアクス [url]https://t.co/P7NbCjwT0k](https://x.com/YY_shibata/status/1935003042186998002)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010157zsqgigbaitlba34b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/010232ak1jauau7j653cu5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/010238jwq9u29eqejvzu7e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/010242g3njtxdndn9ntxzp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/010246nb7fy30fwfv3vu8q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:02 上传
+
+[X 上的 YY：“飼い犬に噛まれた #GQuuuuuuX #ジークアクス [url]https://t.co/1NsQ85lwlE](https://x.com/YY_shibata/status/1935003212068835484)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010313a5mo3m0xs95t5fcp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:03 上传
+
+[X 上的 ルカ：“第11話、二原と動画で参加しておりました！ ありがとうございました！ #GQuuuuuuX #ジークアクス [url]https://t.co/lPLpq2icQR](https://x.com/nkn_ruka/status/1935003151658307961)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010330ktcuzfmmrgntnxe1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:03 上传
+
+[X 上的 コウダ：“ときめきシャア #GQuuuuuuX #ジークアクス [url]https://t.co/f6ccLUR3Bw](https://x.com/kouda_nyo/status/1935004563599446105)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010342g9m09m8ksd1dd3dk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:03 上传
+
+[X 上的 坂本和哉：“#GQuuuuuuX #ジークアクス 第11話、原画で参加させていただきました。 作品には11話からの参加だったのですが、一番最初に参加した回で特大のネタバレを受けた僕です。 コンテ読んだ時に思わず「はっ？ｗ」と声に出てしまいました。 最終回、座して待つ！！ ※FA許可済みです。 [url]https://t.co/VotWQZHIEZ](https://x.com/zzz_sakaz/status/1935004465473732632)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010354swjjrlcy9kydwdoj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (828.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:03 上传
+
+[X 上的 伊藤慎之助：“GQuuuuuuX11話の演出を担当させていただきました。クライマックスに向けて大きく動く物語を楽しんでもらえたら嬉しいです。ご試聴ありがとうございました！　#GQuuuuuuX [url]https://t.co/E9kl1FFizi](https://x.com/ito_0006/status/1935005390695190626)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010406kp81gr3663ar15dw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:04 上传
+
+[X 上的 善美：“スタッフの皆様お疲れ様でした お祭りご一緒できるのもあと１週間ってとこでしょうか 視聴者の方々、いつも遅い時間までご視聴感謝致します 最近お暑いですね、熱中症対策もしっかりしましょうニャアン♪ #GQuuuuuuX #ジークアクス [url]https://t.co/p9zj5AhIhx](https://x.com/yakumo_0624/status/1935003029486682339)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/010418kwx9niio4nccbioo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 01:04 上传
+
+*****
+
+####  1694295955  
+##### 19833#       发表于 2025-6-18 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956815&amp;ptid=2209276" target="_blank">DARK_HGCG 发表于 2025-6-18 00:28</a>
+
+问题来了
+
+MAV的设定哪里去了
+
+好几集没MAV了</blockquote>
+这种本来就是双机编队战术吧
+
+估计是想玩一点壮志凌云情怀
+
+*****
+
+####  民工业  
+##### 19834#       发表于 2025-6-18 01:04
+
+对我来说一长串，能让我追番的时候看的很开心，看讨论也很开心，还让我去补了uc，真的太值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  marlun  
+##### 19835#       发表于 2025-6-18 01:05
+
+这番唯一的看点也就是鹤卷说的体验过山车般的剧情，其实如果不是追番而是补番，我自己的话大概率看到一半就弃了
+
+*****
+
+####  罥索GFFF  
+##### 19836#       发表于 2025-6-18 01:06
+
+<blockquote>オルガピピック 发表于 2025-6-18 01:01
+我水魔看到4号死完没事发生就知道是屎不追了 铁血看完最残虐boss也知道啥玩意不追了 你清算好歹就事论事 ...</blockquote>
+你知道真正的原因是什么吗，是因为gqx可以bilibili的周三晚上12点钟在线看到1080p的新动画以及uc遗老本质就是一帮故作深沉的nt的事实
+
