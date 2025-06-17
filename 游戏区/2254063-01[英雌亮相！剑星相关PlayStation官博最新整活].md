@@ -1071,3 +1071,13 @@ Heldin
 
 建议你们这些人把字典里的女英雄，女主人公都改成英雌，女主人母，公主改成母主。
 
+
+*****
+
+####  saber614  
+##### 99#       发表于 2025-6-17 12:46
+
+顽抗半日后像路边一条野狗一样被人踢死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

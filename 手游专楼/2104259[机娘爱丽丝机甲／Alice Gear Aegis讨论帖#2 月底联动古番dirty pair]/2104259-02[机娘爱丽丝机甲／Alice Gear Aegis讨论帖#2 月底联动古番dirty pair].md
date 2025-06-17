@@ -85,3 +85,14 @@
 
 2025-6-16 08:09 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 1488#         楼主| 发表于 2025-6-17 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945300&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-6-16 08:22</a>
+
+有人发现江户川赛艇场（真的赛艇场）新出的管人佐士原七海和现在的桃学校园祭活动中提到的OG名字一模一样 ...</blockquote>
+联动管人，不过因为好像是地区性的，只能说不愧是阿嘎？
+
