@@ -4635,3 +4635,16 @@ EX5过了吗，没有的话拿总帅比较实惠</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1908#       发表于 2025-6-17 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954902&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-6-17 18:00</a>
+
+就是为了过永恒
+
+没有双盾人</blockquote>
+EX5对3行动的要求更高，没有总帅有傻子那和攻击大和也行
+

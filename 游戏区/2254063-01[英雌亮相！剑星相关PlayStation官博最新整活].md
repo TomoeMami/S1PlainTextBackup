@@ -1741,3 +1741,14 @@ S1的号有啥买的价值么？<img src="https://static.stage1st.com/image/smil
 有一说一，搜了下港服PSN发现繁中确实叫这个。可能是我没文化，从头到尾我也没看出娇改成姝的拳法寓意在哪 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">女权最讨厌的就是娇妻，所以反对娇这个词
 
+
+*****
+
+####  摸鱼2号  
+##### 160#       发表于 2025-6-17 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67954912&amp;ptid=2254063" target="_blank">阿萨辛艾沃尔 发表于 2025-6-17 18:03</a>
+
+女权最讨厌的就是娇妻，所以反对娇这个词</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">那娇妻霸道总裁文改编的剧，看着不少女权相关人士也在看啊，都是批判性的看吗
+

@@ -1769,3 +1769,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 — from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  duraa  
+##### 138#       发表于 2025-6-17 18:15
+
+感觉选的预组也很影响体验，我选的皇家感觉还好，朋友选的龙预组打破防了说是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

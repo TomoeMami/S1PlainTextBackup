@@ -2246,3 +2246,13 @@ short edition？有没有long version
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  jackyhuang  
+##### 19428#       发表于 2025-6-17 18:08
+
+感觉不如逆袭的传说巨神…不管是野史程度，还是战力强弱<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
