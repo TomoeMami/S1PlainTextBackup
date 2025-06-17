@@ -1576,3 +1576,11 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 卡在了登陆日区ID，没法收到验证码什么鬼
 
+
+*****
+
+####  duraa  
+##### 117#       发表于 2025-6-17 11:01
+
+国际服开了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
