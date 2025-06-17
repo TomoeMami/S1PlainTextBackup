@@ -8383,3 +8383,94 @@ GQ的问题还是视觉奇观的长处没能掩盖短处
 
 挺无情的，但是gq鸭子也对拉拉没啥感情就是了，这条世界线上他有绿叔叔，也符合夏亚算计人的形象
 
+
+*****
+
+####  西洛克  
+##### 20033#       发表于 2025-6-18 02:38
+
+<blockquote>猪突猛进R 发表于 2025-6-18 02:29
+说起来GQ拉拉作为一个物理意义上的梦女实在太惨了，这条世界线上鸭子对拉拉没啥感情啊，对穿越来的要杀掉， ...</blockquote>
+有感情的，而且知道是拉拉保护了自己。但他觉得拉拉会毁灭这个世界（这点其实没错），而且拉拉是为了自己扭曲世界的，自己更有责任去承担修正的责任了。
+
+*****
+
+####  gawain  
+##### 20034#       发表于 2025-6-18 02:39
+
+别的不说，这追番体验拉满了，真是每集都有活。非常符合新时代番的特点。 比起骡子我觉得修斯可能和卡缪有点联系，一样的发色，卡缪西瓜冰后不也看到kirakira了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ryanghj  
+##### 20035#       发表于 2025-6-18 02:40
+
+最后解决方法我觉得只有拉拉把世界转移给玛秋一条道可走了
+
+世界能够存续，玛秋成神
+
+
+*****
+
+####  岸浪白野  
+##### 20036#       发表于 2025-6-18 02:42
+
+[X 上的 多美原：“正史に戻るらしいので [url]https://t.co/vK5O5YoTug](https://x.com/mekakureski/status/1935026091317662175)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/024210jiqzne6c6n6286i1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.79 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 02:42 上传
+
+*****
+
+####  大十字紅朔  
+##### 20037#       发表于 2025-6-18 02:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957428&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 02:36</a>
+
+基西莉亚就是很纯粹的“强者就是新人类”，弱者不配生存，和汤大基是一脉相承的。而且她自己因为觉醒了ne ...</blockquote>
+塞拉说夏亚是恶鬼啊
+
+夏亚要说转变，其实干掉卡尔马，然后被老多流放以后，当时处在一种达成感和丧失感叠加的状态
+
+然后去逛窑子散心碰到拉拉，一定程度上被拉拉改变了，或者说夏亚想被拉拉改变
+
+至于GQ这个没碰到拉拉的夏亚不知道什么情况。
+
+*****
+
+####  Devola  
+##### 20038#       发表于 2025-6-18 02:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957425&amp;ptid=2209276" target="_blank">genki 发表于 2025-6-18 02:35</a>
+你们都觉得来的是782？万一是RX-78F00呢，飞到夏亚面前召唤玻璃之翼</blockquote>
+那和gqx潮到爆表的那部分很贴合了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+或者下集元祖爆甲露出个pgu牛也未尝不可
+
+*****
+
+####  Evomenon  
+##### 20039#       发表于 2025-6-18 02:43
+
+修司是卡缪“丢失”的一部分我更能接受
+要是夏亚是93鸭就更好了，我老想看卡缪爆锤总帅了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  大十字紅朔  
+##### 20040#       发表于 2025-6-18 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957434&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 02:40</a>
+
+最后解决方法我觉得只有拉拉把世界转移给玛秋一条道可走了
+
+世界能够存续，玛秋成神 ...</blockquote>
+究极小圆脸是吧<img src="https://static.stage1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
+
