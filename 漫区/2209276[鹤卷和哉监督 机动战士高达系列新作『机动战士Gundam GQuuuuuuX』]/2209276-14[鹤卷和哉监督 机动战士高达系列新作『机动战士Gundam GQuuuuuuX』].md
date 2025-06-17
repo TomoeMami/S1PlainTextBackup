@@ -1876,3 +1876,18 @@ Operation Skuld
 11话就loop了最终话说啥？</blockquote>
 脫離loop的TRUE END啊
 
+
+*****
+
+####  qixinno2  
+##### 19388#       发表于 2025-6-17 13:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么能不能看到伊甸发动了
+
+*****
+
+####  suzakushi  
+##### 19389#       发表于 2025-6-17 13:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经等不及看新一集了，在提供乐子这方面这动画真的是一等一的好手。
+
