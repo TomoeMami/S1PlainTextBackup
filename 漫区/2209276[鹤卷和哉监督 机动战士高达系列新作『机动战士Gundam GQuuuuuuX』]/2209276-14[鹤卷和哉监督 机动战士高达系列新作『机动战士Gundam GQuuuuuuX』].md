@@ -8085,3 +8085,165 @@ O'Neill cylinder已经是有快50年历史的东西了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  希望之花  
+##### 20002#       发表于 2025-6-18 02:16
+
+第十二话：最严厉的父亲
+
+修司听夏亚的说法（和发色）更像是卡缪，但是和拉拉的关系更像骡子啊
+
+*****
+
+####  竹様  
+##### 20003#       发表于 2025-6-18 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957364&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-6-18 02:11</a>
+
+铁血的长线上的问题包括但不限于库赞公这样的小丑迟迟不下线，三明这种类型的主角塑造难度太高等等，至于冈 ...</blockquote>
+铁血最大问题还是小仙女公款追星，库赞只是给冈妈皮套还有亲爹和梦男吸引火力用的。
+
+*****
+
+####  cckuku  
+##### 20004#       发表于 2025-6-18 02:17
+
+像鹤卷gg这种做ucif，但是把uc部分抽掉自己的if全部一坨的做法，真的有人能猜到吗？唉，已经有五分钟没听到有人夸鹤卷gg六集就能做一部飞越巅峰2了。
+
+*****
+
+####  zakufa782  
+##### 20005#       发表于 2025-6-18 02:17
+
+ 本帖最后由 zakufa782 于 2025-6-18 02:20 编辑 
+
+回过头来看的话，铁血和水魔剧情的问题其实第一季一半左右都是有开始显露，但这两最根本的问题是作为核心staff的监督脚本制作人三个人都对作品的方向性没有明确的把握。铁血是小川P长颈龙冈妈三个人最后都放飞自我整烂活还自我感觉良好，水魔是冈本p小林宽大河内三个人在不同时间点选择随波逐流摆烂了，没有自己的坚持。
+
+*****
+
+####  lucho  
+##### 20006#       发表于 2025-6-18 02:19
+
+You can change your destiny 時の向こうoooooo
+
+*****
+
+####  法皇干政  
+##### 20007#       发表于 2025-6-18 02:19
+
+痞子还是忘不掉逆袭的夏亚，这就是痞子给老光头写的一封情书呀！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 20008#       发表于 2025-6-18 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957375&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 02:15</a>
+
+和基西利亚剧场那段至少对人物塑造是有意义的。gqx夏亚没主世界那么魔怔，甚至比裤袜脱落都正常不少。（没 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">反倒是基西莉亚到底是以什么心态做出那段评价的，除了基西莉亚其实看过CCA这个解释以外我是找不太到底的
+
+*****
+
+####  88ace88  
+##### 20009#       发表于 2025-6-18 02:20
+
+反正我一直觉得top2作为top的续作是全方位降级的，要是能借一串字母青蒜一下top2，那正是喜闻乐见了。
+
+*****
+
+####  无念  
+##### 20010#       发表于 2025-6-18 02:21
+
+我本来想上来喷这写的啥啊，一看哦还有个水魔洗地的，那的确G夸比水魔强，你继续哈气吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ardente  
+##### 20011#       发表于 2025-6-18 02:21
+
+安徽哥今天串的很开心嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">铁血没人追都能说的出来
+[1830楼就被人点了](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2209276&amp;page=46#pid67080803)
+
+你猜他为什么负这么多鹅，被泥潭河豚扣的<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人形灾害  
+##### 20012#       发表于 2025-6-18 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957389&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-6-18 02:20</a>
+反正我一直觉得top2作为top的续作是全方位降级的，要是能借一串字母青蒜一下top2，那正是喜闻乐见了。 ...</blockquote>
+top2实际上也是为了结局那碟膜前作的醋才做出来的点子作品吧，某种意义上讲还挺像的
+
+*****
+
+####  advancedigger  
+##### 20013#       发表于 2025-6-18 02:23
+
+当最后那碟醋端上来的时候，真的激动了。很久没这种感觉了，一切都可以原谅，都可以和解。谢谢你，鹤卷GG。You amuse me.
+
+*****
+
+####  无念  
+##### 20014#       发表于 2025-6-18 02:24
+
+话说二号机的超频还没用呢，看起来应该是要用在打元祖身上了
+卧槽，不会这元祖和这集的艾尔美斯一样有个罩子没法近身吧，那的确目前所有机体都打不赢他，只能靠机制了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Dr.Wondering  
+##### 20015#       发表于 2025-6-18 02:25
+
+大概比正片更搞笑的是gqx粉丝指着一个整天在高吧和nga各种发帖乱串的人说是水魔厨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 20016#       发表于 2025-6-18 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957204&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 01:25</a>
+
+我还是比较倾向于修司就是阿姆罗或者是阿姆罗的一部分，回头看了一下玛秋在夏亚身上闻到的味道让她想起了修 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">味道像那更应该是正史鸭附近的人，鸭闻着像异世界的骡什么的听着也太gay了
+
+不过其实不管是鸭还是骡都不太可能“高达说”，目前相关线索：来自疑似正史，知道拉拉，知道多元宇宙最擅长打鸭的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">...
+
+*****
+
+####  Devola  
+##### 20017#       发表于 2025-6-18 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957389&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-6-18 02:20</a>
+反正我一直觉得top2作为top的续作是全方位降级的，要是能借一串字母青蒜一下top2，那正是喜闻乐见了。 ...</blockquote>
+top2我是皱着眉头硬生生看完的，唯一的感想就是
+
+“这是续作？标题真的没写错吗？”
+
+我看这么多人吹top2就更加疑惑了
+
+*****
+
+####  无念  
+##### 20018#       发表于 2025-6-18 02:27
+
+等会，艾尔美斯没法接近那G夸是怎么在海里贴贴的？木马怎么捞上来的？它头上的发射器又是怎么装上去的？这新加的设定也太抽象了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Wiksy  
+##### 20019#       发表于 2025-6-18 02:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957246&amp;ptid=2209276" target="_blank">pavelpetel 发表于 2025-6-18 01:34</a></blockquote>
+来的更可能是阿克西斯冲击时的牛高达，但是正像夏亚被强行换装一样，拉拉的认识里阿姆罗开的就应该是RX-78所以被直接强行换装成了初代的样子。
+
