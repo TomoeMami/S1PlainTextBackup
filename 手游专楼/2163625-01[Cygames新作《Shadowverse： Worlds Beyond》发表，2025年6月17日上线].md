@@ -1879,3 +1879,12 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 这把资源放乐园真JB恶心人还不能投。屯资源难度提高很多版本初期等于是逼人氪金。
 
+
+*****
+
+####  DEMOxN  
+##### 149#       发表于 2025-6-17 21:49
+
+都在骂有没有好哥哥互填一下码  cD7SgFd  <img src="https://static.stage1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+国服国服
+
