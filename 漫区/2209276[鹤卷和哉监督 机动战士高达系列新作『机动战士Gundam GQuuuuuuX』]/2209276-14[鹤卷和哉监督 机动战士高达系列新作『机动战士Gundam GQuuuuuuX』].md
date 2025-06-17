@@ -2780,3 +2780,56 @@ X 上的 織部新太：“https://t.co/JGZsvruXZ9” / X</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zpl123  
+##### 19457#       发表于 2025-6-17 23:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">情报哥
+
+*****
+
+####  二阶堂真琉  
+##### 19458#       发表于 2025-6-17 23:28
+
+首席哥这性能真是（
+
+*****
+
+####  JimmyJoker  
+##### 19459#       发表于 2025-6-17 23:29
+
+已经开始贷款阿姆罗登场了吗？现在抛赌注还来不来得及？
+
+
+*****
+
+####  好想看Mujica啊  
+##### 19460#       发表于 2025-6-17 23:32
+
+直接地球也无所谓吗<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 19461#       发表于 2025-6-17 23:33
+
+惹上来就开枪
+
+*****
+
+####  jackyhuang  
+##### 19462#       发表于 2025-6-17 23:35
+
+基西莉亚的新人类部队很强，但是杀了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pandaman7777  
+##### 19463#       发表于 2025-6-17 23:35
+
+刚看到手抓浮游炮就被ban了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
