@@ -4439,3 +4439,383 @@ gqux宇宙是拉拉创造的，专门用来保护鸭子的宇宙。
 这话紫婆怎么看怎么都像说着哈曼的台词</blockquote>
 紫婆拿了哈曼剧本，麻球拿了卡缪剧本。
 
+
+*****
+
+####  marlun  
+##### 19657#       发表于 2025-6-18 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956668&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-6-18 00:13</a>
+
+小森突然那么懂设定，谁给她传的功</blockquote>
+其实回想下除了第一次，剩下所有的zknv都是小森当解说员
+
+*****
+
+####  伊露伊道格拉斯  
+##### 19658#       发表于 2025-6-18 00:14
+
+这集过后我终于懂了，为什么麻球大部分时间游离于主线之外，纯被推着走。
+
+原来她是类比《机战》系列的原创主角啊，终究不过是老作品主角的陪衬罢了。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+这就不奇怪了，这就不奇怪了。
+
+*****
+
+####  m99999  
+##### 19659#       发表于 2025-6-18 00:14
+
+<blockquote>adretyu67. 发表于 2025-6-18 00:12
+这话紫婆怎么看怎么都像说着哈曼的台词</blockquote>
+紫婆的哈曼音和夏亚搂番茄的池面音都是玩梗
+
+*****
+
+####  逆袭的黑月  
+##### 19660#       发表于 2025-6-18 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956653&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 00:11</a>
+
+如果我没听错的话修司要消灭由正史拉拉所创造出来的GQuuuuuuX世界线</blockquote>
+反了吧，是鸭子觉得拉拉干扰了世界稳定要消灭她。修司是出来保护拉拉的
+
+*****
+
+####  Toby_dak  
+##### 19661#       发表于 2025-6-18 00:15
+
+<img src="https://p.sda1.dev/25/c82fb2c419c99a20e8245f7fdfc8a4bb/キャプチャ.JPG" id="aimg_Lt64Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  cayon  
+##### 19662#       发表于 2025-6-18 00:15
+
+上集给的两把枪纯烟雾弹，没一个正常用途，感觉被耍了
+
+*****
+
+####  UnrealApartheid  
+##### 19663#       发表于 2025-6-18 00:15
+
+だから僕は……
+Hができない
+<img src="https://p.sda1.dev/25/de1fb535779bf88c2c414b5b7a8a9733/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/b4353203697054fc06cc3b5d00ce4c38/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/57aa4bc5aef5748786e467557653cdca/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  amanohanei  
+##### 19664#       发表于 2025-6-18 00:15
+
+也就看个乐呵了, 小森莫名其妙的全都懂了也太奇怪了.
+
+*****
+
+####  remediosOlOOOO  
+##### 19665#       发表于 2025-6-18 00:15
+
+ 本帖最后由 remediosOlOOOO 于 2025-6-18 00:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956650&amp;ptid=2209276" target="_blank">jackyhuang 发表于 2025-6-18 00:11</a>
+为什么都觉得78上面会有人，难道不是和夏亚的衣服一样是拉拉凭空捏出来的？
+
+—— 来自 Sony XQ-AT72, Andr ...</blockquote>
+每有一个卡斯巴尔boy华丽变身就有一个赤色彗星大庭广众之下突然被扒光<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 19666#       发表于 2025-6-18 00:15
+
+ “敢达是这么说的”
+原来如此，完全理解了
+是敢达，不是红色敢达
+
+*****
+
+####  战术核辣条  
+##### 19667#       发表于 2025-6-18 00:15
+
+再别说了，12集全宇宙在杨工费纳的歌声下世纪大和解就完事了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| gammatau| + 1|一生！|
+
+查看全部评分
+
+*****
+
+####  m99999  
+##### 19668#       发表于 2025-6-18 00:15
+
+<blockquote>ku2154513 发表于 2025-6-18 00:13
+小森突然那么懂设定，谁给她传的功</blockquote>
+这集唐突真正的nt发言，下集估计小森爆个大的
+
+*****
+
+####  ヒトニナル  
+##### 19669#       发表于 2025-6-18 00:15
+
+按照逻辑来说的话玛秋肯定不愿意自己这条世界线被剪定的，所以最终boss可能是开元祖的修司……
+这话说出来我都不敢信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色池塘  
+##### 19670#       发表于 2025-6-18 00:16
+
+我也猜元祖里没人，这个元祖是世界抑制力化身之类的东西，代表被泽克诺瓦力量扔了三次垃圾的异世界来制裁你们这些没素质的家伙了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 19671#       发表于 2025-6-18 00:16
+
+gq又叕第n次正式宣布了它的本质：老登的疯嗨劲舞
+
+*****
+
+####  xunit  
+##### 19672#       发表于 2025-6-18 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956676&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 00:14</a>
+
+紫婆拿了哈曼剧本，麻球拿了卡缪剧本。</blockquote>
+麻球拿的是花的剧本，出其不意解围，但根本没参与到辩论当中
+
+拿卡缪剧本的其实是绿叔叔
+
+*****
+
+####  adretyu67.  
+##### 19673#       发表于 2025-6-18 00:16
+
+修司（骡子）开元祖
+
+鸭子开红高达
+
+麻球开gqux
+
+喵安开fred
+
+感觉还是得抓一个幸运儿来开腿只是装饰<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Noodle00  
+##### 19674#       发表于 2025-6-18 00:16
+
+还有人记得麻球妈吗？
+
+*****
+
+####  ヒトニナル  
+##### 19675#       发表于 2025-6-18 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956687&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-6-18 00:14</a>
+反了吧，是鸭子觉得拉拉干扰了世界稳定要消灭她。修司是出来保护拉拉的 ...</blockquote>
+修司要保护拉拉是前面一些的台词
+我听的是修司说自己是从另一边过来之后的那句台词，等流媒体上了再重新听一下
+
+*****
+
+####  jackyhuang  
+##### 19676#       发表于 2025-6-18 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956696&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-6-18 00:15</a>
+每有一个卡斯巴尔boy华丽变身就有一个赤色彗星大庭广众之下突然被扒光</blockquote>
+另一边原来是钢弹桑的世界啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gammatau  
+##### 19677#       发表于 2025-6-18 00:18
+
+确实，把这理解成来打奥特曼那样的平行世界剧场版就好懂多了
+
+*****
+
+####  逆袭的黑月  
+##### 19678#       发表于 2025-6-18 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然没人在意了，但是尼娅安真的是好姐妹啊，抬手就给了老太婆一枪保护麻球。
+
+*****
+
+####  m99999  
+##### 19679#       发表于 2025-6-18 00:19
+
+<blockquote>g救世主高达 发表于 2025-6-18 00:07
+蒨恩儿子都比贝子可信</blockquote>
+蓝发是染发
+
+*****
+
+####  薪火带新茶  
+##### 19680#       发表于 2025-6-18 00:19
+
+夏亚你的裤子里面是汗还是尿呢
+
+—— 来自 Xiaomi 22041211AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  kaion111  
+##### 19681#       发表于 2025-6-18 00:19
+
+紫婆台词为啥这么哈曼
+
+*****
+
+####  black1991518  
+##### 19682#       发表于 2025-6-18 00:19
+
+把元祖开出来和谁打啊，谜一样的剧情
+
+*****
+
+####  adretyu67.  
+##### 19683#       发表于 2025-6-18 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956690&amp;ptid=2209276" target="_blank">cayon 发表于 2025-6-18 00:15</a>
+
+上集给的两把枪纯烟雾弹，没一个正常用途，感觉被耍了</blockquote>
+麻球的枪不打人正常，但是居然是用来打碎gqux出力限制的。
+
+喵安的枪倒是打人了，一瞬间又反水了就有点反复横跳了。不由得想让人说你和麻球的关系真的有那么好吗
+
+*****
+
+####  marlun  
+##### 19684#       发表于 2025-6-18 00:20
+
+我其实觉得还挺精彩的，一路追下来体验不错，12集感觉也不会是大家猜的782作为BOSS机空降
+
+*****
+
+####  remediosOlOOOO  
+##### 19685#       发表于 2025-6-18 00:20
+
+所以第一次所罗门泽克诺瓦把修斯传过来，side6把修斯穿回去，上集开炮又把修斯传回来了是吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 19686#       发表于 2025-6-18 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956742&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-6-18 00:20</a>
+
+所以第一次所罗门泽克诺瓦把修斯传过来，side6把修斯穿回去，上集开炮修斯又搭便车传回来了是吧 ...</blockquote>
+上集开炮没传啊，是这集又发动了一次zeknova，把修斯+元祖传了过来，
+
+修斯这话大概是聊天室的灵体状态
+
+*****
+
+####  suzakushi  
+##### 19687#       发表于 2025-6-18 00:21
+
+与其拍这种前后剧情驴唇不对马嘴，叙事全靠抛梗接梗填充，全程一场能看的打戏都没有的答辩，还不如多出几季高达桑给我看看，起码小西克幸学鸭子还学得像一点。
+
+这么一说高达桑还真画了光头的故事，感觉比义眼硬蹭的12话标题靠谱。
+
+*****
+
+####  ヒトニナル  
+##### 19688#       发表于 2025-6-18 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956687&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-6-18 00:14</a>
+反了吧，是鸭子觉得拉拉干扰了世界稳定要消灭她。修司是出来保护拉拉的 ...</blockquote>
+哦不用听了，我翻X看到有人截的带字幕的图了，修司就是来终结这条由拉拉创造出来的世界线的
+
+*****
+
+####  rockroxas  
+##### 19689#       发表于 2025-6-18 00:21
+
+吉姆可以进化吉姆王，那么高达自然也可以进化高达王
+
+12话，聞こえるか、聞こえるだろう
+
+*****
+
+####  ykyin09  
+##### 19690#       发表于 2025-6-18 00:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集给鸭子换回经典吉翁军装不会是特地为了782换的吧
+
+*****
+
+####  オルガピピック  
+##### 19691#       发表于 2025-6-18 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956639&amp;ptid=2209276" target="_blank">Devola 发表于 2025-6-18 00:10</a>
+
+该清算之前吹三人组塑造的了，太小丑了
+
+对着搞笑片正儿八经地分析，没想到却被施展了大回旋啊，清算！ ...</blockquote>
+有一说一 除了某工具人外两个女角塑造没问题吧 不是某些整天离不开雌竞 好姐妹的更小丑一点吗 她们唯一的问题是成了诈骗小登的工具了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pavelpetel  
+##### 19692#       发表于 2025-6-18 00:22
+
+痞子翻新工程
+
+哥斯拉1/1
+奥特曼1/1
+假面骑士1/1
+高达1/1
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  storm  
+##### 19693#       发表于 2025-6-18 00:22
+
+我现在有点害怕是梦结局了，这个宇宙是拉拉临死是的梦境
+
+*****
+
+####  marlun  
+##### 19694#       发表于 2025-6-18 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956752&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-18 00:21</a>
+
+与其拍这种前后剧情驴唇不对马嘴，叙事全靠抛梗接梗填充，全程一场能看的打戏都没有的答辩，还不如多出几季 ...</blockquote>
+不过本来定位就是一个小品作吧，热度高算是意外惊喜了
+
+*****
+
+####  中野梓  
+##### 19695#       发表于 2025-6-18 00:23
+
+<blockquote>Noodle00 发表于 2025-6-18 00:16
+还有人记得麻球妈吗？</blockquote>
+这集哈罗感觉已经是妈妈完全体了
+
+*****
+
+####  xunit  
+##### 19696#       发表于 2025-6-18 00:23
+
+话说别膜光头膜到最后出来个红色墨镜大机器人啊
+
