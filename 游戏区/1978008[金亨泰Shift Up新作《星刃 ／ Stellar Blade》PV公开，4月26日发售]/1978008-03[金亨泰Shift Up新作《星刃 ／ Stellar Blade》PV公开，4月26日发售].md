@@ -362,3 +362,21 @@ BOSS挑战红莲也太狠了 苇名一心啊
 
 正经人谁弹得过来啊
 
+
+*****
+
+####  qixinno2  
+##### 2994#       发表于 2025-6-17 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个格挡MOD吧 起码正常BOSS战能看到一次处决
+
+*****
+
+####  Andariel  
+##### 2995#       发表于 2025-6-17 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951371&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2025-6-17 08:16</a>
+红莲套一定要两件一起穿才能替换迅驰模式有点难绷，感觉跟之前一样做个耳环就行。
+主要还是nikke联动给的头 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二次元这种高饱和度的头发拿进写实风就是杀马特啊
+
