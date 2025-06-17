@@ -406,3 +406,32 @@ BOSS挑战红莲也太狠了 苇名一心啊
 下个mod呗，可以拉到3s格挡时机</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑一下要不要去重战里看
 
+
+*****
+
+####  十六夜pad长  
+##### 2998#       发表于 2025-6-17 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951128&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-17 04:27</a>
+41.7小时通关了，玩下来最难绷的反而是剧情，从电梯下来之后的展开跟伏笔回收像是临时拍脑袋定的一样，还要 ...</blockquote>
+制作人也承认剑星的剧情是一坨+赶工+啥也没说清<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看在好看的衣服上我原谅他了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  nagitoY  
+##### 2999#       发表于 2025-6-17 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950695&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-16 23:30</a>
+
+试了试boss挑战的hard渡鸦，被两刀砍死
+
+这是人打的吗
+
+还说渡鸦bgm只有前一分钟好听呢</blockquote>
+hard难度的渡鸦是给二周目玩家打的
+

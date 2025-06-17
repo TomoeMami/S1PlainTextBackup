@@ -1529,3 +1529,13 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 捷报频传<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  super_uni  
+##### 112#       发表于 2025-6-17 09:00
+
+我看马娘又氪又肝也没完蛋啊，还新开了个原始人版本的国际服，相对良心的弹珠反而第一个死了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
