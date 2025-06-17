@@ -779,3 +779,11 @@ Sb索尼是真会帮倒忙。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">抄尼尔为啥不能无人机自己开枪，伊芙拔枪还要瞄准射击手感超级差，特别是打妮姬dlc，准星飘的离谱
 
+
+*****
+
+####  罐子  
+##### 3034#       发表于 2025-6-17 16:10
+
+打怪的时候好像有瞄准辅助还行，打妮姬dlc完全没有，手柄瞄准太难受了
+
