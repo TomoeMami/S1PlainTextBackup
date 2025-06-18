@@ -6836,3 +6836,13 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 画马还是有点太难了，虽然🐎不够细致，但只要它这个时候突然长个翅膀不就没人在意这么多细节了嘛
 
+
+*****
+
+####  秋雨灰灰  
+##### 582#       发表于 2025-6-19 00:38
+
+太屌了，突然有点少女终末旅行的感觉，希望与绝望并存。配乐本集表现非常非常好，本季度最佳。
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
