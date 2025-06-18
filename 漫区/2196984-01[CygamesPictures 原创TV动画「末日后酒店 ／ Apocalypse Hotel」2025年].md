@@ -6739,3 +6739,11 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 オリジナルTVアニメ『アポカリプスホ ...</blockquote>
 在萌购上看到竹本泉 日元8万元<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">的末日酒店八千代，棚子，机器人合影原画（估计送匾的）都已经被买走了（
 
+
+*****
+
+####  ayanamilin  
+##### 576#       发表于 2025-6-18 23:23
+
+这一集太棒了，相比之下7~10集显得像是把剧本外包出去了一样。
+
