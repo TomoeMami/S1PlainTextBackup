@@ -1184,3 +1184,15 @@ sry我确实是男人情弱<img src="https://static.stage1st.com/image/smiley/fa
 
 2025-6-18 16:50 上传
 
+
+*****
+
+####  usodakedo  
+##### 1292#       发表于 2025-6-19 03:06
+
+看了一点kemt上次直播时谈到lize的切片，说是lize在看到月撇穿的新衣后会默不作声地买同款式但是不同颜色的衣服然后下次见面穿给月撇看……
+要不月撇就从了lize吧，我举双手双脚支持<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+另外月撇现在每次发volg，学友那边都很贴心得补充图片和日期，意思就是线下一直陪着，真美好的这段友情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
