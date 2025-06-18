@@ -1985,3 +1985,11 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 荒野的猪这怪设计的不错,别看是小怪.红黄蓝紫四种闪光招都会.近能连砍,远能扔刀,还会防御反击.
 
+
+*****
+
+####  水边井  
+##### 3120#       发表于 2025-6-18 20:10
+
+双刀猪怪就是奎托斯吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
