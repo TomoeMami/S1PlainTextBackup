@@ -2029,3 +2029,30 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 打了牵手结局好怪哦，总感觉……eve是不是变扶她了啊，以后会不会掏出一个超大……不敢想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Standpronder  
+##### 3125#       发表于 2025-6-18 22:09
+
+<img src="https://img.stage1st.com/forum/202506/18/220915m487z7n8qymz5c4w.png" referrerpolicy="no-referrer">
+
+<strong>Stellar Blade Screenshot 2025.06.17 - 18.26.29.58.png</strong> (663.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 22:09 上传
+
+这个好感度除了多卖商品没新功能了？
+
+
+*****
+
+####  frankCC  
+##### 3126#       发表于 2025-6-18 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962770&amp;ptid=1978008" target="_blank">Standpronder 发表于 2025-6-18 22:09</a>
+
+这个好感度除了多卖商品没新功能了？</blockquote>
+会解锁个专属任务
+
