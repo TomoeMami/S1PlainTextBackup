@@ -17779,3 +17779,29 @@ gqx鸭妹不再来凑个热闹吗，反正已经大乱斗成这样了。
 
 可以是自闭着在那听到拉拉广播恩怨情仇然后发癫嘛，这话她就从自闭到看修司高兴到帮番茄射老太婆一气呵成
 
+
+*****
+
+####  lunaticfool  
+##### 20465#       发表于 2025-6-18 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962267&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 20:29</a></blockquote>
+高达（我）是这么说的
+
+*****
+
+####  6030sylar  
+##### 20466#       发表于 2025-6-18 21:00
+
+<img src="https://p.sda1.dev/25/711d71fe33441b6c172d90f3affa6ebf/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  1223122  
+##### 20467#       发表于 2025-6-18 21:04
+
+爆爆又包包
+
