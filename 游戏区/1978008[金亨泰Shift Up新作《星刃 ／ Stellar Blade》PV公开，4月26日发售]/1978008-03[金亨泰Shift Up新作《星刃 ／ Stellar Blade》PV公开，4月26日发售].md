@@ -2067,3 +2067,15 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 会解锁个专属任务</blockquote>
 要主线推进到一定过程？
 
+
+*****
+
+####  frankCC  
+##### 3128#       发表于 2025-6-18 22:37
+
+ 本帖最后由 frankCC 于 2025-6-18 22:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962878&amp;ptid=1978008" target="_blank">Standpronder 发表于 2025-6-18 22:32</a>
+
+要主线推进到一定过程？</blockquote>
+那有点忘了，有一部分有好感解锁任务，有些就单纯只有一段对话。
+
