@@ -18413,3 +18413,18 @@ gq夏亚的目标出乎所有人的意料，却又在情理之中。
 
 为什么要给好大儿召唤白色恶魔过来？
 
+
+*****
+
+####  LOLITA  
+##### 20500#       发表于 2025-6-18 23:31
+
+放心吧，机不了一点魂，蓝毛就是阿姆罗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 20501#       发表于 2025-6-18 23:31
+
+阿姆罗爆改成蓝毛小南娘，我怎么会做这种梦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

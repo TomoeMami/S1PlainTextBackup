@@ -4938,3 +4938,15 @@ EX5对3行动的要求更高，没有总帅有傻子那和攻击大和也行
 那个叫重生人 氪佬等下满星gp02过来你就知道问题大了</blockquote>
 s0我用过sr自由试过地图炮打不死复数人也不会放的，s1的gp02那个核弹得等实战才知道
 
+
+*****
+
+####  一个陆仁贾  
+##### 1925#       发表于 2025-6-18 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962999&amp;ptid=2071758" target="_blank">HATENA 发表于 2025-6-18 22:56</a>
+这条就是不让氪佬又掏出三星强自+三星拉克丝顶着加成杀穿才加的啊，这次词条可是宇宙世纪+监牢，大把机体 ...</blockquote>
+然后我就会被满星ez8串完<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
