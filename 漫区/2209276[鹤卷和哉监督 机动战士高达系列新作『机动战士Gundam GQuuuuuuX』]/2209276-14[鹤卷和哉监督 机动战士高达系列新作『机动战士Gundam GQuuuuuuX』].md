@@ -18058,3 +18058,73 @@ gq夏亚的目标出乎所有人的意料，却又在情理之中。
 
 怎么会有这样动作比思想觉悟更快，直觉比情感更快的猫。。。
 
+
+*****
+
+####  mengsu  
+##### 20471#       发表于 2025-6-18 21:18
+
+拉拉只是叫来了一个她意识中肯定能搞定夏亚的物体，骡子应该是不会出场的
+
+*****
+
+####  希望之异热同心  
+##### 20472#       发表于 2025-6-18 21:20
+
+突然冒出个想法，在一切尘埃落定之后麻球对夏亚说gqx的拉拉在地球的卡斯巴馆等着你，然后结尾鸭子开着红高达降落到了卡斯巴馆门口<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20473#       发表于 2025-6-18 21:21
+
+说这图的还有一段话的
+
+<img src="https://img.stage1st.com/forum/202506/18/212111npp4s9p444oi4n9z.png" referrerpolicy="no-referrer">
+
+<strong>NZC1`{O{ROZ[PAY7J)(_@C5.png</strong> (428.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 21:21 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/212126nq8qk1s8he1osnqq.png" referrerpolicy="no-referrer">
+
+<strong>29K3P)3%SV3G23QTOU(J4WU.png</strong> (298.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 21:21 上传
+
+*****
+
+####  Sliurus  
+##### 20474#       发表于 2025-6-18 21:21
+
+[https://x.com/otosamaleong/statu ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/otosamaleong/status/1935154747163689445?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202506/18/212138onf9n9nx7wqpxyew.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8245.JPG</strong> (424.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 21:21 上传
+
+性别一换……
+
+
+*****
+
+####  西瓜夜行  
+##### 20475#       发表于 2025-6-18 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962431&amp;ptid=2209276" target="_blank">帆前 发表于 2025-6-18 21:10</a>
+
+哈，哈哈，倒二集还能整超出人预想的活，角色也还在出人意料，gq已经完全沉浸在自己的艺术中了. jpg
+
+在倒二 ...</blockquote>
+(=ﾟωﾟ)=
+
+写的真好
+
