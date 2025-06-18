@@ -8875,3 +8875,52 @@ Plazma也是人气歌
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  帆前  
+##### 20075#       发表于 2025-6-18 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957523&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-18 04:48</a>
+
+这集基西莉亚被打的逻辑其实很搞笑
+
+与其说喵安是为了救朋友下意识开枪，倒不如说是因为不知道谁在公频播 ...</blockquote>
+我觉得就是喵安看到紫婆自由许诺是谎言后，不安全感的电波发力了，直觉反应快过了思想觉悟
+
+啊，怎么会有这样动作比思维更快，直觉比情感更快的猫咪。。。
+
+*****
+
+####  变老的大二  
+##### 20076#       发表于 2025-6-18 07:49
+
+没事，下一集夏亚肯定要飒爽了
+
+<img src="https://img.stage1st.com/forum/202506/18/074914qbmrt2bncakgob1j.jpg" referrerpolicy="no-referrer">
+
+<strong>E9D603226B78F32E9D63304B9DC045DA.jpg</strong> (92.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 07:49 上传
+
+
+*****
+
+####  未来起航  
+##### 20077#       发表于 2025-6-18 07:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957088&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-6-18 01:06</a>
+我觉得爆点大概在小森身上，这集明确表示了她也是NT，紫婆部下看不到kirakira，这集大部分发言也都变成了第 ...</blockquote>
+不大对。小森之前的戏份一直是夏利亚吐槽役，每集除了美颜特写就负责嘴一句“莫名其妙的，他怎么这么开心”。跟观测身份不太搭
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cayon  
+##### 20078#       发表于 2025-6-18 07:54
+
+鸭子突然惊恐脸太jb搞笑了，合着你也压根不知道修司是谁就把红高达给他了是吧
+
