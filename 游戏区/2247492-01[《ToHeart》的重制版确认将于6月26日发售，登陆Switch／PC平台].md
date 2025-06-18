@@ -1001,3 +1001,11 @@ NS2 一启动就报错，凹了好几次倒是能进
 
 你们 gal 厂为什么总是看一些奇怪的 SDK 文档啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RedSpecial  
+##### 83#       发表于 2025-6-19 01:37
+
+一进游戏有很强的既视感，这不是TH2和班长一起过暑假的FD吗
+
