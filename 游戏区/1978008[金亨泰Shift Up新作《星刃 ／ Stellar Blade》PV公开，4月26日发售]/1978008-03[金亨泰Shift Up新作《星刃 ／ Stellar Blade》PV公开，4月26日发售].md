@@ -2147,3 +2147,16 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 不过应该早就被发现了吧
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 3136#       发表于 2025-6-19 05:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961468&amp;ptid=1978008" target="_blank">黑耀星尘 发表于 2025-6-18 17:42</a>
+
+今天看到了多周目的射击流鹰眼mk2加上全双刃组件，限制你的只有弹药量</blockquote>
+其实要不是限制弹容量，
+
+二周目就可以玩枪星了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
