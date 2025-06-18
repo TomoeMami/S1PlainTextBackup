@@ -2097,3 +2097,14 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 蛋疼，花了1H过了红莲，显示已经领取了服装，已经装备上了，传说的那个次元斩专属技能呢？？ ...</blockquote>
 我记得前几楼说是帽子衣服都穿上，然后r3+l3
 
+
+*****
+
+####  双花红棍  
+##### 3131#       发表于 2025-6-18 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963051&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-18 23:06</a>
+
+我记得前几楼说是帽子衣服都穿上，然后r3+l3</blockquote>
+哦，就是占用了迅驰模式是吧，不太好啊。
+
