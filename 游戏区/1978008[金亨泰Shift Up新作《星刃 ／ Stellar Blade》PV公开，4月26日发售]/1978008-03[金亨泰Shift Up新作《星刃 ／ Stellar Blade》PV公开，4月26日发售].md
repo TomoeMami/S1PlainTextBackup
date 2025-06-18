@@ -2170,3 +2170,19 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 跑图探索过程中突然遇到一个要射击的迷题然后发现子弹不够，只能找篝火买子弹去再跑回来解密
 真的学尼尔就应该学到底啊...
 
+
+*****
+
+####  寺胖  
+##### 3138#       发表于 2025-6-19 07:42
+
+ 本帖最后由 寺胖 于 2025-6-19 07:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963611&amp;ptid=1978008" target="_blank">爱撕衣魔刃 发表于 2025-6-19 05:00</a>
+
+其实要不是限制弹容量，
+
+二周目就可以玩枪星了</blockquote>
+我甚至觉得应该基于剑星的底子搞个重装机兵出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至机战也可以，把参战作品中肉身战强的角色作为玩家可选，选择对应的角色有原著剧情，每一关先用肉身战角色执行小任务，然后第二阶段乘上机体按照传统机战的玩法干掉BOSS过关
+
