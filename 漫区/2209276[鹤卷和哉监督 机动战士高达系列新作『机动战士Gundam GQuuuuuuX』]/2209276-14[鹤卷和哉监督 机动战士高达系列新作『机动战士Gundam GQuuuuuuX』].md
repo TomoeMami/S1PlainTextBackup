@@ -17685,3 +17685,46 @@ QQ图片20250618200240.jpg
 
 哈基鸭，你这家伙，真有妈了又受不了了，此事在小红书亦有记载<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 20457#       发表于 2025-6-18 20:18
+
+也就是说
+
+11话最后登场的可能不是初代高达，而是“杰克·高达”？
+
+<img src="https://img.stage1st.com/forum/202506/18/201810bswyywlllolwullw.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (383.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 20:18 上传
+
+*****
+
+####  顾然  
+##### 20458#       发表于 2025-6-18 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962217&amp;ptid=2209276" target="_blank">DARK_HGCG 发表于 2025-6-18 20:18</a>
+也就是说
+
+11话最后登场的可能不是初代高达，而是“杰克·高达”？</blockquote>
+确实一开始就觉得是私货<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  猪突猛进R  
+##### 20459#       发表于 2025-6-18 20:23
+
+本来就不是78-2，是一个披着元祖皮的怪物。
+
+之前也有人解释过了，拉拉认知中的鸭，就是穿红衣服带头盔那样。
+
+所以拉拉认知中的“白色恶魔”，就是78-2那副模样。里面是什么东西不好说，也许是GM王呢。
+
