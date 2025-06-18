@@ -18877,3 +18877,48 @@ Beyond the Time登顶iTunes Store日区单曲销售版……
 明年有原创背景高达新作动画这个是真的吗？之前印象里在专楼还是贴吧哪里看到有人提过... ...</blockquote>
 是真的，虽然又是年底才公布，机设不会像GQ这么惊人，不是什么续作就是原创世界观TV
 
+
+*****
+
+####  创始’’’天翔  
+##### 20527#       发表于 2025-6-19 03:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963509&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-19 01:44</a>
+
+就是真的，年底才公布，机设不会像GQ这么惊人，不是什么续作就是新原创世界观TV ...</blockquote>
+年底公布logo，然后次年年初公布hg是吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwz  
+##### 20528#       发表于 2025-6-19 03:11
+
+只要别是水魔续作一切都好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20529#       发表于 2025-6-19 03:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963580&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-6-19 03:08</a>
+
+年底公布logo，然后次年年初公布hg是吗</blockquote>
+你自己都懂这商业流程了，每年都有高达看是这样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rockroxas  
+##### 20530#       发表于 2025-6-19 03:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962876&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 22:31</a>
+
+指的是GQX和GFred这两台机。
+
+艾尔梅斯和红高达装的是阿尔法塞克缪，艾尔梅斯从异世界穿越过来，普通的物 ...</blockquote>
+无法干涉这个我觉得也是搞笑……捞起来那些算干涉吗
+
+尤其番茄这个喊着友情和平自由开挂，还以为要直接救出或者唤醒拉拉了，结果只是拆了个罩子
+
+那么问题来了，把这个罩子安上去的又是哪位神仙，夏亚本鸭？
+
