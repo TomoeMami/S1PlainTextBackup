@@ -3808,3 +3808,17 @@ X终于正式露脸了 不过这能力有点bug啊
 性别叙事+女王才装了半集逼就被X打倒在地太掉价</blockquote>
 ？可是女王被路边不知名挂壁一拳打爆上一级不就说过了么，不然塑造半天还是被一拳打爆不是更加掉价么
 
+
+*****
+
+####  新HGCG  
+##### 323#       发表于 2025-6-18 20:55
+
+<img src="https://img.stage1st.com/forum/202506/18/205522vuuaqae42lvp967l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 20:55 上传
+

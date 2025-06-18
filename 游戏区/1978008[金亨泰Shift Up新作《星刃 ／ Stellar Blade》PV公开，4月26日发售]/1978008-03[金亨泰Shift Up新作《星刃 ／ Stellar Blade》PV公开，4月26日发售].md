@@ -1993,3 +1993,11 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 双刀猪怪就是奎托斯吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银色天空  
+##### 3121#       发表于 2025-6-18 20:52
+
+这大沙漠的废墟真是屎中屎啊，本来就堆了一堆最粪的炮塔机器人，然后还有高楼跳跳乐各种陷阱，不小心死了又得清一遍，快红温了
+
