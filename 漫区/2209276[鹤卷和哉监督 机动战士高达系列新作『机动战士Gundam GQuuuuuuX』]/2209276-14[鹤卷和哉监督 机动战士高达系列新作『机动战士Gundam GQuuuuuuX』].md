@@ -18956,3 +18956,28 @@ Beyond the Time登顶iTunes Store日区单曲销售版……
 
 当然招魂阿姆罗笑果就太好了，未尝不可
 
+
+*****
+
+####  新人马甲2  
+##### 20534#       发表于 2025-6-19 07:27
+
+下集小森该发挥点作用了吧，同为在OP里一起跑的就她至今没啥表现了
+
+
+*****
+
+####  wing130083  
+##### 20535#       发表于 2025-6-19 07:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963430&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-19 01:02</a>
+
+说起来GQX世界里磁气覆膜没有在一年战争中投入应用，也就是说GQX的0085这些新机和改造的旧机是没有可动框架 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">正史元祖作为一台堆料机体，硬性能用到85是不过时的
+
+z时代除了铁奥进化方向和骡78一致之外，别的机体还真不敢说性能压过了78
+
+更多的是在能变形进入战场更快，有大功率aoe，能丢浮游炮之类的方向进化
+
+至于铁奥，这玩意如果给骡开，那真是画面太美不敢看
+
