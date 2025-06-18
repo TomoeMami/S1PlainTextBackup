@@ -3268,3 +3268,24 @@ md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
 
 为什么，明明我也是steam却没有收到包<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缪斯替  
+##### 192#       发表于 2025-6-18 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961186&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 16:58</a>
+
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点 ...</blockquote>
+我是把叮当换成那个塞卡组一张手牌再抽一张的222，起码有点身材
+
+
+*****
+
+####  希望之花  
+##### 193#       发表于 2025-6-18 21:34
+
+500金币一包也太贪了，还有吃时代尾气的元宇宙遗迹只能说制作组有尽力在做东西
+
+其他方面体验确实比一代好，每天免费一抽当ptcgp集卡模式养盆栽了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
