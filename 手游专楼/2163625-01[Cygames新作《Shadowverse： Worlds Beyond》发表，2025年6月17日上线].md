@@ -3289,3 +3289,11 @@ md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
 
 其他方面体验确实比一代好，每天免费一抽当ptcgp集卡模式养盆栽了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 194#       发表于 2025-6-19 01:10
+
+红白这套中速皇看着真的好啊 就是太贵了
+
