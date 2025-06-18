@@ -2056,3 +2056,14 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 这个好感度除了多卖商品没新功能了？</blockquote>
 会解锁个专属任务
 
+
+*****
+
+####  Standpronder  
+##### 3127#       发表于 2025-6-18 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962790&amp;ptid=1978008" target="_blank">frankCC 发表于 2025-6-18 22:14</a>
+
+会解锁个专属任务</blockquote>
+要主线推进到一定过程？
+

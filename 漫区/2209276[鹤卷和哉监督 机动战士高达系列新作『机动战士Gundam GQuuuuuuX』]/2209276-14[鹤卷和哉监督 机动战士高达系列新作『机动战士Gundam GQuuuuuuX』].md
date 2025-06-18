@@ -18269,3 +18269,25 @@ gq夏亚的目标出乎所有人的意料，却又在情理之中。
 
 —— 来自 samsung SM-S9260, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  猪突猛进R  
+##### 20490#       发表于 2025-6-18 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67962821&amp;ptid=2209276" target="_blank">影山银 发表于 2025-6-18 22:21</a>
+
+所以这里标题阿尔法杀手到底是指啥？
+
+—— 来自 samsung SM-S9260, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+指的是GQX和GFred这两台机。
+
+艾尔梅斯和红高达装的是阿尔法塞克缪，艾尔梅斯从异世界穿越过来，普通的物理手段无法干涉，只有GQX和GFred能影响到。
+
+*****
+
+####  神鹰黑手哥  
+##### 20491#       发表于 2025-6-18 22:33
+
+  Kahara这个制作水平撑得起下一集的大场面吗
+
