@@ -2019,3 +2019,13 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我觉得这大沙漠 很smtvv 各种断桥啊 建筑啊
 
+
+*****
+
+####  虚无连斩  
+##### 3124#       发表于 2025-6-18 22:05
+
+一周目打完了，感觉打渡鸦时候bgm特别符合女人打架的气氛，就挺乐
+
+打了牵手结局好怪哦，总感觉……eve是不是变扶她了啊，以后会不会掏出一个超大……不敢想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
