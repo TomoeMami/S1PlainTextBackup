@@ -130,3 +130,79 @@
 
 这么变态的游戏国内有市场吗
 
+
+*****
+
+####  电脑死机  
+##### 416#       发表于 2025-6-18 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953356&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-6-17 13:40</a>
+
+https://x.com/drecomofficial/status/1934763688227115406
+
+【ドリコムHP】[ニュース更新] 
+
+『Wizardry Var ...</blockquote>
+不好说，之前不少冷门题材在国内都意外的卖的不错
+
+*****
+
+####  藤钢剑姬  
+##### 417#       发表于 2025-6-18 11:26
+
+<img src="https://img.stage1st.com/forum/202506/18/112542ibt9bdtttnewie1n.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_110851_com.huawei.browser.png</strong> (73.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/112547fuy7q87ta7cqzae7.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_110827_com.huawei.browser.png</strong> (109.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:25 上传
+
+万达院线游戏代理中国大陆版
+
+
+*****
+
+####  电脑死机  
+##### 416#       发表于 2025-6-18 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953356&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-6-17 13:40</a>
+
+https://x.com/drecomofficial/status/1934763688227115406
+
+【ドリコムHP】[ニュース更新] 
+
+『Wizardry Var ...</blockquote>
+不好说，之前不少冷门题材在国内都意外的卖的不错
+
+*****
+
+####  藤钢剑姬  
+##### 417#       发表于 2025-6-18 11:26
+
+<img src="https://img.stage1st.com/forum/202506/18/112542ibt9bdtttnewie1n.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_110851_com.huawei.browser.png</strong> (73.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/112547fuy7q87ta7cqzae7.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_110827_com.huawei.browser.png</strong> (109.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:25 上传
+
+万达院线游戏代理中国大陆版
+

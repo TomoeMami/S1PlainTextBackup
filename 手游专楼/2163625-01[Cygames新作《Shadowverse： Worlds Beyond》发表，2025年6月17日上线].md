@@ -1970,3 +1970,1275 @@ steam国际服不转区是不是玩不了啊</blockquote>
 
 充了10块钱，身上已经有4000碎片了，好像也不是玩不了的样子
 
+
+*****
+
+####  辞冬  
+##### 159#       发表于 2025-6-18 08:55
+
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 160#       发表于 2025-6-18 09:41
+
+说是社交 其实就是跟以前好友对战一样 换个地方打牌刷任务而已。。
+
+至于小糖人那种装饰 只能说应该是szb2立项太早又出来太晚 想蹭的元宇宙本身都成了路边了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 161#       发表于 2025-6-18 10:13
+
+这逼二代就是他妈把一代的东西阉割掉然后提高价格再卖一遍啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  u2deack  
+##### 162#       发表于 2025-6-18 10:18
+
+看了眼预组居然还只有一虹然后又没有暂用卡了，还不让我把那些不用的垃圾虹分了，真的每天这点蚊子腿抽到下个包能抽出个残废卡组么
+每日任务又是那种赢几场的，不是碰到大冤种拿头给你赢
+
+*****
+
+####  YMS16M  
+##### 163#       发表于 2025-6-18 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955883&amp;ptid=2163625" target="_blank">DEMOxN 发表于 2025-6-17 21:49</a>
+
+都在骂有没有好哥哥互填一下码  cD7SgFd  
+
+国服国服</blockquote>
+YVKfV6T,填了。你也填填我的~
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 2|红豆泥斯密马赛，抽卡🐶急着抽卡昨天已经填.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 164#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957970&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-18 08:55</a>
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了</blockquote>
+对哦 一代最后不都变成固定刷新了吗 怎么还开倒车的
+
+*****
+
+####  辞冬  
+##### 165#       发表于 2025-6-18 13:45
+
+ 本帖最后由 辞冬 于 2025-6-18 13:58 编辑 
+
+满3分变成满1分感觉这游戏就活了，可惜换不得
+而且如果只玩一两个职业的话，抽新卡包出金虹的收益，完全不如抽旧卡包换尘合金虹
+
+*****
+
+####  河水  
+##### 166#       发表于 2025-6-18 13:58
+
+5202年了，炉石同款的不重复机制加入了吗？
+
+—— 来自 Realme RMX1901, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  凉良  
+##### 167#       发表于 2025-6-18 16:09
+
+md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
+而且现在还不是最搞人的时候 下版本没开服矿和福利 都不敢想开局会多爆炸
+
+*****
+
+####  olkzdf  
+##### 168#       发表于 2025-6-18 16:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脸皇或者高达鱼先玩吧，尤其是脸皇算最便宜的了没有虹也能玩玩
+
+*****
+
+####  辞冬  
+##### 169#       发表于 2025-6-18 16:30
+
+一代开服就玩脸皇，二代开服还玩脸皇，历史是一个圈
+
+*****
+
+####  duraa  
+##### 170#       发表于 2025-6-18 16:31
+
+还是皇家温软<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 171#       发表于 2025-6-18 16:33
+
+漏油 来个穷哥们脸皇卡组玩玩
+
+之前听说szb2降速了，结果感觉完全没有嘛 都在超进
+
+*****
+
+####  凉良  
+##### 172#       发表于 2025-6-18 16:38
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用
+
+*****
+
+####  zzy516232108  
+##### 173#       发表于 2025-6-18 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961060&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 16:38</a>
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那来个高达鱼，我正好有两张llmy
+
+*****
+
+####  凉良  
+##### 174#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+[https://nga.178.com/read.php?tid=44397626](https://nga.178.com/read.php?tid=44397626)
+[https://nga.178.com/read.php?tid=44398034](https://nga.178.com/read.php?tid=44398034)
+
+参考下这两个帖子吧
+
+造物仇其实强点是中期拉怪那几波 能扫能直伤  感觉后面还是挺吃oqs的  高达是个添头
+
+*****
+
+####  olkzdf  
+##### 175#       发表于 2025-6-18 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点直伤，llmy可以裸拍也可以进化做一波大身材，有333虹也可以带。524和5费法术算中期核心，理想状态进化点全给524而超进化点只给llmy和奥祺斯。炮击摸第二张纯废物不可能拍下去的，5费拍下去也不是什么强势动作，有1张就够了
+
+剩下就是创造物牌和解牌的取舍了，没有333的情况过牌基本靠右手，可以带叮当但2费叮当是亏节奏的，基本是费高一些的时候作为填充物过牌
+
+*****
+
+####  凉良  
+##### 176#       发表于 2025-6-18 17:04
+
+廉价脸皇现在根本没有存活空间  现在玩的皇都是中速版 造价可不低 EMT过牌太核心了  321 444也是预组只有一张的金卡
+
+*****
+
+####  olkzdf  
+##### 177#       发表于 2025-6-18 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看得到8费，其他卡组基本都能打到10费了
+
+*****
+
+####  凉良  
+##### 178#       发表于 2025-6-18 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961249&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 17:07</a>
+
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+其实脸皇也要打到八九费 没比中速皇快 
+
+*****
+
+####  olkzdf  
+##### 179#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961260&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 17:09</a>
+
+其实脸皇也要打到八九费 没比中速皇快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八九费已经降速了，真正的廉价脸皇没有雷gay，只带2张875做最后的右手尝试，情况不好的局6费被清场自己就跑了
+
+*****
+
+####  hzsdr  
+##### 180#       发表于 2025-6-18 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961186&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 16:58</a>
+
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点 ...</blockquote>
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://tncache1-f1.v3mh.com/image/2025/06/18/ba80372b43a1bcd60153baeeba30cca5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 181#       发表于 2025-6-18 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+这不是基本都有了吗 炮击太多 3费出2个33人偶没啥用不如能拿在手里的配合oqs
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|放几张人偶卡？|
+
+查看全部评分
+
+*****
+
+####  olkzdf  
+##### 182#       发表于 2025-6-18 17:23
+
+ 本帖最后由 olkzdf 于 2025-6-18 17:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+炮击不要带那么多，格子原因最多只能拍下去1张，复数上手纯粹占手牌，也不是以前降神那种准时拍下来收益极大可以容忍将来手牌-1的情况，准时524比准时炮击场面好看多了，然后就是，2费感觉有点太少了，其他自己看着改吧
+
+正常中速起码10张2费吧，这样才能明显感受到不会卡手
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|各个费用大致该带几张牌左右比较好？.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 183#       发表于 2025-6-18 17:24
+
+顺带影之诗感觉现在后手优势有点大 内战关键张都上手感觉被后手压着打
+
+*****
+
+####  lesword  
+##### 184#       发表于 2025-6-18 17:30
+
+主要是后手那个能量+1的优势很大（这个玩意还挺危险的），叠了超进化差不多等于是临时的先手+超进化的优势
+
+但随从交换上其实还是正常先手的超进化优势更大一点点（算进化点的交换问题）
+
+*****
+
+####  h1h234h  
+##### 185#       发表于 2025-6-18 17:33
+
+<blockquote>olkzdf 发表于 2025-6-18 17:07
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？
+
+*****
+
+####  olkzdf  
+##### 186#       发表于 2025-6-18 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缺先手4费节奏点啊，比如以前四郎就是叼，变成五郎之后就是废物了，现在的炮击如果是4费而不是5费我也会多带追求上手率的
+
+*****
+
+####  olkzdf  
+##### 187#       发表于 2025-6-18 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961392&amp;ptid=2163625" target="_blank">h1h234h 发表于 2025-6-18 17:33</a>
+
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不扣啊，现在不都是新玩家随便输
+
+*****
+
+####  岸浪白野  
+##### 188#         楼主| 发表于 2025-6-18 18:35
+
+送10包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/183521ruybzffimit8kymf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 18:35 上传
+
+
+*****
+
+####  辞冬  
+##### 159#       发表于 2025-6-18 08:55
+
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 160#       发表于 2025-6-18 09:41
+
+说是社交 其实就是跟以前好友对战一样 换个地方打牌刷任务而已。。
+
+至于小糖人那种装饰 只能说应该是szb2立项太早又出来太晚 想蹭的元宇宙本身都成了路边了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 161#       发表于 2025-6-18 10:13
+
+这逼二代就是他妈把一代的东西阉割掉然后提高价格再卖一遍啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  u2deack  
+##### 162#       发表于 2025-6-18 10:18
+
+看了眼预组居然还只有一虹然后又没有暂用卡了，还不让我把那些不用的垃圾虹分了，真的每天这点蚊子腿抽到下个包能抽出个残废卡组么
+每日任务又是那种赢几场的，不是碰到大冤种拿头给你赢
+
+*****
+
+####  YMS16M  
+##### 163#       发表于 2025-6-18 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955883&amp;ptid=2163625" target="_blank">DEMOxN 发表于 2025-6-17 21:49</a>
+
+都在骂有没有好哥哥互填一下码  cD7SgFd  
+
+国服国服</blockquote>
+YVKfV6T,填了。你也填填我的~
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 2|红豆泥斯密马赛，抽卡🐶急着抽卡昨天已经填.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 164#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957970&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-18 08:55</a>
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了</blockquote>
+对哦 一代最后不都变成固定刷新了吗 怎么还开倒车的
+
+*****
+
+####  辞冬  
+##### 165#       发表于 2025-6-18 13:45
+
+ 本帖最后由 辞冬 于 2025-6-18 13:58 编辑 
+
+满3分变成满1分感觉这游戏就活了，可惜换不得
+而且如果只玩一两个职业的话，抽新卡包出金虹的收益，完全不如抽旧卡包换尘合金虹
+
+*****
+
+####  河水  
+##### 166#       发表于 2025-6-18 13:58
+
+5202年了，炉石同款的不重复机制加入了吗？
+
+—— 来自 Realme RMX1901, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  凉良  
+##### 167#       发表于 2025-6-18 16:09
+
+md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
+而且现在还不是最搞人的时候 下版本没开服矿和福利 都不敢想开局会多爆炸
+
+*****
+
+####  olkzdf  
+##### 168#       发表于 2025-6-18 16:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脸皇或者高达鱼先玩吧，尤其是脸皇算最便宜的了没有虹也能玩玩
+
+*****
+
+####  辞冬  
+##### 169#       发表于 2025-6-18 16:30
+
+一代开服就玩脸皇，二代开服还玩脸皇，历史是一个圈
+
+*****
+
+####  duraa  
+##### 170#       发表于 2025-6-18 16:31
+
+还是皇家温软<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 171#       发表于 2025-6-18 16:33
+
+漏油 来个穷哥们脸皇卡组玩玩
+
+之前听说szb2降速了，结果感觉完全没有嘛 都在超进
+
+*****
+
+####  凉良  
+##### 172#       发表于 2025-6-18 16:38
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用
+
+*****
+
+####  zzy516232108  
+##### 173#       发表于 2025-6-18 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961060&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 16:38</a>
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那来个高达鱼，我正好有两张llmy
+
+*****
+
+####  凉良  
+##### 174#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+[https://nga.178.com/read.php?tid=44397626](https://nga.178.com/read.php?tid=44397626)
+[https://nga.178.com/read.php?tid=44398034](https://nga.178.com/read.php?tid=44398034)
+
+参考下这两个帖子吧
+
+造物仇其实强点是中期拉怪那几波 能扫能直伤  感觉后面还是挺吃oqs的  高达是个添头
+
+*****
+
+####  olkzdf  
+##### 175#       发表于 2025-6-18 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点直伤，llmy可以裸拍也可以进化做一波大身材，有333虹也可以带。524和5费法术算中期核心，理想状态进化点全给524而超进化点只给llmy和奥祺斯。炮击摸第二张纯废物不可能拍下去的，5费拍下去也不是什么强势动作，有1张就够了
+
+剩下就是创造物牌和解牌的取舍了，没有333的情况过牌基本靠右手，可以带叮当但2费叮当是亏节奏的，基本是费高一些的时候作为填充物过牌
+
+*****
+
+####  凉良  
+##### 176#       发表于 2025-6-18 17:04
+
+廉价脸皇现在根本没有存活空间  现在玩的皇都是中速版 造价可不低 EMT过牌太核心了  321 444也是预组只有一张的金卡
+
+*****
+
+####  olkzdf  
+##### 177#       发表于 2025-6-18 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看得到8费，其他卡组基本都能打到10费了
+
+*****
+
+####  凉良  
+##### 178#       发表于 2025-6-18 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961249&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 17:07</a>
+
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+其实脸皇也要打到八九费 没比中速皇快 
+
+*****
+
+####  olkzdf  
+##### 179#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961260&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 17:09</a>
+
+其实脸皇也要打到八九费 没比中速皇快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八九费已经降速了，真正的廉价脸皇没有雷gay，只带2张875做最后的右手尝试，情况不好的局6费被清场自己就跑了
+
+*****
+
+####  hzsdr  
+##### 180#       发表于 2025-6-18 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961186&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 16:58</a>
+
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点 ...</blockquote>
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://tncache1-f1.v3mh.com/image/2025/06/18/ba80372b43a1bcd60153baeeba30cca5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 181#       发表于 2025-6-18 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+这不是基本都有了吗 炮击太多 3费出2个33人偶没啥用不如能拿在手里的配合oqs
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|放几张人偶卡？|
+
+查看全部评分
+
+*****
+
+####  olkzdf  
+##### 182#       发表于 2025-6-18 17:23
+
+ 本帖最后由 olkzdf 于 2025-6-18 17:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+炮击不要带那么多，格子原因最多只能拍下去1张，复数上手纯粹占手牌，也不是以前降神那种准时拍下来收益极大可以容忍将来手牌-1的情况，准时524比准时炮击场面好看多了，然后就是，2费感觉有点太少了，其他自己看着改吧
+
+正常中速起码10张2费吧，这样才能明显感受到不会卡手
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|各个费用大致该带几张牌左右比较好？.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 183#       发表于 2025-6-18 17:24
+
+顺带影之诗感觉现在后手优势有点大 内战关键张都上手感觉被后手压着打
+
+*****
+
+####  lesword  
+##### 184#       发表于 2025-6-18 17:30
+
+主要是后手那个能量+1的优势很大（这个玩意还挺危险的），叠了超进化差不多等于是临时的先手+超进化的优势
+
+但随从交换上其实还是正常先手的超进化优势更大一点点（算进化点的交换问题）
+
+*****
+
+####  h1h234h  
+##### 185#       发表于 2025-6-18 17:33
+
+<blockquote>olkzdf 发表于 2025-6-18 17:07
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？
+
+*****
+
+####  olkzdf  
+##### 186#       发表于 2025-6-18 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缺先手4费节奏点啊，比如以前四郎就是叼，变成五郎之后就是废物了，现在的炮击如果是4费而不是5费我也会多带追求上手率的
+
+*****
+
+####  olkzdf  
+##### 187#       发表于 2025-6-18 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961392&amp;ptid=2163625" target="_blank">h1h234h 发表于 2025-6-18 17:33</a>
+
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不扣啊，现在不都是新玩家随便输
+
+*****
+
+####  岸浪白野  
+##### 188#         楼主| 发表于 2025-6-18 18:35
+
+送10包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/183521ruybzffimit8kymf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 18:35 上传
+
+
+*****
+
+####  辞冬  
+##### 159#       发表于 2025-6-18 08:55
+
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 160#       发表于 2025-6-18 09:41
+
+说是社交 其实就是跟以前好友对战一样 换个地方打牌刷任务而已。。
+
+至于小糖人那种装饰 只能说应该是szb2立项太早又出来太晚 想蹭的元宇宙本身都成了路边了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 161#       发表于 2025-6-18 10:13
+
+这逼二代就是他妈把一代的东西阉割掉然后提高价格再卖一遍啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  u2deack  
+##### 162#       发表于 2025-6-18 10:18
+
+看了眼预组居然还只有一虹然后又没有暂用卡了，还不让我把那些不用的垃圾虹分了，真的每天这点蚊子腿抽到下个包能抽出个残废卡组么
+每日任务又是那种赢几场的，不是碰到大冤种拿头给你赢
+
+*****
+
+####  YMS16M  
+##### 163#       发表于 2025-6-18 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955883&amp;ptid=2163625" target="_blank">DEMOxN 发表于 2025-6-17 21:49</a>
+
+都在骂有没有好哥哥互填一下码  cD7SgFd  
+
+国服国服</blockquote>
+YVKfV6T,填了。你也填填我的~
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 2|红豆泥斯密马赛，抽卡🐶急着抽卡昨天已经填.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 164#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957970&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-18 08:55</a>
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了</blockquote>
+对哦 一代最后不都变成固定刷新了吗 怎么还开倒车的
+
+*****
+
+####  辞冬  
+##### 165#       发表于 2025-6-18 13:45
+
+ 本帖最后由 辞冬 于 2025-6-18 13:58 编辑 
+
+满3分变成满1分感觉这游戏就活了，可惜换不得
+而且如果只玩一两个职业的话，抽新卡包出金虹的收益，完全不如抽旧卡包换尘合金虹
+
+*****
+
+####  河水  
+##### 166#       发表于 2025-6-18 13:58
+
+5202年了，炉石同款的不重复机制加入了吗？
+
+—— 来自 Realme RMX1901, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  凉良  
+##### 167#       发表于 2025-6-18 16:09
+
+md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
+而且现在还不是最搞人的时候 下版本没开服矿和福利 都不敢想开局会多爆炸
+
+*****
+
+####  olkzdf  
+##### 168#       发表于 2025-6-18 16:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脸皇或者高达鱼先玩吧，尤其是脸皇算最便宜的了没有虹也能玩玩
+
+*****
+
+####  辞冬  
+##### 169#       发表于 2025-6-18 16:30
+
+一代开服就玩脸皇，二代开服还玩脸皇，历史是一个圈
+
+*****
+
+####  duraa  
+##### 170#       发表于 2025-6-18 16:31
+
+还是皇家温软<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 171#       发表于 2025-6-18 16:33
+
+漏油 来个穷哥们脸皇卡组玩玩
+
+之前听说szb2降速了，结果感觉完全没有嘛 都在超进
+
+*****
+
+####  凉良  
+##### 172#       发表于 2025-6-18 16:38
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用
+
+*****
+
+####  zzy516232108  
+##### 173#       发表于 2025-6-18 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961060&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 16:38</a>
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那来个高达鱼，我正好有两张llmy
+
+*****
+
+####  凉良  
+##### 174#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+[https://nga.178.com/read.php?tid=44397626](https://nga.178.com/read.php?tid=44397626)
+[https://nga.178.com/read.php?tid=44398034](https://nga.178.com/read.php?tid=44398034)
+
+参考下这两个帖子吧
+
+造物仇其实强点是中期拉怪那几波 能扫能直伤  感觉后面还是挺吃oqs的  高达是个添头
+
+*****
+
+####  olkzdf  
+##### 175#       发表于 2025-6-18 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点直伤，llmy可以裸拍也可以进化做一波大身材，有333虹也可以带。524和5费法术算中期核心，理想状态进化点全给524而超进化点只给llmy和奥祺斯。炮击摸第二张纯废物不可能拍下去的，5费拍下去也不是什么强势动作，有1张就够了
+
+剩下就是创造物牌和解牌的取舍了，没有333的情况过牌基本靠右手，可以带叮当但2费叮当是亏节奏的，基本是费高一些的时候作为填充物过牌
+
+*****
+
+####  凉良  
+##### 176#       发表于 2025-6-18 17:04
+
+廉价脸皇现在根本没有存活空间  现在玩的皇都是中速版 造价可不低 EMT过牌太核心了  321 444也是预组只有一张的金卡
+
+*****
+
+####  olkzdf  
+##### 177#       发表于 2025-6-18 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看得到8费，其他卡组基本都能打到10费了
+
+*****
+
+####  凉良  
+##### 178#       发表于 2025-6-18 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961249&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 17:07</a>
+
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+其实脸皇也要打到八九费 没比中速皇快 
+
+*****
+
+####  olkzdf  
+##### 179#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961260&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 17:09</a>
+
+其实脸皇也要打到八九费 没比中速皇快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八九费已经降速了，真正的廉价脸皇没有雷gay，只带2张875做最后的右手尝试，情况不好的局6费被清场自己就跑了
+
+*****
+
+####  hzsdr  
+##### 180#       发表于 2025-6-18 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961186&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 16:58</a>
+
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点 ...</blockquote>
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://tncache1-f1.v3mh.com/image/2025/06/18/ba80372b43a1bcd60153baeeba30cca5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 181#       发表于 2025-6-18 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+这不是基本都有了吗 炮击太多 3费出2个33人偶没啥用不如能拿在手里的配合oqs
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|放几张人偶卡？|
+
+查看全部评分
+
+*****
+
+####  olkzdf  
+##### 182#       发表于 2025-6-18 17:23
+
+ 本帖最后由 olkzdf 于 2025-6-18 17:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+炮击不要带那么多，格子原因最多只能拍下去1张，复数上手纯粹占手牌，也不是以前降神那种准时拍下来收益极大可以容忍将来手牌-1的情况，准时524比准时炮击场面好看多了，然后就是，2费感觉有点太少了，其他自己看着改吧
+
+正常中速起码10张2费吧，这样才能明显感受到不会卡手
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|各个费用大致该带几张牌左右比较好？.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 183#       发表于 2025-6-18 17:24
+
+顺带影之诗感觉现在后手优势有点大 内战关键张都上手感觉被后手压着打
+
+*****
+
+####  lesword  
+##### 184#       发表于 2025-6-18 17:30
+
+主要是后手那个能量+1的优势很大（这个玩意还挺危险的），叠了超进化差不多等于是临时的先手+超进化的优势
+
+但随从交换上其实还是正常先手的超进化优势更大一点点（算进化点的交换问题）
+
+*****
+
+####  h1h234h  
+##### 185#       发表于 2025-6-18 17:33
+
+<blockquote>olkzdf 发表于 2025-6-18 17:07
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？
+
+*****
+
+####  olkzdf  
+##### 186#       发表于 2025-6-18 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缺先手4费节奏点啊，比如以前四郎就是叼，变成五郎之后就是废物了，现在的炮击如果是4费而不是5费我也会多带追求上手率的
+
+*****
+
+####  olkzdf  
+##### 187#       发表于 2025-6-18 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961392&amp;ptid=2163625" target="_blank">h1h234h 发表于 2025-6-18 17:33</a>
+
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不扣啊，现在不都是新玩家随便输
+
+*****
+
+####  岸浪白野  
+##### 188#         楼主| 发表于 2025-6-18 18:35
+
+送10包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/183521ruybzffimit8kymf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 18:35 上传
+
+
+*****
+
+####  辞冬  
+##### 159#       发表于 2025-6-18 08:55
+
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 160#       发表于 2025-6-18 09:41
+
+说是社交 其实就是跟以前好友对战一样 换个地方打牌刷任务而已。。
+
+至于小糖人那种装饰 只能说应该是szb2立项太早又出来太晚 想蹭的元宇宙本身都成了路边了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 161#       发表于 2025-6-18 10:13
+
+这逼二代就是他妈把一代的东西阉割掉然后提高价格再卖一遍啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  u2deack  
+##### 162#       发表于 2025-6-18 10:18
+
+看了眼预组居然还只有一虹然后又没有暂用卡了，还不让我把那些不用的垃圾虹分了，真的每天这点蚊子腿抽到下个包能抽出个残废卡组么
+每日任务又是那种赢几场的，不是碰到大冤种拿头给你赢
+
+*****
+
+####  YMS16M  
+##### 163#       发表于 2025-6-18 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955883&amp;ptid=2163625" target="_blank">DEMOxN 发表于 2025-6-17 21:49</a>
+
+都在骂有没有好哥哥互填一下码  cD7SgFd  
+
+国服国服</blockquote>
+YVKfV6T,填了。你也填填我的~
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 2|红豆泥斯密马赛，抽卡🐶急着抽卡昨天已经填.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 164#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957970&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-18 08:55</a>
+日常又变成恶心人的倒计时刷新，加上充值bug，随便玩玩得了</blockquote>
+对哦 一代最后不都变成固定刷新了吗 怎么还开倒车的
+
+*****
+
+####  辞冬  
+##### 165#       发表于 2025-6-18 13:45
+
+ 本帖最后由 辞冬 于 2025-6-18 13:58 编辑 
+
+满3分变成满1分感觉这游戏就活了，可惜换不得
+而且如果只玩一两个职业的话，抽新卡包出金虹的收益，完全不如抽旧卡包换尘合金虹
+
+*****
+
+####  河水  
+##### 166#       发表于 2025-6-18 13:58
+
+5202年了，炉石同款的不重复机制加入了吗？
+
+—— 来自 Realme RMX1901, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  凉良  
+##### 167#       发表于 2025-6-18 16:09
+
+md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
+而且现在还不是最搞人的时候 下版本没开服矿和福利 都不敢想开局会多爆炸
+
+*****
+
+####  olkzdf  
+##### 168#       发表于 2025-6-18 16:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脸皇或者高达鱼先玩吧，尤其是脸皇算最便宜的了没有虹也能玩玩
+
+*****
+
+####  辞冬  
+##### 169#       发表于 2025-6-18 16:30
+
+一代开服就玩脸皇，二代开服还玩脸皇，历史是一个圈
+
+*****
+
+####  duraa  
+##### 170#       发表于 2025-6-18 16:31
+
+还是皇家温软<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 171#       发表于 2025-6-18 16:33
+
+漏油 来个穷哥们脸皇卡组玩玩
+
+之前听说szb2降速了，结果感觉完全没有嘛 都在超进
+
+*****
+
+####  凉良  
+##### 172#       发表于 2025-6-18 16:38
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用
+
+*****
+
+####  zzy516232108  
+##### 173#       发表于 2025-6-18 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961060&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 16:38</a>
+
+穷哥们别玩脸皇 皇已经被打成路边了 高达便宜好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那来个高达鱼，我正好有两张llmy
+
+*****
+
+####  凉良  
+##### 174#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+[https://nga.178.com/read.php?tid=44397626](https://nga.178.com/read.php?tid=44397626)
+[https://nga.178.com/read.php?tid=44398034](https://nga.178.com/read.php?tid=44398034)
+
+参考下这两个帖子吧
+
+造物仇其实强点是中期拉怪那几波 能扫能直伤  感觉后面还是挺吃oqs的  高达是个添头
+
+*****
+
+####  olkzdf  
+##### 175#       发表于 2025-6-18 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961073&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-18 16:39</a>
+
+那来个高达鱼，我正好有两张llmy</blockquote>
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点直伤，llmy可以裸拍也可以进化做一波大身材，有333虹也可以带。524和5费法术算中期核心，理想状态进化点全给524而超进化点只给llmy和奥祺斯。炮击摸第二张纯废物不可能拍下去的，5费拍下去也不是什么强势动作，有1张就够了
+
+剩下就是创造物牌和解牌的取舍了，没有333的情况过牌基本靠右手，可以带叮当但2费叮当是亏节奏的，基本是费高一些的时候作为填充物过牌
+
+*****
+
+####  凉良  
+##### 176#       发表于 2025-6-18 17:04
+
+廉价脸皇现在根本没有存活空间  现在玩的皇都是中速版 造价可不低 EMT过牌太核心了  321 444也是预组只有一张的金卡
+
+*****
+
+####  olkzdf  
+##### 177#       发表于 2025-6-18 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看得到8费，其他卡组基本都能打到10费了
+
+*****
+
+####  凉良  
+##### 178#       发表于 2025-6-18 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961249&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 17:07</a>
+
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+其实脸皇也要打到八九费 没比中速皇快 
+
+*****
+
+####  olkzdf  
+##### 179#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961260&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-18 17:09</a>
+
+其实脸皇也要打到八九费 没比中速皇快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八九费已经降速了，真正的廉价脸皇没有雷gay，只带2张875做最后的右手尝试，情况不好的局6费被清场自己就跑了
+
+*****
+
+####  hzsdr  
+##### 180#       发表于 2025-6-18 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961186&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-18 16:58</a>
+
+虹基本就是llmy和奥祺斯，这俩加起来4张左右就够了，奥祺斯主要单卡质量也过关吃到超进化点有解场也有7点 ...</blockquote>
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://tncache1-f1.v3mh.com/image/2025/06/18/ba80372b43a1bcd60153baeeba30cca5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 181#       发表于 2025-6-18 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+这不是基本都有了吗 炮击太多 3费出2个33人偶没啥用不如能拿在手里的配合oqs
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|放几张人偶卡？|
+
+查看全部评分
+
+*****
+
+####  olkzdf  
+##### 182#       发表于 2025-6-18 17:23
+
+ 本帖最后由 olkzdf 于 2025-6-18 17:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961290&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-18 17:14</a>
+
+请问我现在这样组卡能玩吗？0氪连金卡都不太合的起</blockquote>
+炮击不要带那么多，格子原因最多只能拍下去1张，复数上手纯粹占手牌，也不是以前降神那种准时拍下来收益极大可以容忍将来手牌-1的情况，准时524比准时炮击场面好看多了，然后就是，2费感觉有点太少了，其他自己看着改吧
+
+正常中速起码10张2费吧，这样才能明显感受到不会卡手
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hzsdr| + 1|各个费用大致该带几张牌左右比较好？.|
+
+查看全部评分
+
+*****
+
+####  凉良  
+##### 183#       发表于 2025-6-18 17:24
+
+顺带影之诗感觉现在后手优势有点大 内战关键张都上手感觉被后手压着打
+
+*****
+
+####  lesword  
+##### 184#       发表于 2025-6-18 17:30
+
+主要是后手那个能量+1的优势很大（这个玩意还挺危险的），叠了超进化差不多等于是临时的先手+超进化的优势
+
+但随从交换上其实还是正常先手的超进化优势更大一点点（算进化点的交换问题）
+
+*****
+
+####  h1h234h  
+##### 185#       发表于 2025-6-18 17:33
+
+<blockquote>olkzdf 发表于 2025-6-18 17:07
+但是快，现在绝大多数人还没到输了扣分的阶段，牌用完还没打死直接下一把，胜负点一般在5费6费，最多也就看 ...</blockquote>
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？
+
+*****
+
+####  olkzdf  
+##### 186#       发表于 2025-6-18 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缺先手4费节奏点啊，比如以前四郎就是叼，变成五郎之后就是废物了，现在的炮击如果是4费而不是5费我也会多带追求上手率的
+
+*****
+
+####  olkzdf  
+##### 187#       发表于 2025-6-18 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961392&amp;ptid=2163625" target="_blank">h1h234h 发表于 2025-6-18 17:33</a>
+
+不是说现在直到master输了都不扣分了吗，还是大师积分输了会扣？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不扣啊，现在不都是新玩家随便输
+
+*****
+
+####  岸浪白野  
+##### 188#         楼主| 发表于 2025-6-18 18:35
+
+送10包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/183521ruybzffimit8kymf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 18:35 上传
+

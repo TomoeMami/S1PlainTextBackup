@@ -96,3 +96,175 @@
 有人发现江户川赛艇场（真的赛艇场）新出的管人佐士原七海和现在的桃学校园祭活动中提到的OG名字一模一样 ...</blockquote>
 联动管人，不过因为好像是地区性的，只能说不愧是阿嘎？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1489#         楼主| 发表于 2025-6-18 12:24
+
+自从周六开始广州电信就死活等不上阿嘎了……用手机联通流量或者手机版ACPG加速就没问题。有其他同是广州电信的吗
+
+*****
+
+####  wilkyway  
+##### 1490#       发表于 2025-6-18 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959543&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-18 12:24</a>
+自从周六开始广州电信就死活等不上阿嘎了……用手机联通流量或者手机版ACPG加速就没问题。有其他同是广州电 ...</blockquote>
+无限卡封面的话好像是缓存问题？直接断一下网就进去了 点点点是只能梯子解决 反正花不了多少流量由他去呗（
+
+*****
+
+####  冰风血羽  
+##### 1491#       发表于 2025-6-18 14:08
+
+胡建电信偶尔会这样，更经常的是没办法联机
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  江戸前ルナ  
+##### 1492#         楼主| 发表于 2025-6-18 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960081&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-6-18 14:07</a>
+
+无限卡封面的话好像是缓存问题？直接断一下网就进去了 点点点是只能梯子解决 反正花不了多少流量由他去呗 ...</blockquote>
+找电信的来看了，正常上网以为啥都没事，但师傅说“现在的PC网络游戏跟手机版不一样，你能正常上网未必能玩，还要够快”，测速只有10+M，“你的是百兆网，这个是线路有问题”，试着换了线测速变回100M就能上了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在的网络游戏要求这么狠的吗<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不灭的旋律  
+##### 1493#       发表于 2025-6-18 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953129&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-17 12:47</a>
+
+联动管人，不过因为好像是地区性的，只能说不愧是阿嘎？</blockquote>
+不是联动管人而是联动赛艇场，这两个人声优都是公开的还能在现场看她们真人当场录制节目，定位其实是赛艇场的宣传用人物。
+
+然后提供这个技术的株式会社360Channel是COLOPL开的公司，也就是金字塔的母公司。
+
+没错，这两个人很可能就是和当年战女高一样是母公司COLOPL为了生意安插进AGA的。因为七海设定为AGA里的高中毕业就应该知道这绝非普通的联动，金字塔都可能深入参与其中。
+
+*****
+
+####  江戸前ルナ  
+##### 1494#         楼主| 发表于 2025-6-18 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960088&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-6-18 14:08</a>
+
+胡建电信偶尔会这样，更经常的是没办法联机
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha ...</blockquote>
+建议抓电信的人来检查下（拖
+
+*****
+
+####  江戸前ルナ  
+##### 1495#         楼主| 发表于 2025-6-18 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961691&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-6-18 18:23</a>
+
+不是联动管人而是联动赛艇场，这两个人声优都是公开的还能在现场看她们真人当场录制节目，定位其实是赛艇 ...</blockquote>
+那就是地区性支援活动之一吧，跟水族馆之类的差不多，也不出格。
+
+当年插战女高出格多了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 1496#       发表于 2025-6-18 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961980&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-18 19:18</a>
+
+建议抓电信的人来检查下（拖</blockquote>
+平时常驻小手段的，无所谓了
+
+
+*****
+
+####  江戸前ルナ  
+##### 1489#         楼主| 发表于 2025-6-18 12:24
+
+自从周六开始广州电信就死活等不上阿嘎了……用手机联通流量或者手机版ACPG加速就没问题。有其他同是广州电信的吗
+
+*****
+
+####  wilkyway  
+##### 1490#       发表于 2025-6-18 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959543&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-18 12:24</a>
+自从周六开始广州电信就死活等不上阿嘎了……用手机联通流量或者手机版ACPG加速就没问题。有其他同是广州电 ...</blockquote>
+无限卡封面的话好像是缓存问题？直接断一下网就进去了 点点点是只能梯子解决 反正花不了多少流量由他去呗（
+
+*****
+
+####  冰风血羽  
+##### 1491#       发表于 2025-6-18 14:08
+
+胡建电信偶尔会这样，更经常的是没办法联机
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  江戸前ルナ  
+##### 1492#         楼主| 发表于 2025-6-18 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960081&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-6-18 14:07</a>
+
+无限卡封面的话好像是缓存问题？直接断一下网就进去了 点点点是只能梯子解决 反正花不了多少流量由他去呗 ...</blockquote>
+找电信的来看了，正常上网以为啥都没事，但师傅说“现在的PC网络游戏跟手机版不一样，你能正常上网未必能玩，还要够快”，测速只有10+M，“你的是百兆网，这个是线路有问题”，试着换了线测速变回100M就能上了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在的网络游戏要求这么狠的吗<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不灭的旋律  
+##### 1493#       发表于 2025-6-18 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953129&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-17 12:47</a>
+
+联动管人，不过因为好像是地区性的，只能说不愧是阿嘎？</blockquote>
+不是联动管人而是联动赛艇场，这两个人声优都是公开的还能在现场看她们真人当场录制节目，定位其实是赛艇场的宣传用人物。
+
+然后提供这个技术的株式会社360Channel是COLOPL开的公司，也就是金字塔的母公司。
+
+没错，这两个人很可能就是和当年战女高一样是母公司COLOPL为了生意安插进AGA的。因为七海设定为AGA里的高中毕业就应该知道这绝非普通的联动，金字塔都可能深入参与其中。
+
+*****
+
+####  江戸前ルナ  
+##### 1494#         楼主| 发表于 2025-6-18 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960088&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-6-18 14:08</a>
+
+胡建电信偶尔会这样，更经常的是没办法联机
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha ...</blockquote>
+建议抓电信的人来检查下（拖
+
+*****
+
+####  江戸前ルナ  
+##### 1495#         楼主| 发表于 2025-6-18 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961691&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-6-18 18:23</a>
+
+不是联动管人而是联动赛艇场，这两个人声优都是公开的还能在现场看她们真人当场录制节目，定位其实是赛艇 ...</blockquote>
+那就是地区性支援活动之一吧，跟水族馆之类的差不多，也不出格。
+
+当年插战女高出格多了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 1496#       发表于 2025-6-18 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961980&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-6-18 19:18</a>
+
+建议抓电信的人来检查下（拖</blockquote>
+平时常驻小手段的，无所谓了
+

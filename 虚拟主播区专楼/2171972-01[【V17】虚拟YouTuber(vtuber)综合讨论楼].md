@@ -1112,3 +1112,75 @@ v西居然有个前辈2年天才，也算是神开局了
 
 mana英语好当然要放去世巡英语场啊
 
+
+*****
+
+####  高等黑暗  
+##### 1289#       发表于 2025-6-18 08:30
+
+没想到这次起手最差的是西西
+
+野手转生，前辈也不行 2 3年的投手都自带红特 不过有2个2年前辈野手有パワヒ，可以期待一下节目效果，对于管人本身来说不一定不好
+
+其实中间有一个没有转生但是副投有威压感 野手也都100+星的挺强的，不过她都选岩手了不可能不赌大谷的可能性就是了
+
+*****
+
+####  rzrbtk  
+##### 1290#       发表于 2025-6-18 11:42
+
+sry我确实是男人情弱<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 1291#       发表于 2025-6-18 16:53
+
+甲斐田晴 digital full album MAGIC 3321
+
+这是只有数字版？
+
+<img src="https://img.stage1st.com/forum/202506/18/165018ral86fr372rab4bb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:50 上传
+
+
+*****
+
+####  高等黑暗  
+##### 1289#       发表于 2025-6-18 08:30
+
+没想到这次起手最差的是西西
+
+野手转生，前辈也不行 2 3年的投手都自带红特 不过有2个2年前辈野手有パワヒ，可以期待一下节目效果，对于管人本身来说不一定不好
+
+其实中间有一个没有转生但是副投有威压感 野手也都100+星的挺强的，不过她都选岩手了不可能不赌大谷的可能性就是了
+
+*****
+
+####  rzrbtk  
+##### 1290#       发表于 2025-6-18 11:42
+
+sry我确实是男人情弱<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 1291#       发表于 2025-6-18 16:53
+
+甲斐田晴 digital full album MAGIC 3321
+
+这是只有数字版？
+
+<img src="https://img.stage1st.com/forum/202506/18/165018ral86fr372rab4bb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:50 上传
+

@@ -1908,3 +1908,767 @@ sony中国也搞这种lgbtq的运营吗？国内还是太包容了</blockquote>
 
 奸雄应该改成奸雌啊，不然也太不母平了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 176#       发表于 2025-6-18 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957037&amp;ptid=2254063" target="_blank">请问有猪扒饭吗 发表于 2025-6-18 00:56</a>
+说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男</blockquote>
+国内拳师也经常攻击lgbtq的，只不过攻击的时候会把L拎出来装看不到
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓮華  
+##### 177#       发表于 2025-6-18 09:07
+
+集美赶紧冲呀，居然敢改，让索爹看看女性力量<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 2||
+
+查看全部评分
+
+*****
+
+####  三月很长  
+##### 178#       发表于 2025-6-18 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 179#       发表于 2025-6-18 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951638&amp;ptid=2254063" target="_blank">maojiashu 发表于 2025-6-17 09:15</a>
+这不是玩梗吗？这游戏lgbt？跟我开玩笑呢</blockquote>
+不是说配角真有吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 180#       发表于 2025-6-18 10:02
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。
+
+和谐了那正义冲爆
+
+*****
+
+####  爱马仕不爱生活  
+##### 181#       发表于 2025-6-18 10:57
+
+冷处理了，没劲
+
+*****
+
+####  名居守  
+##### 182#       发表于 2025-6-18 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道那时候你有没有冲爆索尼和su
+
+*****
+
+####  罐子  
+##### 183#       发表于 2025-6-18 11:09
+
+英雌这个词英文怎么写？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 184#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958923&amp;ptid=2254063" target="_blank">名居守 发表于 2025-6-18 11:08</a>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道 ...</blockquote>
+没有，因为那天我没上s1
+
+*****
+
+####  Andariel  
+##### 185#       发表于 2025-6-18 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958945&amp;ptid=2254063" target="_blank">罐子 发表于 2025-6-18 11:09</a>
+英雌这个词英文怎么写？</blockquote>
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 五块| + 1|**e被干掉了？|
+
+查看全部评分
+
+*****
+
+####  五块  
+##### 186#       发表于 2025-6-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958964&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 11:11</a>
+
+没有，因为那天我没上s1</blockquote>
+噢，原来又是劝人大度。
+
+对面都赤裸裸抽你脸了还在这里让人别玩社区当闷头鸵鸟是吧。
+
+*****
+
+####  沧兰殇  
+##### 187#       发表于 2025-6-18 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+又开始劝人大度当鸵鸟了
+理客中发言又来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  银川智将Kuroky  
+##### 188#       发表于 2025-6-18 12:05
+
+hero
+
+shero
+
+*****
+
+####  黑上シグマ  
+##### 189#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958984&amp;ptid=2254063" target="_blank">Andariel 发表于 2025-6-18 11:13</a>
+
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是前面6个字母是那啥
+
+*****
+
+####  Doctor.S  
+##### 190#       发表于 2025-6-18 12:09
+
+海…洛…英加e肯定被屏蔽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyb  
+##### 191#       发表于 2025-6-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953052&amp;ptid=2254063" target="_blank">夜雨夜雨夜雨 发表于 2025-6-17 12:33</a>
+索尼是真的会帮倒忙啊。
+不会做事可以不做的。</blockquote>
+不是的，反 🌸可是美日核心利益。怎么算倒忙呢🤔
+
+*****
+
+####  astrayl  
+##### 192#       发表于 2025-6-18 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这背后9成9和那些吊毛NGO坐一桌的
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 176#       发表于 2025-6-18 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957037&amp;ptid=2254063" target="_blank">请问有猪扒饭吗 发表于 2025-6-18 00:56</a>
+说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男</blockquote>
+国内拳师也经常攻击lgbtq的，只不过攻击的时候会把L拎出来装看不到
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓮華  
+##### 177#       发表于 2025-6-18 09:07
+
+集美赶紧冲呀，居然敢改，让索爹看看女性力量<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 2||
+
+查看全部评分
+
+*****
+
+####  三月很长  
+##### 178#       发表于 2025-6-18 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 179#       发表于 2025-6-18 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951638&amp;ptid=2254063" target="_blank">maojiashu 发表于 2025-6-17 09:15</a>
+这不是玩梗吗？这游戏lgbt？跟我开玩笑呢</blockquote>
+不是说配角真有吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 180#       发表于 2025-6-18 10:02
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。
+
+和谐了那正义冲爆
+
+*****
+
+####  爱马仕不爱生活  
+##### 181#       发表于 2025-6-18 10:57
+
+冷处理了，没劲
+
+*****
+
+####  名居守  
+##### 182#       发表于 2025-6-18 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道那时候你有没有冲爆索尼和su
+
+*****
+
+####  罐子  
+##### 183#       发表于 2025-6-18 11:09
+
+英雌这个词英文怎么写？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 184#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958923&amp;ptid=2254063" target="_blank">名居守 发表于 2025-6-18 11:08</a>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道 ...</blockquote>
+没有，因为那天我没上s1
+
+*****
+
+####  Andariel  
+##### 185#       发表于 2025-6-18 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958945&amp;ptid=2254063" target="_blank">罐子 发表于 2025-6-18 11:09</a>
+英雌这个词英文怎么写？</blockquote>
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 五块| + 1|**e被干掉了？|
+
+查看全部评分
+
+*****
+
+####  五块  
+##### 186#       发表于 2025-6-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958964&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 11:11</a>
+
+没有，因为那天我没上s1</blockquote>
+噢，原来又是劝人大度。
+
+对面都赤裸裸抽你脸了还在这里让人别玩社区当闷头鸵鸟是吧。
+
+*****
+
+####  沧兰殇  
+##### 187#       发表于 2025-6-18 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+又开始劝人大度当鸵鸟了
+理客中发言又来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  银川智将Kuroky  
+##### 188#       发表于 2025-6-18 12:05
+
+hero
+
+shero
+
+*****
+
+####  黑上シグマ  
+##### 189#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958984&amp;ptid=2254063" target="_blank">Andariel 发表于 2025-6-18 11:13</a>
+
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是前面6个字母是那啥
+
+*****
+
+####  Doctor.S  
+##### 190#       发表于 2025-6-18 12:09
+
+海…洛…英加e肯定被屏蔽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyb  
+##### 191#       发表于 2025-6-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953052&amp;ptid=2254063" target="_blank">夜雨夜雨夜雨 发表于 2025-6-17 12:33</a>
+索尼是真的会帮倒忙啊。
+不会做事可以不做的。</blockquote>
+不是的，反 🌸可是美日核心利益。怎么算倒忙呢🤔
+
+*****
+
+####  astrayl  
+##### 192#       发表于 2025-6-18 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这背后9成9和那些吊毛NGO坐一桌的
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 176#       发表于 2025-6-18 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957037&amp;ptid=2254063" target="_blank">请问有猪扒饭吗 发表于 2025-6-18 00:56</a>
+说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男</blockquote>
+国内拳师也经常攻击lgbtq的，只不过攻击的时候会把L拎出来装看不到
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓮華  
+##### 177#       发表于 2025-6-18 09:07
+
+集美赶紧冲呀，居然敢改，让索爹看看女性力量<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 2||
+
+查看全部评分
+
+*****
+
+####  三月很长  
+##### 178#       发表于 2025-6-18 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 179#       发表于 2025-6-18 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951638&amp;ptid=2254063" target="_blank">maojiashu 发表于 2025-6-17 09:15</a>
+这不是玩梗吗？这游戏lgbt？跟我开玩笑呢</blockquote>
+不是说配角真有吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 180#       发表于 2025-6-18 10:02
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。
+
+和谐了那正义冲爆
+
+*****
+
+####  爱马仕不爱生活  
+##### 181#       发表于 2025-6-18 10:57
+
+冷处理了，没劲
+
+*****
+
+####  名居守  
+##### 182#       发表于 2025-6-18 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道那时候你有没有冲爆索尼和su
+
+*****
+
+####  罐子  
+##### 183#       发表于 2025-6-18 11:09
+
+英雌这个词英文怎么写？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 184#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958923&amp;ptid=2254063" target="_blank">名居守 发表于 2025-6-18 11:08</a>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道 ...</blockquote>
+没有，因为那天我没上s1
+
+*****
+
+####  Andariel  
+##### 185#       发表于 2025-6-18 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958945&amp;ptid=2254063" target="_blank">罐子 发表于 2025-6-18 11:09</a>
+英雌这个词英文怎么写？</blockquote>
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 五块| + 1|**e被干掉了？|
+
+查看全部评分
+
+*****
+
+####  五块  
+##### 186#       发表于 2025-6-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958964&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 11:11</a>
+
+没有，因为那天我没上s1</blockquote>
+噢，原来又是劝人大度。
+
+对面都赤裸裸抽你脸了还在这里让人别玩社区当闷头鸵鸟是吧。
+
+*****
+
+####  沧兰殇  
+##### 187#       发表于 2025-6-18 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+又开始劝人大度当鸵鸟了
+理客中发言又来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  银川智将Kuroky  
+##### 188#       发表于 2025-6-18 12:05
+
+hero
+
+shero
+
+*****
+
+####  黑上シグマ  
+##### 189#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958984&amp;ptid=2254063" target="_blank">Andariel 发表于 2025-6-18 11:13</a>
+
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是前面6个字母是那啥
+
+*****
+
+####  Doctor.S  
+##### 190#       发表于 2025-6-18 12:09
+
+海…洛…英加e肯定被屏蔽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyb  
+##### 191#       发表于 2025-6-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953052&amp;ptid=2254063" target="_blank">夜雨夜雨夜雨 发表于 2025-6-17 12:33</a>
+索尼是真的会帮倒忙啊。
+不会做事可以不做的。</blockquote>
+不是的，反 🌸可是美日核心利益。怎么算倒忙呢🤔
+
+*****
+
+####  astrayl  
+##### 192#       发表于 2025-6-18 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这背后9成9和那些吊毛NGO坐一桌的
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 176#       发表于 2025-6-18 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957037&amp;ptid=2254063" target="_blank">请问有猪扒饭吗 发表于 2025-6-18 00:56</a>
+说反了，这俩在国外是抢肉吃的关系，在国内经常合伙攻击顺直男</blockquote>
+国内拳师也经常攻击lgbtq的，只不过攻击的时候会把L拎出来装看不到
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓮華  
+##### 177#       发表于 2025-6-18 09:07
+
+集美赶紧冲呀，居然敢改，让索爹看看女性力量<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 2||
+
+查看全部评分
+
+*****
+
+####  三月很长  
+##### 178#       发表于 2025-6-18 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 179#       发表于 2025-6-18 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67951638&amp;ptid=2254063" target="_blank">maojiashu 发表于 2025-6-17 09:15</a>
+这不是玩梗吗？这游戏lgbt？跟我开玩笑呢</blockquote>
+不是说配角真有吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 180#       发表于 2025-6-18 10:02
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。
+
+和谐了那正义冲爆
+
+*****
+
+####  爱马仕不爱生活  
+##### 181#       发表于 2025-6-18 10:57
+
+冷处理了，没劲
+
+*****
+
+####  名居守  
+##### 182#       发表于 2025-6-18 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道那时候你有没有冲爆索尼和su
+
+*****
+
+####  罐子  
+##### 183#       发表于 2025-6-18 11:09
+
+英雌这个词英文怎么写？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 184#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958923&amp;ptid=2254063" target="_blank">名居守 发表于 2025-6-18 11:08</a>
+
+剑星真被和谐过，只不过金亨泰出来吸引仇恨帮索尼分摊了
+
+被冲了后面金亨泰又把换色版更新给玩家了
+
+不知道 ...</blockquote>
+没有，因为那天我没上s1
+
+*****
+
+####  Andariel  
+##### 185#       发表于 2025-6-18 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958945&amp;ptid=2254063" target="_blank">罐子 发表于 2025-6-18 11:09</a>
+英雌这个词英文怎么写？</blockquote>
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 五块| + 1|**e被干掉了？|
+
+查看全部评分
+
+*****
+
+####  五块  
+##### 186#       发表于 2025-6-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958964&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 11:11</a>
+
+没有，因为那天我没上s1</blockquote>
+噢，原来又是劝人大度。
+
+对面都赤裸裸抽你脸了还在这里让人别玩社区当闷头鸵鸟是吧。
+
+*****
+
+####  沧兰殇  
+##### 187#       发表于 2025-6-18 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958409&amp;ptid=2254063" target="_blank">凤凰院天豪 发表于 2025-6-18 10:02</a>
+不就换两个词吗有啥激动的，他能把游戏和谐了不成，大家玩游戏远离社区，现在这样搞得和手游那伙人一样了。 ...</blockquote>
+又开始劝人大度当鸵鸟了
+理客中发言又来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  银川智将Kuroky  
+##### 188#       发表于 2025-6-18 12:05
+
+hero
+
+shero
+
+*****
+
+####  黑上シグマ  
+##### 189#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958984&amp;ptid=2254063" target="_blank">Andariel 发表于 2025-6-18 11:13</a>
+
+**e啊
+
+草，这词被屏蔽了，泥潭男拳论坛啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是前面6个字母是那啥
+
+*****
+
+####  Doctor.S  
+##### 190#       发表于 2025-6-18 12:09
+
+海…洛…英加e肯定被屏蔽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyb  
+##### 191#       发表于 2025-6-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953052&amp;ptid=2254063" target="_blank">夜雨夜雨夜雨 发表于 2025-6-17 12:33</a>
+索尼是真的会帮倒忙啊。
+不会做事可以不做的。</blockquote>
+不是的，反 🌸可是美日核心利益。怎么算倒忙呢🤔
+
+*****
+
+####  astrayl  
+##### 192#       发表于 2025-6-18 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这背后9成9和那些吊毛NGO坐一桌的
+

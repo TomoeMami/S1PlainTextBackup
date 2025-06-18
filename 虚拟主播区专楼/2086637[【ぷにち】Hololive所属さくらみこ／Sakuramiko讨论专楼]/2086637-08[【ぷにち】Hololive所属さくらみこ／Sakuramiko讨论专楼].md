@@ -267,3 +267,65 @@ vrc服务器故障大半天了，到现在也没修好的迹象
 
 miko也打枪了
 
+
+*****
+
+####  holofan  
+##### 11065#       发表于 2025-6-16 09:43
+
+<img src="https://img.stage1st.com/forum/202506/16/094114lnywzidh4b4ixvun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 09:41 上传
+
+没想到玩了半天梗 最后不是跟原作联动而是跟枪联动了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11066#       发表于 2025-6-18 19:07
+
+文件名TM是2个月前的？
+
+<img src="https://img.stage1st.com/forum/202506/18/190734i0eszsesmsse1l1s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 19:07 上传
+
+
+*****
+
+####  holofan  
+##### 11065#       发表于 2025-6-16 09:43
+
+<img src="https://img.stage1st.com/forum/202506/16/094114lnywzidh4b4ixvun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 09:41 上传
+
+没想到玩了半天梗 最后不是跟原作联动而是跟枪联动了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11066#       发表于 2025-6-18 19:07
+
+文件名TM是2个月前的？
+
+<img src="https://img.stage1st.com/forum/202506/18/190734i0eszsesmsse1l1s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 19:07 上传
+

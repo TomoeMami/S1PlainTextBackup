@@ -9317,3 +9317,85 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 那之前花几万解诅咒换的buff现在变白嫖，赚了呀！</blockquote>
 花钱解了诅咒才能交易<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 你直接打就没交易了，交易里面的宝箱头才是重点，强打换一个卢恩加攻BUFF，但是没交易纯亏吧
 
+
+*****
+
+####  jacket  
+##### 910#       发表于 2025-6-18 10:08
+
+古龙刷出来了，地图状况如图，中间标记的那个监牢，boss选的人马。
+
+<img src="https://tupian.li/images/2025/06/18/68521e88d3bbb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  woodey  
+##### 911#       发表于 2025-6-18 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935246&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-14 01:06</a>
+
+武器库完全复制法环，什么额外要素都没有。固定主角拿擅长武器有特殊模组（追踪者拿大剑、无赖拿特大etc. ...</blockquote>
+数值和特性都是新的啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woodey  
+##### 912#       发表于 2025-6-18 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950286&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-16 22:04</a>
+
+高级防御拉仇恨是个假词条，游戏里没实装吧</blockquote>
+感觉全靠刮风或者弄别的aoe拉仇恨
+
+*****
+
+####  jacket  
+##### 913#       发表于 2025-6-18 19:11
+
+增加癫火武器的出现概率
+
+调整守护者技艺时间延长的显示效果
+
+调整颠羊商人的出现地点，防止离缩圈位置太近
+
+
+*****
+
+####  jacket  
+##### 910#       发表于 2025-6-18 10:08
+
+古龙刷出来了，地图状况如图，中间标记的那个监牢，boss选的人马。
+
+<img src="https://tupian.li/images/2025/06/18/68521e88d3bbb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  woodey  
+##### 911#       发表于 2025-6-18 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67935246&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-14 01:06</a>
+
+武器库完全复制法环，什么额外要素都没有。固定主角拿擅长武器有特殊模组（追踪者拿大剑、无赖拿特大etc. ...</blockquote>
+数值和特性都是新的啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woodey  
+##### 912#       发表于 2025-6-18 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67950286&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-16 22:04</a>
+
+高级防御拉仇恨是个假词条，游戏里没实装吧</blockquote>
+感觉全靠刮风或者弄别的aoe拉仇恨
+
+*****
+
+####  jacket  
+##### 913#       发表于 2025-6-18 19:11
+
+增加癫火武器的出现概率
+
+调整守护者技艺时间延长的显示效果
+
+调整颠羊商人的出现地点，防止离缩圈位置太近
+

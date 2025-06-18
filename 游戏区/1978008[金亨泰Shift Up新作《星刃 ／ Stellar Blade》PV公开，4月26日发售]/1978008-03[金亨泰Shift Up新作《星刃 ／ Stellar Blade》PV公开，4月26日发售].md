@@ -1305,3 +1305,675 @@ DLC开着，不过前面这个锁定是啥意思，会不会有影响
 越打越火大，说到底这红莲的难度至少有一半就要归功于这B游戏的狗屎闪避上，说是所有带闪避的游戏里做的最 ...</blockquote>
 大旋风后是两次不可防御攻击,黄光之后按闪避, 红莲手会再闪一次紫光,闪出来同时按闪避. 时机只能靠背.
 
+
+*****
+
+####  双花红棍  
+##### 3085#       发表于 2025-6-18 08:54
+
+ 本帖最后由 双花红棍 于 2025-6-18 08:57 编辑 
+
+废土与大沙漠我都忍了，生化危机我真的绷不住，一进去就来个下马威，几个大轮子在那狂转，碰到就死，提醒还少，死了n次才过了那里，完全不知道设置这种桥段有何意义，成功了没任何爽感，失败了挫败感爆棚，跟谁学的？！我不知道日金hentai祖宗几次了。
+
+*****
+
+####  洛克萨斯  
+##### 3086#       发表于 2025-6-18 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956861&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-18 00:34</a>
+
+废土拍蝴蝶，有个地方要穿过峡谷，有3块红色玻璃板要连续飞檐走壁的，是不是需要解锁2段跳才能搞？ ...</blockquote>
+是
+
+*****
+
+####  液体显微隧道  
+##### 3087#       发表于 2025-6-18 10:26
+
+卢瓦下层轮子那里恶意太明显了，能扒的油漆是黄的，墙上照明灯是黄的，轮子还发黄光，不死几次都不知道哪个方向才是路
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Andariel  
+##### 3088#       发表于 2025-6-18 10:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轮子那里我都故意反复死看死亡动画的
+只能说还是不够血腥残虐，不如古墓丽影一根
+
+*****
+
+####  naclken.  
+##### 3089#       发表于 2025-6-18 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958621&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 10:33</a>
+
+轮子那里我都故意反复死看死亡动画的
+
+只能说还是不够血腥残虐，不如古墓丽影一根 ...</blockquote>
+人造人哪怕是残肢应该也能挣扎才对。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3090#       发表于 2025-6-18 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958793&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-18 10:54</a>
+人造人哪怕是残肢应该也能挣扎才对。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面给渡鸦削了半身人棍看她在地上扭动爬行给我看硬了
+
+*****
+
+####  洛克萨斯  
+##### 3091#       发表于 2025-6-18 11:35
+
+和妮姬还有尼尔联动居然武器新种类不给就算了，武器幻化也不给啊........
+
+*****
+
+####  依存香炉  
+##### 3092#       发表于 2025-6-18 11:48
+
+可能是照顾guro爱好者设计的吧
+
+*****
+
+####  tmmd  
+##### 3093#       发表于 2025-6-18 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956861&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-18 00:34</a>
+
+废土拍蝴蝶，有个地方要穿过峡谷，有3块红色玻璃板要连续飞檐走壁的，是不是需要解锁2段跳才能搞？ ...</blockquote>
+并非必须二段跳,一段跳加空中冲刺勉强可以够着,但是要在合适的位置,容错率很低.我是先拍完照然后再去上层走的剧情
+
+*****
+
+####  mhss  
+##### 3094#       发表于 2025-6-18 14:53
+
+这游戏有些细节做得挺出戏的。
+刚到沙漠，说飞行器坏了让我步行，去通电前钓了40分钟鱼，要退出了才发现没电没存档点，于是水底调查个尸体传送回希雍好坐椅子存盘，结果飞行器又出现在希雍了。
+废土下方那个点我还当他是切图的时候来回飞，这沙漠我才刚开图呢。
+不过钓鱼已经掌握诀窍可以关闭辅助玩了。<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜雨夜雨夜雨  
+##### 3095#       发表于 2025-6-18 15:12
+
+啊？
+
+<img src="https://img.stage1st.com/forum/202506/18/151218faftafd5dzd7854a.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_151041_com.huanchengfly.tieba.post.png</strong> (35.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:12 上传
+
+*****
+
+####  袄_偶滴小乔  
+##### 3096#       发表于 2025-6-18 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960481&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 15:12</a>
+啊？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ps5pro在之前庆祝ps5版销量的时候已经给员工送过了
+
+*****
+
+####  虚无连斩  
+##### 3097#       发表于 2025-6-18 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960481&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 15:12</a>
+啊？</blockquote>
+如果是真的不给switch2移植一份？
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ads147147  
+##### 3098#       发表于 2025-6-18 16:05
+
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？
+
+*****
+
+####  洛克萨斯  
+##### 3099#       发表于 2025-6-18 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960836&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:05</a>
+
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？ ...</blockquote>
+ps好像是之前卖了一百多万
+
+*****
+
+####  Andariel  
+##### 3100#       发表于 2025-6-18 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960836&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:05</a>
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pc一周卖到ps一年的销量，拉?
+
+*****
+
+####  袄_偶滴小乔  
+##### 3101#       发表于 2025-6-18 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960988&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 16:27</a>
+pc一周卖到ps一年的销量，拉?</blockquote>
+按媒体播报是pc首发三天卖了ps5首发两个月的量(100万)
+
+*****
+
+####  eva02eva02  
+##### 3102#       发表于 2025-6-18 16:37
+
+这游戏玩下来，就是没有传统意义上的闪避<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3103#       发表于 2025-6-18 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960988&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 16:27</a>
+
+pc一周卖到ps一年的销量，拉?</blockquote>
+我个人一开始的预计是ps200w，pc300w这样，这在线数据挺好的，没想到卖的其实没那么多。
+
+*****
+
+####  ads147147  
+##### 3104#       发表于 2025-6-18 16:42
+
+ 本帖最后由 ads147147 于 2025-6-18 16:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961055&amp;ptid=1978008" target="_blank">eva02eva02 发表于 2025-6-18 16:37</a>
+
+这游戏玩下来，就是没有传统意义上的闪避，我是不是一周目打完，后面就可以开老金完了，还是直接开个老金 ...</blockquote>
+这游戏闪避没有无敌帧，本质上是在玩强制只能择的只狼，几个颜色圈定死你怎么择，贝塔技能打压制就不用择了。
+
+*****
+
+####  洛克萨斯  
+##### 3105#       发表于 2025-6-18 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在发现砍不动或者不好砍的怪用枪有奇效，还是固有思维限制了我，隐形章鱼这种东西拿飞针射爆简单多了，除了磁轨弹没啥特色其他几个弹种都不错，就是伊芙拔枪前摇太长了
+
+*****
+
+####  naclken.  
+##### 3106#       发表于 2025-6-18 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961102&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:42</a>
+
+这游戏闪避没有无敌帧，本质上是在玩强制只能择的只狼，几个颜色圈定死你怎么择，贝塔技能打压制就不用择 ...</blockquote>
+完美闪避不就是无敌帧？
+
+闪避距离太短了，连闪也才两步路。暗杀距离反而很远，互换一下就好了。
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3107#       发表于 2025-6-18 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961143&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-18 16:48</a>
+
+我现在发现砍不动或者不好砍的怪用枪有奇效，还是固有思维限制了我，隐形章鱼这种东西拿飞针射爆简单多了， ...</blockquote>
+子弹太少。
+
+反而是禁止近战的仿死亡空间的那章一路blu过去挺爽的。
+
+*****
+
+####  ads147147  
+##### 3108#       发表于 2025-6-18 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961161&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-18 16:52</a>
+
+完美闪避不就是无敌帧？
+
+闪避距离太短了，连闪也才两步路。暗杀距离反而很远，互换一下就好了。
+
+ ...</blockquote>
+完美闪避才有无敌帧本身，就把闪避变成了rg了，失去了闪避的意义。
+
+甚至跳跃都没无敌帧来着，说难听点这玩意战斗系统是很别扭的格斗游戏，琢磨一段时间后发现还是舍弃大脑打压制把。。。
+
+*****
+
+####  muderx  
+##### 3109#       发表于 2025-6-18 17:02
+
+请教两个问题：
+
+1、没有预购，现在购买剑星，游戏中预购赠品有办法得到吗？
+
+2、普通版和完整版的差别值90吗？一般游戏都是普通和豪华，完整版的叫法是不是说完整体验就是358?
+
+*****
+
+####  夜雨夜雨夜雨  
+##### 3110#       发表于 2025-6-18 17:19
+
+开战前先在场地把地雷铺好，炸一点算一点。
+
+*****
+
+####  袄_偶滴小乔  
+##### 3111#       发表于 2025-6-18 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961317&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 17:19</a>
+开战前先在场地把地雷铺好，炸一点算一点。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记得原来有个bug，哪个boss来着，埋雷不触发，死了复活上次的雷还在，继续埋雷，可以突破埋雷的数量上限
+
+*****
+
+####  双花红棍  
+##### 3112#       发表于 2025-6-18 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961055&amp;ptid=1978008" target="_blank">eva02eva02 发表于 2025-6-18 16:37</a>
+这游戏玩下来，就是没有传统意义上的闪避，我是不是一周目打完，后面就可以开老金完了，还是直接开个老金 ...</blockquote>
+这游戏闪避跟格挡一样，不，比格挡更难。我也很少用
+
+*****
+
+####  黑耀星尘  
+##### 3113#       发表于 2025-6-18 17:42
+
+今天看到了多周目的射击流鹰眼mk2加上全双刃组件，限制你的只有弹药量
+
+*****
+
+####  重新做人  
+##### 3114#       发表于 2025-6-18 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961210&amp;ptid=1978008" target="_blank">muderx 发表于 2025-6-18 17:02</a>
+请教两个问题：
+
+1、没有预购，现在购买剑星，游戏中预购赠品有办法得到吗？</blockquote>
+预购奖励游戏里能获得，而且预购玩家因为直接拿的衣服，正常游戏流程里做衣服的图纸会少一张，逼死强迫症
+据说绑psn的更坑，这游戏是这一周目你拿到过这个图纸，下周目同样的地方就会换成异色版的图纸，绑了psn会直接给衣服导致买不了图纸，系统觉得你原版图纸都没买就不会卖你异色图纸，直接就少一件衣服
+
+*****
+
+####  11116等  
+##### 3115#       发表于 2025-6-18 18:31
+
+ 本帖最后由 11116等 于 2025-6-18 18:55 编辑 
+
+坏了，去了工作室是不是点不亮那两个篝火了。  开风大师连跳回去了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3116#       发表于 2025-6-18 18:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新了补丁，绑定psn可以联动跳奖杯了
+
+妈的原来之前拿不到奖杯是bug
+
+索尼毕业这么多年后看来又能拿一个白金了
+
+*****
+
+####  袄_偶滴小乔  
+##### 3117#       发表于 2025-6-18 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961729&amp;ptid=1978008" target="_blank">11116等 发表于 2025-6-18 18:31</a>
+坏了，去了工作室是不是点不亮那两个篝火了。  开风大师连跳回去了</blockquote>
+打双boss那条隐藏路线？可以回啊，老金没这么坏
+
+讲道理除了主城是被谁谁破坏了不可逆，其他地方老金真没做啥回不去的地方，太空电梯错过的箱子都能给你钓鱼奖励里面去
+
+*****
+
+####  11116等  
+##### 3118#       发表于 2025-6-18 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961891&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-18 19:01</a>
+
+打双boss那条隐藏路线？可以回啊，老金没这么坏
+
+讲道理除了主城是被谁谁破坏了不可逆，其他地方老金真没 ...</blockquote>
+主要我没搜到有这种说法的人，一般只看到说错过那俩的，做完工作室上飞船感觉cg不对劲就直接大退游戏了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双花红棍  
+##### 3085#       发表于 2025-6-18 08:54
+
+ 本帖最后由 双花红棍 于 2025-6-18 08:57 编辑 
+
+废土与大沙漠我都忍了，生化危机我真的绷不住，一进去就来个下马威，几个大轮子在那狂转，碰到就死，提醒还少，死了n次才过了那里，完全不知道设置这种桥段有何意义，成功了没任何爽感，失败了挫败感爆棚，跟谁学的？！我不知道日金hentai祖宗几次了。
+
+*****
+
+####  洛克萨斯  
+##### 3086#       发表于 2025-6-18 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956861&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-18 00:34</a>
+
+废土拍蝴蝶，有个地方要穿过峡谷，有3块红色玻璃板要连续飞檐走壁的，是不是需要解锁2段跳才能搞？ ...</blockquote>
+是
+
+*****
+
+####  液体显微隧道  
+##### 3087#       发表于 2025-6-18 10:26
+
+卢瓦下层轮子那里恶意太明显了，能扒的油漆是黄的，墙上照明灯是黄的，轮子还发黄光，不死几次都不知道哪个方向才是路
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Andariel  
+##### 3088#       发表于 2025-6-18 10:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轮子那里我都故意反复死看死亡动画的
+只能说还是不够血腥残虐，不如古墓丽影一根
+
+*****
+
+####  naclken.  
+##### 3089#       发表于 2025-6-18 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958621&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 10:33</a>
+
+轮子那里我都故意反复死看死亡动画的
+
+只能说还是不够血腥残虐，不如古墓丽影一根 ...</blockquote>
+人造人哪怕是残肢应该也能挣扎才对。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3090#       发表于 2025-6-18 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958793&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-18 10:54</a>
+人造人哪怕是残肢应该也能挣扎才对。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面给渡鸦削了半身人棍看她在地上扭动爬行给我看硬了
+
+*****
+
+####  洛克萨斯  
+##### 3091#       发表于 2025-6-18 11:35
+
+和妮姬还有尼尔联动居然武器新种类不给就算了，武器幻化也不给啊........
+
+*****
+
+####  依存香炉  
+##### 3092#       发表于 2025-6-18 11:48
+
+可能是照顾guro爱好者设计的吧
+
+*****
+
+####  tmmd  
+##### 3093#       发表于 2025-6-18 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956861&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-18 00:34</a>
+
+废土拍蝴蝶，有个地方要穿过峡谷，有3块红色玻璃板要连续飞檐走壁的，是不是需要解锁2段跳才能搞？ ...</blockquote>
+并非必须二段跳,一段跳加空中冲刺勉强可以够着,但是要在合适的位置,容错率很低.我是先拍完照然后再去上层走的剧情
+
+*****
+
+####  mhss  
+##### 3094#       发表于 2025-6-18 14:53
+
+这游戏有些细节做得挺出戏的。
+刚到沙漠，说飞行器坏了让我步行，去通电前钓了40分钟鱼，要退出了才发现没电没存档点，于是水底调查个尸体传送回希雍好坐椅子存盘，结果飞行器又出现在希雍了。
+废土下方那个点我还当他是切图的时候来回飞，这沙漠我才刚开图呢。
+不过钓鱼已经掌握诀窍可以关闭辅助玩了。<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜雨夜雨夜雨  
+##### 3095#       发表于 2025-6-18 15:12
+
+啊？
+
+<img src="https://img.stage1st.com/forum/202506/18/151218faftafd5dzd7854a.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250618_151041_com.huanchengfly.tieba.post.png</strong> (35.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:12 上传
+
+*****
+
+####  袄_偶滴小乔  
+##### 3096#       发表于 2025-6-18 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960481&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 15:12</a>
+啊？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ps5pro在之前庆祝ps5版销量的时候已经给员工送过了
+
+*****
+
+####  虚无连斩  
+##### 3097#       发表于 2025-6-18 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960481&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 15:12</a>
+啊？</blockquote>
+如果是真的不给switch2移植一份？
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ads147147  
+##### 3098#       发表于 2025-6-18 16:05
+
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？
+
+*****
+
+####  洛克萨斯  
+##### 3099#       发表于 2025-6-18 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960836&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:05</a>
+
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？ ...</blockquote>
+ps好像是之前卖了一百多万
+
+*****
+
+####  Andariel  
+##### 3100#       发表于 2025-6-18 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960836&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:05</a>
+有一说一，当时看到18w在线我还以为是pc端销量300w，结果告诉我是和ps和砍300w，ps上面卖的这么拉？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pc一周卖到ps一年的销量，拉?
+
+*****
+
+####  袄_偶滴小乔  
+##### 3101#       发表于 2025-6-18 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960988&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 16:27</a>
+pc一周卖到ps一年的销量，拉?</blockquote>
+按媒体播报是pc首发三天卖了ps5首发两个月的量(100万)
+
+*****
+
+####  eva02eva02  
+##### 3102#       发表于 2025-6-18 16:37
+
+这游戏玩下来，就是没有传统意义上的闪避<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3103#       发表于 2025-6-18 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960988&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-18 16:27</a>
+
+pc一周卖到ps一年的销量，拉?</blockquote>
+我个人一开始的预计是ps200w，pc300w这样，这在线数据挺好的，没想到卖的其实没那么多。
+
+*****
+
+####  ads147147  
+##### 3104#       发表于 2025-6-18 16:42
+
+ 本帖最后由 ads147147 于 2025-6-18 16:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961055&amp;ptid=1978008" target="_blank">eva02eva02 发表于 2025-6-18 16:37</a>
+
+这游戏玩下来，就是没有传统意义上的闪避，我是不是一周目打完，后面就可以开老金完了，还是直接开个老金 ...</blockquote>
+这游戏闪避没有无敌帧，本质上是在玩强制只能择的只狼，几个颜色圈定死你怎么择，贝塔技能打压制就不用择了。
+
+*****
+
+####  洛克萨斯  
+##### 3105#       发表于 2025-6-18 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在发现砍不动或者不好砍的怪用枪有奇效，还是固有思维限制了我，隐形章鱼这种东西拿飞针射爆简单多了，除了磁轨弹没啥特色其他几个弹种都不错，就是伊芙拔枪前摇太长了
+
+*****
+
+####  naclken.  
+##### 3106#       发表于 2025-6-18 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961102&amp;ptid=1978008" target="_blank">ads147147 发表于 2025-6-18 16:42</a>
+
+这游戏闪避没有无敌帧，本质上是在玩强制只能择的只狼，几个颜色圈定死你怎么择，贝塔技能打压制就不用择 ...</blockquote>
+完美闪避不就是无敌帧？
+
+闪避距离太短了，连闪也才两步路。暗杀距离反而很远，互换一下就好了。
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3107#       发表于 2025-6-18 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961143&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-18 16:48</a>
+
+我现在发现砍不动或者不好砍的怪用枪有奇效，还是固有思维限制了我，隐形章鱼这种东西拿飞针射爆简单多了， ...</blockquote>
+子弹太少。
+
+反而是禁止近战的仿死亡空间的那章一路blu过去挺爽的。
+
+*****
+
+####  ads147147  
+##### 3108#       发表于 2025-6-18 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961161&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-18 16:52</a>
+
+完美闪避不就是无敌帧？
+
+闪避距离太短了，连闪也才两步路。暗杀距离反而很远，互换一下就好了。
+
+ ...</blockquote>
+完美闪避才有无敌帧本身，就把闪避变成了rg了，失去了闪避的意义。
+
+甚至跳跃都没无敌帧来着，说难听点这玩意战斗系统是很别扭的格斗游戏，琢磨一段时间后发现还是舍弃大脑打压制把。。。
+
+*****
+
+####  muderx  
+##### 3109#       发表于 2025-6-18 17:02
+
+请教两个问题：
+
+1、没有预购，现在购买剑星，游戏中预购赠品有办法得到吗？
+
+2、普通版和完整版的差别值90吗？一般游戏都是普通和豪华，完整版的叫法是不是说完整体验就是358?
+
+*****
+
+####  夜雨夜雨夜雨  
+##### 3110#       发表于 2025-6-18 17:19
+
+开战前先在场地把地雷铺好，炸一点算一点。
+
+*****
+
+####  袄_偶滴小乔  
+##### 3111#       发表于 2025-6-18 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961317&amp;ptid=1978008" target="_blank">夜雨夜雨夜雨 发表于 2025-6-18 17:19</a>
+开战前先在场地把地雷铺好，炸一点算一点。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记得原来有个bug，哪个boss来着，埋雷不触发，死了复活上次的雷还在，继续埋雷，可以突破埋雷的数量上限
+
+*****
+
+####  双花红棍  
+##### 3112#       发表于 2025-6-18 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961055&amp;ptid=1978008" target="_blank">eva02eva02 发表于 2025-6-18 16:37</a>
+这游戏玩下来，就是没有传统意义上的闪避，我是不是一周目打完，后面就可以开老金完了，还是直接开个老金 ...</blockquote>
+这游戏闪避跟格挡一样，不，比格挡更难。我也很少用
+
+*****
+
+####  黑耀星尘  
+##### 3113#       发表于 2025-6-18 17:42
+
+今天看到了多周目的射击流鹰眼mk2加上全双刃组件，限制你的只有弹药量
+
+*****
+
+####  重新做人  
+##### 3114#       发表于 2025-6-18 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961210&amp;ptid=1978008" target="_blank">muderx 发表于 2025-6-18 17:02</a>
+请教两个问题：
+
+1、没有预购，现在购买剑星，游戏中预购赠品有办法得到吗？</blockquote>
+预购奖励游戏里能获得，而且预购玩家因为直接拿的衣服，正常游戏流程里做衣服的图纸会少一张，逼死强迫症
+据说绑psn的更坑，这游戏是这一周目你拿到过这个图纸，下周目同样的地方就会换成异色版的图纸，绑了psn会直接给衣服导致买不了图纸，系统觉得你原版图纸都没买就不会卖你异色图纸，直接就少一件衣服
+
+*****
+
+####  11116等  
+##### 3115#       发表于 2025-6-18 18:31
+
+ 本帖最后由 11116等 于 2025-6-18 18:55 编辑 
+
+坏了，去了工作室是不是点不亮那两个篝火了。  开风大师连跳回去了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3116#       发表于 2025-6-18 18:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新了补丁，绑定psn可以联动跳奖杯了
+
+妈的原来之前拿不到奖杯是bug
+
+索尼毕业这么多年后看来又能拿一个白金了
+
+*****
+
+####  袄_偶滴小乔  
+##### 3117#       发表于 2025-6-18 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961729&amp;ptid=1978008" target="_blank">11116等 发表于 2025-6-18 18:31</a>
+坏了，去了工作室是不是点不亮那两个篝火了。  开风大师连跳回去了</blockquote>
+打双boss那条隐藏路线？可以回啊，老金没这么坏
+
+讲道理除了主城是被谁谁破坏了不可逆，其他地方老金真没做啥回不去的地方，太空电梯错过的箱子都能给你钓鱼奖励里面去
+
+*****
+
+####  11116等  
+##### 3118#       发表于 2025-6-18 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961891&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-18 19:01</a>
+
+打双boss那条隐藏路线？可以回啊，老金没这么坏
+
+讲道理除了主城是被谁谁破坏了不可逆，其他地方老金真没 ...</blockquote>
+主要我没搜到有这种说法的人，一般只看到说错过那俩的，做完工作室上飞船感觉cg不对劲就直接大退游戏了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

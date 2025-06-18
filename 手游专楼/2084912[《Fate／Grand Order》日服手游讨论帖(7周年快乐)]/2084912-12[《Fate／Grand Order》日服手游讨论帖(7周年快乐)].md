@@ -1,0 +1,168 @@
+﻿
+*****
+
+####  jackyhuang  
+##### 16896#       发表于 2025-6-10 23:03
+
+青子打这次低难还不错的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  壳壳牛  
+##### 16897#       发表于 2025-6-10 23:06
+
+牢青可是高贵的活人秩序善女从者<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 16898#       发表于 2025-6-15 01:12
+
+<img src="https://img.stage1st.com/forum/202506/15/005749mckuwfl22u220gjl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250615_005653_com.aniplex.fategrandorder.jpg</strong> (288.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-15 00:57 上传
+
+半夜晒一下稀有成就，全概念礼装图鉴解锁。
+
+以前没事就刷新助战开羁绊礼装，最近很幸运地加到一个肝帝氪佬，总能在活动期间把新从者的羁绊礼装肝出来。如今终于赶在下次出新卡前解锁了全图鉴。
+
+（羁绊礼装好解决，反倒是我有时抽不出卡池礼装拖了后腿...）
+
+*****
+
+####  alucardcz  
+##### 16899#       发表于 2025-6-18 12:37
+
+<img src="https://img.stage1st.com/forum/202506/18/123709a7l0sqys7taa83o8.png" referrerpolicy="no-referrer">
+
+<strong>12313123.png</strong> (631.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:37 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">羁绊石果然是有灵魂的！
+
+*****
+
+####  qixinno2  
+##### 16900#       发表于 2025-6-18 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-18 12:37</a>
+
+羁绊石果然是有灵魂的！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗萌新太欧了
+
+*****
+
+####  森兰丸  
+##### 16901#       发表于 2025-6-18 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-18 12:37</a>
+
+羁绊石果然是有灵魂的！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼好几天没见有新动静结果一打开就不出所料看到萌新又在豹跳
+
+*****
+
+####  alucardcz  
+##### 16902#       发表于 2025-6-18 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960280&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-18 14:45</a>
+
+这楼好几天没见有新动静结果一打开就不出所料看到萌新又在豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你限定5宝
+
+
+*****
+
+####  jackyhuang  
+##### 16896#       发表于 2025-6-10 23:03
+
+青子打这次低难还不错的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  壳壳牛  
+##### 16897#       发表于 2025-6-10 23:06
+
+牢青可是高贵的活人秩序善女从者<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 16898#       发表于 2025-6-15 01:12
+
+<img src="https://img.stage1st.com/forum/202506/15/005749mckuwfl22u220gjl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250615_005653_com.aniplex.fategrandorder.jpg</strong> (288.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-15 00:57 上传
+
+半夜晒一下稀有成就，全概念礼装图鉴解锁。
+
+以前没事就刷新助战开羁绊礼装，最近很幸运地加到一个肝帝氪佬，总能在活动期间把新从者的羁绊礼装肝出来。如今终于赶在下次出新卡前解锁了全图鉴。
+
+（羁绊礼装好解决，反倒是我有时抽不出卡池礼装拖了后腿...）
+
+*****
+
+####  alucardcz  
+##### 16899#       发表于 2025-6-18 12:37
+
+<img src="https://img.stage1st.com/forum/202506/18/123709a7l0sqys7taa83o8.png" referrerpolicy="no-referrer">
+
+<strong>12313123.png</strong> (631.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:37 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">羁绊石果然是有灵魂的！
+
+*****
+
+####  qixinno2  
+##### 16900#       发表于 2025-6-18 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-18 12:37</a>
+
+羁绊石果然是有灵魂的！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗萌新太欧了
+
+*****
+
+####  森兰丸  
+##### 16901#       发表于 2025-6-18 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-18 12:37</a>
+
+羁绊石果然是有灵魂的！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼好几天没见有新动静结果一打开就不出所料看到萌新又在豹跳
+
+*****
+
+####  alucardcz  
+##### 16902#       发表于 2025-6-18 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960280&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-18 14:45</a>
+
+这楼好几天没见有新动静结果一打开就不出所料看到萌新又在豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你限定5宝
+

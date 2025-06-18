@@ -8924,3 +8924,8530 @@ Plazma也是人气歌
 
 鸭子突然惊恐脸太jb搞笑了，合着你也压根不知道修司是谁就把红高达给他了是吧
 
+
+*****
+
+####  朋友费小号  
+##### 20079#       发表于 2025-6-18 07:57
+
+吉夸克追番感觉确实有点赛博炉管的意思<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不说了等下周最后一集了，我先去起草投降书了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  syndrome2032  
+##### 20080#       发表于 2025-6-18 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957721&amp;ptid=2209276" target="_blank">cayon 发表于 2025-6-18 07:54</a>
+鸭子突然惊恐脸太jb搞笑了，合着你也压根不知道修司是谁就把红高达给他了是吧 ...</blockquote>
+对面不知道是谁却莫名亲近，什么，原来是骡子啊。
+
+
+*****
+
+####  未来起航  
+##### 20081#       发表于 2025-6-18 08:04
+
+nya与其说是什么极度自由，不如说是听不懂人话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像那位锦木千束：大道理觉得不对味儿听不懂的就丢一边，觉得对的也是生搬硬套（不鲨人这种），反正就突出一个没文化、不汴京
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  KDConan  
+##### 20082#       发表于 2025-6-18 08:09
+
+走同人的路，让同人无处不在<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pandaman7777  
+##### 20083#       发表于 2025-6-18 08:10
+
+真正的富野厨，公费追星，官方同人，真正的uc高达安利神片
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  无念  
+##### 20084#       发表于 2025-6-18 08:11
+
+这就是side2吃鸡冠军的含金量啊，怕不是当时扎古刚进开始安毒气罐她身体就疯狂报警准备跑路了，脑子还处于“哎？！”的状态呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  未来起航  
+##### 20085#       发表于 2025-6-18 08:11
+
+以及虽然梗玩得开心，但元祖要吃瘪的吧。修司这要整灭世的，一眼成不了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Ashice  
+##### 20086#       发表于 2025-6-18 08:13
+
+要是uc大乱斗把卡缪捷多都拉出来至少我会很开心啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 20087#       发表于 2025-6-18 08:15
+
+<blockquote>未来起航 发表于 2025-6-18 08:04
+nya与其说是什么极度自由，不如说是听不懂人话就像那位锦木千束：大道理觉得不对味儿听不懂的就丢一边，觉 ...</blockquote>
+这种动物塑的人物构建方式，难道不是膜上一作女主吗(记得当时有人觉得狸猫这种像野生小动物的塑造方式很独特愁找不到代餐的 现在有了
+
+*****
+
+####  RJG丶one  
+##### 20088#       发表于 2025-6-18 08:19
+
+紫婆该不会实际完全看不到kirakira，台词都是自己硬凹的吧
+第七集是杜感应到泽克诺瓦后发疯，紫婆被精神力高达炸了之后问了一句什么声音
+第11集是小森都看到kirakira了，紫婆一直没什么反应，被绿叔叔在米氏粒子流里感应到皱纹有几根了都没反应，最后见到人了找补了一句这是什么光
+
+该不会紫婆真的是纯种OT，就为了卡斯巴尔少爷和喵安这样的NT能过的好才用大义推着喵安往前走吧。
+
+纳尼，野史是真的？
+
+*****
+
+####  你妈的为什么  
+##### 20089#       发表于 2025-6-18 08:20
+
+水魔这种大人都出来明说改的了剧本玩意就算了吧
+
+总不能讨论水魔幻之原剧本吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暗示我7酱  
+##### 20090#       发表于 2025-6-18 08:21
+
+GQX是异闻带 修司是迦勒底 RX78-2是人理派发的冠位(？) 夏亚是异闻带之王 拉拉是圣杯/历史的分歧点 麻球喵安是异闻带原住民
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzy516232108  
+##### 20091#       发表于 2025-6-18 08:22
+
+这剧本感觉像是ai写出来的，设定几个新角色，然后再把高达/z高达/逆袭的夏亚流传度高的名场面塞进去，最后再把关键老角色塞进去。
+一开始我还想吐槽说喵安为了男人，大炮屏幕上写earth也当没看见，执意要开炮。
+结果两个人对了一轮刀枪以后喵安迅速下线让麻球拆机器人，后面的发展就进入了我看不懂但是大受震撼的阶段。
+说实话，这集播了啥我也不知道，反正各种超展开挺有意思的，好活烂活都比没活好
+
+*****
+
+####  zoomegg  
+##### 20092#       发表于 2025-6-18 08:25
+
+飒爽登场笑死
+这剧本还是阴湿肥宅写同人那味，只能说不能对庵野插手的东西有不切实际的期待
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 20093#       发表于 2025-6-18 08:25
+
+修司(骡子)逻辑还好理解吧。
+
+拉拉为了保护鸭子整了个gqux宇宙让你小子爽了。
+现在转头来你小子一句不能让拉拉干涉过多毁灭gqux宇宙。
+突出一个端起碗吃饭，放下碗骂娘。
+那我也没有必要装什么正人君子了。
+把白色恶魔叫过来毁灭gqux宇宙的基础逻辑，保护鸭子了。
+
+*****
+
+####  duo_wolf  
+##### 20094#       发表于 2025-6-18 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957682&amp;ptid=2209276" target="_blank">瓦拉几亚之夜 发表于 2025-6-18 07:39</a>
+
+那边联邦胜利的宇宙看到源源不断传送过来的吉翁军不知作何感想</blockquote>
+杀不完的吉翁残党的原因找到辣<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 翼宿一| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  6x6z6w  
+##### 20095#       发表于 2025-6-18 08:31
+
+所以现在新人类的上限又被提升了，以前还只是类似读心和预知未来的超能力，现在都能穿越平行宇宙+毁灭时间线了<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">什么时候加入漫威多元宇宙套餐啊
+
+*****
+
+####  朋友费小号  
+##### 20096#       发表于 2025-6-18 08:31
+
+ 本帖最后由 朋友费小号 于 2025-6-18 08:33 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">爽啊。
+
+这要真能是个机战（指srw）的原创剧本该多爽啊
+
+*****
+
+####  朋友费小号  
+##### 20097#       发表于 2025-6-18 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957849&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2025-6-18 08:31</a>
+
+所以现在新人类的上限又被提升了，以前还只是类似读心和预知未来的超能力，现在都能穿越平行宇宙+毁灭时间 ...</blockquote>
+纵向强度没怎么提升，独角兽和NT的时候就明确有新人类能升维或者存在愿意帮助新人类的高维存在了。
+
+吉夸克这次顶多是把没表现出来的能力横向拓宽了一下。
+
+*****
+
+####  失落之翼  
+##### 20098#       发表于 2025-6-18 08:35
+
+小森可爱捏<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 20099#       发表于 2025-6-18 08:37
+
+喵安ccb的逻辑不是这样的吗
+玛秋诶→修司在玛秋身边→跟着玛秋可以见到修司→所以玛秋不能死→要阻止紫婆开枪→ccb
+所以有没有做喵安爬在地上叫修酱的AI视频，我觉得挺合适的
+
+*****
+
+####  6x6z6w  
+##### 20100#       发表于 2025-6-18 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957864&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-18 08:35</a>
+
+纵向强度没怎么提升，独角兽和NT的时候就明确有新人类能升维或者存在愿意帮助新人类的高维存在了。
+
+吉夸 ...</blockquote>
+以前没直观表现出来还好，现在感觉看oo的世界观都觉得眉清目秀了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 20101#       发表于 2025-6-18 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957302&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 01:48</a>
+鸭和紫婆这一幕还灌水啊，实锤了在一部分老害心里，紫婆对鸭是那种感情。
+
+打比方，就像EVA有人说明日香喜 ...</blockquote>
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  朋友费小号  
+##### 20102#       发表于 2025-6-18 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957877&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2025-6-18 08:37</a>
+
+以前没直观表现出来还好，现在感觉看oo的世界观都觉得眉清目秀了……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我向来是无所谓的，毕竟我都玩机战了，只想看兄弟们还能整出点什么花活出来
+
+*****
+
+####  pandaman7777  
+##### 20103#       发表于 2025-6-18 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957415&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 02:32</a>
+X 上的 ideolo✨GSF 3組26/土曜西め-60ab：“最終話これでしょ #GQuuuuuuX [https://t.co/esQ4O7I8YJ” ...](https://t.co/esQ4O7I8YJ” ...)</blockquote>
+种命万能（
+
+—— 来自 [url=https://www.pgyer.com/GcUxKd4w]鹅球 v3.3.96
+
+*****
+
+####  aquakane  
+##### 20104#       发表于 2025-6-18 08:42
+
+巴上帝结晶兽状态下已经明确能主宰时空修改历史了，只不过被犁地拉回来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ads147147  
+##### 20105#       发表于 2025-6-18 08:49
+
+虽然说拉拉印象里的鸭子就是一副面具红皮，但是也是拉拉要求鸭子穿宇宙服上战场，这里鸭子换皮有一点点违和感，估计是故意做的笑点。然后刷来的白色恶魔这事啊，拉拉就见过rx782，来的这台元祖外皮的玩意鬼知道里头是什么东西。而且真的就是元祖，现在就剩一根光剑的红高达打个毛。
+
+现在就看下一集会不会真的从原世界线再拉来什么东西。。。
+
+*****
+
+####  西洛克  
+##### 20106#       发表于 2025-6-18 08:51
+
+rx78大概就是披着高达皮的伊迪安啦，结局人心之光，伊迪安机魂大悦放过这个世界（大概）
+
+*****
+
+####  ads147147  
+##### 20107#       发表于 2025-6-18 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957879&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-18 08:38</a>
+
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 鹅球 v3.3.96</blockquote>
+明日香确实喜欢加持，但是就这么认为会很肤浅（异世界舅舅评论的很贴切）。直白的认为紫婆喜欢鸭子很合理，但是这种喜欢混杂了很多其他因素，只是用喜欢来概括会很诡异。
+
+其实我觉得鹤卷在紫婆和鸭子的情感关系上已经写的很克制了，可是这是后现代解构时代，任何有矛头的设计都会被迅速滑坡解构，最后变成野史真史。。。
+
+*****
+
+####  ads147147  
+##### 20108#       发表于 2025-6-18 08:54
+
+话说小森什么时候画的眼影，我才注意到。。
+
+*****
+
+####  ヒトニナル  
+##### 20109#       发表于 2025-6-18 08:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但我认为既然鸭子换装是真真实实换了一套有实际质量的衣服，那传送过来的高达就算不是元祖也会被拉拉硬改成元祖
+
+*****
+
+####  朋友费小号  
+##### 20110#       发表于 2025-6-18 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957963&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-18 08:54</a>
+
+话说小森什么时候画的眼影，我才注意到。。</blockquote>
+一直都有眼影啊，从登场的时候就有
+
+*****
+
+####  syndrome2032  
+##### 20111#       发表于 2025-6-18 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957879&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-18 08:38</a>
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 鹅球 v3.3.96</blockquote>
+明日香和加持大概类似鸭子那句话。
+
+什么啊，原来葵司是在我身上寻找父亲吗。
+
+*****
+
+####  reficul  
+##### 20112#       发表于 2025-6-18 08:57
+
+目前已经要迎接最后一话了，主要角色里还只有绿叔叔有比较明确的行动动机，而其他角色基本都是随波逐流，就靠配角给他们下指令。怪不得下一集的展开这么难猜，三小只/夏亚/阿姆罗/拉拉都不知道他们想要达成什么目的，自然无从谈起猜测下一个行动
+
+*****
+
+####  syndrome2032  
+##### 20113#       发表于 2025-6-18 09:01
+
+ 本帖最后由 syndrome2032 于 2025-6-18 09:02 编辑 
+
+gqux目前众人行动目的:
+鸭子:修正世界的扭曲所以要消灭玫瑰(拉拉)
+修司(骡子):鸭子装你mb呢，这个世界为什么存在你还不懂?我要修正你。目前目的:消灭鸭子。
+
+拉拉:刚睁眼，目的保护鸭子，下话大概率妇科元祖挡刀。
+
+马球:修司说的对，我也要保护拉拉。
+喵安:状态外
+
+绿叔叔:消灭紫色老太婆
+首席:保护紫色老太婆
+
+紫色老太婆:???
+绿色木马:吃瓜看戏中。
+
+下话首席哥别冲的太快直接被骡子当野狗踹死了。
+目前来看最适合作为骡子第一个靶子的就是首席的白色强人了。
+
+*****
+
+####  盐盐盐盐盐  
+##### 20114#       发表于 2025-6-18 09:02
+
+说是前三次zknv都是能量单方面流向另一边，那所罗门鸭子和红高为什么就没事而且也不知道消失到哪去了，还没事人一样在gqx世界里躲着活动………如果是被传走又被复现回来那单纯就是索顿没探测到而已？side6那次又是为什么把修司和红高传走了，单纯就是碰巧遇上波动了？那修司回另一边又是干啥了回来已经神功大成飞升到精神体挡ms？而且如果修司是side6那次传走阿巴瓦空这次才回来那索顿理应能探测到能量流入了吧，但是也没有？一个人的能量太小了测不出来非得复现元祖？但是前面复现红高也是一台ms就没有被索顿检测出zknv
+
+*****
+
+####  失落之翼  
+##### 20115#       发表于 2025-6-18 09:05
+
+修斯：我只是个路过的假面（划掉）高达骑士罢了<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 20116#       发表于 2025-6-18 09:07
+
+ 本帖最后由 syndrome2032 于 2025-6-18 09:11 编辑 
+
+所罗门坠落那次应该是鸭子脱出，红高达带着所罗门的1/4穿越到主世界。
+
+然后红高达撞上了主世界的修司(骡子)，得知了gqux世界的存在，然后红高达+修司穿越回side6撞上了鸭子开始计划。
+
+修司+红高达通过zeknova穿越走盲猜是玫瑰启动了，所以修司被拉拉判定成异物送走了。因为鸭子注定会被骡子灭杀，所以修司(骡子)不能存在于gqux世界。
+
+按照这话说法，彼岸世界穿越的zeknova共有3次。
+
+红高达传所罗门
+红高达传izuma
+传元祖
+
+前两次发生后红高达(以及修司)也得传回来。只能说是没在场没侦测到吧。
+
+*****
+
+####  yanghuangu  
+##### 20117#       发表于 2025-6-18 09:09
+
+如果穿越来的<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时空管理局  
+##### 20118#       发表于 2025-6-18 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957402&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 02:26</a>
+ 味道像那更应该是正史鸭附近的人，鸭闻着像异世界的骡什么的听着也太gay了  不过其实不管是鸭还是骡都不 ...</blockquote>
+看了这句台词，以及修司对鸭说的话。我有点怀疑修司就是鸭了，他那段话其实是对另一个自己说的。
+
+*****
+
+####  blood_iron  
+##### 20119#       发表于 2025-6-18 09:15
+
+结果论上来看喵安，side2出身的难民，毙了黑色二连星，一炮带走阿巴瓦空和上面的基连派部队，对着紫色老太婆腰子来了一枪，这战绩联邦不得连夜赶来授勋啊
+
+你知道吗，喵安拯救的生命超乎你的想象.jpg
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 20120#       发表于 2025-6-18 09:16
+
+高达真是乙游大世界呢，有蓝毛神秘男，有军队忠犬男，有小胡子中年帅，有金发碧眼背头，对于番茄来说吃的也太好了点。。。
+
+
+*****
+
+####  哈里-谢顿  
+##### 20121#       发表于 2025-6-18 09:22
+
+<img src="https://img.stage1st.com/forum/202506/18/092224rj37ipdjf24k0ias.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5975.jpeg</strong> (421.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-18 09:22 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/092224x5x1eedee55lpddl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5973.jpeg</strong> (239.51 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2025-6-18 09:22 上传
+
+*****
+
+####  武川日玄  
+##### 20122#       发表于 2025-6-18 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957415&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 02:32</a>
+
+X 上的 ideolo✨GSF 3組26/土曜西め-60ab：“最終話これでしょ #GQuuuuuuX [url]https://t.co/esQ4O7I8YJ” ...</blockquote>
+流星装备了
+
+*****
+
+####  洛亚替身  
+##### 20123#       发表于 2025-6-18 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957980&amp;ptid=2209276" target="_blank">reficul 发表于 2025-6-18 08:57</a>
+
+目前已经要迎接最后一话了，主要角色里还只有绿叔叔有比较明确的行动动机，而其他角色基本都是随波逐流，就 ...</blockquote>
+下一集完结，预测也没用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kaion111  
+##### 20124#       发表于 2025-6-18 09:26
+
+我还挺喜欢这个展开的，本来就做不了什么正剧，狂野的同人还挺乐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Schwarzess  
+##### 20125#       发表于 2025-6-18 09:29
+
+最 高 的 entertainment<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+紫婆画79自己的妆，说87哈曼的话，干93鸭的事，可以说是鸡瘟集大成了。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  LadySaazbaum  
+##### 20126#       发表于 2025-6-18 09:30
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心研究如何修复本世界线——这逼格可拔高太多了
+
+所以真的是魔法少女夏亚sama<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璇瑢子R| + 2|思路广|
+
+查看全部评分
+
+*****
+
+####  syndrome2032  
+##### 20127#       发表于 2025-6-18 09:31
+
+后半直接不装了，开始膜剧情。
+所以早知道这样前半你们少打点黑拳多膜点剧情不很好。
+
+这黑拳还是打的没意义
+
+*****
+
+####  Saber琪  
+##### 20128#       发表于 2025-6-18 09:31
+
+下集：
+修司：我会保护好她（拉拉）！
+夏亚：为了这个世界的存续，对不起拉拉，你只能去死！
+骡子（？）：我不在的这些天你很嚣张啊？
+夏利亚：为了nt的未来！
+首席哥：为了nt的未来！
+基西莉亚：阻碍我成为王者的都死吧！
+🍅：拉拉不会死！这个世界也不会被毁灭！
+喵安：喵？我不到啊？麻球说跟她走可以见到修司我就来了……啊？什么叫世界要被毁灭了？😱咋回事儿啊？这拉拉是谁啊？她唱歌好难听啊😫好恶心要吐了（指拉拉的悲鸣）修酱！你们不要再打了！麻球你怎么不给我解释一下啊
+
+*****
+
+####  望江南  
+##### 20129#       发表于 2025-6-18 09:32
+
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说拉东西过来我也以为应该是把骡子拉来了，没想到下一秒一整台元祖都飞出来了，真看笑了，甚至还搭上了原汁原味的bgm，鹤卷大统领，我们尊敬你口牙！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说为什么楼里都说“修斯（骡子）”，他们在剧内有暗示是一个人吗？我看完还以为修斯可能是骡子的后代或者正史谁的后代来着
+
+*****
+
+####  无动于衷  
+##### 20130#       发表于 2025-6-18 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958196&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 09:32</a>
+
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说 ...</blockquote>
+我觉得当嘴替更合适，这样骡子就不用请CV了 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑色天鹅  
+##### 20131#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958186&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 09:30</a>
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心 ...</blockquote>
+这不就是时狱篇的夏亚翻版……
+
+*****
+
+####  syndrome2032  
+##### 20132#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958196&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 09:32</a>
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说 ...</blockquote>
+被拉拉吸引，座驾是元祖。宇宙种马直接抓着jk发情。
+
+只能是骡子，就算不是具体的79骡87骡93骡某一个版本的骡，也应该是某种意义上的骡子同位体，比如大战传说巨神版本的ai天海?
+
+*****
+
+####  吴怀在  
+##### 20133#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956515&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-6-17 23:58</a>
+可惜，BYD TIME新版消息提前放出了。要是随着今晚动画播出再上线才是最炸裂的 ...</blockquote>
+我开播前不看任何消息不看任何讨论是有用的
+太爽了
+
+*****
+
+####  GASEOUSSNAKE  
+##### 20134#       发表于 2025-6-18 09:37
+
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来的烂世界
+
+你看最后一集的标题都是富野老儿自传的书名
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kuriri| + 1|那真的是大爆笑了|
+
+查看全部评分
+
+*****
+
+####  mengsu  
+##### 20135#       发表于 2025-6-18 09:38
+
+看得太高兴了，稳稳+2，确实这片当成UC嘉年华就是最好的，每集都有大活，要说问题就是前几话搞得太严肃了，让人对作品的基调产生了误判。
+
+*****
+
+####  ヒトニナル  
+##### 20136#       发表于 2025-6-18 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但说实话修司的驾驶技术是不是不太行，开个红高达被魔女打的闹麻了
+我懂了，是制作组鸭子梦男用来辱骡的又一力证
+
+*****
+
+####  朋友费小号  
+##### 20137#       发表于 2025-6-18 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958118&amp;ptid=2209276" target="_blank">哈里-谢顿 发表于 2025-6-18 09:22</a></blockquote>
+影法师是懂梗的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dbyboy  
+##### 20138#       发表于 2025-6-18 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957472&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 03:06</a>
+
+地球联邦可是联“邦” ，硬要说旧世纪那一套都没彻底放下， 这和很多科幻作品里地球作为一个架空“国家 ...</blockquote>
+不用想这么多，那个年代对于“宇宙时代的人类文明集合政治体”的幻想要么是帝国要么是联邦
+
+你要是帝国了那怎么让吉翁去站法西斯的位置
+
+至少在0079原作里，没有明确指出过地球联邦的分裂势力，顶天了就是一些三不管地带
+
+*****
+
+####  创始’’’天翔  
+##### 20139#       发表于 2025-6-18 09:41
+
+年轻人的第一部铁盖塔
+
+*****
+
+####  Mr姜  
+##### 20140#       发表于 2025-6-18 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957563&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 06:15</a>
+
+老太婆很恋爱脑吗？对夏亚纯粹是劝诱，劝诱不成就要杀掉，也是纯粹的政治动物好吧 ...</blockquote>
+说实话，这集表现也不够政治动物，没两句就先举枪威胁，说有不知道的原因也不听一下就急吼吼要开枪
+
+*****
+
+####  银川智将Kuroky  
+##### 20141#       发表于 2025-6-18 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956752&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-18 00:21</a>
+
+与其拍这种前后剧情驴唇不对马嘴，叙事全靠抛梗接梗填充，全程一场能看的打戏都没有的答辩，还不如多出几季 ...</blockquote>
+大和田本来就是最佳梦男
+
+*****
+
+####  silvia  
+##### 20142#       发表于 2025-6-18 09:49
+
+搞半天整个gqx世界就是拉拉濒死前幻想出来的
+
+*****
+
+####  猎人D  
+##### 20143#       发表于 2025-6-18 09:50
+
+紫婆这一看到番茄就以为是鸭子拐来的红发美少女，急了就开枪了也说的过去
+
+*****
+
+####  Mr姜  
+##### 20144#       发表于 2025-6-18 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957775&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-18 08:15</a>
+
+这种动物塑的人物构建方式，难道不是膜上一作女主吗(记得当时有人觉得狸猫这种像野生小动物的塑造方式很 ...</blockquote>
+土豆和耄耋亦有差距jpg
+
+*****
+
+####  未来起航  
+##### 20145#       发表于 2025-6-18 09:51
+
+这下真的谁懂元祖出来一瞬间的救赎感了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mengsu  
+##### 20146#       发表于 2025-6-18 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骡子：听说你们这也有恶魔？
+
+*****
+
+####  朋友费小号  
+##### 20147#       发表于 2025-6-18 09:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不敢想完全没看任何情报直接看11集能有多爽，下周我也决定不看任何情报看12集了
+
+*****
+
+####  Steel.Haze  
+##### 20148#       发表于 2025-6-18 09:57
+
+还在大展开也是厉害，和飞越巅峰2一样不到最后一集不收尾。
+
+然后这个越到后期越是需要老观众电波。缺点是我看到很多云高达的新人已经无法同调开始用负面评价对冲自己无法理解剧情设置的情况了。夸克斯只是云过以往高达和世界观的人不容易进入电波中，老登和什么都不知道新观众反而能看到自己的体验，对中间观众群可谓极不友好。本质上这篇的核心体现在了“三人的关系性”，不过主角群三人的关系性是'伪物'，'真物'投射的是夏骡拉三人的关系性，但是对原作人物和周边设定缺乏既往观感和认知的情况下，就体验不到这一层设计。所以我觉得这部剧还是过于激进了。
+
+*****
+
+####  君への戦  
+##### 20149#       发表于 2025-6-18 09:58
+
+太爽了这剧追的，我现在就想到下周三
+
+*****
+
+####  银川智将Kuroky  
+##### 20150#       发表于 2025-6-18 10:01
+
+真遗老谁不是一堆弱智游戏玩烂了弱智动画看烂了的
+
+谁会对着这几个弱智梦男的东西发春啊
+
+*****
+
+####  lbzlxx  
+##### 20151#       发表于 2025-6-18 10:01
+
+就乱搞呗，元祖这垃圾性能过了一年战争屁都不是，这边科技树就是乱七八槽，庵野看的uc是独角兽吧，太过神化新人类和精神力了
+
+这剧本太少女偶像了
+
+*****
+
+####  闽明  
+##### 20152#       发表于 2025-6-18 10:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">会用GQX的名义再出一个版本的元组吗？带一张KIRAKIRA的背景特效纸就能卖
+
+*****
+
+####  推着箱子走  
+##### 20153#       发表于 2025-6-18 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956687&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-6-18 00:14</a>
+
+反了吧，是鸭子觉得拉拉干扰了世界稳定要消灭她。修司是出来保护拉拉的 ...</blockquote>
+拉拉是这个世界的悖论，鸭子为了世界要消灭拉拉（不孝！），修斯为了拉拉要毁灭世界
+
+*****
+
+####  洛克萨斯  
+##### 20154#       发表于 2025-6-18 10:04
+
+kirakira，要杀死拉拉的鸭子
+
+这下真的是闪光的不孝子了<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hyst3r1a  
+##### 20155#       发表于 2025-6-18 10:07
+
+这番茄怎么看到男人就脸红
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  oi99o  
+##### 20156#       发表于 2025-6-18 10:07
+
+才反应过来玛丘躲浮游炮那会是没开塞可缪的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绿叔叔特训班这么nb的吗
+
+*****
+
+####  pokemon最爱  
+##### 20157#       发表于 2025-6-18 10:09
+
+说到底是对作品的预期问题，把GQX当BF和种自那种纯粹服务粉丝的老害狂欢作品看就没有任何问题了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 20158#       发表于 2025-6-18 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958436&amp;ptid=2209276" target="_blank">Hyst3r1a 发表于 2025-6-18 10:07</a>
+
+这番茄怎么看到男人就脸红
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你看看这都是什么男人啊，这几个男人要气质有气质，要颜值有颜值，她一个青春期怀春少女，脸红好正常
+
+*****
+
+####  mengsu  
+##### 20159#       发表于 2025-6-18 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958460&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-18 10:09</a>
+
+你看看这都是什么男人啊，这几个男人要气质有气质，要颜值有颜值，她一个青春期怀春少女，脸红好正常
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们gquuuux可真是乙游大世界啊
+
+*****
+
+####  早乙女元气  
+##### 20160#       发表于 2025-6-18 10:12
+
+这片已经和新来打一个味了，不面向任何观众，纯作者自嗨
+
+
+*****
+
+####  hououmon  
+##### 20161#       发表于 2025-6-18 10:14
+
+没看情报真是太爽了，一段强劲的音乐响起的时候直接高潮了
+
+可惜还是被B站推荐视频的封面透了782
+
+*****
+
+####  吴怀在  
+##### 20162#       发表于 2025-6-18 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958459&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-18 10:09</a>
+说到底是对作品的预期问题，把GQX当BF和种自那种纯粹服务粉丝的老害狂欢作品看就没有任何问题了不要带着对U ...</blockquote>
+我也感觉骂得狠的人可能是对uc高达有不切实际的滤镜
+
+我是三月份补完UC高达关键作品，当时还在泥潭发过帖子问怎么补。对我来说UC高达是好作品，然而我没有那么深的情怀，因此gqx看得开心极了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 20163#       发表于 2025-6-18 10:21
+
+修司在的世界也不是正史吧
+
+*****
+
+####  mengsu  
+##### 20164#       发表于 2025-6-18 10:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这一话看得最开心的场景就是老太婆和夏亚在Z老害剧场逼逼赖赖大道理的时候两小只一个从天而降一个直接拍碎舞台，创造新时代的终究是年轻人...吧？
+
+*****
+
+####  少年游不游  
+##### 20165#       发表于 2025-6-18 10:26
+
+感觉番茄跟喵安在这番就像两JK穿越UC宇宙一样
+
+*****
+
+####  Asukalangley33  
+##### 20166#       发表于 2025-6-18 10:27
+
+真有楼里骂的那么烂嘛<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+我觉得挺好啊
+
+有一种以前看银河美少年的糊逼味
+
+榎户洋司不就擅长这种么
+
+*****
+
+####  zoomegg  
+##### 20167#       发表于 2025-6-18 10:30
+
+我寻思来都来了，为什么不用最潮最IN的世博会限定装备ww<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/102940j18i6l8rjhhjzn71.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250618102923.png</strong> (55.18 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 10:29 上传
+
+*****
+
+####  望江南  
+##### 20168#       发表于 2025-6-18 10:31
+
+ 本帖最后由 望江南 于 2025-6-18 10:32 编辑 
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如何诞生的吗）
+
+2、修斯的真实身份（我是来自另一个世界的人）
+
+3、修斯“高达是这样说的”到底是口癖还是他真的在听某人的指令？
+
+4、发短信的幕后黑手是谁（to the beginning）
+
+5、gq鸭消失后是从何时回来，回到何地的？
+
+虽然目前看我是对这番人物塑造不报太多期待了，但剧请设定这方面能交上一份满意答卷吗鹤卷<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+1其实好像挺直接了，或许是正史拉拉穿越过来之后的濒死梦？但是这样在这个世界里居然又嵌套了一个gq拉拉，而且还能和自己神交，感觉设定好奇怪
+
+2估计就是给修斯找个爹了，实在和骡子难以扯上关系...
+
+3这一点主要是回头看修斯ep7消失的时候很奇怪，修斯明显是了解zeknova的，他一点犹豫没有就直接上机了是什么原因？当然目的肯定就是摧毁gq世界保住拉拉，但是这里或许是在暗示修斯有自己的情报员/上头之类的？
+
+4我个人倒是觉得发短信的不太像修斯，因为这短信预见性和安排太强了，但是番茄和喵安一开始实在不像是有很特殊身份的人，比起有大手在安排她俩更像是有拥有未来视的人在回头指点，我甚至有种是番茄ep12搞定一切后回溯回去给自己指点的感觉<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+5主要是我愣是没看懂这鸭子到底怎么回来的，12集很直接的提到了zeknova就是往邻居家丢乐色，小森工具人上尉专门提了一嘴只有这次zeknova是邻居往我家丢，那79if里夏亚是飞去哪了？他怎么回来的？鹤卷你不会就用什么夏亚偷偷传回来没有被观测到来搪塞过去吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20169#       发表于 2025-6-18 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958612&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 10:31</a>
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如 ...</blockquote>
+gqux夏亚就没去过正史（待定）啊。是红高达传去正史，然后修斯（正史）带着红高达传回来了遇到gqux夏亚
+
+*****
+
+####  aptx8285144  
+##### 20170#       发表于 2025-6-18 10:34
+
+<blockquote>mengsu 发表于 2025-6-18 09:38
+看得太高兴了，稳稳+2，确实这片当成UC嘉年华就是最好的，每集都有大活，要说问题就是前几话搞得太严肃了， ...</blockquote>
+话说刚开始以为番茄是葵丝役，尼亚安现在倒是愈发比葵丝还搞笑了，遇错了人(紫婆)就是这么搞笑呀
+
+*****
+
+####  你妈的为什么  
+##### 20171#       发表于 2025-6-18 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958508&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-6-18 10:16</a>
+
+我也感觉骂得狠的人可能是对uc高达有不切实际的滤镜
+
+我是三月份补完UC高达关键作品，当时还在泥潭发过帖 ...</blockquote>
+我倒是感觉骂的狠的反而都是不看uc只是拿uc当枪拉踩其他高达以致衍生到其他片来提升自己地位的，真看过UC的老害看的笑都来不及好吧，要看正剧等哈撒韦去
+
+*****
+
+####  adretyu67.  
+##### 20172#       发表于 2025-6-18 10:35
+
+前半还是ucif的黑拳，现在直转拉拉游乐园。
+
+前半ucif这个背景下打黑拳还真是浪费时间，不如多膜点其他uc哏算了。
+
+*****
+
+####  推着箱子走  
+##### 20173#       发表于 2025-6-18 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957272&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-18 01:41</a>
+
+你为啥说铁血没人追？当年铁血每周在优土豆同步更新官方中文字幕版，哪里会没人追呢。 ...</blockquote>
+是啊，铁血要是没人追，名场面能在当时火出圈吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 20174#       发表于 2025-6-18 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958580&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2025-6-18 10:27</a>
+
+真有楼里骂的那么烂嘛
+
+我觉得挺好啊</blockquote>
+不烂，不过确实也算烂，总之就很难评。
+
+只能说编剧和编剧之间亦有差别，GQ和铁血一样有形的大手随处可见，但铁血被人骂成狗，而GQ反而还有人夸。
+
+早点放空大脑把这片当成创战者类似的片子，就不会别扭。
+
+*****
+
+####  望江南  
+##### 20175#       发表于 2025-6-18 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958622&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-18 10:33</a>
+
+gqux夏亚就没去过正史（待定）啊。是红高达传去正史，然后修斯（正史）带着红高达传回来了遇到gqux夏亚 ...</blockquote>
+夏亚没去正史是怎么从所罗门里活下来的啊，这都能脱出？太离谱了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然我估计可能真是这个意思了，有不打算解释的可能...
+
+*****
+
+####  银川智将Kuroky  
+##### 20176#       发表于 2025-6-18 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958246&amp;ptid=2209276" target="_blank">GASEOUSSNAKE 发表于 2025-6-18 09:37</a>
+
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来 ...</blockquote>
+这梗在异世界高达中用过了
+
+*****
+
+####  西瓜夜行  
+##### 20177#       发表于 2025-6-18 10:40
+
+也不是烂不烂的问题
+
+就是能不能对上电波
+
+能对上就是嗨翻了
+
+对不上就完球
+
+*****
+
+####  molemole  
+##### 20178#       发表于 2025-6-18 10:41
+
+这好像不是电波的问题吧
+
+*****
+
+####  缪斯替  
+##### 20179#       发表于 2025-6-18 10:41
+
+也没必要搞这种区分真假的除籍叙事啦，你看40k老害里不也有模型乐子人和入脑入心的帝国信徒……
+历史一长，粉丝就越来越不可能用同样的角度享受作品了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  根正苗红  
+##### 20180#       发表于 2025-6-18 10:42
+
+ 本帖最后由 根正苗红 于 2025-6-18 10:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958633&amp;ptid=2209276" target="_blank">**为什么 发表于 2025-6-18 10:34</a>
+我倒是感觉骂的狠的反而都是不看uc只是拿uc当枪拉踩其他高达以致衍生到其他片来提升自己地位的，真看过UC ...</blockquote>
++1。老害表示看到很开心。老大岁数了，谁还钻这牛角尖啊。放不下身段的大概是强言附和的小害，或者还不够老，仍旧拿uc当令箭的中害<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Evomenon  
+##### 20181#       发表于 2025-6-18 10:42
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCMR-W09, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  moudianzi  
+##### 20182#       发表于 2025-6-18 10:43
+
+之前我很困惑修斯如何收尾，这集看完后，我更困惑喵安如何收尾了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+顺着现在这股整蛊的劲头，我都不敢想她下集还能干出什么事<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zoomegg  
+##### 20183#       发表于 2025-6-18 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958655&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 10:36</a>
+
+不烂，不过确实也算烂，总之就很难评。
+
+只能说编剧和编剧之间亦有差别，GQ和铁血一样有形的大手随处可见 ...</blockquote>
+创战可不别扭，毕竟定位清晰的很，所以看得也爽
+
+这边就确实如你所说，挺难评www有种致敬太多没什么独立性的感觉，但也不是说超展开不好看
+
+*****
+
+####  kaion111  
+##### 20184#       发表于 2025-6-18 10:45
+
+修斯应该不会是骡子现代化改造，但是感觉这个走向是修斯上元祖，他到底是什么底细
+
+*****
+
+####  璇瑢子R  
+##### 20185#       发表于 2025-6-18 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958694&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 10:42</a>
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的
+
+—— 来自 HUAWEI SC ...</blockquote>
+因为填了坑总有人去挑各种各样的毛病。
+
+但是留白让观众自己脑补，观众对自己的宽容度一般大得惊人
+
+*****
+
+####  推着箱子走  
+##### 20186#       发表于 2025-6-18 10:49
+
+最后的元祖也许不是实体，下一集打着打着掏出一堆pb配件包，超进化成牛高达什么的也不是不可能
+
+*****
+
+####  无动于衷  
+##### 20187#       发表于 2025-6-18 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958555&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 10:23</a>
+
+这一话看得最开心的场景就是老太婆和夏亚在Z老害剧场逼逼赖赖大道理的时候两小只一个从天而降一个直接拍碎 ...</blockquote>
+所以小番茄被各年龄段男人挨个壁咚摸头一遍也是昭和老登笔下的大女主了是吧
+
+*****
+
+####  adretyu67.  
+##### 20188#       发表于 2025-6-18 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958694&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 10:42</a>
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的
+
+—— 来自 HUAWEI SC ...</blockquote>
+关键是：夏亚的计划是什么。
+
+现在看来夏亚的计划根本不需要修斯。等着进手电筒就好了。
+
+*****
+
+####  楽園のエル  
+##### 20189#       发表于 2025-6-18 10:50
+
+夏亚变身这个演出 是你 银河美少年！
+
+哦是夏户洋司啊那没事啦！
+
+*****
+
+####  猪突猛进R  
+##### 20190#       发表于 2025-6-18 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958713&amp;ptid=2209276" target="_blank">kaion111 发表于 2025-6-18 10:45</a>
+
+修斯应该不会是骡子现代化改造，但是感觉这个走向是修斯上元祖，他到底是什么底细 ...</blockquote>
+如果拿创战者来做对比的话，修司就是岭司，同样是从对面世界过来的。
+
+所以这个角色什么底细完全不重要。
+
+*****
+
+####  Asukalangley33  
+##### 20191#       发表于 2025-6-18 10:52
+
+之前我质疑鹤卷老登不懂现在年轻人硬蹭，现在正式道歉
+
+番茄这见一个爱一个、颜控、嘴硬不认错是真没毛病
+
+我现在很明确她对修司100%不是所谓的“爱情”
+
+*****
+
+####  璇瑢子R  
+##### 20192#       发表于 2025-6-18 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958447&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-18 10:07</a>
+
+才反应过来玛丘躲浮游炮那会是没开塞可缪的绿叔叔特训班这么nb的吗</blockquote>
+这一集首席哥战斗力也突飞猛进了。。。。
+
+这片大概就没想好好讲驾驶能力的事情
+
+*****
+
+####  璇瑢子R  
+##### 20193#       发表于 2025-6-18 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958612&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 10:31</a>
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如 ...</blockquote>
+还有一个问题，小番茄真就自动假设就找到了玫瑰拉拉吗？
+
+那么其他哪些找玫瑰的人为什么找不到呢
+
+*****
+
+####  zzf111  
+##### 20194#       发表于 2025-6-18 10:55
+
+夏亚zknv传去哪里了干什么了不填，夏亚和修斯怎么认识在哪认识红高怎么就给修斯了不填，博美队有鬼的哈啰不填，神秘短信谁发的不填，gqx的高达有没有机魂不填，这些东西吊了人十几集让你看和主线无关的闹麻中产小资官二代和本能生物哈基喵打黑拳+塑料姐妹情+谜语人弱智男主+集抛噱头情怀
+
+能看乐的当然都是对故事素质不抱期望了，都不是对不对得上电波的问题，和遗佬有什么关系
+
+*****
+
+####  LOLITA  
+##### 20195#       发表于 2025-6-18 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958693&amp;ptid=2209276" target="_blank">根正苗红 发表于 2025-6-18 10:42</a>
+
++1。老害表示看到很开心。老大岁数了，谁还钻这牛角尖啊。放不下身段的大概是强言附和的小害，或者还不够 ...</blockquote>
+是这个道理
+
+*****
+
+####  秋月孝三  
+##### 20196#       发表于 2025-6-18 10:55
+
+<img src="https://img.stage1st.com/forum/202506/18/105545g1e4ed07z410iu4m.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1750215332134.png</strong> (32.85 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 10:55 上传
+
+什么虎狼之辞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20197#       发表于 2025-6-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958788&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 10:54</a>
+
+还有一个问题，小番茄真就自动假设就找到了玫瑰拉拉吗？
+
+那么其他哪些找玫瑰的人为什么找不到呢 ...</blockquote>
+不是自动驾驶，是unknown导航找到的。
+
+*****
+
+####  wbtsy  
+##### 20198#       发表于 2025-6-18 10:59
+
+很多人都没看过富野那几部高达。
+
+他们口中的uc，就是看了几部军武ova和设定集、历史轴以后的一个概念。而富野的高达和那这人心目中的uc高达根本不是一回事。这种属于“UC小害”。
+
+*****
+
+####  adretyu67.  
+##### 20199#       发表于 2025-6-18 11:01
+
+79 z zz cca是好文明，10多年前我还在大学看cca和前几天重看cca对台词的想法就是不一样的。
+
+*****
+
+####  银川智将Kuroky  
+##### 20200#       发表于 2025-6-18 11:01
+
+正经来说观感还是很差
+
+但是很热闹
+
+你抱着看正作的心态来看，远不如一大堆外传漫画比如A一串G
+
+你抱着看搞笑漫画和光头梦男的心态，远不如大和田秀树
+
+整体来说不上不下，但对于又不看那些外传漫画也不怎么玩游戏的“老害”来讲，可能又刚刚好
+
+反正算是近几年最有趣的高达动画，但也仅此而已了
+
+
+*****
+
+####  姬萩九郎  
+##### 20201#       发表于 2025-6-18 11:03
+
+我悟了，gux是一个异闻带，原作骡子是主时间线里迦勒底召唤来剪除异闻带的英灵，鸭子变衣服其实是被英灵鸭子瞬间夺舍了
+
+*****
+
+####  燃烧的石头  
+##### 20202#       发表于 2025-6-18 11:04
+
+剧情写的烂是一回事，但是看的爽又是另外一回事了，现在只期望既然元祖都出来了，那么最后一集能打的好看一点吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  炼金王  
+##### 20203#       发表于 2025-6-18 11:04
+
+最终话标题是富野自传书名 
+
+78上是他也没什么不可以的（
+
+*****
+
+####  aptx8285144  
+##### 20204#       发表于 2025-6-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958701&amp;ptid=2209276" target="_blank">moudianzi 发表于 2025-6-18 10:43</a>
+
+之前我很困惑修斯如何收尾，这集看完后，我更困惑喵安如何收尾了
+
+顺着现在这股整蛊的劲头，我都不敢想她下 ...</blockquote>
+放在光头笔下或者说黑富野笔下，喵安肯定会死，好一点是认识到自己的癫狂问题后死去，但是鹤卷要讨好年轻一代，给年轻人反省机会的话，活下去概率很大
+
+*****
+
+####  swessia  
+##### 20205#       发表于 2025-6-18 11:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">乐归乐我觉得还没到烂的程度
+
+剧情肯定有问题但大纲是没问题的我感觉【MAV到底有什么用，抱歉大纲里没这东西<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">】
+
+但是节奏以及演出特别是机战画面绝对有大问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 20206#       发表于 2025-6-18 11:05
+
+确实自传
+
+Image_1750176705097.jpg
+(125.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/110527zlw5sz9ll75gwllr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20207#       发表于 2025-6-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958890&amp;ptid=2209276" target="_blank">燃烧的石头 发表于 2025-6-18 11:04</a>
+
+剧情写的烂是一回事，但是看的爽又是另外一回事了，现在只期望既然元祖都出来了，那么最后一集能打的好看一 ...</blockquote>
+就11话绿叔叔和首席互相描边半天，麻球和喵安撕了一会最后飞踢踢走。我觉得很难。
+
+不如继续加哏玩大乱斗。
+
+*****
+
+####  ryanghj  
+##### 20208#       发表于 2025-6-18 11:06
+
+玛秋和喵安就是鹤卷和庵野的化身，头也不回的追逐修司（富野）
+
+这就是大型情书片子
+
+*****
+
+####  永远的春天  
+##### 20209#       发表于 2025-6-18 11:08
+
+<blockquote>炼金王 发表于 2025-6-18 11:04
+最终话标题是富野自传书名 
+
+78上是他也没什么不可以的（</blockquote>
+毕竟是宇宙世纪第一个觉醒的new type  他徒弟长谷川说的。
+
+*****
+
+####  少年游不游  
+##### 20210#       发表于 2025-6-18 11:08
+
+感觉再多给一话的空间可能会好，这集名场面赛的有点溢出了，剧院场景感觉是为了爽一把强加的，番茄站了西罗克位
+
+*****
+
+####  iuiuk2  
+##### 20211#       发表于 2025-6-18 11:08
+
+不带脑子看还是挺好看（笑）的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情看着是没时间圆了，就看下集能不能整点爽的，别再整出第7话那种无聊的寸止就行
+
+*****
+
+####  燃烧的石头  
+##### 20212#       发表于 2025-6-18 11:08
+
+ 本帖最后由 燃烧的石头 于 2025-6-18 11:11 编辑 
+
+gq快点进机战吧，这样的说不定79，三个8，z和zz都能剧情参战了，现在的机战老uc都是机体参战挺没意思的，有了gq之后老uc在机战里的剧情又能瞎几把乱编了。最后救下拉拉，整个骡鸭拉三人合体技我要高潮了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  asdhai  
+##### 20213#       发表于 2025-6-18 11:08
+
+<img src="https://img.stage1st.com/forum/202506/18/110848hcmy4x4qfklkjlaj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-06-18-11-07-00-740_com.twitter.android.jpg</strong> (173.18 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2025-6-18 11:08 上传
+
+*****
+
+####  Toby_dak  
+##### 20214#       发表于 2025-6-18 11:09
+
+<img src="https://p.sda1.dev/25/1b54d9f450a0b054f4c446ad61bbcbcc/1000126763.png" referrerpolicy="no-referrer">
+
+继续霸榜<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  aptx8285144  
+##### 20215#       发表于 2025-6-18 11:09
+
+虽说很早就看出来鹤卷这群人就是套着UC高达皮做青春萝卜片，但是放飞自我到现在这个程度倒是没想到<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 20216#       发表于 2025-6-18 11:11
+
+实际乙女（
+<img src="https://p.sda1.dev/25/2277d71dc3d81d7416b754d4eb5fc29d/Screenshot_20250618_110802.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 20217#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958601&amp;ptid=2209276" target="_blank">zoomegg 发表于 2025-6-18 10:30</a>
+
+我寻思来都来了，为什么不用最潮最IN的世博会限定装备ww</blockquote>
+作为老登而言，TV782就是最完美的机设，加一根毛都是画蛇添足。
+
+*****
+
+####  kk霖洞九  
+##### 20218#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958807&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-18 10:55</a>
+夏亚zknv传去哪里了干什么了不填，夏亚和修斯怎么认识在哪认识红高怎么就给修斯了不填，博美队有鬼的哈啰不 ...</blockquote>
+因为环S1真有一群自认“UC遗老”的粉丝觉得这群老害做的片剧情结构严谨设定硬核，特别是哔站
+
+*****
+
+####  璇瑢子R  
+##### 20219#       发表于 2025-6-18 11:11
+
+我觉得看的不爽的主要是前些话疯狂分析剧里剧外各种线索各种推理的。
+
+典型就是那种一秒闪过的新闻内容，还有鸭子鸭妹中间加了一帧的拉拉那种
+
+现在明摆着啥逻辑都不在乎只求爆点那之前的各种分析研究都没有意义了
+
+这种看片态度和资历大概没有关系。极限一点，互联网普及之前就没有这种土壤
+
+*****
+
+####  ads147147  
+##### 20220#       发表于 2025-6-18 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958186&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 09:30</a>
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心 ...</blockquote>
+如果鸭子发现自己78年顺风顺水是有人搞楚门的世界，自己活在矩阵里，大概率也不会心安理得的去搞什么报复扎比家的事，挺有可能会陷入极度的虚无主义认为这一切都是虚假的要去寻找真实的世界，本质上和番茄觉得side6的天空好假的味道是一样的。
+
+就看最终话怎么圆了
+
+*****
+
+####  gammatau  
+##### 20221#       发表于 2025-6-18 11:12
+
+<blockquote>GASEOUSSNAKE 发表于 2025-6-18 09:37
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来 ...</blockquote>
+如果真的是fy的话，那我觉得肯定得是gqx的小孩打败他了。
+
+一部热热闹闹的平行世界线动画，结局是快入土的老头原作者来毁灭这个世界让一切重归“正统”吗，这对高达企划的未来坏印象不可估量。fy也会同意的，毕竟创造未来的不是老人
+
+说起来，最近好像有部经典游戏的重制版也在过于用力地让主角打败一些不知哪里冒出来，想要“维护原本历史走向”的敌人这种过于meta的创作……
+
+*****
+
+####  adretyu67.  
+##### 20222#       发表于 2025-6-18 11:13
+
+ 本帖最后由 adretyu67. 于 2025-6-18 11:17 编辑 
+
+这话元祖出来那一刻基本就宣告红高达（gqux ver） gqux fred都是路边了吧。
+
+这玩意就不该出现在这个片场，但是真出现了还能不给面子吗。
+
+下话要是欺诈不给元祖戏份那就欺诈毫无意义了。
+
+特别是已经钦定了元祖=鸭子的一生之敌，次次打爆鸭子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 20223#       发表于 2025-6-18 11:22
+
+庵野秀明知道自己会让鹤卷写的角色去打败他爹吗？
+
+*****
+
+####  last_regret  
+##### 20224#       发表于 2025-6-18 11:23
+
+说来，TA的黑历史里会包括gqux吗
+
+*****
+
+####  洛克萨斯  
+##### 20225#       发表于 2025-6-18 11:25
+
+78和红高达理论上硬件参数一样，红高达装了阿尔法赛克缪，但是浮游炮没了，不知道能强化多少反应速度，78有磁气覆膜，硬件上有优势
+
+就是看里面到底是不是骡叔叔了
+
+*****
+
+####  deadpig  
+##### 20226#       发表于 2025-6-18 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958173&amp;ptid=2209276" target="_blank">Schwarzess 发表于 2025-6-18 09:29</a>
+
+最 高 的 entertainment
+
+紫婆画79自己的妆，说87哈曼的话，干93鸭的事，可以说是鸡瘟集大成了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">卡多：这就是吉翁精神的具现化啊
+
+*****
+
+####  ティグル  
+##### 20227#       发表于 2025-6-18 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+按照代便的设定，会
+
+*****
+
+####  ads147147  
+##### 20228#       发表于 2025-6-18 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959070&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-6-18 11:22</a>
+
+庵野秀明知道自己会让鹤卷写的角色去打败他爹吗？</blockquote>
+不然鹤卷怎么会说直到快做完了才给痞子看，先斩后奏了。
+
+*****
+
+####  猪突猛进R  
+##### 20229#       发表于 2025-6-18 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+这取决于你是不是把创战者等钢普拉作品看作是高达，如果你觉得创战者之类也是高达，那就包括。
+
+*****
+
+####  猪突猛进R  
+##### 20230#       发表于 2025-6-18 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959103&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 11:25</a>
+
+78和红高达理论上硬件参数一样，红高达装了阿尔法赛克缪，但是浮游炮没了，不知道能强化多少反应速度，78有 ...</blockquote>
+咋还执着于MS的性能差异啊。
+
+出来的是元组ZERO，并不是78-2。
+
+你可以看作是宇宙怪兽套了个78-2的皮。
+
+*****
+
+####  deadpig  
+##### 20231#       发表于 2025-6-18 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958224&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-6-18 09:34</a>
+
+我开播前不看任何消息不看任何讨论是有用的
+
+太爽了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">太爽哩
+
+我也是回过来看专楼才发现插入歌有预告，这把赚了
+
+*****
+
+####  miaoye  
+##### 20232#       发表于 2025-6-18 11:32
+
+脑内自动播放无限接近，又极其遥远的世界。出现百鬼帝国和木连感觉都不会奇怪了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| su37mkk| + 1|我也是冒出这个bgm|
+| Evomenon| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 20233#       发表于 2025-6-18 11:32
+
+红高达（gqux ver）是元祖的同构体，红高达和gqux打军团战，gqux和fred是姊妹机。
+
+这一串下来四台机子纸面上是都差不多。
+
+*****
+
+####  西洛克  
+##### 20234#       发表于 2025-6-18 11:33
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了
+
+*****
+
+####  体制  
+##### 20235#       发表于 2025-6-18 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957400&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-18 02:25</a>
+大概比正片更搞笑的是gqx粉丝指着一个整天在高吧和nga各种发帖乱串的人说是水魔厨 ...</blockquote>
+我们又没闲心做背调，单看这楼里表现他不就是个水魔厨。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  adretyu67.  
+##### 20236#       发表于 2025-6-18 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+gqux这话不就是答辩活人现场传送进手电筒内部。
+
+规模太小了没侦察到？
+
+*****
+
+####  ads147147  
+##### 20237#       发表于 2025-6-18 11:35
+
+TA是一切世界线的终结，只要你挂着高达的名字，终末就是TA，这点不会改的。
+
+这样说唯一态是我们这个世界播出的0079，结局是CCA。修斯可能是其他世界线，甚至是被冻结的拉拉的那个世界线（A世界线）的骡子，开元祖干掉了A世界线的鸭子。使得A世界线的拉拉穿越到gqux的世界线（B世界线）通过nt能力干扰变成鸭子能飒爽的楚门世界，所罗门事件为了防止鸭子连同所罗门一起死在月球表面，A世界线的拉拉发功把自己和鸭子拉到其他时空点，自己被吐到了大海里，B世界线的鸭子遇到了修斯，并且通过nt交流知道了自己其实是被单方面维护才能飒爽，所以B世界线的鸭子进入了研究所试图抹掉让自己活在虚幻温床里的A世界线拉拉以至于自己没碰到原版自己世界的拉拉。而修斯不知道为什么获得了红高达并且在side6活动，可能是有意的引导番茄找到自己开启gqux的故事，现在进入了世界线收束点了。
+
+*****
+
+####  银川智将Kuroky  
+##### 20238#       发表于 2025-6-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957400&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-18 02:25</a>
+
+大概比正片更搞笑的是gqx粉丝指着一个整天在高吧和nga各种发帖乱串的人说是水魔厨 ...</blockquote>
+上贴吧的小白不就是新时代畜
+
+有啥问题
+
+*****
+
+####  Toby_dak  
+##### 20239#       发表于 2025-6-18 11:39
+
+纠结正史野史黑历史的想什么？
+
+鶴巻无论是剧场版的场刊还是TV开播前的访谈，不止一次说过这是基于0079的仮想戦記，所以连制作目的都没看懂的在讨论不存在的东西？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  downnote  
+##### 20240#       发表于 2025-6-18 11:39
+
+鸭子这么长时间以来已经新老观众一起群嘲了，简直就是狂欢，甚至浓度多得都有些不适了（虽然我自己也参与）。希望下一集能好好弄，还是得长长脸啊
+
+
+*****
+
+####  LadySaazbaum  
+##### 20241#       发表于 2025-6-18 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958975&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-18 11:12</a>
+
+如果鸭子发现自己78年顺风顺水是有人搞楚门的世界，自己活在矩阵里，大概率也不会心安理得的去搞什么报复 ...</blockquote>
+与其说是陷入虚无主义，至少目前来看GQX鸭还是很有能动性，都动手去修正世界线，
+
+放在戏内很合理放在戏外也显得角色觉悟很高，和恋母萝莉控有云泥之别，对于现时点的观众来说非常友好，非常愿意买账
+
+Khara社流石鸭嬷，这一话特别给鸭鸭吸粉，尤其女粉<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牙狼GARO  
+##### 20242#       发表于 2025-6-18 11:41
+
+别的不说，btt响起来时候真是猛吸一口气一身鸡皮疙瘩
+
+*****
+
+####  猪突猛进R  
+##### 20243#       发表于 2025-6-18 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+红高达和艾尔梅斯过来不一定靠的泽克诺瓦，尤其是艾尔梅斯过来。
+
+GQ里的泽克诺瓦必须通过艾尔梅斯这个控制中心，那艾尔梅斯是怎么来的？
+
+唯一确定反向泽克诺瓦的，是11集片尾传送过来的白色恶魔。
+
+*****
+
+####  Saber琪  
+##### 20244#       发表于 2025-6-18 11:42
+
+<img src="https://p.sda1.dev/25/9a99559b4f5251e9da1e3f25c957e467/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 20245#       发表于 2025-6-18 11:43
+
+红高达性能根本无所谓好吧。。
+
+就拉拉能给夏亚换衣服，那给红高达换点武器或者配件，或者直接变成另外的机体都是编剧一句话的事情。。。
+
+当然我不是说夏亚会赢。只是说这些都不重要
+
+*****
+
+####  无念  
+##### 20246#       发表于 2025-6-18 11:44
+
+都说是大爆笑了
+那我估计下一话开头鸭子就要表演脱出了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 20247#       发表于 2025-6-18 11:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡夸鸭能超越宿命不被按在阿克西斯上么
+
+*****
+
+####  molemole  
+##### 20248#       发表于 2025-6-18 11:45
+
+<blockquote>Saber琪 发表于 2025-6-18 11:42
+</blockquote>
+这图还是gto造型，一点都不79（）
+
+*****
+
+####  猪突猛进R  
+##### 20249#       发表于 2025-6-18 11:46
+
+现在纠结MS性能根本无所谓，就像第7集精神病MK2被绿叔叔一炮融了那样，当时还有人科普有线式BEAM炮功率这的那的。
+
+GQ世界是拉拉的一场梦，MS强弱就是编剧一句话的事情。
+
+*****
+
+####  希望之异热同心  
+##### 20250#       发表于 2025-6-18 11:46
+
+感觉军团战设定成爆头赢就是为了最后让麻球把元祖爆头啊，但这次元祖好像没带枪没法复刻经典动作哎
+
+*****
+
+####  ヒトニナル  
+##### 20251#       发表于 2025-6-18 11:47
+
+鸭子脱出留玛秋面对元祖？这也太丢人了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银川智将Kuroky  
+##### 20252#       发表于 2025-6-18 11:47
+
+你说我的复刻EG初代高达能不能挂个200块高价卖啊
+
+*****
+
+####  metalwill  
+##### 20253#       发表于 2025-6-18 11:48
+
+2005年有个叫 生死停留 的片子 , 感觉跟拉拉干这事挺像的 , 把身边的事务重新排列组合 , 然后变成理想的样子 , 只能用现有 , 不能创造新的 .
+
+*****
+
+####  Toby_dak  
+##### 20254#       发表于 2025-6-18 11:49
+
+要不最后一集结尾，跟EVA真心为你和古利特一样，来个现实真人版镜头吧。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  modkingr  
+##### 20255#       发表于 2025-6-18 11:49
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇阿姆罗的特异点世界线？
+
+那为什么夏亚执着于消灭这个特异点呢
+
+*****
+
+####  Sliurus  
+##### 20256#       发表于 2025-6-18 11:49
+
+已经可以改名叫《阿姆罗雷的消失》了
+
+修司是异世界鸭的可能性感觉更大一点，GQ鸭根本不认识骡子，就算是异世界骡他也不会有这么大的反应，除非是另一个自己。马秋从鸭子身上感受到修司的气息，修司被拉拉吸引，（还有诱拐小女孩这件事）都可以解释了。鸭子开着白色恶魔把GQ鸭的红高达打败，岂不是更加侮辱
+
+*****
+
+####  solora  
+##### 20257#       发表于 2025-6-18 11:49
+
+元祖过来就是要捅死穿越到这个世界的拉拉吧，那元祖就BOSS，下一话就是这个世界的NT们干元祖保护这个世界了
+
+你问元祖里坐的是谁，那当然是李疯子·阿卵马克咯<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 20258#       发表于 2025-6-18 11:50
+
+如果高达就是糊逼片的话，那就是听BL THE TIME 会激动的人不合时宜了
+
+*****
+
+####  YU_JI  
+##### 20259#       发表于 2025-6-18 11:50
+
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？
+
+*****
+
+####  zoomegg  
+##### 20260#       发表于 2025-6-18 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为比起拉拉更想他？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 20261#       发表于 2025-6-18 11:55
+
+<blockquote>modkingr 发表于 2025-6-18 11:49
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为只要拉拉还在就会有泽科诺瓦吧，泽科诺瓦还在的话紫婆就会开炮，GQ鸭子是会保护地球的正义使者呀（）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  猪突猛进R  
+##### 20262#       发表于 2025-6-18 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+拉拉（神棍版）的存在会带来各种各样的问题，比如上一集的拉拉炮。
+
+如果把拉拉比作母亲，GQ世界比作儿子，即使母亲消失了儿子依然存在。
+
+夏亚这个不孝子现在就打算弑母。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  人形灾害  
+##### 20263#       发表于 2025-6-18 11:57
+
+这么说来，GQ鸭花了五年研发的目的就是为了有个手段能破玫瑰拉拉的防，表面上开发成大杀器只是为了骗紫婆的经费？
+
+*****
+
+####  syndrome2032  
+##### 20264#       发表于 2025-6-18 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为拉拉会触发zeknova，特别是紫婆还研究出了可控式zeknova的fred。
+
+鸭鸭啊，你能不能先去赏紫色老太婆一发火箭筒再来讨论拉拉的事
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  西洛克  
+##### 20265#       发表于 2025-6-18 11:58
+
+<blockquote>modkingr 发表于 2025-6-18 11:49
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+夏亚发现这个世界扭曲了，迟早要出大问题，而且这一切都是因为自己。所以仇也不报，权力也不要。隐姓埋名，专心做题混进紫婆的研究团队，想要把拉拉送走。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  mengsu  
+##### 20266#       发表于 2025-6-18 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958744&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-6-18 10:49</a>
+
+所以小番茄被各年龄段男人挨个壁咚摸头一遍也是昭和老登笔下的大女主了是吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是老登心目中希望成为的年轻人吧，有自己无理性一门心思追赶的虚幻目标，敢向非日常果断迈出那一步，撞了墙还有没私心的成熟大人给拉一把。
+
+*****
+
+####  Sliurus  
+##### 20267#       发表于 2025-6-18 11:59
+
+虽然这集依然有不少可以分析的点，但是元祖登场让我感觉分析毫无意义
+
+*****
+
+####  syndrome2032  
+##### 20268#       发表于 2025-6-18 12:02
+
+剧前采访说马球觉得修司是自己的mav(排挡)
+11话马球说我相信修司(保护拉拉)是对的。
+
+鸭子开红高达被元祖和元祖belike gqux混合双打还差不多
+
+*****
+
+####  LadySaazbaum  
+##### 20269#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959320&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 11:50</a>
+
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？ ...</blockquote>
+只要最终话不拉胯就肯定是了
+
+加油啊Khara社的鸭嬷们<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 20270#       发表于 2025-6-18 12:05
+
+<blockquote>YU_JI 发表于 2025-6-18 11:50
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？ ...</blockquote>
+Z时候也算正面人物了
+
+*****
+
+####  璇瑢子R  
+##### 20271#       发表于 2025-6-18 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+我们还不知道夏亚这么知道这件事的，知道多少。所以当然也没法解释。
+
+这个时间线里，玫瑰拉拉时间冻结，gqx拉拉根本没见过夏亚。
+
+那么夏亚只能是在第一次泽科诺瓦的时候看见了其他世界里理解了某些东西
+
+当然我觉得这个问题最后一集多半也不会讲明白就是了
+
+*****
+
+####  未来起航  
+##### 20272#       发表于 2025-6-18 12:06
+
+只是从直觉上觉得膜uc不是什么好事情。
+top2膜top1可以，因为top1是传奇英雄的故事，被神话理所应当。但uc一直就有股“我们这种深陷泥潭的老登赶紧嘎了拉倒”、“相信后人智慧”的味儿，夏亚这种昭和时就已经拧巴得像个**的被抬出来膜就更是傻气铺面了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 20273#       发表于 2025-6-18 12:07
+
+<img src="https://img.stage1st.com/forum/202506/18/120709qrrmzjjb7i2oa1zo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (767.77 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/120717hxkurcv39l9gnrku.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (845.06 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/120735e2iodlujii32fgdm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+*****
+
+####  Pique  
+##### 20274#       发表于 2025-6-18 12:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">其实三小只还算正常了，捋一捋85鸭从第一次泽科诺瓦之后的情况才真的忍俊不禁
+
+1.什么泽科诺瓦，坏了我大事，不然所罗门早就砸死老太婆了，那个女人是谁，必须干掉啊！
+
+2.你是来自那边的少年是吧，哦那个女人就是沙仑玫瑰是吧，你也在找她是吧，好你去找。我要干大事。
+
+3.我打了这么多年灰，终于把手电筒造出来了。哦，那小子把夏利尔引过去找到沙仑玫瑰了啊，夏利亚还是有点用的，什么他在找我领导戴肯派？哼哼什么政治，格局太低了，我可是要纠正世界的扭曲！
+
+4.好，老太婆杀了汤大基，派人启动了手电筒，万事俱备，待我过来杀了那个碍事的女人，还世界一个朗朗乾坤。
+
+5.小子你来阻止我干什么？什么叫这个女人保护我？我和这个女人很熟吗？我必须纠正这个宇宙的扭曲杀了她！
+
+6.什么叫你是来结束这个世界的？什么叫你把我爹叫来了？什么叫beyond the time?
+
+*****
+
+####  Sliurus  
+##### 20275#       发表于 2025-6-18 12:08
+
+虽然喵安完全是恋爱少女的状态，但还是对她讨厌不起来，感觉自己也没救了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+我觉得追男人作为驱动力没什么问题，但也不能别的事什么都不考虑吧<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Saber琪| + 1|哈哈哈|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 20276#       发表于 2025-6-18 12:09
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤再上映記念！舞台挨拶◢ 《全国同時生中継》の詳細を公開！ 6月25日(水) 0:00(＝6月24日(火) 24:00)より、各劇場にて順次チケットの販売を開始いたします！ ▼実施劇場はこちら [url]https://t.co/38ecvjOHYt](https://x.com/G_GQuuuuuuX/status/1935173668281454728) #GQuuuuuuX #ジークアクス [https://t.co/PtNOf4v8DT](https://t.co/PtNOf4v8DT)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/120949cfqdwzxdr37rt44b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:09 上传
+
+*****
+
+####  syndrome2032  
+##### 20277#       发表于 2025-6-18 12:09
+
+ 本帖最后由 syndrome2032 于 2025-6-18 12:11 编辑 
+
+85鸭的问题是被研究出fred的紫色老太婆拿枪指着靠别人救场，转头自己上了高达拿枪指着玫瑰宣扬拉拉是世界的扭曲点。
+
+玫瑰里的拉拉再坏能坏过紫色老太婆吗。
+
+*****
+
+####  岸浪白野  
+##### 20278#       发表于 2025-6-18 12:10
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤再放送決定◢ 7月5日(土)夜7:00より、BS11にて『機動戦士Gundam GQuuuuuuX』の再放送が決定しました！ 毎週土曜日は引き続き、本作をお楽しみください！ ▼本日のお知らせの一覧はこちら [url]https://t.co/Kr0SHA5NQJ](https://x.com/G_GQuuuuuuX/status/1935186377748234605) #GQuuuuuuX #ジークアクス [https://t.co/T7jnUubIKK](https://t.co/T7jnUubIKK)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/121029hb49byej4lx5sjli.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:10 上传
+
+*****
+
+####  mengsu  
+##### 20279#       发表于 2025-6-18 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959439&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:08</a>
+
+虽然喵安完全是恋爱少女的状态，但还是对她讨厌不起来，感觉自己也没救了
+
+我觉得追男人作为驱动力没什么问 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看见老太婆要打番茄立即下意识地开枪，这一话明明是喵安的加分话啊。
+
+*****
+
+####  Sliurus  
+##### 20280#       发表于 2025-6-18 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959472&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 12:13</a>
+
+看见老太婆要打番茄立即下意识地开枪，这一话明明是喵安的加分话啊。</blockquote>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你一下<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 20281#       发表于 2025-6-18 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+硬要类比感觉像妮娜打胡萝卜那一枪。精神伤害远大于肉体。
+
+*****
+
+####  Saber琪  
+##### 20282#       发表于 2025-6-18 12:18
+
+只要接受喵安就是哈基米的形象塑造，一切就豁然开朗了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 20283#       发表于 2025-6-18 12:19
+
+紫婆想要新人类怎么样不重要，紫婆想当慈禧是确定的，想当慈禧可以解释紫婆相关的喵安开枪、夏亚跑路不合作一系列问题
+
+*****
+
+####  璇瑢子R  
+##### 20284#       发表于 2025-6-18 12:19
+
+但是开枪以后又傻在原地。。。没有任何进一步攻击。
+
+真是猫猫抓你玩
+
+*****
+
+####  YU_JI  
+##### 20285#       发表于 2025-6-18 12:19
+
+而且对于紫婆来说喵安还有作用，就算是工具也不是能现在丢掉的工具
+
+*****
+
+####  缪斯替  
+##### 20286#       发表于 2025-6-18 12:21
+
+孩子为了孩子反抗大人这种桥段还是很讨我喜欢的
+
+*****
+
+####  无动于衷  
+##### 20287#       发表于 2025-6-18 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+附议
+
+哪怕加一句台词 别逼我 我什么都做得出来 都比这样强 甚至可以弱化基西利亚利用她的本质目的
+
+*****
+
+####  mengsu  
+##### 20288#       发表于 2025-6-18 12:22
+
+喵安这个对别人的恶意非常敏感的特长，大概是感到老太婆杀意之坚决了吧。
+
+下意识开枪后又被自己吓着了愣在原地，确实是动手不动脑的直觉动物了。
+
+*****
+
+####  YU_JI  
+##### 20289#       发表于 2025-6-18 12:22
+
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得完全不可预测了
+
+*****
+
+####  g救世主高达  
+##### 20290#       发表于 2025-6-18 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959534&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 12:22</a>
+
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得 ...</blockquote>
+可能是负责和独角兽一号机一起发功挡手电筒的，那个手电筒肯定还要再射一次<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 20291#       发表于 2025-6-18 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959531&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 12:22</a>
+
+喵安这个对别人的恶意非常敏感的特长，大概是感到老太婆杀意之坚决了吧。
+
+下意识开枪后又被自己吓着了愣在 ...</blockquote>
+那只能证明她确实没什么成长 开篇是单细胞生物现在还是
+
+*****
+
+####  Saber琪  
+##### 20292#       发表于 2025-6-18 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959534&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 12:22</a>
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得 ...</blockquote>
+答案是孩子真被拉拉悲鸣搞得恶心身体不舒服，跑出去透透气而已（）
+<img src="https://p.sda1.dev/25/fa1bafc878bc9f2c511a7081d53d939c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e6a90fa4b376795f74da0b6584114dbd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 20293#       发表于 2025-6-18 12:25
+
+ 本帖最后由 syndrome2032 于 2025-6-18 12:26 编辑 
+
+比较合理是元祖+gquxvs红高+fred的mav对决。
+
+但是红叔叔你的mav好兄弟不是在外面打白强人吗。
+
+fred究竟是来干啥的?
+考虑到**程度，红高达一秒变身腿只是装饰都是可能的，元祖最后就经典妇科last shoot。这事安排好了吗。
+
+*****
+
+####  g救世主高达  
+##### 20294#       发表于 2025-6-18 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mengsu  
+##### 20295#       发表于 2025-6-18 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959548&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-6-18 12:24</a>
+
+那只能证明她确实没什么成长 开篇是单细胞生物现在还是</blockquote>
+喵安从开局到现在的经历实在也成长不了啥，无非是从一个藏身处逃到另一个藏身处，不过敢开枪打老太婆好歹这场友情梦没白做，只能看下一话小番茄能不能给她修正了。
+
+*****
+
+####  猪突猛进R  
+##### 20296#       发表于 2025-6-18 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959451&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-18 12:09</a>
+
+85鸭的问题是被研究出fred的紫色老太婆拿枪指着靠别人救场，转头自己上了高达拿枪指着玫瑰宣扬拉拉是世界的 ...</blockquote>
+对的对的。
+
+之前就有人评论过，高达里的人物性格太极端了。
+
+按理说，知道妈妈创造这个世界是为了自己，不是应该好吃好喝供起来吗。
+
+再把GQ本位面的拉拉救出来，两个妈妈，双份的快乐。
+
+GQ鸭也是个神人，为了当世界的英雄，要杀穿越来的妈妈，还把本位面的丢在妓院不管，太不孝了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  棍机凹升龙  
+##### 20297#       发表于 2025-6-18 12:32
+
+还是太赶了，一集的解说跟剧情割裂得一笔木马那几个真就为了解说而存在甚至觉得在浪费时间
+
+*****
+
+####  楽園のエル  
+##### 20298#       发表于 2025-6-18 12:33
+
+<img src="https://img.stage1st.com/forum/202506/18/123306awee5wzuee6f85rj.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (58.53 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/123326t3l6gh3s2pksnbsh.png" referrerpolicy="no-referrer">
+
+<strong>OSZ04VVO)({`}`MJJCV3F]Q.png</strong> (461.61 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:33 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 猪突猛进R| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  璇瑢子R  
+##### 20299#       发表于 2025-6-18 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959555&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-18 12:25</a>
+
+比较合理是元祖+gquxvs红高+fred的mav对决。
+
+但是红叔叔你的mav好兄弟不是在外面打白强人吗。</blockquote>
+绿叔叔这集磨洋工明摆着就是下集大决战不想带他吧。。。。
+
+*****
+
+####  psycho_Gadfly  
+##### 20300#       发表于 2025-6-18 12:34
+
+<blockquote>mengsu 发表于 2025-6-18 12:28
+喵安从开局到现在的经历实在也成长不了啥，无非是从一个藏身处逃到另一个藏身处，不过敢开枪打老太婆好歹 ...</blockquote>
+不需要修正 元祖都要毁灭世界了 肯定和好姐妹一起组Mav打boss呀
+
+至于鸭子？丢人的脱出型NT罢了 
+
+*****
+
+####  eilot  
+##### 20301#       发表于 2025-6-18 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959556&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-18 12:25</a>
+
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个 ...</blockquote>
+在黑歷史中同時看到UC、W等作品的畫面
+
+所以黑歷史系統應該有收集平行世界的資訊能力，所以GTO、月面危機、兩套強尼回歸等應該也有收錄下去
+
+總之就是所有鋼彈系的作品，最後都會收束成倒A的形狀
+
+否則沒可能解釋到為何能播出不同作品的戰鬥畫面
+
+因應黑歷史系統有收集平行世界的資訊能力，所以任何一個倒A平行世界都能播放不同作品資訊
+
+*****
+
+####  Saber琪  
+##### 20302#       发表于 2025-6-18 12:39
+
+以喵安11集表现出来的智商，麻球只需要对喵安说一句“走我们一起找修司去”她估摸着就会乖乖跟过去了，修正都省了
+至于找修司去干嘛，麻球：当然是为了修正他！
+
+*****
+
+####  Steel.Haze  
+##### 20303#       发表于 2025-6-18 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959556&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-18 12:25</a>
+
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个 ...</blockquote>
+按照设定角度，倒A的月光碟释放达到最大幅度那一刻，就产生了同步巨大的裂隙，影响了各个时间线，其它时间线的倒A的产生，是主时间线倒A这个“因”的“果”。所以倒A是扩散唯一性。
+
+*****
+
+####  体制  
+##### 20304#       发表于 2025-6-18 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958777&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 10:53</a>
+这一集首席哥战斗力也突飞猛进了。。。。
+
+这片大概就没想好好讲驾驶能力的事情 ...</blockquote>
+额，讲了原因啊，这个反向泽科诺瓦现象让在场所有nt的能力都提高到最高值，等于加了个nt9的地图buff，躲个线控炮不是轻轻松松。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  林登·万  
+##### 20305#       发表于 2025-6-18 12:44
+
+银河美少年夏亚飒爽变身 但突然来自异界的宿敌现身 —— AIeeeeee 阿姆罗! 阿姆罗为何!
+
+*****
+
+####  无念  
+##### 20306#       发表于 2025-6-18 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959615&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-18 12:34</a>
+不需要修正 元祖都要毁灭世界了 肯定和好姐妹一起组Mav打boss呀
+
+至于鸭子？丢人的脱出型NT罢了  ...</blockquote>
+难说，虽然下一话元祖一副独断万古的样子，但是按照一贯的预告骗，我估计这就是秒了鸭子后的退场照了
+同样番茄开G夸一副要大战四方的样子，其实搞不好只是开个门让拉拉和修斯跑路
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  上坂莲华  
+##### 20307#       发表于 2025-6-18 12:50
+
+喵安这集明显还是对老太婆抱有幻想的，哪怕老太婆拿枪打她，她第一反应也是抬手挡完了上机跑路，对比蛋糕哥直接被浮游炮扬了温柔太多了
+
+另外下集要包Mav的饺子的话人也是够的，不预告欺诈的话下集麻球肯定跟元祖爆了，喵安帮开元祖的修斯，鸭子帮麻球，绿叔叔去把老太婆扬了
+
+最后小森重启世界线，回到79if开头，进入卫星的扎古里没有红色的，一片雪花过后麻球在地铁口侧身让开跑过来的喵安，End<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 20308#       发表于 2025-6-18 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+看来正史鸡瘟残党都是喵安丢过去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20309#       发表于 2025-6-18 12:51
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:09 编辑 
+
+[X 上的 煮たか：“シャア…… #GQuuuuuuX #ジークアクス](https://x.com/2tkinfo/status/1935052409811911133)[https://t.co/6VYDNcTrKy](https://t.co/6VYDNcTrKy)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125009y8f8xgk8tgu2p8gz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.27 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:50 上传
+
+[X 上的 このせ：“顔がいい](https://x.com/k0nos/status/1935054039177380215)[https://t.co/GhZMrh1C8o](https://t.co/GhZMrh1C8o)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125035c6ellxr4jyjrf6zv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:50 上传
+
+[X 上的 樹碧：“11話ジークアクスの感想](https://x.com/kimidori_17_17/status/1935174595272917325)[https://t.co/CfdFOOrVsT](https://t.co/CfdFOOrVsT)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125143ere0dk4qxufe1dzx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (384.28 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:51 上传
+
+[X 上的 スギミツ：“ララァの認識がもしシャリアブルに影響していたらヤバかった #GQuuuuuuX #ジークアクス [url]https://t.co/mrXtAgy9wM](https://x.com/cedarmi3/status/1935056990830809474)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/130935yyyakl4jnnnxmzma.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 13:09 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zzf111| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 20310#       发表于 2025-6-18 13:00
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:02 编辑 
+
+[X 上的 チバサ：“マチュとコモりんの日常回、 本編でやって欲しい #GQuuuuuuX #ジークアクス](https://x.com/tibasa9/status/1934945180307849547)[https://t.co/rfre8qpEYD](https://t.co/rfre8qpEYD)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125320e7vttm89u1q71tmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.31 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:53 上传
+
+[X 上的 ぜつよちまよ：“#GQuuuuuuX](https://x.com/zetsuyochimayo/status/1934986196607987851)[https://t.co/jrgHYQ6XVp](https://t.co/jrgHYQ6XVp)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125342yp00md1tm12prr43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:53 上传
+
+[X 上的 hibiki：“落書き ニャアン＆マチュ 来週最終回ニャアンとマチュのMAV見たい😭 #GQuuuuuuX #ジークアクス](https://x.com/hibiki4411/status/1935015984106193078)[https://t.co/kSPgOvA1gm](https://t.co/kSPgOvA1gm)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125406f4k50edt5mbpcpc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 ちえりん☆🍎：“マチュとニャアン✨](https://x.com/ZBKNsuki/status/1935011171150835922)[https://t.co/kaBqyS2rb5](https://t.co/kaBqyS2rb5)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125419o3gaixgt92j31xrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 あおにび：“マチュとニャアン こうやって仲良くシュウちゃん迎えてくれないかな……とか思いながら描いてた 今日やる前に描かないと絶対描けなかった](https://x.com/strix_ulula/status/1934984535462289761)[https://t.co/Xq6DURNPdA](https://t.co/Xq6DURNPdA)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125439e63m3oo9p360pmbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (726.91 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 オオデ イラ：“もうどうなってもいいや #GQuuuuuuX #ジークアクス](https://x.com/oooooooode_i/status/1935027842674569386)[https://t.co/WM4I1aZRY7](https://t.co/WM4I1aZRY7)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125904gz6qszhcsshuwhig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.3 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:59 上传
+
+[阪 療加 (@ryokasaka) / X](https://x.com/ryokasaka)
+
+<img src="https://img.stage1st.com/forum/202506/18/125602ne27keh7ovvhoohe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (283.51 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/125610qratcdddmaaurm0a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/125617ujc3fsu91z1soz0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (880.26 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+[X 上的 tk8d32（リクエスト再開中）：“まさかシャア・アズナブルに変身バンクがあるとは… #GQuuuuuuX #ジークアクス](https://x.com/tk8d32/status/1935139370618745048)[https://t.co/eQFe347UvA](https://t.co/eQFe347UvA) [https://t.co/2VqCQG0NK7](https://t.co/2VqCQG0NK7)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/130031bk2qk3yqe28ek3kb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (830.79 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:00 上传
+
+[X 上的 森キノコ★6/29GSF01-2組15,16★6/29サンクリ-ア24ab：“「ﾊｧﾊｧ…何とか白いやつを倒したぞ…！」 #ジークアクス #GQuuuuuuX](https://x.com/morikinoko8888/status/1935180576581108167)[https://t.co/q63khm77NE](https://t.co/q63khm77NE)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125929o6omomp896bpd79p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (506.93 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:59 上传
+
+*****
+
+####  07579394  
+##### 20311#       发表于 2025-6-18 13:00
+
+找回了看龙珠超的尴尬感，遇事不决，量子力学，灵能飞升，正义在吉翁
+
+*****
+
+####  岸浪白野  
+##### 20312#       发表于 2025-6-18 13:04
+
+[X 上的 バンダイ キャンディ【公式】：“＜最高レアリティは豪華箔押し仕様！＞ 『機動戦士Gundam #GQuuuuuuX』（#ジークアクス ） カードウエハースは、8月発売予定！！ ここでしか見られない描き下ろしイラストが 豪華箔押し仕様で輝きます！ この機会をお見逃しなく！ [url]https://t.co/AU0PHeBHfs](https://x.com/candytoy_c/status/1935140624388473004) [https://t.co/f2VUJHbd2p](https://t.co/f2VUJHbd2p)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/130431jpnf6d5zwafjfadp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:04 上传
+
+*****
+
+####  windlikeman  
+##### 20313#       发表于 2025-6-18 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+开场gqx往下落的时候没有行动上表现敌意 喵安也不知道上面坐的谁 也是直接开枪动手的<img src="https://static.stage1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ArgentDawn  
+##### 20314#       发表于 2025-6-18 13:12
+
+上一话的番茄“沙仑的蔷薇在哭泣……究竟是谁用了这么恐怖的武器”，我以为这是番茄对非人道战争武器的愤怒，以及对被利用来杀人的拉拉的悲悯与同情
+
+这一话的番茄“我要拯救拉拉，她是对修司非常重要的人”
+
+*****
+
+####  pokemon最爱  
+##### 20315#       发表于 2025-6-18 13:21
+
+GQX鸭子优先针对正史拉拉大概是因为杀了一个紫婆只要正史拉拉还在迟早会出现下一个紫婆？反正有绿叔叔盯着要杀紫婆自己就优先解决正史拉拉这个问题吧。
+
+*****
+
+####  缪斯替  
+##### 20316#       发表于 2025-6-18 13:21
+
+最后元祖的冲击力太强了，都忘了一开始我看到时候特别喜欢这里对小番茄肉体的表现，青春健康有活力的紧身衣曲线太美味了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 20317#       发表于 2025-6-18 13:32
+
+下集喵安这个性格不太可能和麻球一起mav打rx78吧，感觉让基西莉亚开个新机子出来跟喵安玩你追我赶就差不多了
+
+*****
+
+####  格林达姆  
+##### 20318#       发表于 2025-6-18 13:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拉了台老古董元祖过来怕是要成垫脚石了吧
+
+*****
+
+####  Sliurus  
+##### 20319#       发表于 2025-6-18 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959831&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-18 13:21</a>
+
+GQX鸭子优先针对正史拉拉大概是因为杀了一个紫婆只要正史拉拉还在迟早会出现下一个紫婆？反正有绿叔叔盯着 ...</blockquote>
+大义灭亲这点最不像鸭子了吧，鸭子其实挺重感情的，只要不是利用的对象
+
+*****
+
+####  ヒトニナル  
+##### 20320#       发表于 2025-6-18 13:35
+
+现在看来玛秋和喵安的波长是一点都不对付，这俩组mav怕不是要撞在一起
+
+
+*****
+
+####  qixinno2  
+##### 20321#       发表于 2025-6-18 13:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Turn A Turn↗Turn A Turn↘Turn A↗～～
+
+<img src="https://img.stage1st.com/forum/202506/18/133718gdi7odzrp2e27rrs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.7 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:37 上传
+
+*****
+
+####  Saber琪  
+##### 20322#       发表于 2025-6-18 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959916&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 13:35</a>
+现在看来玛秋和喵安的波长是一点都不对付，这俩组mav怕不是要撞在一起</blockquote>
+那不更有意思了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 20323#       发表于 2025-6-18 13:40
+
+话说山下育人嗨了这么多工业风高达，结果最后要被大河原高达腐乳
+
+*****
+
+####  岸浪白野  
+##### 20324#       发表于 2025-6-18 13:42
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:45 编辑 
+
+4月8号那时的访谈说玛秋和喵安的“如果你就能好好注视我那边”“我们不是已经心意相通了吗”关系早就能看出了，没什么奇怪，一直都没骗过你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 20325#       发表于 2025-6-18 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959950&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 13:42</a>
+
+4月8号那时的访谈说玛秋和喵安的“如果你就能好好注视我那边”“我们不是已经心意相通了吗”关系早就能看出 ...</blockquote>
+那还继续拉扯岂不是更作死（参考隔壁）
+
+*****
+
+####  ykyin09  
+##### 20326#       发表于 2025-6-18 13:47
+
+b站看了个把beyond the time替换成0079op的视频，人声一起来直接没绷住
+
+*****
+
+####  獠牙护目镜  
+##### 20327#       发表于 2025-6-18 13:51
+
+这个拉拉营造的世界线不会是以"世间再无新人类"收尾吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/135204raul1l0qmvg0aqqm.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-bdb7ec439e83598fb85323254279876d_1440w.png.jpg</strong> (429.46 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:52 上传
+
+*****
+
+####  Saber琪  
+##### 20328#       发表于 2025-6-18 13:51
+
+もえあがれ もえあがれ，
+燃烧吧 燃烧吧，
+燃え上がれガンダム，
+燃烧吧 高达~
+
+*****
+
+####  YU_JI  
+##### 20329#       发表于 2025-6-18 13:59
+
+下一话预告的主体是“新人类”，搞不好是集体NT大合唱难忘今宵了
+
+*****
+
+####  rockroxas  
+##### 20330#       发表于 2025-6-18 13:59
+
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席
+
+番茄搞不清现在发生什么事呆在那当见证人，喵安觉得修司不看自己只看番茄跟拉拉了上去两个一起砍
+
+按现在这打戏设计就别想什么2v2抹布战，能写好3个1v1都是烧香了（被刚破烂try支配的恐惧）
+
+抹布不是战术也不是战斗设计，而是人物关系设计
+
+*****
+
+####  qixinno2  
+##### 20331#       发表于 2025-6-18 14:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是应该是这样么
+
+你能够存活下来吗？
+
+<img src="https://img.stage1st.com/forum/202506/18/140130s0ihk06t6fk2802k.png" referrerpolicy="no-referrer">
+
+<strong>B23(F6UB1{S282S1_JP[EJC.png</strong> (62.45 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 14:01 上传
+
+*****
+
+####  psycho_Gadfly  
+##### 20332#       发表于 2025-6-18 14:04
+
+<blockquote>rockroxas 发表于 2025-6-18 13:59
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席
+</blockquote>
+女主们真就uc导游呗
+
+虽然我觉得下一话番茄能搞个大的(然后喵安稀里糊涂跟上) 但过程估计一言难尽……
+
+*****
+
+####  Saber琪  
+##### 20333#       发表于 2025-6-18 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960038&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 13:59</a>
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席</blockquote>
+喵安这行为放第十集还有可能，这集来看她不可能再跟番茄打来打去了
+
+*****
+
+####  pokemon最爱  
+##### 20334#       发表于 2025-6-18 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960049&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-18 14:01</a>
+
+不是应该是这样么
+
+你能够存活下来吗？</blockquote>
+我猜骡子一首哀战士的时间把右边全点了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 20335#       发表于 2025-6-18 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960094&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-18 14:10</a>
+
+喵安这行为放第十集还有可能，这集来看她不可能再跟番茄打来打去了</blockquote>
+下话预告是番茄护拉拉
+
+目前要砍拉拉的只有夏亚一个
+
+还能是夏亚肘赢元祖上去打番茄吗
+
+*****
+
+####  洛克萨斯  
+##### 20336#       发表于 2025-6-18 14:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是时候骡枪秒了
+
+*****
+
+####  mengsu  
+##### 20337#       发表于 2025-6-18 14:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵安已经自己亲手把新的藏身地点了，已经没有和小番茄和解以外的路嘞。
+
+下一话肯定要表演一个姐妹同心了。
+
+*****
+
+####  ryanghj  
+##### 20338#       发表于 2025-6-18 14:16
+
+我懂了，因为这个世界是拉拉为了夏亚创造的，所以只要干掉夏亚就能让世界终结
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  GJRstone  
+##### 20339#       发表于 2025-6-18 14:16
+
+国际通缉犯番茄还不如难民喵安呢
+
+*****
+
+####  希望之异热同心  
+##### 20340#       发表于 2025-6-18 14:18
+
+过来的元祖好像没带枪啊，就2把光剑1个盾来着，这边的NT因为zeknova突然全部NT9了，车战力其实元祖路边一条啊<img src="https://static.stage1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxasuka  
+##### 20341#       发表于 2025-6-18 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960145&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 14:18</a>
+过来的元祖好像没带枪啊，就2把光剑1个盾来着，这边的NT因为zeknova突然全部NT9了，车战力其实元祖路边一条 ...</blockquote>
+路边找个扎古抢两根快乐筒完事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 20342#       发表于 2025-6-18 14:26
+
+不要小看番茄啊，就11话番茄这个不开精神感应都能开得这么溜的水平，可能比阿姆罗干掉绿叔叔时的水平还要高一点<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 20343#       发表于 2025-6-18 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960131&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 14:16</a>
+
+我懂了，因为这个世界是拉拉为了夏亚创造的，所以只要干掉夏亚就能让世界终结
+
+—— 来自 鹅球 v3.3.96-alp ...</blockquote>
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界线，修司尾行拉拉几百个世界线杀了无数次鸭
+
+杀掉鸭，拉拉就去下一个世界了，修司也跟着去
+
+当然故事不会是（修司计划的）这个走向，下话肯定要让元祖或者红高膜last shoot，从这片一直都是红高膜元祖镜头来看可能是红高？之前拉拉说白色MS赢几百次，可能也是这一次鸭子赢的铺垫，鸭赢了之后放过修司，拉拉怨念消散升天这样？
+
+*****
+
+####  ryanghj  
+##### 20344#       发表于 2025-6-18 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960201&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:29</a>
+
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+我觉得鸭子肯定打不过，唯一妥协方法是玛秋取代拉拉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 20345#       发表于 2025-6-18 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960180&amp;ptid=2209276" target="_blank">cxasuka 发表于 2025-6-18 14:25</a>
+
+路边找个扎古抢两根快乐筒完事</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">：“什么是军警用扎古？咋武装只有热能斧和机枪？”
+
+*****
+
+####  王留美  
+##### 20346#       发表于 2025-6-18 14:41
+
+万万没想到「ガンダム観てたら ガンダム出て来た」这句话在最后也能用上
+
+*****
+
+####  psycho_Gadfly  
+##### 20347#       发表于 2025-6-18 14:42
+
+<blockquote>rockroxas 发表于 2025-6-18 14:29
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+关键这神棍看上去也不像人啊 我一直觉得是机魂之类的
+
+那正史里拉拉挡枪死的世界线目前还没找到吗？其实我觉得93鸭骡同归于尽也算一种骡子干了鸭(牛高达不也是白色高达吗！
+
+*****
+
+####  wing130083  
+##### 20348#       发表于 2025-6-18 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960201&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:29</a>
+
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+就鸭子今天这惊恐表情掉的时髦值，也轮不到他赢
+
+大概率是红高先垫给78（我猜可能修司不上机，78从头到尾不告诉你谁在开）
+
+然后番茄打头阵合力物理说服修司
+
+最后修司说“我决定不毁灭你们的世界了”和玫瑰拉拉一起告别，两小只回归日常演ed
+
+鸭脱出之后和绿叔叔合力干掉紫婆（首席就当他被甩在一边，之后自己想通了吧），经过这事人格成长终于肯负一次责任把基翁管起来
+
+最后到地球接gq世界拉拉
+
+大家一起包饺子
+
+*****
+
+####  rockroxas  
+##### 20349#       发表于 2025-6-18 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960234&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 14:37</a>
+
+我觉得鸭子肯定打不过，唯一妥协方法是玛秋取代拉拉</blockquote>
+首席都能跟绿叔叔大战三百回合，打不打得过不就是编剧一句话，比如护身符不在身边（
+
+*****
+
+####  炼金王  
+##### 20350#       发表于 2025-6-18 14:49
+
+最终话会不会紫色老太婆开吉恩号出来 复刻最后一枪
+
+*****
+
+####  千里快哉风  
+##### 20351#       发表于 2025-6-18 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960299&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:48</a>
+
+首席都能跟绿叔叔大战三百回合，打不打得过不就是编剧一句话，比如护身符不在身边（ ...</blockquote>
+难道不是因为其他强人太强了 绿叔叔无法放水就全给点了 首席的水平放水也没事才让他有机会活到三百回合么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  9β  
+##### 20352#       发表于 2025-6-18 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959256&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 11:43</a>
+红高达性能根本无所谓好吧。。
+
+就拉拉能给夏亚换衣服，那给红高达换点武器或者配件，或者直接变成另外的机 ...</blockquote>
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  9β  
+##### 20353#       发表于 2025-6-18 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+认真来说是因为蔷薇拉拉能力过于劲爆，总会有下一个紫婆拿来开炮
+
+整蛊来说就是鸭子喜欢的是骡子
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cxasuka  
+##### 20354#       发表于 2025-6-18 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960248&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 14:39</a>
+：“什么是军警用扎古？咋武装只有热能斧和机枪？”</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一只！下一只！下一只！下一只！陷入梅比乌斯之轮中全灭
+
+*****
+
+####  rockroxas  
+##### 20355#       发表于 2025-6-18 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960283&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-18 14:45</a>
+
+就鸭子今天这惊恐表情掉的时髦值，也轮不到他赢
+
+大概率是红高先垫给78（我猜可能修司不上机，78从头到尾不 ...</blockquote>
+修司有毁灭世界能力的话根本就不会有MS战啊，直接伊甸力发动就完了
+
+无非就是拉拉扭曲世界保护鸭，修司要杀掉鸭毁灭拉拉扭曲愿望造出来的世界
+
+既然是对照，番茄一步步坚定抹掉自己退路，喵安一步步发癫抹掉自己退路也是一种对照，我倒觉得番茄喵安开打最后拉拉挡枪消散，真正互相理解会是这两人的结局
+
+最终话番茄走过地铁闸门，听到路人说，大量杀人犯喵安收监，好奇怪的名字，然后发怒上去开打，这样如何XD
+
+*****
+
+####  qixinno2  
+##### 20356#       发表于 2025-6-18 14:56
+
+ 本帖最后由 qixinno2 于 2025-6-18 14:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960330&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-18 14:53</a>
+
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS版的逆鸭CG 这俩从高达对红渣古一路变到牛对沙扎比
+
+【[PS1] 机动战士高达 逆袭的夏亚 - 开场动画 (补帧超分4K)(中文字幕)】 [https://www.bilibili.com/video/BV1RC4y1a7ve](https://www.bilibili.com/video/BV1RC4y1a7ve)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stevenzero| + 1|就是这个|
+
+查看全部评分
+
+*****
+
+####  有钱多买小人  
+##### 20357#       发表于 2025-6-18 14:59
+
+是啊，现在知道为啥魔女当时会笑了。
+
+原来你是要叫骡爸爸过来收拾鸭子啊。
+
+<img src="https://p.sda1.dev/25/668d05e550e62a500edea732eb488b7c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 20358#       发表于 2025-6-18 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960330&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-18 14:53</a>
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, 鹅球 v3.5.99 ...</blockquote>
+想起某个游戏op，就是骡鸭一边打一边机体变化，从红渣打元祖变成山楂饼打牛。
+
+*****
+
+####  ryanghj  
+##### 20359#       发表于 2025-6-18 15:02
+
+其实我觉得最疑惑的是元祖是在拉拉醒了之后传过来的，说明拉拉允许传过来？
+
+*****
+
+####  wing130083  
+##### 20360#       发表于 2025-6-18 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960342&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:55</a>
+
+修司有毁灭世界能力的话根本就不会有MS战啊，直接伊甸力发动就完了
+
+无非就是拉拉扭曲世界保护鸭，修司要 ...</blockquote>
+毁灭世界应该就是指的打倒鸭子
+
+前面大家推测的算比较合理了，gqx世界的基准锚点就是鸭子没有败给78的世界
+
+召唤来的78打赢红高也就算了， 杀掉鸭子，整个gqx世界可能就不复存在
+
+当然这不代表杀掉全世界所有人，只是回归UC正史的大方向而已
+
+
+*****
+
+####  ryanghj  
+##### 20361#       发表于 2025-6-18 15:04
+
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧
+
+*****
+
+####  猪突猛进R  
+##### 20362#       发表于 2025-6-18 15:06
+
+不至于，把拉拉和修司两位大神送走，就可以当无事发生。
+
+*****
+
+####  岸浪白野  
+##### 20363#       发表于 2025-6-18 15:06
+
+<img src="https://img.stage1st.com/forum/202506/18/150514rauzbuswgtzswsbu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:05 上传
+
+*****
+
+####  wing130083  
+##### 20364#       发表于 2025-6-18 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960404&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 15:04</a>
+
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧</blockquote>
+主角两小只是土著，修司站位上当了boss，正常来说he应该是阻止了boss的
+
+我觉得结局应该是修司不再打算让这个世界回归正轨，和玫瑰拉拉一起告别
+
+两小只继续在这个改变了的世界生活下去
+
+让世界变得更好的责任由鸭子和绿叔叔扛下来
+
+*****
+
+####  岸浪白野  
+##### 20365#       发表于 2025-6-18 15:07
+
+[X 上的 桜 水樹：“キラキラだ [url]https://t.co/JbozVd93kc](https://x.com/rakusakizumi/status/1935120157938172405)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/150740injzjnn4czv523s4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.64 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:07 上传
+
+*****
+
+####  望江南  
+##### 20366#       发表于 2025-6-18 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959692&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-6-18 12:50</a>
+
+喵安这集明显还是对老太婆抱有幻想的，哪怕老太婆拿枪打她，她第一反应也是抬手挡完了上机跑路，对比蛋糕哥 ...</blockquote>
+不是最后番真嗣伸手把喵日香从地铁的人群里拉出来<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？
+
+鹤卷啊，我不介意你膜一下漫画版eva的，反正前面也膜了点eva的嘛<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cyanwow  
+##### 20367#       发表于 2025-6-18 15:10
+
+原来我一直色的是骡子吗，拉拉，你这家伙确实会脑补啊...
+
+*****
+
+####  tonberry  
+##### 20368#       发表于 2025-6-18 15:10
+
+这片子不就是4s电光机王么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+快进到伊藤修司原来是被阿姆罗附身了一整季
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ryanghj  
+##### 20369#       发表于 2025-6-18 15:10
+
+说实话我感觉没人猜得到结局
+
+鹤卷肯定不会搞得太无聊就是了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20370#       发表于 2025-6-18 15:11
+
+跟你说新时代的开始真的是这个世界发生了变化不是梦结局这个世界结束了不要想太多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快马疾奔  
+##### 20371#       发表于 2025-6-18 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960446&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 15:08</a>
+
+不是最后番真嗣伸手把喵日香从地铁的人群里拉出来？
+
+鹤卷啊，我不介意你膜一下漫画版eva的，反正前面也 ...</blockquote>
+那是明日香自己一不小心跌倒然后真嗣凑巧在边上出手扶吧？
+
+*****
+
+####  xinfengj  
+##### 20372#       发表于 2025-6-18 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960432&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:07</a>
+
+X 上的 桜 水樹：“キラキラだ [https://t.co/JbozVd93kc” / X](https://t.co/JbozVd93kc” / X)</blockquote>
+摇错人了，这玩应里面是扎古啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20373#       发表于 2025-6-18 15:12
+
+ 本帖最后由 岸浪白野 于 2025-6-18 15:14 编辑 
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 20374#       发表于 2025-6-18 15:14
+
+我个人的猜想是下集正史元祖骡枪秒把在场所有人秒了并带走拉拉，GQX世界开始毁灭，然后靠核心战机在元祖一枪秒之前逃过一劫的小番茄发功把GQX世界保了下来，故事回溯到一开始，但没有修司以及他开的红高达，番茄也没开上GQX，鸭子和绿叔叔成功干掉扎比家上位，全剧终<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  望江南  
+##### 20375#       发表于 2025-6-18 15:14
+
+回过头来看这番真正无死角的真的是番茄的表情作画啊，从当时魔女回逗狗开始一直到现在都保持着精致灵动一次都没崩过，难道是一种没什么空间来塑造你所以作画上猛猛弥补你的意思吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和兄弟讨论完最爆的元祖后第一个聊的就是这集番茄仍然不负众望地表情灵动身体涩情，什么叫真女主啊
+
+<img src="https://img.stage1st.com/forum/202506/18/151043dfrtrustznz5fsfi.png" referrerpolicy="no-referrer">
+
+<strong>65745219ee8510bf09d75ca415d946a.png</strong> (139.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:10 上传
+
+*****
+
+####  无念  
+##### 20376#       发表于 2025-6-18 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+修斯本体肯定要走啊，他既然和拉拉一样是穿越的，那为了不继续引发Zexovia多半是要跑回去的
+但是机魂就无所谓了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 20377#       发表于 2025-6-18 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那看来是不会太出人意料的结局咯，黑契结局预定
+
+*****
+
+####  岸浪白野  
+##### 20378#       发表于 2025-6-18 15:20
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/151903b1zn15n23888c8pc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:19 上传
+
+*****
+
+####  望江南  
+##### 20379#       发表于 2025-6-18 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960474&amp;ptid=2209276" target="_blank">快马疾奔 发表于 2025-6-18 15:11</a>
+
+那是明日香自己一不小心跌倒然后真嗣凑巧在边上出手扶吧？</blockquote>
+
+是人群里拉出来的，说没站稳也算吧
+
+<img src="https://img.stage1st.com/forum/202506/18/151834lj64j4pj51490949.png" referrerpolicy="no-referrer">
+
+<strong>4f1f0b5a1447e669554fd8a3cec641a.png</strong> (355.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/151837x8fh8gkgifoall9q.png" referrerpolicy="no-referrer">
+
+<strong>248bc5189c5f176603949bbcd4d7152.png</strong> (422.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:18 上传
+
+作为香党我坚定认可这个结局<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">绝不记错！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KDConan| + 1|贞本的温柔|
+
+查看全部评分
+
+*****
+
+####  wing130083  
+##### 20380#       发表于 2025-6-18 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960469&amp;ptid=2209276" target="_blank">tonberry 发表于 2025-6-18 15:10</a>
+
+这片子不就是4s电光机王么
+
+快进到伊藤修司原来是被阿姆罗附身了一整季</blockquote>
+差不多就是这样了，估计是因为本人极强的nt能力，隔着世界和93那个状态的骡发生了共鸣，在骡指引下行动
+
+*****
+
+####  AkaiSuisei  
+##### 20381#       发表于 2025-6-18 15:31
+
+所以谁还在意官网挂着那句**的<blockquote>そして、世界は新たな時代を迎えようとしていた。</blockquote>
+要是新时代带机动战士四个字的TV正作都是致敬这个neta那个的情书片我可是笑不出来，既甩不掉掉UC的包袱又憋不出新的东西，结果还是老人吗
+光头在CCA里面指着年轻一辈的鼻子骂完了还记得找补个婴儿，鹤卷20多年前过了一把青春瘾现在只剩下浓浓的老登臭了，跟扳机那几个哥们一块儿迂腐去吧
+
+*****
+
+####  wing130083  
+##### 20382#       发表于 2025-6-18 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960531&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:20</a>
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">78摆着一副黑历史倒A的造型从传送门里出来
+
+这种剧情居然不是G世纪
+
+那是很爆笑了（
+
+*****
+
+####  ryanghj  
+##### 20383#       发表于 2025-6-18 15:35
+
+所以修司是对面来的，那是不是gq世界有两个修司（
+
+和拉拉一样
+
+*****
+
+####  rockroxas  
+##### 20384#       发表于 2025-6-18 15:44
+
+主角转移之后剩下的人无非是跳过，一般不会说主角转移走世界就爆炸毁灭啥的，或者大家都去到新世界，反正是怎么方便怎么来
+
+首先大概率要留鸭子收拾烂摊子最后再穿总帅服膜一把，鸭子跳过的人生也跟绿叔叔的计划一样不要深究
+
+修司拉拉不是这个世界的也要离开，爆炸升天穿回去啥的再议
+
+79对79，85对85，喵安麻球也是要打一场的，反而绿叔叔那场可能大幅略过
+
+*****
+
+####  woui003woui  
+##### 20385#       发表于 2025-6-18 15:53
+
+喵安麻球这集不是已经打了一把了，还打么。
+
+*****
+
+####  洛克萨斯  
+##### 20386#       发表于 2025-6-18 15:59
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么
+
+*****
+
+####  无念  
+##### 20387#       发表于 2025-6-18 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+就当是超小型Zexovia吧，虽然我很疑惑这玩意超频完机体看起来屁事没有啊，那代价是啥<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 20388#       发表于 2025-6-18 16:04
+
+[X 上的 ゆうしゃめんま / Y. Menma：“マチュ@美少女戦士 #ジークアクス #GQuuuuuuX](https://x.com/obuchi314/status/1935231148751471023)[https://t.co/PONcyDWZry](https://t.co/PONcyDWZry)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/160440ym6mt6jehstd96ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:04 上传
+
+[X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“もう勝ち目しかない。 逆にこれで勝てなかったら何すれば勝てるんだ… #GQuuuuuuX](https://x.com/takuteks/status/1935224106116620304)[https://t.co/QJ4ggevr4l](https://t.co/QJ4ggevr4l)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/155941ictyuuruufunmgo7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (424.03 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:59 上传
+
+[X 上的 85猫：“この世界を終わらせるために──── #GQuuuuuuX　#ジークアクス](https://x.com/85boxcat/status/1935246970903536060)[https://t.co/0Z0DSYM3eH](https://t.co/0Z0DSYM3eH)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/160421e3vsxf3vkx6oxvks.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1012.2 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:04 上传
+
+*****
+
+####  少年游不游  
+##### 20389#       发表于 2025-6-18 16:06
+
+现在想起来修斯之前捅别人驾驶舱的行为确实有点骡子的伏笔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 20390#       发表于 2025-6-18 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+懂了，鸭又和亲妈离别了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 20391#       发表于 2025-6-18 16:09
+
+真骡子不至于打个魔女都那么费功夫吧
+
+*****
+
+####  量产失败型  
+##### 20392#       发表于 2025-6-18 16:13
+
+戏里花活不断劲爆刺激
+
+戏外守旧派破防又红温
+
+在我心目中这就是今年霸权了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 20393#       发表于 2025-6-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+全息投影氛围灯<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  格林达姆  
+##### 20394#       发表于 2025-6-18 16:15
+
+ 本帖最后由 格林达姆 于 2025-6-18 16:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960404&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 15:04</a>
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞得好像uc主宇宙就朝气蓬勃一样
+不也到处缝缝补补得过且过
+
+*****
+
+####  赤黑的假面  
+##### 20395#       发表于 2025-6-18 16:15
+
+<blockquote>量产失败型 发表于 2025-6-18 16:13
+戏里花活不断劲爆刺激
+
+戏外守旧派破防又红温
+
+</blockquote>
+确实，比李老八还会玩
+
+*****
+
+####  ヒトニナル  
+##### 20396#       发表于 2025-6-18 16:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有个观点是元祖就是这个拉拉叫过来的，不如说能控制泽科诺瓦现象的只有拉拉和黑科技手电筒吧
+
+*****
+
+####  seedees3  
+##### 20397#       发表于 2025-6-18 16:20
+
+我已经在期待下周响起哪些经典BGM了，长い眠り(后半）和MAIN TITLE都可以端上来了
+
+*****
+
+####  LOLITA  
+##### 20398#       发表于 2025-6-18 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960706&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 15:44</a>
+
+主角转移之后剩下的人无非是跳过，一般不会说主角转移走世界就爆炸毁灭啥的，或者大家都去到新世界，反正是 ...</blockquote>
+盲猜一个绿叔叔和首席哥都要被78捅驾驶舱
+
+谁让你开着亡灵机体呢<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  燃烧的石头  
+##### 20399#       发表于 2025-6-18 16:22
+
+直接相逢在宇宙吧 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  猪突猛进R  
+##### 20400#       发表于 2025-6-18 16:22
+
+<img src="https://img.stage1st.com/forum/202506/18/162239r2tz92qo925cb32t.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ7i87-ij6uZgT3cShs-19v.jpg</strong> (169.21 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:22 上传
+
+
+*****
+
+####  LadySaazbaum  
+##### 20401#       发表于 2025-6-18 16:23
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿叔叔，所以绿叔叔比较可能活到战后。
+
+可以贷款一个战损退役/转文职的绿叔叔，腐女市场就指着叔叔了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+泽维尔小哥死不了的，笨狗一只，换个主人拴条新链完事。
+
+紫婆已经被肾击过一次，拖到下一话继续补枪观感过于累赘，比较可能活到战后，被审判入狱。那么扎比家也算（终于）获得了符合霓虹现代三观的清算，吉翁第三新共和国堂堂重开（相关影射不做评价）
+魔法少女夏亚好歹也是贯穿本剧的核心角色，最终话再度神隐/路边一条那Khara社就别想在业内混了。且三小只明确不会承担什么社会责任，必须有成年角色来承担，你说是吧卡斯巴尔·雷姆·戴肯先森。
+
+宇宙男鬼和女鬼肯定要从哪儿来回哪儿去不必多说。
+
+本世界线拉拉被解救可能是一个画面的事情，也可能后日谈补充说明。这种属于对剧本不重要对粉丝很重要的事情鹤卷哥哥不会跟大家较劲的。
+
+…………算下来还真是个HE啊，挺好的UC嘉年华。
+
+GQX这个片子很好在一点不会端着装深沉，时不常地调节气氛提醒观众不要太严肃，这可比某些个追求DEEP! DARK! FANTASY!然后剧情弱智成一坨的不可名状物好太多了。
+
+*****
+
+####  猪突猛进R  
+##### 20402#       发表于 2025-6-18 16:24
+
+<img src="https://img.stage1st.com/forum/202506/18/162423d02mibsl2mghm8b8.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (36.35 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:24 上传
+
+*****
+
+####  岸波白野  
+##### 20403#       发表于 2025-6-18 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960531&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:20</a>
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了</blockquote>
+八爷前阵子直播说最喜欢的钢弹是0080，八爷除了喜欢鸡煲饭见到PG掉毛走不动路，我觉得比起卡拉老登让八爷深度参与新钢弹创作更能解放新兴生产力
+
+*****
+
+####  cayon  
+##### 20404#       发表于 2025-6-18 16:32
+
+看到元祖突然冒出来不笑的也是神人了
+
+*****
+
+####  岸浪白野  
+##### 20405#       发表于 2025-6-18 16:43
+
+[X 上的 かみんちゅuuuuuuX𝄇 プラモVtuber：“GQ向こう側ガンダムのよさげPOINTを上げさせていただいた!!OK、何も言わなくていい分かってる。どうでもいいですか。どうでもいいかもしれないけど私にとっては大変とても非常に重要POINT!!](https://x.com/kamminchu/status/1935123154491556044)[https://t.co/PCfHkhRoaA](https://t.co/PCfHkhRoaA)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/164209x6vvtt7blwbwzzbv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:42 上传
+
+*****
+
+####  狂马王  
+##### 20406#       发表于 2025-6-18 16:47
+
+哈罗在说“谁だ 谁だ 谁だ“的时候，我以为夏亚要变成恶魔人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 20407#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960965&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 16:23</a>
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿 ...</blockquote>
+Ed就是结局是吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20408#       发表于 2025-6-18 16:50
+
+[X 上的 比宮じょーず：“「これは私が軍に入隊した時に、父デギンから譲られたものだ。強くなりたいなら、ためらうことなく撃て」 #GQuuuuuuX [url]https://t.co/b0M1BUTusN](https://x.com/ramune_himiya/status/1935250322836058337)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/164955lzabbslj93vku9uk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:49 上传
+
+[X 上的 오리신/olys011：“🍅🍅🪐 [url]https://t.co/Zb9NlcQjvT](https://x.com/olys011/status/1935250413445595464)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/165013kz96stj6saghhtj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:50 上传
+
+*****
+
+####  变老的大二  
+##### 20409#       发表于 2025-6-18 16:55
+
+最迷的现在发短信给番茄的人不是夏亚吧。
+
+真是骡子发的？
+
+*****
+
+####  猪突猛进R  
+##### 20410#       发表于 2025-6-18 16:57
+
+有没有可能，那短信是群发的，只有NT够高的人才会收到。
+
+*****
+
+####  吴怀在  
+##### 20411#       发表于 2025-6-18 16:59
+
+ 本帖最后由 吴怀在 于 2025-6-18 17:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961141&amp;ptid=2209276" target="_blank">洛亚替身 发表于 2025-6-18 16:47</a>
+Ed就是结局是吧</blockquote>
+那还真是呼应ED歌词了
+<blockquote>如魔法般恰到好处的设定
+
+身为主角便该有起承转合
+
+结局无论如何都会是大团圆
+
+既然如此就让我随心所欲吧
+
+反正怎样都无所谓了</blockquote>
+
+*****
+
+####  plok201  
+##### 20412#       发表于 2025-6-18 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答案是致敬他们最爱的光头，我就是喜欢这演出，至于设定什么的，有万代擦屁股
+
+讲道理，爱美尔斯能停止时间这种东西一出来再认真下去我觉得头都要炸
+
+*****
+
+####  希望之异热同心  
+##### 20413#       发表于 2025-6-18 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960965&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 16:23</a>
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿 ...</blockquote>
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉，但应该不会死得很小丑吧
+
+*****
+
+####  岸波白野  
+##### 20414#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+[https://weibo.com/5653388913/5176143218737561](https://weibo.com/5653388913/5176143218737561)
+
+可能只是山下的私货
+
+*****
+
+####  aptx8285144  
+##### 20415#       发表于 2025-6-18 17:17
+
+如果紫婆被清算，不管是不是物理意义，那和紫婆帮凶了一段时间的喵安和首席毫无被冲击的科学性，特别是喵安是直接被命令打头阵干了一波大的……
+
+*****
+
+####  jackyhuang  
+##### 20416#       发表于 2025-6-18 17:18
+
+鸭子应该没余力再去管紫色老太婆了，猜一个喵安对着紫婆舰桥说不许插手吧
+然后喵安在驾驶舱里自闭，预告画面回收
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 20417#       发表于 2025-6-18 17:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给我个面子
+
+<img src="https://img.stage1st.com/forum/202506/18/172316wf915wmmnaprfmhr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 17:23 上传
+
+*****
+
+####  downnote  
+##### 20418#       发表于 2025-6-18 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961184&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 16:57</a>
+
+有没有可能，那短信是群发的，只有NT够高的人才会收到。</blockquote>
+群发也不影响发件人不清楚。而且最开始的短信可能是群发的，但引导麻球越狱的指向性就明显了
+
+*****
+
+####  猪突猛进R  
+##### 20419#       发表于 2025-6-18 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961215&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 17:03</a>
+
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉 ...</blockquote>
+紫婆早就是期货死人了。
+
+别的不说，就喵安那枪装的是BB弹么，就算打的是屁股也才这点威力？
+
+原作里紫婆光枪爆基连头可是个冥场面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 20420#       发表于 2025-6-18 17:34
+
+紫婆我感觉不会死得太正式，可能就是被手下反水之类
+
+*****
+
+####  岸浪白野  
+##### 20421#       发表于 2025-6-18 17:35
+
+[X 上的 蒔島梓@バ美肉お絵描きVTuber：“回してないのに来た [url]https://t.co/UOIC9nf2kf](https://x.com/azusa_maxima/status/1935259600712012026)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/173523b50ccowi5eichewp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 17:35 上传
+
+*****
+
+####  silvia  
+##### 20422#       发表于 2025-6-18 17:42
+
+已经不需要纠结剧情逻辑了，还是那个卡拉，华丽外表下面的家庭伦理剧
+
+*****
+
+####  LadySaazbaum  
+##### 20423#       发表于 2025-6-18 17:51
+
+<blockquote>希望之异热同心 发表于 2025-6-18 17:03
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉 ...</blockquote>
+
+紫婆在弑兄后快速被人干掉，拍第一次属于无法预测的剧情，到这里就变成大家都猜得到的剧情，那么Khara偏不这样拍——是非常可能的
+
+而小森和希姆斯的对话也可以做出这种解读：本物NT不会这样做，本物NT=小番茄。想想小番茄的性子：啊作为扳机的二号机已经脱离紫婆掌控那为什么还要杀人呢？
+
+既然清除紫婆本人已经失去了紧迫的必要性。留下性命送入牢房，作为旧JGZY象征被狠狠清算，也是一种合理安排。
+
+*****
+
+####  ParadiseMartyr  
+##### 20424#       发表于 2025-6-18 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961514&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 17:51</a>
+紫婆在弑兄后快速被人干掉，拍第一次属于无法预测的剧情，到这里就变成大家都猜得到的剧情，那么Khara偏 ...</blockquote>
+？紫婆现在是吉翁最高领导人，谁来投入牢房？路边野狗一样的gquuuuux联邦么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  conanlm  
+##### 20425#       发表于 2025-6-18 17:59
+
+在没有阿姆罗的宇宙，夏亚能否一统UC
+
+*****
+
+####  西洛克  
+##### 20426#       发表于 2025-6-18 18:04
+
+<blockquote>conanlm 发表于 2025-6-18 17:59
+在没有阿姆罗的宇宙，夏亚能否一统UC</blockquote>
+有骡子的宇宙，87鸭和骡子合作也能有一番作为吧。夏亚真想杀了骡子，0093对灵格斯骡子不留手，或者草坪打滚的时候让邱尼把骡子踩死不就行了。
+
+*****
+
+####  xwz  
+##### 20427#       发表于 2025-6-18 18:13
+
+93鸭其实已经失去人生目标了，也就是和骡子的战斗能让他认真起来，一切都是为了这个服务的
+
+*****
+
+####  LadySaazbaum  
+##### 20428#       发表于 2025-6-18 18:23
+
+<blockquote>ParadiseMartyr 发表于 2025-6-18 17:54
+？紫婆现在是吉翁最高领导人，谁来投入牢房？路边野狗一样的gquuuuux联邦么
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+没屁用的GQX联邦就不要cue了∠( ᐛ 」∠)＿
+
+手续上有个图章首相，安抚民心有归来的夏亚，实际动手押解有索顿。不要太在意是否完全合理因为十部萝卜番有十部半都做不到合理，经验之谈（。
+
+另，既然GQX斩钉截铁说不会有第二季，意味着本世界线不必再有（为了卖胶而引发的）战争，意味着GQX吉翁可以改造为比较正常稳定的和平国家，那么对扎比家的公开审判是必要的，弑亲+轰了本国要塞的基西莉亚正是绝佳对象。
+
+*****
+
+####  bonnwang  
+##### 20429#       发表于 2025-6-18 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961569&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 17:59</a>
+在没有阿姆罗的宇宙，夏亚能否一统UC</blockquote>
+机战d好像有这个世界线
+
+*****
+
+####  Aunn  
+##### 20430#       发表于 2025-6-18 18:38
+
+我觉得元祖或者牛高达出来客串是本来就意料之内的事。说真的，可能是看到中期就降低期待了，本来觉得这集还好，也觉得最近几集质量也比前半好点，但反而是看讨论看笑了。
+再看熟肉觉得让我绷不住的还是水星bgm出来的时候，瞬间就想起寒蝉卒最后放you了。就希望最后这饺子能包完，不要让我网易云电台又多一首歌ptsd了。
+
+*****
+
+####  bonnwang  
+##### 20431#       发表于 2025-6-18 18:40
+
+主世界谁的头发是跟修斯一样蓝色的：93的倩<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanlm  
+##### 20432#       发表于 2025-6-18 18:44
+
+这个宇宙只是拉拉临死前的幻想吧，这个宇宙消失了，拉拉应该就回到现实宇宙死掉了吧
+
+*****
+
+####  conanlm  
+##### 20433#       发表于 2025-6-18 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961767&amp;ptid=2209276" target="_blank">bonnwang 发表于 2025-6-18 18:40</a>
+
+主世界谁的头发是跟修斯一样蓝色的：93的倩</blockquote>
+不应该是卡缪吗<img src="https://static.stage1st.com/image/smiley/carton2017/205.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bonnwang  
+##### 20434#       发表于 2025-6-18 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961790&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 18:44</a>
+这个宇宙只是拉拉临死前的幻想吧，这个宇宙消失了，拉拉应该就回到现实宇宙死掉了吧 ...</blockquote>
+那78过来直接捅拉拉一光剑就修正历史了
+
+*****
+
+####  bonnwang  
+##### 20435#       发表于 2025-6-18 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961817&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 18:49</a>
+不应该是卡缪吗</blockquote>
+猫没死
+93倩被不孝子打死的时候灵魂脱体了
+
+*****
+
+####  ヒトニナル  
+##### 20436#       发表于 2025-6-18 18:52
+
+要我说最后的结局就是重启GQuuuuuuX世界线，所以紫婆的下场根本无所谓，汤大基也会复活，而大人的事情就让重启之后的大人们去解决吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 20437#       发表于 2025-6-18 18:54
+
+谁知道老登们是不是做梦都想看到夏亚去掉面具站在讲坛上对着麦克风宣布老子就是吉翁·戴肯的儿子卡斯巴尔·雷姆·戴肯，现在我要行使我的合法权利，吉翁的未来、宇宙居民和新人类的明天由我来指引口牙<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 20438#       发表于 2025-6-18 19:01
+
+Beyond the Time登上了iTunes Store日区单曲销售版的第4名(TMN专辑)和第23名(CCA OST)……今夕是何年？ 
+
+*****
+
+####  bonnwang  
+##### 20439#       发表于 2025-6-18 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961892&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-18 19:01</a>
+Beyond the Time登上了iTunes Store日区单曲销售版的第4名(TMN专辑)和第23名(CCA OST)……今夕是何年？  ...</blockquote>
+老登的实力
+
+*****
+
+####  猪突猛进R  
+##### 20440#       发表于 2025-6-18 19:12
+
+希望最后一集能听到骡子的处刑用小曲：
+[https://www.bilibili.com/video/BV1k94y177et](https://www.bilibili.com/video/BV1k94y177et)
+
+
+*****
+
+####  人生如戏  
+##### 20441#       发表于 2025-6-18 19:27
+
+还没看11话，但看了12话预告，这连元祖都来了，骡子不露一脸说不过去吧。
+然后结局要是一群人围着玛秋一边拍手一边说恭喜我都不会奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  朋友费小号  
+##### 20079#       发表于 2025-6-18 07:57
+
+吉夸克追番感觉确实有点赛博炉管的意思<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不说了等下周最后一集了，我先去起草投降书了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  syndrome2032  
+##### 20080#       发表于 2025-6-18 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957721&amp;ptid=2209276" target="_blank">cayon 发表于 2025-6-18 07:54</a>
+鸭子突然惊恐脸太jb搞笑了，合着你也压根不知道修司是谁就把红高达给他了是吧 ...</blockquote>
+对面不知道是谁却莫名亲近，什么，原来是骡子啊。
+
+
+*****
+
+####  未来起航  
+##### 20081#       发表于 2025-6-18 08:04
+
+nya与其说是什么极度自由，不如说是听不懂人话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像那位锦木千束：大道理觉得不对味儿听不懂的就丢一边，觉得对的也是生搬硬套（不鲨人这种），反正就突出一个没文化、不汴京
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  KDConan  
+##### 20082#       发表于 2025-6-18 08:09
+
+走同人的路，让同人无处不在<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pandaman7777  
+##### 20083#       发表于 2025-6-18 08:10
+
+真正的富野厨，公费追星，官方同人，真正的uc高达安利神片
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  无念  
+##### 20084#       发表于 2025-6-18 08:11
+
+这就是side2吃鸡冠军的含金量啊，怕不是当时扎古刚进开始安毒气罐她身体就疯狂报警准备跑路了，脑子还处于“哎？！”的状态呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  未来起航  
+##### 20085#       发表于 2025-6-18 08:11
+
+以及虽然梗玩得开心，但元祖要吃瘪的吧。修司这要整灭世的，一眼成不了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Ashice  
+##### 20086#       发表于 2025-6-18 08:13
+
+要是uc大乱斗把卡缪捷多都拉出来至少我会很开心啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 20087#       发表于 2025-6-18 08:15
+
+<blockquote>未来起航 发表于 2025-6-18 08:04
+nya与其说是什么极度自由，不如说是听不懂人话就像那位锦木千束：大道理觉得不对味儿听不懂的就丢一边，觉 ...</blockquote>
+这种动物塑的人物构建方式，难道不是膜上一作女主吗(记得当时有人觉得狸猫这种像野生小动物的塑造方式很独特愁找不到代餐的 现在有了
+
+*****
+
+####  RJG丶one  
+##### 20088#       发表于 2025-6-18 08:19
+
+紫婆该不会实际完全看不到kirakira，台词都是自己硬凹的吧
+第七集是杜感应到泽克诺瓦后发疯，紫婆被精神力高达炸了之后问了一句什么声音
+第11集是小森都看到kirakira了，紫婆一直没什么反应，被绿叔叔在米氏粒子流里感应到皱纹有几根了都没反应，最后见到人了找补了一句这是什么光
+
+该不会紫婆真的是纯种OT，就为了卡斯巴尔少爷和喵安这样的NT能过的好才用大义推着喵安往前走吧。
+
+纳尼，野史是真的？
+
+*****
+
+####  你妈的为什么  
+##### 20089#       发表于 2025-6-18 08:20
+
+水魔这种大人都出来明说改的了剧本玩意就算了吧
+
+总不能讨论水魔幻之原剧本吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暗示我7酱  
+##### 20090#       发表于 2025-6-18 08:21
+
+GQX是异闻带 修司是迦勒底 RX78-2是人理派发的冠位(？) 夏亚是异闻带之王 拉拉是圣杯/历史的分歧点 麻球喵安是异闻带原住民
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzy516232108  
+##### 20091#       发表于 2025-6-18 08:22
+
+这剧本感觉像是ai写出来的，设定几个新角色，然后再把高达/z高达/逆袭的夏亚流传度高的名场面塞进去，最后再把关键老角色塞进去。
+一开始我还想吐槽说喵安为了男人，大炮屏幕上写earth也当没看见，执意要开炮。
+结果两个人对了一轮刀枪以后喵安迅速下线让麻球拆机器人，后面的发展就进入了我看不懂但是大受震撼的阶段。
+说实话，这集播了啥我也不知道，反正各种超展开挺有意思的，好活烂活都比没活好
+
+*****
+
+####  zoomegg  
+##### 20092#       发表于 2025-6-18 08:25
+
+飒爽登场笑死
+这剧本还是阴湿肥宅写同人那味，只能说不能对庵野插手的东西有不切实际的期待
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 20093#       发表于 2025-6-18 08:25
+
+修司(骡子)逻辑还好理解吧。
+
+拉拉为了保护鸭子整了个gqux宇宙让你小子爽了。
+现在转头来你小子一句不能让拉拉干涉过多毁灭gqux宇宙。
+突出一个端起碗吃饭，放下碗骂娘。
+那我也没有必要装什么正人君子了。
+把白色恶魔叫过来毁灭gqux宇宙的基础逻辑，保护鸭子了。
+
+*****
+
+####  duo_wolf  
+##### 20094#       发表于 2025-6-18 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957682&amp;ptid=2209276" target="_blank">瓦拉几亚之夜 发表于 2025-6-18 07:39</a>
+
+那边联邦胜利的宇宙看到源源不断传送过来的吉翁军不知作何感想</blockquote>
+杀不完的吉翁残党的原因找到辣<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 翼宿一| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  6x6z6w  
+##### 20095#       发表于 2025-6-18 08:31
+
+所以现在新人类的上限又被提升了，以前还只是类似读心和预知未来的超能力，现在都能穿越平行宇宙+毁灭时间线了<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">什么时候加入漫威多元宇宙套餐啊
+
+*****
+
+####  朋友费小号  
+##### 20096#       发表于 2025-6-18 08:31
+
+ 本帖最后由 朋友费小号 于 2025-6-18 08:33 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">爽啊。
+
+这要真能是个机战（指srw）的原创剧本该多爽啊
+
+*****
+
+####  朋友费小号  
+##### 20097#       发表于 2025-6-18 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957849&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2025-6-18 08:31</a>
+
+所以现在新人类的上限又被提升了，以前还只是类似读心和预知未来的超能力，现在都能穿越平行宇宙+毁灭时间 ...</blockquote>
+纵向强度没怎么提升，独角兽和NT的时候就明确有新人类能升维或者存在愿意帮助新人类的高维存在了。
+
+吉夸克这次顶多是把没表现出来的能力横向拓宽了一下。
+
+*****
+
+####  失落之翼  
+##### 20098#       发表于 2025-6-18 08:35
+
+小森可爱捏<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 20099#       发表于 2025-6-18 08:37
+
+喵安ccb的逻辑不是这样的吗
+玛秋诶→修司在玛秋身边→跟着玛秋可以见到修司→所以玛秋不能死→要阻止紫婆开枪→ccb
+所以有没有做喵安爬在地上叫修酱的AI视频，我觉得挺合适的
+
+*****
+
+####  6x6z6w  
+##### 20100#       发表于 2025-6-18 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957864&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-18 08:35</a>
+
+纵向强度没怎么提升，独角兽和NT的时候就明确有新人类能升维或者存在愿意帮助新人类的高维存在了。
+
+吉夸 ...</blockquote>
+以前没直观表现出来还好，现在感觉看oo的世界观都觉得眉清目秀了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 20101#       发表于 2025-6-18 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957302&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 01:48</a>
+鸭和紫婆这一幕还灌水啊，实锤了在一部分老害心里，紫婆对鸭是那种感情。
+
+打比方，就像EVA有人说明日香喜 ...</blockquote>
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  朋友费小号  
+##### 20102#       发表于 2025-6-18 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957877&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2025-6-18 08:37</a>
+
+以前没直观表现出来还好，现在感觉看oo的世界观都觉得眉清目秀了……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我向来是无所谓的，毕竟我都玩机战了，只想看兄弟们还能整出点什么花活出来
+
+*****
+
+####  pandaman7777  
+##### 20103#       发表于 2025-6-18 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957415&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 02:32</a>
+X 上的 ideolo✨GSF 3組26/土曜西め-60ab：“最終話これでしょ #GQuuuuuuX [https://t.co/esQ4O7I8YJ” ...](https://t.co/esQ4O7I8YJ” ...)</blockquote>
+种命万能（
+
+—— 来自 [url=https://www.pgyer.com/GcUxKd4w]鹅球 v3.3.96
+
+*****
+
+####  aquakane  
+##### 20104#       发表于 2025-6-18 08:42
+
+巴上帝结晶兽状态下已经明确能主宰时空修改历史了，只不过被犁地拉回来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ads147147  
+##### 20105#       发表于 2025-6-18 08:49
+
+虽然说拉拉印象里的鸭子就是一副面具红皮，但是也是拉拉要求鸭子穿宇宙服上战场，这里鸭子换皮有一点点违和感，估计是故意做的笑点。然后刷来的白色恶魔这事啊，拉拉就见过rx782，来的这台元祖外皮的玩意鬼知道里头是什么东西。而且真的就是元祖，现在就剩一根光剑的红高达打个毛。
+
+现在就看下一集会不会真的从原世界线再拉来什么东西。。。
+
+*****
+
+####  西洛克  
+##### 20106#       发表于 2025-6-18 08:51
+
+rx78大概就是披着高达皮的伊迪安啦，结局人心之光，伊迪安机魂大悦放过这个世界（大概）
+
+*****
+
+####  ads147147  
+##### 20107#       发表于 2025-6-18 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957879&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-18 08:38</a>
+
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 鹅球 v3.3.96</blockquote>
+明日香确实喜欢加持，但是就这么认为会很肤浅（异世界舅舅评论的很贴切）。直白的认为紫婆喜欢鸭子很合理，但是这种喜欢混杂了很多其他因素，只是用喜欢来概括会很诡异。
+
+其实我觉得鹤卷在紫婆和鸭子的情感关系上已经写的很克制了，可是这是后现代解构时代，任何有矛头的设计都会被迅速滑坡解构，最后变成野史真史。。。
+
+*****
+
+####  ads147147  
+##### 20108#       发表于 2025-6-18 08:54
+
+话说小森什么时候画的眼影，我才注意到。。
+
+*****
+
+####  ヒトニナル  
+##### 20109#       发表于 2025-6-18 08:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但我认为既然鸭子换装是真真实实换了一套有实际质量的衣服，那传送过来的高达就算不是元祖也会被拉拉硬改成元祖
+
+*****
+
+####  朋友费小号  
+##### 20110#       发表于 2025-6-18 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957963&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-18 08:54</a>
+
+话说小森什么时候画的眼影，我才注意到。。</blockquote>
+一直都有眼影啊，从登场的时候就有
+
+*****
+
+####  syndrome2032  
+##### 20111#       发表于 2025-6-18 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957879&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-18 08:38</a>
+明日香不喜欢加持么？我一直都有疑问
+
+—— 来自 鹅球 v3.3.96</blockquote>
+明日香和加持大概类似鸭子那句话。
+
+什么啊，原来葵司是在我身上寻找父亲吗。
+
+*****
+
+####  reficul  
+##### 20112#       发表于 2025-6-18 08:57
+
+目前已经要迎接最后一话了，主要角色里还只有绿叔叔有比较明确的行动动机，而其他角色基本都是随波逐流，就靠配角给他们下指令。怪不得下一集的展开这么难猜，三小只/夏亚/阿姆罗/拉拉都不知道他们想要达成什么目的，自然无从谈起猜测下一个行动
+
+*****
+
+####  syndrome2032  
+##### 20113#       发表于 2025-6-18 09:01
+
+ 本帖最后由 syndrome2032 于 2025-6-18 09:02 编辑 
+
+gqux目前众人行动目的:
+鸭子:修正世界的扭曲所以要消灭玫瑰(拉拉)
+修司(骡子):鸭子装你mb呢，这个世界为什么存在你还不懂?我要修正你。目前目的:消灭鸭子。
+
+拉拉:刚睁眼，目的保护鸭子，下话大概率妇科元祖挡刀。
+
+马球:修司说的对，我也要保护拉拉。
+喵安:状态外
+
+绿叔叔:消灭紫色老太婆
+首席:保护紫色老太婆
+
+紫色老太婆:???
+绿色木马:吃瓜看戏中。
+
+下话首席哥别冲的太快直接被骡子当野狗踹死了。
+目前来看最适合作为骡子第一个靶子的就是首席的白色强人了。
+
+*****
+
+####  盐盐盐盐盐  
+##### 20114#       发表于 2025-6-18 09:02
+
+说是前三次zknv都是能量单方面流向另一边，那所罗门鸭子和红高为什么就没事而且也不知道消失到哪去了，还没事人一样在gqx世界里躲着活动………如果是被传走又被复现回来那单纯就是索顿没探测到而已？side6那次又是为什么把修司和红高传走了，单纯就是碰巧遇上波动了？那修司回另一边又是干啥了回来已经神功大成飞升到精神体挡ms？而且如果修司是side6那次传走阿巴瓦空这次才回来那索顿理应能探测到能量流入了吧，但是也没有？一个人的能量太小了测不出来非得复现元祖？但是前面复现红高也是一台ms就没有被索顿检测出zknv
+
+*****
+
+####  失落之翼  
+##### 20115#       发表于 2025-6-18 09:05
+
+修斯：我只是个路过的假面（划掉）高达骑士罢了<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 20116#       发表于 2025-6-18 09:07
+
+ 本帖最后由 syndrome2032 于 2025-6-18 09:11 编辑 
+
+所罗门坠落那次应该是鸭子脱出，红高达带着所罗门的1/4穿越到主世界。
+
+然后红高达撞上了主世界的修司(骡子)，得知了gqux世界的存在，然后红高达+修司穿越回side6撞上了鸭子开始计划。
+
+修司+红高达通过zeknova穿越走盲猜是玫瑰启动了，所以修司被拉拉判定成异物送走了。因为鸭子注定会被骡子灭杀，所以修司(骡子)不能存在于gqux世界。
+
+按照这话说法，彼岸世界穿越的zeknova共有3次。
+
+红高达传所罗门
+红高达传izuma
+传元祖
+
+前两次发生后红高达(以及修司)也得传回来。只能说是没在场没侦测到吧。
+
+*****
+
+####  yanghuangu  
+##### 20117#       发表于 2025-6-18 09:09
+
+如果穿越来的<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时空管理局  
+##### 20118#       发表于 2025-6-18 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957402&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 02:26</a>
+ 味道像那更应该是正史鸭附近的人，鸭闻着像异世界的骡什么的听着也太gay了  不过其实不管是鸭还是骡都不 ...</blockquote>
+看了这句台词，以及修司对鸭说的话。我有点怀疑修司就是鸭了，他那段话其实是对另一个自己说的。
+
+*****
+
+####  blood_iron  
+##### 20119#       发表于 2025-6-18 09:15
+
+结果论上来看喵安，side2出身的难民，毙了黑色二连星，一炮带走阿巴瓦空和上面的基连派部队，对着紫色老太婆腰子来了一枪，这战绩联邦不得连夜赶来授勋啊
+
+你知道吗，喵安拯救的生命超乎你的想象.jpg
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 20120#       发表于 2025-6-18 09:16
+
+高达真是乙游大世界呢，有蓝毛神秘男，有军队忠犬男，有小胡子中年帅，有金发碧眼背头，对于番茄来说吃的也太好了点。。。
+
+
+*****
+
+####  哈里-谢顿  
+##### 20121#       发表于 2025-6-18 09:22
+
+<img src="https://img.stage1st.com/forum/202506/18/092224rj37ipdjf24k0ias.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5975.jpeg</strong> (421.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-18 09:22 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/092224x5x1eedee55lpddl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5973.jpeg</strong> (239.51 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2025-6-18 09:22 上传
+
+*****
+
+####  武川日玄  
+##### 20122#       发表于 2025-6-18 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957415&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 02:32</a>
+
+X 上的 ideolo✨GSF 3組26/土曜西め-60ab：“最終話これでしょ #GQuuuuuuX [url]https://t.co/esQ4O7I8YJ” ...</blockquote>
+流星装备了
+
+*****
+
+####  洛亚替身  
+##### 20123#       发表于 2025-6-18 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957980&amp;ptid=2209276" target="_blank">reficul 发表于 2025-6-18 08:57</a>
+
+目前已经要迎接最后一话了，主要角色里还只有绿叔叔有比较明确的行动动机，而其他角色基本都是随波逐流，就 ...</blockquote>
+下一集完结，预测也没用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kaion111  
+##### 20124#       发表于 2025-6-18 09:26
+
+我还挺喜欢这个展开的，本来就做不了什么正剧，狂野的同人还挺乐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Schwarzess  
+##### 20125#       发表于 2025-6-18 09:29
+
+最 高 的 entertainment<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+紫婆画79自己的妆，说87哈曼的话，干93鸭的事，可以说是鸡瘟集大成了。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  LadySaazbaum  
+##### 20126#       发表于 2025-6-18 09:30
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心研究如何修复本世界线——这逼格可拔高太多了
+
+所以真的是魔法少女夏亚sama<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璇瑢子R| + 2|思路广|
+
+查看全部评分
+
+*****
+
+####  syndrome2032  
+##### 20127#       发表于 2025-6-18 09:31
+
+后半直接不装了，开始膜剧情。
+所以早知道这样前半你们少打点黑拳多膜点剧情不很好。
+
+这黑拳还是打的没意义
+
+*****
+
+####  Saber琪  
+##### 20128#       发表于 2025-6-18 09:31
+
+下集：
+修司：我会保护好她（拉拉）！
+夏亚：为了这个世界的存续，对不起拉拉，你只能去死！
+骡子（？）：我不在的这些天你很嚣张啊？
+夏利亚：为了nt的未来！
+首席哥：为了nt的未来！
+基西莉亚：阻碍我成为王者的都死吧！
+🍅：拉拉不会死！这个世界也不会被毁灭！
+喵安：喵？我不到啊？麻球说跟她走可以见到修司我就来了……啊？什么叫世界要被毁灭了？😱咋回事儿啊？这拉拉是谁啊？她唱歌好难听啊😫好恶心要吐了（指拉拉的悲鸣）修酱！你们不要再打了！麻球你怎么不给我解释一下啊
+
+*****
+
+####  望江南  
+##### 20129#       发表于 2025-6-18 09:32
+
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说拉东西过来我也以为应该是把骡子拉来了，没想到下一秒一整台元祖都飞出来了，真看笑了，甚至还搭上了原汁原味的bgm，鹤卷大统领，我们尊敬你口牙！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说为什么楼里都说“修斯（骡子）”，他们在剧内有暗示是一个人吗？我看完还以为修斯可能是骡子的后代或者正史谁的后代来着
+
+*****
+
+####  无动于衷  
+##### 20130#       发表于 2025-6-18 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958196&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 09:32</a>
+
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说 ...</blockquote>
+我觉得当嘴替更合适，这样骡子就不用请CV了 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑色天鹅  
+##### 20131#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958186&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 09:30</a>
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心 ...</blockquote>
+这不就是时狱篇的夏亚翻版……
+
+*****
+
+####  syndrome2032  
+##### 20132#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958196&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 09:32</a>
+给我看高潮了，看到修斯跳出来说我要毁灭这个世界的时候我已经做好准备他变boss和多方共斗的情节了，前面说 ...</blockquote>
+被拉拉吸引，座驾是元祖。宇宙种马直接抓着jk发情。
+
+只能是骡子，就算不是具体的79骡87骡93骡某一个版本的骡，也应该是某种意义上的骡子同位体，比如大战传说巨神版本的ai天海?
+
+*****
+
+####  吴怀在  
+##### 20133#       发表于 2025-6-18 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956515&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-6-17 23:58</a>
+可惜，BYD TIME新版消息提前放出了。要是随着今晚动画播出再上线才是最炸裂的 ...</blockquote>
+我开播前不看任何消息不看任何讨论是有用的
+太爽了
+
+*****
+
+####  GASEOUSSNAKE  
+##### 20134#       发表于 2025-6-18 09:37
+
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来的烂世界
+
+你看最后一集的标题都是富野老儿自传的书名
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kuriri| + 1|那真的是大爆笑了|
+
+查看全部评分
+
+*****
+
+####  mengsu  
+##### 20135#       发表于 2025-6-18 09:38
+
+看得太高兴了，稳稳+2，确实这片当成UC嘉年华就是最好的，每集都有大活，要说问题就是前几话搞得太严肃了，让人对作品的基调产生了误判。
+
+*****
+
+####  ヒトニナル  
+##### 20136#       发表于 2025-6-18 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但说实话修司的驾驶技术是不是不太行，开个红高达被魔女打的闹麻了
+我懂了，是制作组鸭子梦男用来辱骡的又一力证
+
+*****
+
+####  朋友费小号  
+##### 20137#       发表于 2025-6-18 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958118&amp;ptid=2209276" target="_blank">哈里-谢顿 发表于 2025-6-18 09:22</a></blockquote>
+影法师是懂梗的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dbyboy  
+##### 20138#       发表于 2025-6-18 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957472&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-18 03:06</a>
+
+地球联邦可是联“邦” ，硬要说旧世纪那一套都没彻底放下， 这和很多科幻作品里地球作为一个架空“国家 ...</blockquote>
+不用想这么多，那个年代对于“宇宙时代的人类文明集合政治体”的幻想要么是帝国要么是联邦
+
+你要是帝国了那怎么让吉翁去站法西斯的位置
+
+至少在0079原作里，没有明确指出过地球联邦的分裂势力，顶天了就是一些三不管地带
+
+*****
+
+####  创始’’’天翔  
+##### 20139#       发表于 2025-6-18 09:41
+
+年轻人的第一部铁盖塔
+
+*****
+
+####  Mr姜  
+##### 20140#       发表于 2025-6-18 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957563&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 06:15</a>
+
+老太婆很恋爱脑吗？对夏亚纯粹是劝诱，劝诱不成就要杀掉，也是纯粹的政治动物好吧 ...</blockquote>
+说实话，这集表现也不够政治动物，没两句就先举枪威胁，说有不知道的原因也不听一下就急吼吼要开枪
+
+*****
+
+####  银川智将Kuroky  
+##### 20141#       发表于 2025-6-18 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956752&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-18 00:21</a>
+
+与其拍这种前后剧情驴唇不对马嘴，叙事全靠抛梗接梗填充，全程一场能看的打戏都没有的答辩，还不如多出几季 ...</blockquote>
+大和田本来就是最佳梦男
+
+*****
+
+####  silvia  
+##### 20142#       发表于 2025-6-18 09:49
+
+搞半天整个gqx世界就是拉拉濒死前幻想出来的
+
+*****
+
+####  猎人D  
+##### 20143#       发表于 2025-6-18 09:50
+
+紫婆这一看到番茄就以为是鸭子拐来的红发美少女，急了就开枪了也说的过去
+
+*****
+
+####  Mr姜  
+##### 20144#       发表于 2025-6-18 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957775&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-18 08:15</a>
+
+这种动物塑的人物构建方式，难道不是膜上一作女主吗(记得当时有人觉得狸猫这种像野生小动物的塑造方式很 ...</blockquote>
+土豆和耄耋亦有差距jpg
+
+*****
+
+####  未来起航  
+##### 20145#       发表于 2025-6-18 09:51
+
+这下真的谁懂元祖出来一瞬间的救赎感了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mengsu  
+##### 20146#       发表于 2025-6-18 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骡子：听说你们这也有恶魔？
+
+*****
+
+####  朋友费小号  
+##### 20147#       发表于 2025-6-18 09:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不敢想完全没看任何情报直接看11集能有多爽，下周我也决定不看任何情报看12集了
+
+*****
+
+####  Steel.Haze  
+##### 20148#       发表于 2025-6-18 09:57
+
+还在大展开也是厉害，和飞越巅峰2一样不到最后一集不收尾。
+
+然后这个越到后期越是需要老观众电波。缺点是我看到很多云高达的新人已经无法同调开始用负面评价对冲自己无法理解剧情设置的情况了。夸克斯只是云过以往高达和世界观的人不容易进入电波中，老登和什么都不知道新观众反而能看到自己的体验，对中间观众群可谓极不友好。本质上这篇的核心体现在了“三人的关系性”，不过主角群三人的关系性是'伪物'，'真物'投射的是夏骡拉三人的关系性，但是对原作人物和周边设定缺乏既往观感和认知的情况下，就体验不到这一层设计。所以我觉得这部剧还是过于激进了。
+
+*****
+
+####  君への戦  
+##### 20149#       发表于 2025-6-18 09:58
+
+太爽了这剧追的，我现在就想到下周三
+
+*****
+
+####  银川智将Kuroky  
+##### 20150#       发表于 2025-6-18 10:01
+
+真遗老谁不是一堆弱智游戏玩烂了弱智动画看烂了的
+
+谁会对着这几个弱智梦男的东西发春啊
+
+*****
+
+####  lbzlxx  
+##### 20151#       发表于 2025-6-18 10:01
+
+就乱搞呗，元祖这垃圾性能过了一年战争屁都不是，这边科技树就是乱七八槽，庵野看的uc是独角兽吧，太过神化新人类和精神力了
+
+这剧本太少女偶像了
+
+*****
+
+####  闽明  
+##### 20152#       发表于 2025-6-18 10:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">会用GQX的名义再出一个版本的元组吗？带一张KIRAKIRA的背景特效纸就能卖
+
+*****
+
+####  推着箱子走  
+##### 20153#       发表于 2025-6-18 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956687&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-6-18 00:14</a>
+
+反了吧，是鸭子觉得拉拉干扰了世界稳定要消灭她。修司是出来保护拉拉的 ...</blockquote>
+拉拉是这个世界的悖论，鸭子为了世界要消灭拉拉（不孝！），修斯为了拉拉要毁灭世界
+
+*****
+
+####  洛克萨斯  
+##### 20154#       发表于 2025-6-18 10:04
+
+kirakira，要杀死拉拉的鸭子
+
+这下真的是闪光的不孝子了<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hyst3r1a  
+##### 20155#       发表于 2025-6-18 10:07
+
+这番茄怎么看到男人就脸红
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  oi99o  
+##### 20156#       发表于 2025-6-18 10:07
+
+才反应过来玛丘躲浮游炮那会是没开塞可缪的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绿叔叔特训班这么nb的吗
+
+*****
+
+####  pokemon最爱  
+##### 20157#       发表于 2025-6-18 10:09
+
+说到底是对作品的预期问题，把GQX当BF和种自那种纯粹服务粉丝的老害狂欢作品看就没有任何问题了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 20158#       发表于 2025-6-18 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958436&amp;ptid=2209276" target="_blank">Hyst3r1a 发表于 2025-6-18 10:07</a>
+
+这番茄怎么看到男人就脸红
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你看看这都是什么男人啊，这几个男人要气质有气质，要颜值有颜值，她一个青春期怀春少女，脸红好正常
+
+*****
+
+####  mengsu  
+##### 20159#       发表于 2025-6-18 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958460&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-18 10:09</a>
+
+你看看这都是什么男人啊，这几个男人要气质有气质，要颜值有颜值，她一个青春期怀春少女，脸红好正常
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们gquuuux可真是乙游大世界啊
+
+*****
+
+####  早乙女元气  
+##### 20160#       发表于 2025-6-18 10:12
+
+这片已经和新来打一个味了，不面向任何观众，纯作者自嗨
+
+
+*****
+
+####  hououmon  
+##### 20161#       发表于 2025-6-18 10:14
+
+没看情报真是太爽了，一段强劲的音乐响起的时候直接高潮了
+
+可惜还是被B站推荐视频的封面透了782
+
+*****
+
+####  吴怀在  
+##### 20162#       发表于 2025-6-18 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958459&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-18 10:09</a>
+说到底是对作品的预期问题，把GQX当BF和种自那种纯粹服务粉丝的老害狂欢作品看就没有任何问题了不要带着对U ...</blockquote>
+我也感觉骂得狠的人可能是对uc高达有不切实际的滤镜
+
+我是三月份补完UC高达关键作品，当时还在泥潭发过帖子问怎么补。对我来说UC高达是好作品，然而我没有那么深的情怀，因此gqx看得开心极了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 20163#       发表于 2025-6-18 10:21
+
+修司在的世界也不是正史吧
+
+*****
+
+####  mengsu  
+##### 20164#       发表于 2025-6-18 10:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这一话看得最开心的场景就是老太婆和夏亚在Z老害剧场逼逼赖赖大道理的时候两小只一个从天而降一个直接拍碎舞台，创造新时代的终究是年轻人...吧？
+
+*****
+
+####  少年游不游  
+##### 20165#       发表于 2025-6-18 10:26
+
+感觉番茄跟喵安在这番就像两JK穿越UC宇宙一样
+
+*****
+
+####  Asukalangley33  
+##### 20166#       发表于 2025-6-18 10:27
+
+真有楼里骂的那么烂嘛<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+我觉得挺好啊
+
+有一种以前看银河美少年的糊逼味
+
+榎户洋司不就擅长这种么
+
+*****
+
+####  zoomegg  
+##### 20167#       发表于 2025-6-18 10:30
+
+我寻思来都来了，为什么不用最潮最IN的世博会限定装备ww<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/102940j18i6l8rjhhjzn71.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250618102923.png</strong> (55.18 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 10:29 上传
+
+*****
+
+####  望江南  
+##### 20168#       发表于 2025-6-18 10:31
+
+ 本帖最后由 望江南 于 2025-6-18 10:32 编辑 
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如何诞生的吗）
+
+2、修斯的真实身份（我是来自另一个世界的人）
+
+3、修斯“高达是这样说的”到底是口癖还是他真的在听某人的指令？
+
+4、发短信的幕后黑手是谁（to the beginning）
+
+5、gq鸭消失后是从何时回来，回到何地的？
+
+虽然目前看我是对这番人物塑造不报太多期待了，但剧请设定这方面能交上一份满意答卷吗鹤卷<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+1其实好像挺直接了，或许是正史拉拉穿越过来之后的濒死梦？但是这样在这个世界里居然又嵌套了一个gq拉拉，而且还能和自己神交，感觉设定好奇怪
+
+2估计就是给修斯找个爹了，实在和骡子难以扯上关系...
+
+3这一点主要是回头看修斯ep7消失的时候很奇怪，修斯明显是了解zeknova的，他一点犹豫没有就直接上机了是什么原因？当然目的肯定就是摧毁gq世界保住拉拉，但是这里或许是在暗示修斯有自己的情报员/上头之类的？
+
+4我个人倒是觉得发短信的不太像修斯，因为这短信预见性和安排太强了，但是番茄和喵安一开始实在不像是有很特殊身份的人，比起有大手在安排她俩更像是有拥有未来视的人在回头指点，我甚至有种是番茄ep12搞定一切后回溯回去给自己指点的感觉<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+5主要是我愣是没看懂这鸭子到底怎么回来的，12集很直接的提到了zeknova就是往邻居家丢乐色，小森工具人上尉专门提了一嘴只有这次zeknova是邻居往我家丢，那79if里夏亚是飞去哪了？他怎么回来的？鹤卷你不会就用什么夏亚偷偷传回来没有被观测到来搪塞过去吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20169#       发表于 2025-6-18 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958612&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 10:31</a>
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如 ...</blockquote>
+gqux夏亚就没去过正史（待定）啊。是红高达传去正史，然后修斯（正史）带着红高达传回来了遇到gqux夏亚
+
+*****
+
+####  aptx8285144  
+##### 20170#       发表于 2025-6-18 10:34
+
+<blockquote>mengsu 发表于 2025-6-18 09:38
+看得太高兴了，稳稳+2，确实这片当成UC嘉年华就是最好的，每集都有大活，要说问题就是前几话搞得太严肃了， ...</blockquote>
+话说刚开始以为番茄是葵丝役，尼亚安现在倒是愈发比葵丝还搞笑了，遇错了人(紫婆)就是这么搞笑呀
+
+*****
+
+####  你妈的为什么  
+##### 20171#       发表于 2025-6-18 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958508&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-6-18 10:16</a>
+
+我也感觉骂得狠的人可能是对uc高达有不切实际的滤镜
+
+我是三月份补完UC高达关键作品，当时还在泥潭发过帖 ...</blockquote>
+我倒是感觉骂的狠的反而都是不看uc只是拿uc当枪拉踩其他高达以致衍生到其他片来提升自己地位的，真看过UC的老害看的笑都来不及好吧，要看正剧等哈撒韦去
+
+*****
+
+####  adretyu67.  
+##### 20172#       发表于 2025-6-18 10:35
+
+前半还是ucif的黑拳，现在直转拉拉游乐园。
+
+前半ucif这个背景下打黑拳还真是浪费时间，不如多膜点其他uc哏算了。
+
+*****
+
+####  推着箱子走  
+##### 20173#       发表于 2025-6-18 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957272&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-18 01:41</a>
+
+你为啥说铁血没人追？当年铁血每周在优土豆同步更新官方中文字幕版，哪里会没人追呢。 ...</blockquote>
+是啊，铁血要是没人追，名场面能在当时火出圈吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 20174#       发表于 2025-6-18 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958580&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2025-6-18 10:27</a>
+
+真有楼里骂的那么烂嘛
+
+我觉得挺好啊</blockquote>
+不烂，不过确实也算烂，总之就很难评。
+
+只能说编剧和编剧之间亦有差别，GQ和铁血一样有形的大手随处可见，但铁血被人骂成狗，而GQ反而还有人夸。
+
+早点放空大脑把这片当成创战者类似的片子，就不会别扭。
+
+*****
+
+####  望江南  
+##### 20175#       发表于 2025-6-18 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958622&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-18 10:33</a>
+
+gqux夏亚就没去过正史（待定）啊。是红高达传去正史，然后修斯（正史）带着红高达传回来了遇到gqux夏亚 ...</blockquote>
+夏亚没去正史是怎么从所罗门里活下来的啊，这都能脱出？太离谱了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然我估计可能真是这个意思了，有不打算解释的可能...
+
+*****
+
+####  银川智将Kuroky  
+##### 20176#       发表于 2025-6-18 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958246&amp;ptid=2209276" target="_blank">GASEOUSSNAKE 发表于 2025-6-18 09:37</a>
+
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来 ...</blockquote>
+这梗在异世界高达中用过了
+
+*****
+
+####  西瓜夜行  
+##### 20177#       发表于 2025-6-18 10:40
+
+也不是烂不烂的问题
+
+就是能不能对上电波
+
+能对上就是嗨翻了
+
+对不上就完球
+
+*****
+
+####  molemole  
+##### 20178#       发表于 2025-6-18 10:41
+
+这好像不是电波的问题吧
+
+*****
+
+####  缪斯替  
+##### 20179#       发表于 2025-6-18 10:41
+
+也没必要搞这种区分真假的除籍叙事啦，你看40k老害里不也有模型乐子人和入脑入心的帝国信徒……
+历史一长，粉丝就越来越不可能用同样的角度享受作品了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  根正苗红  
+##### 20180#       发表于 2025-6-18 10:42
+
+ 本帖最后由 根正苗红 于 2025-6-18 10:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958633&amp;ptid=2209276" target="_blank">**为什么 发表于 2025-6-18 10:34</a>
+我倒是感觉骂的狠的反而都是不看uc只是拿uc当枪拉踩其他高达以致衍生到其他片来提升自己地位的，真看过UC ...</blockquote>
++1。老害表示看到很开心。老大岁数了，谁还钻这牛角尖啊。放不下身段的大概是强言附和的小害，或者还不够老，仍旧拿uc当令箭的中害<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Evomenon  
+##### 20181#       发表于 2025-6-18 10:42
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCMR-W09, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  moudianzi  
+##### 20182#       发表于 2025-6-18 10:43
+
+之前我很困惑修斯如何收尾，这集看完后，我更困惑喵安如何收尾了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+顺着现在这股整蛊的劲头，我都不敢想她下集还能干出什么事<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zoomegg  
+##### 20183#       发表于 2025-6-18 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958655&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 10:36</a>
+
+不烂，不过确实也算烂，总之就很难评。
+
+只能说编剧和编剧之间亦有差别，GQ和铁血一样有形的大手随处可见 ...</blockquote>
+创战可不别扭，毕竟定位清晰的很，所以看得也爽
+
+这边就确实如你所说，挺难评www有种致敬太多没什么独立性的感觉，但也不是说超展开不好看
+
+*****
+
+####  kaion111  
+##### 20184#       发表于 2025-6-18 10:45
+
+修斯应该不会是骡子现代化改造，但是感觉这个走向是修斯上元祖，他到底是什么底细
+
+*****
+
+####  璇瑢子R  
+##### 20185#       发表于 2025-6-18 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958694&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 10:42</a>
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的
+
+—— 来自 HUAWEI SC ...</blockquote>
+因为填了坑总有人去挑各种各样的毛病。
+
+但是留白让观众自己脑补，观众对自己的宽容度一般大得惊人
+
+*****
+
+####  推着箱子走  
+##### 20186#       发表于 2025-6-18 10:49
+
+最后的元祖也许不是实体，下一集打着打着掏出一堆pb配件包，超进化成牛高达什么的也不是不可能
+
+*****
+
+####  无动于衷  
+##### 20187#       发表于 2025-6-18 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958555&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 10:23</a>
+
+这一话看得最开心的场景就是老太婆和夏亚在Z老害剧场逼逼赖赖大道理的时候两小只一个从天而降一个直接拍碎 ...</blockquote>
+所以小番茄被各年龄段男人挨个壁咚摸头一遍也是昭和老登笔下的大女主了是吧
+
+*****
+
+####  adretyu67.  
+##### 20188#       发表于 2025-6-18 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958694&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-6-18 10:42</a>
+
+从夏亚和修司的关系用PPT糊弄，可以预计到：很多观众以为的“坑”他们都不会打算填的
+
+—— 来自 HUAWEI SC ...</blockquote>
+关键是：夏亚的计划是什么。
+
+现在看来夏亚的计划根本不需要修斯。等着进手电筒就好了。
+
+*****
+
+####  楽園のエル  
+##### 20189#       发表于 2025-6-18 10:50
+
+夏亚变身这个演出 是你 银河美少年！
+
+哦是夏户洋司啊那没事啦！
+
+*****
+
+####  猪突猛进R  
+##### 20190#       发表于 2025-6-18 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958713&amp;ptid=2209276" target="_blank">kaion111 发表于 2025-6-18 10:45</a>
+
+修斯应该不会是骡子现代化改造，但是感觉这个走向是修斯上元祖，他到底是什么底细 ...</blockquote>
+如果拿创战者来做对比的话，修司就是岭司，同样是从对面世界过来的。
+
+所以这个角色什么底细完全不重要。
+
+*****
+
+####  Asukalangley33  
+##### 20191#       发表于 2025-6-18 10:52
+
+之前我质疑鹤卷老登不懂现在年轻人硬蹭，现在正式道歉
+
+番茄这见一个爱一个、颜控、嘴硬不认错是真没毛病
+
+我现在很明确她对修司100%不是所谓的“爱情”
+
+*****
+
+####  璇瑢子R  
+##### 20192#       发表于 2025-6-18 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958447&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-18 10:07</a>
+
+才反应过来玛丘躲浮游炮那会是没开塞可缪的绿叔叔特训班这么nb的吗</blockquote>
+这一集首席哥战斗力也突飞猛进了。。。。
+
+这片大概就没想好好讲驾驶能力的事情
+
+*****
+
+####  璇瑢子R  
+##### 20193#       发表于 2025-6-18 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958612&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 10:31</a>
+
+目前应该还有5个点需要解答：
+
+1、gq世界的根基到底是什么，平行世界/梦？（修斯：难道你不清楚这个世界是如 ...</blockquote>
+还有一个问题，小番茄真就自动假设就找到了玫瑰拉拉吗？
+
+那么其他哪些找玫瑰的人为什么找不到呢
+
+*****
+
+####  zzf111  
+##### 20194#       发表于 2025-6-18 10:55
+
+夏亚zknv传去哪里了干什么了不填，夏亚和修斯怎么认识在哪认识红高怎么就给修斯了不填，博美队有鬼的哈啰不填，神秘短信谁发的不填，gqx的高达有没有机魂不填，这些东西吊了人十几集让你看和主线无关的闹麻中产小资官二代和本能生物哈基喵打黑拳+塑料姐妹情+谜语人弱智男主+集抛噱头情怀
+
+能看乐的当然都是对故事素质不抱期望了，都不是对不对得上电波的问题，和遗佬有什么关系
+
+*****
+
+####  LOLITA  
+##### 20195#       发表于 2025-6-18 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958693&amp;ptid=2209276" target="_blank">根正苗红 发表于 2025-6-18 10:42</a>
+
++1。老害表示看到很开心。老大岁数了，谁还钻这牛角尖啊。放不下身段的大概是强言附和的小害，或者还不够 ...</blockquote>
+是这个道理
+
+*****
+
+####  秋月孝三  
+##### 20196#       发表于 2025-6-18 10:55
+
+<img src="https://img.stage1st.com/forum/202506/18/105545g1e4ed07z410iu4m.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1750215332134.png</strong> (32.85 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 10:55 上传
+
+什么虎狼之辞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20197#       发表于 2025-6-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958788&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 10:54</a>
+
+还有一个问题，小番茄真就自动假设就找到了玫瑰拉拉吗？
+
+那么其他哪些找玫瑰的人为什么找不到呢 ...</blockquote>
+不是自动驾驶，是unknown导航找到的。
+
+*****
+
+####  wbtsy  
+##### 20198#       发表于 2025-6-18 10:59
+
+很多人都没看过富野那几部高达。
+
+他们口中的uc，就是看了几部军武ova和设定集、历史轴以后的一个概念。而富野的高达和那这人心目中的uc高达根本不是一回事。这种属于“UC小害”。
+
+*****
+
+####  adretyu67.  
+##### 20199#       发表于 2025-6-18 11:01
+
+79 z zz cca是好文明，10多年前我还在大学看cca和前几天重看cca对台词的想法就是不一样的。
+
+*****
+
+####  银川智将Kuroky  
+##### 20200#       发表于 2025-6-18 11:01
+
+正经来说观感还是很差
+
+但是很热闹
+
+你抱着看正作的心态来看，远不如一大堆外传漫画比如A一串G
+
+你抱着看搞笑漫画和光头梦男的心态，远不如大和田秀树
+
+整体来说不上不下，但对于又不看那些外传漫画也不怎么玩游戏的“老害”来讲，可能又刚刚好
+
+反正算是近几年最有趣的高达动画，但也仅此而已了
+
+
+*****
+
+####  姬萩九郎  
+##### 20201#       发表于 2025-6-18 11:03
+
+我悟了，gux是一个异闻带，原作骡子是主时间线里迦勒底召唤来剪除异闻带的英灵，鸭子变衣服其实是被英灵鸭子瞬间夺舍了
+
+*****
+
+####  燃烧的石头  
+##### 20202#       发表于 2025-6-18 11:04
+
+剧情写的烂是一回事，但是看的爽又是另外一回事了，现在只期望既然元祖都出来了，那么最后一集能打的好看一点吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  炼金王  
+##### 20203#       发表于 2025-6-18 11:04
+
+最终话标题是富野自传书名 
+
+78上是他也没什么不可以的（
+
+*****
+
+####  aptx8285144  
+##### 20204#       发表于 2025-6-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958701&amp;ptid=2209276" target="_blank">moudianzi 发表于 2025-6-18 10:43</a>
+
+之前我很困惑修斯如何收尾，这集看完后，我更困惑喵安如何收尾了
+
+顺着现在这股整蛊的劲头，我都不敢想她下 ...</blockquote>
+放在光头笔下或者说黑富野笔下，喵安肯定会死，好一点是认识到自己的癫狂问题后死去，但是鹤卷要讨好年轻一代，给年轻人反省机会的话，活下去概率很大
+
+*****
+
+####  swessia  
+##### 20205#       发表于 2025-6-18 11:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">乐归乐我觉得还没到烂的程度
+
+剧情肯定有问题但大纲是没问题的我感觉【MAV到底有什么用，抱歉大纲里没这东西<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">】
+
+但是节奏以及演出特别是机战画面绝对有大问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 20206#       发表于 2025-6-18 11:05
+
+确实自传
+
+Image_1750176705097.jpg
+(125.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/110527zlw5sz9ll75gwllr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20207#       发表于 2025-6-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958890&amp;ptid=2209276" target="_blank">燃烧的石头 发表于 2025-6-18 11:04</a>
+
+剧情写的烂是一回事，但是看的爽又是另外一回事了，现在只期望既然元祖都出来了，那么最后一集能打的好看一 ...</blockquote>
+就11话绿叔叔和首席互相描边半天，麻球和喵安撕了一会最后飞踢踢走。我觉得很难。
+
+不如继续加哏玩大乱斗。
+
+*****
+
+####  ryanghj  
+##### 20208#       发表于 2025-6-18 11:06
+
+玛秋和喵安就是鹤卷和庵野的化身，头也不回的追逐修司（富野）
+
+这就是大型情书片子
+
+*****
+
+####  永远的春天  
+##### 20209#       发表于 2025-6-18 11:08
+
+<blockquote>炼金王 发表于 2025-6-18 11:04
+最终话标题是富野自传书名 
+
+78上是他也没什么不可以的（</blockquote>
+毕竟是宇宙世纪第一个觉醒的new type  他徒弟长谷川说的。
+
+*****
+
+####  少年游不游  
+##### 20210#       发表于 2025-6-18 11:08
+
+感觉再多给一话的空间可能会好，这集名场面赛的有点溢出了，剧院场景感觉是为了爽一把强加的，番茄站了西罗克位
+
+*****
+
+####  iuiuk2  
+##### 20211#       发表于 2025-6-18 11:08
+
+不带脑子看还是挺好看（笑）的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情看着是没时间圆了，就看下集能不能整点爽的，别再整出第7话那种无聊的寸止就行
+
+*****
+
+####  燃烧的石头  
+##### 20212#       发表于 2025-6-18 11:08
+
+ 本帖最后由 燃烧的石头 于 2025-6-18 11:11 编辑 
+
+gq快点进机战吧，这样的说不定79，三个8，z和zz都能剧情参战了，现在的机战老uc都是机体参战挺没意思的，有了gq之后老uc在机战里的剧情又能瞎几把乱编了。最后救下拉拉，整个骡鸭拉三人合体技我要高潮了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  asdhai  
+##### 20213#       发表于 2025-6-18 11:08
+
+<img src="https://img.stage1st.com/forum/202506/18/110848hcmy4x4qfklkjlaj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-06-18-11-07-00-740_com.twitter.android.jpg</strong> (173.18 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2025-6-18 11:08 上传
+
+*****
+
+####  Toby_dak  
+##### 20214#       发表于 2025-6-18 11:09
+
+<img src="https://p.sda1.dev/25/1b54d9f450a0b054f4c446ad61bbcbcc/1000126763.png" referrerpolicy="no-referrer">
+
+继续霸榜<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  aptx8285144  
+##### 20215#       发表于 2025-6-18 11:09
+
+虽说很早就看出来鹤卷这群人就是套着UC高达皮做青春萝卜片，但是放飞自我到现在这个程度倒是没想到<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 20216#       发表于 2025-6-18 11:11
+
+实际乙女（
+<img src="https://p.sda1.dev/25/2277d71dc3d81d7416b754d4eb5fc29d/Screenshot_20250618_110802.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 20217#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958601&amp;ptid=2209276" target="_blank">zoomegg 发表于 2025-6-18 10:30</a>
+
+我寻思来都来了，为什么不用最潮最IN的世博会限定装备ww</blockquote>
+作为老登而言，TV782就是最完美的机设，加一根毛都是画蛇添足。
+
+*****
+
+####  kk霖洞九  
+##### 20218#       发表于 2025-6-18 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958807&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-18 10:55</a>
+夏亚zknv传去哪里了干什么了不填，夏亚和修斯怎么认识在哪认识红高怎么就给修斯了不填，博美队有鬼的哈啰不 ...</blockquote>
+因为环S1真有一群自认“UC遗老”的粉丝觉得这群老害做的片剧情结构严谨设定硬核，特别是哔站
+
+*****
+
+####  璇瑢子R  
+##### 20219#       发表于 2025-6-18 11:11
+
+我觉得看的不爽的主要是前些话疯狂分析剧里剧外各种线索各种推理的。
+
+典型就是那种一秒闪过的新闻内容，还有鸭子鸭妹中间加了一帧的拉拉那种
+
+现在明摆着啥逻辑都不在乎只求爆点那之前的各种分析研究都没有意义了
+
+这种看片态度和资历大概没有关系。极限一点，互联网普及之前就没有这种土壤
+
+*****
+
+####  ads147147  
+##### 20220#       发表于 2025-6-18 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958186&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 09:30</a>
+
+是说GQX夏亚在“看到时间后”，搁置了对扎比家复仇，也没想往地球扔石头，不谈恋爱不去嫖娼，五年来就潜心 ...</blockquote>
+如果鸭子发现自己78年顺风顺水是有人搞楚门的世界，自己活在矩阵里，大概率也不会心安理得的去搞什么报复扎比家的事，挺有可能会陷入极度的虚无主义认为这一切都是虚假的要去寻找真实的世界，本质上和番茄觉得side6的天空好假的味道是一样的。
+
+就看最终话怎么圆了
+
+*****
+
+####  gammatau  
+##### 20221#       发表于 2025-6-18 11:12
+
+<blockquote>GASEOUSSNAKE 发表于 2025-6-18 09:37
+脑洞大点，我觉得最后一集里元祖高达里坐着的是动漫化的富野光头，一边怒骂一边毁灭这个遗老们磕嗨创造出来 ...</blockquote>
+如果真的是fy的话，那我觉得肯定得是gqx的小孩打败他了。
+
+一部热热闹闹的平行世界线动画，结局是快入土的老头原作者来毁灭这个世界让一切重归“正统”吗，这对高达企划的未来坏印象不可估量。fy也会同意的，毕竟创造未来的不是老人
+
+说起来，最近好像有部经典游戏的重制版也在过于用力地让主角打败一些不知哪里冒出来，想要“维护原本历史走向”的敌人这种过于meta的创作……
+
+*****
+
+####  adretyu67.  
+##### 20222#       发表于 2025-6-18 11:13
+
+ 本帖最后由 adretyu67. 于 2025-6-18 11:17 编辑 
+
+这话元祖出来那一刻基本就宣告红高达（gqux ver） gqux fred都是路边了吧。
+
+这玩意就不该出现在这个片场，但是真出现了还能不给面子吗。
+
+下话要是欺诈不给元祖戏份那就欺诈毫无意义了。
+
+特别是已经钦定了元祖=鸭子的一生之敌，次次打爆鸭子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 20223#       发表于 2025-6-18 11:22
+
+庵野秀明知道自己会让鹤卷写的角色去打败他爹吗？
+
+*****
+
+####  last_regret  
+##### 20224#       发表于 2025-6-18 11:23
+
+说来，TA的黑历史里会包括gqux吗
+
+*****
+
+####  洛克萨斯  
+##### 20225#       发表于 2025-6-18 11:25
+
+78和红高达理论上硬件参数一样，红高达装了阿尔法赛克缪，但是浮游炮没了，不知道能强化多少反应速度，78有磁气覆膜，硬件上有优势
+
+就是看里面到底是不是骡叔叔了
+
+*****
+
+####  deadpig  
+##### 20226#       发表于 2025-6-18 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958173&amp;ptid=2209276" target="_blank">Schwarzess 发表于 2025-6-18 09:29</a>
+
+最 高 的 entertainment
+
+紫婆画79自己的妆，说87哈曼的话，干93鸭的事，可以说是鸡瘟集大成了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">卡多：这就是吉翁精神的具现化啊
+
+*****
+
+####  ティグル  
+##### 20227#       发表于 2025-6-18 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+按照代便的设定，会
+
+*****
+
+####  ads147147  
+##### 20228#       发表于 2025-6-18 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959070&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-6-18 11:22</a>
+
+庵野秀明知道自己会让鹤卷写的角色去打败他爹吗？</blockquote>
+不然鹤卷怎么会说直到快做完了才给痞子看，先斩后奏了。
+
+*****
+
+####  猪突猛进R  
+##### 20229#       发表于 2025-6-18 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+这取决于你是不是把创战者等钢普拉作品看作是高达，如果你觉得创战者之类也是高达，那就包括。
+
+*****
+
+####  猪突猛进R  
+##### 20230#       发表于 2025-6-18 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959103&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 11:25</a>
+
+78和红高达理论上硬件参数一样，红高达装了阿尔法赛克缪，但是浮游炮没了，不知道能强化多少反应速度，78有 ...</blockquote>
+咋还执着于MS的性能差异啊。
+
+出来的是元组ZERO，并不是78-2。
+
+你可以看作是宇宙怪兽套了个78-2的皮。
+
+*****
+
+####  deadpig  
+##### 20231#       发表于 2025-6-18 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958224&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-6-18 09:34</a>
+
+我开播前不看任何消息不看任何讨论是有用的
+
+太爽了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">太爽哩
+
+我也是回过来看专楼才发现插入歌有预告，这把赚了
+
+*****
+
+####  miaoye  
+##### 20232#       发表于 2025-6-18 11:32
+
+脑内自动播放无限接近，又极其遥远的世界。出现百鬼帝国和木连感觉都不会奇怪了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| su37mkk| + 1|我也是冒出这个bgm|
+| Evomenon| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 20233#       发表于 2025-6-18 11:32
+
+红高达（gqux ver）是元祖的同构体，红高达和gqux打军团战，gqux和fred是姊妹机。
+
+这一串下来四台机子纸面上是都差不多。
+
+*****
+
+####  西洛克  
+##### 20234#       发表于 2025-6-18 11:33
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了
+
+*****
+
+####  体制  
+##### 20235#       发表于 2025-6-18 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957400&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-18 02:25</a>
+大概比正片更搞笑的是gqx粉丝指着一个整天在高吧和nga各种发帖乱串的人说是水魔厨 ...</blockquote>
+我们又没闲心做背调，单看这楼里表现他不就是个水魔厨。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  adretyu67.  
+##### 20236#       发表于 2025-6-18 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+gqux这话不就是答辩活人现场传送进手电筒内部。
+
+规模太小了没侦察到？
+
+*****
+
+####  ads147147  
+##### 20237#       发表于 2025-6-18 11:35
+
+TA是一切世界线的终结，只要你挂着高达的名字，终末就是TA，这点不会改的。
+
+这样说唯一态是我们这个世界播出的0079，结局是CCA。修斯可能是其他世界线，甚至是被冻结的拉拉的那个世界线（A世界线）的骡子，开元祖干掉了A世界线的鸭子。使得A世界线的拉拉穿越到gqux的世界线（B世界线）通过nt能力干扰变成鸭子能飒爽的楚门世界，所罗门事件为了防止鸭子连同所罗门一起死在月球表面，A世界线的拉拉发功把自己和鸭子拉到其他时空点，自己被吐到了大海里，B世界线的鸭子遇到了修斯，并且通过nt交流知道了自己其实是被单方面维护才能飒爽，所以B世界线的鸭子进入了研究所试图抹掉让自己活在虚幻温床里的A世界线拉拉以至于自己没碰到原版自己世界的拉拉。而修斯不知道为什么获得了红高达并且在side6活动，可能是有意的引导番茄找到自己开启gqux的故事，现在进入了世界线收束点了。
+
+*****
+
+####  银川智将Kuroky  
+##### 20238#       发表于 2025-6-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957400&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-6-18 02:25</a>
+
+大概比正片更搞笑的是gqx粉丝指着一个整天在高吧和nga各种发帖乱串的人说是水魔厨 ...</blockquote>
+上贴吧的小白不就是新时代畜
+
+有啥问题
+
+*****
+
+####  Toby_dak  
+##### 20239#       发表于 2025-6-18 11:39
+
+纠结正史野史黑历史的想什么？
+
+鶴巻无论是剧场版的场刊还是TV开播前的访谈，不止一次说过这是基于0079的仮想戦記，所以连制作目的都没看懂的在讨论不存在的东西？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  downnote  
+##### 20240#       发表于 2025-6-18 11:39
+
+鸭子这么长时间以来已经新老观众一起群嘲了，简直就是狂欢，甚至浓度多得都有些不适了（虽然我自己也参与）。希望下一集能好好弄，还是得长长脸啊
+
+
+*****
+
+####  LadySaazbaum  
+##### 20241#       发表于 2025-6-18 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958975&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-6-18 11:12</a>
+
+如果鸭子发现自己78年顺风顺水是有人搞楚门的世界，自己活在矩阵里，大概率也不会心安理得的去搞什么报复 ...</blockquote>
+与其说是陷入虚无主义，至少目前来看GQX鸭还是很有能动性，都动手去修正世界线，
+
+放在戏内很合理放在戏外也显得角色觉悟很高，和恋母萝莉控有云泥之别，对于现时点的观众来说非常友好，非常愿意买账
+
+Khara社流石鸭嬷，这一话特别给鸭鸭吸粉，尤其女粉<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牙狼GARO  
+##### 20242#       发表于 2025-6-18 11:41
+
+别的不说，btt响起来时候真是猛吸一口气一身鸡皮疙瘩
+
+*****
+
+####  猪突猛进R  
+##### 20243#       发表于 2025-6-18 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+红高达和艾尔梅斯过来不一定靠的泽克诺瓦，尤其是艾尔梅斯过来。
+
+GQ里的泽克诺瓦必须通过艾尔梅斯这个控制中心，那艾尔梅斯是怎么来的？
+
+唯一确定反向泽克诺瓦的，是11集片尾传送过来的白色恶魔。
+
+*****
+
+####  Saber琪  
+##### 20244#       发表于 2025-6-18 11:42
+
+<img src="https://p.sda1.dev/25/9a99559b4f5251e9da1e3f25c957e467/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 20245#       发表于 2025-6-18 11:43
+
+红高达性能根本无所谓好吧。。
+
+就拉拉能给夏亚换衣服，那给红高达换点武器或者配件，或者直接变成另外的机体都是编剧一句话的事情。。。
+
+当然我不是说夏亚会赢。只是说这些都不重要
+
+*****
+
+####  无念  
+##### 20246#       发表于 2025-6-18 11:44
+
+都说是大爆笑了
+那我估计下一话开头鸭子就要表演脱出了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 20247#       发表于 2025-6-18 11:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡夸鸭能超越宿命不被按在阿克西斯上么
+
+*****
+
+####  molemole  
+##### 20248#       发表于 2025-6-18 11:45
+
+<blockquote>Saber琪 发表于 2025-6-18 11:42
+</blockquote>
+这图还是gto造型，一点都不79（）
+
+*****
+
+####  猪突猛进R  
+##### 20249#       发表于 2025-6-18 11:46
+
+现在纠结MS性能根本无所谓，就像第7集精神病MK2被绿叔叔一炮融了那样，当时还有人科普有线式BEAM炮功率这的那的。
+
+GQ世界是拉拉的一场梦，MS强弱就是编剧一句话的事情。
+
+*****
+
+####  希望之异热同心  
+##### 20250#       发表于 2025-6-18 11:46
+
+感觉军团战设定成爆头赢就是为了最后让麻球把元祖爆头啊，但这次元祖好像没带枪没法复刻经典动作哎
+
+*****
+
+####  ヒトニナル  
+##### 20251#       发表于 2025-6-18 11:47
+
+鸭子脱出留玛秋面对元祖？这也太丢人了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银川智将Kuroky  
+##### 20252#       发表于 2025-6-18 11:47
+
+你说我的复刻EG初代高达能不能挂个200块高价卖啊
+
+*****
+
+####  metalwill  
+##### 20253#       发表于 2025-6-18 11:48
+
+2005年有个叫 生死停留 的片子 , 感觉跟拉拉干这事挺像的 , 把身边的事务重新排列组合 , 然后变成理想的样子 , 只能用现有 , 不能创造新的 .
+
+*****
+
+####  Toby_dak  
+##### 20254#       发表于 2025-6-18 11:49
+
+要不最后一集结尾，跟EVA真心为你和古利特一样，来个现实真人版镜头吧。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  modkingr  
+##### 20255#       发表于 2025-6-18 11:49
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇阿姆罗的特异点世界线？
+
+那为什么夏亚执着于消灭这个特异点呢
+
+*****
+
+####  Sliurus  
+##### 20256#       发表于 2025-6-18 11:49
+
+已经可以改名叫《阿姆罗雷的消失》了
+
+修司是异世界鸭的可能性感觉更大一点，GQ鸭根本不认识骡子，就算是异世界骡他也不会有这么大的反应，除非是另一个自己。马秋从鸭子身上感受到修司的气息，修司被拉拉吸引，（还有诱拐小女孩这件事）都可以解释了。鸭子开着白色恶魔把GQ鸭的红高达打败，岂不是更加侮辱
+
+*****
+
+####  solora  
+##### 20257#       发表于 2025-6-18 11:49
+
+元祖过来就是要捅死穿越到这个世界的拉拉吧，那元祖就BOSS，下一话就是这个世界的NT们干元祖保护这个世界了
+
+你问元祖里坐的是谁，那当然是李疯子·阿卵马克咯<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 20258#       发表于 2025-6-18 11:50
+
+如果高达就是糊逼片的话，那就是听BL THE TIME 会激动的人不合时宜了
+
+*****
+
+####  YU_JI  
+##### 20259#       发表于 2025-6-18 11:50
+
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？
+
+*****
+
+####  zoomegg  
+##### 20260#       发表于 2025-6-18 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为比起拉拉更想他？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 20261#       发表于 2025-6-18 11:55
+
+<blockquote>modkingr 发表于 2025-6-18 11:49
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为只要拉拉还在就会有泽科诺瓦吧，泽科诺瓦还在的话紫婆就会开炮，GQ鸭子是会保护地球的正义使者呀（）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  猪突猛进R  
+##### 20262#       发表于 2025-6-18 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+拉拉（神棍版）的存在会带来各种各样的问题，比如上一集的拉拉炮。
+
+如果把拉拉比作母亲，GQ世界比作儿子，即使母亲消失了儿子依然存在。
+
+夏亚这个不孝子现在就打算弑母。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  人形灾害  
+##### 20263#       发表于 2025-6-18 11:57
+
+这么说来，GQ鸭花了五年研发的目的就是为了有个手段能破玫瑰拉拉的防，表面上开发成大杀器只是为了骗紫婆的经费？
+
+*****
+
+####  syndrome2032  
+##### 20264#       发表于 2025-6-18 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+因为拉拉会触发zeknova，特别是紫婆还研究出了可控式zeknova的fred。
+
+鸭鸭啊，你能不能先去赏紫色老太婆一发火箭筒再来讨论拉拉的事
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  西洛克  
+##### 20265#       发表于 2025-6-18 11:58
+
+<blockquote>modkingr 发表于 2025-6-18 11:49
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+夏亚发现这个世界扭曲了，迟早要出大问题，而且这一切都是因为自己。所以仇也不报，权力也不要。隐姓埋名，专心做题混进紫婆的研究团队，想要把拉拉送走。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| modkingr| + 1||
+
+查看全部评分
+
+*****
+
+####  mengsu  
+##### 20266#       发表于 2025-6-18 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958744&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-6-18 10:49</a>
+
+所以小番茄被各年龄段男人挨个壁咚摸头一遍也是昭和老登笔下的大女主了是吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是老登心目中希望成为的年轻人吧，有自己无理性一门心思追赶的虚幻目标，敢向非日常果断迈出那一步，撞了墙还有没私心的成熟大人给拉一把。
+
+*****
+
+####  Sliurus  
+##### 20267#       发表于 2025-6-18 11:59
+
+虽然这集依然有不少可以分析的点，但是元祖登场让我感觉分析毫无意义
+
+*****
+
+####  syndrome2032  
+##### 20268#       发表于 2025-6-18 12:02
+
+剧前采访说马球觉得修司是自己的mav(排挡)
+11话马球说我相信修司(保护拉拉)是对的。
+
+鸭子开红高达被元祖和元祖belike gqux混合双打还差不多
+
+*****
+
+####  LadySaazbaum  
+##### 20269#       发表于 2025-6-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959320&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 11:50</a>
+
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？ ...</blockquote>
+只要最终话不拉胯就肯定是了
+
+加油啊Khara社的鸭嬷们<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 20270#       发表于 2025-6-18 12:05
+
+<blockquote>YU_JI 发表于 2025-6-18 11:50
+该说不说这话的鸭子是切切实实在为更伟大的目的在行动了，算是历代鸭子最伟光正的状态吗？ ...</blockquote>
+Z时候也算正面人物了
+
+*****
+
+####  璇瑢子R  
+##### 20271#       发表于 2025-6-18 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+我们还不知道夏亚这么知道这件事的，知道多少。所以当然也没法解释。
+
+这个时间线里，玫瑰拉拉时间冻结，gqx拉拉根本没见过夏亚。
+
+那么夏亚只能是在第一次泽科诺瓦的时候看见了其他世界里理解了某些东西
+
+当然我觉得这个问题最后一集多半也不会讲明白就是了
+
+*****
+
+####  未来起航  
+##### 20272#       发表于 2025-6-18 12:06
+
+只是从直觉上觉得膜uc不是什么好事情。
+top2膜top1可以，因为top1是传奇英雄的故事，被神话理所应当。但uc一直就有股“我们这种深陷泥潭的老登赶紧嘎了拉倒”、“相信后人智慧”的味儿，夏亚这种昭和时就已经拧巴得像个**的被抬出来膜就更是傻气铺面了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 20273#       发表于 2025-6-18 12:07
+
+<img src="https://img.stage1st.com/forum/202506/18/120709qrrmzjjb7i2oa1zo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (767.77 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/120717hxkurcv39l9gnrku.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (845.06 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/120735e2iodlujii32fgdm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:07 上传
+
+*****
+
+####  Pique  
+##### 20274#       发表于 2025-6-18 12:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">其实三小只还算正常了，捋一捋85鸭从第一次泽科诺瓦之后的情况才真的忍俊不禁
+
+1.什么泽科诺瓦，坏了我大事，不然所罗门早就砸死老太婆了，那个女人是谁，必须干掉啊！
+
+2.你是来自那边的少年是吧，哦那个女人就是沙仑玫瑰是吧，你也在找她是吧，好你去找。我要干大事。
+
+3.我打了这么多年灰，终于把手电筒造出来了。哦，那小子把夏利尔引过去找到沙仑玫瑰了啊，夏利亚还是有点用的，什么他在找我领导戴肯派？哼哼什么政治，格局太低了，我可是要纠正世界的扭曲！
+
+4.好，老太婆杀了汤大基，派人启动了手电筒，万事俱备，待我过来杀了那个碍事的女人，还世界一个朗朗乾坤。
+
+5.小子你来阻止我干什么？什么叫这个女人保护我？我和这个女人很熟吗？我必须纠正这个宇宙的扭曲杀了她！
+
+6.什么叫你是来结束这个世界的？什么叫你把我爹叫来了？什么叫beyond the time?
+
+*****
+
+####  Sliurus  
+##### 20275#       发表于 2025-6-18 12:08
+
+虽然喵安完全是恋爱少女的状态，但还是对她讨厌不起来，感觉自己也没救了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+我觉得追男人作为驱动力没什么问题，但也不能别的事什么都不考虑吧<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Saber琪| + 1|哈哈哈|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 20276#       发表于 2025-6-18 12:09
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤再上映記念！舞台挨拶◢ 《全国同時生中継》の詳細を公開！ 6月25日(水) 0:00(＝6月24日(火) 24:00)より、各劇場にて順次チケットの販売を開始いたします！ ▼実施劇場はこちら [url]https://t.co/38ecvjOHYt](https://x.com/G_GQuuuuuuX/status/1935173668281454728) #GQuuuuuuX #ジークアクス [https://t.co/PtNOf4v8DT](https://t.co/PtNOf4v8DT)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/120949cfqdwzxdr37rt44b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:09 上传
+
+*****
+
+####  syndrome2032  
+##### 20277#       发表于 2025-6-18 12:09
+
+ 本帖最后由 syndrome2032 于 2025-6-18 12:11 编辑 
+
+85鸭的问题是被研究出fred的紫色老太婆拿枪指着靠别人救场，转头自己上了高达拿枪指着玫瑰宣扬拉拉是世界的扭曲点。
+
+玫瑰里的拉拉再坏能坏过紫色老太婆吗。
+
+*****
+
+####  岸浪白野  
+##### 20278#       发表于 2025-6-18 12:10
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤再放送決定◢ 7月5日(土)夜7:00より、BS11にて『機動戦士Gundam GQuuuuuuX』の再放送が決定しました！ 毎週土曜日は引き続き、本作をお楽しみください！ ▼本日のお知らせの一覧はこちら [url]https://t.co/Kr0SHA5NQJ](https://x.com/G_GQuuuuuuX/status/1935186377748234605) #GQuuuuuuX #ジークアクス [https://t.co/T7jnUubIKK](https://t.co/T7jnUubIKK)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/121029hb49byej4lx5sjli.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 12:10 上传
+
+*****
+
+####  mengsu  
+##### 20279#       发表于 2025-6-18 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959439&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:08</a>
+
+虽然喵安完全是恋爱少女的状态，但还是对她讨厌不起来，感觉自己也没救了
+
+我觉得追男人作为驱动力没什么问 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看见老太婆要打番茄立即下意识地开枪，这一话明明是喵安的加分话啊。
+
+*****
+
+####  Sliurus  
+##### 20280#       发表于 2025-6-18 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959472&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 12:13</a>
+
+看见老太婆要打番茄立即下意识地开枪，这一话明明是喵安的加分话啊。</blockquote>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你一下<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 20281#       发表于 2025-6-18 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+硬要类比感觉像妮娜打胡萝卜那一枪。精神伤害远大于肉体。
+
+*****
+
+####  Saber琪  
+##### 20282#       发表于 2025-6-18 12:18
+
+只要接受喵安就是哈基米的形象塑造，一切就豁然开朗了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 20283#       发表于 2025-6-18 12:19
+
+紫婆想要新人类怎么样不重要，紫婆想当慈禧是确定的，想当慈禧可以解释紫婆相关的喵安开枪、夏亚跑路不合作一系列问题
+
+*****
+
+####  璇瑢子R  
+##### 20284#       发表于 2025-6-18 12:19
+
+但是开枪以后又傻在原地。。。没有任何进一步攻击。
+
+真是猫猫抓你玩
+
+*****
+
+####  YU_JI  
+##### 20285#       发表于 2025-6-18 12:19
+
+而且对于紫婆来说喵安还有作用，就算是工具也不是能现在丢掉的工具
+
+*****
+
+####  缪斯替  
+##### 20286#       发表于 2025-6-18 12:21
+
+孩子为了孩子反抗大人这种桥段还是很讨我喜欢的
+
+*****
+
+####  无动于衷  
+##### 20287#       发表于 2025-6-18 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+附议
+
+哪怕加一句台词 别逼我 我什么都做得出来 都比这样强 甚至可以弱化基西利亚利用她的本质目的
+
+*****
+
+####  mengsu  
+##### 20288#       发表于 2025-6-18 12:22
+
+喵安这个对别人的恶意非常敏感的特长，大概是感到老太婆杀意之坚决了吧。
+
+下意识开枪后又被自己吓着了愣在原地，确实是动手不动脑的直觉动物了。
+
+*****
+
+####  YU_JI  
+##### 20289#       发表于 2025-6-18 12:22
+
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得完全不可预测了
+
+*****
+
+####  g救世主高达  
+##### 20290#       发表于 2025-6-18 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959534&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 12:22</a>
+
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得 ...</blockquote>
+可能是负责和独角兽一号机一起发功挡手电筒的，那个手电筒肯定还要再射一次<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 20291#       发表于 2025-6-18 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959531&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-18 12:22</a>
+
+喵安这个对别人的恶意非常敏感的特长，大概是感到老太婆杀意之坚决了吧。
+
+下意识开枪后又被自己吓着了愣在 ...</blockquote>
+那只能证明她确实没什么成长 开篇是单细胞生物现在还是
+
+*****
+
+####  Saber琪  
+##### 20292#       发表于 2025-6-18 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959534&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-18 12:22</a>
+下一话喵安的地位就很迷惑了，鸭一爹来了，麻球是纸面主角明摆着要去干架的，喵安现在从局面脱离出来又变得 ...</blockquote>
+答案是孩子真被拉拉悲鸣搞得恶心身体不舒服，跑出去透透气而已（）
+<img src="https://p.sda1.dev/25/fa1bafc878bc9f2c511a7081d53d939c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e6a90fa4b376795f74da0b6584114dbd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 20293#       发表于 2025-6-18 12:25
+
+ 本帖最后由 syndrome2032 于 2025-6-18 12:26 编辑 
+
+比较合理是元祖+gquxvs红高+fred的mav对决。
+
+但是红叔叔你的mav好兄弟不是在外面打白强人吗。
+
+fred究竟是来干啥的?
+考虑到**程度，红高达一秒变身腿只是装饰都是可能的，元祖最后就经典妇科last shoot。这事安排好了吗。
+
+*****
+
+####  g救世主高达  
+##### 20294#       发表于 2025-6-18 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959077&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-18 11:23</a>
+
+说来，TA的黑历史里会包括gqux吗</blockquote>
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mengsu  
+##### 20295#       发表于 2025-6-18 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959548&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-6-18 12:24</a>
+
+那只能证明她确实没什么成长 开篇是单细胞生物现在还是</blockquote>
+喵安从开局到现在的经历实在也成长不了啥，无非是从一个藏身处逃到另一个藏身处，不过敢开枪打老太婆好歹这场友情梦没白做，只能看下一话小番茄能不能给她修正了。
+
+*****
+
+####  猪突猛进R  
+##### 20296#       发表于 2025-6-18 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959451&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-18 12:09</a>
+
+85鸭的问题是被研究出fred的紫色老太婆拿枪指着靠别人救场，转头自己上了高达拿枪指着玫瑰宣扬拉拉是世界的 ...</blockquote>
+对的对的。
+
+之前就有人评论过，高达里的人物性格太极端了。
+
+按理说，知道妈妈创造这个世界是为了自己，不是应该好吃好喝供起来吗。
+
+再把GQ本位面的拉拉救出来，两个妈妈，双份的快乐。
+
+GQ鸭也是个神人，为了当世界的英雄，要杀穿越来的妈妈，还把本位面的丢在妓院不管，太不孝了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  棍机凹升龙  
+##### 20297#       发表于 2025-6-18 12:32
+
+还是太赶了，一集的解说跟剧情割裂得一笔木马那几个真就为了解说而存在甚至觉得在浪费时间
+
+*****
+
+####  楽園のエル  
+##### 20298#       发表于 2025-6-18 12:33
+
+<img src="https://img.stage1st.com/forum/202506/18/123306awee5wzuee6f85rj.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (58.53 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/123326t3l6gh3s2pksnbsh.png" referrerpolicy="no-referrer">
+
+<strong>OSZ04VVO)({`}`MJJCV3F]Q.png</strong> (461.61 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:33 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 猪突猛进R| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  璇瑢子R  
+##### 20299#       发表于 2025-6-18 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959555&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-18 12:25</a>
+
+比较合理是元祖+gquxvs红高+fred的mav对决。
+
+但是红叔叔你的mav好兄弟不是在外面打白强人吗。</blockquote>
+绿叔叔这集磨洋工明摆着就是下集大决战不想带他吧。。。。
+
+*****
+
+####  psycho_Gadfly  
+##### 20300#       发表于 2025-6-18 12:34
+
+<blockquote>mengsu 发表于 2025-6-18 12:28
+喵安从开局到现在的经历实在也成长不了啥，无非是从一个藏身处逃到另一个藏身处，不过敢开枪打老太婆好歹 ...</blockquote>
+不需要修正 元祖都要毁灭世界了 肯定和好姐妹一起组Mav打boss呀
+
+至于鸭子？丢人的脱出型NT罢了 
+
+*****
+
+####  eilot  
+##### 20301#       发表于 2025-6-18 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959556&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-18 12:25</a>
+
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个 ...</blockquote>
+在黑歷史中同時看到UC、W等作品的畫面
+
+所以黑歷史系統應該有收集平行世界的資訊能力，所以GTO、月面危機、兩套強尼回歸等應該也有收錄下去
+
+總之就是所有鋼彈系的作品，最後都會收束成倒A的形狀
+
+否則沒可能解釋到為何能播出不同作品的戰鬥畫面
+
+因應黑歷史系統有收集平行世界的資訊能力，所以任何一個倒A平行世界都能播放不同作品資訊
+
+*****
+
+####  Saber琪  
+##### 20302#       发表于 2025-6-18 12:39
+
+以喵安11集表现出来的智商，麻球只需要对喵安说一句“走我们一起找修司去”她估摸着就会乖乖跟过去了，修正都省了
+至于找修司去干嘛，麻球：当然是为了修正他！
+
+*****
+
+####  Steel.Haze  
+##### 20303#       发表于 2025-6-18 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959556&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-18 12:25</a>
+
+gto和雷霆宙域这种平行世界也会有平行世界的倒a，这么说就能理解了，倒a又不是只能有一个 ...</blockquote>
+按照设定角度，倒A的月光碟释放达到最大幅度那一刻，就产生了同步巨大的裂隙，影响了各个时间线，其它时间线的倒A的产生，是主时间线倒A这个“因”的“果”。所以倒A是扩散唯一性。
+
+*****
+
+####  体制  
+##### 20304#       发表于 2025-6-18 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958777&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 10:53</a>
+这一集首席哥战斗力也突飞猛进了。。。。
+
+这片大概就没想好好讲驾驶能力的事情 ...</blockquote>
+额，讲了原因啊，这个反向泽科诺瓦现象让在场所有nt的能力都提高到最高值，等于加了个nt9的地图buff，躲个线控炮不是轻轻松松。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  林登·万  
+##### 20305#       发表于 2025-6-18 12:44
+
+银河美少年夏亚飒爽变身 但突然来自异界的宿敌现身 —— AIeeeeee 阿姆罗! 阿姆罗为何!
+
+*****
+
+####  无念  
+##### 20306#       发表于 2025-6-18 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959615&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-18 12:34</a>
+不需要修正 元祖都要毁灭世界了 肯定和好姐妹一起组Mav打boss呀
+
+至于鸭子？丢人的脱出型NT罢了  ...</blockquote>
+难说，虽然下一话元祖一副独断万古的样子，但是按照一贯的预告骗，我估计这就是秒了鸭子后的退场照了
+同样番茄开G夸一副要大战四方的样子，其实搞不好只是开个门让拉拉和修斯跑路
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  上坂莲华  
+##### 20307#       发表于 2025-6-18 12:50
+
+喵安这集明显还是对老太婆抱有幻想的，哪怕老太婆拿枪打她，她第一反应也是抬手挡完了上机跑路，对比蛋糕哥直接被浮游炮扬了温柔太多了
+
+另外下集要包Mav的饺子的话人也是够的，不预告欺诈的话下集麻球肯定跟元祖爆了，喵安帮开元祖的修斯，鸭子帮麻球，绿叔叔去把老太婆扬了
+
+最后小森重启世界线，回到79if开头，进入卫星的扎古里没有红色的，一片雪花过后麻球在地铁口侧身让开跑过来的喵安，End<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 20308#       发表于 2025-6-18 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959166&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-18 11:33</a>
+
+小森说前几次泽克诺瓦都是往另一个世界传东西，但红高达传送回gqx世界至少两次了 ...</blockquote>
+看来正史鸡瘟残党都是喵安丢过去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20309#       发表于 2025-6-18 12:51
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:09 编辑 
+
+[X 上的 煮たか：“シャア…… #GQuuuuuuX #ジークアクス](https://x.com/2tkinfo/status/1935052409811911133)[https://t.co/6VYDNcTrKy](https://t.co/6VYDNcTrKy)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125009y8f8xgk8tgu2p8gz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.27 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:50 上传
+
+[X 上的 このせ：“顔がいい](https://x.com/k0nos/status/1935054039177380215)[https://t.co/GhZMrh1C8o](https://t.co/GhZMrh1C8o)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125035c6ellxr4jyjrf6zv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:50 上传
+
+[X 上的 樹碧：“11話ジークアクスの感想](https://x.com/kimidori_17_17/status/1935174595272917325)[https://t.co/CfdFOOrVsT](https://t.co/CfdFOOrVsT)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125143ere0dk4qxufe1dzx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (384.28 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:51 上传
+
+[X 上的 スギミツ：“ララァの認識がもしシャリアブルに影響していたらヤバかった #GQuuuuuuX #ジークアクス [url]https://t.co/mrXtAgy9wM](https://x.com/cedarmi3/status/1935056990830809474)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/130935yyyakl4jnnnxmzma.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 13:09 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zzf111| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 20310#       发表于 2025-6-18 13:00
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:02 编辑 
+
+[X 上的 チバサ：“マチュとコモりんの日常回、 本編でやって欲しい #GQuuuuuuX #ジークアクス](https://x.com/tibasa9/status/1934945180307849547)[https://t.co/rfre8qpEYD](https://t.co/rfre8qpEYD)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125320e7vttm89u1q71tmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.31 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:53 上传
+
+[X 上的 ぜつよちまよ：“#GQuuuuuuX](https://x.com/zetsuyochimayo/status/1934986196607987851)[https://t.co/jrgHYQ6XVp](https://t.co/jrgHYQ6XVp)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125342yp00md1tm12prr43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:53 上传
+
+[X 上的 hibiki：“落書き ニャアン＆マチュ 来週最終回ニャアンとマチュのMAV見たい😭 #GQuuuuuuX #ジークアクス](https://x.com/hibiki4411/status/1935015984106193078)[https://t.co/kSPgOvA1gm](https://t.co/kSPgOvA1gm)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125406f4k50edt5mbpcpc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 ちえりん☆🍎：“マチュとニャアン✨](https://x.com/ZBKNsuki/status/1935011171150835922)[https://t.co/kaBqyS2rb5](https://t.co/kaBqyS2rb5)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125419o3gaixgt92j31xrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 あおにび：“マチュとニャアン こうやって仲良くシュウちゃん迎えてくれないかな……とか思いながら描いてた 今日やる前に描かないと絶対描けなかった](https://x.com/strix_ulula/status/1934984535462289761)[https://t.co/Xq6DURNPdA](https://t.co/Xq6DURNPdA)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125439e63m3oo9p360pmbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (726.91 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:54 上传
+
+[X 上的 オオデ イラ：“もうどうなってもいいや #GQuuuuuuX #ジークアクス](https://x.com/oooooooode_i/status/1935027842674569386)[https://t.co/WM4I1aZRY7](https://t.co/WM4I1aZRY7)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125904gz6qszhcsshuwhig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.3 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:59 上传
+
+[阪 療加 (@ryokasaka) / X](https://x.com/ryokasaka)
+
+<img src="https://img.stage1st.com/forum/202506/18/125602ne27keh7ovvhoohe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (283.51 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/125610qratcdddmaaurm0a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/125617ujc3fsu91z1soz0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (880.26 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:56 上传
+
+[X 上的 tk8d32（リクエスト再開中）：“まさかシャア・アズナブルに変身バンクがあるとは… #GQuuuuuuX #ジークアクス](https://x.com/tk8d32/status/1935139370618745048)[https://t.co/eQFe347UvA](https://t.co/eQFe347UvA) [https://t.co/2VqCQG0NK7](https://t.co/2VqCQG0NK7)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/130031bk2qk3yqe28ek3kb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (830.79 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:00 上传
+
+[X 上的 森キノコ★6/29GSF01-2組15,16★6/29サンクリ-ア24ab：“「ﾊｧﾊｧ…何とか白いやつを倒したぞ…！」 #ジークアクス #GQuuuuuuX](https://x.com/morikinoko8888/status/1935180576581108167)[https://t.co/q63khm77NE](https://t.co/q63khm77NE)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/125929o6omomp896bpd79p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (506.93 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 12:59 上传
+
+*****
+
+####  07579394  
+##### 20311#       发表于 2025-6-18 13:00
+
+找回了看龙珠超的尴尬感，遇事不决，量子力学，灵能飞升，正义在吉翁
+
+*****
+
+####  岸浪白野  
+##### 20312#       发表于 2025-6-18 13:04
+
+[X 上的 バンダイ キャンディ【公式】：“＜最高レアリティは豪華箔押し仕様！＞ 『機動戦士Gundam #GQuuuuuuX』（#ジークアクス ） カードウエハースは、8月発売予定！！ ここでしか見られない描き下ろしイラストが 豪華箔押し仕様で輝きます！ この機会をお見逃しなく！ [url]https://t.co/AU0PHeBHfs](https://x.com/candytoy_c/status/1935140624388473004) [https://t.co/f2VUJHbd2p](https://t.co/f2VUJHbd2p)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/130431jpnf6d5zwafjfadp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:04 上传
+
+*****
+
+####  windlikeman  
+##### 20313#       发表于 2025-6-18 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959487&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-18 12:17</a>
+其实这里我觉得先口头警告比较好，然后面对紫婆愤怒的质问下意识开枪
+
+现在的表现真的像哈基米无端端抓你 ...</blockquote>
+开场gqx往下落的时候没有行动上表现敌意 喵安也不知道上面坐的谁 也是直接开枪动手的<img src="https://static.stage1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ArgentDawn  
+##### 20314#       发表于 2025-6-18 13:12
+
+上一话的番茄“沙仑的蔷薇在哭泣……究竟是谁用了这么恐怖的武器”，我以为这是番茄对非人道战争武器的愤怒，以及对被利用来杀人的拉拉的悲悯与同情
+
+这一话的番茄“我要拯救拉拉，她是对修司非常重要的人”
+
+*****
+
+####  pokemon最爱  
+##### 20315#       发表于 2025-6-18 13:21
+
+GQX鸭子优先针对正史拉拉大概是因为杀了一个紫婆只要正史拉拉还在迟早会出现下一个紫婆？反正有绿叔叔盯着要杀紫婆自己就优先解决正史拉拉这个问题吧。
+
+*****
+
+####  缪斯替  
+##### 20316#       发表于 2025-6-18 13:21
+
+最后元祖的冲击力太强了，都忘了一开始我看到时候特别喜欢这里对小番茄肉体的表现，青春健康有活力的紧身衣曲线太美味了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 20317#       发表于 2025-6-18 13:32
+
+下集喵安这个性格不太可能和麻球一起mav打rx78吧，感觉让基西莉亚开个新机子出来跟喵安玩你追我赶就差不多了
+
+*****
+
+####  格林达姆  
+##### 20318#       发表于 2025-6-18 13:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拉了台老古董元祖过来怕是要成垫脚石了吧
+
+*****
+
+####  Sliurus  
+##### 20319#       发表于 2025-6-18 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959831&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-18 13:21</a>
+
+GQX鸭子优先针对正史拉拉大概是因为杀了一个紫婆只要正史拉拉还在迟早会出现下一个紫婆？反正有绿叔叔盯着 ...</blockquote>
+大义灭亲这点最不像鸭子了吧，鸭子其实挺重感情的，只要不是利用的对象
+
+*****
+
+####  ヒトニナル  
+##### 20320#       发表于 2025-6-18 13:35
+
+现在看来玛秋和喵安的波长是一点都不对付，这俩组mav怕不是要撞在一起
+
+
+*****
+
+####  qixinno2  
+##### 20321#       发表于 2025-6-18 13:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Turn A Turn↗Turn A Turn↘Turn A↗～～
+
+<img src="https://img.stage1st.com/forum/202506/18/133718gdi7odzrp2e27rrs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.7 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:37 上传
+
+*****
+
+####  Saber琪  
+##### 20322#       发表于 2025-6-18 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959916&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-18 13:35</a>
+现在看来玛秋和喵安的波长是一点都不对付，这俩组mav怕不是要撞在一起</blockquote>
+那不更有意思了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 20323#       发表于 2025-6-18 13:40
+
+话说山下育人嗨了这么多工业风高达，结果最后要被大河原高达腐乳
+
+*****
+
+####  岸浪白野  
+##### 20324#       发表于 2025-6-18 13:42
+
+ 本帖最后由 岸浪白野 于 2025-6-18 13:45 编辑 
+
+4月8号那时的访谈说玛秋和喵安的“如果你就能好好注视我那边”“我们不是已经心意相通了吗”关系早就能看出了，没什么奇怪，一直都没骗过你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 20325#       发表于 2025-6-18 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959950&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 13:42</a>
+
+4月8号那时的访谈说玛秋和喵安的“如果你就能好好注视我那边”“我们不是已经心意相通了吗”关系早就能看出 ...</blockquote>
+那还继续拉扯岂不是更作死（参考隔壁）
+
+*****
+
+####  ykyin09  
+##### 20326#       发表于 2025-6-18 13:47
+
+b站看了个把beyond the time替换成0079op的视频，人声一起来直接没绷住
+
+*****
+
+####  獠牙护目镜  
+##### 20327#       发表于 2025-6-18 13:51
+
+这个拉拉营造的世界线不会是以"世间再无新人类"收尾吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/135204raul1l0qmvg0aqqm.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-bdb7ec439e83598fb85323254279876d_1440w.png.jpg</strong> (429.46 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 13:52 上传
+
+*****
+
+####  Saber琪  
+##### 20328#       发表于 2025-6-18 13:51
+
+もえあがれ もえあがれ，
+燃烧吧 燃烧吧，
+燃え上がれガンダム，
+燃烧吧 高达~
+
+*****
+
+####  YU_JI  
+##### 20329#       发表于 2025-6-18 13:59
+
+下一话预告的主体是“新人类”，搞不好是集体NT大合唱难忘今宵了
+
+*****
+
+####  rockroxas  
+##### 20330#       发表于 2025-6-18 13:59
+
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席
+
+番茄搞不清现在发生什么事呆在那当见证人，喵安觉得修司不看自己只看番茄跟拉拉了上去两个一起砍
+
+按现在这打戏设计就别想什么2v2抹布战，能写好3个1v1都是烧香了（被刚破烂try支配的恐惧）
+
+抹布不是战术也不是战斗设计，而是人物关系设计
+
+*****
+
+####  qixinno2  
+##### 20331#       发表于 2025-6-18 14:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是应该是这样么
+
+你能够存活下来吗？
+
+<img src="https://img.stage1st.com/forum/202506/18/140130s0ihk06t6fk2802k.png" referrerpolicy="no-referrer">
+
+<strong>B23(F6UB1{S282S1_JP[EJC.png</strong> (62.45 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 14:01 上传
+
+*****
+
+####  psycho_Gadfly  
+##### 20332#       发表于 2025-6-18 14:04
+
+<blockquote>rockroxas 发表于 2025-6-18 13:59
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席
+</blockquote>
+女主们真就uc导游呗
+
+虽然我觉得下一话番茄能搞个大的(然后喵安稀里糊涂跟上) 但过程估计一言难尽……
+
+*****
+
+####  Saber琪  
+##### 20333#       发表于 2025-6-18 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960038&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 13:59</a>
+现在情况不是很简单
+
+修司-元祖vs夏亚-红高
+
+绿叔叔vs首席</blockquote>
+喵安这行为放第十集还有可能，这集来看她不可能再跟番茄打来打去了
+
+*****
+
+####  pokemon最爱  
+##### 20334#       发表于 2025-6-18 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960049&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-18 14:01</a>
+
+不是应该是这样么
+
+你能够存活下来吗？</blockquote>
+我猜骡子一首哀战士的时间把右边全点了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 20335#       发表于 2025-6-18 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960094&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-18 14:10</a>
+
+喵安这行为放第十集还有可能，这集来看她不可能再跟番茄打来打去了</blockquote>
+下话预告是番茄护拉拉
+
+目前要砍拉拉的只有夏亚一个
+
+还能是夏亚肘赢元祖上去打番茄吗
+
+*****
+
+####  洛克萨斯  
+##### 20336#       发表于 2025-6-18 14:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是时候骡枪秒了
+
+*****
+
+####  mengsu  
+##### 20337#       发表于 2025-6-18 14:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵安已经自己亲手把新的藏身地点了，已经没有和小番茄和解以外的路嘞。
+
+下一话肯定要表演一个姐妹同心了。
+
+*****
+
+####  ryanghj  
+##### 20338#       发表于 2025-6-18 14:16
+
+我懂了，因为这个世界是拉拉为了夏亚创造的，所以只要干掉夏亚就能让世界终结
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  GJRstone  
+##### 20339#       发表于 2025-6-18 14:16
+
+国际通缉犯番茄还不如难民喵安呢
+
+*****
+
+####  希望之异热同心  
+##### 20340#       发表于 2025-6-18 14:18
+
+过来的元祖好像没带枪啊，就2把光剑1个盾来着，这边的NT因为zeknova突然全部NT9了，车战力其实元祖路边一条啊<img src="https://static.stage1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxasuka  
+##### 20341#       发表于 2025-6-18 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960145&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 14:18</a>
+过来的元祖好像没带枪啊，就2把光剑1个盾来着，这边的NT因为zeknova突然全部NT9了，车战力其实元祖路边一条 ...</blockquote>
+路边找个扎古抢两根快乐筒完事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 20342#       发表于 2025-6-18 14:26
+
+不要小看番茄啊，就11话番茄这个不开精神感应都能开得这么溜的水平，可能比阿姆罗干掉绿叔叔时的水平还要高一点<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 20343#       发表于 2025-6-18 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960131&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 14:16</a>
+
+我懂了，因为这个世界是拉拉为了夏亚创造的，所以只要干掉夏亚就能让世界终结
+
+—— 来自 鹅球 v3.3.96-alp ...</blockquote>
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界线，修司尾行拉拉几百个世界线杀了无数次鸭
+
+杀掉鸭，拉拉就去下一个世界了，修司也跟着去
+
+当然故事不会是（修司计划的）这个走向，下话肯定要让元祖或者红高膜last shoot，从这片一直都是红高膜元祖镜头来看可能是红高？之前拉拉说白色MS赢几百次，可能也是这一次鸭子赢的铺垫，鸭赢了之后放过修司，拉拉怨念消散升天这样？
+
+*****
+
+####  ryanghj  
+##### 20344#       发表于 2025-6-18 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960201&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:29</a>
+
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+我觉得鸭子肯定打不过，唯一妥协方法是玛秋取代拉拉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 20345#       发表于 2025-6-18 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960180&amp;ptid=2209276" target="_blank">cxasuka 发表于 2025-6-18 14:25</a>
+
+路边找个扎古抢两根快乐筒完事</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">：“什么是军警用扎古？咋武装只有热能斧和机枪？”
+
+*****
+
+####  王留美  
+##### 20346#       发表于 2025-6-18 14:41
+
+万万没想到「ガンダム観てたら ガンダム出て来た」这句话在最后也能用上
+
+*****
+
+####  psycho_Gadfly  
+##### 20347#       发表于 2025-6-18 14:42
+
+<blockquote>rockroxas 发表于 2025-6-18 14:29
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+关键这神棍看上去也不像人啊 我一直觉得是机魂之类的
+
+那正史里拉拉挡枪死的世界线目前还没找到吗？其实我觉得93鸭骡同归于尽也算一种骡子干了鸭(牛高达不也是白色高达吗！
+
+*****
+
+####  wing130083  
+##### 20348#       发表于 2025-6-18 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960201&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:29</a>
+
+正史骡就没杀过鸭，多半拉拉那个几百次杀鸭的就是修司-元祖-白色魔女之夜
+
+拉拉主动穿越找鸭不用死的世界 ...</blockquote>
+就鸭子今天这惊恐表情掉的时髦值，也轮不到他赢
+
+大概率是红高先垫给78（我猜可能修司不上机，78从头到尾不告诉你谁在开）
+
+然后番茄打头阵合力物理说服修司
+
+最后修司说“我决定不毁灭你们的世界了”和玫瑰拉拉一起告别，两小只回归日常演ed
+
+鸭脱出之后和绿叔叔合力干掉紫婆（首席就当他被甩在一边，之后自己想通了吧），经过这事人格成长终于肯负一次责任把基翁管起来
+
+最后到地球接gq世界拉拉
+
+大家一起包饺子
+
+*****
+
+####  rockroxas  
+##### 20349#       发表于 2025-6-18 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960234&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 14:37</a>
+
+我觉得鸭子肯定打不过，唯一妥协方法是玛秋取代拉拉</blockquote>
+首席都能跟绿叔叔大战三百回合，打不打得过不就是编剧一句话，比如护身符不在身边（
+
+*****
+
+####  炼金王  
+##### 20350#       发表于 2025-6-18 14:49
+
+最终话会不会紫色老太婆开吉恩号出来 复刻最后一枪
+
+*****
+
+####  千里快哉风  
+##### 20351#       发表于 2025-6-18 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960299&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:48</a>
+
+首席都能跟绿叔叔大战三百回合，打不打得过不就是编剧一句话，比如护身符不在身边（ ...</blockquote>
+难道不是因为其他强人太强了 绿叔叔无法放水就全给点了 首席的水平放水也没事才让他有机会活到三百回合么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  9β  
+##### 20352#       发表于 2025-6-18 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959256&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-18 11:43</a>
+红高达性能根本无所谓好吧。。
+
+就拉拉能给夏亚换衣服，那给红高达换点武器或者配件，或者直接变成另外的机 ...</blockquote>
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  9β  
+##### 20353#       发表于 2025-6-18 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959307&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-6-18 11:49</a>
+仔细想想还是没懂夏亚的逻辑
+
+拉拉穿越各种时间线都发现夏亚打不过阿姆罗最后会死，所以创造了一条不会遭遇 ...</blockquote>
+认真来说是因为蔷薇拉拉能力过于劲爆，总会有下一个紫婆拿来开炮
+
+整蛊来说就是鸭子喜欢的是骡子
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cxasuka  
+##### 20354#       发表于 2025-6-18 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960248&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 14:39</a>
+：“什么是军警用扎古？咋武装只有热能斧和机枪？”</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一只！下一只！下一只！下一只！陷入梅比乌斯之轮中全灭
+
+*****
+
+####  rockroxas  
+##### 20355#       发表于 2025-6-18 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960283&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-18 14:45</a>
+
+就鸭子今天这惊恐表情掉的时髦值，也轮不到他赢
+
+大概率是红高先垫给78（我猜可能修司不上机，78从头到尾不 ...</blockquote>
+修司有毁灭世界能力的话根本就不会有MS战啊，直接伊甸力发动就完了
+
+无非就是拉拉扭曲世界保护鸭，修司要杀掉鸭毁灭拉拉扭曲愿望造出来的世界
+
+既然是对照，番茄一步步坚定抹掉自己退路，喵安一步步发癫抹掉自己退路也是一种对照，我倒觉得番茄喵安开打最后拉拉挡枪消散，真正互相理解会是这两人的结局
+
+最终话番茄走过地铁闸门，听到路人说，大量杀人犯喵安收监，好奇怪的名字，然后发怒上去开打，这样如何XD
+
+*****
+
+####  qixinno2  
+##### 20356#       发表于 2025-6-18 14:56
+
+ 本帖最后由 qixinno2 于 2025-6-18 14:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960330&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-18 14:53</a>
+
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS版的逆鸭CG 这俩从高达对红渣古一路变到牛对沙扎比
+
+【[PS1] 机动战士高达 逆袭的夏亚 - 开场动画 (补帧超分4K)(中文字幕)】 [https://www.bilibili.com/video/BV1RC4y1a7ve](https://www.bilibili.com/video/BV1RC4y1a7ve)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stevenzero| + 1|就是这个|
+
+查看全部评分
+
+*****
+
+####  有钱多买小人  
+##### 20357#       发表于 2025-6-18 14:59
+
+是啊，现在知道为啥魔女当时会笑了。
+
+原来你是要叫骡爸爸过来收拾鸭子啊。
+
+<img src="https://p.sda1.dev/25/668d05e550e62a500edea732eb488b7c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 20358#       发表于 2025-6-18 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960330&amp;ptid=2209276" target="_blank">9β 发表于 2025-6-18 14:53</a>
+搞不好。。。一边打一边换装，从元祖一路换到夜莺
+
+—— 来自 HONOR PGT-AN10, Android 15, 鹅球 v3.5.99 ...</blockquote>
+想起某个游戏op，就是骡鸭一边打一边机体变化，从红渣打元祖变成山楂饼打牛。
+
+*****
+
+####  ryanghj  
+##### 20359#       发表于 2025-6-18 15:02
+
+其实我觉得最疑惑的是元祖是在拉拉醒了之后传过来的，说明拉拉允许传过来？
+
+*****
+
+####  wing130083  
+##### 20360#       发表于 2025-6-18 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960342&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 14:55</a>
+
+修司有毁灭世界能力的话根本就不会有MS战啊，直接伊甸力发动就完了
+
+无非就是拉拉扭曲世界保护鸭，修司要 ...</blockquote>
+毁灭世界应该就是指的打倒鸭子
+
+前面大家推测的算比较合理了，gqx世界的基准锚点就是鸭子没有败给78的世界
+
+召唤来的78打赢红高也就算了， 杀掉鸭子，整个gqx世界可能就不复存在
+
+当然这不代表杀掉全世界所有人，只是回归UC正史的大方向而已
+
+
+*****
+
+####  ryanghj  
+##### 20361#       发表于 2025-6-18 15:04
+
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧
+
+*****
+
+####  猪突猛进R  
+##### 20362#       发表于 2025-6-18 15:06
+
+不至于，把拉拉和修司两位大神送走，就可以当无事发生。
+
+*****
+
+####  岸浪白野  
+##### 20363#       发表于 2025-6-18 15:06
+
+<img src="https://img.stage1st.com/forum/202506/18/150514rauzbuswgtzswsbu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:05 上传
+
+*****
+
+####  wing130083  
+##### 20364#       发表于 2025-6-18 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960404&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 15:04</a>
+
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧</blockquote>
+主角两小只是土著，修司站位上当了boss，正常来说he应该是阻止了boss的
+
+我觉得结局应该是修司不再打算让这个世界回归正轨，和玫瑰拉拉一起告别
+
+两小只继续在这个改变了的世界生活下去
+
+让世界变得更好的责任由鸭子和绿叔叔扛下来
+
+*****
+
+####  岸浪白野  
+##### 20365#       发表于 2025-6-18 15:07
+
+[X 上的 桜 水樹：“キラキラだ [url]https://t.co/JbozVd93kc](https://x.com/rakusakizumi/status/1935120157938172405)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/150740injzjnn4czv523s4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.64 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:07 上传
+
+*****
+
+####  望江南  
+##### 20366#       发表于 2025-6-18 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959692&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-6-18 12:50</a>
+
+喵安这集明显还是对老太婆抱有幻想的，哪怕老太婆拿枪打她，她第一反应也是抬手挡完了上机跑路，对比蛋糕哥 ...</blockquote>
+不是最后番真嗣伸手把喵日香从地铁的人群里拉出来<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？
+
+鹤卷啊，我不介意你膜一下漫画版eva的，反正前面也膜了点eva的嘛<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cyanwow  
+##### 20367#       发表于 2025-6-18 15:10
+
+原来我一直色的是骡子吗，拉拉，你这家伙确实会脑补啊...
+
+*****
+
+####  tonberry  
+##### 20368#       发表于 2025-6-18 15:10
+
+这片子不就是4s电光机王么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+快进到伊藤修司原来是被阿姆罗附身了一整季
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ryanghj  
+##### 20369#       发表于 2025-6-18 15:10
+
+说实话我感觉没人猜得到结局
+
+鹤卷肯定不会搞得太无聊就是了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20370#       发表于 2025-6-18 15:11
+
+跟你说新时代的开始真的是这个世界发生了变化不是梦结局这个世界结束了不要想太多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快马疾奔  
+##### 20371#       发表于 2025-6-18 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960446&amp;ptid=2209276" target="_blank">望江南 发表于 2025-6-18 15:08</a>
+
+不是最后番真嗣伸手把喵日香从地铁的人群里拉出来？
+
+鹤卷啊，我不介意你膜一下漫画版eva的，反正前面也 ...</blockquote>
+那是明日香自己一不小心跌倒然后真嗣凑巧在边上出手扶吧？
+
+*****
+
+####  xinfengj  
+##### 20372#       发表于 2025-6-18 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960432&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:07</a>
+
+X 上的 桜 水樹：“キラキラだ [https://t.co/JbozVd93kc” / X](https://t.co/JbozVd93kc” / X)</blockquote>
+摇错人了，这玩应里面是扎古啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20373#       发表于 2025-6-18 15:12
+
+ 本帖最后由 岸浪白野 于 2025-6-18 15:14 编辑 
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 20374#       发表于 2025-6-18 15:14
+
+我个人的猜想是下集正史元祖骡枪秒把在场所有人秒了并带走拉拉，GQX世界开始毁灭，然后靠核心战机在元祖一枪秒之前逃过一劫的小番茄发功把GQX世界保了下来，故事回溯到一开始，但没有修司以及他开的红高达，番茄也没开上GQX，鸭子和绿叔叔成功干掉扎比家上位，全剧终<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  望江南  
+##### 20375#       发表于 2025-6-18 15:14
+
+回过头来看这番真正无死角的真的是番茄的表情作画啊，从当时魔女回逗狗开始一直到现在都保持着精致灵动一次都没崩过，难道是一种没什么空间来塑造你所以作画上猛猛弥补你的意思吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和兄弟讨论完最爆的元祖后第一个聊的就是这集番茄仍然不负众望地表情灵动身体涩情，什么叫真女主啊
+
+<img src="https://img.stage1st.com/forum/202506/18/151043dfrtrustznz5fsfi.png" referrerpolicy="no-referrer">
+
+<strong>65745219ee8510bf09d75ca415d946a.png</strong> (139.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:10 上传
+
+*****
+
+####  无念  
+##### 20376#       发表于 2025-6-18 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+修斯本体肯定要走啊，他既然和拉拉一样是穿越的，那为了不继续引发Zexovia多半是要跑回去的
+但是机魂就无所谓了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 20377#       发表于 2025-6-18 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那看来是不会太出人意料的结局咯，黑契结局预定
+
+*****
+
+####  岸浪白野  
+##### 20378#       发表于 2025-6-18 15:20
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/18/151903b1zn15n23888c8pc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:19 上传
+
+*****
+
+####  望江南  
+##### 20379#       发表于 2025-6-18 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960474&amp;ptid=2209276" target="_blank">快马疾奔 发表于 2025-6-18 15:11</a>
+
+那是明日香自己一不小心跌倒然后真嗣凑巧在边上出手扶吧？</blockquote>
+
+是人群里拉出来的，说没站稳也算吧
+
+<img src="https://img.stage1st.com/forum/202506/18/151834lj64j4pj51490949.png" referrerpolicy="no-referrer">
+
+<strong>4f1f0b5a1447e669554fd8a3cec641a.png</strong> (355.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/18/151837x8fh8gkgifoall9q.png" referrerpolicy="no-referrer">
+
+<strong>248bc5189c5f176603949bbcd4d7152.png</strong> (422.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 15:18 上传
+
+作为香党我坚定认可这个结局<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">绝不记错！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KDConan| + 1|贞本的温柔|
+
+查看全部评分
+
+*****
+
+####  wing130083  
+##### 20380#       发表于 2025-6-18 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960469&amp;ptid=2209276" target="_blank">tonberry 发表于 2025-6-18 15:10</a>
+
+这片子不就是4s电光机王么
+
+快进到伊藤修司原来是被阿姆罗附身了一整季</blockquote>
+差不多就是这样了，估计是因为本人极强的nt能力，隔着世界和93那个状态的骡发生了共鸣，在骡指引下行动
+
+*****
+
+####  AkaiSuisei  
+##### 20381#       发表于 2025-6-18 15:31
+
+所以谁还在意官网挂着那句**的<blockquote>そして、世界は新たな時代を迎えようとしていた。</blockquote>
+要是新时代带机动战士四个字的TV正作都是致敬这个neta那个的情书片我可是笑不出来，既甩不掉掉UC的包袱又憋不出新的东西，结果还是老人吗
+光头在CCA里面指着年轻一辈的鼻子骂完了还记得找补个婴儿，鹤卷20多年前过了一把青春瘾现在只剩下浓浓的老登臭了，跟扳机那几个哥们一块儿迂腐去吧
+
+*****
+
+####  wing130083  
+##### 20382#       发表于 2025-6-18 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960531&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:20</a>
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">78摆着一副黑历史倒A的造型从传送门里出来
+
+这种剧情居然不是G世纪
+
+那是很爆笑了（
+
+*****
+
+####  ryanghj  
+##### 20383#       发表于 2025-6-18 15:35
+
+所以修司是对面来的，那是不是gq世界有两个修司（
+
+和拉拉一样
+
+*****
+
+####  rockroxas  
+##### 20384#       发表于 2025-6-18 15:44
+
+主角转移之后剩下的人无非是跳过，一般不会说主角转移走世界就爆炸毁灭啥的，或者大家都去到新世界，反正是怎么方便怎么来
+
+首先大概率要留鸭子收拾烂摊子最后再穿总帅服膜一把，鸭子跳过的人生也跟绿叔叔的计划一样不要深究
+
+修司拉拉不是这个世界的也要离开，爆炸升天穿回去啥的再议
+
+79对79，85对85，喵安麻球也是要打一场的，反而绿叔叔那场可能大幅略过
+
+*****
+
+####  woui003woui  
+##### 20385#       发表于 2025-6-18 15:53
+
+喵安麻球这集不是已经打了一把了，还打么。
+
+*****
+
+####  洛克萨斯  
+##### 20386#       发表于 2025-6-18 15:59
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么
+
+*****
+
+####  无念  
+##### 20387#       发表于 2025-6-18 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+就当是超小型Zexovia吧，虽然我很疑惑这玩意超频完机体看起来屁事没有啊，那代价是啥<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 20388#       发表于 2025-6-18 16:04
+
+[X 上的 ゆうしゃめんま / Y. Menma：“マチュ@美少女戦士 #ジークアクス #GQuuuuuuX](https://x.com/obuchi314/status/1935231148751471023)[https://t.co/PONcyDWZry](https://t.co/PONcyDWZry)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/160440ym6mt6jehstd96ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:04 上传
+
+[X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“もう勝ち目しかない。 逆にこれで勝てなかったら何すれば勝てるんだ… #GQuuuuuuX](https://x.com/takuteks/status/1935224106116620304)[https://t.co/QJ4ggevr4l](https://t.co/QJ4ggevr4l)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/155941ictyuuruufunmgo7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (424.03 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 15:59 上传
+
+[X 上的 85猫：“この世界を終わらせるために──── #GQuuuuuuX　#ジークアクス](https://x.com/85boxcat/status/1935246970903536060)[https://t.co/0Z0DSYM3eH](https://t.co/0Z0DSYM3eH)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/160421e3vsxf3vkx6oxvks.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1012.2 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:04 上传
+
+*****
+
+####  少年游不游  
+##### 20389#       发表于 2025-6-18 16:06
+
+现在想起来修斯之前捅别人驾驶舱的行为确实有点骡子的伏笔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 20390#       发表于 2025-6-18 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960482&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:12</a>
+
+之前也说过了，再提一下，最后一集的插入歌是悲伤氛围歌词说相遇与离别的
+
+谁和谁分别已经不用说了 ...</blockquote>
+懂了，鸭又和亲妈离别了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 20391#       发表于 2025-6-18 16:09
+
+真骡子不至于打个魔女都那么费功夫吧
+
+*****
+
+####  量产失败型  
+##### 20392#       发表于 2025-6-18 16:13
+
+戏里花活不断劲爆刺激
+
+戏外守旧派破防又红温
+
+在我心目中这就是今年霸权了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 20393#       发表于 2025-6-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+全息投影氛围灯<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zing223| + 1||
+
+查看全部评分
+
+*****
+
+####  格林达姆  
+##### 20394#       发表于 2025-6-18 16:15
+
+ 本帖最后由 格林达姆 于 2025-6-18 16:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960404&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-18 15:04</a>
+这个世界最后肯定是要没的，因为已经烂掉了
+
+最后估计是创造新世界吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞得好像uc主宇宙就朝气蓬勃一样
+不也到处缝缝补补得过且过
+
+*****
+
+####  赤黑的假面  
+##### 20395#       发表于 2025-6-18 16:15
+
+<blockquote>量产失败型 发表于 2025-6-18 16:13
+戏里花活不断劲爆刺激
+
+戏外守旧派破防又红温
+
+</blockquote>
+确实，比李老八还会玩
+
+*****
+
+####  ヒトニナル  
+##### 20396#       发表于 2025-6-18 16:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有个观点是元祖就是这个拉拉叫过来的，不如说能控制泽科诺瓦现象的只有拉拉和黑科技手电筒吧
+
+*****
+
+####  seedees3  
+##### 20397#       发表于 2025-6-18 16:20
+
+我已经在期待下周响起哪些经典BGM了，长い眠り(后半）和MAIN TITLE都可以端上来了
+
+*****
+
+####  LOLITA  
+##### 20398#       发表于 2025-6-18 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960706&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-18 15:44</a>
+
+主角转移之后剩下的人无非是跳过，一般不会说主角转移走世界就爆炸毁灭啥的，或者大家都去到新世界，反正是 ...</blockquote>
+盲猜一个绿叔叔和首席哥都要被78捅驾驶舱
+
+谁让你开着亡灵机体呢<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  燃烧的石头  
+##### 20399#       发表于 2025-6-18 16:22
+
+直接相逢在宇宙吧 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  猪突猛进R  
+##### 20400#       发表于 2025-6-18 16:22
+
+<img src="https://img.stage1st.com/forum/202506/18/162239r2tz92qo925cb32t.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ7i87-ij6uZgT3cShs-19v.jpg</strong> (169.21 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:22 上传
+
+
+*****
+
+####  LadySaazbaum  
+##### 20401#       发表于 2025-6-18 16:23
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿叔叔，所以绿叔叔比较可能活到战后。
+
+可以贷款一个战损退役/转文职的绿叔叔，腐女市场就指着叔叔了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+泽维尔小哥死不了的，笨狗一只，换个主人拴条新链完事。
+
+紫婆已经被肾击过一次，拖到下一话继续补枪观感过于累赘，比较可能活到战后，被审判入狱。那么扎比家也算（终于）获得了符合霓虹现代三观的清算，吉翁第三新共和国堂堂重开（相关影射不做评价）
+魔法少女夏亚好歹也是贯穿本剧的核心角色，最终话再度神隐/路边一条那Khara社就别想在业内混了。且三小只明确不会承担什么社会责任，必须有成年角色来承担，你说是吧卡斯巴尔·雷姆·戴肯先森。
+
+宇宙男鬼和女鬼肯定要从哪儿来回哪儿去不必多说。
+
+本世界线拉拉被解救可能是一个画面的事情，也可能后日谈补充说明。这种属于对剧本不重要对粉丝很重要的事情鹤卷哥哥不会跟大家较劲的。
+
+…………算下来还真是个HE啊，挺好的UC嘉年华。
+
+GQX这个片子很好在一点不会端着装深沉，时不常地调节气氛提醒观众不要太严肃，这可比某些个追求DEEP! DARK! FANTASY!然后剧情弱智成一坨的不可名状物好太多了。
+
+*****
+
+####  猪突猛进R  
+##### 20402#       发表于 2025-6-18 16:24
+
+<img src="https://img.stage1st.com/forum/202506/18/162423d02mibsl2mghm8b8.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (36.35 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-18 16:24 上传
+
+*****
+
+####  岸波白野  
+##### 20403#       发表于 2025-6-18 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960531&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-18 15:20</a>
+
+律师：大伙看完都笑了吗，我都说了我当初看完分镜都爆笑了</blockquote>
+八爷前阵子直播说最喜欢的钢弹是0080，八爷除了喜欢鸡煲饭见到PG掉毛走不动路，我觉得比起卡拉老登让八爷深度参与新钢弹创作更能解放新兴生产力
+
+*****
+
+####  cayon  
+##### 20404#       发表于 2025-6-18 16:32
+
+看到元祖突然冒出来不笑的也是神人了
+
+*****
+
+####  岸浪白野  
+##### 20405#       发表于 2025-6-18 16:43
+
+[X 上的 かみんちゅuuuuuuX𝄇 プラモVtuber：“GQ向こう側ガンダムのよさげPOINTを上げさせていただいた!!OK、何も言わなくていい分かってる。どうでもいいですか。どうでもいいかもしれないけど私にとっては大変とても非常に重要POINT!!](https://x.com/kamminchu/status/1935123154491556044)[https://t.co/PCfHkhRoaA](https://t.co/PCfHkhRoaA)” / X
+
+<img src="https://img.stage1st.com/forum/202506/18/164209x6vvtt7blwbwzzbv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:42 上传
+
+*****
+
+####  狂马王  
+##### 20406#       发表于 2025-6-18 16:47
+
+哈罗在说“谁だ 谁だ 谁だ“的时候，我以为夏亚要变成恶魔人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 20407#       发表于 2025-6-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960965&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 16:23</a>
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿 ...</blockquote>
+Ed就是结局是吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20408#       发表于 2025-6-18 16:50
+
+[X 上的 比宮じょーず：“「これは私が軍に入隊した時に、父デギンから譲られたものだ。強くなりたいなら、ためらうことなく撃て」 #GQuuuuuuX [url]https://t.co/b0M1BUTusN](https://x.com/ramune_himiya/status/1935250322836058337)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/164955lzabbslj93vku9uk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:49 上传
+
+[X 上的 오리신/olys011：“🍅🍅🪐 [url]https://t.co/Zb9NlcQjvT](https://x.com/olys011/status/1935250413445595464)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/165013kz96stj6saghhtj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 16:50 上传
+
+*****
+
+####  变老的大二  
+##### 20409#       发表于 2025-6-18 16:55
+
+最迷的现在发短信给番茄的人不是夏亚吧。
+
+真是骡子发的？
+
+*****
+
+####  猪突猛进R  
+##### 20410#       发表于 2025-6-18 16:57
+
+有没有可能，那短信是群发的，只有NT够高的人才会收到。
+
+*****
+
+####  吴怀在  
+##### 20411#       发表于 2025-6-18 16:59
+
+ 本帖最后由 吴怀在 于 2025-6-18 17:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961141&amp;ptid=2209276" target="_blank">洛亚替身 发表于 2025-6-18 16:47</a>
+Ed就是结局是吧</blockquote>
+那还真是呼应ED歌词了
+<blockquote>如魔法般恰到好处的设定
+
+身为主角便该有起承转合
+
+结局无论如何都会是大团圆
+
+既然如此就让我随心所欲吧
+
+反正怎样都无所谓了</blockquote>
+
+*****
+
+####  plok201  
+##### 20412#       发表于 2025-6-18 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答案是致敬他们最爱的光头，我就是喜欢这演出，至于设定什么的，有万代擦屁股
+
+讲道理，爱美尔斯能停止时间这种东西一出来再认真下去我觉得头都要炸
+
+*****
+
+####  希望之异热同心  
+##### 20413#       发表于 2025-6-18 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960965&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 16:23</a>
+
+无责任猜结尾
+
+俩JK肯定要回归日常，就需要有大佬给洗刷国际通缉犯和战犯身份，最适合操办此事的人还就是绿 ...</blockquote>
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉，但应该不会死得很小丑吧
+
+*****
+
+####  岸波白野  
+##### 20414#       发表于 2025-6-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960800&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-18 15:59</a>
+
+所以有制作组成员解释gqx超频模式那四个像黑洞的玩意是啥么</blockquote>
+[https://weibo.com/5653388913/5176143218737561](https://weibo.com/5653388913/5176143218737561)
+
+可能只是山下的私货
+
+*****
+
+####  aptx8285144  
+##### 20415#       发表于 2025-6-18 17:17
+
+如果紫婆被清算，不管是不是物理意义，那和紫婆帮凶了一段时间的喵安和首席毫无被冲击的科学性，特别是喵安是直接被命令打头阵干了一波大的……
+
+*****
+
+####  jackyhuang  
+##### 20416#       发表于 2025-6-18 17:18
+
+鸭子应该没余力再去管紫色老太婆了，猜一个喵安对着紫婆舰桥说不许插手吧
+然后喵安在驾驶舱里自闭，预告画面回收
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 20417#       发表于 2025-6-18 17:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给我个面子
+
+<img src="https://img.stage1st.com/forum/202506/18/172316wf915wmmnaprfmhr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 17:23 上传
+
+*****
+
+####  downnote  
+##### 20418#       发表于 2025-6-18 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961184&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-18 16:57</a>
+
+有没有可能，那短信是群发的，只有NT够高的人才会收到。</blockquote>
+群发也不影响发件人不清楚。而且最开始的短信可能是群发的，但引导麻球越狱的指向性就明显了
+
+*****
+
+####  猪突猛进R  
+##### 20419#       发表于 2025-6-18 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961215&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-18 17:03</a>
+
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉 ...</blockquote>
+紫婆早就是期货死人了。
+
+别的不说，就喵安那枪装的是BB弹么，就算打的是屁股也才这点威力？
+
+原作里紫婆光枪爆基连头可是个冥场面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 20420#       发表于 2025-6-18 17:34
+
+紫婆我感觉不会死得太正式，可能就是被手下反水之类
+
+*****
+
+####  岸浪白野  
+##### 20421#       发表于 2025-6-18 17:35
+
+[X 上的 蒔島梓@バ美肉お絵描きVTuber：“回してないのに来た [url]https://t.co/UOIC9nf2kf](https://x.com/azusa_maxima/status/1935259600712012026)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/18/173523b50ccowi5eichewp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 17:35 上传
+
+*****
+
+####  silvia  
+##### 20422#       发表于 2025-6-18 17:42
+
+已经不需要纠结剧情逻辑了，还是那个卡拉，华丽外表下面的家庭伦理剧
+
+*****
+
+####  LadySaazbaum  
+##### 20423#       发表于 2025-6-18 17:51
+
+<blockquote>希望之异热同心 发表于 2025-6-18 17:03
+基西莉亚我倒是感觉肯定要寄了，现在吉翁她最大，审判入狱这种事不太合理，可能还是会膜一波79被鸭子干掉 ...</blockquote>
+
+紫婆在弑兄后快速被人干掉，拍第一次属于无法预测的剧情，到这里就变成大家都猜得到的剧情，那么Khara偏不这样拍——是非常可能的
+
+而小森和希姆斯的对话也可以做出这种解读：本物NT不会这样做，本物NT=小番茄。想想小番茄的性子：啊作为扳机的二号机已经脱离紫婆掌控那为什么还要杀人呢？
+
+既然清除紫婆本人已经失去了紧迫的必要性。留下性命送入牢房，作为旧JGZY象征被狠狠清算，也是一种合理安排。
+
+*****
+
+####  ParadiseMartyr  
+##### 20424#       发表于 2025-6-18 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961514&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-18 17:51</a>
+紫婆在弑兄后快速被人干掉，拍第一次属于无法预测的剧情，到这里就变成大家都猜得到的剧情，那么Khara偏 ...</blockquote>
+？紫婆现在是吉翁最高领导人，谁来投入牢房？路边野狗一样的gquuuuux联邦么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  conanlm  
+##### 20425#       发表于 2025-6-18 17:59
+
+在没有阿姆罗的宇宙，夏亚能否一统UC
+
+*****
+
+####  西洛克  
+##### 20426#       发表于 2025-6-18 18:04
+
+<blockquote>conanlm 发表于 2025-6-18 17:59
+在没有阿姆罗的宇宙，夏亚能否一统UC</blockquote>
+有骡子的宇宙，87鸭和骡子合作也能有一番作为吧。夏亚真想杀了骡子，0093对灵格斯骡子不留手，或者草坪打滚的时候让邱尼把骡子踩死不就行了。
+
+*****
+
+####  xwz  
+##### 20427#       发表于 2025-6-18 18:13
+
+93鸭其实已经失去人生目标了，也就是和骡子的战斗能让他认真起来，一切都是为了这个服务的
+
+*****
+
+####  LadySaazbaum  
+##### 20428#       发表于 2025-6-18 18:23
+
+<blockquote>ParadiseMartyr 发表于 2025-6-18 17:54
+？紫婆现在是吉翁最高领导人，谁来投入牢房？路边野狗一样的gquuuuux联邦么
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+没屁用的GQX联邦就不要cue了∠( ᐛ 」∠)＿
+
+手续上有个图章首相，安抚民心有归来的夏亚，实际动手押解有索顿。不要太在意是否完全合理因为十部萝卜番有十部半都做不到合理，经验之谈（。
+
+另，既然GQX斩钉截铁说不会有第二季，意味着本世界线不必再有（为了卖胶而引发的）战争，意味着GQX吉翁可以改造为比较正常稳定的和平国家，那么对扎比家的公开审判是必要的，弑亲+轰了本国要塞的基西莉亚正是绝佳对象。
+
+*****
+
+####  bonnwang  
+##### 20429#       发表于 2025-6-18 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961569&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 17:59</a>
+在没有阿姆罗的宇宙，夏亚能否一统UC</blockquote>
+机战d好像有这个世界线
+
+*****
+
+####  Aunn  
+##### 20430#       发表于 2025-6-18 18:38
+
+我觉得元祖或者牛高达出来客串是本来就意料之内的事。说真的，可能是看到中期就降低期待了，本来觉得这集还好，也觉得最近几集质量也比前半好点，但反而是看讨论看笑了。
+再看熟肉觉得让我绷不住的还是水星bgm出来的时候，瞬间就想起寒蝉卒最后放you了。就希望最后这饺子能包完，不要让我网易云电台又多一首歌ptsd了。
+
+*****
+
+####  bonnwang  
+##### 20431#       发表于 2025-6-18 18:40
+
+主世界谁的头发是跟修斯一样蓝色的：93的倩<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanlm  
+##### 20432#       发表于 2025-6-18 18:44
+
+这个宇宙只是拉拉临死前的幻想吧，这个宇宙消失了，拉拉应该就回到现实宇宙死掉了吧
+
+*****
+
+####  conanlm  
+##### 20433#       发表于 2025-6-18 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961767&amp;ptid=2209276" target="_blank">bonnwang 发表于 2025-6-18 18:40</a>
+
+主世界谁的头发是跟修斯一样蓝色的：93的倩</blockquote>
+不应该是卡缪吗<img src="https://static.stage1st.com/image/smiley/carton2017/205.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bonnwang  
+##### 20434#       发表于 2025-6-18 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961790&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 18:44</a>
+这个宇宙只是拉拉临死前的幻想吧，这个宇宙消失了，拉拉应该就回到现实宇宙死掉了吧 ...</blockquote>
+那78过来直接捅拉拉一光剑就修正历史了
+
+*****
+
+####  bonnwang  
+##### 20435#       发表于 2025-6-18 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961817&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-18 18:49</a>
+不应该是卡缪吗</blockquote>
+猫没死
+93倩被不孝子打死的时候灵魂脱体了
+
+*****
+
+####  ヒトニナル  
+##### 20436#       发表于 2025-6-18 18:52
+
+要我说最后的结局就是重启GQuuuuuuX世界线，所以紫婆的下场根本无所谓，汤大基也会复活，而大人的事情就让重启之后的大人们去解决吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 20437#       发表于 2025-6-18 18:54
+
+谁知道老登们是不是做梦都想看到夏亚去掉面具站在讲坛上对着麦克风宣布老子就是吉翁·戴肯的儿子卡斯巴尔·雷姆·戴肯，现在我要行使我的合法权利，吉翁的未来、宇宙居民和新人类的明天由我来指引口牙<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 20438#       发表于 2025-6-18 19:01
+
+Beyond the Time登上了iTunes Store日区单曲销售版的第4名(TMN专辑)和第23名(CCA OST)……今夕是何年？ 
+
+*****
+
+####  bonnwang  
+##### 20439#       发表于 2025-6-18 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67961892&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-18 19:01</a>
+Beyond the Time登上了iTunes Store日区单曲销售版的第4名(TMN专辑)和第23名(CCA OST)……今夕是何年？  ...</blockquote>
+老登的实力
+
+*****
+
+####  猪突猛进R  
+##### 20440#       发表于 2025-6-18 19:12
+
+希望最后一集能听到骡子的处刑用小曲：
+[https://www.bilibili.com/video/BV1k94y177et](https://www.bilibili.com/video/BV1k94y177et)
+
+
+*****
+
+####  人生如戏  
+##### 20441#       发表于 2025-6-18 19:27
+
+还没看11话，但看了12话预告，这连元祖都来了，骡子不露一脸说不过去吧。
+然后结局要是一群人围着玛秋一边拍手一边说恭喜我都不会奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜留歌  
+##### 20442#       发表于 2025-6-18 19:34
+
+刚看完，怎么结尾一转beyond the time<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，配合镜头确实给人感觉修司就是骡子，终结扭曲的世界这种做法，想想也算符合93骡的形象
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qappip  
+##### 20443#       发表于 2025-6-18 19:35
+
+我建议降低期待，阿姆罗应该不可能登场的，我很难想象阿姆罗突然登场然后大开杀戒样子，
+他不是那种性格的人。
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  夜留歌  
+##### 20442#       发表于 2025-6-18 19:34
+
+刚看完，怎么结尾一转beyond the time<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，配合镜头确实给人感觉修司就是骡子，终结扭曲的世界这种做法，想想也算符合93骡的形象
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qappip  
+##### 20443#       发表于 2025-6-18 19:35
+
+我建议降低期待，阿姆罗应该不可能登场的，我很难想象阿姆罗突然登场然后大开杀戒样子，
+他不是那种性格的人。
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

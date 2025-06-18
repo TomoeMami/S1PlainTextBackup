@@ -4656,3 +4656,253 @@ EX5对3行动的要求更高，没有总帅有傻子那和攻击大和也行
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这活动地图100%有没有隐藏奖励的？没有的话是不是过了10万就不用浪费pp抓人拿buff了
 
+
+*****
+
+####  hayate0079  
+##### 1910#       发表于 2025-6-18 09:21
+
+把EX5和EX4的全开发成就过了，B站上的作业真的是对UR机师，特别是UR支援要求很高
+
+*****
+
+####  棍机凹升龙  
+##### 1911#       发表于 2025-6-18 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955316&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-6-17 19:28</a>
+
+这活动地图100%有没有隐藏奖励的？没有的话是不是过了10万就不用浪费pp抓人拿buff了 ...</blockquote>
+有积分挑战可能用得到buff？不过我还没开启
+
+*****
+
+####  rockroxas  
+##### 1912#       发表于 2025-6-18 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958111&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-6-18 09:21</a>
+
+有积分挑战可能用得到buff？不过我还没开启</blockquote>
+打完积分10万跟3次积分就完了，buff大概率用不到
+
+3图boss每PP120票，2图隐藏boss每PP50票，优先打到最后才好略过（打完3图boss同步开挑战，假如你说的是还没开而不是还没打的话最好先打完）
+
+*****
+
+####  棍机凹升龙  
+##### 1913#       发表于 2025-6-18 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958259&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-18 09:38</a>
+
+打完积分10万跟3次积分就完了，buff大概率用不到
+
+3图boss每PP120票，2图隐藏boss每PP50票，优先打到最后 ...</blockquote>
+哦哦，原来10万就是积分，那中午搞搞
+
+*****
+
+####  马桶3  
+##### 1914#       发表于 2025-6-18 11:14
+
+<img src="https://img.stage1st.com/forum/202506/18/111357bepja66rpb6363jy.jpg" referrerpolicy="no-referrer">
+
+<strong>e8b98213b07eca809809b6f6d72397dda1448338.jpg</strong> (45.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:13 上传
+
+不要忘记每天次数打满，任务总共做到100次
+
+*****
+
+####  rockroxas  
+##### 1915#       发表于 2025-6-18 12:29
+
+次数直接打，楼友自动应该都没难度吧，无非是每天略过次数
+
+每天买次数买最便宜那次就好，再往上亏爆（其实感觉买最便宜的也是小亏）
+
+*****
+
+####  captoon  
+##### 1916#       发表于 2025-6-18 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958998&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-6-18 11:14</a>
+
+不要忘记每天次数打满，任务总共做到100次</blockquote>
+积分挑战总共要多少
+
+*****
+
+####  马桶3  
+##### 1917#       发表于 2025-6-18 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959687&amp;ptid=2071758" target="_blank">captoon 发表于 2025-6-18 12:49</a>
+积分挑战总共要多少</blockquote>
+<img src="https://p.sda1.dev/25/895d0c2c7202400c01d5fa7eb4b59abb/image.jpg" referrerpolicy="no-referrer">
+100000就行
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lighttt  
+##### 1918#       发表于 2025-6-18 14:00
+
+发新公告了，增加的20%能力变50%了，我去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  马桶3  
+##### 1919#       发表于 2025-6-18 16:00
+
+不知道实际如何但脑测这改版PVP不如原版，等上线了体验下试试吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  螺旋的小夜曲  
+##### 1920#       发表于 2025-6-18 17:21
+
+不是说每周加送20SP吗，鸽了？
+
+
+*****
+
+####  一个陆仁贾  
+##### 1921#       发表于 2025-6-18 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960046&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-6-18 14:00</a>
+发新公告了，增加的20%能力变50%了，我去
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+感觉被氪佬虐得更厉害了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hayate0079  
+##### 1910#       发表于 2025-6-18 09:21
+
+把EX5和EX4的全开发成就过了，B站上的作业真的是对UR机师，特别是UR支援要求很高
+
+*****
+
+####  棍机凹升龙  
+##### 1911#       发表于 2025-6-18 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67955316&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-6-17 19:28</a>
+
+这活动地图100%有没有隐藏奖励的？没有的话是不是过了10万就不用浪费pp抓人拿buff了 ...</blockquote>
+有积分挑战可能用得到buff？不过我还没开启
+
+*****
+
+####  rockroxas  
+##### 1912#       发表于 2025-6-18 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958111&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-6-18 09:21</a>
+
+有积分挑战可能用得到buff？不过我还没开启</blockquote>
+打完积分10万跟3次积分就完了，buff大概率用不到
+
+3图boss每PP120票，2图隐藏boss每PP50票，优先打到最后才好略过（打完3图boss同步开挑战，假如你说的是还没开而不是还没打的话最好先打完）
+
+*****
+
+####  棍机凹升龙  
+##### 1913#       发表于 2025-6-18 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958259&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-18 09:38</a>
+
+打完积分10万跟3次积分就完了，buff大概率用不到
+
+3图boss每PP120票，2图隐藏boss每PP50票，优先打到最后 ...</blockquote>
+哦哦，原来10万就是积分，那中午搞搞
+
+*****
+
+####  马桶3  
+##### 1914#       发表于 2025-6-18 11:14
+
+<img src="https://img.stage1st.com/forum/202506/18/111357bepja66rpb6363jy.jpg" referrerpolicy="no-referrer">
+
+<strong>e8b98213b07eca809809b6f6d72397dda1448338.jpg</strong> (45.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 11:13 上传
+
+不要忘记每天次数打满，任务总共做到100次
+
+*****
+
+####  rockroxas  
+##### 1915#       发表于 2025-6-18 12:29
+
+次数直接打，楼友自动应该都没难度吧，无非是每天略过次数
+
+每天买次数买最便宜那次就好，再往上亏爆（其实感觉买最便宜的也是小亏）
+
+*****
+
+####  captoon  
+##### 1916#       发表于 2025-6-18 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67958998&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-6-18 11:14</a>
+
+不要忘记每天次数打满，任务总共做到100次</blockquote>
+积分挑战总共要多少
+
+*****
+
+####  马桶3  
+##### 1917#       发表于 2025-6-18 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67959687&amp;ptid=2071758" target="_blank">captoon 发表于 2025-6-18 12:49</a>
+积分挑战总共要多少</blockquote>
+<img src="https://p.sda1.dev/25/895d0c2c7202400c01d5fa7eb4b59abb/image.jpg" referrerpolicy="no-referrer">
+100000就行
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lighttt  
+##### 1918#       发表于 2025-6-18 14:00
+
+发新公告了，增加的20%能力变50%了，我去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  马桶3  
+##### 1919#       发表于 2025-6-18 16:00
+
+不知道实际如何但脑测这改版PVP不如原版，等上线了体验下试试吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  螺旋的小夜曲  
+##### 1920#       发表于 2025-6-18 17:21
+
+不是说每周加送20SP吗，鸽了？
+
+
+*****
+
+####  一个陆仁贾  
+##### 1921#       发表于 2025-6-18 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67960046&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-6-18 14:00</a>
+发新公告了，增加的20%能力变50%了，我去
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+感觉被氪佬虐得更厉害了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
