@@ -3260,3 +3260,11 @@ md我现在氪了518加10还只能玩残疾卡组 这分解机制真的太逆天
 
 所以国服啥时候发包 啥时候把卡BUG的回档 啥时候发补偿
 
+
+*****
+
+####  rilakkuma  
+##### 191#       发表于 2025-6-18 21:11
+
+为什么，明明我也是steam却没有收到包<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
