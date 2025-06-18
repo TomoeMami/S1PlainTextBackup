@@ -2116,3 +2116,14 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 红莲一刀清空boss护盾，只耗半条槽，这招无敌的
 
+
+*****
+
+####  ——啧  
+##### 3133#       发表于 2025-6-19 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963183&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-18 23:37</a>
+哦，就是占用了迅驰模式是吧，不太好啊。</blockquote>
+其实挺好的，迅驰模式伤害太低了……除了用来保命几乎无用
+红莲起码有输出<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

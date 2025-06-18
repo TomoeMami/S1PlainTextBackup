@@ -18495,3 +18495,31 @@ gq夏亚的目标出乎所有人的意料，却又在情理之中。
 
 说实话，看GQ最快乐的可能是每周结束后上推看梗图，就像ms装了赛可谬系统一样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanlm  
+##### 20510#       发表于 2025-6-19 00:26
+
+以元祖的性能，能打过这些塞克谬系统的机体吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 20511#       发表于 2025-6-19 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963350&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-19 00:26</a>
+
+以元祖的性能，能打过这些塞克谬系统的机体吗</blockquote>
+GQX这群NT又不是Z和ZZ里人均发功的那群NT，NT+塞可谬的组合发功除了泽克诺瓦啥都不会，能不能活过一首歌才是问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  怀旧战士  
+##### 20512#       发表于 2025-6-19 00:35
+
+这个BGM
+
+穿越过来的不应该是牛敢达吗？
+
