@@ -18462,3 +18462,14 @@ gq夏亚的目标出乎所有人的意料，却又在情理之中。
 
 其实这样也未必不好，起码和原时间线差异足够大，不会把GQ的设定和正史联系
 
+
+*****
+
+####  LOLITA  
+##### 20506#       发表于 2025-6-18 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963166&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-18 23:31</a>
+
+阿姆罗爆改成蓝毛小南娘，我怎么会做这种梦</blockquote>
+不这样能让米奇律师爆笑么<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

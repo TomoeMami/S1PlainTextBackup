@@ -961,3 +961,15 @@ Key社的作品一直没动力玩可能也是在我看来太传统了。
 
 demo在ns2上运行报错，进不了游戏
 
+
+*****
+
+####  Toby_dak  
+##### 80#       发表于 2025-6-18 23:49
+
+还是不习惯小草莓配的神岸明……
+
+<img src="https://p.sda1.dev/25/425dab9c0c82acf595204a7630631d33/1000126905.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
