@@ -2160,3 +2160,13 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 二周目就可以玩枪星了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 3137#       发表于 2025-6-19 07:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">子弹有限真的很恶心
+跑图探索过程中突然遇到一个要射击的迷题然后发现子弹不够，只能找篝火买子弹去再跑回来解密
+真的学尼尔就应该学到底啊...
+
