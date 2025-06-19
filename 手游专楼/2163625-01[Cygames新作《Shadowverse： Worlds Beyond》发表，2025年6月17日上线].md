@@ -3478,3 +3478,17 @@ llmy没那么菜打外战还是挺好用的
 
 黄红横跳中+1<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">回到黄宝石有种回家的安心感
 
+
+*****
+
+####  千千千千鸟  
+##### 213#       发表于 2025-6-19 17:19
+
+ 本帖最后由 千千千千鸟 于 2025-6-19 17:23 编辑 
+
+新手，这游戏虹卡率有点厉害，排位打到黄，把所有其他奖励都拿完了，加上11港币的新手10包，到现在开了89包+480金币。 有26张虹卡。
+
+看了一圈貌似还是只能玩龙族，龙族的刘备和652虹卡都3张了，还有那个101010的替换卡组的大boss卡也抽到了3张，有毛用啊。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+给我2张弃牌清场的那个龙族虹卡或者给我2张贞德就好了，本来对龙族没啥兴趣的，最开始想玩主教，但是啥卡都没有，这个龙族玩了十几盘倒还挺有意思，最好玩的感觉是超越者，但是虹卡只有一张白毛双马尾<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

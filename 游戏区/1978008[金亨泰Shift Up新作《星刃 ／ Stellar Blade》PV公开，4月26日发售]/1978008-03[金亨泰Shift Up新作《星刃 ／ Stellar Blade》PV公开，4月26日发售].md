@@ -2574,3 +2574,15 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 
 doro别用近战攻击打 打完就消失了 不如就这么让它在城里溜着
 
+
+*****
+
+####  zero33333  
+##### 3177#       发表于 2025-6-19 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966677&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 16:41</a>
+bug了，你绑了psn就会因为送了原色版而导致商店里不卖原色版设计图，继而系统认为你没获得原色版设计图导 ...</blockquote>
+草，还这样
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
