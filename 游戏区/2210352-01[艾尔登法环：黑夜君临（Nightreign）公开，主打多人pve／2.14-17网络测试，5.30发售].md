@@ -9607,3 +9607,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 原来无赖这么好练，都不用刻意跑图找点，通三次其余内容在家就能完成。
 
+
+*****
+
+####  火红之眼  
+##### 937#       发表于 2025-6-20 00:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">被虐了一晚，然后看下朋友带的牢狱buff攻击力高一大截，老老实实全员带上牢狱遗物就过了，第二把开始用王证兑换那个牢狱遗物带个钥匙，每把都是day1劫狱流怒开五六个监狱，再把地形调成隐城基本稳过了
+

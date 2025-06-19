@@ -21069,3 +21069,118 @@ nga里看到，b站有人透露分镜脚本，元祖里面貌似是修司</block
 
 所以修斯到底是啥（
 
+
+*****
+
+####  Sliurus  
+##### 20699#       发表于 2025-6-20 00:48
+
+都最后一集了，剧透别往楼里搬了
+
+*****
+
+####  希望之异热同心  
+##### 20700#       发表于 2025-6-20 00:49
+
+我草最后一集居然还能继续爆！
+
+*****
+
+####  猪突猛进R  
+##### 20701#       发表于 2025-6-20 00:49
+
+修司就是异世界的骡，有什么好奇怪的。
+
+*****
+
+####  ryanghj  
+##### 20702#       发表于 2025-6-20 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968901&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-20 00:46</a>
+
+预告里面手电筒有另一个形态，会不会第二个形态其实是用来把艾尔美斯射回原来时间线呢。 ...</blockquote>
+预告里手电筒是裂开了吧
+
+*****
+
+####  民工业  
+##### 20703#       发表于 2025-6-20 00:50
+
+tmd剧透有瘾是吧<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  希望之异热同心  
+##### 20704#       发表于 2025-6-20 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968912&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 00:50</a>
+
+预告里手电筒是裂开了吧</blockquote>
+
+我觉得更像分离把，鸭子五年来在手电筒建设的真实目的
+
+<img src="https://img.stage1st.com/forum/202506/20/005104er3x9y519h12zq5s.png" referrerpolicy="no-referrer">
+
+<strong>6e4ea92e-b52c-4251-8fa6-495d8b752276.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:51 上传
+
+*****
+
+####  西洛克  
+##### 20705#       发表于 2025-6-20 00:52
+
+<blockquote>猪突猛进R 发表于 2025-6-20 00:49
+修司就是异世界的骡，有什么好奇怪的。</blockquote>
+骡这种重要角色怎么可能有同位体，而且无论哪方面都和骡没有相似之处，观众更不买账。
+
+*****
+
+####  Sliurus  
+##### 20706#       发表于 2025-6-20 00:52
+
+之前在X上看到的一个猜测
+
+<img src="https://img.stage1st.com/forum/202506/20/005057t977yv1d2vhzdqnw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8254.JPG</strong> (86.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:50 上传
+
+这么搞马秋真的有机会和修司包饺子吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 20707#       发表于 2025-6-20 00:53
+
+<blockquote>希望之异热同心 发表于 2025-6-20 00:51
+我觉得更像分离把，鸭子五年来在手电筒建设的真实目的</blockquote>
+这种大工程真有可能瞒天过海搞另一个功能吗…
+
+
+*****
+
+####  浅川雏羽  
+##### 20708#       发表于 2025-6-20 00:55
+
+毕竟g夸之于UC就像新三国之于三国演义
+
+关羽之歌里没有关羽，byd time里没有骡子也是一脉相承的
+
+*****
+
+####  希望之异热同心  
+##### 20709#       发表于 2025-6-20 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968923&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-20 00:53</a>
+
+这种大工程真有可能瞒天过海搞另一个功能吗…</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">别的人办不到，但是干这事的人是总帅，怎么也得信一下！
+
