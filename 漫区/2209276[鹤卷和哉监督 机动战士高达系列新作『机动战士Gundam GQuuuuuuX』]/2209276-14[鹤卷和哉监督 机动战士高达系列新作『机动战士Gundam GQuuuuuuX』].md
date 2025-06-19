@@ -20223,3 +20223,62 @@ gqux有两条平行世界。</blockquote>
 
 而麻球本身的塑造，也是趋于对“爱”的认知的完善。麻球可以说确实是恋爱脑，但在这几**人的各种教育下，可以说是个情感大师了，和同样对修有恋心的好姐妹一对比，麻球已经成熟得不像是之前那个吃醋精圆头耄耋了...如果gqx真的是要歌颂爱，那一个理解了爱的少女，用爱搅乱局面，解放了深陷于爱的众人，那确实是比较完整的闭环了
 
+
+*****
+
+####  YU_JI  
+##### 20639#       发表于 2025-6-19 18:09
+
+说起这个话题，星街彗星的ed的词回头来看，味道完全不一样。呼唤爱意的人来自异乡，之前都以为还是在说三小只，搞半天原来是说拉拉；遵循本能无法行动就是现在喵安的状态，冲动高涨的则是番茄
+
+<img src="https://img.stage1st.com/forum/202506/19/180625j8cjg8ie3fas8fox.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5296.jpeg</strong> (141.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/180844zq8g53f1zg4h4hah.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5297.jpeg</strong> (126.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:08 上传
+
+
+*****
+
+####  千恋万花  
+##### 20640#       发表于 2025-6-19 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967259&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-19 18:09</a>
+
+说起这个话题，星街彗星的ed的词回头来看，味道完全不一样。呼唤爱意的人来自异乡，之前都以为还是在说三小 ...</blockquote>
+目前大部分音乐平台的 ED 歌词都有点问题，根据官方 MV 给的歌词，不是「行動不能」而是「本能のままに行動 / 鼓動に高まる衝動」
+
+
+*****
+
+####  asdhai  
+##### 20641#       发表于 2025-6-19 18:13
+
+<img src="https://img.stage1st.com/forum/202506/19/181239cazab72baa2s0baf.jpg" referrerpolicy="no-referrer">
+
+<strong>1000007168.jpg</strong> (227.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/181240e9ekfkoevkc008kk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000007169.jpg</strong> (274.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:12 上传
+
+舞台上的三角锥
+
