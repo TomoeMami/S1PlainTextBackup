@@ -20788,3 +20788,174 @@ ED没欺诈我就和这片人物塑造彻底和解<img src="https://static.stage
 
 联邦军残党，迈入！<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 20680#       发表于 2025-6-20 00:19
+
+nga里看到，b站有人透露分镜脚本，元祖里面貌似是修司
+<img src="https://p.sda1.dev/25/94ee4ecf4b10cf2f2ea0407be50fc57a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/ee6583d2bde245d2e7dba6838f5c1376/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 20681#       发表于 2025-6-20 00:19
+
+G夸演到现在联邦视角一定挺奇特的
+虽然特意让眼镜娘活到现在甚至公然说要刺杀基西莉亚都没人管来看，吉翁共和派应该是要大赢特赢了，但是联邦也是躺赢啊<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猎人D  
+##### 20682#       发表于 2025-6-20 00:21
+
+果然是这样吗，只能说只想着看主世界来人乱杀的人要失望了
+
+*****
+
+####  Piano-Forest  
+##### 20683#         楼主| 发表于 2025-6-20 00:23
+
+TM NETWORK的专辑《BEYOND THE TIME (メビウスの宇宙を越えて) -2025 Version-》: 
+[http://music.163.com/album/274723664/](http://music.163.com/album/274723664/)
+
+<img src="https://p.sda1.dev/25/d3fd62dc3e8d0f89edd6789ea62c1a11/20250619_141601.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d718dcb4e26edaaa88428d0deabbb601/20250619_141604.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/bfd8a834ab9a8957088ba4b1e41a57fa/20250619_141608.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/326d680e802418b7267e8a05c8b170bc/20250619_141510.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yurikei_/status/1934827388925583483](https://x.com/yurikei_/status/1934827388925583483)
+
+何故か公にはなっていないみたいなんですが、
+
+1997年頃、セガサターン用ゲーム「ギレンの野望」の制作に関わっていました。
+
+ゲーム内ムービーのコンテ、演出、作画監督、ゲーム中にカットインするキャラクターの作画をやっていました。
+
+しばらく「ギレン」関係の画像とか上げていきます。
+<img src="https://p.sda1.dev/25/d1020f37320fa84da1a4ef2080e71fb3/20250619_141215.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1935003042186998002](https://x.com/YY_shibata/status/1935003042186998002)
+
+第11話ご視聴いただきありがとうございます！
+
+動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/25/512cb137614ff76de71c7704c4b0ff9c/20250619_141310.jpg" referrerpolicy="no-referrer">
+
+飼い犬に噛まれた
+<img src="https://p.sda1.dev/25/ba2c0f63199746a821581d78599dd598/20250619_141316.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1935003151658307961](https://x.com/nkn_ruka/status/1935003151658307961)
+
+第11話、二原と動画で参加しておりました！
+
+ありがとうございました！
+<img src="https://p.sda1.dev/25/895fb8cbfd295775e1ce83feee9b0cfa/20250619_141433.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1935004563599446105](https://x.com/kouda_nyo/status/1935004563599446105)
+
+ときめきシャア
+<img src="https://p.sda1.dev/25/11b37b59de697569418560b38b8ff395/20250619_141438.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/zzz_sakaz/status/1935004465473732632](https://x.com/zzz_sakaz/status/1935004465473732632)
+
+第11話、原画で参加させていただきました。
+
+作品には11話からの参加だったのですが、一番最初に参加した回で特大のネタバレを受けた僕です。
+
+コンテ読んだ時に思わず「はっ？ｗ」と声に出てしまいました。
+
+最終回、座して待つ！！
+
+※FA許可済みです。
+<img src="https://p.sda1.dev/25/1e179dc527f8b869377abc856aae89d6/20250619_142137.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ito_0006/status/1935005390695190626](https://x.com/ito_0006/status/1935005390695190626)
+
+GQuuuuuuX11話の演出を担当させていただきました。クライマックスに向けて大きく動く物語を楽しんでもらえたら嬉しいです。ご試聴ありがとうございました！
+<img src="https://p.sda1.dev/25/93006a42ab9e07375341d28c53edba94/20250619_141447.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 20684#       发表于 2025-6-20 00:23
+
+<blockquote>Saber琪 发表于 2025-6-20 00:19
+nga里看到，b站有人透露分镜脚本，元祖里面貌似是修司</blockquote>
+卡哈这公司这么草台吗
+
+*****
+
+####  Piano-Forest  
+##### 20685#         楼主| 发表于 2025-6-20 00:23
+
+<img src="https://p.sda1.dev/25/1b34293ef5814efd728ef8cc63538205/SaveTwitter.Net_-NW0fe9ASRJD7Dwv__720p_.gif" referrerpolicy="no-referrer">
+
+[https://x.com/Ninjamaster_73/status/1935013604568481816](https://x.com/Ninjamaster_73/status/1935013604568481816)
+<img src="https://p.sda1.dev/25/c33b3ac98427c477cc654bc69c8c9ccd/20250619_141528.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sasihmi/status/1935302282616389779](https://x.com/sasihmi/status/1935302282616389779)
+<img src="https://p.sda1.dev/25/eff34a497345bdc6799cc1e41ee7f874/20250619_141701.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_SLEEPING_EARTH/status/1935154577013391827](https://x.com/_SLEEPING_EARTH/status/1935154577013391827)
+<img src="https://p.sda1.dev/25/6380bbe39e7c3ece0d56733e0db6686e/20250619_141715.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KEUMAYA/status/1935089320635023458](https://x.com/KEUMAYA/status/1935089320635023458)
+<img src="https://p.sda1.dev/25/ecbec8a863e8fc8f805caff296e1c970/20250619_141805.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 20686#       发表于 2025-6-20 00:24
+
+穿背心这个分镜不上色还以为是背心尊者呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Piano-Forest  
+##### 20687#         楼主| 发表于 2025-6-20 00:26
+
+[https://weibo.com/2111397132/5178707864192566](https://weibo.com/2111397132/5178707864192566)
+<img src="https://p.sda1.dev/25/1eab6990173181f1dd97497f8376bd29/20250619_141534.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/krymrin/status/1935036241030078767](https://x.com/krymrin/status/1935036241030078767)
+<img src="https://p.sda1.dev/25/3e5c042c8f7ed3425727d4585a807590/20250619_141650.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/olys011/status/1935250413445595464](https://x.com/olys011/status/1935250413445595464)
+<img src="https://p.sda1.dev/25/5223c939ef207af79b32f8623e55e580/20250619_141813.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/HatsuneT/status/1934988067972260148](https://x.com/HatsuneT/status/1934988067972260148)
+<img src="https://p.sda1.dev/25/a1159acd37f6ba1a86bfcf34c74f66d3/20250619_141522.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rakushi0/status/1935653097004838983](https://x.com/rakushi0/status/1935653097004838983)
+<img src="https://p.sda1.dev/25/a5062c31a5334c7b56f339473c925a7b/20250620_002522.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Ymmmkome/status/1935655288016933298](https://x.com/Ymmmkome/status/1935655288016933298)
+<img src="https://p.sda1.dev/25/7f652a6a0554c73546ff45a0a617dc0b/20250620_002526.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/my_drawin5670/status/1935348396703047735](https://x.com/my_drawin5670/status/1935348396703047735)
+<img src="https://p.sda1.dev/25/83a48982546876074ee75290ca1bc2ea/20250619_141754.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tete06g/status/1934979574129148404](https://x.com/tete06g/status/1934979574129148404)
+<img src="https://p.sda1.dev/25/4d479b251de75e207555b5a135238b1c/20250619_141504.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/emya26/status/1934917051161956811](https://x.com/emya26/status/1934917051161956811)
+<img src="https://p.sda1.dev/25/4593094366096b7737acfc306efe1e86/20250619_141429.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/morikinoko8888/status/1935180576581108167](https://x.com/morikinoko8888/status/1935180576581108167)
+<img src="https://p.sda1.dev/25/50539747eee88b0d96669734807be35d/20250619_141635.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_SLEEPING_EARTH/status/1935171770350485585](https://x.com/_SLEEPING_EARTH/status/1935171770350485585)
+<img src="https://p.sda1.dev/25/79d6ead2f47dfc02b226779ae9a892d3/20250619_141617.jpg" referrerpolicy="no-referrer">
+
