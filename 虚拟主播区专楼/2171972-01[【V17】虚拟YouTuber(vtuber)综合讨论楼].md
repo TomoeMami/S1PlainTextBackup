@@ -1214,3 +1214,11 @@ sry我确实是男人情弱<img src="https://static.stage1st.com/image/smiley/fa
 
 最近本社深夜直播的同接时不时就会出现被买bot的曲线，也没有固定人选，en已经是长期被买了，不知道是哪位的anti在**
 
+
+*****
+
+####  Ferrari  
+##### 1295#       发表于 2025-6-19 20:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">某人抽到山本的截图瞬间出现在好几个群里
+
