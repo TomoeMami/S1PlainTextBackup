@@ -2216,3 +2216,27 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Andariel  
+##### 3142#       发表于 2025-6-19 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963790&amp;ptid=1978008" target="_blank">黒長直姫 发表于 2025-6-19 08:20</a>
+有没有人有表格类的一周目全衣服饰品列表或者图片也可以。对着视频找太难了，一个两个都要展示收集过程和上 ...</blockquote>
+https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
+前面坛友发的，挺好用的
+
+
+*****
+
+####  harmonytree  
+##### 3143#       发表于 2025-6-19 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963752&amp;ptid=1978008" target="_blank">schneehertz 发表于 2025-6-19 08:03</a>
+
+这游戏打怪给的经验不如做支线来的多，多做支线数值够了游戏难度就大幅降低
+
+—— 来自 Xiaomi 23127PN0C ...</blockquote>
+好的
+
