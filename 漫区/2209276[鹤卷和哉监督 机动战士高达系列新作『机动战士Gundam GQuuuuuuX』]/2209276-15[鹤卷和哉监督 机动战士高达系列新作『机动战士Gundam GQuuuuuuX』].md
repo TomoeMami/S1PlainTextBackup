@@ -127,3 +127,59 @@ b站泄露那位已经跑路了
 
 不过这雀食搞笑，道理我都懂，这元祖怎么这么大（）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烧的石头  
+##### 20734#       发表于 2025-6-20 01:28
+
+nga剧透楼进审核了，代哥不会又要发力了吧，复刻种自？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Saber琪  
+##### 20735#       发表于 2025-6-20 01:29
+
+反白：
+鸭子也对付巨大化元祖
+
+*****
+
+####  猪突猛进R  
+##### 20736#       发表于 2025-6-20 01:30
+
+喵安身高一直藏果然是有意义的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  葛林TOP  
+##### 20737#       发表于 2025-6-20 01:30
+
+继CCA以来的高清捅拉拉？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 20738#       发表于 2025-6-20 01:34
+
+等了这么久的开口终于来了
+
+*****
+
+####  枪聆弹语  
+##### 20739#       发表于 2025-6-20 01:35
+
+国家队是对的，独角兽也是对的，铁血水魔也是对的，布雷绑也是对的，烂炒木柜子就是版本答案啊
+
+*****
+
+####  燃烧的石头  
+##### 20740#       发表于 2025-6-20 01:36
+
+最后会变成高达自己的铁盖塔吗，因为修复了时间线导致拉拉替鸭子勇士挡刀
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
