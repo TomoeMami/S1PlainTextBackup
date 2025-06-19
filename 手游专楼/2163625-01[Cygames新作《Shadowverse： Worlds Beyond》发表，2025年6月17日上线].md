@@ -3470,3 +3470,11 @@ llmy没那么菜打外战还是挺好用的
 — f ...</blockquote>
 从十天觉醒之后好像都不怎么自闭了，除了撤退皇，设计师已经爱上了进化刷场面。
 
+
+*****
+
+####  duraa  
+##### 212#       发表于 2025-6-19 16:36
+
+黄红横跳中+1<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">回到黄宝石有种回家的安心感
+

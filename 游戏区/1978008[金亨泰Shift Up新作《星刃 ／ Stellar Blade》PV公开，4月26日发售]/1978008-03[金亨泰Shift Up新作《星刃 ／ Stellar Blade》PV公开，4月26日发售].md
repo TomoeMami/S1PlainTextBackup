@@ -2506,3 +2506,21 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 这枪射速太慢了，风灵无限弹药射的也不爽，而且伤害真的刮痧</blockquote>
 枪械要骨架插件支持的，不然就是偶尔远程补刀跟打硬直用
 
+
+*****
+
+####  masokishin  
+##### 3170#       发表于 2025-6-19 16:36
+
+空降服第二小队第二版怎么没得卖。。。
+
+*****
+
+####  Andariel  
+##### 3171#       发表于 2025-6-19 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966646&amp;ptid=1978008" target="_blank">masokishin 发表于 2025-6-19 16:36</a>
+空降服第二小队第二版怎么没得卖。。。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">bug了，你绑了psn就会因为送了原色版而导致商店里不卖原色版设计图，继而系统认为你没获得原色版设计图导致不卖异色版设计图
+目前据说只能从n网找一个有商人卖所有设计图的mod，打上mod买了图再删除mod
+
