@@ -20570,3 +20570,16 @@ gqux有两条平行世界。</blockquote>
 
 劇場版2制作中
 
+
+*****
+
+####  ryanghj  
+##### 20660#       发表于 2025-6-19 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968033&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-19 20:51</a>
+
+最後一集劇情估計
+
+夏亞一心想殺了異界娜娜，夏利亞成功說得夏亞，2人再次組隊MAV對白色惡魔</blockquote>
+我觉得gq世界线后续没啥好拍的了吧，尤其是如果是所谓“跨越NT命运”的结局，估计直接没战争了都
+
