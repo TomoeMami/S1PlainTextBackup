@@ -2482,3 +2482,17 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 
 这枪射速太慢了，风灵无限弹药射的也不爽，而且伤害真的刮痧
 
+
+*****
+
+####  罐子  
+##### 3168#       发表于 2025-6-19 16:08
+
+ 本帖最后由 罐子 于 2025-6-19 16:09 编辑 
+
+打了N网那个增加完美格挡和闪避时间的mod，这下舒服多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+概述：
+将完美招架和完美闪避的窗口从 9 帧 → 12帧（0.15 秒 →  0.2 秒）增加。
+同时，将防御冷却时间从 24 帧 → 21帧（0.4秒 →  0.35 秒）减少。 
+

@@ -329,3 +329,34 @@ miko也打枪了
 
 2025-6-18 19:07 上传
 
+
+*****
+
+####  holofan  
+##### 11067#       发表于 2025-6-18 22:40
+
+<img src="https://img.stage1st.com/forum/202506/18/223910h1ai0c2ici2qs2zj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-18 22:39 上传
+
+你只要签个3000份就在叫，那mio和kanata签专辑的到底是卖了多少竟然要停播一星期专门来签
+
+*****
+
+####  holofan  
+##### 11068#       发表于 2025-6-19 16:03
+
+<img src="https://img.stage1st.com/forum/202506/19/160329kx58gbxwd5fyfwvw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 16:03 上传
+
+原来如此 不是柚子社做的
+

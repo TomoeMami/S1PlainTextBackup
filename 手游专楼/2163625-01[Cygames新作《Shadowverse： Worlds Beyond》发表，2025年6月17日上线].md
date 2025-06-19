@@ -3445,3 +3445,15 @@ llmy没那么菜打外战还是挺好用的
 
 — from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  super_uni  
+##### 210#       发表于 2025-6-19 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966217&amp;ptid=2163625" target="_blank">绞首浪漫派丶 发表于 2025-6-19 15:17</a>
+当务之急是先找个新设计师吧，退坑一年回来还是增幅法混轴鱼啥的，我玩nm ...</blockquote>
+我最恨的几个对战：新虫妖，小卖部法，换头法，清一色毫无交互。人人痛恨的砍树龙我倒是不怎么讨厌<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
