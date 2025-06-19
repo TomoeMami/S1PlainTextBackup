@@ -1037,3 +1037,23 @@ ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns
 
 担心bd重置会不会是一坨
 
+
+*****
+
+####  760194962  
+##### 87#       发表于 2025-6-19 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964167&amp;ptid=2247492" target="_blank">吴怀在 发表于 2025-6-19 09:31</a>
+
+担心bd重置会不会是一坨</blockquote>
+这个有什么先例？很难想象区区动漫、只是被高清化的话能带来多么毁灭性的影响。我觉得新版蓝光的质量应该是最稳的
+
+*****
+
+####  吴怀在  
+##### 88#       发表于 2025-6-19 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964285&amp;ptid=2247492" target="_blank">760194962 发表于 2025-6-19 09:50</a>
+这个有什么先例？很难想象区区动漫、只是被高清化的话能带来多么毁灭性的影响。我觉得新版蓝光的质量应该 ...</blockquote>
+我就随口一说，主要是官方放的样片感觉不咋样。虽然帧率是60帧疑似录屏而已，可以这么安慰自己。
+
