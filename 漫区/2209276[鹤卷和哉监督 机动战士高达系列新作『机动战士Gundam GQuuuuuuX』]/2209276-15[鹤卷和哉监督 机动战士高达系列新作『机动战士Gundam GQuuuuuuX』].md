@@ -409,3 +409,34 @@ khara这保密是怎么回事啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ryanghj  
+##### 20760#       发表于 2025-6-20 03:04
+
+这最后一集分镜太糊逼了，真当幻想嘉年华玩了
+
+不用期待任何严肃结局，百分百包饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  云野十五  
+##### 20761#       发表于 2025-6-20 03:10
+
+所以哈罗和空奇的机魂是谁？
+
+*****
+
+####  岸浪白野  
+##### 20762#       发表于 2025-6-20 03:10
+
+ 本帖最后由 岸浪白野 于 2025-6-20 03:13 编辑 
+
+都说了是有爆的也有包饺子就要信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前被知情的形容结局说好听点就是用挺”王道”来形容
+
