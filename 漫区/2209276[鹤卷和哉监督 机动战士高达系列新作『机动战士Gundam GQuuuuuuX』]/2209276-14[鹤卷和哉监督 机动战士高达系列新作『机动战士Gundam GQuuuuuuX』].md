@@ -19855,3 +19855,70 @@ gqux有两条平行世界。</blockquote>
 
 不是、要是哈罗保存了一部分骡子人格那这集就没法看了，本来就是个天天喊麻球麻球的麻球love吉祥物，这集还跟麻球同步脸红，你们想要对着鸭子脸红的骡子吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20612#       发表于 2025-6-19 13:15
+
+[X 上的 【公式】機動戦士ガンダム アーセナルベース：“本日より稼働開始の #アーセナルベース FORSQUAD SEASON:03 本弾収録のパラレルカード ◤シャリア・ブル(0085)[GQ]◢ を初公開✨ [url]https://t.co/VxT3TkKRfU](https://x.com/gundam_ab/status/1935503562177740904)” / X[/url]
+[X 上的 【公式】機動戦士ガンダム アーセナルベース：“本日より稼働開始の #アーセナルベース FORSQUAD SEASON:03 本弾収録のシークレットカード ◤ジフレド◢ を初公開✨ [url]https://t.co/wvD2pZr5mI](https://x.com/gundam_ab/status/1935504136726036962)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/131440bgg0dqdgw95kwpkp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/131515ykokrrx7hzxdhdo3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/131525ie0gdo9noi6ei0w0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (889.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/131530gnshrcdn6mhdpzsm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:15 上传
+
+*****
+
+####  岸浪白野  
+##### 20613#       发表于 2025-6-19 13:17
+
+<img src="https://img.stage1st.com/forum/202506/19/131741ehga8t434gq4yy0t.png" referrerpolicy="no-referrer">
+
+<strong>7`4A(4}ENMH}WJ5L_6J@_@I.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:17 上传
+
+
+*****
+
+####  zerocount  
+##### 20614#       发表于 2025-6-19 13:23
+
+以前的高达是卖胶和其它玩具的广告。
+
+本作就不一样了，是高达动画的广告。
+
+也就是说，本作是广告的广告。
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
