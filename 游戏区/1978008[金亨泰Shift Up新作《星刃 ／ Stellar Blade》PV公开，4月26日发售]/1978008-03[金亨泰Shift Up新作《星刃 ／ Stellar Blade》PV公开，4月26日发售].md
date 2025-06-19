@@ -2442,3 +2442,25 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 
 https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 
+
+*****
+
+####  darkangel0224  
+##### 3164#       发表于 2025-6-19 11:48
+
+<blockquote>爱撕衣魔刃 发表于 2025-6-19 05:00
+其实要不是限制弹容量，
+
+二周目就可以玩枪星了</blockquote>
+可以选择用修改器无限弹药呀
+
+地下那些寄生兽，确实用枪远远地干爆，比突上去费劲打半天划算多了
+
+
+*****
+
+####  洛克萨斯  
+##### 3165#       发表于 2025-6-19 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁轨炮升级成加特林多爽，结果是个几十发子弹的手枪
+

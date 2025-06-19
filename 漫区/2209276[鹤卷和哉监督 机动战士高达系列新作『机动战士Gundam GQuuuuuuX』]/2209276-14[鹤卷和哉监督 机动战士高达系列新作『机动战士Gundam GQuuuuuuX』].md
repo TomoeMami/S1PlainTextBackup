@@ -19602,3 +19602,50 @@ z时代除了铁奥进化方向和骡78一致之外，别的机体还真 ...</bl
 出力和喷嘴数据之类的东西更多反映的是作为士兵单位的性能
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实联邦终战前搓的恐怖大魔王nt1（bushi）纸面写着的数据其实也就那样，甚至不如对面的勇士J型
 
+
+*****
+
+####  syndrome2032  
+##### 20589#       发表于 2025-6-19 11:44
+
+修司就和鸭子是反的。
+
+鸭子:为了世界我要终结拉拉。
+修司:为了拉拉我要终结世界。
+等马球跳出来表示我全都要。
+
+*****
+
+####  洛克萨斯  
+##### 20590#       发表于 2025-6-19 11:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nt1反应速度肯定更快啊，真开nt1，鸭叔叔可能脱出都做不到就要被秒了
+
+*****
+
+####  xwz  
+##### 20591#       发表于 2025-6-19 11:47
+
+古谷徹好像没说以后不配骡子了吧，貌似只有柯南啥的换人了……
+
+实在不行不是还有苍月升吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 20592#       发表于 2025-6-19 11:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">UC机体的纸面数据已经不能信了，光是元祖的出力现在就有三种主流说法
+
+*****
+
+####  wing130083  
+##### 20593#       发表于 2025-6-19 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965075&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-19 11:46</a>
+
+nt1反应速度肯定更快啊，真开nt1，鸭叔叔可能脱出都做不到就要被秒了</blockquote>
+全身成熟覆膜技术处理，还是专为骡子调整的参数
+
+据说是78实打实的三倍，骇死我了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
