@@ -20134,3 +20134,21 @@ gqux有两条平行世界。</blockquote>
 受gqux效应，昨天beyond the time日榜dl第一 1185
 <img src="https://p.sda1.dev/25/c30c6c8d9af3e858729c63912eeabbd0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kirimori  
+##### 20632#       发表于 2025-6-19 17:25
+
+小森实锤之前三次观测到的转移都是GQX宇宙往其他宇宙扔垃圾，那红高达和夏亚回到GQX宇宙就是在吉翁不知道的情况又从其他宇宙被扔回来了是吧，还蛮怪的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 20633#       发表于 2025-6-19 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965375&amp;ptid=2209276" target="_blank">mumubear 发表于 2025-6-19 12:37</a>
+
+带着牢修就是牢骡的观点重新审视第一集到牢修消失怎么也不得劲，还是哈罗保留了一部分骡子人格记忆合理点 ...</blockquote>
+这题我会，刚转移过来的时候出了点错误撞坏了脑子就行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

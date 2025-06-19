@@ -238,3 +238,23 @@ https://x.com/drecomofficial/status/1934763688227115406
 
 你游第四章不出，卡池限定倒是出得勤，下午又有一只目测阿凡达，臭屁劲坐个板凳，日子又这么近，就叫你维吉尔吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 421#         楼主| 发表于 2025-6-19 17:30
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-6-19 17:31 编辑 
+
+草，还是亚当XD
+
+话说我原皮亚当到现在都没歪出来过，着急给主力队吃呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png">
+
+<img src="https://img.stage1st.com/forum/202506/19/173152wkaykkpej27q2kyu.jpg" referrerpolicy="no-referrer">
+
+<strong>d666650964cfa4adaaa2c5358d318faa.jpg</strong> (187.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 17:31 上传
+
