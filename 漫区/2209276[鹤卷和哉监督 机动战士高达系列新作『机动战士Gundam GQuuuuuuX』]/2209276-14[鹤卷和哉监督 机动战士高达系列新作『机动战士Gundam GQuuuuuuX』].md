@@ -21184,3 +21184,72 @@ tmd剧透有瘾是吧<img src="https://static.stage1st.com/image/smiley/face2017
 这种大工程真有可能瞒天过海搞另一个功能吗…</blockquote>
 <img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">别的人办不到，但是干这事的人是总帅，怎么也得信一下！
 
+
+*****
+
+####  上坂莲华  
+##### 20710#       发表于 2025-6-20 00:58
+
+去年种自剧场版泄露是不是有舅舅过来找要求删帖来着，你G一串字母X能不能有这个待遇<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 20711#       发表于 2025-6-20 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968919&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-20 00:52</a>
+
+骡这种重要角色怎么可能有同位体，而且无论哪方面都和骡没有相似之处，观众更不买账。 ...</blockquote>
+你看上面剧透“再一次见到高达杀拉拉的光景”，在那一边的世界是谁能看到这副景象？
+
+*****
+
+####  楚子航智减法  
+##### 20712#       发表于 2025-6-20 01:00
+
+<blockquote>猪突猛进R 发表于 2025-6-20 00:58
+你看上面剧透“再一次见到高达杀拉拉的光景”，在那一边的世界是谁能看到这副景象？ ...</blockquote>
+答案是鸭子（
+
+*****
+
+####  猪突猛进R  
+##### 20713#       发表于 2025-6-20 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968936&amp;ptid=2209276" target="_blank">楚子航智减法 发表于 2025-6-20 01:00</a>
+
+答案是鸭子（</blockquote>
+咋不是鸭妹呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  molemole  
+##### 20714#       发表于 2025-6-20 01:04
+
+最后一集感觉会超好笑
+
+*****
+
+####  a85982313  
+##### 20715#       发表于 2025-6-20 01:07
+
+不是骡子剧情上挺正常，毕竟男主发功找个大爹过来代打，自己ovo这很抽象的
+
+观众买不买帐就不知道了
+
+*****
+
+####  ryanghj  
+##### 20716#       发表于 2025-6-20 01:08
+
+gqux里面是骡子……<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 20717#       发表于 2025-6-20 01:08
+
+看了nga那边的翻译，一个关键信息反白一下：
+gqux的机魂出现了，貌似是骡子
+

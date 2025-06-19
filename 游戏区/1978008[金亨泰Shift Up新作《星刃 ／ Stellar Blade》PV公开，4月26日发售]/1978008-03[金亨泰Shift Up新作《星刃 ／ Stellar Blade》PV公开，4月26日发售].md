@@ -2862,3 +2862,14 @@ rb+←
 
 刚进沙漠城镇，这个风格完全就是銃梦啊，正好主角也是美少女，这个废土未来机械风太喜欢了
 
+
+*****
+
+####  bm7号  
+##### 3201#       发表于 2025-6-20 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968803&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-6-20 00:16</a>
+
+刚进沙漠城镇，这个风格完全就是銃梦啊，正好主角也是美少女，这个废土未来机械风太喜欢了 ...</blockquote>
+非fps、tps的现代废墟游戏超稀有。然后本作有一个遗憾的地方是没有载具系统。
+
