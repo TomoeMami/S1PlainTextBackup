@@ -20163,3 +20163,51 @@ gqux有两条平行世界。</blockquote>
 这题我会，刚转移过来的时候出了点错误撞坏了脑子就行</blockquote>
 なぜなにナデシコ
 
+
+*****
+
+####  LOLITA  
+##### 20635#       发表于 2025-6-19 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967030&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-19 17:29</a>
+
+这题我会，刚转移过来的时候出了点错误撞坏了脑子就行</blockquote>
+或者说老夫聊发少年狂，逗逗JK寻开心<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 20636#       发表于 2025-6-19 17:52
+
+两位都有发推宣传自己的翻唱
+
+<img src="https://img.stage1st.com/forum/202506/19/174936llxjou7exkrxh11o.png" referrerpolicy="no-referrer">
+
+<strong>WINN(BP_6$%T9`@IZAN18}6.png</strong> (124.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 17:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/174939pw08jh150dd1jhu1.png" referrerpolicy="no-referrer">
+
+<strong>}]@BJ9RH3]B4~0NFKAB~`YB.png</strong> (226.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 17:49 上传
+
+*****
+
+####  eilot  
+##### 20637#       发表于 2025-6-19 17:54
+
+考慮今集最後播的是beyond the time
+
+而這首歌據說是富野要求小室他們當成鴨騾的情歌而作，令小室嚇呆
+
+最後一集騾子出來令時間線收縮也算是合理
+
+就是騾子會以甚麼理由出來
+
