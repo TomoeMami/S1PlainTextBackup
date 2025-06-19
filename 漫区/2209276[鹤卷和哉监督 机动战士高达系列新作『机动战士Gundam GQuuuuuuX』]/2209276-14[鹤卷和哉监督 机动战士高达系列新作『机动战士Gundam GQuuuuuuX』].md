@@ -20021,3 +20021,49 @@ gqux有两条平行世界。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 20624#       发表于 2025-6-19 15:30
+
+[X 上的 ボウイナイフ：“RX-78「この戦争を、終わらせに来た!!」 #GQuuuuuuX [url]https://t.co/noo8NeNKGL](https://x.com/bowieknife/status/1935536263571845271)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/152939zggk8kqdg17g88o8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (619.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 15:29 上传
+
+[X 上的 noah：“ブチギレのアルテイシア #GQuuuuuuX #ジークアクス [url]https://t.co/WmF7uo38n9](https://x.com/noaharbre/status/1935542173359030327)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/152859o1vxx0yd7rlxz37y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 15:28 上传
+
+[X 上的 韻致姫：“イトウ・シュウジと武藤遊戯って響き似てね？ ……と思って勢いで描いたらシュウジ・イトウだったわ汗 #ジークアクス #GQuuuuuuX [url]https://t.co/eAvP49r8nI](https://x.com/inchhime/status/1935527484449341494)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/153009lkxui919xdi1djt1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (424.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 15:30 上传
+
+[X 上的 ひさしくん：“ジークアクス異聞帯を切除した際にもらえる星4概念礼装 #GQuuuuuuX #ジークアクス [url]https://t.co/SQQTT6aiO0](https://x.com/A_jirou/status/1935335920678617433)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/152814funyaq10jjpvsh4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 15:28 上传
+
