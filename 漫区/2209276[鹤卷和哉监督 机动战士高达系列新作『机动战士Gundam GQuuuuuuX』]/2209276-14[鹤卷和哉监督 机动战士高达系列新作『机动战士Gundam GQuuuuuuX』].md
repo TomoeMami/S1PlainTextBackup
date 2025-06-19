@@ -20959,3 +20959,52 @@ nga里看到，b站有人透露分镜脚本，元祖里面貌似是修司</block
 [https://x.com/_SLEEPING_EARTH/status/1935171770350485585](https://x.com/_SLEEPING_EARTH/status/1935171770350485585)
 <img src="https://p.sda1.dev/25/79d6ead2f47dfc02b226779ae9a892d3/20250619_141617.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 20688#         楼主| 发表于 2025-6-20 00:31
+
+【【手书】玛秋、咕噜咕噜转】 [https://b23.tv/03VBrHe](https://b23.tv/03VBrHe)
+
+<img src="https://p.sda1.dev/25/ff79383853008aa2727054fe992b8f5e/1750346776734.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/7cb579c1396b319db59d2f3dc339c548/1750346791440.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/52cb5d103c7b0c9d4407d9f8eb4de716/1750346806256.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/15c370bb267669a444d441ba838867b6/1750346925759.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/390fac838dac33462c10e9d68d54d496/1750346929830.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/11face41106d47395cf584092c027195/1750346975551.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/b3120335a0b16fe6d05961c1c9f3cfbd/1750346978008.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/0cf084f314db45ff57d8c2a55c1742cd/1750346982444.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/0d5a113834838ec1f30b3b99197a636a/1750347012331.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/f592eb26fb9a8e4467d33e4bb0fc26e5/1750347009378.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  楚子航智减法  
+##### 20689#       发表于 2025-6-20 00:34
+
+虽然修斯开理所当然
+
+但是如果修斯真和骡子没关系
+
+那就可以看炎上了（
+
+*****
+
+####  民工业  
+##### 20690#       发表于 2025-6-20 00:34
+
+这种剧透的就不要直接发出来了吧<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pandaman7777  
+##### 20691#       发表于 2025-6-20 00:37
+
+各个角度来说是修酱才是应该的，骡子最最最后出来露个脸也行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
