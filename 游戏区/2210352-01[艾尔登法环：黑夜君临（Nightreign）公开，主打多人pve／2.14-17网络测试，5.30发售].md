@@ -9501,3 +9501,13 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 打赢历战王开启新商店，可以改地形，历战王掉的货币可以换各种新杯子新遗物新服装
 
+
+*****
+
+####  ouyang菌  
+##### 926#       发表于 2025-6-19 13:58
+
+这历战王大嘴开了暴风圈以后他在圈内开始蓄大范围紫电有什么好处理方式吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前都是直接拉远的，现在有个风暴圈，滚也难滚，手上也不一定有大招能打断
+
+还是说可以硬跑出风暴再跳进来这样躲
+
