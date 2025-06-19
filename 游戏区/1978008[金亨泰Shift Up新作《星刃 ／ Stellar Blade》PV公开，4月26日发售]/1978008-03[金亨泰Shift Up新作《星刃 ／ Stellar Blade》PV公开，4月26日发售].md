@@ -2768,3 +2768,18 @@ rb+←
 全成就不打全收集，是不是四号高塔前把xion的罐子捡完就行了？xion的任务不用全做完吧 ...</blockquote>
 之后告示板只能报告任务，不能接任务
 
+
+*****
+
+####  ladiesman802  
+##### 3195#       发表于 2025-6-19 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968539&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 22:46</a>
+
+马桶都通完了
+
+跟着攻略跑了跑收集
+
+还是想说这两个地图风格太相似了，都是土黄一片，时间长了观感就不好</blockquote>
+它模仿尼尔，把工厂，沙漠，废墟，游乐场都copy了，但是可能要符合地球被砸的背景，没有把森林也抄了
+

@@ -20750,3 +20750,14 @@ gqux有两条平行世界。</blockquote>
 骡鸭拉这三就是电车难题 不过骡子是电车</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多重轨道漂移是吧
 
+
+*****
+
+####  pandaman7777  
+##### 20676#       发表于 2025-6-19 23:29
+
+这段素材实在太万能了，感觉无数曲目都可以配进去<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+【跨时之曲】当 GQuuuuuuX 11话片尾配上这些神曲——另一边到底过来了些啥啊？！
+[https://www.bilibili.com/video/B ... 4faae7435cb02c5a705](https://www.bilibili.com/video/BV1MvNdzvEy3/?share_source=copy_web&amp;vd_source=0e92972f70a984faae7435cb02c5a705)
+
