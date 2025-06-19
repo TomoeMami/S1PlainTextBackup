@@ -20532,3 +20532,15 @@ gqux有两条平行世界。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 20658#       发表于 2025-6-19 20:44
+
+ 本帖最后由 岸浪白野 于 2025-6-19 20:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967872&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-19 20:20</a>
+
+这意思不是“你们真敢干啊”吗</blockquote>
+没有不知道原文意思是你们居然真敢这么干啊，也不用纠结这........改了︎
+
