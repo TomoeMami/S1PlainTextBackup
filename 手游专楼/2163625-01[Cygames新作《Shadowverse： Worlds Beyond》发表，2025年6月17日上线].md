@@ -3588,3 +3588,21 @@ llmy没那么菜打外战还是挺好用的
 怎么外服营收捷报频传，国服一潭死水</blockquote>
 steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
+
+*****
+
+####  Chia  
+##### 224#       发表于 2025-6-20 00:44
+
+<img src="https://img.stage1st.com/forum/202506/20/004200jsld5b02a4qahz4u.png" referrerpolicy="no-referrer">
+
+<strong>831.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:42 上传
+
+我怎么还是宝石
+
+9000上钻的没输过吗
+
