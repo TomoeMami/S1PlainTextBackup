@@ -2333,3 +2333,16 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 前面坛友发的，挺好用的</blockquote>
 哦哦 原来文轩有做表 感谢感谢
 
+
+*****
+
+####  ladiesman802  
+##### 3153#       发表于 2025-6-19 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963672&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 07:07</a>
+
+子弹有限真的很恶心
+
+跑图探索过程中突然遇到一个要射击的迷题然后发现子弹不够，只能找篝火买子弹去再跑回 ...</blockquote>
+导弹甚至不能用来打靶
+

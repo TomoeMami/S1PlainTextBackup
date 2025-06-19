@@ -9415,3 +9415,13 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新历战王了，然后只有大嘴一个
 
+
+*****
+
+####  hirro  
+##### 916#       发表于 2025-6-19 09:54
+
+铁眼总体同等级能力不如别的角色看来是设定如此了？我铁眼入坑现在玩了5个男角色，除了无赖目前感觉还太笨重外别的都感觉还不错
+
+3个女的是真不想玩，野队遇到任何一个基本都是凶多吉少<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

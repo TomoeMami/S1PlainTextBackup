@@ -19234,3 +19234,45 @@ X 上的 タケウチ　リョース ...</blockquote>
 既然有抖音网红拉拉世界线
 gqx世界线也很合理<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 20558#       发表于 2025-6-19 09:55
+
+可以拍个剧场版讲修司过去的故事，其他的完结之后没啥可拍的了
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 20559#       发表于 2025-6-19 09:59
+
+什么完全胜利吗
+
+<img src="https://img.stage1st.com/forum/202506/19/095934jh1f6316tn14wjn1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 09:59 上传
+
+
+*****
+
+####  王留美  
+##### 20560#       发表于 2025-6-19 10:02
+
+ Beyond the Time还在发力。现在TMN专辑收录版继续登顶日区iTunes Store单曲销售版，CCA OST收录版也进入到销售版第七的位置，甚至西川贵教的翻唱版也悄悄的来到了单曲销售版第82位 
+
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 20561#       发表于 2025-6-19 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964381&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-19 10:02</a>
+
+Beyond the Time还在发力。现在TMN专辑收录版继续登顶日区iTunes Store单曲销售版，CCA OST收录版也进入到 ...</blockquote>
+所以艾马尔、玉置成实和森阿姨的翻唱都路边一条了吗
+
