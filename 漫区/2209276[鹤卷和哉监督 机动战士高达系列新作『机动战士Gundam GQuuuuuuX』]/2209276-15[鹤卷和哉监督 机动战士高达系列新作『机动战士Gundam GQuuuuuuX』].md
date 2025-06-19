@@ -366,3 +366,46 @@ khara这保密是怎么回事啊</blockquote>
 
 这恐怕是机战都不敢轻易采取的设定，原来那年阿克西斯的绿光真的是盖塔线
 
+
+*****
+
+####  我聞如是  
+##### 20757#       发表于 2025-6-20 02:57
+
+來晚了 但是在4chan找到了備份<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的著眼點在於原來去年還沒換成GQuuuuuuX這個名字
+
+還有分鏡稿去年8月已經是決定稿，但是最終回到昨天還沒完工的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我聞如是  
+##### 20758#       发表于 2025-6-20 03:00
+
+此事在初鋼TV版也有記載
+
+<img src="https://img.stage1st.com/forum/202506/20/030008gl2fon1lny18onzn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000030010.jpg</strong> (30.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:00 上传
+
+*****
+
+####  ryanghj  
+##### 20759#       发表于 2025-6-20 03:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969108&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-20 02:57</a>
+來晚了 但是在4chan找到了備份
+
+我的著眼點在於原來去年還沒換成GQuuuuuuX這個名字</blockquote>
+去年底就全话完成了吧
+
+这泄露应该是小圈子内的消息流传出来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
