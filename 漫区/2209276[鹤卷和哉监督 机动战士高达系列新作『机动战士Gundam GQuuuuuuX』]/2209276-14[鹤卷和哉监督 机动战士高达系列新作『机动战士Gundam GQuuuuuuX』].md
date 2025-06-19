@@ -20512,3 +20512,23 @@ gqux有两条平行世界。</blockquote>
 庵野：“11集，你们干的好”</blockquote>
 放beyond the time+元祖钢蛋堂堂登场，他也爽了是吧
 
+
+*****
+
+####  ryanghj  
+##### 20656#       发表于 2025-6-19 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967794&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-19 19:57</a>
+
+庵野：“11集，你们干的好”</blockquote>
+这意思不是“你们真敢干啊”吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 20657#       发表于 2025-6-19 20:22
+
+哈哈哈哈鹤卷真的一点没骗观众<img src="https://p.sda1.dev/25/eab775551d8daf72e85044a743f1fcfa/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
