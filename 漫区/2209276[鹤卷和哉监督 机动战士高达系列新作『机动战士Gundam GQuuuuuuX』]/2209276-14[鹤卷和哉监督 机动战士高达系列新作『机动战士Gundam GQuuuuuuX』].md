@@ -20067,3 +20067,50 @@ gqux有两条平行世界。</blockquote>
 
 2025-6-19 15:28 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 20625#       发表于 2025-6-19 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966153&amp;ptid=2209276" target="_blank">renkan119 发表于 2025-6-19 15:08</a>
+
+番茄现在塑造成这副模样了 她来修正别人只会给人感觉“你配吗”吧</blockquote>
+有人认为小番茄有一股冲劲，能冲破各种阴谋诡计和艰难险阻，把所有人的局都搅黄了，最后获得一个光明的未来。
+
+*****
+
+####  大十字紅朔  
+##### 20626#       发表于 2025-6-19 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966211&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-6-19 15:16</a>
+
+所以给马修发短信的到底是谁
+
+—— 来自 鹅球 v3.3.96</blockquote>
+是咕哒子<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 20627#       发表于 2025-6-19 15:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为在场人员除了玛秋之外没有人能搅局了啊，夏亚和修司是问题的中心，拉拉在开机，喵安在自闭，紫婆撤退，绿叔叔和首席哥在摸鱼，难不成要天降科莫利
+
+
+*****
+
+####  mengsu  
+##### 20628#       发表于 2025-6-19 15:56
+
+夏亚被元祖缠住了，那火箭筒薄纱老太婆这一块谁给我补上啊，真要把人头让给绿叔叔吗。
+
+*****
+
+####  桜庭ななみ  
+##### 20629#       发表于 2025-6-19 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966372&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-19 15:47</a>
+有人认为小番茄有一股冲劲，能冲破各种阴谋诡计和艰难险阻，把所有人的局都搅黄了，最后获得一个光明的未 ...</blockquote>
+剧情逻辑都崩成这样了，编剧还在乎谁来完结比赛更合理么。
+
