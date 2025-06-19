@@ -2240,3 +2240,22 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 —— 来自 Xiaomi 23127PN0C ...</blockquote>
 好的
 
+
+*****
+
+####  skmdfong  
+##### 3144#       发表于 2025-6-19 08:53
+
+刚看坛友发的绑了psn账号就少拿一件衣服，瞬间没有动力推多周目了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，不知道官方后续会不会修复。
+
+*****
+
+####  Andariel  
+##### 3145#       发表于 2025-6-19 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963914&amp;ptid=1978008" target="_blank">skmdfong 发表于 2025-6-19 08:53</a>
+刚看坛友发的绑了psn账号就少拿一件衣服，瞬间没有动力推多周目了，不知道官方后续会不会修复。 ...</blockquote>
+我也绑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不急，先慢慢做其他的
+实在不行我看据说n网有个让商人卖所有设计图的mod，打上这个买了设计图再删了mod好了
+

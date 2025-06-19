@@ -40898,3 +40898,19 @@ kasen的线下活动，办成联赛的形式，打bo1打到八月底然后线下
 
 被扔到辅助位了。
 
+
+*****
+
+####  化鳥虫二  
+##### 18760#       发表于 2025-6-19 08:55
+
+<img src="https://img.stage1st.com/forum/202506/19/085547njgjklef6xamzaek.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250619_085424_com.twitter.android.jpg</strong> (15.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 08:55 上传
+
+有些太君急死了
+
