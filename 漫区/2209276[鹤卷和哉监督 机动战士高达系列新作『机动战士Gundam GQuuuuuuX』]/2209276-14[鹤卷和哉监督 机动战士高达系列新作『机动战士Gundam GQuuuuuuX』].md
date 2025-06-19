@@ -20695,3 +20695,29 @@ gqux有两条平行世界。</blockquote>
 
 之後兩位少女都轉到其他SIDE，因為大人們給她們(特別是喵)身份保證，2女過全新生活
 
+
+*****
+
+####  lunaticfool  
+##### 20670#       发表于 2025-6-19 21:58
+
+别结局是喵安在地球当兵，麻球去上大学就搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 20671#       发表于 2025-6-19 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967502&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-19 18:48</a></blockquote>
+雀食是爱啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过全都是单箭头罢了
+
+*****
+
+####  rockroxas  
+##### 20672#       发表于 2025-6-19 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968359&amp;ptid=2209276" target="_blank">lunaticfool 发表于 2025-6-19 21:58</a>
+
+别结局是喵安在地球当兵，麻球去上大学就搞笑了</blockquote>
+最搞笑的结局嘛……不知道你有没有听过新假面骑士是什么结局（
+
