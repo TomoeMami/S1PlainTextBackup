@@ -2430,3 +2430,15 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 交鱼任务有的，但是1只就够了，多余的可以卖</blockquote>
 多的也可以留啊，后面几周目也可以用
 
+
+*****
+
+####  darkangel0224  
+##### 3163#       发表于 2025-6-19 11:36
+
+<blockquote>黒長直姫 发表于 2025-6-19 08:20
+有没有人有表格类的一周目全衣服饰品列表或者图片也可以。对着视频找太难了，一个两个都要展示收集过程和上 ...</blockquote>
+游侠网有地图能直接查，连罐子、宝箱也一起包办了
+
+https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
+

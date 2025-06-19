@@ -19510,3 +19510,54 @@ z时代除了铁奥进化方向和骡78一致之外，别的机体还真 ...</bl
 
 打个夸张的比方，冰箱gp03d就是gp03s的超级**大号背包。
 
+
+*****
+
+####  adretyu67.  
+##### 20582#       发表于 2025-6-19 11:30
+
+按照修斯目前的神棍程度，你们不要忘了现在红高达、gqux、fred上都装了塞克谬传感器的。
+
+到时候精神力爆发直接kirakira发作剩下3个现场表演直接宕机
+
+*****
+
+####  麻仓月轩  
+##### 20583#       发表于 2025-6-19 11:31
+
+不是 说到底原路线也不是什么好的世界线
+
+凭啥回到原来的世界就是修正
+
+莫非对面是高达桑的世界线，那一切都合理了
+
+乐就完事了
+
+*****
+
+####  wing130083  
+##### 20584#       发表于 2025-6-19 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964888&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-19 11:18</a>
+
+拿不到强机只能怪骡子自己出手太快太狠了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">后继机都做出来了但是他没来得及用就打赢了
+
+再拖一年就能看到nt1骡了
+
+不考虑愚蠢的手部内装火神炮，nt1还是很梦幻的
+
+*****
+
+####  大十字紅朔  
+##### 20585#       发表于 2025-6-19 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964981&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-6-19 11:31</a>
+
+不是 说到底原路线也不是什么好的世界线
+
+凭啥回到原来的世界就是修正
+
+莫非对面是高达桑的世界线，那一切都 ...</blockquote>
+因为是0085年吧，再不修正世界线Z高达就开始了，所以要紧急修正
+
