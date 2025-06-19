@@ -19946,3 +19946,43 @@ gqux有两条平行世界。</blockquote>
 
 我反正是没看出来绿叔叔这个MA变形成MS有啥特别的意义……火力啥的也没增强啊
 
+
+*****
+
+####  rockroxas  
+##### 20617#       发表于 2025-6-19 13:41
+
+小型化火力还缩水了吧
+
+手脚是线控炮也没法用缴获的武装
+
+*****
+
+####  bbjajdd  
+##### 20618#       发表于 2025-6-19 13:42
+
+看预告背景是番茄的kirakira空间
+
+结合访谈介绍里的超过修司想象的力量
+
+赌一手玛修我全都要修正所有人
+
+*****
+
+####  岸浪白野  
+##### 20619#       发表于 2025-6-19 13:42
+
+ 本帖最后由 岸浪白野 于 2025-6-19 13:45 编辑 
+
+参战昨天就已经知道发过了卡图了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[X 上的 ぱそつお：“キケロガ/機動戦士Gundam GQuuuuuuX | ぱそつお #pixiv #GQuuuuuuX #ジークアクス](https://x.com/pasotsuo/status/1935294944824148386)[https://t.co/VoNzdN07XY](https://t.co/VoNzdN07XY) [https://t.co/E4GuGiKJiP](https://t.co/E4GuGiKJiP)” / X
+
+<img src="https://img.stage1st.com/forum/202506/19/134150ul3aa62bar12412m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:41 上传
+
