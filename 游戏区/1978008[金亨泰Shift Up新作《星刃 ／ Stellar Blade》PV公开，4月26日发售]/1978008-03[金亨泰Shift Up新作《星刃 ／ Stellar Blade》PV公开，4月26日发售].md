@@ -2844,3 +2844,13 @@ rb+←
 
 2025-6-20 00:02 上传
 
+
+*****
+
+####  Sorastlos  
+##### 3199#       发表于 2025-6-20 00:10
+
+这红莲转阶段和残血两套精密防御check，精防次数不够多直接被秒杀的设计也太粪了吧<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+最后直接锁血放分身斩，最后一段还是叠加了放波的，这么畜生的主意是谁想出来的
+

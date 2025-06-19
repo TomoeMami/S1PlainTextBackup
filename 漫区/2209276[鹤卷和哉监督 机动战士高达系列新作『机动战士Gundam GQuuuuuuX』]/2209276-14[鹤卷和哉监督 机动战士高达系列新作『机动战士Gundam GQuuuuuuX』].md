@@ -20769,3 +20769,22 @@ gqux有两条平行世界。</blockquote>
 
 ED没欺诈我就和这片人物塑造彻底和解<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">但真能不欺诈吗
 
+
+*****
+
+####  无念  
+##### 20678#       发表于 2025-6-20 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966435&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-19 15:56</a>
+夏亚被元祖缠住了，那火箭筒薄纱老太婆这一块谁给我补上啊，真要把人头让给绿叔叔吗。 ...</blockquote>
+当然是下一话开头就被元祖劈坠机，然后脱出去拿火箭筒啦<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Realplayer  
+##### 20679#       发表于 2025-6-20 00:17
+
+联邦军残党，迈入！<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
