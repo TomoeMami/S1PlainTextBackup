@@ -7030,3 +7030,13 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 下集新角色名字应该是取的泊まり（住宿）庵（小屋）的谐音，搞不好真是老板的后代
 
+
+*****
+
+####  裂空之龙  
+##### 597#       发表于 2025-6-20 02:02
+
+11集感觉算是某种意义上的总集篇，把前面的旅程故地重游了一遍，挺有感觉的
+
+话说弟弟真做陶器去了？所以上一集到底什么情况，没问题吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

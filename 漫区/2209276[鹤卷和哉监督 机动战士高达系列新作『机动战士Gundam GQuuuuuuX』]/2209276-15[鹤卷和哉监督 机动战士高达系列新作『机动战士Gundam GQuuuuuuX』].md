@@ -236,3 +236,43 @@ khara这保密是怎么回事啊</blockquote>
 
 牢修想杀了鸭毁灭GQ世界，拉拉（神棍版）冲过去挡刀，GQX机魂看不下去发功了。
 
+
+*****
+
+####  Saber琪  
+##### 20746#       发表于 2025-6-20 02:00
+
+结合漏油一直发的街机卡，喵安一直在藏身高的原因找到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然gqux机魂有了，gfred有没有机魂呢？如果有，会是那个男人嘛？
+
+*****
+
+####  jackyhuang  
+##### 20747#       发表于 2025-6-20 02:01
+
+逆袭的传说巨神都动画化（？）了，海盗高达动画化应该不远了吧<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rockroxas  
+##### 20748#       发表于 2025-6-20 02:02
+
+ 本帖最后由 rockroxas 于 2025-6-20 02:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969037&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 01:50</a>
+
+综合一下感觉20706楼推测最可能，有3条世界线：
+
+1.正史线
+
+2.GQ另一侧</blockquote>
+不是，按旁边标的顺序，是修司驾驶元祖（xx化）
+
+番茄奔跑被拍飞，但是最后靠近驾驶舱（好像在头部）大喊
+
+对话了一阵，修司：“高达说只有这个办法”
+
+忽然修司察觉到什么存在，然后才是GQX机魂开口
+
+不过既然驾驶舱疑似是头部，那确实红高可以膜last shoot了XD
+
