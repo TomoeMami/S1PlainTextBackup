@@ -3435,3 +3435,13 @@ llmy没那么菜打外战还是挺好用的
 
 当务之急是先找个新设计师吧，退坑一年回来还是增幅法混轴鱼啥的，我玩nm<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  super_uni  
+##### 209#       发表于 2025-6-19 16:05
+
+有句讲句，一代跳二代这种模式心里慌慌的，幸好一代还没关门。之前玩过show by rock和lovelive，都是关了一代开二代，很快就死了，有种不动根本没事情一动就地动山摇的样子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
