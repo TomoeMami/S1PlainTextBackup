@@ -2383,3 +2383,14 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">纠结的是服装要全收集就得进艾多斯9，百合好感就要拉满，这样就打不出百合不满的结局
 还是推荐备份个存档先把百合不满的结局先打出来
 
+
+*****
+
+####  永远的访客  
+##### 3158#       发表于 2025-6-19 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964102&amp;ptid=1978008" target="_blank">Anarkia 发表于 2025-6-19 09:22</a>
+
+钱可以拿去卡雅那边买做衣服的材料</blockquote>
+原来能这样，废品回收的最会有多余材料可以卖，咋就没想到呢，希望续作连机器人材料也一起卖了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
