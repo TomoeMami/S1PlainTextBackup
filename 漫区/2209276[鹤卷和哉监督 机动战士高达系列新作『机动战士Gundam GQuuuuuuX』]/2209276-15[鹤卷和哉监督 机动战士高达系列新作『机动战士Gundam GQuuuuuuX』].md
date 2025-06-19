@@ -335,3 +335,22 @@ khara这保密是怎么回事啊</blockquote>
 所以真的只是机体巨大化，不是比例尺不 ...</blockquote>
 艾美号没有巨大化吧，艾美号本身就是一个大到离谱的ma
 
+
+*****
+
+####  ryanghj  
+##### 20755#       发表于 2025-6-20 02:41
+
+ 本帖最后由 ryanghj 于 2025-6-20 02:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969094&amp;ptid=2209276" target="_blank">patema 发表于 2025-6-20 02:34</a>
+艾美号没有巨大化吧，艾美号本身就是一个大到离谱的ma</blockquote>
+你再看看第十 十一集gq里的艾尔美斯和gfred gqux尺寸对比，然后回去看看0079 41话艾尔美斯被元祖捅的时候尺寸对比就知道了
+
+大得离谱
+
+<img src="https://p.sda1.dev/25/e7998ff0525519438f6d4f69e51eed23/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/25c37c35b1fa897287e3de0cb96a63c9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
