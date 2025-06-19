@@ -225,3 +225,16 @@ https://x.com/drecomofficial/status/1934763688227115406
 
 怎么打不死族啊，伤害打上去都显示蓝色数字
 
+
+*****
+
+####  UnknownRei  
+##### 420#       发表于 2025-6-19 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964714&amp;ptid=2249235" target="_blank">tasuski 发表于 2025-6-19 10:49</a>
+
+怎么打不死族啊，伤害打上去都显示蓝色数字</blockquote>
+法术，破魔退魔武器，以及好像只有叶卡的对不死特攻特性
+
+你游第四章不出，卡池限定倒是出得勤，下午又有一只目测阿凡达，臭屁劲坐个板凳，日子又这么近，就叫你维吉尔吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
