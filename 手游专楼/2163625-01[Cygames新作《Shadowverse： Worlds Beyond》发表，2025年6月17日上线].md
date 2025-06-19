@@ -3457,3 +3457,16 @@ llmy没那么菜打外战还是挺好用的
 
 — from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 211#       发表于 2025-6-19 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966502&amp;ptid=2163625" target="_blank">super_uni 发表于 2025-6-19 16:08</a>
+
+我最恨的几个对战：新虫妖，小卖部法，换头法，清一色毫无交互。人人痛恨的砍树龙我倒是不怎么讨厌
+
+— f ...</blockquote>
+从十天觉醒之后好像都不怎么自闭了，除了撤退皇，设计师已经爱上了进化刷场面。
+
