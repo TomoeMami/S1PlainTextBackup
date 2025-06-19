@@ -292,3 +292,13 @@ khara这保密是怎么回事啊</blockquote>
 
 还有喵安COS巴斯塔机器人7号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 20751#       发表于 2025-6-20 02:23
+
+不是，艾尔美斯虽然巨大化了但是拉拉没巨大化啊，看驾驶室就知道了
+
+所以真的只是机体巨大化，不是比例尺不一样
+
