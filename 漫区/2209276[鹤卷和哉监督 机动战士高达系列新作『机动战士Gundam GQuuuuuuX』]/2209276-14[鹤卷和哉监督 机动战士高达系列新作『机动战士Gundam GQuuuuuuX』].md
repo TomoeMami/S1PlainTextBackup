@@ -20761,3 +20761,11 @@ gqux有两条平行世界。</blockquote>
 【跨时之曲】当 GQuuuuuuX 11话片尾配上这些神曲——另一边到底过来了些啥啊？！
 [https://www.bilibili.com/video/B ... 4faae7435cb02c5a705](https://www.bilibili.com/video/BV1MvNdzvEy3/?share_source=copy_web&amp;vd_source=0e92972f70a984faae7435cb02c5a705)
 
+
+*****
+
+####  woui003woui  
+##### 20677#       发表于 2025-6-20 00:01
+
+ED没欺诈我就和这片人物塑造彻底和解<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">但真能不欺诈吗
+

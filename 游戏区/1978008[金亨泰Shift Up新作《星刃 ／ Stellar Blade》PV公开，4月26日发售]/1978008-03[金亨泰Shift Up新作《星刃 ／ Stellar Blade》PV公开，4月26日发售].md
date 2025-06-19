@@ -2810,3 +2810,37 @@ rb+←
 
 我感觉2剧情可以考虑接不握手线路。剧情可以从天上空间站殖民地开始，各种地图场景就可以用空间站投影设定来解决，顺便合理没收迅驰武器让迅驰模式消失。往后从天上一路打回地球，感觉也会挺有意思的。
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3198#       发表于 2025-6-20 00:02
+
+绑PSN少一套衣服的bug官方dc说知道了，已经排上日程，不久后应该会修。
+
+然后百合实在太上镜了，闭眼瞎按截图键都好看<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/20/000023jo065u2onyiuctbt.jpg" referrerpolicy="no-referrer">
+
+<strong>20250619231048_1.jpg</strong> (243.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:00 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/000023d61xnq2gs1fdxhse.jpg" referrerpolicy="no-referrer">
+
+<strong>20250619231317_1.jpg</strong> (288.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:00 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/000227eqg6mv6rpsvaaap1.jpg" referrerpolicy="no-referrer">
+
+<strong>热狗人专用 (16).jpg</strong> (35.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 00:02 上传
+
