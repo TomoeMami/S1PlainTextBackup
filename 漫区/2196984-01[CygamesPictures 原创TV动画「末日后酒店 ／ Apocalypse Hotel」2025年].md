@@ -6905,3 +6905,26 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 海底回归还是宇宙回归?
 
+
+*****
+
+####  楠城旧篱  
+##### 590#       发表于 2025-6-19 19:21
+
+<img src="https://img.stage1st.com/forum/202506/19/192044utf844wqh48qszwa.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQklv-607fZcT3cStt-kd.jpg</strong> (117.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 19:20 上传
+
+呜呜呜呜呜呜
+
+*****
+
+####  tpsg  
+##### 591#       发表于 2025-6-19 19:23
+
+感觉最后一集的展开应该是最初掉进湖里外星种子净化了地球，人类再次可以在地球生存
+

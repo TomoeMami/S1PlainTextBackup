@@ -3510,3 +3510,11 @@ llmy没那么菜打外战还是挺好用的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一套牌之后感觉就可以开始攒金币了
 
+
+*****
+
+####  第九道门  
+##### 216#       发表于 2025-6-19 19:22
+
+我用两张双人卡一张久远的三虹巫师硬撑到了钻石组，上去被虹卡连拍虐得不成人形，被打回蓝宝石组了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
