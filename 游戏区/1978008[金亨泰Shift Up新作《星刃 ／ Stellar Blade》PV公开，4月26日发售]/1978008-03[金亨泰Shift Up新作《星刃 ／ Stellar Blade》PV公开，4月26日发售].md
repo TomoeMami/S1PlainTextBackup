@@ -2363,3 +2363,23 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 
 这多周目直接清零支线进度有点逆天了。
 
+
+*****
+
+####  complion  
+##### 3156#       发表于 2025-6-19 10:28
+
+<blockquote>Standpronder 发表于 2025-6-19 10:25
+一周目是速通主线还是全收集
+
+这多周目直接清零支线进度有点逆天了。</blockquote>
+至少服装要全收集，这样二周目三周目才会在原来的点位刷新衣服。
+
+*****
+
+####  Andariel  
+##### 3157#       发表于 2025-6-19 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">纠结的是服装要全收集就得进艾多斯9，百合好感就要拉满，这样就打不出百合不满的结局
+还是推荐备份个存档先把百合不满的结局先打出来
+
