@@ -20502,3 +20502,13 @@ gqux有两条平行世界。</blockquote>
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967502&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-19 18:48</a></blockquote>
 懂了，主题是跨国（界）恋是吧
 
+
+*****
+
+####  赤黑的假面  
+##### 20655#       发表于 2025-6-19 20:08
+
+<blockquote>岸浪白野 发表于 2025-6-19 19:57
+庵野：“11集，你们干的好”</blockquote>
+放beyond the time+元祖钢蛋堂堂登场，他也爽了是吧
+
