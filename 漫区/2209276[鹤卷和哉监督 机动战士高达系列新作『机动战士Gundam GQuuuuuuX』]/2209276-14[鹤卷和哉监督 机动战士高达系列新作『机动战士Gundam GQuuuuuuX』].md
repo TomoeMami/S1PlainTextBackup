@@ -20468,3 +20468,37 @@ gqux有两条平行世界。</blockquote>
 
 算了，反正我觉得gqx的结局应该会是比较王道的，也期待鸭拉有个he！
 
+
+*****
+
+####  psycho_Gadfly  
+##### 20652#       发表于 2025-6-19 19:55
+
+<blockquote>吃果冻吧你 发表于 2025-6-19 19:44
+感谢附图！
+
+不过也没有什么主旨是爱的说法嘛......
+
+算了，反正我觉得gqx的结局应该会是比较王道的，也期 ...</blockquote>
+以为是三小只主角
+
+实际骡鸭拉
+
+最后一集……鸭子能看到母亲在其他世界线为他做的一切吗？他会如何选择呢？请收看：逆袭的不孝子
+
+*****
+
+####  岸浪白野  
+##### 20653#       发表于 2025-6-19 19:57
+
+庵野：“11集，你们干的好”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/21be927c07fec698d7ab26958dd6d9f3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 20654#       发表于 2025-6-19 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967502&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-19 18:48</a></blockquote>
+懂了，主题是跨国（界）恋是吧
+
