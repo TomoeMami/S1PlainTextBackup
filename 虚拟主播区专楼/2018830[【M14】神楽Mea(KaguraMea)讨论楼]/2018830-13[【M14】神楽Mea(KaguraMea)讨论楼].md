@@ -40929,3 +40929,17 @@ kasen的线下活动，办成联赛的形式，打bo1打到八月底然后线下
 
 像路边一条野狗一样啊，越急越丑陋，主播就是打上大师，小号玩狼人也很快就顺利打到钻三了，不服气吗
 
+
+*****
+
+####  术士q  
+##### 18762#       发表于 2025-6-19 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963495&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-6-19 01:35</a>
+kasen的线下活动，办成联赛的形式，打bo1打到八月底然后线下打季后赛这样
+
+旁边的人是日本twitch一哥所以肯 ...</blockquote>
+shaka桑确实大牌，好像是t台150w粉丝，t台的直播平a能破万那种，这次活动还挺大的
+
+咩啊桑加油啊
+

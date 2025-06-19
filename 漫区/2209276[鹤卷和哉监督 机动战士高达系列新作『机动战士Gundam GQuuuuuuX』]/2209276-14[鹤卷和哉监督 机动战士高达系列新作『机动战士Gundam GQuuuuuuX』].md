@@ -19332,3 +19332,80 @@ gq的艾尔美斯看起来也没被捅爆，只是时间静止了，应该是夏
 
 这里又不得不拉踩下水魔了，当时除了每周期待落空的寸止感外，水魔专楼和红白楼的戾气只能说大到不可思议了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  psycho_Gadfly  
+##### 20568#       发表于 2025-6-19 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964610&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-19 10:35</a>
+
+我也觉得修司不是正史的人，应该也是正史if的人
+
+gq的艾尔美斯看起来也没被捅爆，只是时间静止了，应该是夏 ...</blockquote>
+就算是IF正史也希望别是骡子的同位替代啊，凭啥鸭子还能是鸭子，骡子就得被爆改成楠娘<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+从角色设计上强调“高达精灵”、神必感以及超级电波发言来讲 不是人类的概率比较大吧（让我猜对一次吧鹤卷 这部猜对剧情的概率太小了。。挫败感太强<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 20569#       发表于 2025-6-19 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963705&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-6-19 07:34</a>
+
+正史元祖作为一台堆料机体，硬性能用到85是不过时的
+
+z时代除了铁奥进化方向和骡78一致之外，别的机体还真 ...</blockquote>
+我印象中初代高达的性能到TV后半已经被反超了……
+
+但是这方面设定我不是太关注
+
+*****
+
+####  ryanghj  
+##### 20570#       发表于 2025-6-19 11:03
+
+ 本帖最后由 ryanghj 于 2025-6-19 11:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964758&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-19 10:56</a>
+
+就算是IF正史也希望别是骡子的同位替代啊，凭啥鸭子还能是鸭子，骡子就得被爆改成楠娘
+
+从角色设计上强调 ...</blockquote>
+我觉得这种“白色高达驾驶员不论是谁一定会杀死夏亚”的桥段完全是终极乳鸭就是了……<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+仔细想想，鸭子作为王子复仇记的主角，却永远会败给一个士兵……<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 20571#       发表于 2025-6-19 11:04
+
+<blockquote>◤39万人突破◢
+
+フォロワー数が【39.5万人】を超えています！
+
+たくさんの応援のおかげでここまでたどり着くことができました！
+
+本当に、本当にありがとうございます！
+
+そして来週はいよいよ最終回です。
+
+寂しい気持ちもありますが、マチュ、ニャアン、シュウジの物語の結末をどうか見届けてあげてください！</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/19/110455k5agheuwvae22zje.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GtxcDuWbcAAS-W3.jpeg</strong> (150.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 11:04 上传
+
+*****
+
+####  洛克萨斯  
+##### 20572#       发表于 2025-6-19 11:05
+
+狙击吉姆这种已经和78-2性能差不多了，初代高达后期性能已经跟不上了，所以才会开发nt1给阿姆罗，只不过没送成功
+
