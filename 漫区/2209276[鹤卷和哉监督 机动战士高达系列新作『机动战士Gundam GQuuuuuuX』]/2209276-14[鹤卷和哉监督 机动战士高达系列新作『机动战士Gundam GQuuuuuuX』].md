@@ -20671,3 +20671,27 @@ gqux有两条平行世界。</blockquote>
 
 但是为了人类请拉拉去死吧
 
+
+*****
+
+####  qixinno2  
+##### 20668#       发表于 2025-6-19 21:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骡鸭拉这三就是电车难题 不过骡子是电车
+
+*****
+
+####  eilot  
+##### 20669#       发表于 2025-6-19 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968269&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-19 21:39</a>
+
+拉拉/修司在这个世界不行的话，那番茄去别的世界一样不行
+
+拉拉释然升天的话修司多半也跟着一起升天，鬼知 ...</blockquote>
+番茄是沒可能回以前日常了
+
+除非夏利亞沒死，夏亞也沒死，2人幫她保底，但她的媽媽就已經被社死，自護放過她聯邦也不會放過她
+
+之後兩位少女都轉到其他SIDE，因為大人們給她們(特別是喵)身份保證，2女過全新生活
+
