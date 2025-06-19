@@ -20454,3 +20454,17 @@ gqux有两条平行世界。</blockquote>
 各种白色恶魔袭来：
 [https://www.bilibili.com/video/BV1M1NEzAES7](https://www.bilibili.com/video/BV1M1NEzAES7)
 
+
+*****
+
+####  吃果冻吧你  
+##### 20651#       发表于 2025-6-19 19:44
+
+<blockquote>王留美 发表于 2025-6-19 18:48
+</blockquote>
+感谢附图！
+
+不过也没有什么主旨是爱的说法嘛......
+
+算了，反正我觉得gqx的结局应该会是比较王道的，也期待鸭拉有个he！
+

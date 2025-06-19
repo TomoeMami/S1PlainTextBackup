@@ -2690,3 +2690,22 @@ rb+←
 
 这游戏没开拍照模式真的感觉少玩十块钱的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍照很好玩的
 
+
+*****
+
+####  浅井惠  
+##### 3188#       发表于 2025-6-19 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967513&amp;ptid=1978008" target="_blank">樽——見 发表于 2025-6-19 18:50</a>
+
+全成就不打全收集，是不是四号高塔前把xion的罐子捡完就行了？xion的任务不用全做完吧 ...</blockquote>
+废土小机器人，商店卡雅，酒吧恩雅和苏的任务要做，有成就
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 3189#       发表于 2025-6-19 19:40
+
+只会自拍比耶（<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
