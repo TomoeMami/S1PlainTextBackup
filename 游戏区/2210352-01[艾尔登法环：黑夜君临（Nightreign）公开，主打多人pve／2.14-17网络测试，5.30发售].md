@@ -9615,3 +9615,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">被虐了一晚，然后看下朋友带的牢狱buff攻击力高一大截，老老实实全员带上牢狱遗物就过了，第二把开始用王证兑换那个牢狱遗物带个钥匙，每把都是day1劫狱流怒开五六个监狱，再把地形调成隐城基本稳过了
 
+
+*****
+
+####  shyso  
+##### 938#       发表于 2025-6-20 01:17
+
+发育太看运气了，随到一把毒弓和两个远程衰减降低的词条，铁眼biubiubiu的射死了
+
