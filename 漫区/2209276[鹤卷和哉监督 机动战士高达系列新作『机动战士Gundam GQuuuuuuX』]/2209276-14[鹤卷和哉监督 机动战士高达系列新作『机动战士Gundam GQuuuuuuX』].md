@@ -20583,3 +20583,21 @@ gqux有两条平行世界。</blockquote>
 夏亞一心想殺了異界娜娜，夏利亞成功說得夏亞，2人再次組隊MAV對白色惡魔</blockquote>
 我觉得gq世界线后续没啥好拍的了吧，尤其是如果是所谓“跨越NT命运”的结局，估计直接没战争了都
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 20661#       发表于 2025-6-19 21:12
+
+要是小番茄贯彻自由追修司，或许能有逆向穿越的后日谈剧场版和多了一点点内容的总篇集。
+
+
+*****
+
+####  王留美  
+##### 20662#       发表于 2025-6-19 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967821&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-6-19 20:08</a>
+ 放beyond the time+元祖钢蛋堂堂登场，他也爽了是吧</blockquote>
+我怀疑这段就是鹤卷他们提的压倒死线前才给庵野的那段
+
