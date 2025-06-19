@@ -2556,3 +2556,21 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 
 怎么程序更新完，主城的doro不会跑了？
 
+
+*****
+
+####  洛克萨斯  
+##### 3175#       发表于 2025-6-19 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966718&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-19 16:47</a>
+
+这大沙漠 楼顶跳跳乐失败直接从十万八千里外复活真的顶不住</blockquote>
+只跑路就算了，恶心的是那个地方一堆怪，还是配置很恶心的炮塔加钻地怪，索敌范围超级远
+
+*****
+
+####  依存香炉  
+##### 3176#       发表于 2025-6-19 17:14
+
+doro别用近战攻击打 打完就消失了 不如就这么让它在城里溜着
+

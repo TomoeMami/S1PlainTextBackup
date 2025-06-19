@@ -9561,3 +9561,13 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  usodakedo  
+##### 932#       发表于 2025-6-19 17:14
+
+大概率没做完＋1，做完了估计就不会有啥限制了，不过愈发好奇这游戏工期怎么会这么紧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
