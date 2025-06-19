@@ -2206,3 +2206,13 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黒長直姫  
+##### 3141#       发表于 2025-6-19 08:20
+
+有没有人有表格类的一周目全衣服饰品列表或者图片也可以。对着视频找太难了，一个两个都要展示收集过程和上身效果动辄一两个小时。
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
