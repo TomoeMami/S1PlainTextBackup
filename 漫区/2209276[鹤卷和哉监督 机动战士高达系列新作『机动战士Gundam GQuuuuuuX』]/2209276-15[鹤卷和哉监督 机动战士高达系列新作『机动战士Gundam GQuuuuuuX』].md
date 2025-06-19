@@ -183,3 +183,36 @@ nga剧透楼进审核了，代哥不会又要发力了吧，复刻种自？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  好想看Mujica啊  
+##### 20741#       发表于 2025-6-20 01:38
+
+半夜醒来，随便看看手机，笑喷了，这下难睡着了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 20742#       发表于 2025-6-20 01:39
+
+一定要进机战啊，高达王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 20743#       发表于 2025-6-20 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968962&amp;ptid=2209276" target="_blank">二阶堂真琉 发表于 2025-6-20 01:13</a>
+
+khara这保密是怎么回事啊</blockquote>
+看那位up应该不是卡拉侧透的
+
+
+*****
+
+####  ku2154513  
+##### 20744#       发表于 2025-6-20 01:45
+
+大米律师太真诚了
+
