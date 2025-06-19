@@ -3502,3 +3502,11 @@ llmy没那么菜打外战还是挺好用的
 
 国服蓝宝石开始感觉基本卡全了 比国际服凶险太多  青鱼前面从国际服过来看国服被红宝石阶段oqs连拍震惊住
 
+
+*****
+
+####  olkzdf  
+##### 215#       发表于 2025-6-19 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一套牌之后感觉就可以开始攒金币了
+
