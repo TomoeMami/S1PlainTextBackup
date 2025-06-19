@@ -6260,7 +6260,7 @@
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（大型更新Ver10.0.0，NS2画面帧数提升）]",
     "lastedit": 1750098489,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2130296": {
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 20751,
+    "totalreply": 20754,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1750357691,
+    "lastedit": 1750358287,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 750,
+    "totalreply": 751,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1750355651,
+    "lastedit": 1750357808,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14139,10 +14139,10 @@
     "update": false
   },
   "2253702": {
-    "totalreply": 6237,
+    "totalreply": 6238,
     "title": "[以色列空袭伊朗, 中东紧张局势升级]",
     "newtitle": "[以色列空袭伊朗, 中东紧张局势升级]",
-    "lastedit": 1750357569,
+    "lastedit": 1750357809,
     "category": "外野",
     "active": true,
     "update": false
@@ -15606,10 +15606,10 @@
     "update": false
   },
   "2254180": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[长三角经济圈，要趁早卖房吗]",
     "newtitle": "[长三角经济圈，要趁早卖房吗]",
-    "lastedit": 1750314012,
+    "lastedit": 1750358166,
     "category": "外野",
     "active": true,
     "update": false
@@ -15809,6 +15809,15 @@
     "newtitle": "[帧数分辨率画质，好奇大家更看重哪个？]",
     "lastedit": 1750357215,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2254179": {
+    "totalreply": 41,
+    "title": "[【跟风复古】CCA里完全没有提到卡缪到底什么原因]",
+    "newtitle": "[【跟风复古】CCA里完全没有提到卡缪到底什么原因]",
+    "lastedit": 1750358050,
+    "category": "漫区",
     "active": true,
     "update": false
   }
