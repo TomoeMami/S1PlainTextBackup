@@ -440,3 +440,50 @@ khara这保密是怎么回事啊</blockquote>
 
 之前被知情的形容结局说好听点就是用挺”王道”来形容
 
+
+*****
+
+####  ryanghj  
+##### 20763#       发表于 2025-6-20 03:18
+
+不过分镜还是没透露修司身份
+
+还有悬念<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">没透完
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  我聞如是  
+##### 20764#       发表于 2025-6-20 03:20
+
+<blockquote>ryanghj 发表于 2025-6-20 03:01
+去年底就全话完成了吧
+
+这泄露应该是小圈子内的消息流传出来了</blockquote>
+去年底是錄音完成
+
+谷田部透湖早兩天說為了還在做最終回的staff，公司搬了個冰櫃來放慰勞品
+
+下面和射尾卓弥聊到終於要完成了
+
+射尾在19號另外有發文說沒收到完成的電話所以猜他們還在趕工
+
+<img src="https://img.stage1st.com/forum/202506/20/032027q1phprzkrnp55k1n.jpg" referrerpolicy="no-referrer">
+
+<strong>1000030014.jpg</strong> (324.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:20 上传
+
+*****
+
+####  冰风血羽  
+##### 20765#       发表于 2025-6-20 03:23
+
+这下更期待了，能胡逼到什么程度能不能让我笑一晚上睡不着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
