@@ -2709,3 +2709,13 @@ rb+←
 
 只会自拍比耶（<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HATENA  
+##### 3190#       发表于 2025-6-19 20:47
+
+【【韩配相关/自制】剑星韩配CV介绍-声优中文简介 及 部份作品演示(主角团+部份NPC)-哔哩哔哩】 https://b23.tv/FyeHT2C
+
+亚当这人的cv真是完全想不到是当年打艾尔之光的那个颠佬艾迪，百合的cv配少年也是一把好手，还是原本最早宣传片的eve韩语cv
+
