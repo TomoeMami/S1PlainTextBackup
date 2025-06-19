@@ -487,3 +487,269 @@ khara这保密是怎么回事啊</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ryanghj  
+##### 20766#       发表于 2025-6-20 03:51
+
+等等，下集不会听到シャアが来た吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 20767#       发表于 2025-6-20 03:53
+
+ 本帖最后由 岸浪白野 于 2025-6-20 03:54 编辑 
+
+[X 上的 でるれいっち：“ニャアンちゃんの不信感を買ってしまうキシリア様](https://x.com/delraich66/status/1935533180146344295)[https://t.co/3N8RZGkmEI](https://t.co/3N8RZGkmEI)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033052y3umolmlorotuzqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:30 上传
+
+[X 上的 須江まさのり：“キシリア様のファインプレー……。 #GQuuuuuuX #ジークアクス](https://x.com/masanorisue/status/1935529829522362569)[https://t.co/eSFo3zyf46](https://t.co/eSFo3zyf46)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033108z782vrxtvuylhy89.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (805.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:31 上传
+
+[X 上的 ら𖥦ぽ：“ニャアン](https://x.com/g___ranp0/status/1935323874578808911)[https://t.co/nyndAAKiCL](https://t.co/nyndAAKiCL)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033336xfz7e0f7712n2igh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:33 上传
+
+[X 上的 回遊鮪：“#GQuuuuuuX #ジークアクス もうどうなってもいいや。](https://x.com/rarara_max/status/1935553309462655363)[https://t.co/WLgdyRDXCC](https://t.co/WLgdyRDXCC)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033237veislmsfpfz5jxyp.gif" referrerpolicy="no-referrer">
+
+<strong>twitter_1935553309462655363.gif</strong> (377.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:32 上传
+
+[X 上的 三毛崎🐱みけざき：“ニャアンにプラグスーツ着せたにゃあん🐱 ねぇ、ニャアン可哀想すぎない？？このままではガムダム史上最強やらかし女子になってまうのでは？？ #GQuuuuuuX](https://x.com/mikezaki_nart/status/1935495622142181661)[https://t.co/uyRABIPPsR](https://t.co/uyRABIPPsR)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033315fzzuvcccme85mcjz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:33 上传
+
+[X 上的 半蔵@C106土曜日東6キ66b：“マチュとニャアンにプリキュアのコスプレをさせてみました♪髪型的にあまり違和感は無いですね☺️ 本編で変身したのはシャアだけど😆 #ジークアクス #GQuuuuuuX](https://x.com/hanzou3_55/status/1935629445228077135)[https://t.co/hwfBJODqpS](https://t.co/hwfBJODqpS)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033423db4priuditruiirs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:34 上传
+
+[X 上的 🪐：“](https://x.com/Ymmmkome/status/1935655288016933298)[https://t.co/PL1cAesuVI](https://t.co/PL1cAesuVI)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033801bbc3z3mms0a4ze33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:38 上传
+
+[X 上的 ツネモク：“とりあえずコモリンにはこの服を着てもろて… #GQuuuuuuX #ジークアクス](https://x.com/tsunemoku/status/1935654499865288795)[https://t.co/pa0R8SPAQ0](https://t.co/pa0R8SPAQ0)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/035145bwnd4clr2dzgwf1d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:51 上传
+
+[X 上的 サテー@聖牌/OAF：“](https://x.com/syatey_12/status/1935605261923991830)[https://t.co/TJMO0V32nI](https://t.co/TJMO0V32nI)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/035252yy0yt0y6tz505443.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (419.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:52 上传
+
+[X 上的 Edgar_syu：“のんびりガンプラ時間(・ω・) #GQuuuuuuX #ジークアクス](https://x.com/Edgar_Syu/status/1935653833377780202)[https://t.co/hfnJf2wOfM](https://t.co/hfnJf2wOfM)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033558yqv12hrznh7qd7nz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMFAPI8@X2XHWAH3MHKOC]Q_tmb.jpg</strong> (192.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:35 上传
+
+[X 上的 錆々【さびさび】：“格差社会](https://x.com/Sabi_Sabi1234/status/1935673754589573380)[https://t.co/eSz43Q4c19](https://t.co/eSz43Q4c19)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/035444bc043qqrcrgxgc4d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (834.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:54 上传
+
+[X 上的 落島：“好きな人のためにしか作りませんよ](https://x.com/rakushi0/status/1935653097004838983)[https://t.co/tILvTU03c3](https://t.co/tILvTU03c3)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033729c455zkkthkv4c2hw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:37 上传
+
+[X 上的 qo @AX F52：“gyundam gkyucks](https://x.com/qosicart/status/1935729290114453682)[https://t.co/VaprN3jwp6](https://t.co/VaprN3jwp6)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034019vqz7dq1vzkpbikjq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:40 上传
+
+*****
+
+####  岸浪白野  
+##### 20768#       发表于 2025-6-20 03:55
+
+[X 上的 カニ玉：“最終回、アムロ、来まーす！(かも)](https://x.com/kanikanisan31/status/1935666995850342555)[https://t.co/J4cwZcAtgb](https://t.co/J4cwZcAtgb)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033826r2y7ls0ssaksrr6j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:38 上传
+
+[X 上的 バル太：“レッドコメットパワ〜〜〜メイクアップ☄️🟥様々なシャアの可能性…](https://x.com/kirakiranogreen/status/1935415761780228358)[https://t.co/Ji1iay0wr6](https://t.co/Ji1iay0wr6)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033921onncskkvcoqvccnv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:39 上传
+
+[X 上的 elmar：“#GQuuuuuuX #ジークアクス #シャア・アズナブル](https://x.com/elmar_eld/status/1935714259155181601)[https://t.co/1tHtKrAJHL](https://t.co/1tHtKrAJHL)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033943gh2h9v2nuv7sus00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (932.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:39 上传
+
+[X 上的 🥕：“그 장면ㅋㅋㅋ](https://x.com/ccabuster/status/1935646181767721031)[https://t.co/cLDjrTbylj](https://t.co/cLDjrTbylj)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034306zj4z7fq40lceq7ef.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:43 上传
+
+[X 上的 ぽてけ：“そりゃあマチュもああなりますね…](https://x.com/korokke_0401/status/1935638423005778213)[https://t.co/jdqiBN4Nfu](https://t.co/jdqiBN4Nfu)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034608qcr37ezc5rmawbf6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:46 上传
+
+[X 上的 昼空：“シャ、シャアマチュ‥](https://x.com/hirusora_/status/1935638705819324682)[https://t.co/gNqMfDi2Dh](https://t.co/gNqMfDi2Dh)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/033637avrsn4n6uxfrnust.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (432.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:36 上传
+
+[X 上的 水モグラ🦔：“もちろんついてく❤と🐱](https://x.com/mogu_ra_ws/status/1935594396483039347)[https://t.co/VZ99kKiwbs](https://t.co/VZ99kKiwbs)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034135mhpho0u8y8xkmt9y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:41 上传
+
+[X 上的 ふ：“最後はどうなってもHappy Ending](https://x.com/furuyorufu/status/1935611367484199305)[https://t.co/V8uYZQDQe1](https://t.co/V8uYZQDQe1)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034406hvu11anv1f9f3exd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:44 上传
+
+[X 上的 あき：“来週、海でバーベキューする回が始まってもおかしくない気がしてる (※完全に幻覚で描いてた) 3枚目はシュウマチュ🍧](https://x.com/Aki_Neiyuki/status/1935462448129311102)[https://t.co/dbWos7stnq](https://t.co/dbWos7stnq)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/034700unaay7dy20sayycc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:47 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/034706axzufrh0t305hfnr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:47 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/034725mvfwnglhn4084zn4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:47 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/034732ntl60kcc6i4ikizd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:47 上传
+
