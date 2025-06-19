@@ -1029,3 +1029,11 @@ ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns
 
 一进去只能说都2025了，还能见到这么糊这么狗牙的30帧游戏是真不容易，要不你还是拿ai跑下旧图拉分辨率搞2d重置算了吧，这个规格真弄th2重置我有点害怕<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 86#       发表于 2025-6-19 09:31
+
+担心bd重置会不会是一坨
+

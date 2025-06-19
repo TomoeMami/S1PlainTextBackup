@@ -2320,3 +2320,16 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 打到11号矩阵的第一个BOSS，设计图已经不够材料解锁了，虽然地图已经舔到20+小时了，最溢出的资源是钱，其 ...</blockquote>
 钱可以拿去卡雅那边买做衣服的材料
 
+
+*****
+
+####  黒長直姫  
+##### 3152#       发表于 2025-6-19 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963812&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 08:28</a>
+
+https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
+
+前面坛友发的，挺好用的</blockquote>
+哦哦 原来文轩有做表 感谢感谢
+
