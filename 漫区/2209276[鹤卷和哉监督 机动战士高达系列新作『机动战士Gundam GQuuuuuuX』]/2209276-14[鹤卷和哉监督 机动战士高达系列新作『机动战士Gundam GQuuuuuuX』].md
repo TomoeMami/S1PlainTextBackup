@@ -19426,3 +19426,87 @@ z时代除了铁奥进化方向和骡78一致之外，别的机体还真 ...</bl
 
 真开nt1，那夏亚真要被骡子把头给拧下来了
 
+
+*****
+
+####  qixinno2  
+##### 20575#       发表于 2025-6-19 11:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿不到强机只能怪骡子自己出手太快太狠了 
+
+*****
+
+####  adretyu67.  
+##### 20576#       发表于 2025-6-19 11:19
+
+鸡瘟这边对标元祖的是勇士。联邦这边sp2主要是装甲差了，但是列装也不多。
+
+不过78葫芦娃也开始学背包附加件套路，所以完全不用担心元祖的性能落后问题。
+
+*****
+
+####  psycho_Gadfly  
+##### 20577#       发表于 2025-6-19 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964811&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-19 11:03</a>
+
+我觉得这种“白色高达驾驶员不论是谁一定会杀死夏亚”的桥段完全是终极乳鸭就是了……
+
+仔细想想，鸭子作 ...</blockquote>
+所以应该不至于这么辱吧（已经干了，但第九话看我感觉白色MS驾驶员还是同一个人
+
+如果是不同世界线的骡子我还能接受一点<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 20578#       发表于 2025-6-19 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964889&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-19 11:19</a>
+
+鸡瘟这边对标元祖的是勇士。联邦这边sp2主要是装甲差了，但是列装也不多。
+
+不过78葫芦娃也开始学背包附加 ...</blockquote>
+这方面我不太懂，MS的战斗力设定是按战斗机做的吧，比如索敌范围，推力，旋回，传导速度这些
+
+背包感觉对这些没什么提升
+
+
+*****
+
+####  洛克萨斯  
+##### 20579#       发表于 2025-6-19 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964916&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-19 11:23</a>
+
+这方面我不太懂，MS的战斗力设定是按战斗机做的吧，比如索敌范围，推力，旋回，传导速度这些
+
+背包感觉对 ...</blockquote>
+背包强化推力和武装，高达七号机按照这个思路直接把自己堆料变成一击脱离的ma打法了
+
+*****
+
+####  cxasuka  
+##### 20580#       发表于 2025-6-19 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964040&amp;ptid=2209276" target="_blank">王留美 发表于 2025-6-19 09:13</a>
+有一个思考题
+如果里面是骡子的话，怎么证明他是骡子？或者说怎么让观众感受到是阿姆罗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是神交发现鸡瘟真有jk太阳炉美少女士兵后一秒叛变的宇宙种马啦
+
+*****
+
+####  adretyu67.  
+##### 20581#       发表于 2025-6-19 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964916&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-19 11:23</a>
+
+这方面我不太懂，MS的战斗力设定是按战斗机做的吧，比如索敌范围，推力，旋回，传导速度这些
+
+背包感觉对 ...</blockquote>
+那些数据本质是当年折腾时候寻思出来的玩意。大致做个类比可以，拿去对标表现力就不要太较真了。
+
+但是背包是可以实打实的装其他武装和东西。
+
+打个夸张的比方，冰箱gp03d就是gp03s的超级**大号背包。
+

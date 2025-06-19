@@ -2394,3 +2394,39 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 钱可以拿去卡雅那边买做衣服的材料</blockquote>
 原来能这样，废品回收的最会有多余材料可以卖，咋就没想到呢，希望续作连机器人材料也一起卖了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 3159#       发表于 2025-6-19 11:17
+
+鱼钓出来就可以全部拿去换钱还是要先囤着？有点怕之后会有交特定鱼类的任务。
+
+*****
+
+####  Andariel  
+##### 3160#       发表于 2025-6-19 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964882&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-19 11:17</a>
+鱼钓出来就可以全部拿去换钱还是要先囤着？有点怕之后会有交特定鱼类的任务。 ...</blockquote>
+交鱼任务有的，但是1只就够了，多余的可以卖
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 3161#       发表于 2025-6-19 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964882&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-19 11:17</a>
+鱼钓出来就可以全部拿去换钱还是要先囤着？有点怕之后会有交特定鱼类的任务。 ...</blockquote>
+刺豚，钳鱼，大比目鱼，这几个告示板任务要用
+
+*****
+
+####  袄_偶滴小乔  
+##### 3162#       发表于 2025-6-19 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964910&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 11:22</a>
+交鱼任务有的，但是1只就够了，多余的可以卖</blockquote>
+多的也可以留啊，后面几周目也可以用
+
