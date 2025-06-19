@@ -3411,3 +3411,11 @@ llmy没那么菜打外战还是挺好用的
 
 国服补偿和10包呢，跑路了这是<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hchan  
+##### 206#       发表于 2025-6-19 11:36
+
+感觉红宝石段位基本是检验钞能力的分水岭，上了之后太痛苦了，现在在黄红之间反复横跳
+

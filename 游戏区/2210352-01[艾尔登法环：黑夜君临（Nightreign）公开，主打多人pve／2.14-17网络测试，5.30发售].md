@@ -9441,3 +9441,14 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 卧槽好猛，打不过
 
+
+*****
+
+####  LiniN  
+##### 919#       发表于 2025-6-19 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67945118&amp;ptid=2210352" target="_blank">nekomimimode 发表于 2025-6-16 06:17</a>
+
+应该给个练习场练习如何在面对boss的同时还要平a救人，基本上开黑也都死在一心二用 ...</blockquote>
+圆桌厅堂有个画像可以互动，可以回新手教程，新手教程就有配队友来着
+

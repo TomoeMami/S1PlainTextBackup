@@ -19561,3 +19561,44 @@ z时代除了铁奥进化方向和骡78一致之外，别的机体还真 ...</bl
 莫非对面是高达桑的世界线，那一切都 ...</blockquote>
 因为是0085年吧，再不修正世界线Z高达就开始了，所以要紧急修正
 
+
+*****
+
+####  Leliel  
+##### 20586#       发表于 2025-6-19 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964981&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-6-19 11:31</a>
+
+不是 说到底原路线也不是什么好的世界线
+
+凭啥回到原来的世界就是修正
+
+莫非对面是高达桑的世界线，那一切都 ...</blockquote>
+与其说是修复世界线
+
+修斯更像是为了救玫瑰拉拉吧
+
+*****
+
+####  YU_JI  
+##### 20587#       发表于 2025-6-19 11:39
+
+修正的主要目的是为了救拉拉吧，修司看上去更像是不想拉拉为了她那fw儿子在这b地方受苦才要终结GQ世界的，和哪个世界线更好没啥关系（）
+
+*****
+
+####  wing130083  
+##### 20588#       发表于 2025-6-19 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964810&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-19 11:03</a>
+
+我印象中初代高达的性能到TV后半已经被反超了……
+
+但是这方面设定我不是太关注 ...</blockquote>
+对nt驾驶员来说主要还是看机体对操作的反应速度
+
+做了覆膜的78在这方面还是很不错的，我记得牢骡赞不绝口来着
+
+出力和喷嘴数据之类的东西更多反映的是作为士兵单位的性能
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实联邦终战前搓的恐怖大魔王nt1（bushi）纸面写着的数据其实也就那样，甚至不如对面的勇士J型
+
