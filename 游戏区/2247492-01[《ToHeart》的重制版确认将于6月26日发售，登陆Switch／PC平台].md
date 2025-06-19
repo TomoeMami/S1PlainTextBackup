@@ -1110,3 +1110,11 @@ ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns
 ASCII
 <img src="https://i.ibb.co/qY54PHk0/Screenshot-2025-06-19-at-19-38-10-ASCII-jp-To-Heart-5.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 94#       发表于 2025-6-19 22:57
+
+玩了demo，依我看要么换个代工，要么2代重制还是别做了，咱丢不起这人
+
