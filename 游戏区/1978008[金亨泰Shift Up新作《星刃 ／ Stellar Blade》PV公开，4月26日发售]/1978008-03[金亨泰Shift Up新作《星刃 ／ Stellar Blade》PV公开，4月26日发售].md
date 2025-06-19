@@ -2259,3 +2259,20 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 不急，先慢慢做其他的
 实在不行我看据说n网有个让商人卖所有设计图的mod，打上这个买了设计图再删了mod好了
 
+
+*****
+
+####  nagitoY  
+##### 3146#       发表于 2025-6-19 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963925&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-19 08:55</a>
+
+我也绑了
+
+不急，先慢慢做其他的
+
+实在不行我看据说n网有个让商人卖所有设计图的mod，打上这个买了设计图再 ...</blockquote>
+这个mod好啊，可以直接解锁所有多周目衣服。
+
+本来还在纠结ps版二周目打了一半要不要继续全收集，这下安心玩pc版了
+
