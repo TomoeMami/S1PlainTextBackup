@@ -2186,3 +2186,23 @@ pc一周卖到ps一年的销量，拉?</blockquote>
 
 甚至机战也可以，把参战作品中肉身战强的角色作为玩家可选，选择对应的角色有原著剧情，每一关先用肉身战角色执行小任务，然后第二阶段乘上机体按照传统机战的玩法干掉BOSS过关
 
+
+*****
+
+####  harmonytree  
+##### 3139#       发表于 2025-6-19 07:56
+
+请问这个游戏想爽玩是不是应该一周目先速通然后细玩二周目？
+
+
+*****
+
+####  schneehertz  
+##### 3140#       发表于 2025-6-19 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963741&amp;ptid=1978008" target="_blank">harmonytree 发表于 2025-6-19 07:56</a>
+请问这个游戏想爽玩是不是应该一周目先速通然后细玩二周目？</blockquote>
+这游戏打怪给的经验不如做支线来的多，多做支线数值够了游戏难度就大幅降低
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
