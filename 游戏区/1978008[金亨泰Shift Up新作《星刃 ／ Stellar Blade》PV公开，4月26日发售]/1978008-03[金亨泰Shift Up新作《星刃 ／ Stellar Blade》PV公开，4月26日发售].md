@@ -2464,3 +2464,13 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁轨炮升级成加特林多爽，结果是个几十发子弹的手枪
 
+
+*****
+
+####  Andariel  
+##### 3166#       发表于 2025-6-19 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965124&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-19 11:56</a>
+磁轨炮升级成加特林多爽，结果是个几十发子弹的手枪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡说，你看进了妮姬这枪算ar
+

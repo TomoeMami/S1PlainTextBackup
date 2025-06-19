@@ -19748,3 +19748,15 @@ gqux换了也没啥
 
 其实这片子已经到这里了，还要做斗兽棋式的推演么，还不是编剧大手的事<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mumubear  
+##### 20603#       发表于 2025-6-19 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964529&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-19 10:23</a>
+我的想法，
+
+gqux有两条平行世界。</blockquote>
+带着牢修就是牢骡的观点重新审视第一集到牢修消失怎么也不得劲，还是哈罗保留了一部分骡子人格记忆合理点。
+
