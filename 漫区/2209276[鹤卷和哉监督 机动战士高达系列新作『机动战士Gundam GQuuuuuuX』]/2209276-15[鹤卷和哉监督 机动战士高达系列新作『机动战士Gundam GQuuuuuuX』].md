@@ -780,3 +780,15 @@ khara这保密是怎么回事啊</blockquote>
 
 无人在意的西姆斯中尉
 
+
+*****
+
+####  cmyk1234  
+##### 20771#       发表于 2025-6-20 06:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969131&amp;ptid=2209276" target="_blank">冰风血羽 发表于 2025-6-20 03:23</a>
+这下更期待了，能胡逼到什么程度能不能让我笑一晚上睡不着
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v ...</blockquote>
+会不会是平行世界的亚洲尊者开RX78-2？
+
