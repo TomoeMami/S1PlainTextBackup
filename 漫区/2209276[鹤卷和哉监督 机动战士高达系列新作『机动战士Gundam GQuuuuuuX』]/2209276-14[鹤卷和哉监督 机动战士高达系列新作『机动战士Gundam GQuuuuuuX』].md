@@ -20739,3 +20739,14 @@ gqux有两条平行世界。</blockquote>
 
 一个国际通缉犯，一个吉翁逃兵，没了男人这俩隐姓埋名远走高飞相依为命也合情理<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxasuka  
+##### 20675#       发表于 2025-6-19 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968327&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-19 21:51</a>
+
+骡鸭拉这三就是电车难题 不过骡子是电车</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多重轨道漂移是吧
+

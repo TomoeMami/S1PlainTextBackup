@@ -2757,3 +2757,14 @@ rb+←
 
 一个XXXL的阿尔法就能完全封锁信号，上古种能靠自己一个人担任整个地球的防空，结果超融合路线的能耐表现是砍黑道复制人砍到天亮吗，感觉不如，，
 
+
+*****
+
+####  ladiesman802  
+##### 3194#       发表于 2025-6-19 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967513&amp;ptid=1978008" target="_blank">樽——見 发表于 2025-6-19 18:50</a>
+
+全成就不打全收集，是不是四号高塔前把xion的罐子捡完就行了？xion的任务不用全做完吧 ...</blockquote>
+之后告示板只能报告任务，不能接任务
+
