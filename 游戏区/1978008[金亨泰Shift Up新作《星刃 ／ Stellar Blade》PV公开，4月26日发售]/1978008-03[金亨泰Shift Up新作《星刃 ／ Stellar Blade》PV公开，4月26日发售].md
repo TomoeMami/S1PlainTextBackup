@@ -2276,3 +2276,47 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=BB08J2
 
 本来还在纠结ps版二周目打了一半要不要继续全收集，这下安心玩pc版了
 
+
+*****
+
+####  永远的访客  
+##### 3147#       发表于 2025-6-19 09:19
+
+打到11号矩阵的第一个BOSS，设计图已经不够材料解锁了，虽然地图已经舔到20+小时了，最溢出的资源是钱，其次是等级，衣服缺少排序缺少星标功能解锁前预览也不靠谱总之弊病越来越明显，不敢想象后面还有那么多衣服咋过<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安姆闲人  
+##### 3148#       发表于 2025-6-19 09:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前有没有比较好的女主换脸MOD
+
+*****
+
+####  卡拉德利姆  
+##### 3149#       发表于 2025-6-19 09:21
+
+做衣服的材料我记得可以直接找废品商买，比较麻烦的是机器人那边的交换材料
+
+*****
+
+####  ParadiseMartyr  
+##### 3150#       发表于 2025-6-19 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964083&amp;ptid=1978008" target="_blank">安姆闲人 发表于 2025-6-19 09:20</a>
+目前有没有比较好的女主换脸MOD</blockquote>
+都很僵硬。比较好的只有美白mod，去掉女主脸上的斑。再加个眼影，看着舒服不少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Anarkia  
+##### 3151#       发表于 2025-6-19 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964074&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-19 09:19</a>
+
+打到11号矩阵的第一个BOSS，设计图已经不够材料解锁了，虽然地图已经舔到20+小时了，最溢出的资源是钱，其 ...</blockquote>
+钱可以拿去卡雅那边买做衣服的材料
+

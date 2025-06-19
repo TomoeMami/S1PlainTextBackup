@@ -1019,3 +1019,13 @@ ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sd1055007  
+##### 85#       发表于 2025-6-19 09:22
+
+哎，服了，ns2打开就报错，重启了才进去
+
+一进去只能说都2025了，还能见到这么糊这么狗牙的30帧游戏是真不容易，要不你还是拿ai跑下旧图拉分辨率搞2d重置算了吧，这个规格真弄th2重置我有点害怕<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
