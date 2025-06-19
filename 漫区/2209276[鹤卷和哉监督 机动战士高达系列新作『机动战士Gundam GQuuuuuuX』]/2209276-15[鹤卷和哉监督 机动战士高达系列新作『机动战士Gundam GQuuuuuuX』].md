@@ -354,3 +354,15 @@ khara这保密是怎么回事啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  plok201  
+##### 20756#       发表于 2025-6-20 02:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">超巨大元祖么，这下真的是所有真实系机器人的起源，觉醒了七大高达力（？）最凶最恶的刚大木了
+
+元祖ZERO:我只能接受骡子干掉夏亚的世界线
+
+这恐怕是机战都不敢轻易采取的设定，原来那年阿克西斯的绿光真的是盖塔线
+
