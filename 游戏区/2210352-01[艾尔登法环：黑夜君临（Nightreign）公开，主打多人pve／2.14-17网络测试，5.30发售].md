@@ -9519,3 +9519,35 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 求一个历战大嘴攻略，死的莫名其妙
 
+
+*****
+
+####  在海岸  
+##### 928#       发表于 2025-6-19 14:48
+
+无赖抓点减伤很好单通，p3血少带两复活怎么都拼过去了，组队必须断蓄电aoe不然一下秒杀
+
+
+*****
+
+####  RinC  
+##### 929#       发表于 2025-6-19 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965954&amp;ptid=2210352" target="_blank">shyso 发表于 2025-6-19 14:32</a>
+
+求一个历战大嘴攻略，死的莫名其妙</blockquote>
+变化也不是很多吧，感觉就一个全屏雷出范围坐气流的处理。
+
+这游戏boss打弱点已经是底层逻辑了，三个人拿毒武器强化进去打应该不难。主要就是数值高，如果你是脆皮角色最好多找点减伤，不然真的14级进去都会被一招秒
+
+*****
+
+####  serj005  
+##### 930#       发表于 2025-6-19 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965081&amp;ptid=2210352" target="_blank">LiniN 发表于 2025-6-19 11:48</a>
+玩了60多小时没见过山妖地形，这全成就是真的难</blockquote>
+山妖地形是什么？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

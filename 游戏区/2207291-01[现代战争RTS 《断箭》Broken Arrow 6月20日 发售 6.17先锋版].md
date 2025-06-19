@@ -681,3 +681,24 @@ dlc吧，据说第一个出pla</blockquote>
 
 传统RTS兵种克制无不就是石头剪刀布的关系，但这类游戏的学习成本相较于传统RTS高得多，就算是定位相同的装备实际用法可能也天差地别。
 
+
+*****
+
+####  Andariel  
+##### 47#       发表于 2025-6-19 14:47
+
+这游戏有pla居然不锁区?
+
+*****
+
+####  TTAA  
+##### 48#       发表于 2025-6-19 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965953&amp;ptid=2207291" target="_blank">nbwjh0630 发表于 2025-6-19 14:32</a>
+战役设计还停留在触发器阶段，和星际1是同一个水平，远远不及魔兽3和星际2。
+
+很多场景设计都是初见杀，第 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这也太不照顾单人玩家了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
