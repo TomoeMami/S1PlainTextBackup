@@ -20371,3 +20371,19 @@ gqux有两条平行世界。</blockquote>
 
 2025-6-19 18:23 上传
 
+
+*****
+
+####  asdhai  
+##### 20644#       发表于 2025-6-19 18:29
+
+<img src="https://img.stage1st.com/forum/202506/19/182909icuu4ld4b8c3qgyw.jpg" referrerpolicy="no-referrer">
+
+<strong>1000007170.jpg</strong> (169.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:29 上传
+
+还挺对仗
+
