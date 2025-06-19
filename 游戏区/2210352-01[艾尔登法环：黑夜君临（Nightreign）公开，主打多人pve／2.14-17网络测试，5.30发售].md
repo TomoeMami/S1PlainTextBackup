@@ -9407,3 +9407,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 调整过后怎么感觉铁眼标记伤害还是挺爆炸的，话说总调铁眼，也该加强一下一些角色的下限了
 
+
+*****
+
+####  火红之眼  
+##### 915#       发表于 2025-6-19 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新历战王了，然后只有大嘴一个
+
