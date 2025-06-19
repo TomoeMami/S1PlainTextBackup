@@ -637,3 +637,34 @@ dlc吧，据说第一个出pla
 dlc吧，据说第一个出pla</blockquote>
 目前战役第一关有欧盟（德军）的部分单位建模
 
+
+*****
+
+####  nbwjh0630  
+##### 44#       发表于 2025-6-19 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721409&amp;ptid=2207291" target="_blank">TTAA 发表于 2024-11-18 14:44</a>
+
+不知道会不会有比较带感一点的战役
+
+我基本上没看到过战役做得比较好的现代战争RTS ...</blockquote>
+战役设计还停留在触发器阶段，和星际1是同一个水平，远远不及魔兽3和星际2。
+
+很多场景设计都是初见杀，第一次打的体验会比较差。
+
+感觉这游戏战役和PVE玩法单纯只是附加品，所有的单位设计和游戏玩法都在为了5v5那套pvp玩法服务。
+
+看着架势以后估计连1v1的pvp比赛都可能不会有。
+
+*****
+
+####  nbwjh0630  
+##### 45#       发表于 2025-6-19 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67953171&amp;ptid=2207291" target="_blank">银月术士329 发表于 2025-6-17 12:58</a>
+
+目前战役第一关有欧盟（德军）的部分单位建模</blockquote>
+开发日志说过欧洲国家不会作为整体单国家了，大概率是美军的专精或者是出一个泛欧阵营然后再出专精。
+
+同理盲猜一下，pla的专精可能包含巴基斯坦或者北朝鲜之类的单独作为一个专精。
+
