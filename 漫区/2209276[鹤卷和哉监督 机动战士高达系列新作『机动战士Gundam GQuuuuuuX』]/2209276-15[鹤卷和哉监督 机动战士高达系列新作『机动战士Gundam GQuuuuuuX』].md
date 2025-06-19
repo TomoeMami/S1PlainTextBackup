@@ -753,3 +753,22 @@ khara这保密是怎么回事啊</blockquote>
 
 2025-6-20 03:47 上传
 
+
+*****
+
+####  岸浪白野  
+##### 20769#       发表于 2025-6-20 03:58
+
+ 本帖最后由 岸浪白野 于 2025-6-20 03:59 编辑 
+
+没看到剧情的情况下这同人也是挺会预言的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[X 上的 中村豪志：“らくがきプラモシミュレーション #ジークアクス #GQuuuuuuX](https://x.com/F_M_U/status/1935346529587568938)[https://t.co/xxXCVZHrxm](https://t.co/xxXCVZHrxm)” / X
+
+<img src="https://img.stage1st.com/forum/202506/20/035730pg5r0abhr70lolao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (872.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 03:57 上传
+
