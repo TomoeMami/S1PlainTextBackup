@@ -3538,3 +3538,11 @@ llmy没那么菜打外战还是挺好用的
 现在不是有说法往死里抽满传说包收益更好吗毕竟现在满3才能分解</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了，如果金卡都要自己合，哪怕是1代时期尘都很紧张，2代金卡还涨价了，最起码要第一时间把新包金卡自己抽齐，后面怎么抽划算随便你
 
+
+*****
+
+####  duraa  
+##### 219#       发表于 2025-6-19 21:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">专员怎么还在装死....
+
