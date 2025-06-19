@@ -9478,3 +9478,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 铁眼性能应该是削了一圈，战技硬直中不能用，无敌帧变短穿龙车吃伤害，大招冲击力下降，单人印记也感觉更难爆了
 
+
+*****
+
+####  鈴姉御肌  
+##### 923#       发表于 2025-6-19 13:23
+
+看了眼官X咋历战王还是期间限定 619开始三周时间更新除黑夜王以外的七只历战王 丝瓜就到下周四<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

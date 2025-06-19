@@ -2474,3 +2474,11 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 磁轨炮升级成加特林多爽，结果是个几十发子弹的手枪</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡说，你看进了妮姬这枪算ar
 
+
+*****
+
+####  武蔵  
+##### 3167#       发表于 2025-6-19 13:24
+
+这枪射速太慢了，风灵无限弹药射的也不爽，而且伤害真的刮痧
+

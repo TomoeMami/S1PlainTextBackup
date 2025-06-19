@@ -19922,3 +19922,27 @@ gqux有两条平行世界。</blockquote>
 也就是说，本作是广告的广告。
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 20615#       发表于 2025-6-19 13:28
+
+草 故意的吧
+
+<img src="https://img.stage1st.com/forum/202506/19/132810hwejmgewuiqpeeea.jpg" referrerpolicy="no-referrer">
+
+<strong>1000029991.jpg</strong> (217.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 13:28 上传
+
+
+*****
+
+####  xwz  
+##### 20616#       发表于 2025-6-19 13:31
+
+我反正是没看出来绿叔叔这个MA变形成MS有啥特别的意义……火力啥的也没增强啊
+
