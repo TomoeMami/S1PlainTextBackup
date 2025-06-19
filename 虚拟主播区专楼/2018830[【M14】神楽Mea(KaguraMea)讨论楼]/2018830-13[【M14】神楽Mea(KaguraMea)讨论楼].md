@@ -40914,3 +40914,18 @@ kasen的线下活动，办成联赛的形式，打bo1打到八月底然后线下
 
 有些太君急死了
 
+
+*****
+
+####  术士q  
+##### 18761#       发表于 2025-6-19 10:11
+
+ 本帖最后由 术士q 于 2025-6-19 10:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67963928&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2025-6-19 08:55</a>
+有些太君急死了</blockquote>
+又是这人，哈气来哈气去结果也就刚刚打上钻石的水平，然后叫来叫去，盯着主播咬<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+主播又没有找人代打，和朋友双排怎么了，又不是拳头不允许日服双排，违反游戏规则，还是说小团体待出幻觉了，把小团体那套规则强加到主播头上
+
+像路边一条野狗一样啊，越急越丑陋，主播就是打上大师，小号玩狼人也很快就顺利打到钻三了，不服气吗
+
