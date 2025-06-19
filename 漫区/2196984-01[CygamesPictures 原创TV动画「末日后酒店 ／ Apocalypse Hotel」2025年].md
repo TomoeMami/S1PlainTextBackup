@@ -6928,3 +6928,13 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 感觉最后一集的展开应该是最初掉进湖里外星种子净化了地球，人类再次可以在地球生存
 
+
+*****
+
+####  shimotsuki14  
+##### 592#       发表于 2025-6-19 19:35
+
+人类仍然存活！
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

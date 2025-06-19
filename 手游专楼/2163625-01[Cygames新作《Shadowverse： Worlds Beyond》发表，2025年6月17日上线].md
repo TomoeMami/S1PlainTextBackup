@@ -3518,3 +3518,23 @@ llmy没那么菜打外战还是挺好用的
 
 我用两张双人卡一张久远的三虹巫师硬撑到了钻石组，上去被虹卡连拍虐得不成人形，被打回蓝宝石组了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 217#       发表于 2025-6-19 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967193&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-19 17:57</a>
+有一套牌之后感觉就可以开始攒金币了</blockquote>
+现在不是有说法往死里抽满传说包收益更好吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟现在满3才能分解
+
+*****
+
+####  olkzdf  
+##### 218#       发表于 2025-6-19 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967670&amp;ptid=2163625" target="_blank">杂灰 发表于 2025-6-19 19:29</a>
+
+现在不是有说法往死里抽满传说包收益更好吗毕竟现在满3才能分解</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了，如果金卡都要自己合，哪怕是1代时期尘都很紧张，2代金卡还涨价了，最起码要第一时间把新包金卡自己抽齐，后面怎么抽划算随便你
+
