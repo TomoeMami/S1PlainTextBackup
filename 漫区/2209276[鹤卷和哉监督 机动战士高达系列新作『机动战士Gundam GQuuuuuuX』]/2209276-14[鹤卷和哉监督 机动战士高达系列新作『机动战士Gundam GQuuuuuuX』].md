@@ -20282,3 +20282,92 @@ gqux有两条平行世界。</blockquote>
 
 舞台上的三角锥
 
+
+*****
+
+####  岸浪白野  
+##### 20642#       发表于 2025-6-19 18:21
+
+[【FW GUNDAM CONVERGE】合体してガンダムを超えるあの機体に！？さらに『GQuuuuuuX（ジークアクス）』からも登場な＃28弾が6/20(金)13時から受注開始！ - バンダイ キャンディ スタッフ BLOG](https://bandaicandy.hateblo.jp/entry/20250619_gundam)
+
+<img src="https://img.stage1st.com/forum/202506/19/181832z2cpk3k7ic5ufzit.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/181848si6uep3xv2x2hx3x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/181917keggggjwwm7gwwqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (595.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/181931w00zcfl9bapq61ff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.78 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/182025iswshplcswwn6wac.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:20 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/182034h9145uk9u9l4t9yu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1012.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:20 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/182053qmlj99n996n56wdx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:20 上传
+
+*****
+
+####  岸浪白野  
+##### 20643#       发表于 2025-6-19 18:23
+
+[X 上的 もちもちマスコット@ざっかるちゃー！：“【新商品情報】 「もちもちマスコット 機動戦士Gundam GQuuuuuuX」 全9種、定価990円(税込)1BOX9個入り！ 明日6月20日(金)10:00よりプレミアムバンダイとアニメイト、その他販売店は13時以降順次ご予約開始です！ #もちもちマスコット #GQuuuuuuX #ジークアクス [url]https://t.co/FhpHFOc89P](https://x.com/mochi2_zk/status/1935623599546618350)” / X[/url]
+
+[X 上的 もちもちマスコット@ざっかるちゃー！：“【特典情報】 「もちもちマスコット 機動戦士Gundam GQuuuuuuX」 BOX購入特典は「ドゥー・ムラサメ」だよ！こちらのBOX購入特典の取扱いはプレミアムバンダイのみとなります！ [url]https://t.co/Zx16uiWpBT](https://x.com/mochi2_zk/status/1935623841151426868) #もちもちマスコット #GQuuuuuuX #ジークアクス [https://t.co/MqnTXXTlya](https://t.co/MqnTXXTlya)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/19/182301gy4qihkm7hz2w8cc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (454.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:23 上传
+
+<img src="https://img.stage1st.com/forum/202506/19/182307bt3ikhzqstntp9j3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:23 上传
+
