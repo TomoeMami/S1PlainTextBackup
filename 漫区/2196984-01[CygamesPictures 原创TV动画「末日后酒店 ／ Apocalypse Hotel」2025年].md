@@ -7014,3 +7014,11 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 是银河系人类
 
+
+*****
+
+####  sAviOr  
+##### 595#       发表于 2025-6-19 22:43
+
+最近两集有救回来，八千代可爱
+

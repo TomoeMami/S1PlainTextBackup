@@ -1095,3 +1095,18 @@ ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns
 毁灭性大概率不至于，不过如果讲究在意这方面的话，老作品的蓝光能出现的问题还是有很多的吧。我不懂技术 ...</blockquote>
 我能找到的DVD版还是经常出现杂音以及谜之水纹？的（前两年打完ToHeart后看的），官方放出来的第一集还有特典篇我看了下这些问题都被修复掉了，基本是我理想中该有的样子
 
+
+*****
+
+####  Toby_dak  
+##### 93#       发表于 2025-6-19 22:35
+
+ファミ通
+<img src="https://i.ibb.co/d0ZsBRHc/Screenshot-2025-06-19-at-19-35-31-To-Heart-com.png" referrerpolicy="no-referrer">
+
+電撃
+<img src="https://i.ibb.co/fYg4W8q2/Screenshot-2025-06-19-at-19-37-44-To-Heart-30.png" referrerpolicy="no-referrer">
+
+ASCII
+<img src="https://i.ibb.co/qY54PHk0/Screenshot-2025-06-19-at-19-38-10-ASCII-jp-To-Heart-5.png" referrerpolicy="no-referrer">
+
