@@ -9486,3 +9486,18 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 看了眼官X咋历战王还是期间限定 619开始三周时间更新除黑夜王以外的七只历战王 丝瓜就到下周四<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 924#       发表于 2025-6-19 13:45
+
+还是没做完，首波就是解包出来那三个，大嘴，人马，虫子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jacket  
+##### 925#       发表于 2025-6-19 13:46
+
+打赢历战王开启新商店，可以改地形，历战王掉的货币可以换各种新杯子新遗物新服装
+

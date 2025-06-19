@@ -19986,3 +19986,13 @@ gqux有两条平行世界。</blockquote>
 
 2025-6-19 13:41 上传
 
+
+*****
+
+####  Sliurus  
+##### 20620#       发表于 2025-6-19 13:51
+
+不知道是不是只有我这么感觉，绿叔叔开ma像在开VF飞机，超高机动+变形
+
+卡拉下一部讨个macross玩玩得了，那边搞三角恋和大量情歌没人有意见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
