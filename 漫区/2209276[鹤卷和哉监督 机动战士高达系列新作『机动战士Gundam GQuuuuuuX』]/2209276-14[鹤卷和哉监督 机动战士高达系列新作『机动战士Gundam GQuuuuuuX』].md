@@ -19276,3 +19276,40 @@ gqx世界线也很合理<img src="https://static.stage1st.com/image/smiley/bunda
 Beyond the Time还在发力。现在TMN专辑收录版继续登顶日区iTunes Store单曲销售版，CCA OST收录版也进入到 ...</blockquote>
 所以艾马尔、玉置成实和森阿姨的翻唱都路边一条了吗
 
+
+*****
+
+####  bandage_n2_ki  
+##### 20562#       发表于 2025-6-19 10:14
+
+喵安实质幼女……我懂<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nocode  
+##### 20563#       发表于 2025-6-19 10:15
+
+感觉这集小番茄的表情好丰富，变得可爱了不少<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 20564#       发表于 2025-6-19 10:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说不定修斯是阿姆罗的思念体呢
+
+
+*****
+
+####  adretyu67.  
+##### 20565#       发表于 2025-6-19 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964264&amp;ptid=2209276" target="_blank">mumubear 发表于 2025-6-19 09:46</a>
+
+道理我都懂，修斯怎么变男鬼了？本来的肉身呢？</blockquote>
+我的想法，
+
+修斯就是if骡子，所以被if拉拉吸引，if拉拉通过某种方式干涉或者创造了gqux宇宙，和爱马仕去了gqux宇宙被称为沙伦地玫瑰。所罗门zeknova后鸭子脱出，红高达被传到了if宇宙。被他捡到了通过zeknova穿回gqux遇见gqux鸭。
+
+第八话zeknova发动把他和红高达又传回了if宇宙，11话通过nt聊天室远程发功指引麻球。最后发动大型zeknova坐着元祖正式登场。
+
