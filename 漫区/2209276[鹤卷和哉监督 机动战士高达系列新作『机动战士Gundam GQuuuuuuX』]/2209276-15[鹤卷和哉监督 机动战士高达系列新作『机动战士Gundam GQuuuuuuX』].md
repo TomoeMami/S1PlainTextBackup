@@ -276,3 +276,19 @@ khara这保密是怎么回事啊</blockquote>
 
 不过既然驾驶舱疑似是头部，那确实红高可以膜last shoot了XD
 
+
+*****
+
+####  xwz  
+##### 20749#       发表于 2025-6-20 02:11
+
+巨大化元祖COS吉翁号，然后红高COS元祖是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 20750#       发表于 2025-6-20 02:17
+
+还有喵安COS巴斯塔机器人7号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
