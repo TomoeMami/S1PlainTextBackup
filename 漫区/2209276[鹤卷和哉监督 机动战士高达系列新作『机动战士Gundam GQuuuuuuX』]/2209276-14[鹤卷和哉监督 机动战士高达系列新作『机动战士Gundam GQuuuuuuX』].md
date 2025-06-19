@@ -19847,3 +19847,11 @@ gqux有两条平行世界。</blockquote>
 
 是說結果11話的預告算欺詐吧
 
+
+*****
+
+####  七七見奈波  
+##### 20611#       发表于 2025-6-19 13:07
+
+不是、要是哈罗保存了一部分骡子人格那这集就没法看了，本来就是个天天喊麻球麻球的麻球love吉祥物，这集还跟麻球同步脸红，你们想要对着鸭子脸红的骡子吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
