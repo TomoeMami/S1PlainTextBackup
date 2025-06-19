@@ -2524,3 +2524,18 @@ https://www.gamersky.com/tools/map/STB/?mapId=90&amp;pageType=wap
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">bug了，你绑了psn就会因为送了原色版而导致商店里不卖原色版设计图，继而系统认为你没获得原色版设计图导致不卖异色版设计图
 目前据说只能从n网找一个有商人卖所有设计图的mod，打上mod买了图再删除mod
 
+
+*****
+
+####  alucardcz  
+##### 3172#       发表于 2025-6-19 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这大沙漠 楼顶跳跳乐失败直接从十万八千里外复活真的顶不住
+
+*****
+
+####  masokishin  
+##### 3173#       发表于 2025-6-19 16:49
+
+这么操蛋……
+

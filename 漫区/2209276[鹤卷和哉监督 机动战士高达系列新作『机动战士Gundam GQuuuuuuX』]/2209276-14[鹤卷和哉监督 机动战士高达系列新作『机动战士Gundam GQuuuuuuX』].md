@@ -20114,3 +20114,14 @@ gqux有两条平行世界。</blockquote>
 有人认为小番茄有一股冲劲，能冲破各种阴谋诡计和艰难险阻，把所有人的局都搅黄了，最后获得一个光明的未 ...</blockquote>
 剧情逻辑都崩成这样了，编剧还在乎谁来完结比赛更合理么。
 
+
+*****
+
+####  西瓜夜行  
+##### 20630#       发表于 2025-6-19 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67966445&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-6-19 15:58</a>
+
+剧情逻辑都崩成这样了，编剧还在乎谁来完结比赛更合理么。</blockquote>
+那你为什么还要在一个剧情逻辑都崩成这样的动画的专楼里回复呢
+
