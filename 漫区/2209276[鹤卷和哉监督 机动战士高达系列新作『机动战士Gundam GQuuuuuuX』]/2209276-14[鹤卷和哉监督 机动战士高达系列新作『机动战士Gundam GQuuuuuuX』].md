@@ -20417,3 +20417,21 @@ gqux有两条平行世界。</blockquote>
 
 即是之後會再出6個BIT版嗎?
 
+
+*****
+
+####  王留美  
+##### 20648#       发表于 2025-6-19 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67967196&amp;ptid=2209276" target="_blank">吃果冻吧你 发表于 2025-6-19 17:58</a>
+
+我看到一个说法，国内上映的鹤卷寄语，好像是说“这是一部跨越国界，描述爱的故事”（不过我个人没找到具体 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/19/184819tesq6qbdmahr67zb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7467.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-19 18:48 上传
+
