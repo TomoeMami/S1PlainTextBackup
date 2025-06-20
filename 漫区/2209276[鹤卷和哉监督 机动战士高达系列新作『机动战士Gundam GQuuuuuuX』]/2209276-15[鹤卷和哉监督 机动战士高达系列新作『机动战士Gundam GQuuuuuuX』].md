@@ -3101,3 +3101,233 @@ Mark一下等週二這帖爆炸</blockquote>
 感觉GQ跟超巨元祖对比起来不太像美洲大蠊而是德国小蠊，精神攻击力还是不太够的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 当然对我来说都是暴击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20969#       发表于 2025-6-20 23:46
+
+[X 上的 フィンチ：“フリーダム正論マンinジークアクスの落書き [url]https://t.co/afSpwrf2T5](https://x.com/cyaninefinch/status/1935897478190219600)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232949lgkm4mp1zpibm2ve.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:29 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/233024f3lh3h6pvpsa3eee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (617.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:30 上传
+
+[X 上的 うおなてれぴん：“上げそびれていた休日のランバ・ラルさん。 [url]https://t.co/yOZzd98HbT](https://x.com/uonaThereminvox/status/1935673542374547660)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/233634rptbvpupegbezj2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (418.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:36 上传
+
+[X 上的 某氏屋＠C106土曜西1 “ふ”-52a：“エルメスに張り付いてるアレが寄生虫と仮面みたいだなって思って落書きしてたらラスボス化した [url]https://t.co/itGxnFrE6H](https://x.com/soregasiya/status/1935947513770787121)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/234050w5gnn3wg8tolzjgs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (376.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:40 上传
+
+[X 上的 たくま朋正＠航宙軍8巻発売中：“#ジークアクス #GQuuuuuuX あまりに陳腐な妄想なんで公開するか迷いましたが、まあもう最後なんで… [url]https://t.co/p8mOsKg7Nd](https://x.com/yunckle19722000/status/1935872551739441305)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/234233sdjuo95vhk5ono5n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.73 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:42 上传
+
+|[X 上的 Rangut || COMMISSION OPEN：“BEYOND THE TIME #GQuuuuuuX📷 #ジークアクス #ガンダム [url]https://t.co/KEdWxfdnP0](https://x.com/Ran_gut/status/1935646239233802288)” / X[/url]|
+
+<img src="https://img.stage1st.com/forum/202506/20/232731pfoamazzaazaeznm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1014.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:27 上传
+
+[X 上的 kare：“彼は出て来ないとは思うが、雰囲気で描いた、、 [url]https://t.co/4nF0viTKAn](https://x.com/0621utak/status/1936023433525313545)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/233202r9ypoxomyy9hrt9y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/233153tqv4ewhbbzrvgtuw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (651.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:31 上传
+
+[X 上的 ののたぬ：“[url]https://t.co/m7kC9n5mb1](https://x.com/noa58832586/status/1935884279915200569)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232114mk01dy2eyxetgnwn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:21 上传
+
+[X 上的 ふじ：“#ジークアクス #GQuuuuuuX マチュ刑事の事情聴取 [url]https://t.co/i4GOy58CkX](https://x.com/f_ukkami/status/1936043873253626221)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232136ib8vkz30ktt1chce.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:21 上传
+
+[X 上的 伊達爾郎/Yielder：“11話、ジト目のマチュが2回も出てきてかわいい（かわいい） #GQuuuuuuX #ジークアクス [url]https://t.co/5LGkTPwVtE](https://x.com/yielderego/status/1935724277296427217)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232038j68ueroyo966zbxu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:20 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/232044qk0tvot2u7rfogzt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:20 上传
+
+[X 上的 hさん：“まんまる百面相 [url]https://t.co/LECncVyWuU](https://x.com/h_ito_fgo/status/1935838711356490065)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/231859tzxe7ubb3flubfnz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (404.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:18 上传
+
+[X 上的 Edgar_syu：“color sketch #GQuuuuuuX #ジークアクス [url]https://t.co/x2RXAyusIy](https://x.com/Edgar_Syu/status/1936016236401643674)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232225qratqcfoaf5fnqlr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:22 上传
+
+[X 上的 高野敦識：“[url]https://t.co/9HuEQiyvKe](https://x.com/takanocchi9/status/1935950099152359446)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/231929f233fr3lfsqzl2gf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:19 上传
+
+[X 上的 緒方のらくがき：“『エリートコモりん』 #GQuuuuuuX #ジークアクス [url]https://t.co/Fgnyit6UiN](https://x.com/mm_ogata_rkgk/status/1935970934411911641)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/233739ielyckhzhnhkgguz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:37 上传
+
+[X 上的 あびゅうきょ＠「む」は無線の「む」：“来週はいよいよジークアクス最終回。 いつもながら考察予想をひっくり返すストーリーなのでエンディングも奇妙奇天烈だろう。 でもマチュの夢が地球の海で泳ぐことだから、ラストの場面は渚かも。 今のうちに適当に妄想しておく。 #GQuuuuuuX #ジークアクス [url]https://t.co/mdQRBT6uyh](https://x.com/abyukyo/status/1935819830156009830)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/233852drmnt5111nf7mc00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (947.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:38 上传
+
+[X 上的 むつ：“っていう夢を… [url]https://t.co/VOYVpTArqA](https://x.com/mutsu_XXXX/status/1935744387939701217)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/234533cnr550xtx0b4m5r5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (278.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:45 上传
+
+[X 上的 🥛：“마츄냐 [url]https://t.co/H3AeW2lavN](https://x.com/anggguuu/status/1935723802648076425)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/233943s3piqhsqpiqihppk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:39 上传
+
+[X 上的 熊之股鍵次🍵：“ニャアンという女 [url]https://t.co/Y80ZFmwl8F](https://x.com/kuma_pomu/status/1935988291012378860)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/234359xzxq0w4ilzv555g6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (383.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:43 上传
+
+[X 上的 チバサ：“マチュとコモりんの 夏の日常回良かったですね✨（幻覚） #GQuuuuuuX #ジークアクス [url]https://t.co/G9WGLQEREH](https://x.com/tibasa9/status/1936029745382408332)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232155zp65ifv05vffv5iu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:21 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ⑫ #GQuuuuuuX [url]https://t.co/3XkmhfCWzU](https://x.com/SuiSui_dm/status/1936008786751393943)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/232903d8sevz3k2e3bz88c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:29 上传
+
+[X 上的 背筋6/5電子単行本発売：“今のうち絵 [url]https://t.co/FOxyM4dSRN](https://x.com/haikinkinhai/status/1935651575676219465)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/234651yachgh7hw7a5kcwb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (849.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 23:46 上传
+

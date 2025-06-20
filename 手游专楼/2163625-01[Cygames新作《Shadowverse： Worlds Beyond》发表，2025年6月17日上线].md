@@ -3744,3 +3744,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 可以 又补了十包
 
+
+*****
+
+####  辞冬  
+##### 240#       发表于 2025-6-20 23:55
+
+女同真是假卡中的假卡，是什么脑子设计出来的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
