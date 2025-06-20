@@ -3299,3 +3299,13 @@ rb+←
 开放捏脸纯属给别人做嫁衣(再说MOD早晚会跟上)，默认开放，你捏个2B我捏个碍事梨，谁还认识你Eve啊，那不 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都是用脑袋插花那个发型
 
+
+*****
+
+####  Andariel  
+##### 3241#       发表于 2025-6-20 20:55
+
+不得不说我和金大师的性癖真的能对上的挺多的
+马尾，恨天高跟，大粗腿大屁股，都是我的最爱
+尤其这个高跟，我看很多人都吐槽难看，我可是爱的不行<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

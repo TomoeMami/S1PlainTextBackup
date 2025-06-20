@@ -2910,3 +2910,29 @@ Mark一下等週二這帖爆炸</blockquote>
 
 仔细看修司驾驶舱画面，这元祖真的就是元祖，驾驶舱和0079动画一模一样
 
+
+*****
+
+####  zoe2  
+##### 20954#       发表于 2025-6-20 20:47
+
+其他都还好，就是gux头部真的好丑，每次出来那对大眼睛好出戏<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，当然假如最后一集把嘴巴张开我就原谅它
+
+
+*****
+
+####  psycho_Gadfly  
+##### 20955#       发表于 2025-6-20 20:54
+
+ 本帖最后由 psycho_Gadfly 于 2025-6-20 20:56 编辑 
+<blockquote>d<a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973557&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 20:10</a>
+
+仔细看修司驾驶舱画面，这元祖真的就是元祖，驾驶舱和0079动画一模一样
+
+还有就是元祖出现是57 58卡，但是g ...</blockquote>
+不管是打一整集（卡拉这个打戏水平。。。），还是话疗大半集才打
+
+都挺让人绝望的<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+不过，也许打戏意外生草，从而诞生不亚于希望之花的名场景？那也不错
+
