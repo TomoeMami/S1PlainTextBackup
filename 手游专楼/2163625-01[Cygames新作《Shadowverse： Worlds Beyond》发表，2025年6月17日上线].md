@@ -3700,3 +3700,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 影之诗“超凡世界”6月17日正式上线！ 抽奖10次必得卡包兑换券！有机会抽取Nintendo Switch2！ [https://mf.163.com/s/FMEbkwR9](https://mf.163.com/s/FMEbkwR9)
 
+
+*****
+
+####  小黑鱼  
+##### 235#       发表于 2025-6-20 15:05
+
+目前体感送的卡包出虹率比一代还高点，但是不能分解加上大部分都是弱卡实在太糟心（卡场剑圣求你别再来了）<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
