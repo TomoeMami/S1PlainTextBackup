@@ -3032,3 +3032,13 @@ rb+←
 对，到独木桥之前那个平台挂掉的话要绕一大圈</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得走一半能开一个吊索的捷径的，下面是个黄色公交车，你找找
 
+
+*****
+
+####  alucardcz  
+##### 3216#       发表于 2025-6-20 09:56
+
+流沙也挺弱智的  一个不注意直接死
+
+还是有什么办法能跑出去？
+
