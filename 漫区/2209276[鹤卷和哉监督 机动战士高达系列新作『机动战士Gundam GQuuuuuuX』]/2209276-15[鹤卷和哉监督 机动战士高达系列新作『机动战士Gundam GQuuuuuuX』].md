@@ -2681,3 +2681,62 @@ gqux效应，昨日dl榜前三全是byd
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  西洛克  
+##### 20936#       发表于 2025-6-20 18:48
+
+<blockquote>希望之异热同心 发表于 2025-6-20 18:44
+只能说鹤卷还是没骗人，就是不足帧分析谁他妈看得出来啊！
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/20/184801y5t8g55l0elh8z85.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6777.jpeg</strong> (373.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 18:48 上传
+
+第九集捞木马的时候就不对了，和木马差不多大
+
+*****
+
+####  ryanghj  
+##### 20937#       发表于 2025-6-20 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973176&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-20 18:44</a>
+
+只能说鹤卷还是没骗人，就是不足帧分析谁他妈看得出来啊！
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我说过，还有人不信呢
+
+
+*****
+
+####  syndrome2032  
+##### 20938#       发表于 2025-6-20 18:51
+
+艾尔美斯我记得高度和元祖勇士差不多但是长很多像个战斗机。
+
+*****
+
+####  希望之异热同心  
+##### 20939#       发表于 2025-6-20 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973207&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 18:50</a>
+我说过，还有人不信呢</blockquote>
+感觉剧透把一个巨大反转给透没了，好气啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ヒトニナル  
+##### 20940#       发表于 2025-6-20 18:56
+
+捞艾尔美斯那个画面很奸诈，因为两个人类离镜头很近，导致远处的艾尔美斯对比起来是正常大小
+
