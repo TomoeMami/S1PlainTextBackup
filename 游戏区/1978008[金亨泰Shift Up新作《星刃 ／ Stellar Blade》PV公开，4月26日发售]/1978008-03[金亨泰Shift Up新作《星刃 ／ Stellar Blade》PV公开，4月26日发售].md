@@ -3408,3 +3408,22 @@ PC版拿完罐子就打不动了，
 
 钓鱼从0开始掉到女仆大概也就50分钟？  
 
+
+*****
+
+####  Izunu_3  
+##### 3251#       发表于 2025-6-21 00:14
+
+一直不喜欢高跟，但是这作的马蹄高跟实在太色了，解锁了新XP
+
+
+*****
+
+####  Andariel  
+##### 3252#       发表于 2025-6-21 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974503&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-20 23:58</a>
+
+钓鱼从0开始掉到女仆大概也就50分钟？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕
+
