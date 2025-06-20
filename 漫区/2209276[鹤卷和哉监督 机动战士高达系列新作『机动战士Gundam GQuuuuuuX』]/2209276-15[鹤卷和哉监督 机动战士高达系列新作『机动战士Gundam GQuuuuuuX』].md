@@ -3349,3 +3349,11 @@ Mark一下等週二這帖爆炸</blockquote>
 
 但是广泛流传的只有8张，说是其实还有2张
 
+
+*****
+
+####  上坂莲华  
+##### 20972#       发表于 2025-6-21 01:17
+
+10张也太少了，我已经见过PDF版本了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

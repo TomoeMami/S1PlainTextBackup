@@ -9723,3 +9723,21 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 原来首杀才奖励25个币，之后只有7个
 
+
+*****
+
+####  thealoneer  
+##### 950#       发表于 2025-6-21 01:17
+
+ 本帖最后由 thealoneer 于 2025-6-21 01:18 编辑 
+
+这次明显老ass回归不少，清图效率极高，第三天boss前基本都能拿到满级，还见识了一波复制bug，不过搞一兜子血矛也感觉不如大剑好用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/21/011727dx1l4xg1yxaatu1h.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20250621-011712.jpg</strong> (259.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 01:17 上传
+
