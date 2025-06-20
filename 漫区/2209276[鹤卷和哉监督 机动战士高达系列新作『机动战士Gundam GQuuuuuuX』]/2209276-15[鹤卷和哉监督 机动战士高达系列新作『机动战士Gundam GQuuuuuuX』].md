@@ -3050,3 +3050,13 @@ Mark一下等週二這帖爆炸</blockquote>
 [https://x.com/mutsu_XXXX/status/1935744387939701217](https://x.com/mutsu_XXXX/status/1935744387939701217)
 <img src="https://p.sda1.dev/25/e6eed149a7260e1caa361b62410911a1/20250620_225557.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 20964#       发表于 2025-6-20 23:20
+
+<blockquote>ヒトニナル 发表于 2025-6-20 23:03
+超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊</blockquote>
+所以GQ和廣東小精靈一樣撲面用精神攻擊啊
+

@@ -3389,3 +3389,14 @@ PC版拿完罐子就打不动了，
 
 2025-6-20 23:08 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 3249#       发表于 2025-6-20 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974327&amp;ptid=1978008" target="_blank">仰望神的括约肌 发表于 2025-6-20 23:02</a>
+
+之前ps5我都是钓鱼赚币 不知道后面有没有效率更高的</blockquote>
+感谢。钓鱼还没怎么研究。（太肝就去找风大师了233
+
