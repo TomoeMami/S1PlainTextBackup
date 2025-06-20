@@ -7086,3 +7086,15 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  schneehertz  
+##### 602#       发表于 2025-6-20 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971525&amp;ptid=2196984" target="_blank">与天争锋_LZ 发表于 2025-6-20 14:02</a>
+虽然这集观感不错，但是感觉没到神回的级别，可能是因为这种末日后独自游览遗迹的底子本来就很容易出神回所 ...</blockquote>
+其实地球对这些过路的外星人来说，最好玩的应该就是酒店本身了，也就那个来考察的才会去野外
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

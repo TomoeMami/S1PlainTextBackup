@@ -3239,3 +3239,18 @@ rb+←
 哎 你说很多衣服结构都差不多，还有换色的
 怎么每一套穿上都有不一样的感觉呢<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 3236#       发表于 2025-6-20 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972246&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-20 16:09</a>
+我倒是希望金大师能不能把换装系统再改进一下
+
+能不能拆成上装和下装；就红莲联动的赛车服来说，上半身90 ...</blockquote>
+衣服我没意见，高跟鞋能不能拆开单独饰品
+很多衣服好看但一看脚就奇奇怪怪的
+
+—— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -2448,3 +2448,69 @@ gq世界明显没啥可讲的了，但是真搞玛秋各种世界观穿越大乱
 
 这又何必呢，谁又没有过喜欢上几部烂片呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 20914#       发表于 2025-6-20 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971714&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-6-20 14:37</a></blockquote>
+拉尔不出场太怪了
+
+
+*****
+
+####  我聞如是  
+##### 20915#       发表于 2025-6-20 16:53
+
+最終話還在做只是因為量多畫得慢吧
+
+26分鐘440cut很多了
+
+*****
+
+####  shinoverse  
+##### 20916#       发表于 2025-6-20 16:54
+
+出第二季还有啥可讲的，就这一个即使用世界系来形容都很难绷的建构，胡闹结束了难道大伙要接着演正剧么？
+
+*****
+
+####  kuriri  
+##### 20917#       发表于 2025-6-20 16:56
+
+<blockquote>猪突猛进R 发表于 2025-6-20 16:32
+又在幻想第2季了，就算有，应该和水魔一样是个剥离高达背景的作品。</blockquote>
+可是我确实好想要一个麻丘自己的故事，虽然第二季是不可能的
+
+*****
+
+####  blood_iron  
+##### 20918#       发表于 2025-6-20 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972543&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-20 16:54</a>
+
+出第二季还有啥可讲的，就这一个即使用世界系来形容都很难绷的建构，胡闹结束了难道大伙要接着演正剧么？ ...</blockquote>
+真拍第二部就是提坦斯大战新吉翁了
+
+*****
+
+####  ryanghj  
+##### 20919#       发表于 2025-6-20 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972401&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 16:32</a>
+
+又在幻想第2季了，就算有，应该和水魔一样是个剥离高达背景的作品。</blockquote>
+剥离高达作品不就只剩三角恋了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 20920#       发表于 2025-6-20 16:58
+
+除了巨大化元祖，剧透的其他都在预料之中吧，没觉得很烂（或者说乐子多于烂）
+
+当然最后烂不烂就看牢修到底是个什么东西了，只是一般路过nt或者留白就烂完了
+
+不过这番追得真是刺激，没到最后一刻完全无法预判啊哈哈
+
