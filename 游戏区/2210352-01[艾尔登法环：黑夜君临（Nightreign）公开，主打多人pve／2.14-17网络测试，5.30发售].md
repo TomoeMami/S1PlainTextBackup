@@ -9707,3 +9707,11 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hirro  
+##### 948#       发表于 2025-6-20 22:05
+
+野队过了，腐败森林都没进去已经15级了，2远程我跳劈一个人都没死过的
+
