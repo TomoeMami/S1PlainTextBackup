@@ -3083,3 +3083,11 @@ rb+←
 跳楼之前至少回口血吧</blockquote>
 想多了  是直接那种摔死 不是跳崖那种不见底的扣血刷新
 
+
+*****
+
+####  洛克萨斯  
+##### 3221#       发表于 2025-6-20 10:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他妈的沙漠一堆机器人，带背刺脊椎显得好蠢
+
