@@ -1318,3 +1318,23 @@ ssk抽到山本然后转投一个星9的副投节目效果确实好啊w当然这
 
 上から目線で非礼な態度の連続（マネージャー）
 
+
+*****
+
+####  ヒトニナル  
+##### 1303#       发表于 2025-6-20 15:48
+
+这事一开始就应该staff去联系的呀，毕竟你虹可是企业势<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">馆长觉得你staff一开始联系没到位，到我写文章了就开始积极联系了，好怪的捏
+
+
+*****
+
+####  若流水  
+##### 1304#       发表于 2025-6-20 15:54
+
+ 本帖最后由 若流水 于 2025-6-20 15:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972058&amp;ptid=2171972" target="_blank">usodakedo 发表于 2025-6-20 15:38</a>
+
+其实视频本身拿老登前几天还大力夸赞呢，但是由于老登还在文章里写了对阿花的外貌，你虹staff八成是去提 ...</blockquote>
+感觉就是代沟，理解不了所以把外貌也写上了，也不知道vtube对隐藏相貌有需求，马内甲发函过去只感觉自己的创作自由被威胁了直接暴怒，而且这种上了年纪的文艺工作者对这方面确实也敏感<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

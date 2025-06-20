@@ -2269,3 +2269,27 @@ GQUX+哈罗是骡子的展开吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  patema  
+##### 20897#       发表于 2025-6-20 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969098&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 02:41</a>
+
+就是巨大化了</blockquote>
+其实没有，艾美号原设就有80米级别的全高。反而应该是上面的高达画大了
+
+*****
+
+####  我聞如是  
+##### 20898#       发表于 2025-6-20 15:51
+
+<blockquote>ryanghj 发表于 2025-6-20 15:39
+楼上有人搬运最后一个镜头是玛秋喵安回头，飘过疑似牢修的头发
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+我覺得底下被截掉的應該是瑪秋特寫，不是牢修
+
+整段會是瑪秋走幾步，回頭，回答喵安的問題
+
