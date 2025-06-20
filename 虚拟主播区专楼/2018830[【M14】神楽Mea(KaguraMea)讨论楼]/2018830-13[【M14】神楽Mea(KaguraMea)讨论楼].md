@@ -43075,3 +43075,34 @@ Rororororo桑，谢谢。  
 
 至于头像俺寻思应该就是随便找了个大胡子当头像吧大概，如果高飞小号说成立的话。毕竟不太可能是真就真人出镜大头照当头像，那疑似有点太恐怖了😨
 
+
+*****
+
+####  化鳥虫二  
+##### 18788#       发表于 2025-6-21 03:19
+
+<img src="https://img.stage1st.com/forum/202506/21/031558q6fkfp30akyzudaf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250621_031336.jpg</strong> (845.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 03:15 上传
+
+每天都能哈气也是厉害了
+
+*****
+
+####  sino__unnko3  
+##### 18789#       发表于 2025-6-21 03:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974785&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-21 02:39</a>
+在切片的时候突然在想aoshima有没有可能是高飞小号
+
+毕竟aoshima是imp3的老观众了，imp3又是lol小圈子里的 ...</blockquote>
+印象里没有
+
+是一直奇怪这个管理员是什么身份，怎么就莫名其妙的拿了你咩的房管，有楼友可以追溯到给房管的时间点吗
+
+昨天看szb那段的时候倒是留意了一下这位的口癖，一下子没找到证据，需要更多历史语句参与分析——除非假说成立，这位故意改口癖
+
