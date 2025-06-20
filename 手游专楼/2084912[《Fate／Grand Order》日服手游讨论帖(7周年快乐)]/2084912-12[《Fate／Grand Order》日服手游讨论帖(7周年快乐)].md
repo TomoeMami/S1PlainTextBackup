@@ -332,3 +332,40 @@
 你怎么什么都有 欧 羡慕</blockquote>
 你才是什么都有吧 还都各种2 3宝
 
+
+*****
+
+####  cckuku  
+##### 16921#       发表于 2025-6-20 19:19
+
+哥们我数了数，我心水的角色好像全都是光炮啊，这可咋整？这个本以后不会全是单体吧？
+
+*****
+
+####  khxooo  
+##### 16922#       发表于 2025-6-20 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973329&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-6-20 19:19</a>
+
+哥们我数了数，我心水的角色好像全都是光炮啊，这可咋整？这个本以后不会全是单体吧？
+
+ ...</blockquote>
+看样子估计全是单体了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 16923#       发表于 2025-6-20 19:29
+
+不是，这莉莉丝一技能魅惑怎么一直上不上去<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 16924#       发表于 2025-6-20 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973373&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-6-20 19:29</a>
+
+不是，这莉莉丝一技能魅惑怎么一直上不上去</blockquote>
+莉莉丝被针对了，策划给海叔上了超绝耐性
+

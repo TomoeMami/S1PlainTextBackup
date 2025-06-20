@@ -2821,3 +2821,43 @@ gqux效应，昨日dl榜前三全是byd
 
 所以喵安最后说玛秋不去见的人是拉拉？妈妈？
 
+
+*****
+
+####  岸浪白野  
+##### 20946#       发表于 2025-6-20 19:26
+
+ 本帖最后由 岸浪白野 于 2025-6-20 19:28 编辑 
+
+本来艾尔美斯头顶高尺寸就已经比布劳布罗还矮10米多了，GQ的基克罗格都摆在你面前给你看多大了，那玫瑰可不是作画失误和角度问题能解释的，随便看都是大小有问题啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我聞如是  
+##### 20947#       发表于 2025-6-20 19:33
+
+[https://x.com/F_M_U/status/1935346529587568938](https://x.com/F_M_U/status/1935346529587568938)
+
+Mark一下等週二這帖爆炸
+
+<img src="https://img.stage1st.com/forum/202506/20/193219p2j2gkgl72ftpt2k.png" referrerpolicy="no-referrer">
+
+<strong>1000030071.png</strong> (305.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:32 上传
+
+*****
+
+####  岸浪白野  
+##### 20948#       发表于 2025-6-20 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973392&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-20 19:33</a>
+
+https://x.com/F_M_U/status/1935346529587568938
+
+Mark一下等週二這帖爆炸</blockquote>
+发过了
+
