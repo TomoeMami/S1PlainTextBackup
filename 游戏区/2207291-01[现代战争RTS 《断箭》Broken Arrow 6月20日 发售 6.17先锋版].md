@@ -778,3 +778,15 @@ M1128和M10杀人还是太慢了。感觉目前对局形态还是在开局围绕
 
 这种游戏PVP要求太高了，希望PVE战役做好一点让萌新玩的开心
 
+
+*****
+
+####  武蔵  
+##### 55#       发表于 2025-6-20 08:45
+
+b站云了一会儿，这游戏单位的人均寿命也太短了，步兵基本人均寿命就几秒钟吧
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+以前我玩叙利亚战争感觉单位已经很脆了，没有爆反的t55t62这类车一旦走错位置，愣一下的功夫就寄了
+断箭的单位更是寄
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
