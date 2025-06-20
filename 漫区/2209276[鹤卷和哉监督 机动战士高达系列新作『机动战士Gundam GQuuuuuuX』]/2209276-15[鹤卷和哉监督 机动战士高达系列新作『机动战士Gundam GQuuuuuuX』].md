@@ -1117,3 +1117,56 @@ UC世界线×
 重映真的会有凯子再刷吗</blockquote>
 实际上就是卖设定集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 20804#       发表于 2025-6-20 10:18
+
+这通缉犯身份是永远跑不掉呢
+
+*****
+
+####  仟音一心  
+##### 20805#       发表于 2025-6-20 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969960&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-20 10:02</a>
+不是，玛秋最开始是穿的是无钢圈运动型内衣，这次专门换了有钢圈的少女型内衣，为了表现她内心的变化 ...</blockquote>
+这样的吗？真没注意。
+
+*****
+
+####  6030sylar  
+##### 20806#       发表于 2025-6-20 10:21
+
+<img src="https://img.stage1st.com/forum/202506/20/101912hnouuhdlu0z0kj0z.jpg" referrerpolicy="no-referrer">
+
+<strong>311fada8853277ae45d8f51a913b47865178735.jpg</strong> (201.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 10:19 上传
+
+上面那张图，发色互为反色
+
+*****
+
+####  bandage_n2_ki  
+##### 20807#       发表于 2025-6-20 10:21
+
+这样以后还会卖公式书吗……还是有继续加场卖第4本设定集……
+
+
+*****
+
+####  Sliurus  
+##### 20808#       发表于 2025-6-20 10:24
+
+ 本帖最后由 Sliurus 于 2025-6-20 10:25 编辑 
+
+开头的倒立怕不是就为了告诉你第五集马秋换了套内衣
+
+瞄了两眼剧透，感觉是个很标准的结局，事件解决，留下悬念
+
+其实挺符合我一开始对这片的预期的，只是没想到第六集拉高了我的期待
+
