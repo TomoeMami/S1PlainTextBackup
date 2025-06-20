@@ -2997,3 +2997,11 @@ Mark一下等週二這帖爆炸</blockquote>
 
 听你们说似乎又什么大的还没搞，但是说实话这种uc同人文性质的搞笑片（说是非常难看的烂片也许不算，但说是佳作更是扯淡，感觉就是个放飞自我的平庸故事<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 20962#       发表于 2025-6-20 23:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊
+

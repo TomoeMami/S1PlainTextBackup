@@ -3358,3 +3358,14 @@ rb+←
 
 爱多斯9号只有一个传送点？
 
+
+*****
+
+####  仰望神的括约肌  
+##### 3247#       发表于 2025-6-20 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974262&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-6-20 22:46</a>
+
+听说服装和啥的要每周目都要收齐？那维特币感觉完全不够啊，还在沙漠通马桶，但是维特币仅仅够买完情报商+ ...</blockquote>
+之前ps5我都是钓鱼赚币 不知道后面有没有效率更高的
+
