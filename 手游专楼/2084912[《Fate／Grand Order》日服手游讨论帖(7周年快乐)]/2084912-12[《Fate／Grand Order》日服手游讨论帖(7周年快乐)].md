@@ -477,3 +477,41 @@
 
 讲道理，汇呆没有户口本，不是瞟好友的亏炸，金时至少秩序善和灵衣。可惜我金时低宝力度不够，升个狂娜玩玩了
 
+
+*****
+
+####  都谷捻柏  
+##### 16937#       发表于 2025-6-20 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973690&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-20 20:37</a>
+
+不要方 盘子点的差不多用狗蛋也是一刀！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那明明金时这个本最优，怎么都看到别的地方都在输出水C呆？
+
+*****
+
+####  都谷捻柏  
+##### 16938#       发表于 2025-6-20 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973578&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-20 20:15</a>
+
+虽然没抽但试用的时候感觉还是比不上紫色老太婆的核弹啊</blockquote>
+有神性肯定是斯卡哈，没有神性有d特攻的比肖内有机会打出更高的伤害（毕竟冠位战有出指令卡的玩法）。
+
+*****
+
+####  森兰丸  
+##### 16939#       发表于 2025-6-20 21:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抱了个5宝120级黑杯金时试了下...一斧子下去才220万伤害....不过也可能是还没点盘子
+
+*****
+
+####  alucardcz  
+##### 16940#       发表于 2025-6-20 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973766&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-6-20 20:52</a>
+
+那明明金时这个本最优，怎么都看到别的地方都在输出水C呆？</blockquote>
+不点盘子伤害不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
