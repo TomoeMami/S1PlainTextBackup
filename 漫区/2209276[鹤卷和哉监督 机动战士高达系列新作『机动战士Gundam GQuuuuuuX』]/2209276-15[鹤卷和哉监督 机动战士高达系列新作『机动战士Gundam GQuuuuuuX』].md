@@ -1692,3 +1692,47 @@ X 上的 中村豪志：“らくがきプラモシミュレーション #ジー
 
 这下真的是吉姆王套元祖皮了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  变老的大二  
+##### 20846#       发表于 2025-6-20 12:00
+
+<blockquote>秋月孝三 发表于 2025-6-20 11:56
+这下真的是吉姆王套元祖皮了</blockquote>
+不过这剧透也没看出这玩意的破坏力。
+
+
+*****
+
+####  adretyu67.  
+##### 20847#       发表于 2025-6-20 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970883&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-20 11:54</a>
+
+按地图炮轰要塞最后善终，也是前辈们都做不到的事
+
+发动奥拉力也是（</blockquote>
+有德不是摁过格林普斯的手电筒了吗。
+
+发动奥拉力是头一回
+
+*****
+
+####  rockroxas  
+##### 20848#       发表于 2025-6-20 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970930&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-20 12:02</a>
+
+有德不是摁过格林普斯的手电筒了吗。
+
+发动奥拉力是头一回</blockquote>
+那你看看有德最后一次被提及干了什么（
+
+*****
+
+####  bbjajdd  
+##### 20849#       发表于 2025-6-20 12:07
+
+最大的感受是以后骡叔叔在某些方面大概不能笑话鸭子了
+
