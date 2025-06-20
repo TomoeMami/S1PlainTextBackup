@@ -166,3 +166,38 @@
 这楼好几天没见有新动静结果一打开就不出所料看到萌新又在豹跳</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你限定5宝
 
+
+*****
+
+####  森兰丸  
+##### 16903#       发表于 2025-6-20 11:42
+
+话说狂除了南丁外还有啥拐吗....真想不出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16904#       发表于 2025-6-20 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970800&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-20 11:42</a>
+
+话说狂除了南丁外还有啥拐吗....真想不出来</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你box里5宝的限定！
+
+*****
+
+####  森兰丸  
+##### 16905#       发表于 2025-6-20 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971093&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-20 12:28</a>
+
+你box里5宝的限定！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个我就算不拿来当主攻手也肯定要用作当补刀的副手啊
+
+*****
+
+####  壳壳牛  
+##### 16906#       发表于 2025-6-20 17:09
+
+木桩来咯
+
