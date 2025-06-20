@@ -3091,3 +3091,17 @@ rb+←
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他妈的沙漠一堆机器人，带背刺脊椎显得好蠢
 
+
+*****
+
+####  银色天空  
+##### 3222#       发表于 2025-6-20 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969903&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-20 09:54</a>
+绕圈我知道，但是应该没流沙吧，而且这这里的激光不是很简单，一段加闪避就过去了 ...</blockquote>
+这地方死个一次就够烦了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后这个b激光，我二段跳过去给我把翻上去的脚给削了，很抽象
+
+流沙也有，而且这里的流沙还不像大沙漠里的那么容易发现，一不注意就淹死了。
+
+这小区域可以说是这游戏恶意的集中释放了
+

@@ -1502,3 +1502,87 @@ khara这保密是怎么回事啊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gqx算不算高达tv历史上自己作品里最没有统治力的主角机体，都快大结局了战果好差啊
 
+
+*****
+
+####  adretyu67.  
+##### 20828#       发表于 2025-6-20 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970496&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-20 11:06</a>
+
+gqx算不算高达tv历史上自己作品里最没有统治力的主角机体，都快大结局了战果好差啊 ...</blockquote>
+马球不出意外应该是高达历史上第一个战绩只有2台扎古的主角了。
+
+上一击坠数为2的应该是80的克里斯，战绩是1台扎古+1台鸡煲饭<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 20829#       发表于 2025-6-20 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969322&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-20 08:01</a>
+贴吧文字透，关于麻球和喵安结局分镜对话，反白：
+
+最新泄露的番茄和喵安在地球泡阳光浴的分镜对话——
+
+喵安 ...</blockquote>
+啥意思，修司在地球上
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  psycho_Gadfly  
+##### 20830#       发表于 2025-6-20 11:09
+
+<blockquote>洛克萨斯 发表于 2025-6-20 11:06
+gqx算不算高达tv历史上自己作品里最没有统治力的主角机体，都快大结局了战果好差啊 ...</blockquote>
+别笑 结局直接给你整个大的（毕竟机魂疑似天然卷。）
+
+*****
+
+####  洛克萨斯  
+##### 20831#       发表于 2025-6-20 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970521&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-20 11:08</a>
+
+马球不出意外应该是高达历史上第一个战绩只有2台扎古的主角了。
+
+上一击坠数为2的应该是80的克里斯，战绩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nt1调整好了打鸡煲饭和扎古改还是砍瓜切菜的，gqx+番茄组合目前看不出对同代机体有什么压制力
+
+*****
+
+####  Saber琪  
+##### 20832#       发表于 2025-6-20 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970523&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 11:08</a>
+啥意思，修司在地球上
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+分镜最后俩人回头看了，然后下一卡切了一个人物近景特写，还有一半截了头发的，看着很像牢修
+
+*****
+
+####  adretyu67.  
+##### 20833#       发表于 2025-6-20 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970543&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-20 11:10</a>
+
+nt1调整好了打鸡煲饭和扎古改还是砍瓜切菜的，gqx+番茄组合目前看不出对同代机体有什么压制力 ...</blockquote>
+但是麻球要是真把骡鸭拉这坨历史遗留问题包好了，那是做到了前辈们都做不到的事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 20834#       发表于 2025-6-20 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970545&amp;ptid=2209276" target="_blank">Saber琪 发表于 2025-6-20 11:10</a>
+分镜最后俩人回头看了，然后下一卡切了一个人物近景特写，还有一半截了头发的，看着很像牢修 ...</blockquote>
+和土屋弟访谈对上了，最后一秒就是闪过修司暗示团聚
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那还真是大饺子
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
