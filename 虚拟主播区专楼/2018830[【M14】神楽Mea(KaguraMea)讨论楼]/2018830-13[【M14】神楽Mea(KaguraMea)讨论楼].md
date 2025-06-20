@@ -43106,3 +43106,16 @@ Rororororo桑，谢谢。  
 
 昨天看szb那段的时候倒是留意了一下这位的口癖，一下子没找到证据，需要更多历史语句参与分析——除非假说成立，这位故意改口癖
 
+
+*****
+
+####  术士q  
+##### 18790#       发表于 2025-6-21 03:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974810&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-6-21 03:25</a>
+印象里没有
+
+是一直奇怪这个管理员是什么身份，怎么就莫名其妙的拿了你咩的房管，有楼友可以追溯到给房管 ...</blockquote>
+五月十九号的样子?咩啊lol云顶回那里（
+那回挺有节目效果的
+
