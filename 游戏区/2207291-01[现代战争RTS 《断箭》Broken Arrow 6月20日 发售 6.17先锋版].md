@@ -947,3 +947,16 @@ pve不知道，pvp有战术核，一千块的一键清理大师
 
 榴弹打坦克绝对是看错了，穿深不够就是没伤害。
 
+
+*****
+
+####  Steel.Haze  
+##### 69#       发表于 2025-6-21 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952545&amp;ptid=2207291" target="_blank">lDaive 发表于 2025-6-17 11:18</a>
+
+这游戏之前是不是说可能会出zg阵营？还是我记混了</blockquote>
+是已经确定要出中国阵营，我估计分为重装旅（类似近卫）、合成机动旅（类似美国的斯泰克旅）、陆战队（类似俄陆战队不过卖点是两栖步战）、空降兵（这个就是VDV+空军了）；
+
+估计J15在陆战队、J20在空降兵、F35在合成旅...
+
