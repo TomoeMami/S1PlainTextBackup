@@ -2566,3 +2566,30 @@ gqux效应，昨日dl榜前三全是byd
 
 2025-6-20 17:10 上传
 
+
+*****
+
+####  cckuku  
+##### 20926#       发表于 2025-6-20 17:16
+
+噢那是真的牛批，泄露给朋友结果被朋友背刺和自己主动大漏特漏，我不好说这两个行为哪个更蠢一点，
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 20927#       发表于 2025-6-20 17:19
+
+看我一刀插爆李亚宝全家
+
+
+*****
+
+####  ryanghj  
+##### 20928#       发表于 2025-6-20 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972637&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-20 17:10</a>
+到底是自己想不開還是被坑了</blockquote>
+最早发的那人ip在日本
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
