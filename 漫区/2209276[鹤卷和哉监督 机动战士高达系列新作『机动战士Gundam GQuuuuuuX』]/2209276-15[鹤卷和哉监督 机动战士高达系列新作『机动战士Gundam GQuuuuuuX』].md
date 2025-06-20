@@ -2631,3 +2631,16 @@ gqux效应，昨日dl榜前三全是byd
 
 證明比瑪秋喵安還要腦衝不顧後果的人在現實中存在嗎？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不会起名  
+##### 20933#       发表于 2025-6-20 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971211&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 12:53</a>
+
+他的意思大概是有德最后被联邦安排去枪毙他儿子，还是逃不过因果报应。
+
+有的人对喵安按下了大杀器，最后 ...</blockquote>
+啊这，那他开面包店是哪说的
+
