@@ -3309,3 +3309,14 @@ rb+←
 马尾，恨天高跟，大粗腿大屁股，都是我的最爱
 尤其这个高跟，我看很多人都吐槽难看，我可是爱的不行<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 3242#       发表于 2025-6-20 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973614&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-6-20 20:21</a>
+
+开放捏脸纯属给别人做嫁衣(再说MOD早晚会跟上)，默认开放，你捏个2B我捏个碍事梨，谁还认识你Eve啊，那不 ...</blockquote>
+我怕的倒是一捏脸人物表情不好处理，至于你担心的那个问题续作完全可以做成后期才开放，而且也不用那么担心主角脸多了影响IP辨识度，某些个NPC做好点完全也可能代替现在这个锥子脸成招牌<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
