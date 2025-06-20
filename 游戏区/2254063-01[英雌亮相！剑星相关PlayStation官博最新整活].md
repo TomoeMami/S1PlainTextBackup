@@ -2698,3 +2698,15 @@ shero
 
 索尼还是欧美那边话语权太大了, 任由些垃圾发话
 
+
+*****
+
+####  大暴死  
+##### 196#       发表于 2025-6-20 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67952933&amp;ptid=2254063" target="_blank">江戸前ルナ 发表于 2025-6-17 12:13</a>
+80-2000年前不少港台武侠小说里确实不少有用“姝”这个词。但这个词2000年后武侠式微基本很少见用了。这次 ...</blockquote>
+以前电视台经常用的，经常看体育的应该对当年“比利时网球双姝”（海宁和克里斯特尔斯）很有印象吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

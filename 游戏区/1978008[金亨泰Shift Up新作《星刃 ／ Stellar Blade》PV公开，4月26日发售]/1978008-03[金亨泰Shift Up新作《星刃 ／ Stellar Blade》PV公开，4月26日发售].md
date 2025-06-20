@@ -2983,3 +2983,23 @@ rb+←
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沙漠另一个高楼跳跳乐躲激光拿易拉罐的真是神了，死一次要跑一大圈重新跳，还一大片流沙
 
+
+*****
+
+####  Andariel  
+##### 3211#       发表于 2025-6-20 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高塔以外的收集我都搞完了
+怎么你们说的这些死了就得回退一大截的跳跳乐我都没有印象
+是不是附近有捷径或者小篝火没有打开啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 3212#       发表于 2025-6-20 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969755&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-20 09:33</a>
+沙漠另一个高楼跳跳乐躲激光拿易拉罐的真是神了，死一次要跑一大圈重新跳，还一大片流沙 ...</blockquote>
+去打支线亚巴顿路上的那里？
+

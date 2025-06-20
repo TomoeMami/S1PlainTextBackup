@@ -985,3 +985,57 @@ khara这保密是怎么回事啊</blockquote>
 包括我在内有三四个提的吧，斗争心奥拉力什么的（</blockquote>
 别说还真有拜斯顿威尔的感觉
 
+
+*****
+
+####  希望之异热同心  
+##### 20791#       发表于 2025-6-20 09:37
+
+NT力X
+
+奥拉力√
+
+UC世界线×
+
+拜斯顿·威尔√
+
+*****
+
+####  ヒトニナル  
+##### 20792#       发表于 2025-6-20 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最终话要一转天元突破（指氛围）吗，未尝不可
+但按这个剧透我真的很难直视怀中抱妹了啊，怎么你也在做贪得无厌的事
+
+
+*****
+
+####  psycho_Gadfly  
+##### 20793#       发表于 2025-6-20 09:42
+
+ 本帖最后由 psycho_Gadfly 于 2025-6-20 09:44 编辑 
+<blockquote>zhongjie 发表于 2025-6-20 09:28
+听说有巨大化修斯？</blockquote>
+
+是pg元祖
+
+话说按照这个路透 主角团会有什么作用很难想象啊 最后重点还是骡鸭拉(虽然我完全能接受hhhh
+
+*****
+
+####  仟音一心  
+##### 20794#       发表于 2025-6-20 09:42
+
+内衣设计
+<img src="https://p.sda1.dev/25/8421f96e206c66d721dfac50332f7b3d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/69d7a53b9abc17e468ca284441f7e3bc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kk霖洞九  
+##### 20795#       发表于 2025-6-20 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969827&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-20 09:42</a>
+内衣设计</blockquote>
+这是哪本设定集国内场刊好像没这页啊
+
