@@ -2908,3 +2908,20 @@ rb+←
 
 尼玛的总算过了，算上昨天的总共打了四五个小时吧，感觉比米塔恩都难，米塔恩我还能用盾戳逃课，这位真就只能硬打。
 
+
+*****
+
+####  黒長直姫  
+##### 3205#       发表于 2025-6-20 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965016&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-19 11:36</a>
+
+游侠网有地图能直接查，连罐子、宝箱也一起包办了
+
+[https://www.gamersky.com/tools/map/STB/?mapId=90&amp;p](https://www.gamersky.com/tools/map/STB/?mapId=90&amp;p) ...</blockquote>
+不你没懂 这地图是不方便查缺的 因为你不知道全部有多少 即使是你一路用地图收一个标一个 这地图也有漏标的情况
+
+我印象最深的是饮料罐就漏俩
+
+但是方便跑图收集这个没问题
+
