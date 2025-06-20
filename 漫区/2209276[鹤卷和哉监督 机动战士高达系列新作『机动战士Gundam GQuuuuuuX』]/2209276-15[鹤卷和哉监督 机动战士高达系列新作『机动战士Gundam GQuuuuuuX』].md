@@ -3005,3 +3005,48 @@ Mark一下等週二這帖爆炸</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊
 
+
+*****
+
+####  Piano-Forest  
+##### 20963#         楼主| 发表于 2025-6-20 23:07
+
+[https://x.com/aymipictures/status/1936002509082181641](https://x.com/aymipictures/status/1936002509082181641)
+<img src="https://p.sda1.dev/25/60b6912292456623106eb12a0e847d2c/20250620_225649.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/04f296ddd619c73f4349ca68d29d0de6/20250620_225654.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/08e2ac6fbd231dc0d3a0a874ce9d4588/20250620_225658.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/4f9a7b1828afd8145c0a5144580ce4c7/20250620_225727.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yielderego/status/1935724277296427217](https://x.com/yielderego/status/1935724277296427217)
+
+11話、ジト目のマチュが2回も出てきてかわいい（かわいい）
+<img src="https://p.sda1.dev/25/38947e118796545f316c355e8ef98f45/20250620_225540.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/39369e9a89837c3a2550e769465b4a3a/20250620_225542.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/saikyoumiso/status/1935372188246491179](https://x.com/saikyoumiso/status/1935372188246491179)
+<img src="https://p.sda1.dev/25/c9cc113e3b82233a4fc5fc841a298220/20250620_225527.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gyozablackbeer/status/1935345388380426309](https://x.com/gyozablackbeer/status/1935345388380426309)
+<img src="https://p.sda1.dev/25/e852a3a410e7efbb788721b6fa6e90f2/20250620_225532.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/h_ito_fgo/status/1935838711356490065](https://x.com/h_ito_fgo/status/1935838711356490065)
+<img src="https://p.sda1.dev/25/45ba9a896782f91c5df35580746f57b3/20250620_225551.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tibasa9/status/1936029745382408332](https://x.com/tibasa9/status/1936029745382408332)
+
+マチュとコモりんの
+
+夏の日常回良かったですね✨（幻覚）
+<img src="https://p.sda1.dev/25/53efb5ed7d66b221c0c00fdf833d8b0c/20250620_225641.jpg" referrerpolicy="no-referrer">
+
+マチュとコモりんの日常回、
+
+本編でやって欲しい
+<img src="https://p.sda1.dev/25/f19bec8a71d7373d6addda4a4f3b9521/20250620_230605.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/anggguuu/status/1935723802648076425](https://x.com/anggguuu/status/1935723802648076425)
+<img src="https://p.sda1.dev/25/034a0c3839f6f8fd6cf72e1bb34da11a/20250620_225602.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mutsu_XXXX/status/1935744387939701217](https://x.com/mutsu_XXXX/status/1935744387939701217)
+<img src="https://p.sda1.dev/25/e6eed149a7260e1caa361b62410911a1/20250620_225557.jpg" referrerpolicy="no-referrer">
+
