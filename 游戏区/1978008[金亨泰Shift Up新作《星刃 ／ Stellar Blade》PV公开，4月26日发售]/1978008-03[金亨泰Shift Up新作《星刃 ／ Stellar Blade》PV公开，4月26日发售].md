@@ -3254,3 +3254,13 @@ rb+←
 
 —— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  永远的访客  
+##### 3237#       发表于 2025-6-20 18:19
+
+衣服别拆了，真正的时装都是一体设计的，哪有上下组合的，倒是那种高自由度组合的下场必定是各种部位干涉规则搞得你头大，凭啥这个腰带不能和那个紧身裤一起用之类的问题。
+
+把捏脸放开才是正事<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
