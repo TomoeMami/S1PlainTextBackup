@@ -3350,3 +3350,11 @@ rb+←
 
 还有N站现在出了一个自定义改2b第三套服装衣服的配件MOD，强烈推荐<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zero33333  
+##### 3246#       发表于 2025-6-20 22:54
+
+爱多斯9号只有一个传送点？
+

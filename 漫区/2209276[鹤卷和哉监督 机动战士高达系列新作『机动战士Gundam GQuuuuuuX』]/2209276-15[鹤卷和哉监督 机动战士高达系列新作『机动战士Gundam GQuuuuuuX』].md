@@ -2972,3 +2972,28 @@ Mark一下等週二這帖爆炸</blockquote>
 
 时间线收束，最后还是得烤羊？
 
+
+*****
+
+####  adretyu67.  
+##### 20960#       发表于 2025-6-20 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973777&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-20 20:54</a>
+
+不管是打一整集（卡拉这个打戏水平。。。），还是话疗大半集才打
+
+都挺让人绝望的
+
+不过，也许打戏意外生草 ...</blockquote>
+不可能打一整集。预告里的元祖是2d作画，连个3d模型都没有，khara哪来的资源给你整已经灭种的长时间2d机械作画
+
+
+*****
+
+####  aptx8285144  
+##### 20961#       发表于 2025-6-20 22:51
+
+ 本帖最后由 aptx8285144 于 2025-6-20 22:53 编辑 
+
+听你们说似乎又什么大的还没搞，但是说实话这种uc同人文性质的搞笑片（说是非常难看的烂片也许不算，但说是佳作更是扯淡，感觉就是个放飞自我的平庸故事<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
