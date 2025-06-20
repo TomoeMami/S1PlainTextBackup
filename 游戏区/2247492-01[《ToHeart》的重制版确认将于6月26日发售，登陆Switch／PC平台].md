@@ -1142,3 +1142,43 @@ ASCII
 
 有多差，我现在就下来观摩一下。<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 98#       发表于 2025-6-20 19:47
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-6-20 19:48 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/20/194410zoagno8k8rqnpu8q.png" referrerpolicy="no-referrer">
+
+<strong>254252727523753.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/194410mqx8q19x77xx4m7l.jpg" referrerpolicy="no-referrer">
+
+<strong>5418418498.JPG</strong> (67.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/194409byarwcvsasszbsii.jpg" referrerpolicy="no-referrer">
+
+<strong>25424527275275.JPG</strong> (87.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+立绘现代化重制了，建模还是旧画风的样子，你看这是同一个人吗？
+
+男主那张死ma脸活像某个武斗派中专生。
+
+全3D场景和一些3D演出好评，提高了不少沉浸感，但P5和新樱花大战等游戏都干过了于是缺乏新鲜感。
+
+PS:进游戏第一件事把画质调高，不然画面超糊。
+

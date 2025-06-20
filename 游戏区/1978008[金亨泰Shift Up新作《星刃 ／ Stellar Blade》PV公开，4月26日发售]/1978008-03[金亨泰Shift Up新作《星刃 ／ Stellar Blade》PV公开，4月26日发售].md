@@ -3264,3 +3264,13 @@ rb+←
 
 把捏脸放开才是正事<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 3238#       发表于 2025-6-20 19:50
+
+把高塔前的收集都清完了，就是这个机体核心好像差了不少，理论上是5级，我才4级......
+
+这玩意儿游戏内还没有统计，看不了哪些没拿.....放弃了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

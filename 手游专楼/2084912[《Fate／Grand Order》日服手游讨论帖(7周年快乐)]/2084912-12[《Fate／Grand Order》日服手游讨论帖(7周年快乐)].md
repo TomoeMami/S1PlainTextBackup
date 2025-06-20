@@ -369,3 +369,42 @@
 不是，这莉莉丝一技能魅惑怎么一直上不上去</blockquote>
 莉莉丝被针对了，策划给海叔上了超绝耐性
 
+
+*****
+
+####  alucardcz  
+##### 16925#       发表于 2025-6-20 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973362&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-6-20 19:27</a>
+
+看样子估计全是单体了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">太弱智了 我绝大多数都是光炮。。好像就个枪是老太婆。。
+
+*****
+
+####  cckuku  
+##### 16926#       发表于 2025-6-20 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973362&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-6-20 19:27</a>
+看样子估计全是单体了</blockquote>
+我在琢磨摩根+辅助+借个水c能不能玩，我水c才一宝，双水c应该是走不通了。
+
+*****
+
+####  里村紅葉  
+##### 16927#       发表于 2025-6-20 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973383&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-6-20 19:30</a>
+
+莉莉丝被针对了，策划给海叔上了超绝耐性</blockquote>
+太砂壁了，只能给汇呆打下手了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16928#       发表于 2025-6-20 19:48
+
+精神耐性130%就已经直接ban了
+地阵营打天也亏点，更别说属性特攻一个都不中
+最新的狂阶卡在打木桩本上亏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
