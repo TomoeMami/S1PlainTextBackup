@@ -443,3 +443,37 @@
 不是，这莉莉丝一技能魅惑怎么一直上不上去</blockquote>
 130的精神耐性，差不多就是按着玩家的头，给我用汇呆<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16933#       发表于 2025-6-20 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973615&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-6-20 20:21</a>
+
+130的精神耐性，差不多就是按着玩家的头，给我用汇呆</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要方 盘子点的差不多用狗蛋也是一刀！
+
+*****
+
+####  壳壳牛  
+##### 16934#       发表于 2025-6-20 20:44
+
+狂阶树不一样啊...
+
+又要凑三同色了...
+
+*****
+
+####  khxooo  
+##### 16935#       发表于 2025-6-20 20:45
+
+冠位认定搞掂了，这次比上次快多了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 16936#       发表于 2025-6-20 20:45
+
+讲道理，汇呆没有户口本，不是瞟好友的亏炸，金时至少秩序善和灵衣。可惜我金时低宝力度不够，升个狂娜玩玩了
+
