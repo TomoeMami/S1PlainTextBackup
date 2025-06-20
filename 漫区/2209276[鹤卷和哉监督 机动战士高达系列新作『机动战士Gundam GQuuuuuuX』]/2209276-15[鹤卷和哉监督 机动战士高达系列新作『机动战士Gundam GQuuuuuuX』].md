@@ -1854,3 +1854,23 @@ GQ機魂那段有待商榷
 
 騾子會說「高達」殺死拉拉而不是「我」殺死拉拉嗎？
 
+
+*****
+
+####  cxasuka  
+##### 20858#       发表于 2025-6-20 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971084&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-6-20 12:27</a>
+高达桑某种意义上算是乳鸭的集大成之作了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用某种意义上吧，毕竟连彗星小鸡都打不过
+
+*****
+
+####  不会起名  
+##### 20859#       发表于 2025-6-20 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970940&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-20 12:05</a>
+
+那你看看有德最后一次被提及干了什么（</blockquote>
+干什么了
+
