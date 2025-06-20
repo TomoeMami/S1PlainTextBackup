@@ -12,3 +12,11 @@
 
 對比素世個人漫的待遇， 就是天與地的分別
 
+
+*****
+
+####  osore  
+##### 41033#       发表于 2025-6-20 09:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo史观上一话半年多不是也和以前传的一年对不上（虽然我不知道一年是拿来的）
+
