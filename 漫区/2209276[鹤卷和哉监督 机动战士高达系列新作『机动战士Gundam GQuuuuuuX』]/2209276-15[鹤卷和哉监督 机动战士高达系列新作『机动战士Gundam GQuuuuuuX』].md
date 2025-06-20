@@ -927,3 +927,61 @@ khara这保密是怎么回事啊</blockquote>
 
 我只能说外包全是草台 各种环节都有神人
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 20784#       发表于 2025-6-20 09:26
+
+一觉醒来乱世再来，舅舅党们虽迟但到，勃勃生机万物竞发<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 20785#       发表于 2025-6-20 09:28
+
+听说有巨大化修斯？
+
+*****
+
+####  kk霖洞九  
+##### 20786#       发表于 2025-6-20 09:29
+
+一想到过段时间有人会对这片做万字解析我就想笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 20787#       发表于 2025-6-20 09:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前我在群里聊这就是个乐子动画还有人不同意
+
+*****
+
+####  Gaybird  
+##### 20788#       发表于 2025-6-20 09:32
+
+我就一个晚上没上s1，事情就已经变成这样了吗，gqux机魂是牢骡的话，那第9话的机械臂抱麻球……铁定风评被害啊！
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  rockroxas  
+##### 20789#       发表于 2025-6-20 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969337&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-20 08:10</a>
+
+说巨大化没人提圣-战士吗</blockquote>
+包括我在内有三四个提的吧，斗争心奥拉力什么的（
+
+*****
+
+####  kk霖洞九  
+##### 20790#       发表于 2025-6-20 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969752&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-20 09:32</a>
+包括我在内有三四个提的吧，斗争心奥拉力什么的（</blockquote>
+别说还真有拜斯顿威尔的感觉
+

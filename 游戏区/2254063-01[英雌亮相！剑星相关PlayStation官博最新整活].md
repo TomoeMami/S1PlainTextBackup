@@ -2680,3 +2680,21 @@ shero
 
 拳师跟LGBT又不冲突。倒不如说本来大量拳师就是L巴不得男的死绝自己玩地球OL版的终末的后宫<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cc-2  
+##### 194#       发表于 2025-6-20 09:25
+
+玩游戏的受众可能是生理男性没错
+
+但是玩微博的受众不系啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deenyao  
+##### 195#       发表于 2025-6-20 09:32
+
+索尼还是欧美那边话语权太大了, 任由些垃圾发话
+
