@@ -3042,3 +3042,24 @@ rb+←
 
 还是有什么办法能跑出去？
 
+
+*****
+
+####  洛克萨斯  
+##### 3217#       发表于 2025-6-20 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969907&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-20 09:55</a>
+
+我记得走一半能开一个吊索的捷径的，下面是个黄色公交车，你找找</blockquote>
+要过了独木桥，没过之前死了就不行
+
+*****
+
+####  alucardcz  
+##### 3218#       发表于 2025-6-20 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970000&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-20 10:09</a>
+
+要过了独木桥，没过之前死了就不行</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我跷跷板那里开头以为前面垫个箱子直接能跳过去 然后寄了 复活在歌剧院的电话亭那
+
