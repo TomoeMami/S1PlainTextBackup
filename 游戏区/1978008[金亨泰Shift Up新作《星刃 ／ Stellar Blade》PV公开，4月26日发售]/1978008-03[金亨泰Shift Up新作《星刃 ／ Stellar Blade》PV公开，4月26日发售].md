@@ -3427,3 +3427,18 @@ PC版拿完罐子就打不动了，
 钓鱼从0开始掉到女仆大概也就50分钟？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕
 
+
+*****
+
+####  永恒孤心  
+##### 3253#       发表于 2025-6-21 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974267&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-6-20 22:46</a>
+
+还有N站现在出了一个自定义改2b第三套服装衣服的配件MOD，强烈推荐</blockquote>
+出的第一时间就用上了，各种换配件不亦乐乎，用的最多的还是睡衣模式
+
+破游戏有点费时间，40小时了还没到沙漠，就这样我看了看还漏了不少收集，虽然不多，但是也挺膈应人了，一想到二周目还要重复收集就头大
+
+今天在N网看到有人发了高对比度取消NPC+伊芙+怪物染色的MOD了，但是尼玛和人物角色性能强化MOD冲突，先给作者留言看看能不能做个角色强化+去高对比度的可选MOD了。
+
