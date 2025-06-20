@@ -1663,3 +1663,32 @@ X 上的 中村豪志：“らくがきプラモシミュレーション #ジー
 
 2.GQX有机魂。
 
+
+*****
+
+####  ヒトニナル  
+##### 20843#       发表于 2025-6-20 11:49
+
+女仆装玛秋是废案，提前说过的
+另外玛秋的击坠数倒不是只有两**警扎古，还有军团战的机体呢，不过有没有超过十台这不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rockroxas  
+##### 20844#       发表于 2025-6-20 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970557&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-20 11:11</a>
+
+但是麻球要是真把骡鸭拉这坨历史遗留问题包好了，那是做到了前辈们都做不到的事 ...</blockquote>
+按地图炮轰要塞也是前辈们都做不到的事
+
+发动奥拉力也是（
+
+*****
+
+####  秋月孝三  
+##### 20845#       发表于 2025-6-20 11:56
+
+这下真的是吉姆王套元祖皮了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
