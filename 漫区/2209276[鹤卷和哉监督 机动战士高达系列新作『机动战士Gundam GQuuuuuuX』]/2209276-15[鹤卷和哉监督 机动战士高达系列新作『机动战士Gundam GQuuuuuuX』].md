@@ -1757,3 +1757,70 @@ X 上的 中村豪志：“らくがきプラモシミュレーション #ジー
 最大的感受是以后骡叔叔在某些方面大概不能笑话鸭子了</blockquote>
 搞笑动画不算的，不然得把高达桑的风评算进鸭子那（
 
+
+*****
+
+####  Piano-Forest  
+##### 20852#         楼主| 发表于 2025-6-20 12:21
+
+[https://tieba.baidu.com/p/9806512934](https://tieba.baidu.com/p/9806512934)
+[https://tieba.baidu.com/p/9806543264](https://tieba.baidu.com/p/9806543264)
+<img src="https://p.sda1.dev/25/834f7dc9b6959b5dd82c0f40ec0e8250/1e81412762d0f703c84a79cd4efa513d2797c5be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/cdd7c4c9a65c2a31001f103add8a4f09/c16990fb43166d222b8ff985002309f79152d2be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/6919915246ce5f06b187d69825f70389/24c3da198618367ae37193cc68738bd4b21ce5be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/5b97ca415943ca89f04b0103bfeb0e91/939a0a381f30e924ff5c70200a086e061c95f7be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/06fac7acdc9c9f2a28e8550361077ef7/13d6c9f81a4c510fa03c0e0b2659252dd52aa5be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/98ad5977e3ce525e7193cd780f1dfb9b/a241f739b6003af3b2423071732ac65c1138b6be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/8254db49509d0f71c5f0225244e92d71/44302ef431adcbefe9cc9217eaaf2edda2cc9fbe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/5ff30392b09c087c41ecf3d88c795441/a2430d2eb9389b50ff070c43c335e5dde6116ebe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/37523cea2af2096ddbfbef8d42102b59/0db79e315c6034a8961a54908d134954082376be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c12d9459d1b614f61241987fa70e8ccd/f39beb3d70cf3bc773f621fd9700baa1cc112a44.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/c8b9cab2f426935815d10fcaebed7128/1923e9134954092310be8f6fd458d109b2de495b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d70c2735b14f47b7166df22b66822a7a/a768a08ba61ea8d320409b15d10a304e241f58d0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/440013fd108515cbc6aec8382725d9a0/c6f4f2160924ab189cc00d2673fae6cd7a890b5b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/b3e4851dd71b6dd412cb88597e5c7a5f/f39beb3d70cf3bc773d721fd9700baa1cc112a5b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/fb75d74910405838c2d85629a4fd0a2b/0fc26dc2d562853556373e30d6ef76c6a6ef635b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/98d1fa830f243ffda812ce47597c72eb/4da1ea95d143ad4bc9f8aad1c4025aafa50f065b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d9ac4f96cd6c4405ed7c0ffcb93a9f19/5e1247380cd79123012f7865eb345982b3b78063.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e2b3e13d42cc4e50293203497e848c3e/16b4edfc1e178a8297ea93b1b003738da877e864.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/095ee3acc602143f35d8888afdbbe46c/375e5ed98d1001e99eebf81efe0e7bec55e7975b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/0d904b47d0055947f7d654ceabdd8ae9/ec62d536afc379312fbe6a38adc4b74542a9115b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/858491c76fbf1a14cd472d5f4cbccc44/375e5ed98d1001e99ef3f81efe0e7bec55e79763.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/611192150e7ae9f7c7ac52c636da227e/0fc26dc2d5628535562f3e30d6ef76c6a6ef6363.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zzf111| + 1||
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 20853#       发表于 2025-6-20 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970967&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-6-20 12:10</a>
+
+同人作还想上天了是吗，敢解决直接扔到铁盖一桌了</blockquote>
+又是元祖又是爱马仕又是红勇士，啊不，红高达。
+
+我已经做好了鹤卷哥哥膜上头了以外屁都不会的心理准备
+
+*****
+
+####  中野梓  
+##### 20854#       发表于 2025-6-20 12:24
+
+<blockquote>9β 发表于 2025-6-14 15:32
+可选项有很多呢，甚至很大概率是完美吉翁号GQ，一堆经典机体现代化了，很难忍住不把他现代化吧？
+
+——  ...</blockquote>
+看完了，果然我猜的没错，还得是夏亚专用红勇士
+

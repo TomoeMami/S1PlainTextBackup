@@ -3131,3 +3131,15 @@ rb+←
 
 星战绝地系列也有搜地图开箱子出皮肤，出来的全都是换色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 3226#       发表于 2025-6-20 12:16
+
+他这个剧情本来坑挖得很大，分成好几波势力，母主、先知、对先知不满的地下组织、阿尔法、加上主角团以及一般市民，里面完全可以写很多故事，结果连作者自己都承认故事讲不好<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我觉得续作应该控制每个区域的大小来控制节奏，或者水平高一点在区域中插入更多剧情主线变化，现在是一钻主线图满脑子想的是收集和步步为营，不知不觉好几个小时去掉了，为了完成度还要再回来好几次，打到中期就突然在想我是谁我在哪我到这里来干啥<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+续作还希望加载具，加基于无人机解锁的更多特殊动作能力（临时站位？悬飞？遥控开按钮？弹射？），开发多个武器种类的成本可能太高，那起码可以把武器特效加进来增加收集乐趣（热/酸/电/冻这些），加个室内地图（都啥科技了还不能用扫描自动拼接地图吗），其他的还没想好，因为我昨天也只打到出矩阵<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
