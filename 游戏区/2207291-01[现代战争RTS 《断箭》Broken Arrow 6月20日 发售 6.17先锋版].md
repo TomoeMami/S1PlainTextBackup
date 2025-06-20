@@ -924,3 +924,14 @@ pve不知道，pvp有战术核，一千块的一键清理大师
 
 战斗蛙人在水里走路也是有点难蚌
 
+
+*****
+
+####  半分宅  
+##### 67#       发表于 2025-6-21 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969474&amp;ptid=2207291" target="_blank">nbwjh0630 发表于 2025-6-19 20:51</a>
+
+载具比起warno已经是比较耐干的了，步兵感觉脆也是因为被集火或者是没有掩体 ...</blockquote>
+载具本体比WARNO硬，但是WARNO的低阶导弹一半都会打飞、断箭的导弹飞行速度快且命中率极高，加上战场宽度的影响，导致载具在战场上的实际生存时间还是WARNO更长。
+
