@@ -43119,3 +43119,13 @@ Rororororo桑，谢谢。  
 五月十九号的样子?咩啊lol云顶回那里（
 那回挺有节目效果的
 
+
+*****
+
+####  术士q  
+##### 18791#       发表于 2025-6-21 03:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974809&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2025-6-21 03:19</a>
+每天都能哈气也是厉害了</blockquote>
+家访一下这人往下翻可以看见一些有意思的对比，这人似乎是逮着谁都喷的那种人，说的话也有些逆天，然后4.29喷日向maru，后面就突然开始喷咩，明明之前和lol相关的一条都没有，有的只有那种怨气很重的推文<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
