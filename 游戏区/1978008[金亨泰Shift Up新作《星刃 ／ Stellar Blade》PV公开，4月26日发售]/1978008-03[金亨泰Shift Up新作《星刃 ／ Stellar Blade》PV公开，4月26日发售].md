@@ -3450,3 +3450,13 @@ PC版拿完罐子就打不动了，
 
 这个射击关卡蠢啊，我是来玩美少女砍砍砍的，搞个死亡空间折磨我干嘛
 
+
+*****
+
+####  Schwarzess  
+##### 3255#       发表于 2025-6-21 06:17
+
+其实我看玩家截图和官方截图，体感上喜欢镶钻发卡斜刘海那个发型的人最多。<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
