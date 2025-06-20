@@ -2619,3 +2619,15 @@ gqux效应，昨日dl榜前三全是byd
 马球不就是上好学校课后要参加升学补习班的路边jk。
 尼安就是便利店打工的东南亚人。
 
+
+*****
+
+####  我聞如是  
+##### 20932#       发表于 2025-6-20 17:43
+
+尸丁丁起手就是闹钟为什么这么坏啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是真的想不通他圖個啥
+
+證明比瑪秋喵安還要腦衝不顧後果的人在現實中存在嗎？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
