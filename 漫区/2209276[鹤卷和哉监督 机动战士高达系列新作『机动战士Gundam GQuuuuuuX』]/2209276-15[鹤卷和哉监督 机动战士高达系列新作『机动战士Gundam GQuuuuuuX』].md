@@ -2770,3 +2770,54 @@ gqux效应，昨日dl榜前三全是byd
 
 那個計劃書的比例圖沒玫瑰嗎？
 
+
+*****
+
+####  ryanghj  
+##### 20944#       发表于 2025-6-20 19:17
+
+其实还有一点就是玫瑰在海底的时候还没那么大
+
+<img src="https://img.stage1st.com/forum/202506/20/191611ssr00a5oxc60pcjq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:16 上传
+
+但是到了尤玛恩托里面就变得巨大无比
+
+<img src="https://img.stage1st.com/forum/202506/20/191647mxz17lz73eqe4v1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/191636hu3n8e1x3buse1yz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:16 上传
+
+另外就是玫瑰的推进喷管和正史也不一样
+
+<img src="https://img.stage1st.com/forum/202506/20/191731ypaflwyfyxutypyq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:17 上传
+
+*****
+
+####  ryanghj  
+##### 20945#       发表于 2025-6-20 19:20
+
+所以喵安最后说玛秋不去见的人是拉拉？妈妈？
+
