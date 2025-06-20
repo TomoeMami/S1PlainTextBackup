@@ -3153,3 +3153,11 @@ rb+←
 星战绝地系列也有搜地图开箱子出皮肤，出来的全都是换色</blockquote>
 绝地做得挺用心的了，本地化翻译高剑星十条街。可惜看到二姐摘了头套就萎了
 
+
+*****
+
+####  雷攻姛人  
+##### 3228#       发表于 2025-6-20 14:34
+
+说明游戏有没有动力玩，奖励好不好是重要因素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
