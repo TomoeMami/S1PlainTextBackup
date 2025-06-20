@@ -3003,3 +3003,32 @@ rb+←
 沙漠另一个高楼跳跳乐躲激光拿易拉罐的真是神了，死一次要跑一大圈重新跳，还一大片流沙 ...</blockquote>
 去打支线亚巴顿路上的那里？
 
+
+*****
+
+####  洛克萨斯  
+##### 3213#       发表于 2025-6-20 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969836&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-20 09:43</a>
+
+去打支线亚巴顿路上的那里？</blockquote>
+对，到独木桥之前那个平台挂掉的话要绕一大圈
+
+*****
+
+####  袄_偶滴小乔  
+##### 3214#       发表于 2025-6-20 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969872&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-20 09:50</a>
+对，到独木桥之前那个平台挂掉的话要绕一大圈</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">绕圈我知道，但是应该没流沙吧，而且这这里的激光不是很简单，一段加闪避就过去了
+
+*****
+
+####  Andariel  
+##### 3215#       发表于 2025-6-20 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969872&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-20 09:50</a>
+对，到独木桥之前那个平台挂掉的话要绕一大圈</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得走一半能开一个吊索的捷径的，下面是个黄色公交车，你找找
+

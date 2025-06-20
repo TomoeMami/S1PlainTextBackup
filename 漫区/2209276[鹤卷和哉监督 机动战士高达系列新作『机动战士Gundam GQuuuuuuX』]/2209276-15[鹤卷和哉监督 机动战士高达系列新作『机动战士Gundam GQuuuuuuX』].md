@@ -1039,3 +1039,40 @@ UC世界线×
 内衣设计</blockquote>
 这是哪本设定集国内场刊好像没这页啊
 
+
+*****
+
+####  wpcc  
+##### 20796#       发表于 2025-6-20 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969833&amp;ptid=2209276" target="_blank">kk霖洞九 发表于 2025-6-20 09:43</a>
+这是哪本设定集国内场刊好像没这页啊</blockquote>
+新书 日本看的
+
+
+*****
+
+####  灵魂收割机  
+##### 20797#       发表于 2025-6-20 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969833&amp;ptid=2209276" target="_blank">kk霖洞九 发表于 2025-6-20 09:43</a>
+
+这是哪本设定集国内场刊好像没这页啊</blockquote>
+日本今天开始重映电影，应该是为了冲35亿。这是新的特典设定集的图。
+
+*****
+
+####  ヒトニナル  
+##### 20798#       发表于 2025-6-20 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛秋穿有钢圈的喵安穿无钢圈的，真拼啊玛秋
+
+*****
+
+####  kk霖洞九  
+##### 20799#       发表于 2025-6-20 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969878&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-6-20 09:51</a>
+日本今天开始重映电影，应该是为了冲35亿。这是新的特典设定集的图。</blockquote>
+重映真的会有凯子再刷吗
+
