@@ -2944,3 +2944,23 @@ Mark一下等週二這帖爆炸</blockquote>
 
 透的还有紫婆和鸭子的两张分镜稿
 
+
+*****
+
+####  赤黑的假面  
+##### 20957#       发表于 2025-6-20 21:42
+
+等下周二就能盖棺了
+
+*****
+
+####  wasssf  
+##### 20958#       发表于 2025-6-20 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973437&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 19:43</a>
+
+倒数第二集都来byt了
+
+最后一集不来个めぐりあい说不过去了吧</blockquote>
+不是beginning吗
+
