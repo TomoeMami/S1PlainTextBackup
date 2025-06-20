@@ -2293,3 +2293,38 @@ GQUX+哈罗是骡子的展开吗</blockquote>
 
 整段會是瑪秋走幾步，回頭，回答喵安的問題
 
+
+*****
+
+####  ryanghj  
+##### 20899#       发表于 2025-6-20 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972137&amp;ptid=2209276" target="_blank">patema 发表于 2025-6-20 15:50</a>
+
+其实没有，艾美号原设就有80米级别的全高。反而应该是上面的高达画大了</blockquote>
+艾尔美斯主体是50m级别的，80m是把尾巴天线算上了，gq里面至少是百米级别的
+
+
+*****
+
+####  ryanghj  
+##### 20900#       发表于 2025-6-20 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972142&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-20 15:51</a>
+
+我覺得底下被截掉的應該是瑪秋特寫，不是牢修
+
+整段會是瑪秋走幾步，回頭，回答喵安的問題 ...</blockquote>
+确实，属于还差一点结局的地方
+
+一共440卡，最后是432卡
+
+*****
+
+####  白色池塘  
+##### 20901#       发表于 2025-6-20 16:06
+
+<blockquote>千恋万花 发表于 2025-6-20 13:44
+所以 ED 画面靠窗桌子中间这个确定是（姬）柊了</blockquote>
+这ED画面真的很有趣 藏了无数原片的暗示
+

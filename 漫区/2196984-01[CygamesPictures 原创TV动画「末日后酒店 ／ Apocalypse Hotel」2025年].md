@@ -7063,3 +7063,26 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 废土又不够废土，不如像兽娘动物园一样不要具体描写时间
 
+
+*****
+
+####  sauron.j  
+##### 600#       发表于 2025-6-20 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971525&amp;ptid=2196984" target="_blank">与天争锋_LZ 发表于 2025-6-20 14:02</a>
+
+虽然这集观感不错，但是感觉没到神回的级别，可能是因为这种末日后独自游览遗迹的底子本来就很容易出神回所 ...</blockquote>
+大部分外星人应该就是将其当成汽车旅馆一样的歇脚地
+
+
+*****
+
+####  KDConan  
+##### 601#       发表于 2025-6-20 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971517&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-6-20 14:00</a>
+第一次看到庆祝B站动画排名第一的。</blockquote>
+一千万播放也没涨多少呀，怎么排的<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
