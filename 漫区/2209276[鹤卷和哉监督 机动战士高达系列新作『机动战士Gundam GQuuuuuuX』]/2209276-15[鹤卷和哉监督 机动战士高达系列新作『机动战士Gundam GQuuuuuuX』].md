@@ -2328,3 +2328,15 @@ GQUX+哈罗是骡子的展开吗</blockquote>
 所以 ED 画面靠窗桌子中间这个确定是（姬）柊了</blockquote>
 这ED画面真的很有趣 藏了无数原片的暗示
 
+
+*****
+
+####  ryanghj  
+##### 20902#       发表于 2025-6-20 16:13
+
+我又品了一下台词，喵安说的是：“你都已经来过地球了，没有其他想去的地方了吧？”
+
+仔细想想，既不是宇宙也不是地球的修司的地方
+
+不会真的跨界寻夫吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
