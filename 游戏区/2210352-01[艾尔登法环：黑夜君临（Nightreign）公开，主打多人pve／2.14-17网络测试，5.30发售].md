@@ -9672,3 +9672,12 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 拿了个雷抗，用昨天开始练的无赖第三遍过了，双持跳劈+辉剑正是为王的理由
 
+
+*****
+
+####  jacket  
+##### 944#       发表于 2025-6-20 13:36
+
+[https://www.pixiv.net/artworks/131563990](https://www.pixiv.net/artworks/131563990)
+<img src="https://tupian.li/images/2025/06/20/6854f2d97c89c.jpg" referrerpolicy="no-referrer">
+
