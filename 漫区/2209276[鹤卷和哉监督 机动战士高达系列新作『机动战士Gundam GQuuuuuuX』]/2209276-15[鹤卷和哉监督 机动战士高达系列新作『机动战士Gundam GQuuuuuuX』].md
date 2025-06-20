@@ -2340,3 +2340,45 @@ GQUX+哈罗是骡子的展开吗</blockquote>
 
 不会真的跨界寻夫吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 20903#       发表于 2025-6-20 16:19
+
+答案是机战，从玛秋喵安的视角看原uc世界感觉会很有趣
+
+
+*****
+
+####  岸波白野  
+##### 20904#       发表于 2025-6-20 16:23
+
+<blockquote>好想看Mujica啊 发表于 2025-6-20 16:19
+答案是机战，从玛秋喵安的视角看原uc世界感觉会很有趣</blockquote>
+保持通缉犯身份倒是挺好搞作品剧情完结后参战随便往其他作品哪个势力一混的，卡拉老登你们真是为代孙操碎了心啊
+
+*****
+
+####  大十字紅朔  
+##### 20905#       发表于 2025-6-20 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965132&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-19 11:57</a>
+
+吉翁号出力是山楂饼好几倍，z的卡普兰纸面数据比牛高达都强。太纠结纸面数据就会闹出一堆笑话 ...</blockquote>
+也不一定吧
+
+阿姆罗碰到吉恩号的反应是“这人好强，难道不是夏亚？”
+
+对这时候的阿姆罗来说夏亚就是个杂鱼，最后能和阿姆罗勉强打平，吉恩号的性能应该是占了很大比重的？
+
+*****
+
+####  ryanghj  
+##### 20906#       发表于 2025-6-20 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972308&amp;ptid=2209276" target="_blank">好想看Mujica啊 发表于 2025-6-20 16:19</a>
+
+答案是机战，从玛秋喵安的视角看原uc世界感觉会很有趣</blockquote>
+直接穿越机战世界是吧
+
