@@ -3082,3 +3082,22 @@ Mark一下等週二這帖爆炸</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sliurus  
+##### 20967#       发表于 2025-6-20 23:37
+
+说实话，第十和第十一集都是直播看完感觉不好，但是重看又莫名气消了，甚至把一些喜欢的片段反复重看，比如围剿大扎姆和zeknova炮。我对十二集的要求只要直播看完感觉不错就行<img src="https://static.stage1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+我挺喜欢这种上下联系后才理清人物的写法，感觉人物会更生动。其实这样更适合补番，追番很容易忘掉一些相呼应的地方
+
+*****
+
+####  ヒトニナル  
+##### 20968#       发表于 2025-6-20 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974394&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-20 23:20</a>
+所以GQ和廣東小精靈一樣撲面用精神攻擊啊</blockquote>
+感觉GQ跟超巨元祖对比起来不太像美洲大蠊而是德国小蠊，精神攻击力还是不太够的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然对我来说都是暴击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
