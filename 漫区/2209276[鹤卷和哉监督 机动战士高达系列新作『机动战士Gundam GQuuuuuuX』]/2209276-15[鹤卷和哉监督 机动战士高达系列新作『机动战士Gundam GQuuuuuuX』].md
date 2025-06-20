@@ -2198,3 +2198,26 @@ GQUX+哈罗是骡子的展开吗
 
 二女共事一夫，如铁血故事。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 20891#       发表于 2025-6-20 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971847&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 15:02</a>
+
+二女共事一夫，如铁血故事。</blockquote>
+我一直在意MF那个翅膀结局为什么剧场版被改了，难道是被骂了？
+
+
+*****
+
+####  RE㐅ia  
+##### 20892#       发表于 2025-6-20 15:15
+
+<blockquote>ryanghj 发表于 2025-6-20 14:58
+暗示很明显啦，最后三人团聚
+
+现在就看牢修是什么身份了</blockquote>
+最后有修斯吗？
+
