@@ -3113,3 +3113,21 @@ rb+←
 
 我很震惊，这b游戏是我多年以来第一个任务全清的游戏，并不是这游戏的支线做的有多好，相比天国拯救这支线简直和网游没什么区别的通马桶全是垃圾时间，而是搜集服装这个原始驱动驱使我一直做下去！这么好用的驱动力为什么其他游戏就不学习一下呢？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3224#       发表于 2025-6-20 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970626&amp;ptid=1978008" target="_blank">双花红棍 发表于 2025-6-20 11:20</a>
+
+我很震惊，这b游戏是我多年以来第一个任务全清的游戏，并不是这游戏的支线做的有多好，相比天国拯救这支线 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">90%的其他游戏连服装都没有 怎么学
+
+*****
+
+####  卡拉德利姆  
+##### 3225#       发表于 2025-6-20 11:31
+
+星战绝地系列也有搜地图开箱子出皮肤，出来的全都是换色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
