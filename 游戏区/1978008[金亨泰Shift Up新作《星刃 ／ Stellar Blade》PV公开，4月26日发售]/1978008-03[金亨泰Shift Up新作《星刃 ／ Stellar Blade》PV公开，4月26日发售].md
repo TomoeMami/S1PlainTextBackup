@@ -3161,3 +3161,13 @@ rb+←
 
 说明游戏有没有动力玩，奖励好不好是重要因素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3229#       发表于 2025-6-20 14:41
+
+装备驱动型游戏(<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
