@@ -1949,3 +1949,52 @@ GQ機魂那段有待商榷
 
 这个被通缉的可能是番茄也可能是某个人嘛
 
+
+*****
+
+####  西瓜夜行  
+##### 20867#       发表于 2025-6-20 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970223&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-20 10:37</a></blockquote>
+(ノﾟ∀ﾟ)ノ
+
+感谢搬运！！！
+
+*****
+
+####  西瓜夜行  
+##### 20868#       发表于 2025-6-20 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971044&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-6-20 12:21</a>
+
+https://tieba.baidu.com/p/9806512934
+
+https://tieba.baidu.com/p/9806543264</blockquote>
+(ノﾟ∀ﾟ)ノ
+
+感谢搬运！！！
+
+
+*****
+
+####  千恋万花  
+##### 20869#       发表于 2025-6-20 13:44
+
+所以 ED 画面靠窗桌子中间这个确认是（姬）柊了
+
+<img src="https://img.stage1st.com/forum/202506/20/134348v71j7ztts3ywf3fw.jpg" referrerpolicy="no-referrer">
+
+<strong>shot0001.jpg</strong> (471.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 13:43 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/134117d3oty3d7yd8uyggb.jpg" referrerpolicy="no-referrer">
+
+<strong>柊苔玉.jpg</strong> (136.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 13:41 上传
+
