@@ -2861,3 +2861,28 @@ https://x.com/F_M_U/status/1935346529587568938
 Mark一下等週二這帖爆炸</blockquote>
 发过了
 
+
+*****
+
+####  猪突猛进R  
+##### 20949#       发表于 2025-6-20 19:37
+
+ 本帖最后由 猪突猛进R 于 2025-6-20 19:42 编辑 
+
+这样就不用怀疑元祖的战斗力了，之前有人还质疑只带光剑的78-2有啥作为，还好不是全武装过来的，那边来的光枪和筒子，威力想想都哈人。
+
+更恐怖的是在那一边，曾经发生过数千台百米级的巨人大战，咋听起来像是传说巨神伊甸的设定呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+20706楼的图：
+<img src="https://img.stage1st.com/forum/202506/20/005057t977yv1d2vhzdqnw.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 20950#       发表于 2025-6-20 19:43
+
+倒数第二集都来byt了
+
+最后一集不来个めぐりあい说不过去了吧
+
