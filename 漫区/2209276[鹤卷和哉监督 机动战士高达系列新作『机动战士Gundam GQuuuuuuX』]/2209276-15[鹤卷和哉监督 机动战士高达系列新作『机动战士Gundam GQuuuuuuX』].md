@@ -2006,3 +2006,11 @@ https://tieba.baidu.com/p/9806543264</blockquote>
 
 突然發現番茄(原髮色)和拉拉一樣是藍毛綠眼
 
+
+*****
+
+####  云野十五  
+##### 20871#       发表于 2025-6-20 14:04
+
+我怎么记得水魔的结尾也是情报哥小透之后，其他渠道大透了一堆<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

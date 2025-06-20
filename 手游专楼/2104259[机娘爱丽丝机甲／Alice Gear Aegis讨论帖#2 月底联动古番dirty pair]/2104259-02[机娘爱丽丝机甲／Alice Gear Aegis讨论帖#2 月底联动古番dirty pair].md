@@ -325,3 +325,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然你游角色设计是蛮朴素的（
 
+
+*****
+
+####  冰风血羽  
+##### 1502#       发表于 2025-6-20 14:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被说中了，还真是
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

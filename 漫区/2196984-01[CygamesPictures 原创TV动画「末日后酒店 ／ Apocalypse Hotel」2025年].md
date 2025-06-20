@@ -7040,3 +7040,26 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 话说弟弟真做陶器去了？所以上一集到底什么情况，没问题吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 598#       发表于 2025-6-20 14:00
+
+<img src="https://p.sda1.dev/25/d151b1cac35a7f8f4a99671d675b77fe/77cdddc8f262a54716a7d5797539525f.png" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">第一次看到庆祝B站动画排名第一的。
+
+
+*****
+
+####  与天争锋_LZ  
+##### 599#       发表于 2025-6-20 14:02
+
+虽然这集观感不错，但是感觉没到神回的级别，可能是因为这种末日后独自游览遗迹的底子本来就很容易出神回所以把期待拉高了
+
+还有就是经常想吐槽的一点是时间虽然描述过了600多年，但是依然有极其大量的完好人造物
+
+完全不破的衣服，过了400年变化不大的废旧酒店机器人，成群的高楼大厦，屹立的天空塔
+
+废土又不够废土，不如像兽娘动物园一样不要具体描写时间
+
