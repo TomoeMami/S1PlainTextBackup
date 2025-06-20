@@ -1464,3 +1464,41 @@ khara这保密是怎么回事啊</blockquote>
 
 这被查出来的话泄露人最坏的情况要吃官司的
 
+
+*****
+
+####  Saber琪  
+##### 20824#       发表于 2025-6-20 10:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20825#       发表于 2025-6-20 11:01
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤40万人突破◢ フォロワー数が40万人を突破しました！ こんなに嬉しいことはない…… #GQuuuuuuX #ジークアクス [url]https://t.co/S4rmFTinDO](https://x.com/G_GQuuuuuuX/status/1935895389791830234)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/20/110057k2iap9otwpkytkas.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 11:00 上传
+
+
+*****
+
+####  Sliurus  
+##### 20826#       发表于 2025-6-20 11:04
+
+终于熬到40w了啊
+
+*****
+
+####  洛克萨斯  
+##### 20827#       发表于 2025-6-20 11:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gqx算不算高达tv历史上自己作品里最没有统治力的主角机体，都快大结局了战果好差啊
+
