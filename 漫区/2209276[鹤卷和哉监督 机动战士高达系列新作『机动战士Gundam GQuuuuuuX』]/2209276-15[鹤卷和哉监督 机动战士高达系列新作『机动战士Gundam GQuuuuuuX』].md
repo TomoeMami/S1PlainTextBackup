@@ -3060,3 +3060,25 @@ Mark一下等週二這帖爆炸</blockquote>
 超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊</blockquote>
 所以GQ和廣東小精靈一樣撲面用精神攻擊啊
 
+
+*****
+
+####  remediosOlOOOO  
+##### 20965#       发表于 2025-6-20 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972277&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-20 16:13</a>
+
+我又品了一下台词，喵安说的是：“你都已经来过地球了，没有其他想去的地方了吧？”
+
+仔细想想，既不是宇宙 ...</blockquote>
+上一个跨界寻夫的还是隔壁亲戚家的露露子吧
+
+*****
+
+####  无念  
+##### 20966#       发表于 2025-6-20 23:35
+
+肯定是走机制啦，机战画面能有绿叔叔打首席的水平就算好了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
