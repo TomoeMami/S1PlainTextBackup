@@ -1909,3 +1909,33 @@ GQ機魂那段有待商榷
 
 就跟以前看爆米花大片，有个重大事故按钮剧情上必须按下但是大人都不适合按，就安排一个什么都不知道的小孩无意/碰巧按下去，明显能感觉到连编剧都在推卸责任的大人臭
 
+
+*****
+
+####  evestart  
+##### 20862#       发表于 2025-6-20 13:16
+
+所以，万代是不是又能借机出个GQUX版最终话的元祖模型？然后放PB里<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 20863#       发表于 2025-6-20 13:21
+
+为什么8话下的时候我就脑门过电，喵安和名冢太太紫婆这个广义妹系角色强关联就是要拿姥姥修那边某妹的同款免罪券，虽然大基不是福山润但我真觉得就是这个理
+
+
+*****
+
+####  ryanghj  
+##### 20864#       发表于 2025-6-20 13:22
+
+等等，不会是修司去接这个世界的拉拉了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 20865#       发表于 2025-6-20 13:25
+
+所以GQ拉拉还是没能等来她的梦中情人么？鸭不管在哪个宇宙都是丢人的家伙啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
