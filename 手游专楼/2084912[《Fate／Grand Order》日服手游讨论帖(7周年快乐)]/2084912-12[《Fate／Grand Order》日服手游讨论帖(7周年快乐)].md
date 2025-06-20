@@ -256,3 +256,42 @@
 水伊吹，20攻30魔放</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打完最高级的表示没这个必要了  根本不需要辅助（
 
+
+*****
+
+####  khxooo  
+##### 16913#       发表于 2025-6-20 17:38
+
+果然是海木桩<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16914#       发表于 2025-6-20 17:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">辣鸡游戏 all in 丽师傅2宝大翻车了  灵魂在哪！
+
+*****
+
+####  angelooo  
+##### 16915#       发表于 2025-6-20 17:53
+
+真·海木桩
+
+感觉xjbd都行
+
+*****
+
+####  希望之花  
+##### 16916#       发表于 2025-6-20 18:32
+
+这是哪门子的幽默设计<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/20/183226udqp1hfs06qyhf1q.jpg" referrerpolicy="no-referrer">
+
+<strong>com.opera.browser_20250620123156.jpg</strong> (190.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 18:32 上传
+
