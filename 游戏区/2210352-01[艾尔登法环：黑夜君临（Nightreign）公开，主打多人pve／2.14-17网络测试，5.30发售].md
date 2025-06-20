@@ -9631,3 +9631,16 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 发现大嘴吃伤龙buff，选雪山最后白拿15%增伤更好打了，伤害才是为王的道理
 
+
+*****
+
+####  hirro  
+##### 940#       发表于 2025-6-20 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968915&amp;ptid=2210352" target="_blank">火红之眼 发表于 2025-6-20 00:51</a>
+
+被虐了一晚，然后看下朋友带的监牢buff攻击力高一大截，老老实实全员带上监牢遗物就过了，第二把开始用王证 ...</blockquote>
+我也是这个思路，但昨晚野队3把都没过，有两把连续排到同一个铁眼2人组，有一个人第二天稳定挂机，绷不住了
+
+基本都是14-15级，但打掉BOSS半条血就无了
+
