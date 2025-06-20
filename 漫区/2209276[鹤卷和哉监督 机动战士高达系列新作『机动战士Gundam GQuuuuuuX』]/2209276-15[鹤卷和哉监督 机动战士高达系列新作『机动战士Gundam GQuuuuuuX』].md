@@ -2671,3 +2671,13 @@ gqux效应，昨日dl榜前三全是byd
 
 以上内容来自《闪光的哈萨维》，原作是小说，动画是剧场版离拍完还早。
 
+
+*****
+
+####  希望之异热同心  
+##### 20935#       发表于 2025-6-20 18:44
+
+只能说鹤卷还是没骗人，就是不足帧分析谁他妈看得出来啊！<img src="https://p.sda1.dev/25/e34030f76181c1d40d020eeeaa1f65b4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
