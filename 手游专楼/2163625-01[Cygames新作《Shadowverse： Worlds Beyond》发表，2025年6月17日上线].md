@@ -3640,3 +3640,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 乐园里操作跟小人一样唐的玩家好多，观战能看到逆天唐人互殴也算是见过世面了
 
+
+*****
+
+####  duraa  
+##### 229#       发表于 2025-6-20 11:13
+
+听说开始清算了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那十包应该快了
+
