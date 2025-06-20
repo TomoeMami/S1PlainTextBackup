@@ -2925,3 +2925,23 @@ rb+←
 
 但是方便跑图收集这个没问题
 
+
+*****
+
+####  双花红棍  
+##### 3206#       发表于 2025-6-20 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969075&amp;ptid=1978008" target="_blank">faxiajin 发表于 2025-6-20 02:15</a>
+尼玛的总算过了，算上昨天的总共打了四五个小时吧，感觉比米塔恩都难，米塔恩我还能用盾戳逃课，这位真就 ...</blockquote>
+打这玩意要点运气，要在她没把刀拔出来时压起身
+
+*****
+
+####  黒長直姫  
+##### 3207#       发表于 2025-6-20 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969075&amp;ptid=1978008" target="_blank">faxiajin 发表于 2025-6-20 02:15</a>
+
+尼玛的总算过了，算上昨天的总共打了四五个小时吧，感觉比米塔恩都难，米塔恩我还能用盾戳逃课，这位真就 ...</blockquote>
+不自限的话红莲有沙漠推完的数值就已经是一般难度了，如果推完底层拿了双脊椎那已经是有手就行了
+
