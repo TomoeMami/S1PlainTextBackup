@@ -3648,3 +3648,22 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 听说开始清算了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那十包应该快了
 
+
+*****
+
+####  凉良  
+##### 230#       发表于 2025-6-20 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970578&amp;ptid=2163625" target="_blank">duraa 发表于 2025-6-20 11:13</a>
+
+听说开始清算了那十包应该快了</blockquote>
+“超凡世界”上线至今，出现了**小小的各种问题，没能让牌友们安心打牌，专员感到十分愧疚和抱歉。
+
+今日内会向全服玩家发放【卡包兑换券*10】以表歉意。
+
+牌友们反馈的问题我们会持续认真记录和跟进处理，欢迎大家继续给我们提供宝贵意见。
+
+最后再次感谢大家，感谢大家对《影之诗》国服的支持。
+
+十包来了
+
