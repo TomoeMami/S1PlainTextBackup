@@ -2014,3 +2014,90 @@ https://tieba.baidu.com/p/9806543264</blockquote>
 
 我怎么记得水魔的结尾也是情报哥小透之后，其他渠道大透了一堆<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanlm  
+##### 20872#       发表于 2025-6-20 14:06
+
+首席哥到底是啥水平，之前一直吃瘪，现在和绿叔叔打个55开，战力有点崩坏啊
+
+*****
+
+####  洛克萨斯  
+##### 20873#       发表于 2025-6-20 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971544&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-20 14:06</a>
+
+首席哥到底是啥水平，之前一直吃瘪，现在和绿叔叔打个55开，战力有点崩坏啊 ...</blockquote>
+nt能力不够开不好gqx，开强人这种不吃nt性能的就显示出首席水平了
+
+*****
+
+####  shinoverse  
+##### 20874#       发表于 2025-6-20 14:10
+
+11话才察觉到自己被一个无主线无主题的恶搞作品糊弄了三个月是不是有点晚了？
+
+我还在没拿到任何赠品的情况下花钱去看了剧场版
+
+
+*****
+
+####  conanlm  
+##### 20875#       发表于 2025-6-20 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971566&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-20 14:10</a>
+
+11话才察觉到自己被一个无主线无主题的恶搞作品糊弄了三个月是不是有点晚了？
+
+我还在没拿到任何赠品的情况 ...</blockquote>
+说明人家制作的很成功啊
+
+*****
+
+####  云野十五  
+##### 20876#       发表于 2025-6-20 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971544&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-20 14:06</a>
+
+首席哥到底是啥水平，之前一直吃瘪，现在和绿叔叔打个55开，战力有点崩坏啊 ...</blockquote>
+绿叔叔放水+拉拉群体nt强化buff，编剧的大手罢了
+
+*****
+
+####  ryanghj  
+##### 20877#       发表于 2025-6-20 14:14
+
+本质幻想嘉年华
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  盐盐盐盐盐  
+##### 20878#       发表于 2025-6-20 14:15
+
+夏利亚纯纯放水吧，打着玩儿的
+
+*****
+
+####  大十字紅朔  
+##### 20879#       发表于 2025-6-20 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67971239&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-6-20 12:58</a>
+
+也不是有什么恶意，就是把这种无自觉参与战争犯下重大过错感到不爽
+
+就跟以前看爆米花大片，有个重大事故按 ...</blockquote>
+我之前就说军人接命令打击军事目标有什么重大过错……又不是打民用设施
+
+中途拒绝继续执行任务还给了上司一枪才是重大过错
+
+*****
+
+####  岸波白野  
+##### 20880#       发表于 2025-6-20 14:17
+
+绿叔叔增幅后就主锁紫婆了吧主打对首席进行一个放置
+
