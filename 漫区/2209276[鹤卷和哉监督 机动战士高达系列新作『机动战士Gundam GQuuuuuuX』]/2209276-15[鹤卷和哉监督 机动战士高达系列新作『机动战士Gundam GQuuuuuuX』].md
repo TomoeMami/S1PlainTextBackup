@@ -1736,3 +1736,24 @@ X 上的 中村豪志：“らくがきプラモシミュレーション #ジー
 
 最大的感受是以后骡叔叔在某些方面大概不能笑话鸭子了
 
+
+*****
+
+####  创始’’’天翔  
+##### 20850#       发表于 2025-6-20 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970557&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-20 11:11</a>
+
+但是麻球要是真把骡鸭拉这坨历史遗留问题包好了，那是做到了前辈们都做不到的事 ...</blockquote>
+同人作还想上天了是吗，敢解决直接扔到铁盖一桌了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 20851#       发表于 2025-6-20 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67970950&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-6-20 12:07</a>
+
+最大的感受是以后骡叔叔在某些方面大概不能笑话鸭子了</blockquote>
+搞笑动画不算的，不然得把高达桑的风评算进鸭子那（
+
