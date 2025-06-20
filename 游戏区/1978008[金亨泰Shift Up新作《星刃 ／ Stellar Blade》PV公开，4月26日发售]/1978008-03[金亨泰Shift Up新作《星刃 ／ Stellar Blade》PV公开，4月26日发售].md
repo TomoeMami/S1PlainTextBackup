@@ -3274,3 +3274,17 @@ rb+←
 
 这玩意儿游戏内还没有统计，看不了哪些没拿.....放弃了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3239#       发表于 2025-6-20 20:21
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-6-20 20:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973056&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-20 18:19</a>
+
+衣服别拆了，真正的时装都是一体设计的，哪有上下组合的，倒是那种高自由度组合的下场必定是各种部位干涉规 ...</blockquote>
+开放捏脸纯属给别人做嫁衣(再说MOD早晚会跟上)，默认开放，你捏个2B我捏个碍事梨，谁还认识你Eve啊，那不变废土仁王2了，再说那个为了不穿模做了一年的马尾不白做了XD
+
+作为系列首作，默认粗眉毛马尾齐刘海Eve绝对是正确的决定，这张脸也的确是整个游戏里最耐看的，且完美适配所有非联动服装，这方面绝对是深思熟虑过的，说是本游戏核心内容都不为过<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">现在一提剑星大家脑子里肯定会自动脑补出锅盖头青椒屁股，概念立起来了以后什么都好说。
+

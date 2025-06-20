@@ -408,3 +408,38 @@
 地阵营打天也亏点，更别说属性特攻一个都不中
 最新的狂阶卡在打木桩本上亏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16929#       发表于 2025-6-20 19:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一发十连直接连水花都没有
+
+*****
+
+####  都谷捻柏  
+##### 16930#       发表于 2025-6-20 20:07
+
+全是单体的话，枪阶最合适的打手没准是年初的比肖内？
+
+*****
+
+####  森兰丸  
+##### 16931#       发表于 2025-6-20 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973548&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-6-20 20:07</a>
+
+全是单体的话，枪阶最合适的打手没准是年初的比肖内？</blockquote>
+虽然没抽但试用的时候感觉还是比不上紫色老太婆的核弹啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 16932#       发表于 2025-6-20 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973373&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-6-20 19:29</a>
+
+不是，这莉莉丝一技能魅惑怎么一直上不上去</blockquote>
+130的精神耐性，差不多就是按着玩家的头，给我用汇呆<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
