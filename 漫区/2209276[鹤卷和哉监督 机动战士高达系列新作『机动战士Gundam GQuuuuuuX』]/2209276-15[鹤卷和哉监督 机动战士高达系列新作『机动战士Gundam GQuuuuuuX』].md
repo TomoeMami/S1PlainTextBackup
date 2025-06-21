@@ -4897,3 +4897,14 @@ yysy
  ...</blockquote>
 甚至不是电视剧，是宣传片，主角是麦克斯和米莉亚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 21058#       发表于 2025-6-21 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977505&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-21 04:18</a>
+
+甚至不是电视剧，是宣传片，主角是麦克斯和米莉亚</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">,都是军宣，想象成二次元版建国大业或者空天猎
+

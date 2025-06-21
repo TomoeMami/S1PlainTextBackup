@@ -3688,3 +3688,30 @@ PC版拿完罐子就打不动了，
 萌新沙漠逛完怒战半小时红莲 打不过 为什么剧情模式不给奖励</blockquote>
 说起来他这个挑战的剧情模式和普通模式有什么区别
 
+
+*****
+
+####  卡拉德利姆  
+##### 3280#       发表于 2025-6-21 20:26
+
+我对每一个不使用mod等手段完成钓鱼收集的玩家致以崇高的敬意
+
+
+*****
+
+####  alucardcz  
+##### 3281#       发表于 2025-6-21 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977406&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-21 19:59</a>
+
+说起来他这个挑战的剧情模式和普通模式有什么区别</blockquote>
+剧情模式闪避等动作都直接变成有提示的qte了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银色天空  
+##### 3282#       发表于 2025-6-21 20:35
+
+想打个双结局，但是打boss每失败一次都要再看一遍这个不能跳过的又臭又长过场<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">浪费时间
+
