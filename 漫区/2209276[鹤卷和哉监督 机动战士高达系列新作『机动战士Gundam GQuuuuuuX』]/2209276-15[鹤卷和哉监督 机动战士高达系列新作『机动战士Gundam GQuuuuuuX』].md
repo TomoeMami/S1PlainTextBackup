@@ -4425,3 +4425,33 @@ V-MAX，启动！
 马裤螺丝都是剧中剧这不是谣言吗……？（不过我也弄不清设定是什么了</blockquote>
 不是谣言，除了II都是后世拍的献礼片！可曾是7拍的，0是F拍的，都有记载<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 21014#       发表于 2025-6-21 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975860&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-21 12:44</a>
+
+马哭骡死不存在正史，所有作品都是从某个角度对当时事件的反映。
+
+所以吃书要灵活得多。</blockquote>
+真是要說，就是F91及之後的長谷川會如何算
+
+總感覺有點像型月的FATE線(不是月姬線)，FATE線中提到FSN的第4和第5次背景及大致劇情都是一樣，但當中細節就不同
+
+就算是獨角獸，因為出了動畫版關係，所以劇情正史也偏向動畫而不是小說，不肖子的電影版1也吃了不少劇情
+
+個人感覺，如果同一作品有不同媒體，那就動畫版優先，如果同時有TV或劇場版就以後出為正、之後才是原作小說，最後才漫畫，
+
+如0083的R漫畫版和原作實在差了太多了，根本沒可能當成正史，但用來挖坑也不錯
+
+只是the orgin又如何算好...
+
+*****
+
+####  Gysumitka  
+##### 21015#       发表于 2025-6-21 13:24
+
+巨大元祖都出现了，还有更爆的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

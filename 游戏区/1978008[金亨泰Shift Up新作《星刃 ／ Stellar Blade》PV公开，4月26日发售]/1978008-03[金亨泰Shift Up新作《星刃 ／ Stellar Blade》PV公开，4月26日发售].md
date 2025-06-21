@@ -3485,3 +3485,14 @@ PC版拿完罐子就打不动了，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这第1张图怎么藏了那么多任务。。。
 
+
+*****
+
+####  心灵的乳头  
+##### 3259#       发表于 2025-6-21 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974262&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-6-20 22:46</a>
+
+听说服装和啥的要每周目都要收齐？那维特币感觉完全不够啊，还在沙漠通马桶，但是维特币仅仅够买完情报商+ ...</blockquote>
+我是看b站上有推荐在废土的帮理发师找工具的垃圾场刷维特币的，从传送点出发，杀三个机械怪，砍十几个箱子，然后跑回传送点坐椅子刷新怪，正好是个环。我试过，效率还行吧<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
+
