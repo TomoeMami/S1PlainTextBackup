@@ -3812,3 +3812,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 卡组试了个遍，才发现原来氪500最大的提升是累充里的小糖人女主<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 小保底出了oqs没选，主战画得比卡面差太多了，看送的卡包能不能凑到大保底选个桃乐丝。2代这异画真不是一般人能氪的，没首充一个大保底就是2.5k<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lesword  
+##### 248#       发表于 2025-6-21 15:23
+
+小糖人女主国际服放在官网氪金通道的专属礼包里了。
+
