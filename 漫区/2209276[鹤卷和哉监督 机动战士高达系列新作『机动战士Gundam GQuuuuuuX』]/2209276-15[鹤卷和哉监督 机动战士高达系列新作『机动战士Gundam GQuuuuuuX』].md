@@ -4748,3 +4748,13 @@ GQ够人气出两个重新编排的剧场版吗
 但要论形象设计（性吸 ...</blockquote>
 番茄的身材和大量小表情到是有这个潜力，只不过名义上毕竟是高达，剧本里搞太多福利暗示似乎缺名头
 
+
+*****
+
+####  ryanghj  
+##### 21044#       发表于 2025-6-21 18:40
+
+这结局是什么FLCL和露露子的合体吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+另外gq世界看来的确是拉拉的梦了
+
