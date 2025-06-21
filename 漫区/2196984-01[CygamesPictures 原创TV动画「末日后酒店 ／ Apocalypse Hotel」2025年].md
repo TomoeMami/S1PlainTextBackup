@@ -7196,3 +7196,16 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 
 这集全程给我满满的生命力呀，从前两集的无厘头非人类感拉了回来。感觉是在最后一集前很好的铺垫。
 
+
+*****
+
+####  失忆的香槟  
+##### 611#       发表于 2025-6-21 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976209&amp;ptid=2196984" target="_blank">KDConan 发表于 2025-6-21 14:42</a>
+
+我觉得走远一点的话其他机器人和服务员也可以救救
+
+—— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v3.5 ...</blockquote>
+这下真成饥荒了，感谢大自然的馈赠<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
