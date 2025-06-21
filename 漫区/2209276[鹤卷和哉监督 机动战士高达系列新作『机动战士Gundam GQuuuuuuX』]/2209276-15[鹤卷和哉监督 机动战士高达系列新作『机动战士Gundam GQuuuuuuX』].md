@@ -4537,3 +4537,11 @@ V-MAX，启动！
 
 真搞出光头我就满分
 
+
+*****
+
+####  Gysumitka  
+##### 21024#       发表于 2025-6-21 15:04
+
+按贴吧说的有点太典了，鹤卷味饺子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
