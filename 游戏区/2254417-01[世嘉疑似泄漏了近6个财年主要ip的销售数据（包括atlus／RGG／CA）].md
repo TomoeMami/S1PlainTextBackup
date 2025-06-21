@@ -574,3 +574,11 @@ smt5的宣发也配和rpg.jp+天下第一p5人马制作坐一桌吗<img src="htt
 p5这个ip真的算卖疯了，估计前几作加起来都没有这一作多，也难怪atlus不想出p6 ...</blockquote>
 无论如何明年P系列三十周年,P5十周年也该把P6的PV和实机扔出来了<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 61#       发表于 2025-6-21 18:54
+
+明年已经是P4R了，P6还可以拖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

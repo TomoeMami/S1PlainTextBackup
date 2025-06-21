@@ -3579,3 +3579,29 @@ PC版拿完罐子就打不动了，
 之后就慢慢收集剩下的服装了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 好玩，爱玩，续作搞快点
 
+
+*****
+
+####  卡拉德利姆  
+##### 3269#       发表于 2025-6-21 18:58
+
+绿洲钓鱼点附近是真的没传送点还是我没找到？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 3270#       发表于 2025-6-21 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977114&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-21 18:58</a>
+
+绿洲钓鱼点附近是真的没传送点还是我没找到？</blockquote>
+沿着岸边逆时针走走？
+
+*****
+
+####  卡拉德利姆  
+##### 3271#       发表于 2025-6-21 19:03
+
+找到了…和刷出来的章鱼搏斗错过了…
+
