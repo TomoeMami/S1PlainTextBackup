@@ -3398,3 +3398,27 @@ pdf是什么鬼</blockquote>
 X 上的 フィンチ：“フリーダム正論マンinジークアクスの落書きhttps://t.co/afSpwrf2T5” / X</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  不会起名  
+##### 20977#       发表于 2025-6-21 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973016&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 18:09</a>
+
+有德本来打算退休后开一家名字叫“白色基地”的咖啡馆。
+
+联邦给他的最后一个任务是当监斩官，处刑对象是 ...</blockquote>
+也就是说被派去崩儿子之前他就想退休了？
+
+
+*****
+
+####  云野十五  
+##### 20978#       发表于 2025-6-21 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974334&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-20 23:03</a>
+
+超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊</blockquote>
+0079+进击的巨人=经典爆头
+
