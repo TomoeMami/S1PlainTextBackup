@@ -20,3 +20,13 @@
 <img src="https://files.catbox.moe/yq5ycc.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/nl8sgo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 1069#       发表于 2025-6-21 16:24
+
+话说这是第一个金杉弘子负责脚本单回？跟动画相关的履历好像只有没能成为魔法使的系构来着
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
