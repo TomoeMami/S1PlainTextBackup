@@ -3636,3 +3636,26 @@ OVA
 
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 20996#       发表于 2025-6-21 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975192&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-21 09:30</a>
+
+谣传是staff女王党多按头了呗。
+
+就河森办世博会都要靠江端替他画的这个状态。</blockquote>
+马裤螺丝都是剧中剧这不是谣言吗……？（不过我也弄不清设定是什么了
+
+*****
+
+####  大十字紅朔  
+##### 20997#       发表于 2025-6-21 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975563&amp;ptid=2209276" target="_blank">jackyhuang 发表于 2025-6-21 11:23</a>
+
+【『机动战士高达GQuuuuuuX』第十一话不为人知的彩蛋，用手枪开锁不合理？一起探寻苍之流星的去向-哔哩哔哩 ...</blockquote>
+V-MAX，启动！
+
