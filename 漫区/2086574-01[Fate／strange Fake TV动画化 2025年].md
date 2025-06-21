@@ -4168,3 +4168,13 @@ FGO那邊還爆料出他也是一個神經病。</blockquote>
 
 我估计也有Aniplex对Fate开始转移注意力的原因在。鬼灭无限城剧场版上映在即，而且鬼灭看势头还能吃很久，能大小通吃。所以只能挤牙膏
 
+
+*****
+
+####  KDConan  
+##### 414#       发表于 2025-6-21 14:43
+
+年番<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

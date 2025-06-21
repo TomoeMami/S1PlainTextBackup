@@ -1192,3 +1192,11 @@ PS:进游戏第一件事把画质调高，不然画面超糊。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  笑歌自若  
+##### 100#       发表于 2025-6-21 14:37
+
+这么烂吗，本来还挺期待的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
