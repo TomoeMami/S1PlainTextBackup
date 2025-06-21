@@ -3540,3 +3540,14 @@ OVA
 
 2025-6-21 09:48 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 20988#       发表于 2025-6-21 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975251&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-21 09:48</a>
+
+这是元祖的新的插件，虽然外表与当初没装上的那个并没区别，但是由于经历了现代化改装，其性能足以终结这个 ...</blockquote>
+听不到（惊恐）
+
