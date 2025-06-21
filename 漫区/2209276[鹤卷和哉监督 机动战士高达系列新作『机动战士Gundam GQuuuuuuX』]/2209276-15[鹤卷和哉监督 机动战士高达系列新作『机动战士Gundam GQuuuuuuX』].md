@@ -3448,3 +3448,14 @@ X 上的 フィンチ：“フリーダム正論マンinジークアクスの落
 
 2025-6-21 09:06 上传
 
+
+*****
+
+####  adretyu67.  
+##### 20981#       发表于 2025-6-21 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974955&amp;ptid=2209276" target="_blank">不会起名 发表于 2025-6-21 07:43</a>
+
+也就是说被派去崩儿子之前他就想退休了？</blockquote>
+是准备退休前临时接了个活要求负责处决**马夫狄。
+
