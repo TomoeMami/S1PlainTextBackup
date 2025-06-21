@@ -4610,3 +4610,42 @@ V-MAX，启动！
 
 唯一不确定的就是设定集有没有正史地位而已。
 
+
+*****
+
+####  xwz  
+##### 21031#       发表于 2025-6-21 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975674&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-21 11:51</a>
+
+另外一位是山田一族。他在水星魔女狸猫梗以后一直都在画里面女主变成狸猫（有时候其他主角也会变成动物）到 ...</blockquote>
+这位已经被狸猫完全净化了……想想看之前画的都是啥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinoverse  
+##### 21032#       发表于 2025-6-21 16:40
+
+什么净化，他都不画光美雷普本了，纯纯的损失
+
+*****
+
+####  psycho_Gadfly  
+##### 21033#       发表于 2025-6-21 16:45
+
+<blockquote>shinoverse 发表于 2025-6-21 16:40
+什么净化，他都不画光美雷普本了，纯纯的损失</blockquote>
+水星丁真的魅力
+
+搞不好人家开了个小号接着画呢，没被扒出来而已
+
+*****
+
+####  xwz  
+##### 21034#       发表于 2025-6-21 16:45
+
+Q娃并没有能够净化他，但是狸猫做到了
+
+抱起狸猫，立地成佛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

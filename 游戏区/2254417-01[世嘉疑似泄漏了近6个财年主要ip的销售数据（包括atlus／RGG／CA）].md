@@ -506,3 +506,17 @@ smt什么营销费用，暗喻幻想什么营销费用？
 看图里信息的话，本体和vv都是单作稳定100W吧，挺不错了，更别说 ...</blockquote>
 截至到2024年3月122w，之前只有v，vv小于207-122，不足百万
 
+
+*****
+
+####  Slyvan  
+##### 54#       发表于 2025-6-21 16:42
+
+真女5要是护航NS, 那小高的The Duskbloods 也护航NS2了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+NS出了四五年了才出真有脸叫护航...
+
+P6可不能贸贸然就出了,等打磨得很好才行
+
+P5的成功让atlus成为JRPG高手,  如果P6破功了那就装不了高手了
+
