@@ -4976,3 +4976,18 @@ MF到虚空歌姬的变化换算到GQX……
 
 <img src="https://p.sda1.dev/25/dc5b2d902e7d549af008470b6fb78f3b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 21065#       发表于 2025-6-21 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977723&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-21 21:08</a>
+
+MF到虚空歌姬的变化换算到GQX……
+
+你的意思是鹤卷走，痞子自己操刀做剧场版？ ...</blockquote>
+倒不是谁来做的问题，而是保留部分设定故事重写<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+哦，还有超吊的机战和搭配的音乐
+

@@ -3823,3 +3823,13 @@ PC版拿完罐子就打不动了，
 最后这几个boss的即死太烦了，子弹打完那不等死了吗</blockquote>
 打机甲地上会掉子弹.打了几次我发现子弹是满的.
 
+
+*****
+
+####  银色天空  
+##### 3294#       发表于 2025-6-21 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977801&amp;ptid=1978008" target="_blank">oyss 发表于 2025-6-21 21:25</a>
+打机甲地上会掉子弹.打了几次我发现子弹是满的.</blockquote>
+机甲还好，也比较容易打中。上古那场地看不见哪有子弹，只能一发一发省着打了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

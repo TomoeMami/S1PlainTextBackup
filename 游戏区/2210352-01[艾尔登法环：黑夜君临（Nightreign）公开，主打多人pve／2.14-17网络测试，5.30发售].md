@@ -9757,3 +9757,15 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 被恶兆偷袭4次，第5次碰到终于把成就做了，感觉是单刷最难搞的成就
 
+
+*****
+
+####  ohi.02  
+##### 953#       发表于 2025-6-21 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974281&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-20 22:50</a>
+原来首杀才奖励25个币，之后只有7个</blockquote>
+为什么我后续通关只给5个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
