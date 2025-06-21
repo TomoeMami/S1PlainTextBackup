@@ -3715,3 +3715,18 @@ PC版拿完罐子就打不动了，
 
 想打个双结局，但是打boss每失败一次都要再看一遍这个不能跳过的又臭又长过场<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">浪费时间
 
+
+*****
+
+####  qixinno2  
+##### 3283#       发表于 2025-6-21 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我结局那没看 直接选了握手看不到另外一个BOSS了 打完直接怒下了个全开档
+
+*****
+
+####  黑耀星尘  
+##### 3284#       发表于 2025-6-21 20:43
+
+我觉得急需一个跳过对话的MOD。。2周目太浪费时间了
+
