@@ -3945,3 +3945,13 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 
 —— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  naclken.  
+##### 3306#       发表于 2025-6-22 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏一对多不太好打啊，尤其是技能比较全的敌人，各种颜色的光一起闪像调色盘一样。
+
+蓝光紫光有时候剑上不会出，导致没有处理的窗口。
+
