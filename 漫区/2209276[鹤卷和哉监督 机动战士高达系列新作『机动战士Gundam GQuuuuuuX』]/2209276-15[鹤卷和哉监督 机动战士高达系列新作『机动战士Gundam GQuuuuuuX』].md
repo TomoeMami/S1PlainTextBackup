@@ -4503,3 +4503,15 @@ V-MAX，启动！
 
 雷霆和GTO还有各种UC外传都属于有冲突的以TV为准，没冲突的就认了的状态，是不是平行世界或者某种经过粉饰的纪录片就看粉丝自己喜欢了
 
+
+*****
+
+####  光辉传递者  
+##### 21021#       发表于 2025-6-21 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67972370&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-6-20 16:28</a>
+保留通缉犯可太好展开后续了(前提是有第二季)，某一天的军团战中，一架熟悉而破旧的机体披着披风出现了，gq ...</blockquote>
+什么黑盖塔<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
