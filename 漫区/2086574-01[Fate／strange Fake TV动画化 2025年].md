@@ -4160,3 +4160,11 @@ FGO那邊還爆料出他也是一個神經病。</blockquote>
 我感觉现在蘑菇的难产症跟传染病似的，衍生作品到后期个个都难产。</blockquote>
 确实，之前开的几个新坑小说全都没后文，动画也磨磨唧唧，月姬里线这都4年了也没半点消息。真就全吊在fgo这一根线上了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 413#       发表于 2025-6-21 12:54
+
+我估计也有Aniplex对Fate开始转移注意力的原因在。鬼灭无限城剧场版上映在即，而且鬼灭看势头还能吃很久，能大小通吃。所以只能挤牙膏
+
