@@ -4003,3 +4003,16 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 还有几个结局的成就没打，选的不牵手，我的伊芙才不想跟你合体呢，不知道剑星2会是以哪个结局开始，我希望 ...</blockquote>
 但是从几个结局的过场看只有百合满好感度下的牵手结局才是真结局的感觉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 3312#       发表于 2025-6-22 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978556&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-22 00:27</a>
+
+这游戏一对多不太好打啊，尤其是技能比较全的敌人，各种颜色的光一起闪像调色盘一样。
+
+蓝光紫光有时候剑上 ...</blockquote>
+手残表示群殴闪个P啊，直接交资源，贝塔Y斩，爆发次元斩，都是大范围，再不行叫广智，啊不对是迅驰救我<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
