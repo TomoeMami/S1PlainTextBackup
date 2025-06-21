@@ -4735,3 +4735,16 @@ GQ够人气出两个重新编排的剧场版吗
 为啥选了这么整蛊的一个竹节虫样子，是因 ...</blockquote>
 注意3的头部造型，原本GFRED的猫耳应该是考虑过安在大叔头上的，绿叔BOSS说佐证
 
+
+*****
+
+####  aptx8285144  
+##### 21043#       发表于 2025-6-21 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976636&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 16:53</a>
+
+三生三世古利特人那俩女主的塑造，一个空气一个巨婴，不算后续找补甚至不如番茄喵安
+
+但要论形象设计（性吸 ...</blockquote>
+番茄的身材和大量小表情到是有这个潜力，只不过名义上毕竟是高达，剧本里搞太多福利暗示似乎缺名头
+
