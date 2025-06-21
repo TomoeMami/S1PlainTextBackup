@@ -3784,3 +3784,42 @@ PC版拿完罐子就打不动了，
 
 最后这几个boss的即死太烦了，子弹打完那不等死了吗
 
+
+*****
+
+####  Andariel  
+##### 3290#       发表于 2025-6-21 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977737&amp;ptid=1978008" target="_blank">银色天空 发表于 2025-6-21 21:11</a>
+上古这节奏太怪了。另外我罐子收全了，没有三个复活啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那就是两个?我也记不清具体几个了，反正莽这个boss还是够用
+
+*****
+
+####  Sevenzerofive  
+##### 3291#       发表于 2025-6-21 21:21
+
+一周目全收集双结局了，二周目是不是只用收集脊椎和衣服就好了？有哪些东西还要注意吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Andariel  
+##### 3292#       发表于 2025-6-21 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977741&amp;ptid=1978008" target="_blank">银色天空 发表于 2025-6-21 21:11</a>
+最后这几个boss的即死太烦了，子弹打完那不等死了吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个确实是屎，只能多预备点子弹，
+
+
+*****
+
+####  oyss  
+##### 3293#       发表于 2025-6-21 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977741&amp;ptid=1978008" target="_blank">银色天空 发表于 2025-6-21 21:11</a>
+
+最后这几个boss的即死太烦了，子弹打完那不等死了吗</blockquote>
+打机甲地上会掉子弹.打了几次我发现子弹是满的.
+
