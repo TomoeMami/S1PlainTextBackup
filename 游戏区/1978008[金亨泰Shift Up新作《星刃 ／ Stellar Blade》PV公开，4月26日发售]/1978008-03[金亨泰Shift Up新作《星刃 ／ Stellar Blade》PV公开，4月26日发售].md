@@ -4016,3 +4016,14 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 蓝光紫光有时候剑上 ...</blockquote>
 手残表示群殴闪个P啊，直接交资源，贝塔Y斩，爆发次元斩，都是大范围，再不行叫广智，啊不对是迅驰救我<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴达兽  
+##### 3313#       发表于 2025-6-22 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978586&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-22 00:41</a>
+
+但是从几个结局的过场看只有百合满好感度下的牵手结局才是真结局的感觉 ...</blockquote>
+就是不想合体，和百合合体我都能接受，再不行渡鸦也可以
+
