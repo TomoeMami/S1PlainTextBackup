@@ -520,3 +520,21 @@ P6可不能贸贸然就出了,等打磨得很好才行
 
 P5的成功让atlus成为JRPG高手,  如果P6破功了那就装不了高手了
 
+
+*****
+
+####  DET  
+##### 55#       发表于 2025-6-21 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SMT那个宣发能跟暗喻幻想比吗，不过smt居然能卖过如龙8有点惊讶
+
+*****
+
+####  DET  
+##### 56#       发表于 2025-6-21 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975896&amp;ptid=2254417" target="_blank">凉良 发表于 2025-6-21 12:54</a>
+
+话说为啥现在内部数据还在使用销售数而不是销售额</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">就凭世嘉这些作品三天两头打骨折的售价，销售额更不够看了
+
