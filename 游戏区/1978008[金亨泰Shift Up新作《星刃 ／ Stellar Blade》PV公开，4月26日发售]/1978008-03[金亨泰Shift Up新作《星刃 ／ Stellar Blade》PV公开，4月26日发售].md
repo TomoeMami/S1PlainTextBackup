@@ -3955,3 +3955,51 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 
 蓝光紫光有时候剑上不会出，导致没有处理的窗口。
 
+
+*****
+
+####  巴达兽  
+##### 3307#       发表于 2025-6-22 00:35
+
+我钓鱼2个小时解决
+
+参考【剑星钓鱼详细攻略, 1小时内鱼类全收集, 获取比基尼套装,】 [https://www.bilibili.com/video/BV1WFNHzhEsy/](https://www.bilibili.com/video/BV1WFNHzhEsy/)
+
+*****
+
+####  ParadiseMartyr  
+##### 3308#       发表于 2025-6-22 00:36
+
+太变态了。到了艾多斯九号和阿达姆对话直接给我送太空电梯去了。我还有一个区域没探索呢。结果我用备份存档又打了一遍就单纯是错过了一个复用boss和几个三级组件。
+他妈的浪费我俩小时。卧槽。太变态了。太变态了。我**啊啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Andariel  
+##### 3309#       发表于 2025-6-22 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978574&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-22 00:36</a>
+太变态了。到了艾多斯九号和阿达姆对话直接给我送太空电梯去了。我还有一个区域没探索呢。结果我用备份存档 ...</blockquote>
+从电梯出来了以后也能回去继续探索各个区域的
+只是xion回不去了而已，城里的支线啥的就做不了了
+
+*****
+
+####  Andariel  
+##### 3310#       发表于 2025-6-22 00:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2周目推不动流程了，开始沉迷拍照了
+这游戏的拍照功能真的好玩
+
+
+*****
+
+####  Andariel  
+##### 3311#       发表于 2025-6-22 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978543&amp;ptid=1978008" target="_blank">巴达兽 发表于 2025-6-22 00:23</a>
+还有几个结局的成就没打，选的不牵手，我的伊芙才不想跟你合体呢，不知道剑星2会是以哪个结局开始，我希望 ...</blockquote>
+但是从几个结局的过场看只有百合满好感度下的牵手结局才是真结局的感觉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
