@@ -4868,3 +4868,17 @@ yysy
 
 养一只的后果紫婆告诉你了。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 21056#       发表于 2025-6-21 20:11
+
+ 本帖最后由 gundammarkⅡ 于 2025-6-21 20:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975943&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-21 13:10</a>
+不是谣言，除了II都是后世拍的献礼片！可曾是7拍的，0是F拍的，都有记载</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是可曾不是7拍的，7里巴神和米娜拍的是翻拍电视剧
+设定上可曾是2031年拍的星间大战结束20周年纪念电影
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
