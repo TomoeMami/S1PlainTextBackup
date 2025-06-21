@@ -4455,3 +4455,14 @@ V-MAX，启动！
 
 巨大元祖都出现了，还有更爆的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 21016#       发表于 2025-6-21 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975937&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-21 13:08</a>
+
+设定集好像是正史，动画都是后世人拍的献礼片！</blockquote>
+好像有说法连设定集都是新统合的宣传材料，所以没有真正可靠的“正史”，只能说大方向上大差不差<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
