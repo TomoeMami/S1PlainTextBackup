@@ -4316,3 +4316,31 @@ V-MAX，启动！
 
 南瓜哥这三个表情上次出现在还是在上次
 
+
+*****
+
+####  西瓜夜行  
+##### 21004#       发表于 2025-6-21 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975674&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-21 11:51</a>
+
+另外一位是山田一族。他在水星魔女狸猫梗以后一直都在画里面女主变成狸猫（有时候其他主角也会变成动物）到 ...</blockquote>
+更新搬运！！！
+
+*****
+
+####  cxasuka  
+##### 21005#       发表于 2025-6-21 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975756&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-21 12:14</a>
+我觉得基西莉亚二创还好吧，这几天在X上看的我都想给她一个家来了。</blockquote>
+毕竟读中学时，就是要每天照顾全家起居，辅佐父亲，关爱弟弟，和废物neet大哥吵架的好女孩啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deviljz  
+##### 21006#       发表于 2025-6-21 12:34
+
+搞不好不是那边的机体很大，而是这边很小，那边正常机战，这边超级钢普拉大战
+
