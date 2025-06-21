@@ -3730,3 +3730,39 @@ PC版拿完罐子就打不动了，
 
 我觉得急需一个跳过对话的MOD。。2周目太浪费时间了
 
+
+*****
+
+####  Andariel  
+##### 3285#       发表于 2025-6-21 20:59
+
+ 本帖最后由 Andariel 于 2025-6-21 21:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977572&amp;ptid=1978008" target="_blank">银色天空 发表于 2025-6-21 20:35</a>
+想打个双结局，但是打boss每失败一次都要再看一遍这个不能跳过的又臭又长过场浪费时间 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">易拉罐收集全的话可以带三个复活
+还是比较容易的，猛猛灌技能就行了
+
+总体来讲机甲比较好打，最后一段血伊芙会变身直接无敌
+上古孽奇拔还是有点难度的，课了两次复活才过
+
+*****
+
+####  ATRO  
+##### 3286#       发表于 2025-6-21 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976983&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-21 18:30</a>
+
+萌新沙漠逛完怒战半小时红莲 打不过 为什么剧情模式不给奖励</blockquote>
+红莲毕竟DLC BOSS，你沙漠打完大概相当于用火山官邸练度的褪色者直接打米塔恩，或者不逃课打孤牢骑士，容错太低了
+
+
+*****
+
+####  ATRO  
+##### 3287#       发表于 2025-6-21 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977542&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-21 20:26</a>
+
+我对每一个不使用mod等手段完成钓鱼收集的玩家致以崇高的敬意</blockquote>
+其实还好，看攻略及时换池子也就1-2小时左右就齐了，中期补漏窍门就是看叹号，不出你想要的二星或者三星直接O中断，能省不少时间。
+

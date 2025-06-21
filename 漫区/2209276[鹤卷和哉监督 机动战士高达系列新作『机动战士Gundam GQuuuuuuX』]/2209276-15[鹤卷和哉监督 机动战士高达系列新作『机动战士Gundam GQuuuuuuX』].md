@@ -4934,3 +4934,15 @@ yysy
 
 其實三小只有綠叔叔一半的塑造感覺整個片子的風評會好上不少<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  psycho_Gadfly  
+##### 21061#       发表于 2025-6-21 20:58
+
+<blockquote>黑翼死神 发表于 2025-6-21 20:51
+綠叔叔整整十一集給我感覺就是塑造得比其他人好太多了，現在一想起gqux就只有想起綠叔叔的情節了
+
+其實三小 ...</blockquote>
+老害们真正想写的vs不得已加进去的
+
