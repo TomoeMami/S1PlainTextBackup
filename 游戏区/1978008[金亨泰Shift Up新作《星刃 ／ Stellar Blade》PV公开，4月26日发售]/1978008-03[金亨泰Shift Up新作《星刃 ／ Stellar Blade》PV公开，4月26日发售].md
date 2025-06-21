@@ -3634,3 +3634,47 @@ PC版拿完罐子就打不动了，
 沉迷钓鱼50小时了才刚到水下都市，一周目完全不开dlc和季节装扮，二周目再开应该不影响收集吧？
 二周目从中英日配音里挑一个。
 
+
+*****
+
+####  alucardcz  
+##### 3275#       发表于 2025-6-21 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977306&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-21 19:37</a>
+
+舍不得就就开2周目
+
+反正还有那么多服装可以拿
+
+没事儿就打开看伊芙蹦蹦跳跳，享受 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不存在的 库里上百个坑等着填呢
+
+*****
+
+####  alucardcz  
+##### 3276#       发表于 2025-6-21 19:50
+
+另外这游戏日语配音和下面中文字幕很多地方都对不上<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3277#       发表于 2025-6-21 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977367&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-21 19:50</a>
+另外这游戏日语配音和下面中文字幕很多地方都对不上</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多语言游戏通病，更别说这玩意儿是韩语原文
+中文和日文搞不好都是对着英文翻译的，转了好几手了
+
+*****
+
+####  Andariel  
+##### 3278#       发表于 2025-6-21 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977320&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-21 19:42</a>
+沉迷钓鱼50小时了才刚到水下都市，一周目完全不开dlc和季节装扮，二周目再开应该不影响收集吧？
+二周目从中 ...</blockquote>
+不影响
+我一周目开了季节没开dlc
+打算二周目再收集尼尔和妮姬了
+
