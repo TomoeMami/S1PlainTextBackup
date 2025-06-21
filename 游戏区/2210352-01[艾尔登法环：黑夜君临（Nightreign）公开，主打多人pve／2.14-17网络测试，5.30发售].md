@@ -9769,3 +9769,16 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jacket  
+##### 954#       发表于 2025-6-21 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977826&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-6-21 21:28</a>
+
+为什么我后续通关只给5个
+
+—— 来自 S1Fun</blockquote>
+也许我之前剩下了点（按说花干净了），或者跟普通本一样每把数量不固定
+
