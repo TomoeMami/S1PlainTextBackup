@@ -3515,3 +3515,28 @@ OVA
 
 不太看小说
 
+
+*****
+
+####  bandage_n2_ki  
+##### 20986#       发表于 2025-6-21 09:47
+
+修司提前把红高达装备用差不多这招太狠了……
+
+被拉拉强制更衣了反应也很平淡，难道这gqx夏亚还要用飞跃巅峰那招突然大叫着莫明其妙地开始撕自己的红色士官服嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20987#       发表于 2025-6-21 09:48
+
+这是元祖的新的插件，虽然外表与当初没装上的那个并没区别，但是由于经历了现代化改装，其性能足以终结这个世界
+
+<img src="https://img.stage1st.com/forum/202506/21/094857glt6ix6x2eenx6x7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 09:48 上传
+
