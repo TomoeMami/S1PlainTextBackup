@@ -3617,3 +3617,22 @@ OVA
 听不到（惊恐）</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨大化的元祖现在更像是热爱生命的惊世巨人了
 
+
+*****
+
+####  jackyhuang  
+##### 20994#       发表于 2025-6-21 11:23
+
+【『机动战士高达GQuuuuuuX』第十一话不为人知的彩蛋，用手枪开锁不合理？一起探寻苍之流星的去向-哔哩哔哩】 https://b23.tv/sZfRqyP
+
+致敬，都是致敬
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  1223122  
+##### 20995#       发表于 2025-6-21 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
