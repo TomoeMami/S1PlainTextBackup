@@ -5029,3 +5029,25 @@ MF到虚空歌姬的变化换算到GQX……
 可你这个图最后还是希洛克抗下了所有一打五啊 不仅鸭子叔叔投了还带着哈曼一起 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是显得老太太头NB吗 也太勇了 他怎么敢的
 
+
+*****
+
+####  岸浪白野  
+##### 21070#       发表于 2025-6-21 21:56
+
+ 本帖最后由 岸浪白野 于 2025-6-21 21:58 编辑 
+
+GFreD的头部是原本GQuuuuuuX的初期方案。胸部左右的零件分离后会从左右两侧贴合到脸部形成狐狸面具其实是赛科缪的强制启动机构。目的就是启动头部内的K赛科缪。
+
+虽然这个面具变脸的设定鹤卷先生也感兴趣，但我没能将其完善到能让他满意的程度最终被搁置了。
+
+后来外观在杉谷P的发掘下，成为了GFreD的头部设计。
+
+<img src="https://img.stage1st.com/forum/202506/21/213916hmx2el2zj5orxcrg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 21:39 上传
+
