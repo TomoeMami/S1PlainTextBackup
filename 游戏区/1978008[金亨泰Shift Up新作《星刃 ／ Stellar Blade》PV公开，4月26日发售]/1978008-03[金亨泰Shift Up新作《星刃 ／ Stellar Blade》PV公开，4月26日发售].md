@@ -3833,3 +3833,16 @@ PC版拿完罐子就打不动了，
 打机甲地上会掉子弹.打了几次我发现子弹是满的.</blockquote>
 机甲还好，也比较容易打中。上古那场地看不见哪有子弹，只能一发一发省着打了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceblue  
+##### 3295#       发表于 2025-6-21 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977783&amp;ptid=1978008" target="_blank">Sevenzerofive 发表于 2025-6-21 21:21</a>
+
+一周目全收集双结局了，二周目是不是只用收集脊椎和衣服就好了？有哪些东西还要注意吗？
+
+—— 来自 samsun ...</blockquote>
+组件也有mk2的
+
