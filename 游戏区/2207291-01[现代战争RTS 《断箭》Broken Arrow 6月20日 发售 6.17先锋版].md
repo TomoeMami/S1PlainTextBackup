@@ -1016,3 +1016,18 @@ ai能卡着视野边缘给你来一发，人的操作不可能注意到每一个
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">warno我不微操可能就被躲草丛的，天上飞的随便送走一队步兵和装甲
 
+
+*****
+
+####  狐式重型坦克  
+##### 75#       发表于 2025-6-21 12:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏PVE是不是完全不存在AI
+
+*****
+
+####  科本学士  
+##### 76#       发表于 2025-6-21 12:11
+
+只玩pve得话，不如去玩regiments
+

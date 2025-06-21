@@ -4295,3 +4295,16 @@ V-MAX，启动！
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 21002#       发表于 2025-6-21 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975710&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-6-21 12:00</a>
+
+水星的狸猫这漫画在水魔放送的时候我是真喜欢，胖狸猫太可爱了
+
+唯独紫色老太婆相关的萌萌哒二创会让我产生 ...</blockquote>
+我觉得基西莉亚二创还好吧，这几天在X上看的我都想给她一个家来了。
+
