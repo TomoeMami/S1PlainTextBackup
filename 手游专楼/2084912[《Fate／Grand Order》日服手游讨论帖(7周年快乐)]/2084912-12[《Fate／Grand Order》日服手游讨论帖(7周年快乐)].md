@@ -567,3 +567,15 @@
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">万一后面不是单体了呢！  
 
+
+*****
+
+####  jackyhuang  
+##### 16947#       发表于 2025-6-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975250&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-21 09:48</a>
+万一后面不是单体了呢！</blockquote>
+那要恭喜光炮喂到饭了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
