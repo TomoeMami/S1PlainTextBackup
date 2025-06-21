@@ -3551,3 +3551,13 @@ OVA
 这是元祖的新的插件，虽然外表与当初没装上的那个并没区别，但是由于经历了现代化改装，其性能足以终结这个 ...</blockquote>
 听不到（惊恐）
 
+
+*****
+
+####  Sliurus  
+##### 20989#       发表于 2025-6-21 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975192&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-21 09:30</a>
+ 谣传是staff女王党多按头了呗。  就河森办世博会都要靠江端替他画的这个状态。 </blockquote>
+翅膀结局本来就像在给兰花挽尊，后期兰花离开，公主和女王都快把流程走完了，结局居然一转翅膀重新开始竞争，争个毛啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
