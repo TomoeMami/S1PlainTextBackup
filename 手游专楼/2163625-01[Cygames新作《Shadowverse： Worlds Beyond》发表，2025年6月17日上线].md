@@ -3793,3 +3793,13 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 没忍住爆金币了，国服500多皇法鱼满了，龙教差1张，妖梦差4张，所有卡留一张闪还有2w4的尘
 
+
+*****
+
+####  duraa  
+##### 246#       发表于 2025-6-21 13:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">氪了月卡和几个小礼包（合计100+rmb那档），闪卡全分，目前2W7金币，1W尘，1k水晶
+
+皇梦龙妖凑活能玩，法鱼教差很多
+

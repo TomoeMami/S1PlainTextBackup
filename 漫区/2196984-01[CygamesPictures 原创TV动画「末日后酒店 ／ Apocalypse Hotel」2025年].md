@@ -7118,3 +7118,22 @@ https://www.animatetimes.com/news/details.php?id=1749194269
 
 八千代的履带底盘形态就维持了不到一集好评，那个小绿瓶最后一集也应该出现一下了
 
+
+*****
+
+####  失忆的香槟  
+##### 605#       发表于 2025-6-21 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67973587&amp;ptid=2196984" target="_blank">依然荏苒 发表于 2025-6-20 20:16</a>
+
+问下cr的洗澡有衣服么</blockquote>抱歉，以为是问叔叔版的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.2025-06-21_13_33_40.jpeg
+(201 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 13:34 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/133423anlvef9el6g5z8mz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
