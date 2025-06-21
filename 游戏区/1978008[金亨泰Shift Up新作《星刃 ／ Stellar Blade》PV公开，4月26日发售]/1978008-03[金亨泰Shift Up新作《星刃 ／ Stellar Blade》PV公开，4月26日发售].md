@@ -3557,3 +3557,25 @@ PC版拿完罐子就打不动了，
 
 **金亨泰，我的机器人女仆啊
 
+
+*****
+
+####  alucardcz  
+##### 3267#       发表于 2025-6-21 18:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">萌新沙漠逛完怒战半小时红莲 打不过 为什么剧情模式不给奖励
+
+*****
+
+####  Andariel  
+##### 3268#       发表于 2025-6-21 18:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">打完了，最后一周目全收集完成，读档把两个结局都做了
+从结尾的过场来看牵手结局才是真结局吧
+只不过牵手之后伊芙这个造型可真是一言难尽...
+这个鸡爪即使是我都不能接受了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这造型可别耽误续作我伊芙换装啊
+
+之后就慢慢收集剩下的服装了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+好玩，爱玩，续作搞快点
+
