@@ -3468,3 +3468,12 @@ PC版拿完罐子就打不动了，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我也是那发型 再带个眼镜感觉有点DNF母鸡那味
 
+
+*****
+
+####  双花红棍  
+##### 3257#       发表于 2025-6-21 11:37
+
+还推荐一个mod，Walk Foot Sliding Fix。
+这游戏人物走路一直是滑的状态，这个mod可以修正滑步。
+
