@@ -5118,3 +5118,93 @@ GFreD的头部是原本GQuuuuuuX的初期方案。胸部左右的零件分离后
 所以吃书要灵活得多。</blockquote>
 m的画册资料都不是正史 ﹃_﹃〣  简直从一开始就没有锅
 
+
+*****
+
+####  ヒトニナル  
+##### 21077#       发表于 2025-6-21 23:13
+
+删了博美犬代表军团战内容无法成立，所以军团战也要删
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯？好像删了也无所谓哦？
+
+*****
+
+####  岸浪白野  
+##### 21078#       发表于 2025-6-21 23:14
+
+之前阿森纳街机新增加卡的卡背，感觉重点也就是实卡印刷是给基克罗格的MS形态标了全高32m，重量868.7t
+
+为什么喵安的印刷是连开的机都不写GFreD就不知道了，感觉是单纯懒到一个极致了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/21/230951abyotrloqmiyqqfi.png" referrerpolicy="no-referrer">
+
+<strong>GH~KLWR699783{6KO_Q69`I.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/231023ccktw71ys0201wtb.png" referrerpolicy="no-referrer">
+
+<strong>%KC9G0W5IZ2BOLL8P0B0.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230749d3yyvyuyv6vudcyy.png" referrerpolicy="no-referrer">
+
+<strong>7}ZT1(@HIHPFWROPCE5HYHL.png</strong> (952.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230735fiy8j0769d906zi7.png" referrerpolicy="no-referrer">
+
+<strong>3)ER[A10[1TQTP~OXTK8GIN.png</strong> (920.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:07 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230858x01bg5eq1n6ze96z.png" referrerpolicy="no-referrer">
+
+<strong>_Q$EWSCYNF~DO~9)5}X~_(8.png</strong> (2.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:08 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230326egpqy96jdyyayf2y.png" referrerpolicy="no-referrer">
+
+<strong>}UMVW4TBJMA~R3ZP~XZ9$DH.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:03 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230522wloeiuozhxx4qx9z.png" referrerpolicy="no-referrer">
+
+<strong>WBM))`SS1GE3WZUDKTUP7.png</strong> (701.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230636gc1nakknnccancco.png" referrerpolicy="no-referrer">
+
+<strong>T2`YOWZ`OJM4XR[A)7_41U1.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:06 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/230706trxrl6x77vrrevr2.png" referrerpolicy="no-referrer">
+
+<strong>WHSWA`%]25XEUR)%]G@M~{7.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:07 上传
+

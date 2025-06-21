@@ -3861,3 +3861,13 @@ PC版拿完罐子就打不动了，
 
 升级组件槽的素材能溢出那么多，升级其他的都不够用<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  重新做人  
+##### 3298#       发表于 2025-6-21 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977367&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-21 19:50</a>
+另外这游戏日语配音和下面中文字幕很多地方都对不上</blockquote>
+中文语音跟字幕也经常对不上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
