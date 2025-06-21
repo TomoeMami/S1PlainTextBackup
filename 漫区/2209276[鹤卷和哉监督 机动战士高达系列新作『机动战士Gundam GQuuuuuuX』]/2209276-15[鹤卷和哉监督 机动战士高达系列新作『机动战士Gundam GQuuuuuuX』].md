@@ -4583,3 +4583,14 @@ V-MAX，启动！
 为啥选了这么整蛊的一个竹节虫样子，是因 ...</blockquote>
 3和7不是典型的扯淡设计 甲虫都是背壳的 哪有把壳掀开露出里面脆弱的身体结构给你打的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 21029#       发表于 2025-6-21 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975060&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-6-21 08:40</a>
+
+脑洞一下，两个平行世界其实尺寸是不一样的，GQ是个较小的宇宙导致所有尺寸都是原来宇宙的约三分之一至二分 ...</blockquote>
+尺寸差异也是梦世界相关描写的经典桥段
+
