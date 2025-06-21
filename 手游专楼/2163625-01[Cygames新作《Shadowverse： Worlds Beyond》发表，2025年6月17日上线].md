@@ -3836,3 +3836,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要硬氪的吧，现在离分指定和无限都还早得很，40天一包也要200天了，200天各种活动大赛还有可能的2pick都能直接拿到好多卡包了，只要不是当场想要可以嫖很久，最后没出再补
 
+
+*****
+
+####  duraa  
+##### 251#       发表于 2025-6-21 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">快梦玩了几十把，感想是636好tm弱智，你还不能不带，要是狼哥像之前pv演示的一样超进化能疾驰，会这样？
+
