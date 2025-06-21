@@ -3459,3 +3459,44 @@ X 上的 フィンチ：“フリーダム正論マンinジークアクスの落
 也就是说被派去崩儿子之前他就想退休了？</blockquote>
 是准备退休前临时接了个活要求负责处决**马夫狄。
 
+
+*****
+
+####  shinoverse  
+##### 20982#       发表于 2025-6-21 09:25
+
+哈撒韦之后最出名的正史作品是啥
+
+
+*****
+
+####  AraTurambar  
+##### 20983#       发表于 2025-6-21 09:30
+
+ 本帖最后由 AraTurambar 于 2025-6-21 09:36 编辑 
+<blockquote>大十字紅朔 发表于 2025-6-20 15:11
+我一直在意MF那个翅膀结局为什么剧场版被改了，难道是被骂了？</blockquote>
+
+谣传是staff女王党多按头了呗。
+
+就河森办世博会都要靠江端替他画的这个状态。
+
+当然江端自己极少的公开表态都是端水的。
+
+问她喜欢谁就答库兰。
+
+至于剧情上的原因，你是不是忘了马裤螺丝都是剧中剧。
+
+恋离飞翼是女王出资拍的电影。
+
+*****
+
+####  无念  
+##### 20984#       发表于 2025-6-21 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975181&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 09:25</a>
+哈撒韦之后最出名的正史作品是啥</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说的小说还是OVA，小说可是90年代的 后面高达一大堆
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
