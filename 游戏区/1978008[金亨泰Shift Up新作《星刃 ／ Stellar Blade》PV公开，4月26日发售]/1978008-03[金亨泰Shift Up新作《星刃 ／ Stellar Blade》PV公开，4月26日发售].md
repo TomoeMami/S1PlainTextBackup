@@ -3477,3 +3477,11 @@ PC版拿完罐子就打不动了，
 还推荐一个mod，Walk Foot Sliding Fix。
 这游戏人物走路一直是滑的状态，这个mod可以修正滑步。
 
+
+*****
+
+####  alucardcz  
+##### 3258#       发表于 2025-6-21 13:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这第1张图怎么藏了那么多任务。。。
+

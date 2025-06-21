@@ -4391,3 +4391,37 @@ V-MAX，启动！
 唯独紫色老太婆相关的萌萌哒二创会让我产生 ...</blockquote>
 大和田秀树的钢弹桑里的炸比一家其实挺好看的，尤其结尾，有点白茫茫一片的感觉
 
+
+*****
+
+####  psycho_Gadfly  
+##### 21011#       发表于 2025-6-21 13:08
+
+<blockquote>岸浪白野 发表于 2025-6-21 13:00
+因为122在别处说了还好一些更爆的没透出来</blockquote>
+那只能是那位光头出镜化身最后boss了（）
+
+反正二次元跨三 这帮人之前也干过
+
+*****
+
+####  太极八爪鱼  
+##### 21012#       发表于 2025-6-21 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975860&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-20 20:44</a>
+
+马哭骡死不存在正史，所有作品都是从某个角度对当时事件的反映。
+
+所以吃书要灵活得多。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">设定集好像是正史，动画都是后世人拍的献礼片！
+
+*****
+
+####  太极八爪鱼  
+##### 21013#       发表于 2025-6-21 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975589&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-20 19:29</a>
+
+马裤螺丝都是剧中剧这不是谣言吗……？（不过我也弄不清设定是什么了</blockquote>
+不是谣言，除了II都是后世拍的献礼片！可曾是7拍的，0是F拍的，都有记载<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
