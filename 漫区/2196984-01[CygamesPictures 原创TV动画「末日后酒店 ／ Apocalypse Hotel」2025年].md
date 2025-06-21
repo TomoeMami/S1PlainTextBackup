@@ -7161,3 +7161,16 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AraTurambar  
+##### 608#       发表于 2025-6-21 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67969062&amp;ptid=2196984" target="_blank">裂空之龙 发表于 2025-6-20 02:02</a>
+
+11集感觉算是某种意义上的总集篇，把前面的旅程故地重游了一遍，挺有感觉的
+
+话说弟弟真做陶器去了？所以上 ...</blockquote>
+怕硼砂是蚂蚁的问题难道是狸猫的问题吗？
+
