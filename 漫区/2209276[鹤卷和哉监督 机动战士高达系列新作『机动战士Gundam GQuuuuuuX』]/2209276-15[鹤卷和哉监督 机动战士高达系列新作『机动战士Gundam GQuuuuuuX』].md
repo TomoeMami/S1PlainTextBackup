@@ -4946,3 +4946,25 @@ yysy
 其實三小 ...</blockquote>
 老害们真正想写的vs不得已加进去的
 
+
+*****
+
+####  猪突猛进R  
+##### 21062#       发表于 2025-6-21 21:07
+
+绿叔叔是老害们的精神投影，一个成熟、有魅力、还有能力的中年大叔的形象。
+
+*****
+
+####  AraTurambar  
+##### 21063#       发表于 2025-6-21 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976706&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-21 17:13</a>
+
+看了虚空歌姬，感觉和MF和解了
+
+GQ够人气出两个重新编排的剧场版吗</blockquote>
+MF到虚空歌姬的变化换算到GQX……
+
+你的意思是鹤卷走，痞子自己操刀做剧场版？
+
