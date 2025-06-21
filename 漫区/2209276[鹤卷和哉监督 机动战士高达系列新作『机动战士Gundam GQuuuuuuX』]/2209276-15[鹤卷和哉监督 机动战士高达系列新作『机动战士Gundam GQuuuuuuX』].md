@@ -4667,3 +4667,49 @@ Q娃并没有能够净化他，但是狸猫做到了
 
 但要论形象设计（性吸引力）这一块，宝多六花和新条茜堪称跨时代的欲望结晶，都过去7年了还是有新品推出，GQ6UX这俩还是太嫩太健全了没法比
 
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 21037#       发表于 2025-6-21 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975818&amp;ptid=2209276" target="_blank">cxasuka 发表于 2025-6-21 12:31</a>
+
+毕竟读中学时，就是要每天照顾全家起居，辅佐父亲，关爱弟弟，和废物neet大哥吵架的好女孩啊 ...</blockquote>
+而且听说大哥喜欢巨乳还主动挤出来给大哥看
+
+真正好女孩
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 21038#       发表于 2025-6-21 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976103&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-21 14:06</a>
+
+万代的说法一直是TV排第一吧，一切以TV演出和设定为准，ova剧场版次一级，然后游戏漫画小说，最低好像是 ...</blockquote>
+tv排毛线第一，初代tv就已经路边一条了
+
+*****
+
+####  大十字紅朔  
+##### 21039#       发表于 2025-6-21 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976636&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 16:53</a>
+
+三生三世古利特人那俩女主的塑造，一个空气一个巨婴，不算后续找补甚至不如番茄喵安
+
+但要论形象设计（性吸 ...</blockquote>
+性吸引力那么高，本子一定很多吧！<img src="https://static.stage1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinoverse  
+##### 21040#       发表于 2025-6-21 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976657&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-21 16:59</a>
+
+性吸引力那么高，本子一定很多吧！</blockquote>
+圆谷小心眼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
