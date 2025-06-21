@@ -3432,3 +3432,19 @@ X 上的 フィンチ：“フリーダム正論マンinジークアクスの落
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 20980#       发表于 2025-6-21 09:06
+
+听说是头部有铁球那么大的高达大战身高180米的德金大帝
+
+<img src="https://img.stage1st.com/forum/202506/21/090620ix9i91m1q5ifigd5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 09:06 上传
+

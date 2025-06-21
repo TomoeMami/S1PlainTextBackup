@@ -544,3 +544,13 @@
 
 九周年从者，ML代表兽艾雷表示落地后没有几个90++能上的，风头都被学姐抢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 16945#       发表于 2025-6-21 09:06
+
+光炮一开始就抬出场了也没说啥不是吗<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
