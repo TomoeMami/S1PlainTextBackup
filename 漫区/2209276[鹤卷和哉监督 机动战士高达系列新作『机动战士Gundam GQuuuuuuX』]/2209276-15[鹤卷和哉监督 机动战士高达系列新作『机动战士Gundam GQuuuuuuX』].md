@@ -5208,3 +5208,25 @@ m的画册资料都不是正史 ﹃_﹃〣  简直从一开始就没有锅
 
 2025-6-21 23:07 上传
 
+
+*****
+
+####  AraTurambar  
+##### 21079#       发表于 2025-6-21 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978274&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-21 23:13</a>
+
+删了博美犬代表军团战内容无法成立，所以军团战也要删
+
+嗯？好像删了也无所谓哦？ ...</blockquote>
+我支持，赶紧出GQUX虚空歌姬。
+
+军团战完全是占篇幅。
+
+*****
+
+####  好想看Mujica啊  
+##### 21080#       发表于 2025-6-21 23:18
+
+删了博美犬和军团战，也只会全拿去写老登<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

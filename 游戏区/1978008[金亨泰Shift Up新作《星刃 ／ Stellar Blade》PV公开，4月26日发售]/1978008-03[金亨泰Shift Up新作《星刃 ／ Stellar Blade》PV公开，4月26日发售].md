@@ -3871,3 +3871,13 @@ PC版拿完罐子就打不动了，
 另外这游戏日语配音和下面中文字幕很多地方都对不上</blockquote>
 中文语音跟字幕也经常对不上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3299#       发表于 2025-6-21 23:22
+
+md我悟了 这游戏打铁不是看boss的动作。。而且闭眼一直按弹反剑
+
+要目压弹红莲人都要死了。。。不停按一弹一个准<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
