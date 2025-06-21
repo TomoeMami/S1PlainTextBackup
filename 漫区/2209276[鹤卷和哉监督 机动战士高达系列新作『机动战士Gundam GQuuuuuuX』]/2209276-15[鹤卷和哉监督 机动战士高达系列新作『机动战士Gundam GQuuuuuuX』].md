@@ -4466,3 +4466,19 @@ V-MAX，启动！
 设定集好像是正史，动画都是后世人拍的献礼片！</blockquote>
 好像有说法连设定集都是新统合的宣传材料，所以没有真正可靠的“正史”，只能说大方向上大差不差<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fujissw  
+##### 21017#       发表于 2025-6-21 13:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">贴吧楼有人发新剧透，要是真的话这也没什么爆的啊
+
+
+*****
+
+####  kyo1165  
+##### 21018#       发表于 2025-6-21 13:53
+
+之前不是说强化人没死的吗，所以最终回会出来吗？出来的意义是？
+

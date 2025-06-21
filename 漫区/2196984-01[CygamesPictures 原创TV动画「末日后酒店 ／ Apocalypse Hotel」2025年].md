@@ -7137,3 +7137,13 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 
 <img src="https://img.stage1st.com/forum/202506/21/133423anlvef9el6g5z8mz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失忆的香槟  
+##### 606#       发表于 2025-6-21 13:48
+
+酒店if线做的真好，就是最后沟槽的一抹奇幻色彩把前面的气氛全毁了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看到八千代找到同型号萝卜，我第一反应是这下全身零件都有备用的了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
