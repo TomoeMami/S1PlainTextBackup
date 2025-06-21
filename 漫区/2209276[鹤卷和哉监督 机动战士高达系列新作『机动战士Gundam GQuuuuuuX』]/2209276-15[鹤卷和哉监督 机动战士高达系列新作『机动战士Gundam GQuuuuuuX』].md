@@ -4545,3 +4545,18 @@ V-MAX，启动！
 
 按贴吧说的有点太典了，鹤卷味饺子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 21025#       发表于 2025-6-21 15:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">文字剧透可以但是千万别搬图过来，不然周二晚真没乐趣了
+
+*****
+
+####  窦唯  
+##### 21026#       发表于 2025-6-21 15:14
+
+剧透出门另开一楼吧 别在专楼拉屎
+
