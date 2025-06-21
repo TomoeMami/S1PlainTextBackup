@@ -3846,3 +3846,18 @@ PC版拿完罐子就打不动了，
 —— 来自 samsun ...</blockquote>
 组件也有mk2的
 
+
+*****
+
+####  mhss  
+##### 3296#       发表于 2025-6-21 23:02
+
+这游戏的手雷和地雷我觉得完全是废品，地雷除了一个罐头需要用到，日常战斗中根本没空也必要去按使用键<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 3297#       发表于 2025-6-21 23:05
+
+升级组件槽的素材能溢出那么多，升级其他的都不够用<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

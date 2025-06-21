@@ -5105,3 +5105,16 @@ GFreD的头部是原本GQuuuuuuX的初期方案。胸部左右的零件分离后
 
 别的我不好说，但是删了这帮家伙绝对百利无害（
 
+
+*****
+
+####  nice女武神  
+##### 21076#       发表于 2025-6-21 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975860&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-21 12:44</a>
+
+马哭骡死不存在正史，所有作品都是从某个角度对当时事件的反映。
+
+所以吃书要灵活得多。</blockquote>
+m的画册资料都不是正史 ﹃_﹃〣  简直从一开始就没有锅
+
