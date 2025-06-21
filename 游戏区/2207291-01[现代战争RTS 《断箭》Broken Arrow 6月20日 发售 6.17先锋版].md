@@ -1085,3 +1085,14 @@ Warno的话相对操作量大一点，不过打打AI 用一步一坑的烂仗方
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有道德选择环节
 
+
+*****
+
+####  洛拉斯  
+##### 81#       发表于 2025-6-22 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975227&amp;ptid=2207291" target="_blank">妄想騎士 发表于 2025-6-21 09:41</a>
+单人战役根本没有认真做，完全是靠给你添堵提升难度。
+比如对面有个超远距离地图炮，近的一堆坦克，天上不 ...</blockquote>
+单人战役可以0.25倍速，对操作挺友好的
+
