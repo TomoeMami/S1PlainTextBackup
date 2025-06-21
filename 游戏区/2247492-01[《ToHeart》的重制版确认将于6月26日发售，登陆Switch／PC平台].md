@@ -1182,3 +1182,13 @@ ASCII
 
 PS:进游戏第一件事把画质调高，不然画面超糊。
 
+
+*****
+
+####  MkChang  
+##### 99#       发表于 2025-6-21 14:23
+
+他这个设置我没弄明白，分辨率调了没反应，画面质量给“性能模式，超轻模式，绘图显卡”也是看得我一头雾水<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
