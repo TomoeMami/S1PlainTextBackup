@@ -4713,3 +4713,25 @@ tv排毛线第一，初代tv就已经路边一条了
 性吸引力那么高，本子一定很多吧！</blockquote>
 圆谷小心眼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 21041#       发表于 2025-6-21 17:13
+
+看了虚空歌姬，感觉和MF和解了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+GQ够人气出两个重新编排的剧场版吗
+
+*****
+
+####  kcalb  
+##### 21042#       发表于 2025-6-21 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976418&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 15:42</a>
+
+所以原稿里布劳布罗有这么多酷炫的MS造型（尤其是3和7的甲虫人）
+
+为啥选了这么整蛊的一个竹节虫样子，是因 ...</blockquote>
+注意3的头部造型，原本GFRED的猫耳应该是考虑过安在大叔头上的，绿叔BOSS说佐证
+
