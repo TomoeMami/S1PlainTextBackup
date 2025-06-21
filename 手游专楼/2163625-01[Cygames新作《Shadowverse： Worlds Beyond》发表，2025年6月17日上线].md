@@ -3844,3 +3844,16 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">快梦玩了几十把，感想是636好tm弱智，你还不能不带，要是狼哥像之前pv演示的一样超进化能疾驰，会这样？
 
+
+*****
+
+####  YMS16M  
+##### 252#       发表于 2025-6-21 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974723&amp;ptid=2163625" target="_blank">isowowsl 发表于 2025-6-21 01:35</a>
+
+有pc了再回来看看
+
+我看群里国服公会都没人建……</blockquote>
+群号多少来着？
+

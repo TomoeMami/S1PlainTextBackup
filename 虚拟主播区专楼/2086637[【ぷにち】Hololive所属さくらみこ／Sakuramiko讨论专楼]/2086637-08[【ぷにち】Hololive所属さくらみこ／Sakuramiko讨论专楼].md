@@ -360,3 +360,47 @@ miko也打枪了
 
 原来如此 不是柚子社做的
 
+
+*****
+
+####  holofan  
+##### 11069#       发表于 2025-6-21 19:15
+
+<img src="https://img.stage1st.com/forum/202506/21/191437e3gegutalg1tejtg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 19:14 上传
+
+笑死了，原来有的人那边pubg4个字是NG词，第一次看到工商宣传推特里面2个提及pubg的地方全部故意写错
+
+都NG成这样了还接毛工商
+
+*****
+
+####  holofan  
+##### 11070#       发表于 2025-6-21 22:14
+
+<img src="https://img.stage1st.com/forum/202506/21/221437rr9yjmibmo9b9h89.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 22:14 上传
+
+唉
+
+直播废人
+
+*****
+
+####  holofan  
+##### 11071#       发表于 2025-6-21 22:15
+
+昨天直播预告说周天有点什么东西
+
+不知道是不是要告知那个消息了
+
