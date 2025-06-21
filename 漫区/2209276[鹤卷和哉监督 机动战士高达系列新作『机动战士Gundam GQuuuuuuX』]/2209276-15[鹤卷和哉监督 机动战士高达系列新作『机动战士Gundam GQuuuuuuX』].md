@@ -3422,3 +3422,13 @@ X 上的 フィンチ：“フリーダム正論マンinジークアクスの落
 超巨元祖怎么打啊，给元祖修脚吗，那也修不动啊</blockquote>
 0079+进击的巨人=经典爆头
 
+
+*****
+
+####  gundammarkⅡ  
+##### 20979#       发表于 2025-6-21 08:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">脑洞一下，两个平行世界其实尺寸是不一样的，GQ是个较小的宇宙导致所有尺寸都是原来宇宙的约三分之一至二分之一，包括人类
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
