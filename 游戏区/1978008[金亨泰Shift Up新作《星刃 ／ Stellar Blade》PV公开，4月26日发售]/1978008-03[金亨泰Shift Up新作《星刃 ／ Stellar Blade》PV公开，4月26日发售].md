@@ -3678,3 +3678,13 @@ PC版拿完罐子就打不动了，
 我一周目开了季节没开dlc
 打算二周目再收集尼尔和妮姬了
 
+
+*****
+
+####  Andariel  
+##### 3279#       发表于 2025-6-21 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976983&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-21 18:30</a>
+萌新沙漠逛完怒战半小时红莲 打不过 为什么剧情模式不给奖励</blockquote>
+说起来他这个挑战的剧情模式和普通模式有什么区别
+

@@ -30,3 +30,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我吃诗人  
+##### 1070#       发表于 2025-6-21 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976542&amp;ptid=2208663" target="_blank">modedd 发表于 2025-6-21 16:24</a>
+
+话说这是第一个金杉弘子负责脚本单回？跟动画相关的履历好像只有没能成为魔法使的系构来着
+
+—— 来自 鹅球 ...</blockquote>
+没啊bgm上一查就有月刊妄想美天23什么的
+
+但这几年除了福星小子确实都是些冥作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但土田丰又来了，会赢吗<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
