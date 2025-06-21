@@ -4087,3 +4087,25 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 
 我觉得这大概是我玩过的动作游戏里最唐的闪避
 
+
+*****
+
+####  oyss  
+##### 3320#       发表于 2025-6-22 04:31
+
+ 本帖最后由 oyss 于 2025-6-22 04:33 编辑 
+
+[https://www.bilibili.com/video/BV169N2zhEg2/](https://www.bilibili.com/video/BV169N2zhEg2/)
+
+[https://www.youtube.com/watch?v=tYjl_gswfh0](https://www.youtube.com/watch?v=tYjl_gswfh0)
+
+<img src="https://img.stage1st.com/forum/202506/22/043341qk68sk66gn9kw9h6.jpg" referrerpolicy="no-referrer">
+
+<strong>Guren vs Guren.mp4_snapshot_01.32.327.jpg</strong> (359.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 04:33 上传
+
+红莲打红莲,没打出无伤,喝了一个药,就这样了.
+
