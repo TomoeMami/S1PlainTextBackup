@@ -3605,3 +3605,11 @@ PC版拿完罐子就打不动了，
 
 找到了…和刷出来的章鱼搏斗错过了…
 
+
+*****
+
+####  alucardcz  
+##### 3272#       发表于 2025-6-21 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">什么 第2个生化危机打完就剩2个小图就结束了？好不舍得（
+

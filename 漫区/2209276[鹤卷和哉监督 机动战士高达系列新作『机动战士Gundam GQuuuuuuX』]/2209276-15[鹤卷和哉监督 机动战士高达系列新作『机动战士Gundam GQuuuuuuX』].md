@@ -4810,3 +4810,14 @@ yysy
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 21050#       发表于 2025-6-21 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976581&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 16:40</a>
+
+什么净化，他都不画光美雷普本了，纯纯的损失</blockquote>
+我擦，我都没意识到那个系列和这个作者是同一人！！！
+
