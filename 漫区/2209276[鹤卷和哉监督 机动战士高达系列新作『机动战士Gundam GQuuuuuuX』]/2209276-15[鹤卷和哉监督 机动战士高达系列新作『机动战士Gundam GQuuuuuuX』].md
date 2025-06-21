@@ -4361,3 +4361,33 @@ V-MAX，启动！
 
 比如独角兽出动画后，月面危机算是黑历史了。
 
+
+*****
+
+####  岸浪白野  
+##### 21008#       发表于 2025-6-21 13:00
+
+因为122在别处说了还好一些更爆的没透出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤黑的假面  
+##### 21009#       发表于 2025-6-21 13:02
+
+<blockquote>岸浪白野 发表于 2025-6-21 13:00
+因为122在别处说了还好一些更爆的没透出来</blockquote>
+那最终回是要大爆特爆吗
+
+*****
+
+####  太极八爪鱼  
+##### 21010#       发表于 2025-6-21 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975710&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-6-20 20:00</a>
+
+水星的狸猫这漫画在水魔放送的时候我是真喜欢，胖狸猫太可爱了
+
+唯独紫色老太婆相关的萌萌哒二创会让我产生 ...</blockquote>
+大和田秀树的钢弹桑里的炸比一家其实挺好看的，尤其结尾，有点白茫茫一片的感觉
+
