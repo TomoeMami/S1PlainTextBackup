@@ -4882,3 +4882,18 @@ yysy
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Sliurus  
+##### 21057#       发表于 2025-6-21 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977464&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-6-21 20:11</a>
+
+但是可曾不是7拍的，7里巴神和米娜拍的是翻拍电视剧
+
+设定上可曾是2031年拍的星间大战结束20周年纪念电影
+
+ ...</blockquote>
+甚至不是电视剧，是宣传片，主角是麦克斯和米莉亚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
