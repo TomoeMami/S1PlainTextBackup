@@ -3500,3 +3500,18 @@ X 上的 フィンチ：“フリーダム正論マンinジークアクスの落
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  shinoverse  
+##### 20985#       发表于 2025-6-21 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975208&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-21 09:36</a>
+
+你说的小说还是OVA，小说可是90年代的 后面高达一大堆
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3. ...</blockquote>
+OVA
+
+不太看小说
+
