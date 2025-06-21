@@ -3606,3 +3606,14 @@ OVA
 哈撒韦之后最出名的正史作品是啥</blockquote>
 庵野秀明第四喜欢的V，在英文圈也有一票死忠
 
+
+*****
+
+####  qixinno2  
+##### 20993#       发表于 2025-6-21 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975285&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-21 10:03</a>
+
+听不到（惊恐）</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨大化的元祖现在更像是热爱生命的惊世巨人了
+
