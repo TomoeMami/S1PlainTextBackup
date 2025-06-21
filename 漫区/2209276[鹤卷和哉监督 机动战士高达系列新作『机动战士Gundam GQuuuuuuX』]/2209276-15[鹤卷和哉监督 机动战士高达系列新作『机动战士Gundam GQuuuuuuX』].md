@@ -4570,3 +4570,16 @@ V-MAX，启动！
 
 为啥选了这么整蛊的一个竹节虫样子，是因为这样的变形更合理，更容易在模型中实现么？
 
+
+*****
+
+####  オルガピピック  
+##### 21028#       发表于 2025-6-21 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976418&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-21 15:42</a>
+
+所以原稿里布劳布罗有这么多酷炫的MS造型（尤其是3和7的甲虫人）
+
+为啥选了这么整蛊的一个竹节虫样子，是因 ...</blockquote>
+3和7不是典型的扯淡设计 甲虫都是背壳的 哪有把壳掀开露出里面脆弱的身体结构给你打的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

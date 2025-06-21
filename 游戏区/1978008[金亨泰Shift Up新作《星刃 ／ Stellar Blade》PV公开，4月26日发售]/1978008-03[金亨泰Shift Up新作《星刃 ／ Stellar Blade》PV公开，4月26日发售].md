@@ -3531,3 +3531,11 @@ PC版拿完罐子就打不动了，
 
 受损的武器核心去哪换？机器人那没库存了
 
+
+*****
+
+####  alucardcz  
+##### 3264#       发表于 2025-6-21 15:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">40小时大沙漠摸完 支线也全清了 还有多久能玩 （2周目是不可能2周目的
+
