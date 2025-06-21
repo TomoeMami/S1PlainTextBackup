@@ -3613,3 +3613,15 @@ PC版拿完罐子就打不动了，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">什么 第2个生化危机打完就剩2个小图就结束了？好不舍得（
 
+
+*****
+
+####  Andariel  
+##### 3273#       发表于 2025-6-21 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977176&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-21 19:12</a>
+什么 第2个生化危机打完就剩2个小图就结束了？好不舍得（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舍不得就就开2周目
+反正还有那么多服装可以拿
+没事儿就打开看伊芙蹦蹦跳跳，享受
+
