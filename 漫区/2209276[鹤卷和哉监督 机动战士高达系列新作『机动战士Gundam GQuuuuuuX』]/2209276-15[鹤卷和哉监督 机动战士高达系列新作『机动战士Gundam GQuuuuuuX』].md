@@ -5238,3 +5238,83 @@ m的画册资料都不是正史 ﹃_﹃〣  简直从一开始就没有锅
 
 回顾一下本片刚开播没多久的时候，大家还是很期待旧人多出场的。光安琪就有很多人猜测她的真实身份，一开始猜是希姆斯，后来发现她管一年战争叫一年战争，又猜她是玛姬露达桑，回头一看哦她还真是吉翁出身的，但既不是希姆斯也不是玛姬露达桑，联邦老熟人就只出场了鸭妹骡爹瓦肯卡西亚斯巴斯克和盖茨，外加一个磁气覆膜博士
 
+
+*****
+
+####  岸浪白野  
+##### 21082#       发表于 2025-6-21 23:43
+
+[X 上的 Choco＠にじそ【た-17】：“ヒゲマンとマチュの特訓捏造漫画 (1/9) [url]https://t.co/EVCC9itzDr](https://x.com/choco_uncle/status/1936383384819028325)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/21/234147wcxxiacqbale4ax1.jpg" referrerpolicy="no-referrer">
+
+<strong>2H6}Y9D]}B}%JXW)VK(SR81.jpg</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:41 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234159jmvzvja8lb8v8vvn.jpg" referrerpolicy="no-referrer">
+
+<strong>H259W9RLRU3T`[5JAN%WP16.jpg</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:41 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234205mtrpj5w5hxrhp54r.jpg" referrerpolicy="no-referrer">
+
+<strong>0Q]($S_CN40A_GV}22[NG54.jpg</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234212lwopwbwwyofwb0v4.jpg" referrerpolicy="no-referrer">
+
+<strong>C5XDZJGJ]7DO2AMVH)DJAV5.jpg</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234222zq8eutwyczteyd8y.jpg" referrerpolicy="no-referrer">
+
+<strong>V_`8B_Y8N0FZ{OJC7CB_@Z9.jpg</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234230guxwwpxpaawip82w.jpg" referrerpolicy="no-referrer">
+
+<strong>DLE9HA[WCZ2F`ZU{7CL}X_J.jpg</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234238j8ppntsnnxipng2b.jpg" referrerpolicy="no-referrer">
+
+<strong>XE6SW2A`COQ7%ZDQ_6J6N[7.jpg</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234247q00qhugimf00qebh.jpg" referrerpolicy="no-referrer">
+
+<strong>L4MGJ0L$P44PCGO4~{KF${1.jpg</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202506/21/234257zn4hmukbhgfn9btf.jpg" referrerpolicy="no-referrer">
+
+<strong>@3%E~4%(VCS6XOAXH`UOA%T.jpg</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-21 23:42 上传
+
