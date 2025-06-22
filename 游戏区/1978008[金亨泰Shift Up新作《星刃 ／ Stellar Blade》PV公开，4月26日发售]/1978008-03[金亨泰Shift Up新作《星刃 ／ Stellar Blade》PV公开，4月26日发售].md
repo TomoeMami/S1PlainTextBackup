@@ -4318,3 +4318,21 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">顺便问下 为什么平a连招都推荐重轻轻重 有啥区别？
 
+
+*****
+
+####  mhss  
+##### 3342#       发表于 2025-6-22 15:38
+
+一周目通了，MONACA摸鱼是摸的真过分，总曲量主观感受不多，抓耳的曲子就没几首，营地的曲子居然不是收集制只有固定那几首。
+
+*****
+
+####  monikaca  
+##### 3343#       发表于 2025-6-22 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980565&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 15:02</a>
+
+顺便问下 为什么平a连招都推荐重轻轻重 有啥区别？</blockquote>
+感觉没太大区别，纯粹就是好看，这个系统弹反和其他技能的伤害太爆炸导致普攻没啥存在感。
+
