@@ -5965,3 +5965,28 @@ GQuuuuuuX最終回、みんなで海行って最高の夏過ごして終われ
 
 那个文字透就是400页分镜稿里面的台词+看图说话，当然400页到底对不对只能等周二了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 21128#       发表于 2025-6-22 20:39
+
+这剧情可以进机器人大战靠机战补正救，高达是这样说的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卡哈用12集动画，做到了所有高达桑，高达四格，高达漫才都到达不到的高度，感觉已经摸到了奥尔加的位置了，希望下一集贡献一个能反复恶搞的名场面
+
+*****
+
+####  ryanghj  
+##### 21129#       发表于 2025-6-22 20:39
+
+uc版高达武斗传
+
+
+*****
+
+####  fujissw  
+##### 21130#       发表于 2025-6-22 20:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我估计正片台词怎么也得扩充点，分镜稿不可能给你都写出来，现在剧透很多台词上下文对不上
+
