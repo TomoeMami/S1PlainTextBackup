@@ -4132,3 +4132,24 @@ pc版钓鱼难度改了？ps5的话照着攻略钓不会很花时间的
 — from samsung SM-S911U1, Android 15, S1 Next G ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有必杀的
 
+
+*****
+
+####  永远的访客  
+##### 3323#       发表于 2025-6-22 08:41
+
+n网开始删除部分mod? 刚换资本家接手就这样了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 3324#       发表于 2025-6-22 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978838&amp;ptid=1978008" target="_blank">strider_oy 发表于 2025-6-22 05:54</a>
+
+这沙漠打枪小游戏怎么玩？根本守不住啊，刷得比打得快
+
+— from samsung SM-S911U1, Android 15, S1 Next G ...</blockquote>
+打防守点的小机器人炸弹清场，不要挪窝躲子弹，拼血时间才能够
+
