@@ -1211,3 +1211,22 @@ PS:进游戏第一件事把画质调高，不然画面超糊。
 买了，在淘宝店买了，220多块</blockquote>
 ns试玩版没有中文，不知道正式版有没有。
 
+
+*****
+
+####  Toby_dak  
+##### 102#       发表于 2025-6-22 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976166&amp;ptid=2247492" target="_blank">MkChang 发表于 2025-6-21 15:23</a>
+
+他这个设置我没弄明白，分辨率调了没反应，画面质量给“性能模式，超轻模式，绘图显卡”也是看得我一头雾水 ...</blockquote>
+中文翻译的锅。
+
+日文原文
+
+ウルトラライトモード，ultra light mode，超轻。
+
+パフォーマンスモード，perfomance mode，性能。
+
+グラフィックモード，graphic mode，图像。
+

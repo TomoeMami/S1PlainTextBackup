@@ -4618,3 +4618,35 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 这游戏问题不是支线任务多，有些支线任务前后剧情链有明确关联还比较吸引人，问题是地图实在太少，结果卖力设计的丰富支线剧情反而成了累赘（另外还要加上狗屎翻译的功劳）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3373#       发表于 2025-6-22 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982852&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-22 23:27</a>
+
+35小时还没结束大沙漠，支线任务实在太臭太长了，光一个初始图的水下商业区已经去过3次，还是以为自己效率 ...</blockquote>
+我倒是想问下这个射击跟班机器人是不是唯一一个不能暗杀的怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mhss  
+##### 3374#       发表于 2025-6-22 23:39
+
+机枪机器人高台跳可以暗杀，背后捅不行。
+电梯区域那个加血红灯泡好像也不能背后暗杀。
+
+
+*****
+
+####  永远的访客  
+##### 3375#       发表于 2025-6-22 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982883&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 23:34</a>
+
+我倒是想问下这个射击跟班机器人是不是唯一一个不能暗杀的怪</blockquote>
+还有炮台不能暗杀，触手不能暗杀<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+作者偷工减料，其实可以做成这个机器人自带360雷达接近必反应，也好比现在一看就是没设计暗杀动画靠谱（希望下一代再增加短期屏蔽机器人功能的电磁手雷，目前这个实在太鸡肋了，弄得我常驻相机）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

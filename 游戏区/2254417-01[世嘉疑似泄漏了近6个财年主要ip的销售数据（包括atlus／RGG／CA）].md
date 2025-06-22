@@ -777,3 +777,13 @@ NS出了四五年了才出真有脸叫护航...</blockquote>
 锤3 比 三国 差近百万销量？</blockquote>
 惊呼中国玩家恐怖如斯<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 80#       发表于 2025-6-22 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975114&amp;ptid=2254417" target="_blank">kk霖洞九 发表于 2025-6-21 08:59</a>
+全战三国居然能有这个数 那为啥后续一坨，锤三卖得还比三国差</blockquote>
+因为三国的销量大头就是首发那一波，但它的首发质量非常一般，数值崩坏+恶性bug多，而且前两个的dlc质量也不行，加上兵种同质化之类的历史系通病，导致大多数被三国这个题材吸引来的全战新玩家没能留下来（ca说后续dlc卖得不好），一般的口碑也很难吸引其他新玩家购买（第2年还在正常更新时销量已经不如锤三第3年的销量了）。等后面n个补丁和dlc把问题修得差不多的时候已经晚了，玩家早跑完了。
+
