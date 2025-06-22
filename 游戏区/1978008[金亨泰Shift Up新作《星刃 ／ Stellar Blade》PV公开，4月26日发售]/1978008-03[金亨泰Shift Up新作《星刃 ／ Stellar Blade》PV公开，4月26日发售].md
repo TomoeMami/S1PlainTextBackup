@@ -4694,3 +4694,19 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 可以的
 他这个体型长，要离的很近快踩到尾巴了才会出暗杀qte
 
+
+*****
+
+####  faxiajin  
+##### 3380#       发表于 2025-6-23 00:50
+
+通关了通关了，红莲外只有渡鸦有点难度，最终BOSS也就打了两遍。通关后马不停蹄把曼恩也打了，可以用神圣守卫愉快开打二周目了<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">。
+
+<img src="https://img.stage1st.com/forum/202506/23/004958aq4psms4ufz8mqpp.jpg" referrerpolicy="no-referrer">
+
+<strong>20250623003503_1.jpg</strong> (383.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 00:49 上传
+
