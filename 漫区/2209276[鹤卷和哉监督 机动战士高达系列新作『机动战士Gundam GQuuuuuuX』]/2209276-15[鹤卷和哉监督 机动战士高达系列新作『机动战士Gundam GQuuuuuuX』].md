@@ -5898,3 +5898,70 @@ uce的剧情呀，哈哈哈uce也是替大家圆梦了，可惜是个手游。
 
 文字透这个应该是真的，这种剧情真编不出来
 
+
+*****
+
+####  猪突猛进R  
+##### 21123#       发表于 2025-6-22 20:25
+
+就当EVA看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  顾然  
+##### 21124#       发表于 2025-6-22 20:29
+
+什么神经病剧情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不会是真的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ヒトニナル  
+##### 21125#       发表于 2025-6-22 20:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他不说鸭子脱出是每个宇宙的基本定理是吧
+
+*****
+
+####  Piano-Forest  
+##### 21126#         楼主| 发表于 2025-6-22 20:34
+
+安田朗
+[https://x.com/akiman7/status/1936276569707995459](https://x.com/akiman7/status/1936276569707995459)
+
+昔描いたシャア族です
+<img src="https://p.sda1.dev/25/303cb08c4befa449ebf667ddfcecaa20/20250622_202707.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gquuu_06/status/1936062520172962080](https://x.com/gquuu_06/status/1936062520172962080)
+
+たおやかな午後を過ごすドゥーとゲーツくん
+<img src="https://p.sda1.dev/25/78bd33b99325574ead753628b9d0296a/20250622_202805.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/qwon2610/status/1936240872771010961](https://x.com/qwon2610/status/1936240872771010961)
+<img src="https://p.sda1.dev/25/ba418e342c95d4e9d362cb86cc97bc4f/20250622_202544.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mm_kc24/status/1936434159305752608](https://x.com/mm_kc24/status/1936434159305752608)
+<img src="https://p.sda1.dev/25/8e8ab9625ed1887612a44b0a256304d0/20250622_202651.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kazuming17/status/1936091657956737319](https://x.com/kazuming17/status/1936091657956737319)
+
+もうちょっとで本完成…！
+
+最後はEDの様に仲良く過ごせてるといいなと願いながら描いた。ニャアンの服、ロゴマークが良く分からなかったのでそれっぽいかんじで申し訳。
+<img src="https://p.sda1.dev/25/74459a3d63bbf08ba773d3cfff0538bb/20250622_202741.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dnchuu12/status/1936312315172762005](https://x.com/dnchuu12/status/1936312315172762005)
+
+GQuuuuuuX最終回、みんなで海行って最高の夏過ごして終われ
+<img src="https://p.sda1.dev/25/6204a4a6df75249d5ff0deef2d2ff0fc/20250622_202503.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e07e43b560146b38b6a9fcba58136cc4/20250622_202459.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 21127#       发表于 2025-6-22 20:35
+
+那个文字透就是400页分镜稿里面的台词+看图说话，当然400页到底对不对只能等周二了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
