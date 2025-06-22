@@ -4355,3 +4355,24 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 二周目废土任务快做完了，DLC尼尔那个小车还没遇到。。。
 
+
+*****
+
+####  HellMaster  
+##### 3346#       发表于 2025-6-22 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980924&amp;ptid=1978008" target="_blank">wolfwood 发表于 2025-6-22 16:34</a>
+二周目废土任务快做完了，DLC尼尔那个小车还没遇到。。。</blockquote>
+在中间的处理厂附近会出现。 一周目都有。
+
+
+*****
+
+####  真红眼教授  
+##### 3347#       发表于 2025-6-22 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980565&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 15:02</a>
+
+顺便问下 为什么平a连招都推荐重轻轻重 有啥区别？</blockquote>
+据说是后摇短可以随时闪避/格挡
+
