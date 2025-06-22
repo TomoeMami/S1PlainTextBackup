@@ -4165,3 +4165,11 @@ n网开始删除部分mod? 刚换资本家接手就这样了<img src="https://st
 
 — from samsung SM-S911U1, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  重新做人  
+##### 3326#       发表于 2025-6-22 09:53
+
+保护百合那个小游戏最后换键鼠过的，就这还重开了好几把，压dps才能过的东西手柄简直没法用
+
