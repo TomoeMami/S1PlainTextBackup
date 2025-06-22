@@ -5990,3 +5990,37 @@ uc版高达武斗传
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我估计正片台词怎么也得扩充点，分镜稿不可能给你都写出来，现在剧透很多台词上下文对不上
 
+
+*****
+
+####  希望之异热同心  
+##### 21131#       发表于 2025-6-22 20:47
+
+不是不想信，但哪来的火箭筒。。。这红高达就只剩一把光剑了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  psycho_Gadfly  
+##### 21132#       发表于 2025-6-22 20:53
+
+我已经麻了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果不是瞎编的 希望不是最终定稿
+
+（不过最终效果要是够乐。。。那也和解了
+
+*****
+
+####  赤黑的假面  
+##### 21133#       发表于 2025-6-22 20:55
+
+等下周二半夜就全知道了，急不得
+
+*****
+
+####  Sliurus  
+##### 21134#       发表于 2025-6-22 20:55
+
+咱不如停播重做吧<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
