@@ -3956,3 +3956,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 感觉国服比国际服要卷，是我的错觉吗，我自己打国服蓝宝石都感觉很难，而看国际服直播经常能看到蓝宝石迷惑 ...</blockquote>
 国服强度检测机<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saitohimea  
+##### 263#       发表于 2025-6-23 01:23
+
+今天遇到的教友和龙友都是走脸的，我感觉法友早晚要被打光。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
