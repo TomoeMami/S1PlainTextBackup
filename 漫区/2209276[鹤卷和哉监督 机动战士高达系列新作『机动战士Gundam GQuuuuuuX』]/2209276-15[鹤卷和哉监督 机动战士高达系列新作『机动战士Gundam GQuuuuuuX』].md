@@ -6060,3 +6060,18 @@ uc版高达武斗传
 乐</blockquote>
 不是，哪来的火箭筒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，红元祖不就剩一把光剑了吗
 
+
+*****
+
+####  千恋万花  
+##### 21138#       发表于 2025-6-22 21:06
+
+别在专楼里随便转或者讨论疑似剧透的内容为好吧
+
+*****
+
+####  fujissw  
+##### 21139#       发表于 2025-6-22 21:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">军警那段说实话有点不信了，打成这样还能有军警的事呢，大基都被毒杀了紫婆还复刻吃火箭筒有点没活了
+
