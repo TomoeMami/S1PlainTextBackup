@@ -5589,3 +5589,18 @@ IDEON和CCA并列第一，元祖第三，EVA原型可不就排第四了吗
 哈哈哈哈（没有恶意 
 <img src="https://p.sda1.dev/25/be052ad921a337ff5cdc1a9e11a135a3/IMG_20250622_115458.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 21092#       发表于 2025-6-22 12:14
+
+说到白学，GQ5-7集这种“三人关系里的边缘人偷跑”的调调我挺喜欢的，不过点到为止了
+
+*****
+
+####  盐盐盐盐盐  
+##### 21093#       发表于 2025-6-22 12:17
+
+这三个人虽然是三角恋但是其实除了麻球前面有点嫉妒以外都是三个人一起也行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就11集的麻球我看现在喵安再说我们三个可不可以在一起她估计也没意见了
+
