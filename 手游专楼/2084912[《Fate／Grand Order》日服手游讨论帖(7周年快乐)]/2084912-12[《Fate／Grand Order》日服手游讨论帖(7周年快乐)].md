@@ -631,3 +631,43 @@
 
 300石头只有3只玉藻猫<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，不刷了，自回体吧。
 
+
+*****
+
+####  大十字紅朔  
+##### 16953#       发表于 2025-6-22 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974719&amp;ptid=2084912" target="_blank">blue321 发表于 2025-6-21 01:33</a>
+
+手贱想补娄希丢了50进去，惨败而归还影响到后面周年了
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+那东西是常设的，我歪到宝具7了……
+
+*****
+
+####  khxooo  
+##### 16954#       发表于 2025-6-22 17:23
+
+ 本帖最后由 khxooo 于 2025-6-22 17:29 编辑 
+
+想了想，枪阶只有一个唐吉坷德一个群充，但是要30NP才能启动，而被动只有20NP，差10NP，或者用老芥给20NP让唐吉坷德启动？
+
+还是要用羁绊礼装解决NP问题吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+如果是5星神祖做对面还好，BBA还能打一下，如果是三星神祖或者BBA当守门员那就有得打了，星阵营、除了王特性没有其他可以特攻的<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">，哦忘记虞姬特攻三星神祖了，不过除了厨子谁喂老芥100级啊
+
+*****
+
+####  qixinno2  
+##### 16955#       发表于 2025-6-22 17:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">随便出 反正到时抱大腿
+
+*****
+
+####  乾理央  
+##### 16956#       发表于 2025-6-22 19:58
+
+感谢400个b叔，花了10个梦火终于抽到了果子龙<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

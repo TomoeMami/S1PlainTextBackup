@@ -43861,3 +43861,17 @@ No-san、Are-san非常感谢！  
 
 一会儿没看怎么变成szb专场了
 
+
+*****
+
+####  术士q  
+##### 18805#       发表于 2025-6-22 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981616&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-6-22 19:20</a>
+一会儿没看怎么变成szb专场了，观众参加型吗
+
+明天外出午饭回，明天不一定有ytb，今天结束应该有</blockquote>
+没有，就主要是主播牌瘾犯了，lol直接单排也玩不下去，就玩会szb了（）
+
+比起上次多了好多分，私底下应该玩得很开心2333
+
