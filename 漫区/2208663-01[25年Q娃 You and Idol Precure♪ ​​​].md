@@ -73,3 +73,13 @@
 
 剧情一如既往的无力吐槽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 1074#       发表于 2025-6-22 08:32
+
+第 19 集的 TVer 源（含日字）：magnet:?xt=urn:btih:1fd124af2ec16c2ca0216c160cc1859e008b02db
+
+第 20 集的 TVer 源（含日字）：magnet:?xt=urn:btih:47e87536454fdc21e111e3795ae8746e90dcdb46
+
