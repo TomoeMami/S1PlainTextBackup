@@ -63,3 +63,13 @@
 
 以后还是不像田中一样变人吗？毕竟要是人的话那个同居场景就有点糟糕了
 
+
+*****
+
+####  我吃诗人  
+##### 1073#       发表于 2025-6-22 08:13
+
+好公式的一集，信息量好低<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+剧情一如既往的无力吐槽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
