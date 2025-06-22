@@ -47,3 +47,19 @@
 
 但土田丰又来了，会赢吗<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1071#       发表于 2025-6-22 07:59
+
+这集太有活了，下周还是大河内，爽！
+
+
+*****
+
+####  himfsz  
+##### 1072#       发表于 2025-6-22 08:06
+
+以后还是不像田中一样变人吗？毕竟要是人的话那个同居场景就有点糟糕了
+
