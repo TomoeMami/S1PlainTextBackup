@@ -4462,3 +4462,11 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 【【剑星】废料处理场爬不上去的梯子宝箱(Stellar Blade 2024)】 https://www.bilibili.com/video ...</blockquote>
 我这也奇怪了半天，后来发现可以先跳到左边平台上，然后在跳+冲刺就上去了
 
+
+*****
+
+####  alucardcz  
+##### 3357#       发表于 2025-6-22 19:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点难崩 最后2个图 辛辛苦苦跳跳乐开的箱子90%都是一点用都没的辣鸡
+
