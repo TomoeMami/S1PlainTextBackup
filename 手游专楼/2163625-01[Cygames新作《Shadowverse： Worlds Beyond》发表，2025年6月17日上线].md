@@ -3877,3 +3877,21 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 请问有没有国际服的群啊
 
+
+*****
+
+####  saitohimea  
+##### 255#       发表于 2025-6-22 12:17
+
+昨晚打到凌晨，本来困得不行，结果看到这一幕精神了。
+
+<img src="https://img.stage1st.com/forum/202506/22/121443m1m41gm146tcfh6g.png" referrerpolicy="no-referrer">
+
+<strong>722eee605b629253b9751955234959f1.png</strong> (390.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 12:14 上传
+
+有没有漏油填一下，B7c6tmU，国际服
+

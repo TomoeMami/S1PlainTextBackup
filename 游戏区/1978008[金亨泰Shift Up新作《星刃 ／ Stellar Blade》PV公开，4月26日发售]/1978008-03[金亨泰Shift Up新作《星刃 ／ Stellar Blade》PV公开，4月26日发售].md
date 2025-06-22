@@ -4196,3 +4196,41 @@ nikke小游戏我都是换鼠标的轻松多了
 
 罐子收集进度除了主城那个展示箱之外不能看吗？
 
+
+*****
+
+####  waelaZed  
+##### 3330#       发表于 2025-6-22 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67979627&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-22 10:54</a>
+
+罐子收集进度除了主城那个展示箱之外不能看吗？</blockquote>
+右面sp经验那偶尔可以跳出一个完成数/总数,但是具体差哪个好像只能回主城看
+
+*****
+
+####  alucardcz  
+##### 3331#       发表于 2025-6-22 12:17
+
+ 本帖最后由 alucardcz 于 2025-6-22 12:18 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/22/121633gc6c3h5cyfdcgigb.png" referrerpolicy="no-referrer">
+
+<strong>3434.png</strong> (328.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 12:16 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">苇名抖刀术太强了 大沙漠进度乱杀红莲   正常靠目押连第2阶段都看不到 用了抖刀术直接1把过
+
+*****
+
+####  Anonymous_User  
+##### 3332#       发表于 2025-6-22 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67979055&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-22 08:41</a>
+
+n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
+什么mod被删了
+

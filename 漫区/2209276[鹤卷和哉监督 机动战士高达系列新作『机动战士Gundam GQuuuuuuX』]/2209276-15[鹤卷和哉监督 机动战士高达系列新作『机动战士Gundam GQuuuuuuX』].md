@@ -5604,3 +5604,14 @@ IDEON和CCA并列第一，元祖第三，EVA原型可不就排第四了吗
 
 这三个人虽然是三角恋但是其实除了麻球前面有点嫉妒以外都是三个人一起也行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就11集的麻球我看现在喵安再说我们三个可不可以在一起她估计也没意见了
 
+
+*****
+
+####  zzf111  
+##### 21094#       发表于 2025-6-22 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67978357&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-21 23:36</a>
+
+回顾一下本片刚开播没多久的时候，大家还是很期待旧人多出场的。光安琪就有很多人猜测她的真实身份，一开始 ...</blockquote>
+一般人也想不到这动画UCif真的只是个背景，老人里想讲的只有夏亚和绿叔叔（还一直吊着观众不给关键信息），博美队没头没尾就退场了，联邦侧的描写更是失重全是集抛噱头，剧情一大半都是三小只的变相言情水
+
