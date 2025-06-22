@@ -590,3 +590,44 @@
 九周年从者，ML代表兽艾雷表示落地后没有几个90++能上的，风头都被学姐抢了 ...</blockquote>
 学姐才是正宗九周年从者（的强度）。
 
+
+*****
+
+####  alucardcz  
+##### 16949#       发表于 2025-6-21 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975134&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-6-21 09:06</a>
+
+光炮一开始就抬出场了也没说啥不是吗
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">万一后面不是单体了呢！  
+
+*****
+
+####  jackyhuang  
+##### 16950#       发表于 2025-6-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975250&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-21 09:48</a>
+万一后面不是单体了呢！</blockquote>
+那要恭喜光炮喂到饭了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  都谷捻柏  
+##### 16951#       发表于 2025-6-21 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974485&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-6-20 23:50</a>
+
+九周年从者，ML代表兽艾雷表示落地后没有几个90++能上的，风头都被学姐抢了 ...</blockquote>
+学姐才是正宗九周年从者（的强度）。
+
+*****
+
+####  khxooo  
+##### 16952#       发表于 2025-6-22 10:42
+
+300石头只有3只玉藻猫<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，不刷了，自回体吧。
+
