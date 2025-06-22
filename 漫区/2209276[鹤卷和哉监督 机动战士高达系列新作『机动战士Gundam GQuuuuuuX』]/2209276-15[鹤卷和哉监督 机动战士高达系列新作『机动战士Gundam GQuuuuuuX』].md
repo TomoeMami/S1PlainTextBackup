@@ -6093,3 +6093,46 @@ uc版高达武斗传
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">ED结束后来个骡子三分钟把这帮人全点死算了
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 21142#       发表于 2025-6-22 21:34
+
+哪来的军警，这里只有基西莉亚的兵了吧
+
+*****
+
+####  西洛克  
+##### 21143#       发表于 2025-6-22 21:35
+
+看剧透鸭子又跑出去核拉拉老婆孩子热炕头了，担子交给鸭妹…
+
+这个倒和gaia gear的克隆鸭挺像的。
+
+*****
+
+####  神鹰黑手哥  
+##### 21144#       发表于 2025-6-22 21:36
+
+<blockquote>ryanghj 发表于 2025-6-22 19:43
+</blockquote>
+我不想说的太过分，这就是诗啊
+
+*****
+
+####  古怪山庄士大夫  
+##### 21145#       发表于 2025-6-22 21:36
+
+对面又没了，别讨论剧透了
+
+*****
+
+####  希望之异热同心  
+##### 21146#       发表于 2025-6-22 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982015&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-22 20:58</a>
+
+那位有說，搶軍警渣古的</blockquote>
+军警一个月才几个钱啊来参与世界线大战，有这无私奉献精神side6还能被政府暗地里扶持起来黑拳产业么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
