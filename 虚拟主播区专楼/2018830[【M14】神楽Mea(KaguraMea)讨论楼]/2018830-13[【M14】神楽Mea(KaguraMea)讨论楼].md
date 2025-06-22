@@ -43831,3 +43831,15 @@ No-san、Are-san非常感谢！  
 
 都有人跳脸跳到t台直播里了啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 18802#       发表于 2025-6-22 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980595&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-22 15:09</a>
+都有人跳脸跳到t台直播里了啊
+
+第一局进步好大，很厉害</blockquote>
+跳脸是发生了什么
+
