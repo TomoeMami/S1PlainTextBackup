@@ -59,3 +59,13 @@ senzu也是森</blockquote>
 
 小蜜蜂王朝了，决赛竟然apex数据第一，对三垫底
 
+
+*****
+
+####  Rainwedell  
+##### 4757#       发表于 2025-6-23 07:11
+
+已王朝<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
