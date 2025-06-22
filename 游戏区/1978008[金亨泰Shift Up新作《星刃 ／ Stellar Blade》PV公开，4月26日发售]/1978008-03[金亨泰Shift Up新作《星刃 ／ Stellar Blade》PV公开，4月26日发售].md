@@ -4425,3 +4425,11 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，这个收集星之泪的姿势更夸张了
 捡个饮料至于吗
 
+
+*****
+
+####  leonz79  
+##### 3353#       发表于 2025-6-22 18:15
+
+这大沙漠太狗屎了，找到玩老头环时必须看着攻略一步一步玩的感觉了
+

@@ -133,3 +133,16 @@
 
 噗哩伦的问题大概下2集解决了，之后就是梅洛伦了，这集梅洛伦明显就是还留着爱还有啥比这更重要呢……命吗？Q娃能出现余命三个月的这种剧情么？（虽然后面会救回来）
 
+
+*****
+
+####  pokemon最爱  
+##### 1078#       发表于 2025-6-22 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981180&amp;ptid=2208663" target="_blank">leleq 发表于 2025-6-22 17:37</a>
+
+梅洛伦：有🐂啊
+
+田中：你们把我房子都🐂了说啥呢</blockquote>
+现在推测Meroron的代价最可能的应该还是“未来”，也就是等战斗结束后直接缎带一灰当场去世这种展开<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
