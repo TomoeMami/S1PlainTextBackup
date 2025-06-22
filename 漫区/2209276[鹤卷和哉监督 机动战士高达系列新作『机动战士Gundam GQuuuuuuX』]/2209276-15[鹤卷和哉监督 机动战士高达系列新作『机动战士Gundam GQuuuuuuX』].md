@@ -5874,3 +5874,19 @@ uce的剧情呀，哈哈哈uce也是替大家圆梦了，可惜是个手游。
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  灵魂收割机  
+##### 21120#       发表于 2025-6-22 20:08
+
+高达吧舅舅互博中<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 21121#       发表于 2025-6-22 20:11
+
+还有舅舅摔跤环节？不过也就差两天了
+
