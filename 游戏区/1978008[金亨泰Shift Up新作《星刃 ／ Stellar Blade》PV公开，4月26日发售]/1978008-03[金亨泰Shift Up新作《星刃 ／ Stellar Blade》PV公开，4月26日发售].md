@@ -4710,3 +4710,21 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 2025-6-23 00:49 上传
 
+
+*****
+
+####  oyss  
+##### 3381#       发表于 2025-6-23 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982883&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 23:34</a>
+
+我倒是想问下这个射击跟班机器人是不是唯一一个不能暗杀的怪</blockquote>
+可以,从高处
+
+*****
+
+####  oyss  
+##### 3382#       发表于 2025-6-23 01:11
+
+发现个问题,既然大沙漠一开始没通电. 为什么地下铁那里有电....
+
