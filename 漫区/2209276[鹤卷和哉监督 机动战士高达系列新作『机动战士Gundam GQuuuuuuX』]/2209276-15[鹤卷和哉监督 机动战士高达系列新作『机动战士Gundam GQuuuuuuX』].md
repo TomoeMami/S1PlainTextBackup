@@ -6729,3 +6729,33 @@ X 上的 Choco＠にじそ【た-17】：“ヒゲマンとマチュの特訓捏
 
 结果是if的if，确实是高堡奇人
 
+
+*****
+
+####  aquakane  
+##### 21188#       发表于 2025-6-23 00:23
+
+主世界是鸭子被铜丝的if，这个世界是if的if，这个第九集就告诉你了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  好想看Mujica啊  
+##### 21189#       发表于 2025-6-23 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982998&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-23 00:03</a>
+河豚真有雷达也不会一月了</blockquote>
+你在说鸡吗，百综楼从第4话就开始骂了，一边骂一边看，有些片子不是说烂了就不看的
+
+*****
+
+####  璇瑢子R  
+##### 21190#       发表于 2025-6-23 00:25
+
+最被否定的不是索引派（借个词）
+
+就是无限去找细节然后用细节推理故事中各种行为逻辑和自洽性的，也是各种专楼绝大部分楼层讨论的东西。。。
+
+结果最后告诉你这些细节根本无人在意
+

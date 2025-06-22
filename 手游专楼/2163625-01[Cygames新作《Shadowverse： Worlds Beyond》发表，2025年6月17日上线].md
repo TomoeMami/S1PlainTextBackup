@@ -3935,3 +3935,14 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 这分组是怎么分的，看总胜率吗<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 261#       发表于 2025-6-23 00:18
+
+ 本帖最后由 辞冬 于 2025-6-23 00:21 编辑 
+
+感觉国服比国际服要卷，是我的错觉吗，我自己打国服蓝宝石都感觉很难，而看国际服直播经常能看到蓝宝石迷惑选手
+还是我太菜了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
