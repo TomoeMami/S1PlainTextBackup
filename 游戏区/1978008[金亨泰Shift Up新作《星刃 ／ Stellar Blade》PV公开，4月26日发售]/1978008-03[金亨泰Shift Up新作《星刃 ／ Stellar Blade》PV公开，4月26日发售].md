@@ -4502,3 +4502,14 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 学会无脑按振刀键脚打 等于只要看闪避 存个4 5格能量后除了最后的强制演出根本没有她动的时候i ...</blockquote>
 这个振刀……是按防御吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3361#       发表于 2025-6-22 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981828&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-6-22 20:13</a>
+
+这个振刀……是按防御吗</blockquote>
+是 打红莲无脑连点就是了 
+
