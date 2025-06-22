@@ -404,3 +404,58 @@ miko也打枪了
 
 不知道是不是要告知那个消息了
 
+
+*****
+
+####  holofan  
+##### 11072#       发表于 2025-6-22 16:19
+
+<img src="https://img.stage1st.com/forum/202506/22/161635e650500i3cvg6ygv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 16:16 上传
+
+这么急
+
+就差把发表内容直接写在封面上了
+
+但是就这点事特地做个直播告知也未免太小题大作了
+
+*****
+
+####  holofan  
+##### 11073#       发表于 2025-6-22 19:13
+
+<img src="https://img.stage1st.com/forum/202506/22/191329ow28vgxxpqpxyvlq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 19:13 上传
+
+什么下一个直播窗任天堂许可已经写上去了
+
+*****
+
+####  holofan  
+##### 11074#       发表于 2025-6-22 19:16
+
+<img src="https://img.stage1st.com/forum/202506/22/191633fzwnk1zkk2wu43nz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 19:16 上传
+
+*****
+
+####  holofan  
+##### 11075#       发表于 2025-6-22 19:17
+
+哦日亚的ns2购买资格啊
+

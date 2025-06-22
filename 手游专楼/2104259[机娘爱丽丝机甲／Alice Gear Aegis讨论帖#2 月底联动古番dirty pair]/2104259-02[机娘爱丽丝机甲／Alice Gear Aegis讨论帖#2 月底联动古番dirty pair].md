@@ -353,3 +353,13 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1505#       发表于 2025-6-22 19:08
+
+看pv感觉冰系那个会不会是红毛矮子艾玛酱的光狙模组啊
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
