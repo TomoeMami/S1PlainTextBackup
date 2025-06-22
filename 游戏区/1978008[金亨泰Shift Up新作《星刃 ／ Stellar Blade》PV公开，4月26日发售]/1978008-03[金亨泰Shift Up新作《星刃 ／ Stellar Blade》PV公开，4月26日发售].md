@@ -4271,3 +4271,14 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 这游戏普通难度难吗？我看你们打得多辛苦，我即使是一周目第一关没啥升级组件都打得很爽，boss基本一次过， ...</blockquote>
 喊难不代表打不过，可能前脚喊难后脚就过了，有时候叫唤的越大声说明越享受游戏
 
+
+*****
+
+####  永远的访客  
+##### 3337#       发表于 2025-6-22 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67979940&amp;ptid=1978008" target="_blank">Anonymous_User 发表于 2025-6-22 12:21</a>
+
+什么mod被删了</blockquote>
+有人反应删了一个废品回收妹子改露腿的mod，刚才我去翻过，确实似乎总数少了些，但我都没用过不能准确对比，只能说是感觉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
