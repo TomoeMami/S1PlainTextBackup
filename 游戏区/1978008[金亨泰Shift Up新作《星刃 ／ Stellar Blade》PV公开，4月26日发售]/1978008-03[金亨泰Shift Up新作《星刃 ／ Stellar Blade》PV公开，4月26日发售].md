@@ -4153,3 +4153,15 @@ n网开始删除部分mod? 刚换资本家接手就这样了<img src="https://st
 — from samsung SM-S911U1, Android 15, S1 Next G ...</blockquote>
 打防守点的小机器人炸弹清场，不要挪窝躲子弹，拼血时间才能够
 
+
+*****
+
+####  strider_oy  
+##### 3325#       发表于 2025-6-22 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67979063&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-6-21 16:43</a>
+打防守点的小机器人炸弹清场，不要挪窝躲子弹，拼血时间才能够</blockquote>
+换难度打了，太粪了，感觉数值有问题。其他基本都是一次过，这个打了好几次都看不到希望。
+
+— from samsung SM-S911U1, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
