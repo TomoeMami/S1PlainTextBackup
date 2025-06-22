@@ -6687,3 +6687,37 @@ X 上的 Choco＠にじそ【た-17】：“ヒゲマンとマチュの特訓捏
 
 怎么都比河豚好多了吧，至少没人天天攻击俩女主只因为她们不搞bg（虽然可能也攻击不了毕竟这剧俩人嘴里三句话不离修司），也没人说只要结局bg成了就不许骂了，反倒是牢修还没干啥坏事都挨骂三个月甚至小半年了
 
+
+*****
+
+####  岸波白野  
+##### 21183#       发表于 2025-6-23 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982972&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-22 23:54</a>
+
+怎么都比河豚好多了吧，至少没人天天攻击俩女主只因为她们不搞bg（虽然可能也攻击不了毕竟这剧俩人嘴里三句 ...</blockquote>
+反过来说河豚烂片预警雷达好过撑到现在的绝大多数这片其他受众，我甚至现在都想不起河豚具体在哪个节点全面撤出还是压根就没上过钩<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 21184#       发表于 2025-6-23 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982992&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-6-23 00:01</a>
+ 反过来说河豚烂片预警雷达好过撑到现在的绝大多数这片其他受众，我甚至现在都想不起河豚具体在哪个节点全 ...</blockquote>
+河豚真有雷达也不会一月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">了
+
+*****
+
+####  洛克萨斯  
+##### 21185#       发表于 2025-6-23 00:04
+
+..........................创形者再起那个编剧还没死吧，不会告诉我现在日升已经没有正常人能写高达剧本了吧
+
+*****
+
+####  blckfyre  
+##### 21186#       发表于 2025-6-23 00:04
+
+夏亚吃的最好的一集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

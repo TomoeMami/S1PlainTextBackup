@@ -4650,3 +4650,47 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 作者偷工减料，其实可以做成这个机器人自带360雷达接近必反应，也好比现在一看就是没设计暗杀动画靠谱（希望下一代再增加短期屏蔽机器人功能的电磁手雷，目前这个实在太鸡肋了，弄得我常驻相机）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3376#       发表于 2025-6-22 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982915&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-22 23:41</a>
+还有炮台不能暗杀，触手不能暗杀
+
+作者偷工减料，其实可以做成这个机器人自带360雷达接近必反应，也好比现 ...</blockquote>
+这机器人能高空暗杀…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  袄_偶滴小乔  
+##### 3377#       发表于 2025-6-22 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982883&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 23:34</a>
+我倒是想问下这个射击跟班机器人是不是唯一一个不能暗杀的怪</blockquote>
+小比蒙狮我记得也不能暗杀
+
+
+*****
+
+####  alucardcz  
+##### 3378#       发表于 2025-6-23 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982982&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-22 23:59</a>
+
+小比蒙狮我记得也不能暗杀</blockquote>
+这是哪个怪 大沙漠的吗 可以暗杀
+
+*****
+
+####  Andariel  
+##### 3379#       发表于 2025-6-23 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982982&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-6-22 23:59</a>
+小比蒙狮我记得也不能暗杀</blockquote>
+可以的
+他这个体型长，要离的很近快踩到尾巴了才会出暗杀qte
+
