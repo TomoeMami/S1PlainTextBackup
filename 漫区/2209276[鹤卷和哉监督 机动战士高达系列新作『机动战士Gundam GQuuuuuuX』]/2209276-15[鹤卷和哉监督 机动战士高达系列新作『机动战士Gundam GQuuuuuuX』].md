@@ -6075,3 +6075,21 @@ uc版高达武斗传
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">军警那段说实话有点不信了，打成这样还能有军警的事呢，大基都被毒杀了紫婆还复刻吃火箭筒有点没活了
 
+
+*****
+
+####  黑翼死神  
+##### 21140#       发表于 2025-6-22 21:18
+
+不是，如果是劇透真的怎麼好像要搞漫威那套了
+
+不會是真的吧 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 21141#       发表于 2025-6-22 21:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">ED结束后来个骡子三分钟把这帮人全点死算了
+
