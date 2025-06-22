@@ -6024,3 +6024,39 @@ uc版高达武斗传
 
 咱不如停播重做吧<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 21135#       发表于 2025-6-22 20:58
+
+<blockquote>希望之异热同心 发表于 2025-6-22 20:47
+不是不想信，但哪来的火箭筒。。。这红高达就只剩一把光剑了啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那位有說，搶軍警渣古的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 21136#       发表于 2025-6-22 21:01
+
+一个是分镜稿不一定是全台词
+
+再一个是收录阶段也会对台本进行修改
+
+所以最后对话可能会有微调但是整体剧情应该已经确定了
+
+修司是一个历史修正者，追寻拉拉而来，无数次毁灭拉拉制造的世界，这一次拉拉造了玛秋来让他理解自己为何会为了所爱的人不断的创造新世界
+
+
+*****
+
+####  g救世主高达  
+##### 21137#       发表于 2025-6-22 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981212&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-22 17:45</a>
+
+乐</blockquote>
+不是，哪来的火箭筒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，红元祖不就剩一把光剑了吗
+
