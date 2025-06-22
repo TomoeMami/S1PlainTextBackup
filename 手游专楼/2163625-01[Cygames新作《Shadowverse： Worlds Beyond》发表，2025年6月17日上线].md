@@ -3895,3 +3895,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 有没有漏油填一下，B7c6tmU，国际服
 
+
+*****
+
+####  zyb  
+##### 256#       发表于 2025-6-22 15:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">好弱智啊，国服广场里所有界面跳转都会失败一次再重试才行
+
