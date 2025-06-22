@@ -4173,3 +4173,18 @@ n网开始删除部分mod? 刚换资本家接手就这样了<img src="https://st
 
 保护百合那个小游戏最后换键鼠过的，就这还重开了好几把，压dps才能过的东西手柄简直没法用
 
+
+*****
+
+####  alucardcz  
+##### 3327#       发表于 2025-6-22 09:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说明完美还原nikke nikke里面这种关卡以前不用bug的话是最难的
+
+*****
+
+####  黑耀星尘  
+##### 3328#       发表于 2025-6-22 09:59
+
+nikke小游戏我都是换鼠标的轻松多了
+
