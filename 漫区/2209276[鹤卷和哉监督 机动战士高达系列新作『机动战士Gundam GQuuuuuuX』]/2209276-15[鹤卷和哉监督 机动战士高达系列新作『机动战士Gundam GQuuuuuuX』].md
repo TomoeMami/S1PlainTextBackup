@@ -5510,3 +5510,13 @@ m的画册资料都不是正史 ﹃_﹃〣  简直从一开始就没有锅
 X 上的 ぞーーー：“ジークアクス最終話の漫画 #GQuuuuuuX #ジークアクス [url]https://t.co/lL8ZNcbGL6” ...</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  hgvghv7tr7  
+##### 21085#       发表于 2025-6-22 09:12
+
+最近一个月把0079剧场版和Z TV版补完了，收获很多乐趣，以前只看过0080 0083 08ms等短篇，这次要感谢GQX啊
+
+—— 来自 vivo V2329A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
