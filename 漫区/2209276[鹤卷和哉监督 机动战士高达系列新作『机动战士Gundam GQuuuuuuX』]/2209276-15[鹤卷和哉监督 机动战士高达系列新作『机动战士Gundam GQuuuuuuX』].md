@@ -6861,3 +6861,18 @@ yysy
 
 反正这动画最惨的就是那些考据党吧，考据出来不是偶像厨私货就是oped歌手
 
+
+*****
+
+####  云野十五  
+##### 21200#       发表于 2025-6-23 04:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983320&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-6-23 03:34</a>
+
+yysy
+
+按这个剧透
+
+拉拉是不是该和妮娜坐一桌了</blockquote>
+普罗斯佩拉：我要创造一个有艾莉的世界
+
