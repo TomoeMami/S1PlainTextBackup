@@ -4376,3 +4376,35 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 顺便问下 为什么平a连招都推荐重轻轻重 有啥区别？</blockquote>
 据说是后摇短可以随时闪避/格挡
 
+
+*****
+
+####  Andariel  
+##### 3348#       发表于 2025-6-22 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980972&amp;ptid=1978008" target="_blank">HellMaster 发表于 2025-6-22 16:47</a>
+在中间的处理厂附近会出现。 一周目都有。</blockquote>
+就在妮姬联动那只狗往西边走一点就能遇到
+
+*****
+
+####  alucardcz  
+##### 3349#       发表于 2025-6-22 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980997&amp;ptid=1978008" target="_blank">真红眼教授 发表于 2025-6-22 16:53</a>
+
+据说是后摇短可以随时闪避/格挡</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">原来如此 不过我经常按错（
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3350#       发表于 2025-6-22 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980521&amp;ptid=1978008" target="_blank">不入流美术 发表于 2025-6-22 14:51</a>
+
+宿营地坐椅子上的时候怎么拍照，没有比这个姿势更御姐的了</blockquote>
+就和平时一样啊，RB+←
+
+然后有些营地的椅子因为第一次坐会有额外剧情对话，坐姿和普通的还会有些区别
+

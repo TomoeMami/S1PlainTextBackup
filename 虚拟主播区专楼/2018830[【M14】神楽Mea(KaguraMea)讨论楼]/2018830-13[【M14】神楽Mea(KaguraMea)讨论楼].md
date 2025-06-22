@@ -43843,3 +43843,13 @@ No-san、Are-san非常感谢！  
 第一局进步好大，很厉害</blockquote>
 跳脸是发生了什么
 
+
+*****
+
+####  术士q  
+##### 18803#       发表于 2025-6-22 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981124&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-6-22 17:22</a>
+跳脸是发生了什么</blockquote>
+就开始的时候有人跳脸说boost什么的话，也是今天才关注的人，也有打英文说脏话的，mea没理那些人，后面评论区就好很多了
+
