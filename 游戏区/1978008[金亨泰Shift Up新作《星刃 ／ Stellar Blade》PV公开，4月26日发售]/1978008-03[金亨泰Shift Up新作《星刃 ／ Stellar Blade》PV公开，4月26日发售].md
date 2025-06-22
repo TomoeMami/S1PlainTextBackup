@@ -4282,3 +4282,21 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 什么mod被删了</blockquote>
 有人反应删了一个废品回收妹子改露腿的mod，刚才我去翻过，确实似乎总数少了些，但我都没用过不能准确对比，只能说是感觉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3338#       发表于 2025-6-22 14:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这游戏知道套路后的确没难度 只有数值没有交互
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">开场苇名抖刀术积累点能量 然后就开始剑气压着打 凡是能倒地的都是虐杀 包括红莲
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是你要我玩交互。。我感觉比魂游难多了。例子还是红莲
+
+*****
+
+####  不入流美术  
+##### 3339#       发表于 2025-6-22 14:51
+
+宿营地坐椅子上的时候怎么拍照，没有比这个姿势更御姐的了
+
