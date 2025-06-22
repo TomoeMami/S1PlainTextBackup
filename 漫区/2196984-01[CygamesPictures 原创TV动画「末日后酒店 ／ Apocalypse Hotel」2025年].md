@@ -7209,3 +7209,11 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v3.5 ...</blockquote>
 这下真成饥荒了，感谢大自然的馈赠<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 612#       发表于 2025-6-22 23:51
+
+看到现在才想起来地球的纸币质量真是好
+

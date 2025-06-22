@@ -6470,3 +6470,220 @@ X 上的 Choco＠にじそ【た-17】：“ヒゲマンとマチュの特訓捏
 按剧透来看喵安纯小透明榎户钦点的无法理解的角色</blockquote>
 所以喵安只是鹤卷用来给作品加点青春感的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜守望者  
+##### 21177#       发表于 2025-6-22 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982756&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-22 23:03</a>
+
+去贴吧看了眼，感觉全是回旋镖。以前嘲讽河豚“只要有女女其他都无所谓”，现在看到结局有kiss，一大帮人也 ...</blockquote>
+只要抱着“要跟对立面一样极端甚至更极端”的想法，这不是必然的结果吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 21178#       发表于 2025-6-22 23:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">进机战? 直接出个机战like作把本作贴上标题然后番茄喵安就是两主角让你选
+
+泽科诺瓦这种科技不当机战主轴就是暴殄天物啊
+
+
+*****
+
+####  岸浪白野  
+##### 21179#       发表于 2025-6-22 23:52
+
+ 本帖最后由 岸浪白野 于 2025-6-22 23:54 编辑 
+
+[X 上的 まぐ太：“祝復活 アンナミラーズ！ アンミラバニーセシリアさん](https://x.com/magmag/status/1936636378894503942)[https://t.co/DGn6TUa5XV](https://t.co/DGn6TUa5XV)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234354csvs9tyvx2ez97zu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:43 上传
+
+[X 上的 カニ玉：“とばっちり クワトロ大尉もかっこいいですよ](https://x.com/kanikanisan31/status/1936718933761138883)[https://t.co/aD7O5On7Lm](https://t.co/aD7O5On7Lm)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234846n0idpxi6vi6i59x5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:48 上传
+
+[X 上的 上向だい@5巻発売中：“最終話楽しみ！ #GQuuuuuuX #ジークアクス](https://x.com/dai_uemukai/status/1936746316119597106)[https://t.co/JOCrY6Q51a](https://t.co/JOCrY6Q51a)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234700q3kawulphulcc2ah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:47 上传
+
+[X 上的 荳吉：“#GQuuuuuuX](https://x.com/mm_kc24/status/1936706342192038394)[https://t.co/gk8f0ObVex](https://t.co/gk8f0ObVex)” / X
+[X 上的 荳吉：“#GQuuuuuuX](https://x.com/mm_kc24/status/1936793469412135147)[https://t.co/6WJASMp7N1](https://t.co/6WJASMp7N1)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234521noxvc84cfo5vq4qi.png" referrerpolicy="no-referrer">
+
+<strong>8LOKGP90YhO}]C0JV@E.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/22/234742ipn0ju5uq2w0lt76.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:47 上传
+
+[X 上的 🧶：“GQX学パロ② 色々適当です。 悩んだけどザベくんたちは上級生にした。 基本平和世界なのでギャグ喧嘩ばかりしてます。 まちゅは段々、その平和な学校の日常に疑問を持ち始めたり、しゅうじが言うがんだむってなんか聞き覚えがあるようなってなったりする…かも](https://x.com/keito_002468/status/1936670403990294820)[https://t.co/2ejTL4vUB2](https://t.co/2ejTL4vUB2)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234445yh5ah6wu7h4z731e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:44 上传
+
+[X 上的 チバサ：“コモりんはシークレット枠なんでしょうか #GQuuuuuuX #ジークアクス](https://x.com/tibasa9/status/1936711982880862210)[https://t.co/Fe1PYc1jBB](https://t.co/Fe1PYc1jBB)” / X
+[X 上的 チバサ：“マチュコモ✨✨ #GQuuuuuuX #ジークアクス](https://x.com/tibasa9/status/1936740971523518604)[https://t.co/erMFTmsIht](https://t.co/erMFTmsIht)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234556qbtggbst3hqabf2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/22/234612j3k2iwd2wkw1dmf2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:46 上传
+
+[X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“ニュータイプ特有のザルセキュリティでよけいな連中が割って入ってくるニュータイプ過密宙域 #GQuuuuuuX](https://x.com/takuteks/status/1936597511273374001)[https://t.co/8Xpz4wYCQy](https://t.co/8Xpz4wYCQy)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234141p4111zikz44oy414.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (491.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:41 上传
+
+[X 上的 P-tan：“Nyaaaaaan🐈‍⬛💕](https://x.com/okrdisk2000/status/1936624623573217559)[https://t.co/GzZYSki6Er](https://t.co/GzZYSki6Er)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234333q4f1l8irfx0lpfyl.png" referrerpolicy="no-referrer">
+
+<strong>R@[@7FW75POQMP)S050KM5W.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:43 上传
+
+[X 上的 85猫：“ニャアン「やだ…」 #GQuuuuuuX　#ジークアクス](https://x.com/85boxcat/status/1936629133481791504)[https://t.co/wJdFyXbriP](https://t.co/wJdFyXbriP)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234300qll72s8agd82i297.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:43 上传
+
+[X 上的 かにビーム：“裸パーカー猫耳しっぽニーソニャアン](https://x.com/kani_biimu/status/1936596670185382090)[https://t.co/9Sq79L0czR](https://t.co/9Sq79L0czR)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234414pty9ttaty1g3yhtd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (935.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:44 上传
+
+[X 上的 하여：“냐안](https://x.com/LY_Howe/status/1936735141449335037)[https://t.co/OJ1Im884mH](https://t.co/OJ1Im884mH)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234936r9e8ebw2u9gwnai9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:49 上传
+
+[X 上的 カプピ：“[url]https://t.co/035tdfML21](https://x.com/kaputyuuuu/status/1936731186740797721)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/22/235415avqtt33t2224otz2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:54 上传
+
+[X 上的 ｱﾆﾒｰﾀｰ K：“MATYU](https://x.com/cat_thankyou/status/1936629579952820531)[https://t.co/V6dCv4bjPl](https://t.co/V6dCv4bjPl)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234825z2g8sgil9b25zill.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:48 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ⑬ #GQuuuuuuX](https://x.com/SuiSui_dm/status/1936732631833702672)[https://t.co/QnqQubdX8K](https://t.co/QnqQubdX8K)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234630disizvsxgiys20mn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:46 上传
+
+[X 上的 ayami：“二人はプリキュア！](https://x.com/aymipictures/status/1936758506092478643)[https://t.co/AOGXe5cn7m](https://t.co/AOGXe5cn7m)” / X
+
+<img src="https://img.stage1st.com/forum/202506/22/234901l4txxsysmfesckkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 23:49 上传
+
+*****
+
+####  七七見奈波  
+##### 21180#       发表于 2025-6-22 23:52
+
+一想到礼拜二半夜会播这玩意然后礼拜三还得起个大早正常上班就失去了一部分看直播的勇气（另一部分被好奇心和“这可是最后一话了”给套牢了）
+
+*****
+
+####  花達香奈  
+##### 21181#       发表于 2025-6-22 23:54
+
+菲姐ed已经怎样都无所谓了原来说的不是茄喵而是被耍的观众啊<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 21182#       发表于 2025-6-22 23:54
+
+怎么都比河豚好多了吧，至少没人天天攻击俩女主只因为她们不搞bg（虽然可能也攻击不了毕竟这剧俩人嘴里三句话不离修司），也没人说只要结局bg成了就不许骂了，反倒是牢修还没干啥坏事都挨骂三个月甚至小半年了
+
