@@ -4408,3 +4408,20 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 然后有些营地的椅子因为第一次坐会有额外剧情对话，坐姿和普通的还会有些区别
 
+
+*****
+
+####  mhss  
+##### 3351#       发表于 2025-6-22 17:44
+
+下OST找曲子全听一遍看看，黑猴那种菜单就能听的真是太方便了。
+话说pv里那段闸门qte滑行接超级管道的配乐，游戏中出现在一个短短的向下滑行场景，没听个几秒就没了，听都听不全<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3352#       发表于 2025-6-22 17:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，这个收集星之泪的姿势更夸张了
+捡个饮料至于吗
+
