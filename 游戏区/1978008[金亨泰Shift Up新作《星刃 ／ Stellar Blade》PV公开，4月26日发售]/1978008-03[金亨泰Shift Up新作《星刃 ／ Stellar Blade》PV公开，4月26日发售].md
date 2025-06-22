@@ -4433,3 +4433,32 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 这大沙漠太狗屎了，找到玩老头环时必须看着攻略一步一步玩的感觉了
 
+
+*****
+
+####  银色天空  
+##### 3354#       发表于 2025-6-22 18:19
+
+二周目换成英语，伊芙一下子老了几岁，之后听听莉莉的怎么样再换回日语吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 3355#       发表于 2025-6-22 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980715&amp;ptid=1978008" target="_blank">mhss 发表于 2025-6-22 15:38</a>
+一周目通了，MONACA摸鱼是摸的真过分，总曲量主观感受不多，抓耳的曲子就没几首，营地的曲子居然不是收集制 ...</blockquote>
+路上有曲子收集的
+
+
+*****
+
+####  TonyKnight  
+##### 3356#       发表于 2025-6-22 18:23
+
+<blockquote>哈迪斯兜帽 发表于 2025-6-13 08:39
+妈的弱智
+
+【【剑星】废料处理场爬不上去的梯子宝箱(Stellar Blade 2024)】 https://www.bilibili.com/video ...</blockquote>
+我这也奇怪了半天，后来发现可以先跳到左边平台上，然后在跳+冲刺就上去了
+

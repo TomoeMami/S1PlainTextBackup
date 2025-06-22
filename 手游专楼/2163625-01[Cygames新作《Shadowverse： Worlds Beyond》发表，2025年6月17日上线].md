@@ -3903,3 +3903,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">好弱智啊，国服广场里所有界面跳转都会失败一次再重试才行
 
+
+*****
+
+####  千千千千鸟  
+##### 257#       发表于 2025-6-22 18:22
+
+确实有国际服群不，进群学习下
+
