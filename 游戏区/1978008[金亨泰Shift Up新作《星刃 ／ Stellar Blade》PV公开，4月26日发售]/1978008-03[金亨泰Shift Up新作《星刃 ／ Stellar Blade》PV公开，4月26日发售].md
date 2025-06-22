@@ -4552,3 +4552,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 这游戏弹反苇名抖刀术巨容易，我打第一个boss时就发现了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我打不过红莲去搜逃课视频才发现还能苇名抖刀术  之前老老实实看动作靠反应打被虐的不要不要 甚至剧情模式出qte都来不及按
 
+
+*****
+
+####  荆棘花冠  
+##### 3366#       发表于 2025-6-22 21:57
+
+红莲抖刀术翘课还挺容易得
+
+曼恩才是抖刀没啥卵用，全是慢刀跟超慢刀
+

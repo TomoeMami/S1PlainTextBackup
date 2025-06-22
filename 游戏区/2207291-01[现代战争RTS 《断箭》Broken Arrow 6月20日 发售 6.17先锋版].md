@@ -1124,3 +1124,21 @@ Warno的话相对操作量大一点，不过打打AI 用一步一坑的烂仗方
 
 PVP好歹还会看轨迹，或者挨炸以后才会撤退
 
+
+*****
+
+####  LrGsite  
+##### 84#       发表于 2025-6-22 22:01
+
+<img src="https://img.stage1st.com/forum/202506/22/220036l2wywayjwmamowam.png" referrerpolicy="no-referrer">
+
+<strong>6DDS5Y2BKDJ5XCWF%T1ZT3V.png</strong> (519.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 22:00 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">打完了 小丑竟是我自己
+
+美军战役最后选择没有摧毁大坝，俄军战役最后选择消灭了舰队，怎么是这种结局
+
