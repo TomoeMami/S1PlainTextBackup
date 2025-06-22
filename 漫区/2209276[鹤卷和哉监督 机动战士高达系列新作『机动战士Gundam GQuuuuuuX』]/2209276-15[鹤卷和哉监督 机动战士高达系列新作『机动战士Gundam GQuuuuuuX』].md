@@ -6759,3 +6759,27 @@ X 上的 Choco＠にじそ【た-17】：“ヒゲマンとマチュの特訓捏
 
 结果最后告诉你这些细节根本无人在意
 
+
+*****
+
+####  Devola  
+##### 21191#       发表于 2025-6-23 00:28
+
+还是要谢谢gqx
+三动斧王好用的
+
+
+*****
+
+####  ryanghj  
+##### 21192#       发表于 2025-6-23 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983068&amp;ptid=2209276" target="_blank">aquakane 发表于 2025-6-23 00:23</a>
+
+主世界是鸭子被铜丝的if，这个世界是if的if，这个第九集就告诉你了吧
+
+—— 来自 Xiaomi 23078RKD5C, Andro ...</blockquote>
+第九集有点诡叙在里面的，逆鸭最后也可以说是被白色高达杀死了
+
+不过有一点很重要，就是第九集明确说了是夏亚先死，然后吉翁才战败的，这点当时也有人注意到了
+
