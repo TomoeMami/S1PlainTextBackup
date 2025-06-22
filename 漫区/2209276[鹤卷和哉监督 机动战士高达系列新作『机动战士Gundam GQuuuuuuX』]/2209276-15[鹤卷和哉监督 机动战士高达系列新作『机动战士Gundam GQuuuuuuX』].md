@@ -5651,3 +5651,19 @@ IDEON和CCA并列第一，元祖第三，EVA原型可不就排第四了吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ryanghj  
+##### 21098#       发表于 2025-6-22 14:01
+
+ucif要真是背景板还好了，其实第九集拉拉出来有点喧宾夺主了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤黑的假面  
+##### 21099#       发表于 2025-6-22 14:05
+
+主要还是之前他们访谈信誓旦旦说要重构新人类，结果现在看是宇宙世纪主题公园，有种被电信诈骗的感觉
+
