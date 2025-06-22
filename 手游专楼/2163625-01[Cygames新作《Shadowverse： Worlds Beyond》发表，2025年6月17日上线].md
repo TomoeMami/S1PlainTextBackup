@@ -3964,3 +3964,14 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 今天遇到的教友和龙友都是走脸的，我感觉法友早晚要被打光。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  olkzdf  
+##### 264#       发表于 2025-6-23 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983057&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-23 00:18</a>
+
+感觉国服比国际服要卷，是我的错觉吗，我自己打国服蓝宝石都感觉很难，而看国际服直播经常能看到蓝宝石迷惑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就以前的印象而言也是国服比国际服卷，但1代国服人少随便打打就能吃低保，然而想冲排名那就是地狱了，国际服鱼多而国服是鲨鱼多
+
