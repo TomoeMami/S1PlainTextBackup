@@ -3927,3 +3927,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 不是增幅法和龙的BO10吗
 
+
+*****
+
+####  Mokou1207  
+##### 260#       发表于 2025-6-22 23:01
+
+这分组是怎么分的，看总胜率吗<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
