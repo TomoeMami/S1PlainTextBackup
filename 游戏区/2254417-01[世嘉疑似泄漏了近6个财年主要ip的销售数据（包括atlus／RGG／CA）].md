@@ -766,3 +766,14 @@ NS出了四五年了才出真有脸叫护航...</blockquote>
 
 作为二十多年前从幕府将军1开始玩，主要只玩过全战系列里各种子系列1代的人来说，RTS包括帝国4之类为何非要追求派系根本性差异。大家都是人类，甚至都是同一个文明内战，能差别到哪去。搞成为不同而不同，各种用历史名词命名但实际游戏机制效果需要极其扭曲的脑补才能联想上的特殊科技。感觉就一切都在“卡牌化”
 
+
+*****
+
+####  佛剑分说  
+##### 79#       发表于 2025-6-22 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975163&amp;ptid=2254417" target="_blank">gatoanavel 发表于 2025-6-21 09:18</a>
+
+锤3 比 三国 差近百万销量？</blockquote>
+惊呼中国玩家恐怖如斯<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

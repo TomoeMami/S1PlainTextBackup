@@ -1200,3 +1200,14 @@ PS:进游戏第一件事把画质调高，不然画面超糊。
 
 这么烂吗，本来还挺期待的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 101#       发表于 2025-6-22 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949583&amp;ptid=2247492" target="_blank">bill910 发表于 2025-6-16 20:50</a>
+
+买了，在淘宝店买了，220多块</blockquote>
+ns试玩版没有中文，不知道正式版有没有。
+

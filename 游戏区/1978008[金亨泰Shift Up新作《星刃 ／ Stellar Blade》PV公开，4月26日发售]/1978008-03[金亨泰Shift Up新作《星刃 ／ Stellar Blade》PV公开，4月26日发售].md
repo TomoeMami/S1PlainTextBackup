@@ -4599,3 +4599,22 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天晚上回来大概能通了  估计50小时上下 有一说一玩的还是很开心的 首发很值  想想上个首发的荒野真的是纯赤石（
 
+
+*****
+
+####  mhss  
+##### 3371#       发表于 2025-6-22 23:24
+
+渡鸦那衣服和下面的默认绿皮切换就会发现胸围增大的离谱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的访客  
+##### 3372#       发表于 2025-6-22 23:27
+
+35小时还没结束大沙漠，支线任务实在太臭太长了，光一个初始图的水下商业区已经去过3次，还是以为自己效率挺高去一次处理2个任务的结果，搭配不允许跨图传送的系统设定更为酸爽<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+总算沙漠里已经不是那么容易死了，但是那种1个近战机器人带2个射击跟班的还是能把人打出屎，游戏中后期的打磨实在太差了，这种长脖子机器人我看完全可以拆分一下动作模组，一种只能连射，一种只能高炮，一种能旋转激光AOE，稍微改点外形改个颜色啥的就说设定上是一个原型衍生的不同型号毫无违和<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这游戏问题不是支线任务多，有些支线任务前后剧情链有明确关联还比较吸引人，问题是地图实在太少，结果卖力设计的丰富支线剧情反而成了累赘（另外还要加上狗屎翻译的功劳）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
