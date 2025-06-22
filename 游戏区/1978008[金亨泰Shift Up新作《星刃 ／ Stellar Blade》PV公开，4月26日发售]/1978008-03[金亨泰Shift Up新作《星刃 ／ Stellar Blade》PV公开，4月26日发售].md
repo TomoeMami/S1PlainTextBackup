@@ -4336,3 +4336,14 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 顺便问下 为什么平a连招都推荐重轻轻重 有啥区别？</blockquote>
 感觉没太大区别，纯粹就是好看，这个系统弹反和其他技能的伤害太爆炸导致普攻没啥存在感。
 
+
+*****
+
+####  ladiesman802  
+##### 3344#       发表于 2025-6-22 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980343&amp;ptid=1978008" target="_blank">天选之子 发表于 2025-6-22 14:00</a>
+
+游戏难度就好比小马过河，只狼刚出来的时候曾经有泥潭用户声称正常人不可能通关，事实证明是他本人太菜了 ...</blockquote>
+只狼我打那个塔上的独臂忍者卡了一晚，后面掌握技巧了就简单些
+
