@@ -5639,3 +5639,15 @@ IDEON和CCA并列第一，元祖第三，EVA原型可不就排第四了吗
 —— 来自  ...</blockquote>
 彼岸的巨大化元祖：你们之前扔一些小石头就算了，怎么得寸进尺开始扔大垃圾了？
 
+
+*****
+
+####  希望之异热同心  
+##### 21097#       发表于 2025-6-22 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980222&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-22 13:29</a>
+彼岸的巨大化元祖：你们之前扔一些小石头就算了，怎么得寸进尺开始扔大垃圾了？ ...</blockquote>
+这巨大元祖怕不是质量上顶了汤大基一支舰队<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
