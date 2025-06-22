@@ -146,3 +146,26 @@
 田中：你们把我房子都🐂了说啥呢</blockquote>
 现在推测Meroron的代价最可能的应该还是“未来”，也就是等战斗结束后直接缎带一灰当场去世这种展开<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1079#       发表于 2025-6-22 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981317&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-6-22 18:10</a>
+
+现在推测Meroron的代价最可能的应该还是“未来”，也就是等战斗结束后直接缎带一灰当场去世这种展开 ...</blockquote>
+这不就是余命n个月的套路么，问题是这剧情一出不得幼女嚎哭，家长电话打爆？大友知道100%救回来幼女不知道啊上两集2人变身都吓哭幼女了呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1080#       发表于 2025-6-22 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981425&amp;ptid=2208663" target="_blank">leleq 发表于 2025-6-22 18:37</a>
+
+这不就是余命n个月的套路么，问题是这剧情一出不得幼女嚎哭，家长电话打爆？大友知道100%救回来幼女不知 ...</blockquote>
+反正从目前的访谈内容看相关剧情确实会是幼女嚎哭的展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过只要揭露的够晚（比如结局前最后一个个人回）影响就可以控制的更小（
+
