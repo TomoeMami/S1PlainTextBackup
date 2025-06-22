@@ -6136,3 +6136,63 @@ uc版高达武斗传
 那位有說，搶軍警渣古的</blockquote>
 军警一个月才几个钱啊来参与世界线大战，有这无私奉献精神side6还能被政府暗地里扶持起来黑拳产业么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 21147#       发表于 2025-6-22 21:41
+
+但是贴吧那个发文字剧透的不认识兹姆市但还要硬发的样子的确是一副搏流量的外包的嘴脸，估计就是真的了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 21148#       发表于 2025-6-22 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982184&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-22 21:34</a>
+
+哪来的军警，这里只有基西莉亚的兵了吧</blockquote>
+外围那层是有的，你看10集开头
+
+实际上这是大杀器的剪彩仪式，外面其实围了一圈电视台啥的，所以也有军警在
+
+*****
+
+####  轮太  
+##### 21149#       发表于 2025-6-22 21:41
+
+用一堆假舅舅淹没真剧透
+
+也是一种手段
+
+*****
+
+####  猪突猛进R  
+##### 21150#       发表于 2025-6-22 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982027&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-22 21:01</a>
+
+一个是分镜稿不一定是全台词
+
+再一个是收录阶段也会对台本进行修改</blockquote>
+学到了，修司=天照，麻球=天钿女。
+
+第5集麻球脱剩内衣在高达上日光浴，对应天钿女跳裸舞勾引天照露头<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 21151#       发表于 2025-6-22 21:45
+
+關於Side6軍警買了聯邦的戰艦自用這事，樓裡還有老哥罵過呢
+
+怎麼這麼快就忘了
+
+<img src="https://img.stage1st.com/forum/202506/22/214505lk1eszs1d9stpj5n.jpg" referrerpolicy="no-referrer">
+
+<strong>1000030161.jpg</strong> (141.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 21:45 上传
+

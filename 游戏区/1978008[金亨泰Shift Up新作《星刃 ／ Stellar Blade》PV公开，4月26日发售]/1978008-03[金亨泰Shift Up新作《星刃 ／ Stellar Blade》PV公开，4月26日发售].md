@@ -4513,3 +4513,42 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 这个振刀……是按防御吗</blockquote>
 是 打红莲无脑连点就是了 
 
+
+*****
+
+####  武蔵  
+##### 3362#       发表于 2025-6-22 21:38
+
+我发现坐营地凳子，有剧情对话的时候会一边对话一边换姿势，会翘二郎腿，但是没有剧情的时候就只有并腿坐姿了
+这是设定吗？
+
+*****
+
+####  alucardcz  
+##### 3363#       发表于 2025-6-22 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982230&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-6-22 21:38</a>
+
+我发现坐营地凳子，有剧情对话的时候会一边对话一边换姿势，会翘二郎腿，但是没有剧情的时候就只有并腿坐姿 ...</blockquote>
+是 对话的时候有特殊姿势
+
+*****
+
+####  三尖酸努努  
+##### 3364#       发表于 2025-6-22 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67979924&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-22 12:17</a>
+苇名抖刀术太强了 大沙漠进度乱杀红莲   正常靠目押连第2阶段都看不到 用了抖刀术直接1把过</blockquote>
+这游戏弹反苇名抖刀术巨容易，我打第一个boss时就发现了
+
+
+*****
+
+####  alucardcz  
+##### 3365#       发表于 2025-6-22 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982264&amp;ptid=1978008" target="_blank">三尖酸努努 发表于 2025-6-22 21:42</a>
+
+这游戏弹反苇名抖刀术巨容易，我打第一个boss时就发现了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我打不过红莲去搜逃课视频才发现还能苇名抖刀术  之前老老实实看动作靠反应打被虐的不要不要 甚至剧情模式出qte都来不及按
+
