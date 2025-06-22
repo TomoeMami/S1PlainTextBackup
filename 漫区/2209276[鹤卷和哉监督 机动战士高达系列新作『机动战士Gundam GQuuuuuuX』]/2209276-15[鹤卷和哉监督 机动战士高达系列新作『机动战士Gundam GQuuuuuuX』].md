@@ -6314,3 +6314,11 @@ uc版高达武斗传
 
 最后还是要在丢人遗言中同归于尽
 
+
+*****
+
+####  ykyin09  
+##### 21162#       发表于 2025-6-22 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧没开播就漏设定，播了漏分镜，也算是乐子了
+
