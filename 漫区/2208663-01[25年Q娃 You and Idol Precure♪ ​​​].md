@@ -91,3 +91,27 @@
 
 话说有人有法Q2 BD 的下载源吗？
 
+
+*****
+
+####  jaewoongh_  
+##### 1076#       发表于 2025-6-22 13:33
+
+用AI查了一下，本集出现了两幕的花都是杜鹃，花语是“爱的喜悦”和“永远属于你”
+
+<img src="https://img.stage1st.com/forum/202506/22/133242fi7xfi4afb6maaix.jpg" referrerpolicy="no-referrer">
+
+<strong>1AA237ECDD792423F87A40855053087F.jpg</strong> (327.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 13:32 上传
+
+<img src="https://img.stage1st.com/forum/202506/22/133243gei1z6wk111r61il.jpg" referrerpolicy="no-referrer">
+
+<strong>801F7C71FEA3DCEF09CA50C216480F8A.jpg</strong> (166.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 13:32 上传
+
