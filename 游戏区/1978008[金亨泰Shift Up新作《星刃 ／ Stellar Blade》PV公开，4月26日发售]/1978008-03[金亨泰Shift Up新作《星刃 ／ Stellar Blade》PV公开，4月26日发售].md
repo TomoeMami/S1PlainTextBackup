@@ -4234,3 +4234,11 @@ nikke小游戏我都是换鼠标的轻松多了
 n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 什么mod被删了
 
+
+*****
+
+####  mhss  
+##### 3333#       发表于 2025-6-22 13:29
+
+见鬼了，重返希雍打完鸟人发现彼列和机关人偶各缺了一个3星组件，明明地上东西我都捡光了啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
