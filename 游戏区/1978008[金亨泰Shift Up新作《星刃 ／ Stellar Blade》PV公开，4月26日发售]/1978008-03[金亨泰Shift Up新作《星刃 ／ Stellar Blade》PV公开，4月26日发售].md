@@ -4480,3 +4480,14 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  alucardcz  
+##### 3359#       发表于 2025-6-22 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981649&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-22 19:31</a>
+
+这红莲他们是不是觉得是联动角色boss，要有b格所以做的特别反直觉。强制闪避的招式都搞快慢刀了…过了是过 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">学会无脑按振刀键脚打 等于只要看闪避 存个4 5格能量后除了最后的强制演出根本没有她动的时候i
+
