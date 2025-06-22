@@ -6227,3 +6227,63 @@ uc版高达武斗传
 
 所以说是大型同人作，哪怕是“对面的世界”也不是正史
 
+
+*****
+
+####  Sliurus  
+##### 21155#       发表于 2025-6-22 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982483&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-22 22:06</a>
+
+玫瑰拉拉来自一个夏亚真的在一年战争中被骡子捅死的世界，这点还是和正史不一样的
+
+所以说是大型同人作，哪 ...</blockquote>
+其实挺好的，免得被喷影响正史
+
+那GQ拉拉梦到的只是同一个梦吗
+
+*****
+
+####  ryanghj  
+##### 21156#       发表于 2025-6-22 22:09
+
+ 本帖最后由 ryanghj 于 2025-6-22 22:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982491&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-22 22:08</a>
+
+其实挺好的，免得被喷影响正史
+
+那GQ拉拉梦到的只是同一个梦吗</blockquote>
+玫瑰拉拉的确不断的创造了很多个世界，都被牢修修正了
+
+
+*****
+
+####  地場衛  
+##### 21157#       发表于 2025-6-22 22:12
+
+这集没发到投票，私制一图聊表心意
+
+<img src="https://img.stage1st.com/forum/202506/22/221213sresk02ng6fubpv2.png" referrerpolicy="no-referrer">
+
+<strong>地場衛Mobile.Suit.Gundam.GQuuuuuuX.S01E11.png</strong> (370.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-22 22:12 上传
+
+*****
+
+####  白色池塘  
+##### 21158#       发表于 2025-6-22 22:13
+
+恩基爱专楼又寄了，贴吧那边的剧透贴不动如山，到底是因为摆渡过于猖狂，还是说如今贴吧纯属路边一条无人在意<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 21159#       发表于 2025-6-22 22:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果是真的也好提前做好心理准备
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
