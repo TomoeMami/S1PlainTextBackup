@@ -6322,3 +6322,42 @@ uc版高达武斗传
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧没开播就漏设定，播了漏分镜，也算是乐子了
 
+
+*****
+
+####  上坂莲华  
+##### 21163#       发表于 2025-6-22 22:36
+
+NGA专楼不就搁那既要又要，一边喊不要讨论剧透不要搬剧透，一边都忍不住跑去贴吧看
+
+看就看了还要回专楼疯狂嘲讽剧透太假了分镜怎么可能写这么多字一看就是编的，那只能呵呵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 21164#       发表于 2025-6-22 22:39
+
+看起来第九集本来是玛秋遇到鸭妹咯，改成了gq拉拉
+
+最后一集唐突出现鸭妹还是有点突兀的，不过估计台本里会有更详细的解释吧
+
+*****
+
+####  灵魂收割机  
+##### 21165#       发表于 2025-6-22 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982565&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-22 22:24</a>
+
+不在79被杀，不就是回归到正史吗
+
+最后还是要在丢人遗言中同归于尽</blockquote>
+人好像还在GQ世界，只是放弃吉翁跑掉了。
+
+
+*****
+
+####  Sliurus  
+##### 21166#       发表于 2025-6-22 22:45
+
+降落地球被鸭妹救在大别野醒来确实讲得通，鸭妹也是zeknova亲历者，可以透露一部分信息
+
