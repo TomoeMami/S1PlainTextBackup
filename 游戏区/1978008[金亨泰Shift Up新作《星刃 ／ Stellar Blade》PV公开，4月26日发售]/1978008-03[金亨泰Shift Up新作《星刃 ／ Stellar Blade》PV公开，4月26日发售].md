@@ -4470,3 +4470,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点难崩 最后2个图 辛辛苦苦跳跳乐开的箱子90%都是一点用都没的辣鸡
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3358#       发表于 2025-6-22 19:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这红莲他们是不是觉得是联动角色boss，要有b格所以做的特别反直觉。强制闪避的招式都搞快慢刀了…过了是过了…就是这个boss太恶心了。强制抖刀打就算了，这个强制闪避快慢刀是真不讲道理
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
