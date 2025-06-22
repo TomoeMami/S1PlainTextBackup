@@ -4562,3 +4562,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 曼恩才是抖刀没啥卵用，全是慢刀跟超慢刀
 
+
+*****
+
+####  卡拉德利姆  
+##### 3367#       发表于 2025-6-22 22:51
+
+逃离沙漠大马桶后主线一捅到底还是爽到的，就是最终boss差点劲
+
+最难蚌的是一看成就营地88/89<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
