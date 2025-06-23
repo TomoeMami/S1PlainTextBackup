@@ -9790,3 +9790,28 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 火属性+1之类的词条到底厉不厉害啊
 
+
+*****
+
+####  火红之眼  
+##### 956#       发表于 2025-6-23 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988336&amp;ptid=2210352" target="_blank">憧憬鲨 发表于 2025-6-23 23:46</a>
+
+火属性+1之类的词条到底厉不厉害啊</blockquote>
+属性加攻4.5%，+1就5.5%，+2是6.5%，同名可叠
+
+*****
+
+####  acg_s1  
+##### 957#       发表于 2025-6-23 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988336&amp;ptid=2210352" target="_blank">憧憬鲨 发表于 2025-6-23 23:46</a>
+
+火属性+1之类的词条到底厉不厉害啊</blockquote>
+差不多+5%火属攻击力，可以参考以下汇总
+
+【艾尔登法环：黑夜君临】全词条汇总！遗物+护符+武器固有效果+武器随机buff
+
+[https://www.bilibili.com/video/BV1GfMSzvE3V](https://www.bilibili.com/video/BV1GfMSzvE3V)
+

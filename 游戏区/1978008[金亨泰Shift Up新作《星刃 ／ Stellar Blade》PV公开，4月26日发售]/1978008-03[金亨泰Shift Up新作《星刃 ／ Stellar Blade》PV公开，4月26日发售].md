@@ -5527,3 +5527,33 @@ boss挑战里面招式多又花，难打的一逼
 
 亚当就是嫌弃渡鸦太颠了吧.......不如这一版本的伊芙人美心善<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3460#       发表于 2025-6-23 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988220&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-23 23:12</a>
+
+亚当就是嫌弃渡鸦太颠了吧.......不如这一版本的伊芙人美心善</blockquote>
+不是试验失败了吗  没有突破“阿尔法”的极限 所以只能找下一个更完美的“人类”<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3461#       发表于 2025-6-23 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988203&amp;ptid=1978008" target="_blank">巴达兽 发表于 2025-6-23 23:04</a>
+
+打不到光球，被渡鸦秒杀技能秒了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可是打曼恩的时候他可是会打枪的
+
+先手一个烟幕弹然后躲在烟幕里面狙击，恶心的很
+
+*****
+
+####  alucardcz  
+##### 3462#       发表于 2025-6-23 23:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">睡前打了把曼恩 他还有最后一丝血的时候投技没躲掉 直接满血死了。。这还是普通难度
+
