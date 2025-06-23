@@ -7141,3 +7141,68 @@ yysy
 
 不过看到一堆集美去补了uc也算gqx大功一件吧(不过以后不会真有鸭子宝宝妈妈爱你这种……的讨论氛围吧
 
+
+*****
+
+####  好想看Mujica啊  
+##### 21226#       发表于 2025-6-23 10:56
+
+bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了河豚背不动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 21227#       发表于 2025-6-23 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984346&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-23 10:55</a>
+本坛纯度比较高，婆罗豚多
+
+微博小红薯上还是有不少洗水魔的，哦还有不少磕番茄喵安的集美
+
+不过看到一堆集 ...</blockquote>
+虽然总帅很缺爱很池面，但是感觉传统鸭子梦女还是馋鸭子池面而不是馋鸭子妈宝吧。
+
+*****
+
+####  盐盐盐盐盐  
+##### 21228#       发表于 2025-6-23 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984321&amp;ptid=2209276" target="_blank">aeolus039 发表于 2025-6-23 10:50</a>
+ 开岁的速度倒是挺快的  </blockquote>
+你自己搜我cp结婚了就能看到了，铺天盖地，甚至水魔刚完结那会拿水魔搞彩虹运动同人图发到官推底下的都有
+
+
+*****
+
+####  psycho_Gadfly  
+##### 21229#       发表于 2025-6-23 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984361&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-23 10:57</a>
+
+虽然总帅很缺爱很池面，但是感觉传统鸭子梦女还是馋鸭子池面而不是馋鸭子妈宝吧。 ...</blockquote>
+鸭子令和梦女增殖中<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">已经看到某些集美南崩发言了 希望她们补完全UC能有个正常认识吧 
+
+毕竟总帅还真不是什么5T5老师
+
+*****
+
+####  别急来过两招  
+##### 21230#       发表于 2025-6-23 11:03
+
+人家梦的是gqux鸭 和正史有什么关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外tag和平台请求 去看看热闹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 21231#       发表于 2025-6-23 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984396&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-23 11:00</a>
+鸭子令和梦女增殖中已经看到某些集美南崩发言了 希望她们补完全UC能有个正常认识吧 
+
+毕竟总帅还真不是什 ...</blockquote>
+主要是光头喜欢迫害鸭子。
+
+毕竟迫害鸭之集大成作品就是cca<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

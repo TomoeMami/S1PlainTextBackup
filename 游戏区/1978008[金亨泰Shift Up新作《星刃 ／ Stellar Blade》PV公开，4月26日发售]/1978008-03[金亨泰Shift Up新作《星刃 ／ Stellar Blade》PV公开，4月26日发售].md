@@ -4919,3 +4919,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 —— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Andariel  
+##### 3403#       发表于 2025-6-23 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来那个曼恩是不是本剧最大演员
+boss挑战里面招式多又花，难打的一逼
+怎么就被孽奇拔形态的渡鸦给打到吐血站不起来了
+
