@@ -4095,3 +4095,13 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 比较难绷的是国服刚发了箱子活动公告 结果还是抄的国际服第一版说要打赢才有箱子
 
+
+*****
+
+####  我不是大叔  
+##### 276#       发表于 2025-6-24 00:07
+
+在D2打了一晚上，国服只有造物吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 打了一晚上内战，感觉纯纯拼狗运
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
