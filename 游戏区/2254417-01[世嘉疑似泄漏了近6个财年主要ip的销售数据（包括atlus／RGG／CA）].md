@@ -846,3 +846,18 @@ NS出了四五年了才出真有脸叫护航...</blockquote>
 打完英雄无名感觉也没和前面接上</blockquote>
 龙8桐生一马和春日一番双主角，两条线。桐生这边情怀炮打得可以，有些人物感情还真是要桐生得癌才表现那么强烈，让人又爱又恨
 
+
+*****
+
+####  wthall  
+##### 87#       发表于 2025-6-23 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975093&amp;ptid=2254417" target="_blank">抽烟的猴 发表于 2025-6-21 08:53</a>
+
+p5加起来能卖1000万，完全理解为什么不出p6
+
+p3和暗喻游戏生涯连p5一半都没有 ...</blockquote>
+你打完P3R和暗喻以后还不能理解为什么不出P6嘛？
+
+他是不想出嘛？ 他是没能力啊
+
