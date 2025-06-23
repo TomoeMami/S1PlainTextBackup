@@ -44693,3 +44693,31 @@ yuki是带她玩尼菈+给她做了蒙太奇的人</blockquote>
 
 jimmy又在发疯……
 
+
+*****
+
+####  TiHaru  
+##### 18830#       发表于 2025-6-24 04:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988747&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-24 02:48</a>
+感觉得结合语境，之前太急没搞明白很多东西，现在找找在哪段提到チャンバラ
+熬不住了，总之我记得是在先 ...</blockquote>
+最后一把复盘的时候想表达她觉得千灯不该开前面应该回来保ad打，就说千灯在前面チャンバラ，据说千灯那边评论区很生气，但现在她还没下我没法翻评论区的反应
+
+
+*****
+
+####  术士q  
+##### 18831#       发表于 2025-6-24 04:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">这个b活动要折磨大家到什么时候，本来六月七月八月是很开心的，然后不给主播玩上单让主播玩个辅助，啧
+
+*****
+
+####  术士q  
+##### 18832#       发表于 2025-6-24 04:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988780&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-6-24 04:01</a>
+最后一把复盘的时候想表达她觉得千灯不该开前面应该回来保ad打，就说千灯在前面チャンバラ，据说千灯那边 ...</blockquote>
+没下应该也是可以看的，t台那里，进直播下面视频里最新的一个就是那样
+
