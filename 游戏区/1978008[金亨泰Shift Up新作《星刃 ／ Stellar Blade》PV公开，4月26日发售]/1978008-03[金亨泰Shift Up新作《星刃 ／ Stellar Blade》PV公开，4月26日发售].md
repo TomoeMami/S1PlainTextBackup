@@ -4774,3 +4774,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在做沙漠支线，舔图舔的差不多了，那个超级炮台居然爬不上去要远程打死的，两炮就能打死我，比boss还厉害
 
+
+*****
+
+####  藤井紫  
+##### 3387#       发表于 2025-6-23 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983564&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-23 08:35</a>
+这么吊吗，那个技能我2周目到废土了还没点</blockquote>
+空杀/背刺接的顺劈甚至有蛮长的窗口，可以暗杀后再跑两步还有判定。
+
