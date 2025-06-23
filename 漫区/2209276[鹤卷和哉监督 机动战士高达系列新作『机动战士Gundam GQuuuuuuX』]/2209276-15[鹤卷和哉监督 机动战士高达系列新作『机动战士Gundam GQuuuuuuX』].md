@@ -8143,3 +8143,38 @@ PS：我不知道正片怎么样烂还是不烂，我没看过剧透原帖，就
 
 但是这种剧情肯定不会安排的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  别急来过两招  
+##### 21326#       发表于 2025-6-23 16:26
+
+把骡子神化是什么高达老登的必须仪式吗 龙傲天闹麻了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cckuku  
+##### 21327#       发表于 2025-6-23 16:29
+
+如果剧透是真的，其实比起国内我更想看看本子那边啥反应<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野梓  
+##### 21328#       发表于 2025-6-23 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986232&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-23 16:29</a>
+
+如果剧透是真的，其实比起国内我更想看看本子那边啥反应</blockquote>
+之前的剧透也没什么啊，是又有新剧透了吗
+
+
+*****
+
+####  上坂莲华  
+##### 21329#       发表于 2025-6-23 16:34
+
+按NGA说法国外也没啥反应，甚至信源都是国内传出去的，贴吧那个那么狂我还以为PDF满大街都是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
