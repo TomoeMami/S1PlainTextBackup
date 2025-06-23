@@ -7068,3 +7068,13 @@ yysy
 
 自己看看是谁第一个提河豚和cp矛盾的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 21219#       发表于 2025-6-23 10:40
+
+不要老是骂河豚，看ED不是很容易想歪？
+
+而且河豚产了多少粮？后期和喵安破镜后，又去产麻球和小森的粮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

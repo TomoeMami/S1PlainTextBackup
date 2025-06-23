@@ -4899,3 +4899,11 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 废土日光塔往北走那个洞窟里的水池里的箱子秘码去哪里弄？钓鱼是不是就和鱼饵有关，随便哪个鱼点都能钓？怪 ...</blockquote>
 钓鱼任务一直做会给密码。
 
+
+*****
+
+####  alucardcz  
+##### 3401#       发表于 2025-6-23 10:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这游戏为什么要角落赛怪 但是主角有怪就会直接拔剑 突出一个藏了个寂寞 有下作记得别再拔剑了
+
