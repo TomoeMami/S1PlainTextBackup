@@ -4728,3 +4728,21 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 发现个问题,既然大沙漠一开始没通电. 为什么地下铁那里有电....
 
+
+*****
+
+####  naclken.  
+##### 3383#       发表于 2025-6-23 08:26
+
+废土好多需要二段跳的地方，还有不知道密码的箱子，对舔图不友好。
+
+不过仔细想想用地图标记可以解决，之后跑一趟就行了。
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+披风机器人也没法暗杀吧？
+
+一带二确实有点难，除非把技能点高了然后复读两次。
+
+废土舔图就舔到俩野外BOSS还是换皮的，就算初见逃课之后也可以练习是吧。
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
