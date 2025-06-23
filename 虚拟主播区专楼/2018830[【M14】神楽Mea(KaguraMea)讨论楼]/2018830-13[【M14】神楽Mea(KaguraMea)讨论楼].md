@@ -44394,3 +44394,14 @@ pps:上面提到的szb日服卖号这事是怎么回事
 这局咩的蕾欧娜说实话玩得很好，输了这个格温全责，然后怀疑是买来的号。
 不过结尾咩又开始连败后怀疑自己了，明明第一局辅助玩得挺好的，后面几局也没什么问题，只是没能和以前一样走杀穿线打赢的路线，唉。
 
+
+*****
+
+####  sino__unnko3  
+##### 18813#       发表于 2025-6-23 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986873&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-23 18:13</a>
+应该不是说的szb，是说的第一局的抽象格温小姐，can I top那人
+前期就把上路送到god like，然后好像十 ...</blockquote>
+t台当好奇宝宝还是能经常被问到的()
+
