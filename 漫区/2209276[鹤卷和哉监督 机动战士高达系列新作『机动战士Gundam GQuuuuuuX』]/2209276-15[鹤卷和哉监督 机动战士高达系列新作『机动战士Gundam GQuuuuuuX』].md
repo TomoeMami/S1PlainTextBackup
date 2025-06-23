@@ -8387,3 +8387,197 @@ PS：我不知道正片怎么样烂还是不烂，我没看过剧透原帖，就
 
 但是纠结和骡子决战这一点反正是能证明器量小
 
+
+*****
+
+####  岸浪白野  
+##### 21350#       发表于 2025-6-23 22:37
+
+ 本帖最后由 岸浪白野 于 2025-6-23 22:39 编辑 
+
+[X 上的 まぐ太：“どした？どした？](https://x.com/magmag/status/1936959345067266111)[https://t.co/jefDjsU6fD](https://t.co/jefDjsU6fD)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222708qucqig6acq2ciiqu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (662.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:27 上传
+
+[X 上的 米村孝一郎：“後二日か〜 #GQuuuuuuX](https://x.com/yonemura_kou/status/1936808026339709178)[https://t.co/qannfYxZvA](https://t.co/qannfYxZvA)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222520cu9aq9k7ammfffyp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.51 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/23/222525p49ljwxlx42oayo8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:25 上传
+
+[X 上的 つくだ煮。：“#GQuuuuuuX #ジークアクス](https://x.com/ore624/status/1936806196381708797)[https://t.co/YMeoTb0hwj](https://t.co/YMeoTb0hwj)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222621vd40a49xaqnqz45u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.51 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:26 上传
+
+[X 上的 水モグラ🦔：“毎日シャアシャリに巻き込まれるのでむしゃくしゃして本を出すチュマ](https://x.com/mogu_ra_ws/status/1936822112477659575)[https://t.co/EU1tJzJJz3](https://t.co/EU1tJzJJz3)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222639at7cizbent3tigq2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:26 上传
+
+[X 上的 木村森：“](https://x.com/kimra_shin/status/1937118442286448892)[https://t.co/0X4YGu46K6](https://t.co/0X4YGu46K6)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223217uezze2yox2naqa8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (741.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:32 上传
+
+[X 上的 昼空：“シャアマチュ](https://x.com/hirusora_/status/1937088241053966372)[https://t.co/60fqVG0Jj8](https://t.co/60fqVG0Jj8)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223157z8pw4p7qw1x799xy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (487.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:31 上传
+
+[X 上的 U-ka：“ゲームその2](https://x.com/u_fukei/status/1937075575773942181)[https://t.co/hfo6oPVyMn](https://t.co/hfo6oPVyMn)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222949eg51vt0g6n464517.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:29 上传
+
+[X 上的 温泉玉子：“](https://x.com/HS_egg/status/1937124445115785299)[https://t.co/OurLT5i9uz](https://t.co/OurLT5i9uz)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223559cuzsj3mlzjl89fo8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:35 上传
+
+[X 上的 ベネ：“](https://x.com/be_ne_69/status/1936903250231574806)[https://t.co/nSZH965aNe](https://t.co/nSZH965aNe)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222556cfp35j587j53jatt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/23/222601w00vdh3vam1wnmrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:26 上传
+
+[X 上的 紡野綾：“最終回を迎える前に描いておこうと思ってマチュとニャアン #GQuuuuuuX #ジークアクス](https://x.com/AYA_lamp/status/1936782294758699119)[https://t.co/pVloRPO8Gn](https://t.co/pVloRPO8Gn)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223541yuybkpa8bg8vhk63.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (637.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:35 上传
+
+[X 上的 錆々【さびさび】：“特典でマチュ髪染めてる説が出たので…… 赤に慣れすぎて違和感すごい 色違いポケモン見てる気分…](https://x.com/Sabi_Sabi1234/status/1937126504661721244)[https://t.co/2XaPBw7HYq](https://t.co/2XaPBw7HYq)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223109l31t0p38v1m2papv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:31 上传
+
+[X 上的 泉水茜：“マチュ　#GQuuuuuuX #ジークアクス](https://x.com/izumi_akn/status/1936744564829876356)[https://t.co/v7rbFBnSMo](https://t.co/v7rbFBnSMo)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223519t5gcca5ad388ardp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (539.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:35 上传
+
+[X 上的 ゆ〜：“マチュ #ジークアクス #GQuuuuuuuX](https://x.com/takasugi0929/status/1937119202550419963)[https://t.co/9qdEXcT7qf](https://t.co/9qdEXcT7qf)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223455dpab4gj5fxh4g44r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (829.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:34 上传
+
+[X 上的 goking／山田剛毅：“もう月光蝶でいいや](https://x.com/goking5/status/1937042492479979775)[https://t.co/JCo0vmJm9F](https://t.co/JCo0vmJm9F)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222810r8mmoo5rzol2nom7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:28 上传
+
+[X 上的 ■鍋：“](https://x.com/grtnkwii487/status/1937085232613892489)[https://t.co/lFmQ2CcDa4](https://t.co/lFmQ2CcDa4)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/222906k93u4j2yy2jjhf9f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:29 上传
+
+[X 上的 山下しゅんや：“肉球ポーズのニャアン。](https://x.com/ShunyaYamashita/status/1937097541998489772)[https://t.co/qLEqU7YSqL](https://t.co/qLEqU7YSqL)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223028jonrrzysjcnw6xfl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:30 上传
+
+[X 上的 ゆーすめると：“いよいよ明日ジークアクス最終回です！ 最後までよろしくお願いいたします🙏 #ジークアクス #GQuuuuuuX](https://x.com/period_yoooou11/status/1937133540577284451)[https://t.co/Ixmms8PqeM](https://t.co/Ixmms8PqeM)” / X
+
+<img src="https://img.stage1st.com/forum/202506/23/223132tnonnrxrxz5evljo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 22:31 上传
+

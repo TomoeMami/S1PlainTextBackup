@@ -5459,3 +5459,18 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 这几个问题完全找不到解答.......
 
+
+*****
+
+####  alucardcz  
+##### 3454#       发表于 2025-6-23 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988078&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-23 22:30</a>
+
+完全不明白最后去高塔时亚当为什么突然回去
+
+他到底收到了什么信息，又去干嘛了，为什么好端端的渡鸦突然就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坏女人盲猜是嫉妒 亚当按照日漫套路怕不是“这当作给她的试炼 这都过不了 不配和我合体”
+
+有一说一 第2个生化危机打完后剧情进展太快了 有点莫名其妙
+
