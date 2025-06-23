@@ -5320,3 +5320,21 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 平民阵容打了个16万</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">抄了
 
+
+*****
+
+####  chivalry  
+##### 1961#       发表于 2025-6-23 16:17
+
+<img src="https://img.stage1st.com/forum/202506/23/161744jz3mmzbqqfigatil.png" referrerpolicy="no-referrer">
+
+<strong>BEDBCD0C-0A9B-4C42-8422-385AF3A716EA.PNG</strong> (3.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 16:17 上传
+
+最后一个用监牢队敲掉了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
