@@ -4954,3 +4954,18 @@ boss挑战里面招式多又花，难打的一逼
 
 墙角偷袭的怪,偷袭那一下如果完美格挡了,会直接清空架势条可以直接处决.
 
+
+*****
+
+####  永远的访客  
+##### 3407#       发表于 2025-6-23 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983931&amp;ptid=1978008" target="_blank">complion 发表于 2025-6-23 09:48</a>
+
+中期的沙漠体验是最差的，打完沙漠后埃多斯九号和四号高塔两张线性地图又舒服了，游戏体验算澡盆曲线，比 ...</blockquote>
+虽然没打到后面，其实他的室内图我觉得也一般，主要是太长了，大量复用素材，矩阵和实验所还空间压抑，就是那种随心所欲设计地图，随时可以胶水往后再粘一节再打boss的感觉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+经历过魂和老头环的捷径/场景设计大概会理解这种感觉，就是室内也可以做得让你感觉越走越接近真相，探索的时间越长对整个区域的结构就越清晰越有成就感，而不是现在这种公路片室内关<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+游戏里通过记忆条（SSD）还原遗言的机制其实挺合我胃口，可以通过探索收集，想象还原这里当初的真相，无需设置木偶人就做出了各种剧情，这个比仁王啥的做得更到位，但是翻译不靠谱加上又臭又长的路线长度到最后就让人懒得看了，纠结的是我靠这图都来过5次了咋还有数据库不齐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

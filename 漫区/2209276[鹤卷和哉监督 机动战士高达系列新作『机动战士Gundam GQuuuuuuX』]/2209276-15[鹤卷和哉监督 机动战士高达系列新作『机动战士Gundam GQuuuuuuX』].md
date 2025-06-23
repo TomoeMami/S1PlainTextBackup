@@ -7225,3 +7225,67 @@ bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了
 巨大化的元祖何尝不是国家队的另一种形式</blockquote>
 早该给jzgg翻案了，要是jzgg做的是eva if（
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 21234#       发表于 2025-6-23 11:16
+
+鸭子梦女在推上一直很多，我也看不懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+甚至不是纯梦gqx的，还有补了老uc梦的更有劲的
+
+*****
+
+####  燃烧的石头  
+##### 21235#       发表于 2025-6-23 11:17
+
+鸭子人气高很正常的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  syndrome2032  
+##### 21236#       发表于 2025-6-23 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984502&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-23 11:16</a>
+鸭子梦女在推上一直很多，我也看不懂
+甚至不是纯梦gqx的，还有补了老uc梦的更有劲的 ...</blockquote>
+鸭子就是古早美型恶役啊。作为一个生命力持久角色有梦女太正常不过了。
+
+*****
+
+####  molemole  
+##### 21237#       发表于 2025-6-23 11:20
+
+总帅梦女什么时候少过（笑）
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 21238#       发表于 2025-6-23 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984530&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-23 11:20</a>
+ 鸭子就是古早美型恶役啊。作为一个生命力持久角色有梦女太正常不过了。 ...</blockquote>
+可能是我觉得他丢人瞬间太多了（
+尤其是z
+
+*****
+
+####  燃烧的石头  
+##### 21239#       发表于 2025-6-23 11:23
+
+鸭子上次周年人气投票就是第一，不算团长这种搞怪的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Gaybird  
+##### 21240#       发表于 2025-6-23 11:25
+
+鸭子梦女肯定在0079放送的那一天就有了，那会的腐向人气最高的cp还是鸭子和卡尔玛呢（不过赤紫这个名字现在居然可以指代鸭子和紫婆，真的太搞笑了）
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
