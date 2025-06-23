@@ -5363,3 +5363,31 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 明天送gq79绿叔叔，月底除了开种命主线还开CCA，卡池会是命运和海牛吗
 
+
+*****
+
+####  HATENA  
+##### 1965#       发表于 2025-6-23 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">16w了，别说满星gp02连zeta都没见过几台，是我打太晚了吗
+
+然后0-2星的gp02屁用没有
+
+*****
+
+####  hsyg  
+##### 1966#       发表于 2025-6-23 17:09
+
+现在的目标是不让其他人拿到20W分，赢已经无所谓了，就怕上了全猛男队还被人打高分，于是今天应该很多人见过那个全盾阿姆罗了，赢了也上不了分
+
+
+*****
+
+####  xinfengj  
+##### 1967#       发表于 2025-6-23 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985925&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-23 15:38</a>
+
+抄了</blockquote>
+不是 你们都有100级比查吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
