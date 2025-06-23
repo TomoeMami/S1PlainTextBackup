@@ -4828,3 +4828,13 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 —— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  永远的访客  
+##### 3393#       发表于 2025-6-23 09:42
+
+其实设定上机器人应该和阿尔法不是一路人，见面也会互殴吧，希望续作能实现这种效果，包括人类幸存者混战之类，废土有的是好抄的要素，现在实在太单调了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+披风机器人不瞒你说我第一次见面就是暗杀，垃圾场里转悠时遇到了那个落单的，所以曾经给我错觉这玩意很弱<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
