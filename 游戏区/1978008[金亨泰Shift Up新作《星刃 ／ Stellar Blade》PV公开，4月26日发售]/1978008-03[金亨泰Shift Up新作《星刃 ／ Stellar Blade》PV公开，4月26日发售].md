@@ -5280,3 +5280,17 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 —— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Andariel  
+##### 3437#       发表于 2025-6-23 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986420&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-23 16:58</a>
+剧情挺老套的。。。还和尼尔一样不看设定大概只能理解一半 但是就算全懂了也没什么值得回味的地方
+
+有一说 ...</blockquote>
+深度比尼尔差多了
+尼尔牵扯到龙背世界设定，必须要看一些解析
+这个游戏该说的游戏里其实都说了，就是有些东西不能细想
+
