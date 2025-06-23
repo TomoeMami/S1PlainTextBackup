@@ -5207,3 +5207,49 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 百合不是降落之后就一直被困在降落仓里么? 哪有空跟姬友去Eidos 9建秘密基地的 ...</blockquote>
 剧情说若干年前百合就在地上生活，被孽奇拔反攻才逃去天上，然后报名了当了工程师才又降下来
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3431#       发表于 2025-6-23 16:48
+
+所以最后的eve到底在守护什么…搞的好像很燃似的。但是已经没有要守护的对象了啊…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Andariel  
+##### 3432#       发表于 2025-6-23 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986354&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-23 16:48</a>
+所以最后的eve到底在守护什么…搞的好像很燃似的。但是已经没有要守护的对象了啊…
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏剧情不能细想，越想越莫名其妙
+还是多看看伊芙的屁股吧
+伟大的游戏设计师约翰卡马克有云：
+
+
+*****
+
+####  卡拉德利姆  
+##### 3433#       发表于 2025-6-23 16:57
+
+搜了下其他结局发现不牵手还有个新boss，你就不能调整下剧情让真结局线把所有的boss都打了吗？金大师是真的很想让人玩他的二周目啊
+
+*****
+
+####  alucardcz  
+##### 3434#       发表于 2025-6-23 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986370&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-23 16:50</a>
+
+这游戏剧情不能细想，越想越莫名其妙
+
+还是多看看伊芙的屁股吧
+
+伟大的游戏设计师约翰卡马克有云： ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情挺老套的。。。还和尼尔一样不看设定大概只能理解一半 但是就算全懂了也没什么值得回味的地方
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一 比起剧情看台词不如看伊芙的动作（
+

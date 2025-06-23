@@ -4082,3 +4082,16 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windhawind2  
+##### 275#       发表于 2025-6-23 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985276&amp;ptid=2163625" target="_blank">windhawind2 发表于 2025-6-23 13:34</a>
+
+我记得一代后期箱子不是改成输了也能拿么?这又回到了赢了才能拿？这起码2小时起步吧 ...</blockquote>
+好吧 kmr滑跪了 那没事了
+
+比较难绷的是国服刚发了箱子活动公告 结果还是抄的国际服第一版说要打赢才有箱子
+

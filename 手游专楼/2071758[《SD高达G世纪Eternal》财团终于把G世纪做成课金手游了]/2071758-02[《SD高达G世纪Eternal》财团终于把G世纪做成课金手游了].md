@@ -5355,3 +5355,11 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 趁大部队还没开卷，用上次打了12w的阵容打到了16w<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 1964#       发表于 2025-6-23 16:50
+
+明天送gq79绿叔叔，月底除了开种命主线还开CCA，卡池会是命运和海牛吗
+
