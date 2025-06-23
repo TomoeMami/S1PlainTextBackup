@@ -5428,3 +5428,11 @@ GP02真就版本陷阱啊，换个G3就上去了
 
 挖空心思搞的吃满加成坚牢队打到钻石已经不得劲了，换回上次的一击必杀队直接无视加成杀穿大师15w了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，继续长草期，坐等命运和掉毛
 
+
+*****
+
+####  lighttt  
+##### 1972#       发表于 2025-6-23 19:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"><img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">结果还是用的一击必杀拿下的15W
+
