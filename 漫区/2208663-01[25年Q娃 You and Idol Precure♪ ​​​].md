@@ -189,3 +189,23 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集给我的感觉，就是小歌什么时候怎么喜欢害兽的，之前还真看不出来
 
+
+*****
+
+####  modedd  
+##### 1083#       发表于 2025-6-23 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67987989&amp;ptid=2208663" target="_blank">199april 发表于 2025-6-23 22:09</a>
+这集给我的感觉，就是小歌什么时候怎么喜欢害兽的，之前还真看不出来</blockquote>
+因为她能变身成小歌一见钟情的那个漂亮大姐姐啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jaewoongh_  
+##### 1084#       发表于 2025-6-23 22:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">一帮颜控啊
+
