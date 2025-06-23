@@ -5141,3 +5141,29 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她不是那个金刚一直在外面不敢出来么
 
+
+*****
+
+####  leonz79  
+##### 3424#       发表于 2025-6-23 12:56
+
+这游戏有仁王那种拍照模式下按键进入下一帧的功能吗？这样就不用抓拍动作了
+
+
+*****
+
+####  alucardcz  
+##### 3425#       发表于 2025-6-23 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984678&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-6-23 11:45</a>
+
+废土那个实验室画风仿佛生化危机+死亡空间</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面还有一次生化危机关
+
+*****
+
+####  alucardcz  
+##### 3426#       发表于 2025-6-23 13:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">看到不少人吐槽 “跳跳乐” 我倒感觉还好 后面那个电风扇（这能叫跳跳乐吗） 独木桥难度都算适中   难道是因为我银河恶魔城玩多了
+
