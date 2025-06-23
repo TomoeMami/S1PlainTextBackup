@@ -5391,3 +5391,13 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 抄了</blockquote>
 不是 你们都有100级比查吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 1968#       发表于 2025-6-23 17:45
+
+GP00 GP01装甲 GP02 NT1 S高达
+
+我倒是看见好几个这个队的，全SP化，真爱这么多的吗
+
