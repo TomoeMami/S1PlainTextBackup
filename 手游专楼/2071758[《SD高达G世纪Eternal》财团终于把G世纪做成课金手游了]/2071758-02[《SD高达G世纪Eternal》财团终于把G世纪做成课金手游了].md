@@ -5266,3 +5266,14 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 反正15w达成，管他的
 
+
+*****
+
+####  jackyhuang  
+##### 1956#       发表于 2025-6-23 13:08
+
+<img src="https://p.sda1.dev/25/fc5a63bd584b94f2ede715c31f4e942b/image.jpg" referrerpolicy="no-referrer">
+接下来几天看看有没有希望到15万吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
