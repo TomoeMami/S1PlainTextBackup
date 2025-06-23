@@ -5598,3 +5598,26 @@ boss挑战里面招式多又花，难打的一逼
 他到底收到了什么信息，又去干嘛了，为什么好端端的渡鸦突然就 ...</blockquote>
 从准备上塔之后的伏笔回收都不能细想的，只能说金桑自己也知道写的烂，在nikke联动还补了不少角色塑造，强烈建议云一下但是亚当的塑造还是非常烂
 
+
+*****
+
+####  Andariel  
+##### 3466#       发表于 2025-6-24 07:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988738&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-24 02:38</a>
+从准备上塔之后的伏笔回收都不能细想的，只能说金桑自己也知道写的烂，在nikke联动还补了不少角色塑造，强 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮姬我玩了的
+我觉得这个联动最大的受益者是渡鸦
+原作里就是一个活在记录器影像里的角色
+真身露面了一次就给削成人棍了
+联动里的戏比原作都多，只能说不愧是进了池子要卖卡的
+
+*****
+
+####  HellMaster  
+##### 3467#       发表于 2025-6-24 07:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988738&amp;ptid=1978008" target="_blank">HATENA 发表于 2025-6-24 02:38</a>
+从准备上塔之后的伏笔回收都不能细想的，只能说金桑自己也知道写的烂，在nikke联动还补了不少角色塑造，强 ...</blockquote>
+其实塑造的还好。你看他的脸就知道这是个照马斯克捏的，剩下的靠想象就可以了。
+
