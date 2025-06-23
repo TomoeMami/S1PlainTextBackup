@@ -5103,3 +5103,16 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 保卫战主要看弹药规划吧，一个个杀肯定时间不够的，要利用中间刷的小机器人爆掉附近的怪
 
+
+*****
+
+####  Andariel  
+##### 3420#       发表于 2025-6-23 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984961&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-6-23 12:32</a>
+没做污渍、爆衣和湿身估计是技术实在跟不上了，100多套衣服，按初期算也要30多套，要命
+
+而且剑星的液体 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一作这样也就够了，留下这些爆衣啊湿身啥的下一作还有提高的方向
+之前看哪里好像说下一作准备ue5，估计优化就没这作这么好了，到时候肯定爆炸<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
