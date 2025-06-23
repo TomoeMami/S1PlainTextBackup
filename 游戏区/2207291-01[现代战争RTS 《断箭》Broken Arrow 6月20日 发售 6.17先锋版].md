@@ -1142,3 +1142,13 @@ PVP好歹还会看轨迹，或者挨炸以后才会撤退
 
 美军战役最后选择没有摧毁大坝，俄军战役最后选择消灭了舰队，怎么是这种结局
 
+
+*****
+
+####  银月术士329  
+##### 85#         楼主| 发表于 2025-6-23 08:48
+
+这么看战役结局还挺多<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+ 我玩了30个小时全在PVP<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
