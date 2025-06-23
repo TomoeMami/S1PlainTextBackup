@@ -5410,3 +5410,33 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 亚当回去那剧情感觉伊芙更搞不懂，本来是亚当开船带所有人一起回去，明显是要回希雍的，但伊芙一副很急的样子要下船一个人过去，之前的剧情也没看出怎么急了，准备妥当了都还能抽时间去9号，更别说大部分玩家还在沙漠那浪费了多少时间
 
+
+*****
+
+####  alucardcz  
+##### 3449#       发表于 2025-6-23 21:37
+
+这流程感觉很破晓传说 慢悠悠的打着打着以为后面还有很多流程 然后突然就结束了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wolfwood  
+##### 3450#       发表于 2025-6-23 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67980972&amp;ptid=1978008" target="_blank">HellMaster 发表于 2025-6-22 16:47</a>
+
+在中间的处理厂附近会出现。 一周目都有。</blockquote>
+破案了，和MOD有冲突，有MOD就不刷，删光MOD立马100%刷新，我明明只装了一堆服装MOD。。。
+
+*****
+
+####  梦诗歌雪  
+##### 3451#       发表于 2025-6-23 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984713&amp;ptid=1978008" target="_blank">超极巨鲨鲨 发表于 2025-6-23 11:52</a>
+
+大沙漠跑的想吐，有点懒得清支线了
+
+是不是百合的条满了就可以进真结局了 ...</blockquote>
+探索度到60%还是80%就行，正常该摸的尸体都摸一遍不是一路只跑主线的话基本都能到80%以上
+
