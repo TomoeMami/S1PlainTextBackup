@@ -4032,3 +4032,15 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 我记得一代后期箱子不是改成输了也能拿么?这又回到了赢了才能拿？这起码2小时起步吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 271#       发表于 2025-6-23 14:08
+
+ 本帖最后由 duraa 于 2025-6-23 14:09 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">最坐牢的一集
+
+1代还能无限玩自残鬼效率刷，这代怎么办呢
+
