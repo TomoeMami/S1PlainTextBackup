@@ -821,3 +821,28 @@ NS出了四五年了才出真有脸叫护航...</blockquote>
 
 锤玩多了根本不想玩历史系全战，一群凡人对砍对射实在提不起劲，还是怪兽魔法科技好玩
 
+
+*****
+
+####  Slyvan  
+##### 85#       发表于 2025-6-23 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981359&amp;ptid=2254417" target="_blank">妄想中毒 发表于 2025-6-22 18:20</a>
+
+暗喻幻想难道不是已经破功了吗</blockquote>
+因为不挂P6的名头
+
+所以现在还能说暗喻是裘千丈 ,真正厉害的是裘千仞 (P系) 
+
+等P6出来肯定大杀四方
+
+*****
+
+####  milky658  
+##### 86#       发表于 2025-6-23 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985442&amp;ptid=2254417" target="_blank">苦瓜师傅 发表于 2025-6-23 14:11</a>
+搭车问ryu8里桐生一马的剧情还多么？和前几作关联还多么？
+打完英雄无名感觉也没和前面接上</blockquote>
+龙8桐生一马和春日一番双主角，两条线。桐生这边情怀炮打得可以，有些人物感情还真是要桐生得癌才表现那么强烈，让人又爱又恨
+
