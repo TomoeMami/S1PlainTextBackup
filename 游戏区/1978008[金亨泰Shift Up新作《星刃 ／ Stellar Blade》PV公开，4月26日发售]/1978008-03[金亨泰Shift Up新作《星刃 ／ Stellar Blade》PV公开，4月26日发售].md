@@ -5253,3 +5253,30 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情挺老套的。。。还和尼尔一样不看设定大概只能理解一半 但是就算全懂了也没什么值得回味的地方
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一 比起剧情看台词不如看伊芙的动作（
 
+
+*****
+
+####  alucardcz  
+##### 3435#       发表于 2025-6-23 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看了下成就 除了2周目的基本都获得了。。但是2周目是不可能2周目的 再见了 等剑星2了
+
+*****
+
+####  十六夜pad长  
+##### 3436#       发表于 2025-6-23 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67986354&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-23 16:48</a>
+所以最后的eve到底在守护什么…搞的好像很燃似的。但是已经没有要守护的对象了啊…
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+如果是合体结局，那确实没守护什么，整个战争本质是主母和亚当打的赌。一边往地上扔天使证明老娘造物最强，另一边一直找合适的合体对象延续dna。
+
+合体之后主母觉得这个伊芙计划可以结束了，爹已经都这样了，算了算了，但老娘是不会认输的。
+
+然后应该是把原本计划里还没有投放的所有的存货一起扔下来权当收集数据了。
+
+总之有点烂尾，正经剧情应该是上星环那个结局，金亨泰自己玩也是打上星环的结局。
+
+—— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
