@@ -4013,3 +4013,14 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 ✍✍✍✍✍✍✍✍✍✍✍✍
 
+
+*****
+
+####  岸浪白野  
+##### 269#         楼主| 发表于 2025-6-23 12:45
+
+ 本帖最后由 岸浪白野 于 2025-6-23 12:48 编辑 
+
+还是那么熟悉的牢活动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/0a9328a096e472b472ef6f63715305a6/image.jpg" referrerpolicy="no-referrer">
+

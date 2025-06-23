@@ -5116,3 +5116,28 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一作这样也就够了，留下这些爆衣啊湿身啥的下一作还有提高的方向
 之前看哪里好像说下一作准备ue5，估计优化就没这作这么好了，到时候肯定爆炸<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 3421#       发表于 2025-6-23 12:47
+
+百合不是降落之后就一直被困在降落仓里么? 哪有空跟姬友去Eidos 9建秘密基地的
+
+
+*****
+
+####  银色天空  
+##### 3422#       发表于 2025-6-23 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985052&amp;ptid=1978008" target="_blank">oyss 发表于 2025-6-23 12:47</a>
+百合不是降落之后就一直被困在降落仓里么? 哪有空跟姬友去Eidos 9建秘密基地的 ...</blockquote>
+后面才躲进去的，虽然不知道怎么操作的能把自己关了两年
+
+*****
+
+####  Andariel  
+##### 3423#       发表于 2025-6-23 12:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她不是那个金刚一直在外面不敢出来么
+
