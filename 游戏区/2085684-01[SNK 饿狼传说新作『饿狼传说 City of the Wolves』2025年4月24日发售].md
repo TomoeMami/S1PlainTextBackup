@@ -4177,3 +4177,14 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 
 德国和墨西哥的比赛国手都没拿票, 云雾更是从败者打上来被铁球王3:0速通, 终极白忙活........
 
+
+*****
+
+####  魔王候补77号  
+##### 388#       发表于 2025-6-23 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983665&amp;ptid=2085684" target="_blank">风夏 发表于 2025-6-23 08:58</a>
+
+德国和墨西哥的比赛国手都没拿票, 云雾更是从败者打上来被铁球王3:0速通, 终极白忙活........ ...</blockquote>
+核聚变好像还有最后一张
+

@@ -4784,3 +4784,47 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 这么吊吗，那个技能我2周目到废土了还没点</blockquote>
 空杀/背刺接的顺劈甚至有蛮长的窗口，可以暗杀后再跑两步还有判定。
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3388#       发表于 2025-6-23 09:26
+
+新出那个MOD 646具体是个效果，看机翻有点云里雾里的。这是说可以自由搭配游戏内纳米服上下装，还是说可以兼容其他作者的MOD实现部件自由搭配
+
+*****
+
+####  卡拉德利姆  
+##### 3389#       发表于 2025-6-23 09:27
+
+被炮台打死不能还用复活币，视为机制杀
+
+*****
+
+####  棍机凹升龙  
+##### 3390#       发表于 2025-6-23 09:28
+
+换色衣服能不能用mod解决类似商人里出售  实在不想二三周目为了拿换色重新全拿一遍<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黒長直姫  
+##### 3391#       发表于 2025-6-23 09:35
+
+神圣守卫的披风太碍眼了
+
+*****
+
+####  十六夜pad长  
+##### 3392#       发表于 2025-6-23 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67977372&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-21 19:52</a>
+多语言游戏通病，更别说这玩意儿是韩语原文
+中文和日文搞不好都是对着英文翻译的，转了好几手了 ...</blockquote>
+就是对着英文翻的。
+
+这个翻译项目我朋友公司外包的，他们搞完死亡搁浅之后他们就来啃剑星了，就是英文翻过来的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
