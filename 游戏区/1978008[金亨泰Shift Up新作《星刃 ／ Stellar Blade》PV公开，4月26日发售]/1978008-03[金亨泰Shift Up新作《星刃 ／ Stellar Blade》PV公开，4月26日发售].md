@@ -4864,3 +4864,38 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 这游戏的普攻就是这么弱的，主要作用在于攒能量
 
+
+*****
+
+####  洛克萨斯  
+##### 3397#       发表于 2025-6-23 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稍微像样一点的杂兵都不怎么砍的动，发簪刀就是菜
+
+*****
+
+####  内拉祖里  
+##### 3398#       发表于 2025-6-23 10:31
+
+5600XT玩剑星2k可以开全特效，但是因为会爆显存所以开全特效不可以<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lunaticfear  
+##### 3399#       发表于 2025-6-23 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983940&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-23 09:50</a>
+
+废土日光塔往北走那个洞窟里的水池里的箱子秘码去哪里弄？钓鱼是不是就和鱼饵有关，随便哪个鱼点都能钓？怪 ...</blockquote>
+钓鱼系列任务后面会给密码，不同的钓鱼点出不同的鱼
+
+*****
+
+####  complion  
+##### 3400#       发表于 2025-6-23 10:35
+
+<blockquote>心灵的乳头 发表于 2025-6-23 09:50
+废土日光塔往北走那个洞窟里的水池里的箱子秘码去哪里弄？钓鱼是不是就和鱼饵有关，随便哪个鱼点都能钓？怪 ...</blockquote>
+钓鱼任务一直做会给密码。
+
