@@ -20,3 +20,13 @@
 
 当然最后一转攻势“怎么可能告诉你们嘛”，让大家保持期待了
 
+
+*****
+
+####  Ask_10A  
+##### 7029#       发表于 2025-6-24 01:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">卡卡一招二十年的功力，全部变成弱男弱女了<img src="https://p.sda1.dev/25/f0f7ea17d3b2fd9e08bbf6aeebedaec9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
