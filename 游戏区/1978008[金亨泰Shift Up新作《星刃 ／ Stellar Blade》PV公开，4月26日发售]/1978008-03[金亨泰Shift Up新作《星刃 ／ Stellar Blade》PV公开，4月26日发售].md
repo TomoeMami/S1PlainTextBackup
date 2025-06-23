@@ -5394,3 +5394,11 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  alucardcz  
+##### 3447#       发表于 2025-6-23 21:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">躺下去拿手机看了看成就 就差那几个不拿又感觉浑身难受 有没有人说说2周目速通要多久
+
