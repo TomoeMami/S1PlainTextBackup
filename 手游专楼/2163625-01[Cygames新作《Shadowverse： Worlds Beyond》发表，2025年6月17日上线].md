@@ -4044,3 +4044,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 1代还能无限玩自残鬼效率刷，这代怎么办呢
 
+
+*****
+
+####  辞冬  
+##### 272#       发表于 2025-6-23 14:31
+
+意思是赢一把才可能刷宝箱，刷出宝箱还要再赢一把才能开宝箱？这得打多久？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
