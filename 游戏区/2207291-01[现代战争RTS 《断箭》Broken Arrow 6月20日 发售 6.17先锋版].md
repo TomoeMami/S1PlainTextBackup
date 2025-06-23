@@ -1163,3 +1163,19 @@ PVP好歹还会看轨迹，或者挨炸以后才会撤退
 这游戏PVE是不是完全不存在AI</blockquote>
 几乎没有 所谓遭遇战其实是设定好的出兵流程，每一波AI只会前往目标区域然后挂机
 
+
+*****
+
+####  sql710  
+##### 87#       发表于 2025-6-23 12:16
+
+周末拖拖拉拉的玩了两天，战役除开战斗部分感觉就想个galgame<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+认真的说，战役部分加个游戏中快速存档，或者达成阶段性目标后自动存档，那基本上就大差不差了。反正有创意工坊，未来再卖点剧情dlc就行了。
+
+coop或者说遭遇战问题就太大了，没有小地图，AI不能当队友，脚本式AI。不过慢慢未来应该能优化。
+
+pvp是目前官方最推的，或者说pvp玩家是网上声量最大的。不知道未来会不会出10v10大地图，那才爽啊！开局互扔核弹才好看呀<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不着急的坛友可以等至少下次打折，甚至等冬促算了
+

@@ -5033,3 +5033,15 @@ boss挑战里面招式多又花，难打的一逼
 还有以前pv里面伊芙打怪血会溅到身上留下血迹
 正式版这个要素也删了
 
+
+*****
+
+####  Andariel  
+##### 3414#       发表于 2025-6-23 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984713&amp;ptid=1978008" target="_blank">超极巨鲨鲨 发表于 2025-6-23 11:52</a>
+大沙漠跑的想吐，有点懒得清支线了
+
+是不是百合的条满了就可以进真结局了 ...</blockquote>
+恩雅 机器人 还有卡雅的支线不完成的话后面会少三个三星组件
+

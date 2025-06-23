@@ -5224,3 +5224,45 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 平民阵容打了个16万
 
+
+*****
+
+####  HEERO.W  
+##### 1952#       发表于 2025-6-23 12:10
+
+果然还是刚开的时候最轻松，随便打了16W。
+
+发现有个打发超恶心，沙扎比反击流，一炮一个
+
+
+*****
+
+####  captoon  
+##### 1953#       发表于 2025-6-23 12:16
+
+<img src="https://img.stage1st.com/forum/202506/23/121556xdyded5oitbyns2t.jpg" referrerpolicy="no-referrer">
+
+<strong>ED14253B0E655CECDBD5CF802CDA2E4C.jpg</strong> (564.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 12:15 上传
+
+今天的刷完了，看看20W要花多久
+
+*****
+
+####  dio999  
+##### 1954#       发表于 2025-6-23 12:16
+
+17W收工，后面刷出来的都是各种变态了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 1955#       发表于 2025-6-23 12:18
+
+2星的GP02好像已经打不过了
+
+反正15w达成，管他的
+
