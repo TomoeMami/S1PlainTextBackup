@@ -1152,3 +1152,14 @@ PVP好歹还会看轨迹，或者挨炸以后才会撤退
 
  我玩了30个小时全在PVP<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nbwjh0630  
+##### 86#       发表于 2025-6-23 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67975740&amp;ptid=2207291" target="_blank">狐式重型坦克 发表于 2025-6-21 12:10</a>
+
+这游戏PVE是不是完全不存在AI</blockquote>
+几乎没有 所谓遭遇战其实是设定好的出兵流程，每一波AI只会前往目标区域然后挂机
+
