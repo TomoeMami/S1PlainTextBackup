@@ -4766,3 +4766,11 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 而且一披风带两炮台的组合，从后面过去虽然炮台会发现你，但是不妨碍你暗杀披风之后 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么吊吗，那个技能我2周目到废土了还没点
 
+
+*****
+
+####  洛克萨斯  
+##### 3386#       发表于 2025-6-23 09:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在做沙漠支线，舔图舔的差不多了，那个超级炮台居然爬不上去要远程打死的，两炮就能打死我，比boss还厉害
+
