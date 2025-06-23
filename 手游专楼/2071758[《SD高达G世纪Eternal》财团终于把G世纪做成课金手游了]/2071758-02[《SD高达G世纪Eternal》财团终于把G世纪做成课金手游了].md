@@ -5309,3 +5309,14 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 感觉这次运气不错，刷出来的对手都不带盾的，是优化过了？
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1960#       发表于 2025-6-23 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984788&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-6-23 12:03</a>
+
+平民阵容打了个16万</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">抄了
+
