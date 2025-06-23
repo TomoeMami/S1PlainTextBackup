@@ -8266,3 +8266,18 @@ PS：我不知道正片怎么样烂还是不烂，我没看过剧透原帖，就
 
 讲道理确实最终话播完以后能不能有人把pdf公开一下，我也想看鹤卷画的分镜稿，感觉很有意思
 
+
+*****
+
+####  xwz  
+##### 21338#       发表于 2025-6-23 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984989&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-23 12:37</a>
+
+这片子其实……按说夏亚在政治方面应该有政治方面的对手才对，他就不会老是去找一个驾驶员的较劲
+
+包括卡 ...</blockquote>
+要不为什么说鸭子器量小呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+本来明明可以直接专心点把阿克西斯丢下去就可以了的，非要节外生枝。拧巴到必须在所谓的自认为公平的条件下和骡子一战，结果好了，石头没丢成， 还没打过骡子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
