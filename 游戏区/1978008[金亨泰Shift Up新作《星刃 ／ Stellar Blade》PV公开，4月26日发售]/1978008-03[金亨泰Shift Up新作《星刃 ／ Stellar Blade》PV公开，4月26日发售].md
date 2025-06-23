@@ -5341,3 +5341,30 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 但我就是平平无奇捡破烂商人.jpg
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 3442#       发表于 2025-6-23 20:07
+
+<blockquote>罐子 发表于 2025-6-20 16:52
+衣服我没意见，高跟鞋能不能拆开单独饰品
+
+很多衣服好看但一看脚就奇奇怪怪的
+</blockquote>
+赛博蹄型高跟是防母拳冲击措施.jpg
+
+
+*****
+
+####  Andariel  
+##### 3443#       发表于 2025-6-23 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67987385&amp;ptid=1978008" target="_blank">爱撕衣魔刃 发表于 2025-6-23 20:01</a>
+从各类捏起拔包括鸦宝面前全身而退，
+
+拥有全城（很可能是全球）唯一一条船，
+
+但我就是平平无奇捡破烂商人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">开头从渡鸦面前全身而退其实结合后面剧情看很合理
+
