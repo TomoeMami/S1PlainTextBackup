@@ -44542,3 +44542,16 @@ yuki是带她玩尼菈+给她做了蒙太奇的人</blockquote>
 
 チャンバラ是很坏的词吗？
 
+
+*****
+
+####  术士q  
+##### 18827#       发表于 2025-6-24 02:48
+
+ 本帖最后由 术士q 于 2025-6-24 02:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988734&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-6-24 02:30</a>
+チャンバラ是很坏的词吗？</blockquote>
+是在说千灯吧...
+千灯在这次确实挺照顾主播的，然后粉丝听到主播对千灯疑似不敬就这样了吧
+千灯人还是挺好的
+
