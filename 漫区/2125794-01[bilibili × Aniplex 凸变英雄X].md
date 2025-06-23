@@ -3993,3 +3993,16 @@ yysy
 大小強篇還那麼後面 ...</blockquote>
 好像是下面几个人到大小强篇都有出场，到时候收束时间线
 
+
+*****
+
+####  新HGCG  
+##### 341#       发表于 2025-6-23 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984143&amp;ptid=2125794" target="_blank">补丁 发表于 2025-6-23 10:21</a>
+
+好像是下面几个人到大小强篇都有出场，到时候收束时间线</blockquote>
+居然是这样的吗
+
+莫非都是大强暴走的受害者？
+

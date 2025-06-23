@@ -4987,3 +4987,25 @@ boss挑战里面招式多又花，难打的一逼
 
 废土那个实验室画风仿佛生化危机+死亡空间
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 3410#       发表于 2025-6-23 11:52
+
+大沙漠跑的想吐，有点懒得清支线了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+是不是百合的条满了就可以进真结局了
+
+*****
+
+####  11116等  
+##### 3411#       发表于 2025-6-23 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984713&amp;ptid=1978008" target="_blank">超极巨鲨鲨 发表于 2025-6-23 11:52</a>
+
+大沙漠跑的想吐，有点懒得清支线了
+
+是不是百合的条满了就可以进真结局了 ...</blockquote>
+条满了去新地图就行
+
