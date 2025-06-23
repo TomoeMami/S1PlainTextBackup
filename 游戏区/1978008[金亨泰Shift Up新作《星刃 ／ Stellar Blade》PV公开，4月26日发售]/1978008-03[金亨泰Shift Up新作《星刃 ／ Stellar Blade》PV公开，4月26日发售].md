@@ -5368,3 +5368,19 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 但我就是平平无奇捡破烂商人 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">开头从渡鸦面前全身而退其实结合后面剧情看很合理
 
+
+*****
+
+####  mhss  
+##### 3444#       发表于 2025-6-23 20:28
+
+这部的剧情确实缝到不能多想，尼尔+翠星+乐园追放。
+亚当人其实也不坏，二周目打完金刚那对话我感觉要是没有莉莉搅局打断当时他就要全盘托出了。
+
+*****
+
+####  alucardcz  
+##### 3445#       发表于 2025-6-23 20:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">旅途结束 53小时  2周目全成就等剑星2出来的时候再打了（
+
