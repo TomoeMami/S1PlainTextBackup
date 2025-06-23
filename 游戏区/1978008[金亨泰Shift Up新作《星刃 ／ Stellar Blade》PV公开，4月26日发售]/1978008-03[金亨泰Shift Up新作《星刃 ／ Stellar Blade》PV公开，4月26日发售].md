@@ -5314,3 +5314,13 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3440#       发表于 2025-6-23 18:58
+
+原来剑星的真人animal video已经有了，演员是天马yui非常好，服装......在animal video里已经算不错了。
+
+明人不说暗话，直接上番号SPSD-53。
+
