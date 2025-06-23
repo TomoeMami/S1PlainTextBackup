@@ -8281,3 +8281,23 @@ PS：我不知道正片怎么样烂还是不烂，我没看过剧透原帖，就
 
 本来明明可以直接专心点把阿克西斯丢下去就可以了的，非要节外生枝。拧巴到必须在所谓的自认为公平的条件下和骡子一战，结果好了，石头没丢成， 还没打过骡子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 21339#       发表于 2025-6-23 19:22
+
+ 本帖最后由 岸浪白野 于 2025-6-23 19:23 编辑 
+
+12集分镜那份pdf先不提
+动画完结后确实是可以发之前2022年的计划书出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以前也说过了封面是三人坐课桌
+
+*****
+
+####  ヒトニナル  
+##### 21340#       发表于 2025-6-23 19:22
+
+看到X上万代股东今天去开会被说“鸡夸得到的支持很多呢～”“记得看鸡夸最终话哦～”就有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+闪哈2在做了
+
