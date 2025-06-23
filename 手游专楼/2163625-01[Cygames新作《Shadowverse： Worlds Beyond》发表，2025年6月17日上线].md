@@ -4052,3 +4052,17 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 
 意思是赢一把才可能刷宝箱，刷出宝箱还要再赢一把才能开宝箱？这得打多久？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 273#       发表于 2025-6-23 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985542&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-23 14:31</a>
+意思是赢一把才可能刷宝箱，刷出宝箱还要再赢一把才能开宝箱？这得打多久？ ...</blockquote>
+欢迎来到坐牢的世界<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面肯定还会有大赛箱子活动连轴转的日子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
