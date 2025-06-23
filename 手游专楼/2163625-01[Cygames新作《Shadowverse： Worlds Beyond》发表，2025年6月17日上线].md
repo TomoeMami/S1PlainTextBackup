@@ -4024,3 +4024,11 @@ steam差评如潮 x 宏迪 chan都在喷 难组卡所以氪的多
 还是那么熟悉的牢活动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/0a9328a096e472b472ef6f63715305a6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windhawind2  
+##### 270#       发表于 2025-6-23 13:34
+
+我记得一代后期箱子不是改成输了也能拿么?这又回到了赢了才能拿？这起码2小时起步吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

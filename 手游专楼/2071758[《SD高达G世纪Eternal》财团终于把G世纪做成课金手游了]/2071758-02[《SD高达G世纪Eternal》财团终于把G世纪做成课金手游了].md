@@ -5277,3 +5277,19 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  胖达君  
+##### 1957#       发表于 2025-6-23 13:24
+
+16万分达成，白嫖玩家表示拿满奖励就跑路，称号的星星无所谓<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/23/132438w7gi33iu0s0z82ui.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_2025-06-23_132320_626.jpg</strong> (450.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 13:24 上传
+

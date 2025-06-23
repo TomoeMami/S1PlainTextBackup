@@ -5177,3 +5177,16 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 
 我穿一个皮肤废墟跷跷板那里怎么也跳不上，换了2b的衣服直接跳上了
 
+
+*****
+
+####  武蔵  
+##### 3428#       发表于 2025-6-23 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985232&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-6-23 13:24</a>
+这游戏皮肤能影响跳跃性能，太变态了，有的比原皮低，有的比原皮高。
+
+我穿一个皮肤废墟跷跷板那里怎么也跳 ...</blockquote>
+？
+<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
