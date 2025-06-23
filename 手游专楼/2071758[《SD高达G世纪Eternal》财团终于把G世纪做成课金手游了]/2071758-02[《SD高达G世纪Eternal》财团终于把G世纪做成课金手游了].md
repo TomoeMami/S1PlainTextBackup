@@ -5401,3 +5401,14 @@ GP00 GP01装甲 GP02 NT1 S高达
 
 我倒是看见好几个这个队的，全SP化，真爱这么多的吗
 
+
+*****
+
+####  jackyhuang  
+##### 1969#       发表于 2025-6-23 18:03
+
+<img src="https://p.sda1.dev/25/4e3338521ffc83c46c8cb1edbd59327a/image.jpg" referrerpolicy="no-referrer">
+GP02真就版本陷阱啊，换个G3就上去了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

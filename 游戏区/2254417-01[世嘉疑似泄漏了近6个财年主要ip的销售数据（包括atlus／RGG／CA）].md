@@ -884,3 +884,11 @@ p3和暗喻游戏生涯连p5一半都没有 ...</blockquote>
 
 但这游戏整个剧情就那么回事，建议别太在意剧情比较好。
 
+
+*****
+
+####  拱猪  
+##### 90#       发表于 2025-6-23 17:59
+
+索尼克竟然卖那么好<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，我还以为是dead ip了
+
