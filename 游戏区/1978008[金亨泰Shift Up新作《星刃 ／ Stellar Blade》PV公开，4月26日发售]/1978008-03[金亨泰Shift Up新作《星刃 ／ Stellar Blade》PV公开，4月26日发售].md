@@ -5190,3 +5190,20 @@ burst不要用三角的轰炸，可能会浪费无人机。宁愿用剑气眩晕
 ？
 <img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3429#       发表于 2025-6-23 16:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么后面boss都吃击倒 有一种无敌是多么寂寞的感觉
+
+*****
+
+####  袄_偶滴小乔  
+##### 3430#       发表于 2025-6-23 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985052&amp;ptid=1978008" target="_blank">oyss 发表于 2025-6-23 12:47</a>
+百合不是降落之后就一直被困在降落仓里么? 哪有空跟姬友去Eidos 9建秘密基地的 ...</blockquote>
+剧情说若干年前百合就在地上生活，被孽奇拔反攻才逃去天上，然后报名了当了工程师才又降下来
+
