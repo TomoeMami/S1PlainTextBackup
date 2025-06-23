@@ -7403,3 +7403,47 @@ bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了
 
 希洛克那发型太难绷了，现代化改造我都想不出怎么改<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不扎奶奶头的希洛克还是希洛克吗
 
+
+*****
+
+####  syndrome2032  
+##### 21253#       发表于 2025-6-23 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984662&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-23 11:41</a>
+安彦良和在gto卖赤紫互动，光头在z骡鸭重逢的场景。你说老登没有搞腐女营业我是不信的 ...</blockquote>
+安彦是真的鸭子梦男，gto之鸭子传不是白叫的。
+
+但是光头不管怎么搞都走不出“拉拉可是能成为我母亲的女人”，就有点过于年轻犯下的错误了。
+
+*****
+
+####  Flechette  
+##### 21254#       发表于 2025-6-23 12:00
+
+奶奶头承受的恶意太多了，乃至某条世界线上还得舍身成为便宜反派进行一场毫无胜算的1V5，是个大家一起包饺子时都吃不上饺子的可怜人<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 21255#       发表于 2025-6-23 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984686&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-23 11:47</a>
+
+鸭子主要是当时创作者场外喜欢抬，也有卖角色的意思吧。光头访谈说过不少次鸭子认真起来可以压死主角团的（ ...</blockquote>
+夏亚能搞死阿姆罗的意思是不择手段搞暗杀，比如汽车炸弹，邮寄细菌，B里藏 -毒
+
+因为再不济也是总帅，和一个驾驶员能动用的资源不一样
+
+*****
+
+####  璇瑢子R  
+##### 21256#       发表于 2025-6-23 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984692&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-6-23 11:48</a>
+这么干不太好，但我现在看nga和贴吧的人因为剧透破防笑得停不下来
+对gqux这个剧观感最差的一批人，应该就是 ...</blockquote>
+你这只覆盖喜欢的是高达uc这个世界线的
+
+角色厨无论小登老登，只要牵扯到自己角色的能坐得住
+

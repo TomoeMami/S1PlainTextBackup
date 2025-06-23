@@ -5208,3 +5208,19 @@ UR红蛇上减防35跟特殊25，WZ上光束30，水瓶座上物理35
 
 机体位置紧张可以用援防驾驶开支援机，别死就行（死了扣分）
 
+
+*****
+
+####  windtrack  
+##### 1951#       发表于 2025-6-23 12:03
+
+<img src="https://img.stage1st.com/forum/202506/23/120249ll3866gz3ag31fgr.png" referrerpolicy="no-referrer">
+
+<strong>f308b11eb6b34630bcb37d45b4fc01c5.png</strong> (195.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 12:02 上传
+
+平民阵容打了个16万
+
