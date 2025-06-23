@@ -7289,3 +7289,31 @@ bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  大十字紅朔  
+##### 21241#       发表于 2025-6-23 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983627&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-23 08:52</a>
+
+麻球和狸猫好歹是主角，奥尔加是怎么混到和人俩坐一桌的，跟喵安一桌玩去吧 ...</blockquote>
+话说是不是因为没开高达的原因很多人没把团长当主角？<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LadySaazbaum  
+##### 21242#       发表于 2025-6-23 11:27
+
+鸭子颜值摆在那里女粉怎么少得了，再来一个性格复杂唉那可解读的方式可就更多了，解读不同推的姿势也不同
+还有那种喜欢画基连鸭的呢
+
+比较令我费解的是男粉也多，战斗力还贼恐怖<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 21243#       发表于 2025-6-23 11:30
+
+说到鸭×卡尔玛，前段时间看到个本子封面是这俩，没敢点进去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

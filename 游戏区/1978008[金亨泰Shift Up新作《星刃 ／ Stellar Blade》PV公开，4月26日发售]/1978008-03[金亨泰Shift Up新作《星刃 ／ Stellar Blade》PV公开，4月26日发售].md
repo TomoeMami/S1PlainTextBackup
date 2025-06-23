@@ -4969,3 +4969,13 @@ boss挑战里面招式多又花，难打的一逼
 
 游戏里通过记忆条（SSD）还原遗言的机制其实挺合我胃口，可以通过探索收集，想象还原这里当初的真相，无需设置木偶人就做出了各种剧情，这个比仁王啥的做得更到位，但是翻译不靠谱加上又臭又长的路线长度到最后就让人懒得看了，纠结的是我靠这图都来过5次了咋还有数据库不齐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xell2alex  
+##### 3408#       发表于 2025-6-23 11:30
+
+伊芙的体态动作太美了，如果多一些类似ryona游戏里色气的被处决镜头就好了<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+车站里的触手怪我绕圈防御半天终于确认没有绞杀投，老金，我对你很失望！
+
