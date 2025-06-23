@@ -4907,3 +4907,15 @@ n网开始删除部分mod? 刚换资本家接手就这样了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这游戏为什么要角落赛怪 但是主角有怪就会直接拔剑 突出一个藏了个寂寞 有下作记得别再拔剑了
 
+
+*****
+
+####  FFFreddie  
+##### 3402#       发表于 2025-6-23 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984246&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-23 10:39</a>
+话说这游戏为什么要角落赛怪 但是主角有怪就会直接拔剑 突出一个藏了个寂寞 有下作记得别再拔剑了 ...</blockquote>
+为了给你看看被偷袭抱住啃的样子，有的姿势还挺好用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -7078,3 +7078,66 @@ yysy
 
 而且河豚产了多少粮？后期和喵安破镜后，又去产麻球和小森的粮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 21220#       发表于 2025-6-23 10:47
+
+鹤卷这片里各种诈骗，连最火的红绿cp都能给你拆咯，还纠结什么河豚<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21221#       发表于 2025-6-23 10:49
+
+突然想到，如果剧透是真的，那我这个回复也算是成真了把<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/23/104934gdjqqyt9llqqm6wq.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1750646903982.png</strong> (90.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-23 10:49 上传
+
+*****
+
+####  云野十五  
+##### 21222#       发表于 2025-6-23 10:50
+
+不是台长的公鸭嗓没意思
+
+
+*****
+
+####  aeolus039  
+##### 21223#       发表于 2025-6-23 10:50
+
+开岁的速度倒是挺快的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/5c959a738dd9a21d5362f8c902386770/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/db00dce129042e81c1aeee03e1073871/image.jpg" referrerpolicy="no-referrer">
+本坛河豚楼也是高楼，要不去问问哪个河豚感觉水魔是好片的？
+
+*****
+
+####  Flechette  
+##### 21224#       发表于 2025-6-23 10:52
+
+剧透太坏了，要是所有观众都在一无所知的情况下被12话狂暴轰入该多好<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 21225#       发表于 2025-6-23 10:55
+
+<blockquote>aeolus039 发表于 2025-6-23 10:50
+开岁的速度倒是挺快的
+
+</blockquote>
+本坛纯度比较高，婆罗豚多
+
+微博小红薯上还是有不少洗水魔的，哦还有不少磕番茄喵安的集美
+
+不过看到一堆集美去补了uc也算gqx大功一件吧(不过以后不会真有鸭子宝宝妈妈爱你这种……的讨论氛围吧
+
