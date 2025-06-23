@@ -7317,3 +7317,33 @@ bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了
 
 说到鸭×卡尔玛，前段时间看到个本子封面是这俩，没敢点进去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  西洛克  
+##### 21244#       发表于 2025-6-23 11:41
+
+安彦良和在gto卖赤紫互动，光头在z骡鸭重逢的场景。你说老登没有搞腐女营业我是不信的
+
+*****
+
+####  mengsu  
+##### 21245#       发表于 2025-6-23 11:43
+
+ 本帖最后由 mengsu 于 2025-6-23 11:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984542&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-23 11:22</a>
+
+可能是我觉得他丢人瞬间太多了（
+
+尤其是z</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美型角色吃瘪那叫楚楚可怜，不要小看梦女啊。
+
+加上女性新观众不少去补了GTO，感情分太多了。
+
+*****
+
+####  BatChatillon25T  
+##### 21246#       发表于 2025-6-23 11:45
+
+鸭子无论官方还是民间投票不都是稳定全系列老一
+
