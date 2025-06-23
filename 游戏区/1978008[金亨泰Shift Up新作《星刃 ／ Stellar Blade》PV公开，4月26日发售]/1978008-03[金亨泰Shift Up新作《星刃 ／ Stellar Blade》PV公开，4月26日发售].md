@@ -5519,3 +5519,11 @@ boss挑战里面招式多又花，难打的一逼
 
 2025-6-23 23:07 上传
 
+
+*****
+
+####  洛克萨斯  
+##### 3459#       发表于 2025-6-23 23:12
+
+亚当就是嫌弃渡鸦太颠了吧.......不如这一版本的伊芙人美心善<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
