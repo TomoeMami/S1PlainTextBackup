@@ -5557,3 +5557,16 @@ boss挑战里面招式多又花，难打的一逼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">睡前打了把曼恩 他还有最后一丝血的时候投技没躲掉 直接满血死了。。这还是普通难度
 
+
+*****
+
+####  oyss  
+##### 3463#       发表于 2025-6-24 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67988373&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-23 23:54</a>
+
+可是打曼恩的时候他可是会打枪的
+
+先手一个烟幕弹然后躲在烟幕里面狙击，恶心的很 ...</blockquote>
+就算不用枪,他那刀长度也够了.
+
