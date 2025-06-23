@@ -7206,3 +7206,22 @@ bg成了河豚反而开心呢，因为这次不用背锅了，gqx的锅太重了
 
 毕竟迫害鸭之集大成作品就是cca<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  solora  
+##### 21232#       发表于 2025-6-23 11:10
+
+ 本帖最后由 solora 于 2025-6-23 11:12 编辑 
+
+巨大化的元祖何尝不是国家队的另一种形式<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 21233#       发表于 2025-6-23 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984458&amp;ptid=2209276" target="_blank">solora 发表于 2025-6-23 11:10</a>
+巨大化的元祖何尝不是国家队的另一种形式</blockquote>
+早该给jzgg翻案了，要是jzgg做的是eva if（
+
