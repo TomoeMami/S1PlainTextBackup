@@ -209,3 +209,23 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">一帮颜控啊
 
+
+*****
+
+####  noneoneone  
+##### 1085#       发表于 2025-6-24 09:28
+
+所以噗哩伦失去的最重要记忆是小歌开始，保持下来的最重要目的是保护idol，那到底是被哪边的颜迷惑了？
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  PrincessBanana  
+##### 1086#       发表于 2025-6-24 09:33
+
+梅洛伦重啊，太重了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -5678,3 +5678,30 @@ boss挑战里面招式多又花，难打的一逼
 昨晚沙漠舔的差不多了，去推主线，底层大风扇加电锯给我整不会了，有病么 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是挺简单的吗  也没什么脚滑就寄的地方
 
+
+*****
+
+####  mhss  
+##### 3474#       发表于 2025-6-24 09:27
+
+二周目开的日配，伊芙不够嫩了，莉莉少年音，亚当则是本季度的高达绿叔叔声线复刻，初遇艾米尔就一句台词，还感觉声线有点没夹住。
+二周目开dlc后希雍那满城装饰确实挺出戏的，还有正对不动，背对狂扭的魔性仙人掌。
+
+
+*****
+
+####  洛克萨斯  
+##### 3475#       发表于 2025-6-24 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989338&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-24 09:20</a>
+
+不是挺简单的吗  也没什么脚滑就寄的地方</blockquote>
+死了几次我才发现第二个黄色标记让你上去的
+
+*****
+
+####  naclken.  
+##### 3476#       发表于 2025-6-24 09:34
+
+尼尔的联动外观误我，伊芙在小巷子被小混混偷袭瘫倒在地失去反抗能力的时候遮了半张脸，少玩五毛钱的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
