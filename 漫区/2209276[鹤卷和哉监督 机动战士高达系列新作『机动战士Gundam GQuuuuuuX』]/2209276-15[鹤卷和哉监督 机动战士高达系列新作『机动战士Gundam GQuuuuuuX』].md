@@ -8681,3 +8681,13 @@ X 上的 まぐ太：“どした？どした？https://t.co/jefDjsU6fD” / X
 X 上的 米村孝一郎：“後二日か〜 #GQu ...</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  57042711  
+##### 21360#       发表于 2025-6-24 09:11
+
+巨大化什么鬼，实质灵光战士续作是吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

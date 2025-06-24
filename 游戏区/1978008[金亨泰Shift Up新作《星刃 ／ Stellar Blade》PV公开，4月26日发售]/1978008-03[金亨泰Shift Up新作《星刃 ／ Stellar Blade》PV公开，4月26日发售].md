@@ -5639,3 +5639,31 @@ boss挑战里面招式多又花，难打的一逼
 
 你们都说尼尔的bgm好，我怎么觉得这女声吟唱有点吵，还有那联动小车外放的音乐，只要地图上一出现，就有一种在蓝调酒馆吹唢呐的冲击感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 3470#       发表于 2025-6-24 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989202&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-24 08:59</a>
+你们都说尼尔的bgm好，我怎么觉得这女声吟唱有点吵，还有那联动小车外放的音乐，只要地图上一出现，就有一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾米尔那个车是特色，必须有那首bgm
+
+*****
+
+####  洛克萨斯  
+##### 3471#       发表于 2025-6-24 09:06
+
+昨晚沙漠舔的差不多了，去推主线，底层大风扇加电锯给我整不会了，有病么<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无连斩  
+##### 3472#       发表于 2025-6-24 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989202&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-24 08:59</a>
+你们都说尼尔的bgm好，我怎么觉得这女声吟唱有点吵，还有那联动小车外放的音乐，只要地图上一出现，就有一 ...</blockquote>
+就是吵啊，用了尼尔本身世界观和这作相比更压抑，用了联动bgm就很出戏..找了下还没有mod能关掉，结果我就不穿尼尔衣服了
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
