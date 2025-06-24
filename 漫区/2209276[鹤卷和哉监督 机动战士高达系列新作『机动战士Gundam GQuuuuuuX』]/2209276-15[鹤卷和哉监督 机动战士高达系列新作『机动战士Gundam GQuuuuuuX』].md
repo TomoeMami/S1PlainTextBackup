@@ -8691,3 +8691,48 @@ X 上的 米村孝一郎：“後二日か〜 #GQu ...</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  朝日奈みらい.  
+##### 21361#       发表于 2025-6-24 09:44
+
+夏亚虽然总被当成迫害对象但是他每个阶段想达成的目的是都达成的
+
+扎比家复仇完成，公国倒台成功，提坦斯也灭亡了，他不动手哈曼还自个儿嘎了
+
+要不是阿克西斯奇迹这种不讲道理的东西，石头也丢成功了
+
+相比gqx这位才是干啥啥不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 21362#       发表于 2025-6-24 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989527&amp;ptid=2209276" target="_blank">朝日奈みらい. 发表于 2025-6-24 09:44</a>
+
+夏亚虽然总被当成迫害对象但是他每个阶段想达成的目的是都达成的
+
+扎比家复仇完成，公国倒台成功，提坦斯也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你让他换他肯定宁愿选拉拉没死，卡缪没疯
+
+
+*****
+
+####  猪突猛进R  
+##### 21363#       发表于 2025-6-24 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989547&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-24 09:47</a>
+
+你让他换他肯定宁愿选拉拉没死，卡缪没疯</blockquote>
+正史那位不会把妈妈丢妓院5年。
+
+GQ鸭脑子有坑，要么就是薄情寡义。
+
+GQ拉拉不救；
+
+神棍拉拉被紫婆利用，不去爆紫婆头反而拿拉拉开刀。
+
