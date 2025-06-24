@@ -10302,3 +10302,151 @@ yep
 X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“万策尽きたララァです #GQuuuuuuXhttps://t.co/Q ...</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  岸浪白野  
+##### 21476#       发表于 2025-6-24 20:54
+
+ 本帖最后由 岸浪白野 于 2025-6-24 20:56 编辑 
+
+[X 上的 As'まりあ：“ジークアクス最終回予想はコレの一点買いで #ジークアクス最終回予想](https://x.com/Asmaria_/status/1937468184841601505)[https://t.co/tMQ357xa5Z](https://t.co/tMQ357xa5Z)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204345ukrn7jpn50uzk66h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:43 上传
+
+[X 上的 松田未来　「夜光雲のサリッサ」第14巻発売！：“機動戦士Gundam GQuuuuuuX、今夜が最終回ということで、前から描こうと思っていたジークアクスのコア・ファイターを。 作品の面白さはもちろん(まだ最終回を控えてはいますが)SNSでの盛り上がりと一体感は近年稀に見る大きなものだったと思います。楽しかった。 あとは見届けるだけですね。](https://x.com/macchiMC72/status/1937430726041080230)[https://t.co/H6YC78LJeo](https://t.co/H6YC78LJeo)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204422obn9qxtmtdp7pcpk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (902.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:44 上传
+
+[X 上的 Sep：“だから僕は… 真のラスボス #GQuuuuuuX #ジークアクス](https://x.com/jaqwatdas/status/1937095372624793751)[https://t.co/2vww1oYbco](https://t.co/2vww1oYbco)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204009luj2abv2o67bvdda.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.81 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:40 上传
+
+[X 上的 れもん茶：“ユズリハ・アマテの憂鬱 #ジークアクス #GQuuuuuuX](https://x.com/Lemoncha08014/status/1937465417574023270)[https://t.co/bCLiU61xyY](https://t.co/bCLiU61xyY)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204119d2t7xlk8lkiz7x67.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:41 上传
+
+[X 上的 またへい：“](https://x.com/matahe_i/status/1937454503827013633)[https://t.co/T1T8nzuCLP](https://t.co/T1T8nzuCLP)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204839q8oxvx57iadc8a78.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (416.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:48 上传
+
+[X 上的 Ripley🐈‍⬛：“stray cat once again](https://x.com/ScarletKoito/status/1937436772545495289)[https://t.co/NVabHHzT5Z](https://t.co/NVabHHzT5Z)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204921x288ak86paz8chal.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:49 上传
+
+[X 上的 晦：“シュウニャア…………](https://x.com/TSUGOMORI_kai/status/1937158732322148755)[https://t.co/iqLunUBxgr](https://t.co/iqLunUBxgr)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/203822er8w3ss11a9s0sxj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:38 上传
+
+[X 上的 ふじ：“#GQuuuuuuX #ジークアクス 1話の日に描いた絵を最終回の日にリメイクしました‼️感慨‼️みんな友達、ずっとずっと友達](https://x.com/f_ukkami/status/1937450839263838396)[https://t.co/WdwJ65uubi](https://t.co/WdwJ65uubi)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/203925ewkgwvzu8oc8axl6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:39 上传
+
+[X 上的 𝕣𝕒𝕘𝕖：“最終回祈願](https://x.com/tete06g/status/1937464275779658231)[https://t.co/MS0WKBIwk2](https://t.co/MS0WKBIwk2)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204031hqrbbijs8ekicirc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:40 上传
+
+[X 上的 錆々【さびさび】：“本日第12話！最終回！ 寂しいですが楽しみです‼︎ #GQuuuuuuX](https://x.com/Sabi_Sabi1234/status/1937485826096791664)[https://t.co/6Za85YbSuO](https://t.co/6Za85YbSuO)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204810mkkkpa9dj0djxix8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:48 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ⑭ #GQuuuuuuX](https://x.com/SuiSui_dm/status/1937458518136881511)[https://t.co/vGQfiiU16E](https://t.co/vGQfiiU16E)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204533yd0ig6aivtyayyd8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:45 上传
+
+[X 上的 宮田奏▪️お仕事募集中：“もうどうなってもいいや #GQuuuuuuX #ジークアクス](https://x.com/miyata__0529/status/1937451759016051083)[https://t.co/MbMmccRX0R](https://t.co/MbMmccRX0R)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/205105kqhhjzjdffmfkhzi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:51 上传
+
+[X 上的 チバサ：“今夜は夏の日常回の後編ですね（強めの幻覚） 最終回と言わず、日常回もたっぷり含んで2クールやって欲しいー #GQuuuuuuX #ジークアクス](https://x.com/tibasa9/status/1937467680933711956)[https://t.co/Ze2sGzo426](https://t.co/Ze2sGzo426)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/204157cu3u77fvw49h0ev0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:41 上传
+
+[X 上的 タケウチ　リョースケ：“全力待機🧎](https://x.com/ryosuketarou/status/1937489716724850755)[https://t.co/DqNz3AQYvj](https://t.co/DqNz3AQYvj)” / X
+
+<img src="https://img.stage1st.com/forum/202506/24/205444ld4d0dd2muin4qmk.png" referrerpolicy="no-referrer">
+
+<strong>M[8C(YZ5UFC66~B9R48[7}H.png</strong> (3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:54 上传
+
