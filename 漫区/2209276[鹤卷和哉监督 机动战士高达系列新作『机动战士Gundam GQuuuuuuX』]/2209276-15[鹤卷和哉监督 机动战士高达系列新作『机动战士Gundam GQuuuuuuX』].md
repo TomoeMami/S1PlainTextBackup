@@ -14651,3 +14651,328 @@ GFred爆了只剩核心战机，GQuuuuuuX确实没说</blockquote>
 鴨子還是有點實力， ...</blockquote>
 鸭子开的可是0079的老古董还没武器，而夏利亚开的是经过现代化改造的基凯罗格，就这两人打成平手，夏亚水平还是高一筹
 
+
+*****
+
+####  pokemon最爱  
+##### 21958#       发表于 2025-6-25 00:58
+
+这最终话，总之乐就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以唐突冒出来的GQX的恩底弥翁装置是附着93骡灵魂的正史牛高精骨吗，那倒是能解释GQX可以脑控机体的塞可谬水平以及GQX发动NT发功模式的黑球强度了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那么对应的GFred装的就是沙扎比的精骨，所以可以引发泽克诺瓦，绿叔叔也是因为感应到这两个精骨的信息所以认定GQ鸭子上台最后会滑坡吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死光光  
+##### 21959#       发表于 2025-6-25 00:58
+
+之前我说对新人不友好还是太保守了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suzakushi  
+##### 21960#       发表于 2025-6-25 00:59
+
+3个月了，感觉一场好看的打戏都没见到，剧情上用烂梗堆砌的大粪恶心人也就算了，打戏也不让人过过瘾。现在最想吐槽的就是那个鲤鱼打挺躲光束的动作，你们是只能想到这一种姿势吗。
+
+
+*****
+
+####  死光光  
+##### 21961#       发表于 2025-6-25 00:59
+
+感觉看不看前11集也不影响我看12集
+
+*****
+
+####  adretyu67.  
+##### 21962#       发表于 2025-6-25 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994925&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 00:57</a>
+
+所以这个骡纯粹跟拉拉穿越了好几个世界？但主世界的骡也没死啊。</blockquote>
+拉拉产生的平行世界里负责坐上高达注定杀死鸭子的人吧。
+
+gqux宇宙直接选择让鸭子坐上高达排除了高达驾驶员的诞生。
+
+*****
+
+####  lain2008  
+##### 21963#       发表于 2025-6-25 00:59
+
+<blockquote>zuesphilip 发表于 2025-6-25 00:57
+反正我真的看得很开心，每周追番从未如此的准时，动画大部分都是流于表面的娱乐作品，大家嘴虽然上说着高达 ...</blockquote>
++1，我有十几年没有这么热心的追番看直播了。
+
+连00我都没有这么热情过
+
+这片太欢乐了
+
+*****
+
+####  阿库鲁艾特  
+##### 21964#       发表于 2025-6-25 01:00
+
+实锤了扎比家都是金毛控还行，绷不住了
+
+*****
+
+####  好悬逃避涨价池  
+##### 21965#       发表于 2025-6-25 01:00
+
+这饺子包的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 21966#       发表于 2025-6-25 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994925&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 00:57</a>
+所以这个骡纯粹跟拉拉穿越了好几个世界？但主世界的骡也没死啊。</blockquote>
+看驾驶服的手这个骡像是93的
+
+*****
+
+####  ryanghj  
+##### 21967#       发表于 2025-6-25 01:00
+
+可惜最后一集有剧透，没有剧透的话其实观感会好很多
+
+会被画面糊弄过去
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 21968#       发表于 2025-6-25 01:00
+
+<img src="https://img.stage1st.com/forum/202506/24/163404kaqqlgob1avrvesz.gif" referrerpolicy="no-referrer">
+
+再发一次，没得看GQuuuuuuX时，我每周的精神状态be like
+
+*****
+
+####  ヒトニナル  
+##### 21969#       发表于 2025-6-25 01:01
+
+所以说本片场的总帅的那句“一方的爱慕会让人困扰”的确是金句啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诸葛天霜  
+##### 21970#       发表于 2025-6-25 01:01
+
+只能说很多问题没交代清楚，这集的味道不太像高达，唐突变大和张嘴暴走也太乱入了，不过骡魂的猜测还是成真了也是有意思
+
+缺点还是前两集比较爆拉高了大家的期待吧，没有足够爆点的包饺子结局在这个期待下还是差点意思
+
+*****
+
+####  七七見奈波  
+##### 21971#       发表于 2025-6-25 01:01
+
+最后一集有穿着背心开高达的修司，有穿着白色礼服盘头发的鸭妹，我懂了这是在纪念高达W30周年（啊？你说不是？那我30周年纪念啥？我那么大一个FT动画化呢？）
+
+
+*****
+
+####  natmk  
+##### 21972#       发表于 2025-6-25 01:02
+
+看笑了 0079的高清重制和让潘惠子出声这点很好外痞子和鹤卷以后还是别碰高达吧
+
+*****
+
+####  Asukalangley33  
+##### 21973#       发表于 2025-6-25 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994924&amp;ptid=2209276" target="_blank">少年游不游 发表于 2025-6-25 00:57</a>
+
+有点FLCL那胡逼味，要是鹤卷一开始就放开这样拍可能现在风评要好很多</blockquote>
+但是春原晴子的塑造真把修司爆了吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+话说最后砍修司爬手臂那卡也很像曜哥哥在FLCL画的名场面啊
+
+*****
+
+####  猪突猛进R  
+##### 21974#       发表于 2025-6-25 01:02
+
+修司开78那画面一出来我还真幻视成背心尊者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓岛千百合  
+##### 21975#       发表于 2025-6-25 01:03
+
+我给水魔道歉，这垃圾玩意不如水魔一根。
+这3个月我到底追了个什么东西..
+
+*****
+
+####  1694295955  
+##### 21976#       发表于 2025-6-25 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994777&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-25 00:31</a>
+
+巴斯克真的确定要他再出场寻思往哪里灌g3吗
+
+包饺子还是不带他玩比较好 ...</blockquote>
+联邦英雄成为了吉翁国家元首，估计最后还是搞和解路线吧
+
+*****
+
+####  nemuru_baka  
+##### 21977#       发表于 2025-6-25 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994937&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-25 00:59</a>
+3个月了，感觉一场好看的打戏都没见到，剧情上用烂梗堆砌的大粪恶心人也就算了，打戏也不让人过过瘾。现在 ...</blockquote>
+仿佛是看忍者杀手，打斗必有BRIDGE回避<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年游不游  
+##### 21978#       发表于 2025-6-25 01:04
+
+不用深究了，极巨化外星元组都出来了，纠结修斯这些还有啥意义，修斯就TM是来这杀海盗王的晴子
+
+*****
+
+####  阿库鲁艾特  
+##### 21979#       发表于 2025-6-25 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994934&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-25 00:58</a>
+这最终话，总之乐就完事了
+
+所以唐突冒出来的GQX的恩底弥翁装置是附着93骡灵魂的正史牛高精骨吗，那倒是能解 ...</blockquote>
+有点意思<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，另外一个可能只有篮球的精骨导致功力不太行
+
+*****
+
+####  黑翼死神  
+##### 21980#       发表于 2025-6-25 01:04
+
+所以修司是誰? 其他都看懂了，修司真的只是路人? 還是阿姆羅的同位存在?
+
+*****
+
+####  ruanruande  
+##### 21981#       发表于 2025-6-25 01:04
+
+鹤卷整的活没网友整的梗图有意思
+
+*****
+
+####  月光乱舞  
+##### 21982#       发表于 2025-6-25 01:04
+
+这剧情逻辑就是<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/25/010427erf9pps9qsbq9zra.jpg" referrerpolicy="no-referrer">
+
+<strong>NK_N()EXHNU%%V{8EBEK3@B.jpg</strong> (35.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:04 上传
+
+*****
+
+####  lain2008  
+##### 21983#       发表于 2025-6-25 01:04
+
+现在这个世界观有无限可能啊
+
+完全可以开始企划gqx 0087，
+
+Titans vs 吉翁的故事线
+
+人物是现成的
+
+*****
+
+####  adretyu67.  
+##### 21984#       发表于 2025-6-25 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994949&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-6-25 01:00</a>
+
+看驾驶服的手这个骡像是93的</blockquote>
+应该是93推完石头后灵魂飞升的骡子。
+
+*****
+
+####  ArthurDent  
+##### 21985#       发表于 2025-6-25 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994584&amp;ptid=2209276" target="_blank">kyonkoism 发表于 2025-6-25 00:12</a>
+我觉得这集最可惜的就是78没有手臂一展直接变牛或者gq牛，而是变成TMD极巨化78，真的有点雷
+
+以及麻丘冲上手 ...</blockquote>
+纯纯的拖时间复刻daicon和flcl
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  你妈的为什么  
+##### 21986#       发表于 2025-6-25 01:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了 感觉是老害们为了做野史和鸭子的if ge 硬凑了个剧本出来
+
+3小只当然工具人了
+
+*****
+
+####  qiyu1234  
+##### 21987#       发表于 2025-6-25 01:05
+
+我倒是觉得是不是这片之后可以彻底解禁既往高达世界观的平行宇宙作品创作了？
+
+学习美漫搞各种IF故事
+
+*****
+
+####  螺纹  
+##### 21988#       发表于 2025-6-25 01:06
+
+本来只看了剧场版打算等tv动画完了看评价再决定补不补，结果被上集beyond the time骗进来鲨了，这12集看得我<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 21989#       发表于 2025-6-25 01:06
+
+如果要拍第二季的话，需要真正的newtype给姨姥擦屁股吧
+
+*****
+
+####  二阶堂真琉  
+##### 21990#       发表于 2025-6-25 01:06
+
+有没有懂的，看见骡子开口的时候我只想说アムロ感激ぃ！ ​​​
+
+*****
+
+####  你妈的为什么  
+##### 21991#       发表于 2025-6-25 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994955&amp;ptid=2209276" target="_blank">诸葛天霜 发表于 2025-6-25 01:01</a>
+
+只能说很多问题没交代清楚，这集的味道不太像高达，唐突变大和张嘴暴走也太乱入了，不过骡魂的猜测还是成真 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你搞反了 我感觉是老害们先定下最后一集要有哪些桥段然后反向写剧本
+
+*****
+
+####  plok201  
+##### 21992#       发表于 2025-6-25 01:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要出第二季最大问题不是哪个脚本敢接这个烂摊子么
+
+*****
+
+####  Alphawalker  
+##### 21993#       发表于 2025-6-25 01:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有绿叔叔完胜的世界
+
