@@ -8736,3 +8736,44 @@ GQ拉拉不救；
 
 神棍拉拉被紫婆利用，不去爆紫婆头反而拿拉拉开刀。
 
+
+*****
+
+####  mengsu  
+##### 21364#       发表于 2025-6-24 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989582&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-24 09:53</a>
+
+正史那位不会把妈妈丢妓院5年。
+
+GQ鸭脑子有坑，要么就是薄情寡义。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">GQ鸭根本不认识GQ拉拉，怎么救嘛。
+
+他说要让玫瑰拉拉消失也可能并不是直接宰了她的意思，大概率还是要用手电筒送她回去。夏亚这种人的性格，他可以碰壁可以失败可以被修正，但是你要想操纵他的人生命运他肯定要跟你爆了的。
+
+*****
+
+####  不会起名  
+##### 21365#       发表于 2025-6-24 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985498&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-23 14:22</a>
+
+闪哈2拖这么久不都开玩笑是说等巴上帝开一角驴劫法场吗。</blockquote>
+我记得光头之前看了第一部剧场版之后说有时间了要重写闪哈，然后就没有然后了
+
+*****
+
+####  猪突猛进R  
+##### 21366#       发表于 2025-6-24 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989628&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-24 10:02</a>
+
+GQ鸭根本不认识GQ拉拉，怎么救嘛。
+
+他说要让玫瑰拉拉消失也可能并不是直接宰了她的意思，大概率还是要用 ...</blockquote>
+确实也有“不认识”的说法。
+
+但要按照这样说，GQ拉拉就得一直呆在妓院。
+
+所以要么是GQ鸭无情，要么是GQ拉拉做一辈子鸡，一根筋两头堵。
+
