@@ -8847,3 +8847,52 @@ GQ夏亚的逻辑他自己说的很明白了，他知道玫瑰拉拉是为了保
 
 看剧透gq鸭混进紫婆队伍还把手电筒改造出两个世界转移的功能。至于鸭子啥时候点满科学技能还能瞒天过海在这种大工程做手脚，只能说高达的事情不用搞那么清楚…
 
+
+*****
+
+####  LadySaazbaum  
+##### 21374#       发表于 2025-6-24 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989698&amp;ptid=2209276" target="_blank">云何应住 发表于 2025-6-24 10:12</a>
+
+同意上楼夏亚希望送拉拉离开GQ世界。
+
+不过如果Zicknova现象是蔷薇和红高达的alpha 精神系统共鸣造成的，毁 ...</blockquote>
+就算没有红高达在玫瑰近旁，玫瑰本身也一直处于不安定的状态，一般思路应当是把不属于这个世界的异物给排除掉吧
+
+且就算毁掉alpha赛克缪，也不能保证统一技术发展来的其他类型赛克缪会和玫瑰引发什么意想不到的事情
+
+*****
+
+####  mengsu  
+##### 21375#       发表于 2025-6-24 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989793&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-24 10:24</a>
+
+看剧透gq鸭混进紫婆队伍还把手电筒改造出两个世界转移的功能。至于鸭子啥时候点满科学技能还能瞒天过海在这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸭子的设定就是不管干啥都是A+级，五年时间足够他读两三个博士出来了。
+
+
+*****
+
+####  ヒトニナル  
+##### 21376#       发表于 2025-6-24 10:31
+
+艾尔美斯从水里捞出来然后渐渐膨胀成现在这个大小，怎么看都不应该继续留它下来<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  renkan119  
+##### 21377#       发表于 2025-6-24 10:32
+
+<blockquote>西洛克 发表于 2025-6-24 10:24
+看剧透gq鸭混进紫婆队伍还把手电筒改造出两个世界转移的功能。至于鸭子啥时候点满科学技能还能瞒天过海在这 ...</blockquote>
+本身能把泽克诺瓦这个只出现过一次  从来没复现成功的玩意搞出个大炮就很奇怪了 现在只能解释是亲身经历过的鸭子插手才研究出来的
+
+*****
+
+####  阿兹尔  
+##### 21378#       发表于 2025-6-24 10:35
+
+有点期待今晚之后的社区景象了
+
