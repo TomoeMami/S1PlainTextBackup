@@ -10247,3 +10247,18 @@ yep
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ryanghj  
+##### 21472#       发表于 2025-6-24 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992920&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-24 19:11</a>
+
+yep
+
+说实话，如果不是在十几岁上抓紧时间看完UC，已经有了成年人的视角，就很难再沉浸到故事里。我看UC就 ...</blockquote>
+其实干就0079来说世界观和政治上的设定还没那么严密，处于半子供向的状态，和当时同辈的其他机器人动画也比较接近
+
+是到了Z开始各种政治势力一上来才变成了成年人的童话
+

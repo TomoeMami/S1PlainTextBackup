@@ -5654,3 +5654,11 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 今天不是刚发了个绑定账号的2500吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1991#       发表于 2025-6-24 19:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也应该整个特殊商店把SSR角色扔进去吧，普通的太寒酸了
+
