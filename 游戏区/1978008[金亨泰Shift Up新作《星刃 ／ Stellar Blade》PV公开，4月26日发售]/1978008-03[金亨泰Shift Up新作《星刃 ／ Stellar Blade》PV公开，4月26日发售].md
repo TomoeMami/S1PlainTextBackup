@@ -5667,3 +5667,14 @@ boss挑战里面招式多又花，难打的一逼
 
 —— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  alucardcz  
+##### 3473#       发表于 2025-6-24 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989248&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-24 09:06</a>
+
+昨晚沙漠舔的差不多了，去推主线，底层大风扇加电锯给我整不会了，有病么 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是挺简单的吗  也没什么脚滑就寄的地方
+
