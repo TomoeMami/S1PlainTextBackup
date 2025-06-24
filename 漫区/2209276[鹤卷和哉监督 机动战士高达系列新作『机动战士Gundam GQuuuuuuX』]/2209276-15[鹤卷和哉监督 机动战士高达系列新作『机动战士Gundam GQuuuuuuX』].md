@@ -9337,3 +9337,12 @@ gto给鲁姆的鸭子补了句神啊，在我面前跪服吧。
 
 片尾来个粉色呆毛的彩蛋呗
 
+
+*****
+
+####  千恋万花  
+##### 21418#       发表于 2025-6-24 15:43
+
+GQuuuuuuX 最终回使用曲『Far Beyond the Stars』全曲试听！
+[https://www.bilibili.com/video/BV1vxK3zdEm4/](https://www.bilibili.com/video/BV1vxK3zdEm4/)
+
