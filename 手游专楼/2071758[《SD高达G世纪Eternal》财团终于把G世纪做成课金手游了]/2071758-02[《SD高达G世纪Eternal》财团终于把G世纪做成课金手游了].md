@@ -5718,3 +5718,11 @@ SD高达G世纪 永恒 3季度追加参战列表
 
 混个16w低保
 
+
+*****
+
+####  lighttt  
+##### 1997#       发表于 2025-6-24 23:50
+
+海牛攻击了估计，这下盾攻援都有阿姆罗了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
