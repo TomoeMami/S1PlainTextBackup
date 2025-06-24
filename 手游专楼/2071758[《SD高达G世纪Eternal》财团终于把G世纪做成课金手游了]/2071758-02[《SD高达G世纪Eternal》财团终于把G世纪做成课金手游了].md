@@ -5662,3 +5662,51 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也应该整个特殊商店把SSR角色扔进去吧，普通的太寒酸了
 
+
+*****
+
+####  二阶堂真琉  
+##### 1992#       发表于 2025-6-24 19:58
+
+海牛EX的HML还给有德干没电了草
+
+*****
+
+####  洛克萨斯  
+##### 1993#       发表于 2025-6-24 19:59
+
+SD高达G世纪 永恒 3季度追加参战列表
+
+6月30日追加参战：CCA &amp; SEED-D；
+
+7月中下旬追加参战：雷霆宙域DS；
+
+8月中下旬追加参战：SD高达外传；
+
+9月中下旬追加参战：铁血 月钢；
+
+<img src="https://img.stage1st.com/forum/202506/24/195933l89qcd45140lzabl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 19:59 上传
+
+
+*****
+
+####  HEERO.W  
+##### 1994#       发表于 2025-6-24 20:00
+
+开发机一堆倒是真不错
+
+*****
+
+####  horacio  
+##### 1995#       发表于 2025-6-24 20:02
+
+ 本帖最后由 horacio 于 2025-6-24 20:03 编辑 
+
+前面真的不错，最后登入7天送300钻还是蚌不住想笑。上周beyond the time一出我就想海牛是不是准备出了，结果一出出2
+

@@ -10262,3 +10262,43 @@ yep
 
 是到了Z开始各种政治势力一上来才变成了成年人的童话
 
+
+*****
+
+####  adretyu67.  
+##### 21473#       发表于 2025-6-24 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992951&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-24 19:18</a>
+
+港真吉翁虽然是盖章的反派，但是具体手法有点超出常识，什么一个月没了人口的一半堪比灭霸打响指。坏得太 ...</blockquote>
+其实联邦的黑点就是典型或者说刻板印象里民主体制的“前方吃紧，后方紧吃”。
+
+客观来说不算什么，希望国文艺作品都经常这么黑自己。
+
+*****
+
+####  AraTurambar  
+##### 21474#       发表于 2025-6-24 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992951&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-24 19:18</a>
+
+港真吉翁虽然是盖章的反派，但是具体手法有点超出常识，什么一个月没了人口的一半堪比灭霸打响指。坏得太 ...</blockquote>
+我感觉超出常识就对了，我每次看二战都觉得纳粹无论成就还是邪恶都超出常识。
+
+我去大屠杀纪念馆的时候看到一些展示，就在想为什么德国人要派行刑队去一些远离补给线、长期贫穷愚昧、对外封闭的东欧犹太村镇。
+
+这些地方既不能造成威胁、也不能提供物资，甚至还要倒贴人力物力的地方去到达和屠杀。
+
+基连很多做法感觉就真的很小胡子，脑子不在人类能理解的频道上。
+
+
+*****
+
+####  西瓜夜行  
+##### 21475#       发表于 2025-6-24 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992316&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-24 17:20</a>
+
+X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“万策尽きたララァです #GQuuuuuuXhttps://t.co/Q ...</blockquote>
+感谢搬运！！！
+
