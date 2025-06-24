@@ -7557,3 +7557,14 @@ OP我看说是双人舞蹈，但对面是空气
 
 目前为止的年度最佳，伟大无需多言
 
+
+*****
+
+####  shimotsuki14  
+##### 636#       发表于 2025-6-25 07:23
+
+no Yachiyo no life！
+久违地找到了看原创作品的快乐<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
