@@ -9059,3 +9059,32 @@ GQ鸭为了拯救世界仇也不报了，新人类理想也不搞了。
 夏亚这个人可以在大义和私情，伟人和小物里无缝切换，实在好用</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他现在这个路数就是兼顾大义和小情了嘛，不然他还能咋样。
 
+
+*****
+
+####  猪突猛进R  
+##### 21393#       发表于 2025-6-24 11:33
+
+<img src="https://img.stage1st.com/forum/202506/24/113223zdxmu45o3nz7utby.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-06-24 113149.png</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 11:32 上传
+
+牢修是御大将的假药：
+
+都是蓝发红瞳，
+
+额头前一撮毛的位置相同，
+
+都是来灭世的最终BOSS。
+
+*****
+
+####  cckuku  
+##### 21394#       发表于 2025-6-24 11:34
+
+新歌出了，难道牢修麻球是真的双向奔赴？
+
