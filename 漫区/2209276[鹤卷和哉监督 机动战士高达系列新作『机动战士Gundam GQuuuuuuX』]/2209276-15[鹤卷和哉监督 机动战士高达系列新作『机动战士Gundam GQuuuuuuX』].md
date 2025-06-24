@@ -8936,3 +8936,16 @@ gq夏亚要是真的看大时间流向了，那他脑回路是不是有大问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  mengsu  
+##### 21383#       发表于 2025-6-24 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989698&amp;ptid=2209276" target="_blank">云何应住 发表于 2025-6-24 10:12</a>
+
+同意上楼夏亚希望送拉拉离开GQ世界。
+
+不过如果Zicknova现象是蔷薇和红高达的alpha 精神系统共鸣造成的，毁 ...</blockquote>
+毁掉精神力系统只能阻止Zicknova再次出现，没办法送走玫瑰拉拉，反而只剩下杀了她一条路了。
+
