@@ -10053,3 +10053,34 @@ GBO2参战GQX和白高达
 
 GQuuuuuuX 最终回使用曲『きみの惑星（你的行星）』全曲试听！：[https://www.bilibili.com/video/BV1FiKgzcE6w](https://www.bilibili.com/video/BV1FiKgzcE6w)
 
+
+*****
+
+####  岸浪白野  
+##### 21457#       发表于 2025-6-24 18:05
+
+【【NOMELON NOLEMON】GQuuuuuuX 最终回使用曲『きみの惑星（你的行星）』全曲试听！】 [https://www.bilibili.com/video/BV1FiKgzcE6w/](https://www.bilibili.com/video/BV1FiKgzcE6w/)
+
+*****
+
+####  岸浪白野  
+##### 21458#       发表于 2025-6-24 18:08
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャストトーク#5◢ 来週・7月1日(火)19:00から、YouTube #ガンダムチャンネル にて《キャストトーク#5 最終回放送記念ライブ配信》が配信決定！ #黒沢ともよ さん、 #石川由依 さん、 #土屋神葉 さんの3名が集結します！ ▼お便り募集中！ [url]https://t.co/OoeyYygYX2](https://x.com/G_GQuuuuuuX/status/1937452221551296547) ▼ご視聴はこちら！ [https://t.co/6F8v1HEONH](https://t.co/6F8v1HEONH)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/24/180814gg74k3p3wkpig4iz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 18:08 上传
+
+
+*****
+
+####  Sliurus  
+##### 21459#       发表于 2025-6-24 18:13
+
+三人组终于凑齐了一回
+
