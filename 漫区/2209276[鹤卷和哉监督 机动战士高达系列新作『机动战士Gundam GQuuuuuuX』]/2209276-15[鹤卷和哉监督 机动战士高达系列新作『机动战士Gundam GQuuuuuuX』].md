@@ -9417,3 +9417,26 @@ https://x.com/period_yoooou11/status/1937133540577284451
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么有点迪士尼片场的感觉
 
+
+*****
+
+####  Sliurus  
+##### 21426#       发表于 2025-6-24 16:07
+
+太难听了，人声跟曲子完全融不到一起，这么好的曲子被糟蹋了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LadySaazbaum  
+##### 21427#       发表于 2025-6-24 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991641&amp;ptid=2209276" target="_blank">11116等 发表于 2025-6-24 15:46</a>
+
+zion对于当时的他应该确实无所谓吧，反正联邦这一仗之后必然要退守地球，宇宙居民事实上独立，他把仇人在 ...</blockquote>
+…………不是，鸭子这个人设到底咋回事，他对出身的母国就一点感情都没有吗？退一万步说身边一起跟着打仗出生入死的兄弟，有好些个都很仰赖他信任他，他就一点回箭头都没有？
+
+按照一般常识真的很难理解。
+
+除非说，还原到1980年代霓虹的气氛下，“心中无祖国”才是值得赞赏的？
+

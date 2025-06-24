@@ -926,3 +926,18 @@ p3和暗喻游戏生涯连p5一半都没有 ...</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  flyzzhj  
+##### 94#       发表于 2025-6-24 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67985442&amp;ptid=2254417" target="_blank">苦瓜师傅 发表于 2025-6-23 14:11</a>
+
+搭车问ryu8里桐生一马的剧情还多么？和前几作关联还多么？
+
+打完英雄无名感觉也没和前面接上</blockquote>
+8代桐生一马和春日一番相当于0代和真岛剧情，各自在各自的地方当主角
+
+最经典的就是那一堆和那些前代角色的回忆剧情了，如果在意的话，一定要试试
+
