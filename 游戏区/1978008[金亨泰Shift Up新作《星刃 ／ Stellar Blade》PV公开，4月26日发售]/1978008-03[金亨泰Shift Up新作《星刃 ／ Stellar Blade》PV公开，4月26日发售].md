@@ -5822,3 +5822,27 @@ boss挑战里面招式多又花，难打的一逼
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">N网对比度 mod已经出了 现在伊芙 NPC 还有敌人都不会高亮了
 [https://www.nexusmods.com/stellarblade/mods/567](https://www.nexusmods.com/stellarblade/mods/567)
 
+
+*****
+
+####  社友者  
+##### 3486#       发表于 2025-6-24 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990549&amp;ptid=1978008" target="_blank">schneehertz 发表于 2025-6-24 12:10</a>
+
+渡鸦好美
+
+现在有哪个mod能用渡鸦的机体玩游戏吗</blockquote>
+目前最好的渡鸦版本是用
+[https://www.nexusmods.com/stellarblade/mods/288](https://www.nexusmods.com/stellarblade/mods/288) 的脸+ [https://www.nexusmods.com/stellarblade/mods/203](https://www.nexusmods.com/stellarblade/mods/203) 的头发，这样bug最少，也能方便拍照
+
+*****
+
+####  社友者  
+##### 3487#       发表于 2025-6-24 13:47
+
+二周目一直在给脑婆拍照，非常的炫鸦抑，伊芙已经是不认识的女人了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/1e8f85fc5186e47afa2ce4d6c685fe9a/StellarBlade_250623_11493500000.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/40225141c0b7f6d394118c0b0a7d0b9a/SB-Win64-Shipping_Ia8Fd3PdQB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/672d68dd6ba00aa81a3e7a895783acde/SB-Win64-Shipping_JP0pJEcYvi.jpg" referrerpolicy="no-referrer">
+
