@@ -6306,3 +6306,14 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 我用手柄玩为啥完全没震动？
 
+
+*****
+
+####  ladiesman802  
+##### 3530#       发表于 2025-6-24 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993962&amp;ptid=1978008" target="_blank">妄想中毒 发表于 2025-6-24 23:07</a>
+
+我用手柄玩为啥完全没震动？</blockquote>
+用USB连接
+

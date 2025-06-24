@@ -80,3 +80,21 @@ LoveLive! Days综合杂志8月号封面：大阪世博会
 <img src="https://p.sda1.dev/25/99ba12fcda3d2c1128b4ffb8126be9a2/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/1ba6d958b712c272dbfc41736f5f1bb9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1660#       发表于 2025-6-24 23:35
+
+【オーイシマサヨシ×鈴木愛理のでしょフェス!! 2025 クラブチッタに来ちったでしょ!! [2025.06.24]】 https://b23.tv/srcCs2z
+<img src="https://p.sda1.dev/25/3982701ce20736eba8908c4d2de942f6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e9128beeb9bcc05d3a1e69c441969238/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/8d5ec15a8bfe90a140d83f43fdcb4937/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/7d2d283d05a198df436900ee0108c39b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/58f600da55d53fa7d5a8169bf35b2eb2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/34618256d5d76ff99c744de08b0408eb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/49110a3d756d138b6127b71c3998b162/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/49110a3d756d138b6127b71c3998b162/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/a3c40d6aec03ed0252f00da07fd8bd94/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/98f44e7a6ccf0c11da2be8abe0cdef7f/image.jpg" referrerpolicy="no-referrer">
+
