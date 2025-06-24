@@ -6298,3 +6298,11 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 有一个问题，营地中间不是有口锅煮东西的么，但是钓鱼任务里面伊芙完全不知道料理这种东西，他们这种人造人 ...</blockquote>
 钓鱼任务钓到的鱼不是可以卖给个Npc 那个npc说可以吃 还喝酒呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 3529#       发表于 2025-6-24 23:07
+
+我用手柄玩为啥完全没震动？
+
