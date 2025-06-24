@@ -5873,3 +5873,27 @@ boss挑战里面招式多又花，难打的一逼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">粪游戏，还要三周目才能收集完衣服
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3491#       发表于 2025-6-24 14:51
+
+Eve的性格真的好，有点天然又很坚定，难得完全不让人反感的圣母，不是受气包大怨种，不是看过剧本的低配哆啦A梦，也不是Asmr里的全肯定飞机杯小女友，真的是天使
+
+接支线任务时偶尔抱怨的语气也特别可爱，一半埋怨一半宠溺，人都听麻了，这次真的是韩配完胜
+
+另外从支线语音和任务报告来看，E ve还挺毒舌的，吐槽意外地尖锐XD 
+
+*****
+
+####  alucardcz  
+##### 3492#       发表于 2025-6-24 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991104&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-24 14:06</a>
+
+你怎么2周了
+
+昨天不是说再见的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">躺床上想了想只差3成就 难受啊
+
