@@ -9163,3 +9163,70 @@ GQ鸭为了拯救世界仇也不报了，新人类理想也不搞了。
 
 你们把GQ鸭批判一番前是不是忘了有个追了拉拉不知道多少个世界的牢修，他唯一目的就是拉拉永远留在娼馆别出来？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 21403#         楼主| 发表于 2025-6-24 11:50
+
+[https://x.com/period_yoooou11/status/1937133540577284451](https://x.com/period_yoooou11/status/1937133540577284451)
+
+いよいよ明日ジークアクス最終回です！
+
+最後までよろしくお願いいたします🙏
+<img src="https://p.sda1.dev/25/cbf00f007f7661093030991efc6ef4b6/20250624_114418.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/grtnkwii487/status/1937085232613892489](https://x.com/grtnkwii487/status/1937085232613892489)
+<img src="https://p.sda1.dev/25/df5b62cba800a690c23c0de0e05fd698/20250624_114415.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/coffeekizoku/status/1937192535786684704](https://x.com/coffeekizoku/status/1937192535786684704)
+
+１話でとまってたジークアクス、最新話まで一気に見ました。
+
+最終話どうなるか楽しみです。
+
+僕はコモリ少尉好きです
+<img src="https://p.sda1.dev/25/1713a6ce428888c45621a1d7d521ad39/20250624_114143.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kabi__gq/status/1937280021481103494](https://x.com/kabi__gq/status/1937280021481103494)
+
+最終回、たのしみ
+<img src="https://p.sda1.dev/25/53e0256b3c84f2b74e54200bac303f60/20250624_114157.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  mengsu  
+##### 21404#       发表于 2025-6-24 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990192&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-24 11:22</a>
+
+但是如果对玫瑰拉拉熟的话，对应的人也不能叫不熟吧</blockquote>
+目前能够确认的信息是，鸭子在所罗门的zicknova中到了另一侧，而这时玫瑰拉拉已经到了这一侧，他俩肯定没有直接交流过，关于玫瑰拉拉的事搞不好鸭子都是从牢修那里知道的。后来再次发生了一次没有被观测到的zicknova，把红高达、夏亚和牢修传回了这一侧。出于寻找玫瑰的共同目标和隐藏自己的需要，夏亚把红高达交给牢修，自己则潜入手电筒研发部门。
+
+至于夏亚在闪亮亮里到底看到了什么时间获取到了多少信息是未知的，很可能并不能像拉拉一样得知各个世界线的前因后果，也并不知道gq拉拉的处境。
+
+
+*****
+
+####  洛克萨斯  
+##### 21405#       发表于 2025-6-24 11:52
+
+红眼ta确实很适合干时空警察这种活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或者让凤凰高达/极限高达去干也行，但这俩有驾驶员了
+
+*****
+
+####  璇瑢子R  
+##### 21406#       发表于 2025-6-24 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990378&amp;ptid=2209276" target="_blank">newise 发表于 2025-6-24 11:46</a>
+
+你们把GQ鸭批判一番前是不是忘了有个追了拉拉不知道多少个世界的牢修，他唯一目的就是拉拉永远留在娼馆别出 ...</blockquote>
+修酱应该只追杀玫瑰拉拉，每个世界自己的拉拉无所谓的
+
+*****
+
+####  云野十五  
+##### 21407#       发表于 2025-6-24 11:54
+
+因为番茄太矮其他两人成了长臂猿<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
