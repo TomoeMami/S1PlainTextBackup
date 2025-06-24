@@ -7515,3 +7515,11 @@ OP我看说是双人舞蹈，但对面是空气
 
 人类都是大笨蛋！<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  喵喵叫的猫  
+##### 631#       发表于 2025-6-25 02:23
+
+所以当初skirt这个诡异的op选曲就是为了最后的这段剧情吗
+
