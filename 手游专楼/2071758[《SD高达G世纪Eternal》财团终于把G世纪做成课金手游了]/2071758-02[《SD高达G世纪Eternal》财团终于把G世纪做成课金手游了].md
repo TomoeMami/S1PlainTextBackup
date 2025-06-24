@@ -5487,3 +5487,13 @@ SD这改动好评啊 0氪第一次恰满15W
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">收工收工
 
+
+*****
+
+####  体制  
+##### 1977#       发表于 2025-6-24 07:53
+
+元祖和死神真的好能闪，这期pvp还是尽量不要上sp机体吧。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
