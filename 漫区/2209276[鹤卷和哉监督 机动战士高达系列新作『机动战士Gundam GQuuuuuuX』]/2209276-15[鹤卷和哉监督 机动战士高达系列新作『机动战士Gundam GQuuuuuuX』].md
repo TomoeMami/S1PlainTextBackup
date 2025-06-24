@@ -13846,3 +13846,369 @@ EVA破时候我对后续真是充满期待，然后Q和终一坨，还有 ...</b
 下部高达是神山？庵达后面是鸭达吗</blockquote>
 不是说找了bones吗？
 
+
+*****
+
+####  remediosOlOOOO  
+##### 21879#       发表于 2025-6-25 00:28
+
+前半截最雷的还是看见元祖的那一刻鸭子来了一句“赛克缪在害怕”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 21880#       发表于 2025-6-25 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994577&amp;ptid=2209276" target="_blank">聊nsy专用号 发表于 2025-6-25 00:12</a>
+
+至少这个片子证明了夏亚不是骡一儿，他连绿叔叔都打不过</blockquote>
+看到夏利亞在這裡的實力
+
+在TV看來只是他背運，剛回來初出道就遇到李阿寶，之後就寄了
+
+鴨子還是有點實力，在一架只得火箭炮的紅高達也能回避到長時間，脫出型NT不是浪得虛名(...)
+
+
+*****
+
+####  LadySaazbaum  
+##### 21881#       发表于 2025-6-25 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993563&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-24 21:31</a>
+
+格拉纳达那破事编剧全责。
+
+当时吉翁已经万策尽了，鸭子主动提出这个方案又主动实行，然后最后一步又想玩点 ...</blockquote>
+居然，居然
+
+谁能想到这段剧情也是有意为之呢，绿叔叔一个脑门过电瞬间懂了这死孩子气量太小居然主动破坏作战，断不可担大任，就这么拐回正史了。
+
+倒也没毛病就是<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 21882#       发表于 2025-6-25 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994724&amp;ptid=2209276" target="_blank">Flechette 发表于 2025-6-25 00:25</a>
+
+问题是鸡夸世界线的鸭子也没养歪，绿叔叔这莫名跳反是看CCA看入脑了吗
+
+而且回头去推导，绿叔叔一开始找鸭子 ...</blockquote>
+按照上话老太婆的说法，gqux鸭和紫色老太婆身上有一样的空虚。
+
+迟早都会往地球上丢垃圾。但是绿叔叔说这话就突出一个看过cca剧本了。
+
+因为gqux鸭刚刚被紫婆拿枪指着。
+
+*****
+
+####  windtrack  
+##### 21883#       发表于 2025-6-25 00:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">说起来ED后日谈是不是漏了拉拉的两个女仆和提坦斯眼镜哥没交代
+
+*****
+
+####  浅川雏羽  
+##### 21884#       发表于 2025-6-25 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994718&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 00:24</a>
+
+彼岸骡。
+
+不是骡但是占据了骡的生态位。</blockquote>
+这个推测是错的，在最终话元祖捅鸭子勇士的分镜里明确有骡子喊夏亚觉悟吧的台词，并且标注了阿姆罗这个名字
+
+当然正片里为了gqux开口的节目效果没把台词放出来就是了
+
+*****
+
+####  七七見奈波  
+##### 21885#       发表于 2025-6-25 00:30
+
+真诚怀疑各路大佬们说最后一集一定要看，至少要看三遍的理由是把古谷彻池田秀一潘惠子拉出来遛了，虽然俩男的已经绷不住了，潘惠子还是很不错的嘛，虽然和当年的拉拉多少也有点区别了，但是比我想象得好多了
+
+*****
+
+####  Cushaw  
+##### 21886#       发表于 2025-6-25 00:30
+
+为了醋包的饺子→饺子里面怎么包的醋啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  飞霞精灵  
+##### 21887#       发表于 2025-6-25 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994734&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 00:26</a>
+
+都做成那样了还做，EVA厨的命也是命</blockquote>
+E厨的包容力太强了，烂成那样的后两部还有人吹逼痞子在帮助你们和解凭什么骂痞子。
+
+一个跟冯小刚骂观众性质差不多的做法，在海外还能有大量粉丝挽尊，真的太尽孝了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北天褚  
+##### 21888#       发表于 2025-6-25 00:31
+
+所以说番茄开赛克谬握住的操纵杆其实是骡子的小手
+
+c8ec8dcbee6f38c13c3412ef0fce148a.jpg
+(142.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/003054zto7ewbemc7xhoue.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 21889#       发表于 2025-6-25 00:31
+
+对了这背越式跳高回避是这片子首创吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  adretyu67.  
+##### 21890#       发表于 2025-6-25 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994758&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-6-25 00:29</a>
+
+说起来ED后日谈是不是漏了拉拉的两个女仆和提坦斯眼镜哥没交代</blockquote>
+巴斯克真的确定要他再出场寻思往哪里灌g3吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+包饺子还是不带他玩比较好
+
+*****
+
+####  ghostdio  
+##### 21891#       发表于 2025-6-25 00:32
+
+不让林有德露脸是鹤卷觉得成田剑不对味吗
+
+*****
+
+####  暗之谋者  
+##### 21892#       发表于 2025-6-25 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994609&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-25 00:14</a>
+
+整个日本还剩下几个能讲的明白故事的监督？
+
+新人也就罢了怎么老害还能退化的？ ...</blockquote>
+他们不是退化了，你捋一遍脉络你就知道这故事是能好好讲明白的，但这几个老登就是想玩梗，然后把梗加地爆炸多，最后故事为了梗让路。为什么？因为这样他们爽，就这么简单。如果说水魔是监督能力不行，那鹤卷这俩人就是TM纯纯过来过把瘾的，心态从根子上就不正。
+
+
+*****
+
+####  6030sylar  
+##### 21893#       发表于 2025-6-25 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994718&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 00:24</a>
+
+彼岸骡。
+
+不是骡但是占据了骡的生态位。</blockquote>
+是反gqx夏亚吧，已经陷入杀拉拉无限轮回的gqx夏亚
+
+*****
+
+####  飞霞精灵  
+##### 21894#       发表于 2025-6-25 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994724&amp;ptid=2209276" target="_blank">Flechette 发表于 2025-6-25 00:25</a>
+
+问题是鸡夸世界线的鸭子也没养歪，绿叔叔这莫名跳反是看CCA看入脑了吗
+
+而且回头去推导，绿叔叔一开始找鸭子 ...</blockquote>
+本以为鸡夸世界线能让人看到一个没歪了的总帅是啥样，这帮鸭子粉姨姥应该是抱着这种鸭子if来的吧。
+
+好家伙最后什么强制骡一儿修正力。鸭子这次在这个世界线里更丢人了。
+
+被自己好搭档跳反真的哭笑不得。
+
+*****
+
+####  oi99o  
+##### 21895#       发表于 2025-6-25 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994724&amp;ptid=2209276" target="_blank">Flechette 发表于 2025-6-25 00:25</a>
+
+问题是鸡夸世界线的鸭子也没养歪，绿叔叔这莫名跳反是看CCA看入脑了吗
+
+而且回头去推导，绿叔叔一开始找鸭子 ...</blockquote>
+大概是感应到了类似的nt气质吧，nt的事情不用搞得那么清楚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿提拉  
+##### 21896#       发表于 2025-6-25 00:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鹤卷你故意的
+
+Z[J598TNQWM(2PR@7W_A%_U_tmb.jpg
+(139.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:33 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/003308qfefaf6jxe2ffnjp.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 零壹贰叁| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  秋月孝三  
+##### 21897#       发表于 2025-6-25 00:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对比下来只能说大文豪是这帮追星族里水平最高也最有米线的了。光头你看看你都养出来一群什么神人
+
+*****
+
+####  七七見奈波  
+##### 21898#       发表于 2025-6-25 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994769&amp;ptid=2209276" target="_blank">飞霞精灵 发表于 2025-6-25 00:30</a>
+
+E厨的包容力太强了，烂成那样的后两部还有人吹逼痞子在帮助你们和解凭什么骂痞子。
+
+一个跟冯小刚骂观众性 ...</blockquote>
+即使抛开其他外在因素，Q和终作为动画它就已经不好看了，尤其是打戏什么玩意，谁爱和解谁和解去，而且我从真心为你那时候就膈应痞子这帮人在动画里教人脱宅，他算老几他管我怎么看动画<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 21899#       发表于 2025-6-25 00:33
+
+最丢人的鸭子+1
+
+*****
+
+####  oi99o  
+##### 21900#       发表于 2025-6-25 00:34
+
+流媒版还有张ed卡
+
+<img src="https://img.stage1st.com/forum/202506/25/003418lx1cxlku3h14b74a.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E12.Thats.why.I.1080p.AMZN.WEB-DL.DUAL.DDP2.0.H..png</strong> (162.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:34 上传
+
+*****
+
+####  seedees3  
+##### 21901#       发表于 2025-6-25 00:34
+
+还有太多东西没讲明了，修斯到底是什么，夏亚穿越后怎么回来的，结尾留了不少余地，搞不好真会有后续
+
+*****
+
+####  恶意之刃  
+##### 21902#       发表于 2025-6-25 00:34
+
+极巨化！！不愧是宝可梦
+
+*****
+
+####  猪突猛进R  
+##### 21903#       发表于 2025-6-25 00:35
+
+可别后续了，再来一次你们吃还是不吃。
+
+*****
+
+####  xunit  
+##### 21904#       发表于 2025-6-25 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994694&amp;ptid=2209276" target="_blank">萩原组土狼p 发表于 2025-6-25 00:22</a>
+最神奇的是把相逢在宇宙拿出来了
+
+然后上一集是bltime
+
+结果休斯不是阿姆罗</blockquote>
+这集的插曲是beginning，不是相逢在宇宙
+
+*****
+
+####  Flechette  
+##### 21905#       发表于 2025-6-25 00:36
+
+我只想看一种第二季：两年后希洛克回来全杀了
+
+*****
+
+####  dafangwoo  
+##### 21906#       发表于 2025-6-25 00:37
+
+修斯这块留白到这个程度
+
+"旧世纪有个叫富野的动画监督你知道吗？"
+
+"？"
+
+"你就是它的尾巴"
+
+*****
+
+####  Sliurus  
+##### 21907#       发表于 2025-6-25 00:37
+
+最难绷的还是绿叔叔突然开始嘴93鸭<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 21908#       发表于 2025-6-25 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882279&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-5 10:34</a>
+
+就这设定至少能有下面两种演化分支：
+
+1. 拉拉帝皇说
+
+艾尔梅斯里的是79拉拉，处于被骡子捅死前死与不死之间 ...</blockquote><blockquote>就这设定至少能有下面两种演化分支：
+
+1. 拉拉帝皇说
+
+艾尔梅斯里的是79拉拉，处于被骡子捅死前死与不死之间的静滞状态。
+
+2.初始拉拉说
+
+艾尔梅斯里的是一个最初始的拉拉，她没有替夏亚挨刀，看夏亚噶了NT爆发陷入这种状态，她穿越各种时间空间都看到夏亚死在那一瞬，最后收束回到那一瞬间帮夏亚挡刀，高达世界全都回到0079的世界线。
+
+上面两种都还能有一个再演化分支：
+
+GQX是这个拉拉的幻境，夏亚没有受到伤害的一个拉拉死前的幻觉世界，这个世界里充斥着拉拉穿越时间空间以及其他NT的记忆碎片，所以揉合了很多东西。这个拉拉从静滞中醒来，GQX的世界就没了。</blockquote>
+
+看了看自己6月5号发的，除了最终结局走向，基本一些猜得都是对上的，这帮老登水平其实就这样没比官中好多少，差不多都能摸出底来。
+
+这最后一话从头到尾都笑得停不住，那几句关于NT的定义就是被这盘大饺子包的醋吧，还高清来了一段79的大战。
+
+这纠结说半天是不是就是在鼓励万代多开创新高达呀，不对，这就是万代的意思吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不要拿高达来舒服自己，不要拿高达作为借口用过去来束缚自己，因为高达自己并没有这样期望，高达和NT都在进化。
+
+真期待万代下一步高达啥样嘿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
