@@ -1287,3 +1287,13 @@ steam试玩版有
 
 白学估计也等不来NS移植了
 
+
+*****
+
+####  Elevation  
+##### 109#       发表于 2025-6-24 22:14
+
+叶水是不是（又）要被卖了？
+
+这下传颂系列还有戏么<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
