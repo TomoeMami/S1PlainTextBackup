@@ -4272,3 +4272,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 重开游戏就卡在cygames的标题了
 
+
+*****
+
+####  杂灰  
+##### 292#       发表于 2025-6-24 19:12
+
+造物我就感觉不存在稳吃，本身就难玩还纯吃发牌员<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
