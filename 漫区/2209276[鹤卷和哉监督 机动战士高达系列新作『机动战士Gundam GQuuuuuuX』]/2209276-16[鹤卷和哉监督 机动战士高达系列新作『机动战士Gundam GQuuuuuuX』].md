@@ -789,3 +789,44 @@ gqux让我不舒服的几个点：
 
 12集比11集观感强 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  林登·万  
+##### 22227#       发表于 2025-6-25 07:39
+
+应该加入古力特宇宙
+
+*****
+
+####  小姨子  
+##### 22228#       发表于 2025-6-25 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995524&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-25 07:07</a>
+最终话唯一没写歪的地方就是绿叔叔开着现代化改造的机体+偷袭也只能勉强打平只有光剑和筒子的红高，战力痴 ...</blockquote>
+结果主要应该是为了复刻
+要轮战力，在那个场合，所有人的nt能力都被提升到最大，已经不适合轮战力了，强行拉面板，nt能力弱的人被buff得更多，夏亚吃buff大的多，首席忽然进聊天室跟绿叔叔打的差不多也是
+
+*****
+
+####  西洛克  
+##### 22229#       发表于 2025-6-25 07:41
+
+<blockquote>小姨子 发表于 2025-6-25 07:39
+结果主要应该是为了复刻
+
+要轮战力，在那个场合，所有人的nt能力都被提升到最大，已经不适合轮战力了，强 ...</blockquote>
+gqx一开始夏亚nt能力就没比绿叔叔弱吧
+
+
+*****
+
+####  pandaman7777  
+##### 22230#       发表于 2025-6-25 07:46
+
+GQ起源<img src="https://p.sda1.dev/25/d2a9711bbfc00fc57fc9ac035a7039c2/image.jpg" referrerpolicy="no-referrer">
+
+【高达速通UC0079一年战争-哔哩哔哩】 https://b23.tv/KwDjj98
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
