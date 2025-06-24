@@ -9973,3 +9973,83 @@ GBO2参战GQX和白高达
 
 主创很忙<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 21453#       发表于 2025-6-24 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992300&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-24 17:18</a>
+
+就其实联邦也没有ˊ_&gt;ˋ
+
+评价为日子过得还是太好了。</blockquote>
+是的，因为联邦的原型是牢美这边的西方国家<img src="https://static.stage1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
+
+所以高达里联邦吉恩都不是什么好人
+
+那么好人在哪儿呢，高达里没有答案的，那当然不可能有啦
+
+*****
+
+####  西洛克  
+##### 21454#       发表于 2025-6-24 17:59
+
+<blockquote>大十字紅朔 发表于 2025-6-24 17:54
+是的，因为联邦的原型是牢美这边的西方国家
+
+所以高达里联邦吉恩都不是什么好人
+</blockquote>
+真有好人也不能掌权，否则高达怎么拍下去…
+
+
+*****
+
+####  岸浪白野  
+##### 21455#       发表于 2025-6-24 18:00
+
+[X 上的 tenten：“ジークアクス最終回 [url]https://t.co/hr2kcJbL5G](https://x.com/tentenchan2525/status/1937429787443904688)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/24/175955wiev8ykoikm2zwi4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 17:59 上传
+
+[X 上的 ミト：“今夜はいよいよガンダム ジークアクス最終回🎵 なんやかんやあって、マチュとニャアンのマヴ復活して共闘、そしてラストシーンは地球の海辺で…終劇 妄想しながら放送待機✨ #ジークアクス [url]https://t.co/H7U5HrEgSN](https://x.com/mitotank/status/1937349052422930840)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/24/180013h8qcu7nxzro98cc7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 18:00 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/180018w4hb32z37fx3hvsc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (893.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 18:00 上传
+
+[X 上的 メガクラ禁止：“6月24日(火)24時29分 [url]https://t.co/o17WEg0Jsl](https://x.com/megacra/status/1937186794342359507)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/24/175936hz6lvo5kg9l95cql.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1014.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 17:59 上传
+
+*****
+
+####  千恋万花  
+##### 21456#       发表于 2025-6-24 18:03
+
+GQuuuuuuX 最终回使用曲『きみの惑星（你的行星）』全曲试听！：[https://www.bilibili.com/video/BV1FiKgzcE6w](https://www.bilibili.com/video/BV1FiKgzcE6w)
+

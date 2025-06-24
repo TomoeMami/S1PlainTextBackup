@@ -9839,3 +9839,23 @@ edge 9分 <blockquote>Elden Ring: Nightreign
 
 做了调查问卷，发现他们有提到雨中冒险。这应该算是为数不多的大厂参考独立游戏的大制作了
 
+
+*****
+
+####  usodakedo  
+##### 961#       发表于 2025-6-24 18:01
+
+看了hua莱士新的视频，突然想到
+
+Saber：追踪者
+Archer：铁眼
+Rider：执行者
+Berserker：无赖
+Lancer：守护者
+Caster：隐士
+Assassin：女爵
+Avenger：哈基蜗
+再加上本体衍生作，时间循环，无限可能，扭曲的万能许愿机，这不就是fha吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，月丑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
