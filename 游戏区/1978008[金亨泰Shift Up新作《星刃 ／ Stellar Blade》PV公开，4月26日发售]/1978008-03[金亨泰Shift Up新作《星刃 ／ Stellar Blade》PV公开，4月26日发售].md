@@ -5621,3 +5621,13 @@ boss挑战里面招式多又花，难打的一逼
 从准备上塔之后的伏笔回收都不能细想的，只能说金桑自己也知道写的烂，在nikke联动还补了不少角色塑造，强 ...</blockquote>
 其实塑造的还好。你看他的脸就知道这是个照马斯克捏的，剩下的靠想象就可以了。
 
+
+*****
+
+####  Schwarzess  
+##### 3468#       发表于 2025-6-24 08:32
+
+鸦宝人气高高，下一部能不能让萝莉妈妈带回去修一修再出一次场。<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
