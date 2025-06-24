@@ -54,3 +54,19 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1658#       发表于 2025-6-24 17:05
+
+LoveLive! Days综合杂志8月号封面：大阪世博会
+
+<img src="https://img.stage1st.com/forum/202506/24/170518lkwwwpktr4b7biw7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 17:05 上传
+
