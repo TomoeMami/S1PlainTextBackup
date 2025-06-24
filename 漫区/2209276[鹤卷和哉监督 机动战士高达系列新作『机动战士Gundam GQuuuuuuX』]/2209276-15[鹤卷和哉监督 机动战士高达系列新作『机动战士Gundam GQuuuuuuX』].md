@@ -9959,3 +9959,17 @@ GBO2参战GQX和白高达
 
 2025-6-24 17:34 上传
 
+
+*****
+
+####  灵魂收割机  
+##### 21452#       发表于 2025-6-24 17:52
+
+6月28日：黑泽、鹤卷、榎户在东京搞舞台问候会。
+
+7月3日：鹤卷、榎户、小形、黑泽、土屋、川田、新佑树在洛杉矶参加Anime Expo 2025。
+
+7月6日：鹤卷、榎户、前田真宏在巴黎参加Japan Expo 2025。
+
+主创很忙<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

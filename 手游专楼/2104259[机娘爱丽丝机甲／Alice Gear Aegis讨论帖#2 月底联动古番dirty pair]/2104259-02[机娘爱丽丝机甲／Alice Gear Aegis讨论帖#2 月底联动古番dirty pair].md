@@ -400,3 +400,13 @@
 喷了，两个新女演员进通常池也可以交换专用装备，但其他按联动角色算。也就是说没1星2星（包括衣服），比一 ...</blockquote>
 为了世界观，为了世界观<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1510#       发表于 2025-6-24 17:53
+
+牛角包都没有这待遇
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
