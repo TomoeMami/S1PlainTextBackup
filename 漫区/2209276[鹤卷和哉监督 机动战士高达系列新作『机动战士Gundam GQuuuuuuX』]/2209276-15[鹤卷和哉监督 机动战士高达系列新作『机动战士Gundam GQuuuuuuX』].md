@@ -9346,3 +9346,29 @@ gto给鲁姆的鸭子补了句神啊，在我面前跪服吧。
 GQuuuuuuX 最终回使用曲『Far Beyond the Stars』全曲试听！
 [https://www.bilibili.com/video/BV1vxK3zdEm4/](https://www.bilibili.com/video/BV1vxK3zdEm4/)
 
+
+*****
+
+####  11116等  
+##### 21419#       发表于 2025-6-24 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991088&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-24 14:03</a>
+再寻思一下
+
+鸭子这个人，在国难当头的情况下决定复仇扎比家&gt;拯救格拉纳达（吉翁维持独立的物质基础）</blockquote>
+zion对于当时的他应该确实无所谓吧，反正联邦这一仗之后必然要退守地球，宇宙居民事实上独立，他把仇人在的格拉纳达炸了对他双赢
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Gaybird  
+##### 21420#       发表于 2025-6-24 15:52
+
+编曲跟第四集结尾的时候变了好多
+然后这歌手的唱腔……有点怪说实话，太像小女孩了
+查了一下，真的是网红富二代小女孩，那没事了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
