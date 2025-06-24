@@ -4342,3 +4342,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 我去，阿波罗，无耻</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">本家内战批是这样的
 
+
+*****
+
+####  tunpian  
+##### 298#       发表于 2025-6-24 22:01
+
+阴阳师还是太离谱了  超越虽然削弱了 但是 好朋友 阴阳师4连真的很难顶 
+
