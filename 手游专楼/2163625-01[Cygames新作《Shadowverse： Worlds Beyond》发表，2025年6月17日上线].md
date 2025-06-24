@@ -4197,3 +4197,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 不过最后还是在国区
 
+
+*****
+
+####  windhawind2  
+##### 285#       发表于 2025-6-24 11:42
+
+谢谢楼上回我的几位 我再试试模拟器（pc玩主要是可以一边古战场一边szb方便点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
