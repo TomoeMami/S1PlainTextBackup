@@ -4205,3 +4205,13 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 谢谢楼上回我的几位 我再试试模拟器（pc玩主要是可以一边古战场一边szb方便点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  取名真是难  
+##### 286#       发表于 2025-6-24 15:06
+
+<blockquote>windhawind2 发表于 2025-6-24 10:11
+steam不想转区→没去国际服→国服氪了一笔出了主战者→国服上分→发现没pc端→模拟器→发现ios和安卓是分开 ...</blockquote>
+搞个小号不就完了
+
