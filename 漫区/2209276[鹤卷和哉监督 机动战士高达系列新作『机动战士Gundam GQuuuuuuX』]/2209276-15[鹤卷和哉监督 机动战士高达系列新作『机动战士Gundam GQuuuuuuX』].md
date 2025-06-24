@@ -9265,3 +9265,14 @@ GQ拉給玫瑰拉通風報訊怎辦
 
 我说的不是鸭
 
+
+*****
+
+####  璇瑢子R  
+##### 21412#       发表于 2025-6-24 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990484&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-24 12:01</a>
+
+夏亚肉身潜入手电筒根本没在找人，估计是把找玫瑰的活儿全托给牢修了。 ...</blockquote>
+也有可能是相信基西利亚一定能把驾驶员和玫瑰都找来的。。。
+

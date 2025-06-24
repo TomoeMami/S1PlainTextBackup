@@ -5791,3 +5791,34 @@ boss挑战里面招式多又花，难打的一逼
 中文字体美化
 [https://www.nexusmods.com/stellarblade/mods/299](https://www.nexusmods.com/stellarblade/mods/299)
 
+
+*****
+
+####  schneehertz  
+##### 3483#       发表于 2025-6-24 12:10
+
+渡鸦好美
+现在有哪个mod能用渡鸦的机体玩游戏吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  袄_偶滴小乔  
+##### 3484#       发表于 2025-6-24 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989989&amp;ptid=1978008" target="_blank">藤井紫 发表于 2025-6-24 10:57</a>
+之前开箱子的动作能进拍照模式的，不知道什么时候开始没了
+关键结局的选项分歧点在哪里？我应该在什么节点 ...</blockquote>
+你要是一个周目内要体验全部三个结局的话分歧点有点早，上太空电梯前百合进度条有没有满就是分歧点了，懒得多周目收集的话可以这里手动备份存档，百合条不满情况下上电梯，然后打牵手结局。回档再收集收集，去太空电梯前百合提出有个地方要去，去完再打太空电梯，然后再打牵手结局
+
+你要打不牵手的话，最终boss前再备份，或者不死通关最终boss就行，再进游戏选另一个就行
+
+*****
+
+####  cym887  
+##### 3485#       发表于 2025-6-24 12:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">N网对比度 mod已经出了 现在伊芙 NPC 还有敌人都不会高亮了
+[https://www.nexusmods.com/stellarblade/mods/567](https://www.nexusmods.com/stellarblade/mods/567)
+
