@@ -389,3 +389,14 @@
 
 又省制作时间又能骗钱何乐而不为是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1509#         楼主| 发表于 2025-6-24 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992288&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-6-24 17:17</a>
+
+喷了，两个新女演员进通常池也可以交换专用装备，但其他按联动角色算。也就是说没1星2星（包括衣服），比一 ...</blockquote>
+为了世界观，为了世界观<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
