@@ -5846,3 +5846,11 @@ boss挑战里面招式多又花，难打的一逼
 <img src="https://p.sda1.dev/25/40225141c0b7f6d394118c0b0a7d0b9a/SB-Win64-Shipping_Ia8Fd3PdQB.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/672d68dd6ba00aa81a3e7a895783acde/SB-Win64-Shipping_JP0pJEcYvi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3488#       发表于 2025-6-24 13:51
+
+话说这万用螺栓给那么多到底啥用。2周目也没新东西开啊
+
