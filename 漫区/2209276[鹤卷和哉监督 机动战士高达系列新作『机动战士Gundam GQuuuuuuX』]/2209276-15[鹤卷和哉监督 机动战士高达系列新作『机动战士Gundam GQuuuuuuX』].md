@@ -8984,3 +8984,32 @@ gq夏亚都像正史拉拉说了一样的看到时间的“遗言”装逼
 玫瑰拉拉（包括gq拉拉速刷多个世界线可能性)给夏亚 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲道理夏亚这种人，他愿意花五年时间隐姓埋名就为了在手电筒里下药给拉拉造一个无伤送走的可能性，已经能表现出他对玫瑰拉拉的最大善意了。
 
+
+*****
+
+####  猪突猛进R  
+##### 21387#       发表于 2025-6-24 11:08
+
+其实牢修应该把黑历史倒A开出来，而不是用元祖搞个情怀。
+
+玫瑰拉拉为了救鸭到处创造平行世界；
+
+GQ鸭为了拯救世界仇也不报了，新人类理想也不搞了。
+
+作为时空警察的牢修，不是应该管你这的那的，统统歼灭吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mengsu  
+##### 21388#       发表于 2025-6-24 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990068&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-24 11:08</a>
+
+其实牢修应该把黑历史倒A开出来，而不是用元祖搞个情怀。
+
+玫瑰拉拉为了救鸭到处创造平行世界；</blockquote>
+牢修现在动机还不明，为啥他要无理由保玫瑰拉拉？还没讲清楚。
+
+当然我觉得最后牢修的动机估计也跟小番茄无脑追着他跑一样，NT的事儿你不用搞得那么清楚.jpg
+
