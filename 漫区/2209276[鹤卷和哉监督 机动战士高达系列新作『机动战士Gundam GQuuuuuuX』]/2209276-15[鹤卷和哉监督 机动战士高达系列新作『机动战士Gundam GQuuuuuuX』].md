@@ -16316,3 +16316,136 @@ GQ里还要加上大扎姆。
 
 是不是把所有尼亚安的戏全缝在修司身上就对味了？
 
+
+*****
+
+####  冷静先找时光机  
+##### 22128#       发表于 2025-6-25 02:09
+
+我觉得让黑拳组露脸是顺带的，主要原因是有人推双面魔蟹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孤狼arcueid  
+##### 22129#       发表于 2025-6-25 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995270&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-6-25 02:07</a>
+是不是把所有尼亚安的戏全缝在修司身上就对味了？</blockquote>
+不如把紫婆和博美犬的戏份多砍点<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  adretyu67.  
+##### 22130#       发表于 2025-6-25 02:11
+
+让黑拳组露脸挺正常的。包饺子带他们玩不奇怪。
+
+虽然打黑拳的剧情很没意义+他们应该是最躺着拿钱的整备班了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tide777  
+##### 22131#       发表于 2025-6-25 02:11
+
+只有最后夏亚去找拉拉让我感到了一丝安慰。
+
+*****
+
+####  大十字紅朔  
+##### 22132#       发表于 2025-6-25 02:11
+
+完结散花！
+
+<img src="https://img.stage1st.com/forum/202506/25/021111dlzjvvt72mt2v7d9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 02:11 上传
+
+*****
+
+####  Leliel  
+##### 22133#       发表于 2025-6-25 02:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然知道最后一话肯定很多东西是圆不上了
+
+但没想到就完全不解释修斯的来历
+
+*****
+
+####  孤狼arcueid  
+##### 22134#       发表于 2025-6-25 02:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的楼上都说了不少
+还是想吐槽首席抓了夏利亚篮板后那段对白味儿真是太特么冲了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  xunit  
+##### 22135#       发表于 2025-6-25 02:12
+
+制作组里有水产控的可能性不小，但这博美犬还是全删了罢，既站篇幅又没什么意义，还不如把戏份给其他人
+
+*****
+
+####  锦木万束  
+##### 22136#       发表于 2025-6-25 02:13
+
+我来替台长想点词：
+
+X代表GQuuuuuX，代表未知，最后的X代表不到最后你永远不知道故事走向是什么；
+
+J代表JK，代表joshi，两位活蹦乱跳的JK女主还有一个拉拉，在本剧中彰显了无尽的母爱，让总帅和修斯都难以忘却；
+
+B代表Big，代表大就是好，最后的元祖高达摇身一变巨大化的机甲让吉翁全体都为之色变，也成就了玛秋的斩首“behead”，也引发了全面的战争“battle”；
+
+P代表行星、地球，planet，维护地球和平(peace)稳定是newtype的终极目标；
+
+综上总结，GQX是一部继承了XJBP优良传统的原创大作，永远铭记，XJBP<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+*****
+
+####  105gun  
+##### 22137#       发表于 2025-6-25 02:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看最后这两集的感想就是：卧槽这里是一个梗，卧槽这里又是一个梗，卧槽这个分镜，卧槽那个分镜。
+
+至于人物是怎么运动，剧情是怎么发展的，对不起，全部从光滑的大脑表面刺溜一声滑走了。
+
+很少有作品能做得这么轻浮，连故事都不想好好完成，连身为剧作者的自尊都丢弃了，硬是把自己的奇怪癖好塞满了整集动画。我也略略写过一些二次创作性质的小说，倒是能够设身处地地理解这种玩梗行为的爽点在哪里。但，写不受任何人制约的二次创作是一回事，搞地下创作、私人创作是一回事，拍成这种规格的动画是另一回事。
+
+但是味道很好，我笑得很开心。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  茄子自走炮  
+##### 22138#       发表于 2025-6-25 02:14
+
+看这个没有亀頭戦士ガンボル给我的笑容多 怎么办啊
+
+*****
+
+####  朋友费小号  
+##### 22139#       发表于 2025-6-25 02:14
+
+博美犬最后露面的分镜用了蓝宝石之谜格兰蒂斯三人组的分镜<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+原来大姐头的人设就是照着格兰蒂斯，我真服了
+
+*****
+
+####  albertfu  
+##### 22140#       发表于 2025-6-25 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+
+有无没看过剧透的兄弟说说观感</blockquote>
+当时看到剧透时快速划过了，除了巨大化都能接受，满满的糊逼味和乐子
+

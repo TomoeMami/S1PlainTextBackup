@@ -7480,3 +7480,38 @@ OP我看说是双人舞蹈，但对面是空气
 
 本年度最佳原创肯定是能进预选了
 
+
+*****
+
+####  NBXX  
+##### 627#       发表于 2025-6-25 02:09
+
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIlXWha6X3Pit850xgxkyt-eF5fsCHNAAJSGAACzs7YVknPou7BwFGsNgQ.png" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷすぷす」#12 漫画汉化
+
+出差用笔记本+太困太兴奋 做的不是很满意，明天爬起来修复
+
+*****
+
+####  scorbian  
+##### 628#       发表于 2025-6-25 02:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">神，虽然知道基本不会有第二季，但还是想看八千代把整个地球都改造成酒店的那天（
+
+*****
+
+####  民工业  
+##### 629#       发表于 2025-6-25 02:13
+
+太好看了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Renes  
+##### 630#       发表于 2025-6-25 02:13
+
+人类都是大笨蛋！<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
