@@ -5615,3 +5615,11 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 只要词条对，SP机的存在感比得上没词条的满破UR，只要多打几次，其中一次对面没miss就有机会赢了
 
+
+*****
+
+####  HATENA  
+##### 1986#       发表于 2025-6-24 19:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逆亚直接能开发海牛跟夜莺没有先卖限定，这个好
+

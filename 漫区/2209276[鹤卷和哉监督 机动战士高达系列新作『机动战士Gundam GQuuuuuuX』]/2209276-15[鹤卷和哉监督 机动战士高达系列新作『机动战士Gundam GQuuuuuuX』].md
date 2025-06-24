@@ -10209,3 +10209,29 @@ yep
 
 所以世界系真的蛮好的
 
+
+*****
+
+####  LadySaazbaum  
+##### 21469#       发表于 2025-6-24 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992783&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-24 18:43</a>
+
+整个UC都是富野对那个环境霓虹的键政
+
+虽然说UC很多问题是代哥要赚钱所以续下去，但很多时候代哥是无所谓 ...</blockquote>
+港真吉翁虽然是盖章的反派，但是具体手法有点超出常识，什么一个月没了人口的一半堪比灭霸打响指。坏得太抽象以至于难有真情实感
+
+反而是提坦斯坏得特别真实<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+也看了一些老哥为联邦的辩护，能够切实感觉到这些老哥人很好很正直，而剧中联邦本身并配不上他们<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 21470#       发表于 2025-6-24 19:18
+
+说起来番茄应该手上不会再沾血了吧。
+
+是不是高达动画史上第一个开MS没杀人的主角？
+
