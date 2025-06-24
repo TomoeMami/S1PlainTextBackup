@@ -7260,3 +7260,133 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 
 最近没怎么看推都不知道这人在产粮
 
+
+*****
+
+####  NBXX  
+##### 618#       发表于 2025-6-24 20:14
+
+<img src="https://img.stage1st.com/forum/202506/24/201438xrpq0uq33rr60r60.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlQmhalgMI9X32-gABYoKQaWFU4CDQDwACpRcAAs7O0FZP_oFevy_m5DYE.jpg.jpg</strong> (714.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201444r5rrkoz56pppd917.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlRWhalggbYrqLjo-Mh6zyYoYp1g7IAAKoFwACzs7QVs0W7-UI8goSNgQ.jpg.jpg</strong> (578.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201450armnl1iilst7nlga.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlQWhalgMTAvJTjw4JN5EAASW3TOu8RQACpBcAAs7O0Faa365lCXviIjYE.jpg.jpg</strong> (267.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201455k5555k5g97jgl98k.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlP2halgJ2sTjng7Y0ncUZMnCv6OfaAAKiFwACzs7QVp6mtj2zc6SoNgQ.jpg.jpg</strong> (627.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201459ld9k9cspdckz1cce.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlRGhalggFa6_0F4U8CS77UhpQOK3bAAKnFwACzs7QVhw_Il2GlgOWNgQ.jpg.jpg</strong> (783.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201503ebjrtlqst2zrwsbc.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlQ2halgNidxaYH2oV3OXGeoAsPqXAAAKmFwACzs7QVinw7uxoX723NgQ.jpg.jpg</strong> (857.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201508jrr6rmso65sz6p5q.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlQGhalgOdYivxJJ3Dq8w_uGMtLLKsAAKjFwACzs7QVgvcX8o9HmJTNgQ.jpg.jpg</strong> (666.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:14 上传
+
+「アポカリプスホテルぷすぷす」第10话 汉化 
+
+*****
+
+####  NBXX  
+##### 619#       发表于 2025-6-24 20:17
+
+<img src="https://img.stage1st.com/forum/202506/24/201723fhhh7ql3z9qv39g9.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlRmhalsK6UzlM8eRdAo3FJVmnPpg7AAKqFwACzs7QVjs5Q4JHuPeHNgQ.jpg.jpg</strong> (740.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201729esi4elyprepraeaa.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlTGhalscyWzQHHOHpmeADvGaxF0W0AAKwFwACzs7QVooq2FEKDG-1NgQ.jpg.jpg</strong> (614.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201734a9uj4uv4magrgr8t.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlS2halseWWG6SRFNMCTX1ZeEBV1KWAAKvFwACzs7QVuA2npRL5m9qNgQ.jpg.jpg</strong> (761.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201739w419nnn7r656hh71.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlR2halsMnokgZRnqr-6ofC7tchDRAAAKrFwACzs7QVo_zMMlgtfi7NgQ.jpg.jpg</strong> (666.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201743sie9e5ifs2xzjrwf.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlSGhalsMuCj_4T4UQngW8QVY7QVGQAAKsFwACzs7QVtLRIh6dKhzwNgQ.jpg.jpg</strong> (685.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201747zikhvspwr5rw6zd6.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlSmhalsOgGLvcRQipGG8XF0xdNmiKAAKuFwACzs7QVh7fyU1P9QayNgQ.jpg.jpg</strong> (697.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/201751i2vwd6dvarvcr3ga.jpg" referrerpolicy="no-referrer">
+
+<strong>BQACAgUAAyEGAASHRsPbAAIlSWhalsNCd76DuLbZbbKG-CmU2OtXAAKtFwACzs7QVrZlJzI8j-AINgQ.jpg.jpg</strong> (901.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 20:17 上传
+
+「アポカリプスホテルぷすぷす」第11话 汉化
+
+之前的对竹本泉的访谈中，提到<blockquote>在观看动画并阅读漫画的过程中，两者会逐渐融合，最终产生“本质统一”的认知</blockquote>
+我觉得在这一话中体现比较明显
+
