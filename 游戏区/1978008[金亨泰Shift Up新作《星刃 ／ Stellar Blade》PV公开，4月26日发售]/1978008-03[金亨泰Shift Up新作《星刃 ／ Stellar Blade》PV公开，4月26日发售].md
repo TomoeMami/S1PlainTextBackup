@@ -6191,3 +6191,11 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">这下真结束了 等剑星2了！
 
+
+*****
+
+####  mhss  
+##### 3521#       发表于 2025-6-24 20:22
+
+韩配之外的问题是就算嘴形对上了，伊芙摇头晃脑的小动作完全对不上<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
