@@ -363,3 +363,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  regular  
+##### 1506#       发表于 2025-6-24 13:14
+
+同一个角色在家和出击的衣服打扮可以分开了，这还挺好。
+
