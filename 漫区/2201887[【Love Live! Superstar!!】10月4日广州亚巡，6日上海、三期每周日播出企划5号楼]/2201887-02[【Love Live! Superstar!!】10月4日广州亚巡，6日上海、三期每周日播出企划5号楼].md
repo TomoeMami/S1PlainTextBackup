@@ -70,3 +70,13 @@ LoveLive! Days综合杂志8月号封面：大阪世博会
 
 2025-6-24 17:05 上传
 
+
+*****
+
+####  仟音一心  
+##### 1659#       发表于 2025-6-24 18:44
+
+岬奈子 三单封面
+<img src="https://p.sda1.dev/25/99ba12fcda3d2c1128b4ffb8126be9a2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/1ba6d958b712c272dbfc41736f5f1bb9/image.jpg" referrerpolicy="no-referrer">
+

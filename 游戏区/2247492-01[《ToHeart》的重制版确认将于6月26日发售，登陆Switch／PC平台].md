@@ -1230,3 +1230,11 @@ ns试玩版没有中文，不知道正式版有没有。
 
 グラフィックモード，graphic mode，图像。
 
+
+*****
+
+####  sd1055007  
+##### 103#       发表于 2025-6-24 18:43
+
+笑了，你大水叶要被卖了，不如藤子买回去和键子凑一桌算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
