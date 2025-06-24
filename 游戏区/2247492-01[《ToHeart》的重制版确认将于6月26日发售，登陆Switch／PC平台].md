@@ -1238,3 +1238,16 @@ ns试玩版没有中文，不知道正式版有没有。
 
 笑了，你大水叶要被卖了，不如藤子买回去和键子凑一桌算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 104#       发表于 2025-6-24 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982872&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-22 23:31</a>
+
+ns试玩版没有中文，不知道正式版有没有。</blockquote>
+steam试玩版有
+
+应该不会switch日区只有日语吧
+
