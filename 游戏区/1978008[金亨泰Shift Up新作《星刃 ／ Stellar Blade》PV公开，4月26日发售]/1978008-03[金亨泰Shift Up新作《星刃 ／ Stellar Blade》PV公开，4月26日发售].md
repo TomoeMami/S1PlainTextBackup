@@ -6199,3 +6199,23 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 韩配之外的问题是就算嘴形对上了，伊芙摇头晃脑的小动作完全对不上<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名居守  
+##### 3522#       发表于 2025-6-24 22:14
+
+原来制作人表可以快进<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sin.yugi  
+##### 3523#       发表于 2025-6-24 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991782&amp;ptid=1978008" target="_blank">xell2alex 发表于 2025-6-24 03:05</a>
+虽然棒语很难听而且听不懂，但来回试了半天最后还是用的韩配，日配这梆硬的女战士声线听着真的不来劲儿 ...</blockquote>
+这就奇了怪了，难道eve不是超级女战士？
+
+— from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
