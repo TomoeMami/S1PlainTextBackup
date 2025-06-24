@@ -1644,3 +1644,31 @@ king在7月这么地狱的行程下又是试走又是参加lol大赛，还抽空
 
 只能说虹和ahamo相性不太好，已经不是第一次合作出事了
 
+
+*****
+
+####  吃咸菜的  
+##### 1329#       发表于 2025-6-24 21:13
+
+re:act还活着啊，两个单曲
+
+獅子神レオナ 303
+
+花鋏キョウ 253
+
+<img src="https://img.stage1st.com/forum/202506/24/211022s8ef9jfssqyydfi3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/211313o0drlwhaz59lll0m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 21:13 上传
+
