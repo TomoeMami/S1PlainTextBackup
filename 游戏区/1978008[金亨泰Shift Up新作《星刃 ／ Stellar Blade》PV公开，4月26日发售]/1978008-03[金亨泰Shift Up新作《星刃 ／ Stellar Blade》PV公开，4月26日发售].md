@@ -6276,3 +6276,25 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 2025-6-24 22:28 上传
 
+
+*****
+
+####  alucardcz  
+##### 3527#       发表于 2025-6-24 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993807&amp;ptid=1978008" target="_blank">汉魏洛阳 发表于 2025-6-24 22:28</a>
+
+我也是日配加中文，感觉语音和文本能完全对上的反而是少数，大部分场合都是讲的是一回事，字幕显示的又是 ...</blockquote>
+我记得前面有漏油说过。这游戏中文语音和中文字幕好像也是对不上的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 3528#       发表于 2025-6-24 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993808&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-24 22:29</a>
+
+有一个问题，营地中间不是有口锅煮东西的么，但是钓鱼任务里面伊芙完全不知道料理这种东西，他们这种人造人 ...</blockquote>
+钓鱼任务钓到的鱼不是可以卖给个Npc 那个npc说可以吃 还喝酒呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
