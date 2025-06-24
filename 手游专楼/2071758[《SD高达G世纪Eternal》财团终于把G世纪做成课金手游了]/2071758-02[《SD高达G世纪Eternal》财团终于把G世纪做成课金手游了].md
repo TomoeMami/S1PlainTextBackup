@@ -5542,3 +5542,11 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 <img src="https://img.stage1st.com/forum/202506/24/091405ub766kvpnkkoz6xb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1980#       发表于 2025-6-24 10:21
+
+上一赛季14w的阵容只能钻石，这次16w的都能进大师了，感觉不是我变强，是玩的人变多了
+

@@ -4150,3 +4150,26 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 steam不想转区→没去国际服→国服氪了一笔出了主战者→国服上分→发现没pc端→模拟器→发现ios和安卓是分开 ...</blockquote>
 国服首页点平台切换 互通的
 
+
+*****
+
+####  格雷殿下  
+##### 282#       发表于 2025-6-24 10:16
+
+怎么我的纯血🌸洋垃圾手机游戏加载卡在90.1%了
+
+试了几次都这样
+
+pc玩也刷不了初始
+
+😭😭😭😭😭
+
+*****
+
+####  duraa  
+##### 283#       发表于 2025-6-24 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989694&amp;ptid=2163625" target="_blank">windhawind2 发表于 2025-6-24 10:11</a>
+steam不想转区→没去国际服→国服氪了一笔出了主战者→国服上分→发现没pc端→模拟器→发现ios和安卓是分开 ...</blockquote>
+模拟器左上角可以选ios服，但是卡，偶尔还有莫名其妙的闪退，不是很推荐用模拟器玩<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
