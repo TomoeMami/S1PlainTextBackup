@@ -5631,3 +5631,11 @@ boss挑战里面招式多又花，难打的一逼
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  心灵的乳头  
+##### 3469#       发表于 2025-6-24 08:59
+
+你们都说尼尔的bgm好，我怎么觉得这女声吟唱有点吵，还有那联动小车外放的音乐，只要地图上一出现，就有一种在蓝调酒馆吹唢呐的冲击感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
