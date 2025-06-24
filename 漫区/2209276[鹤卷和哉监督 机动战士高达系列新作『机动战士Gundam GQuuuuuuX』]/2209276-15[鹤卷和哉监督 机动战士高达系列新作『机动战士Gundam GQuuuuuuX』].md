@@ -15956,3 +15956,195 @@ Titans vs 吉翁的故事线</blockquote>
 
 只看过水魔的高达萌新看完gqux就感觉自己像坐在木马里观战的懵逼群众一样
 
+
+*****
+
+####  Sliurus  
+##### 22092#       发表于 2025-6-25 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995128&amp;ptid=2209276" target="_blank">芝村舞 发表于 2025-6-25 01:33</a>
+ 这部剧主旨不明，重心不对还是贯彻的缺点。政治戏有什么必要写？过家家一样。塑造的是谁？居然是夏莉雅。就 ...</blockquote>
+朋友，你是对的。这片多给点主角戏份不至于最后转折这么硬
+可能不出side6才是最适合的剧本
+
+*****
+
+####  灵魂收割机  
+##### 22093#       发表于 2025-6-25 01:48
+
+本作还卖不卖碟了，到现在都没动静。
+
+*****
+
+####  adretyu67.  
+##### 22094#       发表于 2025-6-25 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995192&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-6-25 01:45</a>
+
+唯一我还是想吐槽的一点是最后居然是鸭妹结局，难道汤小美死了吗。那我只能认为庵野鹤卷他们只能对父辈的富 ...</blockquote>
+GTO最后就是戴肯派振臂一呼拥立公主。
+
+盲猜是这个逻辑吧。还得感谢喵安那一炮帮阿尔特西亚清理了基连亲卫队呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 22095#       发表于 2025-6-25 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995200&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 01:47</a>
+
+最后鸭妹不都成功上位了吗，那不是从龙功臣。总不会是负罪感吧，真说负罪感，基连和老太婆又不是他杀的。 ...</blockquote>
+他和首席说这话的时候不还是罪人吗。
+
+*****
+
+####  Jobtownb  
+##### 22096#       发表于 2025-6-25 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995171&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-25 01:43</a>
+鸭子最后和绿叔叔倒是说了会努力和自己身上的虚无做斗争不往地球上砸垃圾。
+
+最后也在地球上找到了拉拉， ...</blockquote>
+这个世界里他俩在NT飞升之前就知道其他时间线的事情了，估计两人的关系会比正片更扭曲。如果拉拉没能成为夏亚的妈填补他的空虚，那鸭子估计也不会介意像算计其他人一样利用拉拉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  七里由馬  
+##### 22097#       发表于 2025-6-25 01:49
+
+<blockquote>桜庭ななみ 发表于 2025-6-25 01:45
+唯一我还是想吐槽的一点是最后居然是鸭妹结局，难道汤小美死了吗。那我只能认为庵野鹤卷他们只能对父辈的富 ...</blockquote>
+邮局港剧，真论正统性鸭兄妹那是高多了。
+
+*****
+
+####  jpiajwopdm  
+##### 22098#       发表于 2025-6-25 01:49
+
+挺好的，至少我看完笑了
+
+*****
+
+####  无名的刀锋  
+##### 22099#       发表于 2025-6-25 01:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">观后感：交响诗篇超进化
+
+*****
+
+####  ryanghj  
+##### 22100#       发表于 2025-6-25 01:50
+
+夏利亚最后应该是隐姓埋名了，变成新版裤袜脱落
+
+*****
+
+####  根正苗红  
+##### 22101#       发表于 2025-6-25 01:51
+
+ 本帖最后由 根正苗红 于 2025-6-25 01:53 编辑 
+
+绿叔叔就是鸭子的终极升级版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有勇有谋，三观正，气量大，有担当。
+开天眼秒反水追着鸭子砍太tm欢乐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+后面的擦屁股的脏活我干，鸭子你去泡妞。不掺和政治的总帅获得终极happy ending<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22102#       发表于 2025-6-25 01:52
+
+鸭妹作为联邦ace加戴肯血统，两边都好说话。谁不听话我一个电话打给林有德一个电话打给兰巴拉尔一起收拾你。
+
+*****
+
+####  兰开夏  
+##### 22103#       发表于 2025-6-25 01:52
+
+最后结构东西太多收起来太蛋疼但都收了，结果就是十二话内容太多太赶。不过也还是收尾了。做得不错，看得很爽哈哈哈
+
+*****
+
+####  LOLITA  
+##### 22104#       发表于 2025-6-25 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994845&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-25 00:41</a>
+
+我突然想起来这后日谈是不是没解释GQuuuuuuX和GFreD的去向，还是说我漏看了？ ...</blockquote>
+流媒体版最后暗示了，应该被麻球开到海边了，估计就在沙滩不远处。
+
+*****
+
+####  久井路路  
+##### 22105#       发表于 2025-6-25 01:53
+
+本来想着看完之后去补0079的
+
+但是现在总觉得要是因为夸克斯去补0079有点火大，五年后再去补吧
+
+这样五年之后我就可以怨恨夸克斯害我迟了五年才看了（No
+
+
+*****
+
+####  Steel.Haze  
+##### 22106#       发表于 2025-6-25 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995194&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-25 01:46</a>
+
+差不多就是这样，其实就差一个修司的真身，太神必了</blockquote>
+所以我觉得他们已经备好了剧场版或第二季大饼的面粉，制作合同已经签署了，就是没公布。因为有一部分设计是寻夫，所以修斯的留白依然要保持。
+
+*****
+
+####  Steel.Haze  
+##### 22107#       发表于 2025-6-25 01:56
+
+ 本帖最后由 Steel.Haze 于 2025-6-25 01:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995172&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 01:43</a>
+
+夏利亚最后为啥要赎罪上军事法庭？</blockquote>
+客套一下。表示不会逃避责任。阿尔戴希亚和兰巴拉尔的军事法庭怎么会审判他呀。
+
+我突然想到一个事情....马克贝你小子是不是逃掉了没被干掉？我一直觉得马克贝会先死球的。结果没出场。
+
+*****
+
+####  eilot  
+##### 22108#       发表于 2025-6-25 01:56
+
+還是想知道瑪秋最後的通緝犯身份有沒解除到
+
+都傳短訊給媽媽報平安
+
+*****
+
+####  adretyu67.  
+##### 22109#       发表于 2025-6-25 01:56
+
+他们搞膜的成分比正经做gqux事情的成分多多了，第二季真有也是玩meme比正经事追夫重要。
+
+*****
+
+####  Sliurus  
+##### 22110#       发表于 2025-6-25 01:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995184&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-25 01:45</a>
+ 喵安确实多余，最后一战感觉gfred是强凑的，两个人打不过修司一个人有啥意义非得组mav啊 ...</blockquote>
+不如说这对mav太过厉害，不搞巨大化修司创造不出和玛秋单挑的局面<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+最后修司甚至一句话都没对喵安说过，感觉喵安的存在反而影响了剧情的流畅度，你写这角色是为了啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 22111#       发表于 2025-6-25 01:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995234&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-25 01:56</a>
+
+還是想知道瑪秋最後的通緝犯身份有沒解除到
+
+都傳短訊給媽媽報平安</blockquote>
+没有。最后海滩不就是说这事。
+
