@@ -5576,3 +5576,17 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 弱的人更容易打分，更弱的就更容易上分？
 
+
+*****
+
+####  HATENA  
+##### 1983#       发表于 2025-6-24 15:28
+
+ 本帖最后由 HATENA 于 2025-6-24 15:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990886&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-24 13:18</a>
+
+是放水容易了吧，看见好多大佬上援防不了地面的三星nt，那就只是一个几乎没用的单位了
+
+弱的人更容易打分， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">挑战模式全是预设ai，我怀疑15w以下的也混了不少
+
