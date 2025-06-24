@@ -5734,3 +5734,11 @@ SD高达G世纪 永恒 3季度追加参战列表
 
 18w4感觉不会打了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 1999#       发表于 2025-6-25 00:38
+
+SD恁早就参战了啊，那估计会有不少UR了
+

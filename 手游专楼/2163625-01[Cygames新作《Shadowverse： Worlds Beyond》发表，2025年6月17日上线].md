@@ -4384,3 +4384,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 我虹卡券和金币已经开始攒给下版本
 
+
+*****
+
+####  olkzdf  
+##### 302#       发表于 2025-6-25 00:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金币好像已经攒了1w2了，看着多认真一想才20多包，还得继续攒
+
