@@ -6219,3 +6219,60 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 — from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  汉魏洛阳  
+##### 3524#       发表于 2025-6-24 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991488&amp;ptid=1978008" target="_blank">ParadiseMartyr 发表于 2025-6-24 15:14</a>
+
+韩配实在听不懂，加上垃圾中文字幕。切日配能听出来中文字幕有些完全把意思给曲解了(不至于意思相反，但至 ...</blockquote>
+我也是日配加中文，感觉语音和文本能完全对上的反而是少数，大部分场合都是讲的是一回事，字幕显示的又是另一回事……也不知道哪个更接近原文。
+
+*****
+
+####  洛克萨斯  
+##### 3525#       发表于 2025-6-24 22:29
+
+有一个问题，营地中间不是有口锅煮东西的么，但是钓鱼任务里面伊芙完全不知道料理这种东西，他们这种人造人感觉不吃不喝都行啊.............<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以那口锅里面到底是啥
+
+*****
+
+####  hayamitetsu  
+##### 3526#       发表于 2025-6-24 22:29
+
+四周全成就了，现在就是拍照游戏了，重新再玩一遍，通一遍马桶，一路拍照，还是喜欢这件，有熊有屁股有腿有高跟鞋
+
+<img src="https://img.stage1st.com/forum/202506/24/222845m2822g8296lkoklk.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250623_01321700000.png</strong> (3.73 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 22:28 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/222847vmi2mivm7i1ii792.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250623_01331700000.png</strong> (4.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 22:28 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/222852kuh0wuaad4hubwch.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250624_17160600000.png</strong> (6.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 22:28 上传
+
+<img src="https://img.stage1st.com/forum/202506/24/222855inpbu4wmms9m9uvm.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250624_17272900000.png</strong> (5.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 22:28 上传
+
