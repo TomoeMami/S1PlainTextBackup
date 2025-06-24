@@ -5497,3 +5497,13 @@ SD这改动好评啊 0氪第一次恰满15W
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 1978#       发表于 2025-6-24 08:07
+
+比上次好打多了，拿了15W低保走人，不打了，再打就是氪佬的地盘了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
