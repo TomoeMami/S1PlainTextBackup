@@ -44996,3 +44996,18 @@ jimmy又在发疯……
 
 然后我记得主播说的是【今天】一定不会玩lol了（
 
+
+*****
+
+####  sino__unnko3  
+##### 18847#       发表于 2025-6-25 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994033&amp;ptid=2018830" target="_blank">术士q 发表于 2025-6-24 23:23</a>
+咩:蛋糕、还有布丁😋
+会不会周年的纪念曲是world is mine?</blockquote>
+刚想说你咩对于纪念mv的歌在之前和之后不太会唱，随便搜了几首发现也并非如此
+
+5周年纪念那天唱的新世界，一年以后就做成了mv
+
+那就 期待一下吧(按上次说法，后期是一人全役？)
+
