@@ -1624,3 +1624,13 @@ king在7月这么地狱的行程下又是试走又是参加lol大赛，还抽空
 
 试试天才二游的成色去考虑守备位置其实也还行，尤其是天才二垒送球E这点ABO一开始挺嫌弃的。对比下游击+中外野天才和二游天才的差别<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木户孝允  
+##### 1327#       发表于 2025-6-24 16:32
+
+为啥甲子园搞得红红火火的，最大的赞助商直接就撤了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看官推下面一些人好像知道原因有不直接点名说。。。情报弱者过来楼里面问一下
+
+—— 来自 vivo V2217A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
