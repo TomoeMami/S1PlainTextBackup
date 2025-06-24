@@ -5732,3 +5732,11 @@ boss挑战里面招式多又花，难打的一逼
 
 难崩的还是退出模式会黑屏一段，而动画还在播，真就考验按暂停的手速么？
 
+
+*****
+
+####  amanohanei  
+##### 3479#       发表于 2025-6-24 10:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班摸鱼点进来被剧透了 
+
