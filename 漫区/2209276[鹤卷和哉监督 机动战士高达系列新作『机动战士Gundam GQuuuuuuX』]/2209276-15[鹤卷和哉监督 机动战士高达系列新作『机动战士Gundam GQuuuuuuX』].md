@@ -8949,3 +8949,38 @@ gq夏亚要是真的看大时间流向了，那他脑回路是不是有大问题
 不过如果Zicknova现象是蔷薇和红高达的alpha 精神系统共鸣造成的，毁 ...</blockquote>
 毁掉精神力系统只能阻止Zicknova再次出现，没办法送走玫瑰拉拉，反而只剩下杀了她一条路了。
 
+
+*****
+
+####  xwz  
+##### 21384#       发表于 2025-6-24 10:56
+
+<img src="https://p.sda1.dev/25/b7c66e6f2f361a600311d8e533826628/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  不会起名  
+##### 21385#       发表于 2025-6-24 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983302&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-23 03:12</a>
+
+爬完贴吧楼
+
+所以拉拉鸭子在一起不是自己被警察逮捕就是鸭子被警察逮捕，于是创造了无数平行世界，但是平行 ...</blockquote>
+求指路，帖子太多翻不过来
+
+*****
+
+####  mengsu  
+##### 21386#       发表于 2025-6-24 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989885&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-24 10:37</a>
+
+gq夏亚都像正史拉拉说了一样的看到时间的“遗言”装逼
+
+玫瑰拉拉（包括gq拉拉速刷多个世界线可能性)给夏亚 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲道理夏亚这种人，他愿意花五年时间隐姓埋名就为了在手电筒里下药给拉拉造一个无伤送走的可能性，已经能表现出他对玫瑰拉拉的最大善意了。
+

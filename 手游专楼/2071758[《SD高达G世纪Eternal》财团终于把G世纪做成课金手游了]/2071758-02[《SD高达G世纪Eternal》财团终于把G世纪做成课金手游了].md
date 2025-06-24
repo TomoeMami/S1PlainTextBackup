@@ -5550,3 +5550,19 @@ WK]0F)VKXH0OZ1%][Z@8}AD.jpg
 
 上一赛季14w的阵容只能钻石，这次16w的都能进大师了，感觉不是我变强，是玩的人变多了
 
+
+*****
+
+####  captoon  
+##### 1981#       发表于 2025-6-24 10:59
+
+<img src="https://img.stage1st.com/forum/202506/24/105900g47t7li86j8liwcl.png" referrerpolicy="no-referrer">
+
+<strong>0170A95CA0E8B81F3BDBD160F6FE05D4.png</strong> (552.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 10:59 上传
+
+希望明天能20
+
