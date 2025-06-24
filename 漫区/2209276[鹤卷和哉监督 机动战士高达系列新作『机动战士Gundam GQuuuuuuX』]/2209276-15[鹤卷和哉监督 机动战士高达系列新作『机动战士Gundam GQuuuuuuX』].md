@@ -11965,3 +11965,925 @@ nt的事不要搞得太明白<img src="https://static.stage1st.com/image/smiley/
 
 分镜泄露都是真的啊。
 
+
+*****
+
+####  cckuku  
+##### 21663#       发表于 2025-6-24 23:56
+
+所以骡子为什么就说话了？？？
+
+*****
+
+####  123485k  
+##### 21664#       发表于 2025-6-24 23:56
+
+大脑升级了
+
+*****
+
+####  11116等  
+##### 21665#       发表于 2025-6-24 23:56
+
+这就没了？
+
+*****
+
+####  RPG-7  
+##### 21666#       发表于 2025-6-24 23:56
+
+GQ鸭妹边上好像是蓝巴哦！
+
+*****
+
+####  鱼丈人  
+##### 21667#       发表于 2025-6-24 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994289&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-6-24 23:55</a>
+大河内是正统富野弟子，卡拉这帮臭鱼烂虾只是帮忙打过工罢了</blockquote>
+G一串不也是抄大河内，有何区别<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21668#       发表于 2025-6-24 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">……
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子够多，我认了！
+
+*****
+
+####  Sliurus  
+##### 21669#       发表于 2025-6-24 23:56
+
+说实话，我觉得还行
+
+*****
+
+####  零壹贰叁  
+##### 21670#       发表于 2025-6-24 23:56
+
+看笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+怎么能这么难绷
+
+*****
+
+####  windtrack  
+##### 21671#       发表于 2025-6-24 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不知道如何用人类的语言来评价最后一集，总之，乐就完了
+
+*****
+
+####  aimbot  
+##### 21672#       发表于 2025-6-24 23:56
+
+soulmate结局了
+
+*****
+
+####  Devola  
+##### 21673#       发表于 2025-6-24 23:56
+
+全程爆笑
+满足了，好久没笑得这么过瘾了
+
+大米律师是对的
+
+*****
+
+####  ティグル  
+##### 21674#       发表于 2025-6-24 23:56
+
+榎户洋司我**比
+
+*****
+
+####  Freakyyu  
+##### 21675#       发表于 2025-6-24 23:56
+
+伟大的全人类比烂时代
+
+*****
+
+####  lunaticfool  
+##### 21676#       发表于 2025-6-24 23:56
+
+高达gquuuuux是否也是一种动漫xb3
+
+*****
+
+####  oi99o  
+##### 21677#       发表于 2025-6-24 23:56
+
+gq鸭和gq拉相遇好像没透过吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 21678#       发表于 2025-6-24 23:56
+
+最后辅佐鸭妹的是拉尔？
+
+*****
+
+####  a85982313  
+##### 21679#       发表于 2025-6-24 23:56
+
+神人动画
+
+*****
+
+####  轮太  
+##### 21680#       发表于 2025-6-24 23:57
+
+只能说挺鹤卷的
+
+
+*****
+
+####  死宅真恶心  
+##### 21681#       发表于 2025-6-24 23:57
+
+我到底看了个啥玩意
+
+—— 来自 Xiaomi 24053PY09C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  黄昏现白骨  
+##### 21682#       发表于 2025-6-24 23:57
+
+不用过脑子就是好
+
+*****
+
+####  秋月孝三  
+##### 21683#       发表于 2025-6-24 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兰巴拉尔露了个脸，还行吧
+
+*****
+
+####  麻仓月轩  
+##### 21684#       发表于 2025-6-24 23:57
+
+乐疯了，今年最乐，笑，停不下来
+
+*****
+
+####  cckuku  
+##### 21685#       发表于 2025-6-24 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994317&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-24 23:56</a>
+gq鸭和gq拉相遇好像没透过吧</blockquote>
+有，透过。
+
+*****
+
+####  gawain  
+##### 21686#       发表于 2025-6-24 23:57
+
+这帮人是玩爽了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 21687#       发表于 2025-6-24 23:57
+
+元祖还是奇妙的垫了吗
+
+*****
+
+####  西洛克  
+##### 21688#       发表于 2025-6-24 23:57
+
+我的脑袋给**了
+
+*****
+
+####  eilot  
+##### 21689#       发表于 2025-6-24 23:57
+
+不過最後的最後
+
+瑪秋的通緝犯沒有提到有沒刪去，只是傳了短訊
+
+鴨妹真是登基，旁邊那位更是...證明沒死到
+
+*****
+
+####  adretyu67.  
+##### 21690#       发表于 2025-6-24 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994318&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-24 23:56</a>
+
+最后辅佐鸭妹的是拉尔？</blockquote>
+剃了胡子不太像吧。
+
+*****
+
+####  超阳电子炮  
+##### 21691#       发表于 2025-6-24 23:57
+
+这下真的只有NT才能看懂了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奇幻梦境  
+##### 21692#       发表于 2025-6-24 23:57
+
+所以是我们大🐞抱着我们大女主的双手在打最终战吗
+
+*****
+
+####  上坂莲华  
+##### 21693#       发表于 2025-6-24 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994297&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-6-24 23:56</a>
+
+没有彩蛋啊，原本剧透哥还说最后有修司露脸的</blockquote>
+其实我也好奇，PDF分镜最后一格是非常清楚的麻球大脸，不知道他怎么说出看着像是麻球的后脑勺的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  visory  
+##### 21694#       发表于 2025-6-24 23:58
+
+虽然我肯定不会打高分，但其实看的时候乐子还是拉满的，无论是场内还是场外都是<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 21695#       发表于 2025-6-24 23:58
+
+<img src="https://img.stage1st.com/forum/202506/24/235759vgwgimwpi7jwxhhw.jpg" referrerpolicy="no-referrer">
+
+<strong>GLGDV~66)IQD7PI`_BF3`34.jpg</strong> (5.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 23:57 上传
+
+再见了，所有的考据小子，所有的扣细节万字解析，所有的赤石战士，所有的ylg，所有的羊孝子，所有白河豚，所有的ml仙人，所有的痞子孝子鹤卷孝子，所有青春感粉丝，所有的母鸡卡，所有的uc遗老高达涝害，无论是核心粉丝还是引流高手，无论是白河豚还ml仙人，无论你是谁，再见了，所有的gqux战士
+
+*****
+
+####  冰寒之月  
+##### 21696#       发表于 2025-6-24 23:58
+
+绿叔叔戴上了面具 感觉如果有第二季肯定是面具男定位了哈哈
+
+*****
+
+####  faxi  
+##### 21697#       发表于 2025-6-24 23:58
+
+过于变态
+
+过于野史
+
+真正的高达同人，让青山落泪，让大文豪自愧不如<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+这片里没有正常人了
+
+*****
+
+####  九山节度使  
+##### 21698#       发表于 2025-6-24 23:58
+
+到底是河豚胜利了还是bg胜利了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 21699#       发表于 2025-6-24 23:58
+
+算平稳落地，不过最后nt点了x的主题，阿尔黛西亚上台也有呼应z的女性主义主题，我觉得挺好。
+
+*****
+
+####  black1991518  
+##### 21700#       发表于 2025-6-24 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是爆米花片啦，哈哈哈哈哈哈
+
+*****
+
+####  cayon  
+##### 21701#       发表于 2025-6-24 23:58
+
+ 本帖最后由 cayon 于 2025-6-25 00:01 编辑 
+
+被剧透后反而观感还行这是可以说的吗，发消息的是玫瑰拉拉，基夸是骡子，这个只能说别问为什么，修斯大概是异格骡子，0079用老配音也没给元祖驾驶舱镜头大概就算暗示了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 21702#       发表于 2025-6-24 23:58
+
+可惜被透光了，不如表白那里我还能更激动一点
+
+*****
+
+####  未来起航  
+##### 21703#       发表于 2025-6-24 23:58
+
+别的啥都不说。单轮元祖这变大方式，放游戏界是game freak这种才整的最拉胯的表现法<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+菜得吓人
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  g救世主高达  
+##### 21704#       发表于 2025-6-24 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994317&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-24 23:56</a>
+
+gq鸭和gq拉相遇好像没透过吧</blockquote>
+结局不就来给拉拉冲业绩了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 21705#       发表于 2025-6-24 23:58
+
+确实爆笑，看到鸭叔叔变骡一儿不爆笑不行
+
+确实迷惑，意义不明的展开还有神秘的设定
+
+*****
+
+####  12481632  
+##### 21706#       发表于 2025-6-24 23:58
+
+前半集的我<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21707#       发表于 2025-6-24 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一牛逼的不是元祖是骡子，我只能说修司的驾驶技术就是一坨
+
+*****
+
+####  suzakushi  
+##### 21708#       发表于 2025-6-24 23:58
+
+我是挑粪工，这就是屎啊。
+
+*****
+
+####  天王寺凯伊姆  
+##### 21709#       发表于 2025-6-24 23:59
+
+感觉出第二季的操作也有可能，整个一00第一季最终回的断章感
+
+*****
+
+####  体制  
+##### 21710#       发表于 2025-6-24 23:59
+
+最后一集颇有马斯克星舰眼看要飞出大气层结果直接倒栽葱会地面吃屎的感觉
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  洛克萨斯  
+##### 21711#       发表于 2025-6-24 23:59
+
+我大受震撼...........这种剧本emmm
+
+*****
+
+####  lucho  
+##### 21712#       发表于 2025-6-24 23:59
+
+Gen Z是无辜的，是还沉迷在新世纪动画宣言里闻不到自己身上散发着腐臭的老登们烂透了。
+
+*****
+
+####  伊布桑  
+##### 21713#       发表于 2025-6-24 23:59
+
+除了元祖变大之外居然大体没什么想法<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+打不过就巨大化也太low了吧
+
+*****
+
+####  sdeplee  
+##### 21714#       发表于 2025-6-24 23:59
+
+就纯纯的想重置0079然后随便写了小登剧情是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 21715#       发表于 2025-6-24 23:59
+
+结果骡子当机魂选择小番茄是因为她是大奶jk
+
+*****
+
+####  fireadol  
+##### 21716#       发表于 2025-6-24 23:59
+
+这最后一集到底讲了什么啊，g夸克斯为什么是骡子的声音，修斯是谁，很搞笑是真的，除了搞笑也没别的了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kyonkoism  
+##### 21717#       发表于 2025-6-24 23:59
+
+你要说78垫没垫，垫了，但是他是被阿姆罗亲手垫了的就没什么问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/24/235907srwr6aac0qw88lcd.png" referrerpolicy="no-referrer">
+
+<strong>7W]54KE]GJ)4RT%%7{3MH_tmb.png</strong> (268.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 23:59 上传
+
+这下有理有据了，这块绝对是在内涵古谷彻抱了年下青春大奶，鹤卷，你好阴湿<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seedees3  
+##### 21718#       发表于 2025-6-24 23:59
+
+全程笑着看完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 今年看得最乐的片子，各种意义上的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jxzeroga0  
+##### 21719#       发表于 2025-6-25 00:00
+
+有活总比没活好，至少比萌新第一部高达水魔强得多，还连带着补完0079和z
+
+*****
+
+####  秋月孝三  
+##### 21720#       发表于 2025-6-25 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来，来自木星的NT成功拥立了一个女性上位，这下奶奶头也输麻了
+
+
+*****
+
+####  leommoo  
+##### 21721#       发表于 2025-6-25 00:00
+
+什么乱七八糟的，反正把原作全致敬一遍，其他的全当脑子不存在了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21722#       发表于 2025-6-25 00:00
+
+为什么g夸克斯会握住驾驶员的手啊？为什么会发出骡子的声音啊？
+
+*****
+
+####  洛克萨斯  
+##### 21723#       发表于 2025-6-25 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骡叔叔在对面系统里面，修斯打不过正常
+
+*****
+
+####  Chenlh  
+##### 21724#       发表于 2025-6-25 00:00
+
+之前看一个帖子问水魔什么剧情。才发现我明明追过但才过两年就已经彻底忘了水魔讲什么了。
+
+而gquuuux，我现在就已经不记得它讲了什么了
+
+*****
+
+####  88is88  
+##### 21725#       发表于 2025-6-25 00:00
+
+太搞了，全剧最大赢家鸭妹，最大败犬喵安，新脱出型nt绿叔叔，元祖变大成g3，最搞的还是夏亚把原本可以成为他妈妈的紫色老太婆杀了，还有大白鸭（鹅）那一幕是告诉我们闪光不孝子2在做了对吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 21726#       发表于 2025-6-25 00:00
+
+别的不说了，鸭妹万岁，鸭妹是对的，总该给她补回点待遇吧
+
+*****
+
+####  晚星  
+##### 21727#       发表于 2025-6-25 00:01
+
+烂完了，该清算了
+
+*****
+
+####  hkguty  
+##### 21728#       发表于 2025-6-25 00:01
+
+感觉角色一举一动都是在致敬，太过刻意
+
+*****
+
+####  windtrack  
+##### 21729#       发表于 2025-6-25 00:01
+
+我这集全程就是这个感想
+
+<img src="https://img.stage1st.com/forum/202506/25/000119x77acn1xenejxpz4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:01 上传
+
+*****
+
+####  g救世主高达  
+##### 21730#       发表于 2025-6-25 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994404&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-25 00:00</a>
+
+为什么g夸克斯会握住驾驶员的手啊？为什么会发出骡子的声音啊？</blockquote>
+估计这个世界的阿姆罗被修斯做成脑机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 21731#       发表于 2025-6-25 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994393&amp;ptid=2209276" target="_blank">kyonkoism 发表于 2025-6-24 23:59</a>
+你要说78垫没垫，垫了，但是他是被阿姆罗亲手垫了的就没什么问题</blockquote>
+青春的肉体
+原装的太阳炉
+
+包爽的
+
+*****
+
+####  aliya  
+##### 21732#       发表于 2025-6-25 00:01
+
+把脑子放空，还挺快乐的
+
+*****
+
+####  poiqwe  
+##### 21733#       发表于 2025-6-25 00:01
+
+看剧透说是烂完了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看完正片觉得还可以，除了回忆解说太多了点
+
+*****
+
+####  Asana  
+##### 21734#       发表于 2025-6-25 00:01
+
+修玛秋可以同时是薰嗣和诺瓦露露子<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+夏亚梦男给鸭挽尊的方法是让骡子也做一些贪得无厌的事情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 21735#       发表于 2025-6-25 00:01
+
+用元组打不过两台野史高达怪修斯没道理的，更别说其中一个是骡子
+
+*****
+
+####  DARK_HGCG  
+##### 21736#       发表于 2025-6-25 00:02
+
+你以为上集最后出来的是骡子
+
+其实骡子第一集就出来了
+
+这也解释了为啥男人上机没反应
+
+*****
+
+####  cayon  
+##### 21737#       发表于 2025-6-25 00:02
+
+amate的a是a子的a<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Linkwjj  
+##### 21738#       发表于 2025-6-25 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994299&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-24 23:56</a>
+
+所以骡子为什么就说话了？？？</blockquote>
+骡子是G一串字母的机魂吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 21739#       发表于 2025-6-25 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭妹登基是哪个神仙想出来的
+
+*****
+
+####  白色池塘  
+##### 21740#       发表于 2025-6-25 00:02
+
+1.有不少老梗剧透哥没说出来，实况看的时候还是有点乐趣的
+
+2.鸭妹礼服不错
+
+3.敲里妈这个恩底弥翁单元从哪搞出来的
+
+4.番茄说完还会见面直接就结尾，太没余韵了吧
+
+5.卡拉和三癞子最好给我弄个后续剧场版出来把该说的事说清楚<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 21741#       发表于 2025-6-25 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是骡枪秒的逻辑没变，骡叔叔上号直接秒了修斯
+
+*****
+
+####  88is88  
+##### 21742#       发表于 2025-6-25 00:02
+
+真的一直在致敬，笑死我了，这片就应该从第一集开始就这样做，前半部做得都是些什么啊，加起来没有这集一半乐子多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aquakane  
+##### 21743#       发表于 2025-6-25 00:02
+
+写出这种剧本的鹤卷和能让他通过的代便都得抓起来啊我看，太变态了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  西人  
+##### 21744#       发表于 2025-6-25 00:03
+
+ 本帖最后由 西人 于 2025-6-25 00:04 编辑 
+
+古谷彻掌握的扔子更大！！
+
+*****
+
+####  oi99o  
+##### 21745#       发表于 2025-6-25 00:03
+
+绿叔叔说了欧米茄塞克谬也是从“对面”来的东西，所以装了骡子的魂吧
+
+*****
+
+####  huanzhi  
+##### 21746#       发表于 2025-6-25 00:03
+
+<img src="https://p.sda1.dev/25/8ffb06012cb3138f67ec7ee746e20d9a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猪突猛进R  
+##### 21747#       发表于 2025-6-25 00:03
+
+现在相信鸭妹能爆杀汤义刚了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WoLodEstt  
+##### 21748#       发表于 2025-6-25 00:03
+
+这种到结尾还一本正经解说之前从来没提过的莫名新设定，还有女主追别的宇宙的男人......原来g一串是宇宙巡警露露子精神续作吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 21749#       发表于 2025-6-25 00:03
+
+gqx就像在6657看cs比赛，满屏幕无关紧要的烂梗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  未来起航  
+##### 21750#       发表于 2025-6-25 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994455&amp;ptid=2209276" target="_blank">WoLodEstt 发表于 2025-6-25 00:03</a>
+这种到结尾还一本正经解说之前从来没提过的莫名新设定，还有女主追别的宇宙的男人......原来g一串是宇宙巡 ...</blockquote>
+尬黑我今石哥哥了。露露子整部作品的情绪流比这好上多少倍
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  零壹贰叁  
+##### 21751#       发表于 2025-6-25 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">值得欣慰的是这部让我去补了老uc
+所以也不算纯赤石吧，老uc还挺好看的
+没这契机我估计不会补uc系
+
+*****
+
+####  rrrimo  
+##### 21752#       发表于 2025-6-25 00:04
+
+史上最野史动画
+
+*****
+
+####  yzqray  
+##### 21753#       发表于 2025-6-25 00:04
+
+欧米伽塞可缪应该就是牛的精神力骨架
+
+—— 来自 HUAWEI ALN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  安广多惠子  
+##### 21754#       发表于 2025-6-25 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我们的高达他妈的怎么变成了这个样子
+
+*****
+
+####  花達香奈  
+##### 21755#       发表于 2025-6-25 00:04
+
+我早说了ω启动条件是女性nt
+骡：谁要跟男人十指相扣啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21756#       发表于 2025-6-25 00:04
+
+这个骡子说不想再看到拉拉被伤害了，所以这个机魂骡指定也是有点神棍在身上的，应该也是宇宙穿梭者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mumulyn  
+##### 21757#       发表于 2025-6-25 00:05
+
+不算高分作品，但是好看
+
+*****
+
+####  qiyu1234  
+##### 21758#       发表于 2025-6-25 00:05
+
+机战确实用心多了，G夸和G弗里德这集的战斗是我想看到的MAV战术场面
+
+但遗憾的是对面是强行开挂的修司78 导致战斗变成花里胡哨一顿操作锤在棉花上，没有充分燃烧
+
+哎，这种不充分感贯穿了全剧，遗憾
+
+*****
+
+####  rrrimo  
+##### 21759#       发表于 2025-6-25 00:05
+
+我可是要成为夏亚妈妈的人/夏亚可是能成为我儿子的人
+
+人被杀就会死
+
+再也不会有番茄和捏安这么好的姐妹了
+
+相信的心就是newtype
+
+*****
+
+####  oi99o  
+##### 21760#       发表于 2025-6-25 00:05
+
+修司和玫瑰拉拉是来自红勇士被元祖捅爆的世界线， 而gqx骡子说的是“不想再见到高达杀死拉拉”，说明他是从真的正史世界线来的？
+
+
+*****
+
+####  -SLSL-  
+##### 21761#       发表于 2025-6-25 00:05
+
+鶴巻和哉謝罪しろ！
+
+榎戸洋司謝罪しろ！
+
+庵野秀明謝罪しろ！
+
+*****
+
+####  Sliurus  
+##### 21762#       发表于 2025-6-25 00:05
+
+收尾太戛然而止了，果然是在赶工吧
+
+*****
+
+####  gammatau  
+##### 21763#       发表于 2025-6-25 00:05
+
+1月和4月番都有充足的乐子了 不知7月能不能让我满足
+
+*****
+
+####  black1991518  
+##### 21764#       发表于 2025-6-25 00:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">要是古谷彻没爆炸是不是可以提早让苍月升来配修司啊
+
+*****
+
+####  remediosOlOOOO  
+##### 21765#       发表于 2025-6-25 00:05
+
+GQX有哈罗的话骡子应该是存活的，不如说轮回了这么多次人人见到元祖都自动觉醒了二番目の記憶才是最难绷的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无数个前世骡子的机魂在太阳系里游荡最后寄宿于GQX的什么系统上也说的过去啊
+
+*****
+
+####  kaion111  
+##### 21766#       发表于 2025-6-25 00:06
+
+不说动画咋样，看的是真的好乐啊，20分钟塞15分钟梗也是牛逼
+
+*****
+
+####  fmban  
+##### 21767#       发表于 2025-6-25 00:06
+
+有一说一老uc那种一本正经的搞笑味确实复刻得不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinoverse  
+##### 21768#       发表于 2025-6-25 00:06
+
+逻辑碎一地，挖的坑也没填
+
+*****
+
+####  g救世主高达  
+##### 21769#       发表于 2025-6-25 00:06
+
+阿姆罗到最后都没露过一次脸，内部恨不会是真的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MissingEspeon  
+##### 21770#       发表于 2025-6-25 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意外的还行？毕竟本来就是不存在的if线不要太在意逻辑
+
+*****
+
+####  remediosOlOOOO  
+##### 21771#       发表于 2025-6-25 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994455&amp;ptid=2209276" target="_blank">WoLodEstt 发表于 2025-6-25 00:03</a>
+这种到结尾还一本正经解说之前从来没提过的莫名新设定，还有女主追别的宇宙的男人......原来g一串是宇宙巡 ...</blockquote>
+上一部跨宇宙追夫的至少追到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asikies  
+##### 21772#       发表于 2025-6-25 00:07
+
+大文豪只是蹭原作，鹤卷纯纯拿原作羞辱取乐。
+
+*****
+
+####  ykyin09  
+##### 21773#       发表于 2025-6-25 00:07
+
+20分钟看下来全是老梗乐死我了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后续能搞一部ifZ吗
+
+*****
+
+####  woui003woui  
+##### 21774#       发表于 2025-6-25 00:08
+
+写材料错过了，发生了啥啊
+
+现在有回放看吗（
+
