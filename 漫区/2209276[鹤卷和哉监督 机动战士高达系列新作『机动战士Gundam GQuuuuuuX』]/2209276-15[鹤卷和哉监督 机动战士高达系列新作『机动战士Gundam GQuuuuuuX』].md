@@ -9013,3 +9013,49 @@ GQ鸭为了拯救世界仇也不报了，新人类理想也不搞了。
 
 当然我觉得最后牢修的动机估计也跟小番茄无脑追着他跑一样，NT的事儿你不用搞得那么清楚.jpg
 
+
+*****
+
+####  璇瑢子R  
+##### 21389#       发表于 2025-6-24 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989992&amp;ptid=2209276" target="_blank">不会起名 发表于 2025-6-24 10:57</a>
+
+求指路，帖子太多翻不过来</blockquote>
+[https://tieba.baidu.com/p/9805650930?pn=25](https://tieba.baidu.com/p/9805650930?pn=25)
+
+这个贴
+
+看这个ID： アnosu
+
+
+*****
+
+####  zzf111  
+##### 21390#       发表于 2025-6-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989999&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-24 10:58</a>
+
+讲道理夏亚这种人，他愿意花五年时间隐姓埋名就为了在手电筒里下药给拉拉造一个无伤送走的可能性，已经能 ...</blockquote>
+夏亚这个人可以在大义和私情，伟人和小物里无缝切换，实在好用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 21391#       发表于 2025-6-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989684&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-24 10:10</a>
+
+主要对GQ鸭来说GQ拉拉真的不熟吧</blockquote>
+但是如果对玫瑰拉拉熟的话，对应的人也不能叫不熟吧
+
+*****
+
+####  mengsu  
+##### 21392#       发表于 2025-6-24 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67990188&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-24 11:22</a>
+
+夏亚这个人可以在大义和私情，伟人和小物里无缝切换，实在好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他现在这个路数就是兼顾大义和小情了嘛，不然他还能咋样。
+
