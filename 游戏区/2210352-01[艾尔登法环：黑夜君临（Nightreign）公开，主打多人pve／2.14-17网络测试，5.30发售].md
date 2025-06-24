@@ -9957,3 +9957,16 @@ Avenger：哈基蜗
 
 ナメレスーnamelessー不得其名ー布德奇冥
 
+
+*****
+
+####  usodakedo  
+##### 973#       发表于 2025-6-25 03:21
+
+ 本帖最后由 usodakedo 于 2025-6-25 03:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995372&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-25 02:58</a>
+布德奇冥竟然是一个信达雅翻译啊，奇妙
+
+ナメレスーnamelessー不得其名ー布德奇冥 ...</blockquote>
+主要原文也是玩谐音梗，就相对合适了，单纯只是无名的话，估计就会被翻译成“无名夜王”或者“无名黑夜”了
+
