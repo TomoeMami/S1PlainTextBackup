@@ -13338,3 +13338,511 @@ UC鸭妹到底什么实力至今还没被骗去补</blockquote>
 エンディミオン・ユニット确实是这集才出现的新设定吧？</blockquote>
 对，最后一集了还给你加设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 21828#       发表于 2025-6-25 00:18
+
+<img src="https://img.stage1st.com/forum/202506/25/001811f4iiaggwud4p04kw.jpg" referrerpolicy="no-referrer">
+
+<strong>WZ8T4KPWM1033$L8A%X~KBN_tmb.jpg</strong> (90.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:18 上传
+
+原梗在这里，笑死我了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白马  
+##### 21829#       发表于 2025-6-25 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+
+有无没看过剧透的兄弟说说观感</blockquote>
+我没看过，守着等直播看完感觉要调理不好了
+
+*****
+
+####  YU_JI  
+##### 21830#       发表于 2025-6-25 00:18
+
+<blockquote>P-link 发表于 2025-6-25 00:17
+我现在最大的疑惑就是：前面side6的剧情有什么必要存在吗？</blockquote>
+全是用来盖住UC游乐园招牌的布罢了，100%含量烟雾弹，在TV动画创作里简直称得上行为艺术
+
+*****
+
+####  aliya  
+##### 21831#       发表于 2025-6-25 00:18
+
+鸭妹还真是最适合接手吉翁的那个，正统的吉翁公主，也不极端
+
+*****
+
+####  kyonkoism  
+##### 21832#       发表于 2025-6-25 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+
+有无没看过剧透的兄弟说说观感</blockquote>
+剧情严谨度负分<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+乐子满分<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞霞精灵  
+##### 21833#       发表于 2025-6-25 00:19
+
+所以EVA这波人就好好滚回去做EVA。
+
+你们能理解老EVA厨看完破之后再看Q和终那种大脑被雷普还得按头强行和解的感觉了么。
+
+*****
+
+####  七七見奈波  
+##### 21834#       发表于 2025-6-25 00:19
+
+还惦记你喵安呢，你喵安就是完全删掉也没啥影响，别说喵安了，首席哥有啥用我也看不出来，除了最终话拦着绿叔叔让他别掺合三主角的战斗意外以外也看不出这角色的存在价值，和喵安一起打包走人吧，小森……小森多半就是哪个staff个人厨力放出的结果，怎么原创角色大部分都毫无存在意义啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砂糖续香香  
+##### 21835#       发表于 2025-6-25 00:19
+
+没看过剧透 这不是很爽嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+好爽啊，我们新人类的事情，老登不懂太正常了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  masokishin  
+##### 21836#       发表于 2025-6-25 00:19
+
+就是这样w
+
+<img src="https://img.stage1st.com/forum/202506/25/001921c36l4m4tl6em8le3.jpg" referrerpolicy="no-referrer">
+
+<strong>GuOGgJpawAAbg6k.jpg</strong> (324.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:19 上传
+
+*****
+
+####  aquakane  
+##### 21837#       发表于 2025-6-25 00:19
+
+这是把名场面放到厕纸上吗，这是把名场面放到自己打过手冲的厕纸上!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猪突猛进R  
+##### 21838#       发表于 2025-6-25 00:19
+
+乐是真乐，野是真野。
+
+*****
+
+####  cmdycj0732  
+##### 21839#       发表于 2025-6-25 00:20
+
+高达桑第二集就是喜欢大雷的骡子，这下伏笔了
+
+—— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  白马  
+##### 21840#       发表于 2025-6-25 00:20
+
+本来之前当UC嘉年华看的，但是最后一集这个乱塞乱编的剧情已经不是嘉年华了，感觉是在朝我扔粑粑
+
+
+*****
+
+####  shinoverse  
+##### 21841#       发表于 2025-6-25 00:20
+
+最后一集抛设定有什么意义啊，你又不拍第二季
+
+放别的UC系又用不上
+
+*****
+
+####  Sliurus  
+##### 21842#       发表于 2025-6-25 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994627&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-6-25 00:16</a>
+
+这片的设定明显有可以串出一条完整故事的内容，但是老头们很明显只想在12集篇幅里大办UC游乐园 ...</blockquote>
+我也觉得这帮老登私货做上头了，多给年轻人一点时间的话，只能说很可惜
+
+*****
+
+####  lrx200276  
+##### 21843#       发表于 2025-6-25 00:20
+
+不止没看剧透，前11集都没看，作为UC姨姥看的很开心<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  adretyu67.  
+##### 21844#       发表于 2025-6-25 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994607&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-6-25 00:14</a>
+
+UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世界线阿姆罗+鸭妹对上夏鸭+拉拉也是好奇了
+
+驾驶 ...</blockquote>
+正史鸭妹也不行啊，不是专业驾驶员。得小说鸭妹开过g3高达。
+
+*****
+
+####  七七見奈波  
+##### 21845#       发表于 2025-6-25 00:20
+
+虽然大家都说烂，但是该说不说，这次直播我看得还是挺开心的，除了对拉拉那个鬼图还有塑料姐妹瞬间和好有点迷惑不解外<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LadySaazbaum  
+##### 21846#       发表于 2025-6-25 00:20
+
+已经笑了十分钟，这比上周还要加倍开心
+
+——恭喜绿叔叔！叔叔全剧最大赢家！！史诗级医美史诗级强化事业更上一层楼最后还收了新的小狗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虽说之前就察觉到夏利牙·布尔是一个立得住的角色而非赤色彗星挂件，但是直白说出“大佐你不许掌权”还是有点帅过头了XD
+
+最后把标志性的面具也收走啊哈啊哈啊哈哈哈哈哈哈————
+
+——也不耽误我继续磕绿赤，只是赤得跟其他nt一起坐小孩儿桌就是了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 21847#       发表于 2025-6-25 00:21
+
+绿叔叔是制作组的皮套当然要有好结局。
+
+*****
+
+####  g救世主高达  
+##### 21848#       发表于 2025-6-25 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994662&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-6-25 00:20</a>
+
+最后一集抛设定有什么意义啊，你又不拍第二季
+
+放别的UC系又用不上</blockquote>
+做不做还真难说，留个开放结局更方便续
+
+*****
+
+####  windtrack  
+##### 21849#       发表于 2025-6-25 00:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁能想到绿叔叔不仅看过79的剧本还特么看过CCA的剧本啊
+
+*****
+
+####  白马  
+##### 21850#       发表于 2025-6-25 00:21
+
+看着满满的梗都笑不出来了
+
+*****
+
+####  ヒトニナル  
+##### 21851#       发表于 2025-6-25 00:21
+
+首席哥反正不能删，删了首席哥谁来送高达啊
+我意见最大的是博美犬，毫无作用居然还能在后日谈里露个脸<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 21852#       发表于 2025-6-25 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994651&amp;ptid=2209276" target="_blank">飞霞精灵 发表于 2025-6-25 00:19</a>
+
+所以EVA这波人就好好滚回去做EVA。
+
+你们能理解老EVA厨看完破之后再看Q和终那种大脑被雷普还得按头强行和解 ...</blockquote>
+问题不就是Q和终都做得一坨嘛<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">回头看看尿性从Q就开始了，难怪是G"Q"X（误）
+
+*****
+
+####  飞霞精灵  
+##### 21853#       发表于 2025-6-25 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994668&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 00:20</a>
+
+虽然大家都说烂，但是该说不说，这次直播我看得还是挺开心的，除了对拉拉那个鬼图还有塑料姐妹瞬间和好有点 ...</blockquote>
+骨子里两个被偶然仍在战争年代的现代JK，穿越故事完成，该和好也就和好了。
+
+*****
+
+####  aliya  
+##### 21854#       发表于 2025-6-25 00:22
+
+烂不烂的不评价，至少我看的很欢乐
+
+*****
+
+####  萩原组土狼p  
+##### 21855#       发表于 2025-6-25 00:22
+
+最神奇的是把相逢在宇宙拿出来了
+
+然后上一集是bltime
+
+结果休斯不是阿姆罗
+
+主创阴湿的小心思
+
+干脆把休斯的脸换成贺卷吧
+
+*****
+
+####  cayon  
+##### 21856#       发表于 2025-6-25 00:22
+
+op里的首席哥作为唯一正常人显得格格不入<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 21857#       发表于 2025-6-25 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994668&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 00:20</a>
+
+虽然大家都说烂，但是该说不说，这次直播我看得还是挺开心的，除了对拉拉那个鬼图还有塑料姐妹瞬间和好有点 ...</blockquote>
+好姐妹本来就没大矛盾，马秋也说了靠自己活下去的才是NT，所以喵安为了让自己活下去的行为没有问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 21858#       发表于 2025-6-25 00:23
+
+所以修司到底是什么人啊，怎么就轮到你来救拉拉了？
+
+*****
+
+####  猪突猛进R  
+##### 21859#       发表于 2025-6-25 00:23
+
+GQX里面是骡，说好听点叫机魂，难听点是湿件，编剧的灵感大概来自雷霆宙域。
+
+*****
+
+####  远野乙姬  
+##### 21860#       发表于 2025-6-25 00:23
+
+暴论一下享受不了gguuuuux的人我真的为你遗憾……这片近10年最佳梗片，全部cue到，真的太满足了
+
+*****
+
+####  cxj649  
+##### 21861#       发表于 2025-6-25 00:23
+
+ 本帖最后由 cxj649 于 2025-6-25 00:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994433&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-6-25 00:02</a>
+
+鸭妹登基是哪个神仙想出来的</blockquote>
+鸭妹可是初代高达女主角
+
+高达女主角登基上位有什么奇怪吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这下可以和后辈女主角们汤小美莉莉娜女王二小姐拉克丝卡咖喱电视姬火星大小姐米米等等坐一桌了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 21862#       发表于 2025-6-25 00:23
+
+感觉最终仍然会是褒贬参半的电波番
+
+不过褒贬应该是37开（
+
+太沉浸在自己的艺术中了
+
+*****
+
+####  聊nsy专用号  
+##### 21863#       发表于 2025-6-25 00:23
+
+真情实感的讲还是很失望的，前面塑造殖民卫星难民区，废品屋，联邦魔女，平行世界拉拉我都已经爱上这个世界观了，最后两话告诉你我不演了我就是来整蛊的，感觉在上日本整人综艺
+
+*****
+
+####  飞霞精灵  
+##### 21864#       发表于 2025-6-25 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994689&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 00:22</a>
+
+问题不就是Q和终都做得一坨嘛回头看看尿性从Q就开始了，难怪是G"Q"X（误） ...</blockquote>
+所以我就说嘛，他们滚回去给EVA神神叨叨就完事了。
+
+EVA破时候我对后续真是充满期待，然后Q和终一坨，还有粉丝强行按头和解进行解读的。
+
+还好UC姨姥没那么多U学家帮忙挽尊，大伙跟着瞎乐一下得了。
+
+*****
+
+####  不灭人形  
+##### 21865#       发表于 2025-6-25 00:24
+
+下部高达是神山？庵达后面是鸭达吗
+
+*****
+
+####  P-link  
+##### 21866#       发表于 2025-6-25 00:24
+
+<img src="https://img.stage1st.com/forum/202506/25/002428fjrdt080ytj1t10t.jpg" referrerpolicy="no-referrer">
+
+<strong>541E2F27421553BDB01215224D6405D6.jpg</strong> (34.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 00:24 上传
+
+*****
+
+####  猪突猛进R  
+##### 21867#       发表于 2025-6-25 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994703&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-25 00:23</a>
+
+所以修司到底是什么人啊，怎么就轮到你来救拉拉了？</blockquote>
+彼岸骡。
+
+不是骡但是占据了骡的生态位。
+
+<img src="https://img.stage1st.com/forum/202506/20/005057t977yv1d2vhzdqnw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  萩原组土狼p  
+##### 21868#       发表于 2025-6-25 00:24
+
+贺卷这样
+
+就跟起点刺猬猫那些同人小说一样
+
+你搓了个自创男主
+
+到高达世界攻略女主
+
+*****
+
+####  月夜挽歌  
+##### 21869#       发表于 2025-6-25 00:25
+
+有够烂，野史就是史啊<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Flechette  
+##### 21870#       发表于 2025-6-25 00:25
+
+问题是鸡夸世界线的鸭子也没养歪，绿叔叔这莫名跳反是看CCA看入脑了吗
+
+而且回头去推导，绿叔叔一开始找鸭子其实是为了防患未然，确保鸭妹有唯一正统宣称吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过搞笑动画就不该去纠结人物动机
+
+*****
+
+####  XSK小龙王  
+##### 21871#       发表于 2025-6-25 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994703&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-6-25 00:23</a>
+所以修司到底是什么人啊，怎么就轮到你来救拉拉了？</blockquote>
+不是人吧，拉拉的自我保护机制人形化？
+
+*****
+
+####  七七見奈波  
+##### 21872#       发表于 2025-6-25 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994698&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-25 00:22</a>
+
+好姐妹本来就没大矛盾，马秋也说了靠自己活下去的才是NT，所以喵安为了让自己活下去的行为没有问题 ...</blockquote>
+问题是喵安琪说也没靠自己活下去<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">算了这么一个存在意义不明塑造又一片空虚的角色以及与主角的塑料关系也不值得认真就是了
+
+*****
+
+####  faxi  
+##### 21873#       发表于 2025-6-25 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+
+有无没看过剧透的兄弟说说观感</blockquote>
+四个字
+
+太变态了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 21874#       发表于 2025-6-25 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994711&amp;ptid=2209276" target="_blank">飞霞精灵 发表于 2025-6-25 00:23</a>
+
+所以我就说嘛，他们滚回去给EVA神神叨叨就完事了。
+
+EVA破时候我对后续真是充满期待，然后Q和终一坨，还有 ...</blockquote>
+都做成那样了还做，EVA厨的命也是命<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr1z  
+##### 21875#       发表于 2025-6-25 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+有无没看过剧透的兄弟说说观感</blockquote>
+没看过剧透，开播前兴奋期待乐子的心理被大段干巴巴的文字解说浇灭，b part中莫名其妙的巨大化和奇怪的煽情让我感到自己大脑被彻底强健，看到最后所有人像是急着赶地铁回家完成速制寿司大呼: “这他妈也太变态了吧”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ヒトニナル  
+##### 21876#       发表于 2025-6-25 00:27
+
+就没解释修司到底是什么角色，为什么倾心于拉拉
+这个问题跟玛秋迷恋修司喵安喜欢修司一样的，全部留白，只留一个结果，你们自己脑补去吧
+
+*****
+
+####  ParadiseMartyr  
+##### 21877#       发表于 2025-6-25 00:27
+
+莫名其妙抛出一大堆设定和人物内心活动，自说自话的和解，最后自说自话的还包饺子，弱智
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ティグル  
+##### 21878#       发表于 2025-6-25 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994714&amp;ptid=2209276" target="_blank">不灭人形 发表于 2025-6-25 00:24</a>
+
+下部高达是神山？庵达后面是鸭达吗</blockquote>
+不是说找了bones吗？
+
