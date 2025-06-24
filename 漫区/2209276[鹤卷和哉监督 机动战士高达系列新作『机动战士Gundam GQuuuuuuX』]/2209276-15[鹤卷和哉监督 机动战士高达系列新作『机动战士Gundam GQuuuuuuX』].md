@@ -17101,3 +17101,11 @@ gqux嘴里那个是平的
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  g救世主高达  
+##### 22198#       发表于 2025-6-25 03:36
+
+有个疑问啊，gux宇宙的阿姆罗到底去哪了？大结局包寿司也不让他露脸，不会被拉拉这个疯婆子直接抹除存在，提姆雷压根没生过孩子了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
