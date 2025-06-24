@@ -5764,3 +5764,30 @@ boss挑战里面招式多又花，难打的一逼
 
 还有一个是百合好感没满单独结局
 
+
+*****
+
+####  社友者  
+##### 3482#       发表于 2025-6-24 11:58
+
+ 本帖最后由 社友者 于 2025-6-24 11:59 编辑 
+
+整理下一些实用mod
+
+所有演出和对话都可以加速/跳过/暂停
+[https://www.nexusmods.com/stellarblade/mods/497](https://www.nexusmods.com/stellarblade/mods/497)
+
+一键换装，还能开启慢动作
+[https://www.bilibili.com/video/BV1mxNSzjEsz/](https://www.bilibili.com/video/BV1mxNSzjEsz/)
+拍照无水印
+[https://www.nexusmods.com/stellarblade/mods/240](https://www.nexusmods.com/stellarblade/mods/240)
+
+扫描无cd
+[https://www.nexusmods.com/stellarblade/mods/633](https://www.nexusmods.com/stellarblade/mods/633)
+
+弹药上限9999
+[https://www.nexusmods.com/stellarblade/mods/239](https://www.nexusmods.com/stellarblade/mods/239)
+
+中文字体美化
+[https://www.nexusmods.com/stellarblade/mods/299](https://www.nexusmods.com/stellarblade/mods/299)
+
