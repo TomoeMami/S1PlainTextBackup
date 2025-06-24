@@ -4242,3 +4242,14 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 是鱼丸强么
 是奥琪斯强吧，这卡在这个环境真的很离谱
 
+
+*****
+
+####  olkzdf  
+##### 290#       发表于 2025-6-24 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991826&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-24 16:12</a>
+
+皇家打不过造物鱼，加入造物鱼又把把拖到十几回合，我真是被打服了，就没有能教育造物鱼的卡组吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有，造物最多也就是46开的小劣对局，没有那种被抓就往地上一躺的
+
