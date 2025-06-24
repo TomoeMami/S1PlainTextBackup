@@ -14476,3 +14476,178 @@ GFred爆了只剩核心战机，GQuuuuuuX确实没说</blockquote>
 
 说实话这剧情发展真不像18年的企划，赶工味太浓了，甚至怀疑是不是先行电影后把后续重做了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 21936#       发表于 2025-6-25 00:49
+
+前期线埋得太多了是这样的，最后都能给圆上就不错了
+
+最后一集比正常集数长两分钟还是需要话赶话配台词，最后还留白了很多东西让观众自己理解<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seedees3  
+##### 21937#       发表于 2025-6-25 00:50
+
+鸭妹就任后该多讲讲自己在联邦时的英勇表现，比如在所罗门手刃汤义刚之类的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 21938#       发表于 2025-6-25 00:50
+
+所以最后麻球和阿姆罗在一起了，不知道见过机魂后再被手摸来摸去麻丘是啥感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nemuru_baka  
+##### 21939#       发表于 2025-6-25 00:50
+
+喵安角色太边缘化了，有她没她没啥区别，不愿意在新角色上下功夫不如把她替换成本世界线拉拉。
+
+*****
+
+####  北条早苗  
+##### 21940#       发表于 2025-6-25 00:51
+
+梗塞得太满了，全程都在笑，太适合Z世代入坑UC了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aimujie  
+##### 21941#       发表于 2025-6-25 00:51
+
+为什么一集里元祖能掉两次头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 21942#       发表于 2025-6-25 00:51
+
+<blockquote>Sliurus 发表于 2025-6-25 00:47
+说实话这剧情发展真不像18年的企划，赶工味太浓了，甚至怀疑是不是先行电影后把后续重做了 ...</blockquote>
+确实赶工，但不是重做，就是做的慢，正式开工就这一两年而已
+
+
+*****
+
+####  岸浪白野  
+##### 21943#       发表于 2025-6-25 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994880&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-25 00:47</a>
+
+说实话这剧情发展真不像18年的企划，赶工味太浓了，甚至怀疑是不是先行电影后把后续重做了 ...</blockquote>
+这片说到底22年才算真正开始，GFreD这种机甚至是23年才加的，剧本23,24年才定好是正确的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 21944#       发表于 2025-6-25 00:53
+
+牢骡，你才是萝莉控啊！！！
+
+*****
+
+####  adretyu67.  
+##### 21945#       发表于 2025-6-25 00:53
+
+马球都17了，明年18.正经jk怎么萝莉了
+
+*****
+
+####  ヒトニナル  
+##### 21946#       发表于 2025-6-25 00:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我已经能预见到一波空前绝后的乳骡热潮了
+
+*****
+
+####  kyonkoism  
+##### 21947#       发表于 2025-6-25 00:56
+
+骡不需要辱，本身就是喜欢大奶，古谷彻更是喜欢年下大奶，这波是符合人设<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 21948#       发表于 2025-6-25 00:56
+
+所以修司是谁，拉拉穿越途中碰见的路人甲跟踪狂？
+
+*****
+
+####  ArthurDent  
+##### 21949#       发表于 2025-6-25 00:57
+
+这片如果出现在同人展上那将是不朽名作<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  你妈的为什么  
+##### 21950#       发表于 2025-6-25 00:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">包饺子包露馅了的感觉
+
+*****
+
+####  少年游不游  
+##### 21951#       发表于 2025-6-25 00:57
+
+有点FLCL那胡逼味，要是鹤卷一开始就放开这样拍可能现在风评要好很多
+
+*****
+
+####  西洛克  
+##### 21952#       发表于 2025-6-25 00:57
+
+所以这个骡纯粹跟拉拉穿越了好几个世界？但主世界的骡也没死啊。
+
+*****
+
+####  adretyu67.  
+##### 21953#       发表于 2025-6-25 00:57
+
+没啥乳的吧。
+
+俺们老uc粉只会笑着说”这都是过于年轻犯下的错误“<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuesphilip  
+##### 21954#       发表于 2025-6-25 00:57
+
+反正我真的看得很开心，每周追番从未如此的准时，动画大部分都是流于表面的娱乐作品，大家嘴虽然上说着高达也就一模型广告，但真到了这时候也还是要大呼赤石没内涵毁原作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说大家对于想在动画片追求的东西也太多了吧
+
+*****
+
+####  Sliurus  
+##### 21955#       发表于 2025-6-25 00:57
+
+越想越离谱，基西利亚的回忆作画过于精致，人力都拿去干嘛了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 21956#       发表于 2025-6-25 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994890&amp;ptid=2209276" target="_blank">kyonkoism 发表于 2025-6-25 00:50</a>
+所以最后麻球和阿姆罗在一起了，不知道见过机魂后再被手摸来摸去麻丘是啥感觉 ...</blockquote>
+就麻球剧里这见一个脸红一次的表现（除了首席哥），被骡子机魂抱抱估计也能接受
+
+*****
+
+####  lain2008  
+##### 21957#       发表于 2025-6-25 00:58
+
+<blockquote>eilot 发表于 2025-6-25 00:28
+看到夏利亞在這裡的實力
+
+在TV看來只是他背運，剛回來初出道就遇到李阿寶，之後就寄了
+
+鴨子還是有點實力， ...</blockquote>
+鸭子开的可是0079的老古董还没武器，而夏利亚开的是经过现代化改造的基凯罗格，就这两人打成平手，夏亚水平还是高一筹
+
