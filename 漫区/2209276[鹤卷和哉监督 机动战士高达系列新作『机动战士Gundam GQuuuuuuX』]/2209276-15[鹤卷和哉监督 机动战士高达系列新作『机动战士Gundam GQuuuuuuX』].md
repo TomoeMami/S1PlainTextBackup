@@ -10941,3 +10941,548 @@ https://www.bilibili.com/video/BV11uKVzLEc4/?share_source=copy_web&amp;vd_source
 
 最后一集插什么梦女剧情啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 21525#       发表于 2025-6-24 23:38
+
+卡兹巴尔戴肯可是能成为我儿子的男人！
+
+*****
+
+####  鱼丈人  
+##### 21526#       发表于 2025-6-24 23:38
+
+厄里斯，纷争女神
+
+*****
+
+####  fmban  
+##### 21527#       发表于 2025-6-24 23:38
+
+没绷住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 21528#       发表于 2025-6-24 23:38
+
+ 本帖最后由 eilot 于 2025-6-24 23:40 编辑 
+
+基利西亞:
+
+我曾經想做你們的媽媽啊
+
+結果都是和TV版一樣死法...
+
+*****
+
+####  windtrack  
+##### 21529#       发表于 2025-6-24 23:38
+
+夏亚是能成为我儿子的男人啊！
+
+*****
+
+####  鱼丈人  
+##### 21530#       发表于 2025-6-24 23:38
+
+母子错配了
+
+*****
+
+####  YU_JI  
+##### 21531#       发表于 2025-6-24 23:38
+
+受不了了，笑的肚子疼
+
+*****
+
+####  happyliuhao  
+##### 21532#       发表于 2025-6-24 23:38
+
+骡子捅了鸭子 拉拉表演颜艺
+
+<img src="https://img.stage1st.com/forum/202506/24/233824ip706p071zciz03e.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250624233808.png</strong> (67.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-24 23:38 上传
+
+*****
+
+####  ヒトニナル  
+##### 21533#       发表于 2025-6-24 23:38
+
+绿叔叔和紫婆也对元祖有既视感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21534#       发表于 2025-6-24 23:39
+
+复刻火箭筒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xmakoto  
+##### 21535#       发表于 2025-6-24 23:39
+
+这个快乐桶，哪里掏出来的？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼丈人  
+##### 21536#       发表于 2025-6-24 23:39
+
+瞬间杀马炮
+
+*****
+
+####  七七見奈波  
+##### 21537#       发表于 2025-6-24 23:39
+
+约定的火箭筒🤣
+
+*****
+
+####  oi99o  
+##### 21538#       发表于 2025-6-24 23:39
+
+结果还是复刻火箭筒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remediosOlOOOO  
+##### 21539#       发表于 2025-6-24 23:40
+
+首席哥你这不是什么都没守护到吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21540#       发表于 2025-6-24 23:40
+
+艹怎么这么多乐子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Flechette  
+##### 21541#       发表于 2025-6-24 23:40
+
+不行了，笑得受不了
+
+*****
+
+####  好想看Mujica啊  
+##### 21542#       发表于 2025-6-24 23:40
+
+讲了十分钟废话
+
+*****
+
+####  鱼丈人  
+##### 21543#       发表于 2025-6-24 23:40
+
+广告来了，快跑，广告来了，快跑，广告来了，快跑！
+
+*****
+
+####  白马  
+##### 21544#       发表于 2025-6-24 23:40
+
+卧槽不行了也太好笑了
+
+*****
+
+####  猪突猛进R  
+##### 21545#       发表于 2025-6-24 23:40
+
+野史的野史<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 21546#       发表于 2025-6-24 23:41
+
+还是来了啊，约定的火箭筒。大家就想看这个
+
+*****
+
+####  秋月孝三  
+##### 21547#       发表于 2025-6-24 23:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太野了
+
+*****
+
+####  未来起航  
+##### 21548#       发表于 2025-6-24 23:41
+
+就这啊？
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猪突猛进R  
+##### 21549#       发表于 2025-6-24 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994127&amp;ptid=2209276" target="_blank">xmakoto 发表于 2025-6-24 23:39</a>
+
+这个快乐桶，哪里掏出来的？</blockquote>
+军警扎古的。
+
+*****
+
+####  WoLodEstt  
+##### 21550#       发表于 2025-6-24 23:41
+
+受不了了，真要复刻铁盖塔吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandaman7777  
+##### 21551#       发表于 2025-6-24 23:41
+
+对了对了，太正了这史
+
+*****
+
+####  鱼丈人  
+##### 21552#       发表于 2025-6-24 23:41
+
+原来是星街彗星啊，我还以为山田凉呢
+
+*****
+
+####  cckuku  
+##### 21553#       发表于 2025-6-24 23:42
+
+这后面真演得完吗？
+
+*****
+
+####  Sliurus  
+##### 21554#       发表于 2025-6-24 23:42
+
+除了woc，我想不出别的感想<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看得出鹤卷很想赶快把私货讲完
+
+*****
+
+####  wincle  
+##### 21555#       发表于 2025-6-24 23:42
+
+我草真的笑死我了，因爱生恨啊
+
+*****
+
+####  鱼丈人  
+##### 21556#       发表于 2025-6-24 23:42
+
+你们两个画风不一样，你知道吗？
+
+*****
+
+####  天王寺凯伊姆  
+##### 21557#       发表于 2025-6-24 23:42
+
+纯的不能再纯的野史，鹤卷是不是连uc都没看
+
+*****
+
+####  鱼丈人  
+##### 21558#       发表于 2025-6-24 23:42
+
+他们两个死一个不行，刚才杀了几十万人，你就没问题，是吧？
+
+*****
+
+####  保真花生  
+##### 21559#       发表于 2025-6-24 23:42
+
+想采访一下UC厨的现在心理状态<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21560#       发表于 2025-6-24 23:43
+
+再也不会有这么好的姐妹了。
+
+
+*****
+
+####  鱼丈人  
+##### 21561#       发表于 2025-6-24 23:43
+
+你们两个别打了啊啊啊啊啊啊啊
+
+*****
+
+####  remediosOlOOOO  
+##### 21562#       发表于 2025-6-24 23:43
+
+牛子豪的豆汁不用喝了？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21563#       发表于 2025-6-24 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你俩还真要组mav啊
+
+*****
+
+####  huanzhi  
+##### 21564#       发表于 2025-6-24 23:43
+
+百合来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandaman7777  
+##### 21565#       发表于 2025-6-24 23:43
+
+你就说有没有百合吧
+
+*****
+
+####  七七見奈波  
+##### 21566#       发表于 2025-6-24 23:43
+
+所以之前强调麻球的mav只有修司的目的是为了最后关头一转和喵安mav吗哈哈哈哈哈哈
+
+*****
+
+####  孤舟垂钓  
+##### 21567#       发表于 2025-6-24 23:43
+
+什么？野史是真的？不不不，这是更野的史
+
+*****
+
+####  鱼丈人  
+##### 21568#       发表于 2025-6-24 23:43
+
+原来mav这个设定是这么用的，姐妹打男人
+
+*****
+
+####  gawain  
+##### 21569#       发表于 2025-6-24 23:44
+
+我们nt的和解不需要你们这些地球人理解！
+
+
+*****
+
+####  cayon  
+##### 21570#       发表于 2025-6-24 23:44
+
+这个782打架起来像个方块人笑死我了
+
+*****
+
+####  koodooliz  
+##### 21571#       发表于 2025-6-24 23:44
+
+什么东西绿大叔？
+
+草，怎么唐突93
+
+*****
+
+####  pandaman7777  
+##### 21572#       发表于 2025-6-24 23:44
+
+夏利亚，你算计我
+
+*****
+
+####  ヒトニナル  
+##### 21573#       发表于 2025-6-24 23:44
+
+绿叔叔还真准备推鸭妹？那他找夏亚干嘛？
+
+*****
+
+####  ftyaid  
+##### 21574#       发表于 2025-6-24 23:44
+
+没筒子没步枪纯光剑一打二吗，修斯你这家伙
+
+*****
+
+####  cckuku  
+##### 21575#       发表于 2025-6-24 23:45
+
+不敢想象如果没有剧透现在论坛该是多么疯狂
+
+*****
+
+####  remediosOlOOOO  
+##### 21576#       发表于 2025-6-24 23:45
+
+首席哥要路边一条了吗，最后半集一定会出手的吧首席哥
+
+*****
+
+####  鱼丈人  
+##### 21577#       发表于 2025-6-24 23:45
+
+为了妹妹去死吧，鲁路修！啊不对，夏亚！
+
+*****
+
+####  好想看Mujica啊  
+##### 21578#       发表于 2025-6-24 23:45
+
+变大！！！
+
+*****
+
+####  jackyhuang  
+##### 21579#       发表于 2025-6-24 23:45
+
+hyper化！
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  YU_JI  
+##### 21580#       发表于 2025-6-24 23:45
+
+梗动画的终极形态吗？哈GQ，你这家伙……
+
+*****
+
+####  壳壳牛  
+##### 21581#       发表于 2025-6-24 23:45
+
+极巨化来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  remediosOlOOOO  
+##### 21582#       发表于 2025-6-24 23:45
+
+巨大元祖
+
+*****
+
+####  DICE20  
+##### 21583#       发表于 2025-6-24 23:45
+
+巨大元祖草<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">唉野史
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  鱼丈人  
+##### 21584#       发表于 2025-6-24 23:45
+
+变大了……糟糕的台词
+
+*****
+
+####  huanzhi  
+##### 21585#       发表于 2025-6-24 23:46
+
+鸟笼呢，像向zgg，道歉！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼丈人  
+##### 21586#       发表于 2025-6-24 23:46
+
+我去，还能变威震天！
+
+*****
+
+####  gawain  
+##### 21587#       发表于 2025-6-24 23:46
+
+我草，巨大78，已经没有人类了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 21588#       发表于 2025-6-24 23:46
+
+快上，砍他后颈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 21589#       发表于 2025-6-24 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这极巨化也太唐突了
+
+*****
+
+####  shqingda_  
+##### 21590#       发表于 2025-6-24 23:46
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 21591#       发表于 2025-6-24 23:47
+
+jzgg伟大！
+
+*****
+
+####  好想看Mujica啊  
+##### 21592#       发表于 2025-6-24 23:47
+
+张嘴！！！
+
+*****
+
+####  ftyaid  
+##### 21593#       发表于 2025-6-24 23:47
+
+原来真正的CP是番茄G夸克斯！
+
+*****
+
+####  ヒトニナル  
+##### 21594#       发表于 2025-6-24 23:47
+
+这鸡夸好油啊，还十指相扣的
+
+*****
+
+####  鱼丈人  
+##### 21595#       发表于 2025-6-24 23:47
+
+光剑也是波，自古对波左边输啊
+
+*****
+
+####  花達香奈  
+##### 21596#       发表于 2025-6-24 23:47
+
+同步率400%
+
+*****
+
+####  chivalry  
+##### 21597#       发表于 2025-6-24 23:48
+
+狗屎<img src="https://static.stage1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
