@@ -81,3 +81,14 @@
 
 2025-6-25 03:45 上传
 
+
+*****
+
+####  fujissw  
+##### 22203#       发表于 2025-6-25 03:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995379&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 03:02</a>
+
+最后为啥是绿叔叔带面具被通缉，他真对吉翁造成啥实质性伤害了么？阿巴瓦空是喵安毁掉的，基连是紫婆杀的， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该不是通缉，军服还穿着呢，难绷假面只是跟众多梗一样膜来玩的不要去想理由
+
