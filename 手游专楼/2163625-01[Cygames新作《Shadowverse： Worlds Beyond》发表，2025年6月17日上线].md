@@ -4318,3 +4318,16 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 看自己取舍吧
 
+
+*****
+
+####  辞冬  
+##### 296#       发表于 2025-6-24 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993302&amp;ptid=2163625" target="_blank">duraa 发表于 2025-6-24 20:34</a>
+
+我缺一张6费虹，这套抄的nga的中立中速皇，个人用着挺顺手
+
+和传统中速皇的区别是不带4费护符，444金，3费 ...</blockquote>
+我去，阿波罗，无耻<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

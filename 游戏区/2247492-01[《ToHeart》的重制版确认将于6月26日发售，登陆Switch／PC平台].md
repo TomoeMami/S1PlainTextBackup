@@ -1277,3 +1277,13 @@ steam试玩版有
 
 补个链接
 
+
+*****
+
+####  清浦刹那  
+##### 108#       发表于 2025-6-24 21:03
+
+幸好没订，老家都没了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+白学估计也等不来NS移植了
+

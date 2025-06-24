@@ -10450,3 +10450,16 @@ X 上的 TAKUTEKS＠新作情報は固定ツイート＆エロアカで：“万
 
 2025-6-24 20:54 上传
 
+
+*****
+
+####  ティグル  
+##### 21477#       发表于 2025-6-24 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993174&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-6-24 20:03</a>
+
+我感觉超出常识就对了，我每次看二战都觉得纳粹无论成就还是邪恶都超出常识。
+
+我去大屠杀纪念馆的时候看 ...</blockquote>
+请看《现代性与大屠杀》，不过要避开译林的译本
+
