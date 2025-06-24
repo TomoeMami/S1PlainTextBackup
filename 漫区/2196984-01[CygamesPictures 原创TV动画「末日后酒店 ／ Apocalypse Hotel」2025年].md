@@ -7390,3 +7390,36 @@ screenshot-《末日后酒店》.第11话_洞可以挖勤不能缺!.30301620443.
 之前的对竹本泉的访谈中，提到<blockquote>在观看动画并阅读漫画的过程中，两者会逐渐融合，最终产生“本质统一”的认知</blockquote>
 我觉得在这一话中体现比较明显
 
+
+*****
+
+####  C男人  
+##### 620#       发表于 2025-6-24 21:34
+
+ 本帖最后由 C男人 于 2025-6-24 21:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974859&amp;ptid=2196984" target="_blank">花生酥王 发表于 2025-6-21 05:27</a>
+
+好可爱的番，制作真好，除了oped听不下去，不过ost到时候可以收藏一下
+
+弟弟也太空气了，感觉可有可无，那俩 ...</blockquote>
+说起来这事儿很奇怪，
+
+OP可以说是制作精美，但无论歌曲还是舞蹈都透着业余。
+
+尤其舞蹈动作，可以说是故意做的笨拙了，逼真的笨拙，这到底是什么意图？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  C男人  
+##### 621#       发表于 2025-6-24 21:37
+
+银河楼的服务员只运行了50年，只有八千代一个人运行了400多年。 X
+
+没装伦理系统的八千代夺走了所有人的零件，硬是运行了400多年。√
+
+这样才合理，不然没法解释同一批次的同型号设备，为啥运行时长差这么多。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

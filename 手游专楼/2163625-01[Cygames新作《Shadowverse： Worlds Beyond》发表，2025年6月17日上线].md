@@ -4331,3 +4331,14 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 和传统中速皇的区别是不带4费护符，444金，3费 ...</blockquote>
 我去，阿波罗，无耻<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 297#       发表于 2025-6-24 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993413&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-24 20:58</a>
+
+我去，阿波罗，无耻</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">本家内战批是这样的
+
