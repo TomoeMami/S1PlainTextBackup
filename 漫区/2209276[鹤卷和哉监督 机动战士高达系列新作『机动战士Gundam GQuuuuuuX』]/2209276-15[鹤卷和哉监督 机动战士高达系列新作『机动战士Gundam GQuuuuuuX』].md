@@ -14976,3 +14976,234 @@ Titans vs 吉翁的故事线
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有绿叔叔完胜的世界
 
+
+*****
+
+####  仓岛千百合  
+##### 21994#       发表于 2025-6-25 01:09
+
+ 本帖最后由 仓岛千百合 于 2025-6-25 01:10 编辑 
+
+修司到底是什么身份到结束都没讲，莫名其妙
+
+*****
+
+####  朋友费小号  
+##### 21995#       发表于 2025-6-25 01:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太抽象了，骡子居然真是吉夸克机魂，还有我怎么看是要出续作或者衍生的意思啊，不然最后夏利亚突然蹦出个吉夸克是XXXX系列机体图个啥？卖设定集和访谈吗？
+
+*****
+
+####  asikies  
+##### 21996#       发表于 2025-6-25 01:09
+
+这12集技术水平也很差，砍元祖头这段高潮找个现代点的监督都不至于做得这样寡淡。
+
+*****
+
+####  Sliurus  
+##### 21997#       发表于 2025-6-25 01:09
+
+这动画需要的不是第二季，而是把野史都删删多给主角点戏份<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年游不游  
+##### 21998#       发表于 2025-6-25 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994962&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2025-6-25 01:02</a>
+
+但是春原晴子的塑造真把修司爆了吧</blockquote>
+是这样的，这的修斯纯纯谜语人只会阿巴阿巴，半点晴子的时髦值都没有，可能是鹤卷搞不来对标晴子的男人的人设，嗯缝了点渚薰进去
+
+*****
+
+####  武川日玄  
+##### 21999#       发表于 2025-6-25 01:10
+
+刷pt站等amzn源，平时这会儿看上了，今天<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cazedor  
+##### 22000#       发表于 2025-6-25 01:11
+
+巨大化的修司真的xswl<img src="https://static.stage1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帆前  
+##### 22001#       发表于 2025-6-25 01:11
+
+感觉会是电波作受众和非受众的争吵吧（
+
+能吃电波作的，多少勉勉强强能给点分
+
+不能吃的，一分都不能给（
+
+*****
+
+####  零壹贰叁  
+##### 22002#       发表于 2025-6-25 01:11
+
+修司不是纯工具人角色？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+为了搞夏亚消失悬念被安排开红色高达
+为了让俩女有动力推剧情被安排当梦中情人
+最后甚至为了剧情有冲突被拉来当最终boss
+事实上就连修司是谁修司为啥这么重视拉拉都不想多花笔墨<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 22003#       发表于 2025-6-25 01:11
+
+12集了，小森和首席哥之间仍然保持着0对话0对手戏的优良传统
+
+
+*****
+
+####  ヒトニナル  
+##### 22004#       发表于 2025-6-25 01:12
+
+第二季拍什么，真拍番茄寻夫记吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 22005#       发表于 2025-6-25 01:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谁懂我看吉夸克砍巨大化元祖那段时的无力感，怎么能那么脱力啊卧槽，我真服了，那段我真是全程地铁老人看手机的nang脑子表情
+
+还有小森少尉，你真是凭实力硬蹭OP啊，就你突出一个除了11集被通灵当了波场外解说外什么都没干
+
+以及骡子说话的时候，我真是在爆笑，真服了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1694295955  
+##### 22006#       发表于 2025-6-25 01:12
+
+出第二季的话，我感觉提坦斯可以当蓝波斯菊这个生态位，然后搞搞地宇仇恨这一套，又能演个好几季
+
+*****
+
+####  狮子咕  
+##### 22007#       发表于 2025-6-25 01:13
+
+玫瑰拉拉硬要开各种平行世界，是不是因为那个世界夏亚死的时候，因为她还没变成鬼，所以没办法把nt力过低的夏亚变成宇宙男鬼才破防的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 22008#       发表于 2025-6-25 01:13
+
+算了，想笑的话11集已经说过了，这最后一集看完我也释然了，从新哥斯拉新奥新假面过来都是这样，这就是庵野这帮中年人在追逐曾经年轻时的意淫罢了，给他们自己爽的A 片需要逻辑需要合理性需要过程吗。
+
+*****
+
+####  cckuku  
+##### 22009#       发表于 2025-6-25 01:13
+
+对了鹤卷gg，请问冷战在哪？
+
+*****
+
+####  阿兹尔  
+##### 22010#       发表于 2025-6-25 01:14
+
+tmd孩之宝要是有这炒作和宣传能力再把机设搞好点，起源也不会暴死了，同为旧时代过来的机器人ip起源的剧情不是完爆这坨大奋啊
+
+*****
+
+####  朋友费小号  
+##### 22011#       发表于 2025-6-25 01:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">唉，他妈的真服了，烂归烂，乐子确实不少，确实像投票楼说的一样，像在看高达同人杂志烂梗同人文
+
+*****
+
+####  u2deack  
+##### 22012#       发表于 2025-6-25 01:15
+
+什么时候能有什么三万字四小时gqux解析啊等不及了
+
+*****
+
+####  猪突猛进R  
+##### 22013#       发表于 2025-6-25 01:15
+
+这集有个鸭子丢人的彩蛋。
+
+不同位面的鸭子被杀时开的机体有（全是红色的）老虎、兹达、比格罗、大扎姆、加里波第α，然后冒出来一只沙扎比（山下育人版）
+
+开沙扎比被元祖爆杀的废物鸭子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/25/011543gmee9o7mg9o80ryy.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1ad-fhy2Z1fT3cSsg-g0.jpg</strong> (95.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:15 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/011543mpi4ctc4k6tifid5.jpg" referrerpolicy="no-referrer">
+
+<strong>9ff99f3df8dcd1007312dc33348b4710b8122fd0.jpg</strong> (139.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:15 上传
+
+*****
+
+####  八汰乌  
+##### 22014#       发表于 2025-6-25 01:16
+
+最近两部高达女主真的离谱，操作没多少全靠开挂赢。
+
+*****
+
+####  上坂莲华  
+##### 22015#       发表于 2025-6-25 01:16
+
+亚马逊源不都是12点一过就出来了，最多慢几分钟跟前几分钟没速度而已
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+1986036.torrent
+(26.72 KB, 下载次数: 0)
+
+2025-6-25 01:16 上传
+
+点击文件名下载附件
+
+*****
+
+####  黑翼死神  
+##### 22016#       发表于 2025-6-25 01:16
+
+修斯是核心迷團，其他東西寫得再差唯獨是修斯不能寫差，我現在真是服了，完全搞不明白修斯是怎樣的存在
+
+*****
+
+####  ladiesman802  
+##### 22017#       发表于 2025-6-25 01:17
+
+巨大的光宗是吧
+
+*****
+
+####  低调不圆滑  
+##### 22018#       发表于 2025-6-25 01:17
+
+gqx的Ω骨架很有可能是推石头时候的T骨架穿越过来的，附着的骡子是93骡，才会说出不想看拉拉被高达杀这种话，说完话还接了水鸟的演出
+
+*****
+
+####  JITAN  
+##### 22019#       发表于 2025-6-25 01:17
+
+拉拉不会捏这个宇宙出于怨念根本没捏或者抹杀骡子吧
+
