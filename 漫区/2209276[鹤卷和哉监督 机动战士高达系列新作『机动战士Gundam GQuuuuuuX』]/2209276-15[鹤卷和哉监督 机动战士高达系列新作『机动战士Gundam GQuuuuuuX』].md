@@ -16148,3 +16148,171 @@ GTO最后就是戴肯派振臂一呼拥立公主。
 都傳短訊給媽媽報平安</blockquote>
 没有。最后海滩不就是说这事。
 
+
+*****
+
+####  free  
+##### 22112#       发表于 2025-6-25 01:58
+
+巨大元祖高达的麻将脸什么时候出来呀，急，在线等
+
+*****
+
+####  manyin1  
+##### 22113#       发表于 2025-6-25 01:59
+
+这拍的什么啊，这么电波<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 22114#       发表于 2025-6-25 01:59
+
+<img src="https://img.stage1st.com/forum/202506/25/015900nyg4a2aq8ykd8zzp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250625_015424_tv.danmaku.bili.jpg</strong> (281.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/015906dfd8f8dp58qdnvhb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250625_015430_tv.danmaku.bili.jpg</strong> (614.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/015916ik4uuuiu8i9t6ulw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250625_014737_tv.danmaku.bili.jpg</strong> (883.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 01:59 上传
+
+这制作组不是拉拉黑子我随便怎么说
+
+*****
+
+####  mumubear  
+##### 22115#       发表于 2025-6-25 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995234&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-25 01:56</a>
+
+還是想知道瑪秋最後的通緝犯身份有沒解除到
+
+都傳短訊給媽媽報平安</blockquote>
+没解除吧，再次需要战斗的时候既不加入联邦也不加入吉翁找博美犬小队套个壳。。。把高达塞进水产里。<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PrincessBanana  
+##### 22116#       发表于 2025-6-25 02:01
+
+最后唯心大爆发包寿司完全在预期之内，毕竟是大部分堆砌反转爆点快餐化作品收尾的最优解。
+但纵观全片还是有着不错的追番乐趣和观影体验的，就这样一刀切了也挺好，再裹搅下去让大家腾出时间来思考就是纯粪作了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  悲剧啊啊  
+##### 22117#       发表于 2025-6-25 02:01
+
+玩梗玩嗨了，老头们开心就好
+
+*****
+
+####  大十字紅朔  
+##### 22118#       发表于 2025-6-25 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994607&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-6-25 00:14</a>
+
+UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世界线阿姆罗+鸭妹对上夏鸭+拉拉也是好奇了
+
+驾驶 ...</blockquote>
+0079里开飞机能两下单杀比高达性能强的勇士（我不知道是不是这个翻译了）
+
+虽然那个战斗力多半是制作组没有想太多的结果，但是战绩就是战绩
+
+*****
+
+####  sauron.j  
+##### 22119#       发表于 2025-6-25 02:04
+
+抱老IP的大腿太多，同时又拼命吃自己的作品老本，从GQX实在看不出来鹤卷作为一个创作者的才华在哪
+
+
+*****
+
+####  芝村舞  
+##### 22120#       发表于 2025-6-25 02:04
+
+ 本帖最后由 芝村舞 于 2025-6-25 02:06 编辑 
+
+连发编辑
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22121#       发表于 2025-6-25 02:05
+
+首席哥真惨吧，击坠数一台大扎姆，还是带着一堆NT强人群殴
+
+*****
+
+####  猪突猛进R  
+##### 22122#       发表于 2025-6-25 02:05
+
+鸭妹实力：
+[https://www.bilibili.com/video/BV1Eq4y1P7gz](https://www.bilibili.com/video/BV1Eq4y1P7gz)
+
+GQ里还要加上大扎姆。
+
+*****
+
+####  阿库鲁艾特  
+##### 22123#       发表于 2025-6-25 02:06
+
+喵安在这关系中比较像原作夏亚吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 22124#       发表于 2025-6-25 02:06
+
+要我说拍个剧场版让玛秋喵安一路寻夫到各个AU高达穿越胡闹的幻想嘉年华式作品是非常可行，而且很有看点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芝村舞  
+##### 22125#       发表于 2025-6-25 02:06
+
+继续吐槽主角那边最后的刻画。
+
+修司最后的表白真的超敷衍的。凭什么啊？主角那边那么糊弄？给基西莉亚那么多笔墨，主角这边都赶着去火葬场一样。
+
+修司凭什么突然表白啊？你逗我吗？说着是拉拉迷弟，怎么就改变心意了，最后一话一直在不断BB，B格大跳水。
+
+喵安彻底变局外人，开了那个大炮炮以后她就一直是局外人，被麻丘一个巴投赶走就下线，决战打到一半就下线，全部都是为了剧情展开方便的安排。虽然是女2，这待遇也太惨了。
+
+*****
+
+####  冷静先找时光机  
+##### 22126#       发表于 2025-6-25 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995192&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-6-25 01:45</a>
+
+唯一我还是想吐槽的一点是最后居然是鸭妹结局，难道汤小美死了吗。那我只能认为庵野鹤卷他们只能对父辈的富 ...</blockquote>
+汤小美这时候才几岁啊，真要扶植她，那是个人都得觉得你居心叵测想挟天子以令诸侯，再说戴肯家血脉哪里不如扎比家了
+
+*****
+
+####  中野梓  
+##### 22127#       发表于 2025-6-25 02:07
+
+是不是把所有尼亚安的戏全缝在修司身上就对味了？
+
