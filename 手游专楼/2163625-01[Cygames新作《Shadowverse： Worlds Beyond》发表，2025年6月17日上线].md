@@ -4131,3 +4131,22 @@ a0段红宝石昨天打了一天除了妖倒是都遇到过
 
 最近玩妖玩的好开心，在清鱼那套无虹构筑里塞了个老头，牌序好的时候6/6还挺吓人的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windhawind2  
+##### 280#       发表于 2025-6-24 10:11
+
+steam不想转区→没去国际服→国服氪了一笔出了主战者→国服上分→发现没pc端→模拟器→发现ios和安卓是分开的、ios没模拟器→想回国际服→返回第一步卡住了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  21wwwb  
+##### 281#       发表于 2025-6-24 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989694&amp;ptid=2163625" target="_blank">windhawind2 发表于 2025-6-24 10:11</a>
+
+steam不想转区→没去国际服→国服氪了一笔出了主战者→国服上分→发现没pc端→模拟器→发现ios和安卓是分开 ...</blockquote>
+国服首页点平台切换 互通的
+

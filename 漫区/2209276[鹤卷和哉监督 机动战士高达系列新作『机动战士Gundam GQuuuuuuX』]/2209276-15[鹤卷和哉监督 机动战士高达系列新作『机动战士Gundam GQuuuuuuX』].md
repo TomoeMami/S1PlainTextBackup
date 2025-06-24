@@ -8777,3 +8777,51 @@ GQ鸭根本不认识GQ拉拉，怎么救嘛。
 
 所以要么是GQ鸭无情，要么是GQ拉拉做一辈子鸡，一根筋两头堵。
 
+
+*****
+
+####  LadySaazbaum  
+##### 21367#       发表于 2025-6-24 10:07
+
+楼上潭友有点魔怔了
+
+就不能是解决掉世界危机再去接GQ拉拉吗，这部分明显适合作为结尾bonus/粉丝向bonus，而不应该放在主线剧情里抢时长
+
+*****
+
+####  mengsu  
+##### 21368#       发表于 2025-6-24 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67989647&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-24 10:05</a>
+
+确实也有“不认识”的说法。
+
+但要按照这样说，GQ拉拉就得一直呆在妓院。</blockquote>
+所以GQ拉拉的命运也是玫瑰拉拉对这个世界线干涉的结果之一，是夏亚要纠正的世界的扭曲的一部分嘛。
+
+
+*****
+
+####  pokemon最爱  
+##### 21369#       发表于 2025-6-24 10:10
+
+主要对GQ鸭来说GQ拉拉真的不熟吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  云何应住  
+##### 21370#       发表于 2025-6-24 10:12
+
+同意上楼夏亚希望送拉拉离开GQ世界。
+
+不过如果Zicknova现象是蔷薇和红高达的alpha 精神系统共鸣造成的，毁掉红高达的系统是不是也可以？
+
+另外想到阿姆罗虽然现在还没有登场，但对于拉拉创造的这个世界，阿姆罗一定是活的好好的（甚至比原作更幸福）
+
+*****
+
+####  猪突猛进R  
+##### 21371#       发表于 2025-6-24 10:14
+
+GQ骡按推断是早就卖哈罗发财了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
