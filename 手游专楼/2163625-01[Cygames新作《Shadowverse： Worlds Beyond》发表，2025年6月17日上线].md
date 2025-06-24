@@ -4253,3 +4253,22 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 皇家打不过造物鱼，加入造物鱼又把把拖到十几回合，我真是被打服了，就没有能教育造物鱼的卡组吗 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有，造物最多也就是46开的小劣对局，没有那种被抓就往地上一躺的
 
+
+*****
+
+####  格雷殿下  
+##### 291#       发表于 2025-6-24 17:42
+
+<img src="https://img.stage1st.com/forum/202506/24/174057dpvodpxaxnxrydwh.jpg" referrerpolicy="no-referrer">
+
+<strong>2d0a183e68b56e67.jpg</strong> (158.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-24 17:40 上传
+
+日本人你优化了什么😭😭😭
+
+重开游戏就卡在cygames的标题了
+
