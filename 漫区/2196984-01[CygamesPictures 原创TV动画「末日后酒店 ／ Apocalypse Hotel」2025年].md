@@ -7451,3 +7451,16 @@ OP可以说是制作精美，但无论歌曲还是舞蹈都透着业余。
 OP可以说是制作精美，但无论歌曲还是舞蹈都透着业余。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">OP的味道我倒是很喜欢，循环了很多遍了。感觉主要还是看对不对得上电波吧（
 
+
+*****
+
+####  センコウ  
+##### 625#       发表于 2025-6-25 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993580&amp;ptid=2196984" target="_blank">C男人 发表于 2025-6-24 21:34</a>
+
+说起来这事儿很奇怪，
+
+OP可以说是制作精美，但无论歌曲还是舞蹈都透着业余。</blockquote>
+OP我看说是双人舞蹈，但对面是空气
+
