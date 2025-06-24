@@ -5854,3 +5854,14 @@ boss挑战里面招式多又花，难打的一逼
 
 话说这万用螺栓给那么多到底啥用。2周目也没新东西开啊
 
+
+*****
+
+####  Andariel  
+##### 3489#       发表于 2025-6-24 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67991032&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-24 13:51</a>
+话说这万用螺栓给那么多到底啥用。2周目也没新东西开啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么2周了
+昨天不是说再见的
+
