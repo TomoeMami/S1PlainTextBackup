@@ -6003,3 +6003,48 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 有点后悔买了 GQX 的几款玩具</blockquote>
 片子再怎么烂，好模型还是要玩的
 
+
+*****
+
+####  猪突猛进R  
+##### 22654#       发表于 2025-6-25 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000317&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-25 20:52</a>
+
+说来鸭妹上台后要怎么界定自一年战争以来扎比家，或者说吉翁公国做的事？以前就想得亏age里福皇没按下去， ...</blockquote>
+不要想太多，以当今日本人的尿性，过去的吉翁公国丢卫星和大屠杀，与现在的吉翁共和国有什么关系<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+再说这条世界线吉翁还是战胜国。
+
+GQX毕竟是娱乐化作品，想看反思的话建议看雷霆宙域第二部，里面SIDE3居民的心态和现在的小日子一模一样，女反派虽然癫，但她的恨并不是无缘无故。
+
+*****
+
+####  LOLITA  
+##### 22655#       发表于 2025-6-25 21:10
+
+古谷彻赶紧套皮G一串高达出道吧
+
+这中之人不能白当啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 22656#       发表于 2025-6-25 21:13
+
+<img src="https://img.stage1st.com/forum/202506/25/211255h8xxzgfzfk2jxkmz.png" referrerpolicy="no-referrer">
+
+<strong>U@U2JP~KPHXII5OOR8B}H2D.png</strong> (154.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/211311nfrflsfbs2l2qble.png" referrerpolicy="no-referrer">
+
+<strong>V)Z@U1AZ4NUKICKMQJRQVBC.png</strong> (674.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 21:13 上传
+
