@@ -7804,3 +7804,26 @@ no Yachiyo no life！
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qiaogaohhb  
+##### 662#       发表于 2025-6-25 19:35
+
+非常满足。
+
+甚至因此去补了佐贺偶像。
+
+
+*****
+
+####  aptx8285144  
+##### 663#       发表于 2025-6-25 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999933&amp;ptid=2196984" target="_blank">tpsg 发表于 2025-6-25 19:25</a>
+
+完结撒花，今年看的十几部中感觉最好的。
+
+感觉这部风格和去年的终末列车有点像，但个人感觉感官比列车的好 ...</blockquote>
+经费比列车多，另外就是除了客人死的回合外，其他回合都把剧情的底牌明示，玩梗过程中也大部分都是明示的
+

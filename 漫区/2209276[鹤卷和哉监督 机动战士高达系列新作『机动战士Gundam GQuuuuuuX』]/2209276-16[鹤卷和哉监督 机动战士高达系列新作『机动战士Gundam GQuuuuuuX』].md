@@ -5619,3 +5619,20 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">某种母女（
 
+
+*****
+
+####  FACS  
+##### 22639#       发表于 2025-6-25 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999138&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 16:48</a></blockquote>
+无言了，张嘴怎么能这么丑
+
+
+*****
+
+####  xwz  
+##### 22640#       发表于 2025-6-25 19:42
+
+古谷徹出轨的那个女性叫A子，Amate也是A开头，确实很合理<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

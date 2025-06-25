@@ -6676,3 +6676,16 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 
 顺便看了上面坛友发的视频，发现XXYY这个有下蹲上挑动作的，能无硬招架的，就很迷幻
 
+
+*****
+
+####  Andariel  
+##### 3561#       发表于 2025-6-25 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999892&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-25 19:17</a>
+不是我们不想开发新打法，而是就特么爆裂技能收益太惊人呀
+
+我也想打漂亮的平A连续技呀，但是完美招架 /  ...</blockquote>
+格挡闪避后的反击红刀可以打断boss吧，其实还是有窗口的
+恰恰是因为有快慢刀的存在，快刀格挡或闪避了以后慢刀出刀前就是反击红刀打断boss的时机
+
