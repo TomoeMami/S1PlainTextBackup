@@ -853,3 +853,49 @@ GQ起源<img src="https://p.sda1.dev/25/d2a9711bbfc00fc57fc9ac035a7039c2/image.j
 先不说鸡胯鸭提前觉醒NT的情况下NT还弱不弱的问题(其实正史鸭NT抛开玩梗的话也不弱，有精准识别NT和强化人 ...</blockquote>
 富野暗示过卡缪在z结局那个定身用一次就疯了（短暂掌握新人类的最高境界，但人类并没有承载这个境界的器量）。要是只能用一次的话能靠nt能力定身骡子感觉也不是不能接受
 
+
+*****
+
+####  conanlm  
+##### 22233#       发表于 2025-6-25 08:06
+
+正宫联合小三暴打渣男修司，可以和情感反诈模拟器联动一波
+
+*****
+
+####  飞霞精灵  
+##### 22234#       发表于 2025-6-25 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994790&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 00:33</a>
+
+即使抛开其他外在因素，Q和终作为动画它就已经不好看了，尤其是打戏什么玩意，谁爱和解谁和解去，而且我 ...</blockquote>
+你要说痞子自己真脱宅了也罢，结果这批人不是去奥特曼片场就是哥斯拉片场，现在继续继续玩0079meme。
+
+合着真正走不出来的是他们自己。
+
+
+*****
+
+####  pandaman7777  
+##### 22235#       发表于 2025-6-25 08:10
+
+而且到最后也相当于自己声明起源就是平行世界，维护了主宇宙的神圣不可侵犯（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小姨子  
+##### 22236#       发表于 2025-6-25 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995585&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-25 07:49</a>
+先不说鸡胯鸭提前觉醒NT的情况下NT还弱不弱的问题(其实正史鸭NT抛开玩梗的话也不弱，有精准识别NT和强化人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 别骗自己了，如果去掉鸭子和红高的前提，比如在讨论首席，你会说的出改数值的场合更适合论武这种好笑的话吗
+
+*****
+
+####  wincle  
+##### 22237#       发表于 2025-6-25 08:14
+
+修司这表白这么顶针的，你以为你是谁啊，哈尔的移动城堡吗
+
