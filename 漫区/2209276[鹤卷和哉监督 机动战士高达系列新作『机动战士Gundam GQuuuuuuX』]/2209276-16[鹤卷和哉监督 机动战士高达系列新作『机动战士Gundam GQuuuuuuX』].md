@@ -5566,3 +5566,19 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 22634#       发表于 2025-6-25 19:04
+
+当初，Ω塞克缪第一次启动时，就有人画机械手摸 胸的同人图，没想到最后也算是成真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千恋万花  
+##### 22635#       发表于 2025-6-25 19:14
+
+所以现在有人发泄露的最后一集完整分镜稿么，还挺想看看的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
