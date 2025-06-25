@@ -307,3 +307,13 @@
 看了声优表 没有寺岛和中村 但有诹访部和佐久间 
 真不知道官方用什么定位悟同学和大福 卖谷子特典什么都带他们玩 结果联动剧场版木有带惹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1095#       发表于 2025-6-25 13:40
+
+天空我觉得主责还是编剧和P吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道两组前辈怎么过来，来看偶像表演？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戏份我倾向于和去年汪Q剧场版一样前辈纯客串帮忙而不像以前Dream Stars、Super Stars、Miracle Universe、Miracle Leap四部春联动剧场一样前辈深入参与剧情主线。
+

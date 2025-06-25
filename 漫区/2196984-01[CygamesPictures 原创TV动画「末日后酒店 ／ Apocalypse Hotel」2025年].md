@@ -7723,3 +7723,13 @@ no Yachiyo no life！
 
 年度最佳候选在我这确实可以预定(是不是第一还可以看以后，而金牌得主毕竟有原作加成)，三场打戏回，加上红白事回的成功掌控，倒数第二话，最终话都非常喜欢(12话里面竟有一半非常喜欢233)，搞笑和煽情把握度上也很好，香帅这个声线也很适合“新人类”的活力，八千代和嘭子夜谈气氛也不错<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 654#       发表于 2025-6-25 13:40
+
+就是坟头蹦迪有点阴间了...
+
+整体这季确实看得挺舒服<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

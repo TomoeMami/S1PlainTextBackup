@@ -3535,3 +3535,39 @@ gto还加了老哥把真夏亚害死的剧情啥的…
 
 这么说起来修司的年龄其实要比在场所有人（除了拉拉）都大的多，这么多年该说是毫无成长还是该说轴成神经病了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madness  
+##### 22472#       发表于 2025-6-25 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996322&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-25 09:52</a>
+
+拉拉的NT等级真能压过骡子么</blockquote>
+一般来说，讨论NT能力，拉拉从来都是断层第一的，只有她能在宇宙中对潜在NT甚至OT广播“拉~拉~”
+
+而骡子，怎么说呢，驾驶员里也不是吹他NT能力强，而是他技术好。吹驾驶员NT能力的一般是吹卡喵。甚至很大程度上有共识，从79到93，骡子从NT角度来说是衰减的，但是总和战斗力是提升的。
+
+*****
+
+####  Sliurus  
+##### 22473#       发表于 2025-6-25 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997908&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-25 13:37</a>
+
+这么说起来修司的年龄其实要比在场所有人（除了拉拉）都大的多，这么多年该说是毫无成长还是该说轴成神经病 ...</blockquote>
+轮回系心理年龄和实质年龄不匹配算是传统艺能<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 22474#       发表于 2025-6-25 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997908&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-25 13:37</a>
+
+这么说起来修司的年龄其实要比在场所有人（除了拉拉）都大的多，这么多年该说是毫无成长还是该说轴成神经病 ...</blockquote>
+不算轮回，修司是骡子的同素异形体，79时15岁，85年21岁。
+
+正好对应GQX里搞街头艺术的街溜子，被俩向往自由的小太妹迷恋上很合理<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
