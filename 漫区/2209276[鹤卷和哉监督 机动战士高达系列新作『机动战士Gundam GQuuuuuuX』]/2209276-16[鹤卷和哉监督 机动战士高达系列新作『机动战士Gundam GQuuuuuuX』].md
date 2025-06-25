@@ -2515,3 +2515,63 @@ md通缉犯生活这么惬意吗
 
 巨大化了<img src="https://static.stage1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  昆古尼尔  
+##### 22387#       发表于 2025-6-25 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996351&amp;ptid=2209276" target="_blank">石窝大雕 发表于 2025-6-25 09:54</a>
+让光头做一部EVA if</blockquote>
+有本事把RE-TAKE做出来啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2311DRK48C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  希望之异热同心  
+##### 22388#       发表于 2025-6-25 10:37
+
+还别说，我确实还想再看第二季，快进到87年奶奶头回来看到联邦的有个战争英雄鸭妹，还成了吉翁话事人，带着满脑子问号在地球发现有2个NT女孩子还带着架高达在流浪，骗上贼船想再行正史之事结果发现麻球软硬不吃把他整的鸡飞蛋打的故事<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chensquare  
+##### 22389#       发表于 2025-6-25 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996501&amp;ptid=2209276" target="_blank">cmdycj0732 发表于 2025-6-25 10:11</a>
+
+大家都错怪首席哥了，原来首席哥只能手操是因为骡子只喜欢大雷JK美少女
+
+ ...</blockquote>
+此事在梗图中亦有记载。
+
+<img src="https://img.stage1st.com/forum/202506/25/104133hgguvnwm95objg5p.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250625104049.jpg</strong> (169.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 10:41 上传
+
+*****
+
+####  asikies  
+##### 22390#       发表于 2025-6-25 10:41
+
+<blockquote>双菜 发表于 2025-6-25 09:49
+太细了，鹤卷哥哥你高第二个铁血结局？</blockquote>
+让这两逼混到地球也是挺难绷的，这世界观下我的联邦猎人重拳还能到来吗？
+
+
+*****
+
+####  blood_iron  
+##### 22391#       发表于 2025-6-25 10:42
+
+说起来鸭妹上位这片真没法继续，除非上的是卡尔玛成立新吉翁
+
+复刻汤大基的演讲“我们尊敬的总帅基连死了，这是为什么？！”
+
+然后联邦那边提坦斯上位，提坦斯大战新吉翁，这片才能继续下去
+
