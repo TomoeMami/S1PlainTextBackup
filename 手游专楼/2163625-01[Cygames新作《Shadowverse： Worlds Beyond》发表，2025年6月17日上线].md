@@ -4489,3 +4489,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 我胜率还不错 顺带吧升级战打了。
 
+
+*****
+
+####  duraa  
+##### 314#       发表于 2025-6-25 15:39
+
+看了下说是5个箱子都是金币的话下限是1.1包<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
