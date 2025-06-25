@@ -2751,3 +2751,60 @@ md通缉犯生活这么惬意吗
 
 2025-6-25 11:05 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 22406#       发表于 2025-6-25 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996754&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 10:48</a>
+
+联邦出个野心家，看到吉翁实力大损，或者直接挖到什么主宇宙黑科技也行。当然让联邦输两次有点太乳联邦了 ...</blockquote>
+你说的联邦野心家是不是你自己<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22407#       发表于 2025-6-25 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996843&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-6-25 11:01</a>
+
+顺便说个猜想。
+
+巨大782战斗，我又看了几遍，基本我个人觉得这是原第七话废案。鹤卷舍不得，拿来搞在这里 ...</blockquote>
+说真，vs巨大高达放第七话就神了
+
+*****
+
+####  人形灾害  
+##### 22408#       发表于 2025-6-25 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996861&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-6-25 11:03</a>
+胶达打网游还是小家子气了，再起赢在有宏大但不过分严肃的冒险。</blockquote>
+是说致敬原作角色这块啦
+
+起码BF里巴尼三口子出场那一幕给我的感慨比这里膜来膜去没膜明白要强
+
+*****
+
+####  ヒトニナル  
+##### 22409#       发表于 2025-6-25 11:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉是所有人都被平等地乳了一遍
+除了绿叔叔（制作组皮套）
+
+*****
+
+####  岸浪白野  
+##### 22410#       发表于 2025-6-25 11:09
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤大ヒット御礼◢ 現在、再上映中の劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』の興行成績が到着！ 多くの方にご覧いただき、ありがとうございます！ 興行収入：35.2億円 観客動員：213.9万人 入プレ第9弾《DESIGN WORKS [url]https://t.co/sNhjlNHa7G](https://x.com/G_GQuuuuuuX/status/1937708633896427838)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/110931kmcmzdczv5dwqxwd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:09 上传
+
