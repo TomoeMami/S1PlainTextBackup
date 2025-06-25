@@ -4605,3 +4605,18 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这箱子给我整笑了，1抽都没有，最后个箱子给了我3000经验，经验我本来就能打满的还需要箱子给？
 
+
+*****
+
+####  伊克路西安  
+##### 324#       发表于 2025-6-25 17:00
+
+主教的卡数值给的太垃圾了，321 413 523 533 635 亏模亏爆了，问题是效果也不比别家牛逼些<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绞首浪漫派丶  
+##### 325#       发表于 2025-6-25 17:05
+
+抄了连胜的冲锋教感觉还可以，虽然不排除是偷了形态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4975,3 +4975,69 @@ X 上的 ガンダムフィギュア／魂ネイションズ公式：“＞&gt; 
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999138&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 16:48</a></blockquote>
 ............张嘴看起来有点恶心
 
+
+*****
+
+####  人形灾害  
+##### 22592#       发表于 2025-6-25 17:01
+
+这口球好歹给个透明件吧
+
+*****
+
+####  失落之翼  
+##### 22593#       发表于 2025-6-25 17:01
+
+ 本帖最后由 失落之翼 于 2025-6-25 17:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997928&amp;ptid=2209276" target="_blank">madness 发表于 2025-6-25 13:40</a>
+
+一般来说，讨论NT能力，拉拉从来都是断层第一的，只有她能在宇宙中对潜在NT甚至OT广播“拉~拉~”
+
+而骡子 ...</blockquote>
+记得NT是有类型和偏向的，拉拉这种最多算地缚灵吧？估计也就地球附近广播
+
+骡子是NT和驾驶双高，夏亚反而NT等级低更体现驾驶技术
+
+GQUX里面好像把很多人的nt能力相对正史拔高很多？
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22594#       发表于 2025-6-25 17:02
+
+怎么不用透明件，弄得像口球一样
+
+*****
+
+####  岸浪白野  
+##### 22595#       发表于 2025-6-25 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995441&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 04:01</a>
+
+X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“ジークアクスを最後までご覧いただき、ありがとうご ...</blockquote>
+[X 上的 YY：“だから僕は… #GQuuuuuuX #ジークアクス [url]https://t.co/EVai6LvcdZ](https://x.com/YY_shibata/status/1937798185881055475)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/170320oe3eh3j0dxueeoja.png" referrerpolicy="no-referrer">
+
+<strong>)F9GP1S_{7@1{}%6{}(CNIL.png</strong> (3.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:03 上传
+
+*****
+
+####  阿库鲁艾特  
+##### 22596#       发表于 2025-6-25 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999172&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-25 16:54</a>
+真的绷不住，怎么能那么丑的?像不知道哪来的变态杀人狂。。。</blockquote>
+有点像盖塔啊这眼睛
+
+*****
+
+####  西洛克  
+##### 22597#       发表于 2025-6-25 17:05
+
+不谈gqx的话，富野钦定最强nt是卡缪，哪怕是大文豪也只是让巴纳吉抬到和卡缪差不多的地步，各种设定解说还是会提一嘴卡缪最强
+
