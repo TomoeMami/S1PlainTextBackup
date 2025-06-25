@@ -4642,3 +4642,19 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 那个经验是同期通行证的活动，第1个箱子给2000,第5个给3000，第10个给4000</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不算这个我也没有1抽啊，一个箱子几十金币
 
+
+*****
+
+####  duraa  
+##### 328#       发表于 2025-6-25 17:24
+
+<img src="https://img.stage1st.com/forum/202506/25/172353v88fff6tf401u3wf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:23 上传
+
+那估计大箱子给的150尘？尘这个我不知道和金币的价值大概是怎么换算
+

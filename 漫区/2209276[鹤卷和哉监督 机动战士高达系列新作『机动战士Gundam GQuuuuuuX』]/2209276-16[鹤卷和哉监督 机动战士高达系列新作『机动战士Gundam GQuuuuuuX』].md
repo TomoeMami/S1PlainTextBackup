@@ -5105,3 +5105,16 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 那就再加上文豪的NT神功</blockquote>
 也不是不行，但推石头更多是画面表现问题，神功可以补够推力，但这石头在洛希极限下受力后转向而不是粉碎就...
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 22604#       发表于 2025-6-25 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999318&amp;ptid=2209276" target="_blank">发呆的龙虾 发表于 2025-6-25 17:14</a>
+
+解说，气氛组。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅球 v3.5.99</blockquote>
+纯一船废话解说仙人，观众都看见高达飞过来了害搁那解说呢<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
