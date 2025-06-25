@@ -7635,3 +7635,13 @@ no Yachiyo no life！
 
 对于地球来说，人类也已经变成客人了
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 644#       发表于 2025-6-25 12:03
+
+人类是大笨蛋！！！<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+个人心目中的年度最佳
+

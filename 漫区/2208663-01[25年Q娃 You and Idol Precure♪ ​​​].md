@@ -266,3 +266,13 @@
 
 三代同堂的剧场版回来了？会回到每年两部剧场版的模式吗
 
+
+*****
+
+####  Blackson  
+##### 1091#       发表于 2025-6-25 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997251&amp;ptid=2208663" target="_blank">reoch 发表于 2025-6-25 11:52</a>
+ 三代同堂的剧场版回来了？会回到每年两部剧场版的模式吗</blockquote>
+估计不会回到过往的模式
+
