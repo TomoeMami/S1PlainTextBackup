@@ -2808,3 +2808,68 @@ md通缉犯生活这么惬意吗
 
 2025-6-25 11:09 上传
 
+
+*****
+
+####  mengsu  
+##### 22411#       发表于 2025-6-25 11:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下鸭子如愿以偿，和拉拉过上不问世事的小日子了。他这个人就是不当老大干啥都行。
+
+*****
+
+####  faxi  
+##### 22412#       发表于 2025-6-25 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996832&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-25 10:59</a>
+
+仔细想想，这片写得最细致的cp是不是鸭紫，有铺垫有真相大白。这功力但凡多给点三小只…… ...</blockquote>
+对的对的，这可是电影就开始铺垫，到最后一集还在强推的CP！<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+总帅以后又多了个名梗<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 22413#       发表于 2025-6-25 11:17
+
+ 本帖最后由 岸浪白野 于 2025-6-25 11:18 编辑 
+
+庵野的两次发言
+
+<img src="https://img.stage1st.com/forum/202506/25/111655t9aitsm5t5hxsvyv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/111706kn6i27rrk7807st6.png" referrerpolicy="no-referrer">
+
+<strong>1P~]XD)AIEYM}G`EHJR[5.png</strong> (190.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:17 上传
+
+*****
+
+####  希望之异热同心  
+##### 22414#       发表于 2025-6-25 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996754&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 10:48</a>
+
+联邦出个野心家，看到吉翁实力大损，或者直接挖到什么主宇宙黑科技也行。当然让联邦输两次有点太乳联邦了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">你看这地球不是有个NT女生带着架挺牛逼的高达么，这不挖了去联邦干一翻事业嘛233
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 22415#       发表于 2025-6-25 11:24
+
+<blockquote>岸浪白野 发表于 2025-6-25 11:17
+庵野的两次发言</blockquote>
+社长翻译成了总统莫名搞笑，哈基野，这才是你的大手吗
+
