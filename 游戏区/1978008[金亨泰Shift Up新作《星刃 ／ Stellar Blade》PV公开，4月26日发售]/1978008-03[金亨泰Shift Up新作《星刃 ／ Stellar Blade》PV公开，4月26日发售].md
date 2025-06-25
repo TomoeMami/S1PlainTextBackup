@@ -6360,3 +6360,58 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 
 只给他一个人专门服务不太合逻辑吧.
 
+
+*****
+
+####  alucardcz  
+##### 3535#       发表于 2025-6-25 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994969&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-25 01:03</a>
+
+底层那个激光网.......妈的好恶心，这些游戏为啥要设计这种关卡</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">你这是跳跳乐苦手？  入口都能直接跳到那个下层  而且吃一次移动激光还不会死。。。感觉纯白给的啊。。和银河恶魔城的跳跳乐根本没的比
+
+*****
+
+####  洛克萨斯  
+##### 3536#       发表于 2025-6-25 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995918&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-25 09:08</a>
+
+你这是跳跳乐苦手？  入口都能直接跳到那个下层  而且吃一次移动激光还不会死。。。感觉纯白给的啊。。和 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">过了但还是很不爽，浪费我时间
+
+
+*****
+
+####  武蔵  
+##### 3537#       发表于 2025-6-25 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993811&amp;ptid=1978008" target="_blank">hayamitetsu 发表于 2025-6-24 22:29</a>
+四周全成就了，现在就是拍照游戏了，重新再玩一遍，通一遍马桶，一路拍照，还是喜欢这件，有熊有屁股有腿有 ...</blockquote>
+这套叫啥？
+
+*****
+
+####  缺德猫  
+##### 3538#       发表于 2025-6-25 09:14
+
+从其他女角色模型来看，制作组完全有能力搞出人人爱的建模，主角单纯是金亨泰性癖放出罢了，期待续作有更多可操作角色
+
+*****
+
+####  leonz79  
+##### 3539#       发表于 2025-6-25 09:15
+
+圣诞皮肤是怎么获得的？
+
+*****
+
+####  alucardcz  
+##### 3540#       发表于 2025-6-25 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995929&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-25 09:10</a>
+
+过了但还是很不爽，浪费我时间</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我倒是挺喜欢这类关卡的  当然难度不能太高 别跟蔚蓝一样
+

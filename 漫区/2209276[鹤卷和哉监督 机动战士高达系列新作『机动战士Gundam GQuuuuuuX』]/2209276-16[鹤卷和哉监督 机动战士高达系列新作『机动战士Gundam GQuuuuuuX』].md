@@ -1428,3 +1428,146 @@ pg也就hg三倍大，这gqux目测只有巨大化手臂粗细了。
 
 看完全剧我发现 ED不是诈骗 是剧后生活侧写
 
+
+*****
+
+####  无动于衷  
+##### 22284#       发表于 2025-6-25 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995909&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-25 09:07</a>
+
+绿叔叔要杀夏亚，是不是有点过了，完全就是想复刻老版战斗把
+
+直接和夏亚谈，要扶持鸭妹，夏亚也会同意吧 ...</blockquote>
+来不及谈，先打了在说，这才有昭和味，不信问车田 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小姨子  
+##### 22285#       发表于 2025-6-25 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995909&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-25 09:07</a>
+绿叔叔要杀夏亚，是不是有点过了，完全就是想复刻老版战斗把
+
+直接和夏亚谈，要扶持鸭妹，夏亚也会同意吧 ...</blockquote>
+这就是脚本先决定结局是绿叔叔扶持鸭妹，鸭子去跟拉拉隐姓埋名，倒推出来的情节吧，还可以复刻名场面
+
+*****
+
+####  conanlm  
+##### 22286#       发表于 2025-6-25 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995894&amp;ptid=2209276" target="_blank">CCMkIII 发表于 2025-6-25 09:05</a>
+
+为什么要给开勇士都打不过高达的人塞兹达毕格罗加里波第，拉拉你是不是在乱玩 ...</blockquote>
+夏亚太垃了，带不动
+
+只好病急乱投医，有啥上啥，全试一遍<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hououmon  
+##### 22287#       发表于 2025-6-25 09:11
+
+第三话就该让周锦华打过来的
+
+前面黑拳浪费太多篇幅了
+
+*****
+
+####  岸浪白野  
+##### 22288#       发表于 2025-6-25 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995912&amp;ptid=2209276" target="_blank">偶是潜水者 发表于 2025-6-25 09:07</a>
+
+看完全剧我发现 ED不是诈骗 是剧后生活侧写</blockquote>
+
+都已经全找出来能列哪些对应了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/25/090912ewoklwl1b1ccbckg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:09 上传
+
+*****
+
+####  Schwarzess  
+##### 22289#       发表于 2025-6-25 09:13
+
+好看爱看，最高的entertainment，我们高达界也需要自己的pop team epic。<img src="https://static.stage1st.com/image/smiley/carton2017/273.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  人形灾害  
+##### 22290#       发表于 2025-6-25 09:13
+
+也许和羊宫拉拉梦到了一万个鸭被骡干死的世界线一样，绿叔叔也在梦里拉了一万次CCA的片，得出的结论就是：情けない奴……
+
+
+*****
+
+####  行政裁定书  
+##### 22291#       发表于 2025-6-25 09:14
+
+就当uc嘉年华了。
+
+本来想肯定要有第二季，现在看根本无法当正经的uc的if线看，第二季也会不知所云。
+
+所以作为单独系列，后面补充点后日谈吧。
+
+*****
+
+####  璇瑢子R  
+##### 22292#       发表于 2025-6-25 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995758&amp;ptid=2209276" target="_blank">千千千千鸟 发表于 2025-6-25 08:40</a>
+
+夏利亚是戴肯派而最后是鸭妹上台，随便出一个特赦就完事了吧怎么会通缉的
+
+—— 来自 vivo V2227A, Android ...</blockquote>
+鸭妹难道没有自己的亲信。。。。
+
+为啥要用夏利亚的人
+
+*****
+
+####  ads147147  
+##### 22293#       发表于 2025-6-25 09:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">说了多少年了，最痛恨遗老的只有遗老自己，怎么不是我来拍这个玩意呢jpg
+
+说起来高达主题乐园过去有四部，现在有第五部了。就剧情来说，个人来说只能说是高于bd，低于bft，但是论乐子程度是真高于bf，当年我bf看的可开心了，没想到还能看到比bf还开心的作品（bf的ova也有鸭骡来着，但是不如这个来的味足）。
+
+综合来说，还是再起的叙事节奏更适合我的口味，如果gqx是再起这样的24集结构应该口碑会好不少，大量的内容都是复刻0079呢，也没啥不好啊，我再起里还看了圣盾高达抓人口炮呢，这不也是一种if。
+
+*****
+
+####  洛克萨斯  
+##### 22294#       发表于 2025-6-25 09:16
+
+兹达都给了.........爆缸货色，不会鸭叔叔的机体池是女鬼抽的吧
+
+*****
+
+####  blood_iron  
+##### 22295#       发表于 2025-6-25 09:17
+
+这次世界出现了番茄这个头铁撞破南墙的人，所以骡子选中了她去引导修斯别再执着拉拉了
+
+而鸭子死在拉拉面前是她不可接受的，拉拉只能选择她死鸭生才能打破轮回
+
+*****
+
+####  conanlm  
+##### 22296#       发表于 2025-6-25 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995899&amp;ptid=2209276" target="_blank">哈里-谢顿 发表于 2025-6-25 09:05</a></blockquote>
+好了，既然开了这么个先河
+
+那么z，zz，逆鸭，是不是也来整一编<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
