@@ -7595,3 +7595,15 @@ no Yachiyo no life！
 
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">完美落地了。地球人是回来了但也不会常驻，这个出人意表的结局也很不错
 
+
+*****
+
+####  hoyice  
+##### 640#       发表于 2025-6-25 09:38
+
+ 本帖最后由 hoyice 于 2025-6-25 09:41 编辑 
+
+伟大，地球就是酒店的设计太好了
+
+弟弟成无业游狸了，笑死
+

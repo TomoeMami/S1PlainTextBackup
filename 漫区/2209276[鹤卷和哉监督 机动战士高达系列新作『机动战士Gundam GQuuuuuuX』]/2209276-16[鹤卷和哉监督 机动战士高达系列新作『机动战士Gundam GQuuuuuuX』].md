@@ -1807,3 +1807,123 @@ AM[KT`})O_IT`~V{Y{)HI5J_tmb.jpg
 
 2025-6-25 09:35 上传
 
+
+*****
+
+####  cckuku  
+##### 22319#       发表于 2025-6-25 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995892&amp;ptid=2209276" target="_blank">blood_iron 发表于 2025-6-25 09:04</a>
+
+这GQUX的剧情大概就是这样吧？我个人的理解
+
+平行世界的拉拉给鸭子挡枪失败的一瞬间，她NT大爆发创造了无数 ...</blockquote>
+拉拉挡了枪之后鸭子后面不还是死了吗，93年和骡子一起死了吧。所以还是直接解决骡子把，骡子没了世界都变好了<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 22320#       发表于 2025-6-25 09:40
+
+<blockquote>失落之翼 发表于 2025-6-25 09:28
+高达这大IP尤其是UC纪元这块，你拍成里番或者钙番也有人看的开心嘛，开心就好 ...</blockquote>
+只能说粉丝是真的宽容，妈的时王对老角色乱搞都被人喷成什么样了都
+
+
+*****
+
+####  西洛克  
+##### 22321#       发表于 2025-6-25 09:41
+
+<blockquote>秋月孝三 发表于 2025-6-25 09:33
+说白了这帮人就是看到大文豪追星成功自己眼红了，把三巨头叫出来配两句台词就以为自己也是大文豪了
+
+——  ...</blockquote>
+大文豪这人至少是真把uc设定当回事的，算是考据派。独角兽的真nt、精骨、控制时间都是对光头设定抠字眼的产物。虽然光头自己可能把自己搞的不少设定当擦屁股纸用。
+
+鹤卷这帮人纯粹就是在玩了。
+
+*****
+
+####  tau_cross  
+##### 22322#       发表于 2025-6-25 09:41
+
+<img src="https://p.sda1.dev/25/92a8df6377138dbc9c513c770db93a1e/image.jpg" referrerpolicy="no-referrer">
+这个有人发了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  单脚着地  
+##### 22323#       发表于 2025-6-25 09:42
+
+我感觉修斯就是这群鸭子梦男想辱骡又不敢直接攻击本尊而捏造出来的套皮人形靶，真是充满了老害的阴湿味
+
+*****
+
+####  岸浪白野  
+##### 22324#       发表于 2025-6-25 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996168&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-25 09:35</a>
+
+开山楂饼打不过元祖，夏亚梦男？究极黑粉好吧！
+
+必秒</blockquote>
+但是“那红色机体”始终不是沙扎比<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也没说过
+
+*****
+
+####  异界送  
+##### 22325#       发表于 2025-6-25 09:44
+
+结局是真的改变了联邦战败的时间线了么?
+
+
+*****
+
+####  依然荏苒  
+##### 22326#       发表于 2025-6-25 09:44
+
+相比起来独角兽真是又时髦又好看，我再也不黑独角兽了，独角兽最高！
+
+*****
+
+####  hououmon  
+##### 22327#       发表于 2025-6-25 09:45
+
+修斯这种核心谜团你哪怕糊弄一下都好，我都愿意脑补给你圆上
+
+没想到直接糊弄都懒得糊弄，就那样摆烂了
+
+*****
+
+####  blood_iron  
+##### 22328#       发表于 2025-6-25 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996207&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-25 09:39</a>
+
+拉拉挡了枪之后鸭子后面不还是死了吗，93年和骡子一起死了吧。所以还是直接解决骡子把，骡子没了世界都变 ...</blockquote>
+问题是打不过啊
+
+所以最后这个世界直接删掉骡子出场，没想到骡子装成机魂还是进来了
+
+*****
+
+####  沧海nog  
+##### 22329#       发表于 2025-6-25 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995523&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-25 07:06</a>
+
+夏亚是名义上的死人，绿叔叔明面上直球造反了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/25/094655aaxht63crtgsgv66.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (659.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:46 上传
+
