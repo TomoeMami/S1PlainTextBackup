@@ -7850,3 +7850,22 @@ no Yachiyo no life！
 
 千代有情，待众生为来客
 
+
+*****
+
+####  k1no  
+##### 666#       发表于 2025-6-25 22:22
+
+完美落地
+
+
+*****
+
+####  k1no  
+##### 667#       发表于 2025-6-25 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996872&amp;ptid=2196984" target="_blank">喜闻乐见 发表于 2025-6-25 11:04</a>
+
+情感尺度真是准，一点不过，不带一点多煽情的，美滋滋</blockquote>
+你这句话说的太对了，就喜欢这种干净利落，连留恋都不留的结尾
+

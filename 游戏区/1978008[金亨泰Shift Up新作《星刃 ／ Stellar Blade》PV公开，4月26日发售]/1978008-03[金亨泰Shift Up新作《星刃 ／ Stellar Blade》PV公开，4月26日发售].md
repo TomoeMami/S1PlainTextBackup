@@ -6846,3 +6846,73 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 简单来说就是不能取消后摇 所以没事别乱平a</blockquote>
 其实有些a能取消，但不是所有a都能取消<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银色天空  
+##### 3574#       发表于 2025-6-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000441&amp;ptid=1978008" target="_blank">aimbot 发表于 2025-6-25 21:19</a>
+这游戏战斗系统是怎么做的这么僵硬的
+
+我第一次见有动作游戏，战斗的时候跳起来能硬控自己3秒的
+
+还有满血能 ...</blockquote>
+自动拾取可以在设置里开。我开局就打开了，不懂手动捡的意义
+
+*****
+
+####  银色天空  
+##### 3575#       发表于 2025-6-25 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000603&amp;ptid=1978008" target="_blank">ladiesman802 发表于 2025-6-25 21:56</a>
+老头环也能满血喝药，剑星我记得不会啊</blockquote>
+满血喝药太傻逼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近玩黑夜君临，键位习惯没调过来，动不动就喝口药
+
+
+*****
+
+####  千千千千鸟  
+##### 3576#       发表于 2025-6-25 22:22
+
+懒得找mod，到B站下载了个MOD管理器+500多mod的集合包，这下终于可以开玩了
+
+*****
+
+####  alucardcz  
+##### 3577#       发表于 2025-6-25 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000671&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-25 22:11</a>
+
+其实有些a能取消，但不是所有a都能取消</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少重机这种人都飞起来的肯定不能取消
+
+*****
+
+####  oyss  
+##### 3578#       发表于 2025-6-25 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999892&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-25 19:17</a>
+
+不是我们不想开发新打法，而是就特么爆裂技能收益太惊人呀
+
+我也想打漂亮的平A连续技呀，但是完美招架 /  ...</blockquote>
+[https://www.bilibili.com/video/BV169N2zhEg2/](https://www.bilibili.com/video/BV169N2zhEg2/)
+
+我打红莲,基本都是用反击和平A打的,没有直接放beta和爆裂.
+
+boss快慢刀的慢刀可以打断,或者精防到boss连招最后一下,都可以反击. 只有快刀硬反击是换血.
+
+另外基本全部的平A动作只有最后一下不能取消防御.所以平A到最后一刀时停一下,看一眼boss要干什么.再出最后一刀.如果boss要放慢招,可以长按最后一下打断boss,如果boss要出快招,就不打最后一下.
+
+另外,如果boss要后滚回避. XXYY和Y, X,X长按,Y.这两套可以追上向后回避的boss.
+
+如果开了OverDrive.有攻速插件,用平A加最后一刀打断,只要beta槽有能量,可以打得boss动不了.
+
+*****
+
+####  卡拉德利姆  
+##### 3579#       发表于 2025-6-25 22:27
+
+说到跳，这游戏有空中轻击四连却没有挑空的手段<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这招完全是废的
+
