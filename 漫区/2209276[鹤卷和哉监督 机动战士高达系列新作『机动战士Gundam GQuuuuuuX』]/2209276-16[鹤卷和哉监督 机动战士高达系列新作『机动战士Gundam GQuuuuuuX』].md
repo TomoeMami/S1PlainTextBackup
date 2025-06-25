@@ -3075,3 +3075,80 @@ md通缉犯生活这么惬意吗
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996884&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 11:05</a></blockquote>
 威震天！是威震天！
 
+
+*****
+
+####  langsheng  
+##### 22433#       发表于 2025-6-25 12:18
+
+79还知道光刃对光刃，gqx都敢用剑柄接光刃了
+捅错位置怎么拉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 22434#       发表于 2025-6-25 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996656&amp;ptid=2209276" target="_blank">kk霖洞九 发表于 2025-6-25 10:32</a>
+最后的机魂很明显是正史骡子才有捅拉拉的记忆，那为啥鸭子不能过来</blockquote>
+其实鸭子过来了，只是被塞二号机里被巨大782又打爆了，我为什么要说又<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qixinno2  
+##### 22435#       发表于 2025-6-25 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997405&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-25 12:20</a>
+
+其实鸭子过来了，只是被塞二号机里被巨大782又打爆了，我为什么要说又
+
+—— 来自 HONOR SDY-AN00, Andro ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢人的家伙
+
+*****
+
+####  03e7  
+##### 22436#       发表于 2025-6-25 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995419&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-25 03:22</a>
+
+结果修斯是什么东西还是没说</blockquote>
+高达系列有一个著名角色也叫シュウジ的，ショウジ·クロス，中文译作修志·畔洲。
+
+不认识？不认识就对了，这是本名，人家后来改叫东方不败·亚洲尊者
+
+*****
+
+####  faxi  
+##### 22437#       发表于 2025-6-25 12:26
+
+我有一个问题，这第12集重新配的0079片段，是不是古谷和池田最后共演的动画片段了，本来柯南还有机会的，现在换人了就只剩高达了吧
+
+往后再拍这2个人相关的东西机会也不会很多了，结果最后留下来的结果是这个？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 22438#       发表于 2025-6-25 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67968834&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-20 00:24</a>
+穿背心这个分镜不上色还以为是背心尊者呢
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+艹，这周看上了色更像了，你们故意的吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  collincollin  
+##### 22439#       发表于 2025-6-25 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995419&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-25 03:22</a>
+
+结果修斯是什么东西还是没说</blockquote>
+这么看下来就是那种本子常见的跟踪狂
+
