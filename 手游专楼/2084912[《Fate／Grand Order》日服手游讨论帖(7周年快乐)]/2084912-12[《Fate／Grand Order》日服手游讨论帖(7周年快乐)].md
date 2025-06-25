@@ -671,3 +671,64 @@
 
 感谢400个b叔，花了10个梦火终于抽到了果子龙<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sesuna  
+##### 16957#       发表于 2025-6-23 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67981127&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-6-22 17:23</a>
+
+想了想，枪阶只有一个唐吉坷德一个群充，但是要30NP才能启动，而被动只有20NP，差10NP，或者用老芥给20NP让 ...</blockquote>
+老芥光是对男人特攻这个宝具下打白字都比其他枪阶好太多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 16958#       发表于 2025-6-24 17:55
+
+ 本帖最后由 Jamaisvu 于 2025-6-25 09:14 编辑 
+
+B站up“暴走的秋田君”总结的有对本职介特攻追加被动的从者，也许可以为冠位战做参考，转载一下：
+
+<img src="https://img.stage1st.com/forum/202506/24/175704efzldd13ltnulbrg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250624_175651.jpg</strong> (210.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-24 17:57 上传
+
+再转一张吧友做的枪阶对应羁绊加成：
+
+<img src="https://img.stage1st.com/forum/202506/25/091443v7z0obikw2d925j0.jpg" referrerpolicy="no-referrer">
+
+<strong>700F4FC285C4B951FC2994C5663FB9AB.jpg</strong> (108.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-6-25 09:14 上传
+
+*****
+
+####  森兰丸  
+##### 16959#       发表于 2025-6-25 11:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">也刷了300多个B叔了....还有500多金苹果和1500多个银苹果
+
+这苹果直到游戏关服前我是一辈子也用不完了
+
+*****
+
+####  alucardcz  
+##### 16960#       发表于 2025-6-25 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997071&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-6-25 11:27</a>
+
+也刷了300多个B叔了....还有500多金苹果和1500多个银苹果
+
+这苹果直到游戏关服前我是一辈子也用不完了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么萌新金苹果还有1300个！ 为什么会这样
+

@@ -3500,3 +3500,38 @@ gto还加了老哥把真夏亚害死的剧情啥的…
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这片真就是老登不懂事随便做着玩的，难怪只有十二集
 
+
+*****
+
+####  cccpprc  
+##### 22468#       发表于 2025-6-25 13:28
+
+我就看看现在这个环梗小鬼差评的局面，各种大主播这周怎么收场
+
+
+*****
+
+####  璇瑢子R  
+##### 22469#       发表于 2025-6-25 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997807&amp;ptid=2209276" target="_blank">勿徊哉 发表于 2025-6-25 13:20</a>
+所以现在在哪里能看到上周就泄露的剧透？</blockquote>
+[https://tieba.baidu.com/p/9805650930](https://tieba.baidu.com/p/9805650930)
+
+*****
+
+####  杉田悠一  
+##### 22470#       发表于 2025-6-25 13:34
+
+鹤卷哥哥这谁还分得清你和AI啊，这一枪反击AI的子弹从昭和时代跨越时空而来，真是哦妹忒偷了我的庵野仙贝，不是你们的努力我都不知道原来我们魔法少刚达是这样婶儿的作品，
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ヒトニナル  
+##### 22471#       发表于 2025-6-25 13:37
+
+这么说起来修司的年龄其实要比在场所有人（除了拉拉）都大的多，这么多年该说是毫无成长还是该说轴成神经病了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
