@@ -3794,3 +3794,35 @@ UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世
 
 你在中日约同人文然后改编剧本，都不会比现在这个搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 22493#       发表于 2025-6-25 14:24
+
+小森应该最后和首席哥说上话了
+
+虽然没有台词
+
+<img src="https://img.stage1st.com/forum/202506/25/142353badvqyinnnyf9me9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9245.jpeg</strong> (67.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 14:23 上传
+
+*****
+
+####  kaion111  
+##### 22494#       发表于 2025-6-25 14:27
+
+这番机战戏最好看的是一比一复刻0079鸭子拉拉大战骡子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野梓  
+##### 22495#       发表于 2025-6-25 14:27
+
+我这么理解对吗？修司是玫瑰世界的骡，在他的宇宙他开高达杀了夏亚，拉拉崩溃，创造出无数个夏亚活着的梦，精神也禁锢在梦里了，修司因为爱拉拉想把所有梦摧毁，杀掉了各个梦里的拉拉，来到了GQU的宇宙，这里的夏亚成功没死，但夏亚想消灭玫瑰的拉拉，谁知道玫瑰拉拉要在这个宇宙里醒来，如果醒来拉拉就回不到玫瑰宇宙，修司觉得这个宇宙也是错误的分支，想终结其他梦境一样杀死拉拉摧毁这个梦境
+
