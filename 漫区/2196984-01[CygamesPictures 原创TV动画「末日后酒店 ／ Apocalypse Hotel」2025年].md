@@ -7908,3 +7908,24 @@ no Yachiyo no life！
 
 而且其实都合的地方也不少，之前有几集也很抽象，但至少编剧和导演是知道自己想要什么效果的，也大差不差地呈现出来了，上一集更是出色，好动画<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  センコウ  
+##### 672#       发表于 2025-6-25 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000913&amp;ptid=2196984" target="_blank">临界点 发表于 2025-6-25 22:58</a>
+
+有没有人算过到底经过了多少年？</blockquote>
+官推漫画说是1000年整，但感觉是包含了ED最后整个地球给魔改的，最后人类应该不到1000年
+
+*****
+
+####  センコウ  
+##### 673#       发表于 2025-6-25 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000650&amp;ptid=2196984" target="_blank">天地不仁 发表于 2025-6-25 22:06</a>
+
+我吹爆，home变成hotel</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜讯，CYP下一部依然是homo
+
