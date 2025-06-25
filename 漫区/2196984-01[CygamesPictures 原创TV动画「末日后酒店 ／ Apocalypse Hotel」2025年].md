@@ -7975,3 +7975,13 @@ no Yachiyo no life！
 
 确实最后两集加大分了
 
+
+*****
+
+####  冷静先找时光机  
+##### 679#       发表于 2025-6-26 01:40
+
+真好啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+不过上帝之杖这把契诃夫之枪到最后也没响啊
+
