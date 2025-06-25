@@ -1392,3 +1392,24 @@ Steamのみ
 
 服了，原来是ns2兼容有问题，不许玩，这下笑喷了
 
+
+*****
+
+####  760194962  
+##### 118#       发表于 2025-6-26 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000961&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-25 23:06</a>
+
+Steamのみ</blockquote>
+情報共有ありがとう<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  760194962  
+##### 119#       发表于 2025-6-26 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001075&amp;ptid=2247492" target="_blank">sd1055007 发表于 2025-6-25 23:24</a>
+
+服了，原来是ns2兼容有问题，不许玩，这下笑喷了</blockquote>
+凌晨有人报闪退，当天下午就已经不能下载试玩版了
+
