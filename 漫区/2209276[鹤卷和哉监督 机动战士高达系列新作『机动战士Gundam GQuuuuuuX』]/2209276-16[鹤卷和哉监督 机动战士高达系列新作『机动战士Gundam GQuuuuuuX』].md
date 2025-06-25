@@ -5180,3 +5180,121 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 
 夸克斯的更大意义大概是扶鸭妹(那个好像是她)上台给鸡瘟更好的未来吧，中间过程混乱是鹤卷这些人能力问题或者说他们要缝合的大杂烩太多只知道烂炒，注意力不在讲故事上
 
+
+*****
+
+####  银川智将Kuroky  
+##### 22611#       发表于 2025-6-25 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998781&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-25 15:57</a>
+
+所以骡子风评不是被害得更厉害……</blockquote>
+原作不就是个天天想着请塞拉小姐给她触诊的青春期色小鬼吗
+
+*****
+
+####  第贰个十年  
+##### 22612#       发表于 2025-6-25 17:47
+
+事到如今还有人在乎剧情吗？
+本质uc嘉年华，到最后演都不演了，怎么野怎么来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但它假装自己正经在讲故事的样子有点搞笑，不如真•型月嘉年华
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 22613#       发表于 2025-6-25 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999489&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-6-25 17:41</a>
+
+夸克斯的更大意义大概是扶鸭妹(那个好像是她)上台给鸡瘟更好的未来吧，中间过程混乱是鹤卷这些人能力问题或 ...</blockquote>
+假设是没看过uc的观众
+
+谁知道你这个结尾露一面的金毛女人是谁啊
+
+*****
+
+####  岸浪白野  
+##### 22614#       发表于 2025-6-25 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999229&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 17:03</a>
+
+X 上的 YY：“だから僕は… #GQuuuuuuX #ジークアクスhttps://t.co/EVai6LvcdZ” / X
+
+X 上的 YY：“文字な ...</blockquote>
+[X 上的 ルカ：“ここのシーンめっちゃ熱かった……の落描きです。#ジークアクス #GQuuuuuuX [url]https://t.co/t5mknfln0U](https://x.com/nkn_ruka/status/1937799406209638447)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/175338b7yh7jtd1h7aa60y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:53 上传
+
+*****
+
+####  西洛克  
+##### 22615#       发表于 2025-6-25 17:54
+
+<img src="https://img.stage1st.com/forum/202506/25/175413mde9t660nn9nyzt2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6951.jpeg</strong> (420.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175413ns2e0wdvkdvme0zk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6952.jpeg</strong> (402.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175414vqbpbqvk6h9p9p6f.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6953.jpeg</strong> (421.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175414hr1trkgz48qk84dl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6954.jpeg</strong> (391.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175414shtoopvfa4qmoath.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6955.jpeg</strong> (333.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175415ddjyywuw92q222dw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6956.jpeg</strong> (432.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/175415cjmnd1z4td4x6416.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6957.jpeg</strong> (418.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:54 上传
+
+这都有人扒出来了
+
