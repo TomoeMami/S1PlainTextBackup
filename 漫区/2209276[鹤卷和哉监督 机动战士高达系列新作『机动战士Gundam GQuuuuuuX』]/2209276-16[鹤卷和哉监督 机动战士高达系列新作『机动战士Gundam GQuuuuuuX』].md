@@ -6269,3 +6269,95 @@ SEED的基神不也是开始站联合，最后变成ZAFT的白衣。
 
 后面台词COS渚薰又是什么意思
 
+
+*****
+
+####  秋月孝三  
+##### 22676#       发表于 2025-6-25 22:38
+
+除非鹤卷和柿本一样搞个真鹤界，否则牢修的真面目这坑恐怕一时半会儿就不填了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  woui003woui  
+##### 22677#       发表于 2025-6-25 22:40
+
+缓了一天的感想：早知道我直接看ED不就完了吗 哦好像我确实是被ED和TMY配音钓进来的……
+
+*****
+
+####  璇瑢子R  
+##### 22678#       发表于 2025-6-25 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999571&amp;ptid=2209276" target="_blank">mumubear 发表于 2025-6-25 17:57</a>
+
+鸭妹好歹从79开始有戏份有战绩紫婆回忆有童年，兰巴拉尔才是最后一幕不知道哪里来的路人。 ...</blockquote>
+79if部分鸭妹出现了大概就1秒还带着头盔，战绩是在设定里的。
+
+紫婆回忆大概也就5秒而且是儿童状态。
+
+年一高人群应该不可能认出最后的是鸭妹之前出现过两次
+
+而且官网人物列表至今没有鸭妹。
+
+*****
+
+####  madness  
+##### 22679#       发表于 2025-6-25 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000772&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 22:30</a>
+
+SEED的基神不也是开始站联合，最后变成ZAFT的白衣。
+
+而且鸭妹是吉翁的女儿，比拉克丝名正言顺多了。</blockquote>
+塞拉的问题只是如何说服她下场，她除非麻烦找上门，是绝对不会自己去找麻烦（然后脱出片叶不沾身）的，但是确实她下场了还是会负责到底的。
+
+
+*****
+
+####  七七見奈波  
+##### 22680#       发表于 2025-6-25 22:44
+
+<img src="https://img.stage1st.com/forum/202506/25/224440v4os5psqpk2qosy9.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-06-25 22.44.26.png</strong> (308.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 22:44 上传
+
+去看这个了，好快乐<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 22681#       发表于 2025-6-25 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000796&amp;ptid=2209276" target="_blank">colike 发表于 2025-6-25 22:35</a>
+
+修司这个拉拉梦男到底是什么来头，听他讲了半集世界观越听越问号
+
+为什么他可以召唤白色高达，从裂缝里面钻 ...</blockquote>
+说是彼岸骡的话很多人不能接受。
+
+下面是一个相对合理的说法：
+
+某个宇宙中，鸭被骡杀死，拉拉NT暴走产生了平行世界。
+
+拉拉进行过很多尝试，但无论如何鸭都会被骡杀。
+
+于是拉拉先把骡给BAN了，但结果一个叫修司的人上了高达，还是把鸭捅死了。
+
+（修司至少捅死过鸭一次）
+
+之后拉拉继续尝试，而修司则成为了拉拉的跟踪狂。
+
+最后拉拉终于创造出一个世界，即GQ，让鸭开高达，这样就没有问题了。
+
+所以修司可以召唤高达，因为高达曾经也算他的座机。
+
+打个比方，就好比首席哥也开过GQX一样。
+
