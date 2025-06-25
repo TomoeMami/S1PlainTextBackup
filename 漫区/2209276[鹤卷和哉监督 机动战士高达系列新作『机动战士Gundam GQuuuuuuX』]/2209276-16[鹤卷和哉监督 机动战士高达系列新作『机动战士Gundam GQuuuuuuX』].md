@@ -2063,3 +2063,122 @@ GQX本质UC老害们开的趴，你别管它剧情逻辑通顺不通顺好看不
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骡子NT能力不见得有多夸张 但NT能力相性和战斗结合的太好了 战斗时又心黑手狠纯完美战士
 
+
+*****
+
+####  赤黑的假面  
+##### 22343#       发表于 2025-6-25 09:57
+
+这片真的是宇宙世纪厨和大光头厨的福报吧，高吧都把大光头拉出来说大光头也干了
+
+Screenshot_2025-06-25-09-55-59-200_com.baidu.tieba.jpg
+(781.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:57 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/095738eshvablllba3p9pa.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 22344#       发表于 2025-6-25 09:58
+
+所以玛秋是拉拉实在受不了修司了然后捏出来让他收了神通的角色吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个世界线的骡子应该存在，哈罗也依然是他做的，所以机魂骡可以通过这个世界的哈罗表达意志，特殊的不是博美犬的哈罗，大概率随便抓一只都能达成这个效果
+
+*****
+
+####  勿徊哉  
+##### 22345#       发表于 2025-6-25 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995331&amp;ptid=2209276" target="_blank">itsmyrailgun 发表于 2025-6-25 02:35</a>
+不剧透半夜想了想，k社这几个人俄狄浦斯情节犯了。
+如果把富野高达比作母亲，富野是父亲——</blockquote>
+感觉日本的问题是通缩了三十年，导致三十年了掌握资源有话语权的还是老登。
+还是要不停通胀不停洗牌才行。
+
+*****
+
+####  Devola  
+##### 22346#       发表于 2025-6-25 09:59
+
+<img src="https://img.stage1st.com/forum/202506/25/095939ygwtpewzkuunp3u4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (405.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/095756eov9789co8m0v739.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:57 上传
+
+
+*****
+
+####  璇瑢子R  
+##### 22347#       发表于 2025-6-25 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996266&amp;ptid=2209276" target="_blank">沧海nog 发表于 2025-6-25 09:47</a></blockquote>
+夏利亚对鸭子开火了，鸭妹开除他军籍他不为过吧
+
+*****
+
+####  桐道悠  
+##### 22348#       发表于 2025-6-25 10:01
+
+如果你能接受昆汀的好莱坞往事，那你也能接受g夸克斯。两部看完之后给人的感觉是一样的。
+
+*****
+
+####  qixinno2  
+##### 22349#       发表于 2025-6-25 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996402&amp;ptid=2209276" target="_blank">Devola 发表于 2025-6-25 09:59</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">骇死我了
+
+*****
+
+####  勿徊哉  
+##### 22350#       发表于 2025-6-25 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995721&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 08:31</a></blockquote>
+原来ed是后日谈，两人地球上的小屋。难怪ed结尾有朝阳。
+
+*****
+
+####  璇瑢子R  
+##### 22351#       发表于 2025-6-25 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996384&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-25 09:58</a>
+所以玛秋是拉拉实在受不了修司了然后捏出来让他收了神通的角色吗
+这个世界线的骡子应该存在，哈罗也依然是 ...</blockquote>
+反正有无数平行世界，玫瑰拉拉可以每个世界线给修斯献上一个秀女看修斯看上哪一个呀
+
+*****
+
+####  adretyu67.  
+##### 22352#       发表于 2025-6-25 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996351&amp;ptid=2209276" target="_blank">石窝大雕 发表于 2025-6-25 09:54</a>
+
+让光头做一部EVA if</blockquote>
+早做了，灵魂力量<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 22353#       发表于 2025-6-25 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996419&amp;ptid=2209276" target="_blank">桐道悠 发表于 2025-6-25 10:01</a>
+
+如果你能接受昆汀的好莱坞往事，那你也能接受g夸克斯。两部看完之后给人的感觉是一样的。 ...</blockquote>
+其实他们把前面打黑拳删了全做成uc meme其实更好。
+
