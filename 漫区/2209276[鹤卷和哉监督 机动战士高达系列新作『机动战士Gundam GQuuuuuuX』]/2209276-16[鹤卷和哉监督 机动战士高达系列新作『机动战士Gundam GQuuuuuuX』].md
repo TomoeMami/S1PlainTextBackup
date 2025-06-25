@@ -3844,3 +3844,81 @@ UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世
 
 虽然过程有些曲折，但从结果看最后达到了他们的预期，计划通。
 
+
+*****
+
+####  57042711  
+##### 22497#       发表于 2025-6-25 14:34
+
+总之这片是给明年新高达把场热好了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+希望明年剧情不要太抽象…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  棍机凹升龙  
+##### 22498#       发表于 2025-6-25 14:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">我觉得错就错在上周播BYTT把大伙拉嗨了一周
+
+
+*****
+
+####  LadySaazbaum  
+##### 22499#       发表于 2025-6-25 14:40
+
+上周放BL THE TIME把骡吹和骡鸭骗进来鲨
+
+结果一看黄骡就一句话而骡鸭直接被拆了
+
+实属被鸭厨给算计了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 22500#       发表于 2025-6-25 14:43
+
+QuuuuuuX 是占位符，字母长度不刚好是AmuroRay<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 22501#       发表于 2025-6-25 14:45
+
+还是放beyond the time却告诉你骡子早就是gqux机魂了，这叫一个欺诈吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  燃烧的石头  
+##### 22502#       发表于 2025-6-25 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998034&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 13:59</a>
+不是脑补，制作组摆明了就是这么想的。
+
+修司开78-2，和拉拉一样来自“那一边”的宇宙。</blockquote>
+还是那句话，制作组点明了吗，又没明说，全靠观众脑补吗，本身就是一坨了，观众还非要拿这坨来碰瓷骡子？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  久井路路  
+##### 22503#       发表于 2025-6-25 14:46
+
+其实鸭厨我也看见一大堆不满的，大概是这么个想法：
+
+本来鸭扔石头是经历了Z的一连串事情再加上卡缪疯了成为最后一根稻草才做出的举动，是他作为绝望的理想主义者发出的悲鸣，结果你来个即使没发生这些事他也会这么干因为他就是这样的人？角色的深度和走过的路对他的影响全让这帮自high的家伙给糟蹋了！
+
+*****
+
+####  久井路路  
+##### 22504#       发表于 2025-6-25 14:47
+
+别的不说，我个人也不太能认同“因为别的世界的你最后扔了石头，所以现在的你也迟早会这么干，我要杀了你”这种话（
+
+这一般不该是反派台词吗（
+
+结果我看反应集里日本人纷纷认可（
+
