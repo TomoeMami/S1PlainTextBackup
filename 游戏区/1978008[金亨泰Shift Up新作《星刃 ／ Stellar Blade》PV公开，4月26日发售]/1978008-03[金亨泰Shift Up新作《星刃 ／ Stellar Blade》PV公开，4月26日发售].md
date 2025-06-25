@@ -6571,3 +6571,13 @@ b站随便搜吧这种
 
 这游戏后期经验点数完全没用，赶路做任务根本学不上那些新动作模组，打BOSS么平A打铁学会蓝光闪紫光踢黄光红光滚差不多也就够用了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 3556#       发表于 2025-6-25 14:30
+
+精防接重击派生那个加攻buff时间都不够打一套长连段的，接爆发派生得了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
