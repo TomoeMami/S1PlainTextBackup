@@ -7670,3 +7670,22 @@ no Yachiyo no life！
 
 宇宙沙虫竟然能养殖了
 
+
+*****
+
+####  hibike!  
+##### 648#       发表于 2025-6-25 13:12
+
+感觉可以预订今年最佳
+
+地球就是酒店，全宇宙都是平等的过客，刚刚好的立意
+
+*****
+
+####  白玫瑰之夜  
+##### 649#       发表于 2025-6-25 13:12
+
+人类太坏了，两句话给我八千代整出ptsd了<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -4418,3 +4418,20 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 造物胜率还行但要平均10-15分钟一局受不了了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 306#       发表于 2025-6-25 13:08
+
+ 本帖最后由 duraa 于 2025-6-25 13:10 编辑 
+
+第一天箱子打完了，600金币100尘+头像<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">中速梦一共打了14把，8胜6负
+
+*****
+
+####  辞冬  
+##### 307#       发表于 2025-6-25 13:12
+
+出箱子我才打，不出就空过给人送温暖
+
