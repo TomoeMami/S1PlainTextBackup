@@ -250,3 +250,19 @@
 监督是天Q的小川孝治，看来是做出第三代中兴之祖后得到重用了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/3e6c1a6dbaf2e9e9374a6348a33e4ac7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1089#       发表于 2025-6-25 11:48
+
+卧槽吉野！这是大河内介绍来的吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reoch  
+##### 1090#       发表于 2025-6-25 11:52
+
+三代同堂的剧场版回来了？会回到每年两部剧场版的模式吗
+
