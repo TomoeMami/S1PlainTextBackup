@@ -426,3 +426,15 @@ zzz指的是睡觉
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 46#       发表于 2025-6-25 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997470&amp;ptid=2250267" target="_blank">仟音一心 发表于 2025-6-25 12:29</a>
+🌀世界观概要
++ ZZZ是神秘组织特工，专职猎杀"清醒梦"中出现的"梦魇"
++ 若在梦境战败，梦魇将如法爷的魅影 ...</blockquote>
+这种设定不弄个多层梦境论简直说不过去。多年前也曾YY过梦境题材的蒙面超人，往里塞一堆佛洛依德、荣格心理学的设定，整个故事发生在女主的梦境里，现在回想起中二到爆<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

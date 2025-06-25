@@ -7655,3 +7655,18 @@ no Yachiyo no life！
 如果来脑洞一点的话，人类有可能不是回不来而是不想回来了。毕竟150年，旧人类都死光了，新人类对地球可能 ...</blockquote>
 什么嘛，我猜的还是挺准的嘛<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 646#       发表于 2025-6-25 12:56
+
+结尾很好，过程很稳，制作很硬，属于新时代的作品
+
+*****
+
+####  jacket  
+##### 647#       发表于 2025-6-25 12:57
+
+宇宙沙虫竟然能养殖了
+

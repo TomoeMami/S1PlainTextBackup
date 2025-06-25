@@ -6519,3 +6519,16 @@ b站随便搜吧这种
 最后发现还是弹刀加beta压制万金油。而且也不太懂为什么弹刀 ...</blockquote>
 好看就行，设计不同动作方便拍照
 
+
+*****
+
+####  oyss  
+##### 3551#       发表于 2025-6-25 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997351&amp;ptid=1978008" target="_blank">strider_oy 发表于 2025-6-25 12:08</a>
+
+闪避只有特定有用，反击还会被打硬直也是绝了
+
+最后发现还是弹刀加beta压制万金油。而且也不太懂为什么弹刀 ...</blockquote>
+一个伤害高,一个加buff
+

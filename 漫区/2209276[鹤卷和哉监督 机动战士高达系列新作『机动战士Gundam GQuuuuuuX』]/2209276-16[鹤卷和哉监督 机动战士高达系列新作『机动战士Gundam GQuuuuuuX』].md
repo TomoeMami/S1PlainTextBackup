@@ -3300,3 +3300,49 @@ md通缉犯生活这么惬意吗
 
 新奥特曼打超巨型杰顿是吧
 
+
+*****
+
+####  lion_or_judas  
+##### 22453#       发表于 2025-6-25 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997638&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-6-25 12:52</a>
+
+就根据艾尔美斯的体型来算 变大的那个东西就是时空间隙的副作用
+
+所以78最后都钛晶了 体型要怎么变都可以，
+
+ ...</blockquote>
+我也是这么想的，拉拉活鸭子死的这条线的骡子应该就是修司，或者修司是那个世界线骡子在这个世界的投影，或者修司就是那个世界线骡子的异时空同位体
+
+*****
+
+####  57042711  
+##### 22454#       发表于 2025-6-25 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997559&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-25 12:40</a>
+年轻人的第一部高达，问一下为什么夏亚原本世界里，他妹妹会跟他敌对啊</blockquote>
+夏亚为了报仇越来越极端<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+gto还加了老哥把真夏亚害死的剧情啥的…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 22455#       发表于 2025-6-25 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997559&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-25 12:40</a>
+ 年轻人的第一部高达，问一下为什么夏亚原本世界里，他妹妹会跟他敌对啊</blockquote>
+不算敌对，单纯是阵营不同
+
+*****
+
+####  wpcc  
+##### 22456#       发表于 2025-6-25 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997673&amp;ptid=2209276" target="_blank">lion_or_judas 发表于 2025-6-25 12:58</a>
+
+我也是这么想的，拉拉活鸭子死的这条线的骡子应该就是修司，或者修司是那个世界线骡子在这个世界的投影， ...</blockquote>
+93骡子高维的大手还是太温暖了 主要是拉拉和修斯越轮回死的人越多看不下去了。拉拉直接把782发给夏亚开 最后夏亚造了个卫星炮来主动修正高维度大手 这种时间线不用93骡出手是真不行了。
+
