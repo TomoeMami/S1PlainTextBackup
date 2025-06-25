@@ -3152,3 +3152,68 @@ md通缉犯生活这么惬意吗
 结果修斯是什么东西还是没说</blockquote>
 这么看下来就是那种本子常见的跟踪狂
 
+
+*****
+
+####  qixinno2  
+##### 22440#       发表于 2025-6-25 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997445&amp;ptid=2209276" target="_blank">faxi 发表于 2025-6-25 12:26</a>
+
+我有一个问题，这第12集重新配的0079片段，是不是古谷和池田最后共演的动画片段了，本来柯南还有机会的，现 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么跟第一与第二丢人的遗言比如何
+
+
+*****
+
+####  依然荏苒  
+##### 22441#       发表于 2025-6-25 12:32
+
+还得是老害，无论拍成什么样都有人帮着找补，要是新人监督怕早就混蛋在业界混不下去了。
+
+*****
+
+####  faxi  
+##### 22442#       发表于 2025-6-25 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997486&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-6-25 12:31</a>
+
+那么跟第一与第二丢人的遗言比如何</blockquote>
+那个虽然确实丢人，但也是夏亚这个人一生的完美映照和总结，没什么问题啊
+
+然后一想到这2人的动画共演最后是这个这么变态的动画的时候心情是有点复杂的<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+突然想到，闪哈2是不是还有机会能拉出来<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodasoul  
+##### 22443#       发表于 2025-6-25 12:36
+
+笑了一整集，好不好另说，至少很欢乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lion_or_judas  
+##### 22444#       发表于 2025-6-25 12:37
+
+之前剧透就看到最后那个分镜的
+
+整体12话的感想
+
+哇这是真想用现代作画重置0079？
+
+哇 是池田的夏亚，是潘惠子的拉拉，怎么没有骡子是还在藏什么，最后怎么是鸭挡刀，拉拉这颜艺满满的制作组恶意，还有池田是真的老了
+
+哇 什么巨大化元祖 大战 EVA（gqx）？
+
+哇 什么EVA里是骡子（还是请了古谷彻，果然他在高达里不可替代）
+
+最后鸭妹上位好评，但是为啥鸭妹没有请CV？是因为名冢太太去配了紫婆嘛？
+
+总结剧情就是某个鸭子给拉拉挡刀的0079线穿过来个拉拉，然后正史0093推石头绿光骡子也被穿过来了
+
+我觉得是制作组觉得要让元祖出场当最终boss，但是又不能让元祖掉价，那好驾驶员换原创，对面主角机加个骡子机魂，这不就妥了？被完全体骡子打败也不掉价呀
+
+至于原创三小只？剧情推进工具人啦<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

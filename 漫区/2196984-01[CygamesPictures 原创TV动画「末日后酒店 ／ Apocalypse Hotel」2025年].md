@@ -7645,3 +7645,13 @@ no Yachiyo no life！
 
 个人心目中的年度最佳
 
+
+*****
+
+####  哈尔路尼亚  
+##### 645#       发表于 2025-6-25 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751597&amp;ptid=2196984" target="_blank">哈尔路尼亚 发表于 2025-4-24 12:58</a>
+如果来脑洞一点的话，人类有可能不是回不来而是不想回来了。毕竟150年，旧人类都死光了，新人类对地球可能 ...</blockquote>
+什么嘛，我猜的还是挺准的嘛<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+

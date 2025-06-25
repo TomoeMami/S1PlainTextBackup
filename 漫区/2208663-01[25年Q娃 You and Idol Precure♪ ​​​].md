@@ -276,3 +276,15 @@
  三代同堂的剧场版回来了？会回到每年两部剧场版的模式吗</blockquote>
 估计不会回到过往的模式
 
+
+*****
+
+####  粉儿alice  
+##### 1092#       发表于 2025-6-25 12:34
+
+把春联动剧场版砍了 就只能把秋单独剧场版当联动使是不是<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 派对剧场版不会是最后一部单剧场版惹
+
+吉野他之前写过热带 剧场版鬼太郎诞生也是他写的
+可以破案了 大河内是他介绍过来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有小川自从天空之后就是一个笑话 这次能把天空二段补出来吗？
+
