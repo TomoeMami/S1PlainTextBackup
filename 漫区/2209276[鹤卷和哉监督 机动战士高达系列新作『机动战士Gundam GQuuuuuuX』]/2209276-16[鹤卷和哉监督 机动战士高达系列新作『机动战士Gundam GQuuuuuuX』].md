@@ -2385,3 +2385,133 @@ Screenshot_2025-06-25-09-55-59-200_com.baidu.tieba.jpg
 
 所以绿叔叔是痞子的皮套，修司是鹤卷的皮套，观众有没有爽到因人而异，他俩肯定爽爆了
 
+
+*****
+
+####  朋友费小号  
+##### 22375#       发表于 2025-6-25 10:26
+
+ 本帖最后由 朋友费小号 于 2025-6-25 10:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996591&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-25 10:23</a>
+
+所以GQX驾驶舱里的机械臂的存在意义是什么，我现在怎么想不出来除了乳古谷彻以外的其他用途了。 ...</blockquote>
+经典的科幻概念和现实科技应用一直在用的：“握手”，我个人一直认为这个名词概念是仅次于hello world的
+
+我在电影院看到机械臂伸出来和番茄把手放上去的时候就想到最后肯定会有一个握手成功的画面，但是我确实没想到最后这个画面出来的时候我会那么难绷
+
+*****
+
+####  cmdycj0732  
+##### 22376#       发表于 2025-6-25 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996591&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-6-25 10:23</a>
+
+所以GQX驾驶舱里的机械臂的存在意义是什么，我现在怎么想不出来除了乳古谷彻以外的其他用途了。 ...</blockquote>
+当然是让骡子叔叔享用美少女的大雷啊，此事在高达桑中也有记载
+
+*****
+
+####  Launce  
+##### 22377#       发表于 2025-6-25 10:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡尔玛没死的话，大概率就在地球吧，紫婆要炸地球
+
+*****
+
+####  西瓜夜行  
+##### 22378#       发表于 2025-6-25 10:29
+
+ﾟ ∀ﾟ)ノ
+
+感谢大家这几个月的讨论、假药、搬运！！！！
+
+希望我们下次依然能在有趣的作品相见！！！！
+
+*****
+
+####  eilot  
+##### 22379#       发表于 2025-6-25 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996569&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-6-25 10:21</a>
+
+喵安就不像一个有独立意识的角色，别人说啥就是啥，被喷了就哈气，思想取决于最后一个跟她对话的角色
+
+用光 ...</blockquote>
+喵安沒有在機上再戰瑪秋責罵直接反臉，她就是隨波逐流的人，而且她沒有直接看到大光筒死人，只是大量噁心的感覺，而且一半噁心感覺可能是自拉拉~~~音覆蓋，罪惡感大減，總好過這條線的基連丟完大型垃圾後每晚發惡夢
+
+瑪秋之前反臉，只是有初戀感覺的人(?)和喵安包餃子，之後KIRAKIRA是我的啊，瑪秋她自己釋懷的話兩女就沒再戰原因，拆愛美號時瑪秋也沒下死手也只是先將她踢開，才再開超負荷模式
+
+現在不知道有沒小說版補完一些細節吧
+
+*****
+
+####  斯城恶魔  
+##### 22380#       发表于 2025-6-25 10:29
+
+我觉得gqux是ditf的精神续作，鹤卷和哉喜欢儒房，锦织敦史喜欢屁股（观看驾驶舱有感）
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 22381#       发表于 2025-6-25 10:30
+
+其实只要一个重编的剧场版就能解决GQ的问题，GQ的剧情说白了就是为了最后那幕修司对马秋的告白，吉翁的事反而因为包饺子没啥看头，鸭妹当女王和蓝色巨星强行登场除了“哇”一声也没什么更多的感想
+
+
+*****
+
+####  kk霖洞九  
+##### 22382#       发表于 2025-6-25 10:32
+
+最后的机魂很明显是正史骡子才有捅拉拉的记忆，那为啥鸭子不能过来
+
+*****
+
+####  桐道悠  
+##### 22383#       发表于 2025-6-25 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996522&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-6-25 10:14</a>
+
+昆汀怎么说对波兰斯基那事的态度也是善意的，两线交汇的醍醐味也留到了最后一幕，起码为了这碟醋的真诚是 ...</blockquote>
+边战时少年少女青春剧一边0079原作一路演，这个应该没法搞，光第二话的0079if就被骂的厉害，你搞一半0079if那真没人看了。而且老害塞梗狂欢也没有现在这么自由。不够真诚确实是个问题，但是昆汀要讲的是一群真实存在过的人，必须考虑后果，乱来不被当事人家属告死。至于G夸这边就没什么道德负担了，老害们把自己以前的想法给串起来，把一些遗憾给弥补上，也足够了。
+
+*****
+
+####  zhzij111  
+##### 22384#       发表于 2025-6-25 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995740&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-6-25 08:36</a>
+md通缉犯生活这么惬意吗
+
+俩人又是阳光沙滩又是小屋唱K好像完全不着急钱的样子
+
+难道黑拳那些钱还在账上没被 ...</blockquote>
+跟吉翁摄政关系这么好，通缉身份不就图一乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  eilot  
+##### 22385#       发表于 2025-6-25 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996466&amp;ptid=2209276" target="_blank">阿兹尔 发表于 2025-6-25 10:07</a>
+
+还不如让番茄她妈死了，我看到最后她妈也没啥用</blockquote>
+最奇怪是她媽媽一家居然沒有社死，
+
+她還能回家及一直手持手機等電話
+
+而且看來她家也沒有受到破壞
+
+估計是夏利亞調查出身份後，就給政府壓力吧，將事件新聞影響降到消失?
+
+*****
+
+####  OrianaThomson  
+##### 22386#       发表于 2025-6-25 10:35
+
+巨大化了<img src="https://static.stage1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
