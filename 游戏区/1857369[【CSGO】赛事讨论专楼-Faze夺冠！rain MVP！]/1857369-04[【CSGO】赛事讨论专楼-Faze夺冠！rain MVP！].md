@@ -108,3 +108,20 @@ senzu也是森</blockquote>
 
 魔男换京介了
 
+
+*****
+
+####  Niyah  
+##### 4763#       发表于 2025-6-25 21:58
+
+冠军组全对了，但是前面每轮stage刚好都只对4个
+
+image.png
+(83.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 21:57 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/215735zomiimgi4d4di534.png" referrerpolicy="no-referrer">
+

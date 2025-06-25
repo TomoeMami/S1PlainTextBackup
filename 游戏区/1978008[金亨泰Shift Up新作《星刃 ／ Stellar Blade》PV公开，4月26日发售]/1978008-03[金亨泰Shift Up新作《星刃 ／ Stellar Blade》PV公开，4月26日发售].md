@@ -6820,3 +6820,18 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 还有满血能 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前段时间一直玩无双起源，玩剑星就觉得伊芙性能弱的离谱，跟残疾人差不多
 
+
+*****
+
+####  ladiesman802  
+##### 3572#       发表于 2025-6-25 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000441&amp;ptid=1978008" target="_blank">aimbot 发表于 2025-6-25 21:19</a>
+
+这游戏战斗系统是怎么做的这么僵硬的
+
+我第一次见有动作游戏，战斗的时候跳起来能硬控自己3秒的
+
+还有满血能 ...</blockquote>
+老头环也能满血喝药，剑星我记得不会啊
+
