@@ -499,3 +499,18 @@ zzz指的是睡觉
 
 再相信高桥一次！（假的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 54#       发表于 2025-6-25 15:13
+
+这个设定快把“宝生永梦”写在脸上了，真能复刻EXAID也不失为一种胜利
+
+*****
+
+####  恶意之刃  
+##### 55#       发表于 2025-6-25 15:14
+
+素人编剧拯救蒙面超人的幻想不早就该舍弃了吗诸位为啥不懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

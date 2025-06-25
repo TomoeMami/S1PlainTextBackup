@@ -1330,3 +1330,17 @@ steam试玩版有
 
 真卖了我缺的黑白莫比乌斯续作谁给我补啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 113#       发表于 2025-6-25 15:13
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-6-25 15:17 编辑 
+
+黑白莫比乌斯的表现就像是不请新人，强行让组里的老头程序员们搞一个出来。
+
+对比之下，FALCOM的老头们是真的有实力。
+
+不对，少想了一层，falcom多了很多chinese员工还是比较有活力的。
+
