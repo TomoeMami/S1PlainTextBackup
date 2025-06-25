@@ -7753,3 +7753,11 @@ no Yachiyo no life！
 整体这季确实看得挺舒服</blockquote>
 叠了奶奶的心愿甲，加上最后几分钟转向民谣+回忆杀+录像的感动，我个人感觉红白事回的情绪控制还真可以了
 
+
+*****
+
+####  hisousihou  
+##### 657#       发表于 2025-6-25 16:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">太好看了，我好爱这部动画
+
