@@ -6775,3 +6775,17 @@ GQ世界的紫婆比正史疯批得多。
 
 根本不会浪费能量来摆没鸟用的pose。
 
+
+*****
+
+####  ryanghj  
+##### 22697#       发表于 2025-6-26 00:00
+
+ 本帖最后由 ryanghj 于 2025-6-26 00:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000298&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 20:49</a>
+
+这可糟了其实我还担心过万南会不会觉得UC主题乐园是UC和Alternative之外的新道路来着 ...</blockquote>
+你要真说直球辱骂凡是非富野的高达正作几乎都有直球辱骂，这就是高达这个系列的特点，比如独角兽日本人也骂的厉害，不还是商业大成功<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+gqux风评差不多是褒贬不一，商业上很成功
+
