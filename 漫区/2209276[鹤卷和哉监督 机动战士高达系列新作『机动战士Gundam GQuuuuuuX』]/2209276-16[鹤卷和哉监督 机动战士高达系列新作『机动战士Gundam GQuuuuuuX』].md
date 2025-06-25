@@ -6970,3 +6970,18 @@ Far Beyond the Stars这歌感觉挺有太空歌剧的味道，就是歌手声音
 
 想表达的就是在某个时代背景下，各色人物的个人诉求、追求、以及自我和解
 
+
+*****
+
+####  大十字紅朔  
+##### 22707#       发表于 2025-6-26 05:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000298&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 20:49</a>
+
+这可糟了其实我还担心过万南会不会觉得UC主题乐园是UC和Alternative之外的新道路来着 ...</blockquote>
+梗会用完的，长久不了
+
+Z高还可以再用一用，ZZ接受度就低多了（独角兽都算是接着ZZ的二创了）
+
+再后面的二创的价值都没有
+
