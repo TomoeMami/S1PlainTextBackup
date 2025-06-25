@@ -438,3 +438,13 @@ zzz指的是睡觉
 + 若在梦境战败，梦魇将如法爷的魅影 ...</blockquote>
 这种设定不弄个多层梦境论简直说不过去。多年前也曾YY过梦境题材的蒙面超人，往里塞一堆佛洛依德、荣格心理学的设定，整个故事发生在女主的梦境里，现在回想起中二到爆<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 47#       发表于 2025-6-25 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997681&amp;ptid=2250267" target="_blank">JOHNCHCHAN 发表于 2025-6-25 12:59</a>
+ 这种设定不弄个多层梦境论简直说不过去。多年前也曾YY过梦境题材的蒙面超人，往里塞一堆佛洛依德、荣格心 ...</blockquote>
+层主的这个梦境设定让我想到前不久云完的独立游戏《The Dream Machine》
+

@@ -7733,3 +7733,11 @@ no Yachiyo no life！
 
 整体这季确实看得挺舒服<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 655#       发表于 2025-6-25 14:07
+
+最后一幕地球打满了广告有点意思，年内不知道还有没有能和这部比一比多原创了
+
