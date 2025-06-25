@@ -7835,3 +7835,18 @@ no Yachiyo no life！
 
 我吹爆，home变成hotel
 
+
+*****
+
+####  小处不可随便  
+##### 665#       发表于 2025-6-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997764&amp;ptid=2196984" target="_blank">hibike! 发表于 2025-6-25 13:12</a>
+
+感觉可以预订今年最佳
+
+地球就是酒店，全宇宙都是平等的过客，刚刚好的立意 ...</blockquote>
+天地不仁，以万物为刍狗
+
+千代有情，待众生为来客
+

@@ -1685,3 +1685,15 @@ re:act还活着啊，两个单曲
 顺带静冈这地方搞三年缚是真 ...</blockquote>
 呃真的次轮败退了......静冈这地方真的不行，当然明晃晃搞制裁局的knm更恶心
 
+
+*****
+
+####  usodakedo  
+##### 1331#       发表于 2025-6-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000489&amp;ptid=2171972" target="_blank">若流水 发表于 2025-6-25 21:29</a>
+呃真的次轮败退了......静冈这地方真的不行，当然明晃晃搞制裁局的knm更恶心 ...</blockquote>
+唉，没办法，为了保持人设，估计lize今后如果再参加还是会选择赫国，今天也是大起大落，尤其是和西西同时播的时候，希望之后转运吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

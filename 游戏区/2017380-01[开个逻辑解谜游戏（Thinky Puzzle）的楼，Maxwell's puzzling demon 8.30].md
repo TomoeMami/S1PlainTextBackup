@@ -3755,3 +3755,13 @@ https://store.steampowered.com/app/2830480/Gentoo_Rescue/
 今年上半年有什么量大管饱的作品吗，新出的只玩了ligo和电兽远征</blockquote>
 不一定符合量大管饱，但only sliding和spacecaps都不错
 
+
+*****
+
+####  酒々井かんづめ  
+##### 260#       发表于 2025-6-25 22:11
+
+<blockquote>BRAVADO 发表于 2025-6-25 21:13
+不一定符合量大管饱，但only sliding和spacecaps都不错</blockquote>
+mark，感谢
+

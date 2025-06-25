@@ -6835,3 +6835,14 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 还有满血能 ...</blockquote>
 老头环也能满血喝药，剑星我记得不会啊
 
+
+*****
+
+####  Andariel  
+##### 3573#       发表于 2025-6-25 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000464&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-6-25 21:23</a>
+
+简单来说就是不能取消后摇 所以没事别乱平a</blockquote>
+其实有些a能取消，但不是所有a都能取消<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
