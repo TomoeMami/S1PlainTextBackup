@@ -5877,3 +5877,20 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 
 刚补完第三集，感觉有点意思，虽然剧情挺老套，但是觉得番茄女主很可爱。高达系列只看过水魔，这背景故事里吉翁联邦的内容有些看着头大，有没有什么地方可以快速简要补一下背景故事啊？
 
+
+*****
+
+####  七七見奈波  
+##### 22645#       发表于 2025-6-25 20:43
+
+所以12话以后日本那边什么反应？别真环大陆好评<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  galgamesh11  
+##### 22646#       发表于 2025-6-25 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000259&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-25 20:43</a>
+所以12话以后日本那边什么反应？别真环大陆好评</blockquote>
+那可没有，在x上面都有不少直球骂的
+

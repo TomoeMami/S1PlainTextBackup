@@ -10212,3 +10212,14 @@ Avenger：哈基蜗
 被动词条：强化突刺 ...</blockquote>
 突刺反击指的是什么呢
 
+
+*****
+
+####  jacket  
+##### 989#       发表于 2025-6-25 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000191&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-6-25 20:28</a>
+
+突刺反击指的是什么呢</blockquote>
+敌人实施攻击动作的过程中，你对其造成突刺属性的伤害，打中会有一个小小的亮点，不是很明显。
+
