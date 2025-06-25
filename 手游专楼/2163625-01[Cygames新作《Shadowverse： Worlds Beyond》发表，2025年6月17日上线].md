@@ -4677,3 +4677,23 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">7连胜中速梦被皇爷逮捕，先手5费瞎jb交狼哥被狠狠惩罚了
 
+
+*****
+
+####  凉良  
+##### 331#       发表于 2025-6-26 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999399&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-6-25 17:26</a>
+
+1包=500金≥300尘
+
+总的来说byd的中心思想就是卡牌我可以直接给或者给尘让你换，想攒金币白嫖井没门 ...</blockquote>
+对 感觉就是把无氪卡在一版本一个小保底的水平
+
+*****
+
+####  凉良  
+##### 332#       发表于 2025-6-26 01:11
+
+我小号 50 50 50 150 直接给我笑麻了
+
