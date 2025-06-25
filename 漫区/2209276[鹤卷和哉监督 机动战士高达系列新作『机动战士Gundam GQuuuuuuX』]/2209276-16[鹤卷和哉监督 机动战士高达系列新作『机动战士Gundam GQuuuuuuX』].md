@@ -1927,3 +1927,139 @@ AM[KT`})O_IT`~V{Y{)HI5J_tmb.jpg
 
 2025-6-25 09:46 上传
 
+
+*****
+
+####  cmdycj0732  
+##### 22330#       发表于 2025-6-25 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995379&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-25 03:02</a>
+
+最后为啥是绿叔叔带面具被通缉，他真对吉翁造成啥实质性伤害了么？阿巴瓦空是喵安毁掉的，基连是紫婆杀的， ...</blockquote>
+最后是绿叔叔先对紫婆开的炮，然后夏亚补刀。估计绿叔叔可能直接社死了，之后改头换面以另一个人的身份出现
+
+*****
+
+####  pokemon最爱  
+##### 22331#       发表于 2025-6-25 09:49
+
+GQX本质UC老害们开的趴，你别管它剧情逻辑通顺不通顺好看不好看，你就说乐不乐吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以GQX什么时候和独角兽闪哈一起进机战<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正好现成的平行世界可以分流参战作品（
+
+*****
+
+####  勿徊哉  
+##### 22332#       发表于 2025-6-25 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994630&amp;ptid=2209276" target="_blank">RedSpecial 发表于 2025-6-25 00:16</a>
+有无没看过剧透的兄弟说说观感</blockquote>
+我20号之后就没刷过任何相关讨论，看爽了。
+
+虽然稍微能理解大家为啥骂，但对我来说全季度+1。
+
+*****
+
+####  双菜  
+##### 22333#       发表于 2025-6-25 09:49
+
+<img src="https://p.sda1.dev/25/c00289ee78825c565d60322b2a15833d/image.jpg" referrerpolicy="no-referrer">
+太细了，鹤卷哥哥<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">你高第二个铁血结局？
+
+*****
+
+####  失落之翼  
+##### 22334#       发表于 2025-6-25 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996218&amp;ptid=2209276" target="_blank">tau_cross 发表于 2025-6-25 09:41</a>
+
+这个有人发了吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+我怀疑机魂骡已经把旁边的哈罗给黑掉当监视器了，想看的都看完了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 22335#       发表于 2025-6-25 09:50
+
+ 本帖最后由 岸浪白野 于 2025-6-25 09:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996291&amp;ptid=2209276" target="_blank">双菜 发表于 2025-6-25 09:49</a>
+
+太细了，鹤卷哥哥你高第二个铁血结局？</blockquote>
+前面不早发过了，不用再说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blood_iron  
+##### 22336#       发表于 2025-6-25 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995894&amp;ptid=2209276" target="_blank">CCMkIII 发表于 2025-6-25 09:05</a>
+
+为什么要给开勇士都打不过高达的人塞兹达毕格罗加里波第，拉拉你是不是在乱玩 ...</blockquote>
+山楂饼也上了啊，一样打不过
+
+拉拉也是死马当活马医，啥都要试试
+
+*****
+
+####  勿徊哉  
+##### 22337#       发表于 2025-6-25 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994772&amp;ptid=2209276" target="_blank">北天褚 发表于 2025-6-25 00:31</a>
+所以说番茄开赛克谬握住的操纵杆其实是骡子的小手</blockquote>
+喷了，这片完全在搞原作共轭吧
+
+骡子成了机械，也当了麻球的父亲
+
+*****
+
+####  失落之翼  
+##### 22338#       发表于 2025-6-25 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996207&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-25 09:39</a>
+
+拉拉挡了枪之后鸭子后面不还是死了吗，93年和骡子一起死了吧。所以还是直接解决骡子把，骡子没了世界都变 ...</blockquote>
+拉拉的NT等级真能压过骡子么<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勿徊哉  
+##### 22339#       发表于 2025-6-25 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994804&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 00:35</a>
+可别后续了，再来一次你们吃还是不吃。</blockquote>
+我草，这种娱乐性拉满的官方同人有多少看多少。不限于高达，任何剧情向的原作的行。
+
+*****
+
+####  石窝大雕  
+##### 22340#       发表于 2025-6-25 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996337&amp;ptid=2209276" target="_blank">勿徊哉 发表于 2025-6-25 09:53</a>
+
+我草，这种娱乐性拉满的官方同人有多少看多少。不限于高达，任何剧情向的原作的行。 ...</blockquote>
+让光头做一部EVA if
+
+*****
+
+####  猪突猛进R  
+##### 22341#       发表于 2025-6-25 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996231&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 09:43</a>
+
+但是“那红色机体”始终不是沙扎比
+
+山下也没说过
+
+搞笑列专用机画面就完事了</blockquote>
+之前有人提到过，那台山楂饼可能像汉谟拉比一样是徒有其表的架子货。
+
+*****
+
+####  qixinno2  
+##### 22342#       发表于 2025-6-25 09:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骡子NT能力不见得有多夸张 但NT能力相性和战斗结合的太好了 战斗时又心黑手狠纯完美战士
+
