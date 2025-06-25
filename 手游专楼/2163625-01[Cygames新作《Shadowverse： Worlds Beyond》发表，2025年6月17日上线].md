@@ -4400,3 +4400,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 目前170抽，虹卡出的差不多了，好消息是没怎么出皇妖俩老头，坏消息是两大t1的关键虹yyr和oqs一张都没有<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 304#       发表于 2025-6-25 12:42
+
+这傻逼箱子收益NM是按一代算的吧？？？
+

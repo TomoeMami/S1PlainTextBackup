@@ -3217,3 +3217,63 @@ md通缉犯生活这么惬意吗
 
 至于原创三小只？剧情推进工具人啦<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 22445#       发表于 2025-6-25 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996714&amp;ptid=2209276" target="_blank">chensquare 发表于 2025-6-25 10:41</a>
+此事在梗图中亦有记载。</blockquote>
+麻球你手放哪里呢？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嘉术2015  
+##### 22446#       发表于 2025-6-25 12:40
+
+年轻人的第一部高达，问一下为什么夏亚原本世界里，他妹妹会跟他敌对啊
+
+*****
+
+####  所在彼方  
+##### 22447#       发表于 2025-6-25 12:42
+
+评价为就算比搞笑都不如钢弹桑
+
+
+*****
+
+####  qixinno2  
+##### 22448#       发表于 2025-6-25 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997513&amp;ptid=2209276" target="_blank">faxi 发表于 2025-6-25 12:35</a>
+
+那个虽然确实丢人，但也是夏亚这个人一生的完美映照和总结，没什么问题啊
+
+然后一想到这2人的动画共演最后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一还是别出来了 逆鸭初次看我觉得更多可能感觉是你在说什么呢 后面看的次数越来越多就觉得丢人搞笑了
+
+*****
+
+####  七七見奈波  
+##### 22449#       发表于 2025-6-25 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997532&amp;ptid=2209276" target="_blank">lion_or_judas 发表于 2025-6-25 12:37</a>
+
+之前剧透就看到最后那个分镜的
+
+整体12话的感想
+
+哇这是真想用现代作画重置0079？</blockquote>
+正牌老登怎么也得当个原教旨主义者，要请就请井上瑶，可是已经请不到了
+
+*****
+
+####  28201  
+##### 22450#       发表于 2025-6-25 12:47
+
+还真别说，钢弹桑虽然恶搞是真的恶搞，对人物理解比一串还是强太多了
+
