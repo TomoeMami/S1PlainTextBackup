@@ -7022,3 +7022,25 @@ overdrive怎么开的
 但是不知道是怎么触发的 ...</blockquote>
 r1+X/A. 主动的爆裂技能.加普通攻击速度和威力.开启时候有快速的伤害很弱的攻击动作并且可以打断boss.
 
+
+*****
+
+####  oyss  
+##### 3589#       发表于 2025-6-26 00:13
+
+太空站中间的傀儡boss,开场激光横扫,就可以跳他脸空中4轻一重.
+
+曼恩大光剑横扫也可以跳. 渡鸦有那种起身砸地的招也可以跳起来躲.
+
+*****
+
+####  strider_oy  
+##### 3590#       发表于 2025-6-26 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999975&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-25 03:37</a>
+格挡闪避后的反击红刀可以打断boss吧，其实还是有窗口的
+恰恰是因为有快慢刀的存在，快刀格挡或闪避了以 ...</blockquote>
+反击红刀能被小怪打断，boss如果接一个大范围技能也会被打断，能用来打断的场景非常有限。我经常习惯性闪避后接红刀然后被boss教做人，红刀只有特定的时机才能接，而且收益也不高，感觉只有民工beta的一半伤害
+
+— from samsung SM-S911U1, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
