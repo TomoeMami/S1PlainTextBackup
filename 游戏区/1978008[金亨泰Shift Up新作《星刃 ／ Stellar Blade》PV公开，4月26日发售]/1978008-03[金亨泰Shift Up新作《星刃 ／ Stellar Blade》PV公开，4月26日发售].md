@@ -6703,3 +6703,28 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 
 只有打小怪的时候，完全放开招架键，才容易用的出来
 
+
+*****
+
+####  Andariel  
+##### 3563#       发表于 2025-6-25 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000055&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-25 19:54</a>
+这招我大部分的时候会被系统判成爆裂三连戳或者横劈
+
+只有打小怪的时候，完全放开招架键，才容易用的出来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">套用ftg的一个说法，这叫指令不干净
+当然我也不是什么高手，随便讲一讲这个思路罢了
+
+
+*****
+
+####  darkangel0224  
+##### 3564#       发表于 2025-6-25 20:10
+
+<blockquote>Andariel 发表于 2025-6-25 20:05
+套用ftg的一个说法，这叫指令不干净
+
+当然我也不是什么高手，随便讲一讲这个思路罢了 ...</blockquote>
+这游戏真的有完全不抖刀，能完美闪避招架的大神吗？（葛优躺
+
