@@ -5558,3 +5558,11 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 番茄是这个世界的原住民啊？阿修终结这个世界同于我要干掉你， ...</blockquote>
 迦勒底跟每个异闻带的NPC也都很聊得来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 22633#       发表于 2025-6-25 18:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

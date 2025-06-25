@@ -10158,3 +10158,18 @@ Avenger：哈基蜗
 
 河马王的永夜现在就能买，我觉得主要执行者用得上。
 
+
+*****
+
+####  jacket  
+##### 985#       发表于 2025-6-25 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999731&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-25 18:38</a>
+
+人马基本是万能配
+
+蝶蝎基本是法师和复仇者毕业配之一</blockquote>
+无赖目前是两词条保底，虚血词条、技艺词条，如果这俩能出现在一个遗物里就无敌了。
+
+第三个词条本来用的是受伤增伤，但自从有了监牢遗物就让位置了。
+
