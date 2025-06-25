@@ -5148,3 +5148,35 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 
 独角兽光是带ZZ玩而且比例还不低，就已经比所谓UC嘉年华高到不知哪去了
 
+
+*****
+
+####  whzfjd  
+##### 22608#       发表于 2025-6-25 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999410&amp;ptid=2209276" target="_blank">albertfu 发表于 2025-6-25 17:28</a>
+
+最蚌埠住的还是舵手小哥那句“人死了就啥都没了”
+
+和“人被杀，就会死”一个级别的废话 ...</blockquote>
+这句话在劝人别加班别自杀时不是很常见
+
+*****
+
+####  ヒトニナル  
+##### 22609#       发表于 2025-6-25 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998971&amp;ptid=2209276" target="_blank">芝村舞 发表于 2025-6-25 16:22</a>
+更搞笑的是拉拉本人从未提及修司，或者在脑内闪回过这个人。
+
+修司就是个拉拉本人都不太清楚的舔狗一样， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我还是比较乐意脑补拉拉的确认知到修司了，玛秋就是为了让他别再跟踪而捏出来的可人儿，因为实在太恶心了所以拉拉完全不愿意去想这个男人
+
+
+*****
+
+####  aptx8285144  
+##### 22610#       发表于 2025-6-25 17:41
+
+夸克斯的更大意义大概是扶鸭妹(那个好像是她)上台给鸡瘟更好的未来吧，中间过程混乱是鹤卷这些人能力问题或者说他们要缝合的大杂烩太多只知道烂炒，注意力不在讲故事上
+
