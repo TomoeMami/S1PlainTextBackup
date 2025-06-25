@@ -31,3 +31,18 @@
 
 半边淋湿也是会钓<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 2357#       发表于 2025-6-25 21:37
+
+在这天发，又不打tag，何意味
+
+*****
+
+####  osore  
+##### 2358#       发表于 2025-6-25 21:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咖啡厅名义，相当于角色本人发的，当然不打百合tag啊
+
