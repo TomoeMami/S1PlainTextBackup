@@ -10062,3 +10062,23 @@ Avenger：哈基蜗
 
 打倒敌人时绝招能量积累
 
+
+*****
+
+####  医生狼多  
+##### 982#         楼主| 发表于 2025-6-25 18:18
+
+铁眼一般拿什么词条好(局内
+
+*****
+
+####  jacket  
+##### 983#       发表于 2025-6-25 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999658&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-25 18:17</a>
+
+人马的非常实用。
+
+提升精力上限</blockquote>
+还行，正好手上没有合适的杀螃蟹词条
+

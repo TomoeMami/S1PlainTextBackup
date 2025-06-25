@@ -5353,3 +5353,89 @@ gqx：那一天的忧郁，忧郁起来~
 
 这舵手才是幽默完了，老给他意义不明的镜头就是不说话，还以为最后要一语惊人，结果就来这么一句
 
+
+*****
+
+####  岸浪白野  
+##### 22620#       发表于 2025-6-25 18:20
+
+[X 上的 ババヤガ：“METAL ROBOT魂 ＜SIDE MS＞ GQuuuuuuX 最終仕様 #メタルロボット魂 #ジークアクス #GQuuuuuuX [url]https://t.co/5Jj9AsR0Sc](https://x.com/v2ab29/status/1937811802479571004)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/181854lolai44509ej5gyj.jpg" referrerpolicy="no-referrer">
+
+<strong>JLXJ1Y7[4GY]~{1$I6Z9{UJ_tmb.jpg</strong> (169.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/181909gbyyhybbxubg54o2.jpg" referrerpolicy="no-referrer">
+
+<strong></strong> (158.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/181930imk81ewqqoz40r7j.jpg" referrerpolicy="no-referrer">
+
+<strong>~J[~8O606B@FE`S1%XD$K_tmb.jpg</strong> (171.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/181951iee4weebepmj4nen.jpg" referrerpolicy="no-referrer">
+
+<strong>9L87GA]{3H1HQ)6H}CNW[PM_tmb.jpg</strong> (168.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:19 上传
+
+*****
+
+####  岸浪白野  
+##### 22621#       发表于 2025-6-25 18:21
+
+[X 上的 ババヤガ： METAL ROBOT魂 ＜SIDE MS＞ ガンダム（GQ） #メタルロボット魂 #ジークアクス #GQuuuuuuX [url]https://t.co/LGVIq0x95V](https://x.com/v2ab29/status/1937811357522628694)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/182112n8ugsssku9se3z9r.jpg" referrerpolicy="no-referrer">
+
+<strong>%Z]B8QRAQUH4~Z8])()E)YY_tmb.jpg</strong> (200.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:21 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/182127abfgxy7xxa5gqwex.jpg" referrerpolicy="no-referrer">
+
+<strong>T[FZFFE1W2(R`(MQ1~~X44C_tmb.jpg</strong> (132.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:21 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/182140knbdwiu1eqgdeh7i.jpg" referrerpolicy="no-referrer">
+
+<strong>61)ZJWQKVMLE1CIB5MUZ%(1_tmb.jpg</strong> (115.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:21 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/182154rhhtrgtgozrfacwy.jpg" referrerpolicy="no-referrer">
+
+<strong>}`HIRJ~64V137(H_T58_QKO_tmb.jpg</strong> (237.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:21 上传
+
+*****
+
+####  dreamenory  
+##### 22622#       发表于 2025-6-25 18:23
+
+第7话gqux以及小番茄的红眼形态也没个说法吧...
+
