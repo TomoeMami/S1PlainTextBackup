@@ -1672,3 +1672,16 @@ re:act还活着啊，两个单曲
 
 2025-6-24 21:13 上传
 
+
+*****
+
+####  若流水  
+##### 1330#       发表于 2025-6-25 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67984097&amp;ptid=2171972" target="_blank">若流水 发表于 2025-6-23 10:13</a>
+
+看别人试走真的没意思，还不如我自己打的同步档，起码我跟knm的互殴是来真的
+
+顺带静冈这地方搞三年缚是真 ...</blockquote>
+呃真的次轮败退了......静冈这地方真的不行，当然明晃晃搞制裁局的knm更恶心
+
