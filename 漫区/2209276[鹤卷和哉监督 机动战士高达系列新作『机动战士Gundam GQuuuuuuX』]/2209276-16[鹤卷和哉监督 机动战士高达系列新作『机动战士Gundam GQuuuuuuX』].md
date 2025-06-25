@@ -2652,3 +2652,102 @@ md通缉犯生活这么惬意吗
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 22399#       发表于 2025-6-25 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995554&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 07:32</a>
+
+这个就单纯就是红色机体不代表什么
+
+东海村原八给白色机体设计出了那副图看不到的下半身还整出模型
+
+山下就画 ...</blockquote>
+
+哦对了，忘了山下18年就说过我可没叫过是什么沙扎比了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/25/105433sp558suug9u2u24u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (238.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 10:54 上传
+
+*****
+
+####  早乙女元气  
+##### 22400#       发表于 2025-6-25 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995037&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-25 01:13</a>
+
+对了鹤卷gg，请问冷战在哪？</blockquote>
+被当作阻碍一炮轰掉的side6萨拉米斯，对战后日本和自卫队的地位有清醒认识（瞎编的）
+
+
+*****
+
+####  pandaman7777  
+##### 22401#       发表于 2025-6-25 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996502&amp;ptid=2209276" target="_blank">猎人D 发表于 2025-6-25 10:11</a>
+
+庵野鹤卷这些人哪是鸭子梦男，隐藏鸭黑还差不多</blockquote>
+附议，12话下来可谓乳鸭新高度
+
+战斗力不行（无数个世界里被骡薄纱，在ban了骡的主世界里和绿叔叔五五开）
+
+政治能力不行（鸭妹上台才有美好的未来，鸭远离政治只配隐居和拉拉过每日三次五次的生活）
+
+*****
+
+####  Sliurus  
+##### 22402#       发表于 2025-6-25 10:59
+
+仔细想想，这片写得最细致的cp是不是鸭紫，有铺垫有真相大白<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。这功力但凡多给点三小只……
+
+*****
+
+####  Steel.Haze  
+##### 22403#       发表于 2025-6-25 11:01
+
+顺便说个猜想。
+
+巨大782战斗，我又看了几遍，基本我个人觉得这是原第七话废案。鹤卷舍不得，拿来搞在这里用了。这个是原来的夸克斯（番茄驾驶）和红高达大战精神力高达的分镜。估计是精神力暴走后一路破坏，然后两机试图阻止大战，最后红高达被捉住后危急中强制传送走了。然后番茄暴走，夸克斯在这边就首次开嘴，然后暴走击败精神力高达（并巧合的按照军团战枭首），且变大的估计是扎古斧的能量部分，不是夸克斯剑变斧型。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22404#       发表于 2025-6-25 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996792&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-6-25 10:54</a>
+
+让竹多画点现代化改造角色，什么卡缪朱总，然后随便来点后日谈混混好过
+
+但这个赛道感觉也比不过胶达 ...</blockquote>
+胶达打网游还是小家子气了，再起赢在有宏大但不过分严肃的冒险。
+
+*****
+
+####  岸浪白野  
+##### 22405#       发表于 2025-6-25 11:05
+
+<img src="https://img.stage1st.com/forum/202506/25/110516qakzk5rg9uigakkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (882.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/110522u8b2bbz3x8z2jxtf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (829.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:05 上传
+

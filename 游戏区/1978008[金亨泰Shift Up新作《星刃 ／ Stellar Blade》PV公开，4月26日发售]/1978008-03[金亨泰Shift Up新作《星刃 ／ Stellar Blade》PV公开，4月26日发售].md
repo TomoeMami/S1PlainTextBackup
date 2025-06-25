@@ -6483,3 +6483,14 @@ b站随便搜吧这种
 
 二周目的新增技能也点满了是不是经验就没用了，总不会三周目还能解锁新的技能吧，经验组件从头带到尾，现在sp点数已经完全溢出了
 
+
+*****
+
+####  hayamitetsu  
+##### 3548#       发表于 2025-6-25 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995946&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-6-25 09:12</a>
+
+这套叫啥？</blockquote>
+拍照任务给的，好像叫烽火啥来的
+
