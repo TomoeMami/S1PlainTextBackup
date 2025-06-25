@@ -4464,3 +4464,83 @@ jzgg用daxx召唤出了eva终，如果鹤卷庵野成功用gqx召唤出富野新
 
 一想到gqx机魂是骡子，前边搂搂抱抱机魂大悦的戏码，太幽默啦
 
+
+*****
+
+####  Steel.Haze  
+##### 22552#       发表于 2025-6-25 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998577&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-6-25 15:28</a>
+
+拉拉早已经创造出没有骡子的世界了，但还是有个人会开白色高达把夏亚杀死，所以才创造了让夏亚开上白色高达 ...</blockquote>
+我明白你的意思，不过那一幕复刻有台词，机体反应也和79TV一样，甚至声优都特意请了老声优，所以我倾向于休斯还是来自更后面的世界。
+
+*****
+
+####  07579394  
+##### 22553#       发表于 2025-6-25 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998666&amp;ptid=2209276" target="_blank">cxj649 发表于 2025-6-25 15:40</a>
+
+但能瞬移，传音，分身幻影，见鬼，推比恐龙灭绝还大的陨石，还有增幅光剑成巨大光剑
+
+顺便请不要指望日本人 ...</blockquote>
+除了推陨石都是可以辨经的范围
+
+*****
+
+####  psycho_Gadfly  
+##### 22554#       发表于 2025-6-25 15:57
+
+<blockquote>孤舟垂钓 发表于 2025-6-25 15:53
+一想到gqx机魂是骡子，前边搂搂抱抱机魂大悦的戏码，太幽默啦</blockquote>
+所以骡子风评不是被害得更厉害……
+
+
+*****
+
+####  岸浪白野  
+##### 22555#       发表于 2025-6-25 16:02
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“✨ガンプラ商品化解禁✨ 『機動戦士Gundam GQuuuuuuX』より GQuuuuuuX(エンディミオン・ユニット覚醒時)がHGで商品化！ 詳細は後日公開！ ▼ガンプラ特設サイトはこちら [url]https://t.co/9WasWdfkoL](https://x.com/HobbySite/status/1937782896234025009) #ガンプラ #GQuuuuuuX #ジークアクス [https://t.co/wFmddmFZvl](https://t.co/wFmddmFZvl)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/160159c6yr8ffoomrnoq2m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 16:01 上传
+
+*****
+
+####  cxj649  
+##### 22556#       发表于 2025-6-25 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998771&amp;ptid=2209276" target="_blank">07579394 发表于 2025-6-25 15:55</a>
+
+除了推陨石都是可以辨经的范围</blockquote>
+所谓“辨经”也是嘴硬洗地而已
+
+本质上还是超能力大战
+
+*****
+
+####  llysander  
+##### 22557#       发表于 2025-6-25 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997559&amp;ptid=2209276" target="_blank">嘉术2015 发表于 2025-6-25 12:40</a>
+
+年轻人的第一部高达，问一下为什么夏亚原本世界里，他妹妹会跟他敌对啊</blockquote>
+在木马上纯属意外，他以为“没时间解释了你快跑”能说服妹妹的。
+
+鸭妹思路比较正常，前朝公主可以远走他乡混完一生，也可以干点事业。
+
+鸭非要去当卧底复仇，但是复仇又没头苍蝇一样东一枪西一枪缺乏大方向。这才会在（表面上是）敌对阵营碰上
+
+我一直觉得这角色身上想传达的是，犹豫不决的丢人家伙就算有力量也只会让世界更糟，这点在z里最明显，明明从头到脚都不是乐子人却达成了最混中乐子人的效果<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+鸭对鸭妹在元祖到gto都是挺一贯负责的，负责同时又拒绝，你快跑别管我要干啥 这样。
+
+z之后鸭妹出场只有一两句，对哥哥评价基本总结为“这人真不行”<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">，算是非常了解鸭的人，cca里鸭手下/黄昏阿克西斯的角色带着总帅光环看鸭反而迷糊，鸭是真没方向，30多岁孤寡老人选择开着悲伤小鸟找老友来场决斗...
+

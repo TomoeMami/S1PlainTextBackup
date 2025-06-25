@@ -4497,3 +4497,40 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 看了下说是5个箱子都是金币的话下限是1.1包<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyjssj1  
+##### 315#       发表于 2025-6-25 15:55
+
+死鬼真是下水道吗。自己初始+前期抽卡把死鬼的虹差不多抽了个七七八八，然后也没看强度直接花了点乙太搞了一幅卡组。
+
+打到现在应该快100把了，好像就匹配到一次死鬼内战，笑死。
+
+网上说死鬼是唯一下水道，我感觉还行，死鬼其实挺全面的。。
+
+*****
+
+####  windhawind2  
+##### 316#       发表于 2025-6-25 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998440&amp;ptid=2163625" target="_blank">取名真是难 发表于 2025-6-25 15:08</a>
+
+带点土偶和522，前面这些都不怎么劣，但是你的梦爹还是爹</blockquote>
+土偶522都带了2 但又不能带多 带多了和中速打不了value
+
+现在增幅还是太缺润滑了 之后准备转虫妖慢慢上m去了
+
+
+*****
+
+####  windhawind2  
+##### 317#       发表于 2025-6-25 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998767&amp;ptid=2163625" target="_blank">lyjssj1 发表于 2025-6-25 15:55</a>
+
+死鬼真是下水道吗。自己初始+前期抽卡把死鬼的虹差不多抽了个七七八八，然后也没看强度直接花了点乙太搞了 ...</blockquote>
+昨晚在小糖人乐园里看连胜桌有个梦（死/鬼）直接10连胜。。把鱼丸low到爆炸了。
+
+梦就是个全能中速 快能打法师 慢能low死鱼丸 但应该打不过虫妖和正统中速king皇家吧。。而且主要太贵了
+
