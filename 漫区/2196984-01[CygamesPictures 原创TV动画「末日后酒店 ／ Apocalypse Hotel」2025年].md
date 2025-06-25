@@ -7929,3 +7929,23 @@ no Yachiyo no life！
 我吹爆，home变成hotel</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜讯，CYP下一部依然是homo
 
+
+*****
+
+####  aptx8285144  
+##### 674#       发表于 2025-6-25 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000962&amp;ptid=2196984" target="_blank">我是大鲨鱼1453 发表于 2025-6-25 23:06</a>
+
+我觉得这部比起终末列车来，最大也是最聪明的优点就是不去强行推一条莫名其妙的主线剧情。多少开局惊艳的 ...</blockquote>
+而且就算没有“明确的主线”，八千代的个人危机倒数第二话解决，最终话解决八千代对人类执念问题，狸猫家族对八千代的感谢在红白事回，这些必须解决的问题或传达的感情或者说贯穿始终的线都巧妙地解的很好
+
+*****
+
+####  秋雨灰灰  
+##### 675#       发表于 2025-6-25 23:45
+
+无敌了，收尾这么稳，年度最佳确定
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
