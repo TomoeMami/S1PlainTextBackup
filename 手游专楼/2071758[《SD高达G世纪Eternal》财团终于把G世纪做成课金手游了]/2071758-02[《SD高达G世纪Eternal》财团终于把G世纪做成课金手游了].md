@@ -5812,3 +5812,16 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 能加些远程招数吧
 
+
+*****
+
+####  HEERO.W  
+##### 2007#       发表于 2025-6-25 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999198&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-6-25 16:57</a>
+
+话说官方说过gqx过后面会强化的吧？
+
+能加些远程招数吧</blockquote>
+没说过，以讹传讹
+
