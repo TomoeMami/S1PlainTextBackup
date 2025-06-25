@@ -4392,3 +4392,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金币好像已经攒了1w2了，看着多认真一想才20多包，还得继续攒
 
+
+*****
+
+####  duraa  
+##### 303#       发表于 2025-6-25 09:22
+
+目前170抽，虹卡出的差不多了，好消息是没怎么出皇妖俩老头，坏消息是两大t1的关键虹yyr和oqs一张都没有<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+

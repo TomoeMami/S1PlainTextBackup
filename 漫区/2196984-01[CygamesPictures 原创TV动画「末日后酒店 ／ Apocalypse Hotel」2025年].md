@@ -7578,3 +7578,20 @@ no Yachiyo no life！
 
 隔壁一串G有种我他妈在看了啥的感觉
 
+
+*****
+
+####  KDConan  
+##### 638#       发表于 2025-6-25 09:18
+
+就一个稳字<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kwin_  
+##### 639#       发表于 2025-6-25 09:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">完美落地了。地球人是回来了但也不会常驻，这个出人意表的结局也很不错
+

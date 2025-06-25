@@ -6415,3 +6415,21 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 过了但还是很不爽，浪费我时间</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我倒是挺喜欢这类关卡的  当然难度不能太高 别跟蔚蓝一样
 
+
+*****
+
+####  洛克萨斯  
+##### 3541#       发表于 2025-6-25 09:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有钓鱼，拍照，一些零碎支线要清，之后就是高塔和9号，感觉快打完了
+
+*****
+
+####  alucardcz  
+##### 3542#       发表于 2025-6-25 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995982&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-6-25 09:15</a>
+
+圣诞皮肤是怎么获得的？</blockquote>
+主城中间圣诞树
+
