@@ -4461,3 +4461,21 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 还行吧，打了6把就拿了4个箱子，感觉概率比1代高多了
 
+
+*****
+
+####  windhawind2  
+##### 311#       发表于 2025-6-25 15:02
+
+不行了 法师上钻以后光速被打回蓝宝石 全是疾走教、虫妖、偏快的皇、唯一亲爹中速梦<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  取名真是难  
+##### 312#       发表于 2025-6-25 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998414&amp;ptid=2163625" target="_blank">windhawind2 发表于 2025-6-25 15:02</a>
+
+不行了 法师上钻以后光速被打回蓝宝石 全是疾走教、虫妖、偏快的皇、唯一亲爹中速梦鱼丸本来最多就55-46之 ...</blockquote>
+带点土偶和522，前面这些都不怎么劣，但是你的梦爹还是爹
+
