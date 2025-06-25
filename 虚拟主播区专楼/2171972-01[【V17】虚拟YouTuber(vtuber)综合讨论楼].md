@@ -1697,3 +1697,14 @@ re:act还活着啊，两个单曲
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  若流水  
+##### 1332#       发表于 2025-6-25 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000699&amp;ptid=2171972" target="_blank">usodakedo 发表于 2025-6-25 22:16</a>
+
+唉，没办法，为了保持人设，估计lize今后如果再参加还是会选择赫国，今天也是大起大落，尤其是和西西同时 ...</blockquote>
+坚持静冈能拿到冠军也算是还好了，就是今天这个运气太离谱了，虽然我说运气差点会次轮败退，但是没想到第二轮就上这么经典的制裁局，以及821能踩出回体力给我看笑了，记得这里大概是七到八成的概率出特训格，不得不说lize最近真的是小概率高手<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
