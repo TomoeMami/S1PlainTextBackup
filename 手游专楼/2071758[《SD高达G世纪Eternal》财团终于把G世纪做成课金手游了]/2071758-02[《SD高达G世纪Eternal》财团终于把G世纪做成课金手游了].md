@@ -5750,3 +5750,14 @@ SD恁早就参战了啊，那估计会有不少UR了
 
 19w5了 明天20w
 
+
+*****
+
+####  电脑死机  
+##### 2001#       发表于 2025-6-25 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994822&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-6-25 00:38</a>
+
+SD恁早就参战了啊，那估计会有不少UR了</blockquote>
+有骑士高达的话，估计续篇、三国什么的都在路上了，已经在担心1000个机体格子不够用了
+

@@ -1019,3 +1019,125 @@ EVA日常进机战都是被挽尊的存在<img src="https://static.stage1st.com/
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzf111  
+##### 22251#       发表于 2025-6-25 08:36
+
+md通缉犯生活这么惬意吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+俩人又是阳光沙滩又是小屋唱K好像完全不着急钱的样子
+
+难道黑拳那些钱还在账上没被没收
+
+*****
+
+####  阿兹尔  
+##### 22252#       发表于 2025-6-25 08:38
+
+小番茄还能考公吗，还是要靠着父母走特殊渠道才行了
+
+*****
+
+####  conanlm  
+##### 22253#       发表于 2025-6-25 08:39
+
+拉拉愤怒那个表情太恐怖了
+
+有点不符合拉拉那个人设啊
+
+干嘛不做成极度悲伤的表情
+
+*****
+
+####  mengsu  
+##### 22254#       发表于 2025-6-25 08:39
+
+B站评论笑死。
+
+可以预见高达gqx完结后观众基本分为两波
+
+正方:这三个月高达主题乐园逛的真开心
+
+反方:逛了三个月才发现逛的不是故宫而是主题乐园
+
+
+*****
+
+####  千千千千鸟  
+##### 22255#       发表于 2025-6-25 08:40
+
+夏利亚是戴肯派而最后是鸭妹上台，随便出一个特赦就完事了吧怎么会通缉的
+
+—— 来自 vivo V2227A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mengsu  
+##### 22256#       发表于 2025-6-25 08:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">扎比家死干净了那么大一个阿巴瓦空没了总得有个人背锅吧，甩到确实想宰了扎比家的绿叔叔身上完事。
+
+好奇没了扎比的吉翁要怎么评价扎比一家人？革命先驱？战争英雄？
+
+*****
+
+####  DTCPSS  
+##### 22257#       发表于 2025-6-25 08:43
+
+<img src="https://img.stage1st.com/forum/202506/25/084303ti2r0lb40w049ula.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 08:43 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/084305geypuewyvpuwtvyp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 08:43 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/084306xeib9y5566i6dbgt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 08:43 上传
+
+*****
+
+####  Yugao  
+##### 22258#       发表于 2025-6-25 08:43
+
+窃取胜利果实
+
+
+*****
+
+####  西洛克  
+##### 22259#       发表于 2025-6-25 08:45
+
+gqx戴肯派和扎比派没有完全撕破脸，大概是背了刺杀紫婆的锅。
+
+不过这样推断戴肯派是不是有点废物，老戴肯的死没有追究，自己的亲信背了锅还保不住。
+
+*****
+
+####  adretyu67.  
+##### 22260#       发表于 2025-6-25 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995766&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-25 08:41</a>
+
+扎比家死干净了那么大一个阿巴瓦空没了总得有个人背锅吧，甩到确实想宰了扎比家的绿叔叔身上完事。
+
+好奇没 ...</blockquote>
+当初紫婆枪毙瘦子，下面的小兵立马脑子转过来总帅英勇牺牲殉国啦，我们服从基西莉亚大人<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+这里估计也差不多吧，直接表示扎比家精忠报国为国捐躯，现觅得鸡瘟公国正统在此，理应拥护了。
+
