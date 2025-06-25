@@ -3740,3 +3740,57 @@ UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世
 
 第8次红高达
 
+
+*****
+
+####  07579394  
+##### 22487#       发表于 2025-6-25 14:08
+
+好气又好笑，不懂量子力学就先补一下再写，不要搞得像少年漫里的超能力大战，B格都掉光了
+
+*****
+
+####  七七見奈波  
+##### 22488#       发表于 2025-6-25 14:10
+
+之前说精神小妹厕妹也就算了，说太妹是不是太过分了，这是词语滥用，太妹这个词在现时通常语境里基本上和拉帮结派搞校暴是直接关联的，喵安失学儿童不用说，麻球在学校跟同学关系明显还不错的只是来往不走心而已，怎么也说不上太妹吧
+
+*****
+
+####  liy30dlys  
+##### 22489#       发表于 2025-6-25 14:10
+
+估计本来想法就是一半情怀一半新角色然后卖胶，虽然有点割裂，指新人还是类似那种胶达对战打法，但其他老人物打起来很要命
+
+结果来说观感确实比几部全新世界观好多了
+
+*****
+
+####  太极八爪鱼  
+##### 22490#       发表于 2025-6-25 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995862&amp;ptid=2209276" target="_blank">P-link 发表于 2025-6-24 17:00</a>
+
+不是创战者HG打PG吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不是cos大白丽么
+
+*****
+
+####  棍机凹升龙  
+##### 22491#       发表于 2025-6-25 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995226&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-6-25 01:53</a>
+
+本来想着看完之后去补0079的
+
+但是现在总觉得要是因为夸克斯去补0079有点火大，五年后再去补吧</blockquote>
+我是中途去补的，现在想了下，幸亏我是中途就去补完而不是先看完gqux<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好想看Mujica啊  
+##### 22492#       发表于 2025-6-25 14:15
+
+你在中日约同人文然后改编剧本，都不会比现在这个搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
