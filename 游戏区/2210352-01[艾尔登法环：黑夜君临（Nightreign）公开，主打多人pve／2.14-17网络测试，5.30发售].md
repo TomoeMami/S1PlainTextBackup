@@ -10034,3 +10034,31 @@ Avenger：哈基蜗
 历战冰龙是啥</blockquote>
 之前在换永夜王徽章的地方，可以靠解包看到其它几个永夜王的徽章。冰龙卡莉果的永夜徽章是冻伤隐型+给出击武器直接赋予冰冻属性。而不是原来的技能，不需要上技能，武器直接带冰冻。其实可以推导出很多新玩法，比如铁眼冻隐流邓。
 
+
+*****
+
+####  jacket  
+##### 980#       发表于 2025-6-25 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999592&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-25 18:01</a>
+
+之前在换永夜王徽章的地方，可以靠解包看到其它几个永夜王的徽章。冰龙卡莉果的永夜徽章是冻伤隐型+给出击 ...</blockquote>
+人马是啥词条，考虑要不要提前多打点币
+
+
+*****
+
+####  Steel.Haze  
+##### 981#       发表于 2025-6-25 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999636&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-25 18:11</a>
+
+人马是啥词条，考虑要不要提前多打点币</blockquote>
+人马的非常实用。
+
+提升精力上限
+
+附加属性攻击时，提升属性攻击力（游戏里面拿到的属性武器都算）
+
+打倒敌人时绝招能量积累
+

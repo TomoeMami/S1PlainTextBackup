@@ -5323,3 +5323,33 @@ X 上的 YY：“文字な ...</blockquote>
 
 gqx：那一天的忧郁，忧郁起来~
 
+
+*****
+
+####  岸浪白野  
+##### 22618#       发表于 2025-6-25 18:10
+
+[X 上的 アサゲン：“ジークアクス最終話、ご視聴ありがとうございました！ 参加出来て幸せでした！ 画像は最終話の原画です(掲載許可頂きました) #GQuuuuuuX #ジークアクス [url]https://t.co/QawHv2wBMG](https://x.com/geasa90/status/1937811923669750199)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/181047r4uqmuuullzbn1lu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:10 上传
+
+*****
+
+####  冷静先找时光机  
+##### 22619#       发表于 2025-6-25 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999410&amp;ptid=2209276" target="_blank">albertfu 发表于 2025-6-25 17:28</a>
+
+最蚌埠住的还是舵手小哥那句“人死了就啥都没了”
+
+和“人被杀，就会死”一个级别的废话 ...</blockquote>
+人被杀就会死只是单拎出来比较废话，放那个语境下还是挺能体现土狼决心的
+
+这舵手才是幽默完了，老给他意义不明的镜头就是不说话，还以为最后要一语惊人，结果就来这么一句
+
