@@ -45027,3 +45027,11 @@ jimmy又在发疯……
 
 赢了但是差三分
 
+
+*****
+
+####  古战场亡魂  
+##### 18850#       发表于 2025-6-25 16:42
+
+练习赛，上中野全炸了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

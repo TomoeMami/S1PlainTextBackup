@@ -4784,3 +4784,76 @@ jzgg用daxx召唤出了eva终，如果鹤卷庵野成功用gqx召唤出富野新
 
 啊，原来同一套系统首席的同学们启动不了gqux但是能启动gfred的原因是
 
+
+*****
+
+####  猪突猛进R  
+##### 22579#       发表于 2025-6-25 16:37
+
+<img src="https://img.stage1st.com/forum/202506/25/163531f2reuteewjj4kvky.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1ad-1o45K2eT3cSsg-is.jpg</strong> (90.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/163529alfs88ets4fmjsnd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1ad-6cksK18T1kSgb-cr.jpeg</strong> (46.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 16:35 上传
+
+GQ鸭妹缺一个肯为她自爆的背心尊者<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 22580#       发表于 2025-6-25 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999057&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 16:37</a>
+
+GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
+“我自己自爆不就行了”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西洛克  
+##### 22581#       发表于 2025-6-25 16:42
+
+<blockquote>llysander 发表于 2025-6-25 16:33
+哪怕只是有93骡记忆残留的T字框架也有一百个理由不给吉恩佬开
+
+啊，原来同一套系统首席的同学们启动不了 ...</blockquote>
+首席同学基本刚选拔上就吃蛋糕了，未必有机会启动系统
+
+*****
+
+####  Sliurus  
+##### 22582#       发表于 2025-6-25 16:43
+
+论塞拉和莉莉娜谁更头铁
+
+*****
+
+####  LadySaazbaum  
+##### 22583#       发表于 2025-6-25 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998951&amp;ptid=2209276" target="_blank">llysander 发表于 2025-6-25 16:20</a>
+
+绿叔叔视角是这小子潜伏5年造大杀器安了什么心啊，虽然悲伤夜莺鸭也只是个未来的可能性，哪怕是1%，但博 ...</blockquote>
+打了一段话然后删了，不是很想对这部分做严肃讨论，因为显而易见老嗨们只是不膜CCA会死
+
+就，可以说，鸭子这个人“距离成为灭世反派只差一次创伤性事件”
+
+（这句话原本是EC同人里形容老万的，感受一下）
+
+那么我们合理推测万一拉拉难产挂了，鸭子有没有可能一边大喊NOOOO一边戴上面具呢？完全有可能<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+所以占据high grand的绿叔叔不如趁早下手
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这样一想就合理多了
+

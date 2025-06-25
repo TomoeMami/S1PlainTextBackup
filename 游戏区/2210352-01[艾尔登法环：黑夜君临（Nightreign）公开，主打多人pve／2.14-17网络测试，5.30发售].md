@@ -9991,3 +9991,14 @@ Avenger：哈基蜗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hirro  
+##### 976#       发表于 2025-6-25 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995998&amp;ptid=2210352" target="_blank">serj005 发表于 2025-6-25 09:17</a>
+
+还是想要一个常规肉鸽那种用每局结算的代币永久提升角色数值或者点技能的局外成长方式，现在这一套遗物系 ...</blockquote>
+其实每个职业核心有用必带的词条就那几个，其他配合追忆遗物和BOSS遗物效果大差不差了，一开始以为切换武器的很厉害发现其实真正厉害的是虫子和冰龙，尤其冰龙，完美词条
+
