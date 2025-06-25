@@ -7785,3 +7785,22 @@ no Yachiyo no life！
 
 平稳落地，不能多想细节和可行性的童话故事。最喜欢的还是11集，一股清流。
 
+
+*****
+
+####  tpsg  
+##### 660#       发表于 2025-6-25 19:25
+
+完结撒花，今年看的十几部中感觉最好的。
+
+感觉这部风格和去年的终末列车有点像，但个人感觉感官比列车的好很多。
+
+*****
+
+####  傘木希美  
+##### 661#       发表于 2025-6-25 19:28
+
+太强了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">敢于下判断！我的年度最佳了
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
