@@ -830,3 +830,26 @@ GQ起源<img src="https://p.sda1.dev/25/d2a9711bbfc00fc57fc9ac035a7039c2/image.j
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  秋月孝三  
+##### 22231#       发表于 2025-6-25 07:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995568&amp;ptid=2209276" target="_blank">小姨子 发表于 2025-6-25 07:39</a>
+
+结果主要应该是为了复刻
+
+要轮战力，在那个场合，所有人的nt能力都被提升到最大，已经不适合轮战力了，强 ...</blockquote>
+先不说鸡胯鸭提前觉醒NT的情况下NT还弱不弱的问题(其实正史鸭NT抛开玩梗的话也不弱，有精准识别NT和强化人灵压区别的水平。只是他自己觉得自己不行)，NT等级拉到同一水平才是更适合武评的情况，毕竟正史武评有个连官方也不敢正面回答的问题就是卡缪能不能定骡子的身<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西洛克  
+##### 22232#       发表于 2025-6-25 07:57
+
+<blockquote>秋月孝三 发表于 2025-6-25 07:49
+先不说鸡胯鸭提前觉醒NT的情况下NT还弱不弱的问题(其实正史鸭NT抛开玩梗的话也不弱，有精准识别NT和强化人 ...</blockquote>
+富野暗示过卡缪在z结局那个定身用一次就疯了（短暂掌握新人类的最高境界，但人类并没有承载这个境界的器量）。要是只能用一次的话能靠nt能力定身骡子感觉也不是不能接受
+
