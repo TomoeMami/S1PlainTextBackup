@@ -5118,3 +5118,33 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 —— 来自 HUAWEI TET-AN00, Android 12, 鹅球 v3.5.99</blockquote>
 纯一船废话解说仙人，观众都看见高达飞过来了害搁那解说呢<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pandaman7777  
+##### 22605#       发表于 2025-6-25 17:26
+
+本身独角兽里的巴上帝结晶成神单手接手电筒啥的我已经当做笑话来看了
+
+只有看完这个后想给大文豪道歉
+
+*****
+
+####  albertfu  
+##### 22606#       发表于 2025-6-25 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999343&amp;ptid=2209276" target="_blank">绞首浪漫派丶 发表于 2025-6-25 17:18</a>
+
+纯一船废话解说仙人，观众都看见高达飞过来了害搁那解说呢</blockquote>
+最蚌埠住的还是舵手小哥那句“人死了就啥都没了”
+
+和“人被杀，就会死”一个级别的废话
+
+
+*****
+
+####  创始’’’天翔  
+##### 22607#       发表于 2025-6-25 17:33
+
+独角兽光是带ZZ玩而且比例还不低，就已经比所谓UC嘉年华高到不知哪去了
+

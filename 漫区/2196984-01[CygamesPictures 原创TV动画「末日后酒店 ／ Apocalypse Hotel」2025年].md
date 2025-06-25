@@ -7761,3 +7761,27 @@ no Yachiyo no life！
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">太好看了，我好爱这部动画
 
+
+*****
+
+####  Kfly  
+##### 658#       发表于 2025-6-25 17:31
+
+这是要和谁联动呢，真是看不出来啊！
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/25/173131as0k2nxv4suuxh7a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 17:31 上传
+
+*****
+
+####  starfisher  
+##### 659#       发表于 2025-6-25 17:34
+
+平稳落地，不能多想细节和可行性的童话故事。最喜欢的还是11集，一股清流。
+
