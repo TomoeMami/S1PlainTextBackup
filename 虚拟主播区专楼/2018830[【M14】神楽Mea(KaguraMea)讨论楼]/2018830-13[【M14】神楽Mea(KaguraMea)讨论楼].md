@@ -45035,3 +45035,11 @@ jimmy又在发疯……
 
 练习赛，上中野全炸了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 18851#       发表于 2025-6-25 16:46
+
+心态别崩就行。
+
