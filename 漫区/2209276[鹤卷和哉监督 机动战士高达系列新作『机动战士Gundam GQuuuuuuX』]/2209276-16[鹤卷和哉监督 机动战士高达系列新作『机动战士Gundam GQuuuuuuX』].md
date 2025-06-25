@@ -6381,3 +6381,115 @@ SEED的基神不也是开始站联合，最后变成ZAFT的白衣。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cxj649  
+##### 22684#       发表于 2025-6-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000772&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 22:30</a>
+
+SEED的基神不也是开始站联合，最后变成ZAFT的白衣。
+
+而且鸭妹是吉翁的女儿，比拉克丝名正言顺多了。</blockquote>
+不，拉克丝更名正言顺
+
+拉克丝也是ZAFT创始人的女儿，而且种命剧情是狐狸议长名义上是克莱因派，弄出个假拉克丝当曹操
+
+只是好死不死的去刺杀拉失败，真拉克丝顺势归位<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 22685#       发表于 2025-6-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000645&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-25 22:05</a>
+
+你要这么理解那基西利亚才是本作女主啊</blockquote>
+基西莉亚的重点是旧人类要全完蛋给新人类让路，否则新人类就不能做自己想做的，并不一样
+
+*****
+
+####  岸浪白野  
+##### 22686#       发表于 2025-6-25 23:10
+
+[X 上的 ｼ ﾌﾞﾘ ﾝ ｶﾞ ﾙ：“うわっ [url]https://t.co/6R4ZOM6yth](https://x.com/shiburingaru321/status/1937548726719123578)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230414f060cq0fo2ccwxf9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:04 上传
+
+[X 上的 ひかげすみひと🎨にじそ東7/I-31：“100万枚描かれてそうなアムロと例のネットミーム [url]https://t.co/kLOC9cuvgy](https://x.com/kokehito/status/1937631613816582578)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230343mef3aejn0zh6fx5b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (978.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:03 上传
+
+[X 上的 まゆつば：“#GQuuuuuuX #ジークアクス 中の人 [url]https://t.co/oZcYHZ96eo](https://x.com/mytb_mono/status/1937786797024760024)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230459b9hzauapkafyakpu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:04 上传
+
+[X 上的 ふじ：“#GQuuuuuuX #ジークアクス 行くよ！！！！！！！！ [url]https://t.co/Akp7ECHzk4](https://x.com/f_ukkami/status/1937825095244030243)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230558vvys8740d78j7voc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:05 上传
+
+[X 上的 かねさだけいし/兼処敬士：“45年越しの恋 実らせてくれて本当にありがとう #シャア・アズナブル #ララァ・スン #GQuuuuuuX #ジークアクス [url]https://t.co/nknRM6VB5y](https://x.com/keic24/status/1937703343054536831)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230732lb3ti3tidtqdsb23.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:07 上传
+
+[X 上的 なおるな：“どこかで見たことのあるｲﾁｬｲﾁｬポーズ✨ [url]https://t.co/fNH2zYixK6](https://x.com/naoruna01/status/1937863812205719763)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231000orzppnrcbpmzy6r5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:10 上传
+
+[X 上的 縹：“[url]https://t.co/6rlLySk4FY](https://x.com/Gc4_0o/status/1937638364892815473)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230818dslhvhw7zhjxknwh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (948.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:08 上传
+
+[X 上的 elmar：“初めまして #GQuuuuuuX #ジークアクス #シャア・アズナブル #ララァ・スン [url]https://t.co/St30z6SxEN](https://x.com/elmar_eld/status/1937771751284621705)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/230704mlijx19elm95mze9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:07 上传
+

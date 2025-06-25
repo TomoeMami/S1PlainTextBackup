@@ -4669,3 +4669,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 1包=500金≥300尘
 总的来说byd的中心思想就是卡牌我可以直接给或者给尘让你换，想攒金币白嫖井没门
 
+
+*****
+
+####  duraa  
+##### 330#       发表于 2025-6-25 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">7连胜中速梦被皇爷逮捕，先手5费瞎jb交狼哥被狠狠惩罚了
+

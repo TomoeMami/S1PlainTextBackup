@@ -7885,3 +7885,26 @@ no Yachiyo no life！
 
 有没有人算过到底经过了多少年？
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 670#       发表于 2025-6-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999933&amp;ptid=2196984" target="_blank">tpsg 发表于 2025-6-25 19:25</a>
+
+完结撒花，今年看的十几部中感觉最好的。
+
+感觉这部风格和去年的终末列车有点像，但个人感觉感官比列车的好 ...</blockquote>
+我觉得这部比起终末列车来，最大也是最聪明的优点就是不去强行推一条莫名其妙的主线剧情。多少开局惊艳的原创番最后都翻车在这玩意上了。
+
+
+*****
+
+####  pzk  
+##### 671#       发表于 2025-6-25 23:14
+
+最后喊八嘎有点刻意了。
+
+而且其实都合的地方也不少，之前有几集也很抽象，但至少编剧和导演是知道自己想要什么效果的，也大差不差地呈现出来了，上一集更是出色，好动画<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

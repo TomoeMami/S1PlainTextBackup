@@ -46,3 +46,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咖啡厅名义，相当于角色本人发的，当然不打百合tag啊
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2359#       发表于 2025-6-25 23:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">    
+
