@@ -10082,3 +10082,79 @@ Avenger：哈基蜗
 提升精力上限</blockquote>
 还行，正好手上没有合适的杀螃蟹词条
 
+
+*****
+
+####  Steel.Haze  
+##### 984#       发表于 2025-6-25 18:38
+
+<img src="https://img.stage1st.com/forum/202506/25/181755pic9b4jb99rvr9jz.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (17.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:17 上传
+
+人马基本是万能配
+
+<img src="https://img.stage1st.com/forum/202506/25/181815krirw8xz7xcq1y27.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:18 上传
+
+蝶蝎基本是法师和复仇者毕业配之一
+
+<img src="https://img.stage1st.com/forum/202506/25/181933lqaz7qfgssivaqsk.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (19.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:19 上传
+
+水母（啊，我又想起高达夸克斯了）是个血牛徽章
+
+<img src="https://img.stage1st.com/forum/202506/25/182025np7mmkhcdegznp9a.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (19.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:20 上传
+
+第一个词条无赖有用，但是其它依然抽象，特种玩法产物。
+
+<img src="https://img.stage1st.com/forum/202506/25/183645wzbzvqxbl7qih28b.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (21.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:36 上传
+
+卡莉果的永夜-至高至强的三合一。
+
+<img src="https://img.stage1st.com/forum/202506/25/183741bf7gooi1o77oa7ro.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (19.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:37 上传
+
+狼的算是比原来的有用
+
+<img src="https://img.stage1st.com/forum/202506/25/183822q4bae10b0wzbgsx4.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (10.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:38 上传
+
+河马王的永夜现在就能买，我觉得主要执行者用得上。
+
