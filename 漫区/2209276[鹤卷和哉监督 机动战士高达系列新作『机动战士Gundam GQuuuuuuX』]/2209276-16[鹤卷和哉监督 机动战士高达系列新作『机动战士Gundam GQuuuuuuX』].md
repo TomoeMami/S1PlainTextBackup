@@ -957,3 +957,65 @@ GQ起源<img src="https://p.sda1.dev/25/d2a9711bbfc00fc57fc9ac035a7039c2/image.j
 
 现在看来这个企划确实是个校园黑拳的底子被后来强行缝了一大堆UCIF，前后半的割裂太强了。
 
+
+*****
+
+####  zoomegg  
+##### 22245#       发表于 2025-6-25 08:26
+
+还好不是ygfn,印尼妹的插入曲真好听
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  飞霞精灵  
+##### 22246#       发表于 2025-6-25 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995693&amp;ptid=2209276" target="_blank">asikies 发表于 2025-6-25 08:23</a>
+
+这片也证明了eva不是机战片，鹤卷这群人压根不会做机战，这体操躲激光属实难绷。 ...</blockquote>
+EVA日常进机战都是被挽尊的存在<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 22247#       发表于 2025-6-25 08:31
+
+ 本帖最后由 岸浪白野 于 2025-6-25 08:33 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/25/083250tfkdn1xzdahf3y1a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.37 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 08:32 上传
+
+*****
+
+####  ccared  
+##### 22248#       发表于 2025-6-25 08:31
+
+鹤卷痞子做同人就像什么圈子里都有点名气的太太。看着一堆腿毛夸夸好棒什么都懂，仔细一看太太画的全是没头脑大狗不高兴哈基米的cp换头，而鹤卷痞子全是拿EVA的老本**各路原作换头爽。
+
+*****
+
+####  pmoe  
+##### 22249#       发表于 2025-6-25 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67995400&amp;ptid=2209276" target="_blank">ahoge2004 发表于 2025-6-25 03:12</a>
+直到最后，小登们和老登们都是割裂的和无法理解的，一方关心的事情另一方毫不关心，你打你的我打我的，只有 ...</blockquote>
+隔壁超时空要塞f片场穿来的早乙女有人<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hyst3r1a  
+##### 22250#       发表于 2025-6-25 08:34
+
+神作，高达摸jk大奶背后的原因竟然是这个。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不过一集能塞这么多信息量也是挺屌的
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
