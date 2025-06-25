@@ -240,3 +240,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  帝下室の年糕  
+##### 1088#       发表于 2025-6-25 11:26
+
+脚本是吉野大湿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+监督是天Q的小川孝治，看来是做出第三代中兴之祖后得到重用了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/3e6c1a6dbaf2e9e9374a6348a33e4ac7/image.jpg" referrerpolicy="no-referrer">
+

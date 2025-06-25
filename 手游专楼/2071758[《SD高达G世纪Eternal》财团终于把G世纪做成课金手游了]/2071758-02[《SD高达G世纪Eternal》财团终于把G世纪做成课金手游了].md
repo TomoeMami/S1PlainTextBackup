@@ -5772,3 +5772,26 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 有骑士高达的话，估计续篇、三国什么的都在路上了，已经在担心1000个机体格子不够用了 ...</blockquote>
 看代便商业兽性了，感觉这个追加参战作品的速度不算特别赶
 
+
+*****
+
+####  HEERO.W  
+##### 2003#       发表于 2025-6-25 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996548&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-6-25 10:18</a>
+
+看代便商业兽性了，感觉这个追加参战作品的速度不算特别赶</blockquote>
+以这个速度到半周年，R和SR不舍得分解的图鉴党可能1000个格子会很紧张
+
+*****
+
+####  ティグル  
+##### 2004#       发表于 2025-6-25 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997093&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-6-25 11:31</a>
+
+以这个速度到半周年，R和SR不舍得分解的图鉴党可能1000个格子会很紧张</blockquote>
+也对，忘了图鉴党了
+
+但是代便很可能不会去修自己的屎山啊
+

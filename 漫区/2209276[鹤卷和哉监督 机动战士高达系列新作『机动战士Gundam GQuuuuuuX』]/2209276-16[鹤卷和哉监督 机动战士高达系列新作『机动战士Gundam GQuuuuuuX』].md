@@ -2873,3 +2873,49 @@ md通缉犯生活这么惬意吗
 庵野的两次发言</blockquote>
 社长翻译成了总统莫名搞笑，哈基野，这才是你的大手吗
 
+
+*****
+
+####  七七見奈波  
+##### 22416#       发表于 2025-6-25 11:30
+
+看弹幕说本集的拉拉炮形状倒着看是个水母<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 22417#       发表于 2025-6-25 11:31
+
+[X 上的 Mitan：“シャア専用ヅダ世界線 #GQuuuuuuX [url]https://t.co/3t0wBOZvFq](https://x.com/Mitan_2222222/status/1937626038743498773)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/113120wjj3f3yju5bujzxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:31 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/113129mh0dhaj90ix9uahn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 11:31 上传
+
+
+*****
+
+####  ドロロ  
+##### 22418#       发表于 2025-6-25 11:33
+
+这片的问题在于12集太尴尬，要么再精简一下五六集就能说完，要么拉到二三十集好好描写
+
+*****
+
+####  Traceon93  
+##### 22419#       发表于 2025-6-25 11:33
+
+这片估计也是故意塑造成不讲人话不能认真思考的样子，毕竟不能真的让观众严肃思考这个宇宙发生的故事线，尤其不能严肃到会影响主宇宙正统地位的程度。但是作为同人，制作成员咖位太大，导致做出点什么都会成为“官方同人”，为了避免UC宇宙叙事的完整性，主创只能选择加入一些没道理的要素，提醒你这只是一个幻想嘉年华。
+

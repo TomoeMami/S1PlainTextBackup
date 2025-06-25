@@ -1307,3 +1307,18 @@ steam试玩版有
 
 叶水30周年才搞了各种活动和公布了几个新作但是混得很坎坷，这就是大家不把叶水归进四小天王的原因吗
 
+
+*****
+
+####  Toby_dak  
+##### 111#       发表于 2025-6-25 11:27
+
+<img src="https://p.sda1.dev/25/1de85d5d2e85518883ebe4b89d26d4d1/1000128148.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/deade99ccc335b5e1dd7e7795f2f2ce2/1000128146.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/2e98df0ea93b61e3ce7d9c2a184807a2/1000128144.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/ba68eef9d3a73b985e5dfd3bacaf9792/1000128142.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/40e17771d9d6de1056802be33c8a2d1e/1000128140.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/b43443aad222451800ca2e20db2add6e/1000128333.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
