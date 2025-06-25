@@ -4408,3 +4408,13 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 这傻逼箱子收益NM是按一代算的吧？？？
 
+
+*****
+
+####  hzsdr  
+##### 305#       发表于 2025-6-25 12:57
+
+这箱子出率是不是太低了，打了5局才出第一个<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+造物胜率还行但要平均10-15分钟一局受不了了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
