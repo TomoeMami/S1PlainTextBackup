@@ -4064,3 +4064,21 @@ yysy
 
 "机甲"英雄要来了
 
+
+*****
+
+####  补丁  
+##### 347#       发表于 2025-6-25 18:47
+
+ 本帖最后由 补丁 于 2025-6-25 18:50 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/25/184543ddgykwdd5812wrsg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_To Be Hero X(@DailyToBeheroX)_20250625-055025_1937750204893331683_photo.jpg</strong> (415.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:45 上传
+
+背景是暴走大强吗？
+

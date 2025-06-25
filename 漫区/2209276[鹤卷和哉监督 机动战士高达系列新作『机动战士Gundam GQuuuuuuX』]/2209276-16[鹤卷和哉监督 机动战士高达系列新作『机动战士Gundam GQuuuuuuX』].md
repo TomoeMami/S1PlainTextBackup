@@ -5486,3 +5486,75 @@ gqx：那一天的忧郁，忧郁起来~
 
 我们意念合一
 
+
+*****
+
+####  猪突猛进R  
+##### 22627#       发表于 2025-6-25 18:44
+
+机战部分0079不过时啊，GQ非常恶心的一点就是那个鲤鱼打挺躲BEAM，而且还用了好几次，不知他们为啥那么喜欢，我快看吐了。
+
+*****
+
+####  猪突猛进R  
+##### 22628#       发表于 2025-6-25 18:46
+
+这几集绿木马上的成员状态：
+
+我是谁？我在哪儿？我要做什么？
+
+*****
+
+####  Vitiate  
+##### 22629#       发表于 2025-6-25 18:48
+
+我好像懂大光头是以什么样的心态写出吉姆王的了<img src="https://static.stage1st.com/image/smiley/bundam2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 22630#       发表于 2025-6-25 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999057&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 16:37</a>
+
+GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/25/184656ra2z2ehhrggvav25.jpg" referrerpolicy="no-referrer">
+
+<strong>截屏2025-06-25 18.46.19.jpg</strong> (358.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:46 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/184932exz9rg45bjaf3atg.jpg" referrerpolicy="no-referrer">
+
+<strong>截屏2025-06-25 18.48.56.jpg</strong> (811.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:49 上传
+
+甚至造型都和莉莉娜这套模仿赫本的女王装很相近
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 22631#       发表于 2025-6-25 18:52
+
+啊修给番茄解说干掉拉拉，然后终结这个世界
+番茄是这个世界的原住民啊？阿修终结这个世界同于我要干掉你，这也能聊的下去？
+
+*****
+
+####  xwz  
+##### 22632#       发表于 2025-6-25 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999784&amp;ptid=2209276" target="_blank">蒸汽投石BuBu車 发表于 2025-6-25 18:52</a>
+
+啊修给番茄解说干掉拉拉，然后终结这个世界
+
+番茄是这个世界的原住民啊？阿修终结这个世界同于我要干掉你， ...</blockquote>
+迦勒底跟每个异闻带的NPC也都很聊得来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
