@@ -4435,3 +4435,13 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 出箱子我才打，不出就空过给人送温暖
 
+
+*****
+
+####  windhawind2  
+##### 308#       发表于 2025-6-25 13:53
+
+法师一路打到b级钻石了 深刻感觉钻石的对手操作都好了不少 鱼丸都会适当时间选贝塔或者伽玛给压力 不像之前几个无脑打血或者无脑解场<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+法师还是太缺增幅润滑剂了（大美旧超越那种终端默认短时间内不会出了） 想你们了 935/622/1046疾走哥、魔法飞弹、针、克拉克<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

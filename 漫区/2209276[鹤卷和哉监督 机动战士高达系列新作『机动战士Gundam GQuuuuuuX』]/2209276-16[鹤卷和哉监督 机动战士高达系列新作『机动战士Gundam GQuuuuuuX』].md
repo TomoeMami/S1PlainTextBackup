@@ -3571,3 +3571,86 @@ gto还加了老哥把真夏亚害死的剧情啥的…
 
 正好对应GQX里搞街头艺术的街溜子，被俩向往自由的小太妹迷恋上很合理<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烧的石头  
+##### 22475#       发表于 2025-6-25 13:48
+
+别碰瓷骡子了吧，制作组点明了修司是骡子异形体了吗，在这里自己脑补
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  创始’’’天翔  
+##### 22476#       发表于 2025-6-25 13:50
+
+还是UC好啊，自有大儒汴京<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Image_399402755019512.jpg
+(129.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 13:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/134906h24ar07fma2m8c74.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 22477#       发表于 2025-6-25 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997928&amp;ptid=2209276" target="_blank">madness 发表于 2025-6-25 13:40</a>
+
+一般来说，讨论NT能力，拉拉从来都是断层第一的，只有她能在宇宙中对潜在NT甚至OT广播“拉~拉~”
+
+而骡子 ...</blockquote>
+骡子总和战斗力提升x
+
+公认骡子最强是79末期NT巅峰骡和93技术巅峰骡，Z的骡是实力最差的时期o
+
+骡子的NT能力主要受限于79末是巅峰然后从Z到CCA一直在复建，而元祖并没有塞可谬，所以很难去和其他NT的能力进行直观的对比。而且在NT人均发功对战的Z和ZZ时代骡鸭的机体都不带塞可谬/生物传感器没办法发功，多少是受限的，好不容易CCA有精骨但CCA的打斗风格整体回归79不怎么靠发功打架。
+
+*****
+
+####  秋月孝三  
+##### 22478#       发表于 2025-6-25 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997928&amp;ptid=2209276" target="_blank">madness 发表于 2025-6-25 13:40</a>
+一般来说，讨论NT能力，拉拉从来都是断层第一的，只有她能在宇宙中对潜在NT甚至OT广播“拉~拉~”
+
+而骡子 ...</blockquote>
+NT能力卡缪巴上帝断层前二(唯二真NT)，活拉拉不如79骡(后者明确设定是一年战争最高NT)，女鬼拉拉差真NT半档
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  madness  
+##### 22479#       发表于 2025-6-25 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67994607&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-6-25 00:14</a>
+
+UC正史的鸭妹到底什么实力？至今还没被骗去补，看见野史世界线阿姆罗+鸭妹对上夏鸭+拉拉也是好奇了
+
+驾驶 ...</blockquote>
+塞拉属于关注政治但是事情不找上门就不会找事的
+
+设定上z（可能）和zz（确证）是卡巴拉和奥古的出资人，也替朱总捞了妹妹，zz最后上太空个人理解也是准备好自己压上。
+
+至于gto和zdefine属于无限加强版，特别gto里面仿佛是93年穿越回去的，直接一句“告诉基连阿尔黛西亚回来了”就地拉起一串吉翁老兵差点杀穿阿巴瓦库，后面还能拿着个当筹码和联邦谈条件。
+
+
+*****
+
+####  kk霖洞九  
+##### 22480#       发表于 2025-6-25 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997733&amp;ptid=2209276" target="_blank">爱撕衣魔刃 发表于 2025-6-25 13:07</a>
+理解精神小妹，
+
+你才能接受二代下海.jpg</blockquote>
+这是哪家AI
+
