@@ -6550,3 +6550,187 @@ GQ世界的紫婆比正史疯批得多。
 
 紫婆是只有NT算人，OT都不算人。
 
+
+*****
+
+####  wasssf  
+##### 22692#       发表于 2025-6-25 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67974022&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-6-20 21:47</a>
+
+不是beginning吗</blockquote>
+预测正确了一回
+
+*****
+
+####  岸浪白野  
+##### 22693#       发表于 2025-6-25 23:30
+
+[X 上的 チキチキバンバン：“ジークアクスの格ゲーおねがシャス！ [url]https://t.co/BVr1DpB4Sg](https://x.com/ctbnBF90/status/1937793891987853626)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232335l84s18syy225sz6o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:23 上传
+
+[X 上的 大川ぶくぶ/bkub：“[url]https://t.co/Cq3l37R7ur](https://x.com/bkub_comic/status/1937796739563659287)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232223srkd9rqgqw4cqgrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:22 上传
+
+[X 上的 JAZZ JACK：“#GQuuuuuuX #ジークアクス [url]https://t.co/Hes6BrdEwr](https://x.com/JAZZ_JACK_/status/1937851687634600083)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231751lfexa709vza4e3lx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (559.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/231759uumnuv1p1gzbuvj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:17 上传
+
+[X 上的 タケウチ　リョースケ：“ジークアクスお疲れ様でした👏✨✨ [url]https://t.co/8565xUiTUl](https://x.com/ryosuketarou/status/1937883227211116789)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/233024m4zv0hfzcvmwvi84.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250625232934.jpg</strong> (791.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:30 上传
+
+[X 上的 またへい：“[url]https://t.co/Uu4Ca8cvJC](https://x.com/matahe_i/status/1937865162318401729)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232808zqqyskystlx5kk9y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:28 上传
+
+[X 上的 むたX：“ジークアクス最終回の後、久々にララァ訪ねたら、子沢山で二人が幸せになってるといいなと思ったという絵。 この世界線でシャアはガルマと友人関係なのかなぁ…どうなのかなぁ #GQuuuuuuX #ジークアクス [url]https://t.co/jaVKmA4GdD](https://x.com/tw_xxmutaxx/status/1937718029380649051)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232723w33kq6sbeleeensl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:27 上传
+
+[X 上的 C (▽・ᴥ・▽)：“[ GQX ] Thank you for the good show 🥺❤ [url]https://t.co/LPcTrk21xw](https://x.com/Worvies/status/1937645582237204842)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232012gldwi1f7i7z6700y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:20 上传
+
+[X 上的 サテー@聖牌/OAF：“コモリ少尉はｲｲｿﾞ…のrkgk7 #GQuuuuuuX [url]https://t.co/YyYa0xFzMF](https://x.com/syatey_12/status/1937818012062793889)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232356sse4f25suef2toto.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (992.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:23 上传
+
+[X 上的 まつだひかり🎸「あさやけリフレイン」連載中：“マチュずっとときめいててほしい #GQuuuuuuX [url]https://t.co/1ZSw69OztI](https://x.com/niko9_niku9/status/1937587649356910805)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232459o3hxkwpw6h3ze7xz.png" referrerpolicy="no-referrer">
+
+<strong>YH5OZXR_[%PZ5~FIY9V)QK9.png</strong> (3.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:24 上传
+
+[X 上的 壺二郎：“マチュがずっと主人公してて本当に良かったです… #ジークアクス　#GQuuuuuux [url]https://t.co/I2ex0QdPpB](https://x.com/tsubo_jiro/status/1937588444311777582)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231828t7gxyjwavlxlldxr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.85 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:18 上传
+
+[X 上的 하여：“いつかまた会える [url]https://t.co/Dm93ma7FJ5](https://x.com/LY_Howe/status/1937699770711290239)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231941nik6i7mss6sfvzwf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:19 上传
+
+[X 上的 テルヤ＠サーメイド②発売中：“マチュとニャアンと、#ジークアクス #GQuuuuuuuX [url]https://t.co/8V06cyP0zv](https://x.com/teruya13/status/1937646921604374598)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231845uolo55mq8ky83h59.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:18 上传
+
+[X 上的 キサラギ職員/メイン垢：“#ジークアクス #GQuuuuuuuX　 ありがとう。 楽しい時間でした。 最後はどうなってもHappy Ending! 上げた後修正点見つけるのなんとかしたいぬ… [url]https://t.co/YNo5hlhPGh](https://x.com/kisaragi9a/status/1937720579278471456)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232119leoexh38p43pixho.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:21 上传
+
+[X 上的 Nagu🍪：“#GQuuuuuuX #ジークアクス [url]https://t.co/K92lkvbdLB](https://x.com/wooperfuri/status/1937695057727095142)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/231920hrl4h6292l2949w9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:19 上传
+
+[X 上的 うきた乳業🍼🐮❄️：“ありがとうジークアクス！ マチュ幸せになってね😢 割とガチ恋勢 [url]https://t.co/R1EDxJZ30i](https://x.com/UkitaMilk/status/1937843863579955243)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232534svuqux6njm2j8nmq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:25 上传
+
+[X 上的 チバサ：“素敵な作品をありがとうございました✨✨ #GQuuuuuuX #ジークアクス [url]https://t.co/RGqMIBKGSy](https://x.com/tibasa9/status/1937830990984229028)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/232519h2q22lylnupwllm2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:25 上传
+
