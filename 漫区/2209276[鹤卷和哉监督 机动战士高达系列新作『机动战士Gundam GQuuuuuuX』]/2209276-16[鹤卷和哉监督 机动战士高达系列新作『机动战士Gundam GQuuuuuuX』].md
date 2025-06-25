@@ -3456,3 +3456,47 @@ gto还加了老哥把真夏亚害死的剧情啥的…
 
 配着弹幕还是看得很开心的，我觉得这份心情跟隔壁IGN魂5大学习很相似<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmdycj0732  
+##### 22463#       发表于 2025-6-25 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997735&amp;ptid=2209276" target="_blank">lion_or_judas 发表于 2025-6-25 13:07</a>
+
+所以一开始给番茄发短信的其实是0093骡子？诱拐大胸少女上自己，哦不，是上机
+
+所以喵安想跟修斯私奔的时 ...</blockquote>
+一开始应该是玫瑰拉拉吧，然后后面跑路去地球才是骡子
+
+*****
+
+####  Ty_cc  
+##### 22464#       发表于 2025-6-25 13:15
+
+求个茄茄作者的出处（鹅球还是不能评论）
+
+—— 来自 vivo V2183A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  owada  
+##### 22465#       发表于 2025-6-25 13:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到巨大化的元祖我一口水没绷住
+
+
+*****
+
+####  勿徊哉  
+##### 22466#       发表于 2025-6-25 13:20
+
+所以现在在哪里能看到上周就泄露的剧透？
+
+*****
+
+####  格林达姆  
+##### 22467#       发表于 2025-6-25 13:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这片真就是老登不懂事随便做着玩的，难怪只有十二集
+
