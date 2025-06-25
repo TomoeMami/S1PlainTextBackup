@@ -5439,3 +5439,50 @@ gqx：那一天的忧郁，忧郁起来~
 
 第7话gqux以及小番茄的红眼形态也没个说法吧...
 
+
+*****
+
+####  zerocount  
+##### 22623#       发表于 2025-6-25 18:27
+
+<img src="https://img.stage1st.com/forum/202506/25/182707dgzwwbhhhwchshc7.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9553.png</strong> (224.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:27 上传
+
+*****
+
+####  岸浪白野  
+##### 22624#       发表于 2025-6-25 18:28
+
+是能成为儿子的男人
+[X 上的 Huaro7号：“#GQuuuuuuX #ジークアクス [url]https://t.co/ovls2fgoDy](https://x.com/HuaroNanaGo/status/1937778783378976806)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/182747xrr3whjch1oeh511.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 18:27 上传
+
+*****
+
+####  pokemon最爱  
+##### 22625#       发表于 2025-6-25 18:28
+
+说实话GQX的剧情就有一种全是靠安科投骰子骰出来的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zerocount  
+##### 22626#       发表于 2025-6-25 18:30
+
+【求求了，能不能照这个势头把整个0079都重画一遍😭-哔哩哔哩】 https://b23.tv/3cY7b0R
+
+我们意念合一
+
