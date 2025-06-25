@@ -1677,3 +1677,133 @@ AM[KT`})O_IT`~V{Y{)HI5J_tmb.jpg
 因为都是红色的
 然鹅红色没赢过白色<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依然荏苒  
+##### 22307#       发表于 2025-6-25 09:28
+
+除了sb我还能说啥
+
+*****
+
+####  失落之翼  
+##### 22308#       发表于 2025-6-25 09:28
+
+高达这大IP尤其是UC纪元这块，你拍成里番或者钙番也有人看的开心嘛，开心就好<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 22309#       发表于 2025-6-25 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996066&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-25 09:23</a>
+
+塞拉身边站的那个好像是青之巨星
+
+这个事情早就开始准备了，只有吉利西亚自己不知道 ...</blockquote>
+对呀，站在鸭妹旁边的是兰巴·拉尔，
+
+小番茄（以及不确定的夏利亚）继续被通缉没有问题呀
+
+*****
+
+####  blood_iron  
+##### 22310#       发表于 2025-6-25 09:29
+
+女主就是骡子机魂选中的棋子，工具人角色
+
+番茄的行为都是骡子设计好的，包括到地球见到拉拉，找回玫瑰
+
+*****
+
+####  岸浪白野  
+##### 22311#       发表于 2025-6-25 09:31
+
+杉谷P的心态基本是都反正山下负责机设以前还画过“红色机体’干脆顺便也塞进去那画面了
+
+剩下那堆夏亚专用都是基连野望都没想过的吧，基本恶搞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夏亚专用兹达就已经够地狱了还夏亚专用大扎姆
+
+*****
+
+####  interzhang  
+##### 22312#       发表于 2025-6-25 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">叫UC嘉年华也太侮辱幻想嘉年华了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 狼王卢比奥| + 1||
+
+查看全部评分
+
+*****
+
+####  秋月孝三  
+##### 22313#       发表于 2025-6-25 09:33
+
+说白了这帮人就是看到大文豪追星成功自己眼红了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  岸浪白野  
+##### 22314#       发表于 2025-6-25 09:35
+
+[X 上的 間借りさん：“ジークアクス最終回見ました。 [url]https://t.co/mxwcd62wA8](https://x.com/magarisan/status/1937656068462772317)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/25/093450v3nblc5b099n0n43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (229.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:34 上传
+
+*****
+
+####  洛克萨斯  
+##### 22315#       发表于 2025-6-25 09:35
+
+开山楂饼打不过元祖，夏亚梦男？究极黑粉好吧！
+<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 22316#       发表于 2025-6-25 09:35
+
+按理来讲，抱着一腔热情搞这种处处对应处处有梗的同人的时候修司的谜底这种关键点理应是最早就设计好的吧，现在这个糊弄一下的德行，有人会在情书里随便写进个不知道哪里来的路人甲的吗
+
+*****
+
+####  Moltres.lv70  
+##### 22317#       发表于 2025-6-25 09:35
+
+前半军团战和后面的展开有半毛线关系吗，最后一集的尼娅安甚至没和修斯说上话<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tony701  
+##### 22318#       发表于 2025-6-25 09:36
+
+在第114514个世界线上爱音又被立希压力离队后导致无法组一辈子乐队的高松灯.jpg<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/24/173525ysserze2a2vam55r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 09:35 上传
+

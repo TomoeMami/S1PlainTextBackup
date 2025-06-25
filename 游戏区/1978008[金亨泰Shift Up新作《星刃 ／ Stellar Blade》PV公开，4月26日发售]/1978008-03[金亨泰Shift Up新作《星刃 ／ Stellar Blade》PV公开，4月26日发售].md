@@ -6433,3 +6433,45 @@ N网有衣服全解锁的MOD了，自动贩卖机里直接买，除了DLC
 圣诞皮肤是怎么获得的？</blockquote>
 主城中间圣诞树
 
+
+*****
+
+####  leonz79  
+##### 3543#       发表于 2025-6-25 09:29
+
+【剑星 以眼还眼以牙还牙逃课路线-哔哩哔哩】 [https://b23.tv/tI7l54B](https://b23.tv/tI7l54B)      能找到这个路线也是神了
+
+*****
+
+####  黑上シグマ  
+##### 3544#       发表于 2025-6-25 09:31
+
+<blockquote>引用第3538楼leonz79于2025-06-25 09:15发表的  :
+
+圣诞皮肤是怎么获得的？</blockquote>
+开季节活动回主城
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  Schwarzess  
+##### 3545#       发表于 2025-6-25 09:33
+
+有点相关就放这楼里了。
+昨天为了看联动剧情下了nikke然后发现剧情十连抽不了联动池子，进度不够打不了联动剧情所以又光速退坑。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+求漏油给个能云的传送门。<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Andariel  
+##### 3546#       发表于 2025-6-25 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996154&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2025-6-25 09:33</a>
+有点相关就放这楼里了。
+昨天为了看联动剧情下了nikke然后发现剧情十连抽不了联动池子，进度不够打不了联动 ...</blockquote>
+b站随便搜吧这种
+
