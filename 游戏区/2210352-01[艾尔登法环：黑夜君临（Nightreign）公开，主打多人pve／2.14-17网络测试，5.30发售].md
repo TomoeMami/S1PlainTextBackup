@@ -10198,3 +10198,17 @@ Avenger：哈基蜗
 
 铁眼不嫌麻烦可以左右各一把弓，右攻击一下左攻击一下，不停的按可以无缝衔接，每次都吃到第一下轻攻击词条加成
 
+
+*****
+
+####  医生狼多  
+##### 988#         楼主| 发表于 2025-6-25 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999954&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-6-25 19:31</a>
+铁眼词条最简单吧
+
+装备词条：强化射击 射击伤害距离衰减 强化x属性攻击力(看你武器)
+
+被动词条：强化突刺 ...</blockquote>
+突刺反击指的是什么呢
+
