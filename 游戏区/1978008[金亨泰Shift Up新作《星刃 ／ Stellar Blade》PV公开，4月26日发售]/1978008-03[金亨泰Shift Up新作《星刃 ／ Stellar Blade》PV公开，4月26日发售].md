@@ -6728,3 +6728,36 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 当然我也不是什么高手，随便讲一讲这个思路罢了 ...</blockquote>
 这游戏真的有完全不抖刀，能完美闪避招架的大神吗？（葛优躺
 
+
+*****
+
+####  alucardcz  
+##### 3565#       发表于 2025-6-25 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000105&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-25 20:10</a>
+
+这游戏真的有完全不抖刀，能完美闪避招架的大神吗？（葛优躺</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">肯定有的啊  这种就是练  只狼这种都有人全boss无伤 
+
+*****
+
+####  Andariel  
+##### 3566#       发表于 2025-6-25 20:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">转一个前两天看到的渡鸦战，有些思路真的不错，包括一些通过跳跃来躲避伤害的技巧
+ https://b23.tv/g51bxb0
+
+*****
+
+####  alucardcz  
+##### 3567#       发表于 2025-6-25 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000105&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-25 20:10</a>
+
+这游戏真的有完全不抖刀，能完美闪避招架的大神吗？（葛优躺</blockquote>
+[https://www.bilibili.com/video/BV122NtzpEjt](https://www.bilibili.com/video/BV122NtzpEjt)
+
+随便一搜就有个 困难红莲
+
+至少明面上看不出抖刀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
