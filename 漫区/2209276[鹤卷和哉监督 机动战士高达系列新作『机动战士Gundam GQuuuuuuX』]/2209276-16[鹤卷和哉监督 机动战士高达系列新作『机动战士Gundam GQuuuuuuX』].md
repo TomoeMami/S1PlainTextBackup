@@ -4544,3 +4544,58 @@ jzgg用daxx召唤出了eva终，如果鹤卷庵野成功用gqx召唤出富野新
 
 z之后鸭妹出场只有一两句，对哥哥评价基本总结为“这人真不行”<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">，算是非常了解鸭的人，cca里鸭手下/黄昏阿克西斯的角色带着总帅光环看鸭反而迷糊，鸭是真没方向，30多岁孤寡老人选择开着悲伤小鸟找老友来场决斗...
 
+
+*****
+
+####  猪突猛进R  
+##### 22558#       发表于 2025-6-25 16:07
+
+骡在现实里不也那样，不是风评被害，而是更有说服力了好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 22559#       发表于 2025-6-25 16:09
+
+修斯应该是拉拉开始做梦试图拯救鸭子时BAN掉骡子后作为修正坐上高达的驾驶员<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 22560#       发表于 2025-6-25 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998819&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 16:02</a>
+
+X 上的 BANDAI SPIRITS ホビー事業部：“✨ガンプラ商品化解禁✨ 『機動戦士Gundam GQuuuuuuX』より GQuuuu ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/25/161204pgfrtnawg6nnfttm.png" referrerpolicy="no-referrer">
+
+<strong>VQIDGLU82FT_`%Z)W_WV514_tmb.png</strong> (553.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 16:12 上传
+
+
+*****
+
+####  洛克萨斯  
+##### 22561#       发表于 2025-6-25 16:14
+
+我倒要看看模型说明书怎么解释那四个球
+
+*****
+
+####  qixinno2  
+##### 22562#       发表于 2025-6-25 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要骡子性癖太正常了 喜欢大雷有什么错 没得黑啊
+
+*****
+
+####  猪突猛进R  
+##### 22563#       发表于 2025-6-25 16:16
+
+首席哥没法启动Ω的理由合理了许多。
+

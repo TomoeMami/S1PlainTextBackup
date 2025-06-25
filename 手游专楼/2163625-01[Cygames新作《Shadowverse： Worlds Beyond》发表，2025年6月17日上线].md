@@ -4534,3 +4534,52 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 梦就是个全能中速 快能打法师 慢能low死鱼丸 但应该打不过虫妖和正统中速king皇家吧。。而且主要太贵了
 
+
+*****
+
+####  hzsdr  
+##### 318#       发表于 2025-6-25 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67997666&amp;ptid=2163625" target="_blank">hzsdr 发表于 2025-6-25 12:57</a>
+
+这箱子出率是不是太低了，打了5局才出第一个
+
+造物胜率还行但要平均10-15分钟一局受不了了 ...</blockquote>
+总算后面出率变高了，最终4个小时18盘10胜出了头像卡背250金150尘<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 319#       发表于 2025-6-25 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998767&amp;ptid=2163625" target="_blank">lyjssj1 发表于 2025-6-25 15:55</a>
+死鬼真是下水道吗。自己初始+前期抽卡把死鬼的虹差不多抽了个七七八八，然后也没看强度直接花了点乙太搞了 ...</blockquote>
+感觉是刚开服没玩明白的人比较多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">然后也有大劣对局
+
+
+*****
+
+####  olkzdf  
+##### 320#       发表于 2025-6-25 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67998767&amp;ptid=2163625" target="_blank">lyjssj1 发表于 2025-6-25 15:55</a>
+
+死鬼真是下水道吗。自己初始+前期抽卡把死鬼的虹差不多抽了个七七八八，然后也没看强度直接花了点乙太搞了 ...</blockquote>
+唯一下水道是主教，玩家水平不同会有比较大的体感偏差，但排行榜是不会骗人的
+
+各职业前10上M的玩家
+
+鱼9，法7，皇6，死鬼4，妖3，龙2，教1
+
+并且昨天教都还是一个都没有，其他职业前百还有胜场没那么多的M，而主教前百唯一独苗
+
+
+*****
+
+####  取名真是难  
+##### 321#       发表于 2025-6-25 16:12
+
+梦魇对t1的造物（非连拍oqs的胡狗）和法师都能取得一定优势，缺点是对妖精劣势。
+
+这版本的下水道我觉得是龙教  
+
