@@ -6361,3 +6361,23 @@ SEED的基神不也是开始站联合，最后变成ZAFT的白衣。
 
 打个比方，就好比首席哥也开过GQX一样。
 
+
+*****
+
+####  aquakane  
+##### 22682#       发表于 2025-6-25 22:49
+
+完结访谈不是一箩筐吗，访谈再藏就不礼貌了。
+虽然我觉得暴言的可能性更大些<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  燃烧的石头  
+##### 22683#       发表于 2025-6-25 22:54
+
+真喜欢玩梗的可以去看看机动战士高达桑，不比gq玩的好？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
