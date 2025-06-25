@@ -2182,3 +2182,119 @@ Screenshot_2025-06-25-09-55-59-200_com.baidu.tieba.jpg
 如果你能接受昆汀的好莱坞往事，那你也能接受g夸克斯。两部看完之后给人的感觉是一样的。 ...</blockquote>
 其实他们把前面打黑拳删了全做成uc meme其实更好。
 
+
+*****
+
+####  望江南  
+##### 22354#       发表于 2025-6-25 10:06
+
+这番的原创人物（排除小番茄的肉体）真的全都拍的一泡污，都不知道来干什么的，然后细节也一团糟<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你说看到最后喵安到底在这部番里的存在意义是啥呢，前期不上机就不说了，后面上fred开手电背刺紫婆也不是非她不可，因为番茄实质上也并没有因为上述这些事和她真的姐妹相残，10话弄得严谨对称结构送手枪，结果这两把手枪也并没有完美的对照上，这大结局修酱了半天甚至最后都没和人说上话<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+修斯更是神仙了，最后一话都开始意念一动瞬移上机了，全篇最核心最神秘的人物设定全程0交代，唯一知道的就是其实我是来杀拉拉的，闹斯特麻麻了，我一想到上周因为提了一嘴修斯是来自另一边世界的人就在幻想修斯究竟是谁的我就觉得搞笑
+
+番茄很色
+
+在这三位主角的衬托下我觉得其他一次性配角其实都是可以原谅的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么黑色三连星什么杜，嗨呀，人家不过是膜79/z的玩具罢了，本来也没打算搞些什么，还可以接受啦
+
+*****
+
+####  阿兹尔  
+##### 22355#       发表于 2025-6-25 10:07
+
+还不如让番茄她妈死了，我看到最后她妈也没啥用
+
+*****
+
+####  eilot  
+##### 22356#       发表于 2025-6-25 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996142&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-25 09:31</a>
+
+杉谷P的心态基本是都反正山下负责机设以前还画过“红色机体’干脆顺便也塞进去那画面了
+
+剩下那堆夏亚专用 ...</blockquote>
+兹达真是太地獄了
+
+是有魔霸才出奇，是否暗示這條世界線的夏亞是徹底融入了扎比家，所以湯義剛才給他專用機
+
+*****
+
+####  岸浪白野  
+##### 22357#       发表于 2025-6-25 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996359&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 09:55</a>
+
+之前有人提到过，那台山楂饼可能像汉谟拉比一样是徒有其表的架子货。</blockquote>
+不用真给这画面还想个理由是提前搓出来的货<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+杉谷P找山下过往作品找出来这个塞进去当彩蛋的
+
+还称呼它的名字从来只有红色机体，已经只有搞笑了
+
+*****
+
+####  kk霖洞九  
+##### 22358#       发表于 2025-6-25 10:08
+
+ 本帖最后由 kk霖洞九 于 2025-6-25 10:09 编辑 
+
+细节没有ⅹ作者留白√
+感觉这片不出一年就会有拉片厨子给万字解析隐藏内容，最后变大真像是致敬奥拉战士，结果这世界线骡子还真靠卖哈啰发家了吗
+
+*****
+
+####  Sliurus  
+##### 22359#       发表于 2025-6-25 10:09
+
+想了想，本来就是为了人设追的，现在热度高到处都有同人图，不也挺好的吗<img src="https://static.stage1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+最失望的还是为了膜把自己的故事都搁置了，修司这种被动型人设不太能承担男神位，而喵安就像是写好了一段喜欢的剧情但插不进去又不舍得丢掉，这些需要润色的地方被一笔带过，彩蛋野史大书特书
+
+
+*****
+
+####  桐道悠  
+##### 22360#       发表于 2025-6-25 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996453&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-25 10:06</a>
+
+其实他们把前面打黑拳删了全做成uc meme其实更好。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说好莱坞往事里也有意味不明的李小龙part，完美复刻了属于是。
+
+
+*****
+
+####  cmdycj0732  
+##### 22361#       发表于 2025-6-25 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996294&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-25 09:49</a>
+
+我怀疑机魂骡已经把旁边的哈罗给黑掉当监视器了，想看的都看完了</blockquote>
+大家都错怪首席哥了，原来首席哥只能手操是因为骡子只喜欢大雷JK美少女
+
+*****
+
+####  猎人D  
+##### 22362#       发表于 2025-6-25 10:11
+
+庵野鹤卷这些人哪是鸭子梦男，隐藏鸭黑还差不多
+
+*****
+
+####  ads147147  
+##### 22363#       发表于 2025-6-25 10:11
+
+真要说个人倒是也想看有个深受eva影响的谁，给痞子的eva好好拍一次eva if，但是个人觉得痞子为了堵住这个漏洞，把eva终拍的太补丁了，什么东西都可用真嗣在各各他体里修改世界来解释，比倒a补丁还全。
+
+*****
+
+####  人形灾害  
+##### 22364#       发表于 2025-6-25 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67996419&amp;ptid=2209276" target="_blank">桐道悠 发表于 2025-6-25 10:01</a>
+如果你能接受昆汀的好莱坞往事，那你也能接受g夸克斯。两部看完之后给人的感觉是一样的。 ...</blockquote>
+昆汀怎么说对波兰斯基那事的态度也是善意的，两线交汇的醍醐味也留到了最后一幕，起码为了这碟醋的真诚是足够的，这边则是连这碟醋是啥都有点搞不清的感觉
+我觉得如果把故事提前到0079，一边战时少年少女青春剧一边0079原作一路演，在元祖准备插爆艾尔美斯那一刻忽然冒出来一台不明MS把艾尔美斯撞飞的话会比较像
+
