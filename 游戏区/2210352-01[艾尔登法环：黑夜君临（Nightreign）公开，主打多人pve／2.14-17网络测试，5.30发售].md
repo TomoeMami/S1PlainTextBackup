@@ -10023,3 +10023,14 @@ Avenger：哈基蜗
 历战冰龙大饼词条更完美，直接给冰属性攻击附魔和冰隐</blockquote>
 历战冰龙是啥
 
+
+*****
+
+####  Steel.Haze  
+##### 979#       发表于 2025-6-25 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999332&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-6-25 17:16</a>
+
+历战冰龙是啥</blockquote>
+之前在换永夜王徽章的地方，可以靠解包看到其它几个永夜王的徽章。冰龙卡莉果的永夜徽章是冻伤隐型+给出击武器直接赋予冰冻属性。而不是原来的技能，不需要上技能，武器直接带冰冻。其实可以推导出很多新玩法，比如铁眼冻隐流邓。
+

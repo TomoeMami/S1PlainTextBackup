@@ -5298,3 +5298,28 @@ X 上的 YY：“文字な ...</blockquote>
 
 这都有人扒出来了
 
+
+*****
+
+####  mumubear  
+##### 22616#       发表于 2025-6-25 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999552&amp;ptid=2209276" target="_blank">赤尿的卡斯巴尔 发表于 2025-6-25 17:53</a>
+
+假设是没看过uc的观众
+
+谁知道你这个结尾露一面的金毛女人是谁啊</blockquote>
+鸭妹好歹从79开始有戏份有战绩紫婆回忆有童年，兰巴拉尔才是最后一幕不知道哪里来的路人。
+
+
+*****
+
+####  siansian  
+##### 22617#       发表于 2025-6-25 18:03
+
+想到一个很恰当的比喻：
+
+富野高达：米津玄师版《lemon》
+
+gqx：那一天的忧郁，忧郁起来~
+
