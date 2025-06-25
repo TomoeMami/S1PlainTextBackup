@@ -5894,3 +5894,90 @@ GQ鸭妹缺一个肯为她自爆的背心尊者</blockquote>
 所以12话以后日本那边什么反应？别真环大陆好评</blockquote>
 那可没有，在x上面都有不少直球骂的
 
+
+*****
+
+####  七七見奈波  
+##### 22647#       发表于 2025-6-25 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000270&amp;ptid=2209276" target="_blank">galgamesh11 发表于 2025-6-25 20:45</a>
+
+那可没有，在x上面都有不少直球骂的</blockquote>
+这可糟了<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  last_regret  
+##### 22648#       发表于 2025-6-25 20:52
+
+说来鸭妹上台后要怎么界定自一年战争以来扎比家，或者说吉翁公国做的事？以前就想得亏age里福皇没按下去，不然结局也不好写
+
+*****
+
+####  conanlm  
+##### 22649#       发表于 2025-6-25 20:52
+
+多个红色机体里，最后一个是什么，不认得
+
+
+*****
+
+####  芝村舞  
+##### 22650#       发表于 2025-6-25 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000240&amp;ptid=2209276" target="_blank">聋与唬 发表于 2025-6-25 20:36</a>
+
+刚补完第三集，感觉有点意思，虽然剧情挺老套，但是觉得番茄女主很可爱。高达系列只看过水魔，这背景故事里 ...</blockquote>
+前面的日常就是本部片的高光，一旦涉及UC纪元政治同人的第7话开始就崩了。
+
+补剧情看0079解说呗，不然你还想真的全看一次啊？不看0079的去看OG也是莫名其妙而已
+
+*****
+
+####  岸浪白野  
+##### 22651#       发表于 2025-6-25 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000318&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-25 20:52</a>
+
+多个红色机体里，最后一个是什么，不认得</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/25/205441ypcecsg2ippx1p4z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/205454ics82jmm8rm4bees.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 20:54 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/205502ljij0oaoo2yjjn7b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/205508gz0430kddkst0zda.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (736.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202506/25/205548ti0e9eegcg6g9onn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (309.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 20:55 上传
+

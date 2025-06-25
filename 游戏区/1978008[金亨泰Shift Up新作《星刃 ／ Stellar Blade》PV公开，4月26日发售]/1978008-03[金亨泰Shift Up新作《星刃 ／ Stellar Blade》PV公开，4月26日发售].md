@@ -6761,3 +6761,16 @@ BOSS的打法自己摸索啊，不要自己套公式啊
 
 至少明面上看不出抖刀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RainbowSealife  
+##### 3568#       发表于 2025-6-25 20:47
+
+好宏伟呀❤️Photo Mode Don't Hide The Character Model，必打mod
+<img src="https://images.steamusercontent.com/ugc/13843098492727628207/90C20018C967C071A42FE50991210810D499D524/" height="450" id="aimg_V1CEz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/15479883758734364405/7B17B8DFC71792A044BE491E4BE348C42BF2F05E/" height="450" id="aimg_NCtxt" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/12932098587224978675/7C460B35E4F2119EA0B235156F12413CDF58C12F/" height="450" id="aimg_i4oJR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+还得是迅驰，伊芙长相缺乏辨识度，齐刘海太土<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
