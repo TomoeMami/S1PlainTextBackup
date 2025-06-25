@@ -1362,3 +1362,25 @@ b站看5090跑这游戏性能能占一半
 
 行不行啊，怎么ns商店里还给下架了，不会真跑路不卖了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 116#       发表于 2025-6-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992842&amp;ptid=2247492" target="_blank">760194962 发表于 2025-6-24 19:54</a>
+
+steam试玩版有
+
+应该不会switch日区只有日语吧</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/26/000611wk4sgir24q4bk9tb.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (150.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:06 上传
+
+Steamのみ
+
