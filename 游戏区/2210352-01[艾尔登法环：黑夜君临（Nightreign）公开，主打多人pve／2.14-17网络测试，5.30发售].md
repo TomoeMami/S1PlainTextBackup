@@ -10002,3 +10002,24 @@ Avenger：哈基蜗
 还是想要一个常规肉鸽那种用每局结算的代币永久提升角色数值或者点技能的局外成长方式，现在这一套遗物系 ...</blockquote>
 其实每个职业核心有用必带的词条就那几个，其他配合追忆遗物和BOSS遗物效果大差不差了，一开始以为切换武器的很厉害发现其实真正厉害的是虫子和冰龙，尤其冰龙，完美词条
 
+
+*****
+
+####  Steel.Haze  
+##### 977#       发表于 2025-6-25 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999071&amp;ptid=2210352" target="_blank">hirro 发表于 2025-6-25 16:39</a>
+
+其实每个职业核心有用必带的词条就那几个，其他配合追忆遗物和BOSS遗物效果大差不差了，一开始以为切换武 ...</blockquote>
+历战冰龙大饼词条更完美，直接给冰属性攻击附魔和冰隐
+
+
+*****
+
+####  医生狼多  
+##### 978#         楼主| 发表于 2025-6-25 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999276&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-25 17:10</a>
+历战冰龙大饼词条更完美，直接给冰属性攻击附魔和冰隐</blockquote>
+历战冰龙是啥
+

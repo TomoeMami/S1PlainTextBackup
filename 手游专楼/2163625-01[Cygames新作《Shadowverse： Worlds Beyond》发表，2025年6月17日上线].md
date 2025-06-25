@@ -4620,3 +4620,25 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 抄了连胜的冲锋教感觉还可以，虽然不排除是偷了形态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 326#       发表于 2025-6-25 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999154&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-6-25 16:50</a>
+
+这箱子给我整笑了，1抽都没有，最后个箱子给了我3000经验，经验我本来就能打满的还需要箱子给？ ...</blockquote>
+那个经验是同期通行证的活动，第1个箱子给2000,第5个给3000，第10个给4000
+
+
+*****
+
+####  olkzdf  
+##### 327#       发表于 2025-6-25 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67999269&amp;ptid=2163625" target="_blank">duraa 发表于 2025-6-25 17:09</a>
+
+那个经验是同期通行证的活动，第1个箱子给2000,第5个给3000，第10个给4000</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不算这个我也没有1抽啊，一个箱子几十金币
+
