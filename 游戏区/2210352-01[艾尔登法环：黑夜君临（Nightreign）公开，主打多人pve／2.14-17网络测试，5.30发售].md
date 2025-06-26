@@ -10284,3 +10284,16 @@ Avenger：哈基蜗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sissii  
+##### 996#       发表于 2025-6-26 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002425&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-26 10:23</a>
+
+铁眼要带+弱点匕首技艺使用次数的词条，然后是攻击附魔词条。
+
+然后双弓流要带三个提升第一击攻击力词条 ...</blockquote>
+他问的局内(
+

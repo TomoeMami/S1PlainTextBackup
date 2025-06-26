@@ -8113,3 +8113,37 @@ side6通缉麻球又如何，能到地球抓人嘛
 
       全员HAPPY END！
 
+
+*****
+
+####  mengsu  
+##### 22768#       发表于 2025-6-26 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003001&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-6-26 11:40</a>
+
+鸭妹也只能上啊，毕竟明面上鸭子似了，你就是戴肯家最后的血脉了
+
+而且哪怕绿叔叔跟鸭妹说了鸭子没死也问题 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸭妹是少数清楚鸭子是真的不适合作领袖的人之一了，在经历了0079后其实也很有自己的政治主张，在戴肯派拥戴下做个虚位领袖还是够格的。
+
+*****
+
+####  猪突猛进R  
+##### 22769#       发表于 2025-6-26 12:59
+
+马克杯和紫婆那个黑白二创，还真有点紫婆是转生的反派千金的味道<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不过真有人能挨一发光束火箭筒不死的么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  psycho_Gadfly  
+##### 22770#       发表于 2025-6-26 13:02
+
+我觉得不如出个绿叔叔男主，鸭妹女主的if
+
+开始联邦鸡瘟双线叙事，后面交汇
+
+鸭妹登基同人图真好看呀.jpg
+
