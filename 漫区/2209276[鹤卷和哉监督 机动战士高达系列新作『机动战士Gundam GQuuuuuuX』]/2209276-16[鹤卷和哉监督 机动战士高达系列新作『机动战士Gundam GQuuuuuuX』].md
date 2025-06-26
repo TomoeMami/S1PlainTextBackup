@@ -8811,3 +8811,72 @@ image.png
 
 正经来说，因为英国还真的孑遗一大堆15世纪甚至更老的奇奇怪怪的礼仪，直接对标反而对不上。况且，你说吉翁这种从老戴肯出生算统共50年的玩意，你从哪儿搞出嘉德、蓟花之类的玩意啊，捏了半天大家也觉得你是个勃列日涅夫mk2。。。
 
+
+*****
+
+####  madness  
+##### 22818#       发表于 2025-6-26 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005085&amp;ptid=2209276" target="_blank">Viteeee 发表于 2025-6-26 18:03</a>
+
+不是，吉翁在戴肯时代是个共和国，扎比时代是个公国，为啥扎比家下台了之后反而会变成王国啊？
+
+啥君主立宪 ...</blockquote>
+学习荷兰好榜样呗，搞了N年共和国，内部吵成一团，最终觉得还是把橙子放王位上大家至少还能接受。。。
+
+放在当代共和制国家的大型仪式上，塞拉这身确实是属于过于正式离一般公众太远，想了半天也就是拉美那帮喜欢搞这样。
+
+*****
+
+####  岸浪白野  
+##### 22819#       发表于 2025-6-26 19:57
+
+ 本帖最后由 岸浪白野 于 2025-6-26 20:01 编辑 
+
+军用设备通信
+
+<img src="https://img.stage1st.com/forum/202506/26/195715e4jikcpz2c4fkfjj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 19:57 上传
+
+<img src="https://img.stage1st.com/forum/202506/26/195740f2njvwu7veqj74oi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 19:57 上传
+
+*****
+
+####  Steel.Haze  
+##### 22820#       发表于 2025-6-26 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002932&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-26 11:25</a>
+
+合流之后肯定要研究一下所罗门的奇迹吧，然后就都知道鸭子搞小动作拆己方炸弹，所以戴肯派怕不是老早就达 ...</blockquote>
+不过鸭妹可能不觉得他拆了炸弹，她可能觉得没爆炸是自己把那个扎古锤了，所罗门奇迹是夏亚被埋后求生欲引起了共振（实际上拉拉避免他死），不过夏利亚和鸭妹估计都觉得他没死。
+
+
+*****
+
+####  缪斯替  
+##### 22821#       发表于 2025-6-26 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005544&amp;ptid=2209276" target="_blank">madness 发表于 2025-6-26 19:50</a>
+其实更多是现在你抄我我抄你大家都比较像，然后qe2太出名了。
+
+正经来说，因为英国还真的孑遗一大堆15世纪 ...</blockquote>
+是吧，按理说殖民地应该也没什么正儿八经的高门贵族，吉翁这么整可能就像某些奇葩小国玩cosplay
+
+*****
+
+####  西洛克  
+##### 22822#       发表于 2025-6-26 20:04
+
+看了下小说版，最后夏亚也只是在吉翁共和国当军官，脚踏实地干事（不过好像干得还行，把月神二号也吃下来了），直接一步跳到元首的位置还是步子迈得太大了。
+
