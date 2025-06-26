@@ -4742,3 +4742,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 第二天箱子战绩：1包兑换券，150尘，卡背<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  olkzdf  
+##### 338#       发表于 2025-6-26 16:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这手机端BUG是不是太多了，回合开始时满费但卡住什么操作都进行不了 只能放弃思考时间关游戏赶紧重连，点回合结束的时候闪退，本来还以为是偶尔来一次，做日常的时候同一局里面给我来了3次，直接不让我重连判负了
+

@@ -8408,3 +8408,50 @@ side6通缉麻球又如何，能到地球抓人嘛
 不如说修斯认知里那个被夏亚逆反了就要发癫大破坏的拉拉是个很父亲的母亲
 而gq里砍爆修斯之后什么坏事都没发生反而暗示了拉拉是个能在某种意义上容忍弑母的超级慈母吧
 
+
+*****
+
+####  缪斯替  
+##### 22792#       发表于 2025-6-26 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004499&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-26 16:21</a>
+人也没给世界定罪啊……人就说我不这么搞我那边就完蛋了。完全功利行为好吧 ...</blockquote>
+主要在于定罪的出发点是"他觉得"拉拉会如何如何
+两性关系中缺乏沟通的一厢情愿就是很爹味吧<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 22793#       发表于 2025-6-26 16:34
+
+ 本帖最后由 ryanghj 于 2025-6-26 16:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004552&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-26 16:28</a>
+主要在于定罪的出发点是"他觉得"拉拉会如何如何
+两性关系中缺乏沟通的一厢情愿就是很爹味吧 ...</blockquote>
+这也也不是两性关系啊，修司只是不懂感情的孩子而已<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且修司的理由其实很充分，拉拉的确是有创世的能力，而且因为极度悲伤创世，那为了防止影响世界确实不能冒险啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22794#       发表于 2025-6-26 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004552&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-26 16:28</a>
+
+主要在于定罪的出发点是"他觉得"拉拉会如何如何
+
+两性关系中缺乏沟通的一厢情愿就是很爹味吧 ...</blockquote>
+拉拉冻在玫瑰里没法交流吧，修斯肩负一个世界可冒不起风险
+
+<img src="https://img.stage1st.com/forum/202506/26/163502j4kpphmpp44kpipq.png" referrerpolicy="no-referrer">
+
+<strong>5727275278287587.png</strong> (493.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 16:35 上传
+
