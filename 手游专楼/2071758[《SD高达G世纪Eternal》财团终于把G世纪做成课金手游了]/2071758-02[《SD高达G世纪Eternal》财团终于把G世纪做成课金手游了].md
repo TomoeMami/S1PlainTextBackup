@@ -5843,3 +5843,16 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 以这个速度到半周年，R和SR不舍得分解的图鉴党可能1000个格子会很紧张</blockquote>
 格子能花钻扩充的
 
+
+*****
+
+####  HEERO.W  
+##### 2010#       发表于 2025-6-26 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001558&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-6-26 03:50</a>
+
+格子能花钻扩充的</blockquote>
+我知道能用钻，只是和我关系不大，毕竟没有全图鉴强迫症。
+
+顺便问下，能用钻开格子的上限是多少？平均一个格子要多少钻？
+

@@ -8798,3 +8798,16 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202506/26/183816z6p86gtmdbyxkmm0.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madness  
+##### 22817#       发表于 2025-6-26 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004053&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-26 14:59</a>
+
+这样说的话确实，粗看那段时间各家王室男性成员都很爱穿军装礼服，我没有考虑过英国是受影响的，因为我看 ...</blockquote>
+其实更多是现在你抄我我抄你大家都比较像，然后qe2太出名了。
+
+正经来说，因为英国还真的孑遗一大堆15世纪甚至更老的奇奇怪怪的礼仪，直接对标反而对不上。况且，你说吉翁这种从老戴肯出生算统共50年的玩意，你从哪儿搞出嘉德、蓟花之类的玩意啊，捏了半天大家也觉得你是个勃列日涅夫mk2。。。
+
