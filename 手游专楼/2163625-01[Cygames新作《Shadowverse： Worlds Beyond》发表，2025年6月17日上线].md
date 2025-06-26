@@ -4734,3 +4734,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抄了一个快攻龙玩，打牌全靠粗壮的右手
 
+
+*****
+
+####  duraa  
+##### 337#       发表于 2025-6-26 16:25
+
+第二天箱子战绩：1包兑换券，150尘，卡背<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+

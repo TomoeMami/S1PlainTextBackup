@@ -35,3 +35,11 @@
 
 通行证快刷满了，可以继续安心养老去了
 
+
+*****
+
+####  elven119  
+##### 425#       发表于 2025-6-26 16:22
+
+这新迷宫有点意思了。我到boss房全队都没心情了，然后6个hp巨多的会斩首的忍者，死了人就拉不起来<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

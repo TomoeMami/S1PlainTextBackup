@@ -8387,3 +8387,24 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 如果真有能力从0来制造宇宙夏亚也不会死了
 
+
+*****
+
+####  太极八爪鱼  
+##### 22790#       发表于 2025-6-26 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004329&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-25 23:50</a>
+
+和关系没那么深的人相处的时候能保持随和的兄弟态度，但面对喜欢的人的时候却成了不容置疑的严父，这种情 ...</blockquote>
+人也没给世界定罪啊……人就说我不这么搞我那边就完蛋了。完全功利行为好吧
+
+*****
+
+####  缪斯替  
+##### 22791#       发表于 2025-6-26 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004370&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-26 15:58</a>
+最后要表达的不就是宇宙的未来（存续）是由孩子们（修司玛秋）决定的，而不是大人们（夏亚夏利亚基西莉亚e ...</blockquote>
+不如说修斯认知里那个被夏亚逆反了就要发癫大破坏的拉拉是个很父亲的母亲
+而gq里砍爆修斯之后什么坏事都没发生反而暗示了拉拉是个能在某种意义上容忍弑母的超级慈母吧
+
