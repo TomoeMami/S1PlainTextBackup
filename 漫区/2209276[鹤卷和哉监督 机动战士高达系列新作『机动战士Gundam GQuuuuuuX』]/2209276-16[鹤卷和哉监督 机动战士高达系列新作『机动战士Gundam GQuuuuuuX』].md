@@ -8531,3 +8531,108 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 2025-6-26 17:12 上传
 
+
+*****
+
+####  wing130083  
+##### 22801#       发表于 2025-6-26 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004411&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-26 16:05</a>
+
+拉拉又不是万能的，否则不会让羊拉一直做鸡。
+
+（除非她喜欢这种一边挨草一边等待的感觉，不会吧不会吧）</blockquote>
+羊拉很明显随时可以跑，只是她认为自己离了这个地方就等不到夏亚了
+
+某种意义上的刻舟求剑
+
+
+*****
+
+####  南朝Sonicbbs  
+##### 22802#       发表于 2025-6-26 17:21
+
+更多HAPPY END同人图：
+
+[X 上的 むたX：“ジークアクス最終回の後、久々にララァ訪ねたら、子沢山で二人が幸せになってるといいなと思ったという絵。 この世界線でシャアはガルマと友人関係なのかなぁ…どうなのかなぁ #GQuuuuuuX #ジークアクス [url]https://t.co/jaVKmA4GdD](https://x.com/tw_xxmutaxx/status/1937718029380649051)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/171923wrercolfrlrlocpx.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>结局1.jpeg</strong> (181.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+[X 上的 春夏冬工@2日目 F-12a：“ジークアクス最終回 お約束として処されたキシリア様 そんな彼女に逆転の目があってもいい 宇宙世紀とは自由だ（勝てるとは言っていない） [url]https://t.co/K3rRb1iEOP](https://x.com/akinaie/status/1937910466082443633)” / X[/url]
+
+Re:扎比家恶役大小姐。
+
+<img src="https://img.stage1st.com/forum/202506/26/171925gbn0iybghp0n0zis.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>结局2.jpeg</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+[X 上的 mohu@kapmitona：“ジクアクエンディング後夢２。割と普通に会ってそうなきがする…してほしい…マチュ達の生活、ヒゲマン把握してるだろうし、ガルマもきっと遊びに来る [url]https://t.co/aQjB31dX9E](https://x.com/mondomondo77/status/1937900963152744642)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/171929r246y34jo5w755yl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>结局6.jpeg</strong> (399.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+[X 上的 ベネ：“[url]https://t.co/xTNQnrKY2m](https://x.com/be_ne_69/status/1937983100757369320)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/171930te98akokkl7a39o7.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>结局7.jpeg</strong> (254.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+[X 上的 みどり梢：“ジークアクス最終回後 地球隠居組のシャアとガルマ [url]https://t.co/8Z153YNqWe](https://x.com/midorikozue/status/1937854290464567556)” / X[/url]
+
+卡尔玛：哟，夏亚，你也来隐居啦！
+
+<img src="https://img.stage1st.com/forum/202506/26/171926v0hnohsn69kfstee.png" referrerpolicy="no-referrer">
+
+<strong>结局3.png</strong> (412.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/26/171926cmm5mmpu0fhpd5iz.png" referrerpolicy="no-referrer">
+
+<strong>结局4.png</strong> (191.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+<img src="https://img.stage1st.com/forum/202506/26/171928moznq73z0e7xm3ul.png" referrerpolicy="no-referrer">
+
+<strong>结局5.png</strong> (675.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:19 上传
+
+*****
+
+####  南朝Sonicbbs  
+##### 22803#       发表于 2025-6-26 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003486&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-26 12:59</a>
+
+马克杯和紫婆那个黑白二创，还真有点紫婆是转生的反派千金的味道
+
+不过真有人能挨一发光束火箭筒不死的么 ...</blockquote>
+还真有紫婆千金重生的同人图，我在22802L的Happy end的X同人里发了。
+
