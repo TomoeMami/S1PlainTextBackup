@@ -7590,3 +7590,13 @@ GQさんロボ萌えをありがとうございました…ロボにこんな狂
 [https://x.com/ZBKNsuki/status/1937542096589848678](https://x.com/ZBKNsuki/status/1937542096589848678)
 <img src="https://p.sda1.dev/25/ceebbc3848e1e0ce3568e90e4885f753/20250626_021421.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 22728#       发表于 2025-6-26 10:10
+
+上周11集一小时收视率
+个收1.6 世带3.2
+<img src="https://p.sda1.dev/25/250edb4b9d3d0acf4fe5707c28415c23/image.jpg" referrerpolicy="no-referrer">
+
