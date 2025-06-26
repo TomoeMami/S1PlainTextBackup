@@ -88,3 +88,16 @@
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 47164#       发表于 2025-6-27 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007200&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-6-27 01:06</a>
+
+又井了，又歪拿破仑，拿破仑guna
+
+—— 来自 OnePlus PKG110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+0.8还是太低了，UP率0.95才是应该的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
