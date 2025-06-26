@@ -7956,3 +7956,34 @@ ok，我们先假设大正—昭和时代帝日**是一步到位没有改变的
 
 这个版本根本没清算扎比派，扎比家名义上还是前吉翁领袖。
 
+
+*****
+
+####  syndrome2032  
+##### 22758#       发表于 2025-6-26 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003093&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-26 11:52</a>
+但瑪秋可是說自己還是通緝犯身份
+
+是自護已經放軟手腳及叫SIDE6禁止再查下去嗎?</blockquote>
+side6再能抓人也仅限于side6内部吧，他还能把手伸到其他side和地球上
+
+*****
+
+####  ヒトニナル  
+##### 22759#       发表于 2025-6-26 12:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">Plazma这个特别版MV剪的还蛮好的，我居然能理解天津律师了
+
+
+*****
+
+####  mumubear  
+##### 22760#       发表于 2025-6-26 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003093&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-26 11:52</a>
+但瑪秋可是說自己還是通緝犯身份
+
+是自護已經放軟手腳及叫SIDE6禁止再查下去嗎?</blockquote>
+side6总统还要给紫婆投大钱，舆论上对于名义上还是所属于吉翁的红高达和gqx不会过多报道妖魔化，本来冤有头债有主，要怪也是怪泰坦斯。
+

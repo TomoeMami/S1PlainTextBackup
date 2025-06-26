@@ -1413,3 +1413,13 @@ Steamのみ</blockquote>
 服了，原来是ns2兼容有问题，不许玩，这下笑喷了</blockquote>
 凌晨有人报闪退，当天下午就已经不能下载试玩版了
 
+
+*****
+
+####  Toby_dak  
+##### 120#       发表于 2025-6-26 12:07
+
+<img src="https://p.sda1.dev/25/d37c30f32026e99a9a0e40a3ac558021/1000128588.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
