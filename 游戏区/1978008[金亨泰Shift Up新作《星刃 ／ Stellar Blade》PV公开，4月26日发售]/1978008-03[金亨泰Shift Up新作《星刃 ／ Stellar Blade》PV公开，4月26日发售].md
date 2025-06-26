@@ -7340,3 +7340,25 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 拿了二周目装备和技能很容易打，我普通难度一次过，子弹特别容易躲，不过后期满屏特效的大光剑不满血硬吃 ...</blockquote>
 大光剑不是满屏的,实际射程其实不够远,他蓄力的时候你往后跑就行,跑慢了就跳一下.
 
+
+*****
+
+####  silversor  
+##### 3619#       发表于 2025-6-26 20:38
+
+抖刀术就是指不停按防御吗，这样完美防御概率大点？
+
+*****
+
+####  RainbowSealife  
+##### 3620#       发表于 2025-6-26 20:42
+
+<img src="https://images.steamusercontent.com/ugc/16416718626358432603/DCF8E5F086ACD824A8FF9DEE6A91574B2AEA7349/" height="450" id="aimg_LdUnp" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/11009264353877775434/44A3EE42DC648151D275FE91AAB7905969F4EE4E/" height="450" id="aimg_cH25I" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/16174713931395383195/D64F8B862CBEE0C27F612F96C8085051C3DEC1AD/" height="450" id="aimg_aR0Hi" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10749414184915404451/F8E17CBB33B0E11C5C07C68A25561E76E17599FD/" height="450" id="aimg_iI803" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13972990111479291100/890594EFD2B0E7F89D924301F58D461E4B057D37/" height="450" id="aimg_WT5Ts" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13972581602216152768/7D040A40675DE9A58833B066359FEF6D6E523B36/" height="450" id="aimg_Kl46n" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+红莲脖子有点长了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
