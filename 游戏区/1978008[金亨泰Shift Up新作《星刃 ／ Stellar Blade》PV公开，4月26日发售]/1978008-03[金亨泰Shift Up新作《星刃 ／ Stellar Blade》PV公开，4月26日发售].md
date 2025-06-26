@@ -7383,3 +7383,16 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 
 看来看去还是百合的小脸最棒<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  theworld  
+##### 3623#       发表于 2025-6-26 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002947&amp;ptid=1978008" target="_blank">spieler 发表于 2025-6-26 11:28</a>
+
+曼恩这个B是真的卧底吧，打渡鸦时畏畏缩缩，打我时重拳出击
+
+有什么逃课手段吗，二阶段满场乱飞真是烦</blockquote>
+BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强制击倒，配合回能装他基本就在地上滚来滚去根本爬不起来
+
