@@ -7316,3 +7316,16 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 没人说最后那几个boss战突然强制射击打不完就秒杀吗，除了高达的翅膀离的近面积大容易点，别的我基本打不完 ...</blockquote>
 解锁boss,对着目标掏枪基本直接自动瞄准了,开枪就完事.
 
+
+*****
+
+####  ladiesman802  
+##### 3617#       发表于 2025-6-26 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002947&amp;ptid=1978008" target="_blank">spieler 发表于 2025-6-26 11:28</a>
+
+曼恩这个B是真的卧底吧，打渡鸦时畏畏缩缩，打我时重拳出击
+
+有什么逃课手段吗，二阶段满场乱飞真是烦</blockquote>
+拿了二周目装备和技能很容易打，我普通难度一次过，子弹特别容易躲，不过后期满屏特效的大光剑不满血硬吃会死
+
