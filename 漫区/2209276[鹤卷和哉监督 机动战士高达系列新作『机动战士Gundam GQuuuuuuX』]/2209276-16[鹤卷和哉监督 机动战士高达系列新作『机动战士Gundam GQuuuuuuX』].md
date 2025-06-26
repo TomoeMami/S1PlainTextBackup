@@ -8344,3 +8344,46 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 如果把拉拉当作许愿机，那也只是FATE里片桐樱那种。
 
+
+*****
+
+####  猪突猛进R  
+##### 22786#       发表于 2025-6-26 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004403&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-26 16:03</a>
+
+话说回来，大手电是夏亚撺掇建的，红高达是元祖高达改的，gqux后来造的机魂骡是怎么混进去的还加了那么多黑 ...</blockquote>
+合理推测是正史93骡在推完石头后，失踪的牛高和篮球飘到GQ宇宙了。
+
+感兴趣的话可以买GQX（最终口球版）的模型，看看里面说明书是怎么说的。
+
+*****
+
+####  盐盐盐盐盐  
+##### 22787#       发表于 2025-6-26 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004403&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-26 16:03</a>
+ 话说回来，大手电是夏亚撺掇建的，红高达是元祖高达改的，gqux后来造的机魂骡是怎么混进去的还加了那么多黑 ...</blockquote>
+嘴巴里的东西是玫瑰世界里来的
+
+*****
+
+####  花達香奈  
+##### 22788#       发表于 2025-6-26 16:15
+
+你们都说是口球实在太变态了，我觉得应该更弱智一点是灯泡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 22789#       发表于 2025-6-26 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004384&amp;ptid=2209276" target="_blank">失落之翼 发表于 2025-6-26 16:00</a>
+
+麻球被side定性KB分子了吧，当初抓捕的时候不是直接机枪扫射死活不论了
+
+话说整个宇宙都是拉拉的梦造的， ...</blockquote>
+我感觉拉拉应该只是通过精神感应影响人物选择，改变关键历史事件，而不是有能力从0来制造宇宙
+
+如果真有能力从0来制造宇宙夏亚也不会死了
+
