@@ -2586,3 +2586,17 @@ GameShare 让 Nintendo Switch 2 所有者只需一份游戏，就能通过本地
 
 switch2 本地共享给另外一台switch2 是什么效果？
 
+
+*****
+
+####  Amami_Haruka_  
+##### 256#       发表于 2025-6-26 11:05
+
+<blockquote>xy2401 发表于 2025-6-26 10:48
+https://www.ea.com/zh-hans/games/split-fiction/split-fiction/news/nintendo-switch-2-features
+
+GameSh ...</blockquote>
+gameshare都是你看到的那样的
+
+两台ns2，第二台下个好友通行证联机玩就好了
+
