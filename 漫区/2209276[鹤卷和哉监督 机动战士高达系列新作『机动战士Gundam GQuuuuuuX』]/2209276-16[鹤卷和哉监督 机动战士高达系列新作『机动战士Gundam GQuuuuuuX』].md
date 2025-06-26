@@ -8455,3 +8455,27 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 2025-6-26 16:35 上传
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 22795#       发表于 2025-6-26 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004552&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-26 16:28</a>
+ 主要在于定罪的出发点是"他觉得"拉拉会如何如何 两性关系中缺乏沟通的一厢情愿就是很爹味吧 ...</blockquote>
+那是因为他看过很多次拉拉绝望就灭世也知道拉拉很爱鸭子啊
+麻球告诉修司拉拉没那么脆弱修司不就不杀了嘛，他又没有我不听非得让麻球打倒了才听，最后砍元祖头的时候修司早就放弃了动都没动只是走了个形式
+
+
+*****
+
+####  缪斯替  
+##### 22796#       发表于 2025-6-26 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004601&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-6-26 16:36</a>
+那是因为他看过很多次拉拉绝望就灭世也知道拉拉很爱鸭子啊
+麻球告诉修司拉拉没那么脆弱修司不就不杀了嘛 ...</blockquote>
+新人类反而要靠观察行为倒推别人性格其实也挺那啥了
+不过也不影响结论就是了。不对具体的某个个体负责，用暴力厘定对错并强制施行，这就是父亲的特权嘛
+不是说修斯本人很爹味，而是说他的某些行为（被迫）如此。只是个孩子却被迫履行父职手刃所爱，也是真的痛啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
