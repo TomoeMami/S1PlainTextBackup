@@ -4726,3 +4726,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 很多把都拖到10费以后，感觉如果遇到正规军就不是对手了
 
+
+*****
+
+####  zzy516232108  
+##### 336#       发表于 2025-6-26 13:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抄了一个快攻龙玩，打牌全靠粗壮的右手
+
