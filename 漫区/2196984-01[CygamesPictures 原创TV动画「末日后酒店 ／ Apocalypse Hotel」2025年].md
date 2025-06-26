@@ -8071,3 +8071,13 @@ no Yachiyo no life！
 还有其他片 ...</blockquote>
 其实按这人类这么年轻就来地球，要不人类母舰并没有多远要不然人类已经掌握靠谱的宇宙航行技术。其实要再次来的话应该很快的
 
+
+*****
+
+####  有钱多买小人  
+##### 688#       发表于 2025-6-26 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003614&amp;ptid=2196984" target="_blank">センコウ 发表于 2025-6-26 13:26</a>
+其实按这人类这么年轻就来地球，要不人类母舰并没有多远要不然人类已经掌握靠谱的宇宙航行技术。其实要再 ...</blockquote>
+想多了。这部很多设定明显都是拍脑门的，没那么严谨。一切服务于观感。
+
