@@ -7084,3 +7084,13 @@ Gfred像紫婆，根据原案发散怕不是把卡尔马塞进去了<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aquakane  
+##### 22719#       发表于 2025-6-26 09:25
+
+gq紫婆都明着膜93鸭了，喵安认错不是很正常<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
