@@ -7329,3 +7329,14 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 有什么逃课手段吗，二阶段满场乱飞真是烦</blockquote>
 拿了二周目装备和技能很容易打，我普通难度一次过，子弹特别容易躲，不过后期满屏特效的大光剑不满血硬吃会死
 
+
+*****
+
+####  oyss  
+##### 3618#       发表于 2025-6-26 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003386&amp;ptid=1978008" target="_blank">ladiesman802 发表于 2025-6-26 12:42</a>
+
+拿了二周目装备和技能很容易打，我普通难度一次过，子弹特别容易躲，不过后期满屏特效的大光剑不满血硬吃 ...</blockquote>
+大光剑不是满屏的,实际射程其实不够远,他蓄力的时候你往后跑就行,跑慢了就跳一下.
+
