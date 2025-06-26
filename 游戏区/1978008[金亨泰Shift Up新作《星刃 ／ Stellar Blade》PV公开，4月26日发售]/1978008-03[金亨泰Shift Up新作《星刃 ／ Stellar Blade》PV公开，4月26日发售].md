@@ -7373,3 +7373,13 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 抖刀术就是指不停按防御吗，这样完美防御概率大点？</blockquote>
 是 主要可以不交互 不看出招     这游戏要看boss动作挡刀可太难了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LOLITA  
+##### 3622#       发表于 2025-6-26 21:39
+
+红莲的下巴太网红了，感觉玻尿酸打多了
+
+看来看去还是百合的小脸最棒<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
