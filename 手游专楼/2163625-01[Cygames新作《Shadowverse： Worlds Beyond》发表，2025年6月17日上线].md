@@ -4750,3 +4750,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这手机端BUG是不是太多了，回合开始时满费但卡住什么操作都进行不了 只能放弃思考时间关游戏赶紧重连，点回合结束的时候闪退，本来还以为是偶尔来一次，做日常的时候同一局里面给我来了3次，直接不让我重连判负了
 
+
+*****
+
+####  奇想楠木  
+##### 339#       发表于 2025-6-26 16:59
+
+主教真的越来越难打了，前两天打到钻石b0这两天从砖石一路掉到红宝石打吐了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
