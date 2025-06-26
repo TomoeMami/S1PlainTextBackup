@@ -7467,3 +7467,14 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 二周目领不了dlc奖励吗<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我应该还有个激活码没领，难道还要开个新档？
 
+
+*****
+
+####  洛克萨斯  
+##### 3632#       发表于 2025-6-27 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68006549&amp;ptid=1978008" target="_blank">LOLITA 发表于 2025-6-26 22:25</a>
+
+后知后觉，伊芙计划的女战士都是大辟谷+大雷是为了满足亚当的性癖吧，小公主不对是小母主为了满足父亲大人 ...</blockquote>
+不都是一个规格么，渡鸦迅驰伊芙没啥区别吧，倒不如说roll到这一次才roll出性格好的
+
