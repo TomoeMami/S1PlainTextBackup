@@ -4707,3 +4707,12 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 既然这么肝也别怪我不好好玩了233
 
+
+*****
+
+####  辞冬  
+##### 334#       发表于 2025-6-26 10:26
+
+乐园箱子终于出虹了，虽然是个重复的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+这倒是提醒我后面钥匙直接攒起来等新包了
+

@@ -524,3 +524,11 @@ zzz指的是睡觉
 
 看日本SNS高桥信者开香槟的样子，也难怪东映喜欢找他
 
+
+*****
+
+####  洛克萨斯  
+##### 57#       发表于 2025-6-26 10:16
+
+喜欢找高桥是因为他拍的你甭管烂不烂，就问商业成绩好不好吧，俗称要流量不要妈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
