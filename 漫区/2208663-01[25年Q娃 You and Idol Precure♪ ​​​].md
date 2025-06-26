@@ -317,3 +317,11 @@
 
 不知道两组前辈怎么过来，来看偶像表演？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戏份我倾向于和去年汪Q剧场版一样前辈纯客串帮忙而不像以前Dream Stars、Super Stars、Miracle Universe、Miracle Leap四部春联动剧场一样前辈深入参与剧情主线。
 
+
+*****
+
+####  Blackson  
+##### 1096#       发表于 2025-6-26 15:41
+
+应该是本周日配合两妖精正式入队放剧场版第一个正式预告。想起来下个月那充满噱头的“VS”不知道会是谁的主意？
+
