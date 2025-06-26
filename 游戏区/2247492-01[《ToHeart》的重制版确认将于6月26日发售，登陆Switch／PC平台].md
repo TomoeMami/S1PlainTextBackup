@@ -1423,3 +1423,18 @@ Steamのみ</blockquote>
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  MrJokel  
+##### 121#       发表于 2025-6-26 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993802&amp;ptid=2247492" target="_blank">小学生把持不住 发表于 2025-6-24 22:27</a>
+
+叶水30周年才搞了各种活动和公布了几个新作，怎么混得这么坎坷，这就是大家讨论起四小天王却不提叶水的原因 ...</blockquote>
+以现在来说的话，跟其他四小天王相比差了不止一点半点吧，混成今天这个样子也只能说是咎由自取。
+
+这公司无论是商业嗅觉还是危机预警都是一等一的烂，就连法老控都知道这世代不能光抱一家大腿，要想方设法从其他平台开辟新客层的道理，你叶水还是只知道逮着一家羊毛薅，ns直到末期才懂得移植几个冷饭过来，这步调就已经差其他家太多太多了。
+
+只能说某人写歌水平是还可以，但让这种信徒思想入脑的人来经营公司，混到今天这个局面也就不足为奇了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
