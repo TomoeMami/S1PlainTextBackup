@@ -43,3 +43,22 @@
 今年还有一次复刻，还有两个福袋，明年还会复刻2次。</blockquote>
 今年泳装想抽兽蕾学姐DB，估计是没机会留给汇呆了，打算周年福袋赌一下。后面强度XP连发大概也挤不出什么存货了……日服这个狂冠位战又在喂饭汇呆，总之保证其他角色的情况下有多少扔多少吧。
 
+
+*****
+
+####  khxooo  
+##### 47159#       发表于 2025-6-26 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004682&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2025-6-26 16:48</a>
+
+今年泳装想抽兽蕾学姐DB，估计是没机会留给汇呆了，打算周年福袋赌一下。后面强度XP连发大概也挤不出什么 ...</blockquote>
+除去厨力，扛过泳装这一波后，九月到12月也就是娄西和月P稍微有点强度，在加上新年到水C呆复刻还有段时间，如果能忍住应该够一井
+
+
+*****
+
+####  khxooo  
+##### 47160#       发表于 2025-6-26 19:05
+
+草，大号呼符来了阿昙，希望学姐不要遭重<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
