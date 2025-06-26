@@ -7396,3 +7396,21 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 有什么逃课手段吗，二阶段满场乱飞真是烦</blockquote>
 BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强制击倒，配合回能装他基本就在地上滚来滚去根本爬不起来
 
+
+*****
+
+####  ——啧  
+##### 3624#       发表于 2025-6-26 22:20
+
+打了一晚上困难曼恩，这曼恩是不是二五仔啊，这实力两下被渡鸦打成路边一条野狗？分出打我一半的实力，渡鸦估计得成希雍RBQ了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 3625#       发表于 2025-6-26 22:25
+
+后知后觉，伊芙计划的女战士都是大辟谷+大雷是为了满足亚当的性癖吧，小公主不对是小母主为了满足父亲大人的择偶标准特意设计了那种身材，然后一直微调到第七版才让亚当完全满意是吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+包括老头门口女守卫那毫无意义的爆炸身材也是为了给亚当看的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
