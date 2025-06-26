@@ -8636,3 +8636,45 @@ Re:扎比家恶役大小姐。
 不过真有人能挨一发光束火箭筒不死的么 ...</blockquote>
 还真有紫婆千金重生的同人图，我在22802L的Happy end的X同人里发了。
 
+
+*****
+
+####  岸浪白野  
+##### 22804#       发表于 2025-6-26 17:26
+
+[X 上的 カラオケまねきねこ　コラボ最新情報：“◤7/10～ コラボ開催決定◢ 『機動戦士Gundam GQuuuuuuX (ジークアクス)』× #まねきねこ 🐈猫と戯れるコラボ限定ミニキャラが登場❗️ 詳細は後日公開予定、続報をお待ちください✨ #GQuuuuuuX ＃ジークアクス [url]https://t.co/qKwMkJeCVO](https://x.com/maneki_collabo/status/1938160307953967310)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/172633uzuit25m6tqticse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:26 上传
+
+*****
+
+####  岸浪白野  
+##### 22805#       发表于 2025-6-26 17:28
+
+ 本帖最后由 岸浪白野 于 2025-6-26 17:30 编辑 
+
+[X 上的 すずみや：“HJ作例のキケロガ かっけー！という気持ちと、やっぱでけー！という気持ちと、プラモ化可能なサイズではあるな…という気持ちと、もしこのサイズでのキット化なら分離変形可能だよねという気持ちが駆け巡るね #ジークアクス [url]https://t.co/7pkUXSNEwg](https://x.com/kokoroaruto117/status/1937855924208877752)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/173038cbmgmtmz8r0e909g.png" referrerpolicy="no-referrer">
+
+<strong></strong> (3.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:30 上传
+
+*****
+
+####  stevenzero  
+##### 22806#       发表于 2025-6-26 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002773&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-6-26 11:06</a>
+无论原版还是gqx戴肯派一个权力稍微大点的人也没有吧，夏利亚那样能当个舰长的也就是藏得好了。扎比家估计 ...</blockquote>
+正史里阿巴瓦克开打时首相达尔西亚和首都防卫大队就是戴肯派。首都防卫大队甚至已经把side3留守的基连亲卫队干了。
+
