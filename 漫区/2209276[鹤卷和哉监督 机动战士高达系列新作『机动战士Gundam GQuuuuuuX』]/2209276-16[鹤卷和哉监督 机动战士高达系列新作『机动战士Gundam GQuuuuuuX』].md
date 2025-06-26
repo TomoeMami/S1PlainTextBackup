@@ -9060,3 +9060,13 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202506/26/220359arkjb582ov82537z.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 22839#       发表于 2025-6-26 22:30
+
+分镜写了是軍用リレー通信機，就是给麻球发短信用的，跟吉翁的线肯定没断
+
+不过绿叔叔那格没写戴面具，就写的三个人在做警备，面具估计是后面加的膜鸭元素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7414,3 +7414,11 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 包括老头门口女守卫那毫无意义的爆炸身材也是为了给亚当看的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 3626#       发表于 2025-6-26 22:28
+
+老头门口那个赛博门神是不是没有活跃机会了
+
