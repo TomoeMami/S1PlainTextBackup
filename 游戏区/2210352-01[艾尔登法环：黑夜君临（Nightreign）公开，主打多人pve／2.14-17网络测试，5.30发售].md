@@ -10331,3 +10331,13 @@ Avenger：哈基蜗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hootao  
+##### 1000#       发表于 2025-6-26 15:14
+
+人马比大嘴好打，秒人的轨道炮和直升机前摇都挺清楚的，前者看好落点跑开就行，后者朝人马身后滚完就跑也可以躲开
+
+—— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
