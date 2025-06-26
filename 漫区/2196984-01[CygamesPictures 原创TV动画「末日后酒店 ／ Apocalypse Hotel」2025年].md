@@ -8058,3 +8058,16 @@ no Yachiyo no life！
 
 “人类大笨蛋”不是很喜欢，但吹口哨喜欢极了，+2
 
+
+*****
+
+####  センコウ  
+##### 687#       发表于 2025-6-26 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001699&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-6-26 07:49</a>
+
+本来地球没有病毒、人类小姐要离开地球算是喜中带点悲的，但都被八千代的脱线行为盖过去了。
+
+还有其他片 ...</blockquote>
+其实按这人类这么年轻就来地球，要不人类母舰并没有多远要不然人类已经掌握靠谱的宇宙航行技术。其实要再次来的话应该很快的
+
