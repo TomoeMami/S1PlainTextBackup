@@ -7873,3 +7873,57 @@ GQ宇宙可能还就是击杀了汤义刚导致鸭妹被戴肯派关注。
 
 怎么也得发一个一吨重的大奖章。
 
+
+*****
+
+####  璇瑢子R  
+##### 22752#       发表于 2025-6-26 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002197&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-6-26 09:47</a>
+
+资料请求，看到“比利时的欧陆传统”这行字我大脑都短路了……
+
+比利时王国相对于其他欧洲君主制国家属于 ...</blockquote>
+那个年代就流行这个风格
+
+比如这个1938年瑞典国王古斯塔夫5 80大寿合照
+
+各种女眷穿的都是这个风格大同小异
+
+<img src="https://img.stage1st.com/forum/202506/26/114601hzvw5q6w5h5n6vyz.png" referrerpolicy="no-referrer">
+
+<strong>16-.png</strong> (3.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 11:46 上传
+
+*****
+
+####  璇瑢子R  
+##### 22753#       发表于 2025-6-26 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003013&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-26 11:42</a>
+
+吉翁这办事效率还挺高！</blockquote>
+大结局专门提了通缉令还存在，
+
+那就是要告诉你不存在抱吉翁政府大腿解除通缉令
+
+否则根本不用提这个。。。
+
+
+*****
+
+####  eilot  
+##### 22754#       发表于 2025-6-26 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003013&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-26 11:42</a>
+
+吉翁这办事效率还挺高！</blockquote>
+但瑪秋可是說自己還是通緝犯身份
+
+是自護已經放軟手腳及叫SIDE6禁止再查下去嗎?
+
+不過瑪秋媽媽和其丈夫的家沒有被破壞，看來還是治安良好中
+
