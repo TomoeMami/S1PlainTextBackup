@@ -1708,3 +1708,13 @@ re:act还活着啊，两个单曲
 唉，没办法，为了保持人设，估计lize今后如果再参加还是会选择赫国，今天也是大起大落，尤其是和西西同时 ...</blockquote>
 坚持静冈能拿到冠军也算是还好了，就是今天这个运气太离谱了，虽然我说运气差点会次轮败退，但是没想到第二轮就上这么经典的制裁局，以及821能踩出回体力给我看笑了，记得这里大概是七到八成的概率出特训格，不得不说lize最近真的是小概率高手<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1333#       发表于 2025-6-26 22:47
+
+之母不愧是之母，眼见着药丸药丸还是给她翻盘了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
