@@ -7362,3 +7362,14 @@ https://docs.qq.com/sheet/DRnZWS05WaEZKbXFJ?tab=v5lhzm
 
 红莲脖子有点长了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  alucardcz  
+##### 3621#       发表于 2025-6-26 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005817&amp;ptid=1978008" target="_blank">silversor 发表于 2025-6-26 20:38</a>
+
+抖刀术就是指不停按防御吗，这样完美防御概率大点？</blockquote>
+是 主要可以不交互 不看出招     这游戏要看boss动作挡刀可太难了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
