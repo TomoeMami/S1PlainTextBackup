@@ -8195,3 +8195,16 @@ side6通缉麻球又如何，能到地球抓人嘛
 不过真有人能挨一发光束火箭筒不死的么 ...</blockquote>
 鸭子的名言，没有面具我就死了，这里换到紫婆<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LadySaazbaum  
+##### 22775#       发表于 2025-6-26 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003278&amp;ptid=2209276" target="_blank">madness 发表于 2025-6-26 12:22</a>
+
+说的就是比利时这种拿三到爱德华再到一战这段时间前后超高浓度军服渗入高等级礼服的风格……你去找那些古 ...</blockquote>
+这样说的话确实，粗看那段时间各家王室男性成员都很爱穿军装礼服，我没有考虑过英国是受影响的，因为我看的资料主要是英国人写的所以喜欢强调自身影响力。想想也对，当时英国距离战场要比大家远一些。
+
+但是我的直觉也没错，鸭妹这身直接copy英女王，各处细节都能对上，照片看上一贴。
+
