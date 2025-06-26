@@ -7816,3 +7816,60 @@ GQ宇宙可能还就是击杀了汤义刚导致鸭妹被戴肯派关注。
 
 但鴨妹都是金髮啊?
 
+
+*****
+
+####  上坂莲华  
+##### 22747#       发表于 2025-6-26 11:40
+
+鸭妹也只能上啊，毕竟明面上鸭子似了，你就是戴肯家最后的血脉了
+
+而且哪怕绿叔叔跟鸭妹说了鸭子没死也问题不大
+
+绿叔叔：你哥没死，但是我做梦梦到他变成吉翁统帅之后想把阿克西斯砸到地球上，所以我动手把他打脱出了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸭妹：那样的哥哥还是死了算了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 22748#       发表于 2025-6-26 11:40
+
+鸭妹不是在所罗门跟鸭子一起被卷进zknv了吗，都不知道是怎么回来的（不过这点鸭子也一样就是了）。
+还有击杀汤义刚明面上只知道是联邦的白色轻加农干的，鸭子都要（拉拉帮忙）脑门过电才知道是亲妹，吉翁其他人可能就更没什么机会知道了。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  白色池塘  
+##### 22749#       发表于 2025-6-26 11:40
+
+发现这部里麻球驾驶时从来没有戴过头盔，这就是新时代精神小妹的自信（
+
+*****
+
+####  希望之异热同心  
+##### 22750#       发表于 2025-6-26 11:42
+
+<img src="https://img.stage1st.com/forum/202506/26/114119mrnkeabgrnkgcg6v.png" referrerpolicy="no-referrer">
+
+<strong>A060BCA4D9E1E1B617A6DEA831BEA789.png</strong> (813.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 11:41 上传
+
+吉翁这办事效率还挺高！
+
+*****
+
+####  syndrome2032  
+##### 22751#       发表于 2025-6-26 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003013&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-26 11:42</a>
+吉翁这办事效率还挺高！</blockquote>
+这俩和戴肯派和砍82分清理了扎比派和基西莉亚派。
+
+怎么也得发一个一吨重的大奖章。
+
