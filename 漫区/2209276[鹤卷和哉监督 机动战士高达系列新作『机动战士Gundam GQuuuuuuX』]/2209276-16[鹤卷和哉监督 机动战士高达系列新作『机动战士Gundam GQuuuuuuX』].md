@@ -9116,3 +9116,23 @@ image.png
 不过绿叔叔那格没写戴面具，就写 ...</blockquote>
 怕是夏利亞天狗梗逆流回製作組了
 
+
+*****
+
+####  Steel.Haze  
+##### 22845#       发表于 2025-6-27 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005925&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-26 20:52</a>
+
+時間上還是有點不對
+
+應該是瑪秋一早就傳了短訊報了平安，其後帶面罩的綠叔叔來瑪秋及喵安的家取私人物品 ...</blockquote>
+我也觉得那个短信是安顿好了的报告。不过看番茄家里已经准备搬家了。没准可能搬到S3？
+
+*****
+
+####  ryanghj  
+##### 22846#       发表于 2025-6-27 01:01
+
+玛秋都不打算在这个宇宙待下去了和绿叔叔有没有联系也不重要了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
