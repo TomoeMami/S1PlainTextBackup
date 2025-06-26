@@ -7459,3 +7459,11 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 看到怪堆冲上去就是两个beta招呼，在加一个爆发吸血
 世界就清净了
 
+
+*****
+
+####  银色天空  
+##### 3631#       发表于 2025-6-27 00:00
+
+二周目领不了dlc奖励吗<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我应该还有个激活码没领，难道还要开个新档？
+
