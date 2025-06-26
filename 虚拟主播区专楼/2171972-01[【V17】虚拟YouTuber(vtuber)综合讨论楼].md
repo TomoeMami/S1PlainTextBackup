@@ -1726,3 +1726,11 @@ re:act还活着啊，两个单曲
 
 西西真有点东西的
 
+
+*****
+
+####  Ketestrait  
+##### 1335#       发表于 2025-6-27 02:17
+
+真正的比赛从9回里2out开始，不愧是你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
