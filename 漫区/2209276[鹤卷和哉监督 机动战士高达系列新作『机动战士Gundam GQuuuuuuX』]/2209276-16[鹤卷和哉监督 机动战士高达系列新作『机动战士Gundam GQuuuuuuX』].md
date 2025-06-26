@@ -8046,3 +8046,70 @@ side6通缉麻球又如何，能到地球抓人嘛
 比利时王国相对于其他欧洲君主制国家属于 ...</blockquote>
 说的就是比利时这种拿战后超高浓度军服渗入高等级礼服的风格……你去找那些古老的王室才是压根找错地方了。这个角度来说，其实英国是被影响，而不是它影响别人的。
 
+
+*****
+
+####  psycho_Gadfly  
+##### 22766#       发表于 2025-6-26 12:50
+
+<blockquote>u2deack 发表于 2025-6-26 12:17
+之前看电影拿的设定集海报什么的我都直接扔了，这修司真是不想多看到一眼 ...</blockquote>
+对无塑造的工具人这么zqsg吗
+
+不如出个二手卖点钱
+
+*****
+
+####  南朝Sonicbbs  
+##### 22767#       发表于 2025-6-26 12:51
+
+[X 上的 山田一族。：“ジークアクス凄く面白かったです！ 忙しく楽しい日々は続いていく #GQuuuuuuX #ジークアクス [url]https://t.co/jll6pWzkr7](https://x.com/yamada_doujin/status/1937782825224196161)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/124939kvf5nvumjkh3utiz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>狸猫结局1.jpeg</strong> (198.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 12:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/26/124940rbxnnbtre9xnnnv5.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>狸猫结局2.jpeg</strong> (130.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 12:49 上传
+
+[X 上的 イアン：“ジオンなまりの奇妙な夫婦 第1話前半 ※💜生存if... [url]https://t.co/aIQ28rbNe3](https://x.com/Ianyumis/status/1937889122229895294)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/125023xpw398od153cwh8p.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>基西莉亚1.jpeg</strong> (750.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 12:50 上传
+
+<img src="https://img.stage1st.com/forum/202506/26/125025hjoq253vu4k2qyq2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>基西莉亚2.jpeg</strong> (649.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 12:50 上传
+
+[X 上的 けだま（腐）：“犬ザベくん🐕とニャン🐈‍⬛　- 12話編 - [url]https://t.co/jBMqe6526d](https://x.com/kedama_fu/status/1937884002729549883)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/125045bc5o87t3s35z41xu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>基西莉亚3.jpeg</strong> (193.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 12:50 上传
+
+————————————
+
+      全员HAPPY END！
+
