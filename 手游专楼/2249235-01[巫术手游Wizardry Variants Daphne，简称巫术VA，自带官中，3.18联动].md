@@ -51,3 +51,14 @@
 
 主角拿忍者，需要在忍者试炼最后献祭一个队友，永久丢失他和他身上的装备，这是手游能想得出来的玩意儿？？？我tm已经在忍试炼回不去了，我草拟吗
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 427#         楼主| 发表于 2025-6-26 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005480&amp;ptid=2249235" target="_blank">elven119 发表于 2025-6-26 19:36</a>
+
+主角拿忍者，需要在忍者试炼最后献祭一个队友，永久丢失他和他身上的装备，这是手游能想得出来的玩意儿？？ ...</blockquote>
+最近沉迷剑星上线时间短还没开始刷，你游怎么总能搞出这种操作的，长草这么这么久了又想起古早DRPG味儿了是吧，总嫌死得不够快<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
