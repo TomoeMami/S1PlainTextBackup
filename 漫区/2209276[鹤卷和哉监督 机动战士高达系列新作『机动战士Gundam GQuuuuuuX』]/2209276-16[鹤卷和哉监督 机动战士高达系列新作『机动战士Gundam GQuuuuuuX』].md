@@ -9136,3 +9136,15 @@ image.png
 
 玛秋都不打算在这个宇宙待下去了和绿叔叔有没有联系也不重要了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HOBBITXDD  
+##### 22847#       发表于 2025-6-27 05:05
+
+ 本帖最后由 HOBBITXDD 于 2025-6-27 05:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007185&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-6-27 00:59</a>
+
+我也觉得那个短信是安顿好了的报告。不过看番茄家里已经准备搬家了。没准可能搬到S3？ ...</blockquote>
+其实只是居家办公了，你看特写咖啡电脑文件都放着
+
