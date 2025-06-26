@@ -7422,3 +7422,11 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 老头门口那个赛博门神是不是没有活跃机会了
 
+
+*****
+
+####  mhss  
+##### 3627#       发表于 2025-6-26 23:36
+
+这游戏主要感觉锁定视角太低了，那种高一点的boss如果站面前脑袋上身直接在屏幕外，出招都不好看更别说弹刀了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
