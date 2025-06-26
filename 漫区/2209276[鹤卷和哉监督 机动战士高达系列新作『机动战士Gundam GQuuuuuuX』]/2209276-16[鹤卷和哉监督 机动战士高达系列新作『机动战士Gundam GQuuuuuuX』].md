@@ -9086,3 +9086,21 @@ image.png
 
 绿叔叔的奇兵吧
 
+
+*****
+
+####  ヒトニナル  
+##### 22842#       发表于 2025-6-26 23:03
+
+玛秋和绿叔叔还有科莫利的关系又不差，而且就剧中表现看绿叔叔对玛秋是真心的，他们之间还有联系挺正常的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外我又想起来绿叔叔想干死夏亚可能也是因为世界线的强制修正吧，虽然表现出来就是绿叔叔跟开了天眼读了剧本一样
+
+*****
+
+####  璇瑢子R  
+##### 22843#       发表于 2025-6-26 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005766&amp;ptid=2209276" target="_blank">cxj649 发表于 2025-6-26 20:30</a>
+度假地方按考据也是吉恩的属地</blockquote>
+不存在考据都是脑补，所罗门群岛的kirakira和动画刻画的完全不一样
+
