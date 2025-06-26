@@ -8255,3 +8255,34 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 你看整个故事玛秋的爹都没有露脸，就是为了这最后一刻
 
+
+*****
+
+####  缪斯替  
+##### 22779#       发表于 2025-6-26 15:50
+
+ 本帖最后由 缪斯替 于 2025-6-26 15:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004298&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-26 15:43</a>
+怎么能解读出弑父的不如说玛秋是在父亲（阿姆罗）的帮助下解放另一个不自由的少年
+
+你看整个故事玛秋的爹 ...</blockquote>
+和关系没那么深的人相处的时候能保持随和的兄弟态度，但面对喜欢的人的时候却成了不容置疑的严父，这种情况在两性关系中不是超级常见嘛
+一个本性随和，会说哪种喵安都喜欢的少年却要不由分说给整个世界定罪，这不是爹味爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+顺便骡子这段神性演出这么一说还真有善良的人类之子在真父亲（天父）的认可下击败假父亲（暴君）那种基督教味
+
+*****
+
+####  xwz  
+##### 22780#       发表于 2025-6-26 15:54
+
+<img src="https://img.stage1st.com/forum/202506/26/155410lo6otwh6lhhbgwww.jpg" referrerpolicy="no-referrer">
+
+<strong>PPDGC)~(44]DBCNRL7D[(KU_tmb.jpg</strong> (73.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 15:54 上传
+
+笑死
+
