@@ -80,3 +80,11 @@
 
 虽然是无名，但还是心里过意不去
 
+
+*****
+
+####  UnknownRei  
+##### 430#       发表于 2025-6-27 04:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这个忍洞好像滥杀会把面具人的善恶阵营往恶变，不确定献祭队友的行为会有什么其他影响，但不管怎么样我先抱着rp善主角的想法按着不打了
+
