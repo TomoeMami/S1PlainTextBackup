@@ -10357,3 +10357,14 @@ Avenger：哈基蜗
 
 人马纯纯好怪，比大嘴虫虫好多了
 
+
+*****
+
+####  ouyang菌  
+##### 1003#       发表于 2025-6-26 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000191&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-6-25 20:28</a>
+
+突刺反击指的是什么呢</blockquote>
+敌人攻击的时候使用突刺属性伤害打中敌人伤害会增加，有点类似格斗游戏的打康那种？
+
