@@ -8706,3 +8706,21 @@ Re:扎比家恶役大小姐。
 X 上的 むたX：“ジークアクス最終回の後、久々にララァ訪ねたら、子沢山で二人が ...</blockquote>
 感谢搬运！！！
 
+
+*****
+
+####  Viteeee  
+##### 22809#       发表于 2025-6-26 18:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，吉翁在戴肯时代是个共和国，扎比时代是个公国，为啥扎比家下台了之后反而会变成王国啊？
+
+啥君主立宪女王登基，这哪来的不孝女重回政坛第一件事就是把先父的政治遗产给掀了。
+
+*****
+
+####  双菜  
+##### 22810#       发表于 2025-6-26 18:06
+
+<img src="https://p.sda1.dev/25/5f75c0f35705f96cf937ff243177e605/image.jpg" referrerpolicy="no-referrer">
+闪哈2要宣了？
+
