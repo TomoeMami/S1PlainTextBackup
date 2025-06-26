@@ -514,3 +514,13 @@ zzz指的是睡觉
 
 素人编剧拯救蒙面超人的幻想不早就该舍弃了吗诸位为啥不懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 56#       发表于 2025-6-26 09:47
+
+前段时间补相棒，看到一集预知梦的案子，觉得蛮有意思的，结尾就特地留意了下编剧，高桥悠也几个字我笑出声，能不能自我致敬一下<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+看日本SNS高桥信者开香槟的样子，也难怪东映喜欢找他
+
