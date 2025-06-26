@@ -8182,3 +8182,16 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明明之前都是能吃一整周的，但是这周三看完后连讨论的欲望都没了，这种神奇的感觉上次还是三个月前
 
+
+*****
+
+####  太极八爪鱼  
+##### 22774#       发表于 2025-6-26 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003486&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-25 20:59</a>
+
+马克杯和紫婆那个黑白二创，还真有点紫婆是转生的反派千金的味道
+
+不过真有人能挨一发光束火箭筒不死的么 ...</blockquote>
+鸭子的名言，没有面具我就死了，这里换到紫婆<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

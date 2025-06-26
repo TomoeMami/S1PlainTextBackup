@@ -14,3 +14,11 @@
 
 靠，B站那10呼符还要签到，不是一次性给的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47156#       发表于 2025-6-26 13:49
+
+去年兽尼池子200抽0五星，今年100抽来了俩……也算是补齐遗憾了，就是我汇呆也是快200抽0五星，今年还有机会补齐么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
