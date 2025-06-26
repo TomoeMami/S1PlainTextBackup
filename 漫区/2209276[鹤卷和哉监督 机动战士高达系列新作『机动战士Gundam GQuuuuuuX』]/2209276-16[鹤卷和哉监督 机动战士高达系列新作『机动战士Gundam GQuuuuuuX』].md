@@ -7608,3 +7608,61 @@ GQさんロボ萌えをありがとうございました…ロボにこんな狂
 
 原作的鸭妹线就是一条被动了很多次刀最后砍得销声匿迹的线，当初原设想确实是有可能本来就想让鸭妹接手扎比家灭亡后的吉翁的。
 
+
+*****
+
+####  西瓜夜行  
+##### 22730#       发表于 2025-6-26 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002256&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-6-26 09:56</a>
+
+ジークアクスを最後までご覧いただき、ありがとうございました。
+
+皆様の感想や様々なファンアートが、私た ...</blockquote>
+感谢搬运！！！
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 22731#       发表于 2025-6-26 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001966&amp;ptid=2209276" target="_blank">dogman 发表于 2025-6-26 09:04</a>
+
+别的都不想吐槽了，我就想问问，为啥最后包饺子的时候鸭和拉拉是在街头像普通人那样重逢的？在GQX这个世界 ...</blockquote>
+妓院都烧了
+
+
+*****
+
+####  西瓜夜行  
+##### 22732#       发表于 2025-6-26 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001966&amp;ptid=2209276" target="_blank">dogman 发表于 2025-6-26 09:04</a>
+
+别的都不想吐槽了，我就想问问，为啥最后包饺子的时候鸭和拉拉是在街头像普通人那样重逢的？在GQX这个世界 ...</blockquote>
+或许GQ拉拉还是靠自己的力量逃出来了吧，而且GQ拉拉和鸭这种“即使脱离了命运的舞台我们也会相遇”的感觉我也很喜欢
+
+*****
+
+####  赤尿的卡斯巴尔  
+##### 22733#       发表于 2025-6-26 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001989&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-26 09:08</a>
+
+Gfred像紫婆，根据原案发散怕不是把卡尔马塞进去了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+原来紫色流星是这个意思
+
+*****
+
+####  LadySaazbaum  
+##### 22734#       发表于 2025-6-26 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68002233&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-26 09:52</a>
+
+扎比家的吉翁体制类似二德子和战前日本，这里用了英国风的服装应该是想表明塞拉上台后走的是君主立宪的道路 ...</blockquote>
+不用想太多，更可能因为竹老师自己喜欢英式剪裁，绿叔叔在85年穿的衣服每一件每一件都很性感，可以无缝转入kingsman片场当模特的那种。
+
+而被叔叔严肃制裁的鸭鸭，穿深绿西装+黑色高领衫+<strong>马甲</strong>，也是一脉相承的性感。现代西装早就淘汰掉马甲了，因此可以说，穿马甲就是骚，闷骚。
+
