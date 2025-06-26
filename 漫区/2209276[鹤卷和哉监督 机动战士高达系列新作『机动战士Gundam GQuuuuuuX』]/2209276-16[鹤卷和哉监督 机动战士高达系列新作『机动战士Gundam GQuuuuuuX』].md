@@ -7135,3 +7135,458 @@ gq紫婆都明着膜93鸭了，喵安认错不是很正常<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 22723#         楼主| 发表于 2025-6-26 09:54
+
+井上大輔的单曲《ビギニング (动画电影《机动战士高达 剧场版Ⅲ 相逢在宇宙》片尾曲 )》:
+[https://y.music.163.com/m/song?id=4939762](https://y.music.163.com/m/song?id=4939762)
+
+照井順政/Shania Yan的单曲《Far Beyond the Stars》:  
+[https://y.music.163.com/m/song?id=2712497914](https://y.music.163.com/m/song?id=2712497914)
+
+OP动画MV：[https://youtu.be/2aFgfKtg3V4](https://youtu.be/2aFgfKtg3V4)
+
+<img src="https://p.sda1.dev/25/1ac37808ead34aeb45dfe5face354735/20250626_002447.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/02baeaa4477f26c0fff6b8c159dbfa1c/20250626_002448.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/62cde95700d00eea99a4a6916a7607fa/20250626_002548.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/4942c43122608a37e12de04318c082f2/20250626_002551.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/7058f90db71c076e740471f15021fcd8/20250626_002614.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/797ab996e88a3e4db882e3a260ab4030/20250626_002622.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/a8193822a6847a1c2a46f54284ab61de/20250626_002629.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/0f73d3d4deb137abaa2fb375bbd41594/20250626_002635.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d36256eaf675c7b726ef7292b7fa8f7f/20250626_002649.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/103fdc3e4a40480484457e0230820591/20250626_002657.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/a4177fa7e2102f89494eae817ce829cb/20250626_002708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/75898da9989bd239f3b74fd7529b213e/20250626_002729.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d9bf1c4f2184bc68f9da20d90a3184c7/20250626_002733.jpg" referrerpolicy="no-referrer">
+
+【【机设补完番外】山下育人版沙扎比+牛高达设定完全解析】 
+[https://b23.tv/ptcsVpW](https://b23.tv/ptcsVpW)
+[https://x.com/ikuto_yamashita/status/1937635463621419072](https://x.com/ikuto_yamashita/status/1937635463621419072)
+
+昔描いた白いヤツに相対する赤い奴を引っ張り出したのは杉谷P。後年追加した赤いの全身は、かつて白いのを見えない部位を創作し立体化してくれた模型師でデザイナーの東海村原八さんに向けた絵だったが、闘病してた彼はジークァクスの発表前に亡くなってしまった。半ば事後承諾で複雑だったが供養かな
+<img src="https://p.sda1.dev/25/3f398f5f4a61553bc8adc89cb5c0d402/20250626_002440.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/95**925c79606cbbf3af48716d220e/20250626_002525.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/7128b9b13b83728538c7001f39fbe2b7/20250626_002526.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/fb192dcbb86d0a659c15709dd1e33041/20250626_002528.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/fb6ed417bbcc5b857e99c5d3a44ec30f/20250626_002529.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/SBI_Corp/status/1937548883351208414](https://x.com/SBI_Corp/status/1937548883351208414)
+
+最後マチュのバックの中に入ってた軍用無線機、PRC-80-2って書いてあるけど実在はしない。
+
+救難無線機のAN/PRC-90-2をベースに112と126を合体させたようなやつだった。
+<img src="https://p.sda1.dev/25/8d8cf9baf110c52457c21c8ff1aaa49d/20250626_002457.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/42eeadb4cdefa815fe35bceaa193135c/20250626_002515.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/minitype00/status/1937541725851123884](https://x.com/minitype00/status/1937541725851123884)
+
+✨機動戦士ガンダム GQuuuuuuX　TVシリーズ 最終回
+
+ご視聴ありがとうございました！
+
+ザク、ギャン、キケロガのモデリングを担当させていただきました。😊
+
+新作ガンダムシリーズのザクを担当させていただけると聞いたときは、光栄であり、感謝の気持ちでいっぱいでした。
+
+このときほど、たくさんのロボットをモデリングしていてよかったと思ったことはありません！
+
+ギャンとキケロガ（ブラウ・ブロ）は、ファーストガンダムの印象からゲストMS扱いで、すぐに撃破されると思っていました。
+
+でも、こんなにもカッコよく活躍するなんて、まったく予想していませんでしたｗ
+
+特に、第7話でキケロガが初めて変形するシーンは、曲の盛り上がりも相まって、すごく好きなシーンです😊
+
+自分がモデリングを担当したMSが登場すると、まるでテム・レイになったような気分でしたw
+
+憧れのカラーさんとお仕事ができ、またガンダム作品に参加できたことを心より感謝しております。
+
+ありがとうございました！！
+<img src="https://p.sda1.dev/25/5171d37ad2e1714fd3bd6c3e6783e824/20250626_004049.jpg" referrerpolicy="no-referrer">
+
+最终话ED Card
+<img src="https://p.sda1.dev/25/6d3d0dcf92766380484635e24875148e/20250626_002120.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/fa0c7148d6adf986fc2bf207ffaa3e20/20250626_025319.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/9eb6898af03c635ba8e0204fda21b460/20250626_024855.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/502ff2d2fb6ca2dc1e20ef9909c5d0fa/20250626_024838.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/9c826c299ae04b75ece5d1abe9d5d5c7/20250626_024839.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/25/4a0a505367aa23349e80cd23305edc0a/20250626_021009.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/11e75aef62f82ffb2268b963a7eb4a5f/20250626_021006.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 22724#         楼主| 发表于 2025-6-26 09:56
+
+ジークアクスを最後までご覧いただき、ありがとうございました。
+
+皆様の感想や様々なファンアートが、私たちスタッフ一同のモチベーションとなり、
+
+なんとか最終回まで漕ぎ着けることができました。
+
+皆様とこのアニメーションを分かち合えた事を大変光栄に思います。
+
+本当にありがとうございました。
+
+鶴巻
+<img src="https://p.sda1.dev/25/e28aa67c03ec1edb0f091511a2acf40b/20250626_001547.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_take_oekaki/status/1937541213818859963](https://x.com/_take_oekaki/status/1937541213818859963)
+
+🏖️
+<img src="https://p.sda1.dev/25/56acbe4f9034c5e496549c128bad7fc4/20250626_001815.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tocodot/status/1937540249464504714](https://x.com/tocodot/status/1937540249464504714)
+
+『機動戦士Gundam GQuuuuuuX』最終話
+
+演出の1人として参加してました！
+
+ご視聴ありがとうございました！
+<img src="https://p.sda1.dev/25/bfa42cbe122a95a33fc69b29233ac825/20250626_001553.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dowagers/status/1937540322508308810](https://x.com/dowagers/status/1937540322508308810)
+
+機動戦士Gundam GQuuuuuuX
+
+最終話ご視聴ありがとうございました！
+
+後半パートのキャラ作監で参加しておりました✍️
+
+関わったスタッフの皆様本当にお疲れ様でした！
+<img src="https://p.sda1.dev/25/048b4d04b10c6a585140b14987799cf5/20250626_001557.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1937540184641335805](https://x.com/YY_shibata/status/1937540184641335805)
+
+最終話、第二原画で参加しております
+
+本作を愛し、楽しんでくださった皆様、今作からガンダムに興味を持ってくださった皆様と共に、この先どんなガンダムが生まれるかを楽しみにしながら当シリーズを愛していきます
+
+最後までご視聴いただき本当にありがとうございました！
+<img src="https://p.sda1.dev/25/e758f6ca499d4271132514563c3fee85/20250626_001649.jpg" referrerpolicy="no-referrer">
+
+だから僕は…
+<img src="https://p.sda1.dev/25/6d2a9440b10a8ce2439d38d738518a3a/20250626_001638.jpg" referrerpolicy="no-referrer">
+
+ジークアクス
+
+※同期の中野(@nkn_ruka )が影付け監修してくれました！感謝！
+<img src="https://p.sda1.dev/25/581c477c4bc6a4122ba39eb570953d3b/20250626_001700.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1937540909828280810](https://x.com/kouda_nyo/status/1937540909828280810)
+
+『機動戦士Gundam GQuuuuuuX』最後までご視聴いただきありがとうございました。
+
+opとedと1〜11話では動画、11、12話では2原として参加しておりました。
+
+アニメ業界にはいってはじめてのお仕事でしたのでとても感慨深いです、、
+<img src="https://p.sda1.dev/25/fb9b36bdb3a7a5cc306ec5c875ba0f41/20250626_001751.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/munimunianime/status/1937541140213006638](https://x.com/munimunianime/status/1937541140213006638)
+
+機動戦士Gundam GQuuuuuuX
+
+12話後半パート、デジタル動画検査で参加させていただきました。
+
+ご視聴いただきありがとうございました✨(掲載許可いただいています)
+<img src="https://p.sda1.dev/25/c1e87512d6f00dbf67e954db0065398f/20250626_001811.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/egocoroking/status/1937543509747396826](https://x.com/egocoroking/status/1937543509747396826)
+
+大変でしたけど楽しかったです！
+
+ありがとうございました！
+<img src="https://p.sda1.dev/25/1f98aab0be1d6376e2db4f6f6ca70635/20250626_001856.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/period_yoooou11/status/1937542535095943418](https://x.com/period_yoooou11/status/1937542535095943418)
+
+ジークアクス最終話ご視聴ありがとうございました！
+
+視聴者の皆様も作画、制作の方達にも感謝です！
+
+本当にありがとうございました！
+<img src="https://p.sda1.dev/25/1d6c8c95c9adcc9b2690fcdee0a699a5/20250626_002125.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yakumo_0624/status/1937540178878615935](https://x.com/yakumo_0624/status/1937540178878615935)
+
+参加された方々皆様お疲れ様でした
+
+友人のO君、願い叶えて良かったね！
+
+同じ業界人としてずっと応援していました
+
+視聴者の方々にこれからも愛される作品でありますように
+<img src="https://p.sda1.dev/25/88a385831577c7aab6326067b98c6f4d/20250626_002114.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ShinShin_ino/status/1937549616704262454](https://x.com/ShinShin_ino/status/1937549616704262454)
+
+ジークアクス特殊効果で参加でした 　12話全部がんばった
+
+（画像はファンアートです）
+<img src="https://p.sda1.dev/25/79b5cdef1b28e3937ee8ceb9d33cdb48/20250626_004036.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yooto40010/status/1937546029437714694](https://x.com/yooto40010/status/1937546029437714694)
+
+12話少しだけやってました！とても貴重な経験になりました！！！、！ 誘って頂いた阿部さん、小東さんありがとうございました。
+<img src="https://p.sda1.dev/25/e95ac5732ccb55527737758a60c4caa8/20250626_002133.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matatabeat/status/1937540357220364571](https://x.com/matatabeat/status/1937540357220364571)
+
+機動戦士ガンダムGQuuuuuuX 最終回「だから僕は…」にてLO原画をお手伝い致しました！
+
+少ない数ですが3、4と続き最終回もお手伝いできて、かつメインキャラだけでなくシャアとシャリアが描けたのも嬉しかったです！
+
+(SNS掲載許可いただきました。ありがとうございます)
+<img src="https://p.sda1.dev/25/25f70ea59bf1fb20317d134960d81abb/20250626_001936.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/lilya_litvak/status/1937541260786663671](https://x.com/lilya_litvak/status/1937541260786663671)
+
+本日放送の機動戦士Gundom GQuuuuuuX 第12話『だから僕は…』に原画で参加さて頂きました！
+
+最後の最後に呼んでくださって…本当に、本当にありがとうございました…！
+
+見てください！！
+<img src="https://p.sda1.dev/25/a5840f40386ee29443aa4e1170a760af/20250626_001957.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/HideMatsubara/status/1937543228494102568](https://x.com/HideMatsubara/status/1937543228494102568)
+
+機動戦士Gundam GQuuuuuuX 第12話-最終回-
+
+御視聴ありがとうございました！！！！
+
+全スタッフの皆さん！ありがとうーー！！！
+
+各配信サービスや放送、この後も順次始まります。
+
+引き続きよろしくお願いします。
+<img src="https://p.sda1.dev/25/ee8dfe6aac6632d338060f498417730c/20250626_001834.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/1xHE9h0LNK90777/status/1937863705490063396](https://x.com/1xHE9h0LNK90777/status/1937863705490063396)
+
+『機動戦士Gundam GQuuuuuuX』ありがとうございました！
+
+Beginning、3、12話のBパートで制作進行を担当させて頂きました！
+
+関わってくださった皆様、本当にありがとうございました！
+
+是非、これからも何度でも沢山見てください！！
+
+よろしくお願いいたします！
+<img src="https://p.sda1.dev/25/c2120296eb1062014eca52420e05966b/20250626_012035.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 22725#         楼主| 发表于 2025-6-26 09:57
+
+[https://x.com/io_takuya/status/1937541124379541739](https://x.com/io_takuya/status/1937541124379541739)
+
+■機動戦士Gundam GQuuuuuuX■
+
+デザインワークス　で参加でした
+
+最終回もマゼランでチョイ役でデザイン出られて良かったですｗ
+
+ご視聴ありがとうございました！
+<img src="https://p.sda1.dev/25/2fc0494fedc697a7cfc72ce448274da4/20250626_001950.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1937543252997210422](https://x.com/nkn_ruka/status/1937543252997210422)
+
+機動戦士Gundam GQuuuuuuX
+
+最終話、二原と動画で参加しておりました！！
+
+憧れの会社、憧れの方々が周りにいらっしゃる中でこの作品に携われた事凄く嬉しかったです。同時に貴重な経験を積む事も出来ました。
+
+最後まで本当にありがとうございました！
+<img src="https://p.sda1.dev/25/171b21aa89b527d5a7ce1f1a666e61f2/20250626_001843.jpg" referrerpolicy="no-referrer">
+
+ここのシーンめっちゃ熱かった……の落描きです。
+<img src="https://p.sda1.dev/25/85cc5a48dc49f4eaa67fb69566580765/20250626_001846.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gojooni/status/1937541488973643806](https://x.com/gojooni/status/1937541488973643806)
+
+長年関わった作品が終わり、ホッとしてる気持ちと寂しい感じがしてますが、最後まで見てくださった皆様、ありがとうございました！
+<img src="https://p.sda1.dev/25/f6f28885a0c3d218c980b157ed0cc4e1/20250626_001819.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/e788599906efb23916a43c36a28b25a2/20250626_001826.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/church0620/status/1937541118390124552](https://x.com/church0620/status/1937541118390124552)
+
+最終回ご視聴ありがとうございました!!
+<img src="https://p.sda1.dev/25/25a9b8c5f30dd39027e8d5be7ece6ce9/20250626_001801.jpg" referrerpolicy="no-referrer">
+
+最後に描きたかったSDをば
+<img src="https://p.sda1.dev/25/de4f4703b7939d041e4c1b929aac80d6/20250626_001804.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/zzz_sakaz/status/1937541052505923823](https://x.com/zzz_sakaz/status/1937541052505923823)
+
+最終話！
+
+二原で参加させていただきました！ 
+
+本来は参加は予定なかったのですが、どうしても最終話でガンダムを描きたくて、制作さんに頼み込んで少しだけ描かせてもらいました。
+
+ 参加できてとてもうれしかったです！
+
+ ありがとうございました！ 
+
+ ※FA許可済みです。
+<img src="https://p.sda1.dev/25/97f7df7ffab145a9540a3de877f35cca/20250626_001943.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/daizenium/status/1937541231782846727](https://x.com/daizenium/status/1937541231782846727)
+
+『機動戦士Gundam GQuuuuuuX』 最終話ご視聴ありがとうございました。
+
+演出をお手伝いさせていただきました。
+
+次回からは、ジオンの技術がリバースエンジニアリングされたゾックァックス、ザクレロキャノン、ビグロタンクの活躍をご期待下さいウソです笑
+<img src="https://p.sda1.dev/25/ec7459850883eccc0132be22f1510f36/20250626_002026.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/toyotoku/status/1937541235792916720](https://x.com/toyotoku/status/1937541235792916720)
+
+ご視聴ありがとうございました。
+
+✨投稿許可済✨
+<img src="https://p.sda1.dev/25/40ff4c6812575f511805ccc26516f16b/20250626_002050.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/geasa90/status/1937811923669750199](https://x.com/geasa90/status/1937811923669750199)
+
+ジークアクス最終話、ご視聴ありがとうございました！
+
+参加出来て幸せでした！
+
+画像は最終話の原画です(掲載許可頂きました)
+<img src="https://p.sda1.dev/25/ac33d3be990b44bc5180b407052f2f8a/20250626_002139.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 22726#         楼主| 发表于 2025-6-26 10:00
+
+[https://x.com/teruya13/status/1937646921604374598](https://x.com/teruya13/status/1937646921604374598)
+
+マチュとニャアンと、
+<img src="https://p.sda1.dev/25/ea9bcaebc7cc3e5cbdcab6209c734843/20250626_021200.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wooperfuri/status/1937695057727095142](https://x.com/wooperfuri/status/1937695057727095142)
+<img src="https://p.sda1.dev/25/9cfe6831b927c791abde9788434b368c/20250626_021150.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kisaragi9a/status/1937720579278471456](https://x.com/kisaragi9a/status/1937720579278471456)
+
+ありがとう。 楽しい時間でした。
+
+最後はどうなってもHappy Ending!
+
+上げた後修正点見つけるのなんとかしたいぬ…
+<img src="https://p.sda1.dev/25/36c93d9729e2a4380de9425159ff0138/20250626_021133.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yonemura_kou/status/1937621904082501842](https://x.com/yonemura_kou/status/1937621904082501842)
+
+おわった〜〜い！
+
+半年間、無茶苦茶楽しめた！
+<img src="https://p.sda1.dev/25/1dc565a25e2454810d29bf48a1576ab7/20250626_021222.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tsubo_jiro/status/1937588444311777582](https://x.com/tsubo_jiro/status/1937588444311777582)
+
+マチュがずっと主人公してて本当に良かったです…
+<img src="https://p.sda1.dev/25/36ceeb31bb8e29db19597d3372480f68/20250626_021257.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tibasa9/status/1937830990984229028](https://x.com/tibasa9/status/1937830990984229028)
+
+素敵な作品をありがとうございました✨✨
+<img src="https://p.sda1.dev/25/780c4f67b2d84d1713c516adf8ac6b7c/20250626_021018.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yuri_kyanon/status/1937575475683164338](https://x.com/yuri_kyanon/status/1937575475683164338)
+
+ありがとう、ジークアクス
+<img src="https://p.sda1.dev/25/afa29f2845bcd4dd94bd29047b220b44/20250626_021344.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/HAMWAY_MAN/status/1937601074590023894](https://x.com/HAMWAY_MAN/status/1937601074590023894)
+
+シーサイドのハロ＆コンチとヤドカリ可愛すぎて1時間くらい眺めてしまった
+
+GQさんロボ萌えをありがとうございました…ロボにこんな狂ったのR2以来だ。ハロコンのガチャ待ってます
+<img src="https://p.sda1.dev/25/2d858cfb93371bdd7b6e3b927980bd33/20250626_021300.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nishikawa099/status/1937600956520415536](https://x.com/nishikawa099/status/1937600956520415536)
+
+わった
+
+そして夏が来る。
+<img src="https://p.sda1.dev/25/09fc0545e00e38e7a9370a980779dcd4/20250626_021325.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/doa_wisteria/status/1937657025900740931](https://x.com/doa_wisteria/status/1937657025900740931)
+
+ジークアクス面白かったです。ハロとコンチが可愛かった。
+<img src="https://p.sda1.dev/25/3b7f1f54f8a7fd58c31795192093f983/20250626_094553.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 22727#         楼主| 发表于 2025-6-26 10:01
+
+[https://m.weibo.cn/detail/5181248886800574](https://m.weibo.cn/detail/5181248886800574)
+<img src="https://p.sda1.dev/25/350aacc1bca4e77fcada7dfca508e98e/20250626_021227.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tabakko/status/1937541222920520054](https://x.com/tabakko/status/1937541222920520054)
+
+「だから僕は…」 
+<img src="https://p.sda1.dev/25/5020bc11b0948d7f0c2622b3689a4f19/20250626_021507.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/flickerblue1999/status/1937540906808410317](https://x.com/flickerblue1999/status/1937540906808410317)
+
+ジークアクスの最終回記念に。
+
+趣味で描いたマチュ。
+
+終わってしまった…
+
+ズブズブにハマっていたので寂しいです。
+<img src="https://p.sda1.dev/25/2501fc6509f9cf76d9d6c1c82360a400/20250626_021410.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Ymmmkome/status/1937815075634712790](https://x.com/Ymmmkome/status/1937815075634712790)
+
+シュウマチュ　いつかまた会える
+<img src="https://p.sda1.dev/25/747ce47de612311cfb304ed76be3d49e/20250626_021023.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/niko9_niku9/status/1937587649356910805](https://x.com/niko9_niku9/status/1937587649356910805)
+
+マチュずっとときめいててほしい
+<img src="https://p.sda1.dev/25/052f05cac6d607b14137680dea35b6fd/20250626_021311.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syatey_12/status/1937818012062793889](https://x.com/syatey_12/status/1937818012062793889)
+
+コモリ少尉はｲｲｿﾞ…のrkgk7
+<img src="https://p.sda1.dev/25/822b593a7bc6da884a0ddcbce9c4ef89/20250626_021112.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ikkyu019/status/1937583314166272225](https://x.com/ikkyu019/status/1937583314166272225)
+
+勝手に脳内で居たことにした
+<img src="https://p.sda1.dev/25/96dac29000a7db83323f0eb8b99e2d16/20250626_021254.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/elmar_eld/status/1937771751284621705](https://x.com/elmar_eld/status/1937771751284621705)
+
+初めまして
+<img src="https://p.sda1.dev/25/3080ad122929ed92de4b6a19c14c28a5/20250626_021127.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/shiburingaru321/status/1937560513107624267](https://x.com/shiburingaru321/status/1937560513107624267)
+<img src="https://p.sda1.dev/25/758b1acb6c1e19477da2e80d323c07b5/20250626_021417.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rain_w0103/status/1937921813566349606](https://x.com/rain_w0103/status/1937921813566349606)
+<img src="https://p.sda1.dev/25/587a315485e3ee6aaee809ba92a1f598/20250626_094425.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ZBKNsuki/status/1937542096589848678](https://x.com/ZBKNsuki/status/1937542096589848678)
+<img src="https://p.sda1.dev/25/ceebbc3848e1e0ce3568e90e4885f753/20250626_021421.jpg" referrerpolicy="no-referrer">
+
