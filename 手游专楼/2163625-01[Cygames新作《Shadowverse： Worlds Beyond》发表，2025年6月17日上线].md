@@ -4758,3 +4758,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 主教真的越来越难打了，前两天打到钻石b0这两天从砖石一路掉到红宝石打吐了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 340#       发表于 2025-6-26 19:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么大怪兽换成小南娘主战者之后中速梦一把没赢说是
+
