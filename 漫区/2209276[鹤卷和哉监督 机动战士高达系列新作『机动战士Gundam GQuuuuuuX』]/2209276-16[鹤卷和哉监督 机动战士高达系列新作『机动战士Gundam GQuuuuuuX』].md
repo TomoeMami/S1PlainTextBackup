@@ -8479,3 +8479,31 @@ side6通缉麻球又如何，能到地球抓人嘛
 不过也不影响结论就是了。不对具体的某个个体负责，用暴力厘定对错并强制施行，这就是父亲的特权嘛
 不是说修斯本人很爹味，而是说他的某些行为（被迫）如此。只是个孩子却被迫履行父职手刃所爱，也是真的痛啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 22797#       发表于 2025-6-26 16:47
+
+其实回头看10话，绿叔叔壁咚麻球说想让麻球能够去做自己想做的事情，跟大结局其实也是能对上的
+
+麻球：我要到地球当水母，所以请给我钱<img src="https://static.stage1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+绿叔叔：……就算你是新人类当水母也有点超前了(掏腰包)<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 22798#       发表于 2025-6-26 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68004583&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-26 16:34</a>
+
+这也也不是两性关系啊，修司只是不懂感情的孩子而已
+
+而且修司的理由其实很充分，拉拉的确是有创世的能力 ...</blockquote>
+这就是传统形象中的君父会做的事情嘛……
+
+之前重听魔法师读十六国，就提到北魏子贵母死制度的创造者，出于貌似非常理性的缘由杀了孩子的母亲，却因此被自己的孩子所杀
+
+这就是典型的父亲和孩子截然不同的行事方式
+
