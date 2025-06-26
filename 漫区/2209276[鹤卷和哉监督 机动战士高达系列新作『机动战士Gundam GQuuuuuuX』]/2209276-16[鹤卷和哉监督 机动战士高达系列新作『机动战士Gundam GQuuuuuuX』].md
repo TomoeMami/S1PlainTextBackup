@@ -8507,3 +8507,27 @@ side6通缉麻球又如何，能到地球抓人嘛
 
 这就是典型的父亲和孩子截然不同的行事方式
 
+
+*****
+
+####  AvenueIII  
+##### 22799#       发表于 2025-6-26 17:06
+
+卡拉什么时候改改这同人臭毛病，大和号再这样我要辱骂几位哥哥了
+
+
+*****
+
+####  岸浪白野  
+##### 22800#       发表于 2025-6-26 17:12
+
+[X 上的 カラオケまねきねこ　コラボ最新情報：“◤7/10～ コラボ開催決定◢ 『機動戦士Gundam GQuuuuuuX (ジークアクス)』× #まねきねこ 🐈猫と戯れるコラボ限定ミニキャラが登場❗️ 詳細は後日公開予定、続報をお待ちください✨ #GQuuuuuuX ＃ジークアクス [url]https://t.co/qKwMkJeCVO](https://x.com/maneki_collabo/status/1938160307953967310)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/26/171214pwi8eqwj8bx7eb8o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-26 17:12 上传
+
