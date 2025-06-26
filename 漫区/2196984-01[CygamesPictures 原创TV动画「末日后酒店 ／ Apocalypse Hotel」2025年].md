@@ -8050,3 +8050,11 @@ no Yachiyo no life！
 
 —— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑酒杯  
+##### 686#       发表于 2025-6-26 12:21
+
+“人类大笨蛋”不是很喜欢，但吹口哨喜欢极了，+2
+
