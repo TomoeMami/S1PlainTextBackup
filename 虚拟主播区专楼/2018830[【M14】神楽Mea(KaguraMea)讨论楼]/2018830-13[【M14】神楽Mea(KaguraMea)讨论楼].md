@@ -46384,3 +46384,11 @@ jimmy shen桑、Tia、Soul Squawk。  
 睡醒就是七周年啦！明天见各位拜拜～  
 好啦，今天也辛苦大家欣赏Beautiful Japanese了。  
 
+
+*****
+
+####  术士q  
+##### 18904#       发表于 2025-6-28 00:32
+
+七周年快乐<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
