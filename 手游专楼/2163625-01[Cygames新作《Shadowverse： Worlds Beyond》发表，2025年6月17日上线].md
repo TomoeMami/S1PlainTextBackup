@@ -4846,3 +4846,28 @@ RJxX9dy</blockquote>
 
 不过我临时刷了个有oqs的初始号，有想要入坑的坛友可以私信我我送你，然后帮忙填一下这位坛友的邀请码，非常感谢。。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 348#       发表于 2025-6-27 18:12
+
+ 本帖最后由 duraa 于 2025-6-27 18:15 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/27/181125vvvctctzhu7rvovg.jpg" referrerpolicy="no-referrer">
+
+<strong>7JDH33]4[K@L6GP)9XMPR.jpg</strong> (201.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 18:11 上传
+
+难得打了个八连胜没遇到皇爷（然后下一把就遇到了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">中速梦游戏计划如下：
+
+1.把对面血量蹭到13以下（8费斩13得看脸，最好是11
+
+2.找机会下护符
+
+3.狗妹斩杀
+
