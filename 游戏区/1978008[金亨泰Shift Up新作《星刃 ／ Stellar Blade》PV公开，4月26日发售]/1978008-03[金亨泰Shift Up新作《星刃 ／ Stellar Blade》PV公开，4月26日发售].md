@@ -7798,3 +7798,15 @@ doro砍死了还能复活吗
 
 2025-6-27 16:16 上传
 
+
+*****
+
+####  卡拉德利姆  
+##### 3658#       发表于 2025-6-27 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010515&amp;ptid=1978008" target="_blank">hayamitetsu 发表于 2025-6-27 16:17</a>
+可以，换个区域又回来了
+
+砍死可以拿个贴纸</blockquote>
+这吉尔套装是mod吗
+
