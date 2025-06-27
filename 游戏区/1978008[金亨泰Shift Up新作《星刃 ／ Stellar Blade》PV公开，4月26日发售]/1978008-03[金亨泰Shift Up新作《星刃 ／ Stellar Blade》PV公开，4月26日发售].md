@@ -7752,3 +7752,16 @@ skin suit怎么解锁啊
 等三周目打完狗屎su还不修再考虑用mod搞吧 ...</blockquote>
 已经后悔了，不知道new game+能不能变好，不行再看有没有修红点mod了XD
 
+
+*****
+
+####  Andariel  
+##### 3656#       发表于 2025-6-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68009948&amp;ptid=1978008" target="_blank">hayamitetsu 发表于 2025-6-27 14:42</a>
+用了个9999弹药的MOD，在3周目凑齐了350万买了弹药，这下射击无忧了
+
+上2个射击强化，2个双刃，BOSS用霰弹 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">doro砍死了还能复活吗
+一直舍不得砍
+

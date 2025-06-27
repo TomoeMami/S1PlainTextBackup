@@ -9430,3 +9430,37 @@ envlove真是沒印象，只是說找到另一隻普露系列
 不過之前(之後)胡索編時看到一位疑似**的露露卡 ...</blockquote>
 evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
 
+
+*****
+
+####  Steel.Haze  
+##### 22865#       发表于 2025-6-27 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008993&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-27 11:39</a>
+
+露露卡不是在传说巨神里还是evlove里就早把他甩了么……</blockquote>
+以露露卡，那估计是周一二把捷度甩了，周三复合，周五又把捷度甩了，周五睡到周日起床后准备购物，和捷度复合获得'搬运工'。
+
+
+*****
+
+####  猪突猛进R  
+##### 22866#       发表于 2025-6-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68009718&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-27 13:57</a>
+
+数了下总觉得少了点什么。然后发现
+
+怎么少了0080的克里斯和巴尼。</blockquote>
+0080的主角是阿尔。
+
+*****
+
+####  adretyu67.  
+##### 22867#       发表于 2025-6-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010036&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-27 14:56</a>
+
+0080的主角是阿尔。</blockquote>
+那阿鲁更是父母健全
+
