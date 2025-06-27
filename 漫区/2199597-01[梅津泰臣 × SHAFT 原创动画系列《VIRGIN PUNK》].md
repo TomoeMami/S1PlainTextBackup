@@ -1013,3 +1013,14 @@ Mr.エレガンス：小西克幸
 
 是剧场版？为啥还有系列两个字，莫非还有续集
 
+
+*****
+
+####  王九的哥哥  
+##### 101#       发表于 2025-6-28 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012398&amp;ptid=2199597" target="_blank">aptx8285144 发表于 2025-6-27 23:45</a>
+
+是剧场版？为啥还有系列两个字，莫非还有续集</blockquote>
+是个新坑，你理解成剧场先行上映OVA也没差的……
+
