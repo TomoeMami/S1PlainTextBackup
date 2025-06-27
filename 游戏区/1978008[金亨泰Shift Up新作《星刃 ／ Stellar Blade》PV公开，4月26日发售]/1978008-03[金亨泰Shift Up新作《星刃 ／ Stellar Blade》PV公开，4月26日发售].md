@@ -7840,3 +7840,14 @@ doro砍死了还能复活吗
 
 把boss打的站不起来的流派得练手，不熟悉连招还容易被反杀，平时像我这样🦐几把打的不如用减伤流，反应脊柱+10%减伤脊柱，300盾+8%减伤+两个近战减伤组件，保证半血以上就很难被秒了
 
+
+*****
+
+####  盐星  
+##### 3662#       发表于 2025-6-27 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008122&amp;ptid=1978008" target="_blank">重新做人 发表于 2025-6-27 09:46</a>
+
+曼恩那个挑战皮肤普通难度就可以解锁了啊，至少普通难度下比渡鸦好打很多，技能全是后摇很明显的，攻击频率 ...</blockquote>
+我永远躲不开他那个大锤抓取，重打次数多过人形态渡鸦<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
