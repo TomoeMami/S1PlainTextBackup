@@ -7911,3 +7911,15 @@ doro砍死了还能复活吗
 
 大沙漠都想吐那趁早别全收集了。三周目每周目但凡漏一件服装都得加一周目
 
+
+*****
+
+####  hayamitetsu  
+##### 3669#       发表于 2025-6-28 03:22
+
+四周目又要去第九区了，果然和金hentai说的，这帮做MOD得都不行
+
+还是穿着烽火学生装
+
+看起来要五周目了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
