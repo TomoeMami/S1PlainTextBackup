@@ -135,3 +135,11 @@
 
 总之先看看下周公布接下来的roadmap有没有什么料了，信任还没恢复到继续课金的程度<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mobdom  
+##### 435#       发表于 2025-6-27 16:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像由于这个版本开始不支持win7了，我的steam版就卡在更新那里了。被迫退坑，都是好事
+
