@@ -1475,3 +1475,16 @@ Steamのみ</blockquote>
 
 冲着动画bd买的 ns限定版…… 至今都想不通为何好好一个gal要用蜜汁3d……
 
+
+*****
+
+####  江戸前ルナ  
+##### 126#       发表于 2025-6-27 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003967&amp;ptid=2247492" target="_blank">MrJokel 发表于 2025-6-26 14:43</a>
+
+以现在来说的话，跟其他四小天王相比差了不止一点半点吧，混成今天这个样子也只能说是咎由自取。
+
+这公司无 ...</blockquote>
+就看迷宫旅人的素质和类型的稀缺性，移植NS绝对要卖多非常多。然后现在上steam折戟只能在锁区的DMM和J什么平台卖，加上以前的死忠粉再买都卖不了多少，活该<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

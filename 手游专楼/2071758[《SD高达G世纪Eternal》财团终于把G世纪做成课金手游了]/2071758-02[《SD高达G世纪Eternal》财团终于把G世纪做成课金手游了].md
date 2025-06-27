@@ -5915,3 +5915,15 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  马桶3  
+##### 2016#       发表于 2025-6-27 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008342&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-27 10:20</a>
+请问想这样的是光束、物理     射击格斗觉醒增伤都能吃到吗</blockquote>
+驾驶员属性只取最高一项，武装本身属性增强都能吃到
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
