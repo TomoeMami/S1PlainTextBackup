@@ -9675,3 +9675,19 @@ evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
 X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より 「METAL ROBOT魂  ...</blockquote>
 真的只有光剑和盾牌<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 22877#       发表于 2025-6-27 21:25
+
+<img src="https://img.stage1st.com/forum/202506/27/212459jiw7wl84sc7yieid.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 21:24 上传
+
+这个为什么是SEED啊，说好的要带团长玩呢<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
