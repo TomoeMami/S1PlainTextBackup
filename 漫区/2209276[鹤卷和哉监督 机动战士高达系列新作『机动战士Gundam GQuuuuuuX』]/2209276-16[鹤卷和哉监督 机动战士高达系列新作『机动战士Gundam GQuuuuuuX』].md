@@ -9255,3 +9255,16 @@ image.png
 
 基拉还有养父母活的好好的，在孟德尔卫星上克队说出真相前，他明显是不知道自己身份的。
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 22852#       发表于 2025-6-27 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007644&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-27 08:16</a>
+
+捷多是父母外出务工不管子女，寄回来的钱还不够兄妹生活。
+
+西布克有父亲啊，母亲忙于工作（研发生物电脑 ...</blockquote>
+以亲生父母算，以作品结局时算，如果有续作按续作情况算。
+
