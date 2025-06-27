@@ -9404,3 +9404,29 @@ image.png
 
 envlove真是沒印象，只是說找到另一隻普露系列
 
+
+*****
+
+####  adretyu67.  
+##### 22863#       发表于 2025-6-27 13:57
+
+数了下总觉得少了点什么。然后发现
+
+怎么少了0080的克里斯和巴尼。
+
+巴尼：不明
+
+克里斯是应该是双亲健在的
+
+*****
+
+####  adretyu67.  
+##### 22864#       发表于 2025-6-27 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68009396&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-27 12:44</a>
+
+李阿寶找朱德時說她跑了...不過就確定妹妹在逆鴨之前還在
+
+不過之前(之後)胡索編時看到一位疑似**的露露卡 ...</blockquote>
+evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
+

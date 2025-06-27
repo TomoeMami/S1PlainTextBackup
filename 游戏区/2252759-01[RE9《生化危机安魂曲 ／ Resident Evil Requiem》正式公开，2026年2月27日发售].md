@@ -2731,3 +2731,15 @@ RE9 是一套單人離線遊戲
 
 為何還要獨立再提及LEON是不會被恐怖環境嚇到他...
 
+
+*****
+
+####  cangyuyao  
+##### 266#       发表于 2025-6-27 14:02
+
+ 本帖最后由 cangyuyao 于 2025-6-27 14:05 编辑 
+
+因为采访完整内容是前期试了在线和开放世界，觉得有趣但玩家应该不想要这种<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真实原因应该不会讲那么清楚
+
