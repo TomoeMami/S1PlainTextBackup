@@ -5903,3 +5903,15 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 请问想这样的是光束、物理     射击格斗觉醒增伤都能吃到吗
 
+
+*****
+
+####  一个陆仁贾  
+##### 2015#       发表于 2025-6-27 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008342&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-27 10:20</a>
+请问想这样的是光束、物理     射击格斗觉醒增伤都能吃到吗</blockquote>
+只取最高数值的那个
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
