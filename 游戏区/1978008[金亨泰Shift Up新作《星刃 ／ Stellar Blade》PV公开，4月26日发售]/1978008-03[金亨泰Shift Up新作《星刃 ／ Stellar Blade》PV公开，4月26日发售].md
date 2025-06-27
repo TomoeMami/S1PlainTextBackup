@@ -7646,3 +7646,16 @@ skin suit怎么解锁啊
 [https://x.com/Billyhhyb/status/1938407860112912503](https://x.com/Billyhhyb/status/1938407860112912503)
 <img src="https://tupian.li/images/2025/06/27/685e090492d52.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ladiesman802  
+##### 3648#       发表于 2025-6-27 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007367&amp;ptid=1978008" target="_blank">方舟售票员 发表于 2025-6-27 03:00</a>
+
+终于打完一周目了，牵手结局，但感觉好多东西都没讲
+
+我对话应该没漏，但亚当好像没亲口说过他是母猪领域的 ...</blockquote>
+对，希雍就说了，为什么选了你没有选她
+
