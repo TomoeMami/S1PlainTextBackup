@@ -118,3 +118,20 @@
 希望开主教或者领主的时候也让恶主角吃瘪一把</blockquote>
 想不到恶转善要付出什么代价，捐mo赠shou钱包大量金钱当善款吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Laie  
+##### 434#       发表于 2025-6-27 15:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">本来想把自己搞成恶再去解锁忍者，但是转念一想这何尝不是面具rp的ooc
+
+于是抓了个无名苦力去献祭了，心中毫无波澜，这才是轮回无数次、天天副本刷箱子为了变强和找回记忆、解除诅咒而不择手段的面具男应有之义<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+忍者相关内容做着还算用心，新场景和敌人资产，新bgm，新机制，最后留了伏线应该以后还会有后续展开（都是东方，说不定武士解锁相关？）
+为6月份流水腰斩要凉的你游微微续了一口气
+
+感觉你游是典中典一小部分认真做内容的在负重前行，项目管理和付费运营策略在各种放飞作死
+
+总之先看看下周公布接下来的roadmap有没有什么料了，信任还没恢复到继续课金的程度<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

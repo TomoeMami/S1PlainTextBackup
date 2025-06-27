@@ -5950,3 +5950,16 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 单独的减少防御力，是能叠加还是说也只是取最高值？
 
+
+*****
+
+####  rockroxas  
+##### 2019#       发表于 2025-6-27 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010042&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-27 14:57</a>
+
+单独的减少防御力，是能叠加还是说也只是取最高值？</blockquote>
+多个取最高，属性增伤也是
+
+敌人回合反击打上去的可以保持到自己回合结束
+

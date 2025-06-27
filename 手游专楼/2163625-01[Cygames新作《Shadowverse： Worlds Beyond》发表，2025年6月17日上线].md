@@ -4829,3 +4829,20 @@ RJxX9dy
 
 —— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  千千千千鸟  
+##### 347#       发表于 2025-6-27 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68009996&amp;ptid=2163625" target="_blank">saber614 发表于 2025-6-27 14:50</a>
+
+已填，这边也麻烦一下
+
+RJxX9dy</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感谢填写。。
+
+不过我临时刷了个有oqs的初始号，有想要入坑的坛友可以私信我我送你，然后帮忙填一下这位坛友的邀请码，非常感谢。。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
