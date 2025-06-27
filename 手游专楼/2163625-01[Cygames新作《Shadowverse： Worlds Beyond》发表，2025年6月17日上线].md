@@ -4766,3 +4766,11 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么大怪兽换成小南娘主战者之后中速梦一把没赢说是
 
+
+*****
+
+####  isowowsl  
+##### 341#       发表于 2025-6-27 09:42
+
+回坑了，好穷，只能玩玩虫虫了
+

@@ -1734,3 +1734,13 @@ re:act还活着啊，两个单曲
 
 真正的比赛从9回里2out开始，不愧是你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1336#       发表于 2025-6-27 09:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全都险胜，不愧是她
+
+大比分输赢都挺无聊的，就爱看这种
+
