@@ -9148,3 +9148,16 @@ image.png
 我也觉得那个短信是安顿好了的报告。不过看番茄家里已经准备搬家了。没准可能搬到S3？ ...</blockquote>
 其实只是居家办公了，你看特写咖啡电脑文件都放着
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 22848#       发表于 2025-6-27 07:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005085&amp;ptid=2209276" target="_blank">Viteeee 发表于 2025-6-26 18:03</a>
+
+不是，吉翁在戴肯时代是个共和国，扎比时代是个公国，为啥扎比家下台了之后反而会变成王国啊？
+
+啥君主立宪 ...</blockquote>
+按照遗老们的废案回收，估计是高达还是GUNBOY企画时的大坑了，在那个时候的企画里吉翁公国一开始就是戴肯建立的。
+
