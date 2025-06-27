@@ -9290,3 +9290,14 @@ image.png
 我试着统计了一下从0079开始到水星魔女，所有主要高达作品里登场主角/主角团队的双亲留存率，然后下 ...</blockquote>
 西部可她妈是研究员，为啥默认死……
 
+
+*****
+
+####  adretyu67.  
+##### 22855#       发表于 2025-6-27 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008360&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-27 10:22</a>
+
+西部可她妈是研究员，为啥默认死……</blockquote>
+海盗里他妈和妹妹都没提下落
+
