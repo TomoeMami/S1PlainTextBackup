@@ -7549,3 +7549,44 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 —— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  重新做人  
+##### 3639#       发表于 2025-6-27 09:46
+
+曼恩那个挑战皮肤普通难度就可以解锁了啊，至少普通难度下比渡鸦好打很多，技能全是后摇很明显的，攻击频率也低，所以剧情上打不过渡鸦太正常了
+
+
+*****
+
+####  猫塚猫夫  
+##### 3640#       发表于 2025-6-27 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68006549&amp;ptid=1978008" target="_blank">LOLITA 发表于 2025-6-26 22:25</a>
+
+后知后觉，伊芙计划的女战士都是大辟谷+大雷是为了满足亚当的性癖吧，小公主不对是小母主为了满足父亲大人 ...</blockquote>
+女守卫那服装，视觉上正面看总觉得像孕肚。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  武蔵  
+##### 3641#       发表于 2025-6-27 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68006549&amp;ptid=1978008" target="_blank">LOLITA 发表于 2025-6-26 22:25</a>
+后知后觉，伊芙计划的女战士都是大辟谷+大雷是为了满足亚当的性癖吧，小公主不对是小母主为了满足父亲大人 ...</blockquote>
+那个女的肚子好大好圆
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+真的很别扭
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 3642#       发表于 2025-6-27 09:53
+
+skin suit怎么解锁啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

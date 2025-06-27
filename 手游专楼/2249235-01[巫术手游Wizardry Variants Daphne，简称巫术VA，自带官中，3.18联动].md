@@ -96,3 +96,13 @@
 
 恶主角不需要献祭，我一路杀过去后和阳炎忍者打一场就把灯给我了
 
+
+*****
+
+####  elven119  
+##### 432#       发表于 2025-6-27 09:46
+
+善主角他妈的吃屎了。
+
+希望开主教或者领主的时候也让恶主角吃瘪一把<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
