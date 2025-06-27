@@ -7526,3 +7526,14 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 沉迷大沙漠拍照收集，对着照片拼命分析线索，折腾了2个小时才从4/10补成了7/10，倒是发现了一堆之前错过的收集点<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 3637#       发表于 2025-6-27 08:15
+
+曼恩不能纯压制，他有反轮椅机制，倒地检测你突上来大概率会烟雾弹/后跳枪或者直接投技之类的。解决方法就是不要一直突他脸。
+红莲倒还好，不过红莲是另一种考考你形式了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
