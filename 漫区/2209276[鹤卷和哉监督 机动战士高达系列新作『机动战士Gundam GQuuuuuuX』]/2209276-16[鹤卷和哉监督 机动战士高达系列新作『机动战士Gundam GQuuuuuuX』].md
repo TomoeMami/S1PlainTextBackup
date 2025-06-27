@@ -9301,3 +9301,31 @@ image.png
 西部可她妈是研究员，为啥默认死……</blockquote>
 海盗里他妈和妹妹都没提下落
 
+
+*****
+
+####  太极八爪鱼  
+##### 22856#       发表于 2025-6-27 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008525&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-26 18:45</a>
+
+海盗里他妈和妹妹都没提下落</blockquote>
+没提下落的多了……海盗到018x年还是7x年的最新连载也没提西部可和胡说下落，也不能默认这俩挂了啊
+
+*****
+
+####  adretyu67.  
+##### 22857#       发表于 2025-6-27 10:56
+
+ 本帖最后由 adretyu67. 于 2025-6-27 10:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008573&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-27 10:52</a>
+
+没提下落的多了……海盗到018x年还是7x年的最新连载也没提西部可和胡说下落，也不能默认这俩挂了啊
+
+ ...</blockquote>
+巴比伦战争没写，西部克他妈是可能死的，但是他妹很难死。
+
+他妹要死的情况除非这片改名叫机动战士ideon
+
+其实不提也说得过去，名义上都是个死人了，用回本来身份都结婚了。都结婚了那就独立了。
+

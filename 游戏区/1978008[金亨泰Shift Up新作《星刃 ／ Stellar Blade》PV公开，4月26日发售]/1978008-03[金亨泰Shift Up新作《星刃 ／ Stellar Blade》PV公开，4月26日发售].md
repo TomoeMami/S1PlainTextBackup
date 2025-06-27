@@ -7602,3 +7602,28 @@ skin suit怎么解锁啊
 —— 来自 鹅球 v3.3.96</blockquote>
 不是把外观脱了就出来了么
 
+
+*****
+
+####  洛克萨斯  
+##### 3644#       发表于 2025-6-27 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007367&amp;ptid=1978008" target="_blank">方舟售票员 发表于 2025-6-27 03:00</a>
+
+终于打完一周目了，牵手结局，但感觉好多东西都没讲
+
+我对话应该没漏，但亚当好像没亲口说过他是母猪领域的 ...</blockquote>
+对，你看妮姬剑星联动也有的，渡鸦知道伊芙和亚当在一起直接炸毛了
+
+*****
+
+####  洛克萨斯  
+##### 3645#       发表于 2025-6-27 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007987&amp;ptid=1978008" target="_blank">11116等 发表于 2025-6-27 09:25</a>
+
+β三角和爆发方块都能一键清图，碰到盾哥我建议用霰弹打死再入场，实在不行在场外导弹洗地了
+
+—— 来自  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞针和高爆无限子弹的话这游戏毫无难度，强无敌
+
