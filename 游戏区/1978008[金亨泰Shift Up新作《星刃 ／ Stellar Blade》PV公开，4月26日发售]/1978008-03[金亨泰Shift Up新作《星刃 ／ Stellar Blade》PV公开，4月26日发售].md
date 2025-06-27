@@ -7659,3 +7659,13 @@ skin suit怎么解锁啊
 我对话应该没漏，但亚当好像没亲口说过他是母猪领域的 ...</blockquote>
 对，希雍就说了，为什么选了你没有选她
 
+
+*****
+
+####  arbilest  
+##### 3649#       发表于 2025-6-27 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007061&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-27 00:12</a>
+不都是一个规格么，渡鸦迅驰伊芙没啥区别吧，倒不如说roll到这一次才roll出性格好的 ...</blockquote>
+如果你拿到渡鸦的衣服，和伊芙的默认空降小队服切换的话，你会发现渡鸦的雷大太多了，屁股也不一样
+
