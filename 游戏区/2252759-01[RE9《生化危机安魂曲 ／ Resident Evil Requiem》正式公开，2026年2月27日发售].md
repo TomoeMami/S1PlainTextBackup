@@ -2686,3 +2686,26 @@ re4 这么成熟的系统和玩法不继续用肯定可惜，要不是未来的 
 
 如果真是以7代玩法氛围为基点，然后扩展出足量的内容，对于我而言就是9分以上的生化危机续作了。
 
+
+*****
+
+####  洛亚替身  
+##### 262#       发表于 2025-6-27 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67923441&amp;ptid=2252759" target="_blank">1096beam 发表于 2025-6-12 09:11</a>
+
+官方都推荐使用第一人称了，第三人称估计只是8的可以看脸的改进版而已，关卡还是按照第一人称来设计的。 ...</blockquote>
+有生4水平了吧
+
+*****
+
+####  洛亚替身  
+##### 263#       发表于 2025-6-27 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67925413&amp;ptid=2252759" target="_blank">Alect 发表于 2025-6-12 14:23</a>
+
+还真有视角切换啊，那我只能希望Capcon能在两种视角上都下功夫而不是某一种视角上资源倾斜不平衡了。
+
+要说 ...</blockquote>
+不小概率把布兰登登场甚至一部干掉，之前文件给秽土转生了
+

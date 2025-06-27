@@ -61,3 +61,21 @@
 这应该不是主要玩法吧..是吧卡婊...不然也太无聊了</blockquote>
 除非有技能升级到小怪自动破甲，不然从pv看来打个杂鱼都要接水管才打得动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。明明这东西做成boss 战额外增伤手段就算了，我就当又吃了一坨怪猎冰原钩爪处决上伤口，现在打啥都来一套还限时破甲真要命。
 
+
+*****
+
+####  jacket  
+##### 110#       发表于 2025-6-27 09:28
+
+吾去脱他衣
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 111#       发表于 2025-6-27 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008002&amp;ptid=2252823" target="_blank">jacket 发表于 2025-6-27 09:28</a>
+
+吾去脱他衣</blockquote>
+换成女性敌人就是神作了。
+
