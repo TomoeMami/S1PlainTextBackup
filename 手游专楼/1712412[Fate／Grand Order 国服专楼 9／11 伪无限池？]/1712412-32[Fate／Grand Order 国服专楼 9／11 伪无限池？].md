@@ -101,3 +101,11 @@
 —— 来自 OnePlus PKG110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
 0.8还是太低了，UP率0.95才是应该的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47165#       发表于 2025-6-27 20:14
+
+好友里的氪佬好像也没抽，以往活动日常报他满破五星氪金礼装的，这次只挂了满破三星礼装出来
+
