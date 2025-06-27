@@ -9798,3 +9798,345 @@ b:マチュとニャアンでどこでも行けて話になる。続篇楽しみ
 [https://x.com/hil8DieG0wrQ1Ei/status/1938012652523131157](https://x.com/hil8DieG0wrQ1Ei/status/1938012652523131157)
 <img src="https://p.sda1.dev/25/58218586d1bbfed4462aee5e6669e23e/20250628_002855.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 22883#       发表于 2025-6-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010036&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-27 14:56</a>
+
+0080的主角是阿尔。</blockquote>
+那阿鲁更是父母健全
+
+*****
+
+####  岸浪白野  
+##### 22884#       发表于 2025-6-27 16:10
+
+[X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より 「METAL ROBOT魂 ＜SIDE MS＞ ガンダム（GQ）」の詳細情報を公開！ 📌[url]https://t.co/eEnmIAiTut](https://x.com/gundam_tamashii/status/1938371738154504669) 同シリーズの #ジークアクス と対峙できる全高約155mmで完全新規造形！ 内部構造や一部外装にダイキャストを使用。 #魂ウェブ商店 で6月27日16時より予約受付開始!! [https://t.co/RmpvRiV6xX](https://t.co/RmpvRiV6xX)” / X[/url]
+
+[METAL ROBOT SPIRITS &lt;SIDE MS&gt;高达(GQ) | TAMASHII WEB](https://tamashiiweb.com/item/15474/?wovn=zh-CHS)
+
+<img src="https://img.stage1st.com/forum/202506/27/160900botsaj8j03j0b300.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160906uwllenv8yl3e90a9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160913eqpn26q8p2mp28mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160949q4k15oznpu9pukkf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160958d41zzcj4ckpt644t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (880.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161004m8jailvwvwkekvv8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161007wp3q6hij9lyjbqgv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1004.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161011cqtacapo3tr2t55s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1013.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161015hlou5xma35d39lxl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (815.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161023l93jjd8ps3jh3bjs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161028kqklybzllaqgk9gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (732.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161034owc5a9t1iwi1t5uy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161044yrcwrqcmv2jblals.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+*****
+
+####  岸浪白野  
+##### 22885#       发表于 2025-6-27 16:12
+
+[X 上的 STRICT-G：“【イベント情報】2025年7月1日（火）~7月31日（木）迄、and ST TOKYOにてポップアップスペースが出現！and ST TOKYO限定商品と数量限定ノベルティとして 描き下ろしイラスト全11種のステッカーをプレゼント！ [url]https://t.co/tJwFR1okkW](https://x.com/STRICTG/status/1938433989494317488) [https://t.co/4dN6ukb7dO](https://t.co/4dN6ukb7dO)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/27/161145s0wtlgvhv88r3xrf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1018.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161202fetruvbra9y22496.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:12 上传
+
+*****
+
+####  岸浪白野  
+##### 22886#       发表于 2025-6-27 16:20
+
+ 本帖最后由 岸浪白野 于 2025-6-27 16:31 编辑 
+
+忘了说，阿森纳官网动画完结后才上传送的这张的数据是有补上喵安身高172的，所以也算整蛊之前拿到卡的人了
+
+<img src="https://img.stage1st.com/forum/202506/27/161816uja6zjv0k7fuj3ff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (513.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:18 上传
+
+*****
+
+####  猪突猛进R  
+##### 22887#       发表于 2025-6-27 16:37
+
+喵安不能巨大化真是太可惜了。
+
+*****
+
+####  云野十五  
+##### 22888#       发表于 2025-6-27 16:46
+
+172，比狸猫还高啊
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22889#       发表于 2025-6-27 16:51
+
+新元祖这手，怀旧/超级系风味
+
+*****
+
+####  失落之翼  
+##### 22890#       发表于 2025-6-27 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010533&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-27 16:20</a>
+
+忘了说，阿森纳官网动画完结后才上传送的这张的数据是有补上喵安身高172的，所以也算整蛊之前拿到卡的人了
+
+ ...</blockquote>
+喵安动画里看着不像172，是因为曲线不够么
+
+*****
+
+####  YU_JI  
+##### 22891#       发表于 2025-6-27 18:19
+
+<blockquote>Steel.Haze 发表于 2025-6-27 10:15
+我的一个哥们按照之前讨论的疑似原案第七集改了个拓展，我发现这个方案貌似顺流多了，我甚至怀疑，鹤卷和 ...</blockquote>
+这帮老头绝对是知道怎么拍会更好看的，但是他们偏偏要选了他们心里觉得最好玩的拍法
+
+*****
+
+####  灵魂收割机  
+##### 22892#       发表于 2025-6-27 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010471&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-27 16:10</a>
+
+X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より 「METAL ROBOT魂  ...</blockquote>
+真的只有光剑和盾牌<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 22893#       发表于 2025-6-27 21:25
+
+<img src="https://img.stage1st.com/forum/202506/27/212459jiw7wl84sc7yieid.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 21:24 上传
+
+这个为什么是SEED啊，说好的要带团长玩呢<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TRIScRE  
+##### 22894#       发表于 2025-6-27 21:37
+
+<img src="https://img.stage1st.com/forum/202506/27/213730s469qqn1oskmn4u4.jpg" referrerpolicy="no-referrer">
+
+<strong>CVC%H%}P@666][2FWKAIP.jpg</strong> (175.87 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-27 21:37 上传
+
+*****
+
+####  cmdycj0732  
+##### 22895#       发表于 2025-6-27 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68011930&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-27 21:25</a>
+
+这个为什么是SEED啊，说好的要带团长玩呢</blockquote>
+因为团长停不下来
+
+*****
+
+####  gundammarkⅡ  
+##### 22896#       发表于 2025-6-28 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005215&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-26 18:38</a>
+以前不就是出過轉生基利西亞的漫畫嗎?</blockquote>
+这个是小说
+好像这作里的拉拉也是超越（转生）者<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Piano-Forest  
+##### 22897#         楼主| 发表于 2025-6-28 02:22
+
+<img src="https://p.sda1.dev/25/bb271cf75acf0f775178c73bcd534f4d/IMG_20250628_001803.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/f4c73536770bc3c96bc4315fcf4694fb/IMG_20250628_001814.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/ec8c65d0de5376ac8fe56527370aea37/IMG_20250628_001827.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c70c73e55f66beb3ed3af1fe62dfdf61/IMG_20250628_001857.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 22898#         楼主| 发表于 2025-6-28 02:46
+
+[https://x.com/mm_kc24/status/1938592481542844650](https://x.com/mm_kc24/status/1938592481542844650)
+
+また会えるってガンダムが言ってる
+<img src="https://p.sda1.dev/25/c433aad6540b77fc92ce92a9993d2c2d/20250628_002039.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/bef8c7552a975da1ff10b419740cc12f/20250628_002042.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/UGO_information/status/1938166595089846459](https://x.com/UGO_information/status/1938166595089846459)
+
+【ふりむかないマチュ】最終回観ましたか？　
+
+ 最終回後の内部の反応
+
+a:うわぁ、綺麗に終わりすぎた感が出過ぎだ！
+
+ まとめきれずに以下映画公開を待て！の方が楽しみが長引いたのに(T_T)
+
+b:マチュとニャアンでどこでも行けて話になる。続篇楽しみだ。
+
+ 皆さんはどっち？
+<img src="https://p.sda1.dev/25/52166d554acac27adf368d75ea38c0d8/20250628_002941.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dendenhouse/status/1937880764210962467](https://x.com/dendenhouse/status/1937880764210962467)
+
+「マチュとニャアンは二人で自在に泳げるのだ。」
+
+よい最終回でした。
+<img src="https://p.sda1.dev/25/4be7170fee050c0a218b07967b496365/20250628_002933.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/chestnut_ann/status/1938435587427733813](https://x.com/chestnut_ann/status/1938435587427733813)
+
+今どう過ごしているのかな、あの人。
+<img src="https://p.sda1.dev/25/9ad055436e26f2db9251a67af41c99d1/20250628_002125.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tibasa9/status/1938557346890092989](https://x.com/tibasa9/status/1938557346890092989)
+<img src="https://p.sda1.dev/25/e953e54da81424d3c6ea5dc068c8d961/20250628_002052.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/haruki_chise/status/1938251064450683004](https://x.com/haruki_chise/status/1938251064450683004)
+<img src="https://p.sda1.dev/25/a271da122d80257dcd5ac5dcdc2cd6a9/20250628_002335.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/muuten_/status/1938558586759840066](https://x.com/muuten_/status/1938558586759840066)
+<img src="https://p.sda1.dev/25/78038481f787c47983f3d4310c1f48f4/20250628_002102.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syousaaaaa/status/1938255028130853111](https://x.com/syousaaaaa/status/1938255028130853111)
+<img src="https://p.sda1.dev/25/8c4bcf690883e75cf383b87b1093a35b/20250628_002027.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/t_kotobuki/status/1938160438644248810](https://x.com/t_kotobuki/status/1938160438644248810)
+
+以前プライベートで描いた色紙のアイデアラフ
+<img src="https://p.sda1.dev/25/bf7dc7273a193e375915e088a851cd4a/20250628_002846.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hil8DieG0wrQ1Ei/status/1938012652523131157](https://x.com/hil8DieG0wrQ1Ei/status/1938012652523131157)
+<img src="https://p.sda1.dev/25/58218586d1bbfed4462aee5e6669e23e/20250628_002855.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 22899#       发表于 2025-6-28 06:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012674&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-6-28 02:22</a></blockquote>
+说到这个，富野的作品很多都能赛一场够格的最终战，这是个巨大的优点。
+
