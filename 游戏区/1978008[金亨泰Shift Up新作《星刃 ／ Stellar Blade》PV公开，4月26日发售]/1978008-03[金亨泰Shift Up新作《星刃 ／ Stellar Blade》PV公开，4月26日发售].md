@@ -7685,3 +7685,70 @@ skin suit怎么解锁啊
 
 装了商人mod买了现在绑PSN拿不到的那件换色2小队空降服，然后马上把mod删了，结果还是出了bug，现在得到新设计图不显示红点，发型那栏反而一直出红点消不掉，虽然不影响玩，但是强迫症看着难受-_-
 
+
+*****
+
+####  Andariel  
+##### 3652#       发表于 2025-6-27 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68009885&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-6-27 14:30</a>
+装了商人mod买了现在绑PSN拿不到的那件换色2小队空降服，然后马上把mod删了，结果还是出了bug，现在得到新 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我已经无所谓这个bug了，反正那套衣服也不好看
+等三周目打完狗屎su还不修再考虑用mod搞吧
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3653#       发表于 2025-6-27 14:39
+
+<blockquote>心灵的乳头 发表于 2025-6-27 14:23
+你们是怎么做到用手柄射击移动目标精确瞄准不miss的？大沙漠有个地方捡罐头，要打自爆无人机，开始几个我还 ...</blockquote>
+换目标时可以推摇杆甩视角不断取消重瞄，举枪有辅助瞄准（小范围吸附）
+
+
+*****
+
+####  hayamitetsu  
+##### 3654#       发表于 2025-6-27 14:42
+
+用了个9999弹药的MOD，在3周目凑齐了350万买了弹药，这下射击无忧了
+
+上2个射击强化，2个双刃，BOSS用霰弹枪怼死，任何难度都没压力，怪不得子弹有限制，太强了
+
+继续拍照
+
+<img src="https://img.stage1st.com/forum/202506/27/144041bjgj1upp2zg15i7c.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250626_00423000000.png</strong> (5.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 14:40 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/144045v8zrppjbzf9bfj48.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250627_01455400000.png</strong> (6.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 14:40 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/144049v0c0gik2i0o5vk0v.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250627_01505100000.png</strong> (5.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 14:40 上传
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3655#       发表于 2025-6-27 14:44
+
+<blockquote>Andariel 发表于 2025-6-27 14:36
+我已经无所谓这个bug了，反正那套衣服也不好看
+
+等三周目打完狗屎su还不修再考虑用mod搞吧 ...</blockquote>
+已经后悔了，不知道new game+能不能变好，不行再看有没有修红点mod了XD
+
