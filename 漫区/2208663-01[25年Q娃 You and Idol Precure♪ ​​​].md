@@ -325,3 +325,11 @@
 
 应该是本周日配合两妖精正式入队放剧场版第一个正式预告。想起来下个月那充满噱头的“VS”不知道会是谁的主意？
 
+
+*****
+
+####  jaewoongh_  
+##### 1097#       发表于 2025-6-27 13:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上微博看了眼下集预告，大河内太有活了
+
