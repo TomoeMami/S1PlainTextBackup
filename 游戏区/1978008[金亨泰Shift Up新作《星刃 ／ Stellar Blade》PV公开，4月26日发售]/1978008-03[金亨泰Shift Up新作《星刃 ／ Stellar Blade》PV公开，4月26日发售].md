@@ -7627,3 +7627,22 @@ skin suit怎么解锁啊
 —— 来自  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞针和高爆无限子弹的话这游戏毫无难度，强无敌
 
+
+*****
+
+####  Andariel  
+##### 3646#       发表于 2025-6-27 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008579&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-27 10:52</a>
+飞针和高爆无限子弹的话这游戏毫无难度，强无敌</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说百合伟大
+这把枪完全就是她造的，艾德姆这么多年就只会造个摄像头
+
+*****
+
+####  jacket  
+##### 3647#       发表于 2025-6-27 11:00
+
+[https://x.com/Billyhhyb/status/1938407860112912503](https://x.com/Billyhhyb/status/1938407860112912503)
+<img src="https://tupian.li/images/2025/06/27/685e090492d52.jpg" referrerpolicy="no-referrer">
+

@@ -106,3 +106,15 @@
 
 希望开主教或者领主的时候也让恶主角吃瘪一把<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  macshi  
+##### 433#       发表于 2025-6-27 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008126&amp;ptid=2249235" target="_blank">elven119 发表于 2025-6-27 09:46</a>
+善主角他妈的吃屎了。
+
+希望开主教或者领主的时候也让恶主角吃瘪一把</blockquote>
+想不到恶转善要付出什么代价，捐mo赠shou钱包大量金钱当善款吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
