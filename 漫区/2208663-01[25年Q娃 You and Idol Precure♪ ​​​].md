@@ -342,3 +342,16 @@
 大河内第一次给q娃打工 就整出了现今所有q娃系列构成编剧都不敢整的玩意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 当年抓心也只敢还没有变q娃马琳阳光变怪过
 
+
+*****
+
+####  pokemon最爱  
+##### 1099#       发表于 2025-6-28 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68011693&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-6-27 20:21</a>
+
+大河内第一次给q娃打工 就整出了现今所有q娃系列构成编剧都不敢整的玩意
+
+当年抓心也只敢还没有变q娃马琳阳 ...</blockquote>
+去年倒是小麦暂时的被最终BOSS变怪了一小会儿……不过这个追加被实力不如自己的干部变怪还是太抽象了，可能是因为Q娃力量是心闪锁许愿来的不是自己激发的所以没点抗性吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
