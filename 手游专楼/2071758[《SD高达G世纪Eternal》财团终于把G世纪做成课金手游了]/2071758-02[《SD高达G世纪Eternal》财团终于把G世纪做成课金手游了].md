@@ -5963,3 +5963,16 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 敌人回合反击打上去的可以保持到自己回合结束
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2020#       发表于 2025-6-28 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68005540&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-6-26 19:50</a>
+
+我知道能用钻，只是和我关系不大，毕竟没有全图鉴强迫症。
+
+顺便问下，能用钻开格子的上限是多少？平均一 ...</blockquote>
+图鉴只要拿到就开了，拆掉没问题
+
