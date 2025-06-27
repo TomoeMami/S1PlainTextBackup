@@ -7765,3 +7765,36 @@ skin suit怎么解锁啊
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">doro砍死了还能复活吗
 一直舍不得砍
 
+
+*****
+
+####  hayamitetsu  
+##### 3657#       发表于 2025-6-27 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010037&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-27 14:56</a>
+
+doro砍死了还能复活吗
+
+一直舍不得砍</blockquote>
+可以，换个区域又回来了
+
+砍死可以拿个贴纸
+
+这衣服果然还是在这里最有感觉
+
+<img src="https://img.stage1st.com/forum/202506/27/161651hdhlzj4nlseh64lr.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250627_15261400000.png</strong> (5.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161654igydda3xdc9gkdgm.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250627_15300400000.png</strong> (4.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:16 上传
+

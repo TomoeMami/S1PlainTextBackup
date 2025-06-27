@@ -9464,3 +9464,140 @@ evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
 0080的主角是阿尔。</blockquote>
 那阿鲁更是父母健全
 
+
+*****
+
+####  岸浪白野  
+##### 22868#       发表于 2025-6-27 16:10
+
+[X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より 「METAL ROBOT魂 ＜SIDE MS＞ ガンダム（GQ）」の詳細情報を公開！ 📌[url]https://t.co/eEnmIAiTut](https://x.com/gundam_tamashii/status/1938371738154504669) 同シリーズの #ジークアクス と対峙できる全高約155mmで完全新規造形！ 内部構造や一部外装にダイキャストを使用。 #魂ウェブ商店 で6月27日16時より予約受付開始!! [https://t.co/RmpvRiV6xX](https://t.co/RmpvRiV6xX)” / X[/url]
+
+[METAL ROBOT SPIRITS &lt;SIDE MS&gt;高达(GQ) | TAMASHII WEB](https://tamashiiweb.com/item/15474/?wovn=zh-CHS)
+
+<img src="https://img.stage1st.com/forum/202506/27/160900botsaj8j03j0b300.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160906uwllenv8yl3e90a9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160913eqpn26q8p2mp28mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160949q4k15oznpu9pukkf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/160958d41zzcj4ckpt644t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (880.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161004m8jailvwvwkekvv8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161007wp3q6hij9lyjbqgv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1004.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161011cqtacapo3tr2t55s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1013.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161015hlou5xma35d39lxl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (815.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161023l93jjd8ps3jh3bjs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161028kqklybzllaqgk9gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (732.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161034owc5a9t1iwi1t5uy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161044yrcwrqcmv2jblals.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:10 上传
+
+*****
+
+####  岸浪白野  
+##### 22869#       发表于 2025-6-27 16:12
+
+[X 上的 STRICT-G：“【イベント情報】2025年7月1日（火）~7月31日（木）迄、and ST TOKYOにてポップアップスペースが出現！and ST TOKYO限定商品と数量限定ノベルティとして 描き下ろしイラスト全11種のステッカーをプレゼント！ [url]https://t.co/tJwFR1okkW](https://x.com/STRICTG/status/1938433989494317488) [https://t.co/4dN6ukb7dO](https://t.co/4dN6ukb7dO)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/27/161145s0wtlgvhv88r3xrf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1018.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/161202fetruvbra9y22496.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 16:12 上传
+
