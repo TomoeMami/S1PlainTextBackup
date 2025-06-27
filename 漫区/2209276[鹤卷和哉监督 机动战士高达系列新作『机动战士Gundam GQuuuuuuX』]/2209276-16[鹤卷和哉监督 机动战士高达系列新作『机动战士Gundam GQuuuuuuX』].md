@@ -9664,3 +9664,14 @@ evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
 我的一个哥们按照之前讨论的疑似原案第七集改了个拓展，我发现这个方案貌似顺流多了，我甚至怀疑，鹤卷和 ...</blockquote>
 这帮老头绝对是知道怎么拍会更好看的，但是他们偏偏要选了他们心里觉得最好玩的拍法
 
+
+*****
+
+####  灵魂收割机  
+##### 22876#       发表于 2025-6-27 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010471&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-27 16:10</a>
+
+X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より 「METAL ROBOT魂  ...</blockquote>
+真的只有光剑和盾牌<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
