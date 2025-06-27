@@ -9641,3 +9641,16 @@ evolve的zz篇里露露卡还在基布特里斯上给捷多过生日。
 
 新元祖这手，怀旧/超级系风味
 
+
+*****
+
+####  失落之翼  
+##### 22874#       发表于 2025-6-27 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010533&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-27 16:20</a>
+
+忘了说，阿森纳官网动画完结后才上传送的这张的数据是有补上喵安身高172的，所以也算整蛊之前拿到卡的人了
+
+ ...</blockquote>
+喵安动画里看着不像172，是因为曲线不够么
+
