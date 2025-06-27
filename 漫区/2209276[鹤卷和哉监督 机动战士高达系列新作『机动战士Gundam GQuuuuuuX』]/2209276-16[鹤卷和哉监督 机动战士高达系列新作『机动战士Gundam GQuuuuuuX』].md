@@ -9376,3 +9376,16 @@ image.png
 
 所以木星爺爺就算成灰，他的同伴應該還是壯年外表吧...
 
+
+*****
+
+####  太极八爪鱼  
+##### 22861#       发表于 2025-6-27 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008974&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-26 19:36</a>
+
+樂觀一點
+
+除了木星爺爺外，他的同伴不論男女可能都已經一早「雪藏」起來了，而且看露露加還是少女外表，所 ...</blockquote>
+露露卡不是在传说巨神里还是evlove里就早把他甩了么……<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
