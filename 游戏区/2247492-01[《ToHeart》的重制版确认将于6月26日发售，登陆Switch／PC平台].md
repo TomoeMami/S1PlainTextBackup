@@ -1501,3 +1501,28 @@ Steamのみ</blockquote>
 感觉现在完全玩不了一点，讲难听 ...</blockquote>
 这叫电波系 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sakuranosibe  
+##### 128#       发表于 2025-6-27 15:01
+
+<img src="https://img.stage1st.com/forum/202506/27/150037jakzrrehtgvq0gkl.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250627090407.jpg</strong> (197.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 15:00 上传
+
+昨天下单，今天就到了，之前买美少女梦工厂限定版一波三折的Orz
+
+*****
+
+####  778899630  
+##### 129#       发表于 2025-6-27 15:03
+
+<blockquote>江戸前ルナ 发表于 2025-6-27 11:50
+就看迷宫旅人的素质和类型的稀缺性，移植NS绝对要卖多非常多。然后现在上steam折戟只能在锁区的DMM和J什 ...</blockquote>
+搞不懂为什么不去GOG卖，反而去一个这么小众的地方，甚至还锁语言，这发行商也是半斤八两，卖不出去都是自找的
+
