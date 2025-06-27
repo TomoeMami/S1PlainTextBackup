@@ -9389,3 +9389,18 @@ image.png
 除了木星爺爺外，他的同伴不論男女可能都已經一早「雪藏」起來了，而且看露露加還是少女外表，所 ...</blockquote>
 露露卡不是在传说巨神里还是evlove里就早把他甩了么……<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 22862#       发表于 2025-6-27 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008993&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-6-27 11:39</a>
+
+露露卡不是在传说巨神里还是evlove里就早把他甩了么……</blockquote>
+李阿寶找朱德時說她跑了...不過就確定妹妹在逆鴨之前還在
+
+不過之前(之後)胡索編時看到一位疑似**的露露卡
+
+envlove真是沒印象，只是說找到另一隻普露系列
+
