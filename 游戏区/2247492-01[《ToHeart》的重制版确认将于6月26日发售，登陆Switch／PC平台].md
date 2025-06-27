@@ -1438,3 +1438,15 @@ Steamのみ</blockquote>
 
 只能说某人写歌水平是还可以，但让这种信徒思想入脑的人来经营公司，混到今天这个局面也就不足为奇了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 122#       发表于 2025-6-27 08:39
+
+<img src="https://p.sda1.dev/25/10521a71a47fb0b397dd66e8262cecb6/1000128793.png" referrerpolicy="no-referrer">
+
+カワタヒサシ的るー，会有第三代吗？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
