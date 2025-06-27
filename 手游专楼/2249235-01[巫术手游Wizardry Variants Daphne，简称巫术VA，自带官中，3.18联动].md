@@ -88,3 +88,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这个忍洞好像滥杀会把面具人的善恶阵营往恶变，不确定献祭队友的行为会有什么其他影响，但不管怎么样我先抱着rp善主角的想法按着不打了
 
+
+*****
+
+####  Flechette  
+##### 431#       发表于 2025-6-27 08:28
+
+恶主角不需要献祭，我一路杀过去后和阳炎忍者打一场就把灯给我了
+
