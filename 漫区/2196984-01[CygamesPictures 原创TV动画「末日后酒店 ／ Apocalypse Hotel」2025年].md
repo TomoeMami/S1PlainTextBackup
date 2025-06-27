@@ -8398,3 +8398,50 @@ TV动画《末日后酒店》宣布和某部神秘作品联动合作。
 
 在温馨感人和荒诞的黑色幽默之间制造出了一种叙事张力，吸引着观众去享受这种废土世界的冒险与浪漫
 
+
+*****
+
+####  TOYSTORY  
+##### 721#       发表于 2025-6-27 23:52
+
+ 本帖最后由 TOYSTORY 于 2025-6-27 23:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007243&amp;ptid=2196984" target="_blank">最强惠酱 发表于 2025-6-27 01:30</a>
+
+岂能有这种巧合</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/27/235233rwetu3t03h0ujutc.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (154.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 23:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/235233xpgqnqnlbrl1prrr.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (214.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 23:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/235239f0ck23gc104zgcwc.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (61.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 23:52 上传
+
+<img src="https://img.stage1st.com/forum/202506/27/235240il15j5laj6svrlav.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (107.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 23:52 上传
+
+这两部确实很有缘分，因为播出时间相近又都有宇宙移民、萝卜头要素，脑洞也大，画这两联动的同人图不少<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+甚至第八话后半段坦克八千代的战斗感觉比隔壁大部分都打得好看
+

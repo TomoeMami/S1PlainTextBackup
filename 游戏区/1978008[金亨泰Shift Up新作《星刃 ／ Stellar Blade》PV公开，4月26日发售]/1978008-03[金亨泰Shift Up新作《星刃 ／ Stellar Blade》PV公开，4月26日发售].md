@@ -7875,3 +7875,23 @@ doro砍死了还能复活吗
 
 地图这么重要的功能怎么手柄连个快捷键都没有，还必须在触摸板上设置，又不是所有手柄都有触摸板<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 3666#       发表于 2025-6-27 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012340&amp;ptid=1978008" target="_blank">yuo9 发表于 2025-6-27 23:28</a>
+
+看到红莲就走不动道了，被乱刀砍死估计有上百把终于过啦，感觉现在的自己好无敌。但是奖励的头发连着的帽子 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/27/234805vo7hw926k3lew6ll.jpg" referrerpolicy="no-referrer">
+
+<strong>Guren vs Guren.mp4_snapshot_01.32.327.jpg</strong> (359.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 23:48 上传
+
+没帽子就失去这套的灵魂了.
+
