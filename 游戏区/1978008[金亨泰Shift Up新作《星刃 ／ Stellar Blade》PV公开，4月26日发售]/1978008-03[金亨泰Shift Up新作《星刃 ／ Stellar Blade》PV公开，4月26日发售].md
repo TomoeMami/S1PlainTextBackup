@@ -7537,3 +7537,15 @@ BOSS基本都可以用三连剑气那个技能逃课，包括最终BOSS都是强
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  11116等  
+##### 3638#       发表于 2025-6-27 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68006972&amp;ptid=1978008" target="_blank">口三才信徒 发表于 2025-6-26 23:46</a>
+这游戏流程体验真的太拉胯了，大沙漠我都勉强能撑住，百合那个隐藏图真的很多意义不明的分岔探索点，还硬要 ...</blockquote>
+β三角和爆发方块都能一键清图，碰到盾哥我建议用霰弹打死再入场，实在不行在场外导弹洗地了
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
