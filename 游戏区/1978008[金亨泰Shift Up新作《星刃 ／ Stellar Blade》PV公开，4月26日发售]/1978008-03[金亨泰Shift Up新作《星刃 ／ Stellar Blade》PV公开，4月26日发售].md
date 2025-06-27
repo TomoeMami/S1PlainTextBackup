@@ -7821,3 +7821,14 @@ doro砍死了还能复活吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  alucardcz  
+##### 3660#       发表于 2025-6-27 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010715&amp;ptid=1978008" target="_blank">spieler 发表于 2025-6-27 16:46</a>
+
+放弃交互了，直接鹰眼脊椎和加闪避的脊椎，再加上减伤和加β能量的组件，远距射射射被拉近距离就抖刀加放波 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不算安逸 现在都是剑气+出神+那个倒地 打的boss起不来
+
