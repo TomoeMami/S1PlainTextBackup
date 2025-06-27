@@ -5927,3 +5927,18 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hayate0079  
+##### 2017#       发表于 2025-6-27 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008342&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-6-27 10:20</a>
+
+请问想这样的是光束、物理     射击格斗觉醒增伤都能吃到吗</blockquote>
+这个要分2块
+
+射格觉是机师属性对武器伤害的影响越高伤害越高，取最高值
+
+光束、物理是说这个武器吃光束、物理增伤
+

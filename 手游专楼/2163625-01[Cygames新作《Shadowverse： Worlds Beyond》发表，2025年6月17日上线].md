@@ -4774,3 +4774,13 @@ steam不想转区→没去国际服→国服氪了一笔出了主战者→国服
 
 回坑了，好穷，只能玩玩虫虫了
 
+
+*****
+
+####  千千千千鸟  
+##### 342#       发表于 2025-6-27 12:09
+
+卧槽，原来输入别人的邀请码有2000金币。我还没有邀请到任何一个人<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+L2h6Nfh   有需要领的坛友可以填一下<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
