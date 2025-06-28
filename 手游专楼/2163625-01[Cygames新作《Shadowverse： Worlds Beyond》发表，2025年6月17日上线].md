@@ -4992,3 +4992,11 @@ RJxX9dy</blockquote>
 
 第一次广场赛，3-1了，oqs是对的，唯一没有抽到oqs的局输了，而赢我的也是oqs非常合理<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吃货红毛  
+##### 362#       发表于 2025-6-29 00:22
+
+广场赛是挺有意思的 变态的是我2外战赢 2内战输 全是特么均势到8 9费 对面oqs2连 我一只没有 输这种内战是真不爽 纯狗运
+
