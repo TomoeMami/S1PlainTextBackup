@@ -10140,3 +10140,11 @@ b:マチュとニャアンでどこでも行けて話になる。続篇楽しみ
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012674&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-6-28 02:22</a></blockquote>
 说到这个，富野的作品很多都能赛一场够格的最终战，这是个巨大的优点。
 
+
+*****
+
+####  Sliurus  
+##### 22900#       发表于 2025-6-28 15:19
+
+凯爷出场的话感觉多少会提及白色木马成员的事，可能处理起来会更麻烦。但好想看现代化改造的凯夫妇<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
