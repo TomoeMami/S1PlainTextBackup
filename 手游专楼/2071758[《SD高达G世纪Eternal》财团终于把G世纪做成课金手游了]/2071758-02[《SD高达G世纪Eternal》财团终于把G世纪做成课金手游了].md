@@ -6024,3 +6024,11 @@ seed d的剧情还只出一半啊
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2025#       发表于 2025-6-28 20:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">那看来剧情刚好到鸟换命运追着阿斯兰捅，全剧次高光时刻
+
