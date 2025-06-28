@@ -10477,3 +10477,28 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 
 而且还没给声优说？<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 22920#         楼主| 发表于 2025-6-29 01:37
+
+[https://x.com/chiakinman/status/1938928032712102075](https://x.com/chiakinman/status/1938928032712102075)
+
+ジークアクス舞台挨拶、楽し過ぎましたね。
+
+シャリア仮面とかまだまだお伺いしたいことがたくさんありましたが、限られたお時間ながら最大限にお話してくださった鶴巻さん榎戸さん黒沢さん、ありがとうございました。
+
+何故か榎戸さんとジャンケンできるお写真撮れました✌🏻
+<img src="https://p.sda1.dev/25/94d58d8638e600301902014da2c260f0/20250629_013517.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/ce7eac899909b747a1ef945a20e81827/20250629_013519.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 22921#         楼主| 发表于 2025-6-29 01:39
+
+【【GQuuuuuuX】舞台致辞揭露初期原案，米海尔和凯结婚了？玛蒂尔达夫妇本来预计登场？高达巨大化的真相是？】 
+[https://b23.tv/ARiNE1N](https://b23.tv/ARiNE1N)
+
