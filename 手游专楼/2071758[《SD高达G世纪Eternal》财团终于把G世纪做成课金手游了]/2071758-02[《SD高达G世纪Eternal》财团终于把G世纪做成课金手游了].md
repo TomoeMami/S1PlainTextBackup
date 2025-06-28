@@ -6000,3 +6000,17 @@ seed d的剧情还只出一半啊
 
 总不能说有命运了剧情开发图都不全吧
 
+
+*****
+
+####  lighttt  
+##### 2023#       发表于 2025-6-28 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014462&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-28 16:33</a>
+怎么说？预告不都有开发命运了？
+
+总不能说有命运了剧情开发图都不全吧</blockquote>
+公告说了啊，15话之后没有<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">不会是刚好鸟当完主角吧
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
