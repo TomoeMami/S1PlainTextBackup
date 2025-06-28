@@ -7931,3 +7931,11 @@ doro砍死了还能复活吗
 
 迅驰没韧性还比较好打啊，但是为了看处决动画死了好几次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3671#       发表于 2025-6-28 12:07
+
+钓了好久才钓到金枪鱼，不过海的女仆很好看，时间是值得的
+
