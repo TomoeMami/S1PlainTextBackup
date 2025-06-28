@@ -4932,3 +4932,11 @@ RJxX9dy</blockquote>
 
 我自己打基本没超过10回合，广场赛的怎么都能斗到天荒地老<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lesword  
+##### 356#       发表于 2025-6-28 22:42
+
+广场赛我看着一个鱼丸把把十几回合起步，有一把是21还是22回合结束的，看着吓人，因为没和对面打过都不知道是个什么抽象构筑。
+
