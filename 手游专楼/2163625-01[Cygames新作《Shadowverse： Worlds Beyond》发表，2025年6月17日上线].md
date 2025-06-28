@@ -4924,3 +4924,11 @@ RJxX9dy</blockquote>
 
 广场赛赢了一把给我强制退赛了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saitohimea  
+##### 355#       发表于 2025-6-28 20:57
+
+我自己打基本没超过10回合，广场赛的怎么都能斗到天荒地老<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
