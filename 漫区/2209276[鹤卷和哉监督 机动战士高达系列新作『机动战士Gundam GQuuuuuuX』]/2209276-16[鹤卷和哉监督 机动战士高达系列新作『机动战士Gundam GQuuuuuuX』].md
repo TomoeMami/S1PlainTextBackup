@@ -10383,3 +10383,14 @@ b:マチュとニャアンでどこでも行けて話になる。続篇楽しみ
 https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 能不能头发平时是黑色变身以后成红色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  西瓜夜行  
+##### 22914#       发表于 2025-6-28 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014217&amp;ptid=2209276" target="_blank">bill910 发表于 2025-6-28 15:32</a>
+
+看完了，来专楼问问，所以给主角玛秋在故事开头与中间发短信是从另一个宇宙困在MA那个拉拉？故事中有明确是 ...</blockquote>
+这部分依然留白了，现在的假说有：拉拉说，骡子说，未来麻球说
+

@@ -8015,3 +8015,18 @@ doro砍死了还能复活吗
 
 Shit up这草堂班子
 
+
+*****
+
+####  Andariel  
+##### 3678#       发表于 2025-6-28 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014702&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-28 17:27</a>
+
+跳太高也会判落地摔死。最离谱的一次是从废土日光塔搭机器人下楼，落地就判死
+
+刚刚交了尼尔DLC，小车车 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">埃米尔说日语，红莲说英语
+
+明显就是中文配音没赶上配这俩dlc而已
+
