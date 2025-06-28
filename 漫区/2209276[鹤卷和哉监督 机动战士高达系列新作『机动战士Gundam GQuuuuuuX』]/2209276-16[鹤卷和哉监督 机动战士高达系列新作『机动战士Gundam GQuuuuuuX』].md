@@ -10502,3 +10502,13 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 【【GQuuuuuuX】舞台致辞揭露初期原案，米海尔和凯结婚了？玛蒂尔达夫妇本来预计登场？高达巨大化的真相是？】 
 [https://b23.tv/ARiNE1N](https://b23.tv/ARiNE1N)
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 22922#       发表于 2025-6-29 06:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001966&amp;ptid=2209276" target="_blank">dogman 发表于 2025-6-26 09:04</a>
+别的都不想吐槽了，我就想问问，为啥最后包饺子的时候鸭和拉拉是在街头像普通人那样重逢的？在GQX这个世界 ...</blockquote>
+女仆螺原本想烧一个房子，女仆鸭直接全烧了，然后脱出
+
