@@ -8040,3 +8040,68 @@ Shit up这草堂班子
 
 中文红莲怕不是：谢谢大哥刷的火箭
 
+
+*****
+
+####  Schwarzess  
+##### 3680#       发表于 2025-6-28 22:46
+
+虽然初心是想爽截色图，但截着截着发现大部分都是蘸豆了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/28/224500kx7vaoe6wxbrdl76.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250621124249.jpg</strong> (693.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/28/224512u9pazj0o6x6kz6ph.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250622083045.jpg</strong> (576.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/28/224522qr2nokzrh5rul200.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250624214037.jpg</strong> (541.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/28/224546v4zallgvrqqgq4zf.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250628050143.jpg</strong> (571.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:45 上传
+
+<img src="https://img.stage1st.com/forum/202506/28/224447pzgm7ymevkvycfe5.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250628064800.jpg</strong> (487.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/28/224534sl7dede74zpvmsyo.jpg" referrerpolicy="no-referrer">
+
+<strong>劍星_20250628082431.jpg</strong> (559.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 22:45 上传
+
+
+*****
+
+####  Andariel  
+##### 3681#       发表于 2025-6-28 22:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2周目快打完了
+绑psn的bug还不修吗
+
