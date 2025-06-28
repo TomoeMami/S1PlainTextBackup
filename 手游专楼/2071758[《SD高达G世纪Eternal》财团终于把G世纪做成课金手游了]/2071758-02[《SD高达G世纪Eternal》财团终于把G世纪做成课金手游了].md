@@ -6014,3 +6014,13 @@ seed d的剧情还只出一半啊
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lighttt  
+##### 2024#       发表于 2025-6-28 17:17
+
+果然海牛是攻击机，鸟是支援
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

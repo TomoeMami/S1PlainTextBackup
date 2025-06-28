@@ -1024,3 +1024,19 @@ Mr.エレガンス：小西克幸
 是剧场版？为啥还有系列两个字，莫非还有续集</blockquote>
 是个新坑，你理解成剧场先行上映OVA也没差的……
 
+
+*****
+
+####  DARK_HGCG  
+##### 102#       发表于 2025-6-28 17:22
+
+<img src="https://img.stage1st.com/forum/202506/28/172222f0j8ewk989evzj28.jpg" referrerpolicy="no-referrer">
+
+<strong>DSC_0902.JPG</strong> (403.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 17:22 上传
+
+妈呀电影院里都是老中青宅男
+
