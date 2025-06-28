@@ -7923,3 +7923,11 @@ doro砍死了还能复活吗
 
 看起来要五周目了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  naclken.  
+##### 3670#       发表于 2025-6-28 10:33
+
+迅驰没韧性还比较好打啊，但是为了看处决动画死了好几次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
