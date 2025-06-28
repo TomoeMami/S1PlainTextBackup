@@ -7970,3 +7970,16 @@ doro砍死了还能复活吗
 放弃治疗，直接开修改器无敌 + 一击必杀 + 倍速跑路 + 无限连跳，开火车奔袭任务点。不要在辣鸡设计上浪 ...</blockquote>
 这游戏还有跳到一定高度会即死这玩意……无敌都不好使……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3675#       发表于 2025-6-28 15:28
+
+ 本帖最后由 ParadiseMartyr 于 2025-6-28 15:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014070&amp;ptid=1978008" target="_blank">——啧 发表于 2025-6-28 14:37</a>
+这游戏还有跳到一定高度会即死这玩意……无敌都不好使……</blockquote>
+不是很跳到一定高度会死，而是浮空状态时间过长会直接强制处死(防止玩家卡入地下无法结束游戏，卡死)
+中途找个落脚点就行
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
