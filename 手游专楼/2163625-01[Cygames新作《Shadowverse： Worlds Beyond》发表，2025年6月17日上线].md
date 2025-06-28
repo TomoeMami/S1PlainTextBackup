@@ -4984,3 +4984,11 @@ RJxX9dy</blockquote>
 
 2025-6-28 23:31 上传
 
+
+*****
+
+####  千千千千鸟  
+##### 361#       发表于 2025-6-29 00:08
+
+第一次广场赛，3-1了，oqs是对的，唯一没有抽到oqs的局输了，而赢我的也是oqs非常合理<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
