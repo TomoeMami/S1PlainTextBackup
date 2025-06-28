@@ -5976,3 +5976,13 @@ SD恁早就参战了啊，那估计会有不少UR了</blockquote>
 顺便问下，能用钻开格子的上限是多少？平均一 ...</blockquote>
 图鉴只要拿到就开了，拆掉没问题
 
+
+*****
+
+####  lighttt  
+##### 2021#       发表于 2025-6-28 11:04
+
+seed d的剧情还只出一半啊<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
