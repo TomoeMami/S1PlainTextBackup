@@ -355,3 +355,27 @@
 当年抓心也只敢还没有变q娃马琳阳 ...</blockquote>
 去年倒是小麦暂时的被最终BOSS变怪了一小会儿……不过这个追加被实力不如自己的干部变怪还是太抽象了，可能是因为Q娃力量是心闪锁许愿来的不是自己激发的所以没点抗性吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 1100#       发表于 2025-6-28 11:19
+
+第21話　とびっきり！キセキのユニゾン！
+
+脚本：大河内一楼
+
+絵コンテ：佐藤雅教
+
+演出：岩井隆央
+
+作画監督：廣中美佳、稲上晃
+
+美術：鈴木祥太
+
+雨の中プリルンのキラキライトを探しに行き、風邪で倒れてしまったうた（CV.松岡美里）。なな（CV.髙橋ミナミ）とこころ（CV.高森奈津美）がお見舞いに持ってきてくれたケーキによろこぶが、プリルン（CV.南條愛乃）の思い出を取り戻せないままのことに落ち込んでしまう。一方、田中の家でプリルンとのふたりきりの生活を楽しんでいたはずのメロロン（CV.花井美春）だったが、自分が何かを忘れてしまっていることを知り、さみしそうなプリルンの姿を見て、プリルンの「ぽっかり」を探し出す、と約束し──。
+<img src="https://p.sda1.dev/25/f30ccc25771856dd57594fa4c3fb8d01/001.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/84eb1ef18ce0c5d1e702ef2cc415565e/002.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/aa831a5217e51fcabdd0317c9e382fa0/003.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/89f5f8af0cfb1e17bffd7c9afd599535/004.jpeg" referrerpolicy="no-referrer">
+
