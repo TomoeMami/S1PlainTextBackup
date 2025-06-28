@@ -5018,3 +5018,19 @@ RJxX9dy</blockquote>
 
 广场赛体验确实好评 但是这大屏幕直播为啥时有时无
 
+
+*****
+
+####  lesword  
+##### 365#       发表于 2025-6-29 04:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016754&amp;ptid=2163625" target="_blank">凉良 发表于 2025-6-29 02:59</a>
+
+广场赛体验确实好评 但是这大屏幕直播为啥时有时无</blockquote>
+
+广场赛大屏幕也是只播在中间打的那组人。
+
+而且有直播延迟。
+
+类似焦点桌的东西。
+
