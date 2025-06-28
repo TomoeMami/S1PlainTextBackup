@@ -8105,3 +8105,29 @@ Shit up这草堂班子
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2周目快打完了
 绑psn的bug还不修吗
 
+
+*****
+
+####  RainbowSealife  
+##### 3682#       发表于 2025-6-28 22:56
+
+金hentai太卑鄙了，逼着我看伊芙裤衩子🥵
+<img src="https://images.steamusercontent.com/ugc/10068619394994874012/9F7ED02D8F297D61D0BC3CFF964656E3CFED6890/" height="450" id="aimg_I0Sto" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13968471991319536431/9DD3DDFFFC78AA2BA09EC337A064BE8A2F07EAD6/" height="450" id="aimg_xUkQm" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/9630278032586576007/A93B923D46DC3E103D86E0960482544B7D44DD2B/" height="450" id="aimg_diiI8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10238526953606607545/4E514115788CDE4801AD289DC6ADCA6B0492603B/" height="450" id="aimg_t04oP" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13160039894581005178/CE7ADDBA177B802E1A27128F45E8D91DB5E585D9/" height="450" id="aimg_QFUWZ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/18255639638373200455/FFE7B0B6C68AD8842145155B099397E33E6E2E7D/" height="450" id="aimg_hJ3jY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+*****
+
+####  绯月  
+##### 3683#       发表于 2025-6-28 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014767&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-28 17:41</a>
+埃米尔说日语，红莲说英语
+
+明显就是中文配音没赶上配这俩dlc而已</blockquote>
+我玩儿的韩配，埃米尔也是说日语
+
