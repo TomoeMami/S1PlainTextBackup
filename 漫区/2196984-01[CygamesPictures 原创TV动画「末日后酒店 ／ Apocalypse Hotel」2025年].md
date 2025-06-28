@@ -8445,3 +8445,14 @@ TV动画《末日后酒店》宣布和某部神秘作品联动合作。
 
 甚至第八话后半段坦克八千代的战斗感觉比隔壁大部分都打得好看
 
+
+*****
+
+####  最强惠酱  
+##### 722#       发表于 2025-6-28 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012415&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-6-27 23:52</a>
+
+这两部确实很有缘分，因为播出时间相近又都有宇宙移民、萝卜头要素，脑洞也大，画这两联动的同人图不少 ...</blockquote>
+剧场版就做巨大八千代吧！！
+
