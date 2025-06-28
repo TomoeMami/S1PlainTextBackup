@@ -10437,3 +10437,14 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 
 说实话确实搞笑，来这访谈更搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 22917#       发表于 2025-6-28 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68015141&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-28 18:58</a>
+
+说实话这访谈确实搞笑了</blockquote>
+有种业余感，鹤卷还是做不了话事人
+
