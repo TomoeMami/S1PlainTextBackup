@@ -25,3 +25,16 @@
 
 我也知道有个。不想网不好不想混的进直接写说明就是了，什么都不写却炸房，房主自己的时间宝贵我们进去的时间就不宝贵？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1515#       发表于 2025-6-28 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68013309&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-6-28 11:06</a>
+每次跟别人就开你进去就炸的话还是建议先找自己问题（
+现在网不好炸房有混子嫌疑炸房都很多的 毕竟大家时 ...</blockquote>
+你说我每天就进他的队开不了退了以后自己开队跟刚才俩队友照样打完是谁的问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且都是一百多级装备正常的人
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
