@@ -5986,3 +5986,17 @@ seed d的剧情还只出一半啊<img src="https://static.stage1st.com/image/smi
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 2022#       发表于 2025-6-28 16:33
+
+<blockquote>lighttt 发表于 2025-6-28 11:04
+seed d的剧情还只出一半啊
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+怎么说？预告不都有开发命运了？
+
+总不能说有命运了剧情开发图都不全吧
+
