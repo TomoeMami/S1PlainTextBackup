@@ -10372,3 +10372,14 @@ b:マチュとニャアンでどこでも行けて話になる。続篇楽しみ
 
 あの世界ではゼクノヴァ現象ってけっこうあちこちで起こっていて。MSの出現に比べたら服装が変わるくらい全然ありなんじゃないのって
 
+
+*****
+
+####  xwz  
+##### 22913#       发表于 2025-6-28 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68014084&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-6-28 14:44</a>
+
+https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
+能不能头发平时是黑色变身以后成红色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
