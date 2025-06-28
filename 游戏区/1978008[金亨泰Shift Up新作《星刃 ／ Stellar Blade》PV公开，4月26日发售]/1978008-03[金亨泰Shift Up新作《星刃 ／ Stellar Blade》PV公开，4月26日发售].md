@@ -7949,3 +7949,14 @@ doro砍死了还能复活吗
 屁股贼大
 穿了这个剩下其他的泳装都看不上眼了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 3673#       发表于 2025-6-28 13:21
+
+<blockquote>silversor 发表于 2025-6-28 00:46
+这大沙漠通马桶，真的想吐 已经不敢想漏了什么东西之后要回来补全收集咋办（事实上已经缺了一堆东西） ...</blockquote>
+
+放弃治疗，直接开修改器无敌 + 一击必杀 + 倍速跑路 + 无限连跳，开火车奔袭任务点。不要在辣鸡设计上浪费时间
+
