@@ -10427,3 +10427,13 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 
 榎户觉得阿姆罗因为父母分居，需要看到健康的伴侣关系；而玛秋的父亲是外交官可能同住）需要展示另一种感情形态。
 
+
+*****
+
+####  岸浪白野  
+##### 22916#       发表于 2025-6-28 18:58
+
+ 本帖最后由 岸浪白野 于 2025-6-28 19:02 编辑 
+
+说实话确实搞笑，来这访谈更搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
