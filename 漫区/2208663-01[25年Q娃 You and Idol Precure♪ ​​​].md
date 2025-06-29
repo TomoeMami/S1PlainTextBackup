@@ -569,3 +569,13 @@
 
 下集又要开始水了吗
 
+
+*****
+
+####  丹德里恩  
+##### 1119#       发表于 2025-6-29 20:13
+
+前面小歌躲屋里哭那段的感染力比后面的奇迹强...
+
+回收记忆铺垫太多了导致真收笔的时候情绪拉不上去，感觉差点意思<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
