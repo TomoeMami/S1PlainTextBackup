@@ -8185,3 +8185,13 @@ Shit up这草堂班子
 躲在那个箱子后面等平台完全上升到位，炮台就回去了</blockquote>
 刹不住了<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绯月  
+##### 3689#       发表于 2025-6-29 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016301&amp;ptid=1978008" target="_blank">妄想中毒 发表于 2025-6-28 23:36</a>
+废土右上角两个有炮塔守宝箱的地方真的吃屎，，离传送点特别远不说还容易死，每次被打死了跑路都跑半天 ...</blockquote>
+用飞针把炮台打掉
+
