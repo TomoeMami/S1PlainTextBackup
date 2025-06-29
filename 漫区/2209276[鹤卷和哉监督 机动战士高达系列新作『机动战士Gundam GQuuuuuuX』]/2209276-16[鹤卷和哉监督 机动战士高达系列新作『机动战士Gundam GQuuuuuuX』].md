@@ -10512,3 +10512,29 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 别的都不想吐槽了，我就想问问，为啥最后包饺子的时候鸭和拉拉是在街头像普通人那样重逢的？在GQX这个世界 ...</blockquote>
 女仆螺原本想烧一个房子，女仆鸭直接全烧了，然后脱出
 
+
+*****
+
+####  岸浪白野  
+##### 22923#       发表于 2025-6-29 09:41
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【#パッケージ画像初公開】 2025年7月5日(土)発売予定 HG 1/144 軽キャノン ▼詳細はこちら [url]https://t.co/u30ufqP10D](https://x.com/HobbySite/status/1939127967021691227) #ガンプラ #GQuuuuuuX #ジークアクス [https://t.co/GGmtLx2F2C](https://t.co/GGmtLx2F2C)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/094046by6ipe0lwni1n3yp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:40 上传
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【#パッケージ画像初公開】 2025年7月5日(土)発売予定 HG 1/144 エグザベ専用ギャン(ハクジ装備) ▼詳細はこちら [url]https://t.co/dmkWvJSvp7](https://x.com/HobbySite/status/1939126732252160497) #ガンプラ #GQuuuuuuX #ジークアクス [https://t.co/DFrjsIXRVl](https://t.co/DFrjsIXRVl)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/094113k3ibu5bihbbx3d1i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:41 上传
+
