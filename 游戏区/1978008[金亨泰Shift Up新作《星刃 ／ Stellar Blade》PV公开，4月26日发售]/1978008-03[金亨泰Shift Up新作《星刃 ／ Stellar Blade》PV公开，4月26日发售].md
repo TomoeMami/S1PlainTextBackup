@@ -8364,3 +8364,14 @@ Shit up这草堂班子
 废土还有点地图设计，高低差、岔路啥的，这大沙漠难道真的就是一个平地然后全 ...</blockquote>
 大沙漠可以自己把空地上的东西探索一下，右边的高楼废墟地带直接看攻略跑吧，不然很容易红温破防
 
+
+*****
+
+####  hayamitetsu  
+##### 3705#       发表于 2025-6-29 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018154&amp;ptid=1978008" target="_blank">方舟售票员 发表于 2025-6-29 13:29</a>
+
+因为迅驰模式大部分人主要是用来boss战避险的吧，谁打小怪开呢</blockquote>
+有了红莲套后，到处拉火车，然后一个次元斩，用过的都说爽，我成就就这么来的
+
