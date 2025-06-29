@@ -614,3 +614,11 @@
 这集不错，bgm配合得很好。代价的回忆找回这个不用想太多，剧情尽快5人一起比低气压拖时间强多了，不然小歌一直追妻蓝紫就更没什么戏份<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 总不能歌追个噗莉伦像爱追雷吉娜那样追N集吧，又不真是那种扭曲主题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 1123#       发表于 2025-6-30 01:03
+
+这个ed总不会再用来做处刑曲了吧
+
