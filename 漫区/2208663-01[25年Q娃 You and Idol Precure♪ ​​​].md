@@ -547,3 +547,17 @@
 
 大河内就过来玩一回吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1117#       发表于 2025-6-29 15:35
+
+ 本帖最后由 leleq 于 2025-6-29 15:36 编辑 
+
+这集还是不错的，但是确实感受到这几年不敢乱来只敢玩噱头的味和神回差了点真正的突破。
+
+不过3人的扭曲感还是很爽的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下一集胜利（小歌）了改结算（梅洛伦）了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
