@@ -8500,3 +8500,19 @@ su这公司怎么说呢，特别擅长做减法，具体到某个宝箱或者收
 
 平均假如有30小时的流程，我让你不怎么舔图的也保底一小时有件衣服换，其他的部分就直接不装了，喷点倒是不少，但是有时候就让人感觉“孩子挺实诚的，那行吧算了”<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Standpronder  
+##### 3717#       发表于 2025-6-29 22:10
+
+<img src="https://img.stage1st.com/forum/202506/29/221034pj8fxxw1o7da1ttx.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250629-215430.png</strong> (415.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 22:10 上传
+
+这个配置在ZION城切菜单会突然卡顿。。。
+
