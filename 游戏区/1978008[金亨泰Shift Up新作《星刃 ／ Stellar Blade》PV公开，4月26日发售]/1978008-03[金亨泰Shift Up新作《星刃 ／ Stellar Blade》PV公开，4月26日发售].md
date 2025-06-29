@@ -8307,3 +8307,24 @@ Shit up这草堂班子
 
 <img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">喜欢丰满的那个，海之女仆那个大屁股蛋子看的我想跳进屏幕用力拍打
 
+
+*****
+
+####  naclken.  
+##### 3701#       发表于 2025-6-29 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017808&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-6-29 12:05</a>
+
+开日光塔的任务替你选好第一个大方向了，沿路按支线任务的光点开营地，以每个营地为中心点画个小圈慢慢舔 ...</blockquote>
+进入沙漠，打开地图，日光塔标记醒目！
+
+于是直奔日光塔！遭遇亚巴顿，血战取胜！
+
+然后发现无法启动，需要四台服务机器人？
+
+找了半天不知道机器人在哪，才发现：必须先投一个币才能触发日光塔任务。
+
+但是药都吃完了，遇到野怪都有危险，日光塔没解锁所有据点都不能用，只能徒步跑回xion坐椅子……
+
+可见游戏设计之问题<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
