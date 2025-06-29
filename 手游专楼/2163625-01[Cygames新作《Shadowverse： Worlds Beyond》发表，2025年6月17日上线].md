@@ -5108,3 +5108,11 @@ RJxX9dy</blockquote>
 
 —— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  duraa  
+##### 372#       发表于 2025-6-29 19:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉中速梦得益于（？）下级质量一般，构筑自由发挥空间还蛮多，我最近看了一堆中速梦构筑，除了木乃伊，小狗妹，陵园，狼哥，小美，堕天，狗妹之外的卡都有带和不带的
+
