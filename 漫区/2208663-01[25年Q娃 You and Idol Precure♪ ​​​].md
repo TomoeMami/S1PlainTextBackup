@@ -472,3 +472,23 @@
 
 恢复记忆这么劲爆的剧情收的有点轻描淡写了，之前给了一大堆小歌阴暗沉重的镜头但最后解决的时候反而有点分量不足的感觉................
 
+
+*****
+
+####  jaewoongh_  
+##### 1109#       发表于 2025-6-29 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017042&amp;ptid=2208663" target="_blank">modedd 发表于 2025-6-29 08:22</a>
+
+恢复记忆这么劲爆的剧情收的有点轻描淡写了，之前给了一大堆小歌阴暗沉重的镜头但最后解决的时候反而有点分 ...</blockquote>
+唱歌找回记忆这个桥段大概是一开始就定好的醋，大河内这集纯属打工仔也没法偷偷往饺子馅里放虾仁，想get到这集的情绪流恐怕要回到4个月之前的第2集了
+
+*****
+
+####  凡人  
+##### 1110#       发表于 2025-6-29 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017054&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-6-29 08:26</a>
+唱歌找回记忆这个桥段大概是一开始就定好的醋，大河内这集纯属打工仔也没法偷偷往饺子馅里放虾仁，想get ...</blockquote>
+说到第2集，这集竟然没有擦眼泪call back，虽然这集的脚本大方向上没有问题，但很多小细节真的不太行
+
