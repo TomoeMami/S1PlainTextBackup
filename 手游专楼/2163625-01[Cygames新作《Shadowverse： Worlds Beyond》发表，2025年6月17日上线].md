@@ -5055,3 +5055,11 @@ RJxX9dy</blockquote>
 另外这个券留着可以抽后面新出的卡么？还是说以后也只能 ...</blockquote>
 可以留到后面，但是虹卡卡池是一二弹虹卡合起来
 
+
+*****
+
+####  olkzdf  
+##### 368#       发表于 2025-6-29 15:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线上观战延迟该有的，不然双设备看手牌这种事就会出现了，线下选手在封闭室内倒是可以同步观战
+

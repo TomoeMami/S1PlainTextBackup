@@ -8351,3 +8351,16 @@ Shit up这草堂班子
 
 还好，退出读档了一次跳成就了，吓一跳<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonz79  
+##### 3704#       发表于 2025-6-29 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017438&amp;ptid=1978008" target="_blank">bad_alloc 发表于 2025-6-29 10:26</a>
+
+刚到大沙漠打开地图眼前一黑
+
+废土还有点地图设计，高低差、岔路啥的，这大沙漠难道真的就是一个平地然后全 ...</blockquote>
+大沙漠可以自己把空地上的东西探索一下，右边的高楼废墟地带直接看攻略跑吧，不然很容易红温破防
+
