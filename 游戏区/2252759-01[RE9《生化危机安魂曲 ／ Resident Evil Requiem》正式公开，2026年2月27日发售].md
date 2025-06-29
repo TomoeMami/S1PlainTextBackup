@@ -2751,3 +2751,13 @@ RE9 是一套單人離線遊戲
 
 卡婊总不至于和网易一样要重新定义单机买断制。
 
+
+*****
+
+####  灵魂收割机  
+##### 268#       发表于 2025-6-29 16:15
+
+[https://blog.playstation.com/202 ... masato-kumazawa-qa/](https://blog.playstation.com/2025/06/26/resident-evil-requiem-producer-masato-kumazawa-qa/)
+
+PlayStation.Blog发的采访，新信息很少。
+
