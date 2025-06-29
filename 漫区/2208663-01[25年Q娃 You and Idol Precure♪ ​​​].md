@@ -492,3 +492,11 @@
 唱歌找回记忆这个桥段大概是一开始就定好的醋，大河内这集纯属打工仔也没法偷偷往饺子馅里放虾仁，想get ...</blockquote>
 说到第2集，这集竟然没有擦眼泪call back，虽然这集的脚本大方向上没有问题，但很多小细节真的不太行
 
+
+*****
+
+####  pokemon最爱  
+##### 1111#       发表于 2025-6-29 10:24
+
+这集的小细节处理的确实有些糙，不过整体上还算是中规中矩的一集吧，Meroron又败犬又吃醋还挺可爱的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
