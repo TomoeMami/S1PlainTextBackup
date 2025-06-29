@@ -10513,3 +10513,14 @@ Avenger：哈基蜗
 现在黑环的solo体验咋样了，够爽吗</blockquote>
 solo怪韧性和血量**低于联机。
 
+
+*****
+
+####  jacket  
+##### 1017#       发表于 2025-6-29 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68011545&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-27 19:42</a>
+
+我本来以为人马全异常抗性150会是执行优势，结果玩了两把我流执行，垃圾得不谈。是我有问题还是这角色有问 ...</blockquote>
+见过玩忍耐的执行者
+
