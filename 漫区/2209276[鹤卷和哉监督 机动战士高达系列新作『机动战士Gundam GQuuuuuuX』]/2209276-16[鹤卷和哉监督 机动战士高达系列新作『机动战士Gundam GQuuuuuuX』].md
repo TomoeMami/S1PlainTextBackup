@@ -11056,3 +11056,14 @@ what if 最大問題就是在原作同一時間點的角色會否出場，他們
 
 會否因觀眾過份期待非主角出場而奪主，就如大家現在都懷疑騾子有沒機會在qux中出場，他是否就是修史的同位體或是IF兒子等
 
+
+*****
+
+####  Steel.Haze  
+##### 22955#       发表于 2025-6-30 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016860&amp;ptid=2209276" target="_blank">蒸汽投石BuBu車 发表于 2025-6-29 06:16</a>
+
+女仆螺原本想烧一个房子，女仆鸭直接全烧了，然后脱出</blockquote>
+鸭女仆和骡女仆还跟着拉拉吧，未来在夏亚培养下会是可怕的角色呢。
+
