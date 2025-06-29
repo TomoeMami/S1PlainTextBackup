@@ -508,3 +508,15 @@
 
 这集实在是太美味啦，大河内好强啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1113#       发表于 2025-6-29 10:57
+
+金铅球每次在推上发预告搞期待 结果正片就这<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+看出来这几年士大夫都想整大的 但因为上头的限制 还是纯粹的又怂了 表现出来感觉就是笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+细节 呵呵 隔壁加布变成这副样子 就是各方面细节出了大问题 想多了全都是大问题 q娃也要在方面出问题惹吗？
+
+还有下集看标题以为是演唱会vs对决 结果是做料理 别忘了今年是偶像q娃 
+
