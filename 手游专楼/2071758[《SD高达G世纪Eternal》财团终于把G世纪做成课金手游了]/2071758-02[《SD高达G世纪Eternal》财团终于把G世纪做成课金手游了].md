@@ -6052,3 +6052,11 @@ seed d的剧情还只出一半啊
 
 哎呀我看到了，海牛本身确实是强自2.0，但是这个阿姆罗是个2.0plus啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 2028#       发表于 2025-6-29 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">怎么开始搞这种绑定机体的了，不知道阿姆罗会是什么技能
+
