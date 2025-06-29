@@ -8399,3 +8399,27 @@ Shit up这草堂班子
 
 大沙漠其他的还好，地形空能摸过去，废土那种弯弯绕绕找任务目的地一样是地狱难度，找拍照是真的绷不住，有个照片提示是3根平衡棍加远处高楼顶的带颜色的方箱子，我在城市里转了n圈愣是看不出来城市里那几根棍子咋能组成这个角度，还有1个提示是背景的黄沙，我沿着黄沙边缘翻了半天都差点走出沙漠，这2个我最后是看答案了，一看就吐血<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江阔云低任西东  
+##### 3708#       发表于 2025-6-29 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018867&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-29 17:28</a>
+
+大沙漠其他的还好，地形空能摸过去，废土那种弯弯绕绕找任务目的地一样是地狱难度，找拍照是真的绷不住，有 ...</blockquote>
+这游戏跟着攻略走根本不影响游戏乐趣。。。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  永远的访客  
+##### 3709#       发表于 2025-6-29 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018886&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-6-29 17:36</a>
+
+这游戏跟着攻略走根本不影响游戏乐趣。。。</blockquote>
+自己探索有自己的乐趣，比如拍照任务是逼着把eve各个角度看个遍了，进一个场景就先把视角转个遍<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我习惯先自己做题，实在做不出来了再对答案，这样也对作者到底设计得靠谱不靠谱有个更清晰的体会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
