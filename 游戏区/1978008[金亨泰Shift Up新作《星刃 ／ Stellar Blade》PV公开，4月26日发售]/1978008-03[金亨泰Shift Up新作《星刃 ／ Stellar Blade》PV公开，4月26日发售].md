@@ -8256,3 +8256,12 @@ Shit up这草堂班子
 
 ，后边大型鱼和巨型鱼分数给很多
 
+
+*****
+
+####  Andariel  
+##### 3696#       发表于 2025-6-29 13:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">2周目打完了，可以拿最色的几件3周目服装了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这个迅驰模式杀50个敌人的成就还是没拿到，迅驰模式攻击力也太低了，很难杀人
+
