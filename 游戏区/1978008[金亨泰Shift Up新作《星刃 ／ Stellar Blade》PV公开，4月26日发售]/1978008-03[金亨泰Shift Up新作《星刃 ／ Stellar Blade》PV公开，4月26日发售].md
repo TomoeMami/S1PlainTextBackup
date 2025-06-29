@@ -8461,3 +8461,13 @@ Shit up这草堂班子
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Andariel  
+##### 3714#       发表于 2025-6-29 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68019099&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-6-29 18:40</a>
+那个1星没有防御力的肉色战斗服，我二周目过完开头的剧情就不给穿了，啥时候还能拿到啊？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">把衣服脱了就穿上了
+
