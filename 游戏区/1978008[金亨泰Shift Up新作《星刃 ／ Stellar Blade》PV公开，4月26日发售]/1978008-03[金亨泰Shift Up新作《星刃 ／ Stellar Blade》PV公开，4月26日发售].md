@@ -8516,3 +8516,16 @@ su这公司怎么说呢，特别擅长做减法，具体到某个宝箱或者收
 
 这个配置在ZION城切菜单会突然卡顿。。。
 
+
+*****
+
+####  ascomnet  
+##### 3718#       发表于 2025-6-29 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018953&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-29 17:53</a>
+
+hard渡鸦打不过啊，第一阶段差不多了，但是第二阶段招数太多了记不住
+
+有无轮椅打法 ...</blockquote>
+延长倒地时间和增加b能量的脊椎，剩下的弹反攒能量+放剑气。
+
