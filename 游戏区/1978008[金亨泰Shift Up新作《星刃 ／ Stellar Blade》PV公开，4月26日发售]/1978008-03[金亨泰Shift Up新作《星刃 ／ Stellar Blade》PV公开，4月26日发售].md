@@ -8265,3 +8265,16 @@ Shit up这草堂班子
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">2周目打完了，可以拿最色的几件3周目服装了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这个迅驰模式杀50个敌人的成就还是没拿到，迅驰模式攻击力也太低了，很难杀人
 
+
+*****
+
+####  方舟售票员  
+##### 3697#       发表于 2025-6-29 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018108&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-29 13:14</a>
+
+2周目打完了，可以拿最色的几件3周目服装了
+
+但是这个迅驰模式杀50个敌人的成就还是没拿到，迅驰模式攻击力 ...</blockquote>
+因为迅驰模式大部分人主要是用来boss战避险的吧，谁打小怪开呢
+
