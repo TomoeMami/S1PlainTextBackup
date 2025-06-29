@@ -8441,3 +8441,23 @@ Shit up这草堂班子
 
 维持币好缺啊，主城情报贩子那里的衣服设计图都买不齐
 
+
+*****
+
+####  心灵的乳头  
+##### 3712#       发表于 2025-6-29 18:40
+
+那个1星没有防御力的肉色战斗服，我二周目过完开头的剧情就不给穿了，啥时候还能拿到啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？
+
+
+*****
+
+####  水边井  
+##### 3713#       发表于 2025-6-29 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68019085&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-6-29 18:37</a>
+维持币好缺啊，主城情报贩子那里的衣服设计图都买不齐</blockquote>
+不急，这玩意会溢出的，路上看到箱子可以砸了，红色木箱几率出
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
