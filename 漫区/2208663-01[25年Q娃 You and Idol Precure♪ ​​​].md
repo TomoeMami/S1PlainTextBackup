@@ -579,3 +579,29 @@
 
 回收记忆铺垫太多了导致真收笔的时候情绪拉不上去，感觉差点意思<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 1120#       发表于 2025-6-29 20:56
+
+其实就是这一集b part用来写创造记忆水一下
+
+下一集再来找回记忆会平缓一点
+
+不觉得前脚说要创造记忆后脚就找回记忆突兀
+
+就是需要一个小歌从噗哩伦失忆受到打击（体现噗哩伦对小歌的重要性）到通过家人的话语醒悟得到成长不再低落最终虽然已经下定决心了要和失忆的噗哩伦重新开始了但是能真正找回记忆还是会喜极而泣也更加强了找回记忆的份量。过程是没什么问题的最多是塞在一集会有点急。
+
+
+*****
+
+####  王九的哥哥  
+##### 1121#       发表于 2025-6-29 21:01
+
+那你在日本爱抖露会接的活太多了，唱歌跳舞大概只能说是动员力最高的分类……
+
+料理也都是非常稀松平常的了，不算虚构的现实里的爱抖露还有去无人岛开荒的活呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+甚至可以说没给你整个隔壁来打棚01那样5周职业对决就已经很仁慈了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
