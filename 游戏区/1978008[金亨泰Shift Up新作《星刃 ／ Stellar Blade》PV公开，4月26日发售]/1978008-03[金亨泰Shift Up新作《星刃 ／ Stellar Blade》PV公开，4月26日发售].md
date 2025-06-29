@@ -8336,3 +8336,18 @@ Shit up这草堂班子
 
 有红莲套的话迅驰成就不难 拉一波小怪 越多越好 然后一个红莲次元斩 这个次元斩击杀是可以涨迅驰槽的 可以无限永动 
 
+
+*****
+
+####  Andariel  
+##### 3703#       发表于 2025-6-29 14:58
+
+ 本帖最后由 Andariel 于 2025-6-29 15:01 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">操，完了，steam成就卡bug了
+
+最后一个迅驰模式杀50个敌人做完了，只跳了这一个成就，最后完成全部其他成就的成就没跳
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">永远不能全成就了，还有救吗
+
+还好，退出读档了一次跳成就了，吓一跳<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
