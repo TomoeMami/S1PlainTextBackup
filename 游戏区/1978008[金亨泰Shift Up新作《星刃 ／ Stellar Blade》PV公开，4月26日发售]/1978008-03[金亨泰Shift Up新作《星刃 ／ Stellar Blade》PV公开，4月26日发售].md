@@ -8471,3 +8471,32 @@ Shit up这草堂班子
 那个1星没有防御力的肉色战斗服，我二周目过完开头的剧情就不给穿了，啥时候还能拿到啊？ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">把衣服脱了就穿上了
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3715#       发表于 2025-6-29 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018914&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-29 17:44</a>
+
+自己探索有自己的乐趣，比如拍照任务是逼着把eve各个角度看个遍了，进一个场景就先把视角转个遍
+
+我习惯 ...</blockquote>
+大沙漠虽然粪，但是拍照做得真不错，自己根据经验探到一个点，然后往往还发现左边一件衣服右边一个罐子还是有点爽
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3716#       发表于 2025-6-29 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018378&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-6-29 14:37</a>
+
+进入沙漠，打开地图，日光塔标记醒目！
+
+于是直奔日光塔！遭遇亚巴顿，血战取胜！
+
+然后发现无法启动，需要 ...</blockquote>
+su这公司怎么说呢，特别擅长做减法，具体到某个宝箱或者收集品的局部场景，他做得特别细，有些环境引导/暗示做的很棒，让人看不出来是单机新手。然后大地图、大叙事不会做怎么办呢，答案是：那就干脆不做了呗XD
+
+平均假如有30小时的流程，我让你不怎么舔图的也保底一小时有件衣服换，其他的部分就直接不装了，喷点倒是不少，但是有时候就让人感觉“孩子挺实诚的，那行吧算了”<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

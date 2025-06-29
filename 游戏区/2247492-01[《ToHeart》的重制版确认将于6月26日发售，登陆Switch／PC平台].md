@@ -1526,3 +1526,29 @@ Steamのみ</blockquote>
 就看迷宫旅人的素质和类型的稀缺性，移植NS绝对要卖多非常多。然后现在上steam折戟只能在锁区的DMM和J什 ...</blockquote>
 搞不懂为什么不去GOG卖，反而去一个这么小众的地方，甚至还锁语言，这发行商也是半斤八两，卖不出去都是自找的
 
+
+*****
+
+####  DTCPSS  
+##### 130#       发表于 2025-6-29 19:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到有人说 ToHeart 动画的 OP 可以完美替换成《终结者2》主题曲
+
+[https://www.bilibili.com/video/BV14bK2zrEpp](https://www.bilibili.com/video/BV14bK2zrEpp)
+[https://x.com/614_HSO/status/1938234414766735620](https://x.com/614_HSO/status/1938234414766735620)
+
+
+*****
+
+####  760194962  
+##### 131#       发表于 2025-6-29 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68019237&amp;ptid=2247492" target="_blank">DTCPSS 发表于 2025-6-29 19:26</a>
+
+看到有人说 ToHeart 动画的 OP 可以完美替换成《终结者2》主题曲
+
+https://www.bilibili.com/video/BV14bK2 ...</blockquote>
+这都能挖坟
+
+把韩版op的日文空耳也翻译成中文挖下坟吧
+
