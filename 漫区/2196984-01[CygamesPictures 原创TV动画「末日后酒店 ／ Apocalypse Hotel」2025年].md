@@ -8480,3 +8480,30 @@ TV动画《末日后酒店》宣布和某部神秘作品联动合作。
 
 要是老板能漏个脸就好了（比如影像之类）
 
+
+*****
+
+####  C男人  
+##### 725#       发表于 2025-6-29 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68007336&amp;ptid=2196984" target="_blank">gawain 发表于 2025-6-27 02:35</a>
+
+很稳，最后集余味很足。 处理的很好，没有在俗套里。顺便八千代会进机战吗
+
+ ...</blockquote>
+挺合适的，八千代能修能补能送餐，
+
+狸猫家5人份精神量大管饱。
+
+中期还能升级一次机体。
+
+妥妥的蓝宝石第二。
+
+<img src="https://img.stage1st.com/forum/202506/29/204511gfive7tsntwv7nav.jpg" referrerpolicy="no-referrer">
+
+<strong>[orion origin] Apocalypse Hotel [08] [1080p] [H265 AAC] [CHS_JPN].mp4_20250609_2.jpg</strong> (262.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 20:45 上传
+
