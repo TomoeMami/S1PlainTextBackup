@@ -8204,3 +8204,21 @@ Shit up这草堂班子
 刚到大沙漠打开地图眼前一黑
 废土还有点地图设计，高低差、岔路啥的，这大沙漠难道真的就是一个平地然后全是马桶吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 3691#       发表于 2025-6-29 11:01
+
+昨晚开始好好钓鱼，但是无论用啥鱼饵在几个地方（绿洲，荒地门口，荒地工厂，7号）试下来都是些小鱼，效率极低，折腾2小时不到1000分，难道是要穿泳装才能吸引大鱼吗（钓鱼任务只做了第1个，第2个就钓不到）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3692#       发表于 2025-6-29 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017578&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-29 11:01</a>
+
+昨晚开始好好钓鱼，但是无论用啥鱼饵在几个地方（绿洲，荒地门口，荒地工厂，7号）试下来都是些小鱼，效率 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你需要先拿积分升级钓鱼技术然后做支线再升级才能钓大鱼
+

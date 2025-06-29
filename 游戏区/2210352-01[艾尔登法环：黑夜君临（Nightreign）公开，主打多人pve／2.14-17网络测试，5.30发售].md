@@ -10500,3 +10500,16 @@ Avenger：哈基蜗
 
 现在黑环的solo体验咋样了，够爽吗
 
+
+*****
+
+####  Jabeck  
+##### 1016#       发表于 2025-6-29 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017535&amp;ptid=2210352" target="_blank">harry3 发表于 2025-6-29 10:52</a>
+
+怪猎也从来不玩联机，
+
+现在黑环的solo体验咋样了，够爽吗</blockquote>
+solo怪韧性和血量**低于联机。
+
