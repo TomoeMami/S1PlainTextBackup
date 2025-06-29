@@ -8158,3 +8158,30 @@ Shit up这草堂班子
 
 那个炮台最搞的是由于播片的时候也能挨揍，如果正常解谜最后拿罐子的时候大概率被打飞。
 
+
+*****
+
+####  Andariel  
+##### 3687#       发表于 2025-6-29 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017160&amp;ptid=1978008" target="_blank">ATRO 发表于 2025-6-29 09:04</a>
+那个炮台最搞的是由于播片的时候也能挨揍，如果正常解谜最后拿罐子的时候大概率被打飞。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你跑太快了
+最后那个会上升的平台上有个蓝箱子
+躲在那个箱子后面等平台完全上升到位，炮台就回去了
+这时候在走到固定平台上拿饮料就不会被炸了
+
+*****
+
+####  ATRO  
+##### 3688#       发表于 2025-6-29 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017241&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-29 09:29</a>
+
+你跑太快了
+
+最后那个会上升的平台上有个蓝箱子
+
+躲在那个箱子后面等平台完全上升到位，炮台就回去了</blockquote>
+刹不住了<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
