@@ -10538,3 +10538,117 @@ https://x.com/suisui_dm?s=11&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 
 2025-6-29 09:41 上传
 
+
+*****
+
+####  岸浪白野  
+##### 22924#       发表于 2025-6-29 10:00
+
+[X 上的 ぴろき：“セイラさん、ジオン独立戦争中に、何度もシャレにならない死線をくぐってるから、尋常ならざる女親分になりそう。#GQuuuuuuX #アルテイシア [url]https://t.co/9LB7ag5Eop](https://x.com/piroki_wod/status/1938423876402450693)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095546ovpkmzpgrqxrpyik.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (705.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:55 上传
+
+[X 上的 𝐴𝑣𝑒𝑛𝑡𝑎𝑑𝑜𝑟：“[url]https://t.co/CaCIaYziDE](https://x.com/aventador_770_4/status/1938432104960045192)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095310bcdetye5qdqdpjjf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:53 上传
+
+[X 上的 メカ部チャンネル：“色々ある世界線のGQX。 「師匠ー！」「このバカ弟子がー！」 ＃ジークアクス [url]https://t.co/vk5vJU8WY3](https://x.com/mecabu_channel/status/1938781714618425771)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095944t54swyqw4qd7u5nq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:59 上传
+
+[X 上的 左は夏コミでるよ：“今君は決して風に流れない矢になって [url]https://t.co/IiPqUZFszo](https://x.com/NviG00/status/1938610515414335870)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095616t4bmjzbjwmc07zfq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (721.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:56 上传
+
+[X 上的 ななた：“どこまでも自由に！ [url]https://t.co/Dq1Mc5lbUE](https://x.com/7nanata_g/status/1938168294587969902)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095148lt5h5loq5hlg7eol.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:51 上传
+
+[X 上的 ぽてけ：“[url]https://t.co/PK47w6dpyd](https://x.com/korokke_0401/status/1938130039566192772)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095108u6vtq3twga6wrtp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:51 上传
+
+[X 上的 ム：“[url]https://t.co/Ik507w6dxl](https://x.com/camera001_/status/1938500946662986237)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095439wohkcuevjo1tfvuz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:54 上传
+
+[X 上的 ︎︎なーが其のもの：“ジークアクス [url]https://t.co/T5PKQFcE8x](https://x.com/naagasonomono1/status/1938925792223994057)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095758fv58v5v5l0a0yga9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:57 上传
+
+[X 上的 ゾノタイダ：“#GQuuuuuuX [url]https://t.co/EHllEmpWyQ](https://x.com/gouldingregi/status/1939000637381099857)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/29/095828bc5t90ncnlsglccy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 09:58 上传
+
+
+*****
+
+####  西瓜夜行  
+##### 22925#       发表于 2025-6-29 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017347&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-29 10:00</a>
+
+X 上的 ぴろき：“セイラさん、ジオン独立戦争中に、何度もシャレにならない死線をくぐってるから、尋常 ...</blockquote>
+感谢搬运！！！
+
+*****
+
+####  古怪山庄士大夫  
+##### 22926#       发表于 2025-6-29 10:06
+
+太帅了，强人，口碑不行胶能不能跌点
+
