@@ -5042,3 +5042,16 @@ RJxX9dy</blockquote>
 
 看了妖皇bo20感觉还是得对Worm道歉了，虽然3费的你很垃圾但是也比绝大多数的兄弟们厉害了
 
+
+*****
+
+####  辞冬  
+##### 367#       发表于 2025-6-29 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016286&amp;ptid=2163625" target="_blank">忘带蜻蜓切 发表于 2025-6-28 23:31</a>
+
+萌新第一次打广场赛，摸了个3-1，感谢访问码语姬！
+
+另外这个券留着可以抽后面新出的卡么？还是说以后也只能 ...</blockquote>
+可以留到后面，但是虹卡卡池是一二弹虹卡合起来
+
