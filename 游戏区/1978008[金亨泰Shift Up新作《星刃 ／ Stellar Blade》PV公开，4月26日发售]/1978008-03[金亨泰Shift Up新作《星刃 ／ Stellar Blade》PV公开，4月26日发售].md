@@ -8195,3 +8195,12 @@ Shit up这草堂班子
 废土右上角两个有炮塔守宝箱的地方真的吃屎，，离传送点特别远不说还容易死，每次被打死了跑路都跑半天 ...</blockquote>
 用飞针把炮台打掉
 
+
+*****
+
+####  bad_alloc  
+##### 3690#       发表于 2025-6-29 10:26
+
+刚到大沙漠打开地图眼前一黑
+废土还有点地图设计，高低差、岔路啥的，这大沙漠难道真的就是一个平地然后全是马桶吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
