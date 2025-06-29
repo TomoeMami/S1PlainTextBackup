@@ -520,3 +520,14 @@
 
 还有下集看标题以为是演唱会vs对决 结果是做料理 别忘了今年是偶像q娃 
 
+
+*****
+
+####  jaewoongh_  
+##### 1114#       发表于 2025-6-29 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017059&amp;ptid=2208663" target="_blank">凡人 发表于 2025-6-29 08:28</a>
+
+说到第2集，这集竟然没有擦眼泪call back我是没想到的，虽然这集的脚本大方向上没有问题，但很多小细节真 ...</blockquote>
+可能也是找外社脚本的一个弊端，有些东西不容易被注意到
+
