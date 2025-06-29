@@ -4386,3 +4386,16 @@ Screenshot_20250629-153137.png
 
 说起来恐惧那玩意儿正式公开是哪个篇章里说的来着，在林凌篇探照灯已经是明确反派了，但是魂电那会儿有提么？
 
+
+*****
+
+####  rushsong  
+##### 362#       发表于 2025-6-29 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018662&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-6-29 16:17</a>
+
+换组之后打斗比上一段舒服不少，但是文戏短板和设定短板感觉还是重
+
+现在这个发展应该是罗莉篇后面默杀篇应 ...</blockquote>
+后面的篇章基本都是澜映画做吧
+
