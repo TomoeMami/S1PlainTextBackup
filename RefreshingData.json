@@ -1593,10 +1593,10 @@
     "update": false
   },
   "1556697": {
-    "totalreply": 12196,
+    "totalreply": 12198,
     "title": "[S1机核网真爱楼]",
     "newtitle": "[S1机核网真爱楼]",
-    "lastedit": 1751016625,
+    "lastedit": 1751240533,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 173336,
+    "totalreply": 173337,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1751239327,
+    "lastedit": 1751240533,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 1145,
+    "totalreply": 1147,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》新PV公开，2025年6月26日发售]",
-    "lastedit": 1751238007,
+    "lastedit": 1751240530,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11214,10 +11214,10 @@
     "update": false
   },
   "2196270": {
-    "totalreply": 342,
+    "totalreply": 343,
     "title": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
     "newtitle": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
-    "lastedit": 1751213895,
+    "lastedit": 1751240417,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11277,12 +11277,12 @@
     "update": false
   },
   "2049163": {
-    "totalreply": 255,
+    "totalreply": 256,
     "title": "[宫岛礼吏 新作「紫云寺家的孩子们」动画化]",
     "newtitle": "[宫岛礼吏 新作「紫云寺家的孩子们」动画化]",
-    "lastedit": 1750806847,
+    "lastedit": 1751240413,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2187541": {
@@ -11322,10 +11322,10 @@
     "update": false
   },
   "2044761": {
-    "totalreply": 179,
+    "totalreply": 180,
     "title": "[Key社《Summer Pockets》动画化 2025年]",
     "newtitle": "[Key社《Summer Pockets》动画化 2025年]",
-    "lastedit": 1751116213,
+    "lastedit": 1751240417,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11403,10 +11403,10 @@
     "update": false
   },
   "2203912": {
-    "totalreply": 142,
+    "totalreply": 143,
     "title": "[【我是星际国家的恶德领主】TV动画化 2025年4月【俺は星間国家の悪徳領主！】]",
     "newtitle": "[【我是星际国家的恶德领主】TV动画化 2025年4月【俺は星間国家の悪徳領主！】]",
-    "lastedit": 1751012775,
+    "lastedit": 1751240417,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15237,10 +15237,10 @@
     "update": false
   },
   "2254713": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[时隔15年 重温《死亡笔记》]",
     "newtitle": "[时隔15年 重温《死亡笔记》]",
-    "lastedit": 1751174536,
+    "lastedit": 1751240417,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16074,10 +16074,10 @@
     "update": false
   },
   "2255100": {
-    "totalreply": 132,
+    "totalreply": 133,
     "title": "[XB3到底咋样]",
     "newtitle": "[XB3到底咋样]",
-    "lastedit": 1751239567,
+    "lastedit": 1751240533,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16250,6 +16250,15 @@
     "newtitle": "[《潜水员戴夫》这游戏有点神奇的]",
     "lastedit": 1751232260,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "1985871": {
+    "totalreply": 215,
+    "title": "[『杜鹃的婚约』 TV动画化 2022年4月 连续两季度]",
+    "newtitle": "[『杜鹃的婚约』 TV动画化 2022年4月 连续两季度]",
+    "lastedit": 1751240424,
+    "category": "漫区",
     "active": true,
     "update": false
   }
