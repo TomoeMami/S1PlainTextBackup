@@ -6032,3 +6032,11 @@ seed d的剧情还只出一半啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">那看来剧情刚好到鸟换命运追着阿斯兰捅，全剧次高光时刻
 
+
+*****
+
+####  captoon  
+##### 2026#       发表于 2025-6-29 16:56
+
+海牛+阿姆罗目前绝对T0王者了
+
