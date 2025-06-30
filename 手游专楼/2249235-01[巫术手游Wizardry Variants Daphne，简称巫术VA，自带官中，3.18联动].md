@@ -192,3 +192,16 @@
 好像由于这个版本开始不支持win7了，我的steam版就卡在更新那里了。被迫退坑，都是好事 ...</blockquote>
 steam不是早不支持win7了吗
 
+
+*****
+
+####  电脑死机  
+##### 441#       发表于 2025-6-30 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68011509&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-6-27 19:36</a>
+
+为了变强而有灵活的底线也是冒险者的一环，善恶阵营岂是如此不便之物
+
+下一个可能会出的武士是善/中立职业， ...</blockquote>
+我猜领主强制善，武士强制中立，后续会不会更炼金、女武神、角斗士、巫女、诗人那些看制作组心情
+
