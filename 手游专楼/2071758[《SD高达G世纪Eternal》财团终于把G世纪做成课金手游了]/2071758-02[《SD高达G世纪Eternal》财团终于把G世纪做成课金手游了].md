@@ -6402,3 +6402,33 @@ UR支援只出了79林友德，300抽换了93林友德
 之后慢慢储钻每三个月大师联盟换ur支援狗粮<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/2f3a36b8db9dafec3b3df04d06a08496/MuMu12-20250630-185647.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schw  
+##### 2067#       发表于 2025-6-30 19:47
+
+代孙这针对我啊，200抽就ez8，海牛和自由喜加一，还有其他的ur船，脉冲和船都没出。问问楼友200点换脉冲还是海牛1星<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 2068#       发表于 2025-6-30 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024774&amp;ptid=2071758" target="_blank">Schw 发表于 2025-6-30 19:47</a>
+
+代孙这针对我啊，200抽就ez8，海牛和自由喜加一，还有其他的ur船，脉冲和船都没出。问问楼友200点换脉冲还 ...</blockquote>
+换脉冲，多个机师呢
+
+*****
+
+####  体制  
+##### 2069#       发表于 2025-6-30 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68021949&amp;ptid=2071758" target="_blank">markava 发表于 2025-6-30 11:29</a>
+150发没出海牛，没有船，把沙扎比干到2星了</blockquote>
+草，我以为这是我在发帖，一模一样。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
