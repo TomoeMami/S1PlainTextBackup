@@ -6346,3 +6346,11 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 120抽就两个林有德，想死<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 2061#       发表于 2025-6-30 17:05
+
+200抽 2海牛 1脉冲 3红扎 1托勒密（00船）
+
