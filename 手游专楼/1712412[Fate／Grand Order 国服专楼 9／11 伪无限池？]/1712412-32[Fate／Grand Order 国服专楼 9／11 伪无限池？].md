@@ -117,3 +117,11 @@
 
 14呼符+一个10连，这个卡池全部图鉴都开了，安心等学姐了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞霞精灵  
+##### 47167#       发表于 2025-6-30 09:23
+
+这俩但凡不是姛，都可能会有动力抽一抽。白瞎了挺好看的人设风格。
+
