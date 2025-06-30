@@ -8947,3 +8947,20 @@ https://www.bilibili.com/video/BV19JgRzWERn
 好看归好看，一堆动作都夸张得不合直觉，简直就是自带矢量喷嘴的人形机器人（好像也没错） ...</blockquote>
 都能甩出次元斩了，问题不大<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  观铃の使魔  
+##### 3753#       发表于 2025-6-30 20:29
+
+剑星赛博魔法师  那个城楼门咋开啊  一直有个炮塔在城楼射我  靠近都做不到 囧
+
+*****
+
+####  11116等  
+##### 3754#       发表于 2025-6-30 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024934&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-6-30 20:29</a>
+
+剑星赛博魔法师  那个城楼门咋开啊  一直有个炮塔在城楼射我  靠近都做不到 囧 ...</blockquote>
+
