@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 16584,
+    "totalreply": 16586,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.12 卡提王朝]",
-    "lastedit": 1751276177,
+    "lastedit": 1751299809,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 173484,
+    "totalreply": 173488,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1751299451,
+    "lastedit": 1751300047,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 158661,
+    "totalreply": 158664,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1751299570,
+    "lastedit": 1751299929,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13518,10 +13518,10 @@
     "update": false
   },
   "2253379": {
-    "totalreply": 1056,
+    "totalreply": 1058,
     "title": "[情感反诈骗新游《捞女游戏》 正式定档6月19日，售价仅29元（小明剑魔有望直播）]",
     "newtitle": "[《捞女游戏》更名为《情感反诈模拟器》现已上市，售价仅29元！玩家好评如潮]",
-    "lastedit": 1751298379,
+    "lastedit": 1751300167,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14994,10 +14994,10 @@
     "update": false
   },
   "2209951": {
-    "totalreply": 134,
+    "totalreply": 136,
     "title": "[章鱼噼的原罪 动画化]",
     "newtitle": "[章鱼噼的原罪 动画化]",
-    "lastedit": 1751298731,
+    "lastedit": 1751299928,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15674,7 +15674,7 @@
     "newtitle": "[寓言杀手 第二部7月17日开始连载 熟肉已出]",
     "lastedit": 1751040383,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2209574": {
@@ -16344,10 +16344,10 @@
     "update": false
   },
   "2255245": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[龙树谅预言的7月5日大灾难投票]",
     "newtitle": "[龙树谅预言的7月5日大灾难投票]",
-    "lastedit": 1751296946,
+    "lastedit": 1751299811,
     "category": "外野",
     "active": true,
     "update": false
@@ -16358,6 +16358,15 @@
     "newtitle": "[推漫：无良公会／不道德公会／不徳のギルド]",
     "lastedit": 1751298380,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2255228": {
+    "totalreply": 46,
+    "title": "[2025自然指数，中国排名第一，美国快速下滑]",
+    "newtitle": "[2025自然指数，中国排名第一，美国快速下滑]",
+    "lastedit": 1751300048,
+    "category": "外野",
     "active": true,
     "update": false
   }
