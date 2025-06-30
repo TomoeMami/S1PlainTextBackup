@@ -5124,3 +5124,20 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得除了金币，钥匙也可以开始存了，现在环境开始固化一脸版本末期等新包的样子
 
+
+*****
+
+####  希米露  
+##### 374#       发表于 2025-6-30 18:21
+
+嘻嘻 今天有金卡，还不是过剩的<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  凉良  
+##### 375#       发表于 2025-6-30 18:22
+
+今天宝箱开出来三张emt 捅了老窝了
+
