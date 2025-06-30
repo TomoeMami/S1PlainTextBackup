@@ -6432,3 +6432,22 @@ UR支援只出了79林友德，300抽换了93林友德
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  里村紅葉  
+##### 2070#       发表于 2025-6-30 19:57
+
+俩新UR都没一击必杀TAG，这TAG到底是怎么定的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Schw  
+##### 2071#       发表于 2025-6-30 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024792&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-6-30 19:53</a>
+
+换脉冲，多个机师呢</blockquote>
+我支援机师有天鹅，凤凰和奶奶头了，上不了那么多支援机师吧，还要换飞鸟吗
+
