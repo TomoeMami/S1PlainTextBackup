@@ -9058,3 +9058,58 @@ https://www.bilibili.com/video/BV19JgRzWERn
 <img src="https://images.steamusercontent.com/ugc/10935930826522382421/9B8AD3C7268F5BBBDCBBAAAE3C20B945CB2F9045/" height="450" id="aimg_jqw22" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://images.steamusercontent.com/ugc/11491549505807497316/88066B4A9F39BB5B806FDFEE5098718F927DD09B/" height="450" id="aimg_B0seF" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
+
+*****
+
+####  darkangel0224  
+##### 3763#       发表于 2025-6-30 23:18
+
+ 本帖最后由 darkangel0224 于 2025-6-30 23:21 编辑 
+<blockquote>alucardcz 发表于 2025-6-30 17:25
+完蛋拉 我发现我拍的照都没关ui   丸辣 全丸辣</blockquote>
+
+仔细想了想，游戏里也没啥风景能拍的。翻了翻社区截图，也就这么些能看看吧。还要自己手动打光，确实不怎么适合摄影菜鸡
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3507748351
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3509310735
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3511412449
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3511722006
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3512580032
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3512048843
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3512269148
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3512160122 
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3512022387 
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3507288956
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3507701150 
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3509151868 
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3509854224
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3502771534
+
+<img src="https://images.steamusercontent.com/ugc/15680919208426196402/0F89A7985F05B9D75633A2B47430BE05B20E54BE/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_C2sV6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/16595498166190659311/148D7C45BBD64E3D6EACD4B71965B5F139BE5B21/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_Mts3s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/16826289438060565604/BEE314C427A12BECDBA6B3ACF6E8E3E69AD4D237/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_NFWn3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/10281475144123076833/9AF955ED9B30BA29989B23015C90B278BE0B14D6/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_hwnNy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  alucardcz  
+##### 3764#       发表于 2025-6-30 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68025221&amp;ptid=1978008" target="_blank">SaitoYuki 发表于 2025-6-30 21:43</a>
+
+每次进都要编着色器是啥问题</blockquote>
+不知道啥问题 我也遇到过 又不知道为什么他自己好了
+
