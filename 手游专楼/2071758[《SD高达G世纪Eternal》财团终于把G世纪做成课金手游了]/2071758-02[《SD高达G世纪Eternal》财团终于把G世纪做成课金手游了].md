@@ -6111,3 +6111,26 @@ seed d的剧情还只出一半啊
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2033#       发表于 2025-6-30 11:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">金特射材料只有9个，我材料都上哪去了
+
+
+*****
+
+####  洛克萨斯  
+##### 2034#       发表于 2025-6-30 11:10
+
+海牛评测有了么
+
+*****
+
+####  zksandy  
+##### 2035#       发表于 2025-6-30 11:11
+
+第三个十连出了海牛。要么收工等半周年了
+
