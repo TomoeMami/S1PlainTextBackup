@@ -6330,3 +6330,11 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 后知后觉，机动战士高达这个词条包含了一大堆乱七八糟的东西，尤其是外传。但是SEED词条不包含SEED DESTINY
 
+
+*****
+
+####  洛克萨斯  
+##### 2059#       发表于 2025-6-30 16:20
+
+笑死，吉拉德卡是防御机体，被火神炮打包的纸糊装甲<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，什么地狱笑话
+

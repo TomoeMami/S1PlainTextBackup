@@ -10629,3 +10629,17 @@ youtube.com/watch?v=U7ic30gkSlU
 
 解说
 
+
+*****
+
+####  evestart  
+##### 1027#       发表于 2025-6-30 16:23
+
+ 本帖最后由 evestart 于 2025-6-30 16:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017535&amp;ptid=2210352" target="_blank">harry3 发表于 2025-6-29 10:52</a>
+
+怪猎也从来不玩联机，
+
+现在黑环的solo体验咋样了，够爽吗</blockquote>
+现在单人难度比较低了，但依然需要投入不少的时间成本去习惯这个游戏的节奏，这个游戏的爽快感是需要掌握规则后才开始形成的。
+

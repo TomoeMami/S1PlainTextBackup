@@ -20,3 +20,15 @@
 
 —— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DARK_HGCG  
+##### 52#       发表于 2025-6-30 16:25
+
+玩上了
+
+这界面和背景音乐还真有心跳回忆的味道
+
+第一轮选角有什么讲究吗？
+
