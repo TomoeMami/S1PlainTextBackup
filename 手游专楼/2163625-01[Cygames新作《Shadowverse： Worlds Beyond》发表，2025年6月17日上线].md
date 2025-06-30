@@ -5116,3 +5116,11 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉中速梦得益于（？）下级质量一般，构筑自由发挥空间还蛮多，我最近看了一堆中速梦构筑，除了木乃伊，小狗妹，陵园，狼哥，小美，堕天，狗妹之外的卡都有带和不带的
 
+
+*****
+
+####  olkzdf  
+##### 373#       发表于 2025-6-30 17:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得除了金币，钥匙也可以开始存了，现在环境开始固化一脸版本末期等新包的样子
+
