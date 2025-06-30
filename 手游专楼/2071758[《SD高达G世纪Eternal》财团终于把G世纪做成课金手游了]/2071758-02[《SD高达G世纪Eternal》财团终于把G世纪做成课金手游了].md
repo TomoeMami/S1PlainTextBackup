@@ -6225,3 +6225,33 @@ seed d的剧情还只出一半啊
 
 无氪90抽3海牛1脉冲1母舰，不错不错<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 2047#       发表于 2025-6-30 12:40
+
+终于第一次亲眼看到抽卡特殊演出了
+锁定和主角机护航感觉真爽<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+80抽一海牛三脉冲结果来说也很不错，可惜老是抽不到好用的ur战舰挺难受的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  lighttt  
+##### 2048#       发表于 2025-6-30 12:41
+
+200抽就两个ur<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 2049#       发表于 2025-6-30 12:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">160抽出了3脉冲，没海牛，绝望
+
