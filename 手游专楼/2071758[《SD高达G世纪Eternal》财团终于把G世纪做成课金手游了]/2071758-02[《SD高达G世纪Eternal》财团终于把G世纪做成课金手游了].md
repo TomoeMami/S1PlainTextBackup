@@ -6100,3 +6100,14 @@ seed d的剧情还只出一半啊
 
 還有全武裝牛之類的
 
+
+*****
+
+####  jackyhuang  
+##### 2032#       发表于 2025-6-30 10:55
+
+卡版牛，双翼牛，精神骨架共振形态，福冈牛
+你居然敢怀疑万代的想象力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
