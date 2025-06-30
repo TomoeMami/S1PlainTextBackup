@@ -6547,3 +6547,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 10连一个海牛一个自由，任务完成可以等下一个池子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dio999  
+##### 2082#       发表于 2025-6-30 22:52
+
+大保底79林有得和93有得都满破还是一牛不染<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

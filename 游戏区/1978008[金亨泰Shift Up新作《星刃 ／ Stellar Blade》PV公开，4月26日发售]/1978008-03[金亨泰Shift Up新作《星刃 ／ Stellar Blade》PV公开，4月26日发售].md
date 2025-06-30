@@ -9036,3 +9036,14 @@ https://www.bilibili.com/video/BV19JgRzWERn
 三周目还有一个通勤装的异色，也很好看</blockquote>
 我似乎摸到点金大师的设计思路，就是上半身有能遮住屁股蛋子的衣服，下半身肯定就只有一条裤衩子<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayamitetsu  
+##### 3761#       发表于 2025-6-30 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024982&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-30 20:42</a>
+
+人类的古老谚语——不要带着刀去参加枪战</blockquote>
+这游戏最强build就是用枪<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
