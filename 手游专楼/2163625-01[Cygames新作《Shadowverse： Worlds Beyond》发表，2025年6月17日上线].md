@@ -5186,3 +5186,36 @@ RJxX9dy</blockquote>
 
 中速皇和跳费龙合哪套好？目前有套差几张金卡的虫妖，但是打多了有点累。中速皇两张535一张644，跳费龙三张855一张652一张777，金卡也都差好几张，一万多尘
 
+
+*****
+
+####  olkzdf  
+##### 380#       发表于 2025-6-30 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024917&amp;ptid=2163625" target="_blank">Sliurus 发表于 2025-6-30 20:25</a>
+
+原来专楼在手游区
+
+中速皇和跳费龙合哪套好？目前有套差几张金卡的虫妖，但是打多了有点累。中速皇两张535一 ...</blockquote>
+这个版本的跳费龙只比下水道主教稍微强一点，中速皇就是贵，必须满的是雷给emt，2~3的是866，1~2的是堕天，9~11虹
+
+思考点不多按费拍怪就是了，打不过下一把
+
+
+*****
+
+####  duraa  
+##### 381#       发表于 2025-6-30 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024917&amp;ptid=2163625" target="_blank">Sliurus 发表于 2025-6-30 20:25</a>
+
+原来专楼在手游区
+
+中速皇和跳费龙合哪套好？目前有套差几张金卡的虫妖，但是打多了有点累。中速皇两张535一 ...</blockquote>
+
+中速皇，除了控教应该没啥特别劣的对局，控教也基本被打没了，基本都看自己抽的如何
+
+8费有冠军连招6+5，一地圣盾墙，或者866拉4个墙，解不了下个回合接雷gay满血斩<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过应该下周就新卡包了吧，不如忍一忍
+

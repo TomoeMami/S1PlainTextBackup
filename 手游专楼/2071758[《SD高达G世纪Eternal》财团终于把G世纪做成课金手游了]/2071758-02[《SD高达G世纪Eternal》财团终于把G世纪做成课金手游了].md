@@ -6492,3 +6492,20 @@ UR支援只出了79林友德，300抽换了93林友德
 
 竟然只包含了不到40还是50台机，TV动画那些主角机竟然都不算在这词条里<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ドロロ  
+##### 2076#       发表于 2025-6-30 20:38
+
+30抽屁毛没抽到<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光辉传递者  
+##### 2077#       发表于 2025-6-30 20:39
+
+大败而归，直接重生了。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

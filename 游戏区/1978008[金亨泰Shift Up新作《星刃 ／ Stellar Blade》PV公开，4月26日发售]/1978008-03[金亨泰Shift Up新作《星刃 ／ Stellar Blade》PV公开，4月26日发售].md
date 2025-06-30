@@ -8964,3 +8964,29 @@ https://www.bilibili.com/video/BV19JgRzWERn
 
 剑星赛博魔法师  那个城楼门咋开啊  一直有个炮塔在城楼射我  靠近都做不到 囧 ...</blockquote>
 
+
+*****
+
+####  观铃の使魔  
+##### 3755#       发表于 2025-6-30 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024944&amp;ptid=1978008" target="_blank">11116等 发表于 2025-6-30 20:33</a>
+
+炮塔应该能打掉吧，开门是个小解密，小推车a解开大箱子去另外二楼拿宝箱，再用小推车a去拿宝箱楼下的小推车 ...</blockquote>
+找了个视频看了下 原来要用枪 囧。
+
+一般我打小兵从来不用枪。
+
+
+*****
+
+####  永远的访客  
+##### 3756#       发表于 2025-6-30 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024961&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-6-30 20:38</a>
+
+找了个视频看了下 原来要用枪 囧。
+
+一般我打小兵从来不用枪。</blockquote>
+人类的古老谚语——不要带着刀去参加枪战<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
