@@ -1560,3 +1560,11 @@ https://www.bilibili.com/video/BV14bK2 ...</blockquote>
 
 TO HEART淘宝的日版商家说，NS版没中文，买我还要不要，我说不要了。<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  原来如此君  
+##### 133#       发表于 2025-6-30 16:09
+
+上eshop看了下ns版没中文这是在干嘛，又不是没做中文，服了
+
