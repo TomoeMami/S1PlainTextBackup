@@ -181,3 +181,14 @@
 
 但忍者洞1层摸箱还是比农要塞8-10层舒服太多，这段时间就住这里了
 
+
+*****
+
+####  好大一只绅士  
+##### 440#       发表于 2025-6-30 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68010394&amp;ptid=2249235" target="_blank">mobdom 发表于 2025-6-27 16:00</a>
+
+好像由于这个版本开始不支持win7了，我的steam版就卡在更新那里了。被迫退坑，都是好事 ...</blockquote>
+steam不是早不支持win7了吗
+
