@@ -1552,3 +1552,11 @@ https://www.bilibili.com/video/BV14bK2 ...</blockquote>
 
 把韩版op的日文空耳也翻译成中文挖下坟吧
 
+
+*****
+
+####  bill910  
+##### 132#       发表于 2025-6-30 14:58
+
+TO HEART淘宝的日版商家说，NS版没中文，买我还要不要，我说不要了。<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
