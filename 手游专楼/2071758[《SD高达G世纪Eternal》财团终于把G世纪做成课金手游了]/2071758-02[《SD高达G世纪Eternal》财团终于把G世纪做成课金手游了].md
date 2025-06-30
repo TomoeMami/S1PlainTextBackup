@@ -6210,3 +6210,18 @@ seed d的剧情还只出一半啊
 
 海牛倒是滿突了
 
+
+*****
+
+####  czs13  
+##### 2045#       发表于 2025-6-30 12:26
+
+代孙不是说要增加关卡获得的钻吗？毛都没加啊。
+
+*****
+
+####  renhono  
+##### 2046#       发表于 2025-6-30 12:30
+
+无氪90抽3海牛1脉冲1母舰，不错不错<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
