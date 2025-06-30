@@ -6265,3 +6265,11 @@ seed d的剧情还只出一半啊
 
 感觉一年的欧气用完了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  horacio  
+##### 2051#       发表于 2025-6-30 13:01
+
+是不是上次国际服抽卡bug结果调低了，大号就不说了，开了快10个小号一个hiv都没见到…
+
