@@ -9047,3 +9047,14 @@ https://www.bilibili.com/video/BV19JgRzWERn
 人类的古老谚语——不要带着刀去参加枪战</blockquote>
 这游戏最强build就是用枪<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RainbowSealife  
+##### 3762#       发表于 2025-6-30 22:57
+
+果然，换个发型就不这么“呆板”了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+<img src="https://images.steamusercontent.com/ugc/13221043465983104291/C43F3D72B4CDA86F98F42AACD9A3A1BFA2A35C51/" height="450" id="aimg_YccTt" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10935930826522382421/9B8AD3C7268F5BBBDCBBAAAE3C20B945CB2F9045/" height="450" id="aimg_jqw22" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/11491549505807497316/88066B4A9F39BB5B806FDFEE5098718F927DD09B/" height="450" id="aimg_B0seF" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
