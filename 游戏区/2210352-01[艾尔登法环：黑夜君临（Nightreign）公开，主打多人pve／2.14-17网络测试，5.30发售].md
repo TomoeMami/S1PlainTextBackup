@@ -10651,3 +10651,19 @@ youtube.com/watch?v=U7ic30gkSlU
 
 单人起家最难应该是鸡哥了，没遗物支持的情况下攻守两难。
 
+
+*****
+
+####  modkingr  
+##### 1029#       发表于 2025-6-30 20:19
+
+<img src="https://img.stage1st.com/forum/202506/30/201858xonaf5kc7raike1i.gif" referrerpolicy="no-referrer">
+
+<strong>GIF 2025-6-30 21-17-57.gif</strong> (2.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-30 20:18 上传
+
+噢耶，鸟人魅力时刻！
+

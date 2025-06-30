@@ -8937,3 +8937,13 @@ https://www.bilibili.com/video/BV19JgRzWERn
 伊芙动作招式慢放，真是优美啊（特别是PP ...</blockquote>
 好看归好看，一堆动作都夸张得不合直觉，简直就是自带矢量喷嘴的人形机器人（好像也没错）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——啧  
+##### 3752#       发表于 2025-6-30 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024853&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-30 20:11</a>
+好看归好看，一堆动作都夸张得不合直觉，简直就是自带矢量喷嘴的人形机器人（好像也没错） ...</blockquote>
+都能甩出次元斩了，问题不大<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+

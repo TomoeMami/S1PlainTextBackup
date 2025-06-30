@@ -5176,3 +5176,13 @@ RJxX9dy</blockquote>
 虫妖0~2虹，虹卡基本就是阿莉雅或者蔷 ...</blockquote>
 只玩过对空射击回手的那个虫（
 
+
+*****
+
+####  Sliurus  
+##### 379#       发表于 2025-6-30 20:25
+
+原来专楼在手游区<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+中速皇和跳费龙合哪套好？目前有套差几张金卡的虫妖，但是打多了有点累。中速皇两张535一张644，跳费龙三张855一张652一张777，金卡也都差好几张，一万多尘
+
