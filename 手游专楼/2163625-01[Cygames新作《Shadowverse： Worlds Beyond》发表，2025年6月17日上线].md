@@ -5141,3 +5141,11 @@ RJxX9dy</blockquote>
 
 今天宝箱开出来三张emt 捅了老窝了
 
+
+*****
+
+####  zzy516232108  
+##### 376#       发表于 2025-6-30 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穷哥们还在打快龙，分数上去以后就不好冲脸了，有没有其他的少虹卡组玩
+
