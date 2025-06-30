@@ -5149,3 +5149,18 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穷哥们还在打快龙，分数上去以后就不好冲脸了，有没有其他的少虹卡组玩
 
+
+*****
+
+####  olkzdf  
+##### 377#       发表于 2025-6-30 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024431&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-6-30 18:28</a>
+
+穷哥们还在打快龙，分数上去以后就不好冲脸了，有没有其他的少虹卡组玩</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有虫妖基础么，要不就干脆加入造物，这俩算高分卡组里面最便宜的了
+
+虫妖0~2虹，虹卡基本就是阿莉雅或者蔷薇，老头好像没有高分的。打得快，操作反馈强，一般不会超过9费结束，胜率也有保障，但是累容易渣操错斩，前几费动作规划会影响到斩杀回合
+
+造物4虹起玩，llmy和奥琪丝2+2，6虹基本完全体，各补到3或者2llmy3奥琪丝加一张333，再往上也没有加虹的空间了。3种造物能应对不同场面有操作反馈，但点击量太大也有腱鞘炎风险，基本没有9费之前结束的对局，双方进化点耗空后low一把20分钟的局也是有的。环境法师主教多就不带炮提速，1234按脸拍进化回合按到10~13血这把赢面就很大，皇家内战多就带炮low
+
