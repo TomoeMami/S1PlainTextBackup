@@ -205,3 +205,15 @@ steam不是早不支持win7了吗
 下一个可能会出的武士是善/中立职业， ...</blockquote>
 我猜领主强制善，武士强制中立，后续会不会更炼金、女武神、角斗士、巫女、诗人那些看制作组心情
 
+
+*****
+
+####  mobdom  
+##### 442#       发表于 2025-7-1 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68021137&amp;ptid=2249235" target="_blank">好大一只绅士 发表于 2025-6-30 09:30</a>
+steam不是早不支持win7了吗</blockquote>
+steam只是不再提供win7支持更新，但是登陆没问题的，里面的游戏很多也支持老系统。巫术一开始也支持的，这次更新后就没了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
