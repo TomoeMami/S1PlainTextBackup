@@ -2496,3 +2496,13 @@ baldr系列那种本来就是act的除外
 
 原来开发用了五年啊（虽然实际开发时间大概没这么长），就这样还砍掉了大量内容。新作和DLC不知道要等到猴年马月了
 
+
+*****
+
+####  madcow  
+##### 225#       发表于 2025-6-30 11:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">主要N+印象里也是小作坊吧。这几年是不是主要就在吃刀男人这碗饭
+
+不知道娃娃窝这销量他们自己满意不
+
