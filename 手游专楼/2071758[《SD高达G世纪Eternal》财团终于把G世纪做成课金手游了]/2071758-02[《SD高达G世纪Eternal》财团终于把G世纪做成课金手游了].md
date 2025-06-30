@@ -6451,3 +6451,14 @@ UR支援只出了79林友德，300抽换了93林友德
 换脉冲，多个机师呢</blockquote>
 我支援机师有天鹅，凤凰和奶奶头了，上不了那么多支援机师吧，还要换飞鸟吗
 
+
+*****
+
+####  洛克萨斯  
+##### 2072#       发表于 2025-6-30 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024835&amp;ptid=2071758" target="_blank">Schw 发表于 2025-6-30 20:05</a>
+
+我支援机师有天鹅，凤凰和奶奶头了，上不了那么多支援机师吧，还要换飞鸟吗 ...</blockquote>
+多个机师总有能用的时候，你海牛多一星也就多点面板
+
