@@ -6354,3 +6354,11 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 200抽 2海牛 1脉冲 3红扎 1托勒密（00船）
 
+
+*****
+
+####  Marseille  
+##### 2062#       发表于 2025-6-30 17:41
+
+吧seed-d和逆鸭的关卡通了又抽了两发还是没有海牛<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
