@@ -32,3 +32,19 @@
 
 第一轮选角有什么讲究吗？
 
+
+*****
+
+####  moonmagian  
+##### 53#         楼主| 发表于 2025-6-30 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68023783&amp;ptid=2253199" target="_blank">DARK_HGCG 发表于 2025-6-30 16:25</a>
+玩上了
+
+这界面和背景音乐还真有心跳回忆的味道
+
+第一轮选角有什么讲究吗？ ...</blockquote>
+最好是体力强的，不然容易卡曲数C3升格升不动
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
