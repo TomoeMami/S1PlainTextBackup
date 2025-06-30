@@ -10555,3 +10555,13 @@ solo怪韧性和血量**低于联机。
 
 感觉执行到最后还是一个重出血（太刀怎么换都有出血）、重战技（可供复读的强力武器好出）的共持角色
 
+
+*****
+
+####  jy000129  
+##### 1021#       发表于 2025-6-30 08:45
+
+都冰龙遗物了，当然是直奔矿洞升紫用一辈子啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
