@@ -6379,3 +6379,26 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 还差9000钻不知道狗代能发多少 发3000的话挖穿永恒之路凑4000 再找2000拿低保<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2065#       发表于 2025-6-30 18:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">180抽出了海牛，有必要补井吗
+
+
+*****
+
+####  Abomination  
+##### 2066#       发表于 2025-6-30 19:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+300抽 4海牛 3沙煞比 3脉冲 2海盗 1天鹅 巴巴托斯 Ez8 能天使正义
+
+UR支援只出了79林友德，300抽换了93林友德
+
+之后慢慢储钻每三个月大师联盟换ur支援狗粮<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/2f3a36b8db9dafec3b3df04d06a08496/MuMu12-20250630-185647.png" referrerpolicy="no-referrer">
+
