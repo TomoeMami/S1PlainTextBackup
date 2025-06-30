@@ -9021,3 +9021,18 @@ https://www.bilibili.com/video/BV19JgRzWERn
 
 每次进都要编着色器是啥问题
 
+
+*****
+
+####  心灵的乳头  
+##### 3760#       发表于 2025-6-30 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68023169&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-30 14:42</a>
+
+休闲服也不少啊
+
+一周目4秒钟的那个白衬衫小黑裙子多好看
+
+三周目还有一个通勤装的异色，也很好看</blockquote>
+我似乎摸到点金大师的设计思路，就是上半身有能遮住屁股蛋子的衣服，下半身肯定就只有一条裤衩子<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
+
