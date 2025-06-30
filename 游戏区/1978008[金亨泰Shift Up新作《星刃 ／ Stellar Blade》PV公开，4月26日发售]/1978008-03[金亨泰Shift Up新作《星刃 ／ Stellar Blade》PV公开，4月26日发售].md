@@ -8990,3 +8990,16 @@ https://www.bilibili.com/video/BV19JgRzWERn
 一般我打小兵从来不用枪。</blockquote>
 人类的古老谚语——不要带着刀去参加枪战<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  11116等  
+##### 3757#       发表于 2025-6-30 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024961&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-6-30 20:38</a>
+
+找了个视频看了下 原来要用枪 囧。
+
+一般我打小兵从来不用枪。</blockquote>
+打到后面你会发现枪比近战好用，尤其是打盾兵和血牛的时候
+
