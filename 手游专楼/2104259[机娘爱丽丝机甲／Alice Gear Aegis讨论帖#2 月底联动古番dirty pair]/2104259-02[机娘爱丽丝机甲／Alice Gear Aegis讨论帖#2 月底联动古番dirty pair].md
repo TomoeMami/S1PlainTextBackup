@@ -46,3 +46,15 @@
 
 我是老瞧见一个房主，开在easy写着做日常，人进去就切到要击。
 
+
+*****
+
+####  冰风血羽  
+##### 1517#       发表于 2025-7-1 04:13
+
+我也遇到过这种，不过都会从上到下打完
+
+顺便麻驱理这脚技能光束集中一击应该已经超越学姐的天基炮成为最速杀蛇技能了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
