@@ -9003,3 +9003,13 @@ https://www.bilibili.com/video/BV19JgRzWERn
 一般我打小兵从来不用枪。</blockquote>
 打到后面你会发现枪比近战好用，尤其是打盾兵和血牛的时候
 
+
+*****
+
+####  Andariel  
+##### 3758#       发表于 2025-6-30 21:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2周目把妮姬和尼尔的服装发型啥的换完了以后3周目怎么地图上都不出埃米尔和红莲了......
+
+完全看不到联动角色了呀.........
+
