@@ -10602,3 +10602,15 @@ solo怪韧性和血量**低于联机。
 
 最低似乎是20%左右上来的，大逆袭
 
+
+*****
+
+####  usodakedo  
+##### 1025#       发表于 2025-6-30 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016799&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-29 03:55</a>
+たこシあ....</blockquote>
+没太关注过荒野的宣发，这个梗是不是出自荒野那？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
