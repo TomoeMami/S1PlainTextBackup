@@ -109,3 +109,11 @@
 
 好友里的氪佬好像也没抽，以往活动日常报他满破五星氪金礼装的，这次只挂了满破三星礼装出来
 
+
+*****
+
+####  khxooo  
+##### 47166#       发表于 2025-6-30 09:04
+
+14呼符+一个10连，这个卡池全部图鉴都开了，安心等学姐了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
