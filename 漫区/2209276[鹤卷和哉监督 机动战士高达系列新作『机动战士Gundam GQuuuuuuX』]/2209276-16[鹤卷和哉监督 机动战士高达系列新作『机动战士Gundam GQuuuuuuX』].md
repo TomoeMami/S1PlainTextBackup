@@ -11207,3 +11207,209 @@ what if 最大問題就是在原作同一時間點的角色會否出場，他們
 79元组性能落后，你直接让海牛出来不就完了，代哥怎么没按住鹤卷，顺便还能再卖波胶 ...</blockquote>
 庵野秀明喜欢元祖，就是为了这点醋
 
+
+*****
+
+####  Sliurus  
+##### 22969#       发表于 2025-6-29 20:53
+
+[https://x.com/centu_7u/status/19 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/centu_7u/status/1938356112291697114?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202506/29/205304zuz0dr048g06eq4s.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8649.JPG</strong> (323.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 20:53 上传
+
+[https://x.com/suisui_dm/status/1 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/suisui_dm/status/1939250231729852908?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202506/29/205303njreyvvu4qjqy40j.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8636.JPG</strong> (522.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 20:53 上传
+
+[https://x.com/centu_7u/status/19 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/centu_7u/status/1939006185216319807?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202506/29/205305ti86r7kf76e76fk5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8650.JPG</strong> (250.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-29 20:53 上传
+
+*****
+
+####  eilot  
+##### 22970#       发表于 2025-6-29 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018985&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-6-29 18:03</a>
+
+这我真不好说，除非他们后日谈再找补一下，不然十二集结尾随便放一张骡子和芙劳在一起的图片就能暗示gqux ...</blockquote>
+劇情真是太短了
+
+就好像龍珠XV/SDBH當中那些短編，各種IF的可能世界觀的其中一幕，
+
+之後再擴大來寫劇本
+
+美漫那些也經常搞what if 系列，但當中大多都是短編來，人氣高如暮狼就擴大世界觀不停補充細節
+
+what if 最大問題就是在原作同一時間點的角色會否出場，他們有沒另一種背景身份出場(創破中那些背景板人物)，或是否已領了便當
+
+會否因觀眾過份期待非主角出場而奪主，就如大家現在都懷疑騾子有沒機會在qux中出場，他是否就是修史的同位體或是IF兒子等
+
+*****
+
+####  Steel.Haze  
+##### 22971#       发表于 2025-6-30 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016860&amp;ptid=2209276" target="_blank">蒸汽投石BuBu車 发表于 2025-6-29 06:16</a>
+
+女仆螺原本想烧一个房子，女仆鸭直接全烧了，然后脱出</blockquote>
+鸭女仆和骡女仆还跟着拉拉吧，未来在夏亚培养下会是可怕的角色呢。
+
+*****
+
+####  Steel.Haze  
+##### 22972#       发表于 2025-6-30 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018791&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-6-29 17:01</a>
+
+如果能在什么访谈和后日谈把拉拉修改世界的范围&amp;限制讲清楚一点的话，我觉得对世界观和故事表达都是一件好 ...</blockquote>
+我觉得拉拉的调整作用时间范围是。她遇到夏亚到夏亚死的这段时间。超过这个时间范围，她无法调整。不然直接改变戴肯的命运，顺带让扎比家聚餐时死于煤气爆炸就完事了。
+
+*****
+
+####  wing130083  
+##### 22973#       发表于 2025-6-30 09:31
+
+ 本帖最后由 wing130083 于 2025-6-30 09:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68016860&amp;ptid=2209276" target="_blank">蒸汽投石BuBu車 发表于 2025-6-29 06:16</a>
+
+女仆螺原本想烧一个房子，女仆鸭直接全烧了，然后脱出</blockquote>
+羊拉这种强NT想找个地方过日子根本没多难
+
+待大宅里只是为了刻舟求剑等夏亚，没了就在原地一边重建一边等
+
+至于大宅那些营生，虽然她并不喜欢但和等夏亚比来说无关紧要
+
+我甚至怀疑夏亚晚来两年大宅能恢复旧观，羊拉亲自当老板（
+
+*****
+
+####  bbjajdd  
+##### 22974#       发表于 2025-6-30 11:08
+
+<blockquote>Steel.Haze 发表于 2025-6-30 02:26
+我觉得拉拉的调整作用时间范围是。她遇到夏亚到夏亚死的这段时间。超过这个时间范围，她无法调整。不然直 ...</blockquote>
+拉拉遇到鸭子是鸭子试图抢高达之后了
+
+*****
+
+####  Steel.Haze  
+##### 22975#       发表于 2025-6-30 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68021765&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-6-30 11:08</a>
+
+拉拉遇到鸭子是鸭子试图抢高达之后了</blockquote>
+或者其实算是以鸭子为轴心，鸭子步入战场开始，因为其步入战局是原先碰到拉拉的必然条件。也就是鸭子具备接触拉拉可能性的时间点开始。不然确实是直接让早早扎比家聚餐死于食物中毒就完事了。戴肯和其它独立派加上雷比尔肯定不至于闹到世界大战，夏亚也是个少爷，就不会碰到骡子和上战场，最根源的解决方式。
+
+*****
+
+####  西洛克  
+##### 22976#       发表于 2025-6-30 12:19
+
+<blockquote>Steel.Haze 发表于 2025-6-30 11:27
+或者其实算是以鸭子为轴心，鸭子步入战场开始，因为其步入战局是原先碰到拉拉的必然条件。也就是鸭子具备 ...</blockquote>
+夏亚被流放到地球的时候直接让紫色老太婆不去注意这个人就行了，拖个半年联邦投降，直接和拉拉在地球生活了。
+
+*****
+
+####  28201  
+##### 22977#       发表于 2025-6-30 13:02
+
+压着骡不给出场确实是观感很差的原因之一
+也不是完全不能理解吧，毕竟骡出来就没主角团和新加的这些配角还有绿叔叔这些人什么事了
+但原作主角直接给删了，所有人舔鸭子，还是很有喜剧效果的
+
+*****
+
+####  yichengyu  
+##### 22978#       发表于 2025-6-30 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68017907&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-29 12:26</a>
+
+其实ucif部分才是这帮人想做的，但是他们想做的这部分内容太少了顶多34集的量，所以为了填充剧本加了三人 ...</blockquote>
+没错，按我的看法前六集删掉或者合成一级就够讲了，后面删掉三个小傻子也不妨碍看ucif，实际上做成剧场版就很好，直接搞个什么if企划让他们飞着玩就是了
+
+*****
+
+####  Steel.Haze  
+##### 22979#       发表于 2025-6-30 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68022536&amp;ptid=2209276" target="_blank">28201 发表于 2025-6-30 13:02</a>
+
+压着骡不给出场确实是观感很差的原因之一
+
+也不是完全不能理解吧，毕竟骡出来就没主角团和新加的这些配角还 ...</blockquote>
+其实如果结尾给个骡子和他爹在试验室里面研发哈罗的PPT镜头都挺好的。
+
+*****
+
+####  ryanghj  
+##### 22980#       发表于 2025-6-30 20:10
+
+ 本帖最后由 ryanghj 于 2025-6-30 20:12 编辑 
+
+骡子不出现是故意的（骡爹都出现了），而且注意，最后一集的cv表里古谷彻 池田秀一 潘慧子是没有角色名的，也就是说彻底消除了阿姆罗的存在，甚至在cv表里都没有阿姆罗<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 22981#       发表于 2025-6-30 20:13
+
+至今没搞清楚机魂骡子到底是93骡还是79的 应该是正史的吧？还是玫瑰世界？
+
+按照分镜泄露，也可能是玫瑰骡.....这群老害们故意避开正史估计也是怕出什么BUG
+
+*****
+
+####  qixinno2  
+##### 22982#       发表于 2025-6-30 20:27
+
+肯定是正史的啊 毕竟说了不想看到拉拉被高达杀了
+
+*****
+
+####  ryanghj  
+##### 22983#       发表于 2025-6-30 20:32
+
+玫瑰螺没有手刃拉拉，虽然恩底弥翁说的话也可以解释成是看到了修司杀了无数次拉拉才说的，但是正史骡的可能性更大
+
+*****
+
+####  emmerMK2  
+##### 22984#       发表于 2025-6-30 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018085&amp;ptid=2209276" target="_blank">少年游不游 发表于 2025-6-29 13:10</a>
+
+79元组性能落后，你直接让海牛出来不就完了，代哥怎么没按住鹤卷，顺便还能再卖波胶 ...</blockquote>
+庵野秀明喜欢元祖，就是为了这点醋
+
+*****
+
+####  太极八爪鱼  
+##### 22985#       发表于 2025-7-1 06:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68018176&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-28 21:37</a>
+
+这个其实很好理解
+
+修司其实就是异格阿姆罗，最后一集分镜里本来0079高清复刻部分是有阿姆罗说话的，给删 ...</blockquote>
+玫瑰拉拉的世界应该拉拉没见过高达驾驶员，要不然按原作的熟悉程度她应该直接说名字而不是说夏亚总被白色高达<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
