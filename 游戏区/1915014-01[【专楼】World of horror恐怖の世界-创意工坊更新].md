@@ -5315,3 +5315,16 @@ NS版不知道为啥发行不把新补丁打上去，搞不懂
 
 本来夏促想入，结果一看近期评论，口碑怎么变成这样了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tnsbilws  
+##### 314#         楼主| 发表于 2025-6-30 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68023118&amp;ptid=1915014" target="_blank">Dgnic_ 发表于 2025-6-30 14:34</a>
+
+本来夏促想入，结果一看近期评论，口碑怎么变成这样了</blockquote>
+作者貌似回去干牙医，更新一直鸽到现在了，而且好像不喜欢网络交流所以长期零消息
+
+找发行问了问他本身没什么事
+

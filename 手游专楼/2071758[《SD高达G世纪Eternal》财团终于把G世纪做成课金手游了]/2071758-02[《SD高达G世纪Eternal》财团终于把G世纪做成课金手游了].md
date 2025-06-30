@@ -6539,3 +6539,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 话说Z之前的都扔进元祖标签是不错，怎么一堆乱七八糟的机都扔进逆鸭了
 
+
+*****
+
+####  白猫MKII  
+##### 2081#       发表于 2025-6-30 22:32
+
+10连一个海牛一个自由，任务完成可以等下一个池子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
