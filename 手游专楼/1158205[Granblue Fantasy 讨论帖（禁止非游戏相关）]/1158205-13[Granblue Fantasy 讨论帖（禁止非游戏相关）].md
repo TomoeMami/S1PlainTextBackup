@@ -17,3 +17,13 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  shinitakute  
+##### 18242#       发表于 2025-6-30 15:45
+
+黑卡换了芙劳
+
+反正上次150换艾蕾让我觉得很后悔……
+
