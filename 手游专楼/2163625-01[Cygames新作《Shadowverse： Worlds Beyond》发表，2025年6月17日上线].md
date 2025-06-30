@@ -5219,3 +5219,16 @@ RJxX9dy</blockquote>
 
 不过应该下周就新卡包了吧，不如忍一忍
 
+
+*****
+
+####  Sliurus  
+##### 382#       发表于 2025-6-30 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68024984&amp;ptid=2163625" target="_blank">duraa 发表于 2025-6-30 20:42</a>
+
+中速皇，除了控教应该没啥特别劣的对局，控教也基本被打没了，基本都看自己抽的如何
+
+8费有冠军连招6+5， ...</blockquote>
+有道理，先虫妖和穷鬼版卡组混混算了
+
