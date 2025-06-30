@@ -6362,3 +6362,20 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 吧seed-d和逆鸭的关卡通了又抽了两发还是没有海牛<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 2063#       发表于 2025-6-30 17:55
+
+海牛没抽到，脉冲没抽到，歪了个被脉冲捅的<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clauderayvane  
+##### 2064#       发表于 2025-6-30 17:56
+
+妈的被你们这群海豹骗进池子杀 170抽一个海牛都没 3个沙扎比1风灵1凤凰2脉冲 
+
+还差9000钻不知道狗代能发多少 发3000的话挖穿永恒之路凑4000 再找2000拿低保<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
