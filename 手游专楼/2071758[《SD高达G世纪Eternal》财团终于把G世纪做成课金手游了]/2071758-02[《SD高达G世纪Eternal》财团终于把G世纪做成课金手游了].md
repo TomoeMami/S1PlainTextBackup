@@ -6338,3 +6338,11 @@ BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/ima
 
 笑死，吉拉德卡是防御机体，被火神炮打包的纸糊装甲<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，什么地狱笑话
 
+
+*****
+
+####  demon6666  
+##### 2060#       发表于 2025-6-30 17:00
+
+120抽就两个林有德，想死<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
