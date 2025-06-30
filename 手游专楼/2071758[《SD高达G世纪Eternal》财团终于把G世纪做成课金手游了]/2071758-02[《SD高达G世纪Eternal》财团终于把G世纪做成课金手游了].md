@@ -6555,3 +6555,13 @@ UR支援只出了79林友德，300抽换了93林友德
 
 大保底79林有得和93有得都满破还是一牛不染<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  棍机凹升龙  
+##### 2083#       发表于 2025-6-30 23:28
+
+牛和沙放beyondthetime能不能直接放中段<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
