@@ -6509,3 +6509,18 @@ UR支援只出了79林友德，300抽换了93林友德
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2078#       发表于 2025-6-30 21:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么能更换BGM只有SD原创曲
+
+*****
+
+####  AminGly  
+##### 2079#       发表于 2025-6-30 21:25
+
+我输了 700抽只有一搜船， 输了 彻底输了
+
