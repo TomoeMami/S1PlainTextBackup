@@ -10614,3 +10614,18 @@ solo怪韧性和血量**低于联机。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  modkingr  
+##### 1026#       发表于 2025-6-30 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68022307&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-30 12:21</a>
+
+没太关注过荒野的宣发，这个梗是不是出自荒野那？
+
+—— 来自 S1Fun</blockquote>
+youtube.com/watch?v=U7ic30gkSlU
+
+解说
+
