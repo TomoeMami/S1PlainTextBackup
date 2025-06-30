@@ -6297,3 +6297,21 @@ seed d的剧情还只出一半啊
 
 50发一个独角兽一个沙扎比…犹豫要不要继续
 
+
+*****
+
+####  jackyhuang  
+##### 2055#       发表于 2025-6-30 13:52
+
+商店进不去了，氪金氪爆了？
+日区
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  里村紅葉  
+##### 2056#       发表于 2025-6-30 13:53
+
+BYD开发的命运和海牛都是盾机<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
