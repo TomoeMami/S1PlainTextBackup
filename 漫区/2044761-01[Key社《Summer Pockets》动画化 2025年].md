@@ -40,3 +40,13 @@ Megami Magazine
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  terminator1990  
+##### 183#       发表于 2025-7-1 11:22
+
+这游戏里明确暗示打过炮的有哪几位？
+
+—— 来自 HUAWEI PCT-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

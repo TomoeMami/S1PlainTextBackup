@@ -669,3 +669,16 @@
 去年小雪的卖的就不太好。
 东大妈：卖人间体的话我缺的毛绒玩具销量谁给我补啊
 
+
+*****
+
+####  himfsz  
+##### 1129#       发表于 2025-7-1 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68027366&amp;ptid=2208663" target="_blank">凡人 发表于 2025-7-1 11:14</a>
+
+去年小雪的卖的就不太好。
+
+东大妈：卖人间体的话我缺的毛绒玩具销量谁给我补啊 ...</blockquote>
+又不是不能一起卖，这种几乎零成本的东西
+

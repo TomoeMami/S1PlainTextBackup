@@ -6573,3 +6573,19 @@ UR支援只出了79林友德，300抽换了93林友德
 
 <img src="https://static.stage1st.com/image/smiley/face2017/228.gif" referrerpolicy="no-referrer">代孙真不打算以多地区登顶的名义再送一次啊？
 
+
+*****
+
+####  ドロロ  
+##### 2085#       发表于 2025-7-1 11:20
+
+又送了！但是还是emmmmm<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  arthes  
+##### 2086#       发表于 2025-7-1 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知不觉居然攒够一井了，感觉半周年前还能攒一井，代哥慷慨得有点陌生了
+
