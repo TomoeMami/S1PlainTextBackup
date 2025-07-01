@@ -9283,3 +9283,19 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 —— 来自 vivo V2227A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黒長直姫  
+##### 3782#       发表于 2025-7-2 06:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68025082&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-6-30 21:09</a>
+2周目把妮姬和尼尔的服装发型啥的换完了以后3周目怎么地图上都不出埃米尔和红莲了......
+
+完全看不到联动角 ...</blockquote>
+你是一点演出都不看吗？你换完了都会跟你说该走了告别啊？
+
+红莲多一句时机到了还会再见，然后进boss挑战打完了还要再跟你告别一次呢
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
