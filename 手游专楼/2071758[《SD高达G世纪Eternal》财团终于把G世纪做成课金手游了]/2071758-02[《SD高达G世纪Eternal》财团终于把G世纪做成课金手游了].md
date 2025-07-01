@@ -6671,3 +6671,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 可能无课没钱装赛克缪了吧
 
+
+*****
+
+####  12481632  
+##### 2097#       发表于 2025-7-1 18:55
+
+cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，神奇吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
