@@ -5240,3 +5240,11 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪退和满费不给出牌已经断了我几次连胜，有点招笑了，甚至我不知道这事应该问kmr还是网易
 
+
+*****
+
+####  辞冬  
+##### 384#       发表于 2025-7-1 17:15
+
+我手机下皇家866有几率闪退<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

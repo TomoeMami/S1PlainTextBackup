@@ -6655,3 +6655,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">UR沙扎比是新人类专用，SSR沙扎比就不是，这合理吗
 
+
+*****
+
+####  希望之花  
+##### 2095#       发表于 2025-7-1 17:17
+
+93骡子没来，79骡子来了俩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
