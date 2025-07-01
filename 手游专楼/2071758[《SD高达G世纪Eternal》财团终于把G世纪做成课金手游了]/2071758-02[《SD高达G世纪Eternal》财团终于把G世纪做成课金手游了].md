@@ -6687,3 +6687,27 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">万代的刀法那真的是很精准呢
 
+
+*****
+
+####  rockroxas  
+##### 2099#       发表于 2025-7-1 20:49
+
+话说回来
+
+之前指望种命开发图拯救下ex3的扎夫特成就
+
+现在看来是拯救不了吧（
+
+难不成奥布开发图整个流星无正还带扎夫特词条？不过半年之内能出下半吗（
+
+
+*****
+
+####  无念  
+##### 2100#       发表于 2025-7-1 20:55
+
+吃了个井，0海牛，1鸟，三个有德，1总帅，1凤凰<img src="https://static.stage1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
