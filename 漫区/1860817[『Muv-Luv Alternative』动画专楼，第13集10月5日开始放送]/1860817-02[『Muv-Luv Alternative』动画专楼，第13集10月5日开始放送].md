@@ -88,3 +88,25 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 与抹布拉布年份相近的gal，[v.g.neo](https://stage1st.com/2b/thread-2253000-0-1.html)，里面的中华娘设定也挺内啥的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 2343#       发表于 2025-7-1 23:30
+
+躲猫猫运营的，那顺便出r18版吧，反正原作也是黄油
+
+*****
+
+####  jojog  
+##### 2344#       发表于 2025-7-1 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031132&amp;ptid=1860817" target="_blank">obiy 发表于 2025-7-1 23:19</a>
+
+源源不断根本杀不完的碳基“机器人”，究竟是对工业克苏鲁的恐惧，还是对发展中人口大国的恐惧呢
+
+与抹布 ...</blockquote>
+我觉得有其时代局限性吧
+
+毕竟那个年代我国08奥运前自己也没人认为自己是工业克苏鲁……
+

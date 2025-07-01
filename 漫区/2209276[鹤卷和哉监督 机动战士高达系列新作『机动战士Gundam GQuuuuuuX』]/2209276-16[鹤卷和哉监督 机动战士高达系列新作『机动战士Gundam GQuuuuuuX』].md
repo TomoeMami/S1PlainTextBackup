@@ -11472,3 +11472,34 @@ https://x.com/be_ne_69/status/1939802596522463683
 
 星期2最让人快乐的动画还会有第二部吗
 
+
+*****
+
+####  岸浪白野  
+##### 22989#       发表于 2025-7-1 23:30
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“皆様と共に過ごせたこの半年は一生忘れません。 ジークアクスをご覧いただいた皆様へ、心より感謝を申し上げます。 主・プロデューサー　杉谷勇樹 添付の画像は放送尺の都合で泣く泣くカットされてしまいましたが、 #松原秀典 さんよりご提案いただいたクライマックスシーンの大ラフです。 [url]https://t.co/tMyiaDdLDJ](https://x.com/G_GQuuuuuuX/status/1940070139421954291)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202507/01/233035i6v9uzunbx31wqhm.png" referrerpolicy="no-referrer">
+
+<strong>20250701233031.png</strong> (167.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:30 上传
+
+<img src="https://img.stage1st.com/forum/202507/01/233013vguygfvn89fzyfcy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (611.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:30 上传
+
+*****
+
+####  aptx8285144  
+##### 22990#       发表于 2025-7-1 23:30
+
+以前我就有这个感觉了，跨克斯这个问题更严重，就是打着打着<strong>突然开聊天室“很平静地聊天</strong>”是很破坏打戏气氛的，而且跨克斯本来打戏分镜就不好，本来应该坚持边打边吵（或者温和点是谈话）
+

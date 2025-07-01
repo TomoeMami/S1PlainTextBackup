@@ -8526,3 +8526,23 @@ TV动画《末日后酒店》宣布和某部神秘作品联动合作。
 
 （因为设置了粉丝可见所以就不直接贴图和文字了）
 
+
+*****
+
+####  NBXX  
+##### 728#       发表于 2025-7-1 23:31
+
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrY2hj_rH85EdIaui2l1aznSyM5_JOAAICFQAChwABIFfaxgPQSZTexjYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrZ2hj_rZXPp6X-GBGB_MBVEtkCiUeAAIGFQAChwABIFenFXWXZr2vQTYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrZWhj_rKfJX5rKBlLCivLDwZ5lCnrAAIEFQAChwABIFcybk0ptSkKkDYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrZGhj_rG_02xNApXmT5DFraMaRvJLAAIDFQAChwABIFeOVdPPz8YmujYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIraGhj_rb-gy6hiu2ira_Dm62HgoFXAAIHFQAChwABIFckjuQIWCd_-zYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrYmhj_rFH9aqkjk-UYSMc9b0ZnFgMAAIBFQAChwABIFfvy7-CYFmVlzYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIrZmhj_rKI3CJ7qvI6rA1C4j9ULNkkAAIFFQAChwABIFfDPvKVePyZBjYE.jpg" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷす」第12话 汉化
+
+回看之前的翻译还是有很多不满意的部分，有时间重新整理一下再发合集文件。
+
+（如果能买到单行本看看有无其他附加内容就好了）
+
