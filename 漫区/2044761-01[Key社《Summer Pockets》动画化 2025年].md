@@ -71,3 +71,16 @@ Megami Magazine
 
 真野战了吗,那苍太棒了,谁会不喜欢可爱又好色的妹子呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南風森愛恋  
+##### 186#       发表于 2025-7-1 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68027425&amp;ptid=2044761" target="_blank">terminator1990 发表于 2025-7-1 11:22</a>
+
+这游戏里明确暗示打过炮的有哪几位？
+
+—— 来自 HUAWEI PCT-AL10, Android 10, 鹅球 v3.5.99 ...</blockquote>
+除了真路线白羽妊娠生女之外，明确有一夜过去剧情的只有苍
+
