@@ -55,3 +55,11 @@ Muv-Luv ガールズガーデン，事先登录开始了。
 
 还是会有萝卜的，就是藏着没公开。
 
+
+*****
+
+####  yone0000  
+##### 2340#       发表于 2025-7-1 22:56
+
+PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
