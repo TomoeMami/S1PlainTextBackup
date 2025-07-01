@@ -195,3 +195,17 @@
 
 —— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  moonmagian  
+##### 66#         楼主| 发表于 2025-7-1 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68026731&amp;ptid=2253199" target="_blank">whzfjd 发表于 2025-7-1 09:44</a>
+这游戏能不能玩出帕鲁那种kuso感，邪恶绩优主义社长折腾得小偶像整天牡蛎的那种，具体来说就是有没有角色对 ...</blockquote>
+要是献祭一期生的玩法的话可以很过分<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这游戏这方面做得非常细，上不了武道馆的话还能让你决定要不要开告别live，根据场地大小和是否成功也会有剧情差分
+虽然可以这么玩，但文笔太好了，会让人觉得心里堵得慌，我玩崩盘就选择开新档了
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
