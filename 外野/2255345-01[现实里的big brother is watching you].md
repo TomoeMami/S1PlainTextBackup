@@ -355,3 +355,11 @@
 
 按前司在做的项目 这种效果已经是实现自动化 部署在某些学校了
 
+
+*****
+
+####  炽十二翼  
+##### 42#       发表于 2025-7-1 23:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">怪不得这几年一直有小孩跳楼的新闻，现在家长都这么疯魔了吗
+
