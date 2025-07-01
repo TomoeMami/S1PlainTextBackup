@@ -125,3 +125,11 @@
 
 这俩但凡不是姛，都可能会有动力抽一抽。白瞎了挺好看的人设风格。
 
+
+*****
+
+####  khxooo  
+##### 47168#       发表于 2025-7-1 18:13
+
+MLGB的，第一次打90++要用到3令咒，还是大号要用令咒，小号反而不需要<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
