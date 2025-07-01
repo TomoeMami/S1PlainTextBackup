@@ -63,3 +63,13 @@ Muv-Luv ガールズガーデン，事先登录开始了。
 
 PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  obiy  
+##### 2341#       发表于 2025-7-1 23:13
+
+没了内斗键政血腥味儿，还是抹布拉布？
+
+至少2020年起再也没人黑“人类都灭顶之灾了还在内斗”了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -209,3 +209,13 @@
 
 —— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARK_HGCG  
+##### 67#       发表于 2025-7-1 23:05
+
+<blockquote>whzfjd 发表于 2025-7-1 09:44
+这游戏能不能玩出帕鲁那种kuso感，邪恶绩优主义社长折腾得小偶像整天牡蛎的那种，具体来说就是有没有角色对 ...</blockquote>
+整天牡蛎 是什么
+
