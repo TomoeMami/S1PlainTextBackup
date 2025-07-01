@@ -11413,3 +11413,62 @@ what if 最大問題就是在原作同一時間點的角色會否出場，他們
 修司其实就是异格阿姆罗，最后一集分镜里本来0079高清复刻部分是有阿姆罗说话的，给删 ...</blockquote>
 玫瑰拉拉的世界应该拉拉没见过高达驾驶员，要不然按原作的熟悉程度她应该直接说名字而不是说夏亚总被白色高达<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 22986#       发表于 2025-7-1 23:20
+
+https://x.com/be_ne_69/status/1939802596522463683
+
+<img src="https://img.stage1st.com/forum/202507/01/231928c0x2h60h3ewetl7h.jpg" referrerpolicy="no-referrer">
+
+<strong>GuuQLYeboAEu24F.jpg</strong> (282.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:19 上传
+
+[https://x.com/uonathereminvox/st ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/uonathereminvox/status/1939655966183784919?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202507/01/231903z2weeo99j8h4jj9d.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8713.JPG</strong> (112.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:19 上传
+
+[https://x.com/uonathereminvox/st ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/uonathereminvox/status/1939655966183784919?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202507/01/231904e55twjh8vcc1isch.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8717.JPG</strong> (190.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:19 上传
+
+自适应的喵安厨
+
+
+*****
+
+####  保真花生  
+##### 22987#       发表于 2025-7-1 23:23
+
+<img src="https://img.stage1st.com/forum/202507/01/232338kqm7ksqb9zqgsa5n.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG.jpg</strong> (133.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-1 23:23 上传
+
+*****
+
+####  保真花生  
+##### 22988#       发表于 2025-7-1 23:24
+
+星期2最让人快乐的动画还会有第二部吗
+

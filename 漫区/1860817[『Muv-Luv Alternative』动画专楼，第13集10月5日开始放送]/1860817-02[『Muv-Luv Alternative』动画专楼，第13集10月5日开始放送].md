@@ -73,3 +73,18 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 至少2020年起再也没人黑“人类都灭顶之灾了还在内斗”了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  obiy  
+##### 2342#       发表于 2025-7-1 23:19
+
+ 本帖最后由 obiy 于 2025-7-1 23:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234255&amp;ptid=1860817" target="_blank">jojog 发表于 2025-1-21 00:11</a>
+其实看muvluv这样说实话总有一个想法
+
+如果当年吉冈宗纪大笔一挥把中国相关的设定给改了，然后与时俱进直接 ...</blockquote>
+源源不断根本杀不完的碳基“机器人”，究竟是对工业克苏鲁的恐惧，还是对发展中人口大国的恐惧呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+与抹布拉布年份相近的gal，[v.g.neo](https://stage1st.com/2b/thread-2253000-0-1.html)，里面的中华娘设定也挺内啥的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
