@@ -6589,3 +6589,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知不觉居然攒够一井了，感觉半周年前还能攒一井，代哥慷慨得有点陌生了
 
+
+*****
+
+####  demon6666  
+##### 2087#       发表于 2025-7-1 11:49
+
+160抽0海牛，0脉冲，挖不出一点矿了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
