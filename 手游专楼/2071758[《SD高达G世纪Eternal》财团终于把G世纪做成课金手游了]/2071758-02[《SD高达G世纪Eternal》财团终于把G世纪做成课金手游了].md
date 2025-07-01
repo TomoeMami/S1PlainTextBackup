@@ -6613,3 +6613,19 @@ UR支援只出了79林友德，300抽换了93林友德
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">120 俩海牛 一能天使 一海盗
 
+
+*****
+
+####  光辉传递者  
+##### 2090#       发表于 2025-7-1 16:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着看大号能不能拯救一下，结果都160了一只海牛没见着，常规UR好几只，鸟2破93有德1破，人都麻了。
+
+
+*****
+
+####  12481632  
+##### 2091#       发表于 2025-7-1 16:11
+
+这波抽完，感觉高/满破沙扎比的持有量会大幅提高
+
