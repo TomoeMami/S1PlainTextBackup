@@ -640,3 +640,13 @@
 
 梅洛伦好惨，明明应该是绑死的黑白配色，对方的cp却绑死了小歌，梅洛伦最好也只能做第二，这话更是化身变身插件。。。以噗哩伦这个单纯的性格后面也很难扭转对小歌的箭头了吧
 
+
+*****
+
+####  modedd  
+##### 1126#       发表于 2025-7-1 10:38
+
+<img src="https://p.sda1.dev/25/5d2b2e28ad976d765d0e7696273fb122/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
