@@ -166,3 +166,32 @@
 
 —— 来自 Google Pixel 8, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  moonmagian  
+##### 64#         楼主| 发表于 2025-7-1 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68025627&amp;ptid=2253199" target="_blank">DARK_HGCG 发表于 2025-6-30 23:22</a>
+打了一周
+
+一开始不知道怎么打，一期生上不了武道馆直接解散
+
+二期生上了武道馆但是不达标</blockquote>
+好结局还是要三组都武道馆，武道馆的话基本能上就很难失败了，注意条件是5曲+至少3曲团体曲
+体力虽然是跟着其他属性涨的，但是成长倍率和设施以及偶像本身挂钩，一期生选体力成长强才能确保不卡曲数
+返场条件不明，但至少是要有两首大成功，不用过分强求
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  moonmagian  
+##### 65#         楼主| 发表于 2025-7-1 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68029486&amp;ptid=2253199" target="_blank">平昭·南宫司卿 发表于 2025-7-1 17:41</a>
+这个当时确实还挺感兴趣，楼主这么介绍不得不玩了，想问下游戏便利性设计上咋样 ...</blockquote>
+除了没有剧情鉴赏模式各方面都相当舒服了，玩起来很顺畅
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
