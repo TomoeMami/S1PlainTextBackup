@@ -133,3 +133,11 @@
 
 MLGB的，第一次打90++要用到3令咒，还是大号要用令咒，小号反而不需要<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47169#       发表于 2025-7-1 19:26
+
+90++打3T需要拉满诺克亚蕾，唉，拉就拉吧
+
