@@ -237,3 +237,17 @@
 日本第三方唯一独占首发ns2游戏， 可惜没中文</blockquote>
 首周销量说是不到5千，这唯一独占首发是不是没有销量buff
 
+
+*****
+
+####  穿越护城河  
+##### 70#       发表于 2025-7-2 05:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031356&amp;ptid=2253199" target="_blank">Ironman_mk5 发表于 2025-7-2 00:21</a>
+首周销量说是不到5千，这唯一独占首发是不是没有销量buff</blockquote>
+销量应该有长尾效应
+
+它在eshop的排行也从10名上升到6名了
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
