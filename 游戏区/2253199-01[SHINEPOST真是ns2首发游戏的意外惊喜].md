@@ -106,3 +106,17 @@
 
 这游戏能不能玩出帕鲁那种kuso感，邪恶绩优主义社长折腾得小偶像整天牡蛎的那种，具体来说就是有没有角色对极端策略的负面反应
 
+
+*****
+
+####  穿越护城河  
+##### 59#       发表于 2025-7-1 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68026731&amp;ptid=2253199" target="_blank">whzfjd 发表于 2025-7-1 09:44</a>
+这游戏能不能玩出帕鲁那种kuso感，邪恶绩优主义社长折腾得小偶像整天牡蛎的那种，具体来说就是有没有角色对 ...</blockquote>
+出负面效果就得赶紧灭火，免得组合出连锁反应
+
+这游戏的基调就在序章了
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
