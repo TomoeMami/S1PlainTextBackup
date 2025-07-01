@@ -6629,3 +6629,13 @@ UR支援只出了79林友德，300抽换了93林友德
 
 这波抽完，感觉高/满破沙扎比的持有量会大幅提高
 
+
+*****
+
+####  jackyhuang  
+##### 2092#       发表于 2025-7-1 16:39
+
+这次两个主线开发是觉得玩家们开发素材太多了吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
