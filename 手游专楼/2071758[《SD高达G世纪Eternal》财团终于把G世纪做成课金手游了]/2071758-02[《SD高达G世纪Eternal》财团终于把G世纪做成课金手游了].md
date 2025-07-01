@@ -6711,3 +6711,13 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  希望之花  
+##### 2101#       发表于 2025-7-2 01:37
+
+可恶，为什么这个连3d建模都没有对着图片素材强化升级，战斗动画是播片的东西能次次登榜啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年山东敢达你升级机体它还会蹦跶一下
+
