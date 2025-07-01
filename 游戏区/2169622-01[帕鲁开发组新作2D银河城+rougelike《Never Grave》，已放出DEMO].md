@@ -1057,3 +1057,13 @@ https://twitter.com/NeverGrave_JP/status/1751873936198115395
 
 demo之后憋了一年半，准备出正式版1.0了
 
+
+*****
+
+####  jy000129  
+##### 112#       发表于 2025-7-1 16:31
+
+我记得Demo观感很一般
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
