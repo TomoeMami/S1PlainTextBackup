@@ -6679,3 +6679,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，神奇吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2098#       发表于 2025-7-1 19:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">万代的刀法那真的是很精准呢
+
