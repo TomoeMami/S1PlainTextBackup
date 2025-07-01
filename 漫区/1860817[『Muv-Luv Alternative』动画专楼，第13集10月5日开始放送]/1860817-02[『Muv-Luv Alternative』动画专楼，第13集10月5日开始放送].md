@@ -125,3 +125,13 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 （甚至万岁冲锋这个词的词源也很有意思<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  blackll7  
+##### 2346#       发表于 2025-7-2 00:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">kms的游戏虽然live2d和画工很强，但是xp太正常向了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
