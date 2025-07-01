@@ -9299,3 +9299,16 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Andariel  
+##### 3783#       发表于 2025-7-2 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031739&amp;ptid=1978008" target="_blank">黒長直姫 发表于 2025-7-2 06:59</a>
+你是一点演出都不看吗？你换完了都会跟你说该走了告别啊？
+
+红莲多一句时机到了还会再见，然后进boss挑战 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了啊
+只是没想到新周目也不刷新了
+
