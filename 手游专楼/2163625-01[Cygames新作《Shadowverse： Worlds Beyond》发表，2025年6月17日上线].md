@@ -5232,3 +5232,11 @@ RJxX9dy</blockquote>
 8费有冠军连招6+5， ...</blockquote>
 有道理，先虫妖和穷鬼版卡组混混算了
 
+
+*****
+
+####  olkzdf  
+##### 383#       发表于 2025-7-1 13:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪退和满费不给出牌已经断了我几次连胜，有点招笑了，甚至我不知道这事应该问kmr还是网易
+
