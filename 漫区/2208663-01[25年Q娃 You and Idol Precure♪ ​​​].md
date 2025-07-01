@@ -658,3 +658,14 @@
 
 真的不卖人间体啊，东大妈是弱智吗？
 
+
+*****
+
+####  凡人  
+##### 1128#       发表于 2025-7-1 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68027283&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-7-1 11:03</a>
+真的不卖人间体啊，东大妈是弱智吗？</blockquote>
+去年小雪的卖的就不太好。
+东大妈：卖人间体的话我缺的毛绒玩具销量谁给我补啊
+

@@ -10683,3 +10683,14 @@ youtube.com/watch?v=U7ic30gkSlU
 
 有人说下追忆解锁机制吗，我看都说过boss就能解锁，但我女爵打了水母人马山羊不得其名，追忆还是只有2，咋回事呀
 
+
+*****
+
+####  hirro  
+##### 1032#       发表于 2025-7-1 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68026565&amp;ptid=2210352" target="_blank">哈之分舍瓦 发表于 2025-7-1 09:15</a>
+
+有人说下追忆解锁机制吗，我看都说过boss就能解锁，但我女爵打了水母人马山羊不得其名，追忆还是只有2，咋 ...</blockquote>
+分段解锁，断了之后就要再打过一个BOSS解锁下阶段
+
