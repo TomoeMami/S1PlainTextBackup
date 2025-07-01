@@ -132,3 +132,19 @@
 这游戏的基调就在序章了</blockquote>
 基调定在序章是什么意思
 
+
+*****
+
+####  穿越护城河  
+##### 61#       发表于 2025-7-1 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68028635&amp;ptid=2253199" target="_blank">达达葱2 发表于 2025-7-1 15:23</a>
+基调定在序章是什么意思</blockquote>
+一种欧亨利的感觉吧
+
+“我”看了传说中的偶像的表演，以此为动力要筹一笔款子，投身艺能界，于是疯狂打工，从布菜摆盘，蟹工船打黑工到当雇佣兵，结果却被资本主义拿捏，一分钱也没存下来（是的，这就是那个空钱包的cg之前的剧情）
+
+但是，一个远房亲戚突然死了，他的财产落到了“我”的头上，这才有钱开事务所了
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

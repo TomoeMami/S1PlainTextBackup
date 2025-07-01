@@ -53,3 +53,15 @@
 
 有fes，有翻唱专（别人的），还有新的迷你动画
 
+
+*****
+
+####  starring  
+##### 1664#       发表于 2025-7-1 16:23
+
+更新了艺人照、还有生日推文
+<img src="https://p.sda1.dev/25/a312aa8bcc9a933e0e218dfe4af4e0a4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/963503ed1f3085d5f15423c138b9e621/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
