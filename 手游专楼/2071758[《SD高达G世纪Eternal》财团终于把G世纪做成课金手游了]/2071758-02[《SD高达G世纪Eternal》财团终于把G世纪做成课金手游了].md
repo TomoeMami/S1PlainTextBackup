@@ -6597,3 +6597,11 @@ UR支援只出了79林友德，300抽换了93林友德
 
 160抽0海牛，0脉冲，挖不出一点矿了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  胖达君  
+##### 2088#       发表于 2025-7-1 12:01
+
+国际服主号不抽，日服号抽了80抽，歪了牛高达、红有三、脉冲、Z高达标签母舰、老虎版永恒号......<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
