@@ -110,3 +110,18 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 毕竟那个年代我国08奥运前自己也没人认为自己是工业克苏鲁……
 
+
+*****
+
+####  obiy  
+##### 2345#       发表于 2025-7-2 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031178&amp;ptid=1860817" target="_blank">jojog 发表于 2025-7-1 23:30</a>
+
+我觉得有其时代局限性吧
+
+毕竟那个年代我国08奥运前自己也没人认为自己是工业克苏鲁…… ...</blockquote>
+二战和战后那段时间，工业克苏鲁的位置是美国的。抹布拉布的基本设定就是手头有限的资源面对几乎无限的敌人只能无奈万岁冲锋。
+
+（甚至万岁冲锋这个词的词源也很有意思<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">）
+
