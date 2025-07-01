@@ -9131,3 +9131,24 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3502771534
 
 H大神还没进驻吗？我现在觉得休息时坐在那边有些无聊，要是能多点R 18的自X动作就好了
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3767#       发表于 2025-7-1 12:15
+
+二周目前段反而打得比一周目还慢，因为技能还没满，还是要舔图，再加上经验足了知道怎么照相更好看了，凸姿势摆拍的时间增多了XD 
+
+
+*****
+
+####  alucardcz  
+##### 3768#       发表于 2025-7-1 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68027742&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-1 12:15</a>
+
+二周目前段反而打得比一周目还慢，因为技能还没满，还是要舔图，再加上经验足了知道怎么照相更好看了，凸姿 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这点根据先人总结 主要成就的话不需要点满  直接全洗掉把新出的技能点满就会跳成就
+
+注意别穿什么红莲和传承 据说有bug会不跳杯
+
