@@ -31,3 +31,15 @@
 
 —— 来自 HONOR VER-AN10, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  sql710  
+##### 93#       发表于 2025-7-2 10:39
+
+暂定于 7 月 7 日更新1.08 
+
+除了各种优化，防模式正式回归。
+
+然后说战役加存档太难了，他们还在想办法<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
