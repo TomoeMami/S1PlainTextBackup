@@ -6741,3 +6741,31 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 “我不在的时候你们这群野狗很嚣张啊”
 
+
+*****
+
+####  光辉传递者  
+##### 2104#       发表于 2025-7-2 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032097&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-7-2 09:09</a>
+强敌来袭都打了15次三星了，你们还接着打后面那些狗粮奖励吗
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3 ...</blockquote>
+打。强敌的零件和普通的不通用，得单独打。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  螺旋的小夜曲  
+##### 2105#       发表于 2025-7-2 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031551&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-7-2 01:37</a>
+
+可恶，为什么这个连3d建模都没有对着图片素材强化升级，战斗动画是播片的东西能次次登榜啊
+
+当年山东敢达你 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">千年未解之谜：好端端的山东钢弹为何要停服
+
+15年虽然谈不上如日中天吧，但是离直接死亡肯定是还有一段距离的。结果1死了，2连大规模测试都没有就直接没了
+
