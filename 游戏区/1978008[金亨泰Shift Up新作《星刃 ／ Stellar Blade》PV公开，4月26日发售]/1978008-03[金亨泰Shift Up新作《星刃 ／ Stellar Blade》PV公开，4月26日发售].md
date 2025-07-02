@@ -9357,3 +9357,24 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 —— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  HellMaster  
+##### 3788#       发表于 2025-7-2 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032867&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-7-2 10:47</a>
+昨晚为了拿到海盗拉格罐子打到2点，不是被炮台卡住了，一开始我就把炮台给KO了。就是单纯跑酷，看了N多视频 ...</blockquote>
+根本不用多按一个键，按一下l3就可以了。
+
+
+*****
+
+####  leonz79  
+##### 3789#       发表于 2025-7-2 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032867&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-7-2 10:47</a>
+
+昨晚为了拿到海盗拉格罐子打到2点，不是被炮台卡住了，一开始我就把炮台给KO了。就是单纯跑酷，看了N多视频 ...</blockquote>
+还有个单独的按键是切换跑步的
+
