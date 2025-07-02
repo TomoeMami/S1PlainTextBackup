@@ -150,3 +150,36 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 话说回来muv里J20都没转正呢，J36更是没影的事
 
+
+*****
+
+####  blackll7  
+##### 2348#       发表于 2025-7-2 00:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">kms的游戏虽然live2d和画工很强，但是xp太正常向了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  仓岛千百合  
+##### 2349#       发表于 2025-7-2 05:03
+
+ 本帖最后由 仓岛千百合 于 2025-7-2 05:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031178&amp;ptid=1860817" target="_blank">jojog 发表于 2025-7-1 23:30</a>
+我觉得有其时代局限性吧
+
+毕竟那个年代我国08奥运前自己也没人认为自己是工业克苏鲁…… ...</blockquote>
+那时候日本动画里宁愿吹印度科技也不看好中国技术，什么鲁路修，高达00都是如此。
+
+话说回来muv里J20都没转正呢，J36更是没影的事
+
+*****
+
+####  terminator1990  
+##### 2350#       发表于 2025-7-2 10:33
+
+草，抹布档案笑死我了，最后那镜头有个废墟的画面，感觉过完H SCENE应该还是会一转大战外星矿工的吧
+
+—— 来自 HUAWEI PCT-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
