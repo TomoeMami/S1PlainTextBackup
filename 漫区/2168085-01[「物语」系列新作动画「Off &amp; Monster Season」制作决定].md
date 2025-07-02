@@ -48,3 +48,13 @@ part2终于要来了吗
 
 育惨败接结物语吧，感觉效果会很不错，前脚阿良良木派后脚互掐宣言，ed婚礼当伴娘，完美啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 1013#       发表于 2025-7-2 21:29
+
+<blockquote>黄油可可曲奇 发表于 2025-7-2 20:07
+这是什么 新作小说吗</blockquote>
+这是西尾作品的动画官号
+
