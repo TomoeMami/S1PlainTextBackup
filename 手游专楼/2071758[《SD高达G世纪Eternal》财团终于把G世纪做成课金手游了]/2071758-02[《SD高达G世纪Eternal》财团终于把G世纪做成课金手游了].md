@@ -6827,3 +6827,17 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 加上现在开发公司也无了，私服不说遍地走吧至少是没有苦主找上门了，除非代哥自己重拳出击。
 
+
+*****
+
+####  无念  
+##### 2110#       发表于 2025-7-2 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032293&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-2 09:38</a>
+千年未解之谜：好端端的山东钢弹为何要停服
+
+15年虽然谈不上如日中天吧，但是离直接死亡肯定是还有一段距离 ...</blockquote>
+韩国佬觉得你们不玩2肯定是他不关1，压根没意识到他2做的一坨屎
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
