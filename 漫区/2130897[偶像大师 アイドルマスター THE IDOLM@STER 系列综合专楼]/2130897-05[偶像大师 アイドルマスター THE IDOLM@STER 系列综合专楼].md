@@ -290,3 +290,11 @@ im@s20周年献礼时，应该能把通关前内容全汉化。
 
 cy现在确实不知道在干嘛，该不会kmr真的要实现主机全球化吧，至少所谓的分成问题感觉应该不存在，今年四月CA子公司还端出来了SD高达呢
 
+
+*****
+
+####  华蝶风雪  
+##### 7048#       发表于 2025-7-2 23:34
+
+想想如果不是ml，本家差不多也是这个时间吧<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
