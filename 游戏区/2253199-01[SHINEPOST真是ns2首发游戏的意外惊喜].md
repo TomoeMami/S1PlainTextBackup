@@ -251,3 +251,16 @@
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 71#       发表于 2025-7-2 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68029771&amp;ptid=2253199" target="_blank">moonmagian 发表于 2025-7-1 18:34</a>
+
+除了没有剧情鉴赏模式各方面都相当舒服了，玩起来很顺畅
+
+—— 来自 realme RMX3800, Android 15, 鹅球 v ...</blockquote>
+感谢，顺便还想问下要去了解下原企划吗，虽然已经买了个实体估计这两天等快递也会把动画看了
+
