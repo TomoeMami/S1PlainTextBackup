@@ -9882,3 +9882,25 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 虽然有蝴蝶结，但是不遮沟啊。裙底还是丁字<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤井紫  
+##### 3829#       发表于 2025-7-2 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035057&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-7-2 16:46</a>
+默认是和一些FPS一样，毁手柄的长压L3。设置里开软弱保，才能调成按L3切换
+
+就纯推摇杆来说，倒有三种姿 ...</blockquote>
+绿洲是超小跟小，超大跟特大
+中跟大直接去日光塔北面的葡萄洞或者废土右下工厂水池
+钓鱼佬可以买两级钓鱼心得，任务开葡萄洞再加一级，然后任务超级鱼饵后钓鱼佬再送一级
+出星级看脸
+
+*****
+
+####  名居守  
+##### 3830#       发表于 2025-7-2 20:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mod冲突真难受
+
