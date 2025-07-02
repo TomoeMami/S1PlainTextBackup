@@ -186,3 +186,58 @@ with CINDERELLA BAND（＊同Day 1）</blockquote>
 
 亚美菜亚美菜你为什么不上live了<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 7037#       发表于 2025-7-1 14:59
+
+OFA的汉化坑原来还没挂呀
+
+【【汉化】偶像大师OFA 天海春香 全主线[1080P/60FPS]-哔哩哔哩】 https://b23.tv/gysgaRR
+
+https://imas-ofa.com/
+
+*****
+
+####  htgz111  
+##### 7038#       发表于 2025-7-1 15:05
+
+灰灰能保持一年一个这种人数的live我就知足了（做梦）
+
+*****
+
+####  三度音  
+##### 7039#       发表于 2025-7-1 15:39
+
+ 本帖最后由 三度音 于 2025-7-1 15:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68028506&amp;ptid=2130897" target="_blank">darkangel0224 发表于 2025-7-1 14:59</a>
+
+OFA的汉化坑原来还没挂呀
+
+【【汉化】偶像大师OFA 天海春香 全主线[1080P/60FPS]-哔哩哔哩】 [https://b23.t](https://b23.t) ...</blockquote>
+项目2年多一直在默默汉化，已经完成了所有偶像的主线、UI、图片、背景汉化。
+
+短信、通关后DLC剧情（这俩每个都跟本篇剧情一个文字分量）还有几个偶像未完成。
+
+im@s20周年献礼时，应该能把通关前内容全汉化。
+
+各位急可以去测试Q群，有汉化补丁下了自己打。
+
+*****
+
+####  a1370303  
+##### 7040#       发表于 2025-7-2 15:00
+
+甚至不等到ss10a和周年庆开完就判死刑了吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c51193fe2602227208bfa33ff325b935/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/93f9ccc4b5a96807346f36e2fc9e2a26/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7041#       发表于 2025-7-2 15:06
+
+我就想知道周年的超得会不会取消，周年超得也取消掉的话那赶紧关服吧<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
