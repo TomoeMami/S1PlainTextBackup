@@ -423,3 +423,20 @@
 
 控制欲有点强。。。。
 
+
+*****
+
+####  尼曼兔  
+##### 49#       发表于 2025-7-2 13:47
+
+有两个同事这种画风的，据说成绩是学校前三的存在，还进了市足球青训啥的，我以为是就管管安全。
+
+*****
+
+####  カタカナジゴク  
+##### 50#       发表于 2025-7-2 13:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">等以后被拔氧气管吧
+
+—— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

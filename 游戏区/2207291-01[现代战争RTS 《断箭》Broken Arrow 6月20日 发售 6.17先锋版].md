@@ -43,3 +43,11 @@
 
 然后说战役加存档太难了，他们还在想办法<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  M829A4  
+##### 94#       发表于 2025-7-2 13:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你游不会直到发售了有人来打差评了才想到游戏是要做存档功能的吧，现在怎么看都是在做游戏的时候完全没想过要存档现在屎山代码插不进去了
+
