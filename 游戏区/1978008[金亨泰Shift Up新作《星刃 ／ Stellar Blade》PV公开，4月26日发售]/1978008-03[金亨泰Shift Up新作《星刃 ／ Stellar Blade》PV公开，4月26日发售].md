@@ -9802,3 +9802,13 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 今天的小更新后换发型界面出bug了，更换发型会像换衣服一样镜头拉到最远，手工拉近还会失焦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3823#       发表于 2025-7-2 19:12
+
+艹，更新完进不去游戏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不会是因为前两天用MOD买了那件星球空降服吧，要因为这个废档了我可**服了SU了
+

@@ -211,3 +211,67 @@
 
 完全没有抽的欲望
 
+
+*****
+
+####  Jamaisvu  
+##### 16995#       发表于 2025-7-2 18:54
+
+ 本帖最后由 Jamaisvu 于 2025-7-2 18:57 编辑 
+
+话说已经半年多没送过四星了（上次还是圣诞阿比），实装个小芙栗多很难吗：
+
+<img src="https://img.stage1st.com/forum/202507/02/185427nqwe2iw8jxkxjjj2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250702_184032.jpg</strong> (206.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 18:54 上传
+
+估计得等到泳装活动才有赠送四星吧...
+
+*****
+
+####  Jamaisvu  
+##### 16996#       发表于 2025-7-2 19:05
+
+ 本帖最后由 Jamaisvu 于 2025-7-2 19:09 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/02/190607dfvlfkqs955yylaf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250702_190537.jpg</strong> (342.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 19:06 上传
+
+<img src="https://img.stage1st.com/forum/202507/02/190608f6dtt67a76rzmcks.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250702_190554.jpg</strong> (271.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 19:06 上传
+
+好家伙，没有群体buff的绿卡光炮，这是官方帮大家省钱呀...
+
+除非冠位战在对面放三个芙栗多，否则这家伙戴冠战基本没用吧...虽然特攻被动是枪阶的...
+
+*****
+
+####  khxooo  
+##### 16997#       发表于 2025-7-2 19:07
+
+神性+死灵，如果你是冠位守门人那就太好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16998#       发表于 2025-7-2 19:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿卡光炮枪 有什么存在的必要么
+
