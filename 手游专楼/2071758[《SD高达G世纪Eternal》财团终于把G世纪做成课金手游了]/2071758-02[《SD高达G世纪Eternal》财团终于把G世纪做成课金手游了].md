@@ -6731,3 +6731,13 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 2103#       发表于 2025-7-2 09:16
+
+这卡池才几天就快比上个月业绩还高了，这就是骡叔叔的市场号召力么<img src="https://static.stage1st.com/image/smiley/bundam2017/034.png" referrerpolicy="no-referrer">
+
+“我不在的时候你们这群野狗很嚣张啊”
+
