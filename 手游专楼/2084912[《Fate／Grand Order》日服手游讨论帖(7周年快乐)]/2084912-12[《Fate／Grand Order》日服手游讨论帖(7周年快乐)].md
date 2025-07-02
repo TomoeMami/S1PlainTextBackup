@@ -275,3 +275,39 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿卡光炮枪 有什么存在的必要么
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 16999#       发表于 2025-7-2 19:15
+
+这年头了出了个这么没特点的卡…
+
+*****
+
+####  Jamaisvu  
+##### 17000#       发表于 2025-7-2 19:18
+
+ 本帖最后由 Jamaisvu 于 2025-7-2 19:20 编辑 
+
+因陀罗一张卡三个声优，井上和彦是白鸟警官，高山南是柯南，算上旁边这个NPC刚好可以拍一集死神小学生<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 17001#       发表于 2025-7-2 19:18
+
+这强度全给声优和建模了吧
+
+什么违章建筑
+
+*****
+
+####  希望之花  
+##### 17002#       发表于 2025-7-2 19:43
+
+站那里真的有点像拳皇的K'<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为什么攻击动作都是小东西代劳没有突然瞬移踢火
+

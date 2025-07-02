@@ -9812,3 +9812,28 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 不会是因为前两天用MOD买了那件星球空降服吧，要因为这个废档了我可**服了SU了
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3824#       发表于 2025-7-2 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035801&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-2 19:12</a>
+
+艹，更新完进不去游戏了
+
+不会是因为前两天用MOD买了那件星球空降服吧，要因为这个废档了我可**服了SU了 ...</blockquote>
+破案了，UE4SS的锅，幸亏看了眼社区。<strong>装了UE4SS或类似附加组件的注意，更新完可能进不去游戏(无限闪退)</strong>
+
+解决方法很简单，把UE4SS相关的文件先改个名，进游戏之后退出来再改回去就行了，之前打的MOD一切功能正常。
+
+具体请参考图片↓
+
+<img src="https://img.stage1st.com/forum/202507/02/193534e29oub7onvoibbb9.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-07-02_193138.jpg</strong> (52.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-2 19:35 上传
+
