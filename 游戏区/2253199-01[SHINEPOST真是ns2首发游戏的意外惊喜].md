@@ -298,3 +298,17 @@
 
 现在才发现是不是所有人的所有歌都会随能力等级而产生好坏的变化？
 
+
+*****
+
+####  moonmagian  
+##### 75#         楼主| 发表于 2025-7-2 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68033217&amp;ptid=2253199" target="_blank">DARK_HGCG 发表于 2025-7-2 11:34</a>
+第一遍打全程没看演唱会
+
+现在才发现是不是所有人的所有歌都会随能力等级而产生好坏的变化？ ...</blockquote>
+会，vo力和体力都会让歌声发生变化，也是这作用AI歌声最大的亮点了
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
