@@ -328,3 +328,16 @@
 
 和动画没关系？
 
+
+*****
+
+####  moonmagian  
+##### 78#         楼主| 发表于 2025-7-2 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68034596&amp;ptid=2253199" target="_blank">达达葱2 发表于 2025-7-2 15:33</a>
+
+和动画没关系？</blockquote>
+小偶像设定一致的平行世界
+
+有一个单独的视觉小说模式给你看动画和小说的剧情
+
