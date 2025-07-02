@@ -9406,3 +9406,16 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 —— 来自 vivo V2307A, Android 15, 鹅球 v3.5.99-al ...</blockquote>
 我总觉说好是二合一，结果只是艾德姆被消耗掉了，换仙侠网文，就是被炼化掉了<img src="https://static.stage1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 3792#       发表于 2025-7-2 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68033451&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-2 12:02</a>
+
+2周目时发现，一开始给恩雅续命的不就是只孽奇拨吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷懒了，这个模型应该删掉下面的触手就对了
+
+这玩意儿本身应该就是个治疗装置，高塔里面那些是被孽奇拔感染了
+
