@@ -312,3 +312,11 @@
 
 —— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARK_HGCG  
+##### 76#       发表于 2025-7-2 13:23
+
+二周目直接第三年破产了T_T
+
