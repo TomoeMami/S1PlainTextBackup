@@ -9847,3 +9847,14 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 今天的小更新后换发型界面出bug了，更换发型会像换衣服一样镜头拉到最远，手工拉近还会失焦 ...</blockquote>
 刚试了试，我这没这个问题
 
+
+*****
+
+####  寺胖  
+##### 3826#       发表于 2025-7-2 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68033451&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-2 12:02</a>
+
+2周目时发现，一开始给恩雅续命的不就是只孽奇拨吗？</blockquote>
+这个裙装叫啥名字，我还没拿到，得注意下早点拿，很好看
+
