@@ -6799,3 +6799,16 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 种命就……
 
+
+*****
+
+####  rockroxas  
+##### 2108#       发表于 2025-7-2 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032524&amp;ptid=2071758" target="_blank">kenqqex 发表于 2025-7-2 10:06</a>
+
+搞强敌那个命脉啊 打ex3小兵一刀一个  你搞多3 4 台够了横扫了</blockquote>
+搞强敌太花体力233
+
+之前就有一堆开发SR拉满的打法，就是想要地图炮方便点，结果根本没有
+
