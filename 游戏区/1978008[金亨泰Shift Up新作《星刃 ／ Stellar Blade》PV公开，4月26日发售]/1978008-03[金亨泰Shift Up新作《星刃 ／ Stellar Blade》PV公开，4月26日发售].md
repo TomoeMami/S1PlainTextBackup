@@ -9794,3 +9794,11 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  mhss  
+##### 3822#       发表于 2025-7-2 18:48
+
+今天的小更新后换发型界面出bug了，更换发型会像换衣服一样镜头拉到最远，手工拉近还会失焦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

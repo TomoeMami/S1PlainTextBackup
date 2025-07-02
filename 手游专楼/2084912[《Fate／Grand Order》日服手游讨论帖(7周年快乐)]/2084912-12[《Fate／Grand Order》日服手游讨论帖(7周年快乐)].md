@@ -131,3 +131,83 @@
 
 同样疯狂闪退<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 16989#       发表于 2025-7-1 22:53
+
+艹...我经常挂梯子没影响吧...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  DARKGRAY  
+##### 16990#       发表于 2025-7-1 23:39
+
+ 本帖最后由 DARKGRAY 于 2025-7-1 23:52 编辑 
+
+释放了，还好还好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喷了，三场打完关游戏了才收到那种这号有违反行为啥的定型回复，很难评<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 16991#       发表于 2025-7-2 00:55
+
+同样疯狂闪退<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 16992#       发表于 2025-7-2 18:49
+
+印度番长笑死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 16993#       发表于 2025-7-2 18:49
+
+新五星是pako画的Lancer雷神因陀罗：
+
+<img src="https://img.stage1st.com/forum/202507/02/185009ksnmmm0mcamjnval.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250702_184807.jpg</strong> (250.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 18:50 上传
+
+<img src="https://img.stage1st.com/forum/202507/02/184856nxg2zwg66kxo9z4x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250702_184827.jpg</strong> (74.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 18:48 上传
+
+<img src="https://img.stage1st.com/forum/202507/02/184856lmyugnxypz7ylw53.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250702_184817.jpg</strong> (199.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-7-2 18:48 上传
+
+长得挺帅的，黑皮鸣上悠，宝具动画也很用心。不知道能不能在接下来的枪阶戴冠战派上用场呢...
+
+*****
+
+####  angelooo  
+##### 16994#       发表于 2025-7-2 18:50
+
+这因陀罗是剪影最左边那位吧
+
+完全没有抽的欲望
+

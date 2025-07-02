@@ -241,3 +241,42 @@ im@s20周年献礼时，应该能把通关前内容全汉化。
 
 我就想知道周年的超得会不会取消，周年超得也取消掉的话那赶紧关服吧<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王俊凯  
+##### 7042#       发表于 2025-7-2 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">没下葬 只是拔管子 你们没事还是能上去看看咸鱼的
+
+*****
+
+####  屈江鸟  
+##### 7043#       发表于 2025-7-2 16:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还就那个赛博坟头
+
+*****
+
+####  cckuku  
+##### 7044#       发表于 2025-7-2 16:10
+
+感觉如果不是scsp烂了，万代应该不会给cgss续到十周年。
+
+*****
+
+####  zhwpjy  
+##### 7045#       发表于 2025-7-2 17:21
+
+十周年 不知道能不能 全部付声cv全部凑齐开个大live 
+
+*****
+
+####  Andariel  
+##### 7046#       发表于 2025-7-2 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035263&amp;ptid=2130897" target="_blank">zhwpjy 发表于 2025-7-2 17:21</a>
+
+十周年 不知道能不能 全部付声cv全部凑齐开个大live</blockquote>
+想什么呢，关服代表剩余价值彻底榨干了，怎么还会投入资金搞这种的
+
