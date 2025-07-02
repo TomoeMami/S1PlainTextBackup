@@ -9579,3 +9579,46 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 钓鱼佬说再高级的要去海边的9号钓，而且他也没有钓鱼书卖给我了
 
+
+*****
+
+####  oyss  
+##### 3805#       发表于 2025-7-2 16:50
+
+ 本帖最后由 oyss 于 2025-7-2 16:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68034662&amp;ptid=1978008" target="_blank">牙狼GARO 发表于 2025-7-2 15:45</a>
+
+谢谢，感觉二周目除了衣服也没必要跑别的了</blockquote>
+所有的装备都有升级版,要拿全基本上是要箱子都再开一遍.
+
+不看攻略唯一能省的就是摸尸体吧
+
+*****
+
+####  洛克萨斯  
+##### 3806#       发表于 2025-7-2 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035057&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-7-2 16:46</a>
+
+默认是和一些FPS一样，毁手柄的长压L3。设置里开软弱保，才能调成按L3切换
+
+就纯推摇杆来说，倒有三种姿 ...</blockquote>
+你要做任务，跟任务钓鱼
+
+
+*****
+
+####  darkangel0224  
+##### 3807#       发表于 2025-7-2 16:54
+
+<blockquote>方舟售票员 发表于 2025-7-1 02:10
+目前的mod全都是服装和战斗数值类的吗？
+
+H大神还没进驻吗？我现在觉得休息时坐在那边有些无聊，要是能多点R ...</blockquote>
+
+魔改程度最高的也就见过死或生5的DOAHDM Beach Paradise，能调场景 + 奇怪的动作
+
+老滚5虽然自定义也不少，但是渲染风格难崩
+
+真要渲染好看的，那只有导出建模，重新打骨架，再丢进blender之类里的整活30秒小电影
+
