@@ -10734,3 +10734,39 @@ youtube.com/watch?v=U7ic30gkSlU
 
 Fs有点追求的话应该不会放过日本那边荒野白送的热度吧
 
+
+*****
+
+####  Steel.Haze  
+##### 1036#       发表于 2025-7-2 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68025610&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-30 23:19</a>
+
+我悟了，把盾扔掉拿起双戟开始跳劈</blockquote>
+有人试过了，不行，攻击低削韧低；单人鸡哥就老实带个铃铛或者冰霜踏地。最适合鸡哥的是冰霜踏地，然后快速扫荡小兵攒经验（单人小兵价值高），然后屠城的路线（也是稳攒15级）。然后打夜王和Boss准备一个路上捡的高杀伤属性战技武器更好（带点星光碎片）。如果多人就当肉盾吧，带着防御吸敌。
+
+*****
+
+####  Steel.Haze  
+##### 1037#       发表于 2025-7-2 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68030294&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-1 20:22</a>
+
+花一个币买了隐城试试无赖单刷
+
+落地升2级，路上多打一个石头的钱跑到隐城商人那买锻造石1，然后走右路打死 ...</blockquote>
+商人有火炎壶，买俩，见面先请姑娘吃个火，她开始跳舞后再来一个。这个顺序非常适合无赖和追踪者。好像按照玄学的说法，拿金武器前不要捡蓝紫（除非是你需要的武器类型）。不过我没试过概率。
+
+
+*****
+
+####  Steel.Haze  
+##### 1038#       发表于 2025-7-2 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031713&amp;ptid=2210352" target="_blank">朽埃 发表于 2025-7-2 06:22</a>
+
+我很好奇虫子出完了是轮转回大嘴还是接着出剩下的，看官网是说人马大嘴虫子是第一弹更新。
+
+Fs有点追求的话 ...</blockquote>
+第二轮应该有冰龙，冰龙有个做了一半的三阶段。狗也有个做了两三成的三阶段。
+
