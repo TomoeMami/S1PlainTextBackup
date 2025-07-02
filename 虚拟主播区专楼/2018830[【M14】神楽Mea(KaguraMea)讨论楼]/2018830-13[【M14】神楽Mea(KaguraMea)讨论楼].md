@@ -55198,3 +55198,44 @@ rnea的这个rn原来是有地雷感的意思吗（
 
 话说selly以前和拉姆亲他们认识吗
 
+
+*****
+
+####  sino__unnko3  
+##### 18971#       发表于 2025-7-3 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036917&amp;ptid=2018830" target="_blank">术士q 发表于 2025-7-3 00:06</a>
+rnea的这个rn原来是有地雷感的意思吗（</blockquote>
+(ji)r(aio)nna吗，那段怎么说的
+
+
+*****
+
+####  TiHaru  
+##### 18972#       发表于 2025-7-3 00:35
+
+vspo就是蹭cr起家的，不可能不认识
+
+rn=m相当于中文语境的火星文感觉吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 术士q| + 1|火星文草     杀马特团长（有端）.|
+
+查看全部评分
+
+*****
+
+####  术士q  
+##### 18973#       发表于 2025-7-3 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036987&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-7-3 00:29</a>
+(ji)r(aio)nna吗，那段怎么说的</blockquote>
+我记得就是被左边那个问到rn是不是m的意思然后mea回答是的，因为拼起来比较有地雷感，很可爱这样，具体还是根据文本复盘吧
+

@@ -9930,3 +9930,14 @@ b站评论看见的解决方法，亲测有效（补丁v3.0版本）
 mod冲突真难受</blockquote>
 N网的话大部分mod会告诉你和什么mod有冲突，评论区也有很多信息，所以下mod之前先看看比较好，我下了5,60个衣服类+功能类的mod了，暂时还没太多冲突的，有冲突的也只能做选择题了。
 
+
+*****
+
+####  江戸前ルナ  
+##### 3833#       发表于 2025-7-3 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036016&amp;ptid=1978008" target="_blank">寺胖 发表于 2025-7-2 20:03</a>
+
+这个裙装叫啥名字，我还没拿到，得注意下早点拿，很好看</blockquote>
+看了下，是在艾多斯9号，不是高塔。
+
