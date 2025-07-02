@@ -6769,3 +6769,33 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 15年虽然谈不上如日中天吧，但是离直接死亡肯定是还有一段距离的。结果1死了，2连大规模测试都没有就直接没了
 
+
+*****
+
+####  kenqqex  
+##### 2106#       发表于 2025-7-2 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68030387&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-1 20:49</a>
+
+话说回来
+
+之前指望种命开发图拯救下ex3的扎夫特成就
+
+现在看来是拯救不了吧（</blockquote>
+搞强敌那个命脉啊 打ex3小兵一刀一个  你搞多3 4 台够了横扫了
+
+
+*****
+
+####  rockroxas  
+##### 2107#       发表于 2025-7-2 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68029047&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-7-1 16:39</a>
+
+这次两个主线开发是觉得玩家们开发素材太多了吗
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+逆鸭是要去hard图挖sr大幅降低需求，这个可以慢慢来
+
+种命就……
+
