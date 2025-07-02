@@ -55182,3 +55182,11 @@ rmc----<img src="https://static.stage1st.com/image/smiley/face2017/139.png" refe
 
 rmc组的局，主题是参加ltk的人的练习自定义，但是缺人拉了点stgr男，属于是半锅老鼠屎了
 
+
+*****
+
+####  术士q  
+##### 18969#       发表于 2025-7-3 00:06
+
+rnea的这个rn原来是有地雷感的意思吗（
+
