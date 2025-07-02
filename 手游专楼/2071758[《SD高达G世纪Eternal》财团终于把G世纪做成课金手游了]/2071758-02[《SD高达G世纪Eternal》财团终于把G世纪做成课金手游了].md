@@ -6841,3 +6841,17 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acg_gyanc  
+##### 2111#       发表于 2025-7-3 04:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032293&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-2 09:38</a>
+千年未解之谜：好端端的山东钢弹为何要停服
+
+15年虽然谈不上如日中天吧，但是离直接死亡肯定是还有一段距离 ...</blockquote>
+这个真是印象深刻，当年漫猫sd首页上会把有服务器的国家/地区写上，倒闭前一段时间可以看到很多南亚那边的小国家都开了服务器，结果就这么突然暴毙了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
