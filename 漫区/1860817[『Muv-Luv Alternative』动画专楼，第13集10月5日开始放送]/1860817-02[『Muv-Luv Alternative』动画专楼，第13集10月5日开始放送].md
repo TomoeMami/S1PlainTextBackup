@@ -183,3 +183,33 @@ PV和立绘都一股BA味，可以当18XBA用吗<img src="https://static.stage1s
 
 —— 来自 HUAWEI PCT-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wolf1997  
+##### 2351#       发表于 2025-7-2 10:50
+
+不好说鸡枞还会在这手游里参与多少，毕竟抹布ip早就为了动画化而卖了，不过看宣传把鬼畜人找了回来写东西，那应该还是大差不差的，接下来看dmm怎么搞。
+
+*****
+
+####  03e7  
+##### 2352#       发表于 2025-7-2 15:11
+
+<img src="https://img.stage1st.com/forum/202507/02/151109ziks79nj3s13j1d7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250702_093956_jp_co_fanzagames_muvlu.jpg</strong> (164.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-2 15:11 上传
+
+恶意满满<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 2353#       发表于 2025-7-2 22:21
+
+这画风和音乐感觉和BA还真是蛮像的
+
