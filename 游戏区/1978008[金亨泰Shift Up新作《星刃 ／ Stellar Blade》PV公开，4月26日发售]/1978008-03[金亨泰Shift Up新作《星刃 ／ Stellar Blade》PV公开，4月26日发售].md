@@ -9378,3 +9378,31 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 昨晚为了拿到海盗拉格罐子打到2点，不是被炮台卡住了，一开始我就把炮台给KO了。就是单纯跑酷，看了N多视频 ...</blockquote>
 还有个单独的按键是切换跑步的
 
+
+*****
+
+####  江戸前ルナ  
+##### 3790#       发表于 2025-7-2 12:02
+
+<img src="https://img.stage1st.com/forum/202507/02/120143hhhuqhndp8qho49q.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250702120138.png</strong> (672.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-2 12:01 上传
+
+2周目时发现，一开始给恩雅续命的不就是只孽奇拨吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心灵的乳头  
+##### 3791#       发表于 2025-7-2 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68033219&amp;ptid=1978008" target="_blank">虚无连斩 发表于 2025-7-2 11:34</a>
+
+我之前就在帖子里疑惑了，这合体完了是不是成扶她
+
+—— 来自 vivo V2307A, Android 15, 鹅球 v3.5.99-al ...</blockquote>
+我总觉说好是二合一，结果只是艾德姆被消耗掉了，换仙侠网文，就是被炼化掉了<img src="https://static.stage1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
+
