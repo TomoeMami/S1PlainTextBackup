@@ -345,3 +345,40 @@
 刚发现现在新角色连个一呼符试用关都不给了</blockquote>
 试用一般都是周年或者新年从者才给的吧。
 
+
+*****
+
+####  qixinno2  
+##### 17007#       发表于 2025-7-2 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036265&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-7-2 21:02</a>
+
+试用一般都是周年或者新年从者才给的吧。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记忆力错乱了 总感觉新角色都该有个试用关的
+
+*****
+
+####  天王寺凯伊姆  
+##### 17008#       发表于 2025-7-2 21:28
+
+小太阳+布姐了，难得布姐可以上班，月p太高贵了没有也借不到，只能用老公主借大蛾子了
+
+*****
+
+####  alucardcz  
+##### 17009#       发表于 2025-7-2 21:38
+
+ 本帖最后由 alucardcz 于 2025-7-2 22:04 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">学姐90++还能c 还能c！
+
+[https://www.bilibili.com/video/BV1mh34zKE2H](https://www.bilibili.com/video/BV1mh34zKE2H)
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5加成不换人 换人能6加成但我不想换
+
+*****
+
+####  壳壳牛  
+##### 17010#       发表于 2025-7-3 02:20
+
+艹刷了一晚上才想起现在绊15不会亏羁绊...可以自出拐了...
+
