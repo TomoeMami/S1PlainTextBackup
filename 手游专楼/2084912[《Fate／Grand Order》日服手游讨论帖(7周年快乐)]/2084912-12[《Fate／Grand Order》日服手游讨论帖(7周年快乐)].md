@@ -311,3 +311,37 @@
 
 为什么攻击动作都是小东西代劳没有突然瞬移踢火
 
+
+*****
+
+####  qixinno2  
+##### 17003#       发表于 2025-7-2 20:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚发现现在新角色连个一呼符试用关都不给了
+
+*****
+
+####  khxooo  
+##### 17004#       发表于 2025-7-2 20:38
+
+白枪+月批+布姐，小怪随便补刀就过了。
+
+*****
+
+####  都谷捻柏  
+##### 17005#       发表于 2025-7-2 20:40
+
+2宝果子龙p公主抱个奥伯龙，用减cd衣服脚打，这就是p阶伟力呀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  khxooo  
+##### 17006#       发表于 2025-7-2 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036158&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-2 20:36</a>
+
+刚发现现在新角色连个一呼符试用关都不给了</blockquote>
+试用一般都是周年或者新年从者才给的吧。
+
