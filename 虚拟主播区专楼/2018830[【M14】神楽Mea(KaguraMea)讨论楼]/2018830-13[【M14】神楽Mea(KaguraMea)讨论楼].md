@@ -55174,3 +55174,11 @@ rmc----<img src="https://static.stage1st.com/image/smiley/face2017/139.png" refe
 
 今晚selly也在？不知道聊了啥，竟然这几个人能凑一块
 
+
+*****
+
+####  TiHaru  
+##### 18968#       发表于 2025-7-2 23:23
+
+rmc组的局，主题是参加ltk的人的练习自定义，但是缺人拉了点stgr男，属于是半锅老鼠屎了
+
