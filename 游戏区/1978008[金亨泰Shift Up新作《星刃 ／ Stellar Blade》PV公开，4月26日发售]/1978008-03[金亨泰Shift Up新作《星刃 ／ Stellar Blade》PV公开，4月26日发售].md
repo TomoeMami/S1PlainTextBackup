@@ -9468,3 +9468,26 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 按这么说，我已经推进到跟埃德姆说话就喊我去轨道电梯，莉莉也没说要去爱朵思就好，是不是只能做一个结局了？
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 3796#       发表于 2025-7-2 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68034370&amp;ptid=1978008" target="_blank">牙狼GARO 发表于 2025-7-2 14:58</a>
+喷了，棒子刷刷刷之心不死啊。
+
+我查了下豆包：</blockquote>
+我记得是莉莉没提出去9号的话，你可以先不去轨道，然后继续做做任务收集啥的，再和阿达姆对话尝试触发
+
+
+*****
+
+####  牙狼GARO  
+##### 3797#       发表于 2025-7-2 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68034516&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-7-2 15:22</a>
+
+我记得是莉莉没提出去9号的话，你可以先不去轨道，然后继续做做任务收集啥的，再和阿达姆对话尝试触发 ...</blockquote>
+谢谢，那继续慢慢找了
+
