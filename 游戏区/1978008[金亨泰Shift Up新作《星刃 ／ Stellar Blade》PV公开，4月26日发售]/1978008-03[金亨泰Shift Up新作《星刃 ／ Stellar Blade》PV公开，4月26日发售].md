@@ -9837,3 +9837,13 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 2025-7-2 19:35 上传
 
+
+*****
+
+####  Andariel  
+##### 3825#       发表于 2025-7-2 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035697&amp;ptid=1978008" target="_blank">mhss 发表于 2025-7-2 18:48</a>
+今天的小更新后换发型界面出bug了，更换发型会像换衣服一样镜头拉到最远，手工拉近还会失焦 ...</blockquote>
+刚试了试，我这没这个问题
+
