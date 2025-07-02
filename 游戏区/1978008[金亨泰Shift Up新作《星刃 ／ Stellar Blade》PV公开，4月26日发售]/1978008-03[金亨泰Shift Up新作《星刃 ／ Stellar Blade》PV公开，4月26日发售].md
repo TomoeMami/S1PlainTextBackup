@@ -9904,3 +9904,29 @@ ok，目前是全收集，全支线式的反复跑图三光式舔图玩法，满
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mod冲突真难受
 
+
+*****
+
+####  silversor  
+##### 3831#       发表于 2025-7-2 21:14
+
+ 游戏本体V1.2更新后无法打开游戏：
+
+如果您在更新后启动游戏时遇到问题，请执行以下作：将 “ue4ss\UE4SS_Signatures” 中的 “FText_Constructor.lua” 重命名为 “dFText_Constructor.lua”
+
+b站评论看见的解决方法，亲测有效（补丁v3.0版本）
+
+---------
+
+一直打不开游戏发现炸了，估计一下应该是打了高亮mod最大嫌疑，看了下高亮mod的评论区找到这个，个人改了进游戏了
+
+*****
+
+####  永恒孤心  
+##### 3832#       发表于 2025-7-2 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036216&amp;ptid=1978008" target="_blank">名居守 发表于 2025-7-2 20:49</a>
+
+mod冲突真难受</blockquote>
+N网的话大部分mod会告诉你和什么mod有冲突，评论区也有很多信息，所以下mod之前先看看比较好，我下了5,60个衣服类+功能类的mod了，暂时还没太多冲突的，有冲突的也只能做选择题了。
+
