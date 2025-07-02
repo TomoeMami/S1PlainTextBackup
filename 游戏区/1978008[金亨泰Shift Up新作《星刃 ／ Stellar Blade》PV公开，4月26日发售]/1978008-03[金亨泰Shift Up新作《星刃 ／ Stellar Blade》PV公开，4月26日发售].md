@@ -9345,3 +9345,15 @@ B站视频攻略可以参考一下。缺了什么还能对照抄。【[喂狗组
 
 话说，伊芙和艾德姆融合以后算雌雄同体了？
 
+
+*****
+
+####  虚无连斩  
+##### 3787#       发表于 2025-7-2 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68032870&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-2 10:48</a>
+话说，伊芙和艾德姆融合以后算雌雄同体了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我之前就在帖子里疑惑了，这合体完了是不是成扶她
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
