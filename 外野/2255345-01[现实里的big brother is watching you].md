@@ -403,3 +403,23 @@
 
 监狱学园<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圣锤修会  
+##### 47#       发表于 2025-7-2 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68029599&amp;ptid=2255345" target="_blank">千千千千鸟 发表于 2025-7-1 17:57</a>
+屡教不改，看要上班的大人精力和小孩比谁强</blockquote>
+没事儿，ai自动识别，每天晚上根据ai给出的结果惩罚或者奖励
+
+—— 来自 Xiaomi 22101317C, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  LANGWANG  
+##### 48#       发表于 2025-7-2 13:34
+
+控制欲有点强。。。。
+
