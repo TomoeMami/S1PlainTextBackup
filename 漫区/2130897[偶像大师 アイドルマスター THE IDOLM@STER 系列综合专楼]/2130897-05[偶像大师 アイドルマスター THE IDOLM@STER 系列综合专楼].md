@@ -298,3 +298,44 @@ cy现在确实不知道在干嘛，该不会kmr真的要实现主机全球化吧
 
 想想如果不是ml，本家差不多也是这个时间吧<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 7049#       发表于 2025-7-2 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68036024&amp;ptid=2130897" target="_blank">natmk 发表于 2025-7-2 20:05</a>
+
+唉灰灰 万代不是有cgss2的企划吗什么时候拿出来</blockquote>
+看九月的週年LIVE。不過咱個人對此謹慎不看好（望向隔壁シャニソン和更遠的[山脊賽車](https://www.youtube.com/watch?v=uZ2jqn_rJB0)）
+
+*****
+
+####  叩叩叩  
+##### 7050#       发表于 2025-7-2 20:55
+
+看到还有觉得CY会把空下来的人调给QA的，太变态了
+
+*****
+
+####  datsno1  
+##### 7051#       发表于 2025-7-2 21:15
+
+ 本帖最后由 datsno1 于 2025-7-2 21:17 编辑 
+
+cy现在确实不知道在干嘛，该不会kmr真的要实现主机全球化吧，至少所谓的分成问题感觉应该不存在，今年四月CA子公司还端出来了SD高达呢
+
+*****
+
+####  华蝶风雪  
+##### 7052#       发表于 2025-7-2 23:34
+
+想想如果不是ml，本家差不多也是这个时间吧<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 7053#       发表于 2025-7-3 09:07
+
+忽然一看灰灰还是传出了似掉的消息，哎，以后万南会继续剥离这些牢企划吧。
+
