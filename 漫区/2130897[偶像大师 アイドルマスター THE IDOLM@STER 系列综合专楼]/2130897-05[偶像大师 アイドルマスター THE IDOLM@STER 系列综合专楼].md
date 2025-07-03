@@ -429,3 +429,12 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 穴：scsp
 大穴：合作开发的sideM新手游<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 7064#       发表于 2025-7-3 16:41
+
+老东西爆不出米想啥呢，
+而且有没有国服还不一定。
+
