@@ -6936,3 +6936,13 @@ EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
 我是说EX1，找了好几个都是刚需双盾，要么就是UR支援角色数量拉满</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 眼残了
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2120#       发表于 2025-7-3 20:28
+
+<blockquote>螺旋的小夜曲 发表于 2025-7-3 18:51
+EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
+不用啊有双红高会好打不需要sp的需要的是100w的ult
+

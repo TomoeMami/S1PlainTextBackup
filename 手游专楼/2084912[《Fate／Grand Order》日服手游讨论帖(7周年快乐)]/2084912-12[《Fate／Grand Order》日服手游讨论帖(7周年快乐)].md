@@ -420,3 +420,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alucardcz  
+##### 17015#       发表于 2025-7-3 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68040860&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-3 17:50</a>
+
+不折腾了...试了下要6加成的话还是妖兰双光兔加奥伯龙最稳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 萌新我奥 狐都15羁绊了  虽然有补偿 但上2个依然血亏
+
