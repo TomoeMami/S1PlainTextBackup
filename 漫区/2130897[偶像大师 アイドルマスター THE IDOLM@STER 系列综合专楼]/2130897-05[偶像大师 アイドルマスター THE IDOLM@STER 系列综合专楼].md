@@ -339,3 +339,14 @@ cy现在确实不知道在干嘛，该不会kmr真的要实现主机全球化吧
 
 忽然一看灰灰还是传出了似掉的消息，哎，以后万南会继续剥离这些牢企划吧。
 
+
+*****
+
+####  datsno1  
+##### 7054#       发表于 2025-7-3 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68038397&amp;ptid=2130897" target="_blank">zqpm1235 发表于 2025-7-3 10:45</a>
+
+BN想收回来自己干吧，毕竟其他都是自己独吃，cg还得分cy一杯羹</blockquote>
+但是就万南的技术力和产能，实际开发也还是要外包吧，感觉更大问题是KMR的主机梦
+
