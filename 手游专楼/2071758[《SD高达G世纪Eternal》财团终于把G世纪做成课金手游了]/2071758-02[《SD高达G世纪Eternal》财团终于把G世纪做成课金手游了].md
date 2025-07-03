@@ -6891,3 +6891,11 @@ sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，
 
 这招调虎离山真是妙啊，EX6就这么把总帅骗出来鲨了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2116#       发表于 2025-7-3 18:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EX1使命非得把GQUX SP吗，感觉太亏了
+
