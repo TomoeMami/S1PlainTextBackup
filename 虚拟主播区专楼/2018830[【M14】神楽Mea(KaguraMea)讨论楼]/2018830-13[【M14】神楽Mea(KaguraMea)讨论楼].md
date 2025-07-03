@@ -55289,3 +55289,20 @@ shaka前几天带出来的那几个切片没什么坏处吧？一般通过看了
 
 情绪不稳定是打比赛导致的
 
+
+*****
+
+####  poipanchao  
+##### 18979#       发表于 2025-7-3 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041845&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-3 21:57</a>
+
+昨天有虹吗，你看的是猫立...？
+
+情绪不稳定是打比赛导致的</blockquote>
+现在主看vspo了
+
+从之前跟ramu关系好起来的那次比赛就有这个疑惑了，印象中没有这么极端啊
+
+说起来有点好奇，我记得去年还有传闻大亏跟猫私下组排过撸和瓦，主播这边没有吗？
+
