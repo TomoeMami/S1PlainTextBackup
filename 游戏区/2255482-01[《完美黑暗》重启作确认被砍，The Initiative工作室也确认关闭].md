@@ -1,0 +1,364 @@
+﻿
+*****
+
+####  天堂大法  
+##### 1#       楼主       发表于 2025-7-3 01:27
+
+Xbox确认已取消《完美黑暗》重启项目，并关闭The Initiative工作室。
+
+<img src="https://img.stage1st.com/forum/202507/03/012701ux4cwvl5nk4f5xwn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3986.jpeg</strong> (255.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 01:27 上传
+
+*****
+
+####  天堂大法  
+##### 2#         楼主| 发表于 2025-7-3 01:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是都放出大段游戏演示了，真没想到能被砍
+
+*****
+
+####  雪菜碧池  
+##### 3#       发表于 2025-7-3 01:36
+
+牛逼，明天没准神鬼寓言也砍了
+
+*****
+
+####  GrayishWh0  
+##### 4#       发表于 2025-7-3 01:39
+
+rare的那个ever wild被砍了。turn10裁了一半人，裁晚了只能说
+
+*****
+
+####  stair楼梯  
+##### 5#       发表于 2025-7-3 01:54
+
+印象里这几个游戏都是去年还是前年放了一些实机演示，和战争机器前传一起，只能说估摸着下个砍得估计是20年就公开的腐烂国度3了（瞅了眼也是去年才放出来第二还是第三个预告）
+
+*****
+
+####  时空之旅  
+##### 6#       发表于 2025-7-3 01:57
+
+我一直把这个和ngc硅骑士那个avg神作搞混，也叫什么黑暗。。。
+
+*****
+
+####  UnrealApartheid  
+##### 7#       发表于 2025-7-3 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037154&amp;ptid=2255482" target="_blank">时空之旅 发表于 2025-7-3 01:57</a>
+我一直把这个和ngc硅骑士那个avg神作搞混，也叫什么黑暗。。。</blockquote>
+无尽黑暗，Eternal Darkness
+Perfect Dark属于科幻谍战类题材
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Sanco  
+##### 8#       发表于 2025-7-3 03:05
+
+好不容易有个沉浸模拟大作<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 9#       发表于 2025-7-3 03:10
+
+怎么关的不是343<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrenaline!!!  
+##### 10#       发表于 2025-7-3 03:19
+
+halo工作室最好在十月拿出点大活说服一下粉丝
+
+*****
+
+####  D-JoeII  
+##### 11#       发表于 2025-7-3 05:44
+
+唉，這個還是挺期待的
+
+*****
+
+####  a2042312  
+##### 12#       发表于 2025-7-3 06:52
+
+唉，再也看不到4a大作了，遗憾：
+
+*****
+
+####  风景很好  
+##### 13#       发表于 2025-7-3 07:24
+
+沃日，这也能被砍
+
+*****
+
+####  Edgefield  
+##### 14#       发表于 2025-7-3 07:31
+
+N64上的那个的重启？
+
+*****
+
+####  卡拉德利姆  
+##### 15#       发表于 2025-7-3 07:51
+
+18 年成立 7年时间磨不出来一个作品 那你是该死啊
+
+*****
+
+####  madcow  
+##### 16#       发表于 2025-7-3 07:52
+
+看了下腐烂国度2是18年，3公布是2020年
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说早该杀杀杀了
+
+*****
+
+####  逸一死吾亦死  
+##### 17#       发表于 2025-7-3 08:21
+
+哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  clover293  
+##### 18#       发表于 2025-7-3 08:47
+
+这工作室我印象里当时都号称业界航母了。。。
+
+*****
+
+####  zid99825  
+##### 19#       发表于 2025-7-3 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037407&amp;ptid=2255482" target="_blank">madcow 发表于 2025-7-3 07:52</a>
+看了下腐烂国度2是18年，3公布是2020年
+
+要我说早该杀杀杀了</blockquote>
+腐烂国度3当时undead还说了是微软要，他们赶了个CG出来，当时根本没开始做。真正开始做是2的那个强化版出来之后的事了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  huahuaanying  
+##### 20#       发表于 2025-7-3 08:52
+
+现在的玩家除了考古党，基本不可能知道这个游戏了。
+
+*****
+
+####  white1dance  
+##### 21#       发表于 2025-7-3 09:01
+
+都有实机了还给砍 真有你的微软   怎么不把343砍了
+
+*****
+
+####  yuusuke  
+##### 22#       发表于 2025-7-3 09:11
+
+突然想起育碧那个超越善恶2 还活着吗
+
+*****
+
+####  曼彻斯特联  
+##### 23#       发表于 2025-7-3 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037758&amp;ptid=2255482" target="_blank">yuusuke 发表于 2025-7-3 09:11</a>
+突然想起育碧那个超越善恶2 还活着吗</blockquote>
+还活着，每隔一段时间育碧都会出来说一句超越善恶2依然在开发，上次是今年年初。
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nocode  
+##### 24#       发表于 2025-7-3 09:28
+
+去Steam愿望单里看了下，果然多了个不可用，下架动作还挺快
+
+*****
+
+####  卡拉德利姆  
+##### 25#       发表于 2025-7-3 09:29
+
+微软能下手 那段实机的含金量大概和圣歌当年那个钢铁侠demo差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rebirth_DAN  
+##### 26#       发表于 2025-7-3 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037758&amp;ptid=2255482" target="_blank">yuusuke 发表于 2025-7-3 09:11</a>
+
+突然想起育碧那个超越善恶2 还活着吗</blockquote>
+跟死了没啥区别了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在的育碧也估计做不出来了
+
+*****
+
+####  herryk159  
+##### 27#       发表于 2025-7-3 09:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">微软这几年拉得厉害，收购那么多工作室，产出了个寂寞
+
+*****
+
+####  mengsu  
+##### 28#       发表于 2025-7-3 09:48
+
+343这几年到底在干啥？就更新他那个蠢无限？
+
+*****
+
+####  suzakushi  
+##### 29#       发表于 2025-7-3 09:59
+
+至此，被誉为“赢在未来”的xbox 2020showcase发布的所有游戏几乎全部褒姒或取消，包括废渣8，光环无限，腐烂国度3，地狱之刃2，everwild，完美黑暗，宣誓。其他待褒姒或遥遥无期的还有老滚6和神鬼寓言。
+
+2025已经不是未来了，未来一定会赢的。永远剑指下个世代。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zid99825  
+##### 30#       发表于 2025-7-3 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037987&amp;ptid=2255482" target="_blank">mengsu 发表于 2025-7-3 09:48</a>
+343这几年到底在干啥？就更新他那个蠢无限？</blockquote>
+343已经没了，改名的halo studio现在基本上只能靠外包
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ybfelix  
+##### 31#       发表于 2025-7-3 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68038110&amp;ptid=2255482" target="_blank">zid99825 发表于 2025-7-3 10:04</a>
+
+343已经没了，改名的halo studio现在基本上只能靠外包
+
+论坛助手,iPhone</blockquote>
+人呢？都遣散了吗
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 32#       发表于 2025-7-3 10:37
+
+343陆陆续续清算完了呀
+去年还是前年的事了
+主创管理层换了
+宣布新作引擎换成虚幻五
+工作室名字也改成了光环工作室
+现在不叫343其实就是重组了
+毕竟是曾经负责做太子ip光环的组
+真解散也太难看
+所以这波裁员没动光环工作室
+因为早动过了
+
+—— 来自 realme RMX3370, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  chdhdhd  
+##### 33#       发表于 2025-7-3 10:40
+
+ 本帖最后由 chdhdhd 于 2025-7-3 10:54 编辑 
+
+不算是很可惜。感觉不被砍，大概率也不能端出很好东西的样子
+
+*****
+
+####  玉米须茶  
+##### 34#       发表于 2025-7-3 10:48
+
+微软第一方，除了动暴
+
+全砍了好像也没啥
+
+*****
+
+####  zid99825  
+##### 35#       发表于 2025-7-3 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68038165&amp;ptid=2255482" target="_blank">ybfelix 发表于 2025-7-3 10:13</a>
+
+人呢？都遣散了吗</blockquote>
+管理层不是早没了，之前的坑也和剩下的打工仔没什么关系
+
+*****
+
+####  qumkml423  
+##### 36#       发表于 2025-7-3 12:10
+
+当时软软组The Initiative的时候说挖了多少牛逼项目的核心主创大牛还以为能来个超级大作，合着又是挖来混工资的啊，不过这个什么完美黑暗一眼girl power神游，砍了好
+
+*****
+
+####  madcow  
+##### 37#       发表于 2025-7-3 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68038165&amp;ptid=2255482" target="_blank">ybfelix 发表于 2025-7-3 10:13</a>
+
+人呢？都遣散了吗</blockquote>
+战犯头子邦尼螺丝说是跳去多邻国了
+
+*****
+
+####  u2deack  
+##### 38#       发表于 2025-7-3 12:49
+
+好像说是od也不做了？
+
+*****
+
+####  D-JoeII  
+##### 39#       发表于 2025-7-3 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037983&amp;ptid=2255482" target="_blank">herryk159 发表于 2025-7-3 09:47</a>
+
+微软这几年拉得厉害，收购那么多工作室，产出了个寂寞</blockquote>
+微軟這兩年不就是因為產出夠多所以高層隨便亂裁員都行嗎
+
+算上這次已經裁了兩次員,都依然能在今年發行8個第一方遊戲
+
+就怕他們可能不搞新IP的3A了,要麼老IP吸金遊戲要麼小體量新IP
+
+*****
+
+####  UnrealApartheid  
+##### 40#       发表于 2025-7-3 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039308&amp;ptid=2255482" target="_blank">u2deack 发表于 2025-7-3 12:49</a>
+好像说是od也不做了？</blockquote>
+都没看到有能证实的新闻，但我还是希望别取消掉
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  tigs1  
+##### 41#       发表于 2025-7-3 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039345&amp;ptid=2255482" target="_blank">D-JoeII 发表于 2025-7-3 12:55</a>
+微軟這兩年不就是因為產出夠多所以高層隨便亂裁員都行嗎
+
+算上這次已經裁了兩次員,都依然能在今年發行8個 ...</blockquote>
+产出够多？
+没几个有名气的吧
+
