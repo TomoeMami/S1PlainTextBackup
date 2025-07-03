@@ -6855,3 +6855,13 @@ cca新吉翁的三台开发机都是只有赛克谬，没有nt专用机标签，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一个陆仁贾  
+##### 2112#       发表于 2025-7-3 08:16
+
+sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，金币不够只能靠战舰模式脚本挂着，就只有pvp是玩得最多的了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
