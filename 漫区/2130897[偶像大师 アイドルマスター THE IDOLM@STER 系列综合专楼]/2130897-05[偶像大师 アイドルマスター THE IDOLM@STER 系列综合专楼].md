@@ -392,3 +392,11 @@ b站开官号了
 只能是学马，别的不说游戏质量如何，光是进度都差了三年以上，谁会去玩啊 ...</blockquote>
 scsp:我才1年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 7060#       发表于 2025-7-3 15:23
+
+就大B的抠门德行，大概率还是有官方机翻的MLTD吧，反正繁转简就一个按键的事儿，还能废物利用。至于翻译质量么，自有核心粉替大B擦屁股
+
