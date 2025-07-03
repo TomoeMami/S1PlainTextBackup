@@ -6899,3 +6899,16 @@ sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EX1使命非得把GQUX SP吗，感觉太亏了
 
+
+*****
+
+####  qixinno2  
+##### 2117#       发表于 2025-7-3 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041135&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-3 18:51</a>
+
+EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">试试这个
+
+【0突3UR无SP过EX6(开发机都没突满)】 [https://www.bilibili.com/video/BV1Cy3bzNE7A](https://www.bilibili.com/video/BV1Cy3bzNE7A)
+
