@@ -408,3 +408,13 @@ scsp:我才1年<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 mltd开过台服的啊，就是马上就死了而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜还是学马，我更关心的还是如果进来了谁来代理。
 
+
+*****
+
+####  osore  
+##### 7062#       发表于 2025-7-3 15:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你B啊，二次元舍我其谁
+
+一笔写不出两个B字
+
