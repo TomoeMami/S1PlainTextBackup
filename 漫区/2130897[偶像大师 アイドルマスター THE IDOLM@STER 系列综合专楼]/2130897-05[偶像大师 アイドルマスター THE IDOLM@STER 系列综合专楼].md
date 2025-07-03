@@ -503,3 +503,13 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  安广多惠子  
+##### 7068#       发表于 2025-7-3 22:26
+
+那一堆模仿账号笑死了，偶像大帅宫方
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
