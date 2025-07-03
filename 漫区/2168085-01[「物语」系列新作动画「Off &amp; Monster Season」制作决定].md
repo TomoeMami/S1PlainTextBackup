@@ -76,3 +76,37 @@ part2终于要来了吗
 
 — from samsung SM-S911U1, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  oi99o  
+##### 1016#       发表于 2025-7-3 17:03
+
+<img src="https://img.stage1st.com/forum/202507/03/170327jjtgobztg711qho2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 17:03 上传
+
+*****
+
+####  oi99o  
+##### 1017#       发表于 2025-7-3 17:04
+
+<img src="https://img.stage1st.com/forum/202507/03/170405j255gjhj2a0ahbaf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 17:04 上传
+
+*****
+
+####  oi99o  
+##### 1018#       发表于 2025-7-3 17:05
+
+原来还有特报pv，我还以为一个dj视频就完事了：[https://www.youtube.com/watch?v=8P2QF7ReJQE](https://www.youtube.com/watch?v=8P2QF7ReJQE)
+
