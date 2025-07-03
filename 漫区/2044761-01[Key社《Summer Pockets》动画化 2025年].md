@@ -92,3 +92,13 @@ Megami Magazine
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感想是真的好健全，不是字幕组标注我都不知道一夜无话了
 
+
+*****
+
+####  千叶铁矢  
+##### 188#       发表于 2025-7-3 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68026082&amp;ptid=2044761" target="_blank">镜hinata 发表于 2025-7-1 02:40</a>
+我的雷达告诉我,下一集苍要一睡不起了吧</blockquote>
+那刚好中奖了怎么办<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
