@@ -84,3 +84,11 @@ Megami Magazine
 —— 来自 HUAWEI PCT-AL10, Android 10, 鹅球 v3.5.99 ...</blockquote>
 除了真路线白羽妊娠生女之外，明确有一夜过去剧情的只有苍
 
+
+*****
+
+####  水莲寺流歌  
+##### 187#       发表于 2025-7-3 14:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感想是真的好健全，不是字幕组标注我都不知道一夜无话了
+

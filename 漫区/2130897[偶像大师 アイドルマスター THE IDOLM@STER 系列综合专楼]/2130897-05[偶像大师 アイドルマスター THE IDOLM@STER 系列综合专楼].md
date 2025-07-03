@@ -367,3 +367,11 @@ b站开官号了
 
 可以猜猜第一个手游国服会是哪个了。感觉大概率学马吧
 
+
+*****
+
+####  osore  
+##### 7057#       发表于 2025-7-3 14:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了学马其他不都半死了
+

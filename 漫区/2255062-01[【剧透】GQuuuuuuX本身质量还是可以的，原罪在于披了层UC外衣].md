@@ -73,3 +73,13 @@ IF是因不是果，鹤卷访谈已经出来了，他们一开始就是当同人
 
 不想说什么了，我还是回去再看遍旧的吧
 
+
+*****
+
+####  pokemon最爱  
+##### 52#       发表于 2025-7-3 14:50
+
+虽然但是，没有UCif的话GQX这片的剧情可以直接扔垃圾堆的好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+GQX的剧情我看下来就给我一种全是跑团roll出来的上文不接下文的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
