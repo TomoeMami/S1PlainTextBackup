@@ -150,3 +150,25 @@
 海玲还挺戳主播的，不知道她看到母鸡卡的海玲会作何感想</blockquote>
 mujica的海铃相比另外四个可以说最不疯。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adw667  
+##### 1673#       发表于 2025-7-3 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039669&amp;ptid=2201887" target="_blank">仟音一心 发表于 2025-7-3 14:11</a>
+
+mujica的海铃相比另外四个可以说最不疯。</blockquote>
+但是跟GO比起来还是反差挺大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 1674#       发表于 2025-7-3 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039694&amp;ptid=2201887" target="_blank">adw667 发表于 2025-7-3 14:17</a>
+
+但是跟GO比起来还是反差挺大的</blockquote>
+也就是定位变成搞笑女了。
+

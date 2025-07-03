@@ -349,3 +349,19 @@
 
 故事模式里就只有4条线了吗，没在动画出现的新团连个展开都不给吗Konami
 
+
+*****
+
+####  DARK_HGCG  
+##### 80#       发表于 2025-7-3 14:19
+
+难得哭出来了
+
+<img src="https://img.stage1st.com/forum/202507/03/141955d0aqgwgc87za27qb.gif" referrerpolicy="no-referrer">
+
+<strong>cZpC3FL - Imgur.gif</strong> (451.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 14:19 上传
+
