@@ -23,3 +23,14 @@
 
 店长在拍照<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2362#       发表于 2025-7-3 09:49
+
+[https://lycoris-recoil.com/special/scene/](https://lycoris-recoil.com/special/scene/)
+
+名场面投票
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三话没有转圈圈，只有私は君と会えて嬉しい！
+
