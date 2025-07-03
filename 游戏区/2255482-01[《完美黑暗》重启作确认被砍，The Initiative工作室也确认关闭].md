@@ -536,3 +536,15 @@ doom正常产出，cod稳定进行换代。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zid99825  
+##### 58#       发表于 2025-7-3 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039655&amp;ptid=2255482" target="_blank">awy002 发表于 2025-7-3 14:08</a>
+很有可能这轮裁员9100人，两个月前刚宣布裁员6000多人，现在算下来光2025年就裁了15000人 ...</blockquote>
+还没裁到疫情前的人数呢，这几年居家办公多招了很多人
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
