@@ -381,3 +381,25 @@ Tony Hawk是微軟的IP
 
 你還要啥名氣呢
 
+
+*****
+
+####  herryk159  
+##### 43#       发表于 2025-7-3 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039559&amp;ptid=2255482" target="_blank">D-JoeII 发表于 2025-7-3 13:44</a>
+
+DOOM是微軟的IP
+
+COD是微軟的IP
+
+Tony Hawk是微軟的IP</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我的，才回过神来这些已经算是微软第一方了
+
+*****
+
+####  BRAVADO  
+##### 44#       发表于 2025-7-3 13:56
+
+编辑zsbd
+
