@@ -126,3 +126,16 @@
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 母鸡卡如果是一次性看完可能还可以（把一些没办法想的东西直接掠过去），鱼这次看的挺急的就没能理解第九集soyo的回忆设计。全都带入在爱音这边觉得那个女人怎么那么坏啊w
 
+
+*****
+
+####  adw667  
+##### 1671#       发表于 2025-7-3 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037438&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-7-3 08:08</a>
+
+想看主播看母鸡卡了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+海玲还挺戳主播的，不知道她看到母鸡卡的海玲会作何感想<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
