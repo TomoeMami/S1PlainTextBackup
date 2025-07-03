@@ -410,3 +410,13 @@
 
 不折腾了...试了下要6加成的话还是妖兰双光兔加奥伯龙最稳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 17014#       发表于 2025-7-3 20:04
+
+10池以后就没有换金素材的票了吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
