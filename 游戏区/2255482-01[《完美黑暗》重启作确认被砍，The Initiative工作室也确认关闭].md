@@ -522,3 +522,17 @@ od没了是好事，physint的进度能快一点</blockquote>
 
 不如花点时间和钱琢磨授权搞个黄金眼重制真的
 
+
+*****
+
+####  笨蛋，我知道的  
+##### 57#       发表于 2025-7-3 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037983&amp;ptid=2255482" target="_blank">herryk159 发表于 2025-7-3 09:47</a>
+微软这几年拉得厉害，收购那么多工作室，产出了个寂寞</blockquote>
+谁说的，<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陶德星空虽然拉了，但是夺宝奇兵又雄起了，还掏出了老滚4重置。
+doom正常产出，cod稳定进行换代。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉的是那些微软自己整的原生工作室吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
