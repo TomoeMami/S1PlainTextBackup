@@ -6912,3 +6912,16 @@ EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
 
 【0突3UR无SP过EX6(开发机都没突满)】 [https://www.bilibili.com/video/BV1Cy3bzNE7A](https://www.bilibili.com/video/BV1Cy3bzNE7A)
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2118#       发表于 2025-7-3 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041214&amp;ptid=2071758" target="_blank">qixinno2 发表于 2025-7-3 19:09</a>
+
+试试这个
+
+【0突3UR无SP过EX6(开发机都没突满)】 https://www.bilibili.com/video/BV1Cy3bzNE7A ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是说EX1，找了好几个都是刚需双盾，要么就是UR支援角色数量拉满
+
