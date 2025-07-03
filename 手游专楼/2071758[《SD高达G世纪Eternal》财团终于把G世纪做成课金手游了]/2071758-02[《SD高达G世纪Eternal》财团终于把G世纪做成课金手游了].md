@@ -6865,3 +6865,11 @@ sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  arthes  
+##### 2113#       发表于 2025-7-3 10:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">pve好像是国服魔改的结果，毕竟有输入法卡房，早期是让馒头掉血到无限子弹再卡住boss来打，后面有S重炮就无所谓了
+
