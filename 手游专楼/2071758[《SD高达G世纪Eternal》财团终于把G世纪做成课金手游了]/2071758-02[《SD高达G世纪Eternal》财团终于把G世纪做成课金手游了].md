@@ -6976,3 +6976,16 @@ Ex1全开发作业，无sp无ur
 
 机跟驾驶都没
 
+
+*****
+
+####  rockroxas  
+##### 2123#       发表于 2025-7-3 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041608&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-7-3 20:51</a>
+
+命脉到手 已经可以轻松点打了</blockquote>
+还是等更轻松点的时候吧233
+
+实际上昨天我才刚把全开发做了，之前都少一台一击必杀seed不想做（流星正义塞了两台都差），传说一突了才去搞的
+
