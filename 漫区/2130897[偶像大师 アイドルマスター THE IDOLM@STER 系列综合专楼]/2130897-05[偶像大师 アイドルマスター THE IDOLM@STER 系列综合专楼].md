@@ -375,3 +375,20 @@ b站开官号了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了学马其他不都半死了
 
+
+*****
+
+####  游蜓  
+##### 7058#       发表于 2025-7-3 15:02
+
+只能是学马，别的不说游戏质量如何，光是进度都差了三年以上，谁会去玩啊
+
+*****
+
+####  信长的呕吐  
+##### 7059#       发表于 2025-7-3 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039917&amp;ptid=2130897" target="_blank">游蜓 发表于 2025-7-3 15:02</a>
+只能是学马，别的不说游戏质量如何，光是进度都差了三年以上，谁会去玩啊 ...</blockquote>
+scsp:我才1年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

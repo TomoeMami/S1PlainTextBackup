@@ -83,3 +83,13 @@ IF是因不是果，鹤卷访谈已经出来了，他们一开始就是当同人
 
 GQX的剧情我看下来就给我一种全是跑团roll出来的上文不接下文的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  广西桂系兵  
+##### 53#       发表于 2025-7-3 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+删掉UCif  纯看角色 这三个人的拉扯不如电光机王一根，难嗑程度超越露娜和飞鸟吧
+
