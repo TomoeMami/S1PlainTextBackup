@@ -11945,3 +11945,19 @@ Gundam GQuuuuuuX Beginning Design Works 3，自购自扫
 
 B站 [https://www.bilibili.com/video/B ... ge.video_card.click](https://www.bilibili.com/video/BV1Bf3bzREcc/?spm_id_from=333.1387.homepage.video_card.click)
 
+
+*****
+
+####  shinoverse  
+##### 23029#       发表于 2025-7-3 13:12
+
+想起来还有件事
+
+令和的animesong已经变成这样了么？
+
+OPED加上插曲数量倒是不少，问题是听不出个子午卯酉，比起情感表达更像是在宣泄情绪，我寻思米津玄师自个儿的lemon也不是这个调调啊
+
+（倒是跟动画本身的混乱不堪对上了）
+
+铁血水魔gqux也就铁血的歌听起来顺耳，这下成为平成的老东西了
+
