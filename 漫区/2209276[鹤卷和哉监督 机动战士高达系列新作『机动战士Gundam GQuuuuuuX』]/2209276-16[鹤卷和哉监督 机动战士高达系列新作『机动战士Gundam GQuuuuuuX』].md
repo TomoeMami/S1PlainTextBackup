@@ -12031,3 +12031,20 @@ byt、eva暴走和给我一双翅膀都不能算是GQX的插入曲。
 
 这里是最最让人不舒服的地方
 
+
+*****
+
+####  LadySaazbaum  
+##### 23034#       发表于 2025-7-3 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039790&amp;ptid=2209276" target="_blank">28201 发表于 2025-7-3 14:35</a>
+
+你的分析和观点我很同意，也不是硬要看骡来走个场或者看骡大赢特赢
+
+但是这片给我感觉他俩是怎么爽怎么写的 ...</blockquote>
+再反过来说，骡子在恰当的时候走过场说一句台词，其实是对待老角色的常规操作，独角兽和闪哈都是这样做的没问题
+
+GQX的问题不是把骡子做成机魂，而是没有同样把鸭子架起来做成机魂，而是让他又飒爽又美发还有魔法少女变身以及疯狂麦麸最后还抱走了本世界线拉拉，两边戏份出奇不对等才引发种种不满。
+
+还能怎么说呢，你骡叔叔当了45年男一番，这次就让让小鸭子吧<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
