@@ -55314,3 +55314,13 @@ shaka前几天带出来的那几个切片没什么坏处吧？一般通过看了
 
 那是地星关联组的，和主播没关系
 
+
+*****
+
+####  格林卡罗尔  
+##### 18981#       发表于 2025-7-4 00:09
+
+我觉得不太妙，打比赛的这些场切片有点太挑人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
