@@ -362,3 +362,22 @@ N64上的那个的重启？
 产出够多？
 没几个有名气的吧
 
+
+*****
+
+####  D-JoeII  
+##### 42#       发表于 2025-7-3 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039526&amp;ptid=2255482" target="_blank">tigs1 发表于 2025-7-3 13:36</a>
+
+产出够多？
+
+没几个有名气的吧</blockquote>
+DOOM是微軟的IP
+
+COD是微軟的IP
+
+Tony Hawk是微軟的IP
+
+你還要啥名氣呢
+
