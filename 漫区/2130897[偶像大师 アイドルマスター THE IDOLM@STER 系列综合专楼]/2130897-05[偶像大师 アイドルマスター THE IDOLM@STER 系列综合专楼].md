@@ -400,3 +400,11 @@ scsp:我才1年<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 就大B的抠门德行，大概率还是有官方机翻的MLTD吧，反正繁转简就一个按键的事儿，还能废物利用。至于翻译质量么，自有核心粉替大B擦屁股
 
+
+*****
+
+####  cckuku  
+##### 7061#       发表于 2025-7-3 15:38
+
+mltd开过台服的啊，就是马上就死了而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜还是学马，我更关心的还是如果进来了谁来代理。
+
