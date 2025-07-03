@@ -11030,3 +11030,13 @@ fs确实该加班加点了，机不可失时不再来
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  usodakedo  
+##### 1064#       发表于 2025-7-3 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68042073&amp;ptid=2210352" target="_blank">聊nsy专用号 发表于 2025-7-3 23:00</a>
+打了几局认为砍血量倒不是什么问题，红虫子多复活几次也就是榨干玩家蓝而已。问题三阶段两个虫子完全各打各 ...</blockquote>
+估计是怕玩家抱怨太难，别看fs经常嘴硬，但这种事做的还挺多的，像ac6也有类似的情况，第一个还是第二个补丁把艾斯比削弱了ai，但当时我是觉得完全没必要
+
