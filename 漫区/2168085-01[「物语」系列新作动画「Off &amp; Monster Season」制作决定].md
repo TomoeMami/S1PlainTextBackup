@@ -110,3 +110,43 @@ part2终于要来了吗
 
 原来还有特报pv，我还以为一个dj视频就完事了：[https://www.youtube.com/watch?v=8P2QF7ReJQE](https://www.youtube.com/watch?v=8P2QF7ReJQE)
 
+
+*****
+
+####  Unlight  
+##### 1019#       发表于 2025-7-3 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68040591&amp;ptid=2168085" target="_blank">oi99o 发表于 2025-7-3 17:04</a></blockquote>
+封面怎么还是不带牢仓玩<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 1020#         楼主| 发表于 2025-7-3 17:09
+
+┏━━━━━━━━━━━━┓
+
+　　   〈物語〉シリーズ
+
+　オフ&amp;モンスターシーズン
+
+　▸新エピソード制作決定◂
+
+┗━━━━━━━━━━━━┛
+
+■ティザービジュアル解禁
+
+▽ティザービジュアル解禁PV
+[https://youtu.be/8P2QF7ReJQE](https://youtu.be/8P2QF7ReJQE)
+
+<img src="https://p.sda1.dev/25/c60471d0af34ff9aae2802829708f126/20250703_170718.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  狼王卢比奥  
+##### 1021#       发表于 2025-7-3 17:11
+
+不知道这次做哪几部
+
