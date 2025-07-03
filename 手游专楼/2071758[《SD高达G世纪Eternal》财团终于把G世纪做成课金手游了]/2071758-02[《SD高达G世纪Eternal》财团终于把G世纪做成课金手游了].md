@@ -6961,3 +6961,18 @@ EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
 现在看来是拯救不了吧（</blockquote>
 命脉到手 已经可以轻松点打了
 
+
+*****
+
+####  rockroxas  
+##### 2122#       发表于 2025-7-3 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041255&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-3 19:19</a>
+
+我是说EX1，找了好几个都是刚需双盾，要么就是UR支援角色数量拉满</blockquote>
+[https://www.bilibili.com/video/BV1eq7hzgEuD](https://www.bilibili.com/video/BV1eq7hzgEuD)
+
+Ex1全开发作业，无sp无ur
+
+机跟驾驶都没
+
