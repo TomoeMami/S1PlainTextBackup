@@ -548,3 +548,18 @@ doom正常产出，cod稳定进行换代。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  outerish  
+##### 59#       发表于 2025-7-3 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68040609&amp;ptid=2255482" target="_blank">嘉术2015 发表于 2025-7-3 17:06</a>
+
+与其说会被砍，不如考虑当初为什么会立项
+
+完美黑暗这个ip真的有什么号召力吗
+
+不如花点时间和钱琢磨授权搞个 ...</blockquote>
+当初XGP增长迅猛，微软想要在2030年获得一亿订阅户，为了达成目标给一堆项目投钱
+

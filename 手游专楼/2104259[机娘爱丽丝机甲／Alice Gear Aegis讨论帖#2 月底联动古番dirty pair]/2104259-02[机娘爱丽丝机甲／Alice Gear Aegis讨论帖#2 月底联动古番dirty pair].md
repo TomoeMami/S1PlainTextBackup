@@ -101,3 +101,14 @@
 是不是EIN啊，easy开房把人骗进来后直接切到要击，属性都变了换人的时间都不给就直接开战。耐着性子陪他 ...</blockquote>
 没错就是这个ID。
 
+
+*****
+
+####  冰风血羽  
+##### 1522#       发表于 2025-7-3 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68040856&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-7-3 17:49</a>
+
+是不是EIN啊，easy开房把人骗进来后直接切到要击，属性都变了换人的时间都不给就直接开战。耐着性子陪他 ...</blockquote>
+看来声名远扬啊，大家都遭过毒手
+

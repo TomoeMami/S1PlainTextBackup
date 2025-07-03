@@ -6946,3 +6946,18 @@ EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
 EX1使命非得把GQUX SP吗，感觉太亏了</blockquote>
 不用啊有双红高会好打不需要sp的需要的是100w的ult
 
+
+*****
+
+####  AminGly  
+##### 2121#       发表于 2025-7-3 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68030387&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-1 20:49</a>
+
+话说回来
+
+之前指望种命开发图拯救下ex3的扎夫特成就
+
+现在看来是拯救不了吧（</blockquote>
+命脉到手 已经可以轻松点打了
+
