@@ -6873,3 +6873,11 @@ sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">pve好像是国服魔改的结果，毕竟有输入法卡房，早期是让馒头掉血到无限子弹再卡住boss来打，后面有S重炮就无所谓了
 
+
+*****
+
+####  qixinno2  
+##### 2114#       发表于 2025-7-3 11:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这逆鸭开发机材料要求也太逆天了吧 一个过度就要二十多个你在开玩笑么
+
