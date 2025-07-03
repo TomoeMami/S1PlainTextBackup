@@ -6881,3 +6881,13 @@ sd高达，pve副本最高难度弄定身都能因为输出不够没法通关，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这逆鸭开发机材料要求也太逆天了吧 一个过度就要二十多个你在开玩笑么
 
+
+*****
+
+####  马桶3  
+##### 2115#       发表于 2025-7-3 13:02
+
+[https://www.bilibili.com/video/BV1NZ3xzfECw](https://www.bilibili.com/video/BV1NZ3xzfECw)
+
+这招调虎离山真是妙啊，EX6就这么把总帅骗出来鲨了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
