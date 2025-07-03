@@ -10959,3 +10959,14 @@ fs确实该加班加点了，机不可失时不再来
 
 下次我真的填太简单，王蛾子在单人和开黑的情况下确实太简单了，也许野排会有难度
 
+
+*****
+
+####  shyso  
+##### 1057#       发表于 2025-7-3 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68035208&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-2 17:12</a>
+
+武器上方增加了武器类型标注，以后我不会再把各种大型武器搞错成特大了</blockquote>
+史诗更新！至此黑环已是完美游戏！
+
