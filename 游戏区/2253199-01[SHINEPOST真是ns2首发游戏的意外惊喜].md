@@ -375,3 +375,21 @@
 故事模式里就只有4条线了吗，没在动画出现的新团连个展开都不给吗Konami</blockquote>
 不会出吧大概，剧情都有偶像团体供过于求的台词了
 
+
+*****
+
+####  FINALFANTASYⅪ  
+##### 82#       发表于 2025-7-4 03:17
+
+<img src="https://img.stage1st.com/forum/202507/04/031559baai121l07ahayja.jpg" referrerpolicy="no-referrer">
+
+<strong>1000011290.jpg</strong> (354.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 03:15 上传
+
+b站有uo已经7周末，她游戏系统讲解的挺好的，适合新手先去看看
+
+【NS2护航作《shine post闪耀路标—成为你的偶像》猛肝7周目！好玩吗？！耐玩吗！？怎么玩！！？？一个视频给你讲清楚！-哔哩哔哩】 https://b23.tv/jpuLylU
+
