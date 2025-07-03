@@ -6989,3 +6989,18 @@ Ex1全开发作业，无sp无ur
 
 实际上昨天我才刚把全开发做了，之前都少一台一击必杀seed不想做（流星正义塞了两台都差），传说一突了才去搞的
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2124#       发表于 2025-7-4 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68042257&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-3 23:29</a>
+
+https://www.bilibili.com/video/BV1eq7hzgEuD
+
+Ex1全开发作业，无sp无ur
+
+机跟驾驶都没</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢，但是来晚了没看到，还是分成两次打，一下就豁然开朗了，也就浪费个三四分钟
+
