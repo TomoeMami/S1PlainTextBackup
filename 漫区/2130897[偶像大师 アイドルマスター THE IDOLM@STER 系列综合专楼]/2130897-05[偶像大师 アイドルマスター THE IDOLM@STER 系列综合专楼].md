@@ -438,3 +438,11 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 老东西爆不出米想啥呢，
 而且有没有国服还不一定。
 
+
+*****
+
+####  第三艺能课  
+##### 7065#       发表于 2025-7-3 21:32
+
+现在b站很多原来投偶像大师相关视频的up主都换上了官方同款或者跟官方头像很相似的头像，看起来还是有点搞笑的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
