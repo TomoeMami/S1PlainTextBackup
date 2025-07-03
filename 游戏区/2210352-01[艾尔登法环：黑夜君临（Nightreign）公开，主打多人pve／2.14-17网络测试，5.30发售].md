@@ -10890,3 +10890,21 @@ fs确实该加班加点了，机不可失时不再来
 
 （顺带一提，我觉得神鹰哥的【延长旋风】其实也是蛮关键的词条，靠其的持续硬控，前期就能低风险速杀各种精英人形怪营地以及囚笼BOSS，极大补足了神鹰哥清图能力弱的劣势。神鹰哥最大的问题还是对专属词条依赖程度过高，有和没有的强度差太明显了……）
 
+
+*****
+
+####  火红之眼  
+##### 1049#       发表于 2025-7-3 13:17
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/455.png" referrerpolicy="no-referrer">蛾子感觉比人马还弱.....大概是队友比较聪明，都知道怎么遛这三，毫无波澜就过了.......
+
+
+*****
+
+####  usodakedo  
+##### 1050#       发表于 2025-7-3 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68039450&amp;ptid=2210352" target="_blank">火红之眼 发表于 2025-7-3 13:17</a>
+蛾子感觉比人马还弱.....大概是队友比较聪明，都知道怎么遛这三，毫无波澜就过了....... ...</blockquote>
+有没有可能是因为上次填表时有太多人选了“感觉boss很难”这一选项<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
