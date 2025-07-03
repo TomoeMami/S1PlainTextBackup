@@ -411,3 +411,39 @@ Tony Hawk是微軟的IP</blockquote>
 
 rare没有重演当年叫嚣挑衅老东家的举动，看来连基本的气力都没有了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 46#       发表于 2025-7-3 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68037758&amp;ptid=2255482" target="_blank">yuusuke 发表于 2025-7-3 09:11</a>
+突然想起育碧那个超越善恶2 还活着吗</blockquote>
+死了，尸体拿去做秽土转生的材料出来了星战亡命徒
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  awy002  
+##### 47#       发表于 2025-7-3 14:08
+
+<blockquote>D-JoeII 发表于 2025-7-3 12:55
+微軟這兩年不就是因為產出夠多所以高層隨便亂裁員都行嗎
+
+算上這次已經裁了兩次員,都依然能在今年發行8個 ...</blockquote>
+很有可能这轮裁员9100人，两个月前刚宣布裁员6000多人，现在算下来光2025年就裁了15000人
+
+*****
+
+####  半江瑟瑟半江红  
+##### 48#       发表于 2025-7-3 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68038421&amp;ptid=2255482" target="_blank">玉米须茶 发表于 2025-7-3 10:48</a>
+微软第一方，除了动暴
+
+全砍了好像也没啥</blockquote>
+黑曜石：？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
