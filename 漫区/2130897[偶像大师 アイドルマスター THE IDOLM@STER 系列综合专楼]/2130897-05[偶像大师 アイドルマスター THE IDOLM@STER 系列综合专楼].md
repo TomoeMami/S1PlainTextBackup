@@ -418,3 +418,14 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 一笔写不出两个B字
 
+
+*****
+
+####  ヒトニナル  
+##### 7063#       发表于 2025-7-3 16:28
+
+本命：学马
+対抗：mltd
+穴：scsp
+大穴：合作开发的sideM新手游<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
