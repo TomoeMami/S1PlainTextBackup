@@ -79,3 +79,14 @@
 俩人开就能拉扯一阵子，随便4个80+70基本都是乱杀。
 当然很偶尔也有蝎子转一下送走仨的时候。
 
+
+*****
+
+####  不灭的旋律  
+##### 1520#       发表于 2025-7-3 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68022588&amp;ptid=2104259" target="_blank">regular 发表于 2025-6-30 13:12</a>
+
+我是老瞧见一个房主，开在easy写着做日常，人进去就切到要击。</blockquote>
+是不是EIN啊，easy开房把人骗进来后直接切到要击，属性都变了换人的时间都不给就直接开战。耐着性子陪他打完招呼也不打，直接黑名单了看到就绕道走。
+

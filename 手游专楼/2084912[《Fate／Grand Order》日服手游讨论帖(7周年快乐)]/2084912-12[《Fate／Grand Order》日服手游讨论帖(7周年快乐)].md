@@ -402,3 +402,11 @@
 
 白枪10羁绊了，自回体吧，掉了第二张礼装，满破造福好友了。
 
+
+*****
+
+####  森兰丸  
+##### 17013#       发表于 2025-7-3 17:50
+
+不折腾了...试了下要6加成的话还是妖兰双光兔加奥伯龙最稳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
