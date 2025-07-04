@@ -11129,3 +11129,11 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 而延长时间比较脑死，可以确保每个印记都可以靠伤害爆掉
 
+
+*****
+
+####  modkingr  
+##### 1073#       发表于 2025-7-5 02:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">打这种公认的彩笔boss翻车了可能挫败感比上两周更强，看好本周社区出现大量野人抱怨贴
+
