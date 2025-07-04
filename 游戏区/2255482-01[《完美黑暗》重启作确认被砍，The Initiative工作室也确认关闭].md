@@ -595,3 +595,11 @@ doom正常产出，cod稳定进行换代。
 
 **……操
 
+
+*****
+
+####  madcow  
+##### 63#       发表于 2025-7-4 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些事不能多想，总不能说以后群众看到你软发新游戏预告片都要抱着指不定哪天就被砍了的心态谨慎期待吧
+
