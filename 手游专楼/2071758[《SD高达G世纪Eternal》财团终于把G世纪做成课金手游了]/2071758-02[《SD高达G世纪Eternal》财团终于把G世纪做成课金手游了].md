@@ -7137,3 +7137,20 @@ Ex1全开发作业，无sp无ur
 
 一个还是要抽的
 
+
+*****
+
+####  rockroxas  
+##### 2137#       发表于 2025-7-5 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047141&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-7-4 22:22</a>
+
+一击必杀的问题是只有2个一击必杀主角盾
+
+一个还是要抽的</blockquote>
+上次不也有不吃词条强行用一击必杀打上去的，15w很容易吧
+
+红异端要抽没盾，能天使要SP，不是一星拉克丝以上估计不如随便找个吃标签的盾凑合
+
+不过我一星拉克丝，上次SP了个必杀盾，最后打下来还是不如0星塞可缪队分高……怪事
+
