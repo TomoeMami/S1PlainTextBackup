@@ -1123,3 +1123,16 @@ p4g因为上Steam上得早，玩过p4g的人应该比玩过p3f的人多多了吧
 
 如果外包给东星是真的，那确实可以解释为什么p组在p6开发档期有空开p4r，以及为什么p4r模型和渲染风格都跟p3r不太像。
 
+
+*****
+
+####  Gigax  
+##### 123#       发表于 2025-7-4 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+那岂不是可以理解为p4r这个项目的存在就纯为了p5x联动这叠醋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
