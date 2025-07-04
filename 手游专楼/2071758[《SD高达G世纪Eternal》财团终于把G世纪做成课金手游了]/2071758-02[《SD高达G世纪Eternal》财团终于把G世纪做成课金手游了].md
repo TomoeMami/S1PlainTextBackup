@@ -7020,3 +7020,15 @@ Ex1全开发作业，无sp无ur
 
 脚本动作放慢一点，正常你把开发图拉到头，61式图标是在中间偏左的位置，但是刚开发完的瞬间他会移到屏幕正中间，循环多了就出错了
 
+
+*****
+
+####  一个陆仁贾  
+##### 2127#       发表于 2025-7-4 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043666&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-4 10:41</a>
+多次开发61式，时间久了画面会莫名其妙的卡到别的地方去，导致脚本点错，诸位有这种情况发生吗。模拟器用的 ...</blockquote>
+脚本点击速度太快了，把点击间隔延长
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
