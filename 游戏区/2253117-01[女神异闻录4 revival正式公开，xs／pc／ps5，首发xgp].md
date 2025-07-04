@@ -1198,3 +1198,16 @@ xbox发布会直播下面的实时评论全都是刷p4的
 
 反正Atlus要把收割粉丝进行到底的，就是不知道什么时候是最后一根稻草。
 
+
+*****
+
+####  Demi.Albertini  
+##### 131#       发表于 2025-7-4 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+打工王东星？
+
