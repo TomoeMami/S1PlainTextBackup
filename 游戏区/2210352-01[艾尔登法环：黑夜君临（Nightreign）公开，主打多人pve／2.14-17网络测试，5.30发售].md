@@ -11137,3 +11137,17 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">打这种公认的彩笔boss翻车了可能挫败感比上两周更强，看好本周社区出现大量野人抱怨贴
 
+
+*****
+
+####  shyso  
+##### 1074#       发表于 2025-7-5 03:18
+
+ 本帖最后由 shyso 于 2025-7-5 03:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047767&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-7-5 02:36</a>
+
+我现在感觉铁眼的延长印记时间有点重要了，这把全程几乎没怎么看铁眼印记爆过。玩铁眼印记挂了不爆跟没挂没 ...</blockquote>
+我昨天过的一把用的铁眼，全程拉蛾子打蛾子没挂过印记，但是拿了远程的饰品和武器还有远程衰减降低（这个打boss太重要了）
+
+我野排喜欢用铁眼，打boss很少挂印记，除非是十分明确的安全窗口，毕竟身板儿太脆，boss身边浪一下死了损失可比没挂印记大多了，活着才有dps，而且印记nerf之后用起来真的很卡手，无比怀念之前丝滑的零起手顺发滑铲
+
