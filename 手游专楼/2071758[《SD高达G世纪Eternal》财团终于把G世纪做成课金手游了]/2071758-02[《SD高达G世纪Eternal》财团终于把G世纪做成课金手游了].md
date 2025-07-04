@@ -7004,3 +7004,11 @@ Ex1全开发作业，无sp无ur
 机跟驾驶都没</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢，但是来晚了没看到，还是分成两次打，一下就豁然开朗了，也就浪费个三四分钟
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2125#       发表于 2025-7-4 10:41
+
+多次开发61式，时间久了画面会莫名其妙的卡到别的地方去，导致脚本点错，诸位有这种情况发生吗。模拟器用的mumu
+
