@@ -7032,3 +7032,18 @@ Ex1全开发作业，无sp无ur
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  大十字紅朔  
+##### 2128#       发表于 2025-7-4 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68042257&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-3 23:29</a>
+
+https://www.bilibili.com/video/BV1eq7hzgEuD
+
+Ex1全开发作业，无sp无ur
+
+机跟驾驶都没</blockquote>
+那种要求30万战斗力的有没有无UR作业……<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
