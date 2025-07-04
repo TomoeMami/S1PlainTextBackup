@@ -513,3 +513,82 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  第三艺能课  
+##### 7069#       发表于 2025-7-3 21:32
+
+现在b站很多原来投偶像大师相关视频的up主都换上了官方同款或者跟官方头像很相似的头像，看起来还是有点搞笑的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  aimbot  
+##### 7070#       发表于 2025-7-3 21:55
+
+<img src="https://img.stage1st.com/forum/202507/03/215447ccjtz3vuhuuu53yz.png" referrerpolicy="no-referrer">
+
+<strong>1000173170.png</strong> (58.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202507/03/215447zc1a9u1ijg1b0n9g.png" referrerpolicy="no-referrer">
+
+<strong>1000173172.png</strong> (49.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202507/03/215447rubinnxz8gjujxjn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000173167.jpg</strong> (84.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202507/03/215448sq6ltq010s66s161.png" referrerpolicy="no-referrer">
+
+<strong>1000173169.png</strong> (56.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202507/03/215448vla6khc1dblkccib.jpg" referrerpolicy="no-referrer">
+
+<strong>1000173168.jpg</strong> (131.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-3 21:54 上传
+
+*****
+
+####  Unlight  
+##### 7071#         楼主| 发表于 2025-7-3 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041836&amp;ptid=2130897" target="_blank">aimbot 发表于 2025-7-3 21:55</a></blockquote>
+怎么就凛世的是正常的（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安广多惠子  
+##### 7072#       发表于 2025-7-3 22:26
+
+那一堆模仿账号笑死了，偶像大帅宫方
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  第三艺能课  
+##### 7073#       发表于 2025-7-4 12:26
+
+偶像大师B站官号发文章了（打招呼），应该是正式开始运营了，大家可以关注了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

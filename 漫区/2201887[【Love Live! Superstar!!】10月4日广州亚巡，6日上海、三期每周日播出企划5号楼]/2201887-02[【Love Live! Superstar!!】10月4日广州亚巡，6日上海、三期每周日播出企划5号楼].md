@@ -214,3 +214,15 @@ mujica的海铃相比另外四个可以说最不疯。</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1680#       发表于 2025-7-4 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043465&amp;ptid=2201887" target="_blank">starring 发表于 2025-7-4 10:12</a>
+疑似是18-20号的深圳国际电玩节
+
+—— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.5.99</blockquote>
+基本确定<img src="https://p.sda1.dev/25/d4708750f20de06c5ff4d7b8d75f41d9/image.jpg" referrerpolicy="no-referrer">
+
