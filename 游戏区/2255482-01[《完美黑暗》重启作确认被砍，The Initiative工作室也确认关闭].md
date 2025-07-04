@@ -603,3 +603,16 @@ doom正常产出，cod稳定进行换代。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些事不能多想，总不能说以后群众看到你软发新游戏预告片都要抱着指不定哪天就被砍了的心态谨慎期待吧
 
+
+*****
+
+####  ybfelix  
+##### 64#       发表于 2025-7-4 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043096&amp;ptid=2255482" target="_blank">pgain2004 发表于 2025-7-4 09:18</a>
+
+看楼里没人提，可能大部分人都不太清楚？
+
+因为有说展上播放的那个质量本来就一般般的游戏演示，是假的，是 ...</blockquote>
+没有，本来对自杀小队这个IP感觉就不咋地了，后来听说是赛季制合作打枪，这个项目在我这就死透了，就算什么物料都没放出直接取消，我也会说似的好
+
