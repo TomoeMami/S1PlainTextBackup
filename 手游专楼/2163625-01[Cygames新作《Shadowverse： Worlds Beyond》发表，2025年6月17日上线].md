@@ -5320,3 +5320,11 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">广场赛补偿还没发，已经在考虑转生国际服的事情了
 
+
+*****
+
+####  辞冬  
+##### 393#       发表于 2025-7-4 16:59
+
+我看了下国际服3妹异画初始才30，怎么初始号都这么卷啊
+

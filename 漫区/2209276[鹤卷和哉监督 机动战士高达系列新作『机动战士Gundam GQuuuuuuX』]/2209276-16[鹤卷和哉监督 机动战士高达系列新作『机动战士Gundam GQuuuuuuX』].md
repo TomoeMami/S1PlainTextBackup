@@ -12382,3 +12382,38 @@ tomoyo怒批GQX：女主角像一头猪
 虽然但是，最后不是才揭露骡子一直在gqx里面吗…骡子打元祖，我倒还挺喜欢这个设计（虽然衬托得主角组更 ...</blockquote>
 为什么非得让元祖当boss?单纯为了骡子承认白色恶魔杀拉拉是错的这盘醋么
 
+
+*****
+
+####  岸浪白野  
+##### 23053#       发表于 2025-7-4 17:00
+
+<img src="https://img.stage1st.com/forum/202507/04/170051rwtnvr1je3lv44pe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 17:00 上传
+
+<img src="https://img.stage1st.com/forum/202507/04/170035bqjq1jpjqp1p2pjq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 17:00 上传
+
+*****
+
+####  vorfeed  
+##### 23054#       发表于 2025-7-4 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68045669&amp;ptid=2209276" target="_blank">Ironman_mk5 发表于 2025-7-4 16:47</a>
+为什么非得让元祖当boss?单纯为了骡子承认白色恶魔杀拉拉是错的这盘醋么</blockquote>
+和OO最后与O高达对决的象征意义是一样的  突破原始的框架  新世代对旧时代的超越
+
+这个作法本身其实是没有问题的  但是制作组到了临门一脚又不敢让原创的新角色打破原始文本的神圣性  只能借助原有的权威来形成自我否定
+
+或者他们一开始就没有想过要有什么意义  只是单纯觉得致敬必须回归原点  而能击败原点的也只有原点
+

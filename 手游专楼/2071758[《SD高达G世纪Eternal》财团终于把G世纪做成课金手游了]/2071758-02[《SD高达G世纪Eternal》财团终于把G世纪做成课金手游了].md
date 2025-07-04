@@ -7076,3 +7076,21 @@ Ex1全开发作业，无sp无ur
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  夜之光  
+##### 2131#       发表于 2025-7-4 16:56
+
+4开发左边主力集火，右边大量盾机保着5射程后退反击所有杂兵两回合。这关配置要求原来还挺高，100W红高达红蛇已经帮你省了两位置，现在右边有牛加（双盾）命运海牛可能会好很多。
+
+5就是凑两打手四个MAP，主要看要不要做复制人还是继续等新开发机，艾比安用傻子那就行。
+
+*****
+
+####  里村紅葉  
+##### 2132#       发表于 2025-7-4 16:56
+
+<img src="https://p.sda1.dev/25/70accb912c5612808f2277e68299c4e6/IMG_CMP_98897607.jpeg" referrerpolicy="no-referrer">
+不是哥们儿？？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
