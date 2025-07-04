@@ -1172,3 +1172,12 @@ Midori竟然还活着
 
 确实要外包还不如外包给完美吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 128#       发表于 2025-7-4 12:03
+
+虽然我并不是很想再玩，但是P4的重制好好做真有可能卖得蛮多的，拿出点诚意卖个三四百万应该没什么问题吧，真不知道他们怎么想的
+不过也可能是就算随便做他们觉得也能卖这个数
+
