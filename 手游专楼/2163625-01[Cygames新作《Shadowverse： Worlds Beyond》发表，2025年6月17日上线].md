@@ -5352,3 +5352,14 @@ RJxX9dy</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">国际服还有没填好友码的哥们吗，求互填
 
+
+*****
+
+####  辞冬  
+##### 397#       发表于 2025-7-5 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047590&amp;ptid=2163625" target="_blank">duraa 发表于 2025-7-5 00:40</a>
+
+国际服还有没填好友码的哥们吗，求互填</blockquote>
+我也搞了个国际服号，pEnm9sE，你发我我填你的吧
+
