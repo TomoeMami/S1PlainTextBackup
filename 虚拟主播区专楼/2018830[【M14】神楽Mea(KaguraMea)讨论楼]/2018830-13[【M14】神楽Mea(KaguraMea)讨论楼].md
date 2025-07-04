@@ -55340,3 +55340,14 @@ shaka前几天带出来的那几个切片没什么坏处吧？一般通过看了
 
 哦硬要说的话也是有的，你们认识的人里面的话大概和那个酒什么马的新虹男还有kr那个账户名叫日语很难的私下玩过，虽然应该也是间接认识
 
+
+*****
+
+####  onlv星骸  
+##### 18984#       发表于 2025-7-4 09:07
+
+nbuna结婚了，当初还是听mea翻唱入坑的，想看mea会有什么表示啊<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">。
+这个月大航海礼物有点想要。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
