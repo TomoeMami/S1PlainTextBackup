@@ -708,3 +708,16 @@ doom正常产出，cod稳定进行换代 ...</blockquote>
 
 以玩家的角度索尼3A第一方在23年下半開始沒影(跟微軟玩起了接力),有很成功嗎
 
+
+*****
+
+####  HATENA  
+##### 74#       发表于 2025-7-4 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68046843&amp;ptid=2255482" target="_blank">玉米须茶 发表于 2025-7-4 21:02</a>
+
+养了一堆饭桶，这还叫好？
+
+而且游戏审美堪忧，立项的都什么玩意</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">说得好像你索第一方有什么审美一样
+

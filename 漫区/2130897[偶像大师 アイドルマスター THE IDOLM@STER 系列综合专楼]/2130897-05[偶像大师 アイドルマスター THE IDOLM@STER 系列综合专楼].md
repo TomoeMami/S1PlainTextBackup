@@ -600,3 +600,19 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">藤田言音谁啊
 
+
+*****
+
+####  wfhtony  
+##### 7075#       发表于 2025-7-4 21:57
+
+<img src="https://img.stage1st.com/forum/202507/04/215606nu056jje70mmtbb1.png" referrerpolicy="no-referrer">
+
+<strong>週刊ファミ通_2024年5月30日号_No.1849_[雑誌]_[KFX]_—_電子書籍ビューア_2025-07-04.png</strong> (60.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 21:56 上传
+
+說是因爲姓名占卜結果不好而變成的「准・廢案」的來着w
+
