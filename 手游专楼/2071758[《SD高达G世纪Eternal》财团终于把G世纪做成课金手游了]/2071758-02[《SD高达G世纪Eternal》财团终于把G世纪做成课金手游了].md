@@ -7047,3 +7047,22 @@ Ex1全开发作业，无sp无ur
 机跟驾驶都没</blockquote>
 那种要求30万战斗力的有没有无UR作业……<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 2129#       发表于 2025-7-4 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68044693&amp;ptid=2071758" target="_blank">大十字紅朔 发表于 2025-7-4 13:29</a>
+
+那种要求30万战斗力的有没有无UR作业……</blockquote>
+4跟5开发机打法吗（
+
+刚需的其实是三动双援攻，这两关不太需求双防（但是挺需求带必闪的防，这个UR都没几个）
+
+缺的UR就要从SSR补，其实可能更难
+
+4需求双援一般是输出（龙骑强袭，SP自由），加伤（GQ红高达，WZ，Z，完美强袭），三动ULT红高达，SP自由要找卡池新出的露娜，W跟GQ红都有双援攻活动机师，唯有三动ULT红高达必须骡鸭鸡傻几个三动机师
+
+5左右都要三动把给光环攻击防御的机清一下，癌变有卡池W三动（前提是抽到），还是差一个；开发机输出紧张，W三动那个还是射击机师，不SP化癌变估计也打不动
+
