@@ -1920,3 +1920,16 @@ B降级到C 本来就是低打力的C然后还自带个ムードX，我要举报
 
 时间线推来看了几个小切片，表情活灵活现的，还带手柄联动的
 
+
+*****
+
+####  karastar  
+##### 1356#       发表于 2025-7-4 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047307&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-7-4 23:09</a>
+
+鲨皇转生的这个皮套有点厉害吧
+
+时间线推来看了几个小切片，表情活灵活现的，还带手柄联动的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">花钱和时间堆出来的，一般人别想了，大佬工期都排满了
+
