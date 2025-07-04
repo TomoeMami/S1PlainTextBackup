@@ -7115,3 +7115,25 @@ Ex1全开发作业，无sp无ur
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">操作录制已经是人为的为每一个步骤添加2-3秒的间隔，时间久了还是会瞎按。按到铁球也就罢了，按到吉姆那真是血亏爆炸
 
+
+*****
+
+####  AminGly  
+##### 2135#       发表于 2025-7-4 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68042317&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-3 23:43</a>
+
+还是等更轻松点的时候吧233
+
+实际上昨天我才刚把全开发做了，之前都少一台一击必杀seed不想做（流星正义塞 ...</blockquote>
+我全开发没做，特定队伍成就做了
+
+*****
+
+####  AminGly  
+##### 2136#       发表于 2025-7-4 22:22
+
+一击必杀的问题是只有2个一击必杀主角盾
+
+一个还是要抽的
+

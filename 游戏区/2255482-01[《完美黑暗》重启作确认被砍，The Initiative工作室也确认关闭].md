@@ -744,3 +744,20 @@ doom正常产出，cod稳定进行换代 ...</blockquote>
 以玩家的角度索尼3A第一方在23年下半開始沒影(跟微軟玩起了接力),有很成功嗎 ...</blockquote>
 索尼第二方剑星ff这种也不少啊，微软貌似没有这种的吧
 
+
+*****
+
+####  玉米须茶  
+##### 77#       发表于 2025-7-4 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047066&amp;ptid=2255482" target="_blank">HATENA 发表于 2025-7-4 22:02</a>
+
+说得好像你索第一方有什么审美一样，剑星甚至还是吉田修平给定下的，不然换现在连立项都过不了吧 ...</blockquote>
+什么你索
+
+索尼跟我有什么关系
+
+我PS5都没买
+
+莫名其妙
+

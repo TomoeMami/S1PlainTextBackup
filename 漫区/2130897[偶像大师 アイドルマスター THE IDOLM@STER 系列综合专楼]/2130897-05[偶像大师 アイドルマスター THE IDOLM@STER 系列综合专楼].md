@@ -616,3 +616,11 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 說是因爲姓名占卜結果不好而變成的「准・廢案」的來着w
 
+
+*****
+
+####  第三艺能课  
+##### 7076#       发表于 2025-7-4 22:24
+
+制作组有没有占卜一下“藤田琴音”这个名字<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
