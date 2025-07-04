@@ -667,3 +667,25 @@ doom正常产出，cod稳定进行换代 ...</blockquote>
 
 不过这样的话RARE早年间的遗产就基本被糟蹋光了，杀手本能几年前那次复活也不成功的样子
 
+
+*****
+
+####  tigs1  
+##### 70#       发表于 2025-7-4 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68046646&amp;ptid=2255482" target="_blank">风景很好 发表于 2025-7-4 20:12</a>
+菲尔还好吧，虽然多嘴但总比索尼哼哈(吉姆和赫尔曼)二将强</blockquote>
+这两人治下的ps5不比xbox成功多了，不如说现在的xbox还有啥翻盘的希望啊，连舆论都没了
+
+*****
+
+####  玉米须茶  
+##### 71#       发表于 2025-7-4 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68046646&amp;ptid=2255482" target="_blank">风景很好 发表于 2025-7-4 20:12</a>
+
+菲尔还好吧，虽然多嘴但总比索尼哼哈(吉姆和赫尔曼)二将强</blockquote>
+养了一堆饭桶，这还叫好？
+
+而且游戏审美堪忧，立项的都什么玩意
+
