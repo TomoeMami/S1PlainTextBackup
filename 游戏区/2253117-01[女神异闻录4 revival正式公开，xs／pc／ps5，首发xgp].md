@@ -1136,3 +1136,31 @@ p4g因为上Steam上得早，玩过p4g的人应该比玩过p3f的人多多了吧
 如果外包给东星是真的，那确实可以解释为 ...</blockquote>
 那岂不是可以理解为p4r这个项目的存在就纯为了p5x联动这叠醋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 124#       发表于 2025-7-4 11:38
+
+有点反直觉，毕竟p5x在日本卖的不咋地，p4r倒是无论多烂都能骗个三百多万销量
+
+
+*****
+
+####  jxzeroga0  
+##### 125#       发表于 2025-7-4 11:45
+
+居然不是外包给牢中牢美，感觉要烂完了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJOROY  
+##### 126#       发表于 2025-7-4 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+Midori竟然还活着
+
