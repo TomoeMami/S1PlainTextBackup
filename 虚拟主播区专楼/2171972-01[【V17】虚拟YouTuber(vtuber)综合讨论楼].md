@@ -1894,3 +1894,11 @@ B降级到C 本来就是低打力的C然后还自带个ムードX，我要举报
 
 是降头，西西给对面下了降头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 1353#       发表于 2025-7-4 20:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">甲子园一轮游 提前出局进入夏特训拿个威压感是吧，西西永远不亏
+
