@@ -1902,3 +1902,11 @@ B降级到C 本来就是低打力的C然后还自带个ムードX，我要举报
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">甲子园一轮游 提前出局进入夏特训拿个威压感是吧，西西永远不亏
 
+
+*****
+
+####  Ketestrait  
+##### 1354#       发表于 2025-7-4 21:19
+
+油男怎么每年打的都是这么惊险刺激沉重无比的比赛，是什么诅咒吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

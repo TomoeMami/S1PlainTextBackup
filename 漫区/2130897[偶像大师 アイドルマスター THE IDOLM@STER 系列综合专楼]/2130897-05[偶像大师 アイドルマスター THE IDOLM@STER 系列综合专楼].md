@@ -592,3 +592,11 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 偶像大师B站官号发文章了（打招呼），应该是正式开始运营了，大家可以关注了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 7074#       发表于 2025-7-4 21:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">藤田言音谁啊
+
