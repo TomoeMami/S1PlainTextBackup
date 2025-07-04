@@ -637,3 +637,13 @@ doom正常产出，cod稳定进行换代 ...</blockquote>
 
 菲尔纯废物，啥时候把他给砍了？
 
+
+*****
+
+####  plok201  
+##### 67#       发表于 2025-7-4 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜现在缺乏微软的内部故事爆料，要不肯定很好看
+
+就这完美黑暗，在一年前可是进了发布会的，作为预告骗，圣歌都自觉形秽好吧，微软与其拍光环电视剧，不如拍点公司趣事吧
+
