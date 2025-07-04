@@ -7102,3 +7102,16 @@ Ex1全开发作业，无sp无ur
 
 把风灵和S高达拉满，下期继续用一击必杀喝汤，反正15W咸鱼
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2134#       发表于 2025-7-4 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68044258&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-7-4 12:05</a>
+
+脚本点击速度太快了，把点击间隔延长
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">操作录制已经是人为的为每一个步骤添加2-3秒的间隔，时间久了还是会瞎按。按到铁球也就罢了，按到吉姆那真是血亏爆炸
+
