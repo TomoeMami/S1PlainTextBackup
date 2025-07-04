@@ -5312,3 +5312,11 @@ RJxX9dy</blockquote>
 
 还是蓝宝石温暖，上了钻全是鱼妖法，打个箱子都要2小时以上
 
+
+*****
+
+####  duraa  
+##### 392#       发表于 2025-7-4 15:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">广场赛补偿还没发，已经在考虑转生国际服的事情了
+
