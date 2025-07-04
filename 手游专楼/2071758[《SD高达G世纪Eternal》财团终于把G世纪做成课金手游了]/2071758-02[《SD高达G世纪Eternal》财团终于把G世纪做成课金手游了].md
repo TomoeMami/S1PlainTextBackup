@@ -7066,3 +7066,13 @@ Ex1全开发作业，无sp无ur
 
 5左右都要三动把给光环攻击防御的机清一下，癌变有卡池W三动（前提是抽到），还是差一个；开发机输出紧张，W三动那个还是射击机师，不SP化癌变估计也打不动
 
+
+*****
+
+####  jackyhuang  
+##### 2130#       发表于 2025-7-4 16:24
+
+下期加成又是主人公是吧，又要拉克丝+SF了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
