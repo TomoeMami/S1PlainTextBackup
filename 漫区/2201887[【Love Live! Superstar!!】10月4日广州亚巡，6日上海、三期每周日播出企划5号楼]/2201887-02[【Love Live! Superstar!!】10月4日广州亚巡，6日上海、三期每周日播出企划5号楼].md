@@ -204,3 +204,13 @@ mujica的海铃相比另外四个可以说最不疯。</blockquote>
 
 中国人最爱K组实锤<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1679#       发表于 2025-7-4 10:12
+
+疑似是18-20号的深圳国际电玩节
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
