@@ -1910,3 +1910,13 @@ B降级到C 本来就是低打力的C然后还自带个ムードX，我要举报
 
 油男怎么每年打的都是这么惊险刺激沉重无比的比赛，是什么诅咒吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 1355#       发表于 2025-7-4 23:09
+
+鲨皇转生的这个皮套有点厉害吧
+
+时间线推来看了几个小切片，表情活灵活现的，还带手柄联动的
+
