@@ -1164,3 +1164,11 @@ p4g因为上Steam上得早，玩过p4g的人应该比玩过p3f的人多多了吧
 如果外包给东星是真的，那确实可以解释为 ...</blockquote>
 Midori竟然还活着
 
+
+*****
+
+####  Gigax  
+##### 127#       发表于 2025-7-4 11:48
+
+确实要外包还不如外包给完美吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
