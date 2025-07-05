@@ -747,3 +747,19 @@ q娃的角色能过海选就算胜利吧
 <img src="https://files.catbox.moe/uj22dj.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/qe17ty.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 1135#       发表于 2025-7-5 21:28
+
+<img src="https://img.stage1st.com/forum/202507/05/212526yy1795v5y7y1gxy9.jpg" referrerpolicy="no-referrer">
+
+<strong>GvEUPIQaAAEOyDh.jpg</strong> (562.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 21:25 上传
+
+转自X りょーご，统计了今年Q娃的周边贩卖情况。
+
