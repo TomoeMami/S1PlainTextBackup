@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 160368,
+    "totalreply": 160369,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1751674326,
+    "lastedit": 1751675648,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2196876": {
-    "totalreply": 1014,
+    "totalreply": 1015,
     "title": "[空之轨迹1st重制公开！2025年全球同步发售，登录ns／ps／pc!]",
     "newtitle": "[空之轨迹1st重制公开！2025.9.19全球同步发售，登录ns／ps5／pc!]",
-    "lastedit": 1751646849,
+    "lastedit": 1751675888,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11187,10 +11187,10 @@
     "update": false
   },
   "2125794": {
-    "totalreply": 373,
+    "totalreply": 374,
     "title": "[bilibili × Aniplex 凸变英雄X]",
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
-    "lastedit": 1751555775,
+    "lastedit": 1751675648,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11502,10 +11502,10 @@
     "update": false
   },
   "2251486": {
-    "totalreply": 1587,
+    "totalreply": 1588,
     "title": "[【纯良向】米哈游百合讨论楼2]",
     "newtitle": "[【纯良向】米哈游百合讨论楼2]",
-    "lastedit": 1751662328,
+    "lastedit": 1751675409,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12839,7 +12839,7 @@
     "newtitle": "[双尾彗星讨论楼]",
     "lastedit": 1751416211,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2158559": {
@@ -13761,10 +13761,10 @@
     "update": false
   },
   "2254806": {
-    "totalreply": 766,
+    "totalreply": 768,
     "title": "[中东专楼]",
     "newtitle": "[中东专楼]",
-    "lastedit": 1751673848,
+    "lastedit": 1751675411,
     "category": "外野",
     "active": true,
     "update": false
@@ -15561,10 +15561,10 @@
     "update": false
   },
   "2255356": {
-    "totalreply": 219,
+    "totalreply": 220,
     "title": "[师父和我做鲁菜正式分家]",
     "newtitle": "[师父和我做鲁菜正式分家]",
-    "lastedit": 1751675168,
+    "lastedit": 1751675411,
     "category": "外野",
     "active": true,
     "update": false
@@ -16443,10 +16443,10 @@
     "update": false
   },
   "2255647": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[现在的人工智能水平，能在纯粹的策略游戏中胜过人类吗？]",
     "newtitle": "[现在的人工智能水平，能在纯粹的策略游戏中胜过人类吗？]",
-    "lastedit": 1751655728,
+    "lastedit": 1751675767,
     "category": "外野",
     "active": true,
     "update": false
@@ -16502,6 +16502,15 @@
     "newtitle": "[卡片战斗!! 先导者 Divinez]",
     "lastedit": 1751675296,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2255661": {
+    "totalreply": 41,
+    "title": "[小镇做题家倒是逆袭了，那小镇不会做题的怎么办？]",
+    "newtitle": "[小镇做题家倒是逆袭了，那小镇不会做题的怎么办？]",
+    "lastedit": 1751675769,
+    "category": "外野",
     "active": true,
     "update": false
   }
