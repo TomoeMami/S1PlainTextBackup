@@ -5416,3 +5416,11 @@ OK，我也填了
 
 攒到新版本应该有40多个钥匙 我也要新版本就100包直接财富自由口牙
 
+
+*****
+
+####  zyb  
+##### 403#       发表于 2025-7-5 15:30
+
+楼友有巫师套牌嘛，开完包小保底桃乐丝，然后又出了两桃乐丝券<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">，我想要oqs啊。
+
