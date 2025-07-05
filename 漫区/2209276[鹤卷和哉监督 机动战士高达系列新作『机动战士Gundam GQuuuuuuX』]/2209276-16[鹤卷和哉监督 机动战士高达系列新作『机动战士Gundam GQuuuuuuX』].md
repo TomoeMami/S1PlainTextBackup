@@ -12484,3 +12484,16 @@ KRX-001 全装爆破型精神感应高达（Full Burst Psycho Gundam）是以MRX
 这个作法本身其实是没 ...</blockquote>
 真要回归原点，应该看看今年哆啦A梦剧场版怎么做的
 
+
+*****
+
+####  Sliurus  
+##### 23059#       发表于 2025-7-5 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048916&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-7-5 13:02</a>
+
+其实看到巨大化元祖，我第一想到的是下面这个玩意。一直没人提还是提一下吧</blockquote>
+第7集打精神力高达MKII，第12集打精神力元祖，还挺合理的。如果第7集象征性打一打但打不过，然后决战打赢也更前后呼应
+
+结果选个莫名其妙的巨大化
+

@@ -571,3 +571,23 @@ group内多人互动的特殊事件不少，加上羁绊剧情写得都不错，
 最近一次是2019年，山口刚和森博信直接说了实况3开始的サクセス就是参考心跳做的，包括3年周期，中间能认 ...</blockquote>
 直接说还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过大家都看得出的也就没所谓了
 
+
+*****
+
+####  新HGCG  
+##### 97#       发表于 2025-7-5 13:50
+
+遇到BUG了
+
+<img src="https://img.stage1st.com/forum/202507/05/134854z9bi49pttbji2ijx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 13:48 上传
+
+用充电手柄且手柄链接在NS2底座的情况下，进游戏会无限查找手柄
+
+但是别的游戏和别的手柄不会有这个问题
+
