@@ -560,3 +560,14 @@ group内多人互动的特殊事件不少，加上羁绊剧情写得都不错，
 好像也没毛病</blockquote>
 最近一次是2019年，山口刚和森博信直接说了实况3开始的サクセス就是参考心跳做的，包括3年周期，中间能认识女友。
 
+
+*****
+
+####  07579394  
+##### 96#       发表于 2025-7-5 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048395&amp;ptid=2253199" target="_blank">穿越护城河 发表于 2025-7-5 10:24</a>
+
+最近一次是2019年，山口刚和森博信直接说了实况3开始的サクセス就是参考心跳做的，包括3年周期，中间能认 ...</blockquote>
+直接说还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过大家都看得出的也就没所谓了
+
