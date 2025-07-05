@@ -807,3 +807,23 @@ mhws 提供了40帧光追的平衡模式 玩着不错
 感觉PS5pro这次完全可以算是一次失败的半代升级，除了贵，完全没有任何实质性的可见提升，之前PS4pro好歹算 ...</blockquote>
 最近美国的好价还是 Bestbuy的650美元. 还有个罕见的 newegg在ebay的旗舰店+优惠码才折到609刀. 然后不含税还没有光驱. 真的是太贵了.
 
+
+*****
+
+####  浅川雏羽  
+##### 82#       发表于 2025-7-5 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048236&amp;ptid=2175658" target="_blank">UmarIbnLaAhad 发表于 2025-7-5 09:45</a>
+怎么还有人当真的就算能打过fsr，dlss他打得过吗，fsr和dlss之间都堪称天堑了，你嗦真有这水平也不至于抱苏 ...</blockquote>
+有没有可能这帖被挖起来的原因是pssr连fsr都比不过，所以直接被抛弃了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  thez  
+##### 83#       发表于 2025-7-5 11:25
+
+我直接等PS6
+
