@@ -11337,3 +11337,16 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 用女爵打三狼竟然一次过了，其他角色都要死几回，主要是这分身阶段闪避太好用，想躲就躲，不会被白白耗血
 
+
+*****
+
+####  usodakedo  
+##### 1094#       发表于 2025-7-6 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68051108&amp;ptid=2210352" target="_blank">awy002 发表于 2025-7-5 22:32</a>
+
+打一半老闪退啥情况</blockquote>
+大概率是小蓝熊的反作弊和你电脑上的腾讯软件的扫描冲突了（qq或者wegame），关闭小蓝熊或者关闭qq试试
+
+[https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.bilibili.com/video/BV1rfKwzGEUS/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d)
+
