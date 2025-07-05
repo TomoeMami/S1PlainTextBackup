@@ -11215,3 +11215,24 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  awy002  
+##### 1082#       发表于 2025-7-5 10:07
+
+今天刚买，有坛友说说solo一局多长时间吗？
+
+
+*****
+
+####  雲夢淵澤  
+##### 1083#       发表于 2025-7-5 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048336&amp;ptid=2210352" target="_blank">awy002 发表于 2025-7-5 10:07</a>
+
+今天刚买，有坛友说说solo一局多长时间吗？</blockquote>
+35到40分钟
+
+这游戏SOLO少玩50块钱内容
+
