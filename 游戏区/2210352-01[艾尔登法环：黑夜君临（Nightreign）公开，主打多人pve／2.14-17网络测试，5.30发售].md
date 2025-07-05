@@ -11385,3 +11385,23 @@ fs社的双boss设计水平也感觉一直在原地打转
 本周夜王是不是不能开腐败地形，改了以后进去还是常规，换火山就正常了。 ...</blockquote>
 组队吗，组队只看看房主的，单人野排就不知道了
 
+
+*****
+
+####  在海岸  
+##### 1098#       发表于 2025-7-6 01:33
+
+<blockquote>Sissii 发表于 2025-7-6 01:27
+组队吗，组队只看看房主的，单人野排就不知道了</blockquote>
+我就是房主啊
+
+*****
+
+####  Sissii  
+##### 1099#       发表于 2025-7-6 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68051778&amp;ptid=2210352" target="_blank">在海岸 发表于 2025-7-6 01:33</a>
+
+我就是房主啊</blockquote>
+那就不知道了，我这是正常的
+
