@@ -840,3 +840,16 @@ mhws 提供了40帧光追的平衡模式 玩着不错
 论坛助手,iPhone ...</blockquote>
 每次大法都是被农企薅羊毛的~~~交开发费给农企开发下一代FSR,半成品给大法,PC吃完全版......任地狱直接完全躺平:核弹厂给啥我用啥
 
+
+*****
+
+####  赤井稻妻  
+##### 85#       发表于 2025-7-5 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68045860&amp;ptid=2175658" target="_blank">Lacsiess 发表于 2025-7-4 17:19</a>
+
+RDNA没有5,下一代就是UDNA了......如果说是RDNA5那就是又被农企薅羊毛了吧</blockquote>
+Big chunks of RDNA 5, or whatever AMD ends up calling it, 
+
+只是用RDNA5来代称下一代架构的意思
+
