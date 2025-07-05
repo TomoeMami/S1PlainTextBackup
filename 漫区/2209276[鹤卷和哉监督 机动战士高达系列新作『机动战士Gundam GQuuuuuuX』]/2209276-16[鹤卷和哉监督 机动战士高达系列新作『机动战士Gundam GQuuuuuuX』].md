@@ -12425,3 +12425,39 @@ tomoyo怒批GQX：女主角像一头猪
 
 只会致敬的后果就是脑子空空，这作为创作者是致命的
 
+
+*****
+
+####  猪突猛进R  
+##### 23056#       发表于 2025-7-5 13:02
+
+其实看到巨大化元祖，我第一想到的是下面这个玩意。一直没人提还是提一下吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202507/05/130214ta99i1994eee1w1w.jpg" referrerpolicy="no-referrer">
+
+<strong>8dd156ye6fj0ovhuhab5a3u9tg7qtw3.jpg</strong> (39.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 13:02 上传
+
+<img src="https://img.stage1st.com/forum/202507/05/130214yye93bpzejzdmzth.jpg" referrerpolicy="no-referrer">
+
+<strong>lrwqi95q7j41t3vs6jkecbvl1oh7u9w.jpg</strong> (160.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 13:02 上传
+
+<img src="https://img.stage1st.com/forum/202507/05/130214mbfk45s1g5z44za5.jpg" referrerpolicy="no-referrer">
+
+<strong>pmukudbz0uidho60yhz67k65l9uufaz.jpg</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 13:02 上传
+
+KRX-001 全装爆破型精神感应高达（Full Burst Psycho Gundam）是以MRX-009精神感应高达为基础改造而来的机体，是卡拉巴在香港捕获精神感应高达试作一号机后，为了使阿姆罗·雷能够操作该机而做了调整。
+
+机体调整了塞可缪系统，加装了哈罗浮游炮（Haro Funnels），并且肩部加装了一门爆破加农炮。在MA形态下，更接近于G-战机，盾上两把光束枪与爆破加农炮下挂在机翼与机腹。
+
