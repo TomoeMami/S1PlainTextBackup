@@ -11350,3 +11350,19 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 [https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.bilibili.com/video/BV1rfKwzGEUS/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d)
 
+
+*****
+
+####  Sissii  
+##### 1095#       发表于 2025-7-6 01:07
+
+<img src="https://img.stage1st.com/forum/202507/06/010524hooojbvovtowvb8h.png" referrerpolicy="no-referrer">
+
+<strong>88cb58f0676660998341120ca55b791e.png</strong> (981.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 01:05 上传
+
+贴吧科研出的本周地图种子，每周四个特殊地形各5个种子，常规图超过8个种子，和实际游玩确实对的上，开局看落地就可以决定路线了
+
