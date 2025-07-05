@@ -742,3 +742,11 @@ PS5PRO再怎么折腾也是残疾，两年后上UDNA的PS6才是满血版
 
 感觉PS5pro这次完全可以算是一次失败的半代升级，除了贵，完全没有任何实质性的可见提升，之前PS4pro好歹算是勉强把PS4拉入了4K时代，这5pro整个PSSR现在成为FSR4垫脚石，真是丢人又显眼<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 75#       发表于 2025-7-5 09:02
+
+AMD的FSR每次ppt阶段强无敌，但是和DLSS在实际对比的时候又总是会出现落后的情况。这几年游戏显卡A卡也没体现出本来对比N卡的性价比…我是觉得PS6用这UDNA也很难说可以再强到哪里去
+
