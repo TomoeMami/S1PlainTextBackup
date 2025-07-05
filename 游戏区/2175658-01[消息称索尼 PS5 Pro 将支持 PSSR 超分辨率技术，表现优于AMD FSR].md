@@ -853,3 +853,21 @@ Big chunks of RDNA 5, or whatever AMD ends up calling it,
 
 只是用RDNA5来代称下一代架构的意思
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 86#       发表于 2025-7-5 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048590&amp;ptid=2175658" target="_blank">浅川雏羽 发表于 2025-7-5 11:19</a>
+ 有没有可能这帖被挖起来的原因是pssr连fsr都比不过，所以直接被抛弃了  论坛助手,iPhone ...</blockquote>
+我说的是他最开始吹的牛逼达成了也大概率打不过dlss<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自ps5pro发布前后吹出这个牛逼之后，黄狗给老rtx弄出来了变形金刚优化超分效果，新卡直接4倍帧生成，输入延迟还比fsr帧生成低，差距拉更大了
+然后现在pssr比不过fsr就更乐了，御三家老老实实买芯片做廉价游戏机，再往易用性上用用力就是了，非得往性能挖掘反杀高端硬件上吹，真当给他们供硬件的都是sb，主力产品不如廉价定制吗
+
+*****
+
+####  泰坦失足  
+##### 87#       发表于 2025-7-5 16:00
+
+NS Pro有掌机2077, 那PS5 Pro高低也得有个路径追踪模式让我们开开眼吧. 好像就心灵杀手2有pro专属的PC同款光追模式
+

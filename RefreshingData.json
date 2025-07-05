@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 160458,
+    "totalreply": 160465,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1751702051,
+    "lastedit": 1751702651,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12087,10 +12087,10 @@
     "update": false
   },
   "2253051": {
-    "totalreply": 179,
+    "totalreply": 180,
     "title": "[小约翰可汗真爱楼（归墟版）]",
     "newtitle": "[小约翰可汗真爱楼（归墟版）]",
-    "lastedit": 1751702297,
+    "lastedit": 1751702888,
     "category": "外野",
     "active": true,
     "update": false
@@ -15039,10 +15039,10 @@
     "update": false
   },
   "2255223": {
-    "totalreply": 114,
+    "totalreply": 115,
     "title": "[【联动隔壁老害贴】以后还会玩异度的新作吗？]",
     "newtitle": "[【联动隔壁老害贴】以后还会玩异度的新作吗？]",
-    "lastedit": 1751682369,
+    "lastedit": 1751702655,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15350,7 +15350,7 @@
     "newtitle": "[月球赤道贴光伏板，把太阳能转为电能输送回地球，可行吗？]",
     "lastedit": 1751443105,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2071328": {
@@ -15417,10 +15417,10 @@
     "update": false
   },
   "2255356": {
-    "totalreply": 226,
+    "totalreply": 227,
     "title": "[师父和我做鲁菜正式分家]",
     "newtitle": "[师父和我做鲁菜正式分家]",
-    "lastedit": 1751693423,
+    "lastedit": 1751702655,
     "category": "外野",
     "active": true,
     "update": false
@@ -16047,10 +16047,10 @@
     "update": false
   },
   "2218983": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[细田守监督 新作动画电影『无尽希望的斯嘉丽 ／ 果てしなきスカーレット』11月21日上映]",
     "newtitle": "[细田守监督 新作动画电影『无尽希望的斯嘉丽 ／ 果てしなきスカーレット』11月21日上映]",
-    "lastedit": 1751593459,
+    "lastedit": 1751702409,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16209,10 +16209,10 @@
     "update": false
   },
   "2175658": {
-    "totalreply": 85,
+    "totalreply": 87,
     "title": "[消息称索尼 PS5 Pro 将支持 PSSR 超分辨率技术，表现优于AMD FSR]",
     "newtitle": "[消息称索尼 PS5 Pro 将支持 PSSR 超分辨率技术，表现优于AMD FSR]",
-    "lastedit": 1751700251,
+    "lastedit": 1751702655,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16430,6 +16430,24 @@
     "newtitle": "[美食的俘虏和境界触发者算得上近年jump系最可惜的作品了。]",
     "lastedit": 1751700608,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2002767": {
+    "totalreply": 45,
+    "title": "[索尼在巴西败诉：必须恢复ban机的PS5 并赔偿律师费]",
+    "newtitle": "[索尼在巴西败诉：必须恢复ban机的PS5 并赔偿律师费]",
+    "lastedit": 1751702655,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2255681": {
+    "totalreply": 41,
+    "title": "[荔枝可以一天吃好几斤了]",
+    "newtitle": "[荔枝可以一天吃好几斤了]",
+    "lastedit": 1751702890,
+    "category": "外野",
     "active": true,
     "update": false
   }
