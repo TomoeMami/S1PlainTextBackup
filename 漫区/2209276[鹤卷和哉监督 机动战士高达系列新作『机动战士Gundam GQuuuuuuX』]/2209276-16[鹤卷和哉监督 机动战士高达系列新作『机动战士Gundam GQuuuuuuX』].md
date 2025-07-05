@@ -12461,3 +12461,14 @@ KRX-001 全装爆破型精神感应高达（Full Burst Psycho Gundam）是以MRX
 
 机体调整了塞可缪系统，加装了哈罗浮游炮（Haro Funnels），并且肩部加装了一门爆破加农炮。在MA形态下，更接近于G-战机，盾上两把光束枪与爆破加农炮下挂在机翼与机腹。
 
+
+*****
+
+####  qixinno2  
+##### 23057#       发表于 2025-7-5 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048916&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-7-5 13:02</a>
+
+其实看到巨大化元祖，我第一想到的是下面这个玩意。一直没人提还是提一下吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 骡子开这玩意直接无敌了
+
