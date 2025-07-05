@@ -5424,3 +5424,19 @@ OK，我也填了
 
 楼友有巫师套牌嘛，开完包小保底桃乐丝，然后又出了两桃乐丝券<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">，我想要oqs啊。
 
+
+*****
+
+####  duraa  
+##### 404#       发表于 2025-7-5 20:33
+
+<img src="https://img.stage1st.com/forum/202507/05/203255u3mkr9i64ms6b3i2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-5 20:32 上传
+
+广场赛打的比想象中开心多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
