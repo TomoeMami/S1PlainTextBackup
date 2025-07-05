@@ -12568,3 +12568,11 @@ gto把拉拉身世改成帮忙出千的挺好的
 那集出来都在感叹痞 ...</blockquote>
 痞子那帮人又不是看GTO长大的
 
+
+*****
+
+####  LOLITA  
+##### 23065#       发表于 2025-7-5 23:46
+
+无聊开个脑洞，其实巨大化G3配色元祖才是修司在他那个时空开的高达的真正形态，一开始正常配色正常尺寸的rx78是拉拉给的皮肤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
