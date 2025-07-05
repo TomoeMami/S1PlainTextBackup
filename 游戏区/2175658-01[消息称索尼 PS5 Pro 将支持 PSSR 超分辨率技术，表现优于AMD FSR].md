@@ -796,3 +796,14 @@ gt7可以在赛事中光追了 我都是开仓内视角所以很有感 不过 ps
 mhws 提供了40帧光追的平衡模式 玩着不错
 下周看看 ds2 如何
 
+
+*****
+
+####  泰坦失足  
+##### 81#       发表于 2025-7-5 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047747&amp;ptid=2175658" target="_blank">葵 发表于 2025-7-5 02:13</a>
+
+感觉PS5pro这次完全可以算是一次失败的半代升级，除了贵，完全没有任何实质性的可见提升，之前PS4pro好歹算 ...</blockquote>
+最近美国的好价还是 Bestbuy的650美元. 还有个罕见的 newegg在ebay的旗舰店+优惠码才折到609刀. 然后不含税还没有光驱. 真的是太贵了.
+
