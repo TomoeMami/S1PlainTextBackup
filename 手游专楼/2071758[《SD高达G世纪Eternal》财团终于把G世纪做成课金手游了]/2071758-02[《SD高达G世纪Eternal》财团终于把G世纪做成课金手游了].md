@@ -7197,3 +7197,13 @@ Ex1全开发作业，无sp无ur
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 2142#       发表于 2025-7-5 20:47
+
+刷了半天才造得出一台命运，后面逆鸭那堆不敢想
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
