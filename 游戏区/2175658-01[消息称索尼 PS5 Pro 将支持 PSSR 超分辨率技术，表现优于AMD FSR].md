@@ -871,3 +871,11 @@ Big chunks of RDNA 5, or whatever AMD ends up calling it,
 
 NS Pro有掌机2077, 那PS5 Pro高低也得有个路径追踪模式让我们开开眼吧. 好像就心灵杀手2有pro专属的PC同款光追模式
 
+
+*****
+
+####  snarc1  
+##### 88#       发表于 2025-7-5 16:15
+
+算力上看起来是够的，感觉利好 a 卡吧，fsr4 适配速度暴增，ps5pro 虽然 ai 算力可以但是底子毕竟还是 rdna2，面对 9060xt16g 的价格和性能没什么优势
+

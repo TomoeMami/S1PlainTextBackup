@@ -55371,3 +55371,124 @@ nbuna结婚了，当初还是听mea翻唱入坑的，想看mea会有什么表示
 
 主播现在打撸有大师包袱了
 
+
+*****
+
+####  TiHaru  
+##### 18987#       发表于 2025-7-3 21:08
+
+昨天一天好嫌刷了400条，好感度从54刷到52了
+
+*****
+
+####  poipanchao  
+##### 18988#       发表于 2025-7-3 21:45
+
+时间真是消解矛盾最好的工具，作为老虹人昨天的联动也看的蛮有趣的，也没啥成见了
+
+shaka前几天带出来的那几个切片没什么坏处吧？一般通过看了反而会产生兴趣吧
+
+话说以前情绪有这么不稳定吗？
+
+*****
+
+####  TiHaru  
+##### 18989#       发表于 2025-7-3 21:57
+
+昨天有虹吗，你看的是猫立...？
+
+情绪不稳定是打比赛导致的
+
+*****
+
+####  poipanchao  
+##### 18990#       发表于 2025-7-3 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041845&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-3 21:57</a>
+
+昨天有虹吗，你看的是猫立...？
+
+情绪不稳定是打比赛导致的</blockquote>
+现在主看vspo了
+
+从之前跟ramu关系好起来的那次比赛就有这个疑惑了，印象中没有这么极端啊
+
+说起来有点好奇，我记得去年还有传闻大亏跟猫私下组排过撸和瓦，主播这边没有吗？
+
+*****
+
+####  TiHaru  
+##### 18991#       发表于 2025-7-3 22:42
+
+那是地星关联组的，和主播没关系
+
+*****
+
+####  格林卡罗尔  
+##### 18992#       发表于 2025-7-4 00:09
+
+我觉得不太妙，打比赛的这些场切片有点太挑人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  TiHaru  
+##### 18993#       发表于 2025-7-4 01:54
+
+问题不大，反正中下没锅，等主播被转会了之后只要再怪新来的人磨合时间太少就行了
+
+*****
+
+####  TiHaru  
+##### 18994#       发表于 2025-7-4 02:39
+
+哦硬要说的话也是有的，你们认识的人里面的话大概和那个酒什么马的新虹男还有kr那个账户名叫日语很难的私下玩过，虽然应该也是间接认识
+
+*****
+
+####  onlv星骸  
+##### 18995#       发表于 2025-7-4 09:07
+
+nbuna结婚了，当初还是听mea翻唱入坑的，想看mea会有什么表示啊<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">。
+这个月大航海礼物有点想要。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  sino__unnko3  
+##### 18996#       发表于 2025-7-4 11:05
+
+ 本帖最后由 sino__unnko3 于 2025-7-4 14:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043021&amp;ptid=2018830" target="_blank">onlv星骸 发表于 2025-7-4 09:07</a>
+nbuna结婚了，当初还是听mea翻唱入坑的，想看mea会有什么表示啊。
+这个月大航海礼物有点想要。</blockquote>
+凌晨看到消息愣了几秒，第一反应以为跟你咩()
+后来看时间线不是
+
+undead管子那边10w+播放了
+
+太阳底下没有新鲜事，这一波涨粉有点像18年，靠混沌切片引流大可爱
+
+*****
+
+####  化鳥虫二  
+##### 18997#       发表于 2025-7-4 12:06
+
+主播现在打撸有大师包袱了
+
+*****
+
+####  sino__unnko3  
+##### 18998#       发表于 2025-7-5 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67899693&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-6-8 00:20</a>
+怪不得昨天爽下VP9的时候感觉少了一个，不过看了下之前也有AVC存档，还好。（
+
+BV13t411x7XY</blockquote>
+【【熟肉】被认为○○已经因为色素沉着而发黑了的神乐Mea【犬山玉姬/神乐Mea/NoriPro】-哔哩哔哩】 https://b23.tv/9DBeDAe
+
+被大数据推了个档，去年6月1号的时候也理直气壮的说自己是処女
+根据时间线分析，她那时候已经分手了
+
