@@ -5363,3 +5363,13 @@ RJxX9dy</blockquote>
 国际服还有没填好友码的哥们吗，求互填</blockquote>
 我也搞了个国际服号，pEnm9sE，你发我我填你的吧
 
+
+*****
+
+####  duraa  
+##### 398#       发表于 2025-7-5 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047679&amp;ptid=2163625" target="_blank">辞冬 发表于 2025-7-5 01:26</a>
+我也搞了个国际服号，pEnm9sE，你发我我填你的吧</blockquote>
+nAChGf3，这边已填
+
