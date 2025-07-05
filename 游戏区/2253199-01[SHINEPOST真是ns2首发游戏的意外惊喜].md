@@ -549,3 +549,14 @@ group内多人互动的特殊事件不少，加上羁绊剧情写得都不错，
 
 这个ip指望这一作翻身可能不太现实，但看会不会变成像叶子社的FDCGR那样，变成迷宫旅人那样的衍生ip
 
+
+*****
+
+####  穿越护城河  
+##### 95#       发表于 2025-7-5 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048260&amp;ptid=2253199" target="_blank">07579394 发表于 2025-7-5 09:50</a>
+
+好像也没毛病</blockquote>
+最近一次是2019年，山口刚和森博信直接说了实况3开始的サクセス就是参考心跳做的，包括3年周期，中间能认识女友。
+
