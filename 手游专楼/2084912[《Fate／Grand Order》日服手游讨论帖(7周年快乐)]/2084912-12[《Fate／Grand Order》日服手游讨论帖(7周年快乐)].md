@@ -459,3 +459,47 @@
 这辣鸡游戏玩到现在我就从没在乎过什么亏羁绊....就觉得那是自己给自己找不痛快</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实都是借口 我还是喜欢能不换人就不换人 亏1位就亏1位
 
+
+*****
+
+####  alucardcz  
+##### 17018#       发表于 2025-7-3 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68040860&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-3 17:50</a>
+
+不折腾了...试了下要6加成的话还是妖兰双光兔加奥伯龙最稳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 萌新我奥 狐都15羁绊了  虽然有补偿 但上2个依然血亏
+
+*****
+
+####  森兰丸  
+##### 17019#       发表于 2025-7-3 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041539&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-3 20:33</a>
+
+欧 羡慕 萌新我奥 狐都15羁绊了  虽然有补偿 但上2个依然血亏</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧个妹妹...萌新不都有
+
+这辣鸡游戏玩到现在我就从没在乎过什么亏羁绊....就觉得那是自己给自己找不痛快
+
+当然像冠位战免门票那样的活动能刷的话还是要刷一下的
+
+*****
+
+####  alucardcz  
+##### 17020#       发表于 2025-7-3 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68041780&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-3 21:36</a>
+
+欧个妹妹...萌新不都有
+
+这辣鸡游戏玩到现在我就从没在乎过什么亏羁绊....就觉得那是自己给自己找不痛快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实都是借口 我还是喜欢能不换人就不换人 亏1位就亏1位
+
+*****
+
+####  poor  
+##### 17021#       发表于 2025-7-5 11:26
+
+狗屎啊，60多箱了还是+7<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
