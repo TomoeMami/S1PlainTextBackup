@@ -11249,3 +11249,25 @@ fs社的双boss设计水平也感觉一直在原地打转
 这游戏SOLO少玩50块钱内容</blockquote>
 这个肯定，我先自己solo习惯一下机制，然后和朋友高强度排一下，最后再野排试试，问问坛友现在是不是无赖最适合solo啊
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 1085#       发表于 2025-7-5 10:45
+
+看到一些图还挺好萌的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/a1c960014c15d84639797d4fdc5f516a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  雲夢淵澤  
+##### 1086#       发表于 2025-7-5 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048397&amp;ptid=2210352" target="_blank">awy002 发表于 2025-7-5 10:24</a>
+
+这个肯定，我先自己solo习惯一下机制，然后和朋友高强度排一下，最后再野排试试，问问坛友现在是不是无赖 ...</blockquote>
+追踪者和无赖
+
