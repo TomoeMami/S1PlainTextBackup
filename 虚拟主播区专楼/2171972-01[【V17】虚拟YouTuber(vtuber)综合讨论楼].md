@@ -1933,3 +1933,12 @@ B降级到C 本来就是低打力的C然后还自带个ムードX，我要举报
 时间线推来看了几个小切片，表情活灵活现的，还带手柄联动的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">花钱和时间堆出来的，一般人别想了，大佬工期都排满了
 
+
+*****
+
+####  usodakedo  
+##### 1357#       发表于 2025-7-6 03:03
+
+看到**给我推了优华小姐的直播，发现是黑黑的夜就忍不住点进去看了，还是一如既往的脑死（褒义），如果是我野排遇到她这种新手菜鸡小骑士的话可能已经怒从心头起了（虽然不会拔线就是了），不过反过来说侧面证明了黑环是一款菜鸡也能轻松游玩的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实从她转真人后就基本没看过，导致现在反而莫名觉得声音和本人不贴
+
