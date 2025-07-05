@@ -7184,3 +7184,16 @@ Ex1全开发作业，无sp无ur
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  马桶3  
+##### 2141#       发表于 2025-7-5 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048409&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-7-5 10:29</a>
+【【sd高达永恒】防止支援防御的围棋打法-哔哩哔哩】 https://b23.tv/h33UzM2
+原来可以这么打</blockquote>
+这游戏援防看的是防机能不能成功位移到被援护机而不是纯粹的援防范围，所以移动路线被阻挡导致移不过去的时候就无法触发援护防御<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

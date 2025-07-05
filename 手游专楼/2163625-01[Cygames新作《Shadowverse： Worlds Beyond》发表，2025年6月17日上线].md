@@ -5373,3 +5373,14 @@ RJxX9dy</blockquote>
 我也搞了个国际服号，pEnm9sE，你发我我填你的吧</blockquote>
 nAChGf3，这边已填
 
+
+*****
+
+####  辞冬  
+##### 399#       发表于 2025-7-5 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047983&amp;ptid=2163625" target="_blank">duraa 发表于 2025-7-5 08:21</a>
+
+nAChGf3，这边已填</blockquote>
+OK，我也填了
+
