@@ -12586,3 +12586,23 @@ gto把拉拉身世改成帮忙出千的挺好的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  syndrome2032  
+##### 23067#       发表于 2025-7-6 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68051216&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-7-5 22:56</a>
+gto里
+
+鸭子和鸭妹还有紫婆讲新人类和gqx里有关新人类的说法非常非常像
+
+夏亚一心执着于着NT vs OT</blockquote>
+应该是如果gto和0079有矛盾的地方以0079为准，0079不涉及但是gto补充了的内容参照gto部分。
+
+其实我对gto差不多也这态度。
+
+但是gqux背景里和gto有个矛盾的地方就是戴肯的死因。
+
+gqux里紫婆默认是扎比家暗杀了戴肯，这个设定和gto是接不上的。gto里戴肯的死因是意外，元祖设定里未明确戴肯死因(但是怀疑是扎比家暗害)。
+
