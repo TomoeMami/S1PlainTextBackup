@@ -12472,3 +12472,15 @@ KRX-001 全装爆破型精神感应高达（Full Burst Psycho Gundam）是以MRX
 其实看到巨大化元祖，我第一想到的是下面这个玩意。一直没人提还是提一下吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 骡子开这玩意直接无敌了
 
+
+*****
+
+####  赤黑的假面  
+##### 23058#       发表于 2025-7-5 13:29
+
+<blockquote>vorfeed 发表于 2025-7-4 17:03
+和OO最后与O高达对决的象征意义是一样的  突破原始的框架  新世代对旧时代的超越
+
+这个作法本身其实是没 ...</blockquote>
+真要回归原点，应该看看今年哆啦A梦剧场版怎么做的
+
