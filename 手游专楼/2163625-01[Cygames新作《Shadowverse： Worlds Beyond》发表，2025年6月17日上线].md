@@ -5472,3 +5472,15 @@ OK，我也填了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来这周运气不错，两个服周赛都顺利打完了
 
+
+*****
+
+####  duraa  
+##### 409#       发表于 2025-7-5 23:10
+
+ 本帖最后由 duraa 于 2025-7-5 23:13 编辑 
+
+两个服都发补偿了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不对，国际服好像发的是4胜补偿，国服发的两胜？
+

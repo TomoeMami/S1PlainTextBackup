@@ -12553,3 +12553,18 @@ gto把拉拉身世改成帮忙出千的挺好的
 结果又把密会的没设定拿出来了，还多加了几年……
 那集出来都在感叹痞子果然是喜欢ntr啊
 
+
+*****
+
+####  xwz  
+##### 23064#       发表于 2025-7-5 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68051256&amp;ptid=2209276" target="_blank">28201 发表于 2025-7-5 23:04</a>
+
+gto把拉拉身世改成帮忙出千的挺好的
+
+结果又把密会的没设定拿出来了，还多加了几年……
+
+那集出来都在感叹痞 ...</blockquote>
+痞子那帮人又不是看GTO长大的
+
