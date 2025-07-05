@@ -112,3 +112,11 @@
 是不是EIN啊，easy开房把人骗进来后直接切到要击，属性都变了换人的时间都不给就直接开战。耐着性子陪他 ...</blockquote>
 看来声名远扬啊，大家都遭过毒手
 
+
+*****
+
+####  wilkyway  
+##### 1523#       发表于 2025-7-5 19:11
+
+草 原来是那个写要击6次的大哥 那房间从来没进去过前面光说id都没想起来这是谁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
