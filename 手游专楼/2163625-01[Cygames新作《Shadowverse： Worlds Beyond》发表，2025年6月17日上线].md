@@ -5440,3 +5440,11 @@ OK，我也填了
 
 广场赛打的比想象中开心多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 405#       发表于 2025-7-5 21:07
+
+这下国际服也bug了，原来大家都一样草台
+
