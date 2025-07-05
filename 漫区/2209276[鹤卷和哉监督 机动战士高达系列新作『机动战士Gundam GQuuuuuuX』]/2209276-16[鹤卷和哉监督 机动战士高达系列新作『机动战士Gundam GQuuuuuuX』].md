@@ -12507,3 +12507,18 @@ KRX-001 全装爆破型精神感应高达（Full Burst Psycho Gundam）是以MRX
 
 gqx世界线其实是基于gto而不是0079的吧
 
+
+*****
+
+####  gundammarkⅡ  
+##### 23061#       发表于 2025-7-5 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68049175&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-7-5 14:14</a>
+把gto漫画看完了
+
+gqx世界线其实是基于gto而不是0079的吧</blockquote>
+也不是，毕竟GTO版拉拉出身和与夏亚的相遇是不一样
+GTO元素应该就是两台高达的型号与初期配置了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
