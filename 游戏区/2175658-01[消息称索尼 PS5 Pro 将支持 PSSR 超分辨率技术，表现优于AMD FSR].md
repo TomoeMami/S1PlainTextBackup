@@ -827,3 +827,16 @@ mhws 提供了40帧光追的平衡模式 玩着不错
 
 我直接等PS6
 
+
+*****
+
+####  Lacsiess  
+##### 84#       发表于 2025-7-5 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048590&amp;ptid=2175658" target="_blank">浅川雏羽 发表于 2025-7-5 11:19</a>
+
+有没有可能这帖被挖起来的原因是pssr连fsr都比不过，所以直接被抛弃了
+
+论坛助手,iPhone ...</blockquote>
+每次大法都是被农企薅羊毛的~~~交开发费给农企开发下一代FSR,半成品给大法,PC吃完全版......任地狱直接完全躺平:核弹厂给啥我用啥
+
