@@ -11310,3 +11310,14 @@ fs社的双boss设计水平也感觉一直在原地打转
 这个肯定，我先自己solo习惯一下机制，然后和朋友高强度排一下，最后再野排试试，问问坛友现在是不是无赖 ...</blockquote>
 第一次玩的话无赖最简单，会玩以后追踪者比无赖强
 
+
+*****
+
+####  hirro  
+##### 1091#       发表于 2025-7-5 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68048397&amp;ptid=2210352" target="_blank">awy002 发表于 2025-7-5 10:24</a>
+
+这个肯定，我先自己solo习惯一下机制，然后和朋友高强度排一下，最后再野排试试，问问坛友现在是不是无赖 ...</blockquote>
+建议先和朋友排，再SOLO或者野排锻炼心态
+

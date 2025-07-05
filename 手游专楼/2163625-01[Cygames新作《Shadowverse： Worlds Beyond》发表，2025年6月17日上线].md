@@ -5464,3 +5464,11 @@ OK，我也填了
 
 广场赛好像又BUG了 看到好多群友卡住了 之前的补偿还没发呢
 
+
+*****
+
+####  duraa  
+##### 408#       发表于 2025-7-5 22:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来这周运气不错，两个服周赛都顺利打完了
+

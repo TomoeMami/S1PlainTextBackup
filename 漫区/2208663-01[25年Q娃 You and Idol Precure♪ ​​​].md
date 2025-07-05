@@ -763,3 +763,14 @@ q娃的角色能过海选就算胜利吧
 
 转自X りょーご，统计了今年Q娃的周边贩卖情况。
 
+
+*****
+
+####  八木爱月  
+##### 1136#       发表于 2025-7-5 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68050793&amp;ptid=2208663" target="_blank">bilibilius 发表于 2025-7-5 21:28</a>
+
+转自X りょーご，统计了今年Q娃的周边贩卖情况。</blockquote>
+真正的2025q娃：法q2
+
