@@ -11437,3 +11437,14 @@ fs社的双boss设计水平也感觉一直在原地打转
 将之前对于鸟人的理解汇总做了一个视频，有兴趣可以看看。7分钟的技能、配装分析+一把35分钟的路人历战人马 ...</blockquote>
 你这个视频下面的点评也太难绷了……真得很难想象连“因为黑环没有限重所以谁拿大盾都一样”的话都可以讲出来，显然连被动的运用方法都没搞明白的人到底哪来底气锐评说守护者底层设计就不行。感觉英文网也好中文网也罢，因为玩法节奏不同就直接全盘否定的舒适区锐评玩家的数量实在过剩了。
 
+
+*****
+
+####  modkingr  
+##### 1103#       发表于 2025-7-6 04:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68051941&amp;ptid=2210352" target="_blank">斯普林菲尔德 发表于 2025-7-6 03:54</a>
+
+你这个视频下面的点评也太难绷了……真得很难想象连“因为黑环没有限重所以谁拿大盾都一样”的话都可以讲 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毕竟低龄视频网站 有抬杠小孩很正常
+
