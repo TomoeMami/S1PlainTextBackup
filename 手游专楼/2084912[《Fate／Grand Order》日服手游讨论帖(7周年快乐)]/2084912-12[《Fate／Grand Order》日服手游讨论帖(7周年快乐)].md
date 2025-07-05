@@ -503,3 +503,32 @@
 
 狗屎啊，60多箱了还是+7<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17022#       发表于 2025-7-5 11:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">萌新刚刚6箱 落泪了
+
+*****
+
+####  森兰丸  
+##### 17023#       发表于 2025-7-5 16:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前22箱....保守估计到活动结束也就刷个50箱左右吧
+
+*****
+
+####  里村紅葉  
+##### 17024#       发表于 2025-7-5 17:04
+
+真能刷，我才3箱<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17025#       发表于 2025-7-5 19:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">依然没出紫色BBA 辣鸡游戏
+
