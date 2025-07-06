@@ -55492,3 +55492,20 @@ BV13t411x7XY</blockquote>
 被大数据推了个档，去年6月1号的时候也理直气壮的说自己是処女
 根据时间线分析，她那时候已经分手了
 
+
+*****
+
+####  sino__unnko3  
+##### 18999#       发表于 2025-7-6 22:35
+
+ 本帖最后由 sino__unnko3 于 2025-7-6 22:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68055383&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-7-6 21:53</a>
+不会是老爹吧。
+
+—— 来自 Google Pixel Fold, Android 16, 鹅球 v3.5.99</blockquote>
+真是这样的话，一切都说得通了，内心埋怨对得上，要陪伴不便刷互联网(韩国WiFi和漫游挺好的啊，不知道你咩啥情况)
+(异性也对得上，确实是异性)
+而且第一反应全在说恰饭，天气而不是SKT或者医美啥的
+不过确实有可能是什么亲戚，你咩若干年前经常跟亲戚家族旅行
+并且因为之前去过，所以可以直接照抄方案省的准备
+
