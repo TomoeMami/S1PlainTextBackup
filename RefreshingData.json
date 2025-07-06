@@ -63,9 +63,9 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 18999,
+    "totalreply": 19000,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1751812695,
+    "lastedit": 1751813288,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
@@ -7299,10 +7299,10 @@
     "update": false
   },
   "1978008": {
-    "totalreply": 3892,
+    "totalreply": 3893,
     "title": "[金亨泰Shift Up新作《星刃 ／ Stellar Blade》PV公开，4月26日发售]",
     "newtitle": "[金亨泰Shift Up新作《剑星（星刃）／ Stellar Blade》／PC版6月12日发售]",
-    "lastedit": 1751812341,
+    "lastedit": 1751813177,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9234,10 +9234,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 10430,
+    "totalreply": 10439,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1751593928,
+    "lastedit": 1751812933,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -9900,10 +9900,10 @@
     "update": false
   },
   "2200908": {
-    "totalreply": 1672,
+    "totalreply": 1676,
     "title": "[【百合厨真爱楼】河豚生态观察交流]",
     "newtitle": "[【百合厨真爱楼】河豚生态观察交流]",
-    "lastedit": 1751729408,
+    "lastedit": 1751812933,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 161249,
+    "totalreply": 161259,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1751812335,
+    "lastedit": 1751813177,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11939,7 +11939,7 @@
     "newtitle": "[分享一下自己买过的亚克力板]",
     "lastedit": 1751553848,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2253494": {
@@ -13851,10 +13851,10 @@
     "update": false
   },
   "2152482": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[北斗神拳 新作动画制作决定]",
     "newtitle": "[北斗神拳 新作动画制作决定]",
-    "lastedit": 1751789179,
+    "lastedit": 1751813177,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15318,10 +15318,10 @@
     "update": false
   },
   "2255398": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[哎哟观网怎么这么坏啊]",
     "newtitle": "[哎哟观网怎么这么坏啊]",
-    "lastedit": 1751810052,
+    "lastedit": 1751813177,
     "category": "外野",
     "active": true,
     "update": false
@@ -16020,10 +16020,10 @@
     "update": false
   },
   "2255638": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[该不该回国加入企鹅做游戏的？]",
     "newtitle": "[该不该回国加入企鹅做游戏的？]",
-    "lastedit": 1751800576,
+    "lastedit": 1751813177,
     "category": "外野",
     "active": true,
     "update": false
@@ -16398,10 +16398,10 @@
     "update": false
   },
   "2255749": {
-    "totalreply": 97,
+    "totalreply": 99,
     "title": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
     "newtitle": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
-    "lastedit": 1751812341,
+    "lastedit": 1751812933,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16524,11 +16524,20 @@
     "update": false
   },
   "2255802": {
-    "totalreply": 88,
+    "totalreply": 89,
     "title": "[重口慎入男扮女装60岁大爷环肥燕瘦睡了1600人，还有纯情男大四季都来]",
     "newtitle": "[重口慎入男扮女装60岁大爷环肥燕瘦睡了1600人，还有纯情男大四季都来]",
-    "lastedit": 1751812694,
+    "lastedit": 1751813177,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2184676": {
+    "totalreply": 41,
+    "title": "[モクモクれん《光死去的夏天》TV动画2025年7月6日播出]",
+    "newtitle": "[モクモクれん《光死去的夏天》TV动画2025年7月6日播出]",
+    "lastedit": 1751813177,
+    "category": "漫区",
     "active": true,
     "update": false
   }
