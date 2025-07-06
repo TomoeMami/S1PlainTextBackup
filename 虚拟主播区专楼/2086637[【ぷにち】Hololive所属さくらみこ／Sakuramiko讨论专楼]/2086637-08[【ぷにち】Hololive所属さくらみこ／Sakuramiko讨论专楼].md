@@ -132,3 +132,28 @@
 
 2025-7-6 16:14 上传
 
+
+*****
+
+####  holofan  
+##### 11094#       发表于 2025-7-6 17:07
+
+ 本帖最后由 holofan 于 2025-7-6 17:15 编辑 
+
+七字母过激派！？？？？？？？？？？？？？？？？？？？？？
+
+<img src="https://img.stage1st.com/forum/202507/06/171528tqzmkaphmmkpss9q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 17:15 上传
+
+*****
+
+####  holofan  
+##### 11095#       发表于 2025-7-6 17:19
+
+唉，gamers的现场粉丝比起gamersmember自身更在意七字母的关系
+
