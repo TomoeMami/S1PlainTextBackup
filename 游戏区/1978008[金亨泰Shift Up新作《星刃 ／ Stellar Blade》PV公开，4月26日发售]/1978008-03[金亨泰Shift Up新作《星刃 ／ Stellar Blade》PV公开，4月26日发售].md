@@ -10606,3 +10606,16 @@ PC版可以sl，备份存档没钓到直接回档。。。
 
 这下更不想打ps5版了，存档还在二周目打一半拿完尼尔联动服装那里。这游戏多周目在大地图开传送点和营地实在是太折磨了
 
+
+*****
+
+####  oyss  
+##### 3888#       发表于 2025-7-6 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68055019&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-7-6 20:26</a>
+
+死钓鱼佬只告诉去海边的9号能钓到鱼，问题是这地方全泡海里了，能看到的地儿都能下杆
+
+结果一路清任务， ...</blockquote>
+他特意说了植物园
+

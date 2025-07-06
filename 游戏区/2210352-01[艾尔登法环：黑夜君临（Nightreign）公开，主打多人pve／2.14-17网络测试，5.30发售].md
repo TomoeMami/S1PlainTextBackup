@@ -11476,3 +11476,15 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 PS5版怎么双持跳劈？
 
+
+*****
+
+####  ohi.02  
+##### 1107#       发表于 2025-7-6 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68055168&amp;ptid=2210352" target="_blank">Jabeck 发表于 2025-7-6 21:03</a>
+PS5版怎么双持跳劈？</blockquote>
+需要同类型武器，跳起来按左肩键
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
