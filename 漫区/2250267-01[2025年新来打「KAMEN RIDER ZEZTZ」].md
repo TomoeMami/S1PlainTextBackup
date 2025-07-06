@@ -58,3 +58,29 @@
 テレビ朝日系　毎週日曜　午前 9:00～9:30
 <img src="https://p.sda1.dev/25/6d23b8af7b6e5d8f237ce41cfb4607f9/20250706_090230.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 62#       发表于 2025-7-6 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052322&amp;ptid=2250267" target="_blank">Schwftyyyyy 发表于 2025-7-6 08:56</a>
+去年加布就是因为皮套不好看才懒得看的，今年这个感觉也好丑，为什么那么像利维斯啊，东映是没有别的设计方 ...</blockquote>
+我第一眼也是李维斯。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  恶意之刃  
+##### 63#       发表于 2025-7-6 09:20
+
+梦主题有点儿戏，希望深入世界观后底层能再硬核科幻一点。
+
+*****
+
+####  仟音一心  
+##### 64#       发表于 2025-7-6 09:21
+
+<img src="https://p.sda1.dev/25/c502086a53279bdc0731eec447c77b80/image.jpg" referrerpolicy="no-referrer">
+
