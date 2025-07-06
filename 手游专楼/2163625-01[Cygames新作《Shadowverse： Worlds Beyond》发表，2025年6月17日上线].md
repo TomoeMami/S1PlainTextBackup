@@ -5538,3 +5538,14 @@ OK，我也填了
 和脸龙怎么会low这么久，脸龙不是一般最多8费打不死他自己就没牌跑了么</blockquote>
 跳费龙也带扇子的
 
+
+*****
+
+####  duraa  
+##### 415#       发表于 2025-7-6 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68054202&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-7-6 17:03</a>
+
+和脸龙怎么会low这么久，脸龙不是一般最多8费打不死他自己就没牌跑了么</blockquote>
+带扇子的跳费龙，我oqs来的太晚了，前面进化点都交完了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
