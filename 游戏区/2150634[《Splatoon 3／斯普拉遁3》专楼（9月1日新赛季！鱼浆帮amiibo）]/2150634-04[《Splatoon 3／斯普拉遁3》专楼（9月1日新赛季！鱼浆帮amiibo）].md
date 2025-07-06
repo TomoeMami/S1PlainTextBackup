@@ -26,3 +26,16 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 5742#       发表于 2025-7-6 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052905&amp;ptid=2150634" target="_blank">IRIS虹 发表于 2025-7-6 11:02</a>
+萌新借楼问下怎么入坑，被人吊起来当狗杀</blockquote>
+可以先把单人模式通了熟悉操作。主要是适应体感。
+然后就是找到自己喜欢的武器类型再练。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
