@@ -5557,3 +5557,15 @@ OK，我也填了
 
 人偶鱼4胜了，准时连拍oqs太逆天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 417#       发表于 2025-7-6 23:23
+
+ 本帖最后由 duraa 于 2025-7-6 23:25 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">一方面可能有打的国际服的原因，一方面可能有我只玩造物仇的原因，在国际服分组进了钻石就没掉下来过，两天美美打了快3W分
+
+国服只上过一次钻石，没多久就被打下来了，当然国服我玩的也杂就是
+
