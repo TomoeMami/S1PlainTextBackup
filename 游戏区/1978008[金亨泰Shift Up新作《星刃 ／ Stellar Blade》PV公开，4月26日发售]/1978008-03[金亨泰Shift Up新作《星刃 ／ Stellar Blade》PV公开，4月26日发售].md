@@ -10470,3 +10470,34 @@ https://www.bilibili.com/video/BV19JgRzWERn
 
 4号有一个太阳镜和一个罐子，主线走完之后就拿不到了，也是去绿洲钓箱子
 
+
+*****
+
+####  江戸前ルナ  
+##### 3876#       发表于 2025-7-6 12:27
+
+[https://www.bilibili.com/video/BV1Fc3ozuEHo](https://www.bilibili.com/video/BV1Fc3ozuEHo)
+
+刷到个地图拆解视频，笑cry了。艾多斯7号终点的金刚所在地就在出生点隔壁，9号百合工作室跟7号出生点还有金刚所在地就隔了条河<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+评论区总结：
+
+原告：外地人伊芙
+
+被告：黑心本地出租艾德姆
+
+原因：绕远路，拒载，图谋不轨
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3877#       发表于 2025-7-6 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053260&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-6 12:27</a>
+https://www.bilibili.com/video/BV1Fc3ozuEHo
+
+刷到个地图拆解视频，笑cry了。艾多斯7号终点的金刚所在地 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">精巧的地图设计，魂味儿的又一力证！
+
