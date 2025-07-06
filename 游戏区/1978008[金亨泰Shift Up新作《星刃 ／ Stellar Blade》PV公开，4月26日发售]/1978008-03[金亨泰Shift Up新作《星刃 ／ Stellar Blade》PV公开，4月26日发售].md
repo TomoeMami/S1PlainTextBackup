@@ -10425,3 +10425,18 @@ https://www.bilibili.com/video/BV19JgRzWERn
 找个攻略，看看缺哪条，哪里池子浅容易出对应的鱼，然后看看缺的鱼是几星的，两星就是两个叹号，三星就是三个叹号
 叹号数量不对就不收杆，省鱼饵的同时省去很多无效操作
 
+
+*****
+
+####  oyss  
+##### 3874#       发表于 2025-7-6 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052655&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-7-6 10:03</a>
+
+确实平A打一半被boss痛殴不冤枉了，没事儿就转圈…
+
+——————————
+
+这钓鱼出货率是不是有什么设计 ...</blockquote>
+就是没鱼,哪里有鱼问那个钓鱼佬会告诉你.
+
