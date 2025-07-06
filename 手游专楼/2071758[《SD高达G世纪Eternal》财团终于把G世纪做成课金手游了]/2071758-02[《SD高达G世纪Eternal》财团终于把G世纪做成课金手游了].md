@@ -7225,3 +7225,11 @@ Ex1全开发作业，无sp无ur
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">夜莺材料都12个了海牛刚7个 这掉落真蛋疼
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2145#       发表于 2025-7-6 13:06
+
+在没有提升碎片爆率的情况下，碎片消耗翻了5倍，太离谱了，可能是真的钱太好赚了，随便折腾
+
