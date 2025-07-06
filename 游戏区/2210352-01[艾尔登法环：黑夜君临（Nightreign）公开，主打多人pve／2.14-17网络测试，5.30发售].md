@@ -11458,3 +11458,13 @@ fs社的双boss设计水平也感觉一直在原地打转
 
 打了女爵任务才看明白这个
 
+
+*****
+
+####  ohi.02  
+##### 1105#       发表于 2025-7-6 19:18
+
+唤灵仪式矛太幽默了，那么大范围的战技对着大土龙打一套才三百多伤害<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
