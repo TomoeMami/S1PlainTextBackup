@@ -52,3 +52,26 @@
 
 —— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  晴岚  
+##### 5744#       发表于 2025-7-6 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052905&amp;ptid=2150634" target="_blank">IRIS虹 发表于 2025-7-6 11:02</a>
+
+萌新借楼问下怎么入坑，被人吊起来当狗杀</blockquote>
+PVP就只有一个，多打，多练枪跟多复盘。但其实都是多打，当然反馈会很差。
+
+
+*****
+
+####  绿冰  
+##### 5745#         楼主| 发表于 2025-7-6 16:32
+
+<blockquote>IRIS虹 发表于 2025-7-6 11:02
+萌新借楼问下怎么入坑，被人吊起来当狗杀</blockquote>
+先打单机的英雄模式，对基本技巧和武器就能有全面理解
+
+实在不想打单机的话，散步逛地图，摸清地图的各个路线，对几个激战点位有点距离感，好把握武器射程
+

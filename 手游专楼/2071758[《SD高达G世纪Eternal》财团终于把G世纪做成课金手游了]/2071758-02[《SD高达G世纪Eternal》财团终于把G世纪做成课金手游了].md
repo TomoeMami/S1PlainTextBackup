@@ -7248,3 +7248,20 @@ Ex1全开发作业，无sp无ur
 
 每天略过次数能不能也给个两倍三倍啊，哪怕是新章节限时呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2147#       发表于 2025-7-6 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053765&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-6 15:01</a>
+
+往前是X分裂者50碎，明镜46碎，翻的倒只是两倍
+
+逆鸭有多有少还好，种命是真的需求又多制造又烦关还少
+
+每 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">再往前ZZ总计只要22碎片，Z只要16碎片。完美强袭更少，只要16碎片，流星自由22碎片
+
+逆鸭好歹还能刷点SR省点，SD就真的畜生了
+
