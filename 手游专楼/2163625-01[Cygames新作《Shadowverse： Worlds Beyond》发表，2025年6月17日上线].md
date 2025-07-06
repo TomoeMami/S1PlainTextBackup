@@ -5569,3 +5569,13 @@ OK，我也填了
 
 国服只上过一次钻石，没多久就被打下来了，当然国服我玩的也杂就是
 
+
+*****
+
+####  希米露  
+##### 418#       发表于 2025-7-7 01:09
+
+今天是300尘100金币一张new金<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">开箱好爽
+
+—— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -10749,3 +10749,15 @@ hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.c
 
 那口棺材一周目也坑了我一次，对话开棺我以为是自己舔图不仔细，想看清楚那件衣服是什么样式的（过场动画给的角度全都是脸特写或远距离的全身照，担心对话完会直接切场景），于是alt+f4强退重新读取进植物园前的椅子，结果凑近一看是个空的，扔个模型在里面又不难<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  snailium  
+##### 3897#       发表于 2025-7-7 01:10
+
+<blockquote>江戸前ルナ 发表于 2025-7-6 19:47
+请问有没对照服装中英文名字的地方，大部分集合MOD都是英文很多对不上哪件和哪件 ...</blockquote>
+下面这个是我自用的，融合了reddit老哥和楼里那个QQ文档攻略
+
+https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YCeMs/edit?usp=drivesdk
+
