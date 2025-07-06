@@ -10530,3 +10530,14 @@ https://www.bilibili.com/video/BV1Fc3ozuEHo
 4号高塔漏了个眼镜，但奇怪的鱼饵只有十个了，能用其他东西钓吗？还是这个鱼饵哪里有刷/换 ...</blockquote>
 记得大沙漠的怪概率掉
 
+
+*****
+
+####  江戸前ルナ  
+##### 3881#       发表于 2025-7-6 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053553&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-6 13:51</a>
+
+单论9号在7号旁边这点还是没啥问题吧，百合在7号不说是因为好感度不够信不过，new game+玩家很容发现，在7 ...</blockquote>
+吐槽的是艾德姆要去百合的工作室明明从金刚那里走带伊芙越过河就是，但他偏偏从炮塔最多的地方飞要伊芙下去靠双腿跑砍足一路<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
