@@ -599,3 +599,14 @@ DVD 一共四卷，应该是一季，12或者13话。不知道能讲完第几卷
 
 不知道后面能不能保持第一集的质量
 
+
+*****
+
+####  tiro_finale  
+##### 48#       发表于 2025-7-6 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053707&amp;ptid=2193746" target="_blank">pzk 发表于 2025-7-6 14:42</a>
+
+感觉逼去当保镖的说服逻辑不通顺啊，完全就是糊弄过去了</blockquote>
+主要是国王给的任务，就算莫妮卡死活不想接，路易斯在国王面前吹比一下莫妮卡有多合适，国王直接要求的话，她肯定没办法拒绝的
+
