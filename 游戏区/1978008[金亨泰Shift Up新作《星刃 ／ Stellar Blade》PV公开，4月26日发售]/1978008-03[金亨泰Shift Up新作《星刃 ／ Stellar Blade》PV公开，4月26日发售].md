@@ -10519,3 +10519,14 @@ https://www.bilibili.com/video/BV1Fc3ozuEHo
 
 4号高塔漏了个眼镜，但奇怪的鱼饵只有十个了，能用其他东西钓吗？还是这个鱼饵哪里有刷/换
 
+
+*****
+
+####  alucardcz  
+##### 3880#       发表于 2025-7-6 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053757&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-6 14:59</a>
+
+4号高塔漏了个眼镜，但奇怪的鱼饵只有十个了，能用其他东西钓吗？还是这个鱼饵哪里有刷/换 ...</blockquote>
+记得大沙漠的怪概率掉
+
