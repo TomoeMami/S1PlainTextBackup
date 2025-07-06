@@ -109,3 +109,26 @@
 
 倒是提到好几次10周年的2028年，28年有什么大计划吧
 
+
+*****
+
+####  holofan  
+##### 11092#       发表于 2025-7-6 16:04
+
+简直就是486完全翻版了
+
+附体了吗
+
+*****
+
+####  holofan  
+##### 11093#       发表于 2025-7-6 16:14
+
+<img src="https://img.stage1st.com/forum/202507/06/161422fse7xd7h7c0szqtl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 16:14 上传
+
