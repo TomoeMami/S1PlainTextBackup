@@ -11488,3 +11488,16 @@ PS5版怎么双持跳劈？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jabeck  
+##### 1108#       发表于 2025-7-6 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68055229&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-7-6 21:21</a>
+
+需要同类型武器，跳起来按左肩键
+
+—— 来自 S1Fun</blockquote>
+OK，谢谢
+
