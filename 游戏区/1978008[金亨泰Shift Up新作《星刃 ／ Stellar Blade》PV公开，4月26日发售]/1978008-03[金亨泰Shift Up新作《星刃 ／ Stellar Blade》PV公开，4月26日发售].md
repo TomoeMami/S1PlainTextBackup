@@ -10649,3 +10649,27 @@ PC版可以sl，备份存档没钓到直接回档。。。
 然后看看缺的鱼是几星的，两星就是两个叹 ...</blockquote>
 终于钓满20种了，装个钓鱼减时间的Mod攒积分去了（躺
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3891#       发表于 2025-7-6 22:23
+
+<strong>
+
+*图片略有剧透请注意*</strong>
+
+一周目从轨道电梯回来结局我都是特意换回青椒装的
+
+多周目的我：
+
+<img src="https://img.stage1st.com/forum/202507/06/222234a444bm4js0466jqt.jpg" referrerpolicy="no-referrer">
+
+<strong>1-1.jpg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 22:22 上传
+
+hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
