@@ -10501,3 +10501,13 @@ https://www.bilibili.com/video/BV1Fc3ozuEHo
 刷到个地图拆解视频，笑cry了。艾多斯7号终点的金刚所在地 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">精巧的地图设计，魂味儿的又一力证！
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3878#       发表于 2025-7-6 13:51
+
+单论9号在7号旁边这点还是没啥问题吧，百合在7号不说是因为好感度不够信不过，new game+玩家很容发现，在7号开阔场景就能看见9号的建筑。本来有些小队的降落点就是艾多的不同位置，剧情里只给了7和9，理论上还有好几块
+
+至于其他有的没的就是仁王式设计了XD 
+
