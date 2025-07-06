@@ -555,3 +555,11 @@ OP：[https://youtu.be/8dky0A7Gx1c](https://youtu.be/8dky0A7Gx1c)
 
 DVD 一共四卷，应该是一季，12或者13话。不知道能讲完第几卷。我最喜欢的是跟另一间学校比赛象棋那卷，虽然这次肯定讲不到。另外最后屠龙的BGM ，真的一股大妈特有的编曲味，但竟然不是大妈编曲。
 
+
+*****
+
+####  pzk  
+##### 44#       发表于 2025-7-6 14:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉逼去当保镖的说服逻辑不通顺啊，完全就是糊弄过去了
+
