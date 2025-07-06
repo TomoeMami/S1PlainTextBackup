@@ -149,3 +149,11 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 这胸肩包看着又没什么玩法啊，升级道具如果太大的话会咯到吧，看着要比腰带要危险一点，或者弄成平坦的？当 ...</blockquote>
 没准又是后期换腰带
 
+
+*****
+
+####  L-JoeW  
+##### 73#       发表于 2025-7-6 18:07
+
+因为是梦境就可以用没有逻辑的ai生成背景图吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真的是很有巧思了
+
