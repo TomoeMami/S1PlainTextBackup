@@ -10619,3 +10619,19 @@ PC版可以sl，备份存档没钓到直接回档。。。
 结果一路清任务， ...</blockquote>
 他特意说了植物园
 
+
+*****
+
+####  疯褒之伶  
+##### 3889#       发表于 2025-7-6 21:41
+
+<img src="https://img.stage1st.com/forum/202507/06/214123e79ss292e579k792.png" referrerpolicy="no-referrer">
+
+<strong>Stellar Blade Screenshot 2025.07.06 - 21.35.22.45.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 21:41 上传
+
+都买空了怎么还有红点。。
+
