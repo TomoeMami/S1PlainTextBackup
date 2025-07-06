@@ -10558,3 +10558,30 @@ https://www.bilibili.com/video/BV1Fc3ozuEHo
 中配男性声音普遍比女性的能接受，开场迅驰过于平淡反正她登场少，百合的声音感觉太做作了一点。
 另外装了唯一一个拍照模式不隐藏角色模型的mod，发现大部分紧身/全包衣真就是层皮，那些有明显大块裸露皮肤的才是皮肤外面套东西。
 
+
+*****
+
+####  Andariel  
+##### 3884#       发表于 2025-7-6 20:19
+
+ 本帖最后由 Andariel 于 2025-7-6 20:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68054835&amp;ptid=1978008" target="_blank">mhss 发表于 2025-7-6 19:51</a>
+三周目刚到希雍，武器是不是能无限升级的？后三个都满了武器还没看到头。
+中配男性声音普遍比女性的能接受 ...</blockquote>
+武器满级40级
+
+另外好像那件斜纹有晒痕的泳装奶渍的部分还有衣服下面的建模，可以找角度试试<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  darkangel0224  
+##### 3885#       发表于 2025-7-6 20:26
+
+<blockquote>oyss 发表于 2025-7-6 10:48
+就是没鱼,哪里有鱼问那个钓鱼佬会告诉你.</blockquote>
+
+死钓鱼佬只告诉去海边的9号能钓到鱼，问题是这地方全泡海里了，能看到的地儿都能下杆
+
+结果一路清任务，直到百合的工作室才钓出鱼，真特么作孽设计
+

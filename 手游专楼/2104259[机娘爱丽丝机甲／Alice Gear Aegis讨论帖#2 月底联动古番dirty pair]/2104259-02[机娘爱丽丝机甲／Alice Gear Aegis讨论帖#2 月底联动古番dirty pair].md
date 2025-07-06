@@ -120,3 +120,11 @@
 
 草 原来是那个写要击6次的大哥 那房间从来没进去过前面光说id都没想起来这是谁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1524#         楼主| 发表于 2025-7-6 20:22
+
+冰系管人那个腿技能激光扫地强得有点过分了，可以扫360度一圈的<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
