@@ -39,3 +39,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hisousihou  
+##### 5743#       发表于 2025-7-6 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052905&amp;ptid=2150634" target="_blank">IRIS虹 发表于 2025-7-6 11:02</a>
+萌新借楼问下怎么入坑，被人吊起来当狗杀</blockquote>
+没事，这游戏就是这样的，需要时间习惯操作和理解武器
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我一年没玩了，回来以后也变成被人吊着杀。总有比你菜的
+
+—— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
