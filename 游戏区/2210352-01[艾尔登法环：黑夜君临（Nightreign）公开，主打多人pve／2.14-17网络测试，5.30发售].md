@@ -11448,3 +11448,13 @@ fs社的双boss设计水平也感觉一直在原地打转
 你这个视频下面的点评也太难绷了……真得很难想象连“因为黑环没有限重所以谁拿大盾都一样”的话都可以讲 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毕竟低龄视频网站 有抬杠小孩很正常
 
+
+*****
+
+####  jacket  
+##### 1104#       发表于 2025-7-6 18:35
+
+[https://x.com/Keith_Garces/status/1940497925043638514/](https://x.com/Keith_Garces/status/1940497925043638514/)
+
+打了女爵任务才看明白这个
+
