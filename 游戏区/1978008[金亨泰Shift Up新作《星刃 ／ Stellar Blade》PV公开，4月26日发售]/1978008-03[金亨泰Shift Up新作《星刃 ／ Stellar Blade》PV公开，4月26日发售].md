@@ -10713,3 +10713,20 @@ hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.c
 
 毫不意外，骆驼趾也还原了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  RainbowSealife  
+##### 3894#       发表于 2025-7-6 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68052655&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-7-6 10:03</a>
+
+确实平A打一半被boss痛殴不冤枉了，没事儿就转圈…
+
+——————————
+
+这钓鱼出货率是不是有什么设计 ...</blockquote>
+[《剑星》一篇文章带你搞定钓鱼全图鉴&amp;支线任务（含海潮女仆）！](https://www.xiaoheihe.cn/app/bbs/link/157858616)
+
+钓鱼我参考的这篇，主要是看钓鱼数据、鱼饵、地点
+
