@@ -10741,3 +10741,11 @@ hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.c
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说起来这个棺材我仔细观察过
 无论是那段开盖演出之前还是之后，棺材里面都是空的
 
+
+*****
+
+####  mhss  
+##### 3896#       发表于 2025-7-7 00:24
+
+那口棺材一周目也坑了我一次，对话开棺我以为是自己舔图不仔细，想看清楚那件衣服是什么样式的（过场动画给的角度全都是脸特写或远距离的全身照，担心对话完会直接切场景），于是alt+f4强退重新读取进植物园前的椅子，结果凑近一看是个空的，扔个模型在里面又不难<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
