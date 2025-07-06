@@ -25,3 +25,36 @@
 
 切形态是换计时器吗
 
+
+*****
+
+####  Piano-Forest  
+##### 61#         楼主| 发表于 2025-7-6 09:08
+
+特报PV：[https://youtu.be/F56g6sNYZEM](https://youtu.be/F56g6sNYZEM)
+
+官网：
+[https://www.kamen-rider-official.com/zeztz/](https://www.kamen-rider-official.com/zeztz/)
+[https://www.tv-asahi.co.jp/zeztz/](https://www.tv-asahi.co.jp/zeztz/)
+
+官推：[https://x.com/zeztz7toei/](https://x.com/zeztz7toei/)
+
+▏▏▏▌　目覚めろ　 ▌▏▏▏▏
+
+新時代の仮面ライダー
+
+夢に潜入するエージェント
+
+【仮面ライダーゼッツ】
+
+胸に光る革新的変身ベルト！
+
+衝撃のティザービジュアル公開
+
+#仮面ライダーゼッツ
+
+🗓2025年9月スタート！！
+
+テレビ朝日系　毎週日曜　午前 9:00～9:30
+<img src="https://p.sda1.dev/25/6d23b8af7b6e5d8f237ce41cfb4607f9/20250706_090230.jpg" referrerpolicy="no-referrer">
+
