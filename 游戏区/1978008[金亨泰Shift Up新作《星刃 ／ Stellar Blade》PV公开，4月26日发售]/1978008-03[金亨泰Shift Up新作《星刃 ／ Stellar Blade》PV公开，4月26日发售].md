@@ -10541,3 +10541,20 @@ https://www.bilibili.com/video/BV1Fc3ozuEHo
 单论9号在7号旁边这点还是没啥问题吧，百合在7号不说是因为好感度不够信不过，new game+玩家很容发现，在7 ...</blockquote>
 吐槽的是艾德姆要去百合的工作室明明从金刚那里走带伊芙越过河就是，但他偏偏从炮塔最多的地方飞要伊芙下去靠双腿跑砍足一路<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 3882#       发表于 2025-7-6 19:47
+
+请问有没对照服装中英文名字的地方，大部分集合MOD都是英文很多对不上哪件和哪件<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mhss  
+##### 3883#       发表于 2025-7-6 19:51
+
+三周目刚到希雍，武器是不是能无限升级的？后三个都满了武器还没看到头。
+中配男性声音普遍比女性的能接受，开场迅驰过于平淡反正她登场少，百合的声音感觉太做作了一点。
+另外装了唯一一个拍照模式不隐藏角色模型的mod，发现大部分紧身/全包衣真就是层皮，那些有明显大块裸露皮肤的才是皮肤外面套东西。
+
