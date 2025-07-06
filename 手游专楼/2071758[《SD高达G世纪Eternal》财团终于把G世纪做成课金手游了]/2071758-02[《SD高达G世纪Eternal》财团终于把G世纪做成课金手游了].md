@@ -7217,3 +7217,11 @@ Ex1全开发作业，无sp无ur
 
 不过骡子你怎么R3常规任务就要开发SR机的，其他人也没这么NT啊
 
+
+*****
+
+####  qixinno2  
+##### 2144#       发表于 2025-7-6 11:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">夜莺材料都12个了海牛刚7个 这掉落真蛋疼
+
