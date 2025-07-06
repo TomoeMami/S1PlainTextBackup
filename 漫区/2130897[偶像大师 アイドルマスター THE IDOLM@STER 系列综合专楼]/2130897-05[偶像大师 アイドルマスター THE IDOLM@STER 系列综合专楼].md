@@ -624,3 +624,23 @@ mltd开过台服的啊，就是马上就死了而已<img src="https://static.sta
 
 制作组有没有占卜一下“藤田琴音”这个名字<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 7077#       发表于 2025-7-6 18:42
+
+<img src="https://tc2.wfhtony.space/images/2025/07/06/dd55c303c67318c58b6021595624733e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/07/06/c8da7bc284eb5922cab0d168816b8229.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2025/07/06/4c81620f8682d238cb1c4915faa031a6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/07/06/c7df994d60efd6581535d08606e7bbc2.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/07/06/7ad52d4401bef2a226ad3aa94160340e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/07/06/65872b56d15e6e03aa24eac5f24af460.jpg" referrerpolicy="no-referrer">
+
+閃7th確認有追加場。十月橫浜K-Arena。
+
+『圓環』之後是『螺旋』麼...
+
+（從時間看，本次追加場爲原先半週年公演的場次，從標題看依然爲序號公演）
+

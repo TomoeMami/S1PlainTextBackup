@@ -157,3 +157,13 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 
 因为是梦境就可以用没有逻辑的ai生成背景图吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真的是很有巧思了
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 74#       发表于 2025-7-6 18:40
+
+<blockquote>BQlin 发表于 2025-7-6 11:42
+没准又是后期换腰带</blockquote>
+草，很骑士棚，不过这就没啥意思了
+
