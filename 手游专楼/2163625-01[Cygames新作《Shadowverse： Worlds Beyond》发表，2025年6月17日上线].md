@@ -5516,3 +5516,14 @@ OK，我也填了
 
 和对面打到未知领域了，差点看到对面死神
 
+
+*****
+
+####  olkzdf  
+##### 413#       发表于 2025-7-6 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68053237&amp;ptid=2163625" target="_blank">duraa 发表于 2025-7-6 12:21</a>
+
+和对面打到未知领域了，差点看到对面死神</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">和脸龙怎么会low这么久，脸龙不是一般最多8费打不死他自己就没牌跑了么
+
