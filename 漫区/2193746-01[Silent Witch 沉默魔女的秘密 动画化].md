@@ -610,3 +610,26 @@ DVD 一共四卷，应该是一季，12或者13话。不知道能讲完第几卷
 感觉逼去当保镖的说服逻辑不通顺啊，完全就是糊弄过去了</blockquote>
 主要是国王给的任务，就算莫妮卡死活不想接，路易斯在国王面前吹比一下莫妮卡有多合适，国王直接要求的话，她肯定没办法拒绝的
 
+
+*****
+
+####  洛亚替身  
+##### 49#       发表于 2025-7-6 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68054286&amp;ptid=2193746" target="_blank">落羽飘尽 发表于 2025-7-6 17:26</a>
+
+因为有个背景设定是，眼镜和小松鼠是两个资历最浅的七贤人，这两人同一批进单位的
+
+现在国王布置了一个七 ...</blockquote>
+最爆笑的是小松鼠是贤人还是和他一样有贵族头衔的，只是她好欺负加上没社会常识容易被忽悠，换个人鬼畜都指挥不动<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 50#       发表于 2025-7-6 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68054330&amp;ptid=2193746" target="_blank">tiro_finale 发表于 2025-7-6 17:39</a>
+
+主要是国王给的任务，就算莫妮卡死活不想接，路易斯在国王面前吹比一下莫妮卡有多合适，国王直接要求的话 ...</blockquote>
+实际上是安排给他，他外包出去后好育婴而已<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

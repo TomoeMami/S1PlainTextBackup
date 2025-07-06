@@ -10730,3 +10730,14 @@ hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.c
 
 钓鱼我参考的这篇，主要是看钓鱼数据、鱼饵、地点
 
+
+*****
+
+####  Andariel  
+##### 3895#       发表于 2025-7-6 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68055559&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-6 22:26</a>
+这张照片，名为：《百合是我的，去死吧！》</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说起来这个棺材我仔细观察过
+无论是那段开盖演出之前还是之后，棺材里面都是空的
+
