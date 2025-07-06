@@ -3668,7 +3668,7 @@
     "newtitle": "[20.07『租借女友／彼女、お借りします』专楼]",
     "lastedit": 1751520254,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1725725": {
@@ -11187,10 +11187,10 @@
     "update": false
   },
   "2125794": {
-    "totalreply": 378,
+    "totalreply": 379,
     "title": "[bilibili × Aniplex 凸变英雄X]",
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
-    "lastedit": 1751763736,
+    "lastedit": 1751779332,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11700,10 +11700,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 4408,
+    "totalreply": 4409,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／618咚奇刚专场nd]",
-    "lastedit": 1751778972,
+    "lastedit": 1751779331,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12543,15 +12543,6 @@
     "lastedit": 1751738168,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2254351": {
-    "totalreply": 57,
-    "title": "[第三方 Switch 2 游戏销量开局缓慢，发行商直言“比最低预期还低”]",
-    "newtitle": "[第三方 Switch 2 游戏销量开局缓慢，发行商直言“比最低预期还低”]",
-    "lastedit": 1750569856,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2254370": {
@@ -15984,10 +15975,10 @@
     "update": false
   },
   "2255593": {
-    "totalreply": 85,
+    "totalreply": 87,
     "title": "[你被老师安利过明星吗]",
     "newtitle": "[你被老师安利过明星吗]",
-    "lastedit": 1751778850,
+    "lastedit": 1751779694,
     "category": "外野",
     "active": true,
     "update": false
@@ -16407,10 +16398,10 @@
     "update": false
   },
   "2255662": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[更新，果然对电车偏见再大，试驾一试一个不吱声]",
     "newtitle": "[更新，果然对电车偏见再大，试驾一试一个不吱声]",
-    "lastedit": 1751779089,
+    "lastedit": 1751779694,
     "category": "外野",
     "active": true,
     "update": false
@@ -16497,10 +16488,10 @@
     "update": false
   },
   "2255723": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[NYT：你听到从东方传来的巨响吗？那是14亿东大人嘲笑我们的声音]",
     "newtitle": "[NYT：你听到从东方传来的巨响吗？那是14亿东大人嘲笑我们的声音]",
-    "lastedit": 1751776935,
+    "lastedit": 1751779694,
     "category": "外野",
     "active": true,
     "update": false
@@ -16515,10 +16506,10 @@
     "update": false
   },
   "2255749": {
-    "totalreply": 50,
+    "totalreply": 52,
     "title": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
     "newtitle": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
-    "lastedit": 1751778730,
+    "lastedit": 1751779566,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16542,19 +16533,19 @@
     "update": false
   },
   "2255767": {
-    "totalreply": 53,
+    "totalreply": 56,
     "title": "[马不韦另立门户！在社交媒体上宣布“西大党”成立！]",
     "newtitle": "[马不韦另立门户！在社交媒体上宣布“西大党”成立！]",
-    "lastedit": 1751779090,
+    "lastedit": 1751779694,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2255745": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[这次外卖大战是京东最先挑起来的，但是现在好像反而主场又双叒叕变成黄蓝大战了]",
     "newtitle": "[这次外卖大战是京东最先挑起来的，但是现在好像反而主场又双叒叕变成黄蓝大战了]",
-    "lastedit": 1751775376,
+    "lastedit": 1751779691,
     "category": "外野",
     "active": true,
     "update": false
@@ -16573,6 +16564,15 @@
     "title": "[细思极恐，我被自己创造的角色反噬了]",
     "newtitle": "[细思极恐，我被自己创造的角色反噬了]",
     "lastedit": 1751778853,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2255747": {
+    "totalreply": 41,
+    "title": "[新时代杀人直播]",
+    "newtitle": "[新时代杀人直播]",
+    "lastedit": 1751779451,
     "category": "外野",
     "active": true,
     "update": false
