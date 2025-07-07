@@ -10852,3 +10852,14 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 虽然论坛附件糊的一逼，但我还是看出来了是在希雍老头前面撅屁股
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寺胖  
+##### 3906#       发表于 2025-7-7 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68058215&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-7-7 11:51</a>
+
+虽然论坛附件糊的一逼，但我还是看出来了是在希雍老头前面撅屁股</blockquote>
+其实也很容易让艾德姆把头埋在伊芙臀里面，但是论坛发这个图违规不？
+
