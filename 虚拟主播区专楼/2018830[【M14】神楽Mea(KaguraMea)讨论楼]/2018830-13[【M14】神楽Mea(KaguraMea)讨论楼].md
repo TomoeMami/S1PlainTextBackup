@@ -55574,3 +55574,13 @@ BV13t411x7XY</blockquote>
 握鼠标的话我记得之前在苔姨的一次联动里有提过，好像是三四月之间的那种问答节目里。
 记得当时就在一个能够让人感受到情绪上的不安定的问题的标准答案里，能够希望男朋友可以在那样不安定的时候帮忙握着鼠标打下去
 
+
+*****
+
+####  sino__unnko3  
+##### 19005#       发表于 2025-7-7 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060268&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-7 17:58</a>
+主动解构被zerost直播嘲笑的握鼠标梗了</blockquote>
+这个握鼠标梗是啥
+
