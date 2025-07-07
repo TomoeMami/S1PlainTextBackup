@@ -128,3 +128,17 @@
 
 冰系管人那个腿技能激光扫地强得有点过分了，可以扫360度一圈的<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1525#       发表于 2025-7-7 15:02
+
+<img src="https://p.sda1.dev/25/2a74cfb2025e2b95588686d6f1b0f6fe/image.jpg" referrerpolicy="no-referrer">
+
+我以为最多只是身前180°，竟然是360°？整备界面放技能浮游炮脚下环绕一圈原来是这意思吗<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+打了把要击输出还行，那把狙连射3枪各135根光束的设计，感觉比较适合用来清杂。需要满sp提供伤害加成但是初始sp又低启动较慢<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

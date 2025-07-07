@@ -1962,3 +1962,15 @@ lize今年这是纯小概率之神了<img src="https://static.stage1st.com/image
 
 说实话虽然有些血压操作但是能感觉到她是真的在享受游戏（
 
+
+*****
+
+####  艾特娜  
+##### 1360#       发表于 2025-7-7 15:06
+
+t
+
+ 本帖最后由 艾特娜 于 2025-7-7 15:07 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是不事前收集情报而已，是评论栏提供的情报也不爱听，没把本战优胜当成目标。我是在她开局给安洁拉了几个月球速后就不看了，只爱看想赢的。
+
