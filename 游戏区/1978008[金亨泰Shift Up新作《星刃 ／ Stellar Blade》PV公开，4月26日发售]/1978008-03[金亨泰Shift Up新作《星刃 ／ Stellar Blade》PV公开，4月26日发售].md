@@ -10779,3 +10779,28 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 
 一周目通关，打的完美结局...........完全感受不到完美在哪，莫名其妙合体之后母猪带人下来围剿又莫名其妙打退之后重建主城
 
+
+*****
+
+####  Andariel  
+##### 3900#       发表于 2025-7-7 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68057002&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-7 09:15</a>
+一周目通关，打的完美结局...........完全感受不到完美在哪，莫名其妙合体之后母猪带人下来围剿又莫名其妙 ...</blockquote>
+因为合体了那谁没了，所以伊芙计划就终止了
+下来的姐妹都是伊芙计划的后备实验体，计划终止了就一股脑派下来看看融合体实力了
+重建主城只能说伊芙在和希雍的人相处这一段时间后找到了归属感吧，而且最后艾德姆托付给百合的电池怎么也得给人家送过去
+
+
+*****
+
+####  洛克萨斯  
+##### 3901#       发表于 2025-7-7 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68057042&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-7 09:21</a>
+
+因为合体了那谁没了，所以伊芙计划就终止了
+
+下来的姐妹都是伊芙计划的后备实验体，计划终止了就一股脑派 ...</blockquote>
+我知道他是这个意思，拍出来就感觉很莫名其妙..........合体之后应该是一口气推上高潮的，结果心流直接断了
+
