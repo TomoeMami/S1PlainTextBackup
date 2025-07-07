@@ -142,3 +142,18 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1526#         楼主| 发表于 2025-7-7 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68059226&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-7-7 15:02</a>
+
+我以为最多只是身前180°，竟然是360°？整备界面放技能浮游炮脚下环绕一圈原来是这意思吗
+
+打了把要击输 ...</blockquote>
+要扫360度还是要手动快速切一下锁定的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+她的近战输出极低，联机分高大概是因为她有奶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

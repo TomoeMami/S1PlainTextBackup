@@ -1991,3 +1991,15 @@ t
 
 皇女昨天的神之操作：走秀不上替补投手，亏了替补投手经验；然后安洁还差最后一打席3安打0封对手，她把安洁换下去了，成功避免了安洁获得蓝特的机会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 1363#       发表于 2025-7-7 17:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">还有更明显的4月切他校呢，离夏甲就2个多月了本来随随便便就走过去了
+
+哪怕真的压迫手卡了完全可以等其他卡都不好切的时候再切，结果lz就是看他校不顺眼必须立刻切
+
+他校留着就是你开场抽到C校B校时候的保险，还好她运气好抽了个菜鸡互啄的分组，如果开场遇个B校C校怕不是走远
+
