@@ -10913,3 +10913,16 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 
 沙漠是殖民地砸的,啥都不剩了. 两个城市至少还有楼没倒. 甚至单轨还能运行, 还通电呢.
 
+
+*****
+
+####  永远的访客  
+##### 3912#       发表于 2025-7-7 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68059952&amp;ptid=1978008" target="_blank">lpzhg 发表于 2025-7-7 17:03</a>
+
+原来真的是无良司机
+
+—— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+什么无良司机？只要有衣服可以捡，我巴不得司机再带着去个eidos1 3 5 11 13 15 17<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

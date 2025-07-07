@@ -175,3 +175,11 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 
 谷中寿成好像没见过啊，查了一下之前只p过outsiders收尾？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  f.w.  
+##### 76#       发表于 2025-7-7 20:26
+
+基础形态是挎包，那升级形态弄个腰包这腰带不就回来了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

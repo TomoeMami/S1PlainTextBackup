@@ -55584,3 +55584,25 @@ BV13t411x7XY</blockquote>
 主动解构被zerost直播嘲笑的握鼠标梗了</blockquote>
 这个握鼠标梗是啥
 
+
+*****
+
+####  TiHaru  
+##### 19006#       发表于 2025-7-7 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060879&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-7-7 20:12</a>
+
+这个握鼠标梗是啥</blockquote>
+上一次训练赛第三把远古龙放眼那里自我复盘的时候说那个时候很害怕不知道该做什么，希望有人跟自己一起捏着鼠标，切片被zerost教练在第二天的上午杂谈嘲笑
+
+syl，九点打训练赛（对战观众）
+
+*****
+
+####  术士q  
+##### 19007#       发表于 2025-7-7 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060879&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-7-7 20:12</a>
+这个握鼠标梗是啥</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">详见18952楼，那里楼友整理得比较清楚了。
+

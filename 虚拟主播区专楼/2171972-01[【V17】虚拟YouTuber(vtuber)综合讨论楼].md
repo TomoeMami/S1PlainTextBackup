@@ -2019,3 +2019,21 @@ Konami又补发了欠西西的转生投手<img src="https://static.stage1st.com/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">konami绝对开了，每个学校都这样，这根本不是我认识的荣冠
 
+
+*****
+
+####  gaiadc  
+##### 1366#       发表于 2025-7-7 20:13
+
+西西3指叉投+2书店，瞬间翻身
+
+*****
+
+####  usodakedo  
+##### 1367#       发表于 2025-7-7 20:18
+
+现在看下来反而是豆猫危，虽然靠着点盗滚拿了夏甲，但是点e今天看下来没法和指叉投手比，压制力没预想的强，继投又没养起来，队内大棒几乎只有月撇一个。
+不得不说cpu模式下指叉真是强出其他球种一大截，而如果一个投手只会投指叉或者指叉投手阵的话<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
