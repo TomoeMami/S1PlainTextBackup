@@ -10761,3 +10761,13 @@ hard雷雯：你ta妈能不能尊重我一下<img src="https://static.stage1st.c
 
 https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YCeMs/edit?usp=drivesdk
 
+
+*****
+
+####  Andariel  
+##### 3898#       发表于 2025-7-7 08:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">原来7号和9号在设定上就是挨着的，不是从省资源的角度共用了一套背景
+
+<img src="https://p.sda1.dev/25/8579f43b3977ea9f3655ab1ccca1ea67/image.jpg" referrerpolicy="no-referrer">
+
