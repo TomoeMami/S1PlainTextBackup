@@ -11501,3 +11501,15 @@ PS5版怎么双持跳劈？</blockquote>
 —— 来自 S1Fun</blockquote>
 OK，谢谢
 
+
+*****
+
+####  jacket  
+##### 1109#       发表于 2025-7-7 10:58
+
+[https://www.bilibili.com/video/BV1ue3Qz3Eb5/](https://www.bilibili.com/video/BV1ue3Qz3Eb5/)
+
+火山图公式化打法之黑夜君铃，感觉三女都能用，蓝条够长就行。
+
+1级过去摇死两只再把周围破烂捡一圈就肥了。
+
