@@ -866,3 +866,13 @@ q娃的角色能过海选就算胜利吧
 
 哦后面还会有个响凯特而且怎么看都会深度参与主线，别又整个反派boss跟响凯特有一腿所以要报复社会的茶几式剧情
 
+
+*****
+
+####  粉儿alice  
+##### 1146#       发表于 2025-7-7 09:06
+
+ed2不行 连角色solo分镜都分的一塌糊涂 奈奈solo镜头没有她也是绝了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 
+
+不出意外的话 ed2肯定是当5人大招用了
+

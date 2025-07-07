@@ -10771,3 +10771,11 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 
 <img src="https://p.sda1.dev/25/8579f43b3977ea9f3655ab1ccca1ea67/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3899#       发表于 2025-7-7 09:15
+
+一周目通关，打的完美结局...........完全感受不到完美在哪，莫名其妙合体之后母猪带人下来围剿又莫名其妙打退之后重建主城
+
