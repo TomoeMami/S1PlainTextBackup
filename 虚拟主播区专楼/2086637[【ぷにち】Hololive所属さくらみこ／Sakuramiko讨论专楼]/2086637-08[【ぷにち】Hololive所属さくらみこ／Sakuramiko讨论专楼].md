@@ -157,3 +157,26 @@
 
 唉，gamers的现场粉丝比起gamersmember自身更在意七字母的关系
 
+
+*****
+
+####  holofan  
+##### 11096#       发表于 2025-7-6 18:00
+
+今天这精神和身体状态还能有精力深夜直播太牛了
+
+上星期说这个周末参加gamers的活动大概没办法直播了，最后这两天哪一天的直播都没落下，确实没话说了
+
+*****
+
+####  holofan  
+##### 11097#       发表于 2025-7-7 18:12
+
+<img src="https://img.stage1st.com/forum/202507/07/181229fqkfpgpm44qrffq8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-7 18:12 上传
+
