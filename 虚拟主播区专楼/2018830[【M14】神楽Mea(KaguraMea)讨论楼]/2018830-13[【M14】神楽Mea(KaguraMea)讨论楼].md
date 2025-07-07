@@ -55606,3 +55606,13 @@ syl，九点打训练赛（对战观众）
 这个握鼠标梗是啥</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">详见18952楼，那里楼友整理得比较清楚了。
 
+
+*****
+
+####  sino__unnko3  
+##### 19008#       发表于 2025-7-7 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060536&amp;ptid=2018830" target="_blank">术士q 发表于 2025-7-7 18:57</a>
+握鼠标的话我记得之前在苔姨的一次联动里有提过，在这次大会好久之前了，好像是三四月之间的那种问答节目 ...</blockquote>
+2月23号的心理联动吗，一下子没找到这段的原文
+
