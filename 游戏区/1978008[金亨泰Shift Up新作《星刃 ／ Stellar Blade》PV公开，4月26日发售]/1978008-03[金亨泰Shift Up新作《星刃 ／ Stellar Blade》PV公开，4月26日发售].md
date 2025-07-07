@@ -10863,3 +10863,15 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 虽然论坛附件糊的一逼，但我还是看出来了是在希雍老头前面撅屁股</blockquote>
 其实也很容易让艾德姆把头埋在伊芙臀里面，但是论坛发这个图违规不？
 
+
+*****
+
+####  lpzhg  
+##### 3907#       发表于 2025-7-7 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68056827&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-7 08:47</a>
+原来7号和9号在设定上就是挨着的，不是从省资源的角度共用了一套背景</blockquote>
+原来真的是无良司机<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
