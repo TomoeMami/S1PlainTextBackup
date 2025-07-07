@@ -10905,3 +10905,11 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 这可没想到，要是以后有证据矩阵11是2个城市间的地铁就更好了</blockquote>
 矩阵11就是沙漠中间那块把
 
+
+*****
+
+####  oyss  
+##### 3911#       发表于 2025-7-7 19:35
+
+沙漠是殖民地砸的,啥都不剩了. 两个城市至少还有楼没倒. 甚至单轨还能运行, 还通电呢.
+

@@ -2011,3 +2011,11 @@ t
 
 Konami又补发了欠西西的转生投手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 1365#       发表于 2025-7-7 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">konami绝对开了，每个学校都这样，这根本不是我认识的荣冠
+

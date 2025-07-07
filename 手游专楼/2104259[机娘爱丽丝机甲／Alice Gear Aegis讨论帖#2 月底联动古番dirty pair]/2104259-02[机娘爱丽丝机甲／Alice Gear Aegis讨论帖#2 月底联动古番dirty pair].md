@@ -157,3 +157,17 @@
 
 她的近战输出极低，联机分高大概是因为她有奶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1527#       发表于 2025-7-7 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060124&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-7-7 17:31</a>
+要扫360度还是要手动快速切一下锁定的
+
+她的近战输出极低，联机分高大概是因为她有奶</blockquote>
+确实，训练房玩了玩，近战三连接刀光都不高，平时输出大头全在第三枪全中<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概只能靠AN跟FA救了吧
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
