@@ -7320,3 +7320,22 @@ SSR不太建议SP化，PVP每个月都有最多突一台就好了吧，而且不
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  丹德里恩  
+##### 2152#       发表于 2025-7-7 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68058583&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-7-7 12:55</a>
+
+下次大师赛，电光火石没有船，只能用主角船了。
+
+但发现主角标签没有什么盾机。
+
+只能开发满破命运和海牛了吗 ...</blockquote>
+海牛目前来看是SSR最强盾机，配置几乎完美，还适配约拿大神
+
+命运么...单说机体同系列不如威达，按主角标签算的话也不如卡池里的元祖和红异端
+
+只打15w摆烂应该用不着SP盾机
+
