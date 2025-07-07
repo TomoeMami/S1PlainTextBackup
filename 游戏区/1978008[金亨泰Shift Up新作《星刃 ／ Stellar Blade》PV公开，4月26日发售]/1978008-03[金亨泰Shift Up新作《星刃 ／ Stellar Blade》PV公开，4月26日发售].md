@@ -10831,3 +10831,24 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 原来7号和9号在设定上就是挨着的，不是从省资源的角度共用了一套背景</blockquote>
 这可没想到，要是以后有证据矩阵11是2个城市间的地铁就更好了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寺胖  
+##### 3904#       发表于 2025-7-7 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68054641&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-6 19:02</a>
+
+吐槽的是艾德姆要去百合的工作室明明从金刚那里或者出生点走带伊芙越过河或者就到了，甚至他还有台能过海 ...</blockquote>
+为了懒得做成重装机兵简直拼了的感觉
+
+*****
+
+####  武蔵  
+##### 3905#       发表于 2025-7-7 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68057819&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-7 11:00</a>
+你们看到的都是美图，我看到的都是吊图...</blockquote>
+虽然论坛附件糊的一逼，但我还是看出来了是在希雍老头前面撅屁股
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
