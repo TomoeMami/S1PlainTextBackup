@@ -2003,3 +2003,11 @@ t
 
 他校留着就是你开场抽到C校B校时候的保险，还好她运气好抽了个菜鸡互啄的分组，如果开场遇个B校C校怕不是走远
 
+
+*****
+
+####  Ketestrait  
+##### 1364#       发表于 2025-7-7 18:27
+
+Konami又补发了欠西西的转生投手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

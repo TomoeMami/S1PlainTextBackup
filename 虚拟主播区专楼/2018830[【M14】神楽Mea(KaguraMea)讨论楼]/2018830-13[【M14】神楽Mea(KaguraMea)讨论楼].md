@@ -55553,3 +55553,13 @@ BV13t411x7XY</blockquote>
 
 主动解构被zerost直播嘲笑的握鼠标梗了
 
+
+*****
+
+####  术士q  
+##### 19003#       发表于 2025-7-7 18:36
+
+收入要求从八百万变到五百万了（
+换算到国内的话就是月入两万多的样子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过年轻人想做到月入两万还是比较难的吧，这种感觉得三四十岁了，或者说家里条件很好
+
