@@ -55563,3 +55563,14 @@ BV13t411x7XY</blockquote>
 换算到国内的话就是月入两万多的样子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 不过年轻人想做到月入两万还是比较难的吧，这种感觉得三四十岁了，或者说家里条件很好
 
+
+*****
+
+####  术士q  
+##### 19004#       发表于 2025-7-7 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060268&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-7 17:58</a>
+主动解构被zerost直播嘲笑的握鼠标梗了</blockquote>
+握鼠标的话我记得之前在苔姨的一次联动里有提过，好像是三四月之间的那种问答节目里。
+记得当时就在一个能够让人感受到情绪上的不安定的问题的标准答案里，能够希望男朋友可以在那样不安定的时候帮忙握着鼠标打下去
+
