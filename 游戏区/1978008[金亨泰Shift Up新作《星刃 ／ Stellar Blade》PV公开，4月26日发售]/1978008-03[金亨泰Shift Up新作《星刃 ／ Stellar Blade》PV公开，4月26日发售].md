@@ -10894,3 +10894,14 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 原来7号和9号在设定上就是挨着的，不是从省资源的角度共用了一套背景</blockquote>
 上来在爱多死7号不就能看到摩天轮么
 
+
+*****
+
+####  windlikeman  
+##### 3910#       发表于 2025-7-7 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68058099&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-7 11:34</a>
+
+这可没想到，要是以后有证据矩阵11是2个城市间的地铁就更好了</blockquote>
+矩阵11就是沙漠中间那块把
+
