@@ -1974,3 +1974,20 @@ t
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是不事前收集情报而已，是评论栏提供的情报也不爱听，没把本战优胜当成目标。我是在她开局给安洁拉了几个月球速后就不看了，只爱看想赢的。
 
+
+*****
+
+####  usodakedo  
+##### 1361#       发表于 2025-7-7 17:17
+
+看这场练习赛豆猫需要解决的问题反而很多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gaiadc  
+##### 1362#       发表于 2025-7-7 17:23
+
+皇女昨天的神之操作：走秀不上替补投手，亏了替补投手经验；然后安洁还差最后一打席3安打0封对手，她把安洁换下去了，成功避免了安洁获得蓝特的机会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
