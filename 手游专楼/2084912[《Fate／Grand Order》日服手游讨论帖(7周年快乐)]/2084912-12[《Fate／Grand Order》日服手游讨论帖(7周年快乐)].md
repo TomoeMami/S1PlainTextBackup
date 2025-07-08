@@ -582,3 +582,22 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 
 如果多人boss，估计就是妖兰大胜利吧...
 
+
+*****
+
+####  khxooo  
+##### 17032#       发表于 2025-7-9 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68067209&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-7-8 21:30</a>
+
+冠位战预订是因陀罗了，但不确定是他单人上阵还是像世界boss茨木那样一左一右带俩金刚杵。
+
+如果是单人boss ...</blockquote>
+小太阳？小太阳有宝具本，有特攻，还是红卡，而且一样是天阵营。小太阳吃到白枪的30宝威，这时候小太阳宝具吃到的BUFF是：自身30魔放+自己的20宝威+白枪的20攻击+白枪的20宝威+特攻+宝具本
+
+妖兰首先阵营就输了一手，妖兰吃白枪的50宝威的前提是从蓝卡变成红卡，而这时候的妖兰宝具的BUFF量是：自己的40攻+白枪的20加攻+50宝威+前置的20魔放。
+
+而选择从全体宝具进入的时候是吃不到白枪的30宝威的，这时候妖兰的宝具BUFF是：自身的40加攻+白枪的20攻击+白枪的20宝威+3技能的30宝威+宝具前置20魔放，和从单体变成全体的BUFF量一样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你说加上龙娘的BUFF，也就多20的加攻
+
