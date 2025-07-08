@@ -2083,3 +2083,13 @@ lz的内心估计认为立刻切掉，评论栏也好自己也好才能从这两
 
 中返已经被削废了，不是小飞球就是往地上砍的低速滚地球，这版本我5以上中返打出来的本垒打数量还不如5牺牲飞打出来的多<img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1373#       发表于 2025-7-8 22:44
+
+knm这是真开了吧，一年两觉醒，新生几个即战力，玩的越烂补偿越高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
