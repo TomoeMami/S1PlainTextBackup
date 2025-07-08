@@ -11390,3 +11390,13 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 到目前为止涩涩服饰MOD质量高的基本还是在原有衣服上做减法各种减布料……<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤井紫  
+##### 3952#       发表于 2025-7-9 07:24
+
+渡鸦战的bgm太有病
+打的时候high
+单独拿出来听没什么感觉
+
