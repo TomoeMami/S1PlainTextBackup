@@ -570,3 +570,15 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 17031#       发表于 2025-7-8 21:30
+
+冠位战预订是因陀罗了，但不确定是他单人上阵还是像世界boss茨木那样一左一右带俩金刚杵。
+
+如果是单人boss，那斯卡哈和布姐都能打出特攻（神性和爱人），枪狐和泳芥则不能（超越性别）。
+
+如果多人boss，估计就是妖兰大胜利吧...
+
