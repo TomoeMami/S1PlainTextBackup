@@ -655,3 +655,13 @@ goodreads.com
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wlhlz  
+##### 46#       发表于 2025-7-9 07:39
+
+我觉得第一人称单纯是比较不好写，不过说起来（以前的）轻小说也是第一人称居多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
