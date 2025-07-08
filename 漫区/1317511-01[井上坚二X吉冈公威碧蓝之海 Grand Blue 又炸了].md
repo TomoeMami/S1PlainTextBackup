@@ -97,3 +97,16 @@
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chanrs2  
+##### 1374#       发表于 2025-7-8 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066655&amp;ptid=1317511" target="_blank">AP0rt_ 发表于 2025-7-8 19:02</a>
+
+第三季应该是妹妹篇和帕劳篇了，中奖之后的剧情应该会是薛定谔的第四季了
+
+—— 来自 vivo V2408A, Android ...</blockquote>
+漫画第2季做到无人岛结束45话，动画第2季做了23话漫画，打工篇才到漫画57话明显不够，感觉应该能做到冲绳篇69话
+

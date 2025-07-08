@@ -183,3 +183,13 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 
 基础形态是挎包，那升级形态弄个腰包这腰带不就回来了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 77#       发表于 2025-7-8 22:28
+
+衍生形态。
+<img src="https://p.sda1.dev/25/54f93fc5c5b02b34d4094f27d8372cc0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/611cc04009f26d1e87816121ff932dfa/image.jpg" referrerpolicy="no-referrer">
+
