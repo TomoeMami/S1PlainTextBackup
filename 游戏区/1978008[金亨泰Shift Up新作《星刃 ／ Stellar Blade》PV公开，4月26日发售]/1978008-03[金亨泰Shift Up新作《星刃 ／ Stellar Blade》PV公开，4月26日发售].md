@@ -10926,3 +10926,451 @@ https://docs.google.com/spreadsheets/d/1-t-MJDIiJl1eB-irFQzF3RmKHsj8IQlE6nDJW4YC
 —— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99-alpha</blockquote>
 什么无良司机？只要有衣服可以捡，我巴不得司机再带着去个eidos1 3 5 11 13 15 17<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3913#       发表于 2025-7-8 01:12
+
+二周目开始前先把曼恩和红莲的衣服拿了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">曼恩比红莲恶心多了，虽然没有机制杀，哥们你打渡鸦演的可以啊
+
+我感觉这游戏原本应该做了别的武器系统给伊芙的，曼恩渡鸦的武器怎么看都是主角能用的，最后只剩个迅驰刀，还是致敬鬼泣4只能魔人化状态用
+
+*****
+
+####  leonz79  
+##### 3914#       发表于 2025-7-8 09:20
+
+为啥艾多斯的命名都是基数？有什么说法吗？
+
+*****
+
+####  leonz79  
+##### 3915#       发表于 2025-7-8 09:25
+
+默认武器太丑了，下一作应该出个武器外观了
+
+*****
+
+####  naclken.  
+##### 3916#       发表于 2025-7-8 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68062728&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-7-8 09:25</a>
+
+默认武器太丑了，下一作应该出个武器外观了</blockquote>
+下一作该出多武器了，长枪大剑什么的。
+
+既然致敬尼尔2那就做到彻底。<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 3917#       发表于 2025-7-8 09:45
+
+ 本帖最后由 Andariel 于 2025-7-8 09:46 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">别的无所谓，长枪或者长棍必须得有
+这个武器的动作跟各种钢管舞的动作结合一下再配合这个史诗级运镜我都不敢想会多么色
+再来个鞋套，配合伊芙这孔武有力的大白腿，能被这一双腿攻击我恨不得原地变身孽奇拔，“我不做人了！艾德姆！”
+
+*****
+
+####  洛克萨斯  
+##### 3918#       发表于 2025-7-8 09:50
+
+11区那个拿大锤的本来应该就是武器给伊芙用的吧，长柄武器又能玩钢管舞又能大范围攻击
+
+*****
+
+####  永远的访客  
+##### 3919#       发表于 2025-7-8 09:52
+
+我猜本来还可以做水下战、对空战的，结果砍工期都没了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宇智波光  
+##### 3920#       发表于 2025-7-8 10:13
+
+<img src="https://img.stage1st.com/forum/202507/08/100603lw7ofo9pgcff5awf.png" referrerpolicy="no-referrer">
+
+<strong>Image_1751940315829.png</strong> (165.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-8 10:06 上传
+
+<img src="https://img.stage1st.com/forum/202507/08/100603a7f0ow9wzwfjvo6z.png" referrerpolicy="no-referrer">
+
+<strong>Image_1751940317851.png</strong> (122.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-8 10:06 上传
+
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有两个疑问
+
+1.最适合接敌打到第一套连招有啥推荐的 个人试了下长按y突进然后yxx加yyy感觉还不错 不过打完这套就得等怪抬手准备 有啥适合刮痧的同时兼顾一定压制和后摇小可以随时格挡闪避的连招可以推荐下么
+
+2.平衡条空了后 想尽量贪一套连招或者技能再y处决 但是摸不准这个y能持续多久 这游戏哪里可以看处决剩余时间么
+
+最后吐槽下扫描 真不太容易看清一些爬楼类的岔路 还是和33号一样打一段然后看全收集视频再回头查漏补缺这样慢慢来好了
+
+
+*****
+
+####  洛克萨斯  
+##### 3921#       发表于 2025-7-8 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063107&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 10:13</a>
+
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">拒绝连段，丢技能吧
+
+连段在这游戏里输出效率太低了
+
+*****
+
+####  oyss  
+##### 3922#       发表于 2025-7-8 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063107&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 10:13</a>
+
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有 ...</blockquote>
+那应该不是精英怪,就是杂兵.这游戏没有精英怪.
+
+boss有躲闪的动作就用xxyy或者yxx长按y.最后一下的y之前停顿一下,等boss闪完.再按最后一下,能直接追上去砍.
+
+*****
+
+####  宇智波光  
+##### 3923#       发表于 2025-7-8 11:09
+
+<blockquote>洛克萨斯 发表于 2025-7-8 10:18
+拒绝连段，丢技能吧
+
+连段在这游戏里输出效率太低了</blockquote>
+
+我开的困难难度 感觉纯站桩等怪攻击再格挡打处决或者攒能量都太慢了 而且不爽 所以希望可以连段和格挡一起上尽快攒能量打技能
+
+*****
+
+####  心灵的乳头  
+##### 3924#       发表于 2025-7-8 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063107&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 10:13</a>
+
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有 ...</blockquote>
+我是微软手柄，Y突进然后Y+B横扫，然后就β技能B戳爆，你要连段坛友唯一指定就是YXYX，能晕怪，还能蓄个红光。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宇智波光| + 1||
+
+查看全部评分
+
+*****
+
+####  宇智波光  
+##### 3925#       发表于 2025-7-8 11:12
+
+<blockquote>oyss 发表于 2025-7-8 10:22
+那应该不是精英怪,就是杂兵.这游戏没有精英怪.
+
+boss有躲闪的动作就用xxyy或者yxx长按y.最后一下的y之前 ...</blockquote>
+我看介绍里第一排小杂兵 第二排就默认是精英怪 第三排boss了 然后处决时间这个怎么判断呀
+
+*****
+
+####  洛克萨斯  
+##### 3926#       发表于 2025-7-8 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063577&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 11:09</a>
+
+我开的困难难度 感觉纯站桩等怪攻击再格挡打处决或者攒能量都太慢了 而且不爽 所以希望可以连段和格挡一 ...</blockquote>
+一周目？别折磨自己，你前期没啥数值我不建议你打困难，很刮
+
+*****
+
+####  naclken.  
+##### 3927#       发表于 2025-7-8 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063580&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-8 11:09</a>
+
+我是微软手柄，Y突进然后Y+B横扫，然后就β技能B戳爆，你要连段坛友唯一指定就是YXYX，能晕怪，还能蓄个 ...</blockquote>
+为何不是YXYXY打全了？时间不够倒是常见<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心灵的乳头  
+##### 3928#       发表于 2025-7-8 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063646&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-8 11:18</a>
+
+为何不是YXYXY打全了？时间不够倒是常见</blockquote>
+我插β脊柱加提高β获取的插件，4下打完就够我戳一发β技能了，个人感觉收益更大，遇到一拖二的法杖机械人更安全。
+
+*****
+
+####  永远的访客  
+##### 3929#       发表于 2025-7-8 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063606&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 11:12</a>
+
+我看介绍里第一排小杂兵 第二排就默认是精英怪 第三排boss了 然后处决时间这个怎么判断呀 ...</blockquote>
+第1排是能无脑砍死，第2排是打的过程中要学会挡或者闪，第3排是固定场景不可再生怪，第4排是各个剧情大BOSS。第2排里有一些是换皮加强技能的也可以算精英了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宇智波光| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3930#       发表于 2025-7-8 13:03
+
+<blockquote>宇智波光 发表于 2025-7-8 11:12
+我看介绍里第一排小杂兵 第二排就默认是精英怪 第三排boss了 然后处决时间这个怎么判断呀 ...</blockquote>
+因为一周目前边你没拿到加攻速、加获取能量的插件，技能点也没点出来，打困难难度一定刮，很正常。等贝塔技能点到一定程度有固定循环会好不少。更后边学了爆发技能(用红色能量）红蓝两套技能轮流放会顺畅得多
+
+然后想贪刀或者求稳时可以根据节奏偶尔插入xxxx的连段偷能量，因为轻攻击中可以直打断当前动作无缝格挡
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宇智波光| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  leonz79  
+##### 3931#       发表于 2025-7-8 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063107&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 10:13</a>
+
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有 ...</blockquote>
+这游戏最好用的就是β技能，没啥压力的时候为了玩得舒服基本围绕β技能做文章，实在打不过了再搞全部减伤组件
+
+*****
+
+####  宇智波光  
+##### 3932#       发表于 2025-7-8 13:18
+
+<blockquote>leonz79 发表于 2025-7-8 13:11
+这游戏最好用的就是β技能，没啥压力的时候为了玩得舒服基本围绕β技能做文章，实在打不过了再搞全部减伤 ...</blockquote>
+我看zp的视频 是先把获取能量的进攻和格挡点出来的 后面打算先把这些都点满再考虑别的 其它的感觉可能得把背刺先点一个 还有啥推荐越早点出来的不
+
+*****
+
+####  宇智波光  
+##### 3933#       发表于 2025-7-8 13:22
+
+<blockquote>洛克萨斯 发表于 2025-7-8 11:18
+一周目？别折磨自己，你前期没啥数值我不建议你打困难，很刮</blockquote>
+反正没难度杯而且可以随时切难度吧 实在受苦就和解 先打打看呗
+
+*****
+
+####  洛克萨斯  
+##### 3934#       发表于 2025-7-8 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064561&amp;ptid=1978008" target="_blank">宇智波光 发表于 2025-7-8 13:18</a>
+
+我看zp的视频 是先把获取能量的进攻和格挡点出来的 后面打算先把这些都点满再考虑别的 其它的感觉可能得 ...</blockquote>
+贝塔技能的剑气，优先点，很强
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宇智波光| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3935#       发表于 2025-7-8 14:06
+
+<blockquote>宇智波光 发表于 2025-7-8 13:22
+反正没难度杯而且可以随时切难度吧 实在受苦就和解 先打打看呗</blockquote>
+背刺我觉得可以点，而且还有个派生，偷袭得手后可以再按一次Y顺劈一个范围内的怪，很多时候可以一次带走两只，我觉得花两三点蛮划算的，尤其等进了大地图算不错的技能。
+
+反正基本随便洗点我是推荐按自己喜好多试试
+
+*****
+
+####  mhss  
+##### 3936#       发表于 2025-7-8 15:00
+
+我记得困难难度是一周目通了以后才解锁吧？
+我最喜欢的连段是yxyxy，主要是我很喜欢第三下的那个踢击，强而有力，强而有力啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 3937#       发表于 2025-7-8 16:10
+
+<img src="https://img.stage1st.com/forum/202507/08/161042hs7969cqqnc9uhu1.gif" referrerpolicy="no-referrer">
+
+<strong>gurenn.gif</strong> (2.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-8 16:10 上传
+
+*****
+
+####  宇智波光  
+##### 3938#       发表于 2025-7-8 16:20
+
+<blockquote>mhss 发表于 2025-7-8 15:00
+我记得困难难度是一周目通了以后才解锁吧？
+
+我最喜欢的连段是yxyxy，主要是我很喜欢第三下的那个踢击，强而 ...</blockquote>
+pc最新更新了一个补丁 一周目就能困难开了
+
+*****
+
+####  武蔵  
+##### 3939#       发表于 2025-7-8 16:25
+
+yxyxy太难摁了，经常嗯出来是yyy
+这游戏搓派生老难了，总是搓不出自己想打的派生
+
+*****
+
+####  永远的访客  
+##### 3940#       发表于 2025-7-8 17:10
+
+刺杀太有用了，尤其是到了荒图有个潜行脊椎升级3星可以刺杀回血，我几乎常驻除了打boss打不过要换个战斗型
+
+但正常这种升级不应该是进度限制，1星-2星-3星-双脊柱这样解锁吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这游戏点数溢出得厉害，也就开荒要认真选，后面无脑点满还有得找<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  silversor  
+##### 3941#       发表于 2025-7-8 18:42
+
+二周目困难模式基本全程冲主线，就顺路捡几个用的脊椎和组件没啥注意小怪，以为就boss血量多点。
+结果到了4号高塔，遇到那个双刀哥才发现精英小怪血量也这么厚吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 3942#       发表于 2025-7-8 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066588&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-8 18:42</a>
+
+二周目困难模式基本全程冲主线，就顺路捡几个用的脊椎和组件没啥注意小怪，以为就boss血量多点。
+
+结果到了4 ...</blockquote>
+你得有二周目的装备.和武器升级.所以支线boss也得打.基本全部箱子重新开一遍.要么就按攻略找特定的.
+
+*****
+
+####  清浦刹那  
+##### 3943#       发表于 2025-7-8 18:58
+
+所有的GP技能是不是都要等自己武器闪光提示再按？
+
+*****
+
+####  silversor  
+##### 3944#       发表于 2025-7-8 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066612&amp;ptid=1978008" target="_blank">oyss 发表于 2025-7-8 18:48</a>
+你得有二周目的装备.和武器升级.所以支线boss也得打.基本全部箱子重新开一遍.要么就按攻略找特定的. ...</blockquote>
+全身都是mk2啊，贝塔出神+倒地延长，组件也是一周目的三星加两星的mk2穿着
+
+*****
+
+####  重新做人  
+##### 3945#       发表于 2025-7-8 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066663&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-8 19:04</a>
+全身都是mk2啊，贝塔出神+倒地延长，组件也是一周目的三星加两星的mk2穿着 ...</blockquote>
+试试双刃组件能挂的全挂上，不是你死就是我亡
+3周目就差几件衣服没收集了，换上4个双刃组件一个击倒的刀光几万伤害，普通模式boss直接就锁血2阶段了，第二个刀光结束战斗boss盾还有一大半
+
+*****
+
+####  oyss  
+##### 3946#       发表于 2025-7-8 19:24
+
+ 本帖最后由 oyss 于 2025-7-8 19:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066663&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-8 19:04</a>
+
+全身都是mk2啊，贝塔出神+倒地延长，组件也是一周目的三星加两星的mk2穿着 ...</blockquote>
+你这都不加多少伤害吧. 我带连招暴击和暴击伤害.
+
+打hard红莲,红莲死太快我还得故意放水好多来几个回合.
+
+*****
+
+####  silversor  
+##### 3947#       发表于 2025-7-8 20:33
+
+发现换上尼尔衣服看裙底，会被踢飞
+
+*****
+
+####  naclken.  
+##### 3948#       发表于 2025-7-8 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066007&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-8 17:10</a>
+
+刺杀太有用了，尤其是到了荒图有个潜行脊椎升级3星可以刺杀回血，我几乎常驻除了打boss打不过要换个战斗型
+
+ ...</blockquote>
+在大沙漠打了10个小时血的教训，那就是这张图已经不适合潜行脊椎了，记得换下来。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 3949#       发表于 2025-7-8 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68067074&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-8 20:57</a>
+
+在大沙漠打了10个小时血的教训，那就是这张图已经不适合潜行脊椎了，记得换下来。
+
+ ...</blockquote>
+对，刺杀就是废土有用，后面没啥用
+

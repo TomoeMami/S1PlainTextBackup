@@ -5587,3 +5587,54 @@ OK，我也填了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新包是不是就下周了？
 
+
+*****
+
+####  千千千千鸟  
+##### 420#       发表于 2025-7-7 22:30
+
+脸龙真的和我八字不合吧，一玩就掉段，一玩就连败。反而是中速皇，一玩就狂赢，一口气打上A0了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 421#       发表于 2025-7-7 23:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中速皇可是准t1，脸龙表示我何德何能
+
+*****
+
+####  duraa  
+##### 422#       发表于 2025-7-7 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68061091&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-7-7 20:58</a>
+新包是不是就下周了？</blockquote>
+好像是17号，这周放pv
+
+*****
+
+####  zzy516232108  
+##### 423#       发表于 2025-7-8 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68061091&amp;ptid=2163625" target="_blank">olkzdf 发表于 2025-7-7 20:58</a>
+
+新包是不是就下周了？</blockquote>
+17号说是
+
+*****
+
+####  zzy516232108  
+##### 424#       发表于 2025-7-8 14:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我脸龙打上蓝宝石然后轮流给鱼皇尽孝 掉下来了
+
+*****
+
+####  olkzdf  
+##### 425#       发表于 2025-7-8 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064863&amp;ptid=2163625" target="_blank">zzy516232108 发表于 2025-7-8 14:12</a>
+
+我脸龙打上蓝宝石然后轮流给鱼皇尽孝 掉下来了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在皇开始流行带剑圣冲脸了，和这套打出伤更快还带守护的脸龙是优势
+

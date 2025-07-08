@@ -7339,3 +7339,211 @@ SSR不太建议SP化，PVP每个月都有最多突一台就好了吧，而且不
 
 只打15w摆烂应该用不着SP盾机
 
+
+*****
+
+####  qixinno2  
+##### 2153#       发表于 2025-7-8 08:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次是不是调了掉落
+
+<img src="https://img.stage1st.com/forum/202507/08/084331vqswaw5q2mwnm5m6.png" referrerpolicy="no-referrer">
+
+<strong>QI`005}V`[%V5X9FJHKQ}F9.png</strong> (156.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-8 08:43 上传
+
+*****
+
+####  rockroxas  
+##### 2154#       发表于 2025-7-8 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060833&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-7-7 20:02</a>
+
+海牛目前来看是SSR最强盾机，配置几乎完美，还适配约拿大神
+
+命运么...单说机体同系列不如威达，按主角标 ...</blockquote>
+呃，红异端除了是一击必杀外没有能进排行榜前端的点吧，还是难破满的卡池机，要道具突的话不如SP能天使
+
+*****
+
+####  丹德里恩  
+##### 2155#       发表于 2025-7-8 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063097&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-8 10:12</a>
+
+呃，红异端除了是一击必杀外没有能进排行榜前端的点吧，还是难破满的卡池机，要道具突的话不如SP能天使 ...</blockquote>
+都不SP的话，红异端等级高强一点，但这玩意没盾天生吃亏，都SP就是SR能天使更强了
+
+没有电光船的SSR命运还不如这俩，我是不乐意SP盾机去冲20w的，所以摆烂的话这俩用哪个都差不多
+
+*****
+
+####  rockroxas  
+##### 2156#       发表于 2025-7-8 13:23
+
+ 本帖最后由 rockroxas 于 2025-7-8 13:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68063433&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-7-8 10:52</a>
+
+都不SP的话，红异端等级高强一点，但这玩意没盾天生吃亏，都SP就是SR能天使更强了
+
+没有电光船的SSR命运还 ...</blockquote>
+盾不是要两个（
+
+扯远了，主要是问的人说是SR主角船，这种情况下红异端就算满了也比不上命运的
+
+*****
+
+####  行政裁定书  
+##### 2157#       发表于 2025-7-8 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68062542&amp;ptid=2071758" target="_blank">qixinno2 发表于 2025-7-8 08:44</a>
+
+这次是不是调了掉落</blockquote>
+我刷了半天，只掉了两台。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+其他几次强敌来袭，都掉了很多台，但没什么用。
+
+而这次的命运脉冲，感觉是值得多入的机体，结果死活不掉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2158#       发表于 2025-7-8 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064625&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-7-8 13:30</a>
+
+我刷了半天，只掉了两台。
+
+其他几次强敌来袭，都掉了很多台，但没什么用。
+
+而这次的命运脉冲，感觉是值得 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说多刷就会出
+
+*****
+
+####  行政裁定书  
+##### 2159#       发表于 2025-7-8 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68060833&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-7-7 20:02</a>
+
+海牛目前来看是SSR最强盾机，配置几乎完美，还适配约拿大神
+
+命运么...单说机体同系列不如威达，按主角标 ...</blockquote>
+卡池里的ssr元组？那个是劲敌标签吧？而且我只有一个，离满破还远。
+
+威达也缺一个，没法满破。
+
+红异端完全没有。
+
+目前能满破的主角盾机只有海牛和命运了。
+
+希望能尽量在不sp的情况下，拿15w吧。
+
+不sp的话，卡池威达比命运略强一点，但sp化后好像两者差不多了。但命运可以满破。
+
+*****
+
+####  fireadol  
+##### 2160#       发表于 2025-7-8 13:58
+
+有满破威达是不是没必要刷命运了，有雷有电光船，双盾怎么配，开发海牛是监牢太蛋疼了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rockroxas  
+##### 2161#       发表于 2025-7-8 14:09
+
+ 本帖最后由 rockroxas 于 2025-7-8 14:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064708&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-7-8 13:42</a>
+
+卡池里的ssr元组？那个是劲敌标签吧？而且我只有一个，离满破还远。
+
+威达也缺一个，没法满破。
+
+红异端完 ...</blockquote>
+SSR元祖是电光，要靠约拿标签加成才有竞争力，大概说的UR元祖（
+
+同样条件下威达跟命运差距一样吧
+
+PVP之前还有一个活动跟卡池，代哥肯定会整活的，先慢慢刷着不急
+
+*****
+
+####  rockroxas  
+##### 2162#       发表于 2025-7-8 14:21
+
+ 本帖最后由 rockroxas 于 2025-7-8 14:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064781&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-7-8 13:58</a>
+
+有满破威达是不是没必要刷命运了，有雷有电光船，双盾怎么配，开发海牛是监牢太蛋疼了 ...</blockquote>
+SSR雷数值低而且少个系列减伤，放PVP容易送多动，不一定是好事
+
+离PVP还有半个月，刷海牛估计够的，但是SSR海牛是坚牢不适配电光船，讨论它都是基于主角船或者新人类塞可缪（
+
+电光船的话，ZZ的扎古3数值比较高，跟命运威达大差不差，就是两个双盾UR机师都不完全适配
+
+还是那句，先刷着等下半个月代哥整什么活吧
+
+*****
+
+####  fireadol  
+##### 2163#       发表于 2025-7-8 14:35
+
+原来雷没标签减伤，手里三个双盾技师雷，约拿电光船好像都吃不到减伤，巴巴托斯没盾，换有德船脉冲又上不了，也没支援螺<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 2164#       发表于 2025-7-8 14:45
+
+ 本帖最后由 rockroxas 于 2025-7-8 14:53 编辑 
+
+有德船要支援的话配Z高达，ZZ卡碧尼或者二段ULT红蛇？离了脉冲跟铁奥也就这样了吧
+
+*****
+
+####  行政裁定书  
+##### 2165#       发表于 2025-7-8 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064837&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-8 14:09</a>
+
+SSR元祖是电光，要靠约拿标签加成才有竞争力，大概说的UR元祖（
+
+同样条件下威达跟命运差距一样吧
+
+PVP之前 ...</blockquote>
+sp化后，威达和命运防御、血量什么的数据差不多。但命运射程远一点，武器威力大一点。
+
+而且命运是开发机，刷一刷的话还是能满破的。威达现在缺一个才能满破。
+
+希望下一个活动送点什么有用的东西吧
+
+*****
+
+####  丹德里恩  
+##### 2166#       发表于 2025-7-8 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064708&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-7-8 13:42</a>
+
+卡池里的ssr元组？那个是劲敌标签吧？而且我只有一个，离满破还远。
+
+威达也缺一个，没法满破。
+
+红异端完 ...</blockquote>
+对，那个元祖有电光词条，但我也没有电光船....
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">15w的话确实不用焦虑，大不了多刷新几次
+
+*****
+
+####  胖达君  
+##### 2167#       发表于 2025-7-8 17:38
+
+一击必杀+主角的盾机，我这边目前就看到了红色异端<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+不过之前抽强自时候红异端抽到了满破，还是可以抓出来用用
+

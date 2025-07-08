@@ -532,3 +532,41 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">依然没出紫色BBA 辣鸡游戏
 
+
+*****
+
+####  alucardcz  
+##### 17026#       发表于 2025-7-8 17:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">因陀罗除了性能 其他都是无可挑剔的级别
+
+*****
+
+####  quanlix  
+##### 17027#       发表于 2025-7-8 18:07
+
+挺讨厌这种一点前置没有空降之后就一顿连吹代捧的
+
+*****
+
+####  qixinno2  
+##### 17028#       发表于 2025-7-8 18:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">随便 反正0石0呼符 躺平等周年
+
+*****
+
+####  khxooo  
+##### 17029#       发表于 2025-7-8 18:24
+
+BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 17030#       发表于 2025-7-8 20:48
+
+还真空降冠位啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

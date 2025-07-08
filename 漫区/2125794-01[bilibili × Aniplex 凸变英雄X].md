@@ -4656,3 +4656,65 @@ Screenshot_20250629-153137.png
 
 默杀是因为信赖值副作用导致不能说话所以被女儿当成跟踪狂？
 
+
+*****
+
+####  Sacross  
+##### 383#       发表于 2025-7-7 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">唉，打斗和剧情安排感觉根本不在一条线上，主线摆了一条严肃内容，角色塑造唐突玩尬的，玩完尬的又非要往黑深残方向切回去
+
+要说林凌魂电还有点英雄自己的内容，从幸运青开始英雄自己的点越来越少，女王篇直接成背景板，罗莉篇观感都直接成副作用了，全篇不知所谓的反抗到最后人物弧光也没成长，装备还是路上捡的挂
+
+到现在来说女英雄里真的给人感觉塑造的最硬的反而是林凌篇的潇月卿，整体评价也一路走低了，有一种3d篇看的元龙1，进到2d篇直接变成元龙2的味
+
+之前还在想那个英雄投票干嘛用的，现在感觉仿佛是对动画组公开处刑了，合着这个英雄赛打擂台的不是英雄是每个组是吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rushsong  
+##### 384#       发表于 2025-7-8 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68061593&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-7-7 23:09</a>
+
+唉，打斗和剧情安排感觉根本不在一条线上，主线摆了一条严肃内容，角色塑造唐突玩尬的，玩完尬的又非要往黑 ...</blockquote>
+希望李豪凌不要在碰编剧了去当导演吧，每次都占着大资源拉一坨大的，英雄这种题材中规中矩的按照老套路写都不至于现在这个观感
+
+*****
+
+####  Sacross  
+##### 385#       发表于 2025-7-8 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68064025&amp;ptid=2125794" target="_blank">rushsong 发表于 2025-7-8 12:05</a>
+
+希望李豪凌不要在碰编剧了去当导演吧，每次都占着大资源拉一坨大的，英雄这种题材中规中矩的按照老套路写 ...</blockquote>
+翻了下staff表
+
+林凌篇的编剧是李豪凌 张磊
+
+魂电篇的编剧是李豪凌 张磊 周阳健 一风尘
+
+幸运青的编剧李豪凌，协力陈彦霖 张磊 西大哇
+
+女王篇的编剧李豪凌
+
+罗莉篇的编剧李豪凌，协力陈彦霖
+
+整体看下来，这片子开局能有那么好名声全靠张磊老师啊，这片子设定是张磊老师出的
+
+李豪凌我一直有一种他就只是拍板挂名的感觉，真要说女王篇除了最后打斗部分背后那个码头打起来拆的七零八落镜头一转修复光线让我看着非常出戏以外本质真要说当过度回也不是不能接受
+
+陈彦霖这位bangumi搜了下前两年是做国产动画文案运维的，很难评
+
+*****
+
+####  rushsong  
+##### 386#       发表于 2025-7-8 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68065394&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-7-8 15:35</a>
+
+翻了下staff表
+
+林凌篇的编剧是李豪凌 张磊</blockquote>
+不可能挂板，他本人就是想火想疯了，能放过这么好的机会？
+
