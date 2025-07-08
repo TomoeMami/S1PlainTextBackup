@@ -4718,3 +4718,14 @@ Screenshot_20250629-153137.png
 林凌篇的编剧是李豪凌 张磊</blockquote>
 不可能挂板，他本人就是想火想疯了，能放过这么好的机会？
 
+
+*****
+
+####  Sacross  
+##### 387#       发表于 2025-7-8 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066797&amp;ptid=2125794" target="_blank">rushsong 发表于 2025-7-8 19:42</a>
+
+不可能挂板，他本人就是想火想疯了，能放过这么好的机会？</blockquote>
+那没辙了，现在女性篇都觉得在搞什么莫名其妙的她力量，结果一个比一个烂
+
