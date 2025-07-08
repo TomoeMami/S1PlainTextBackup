@@ -657,3 +657,127 @@ DVD 一共四卷，应该是一季，12或者13话。不知道能讲完第几卷
 
 路易斯的興趣就是想欺負各類高手/強者
 
+
+*****
+
+####  法皇干政  
+##### 53#       发表于 2025-7-8 13:47
+
+第一话感觉还不错，没有特别惊艳也没有特别贫穷，拍完第一卷，故事照着小说做应该不会有大问题。算是稳了？
+
+*****
+
+####  Piano-Forest  
+##### 54#         楼主| 发表于 2025-7-8 14:27
+
+四卷共十三话
+
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2025-7-8 14:33
+
+放送を記念して豪華作家陣による
+
+応援イラストを放送日まで毎日公開!!
+
+·肋兵器
+
+·大熊まい
+
+·鍋島テツヒロ
+
+·美和野らぐ
+
+·珠梨やすゆき
+
+·輝竜司
+
+·平染かつ
+
+·toi８
+<img src="https://p.sda1.dev/25/c950d99a7385060100013b7380069e78/01.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c70c5d8eeb3c7e43a6bf05fa379d7876/20250708_142323.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/aa9786a1eca8928e6168caf9782815cc/20250708_142332.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/6a32d4d1d7c44793d7a87017f27573a6/20250708_142339.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d2f94a5b13a03c937ec05e6f2b33ed04/20250708_142349.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c94759ce07cfe7423bc5afb4dc1491bf/20250708_142400.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/55cda848e55f1f0d94d012ac98d5ab0e/20250708_142409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/a8512403a0c05e67b71a7c879ccfb808/20250708_142421.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 56#       发表于 2025-7-8 14:44
+
+听眼镜描述感觉有一丝阴谋论的味道，宝石送过去第二天就坏了，被保护的人还说没遇到危险
+
+*****
+
+####  Piano-Forest  
+##### 57#         楼主| 发表于 2025-7-8 14:49
+
+<img src="https://p.sda1.dev/25/e1527ec11e226560de4dbce5918be2d4/20250708_142442.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/9103bb371963e6a929d555f303252b6e/20250708_142443.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d6986d733eb550fe82d4b6c0b2147c38/20250708_142444.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/d8f021be02f52fe09ed5beaab9da93fa/20250708_142445.jpg" referrerpolicy="no-referrer">
+
+金崎贵臣
+[https://x.com/kanyasaki/status/1941012341891780822](https://x.com/kanyasaki/status/1941012341891780822)
+
+今晩からサイレント・ウィッチの放送が始まります。
+
+応援したくなる少女、モニカ・エヴァレットの物語をどうぞよろしくお願いいたします。
+<img src="https://p.sda1.dev/25/55b1aaa8921d4d37cb17de0debd6a89d/20250708_143417.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/5e2c27ed0033cb7898232422d9ecf33a/20250708_144326.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/c3581666e2d2ce5c33cdf8b4a8adb61d/20250708_144323.jpg" referrerpolicy="no-referrer">
+
+人设· 二反田古奈
+[https://x.com/nitanda_cona/status/1942195318843752551](https://x.com/nitanda_cona/status/1942195318843752551)
+
+▷Works
+
+TVアニメ『サイレント・ウィッチ 沈黙の魔女の隠しごと』
+
+キャラクターデザインを担当しております
+
+第1話、ご視聴いただきありがとうございました🧙‍♀️✨
+
+放送から3日…ぶたさんのシーンの可愛さがまだ頭から抜けません🐷💭
+<img src="https://p.sda1.dev/25/48f8b13f902fe5f7ec15b0b0aa1a51e1/20250708_143412.jpg" referrerpolicy="no-referrer">
+
+小说插画·藤実なんな
+[https://x.com/nanna_fujimi/status/1941039814360608778](https://x.com/nanna_fujimi/status/1941039814360608778)
+
+テレビアニメ『サイレント・ウィッチ』今晩24時から放送開始です😊
+
+楽しみだ〜😆✨
+<img src="https://p.sda1.dev/25/6fb498e9378fd3b1a27b01bce223b1eb/20250708_143711.jpg" referrerpolicy="no-referrer">
+
+漫画·桟とび
+[https://x.com/_tana_tobi_/status/1940962064216084907](https://x.com/_tana_tobi_/status/1940962064216084907)
+
+㊗アニメ放送開始🎉これから毎週楽しみです！のファンアートです📺✨
+<img src="https://p.sda1.dev/25/9dbf6bed40d37ea47629160f40823d54/20250708_143705.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/1432f95d9fde22d361dac5d7632a0585/20250708_143659.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/orderly_ef/status/1941346085777309869](https://x.com/orderly_ef/status/1941346085777309869)
+
+TVアニメ「サイレント・ウィッチ　沈黙の魔女の隠しごと 」
+
+OPムービーの撮影監督を担当いたしました！
+
+グレーディングや魔法エフェクト等、繊細で空気感に拘った仕上がりとなっています。
+
+是非アニメ本編と併せてご覧ください！
+
+TVアニメ「サイレント・ウィッチ　沈黙の魔女の隠しごと 」　
+
+OPムービーの撮影処理前と撮影処理後をご紹介します。 
+
+掲載許可いただいております。
+<img src="https://p.sda1.dev/25/7bb1986568b3fb9422a92aa82ad353f9/20250708_143818.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/8d9aa400d50a3f9bd76f5bf155199273/20250708_143820.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/8df6b1f43aea821a51fdc354bec4e9a7/20250708_143821.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/5e197ce3c47e8218936b3c693d47fe2e/20250708_143822.jpg" referrerpolicy="no-referrer">
+
