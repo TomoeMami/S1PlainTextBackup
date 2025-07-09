@@ -11541,3 +11541,49 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 训练模式里看着软绵绵的，没左边的三连戳有动感。
 
+
+*****
+
+####  江戸前ルナ  
+##### 3965#       发表于 2025-7-9 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68068635&amp;ptid=1978008" target="_blank">藤井紫 发表于 2025-7-9 07:24</a>
+
+渡鸦战的bgm太有病
+
+打的时候high
+
+单独拿出来听没什么感觉</blockquote>
+很萌的女性声线配的是最凶狠的妹子撕逼<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 3966#       发表于 2025-7-9 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070093&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-9 11:13</a>
+
+也就是贝塔技能最好用的其实是右边的冲击波？
+
+训练模式里看着软绵绵的，没左边的三连戳有动感。 ...</blockquote>
+有能力可以挑帅的打啊，就好像完美闪避和招架后的各种反打，其实收益都远不如直接放技能，但就是帅啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 3967#       发表于 2025-7-9 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069635&amp;ptid=1978008" target="_blank">罐子 发表于 2025-7-9 10:19</a>
+
+有件黑白的裙子很不错，926
+
+不过有bug，我穿了黑色的结果有一边柰子不会摇了作者也不修 ...</blockquote>
+有套有点像的1100
+
+*****
+
+####  洛克萨斯  
+##### 3968#       发表于 2025-7-9 11:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要三周目才能拿到组件mk2了，算了，能不能坚持完二周目都难说
+
