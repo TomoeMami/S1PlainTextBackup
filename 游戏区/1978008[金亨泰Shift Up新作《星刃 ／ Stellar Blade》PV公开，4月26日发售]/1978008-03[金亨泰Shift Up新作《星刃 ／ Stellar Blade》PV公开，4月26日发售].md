@@ -11658,3 +11658,11 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 剑星都要出2了。
 
+
+*****
+
+####  洛克萨斯  
+##### 3975#       发表于 2025-7-9 13:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草，好像钓鱼可以钓出来组件？那我二周目能直接钓出来然后再去四号开mk2组件么？还是先开组件再去钓mk2的
+
