@@ -11973,3 +11973,14 @@ yxyxy太难摁了，经常嗯出来是yyy
 两个变种兔女郎装感觉很一般，这游戏的换色服装比重还是太大了。
 <img src="https://p.sda1.dev/25/ea10f087e3eb8508fa888c65d1debd06/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4001#       发表于 2025-7-10 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074142&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-9 23:05</a>
+
+换上尼尔的衣服，在boss模式试了下，被打破盾没破衣？</blockquote>
+必须死后用道具原地复活才是爆衣模式，boss rush不能复活所以弄不出来
+
