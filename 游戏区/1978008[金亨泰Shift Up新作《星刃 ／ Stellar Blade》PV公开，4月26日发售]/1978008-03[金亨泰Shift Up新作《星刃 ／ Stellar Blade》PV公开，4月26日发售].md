@@ -11731,3 +11731,29 @@ yxyxy太难摁了，经常嗯出来是yyy
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼尔2爆款2b人设的功劳起码90%以上
 真的出3也很难有这个高度了
 
+
+*****
+
+####  你妈的为什么  
+##### 3981#       发表于 2025-7-9 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071481&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-9 15:08</a>
+
+尼尔2爆款2b人设的功劳起码90%以上
+
+真的出3也很难有这个高度了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">记得当时宣发 人设出来的时候还说2b是扶他有大金金呢  很是火了一会
+
+
+*****
+
+####  Andariel  
+##### 3982#       发表于 2025-7-9 15:32
+
+ 本帖最后由 Andariel 于 2025-7-9 15:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071583&amp;ptid=1978008" target="_blank">**为什么 发表于 2025-7-9 15:27</a>
+记得当时宣发 人设出来的时候还说2b是扶他有大金金呢  很是火了一会</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">是不是和1的凯尼搞混了
+凯尼设定上是有大金金
+1代男主小时候去邻村卖匹眼，女主有大金金，非常他妈的神奇
+
