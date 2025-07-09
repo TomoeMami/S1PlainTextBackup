@@ -5638,3 +5638,11 @@ OK，我也填了
 我脸龙打上蓝宝石然后轮流给鱼皇尽孝 掉下来了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在皇开始流行带剑圣冲脸了，和这套打出伤更快还带守护的脸龙是优势
 
+
+*****
+
+####  windhawind2  
+##### 426#       发表于 2025-7-9 09:33
+
+连评论跌到谷底的剑圣都有剑触连招来拯救<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 太伟大了byd
+
