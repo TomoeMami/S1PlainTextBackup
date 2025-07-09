@@ -11757,3 +11757,18 @@ yxyxy太难摁了，经常嗯出来是yyy
 凯尼设定上是有大金金
 1代男主小时候去邻村卖匹眼，女主有大金金，非常他妈的神奇
 
+
+*****
+
+####  alucardcz  
+##### 3983#       发表于 2025-7-9 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071616&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-9 15:32</a>
+
+是不是和1的凯尼搞混了
+
+凯尼设定上是有大金金
+
+1代男主小时候去邻村卖匹眼，女主有大金金，非常他妈的神奇 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油居然还在剑 这300多血赚
+
