@@ -11802,3 +11802,30 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 其他看1518楼锐评就懂了
 
+
+*****
+
+####  你妈的为什么  
+##### 3986#       发表于 2025-7-9 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071616&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-9 15:32</a>
+
+是不是和1的凯尼搞混了
+
+凯尼设定上是有大金金
+
+1代男主小时候去邻村卖匹眼，女主有大金金，非常他妈的神奇 ...</blockquote>
+没问题 当时不知道世界观能隔那么久  按照1代的美少女大金金推测2代也是，越美少女金金越大
+
+
+*****
+
+####  十六夜pad长  
+##### 3987#       发表于 2025-7-9 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68066982&amp;ptid=1978008" target="_blank">silversor 发表于 2025-7-8 20:33</a>
+发现换上尼尔衣服看裙底，会被踢飞</blockquote>
+联动尼尔，我记得尼尔里你看2b裙底她也会躲的，踢不踢不记得了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

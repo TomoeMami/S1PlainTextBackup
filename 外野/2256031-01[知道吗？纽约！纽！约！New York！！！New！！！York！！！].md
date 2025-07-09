@@ -675,3 +675,13 @@ Beijing！Bei！Jing！
 徐裤子也算是润人里有名的了，以前是在大学里混的，辞职变卖家产带着全家跑美国送外卖，有一次送外卖还让 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">被老婆爆金币后的大和田！
 
+
+*****
+
+####  doublehit  
+##### 71#       发表于 2025-7-9 16:17
+
+snl50刚唱了纽约满地鼹鼠人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
