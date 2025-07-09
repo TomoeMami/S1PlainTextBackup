@@ -11596,3 +11596,40 @@ yxyxy太难摁了，经常嗯出来是yyy
 二周目没啥意思了，都是重复的内容，有点乏了，估计不会再打三周目那全服装了
 不管怎么说看瑟瑟服装还是挺开心的，感谢金大师<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 3970#       发表于 2025-7-9 12:08
+
+ 本帖最后由 永远的访客 于 2025-7-9 12:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68067074&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-8 20:57</a>
+
+在大沙漠打了10个小时血的教训，那就是这张图已经不适合潜行脊椎了，记得换下来。
+
+ ...</blockquote>
+大沙漠当然有用，只是要迂回得更久些，那些狮子，五角星章鱼，喷墨怪我都靠捅**杀的。长脖子么还是用红能量或者干脆迅驰模式解决<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我在大沙漠找鱼时是几乎屠遍所有能动的玩意（除了百合和亚当），不时也被对面反抗打伤些，全靠刺杀回血保续航的（补给模块给的太少了）<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 3971#       发表于 2025-7-9 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070486&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-9 12:08</a>
+
+大沙漠当然有用，只是要迂回得更久些，那些狮子，五角星章鱼，喷墨怪我都靠捅**杀的。长脖子么还是用红能 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">五角星章鱼你分得清正反嘛
+
+
+*****
+
+####  永远的访客  
+##### 3972#       发表于 2025-7-9 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070507&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-9 12:11</a>
+
+五角星章鱼你分得清正反嘛</blockquote>
+你观察他的移动方向就有了，这游戏没脑洞到设计眼睛长在**的怪物<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
