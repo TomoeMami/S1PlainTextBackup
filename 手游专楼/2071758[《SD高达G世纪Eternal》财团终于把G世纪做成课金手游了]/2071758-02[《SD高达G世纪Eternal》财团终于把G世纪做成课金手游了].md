@@ -7660,3 +7660,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 可以刷seed hard的嫣红强袭，seedre hard的自由，也算的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">SEED那边扫荡都点完了，又不想手动看录像
 
+
+*****
+
+####  rockroxas  
+##### 2180#       发表于 2025-7-9 19:26
+
+总比骡子追着要量产牛好（
+
