@@ -11772,3 +11772,33 @@ yxyxy太难摁了，经常嗯出来是yyy
 1代男主小时候去邻村卖匹眼，女主有大金金，非常他妈的神奇 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油居然还在剑 这300多血赚
 
+
+*****
+
+####  渡边加奈子  
+##### 3984#       发表于 2025-7-9 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070093&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-9 11:13</a>
+
+也就是贝塔技能最好用的其实是右边的冲击波？
+
+训练模式里看着软绵绵的，没左边的三连戳有动感。 ...</blockquote>
+没这招,这游戏部分后期boss会卡住不少人
+
+*****
+
+####  darkangel0224  
+##### 3985#       发表于 2025-7-9 15:59
+
+<blockquote>宇智波光 发表于 2025-7-8 10:13
+终于打完了33号全成就可以开坑剑星了 2k 3070ti感觉还够打
+
+在第一个营地前面的精英怪那练了大半个小时 有 ...</blockquote>
+往前翻，这游戏理性分析后，攻击是围绕爆裂技展开的，中间用普攻适当填充
+
+或者背板熟练到能在快慢刀里玩出花来
+
+普通人也只适合用用XXYY（轻轻重重）和YXXY（重轻轻重），因为这俩招反常识的短后摇
+
+其他看1518楼锐评就懂了
+
