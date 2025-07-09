@@ -11722,3 +11722,12 @@ yxyxy太难摁了，经常嗯出来是yyy
 看代工咯，se自己做不来完全可以给别人做嘛，我看su就完全不介意接单的</blockquote>
 白金也烂了 su自己这点产能，已经nikke摆烂也就这样
 
+
+*****
+
+####  Andariel  
+##### 3980#       发表于 2025-7-9 15:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼尔2爆款2b人设的功劳起码90%以上
+真的出3也很难有这个高度了
+
