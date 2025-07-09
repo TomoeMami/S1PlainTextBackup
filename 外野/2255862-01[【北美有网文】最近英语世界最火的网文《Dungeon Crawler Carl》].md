@@ -768,3 +768,17 @@ goodreads.com
 第一人称的优点是沉浸感强，所以灵异悬疑探案文大量采用，最容易出氛围，可以玩一些叙述和视角的诡计，鬼吹灯、民调局、青叶事务所等都是第一人称。
 但用在一般意义上的爽文就行不太通，写着写着就加了大量第三人视角的东西才能快速推进。
 
+
+*****
+
+####  来兹05  
+##### 56#         楼主| 发表于 2025-7-9 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069111&amp;ptid=2255862" target="_blank">blueelf 发表于 2025-7-9 09:22</a>
+只是单纯的写不好罢了，最近很火的韩国网文无限回归者讲述故事就是第一人称的
+
+楼主还有什么英语网文推荐 ...</blockquote>
+我也刚接触，想水点论文才去看的。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
