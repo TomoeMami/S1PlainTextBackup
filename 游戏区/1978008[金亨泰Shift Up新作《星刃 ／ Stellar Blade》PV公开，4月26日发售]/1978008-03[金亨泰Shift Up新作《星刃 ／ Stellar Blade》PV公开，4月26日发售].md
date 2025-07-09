@@ -11919,3 +11919,11 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 另外我觉得这游戏啥BOSS（除了最后几个我还没见着）都是近战才好打，距离远了各种秀，近了都只会很蠢的几个长前摇动作，完全不像隔壁老头环或者黑神话那种BOSS原地杂技视角乱飞不知道啥时候就摸你一刀的风格<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silversor  
+##### 3996#       发表于 2025-7-9 23:05
+
+换上尼尔的衣服，在boss模式试了下，被打破盾没破衣？
+
