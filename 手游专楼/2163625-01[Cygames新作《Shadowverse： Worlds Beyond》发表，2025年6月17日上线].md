@@ -5674,3 +5674,11 @@ OK，我也填了
 
 不过也得靠对面，第一盘我进去对面就炸了，不知道为啥，反正白嫖一胜，最后一盘对面错斩，场面上有oqs，手上3张0费2攻人偶，有超进化，我8血没场面，居然结束回合了，没懂啥意思，下回合被我下雷gay斩了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 430#       发表于 2025-7-9 20:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打了两把，抽象人偶浓度较高的造物仇一把4胜一把3胜，有一说一，1代最让我疲劳的其实就是大赛，打箱子我倒是还好
+
