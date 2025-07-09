@@ -7613,3 +7613,12 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 雷霆要来了，2个主角都是SSR，就是不知道卡池是啥
 
+
+*****
+
+####  Znesmoc  
+##### 2175#       发表于 2025-7-9 17:14
+
+抽到井没露娜+1
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">佛了
+
