@@ -11644,3 +11644,17 @@ yxyxy太难摁了，经常嗯出来是yyy
 五角星章鱼你分得清正反嘛</blockquote>
 分得清啊，它甚至有柰子<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  行政裁定书  
+##### 3974#       发表于 2025-7-9 13:44
+
+就差一些支线和尼尔dlc、妮姬dlc了。
+
+说起来尼尔系列还有续作计划吗？感觉2B几乎在每个游戏都联动过了，动画都出了。
+
+好不容易火的ip和角色，不会浪费了吧。
+
+剑星都要出2了。
+
