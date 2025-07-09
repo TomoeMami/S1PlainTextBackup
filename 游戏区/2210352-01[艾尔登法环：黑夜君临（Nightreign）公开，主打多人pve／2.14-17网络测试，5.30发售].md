@@ -11860,3 +11860,17 @@ fs就不能一只只地更新王夜王吗，感觉这波估计又是一次性塞
 神鹰的主要问题还是伤害和功能性都锁在了角色词条后，尤其是被动反伤，这个东西提供的额外伤害是体崩槽是神 ...</blockquote>
 鸟人速杀灵珠是什么新型笑话吗
 
+
+*****
+
+####  Sissii  
+##### 1139#       发表于 2025-7-9 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069798&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-9 10:40</a>
+
+https://www.youtube.com/watch?v=a3-hw95_uwE
+
+没见过的追踪者首日隐城路线，除常规目标外还打了一堆小怪 ...</blockquote>
+看完了，一般吧，好几个东西没打，没有这个流程精致，首日第一个圈黑刀*2 无头山妖*1 灵庙骑士*4  王室幽魂*1 宝箱*1 艾斯提*1（带铃铛能*2）
+[https://www.bilibili.com/video/BV14A39zgEX3](https://www.bilibili.com/video/BV14A39zgEX3)
+
