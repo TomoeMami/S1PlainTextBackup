@@ -7649,3 +7649,14 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 露娜玛利亚这臭女人为什么总追着我要4台机啊，删了几次了总出现总要，填不满了 ...</blockquote>
 可以刷seed hard的嫣红强袭，seedre hard的自由，也算的
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2179#       发表于 2025-7-9 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072522&amp;ptid=2071758" target="_blank">ztkong 发表于 2025-7-9 17:51</a>
+
+可以刷seed hard的嫣红强袭，seedre hard的自由，也算的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">SEED那边扫荡都点完了，又不想手动看录像
+

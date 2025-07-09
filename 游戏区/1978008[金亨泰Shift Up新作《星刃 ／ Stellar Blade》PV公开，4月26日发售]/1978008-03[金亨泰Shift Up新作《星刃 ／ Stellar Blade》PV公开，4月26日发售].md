@@ -11906,3 +11906,16 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 但是三周目衣服真的有水平XD 我建议不愿意三周目可以留个完美二周目上轨道电梯之前的进度备份，然后打个商人MOD
 
+
+*****
+
+####  永远的访客  
+##### 3995#       发表于 2025-7-9 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071177&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-7-9 14:10</a>
+
+因为这游戏战斗时跑动太慢，也没啥突进技能，  剑气既能打断、又能全距离输出、出手还快，就很好用 ...</blockquote>
+突进还行，对付喜欢远距离biubiubiu的敌人，以及刚刚一招出空可以反击的敌人可以最快速度拉近距离很有用，只是反人类在还要蓄能量。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外我觉得这游戏啥BOSS（除了最后几个我还没见着）都是近战才好打，距离远了各种秀，近了都只会很蠢的几个长前摇动作，完全不像隔壁老头环或者黑神话那种BOSS原地杂技视角乱飞不知道啥时候就摸你一刀的风格<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
