@@ -436,3 +436,23 @@
 —— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alph ...</blockquote>
 上海没有吗？那还真挺意外的
 
+
+*****
+
+####  Jet.Black  
+##### 48#       发表于 2025-7-9 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070769&amp;ptid=2256031" target="_blank">烈焰舞阳 发表于 2025-7-9 12:53</a>
+
+徐裤子也算是润人里有名的了，以前是在大学里混的，辞职变卖家产带着全家跑美国送外卖，有一次送外卖还让 ...</blockquote>
+所以放盒抽纸就没问题了？
+
+卷纸也没便宜多少吧
+
+*****
+
+####  木法莎  
+##### 49#       发表于 2025-7-9 12:59
+
+<img src="https://p.sda1.dev/25/d3d2c6fc04fe3009e9fdafa3a2aa3b03/image.jpg" referrerpolicy="no-referrer">
+
