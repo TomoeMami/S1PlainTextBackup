@@ -1341,3 +1341,13 @@ nico达到单话最高纪录
 
 算致敬无印最后一话和XV的最后一话的“流星坠落燃烧殆尽，然后―”吗（
 
+
+*****
+
+####  渡边菌  
+##### 129#       发表于 2025-7-10 04:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三女主是赔钱货！
+
+—— 来自 Sony XQ-AT52, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
