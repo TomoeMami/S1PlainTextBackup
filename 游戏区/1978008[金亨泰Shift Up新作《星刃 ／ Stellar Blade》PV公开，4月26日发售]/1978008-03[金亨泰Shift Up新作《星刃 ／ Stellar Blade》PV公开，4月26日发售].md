@@ -11462,3 +11462,44 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 我进训练场感觉还是第一个的三连戳好用。
 
+
+*****
+
+####  mhss  
+##### 3959#       发表于 2025-7-9 10:56
+
+三连戳在一周目对单体还可以，但是需要蓄力。
+三连劈最简单无脑，不用蓄力，远程还能压制倒地。
+连环踢是用来破盾，但是多周目后伤害已经完全溢出了，不需要去刻意破盾。
+唯独那个横斩我没看出什么实用效果，只能做爆发技能出来前的短暂替代品，爆发的次元斩和倒立画圆帅的多也实用的多。
+
+*****
+
+####  洛克萨斯  
+##### 3960#       发表于 2025-7-9 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069799&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-9 10:40</a>
+
+贝塔技能哪个最好用？
+
+我进训练场感觉还是第一个的三连戳好用。</blockquote>
+剑气，无敌的
+
+
+*****
+
+####  弗林蒂萨  
+##### 3961#       发表于 2025-7-9 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069637&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-9 10:19</a>
+
+那首bgm全名叫啥？</blockquote>
+[https://www.bilibili.com/video/B ... 673c315d6bdad946d75](https://www.bilibili.com/video/BV1XF7HzCEbd/?spm_id_from=333.1391.0.0&amp;vd_source=3547b5966b6a9673c315d6bdad946d75)
+
+*****
+
+####  弗林蒂萨  
+##### 3962#       发表于 2025-7-9 11:05
+
+发现好多mod不能换动作拍照，不能拍照我穿你何用，sad
+
