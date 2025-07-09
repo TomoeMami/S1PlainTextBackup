@@ -652,3 +652,15 @@ Beijing！Bei！Jing！
 如果说90年代对美国有滤镜还算情有可原
 都这年头了还大老远跑去住地下室是图个啥
 
+
+*****
+
+####  KinderJoy  
+##### 69#       发表于 2025-7-9 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070841&amp;ptid=2256031" target="_blank">johnkamsar 发表于 2025-7-9 13:06</a>
+安阳这个其实我挺好奇价格色，真24能搞定吗…..？</blockquote>
+十年前都不太可能这么便宜
+
+—— 来自 meizu MEIZU 20 Inf, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

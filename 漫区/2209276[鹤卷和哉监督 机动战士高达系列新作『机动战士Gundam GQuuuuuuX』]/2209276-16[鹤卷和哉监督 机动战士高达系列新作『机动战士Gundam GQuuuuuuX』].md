@@ -12805,3 +12805,19 @@ gq世界线紫婆的香水引发的症状，还有初见戴肯一家时那种羡
 
 就整个是个倒反天罡的故事，但是你不得不佩服这帮老嗨，叙事手法拿捏精准，不跳出故事在mate层面进行批判都不好挑理儿的。
 
+
+*****
+
+####  岸浪白野  
+##### 23079#       发表于 2025-7-9 15:21
+
+[X 上的 バンダイ キャンディ【公式】：“＜ラインナップご紹介！＞ 『機動戦士Gundam #GQuuuuuuX 』（ジークアクス）　 カードウエハースは、8月一般店頭発売！ 「シイコ」や「ガイア＆オルテガ」といった パイロットは勿論、愛機と共に収録！ [url]https://t.co/GCEbyEaAHQ](https://x.com/candytoy_c/status/1942781304472473670) #ジークアクス [https://t.co/u3jRZrYnV3](https://t.co/u3jRZrYnV3)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202507/09/152057ggucdziconc003dy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-9 15:20 上传
+

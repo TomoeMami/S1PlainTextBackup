@@ -118,3 +118,11 @@
 
 大草，这又是草台班子干的好事。
 
+
+*****
+
+####  leonardydd  
+##### 1376#       发表于 2025-7-9 15:26
+
+第一话千纱的配音怎么怪怪的，总是变声调？而且这音量太小了吧。<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
