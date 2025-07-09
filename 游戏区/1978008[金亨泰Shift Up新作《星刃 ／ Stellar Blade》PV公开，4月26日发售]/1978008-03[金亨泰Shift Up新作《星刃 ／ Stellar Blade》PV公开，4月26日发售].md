@@ -11955,3 +11955,11 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 伊芙：总有人想方设法看人家裤衩子，蒸虾头！<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  mhss  
+##### 3999#       发表于 2025-7-10 00:16
+
+终于把衣服全集齐了，三周目最得我心的是那个烽火装，有点eva驾驶服的感觉，就是大光腿没穿袜子可惜了点，而且鞋尖有点点反人类感觉没足够空间塞脚趾。
+
