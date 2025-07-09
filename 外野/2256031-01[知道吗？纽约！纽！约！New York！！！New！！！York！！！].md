@@ -508,3 +508,47 @@
 
 这陈腐古墓派的气息一闻老地道了
 
+
+*****
+
+####  就咋的  
+##### 56#       发表于 2025-7-9 13:56
+
+“如果你爱一个人，就把他送到纽约，因为那里是天堂。如果你恨一个人，也把他送到纽约，因为那里是地狱。”
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沧兰殇  
+##### 57#       发表于 2025-7-9 13:57
+
+不就是新乡
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  就咋的  
+##### 58#       发表于 2025-7-9 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070769&amp;ptid=2256031" target="_blank">烈焰舞阳 发表于 2025-7-9 12:53</a>
+
+徐裤子也算是润人里有名的了，以前是在大学里混的，辞职变卖家产带着全家跑美国送外卖，有一次送外卖还让 ...</blockquote>
+看这个表情，一旁的卷纸是灾害应急物品
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucifer123  
+##### 59#       发表于 2025-7-9 14:03
+
+= - =感觉是装的吧。说不定是有钱钓鱼佬
+
+*****
+
+####  瓦拉几亚之夜  
+##### 60#       发表于 2025-7-9 14:05
+
+这帮人没想通的是美国能让有钱人为所欲为，而不是人到了美国就自动变成为所欲为的有钱人
+
