@@ -552,3 +552,33 @@
 
 这帮人没想通的是美国能让有钱人为所欲为，而不是人到了美国就自动变成为所欲为的有钱人
 
+
+*****
+
+####  就咋的  
+##### 61#       发表于 2025-7-9 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071143&amp;ptid=2256031" target="_blank">lucifer123 发表于 2025-7-9 14:03</a>
+
+= - =感觉是装的吧。说不定是有钱钓鱼佬</blockquote>
+不是装的，他推的签名"god wills it", 路西法看你了
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucifer123  
+##### 62#       发表于 2025-7-9 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071166&amp;ptid=2256031" target="_blank">就咋的 发表于 2025-7-9 14:08</a>
+
+不是装的，他推的签名"god wills it", 路西法看你了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是二大爷  
+##### 63#       发表于 2025-7-9 14:13
+
+哇哦，感觉文字背后是姜文粗壮的吼声<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

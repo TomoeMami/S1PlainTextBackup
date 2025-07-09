@@ -11666,3 +11666,16 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草，好像钓鱼可以钓出来组件？那我二周目能直接钓出来然后再去四号开mk2组件么？还是先开组件再去钓mk2的
 
+
+*****
+
+####  leonz79  
+##### 3976#       发表于 2025-7-9 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070093&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-9 11:13</a>
+
+也就是贝塔技能最好用的其实是右边的冲击波？
+
+训练模式里看着软绵绵的，没左边的三连戳有动感。 ...</blockquote>
+因为这游戏战斗时跑动太慢，也没啥突进技能，  剑气既能打断、又能全距离输出、出手还快，就很好用
+
