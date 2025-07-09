@@ -12017,3 +12017,18 @@ yxyxy太难摁了，经常嗯出来是yyy
 终于把衣服全集齐了，三周目最得我心的是那个烽火装，有点eva驾驶服的感觉，就是大光腿没穿袜子可惜了点， ...</blockquote>
 我拿到之后也一直用这套，配2b发型眼罩。然后贞本义行大概画不出这身材，至少得上木村贵宏。
 
+
+*****
+
+####  黑沢逢世  
+##### 4005#       发表于 2025-7-10 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074592&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-10 01:25</a>
+
+因为一开始是不能选的，不知道哪次更新改的</blockquote>
+就PC版最新的一个补丁  7.2日上线的1.2.0 
+
+"Hard Mode" is now available from the start of the game. "Hard Mode" is also unlocked for Boss Challenge.
+
+以为会做数值适配 结果大概是木有
+
