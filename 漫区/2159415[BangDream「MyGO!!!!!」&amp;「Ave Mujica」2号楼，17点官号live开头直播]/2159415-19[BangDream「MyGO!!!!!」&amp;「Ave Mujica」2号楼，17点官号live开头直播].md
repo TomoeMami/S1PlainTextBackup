@@ -125,3 +125,19 @@ MyGO!!!!! 8th LIVE
 #BanG Dream# #MyGO# #往欄印#</blockquote>
        [https://www.bilibili.com/video/BV17cG4zDER4](https://www.bilibili.com/video/BV17cG4zDER4)
 
+
+*****
+
+####  yone0000  
+##### 27192#       发表于 2025-7-10 00:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2天了，6号位是反田吗
+
+<img src="https://img.stage1st.com/forum/202507/10/001607xdgawr90nox5xgv9.jpg" referrerpolicy="no-referrer">
+
+<strong>photo_2025-07-10_00-13-33.jpg</strong> (151.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-10 00:16 上传
+
