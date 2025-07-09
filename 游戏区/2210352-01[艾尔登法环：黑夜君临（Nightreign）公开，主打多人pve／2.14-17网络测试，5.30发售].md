@@ -11885,3 +11885,14 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 鸟人速杀灵珠是什么新型笑话吗</blockquote>
 之前写得不够准确，编辑了
 
+
+*****
+
+####  jacket  
+##### 1141#       发表于 2025-7-9 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074025&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-7-9 22:41</a>
+
+看完了，一般吧，好几个东西没打，没有这个流程精致，首日第一个圈黑刀*2 无头山妖*1 灵庙骑士*4  王室幽 ...</blockquote>
+这个看过了呀，就是标准的左进右出，没什么新鲜感了
+
