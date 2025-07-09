@@ -693,3 +693,16 @@ snl50刚唱了纽约满地鼹鼠人<img src="https://static.stage1st.com/image/s
 
 纽约地下室还不如呢
 
+
+*****
+
+####  loveumlj  
+##### 73#       发表于 2025-7-9 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069650&amp;ptid=2256031" target="_blank">Layor Rik 发表于 2025-7-9 10:21</a>
+
+去哔站找找，一堆“总裁请回家”
+
+—— 来自 nubia NX721J, Android 14, 鹅球 v3.5.99 ...</blockquote>
+重庆宫崎英高带的房子看着像地下室 其实都不是地下室。重庆的地下室起码也要地下好几十楼
+
