@@ -11861,3 +11861,16 @@ yxyxy太难摁了，经常嗯出来是yyy
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">2b比较内敛，只会用手挡一下然后躲开
 伊芙比较辣，会狠狠地给你一脚
 
+
+*****
+
+####  洛克萨斯  
+##### 3991#       发表于 2025-7-9 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071939&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-9 16:25</a>
+
+2b比较内敛，只会用手挡一下然后躲开
+
+伊芙比较辣，会狠狠地给你一脚</blockquote>
+伊芙踢人是致敬尼尔1凯尼的彩蛋
+

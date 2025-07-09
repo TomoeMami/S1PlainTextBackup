@@ -706,3 +706,21 @@ snl50刚唱了纽约满地鼹鼠人<img src="https://static.stage1st.com/image/s
 —— 来自 nubia NX721J, Android 14, 鹅球 v3.5.99 ...</blockquote>
 重庆宫崎英高带的房子看着像地下室 其实都不是地下室。重庆的地下室起码也要地下好几十楼
 
+
+*****
+
+####  普朗克  
+##### 74#       发表于 2025-7-9 16:45
+
+为什么是北京人在纽约，因为地道！
+
+—— 来自 samsung SM-F9460, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  执锐披坚卫镇天  
+##### 75#       发表于 2025-7-9 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070799&amp;ptid=2256031" target="_blank">木法莎 发表于 2025-7-9 12:59</a></blockquote>
+MD，这豆腐脑真想狠狠的来几大碗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
