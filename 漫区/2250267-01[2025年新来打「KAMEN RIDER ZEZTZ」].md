@@ -257,3 +257,11 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 最终形态肯定是加回腰带，然后和脖子周围的装饰，斜挎 ...</blockquote>
 我也是这么想的
 
+
+*****
+
+####  永恒的王牌  
+##### 85#       发表于 2025-7-9 20:09
+
+明明名字三个Z皮套却缺一横成了7已经和在耳边大声告诉你怎么设计后面的皮套差不多了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
