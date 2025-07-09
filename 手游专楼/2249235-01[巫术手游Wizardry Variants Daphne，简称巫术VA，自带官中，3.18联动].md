@@ -56,3 +56,18 @@
 
 2025-7-9 18:08 上传
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 450#         楼主| 发表于 2025-7-9 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072609&amp;ptid=2249235" target="_blank">琉歌 发表于 2025-7-9 18:02</a>
+
+佛了佛了 存了两个月了还不够1w钻的 只能当收菜RPG了
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+三期通行证奖励没拿全了<img src="https://static.stage1st.com/image/smiley/face2017/068.png"> 最近都不怎么签到，天热刷得更烦躁了
+
+主要是剑星害人不浅一天净拍照了
+
