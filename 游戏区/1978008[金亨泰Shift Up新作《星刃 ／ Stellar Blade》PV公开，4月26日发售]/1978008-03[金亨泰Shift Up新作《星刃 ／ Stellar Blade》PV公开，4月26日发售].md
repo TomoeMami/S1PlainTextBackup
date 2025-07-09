@@ -11896,3 +11896,13 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 到沙漠开日光塔的时候没注意，任务完成前还都没法存档，被娃在旁边看着光屁股跑了一路<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 3994#       发表于 2025-7-9 18:59
+
+@bad_alloc @洛克萨斯 
+
+但是三周目衣服真的有水平XD 我建议不愿意三周目可以留个完美二周目上轨道电梯之前的进度备份，然后打个商人MOD
+
