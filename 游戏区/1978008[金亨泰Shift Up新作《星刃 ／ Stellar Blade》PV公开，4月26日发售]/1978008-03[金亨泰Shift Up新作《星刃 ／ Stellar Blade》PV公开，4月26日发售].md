@@ -11829,3 +11829,35 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 —— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 3988#       发表于 2025-7-9 16:18
+
+有人试过二周目能开箱子加钓鱼把组件1和组件2一个周目内搞定吗
+
+
+*****
+
+####  Andariel  
+##### 3989#       发表于 2025-7-9 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071640&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-7-9 15:36</a>
+漏油居然还在剑 这300多血赚</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬楼又不需要玩（
+我打到三周目废土拿了白珍珠以后就不怎么推进度了
+这两天打折12块买了2042都在打枪
+
+*****
+
+####  Andariel  
+##### 3990#       发表于 2025-7-9 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071853&amp;ptid=1978008" target="_blank">十六夜pad长 发表于 2025-7-9 16:11</a>
+联动尼尔，我记得尼尔里你看2b裙底她也会躲的，踢不踢不记得了
+
+—— 来自 OnePlus PHB110, Android 15,  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">2b比较内敛，只会用手挡一下然后躲开
+伊芙比较辣，会狠狠地给你一脚
+
