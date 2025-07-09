@@ -11698,3 +11698,16 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 金亨泰请尼尔制作人来聊天的节目里.日方这些人言辞间就一副我们落后了的感觉.
 
+
+*****
+
+####  洛克萨斯  
+##### 3978#       发表于 2025-7-9 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071260&amp;ptid=1978008" target="_blank">oyss 发表于 2025-7-9 14:25</a>
+
+我觉得难.尼尔这系列本来就一直经费不足的样子.加上大家期待又高.
+
+然后被人抄作业也拉高了再出续作的门 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看代工咯，se自己做不来完全可以给别人做嘛，我看su就完全不介意接单的
+
