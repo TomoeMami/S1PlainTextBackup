@@ -11408,3 +11408,11 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 渡鸦战bgm取决于打了多久，卡的时间长，单独听就有感觉，卡的短就无感
 
+
+*****
+
+####  洛克萨斯  
+##### 3954#       发表于 2025-7-9 10:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我草我好像四号高塔传送带漏掉的宝箱是爆发充能组件，麻了，都已经开二周目了
+
