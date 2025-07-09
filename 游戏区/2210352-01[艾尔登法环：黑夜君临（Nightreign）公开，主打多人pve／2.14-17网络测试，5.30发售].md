@@ -11874,3 +11874,14 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 看完了，一般吧，好几个东西没打，没有这个流程精致，首日第一个圈黑刀*2 无头山妖*1 灵庙骑士*4  王室幽魂*1 宝箱*1 艾斯提*1（带铃铛能*2）
 [https://www.bilibili.com/video/BV14A39zgEX3](https://www.bilibili.com/video/BV14A39zgEX3)
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1140#       发表于 2025-7-9 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68073995&amp;ptid=2210352" target="_blank">アルメリア 发表于 2025-7-9 22:34</a>
+
+鸟人速杀灵珠是什么新型笑话吗</blockquote>
+之前写得不够准确，编辑了
+
