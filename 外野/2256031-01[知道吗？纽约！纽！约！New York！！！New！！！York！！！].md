@@ -407,3 +407,32 @@
 
 谁说不是呢  下雨还顺着窗户往里灌水呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 毕竟半地下室
 
+
+*****
+
+####  烈焰舞阳  
+##### 46#       发表于 2025-7-9 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069877&amp;ptid=2256031" target="_blank">百猪夜行 发表于 2025-7-9 10:50</a>
+感觉像是串子，真的精神不正常了应该是磁吸太后这样。
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3 ...</blockquote>
+徐裤子也算是润人里有名的了，以前是在大学里混的，辞职变卖家产带着全家跑美国送外卖，有一次送外卖还让白人揍了。也有给留子送外卖被认出来后留子当着他面说出金句:“你不是推上那二逼吗”导致留下终身心理创伤并发誓在也不给华人送外卖
+
+这是他当时为了证明自己过得不是很差拍的地下室吃牛排视频截图，卷纸出卖了他
+<img src="https://p.sda1.dev/25/8a1d6075c1f3f03bf3303ce266b7d4de/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  banrendacha  
+##### 47#       发表于 2025-7-9 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069509&amp;ptid=2256031" target="_blank">原装大小姐 发表于 2025-7-9 10:05</a>
+
+好像只有北京会住地下室吧，应该跟北京的对比
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alph ...</blockquote>
+上海没有吗？那还真挺意外的
+
