@@ -11633,3 +11633,14 @@ yxyxy太难摁了，经常嗯出来是yyy
 五角星章鱼你分得清正反嘛</blockquote>
 你观察他的移动方向就有了，这游戏没脑洞到设计眼睛长在**的怪物<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  心灵的乳头  
+##### 3973#       发表于 2025-7-9 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070507&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-9 12:11</a>
+
+五角星章鱼你分得清正反嘛</blockquote>
+分得清啊，它甚至有柰子<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
+
