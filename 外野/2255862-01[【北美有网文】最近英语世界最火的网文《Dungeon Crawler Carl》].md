@@ -782,3 +782,11 @@ goodreads.com
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cowgp01  
+##### 57#       发表于 2025-7-9 12:25
+
+要炫酷杀怪这设定就很trpg的，要够整活dm和pc们才高兴嘛
+
