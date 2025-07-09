@@ -684,3 +684,14 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 
 反正不管怎么算我蕾都是下水道那个对嘛<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17038#       发表于 2025-7-9 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072073&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-9 16:46</a>
+
+萌新9池了 什么水平（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">一般咸鱼水平 我10池 主要完全没新角色刷了毫无意义
+
