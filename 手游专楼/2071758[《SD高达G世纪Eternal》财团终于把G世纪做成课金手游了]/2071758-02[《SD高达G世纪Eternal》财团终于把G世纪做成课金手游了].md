@@ -7638,3 +7638,14 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 希望雷霆卡池不是什么大的吧（比方说雷霆完美高达完美鸡瘟号这种），挖点余矿看能不能再冲下海牛池
 
+
+*****
+
+####  ztkong  
+##### 2178#       发表于 2025-7-9 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072342&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-9 17:24</a>
+
+露娜玛利亚这臭女人为什么总追着我要4台机啊，删了几次了总出现总要，填不满了 ...</blockquote>
+可以刷seed hard的嫣红强袭，seedre hard的自由，也算的
+
