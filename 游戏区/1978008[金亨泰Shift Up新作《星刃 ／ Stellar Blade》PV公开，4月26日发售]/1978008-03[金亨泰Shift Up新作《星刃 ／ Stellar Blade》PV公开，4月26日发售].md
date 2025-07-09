@@ -11587,3 +11587,12 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要三周目才能拿到组件mk2了，算了，能不能坚持完二周目都难说
 
+
+*****
+
+####  bad_alloc  
+##### 3969#       发表于 2025-7-9 11:49
+
+二周目没啥意思了，都是重复的内容，有点乏了，估计不会再打三周目那全服装了
+不管怎么说看瑟瑟服装还是挺开心的，感谢金大师<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
