@@ -11874,3 +11874,15 @@ yxyxy太难摁了，经常嗯出来是yyy
 伊芙比较辣，会狠狠地给你一脚</blockquote>
 伊芙踢人是致敬尼尔1凯尼的彩蛋
 
+
+*****
+
+####  Andariel  
+##### 3992#       发表于 2025-7-9 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071993&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-9 16:35</a>
+伊芙踢人是致敬尼尔1凯尼的彩蛋</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凯尼也会踢吗，是不是重制版新加的
+我记得原版没这种讲究...原版也没有操作凯尼的流程吧
+重制版后面好像加了一段操作凯尼的剧情
+
