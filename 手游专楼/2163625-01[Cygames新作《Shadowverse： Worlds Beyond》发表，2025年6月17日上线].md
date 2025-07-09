@@ -5654,3 +5654,13 @@ OK，我也填了
 
 不是超模大迪奥厉害？
 
+
+*****
+
+####  Errey  
+##### 428#       发表于 2025-7-9 14:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">厚皇能解不能杀，最后依然接不住限速器
+
+不是很清楚这种纯low到对面解不动的游戏思路
+
