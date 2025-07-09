@@ -11416,3 +11416,39 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 <img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我草我好像四号高塔传送带漏掉的宝箱是爆发充能组件，麻了，都已经开二周目了
 
+
+*****
+
+####  罐子  
+##### 3955#       发表于 2025-7-9 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68067647&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-8 22:53</a>
+
+到目前为止涩涩服饰MOD质量高的基本还是在原有衣服上做减法各种减布料…… ...</blockquote>
+有件黑白的裙子很不错，926
+
+不过有bug，我穿了黑色的结果有一边柰子不会摇了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">作者也不修
+
+*****
+
+####  心灵的乳头  
+##### 3956#       发表于 2025-7-9 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68068635&amp;ptid=1978008" target="_blank">藤井紫 发表于 2025-7-9 07:24</a>
+
+渡鸦战的bgm太有病
+
+打的时候high
+
+单独拿出来听没什么感觉</blockquote>
+那首bgm全名叫啥？
+
+*****
+
+####  Andariel  
+##### 3957#       发表于 2025-7-9 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68069637&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-9 10:19</a>
+那首bgm全名叫啥？</blockquote>
+就叫raven
+
