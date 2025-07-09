@@ -629,3 +629,26 @@
 
 这人是谁
 
+
+*****
+
+####  星零影  
+##### 67#       发表于 2025-7-9 14:41
+
+北漂还有不少住北京的地下室呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+知道吗？
+北京！北！京！
+Beijing！Bei！Jing！
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  电风扇  
+##### 68#       发表于 2025-7-9 14:42
+
+千万里我追寻着你～
+如果说90年代对美国有滤镜还算情有可原
+都这年头了还大老远跑去住地下室是图个啥
+

@@ -11711,3 +11711,14 @@ yxyxy太难摁了，经常嗯出来是yyy
 然后被人抄作业也拉高了再出续作的门 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看代工咯，se自己做不来完全可以给别人做嘛，我看su就完全不介意接单的
 
+
+*****
+
+####  你妈的为什么  
+##### 3979#       发表于 2025-7-9 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68071279&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-9 14:30</a>
+
+看代工咯，se自己做不来完全可以给别人做嘛，我看su就完全不介意接单的</blockquote>
+白金也烂了 su自己这点产能，已经nikke摆烂也就这样
+
