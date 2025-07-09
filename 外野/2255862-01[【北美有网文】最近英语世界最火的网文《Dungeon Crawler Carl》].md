@@ -720,3 +720,12 @@ goodreads.com
 
 —— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 51#       发表于 2025-7-9 09:14
+
+用好第一人称实在太难了，菜鸡很容易写着写着就开始往里插主视角不应该知道的东西，要么就第三人称来回插
+早期国产网文跟现在的日本web都能看见这种菜鸡
+
