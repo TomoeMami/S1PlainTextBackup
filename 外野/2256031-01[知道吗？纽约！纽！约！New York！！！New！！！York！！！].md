@@ -582,3 +582,42 @@
 
 哇哦，感觉文字背后是姜文粗壮的吼声<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤宫由季  
+##### 64#       发表于 2025-7-9 14:19
+
+找deepseek老师写了首陋室铭，也太阴阳怪气了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>《陋室铭·纽约地下室版》
+
+（仿刘禹锡《陋室铭》风格）
+
+蜗居虽小，能住就行。
+
+地铁在顶，日夜轰鸣。
+
+苔痕上墙，霉绿茵茵。
+
+鼠辈常做客，蟑螂亦相亲。
+
+可以吃泡面，刷抖音——
+
+无阳光之刺眼，无暖气之温馨。
+
+曼岛打工仔，布鲁克林民。
+
+房东云： “爱住不住！”</blockquote>
+
+
+*****
+
+####  就咋的  
+##### 65#       发表于 2025-7-9 14:22
+
+找了一篇，贴原文原图就对不起大家了，不怕污染的请看链接
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+公知互撕，润人大乱战_星火智库
+[https://www.xinghuozhiku.com/289502.html](https://www.xinghuozhiku.com/289502.html)
+
