@@ -695,3 +695,11 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 萌新9池了 什么水平（</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">一般咸鱼水平 我10池 主要完全没新角色刷了毫无意义
 
+
+*****
+
+####  壳壳牛  
+##### 17039#       发表于 2025-7-9 21:33
+
+要是冠位战能刷绿方块就好了...
+
