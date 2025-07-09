@@ -732,3 +732,13 @@ MD，这豆腐脑真想狠狠的来几大碗<img src="https://static.stage1st.co
 
 斯！普！林！特！<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jonarryn  
+##### 77#       发表于 2025-7-9 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070841&amp;ptid=2256031" target="_blank">johnkamsar 发表于 2025-7-9 14:06</a>
+安阳这个其实我挺好奇价格色，真24能搞定吗…..？</blockquote>
+不太行，四碗两掺我们这就得二十四了，还有两笼包子和五个茶叶蛋呢
+
