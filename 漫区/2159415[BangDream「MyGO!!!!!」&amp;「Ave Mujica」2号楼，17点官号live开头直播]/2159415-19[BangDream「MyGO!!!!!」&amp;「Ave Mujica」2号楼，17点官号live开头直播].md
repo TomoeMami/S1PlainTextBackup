@@ -76,3 +76,52 @@
 
 梅奔来了
 
+
+*****
+
+####  堀内爱里衣  
+##### 27191#       发表于 2025-7-9 18:50
+
+       <strong>「往欄印（Ourai）」One Chorus 视听视频 / MyGO!!!!!【原创歌曲】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202507/09/184956idqxx4hxt17w02xu.jpg" referrerpolicy="no-referrer">
+
+<strong>ae70b35846c9fd6c2fac07b2b27aa4eb198e101e.jpg</strong> (133.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-9 18:49 上传
+
+MyGO!!!!!的原创歌曲「往欄印」的One Chorus视听视频公开！
+
+「往欄印」
+
+作词：藤原優樹(SUPA LOVE)
+
+作曲・编曲：長谷川大介(SUPA LOVE)
+
+演唱：MyGO!!!!!
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 7th Single「往欄印」
+
+2025年8月6日(周三)发售。
+
+详情请见：[https://bang-dream.com/discographies/4092](https://bang-dream.com/discographies/4092)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 8th LIVE
+
+2025年12月6日(周六)举办
+
+@京王Arena TOKYO
+
+详情请见：[https://bang-dream.com/events/mygo_8th](https://bang-dream.com/events/mygo_8th)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+#BanG Dream# #MyGO# #往欄印#</blockquote>
+       [https://www.bilibili.com/video/BV17cG4zDER4](https://www.bilibili.com/video/BV17cG4zDER4)
+
