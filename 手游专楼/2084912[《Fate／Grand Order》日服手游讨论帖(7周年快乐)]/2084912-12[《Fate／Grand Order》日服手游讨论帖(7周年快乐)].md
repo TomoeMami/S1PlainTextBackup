@@ -703,3 +703,36 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 
 要是冠位战能刷绿方块就好了...
 
+
+*****
+
+####  alucardcz  
+##### 17040#       发表于 2025-7-9 16:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">萌新9池了 什么水平（
+
+
+*****
+
+####  qixinno2  
+##### 17041#       发表于 2025-7-9 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072073&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-9 16:46</a>
+
+萌新9池了 什么水平（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">一般咸鱼水平 我10池 主要完全没新角色刷了毫无意义
+
+*****
+
+####  壳壳牛  
+##### 17042#       发表于 2025-7-9 21:33
+
+要是冠位战能刷绿方块就好了...
+
+*****
+
+####  qixinno2  
+##### 17043#       发表于 2025-7-10 08:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">靠着羁绊石终于出紫发美少女了
+
