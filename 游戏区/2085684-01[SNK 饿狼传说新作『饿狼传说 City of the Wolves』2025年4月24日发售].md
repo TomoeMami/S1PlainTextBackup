@@ -188,3 +188,14 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 小孩要上比利要不卡恩硬抗， 我本人希望上比利 教SNK做人</blockquote>
 他卡恩的熟练度太低了
 
+
+*****
+
+####  FINALFANTASYⅪ  
+##### 411#       发表于 2025-7-11 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68080169&amp;ptid=2085684" target="_blank">michaelakan 发表于 2025-7-11 02:43</a>
+
+他卡恩的熟练度太低了</blockquote>
+你忘记小孩和国内最强卡恩点点关系，我个人坚信他还是上比利打卡恩，他应该找到方法
+
