@@ -12038,3 +12038,11 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏真是邪门，好好的玩了几天今天刚更新轮换又是高延迟又是连续弹出。
 
+
+*****
+
+####  shyso  
+##### 1154#       发表于 2025-7-10 22:17
+
+今天打一盘人马掉线五次，过关的时候两个队友15级我12级
+
