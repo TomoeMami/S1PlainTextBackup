@@ -172,3 +172,13 @@ MyGO!!!!! 8th LIVE
 mygo只有一个是真名
 mujica+sumimi只有一个是艺名
 
+
+*****
+
+####  CyDiablo  
+##### 27196#       发表于 2025-7-10 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078195&amp;ptid=2159415" target="_blank">主序豚 发表于 2025-7-10 17:38</a>
+说是能装1W8的场地？</blockquote>
+梅奔说是上限1w8，但按426、27的编排怎么样都开不了四面台，三面台一万二三这样吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

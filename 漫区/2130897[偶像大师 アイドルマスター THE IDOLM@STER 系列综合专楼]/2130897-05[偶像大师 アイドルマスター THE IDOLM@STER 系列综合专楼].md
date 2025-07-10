@@ -57,3 +57,13 @@
 
 怎么又是透鸽啊
 
+
+*****
+
+####  kykawaiii  
+##### 7084#       发表于 2025-7-10 18:46
+
+这收藏集一般多少能拿下？
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

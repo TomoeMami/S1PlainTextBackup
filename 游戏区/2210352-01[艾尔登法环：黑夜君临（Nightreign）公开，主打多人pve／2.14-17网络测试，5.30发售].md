@@ -11994,3 +11994,27 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 黑环偶遇拔线虫，拼尽全力无法战胜。
 
+
+*****
+
+####  usodakedo  
+##### 1150#       发表于 2025-7-10 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68075208&amp;ptid=2210352" target="_blank">全装甲夏亚 发表于 2025-7-10 09:00</a>
+服了，昨天连续3把红蛾子掉线不复活，之前都没碰到过，这bug修了个啥啊</blockquote>
+那个修复说是临时补丁，只修了一些特定情况，估计下次蛾子再上线才会修完，但是希望蛾子再加强点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Steel.Haze  
+##### 1151#       发表于 2025-7-10 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68075986&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-10 10:56</a>
+
+我悟了，绞尽脑汁想词条不如铃铛一根，无赖也要用铃铛，开局杀一只艾斯提比什么都赚
+
+铃铛杀艾斯提，战技带 ...</blockquote>
+无赖不用带铃铛，因为小艾可以投壶干掉。无赖的三大词条收益太大了，且这三个不会同石出现，所以基本无赖的构筑不用考虑带铃铛的方案。
+
