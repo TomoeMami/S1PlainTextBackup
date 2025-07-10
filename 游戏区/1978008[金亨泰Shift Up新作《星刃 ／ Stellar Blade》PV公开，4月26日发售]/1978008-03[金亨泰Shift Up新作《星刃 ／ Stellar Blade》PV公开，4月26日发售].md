@@ -12147,3 +12147,31 @@ yxyxy太难摁了，经常嗯出来是yyy
 我是在三周目底没使用拍照键的情况下触发出的着衣模型，然后在打完鸟人后的自由移动模式（要我去后面找奥尔科）下触发的果模。
 即使挑战模式能触发着衣模型，打完鸟人也是直接触发结算画面不会有自由移动的时间，应该也不能像我之前拍的那样有靠近果模型机会<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4016#       发表于 2025-7-11 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68079080&amp;ptid=1978008" target="_blank">mhss 发表于 2025-7-10 20:38</a>
+
+挑战模式试了下，触发不了
+
+我是在三周目底没使用拍照键的情况下触发出的着衣模型，然后在打完鸟人后的自由 ...</blockquote>
+挑战模式是能触发的，但是我忘了打完直接结算了，我的锅
+
+总结一下就是五官和手脚细节都很足，毛孔啥的该有都有——然后关键部分，ru头做了，但是没上色；下边基本形状做了，但是没有缝
+
+我从截图里翻了几张你先凑合看一下，有感兴趣的楼友也可以看看，不过精度比Eve差不少，其实没什么XD
+
+详见附件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/rar.gif" referrerpolicy="no-referrer">
+
+raven.rar
+
+2025-7-11 00:34 上传
+点击文件名下载附件
+
+1.84 MB, 下载次数: 0
+
