@@ -45,3 +45,11 @@
 
 传送包看着帅啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6777#       发表于 2025-7-11 02:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么现在静音牛的概率已经变成100%了，混战的时候老是被牛撞死，主机躲牛本来就很很难现在还完全没声音
+

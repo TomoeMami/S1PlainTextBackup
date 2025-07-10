@@ -169,3 +169,22 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 
 又特么一个人抗日<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FINALFANTASYⅪ  
+##### 409#       发表于 2025-7-11 02:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">小孩要上比利要不卡恩硬抗， 我本人希望上比利 教SNK做人
+
+
+*****
+
+####  michaelakan  
+##### 410#       发表于 2025-7-11 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68080165&amp;ptid=2085684" target="_blank">FINALFANTASYⅪ 发表于 2025-7-11 02:38</a>
+
+小孩要上比利要不卡恩硬抗， 我本人希望上比利 教SNK做人</blockquote>
+他卡恩的熟练度太低了
+
