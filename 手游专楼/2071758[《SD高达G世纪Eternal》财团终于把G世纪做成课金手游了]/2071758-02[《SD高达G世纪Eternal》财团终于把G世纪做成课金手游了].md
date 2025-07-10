@@ -7729,3 +7729,13 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 这ssr我再刷下去要疯了，还有后面还要4台ssr做任务
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2187#       发表于 2025-7-11 00:46
+
+命运要三台机合成，还不像cca有三关，能俘获一些开发途中的机体，节省开发素材。然后好不容易开发出一架，但是要突满还要三台<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
