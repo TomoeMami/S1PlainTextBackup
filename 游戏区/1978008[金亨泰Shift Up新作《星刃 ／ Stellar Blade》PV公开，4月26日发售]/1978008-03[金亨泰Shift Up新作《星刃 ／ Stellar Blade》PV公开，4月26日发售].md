@@ -12073,3 +12073,24 @@ yxyxy太难摁了，经常嗯出来是yyy
 这又是个什么鬼情况<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">为什么这模型上面是带细节的？难道打完鸟人掉出来的那个SU做了完整模型？
 <img src="https://p.sda1.dev/25/e7cc51de4fe8edbabcf9cd748391ebb7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4010#       发表于 2025-7-10 19:40
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-7-10 19:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078693&amp;ptid=1978008" target="_blank">mhss 发表于 2025-7-10 19:19</a>
+
+这又是个什么鬼情况，我发誓自己只装了一个拍照不隐藏角色的mod，打完要我去找奥尔科，远景一看模型还在但 ...</blockquote>
+就是拍照不隐藏角色MOD的“功劳”，我打完也这样XD  打完出来那个一般来说是套用了一个简易模型，这样反而省事
+
+你去打天命号还能看见百合站那卖萌(不要瞎想，是平时的那个，穿衣服了)
+
+*****
+
+####  江戸前ルナ  
+##### 4011#       发表于 2025-7-10 19:42
+
+不明孽奇拨被打倒渡鸦出来的时候传闻是裸的还有细节，但拍照模式那时不能转镜头。有人开自由模式看到过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
