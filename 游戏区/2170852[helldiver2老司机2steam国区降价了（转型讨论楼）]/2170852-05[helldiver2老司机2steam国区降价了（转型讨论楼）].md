@@ -53,3 +53,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么现在静音牛的概率已经变成100%了，混战的时候老是被牛撞死，主机躲牛本来就很很难现在还完全没声音
 
+
+*****
+
+####  FLZB  
+##### 6778#       发表于 2025-7-11 05:13
+
+静音牛是从首发到现在都一直没修的问题，我很怀疑箭头有没有能力修，这游戏混音整个一坨，完全没有优先级。大型单位明明都有很不错的音效但不知道为什么音量都调得非常小，东西一多或者角度不对直接连声音都没了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
