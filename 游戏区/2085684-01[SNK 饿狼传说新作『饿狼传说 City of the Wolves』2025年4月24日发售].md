@@ -161,3 +161,11 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 
 卡恩这种超高火力SET角色版中还有强力先置重拳+EX撞，两次调整都没动过真有点费解，分离器熟练度也是够逆天。
 
+
+*****
+
+####  michaelakan  
+##### 408#       发表于 2025-7-11 02:34
+
+又特么一个人抗日<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
