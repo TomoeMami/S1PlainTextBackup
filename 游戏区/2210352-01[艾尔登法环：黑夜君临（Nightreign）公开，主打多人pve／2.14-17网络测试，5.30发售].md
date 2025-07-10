@@ -11928,3 +11928,17 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 服了，昨天连续3把红蛾子掉线不复活，之前都没碰到过，这bug修了个啥啊
 
+
+*****
+
+####  serj005  
+##### 1145#       发表于 2025-7-10 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68075137&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-7-10 08:47</a>
+现在有新一点的套路和黑君的掉落机制研究。
+
+套路是用近战铁眼（他出高级玩意的概率高），然后弓箭放左手 ...</blockquote>
+背包检测是假的，贴吧已经有大量实测数据证实不存在背包检测掉落机制，目前存在掉落偏向的只有角色池，没有背包池。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
