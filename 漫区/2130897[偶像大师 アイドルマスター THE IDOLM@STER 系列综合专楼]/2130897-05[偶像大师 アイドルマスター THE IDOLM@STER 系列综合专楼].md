@@ -36,3 +36,16 @@
 这个收藏集是干嘛的？看着像B站皮肤背景表情包</blockquote>
 就是一整套皮肤，包括b站主页，点赞，表情包，主页背景图等。和qq主题差不多。
 
+
+*****
+
+####  BQlin  
+##### 7082#       发表于 2025-7-10 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078171&amp;ptid=2130897" target="_blank">RedSpecial 发表于 2025-7-10 17:34</a>
+
+这个收藏集是干嘛的？看着像B站皮肤背景表情包</blockquote>
+就是这些东西，不过要抽到不同的卡面才能解锁，一般要2 3张卡，感兴趣的话止步在这阶段就行
+
+再往上的就是抽满全套跟稀有卡这些可以换一些时尚小垃圾之类的，别碰
+
