@@ -11942,3 +11942,21 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jacket  
+##### 1146#       发表于 2025-7-10 10:56
+
+我悟了，绞尽脑汁想词条不如铃铛一根，无赖也要用铃铛，开局杀一只艾斯提比什么都赚
+
+铃铛杀艾斯提，战技带引力波对付黑刀姐，这样就不需要火壶，也不用强制从右边商人那里买壶进门，可以左进右出
+
+<img src="https://img.stage1st.com/forum/202507/10/105623tqhc6h97p29yh66h.jpg" referrerpolicy="no-referrer">
+
+<strong>ELDEN RING NIGHTREIGN_20250710104309.jpg</strong> (116.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-10 10:56 上传
+
