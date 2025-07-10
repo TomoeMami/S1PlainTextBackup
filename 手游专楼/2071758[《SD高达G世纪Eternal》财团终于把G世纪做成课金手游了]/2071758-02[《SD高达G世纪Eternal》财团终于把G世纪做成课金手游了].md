@@ -7739,3 +7739,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  HATENA  
+##### 2188#       发表于 2025-7-11 02:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">200抽7台脉冲，刷材料没麻这个毒池是真麻了
+
