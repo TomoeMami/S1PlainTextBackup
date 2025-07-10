@@ -12137,3 +12137,13 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">su还是讲究，真就给你做一个光屁股大妞的建模放那
 
+
+*****
+
+####  mhss  
+##### 4015#       发表于 2025-7-10 20:38
+
+挑战模式试了下，触发不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我是在三周目底没使用拍照键的情况下触发出的着衣模型，然后在打完鸟人后的自由移动模式（要我去后面找奥尔科）下触发的果模。
+即使挑战模式能触发着衣模型，打完鸟人也是直接触发结算画面不会有自由移动的时间，应该也不能像我之前拍的那样有靠近果模型机会<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
