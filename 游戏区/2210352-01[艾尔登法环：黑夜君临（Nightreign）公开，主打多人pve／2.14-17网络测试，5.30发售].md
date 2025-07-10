@@ -11960,3 +11960,13 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 2025-7-10 10:56 上传
 
+
+*****
+
+####  慕兰  
+##### 1147#       发表于 2025-7-10 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68072662&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-9 18:09</a>
+而且这人打架选择钩锁拉完接炎击，节奏很合适，比一般的钩锁拉完空中转三圈再劈一刀火焰刀看着更快 ...</blockquote>
+钩索接战技确实舒服，这下可以不用带火焰刀，省下格子带杀小兵回大了
+
