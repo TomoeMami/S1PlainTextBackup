@@ -12064,3 +12064,12 @@ yxyxy太难摁了，经常嗯出来是yyy
 打鸟人时鸦宝本体的模型被莫名其妙就出来了，不知道的还以为是2人在共斗孽奇拔<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/74adf6c66624fecb8e854df67d542bb2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 4009#       发表于 2025-7-10 19:19
+
+这又是个什么鬼情况<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">为什么这模型上面是带细节的？难道打完鸟人掉出来的那个SU做了完整模型？
+<img src="https://p.sda1.dev/25/e7cc51de4fe8edbabcf9cd748391ebb7/image.jpg" referrerpolicy="no-referrer">
+
