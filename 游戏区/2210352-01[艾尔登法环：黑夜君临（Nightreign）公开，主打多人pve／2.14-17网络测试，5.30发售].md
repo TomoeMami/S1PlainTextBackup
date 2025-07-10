@@ -12030,3 +12030,11 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  在海岸  
+##### 1153#       发表于 2025-7-10 21:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏真是邪门，好好的玩了几天今天刚更新轮换又是高延迟又是连续弹出。
+
