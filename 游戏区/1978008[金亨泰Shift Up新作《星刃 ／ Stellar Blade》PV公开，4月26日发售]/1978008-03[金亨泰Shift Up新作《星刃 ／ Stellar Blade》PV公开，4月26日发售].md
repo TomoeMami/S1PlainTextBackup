@@ -12094,3 +12094,11 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 不明孽奇拨被打倒渡鸦出来的时候传闻是裸的还有细节，但拍照模式那时不能转镜头。有人开自由模式看到过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 4012#       发表于 2025-7-10 19:49
+
+正常打完那个掉出来的全身是血还趴在地上，就算镜头能自由调动也肯定没法看到正面，看到这个过于震惊赶紧打上doro发出来，结果拍完按了菜单键后模型消失了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
