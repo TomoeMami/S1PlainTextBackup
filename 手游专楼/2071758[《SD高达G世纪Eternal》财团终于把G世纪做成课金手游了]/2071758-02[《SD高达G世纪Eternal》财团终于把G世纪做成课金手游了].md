@@ -7668,3 +7668,15 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 总比骡子追着要量产牛好（
 
+
+*****
+
+####  无念  
+##### 2181#       发表于 2025-7-10 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68073057&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-9 19:26</a>
+总比骡子追着要量产牛好（</blockquote>
+量产牛好歹能硬刷，捕获这种300体力扔进去不一定能听个响的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
