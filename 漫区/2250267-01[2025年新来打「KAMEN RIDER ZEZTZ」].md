@@ -281,3 +281,16 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 
 皮套值得期待了
 
+
+*****
+
+####  BQlin  
+##### 87#       发表于 2025-7-10 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078134&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2025-7-10 17:28</a>
+
+皮套值得期待了</blockquote>
+[https://tieba.baidu.com/p/9860702618](https://tieba.baidu.com/p/9860702618)
+
+贴吧老哥在bw那边拍了不少，透明腰带看来确实是导光用的
+

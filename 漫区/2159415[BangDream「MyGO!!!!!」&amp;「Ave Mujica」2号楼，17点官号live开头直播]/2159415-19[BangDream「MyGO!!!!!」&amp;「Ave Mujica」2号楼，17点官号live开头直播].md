@@ -153,3 +153,22 @@ MyGO!!!!! 8th LIVE
 
        [https://t.co/pKMTxPlVVJ](https://t.co/pKMTxPlVVJ)
 
+
+*****
+
+####  主序豚  
+##### 27194#       发表于 2025-7-10 17:38
+
+说是能装1W8的场地？
+
+*****
+
+####  仟音一心  
+##### 27195#       发表于 2025-7-10 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074414&amp;ptid=2159415" target="_blank">yone0000 发表于 2025-7-10 00:16</a>
+2天了，6号位是反田吗</blockquote>
+是的
+mygo只有一个是真名
+mujica+sumimi只有一个是艺名
+
