@@ -199,3 +199,11 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 他卡恩的熟练度太低了</blockquote>
 你忘记小孩和国内最强卡恩点点关系，我个人坚信他还是上比利打卡恩，他应该找到方法
 
+
+*****
+
+####  plok201  
+##### 412#       发表于 2025-7-11 03:00
+
+不可能上卡恩吧，完全没练度，只能说snk完蛋是对的，就路人观众过来，一眼能看到这不同人的卡恩在杀，搞成个卡恩杯哪来的流量<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
