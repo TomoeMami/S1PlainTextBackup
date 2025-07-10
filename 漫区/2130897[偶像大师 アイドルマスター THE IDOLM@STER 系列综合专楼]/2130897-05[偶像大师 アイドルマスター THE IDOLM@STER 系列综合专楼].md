@@ -83,3 +83,11 @@
 
 卖收藏是真赚啊，是个日本ip/画师之类的都跑来卖了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 7087#       发表于 2025-7-10 19:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟人傻钱多
+
