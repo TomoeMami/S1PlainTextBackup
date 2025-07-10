@@ -2166,3 +2166,13 @@ HIMEHINA 4th album 2575
 
 感觉这一代毫不掩饰的电脑连打制裁比2022严重得多，真是佩服油男，我自己开个档第一年被这种制裁糊脸瞬间就犯恶心关闭不玩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1381#       发表于 2025-7-10 22:42
+
+我觉得不光是特供版，而且是每个人特供版都不一样，之母的版本就是自带魔物是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
