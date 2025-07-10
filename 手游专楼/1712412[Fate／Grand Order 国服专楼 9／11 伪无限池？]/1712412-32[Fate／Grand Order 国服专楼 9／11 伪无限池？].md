@@ -60,3 +60,11 @@
 
 只能说画风已经变成这样，改不了了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47185#       发表于 2025-7-10 20:36
+
+我其实是希望redrop来画的，可惜不可能就是了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
