@@ -2200,3 +2200,13 @@ HIMEHINA 4th album 2575
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果是特供版那一定是konami里有德龙虐爱好者吧
 
+
+*****
+
+####  poipanchao  
+##### 1385#       发表于 2025-7-11 01:39
+
+特供倒不是不可能啦，硬拉点概率上去，10个人怎么着也有几个人会中奖，总比去年全军覆没来的好看
+
+至于没中奖的就接着坐牢咯
+

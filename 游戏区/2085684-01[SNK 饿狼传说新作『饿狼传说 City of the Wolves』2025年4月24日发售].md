@@ -100,3 +100,14 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 
 现在只希望不是新冠，那么影响不会那么大。
 
+
+*****
+
+####  八月飞雪  
+##### 401#       发表于 2025-7-11 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68080036&amp;ptid=2085684" target="_blank">hkguty 发表于 2025-7-11 01:11</a>
+
+小孩紧张了，感觉状态不咋地</blockquote>
+他感冒了，第一场上台的时候还在咳嗽
+
