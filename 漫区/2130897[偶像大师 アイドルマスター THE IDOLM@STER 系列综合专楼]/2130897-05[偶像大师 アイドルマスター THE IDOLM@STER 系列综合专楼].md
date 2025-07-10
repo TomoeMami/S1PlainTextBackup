@@ -67,3 +67,19 @@
 
 —— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  馬斯特壺  
+##### 7085#       发表于 2025-7-10 18:49
+
+本家也有国内转播会了<img src="https://p.sda1.dev/25/4736d95113ba5c948946ffc507d2fac5/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7086#       发表于 2025-7-10 18:55
+
+卖收藏是真赚啊，是个日本ip/画师之类的都跑来卖了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

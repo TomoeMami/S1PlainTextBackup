@@ -12054,3 +12054,13 @@ yxyxy太难摁了，经常嗯出来是yyy
 因为本来二周目才能开困难，前几天更新变成开局就能选。</blockquote>
 想挑战下自己来着 发现数值不太支持初见开荒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mhss  
+##### 4008#       发表于 2025-7-10 18:55
+
+感觉更新1.2.0后各种莫名其妙的bug。
+打鸟人时鸦宝本体的模型被莫名其妙就出来了，不知道的还以为是2人在共斗孽奇拔<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/74adf6c66624fecb8e854df67d542bb2/image.jpg" referrerpolicy="no-referrer">
+
