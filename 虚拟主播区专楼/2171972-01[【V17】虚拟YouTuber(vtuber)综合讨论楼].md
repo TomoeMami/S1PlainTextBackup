@@ -2158,3 +2158,11 @@ HIMEHINA 4th album 2575
 
 2025-7-10 17:17 上传
 
+
+*****
+
+####  Ketestrait  
+##### 1380#       发表于 2025-7-10 20:07
+
+感觉这一代毫不掩饰的电脑连打制裁比2022严重得多，真是佩服油男，我自己开个档第一年被这种制裁糊脸瞬间就犯恶心关闭不玩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
