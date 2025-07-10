@@ -12070,3 +12070,21 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 怎么复刻之后人马野排质量这么低，一晚上没一把能过的
 
+
+*****
+
+####  RinC  
+##### 1158#       发表于 2025-7-11 03:04
+
+怎么复刻之后人马野排质量这么低，一晚上没一把能过的
+
+*****
+
+####  jacket  
+##### 1159#       发表于 2025-7-11 05:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078510&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-7-10 18:47</a>
+
+无赖不用带铃铛，因为小艾可以投壶干掉。无赖的三大词条收益太大了，且这三个不会同石出现，所以基本无赖 ...</blockquote>
+试了一下第一圈刷左上右上的话，爬楼捡壶再扔壶时间不太够，还有扔不准和脚滑掉下去的时候
+
