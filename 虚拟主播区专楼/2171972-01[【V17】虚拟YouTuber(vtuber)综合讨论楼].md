@@ -2192,3 +2192,11 @@ HIMEHINA 4th album 2575
 
 真有特供版那ibrahim肯定被knm锁定了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1384#       发表于 2025-7-11 01:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果是特供版那一定是konami里有德龙虐爱好者吧
+
