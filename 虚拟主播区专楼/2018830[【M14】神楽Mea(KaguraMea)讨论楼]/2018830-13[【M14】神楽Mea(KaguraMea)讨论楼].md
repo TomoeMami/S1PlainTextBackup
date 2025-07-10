@@ -57280,3 +57280,13 @@ t台联动的档吗，那样的话我完全没有记录
 今晚这个练习怪好玩的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 看得很开心
 
+
+*****
+
+####  TiHaru  
+##### 19045#       发表于 2025-7-10 13:08
+
+开心吗，中和教练看得我想杀人了
+
+反而只是单纯菜逼的下路都显得顺眼了
+
