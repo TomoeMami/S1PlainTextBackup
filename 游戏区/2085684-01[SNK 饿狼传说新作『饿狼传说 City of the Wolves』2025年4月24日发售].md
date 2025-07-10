@@ -75,3 +75,11 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 
 凯恩这一气真的夸张，拳脚取消出这个后续还有大连段加强倒地放球起攻，打不开局面的时候直接裸取消一个固定住对面开始择，一局能攒出两次这个，为什么2025年的非ARC游戏会出现这种招<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 398#       发表于 2025-7-11 01:11
+
+小孩紧张了，感觉状态不咋地
+

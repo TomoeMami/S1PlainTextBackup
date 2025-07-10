@@ -12175,3 +12175,35 @@ raven.rar
 
 1.84 MB, 下载次数: 0
 
+
+*****
+
+####  faxiajin  
+##### 4017#       发表于 2025-7-11 01:10
+
+全成就了，本来这游戏的收集要素是真的繁琐，但跑图的时候用伊芙时不时换个装再截个图又感觉没那么难忍受，这游戏268的价钱里至少有200块是花在伊芙身上了，只能说金亨泰在怎么在游戏里制作一个美丽的女体这点上是当之无愧的大师<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+<img src="https://img.stage1st.com/forum/202507/11/010803kv8hi28h5h25ruj8.jpg" referrerpolicy="no-referrer">
+
+<strong>20250621215343_1.jpg</strong> (329.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 01:08 上传
+
+<img src="https://img.stage1st.com/forum/202507/11/010803bhnacnfnhhyf0lc8.jpg" referrerpolicy="no-referrer">
+
+<strong>20250623210427_1.jpg</strong> (272.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 01:08 上传
+
+<img src="https://img.stage1st.com/forum/202507/11/010805ieoyao115hgiryt1.jpg" referrerpolicy="no-referrer">
+
+<strong>20250627024119_1.jpg</strong> (462.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 01:08 上传
+
