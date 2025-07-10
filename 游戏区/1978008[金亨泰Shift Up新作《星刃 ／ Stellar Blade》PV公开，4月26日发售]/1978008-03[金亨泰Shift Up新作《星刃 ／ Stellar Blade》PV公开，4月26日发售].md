@@ -12032,3 +12032,14 @@ yxyxy太难摁了，经常嗯出来是yyy
 
 以为会做数值适配 结果大概是木有
 
+
+*****
+
+####  leonz79  
+##### 4006#       发表于 2025-7-10 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074579&amp;ptid=1978008" target="_blank">黑沢逢世 发表于 2025-7-10 01:18</a>
+
+和解了 亚巴顿刮五六分钟然后挨打两下直接死 切普通难度直接一两分钟砍瓜切菜打完了 感觉普通模式能挨6-7 ...</blockquote>
+因为本来二周目才能开困难，前几天更新变成开局就能选。
+
