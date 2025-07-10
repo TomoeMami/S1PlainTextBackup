@@ -12018,3 +12018,15 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 铃铛杀艾斯提，战技带 ...</blockquote>
 无赖不用带铃铛，因为小艾可以投壶干掉。无赖的三大词条收益太大了，且这三个不会同石出现，所以基本无赖的构筑不用考虑带铃铛的方案。
 
+
+*****
+
+####  usodakedo  
+##### 1152#       发表于 2025-7-10 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68078510&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-7-10 18:47</a>
+无赖不用带铃铛，因为小艾可以投壶干掉。无赖的三大词条收益太大了，且这三个不会同石出现，所以基本无赖 ...</blockquote>
+其实也能用追踪者钩爪加大招速杀，这招是在阿祖直播间学的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
