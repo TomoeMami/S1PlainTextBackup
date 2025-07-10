@@ -259,3 +259,14 @@ mujica的海铃相比另外四个可以说最不疯。</blockquote>
 
 <img src="https://p.sda1.dev/25/b5ab0cff4fa243f3b78df91fac0daea2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1685#       发表于 2025-7-11 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68070393&amp;ptid=2201887" target="_blank">奥柏伦亲王 发表于 2025-7-9 11:54</a>
+
+你鲤鱼姐还是挺能干的，在日本当偶像挣工资，还能开公司运作当艺人积累的人脉过来演出 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是当年为了开静安体育馆，所以开了一家类似工作室载体的公司；去年已经基本分割了，不过有一说一EUPD，除了roselia在静安体育馆那场抽票抽象之外，感觉也还行
+
