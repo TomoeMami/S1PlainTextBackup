@@ -7680,3 +7680,16 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 2182#       发表于 2025-7-10 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68075196&amp;ptid=2071758" target="_blank">无念 发表于 2025-7-10 08:58</a>
+
+量产牛好歹能硬刷，捕获这种300体力扔进去不一定能听个响的
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅 ...</blockquote>
+飞翼量产牛44碎要手动刷150体力，捕获愿意手动取消的话花不了多少体力<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
