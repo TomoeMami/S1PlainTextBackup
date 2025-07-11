@@ -2233,3 +2233,13 @@ HIMEHINA 4th album 2575
 
 一觉醒来梨花氏也觉醒了，今年觉醒四个还全是ob，knm真调了吧
 
+
+*****
+
+####  usodakedo  
+##### 1388#       发表于 2025-7-11 12:45
+
+既然是特供版能让月撇也觉醒一下吗？我主要就是因为豆猫那有月撇才去看的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -40,3 +40,76 @@
 
 我永远喜欢小梦和白发毛妹
 
+
+*****
+
+####  JimmyJoker  
+##### 100#       发表于 2025-7-11 12:53
+
+ 本帖最后由 JimmyJoker 于 2025-7-11 12:54 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/11/120226ogywykfk0g2z9grk.jpg" referrerpolicy="no-referrer">
+
+<strong>2025071103172000_c.jpg</strong> (345.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 12:02 上传
+
+跟着视频教程的思路，终于把凪推上传说武道馆了！封盘！
+
+[https://www.youtube.com/watch?v=1_CMEVk5Qa4](https://www.youtube.com/watch?v=1_CMEVk5Qa4)
+
+大致的思路除了遵循#46楼的攻略……
+
+就是尽量在[第三年12月]~[第四年4月上]把培养力升到B，同时逐步把设施提到Lv.5
+
+第三年武道馆前卡着一个30~40千万的经费，选一两首高难度的曲子可以减少一些亏损。（曲子的难度似乎也会影响收入，难度越高收入越高）
+
+第四年开始时间优先花在和 “三期生” 交流，至少在[第五年1月下]前要有2人满好感觉醒。
+
+和满好感觉醒后和成员交流可以全能力+10，比设施升级来得快<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">。另外每一期生的 “第三年2月上” 前满好感的话可以拿到<strong>多个</strong>巧克力，每个全能力+5.
+
+此外第四年在资金在20万左右，就可以适当地开C4甚至C5级别的Live,<strong> 配合难度高的曲子能大量赚资金。</strong>
+
+另外在第四年结束最好也把设施升级到Lv.6，可以做点辅助。
+
+第五年所有时间都花在找人交流上<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+如果第四年有剩下没觉醒的成员需要尽快补上。至少在[第五年6月上]要全员觉醒。
+
+个人在第五年12月下时的状态大概是这样：
+
+<img src="https://stage1st.com/2b/forum.php?mod=image&amp;aid=1906578&amp;size=300x300&amp;key=865eda807698a23e&amp;nocache=yes&amp;type=fixnone&amp;ramdom=Zm2G2" id="aimg_IIBD2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://stage1st.com/2b/forum.php?mod=image&amp;aid=1906561&amp;size=300x300&amp;key=918a33153f0bf821&amp;nocache=yes&amp;type=fixnone&amp;ramdom=XdO0i" id="aimg_odwuD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+最后是有关武道馆的评价。
+
+大成功评价要有一个曲子达到传说级别，但传说评价必须要有4首曲子都是传说评价。所以三期生的武道馆只能最多选一首高难的曲子。<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+如果能够培养优化一些的话可以试试看选一些难度2星的曲子？
+
+当然，不管是大成功还是传说，实际上似乎除了最后的历史总结外没有任何影响
+
+虽然Live总结里写了安可但并没有实际演出<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">。
+
+大概就是这样，不知道接下来会不会有人挑战 “全队武道馆满员”了？
+
+2025071100492000_c.jpg
+(423.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 12:02 上传
+
+<img src="https://img.stage1st.com/forum/202507/11/120244blut2oyctt36yuc3.jpg" referrerpolicy="no-referrer">
+
+2025071112134600_c.jpg
+(485.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202507/11/123308ayau6yvcyczzqvac.jpg" referrerpolicy="no-referrer">
+
