@@ -252,3 +252,11 @@ darkangel牛鼻啊，这特瑞用得有点意思
 
 黑天使居然赢了，特瑞崛起<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  michaelakan  
+##### 418#       发表于 2025-7-12 03:40
+
+ET不容易，赛前突击练的比利也算是有结果了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
