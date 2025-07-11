@@ -736,3 +736,56 @@ BBA的枪已经饥渴难耐了<img src="https://static.stage1st.com/image/smiley
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">靠着羁绊石终于出紫发美少女了
 
+
+*****
+
+####  khxooo  
+##### 17044#       发表于 2025-7-11 17:21
+
+才注意到这次活动没有高难，还是说冠位战当高难了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17045#       发表于 2025-7-11 18:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 什么情况
+
+<img src="https://img.stage1st.com/forum/202507/11/185041i6njvc8j818o5zc8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (479.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-11 18:50 上传
+
+*****
+
+####  alucardcz  
+##### 17046#       发表于 2025-7-11 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68074947&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-10 08:00</a>
+
+靠着羁绊石终于出紫发美少女了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这就是欧皇吗
+
+*****
+
+####  qixinno2  
+##### 17047#       发表于 2025-7-11 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68084147&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-11 18:55</a>
+
+这就是欧皇吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗萌新出三个五星NEW我才出一个 算个屁欧皇
+
+*****
+
+####  alucardcz  
+##### 17048#       发表于 2025-7-11 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68084200&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-11 19:03</a>
+
+狗萌新出三个五星NEW我才出一个 算个屁欧皇</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">都是骗你的 其实没出
+
