@@ -491,3 +491,13 @@ Z没有一横是7，对应令和第7作？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  supermangunv4  
+##### 107#       发表于 2025-7-11 15:31
+
+<blockquote>windaria 发表于 2025-7-11 11:45
+据说是史上最大投入，目标全球市场，如果搞砸了，不敢想下一部会是啥样</blockquote>
+绝对会搞砸，玩具一看就不好玩
+
