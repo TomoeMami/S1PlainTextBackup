@@ -12256,3 +12256,18 @@ raven.rar
 过了曼恩以后放下手柄，发现手在抖，然后开始打红莲，两次就过了，心想就这？ ...</blockquote>
 我的话是红莲卡的久一点，觉得自己行不带格挡脊椎被教做人，曼恩死了几次就过了，但恶心程度还是曼恩更胜一筹
 
+
+*****
+
+####  RainbowSealife  
+##### 4023#       发表于 2025-7-11 21:20
+
+外太空超充磁轨炮轰击阿尔法孽奇拔，应该算是全流程最劲的一段了，单凭这段10分制怎么也得多加0.5分吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+<img src="https://images.steamusercontent.com/ugc/18165596909652297810/119674A24FB1B3AA9692BFCC184FBFF36CDF1AA9/" height="450" id="aimg_Vk2d3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/15610937619875175393/F8F06BB0E7B10308A5D538670E2DE3A0E6B5EFFA/" height="450" id="aimg_f0erU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/15161903702401150856/DCFE23C3F05CC9BBCD12CB34519CCB08DDD43E79/" height="450" id="aimg_aT93z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13738682436096127613/F3B912E1C09611A951279C8FD5351C19EEFF7F23/" height="450" id="aimg_UkRFl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/12617440509650338705/036E47497302B4555A6909715C3817F62325D26D/" height="450" id="aimg_F67F8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/17280566831785658628/97F7300A4933B5D454A7F835A997DBAFCFE45EA4/" height="450" id="aimg_TC8i8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/12360677150367868322/3EA9E6536DBAFD469C7811FF249375D668CDF3A1/" height="450" id="aimg_PwzPL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
