@@ -12106,3 +12106,14 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 【[个人存档用] [黑夜君临] 守护者单通历战王大嘴视频记录】 [https://www.bilibili.com/video/B ... b0cae78a0821943c021](https://www.bilibili.com/video/BV1RZuGzeEcs/?share_source=copy_web&amp;vd_source=f2ca73b2a45c7b0cae78a0821943c021)
 
+
+*****
+
+####  jacket  
+##### 1162#       发表于 2025-7-11 23:31
+
+隐城出金点位手册
+[https://www.bilibili.com/video/BV1YZuGzeEXo/](https://www.bilibili.com/video/BV1YZuGzeEXo/)
+
+可以记一下路上哪些光点值得顺手摸
+
