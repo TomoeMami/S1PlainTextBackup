@@ -12215,3 +12215,14 @@ raven.rar
 
 <img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">打了困难首领挑战，什么渡鸦红莲，不如曼恩一根，剧情里绝对是在装死
 
+
+*****
+
+####  洛克萨斯  
+##### 4019#       发表于 2025-7-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68081555&amp;ptid=1978008" target="_blank">弗林蒂萨 发表于 2025-7-11 11:17</a>
+
+打了困难首领挑战，什么渡鸦红莲，不如曼恩一根，剧情里绝对是在装死</blockquote>
+是吧，这人的技能是**阴险，瞬发子弹，烟雾弹，大宝剑，各种快慢刀
+
