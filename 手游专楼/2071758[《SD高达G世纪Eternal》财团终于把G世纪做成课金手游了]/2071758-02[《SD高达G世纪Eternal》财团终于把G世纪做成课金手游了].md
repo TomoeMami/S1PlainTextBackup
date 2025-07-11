@@ -7755,3 +7755,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 各种挖矿终于第70抽出了海牛，收手了。没出露娜，出了3条美琳船<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 2190#       发表于 2025-7-11 13:33
+
+挂自动到现在终于把命运海牛三星了，中间穿插骡鸭任务要量产牛绿鹦鹉，都要意识模糊了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
