@@ -260,3 +260,33 @@ darkangel牛鼻啊，这特瑞用得有点意思
 
 ET不容易，赛前突击练的比利也算是有结果了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  michaelakan  
+##### 419#       发表于 2025-7-12 04:09
+
+我靠，这特瑞输出全靠凹必杀，太搞了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MRSA  
+##### 420#       发表于 2025-7-12 04:12
+
+卧槽世界第一特瑞
+
+*****
+
+####  michaelakan  
+##### 421#       发表于 2025-7-12 04:12
+
+牛鼻牛鼻，太精彩了，金豆腐被打哭…………
+
+*****
+
+####  michaelakan  
+##### 422#       发表于 2025-7-12 04:15
+
+那个前冲必杀凹到了金豆腐真的是道心崩溃
+
