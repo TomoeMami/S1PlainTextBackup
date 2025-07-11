@@ -244,3 +244,11 @@ darkangel牛鼻啊，这特瑞用得有点意思
 
 惡夢傑斯和墜落ROCK現在能否使用?有沒隱藏條件?
 
+
+*****
+
+####  MRSA  
+##### 417#       发表于 2025-7-12 02:56
+
+黑天使居然赢了，特瑞崛起<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
