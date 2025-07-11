@@ -68,3 +68,11 @@
 
 我其实是希望redrop来画的，可惜不可能就是了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47186#       发表于 2025-7-11 09:16
+
+新白纸本一宝满破黑杯都伤害不够，又是一宝玩家不配玩的一天
+
