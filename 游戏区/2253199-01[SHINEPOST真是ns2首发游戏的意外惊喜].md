@@ -113,3 +113,20 @@
 
 <img src="https://img.stage1st.com/forum/202507/11/123308ayau6yvcyczzqvac.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  往生已逝  
+##### 101#       发表于 2025-7-11 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68082138&amp;ptid=2253199" target="_blank">JimmyJoker 发表于 2025-7-11 12:53</a>
+
+终于把凪推上武道馆传说了！封盘！</blockquote>
+谢谢你的执行力，让我知道了除了S+还有SS这种属性orz
+
+4首传说还是太难了，达成以后没有任何对应的回报直接删档太不人道了
+
+经济适用小工作室从没考虑过这么超前的目标orz
+
+只希望早日加入event和纵屏CG鉴赏模式
+

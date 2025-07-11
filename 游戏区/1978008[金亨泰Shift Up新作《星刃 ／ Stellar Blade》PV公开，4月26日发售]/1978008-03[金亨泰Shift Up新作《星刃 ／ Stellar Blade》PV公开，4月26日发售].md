@@ -12234,3 +12234,25 @@ raven.rar
 
 这游戏玩起来就像结婚多年交公粮
 
+
+*****
+
+####  弗林蒂萨  
+##### 4021#       发表于 2025-7-11 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68081643&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-11 11:27</a>
+
+是吧，这人的技能是**阴险，瞬发子弹，烟雾弹，大宝剑，各种快慢刀</blockquote>
+过了曼恩以后放下手柄，发现手在抖，然后开始打红莲，两次就过了，心想就这？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 4022#       发表于 2025-7-11 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68083388&amp;ptid=1978008" target="_blank">弗林蒂萨 发表于 2025-7-11 16:28</a>
+
+过了曼恩以后放下手柄，发现手在抖，然后开始打红莲，两次就过了，心想就这？ ...</blockquote>
+我的话是红莲卡的久一点，觉得自己行不带格挡脊椎被教做人，曼恩死了几次就过了，但恶心程度还是曼恩更胜一筹
+
