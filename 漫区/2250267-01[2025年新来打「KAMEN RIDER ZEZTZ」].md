@@ -303,3 +303,11 @@ ai生成背景然后用LED环幕拍摄，这套工作流如果能成形就终于
 zzz特工代号：7
 机车代号：0
 
+
+*****
+
+####  Piano-Forest  
+##### 89#         楼主| 发表于 2025-7-11 08:10
+
+特报PV2：[https://youtu.be/zPm3VESD61M](https://youtu.be/zPm3VESD61M)
+
