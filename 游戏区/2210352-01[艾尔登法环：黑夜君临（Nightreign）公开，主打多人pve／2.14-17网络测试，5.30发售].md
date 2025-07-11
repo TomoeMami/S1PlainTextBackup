@@ -12096,3 +12096,13 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 已知各种古龙武器和古龙祷告打大嘴有龙特攻同款打断，那么伤害上也有加成吗，能弥补大嘴对电伤的抗性吗
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1161#       发表于 2025-7-11 22:09
+
+感觉还是直接录视频比较容易解释思路。我个人还是觉得持续刮风的词条更好用就是了……
+
+【[个人存档用] [黑夜君临] 守护者单通历战王大嘴视频记录】 [https://www.bilibili.com/video/B ... b0cae78a0821943c021](https://www.bilibili.com/video/BV1RZuGzeEcs/?share_source=copy_web&amp;vd_source=f2ca73b2a45c7b0cae78a0821943c021)
+
