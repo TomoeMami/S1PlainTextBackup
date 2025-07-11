@@ -2243,3 +2243,11 @@ HIMEHINA 4th album 2575
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  若流水  
+##### 1389#       发表于 2025-7-11 16:57
+
+不要求觉醒，都特供版了给lize进一次甲吧，已经只剩最后一次机会了，不能真当训练赛之王吧<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
