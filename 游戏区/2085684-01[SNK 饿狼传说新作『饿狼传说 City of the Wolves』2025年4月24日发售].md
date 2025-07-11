@@ -217,3 +217,13 @@ xiaohai下一场几点啊 太晚的话就睡了</blockquote>
 
 这次大家练度都上来后，这两位立刻就不行了，真就纯机体性能差距
 
+
+*****
+
+####  风夏  
+##### 414#       发表于 2025-7-11 17:47
+
+阿伟罗角色更新了，以snk的节操，估计下个版本的瓦罗会很强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
