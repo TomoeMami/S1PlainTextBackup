@@ -137,3 +137,16 @@
 
 连吃两井直接抽干了半年多攒的石头
 
+
+*****
+
+####  电脑死机  
+##### 457#       发表于 2025-7-11 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68079792&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-7-10 23:41</a>
+
+88抽才出，想想再投个8抽补井算了
+
+连吃两井直接抽干了半年多攒的石头</blockquote>
+60连，两只，要了灵巧个体，把那只90心情的生命个体吃了，接下来就是安心刷沙洞了吧，顺便看看给武士搞装备
+

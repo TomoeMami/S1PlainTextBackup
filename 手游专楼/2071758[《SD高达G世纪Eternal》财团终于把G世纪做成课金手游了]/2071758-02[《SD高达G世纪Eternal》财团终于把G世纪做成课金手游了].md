@@ -7747,3 +7747,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">200抽7台脉冲，刷材料没麻这个毒池是真麻了
 
+
+*****
+
+####  閻魔愛  
+##### 2189#       发表于 2025-7-11 09:02
+
+各种挖矿终于第70抽出了海牛，收手了。没出露娜，出了3条美琳船<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
