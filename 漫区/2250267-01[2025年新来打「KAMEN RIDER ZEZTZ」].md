@@ -319,3 +319,11 @@ zzz特工代号：7
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幻视简秀吉
 
+
+*****
+
+####  Lupin7  
+##### 91#       发表于 2025-7-11 10:00
+
+要是有点小围巾就好了，围巾多帅啊
+
