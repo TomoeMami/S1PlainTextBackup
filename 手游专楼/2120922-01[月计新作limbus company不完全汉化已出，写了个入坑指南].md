@@ -16,3 +16,11 @@
 
 祝小金他妈像港漫版侠客行的梅芳姑一样身体强健长命百岁<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suikaMK2  
+##### 1149#       发表于 2025-7-11 14:11
+
+入坑一个月，想问一下新赛季镜牢，开放成就系统之前，数据能被记录到吗？
+
