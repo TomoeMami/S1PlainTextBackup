@@ -12321,3 +12321,19 @@ raven.rar
 外太空超充磁轨炮轰击阿尔法孽奇拔，应该算是全流程最劲的一段了，单凭这段10分制怎么也得多加0.5分吧 </blockquote>
 感觉这战才符合最终战。。相比最终boss简直毫无排面
 
+
+*****
+
+####  naclken.  
+##### 4027#       发表于 2025-7-12 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68087864&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-7-12 16:25</a>
+
+感觉这战才符合最终战。。相比最终boss简直毫无排面</blockquote>
+操纵机器人大战巨型孽奇拔最后一击打爆——的场面做不出来了。
+
+怎么办？
+
+随手一炮秒杀，机器人拿来当boss
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
