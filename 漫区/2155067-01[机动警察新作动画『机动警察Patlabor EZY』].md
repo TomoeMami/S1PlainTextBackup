@@ -1098,3 +1098,13 @@ IMG_6304.jpeg
 
 <img src="https://img.stage1st.com/forum/202507/12/055100ynx2rrqn8hnjrxlr.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 97#       发表于 2025-7-12 10:15
+
+8月好像有个展，刚好2-4号去看live，准备顺便去看看
+
+—— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
