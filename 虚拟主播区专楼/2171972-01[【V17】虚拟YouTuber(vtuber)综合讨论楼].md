@@ -2251,3 +2251,11 @@ HIMEHINA 4th album 2575
 
 不要求觉醒，都特供版了给lize进一次甲吧，已经只剩最后一次机会了，不能真当训练赛之王吧<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1390#       发表于 2025-7-12 08:03
+
+尊敬的konami：请问椎名唯华版的力量职棒什么时候发售？
+
