@@ -2259,3 +2259,11 @@ HIMEHINA 4th album 2575
 
 尊敬的konami：请问椎名唯华版的力量职棒什么时候发售？
 
+
+*****
+
+####  Ketestrait  
+##### 1391#       发表于 2025-7-12 17:44
+
+这西西版是在甲子园把电脑的连打模式调给玩家了是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

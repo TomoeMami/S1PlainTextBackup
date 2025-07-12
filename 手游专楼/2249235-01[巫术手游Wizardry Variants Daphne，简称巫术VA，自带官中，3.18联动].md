@@ -178,3 +178,11 @@
 
 抽到一只力个体收手，练到30丢给忍者一起去跑一个月练级派遣先<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 460#         楼主| 发表于 2025-7-12 17:38
+
+对低练菜鸡来说中间那几回合变数太多了XD 
+

@@ -12337,3 +12337,30 @@ raven.rar
 随手一炮秒杀，机器人拿来当boss
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mirari  
+##### 4028#       发表于 2025-7-12 17:35
+
+游戏里的截图工具，截图格式是jxr，保存为png时会过曝，有什么工具可以解决吗
+
+*****
+
+####  Andariel  
+##### 4029#       发表于 2025-7-12 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088085&amp;ptid=1978008" target="_blank">mirari 发表于 2025-7-12 17:35</a>
+游戏里的截图工具，截图格式是jxr，保存为png时会过曝，有什么工具可以解决吗 ...</blockquote>
+关掉hdr就行了吧
+
+*****
+
+####  mirari  
+##### 4030#       发表于 2025-7-12 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088088&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-12 17:37</a>
+
+关掉hdr就行了吧</blockquote>
+但是为了游戏效果，平时hdr肯定是常开的啊
+
