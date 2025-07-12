@@ -12271,3 +12271,27 @@ raven.rar
 <img src="https://images.steamusercontent.com/ugc/17280566831785658628/97F7300A4933B5D454A7F835A997DBAFCFE45EA4/" height="450" id="aimg_TC8i8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://images.steamusercontent.com/ugc/12360677150367868322/3EA9E6536DBAFD469C7811FF249375D668CDF3A1/" height="450" id="aimg_PwzPL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
+
+*****
+
+####  naclken.  
+##### 4024#       发表于 2025-7-12 15:27
+
+一周目通关。
+
+怎么没人告诉我牵手之后只要输了一次就没法再选结局了啊，这机器人数值这么高谁能一遍过啦<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+全程下来只有天意机器人感觉比较粪，主要是攻高血厚，融合之后的伊芙简直就像小鸡一样被它拿捏。
+
+然后补完了普通BOSS挑战，红莲之外最恶心的果然还是天意机器人，曼恩倒是没怎么卡。
+
+红莲简直是舍弃了这游戏所有优点的粪怪，开场没能量+疯狗连+药检+彩光连闪+霸体大招+检测式秒杀+反应时间极短……说来说去就是强制背板的粪怪。
+
+好在打完一阶段之后二阶段就是送的，直接变身迅驰开刮，刮完灌能量直到第二次检测式秒杀，打过就赢了。
+
+我还从中学会了一种蹭刀的方法，那就是砍几刀切枪秒射，最好是霰弹或者高爆弹<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+在高压boss模式下才能发现这游戏道具切换不方便，当你受伤不多、想要喝个缓慢回血的药剂的时候，你得切回去再切回来，这个过程中可能就死了，子弹切换也需要一点时间，很不方便。
+
+这种轮式选择并没有比魂游的十字键选择更好。
+
