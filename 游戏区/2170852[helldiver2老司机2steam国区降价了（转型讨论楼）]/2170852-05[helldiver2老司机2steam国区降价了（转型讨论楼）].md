@@ -140,3 +140,11 @@
 我现在已经放飞了，玩阴间配装乱死，反正基本都能做完任务的正在练怎么背着地狱火冲进去还能出来，场均死5 ...</blockquote>
 穿民主甲赌免死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 6788#       发表于 2025-7-13 01:29
+
+连续三局，两把游戏卡死一把撤离掉线，气笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

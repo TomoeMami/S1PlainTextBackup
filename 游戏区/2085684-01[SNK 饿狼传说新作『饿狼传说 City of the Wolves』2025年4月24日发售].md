@@ -350,3 +350,38 @@ ET不容易，赛前突击练的比利也算是有结果了<img src="https://sta
 
 还好调整得快，不过比利真的是有点被卡恩克制，如果下场是对分离器那就麻烦了
 
+
+*****
+
+####  hkguty  
+##### 430#       发表于 2025-7-13 01:31
+
+毕竟最近最熟练就是比利了，也不是没想到会这样选，现在回去用双叶萤估计也打不出EVO时的实力了
+
+
+*****
+
+####  cnmyster1ous  
+##### 431#       发表于 2025-7-13 01:36
+
+没玩过问一下 被迸以后能反迸的窗口大吗
+
+感觉他立回状态挺好的但是却一直吃迸 我看的解说说那个迸并不是确反
+
+*****
+
+####  michaelakan  
+##### 432#       发表于 2025-7-13 01:36
+
+抖音的都被抬了，还有哪有看直播的<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cnmyster1ous  
+##### 433#       发表于 2025-7-13 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089866&amp;ptid=2085684" target="_blank">michaelakan 发表于 2025-7-13 01:36</a>
+
+抖音的都被抬了，还有哪有看直播的</blockquote>
+快手有点点在解说
+
