@@ -270,3 +270,27 @@ mujica的海铃相比另外四个可以说最不疯。</blockquote>
 你鲤鱼姐还是挺能干的，在日本当偶像挣工资，还能开公司运作当艺人积累的人脉过来演出 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是当年为了开静安体育馆，所以开了一家类似工作室载体的公司；去年已经基本分割了，不过有一说一EUPD，除了roselia在静安体育馆那场抽票抽象之外，感觉也还行
 
+
+*****
+
+####  starring  
+##### 1686#       发表于 2025-7-12 19:59
+
+abc三人给pay今天的活动送了花篮，幕间映像还是和sayu一起拍的挑战活动
+
+歌单：
+浪漫てぃっく
+
+月曜日戦争（Cover)
+アリア
+7月1日
+
+自由への扉（ディズニー）(Cover)
+新時代(Cover)
+『Calc.』ジミーサムP(Cover)
+
+ねがいプロローグ（新歌，四单）
+<img src="https://p.sda1.dev/25/22ac1e235cc99f7f12039923b49d2174/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
