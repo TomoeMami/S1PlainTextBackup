@@ -120,3 +120,23 @@
 
 我现在已经放飞了，玩阴间配装乱死，反正基本都能做完任务的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">正在练怎么背着地狱火冲进去还能出来，场均死5把
 
+
+*****
+
+####  狭义文具爱好者  
+##### 6786#       发表于 2025-7-12 23:43
+
+有时候遇到新冻肉，只要不恶意tk还是挺有趣的。
+
+反而老登一降落四个方向单走没多久全清爽是爽但也有点无聊
+
+
+*****
+
+####  ykyin09  
+##### 6787#       发表于 2025-7-12 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088979&amp;ptid=2170852" target="_blank">qwased 发表于 2025-7-12 21:30</a>
+我现在已经放飞了，玩阴间配装乱死，反正基本都能做完任务的正在练怎么背着地狱火冲进去还能出来，场均死5 ...</blockquote>
+穿民主甲赌免死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
