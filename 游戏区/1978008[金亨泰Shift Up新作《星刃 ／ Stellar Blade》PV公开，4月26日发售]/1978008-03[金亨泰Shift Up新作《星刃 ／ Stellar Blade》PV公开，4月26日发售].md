@@ -12464,3 +12464,13 @@ https://www.bilibili.com/video ...</blockquote>
 属于最菜的boss。。。不要用魂游的思路打。。这游 ...</blockquote>
 不看伊芙惩戒BOSS的动画岂不是少玩5块钱的？<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 4039#       发表于 2025-7-12 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089123&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-12 22:00</a>
+不看伊芙惩戒BOSS的动画岂不是少玩5块钱的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">机器人和鸟体渡鸦都可以在射爆他的秒杀蓄力以后强制处决吧
+
