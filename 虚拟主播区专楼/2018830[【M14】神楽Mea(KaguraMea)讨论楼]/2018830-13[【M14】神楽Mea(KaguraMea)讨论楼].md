@@ -58803,3 +58803,18 @@ Usosousa桑谢谢打赏。
 各位...辛苦啦！  
 那晚安拜拜咯大家～  
 
+
+*****
+
+####  TiHaru  
+##### 19066#       发表于 2025-7-12 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68076892&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-10 13:38</a>
+
+50.36
+
+36605/36086</blockquote>
+49.81 破50了
+
+37470/37761
+
