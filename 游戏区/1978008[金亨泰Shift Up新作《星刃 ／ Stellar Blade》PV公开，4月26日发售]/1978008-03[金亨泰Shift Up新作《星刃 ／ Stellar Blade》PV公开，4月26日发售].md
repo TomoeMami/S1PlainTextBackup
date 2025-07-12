@@ -12389,3 +12389,17 @@ raven.rar
 全 ...</blockquote>
 机器人有1/3血是白送的, 所以其实也没那么厚. 就是看着吓人
 
+
+*****
+
+####  江戸前ルナ  
+##### 4033#       发表于 2025-7-12 19:06
+
+希雍的摇篮像家一样，亲人都在那里。先知，艾德姆：雀氏，就在楼下（雾）
+
+[https://www.bilibili.com/video/BV1Evu7zREBm](https://www.bilibili.com/video/BV1Evu7zREBm)
+
+这次这个UP探了几张连在一起的图，废土沙漠希翁矩阵卢瓦，卢瓦高层的情况很有意思，这么看来现在游戏里希翁特别是先知变得这么伟岸正估计是删减的结果了，不删的话估计就要在2里面来些补叙反转？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+PS：老是觉得这种探图方式很像山口山那堆做探图视频的，一点进UP投稿果然发现以前是玩山口山的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
