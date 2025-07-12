@@ -12240,3 +12240,16 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 顺便求问有没有S1黑夜君临群
 
+
+*****
+
+####  聊nsy专用号  
+##### 1172#       发表于 2025-7-13 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089762&amp;ptid=2210352" target="_blank">zhonghao 发表于 2025-7-13 00:42</a>
+
+刚才野排一把山羊，带队打到15级了，手里还有一杆维克矛
+
+结果13级哈基蜗选了艰难战斗BOSS金身开场，另一 ...</blockquote>
+还没找到专门聊黑环的群 建了一个1053818223
+
