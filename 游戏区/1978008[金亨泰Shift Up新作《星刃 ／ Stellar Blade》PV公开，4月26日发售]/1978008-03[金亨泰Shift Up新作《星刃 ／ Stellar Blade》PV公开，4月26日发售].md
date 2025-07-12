@@ -12451,3 +12451,16 @@ https://www.bilibili.com/video ...</blockquote>
 
 属于最菜的boss。。。不要用魂游的思路打。。这游戏其实比较类似仁王2.。直接把boss压死才是硬道理
 
+
+*****
+
+####  naclken.  
+##### 4038#       发表于 2025-7-12 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089034&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-7-12 21:43</a>
+
+方法不对。。手雷接剑气空挡  无缝倒地他根本没有机会动
+
+属于最菜的boss。。。不要用魂游的思路打。。这游 ...</blockquote>
+不看伊芙惩戒BOSS的动画岂不是少玩5块钱的？<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
