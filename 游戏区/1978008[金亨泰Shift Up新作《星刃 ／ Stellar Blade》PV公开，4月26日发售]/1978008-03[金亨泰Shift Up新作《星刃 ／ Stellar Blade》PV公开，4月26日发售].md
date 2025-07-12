@@ -12364,3 +12364,28 @@ raven.rar
 关掉hdr就行了吧</blockquote>
 但是为了游戏效果，平时hdr肯定是常开的啊
 
+
+*****
+
+####  Andariel  
+##### 4031#       发表于 2025-7-12 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088104&amp;ptid=1978008" target="_blank">mirari 发表于 2025-7-12 17:41</a>
+但是为了游戏效果，平时hdr肯定是常开的啊</blockquote>
+关掉游戏内的hdr就行
+拍照的时候相机可以单独关
+
+*****
+
+####  oyss  
+##### 4032#       发表于 2025-7-12 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68087653&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-12 15:27</a>
+
+一周目通关。
+
+怎么没人告诉我牵手之后只要输了一次就没法再选结局了啊，这机器人数值这么高谁能一遍过啦
+
+全 ...</blockquote>
+机器人有1/3血是白送的, 所以其实也没那么厚. 就是看着吓人
+
