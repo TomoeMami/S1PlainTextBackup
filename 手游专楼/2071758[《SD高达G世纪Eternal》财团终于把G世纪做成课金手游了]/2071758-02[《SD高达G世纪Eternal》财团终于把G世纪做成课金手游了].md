@@ -7781,3 +7781,15 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  arthes  
+##### 2193#       发表于 2025-7-12 16:03
+
+ 本帖最后由 arthes 于 2025-7-12 16:05 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我昨晚还差3个cca零件就够做最后一台α，机体材料全准备好了早上就被夏亚讨走了一台德卡
+
+刚上线莉茵直接讨了台恶魔高达。。。。。。
+
