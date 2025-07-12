@@ -7763,3 +7763,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 挂自动到现在终于把命运海牛三星了，中间穿插骡鸭任务要量产牛绿鹦鹉，都要意识模糊了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忧郁  
+##### 2191#       发表于 2025-7-12 15:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">绿鹦鹉需求量是不是太多了
+
