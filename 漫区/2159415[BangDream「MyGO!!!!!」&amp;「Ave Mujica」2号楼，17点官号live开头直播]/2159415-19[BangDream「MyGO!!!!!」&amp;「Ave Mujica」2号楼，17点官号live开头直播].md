@@ -193,3 +193,15 @@ mujica+sumimi只有一个是艺名
 梅奔说是上限1w8，但按426、27的编排怎么样都开不了四面台，三面台一万二三这样吧 ...</blockquote>
 梅奔原来有四面模式吗，还以为这种非体育馆的默认三面台
 
+
+*****
+
+####  堀内爱里衣  
+##### 27198#       发表于 2025-7-12 11:27
+
+       <img src="https://img.stage1st.com/forum/202507/12/112614q55dk5d56ddyd66o.jpg" referrerpolicy="no-referrer">
+
+       [https://t.bilibili.com/1088562899334463508](https://t.bilibili.com/1088562899334463508)
+
+       [https://bang-dream.com/events/mygo-avemujica2025_shanghai](https://bang-dream.com/events/mygo-avemujica2025_shanghai)
+
