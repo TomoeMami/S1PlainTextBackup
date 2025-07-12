@@ -2267,3 +2267,11 @@ HIMEHINA 4th album 2575
 
 这西西版是在甲子园把电脑的连打模式调给玩家了是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1392#       发表于 2025-7-12 18:09
+
+豆猫的特版本就是死活抽不出好卡是吧，连霸名门不如中坚，中坚不如普通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
