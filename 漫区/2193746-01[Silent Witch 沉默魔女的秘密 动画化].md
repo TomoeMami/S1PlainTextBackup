@@ -923,3 +923,11 @@ ps其实我更想看配角那个单片眼睛的外传，标准的穷小子起于
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以会计的终点就是坐牢吗
 
+
+*****
+
+####  血腥莓果  
+##### 73#       发表于 2025-7-12 11:22
+
+乙女味熏到我一个阿宅受不了了，虽然故意刻画了各种萌表情，但在我眼中女主也不如上一季的奈奈可爱，是我的问题吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
