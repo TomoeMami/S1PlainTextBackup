@@ -12223,3 +12223,20 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 感觉正常野排首日隐城的收益好像也一般般，就算拿到剑骸了队伍平均等级也只有14，没拿到的那局更是只有13级还不到。
 
+
+*****
+
+####  zhonghao  
+##### 1171#       发表于 2025-7-13 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68086069&amp;ptid=2210352" target="_blank">LeiaR 发表于 2025-7-12 08:09</a>
+
+问下大家，野人有乐趣吗？作为参考，所有魂类游戏我都不线上叫人的，PVP也是被入侵了硬着头皮打打。
+
+会因为 ...</blockquote>
+刚才野排一把山羊，带队打到15级了，手里还有一杆维克矛
+
+结果13级哈基蜗选了艰难战斗BOSS金身开场，另一个队友选择直接拔线，拼尽全力无法战胜
+
+顺便求问有没有S1黑夜君临群
+
