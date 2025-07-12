@@ -12310,3 +12310,14 @@ raven.rar
 全 ...</blockquote>
 喝药有前摇，拔枪有前摇，很烦
 
+
+*****
+
+####  alucardcz  
+##### 4026#       发表于 2025-7-12 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68084750&amp;ptid=1978008" target="_blank">RainbowSealife 发表于 2025-7-11 21:20</a>
+
+外太空超充磁轨炮轰击阿尔法孽奇拔，应该算是全流程最劲的一段了，单凭这段10分制怎么也得多加0.5分吧 </blockquote>
+感觉这战才符合最终战。。相比最终boss简直毫无排面
+
