@@ -12416,3 +12416,11 @@ PS：老是觉得这种探图方式很像山口山那堆做探图视频的，一
 https://www.bilibili.com/video ...</blockquote>
 谁说能打的就一个演员？人家高层底层门口那2个护法每个都收了我10来条命比大黑鸟多多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 4035#       发表于 2025-7-12 20:32
+
+希雍的地铁站彩虹屁卫兵,和酒吧那个,不知道战斗力如何.起码能在野外走动把,不摸boss.
+
