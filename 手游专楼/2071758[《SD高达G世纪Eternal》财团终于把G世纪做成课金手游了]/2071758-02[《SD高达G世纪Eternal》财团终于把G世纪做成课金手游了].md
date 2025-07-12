@@ -7811,3 +7811,17 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 国际服好像直接发了
 
+
+*****
+
+####  棍机凹升龙  
+##### 2196#       发表于 2025-7-13 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088634&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-7-12 20:13</a>
+日服高达打牌联动兑换码：GGETGCG  单抽券一张，聊胜于无
+
+国际服好像直接发了 ...</blockquote>
+没有，也是要自己兑这个码
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
