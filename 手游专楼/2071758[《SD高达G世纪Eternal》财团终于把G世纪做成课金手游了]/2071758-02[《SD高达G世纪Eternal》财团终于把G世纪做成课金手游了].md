@@ -7771,3 +7771,13 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">绿鹦鹉需求量是不是太多了
 
+
+*****
+
+####  jackyhuang  
+##### 2192#       发表于 2025-7-12 15:50
+
+个个张口就要精神力德卡，这下看到男人也体力清空了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

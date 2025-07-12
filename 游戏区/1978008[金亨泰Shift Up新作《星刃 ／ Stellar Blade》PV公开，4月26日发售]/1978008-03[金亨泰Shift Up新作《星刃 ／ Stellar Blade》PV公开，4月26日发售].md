@@ -12295,3 +12295,18 @@ raven.rar
 
 这种轮式选择并没有比魂游的十字键选择更好。
 
+
+*****
+
+####  洛克萨斯  
+##### 4025#       发表于 2025-7-12 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68087653&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-12 15:27</a>
+
+一周目通关。
+
+怎么没人告诉我牵手之后只要输了一次就没法再选结局了啊，这机器人数值这么高谁能一遍过啦
+
+全 ...</blockquote>
+喝药有前摇，拔枪有前摇，很烦
+
