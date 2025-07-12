@@ -12435,3 +12435,19 @@ https://www.bilibili.com/video ...</blockquote>
 机器人有1/3血是白送的, 所以其实也没那么厚. 就是看着吓人</blockquote>
 1/4，就算这样也够厚了。
 
+
+*****
+
+####  alucardcz  
+##### 4037#       发表于 2025-7-12 21:43
+
+ 本帖最后由 alucardcz 于 2025-7-12 21:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088810&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-12 20:58</a>
+
+1/4，就算这样也够厚了。
+
+好不容易弹反出了个处决，只打掉一丝丝血，还不如贝塔技能伤害高，就知道这数值 ...</blockquote>
+方法不对。。手雷接剑气空挡  无缝倒地他根本没有机会动
+
+属于最菜的boss。。。不要用魂游的思路打。。这游戏其实比较类似仁王2.。直接把boss压死才是硬道理
+
