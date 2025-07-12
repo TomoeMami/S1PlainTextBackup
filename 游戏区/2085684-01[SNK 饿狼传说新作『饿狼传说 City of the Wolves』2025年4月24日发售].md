@@ -584,3 +584,13 @@ ET不容易，赛前突击练的比利也算是有结果了<img src="https://sta
 
 逼出了对面的马克，值了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iserz  
+##### 460#       发表于 2025-7-13 02:32
+
+说实话君哥打暗天使可能比决赛难，哪怕决赛是GO1上马可，发挥不好是要翻车的。
+
+但特瑞这种版中还算是要规矩跟你按的角色对比利来说肯定比卡恩舒服。
+

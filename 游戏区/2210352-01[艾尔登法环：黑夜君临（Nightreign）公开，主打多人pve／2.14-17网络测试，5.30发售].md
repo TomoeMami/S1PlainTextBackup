@@ -12266,3 +12266,11 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  applebloom  
+##### 1174#       发表于 2025-7-13 02:35
+
+野排才玩的下去，就得是roll队友才好玩，熟练工单排组排都非常无聊
+
