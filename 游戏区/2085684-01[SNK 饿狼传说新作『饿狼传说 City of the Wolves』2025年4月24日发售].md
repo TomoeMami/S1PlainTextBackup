@@ -594,3 +594,56 @@ ET不容易，赛前突击练的比利也算是有结果了<img src="https://sta
 
 但特瑞这种版中还算是要规矩跟你按的角色对比利来说肯定比卡恩舒服。
 
+
+*****
+
+####  gzfantasy  
+##### 461#       发表于 2025-7-13 02:54
+
+<blockquote>iserz 发表于 2025-7-13 02:32
+说实话君哥打暗天使可能比决赛难，哪怕决赛是GO1上马可，发挥不好是要翻车的。
+
+但特瑞这种版中还算是要规矩 ...</blockquote>
+感觉mok能赢GO1
+
+*****
+
+####  风夏  
+##### 462#       发表于 2025-7-13 02:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肥肥先赢了da吧.... 他现在除了比利和双叶萤之外还有其他角色不
+
+*****
+
+####  iserz  
+##### 463#       发表于 2025-7-13 02:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089953&amp;ptid=2085684" target="_blank">gzfantasy 发表于 2025-7-13 02:54</a>
+
+感觉mok能赢GO1</blockquote>
+有点难，GO1的卡恩确实二手，但GO1靠人间性能的这个这个龟b打法MOK有点难打进去，卡恩控北斗丸距离很容易，而且前段SPG被卡恩摸到很轻松就掉了，如果是打分离器那种喜欢猛压的搞不好反而机会大点。
+
+但如果MOK真赢了GO1，君哥也进决赛，说实话感觉已经稳了。
+
+
+*****
+
+####  iserz  
+##### 464#       发表于 2025-7-13 03:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089957&amp;ptid=2085684" target="_blank">风夏 发表于 2025-7-13 02:56</a>
+
+肥肥先赢了da吧.... 他现在除了比利和双叶萤之外还有其他角色不</blockquote>
+打卡恩都不上双叶萤，应该是比利打到底了。
+
+小宝昨天直播也是说相信比利打到底，应该是之前对练的最终结论。
+
+*****
+
+####  傲慢的空想家X  
+##### 465#       发表于 2025-7-13 03:03
+
+太平衡了饿狼，我还以为四强就是卡比对决呢，居然还能凑出四个不同角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
