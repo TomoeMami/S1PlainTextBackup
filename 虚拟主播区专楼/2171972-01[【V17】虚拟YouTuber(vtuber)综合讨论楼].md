@@ -2275,3 +2275,11 @@ HIMEHINA 4th album 2575
 
 豆猫的特版本就是死活抽不出好卡是吧，连霸名门不如中坚，中坚不如普通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Harunoharu  
+##### 1393#       发表于 2025-7-12 20:58
+
+泽这练习赛打的，监督有属于自己的春甲
+

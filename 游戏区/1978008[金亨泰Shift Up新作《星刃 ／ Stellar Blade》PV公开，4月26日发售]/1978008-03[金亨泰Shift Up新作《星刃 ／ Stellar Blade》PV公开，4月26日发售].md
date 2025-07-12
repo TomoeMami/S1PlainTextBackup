@@ -12424,3 +12424,14 @@ https://www.bilibili.com/video ...</blockquote>
 
 希雍的地铁站彩虹屁卫兵,和酒吧那个,不知道战斗力如何.起码能在野外走动把,不摸boss.
 
+
+*****
+
+####  naclken.  
+##### 4036#       发表于 2025-7-12 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088152&amp;ptid=1978008" target="_blank">oyss 发表于 2025-7-12 17:55</a>
+
+机器人有1/3血是白送的, 所以其实也没那么厚. 就是看着吓人</blockquote>
+1/4，就算这样也够厚了。
+
