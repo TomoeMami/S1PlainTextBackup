@@ -12253,3 +12253,16 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 结果13级哈基蜗选了艰难战斗BOSS金身开场，另一 ...</blockquote>
 还没找到专门聊黑环的群 建了一个1053818223
 
+
+*****
+
+####  ohi.02  
+##### 1173#       发表于 2025-7-13 02:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68086143&amp;ptid=2210352" target="_blank">jy000129 发表于 2025-7-12 08:51</a>
+如果你习惯了加群组车队，那野排就纯纯的是负重训练了
+可能会遇到的事情不限于：队友XJB跑，你不跟着他就 ...</blockquote>
+昨天试过野排十级过了三阶段大嘴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

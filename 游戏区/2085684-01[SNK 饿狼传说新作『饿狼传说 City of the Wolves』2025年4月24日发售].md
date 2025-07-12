@@ -576,3 +576,11 @@ ET不容易，赛前突击练的比利也算是有结果了<img src="https://sta
 
 二手比利打二手卡恩拿分，一手北斗丸反而被防的没脾气，ET估计打无语了
 
+
+*****
+
+####  michaelakan  
+##### 459#       发表于 2025-7-13 02:24
+
+逼出了对面的马克，值了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
