@@ -12474,3 +12474,31 @@ https://www.bilibili.com/video ...</blockquote>
 不看伊芙惩戒BOSS的动画岂不是少玩5块钱的？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">机器人和鸟体渡鸦都可以在射爆他的秒杀蓄力以后强制处决吧
 
+
+*****
+
+####  江戸前ルナ  
+##### 4040#       发表于 2025-7-12 22:39
+
+那个视频下面UP主贴的
+
+<img src="https://img.stage1st.com/forum/202507/12/223808zci9iizeiriesy8y.png" referrerpolicy="no-referrer">
+
+<strong>5fe9dd75d2cabc12591c576099f77ab1123615.png</strong> (680.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-12 22:38 上传
+
+<img src="https://img.stage1st.com/forum/202507/12/223705fa9m4o7n4itai4ma.png" referrerpolicy="no-referrer">
+
+<strong>48173fbffa6a71ffca600074745977a7123615.png</strong> (845.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-12 22:37 上传
+
+UP主说，另外最后两个图片中的@唔*亚其实就是渡鸦，英文文本是@aven， 渡鸦是raven，身披黯影也表现出是孽奇拔形态的她
+
+虽然可能是删减前的痕迹，但渡鸦干先知就越发谜了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
