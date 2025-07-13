@@ -12400,3 +12400,16 @@ https://www.bilibili.com/video/BV1yoMDzRE3K/
 
 70小时没见过剑骸大剑也没见过队友用过，什么水平
 
+
+*****
+
+####  zhzij111  
+##### 1184#       发表于 2025-7-13 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68086069&amp;ptid=2210352" target="_blank">LeiaR 发表于 2025-7-12 08:09</a>
+问下大家，野人有乐趣吗？作为参考，所有魂类游戏我都不线上叫人的，PVP也是被入侵了硬着头皮打打。
+会因为 ...</blockquote>
+没开黑有乐趣，这游戏老外很多菜比，喜欢莫名其妙的逛街打小据点和雨中冒险，你不跟他们走还有概率触发生气拔线<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
