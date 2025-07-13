@@ -944,3 +944,20 @@ go1是不是当世格斗游戏第一人<img src="https://static.stage1st.com/ima
 
 go1，日本jwong罢了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 501#       发表于 2025-7-13 13:54
+
+go1听过没听过的FTG甚至火影鬼灭之刃都玩的
+
+*****
+
+####  タマネギ  
+##### 502#       发表于 2025-7-13 13:56
+
+<blockquote>GAdoru 发表于 2025-7-13 06:51
+卡恩这无责任一气是人能设计出来的</blockquote>
+snk嘛，97神乐布阵
+
