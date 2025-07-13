@@ -12274,3 +12274,17 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 野排才玩的下去，就得是roll队友才好玩，熟练工单排组排都非常无聊
 
+
+*****
+
+####  jy000129  
+##### 1175#       发表于 2025-7-13 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089937&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-7-13 02:17</a>
+昨天试过野排十级过了三阶段大嘴
+
+—— 来自 S1Fun</blockquote>
+这是很有技术了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
