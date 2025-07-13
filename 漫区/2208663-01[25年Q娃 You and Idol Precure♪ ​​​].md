@@ -48,3 +48,14 @@
 
 常驻编剧里是不是只有独角兽和山田由香能撑场子了……
 
+
+*****
+
+####  pokemon最爱  
+##### 1156#       发表于 2025-7-13 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68090106&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-7-13 07:45</a>
+
+什么啊，私底下去勾引小女孩给人家店里面添麻烦的人一副了不起的样子说别人偶像失格 ...</blockquote>
+给乌塔酱家店添麻烦关Cure Idol什么事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
