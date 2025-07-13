@@ -897,3 +897,11 @@ go1靠角色性能的二手凯恩差点翻车，还是得换回马克救场
 
 我觉得你要说决赛输在性能上，挺讽刺的
 
+
+*****
+
+####  keinl  
+##### 495#       发表于 2025-7-13 12:41
+
+前面都还能说的过去，但最后两灯特别是一气连发破防那段给我看笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
