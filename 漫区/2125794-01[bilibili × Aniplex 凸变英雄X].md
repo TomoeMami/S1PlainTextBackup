@@ -4964,3 +4964,19 @@ Screenshot_20250629-153137.png
 
 2025-7-13 19:39 上传
 
+
+*****
+
+####  补丁  
+##### 404#       发表于 2025-7-13 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68092300&amp;ptid=2125794" target="_blank">萝卜迷 发表于 2025-7-13 19:00</a>
+
+看到张磊在微博发分镜稿
+
+到底他是导演还是编剧？</blockquote>
+他知乎的回答
+[https://www.zhihu.com/question/1 ... 1893105665758692622](https://www.zhihu.com/question/15634897648/answer/1893105665758692622)
+
+大家好，我是张磊，在《凸变英雄X》项目中负责世界观设计、前期美术概念设计、部分剧集的编剧、分镜（奈斯篇、默杀篇第一集、？？？？篇、X篇以及最早的X篇PV）等工作。
+
