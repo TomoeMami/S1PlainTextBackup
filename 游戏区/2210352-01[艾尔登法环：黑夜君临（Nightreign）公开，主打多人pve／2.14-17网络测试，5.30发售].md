@@ -12379,3 +12379,16 @@ https://www.bilibili.com/video/BV1yoMDzRE3K/
 
 看圈合适继续收右边出城，不合适就铃铛起手削血跟龙人士兵拼命，争取做掉再出城。
 
+
+*****
+
+####  Steel.Haze  
+##### 1182#       发表于 2025-7-13 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68091507&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-13 14:49</a>
+
+开局右进要落地先杀怪找篝火升到2级再进城。
+
+我现在是开局直奔左边下水道，沿路挑顺手的小怪aoe战技收掉 ...</blockquote>
+这招不错，而且执行者这类不适合和灵庙耗时的也很适合这个路线。
+
