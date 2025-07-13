@@ -133,3 +133,11 @@
 
 这样看剧场版就一首新歌了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 往年剧场版还保底2首新歌呢
 
+
+*****
+
+####  MLP_102  
+##### 1162#       发表于 2025-7-13 23:29
+
+躲怪兽远攻一段挺好的，小紫趴在怪的武器（笔）上没看出来有什么用，靠体重限制使用武器吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
