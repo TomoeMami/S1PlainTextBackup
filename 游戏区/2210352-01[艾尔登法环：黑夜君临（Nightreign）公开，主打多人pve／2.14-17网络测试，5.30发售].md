@@ -12300,3 +12300,32 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 我自己对隐城不算熟，只知道左右 ...</blockquote>
 首日隐城还是组排方便，我和朋友玩都会带领铃铛或者铁眼大招打死艾斯提，提款两万魂一般就发育正常了。组排沟通武器分配也方便，出了剑骸也可以大家第一天就去复制，宁愿死在毒里
 
+
+*****
+
+####  松风君  
+##### 1177#       发表于 2025-7-13 11:42
+
+ 本帖最后由 松风君 于 2025-7-13 04:44 编辑 
+
+从发售开始打随机匹配，偶尔跟朋友组队玩，野队胜率确实只有3-4成，通过率最低的体感还是历战大嘴
+
+不过三连胜奖杯也是开荒时人马-羊头-冰龙野队打过去的，发售那阵队友很多确实靠谱且身怀绝技
+
+看了帖打开圆桌的小本本，单场部分显示救援36次
+
+印象最深的单场Boss战救援是历战虫子（发消息给我让我帮他们一人复制4个徘徊赐福的阿拉伯语铁眼x2）一共救援了18次打了半个小时最后过了
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  luodang007  
+##### 1178#       发表于 2025-7-13 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68089937&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-7-13 02:17</a>
+
+昨天试过野排十级过了三阶段大嘴
+
+—— 来自 S1Fun</blockquote>
+大佬们都太强了，羡慕。我和朋友20多个小时打到现在就过了4个boss<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，话说fs能不能把练习场里boss调出来练习下呀，不熟悉boss招式，没法练太憋屈了
+
