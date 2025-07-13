@@ -1359,3 +1359,13 @@ nico达到单话最高纪录
 
 太有活了这集，感觉比Q娃好看<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 131#       发表于 2025-7-13 19:57
+
+角色歌2 9月17日发售
+
+不知道是否还有追加了 现在登场的配角很多 从声优看都不可能 水萌姬友又是小日向位
+
