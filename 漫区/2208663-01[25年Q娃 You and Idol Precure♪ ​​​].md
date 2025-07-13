@@ -85,3 +85,17 @@
 
 现在集数都一半了也没看出来小歌对当偶像有什么积极性 一开始就是噗哩伦擅自上传视频的 后面接广告 卖cd什么的也基本都是别人提出快 小歌答应 这集也是粉丝要签名了才想起来是不是得设计个
 
+
+*****
+
+####  leleq  
+##### 1160#       发表于 2025-7-13 18:17
+
+凯特的出场真的太好猜了，最开始出场几集骗人看，暑假单元回漏几回脸，最后大决战前在漏回脸太典了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+反派打工人天天加班1V5真惨啊（都暑假了还不加干部不会初始3人打到结束把）
+
+成年偶像私联初中生粉丝是吧小心给文春炮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本集打戏意外的还不错
+

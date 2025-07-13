@@ -11,3 +11,17 @@
 未 ...</blockquote>
 这片真是让我有点想起了03年 旧版奇诺，星空清理者，废弃公主的单元剧时候那种群星璀璨的感觉<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 734#       发表于 2025-7-13 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68075031&amp;ptid=2196984" target="_blank">有钱多买小人 发表于 2025-7-10 08:27</a>
+说起来这两部个连一起还真不违和。
+
+https://x.com/moromo1996/status/1942941305967145214?s=19</blockquote>
+未曾料想的道路
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
