@@ -12435,3 +12435,15 @@ https://www.bilibili.com/video/BV1yoMDzRE3K/
 会因为 ...</blockquote>
 我一直野排玩到现在，出历战之前胜率不高，现在大概50%，无sl十几连胜。这游戏组排想赢太简单太公式了反倒有点无聊，野排玩的就是一手抽队友，反正我一直开着歌单玩，这样遇到神人队友也挺无所谓了，如果带飞了或者碰见几个老ass也是很爽的
 
+
+*****
+
+####  modkingr  
+##### 1187#       发表于 2025-7-14 03:40
+
+守护攻略迭代出了个更牛逼更全面更透彻的，推荐一下
+
+[https://www.bilibili.com/video/B ... 25533e4d06a002d32ec](https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id_from=333.788.recommend_more_video.0&amp;vd_source=44357ce1970bf25533e4d06a002d32ec)
+
+比我随便做做的那个质量高多了，，
+
