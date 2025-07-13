@@ -59,3 +59,21 @@
 什么啊，私底下去勾引小女孩给人家店里面添麻烦的人一副了不起的样子说别人偶像失格 ...</blockquote>
 给乌塔酱家店添麻烦关Cure Idol什么事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  codezwei  
+##### 1157#       发表于 2025-7-13 11:10
+
+下集反派积劳成疾 急需偶像团体救助<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  codezwei  
+##### 1158#       发表于 2025-7-13 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68090106&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-7-13 07:45</a>
+
+什么啊，私底下去勾引小女孩给人家店里面添麻烦的人一副了不起的样子说别人偶像失格 ...</blockquote>
+这叫引流照顾后辈生意，怎么能说勾引这么难听呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
