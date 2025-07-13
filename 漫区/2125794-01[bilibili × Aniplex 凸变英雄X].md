@@ -4832,3 +4832,13 @@ Screenshot_20250629-153137.png
 
 目前为止最正常的一集，太难得了
 
+
+*****
+
+####  补丁  
+##### 397#       发表于 2025-7-13 13:01
+
+这集编剧有张磊，剧情终于正常了，问号篇还有他
+
+李豪凌能专心当导演吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
