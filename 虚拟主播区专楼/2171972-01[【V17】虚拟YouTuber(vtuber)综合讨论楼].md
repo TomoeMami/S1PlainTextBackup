@@ -2315,3 +2315,13 @@ HIMEHINA 4th album 2575
 
 三指叉还是太权威了，米兰有对左b对上老叶那一群左打也是迷之能投<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以knm还不速速把rrm的对左b还回来
 
+
+*****
+
+####  usodakedo  
+##### 1398#       发表于 2025-7-13 17:53
+
+正赛指叉投就是权威，叶养的德比已经是接近正赛答案的产物，而西西则拥有指叉阵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过看豆猫那chance打击阵，如果月撇再来个ah或者广角，那正赛也许有概率能突破指叉阵
+
