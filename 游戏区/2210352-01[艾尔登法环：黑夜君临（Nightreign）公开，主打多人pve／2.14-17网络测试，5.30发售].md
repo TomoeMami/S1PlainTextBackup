@@ -12288,3 +12288,15 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  慕兰  
+##### 1176#       发表于 2025-7-13 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088038&amp;ptid=2210352" target="_blank">serj005 发表于 2025-7-12 17:23</a>
+最近玩首日隐城的人也太多了吧，下午匹配4局人马，有3局都在打首日隐城。
+
+我自己对隐城不算熟，只知道左右 ...</blockquote>
+首日隐城还是组排方便，我和朋友玩都会带领铃铛或者铁眼大招打死艾斯提，提款两万魂一般就发育正常了。组排沟通武器分配也方便，出了剑骸也可以大家第一天就去复制，宁愿死在毒里
+
