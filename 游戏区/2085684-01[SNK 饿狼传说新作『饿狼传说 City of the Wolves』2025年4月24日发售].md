@@ -929,3 +929,18 @@ go1靠角色性能的二手凯恩差点翻车，还是得换回马克救场
 
 go1也算跨界格斗人才了，拿了好几个格斗游戏大冠，斗剧拿过mbaacc，叶子格斗冠军，evo拿过龙珠，这次饿狼算是赚翻了
 
+
+*****
+
+####  karastar  
+##### 499#       发表于 2025-7-13 13:30
+
+go1是不是当世格斗游戏第一人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 500#       发表于 2025-7-13 13:32
+
+go1，日本jwong罢了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
