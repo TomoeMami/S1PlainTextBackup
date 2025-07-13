@@ -961,3 +961,13 @@ go1听过没听过的FTG甚至火影鬼灭之刃都玩的
 卡恩这无责任一气是人能设计出来的</blockquote>
 snk嘛，97神乐布阵
 
+
+*****
+
+####  量产失败型  
+##### 503#       发表于 2025-7-13 15:48
+
+狼印里舅舅就是横着强压有气就配合TOP CD一口气干到破防的最上位强角了,并不意外<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说GO1的JD是真的准,好几次JD取消升龙一脚P康打一套
+
