@@ -12424,3 +12424,14 @@ https://www.bilibili.com/video/BV1yoMDzRE3K/
 还没找到专门聊黑环的群 建了一个1053818223</blockquote>
 老哥你这个群号是qq群吗
 
+
+*****
+
+####  Aeturnus  
+##### 1186#       发表于 2025-7-14 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68086069&amp;ptid=2210352" target="_blank">LeiaR 发表于 2025-7-12 08:09</a>
+问下大家，野人有乐趣吗？作为参考，所有魂类游戏我都不线上叫人的，PVP也是被入侵了硬着头皮打打。
+会因为 ...</blockquote>
+我一直野排玩到现在，出历战之前胜率不高，现在大概50%，无sl十几连胜。这游戏组排想赢太简单太公式了反倒有点无聊，野排玩的就是一手抽队友，反正我一直开着歌单玩，这样遇到神人队友也挺无所谓了，如果带飞了或者碰见几个老ass也是很爽的
+
