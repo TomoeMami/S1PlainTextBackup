@@ -12329,3 +12329,18 @@ https://www.youtube.com/watch?v=a3-hw95_uwE
 —— 来自 S1Fun</blockquote>
 大佬们都太强了，羡慕。我和朋友20多个小时打到现在就过了4个boss<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，话说fs能不能把练习场里boss调出来练习下呀，不熟悉boss招式，没法练太憋屈了
 
+
+*****
+
+####  ohi.02  
+##### 1179#       发表于 2025-7-13 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68090333&amp;ptid=2210352" target="_blank">jy000129 发表于 2025-7-13 09:21</a>
+这是很有技术了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+阵容是女爵（我）-🐌-无赖，扛着缩圈打艾丝缇，一个不小心被团灭了，然后复活在城门口，全员9级0魂，感觉不能比这还差了，结果打完大嘴还剩三瓶橙汁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+主要还是靠腐败吧，路上捡了个白的印记，没想到喷两口就挂上腐败了，队里无赖存活能力也挺强，就是哈基蜗动不动就躺地上（但是靠着野兽祷告输出也不低）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
