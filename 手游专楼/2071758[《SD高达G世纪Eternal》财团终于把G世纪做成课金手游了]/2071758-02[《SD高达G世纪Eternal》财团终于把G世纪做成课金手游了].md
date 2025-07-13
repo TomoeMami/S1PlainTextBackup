@@ -7825,3 +7825,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 —— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  AminGly  
+##### 2197#       发表于 2025-7-13 16:05
+
+扎古pvp直接可以无视了
+
