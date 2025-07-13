@@ -1069,3 +1069,17 @@ just defence看似和blocking是相近的系统但内核是相反的，哪怕一
 
 看了下，感觉对面对策齐全得很，好几个抓乱动和jd转gc应该都不是临场反应全是准备好的。
 
+
+*****
+
+####  orz100  
+##### 513#       发表于 2025-7-14 05:52
+
+【小孩负日本go1获得亚军，到底是什么原因？-哔哩哔哩】 https://b23.tv/GzTfskr
+<img src="https://p.sda1.dev/25/bd2a685f36dad88cab00eb49ca227c36/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/301196a2329c6d63912b238107428350/image.jpg" referrerpolicy="no-referrer">
+
+真是输得无话可说了，再叠加赛前调整平衡的操作，这次比赛小孩要是能夺冠那是真的逆天。<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
