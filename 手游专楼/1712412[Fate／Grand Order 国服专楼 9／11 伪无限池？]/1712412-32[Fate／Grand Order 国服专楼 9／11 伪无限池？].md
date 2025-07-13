@@ -76,3 +76,25 @@
 
 新白纸本一宝满破黑杯都伤害不够，又是一宝玩家不配玩的一天
 
+
+*****
+
+####  johnkamsar  
+##### 47187#       发表于 2025-7-13 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68080686&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-7-11 09:16</a>
+新白纸本一宝满破黑杯都伤害不够，又是一宝玩家不配玩的一天</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">飞哥特攻还不够吗….
+
+*****
+
+####  苍蓝之枪  
+##### 47188#       发表于 2025-7-13 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68090195&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2025-7-13 08:34</a>
+
+飞哥特攻还不够吗….</blockquote>
+带飞哥作业的好像都不是黑杯，他NP不够得礼装补
+
+那显然要吃宝具等级了
+
