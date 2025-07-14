@@ -7970,3 +7970,16 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rockroxas  
+##### 2211#       发表于 2025-7-14 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097307&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-7-14 17:06</a>
+
+不是，这次n难度不出稀有BOSS了吗？
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+出的，概率问题，上次第一天我刷完三个难度，之后票全部砸n才出隐藏
+
