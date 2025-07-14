@@ -203,3 +203,64 @@
 
 和新入坑朋友开n6，一次拉下来5个三足这对吗？
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6795#       发表于 2025-7-13 22:35
+
+是不是有手贱的带了定位混淆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ParadiseMartyr  
+##### 6796#       发表于 2025-7-13 23:04
+
+定位混淆不是正面buff么？减少遭遇战来的？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qwased  
+##### 6797#       发表于 2025-7-13 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68093353&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-7-13 23:04</a>
+定位混淆不是正面buff么？减少遭遇战来的？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+箭头代码写错了，作用变成增加敌人生成密度了
+
+*****
+
+####  ParadiseMartyr  
+##### 6798#       发表于 2025-7-13 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68093365&amp;ptid=2170852" target="_blank">qwased 发表于 2025-7-13 23:07</a>
+箭头代码写错了，作用变成增加敌人生成密度了</blockquote>
+逆天，不是，这玩意一直是错的么？
+这么长时间不改的么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qwased  
+##### 6799#       发表于 2025-7-13 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68093368&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-7-13 23:08</a>
+
+逆天，不是，这玩意一直是错的么？
+
+这么长时间不改的么</blockquote>
+可能和什么底层代码挂钩了一动这个就会让屎山崩塌<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 6800#       发表于 2025-7-14 08:11
+
+本来应该是无票者群的人口数全roll出三足了呗，解救人质开门之后就会猛刷巡逻队，再拉个烟同时出五台三足概率不高但是并不是不可能
+
