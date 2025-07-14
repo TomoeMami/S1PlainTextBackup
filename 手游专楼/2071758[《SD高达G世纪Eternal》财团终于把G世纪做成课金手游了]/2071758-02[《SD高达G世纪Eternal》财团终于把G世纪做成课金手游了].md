@@ -7923,3 +7923,21 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 当然想把体力用到刷 ...</blockquote>
 多谢那重置拿抽奖券了
 
+
+*****
+
+####  lighttt  
+##### 2206#       发表于 2025-7-14 16:30
+
+卡池里两个有点猛啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不是限定，不抽等歪了
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  chivalry  
+##### 2207#       发表于 2025-7-14 16:32
+
+10 连出了人棍哥，这次还送不送朋友费了
+
