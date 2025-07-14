@@ -12617,3 +12617,16 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1204#       发表于 2025-7-15 04:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68098881&amp;ptid=2210352" target="_blank">hirro 发表于 2025-7-14 23:27</a>
+
+我一直认为鸡哥4秒变7秒属于超强技能
+
+核心中的核心，鸡哥核心问题是要随机到那些3骷髅劈之类的局内词条，然 ...</blockquote>
+确保战戟和大盾能全紫色就算是发育还可以了，盾反强化之类的词条能有当然更好，能打爽一些，但摸不到也就那么打了。鹰哥主要是要玩明白强防，盾反，控精以及在这基础上保持输出节奏，核心整明白后发育差一点也还是能打的。
+
