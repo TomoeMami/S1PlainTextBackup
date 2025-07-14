@@ -12604,3 +12604,16 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 现在游戏环境已经彻底被司马白皮污染了，人菜不说还动不动就退队，明明数他倒地最多<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ohi.02  
+##### 1203#       发表于 2025-7-15 00:27
+
+ 本帖最后由 ohi.02 于 2025-7-15 00:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68095868&amp;ptid=2210352" target="_blank">在海岸 发表于 2025-7-14 12:40</a>
+最司马的双排白皮猪还是那种纯troll的，天胡局进夜王脱装备跑边缘跳舞看你挨打，就因为没跟他们在雨里打野 ...</blockquote>
+我有一次野排，有个队友自己瞎跑，第二天我们进城了他跑去左下角的营地，直到缩圈了他都还没清掉那个营地，第二晚BOSS打完后大家等级太低，我跟另一个队友扛着雨去清营地，中间被毒死了正准备回去捡魂的时候那家伙竟然按了开启，把我俩强制召回打夜王，最后我们两个一致同意原地挂机，等他倒了再上去打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
