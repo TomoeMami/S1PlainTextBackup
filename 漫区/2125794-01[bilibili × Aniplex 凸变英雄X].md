@@ -4980,3 +4980,19 @@ Screenshot_20250629-153137.png
 
 大家好，我是张磊，在《凸变英雄X》项目中负责世界观设计、前期美术概念设计、部分剧集的编剧、分镜（奈斯篇、默杀篇第一集、？？？？篇、X篇以及最早的X篇PV）等工作。
 
+
+*****
+
+####  新HGCG  
+##### 405#       发表于 2025-7-14 18:54
+
+OP里的这个就是阿生？
+
+<img src="https://img.stage1st.com/forum/202507/14/185401is1a1svpgwoywg8n.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (197.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 18:54 上传
+
