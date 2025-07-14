@@ -12596,3 +12596,11 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 核心中的核心，鸡哥核心问题是要随机到那些3骷髅劈之类的局内词条，然后不但要好的武器还要好的盾，其实很吃发育的
 
+
+*****
+
+####  thealoneer  
+##### 1202#       发表于 2025-7-14 23:57
+
+现在游戏环境已经彻底被司马白皮污染了，人菜不说还动不动就退队，明明数他倒地最多<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

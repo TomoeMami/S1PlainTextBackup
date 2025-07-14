@@ -60439,3 +60439,18 @@ Monsieur（先生）。Monsieur。  
 
 真退赛算了，自己难受观众看着也难受
 
+
+*****
+
+####  秋游刃  
+##### 19095#       发表于 2025-7-14 23:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">看不懂但是不安了
+
+*****
+
+####  术士q  
+##### 19096#       发表于 2025-7-14 23:57
+
+k4sen这把对面还选个波比，何意味<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
