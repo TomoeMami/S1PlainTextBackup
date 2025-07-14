@@ -12557,3 +12557,17 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 无赖第一天拿剑骸尴尬的一批，想叠buff就只能用一把特大磨到10级，之后还要再找一把特大剑配对，不如不用
 
+
+*****
+
+####  serj005  
+##### 1199#       发表于 2025-7-14 18:15
+
+ 本帖最后由 serj005 于 2025-7-14 18:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68095996&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-14 13:13</a>
+无赖第一天拿剑骸尴尬的一批，想叠buff就只能用一把特大磨到10级，之后还要再找一把特大剑配对，不如不用 ...</blockquote>
+没必要双特大剑吧，有剑骸就放到副手，纯叠数值主武器也够强了。
+成型之后拿剑骸共持当主武器也比其他武器双持跳劈强得多。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
