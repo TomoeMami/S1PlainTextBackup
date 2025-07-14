@@ -60462,3 +60462,11 @@ k4sen这把对面还选个波比，何意味<img src="https://static.stage1st.co
 
 天狗如今只能窝在楼里义愤填膺了，悲<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 19098#       发表于 2025-7-15 03:17
+
+不如说中下这种路都走不明白的要找个辅助背锅还能找谁呢，这个比赛现在讨论度最高的就是主播还有rmt那队（中单drama），这比赛就指望这两队炒热度了，主播不主动退出就只能继续折磨自己和观众了
+
