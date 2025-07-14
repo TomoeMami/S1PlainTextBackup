@@ -12978,3 +12978,16 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 为了拿那个组件我直接开风灵月影宗把炮台点了
 真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易到了也不给你开箱<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 4078#       发表于 2025-7-14 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097443&amp;ptid=1978008" target="_blank">ネロ 发表于 2025-7-14 17:30</a>
+
+为了拿那个组件我直接开风灵月影宗把炮台点了
+
+真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这关不是贴箱子躲激光吗 很简单啊 
+
