@@ -7858,3 +7858,19 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  夜之光  
+##### 2200#       发表于 2025-7-14 14:12
+
+这个76W血隐藏一次过膨胀有点过分，再过几月感觉活动BOSS都打不过了。
+
+
+*****
+
+####  chivalry  
+##### 2201#       发表于 2025-7-14 14:13
+
+人棍哥听的歌是真的难听，活该被打爆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
