@@ -12524,3 +12524,20 @@ PS5版就这点好
 
 单人第一天拿到剑骸马雷，除非第一天夜是无限刷小怪的boss，一般也就叠150层
 
+
+*****
+
+####  shyso  
+##### 1196#       发表于 2025-7-14 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68093980&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-7-14 03:40</a>
+
+守护攻略迭代出了个更牛逼更全面更透彻的，推荐一下
+
+https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
+这是鸡哥真爱了，就发过这一个视频质量就这么高
+
+但是看完我愈发感觉这鸡哥是没救了，没爱真玩不动
+
+别的职业是都是先手快速启动力大砖飞，互相配合起来是1+1&gt;2可以强力压制，鸡哥想打出效果必须要配合敌人节奏，和其他职业就很难尿到一个壶里，好玩是挺好玩的，玩好了有太刀哥soloboss的快感，但是上手难度高，爽快感比不过其他职业
+
