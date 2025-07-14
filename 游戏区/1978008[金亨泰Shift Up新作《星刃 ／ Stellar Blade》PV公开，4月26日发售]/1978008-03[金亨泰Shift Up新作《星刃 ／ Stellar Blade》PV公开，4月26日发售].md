@@ -12956,3 +12956,14 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 
 其他的我还有一些想法，比如设定xion其实就是恶魔城，随着剧情亚当是一次次忽悠eve探索了xion脚底下的基地，最终关又是在xion最深处发生啥的，我觉得下次有精力了再想了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 4076#       发表于 2025-7-14 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097125&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-14 16:37</a>
+
+好像不太通，渡鸦有在光盘里说自己是队长来着吧，如果eve是指机体性能最强，那tachy作为小队长，是不是也 ...</blockquote>
+感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力,并且上古孽奇拔选妃选的也是伊芙型.能说明的只有伊芙型是需要特殊对待的.
+
