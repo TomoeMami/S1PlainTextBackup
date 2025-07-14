@@ -13087,3 +13087,307 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 
 改是改了，基本不用，毕竟穿着比不穿更涩。
 
+
+*****
+
+####  amuro0093  
+##### 4083#       发表于 2025-7-14 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094921&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-7-14 10:23</a>
+
+都是单个服装的mod吧，得搜服装英文名字</blockquote>
+我去搜搜看
+
+*****
+
+####  蕾丝  
+##### 4084#       发表于 2025-7-14 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094911&amp;ptid=1978008" target="_blank">amuro0093 发表于 2025-7-14 10:21</a>
+
+反和谐MOD是哪个来着</blockquote>
+3dm有，直接百度就能搜到
+
+*****
+
+####  leonz79  
+##### 4085#       发表于 2025-7-14 10:31
+
+推荐尼尔2套服装组件DIY的mod，把裙子去了就行，应该是N网550和666
+
+*****
+
+####  你妈的为什么  
+##### 4086#       发表于 2025-7-14 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094787&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-14 10:01</a>
+
+希雍城里有个拍猫咪照片，门口有守卫，永远不让进去的地下设施是啥？</blockquote>
+大沙漠左下角的入口，后期去沙漠我都是直接传送这里，比找亚当方便
+
+*****
+
+####  永远的访客  
+##### 4087#       发表于 2025-7-14 11:57
+
+我记得xion到被炸为止还有几个路是看上去预留着进不去的，也可能是废案了
+
+进城右手有个下地下室的台阶，里面似乎是演出地点，可能和歌手有关，但对xion来说太奢侈了
+
+还有几处是铁栏封着，可能是给eve受袭支线用，结果简化成过场台词了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武蔵  
+##### 4088#       发表于 2025-7-14 15:05
+
+一周目打完缺了一个营地
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心灵的乳头  
+##### 4089#       发表于 2025-7-14 15:05
+
+我为什么拍不出这么好看的照<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202507/14/150612cmmzu8mcgtmgmzgm.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-07-14-150416-634.jpg.jpg</strong> (8.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 15:06 上传
+
+2025-07-14_150416_634.jpg
+(207.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 15:06 上传
+
+<img src="https://img.stage1st.com/forum/202507/14/150607xwdnzewgyw1q7idw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  渡边加奈子  
+##### 4090#       发表于 2025-7-14 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68093308&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-13 22:54</a>
+
+刚刚打完渡鸦，对付这疯婆娘死了大概10多次后果断2阶段改成先迅驰砍烂盾再用红槽炸再对拼死了就吃复活
+
+最 ...</blockquote>
+每次空降作战都会配属伊芙型机体,渡鸦也是伊芙型机体.按渡鸦话里意思,伊芙型是最强型号.
+
+渡鸦的人名就是连环谐音梗.写作raven(暗示不明孽奇拔真实身份),读作rave(影射渡鸦性格狂热).和伊芙的发音分别是reiv和iv代表身份关联性
+
+*****
+
+####  洛克萨斯  
+##### 4091#       发表于 2025-7-14 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096547&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-7-14 15:05</a>
+
+一周目打完缺了一个营地</blockquote>
+漏了哪个？一般全部舔图是不会漏的啊
+
+*****
+
+####  洛克萨斯  
+##### 4092#       发表于 2025-7-14 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094693&amp;ptid=1978008" target="_blank">ネロ 发表于 2025-7-14 09:44</a>
+
+一周目通关百合存活的两个结局，结果漏了个营地，难受
+
+本来以为沙漠是最重量级的
+
+结果高塔的两处炮台关卡更 ...</blockquote>
+我就是被高塔传送带搞丢了一个组件......烦死了
+
+*****
+
+####  mhss  
+##### 4093#       发表于 2025-7-14 15:58
+
+这游戏半途而止的废案太多了，那个沾血设备的支线真不如直接删掉还好一些。
+只能说都是为了收集衣服这叠醋包的饺子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只可惜官方没能把衣服模块化，不想装那些暴露mod只想改变部分裙装的腿部搭配。
+
+*****
+
+####  武蔵  
+##### 4094#       发表于 2025-7-14 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096814&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-14 15:48</a>
+漏了哪个？一般全部舔图是不会漏的啊</blockquote>
+不知道啊
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+反正二周目再跑一遍看看
+
+*****
+
+####  洛克萨斯  
+##### 4095#       发表于 2025-7-14 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096884&amp;ptid=1978008" target="_blank">武蔵 发表于 2025-7-14 16:03</a>
+
+不知道啊
+
+反正二周目再跑一遍看看</blockquote>
+一般比较容易漏就是沙漠管道上来那个？
+
+*****
+
+####  永远的访客  
+##### 4096#       发表于 2025-7-14 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096751&amp;ptid=1978008" target="_blank">渡边加奈子 发表于 2025-7-14 15:39</a>
+
+每次空降作战都会配属伊芙型机体,渡鸦也是伊芙型机体.按渡鸦话里意思,伊芙型是最强型号.
+
+渡鸦的人名就是 ...</blockquote>
+好像不太通，渡鸦有在光盘里说自己是队长来着吧，如果eve是指机体性能最强，那tachy作为小队长，是不是也应该是eve级？如果eve是指成长潜质最强，那raven又不应该送下来时就是队长
+
+另外，这个raven是不是也是她自己起的名字而已，欺负反正下来的人都连不上网了查不到以前的人员名单，其实她下来时也是被人叫eve的？<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相呗，水淹的商业区里的尸体都是raven干的却又是亚当帮着忽悠eve/百合去了解真相呗，还有母主到底又是啥时候决定派下一组人下来的，我觉得越想越觉得解释不全烧脑全是自讨苦吃<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+算了，还是想象一下最终战如何可以演出牌面更大些得了。我想的是不要在这个乌漆嘛黑的洞里玩摔跤了，可以设定为牵手时引发爆炸山洞局部塌方露出头顶星空，然后天意暴走eve为了不破坏圣地主动起飞拉到地表空地决战，这样的话打到一半啥母体新舰队都能在夜晚星空画出来了，孽奇拔也可以出场一些参加保卫家园的大混战（毕竟圣地就是孵化地），就像回到片头那个大场面，这样才对得起上一关宇宙那个boss战当最终战<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+其他的我还有一些想法，比如设定xion其实就是恶魔城，随着剧情亚当是一次次忽悠eve探索了xion脚底下的基地，最终关又是在xion最深处发生啥的，我觉得下次有精力了再想了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡边加奈子  
+##### 4097#       发表于 2025-7-14 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097125&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-7-14 16:37</a>
+
+好像不太通，渡鸦有在光盘里说自己是队长来着吧，如果eve是指机体性能最强，那tachy作为小队长，是不是也 ...</blockquote>
+感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力,并且上古孽奇拔选妃选的也是伊芙型.能说明的只有伊芙型是需要特殊对待的.
+
+*****
+
+####  ネロ  
+##### 4098#       发表于 2025-7-14 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096818&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-14 15:49</a>
+我就是被高塔传送带搞丢了一个组件......烦死了</blockquote>
+为了拿那个组件我直接开风灵月影宗把炮台点了
+真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易到了也不给你开箱<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4099#       发表于 2025-7-14 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097443&amp;ptid=1978008" target="_blank">ネロ 发表于 2025-7-14 17:30</a>
+
+为了拿那个组件我直接开风灵月影宗把炮台点了
+
+真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这关不是贴箱子躲激光吗 很简单啊 
+
+*****
+
+####  ネロ  
+##### 4100#       发表于 2025-7-14 17:45
+
+ 本帖最后由 ネロ 于 2025-7-14 17:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097493&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-7-14 17:40</a>
+这关不是贴箱子躲激光吗 很简单啊</blockquote>
+我是过了之后才发现漏了个组件
+回头绕回去拿就很恶心了
+这逼游戏到下一个场景不解除陷阱就很烦，第二个炮台关卡也是过了也一直运行，你想回去捡东西还是会被打
+
+*****
+
+####  永远的访客  
+##### 4101#       发表于 2025-7-14 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097201&amp;ptid=1978008" target="_blank">渡边加奈子 发表于 2025-7-14 16:50</a>
+
+感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力 ...</blockquote>
+道理我都懂，但我就是手贱脑闲想帮他设定上补补这个短板，要这个补上了或许能更上一层楼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4102#       发表于 2025-7-14 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096549&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-14 15:05</a>
+
+我为什么拍不出这么好看的照</blockquote>
+打枪关多找暗处，打五个光来回调，然后多用相框裁点竖图，基本都能拍出不错的。爱折腾的有些人还要安一个额外的骨架插件，常常几十分钟调一个动作
+
+还有和真正的人像摄影一样，这玩意默认修图的，有些特别炸裂的作品“PS微调”功不可没
+
+*****
+
+####  mirari  
+##### 4103#       发表于 2025-7-15 01:51
+
+顺便发下我用的mod
+
+功能性方面，我用的是：
+
+无人机扫描增强范围和持续时间
+[https://www.nexusmods.com/stellarblade/mods/802](https://www.nexusmods.com/stellarblade/mods/802)
+
+降低无人机扫描冷却时间
+[https://www.nexusmods.com/stellarblade/mods/633](https://www.nexusmods.com/stellarblade/mods/633)
+
+加快移动速度，我设置了120%
+[https://www.nexusmods.com/stellarblade/mods/492](https://www.nexusmods.com/stellarblade/mods/492)
+
+扩大完美防御判定
+[https://www.nexusmods.com/stellarblade/mods/232](https://www.nexusmods.com/stellarblade/mods/232)
+
+简化钓鱼
+[https://www.nexusmods.com/stellarblade/mods/320](https://www.nexusmods.com/stellarblade/mods/320)
+
+配合游戏设置菜单里的钓鱼按键简化，钓一条鱼只需要按3下，**简化流程，节约时间和保养手柄。
+
+增加弹药携带上限
+[https://www.nexusmods.com/stellarblade/mods/239](https://www.nexusmods.com/stellarblade/mods/239)
+
+再也不用担心射击解谜时掏不出枪了
+
+涩涩方面：
+
+移除大部分裙装的内裤，真空上阵
+[https://www.nexusmods.com/stellarblade/mods/1032](https://www.nexusmods.com/stellarblade/mods/1032)
+
+我最为推荐的就是这个mod，四秒钟休闲装这样的乖乖女造型，搭配起来反差明显
+
+其他单独服装修改就看个人喜好了。像烽火裙和寄叶非正式礼仪着装改了上身半透明，那完全就是情趣战斗服。
+
+烽火裙
+[https://www.nexusmods.com/stellarblade/mods/1098](https://www.nexusmods.com/stellarblade/mods/1098)
+
+寄叶非正式礼仪着装
+[https://www.nexusmods.com/stellarblade/mods/550](https://www.nexusmods.com/stellarblade/mods/550)
+
+需要手动选择修改项并安装
+
+爱丽丝的紧身衣，可以改成胸怀坦荡
+[https://www.nexusmods.com/stellarblade/mods/533](https://www.nexusmods.com/stellarblade/mods/533)
+
+皮肤衣改脱光光
+[https://www.nexusmods.com/stellarblade/mods/30](https://www.nexusmods.com/stellarblade/mods/30)
+
+或者
+[https://www.nexusmods.com/stellarblade/mods/740](https://www.nexusmods.com/stellarblade/mods/740)
+
+改是改了，基本不用，毕竟穿着比不穿更涩。
+
+*****
+
+####  snailium  
+##### 4104#       发表于 2025-7-15 05:46
+
+9999子弹那个是必备mod，加速多周目通关，节省时间，这游戏子弹射程非常远，清杂效率出奇的高。没子弹就去谒见堂门口或者卢瓦高层/底层的弹药机上补一下
+
+—— 来自 OnePlus CPH2451, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
