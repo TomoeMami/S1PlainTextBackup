@@ -12,3 +12,13 @@ Rock Paper Shotgun还拿到了提前评测权，看起来难度比Zachtronics有
 
 [https://www.rockpapershotgun.com/kaizen-a-factory-story-review](https://www.rockpapershotgun.com/kaizen-a-factory-story-review)
 
+
+*****
+
+####  strider_oy  
+##### 263#       发表于 2025-7-15 07:31
+
+这个kaizen感觉更像poly bridge 之类的
+
+— from samsung SM-S911U1, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
