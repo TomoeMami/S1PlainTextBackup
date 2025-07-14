@@ -13014,3 +13014,16 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力 ...</blockquote>
 道理我都懂，但我就是手贱脑闲想帮他设定上补补这个短板，要这个补上了或许能更上一层楼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4081#       发表于 2025-7-14 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096549&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-14 15:05</a>
+
+我为什么拍不出这么好看的照</blockquote>
+打枪关多找暗处，打五个光来回调，然后多用相框裁点竖图，基本都能拍出不错的。爱折腾的有些人还要安一个额外的骨架插件，常常几十分钟调一个动作
+
+还有和真正的人像摄影一样，这玩意默认修图的，有些特别炸裂的作品“PS微调”功不可没
+

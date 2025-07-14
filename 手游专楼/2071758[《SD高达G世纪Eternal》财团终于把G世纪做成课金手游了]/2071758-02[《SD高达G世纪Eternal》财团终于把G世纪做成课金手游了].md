@@ -7958,3 +7958,15 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acg_gyanc  
+##### 2210#       发表于 2025-7-14 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096372&amp;ptid=2071758" target="_blank">okey3m 发表于 2025-7-14 14:35</a>
+现在这个机制是不是不用奖章抽奖直接重置6次拿完奖励就行了？如果不缺狗粮的话 ...</blockquote>
+好像这种形式的池子刷狗粮的效率也不高，不如略过hard的样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
