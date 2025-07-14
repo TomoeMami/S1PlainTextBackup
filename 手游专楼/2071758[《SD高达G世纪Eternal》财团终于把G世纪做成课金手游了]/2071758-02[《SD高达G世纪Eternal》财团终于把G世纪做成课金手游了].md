@@ -7874,3 +7874,11 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 人棍哥听的歌是真的难听，活该被打爆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  okey3m  
+##### 2202#       发表于 2025-7-14 14:35
+
+现在这个机制是不是不用奖章抽奖直接重置6次拿完奖励就行了？如果不缺狗粮的话
+
