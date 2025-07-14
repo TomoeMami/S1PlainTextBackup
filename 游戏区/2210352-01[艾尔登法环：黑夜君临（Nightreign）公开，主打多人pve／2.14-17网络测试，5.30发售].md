@@ -12488,3 +12488,15 @@ PS5版就这点好
 70小时没见过剑骸大剑也没见过队友用过，什么水平</blockquote>
 我160小时了，也没见过
 
+
+*****
+
+####  jy000129  
+##### 1192#       发表于 2025-7-14 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094789&amp;ptid=2210352" target="_blank">斯普林菲尔德 发表于 2025-7-14 10:02</a>
+我160小时了，也没见过</blockquote>
+那你算运气很差了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

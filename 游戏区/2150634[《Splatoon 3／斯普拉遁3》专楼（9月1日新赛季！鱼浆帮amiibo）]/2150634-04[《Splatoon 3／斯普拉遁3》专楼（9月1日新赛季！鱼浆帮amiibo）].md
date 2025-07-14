@@ -21,3 +21,19 @@
 
 排位还是能先看看固定几个图的套路然后从占地——塔楼——蛤蜊——龙鱼，顺序来比较好。
 
+
+*****
+
+####  shirolin  
+##### 5750#       发表于 2025-7-14 10:37
+
+<img src="https://img.stage1st.com/forum/202507/14/103732jl22z2pl2oiroo7m.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250714-100226.png</strong> (801.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 10:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
