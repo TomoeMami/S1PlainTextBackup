@@ -1369,3 +1369,11 @@ nico达到单话最高纪录
 
 不知道是否还有追加了 现在登场的配角很多 从声优看都不可能 水萌姬友又是小日向位
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 132#       发表于 2025-7-14 09:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明大家都喜欢反差
+
