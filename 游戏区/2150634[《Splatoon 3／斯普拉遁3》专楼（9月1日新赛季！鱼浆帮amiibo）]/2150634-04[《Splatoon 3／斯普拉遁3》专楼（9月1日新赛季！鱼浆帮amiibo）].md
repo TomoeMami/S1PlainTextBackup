@@ -60,3 +60,11 @@
 
 天空打的确实好难，被精准控分在了20-19。打完下线。
 
+
+*****
+
+####  liuguokobe  
+##### 5754#       发表于 2025-7-14 14:17
+
+趁着入手了ns2和大更新后回坑。结果和楼上一样被人吊起来当狗杀。不过三色模式倒是打的挺好，攒好大招之后去中间偷信标。可惜三色模式不能常住<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
