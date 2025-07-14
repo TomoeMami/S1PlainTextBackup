@@ -12465,3 +12465,26 @@ https://www.bilibili.com/video/BV1yoMDzRE3K/
 
 尤其是双排的那种，你标他们不跟，你跟他们不标，打完看一眼个人主页还是情侣头像，我还以为我在打FF14碰到CP组排了呢
 
+
+*****
+
+####  雲夢淵澤  
+##### 1190#       发表于 2025-7-14 09:55
+
+PS5版就这点好
+
+把跨区域联机一关
+
+早起排到的全是pro哥
+
+
+*****
+
+####  斯普林菲尔德  
+##### 1191#       发表于 2025-7-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68092060&amp;ptid=2210352" target="_blank">桥洞底下盖小被 发表于 2025-7-13 17:59</a>
+
+70小时没见过剑骸大剑也没见过队友用过，什么水平</blockquote>
+我160小时了，也没见过
+

@@ -130,3 +130,37 @@
 
 只希望早日加入event和纵屏CG鉴赏模式
 
+
+*****
+
+####  往生已逝  
+##### 102#       发表于 2025-7-14 10:00
+
+武道馆传说完美六边形偶像 生天目 春 爆诞！
+
+（出处：[https://x.com/Wahoo_Waffle/status/1944389812036702568](https://x.com/Wahoo_Waffle/status/1944389812036702568)）
+
+<img src="https://img.stage1st.com/forum/202507/14/100012eg4ahstwlsvg5blm.jpg" referrerpolicy="no-referrer">
+
+<strong>haru1.jpg</strong> (306.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 10:00 上传
+
+<img src="https://img.stage1st.com/forum/202507/14/100013sihzsg0t6s05ixzh.jpg" referrerpolicy="no-referrer">
+
+<strong>haru2.jpg</strong> (376.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 10:00 上传
+
+<img src="https://img.stage1st.com/forum/202507/14/100013gd9zto6vez0ebkz2.jpg" referrerpolicy="no-referrer">
+
+<strong>haru3.jpg</strong> (303.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 10:00 上传
+
