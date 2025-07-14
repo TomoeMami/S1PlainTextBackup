@@ -264,3 +264,58 @@
 
 本来应该是无票者群的人口数全roll出三足了呗，解救人质开门之后就会猛刷巡逻队，再拉个烟同时出五台三足概率不高但是并不是不可能
 
+
+*****
+
+####  qwased  
+##### 6801#       发表于 2025-7-14 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094243&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-7-14 08:11</a>
+本来应该是无票者群的人口数全roll出三足了呗，解救人质开门之后就会猛刷巡逻队，再拉个烟同时出五台三足概 ...</blockquote>
+三足削了血量之后随便打几下就死了，感觉定位从坦克变成无畏了
+
+*****
+
+####  xinfengj  
+##### 6802#       发表于 2025-7-14 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096910&amp;ptid=2170852" target="_blank">qwased 发表于 2025-7-14 16:06</a>
+
+三足削了血量之后随便打几下就死了，感觉定位从坦克变成无畏了</blockquote>
+问题是这玩应有个盾，带筒子的被拼好人追没空开盾，其他队友又没人帮一手的时候这玩应就把炮台什么的全拆光了
+
+*****
+
+####  qwased  
+##### 6803#       发表于 2025-7-14 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097243&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-7-14 16:57</a>
+问题是这玩应有个盾，带筒子的被拼好人追没空开盾，其他队友又没人帮一手的时候这玩应就把炮台什么的全拆 ...</blockquote>
+之前能带重复战备的时候两台加特林一起射能秒掉三足，有点迷
+
+*****
+
+####  xinfengj  
+##### 6804#       发表于 2025-7-14 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097286&amp;ptid=2170852" target="_blank">qwased 发表于 2025-7-14 17:04</a>
+
+之前能带重复战备的时候两台加特林一起射能秒掉三足，有点迷</blockquote>
+重机枪半个弹匣能打掉，加特林射速那么快...
+
+*****
+
+####  ykyin09  
+##### 6805#       发表于 2025-7-14 17:15
+
+中机枪打腿能把三足的腿打断
+
+*****
+
+####  qwased  
+##### 6806#       发表于 2025-7-14 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097298&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-7-14 17:05</a>
+重机枪半个弹匣能打掉，加特林射速那么快...</blockquote>
+如果只有一台就会全部跳弹打不死，估计还是靠散布蒙弱点
+

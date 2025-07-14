@@ -12967,3 +12967,14 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 好像不太通，渡鸦有在光盘里说自己是队长来着吧，如果eve是指机体性能最强，那tachy作为小队长，是不是也 ...</blockquote>
 感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力,并且上古孽奇拔选妃选的也是伊芙型.能说明的只有伊芙型是需要特殊对待的.
 
+
+*****
+
+####  ネロ  
+##### 4077#       发表于 2025-7-14 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68096818&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-7-14 15:49</a>
+我就是被高塔传送带搞丢了一个组件......烦死了</blockquote>
+为了拿那个组件我直接开风灵月影宗把炮台点了
+真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易到了也不给你开箱<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
