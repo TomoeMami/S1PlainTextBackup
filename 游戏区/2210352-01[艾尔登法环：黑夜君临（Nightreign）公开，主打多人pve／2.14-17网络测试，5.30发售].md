@@ -12571,3 +12571,18 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1200#       发表于 2025-7-14 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68095837&amp;ptid=2210352" target="_blank">shyso 发表于 2025-7-14 12:33</a>
+
+这是鸡哥真爱了，就发过这一个视频质量就这么高
+
+但是看完我愈发感觉这鸡哥是没救了，没爱真玩不动
+
+别的职 ...</blockquote>
+鹰哥启动速度也还行吧，刮风是强控，对各种小营地的敌人都是绝对压制，他主要问题是中后期打红名BOSS时就基本没有压制力了。单通用鹰哥打立回其实还是蛮爽的（ry）
+
