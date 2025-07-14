@@ -7941,3 +7941,20 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 
 10 连出了人棍哥，这次还送不送朋友费了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2208#       发表于 2025-7-14 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">hard3敌方援助会出来一个鸡瘟号，感觉有那么一点恶趣味
+
+*****
+
+####  jackyhuang  
+##### 2209#       发表于 2025-7-14 17:06
+
+不是，这次n难度不出稀有BOSS了吗？
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
