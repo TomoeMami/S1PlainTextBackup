@@ -12991,3 +12991,26 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 真的恶心人，碰到激光触发炮台直接给你算战斗中，好不容易 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这关不是贴箱子躲激光吗 很简单啊 
 
+
+*****
+
+####  ネロ  
+##### 4079#       发表于 2025-7-14 17:45
+
+ 本帖最后由 ネロ 于 2025-7-14 17:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097493&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-7-14 17:40</a>
+这关不是贴箱子躲激光吗 很简单啊</blockquote>
+我是过了之后才发现漏了个组件
+回头绕回去拿就很恶心了
+这逼游戏到下一个场景不解除陷阱就很烦，第二个炮台关卡也是过了也一直运行，你想回去捡东西还是会被打
+
+*****
+
+####  永远的访客  
+##### 4080#       发表于 2025-7-14 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097201&amp;ptid=1978008" target="_blank">渡边加奈子 发表于 2025-7-14 16:50</a>
+
+感觉你想的太复杂了.这游戏本身并没有那么缜密的设定逻辑.能自洽的只有伊芙型是具有讨伐上古孽奇拔的潜力 ...</blockquote>
+道理我都懂，但我就是手贱脑闲想帮他设定上补补这个短板，要这个补上了或许能更上一层楼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
