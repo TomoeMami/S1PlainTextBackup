@@ -8003,3 +8003,15 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 
 HELL这钻还有点难拿..N和H难度难扫出，EX的扫出来之后硬得一匹，练度不够得好好带非物理输出和DEBUFF手打
 
+
+*****
+
+####  okey3m  
+##### 2214#       发表于 2025-7-14 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097594&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-7-14 18:01</a>
+好像这种形式的池子刷狗粮的效率也不高，不如略过hard的样子
+
+—— 来自 S1Fun ...</blockquote>
+这次机制改了一下，以前补给券是放在一般报酬里面，经常要抽空奖池才抽到，现在放到关键报酬里面，抽完就可以重置了，省掉刷日常<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
