@@ -7983,3 +7983,23 @@ ex7打出第二波支援，感觉打不过，还是老实等攻略吧
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
 出的，概率问题，上次第一天我刷完三个难度，之后票全部砸n才出隐藏
 
+
+*****
+
+####  jackyhuang  
+##### 2212#       发表于 2025-7-14 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68097628&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-14 18:10</a>
+出的，概率问题，上次第一天我刷完三个难度，之后票全部砸n才出隐藏</blockquote>
+活动主线打完看看3000多张票，扫荡50多次点下去一次都没出<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  風卷豹  
+##### 2213#       发表于 2025-7-14 18:37
+
+HELL这钻还有点难拿..N和H难度难扫出，EX的扫出来之后硬得一匹，练度不够得好好带非物理输出和DEBUFF手打
+
