@@ -1083,3 +1083,13 @@ just defence看似和blocking是相近的系统但内核是相反的，哪怕一
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  syndrome2032  
+##### 514#       发表于 2025-7-14 07:52
+
+ 本帖最后由 syndrome2032 于 2025-7-14 07:53 编辑 
+
+ftg项目你日抱团研究好争冠军是行业传统了。铁拳街霸都是这样，是没啥好藏的。
+
