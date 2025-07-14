@@ -7833,3 +7833,28 @@ sp化后，威达和命运防御、血量什么的数据差不多。但命运射
 
 扎古pvp直接可以无视了
 
+
+*****
+
+####  dio999  
+##### 2198#       发表于 2025-7-14 12:20
+
+<img src="https://img.stage1st.com/forum/202507/14/122024fpbe8xpb2ae2kceb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9422.png</strong> (613.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-14 12:20 上传
+
+我太爱送的卷了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 2199#       发表于 2025-7-14 12:23
+
+射程4-12什么鬼<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

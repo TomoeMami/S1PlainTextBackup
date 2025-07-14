@@ -172,3 +172,15 @@
 
 记得前瞻的时候有人说是偶像版的马娘
 
+
+*****
+
+####  moonmagian  
+##### 104#         楼主| 发表于 2025-7-14 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68095608&amp;ptid=2253199" target="_blank">lonegone 发表于 2025-7-14 11:51</a>
+记得前瞻的时候有人说是偶像版的马娘</blockquote>
+说法不太准确，马娘那套玩法本来就是从荣冠模式照搬过来的，这套玩法konami做的早得多
+
+—— 来自 realme RMX3800, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
