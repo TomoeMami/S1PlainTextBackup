@@ -45,3 +45,16 @@ https://x.com/moromo1996/status/1942941305967145214?s=19</blockquote>
 
 这部片里的机器人设定又不是那种感情丰富的的生化机器人, 后面还要来一句"我想打篮球"似的情感输出...太尴尬了
 
+
+*****
+
+####  aptx8285144  
+##### 737#       发表于 2025-7-15 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68100098&amp;ptid=2196984" target="_blank">deenyao 发表于 2025-7-15 09:45</a>
+
+暂时补到第8话/9话, 八千代变坦克后暴走违和感爆棚
+
+这部片里的机器人设定又不是那种感情丰富的的生化机器 ...</blockquote>
+和客人们(包括嘭子一家)相遇多了，八千代的人性化早就偶尔时不时表露了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
