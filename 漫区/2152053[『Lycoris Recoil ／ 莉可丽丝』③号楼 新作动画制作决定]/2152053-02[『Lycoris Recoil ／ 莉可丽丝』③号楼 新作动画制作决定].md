@@ -54,3 +54,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我记得当初不是有个声优很喜欢绿毛吗？怎么没有绿毛的镜头？难道是我记错了？
 
+
+*****
+
+####  osore  
+##### 2371#       发表于 2025-7-15 16:10
+
+都是老中极端豚豚迫害<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
