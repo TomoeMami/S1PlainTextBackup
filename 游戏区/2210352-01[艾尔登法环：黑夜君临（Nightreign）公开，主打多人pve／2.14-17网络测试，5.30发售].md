@@ -12671,3 +12671,14 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 其实自己能试的时间很少，个人最想要一个不限时间的单人训练模式，可以到处走走自由发育，最后关底给一个对标15级难度比现在单人要难一点的BOSS，又能练手又能熟悉地形
 
+
+*****
+
+####  hirro  
+##### 1209#       发表于 2025-7-15 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68099975&amp;ptid=2210352" target="_blank">serj005 发表于 2025-7-15 09:23</a>
+
+武器相对好获得，正常打过强敌级别的boss基本都有紫色戟拿，盾牌就比较麻烦了，初始无战技大盾这么顺手的 ...</blockquote>
+主要有个麻烦地方其实是他的大招炸不开女神像，不然一次运气好就够2个石头
+
