@@ -156,3 +156,15 @@
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47196#       发表于 2025-7-16 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68104077&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2025-7-15 23:15</a>
+喷了，想抽泳装sr，梅柳齐娜出2宝了sr都没出
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+真是羡慕了，我抽水妖兰是反过来的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

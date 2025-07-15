@@ -1,0 +1,27 @@
+﻿
+*****
+
+####  xwr  
+##### 2354#       发表于 2025-7-3 03:56
+
+我看了新PV，100% PV欺诈吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，muv怎么成了这个样子
+
+*****
+
+####  若菜  
+##### 2355#       发表于 2025-7-3 14:27
+
+新的机设改动蛮怪的
+
+*****
+
+####  Sakaiyuki  
+##### 2356#       发表于 2025-7-16 01:19
+
+ 本帖最后由 Sakaiyuki 于 2025-7-16 01:22 编辑 
+
+<img src="https://p.sda1.dev/25/0ad829a57aaadd3b1255b031c14a926e/image.jpg" referrerpolicy="no-referrer">看起来好便宜的游戏…
+<img src="https://p.sda1.dev/25/34e152ef7baaed79fd8e6c38437f9e5a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
