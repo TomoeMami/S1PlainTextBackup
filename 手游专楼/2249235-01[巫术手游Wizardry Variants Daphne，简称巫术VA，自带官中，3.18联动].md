@@ -232,3 +232,21 @@
 
 唯一目前感觉比较遗憾的是，看了日堆，1级200攻也是打那么多伤害，感觉武士等级练上去伤害几乎没变化是个很迷的地方
 
+
+*****
+
+####  废柴失格  
+##### 464#       发表于 2025-7-15 12:23
+
+认识票换错了有办法换回低等级的不？
+
+<img src="https://img.stage1st.com/forum/202507/15/122111ljzz6n5s5cyy8suc.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (42.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-15 12:21 上传
+
+几十个票点错变成2个钢票了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
