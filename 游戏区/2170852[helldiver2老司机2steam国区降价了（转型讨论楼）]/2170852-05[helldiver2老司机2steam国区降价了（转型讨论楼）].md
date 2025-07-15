@@ -565,3 +565,59 @@ CQC-1 唯一真旗 (One True Flag)
 <img src="https://p.sda1.dev/25/66c734e4f7ccc40713f04aa10f5003aa/CMP_20250716021800572.jpg" referrerpolicy="no-referrer">
 老外怎么这么多吃饱撑了的
 
+
+*****
+
+####  FLZB  
+##### 6814#       发表于 2025-7-15 21:36
+
+新债卷看起来强度很高，AR直接爆制裁者金币，更狠更准更持久，又不得不让人想到当初箭头砍重炮手说被玩成狙不是他们的本意<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madcow  
+##### 6815#       发表于 2025-7-15 21:44
+
+ 本帖最后由 madcow 于 2025-7-15 23:36 编辑 
+
+蓝币大箭头又寄了
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">啊蕾娜语音也寄了
+
+*****
+
+####  unsh  
+##### 6816#       发表于 2025-7-15 23:32
+
+新债券看评价整体不太行啊。
+
+*****
+
+####  jy000129  
+##### 6817#       发表于 2025-7-16 00:47
+
+看了下还不错，闪现可以连闪，CD5秒；磁大鬼5弹夹每夹3发，4穿蓄力，时间不长伤害，应该和突击兵差不多；新实弹子弹多9弹夹，打虫新玩具了
+
+*****
+
+####  xinfengj  
+##### 6818#       发表于 2025-7-16 02:18
+
+ 本帖最后由 xinfengj 于 2025-7-16 02:39 编辑 
+
+<img src="https://p.sda1.dev/25/66c734e4f7ccc40713f04aa10f5003aa/CMP_20250716021800572.jpg" referrerpolicy="no-referrer">
+老外怎么这么多吃饱撑了的
+
+另外传送背包t0了，可以单人传进双开门吃蓝币，舔一级图蓝币再也不需要找人开双开门了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 6819#       发表于 2025-7-16 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68104633&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-7-16 02:18</a>
+老外怎么这么多吃饱撑了的</blockquote>
+艹，什么剑冢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
