@@ -556,3 +556,12 @@ CQC-1 唯一真旗 (One True Flag)
 
 电榴弹还“对敌人施加的眩晕值略有增加”，现在一发停不住强袭，而且眩晕时间貌似也变短了，货不对板反向buff这块箭头是专业的
 
+
+*****
+
+####  xinfengj  
+##### 6813#       发表于 2025-7-16 02:18
+
+<img src="https://p.sda1.dev/25/66c734e4f7ccc40713f04aa10f5003aa/CMP_20250716021800572.jpg" referrerpolicy="no-referrer">
+老外怎么这么多吃饱撑了的
+
