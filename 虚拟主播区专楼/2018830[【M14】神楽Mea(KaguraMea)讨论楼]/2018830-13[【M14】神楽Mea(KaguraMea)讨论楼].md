@@ -60702,3 +60702,13 @@ k4sen这把对面还选个波比，何意味<img src="https://static.stage1st.co
 
 mitti粉丝来冲锋了，这人在mitti直播间的发言甚至被人丢到过nlp语料平台上
 
+
+*****
+
+####  术士q  
+##### 19120#       发表于 2025-7-15 22:17
+
+突然发一大串我还以为独轮车呢，然后是不是在想搞行为艺术
+
+只能说好杀<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
