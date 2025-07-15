@@ -12690,3 +12690,14 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 啥时候能碰一次上中下死鸟山妖铃珠城的三倍役满种子
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1211#       发表于 2025-7-16 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68100248&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-15 10:11</a>
+
+啥时候能碰一次上中下死鸟山妖铃珠城的三倍役满种子</blockquote>
+最接近的一次，楼顶死鸟，中间山妖，就是最下层只是拉达冈，所以还没拉满。
+
