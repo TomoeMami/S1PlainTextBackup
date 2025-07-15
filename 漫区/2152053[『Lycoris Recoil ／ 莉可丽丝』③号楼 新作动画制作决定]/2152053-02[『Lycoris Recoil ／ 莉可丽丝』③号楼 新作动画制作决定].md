@@ -106,3 +106,14 @@
 你在说什么啊，千束不希望竞争吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冢中枯骨
 
+
+*****
+
+####  雷攻姛人  
+##### 2376#       发表于 2025-7-15 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68102418&amp;ptid=2152053" target="_blank">osore 发表于 2025-7-15 17:14</a>
+
+冢中枯骨</blockquote>
+就算最后会失败，也要拼一把，至少这颗心是真的<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
