@@ -515,3 +515,13 @@ LittleSurvival和cofedream为什么都需要信任后才能使用啊？因为要
 
 aidoku的testflight名额要刷新了
 
+
+*****
+
+####  kk霖洞九  
+##### 44#       发表于 2025-7-16 06:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68102633&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-7-15 17:52</a>
+手机要和PC在同一个网络，然后填pc的局域网ip</blockquote>
+谢谢回复，只不过后面才发现是Windows防火墙抽风关了自动就好了
+
