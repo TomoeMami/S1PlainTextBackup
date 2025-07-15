@@ -46,3 +46,11 @@
 
 我投的三个一个都没在上面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜游宫  
+##### 2370#       发表于 2025-7-15 15:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我记得当初不是有个声优很喜欢绿毛吗？怎么没有绿毛的镜头？难道是我记错了？
+
