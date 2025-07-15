@@ -488,3 +488,14 @@ LittleSurvival和cofedream为什么都需要信任后才能使用啊？因为要
 
 插个楼问一下PC上suwayomi的IP地址设置应该怎么填，我想手机端也能同步看所以IP填写的是内网192.168.x.x，结果PC上服务器就无法启动，改成默认0.0.0.0后倒是能正常启动但是手机上又找不到服务器
 
+
+*****
+
+####  azbhg1  
+##### 42#         楼主| 发表于 2025-7-15 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68102548&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-7-15 17:36</a>
+
+插个楼问一下PC上suwayomi的IP地址设置应该怎么填，我想手机端也能同步看所以IP填写的是内网192.168.x.x， ...</blockquote>
+手机要和PC在同一个网络，然后填pc的局域网ip
+
