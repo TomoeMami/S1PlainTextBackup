@@ -499,3 +499,19 @@ LittleSurvival和cofedream为什么都需要信任后才能使用啊？因为要
 插个楼问一下PC上suwayomi的IP地址设置应该怎么填，我想手机端也能同步看所以IP填写的是内网192.168.x.x， ...</blockquote>
 手机要和PC在同一个网络，然后填pc的局域网ip
 
+
+*****
+
+####  suika2  
+##### 43#       发表于 2025-7-16 00:35
+
+<img src="https://img.stage1st.com/forum/202507/16/003447q6kk0gbo06uuuffu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250716_003332.jpg</strong> (223.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-16 00:34 上传
+
+aidoku的testflight名额要刷新了
+
