@@ -166,3 +166,11 @@
 到底什么阵容能三t打这个?</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我知道有阵容能打1t！ 小太阳+bba  小太阳只需100+2000！
 
+
+*****
+
+####  yyzcacxg  
+##### 17066#       发表于 2025-7-16 19:22
+
+自觉滚去打前一个难度了，沙雕螺旋社，出的什么破本，没有完全体特攻单体和光炮打不了一点。
+
