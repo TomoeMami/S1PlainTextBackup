@@ -473,3 +473,42 @@ thx
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次刚开始打起来比较恶心但是树点起来以后好像还行，打手自出一个2宝100级布姐就能比较稳定7加成1T了
 
+
+*****
+
+####  lokiling  
+##### 17094#       发表于 2025-7-17 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110291&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-17 00:43</a>
+
+之前楼里有的枪阶礼装加成图谁存了的话能再发下不.....找不到了</blockquote>
+[https://img.stage1st.com/forum/2 ... 7z0obikw2d925j0.jpg](https://img.stage1st.com/forum/202506/25/091443v7z0obikw2d925j0.jpg)
+
+*****
+
+####  森兰丸  
+##### 17095#       发表于 2025-7-17 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110327&amp;ptid=2084912" target="_blank">lokiling 发表于 2025-7-17 00:58</a>
+
+https://img.stage1st.com/forum/202506/25/091443v7z0obikw2d925j0.jpg</blockquote>
+thx
+
+字数字数
+
+*****
+
+####  lokiling  
+##### 17096#       发表于 2025-7-17 04:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次刚开始打起来比较恶心但是树点起来以后好像还行，打手自出一个2宝100级布姐就能比较稳定7加成1T了
+
+*****
+
+####  壳壳牛  
+##### 17097#       发表于 2025-7-17 07:08
+
+刷助战太折磨了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
