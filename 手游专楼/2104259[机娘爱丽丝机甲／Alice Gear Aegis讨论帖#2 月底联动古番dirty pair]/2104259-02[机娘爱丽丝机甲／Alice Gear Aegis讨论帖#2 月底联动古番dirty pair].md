@@ -50,3 +50,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">欸，代币打一轮就给十来个吗，那个老虎机不会玩（
 
+
+*****
+
+####  冰风血羽  
+##### 1536#       发表于 2025-7-16 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109560&amp;ptid=2104259" target="_blank">madcow 发表于 2025-7-16 21:48</a>
+欸，代币打一轮就给十来个吗，那个老虎机不会玩（</blockquote>
+别玩……越玩越亏然后你会发现你换东西的代币都没了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
