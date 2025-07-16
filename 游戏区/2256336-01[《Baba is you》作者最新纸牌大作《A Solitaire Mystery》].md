@@ -522,3 +522,35 @@ fork 可能是目前 bug 最多的规则，可以等一等
 
 wordle最后靠不断重开赌开局出答案，然后不停undo，耍赖过了。
 
+
+*****
+
+####  jacket  
+##### 43#       发表于 2025-7-16 09:08
+
+streak啥意思，不会是连胜吧？
+
+*****
+
+####  lilod  
+##### 44#         楼主| 发表于 2025-7-16 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105161&amp;ptid=2256336" target="_blank">jacket 发表于 2025-7-16 09:08</a>
+streak啥意思，不会是连胜吧？</blockquote>
+对
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jacket  
+##### 45#       发表于 2025-7-16 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105189&amp;ptid=2256336" target="_blank">lilod 发表于 2025-7-16 09:11</a>
+
+对
+
+—— 来自 S1Fun</blockquote>
+全游戏2连胜臣妾做不到啊
+
