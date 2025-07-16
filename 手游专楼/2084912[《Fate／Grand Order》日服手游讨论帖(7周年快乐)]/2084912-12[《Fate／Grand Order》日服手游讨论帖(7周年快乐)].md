@@ -452,3 +452,16 @@ https://www.bilibili.com/video/BV1caubz4E9t/
 之前楼里有的枪阶礼装加成图谁存了的话能再发下不.....找不到了</blockquote>
 [https://img.stage1st.com/forum/2 ... 7z0obikw2d925j0.jpg](https://img.stage1st.com/forum/202506/25/091443v7z0obikw2d925j0.jpg)
 
+
+*****
+
+####  森兰丸  
+##### 17092#       发表于 2025-7-17 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110327&amp;ptid=2084912" target="_blank">lokiling 发表于 2025-7-17 00:58</a>
+
+https://img.stage1st.com/forum/202506/25/091443v7z0obikw2d925j0.jpg</blockquote>
+thx
+
+字数字数
+
