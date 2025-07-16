@@ -132,3 +132,11 @@ KMS可是童话边境的亲爹，你说xp正常
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">懂了，这是读完纯夏脑子之后出来的拟态
 
+
+*****
+
+####  创始’’’天翔  
+##### 2367#       发表于 2025-7-17 02:30
+
+我猎奇怪哪去了，muv一大魅力点不就是beta么
+
