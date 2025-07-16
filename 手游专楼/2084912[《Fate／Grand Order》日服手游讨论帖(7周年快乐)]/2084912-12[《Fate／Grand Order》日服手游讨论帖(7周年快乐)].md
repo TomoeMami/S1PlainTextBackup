@@ -174,3 +174,38 @@
 
 自觉滚去打前一个难度了，沙雕螺旋社，出的什么破本，没有完全体特攻单体和光炮打不了一点。
 
+
+*****
+
+####  大十字紅朔  
+##### 17067#       发表于 2025-7-16 19:32
+
+我用两宝福利多在打
+
+一把5、6个回合，翻车倒是没翻过
+
+*****
+
+####  qixinno2  
+##### 17068#       发表于 2025-7-16 19:33
+
+ 本帖最后由 qixinno2 于 2025-7-16 19:35 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">压力给到大佬的满配紫发美少女身上了
+
+<img src="https://img.stage1st.com/forum/202507/16/193317y70ex4eewa28h3a8.png" referrerpolicy="no-referrer">
+
+<strong>$L8_`D3RP0%J~FR0}NDWR9V.png</strong> (436.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-16 19:33 上传
+
+<img src="https://img.stage1st.com/forum/202507/16/193513pbm9e9jjmmbi99ji.png" referrerpolicy="no-referrer">
+
+<strong>ZIUN@L(23X}5ADYOSB074(Y.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-16 19:35 上传
+
