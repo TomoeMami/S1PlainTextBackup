@@ -209,3 +209,26 @@
 
 2025-7-16 19:35 上传
 
+
+*****
+
+####  希望之花  
+##### 17069#       发表于 2025-7-16 19:38
+
+冠位枪给了堂吉诃德，根本打不动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 17070#       发表于 2025-7-16 19:43
+
+百级三宝布姐极限伤害210W，动不动剩个血皮<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17071#       发表于 2025-7-16 19:44
+
+这个冠位枪的配置真的是太恶心了艹
+
