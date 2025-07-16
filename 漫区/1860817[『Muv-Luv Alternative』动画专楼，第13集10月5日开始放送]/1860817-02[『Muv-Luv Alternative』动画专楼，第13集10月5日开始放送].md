@@ -104,3 +104,18 @@ KMS可是童话边境的亲爹，你说xp正常
 
 另外刚感慨完日本人企划思路跟上来了，不像表界知道自己国力不行开始返祖回闹钟萌芽时期换皮年一游摆烂了，结果战斗界面连 BA 这种守门员都打不过<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  センコウ  
+##### 2365#       发表于 2025-7-17 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109804&amp;ptid=1860817" target="_blank">whzfjd 发表于 2025-7-16 22:39</a>
+
+玩家什么身份，怎么下得去迪奥的
+
+另外刚感慨完日本人企划思路跟上来了，不像表界知道自己国力不行开始返祖 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">战斗只是让卖相好一点点而已
+
+这破壁游戏是挂机游戏，带VIP等级，而且据之前解包抽到最高罕贵SSR能破7次还是八次一路LR1234到最后的UR
+
