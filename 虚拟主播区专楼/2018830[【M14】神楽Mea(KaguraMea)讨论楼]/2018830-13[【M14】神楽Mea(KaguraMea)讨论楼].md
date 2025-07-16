@@ -61157,3 +61157,13 @@ Youtube会开吗？  
 
 午前5:54 · 2025年7月16日</blockquote>
 
+
+*****
+
+####  sino__unnko3  
+##### 19126#       发表于 2025-7-16 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108148&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-16 16:52</a>
+删了两条推，楼友的bot没记录到？</blockquote>
+记录到了，但是q群上的文句不完全
+
