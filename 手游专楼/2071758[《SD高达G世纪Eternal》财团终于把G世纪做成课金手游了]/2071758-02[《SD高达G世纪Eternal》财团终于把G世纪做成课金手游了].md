@@ -8359,3 +8359,15 @@ https://www.bilibili.com/video/BV122uEzKEeo
 你的铁奥是ur还是ssr？盾只需要一台就够了， ...</blockquote>
 ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
+
+*****
+
+####  体制  
+##### 2245#       发表于 2025-7-16 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105520&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-16 09:55</a>
+1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp ...</blockquote>
+你这是一个ur支援机都没有啊？
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
