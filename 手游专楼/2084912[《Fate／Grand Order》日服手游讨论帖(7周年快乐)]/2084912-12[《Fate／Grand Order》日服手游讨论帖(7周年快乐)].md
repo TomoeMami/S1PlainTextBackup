@@ -356,3 +356,40 @@
 
 打3星本，只能选择先用小太阳+补刀的方式打掉一只小怪，然后2T再补刀第二个小怪+BBA的宝具。但凡我的小太阳满羁绊，配合黑杯绝对能1T，可惜没有满羁绊只能带NP礼装<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17083#       发表于 2025-7-16 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109342&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-7-16 21:00</a>
+
+打3星本，只能选择先用小太阳+补刀的方式打掉一只小怪，然后2T再补刀第二个小怪+BBA的宝具。但凡我的小太阳 ...</blockquote>
+[https://www.bilibili.com/video/BV1caubz4E9t/](https://www.bilibili.com/video/BV1caubz4E9t/)
+
+低配版稳定1t录像 双bba 只要你的bba能一枪秒了小怪就可以轻松复现<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17084#       发表于 2025-7-16 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109135&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-7-16 20:24</a>
+
+光炮和单体都要顶配...太折磨了...
+
+3宝bba伤害还是不够...</blockquote>
+录了个双bba稳定1t的录像 链接在楼上 你3宝bba能轻松做到<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17085#       发表于 2025-7-16 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109400&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-16 21:11</a>
+
+https://www.bilibili.com/video/BV1caubz4E9t/
+
+低配版稳定1t录像 双bba 只要你的bba能一枪秒了小怪就可 ...</blockquote>
+感谢，我后来试了一下，原来加个衣服的加攻就够了，可能点了树吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
