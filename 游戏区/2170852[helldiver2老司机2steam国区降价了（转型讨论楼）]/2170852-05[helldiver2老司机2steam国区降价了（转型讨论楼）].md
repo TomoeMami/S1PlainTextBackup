@@ -670,3 +670,15 @@ CQC-1 唯一真旗 (One True Flag)
 
 甲好像不太行
 
+
+*****
+
+####  unsh  
+##### 6826#       发表于 2025-7-16 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108012&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-7-16 16:28</a>
+好像都没看到过有人讨论西线电榴弹，玩了两把简直毁天灭地，除了炮艇几乎都能速杀（新双足没碰到不太清楚， ...</blockquote>
+这东西主要还是装弹太痛苦，只不过的确没在西线用过，可以试试<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+顺便想问问特斯拉和**打机器人能行吗，能就直接雷电法王一套了
+
