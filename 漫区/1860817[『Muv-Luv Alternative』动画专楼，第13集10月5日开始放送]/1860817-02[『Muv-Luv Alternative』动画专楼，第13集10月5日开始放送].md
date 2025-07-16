@@ -92,3 +92,15 @@ KMS可是童话边境的亲爹，你说xp正常
 没有什么战术机，这玩意叫MG（MAZE GUARDER），是用来采矿的，这群女学生就是下洞挖矿的黑奴，敌人是矿坑 ...</blockquote>
 所以女学生们才是beta！
 
+
+*****
+
+####  whzfjd  
+##### 2364#       发表于 2025-7-16 22:39
+
+ 本帖最后由 whzfjd 于 2025-7-16 22:41 编辑 
+
+玩家什么身份，怎么下得去迪奥的
+
+另外刚感慨完日本人企划思路跟上来了，不像表界知道自己国力不行开始返祖回闹钟萌芽时期换皮年一游摆烂了，结果战斗界面连 BA 这种守门员都打不过<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
