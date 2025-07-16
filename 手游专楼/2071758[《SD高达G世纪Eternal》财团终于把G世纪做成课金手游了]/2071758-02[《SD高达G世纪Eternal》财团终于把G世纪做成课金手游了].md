@@ -8344,3 +8344,18 @@ hard送的只有一台传说（
 
 机师尽量找二次援攻，3动或者能鼓气的去开地图炮，援防一次跟两次区别倒是不大
 
+
+*****
+
+####  电脑死机  
+##### 2244#       发表于 2025-7-16 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68106151&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-16 11:12</a>
+
+https://www.bilibili.com/video/BV122uEzKEeo
+
+可以参考这个
+
+你的铁奥是ur还是ssr？盾只需要一台就够了， ...</blockquote>
+ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
+
