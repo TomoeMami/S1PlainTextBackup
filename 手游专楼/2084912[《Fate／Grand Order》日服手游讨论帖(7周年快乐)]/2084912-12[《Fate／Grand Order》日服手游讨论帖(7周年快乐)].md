@@ -294,3 +294,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alucardcz  
+##### 17078#       发表于 2025-7-16 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109135&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-7-16 20:24</a>
+
+光炮和单体都要顶配...太折磨了...
+
+3宝bba伤害还是不够...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你如果有顶配好友的话 可以自己上bba 一枪秒了小怪 然后好友bba一枪秒了boss
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但好友必须顶配 不单单120 5宝 还得点满冠位盘和枪阶盘
+
