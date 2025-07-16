@@ -405,3 +405,13 @@ https://www.bilibili.com/video/BV1caubz4E9t/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 17087#       发表于 2025-7-16 21:35
+
+我还是选择刷倒数第2关...好友列表刷出大腿的时间都够我刷好几盘了
+
+反正也不差多少羁绊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
