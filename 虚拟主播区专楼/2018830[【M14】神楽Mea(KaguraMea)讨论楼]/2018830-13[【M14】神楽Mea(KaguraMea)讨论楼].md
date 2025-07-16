@@ -61871,3 +61871,70 @@ Out！自动屏蔽！  
 
 说是给性骚扰男道歉了，暂时没有观测到对方有对这件事做出回应
 
+
+*****
+
+####  术士q  
+##### 19141#       发表于 2025-7-16 23:24
+
+说起来昨天拉姆亲来找mea的时候好像语音还没结束，然后就和咩一起来打匹配了
+
+队伍里其他人还在语音聊有没有时间练习，mea闲着也是闲着，在打szb和等匹配
+
+ramu【1sen yaran?noma】（来一局吗?匹配）
+#估计是想当神秘小男友R
+mea【e】（诶）
+mea【haisin】（直播）
+mea【kesiteru】（要关掉吗）
+mea【ima】（现在）
+mea【tuiterukedo】（虽然说还开着）
+mea【kesitemoiiyo】（关掉也可以哦）
+ramu【a gomen】（啊，这样吗，抱歉）
+ramu【WWWWWWWWWWWW】（12个W）
+mea【e】（诶）
+mea【yaru】（来嘛）
+mea【?】
+mea【yaru!!!!!!!!!!】（来嘛!!!!!!!!!!）（十个感叹号）
+ramu【tuitetemo iiyo】（开着也没关系哦）
+ramu【mente dasi】（说起来维护了啊...）
+mea【wakatta!】（我知道辣!）
+mea【sou!】（就是说啊!）
+#立刻暂闭聊天框，拉开好友名单指向ramuchi，加队伍
+
+ramu【vc nasidemo ii】（虽然我还在语音，但是来吧）
+mea【e】（诶?）
+mea【nasigaii ttekoto?】（那样的话还是不要打...比较好?）
+mea【nasidemoiiyo】（不打的话也可以哦）
+
+#很快打出来了，本来想发然后删掉了，因为看到拉姆亲已经进房间了
+
+ramu【haisin iino?W】（你啊，直播的时候这样搞真的可以吗w）（应该也是看到mea打的那行字了）
+mea【e?】（诶?）
+mea【tuiterukedo】（虽然是开着啦....）
+mea【vc surunara】（不过ramu还在语音的话...）
+mea【kesitahougaiinara】（果然还是关直播比较好吧?）
+mea【kesu!】（我关!）
+ramu【naside】（开着）
+ramu【1sen】（打一局）
+ramu【kaisan】（就结束）
+ramu【go】（冲）
+mea【syun........】(唔......(略显失望，应该是因为只打一把)）
+mea【ok】（好吧）
+mea【suki】（喜欢）
+mea【kyoumo】（今天也）
+mea【ramuchi】（拉姆亲）
+mea【aisiteru】（爱着你）
+ramu【^^;】（^^;）（拉姆流汗）
+
+*****
+
+####  术士q  
+##### 19142#       发表于 2025-7-16 23:28
+
+本来是想切那个lol视频出来烤的，但是看了这段以后就打算不切和烤了，毕竟mea虽然说台面上看起来是那样狂气，私底下的温柔却也像是清泉一样清澈。
+
+因为是为拉姆亲考虑吧，怕传出什么，明明在ramu那边还在聊天但是打lol之类的。
+关掉直播一个是能做节目效果，另一个是可以推迟时间，等到安全了再打
+
+虽然说我不信没有半点折磨gachi财布的意思，假装小男友（）
+
