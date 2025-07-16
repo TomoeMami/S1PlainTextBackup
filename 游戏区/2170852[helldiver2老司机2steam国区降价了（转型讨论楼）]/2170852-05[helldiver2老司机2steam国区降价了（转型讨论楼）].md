@@ -713,3 +713,11 @@ CQC-1 唯一真旗 (One True Flag)
 好像都没看到过有人讨论西线电榴弹，玩了两把简直毁天灭地，除了炮艇几乎都能速杀（新双足没碰到不太清楚， ...</blockquote>
 看到过南线和东线的测评，西线没看过就没试。回头试试。
 
+
+*****
+
+####  stormquantage  
+##### 6830#       发表于 2025-7-17 01:24
+
+西线电榴弹是比较适配西线补包焦土的。除了atat打不了以外其他基本都能先塞个6连再想掏别的东西<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
