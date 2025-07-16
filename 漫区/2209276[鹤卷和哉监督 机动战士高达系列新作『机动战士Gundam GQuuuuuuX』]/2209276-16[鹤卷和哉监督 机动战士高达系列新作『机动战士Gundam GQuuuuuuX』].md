@@ -53,3 +53,12 @@
 
 2025-7-16 12:51 上传
 
+
+*****
+
+####  ヒトニナル  
+##### 23102#       发表于 2025-7-16 15:25
+
+场外乱斗：最近怪物弹珠因为联动GQ六个uX（+高达复刻）又惹一场风波，原因是高达联动频率实在太高
+顺便一提GQ六个uX三小只的性能也是未来可期，令人扼腕<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
