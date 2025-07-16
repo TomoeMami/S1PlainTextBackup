@@ -61491,3 +61491,13 @@ My bad。
 大家拜拜，辛苦啦。
 再见咯。
 
+
+*****
+
+####  shmilyhua  
+##### 19131#       发表于 2025-7-16 18:41
+
+我去给项目作者写个issue问一下，虽然我猜是x的api限制。
+
+—— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

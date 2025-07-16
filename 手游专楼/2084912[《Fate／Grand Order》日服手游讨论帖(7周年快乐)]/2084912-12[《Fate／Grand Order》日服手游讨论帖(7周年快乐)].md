@@ -139,3 +139,19 @@
 
 这最高难度5宝120黑杯妖兰都清不掉小的。。。完全不能打 除非你想打个4-5回合  这要等盘点满才能打的舒服<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17063#       发表于 2025-7-16 18:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最高难度翻了2把 不打了  接小太阳才能过   不知道还有谁能秒了2个50多万的小怪
+
+
+*****
+
+####  cckuku  
+##### 17064#       发表于 2025-7-16 18:41
+
+到底什么阵容能三t打这个?
+
