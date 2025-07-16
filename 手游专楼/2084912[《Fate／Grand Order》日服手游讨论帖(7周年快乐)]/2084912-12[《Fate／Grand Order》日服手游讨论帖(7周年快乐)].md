@@ -465,3 +465,11 @@ thx
 
 字数字数
 
+
+*****
+
+####  lokiling  
+##### 17093#       发表于 2025-7-17 04:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次刚开始打起来比较恶心但是树点起来以后好像还行，打手自出一个2宝100级布姐就能比较稳定7加成1T了
+
