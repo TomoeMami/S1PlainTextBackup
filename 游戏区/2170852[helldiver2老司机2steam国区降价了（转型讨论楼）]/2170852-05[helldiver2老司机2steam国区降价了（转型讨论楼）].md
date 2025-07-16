@@ -621,3 +621,52 @@ CQC-1 唯一真旗 (One True Flag)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  全装甲夏亚  
+##### 6820#       发表于 2025-7-16 08:26
+
+打了一把机器人城市夜战地图，太变态了，一片漆黑，走到堡垒脸上被一炮轰死，平常靠标点分辨是不是敌方建筑，这机器人这么省电不开灯的吗，迫击炮营地只能等他发射了我才知道炮台在哪，三个人转圈找都没找到，一开炮才知道在哪
+
+*****
+
+####  taxiom  
+##### 6821#       发表于 2025-7-16 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68104955&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2025-7-16 08:26</a>
+
+打了一把机器人城市夜战地图，太变态了，一片漆黑，走到堡垒脸上被一炮轰死，平常靠标点分辨是不是敌方建筑 ...</blockquote>
+长推R键+鼠标滚轮打开手电筒，箭头正在为把首发机制利用起来的关灯创意沾沾自喜。
+
+*****
+
+####  全装甲夏亚  
+##### 6822#       发表于 2025-7-16 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105979&amp;ptid=2170852" target="_blank">taxiom 发表于 2025-7-16 10:52</a>
+
+长推R键+鼠标滚轮打开手电筒，箭头正在为把首发机制利用起来的关灯创意沾沾自喜。 ...</blockquote>
+带手电筒-5人体工学，我之前的枪都没带，打了一把我就换上了
+
+*****
+
+####  qwased  
+##### 6823#       发表于 2025-7-16 11:06
+
+城市夜战我直接退了刷新地图，不打恶心人的设计<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 6824#       发表于 2025-7-16 12:30
+
+还是适应适应吧，后面还有光能佬的全黑地图呢<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 6825#       发表于 2025-7-16 13:10
+
+甲好像不太行
+
