@@ -309,3 +309,42 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但好友必须顶配 不单单120 5宝 还得点满冠位盘和枪阶盘
 
+
+*****
+
+####  qixinno2  
+##### 17079#       发表于 2025-7-16 20:44
+
+ 本帖最后由 qixinno2 于 2025-7-16 20:46 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">布姐输出好炸裂啊 大佬的四宝已经超越满宝120级紫发美少女了
+
+<img src="https://img.stage1st.com/forum/202507/16/204403s7zfgi2eqhi47u2l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (485.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-16 20:44 上传
+
+*****
+
+####  qixinno2  
+##### 17080#       发表于 2025-7-16 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109076&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-16 20:12</a>
+
+我们非萌只能歪歪常驻 不像大佬都是限定
+
+不过说真的这活动真傻逼 我有小太阳都不能用 1没羁绊礼装2还要 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我可以拿歪出来的南丁 欧罗巴之类的跟你换
+
+
+*****
+
+####  風卷豹  
+##### 17081#       发表于 2025-7-16 20:53
+
+真正的萌新已经认输了，跑去刷倒数第二个难度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+又多了一个讨厌印度从者的理由<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
