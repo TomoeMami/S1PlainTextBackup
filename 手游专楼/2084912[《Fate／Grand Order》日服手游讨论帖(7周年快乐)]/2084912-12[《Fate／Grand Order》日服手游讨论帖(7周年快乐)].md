@@ -259,3 +259,27 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刷完 滚尼玛的lxs
 
+
+*****
+
+####  qixinno2  
+##### 17075#       发表于 2025-7-16 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109003&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-16 20:00</a>
+
+讲个笑话 我小太阳5宝的。。但是90级</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新太强了
+
+
+*****
+
+####  alucardcz  
+##### 17076#       发表于 2025-7-16 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109055&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-16 20:09</a>
+
+萌新太强了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们非萌只能歪歪常驻 不像大佬都是限定
+
+不过说真的这活动真傻逼 我有小太阳都不能用 1没羁绊礼装2还要喂杯子 弱智 真踏马的弱智
+
