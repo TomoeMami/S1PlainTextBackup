@@ -431,3 +431,13 @@ https://www.bilibili.com/video/BV1caubz4E9t/
 
 草，手机热到刷新都有延迟了，可能真的要换手机了。
 
+
+*****
+
+####  森兰丸  
+##### 17090#       发表于 2025-7-17 00:43
+
+ 本帖最后由 森兰丸 于 2025-7-17 00:46 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">之前楼里有的枪阶礼装加成图谁存了的话能再发下不.....找不到了
+
