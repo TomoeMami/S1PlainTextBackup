@@ -250,3 +250,16 @@
 
 几十个票点错变成2个钢票了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 465#       发表于 2025-7-16 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68101045&amp;ptid=2249235" target="_blank">废柴失格 发表于 2025-7-15 12:23</a>
+
+认识票换错了有办法换回低等级的不？
+
+几十个票点错变成2个钢票了</blockquote>
+就我所知没有，慢慢存吧，我家还有60+个狗牌没用
+
