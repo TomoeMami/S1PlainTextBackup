@@ -60783,3 +60783,15 @@ DV男友。嗯，真的。  
 
 熬夜的天狗有糖吃（指ramumea糖）
 
+
+*****
+
+####  sino__unnko3  
+##### 19123#       发表于 2025-7-16 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68104685&amp;ptid=2018830" target="_blank">术士q 发表于 2025-7-16 03:39</a>
+熬夜的天狗有糖吃（指ramumea糖）
+
+这局冥场面也太多了23333333</blockquote>
+ADHD是这样的，最后还是看整的活有没有意思来给大脑提供高于常人的兴奋值，倒果溯因一下，神人堆里挑男友是如此，lol是如此，这么多年不变的直播整活也是如此
+
