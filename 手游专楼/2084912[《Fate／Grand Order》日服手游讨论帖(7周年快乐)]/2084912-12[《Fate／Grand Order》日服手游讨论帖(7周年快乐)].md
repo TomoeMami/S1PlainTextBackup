@@ -348,3 +348,11 @@
 真正的萌新已经认输了，跑去刷倒数第二个难度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 又多了一个讨厌印度从者的理由<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 17082#       发表于 2025-7-16 21:00
+
+打3星本，只能选择先用小太阳+补刀的方式打掉一只小怪，然后2T再补刀第二个小怪+BBA的宝具。但凡我的小太阳满羁绊，配合黑杯绝对能1T，可惜没有满羁绊只能带NP礼装<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
