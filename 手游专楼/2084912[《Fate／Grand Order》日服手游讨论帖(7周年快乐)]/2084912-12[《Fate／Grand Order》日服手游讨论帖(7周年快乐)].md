@@ -155,3 +155,14 @@
 
 到底什么阵容能三t打这个?
 
+
+*****
+
+####  alucardcz  
+##### 17065#       发表于 2025-7-16 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108653&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-7-16 18:41</a>
+
+到底什么阵容能三t打这个?</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我知道有阵容能打1t！ 小太阳+bba  小太阳只需100+2000！
+
