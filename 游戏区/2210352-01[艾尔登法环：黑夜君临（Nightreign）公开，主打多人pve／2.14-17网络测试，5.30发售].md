@@ -12721,3 +12721,11 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Aoye  
+##### 1214#       发表于 2025-7-16 10:44
+
+这两天在玩鸟人单通，地下室最好打的反而是灵珠，萨米尔这种怪，碰到红狼能被玩死
+
