@@ -8311,3 +8311,11 @@ hard送的只有一台传说（
 1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp ...</blockquote>
 你能不能直接发box的图 感觉你连什么机体上什么db 都不清楚
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2242#       发表于 2025-7-16 10:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这回港服登顶没有朋友费吗
+
