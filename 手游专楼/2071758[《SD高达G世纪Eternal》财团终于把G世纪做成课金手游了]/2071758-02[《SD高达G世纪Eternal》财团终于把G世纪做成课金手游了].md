@@ -8386,3 +8386,16 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 这次隐藏EX盾机都很集中，我用海牛一发MAP秒了4台盾，之后清杂鱼飞快，感觉BOSS血量翻倍也能过
 
+
+*****
+
+####  rockroxas  
+##### 2248#       发表于 2025-7-16 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68106600&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-7-16 12:19</a>
+
+带个降机动的盾会好很多，不然没ex的机体很容易miss</blockquote>
+用上SR母舰肯定要多打几次了，降攻还是必要吧，那得找支援开盾机上两个db，带必闪/自回血的援防开支援机？
+
+看了眼标签适合同时有降攻降机动的开发盾就铁奥跟X分裂者
+
