@@ -82,3 +82,13 @@ KMS可是童话边境的亲爹，你说xp正常
 战术机倒是出来 可是这怪咋回事整容了？还有我最喜欢涩涩的乳胶紧身衣 也没了差评 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 2363#       发表于 2025-7-16 21:18
+
+<blockquote>センコウ 发表于 2025-7-16 17:31
+没有什么战术机，这玩意叫MG（MAZE GUARDER），是用来采矿的，这群女学生就是下洞挖矿的黑奴，敌人是矿坑 ...</blockquote>
+所以女学生们才是beta！
+

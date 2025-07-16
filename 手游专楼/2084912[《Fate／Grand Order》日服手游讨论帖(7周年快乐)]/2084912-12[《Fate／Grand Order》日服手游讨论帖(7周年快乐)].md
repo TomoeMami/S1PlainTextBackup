@@ -393,3 +393,15 @@ https://www.bilibili.com/video/BV1caubz4E9t/
 低配版稳定1t录像 双bba 只要你的bba能一枪秒了小怪就可 ...</blockquote>
 感谢，我后来试了一下，原来加个衣服的加攻就够了，可能点了树吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 17086#       发表于 2025-7-16 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109405&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-16 21:11</a>
+录了个双bba稳定1t的录像 链接在楼上 你3宝bba能轻松做到</blockquote>
+懂了，该去抱大腿了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
