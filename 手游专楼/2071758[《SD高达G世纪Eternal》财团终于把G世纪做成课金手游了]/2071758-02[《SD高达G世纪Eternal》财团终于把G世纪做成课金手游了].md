@@ -8440,3 +8440,18 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 不是，这次不是过了一次，就能SKIP了，挂机自动打是有特别奖励？？
 
+
+*****
+
+####  体制  
+##### 2253#       发表于 2025-7-16 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105520&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-16 09:55</a>
+1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp ...</blockquote>
+上大扎姆认真的吗。把sp自由放上路，就算地图炮炮轰不死小怪，打残让其他人补刀也是可以的。
+下路海牛同理。
+这关第一回合把带支援的小怪打完围攻boss妥妥的。
+你甚至可以上路全用seed，用作品船打
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

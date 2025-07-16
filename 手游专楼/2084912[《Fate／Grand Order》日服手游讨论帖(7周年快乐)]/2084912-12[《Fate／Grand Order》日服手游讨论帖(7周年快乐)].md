@@ -64,3 +64,45 @@
 除了龙娘外这枪阶还有什么拐能一用的</blockquote>
 泳装源赖光也不错，三技能群体加攻，二技能红放+解弱体。
 
+
+*****
+
+####  alucardcz  
+##### 17056#       发表于 2025-7-16 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108308&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-7-16 17:31</a>
+
+开战后借了个满练度小太阳进去打，结果NP不够想磨几回合，结果对面又是锁红卡又宝具强化解除，用了划令咒充 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">他是耀你光炮把小的清了  没减伤后在用单体一枪把中间的秒了  这种本长线不是折磨自己吗
+
+*****
+
+####  壳壳牛  
+##### 17057#       发表于 2025-7-16 17:41
+
+总之先上bba和小太阳试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  森兰丸  
+##### 17058#       发表于 2025-7-16 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108315&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-7-16 17:32</a>
+
+泳装源赖光也不错，三技能群体加攻，二技能红放+解弱体。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">非洲人都没有....看了一圈只能上刚抽到的阿育王来加个1技能
+
+*****
+
+####  Jamaisvu  
+##### 17059#       发表于 2025-7-16 17:44
+
+<blockquote>alucardcz 发表于 2025-7-16 17:37
+他是耀你光炮把小的清了  没减伤后在用单体一枪把中间的秒了  这种本长线不是折磨自己吗 ...</blockquote>
+我是指点完天赋树后出的那个多血条高难认定战（刷柱子这个是钻研战），强制打好几回合的。
+
+因陀罗自带弱体免疫不吃控，开了宝具还会解除强化......希望天赋树有些给力的buff...
+
