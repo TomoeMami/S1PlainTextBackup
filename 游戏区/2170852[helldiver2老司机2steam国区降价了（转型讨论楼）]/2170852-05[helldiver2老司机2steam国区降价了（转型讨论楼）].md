@@ -690,3 +690,16 @@ CQC-1 唯一真旗 (One True Flag)
 
 电气狗。怎么这都是屏蔽词
 
+
+*****
+
+####  FLZB  
+##### 6828#       发表于 2025-7-16 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109734&amp;ptid=2170852" target="_blank">unsh 发表于 2025-7-16 22:24</a>
+
+这东西主要还是装弹太痛苦，只不过的确没在西线用过，可以试试
+
+顺便想问问特斯拉和**打机器人能行吗，能 ...</blockquote>
+西线很少冲脸，基本不是问题，打完就躲掩体慢慢装。电弧打不动重甲，电🐕射程太近，基本不用想了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
