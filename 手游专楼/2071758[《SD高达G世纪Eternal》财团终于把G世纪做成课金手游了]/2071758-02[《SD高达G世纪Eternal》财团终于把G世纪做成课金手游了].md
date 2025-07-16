@@ -8289,3 +8289,25 @@ hard送的只有一台传说（
 
 至于命运，第一台都要花好大功夫开发出来，要的碎片太多从零开始得380体力刷hard
 
+
+*****
+
+####  电脑死机  
+##### 2240#       发表于 2025-7-16 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105081&amp;ptid=2071758" target="_blank">体制 发表于 2025-7-16 08:55</a>
+
+所以说，看看你的阵容好帮你看看问题啊，最起码让我们知道db有没有上齐吧，降防、光束增伤、特殊增伤、物 ...</blockquote>
+1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp自由，铁奥，红蛇，机师尽量找2次防御和3动了去了，没有黄牛
+
+
+*****
+
+####  kenqqex  
+##### 2241#       发表于 2025-7-16 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105520&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-16 09:55</a>
+
+1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp ...</blockquote>
+你能不能直接发box的图 感觉你连什么机体上什么db 都不清楚
+
