@@ -13391,3 +13391,14 @@ raven在地下藏光盘然后让亚当忽悠eve去收集来逐渐搞明白真相
 
 —— 来自 OnePlus CPH2451, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  oyss  
+##### 4105#       发表于 2025-7-16 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68107826&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2025-7-16 15:57</a>
+
+可以啊，就是废土比较绕路，营地只能存档不能回血。大沙漠就一点点路直线跑过去就好 ...</blockquote>
+死了就回血了,其实也能回血
+

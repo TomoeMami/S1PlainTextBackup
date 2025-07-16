@@ -8455,3 +8455,15 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  体制  
+##### 2254#       发表于 2025-7-16 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68107887&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-16 16:06</a>
+铁奥，凤凰，风灵还是有的，ur自由基本废物</blockquote>
+有风灵还上什么红蛇，配队思路放开啊哥们，只要保证1路2台主力红机能吃到加成就够了，这不是pvp。pvp要5台机全吃船是因为还要血量和机动，普通pve5台吃个2、3台就够了，不用强行5台全吃船结果上一些不好用的机体。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

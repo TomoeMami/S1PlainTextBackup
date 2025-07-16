@@ -106,3 +106,14 @@
 
 因陀罗自带弱体免疫不吃控，开了宝具还会解除强化......希望天赋树有些给力的buff...
 
+
+*****
+
+####  alucardcz  
+##### 17060#       发表于 2025-7-16 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108371&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-16 17:44</a>
+
+非洲人都没有....看了一圈只能上刚抽到的阿育王来加个1技能</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你限定5宝！
+
