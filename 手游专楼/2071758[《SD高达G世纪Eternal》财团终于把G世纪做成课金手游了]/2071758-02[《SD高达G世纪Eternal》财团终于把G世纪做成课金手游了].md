@@ -8467,3 +8467,16 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 2255#       发表于 2025-7-16 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68108401&amp;ptid=2071758" target="_blank">体制 发表于 2025-7-16 17:50</a>
+
+有风灵还上什么红蛇，配队思路放开啊哥们，只要保证1路2台主力红机能吃到加成就够了，这不是pvp。pvp要5 ...</blockquote>
+这次主要命中问题，不吃加成支援miss分分钟重打了
+
+不过UR支援都有必中ex技，凤凰风灵这种有射程真不用考虑战舰吧
+
