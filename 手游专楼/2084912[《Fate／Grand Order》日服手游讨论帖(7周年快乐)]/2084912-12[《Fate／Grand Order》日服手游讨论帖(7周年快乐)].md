@@ -243,3 +243,19 @@
 百级三宝布姐极限伤害210W，动不动剩个血皮</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">布姐伤害这么高么 看来又多了一个可以嫖的角色了
 
+
+*****
+
+####  alucardcz  
+##### 17073#       发表于 2025-7-16 20:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">讲个笑话 我小太阳5宝的。。但是90级
+
+
+*****
+
+####  alucardcz  
+##### 17074#       发表于 2025-7-16 20:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刷完 滚尼玛的lxs
+
