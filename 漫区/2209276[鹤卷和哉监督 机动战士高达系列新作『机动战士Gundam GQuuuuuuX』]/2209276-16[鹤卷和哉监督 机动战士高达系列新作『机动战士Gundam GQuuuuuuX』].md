@@ -37,3 +37,19 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">另一个方案就是非uc的au世界观吧，所以拍板的还是小形p
 
+
+*****
+
+####  岸浪白野  
+##### 23101#       发表于 2025-7-16 12:51
+
+[X 上的 バンダイ キャンディ【公式】：“＜ラインナップご紹介！ ＞ 『機動戦士Gundam #GQuuuuuuX 』（ジークアクス） カードウエハースは、8月一般店頭発売予定！ 「ドゥー・ムラサメ」や「ゲーツ・キャパ」 空調機…ではなく「サイコガンダム」や 「ハンブラビ」も描き下ろしイラストで収録！ [url]https://t.co/GCEbyEaAHQ](https://x.com/candytoy_c/status/1945318424223343000) #ジークアクス [https://t.co/1EAxZINhsM](https://t.co/1EAxZINhsM)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202507/16/125121an4zd3l252siyddi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-16 12:51 上传
+
