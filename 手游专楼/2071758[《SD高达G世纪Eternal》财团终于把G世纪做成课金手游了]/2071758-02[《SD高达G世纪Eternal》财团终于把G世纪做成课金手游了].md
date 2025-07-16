@@ -8399,3 +8399,16 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 看了眼标签适合同时有降攻降机动的开发盾就铁奥跟X分裂者
 
+
+*****
+
+####  电脑死机  
+##### 2249#       发表于 2025-7-16 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68106362&amp;ptid=2071758" target="_blank">体制 发表于 2025-7-16 11:46</a>
+
+你这是一个ur支援机都没有啊？
+
+—— 来自 Xiaomi 24129PN74C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+铁奥，凤凰，风灵还是有的，ur自由基本废物
+
