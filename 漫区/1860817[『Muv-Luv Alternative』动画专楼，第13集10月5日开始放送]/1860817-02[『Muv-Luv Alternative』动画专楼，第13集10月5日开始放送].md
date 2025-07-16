@@ -58,3 +58,27 @@
 
 刘翠兰，我奶奶辈名字的人在开飞机啊
 
+
+*****
+
+####  センコウ  
+##### 2361#       发表于 2025-7-16 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68031333&amp;ptid=1860817" target="_blank">blackll7 发表于 2025-7-2 00:13</a>
+
+kms的游戏虽然live2d和画工很强，但是xp太正常向了。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+KMS可是童话边境的亲爹，你说xp正常
+
+
+*****
+
+####  センコウ  
+##### 2362#       发表于 2025-7-16 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105447&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2025-7-16 09:46</a>
+
+战术机倒是出来 可是这怪咋回事整容了？还有我最喜欢涩涩的乳胶紧身衣 也没了差评 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
