@@ -8319,3 +8319,28 @@ hard送的只有一台传说（
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这回港服登顶没有朋友费吗
 
+
+*****
+
+####  rockroxas  
+##### 2243#       发表于 2025-7-16 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105520&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-16 09:55</a>
+
+1队林有德，夏亚高达1段ur，大扎姆，人棍扎古，囧，gq红高达，2队实在找不到靠谱战舰，海牛，山楂饼，sp ...</blockquote>
+[https://www.bilibili.com/video/BV122uEzKEeo](https://www.bilibili.com/video/BV122uEzKEeo)
+
+可以参考这个
+
+你的铁奥是ur还是ssr？盾只需要一台就够了，假如是ur不用带囧，不如上gp01；大扎姆大体型对全局规划要求高，不是抄作业不建议上
+
+电光：海牛，命脉，gp01fb，gq红高达，夏亚高达/流星自由/电光盾/sp自由看着上啥
+
+另一边宿敌母舰（贪个回血），ur山楂饼，ur铁奥，人棍扎古，ZZ卡碧尼，金异端/亥伯龙/癌变/尊者
+
+特殊卡碧尼，光束铁奥，减防流星红高达啥的
+
+夏亚高达一段物理减伤严重面板也不够高，可以考虑直接不上，还省个物理增伤位，非要物理增伤也可以让GQ红高达凑合上一个（注意射程跟浮游炮冲突，要上狙击变3射程才能兼容）
+
+机师尽量找二次援攻，3动或者能鼓气的去开地图炮，援防一次跟两次区别倒是不大
+
