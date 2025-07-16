@@ -554,3 +554,28 @@ streak啥意思，不会是连胜吧？</blockquote>
 —— 来自 S1Fun</blockquote>
 全游戏2连胜臣妾做不到啊
 
+
+*****
+
+####  lilod  
+##### 46#         楼主| 发表于 2025-7-16 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105216&amp;ptid=2256336" target="_blank">jacket 发表于 2025-7-16 09:16</a>
+全游戏2连胜臣妾做不到啊</blockquote>
+目前，直接 esc 退出重开不断连胜
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jacket  
+##### 47#       发表于 2025-7-16 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105244&amp;ptid=2256336" target="_blank">lilod 发表于 2025-7-16 09:19</a>
+
+目前，直接 esc 退出重开不断连胜
+
+—— 来自 S1Fun</blockquote>
+慈悲为怀
+
