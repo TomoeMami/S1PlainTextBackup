@@ -102,3 +102,12 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和京姐还是有缘分，原皮和AN都是第一次UP就出货
 
+
+*****
+
+####  wilkyway  
+##### 1541#       发表于 2025-7-18 05:24
+
+也就看着吓人吧 实际上这个射击拿了90%buff还是只能清清日常调查 高难和联机感觉没什么说法还是玩老一套 甚至不如阿唯玩格斗（
+不过我没用过手柄没准有走射会不一样？
+
