@@ -62,3 +62,13 @@
 
 我辛辛苦苦清完了常驻ego就给我270抽才出是吧<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钟于123  
+##### 1154#       发表于 2025-7-17 18:53
+
+110抽拿到魔法少女唐+ego+憎恶播报，有点太爱了
+
+观望下看还补井拿绝望不
+
