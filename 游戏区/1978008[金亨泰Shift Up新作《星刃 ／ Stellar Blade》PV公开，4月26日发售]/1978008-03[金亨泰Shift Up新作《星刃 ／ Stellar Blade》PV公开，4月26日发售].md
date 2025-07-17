@@ -13487,3 +13487,32 @@ StellarBlade_250716_00135100000.webp
 你是xbox类手柄吧？按x隐藏，ui那有写的</blockquote>
 第一张没弄清 后面知道了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  心灵的乳头  
+##### 4110#       发表于 2025-7-17 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68101304&amp;ptid=1978008" target="_blank">leonz79 发表于 2025-7-15 13:20</a>
+
+拍照里有灯光功能，可以把环境光关掉，自己额外打最多6个灯光</blockquote>
+试着调了下灯光，确实有点感觉了<img src="https://static.stage1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
+
+StellarBlade_250717_22310000000.jpg
+(403.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 22:49 上传
+
+<img src="https://img.stage1st.com/forum/202507/17/224920fp5tipmipytm091p.jpg" referrerpolicy="no-referrer">
+
+StellarBlade_250717_22404200000.jpg
+(271.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 22:49 上传
+
+<img src="https://img.stage1st.com/forum/202507/17/224924hossbaeszbbvhi9r.jpg" referrerpolicy="no-referrer">
+
