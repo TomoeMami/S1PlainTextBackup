@@ -4563,3 +4563,15 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 
 这游戏真的很需要一个攻略，我现在边看群里的地图边玩，有些东西都找不到，路太绕太能藏了。有些boss不拿到对应道具还特别难打
 
+
+*****
+
+####  远野乙姬  
+##### 414#       发表于 2025-7-18 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110911&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 08:59</a>
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪 ...</blockquote>
+大概率你下的游戏缺资源
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
