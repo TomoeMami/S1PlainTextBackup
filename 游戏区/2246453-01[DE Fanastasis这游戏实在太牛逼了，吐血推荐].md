@@ -4439,3 +4439,14 @@ steam版能放大窗口吗，太小了有点费眼
 
 虽然离结局一步之遥，但我是不想动了。
 
+
+*****
+
+####  onlv星骸  
+##### 403#       发表于 2025-7-17 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110451&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-7-17 02:06</a>
+
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+ALT+ENTER能全屏
+
