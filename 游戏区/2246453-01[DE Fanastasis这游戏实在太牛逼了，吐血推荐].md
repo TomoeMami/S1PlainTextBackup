@@ -4482,3 +4482,14 @@ JOIPLAY，教程B站很多</blockquote>
 steam版能放大窗口吗，太小了有点费眼</blockquote>
 用magpie 或者小黄鸭呗
 
+
+*****
+
+####  blueelf  
+##### 407#         楼主| 发表于 2025-7-17 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110911&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 08:59</a>
+
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪 ...</blockquote>
+问了下群，都说没遇到过这个问题
+
