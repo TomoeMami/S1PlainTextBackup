@@ -12760,3 +12760,16 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 这两天在玩鸟人单通，地下室最好打的反而是灵珠，萨米尔这种怪，碰到红狼能被玩死 ...</blockquote>
 越是喜欢猛攻的越适合打立回，也就天然利好鸟人。红狼这种跳来跳去跟你打消耗战的畜生则恰好相反。
 
+
+*****
+
+####  hirro  
+##### 1218#       发表于 2025-7-17 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111295&amp;ptid=2210352" target="_blank">jacket 发表于 2025-7-17 09:57</a>
+
+练蜗牛，鸡哥大开口上来就让我做掉三狼，你自己能不能打过还不好说呢！
+
+蓝条永远不够用，摇铃总是按到碎片 ...</blockquote>
+我是用铃铛+3圣印记加蓝两条过的
+
