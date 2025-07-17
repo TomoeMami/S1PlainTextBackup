@@ -62,3 +62,16 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1537#       发表于 2025-7-17 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68109848&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-7-16 22:52</a>
+
+别玩……越玩越亏然后你会发现你换东西的代币都没了
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5. ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我试了下，无脑按的话还行，抽中以后直接退就成，打周回效率太低了（
+
