@@ -578,3 +578,40 @@ thx
 
 确实集大成，把恶心的东西全放一块了
 
+
+*****
+
+####  Blackson  
+##### 17102#       发表于 2025-7-17 14:15
+
+术阶拐多，可能还不是问题
+杀阶没几个能用的打手，拐也少，那才是问题
+
+*****
+
+####  alucardcz  
+##### 17103#       发表于 2025-7-17 14:23
+
+主要这天赋树 他们不会真觉得大多数人会因为这个去重置掉然后点当前的天赋吧？ 还不如大方点让大家点点满 各种卡开锁道具
+
+*****
+
+####  森兰丸  
+##### 17104#       发表于 2025-7-17 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68112827&amp;ptid=2084912" target="_blank">Blackson 发表于 2025-7-17 14:15</a>
+
+术阶拐多，可能还不是问题
+
+杀阶没几个能用的打手，拐也少，那才是问题</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杀不是有光兔和王哈么
+
+*****
+
+####  千叶铁矢  
+##### 17105#       发表于 2025-7-17 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68113186&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-17 15:14</a>
+杀不是有光兔和王哈么</blockquote>
+夹馍武则天也行
+
