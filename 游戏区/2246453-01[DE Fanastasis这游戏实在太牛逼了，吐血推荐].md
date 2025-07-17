@@ -4504,3 +4504,34 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 问了下群，都说没遇到过这个问题</blockquote>
 这样么，是用哪个版本的啊？我用JoiPlay1.20.580，RPGMPlugin插件1.21.31。后来更新到最新1.20.590，插件更新到1.23.40。一样闪退，我是用寨机RP FILP2玩的，难道是机子问题？今晚回去换其他机器看看。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 409#         楼主| 发表于 2025-7-17 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111288&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 09:57</a>
+
+这样么，是用哪个版本的啊？我用JoiPlay1.20.580，RPGMPlugin插件1.21.31。后来更新到最新1.20.590，插件 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202507/17/101102yb9r1015s18rqbh4.jpg" referrerpolicy="no-referrer">
+
+<strong>B250D61D725E941D358D6AD991B00557.jpg</strong> (71.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 10:11 上传
+
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题
+
+
+*****
+
+####  瑟莉亚  
+##### 410#       发表于 2025-7-17 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111383&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 10:11</a>
+
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
+好的，谢谢，我找找这个版本的试试看看。
+
