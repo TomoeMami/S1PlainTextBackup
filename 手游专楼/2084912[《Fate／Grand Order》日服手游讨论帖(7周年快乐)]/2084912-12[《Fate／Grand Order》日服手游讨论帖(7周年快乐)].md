@@ -615,3 +615,36 @@ thx
 杀不是有光兔和王哈么</blockquote>
 夹馍武则天也行
 
+
+*****
+
+####  yangun22  
+##### 17106#       发表于 2025-7-17 15:42
+
+比肖内的画师传了张1回合不打小怪直接秒了3星因陀罗的图，两张绿卡暴击一回合就能叠到9层毒啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17107#       发表于 2025-7-17 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68113285&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2025-7-17 15:34</a>
+夹馍武则天也行</blockquote>
+一旦对面是王哈，那么迦摩的伤害就要扣一半了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17108#       发表于 2025-7-17 16:33
+
+小太阳10羁绊了，不刷了，准备练羽蛇神的羁绊来。
+
+*****
+
+####  希望之花  
+##### 17109#       发表于 2025-7-17 17:59
+
+杀阶大概就双烟带狗
+
+单体带王哈 光炮用酒吞
+
