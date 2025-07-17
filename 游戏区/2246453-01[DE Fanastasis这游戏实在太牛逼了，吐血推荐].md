@@ -4472,3 +4472,13 @@ ALT+ENTER能全屏
 JOIPLAY，教程B站很多</blockquote>
 你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪退。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  catabridge  
+##### 406#       发表于 2025-7-17 09:36
+
+<blockquote>RUANHYC 发表于 2025-7-17 02:06
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+用magpie 或者小黄鸭呗
+
