@@ -62,3 +62,15 @@
 场外乱斗：最近怪物弹珠因为联动GQ六个uX（+高达复刻）又惹一场风波，原因是高达联动频率实在太高
 顺便一提GQ六个uX三小只的性能也是未来可期，令人扼腕<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 23103#       发表于 2025-7-17 15:07
+
+【2025年9月剧场版《大雄的高达世界物语》预告片震撼发布！-哔哩哔哩】 https://b23.tv/sFJy6M7
+
+评论纷纷表示比原作合理
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
