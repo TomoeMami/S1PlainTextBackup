@@ -12773,3 +12773,14 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 蓝条永远不够用，摇铃总是按到碎片 ...</blockquote>
 我是用铃铛+3圣印记加蓝两条过的
 
+
+*****
+
+####  jacket  
+##### 1219#       发表于 2025-7-17 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68115356&amp;ptid=2210352" target="_blank">hirro 发表于 2025-7-17 22:20</a>
+
+我是用铃铛+3圣印记加蓝两条过的</blockquote>
+打过三狼拿到无色杯，配装自由度大了，准备试试炎击美甲附魔流
+
