@@ -4545,3 +4545,13 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 steam版能放大窗口吗，太小了有点费眼</blockquote>
 窗口化模式按F5能调四档大小，还小的话就只能用软件放大了
 
+
+*****
+
+####  瑟莉亚  
+##### 412#       发表于 2025-7-17 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111383&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 10:11</a>
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
+确实是joiplay模拟器版本问题，换成这个版本就不闪退了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
