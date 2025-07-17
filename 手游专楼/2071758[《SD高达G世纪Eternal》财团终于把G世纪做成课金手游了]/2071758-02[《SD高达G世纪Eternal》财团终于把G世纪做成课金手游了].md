@@ -8504,3 +8504,13 @@ ur铁奥有，电光的船只有紫色老太婆，回去抽空试试看
 
 一般box根本掏不出那么多有效输出的机体，就楼上那个box只要保证几个主力每回合打满伤害三回合肯定能过
 
+
+*****
+
+####  无念  
+##### 2258#       发表于 2025-7-17 13:53
+
+更新后ex关被砍了，吉姆从盾变普遍白板了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

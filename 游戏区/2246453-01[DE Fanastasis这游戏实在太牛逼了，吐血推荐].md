@@ -4535,3 +4535,13 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
 好的，谢谢，我找找这个版本的试试看看。
 
+
+*****
+
+####  kerbad  
+##### 411#       发表于 2025-7-17 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110451&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-7-17 02:06</a>
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+窗口化模式按F5能调四档大小，还小的话就只能用软件放大了
+
