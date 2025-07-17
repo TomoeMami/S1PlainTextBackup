@@ -62412,3 +62412,27 @@ Gophin，我YouTube几点开播比较好？  
 啊普通的工作啦。  
 噢这样。那就23点开始。  
 
+
+*****
+
+####  TiHaru  
+##### 19153#       发表于 2025-7-18 02:51
+
+<img src="https://img.stage1st.com/forum/202507/18/025043us4wxz6wdtqyss64.png" referrerpolicy="no-referrer">
+
+<strong>聊天1.png</strong> (77.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 02:50 上传
+
+<img src="https://img.stage1st.com/forum/202507/18/025046u56cyoc4wzo54kww.png" referrerpolicy="no-referrer">
+
+<strong>聊天2.png</strong> (185.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 02:50 上传
+
+第一张是上单那里偷到的，第二张是今天下午截到的
+
