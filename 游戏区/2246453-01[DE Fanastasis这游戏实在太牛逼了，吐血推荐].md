@@ -4461,3 +4461,14 @@ ALT+ENTER能全屏
 居然在打完魔女帝之后烂尾了，还缺3个追忆，找不到在哪里。地图太大，路早就不记得了，这时候回去找东西是 ...</blockquote>
 我是一路推到恶魔镇然后就歇了……两三个月没再动过
 
+
+*****
+
+####  瑟莉亚  
+##### 405#       发表于 2025-7-17 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896342&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-6-7 11:20</a>
+
+JOIPLAY，教程B站很多</blockquote>
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪退。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
