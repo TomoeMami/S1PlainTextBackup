@@ -777,3 +777,11 @@ CQC-1 唯一真旗 (One True Flag)
 西线电榴弹是比较适配西线补包焦土的。除了atat打不了以外其他基本都能先塞个6连再想掏别的东西 ...</blockquote>
 大狗有时候好像会被电流窜肚皮上电死，闲着没事干打了二三十发给他打死了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 6837#       发表于 2025-7-17 12:00
+
+我记得机器人的大工厂之前用无后座打窗户能一发打爆，现在要两发了？
+
