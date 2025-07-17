@@ -4493,3 +4493,14 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪 ...</blockquote>
 问了下群，都说没遇到过这个问题
 
+
+*****
+
+####  瑟莉亚  
+##### 408#       发表于 2025-7-17 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111213&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 09:44</a>
+
+问了下群，都说没遇到过这个问题</blockquote>
+这样么，是用哪个版本的啊？我用JoiPlay1.20.580，RPGMPlugin插件1.21.31。后来更新到最新1.20.590，插件更新到1.23.40。一样闪退，我是用寨机RP FILP2玩的，难道是机子问题？今晚回去换其他机器看看。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
