@@ -821,3 +821,11 @@ CQC-1 唯一真旗 (One True Flag)
 
 其他的还没解锁，不过目测也就背包能用
 
+
+*****
+
+####  qwased  
+##### 6842#       发表于 2025-7-17 21:47
+
+复活甲进机甲就不会掉血了，什么无畏<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
