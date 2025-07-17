@@ -75,3 +75,14 @@
 —— 来自 realme RMX3706, Android 13, 鹅球 v3.5. ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我试了下，无脑按的话还行，抽中以后直接退就成，打周回效率太低了（
 
+
+*****
+
+####  冰风血羽  
+##### 1538#       发表于 2025-7-17 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68112026&amp;ptid=2104259" target="_blank">madcow 发表于 2025-7-17 11:45</a>
+
+我试了下，无脑按的话还行，抽中以后直接退就成，打周回效率太低了（</blockquote>
+周回一次15个，确实不值得，不知道后面会不会开联机本
+

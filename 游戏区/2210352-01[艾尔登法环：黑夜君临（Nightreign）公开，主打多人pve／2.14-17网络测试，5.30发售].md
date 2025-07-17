@@ -12749,3 +12749,14 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 
 死了5把最后捡到黄金戟纯近战顶着分身把三狼爆了。
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1217#       发表于 2025-7-17 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68105902&amp;ptid=2210352" target="_blank">Aoye 发表于 2025-7-16 10:44</a>
+
+这两天在玩鸟人单通，地下室最好打的反而是灵珠，萨米尔这种怪，碰到红狼能被玩死 ...</blockquote>
+越是喜欢猛攻的越适合打立回，也就天然利好鸟人。红狼这种跳来跳去跟你打消耗战的畜生则恰好相反。
+
