@@ -4450,3 +4450,14 @@ steam版能放大窗口吗，太小了有点费眼
 steam版能放大窗口吗，太小了有点费眼</blockquote>
 ALT+ENTER能全屏
 
+
+*****
+
+####  shimotsuki14  
+##### 404#       发表于 2025-7-17 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110720&amp;ptid=2246453" target="_blank">lyceshao 发表于 2025-7-17 08:14</a>
+
+居然在打完魔女帝之后烂尾了，还缺3个追忆，找不到在哪里。地图太大，路早就不记得了，这时候回去找东西是 ...</blockquote>
+我是一路推到恶魔镇然后就歇了……两三个月没再动过
+
