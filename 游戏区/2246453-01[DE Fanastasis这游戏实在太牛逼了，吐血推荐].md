@@ -4555,3 +4555,11 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
 确实是joiplay模拟器版本问题，换成这个版本就不闪退了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  animal_k  
+##### 413#       发表于 2025-7-17 21:54
+
+这游戏真的很需要一个攻略，我现在边看群里的地图边玩，有些东西都找不到，路太绕太能藏了。有些boss不拿到对应道具还特别难打
+
