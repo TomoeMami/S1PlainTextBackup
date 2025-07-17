@@ -829,3 +829,17 @@ CQC-1 唯一真旗 (One True Flag)
 
 复活甲进机甲就不会掉血了，什么无畏<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOBI  
+##### 6843#       发表于 2025-7-17 22:42
+
+ 本帖最后由 KOBI 于 2025-7-17 22:43 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大净化真的。。。其他的都能原谅
+
+这种蓄力单发武器我真的不想每次开枪都要祈祷别射偏
+
+七管至少给个中穿吧
+
