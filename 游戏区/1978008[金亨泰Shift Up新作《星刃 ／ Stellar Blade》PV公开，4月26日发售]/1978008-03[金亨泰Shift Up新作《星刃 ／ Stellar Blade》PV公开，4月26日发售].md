@@ -13466,3 +13466,13 @@ StellarBlade_250716_00135100000.webp
 
 <img src="https://img.stage1st.com/forum/202507/17/003805zariru2uii9gd289.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤井紫  
+##### 4108#       发表于 2025-7-17 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110274&amp;ptid=1978008" target="_blank">黑沢逢世 发表于 2025-7-17 00:38</a>
+怒拍了几张下头照片 第一次拍还不会隐藏UI</blockquote>
+你是xbox类手柄吧？按x隐藏，ui那有写的
+
