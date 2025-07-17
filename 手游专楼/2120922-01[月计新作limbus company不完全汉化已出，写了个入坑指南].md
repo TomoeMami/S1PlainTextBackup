@@ -54,3 +54,11 @@
 
 光是看这堆小作文就能想象瓦夜BOSS有多强了...等着小金直播吃瘪<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drm1202  
+##### 1153#       发表于 2025-7-17 17:50
+
+我辛辛苦苦清完了常驻ego就给我270抽才出是吧<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
