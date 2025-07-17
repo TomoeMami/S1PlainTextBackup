@@ -74,3 +74,44 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 23104#       发表于 2025-7-17 15:16
+
+|[S.H.Figuarts ニャアン | ガンダムシリーズ フィギュア・プラモデル・プラキット | アニメグッズ ・おもちゃならプレミアムバンダイ｜バンダイナムコグループの公式通販サイト](https://p-bandai.jp/item/item-1000228393/)|
+[S.H.Figuarts シュウジ・イトウ | ガンダムシリーズ フィギュア・プラモデル・プラキット | アニメグッズ ・おもちゃならプレミアムバンダイ｜バンダイナムコグループの公式通販サイト](https://p-bandai.jp/item/item-1000229760/)
+
+<img src="https://img.stage1st.com/forum/202507/17/151131czype4n4mwhwfmjj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.73 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 15:11 上传
+
+<img src="https://img.stage1st.com/forum/202507/17/151140a8qk3h3uhgqbqa30.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 15:11 上传
+
+<img src="https://img.stage1st.com/forum/202507/17/151615lx6nluhvhh6mcdzd.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250717151435.jpg</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 15:16 上传
+
+<img src="https://img.stage1st.com/forum/202507/17/151625sgr7q8d7hd6kqpip.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250717151442.jpg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 15:16 上传
+
