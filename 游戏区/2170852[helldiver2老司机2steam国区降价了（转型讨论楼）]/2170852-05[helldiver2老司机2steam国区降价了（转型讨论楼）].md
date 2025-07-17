@@ -871,3 +871,29 @@ CQC-1 唯一真旗 (One True Flag)
 
 7管配个拉枪甲还是可以用的，大净化者真不行，等加强吧，目前的伤害和准度对不起它的机制
 
+
+*****
+
+####  xinfengj  
+##### 6847#       发表于 2025-7-18 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68115433&amp;ptid=2170852" target="_blank">KOBI 发表于 2025-7-17 22:42</a>
+大净化真的。。。其他的都能原谅
+
+这种蓄力单发武器我真的不想每次开枪都要祈祷别射偏
+
+七管至少给个中穿吧 ...</blockquote>
+射偏是bug已经确认了，箭头给补丁以前可以试试走射，疑似走射时弹道随机运动和站定射击的稳定弹道设置反了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KOBI| + 1|草生|
+
+查看全部评分
+
