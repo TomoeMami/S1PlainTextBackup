@@ -111,3 +111,17 @@
 也就看着吓人吧 实际上这个射击拿了90%buff还是只能清清日常调查 高难和联机感觉没什么说法还是玩老一套 甚至不如阿唯玩格斗（
 不过我没用过手柄没准有走射会不一样？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1542#         楼主| 发表于 2025-7-18 12:23
+
+ 本帖最后由 江戸前ルナ 于 2025-7-18 12:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68116066&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-7-18 05:24</a>
+
+也就看着吓人吧 实际上这个射击拿了90%buff还是只能清清日常调查 高难和联机感觉没什么说法还是玩老一套 甚 ...</blockquote>
+原来用剑继续用剑就成了，不用转射击啊。ANSP的手一发训练场6W去到外面克属8W+，抽+1可以两发，腿是1+1发的回血，开SP时筒子输出就是为了蓄次数条的，蓄满100蓄力上BUFF然后主动按终结技，直接再硬控BOSS当靶子15秒<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">然后还有主动举盾挡弹幕和盾突的性能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+本来京姐模组就超模，有枫刀波还有伪无敌的海豚跳劈，就是没原SP时爆发输出差。但原SP要高输出只能站桩，海豚跳劈还没了，现在ANSP直接用手技能糊脸输出就不差了，更别说其他了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
