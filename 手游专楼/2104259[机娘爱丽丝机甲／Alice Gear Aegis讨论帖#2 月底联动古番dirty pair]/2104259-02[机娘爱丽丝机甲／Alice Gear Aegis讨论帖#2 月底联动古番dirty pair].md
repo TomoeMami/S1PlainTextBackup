@@ -178,3 +178,14 @@
 紫牌还好说不是换材料贝就是换+1贝，黄牌都不知道换啥好，应该就是把手上强力角色用的技能拉满咯？强化起来 ...</blockquote>
 牌子多的话，先把各种类的换100，普通通用和高品质通用都要换多些，起码300~400的量。种类里个人消耗得相对较多的是攻击类。用没了再去商店换就行。
 
+
+*****
+
+####  astrayl  
+##### 1548#       发表于 2025-7-18 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68119789&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-7-18 20:12</a>
+
+直播最大新闻也就是取消AN装备废除抽选制（原本AN装备保留），变成颜色、属性出力、词条自己任选，kiss技能 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">kiss技能丢天赋树岂不是占被动槽位置。。。。AN装备改成词条能自选而不是纯随机ROLL我看就行了
+
