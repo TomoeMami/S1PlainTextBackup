@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 168186,
+    "totalreply": 168188,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1752879727,
+    "lastedit": 1752880327,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11309,7 +11309,7 @@
     "newtitle": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
     "lastedit": 1752621249,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2208790": {
@@ -11520,19 +11520,19 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 5476,
+    "totalreply": 5477,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／722晚九点宝可梦发布会]",
-    "lastedit": 1752878047,
+    "lastedit": 1752880568,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2169941": {
-    "totalreply": 140,
+    "totalreply": 141,
     "title": "[拔作岛／ぬきたし 25年7月播出]",
     "newtitle": "[拔作岛／ぬきたし 25年7月播出]",
-    "lastedit": 1752878767,
+    "lastedit": 1752880569,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11574,10 +11574,10 @@
     "update": false
   },
   "2252904": {
-    "totalreply": 771,
+    "totalreply": 772,
     "title": "[江苏省城市足球联赛—苏超联赛专楼]",
     "newtitle": "[江苏省城市足球联赛—苏超联赛专楼]",
-    "lastedit": 1752834975,
+    "lastedit": 1752880448,
     "category": "外野",
     "active": true,
     "update": false
@@ -16002,10 +16002,10 @@
     "update": false
   },
   "2256757": {
-    "totalreply": 307,
+    "totalreply": 308,
     "title": "[余杭的自来水被污染了]",
     "newtitle": "[余杭的自来水被污染了]",
-    "lastedit": 1752875409,
+    "lastedit": 1752880448,
     "category": "外野",
     "active": true,
     "update": false
@@ -16245,10 +16245,10 @@
     "update": false
   },
   "2256859": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[同济大学袁同学大会直播打飞机]",
     "newtitle": "[同济大学袁同学大会直播打飞机]",
-    "lastedit": 1752875048,
+    "lastedit": 1752880688,
     "category": "外野",
     "active": true,
     "update": false
@@ -16277,6 +16277,15 @@
     "newtitle": "[乡里别剑圣 TV动画化 2025年4月]",
     "lastedit": 1752875893,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2244012": {
+    "totalreply": 205,
+    "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
+    "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
+    "lastedit": 1752880213,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
