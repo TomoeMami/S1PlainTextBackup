@@ -787,3 +787,16 @@ thx
 
 我好友里唯一一个双礼装小太阳下午也换成黑杯了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  少女人形  
+##### 17124#       发表于 2025-7-18 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68118240&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-18 15:18</a>
+
+这不就和宝具动画不能跳过没有扫荡一样属于这游戏的底层逻辑了吗
+
+都这么多年了要改早就改了 ...</blockquote>
+你说得对，但是bgo早实装这个改动了
+

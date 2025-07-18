@@ -62483,3 +62483,18 @@ t0卡组，复!活!
 
 早该找好闺蜜了，天天和一群杂种玩lol真影响心情吧
 
+
+*****
+
+####  TiHaru  
+##### 19159#       发表于 2025-7-18 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68101672&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-15 14:36</a>
+
+48.46 趋势榜第四</blockquote>
+练习赛之前再记录一下
+
+48.02/51.98
+
+42175/45649
+
