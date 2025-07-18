@@ -210,3 +210,11 @@
 
 刷了1800盘子 感觉够用到关服了
 
+
+*****
+
+####  GuDaZi  
+##### 47202#       发表于 2025-7-18 11:43
+
+自己现有从者999的井盖终于刷够了。就剩黑灰了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
