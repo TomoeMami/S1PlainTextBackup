@@ -683,3 +683,43 @@ thx
 
 为什么有的120级5宝黑杯妖兰连倒数第2难度的小怪都a不掉？ 吃瘪好几次了 烦<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 17114#       发表于 2025-7-18 13:42
+
+考虑刷到的助战频率队伍试错了好几个版本，太rz了这个助战系统
+
+*****
+
+####  洛克萨斯  
+##### 17115#       发表于 2025-7-18 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68117662&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-18 13:20</a>
+
+为什么有的120级5宝黑杯妖兰连倒数第2难度的小怪都a不掉？ 吃瘪好几次了 烦 ...</blockquote>
+所以我直接刷倒数第三难度，倒数第二那个清不掉金刚杵会很恶心
+
+*****
+
+####  alucardcz  
+##### 17116#       发表于 2025-7-18 13:47
+
+ 本帖最后由 alucardcz 于 2025-7-18 13:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68117776&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-7-18 13:46</a>
+
+所以我直接刷倒数第三难度，倒数第二那个清不掉金刚杵会很恶心</blockquote>
+清不掉也能打 就是要撕一次app 有点烦 现在偏向借小太阳了 不过小太阳也不多。。但至少比bba多。。<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 17117#       发表于 2025-7-18 14:05
+
+树的影响太大了
+
+点了树2宝小太阳3宝bba带两拐就能大概率1t8加成...问题就是助战半天刷不到...
+
+这个傻X系统，要是能全队带羁绊礼装解决np问题就能自出两从者爽刷了...
+
