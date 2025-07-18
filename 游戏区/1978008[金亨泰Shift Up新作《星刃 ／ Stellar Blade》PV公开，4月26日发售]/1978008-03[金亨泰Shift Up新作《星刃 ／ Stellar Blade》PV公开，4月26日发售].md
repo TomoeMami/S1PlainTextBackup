@@ -13601,3 +13601,14 @@ StellarBlade_250717_22404200000.jpg
 
 然后解谜动作(站立托腮)确实不行，但弯腰开箱子这个动作单拿出来<strong>有时</strong>是可以的，游戏前段个别可以直接开的箱子开箱时是可以拍照的，后边就都不行了，所以我说有点谜，可能是个别箱子判定不一样吧。
 
+
+*****
+
+####  永恒孤心  
+##### 4117#       发表于 2025-7-19 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120956&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-19 00:34</a>
+
+因为呼出拍照界面时会强制取消(或回溯)部分物理效果/特效，所以我觉得是少部分强制演出和拍照的机制有点 ...</blockquote>
+因为有些大箱子不需要解密啊，所以可以拍照<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
