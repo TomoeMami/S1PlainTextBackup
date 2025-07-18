@@ -621,3 +621,11 @@ streak啥意思，不会是连胜吧？</blockquote>
 
 三星关卡打的挺顺利直到遇见太阳系，受到了严重的精神污染
 
+
+*****
+
+####  jacket  
+##### 52#       发表于 2025-7-18 14:47
+
+第一次过谋杀推理是蒙中的，还蒙出个成就<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
