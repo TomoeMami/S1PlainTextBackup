@@ -832,3 +832,14 @@ thx
 他意思应该是把黑杯换成了羁绊礼装后没人借了（</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对啊，所以我的好友都换黑杯去挣友情了
 
+
+*****
+
+####  alucardcz  
+##### 17128#       发表于 2025-7-18 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120360&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-7-18 22:05</a>
+
+对啊，所以我的好友都换黑杯去挣友情了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">可惜了 我5宝但没羁绊礼装 100都没必要了
+
