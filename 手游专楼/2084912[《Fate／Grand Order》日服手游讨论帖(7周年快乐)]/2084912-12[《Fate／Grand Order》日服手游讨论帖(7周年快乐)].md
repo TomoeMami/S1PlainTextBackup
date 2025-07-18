@@ -771,3 +771,11 @@ thx
 可是这帮傻逼不是出了个连续作战 现在这样子本质和连续作战冲突</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每刷一次能让你少点那么几下节约几秒钟已经是运营大发慈悲了.....要知足!
 
+
+*****
+
+####  khxooo  
+##### 17122#       发表于 2025-7-18 17:28
+
+试了试，2宝小太阳就算不带黑杯带羁绊加成礼装都能稳定带走两个小怪，给小太阳换上双羁绊礼装了。
+
