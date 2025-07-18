@@ -13551,3 +13551,17 @@ StellarBlade_250717_22404200000.jpg
 
 为什么开大箱子的时候照相功能无法触发？<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4113#       发表于 2025-7-18 23:02
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-7-18 23:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68118208&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-18 15:14</a>
+
+为什么开大箱子的时候照相功能无法触发？</blockquote>
+我瞎猜的是，系统在极少数的演出场景会和拍照界面的调用有冲突，我举个例子，上下梯子时随时可以拍照，但是在“爬上梯子顶端人物跳上去的一瞬间”这个动作发生时就不行。
+
+但奇怪的是，早期的一些大箱子(主要是艾多7号、荒地的一些)开箱时就可以拍照，照理说开箱动作本身是固定的，要么都行要么都不行，挺谜的
+
