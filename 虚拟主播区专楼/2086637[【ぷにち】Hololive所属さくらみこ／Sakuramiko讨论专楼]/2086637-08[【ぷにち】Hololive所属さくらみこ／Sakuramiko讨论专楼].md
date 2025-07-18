@@ -84,3 +84,42 @@
 
 （愿望）
 
+
+*****
+
+####  holofan  
+##### 11106#       发表于 2025-7-18 16:19
+
+有网友抱怨0期生5个人每次凑一起直播不是做企划就是开live，难道不能普通地一起玩个什么多人游戏的直播吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11107#       发表于 2025-7-18 19:36
+
+唉，有长处就有短处，就是不够完美
+
+<img src="https://img.stage1st.com/forum/202507/18/193534erimjr2rk7g24hmw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 19:35 上传
+
+<img src="https://img.stage1st.com/forum/202507/18/193511z7tp0x7t9b8o7v69.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (171.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 19:35 上传
+
+<img src="https://img.stage1st.com/forum/202507/18/193440o6e7dexdexs6jez7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 19:34 上传
+
