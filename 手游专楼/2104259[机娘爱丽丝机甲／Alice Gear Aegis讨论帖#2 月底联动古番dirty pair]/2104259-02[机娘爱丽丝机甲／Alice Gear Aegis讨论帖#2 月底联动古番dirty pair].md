@@ -125,3 +125,15 @@
 
 本来京姐模组就超模，有枫刀波还有伪无敌的海豚跳劈，就是没原SP时爆发输出差。但原SP要高输出只能站桩，海豚跳劈还没了，现在ANSP直接用手技能糊脸输出就不差了，更别说其他了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1543#       发表于 2025-7-18 13:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">官推下面有人抱怨抽卡难攒，4个月都没抽到东西准备退坑
+
+今晚又要直播了，该不会趁着小裤裤又来个页游准备联动了吧
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
