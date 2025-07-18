@@ -12784,3 +12784,20 @@ https://www.bilibili.com/video/BV1p1GGzWEyP?spm_id ...</blockquote>
 我是用铃铛+3圣印记加蓝两条过的</blockquote>
 打过三狼拿到无色杯，配装自由度大了，准备试试炎击美甲附魔流
 
+
+*****
+
+####  ParukiaMKII  
+##### 1220#       发表于 2025-7-18 22:52
+
+7月31日更新，除了最终夜王，其他的下个月都有了，这比卡普康有诚意多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20250718225203.jpg
+(306.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 22:52 上传
+
+<img src="https://img.stage1st.com/forum/202507/18/225216bbnmj4jbjkvj2xzk.jpg" referrerpolicy="no-referrer">
+
