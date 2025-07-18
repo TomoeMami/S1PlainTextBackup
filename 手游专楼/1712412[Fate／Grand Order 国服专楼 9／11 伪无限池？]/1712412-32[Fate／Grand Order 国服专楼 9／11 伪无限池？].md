@@ -218,3 +218,15 @@
 
 自己现有从者999的井盖终于刷够了。就剩黑灰了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FrozenA  
+##### 47203#       发表于 2025-7-18 11:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">剧情还在2.7，回坑正好遇上狩猎战
+
+80井盖库存补到400了，补到800停吧
+
+这个天赋树是不是前面没刷就是没刷，没有任何追赶机制的
+
