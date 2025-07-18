@@ -937,3 +937,11 @@ CQC-1 唯一真旗 (One True Flag)
 
 纪元算是目前被下毒下得最多的武器了，蓄力、过充自爆、散射、整蛊弹容、站桩换弹，整个使用过程从头到尾全是雷点。不少人说散射修好就能用了，就这爆发力和火力连续性我是不知道要怎么用，总之品鉴过这破烂武器之后对箭头的武器设计已经没有任何想法了，如果没人能力挽狂澜修正设计理念的话到死这都会是一个80%武器装备上不了桌的幽默游戏<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 6852#       发表于 2025-7-18 12:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">武器整这么抽象总不会是怕被说逼氪吧
+
