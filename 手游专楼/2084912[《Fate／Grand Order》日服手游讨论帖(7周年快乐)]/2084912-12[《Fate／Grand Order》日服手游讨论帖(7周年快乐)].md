@@ -723,3 +723,51 @@ thx
 
 这个傻X系统，要是能全队带羁绊礼装解决np问题就能自出两从者爽刷了...
 
+
+*****
+
+####  alucardcz  
+##### 17118#       发表于 2025-7-18 14:14
+
+只要一个改动就行了 像其他游戏一样刷到一次助战就可以用这个一直打下去
+
+但傻逼lxs就是不改
+
+*****
+
+####  森兰丸  
+##### 17119#       发表于 2025-7-18 15:18
+
+ 本帖最后由 森兰丸 于 2025-7-18 15:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68117912&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-18 14:14</a>
+
+只要一个改动就行了 像其他游戏一样刷到一次助战就可以用这个一直打下去
+
+但傻逼lxs就是不改 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就和宝具动画不能跳过没有扫荡一样属于这游戏的底层逻辑了吗
+
+都这么多年了要改早就改了
+
+*****
+
+####  alucardcz  
+##### 17120#       发表于 2025-7-18 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68118240&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-18 15:18</a>
+
+这不就和光炮不能跳过没有扫荡一样属于这游戏的底层逻辑了吗
+
+都这么多年了要改早就改了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">可是这帮傻逼不是出了个连续作战 现在这样子本质和连续作战冲突
+
+
+*****
+
+####  森兰丸  
+##### 17121#       发表于 2025-7-18 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68118256&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-18 15:20</a>
+
+可是这帮傻逼不是出了个连续作战 现在这样子本质和连续作战冲突</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每刷一次能让你少点那么几下节约几秒钟已经是运营大发慈悲了.....要知足!
+
