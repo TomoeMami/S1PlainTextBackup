@@ -800,3 +800,24 @@ thx
 都这么多年了要改早就改了 ...</blockquote>
 你说得对，但是bgo早实装这个改动了
 
+
+*****
+
+####  alucardcz  
+##### 17125#       发表于 2025-7-18 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68119944&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-7-18 20:40</a>
+
+我好友里唯一一个双礼装小太阳下午也换成黑杯了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他意思应该是把黑杯换成了羁绊礼装后没人借了（
+
+*****
+
+####  森兰丸  
+##### 17126#       发表于 2025-7-18 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68119973&amp;ptid=2084912" target="_blank">少女人形 发表于 2025-7-18 20:49</a>
+
+你说得对，但是bgo早实装这个改动了</blockquote>
+不玩BGO不清楚<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
