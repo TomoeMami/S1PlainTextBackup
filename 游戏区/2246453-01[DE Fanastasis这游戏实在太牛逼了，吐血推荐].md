@@ -4620,3 +4620,17 @@ steam有中文吗？
 没，现在只有民间汉化，看这个帖子
 [https://stage1st.com/2b/thread-2244735-1-1.html](https://stage1st.com/2b/thread-2244735-1-1.html)
 
+
+*****
+
+####  Nihlathak  
+##### 418#       发表于 2025-7-18 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68116766&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-18 10:25</a>
+没，现在只有民间汉化，看这个帖子
+
+https://stage1st.com/2b/thread-2244735-1-1.html</blockquote>
+好的谢谢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
