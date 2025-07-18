@@ -12801,3 +12801,14 @@ QQ图片20250718225203.jpg
 
 <img src="https://img.stage1st.com/forum/202507/18/225216bbnmj4jbjkvj2xzk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1221#       发表于 2025-7-18 23:57
+
+ 本帖最后由 usodakedo 于 2025-7-19 00:01 编辑 
+
+不过我还是想说句，如果能再多备一张地图，多两个特殊地形多几个怀旧boss，配合八个历战夜王这几个月持续更新，绝对能王朝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+越玩越觉得这游戏地形、规划和boss这三个元素是相乘级的加成而不是相加，增加任何一方都能很轻易得夺走玩家时间，尤其是像隐城这种设计，这段时间各种讨论，本质是因为它的破序设计的非常好
+
