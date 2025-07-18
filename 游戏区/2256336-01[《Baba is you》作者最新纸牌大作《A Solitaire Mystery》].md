@@ -629,3 +629,11 @@ streak啥意思，不会是连胜吧？</blockquote>
 
 第一次过谋杀推理是蒙中的，还蒙出个成就<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 53#         楼主| 发表于 2025-7-18 15:49
+
+hhh 我暂时卡在了那个合成的规则那里，先去玩蕉力全开了
+
