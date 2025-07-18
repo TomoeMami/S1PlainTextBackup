@@ -189,3 +189,30 @@
 直播最大新闻也就是取消AN装备废除抽选制（原本AN装备保留），变成颜色、属性出力、词条自己任选，kiss技能 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">kiss技能丢天赋树岂不是占被动槽位置。。。。AN装备改成词条能自选而不是纯随机ROLL我看就行了
 
+
+*****
+
+####  不灭的旋律  
+##### 1549#       发表于 2025-7-18 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120392&amp;ptid=2104259" target="_blank">astrayl 发表于 2025-7-18 22:12</a>
+
+kiss技能丢天赋树岂不是占被动槽位置。。。。AN装备改成词条能自选而不是纯随机ROLL我看就行了 ...</blockquote>
+说了会加专用槽。an装备很难出新的而且本身和其他装备不在一个分类容易出bug，去掉很好。以后属性出力能自选多好。
+
+----------------------------------------------------------------
+
+对了直播说了老虎机差评如潮正在修改，但是新版本交给平台审核最快也要下下周。
+
+另外这次半周年送一个必得四星和一个AN
+
+*****
+
+####  astrayl  
+##### 1550#       发表于 2025-7-18 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120476&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-7-18 22:32</a>
+
+说了会加专用槽。an装备很难出新的而且本身和其他装备不在一个分类容易出bug，去掉很好。以后属性出力能 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没看直播，阿金这技术力....要是shi山代码搞不定这也算是个解决办法了
+
