@@ -4575,3 +4575,24 @@ steam版能放大窗口吗，太小了有点费眼</blockquote>
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  瑟莉亚  
+##### 415#       发表于 2025-7-18 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68115790&amp;ptid=2246453" target="_blank">远野乙姬 发表于 2025-7-18 00:33</a>
+
+大概率你下的游戏缺资源
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99</blockquote>
+不是游戏问题，是joiplay的问题，用旧版的就不闪退了。同一个游戏在新版joiplay和在win上显示是一样的，用旧版joiplay就缺了些贴图。估计是新版joiplay能加载的贴图和特效比旧版多，然后某些贴图或者特效的兼容性上有问题导致的神秘错误造成的闪退。例如下面的附件（左边是win的，右边是旧版joiplay的显示画面）。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202507/18/083854quggusa75gs41otj.png" referrerpolicy="no-referrer">
+
+<strong>fa.png</strong> (528.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 08:38 上传
+
