@@ -648,3 +648,38 @@ thx
 
 单体带王哈 光炮用酒吞
 
+
+*****
+
+####  qixinno2  
+##### 17110#       发表于 2025-7-17 18:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">反正我全职介不是没有就是1宝 依然抱大腿就完了 感觉最难打的是骑阶 即没什么强力拐也没什么强力打手
+
+*****
+
+####  alucardcz  
+##### 17111#       发表于 2025-7-17 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68114260&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-17 18:27</a>
+
+反正我全职介不是没有就是1宝 依然抱大腿就完了 感觉最难打的是骑阶 即没什么强力拐也没什么强力打手 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不方 你欧
+
+*****
+
+####  qixinno2  
+##### 17112#       发表于 2025-7-17 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68114367&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-17 18:49</a>
+
+不方 你欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不如狗萌新
+
+*****
+
+####  alucardcz  
+##### 17113#       发表于 2025-7-18 13:20
+
+为什么有的120级5宝黑杯妖兰连倒数第2难度的小怪都a不掉？ 吃瘪好几次了 烦<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
