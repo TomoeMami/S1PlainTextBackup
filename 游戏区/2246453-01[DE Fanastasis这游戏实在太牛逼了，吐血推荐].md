@@ -4606,3 +4606,17 @@ steam有中文吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blueelf  
+##### 417#         楼主| 发表于 2025-7-18 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68116432&amp;ptid=2246453" target="_blank">Nihlathak 发表于 2025-7-18 09:20</a>
+
+steam有中文吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+没，现在只有民间汉化，看这个帖子
+[https://stage1st.com/2b/thread-2244735-1-1.html](https://stage1st.com/2b/thread-2244735-1-1.html)
+
