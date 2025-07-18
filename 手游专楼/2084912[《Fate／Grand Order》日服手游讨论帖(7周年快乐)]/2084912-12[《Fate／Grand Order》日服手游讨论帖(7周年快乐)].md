@@ -779,3 +779,11 @@ thx
 
 试了试，2宝小太阳就算不带黑杯带羁绊加成礼装都能稳定带走两个小怪，给小太阳换上双羁绊礼装了。
 
+
+*****
+
+####  壳壳牛  
+##### 17123#       发表于 2025-7-18 20:40
+
+我好友里唯一一个双礼装小太阳下午也换成黑杯了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
