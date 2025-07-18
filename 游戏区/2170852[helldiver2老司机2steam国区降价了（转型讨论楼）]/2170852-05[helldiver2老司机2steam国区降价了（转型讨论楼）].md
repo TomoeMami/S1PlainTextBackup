@@ -945,3 +945,11 @@ CQC-1 唯一真旗 (One True Flag)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">武器整这么抽象总不会是怕被说逼氪吧
 
+
+*****
+
+####  真红眼教授  
+##### 6853#       发表于 2025-7-18 13:01
+
+纪元就一个站桩换弹就要被类星体完爆了，结果还有那么多别的雷点
+
