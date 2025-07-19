@@ -13740,3 +13740,23 @@ imbatch
 
 —— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ネロ  
+##### 4123#       发表于 2025-7-19 19:16
+
+ 本帖最后由 ネロ 于 2025-7-19 19:18 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/19/191513ilcz10pupikoyukd.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250719_17585200000.jpg</strong> (485.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 19:15 上传
+
+60个小时全成就，我的亚里沙酱，呜呜呜呜<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+金Hentai真不是人！续作能不能给我伊芙专门配备一个同型机啊！
+
