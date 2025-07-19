@@ -100,3 +100,21 @@ moiw快宣吧，我等不及了
 
 普天同庆的时刻，我们OFA的汉化补丁也正式发在游踪区咯
 
+
+*****
+
+####  Unlight  
+##### 7101#         楼主| 发表于 2025-7-19 23:12
+
+我超，876！
+
+<img src="https://img.stage1st.com/forum/202507/19/231221xsbodskfuuffdg1s.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3566.PNG</strong> (152.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 23:12 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
