@@ -996,3 +996,11 @@ CQC-1 唯一真旗 (One True Flag)
 变数也有说法，看很多人都觉得弱是因为轻穿，但实际上哪怕只有轻穿，靠齐射和全弹模式输出就已经相当炸裂， ...</blockquote>
 要么给中穿不用细瞄，要么人机给到50以上能瞄，现在根本不可能在混战中瞄准弱点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 6859#       发表于 2025-7-19 19:44
+
+城市的双人门你传进去都捡不了东西<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
