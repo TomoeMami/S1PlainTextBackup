@@ -13781,3 +13781,27 @@ imbatch
 
 游戏里还没什么感觉，单独听OST的曲量是真大（189首），主要是游戏里播最久的就是废土和沙漠这两张图，而且废土我觉得开塔后不如开塔前的音乐。
 
+
+*****
+
+####  Andariel  
+##### 4126#       发表于 2025-7-19 20:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保护百合那个只盯着进圈的怪打，不进圈的后处理
+当然这关我也是切换了键鼠才过去的，手柄真的是打不过
+
+
+*****
+
+####  naclken.  
+##### 4127#       发表于 2025-7-19 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123485&amp;ptid=1978008" target="_blank">罐子 发表于 2025-7-19 18:15</a>
+
+那个保护百合的关卡，我死活过不去
+
+也是切剧情模式过的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">百合关卡的要点是抓准时机打爆机器人，能起到清屏的效果。
+
+话说nikki小游戏里，脊椎和配件什么的也能生效吗？
+
