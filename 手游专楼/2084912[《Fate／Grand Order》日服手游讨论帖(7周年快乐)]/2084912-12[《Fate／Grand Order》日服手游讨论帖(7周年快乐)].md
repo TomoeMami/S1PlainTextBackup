@@ -871,3 +871,58 @@ EX1：梅针
 
 EX2：果子龙
 
+
+*****
+
+####  壳壳牛  
+##### 17130#       发表于 2025-7-18 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120165&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-18 21:26</a>
+
+他意思应该是把黑杯换成了羁绊礼装后没人借了（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对啊，所以我的好友都换黑杯去挣友情了
+
+*****
+
+####  alucardcz  
+##### 17131#       发表于 2025-7-18 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120360&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-7-18 22:05</a>
+
+对啊，所以我的好友都换黑杯去挣友情了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">可惜了 我5宝但没羁绊礼装 100都没必要了
+
+*****
+
+####  khxooo  
+##### 17132#       发表于 2025-7-19 02:16
+
+ 本帖最后由 khxooo 于 2025-7-19 02:22 编辑 
+
+嗯，想了一下，命定福袋我估计会是这样选：
+
+剑：剑R姐
+
+弓：教授
+
+枪：因陀罗
+
+骑：丁真
+
+术：鹤小姐
+
+杀：爷爷
+
+狂：娄西
+
+EX1：梅贞
+
+EX2：果子龙
+
+*****
+
+####  poor  
+##### 17133#       发表于 2025-7-19 10:56
+
+玛修硬币打狮子王的任务里面，打高文那个是玛修开宝具前打死他还是他开宝具前打死他？
+
