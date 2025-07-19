@@ -13760,3 +13760,16 @@ imbatch
 
 金Hentai真不是人！续作能不能给我伊芙专门配备一个同型机啊！
 
+
+*****
+
+####  xell2alex  
+##### 4124#       发表于 2025-7-19 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123485&amp;ptid=1978008" target="_blank">罐子 发表于 2025-7-19 18:15</a>
+那个保护百合的关卡，我死活过不去
+也是切剧情模式过的</blockquote>
+保护百合讲究不闪不避全靠内力，换成键鼠最大化精准度和输出效率，另外就是需要一些运气<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
