@@ -13620,3 +13620,102 @@ StellarBlade_250717_22404200000.jpg
 
 进了工地那块之后画面一直在闪 跟那种老灯泡一样的感觉 50系笔记本之前的地图都挺正常的，不知道什么原因……
 
+
+*****
+
+####  mirari  
+##### 4119#       发表于 2025-7-19 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120843&amp;ptid=1978008" target="_blank">永恒孤心 发表于 2025-7-18 23:58</a>
+
+找一些格式转换文件可以比较有效的规避曝光情况，虽然总体来说还是有曝光现象但是比你正常截图或者使用win ...</blockquote>
+我之前用的是ImBatch，亮图虽然不容易过曝了，但暗图颜色却显得发灰。
+
+win自带的看图，亮图虽然严重过曝，暗图却表现不错，颜色比jxr更浓郁。
+
+还有用pixpin直接截图，效果是最接近jxr的。但偏偏截图肯定无法接受。
+
+就没有一个通用的解决方案，我再试试image tuner吧……
+
+亮图
+
+pixpin
+
+<img src="https://img.stage1st.com/forum/202507/19/134550mj19l9fw1u99wftq.png" referrerpolicy="no-referrer">
+
+<strong>pixpin.png</strong> (492.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+win
+
+<img src="https://img.stage1st.com/forum/202507/19/134550t535herf9r0fefwq.png" referrerpolicy="no-referrer">
+
+<strong>win.png</strong> (627.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+imbatch
+
+<img src="https://img.stage1st.com/forum/202507/19/134549erzrva1rccri8r0a.png" referrerpolicy="no-referrer">
+
+<strong>imbatch.png</strong> (603.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+暗图
+
+pixpin
+
+<img src="https://img.stage1st.com/forum/202507/19/134635kexvc009j9jep8pj.png" referrerpolicy="no-referrer">
+
+<strong>pixpin.png</strong> (250.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+win
+
+<img src="https://img.stage1st.com/forum/202507/19/134635wbeb0x0zt1hfjb5u.png" referrerpolicy="no-referrer">
+
+<strong>win.png</strong> (676.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+imbatch
+
+<img src="https://img.stage1st.com/forum/202507/19/134635pyu12z1wzxtbjd9b.png" referrerpolicy="no-referrer">
+
+<strong>imbatch.png</strong> (709.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+
+*****
+
+####  mirari  
+##### 4120#       发表于 2025-7-19 13:52
+
+[https://www.nexusmods.com/stellarblade/mods/866](https://www.nexusmods.com/stellarblade/mods/866)
+
+原版伊芙的脸看久了总觉得土味，推荐这个狐狸眼mod，尝尝坏女人的滋味。
+
+<img src="https://img.stage1st.com/forum/202507/19/134955nkjjhj5vmb5smemm.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250719_03410300000.png</strong> (1.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:49 上传
+
