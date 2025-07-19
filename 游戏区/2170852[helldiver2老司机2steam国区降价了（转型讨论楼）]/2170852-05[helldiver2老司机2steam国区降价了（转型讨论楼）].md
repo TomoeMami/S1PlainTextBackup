@@ -985,3 +985,14 @@ CQC-1 唯一真旗 (One True Flag)
 
 变数也有说法，看很多人都觉得弱是因为轻穿，但实际上哪怕只有轻穿，靠齐射和全弹模式输出就已经相当炸裂，如果给到中穿那其他实弹武器都不用上桌了。这枪难用主要是因为逆天人机和子弹初速这两大毒点，满改25人机不用说了，爆裂铳看了都落泪；而子弹初速方面来到了惊人的320m/s（比骑士和野牛还低），阻力系数更是高达60%（同smg），所以这玩意本质上就是个大号冲锋枪，远了打不中打不死就是这个原因<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6858#       发表于 2025-7-19 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123221&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-7-19 17:02</a>
+
+变数也有说法，看很多人都觉得弱是因为轻穿，但实际上哪怕只有轻穿，靠齐射和全弹模式输出就已经相当炸裂， ...</blockquote>
+要么给中穿不用细瞄，要么人机给到50以上能瞄，现在根本不可能在混战中瞄准弱点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
