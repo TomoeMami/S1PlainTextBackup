@@ -926,3 +926,34 @@ EX2：果子龙
 
 玛修硬币打狮子王的任务里面，打高文那个是玛修开宝具前打死他还是他开宝具前打死他？
 
+
+*****
+
+####  白金口袋  
+##### 17134#       发表于 2025-7-19 11:33
+
+578箱可算抽完了，然后又得开始刷冠位战，这俩离得这么近还真有点折磨，说好的废狗是养老游戏呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 17135#       发表于 2025-7-19 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68122066&amp;ptid=2084912" target="_blank">白金口袋 发表于 2025-7-19 11:33</a>
+ 578箱可算抽完了，然后又得开始刷冠位战，这俩离得这么近还真有点折磨，说好的废狗是养老游戏呢  ...</blockquote>
+废狗这游戏就是闲的时候是真闲，忙的时候是真的忙。只能说YLS为首的那群策划根本就是想一出是一出
+
+*****
+
+####  alucardcz  
+##### 17136#       发表于 2025-7-19 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">19箱 的表示确实是养老游戏
+
+*****
+
+####  希望之花  
+##### 17137#       发表于 2025-7-19 16:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑狂各刷了几百池，枪刷不动了
+
