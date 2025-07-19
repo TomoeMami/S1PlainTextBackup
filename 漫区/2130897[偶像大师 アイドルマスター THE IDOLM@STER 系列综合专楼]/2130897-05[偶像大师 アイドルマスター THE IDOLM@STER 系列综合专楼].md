@@ -8,3 +8,11 @@
 
 一般的音乐已经听太多了，只有听长谷川白纸这种的才能提提神，什么时候能出新专啊。
 
+
+*****
+
+####  a1370303  
+##### 7097#       发表于 2025-7-19 20:11
+
+ds居然复活了，香菜和遥老板都回来了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
