@@ -391,3 +391,13 @@ TVアニメ『GATE SEASON2　自衛隊　彼の海にて、斯く戦えり』制
 
 看了眼最新话，直接就是老钟怎么那么坏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是最日幻想
 
+
+*****
+
+####  艾诺琳  
+##### 43#       发表于 2025-7-19 22:07
+
+这片子用现代武器暴打奇幻中世纪挺爽的
+
+这是唯一优点，剩下的都是日本右翼的恶心私货
+
