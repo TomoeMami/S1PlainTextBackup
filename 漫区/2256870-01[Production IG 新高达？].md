@@ -370,3 +370,16 @@ IG这种上市公司还们随便换ceo的么？还是完全没资本关系的外
 IG这种上市公司还们随便换ceo的么？还是完全没资本关系的外人。</blockquote>
 取缔役不是代表取缔役
 
+
+*****
+
+####  ティグル  
+##### 43#       发表于 2025-7-19 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68122387&amp;ptid=2256870" target="_blank">白愁帝皇 发表于 2025-7-19 12:53</a>
+
+代哥这么爱炒作建议也别找神山了，直接找鸭子看他和痞子搭拍一部高达tv能键政到什么程度
+
+—— 来自 S1Fun ...</blockquote>
+鸭嘴兽挺收敛的，神山才是真的味道够冲
+
