@@ -55,3 +55,11 @@
 
 TV版現在畫風精美，但下回已經是完美術式了，就算再趕TV版應該也看不到這本書的稍為核心部份，最多就是其他人在最後一幕路過就算
 
+
+*****
+
+####  k1no  
+##### 97#       发表于 2025-7-19 15:32
+
+第三集Apart看一半就看不下去了，女主观感太差<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
