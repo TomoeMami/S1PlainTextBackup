@@ -88,3 +88,15 @@ MOIW2026，週六會公佈麼...？
 
 moiw快宣吧，我等不及了
 
+
+*****
+
+####  三度音  
+##### 7100#       发表于 2025-7-19 21:37
+
+ 本帖最后由 三度音 于 2025-7-19 21:38 编辑 
+
+<img src="https://imas-ofa.com/images/welcome.jpg" referrerpolicy="no-referrer">
+
+普天同庆的时刻，我们OFA的汉化补丁也正式发在游踪区咯
+
