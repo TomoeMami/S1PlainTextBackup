@@ -411,3 +411,11 @@ TVアニメ『GATE SEASON2　自衛隊　彼の海にて、斯く戦えり』制
 
 —— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  chise20  
+##### 45#       发表于 2025-7-19 22:32
+
+一期二期上映时记得各大在线网站神隐，仅能下载观看。
+
