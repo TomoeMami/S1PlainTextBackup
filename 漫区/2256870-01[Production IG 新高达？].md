@@ -359,3 +359,14 @@ A1干脆来个泥潭最喜 ...</blockquote>
 
 IG这种上市公司还们随便换ceo的么？还是完全没资本关系的外人。
 
+
+*****
+
+####  wasssf  
+##### 42#       发表于 2025-7-19 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123075&amp;ptid=2256870" target="_blank">依然荏苒 发表于 2025-7-19 16:20</a>
+
+IG这种上市公司还们随便换ceo的么？还是完全没资本关系的外人。</blockquote>
+取缔役不是代表取缔役
+
