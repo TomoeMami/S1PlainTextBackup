@@ -13727,3 +13727,16 @@ imbatch
 
 妮基联动游戏好难，只好换回剧情模式，远程防护模块、防护脊柱、鹰眼脊柱统统换上，还让我遇到了SB报错<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 4122#       发表于 2025-7-19 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123229&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-19 17:04</a>
+妮基联动游戏好难，只好换回剧情模式，远程防护模块、防护脊柱、鹰眼脊柱统统换上，还让我遇到了SB报错 ...</blockquote>
+那个保护百合的关卡，我死活过不去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+也是切剧情模式过的
+
+—— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
