@@ -1004,3 +1004,14 @@ CQC-1 唯一真旗 (One True Flag)
 
 城市的双人门你传进去都捡不了东西<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 6860#       发表于 2025-7-19 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123649&amp;ptid=2170852" target="_blank">qwased 发表于 2025-7-19 18:53</a>
+
+要么给中穿不用细瞄，要么人机给到50以上能瞄，现在根本不可能在混战中瞄准弱点 ...</blockquote>
+给中穿齐射模式直接上天（参照爆炸武器给到这个强度其实也没什么问题），考虑到贱头小时候木琴被实弹射杀了所以不太可能给这种增强，比较有可能的是跟修正一样加一波人机<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
