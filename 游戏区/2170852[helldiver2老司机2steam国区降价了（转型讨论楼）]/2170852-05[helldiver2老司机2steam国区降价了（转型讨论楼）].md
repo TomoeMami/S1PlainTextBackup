@@ -1015,3 +1015,13 @@ CQC-1 唯一真旗 (One True Flag)
 要么给中穿不用细瞄，要么人机给到50以上能瞄，现在根本不可能在混战中瞄准弱点 ...</blockquote>
 给中穿齐射模式直接上天（参照爆炸武器给到这个强度其实也没什么问题），考虑到贱头小时候木琴被实弹射杀了所以不太可能给这种增强，比较有可能的是跟修正一样加一波人机<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6861#       发表于 2025-7-19 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68124142&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-7-19 20:32</a>
+给中穿齐射模式直接上天（参照爆炸武器给到这个强度其实也没什么问题），考虑到贱头小时候木琴被实弹射杀 ...</blockquote>
+7发独头弹给中穿其实也就这样吧，比爆炸婆罗门还是差太多了，只是能玩<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在这个样子就没法玩了
+
