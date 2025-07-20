@@ -142,3 +142,30 @@
 
 另外0期生自己今年的周年纪念活动呢？应该还有另外安排吧？
 
+
+*****
+
+####  holofan  
+##### 11110#       发表于 2025-7-19 20:39
+
+<img src="https://img.stage1st.com/forum/202507/19/203923dkncybgdty4ic6l1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 20:39 上传
+
+*****
+
+####  holofan  
+##### 11111#       发表于 2025-7-20 17:54
+
+<img src="https://img.stage1st.com/forum/202507/20/175416urjxkd4gk8rjy59k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (366.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-20 17:54 上传
+
