@@ -395,3 +395,14 @@ Moore's Law is Dead的消息，默认谣言就好。
 那什么时候开始淘汰XSS</blockquote>
 搞不好xss会被ns2捞一手，笑
 
+
+*****
+
+####  ultraseven  
+##### 44#       发表于 2025-7-20 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68126860&amp;ptid=2256883" target="_blank">umbasa 发表于 2025-7-20 13:53</a>
+
+搞不好xss会被ns2捞一手，笑</blockquote>
+不一定。一堆日厂给上PS4的都不给上X1，就出个XSX/S版本
+
