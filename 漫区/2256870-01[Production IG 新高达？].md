@@ -661,3 +661,22 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 说垫的是指庵野担任这贴再结合IG新高达？显得鸡夸是被用来练手给接下来的新高达？引流关注
 
+
+*****
+
+####  王留美  
+##### 69#       发表于 2025-7-21 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68129637&amp;ptid=2256870" target="_blank">kongxian 发表于 2025-7-21 00:21</a>
+
+万代满意骨灰级孝子喜欢又不干扰我看待一部作品。转进万代作何？财团b特派员？
+
+说垫的是指庵野担任这贴再结 ...</blockquote>
+万代日升在主观上没拿GQ来垫，GQ就不是被拿来垫的作品
+
+就好比黄金魂和the Beginning，你能说黄金魂神圣衣卖好卖满卖到爆而TB大暴死所以TB就是拿来垫的吗？
+
+恰恰相反，东映做黄金魂就是纯粹给万代卖玩具的，TB则是自信满满的好莱坞特效大作，从主观上而言黄金魂才是那个垫子
+
+GQ是一个道理
+
