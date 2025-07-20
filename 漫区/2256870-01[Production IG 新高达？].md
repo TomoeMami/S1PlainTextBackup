@@ -624,3 +624,30 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 原创世界观的也好，或者一些独立世界观的续作（X、W世界观），别魔改uc就行了。
 
+
+*****
+
+####  stmule  
+##### 66#       发表于 2025-7-20 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68122387&amp;ptid=2256870" target="_blank">白愁帝皇 发表于 2025-7-19 12:53</a>
+代哥这么爱炒作建议也别找神山了，直接找鸭子看他和痞子搭拍一部高达tv能键政到什么程度
+
+—— 来自 S1Fun ...</blockquote>
+那应该拍基连暗杀计划，多塞点开会内容<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王留美  
+##### 67#       发表于 2025-7-20 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68128587&amp;ptid=2256870" target="_blank">kongxian 发表于 2025-7-20 20:54</a>
+ 好吧，我觉得至少不会比鸡夸这种官方meme还下限的，这么看来鸡夸就是拿来垫的。除非以后出现比短视频还下沉 ...</blockquote>
+你觉得GQ是拿来垫的吗？
+我看日升万代怕不是很满意哦
+小形P明确说了立项的时候鹤卷给了两个方案，日升自己选的现在这个，因为太有趣了，不拍出来后悔一辈子
+
+除了和庵野卡拉有私人恩怨的个别几个人之外，全日本的骨灰级敢达宅都喜欢的不得了，现在这样子怕不就是他们要的效果呢
+
