@@ -571,3 +571,15 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 董事要负法律责任，真捞一把就走当个顾问不就行了
 
+
+*****
+
+####  VictorWJ  
+##### 61#       发表于 2025-7-20 19:04
+
+ 本帖最后由 VictorWJ 于 2025-7-20 19:06 编辑 
+
+还是给岛哥哥拍吧，万一给高达奶出来了呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
