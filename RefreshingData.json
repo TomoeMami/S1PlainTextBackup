@@ -10436,7 +10436,7 @@
     "newtitle": "[《雄狮少年》真是远超预期的好看]",
     "lastedit": 1752792607,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1922423": {
@@ -16119,10 +16119,10 @@
     "update": false
   },
   "2256950": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[热搜第一！高铁不让吃方便面了？]",
     "newtitle": "[热搜第一！高铁不让吃方便面了？]",
-    "lastedit": 1753043888,
+    "lastedit": 1753051807,
     "category": "外野",
     "active": true,
     "update": false
@@ -16268,6 +16268,15 @@
     "newtitle": "[哈德逊研究所：美国应采取九大步骤，在中国崩溃后接管政权]",
     "lastedit": 1753051448,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2084808": {
+    "totalreply": 329,
+    "title": "[怪兽8号 动画化 2024年4月 制作：Production I.G]",
+    "newtitle": "[怪兽8号 动画化 2024年4月 制作：Production I.G]",
+    "lastedit": 1753051939,
+    "category": "漫区",
     "active": true,
     "update": false
   }
