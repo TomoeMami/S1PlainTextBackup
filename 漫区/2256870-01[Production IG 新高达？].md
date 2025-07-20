@@ -595,3 +595,11 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kongxian  
+##### 63#       发表于 2025-7-20 20:54
+
+好吧，我觉得至少不会比鸡夸这种官方meme还下限的，这么看来鸡夸就是拿来垫的。除非以后出现比短视频还下沉的载体
+
