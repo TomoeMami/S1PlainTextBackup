@@ -603,3 +603,14 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 好吧，我觉得至少不会比鸡夸这种官方meme还下限的，这么看来鸡夸就是拿来垫的。除非以后出现比短视频还下沉的载体
 
+
+*****
+
+####  无动于衷  
+##### 64#       发表于 2025-7-20 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68125119&amp;ptid=2256870" target="_blank">g救世主高达 发表于 2025-7-19 23:21</a>
+
+不管做的好坏总好比一直占着茅坑不拉屎，不用2d用一劣质3d机器人闪哈还能憋五年才做出来，现在日升产能太 ...</blockquote>
+那代孙干脆以后就每年全世界范围内招标做高达得了 什么京阿尼 PA WORKS 动画工房 狗汉斯 啥的都给我投标去 
+
