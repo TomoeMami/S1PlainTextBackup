@@ -691,3 +691,14 @@ hhh 我暂时卡在了那个合成的规则那里，先去玩蕉力全开了
 
 成就里面数这个320分最难，同时要求运气、技术和时间，连胜10次打这个成就顺便就做了，不用专门刷
 
+
+*****
+
+####  lilod  
+##### 57#         楼主| 发表于 2025-7-20 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68128012&amp;ptid=2256336" target="_blank">jacket 发表于 2025-7-20 19:17</a>
+
+成就里面数这个320分最难，同时要求运气、技术和时间，连胜10次打这个成就顺便就做了，不用专门刷</blockquote>
+这个确实挺难做的，需要一点开局的运气
+
