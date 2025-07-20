@@ -5062,3 +5062,18 @@ https://www.zhihu.com/question/15634897648/answer/1893105665758692622
 突然魂电之后幸运青开始的英雄都串联起来了</blockquote>
 因为是一家公司的吧
 
+
+*****
+
+####  新HGCG  
+##### 412#       发表于 2025-7-20 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68125924&amp;ptid=2125794" target="_blank">bbjajdd 发表于 2025-7-20 09:12</a>
+
+因为是一家公司的吧</blockquote>
+萝莉是FOMO
+
+默杀是MG啊
+
+女王幸运青小强是一家
+

@@ -522,3 +522,15 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 —— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  saico  
+##### 57#       发表于 2025-7-20 11:20
+
+<blockquote>Licheus 发表于 2025-7-20 03:58
+同一帮60-65岁离创作出自己代表作已经过去了20年以上的老登来来回回地折腾，能整得出啥子唷。
+
+—— 来自 S ...</blockquote>
+招聘悖论：本公司需要有5年以上相关工作经验的应届生
+
