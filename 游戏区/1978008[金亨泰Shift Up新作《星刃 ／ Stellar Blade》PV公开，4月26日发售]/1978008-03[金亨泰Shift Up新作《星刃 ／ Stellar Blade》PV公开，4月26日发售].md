@@ -13827,3 +13827,20 @@ https://www.bilibili.com/video/BV1QPggzdEqq
 这还有人专门拿来当跑酷游戏玩的</blockquote>
 Eidos 9居然还有这么多岔路
 
+
+*****
+
+####  RainbowSealife  
+##### 4130#       发表于 2025-7-20 21:18
+
+红莲：伊芙啊，你果然是希雍跑娘呐，你太baby了！这一大飞脚嗷，好悬没给我斗笠踹开线了！<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 
+<img src="https://images.steamusercontent.com/ugc/18378551898073082510/2A72D0728B1D2CD3323F7BA708F278A3446F8E7B/" height="450" id="aimg_yybtR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10738979053038940753/84573BEE0C45EFDD1CA5F1B13F4A7B2F15C32687/" height="450" id="aimg_WN0Mu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13866120568446768026/FDA736B6BBC8A5346404B0D5C6D1D8DE4E50E13E/" height="450" id="aimg_iq2L9" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/16626264047306305405/5A9F76BAC03DE7B4BDF31FDBE2B56CB8696CB9B8/" height="450" id="aimg_C7qCo" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/16926428656066577722/982E5FD9A2AFA3814E95E85B0EE6F961F3DE3827/" height="450" id="aimg_i1tHv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/17956752115266276712/7584AF9B294F3571C65B13485838D756D3837F5A/" height="450" id="aimg_ijuF0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10765765589468576401/B13D87C1465A91C6C00654D9827CDFEFBA941941/" height="450" id="aimg_hDWS7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+讲个笑话，beyond曼恩打不过渡鸦，你真是希雍第一演技派<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
