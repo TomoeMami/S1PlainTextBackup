@@ -512,3 +512,13 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 不如让鸭嘴兽搞部全共斗高达
 
+
+*****
+
+####  鵝  
+##### 56#       发表于 2025-7-20 10:43
+
+整那本三nt大战伊迪安吧，也算高达？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
