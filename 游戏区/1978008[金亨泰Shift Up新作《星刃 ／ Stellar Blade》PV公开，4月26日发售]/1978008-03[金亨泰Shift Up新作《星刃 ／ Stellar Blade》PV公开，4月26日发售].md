@@ -13844,3 +13844,12 @@ Eidos 9居然还有这么多岔路
 
 讲个笑话，beyond曼恩打不过渡鸦，你真是希雍第一演技派<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  武蔵  
+##### 4131#       发表于 2025-7-20 21:56
+
+钓了一晚上鲸鲨最大只有19848，有没有20000以上的让我瞎一下
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
