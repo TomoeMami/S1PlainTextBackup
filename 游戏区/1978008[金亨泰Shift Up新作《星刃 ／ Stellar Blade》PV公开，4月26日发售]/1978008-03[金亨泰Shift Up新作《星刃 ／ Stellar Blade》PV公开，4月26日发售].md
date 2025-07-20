@@ -13805,3 +13805,13 @@ imbatch
 
 话说nikki小游戏里，脊椎和配件什么的也能生效吗？
 
+
+*****
+
+####  江戸前ルナ  
+##### 4128#       发表于 2025-7-20 08:58
+
+[https://www.bilibili.com/video/BV1QPggzdEqq](https://www.bilibili.com/video/BV1QPggzdEqq)
+
+这还有人专门拿来当跑酷游戏玩的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
