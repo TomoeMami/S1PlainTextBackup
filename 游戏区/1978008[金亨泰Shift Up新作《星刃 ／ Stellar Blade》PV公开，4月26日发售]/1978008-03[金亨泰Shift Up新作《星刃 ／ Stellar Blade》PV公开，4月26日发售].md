@@ -13853,3 +13853,11 @@ Eidos 9居然还有这么多岔路
 钓了一晚上鲸鲨最大只有19848，有没有20000以上的让我瞎一下
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 4132#       发表于 2025-7-20 22:27
+
+之前黑神话见过有人做出来BOSS互殴斗蛐蛐的，剑星现在也已经有几个姐姐的召唤MOD。不知道啥时候有人能做一个曼恩VS不明孽奇拨斗蛐蛐让大家观赏下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
