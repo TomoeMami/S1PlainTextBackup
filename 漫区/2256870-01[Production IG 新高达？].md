@@ -546,3 +546,18 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 看来代孙终于知道不自己做才是最好的
 
+
+*****
+
+####  leleq  
+##### 59#       发表于 2025-7-20 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68126382&amp;ptid=2256870" target="_blank">kenqqex 发表于 2025-7-20 11:40</a>
+
+不止是动画 ip
+
+现在学马 永恒 也是给cy的兄弟公司做的
+
+看来代孙终于知道不自己做才是最好的 ...</blockquote>
+别急就这情况cy的高达在排队了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
