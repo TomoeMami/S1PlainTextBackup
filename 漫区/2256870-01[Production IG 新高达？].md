@@ -561,3 +561,13 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 看来代孙终于知道不自己做才是最好的 ...</blockquote>
 别急就这情况cy的高达在排队了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cherrykbd  
+##### 60#       发表于 2025-7-20 12:41
+
+ 本帖最后由 cherrykbd 于 2025-7-20 12:43 编辑 
+
+董事要负法律责任，真捞一把就走当个顾问不就行了
+
