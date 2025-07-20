@@ -427,3 +427,14 @@ TVアニメ『GATE SEASON2　自衛隊　彼の海にて、斯く戦えり』制
 
 这片只记得哥特洛丽塔萝莉bba了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  终极答案42  
+##### 47#       发表于 2025-7-20 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68047902&amp;ptid=2255590" target="_blank">gold013 发表于 2025-7-5 07:17</a>
+
+原作第一部是怎么完结的？我就记得后来带着法师妹子去哪个城市做学术答辩，碰上帝国刺客啥的，我记得驻扎在 ...</blockquote>
+穿越门不稳定，地球这边知道后就集体撤军，在异世界娶了老婆的几个留下了，最后男主走种田的门路开了个自家私用的小门
+
