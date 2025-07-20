@@ -534,3 +534,15 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 —— 来自 S ...</blockquote>
 招聘悖论：本公司需要有5年以上相关工作经验的应届生
 
+
+*****
+
+####  kenqqex  
+##### 58#       发表于 2025-7-20 11:40
+
+不止是动画 ip
+
+现在学马 永恒 也是给cy的兄弟公司做的
+
+看来代孙终于知道不自己做才是最好的
+
