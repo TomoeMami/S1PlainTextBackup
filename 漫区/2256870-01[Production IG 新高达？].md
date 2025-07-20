@@ -583,3 +583,15 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 62#       发表于 2025-7-20 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123709&amp;ptid=2256870" target="_blank">无动于衷 发表于 2025-7-19 19:06</a>
+代孙是不是铁了心把高达这个ip扔给别家公司刷成就用了</blockquote>
+不是说50周年前算上真人版起码一年一部填线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
