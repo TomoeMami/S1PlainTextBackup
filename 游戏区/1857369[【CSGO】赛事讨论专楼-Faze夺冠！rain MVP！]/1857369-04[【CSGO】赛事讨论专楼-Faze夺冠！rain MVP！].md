@@ -58,3 +58,30 @@
 
 后面只要稳住各种直邀
 
+
+*****
+
+####  TI三冠王AME  
+##### 4772#       发表于 2025-7-21 01:46
+
+一切的一切都要从tyloo赢了ef那个bo3说起呀，hoho
+
+*****
+
+####  斯卡雷特  
+##### 4773#       发表于 2025-7-21 01:48
+
+我们是冠军！<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+科隆再接再厉，不求多好的成绩，打出自己的水平！
+
+
+*****
+
+####  Cushaw  
+##### 4774#       发表于 2025-7-21 01:53
+
+🦌冠王朝
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
