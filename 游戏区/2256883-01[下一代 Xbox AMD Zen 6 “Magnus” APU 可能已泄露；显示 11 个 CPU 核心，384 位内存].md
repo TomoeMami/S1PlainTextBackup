@@ -374,3 +374,14 @@ Moore's Law is Dead的消息，默认谣言就好。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  clyde-wang  
+##### 42#       发表于 2025-7-20 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68126179&amp;ptid=2256883" target="_blank">csolfans 发表于 2025-7-20 10:42</a>
+谁还记得当时官方公开PS5浮点对标RTX2080公版，XSX浮点对标RTX2080super
+那时候就开始谣传主机卖1000美刀</blockquote>
+可惜PS VR2出得早死得早，要是和PS5 pro一起出，我感觉这个世代可以看到套装900刀的售价
+
