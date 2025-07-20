@@ -680,3 +680,11 @@ MGGA, MAKE GUNDAM GREAT AGAIN<img src="https://static.stage1st.com/image/smiley/
 
 GQ是一个道理
 
+
+*****
+
+####  Soyo  
+##### 70#       发表于 2025-7-21 03:07
+
+为什么会都觉得是高达，ig并不是没有自己的机器人IP和机器人制作团队，法芙娜这个IP和igzwei这个厂牌还留在production i.g呢
+
