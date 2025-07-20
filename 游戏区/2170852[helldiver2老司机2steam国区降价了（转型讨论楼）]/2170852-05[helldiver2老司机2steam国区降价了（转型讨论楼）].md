@@ -1025,3 +1025,12 @@ CQC-1 唯一真旗 (One True Flag)
 给中穿齐射模式直接上天（参照爆炸武器给到这个强度其实也没什么问题），考虑到贱头小时候木琴被实弹射杀 ...</blockquote>
 7发独头弹给中穿其实也就这样吧，比爆炸婆罗门还是差太多了，只是能玩<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在这个样子就没法玩了
 
+
+*****
+
+####  unsh  
+##### 6862#       发表于 2025-7-20 18:50
+
+这俩天打机器人用了下变数，太痛苦了
+手柄玩家夕阳红枪法经常一管都打不死盾哥<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">瞄半天都被烧成熟人了
+
