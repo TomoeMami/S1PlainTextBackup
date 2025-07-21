@@ -65663,3 +65663,25 @@ JAL和全日空（ANA）想都别想！  
 之前坐出租车三小时，  
 简直要命。真的。  
 
+
+*****
+
+####  术士q  
+##### 19205#       发表于 2025-7-22 00:20
+
+ 本帖最后由 术士q 于 2025-7-22 00:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134471&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-21 23:23</a>
+最后有说啥嘛，录播被静音了</blockquote>
+t台的话好像没什么吧，就是打打那个小游戏就下播了，印象里就是偶尔提到"【【放弃lol怎么样】（读评论），如果我不去依赖lol的话就去依赖男人了哦，那样的话做出来的直播效果也不好的"这样之类的
+
+然后就是打完小游戏下播了，印象里没什么特别的，毕竟本来也就是打算玩会就睡
+
+*****
+
+####  sino__unnko3  
+##### 19206#       发表于 2025-7-22 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134471&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-21 23:23</a>
+最后有说啥嘛，录播被静音了</blockquote>
+标号203的帖子
+
