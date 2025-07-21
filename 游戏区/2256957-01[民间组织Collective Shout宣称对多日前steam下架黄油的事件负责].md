@@ -437,3 +437,22 @@ VICE的文章2存档（指出该组织支持审查制度并质疑其目的）
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  洛亚替身  
+##### 43#       发表于 2025-7-21 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68133935&amp;ptid=2256957" target="_blank">狼影者瑞德克斯 发表于 2025-7-21 20:51</a>
+
+怎么游戏宅男被激进派艹过又被劳保艹啊</blockquote>
+因为两边都视自己意识形态，宗教观点是纯洁且超越的，
+
+而滋生普罗大众的喜好且热爱的事物的土壤，乃至大众本身都是需要提纯，监督，扭转甚至颠覆，最终被转化。
+
+近代好莱坞乃至世界电影从基督教保守监督到自由派思想植入，左派人士渗透影响，更不用说老派原始，靠笔与纸诞生的文字书籍了。
+
+现在游戏宅男反而应该感恩（笑），
+
+因为至少游戏开发商一半不在乎乱七八糟的各类思潮，另一半刚刚开始回归勃勃生机，万物竞发的你中有我，魔法对轰意识形态大混操<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
