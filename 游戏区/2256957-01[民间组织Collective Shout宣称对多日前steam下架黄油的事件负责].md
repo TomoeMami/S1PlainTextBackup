@@ -425,3 +425,15 @@ VICE的文章2存档（指出该组织支持审查制度并质疑其目的）
 
 人人有狗洞大师做<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tissuesea  
+##### 42#       发表于 2025-7-21 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68131286&amp;ptid=2256957" target="_blank">scpmth 发表于 2025-7-21 11:14</a>
+信用卡商为什么要鸟她？steam每年几十亿刀的流水还是大量走跨国支付的完美佣金肥羊说不要就不要？ ...</blockquote>
+信用卡商可太愿意参与这种事了，它就是要卡你让你不能做它觉得不行的事情
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
