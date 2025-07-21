@@ -147,3 +147,29 @@ t1级别的冠军啊<img src="https://static.stage1st.com/image/smiley/face2017/
 
 牛逼, 看了前面三张图, 图三以为G了没看全
 
+
+*****
+
+####  朔方原的星  
+##### 4782#         楼主| 发表于 2025-7-21 12:56
+
+dev1ce：儿子啊，爸老了让你失望了，拿不下冠军和mvp了
+玩🐷：我草dev1ce，还好你死了！
+
+
+*****
+
+####  heseran  
+##### 4783#       发表于 2025-7-21 13:01
+
+A队整场下来呼吸rating最高吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 4784#       发表于 2025-7-21 13:03
+
+0721🦌冠王朝也太变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
