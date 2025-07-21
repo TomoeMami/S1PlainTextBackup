@@ -67096,3 +67096,24 @@ alic.go.jp
 
 那段挺整蛊和好玩的，zerost拍得和证件照一样（）
 
+
+*****
+
+####  sino__unnko3  
+##### 19216#       发表于 2025-7-22 02:35
+
+有时间戳和截图吗
+
+
+*****
+
+####  术士q  
+##### 19217#       发表于 2025-7-22 02:41
+
+ 本帖最后由 术士q 于 2025-7-22 02:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134954&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-7-22 02:35</a>
+有时间戳和截图吗</blockquote>
+zerost正脸大头照的话是在shaka视角7:40:21，然后咩是把zerost单独切出来的，然后这段往事大概也是那附近的，好像是和朋友一起看的?
+
+咩这边的视角提及这段就只是聊天，没放什么
+
