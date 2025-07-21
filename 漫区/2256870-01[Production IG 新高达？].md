@@ -751,3 +751,32 @@ GQ是一个道理
 
 以前有吉姆王和扎古王，要不拍部高达王吧，Gqux最后的巨大化高达可以参考<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  takayama  
+##### 78#       发表于 2025-7-21 18:08
+
+来跟这位网右老保宅一样赌一个最不可能的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/925aef28506af176a78cd9d496dd9e54/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  创始’’’天翔  
+##### 79#       发表于 2025-7-21 18:11
+
+<blockquote>takayama 发表于 2025-7-21 18:08
+来跟这位网右老保宅一样赌一个最不可能的
+
+</blockquote>
+mahoroba是啥
+
+*****
+
+####  ballantines  
+##### 80#       发表于 2025-7-21 18:11
+
+IG当年也是做eva的
+
