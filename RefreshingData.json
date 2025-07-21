@@ -6296,7 +6296,7 @@
     "newtitle": "[A&amp;I 战舰少女R 游戏讨论帖 舰队问答—猎犬战役7月31日 15：00结束]",
     "lastedit": 1752854771,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2012027": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 177553,
+    "totalreply": 177554,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1753111449,
+    "lastedit": 1753114088,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 19712,
+    "totalreply": 19713,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1753111215,
+    "lastedit": 1753114089,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 169805,
+    "totalreply": 169824,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1753113380,
+    "lastedit": 1753113969,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11358,10 +11358,10 @@
     "update": false
   },
   "2150456": {
-    "totalreply": 329,
+    "totalreply": 330,
     "title": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
     "newtitle": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
-    "lastedit": 1753082298,
+    "lastedit": 1753113970,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15192,10 +15192,10 @@
     "update": false
   },
   "2256757": {
-    "totalreply": 587,
+    "totalreply": 588,
     "title": "[余杭的自来水被污染了]",
     "newtitle": "[余杭的自来水被污染了]",
-    "lastedit": 1753112050,
+    "lastedit": 1753113728,
     "category": "外野",
     "active": true,
     "update": false
@@ -15332,7 +15332,7 @@
     "newtitle": "[「孤独摇滚!」作者滨路晶 ​​​游杭州西湖，看起来很享受]",
     "lastedit": 1752854651,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2256806": {
@@ -15404,7 +15404,7 @@
     "newtitle": "[哈萨克斯坦网红在中国街头栽赃路人 与同伙在广州街头随机诬陷路人为“小偷”]",
     "lastedit": 1752854290,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2256838": {
@@ -15525,10 +15525,10 @@
     "update": false
   },
   "2256885": {
-    "totalreply": 94,
+    "totalreply": 95,
     "title": "[老美近二十年有啥正经成功的新研武器吗？]",
     "newtitle": "[老美近二十年有啥正经成功的新研武器吗？]",
-    "lastedit": 1753113380,
+    "lastedit": 1753113970,
     "category": "外野",
     "active": true,
     "update": false
@@ -16034,6 +16034,15 @@
     "newtitle": "[现在的诈骗太可怕了]",
     "lastedit": 1753112775,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1999748": {
+    "totalreply": 318,
+    "title": "[怀旧PC游戏资源下载集合帖]",
+    "newtitle": "[怀旧PC游戏资源下载集合帖]",
+    "lastedit": 1753113622,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
