@@ -477,3 +477,17 @@ STEAM早前的禁止「可能違反支付處理商標準的內容」，就是以
 
 但對2次元就說三道四的嚴重雙標來
 
+
+*****
+
+####  砖头擦屁股  
+##### 45#       发表于 2025-7-22 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134374&amp;ptid=2256957" target="_blank">eilot 发表于 2025-7-21 22:45</a>
+幾十億刀但受到的可能「壓力」愈來愈大
+
+如pXXnhub那個已經惹來麻煩
+
+Visa 和 Mastercard 也怕了各種可能的 ...</blockquote>
+真人成人内容本质上还是一种转移支付，但二次元则是男性内部的自给自足，集美们没法从中分到一杯羹，自然要大加批判<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
