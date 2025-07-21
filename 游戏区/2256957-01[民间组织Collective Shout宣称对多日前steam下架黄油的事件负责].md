@@ -456,3 +456,24 @@ VICE的文章2存档（指出该组织支持审查制度并质疑其目的）
 
 因为至少游戏开发商一半不在乎乱七八糟的各类思潮，另一半刚刚开始回归勃勃生机，万物竞发的你中有我，魔法对轰意识形态大混操<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 44#       发表于 2025-7-21 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68131286&amp;ptid=2256957" target="_blank">scpmth 发表于 2025-7-21 11:14</a>
+
+信用卡商为什么要鸟她？steam每年几十亿刀的流水还是大量走跨国支付的完美佣金肥羊说不要就不要？ ...</blockquote>
+幾十億刀但受到的可能「壓力」愈來愈大
+
+如pXXnhub那個已經惹來麻煩
+
+Visa 和 Mastercard 也怕了各種可能的麻煩(擔心用來洗黑錢...)也愈來愈收緊對成人遊戲商的支付
+
+STEAM早前的禁止「可能違反支付處理商標準的內容」，就是以似是疑非的手段，能隨時先斬後奏來避免受到「政確」的壓力
+
+歐美就是對成人真人比較寬，就算是高中生背景的真人劇玩毒品及成人派對都沒問題(學生演員只要是大人即可)
+
+但對2次元就說三道四的嚴重雙標來
+
