@@ -13861,3 +13861,327 @@ Eidos 9居然还有这么多岔路
 
 之前黑神话见过有人做出来BOSS互殴斗蛐蛐的，剑星现在也已经有几个姐姐的召唤MOD。不知道啥时候有人能做一个曼恩VS不明孽奇拨斗蛐蛐让大家观赏下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  naclken.  
+##### 4133#       发表于 2025-7-18 15:14
+
+为什么开大箱子的时候照相功能无法触发？<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4134#       发表于 2025-7-18 23:02
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-7-18 23:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68118208&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-18 15:14</a>
+
+为什么开大箱子的时候照相功能无法触发？</blockquote>
+我瞎猜的是，系统在极少数的演出场景会和拍照界面的调用有冲突，我举个例子，上下梯子时随时可以拍照，但是在“爬上梯子顶端人物跳上去的一瞬间”这个动作发生时就不行。
+
+但奇怪的是，早期的一些大箱子(主要是艾多7号、荒地的一些)开箱时就可以拍照，照理说开箱动作本身是固定的，要么都行要么都不行，挺谜的
+
+*****
+
+####  永恒孤心  
+##### 4135#       发表于 2025-7-18 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120611&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-18 23:02</a>
+
+我瞎猜的是，系统在极少数的演出场景会和拍照界面的调用有冲突，我举个例子，上下梯子时随时可以拍照，但 ...</blockquote>
+所有解谜类型的箱子都是不能进拍照模式的，要么截图，所有攀爬动作到终点的那次跳跃不管是绳子还是楼梯都不行，我一开始就想试试拍这个动作了，结果拍不了。
+
+*****
+
+####  永恒孤心  
+##### 4136#       发表于 2025-7-18 23:58
+
+ 本帖最后由 永恒孤心 于 2025-7-19 00:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68088085&amp;ptid=1978008" target="_blank">mirari 发表于 2025-7-12 17:35</a>
+
+游戏里的截图工具，截图格式是jxr，保存为png时会过曝，有什么工具可以解决吗 ...</blockquote>
+找一些格式转换文件可以比较有效的规避曝光情况，虽然总体来说还是有曝光现象但是比你正常截图或者使用windows预览的时候直接另存为PNG格式的曝光可算是轻微太多了，我用的是Image Tuner转的PNG，情况好很多；
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4137#       发表于 2025-7-19 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120710&amp;ptid=1978008" target="_blank">永恒孤心 发表于 2025-7-18 23:22</a>
+
+所有解谜类型的箱子都是不能进拍照模式的，要么截图，所有攀爬动作到终点的那次跳跃不管是绳子还是楼梯都 ...</blockquote>
+因为呼出拍照界面时会强制取消(或回溯)部分物理效果/特效，所以我觉得是少部分强制演出和拍照的机制有点冲突。
+
+然后解谜动作(站立托腮)确实不行，但弯腰开箱子这个动作单拿出来<strong>有时</strong>是可以的，游戏前段个别可以直接开的箱子开箱时是可以拍照的，后边就都不行了，所以我说有点谜，可能是个别箱子判定不一样吧。
+
+*****
+
+####  永恒孤心  
+##### 4138#       发表于 2025-7-19 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120956&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-7-19 00:34</a>
+
+因为呼出拍照界面时会强制取消(或回溯)部分物理效果/特效，所以我觉得是少部分强制演出和拍照的机制有点 ...</blockquote>
+因为有些大箱子不需要解密啊，所以可以拍照<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy199696  
+##### 4139#       发表于 2025-7-19 09:30
+
+进了工地那块之后画面一直在闪 跟那种老灯泡一样的感觉 50系笔记本之前的地图都挺正常的，不知道什么原因……
+
+*****
+
+####  mirari  
+##### 4140#       发表于 2025-7-19 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68120843&amp;ptid=1978008" target="_blank">永恒孤心 发表于 2025-7-18 23:58</a>
+
+找一些格式转换文件可以比较有效的规避曝光情况，虽然总体来说还是有曝光现象但是比你正常截图或者使用win ...</blockquote>
+我之前用的是ImBatch，亮图虽然不容易过曝了，但暗图颜色却显得发灰。
+
+win自带的看图，亮图虽然严重过曝，暗图却表现不错，颜色比jxr更浓郁。
+
+还有用pixpin直接截图，效果是最接近jxr的。但偏偏截图肯定无法接受。
+
+就没有一个通用的解决方案，我再试试image tuner吧……
+
+亮图
+
+pixpin
+
+<img src="https://img.stage1st.com/forum/202507/19/134550mj19l9fw1u99wftq.png" referrerpolicy="no-referrer">
+
+<strong>pixpin.png</strong> (492.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+win
+
+<img src="https://img.stage1st.com/forum/202507/19/134550t535herf9r0fefwq.png" referrerpolicy="no-referrer">
+
+<strong>win.png</strong> (627.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+imbatch
+
+<img src="https://img.stage1st.com/forum/202507/19/134549erzrva1rccri8r0a.png" referrerpolicy="no-referrer">
+
+<strong>imbatch.png</strong> (603.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:45 上传
+
+暗图
+
+pixpin
+
+<img src="https://img.stage1st.com/forum/202507/19/134635kexvc009j9jep8pj.png" referrerpolicy="no-referrer">
+
+<strong>pixpin.png</strong> (250.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+win
+
+<img src="https://img.stage1st.com/forum/202507/19/134635wbeb0x0zt1hfjb5u.png" referrerpolicy="no-referrer">
+
+<strong>win.png</strong> (676.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+imbatch
+
+<img src="https://img.stage1st.com/forum/202507/19/134635pyu12z1wzxtbjd9b.png" referrerpolicy="no-referrer">
+
+<strong>imbatch.png</strong> (709.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:46 上传
+
+*****
+
+####  mirari  
+##### 4141#       发表于 2025-7-19 13:52
+
+[https://www.nexusmods.com/stellarblade/mods/866](https://www.nexusmods.com/stellarblade/mods/866)
+
+原版伊芙的脸看久了总觉得土味，推荐这个狐狸眼mod，尝尝坏女人的滋味。
+
+<img src="https://img.stage1st.com/forum/202507/19/134955nkjjhj5vmb5smemm.png" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250719_03410300000.png</strong> (1.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 13:49 上传
+
+*****
+
+####  心灵的乳头  
+##### 4142#       发表于 2025-7-19 17:04
+
+妮基联动游戏好难，只好换回剧情模式，远程防护模块、防护脊柱、鹰眼脊柱统统换上，还让我遇到了SB报错<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罐子  
+##### 4143#       发表于 2025-7-19 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123229&amp;ptid=1978008" target="_blank">心灵的乳头 发表于 2025-7-19 17:04</a>
+妮基联动游戏好难，只好换回剧情模式，远程防护模块、防护脊柱、鹰眼脊柱统统换上，还让我遇到了SB报错 ...</blockquote>
+那个保护百合的关卡，我死活过不去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+也是切剧情模式过的
+
+—— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ネロ  
+##### 4144#       发表于 2025-7-19 19:16
+
+ 本帖最后由 ネロ 于 2025-7-19 19:21 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/19/192112tmpvv9yaas241iee.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250719_17553700000.jpg</strong> (340.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 19:21 上传
+
+<img src="https://img.stage1st.com/forum/202507/19/192111wpsp5gosdfmob8ov.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250713_00574300000.jpg</strong> (307.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 19:21 上传
+
+<img src="https://img.stage1st.com/forum/202507/19/191513ilcz10pupikoyukd.jpg" referrerpolicy="no-referrer">
+
+<strong>StellarBlade_250719_17585200000.jpg</strong> (485.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-19 19:15 上传
+
+60个小时全成就，我的亚里沙酱，呜呜呜呜<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+金Hentai真不是人！续作能不能给我伊芙专门配备一个同型机啊！
+
+*****
+
+####  xell2alex  
+##### 4145#       发表于 2025-7-19 19:32
+
+ 本帖最后由 xell2alex 于 2025-7-19 19:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123485&amp;ptid=1978008" target="_blank">罐子 发表于 2025-7-19 18:15</a>
+那个保护百合的关卡，我死活过不去
+也是切剧情模式过的</blockquote>
+保护百合讲究不闪不避全靠内力，换成键鼠最大化精准度和输出效率，另外就是需要一些运气<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+大招的释放时机个场景里出现的几个聚怪小机器人很重要，但我也说不出名堂属于反复重开稀里糊涂就过了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mhss  
+##### 4146#       发表于 2025-7-19 19:37
+
+游戏里还没什么感觉，单独听OST的曲量是真大（189首），主要是游戏里播最久的就是废土和沙漠这两张图，而且废土我觉得开塔后不如开塔前的音乐。
+
+*****
+
+####  Andariel  
+##### 4147#       发表于 2025-7-19 20:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保护百合那个只盯着进圈的怪打，不进圈的后处理
+当然这关我也是切换了键鼠才过去的，手柄真的是打不过
+
+*****
+
+####  naclken.  
+##### 4148#       发表于 2025-7-19 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123485&amp;ptid=1978008" target="_blank">罐子 发表于 2025-7-19 18:15</a>
+
+那个保护百合的关卡，我死活过不去
+
+也是切剧情模式过的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">百合关卡的要点是抓准时机打爆机器人，能起到清屏的效果。
+
+话说nikki小游戏里，脊椎和配件什么的也能生效吗？
+
+*****
+
+####  江戸前ルナ  
+##### 4149#       发表于 2025-7-20 08:58
+
+[https://www.bilibili.com/video/BV1QPggzdEqq](https://www.bilibili.com/video/BV1QPggzdEqq)
+
+这还有人专门拿来当跑酷游戏玩的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snailium  
+##### 4150#       发表于 2025-7-20 09:32
+
+<blockquote>江戸前ルナ 发表于 2025-7-20 08:58
+https://www.bilibili.com/video/BV1QPggzdEqq
+
+这还有人专门拿来当跑酷游戏玩的</blockquote>
+Eidos 9居然还有这么多岔路
+
+*****
+
+####  RainbowSealife  
+##### 4151#       发表于 2025-7-20 21:18
+
+红莲：伊芙啊，你果然是希雍跑娘呐，你太baby了！这一大飞脚嗷，好悬没给我斗笠踹开线了！<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 
+<img src="https://images.steamusercontent.com/ugc/18378551898073082510/2A72D0728B1D2CD3323F7BA708F278A3446F8E7B/" height="450" id="aimg_d6m9c" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10738979053038940753/84573BEE0C45EFDD1CA5F1B13F4A7B2F15C32687/" height="450" id="aimg_JfxJj" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/13866120568446768026/FDA736B6BBC8A5346404B0D5C6D1D8DE4E50E13E/" height="450" id="aimg_yj1hU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/16626264047306305405/5A9F76BAC03DE7B4BDF31FDBE2B56CB8696CB9B8/" height="450" id="aimg_vFqEA" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/16926428656066577722/982E5FD9A2AFA3814E95E85B0EE6F961F3DE3827/" height="450" id="aimg_E7DD9" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/17956752115266276712/7584AF9B294F3571C65B13485838D756D3837F5A/" height="450" id="aimg_VBE04" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/10765765589468576401/B13D87C1465A91C6C00654D9827CDFEFBA941941/" height="450" id="aimg_fdVvl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+讲个笑话，beyond曼恩打不过渡鸦，你真是希雍第一演技派<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  武蔵  
+##### 4152#       发表于 2025-7-20 21:56
+
+钓了一晚上鲸鲨最大只有19848，有没有20000以上的让我瞎一下
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 4153#       发表于 2025-7-20 22:27
+
+之前黑神话见过有人做出来BOSS互殴斗蛐蛐的，剑星现在也已经有几个姐姐的召唤MOD。不知道啥时候有人能做一个曼恩VS不明孽奇拨斗蛐蛐让大家观赏下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネロ  
+##### 4154#       发表于 2025-7-21 08:45
+
+曼恩这吊人伤害真看不懂
+被BOSS无伤，打我就重拳出击是吧
+
