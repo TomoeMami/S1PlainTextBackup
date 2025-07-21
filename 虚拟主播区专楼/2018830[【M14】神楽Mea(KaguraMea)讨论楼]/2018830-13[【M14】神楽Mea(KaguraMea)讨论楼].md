@@ -67084,3 +67084,15 @@ alic.go.jp
 
 线下看ljl和zerost拍过合照
 
+
+*****
+
+####  术士q  
+##### 19215#       发表于 2025-7-22 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134905&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-7-22 01:42</a>
+线下看ljl和zerost拍过合照</blockquote>
+应该是很久以前的事情了，当时zerost还在打职业的样子，今天咩拿出来然后切出照片后zerost都忘了是在哪里
+
+那段挺整蛊和好玩的，zerost拍得和证件照一样（）
+
