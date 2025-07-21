@@ -173,3 +173,13 @@ A队整场下来呼吸rating最高吗<img src="https://static.stage1st.com/image
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Azit  
+##### 4785#       发表于 2025-7-21 18:54
+
+诸葛带不动姓刘的剧情太符合我的世界观了
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
