@@ -735,3 +735,19 @@ GQ是一个道理
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑哥啥时改密码  
+##### 76#       发表于 2025-7-21 17:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer"> 恶心死了
+
+
+*****
+
+####  失落之翼  
+##### 77#       发表于 2025-7-21 17:13
+
+以前有吉姆王和扎古王，要不拍部高达王吧，Gqux最后的巨大化高达可以参考<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
