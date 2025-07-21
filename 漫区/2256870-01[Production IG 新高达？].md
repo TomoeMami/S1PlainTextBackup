@@ -704,3 +704,16 @@ GQ是一个道理
 
 可太期待PA拍高达了，一集一个旅游景点，N角恋拉满。剧本当然还是冈妈，她算熟练工
 
+
+*****
+
+####  saico  
+##### 73#       发表于 2025-7-21 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68129989&amp;ptid=2256870" target="_blank">Soyo 发表于 2025-7-21 03:07</a>
+
+有点莫名其妙，为什么会都觉得是高达，就因为庵野当了i.g集团子公司的董事？机器人sf就能联想到高达是不是 ...</blockquote>
+主要是2026年还配称为“超大型SF ROBO作品”的系列作品已经屈指可数了
+
+当然你可以说曰本人就是爱吹，什么都可以说是超大型，那说不定还是纯原创企划呢……
+
