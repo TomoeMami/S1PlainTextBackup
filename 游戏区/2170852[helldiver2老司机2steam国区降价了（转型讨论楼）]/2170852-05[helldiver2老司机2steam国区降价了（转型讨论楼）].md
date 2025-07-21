@@ -1109,3 +1109,11 @@ CQC-1 唯一真旗 (One True Flag)
 还有飞扑传送之类的小技巧用着反馈十足，好玩<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 另外这次更新把客机火焰dot无伤害的bug弄回来了，电榴弹/眩晕弹主手的停止力也遭殃，客机别玩这些
 
+
+*****
+
+####  qwased  
+##### 6871#       发表于 2025-7-22 03:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看到个把七管当成跳包用的，确实有思路
+
