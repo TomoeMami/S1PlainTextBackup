@@ -1175,3 +1175,11 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 蹭到了肥狗的展位，不过看介绍，就只是展示下谷子而已<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 113#       发表于 2025-7-22 23:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">ns版到时候ns2可别主机模式没有高分，我们月球凯子也是有人权的
+
