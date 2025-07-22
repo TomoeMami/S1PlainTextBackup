@@ -1141,3 +1141,11 @@ CQC-1 唯一真旗 (One True Flag)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保科智子  
+##### 6874#       发表于 2025-7-22 10:12
+
+解包说有轨道照明弹战备，可以端上来了罢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

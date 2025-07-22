@@ -798,3 +798,16 @@ IG当年也是做eva的
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  王留美  
+##### 83#       发表于 2025-7-22 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68133615&amp;ptid=2256870" target="_blank">猪突猛进R 发表于 2025-7-21 19:28</a>
+
+霍霍完了高达去霍霍大和号吗</blockquote>
+福井也霍霍过，没事啦
+
+就是能找木村拓哉来配音古代进吗？
+
