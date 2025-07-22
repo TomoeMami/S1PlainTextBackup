@@ -1095,3 +1095,11 @@ db68e2504a9fa55e.jpg
 
 都快忘了还有这游戏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——裂锦——  
+##### 106#       发表于 2025-7-22 10:39
+
+上半年没消息就猜到今年发售大概率没戏了。说是全语音录音排期问题导致延迟，希望这期间再把游戏本体打磨一下。
+

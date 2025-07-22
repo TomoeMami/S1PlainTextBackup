@@ -1149,3 +1149,15 @@ CQC-1 唯一真旗 (One True Flag)
 
 解包说有轨道照明弹战备，可以端上来了罢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 6875#       发表于 2025-7-22 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68135229&amp;ptid=2170852" target="_blank">Variks 发表于 2025-7-22 08:30</a>
+用鹰眼、大勤勉、训斥、主宰这些中穿武器打了很长一段时间机器人，昨天因为穿了防火甲的原因，试着换了双刃 ...</blockquote>
+提醒我了，打喷火旅一直穿的防火中，确实适合带双刃镰
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
