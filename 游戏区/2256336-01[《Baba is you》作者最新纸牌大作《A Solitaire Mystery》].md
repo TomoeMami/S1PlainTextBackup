@@ -718,3 +718,20 @@ hhh 我暂时卡在了那个合成的规则那里，先去玩蕉力全开了
 
 中午又试了一下 Transformation 那个规则，还是没有玩明白
 
+
+*****
+
+####  jacket  
+##### 60#       发表于 2025-7-22 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68137136&amp;ptid=2256336" target="_blank">lilod 发表于 2025-7-22 14:10</a>
+
+中午又试了一下 Transformation 那个规则，还是没有玩明白</blockquote>
+合体方案不唯一，执行过程也有一定自由度。
+
+提前想一个合体方案，记下来，然后对着写好的方案一条一条打勾执行即可。
+
+这个玩法的特点是体量大，容错限制在一定范围。
+
+提前记下来不超出容错范围就能成功，光靠脑子记哪个合过没合过容易出错。
+
