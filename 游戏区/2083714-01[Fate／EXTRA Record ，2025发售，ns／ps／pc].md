@@ -1112,3 +1112,21 @@ db68e2504a9fa55e.jpg
 延期真是一点都不意外，甚至难产都不意外
 没这个能力知道吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 108#       发表于 2025-7-22 12:00
+
+ 本帖最后由 岸浪白野 于 2025-7-22 12:01 编辑 
+
+因为是新納一哉出来自己说的哎呀路人都配音的全语音剧情，第一次安排这样的日程没有安排好没想到配音居然花了很多时间<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202507/22/115932nq1r9ft0nz1vygnp.png" referrerpolicy="no-referrer">
+
+<strong>UY}IB$}[[P4XW9ZU07(R86H.png</strong> (126.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-22 11:59 上传
+
