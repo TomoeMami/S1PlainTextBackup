@@ -28,3 +28,14 @@
 —— 来自 realme RMX3706, Android 13, 鹅球 v3.5. ...</blockquote>
 鬼子封境外氪金那法律本来就是全平台 早就不能用了吧
 
+
+*****
+
+####  冰风血羽  
+##### 1555#       发表于 2025-7-22 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68139382&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-7-22 21:22</a>
+
+鬼子封境外氪金那法律本来就是全平台 早就不能用了吧</blockquote>
+遗憾，毕竟1200円250石头还是挺香的
+
