@@ -1148,3 +1148,14 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 其实这游戏（曾经）是国产游戏。
 
+
+*****
+
+####  whzfjd  
+##### 111#       发表于 2025-7-22 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68136667&amp;ptid=2083714" target="_blank">violettor 发表于 2025-7-22 12:39</a>
+
+其实这游戏（曾经）是国产游戏。</blockquote>
+（曾经）打算做成手游吗
+
