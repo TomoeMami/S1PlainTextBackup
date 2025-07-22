@@ -1159,3 +1159,19 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 其实这游戏（曾经）是国产游戏。</blockquote>
 （曾经）打算做成手游吗
 
+
+*****
+
+####  zechins  
+##### 112#       发表于 2025-7-22 14:27
+
+<img src="https://img.stage1st.com/forum/202507/22/142713zyn9e9qtyhlzyykz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (513.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-22 14:27 上传
+
+蹭到了肥狗的展位，不过看介绍，就只是展示下谷子而已<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
