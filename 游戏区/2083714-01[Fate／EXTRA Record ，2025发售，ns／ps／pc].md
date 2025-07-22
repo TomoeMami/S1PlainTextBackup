@@ -1140,3 +1140,11 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 — from OnePlus CPH2583, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  violettor  
+##### 110#       发表于 2025-7-22 12:39
+
+其实这游戏（曾经）是国产游戏。
+
