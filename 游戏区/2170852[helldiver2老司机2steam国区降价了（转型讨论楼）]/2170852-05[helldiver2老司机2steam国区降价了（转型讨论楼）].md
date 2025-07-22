@@ -1117,3 +1117,11 @@ CQC-1 唯一真旗 (One True Flag)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看到个把七管当成跳包用的，确实有思路
 
+
+*****
+
+####  Variks  
+##### 6872#       发表于 2025-7-22 08:30
+
+用鹰眼、大勤勉、训斥、主宰这些中穿武器打了很长一段时间机器人，昨天因为穿了防火甲的原因，试着换了双刃镰刀，哇高人机功效、大弹容、低后座太爽了，对比下来中穿武器各种下毒，真的陷阱
+
