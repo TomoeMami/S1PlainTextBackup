@@ -16,3 +16,15 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wilkyway  
+##### 1554#       发表于 2025-7-22 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68138201&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-7-22 17:07</a>
+这个氪金网页，不能用国内的visa？我绑定一直说有问题
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5. ...</blockquote>
+鬼子封境外氪金那法律本来就是全平台 早就不能用了吧
+
