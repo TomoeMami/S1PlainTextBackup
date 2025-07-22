@@ -2527,3 +2527,18 @@ rfm的2nd比起1st編排得好爛()進步只有發了場控螢光手環
 
 没想到持有同样想法的不止我一个，这能传到舞元耳朵里目测鬼子那边也有不少ange煤壁论者了
 
+
+*****
+
+####  艾特娜  
+##### 1420#       发表于 2025-7-22 10:16
+
+今年除了神速大家都强，反过来说依然有可能一个运气不好安洁迅速两败<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 1421#       发表于 2025-7-22 10:20
+
+vshojo炸箱了啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
