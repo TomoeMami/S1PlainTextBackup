@@ -2542,3 +2542,11 @@ rfm的2nd比起1st編排得好爛()進步只有發了場控螢光手環
 
 vshojo炸箱了啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Harunoharu  
+##### 1422#       发表于 2025-7-22 15:12
+
+岩永现在还负责vshojo日本分部吗，要不还是回来吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
