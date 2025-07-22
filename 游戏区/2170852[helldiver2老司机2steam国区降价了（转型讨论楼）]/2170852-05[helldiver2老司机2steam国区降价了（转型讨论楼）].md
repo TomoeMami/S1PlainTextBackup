@@ -1198,3 +1198,14 @@ CQC-1 唯一真旗 (One True Flag)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FLZB  
+##### 6880#       发表于 2025-7-22 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68137844&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2025-7-22 16:11</a>
+
+为什么城市夜战这么黑，我之前还听人讲，农村和城市最大的区别是夜生活霓虹灯呢，这城里大晚上比野外黑多了 ...</blockquote>
+箭头最新力作，解放战城市大停电<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
