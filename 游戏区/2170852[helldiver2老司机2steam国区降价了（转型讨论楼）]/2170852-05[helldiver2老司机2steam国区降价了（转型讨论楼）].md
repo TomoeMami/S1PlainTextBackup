@@ -1220,3 +1220,13 @@ CQC-1 唯一真旗 (One True Flag)
 更新内容估计早做好了，到8月配合XBX上线整个大更。之前还有说有和战锤40K联动的链锯剑。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">链锯剑那个不是老假图了，这两天不知道怎么被B站的人翻出来弄了个标题党视频
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6882#       发表于 2025-7-22 18:51
+
+dss都资敌了荣都还搁这放暑假呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
