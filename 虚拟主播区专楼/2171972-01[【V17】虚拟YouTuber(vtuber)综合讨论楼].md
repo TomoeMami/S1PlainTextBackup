@@ -2585,3 +2585,11 @@ PLAVE JP 1ST SINGLE かくれんぼ 两周226875
 韩团太可疑了。
 这种购买量粉丝活跃度完全没有<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 1426#       发表于 2025-7-22 20:21
+
+2024年9月开始vsj救开始欠钱了，拖了快一年了
+
