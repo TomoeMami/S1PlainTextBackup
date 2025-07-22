@@ -1130,3 +1130,13 @@ db68e2504a9fa55e.jpg
 
 2025-7-22 11:59 上传
 
+
+*****
+
+####  被子十三  
+##### 109#       发表于 2025-7-22 12:24
+
+FSR的语音量也很不小吧，为什么光荣这么快能做好
+
+— from OnePlus CPH2583, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
