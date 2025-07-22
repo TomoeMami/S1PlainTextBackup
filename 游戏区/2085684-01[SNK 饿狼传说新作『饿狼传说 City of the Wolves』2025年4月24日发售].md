@@ -40,3 +40,11 @@
 
 说到底，一个200人游戏，给你加上主机端凑个整500好了，讲本质不就是你说这个谁懂啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  F458  
+##### 535#       发表于 2025-7-22 09:51
+
+瑛太居然要去美国EVO打饿狼？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
