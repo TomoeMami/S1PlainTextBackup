@@ -1209,3 +1209,14 @@ CQC-1 唯一真旗 (One True Flag)
 为什么城市夜战这么黑，我之前还听人讲，农村和城市最大的区别是夜生活霓虹灯呢，这城里大晚上比野外黑多了 ...</blockquote>
 箭头最新力作，解放战城市大停电<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 6881#       发表于 2025-7-22 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68136229&amp;ptid=2170852" target="_blank">nukecole 发表于 2025-7-22 11:31</a>
+
+更新内容估计早做好了，到8月配合XBX上线整个大更。之前还有说有和战锤40K联动的链锯剑。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">链锯剑那个不是老假图了，这两天不知道怎么被B站的人翻出来弄了个标题党视频
+
