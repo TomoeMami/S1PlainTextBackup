@@ -811,3 +811,16 @@ IG当年也是做eva的
 
 就是能找木村拓哉来配音古代进吗？
 
+
+*****
+
+####  takayama  
+##### 84#       发表于 2025-7-23 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68133615&amp;ptid=2256870" target="_blank">猪突猛进R 发表于 2025-7-21 19:28</a>
+
+霍霍完了高达去霍霍大和号吗</blockquote>
+已经有大文豪在当宇宙战舰大和号2199续集的续集的续集3199当总监督了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然之前已经霍霍过松本零士的哈洛克了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
