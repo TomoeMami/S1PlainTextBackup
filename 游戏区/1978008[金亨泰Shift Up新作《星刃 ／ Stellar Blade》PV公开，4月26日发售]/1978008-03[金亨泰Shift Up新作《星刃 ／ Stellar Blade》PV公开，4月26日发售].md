@@ -14185,3 +14185,20 @@ Eidos 9居然还有这么多岔路
 曼恩这吊人伤害真看不懂
 被BOSS无伤，打我就重拳出击是吧
 
+
+*****
+
+####  永远的访客  
+##### 4155#       发表于 2025-7-23 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68140079&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-22 23:09</a>
+
+第二周目不牵手结局通关，喷了。我看这么讨论说亚当姆是马克斯，我一直没在剧情里见到还以为是在不牵手结局 ...</blockquote>
+别提伏笔了，这游戏能把想说的结局说明白就烧高香了
+
+我是勉强看懂牵手+百合幸存结局=百合拯救xion，neo eve因为是孽奇拔合体xion人肯定接受不了，选择隐退
+
+但是啥叫eve计划游戏里没说，是从adam/eve的名字猜出来的；牵手了应该算计划成功了为啥母主是宣布计划中止外加送人过来砍neo eve又是莫名其妙，至于adam这种名字过于巧合能猜是剧中人给自己改过名字
+
+总之主打一个连蒙带猜还猜不明白，明明台词都是大白话却连起来逻辑莫名其妙<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

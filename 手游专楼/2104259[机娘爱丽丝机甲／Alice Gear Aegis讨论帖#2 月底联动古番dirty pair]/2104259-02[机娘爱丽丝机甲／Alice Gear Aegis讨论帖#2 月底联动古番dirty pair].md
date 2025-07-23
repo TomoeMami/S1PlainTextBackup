@@ -47,3 +47,11 @@
 
 还是支持一下阿金吧，ST选了个小鸟。AN真是剩下的都是选了也不会怎么上的，不买了……
 
+
+*****
+
+####  madcow  
+##### 1557#       发表于 2025-7-23 10:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">宁里想要，但是抽完an京姐一票也没了
+
