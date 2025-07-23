@@ -1259,3 +1259,14 @@ CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器
 箭头最新力作，解放战城市大停电</blockquote>
 牢光：你看，我们占领的城市就不停电，拿自己的飞船发电给你们提供照明，还有小东方明珠和电塔给你提供温暖，还不快谢谢牢光<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保科智子  
+##### 6886#       发表于 2025-7-23 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68137844&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2025-7-22 16:11</a>
+
+为什么城市夜战这么黑，我之前还听人讲，农村和城市最大的区别是夜生活霓虹灯呢，这城里大晚上比野外黑多了 ...</blockquote>
+一个细节，抵抗入侵的星球还有电有平民。解放战就是全黑，只有seaf和冻肉了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

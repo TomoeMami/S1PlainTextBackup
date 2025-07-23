@@ -14202,3 +14202,20 @@ Eidos 9居然还有这么多岔路
 
 总之主打一个连蒙带猜还猜不明白，明明台词都是大白话却连起来逻辑莫名其妙<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 4156#       发表于 2025-7-23 11:53
+
+迅驰模式设计的太失败了，平砍都能无限硬直导致其他花里胡哨的招式根本没有存在价值
+
+*****
+
+####  Andariel  
+##### 4157#       发表于 2025-7-23 11:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">剧情建议放弃思考，金亨泰都说了是妥协的结果
+
+还是看看2代能不能上点心圆一圆设定吧.....
+
