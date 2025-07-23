@@ -14219,3 +14219,14 @@ Eidos 9居然还有这么多岔路
 
 还是看看2代能不能上点心圆一圆设定吧.....
 
+
+*****
+
+####  naclken.  
+##### 4158#       发表于 2025-7-23 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68142466&amp;ptid=1978008" target="_blank">妄想中毒 发表于 2025-7-23 11:53</a>
+
+迅驰模式设计的太失败了，平砍都能无限硬直导致其他花里胡哨的招式根本没有存在价值 ...</blockquote>
+变身没有任何韧性不等于白变了，只能用削韧弥补了。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
