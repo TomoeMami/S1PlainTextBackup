@@ -824,3 +824,11 @@ IG当年也是做eva的
 
 当然之前已经霍霍过松本零士的哈洛克了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gawain039  
+##### 85#       发表于 2025-7-23 22:51
+
+会有飞碟社的高达吗，打斗拉满加上索尼三美的oped，直接卖到八万八
+
