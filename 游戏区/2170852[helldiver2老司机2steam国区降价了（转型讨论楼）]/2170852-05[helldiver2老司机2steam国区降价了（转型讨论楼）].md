@@ -1238,3 +1238,24 @@ dss都资敌了荣都还搁这放暑假呢
 
 好像又出新bug了，碰到两把三缺一加进去原橙色房主退了的房，加载到一半游戏就会崩溃
 
+
+*****
+
+####  xinfengj  
+##### 6884#       发表于 2025-7-23 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68138423&amp;ptid=2170852" target="_blank">madcow 发表于 2025-7-22 17:42</a>
+
+链锯剑那个不是老假图了，这两天不知道怎么被B站的人翻出来弄了个标题党视频 ...</blockquote>
+CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器的人说在搞了，终极近战武器是链锯剑
+
+*****
+
+####  xinfengj  
+##### 6885#       发表于 2025-7-23 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68138326&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-7-22 17:28</a>
+
+箭头最新力作，解放战城市大停电</blockquote>
+牢光：你看，我们占领的城市就不停电，拿自己的飞船发电给你们提供照明，还有小东方明珠和电塔给你提供温暖，还不快谢谢牢光<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
