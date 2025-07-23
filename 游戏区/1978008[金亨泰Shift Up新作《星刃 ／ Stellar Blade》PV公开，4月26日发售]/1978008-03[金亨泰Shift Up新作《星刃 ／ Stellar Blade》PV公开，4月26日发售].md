@@ -14252,3 +14252,13 @@ Eidos 9居然还有这么多岔路
 怕不是那几个早把 ...</blockquote>
 不是，救人的那个cut已经不是被刺的场景了，是类似下水道抛尸的地方准备肢解了，边上那些尸体是以前被肢解的空降小队
 
+
+*****
+
+####  妄想中毒  
+##### 4161#       发表于 2025-7-23 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68142753&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-23 12:30</a>
+变身没有任何韧性不等于白变了，只能用削韧弥补了。</blockquote>
+可以加攻击力加角色机动性啊，现在这设计变身直接无脑平A到结束
+
