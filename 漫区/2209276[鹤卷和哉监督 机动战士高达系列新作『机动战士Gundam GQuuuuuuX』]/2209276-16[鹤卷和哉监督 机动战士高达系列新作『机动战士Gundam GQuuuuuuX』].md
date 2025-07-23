@@ -43,3 +43,16 @@ http://tieba.baidu.com/p/9894127453
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  灵魂收割机  
+##### 23108#       发表于 2025-7-23 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68142408&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-7-23 11:46</a>
+
+http://tieba.baidu.com/p/9894127453
+
+我是懒得花钱，正好刷到贴吧有人转载了光头相关部分，等一个有 ...</blockquote>
+大江户战士在NGA发翻译了，就这点内容。
+
