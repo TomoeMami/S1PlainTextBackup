@@ -14262,3 +14262,23 @@ Eidos 9居然还有这么多岔路
 变身没有任何韧性不等于白变了，只能用削韧弥补了。</blockquote>
 可以加攻击力加角色机动性啊，现在这设计变身直接无脑平A到结束
 
+
+*****
+
+####  永远的访客  
+##### 4162#       发表于 2025-7-23 15:15
+
+脑补变身本来可以增加悬浮滑翔之类机动动作，又能耍帅又体现机体性能提高，后来想到用这个可以无脑穿越各种跳跳乐所以估计因为对关卡设计影响太大只能抛弃<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这翅膀就当是装饰得了，或许续作会有真正的设计考虑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 4163#       发表于 2025-7-23 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68143626&amp;ptid=1978008" target="_blank">妄想中毒 发表于 2025-7-23 14:41</a>
+
+可以加攻击力加角色机动性啊，现在这设计变身直接无脑平A到结束</blockquote>
+而且还刮痧，说真的伤害确实不够，一场变两次还差不多。
+
