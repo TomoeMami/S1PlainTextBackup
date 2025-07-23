@@ -832,3 +832,14 @@ IG当年也是做eva的
 
 会有飞碟社的高达吗，打斗拉满加上索尼三美的oped，直接卖到八万八
 
+
+*****
+
+####  暗黑能乐  
+##### 86#       发表于 2025-7-23 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68146273&amp;ptid=2256870" target="_blank">gawain039 发表于 2025-7-23 22:51</a>
+
+会有飞碟社的高达吗，打斗拉满加上索尼三美的oped，直接卖到八万八</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">鬼灭还两部，genshin还没影儿，哪来的时间做其他作品
+
