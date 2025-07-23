@@ -14282,3 +14282,13 @@ Eidos 9居然还有这么多岔路
 可以加攻击力加角色机动性啊，现在这设计变身直接无脑平A到结束</blockquote>
 而且还刮痧，说真的伤害确实不够，一场变两次还差不多。
 
+
+*****
+
+####  jacket  
+##### 4164#       发表于 2025-7-23 19:02
+
+[https://www.bilibili.com/video/BV1SUghzjEn6/](https://www.bilibili.com/video/BV1SUghzjEn6/)
+
+看慢放才发现打轨道电梯boss最后插天灵盖用的是迅驰武器，这从哪掏出来的？
+
