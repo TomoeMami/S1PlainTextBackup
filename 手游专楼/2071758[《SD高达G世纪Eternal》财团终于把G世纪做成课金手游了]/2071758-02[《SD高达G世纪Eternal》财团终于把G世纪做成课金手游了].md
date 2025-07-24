@@ -293,3 +293,15 @@ ssr的攻击机用攻击机师
 
 主角船阵容很好配了。
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2289#       发表于 2025-7-24 20:33
+
+ 本帖最后由 螺旋的小夜曲 于 2025-7-24 20:34 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">有没有SP机体节奏榜，不知不觉赞了300
+
+（目前已SP的有S高达，WZ，艾比安，SR自由，异端金）
+
