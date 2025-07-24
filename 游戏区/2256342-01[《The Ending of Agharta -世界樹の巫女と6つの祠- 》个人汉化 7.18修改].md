@@ -735,3 +735,27 @@ SQ08那个七步飞是啥意思 搜了好像是将棋 但是看不懂</blockquot
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DrIsaac  
+##### 52#       发表于 2025-7-24 23:46
+
+楼主有空的话修一下游戏帮助里面的计算公式吧。应该是ai汉化的时候吞掉了
+
+<img src="https://img.stage1st.com/forum/202507/24/234508r7ktvaaltkazu66d.png" referrerpolicy="no-referrer">
+
+<strong>汉化.png</strong> (90.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-24 23:45 上传
+
+<img src="https://img.stage1st.com/forum/202507/24/234507ojzgn14neys041sq.png" referrerpolicy="no-referrer">
+
+<strong>原文.png</strong> (88.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-24 23:45 上传
+
