@@ -351,3 +351,19 @@ ssr的攻击机用攻击机师
 
 我自己是sp了精扎，ex5、7能打主力，还靠他补伤过了ex1的吉翁成就
 
+
+*****
+
+####  一个陆仁贾  
+##### 2293#       发表于 2025-7-24 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68152264&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-24 20:33</a>
+有没有SP机体节奏榜，不知不觉赞了300
+
+（目前已SP的有S高达，WZ，艾比安，SR自由，异端金）
+
+ ...</blockquote>
+风灵改咯，抄永恒之路作业也能用到
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
