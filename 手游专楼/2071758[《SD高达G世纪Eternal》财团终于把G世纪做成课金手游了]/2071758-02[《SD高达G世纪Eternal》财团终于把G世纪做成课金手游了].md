@@ -158,3 +158,27 @@ Z+海牛  本赛季的MVP
 我是一星妖 ...</blockquote>
 那不就是你运气好？我98%的命中都miss过，更别提支援攻击那一堆80%90%的，抱怨一下命中恶心人不知道你在这里说啥
 
+
+*****
+
+####  Znesmoc  
+##### 2277#       发表于 2025-7-24 14:28
+
+盾海牛都没sp就砍到18w了
+感觉卡池狗才是真的狗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  螺旋的小夜曲  
+##### 2278#       发表于 2025-7-24 14:29
+
+<img src="https://img.stage1st.com/forum/202507/24/142911lodgg68pfpad6687.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250724-142845.jpg</strong> (564.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-24 14:29 上传
+
+收工
+
