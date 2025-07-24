@@ -6,3 +6,19 @@
 
 你游更新了几个G，又可以攒武士井了（不过大更之下，必有bug<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  Flechette  
+##### 467#       发表于 2025-7-24 18:12
+
+法师试炼，初级和中级比较简单，高级嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关底是妖精+奇美拉，妖精大概3000血，奇美拉大概有6000血，高概率二动。打死一个另一个会狂暴，伤害提高+三、四动，必须控血击杀
+
+试了试给BOSS上1级的睡眠混乱都上不去，禁魔可上但妖精会射魅惑箭所以最好别上。BOSS会有比较高的概率给自己清debuff，所以还得有一个人每回合上debuff消耗boss的一次行动
+
+和前两个难度一样BOSS的命中拉得很高，我堆了130的回避躲不了一下，不如堆防御和法防
+
+因为很容易就打成拉锯战，所以最好带上转过僧侣的法师/喂了治疗法术的法师
+
