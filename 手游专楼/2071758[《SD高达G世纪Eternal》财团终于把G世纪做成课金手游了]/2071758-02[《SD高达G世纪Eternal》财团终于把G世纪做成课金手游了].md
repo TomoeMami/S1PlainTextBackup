@@ -130,3 +130,18 @@ Z+海牛  本赛季的MVP
 
 没有电光船靠拉克丝带一击必杀队外挂海牛葵曼莎也乱打15万 真的是海牛乱杀
 
+
+*****
+
+####  rockroxas  
+##### 2275#       发表于 2025-7-24 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68144776&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-7-23 17:30</a>
+
+我是不知道你什么box啦，反正我的贫瘠box可做不到。ex7集火下方g3高达时，只要有一个miss主攻手的夏亚高 ...</blockquote>
+直接找全开发作业用UR机替代一部分应该不难吧，毕竟主要是用必中的MAP把上路清掉，输出有余的
+
+我是一星妖刀所以一台大扎姆就过了，不知道0星差多少（全开发作业都是两台大扎姆）
+
+只有开头打G3需要SL
+

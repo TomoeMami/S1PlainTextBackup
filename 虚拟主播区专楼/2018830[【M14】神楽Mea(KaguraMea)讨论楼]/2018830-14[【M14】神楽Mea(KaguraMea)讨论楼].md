@@ -127,3 +127,17 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">以及bro下面这段话疑似有点走火入魔了，认真的吗，勾踢踢歪这件事是男友找私人侦探查出轨，但是一但变成天狗的话就是粉丝找私人侦探开盒偶像，性质完全不一样，mea早几年不是还收到一些乱七八糟的东西和死亡威胁吗，这些就只能从咩自己作为neta说出来，其他人都不行
 
+
+*****
+
+####  sino__unnko3  
+##### 19251#       发表于 2025-7-24 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68149481&amp;ptid=2018830" target="_blank">术士q 发表于 2025-7-24 13:14</a>
+说起这个的话，我记得mea是在24年年底和犬山哥的一次联动时说过"目前为止好像没被朋友背叛过...应该是"
+
+ ...</blockquote>
+没事反正我们这边发癫她也看不到(不是)当然是戏谈，但还是会感叹一下你咩不把话有时效性的说清楚
+
+应该是日积月累吧，某mid的话，这个月在t台还说是因为火锅事件而最终决定分手
+
