@@ -247,3 +247,27 @@ Z+海牛  本赛季的MVP
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chivalry  
+##### 2285#       发表于 2025-7-24 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151089&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-7-24 17:07</a>
+我遇到三攻两支援的配置把我虐了
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+攻击机用攻击机师还是支援机师
+
+*****
+
+####  一个陆仁贾  
+##### 2286#       发表于 2025-7-24 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151098&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-7-24 17:08</a>
+攻击机用攻击机师还是支援机师</blockquote>
+ur都是用对应机师（强自、自由ex）
+ssr的攻击机用攻击机师
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
