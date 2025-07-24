@@ -499,3 +499,21 @@ Visa 和 Mastercard 也怕了各種可能的 ...</blockquote>
 
 连Itch都受到了影响<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggghhtjjjfla  
+##### 47#       发表于 2025-7-24 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68134797&amp;ptid=2256957" target="_blank">砖头擦屁股 发表于 2025-7-22 00:44</a>
+
+真人成人内容本质上还是一种转移支付，但二次元则是男性内部的自给自足，集美们没法从中分到一杯羹，自然 ...</blockquote>
+不是有女声优赚一笔了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 48#       发表于 2025-7-24 14:50
+
+外国不禁枪，有没有极端份子去把她们突突了？
+
