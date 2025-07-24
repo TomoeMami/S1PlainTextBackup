@@ -14318,3 +14318,14 @@ Eidos 9居然还有这么多岔路
 
 师姐的咿呀剑法，啊不对，**钻直接可以把BOSS的护甲完全剥掉啊。其他花里花哨的都没这个好用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4168#       发表于 2025-7-24 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68149118&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-24 12:21</a>
+
+师姐的咿呀剑法，啊不对，**钻直接可以把BOSS的护甲完全剥掉啊。其他花里花哨的都没这个好用 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有飞针快啊，飞针破甲打输出必中打断一条龙服务
+
