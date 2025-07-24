@@ -2943,12 +2943,12 @@
     "update": false
   },
   "1944246": {
-    "totalreply": 1749,
+    "totalreply": 1750,
     "title": "[已改为MBON等高达VS系列讨论帖。主贴已整合教学资料]",
     "newtitle": "[已改为MBON等高达VS系列讨论帖。主贴已整合教学资料]",
-    "lastedit": 1749777629,
+    "lastedit": 1753368010,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1992654": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 178072,
+    "totalreply": 178074,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1753366208,
+    "lastedit": 1753368486,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 171376,
+    "totalreply": 171383,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1753367767,
+    "lastedit": 1753368366,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 2689,
+    "totalreply": 2693,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1753367647,
+    "lastedit": 1753368249,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11619,10 +11619,10 @@
     "update": false
   },
   "2253740": {
-    "totalreply": 411,
+    "totalreply": 412,
     "title": "[《罗小黑战记2》7月18日上映]",
     "newtitle": "[《罗小黑战记2》7月18日上映]",
-    "lastedit": 1753362007,
+    "lastedit": 1753368366,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12159,10 +12159,10 @@
     "update": false
   },
   "2076978": {
-    "totalreply": 580,
+    "totalreply": 581,
     "title": "[TRIGGER 扳机社 吊带袜天使新作动画『新·吊带袜天使』]",
     "newtitle": "[TRIGGER 扳机社 吊带袜天使新作动画『新·吊带袜天使』]",
-    "lastedit": 1753367050,
+    "lastedit": 1753368008,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14126,7 +14126,7 @@
     "newtitle": "[大物新人 粉毛 工商女仆 結城さくな 讨论楼]",
     "lastedit": 1753108817,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2147898": {
@@ -14319,10 +14319,10 @@
     "update": false
   },
   "2256712": {
-    "totalreply": 664,
+    "totalreply": 666,
     "title": "[要不咱们赌一把，大家觉得《明末》内容会踩几个雷？]",
     "newtitle": "[明末发售结算了，首日差评如潮，喜提村里第一个jiangping]",
-    "lastedit": 1753367050,
+    "lastedit": 1753368249,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15251,7 +15251,7 @@
     "newtitle": "[日本地区玩家平均年龄／性别调查，《最终幻想》系列成熟，任天堂均衡]",
     "lastedit": 1753108817,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2256864": {
@@ -15651,10 +15651,10 @@
     "update": false
   },
   "2173260": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[五星物语的发展]",
     "newtitle": "[五星物语的发展]",
-    "lastedit": 1753366812,
+    "lastedit": 1753368009,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16083,10 +16083,10 @@
     "update": false
   },
   "2257284": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[古代皇帝平均寿命低能反推中医无用吗？]",
     "newtitle": "[古代皇帝平均寿命低能反推中医无用吗？]",
-    "lastedit": 1753367170,
+    "lastedit": 1753368249,
     "category": "外野",
     "active": true,
     "update": false
@@ -16191,10 +16191,10 @@
     "update": false
   },
   "2257323": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[这次明末有一个挺乐的事，看样子是大规模买了很多小up的商单]",
     "newtitle": "[这次明末有一个挺乐的事，看样子是大规模买了很多小up的商单]",
-    "lastedit": 1753367647,
+    "lastedit": 1753368248,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16218,20 +16218,29 @@
     "update": false
   },
   "2257336": {
-    "totalreply": 57,
+    "totalreply": 59,
     "title": "[影之刃会雷吗？]",
     "newtitle": "[影之刃会雷吗？]",
-    "lastedit": 1753367050,
+    "lastedit": 1753368010,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2257328": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[真没想到居然这么多人长期不洗窗帘]",
     "newtitle": "[真没想到居然这么多人长期不洗窗帘]",
-    "lastedit": 1753366815,
+    "lastedit": 1753368009,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2200112": {
+    "totalreply": 126,
+    "title": "[如龙8外传夏威夷海盗，提前至25.2.21发售，ps／xbox／pc]",
+    "newtitle": "[如龙8外传夏威夷海盗，提前至25.2.21发售，ps／xbox／pc]",
+    "lastedit": 1753368251,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
