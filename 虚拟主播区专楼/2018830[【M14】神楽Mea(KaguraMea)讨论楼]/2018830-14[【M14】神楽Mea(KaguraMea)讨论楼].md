@@ -141,3 +141,19 @@
 
 应该是日积月累吧，某mid的话，这个月在t台还说是因为火锅事件而最终决定分手
 
+
+*****
+
+####  术士q  
+##### 19252#       发表于 2025-7-24 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68149594&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-7-24 13:31</a>
+没事反正我们这边发癫她也看不到(不是)当然是戏谈，但还是会感叹一下你咩不把话有时效性的说清楚
+
+应该是 ...</blockquote>
+感觉楼友现在这个精神状态迟早写出八岐大蛇定型文<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+mea唱歌还是比勾踢踢歪好的，她们不是一个人。
+
+至于mea前男友这件事我还是觉得要是是一个足够优秀温柔的人的话倒也就算了，毕竟她有不少地方让人挺不放心的，有个能够照顾到她的人也好，就是找了这么个烂人实在令人觉得有点...
+
