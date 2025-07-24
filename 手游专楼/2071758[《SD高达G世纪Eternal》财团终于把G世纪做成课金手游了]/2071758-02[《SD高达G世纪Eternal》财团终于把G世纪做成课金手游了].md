@@ -219,3 +219,11 @@ Z+海牛  本赛季的MVP
 
 我也想要SL，HP啥啥的跟作业不同或者走错一步位MAP覆盖不全时也想扔手机
 
+
+*****
+
+####  arthes  
+##### 2282#       发表于 2025-7-24 16:52
+
+一击必杀也太超值了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，已经用差不多一样的配置打穿3个竞技场了
+
