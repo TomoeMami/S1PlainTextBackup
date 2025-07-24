@@ -105,3 +105,20 @@ Z+海牛  本赛季的MVP
 
 只要15W打满的话，感觉大师杯反而是简单的活动了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2272#       发表于 2025-7-24 13:13
+
+平民1500钻石奖励档走人，不打了，再打肯定都是大佬
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lighttt  
+##### 2273#       发表于 2025-7-24 13:14
+
+感觉越来越简单了阿，15W随便打了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">就搞了一个异端盾机
+
