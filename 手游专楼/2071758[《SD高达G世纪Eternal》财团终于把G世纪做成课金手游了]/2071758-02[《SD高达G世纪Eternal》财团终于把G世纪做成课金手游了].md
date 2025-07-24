@@ -194,3 +194,28 @@ Z+海牛  本赛季的MVP
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 2280#       发表于 2025-7-24 15:29
+
+一击必杀队直接就18W了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  rockroxas  
+##### 2281#       发表于 2025-7-24 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68149894&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-7-24 14:15</a>
+
+那不就是你运气好？我98%的命中都miss过，更别提支援攻击那一堆80%90%的，抱怨一下命中恶心人不知道你在 ...</blockquote>
+说的是主流作业除了开头打G3需要SL，打扎古都是靠必中MAP，最后一刀上妖刀有必中EX不怕miss啊（
+
+其他人是骡子身边那几个有脸的回避高点，全开发队初动都差不多能杀光
+
+我也想要SL，HP啥啥的跟作业不同或者走错一步位MAP覆盖不全时也想扔手机
+
