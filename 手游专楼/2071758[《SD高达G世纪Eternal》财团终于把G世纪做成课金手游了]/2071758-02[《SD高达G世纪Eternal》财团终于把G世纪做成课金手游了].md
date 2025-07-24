@@ -145,3 +145,16 @@ Z+海牛  本赛季的MVP
 
 只有开头打G3需要SL
 
+
+*****
+
+####  acg_gyanc  
+##### 2276#       发表于 2025-7-24 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68149586&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-24 13:30</a>
+
+直接找全开发作业用UR机替代一部分应该不难吧，毕竟主要是用必中的MAP把上路清掉，输出有余的
+
+我是一星妖 ...</blockquote>
+那不就是你运气好？我98%的命中都miss过，更别提支援攻击那一堆80%90%的，抱怨一下命中恶心人不知道你在这里说啥
+
