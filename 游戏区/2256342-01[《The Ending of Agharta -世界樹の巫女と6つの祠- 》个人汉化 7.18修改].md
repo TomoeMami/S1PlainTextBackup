@@ -723,3 +723,15 @@ SQ08那个七步飞是啥意思 搜了好像是将棋 但是看不懂</blockquot
 
 不知道是特性还是bug，在沙漠触发因沙暴迷失方向事件的时候同时用比特水晶传送，会导致在野外不遇敌
 
+
+*****
+
+####  pf67  
+##### 51#       发表于 2025-7-24 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68136344&amp;ptid=2256342" target="_blank">三度音 发表于 2025-7-22 11:50</a>
+这个走路速度好别扭啊，要么特别慢，加速跑起来又特别快</blockquote>
+平时设定加速，然后需要操作的时候按x减速到正常
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
