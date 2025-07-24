@@ -227,3 +227,23 @@ Z+海牛  本赛季的MVP
 
 一击必杀也太超值了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，已经用差不多一样的配置打穿3个竞技场了
 
+
+*****
+
+####  chivalry  
+##### 2283#       发表于 2025-7-24 17:01
+
+一击必杀都用啥配置啊，3+3 的强自+拉克丝，怎么打好
+
+
+*****
+
+####  一个陆仁贾  
+##### 2284#       发表于 2025-7-24 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151053&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-7-24 17:01</a>
+一击必杀都用啥配置啊，3+3 的强自+拉克丝，怎么打好</blockquote>
+我遇到三攻两支援的配置把我虐了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

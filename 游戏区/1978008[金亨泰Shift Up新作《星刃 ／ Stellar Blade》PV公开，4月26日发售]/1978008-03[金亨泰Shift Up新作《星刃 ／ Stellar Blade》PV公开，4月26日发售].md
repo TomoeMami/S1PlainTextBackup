@@ -14329,3 +14329,27 @@ Eidos 9居然还有这么多岔路
 师姐的咿呀剑法，啊不对，**钻直接可以把BOSS的护甲完全剥掉啊。其他花里花哨的都没这个好用 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有飞针快啊，飞针破甲打输出必中打断一条龙服务
 
+
+*****
+
+####  多重影  
+##### 4169#       发表于 2025-7-24 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68145251&amp;ptid=1978008" target="_blank">jacket 发表于 2025-7-23 19:02</a>
+
+https://www.bilibili.com/video/BV1SUghzjEn6/
+
+看慢放才发现打轨道电梯boss最后插天灵盖用的是迅驰武器， ...</blockquote>
+很多年以前剑星还叫夏娃计划的时候放出来的PV里就有这段处决动画了，而那个PV最后的画面是打师姐。中间估计是改过设定。
+
+
+*****
+
+####  jacket  
+##### 4170#       发表于 2025-7-24 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151048&amp;ptid=1978008" target="_blank">多重影 发表于 2025-7-24 17:00</a>
+
+很多年以前剑星还叫夏娃计划的时候放出来的PV里就有这段处决动画了，而那个PV最后的画面是打师姐。中间估 ...</blockquote>
+想了想开大招不止武器全身都变了，这里就当是局部开大招吧
+
