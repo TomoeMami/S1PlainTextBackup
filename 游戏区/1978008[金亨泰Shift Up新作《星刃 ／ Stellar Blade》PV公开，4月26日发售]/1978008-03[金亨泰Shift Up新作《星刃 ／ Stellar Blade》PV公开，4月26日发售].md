@@ -14292,3 +14292,13 @@ Eidos 9居然还有这么多岔路
 
 看慢放才发现打轨道电梯boss最后插天灵盖用的是迅驰武器，这从哪掏出来的？
 
+
+*****
+
+####  江戸前ルナ  
+##### 4165#       发表于 2025-7-24 11:34
+
+打了下困难的演员曼恩，用了肉盾装一场要打6分多钟<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+而且过的几率也不高，后半段沉默后黄光连发真是难顶。还有2次师姐模式不小心被必杀连段抓住了因为演出时间太长师姐上身没了被秒就离谱<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
