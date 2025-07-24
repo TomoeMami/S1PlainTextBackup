@@ -165,3 +165,13 @@ mea唱歌还是比勾踢踢歪好的，她们不是一个人。
 
 今天的训练赛氛围还可以啊，总体来说昨天还是想太多了吧<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 19254#       发表于 2025-7-25 03:34
+
+[聊天记录是说的这个吗？](https://imgur.com/a/JbqhNSz)
+
+感觉基本是在抱怨主播，没想到打野帮忙说话了
+
