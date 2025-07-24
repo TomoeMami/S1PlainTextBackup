@@ -305,3 +305,35 @@ ssr的攻击机用攻击机师
 
 （目前已SP的有S高达，WZ，艾比安，SR自由，异端金）
 
+
+*****
+
+####  体制  
+##### 2290#       发表于 2025-7-24 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68152264&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-24 20:33</a>
+有没有SP机体节奏榜，不知不觉赞了300
+
+（目前已SP的有S高达，WZ，艾比安，SR自由，异端金）
+
+ ...</blockquote>
+没有，都是阵容需要什么临时sp，平时材料攒着。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  acg_gyanc  
+##### 2291#       发表于 2025-7-24 20:52
+
+ 本帖最后由 acg_gyanc 于 2025-7-24 20:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68150388&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-24 15:29</a>
+说的是主流作业除了开头打G3需要SL，打扎古都是靠必中MAP，最后一刀上妖刀有必中EX不怕miss啊（
+
+其他人是 ...</blockquote>
+好奇问一下，如果你预购的豪华版没有奖励，而别人的普通版却拿到了豪华版奖励，那你会打差评么？毕竟好像真有人没拿到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【SD高达永恒 EX7超低配全开发不死喂饭级解说（无卡池机师）-哔哩哔哩】 https://b23.tv/ZHE5Qu6
+我抄的这个作业，另外我觉得你真的是有毛病，我就吐槽一个命中问题你缠着我不放干嘛？你自己看看同样配置的情况下有几个地方是必须凹命中的，那几个小boss机你miss一个援攻试试？我过的时候第三回合一共吃了三个miss，但凡有一个miss是打小boss时的你看这局需不需要重开？不会再回复你了，简直跟踩了狗屎一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)*
+
