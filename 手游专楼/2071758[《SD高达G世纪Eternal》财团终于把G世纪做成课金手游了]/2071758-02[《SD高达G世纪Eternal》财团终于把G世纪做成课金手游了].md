@@ -485,3 +485,33 @@ PVP除了阵容还要看对面配置 ...</blockquote>
 
 林有德船+海牛有点毒
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2304#       发表于 2025-7-25 14:47
+
+ 本帖最后由 螺旋的小夜曲 于 2025-7-25 14:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68156678&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-7-25 14:36</a>
+
+咋配的？我3星海牛老是第一个动冲上去送死....队友3星开发牛之类的跟不上 ...</blockquote>
+有时为了压机动，船要换成主角船，尼奥威达换马甲E
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">还有就是，碰上三星强自就换掉吧，这畜生太猛了，盾都秒了
+
+MuMu12-20250725-144430.png
+(1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 14:45 上传
+
+<img src="https://img.stage1st.com/forum/202507/25/144556ufldb3m9095d089g.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 2305#       发表于 2025-7-25 14:49
+
+看见主角母舰+Z强自海牛的，那个Z碰上去就是死，明天再看了
+
