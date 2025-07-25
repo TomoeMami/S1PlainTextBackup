@@ -199,3 +199,36 @@ mea唱歌还是比勾踢踢歪好的，她们不是一个人。
 
 几天没看，两千多同接了。
 
+
+*****
+
+####  术士q  
+##### 19257#       发表于 2025-7-25 22:56
+
+暂时转自Jimmy佬，后续会做稍微修改!
+
+神回
+
+7/25 セットリスト
+0:05:25 01. キス・ミー・パティシエ / CANDY TUNE
+0:09:05 02. 倍倍FIGHT! / CANDY TUNE
+0:13:40 03. かわいいだけじゃだめですか？ / CUTIE STREET
+0:17:50 04. ひたむきシンデレラ！ / CUTIE STREET
+0:21:40 05. わたしの一番かわいいところ / FRUITS ZIPPER
+0:25:59 06. ハピチョコ / FRUITS ZIPPER
+0:29:56 07. 完璧主義で☆ / FRUITS ZIPPER
+0:34:50 08. NEW KAWAII / FRUITS ZIPPER
+0:39:23 09. かがみ / FRUITS ZIPPER
+0:44:12 10. Kawaii Kaiwai / PiKi
+0:47:00 11. 仮契約のシンデレラ / 私立恵比寿中学
+0:51:39 12. 最上級にかわいいの！/ 超ときめき♡宣伝部
+0:54:55 13. 超最強 / 超ときめき♡宣伝部
+1:02:49 14. セブンティーン / YOASOBI
+1:06:26 15. SPECIALZ / King Gnu
+1:10:29 16. 名前のない怪物 / EGOIST
+1:15:54 17. 拍手喝采歌合 / supercell
+1:20:30 18. The Everlasting Guilty Crown / EGOIST
+1:26:15 19. 雨き声残響 / Orangestar feat. IA
+1:29:31 20. SAD SONG / ちゃんみな
+1:33:23 21. ^_^ / ちゃんみな
+
