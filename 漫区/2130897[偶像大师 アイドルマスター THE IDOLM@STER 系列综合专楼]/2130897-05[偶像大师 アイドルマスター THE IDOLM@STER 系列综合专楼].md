@@ -16,3 +16,19 @@
 【【偶像大师20周年纪念】致那一天开始培育我的你】 
 [https://b23.tv/KWCGU1D](https://b23.tv/KWCGU1D)
 
+
+*****
+
+####  a1370303  
+##### 7106#       发表于 2025-7-25 23:22
+
+短片最后有12月的特写， 所以moiw会是在12月吗
+
+<img src="https://img.stage1st.com/forum/202507/25/232144b58rr14oo11zuxg1.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-07-25 232132.png</strong> (341.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 23:21 上传
+
