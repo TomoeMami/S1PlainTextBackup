@@ -152,3 +152,14 @@
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  duo_wolf  
+##### 125#       发表于 2025-7-26 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68081585&amp;ptid=2250267" target="_blank">粉儿alice 发表于 2025-7-11 11:20</a>
+
+今井龙太郎 百度直接搜一下就是他演的男同片</blockquote>
+毕竟，假面骑士的尽头是BL，这次直接一步到位了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
