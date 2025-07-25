@@ -534,3 +534,13 @@ GINFOR
 
 根据流传的情报，下周31号的新卡池是尊者高达+报丧女妖命运女神<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 2308#       发表于 2025-7-25 17:52
+
+师匠还挺想要的，不得不抽了，不知道会不会破例给个攻击机
+
+w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
