@@ -88,3 +88,19 @@
 
 —— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cashhellsing  
+##### 120#       发表于 2025-7-25 14:14
+
+不是谁家正经人变身摸嘴唇啊，太油腻了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 121#       发表于 2025-7-25 14:16
+
+我觉得小朋友真学的话怕是会不卫生，不过还是等发布会看看有没有实际变身动作才能知道
+
