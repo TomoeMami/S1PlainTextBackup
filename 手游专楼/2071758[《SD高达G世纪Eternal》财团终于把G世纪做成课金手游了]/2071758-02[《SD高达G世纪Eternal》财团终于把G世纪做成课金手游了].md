@@ -425,3 +425,63 @@ GINFOR
 
 新的蚊子腿，国际服
 
+
+*****
+
+####  丹德里恩  
+##### 2299#       发表于 2025-7-25 14:35
+
+爆料说新卡池是尊者+报丧女妖，是不是限定未知，未来有限定冰泪池
+
+*****
+
+####  丹德里恩  
+##### 2300#       发表于 2025-7-25 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68154712&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-7-25 10:04</a>
+
+想着有海牛就试一下，结果真的效果拔群，感觉20W就在明天</blockquote>
+咋配的？我3星海牛老是第一个动冲上去送死....队友3星开发牛之类的跟不上
+
+*****
+
+####  rockroxas  
+##### 2301#       发表于 2025-7-25 14:41
+
+<img src="https://img.stage1st.com/forum/202507/25/144123htu6a3ai2col26h8.png" referrerpolicy="no-referrer">
+
+<strong>WPV.png</strong> (315.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 14:41 上传
+
+W新PV放出来那些斗篷粽子英文名清晰图有了，全都是这改那改，不是白雪姬那些
+
+
+*****
+
+####  rockroxas  
+##### 2302#       发表于 2025-7-25 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68156678&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-7-25 14:36</a>
+
+咋配的？我3星海牛老是第一个动冲上去送死....队友3星开发牛之类的跟不上 ...</blockquote>
+我看见的套路是用SR母舰主动降速让对面三星先上（
+
+PVP除了阵容还要看对面配置
+
+*****
+
+####  丹德里恩  
+##### 2303#       发表于 2025-7-25 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68156720&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-25 14:43</a>
+
+我看见的套路是用SR母舰主动降速让对面三星先上（
+
+PVP除了阵容还要看对面配置 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">忘记可以换船降速了
+
+林有德船+海牛有点毒
+
