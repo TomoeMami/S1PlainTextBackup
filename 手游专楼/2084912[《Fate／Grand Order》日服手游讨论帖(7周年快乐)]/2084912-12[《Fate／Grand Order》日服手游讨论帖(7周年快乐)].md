@@ -269,3 +269,53 @@
 
 看了看别人的打法，果然自己的打法还是有很多要优化。开荒的吃了太多的亏了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 17163#       发表于 2025-7-25 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159636&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-25 22:48</a>
+
+只能你也太丢人了 作为欧皇掏出你的朵拉龚啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啥是朵拉龚....兽尼？
+
+非洲人就2宝顶个球.....交在第9面了
+
+*****
+
+####  khxooo  
+##### 17164#       发表于 2025-7-25 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159739&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-25 23:09</a>
+
+啥是朵拉龚....兽尼？
+
+非洲人就2宝顶个球.....交在第9面了</blockquote>
+2宝兽尼绝对能打，要不是最后所长的机制，我2宝兽尼早就搞掂了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 17165#       发表于 2025-7-26 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159911&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-7-25 23:45</a>
+
+2宝兽尼绝对能打，要不是最后所长的机制，我2宝兽尼早就搞掂了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不清楚....我最后库库尔坎一套宝具+B卡暴击也只能打掉大概60多万血
+
+身上没有无敌和肃正防御挂着的话所长一回合就能鲨掉我所有人
+
+所长最后一条血300多万.....没有盾娘的话真想不出还有谁能上
+
+也懒的搞清什么机制了....反正也不会再去打第2遍了
+
+*****
+
+####  岸浪白野  
+##### 17166#       发表于 2025-7-26 00:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4个所长里就这风所长有人类的威胁特性，不上玛修打都亏了吧
+
+50宝威和200%特攻呢
+

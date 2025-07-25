@@ -181,3 +181,86 @@
 
        [https://pan.baidu.com/s/1sq1wfxrT4M8Cqwl8IBz0cg?pwd=nf74](https://pan.baidu.com/s/1sq1wfxrT4M8Cqwl8IBz0cg?pwd=nf74)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41109#       发表于 2025-7-26 00:44
+
+       <strong>【机翻全熟】邦多利 TV LIVE2025#274</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202507/26/004406w44xmy2952m2munv.jpg" referrerpolicy="no-referrer">
+
+<strong>98bb304329fddf7f5aff02693b153c9f773de4ed.jpg</strong> (361.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-26 00:44 上传
+
+[https://www.youtube.com/live/NrGBiTE-1Ag](https://www.youtube.com/live/NrGBiTE-1Ag)
+
+「バンドリ！TV LIVE」がリニューアルした「バンドリ！TV LIVE 2025」！！
+
+毎週木曜日22:00から1時間、バンドリ！プロジェクトに関する最新情報などをお届けします。
+
+番組終了後の23時からは、 TOKYO MXほかにてアニメ「BanG Dream! 2nd Season」を再放送いたします！
+
+「バンドリ！TV LIVE 2025」に引き続き、ぜひご覧ください♪
+
+※出演キャスト、及びスタッフの安全面に十分配慮した上で実施いたします。
+
+■「バンドリ！TV LIVE 2025」＃274 出演
+
+佐々木李子（ドロリス/三角初華 役）
+
+渡瀬結月（モーティス/若葉睦 役）
+
+岡田夢以（ティモリス/八幡海鈴 役）
+
+米澤茜（アモーリス/祐天寺にゃむ 役）
+
+高尾奏音（オブリビオニス/豊川祥子 役）
+
+☆バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X： 
+
+ / bang_dream_info  
+
+☆スマートフォン向けゲーム『バンドリ！ ガールズバンドパーティ！』
+
+iOS: [https://goo.gl/NVSIlf](https://goo.gl/NVSIlf)
+
+Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
+
+公式サイト：[https://bang-dream.bushimo.jp/](https://bang-dream.bushimo.jp/)
+
+公式X： 
+
+ / bang_dream_gbp  
+
+★★★★★★★★★★★★★★★★★★★
+
+#バンドリ  #バンドリTVLIVE</blockquote>
+       [https://www.bilibili.com/video/BV11gb9zjEEx](https://www.bilibili.com/video/BV11gb9zjEEx)
+
+*****
+
+####  堀内爱里衣  
+##### 41110#       发表于 2025-7-26 00:46
+
+       <strong>Ave Mujica 官方指南书附赠魔女世界观广播剧语音第2弹 熟肉</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202507/26/004548prr1rfo67vf9rkzf.jpg" referrerpolicy="no-referrer">
+
+<strong>937e4465d39e1949d056fe37cc353a0020324698.jpg</strong> (128.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-26 00:45 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1gMbUzVEne](https://www.bilibili.com/video/BV1gMbUzVEne)
+
