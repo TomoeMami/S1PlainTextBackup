@@ -14380,3 +14380,19 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 看到这么多UE5翻车的……有点担心以后剑星2如果用5，那优化肯定也没现在好吧？我玩黑猴显卡风扇都轰鸣，玩剑星安静得飞起还不掉帧超顺畅。其实现在这用在刀刃上的画面效果我是比较满意的了……
 
+
+*****
+
+####  江戸前ルナ  
+##### 4174#       发表于 2025-7-25 12:13
+
+<img src="https://img.stage1st.com/forum/202507/25/121205qc7dubml1djwi1bq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250725121138.png</strong> (922.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 12:12 上传
+
+还是不懂，拉了很多视频伊芙和百合的皮肤都那么好，特别是百合。我自己的过场动画CG里雀斑就多得飞起<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
