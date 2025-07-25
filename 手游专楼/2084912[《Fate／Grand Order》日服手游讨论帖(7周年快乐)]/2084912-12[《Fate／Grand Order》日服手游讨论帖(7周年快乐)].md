@@ -234,3 +234,38 @@
 不如狗萌新</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新因陀罗都没出 一点都不狗！
 
+
+*****
+
+####  qixinno2  
+##### 17159#       发表于 2025-7-25 22:33
+
+<blockquote>alucardcz 发表于 2025-7-25 22:29
+萌新因陀罗都没出 一点都不狗！</blockquote>
+呸 你都出几个五星了 还想出 
+
+*****
+
+####  森兰丸  
+##### 17160#       发表于 2025-7-25 22:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">盾娘这么多年终于有出息了啊....所长最后一条血还真只能靠盾娘来打死
+
+
+*****
+
+####  alucardcz  
+##### 17161#       发表于 2025-7-25 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159548&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-25 22:33</a>
+
+盾娘这么多年终于有出息了啊....所长最后一条血还真只能靠盾娘来打死</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能你也太丢人了 作为欧皇掏出你的朵拉龚啊
+
+*****
+
+####  khxooo  
+##### 17162#       发表于 2025-7-25 22:52
+
+看了看别人的打法，果然自己的打法还是有很多要优化。开荒的吃了太多的亏了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
