@@ -132,3 +132,105 @@
 打完了,退了两次,一次是第六层魔枪搞反转,要换个弓打他,一个是所长不能主力最后一队直接开,会被最后一管打 ...</blockquote>
 我是用兽尼强打所长的，打到第四条血就没了。说马修好用，我感觉其实兽尼更好，兽尼有弱化无效，还有强化解除耐性，完完全全就是针对所长第二和第三条血的。马修还是安排到第二四还是第五，第二轮打一炮更好。
 
+
+*****
+
+####  khxooo  
+##### 17152#       发表于 2025-7-25 21:38
+
+ 本帖最后由 khxooo 于 2025-7-25 21:55 编辑 
+
+在这里说一下风所长小怪本的机制吧；
+
+第一：一开始将你的血降为1，就是强制你速刷。
+
+第二：除了即死外对其他攻击有耐性，不知道耐性是多少，我是用尼托即死的，感觉马修放这里就可以了。
+
+第三：忘记了有什么BUFF，是一个三头犬，直接迦摩带走
+
+第四：一个对Q卡以外的卡色有耐性，一个是除了暴击外有耐性，一个是除了宝具外有耐性，不过我用1宝库库尔坎直接带走，估计耐性不高
+
+第五：看着是枪，其实相性是剑，建议用弓 单体打。这里开始应该是开始回顾之前的，这个BUFF就是还原老崔的祝福反转。
+
+第六：没有什么奇怪的机制，就是血量高，伤害直接灌死。
+
+第七：好像也没有什么奇怪的BUFF，直接灌伤害。
+
+第八：一堆摩斯，就是打它有诅咒。
+
+第九：根据你用的从者技能增加血量、防御和攻击力，最高有90多W。带无视防御礼装就可以了。我这里用了奥伯龙+剑武藏。但是这也导致必须用第十队硬打了。我看到别人建议，这里带个强化解除，然后打掉两条血，将她的BUFF解掉。
+
+*****
+
+####  alucardcz  
+##### 17153#       发表于 2025-7-25 22:14
+
+<img src="https://img.stage1st.com/forum/202507/25/221347z73636tcwxnxteec.png" referrerpolicy="no-referrer">
+
+<strong>1231223.png</strong> (386.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 22:13 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是我们圣马修的实力吗？ 甚至都没带黑杯
+
+*****
+
+####  alucardcz  
+##### 17154#       发表于 2025-7-25 22:15
+
+<img src="https://img.stage1st.com/forum/202507/25/221444mnedtntdnyzpzney.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (450.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 22:14 上传
+
+<img src="https://img.stage1st.com/forum/202507/25/221446h7y7dln97ux9n7ov.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (357.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 22:14 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">顺便贴个阵容 确实比以前简单多了 在意羁绊的建议5天后再打
+
+*****
+
+####  qixinno2  
+##### 17155#       发表于 2025-7-25 22:25
+
+菜鸡艰难打完 最后一条血真的是用队友命堆死的
+
+*****
+
+####  alucardcz  
+##### 17156#       发表于 2025-7-25 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159497&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-25 22:25</a>
+
+菜鸡艰难打完 最后一条血真的是用队友命堆死的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不欧 羡慕
+
+*****
+
+####  qixinno2  
+##### 17157#       发表于 2025-7-25 22:29
+
+<blockquote>alucardcz 发表于 2025-7-25 22:27
+不欧 羡慕</blockquote>
+不如狗萌新
+
+*****
+
+####  alucardcz  
+##### 17158#       发表于 2025-7-25 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159524&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-7-25 22:29</a>
+
+不如狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新因陀罗都没出 一点都不狗！
+
