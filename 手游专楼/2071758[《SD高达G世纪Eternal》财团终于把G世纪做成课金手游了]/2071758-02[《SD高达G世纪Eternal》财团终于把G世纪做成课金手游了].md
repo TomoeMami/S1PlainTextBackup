@@ -544,3 +544,11 @@ GINFOR
 
 w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 2309#       发表于 2025-7-25 21:20
+
+尊者刚加上盾牌 ur不会是防御吧
+
