@@ -685,3 +685,11 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 尊者是第一个开发和抽卡同属性的机体么
 
+
+*****
+
+####  arthes  
+##### 2323#       发表于 2025-7-26 17:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">是的，有这个先例之后，我的艾比安也可以期待了
+
