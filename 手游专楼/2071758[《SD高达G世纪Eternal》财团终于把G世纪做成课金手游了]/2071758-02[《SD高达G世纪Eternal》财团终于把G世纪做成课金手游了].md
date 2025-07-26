@@ -693,3 +693,11 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">是的，有这个先例之后，我的艾比安也可以期待了
 
+
+*****
+
+####  大十字紅朔  
+##### 2324#       发表于 2025-7-26 17:56
+
+日服的兑换码是不是不一样？
+
