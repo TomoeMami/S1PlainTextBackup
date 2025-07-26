@@ -14,3 +14,26 @@ MLID 推测，AMD Magnus 配备了 68 个 RDNA 5 计算单元（CUs），如果 
 
 大概是25Tflops到32Tflops
 
+
+*****
+
+####  shirolin  
+##### 48#       发表于 2025-7-27 07:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68123935&amp;ptid=2256883" target="_blank">ppa11 发表于 2025-7-19 19:59</a>
+这几天估计在打舆论战？前两天有个爆料说ps6有4080级别的性能
+
+—— 來自 realme RMX3700, Android 14, 鵝 ...</blockquote>
+4080 ❌
+4090 ✅
+
+<img src="https://img.stage1st.com/forum/202507/27/073936i1l26128gefvful1.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250727-073859.png</strong> (507.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-27 07:39 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
