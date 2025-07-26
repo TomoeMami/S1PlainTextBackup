@@ -657,3 +657,23 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Abomination  
+##### 2320#       发表于 2025-7-26 16:54
+
+虽然很想抽师匠，不过我只剩39k钻了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+还好师匠不是限定，希望将来出神高达时会连带尊者高达一起up<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jackyhuang  
+##### 2321#       发表于 2025-7-26 16:58
+
+尊者常驻啊，那就再攒攒了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
