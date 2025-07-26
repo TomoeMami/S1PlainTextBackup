@@ -224,3 +224,33 @@
 别回头抄到本土的パプリカ上去最后接索尼律师函吧 ...</blockquote>
 好多作品都有这个吧，奇异博士都有空间折叠，不是什么大问题，并且来打棚也就用那么几次而已，没经费后续就吃设定的
 
+
+*****
+
+####  创始’’’天翔  
+##### 132#       发表于 2025-7-26 12:34
+
+感觉角色好油啊
+
+*****
+
+####  sliver1997  
+##### 133#       发表于 2025-7-26 12:38
+
+好油腻这动作
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王九的哥哥  
+##### 134#       发表于 2025-7-26 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68161558&amp;ptid=2250267" target="_blank">古怪山庄士大夫 发表于 2025-7-26 12:23</a>
+好多作品都有这个吧，奇异博士都有空间折叠，不是什么大问题，并且来打棚也就用那么几次而已，没经费后续 ...</blockquote>
+单说折叠这种演出确实很多都有……
+
+但在梦里折就是另一回事了……
+
+最好就是我想太多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
