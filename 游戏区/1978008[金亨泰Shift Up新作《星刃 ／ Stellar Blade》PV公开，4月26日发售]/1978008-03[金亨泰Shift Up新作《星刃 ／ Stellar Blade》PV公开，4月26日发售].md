@@ -14414,3 +14414,23 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 嗯，我还是找个美白MOD吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 4177#       发表于 2025-7-26 20:25
+
+ 本帖最后由 江戸前ルナ 于 2025-7-26 20:27 编辑 
+
+原来21号就出了一个简称CNS的mod系统，可以直接添加mod衣服（而不需要像现在的替换）。N网编号1496。
+
+小白看了下说明和一些讨论
+
+1，这个可以直接在游戏里非菜单状态下召唤界面直接替换衣服（但装备上还是原来那件）。
+
+2，需要mod作者制作提供专门的JSON文件支持。有对应能力的也能自己写。
+
+对应简单的说明视频有这个：[https://www.bilibili.com/video/BV1irgGzuEG3/](https://www.bilibili.com/video/BV1irgGzuEG3/)
+
+现在好像还有不少BUG。感觉最大的问题还是占用现在~mods的文件夹。替换类新增类混一堆太乱了otz。还有部分mod作者都直接出CNS系统的不带原有默认替换的了。
+
