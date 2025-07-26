@@ -89,3 +89,16 @@ FY12-HWPG-KN1G-XF70
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">哦对了，调查2.0那个商店是要关了吧，换些啥好？？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1562#         楼主| 发表于 2025-7-26 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159193&amp;ptid=2104259" target="_blank">madcow 发表于 2025-7-25 21:35</a>
+
+哦对了，调查2.0那个商店是要关了吧，换些啥好？？</blockquote>
+紫牌子换三星插件贝啊。想赌的就换新版，出斩击射击贝，但垃圾污染多。稳定的就普通三星贝，开出的都基本有用。
+
+黄牌子参考我前面的回帖，有说的。
+
