@@ -16,3 +16,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比这个原作，半同人的《异界穿越手册》我觉得要有趣的多
 
+
+*****
+
+####  完全武装希耶尔  
+##### 52#       发表于 2025-7-26 17:11
+
+这都行，还有我最喜欢的蓝毛法师吗
+
