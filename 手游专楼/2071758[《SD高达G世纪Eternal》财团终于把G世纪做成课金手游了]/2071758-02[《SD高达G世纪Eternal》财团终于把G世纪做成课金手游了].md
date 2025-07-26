@@ -715,3 +715,16 @@ UR拉克丝，感觉面板会很低，是不是打算把蒂法之类的明显面
 
 新永恒是Z高达，但Z没几个机师也没活动卡池啊，第一个系列不限驾驶的永恒？
 
+
+*****
+
+####  电脑死机  
+##### 2326#       发表于 2025-7-26 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68163361&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-26 18:58</a>
+
+日服国际服兑换码是分开的吧
+
+UR拉克丝，感觉面板会很低，是不是打算把蒂法之类的明显面板低的人气角色都放 ...</blockquote>
+Z和铁奥呢
+
