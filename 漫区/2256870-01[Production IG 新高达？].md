@@ -843,3 +843,14 @@ IG当年也是做eva的
 会有飞碟社的高达吗，打斗拉满加上索尼三美的oped，直接卖到八万八</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">鬼灭还两部，genshin还没影儿，哪来的时间做其他作品
 
+
+*****
+
+####  Duc_d'_Muka  
+##### 87#       发表于 2025-7-26 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68133091&amp;ptid=2256870" target="_blank">失落之翼 发表于 2025-7-21 17:13</a>
+
+以前有吉姆王和扎古王，要不拍部高达王吧，Gqux最后的巨大化高达可以参考</blockquote>
+高达王一直都有啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，什么都拯救不了的巴鲁迪奥斯
+
