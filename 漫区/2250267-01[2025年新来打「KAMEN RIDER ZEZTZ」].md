@@ -254,3 +254,12 @@
 
 最好就是我想太多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 135#       发表于 2025-7-26 20:03
+
+看到造型就想起那个手势舞的梗，还真有人做了换脸
+[https://www.bilibili.com/video/av114917571043119/](https://www.bilibili.com/video/av114917571043119/)
+
