@@ -1302,3 +1302,15 @@ CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">箭头是不是只给那种一个大石块一条沟的地堡门做了传送包适配？其他种类的门都穿不进去
 
+
+*****
+
+####  用户名未定义  
+##### 6891#       发表于 2025-7-26 08:53
+
+ 本帖最后由 用户名未定义 于 2025-7-26 08:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68160628&amp;ptid=2170852" target="_blank">九十九忍 发表于 2025-7-26 08:25</a>
+
+箭头是不是只给那种一个大石块一条沟的地堡门做了传送包适配？其他种类的门都穿不进去 ...</blockquote>
+试试贴着门往里飞扑传送
+
