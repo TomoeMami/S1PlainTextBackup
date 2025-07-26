@@ -788,3 +788,14 @@ SSR都没几个，点的Z永恒关大部分人都是招募机师
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 2332#       发表于 2025-7-27 00:20
+
+<img src="https://p.sda1.dev/25/0c014f50a0acb23bfc27cc4bd752aa96/image.jpg" referrerpolicy="no-referrer">
+这次20万确实不是那么遥远的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
