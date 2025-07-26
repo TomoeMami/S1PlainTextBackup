@@ -750,3 +750,18 @@ Z和铁奥呢
 
 放限定盾进池子是骗人抽吗...但为什么是薯条啊
 
+
+*****
+
+####  rockroxas  
+##### 2329#       发表于 2025-7-26 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68163930&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-7-26 20:44</a>
+
+Z和铁奥呢</blockquote>
+以前的卡池嘛，Z想要都拿不到了
+
+SSR都没几个，点的Z永恒关大部分人都是招募机师
+
+理论上新出应该有卡池/活动机师啥的，现在UR乃至SSR都没什么关系
+
