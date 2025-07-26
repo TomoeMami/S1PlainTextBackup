@@ -200,3 +200,15 @@
 合着东映是觉得反正小朋友没有看过盗梦空间可以玩儿命抄是吧 ...</blockquote>
 其实也没啥盗梦空间的东西吧(ps我看的盗摄片段，其他不清楚)，就一个折叠空间？其实你把梦境转化成人的内心，换个地方打怪，打怪成功人获救，打怪失败人变怪或者怪出来，这不就是法爷吗
 
+
+*****
+
+####  王九的哥哥  
+##### 130#       发表于 2025-7-26 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68161404&amp;ptid=2250267" target="_blank">古怪山庄士大夫 发表于 2025-7-26 11:57</a>
+其实也没啥盗梦空间的东西吧(ps我看的盗摄片段，其他不清楚)，就一个折叠空间？其实你把梦境转化成人的内 ...</blockquote>
+主要吧剧场版里就这几分钟还整个这，感到未来堪忧……
+
+别回头抄到本土的パプリカ上去最后接索尼律师函吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
