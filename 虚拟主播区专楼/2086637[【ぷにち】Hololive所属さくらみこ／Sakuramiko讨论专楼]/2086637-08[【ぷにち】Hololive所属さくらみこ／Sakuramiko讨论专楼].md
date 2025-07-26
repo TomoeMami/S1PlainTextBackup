@@ -68,3 +68,42 @@
 
 2025-7-24 19:51 上传
 
+
+*****
+
+####  holofan  
+##### 11118#       发表于 2025-7-25 21:18
+
+<img src="https://img.stage1st.com/forum/202507/25/211730unzec394cknz55hn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 21:17 上传
+
+<img src="https://img.stage1st.com/forum/202507/25/211811l0smczzfjsc9m97s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-25 21:18 上传
+
+歌王钦点，可以转为原创曲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11119#       发表于 2025-7-26 16:21
+
+一如既往的霸权人气甚至干翻CM入场券的こるた，而且昨天的预定开始没有任何事先预告
+
+<img src="https://img.stage1st.com/forum/202507/26/162027iddfzlfdlzcci59o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-26 16:20 上传
+
