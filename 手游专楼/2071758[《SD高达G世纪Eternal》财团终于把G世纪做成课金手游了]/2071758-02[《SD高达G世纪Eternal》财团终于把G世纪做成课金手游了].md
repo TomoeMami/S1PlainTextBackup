@@ -629,3 +629,13 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 尊者是攻击机，这下该抽了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2317#       发表于 2025-7-26 15:03
+
+爬塔也不知道难度如何，无氪党拿到ur拉克丝不知道有没有希望
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
