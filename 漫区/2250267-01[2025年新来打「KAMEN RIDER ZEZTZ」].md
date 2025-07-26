@@ -171,3 +171,20 @@
 
 这变身动作也太长了。。抹嘴好油<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 127#       发表于 2025-7-26 11:45
+
+看了夏季剧场版了回来剧透<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+合着东映是觉得反正小朋友没有看过盗梦空间可以玩儿命抄是吧
+
+*****
+
+####  暗黑能乐  
+##### 128#       发表于 2025-7-26 11:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉腰带不在腰上，看起来真有点紧身衣变态了。。。
+
