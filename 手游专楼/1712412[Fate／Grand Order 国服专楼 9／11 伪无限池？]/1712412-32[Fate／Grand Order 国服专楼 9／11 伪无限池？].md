@@ -24,3 +24,13 @@
 
 90**完全打不了，秩序善活人队能拐的青子大象美游都没有，缺的太多了，自己夏露露也只有一宝，借个秩序善rba还有翻车风险……还是含恨回南亚继续挖兽科剩下的绊吧
 
+
+*****
+
+####  一个陆仁贾  
+##### 47210#       发表于 2025-7-26 19:07
+
+服了，奏章2怎么那么多要自己点的选项，多到没心情看剧情章跳了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
