@@ -621,3 +621,11 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 就知道不会只是送普通的ssr机师，不然比起其他活动，报酬太少了
 
+
+*****
+
+####  arthes  
+##### 2316#       发表于 2025-7-26 14:30
+
+尊者是攻击机，这下该抽了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
