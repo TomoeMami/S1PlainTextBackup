@@ -600,3 +600,14 @@ w刚公布30周年企划，感觉掉毛也不远了，只有一井好纠结啊<i
 
 <img src="https://static.stage1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">为什么我ROLL不出高战力的啊
 
+
+*****
+
+####  电脑死机  
+##### 2314#       发表于 2025-7-26 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68158013&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-7-25 17:40</a>
+
+根据流传的情报，下周31号的新卡池是尊者高达+报丧女妖命运女神</blockquote>
+家贫，忍了，等半周年或者其他心水机吧，薯条还是可以忍着不要的
+
