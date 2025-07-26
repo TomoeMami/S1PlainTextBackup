@@ -765,3 +765,26 @@ SSR都没几个，点的Z永恒关大部分人都是招募机师
 
 理论上新出应该有卡池/活动机师啥的，现在UR乃至SSR都没什么关系
 
+
+*****
+
+####  lighttt  
+##### 2330#       发表于 2025-7-26 23:28
+
+月卡一出，是不是3000都不发了，上次港服封顶没给
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  一个陆仁贾  
+##### 2331#       发表于 2025-7-26 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68164678&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-7-26 23:28</a>
+月卡一出，是不是3000都不发了，上次港服封顶没给
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alph ...</blockquote>
+港服登顶的消息已经删了，所以是不存在的事物<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
