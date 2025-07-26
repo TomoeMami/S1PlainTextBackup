@@ -809,3 +809,20 @@ SSR都没几个，点的Z永恒关大部分人都是招募机师
 
 UR尊者应该是能单通永恒EX2的强度吧
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2334#       发表于 2025-7-27 02:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">还得是骡叔叔
+
+Screenshot_20250727-022734.jpg
+(567.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-27 02:28 上传
+
+<img src="https://img.stage1st.com/forum/202507/27/022838cwcxwcfwtciqicch.jpg" referrerpolicy="no-referrer">
+
