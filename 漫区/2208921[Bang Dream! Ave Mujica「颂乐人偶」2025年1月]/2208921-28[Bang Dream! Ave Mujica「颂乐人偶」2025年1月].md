@@ -561,3 +561,11 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
        [https://x.com/sasakirico/status/1948958659947774374](https://x.com/sasakirico/status/1948958659947774374)
 
+
+*****
+
+####  凉良  
+##### 41115#       发表于 2025-7-26 19:20
+
+有批判性录播么
+
