@@ -319,3 +319,17 @@
 
 50宝威和200%特攻呢
 
+
+*****
+
+####  sin.yugi  
+##### 17167#       发表于 2025-7-27 04:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68159957&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-25 11:00</a>
+不清楚....我最后库库尔坎一套宝具+B卡暴击也只能打掉大概60多万血
+
+身上没有无敌和肃正防御挂着的话所长一 ...</blockquote>
+带防御无视礼装（例如那个烟雾镜海滩），我库库尔坎经梅林和杀狐buff后一宝具200多万，然后两红卡暴击就溢出了
+
+— from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
