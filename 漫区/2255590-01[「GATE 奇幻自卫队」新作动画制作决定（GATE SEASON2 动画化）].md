@@ -8,3 +8,11 @@
 
 另外，看到Season2预览图里那个看上去像是领导的军官，在第一部里也有过登场，不过也就是个几句台词的NPC。
 
+
+*****
+
+####  我爱喵喵  
+##### 51#       发表于 2025-7-26 15:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比这个原作，半同人的《异界穿越手册》我觉得要有趣的多
+
