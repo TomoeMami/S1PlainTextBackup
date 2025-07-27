@@ -14569,3 +14569,11 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 倒是有些区域要打个躲在角落里的靶来解锁，这个不开辅助是真的不容易注意，有好几次我是罐子雷达响了原地找半天才发现，要是不响鬼才看得到<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  观铃の使魔  
+##### 4187#       发表于 2025-7-27 16:23
+
+剑星 完美格挡300次成就   数据能继承到二周目吗  实在不想刻意刷了
+
