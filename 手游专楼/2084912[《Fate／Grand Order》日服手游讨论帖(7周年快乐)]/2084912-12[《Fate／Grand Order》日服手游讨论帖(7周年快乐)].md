@@ -333,3 +333,21 @@
 
 — from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 17168#       发表于 2025-7-27 18:26
+
+<img src="https://img.stage1st.com/forum/202507/27/182357udkux9397u33zcpz.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (847.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-27 18:23 上传
+
+周末下午在家闲得无聊又打了遍....把剩下的所有队伍都献祭完后让盾娘一炮轰了400多万
+
+打完才想起来了还忘记开御主技能了....不然还能打更高伤害<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
