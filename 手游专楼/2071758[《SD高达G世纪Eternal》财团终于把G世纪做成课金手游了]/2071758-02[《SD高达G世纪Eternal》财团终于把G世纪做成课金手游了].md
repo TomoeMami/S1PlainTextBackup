@@ -826,3 +826,13 @@ Screenshot_20250727-022734.jpg
 
 <img src="https://img.stage1st.com/forum/202507/27/022838cwcxwcfwtciqicch.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gunbird  
+##### 2335#       发表于 2025-7-28 02:12
+
+减射程武装不是EX武装，PVP不会优先发动，而且防机普遍性的低机动后发，等你报丧行动幸存的机体都在地图中间了，差那点射程基本没影响。要是报丧能先动，盾机冲上去主动挨对面EX武装那就更是笑话了。
+
+减射程真正能起作用，也就是PVE模式敌机可能输出极端高下的环境。
+
