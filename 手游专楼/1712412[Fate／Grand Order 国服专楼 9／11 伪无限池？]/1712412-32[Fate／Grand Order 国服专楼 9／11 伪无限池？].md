@@ -42,3 +42,11 @@
 
 好了，各位可以准备删游戏退坑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FrozenA  
+##### 47212#       发表于 2025-7-27 22:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">急急急要抽福袋
+
