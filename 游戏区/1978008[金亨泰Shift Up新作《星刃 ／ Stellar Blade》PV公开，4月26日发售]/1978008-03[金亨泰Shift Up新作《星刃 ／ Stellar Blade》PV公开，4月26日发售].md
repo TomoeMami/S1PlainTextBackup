@@ -14554,3 +14554,18 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 对了，提档还有个副作用是如果学姐更晚出场，这个战斗肯定可以增加烈度打得更热闹而不是目前这个放水随你砍的状态<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 4186#       发表于 2025-7-27 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166093&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-7-27 11:47</a>
+
+都打到这里了，不可能不知道要垫箱子吧
+
+问题就是垫了之后普通加速二段跳还是摔死了好几次，才去看攻略要加 ...</blockquote>
+这游戏一路上为了探索，各种空中加速极限跳来实验能不能爬某个区域早该成日常了
+
+倒是有些区域要打个躲在角落里的靶来解锁，这个不开辅助是真的不容易注意，有好几次我是罐子雷达响了原地找半天才发现，要是不响鬼才看得到<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
