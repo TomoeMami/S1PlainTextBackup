@@ -50,3 +50,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">急急急要抽福袋
 
+
+*****
+
+####  khxooo  
+##### 47213#       发表于 2025-7-27 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169031&amp;ptid=1712412" target="_blank">FrozenA 发表于 2025-7-27 22:44</a>
+
+急急急要抽福袋</blockquote>
+一般都会提前的，建议40分看一下开服没有。
+
