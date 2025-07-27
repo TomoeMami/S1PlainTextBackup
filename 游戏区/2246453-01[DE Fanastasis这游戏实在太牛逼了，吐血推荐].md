@@ -18,3 +18,16 @@
 
 —— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  haru橙子  
+##### 422#       发表于 2025-7-27 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166813&amp;ptid=2246453" target="_blank">hootao 发表于 2025-7-27 14:47</a>
+
+进地下都市，从这个关隘的外侧左边墙壁隐藏门进
+
+—— 来自 OPPO PKK110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+找到了，感谢
+
