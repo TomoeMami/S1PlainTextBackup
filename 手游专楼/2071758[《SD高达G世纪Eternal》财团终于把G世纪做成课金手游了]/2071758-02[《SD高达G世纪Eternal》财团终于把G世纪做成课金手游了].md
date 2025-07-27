@@ -877,3 +877,16 @@ Z时代相关作品也就是AOZ提坦斯旗下和天空学校了吧。
 
 全装甲百式改这个确实不太了解。
 
+
+*****
+
+####  rockroxas  
+##### 2339#       发表于 2025-7-28 06:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169838&amp;ptid=2071758" target="_blank">gunbird 发表于 2025-7-28 04:12</a>
+
+走位影响可能用长射程，但近距离低伤害武装也应该只有你输出足够击杀才会切吧。另外话说人棍的射程增加 AI ...</blockquote>
+人棍那台是支援，PVP首动怎么着都不可能击杀的，所以就觉得很谜
+
+海牛现在自动打图时能看到正常用6格射程了
+
