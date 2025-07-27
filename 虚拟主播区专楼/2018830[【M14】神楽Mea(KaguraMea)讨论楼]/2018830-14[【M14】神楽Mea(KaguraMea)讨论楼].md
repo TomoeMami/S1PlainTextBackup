@@ -1781,3 +1781,12 @@ Mix列表是本能反应吗？
 
 要是唱砸了还请见谅。
 
+
+*****
+
+####  sino__unnko3  
+##### 19267#       发表于 2025-7-27 22:53
+
+用waifu简单处理了一下，像是你咩在ps里预处理过了
+<img src="https://p.sda1.dev/26/decc54308e6e3775840b00720f49e749/image.jpg" referrerpolicy="no-referrer">
+
