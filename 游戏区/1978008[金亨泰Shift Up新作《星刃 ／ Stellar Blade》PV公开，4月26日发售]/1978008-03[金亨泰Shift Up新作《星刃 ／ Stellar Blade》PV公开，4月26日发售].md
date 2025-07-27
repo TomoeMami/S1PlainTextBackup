@@ -14446,3 +14446,28 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 等到钓鱼的时候，果断打了mod，秒收杆，不为难自己了。
 
+
+*****
+
+####  Andariel  
+##### 4179#       发表于 2025-7-27 11:37
+
+ 本帖最后由 Andariel 于 2025-7-27 11:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166028&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-7-27 11:31</a>
+这游戏的跳跳乐也太多了吧，最恶心的是大沙漠有个楼顶上冲刺跳的，要先在楼顶上跑出加速冲刺状态，跳到跷跷 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跷跷板那里正确解法是垫箱子在跷跷板下面不让它下落
+那个平台旁边箱子堆里面有个黄箱子可以拉出来垫下面的
+垫上之后就不用等冲刺出二段加速了，普通加速跑就能跳到横杆上
+
+*****
+
+####  wzh5555  
+##### 4180#       发表于 2025-7-27 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151695&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-24 18:48</a>
+
+问个小问题。
+
+女主的脸看着是瘦长瓜子形的，怎么到自拍时忽然就变丰满圆润不少了。 ...</blockquote>
+自拍如果用长焦会有拉宽的效果。
+
