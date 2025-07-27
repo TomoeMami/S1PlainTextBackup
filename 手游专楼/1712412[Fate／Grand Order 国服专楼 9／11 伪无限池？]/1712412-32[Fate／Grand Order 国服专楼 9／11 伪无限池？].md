@@ -85,3 +85,15 @@
 
 MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
+
+*****
+
+####  khxooo  
+##### 47216#       发表于 2025-7-28 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169530&amp;ptid=1712412" target="_blank">马桶3 发表于 2025-7-28 00:42</a>
+下午才发现自己仓库里终之花库存为4
+
+为时已晚没空刷了</blockquote>
+不是急的话离学姐还有13天，关键50充应该可以点满。
+
