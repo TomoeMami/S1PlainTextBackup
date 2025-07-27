@@ -364,3 +364,14 @@
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  森兰丸  
+##### 17170#       发表于 2025-7-27 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68168187&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-27 20:07</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">羡慕个大头鬼....不都是人手一个的上古遗物
+
