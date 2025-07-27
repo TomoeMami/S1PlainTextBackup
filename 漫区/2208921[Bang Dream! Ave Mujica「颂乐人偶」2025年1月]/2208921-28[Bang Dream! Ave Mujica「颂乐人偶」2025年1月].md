@@ -871,3 +871,14 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
 睦：うん </blockquote>
 
+
+*****
+
+####  十九号大侠  
+##### 41120#       发表于 2025-7-27 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68163461&amp;ptid=2208921" target="_blank">凉良 发表于 2025-7-26 19:20</a>
+
+有批判性录播么</blockquote>
+[https://www.bilibili.com/video/B ... b01b1401ccaab2bca67](https://www.bilibili.com/video/BV1HW88z5Eb5/?spm_id_from=333.1007.tianma.2-1-4.click&amp;vd_source=02434b7ec8a34b01b1401ccaab2bca67)
+
