@@ -28,3 +28,11 @@ Nagi这次唱Primay时有点夹音，感觉很新鲜
 Nagi这次唱Primay时有点夹音，感觉很新鲜</blockquote>
 不知道到底是不是有垫音，或者干脆为了休息一下放了录音，因为唱的实在是太好了......如果是真唱的话我愿称之为星团solo表演新高峰
 
+
+*****
+
+####  奥柏伦亲王  
+##### 1693#       发表于 2025-7-27 18:08
+
+今天也是特别的好，仿佛找回了当初看星的初心，人美，歌好，唱得也好<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -141,3 +141,14 @@ wow……这脸红，六伊真别碰瓷了<img src="https://static.stage1st.com/
 
 光子力射线和火箭飞拳是吧还是发射出去要自己飞回来的原教旨飞拳<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 1186#       发表于 2025-7-27 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166899&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-7-27 15:13</a>
+
+新反派和响凯特很像 别到时候又是老早魔法少女动画男主和大反派是兄弟之类的东西 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不撸和雷德
+
