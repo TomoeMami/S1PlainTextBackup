@@ -18,3 +18,11 @@
 
 —— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lydia5989  
+##### 136#       发表于 2025-7-27 18:28
+
+让蓝色的妈变个身上去打吧，专业对口，历史上也打过
+
