@@ -375,3 +375,50 @@
 欧 羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">羡慕个大头鬼....不都是人手一个的上古遗物
 
+
+*****
+
+####  森兰丸  
+##### 17171#       发表于 2025-7-27 18:26
+
+ 本帖最后由 森兰丸 于 2025-7-27 18:29 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/27/182357udkux9397u33zcpz.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (847.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-27 18:23 上传
+
+周末下午在家闲得无聊又打了遍....把剩下的所有队伍都献祭完后让盾娘一炮轰了400多万<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17172#       发表于 2025-7-27 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68167701&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-27 18:26</a>
+
+周末下午在家闲得无聊又打了遍....把剩下的所有队伍都献祭完后让盾娘一炮轰了400多万
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  森兰丸  
+##### 17173#       发表于 2025-7-27 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68168187&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-7-27 20:07</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">羡慕个大头鬼....不都是人手一个的上古遗物
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17174#       发表于 2025-7-28 06:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑杯梦终加持的学妹炮打了八位数…太离谱了…
+
