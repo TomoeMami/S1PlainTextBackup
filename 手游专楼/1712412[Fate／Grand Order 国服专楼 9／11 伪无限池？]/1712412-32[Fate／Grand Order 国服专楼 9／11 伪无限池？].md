@@ -71,3 +71,17 @@
 
 为时已晚没空刷了<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hyhaha  
+##### 47215#       发表于 2025-7-28 00:56
+
+终之花还有70个
+
+看了下需求，艾蕾和西耶尔需要118个
+
+真要放弃1/3修炼场继续去刷么
+
+MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
+
