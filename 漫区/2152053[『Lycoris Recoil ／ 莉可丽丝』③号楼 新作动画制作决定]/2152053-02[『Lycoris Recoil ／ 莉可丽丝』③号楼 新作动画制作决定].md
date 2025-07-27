@@ -25,3 +25,19 @@
 你在说什么啊，千束不希望竞争吗</blockquote>
 看到惠女士就想起蒜的官方一个奇葩想法<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，蒜是少有的刻意把主角团外的人<strong>全部搞成非唯美的画风</strong>，此等奇葩无论是多年前还是多年后都少见（以前的严肃片，大家的画风要么都是肌肉男，肌肉女，起码是保持一致的）
 
+
+*****
+
+####  osore  
+##### 2385#       发表于 2025-7-27 11:05
+
+<img src="https://img.stage1st.com/forum/202507/27/110409ilucl47ub3hg3tiy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2211.jpeg</strong> (485.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-27 11:04 上传
+
+钱包要逃走了
+
