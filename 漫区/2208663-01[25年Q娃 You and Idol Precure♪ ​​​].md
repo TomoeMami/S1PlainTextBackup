@@ -72,3 +72,11 @@ wow……这脸红，六伊真别碰瓷了<img src="https://static.stage1st.com/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 1179#       发表于 2025-7-27 10:18
+
+本集最大的作用大概是拿来拷打卡提洗白回不让乌塔酱净化而是让ZQKiss净化这件事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
