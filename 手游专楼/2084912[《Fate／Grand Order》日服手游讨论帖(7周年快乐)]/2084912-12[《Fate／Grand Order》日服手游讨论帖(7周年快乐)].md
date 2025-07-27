@@ -351,3 +351,16 @@
 
 打完才想起来了还忘记开御主技能了....不然还能打更高伤害<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17169#       发表于 2025-7-27 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68167701&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-27 18:26</a>
+
+周末下午在家闲得无聊又打了遍....把剩下的所有队伍都献祭完后让盾娘一炮轰了400多万
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕
+

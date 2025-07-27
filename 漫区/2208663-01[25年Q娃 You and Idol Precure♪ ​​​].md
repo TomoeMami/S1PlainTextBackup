@@ -152,3 +152,13 @@ wow……这脸红，六伊真别碰瓷了<img src="https://static.stage1st.com/
 新反派和响凯特很像 别到时候又是老早魔法少女动画男主和大反派是兄弟之类的东西 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不撸和雷德
 
+
+*****
+
+####  Blackson  
+##### 1187#       发表于 2025-7-27 20:10
+
+说白了还是奈奈在此之前没有什么描写，所以这两集发展很突兀是正常。奈奈的个性太普了，不像阿心和阿歌有突出的地方(例如前者的偶像宅，阿歌的“预制歌"等)
+
+这集和下集很明显在慢慢铺梅洛伦的剧情了。新干部的召怪台词跟三人组不一样
+
