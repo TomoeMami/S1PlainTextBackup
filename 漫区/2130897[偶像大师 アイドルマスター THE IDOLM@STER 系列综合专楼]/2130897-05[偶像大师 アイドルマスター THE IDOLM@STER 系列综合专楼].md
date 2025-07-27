@@ -143,3 +143,19 @@
 
 2026年还会有大的吗？
 
+
+*****
+
+####  darkangel0224  
+##### 7118#       发表于 2025-7-27 21:48
+
+OFA的汉化补丁出了呐，可喜可贺
+
+https://www.bilibili.com/video/BV1bMuoz2Edj
+
+备份评论区的傻瓜套模拟器下载
+
+magnet:?xt=urn:btih:4F62COE2WUJMPUOESSPNSZFEOXE7Q7HD
+
+https://cloud.189.cn/t/VfEZbiANFnmi（访问码：lch6）
+
