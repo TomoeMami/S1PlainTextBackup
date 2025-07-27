@@ -272,3 +272,12 @@
 第一次见到变身动作被各种吐槽的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 正片会不会改吗？ 还是准备让家长发力改
 
+
+*****
+
+####  永恒的王牌  
+##### 137#       发表于 2025-7-27 14:56
+
+要改的话肯定能改的，当年圣刃最后一集联动利维斯的时候维斯有个放屁而且放屁很臭的设定，正片一点痕迹都没有了
+但这是高桥，我不好说<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
