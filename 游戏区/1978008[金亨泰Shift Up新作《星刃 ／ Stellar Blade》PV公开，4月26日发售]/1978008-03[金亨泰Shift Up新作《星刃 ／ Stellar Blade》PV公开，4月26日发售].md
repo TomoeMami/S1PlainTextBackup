@@ -14539,3 +14539,18 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 
 2，因为空中垂吊按DASH键是松手，因为游戏有一定预输入的关系，DASH抓杆紧张按多下有时就会出现抓杆后读取了DASH指令松手。所以还是要淡定，DASH按一下就好。
 
+
+*****
+
+####  永远的访客  
+##### 4185#       发表于 2025-7-27 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68151048&amp;ptid=1978008" target="_blank">多重影 发表于 2025-7-24 17:00</a>
+
+很多年以前剑星还叫夏娃计划的时候放出来的PV里就有这段处决动画了，而那个PV最后的画面是打师姐。中间估 ...</blockquote>
+师姐这种上来就退场的本来完全可以作为剧情关键人物，拉成游戏一条剧情主线到后期才打，结果莫名其妙没过几个图就出来了。而且打完台词也光顾着煽情，观众本来想知道的是怎么活人也可以变成一个阿尔法孽奇拔，孽奇拔比想象中智慧多了而不只是一群野兽，师姐又是遇到了啥才变成这个鬼样子，孽奇拔到底是怎么回事，它台词直接跳过这一套来个追悼会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我猜这样提档是为了早点让玩家解锁变身模式而已，原本可以安排成eve在继续为先知/亚当卖命顺便执行母主原任务的同时先得知孽奇拔和人类的关系，然后在动摇的过程中发现师姐也成了受害者，于是从执行者觉醒了自我意识-这个时候该恨的到底是自卫的孽奇拔还是让她们来送死的母主是玩家自己的事，就是该出剧情分支的时候了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+对了，提档还有个副作用是如果学姐更晚出场，这个战斗肯定可以增加烈度打得更热闹而不是目前这个放水随你砍的状态<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
