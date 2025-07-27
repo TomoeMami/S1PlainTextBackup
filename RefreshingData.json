@@ -2948,7 +2948,7 @@
     "newtitle": "[已改为MBON等高达VS系列讨论帖。主贴已整合教学资料]",
     "lastedit": 1753399455,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1992654": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 178645,
+    "totalreply": 178646,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1753656848,
+    "lastedit": 1753658649,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9693,10 +9693,10 @@
     "update": false
   },
   "2124540": {
-    "totalreply": 800,
+    "totalreply": 805,
     "title": "[新月同行讨论楼（6月14日三测开启）]",
     "newtitle": "[新月同行讨论楼（6月14日三测开启）]",
-    "lastedit": 1753539860,
+    "lastedit": 1753658889,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 3598,
+    "totalreply": 3599,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1753653127,
+    "lastedit": 1753658651,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12159,10 +12159,10 @@
     "update": false
   },
   "2198890": {
-    "totalreply": 233,
+    "totalreply": 234,
     "title": "[瑠璃的宝石 TV动画化 2025年]",
     "newtitle": "[瑠璃的宝石 TV动画化 2025年]",
-    "lastedit": 1753657689,
+    "lastedit": 1753658407,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12384,10 +12384,10 @@
     "update": false
   },
   "2256221": {
-    "totalreply": 181,
+    "totalreply": 182,
     "title": "[俄媒称，库兹涅佐夫号航母的修复已经暂停，俄国防部考虑是否废弃]",
     "newtitle": "[（确定不修了）俄媒称，库兹涅佐夫号航母的修复已经暂停，俄国防部考虑是否废弃]",
-    "lastedit": 1753645327,
+    "lastedit": 1753658890,
     "category": "外野",
     "active": true,
     "update": false
@@ -13563,10 +13563,10 @@
     "update": false
   },
   "2256712": {
-    "totalreply": 1135,
+    "totalreply": 1136,
     "title": "[要不咱们赌一把，大家觉得《明末》内容会踩几个雷？]",
     "newtitle": "[明末发售结算了，首日差评如潮，喜提村里第一个jiangping]",
-    "lastedit": 1753657927,
+    "lastedit": 1753658890,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14922,10 +14922,10 @@
     "update": false
   },
   "2257151": {
-    "totalreply": 124,
+    "totalreply": 125,
     "title": "[请教下各位广东的，“鸡有鸡味”到底是个啥概念…]",
     "newtitle": "[请教下各位广东的，“鸡有鸡味”到底是个啥概念…]",
-    "lastedit": 1753653727,
+    "lastedit": 1753658527,
     "category": "外野",
     "active": true,
     "update": false
@@ -16218,10 +16218,10 @@
     "update": false
   },
   "2257537": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[玩完了明末，很感动]",
     "newtitle": "[玩完了明末，很感动]",
-    "lastedit": 1753657688,
+    "lastedit": 1753658651,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16385,6 +16385,15 @@
     "newtitle": "[明末暴雷之后，下一款国产游戏你最不看好谁]",
     "lastedit": 1753656128,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2257413": {
+    "totalreply": 41,
+    "title": "[胆大党看人设挺土的，可以看吗？]",
+    "newtitle": "[胆大党看人设挺土的，可以看吗？]",
+    "lastedit": 1753658769,
+    "category": "漫区",
     "active": true,
     "update": false
   }
