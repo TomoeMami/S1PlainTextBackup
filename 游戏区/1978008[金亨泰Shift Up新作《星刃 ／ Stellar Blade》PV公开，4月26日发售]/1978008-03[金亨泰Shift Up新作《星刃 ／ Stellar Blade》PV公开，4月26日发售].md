@@ -14471,3 +14471,71 @@ https://www.bilibili.com/video/BV1SUghzjEn6/
 女主的脸看着是瘦长瓜子形的，怎么到自拍时忽然就变丰满圆润不少了。 ...</blockquote>
 自拍如果用长焦会有拉宽的效果。
 
+
+*****
+
+####  江阔云低任西东  
+##### 4181#       发表于 2025-7-27 11:47
+
+ 本帖最后由 江阔云低任西东 于 2025-7-27 11:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166050&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-7-27 11:37</a>
+
+跷跷板那里正确解法是垫箱子在跷跷板下面不让它下落
+
+那个平台旁边箱子堆里面有个黄箱子可以拉出来垫下面 ...</blockquote>
+都打到这里了，不可能不知道要垫箱子吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+问题就是垫了之后普通加速二段跳还是摔死了好几次，才去看攻略要加速冲刺的……<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+这游戏的跳跳乐有个最大的问题，就是空中冲刺抓横杠绳子之类非常非常容易掉下去，也不知道是怎么设置的。。。
+
+*****
+
+####  江戸前ルナ  
+##### 4182#       发表于 2025-7-27 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166093&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-7-27 11:47</a>
+
+都打到这里了，不可能不知道要垫箱子吧
+
+问题就是垫了之后普通加速还是摔死了好几次，才去看攻略要加速冲 ...</blockquote>
+其实需要注意两个细节
+
+1，二段跳技巧。要充分利用第一段跳的上升滞空再按第二段，同样的利用好第二段的上升滞空再按DASH。
+
+2，踏板中间比两边长一小段，建议在中间位置起跳，起跳位置会近一点，那一点点能增加不少容错。
+
+
+*****
+
+####  Andariel  
+##### 4183#       发表于 2025-7-27 11:53
+
+ 本帖最后由 Andariel 于 2025-7-27 11:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166093&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-7-27 11:47</a>
+
+都打到这里了，不可能不知道要垫箱子吧
+
+问题就是垫了之后普通加速二段跳还是摔死了好几次，才去看攻略要加 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我三周目了这里都没加速冲刺过.....
+
+箱子要垫的偏跷跷板轴心那里，地上还有个黄色方框的标记
+
+沙漠这里需要加速冲刺才比较稳的是那个限时跑酷的谜题那里
+
+*****
+
+####  江戸前ルナ  
+##### 4184#       发表于 2025-7-27 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68166093&amp;ptid=1978008" target="_blank">江阔云低任西东 发表于 2025-7-27 11:47</a>
+
+都打到这里了，不可能不知道要垫箱子吧
+
+问题就是垫了之后普通加速二段跳还是摔死了好几次，才去看攻略要加 ...</blockquote>
+跳跳乐小细节：（一些攻略视频教的）
+
+1，前跳容易跳过头的地方跳起后不要拉方向键。那么落地时只要能落地因为有边缘保护是不会掉下去的，但拉着方向键就容易自己“跑”下去了；
+
+2，因为空中垂吊按DASH键是松手，因为游戏有一定预输入的关系，DASH抓杆紧张按多下有时就会出现抓杆后读取了DASH指令松手。所以还是要淡定，DASH按一下就好。
+
