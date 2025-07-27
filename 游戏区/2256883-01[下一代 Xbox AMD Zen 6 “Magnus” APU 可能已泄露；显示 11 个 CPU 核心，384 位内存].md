@@ -37,3 +37,11 @@ MLID 推测，AMD Magnus 配备了 68 个 RDNA 5 计算单元（CUs），如果 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  alfredno2  
+##### 49#       发表于 2025-7-27 17:36
+
+2028年底发售 4090性能？
+
