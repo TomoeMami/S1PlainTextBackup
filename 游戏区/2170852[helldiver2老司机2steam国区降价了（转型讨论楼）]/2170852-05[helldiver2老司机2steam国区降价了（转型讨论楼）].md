@@ -1364,3 +1364,11 @@ CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接防火甲双刃镰趴地上激情对射
 
+
+*****
+
+####  qwased  
+##### 6898#       发表于 2025-7-29 03:38
+
+大手发力了，要杀的利维坦数量直接腰斩，现在已经80%了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
