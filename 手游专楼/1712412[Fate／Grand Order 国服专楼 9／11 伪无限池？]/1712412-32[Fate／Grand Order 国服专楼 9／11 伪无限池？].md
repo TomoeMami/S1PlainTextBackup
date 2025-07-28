@@ -365,3 +365,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 命定钓鱼佬。福袋双黄。五十抽艾蕾。
 运气不错的周年，没有充钱<img src="https://static.stage1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝仓和美  
+##### 47246#       发表于 2025-7-28 21:01
+
+一个十连两宝老婆，算什么水平
+
