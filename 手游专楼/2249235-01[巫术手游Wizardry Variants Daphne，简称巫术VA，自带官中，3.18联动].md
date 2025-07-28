@@ -54,3 +54,14 @@
 
  这游戏抽卡是比较正常纯看脸还是演都不演全重复 我怎么二连代博拉然后啥也没有 
 
+
+*****
+
+####  电脑死机  
+##### 472#       发表于 2025-7-28 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68165154&amp;ptid=2249235" target="_blank">碧空之歌P 发表于 2025-7-27 02:32</a>
+
+不能用巨人女法师砍吗</blockquote>
+试炼里敌人物理抗性和钢试炼同款，大奶只能乖乖丢火球术了
+
