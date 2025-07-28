@@ -1282,3 +1282,14 @@ zaimanhua，manhuagui这些都行
 
 话说女骑士一开始附身的女龙化人遗体恢复成的身体怎么处理的？被送回墓地还是用蛆虫控制变成战力？
 
+
+*****
+
+####  东方定助  
+##### 141#       发表于 2025-7-28 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68167811&amp;ptid=2159012" target="_blank">佛剑分说 发表于 2025-7-27 18:49</a>
+
+安全守卫出场，东亚重工还远吗</blockquote>
+我记得安全守卫一开始就出场了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
