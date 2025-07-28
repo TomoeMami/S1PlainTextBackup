@@ -64,3 +64,14 @@ MLID 推测，AMD Magnus 配备了 68 个 RDNA 5 计算单元（CUs），如果 
 X86架构的没前途</blockquote>
 ？忘了cell怎么死的了，还是嫌主机不够贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不巨硬也整出个在CPU上跑SIMD的奇葩給做游戏的用
 
+
+*****
+
+####  Uranus  
+##### 52#       发表于 2025-7-28 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169709&amp;ptid=2256883" target="_blank">根正苗红 发表于 2025-7-28 01:58</a>
+
+？忘了cell怎么死的了，还是嫌主机不够贵要不巨硬也整出个在CPU上跑SIMD的奇葩給做游戏的用 ...</blockquote>
+走ARM定制才是正途
+
