@@ -265,3 +265,13 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 艾蕾100抽拼尽全力没有战胜，福袋和命定都凑数宝具+1，悲剧了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doublehit  
+##### 47235#       发表于 2025-7-28 14:49
+
+三百多石头出了艾蕾，中间还歪了个果心居士，舒服了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
