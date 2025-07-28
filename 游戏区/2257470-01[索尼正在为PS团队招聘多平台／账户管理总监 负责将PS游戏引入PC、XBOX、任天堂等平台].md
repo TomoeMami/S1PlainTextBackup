@@ -386,3 +386,16 @@ gt要是上pc那必须适配键鼠吧
 想要ds5支持好点儿还得有线连电脑，难受啊</blockquote>
 ps4时候还出usb接收器的，现在不知道为啥不出了
 
+
+*****
+
+####  赤井稻妻  
+##### 42#       发表于 2025-7-28 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68172555&amp;ptid=2257470" target="_blank">Amami_Haruka_ 发表于 2025-7-28 15:06</a>
+
+gt要是上pc那必须适配键鼠吧
+
+没线性扳机的话好奇驾照能不能考过</blockquote>
+pc的第三方手柄基本都有线性扳机吧，键鼠反而没有
+

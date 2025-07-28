@@ -302,3 +302,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 然后480抽，水艾蕾2宝，犹豫要不要冲3宝。。前两周冲动600抽汇呆结果毛都没出有点后悔，说不定能让艾蕾5宝的。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 47239#       发表于 2025-7-28 16:27
+
+福袋涔+汇呆，250石艾蕾二宝，圆满了
+
