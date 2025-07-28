@@ -241,3 +241,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 哇 命定池出了我最想要的弓凛2宝，本来还打算明年冠位池强抽的，终于欧了一下<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 47232#       发表于 2025-7-28 13:43
+
+60抽出了水艾蕾还有1000石等咖喱学姐了
+
