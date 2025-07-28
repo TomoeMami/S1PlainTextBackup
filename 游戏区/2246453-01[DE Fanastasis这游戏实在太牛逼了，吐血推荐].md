@@ -86,3 +86,16 @@
 
 （感觉这游戏战斗系统跟真5v开荒差不多 就是打弱点和关键时候丢预防db来康特）
 
+
+*****
+
+####  blueelf  
+##### 427#         楼主| 发表于 2025-7-28 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68171226&amp;ptid=2246453" target="_blank">windhawind2 发表于 2025-7-28 11:23</a>
+
+感谢 我用火法双刀炼金试试
+
+（感觉这游戏战斗系统跟真5v开荒差不多 就是打弱点和关键时候丢预防db来康特 ...</blockquote>
+战前吃预防药效果也能持续到战斗中，打BOSS前吃点吧
+
