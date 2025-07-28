@@ -391,3 +391,13 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 大失败。兽艾蕾歪阿喀琉斯，福袋4选3出我唯一有的。心情糟糕。
 
+
+*****
+
+####  FrozenA  
+##### 47249#       发表于 2025-7-28 22:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">拿1宝艾蕾把周年这些本全打了
+
+确实情绪价值太足了
+
