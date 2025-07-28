@@ -409,3 +409,16 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 上头补二宝失败
 
+
+*****
+
+####  khxooo  
+##### 47251#       发表于 2025-7-28 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68174202&amp;ptid=1712412" target="_blank">溯夜 发表于 2025-7-28 19:03</a>
+
+艾蕾这强度超出预期啊，我还以为很菜呢
+
+论坛助手,iPhone</blockquote>
+5宝，配合好感度的万物特攻，的确不差，但是还是那句，别人可以用更低的宝具数做出更好的工作<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
