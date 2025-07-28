@@ -318,3 +318,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 目前120抽3宝，希望后两宝顺利<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  呀书吾人  
+##### 47241#       发表于 2025-7-28 16:54
+
+本来1700+石头+220护符觉得水雷+学姐稳了，结果水雷直接千石一宝吃大保底，瞬间感觉寄了
+
