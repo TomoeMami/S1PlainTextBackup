@@ -1372,3 +1372,11 @@ CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器
 
 大手发力了，要杀的利维坦数量直接腰斩，现在已经80%了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 6899#       发表于 2025-7-29 04:16
+
+完成任务目标就减数量了，不过现在还是打不完吧
+
