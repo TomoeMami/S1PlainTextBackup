@@ -310,3 +310,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 福袋涔+汇呆，250石艾蕾二宝，圆满了
 
+
+*****
+
+####  Urakawa  
+##### 47240#       发表于 2025-7-28 16:43
+
+目前120抽3宝，希望后两宝顺利<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
