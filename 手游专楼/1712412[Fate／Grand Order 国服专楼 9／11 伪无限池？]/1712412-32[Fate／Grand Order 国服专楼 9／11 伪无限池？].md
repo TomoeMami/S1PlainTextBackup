@@ -118,3 +118,22 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 47219#       发表于 2025-7-28 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68170580&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-7-28 09:54</a>
+现在覆盖安装还会出bug吗，好像没了吧
+
+—— 来自 OnePlus PKG110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+不清楚，反正看讨论覆盖安装的都说没问题。但我个人是删了重装的。
+
+*****
+
+####  花开安生  
+##### 47220#       发表于 2025-7-28 11:57
+
+我上次就是覆盖安装的
+
