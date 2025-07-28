@@ -422,3 +422,15 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 论坛助手,iPhone</blockquote>
 5宝，配合好感度的万物特攻，的确不差，但是还是那句，别人可以用更低的宝具数做出更好的工作<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 47252#       发表于 2025-7-29 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68175466&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-7-28 23:40</a>
+5宝，配合好感度的万物特攻，的确不差，但是还是那句，别人可以用更低的宝具数做出更好的工作 ...</blockquote>
+但是她好看！
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -86,3 +86,18 @@ X86架构的没前途</blockquote>
 走ARM定制才是正途</blockquote>
 所谓“正途”是？
 
+
+*****
+
+####  根正苗红  
+##### 54#       发表于 2025-7-29 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68174009&amp;ptid=2256883" target="_blank">Uranus 发表于 2025-7-28 18:29</a>
+
+走ARM定制才是正途</blockquote>
+??你们不折腾臭做游戏的就不舒服吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+RDNA又不是不能用。通用引擎放上去就能跑。好歹能有个中端gpu的性能。你大arm的最快的G925怕不是连2070都打不过，又得增加深度优化的成本吗。
+
+主机又不是掌机，就那点能耗比优势有毛用啊。
+
