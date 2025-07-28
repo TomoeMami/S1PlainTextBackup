@@ -60,3 +60,16 @@
 
 —— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blueelf  
+##### 425#         楼主| 发表于 2025-7-28 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68170525&amp;ptid=2246453" target="_blank">windhawind2 发表于 2025-7-28 09:47</a>
+
+问一下地图强度排列的顺序大致是怎样的？
+
+打到卡农之棺第一层疯狂找机关中 等级lv25左右 感觉打怪太麻烦了  ...</blockquote>
+这个游戏作者的制作理念是，游戏中的小怪仅仅是类似于障碍物或者陷阱一样的存在，是否与之战斗只看玩家自己的兴趣，小怪战斗奖励非常少
+
