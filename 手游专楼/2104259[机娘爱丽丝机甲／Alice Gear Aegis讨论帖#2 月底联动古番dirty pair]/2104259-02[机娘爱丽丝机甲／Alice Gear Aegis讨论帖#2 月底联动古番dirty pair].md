@@ -126,3 +126,13 @@ FY12-HWPG-KN1G-XF70
 
 2025-7-28 09:08 上传
 
+
+*****
+
+####  冰风血羽  
+##### 1565#       发表于 2025-7-28 14:21
+
+终于有三星斩击插了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
