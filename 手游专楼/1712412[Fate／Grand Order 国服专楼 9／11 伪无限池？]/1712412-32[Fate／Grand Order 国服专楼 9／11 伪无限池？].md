@@ -168,3 +168,27 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 艾蕾吃井了，我草
 
+
+*****
+
+####  FrozenA  
+##### 47225#       发表于 2025-7-28 12:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">福袋中了水伊吹，从0到1质变了
+
+水艾蕾也捞出来了，安心等学姐
+
+命定福袋准备抽，但是忍几天看一下日服周年强化吧
+
+剑/骑阶目前是一个都不想选….
+
+
+*****
+
+####  khxooo  
+##### 47226#       发表于 2025-7-28 12:52
+
+小号小福袋水妖兰2宝，命定汇呆2宝，可以接受。
+
+大号小福袋有珠，命定福袋青子，不错不错<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
