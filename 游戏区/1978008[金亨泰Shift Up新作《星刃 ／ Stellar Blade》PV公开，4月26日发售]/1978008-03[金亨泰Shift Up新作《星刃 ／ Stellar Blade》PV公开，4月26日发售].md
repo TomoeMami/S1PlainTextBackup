@@ -14686,3 +14686,14 @@ mod的话我比较俗 ...</blockquote>
 
 给小女孩拿玩偶那个下水道地图有种会连砍好几次的怪格挡很好刷
 
+
+*****
+
+####  心灵的乳头  
+##### 4197#       发表于 2025-7-28 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68171045&amp;ptid=1978008" target="_blank">优秀 发表于 2025-7-28 10:57</a>
+
+无人机在检测到易拉罐时真的会发出什么特别响声吗？我记得我在设置里打开了但就没听到什么特别声音，只是扫 ...</blockquote>
+呃，我戴耳机的话，觉得提示音还是蛮清晰的。
+
