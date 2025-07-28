@@ -145,3 +145,18 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 已经开了啊
 
+
+*****
+
+####  sandro  
+##### 47222#       发表于 2025-7-28 12:26
+
+福袋仇蛋糕+剑r，不算最差
+
+*****
+
+####  Urakawa  
+##### 47223#       发表于 2025-7-28 12:27
+
+十连到手<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不枉我在前面垫的
+

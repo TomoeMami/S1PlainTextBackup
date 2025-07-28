@@ -99,3 +99,13 @@
 （感觉这游戏战斗系统跟真5v开荒差不多 就是打弱点和关键时候丢预防db来康特 ...</blockquote>
 战前吃预防药效果也能持续到战斗中，打BOSS前吃点吧
 
+
+*****
+
+####  blackll7  
+##### 428#       发表于 2025-7-28 12:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏确实时候长假一口气玩完
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
