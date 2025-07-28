@@ -233,3 +233,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kyonkoism  
+##### 47231#       发表于 2025-7-28 13:19
+
+哇 命定池出了我最想要的弓凛2宝，本来还打算明年冠位池强抽的，终于欧了一下<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
