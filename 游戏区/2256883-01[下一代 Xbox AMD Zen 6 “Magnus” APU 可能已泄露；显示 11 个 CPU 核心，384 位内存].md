@@ -75,3 +75,14 @@ X86架构的没前途</blockquote>
 ？忘了cell怎么死的了，还是嫌主机不够贵要不巨硬也整出个在CPU上跑SIMD的奇葩給做游戏的用 ...</blockquote>
 走ARM定制才是正途
 
+
+*****
+
+####  4869Bi  
+##### 53#       发表于 2025-7-28 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68174009&amp;ptid=2256883" target="_blank">Uranus 发表于 2025-7-28 18:29</a>
+
+走ARM定制才是正途</blockquote>
+所谓“正途”是？
+
