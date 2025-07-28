@@ -338,3 +338,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 两个十连投入，兽艾蕾+1
 
+
+*****
+
+####  廖化  
+##### 47243#       发表于 2025-7-28 18:44
+
+艾蕾池子护符洗脸，结果护符出了太公望…………这什么鬼池子<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
