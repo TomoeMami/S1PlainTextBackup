@@ -275,3 +275,20 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  flyzzhj  
+##### 47236#       发表于 2025-7-28 15:20
+
+福袋双簧杀狐+库库尔坎，高兴
+
+130抽歪了剑双子，服了...
+
+*****
+
+####  qixinno2  
+##### 47237#       发表于 2025-7-28 15:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">水王姐+1 汇呆+1 50抽水艾蕾
+
