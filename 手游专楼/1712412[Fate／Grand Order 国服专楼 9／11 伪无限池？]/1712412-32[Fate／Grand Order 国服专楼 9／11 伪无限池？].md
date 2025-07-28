@@ -346,3 +346,13 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 艾蕾池子护符洗脸，结果护符出了太公望…………这什么鬼池子<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 47244#       发表于 2025-7-28 19:03
+
+艾蕾这强度超出预期啊，我还以为很菜呢
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -906,3 +906,28 @@ Z时代相关作品也就是AOZ提坦斯旗下和天空学校了吧。
 
 去翻了一下对战记录好像也不是每次都必闪，好神秘啊……
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2341#       发表于 2025-7-28 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68164982&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-27 00:57</a>
+
+还以为魔鬼高达是SSR，仔细一看原来是UR母舰，劲敌25
+
+UR尊者应该是能单通永恒EX2的强度吧 ...</blockquote>
+G世纪单机里的确有恶魔头母舰的
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2342#       发表于 2025-7-28 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169884&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-28 06:39</a>
+
+去翻了一下对战记录好像也不是每次都必闪，一定会死才会放必闪？
+
+看了一下人棍用EX是因为我当时脑抽了放的 ...</blockquote>
+必闪也闪不了EX技能
+
