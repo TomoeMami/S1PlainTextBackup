@@ -108,3 +108,13 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 不是急的话离学姐还有13天，关键50充应该可以点满。</blockquote>
 我记得周年重置白方块，可以先换了应急<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 47218#       发表于 2025-7-28 09:54
+
+现在覆盖安装还会出bug吗，好像没了吧
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
