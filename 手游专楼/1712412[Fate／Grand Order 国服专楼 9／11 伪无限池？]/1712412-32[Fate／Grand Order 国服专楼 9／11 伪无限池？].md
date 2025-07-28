@@ -292,3 +292,13 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">水王姐+1 汇呆+1 50抽水艾蕾
 
+
+*****
+
+####  ajkkdcry  
+##### 47238#       发表于 2025-7-28 15:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">两个福袋new了个杜尔迦和梣，里面还歪了个旧剑宝具+1.。。都4宝了，还不如给我个呆毛直接盘子+1能换东西。。
+
+然后480抽，水艾蕾2宝，犹豫要不要冲3宝。。前两周冲动600抽汇呆结果毛都没出有点后悔，说不定能让艾蕾5宝的。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
