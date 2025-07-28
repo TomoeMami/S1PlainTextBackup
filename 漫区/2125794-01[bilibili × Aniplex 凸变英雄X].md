@@ -5190,3 +5190,14 @@ https://www.zhihu.com/question/15634897648/answer/1893105665758692622
 这么看来后面的2d都是澜映画负责？我还以为会有新的工作室</blockquote>
 澜映画到大小强为止吧
 
+
+*****
+
+####  rushsong  
+##### 424#       发表于 2025-7-28 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68174360&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-7-28 19:37</a>
+
+澜映画到大小强为止吧</blockquote>
+但是4家公司都已经出完了，后面的2d还能换成谁做？
+
