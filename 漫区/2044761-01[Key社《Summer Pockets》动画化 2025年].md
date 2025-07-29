@@ -40,3 +40,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">下周终于要突入ALKA了，不知道结局是走原版还是RB的版本
 
+
+*****
+
+####  南風森愛恋  
+##### 202#       发表于 2025-7-29 22:37
+
+上一话都让某人露脸了，应该是rb那个结局了
+

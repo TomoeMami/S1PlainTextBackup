@@ -136,3 +136,11 @@ FY12-HWPG-KN1G-XF70
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  不灭的旋律  
+##### 1566#       发表于 2025-7-29 22:39
+
+SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似乎各种贝奖励也无法换了，早知道咬咬牙把β版的贝全部换了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
