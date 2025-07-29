@@ -967,3 +967,11 @@ G世纪单机里的确有恶魔头母舰的
 
 就是驾驶还是几乎全招募……
 
+
+*****
+
+####  dio999  
+##### 2347#       发表于 2025-7-29 22:16
+
+师匠就不下池了，反正以后绝逼还有明镜止水模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
