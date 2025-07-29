@@ -510,3 +510,11 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 一时忘记提醒，今天个打书页的任务，如果没打白纸化的可以去紫式部那个本，必掉书页的。
 
+
+*****
+
+####  flyzzhj  
+##### 47260#       发表于 2025-7-29 12:44
+
+这次那个减1CD的技能挺爽啊，我的公主不要绑定减CD衣服简直太棒了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
