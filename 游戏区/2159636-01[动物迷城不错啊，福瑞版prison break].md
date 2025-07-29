@@ -376,3 +376,16 @@ steam deck可以玩吗
 
 但有些问题还是没得到很好的优化，当初只有狐狸时我也打过一遍，后期不少流程就很拖沓了，但为了生存或者说为了攒资源，又不得不做，导致后期玩起来比较疲惫
 
+
+*****
+
+####  wthall  
+##### 42#       发表于 2025-7-29 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68177289&amp;ptid=2159636" target="_blank">water 发表于 2025-7-29 11:03</a>
+
+那么，哪里有攻略呢？
+
+被卡了两天仓库推箱子的人路过</blockquote>
+直接B站搜动物迷城推箱子，都有视频攻略的，很方便
+
