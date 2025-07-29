@@ -2411,3 +2411,18 @@ zerost还推给语音的锅，不想想看是不是 ...</blockquote>
 
 又是有大局观，又多不容易，给人看笑了。只能说有粉丝就是能为所欲为。
 
+
+*****
+
+####  术士q  
+##### 19278#       发表于 2025-7-29 18:25
+
+ 本帖最后由 术士q 于 2025-7-29 18:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68179674&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2025-7-29 17:36</a>
+确实也引到一点流就是了，风评也是从谷底波动上升中。
+
+不过这中单真是逆天，之前选黄鸡打不过维克多，现在 ...</blockquote>
+与其说是比赛不如说是表演吧。
+也因此有些逆天情况也正常
+<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">个人是觉得不要搞什么莫名其妙的发明，给中单玩点有熟练度的就好了，能杀能打出伤害倒也还行
+
