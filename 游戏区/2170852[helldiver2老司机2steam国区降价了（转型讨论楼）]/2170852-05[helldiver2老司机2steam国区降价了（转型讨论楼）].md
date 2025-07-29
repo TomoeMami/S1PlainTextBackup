@@ -1380,3 +1380,11 @@ CEO在官方DC里最近放过话的，回复一个建议出一号位近战武器
 
 完成任务目标就减数量了，不过现在还是打不完吧
 
+
+*****
+
+####  Fake_news  
+##### 6900#       发表于 2025-7-29 09:41
+
+MO太恶心了，不想去南线被颠勺，在可洛尔单人N1刷SC，传送背包真是好东西呀，而且感觉N1的SC还挺多的，单人一把能摸个四五十<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
