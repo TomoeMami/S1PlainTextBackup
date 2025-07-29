@@ -518,3 +518,18 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 这次那个减1CD的技能挺爽啊，我的公主不要绑定减CD衣服简直太棒了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nowiner  
+##### 47261#       发表于 2025-7-29 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68171710&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-7-28 12:52</a>
+
+小号小福袋水妖兰2宝，命定汇呆2宝，可以接受。
+
+大号小福袋有珠，命定福袋青子，不错不错 ...</blockquote>
+这简直是我
+
+小福袋new水妖兰，命定汇呆二宝
+
