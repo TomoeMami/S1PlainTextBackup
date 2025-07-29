@@ -939,3 +939,11 @@ G世纪单机里的确有恶魔头母舰的
 
 喔 这么说来必闪是闪不了地图炮来着 EX也同理吧
 
+
+*****
+
+####  丹德里恩  
+##### 2344#       发表于 2025-7-29 13:26
+
+琢磨了一下配置上20w了，3星海牛扔进一击必杀队4号位钓鱼中盘收割，割死了就win<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
