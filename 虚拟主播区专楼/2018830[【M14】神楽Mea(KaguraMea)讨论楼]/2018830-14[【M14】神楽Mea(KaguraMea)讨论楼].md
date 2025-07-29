@@ -2426,3 +2426,18 @@ zerost还推给语音的锅，不想想看是不是 ...</blockquote>
 也因此有些逆天情况也正常
 <img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">个人是觉得不要搞什么莫名其妙的发明，给中单玩点有熟练度的就好了，能杀能打出伤害倒也还行
 
+
+*****
+
+####  古战场亡魂  
+##### 19279#       发表于 2025-7-29 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68179935&amp;ptid=2018830" target="_blank">术士q 发表于 2025-7-29 18:25</a>
+
+与其说是比赛不如说是表演吧。
+
+也因此有些逆天情况也正常
+
+个人是觉得不要搞什么莫名其妙的发明，给中单玩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">next输了，不过adc挺给力的，换过来这边早赢了。
+
