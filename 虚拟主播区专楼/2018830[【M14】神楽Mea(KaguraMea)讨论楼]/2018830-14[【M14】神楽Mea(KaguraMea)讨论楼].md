@@ -2441,3 +2441,15 @@ zerost还推给语音的锅，不想想看是不是 ...</blockquote>
 个人是觉得不要搞什么莫名其妙的发明，给中单玩 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">next输了，不过adc挺给力的，换过来这边早赢了。
 
+
+*****
+
+####  术士q  
+##### 19280#       发表于 2025-7-29 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68180813&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2025-7-29 21:20</a>
+next输了，不过adc挺给力的，换过来这边早赢了。</blockquote>
+个人感觉next还是打野节奏导致的，虽然说是比赛，速三风险高，但是蔚速四感觉还是有点不合适的感觉，选出来应该也是想要帮抓下的，但没能抓成功几次，后面逆风自己野区都没刷完就摸黑进对面野区也很抽象，可以说一波带崩节奏，在那之后只能一直让资源慢性死亡
+
+卡莎玩得确实可以的，补刀数也很优秀，只可惜一直没有机会在拿下拿几个头时继续强势下去，也没办法
+

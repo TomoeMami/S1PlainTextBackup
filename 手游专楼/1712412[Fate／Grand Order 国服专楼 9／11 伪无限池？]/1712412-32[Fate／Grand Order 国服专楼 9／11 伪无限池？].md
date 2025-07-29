@@ -563,3 +563,12 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  不写笔记  
+##### 47265#       发表于 2025-7-29 21:48
+
+话说联动的交通卡，誓约胜利之剑那个，25cm啊
+蛇精病啊，这个周边的设计者精神状态是不是有问题啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
