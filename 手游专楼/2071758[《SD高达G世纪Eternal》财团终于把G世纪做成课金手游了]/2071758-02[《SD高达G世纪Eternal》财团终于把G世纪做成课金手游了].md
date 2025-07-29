@@ -947,3 +947,11 @@ G世纪单机里的确有恶魔头母舰的
 
 琢磨了一下配置上20w了，3星海牛扔进一击必杀队4号位钓鱼中盘收割，割死了就win<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 2345#       发表于 2025-7-29 14:24
+
+一想到z的开发机输出只有百式，我就想笑
+
