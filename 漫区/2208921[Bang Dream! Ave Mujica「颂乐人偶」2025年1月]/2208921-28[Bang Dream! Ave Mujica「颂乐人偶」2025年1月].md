@@ -1530,3 +1530,25 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
 [インタビュー・編集／鳥谷部宏平　文／篭法　撮影／小川遼] <blockquote>[采访编辑／鸟谷部宏平　撰稿／篭法　摄影／小川辽]</blockquote>
 
+
+*****
+
+####  堀内爱里衣  
+##### 41134#       发表于 2025-7-29 19:44
+
+       
+
+<img src="https://img.stage1st.com/forum/202507/29/194448offtkxfwqjfkff0f.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-07-29_19-42-49.jpg</strong> (293.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-29 19:44 上传
+
+       [https://x.com/JOYSOUND_PR/status/1950029811310551516](https://x.com/JOYSOUND_PR/status/1950029811310551516)
+
+       [https://t.co/BvmZhqNLYh](https://t.co/BvmZhqNLYh)
+
+       [https://t.co/DIgXcDJDuh](https://t.co/DIgXcDJDuh)
+
