@@ -109,3 +109,13 @@ RDNA又不是不能用。通用引擎放上去就能跑。好歹能有个中端g
 
 192bit GDDR7带宽大概会比Strix Halo的256bit LPDDR 8000高不少……
 
+
+*****
+
+####  CyborgIP  
+##### 56#       发表于 2025-7-29 11:07
+
+代际提升一般般，果然是"摩尔定律已死"吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
