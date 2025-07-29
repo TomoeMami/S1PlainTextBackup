@@ -2453,3 +2453,11 @@ next输了，不过adc挺给力的，换过来这边早赢了。</blockquote>
 
 卡莎玩得确实可以的，补刀数也很优秀，只可惜一直没有机会在拿下拿几个头时继续强势下去，也没办法
 
+
+*****
+
+####  术士q  
+##### 19281#       发表于 2025-7-29 22:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我倒要看看这次是怎么个推锅法，怎么给主播扣锅，会不会好的不提全提无关紧要的
+

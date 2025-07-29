@@ -32,3 +32,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  二阶堂真琉  
+##### 201#       发表于 2025-7-29 22:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">下周终于要突入ALKA了，不知道结局是走原版还是RB的版本
+
