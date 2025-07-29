@@ -119,3 +119,11 @@ RDNA又不是不能用。通用引擎放上去就能跑。好歹能有个中端g
 
 —— 来自 vivo V2324A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  keytomylife  
+##### 57#       发表于 2025-7-29 11:35
+
+性能提升太少，只能靠fsr黑魔法了
+
