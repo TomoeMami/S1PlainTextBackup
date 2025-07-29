@@ -422,3 +422,49 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑杯梦终加持的学妹炮打了八位数…太离谱了…
 
+
+*****
+
+####  烤土豆  
+##### 17175#       发表于 2025-7-28 18:35
+
+ 本帖最后由 烤土豆 于 2025-7-28 18:45 编辑 
+
+<img src="https://img.stage1st.com/forum/202507/28/183252l2qgma3zvq2czn3x.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (364.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-28 18:32 上传
+
+风所长这个本把机制吃全的话母猩猩也能打8位数，设计上来说还是有点巧思的。
+
+C呆前面队伍用掉了，否则加个对人类威胁特攻能打更多。
+
+*****
+
+####  壳壳牛  
+##### 17176#       发表于 2025-7-28 20:01
+
+唉不该手贱去抽礼装池...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  森兰丸  
+##### 17177#       发表于 2025-7-29 04:07
+
+这卡池也太幽默了....马上周年和夏活了....谁会为了几张纪念礼装去抽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17178#       发表于 2025-7-29 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68176037&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-7-29 04:07</a>
+
+这卡池也太幽默了....马上周年和夏活了....谁会为了几张纪念礼装去抽</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">看不见楼上富哥？
+
