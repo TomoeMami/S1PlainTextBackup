@@ -564,3 +564,14 @@ bg男与bg女联盟
 
 说起来昨天在黑盒看到个投票说愿意选p5里面哪位作为恋人，8500多的票仓学妹1600多张排第三，虽然天天嘲她红发女路人但人设还是太超模了，人气不算低，我看我也喜欢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xell2alex  
+##### 48#       发表于 2025-7-30 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185503&amp;ptid=2257386" target="_blank">pamia 发表于 2025-7-30 17:19</a>
+
+说起来昨天在黑盒看到个投票说愿意选p5里面哪位作为恋人，8500多的票仓学妹1600多张排第三，虽然天天嘲她红 ...</blockquote>
+第一肯定是铁拳正妻，第二是谁啊
+
