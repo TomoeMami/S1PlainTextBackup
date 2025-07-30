@@ -152,3 +152,14 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 本体AN混池<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">白毛红瞳
 
+
+*****
+
+####  江戸前ルナ  
+##### 1568#         楼主| 发表于 2025-7-30 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68181178&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-7-29 22:39</a>
+
+SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似乎各种贝奖励也无法换了，早知道咬咬牙把β版的贝 ...</blockquote>
+不煮贝大伙怎么会去买那逼通行证呢<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
