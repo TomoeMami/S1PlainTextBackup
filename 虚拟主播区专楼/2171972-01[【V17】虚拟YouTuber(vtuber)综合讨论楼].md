@@ -3001,3 +3001,15 @@ syl
 
 为什么走rp势会有这么多问题<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 1469#       发表于 2025-7-30 23:40
+
+ 本帖最后由 fastary 于 2025-7-30 23:45 编辑 
+
+rp势没法兼顾逼真RP和不让粉丝当真去传是这样的，何况关系民管人痴的民度低又不只限于黛灰粉一家<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+粉丝民度的问题纵观v圈没有标答，非要三年后还来辩训没训、训得够不够也没有意义，但是人半小时讲点心里话上来直接贬为爆典，又说人毕业没什么大事纯装逼enkr无妄之灾，结果辩两句就盯着粉丝民度低所以主播不行车轱辘，说白了还是不破狂借题发挥想要翻旧账呗，那是太恨了啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
