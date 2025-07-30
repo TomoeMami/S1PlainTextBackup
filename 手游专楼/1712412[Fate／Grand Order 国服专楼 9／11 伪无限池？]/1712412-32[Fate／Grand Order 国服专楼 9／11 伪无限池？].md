@@ -652,3 +652,11 @@ new外星大姐姐
 玄奘+1</blockquote>
 5星出率正常，就是歪，太惨了
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 47272#       发表于 2025-7-30 15:13
+
+第5发十连直接出了2宝，不用纠结1宝还是2宝<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
