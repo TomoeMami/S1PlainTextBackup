@@ -530,3 +530,13 @@ C呆前面队伍用掉了，否则加个对人类威胁特攻能打更多。
 十张券除了七骑和ALL还有extra1和2，希望十周年能把助战的extra阶也分出两栏... ...</blockquote>
 同意，现在EX栏只有一个，有时候想刷到特定职介太难了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 17185#       发表于 2025-7-30 19:56
+
+果然游戏里的音乐播放器不带魔夜联动的曲子<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，没有伟大猫村倒是不奇怪
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
