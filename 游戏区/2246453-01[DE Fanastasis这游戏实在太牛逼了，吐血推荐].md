@@ -138,3 +138,17 @@
 
 从巡礼森林一直找不到路 传送到国王洞窟后莫名其妙地做到了巡礼教堂前面 现在在走雷光峰-哥布林洞窟路线（这应该是反走吧？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 432#       发表于 2025-7-30 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68184138&amp;ptid=2246453" target="_blank">windhawind2 发表于 2025-7-30 13:50</a>
+从巡礼森林一直找不到路 传送到国王洞窟后莫名其妙地做到了巡礼教堂前面 现在在走雷光峰-哥布林洞窟路线（ ...</blockquote>
+从雷光峰到哥布林洞窟感觉是反走了
+
+不过怎么都能走我之前是真的没想到
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
