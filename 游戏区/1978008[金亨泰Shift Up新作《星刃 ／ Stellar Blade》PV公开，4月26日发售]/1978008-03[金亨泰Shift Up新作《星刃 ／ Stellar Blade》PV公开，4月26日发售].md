@@ -14848,3 +14848,11 @@ mod的话我比较俗 ...</blockquote>
 
 好玩，2代还玩。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 4209#       发表于 2025-7-31 00:29
+
+手残如我现在都是本能+防御脊椎，3个防御组件1个加攻速，砍得爽互动多关键还肉得飞起容错率高，当当当地格挡着来玩，没错目的就是为了看处决演出。至于处决演出掉多少血，随便啦<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
