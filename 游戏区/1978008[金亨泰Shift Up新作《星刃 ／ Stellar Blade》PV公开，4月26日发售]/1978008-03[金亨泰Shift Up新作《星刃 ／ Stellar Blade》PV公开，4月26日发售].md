@@ -14786,3 +14786,25 @@ mod的话我比较俗 ...</blockquote>
 但是我没用过红莲变身，不知道红莲什么情况。 ...</blockquote>
 红莲不是变身，开迅驰是直接放个大招
 
+
+*****
+
+####  观铃の使魔  
+##### 4206#       发表于 2025-7-30 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185487&amp;ptid=1978008" target="_blank">h122h 发表于 2025-7-30 17:18</a>
+
+红莲不是变身，开迅驰是直接放个大招</blockquote>
+红莲开迅驰也能完成迅驰50次杀敌成就吗？    AOE还是次元斩好用。
+
+
+*****
+
+####  h122h  
+##### 4207#       发表于 2025-7-30 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185547&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-7-30 17:25</a>
+
+红莲开迅驰也能完成迅驰50次杀敌成就吗？    AOE还是次元斩好用。</blockquote>
+算的，   
+
