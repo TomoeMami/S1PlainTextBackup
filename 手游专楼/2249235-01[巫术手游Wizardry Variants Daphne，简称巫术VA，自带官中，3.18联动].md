@@ -73,3 +73,11 @@
 
 用枪的黑兽转职居然是贼吗，你赢了drecom，你的转职选择小众又独特
 
+
+*****
+
+####  wcorvo  
+##### 474#       发表于 2025-7-30 23:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">问下现在买个淘宝那种20多的初始号能愉快地玩耍不，有没有什么强无敌要抽的角色
+
