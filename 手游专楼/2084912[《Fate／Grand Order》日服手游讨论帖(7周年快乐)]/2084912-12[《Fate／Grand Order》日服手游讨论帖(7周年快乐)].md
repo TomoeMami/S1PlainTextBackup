@@ -548,3 +548,11 @@ C呆前面队伍用掉了，否则加个对人类威胁特攻能打更多。
 
 ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17187#       发表于 2025-7-30 21:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EX直接按职介分算了 现在额外职介都超过正常七骑了
+
