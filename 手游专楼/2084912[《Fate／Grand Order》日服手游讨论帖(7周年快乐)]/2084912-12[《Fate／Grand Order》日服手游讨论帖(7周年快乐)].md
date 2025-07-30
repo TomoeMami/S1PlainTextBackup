@@ -518,3 +518,15 @@ C呆前面队伍用掉了，否则加个对人类威胁特攻能打更多。
 
 今年回忆本没呼符了？
 
+
+*****
+
+####  khxooo  
+##### 17184#       发表于 2025-7-30 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185825&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-7-30 18:10</a>
+冠位祝装
+
+十张券除了七骑和ALL还有extra1和2，希望十周年能把助战的extra阶也分出两栏... ...</blockquote>
+同意，现在EX栏只有一个，有时候想刷到特定职介太难了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
