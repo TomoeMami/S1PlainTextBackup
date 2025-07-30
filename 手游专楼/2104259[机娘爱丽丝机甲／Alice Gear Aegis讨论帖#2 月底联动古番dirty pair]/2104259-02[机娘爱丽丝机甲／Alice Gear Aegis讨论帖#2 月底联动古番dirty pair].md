@@ -163,3 +163,23 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似乎各种贝奖励也无法换了，早知道咬咬牙把β版的贝 ...</blockquote>
 不煮贝大伙怎么会去买那逼通行证呢<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1569#       发表于 2025-7-30 14:29
+
+<img src="https://p.sda1.dev/26/bc3b4ad5c28ef5496158deda31b8dacd/image.jpg" referrerpolicy="no-referrer">
+玩两把就报错，啥情况
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Picavian  
+##### 1570#       发表于 2025-7-30 14:31
+
+队长变成白毛红瞳的女孩子了——
+
+话说这次算是第一次出现队长形象的差分？
+
