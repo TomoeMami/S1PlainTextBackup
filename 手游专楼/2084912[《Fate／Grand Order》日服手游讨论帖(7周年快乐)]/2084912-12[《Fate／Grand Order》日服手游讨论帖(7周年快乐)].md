@@ -497,3 +497,16 @@ C呆前面队伍用掉了，否则加个对人类威胁特攻能打更多。
 
 今年礼装券可以换10张 但分职介<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 17182#       发表于 2025-7-30 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185510&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2025-7-30 17:20</a>
+
+今年礼装券可以换10张 但分职介</blockquote>
+冠位祝装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+十张券除了七骑和ALL还有extra1和2，感觉十周年可能把助战的extra阶也分出两栏...
+
