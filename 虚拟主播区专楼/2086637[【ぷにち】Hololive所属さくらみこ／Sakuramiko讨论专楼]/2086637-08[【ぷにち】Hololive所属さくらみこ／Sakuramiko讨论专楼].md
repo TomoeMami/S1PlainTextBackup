@@ -190,3 +190,30 @@ miko玩的很熟练啊，各种角度自拍
 
 而且关键是这次竟然不做提前告知，故意藏到当天才公布直播内容？
 
+
+*****
+
+####  holofan  
+##### 11128#       发表于 2025-7-30 23:37
+
+ 本帖最后由 holofan 于 2025-7-30 23:41 编辑 
+
+3000张亲笔签了4个月120天平均一天花十分钟签30张都早签完了，太离谱了到底发生了什么今年
+
+不过好像确实不着急的样子，怎么拖这么久才能发货的
+
+<img src="https://img.stage1st.com/forum/202507/30/234109q87llutl1k048jjn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-30 23:41 上传
+
+*****
+
+####  karastar  
+##### 11129#       发表于 2025-7-31 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">估计是在周边生产前签完就行，也就集中一段时间签一下
+
