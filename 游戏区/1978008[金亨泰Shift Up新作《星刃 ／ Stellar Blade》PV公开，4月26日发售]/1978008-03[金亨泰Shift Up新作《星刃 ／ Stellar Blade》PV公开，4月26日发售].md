@@ -14874,3 +14874,11 @@ mod的话我比较俗 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 4211#       发表于 2025-7-31 00:47
+
+其实我打黑神话的时候觉得渡鸦的脸型有点像孙悟空
+
