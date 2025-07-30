@@ -605,3 +605,25 @@ bg男与bg女联盟
 
 据说因为新岛真的粉百分之九十九是宅宅，芳泽霞有很多女的代入“这简直就是我”
 
+
+*****
+
+####  Lacsiess  
+##### 52#       发表于 2025-7-30 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185655&amp;ptid=2257386" target="_blank">xell2alex 发表于 2025-7-30 17:41</a>
+
+第一肯定是铁拳正妻，第二是谁啊</blockquote>
+傻白甜同学......
+
+
+*****
+
+####  缪斯替  
+##### 53#         楼主| 发表于 2025-7-30 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185766&amp;ptid=2257386" target="_blank">normalli 发表于 2025-7-30 17:59</a>
+
+开头被警察灌吐真剂暴打的剧情改了么</blockquote>
+没改，JK妹妹给打药暴揍，跟本子似的
+
