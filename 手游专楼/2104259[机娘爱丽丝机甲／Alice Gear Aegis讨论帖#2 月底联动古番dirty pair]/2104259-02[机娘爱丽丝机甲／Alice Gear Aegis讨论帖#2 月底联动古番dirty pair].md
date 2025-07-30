@@ -201,3 +201,16 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 顺便20发宁里池颗粒无收，道心破碎
 
+
+*****
+
+####  江戸前ルナ  
+##### 1572#         楼主| 发表于 2025-7-30 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185783&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-7-30 18:02</a>
+
+奇了怪哉PC版也不行
+
+顺便20发宁里池颗粒无收，道心破碎</blockquote>
+公告报BUG了
+
