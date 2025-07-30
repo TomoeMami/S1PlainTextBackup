@@ -600,3 +600,15 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 —— 来自 vivo V2309A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 47269#       发表于 2025-7-30 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68182283&amp;ptid=1712412" target="_blank">天天那个啥 发表于 2025-7-30 09:10</a>
+嗯抽一张艾蕾出来了，前面连歪三个五星还以为要吃井了，尼玛彩圈都能歪。
+
+接下来就等学姐</blockquote>
+艾蕾池出彩圈不是肯定歪卡吗？出艾蕾是关灯的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
