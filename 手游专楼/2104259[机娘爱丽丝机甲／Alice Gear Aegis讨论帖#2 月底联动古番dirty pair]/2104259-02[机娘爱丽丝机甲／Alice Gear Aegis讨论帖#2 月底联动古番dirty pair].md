@@ -183,3 +183,21 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 话说这次算是第一次出现队长形象的差分？
 
+
+*****
+
+####  冰风血羽  
+##### 1571#       发表于 2025-7-30 18:02
+
+<img src="https://img.stage1st.com/forum/202507/30/180209n8fflfzd3syfyfxy.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250730180143.png</strong> (119.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-30 18:02 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">奇了怪哉PC版也不行
+
+顺便20发宁里池颗粒无收，道心破碎
+

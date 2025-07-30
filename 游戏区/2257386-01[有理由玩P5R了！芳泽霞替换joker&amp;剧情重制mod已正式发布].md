@@ -575,3 +575,11 @@ bg男与bg女联盟
 说起来昨天在黑盒看到个投票说愿意选p5里面哪位作为恋人，8500多的票仓学妹1600多张排第三，虽然天天嘲她红 ...</blockquote>
 第一肯定是铁拳正妻，第二是谁啊
 
+
+*****
+
+####  normalli  
+##### 49#       发表于 2025-7-30 17:59
+
+开头被警察灌吐真剂暴打的剧情改了么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
