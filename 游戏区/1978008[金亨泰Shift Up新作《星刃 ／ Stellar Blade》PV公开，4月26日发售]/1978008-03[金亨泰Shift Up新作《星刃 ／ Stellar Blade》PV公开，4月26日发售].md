@@ -14728,3 +14728,36 @@ mod的话我比较俗 ...</blockquote>
 
 —— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  观铃の使魔  
+##### 4201#       发表于 2025-7-30 17:08
+
+我先通关的真结局，然后读取存档，打了返回拓殖区结局，然后开始新游戏+，发现迅驰模式没有天使形态  囧
+
+这咋搞？
+
+*****
+
+####  naclken.  
+##### 4202#       发表于 2025-7-30 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185427&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-7-30 17:08</a>
+
+我先通关的真结局，然后读取存档，打了返回拓殖区结局，然后开始新游戏+，发现迅驰模式没有天使形态  囧
+
+ ...</blockquote>
+传承耳环<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  观铃の使魔  
+##### 4203#       发表于 2025-7-30 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185437&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-30 17:09</a>
+
+传承耳环</blockquote>
+天使形态只是外观变化吗？  性能有提升没？
+
