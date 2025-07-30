@@ -130,3 +130,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  windhawind2  
+##### 431#       发表于 2025-7-30 13:50
+
+从巡礼森林一直找不到路 传送到国王洞窟后莫名其妙地做到了巡礼教堂前面 现在在走雷光峰-哥布林洞窟路线（这应该是反走吧？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
