@@ -638,3 +638,17 @@ new外星大姐姐
 
 没有奥伯龙没有暗狐
 
+
+*****
+
+####  khxooo  
+##### 47271#       发表于 2025-7-30 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68183673&amp;ptid=1712412" target="_blank">奈落的孤火花 发表于 2025-7-30 12:30</a>
+10单2宝兽蕾
+
+贞德+1
+
+玄奘+1</blockquote>
+5星出率正常，就是歪，太惨了
+
