@@ -660,3 +660,15 @@ new外星大姐姐
 
 第5发十连直接出了2宝，不用纠结1宝还是2宝<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霄度天  
+##### 47273#       发表于 2025-7-30 15:52
+
+是怎么可以两个福袋都不new的闹麻了啊简直<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+一个是除了公主都是new，结果公主2→3
+
+命定是除了汇呆都是new(真的是狂阶大多有了，一宝手办娘和南丁格尔这种图鉴不想开)，结果汇呆3→4<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
