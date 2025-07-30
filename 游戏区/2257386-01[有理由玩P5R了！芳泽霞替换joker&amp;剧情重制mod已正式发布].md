@@ -627,3 +627,14 @@ bg男与bg女联盟
 开头被警察灌吐真剂暴打的剧情改了么</blockquote>
 没改，JK妹妹给打药暴揍，跟本子似的
 
+
+*****
+
+####  pamia  
+##### 54#       发表于 2025-7-30 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185655&amp;ptid=2257386" target="_blank">xell2alex 发表于 2025-7-30 17:41</a>
+
+第一肯定是铁拳正妻，第二是谁啊</blockquote>
+我记得铁拳正妻第二，第一是妙妙
+
