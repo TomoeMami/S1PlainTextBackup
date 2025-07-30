@@ -588,3 +588,15 @@ MOONCELL上说自宅大约46AP一个，我自然回体一天半掉了4个
 
 中了fes特别嘉宾舞台资格<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天天那个啥  
+##### 47268#       发表于 2025-7-30 09:10
+
+嗯抽一张艾蕾出来了，前面连歪三个五星还以为要吃井了，尼玛彩圈都能歪。
+
+接下来就等学姐
+
+—— 来自 vivo V2309A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
