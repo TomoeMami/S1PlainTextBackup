@@ -14761,3 +14761,28 @@ mod的话我比较俗 ...</blockquote>
 传承耳环</blockquote>
 天使形态只是外观变化吗？  性能有提升没？
 
+
+*****
+
+####  naclken.  
+##### 4204#       发表于 2025-7-30 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185446&amp;ptid=1978008" target="_blank">观铃の使魔 发表于 2025-7-30 17:12</a>
+
+天使形态只是外观变化吗？  性能有提升没？</blockquote>
+体感上没有，招式都差不多，性能也是吃同一套技能点的。
+
+但是我没用过红莲变身，不知道红莲什么情况。
+
+*****
+
+####  h122h  
+##### 4205#       发表于 2025-7-30 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68185474&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-30 17:16</a>
+
+体感上没有，招式都差不多，性能也是吃同一套技能点的。
+
+但是我没用过红莲变身，不知道红莲什么情况。 ...</blockquote>
+红莲不是变身，开迅驰是直接放个大招
+
