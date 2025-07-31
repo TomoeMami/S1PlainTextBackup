@@ -14894,3 +14894,14 @@ mod的话我比较俗 ...</blockquote>
 
 感觉这游戏还是一个攒能量放技能的游戏   不管你闪也好格挡也好打连段也好都是为了更有效率的攒能量   看起来防御的手段很多实际是强调进攻的
 
+
+*****
+
+####  naclken.  
+##### 4213#       发表于 2025-7-31 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187415&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-31 00:29</a>
+
+手残如我现在都是本能+防御脊椎，3个防御组件1个加攻速，砍得爽互动多关键还肉得飞起容错率高，当当当地格 ...</blockquote>
+别打困难难度，哪怕2周目主角强化了也别打，这游戏只有普通难度好玩。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
