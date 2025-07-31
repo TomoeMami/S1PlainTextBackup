@@ -429,3 +429,14 @@ steam deck可以玩吗
 我现在都14天了吧，神父那个门才刚刚拿到破解器。下水道逃脱也刚 ...</blockquote>
 没关系，一周目出不去可以二周目，反正好感和技能全部继承
 
+
+*****
+
+####  wthall  
+##### 46#       发表于 2025-7-31 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68191109&amp;ptid=2159636" target="_blank">dgdgdg1113 发表于 2025-7-31 16:54</a>
+
+没关系，一周目出不去可以二周目，反正好感和技能全部继承</blockquote>
+lol，看来失败定了
+

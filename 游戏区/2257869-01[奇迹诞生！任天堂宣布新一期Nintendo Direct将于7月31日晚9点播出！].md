@@ -1072,3 +1072,31 @@ KT的话从莱莎２开始每年的炼金工房都是在任天堂的直面会首
 
 不像以前掌机，游戏发售的形式还是多变的
 
+
+*****
+
+####  xinfengj  
+##### 107#       发表于 2025-7-31 17:06
+
+ 本帖最后由 xinfengj 于 2025-7-31 17:07 编辑 
+
+地狱潜兵2登录NS2，我为什么会做这样的梦<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 108#       发表于 2025-7-31 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68191183&amp;ptid=2257869" target="_blank">xinfengj 发表于 2025-7-31 17:06</a>
+
+地狱潜兵2登录NS2，我为什么会做这样的梦</blockquote>
+PS5上都掉帧掉得一塌糊涂。。。NS2版无法想象。
+
+*****
+
+####  干掉昨天  
+##### 109#       发表于 2025-7-31 17:11
+
+不是第一方啊，那没啥好蹲的了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
