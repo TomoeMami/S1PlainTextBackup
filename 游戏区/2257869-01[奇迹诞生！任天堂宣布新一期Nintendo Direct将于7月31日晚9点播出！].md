@@ -669,3 +669,25 @@ Ip和合作方不能划等号
 
 从时间来看应该不会有第一方的游戏吧，最多mp4公布个发售日之类
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 73#       发表于 2025-7-31 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68189067&amp;ptid=2257869" target="_blank">nage560 发表于 2025-7-31 11:16</a>
+虽然光头都离开白金了，但是还会不会有贝姐4啊？</blockquote>
+光头不是问题，23代本来就不是他全权负责的，真正的问题是白金现在基本是半死不活的样子，之前大家熟知的核心的老人新秀，都在光头后跟着跑光了，忍龙4出之前暂不知道白金现在还有哪些靠谱的活人，白金真名存实亡了的话老任不管自己上还是找人接都需要过渡适应时间
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  flyzzhj  
+##### 74#       发表于 2025-7-31 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187912&amp;ptid=2257869" target="_blank">feizong 发表于 2025-7-31 08:17</a>
+
+没整明白，火纹和xb这类算第一方还是第三方</blockquote>
+当然是第二方...
+
