@@ -1008,3 +1008,11 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 报丧这动画也拉垮，来来回回就硬水时长<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，怎么感觉尊者才是限定的质量
 
+
+*****
+
+####  南宮凝香  
+##### 2352#       发表于 2025-7-31 12:40
+
+報喪竟然沒新人類標
+

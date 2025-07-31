@@ -710,3 +710,14 @@ hu794：不想玩可以滚哈
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老任如果想的话，贝姐还是可以有4的吧，之前跑的人也不是不可以再合作。如果忍龙4这次做的好，估计就是这个导演接棒了
 
+
+*****
+
+####  GYSS_  
+##### 77#       发表于 2025-7-31 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68186927&amp;ptid=2257869" target="_blank">はちたや 发表于 2025-7-30 22:12</a>
+
+再奶一口世界树nmd一个世代啊一个世代atlus你个</blockquote>
+别奶了，能把3ds的遗产搬到steam我就谢天谢地了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
