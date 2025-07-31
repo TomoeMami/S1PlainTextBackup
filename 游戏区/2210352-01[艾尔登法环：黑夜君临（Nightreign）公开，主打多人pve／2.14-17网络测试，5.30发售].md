@@ -13626,3 +13626,19 @@ sb啊...
 
 录像能看清楚鸡哥的持续小旋风折射黑球激光，真帅
 
+
+*****
+
+####  jacket  
+##### 1308#       发表于 2025-8-1 05:09
+
+[https://x.com/xxqurage/status/1949406665905954984](https://x.com/xxqurage/status/1949406665905954984)
+
+<img src="https://img.stage1st.com/forum/202508/01/050909tee78dm5sj8g8mm6.jpg" referrerpolicy="no-referrer">
+
+<strong>1949406665905954984.jpg</strong> (92.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 05:09 上传
+
