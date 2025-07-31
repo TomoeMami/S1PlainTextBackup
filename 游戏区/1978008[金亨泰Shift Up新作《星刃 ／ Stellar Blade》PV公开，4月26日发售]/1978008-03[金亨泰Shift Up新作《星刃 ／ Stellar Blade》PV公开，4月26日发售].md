@@ -14920,3 +14920,15 @@ mod的话我比较俗 ...</blockquote>
 
 红莲设计也很绝，正常流程没感觉，但BOSS RUSH开战时顶帽子微笑旋身进架构这一套表情动作调的也太帅太好看了，金大师确实是大师<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  naclken.  
+##### 4215#       发表于 2025-7-31 21:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打完困难渡鸦封盘了，就俩字，背板。
+
+近乎100倍血量，一刀砍掉四成血盾，还好意思玩瞬移霸体。
+
+ARPG基本上都是用霸体 射程和机动性的性能差距来制造所谓的难度啊。
+

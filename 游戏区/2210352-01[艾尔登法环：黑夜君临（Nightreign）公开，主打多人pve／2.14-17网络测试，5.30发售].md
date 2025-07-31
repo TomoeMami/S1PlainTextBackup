@@ -13352,3 +13352,16 @@ sb啊...
 
 我收回对普通水皮蛋的诋毁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1278#       发表于 2025-7-31 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68192110&amp;ptid=2210352" target="_blank">RinC 发表于 2025-7-31 20:13</a>
+其实就是能正常打到，大小技能都可以，在时限内把所有光球打掉之后会倒地一阵子，但是一定时间打不掉会补 ...</blockquote>
+测试了一下，其实剑的小战技可以抵消征兆的波，蓄力战技能打掉炸蛋，其实很反直觉，直接站桩输出反而好打。
+就tmd，武器简介里也不写，也就多亏社区玩家多可以试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
