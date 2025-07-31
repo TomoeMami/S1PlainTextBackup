@@ -13439,3 +13439,11 @@ sb啊...
 
 三个人各站一个角落扔块温热石可以打完脚不带动的，最菜夜王了
 
+
+*****
+
+####  usodakedo  
+##### 1287#       发表于 2025-8-1 00:09
+
+鸟哥真王朝了，旋风可以直接弹开水泡，大招又是自带防御立场的，合着这是为了变相加强鸟哥使用率才出的三阶段是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
