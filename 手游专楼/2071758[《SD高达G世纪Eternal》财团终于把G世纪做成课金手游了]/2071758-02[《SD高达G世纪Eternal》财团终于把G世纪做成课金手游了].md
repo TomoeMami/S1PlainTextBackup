@@ -1131,3 +1131,24 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 14层有啥好思路吗 船不行打得费劲不想动脑了。。。
 
+
+*****
+
+####  一个陆仁贾  
+##### 2365#       发表于 2025-7-31 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68192819&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-7-31 22:00</a>
+14层有啥好思路吗 船不行打得费劲不想动脑了。。。</blockquote>
+把npc神意调到上面buff塔，让支援机给嫣红上debuff，输出手配合神意干掉嫣红，剩余的有必闪的机体碰一次自由让它掉气势，输出再让神意支援干掉自由。下边的苟住，等下回合把神意调下去。
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一个陆仁贾  
+##### 2366#       发表于 2025-7-31 23:24
+
+15层感觉正经打和霸王电影弹逃课都好难过去<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
