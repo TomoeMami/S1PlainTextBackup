@@ -389,3 +389,14 @@ IS做的火纹算第一方，光荣做的可以算第三方
 
 那肯定有大神新消息吧，不知道有没有黄昏旅馆新作
 
+
+*****
+
+####  cloudchily  
+##### 45#       发表于 2025-7-31 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187912&amp;ptid=2257869" target="_blank">feizong 发表于 2025-7-31 08:17</a>
+
+没整明白，火纹和xb这类算第一方还是第三方</blockquote>
+全资子公司的话，以前经常被叫第二方
+
