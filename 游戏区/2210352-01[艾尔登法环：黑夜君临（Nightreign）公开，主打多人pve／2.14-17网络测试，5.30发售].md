@@ -13316,3 +13316,16 @@ sb啊...
 
 我承认我之前王飞蛾时叫的太大声了，还是少点粪怪吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RinC  
+##### 1274#       发表于 2025-7-31 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68192027&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-7-31 19:57</a>
+
+我承认我之前王飞蛾时叫的太大声了，还是少点粪怪吧
+
+据说风暴小技能抵消光球，不知道真假，等下再试试，感 ...</blockquote>
+其实就是能正常打到，大小技能都可以，在时限内把所有光球打掉之后会倒地一阵子，但是一定时间打不掉会补光球。这玩意单人好打，光球甩一下就破了，三人不仅要多打几下，而且还不容易命中
+
