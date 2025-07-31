@@ -621,3 +621,27 @@ Ip和合作方不能划等号
 
 —— 来自 samsung SM-S9110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 67#       发表于 2025-7-31 11:00
+
+会有崛起ns2补丁吗，想看下个季度荒野卖不过崛起<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 68#       发表于 2025-7-31 11:00
+
+确实不如放个升级串烧吸引力大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  爱护动物抓根宝  
+##### 69#       发表于 2025-7-31 11:03
+
+播十分钟无主之地4就老实了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
