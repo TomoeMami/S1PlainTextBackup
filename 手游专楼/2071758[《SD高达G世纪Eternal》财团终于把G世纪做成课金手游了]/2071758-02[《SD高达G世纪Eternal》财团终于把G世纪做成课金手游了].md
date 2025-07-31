@@ -1054,3 +1054,14 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 拉克丝开大型机放一号位可以开局全员加MP，这下2x2的大型机有出场机会了
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2357#       发表于 2025-7-31 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68169834&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-7-28 03:55</a>
+
+这次PVP我能看见UR人棍开着必闪首动冲上来，报丧现在确定是有必闪的，高机动起码能做到先手减攻且耗掉部分 ...</blockquote>
+必闪也闪不了EX技能的反击
+
