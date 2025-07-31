@@ -13462,3 +13462,50 @@ sb啊...
 
 三鹰是对的，初始或其他战技盾火山敲+3直接历战水皮蛋终极严父<img src="https://static.stage1st.com/image/smiley/animal2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 1290#       发表于 2025-8-1 00:25
+
+这水皮蛋谁设计的，要爽感没爽感，要画面表现没有画面表现，要难度也没有，马拉松逼屋檐了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zakki  
+##### 1291#       发表于 2025-8-1 00:26
+
+设计的确实有点问题，按理来说这个武器应该是解决近战职业打不到的问题的，法系职业还是该怎么打该怎么打，结果成了所有人强制用一把武器了
+
+*****
+
+####  usodakedo  
+##### 1292#       发表于 2025-8-1 00:27
+
+ 本帖最后由 usodakedo 于 2025-8-1 00:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68193557&amp;ptid=2210352" target="_blank">zakki 发表于 2025-8-1 00:26</a>
+设计的确实有点问题，按理来说这个武器应该是解决近战职业打不到的问题的，法系职业还是该怎么打该怎么打， ...</blockquote>
+我也觉得最大问题就是让法系也只能拿着把破风暴打，普通蓝水母好歹还稍微考虑了一下近战和远程不同的打法，历战王反而倒退了
+
+
+*****
+
+####  usodakedo  
+##### 1293#       发表于 2025-8-1 00:33
+
+发在这个楼吧，应该也算是有点关系，今天看到的还不错的魂系列二创，可以平复一下等了一个月等来一坨的心情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【【魂系金曲】宫崎英高走过的《365里路》 https://b23.tv/6od4Cm1
+
+*****
+
+####  nightmare902015  
+##### 1294#       发表于 2025-8-1 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68193557&amp;ptid=2210352" target="_blank">zakki 发表于 2025-8-1 00:26</a>
+设计的确实有点问题，按理来说这个武器应该是解决近战职业打不到的问题的，法系职业还是该怎么打该怎么打， ...</blockquote>
+搞半天大家都吃大锅饭，是血和精最高的神鹰哥王朝了，局内发育基本无用，反而就该一直去拿血瓶。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
