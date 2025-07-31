@@ -236,3 +236,15 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 —— 来自 Xiaomi 2304FPN6DC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冰风血羽  
+##### 1575#       发表于 2025-7-31 23:47
+
+我上表阿金，抽到宁里就买婚纱，抽到AN宁里就买兔女郎的事情
+
+阿金已经回消息了
+
+竟然不许！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
