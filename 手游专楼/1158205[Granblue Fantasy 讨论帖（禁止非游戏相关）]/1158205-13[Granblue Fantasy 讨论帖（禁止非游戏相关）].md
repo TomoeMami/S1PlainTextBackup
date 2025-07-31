@@ -18,3 +18,13 @@
 
 居然开始回归奖励了，这下真古战场警察抓逃兵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 18245#       发表于 2025-8-1 01:41
+
+到处抓退役老友还是挺臊皮的，搞完5个回归立马去新开小号了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
