@@ -1113,3 +1113,13 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 12层左右各去一个三动的杀狙击就行了，第一回合就算主攻吃到的DEBUFF二回合就能解了，还有一回合给你输出
 
+
+*****
+
+####  马桶3  
+##### 2363#       发表于 2025-7-31 21:20
+
+我12层完全没管左右两边，第一回合清中路4台全机进圈，第二回合刷出玛莎和拉拉后直接秒了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
