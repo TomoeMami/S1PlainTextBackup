@@ -556,3 +556,34 @@ ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/sm
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EX直接按职介分算了 现在额外职介都超过正常七骑了
 
+
+*****
+
+####  jackyhuang  
+##### 17188#       发表于 2025-7-30 19:56
+
+果然游戏里的音乐播放器不带魔夜联动的曲子<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，没有伟大猫村倒是不奇怪
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  希望之花  
+##### 17189#       发表于 2025-7-30 20:05
+
+ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17190#       发表于 2025-7-30 21:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EX直接按职介分算了 现在额外职介都超过正常七骑了
+
+*****
+
+####  cckuku  
+##### 17191#       发表于 2025-7-31 09:44
+
+这次日服十周年贺图，一张凛系都没有啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
