@@ -1144,3 +1144,11 @@ se拯救了这个夜晚，该知道含金量了<img src="https://static.stage1st
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那次第三方ND不是SE发布会了
 
+
+*****
+
+####  chdhdhd  
+##### 115#       发表于 2025-7-31 22:30
+
+卡社的意外公布有是有了，不过物语3……实在微妙了点，开心不起来啊
+
