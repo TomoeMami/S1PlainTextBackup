@@ -872,3 +872,34 @@ hu794：不想玩可以滚哈
 
 这种低能节奏连nga都带不起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 90#       发表于 2025-7-31 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68189816&amp;ptid=2257869" target="_blank">三天八百万 发表于 2025-7-31 13:23</a>
+奇怪，任天堂又不做大陆生意（纯游戏大厂没有索软那样的根基，知难而退很正常），需要在意大陆潜在客户的 ...</blockquote>
+需要啊。要不需要干啥又要在港服降价，又要完善港服商店功能，又在大陆微博、b站开账号宣发？我就直说了，你这话就是给人截图出去宣传任豚都是精日汉奸的。当然你要就是串子和你回的这个人打配合的那当我没说。
+
+
+*****
+
+####  FACS  
+##### 91#       发表于 2025-7-31 13:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">低能，还有咬钩的
+
+*****
+
+####  绿冰  
+##### 92#       发表于 2025-7-31 13:55
+
+<blockquote>FACS 发表于 2025-7-31 13:51
+低能，还有咬钩的</blockquote>
+NGA那套炸楼的手法吧，他们自己人咬钩
+
+别跟弱智键政人啰嗦，直接举报
+
+要谈这些滚归墟去
+
