@@ -13447,3 +13447,18 @@ sb啊...
 
 鸟哥真王朝了，旋风可以直接弹开水泡，大招又是自带防御立场的，合着这是为了变相加强鸟哥使用率才出的三阶段是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1288#       发表于 2025-8-1 00:15
+
+几个黑球清还是不清好，掉地上的硬直时间好像打不出多少伤害
+
+*****
+
+####  blz436  
+##### 1289#       发表于 2025-8-1 00:19
+
+三鹰是对的，初始或其他战技盾火山敲+3直接历战水皮蛋终极严父<img src="https://static.stage1st.com/image/smiley/animal2017/003.png" referrerpolicy="no-referrer">
+
