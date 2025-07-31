@@ -987,3 +987,18 @@ gf的非任天堂业务很多啊
 
 第三方是软件商
 
+
+*****
+
+####  fallanger  
+##### 100#       发表于 2025-7-31 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68190476&amp;ptid=2257869" target="_blank">mai6696 发表于 2025-7-31 15:14</a>
+
+我依然坚持原教旨称呼
+
+第一方是平台方
+
+第二方是用户</blockquote>
+你不够原教旨，至少20年前的游戏杂志上第一方、第二方、第三方的称谓都是针对游戏开发商，针对生产方的，玩家消费端不属于任何一方
+
