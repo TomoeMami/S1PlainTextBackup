@@ -22,3 +22,22 @@
 
 2025-7-31 09:23 上传
 
+
+*****
+
+####  咲良うた  
+##### 1190#       发表于 2025-7-31 12:27
+
+おはようも、おやすみも、応援してほしい時も、いつだって『キミとアイドルプリキュア♪』といっしょ！
+
+アプリ「もしもし！プリキュアでんわ」が事前登録受付開始♪
+
+ここでしか聞けない録り下ろしボイスで、キミのことを応援しちゃうよ！いっぱい電話しようね！
+
+事前登録はこちら≫
+
+[Android]：[https://play.google.com/store/ap ... _anim.precure_denwa](https://play.google.com/store/apps/details?id=jp.co.toei_anim.precure_denwa)
+
+[iOS] ：[https://apps.apple.com/jp/app/id6748055118](https://apps.apple.com/jp/app/id6748055118)
+<img src="https://files.catbox.moe/zmdz4f.jpeg" referrerpolicy="no-referrer">
+

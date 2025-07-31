@@ -124,3 +124,16 @@ SR也有一些强角色，Elise的中立增伤，财迷的低消耗僧侣咒文+
 
 限定池可以考虑睡魔女和兽人武士, 前者是目前唯一能自回魔的角色, 可以缓解MP焦虑; 后者能拼脸靠大招过boss来快速开荒
 
+
+*****
+
+####  wcorvo  
+##### 478#       发表于 2025-7-31 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187647&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-7-31 03:02</a>
+
+那种自带4w绿石的石头号吗，挺值的，这游戏攒出一井2w绿石大概要4-5个月，加上不稳定的补偿可能再少花一 ...</blockquote>
+这游戏有类似重复抽卡突破的系统吗？
+
+兽人武士抽了3个十连出了，还要继续抽这个池子吗？
+
