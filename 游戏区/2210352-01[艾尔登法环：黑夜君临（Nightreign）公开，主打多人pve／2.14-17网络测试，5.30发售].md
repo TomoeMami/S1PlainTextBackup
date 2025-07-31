@@ -13545,3 +13545,13 @@ sb啊...
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  usodakedo  
+##### 1299#       发表于 2025-8-1 02:31
+
+睡前bb一句，其实海啸完全可以做个用风暴蓄力切开的动画，起码能让演出看的更爽，石岐纯也你到底会不会做游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
