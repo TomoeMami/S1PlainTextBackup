@@ -1016,3 +1016,13 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 報喪竟然沒新人類標
 
+
+*****
+
+####  lighttt  
+##### 2353#       发表于 2025-7-31 12:51
+
+怎么感觉师匠才是大奖，6移动1-4射程<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
