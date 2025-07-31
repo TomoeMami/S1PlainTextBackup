@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1753728246,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -9180,10 +9180,10 @@
     "update": false
   },
   "2192398": {
-    "totalreply": 7317,
+    "totalreply": 7318,
     "title": "[《尘白禁区》攻略活动互助讨论楼 ver2.0空都演绎（7.11-8.22）]",
     "newtitle": "[《尘白禁区》综合讨论楼#3.0「合题诗篇」 7.10-8.21]",
-    "lastedit": 1753964175,
+    "lastedit": 1753987691,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9896,7 +9896,7 @@
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》新PV公开，2025年6月26日发售]",
     "lastedit": 1753728131,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2200908": {
@@ -11976,7 +11976,7 @@
     "lastedit": 1753977360,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2189877": {
     "totalreply": 169,
@@ -16128,10 +16128,10 @@
     "update": false
   },
   "2257825": {
-    "totalreply": 258,
+    "totalreply": 259,
     "title": "[双尾彗星“清军解放四川”]",
     "newtitle": "[双尾彗星“清军解放四川”]",
-    "lastedit": 1753985776,
+    "lastedit": 1753987691,
     "category": "外野",
     "active": true,
     "update": false
@@ -16362,10 +16362,10 @@
     "update": false
   },
   "2257890": {
-    "totalreply": 56,
+    "totalreply": 58,
     "title": "[下一步，比亚迪有没有可能卷四驱]",
     "newtitle": "[下一步，比亚迪有没有可能卷四驱]",
-    "lastedit": 1753984692,
+    "lastedit": 1753987689,
     "category": "外野",
     "active": true,
     "update": false
@@ -16389,10 +16389,10 @@
     "update": false
   },
   "2257925": {
-    "totalreply": 118,
+    "totalreply": 119,
     "title": "[两中国人在东京被人用铁管围殴重伤]",
     "newtitle": "[两中国人在东京被人用铁管围殴重伤]",
-    "lastedit": 1753978820,
+    "lastedit": 1753987330,
     "category": "外野",
     "active": true,
     "update": false
@@ -16611,7 +16611,7 @@
     "lastedit": 1753974960,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2257973": {
     "totalreply": 55,
@@ -16632,10 +16632,10 @@
     "update": false
   },
   "2257980": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[罗技CEO：计划将生产线迁出中国，目前进展顺利]",
     "newtitle": "[罗技CEO：计划将生产线迁出中国，目前进展顺利]",
-    "lastedit": 1753986131,
+    "lastedit": 1753987328,
     "category": "外野",
     "active": true,
     "update": false
