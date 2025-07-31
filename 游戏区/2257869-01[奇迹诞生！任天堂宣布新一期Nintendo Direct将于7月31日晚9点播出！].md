@@ -846,3 +846,29 @@ hu794：不想玩可以滚哈
 绿冰：诸位豚弟豚妹，既来 ...</blockquote>
 奇怪，任天堂又不做大陆生意（纯游戏大厂没有索软那样的根基，知难而退很正常），需要在意大陆潜在客户的感受吗？
 
+
+*****
+
+####  ziyer  
+##### 87#       发表于 2025-7-31 13:32
+
+731怎么了，总不能是日期联想到731部队吧...按这个逻辑，每一天我都能给你掰扯一个乳化点<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 88#       发表于 2025-7-31 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68189816&amp;ptid=2257869" target="_blank">三天八百万 发表于 2025-7-31 13:23</a>
+奇怪，任天堂又不做大陆生意（纯游戏大厂没有索软那样的根基，知难而退很正常），需要在意大陆潜在客户的 ...</blockquote>
+这种钓鱼**你理他就已经输了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  katern  
+##### 89#       发表于 2025-7-31 13:33
+
+这种低能节奏连nga都带不起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
