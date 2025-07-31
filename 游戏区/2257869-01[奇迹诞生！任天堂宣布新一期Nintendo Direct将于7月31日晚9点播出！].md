@@ -440,3 +440,73 @@ IS做的火纹算第一方，光荣做的可以算第三方
 
 查看全部评分
 
+
+*****
+
+####  胶布  
+##### 49#       发表于 2025-7-31 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187912&amp;ptid=2257869" target="_blank">feizong 发表于 2025-7-31 08:17</a>
+没整明白，火纹和xb这类算第一方还是第三方</blockquote>
+火纹和xb不一样
+
+IS虽然和任天堂关系紧密，甚至长期在任天堂的楼里面办公，但它和任天堂并没有股权上的关系。
+
+Mono则是任天堂全资控股的子公司。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 2||
+
+查看全部评分
+
+*****
+
+####  feizong  
+##### 50#       发表于 2025-7-31 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68188260&amp;ptid=2257869" target="_blank">heseran 发表于 2025-7-31 09:20</a>
+
+据《异度之刃》系列开发商Monolith Soft官方主页显示，该公司目前已由任天堂全资收购。 2007年，任天堂从 ...</blockquote>
+IS和MONOLITH是全资子公司我知道，想知道的是今晚第三方直面会有没有可能出现火纹或XB，没有的话也就完全不用期待了
+
+*****
+
+####  渺小小  
+##### 51#       发表于 2025-7-31 09:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个升级串烧吧~
+
+*****
+
+####  胶布  
+##### 52#       发表于 2025-7-31 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68188311&amp;ptid=2257869" target="_blank">feizong 发表于 2025-7-31 09:28</a>
+IS和MONOLITH是全资子公司我知道，想知道的是今晚第三方直面会有没有可能出现火纹或XB，没有的话也就完全 ...</blockquote>
+IS不是子公司
+
+
+*****
+
+####  星花  
+##### 53#       发表于 2025-7-31 09:34
+
+汴京没意义，三直有次也出现第一方。
+
+*****
+
+####  绿冰  
+##### 54#       发表于 2025-7-31 09:36
+
+ 本帖最后由 绿冰 于 2025-7-31 09:37 编辑 
+<blockquote>feizong 发表于 2025-7-31 09:28
+IS和MONOLITH是全资子公司我知道，想知道的是今晚第三方直面会有没有可能出现火纹或XB，没有的话也就完全 ...</blockquote>
+IS甚至是可以算第三方，虽然连任天堂的游戏机开发都参与，但股权上没什么关系
+
