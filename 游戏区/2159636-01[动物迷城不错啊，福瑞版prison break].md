@@ -448,3 +448,13 @@ lol，看来失败定了
 
 一周目不熟悉流程确实挺难好结局的，尤其是一些需要等到第二天触发的东西，你第二天通过这段流程，发现需要一个新的东西，而你没有提前准备，只能第三天再来探索
 
+
+*****
+
+####  kerbad  
+##### 48#       发表于 2025-7-31 18:03
+
+狐狸线一周目打完了，真的很喜欢偷听狱友们聊天，要不是想听完我早几天就跑路了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过说实话日常养成的部分还是太枯燥和繁琐了，我喜欢狱友的塑造喜欢偷听但是四十多个角色天天倒买倒卖金龟子实在太累人，黑豹线还要重来一遍<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
