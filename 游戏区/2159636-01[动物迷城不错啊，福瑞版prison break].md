@@ -416,3 +416,16 @@ steam deck可以玩吗
 
 每天奔波于看书锻炼点技能，送礼打工摸东西做任务，光喜欢的东西试错就试错了很久。我都感觉这一周目要越狱失败了。
 
+
+*****
+
+####  dgdgdg1113  
+##### 45#       发表于 2025-7-31 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68191019&amp;ptid=2159636" target="_blank">wthall 发表于 2025-7-31 16:40</a>
+
+不看攻略全程自己摸索其实难度不小的。
+
+我现在都14天了吧，神父那个门才刚刚拿到破解器。下水道逃脱也刚 ...</blockquote>
+没关系，一周目出不去可以二周目，反正好感和技能全部继承
+

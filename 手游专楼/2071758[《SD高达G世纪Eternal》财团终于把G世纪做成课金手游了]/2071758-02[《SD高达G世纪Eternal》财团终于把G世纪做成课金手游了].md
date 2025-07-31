@@ -1065,3 +1065,11 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 这次PVP我能看见UR人棍开着必闪首动冲上来，报丧现在确定是有必闪的，高机动起码能做到先手减攻且耗掉部分 ...</blockquote>
 必闪也闪不了EX技能的反击
 
+
+*****
+
+####  dio999  
+##### 2358#       发表于 2025-7-31 16:56
+
+15层打完，这塔后面几层血还挺厚的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
