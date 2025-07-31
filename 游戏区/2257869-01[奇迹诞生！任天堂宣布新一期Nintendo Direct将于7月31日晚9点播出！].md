@@ -1002,3 +1002,34 @@ gf的非任天堂业务很多啊
 第二方是用户</blockquote>
 你不够原教旨，至少20年前的游戏杂志上第一方、第二方、第三方的称谓都是针对游戏开发商，针对生产方的，玩家消费端不属于任何一方
 
+
+*****
+
+####  mai6696  
+##### 101#       发表于 2025-7-31 15:50
+
+ 本帖最后由 mai6696 于 2025-7-31 15:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68190649&amp;ptid=2257869" target="_blank">fallanger 发表于 2025-7-31 15:45</a>
+
+你不够原教旨，至少20年前的游戏杂志上第一方、第二方、第三方的称谓都是针对游戏开发商，针对生产方的， ...</blockquote>
+因为本来就是从IT领域拿来的用语。
+
+你买微软的电脑，微软就是第一方，你是第二方。
+
+其他厂家借着微软的平台给你卖产品，它是第三方。
+
+管你GF还是HAL，难道游戏不是任天堂来发行吗？自己出去做小镇英雄轮回之兽吗？
+
+
+*****
+
+####  JOJOROY  
+##### 102#       发表于 2025-7-31 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68189673&amp;ptid=2257869" target="_blank">绿冰 发表于 2025-7-31 12:56</a>
+
+要严格来说，这都不是事
+
+任天堂这个叫soft maker lineup，字面意义上其实没有第三方的意思，第一方工作室 ...</blockquote>
+日任那边的soft maker定义其实就是指代的三厂，每次三厂发布会提到的游戏在日本是自己发行的话都会强调这是任天堂游戏，例如育碧的马力欧疯兔2
+
