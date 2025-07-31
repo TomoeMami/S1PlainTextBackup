@@ -13337,3 +13337,18 @@ sb啊...
 
 看贴吧解包后续好像会更新无限模式，无限模式不能选boss，感觉普通皮蛋和永夜皮蛋遇到都会很恶心
 
+
+*****
+
+####  shyso  
+##### 1276#       发表于 2025-7-31 20:58
+
+我们黑环也有自己的尤姆拉卡德啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RUANHYC  
+##### 1277#       发表于 2025-7-31 20:59
+
+我收回对普通水皮蛋的诋毁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
