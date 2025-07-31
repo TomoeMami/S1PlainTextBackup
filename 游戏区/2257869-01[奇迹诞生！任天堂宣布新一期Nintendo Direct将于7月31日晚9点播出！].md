@@ -925,3 +925,14 @@ NGA那套炸楼的手法吧，他们自己人咬钩
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  fallanger  
+##### 95#       发表于 2025-7-31 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187912&amp;ptid=2257869" target="_blank">feizong 发表于 2025-7-31 08:17</a>
+
+没整明白，火纹和xb这类算第一方还是第三方</blockquote>
+严格看来说第二方
+
