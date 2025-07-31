@@ -1100,3 +1100,14 @@ PS5上都掉帧掉得一塌糊涂。。。NS2版无法想象。
 
 不是第一方啊，那没啥好蹲的了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 110#       发表于 2025-7-31 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68191183&amp;ptid=2257869" target="_blank">xinfengj 发表于 2025-7-31 17:06</a>
+
+地狱潜兵2登录NS2，我为什么会做这样的梦</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从箭头实现全平台大联合，出个共产国际包，吼不吼啊？
+
