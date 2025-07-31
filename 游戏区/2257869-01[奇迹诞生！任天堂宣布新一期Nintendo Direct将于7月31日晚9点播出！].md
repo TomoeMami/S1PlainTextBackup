@@ -903,3 +903,25 @@ NGA那套炸楼的手法吧，他们自己人咬钩
 
 要谈这些滚归墟去
 
+
+*****
+
+####  はちたや  
+##### 93#       发表于 2025-7-31 14:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">原来是这个意思，鉴证阴湿人真是无孔不入
+
+*****
+
+####  oi99o  
+##### 94#       发表于 2025-7-31 14:06
+
+ 本帖最后由 oi99o 于 2025-7-31 14:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68189625&amp;ptid=2257869" target="_blank">Edgefield 发表于 2025-7-31 12:49</a>
+火纹是任天堂发行的，纯第一方IP ，也就是说只要任天堂愿意他可以委托任意公司来开发火纹
+
+宝可梦的版权比 ...</blockquote>
+不要只看发行商，要看版权标记。火纹的©️标是任和is一起标的，理论上还是绕不开is。另外宝可梦的版权除了任和gf还有creatures，tpc的股东也是这三家，商标也是三家共同持有
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
