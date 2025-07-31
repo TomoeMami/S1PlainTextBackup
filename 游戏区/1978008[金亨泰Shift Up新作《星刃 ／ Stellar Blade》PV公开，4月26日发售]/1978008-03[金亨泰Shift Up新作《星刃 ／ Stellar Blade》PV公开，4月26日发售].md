@@ -14905,3 +14905,18 @@ mod的话我比较俗 ...</blockquote>
 手残如我现在都是本能+防御脊椎，3个防御组件1个加攻速，砍得爽互动多关键还肉得飞起容错率高，当当当地格 ...</blockquote>
 别打困难难度，哪怕2周目主角强化了也别打，这游戏只有普通难度好玩。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xell2alex  
+##### 4214#       发表于 2025-7-31 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187427&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-31 00:34</a>
+
+另外我觉得渡鸦作为一个女疯子病娇人气这么高，几个层面的塑造真是立大功
+
+1，外貌。明明很扭曲但动作中二 ...</blockquote>
+师姐的设计确实挺绝的，感觉是脸最红扑扑的一个，生气犯狠的时候跟小朋友一样，就像是个吹弹可破的气球，加上身材比伊芙还丰满，头身反差让人欲罢不能啊，真正从生理层面展现了什么叫巨婴<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+红莲设计也很绝，正常流程没感觉，但BOSS RUSH开战时顶帽子微笑旋身进架构这一套表情动作调的也太帅太好看了，金大师确实是大师<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
