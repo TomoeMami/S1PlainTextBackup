@@ -1049,3 +1049,16 @@ xb无双可以端上来了
 
 我PC和NS双持所以对钥匙卡还算能接受
 
+
+*****
+
+####  Gigax  
+##### 105#       发表于 2025-7-31 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68187440&amp;ptid=2257869" target="_blank">chdhdhd 发表于 2025-7-31 00:40</a>
+
+主要是特指卡社和kt社，关心这两家能不能给新饼
+
+主要这两家现在已经有多个已知项目在开发，也没有什么潜 ...</blockquote>
+KT的话从莱莎２开始每年的炼金工房都是在任天堂的直面会首曝的吧,不过gust够呛能在明年三月又出一个新炼金,这次直面会估计不会有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
