@@ -14966,3 +14966,16 @@ ARPG基本上 ...</blockquote>
 
 突出一个你手残也可以有手段各显神通……
 
+
+*****
+
+####  naclken.  
+##### 4218#       发表于 2025-7-31 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68192455&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-7-31 21:24</a>
+
+呃，换成防御流组件和脊椎一点压力都没的啊……普通招一刀掉个六分一七分一，大招吃了也就1/3多些1/2不到 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 特意带了个三星护盾MK2，把盾容量从500拉到950，还是两刀就没。
+
+其他配件都是攻击的，血量6500，挨三刀全没。
+
