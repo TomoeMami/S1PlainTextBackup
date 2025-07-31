@@ -991,3 +991,20 @@ G世纪单机里的确有恶魔头母舰的
 
 Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达其实可以补一个Z系标签的
 
+
+*****
+
+####  一个陆仁贾  
+##### 2350#       发表于 2025-7-31 12:12
+
+笑死，报丧射程1的格斗武器才带射程减1的debuff
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  arthes  
+##### 2351#       发表于 2025-7-31 12:15
+
+报丧这动画也拉垮，来来回回就硬水时长<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，怎么感觉尊者才是限定的质量
+
