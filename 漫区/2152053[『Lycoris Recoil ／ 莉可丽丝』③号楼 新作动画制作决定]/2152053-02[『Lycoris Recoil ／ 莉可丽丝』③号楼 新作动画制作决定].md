@@ -28,3 +28,14 @@
 
 踢屁屁呢？
 
+
+*****
+
+####  osore  
+##### 2389#       发表于 2025-7-31 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68190070&amp;ptid=2152053" target="_blank">IWS2000 发表于 2025-7-31 14:04</a>
+
+踢屁屁呢？</blockquote>
+OP的镜头不参选
+
