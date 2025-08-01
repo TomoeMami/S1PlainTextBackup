@@ -13859,3 +13859,18 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 看了解包，仔细一想羊头不就是黄衣老者吗？再加上这次的风暴王，他们哪天把喷气式老王也给复刻一下我都不觉得奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1328#       发表于 2025-8-1 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68197277&amp;ptid=2210352" target="_blank">斯普林菲尔德 发表于 2025-8-1 16:57</a>
+
+哦，我知道了，要解锁砸地，靠普攻的AoE把地上的气泡清掉，那么这个气泡就不是问题了。
+
+刚刚又和朋友双 ...</blockquote>
+我还看到一个用黄金树恩惠把黑球激光顶掉的例子，比较偶然，不知道什么原理
+
+[https://www.bilibili.com/video/BV1vK8Sz4EkX?t=336](https://www.bilibili.com/video/BV1vK8Sz4EkX?t=336)
+
