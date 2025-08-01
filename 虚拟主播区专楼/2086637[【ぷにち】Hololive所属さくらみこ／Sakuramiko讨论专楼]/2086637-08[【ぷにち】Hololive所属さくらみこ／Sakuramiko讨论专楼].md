@@ -327,3 +327,38 @@ ero
 
 之前跟船长说的企划是这个吗
 
+
+*****
+
+####  holofan  
+##### 11140#       发表于 2025-8-1 21:22
+
+<img src="https://img.stage1st.com/forum/202508/01/212230ll38kw4ceq2cq31e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 21:22 上传
+
+*****
+
+####  holofan  
+##### 11141#       发表于 2025-8-1 22:20
+
+<img src="https://img.stage1st.com/forum/202508/01/222013py1999i86q4wwaiz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 22:20 上传
+
+<img src="https://img.stage1st.com/forum/202508/01/222032mkqwkk5k5zgcw8rc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 22:20 上传
+
