@@ -311,3 +311,14 @@ CGディレクター：大曽根悠介
 
 现在有说集数吗
 
+
+*****
+
+####  粉儿alice  
+##### 90#       发表于 2025-8-1 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196531&amp;ptid=2250190" target="_blank">Blackson 发表于 2025-8-1 15:05</a>
+这作主笔执笔过拯救队，看故事简介也是进入组织。监督执导星Q。
+系列上一作鬼游除了主线太散，主角强化间隔 ...</blockquote>
+这作还主笔“虐心百合神作”心跳q娃呢<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
