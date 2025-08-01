@@ -13825,3 +13825,16 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 卧槽蓄力攻击能拉近敌人
 
+
+*****
+
+####  nightmare902015  
+##### 1325#       发表于 2025-8-1 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196054&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-8-1 13:37</a>
+好的，谢谢，熔炉就只打2刀就回避呀，我试试</blockquote>
+可以看一下这个视频领会下前期的打法精髓，熔炉也是一个思路。他除了100%安全的大硬直，基本没砍过第三段。
+[【6级女爵单人初始短剑80秒速通下水道铃珠猎人-哔哩哔哩】](https://b23.tv/DSGxncW)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
