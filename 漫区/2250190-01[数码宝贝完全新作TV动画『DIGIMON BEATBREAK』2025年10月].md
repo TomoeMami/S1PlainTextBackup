@@ -284,3 +284,13 @@ CGディレクター：大曽根悠介
 
 周日早上9点但不像子供向没有卖玩具环节？
 
+
+*****
+
+####  Blackson  
+##### 87#       发表于 2025-8-1 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68195925&amp;ptid=2250190" target="_blank">闭挂锁人 发表于 2025-8-1 13:09</a>
+ 周日早上9点但不像子供向没有卖玩具环节？</blockquote>
+肯定有。上一作幽灵游戏“暴龙机”卖手环，这作不知道暴龙机卖什么花样
+
