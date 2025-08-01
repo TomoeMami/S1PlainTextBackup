@@ -13793,3 +13793,16 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 年度最佳运营！
 
+
+*****
+
+####  jacket  
+##### 1322#       发表于 2025-8-1 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68194225&amp;ptid=2210352" target="_blank">斯普林菲尔德 发表于 2025-8-1 08:50</a>
+
+黑激光我知道，白泡泡感觉扫不干净啊，是要脱锁空瞄吗，还是要锁水皮蛋的身体才比较安稳
+
+其实楼上提黑激 ...</blockquote>
+白泡泡要无缝甩技能，松开蓄力后连着甩哪怕泡泡落在身边也能清掉，停一下就会被炸到，我看了好几个回放都是这样。
+
