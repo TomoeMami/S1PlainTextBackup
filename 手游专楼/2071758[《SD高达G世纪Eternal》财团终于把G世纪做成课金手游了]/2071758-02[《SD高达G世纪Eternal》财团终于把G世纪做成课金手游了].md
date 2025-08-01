@@ -1278,3 +1278,11 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">拿SSR凤凰过了15F 有个必闪确实关键点
 
+
+*****
+
+####  silvia  
+##### 2375#       发表于 2025-8-1 16:45
+
+阿姆罗冒出来了，结果没ur，白激动了
+
