@@ -1314,3 +1314,13 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 这次发了3000已经很给面子了，不要变成喂不饱的狼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 2379#       发表于 2025-8-1 19:12
+
+尊者听说很强？可惜喜欢的报丧是盾机，不然真想下池了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
