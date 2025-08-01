@@ -322,3 +322,23 @@ CGディレクター：大曽根悠介
 系列上一作鬼游除了主线太散，主角强化间隔 ...</blockquote>
 这作还主笔“虐心百合神作”心跳q娃呢<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 91#       发表于 2025-8-1 17:45
+
+<blockquote>知名IP时隔2年后的正统系列作
+
+女主cv是黑泽朋世
+
+女主外形是个番茄头女高中生 ​​​</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/01/174546orh0w7rc0jkh802w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 17:45 上传
+

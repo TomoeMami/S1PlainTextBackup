@@ -3092,3 +3092,11 @@ the k4sen的线下活动全都去了
 
 <img src="https://p.sda1.dev/26/498d757d58a931472233be27425d9429/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 19295#       发表于 2025-8-1 17:38
+
+六点打组排，zerost说主播是owo“带来的”（連れた）
+
