@@ -3078,3 +3078,17 @@ the k4sen的线下活动全都去了
 
 马上可能会出现在rmt那里
 
+
+*****
+
+####  术士q  
+##### 19294#       发表于 2025-8-1 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68193860&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-8-1 03:41</a>
+马上可能会出现在rmt那里
+
+不会出现了</blockquote>
+这是个示例
+
+<img src="https://p.sda1.dev/26/498d757d58a931472233be27425d9429/image.jpg" referrerpolicy="no-referrer">
+
