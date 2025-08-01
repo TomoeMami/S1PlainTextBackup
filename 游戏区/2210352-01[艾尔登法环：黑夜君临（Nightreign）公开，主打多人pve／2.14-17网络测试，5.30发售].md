@@ -13899,3 +13899,11 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 有可能单纯就是累计失衡值，打碎部分黑球累计失衡值，累计够了boss就倒地，不一定要黑球全清。
 
+
+*****
+
+####  在海岸  
+##### 1331#       发表于 2025-8-1 18:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深夜专用遗物格子是3个，加上原来的一共6个
+
