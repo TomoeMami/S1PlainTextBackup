@@ -1214,3 +1214,19 @@ D%J_NHKM8D2O7_Q}SVBM_J4.jpg
 
 <img src="https://img.stage1st.com/forum/202508/01/094030wmg4z5ji9cni3j9w.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 2370#       发表于 2025-8-1 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68194562&amp;ptid=2071758" target="_blank">kenqqex 发表于 2025-8-1 09:41</a>
+昨天就打完了
+
+1~10 auto  那堆百式笑死我了
+
+11auto到最后一个回合微微手操了</blockquote>
+这个攻略很有意思，我也是抄的这个，其中可以明显看出敌人的ai是分阶段启动的，在启动前除非冲到对面脸上，不然稍远一点的敌军哪怕是在攻击范围内也不会理你。尊者第二回合跑到的那个位置，明显是能被大扎姆地图炮打到的，然而也被放过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
