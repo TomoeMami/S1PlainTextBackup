@@ -1391,3 +1391,14 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 这游戏的钻石主要从哪里得的，日常才给50吧。有没有周期深渊迷宫之类的打钻活动?
 
+
+*****
+
+####  岸波白野  
+##### 2386#       发表于 2025-8-2 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68199739&amp;ptid=2071758" target="_blank">Lds19 发表于 2025-8-2 01:33</a>
+
+这游戏的钻石主要从哪里得的，日常才给50吧。有没有周期深渊迷宫之类的打钻活动? ...</blockquote>
+周常角色任务周内做十个250钻，然后就是各种成就类/常驻高难永恒之路/活动/PVP才有石头了，说实在的也不知道他们这月卡在磨叽什么还不端上来，这种恶心混池中低R想捞捞卡池货体验还是非常非常恶心的<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
