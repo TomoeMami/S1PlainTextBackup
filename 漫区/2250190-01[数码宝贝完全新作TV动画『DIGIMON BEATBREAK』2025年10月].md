@@ -232,3 +232,11 @@ CGディレクター：大曽根悠介
 ムラサメモン：濱野大輝
 <img src="https://p.sda1.dev/26/daea4b4aa0a80c1fbca168a03005b076/20250801_095736.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 83#       发表于 2025-8-1 12:36
+
+怎么感觉右边狗头要死一次
+
