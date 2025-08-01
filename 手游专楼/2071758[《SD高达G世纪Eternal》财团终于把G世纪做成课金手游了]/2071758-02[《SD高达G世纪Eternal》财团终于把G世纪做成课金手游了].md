@@ -1170,3 +1170,47 @@ Z系列卡池红机能用的倒是还行吧，但成本也太高了点...S高达
 
 十五关下面的怪梆硬，根本打不动，我是直接下面的五人去上面合流，第一波用map剩下的当踏板走位合流，第二波拿一个强机送死流反击，残血当踏板，到回血阵干掉牛，用个机体拖住飞翼，最后就是围攻葵丝了
 
+
+*****
+
+####  kenqqex  
+##### 2369#       发表于 2025-8-1 09:41
+
+昨天就打完了
+
+1~10 auto  那堆百式笑死我了
+
+11auto到最后一个回合微微手操了
+
+12 上db随便打
+
+13 最有趣的一关 500en一拳打爆恶魔高达
+
+14 随便打打就过了
+
+上面都是一次过
+
+15 第一次打死了 直接上b站抄了个逃课攻略 魔改了一下队伍 过了
+
+附15的队和攻略
+
+【【SD高达G世纪永恒】世代之塔EAST 15层通关记录，开发尊者逃课（任意+移动机师）】 [https://www.bilibili.com/video/BV1G18CziEhw/](https://www.bilibili.com/video/BV1G18CziEhw/)
+
+D%J_NHKM8D2O7_Q}SVBM_J4.jpg
+(182.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 09:40 上传
+
+<img src="https://img.stage1st.com/forum/202508/01/094025tggikj1orbrqkfa3.jpg" referrerpolicy="no-referrer">
+
+56J1}03SA3OE@)$1871B0.jpg
+(177.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 09:40 上传
+
+<img src="https://img.stage1st.com/forum/202508/01/094030wmg4z5ji9cni3j9w.jpg" referrerpolicy="no-referrer">
+
