@@ -14,3 +14,14 @@
 
 太好了是澳门，时间也没问题，买到票就可以去
 
+
+*****
+
+####  starring  
+##### 1697#       发表于 2025-8-1 09:57
+
+9月6日，正好周六
+<img src="https://p.sda1.dev/26/2e741f7cb27943c53f623be41f03019d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
