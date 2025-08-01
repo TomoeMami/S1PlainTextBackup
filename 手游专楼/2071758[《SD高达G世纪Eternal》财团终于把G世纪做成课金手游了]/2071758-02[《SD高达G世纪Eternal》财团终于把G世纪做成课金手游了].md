@@ -1338,3 +1338,18 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 2381#       发表于 2025-8-1 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68198119&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-8-1 19:33</a>
+
+报丧后面应该还会出，现在这个只是常态黄，ex技能才绿；尊者是超一击6格移动加暴击率高
+
+—— 来自 vivo  ...</blockquote>
+看了一眼那个支援，劲敌词条也是潜力十足啊
+
+这池感觉真可以<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
