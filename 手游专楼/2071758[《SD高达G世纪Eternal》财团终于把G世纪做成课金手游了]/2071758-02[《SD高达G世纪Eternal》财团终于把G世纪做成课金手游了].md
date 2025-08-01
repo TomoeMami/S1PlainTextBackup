@@ -1294,3 +1294,15 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 师匠池发了朋友费，上次雷霆宙域的朋友费呢
 
+
+*****
+
+####  无念  
+##### 2377#       发表于 2025-8-1 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68197438&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-8-1 17:26</a>
+师匠池发了朋友费，上次雷霆宙域的朋友费呢</blockquote>
+600dl覆盖了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
