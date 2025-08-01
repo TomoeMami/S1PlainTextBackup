@@ -13838,3 +13838,16 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1326#       发表于 2025-8-1 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196270&amp;ptid=2210352" target="_blank">jacket 发表于 2025-8-1 14:18</a>
+
+白泡泡要无缝甩技能，松开蓄力后连着甩哪怕泡泡落在身边也能清掉，停一下就会被炸到，我看了好几个回放都 ...</blockquote>
+哦，我知道了，要解锁砸地，靠普攻的AoE把地上的气泡清掉，那么这个气泡就不是问题了。
+
+刚刚又和朋友双排，发现复仇者在这个模式里也有搞头，战技可以无限回蓝，所以复仇者可以考虑匀一部分输出出来提供额外回血和减伤……至少回血是完全可以确保的（初始祷告），感觉也是一个可以考虑的组队思路。
+
