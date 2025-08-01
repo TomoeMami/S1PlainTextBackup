@@ -12,3 +12,19 @@
 
 为了个憎恶的播报抽了200抽，感觉自己脑子多少有点大病，还好这游戏除了瓦夜都没啥逼氪的点
 
+
+*****
+
+####  钟于123  
+##### 1160#       发表于 2025-8-1 20:05
+
+<img src="https://img.stage1st.com/forum/202508/01/200528ro3ye06o33ynug7o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-1 20:05 上传
+
+好爽
+
