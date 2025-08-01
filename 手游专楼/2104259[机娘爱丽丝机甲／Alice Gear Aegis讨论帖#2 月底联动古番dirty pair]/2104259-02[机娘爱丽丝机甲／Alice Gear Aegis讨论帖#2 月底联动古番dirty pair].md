@@ -248,3 +248,11 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 竟然不许！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精英级自演乙  
+##### 1576#       发表于 2025-8-1 09:05
+
+老虎机之前花一晚上看着视频就刷完了，然后现在出了100倍率<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
