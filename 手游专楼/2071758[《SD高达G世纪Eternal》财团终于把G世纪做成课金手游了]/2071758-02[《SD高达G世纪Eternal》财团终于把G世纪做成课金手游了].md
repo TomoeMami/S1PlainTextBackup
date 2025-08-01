@@ -1230,3 +1230,19 @@ D%J_NHKM8D2O7_Q}SVBM_J4.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  行政裁定书  
+##### 2371#       发表于 2025-8-1 13:41
+
+AOZ前期的几台主要机体是不是都已经在卡池里了？
+
+那Z是不是也没什么其他像样的衍生作品，能出活动ssr机子和驾驶了？
+
+那Z的ex还真是没法打，没人没机器。
+
+开发机也都不值得sp化。
+
+而且基本上只有sr驾驶员<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

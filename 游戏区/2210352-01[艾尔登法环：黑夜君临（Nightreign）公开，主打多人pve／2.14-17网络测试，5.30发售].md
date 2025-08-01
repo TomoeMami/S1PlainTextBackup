@@ -13755,3 +13755,16 @@ sb啊...
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  luodang007  
+##### 1319#       发表于 2025-8-1 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68195815&amp;ptid=2210352" target="_blank">nightmare902015 发表于 2025-8-1 12:46</a>
+
+女爵感觉是单通爽角之一。我八职业单通历战都玩，目前还是最喜欢女爵单通体验
+
+带冰龙遗物，加初始匕首出 ...</blockquote>
+好的，谢谢，熔炉就只打2刀就回避呀，我试试
+
