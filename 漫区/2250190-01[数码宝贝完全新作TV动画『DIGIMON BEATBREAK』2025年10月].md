@@ -240,3 +240,29 @@ CGディレクター：大曽根悠介
 
 怎么感觉右边狗头要死一次
 
+
+*****
+
+####  恋叶梦境  
+##### 84#       发表于 2025-8-1 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68195748&amp;ptid=2250190" target="_blank">6030sylar 发表于 2025-8-1 12:36</a>
+
+怎么感觉右边狗头要死一次</blockquote>
+翻译byUlforce魂 <blockquote>村雨兽(CV 濱野大輝）
+
+“但是那家伙没有说谎”
+
+京的搭档数码兽。战斗时有压倒性的力量，但是平时经常变成进化前的美洲狮兽睡觉。
+
+等级：完全体
+
+类型：兽人型
+
+属性：病毒
+
+喜欢的东西：修行、睡觉
+
+讨厌的东西：薄荷</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
