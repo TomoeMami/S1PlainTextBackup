@@ -13907,3 +13907,11 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深夜专用遗物格子是3个，加上原来的一共6个
 
+
+*****
+
+####  petitlui  
+##### 1332#       发表于 2025-8-1 19:02
+
+才过了一天就有解锁深夜模式的mod了
+
