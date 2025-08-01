@@ -13706,3 +13706,13 @@ sb啊...
 
 这么看几个永夜三阶段还都算是挺有诚意的，原有基础上加了点不同的新特色，大嘴跳风暴，虫子三打一拉复活，水皮蛋风暴击倒大树，冰龙打部位破坏，山羊直接pvp大混战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就三狼是朴实无华的加强，人马算是演出叙事上的三阶段加强
 
+
+*****
+
+####  JackTitor  
+##### 1314#       发表于 2025-8-1 09:31
+
+水皮蛋主要还是打起来太无聊了，还得等一个星期才冰龙吗<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
