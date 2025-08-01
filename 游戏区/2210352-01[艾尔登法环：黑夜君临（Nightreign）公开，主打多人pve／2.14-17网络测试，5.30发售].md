@@ -13874,3 +13874,28 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 [https://www.bilibili.com/video/BV1vK8Sz4EkX?t=336](https://www.bilibili.com/video/BV1vK8Sz4EkX?t=336)
 
+
+*****
+
+####  serj005  
+##### 1329#       发表于 2025-8-1 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196109&amp;ptid=2210352" target="_blank">hirro 发表于 2025-8-1 13:47</a>
+昨天似乎有新东西，看到一个没见过的消耗品
+
+然后词条看到一个守护者专用的发动能力时释放冲击波的，查了一 ...</blockquote>
+这个不是新词条，只是原本的防御反伤改了翻译。
+这个版本很多词条文本都修正了。
+包括之前一直被吐槽的防反增伤和低血量出血。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jacket  
+##### 1330#       发表于 2025-8-1 18:13
+
+有时候看到boss半血以下，黑球还剩3颗，突然黑球全碎了boss倒地。
+
+有可能单纯就是累计失衡值，打碎部分黑球累计失衡值，累计够了boss就倒地，不一定要黑球全清。
+
