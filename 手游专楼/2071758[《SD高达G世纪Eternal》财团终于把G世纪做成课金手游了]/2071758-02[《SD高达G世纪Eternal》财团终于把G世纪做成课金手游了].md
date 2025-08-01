@@ -1246,3 +1246,17 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 而且基本上只有sr驾驶员<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 2372#       发表于 2025-8-1 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196077&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-8-1 13:41</a>
+AOZ前期的几台主要机体是不是都已经在卡池里了？
+
+那Z是不是也没什么其他像样的衍生作品，能出活动ssr机子和 ...</blockquote>
+你要提aoz那缺的多了，光tr1就那么多形态呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

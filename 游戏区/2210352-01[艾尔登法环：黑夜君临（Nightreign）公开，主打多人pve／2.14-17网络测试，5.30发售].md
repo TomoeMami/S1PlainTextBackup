@@ -13814,3 +13814,14 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 看了下解包，黑夜君临王朝了。有遗物改属性了，新模式，新初始遗物，新词条，新遗物格子，高难度。有我最想玩的祷告女爵，急急急
 
+
+*****
+
+####  jacket  
+##### 1324#       发表于 2025-8-1 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68195548&amp;ptid=2210352" target="_blank">在海岸 发表于 2025-8-1 12:04</a>
+
+https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
+卧槽蓄力攻击能拉近敌人
+
