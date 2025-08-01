@@ -663,3 +663,11 @@ A decade ago, Roxane first came to New York on the <strong>Titanic</strong>. Alo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">更新了，依然找不到发行，开发停滞，众筹的钱23年秋就花完了，你说你这还搞什么肉鸽.......应该是要黄了
 
+
+*****
+
+####  元素  
+##### 61#       发表于 2025-8-1 22:36
+
+额，就这么搞，不如把钱用在影之心三部作品的高清移植上算了……
+
