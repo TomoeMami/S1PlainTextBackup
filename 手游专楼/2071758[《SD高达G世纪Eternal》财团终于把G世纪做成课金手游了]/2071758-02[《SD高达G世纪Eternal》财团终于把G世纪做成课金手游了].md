@@ -1373,3 +1373,13 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 零件多起来之后，永恒也好打了
 
+
+*****
+
+####  一个陆仁贾  
+##### 2384#       发表于 2025-8-1 23:34
+
+无语，参考攻略还摸索了一晚上才找到安全路线让尊者逃课成功的路线<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
