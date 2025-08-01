@@ -266,3 +266,13 @@ CGディレクター：大曽根悠介
 讨厌的东西：薄荷</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 85#       发表于 2025-8-1 13:05
+
+<blockquote>6030sylar 发表于 2025-8-1 12:36
+怎么感觉右边狗头要死一次</blockquote>
+大冒号的狮子兽好像没死吧。幽灵游戏有没有狮子系死我就不知道了，中间有不少集没看。
+
