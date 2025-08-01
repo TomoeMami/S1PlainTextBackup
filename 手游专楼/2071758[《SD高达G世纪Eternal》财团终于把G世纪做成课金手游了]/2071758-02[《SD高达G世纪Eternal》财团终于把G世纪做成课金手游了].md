@@ -1324,3 +1324,17 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  一个陆仁贾  
+##### 2380#       发表于 2025-8-1 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68198029&amp;ptid=2071758" target="_blank">blue321 发表于 2025-8-1 19:12</a>
+尊者听说很强？可惜喜欢的报丧是盾机，不然真想下池了
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+报丧后面应该还会出，现在这个只是常态黄，ex技能才绿；尊者是超一击6格移动加暴击率高
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
