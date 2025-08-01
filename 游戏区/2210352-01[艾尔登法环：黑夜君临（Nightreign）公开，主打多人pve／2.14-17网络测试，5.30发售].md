@@ -13740,3 +13740,18 @@ sb啊...
 
 [https://www.bilibili.com/opus/1095739701615132690](https://www.bilibili.com/opus/1095739701615132690)解包剧透警告
 
+
+*****
+
+####  nightmare902015  
+##### 1318#       发表于 2025-8-1 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68195478&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-8-1 11:53</a>
+话说其他职业到底怎么玩这个游戏呀，我无赖单人强化大嘴都可以过了，但是比如用女爵都过不了第二夜，路上熔 ...</blockquote>
+女爵感觉是单通爽角之一。我八职业单通历战都玩，目前还是最喜欢女爵单通体验<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+带冰龙遗物，加初始匕首出血词条，你核心就是单手持匕首的时候前两刀前后摇都很短。打熔炉、灵珠这类怪就是一直砍轻击前两刀加回避打立回。双异常加掐表加大招紧急救命，全程基本不可能被摸到而且打怪速度极快的。
+第一天公式化小营地升2+顺路随便打点什么+进矿洞拿二级石头，保证进主城的时候五级以上+紫色初始武器，直接开刷。
+然后第二天就是清理没刷完的主城和野外各个红名boss，有好战技好法杖就拿，没有就初始紫武也随便打通关了。女爵后期无论玩法术还是复读战技还是初始小刀砍都很厉害。冰龙冻伤加出血还是太全面了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
