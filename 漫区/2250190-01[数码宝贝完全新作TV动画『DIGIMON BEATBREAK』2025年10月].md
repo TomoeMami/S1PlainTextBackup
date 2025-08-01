@@ -350,3 +350,12 @@ CGディレクター：大曽根悠介
 
 虽然隐约觉得男主的小蜥蜴肯定要进化成龙兽的，但是蜥蜴还是好难看啊
 
+
+*****
+
+####  cmyk1234  
+##### 93#       发表于 2025-8-1 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68197560&amp;ptid=2250190" target="_blank">新HGCG 发表于 2025-8-1 17:45</a></blockquote>
+数码宝贝电视动画上一个番茄头是新海春，声优内山夕实。
+
