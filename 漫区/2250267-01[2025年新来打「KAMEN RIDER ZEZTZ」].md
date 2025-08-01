@@ -110,3 +110,20 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 
 大概需要是-2～+2里+1级别
 
+
+*****
+
+####  永恒的王牌  
+##### 146#       发表于 2025-8-2 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68199768&amp;ptid=2250267" target="_blank">chdhdhd 发表于 2025-8-2 01:55</a>
+
+高桥悠也？悲观得不行
+
+除了ea全雷作记录，ea也不像是刻意写好的
+
+而且还是可恨的中后期垮的类型</blockquote>
+歌的评价拿后期一个评论来说就是：“如果说01李维斯极狐这几个作品是【主角作为英雄失格】的话，歌查德就是【除了三观立得正其他全部不合格】”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+加布现在正是清算期，有没有+1我觉得还差点，但如果只看一部分就丢的话我个人建议看到三骑入队就可以了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
