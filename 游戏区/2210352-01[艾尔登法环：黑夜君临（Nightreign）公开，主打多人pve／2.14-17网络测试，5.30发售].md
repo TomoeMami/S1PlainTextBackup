@@ -13732,3 +13732,11 @@ sb啊...
 
 话说其他职业到底怎么玩这个游戏呀，我无赖单人强化大嘴都可以过了，但是比如用女爵都过不了第二夜，路上熔炉都打不过，感觉韧性和削弱都好低。回避后打的话一个不小心就没了，容错率低。有啥好的训练办法吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  在海岸  
+##### 1317#       发表于 2025-8-1 12:04
+
+[https://www.bilibili.com/opus/1095739701615132690](https://www.bilibili.com/opus/1095739701615132690)解包剧透警告
+
