@@ -734,3 +734,17 @@ A decade ago, Roxane first came to New York on the <strong>Titanic</strong>. Alo
 
 23年就花完了好意思现在才说出来，感觉要被人告了
 
+
+*****
+
+####  qiyu1234  
+##### 70#       发表于 2025-8-2 09:01
+
+[https://www.kickstarter.com/proj ... blood/posts/4448264](https://www.kickstarter.com/projects/doublekickstarter/armed-fantasia-and-penny-blood/posts/4448264)
+
+武装幻想曲还在正常开发，放出了一个战斗演示，下次更新介绍是几个月后
+
+PENNY BLOOD确实陷入了困境，2023年以后工作室使用制作人个人资金进行维系，为此创作了衍生小说来筹钱，在众筹结束后，有玩家在BackerKit上购买商品支持开发者，但这些钱在游戏完成后才会分配到开发者手里
+
+最后表示会继续努力，一步步推进游戏本体的完成
+
