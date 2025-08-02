@@ -276,3 +276,15 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 发缇玛公主她妈用的GEAR居然在这里出现了，烧命才能用的。
 
+
+*****
+
+####  wilkyway  
+##### 1579#       发表于 2025-8-3 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68204963&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-8-3 00:52</a>
+宁里和美里江一样惨的身世啊……而且极为相似。出现的日本神话名词暗示宁里和夜露有很大的关系。
+
+发缇玛公 ...</blockquote>
+说起来中间那个演出没看懂 监护人大婶是被sin带走了还是突发恶疾暴毙了<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
