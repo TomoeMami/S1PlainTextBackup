@@ -13940,3 +13940,14 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 下矿第四人
 [https://www.bilibili.com/video/BV1hr8zzXE5w/](https://www.bilibili.com/video/BV1hr8zzXE5w/)
 
+
+*****
+
+####  luodang007  
+##### 1336#       发表于 2025-8-2 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68196861&amp;ptid=2210352" target="_blank">nightmare902015 发表于 2025-8-1 15:57</a>
+
+可以看一下这个视频领会下前期的打法精髓，熔炉也是一个思路。他除了100%安全的大硬直，基本没砍过第三段 ...</blockquote>
+好的，谢谢大佬分享
+
