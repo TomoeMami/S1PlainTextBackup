@@ -13971,3 +13971,14 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 —— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  usodakedo  
+##### 1339#       发表于 2025-8-2 20:32
+
+看了山羊三阶段偷跑，太刀侠似乎不太适合打这个boss，因为召唤出的太刀侠比你会弹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+另外想夸一下三阶段山羊的外形，原本就挺有鞋垫味了，三阶段中间裂开发光配合一块破布看上去就像一只眼睛，很简单的改动但是缺乏看上去更加邪恶下流
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
