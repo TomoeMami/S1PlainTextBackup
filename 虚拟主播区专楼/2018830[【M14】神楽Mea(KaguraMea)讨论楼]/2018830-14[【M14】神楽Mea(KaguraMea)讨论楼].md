@@ -3118,3 +3118,14 @@ the k4sen的线下活动全都去了
 
 也有可能是被男人干了屁股后没弄干净直接干前面了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 19298#       发表于 2025-8-2 11:50
+
+Medically, the most probable causes ranked by confidence are: (1) bacterial infection from urinary tract ascent (90% confidence, supported by Tokushukai Group's data on E. coli as the primary cause in 70-90% of cases), (2) weakened immunity from sleep deprivation or overwork (70% confidence, per a 2019 study in Journal of Clinical Sleep Medicine linking sleep loss to increased infection risk), and (3) pre-existing urinary tract issues (50% confidence, as chronic conditions can predispose to recurrent infections per the same Tokushukai source).
+
+Her high fever and collapse suggest acute pyelonephritis, which can escalate to sepsis or kidney failure if untreated; a 2023 peer-reviewed study in The Lancet reported a 10-20% complication rate without prompt antibiotic intervention.
+ 
+
