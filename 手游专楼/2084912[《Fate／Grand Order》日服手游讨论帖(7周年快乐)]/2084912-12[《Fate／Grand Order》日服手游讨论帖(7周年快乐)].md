@@ -707,3 +707,36 @@ ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/sm
 
 sakura five全员五星达成（你说啥？还有人没实装？剑R过去凑活一下就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  yangun22  
+##### 17201#       发表于 2025-8-2 13:59
+
+这个介绍方法，今年搞不好又是三五星泳装啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17202#       发表于 2025-8-2 14:01
+
+卧槽，lip圆梦了
+
+（被迫害的又少了一个
+
+*****
+
+####  quanlix  
+##### 17203#       发表于 2025-8-2 14:07
+
+去年泳装就算是没送4星，今年应该送两个才对
+
+另外，终于舍得给人物转身做过渡帧了
+
+*****
+
+####  kyonkoism  
+##### 17204#       发表于 2025-8-2 14:10
+
+lip的宝具特写真是兽蕾同级别的好看吧，又青春又可爱 还很色<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
