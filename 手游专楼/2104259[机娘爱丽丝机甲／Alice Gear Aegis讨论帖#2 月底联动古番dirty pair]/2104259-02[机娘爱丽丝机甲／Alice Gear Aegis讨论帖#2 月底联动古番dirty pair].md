@@ -256,3 +256,13 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 老虎机之前花一晚上看着视频就刷完了，然后现在出了100倍率<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1577#       发表于 2025-8-2 18:45
+
+氪到lv4被常驻打回原形，甚至连三星的都没出<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
