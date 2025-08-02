@@ -13951,3 +13951,13 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 可以看一下这个视频领会下前期的打法精髓，熔炉也是一个思路。他除了100%安全的大硬直，基本没砍过第三段 ...</blockquote>
 好的，谢谢大佬分享
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 1337#       发表于 2025-8-2 11:38
+
+怎么感觉黑夜君临能拿今年的最佳运营<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
