@@ -765,3 +765,11 @@ new外星大姐姐
 
 总计600多石还好，不过没歪五星。现只剩400石头迎战下一波了，希望非欧平衡
 
+
+*****
+
+####  奈落的孤火花  
+##### 47282#       发表于 2025-8-3 00:26
+
+我草30石头又歪了一个尼托alter<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
