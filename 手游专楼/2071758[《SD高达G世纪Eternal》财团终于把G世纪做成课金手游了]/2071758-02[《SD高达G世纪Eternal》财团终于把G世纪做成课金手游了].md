@@ -1478,3 +1478,16 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 2393#       发表于 2025-8-2 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68202037&amp;ptid=2071758" target="_blank">体制 发表于 2025-8-2 16:00</a>
+不应该啊，你看到啥攻略。尊者只要放在上面1号位然后一直往前收头2动猪突就行了。安排俩3动机护航就是。
+ ...</blockquote>
+我只是看了大概思路，到牛高达出现那里开始，下路火力不够突破，导致命运往尊者那里跑了，然后牛高达也没勾引成功，被守门员和地图炮击破了。没有sl或者悔棋重试了好多次<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
