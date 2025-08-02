@@ -587,3 +587,68 @@ ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/sm
 
 这次日服十周年贺图，一张凛系都没有啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 17192#       发表于 2025-8-1 17:33
+
+本来就垃圾的道满现在更垃圾了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 17193#       发表于 2025-8-2 08:56
+
+<img src="https://img.stage1st.com/forum/202508/02/085606spkwwqggrgqs5s5w.jpg" referrerpolicy="no-referrer">
+
+<strong>0f6ef212-7623-4dc2-ac40-ffcafa81d734.jpg</strong> (120.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-2 08:56 上传
+
+也是个十年老登了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kyonkoism  
+##### 17194#       发表于 2025-8-2 13:13
+
+<img src="https://img.stage1st.com/forum/202508/02/131317h75n7t7h5t24fhz5.png" referrerpolicy="no-referrer">
+
+<strong>}LX`S[)QX81VD`DOO435Q.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-2 13:13 上传
+
+芜——————————————啸！
+
+*****
+
+####  Jamaisvu  
+##### 17195#       发表于 2025-8-2 13:14
+
+<img src="https://img.stage1st.com/forum/202508/02/131436pbdbrkb3v38w0kb9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250802_131304.jpg</strong> (284.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-2 13:14 上传
+
+烟哥真是内部爱啊，又是周年礼装又是泳装灵衣，田岛老师还一直出售后本子，武内也算是追星成功了吧。
+
+*****
+
+####  壳壳牛  
+##### 17196#       发表于 2025-8-2 13:15
+
+芜~
+
+还挺帅
+
