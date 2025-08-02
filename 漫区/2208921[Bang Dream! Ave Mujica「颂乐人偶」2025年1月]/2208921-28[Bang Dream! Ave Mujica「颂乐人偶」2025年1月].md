@@ -1614,3 +1614,30 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
        [https://t.co/fkFe5yBkVA](https://t.co/fkFe5yBkVA)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41138#       发表于 2025-8-2 12:34
+
+      <strong>【Ave Mujica】带着《KiLLKiSS》就此归来【BML2025单品】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/02/123357gnvvxcey1myxholm.jpg" referrerpolicy="no-referrer">
+
+<strong>a11e8502e908b4e6b1f895d023f7902f0c228943.jpg</strong> (148.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-2 12:33 上传
+
+《KiLLKiSS》
+
+演唱：Ave Mujica
+
+作词：Diggy-MO’
+
+作曲：長谷川大介（SUPA LOVE）、Diggy-MO’
+
+编曲：長谷川大介（SUPA LOVE）</blockquote>
+       [https://www.bilibili.com/video/BV1Ac8yzxERF/](https://www.bilibili.com/video/BV1Ac8yzxERF/)
+
