@@ -391,3 +391,26 @@ ero
 
 2025-8-2 19:55 上传
 
+
+*****
+
+####  holofan  
+##### 11144#       发表于 2025-8-2 20:08
+
+<img src="https://img.stage1st.com/forum/202508/02/200808x56k11do60koukrk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-2 20:08 上传
+
+唉，七字母
+
+*****
+
+####  holofan  
+##### 11145#       发表于 2025-8-2 20:09
+
+但是去掉最后一题的10分其实是mio正解数最多
+
