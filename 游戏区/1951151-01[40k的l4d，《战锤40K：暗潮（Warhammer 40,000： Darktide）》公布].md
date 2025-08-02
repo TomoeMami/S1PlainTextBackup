@@ -26,3 +26,14 @@
 结 ...</blockquote>
 可能只是被狗扑了，你看他血条是不是白的
 
+
+*****
+
+####  blue321  
+##### 341#       发表于 2025-8-2 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68200222&amp;ptid=1951151" target="_blank">adw667 发表于 2025-8-2 09:09</a>
+
+可能只是被狗扑了，你看他血条是不是白的</blockquote>
+确实有可能，但是当时一堆罐头围着加上精神紧绷确实没注意到实际情况<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
