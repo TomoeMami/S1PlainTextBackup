@@ -652,3 +652,58 @@ ex细分是不是流到20周年啊<img src="https://static.stage1st.com/image/sm
 
 还挺帅
 
+
+*****
+
+####  Jamaisvu  
+##### 17197#       发表于 2025-8-2 13:30
+
+ 本帖最后由 Jamaisvu 于 2025-8-2 13:36 编辑 
+
+<img src="https://img.stage1st.com/forum/202508/02/132955er6ldwy6p6rzfpxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250802_132943.jpg</strong> (301.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-2 13:29 上传
+
+<img src="https://img.stage1st.com/forum/202508/02/133148uuhozhakcoop0hmm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250802_133140.jpg</strong> (271.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-2 13:31 上传
+
+泳装一池，两个四星是呼延灼和科伦希尔德，五星是去年的卫星泳装莉普。
+
+很难评，去年那个简易灵衣的意义何在？混羁绊加成吗...
+
+该不会是本来要做套灵衣，蘑菇或武内临时起意，觉得画这么好看不如出张新卡？但是灵衣空位已经设置进游戏，于是临时换个背景图？
+
+*****
+
+####  jackyhuang  
+##### 17198#       发表于 2025-8-2 13:31
+
+做了一年模组是吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  壳壳牛  
+##### 17199#       发表于 2025-8-2 13:32
+
+大就是好
+
+*****
+
+####  xiongxingyu  
+##### 17200#       发表于 2025-8-2 13:32
+
+sakura five全员五星达成（你说啥？还有人没实装？剑R过去凑活一下就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
