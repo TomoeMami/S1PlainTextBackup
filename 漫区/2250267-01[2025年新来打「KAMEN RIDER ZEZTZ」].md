@@ -157,3 +157,16 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 歌查德是公认的烂了但是抛弃脑子看还有乐子。
 加布你要说烂到底可能目前还不至于但是太特么水了，磨磨唧唧几十话连乐子都没有。
 
+
+*****
+
+####  浅川雏羽  
+##### 149#       发表于 2025-8-2 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68200052&amp;ptid=2250267" target="_blank">仟音一心 发表于 2025-8-2 08:09</a>
+歌查德是公认的烂了但是抛弃脑子看还有乐子。
+加布你要说烂到底可能目前还不至于但是太特么水了，磨磨唧 ...</blockquote>
+哥查德乐子在哪
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
