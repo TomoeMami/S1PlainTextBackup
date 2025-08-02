@@ -1148,7 +1148,7 @@
     "newtitle": "[这种败坏魔王军形象的部门]",
     "lastedit": 1753881625,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2064739": {
@@ -7263,10 +7263,10 @@
     "update": false
   },
   "2168695": {
-    "totalreply": 5664,
+    "totalreply": 5668,
     "title": "[【瞳3】星瞳_Official综合讨论楼｜｜新✨楼新✨气象！]",
     "newtitle": "[【瞳3】星瞳_Official综合讨论楼｜｜12.27 星瞳3D跨年直播！！！]",
-    "lastedit": 1754139370,
+    "lastedit": 1754140812,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 66366,
+    "totalreply": 66369,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1754140687,
+    "lastedit": 1754141047,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 180531,
+    "totalreply": 180541,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754140573,
+    "lastedit": 1754141171,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11466,10 +11466,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 6860,
+    "totalreply": 6861,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／7.31晚九点3p]",
-    "lastedit": 1754124250,
+    "lastedit": 1754141175,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11520,10 +11520,10 @@
     "update": false
   },
   "2252904": {
-    "totalreply": 854,
+    "totalreply": 857,
     "title": "[江苏省城市足球联赛—苏超联赛专楼]",
     "newtitle": "[江苏省城市足球联赛—苏超联赛专楼]",
-    "lastedit": 1754140216,
+    "lastedit": 1754140815,
     "category": "外野",
     "active": true,
     "update": false
@@ -12492,12 +12492,12 @@
     "update": false
   },
   "2209574": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[蓝色协议还没死透但已经打赢复活赛——星痕共鸣]",
     "newtitle": "[蓝色协议还没死透但已经打赢复活赛——星痕共鸣]",
-    "lastedit": 1753802655,
+    "lastedit": 1754140815,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2256740": {
@@ -15444,10 +15444,10 @@
     "update": false
   },
   "2251461": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[《中国奇谭》首部动画电影《浪浪山小妖怪》定档8月2日]",
     "newtitle": "[《中国奇谭》首部动画电影《浪浪山小妖怪》定档8月2日]",
-    "lastedit": 1754136378,
+    "lastedit": 1754141175,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15750,10 +15750,10 @@
     "update": false
   },
   "2251108": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[大家对渎神团队忍龙新作《忍者龙剑传 怒之羁绊》怎么看]",
     "newtitle": "[大家对渎神团队忍龙新作《忍者龙剑传 怒之羁绊》怎么看]",
-    "lastedit": 1754140216,
+    "lastedit": 1754141175,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16200,10 +16200,10 @@
     "update": false
   },
   "2257971": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[纯电大六座闹剧结束了，l90 顶配29.9]",
     "newtitle": "[纯电大六座闹剧结束了，l90 顶配29.9]",
-    "lastedit": 1754119089,
+    "lastedit": 1754140815,
     "category": "外野",
     "active": true,
     "update": false
@@ -16587,10 +16587,10 @@
     "update": false
   },
   "2257820": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[尊湃好像出结果了]",
     "newtitle": "[尊湃好像出结果了]",
-    "lastedit": 1754137452,
+    "lastedit": 1754141048,
     "category": "外野",
     "active": true,
     "update": false
@@ -16771,6 +16771,15 @@
     "title": "[《幻世录 重制版》预计2026年推出，登录STEAM]",
     "newtitle": "[《幻世录 重制版》预计2026年推出，登录STEAM]",
     "lastedit": 1754138051,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252294": {
+    "totalreply": 41,
+    "title": "[《暗黑破坏神II》重制版（PC版）国行版号变更批准通过]",
+    "newtitle": "[《暗黑破坏神II》重制版（PC版）国行版号变更批准通过]",
+    "lastedit": 1754141175,
     "category": "游戏区",
     "active": true,
     "update": false
