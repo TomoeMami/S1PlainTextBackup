@@ -142,3 +142,18 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 
 还有不少平成旧作没看的，那还是把平成高口碑补完再考虑这些好了
 
+
+*****
+
+####  仟音一心  
+##### 148#       发表于 2025-8-2 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68199768&amp;ptid=2250267" target="_blank">chdhdhd 发表于 2025-8-2 01:55</a>
+高桥悠也？悲观得不行
+
+除了ea全雷作记录，ea也不像是刻意写好的
+
+而且还是可恨的中后期垮的类型</blockquote>
+歌查德是公认的烂了但是抛弃脑子看还有乐子。
+加布你要说烂到底可能目前还不至于但是太特么水了，磨磨唧唧几十话连乐子都没有。
+
