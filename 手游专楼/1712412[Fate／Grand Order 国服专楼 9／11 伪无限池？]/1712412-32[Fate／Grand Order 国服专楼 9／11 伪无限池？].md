@@ -784,3 +784,15 @@ new外星大姐姐
 我草30石头又歪了一个尼托alter</blockquote>
 虽然歪，但5星出率有点高啊<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47284#       发表于 2025-8-3 07:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68202064&amp;ptid=1712412" target="_blank">赤备传承 发表于 2025-8-2 16:05</a>
+周四晚试用宇宙艾蕾刷好感度到满放宝具结果睡着了，醒来已经是结算画面了
+
+然后白天刷本发现好友的没有好感 ...</blockquote>
+之前不是一直都说了，水艾蕾有纯爱防牛锁啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
