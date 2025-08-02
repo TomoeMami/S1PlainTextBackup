@@ -15058,3 +15058,15 @@ StellarBlade_250802_02085500000.webp
 
 <img src="https://img.stage1st.com/forum/202508/02/023442ivsue0518g1vy041.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reficul  
+##### 4222#       发表于 2025-8-3 00:01
+
+打完迅驰了，顺便在进沙漠前把前面地图的所有支线都清了。
+
+困难迅驰的伤害太离谱，还是换回普通了，感觉招式和AI没区别，就是加数值而已
+
+用上了CNS，好TM色啊
+
