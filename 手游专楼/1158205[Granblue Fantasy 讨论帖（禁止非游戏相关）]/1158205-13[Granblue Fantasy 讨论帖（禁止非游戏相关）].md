@@ -36,3 +36,11 @@
 
 草，这次生放出门看的时候都在骂，骑个车回来看到集体给新p道歉了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 18247#       发表于 2025-8-2 21:33
+
+以前都是挂旁边听完的，这次读了两个月号开始放线下周边内容我是真关了，不过一直在群里吹逼，看到还有货立马折回去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
