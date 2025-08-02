@@ -718,3 +718,11 @@ A decade ago, Roxane first came to New York on the <strong>Titanic</strong>. Alo
 
 都快忘了。百英雄传好歹出了。
 
+
+*****
+
+####  风间坚次  
+##### 68#       发表于 2025-8-2 08:39
+
+可惜了，人设真的挺好看的，也很对我胃口，如真很做到影之心的剧本水平那真的不错
+
