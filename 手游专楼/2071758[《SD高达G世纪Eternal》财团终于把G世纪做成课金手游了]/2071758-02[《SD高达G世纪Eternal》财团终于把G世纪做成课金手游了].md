@@ -1491,3 +1491,16 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acg_gyanc  
+##### 2394#       发表于 2025-8-2 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68202618&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-8-2 17:58</a>
+我只是看了大概思路，到牛高达出现那里开始，下路火力不够突破，导致命运往尊者那里跑了，然后牛高达也没 ...</blockquote>
+【【SD高达G世纪永恒】世代之塔EAST 15层通关记录，开发尊者逃课（任意+移动机师）-哔哩哔哩】 https://b23.tv/lGAMA99
+看这个攻略，下路清完杂兵全员待在中立单位周围，都不需要动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
