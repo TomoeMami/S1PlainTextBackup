@@ -773,3 +773,14 @@ new外星大姐姐
 
 我草30石头又歪了一个尼托alter<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47283#       发表于 2025-8-3 05:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68204854&amp;ptid=1712412" target="_blank">奈落的孤火花 发表于 2025-8-3 00:26</a>
+
+我草30石头又歪了一个尼托alter</blockquote>
+虽然歪，但5星出率有点高啊<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
