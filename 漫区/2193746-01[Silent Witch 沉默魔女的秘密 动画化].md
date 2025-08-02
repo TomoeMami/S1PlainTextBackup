@@ -22,3 +22,11 @@
 
 还是看小说吧，改编的跟坐火车似的
 
+
+*****
+
+####  tiro_finale  
+##### 104#       发表于 2025-8-2 11:20
+
+狙击土龙是完整的一个故事，居然只剩最后那段了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
