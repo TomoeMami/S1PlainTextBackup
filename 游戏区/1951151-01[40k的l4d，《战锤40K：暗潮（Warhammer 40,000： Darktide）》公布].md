@@ -37,3 +37,13 @@
 可能只是被狗扑了，你看他血条是不是白的</blockquote>
 确实有可能，但是当时一堆罐头围着加上精神紧绷确实没注意到实际情况<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nihlathak  
+##### 342#       发表于 2025-8-2 20:55
+
+回归玩家想问狂信现在是不是下水道职业，刷祷工具人？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
