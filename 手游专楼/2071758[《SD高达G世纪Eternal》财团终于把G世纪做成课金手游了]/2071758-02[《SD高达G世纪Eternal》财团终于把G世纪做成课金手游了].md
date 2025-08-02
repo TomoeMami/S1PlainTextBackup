@@ -1464,3 +1464,17 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 当然打算刷到什么程度完全看个人喜好， ...</blockquote>
 那好，等15号看看吧
 
+
+*****
+
+####  体制  
+##### 2392#       发表于 2025-8-2 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68199337&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-8-1 23:34</a>
+无语，参考攻略还摸索了一晚上才找到安全路线让尊者逃课成功的路线
+
+—— 来自 vivo V2419A, Android 15,  ...</blockquote>
+不应该啊，你看到啥攻略。尊者只要放在上面1号位然后一直往前收头2动猪突就行了。安排俩3动机护航就是。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
