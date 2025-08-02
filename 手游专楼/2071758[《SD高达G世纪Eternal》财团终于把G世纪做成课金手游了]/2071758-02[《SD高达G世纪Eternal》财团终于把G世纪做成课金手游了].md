@@ -1504,3 +1504,15 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一个陆仁贾  
+##### 2395#       发表于 2025-8-2 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68202791&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-8-2 18:35</a>
+【【SD高达G世纪永恒】世代之塔EAST 15层通关记录，开发尊者逃课（任意+移动机师）-哔哩哔哩】 https://b ...</blockquote>
+没事，昨晚我已经过了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
