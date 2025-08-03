@@ -414,3 +414,24 @@ ero
 
 但是去掉最后一题的10分其实是mio正解数最多
 
+
+*****
+
+####  渡鸦骑士  
+##### 11146#       发表于 2025-8-2 20:25
+
+最纠结这个十分定制冠军的就是冠军本人（）
+
+*****
+
+####  holofan  
+##### 11147#       发表于 2025-8-3 11:30
+
+<img src="https://img.stage1st.com/forum/202508/03/113052xj6hzfi6uu1bh57z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 11:30 上传
+
