@@ -2344,3 +2344,40 @@ ex不像色卡这些有buff，没啥用吧
 
 没忍住扔了四发十连 三宝了 溜了 楼友太害人
 
+
+*****
+
+####  alucardcz  
+##### 17369#       发表于 2025-8-4 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210212&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 00:24</a>
+
+没忍住扔了四发十连 三宝了 溜了 楼友太害人</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这就是欧皇吗
+
+*****
+
+####  qixinno2  
+##### 17370#       发表于 2025-8-4 00:44
+
+<blockquote>alucardcz 发表于 2025-8-4 00:40
+这就是欧皇吗</blockquote>
+上面那几个随便五宝的才叫欧皇 我这顶多刚脱非
+
+*****
+
+####  alucardcz  
+##### 17371#       发表于 2025-8-4 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210286&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 00:44</a>
+
+上面那几个随便五宝的才叫欧皇 我这顶多刚脱非</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">区别不大 在萌新眼里都是欧皇
+
+*****
+
+####  cckuku  
+##### 17372#       发表于 2025-8-4 01:20
+
+400石头+20护符，就出了一个五星所长，理性告诉我该收手了，还剩下1200石头，看看后续强度和泳装再说吧。
+
