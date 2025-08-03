@@ -854,3 +854,16 @@ fgo还能续一年。
 那就说明他们自己内部有把握后面至少出三张认为玩家会必抽 ...</blockquote>
 没关系，一年千里眼根本不慌<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 47290#       发表于 2025-8-3 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207774&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-8-3 16:55</a>
+
+明年送1000石，但是我感觉yls既然有魄力送1000，
+
+那就说明他们自己内部有把握后面至少出三张认为玩家会必抽 ...</blockquote>
+怕不是明年直接出fgo2
+

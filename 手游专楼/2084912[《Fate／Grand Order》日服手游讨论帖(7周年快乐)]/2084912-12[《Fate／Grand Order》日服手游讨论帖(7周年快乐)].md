@@ -1644,3 +1644,50 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 还没打完奏四送的200石蹦出个老刑绷不住了
 
+
+*****
+
+####  kyonkoism  
+##### 17298#       发表于 2025-8-3 17:41
+
+<img src="https://img.stage1st.com/forum/202508/03/174105o2cc7g28f17w7c11.jpg" referrerpolicy="no-referrer">
+
+<strong>]LWJ38PPCO0@WA8IC59CSTV_tmb.jpg</strong> (143.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 17:41 上传
+
+插播一个充满希望的截图<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 17299#       发表于 2025-8-3 17:41
+
+80抽两宝跑路了  石头留着抽泳装
+
+*****
+
+####  cckuku  
+##### 17300#       发表于 2025-8-3 17:50
+
+所以，强吗？不会又是和我蕾那样花里胡哨结果不如人家一拳的花瓶吧？
+
+*****
+
+####  超阳电子炮  
+##### 17301#       发表于 2025-8-3 17:51
+
+90石一宝，就这样吧XD
+
+*****
+
+####  kyonkoism  
+##### 17302#       发表于 2025-8-3 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208073&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-8-3 17:50</a>
+
+所以，强吗？不会又是和我蕾那样花里胡哨结果不如人家一拳的花瓶吧？</blockquote>
+我看群友说目前来看机制有点像学姐，等实测，我感觉绝对是力大砖飞的强角，地球大总统怎么可能弱啦<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
