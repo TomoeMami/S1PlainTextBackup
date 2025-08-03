@@ -1613,3 +1613,34 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 330石头第二宝，走了走了，剩下的留给泳装了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 17294#       发表于 2025-8-3 17:26
+
+千石二宝一个没歪...<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 17295#       发表于 2025-8-3 17:28
+
+没打过所长碎片本是不是不能开冠位兽？
+
+*****
+
+####  低调不圆滑  
+##### 17296#       发表于 2025-8-3 17:31
+
+这池子感觉概率出问题了，4星5星狂出
+
+*****
+
+####  岸波白野  
+##### 17297#       发表于 2025-8-3 17:35
+
+还没打完奏四送的200石蹦出个老刑绷不住了
+
