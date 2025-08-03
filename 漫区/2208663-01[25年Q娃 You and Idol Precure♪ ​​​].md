@@ -159,3 +159,16 @@
 
 卧槽你们原来是银兽啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1203#       发表于 2025-8-3 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68206557&amp;ptid=2208663" target="_blank">Blackson 发表于 2025-8-3 12:46</a>
+
+这下可以确定三人组都是妖精了，估计反派女王也是。有预感走热带的路子
+
+另外这应援棒真IMBA，排球回、噗哩 ...</blockquote>
+奇迹手电能不IMBA吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
