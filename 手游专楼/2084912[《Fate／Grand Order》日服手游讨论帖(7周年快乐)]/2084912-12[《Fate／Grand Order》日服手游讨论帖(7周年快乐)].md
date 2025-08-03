@@ -2108,3 +2108,50 @@ ex不像色卡这些有buff，没啥用吧
 
 第二宝吃井，今年吃了两个井，我收回原来的话，叶良树飞🐴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17347#       发表于 2025-8-3 21:00
+
+这ex攻击伤害也太低了。。
+
+该奶一口孔明强化成ex拐了
+
+*****
+
+####  qixinno2  
+##### 17348#       发表于 2025-8-3 21:03
+
+<blockquote>alucardcz 发表于 2025-8-3 21:00
+这ex攻击伤害也太低了。。
+
+该奶一口孔明强化成ex拐了</blockquote>
+不错了 起码打单怪份害会变正常 想想劳青不是更幽默
+
+*****
+
+####  alucardcz  
+##### 17349#       发表于 2025-8-3 21:04
+
+顺变问下 4星以下的卡谁有30他充？
+
+*****
+
+####  khxooo  
+##### 17350#       发表于 2025-8-3 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209087&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-3 21:04</a>
+
+顺变问下 4星以下的卡谁有30他充？</blockquote>
+徐福30单充，仅此一个，医神是群充20。
+
+*****
+
+####  天王寺凯伊姆  
+##### 17351#       发表于 2025-8-3 21:08
+
+<blockquote>alucardcz 发表于 2025-8-3 21:04
+顺变问下 4星以下的卡谁有30他充？</blockquote>
+包括4星？我用的是泳装夏洛特
+
