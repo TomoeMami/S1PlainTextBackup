@@ -1556,3 +1556,16 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 这游戏哪怕是打全开发 氪多氪少还是有差距的 说氪佬不爽的是没有看到氪佬开发机也能以力破敌
 
+
+*****
+
+####  AminGly  
+##### 2400#       发表于 2025-8-3 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68198029&amp;ptid=2071758" target="_blank">blue321 发表于 2025-8-1 19:12</a>
+
+尊者听说很强？可惜喜欢的报丧是盾机，不然真想下池了
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+常驻输出迟早被爆 或者用起来别扭 比如gto扎古
+
