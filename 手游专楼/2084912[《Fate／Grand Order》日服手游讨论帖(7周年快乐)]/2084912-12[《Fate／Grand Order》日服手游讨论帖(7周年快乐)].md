@@ -2226,3 +2226,48 @@ ex不像色卡这些有buff，没啥用吧
 测试了下 2宝  自出梅林借杀狐  第1面6w(单体) 第2面8w 第3面11w 还有2张红卡 平时的本够冲了。。。主要可 ...</blockquote>
 打人/星应该能打出很高的伤害，另外两个阵营伤害不太行的样子
 
+
+*****
+
+####  Jamaisvu  
+##### 17357#       发表于 2025-8-3 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209187&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-3 21:18</a>
+
+所长至少以后冲浪普通本可以单拐+一个30他充了</blockquote>
+看到一种奇葩打法，带加NP率的衣服（2004年碎片），搭配三技能能达到100NP率。
+
+第一面如果都是低血量小怪，可以技能全开红绿蓝EX一套打满NP，第二面放宝具，第三面两个杀狐一技能充能后按3-2-1的顺序开技能，宝红红EX清场。
+
+问题是无法保证第一回合每次都能打满100NP<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17358#       发表于 2025-8-3 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209077&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-3 21:03</a>
+
+不错了 起码打单怪份害会变正常 想想劳青不是更幽默</blockquote>
+那是谁
+
+其实这波是完爆了公主。。。
+
+*****
+
+####  qixinno2  
+##### 17359#       发表于 2025-8-3 21:56
+
+<blockquote>alucardcz 发表于 2025-8-3 21:42
+那是谁
+
+其实这波是完爆了公主。。。</blockquote>
+数值怪青子直接被遗忘了可还行
+
+*****
+
+####  xiongxingyu  
+##### 17360#       发表于 2025-8-3 22:27
+
+所长是三套模组两套宝具三套语音的最高规格啊，不愧是十周年从者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
