@@ -288,3 +288,14 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 发缇玛公 ...</blockquote>
 说起来中间那个演出没看懂 监护人大婶是被sin带走了还是突发恶疾暴毙了<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1580#       发表于 2025-8-3 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68205194&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-8-3 02:20</a>
+
+说起来中间那个演出没看懂 监护人大婶是被sin带走了还是突发恶疾暴毙了</blockquote>
+你游剧情特有的模棱两可，怎么解释都行
+
