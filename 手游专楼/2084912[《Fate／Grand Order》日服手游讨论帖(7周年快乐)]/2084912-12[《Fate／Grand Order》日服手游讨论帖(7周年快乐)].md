@@ -1442,3 +1442,135 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 我承认之前我的声音太大了，这就推图
 
+
+*****
+
+####  里村紅葉  
+##### 17283#       发表于 2025-8-3 17:04
+
+10周年打算把奇迹48小时也妇科一下吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17284#       发表于 2025-8-3 17:05
+
+看到所长卡面了，我觉得我能接受，毕竟武内前段时间整出的某些实在是太逆天了
+
+至少没出现汇呆后两张卡面让我直接喷了的效果
+
+*****
+
+####  kyonkoism  
+##### 17285#       发表于 2025-8-3 17:08
+
+有一说一，所长卡面能称呼一声全力社长了
+
+衣品好，动作多，最主要的是竟然没有4字腿，配得上奥尔加玛丽的卡面，社长 伟大<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+以及，所长的黄金苦茶子没了，谁偷的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202508/03/170947via662icq6svch6s.jpg" referrerpolicy="no-referrer">
+
+<strong>}UA14FJ)YM[E1GJHLIW97EJ.jpg</strong> (94 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 17:09 上传
+
+*****
+
+####  岸浪白野  
+##### 17286#       发表于 2025-8-3 17:10
+
+真点击就送1000石<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202508/03/171004g272btgt27l7sq5q.png" referrerpolicy="no-referrer">
+
+<strong>1ER1F~5MGIQ0E$FK1FT_}[5.png</strong> (421.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 17:10 上传
+
+*****
+
+####  Jamaisvu  
+##### 17287#       发表于 2025-8-3 17:10
+
+ 本帖最后由 Jamaisvu 于 2025-8-3 17:13 编辑 
+
+搬一下解包数据：
+
+一二灵基和三零基的技能名称有变化，中二总统模式是空前绝后、惊天动地、天衣无缝，所长模式变成了英文名称：
+
+<img src="https://img.stage1st.com/forum/202508/03/171125qglt4mzwtgzxhv92.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250803_171059.png</strong> (366.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:11 上传
+
+<img src="https://img.stage1st.com/forum/202508/03/171125yrpv7kzui67vpk75.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250803_171109.png</strong> (167.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:11 上传
+
+四张卡面：
+
+<img src="https://img.stage1st.com/forum/202508/03/171304v1usfkjpjlggoorl.jpg" referrerpolicy="no-referrer">
+
+<strong>9BB252E9CFBB8EA482CD1EBBBC1FBA4E.jpg</strong> (133.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/03/171304bld13tclcsd14g6c.jpg" referrerpolicy="no-referrer">
+
+<strong>74CF12907EF740BB119EF7545A76CAE7.jpg</strong> (79.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/03/171304l751s71ypzpllpqq.jpg" referrerpolicy="no-referrer">
+
+<strong>8E8E43BE5435508D7BADB2B3B350C42D.jpg</strong> (108.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/03/171305eu06epugupsucu0p.jpg" referrerpolicy="no-referrer">
+
+<strong>B32F195E5BB768BC236DFF907EBEFF0C.jpg</strong> (83.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-3 17:13 上传
+
+*****
+
+####  廖化  
+##### 17288#       发表于 2025-8-3 17:11
+
+我得赶紧推图了，还卡在蝙蝠王那里<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17289#       发表于 2025-8-3 17:11
+
+哈哈哈哈哈哈，呼符抽到所长了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
