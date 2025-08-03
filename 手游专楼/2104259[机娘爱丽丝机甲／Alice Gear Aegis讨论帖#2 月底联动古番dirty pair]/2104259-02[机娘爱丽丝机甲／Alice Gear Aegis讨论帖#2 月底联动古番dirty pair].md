@@ -299,3 +299,11 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 说起来中间那个演出没看懂 监护人大婶是被sin带走了还是突发恶疾暴毙了</blockquote>
 你游剧情特有的模棱两可，怎么解释都行
 
+
+*****
+
+####  madcow  
+##### 1581#       发表于 2025-8-3 10:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">氪金换了FA寡妇然后单抽出宁里了，虽然是AN的，好耶
+
