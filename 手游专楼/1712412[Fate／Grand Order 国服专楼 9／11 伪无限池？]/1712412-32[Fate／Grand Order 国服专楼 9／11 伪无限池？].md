@@ -829,3 +829,28 @@ new外星大姐姐
 
 这下9周年也玩得轻哼了起来
 
+
+*****
+
+####  shimotsuki14  
+##### 47288#       发表于 2025-8-3 17:26
+
+看了新的五星
+fgo还能续一年。
+这一年我要慢慢回归打活动了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  marxel  
+##### 47289#       发表于 2025-8-3 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207774&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-8-3 16:55</a>
+
+明年送1000石，但是我感觉yls既然有魄力送1000，
+
+那就说明他们自己内部有把握后面至少出三张认为玩家会必抽 ...</blockquote>
+没关系，一年千里眼根本不慌<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
