@@ -588,3 +588,29 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 手办捏不好的话，还不如锦织敦史把原图补成全身，出挂画或者海报。
 
+
+*****
+
+####  wfhtony  
+##### 7137#       发表于 2025-8-3 20:57
+
+<img src="https://img.stage1st.com/forum/202508/03/205728fv3wregslrvwea47.png" referrerpolicy="no-referrer">
+
+<strong>1112.png</strong> (434.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 20:57 上传
+
+元・石原D今天也來啦。
+
+
+*****
+
+####  御坂MKII  
+##### 7138#       发表于 2025-8-3 21:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">牢秀 你快回来
+
+—— 来自 Xiaomi 24072PX77C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
