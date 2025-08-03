@@ -5445,3 +5445,19 @@ NS版不知道为啥发行不把新补丁打上去，搞不懂
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次忘了就复活了
 
+
+*****
+
+####  mahoraga  
+##### 317#       发表于 2025-8-4 00:35
+
+多久过去了，我以为作者跑路了
+
+
+*****
+
+####  洛亚替身  
+##### 318#       发表于 2025-8-4 00:43
+
+还在更新吗？之前那个大版本我以为是最后的了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
