@@ -1691,3 +1691,48 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 所以，强吗？不会又是和我蕾那样花里胡哨结果不如人家一拳的花瓶吧？</blockquote>
 我看群友说目前来看机制有点像学姐，等实测，我感觉绝对是力大砖飞的强角，地球大总统怎么可能弱啦<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17303#       发表于 2025-8-3 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">1200石2宝 嘻嘻
+
+*****
+
+####  alucardcz  
+##### 17304#       发表于 2025-8-3 18:00
+
+技能太复杂了看不懂
+
+这是要代宝石启动 先开3再开2？
+
+*****
+
+####  都谷捻柏  
+##### 17305#       发表于 2025-8-3 18:01
+
+强化本有两个五星术，拜托了，给玉藻前来个群充呀
+
+*****
+
+####  GameTheory  
+##### 17306#       发表于 2025-8-3 18:02
+
+说来beast这种都凑不齐6个从者...
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17307#       发表于 2025-8-3 18:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">700石2宝+1大象，还行吧，剩下来的石头等泳装了（想要飞嫂
+
+*****
+
+####  密特里奈斯  
+##### 17308#       发表于 2025-8-3 18:03
+
+还挺欧的，不过好像没高宝必要？强度看起来很一般啊
+
