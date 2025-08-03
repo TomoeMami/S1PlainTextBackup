@@ -2271,3 +2271,39 @@ ex不像色卡这些有buff，没啥用吧
 
 所长是三套模组两套宝具三套语音的最高规格啊，不愧是十周年从者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 17361#       发表于 2025-8-3 22:51
+
+【双所长青子六宝具六不换-哔哩哔哩】 https://b23.tv/pBH4Xt3
+为什么非要完爆呢，不能一起上吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 17362#       发表于 2025-8-3 22:52
+
+5宝了，将送的全部吐出来了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 17363#       发表于 2025-8-3 22:57
+
+开服1300石头剩下200个，泳装一期没兴趣，坐等二期优势在我.jpg
+
+不过说是十周年其实高潮部分还是那个1000石头VCR部分，上游戏就点三下福袋然后点点点所长池子完事了，索然无味<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17364#       发表于 2025-8-3 23:28
+
+<blockquote>khxooo 发表于 2025-8-3 22:52
+5宝了，将送的全部吐出来了，就算所长不强，起码也是等了很久了。反正对lip没兴趣，就这样吧。 ...</blockquote>
+欧 羡慕  为什么楼友都能轻松五宝
+
