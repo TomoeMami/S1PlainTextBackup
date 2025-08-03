@@ -1864,3 +1864,36 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 奏4怎么解锁？我奏章都没打，从推荐点进去是奏3，把奏3打了就能进了么
 
+
+*****
+
+####  qixinno2  
+##### 17321#       发表于 2025-8-3 18:58
+
+<blockquote>alucardcz 发表于 2025-8-3 18:46
+太欧了 整整比萌新节约了500石</blockquote>
+但我前面池子扔了不止500还没出货 不如狗萌新
+
+*****
+
+####  angelooo  
+##### 17322#       发表于 2025-8-3 19:01
+
+混账，你们全在豹跳，就我在那里考虑所长这两套宝具设计这么炸裂，后面泳装哪个五星要遭重
+
+lip的看着还行，剩下的如果也还过得去的话lxg难不成要爆种了？
+
+*****
+
+####  kyonkoism  
+##### 17323#       发表于 2025-8-3 19:04
+
+很简单，五星来个拐就行了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 17324#       发表于 2025-8-3 19:04
+
+407发解决战斗，前面240多发1宝，还歪了个欧罗巴，然后又抽了100多发才2宝，最后40发突然发力连出了3个，太哈人了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
