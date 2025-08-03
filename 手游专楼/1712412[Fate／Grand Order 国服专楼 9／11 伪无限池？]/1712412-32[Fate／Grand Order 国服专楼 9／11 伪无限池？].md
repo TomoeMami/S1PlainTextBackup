@@ -796,3 +796,15 @@ new外星大姐姐
 然后白天刷本发现好友的没有好感 ...</blockquote>
 之前不是一直都说了，水艾蕾有纯爱防牛锁啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47285#       发表于 2025-8-3 08:33
+
+笑死，我已经连续三张五星超过700石了，再上一个400，也高于期望，
+
+再再上一个吃井
+
+守恒个毛线
+

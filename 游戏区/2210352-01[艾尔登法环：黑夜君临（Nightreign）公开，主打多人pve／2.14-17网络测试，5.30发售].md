@@ -13992,3 +13992,17 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ohi.02  
+##### 1341#       发表于 2025-8-3 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68204880&amp;ptid=2210352" target="_blank">zhzij111 发表于 2025-8-3 00:32</a>
+这征兆跟朋友打了一把就养胃了，像赶工赶出来的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+系列老传统了，总会出一个用剑蓄力发波才能打的BOSS
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
