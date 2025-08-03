@@ -54,3 +54,25 @@ GO1这未免有点过于小人得志了。
 
 自己带自己节奏，唉
 
+
+*****
+
+####  hjknight  
+##### 542#       发表于 2025-8-3 11:58
+
+笑死个人，分离器凯恩被小路比利打下去；Nemo比利被拉基亚双叶荧打下去；小孩比利被胖狗牙刀打下去；胖狗牙刀被ET北斗丸打下去。
+这到底哪个是最强角色啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KYO(T)  
+##### 543#       发表于 2025-8-3 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68206274&amp;ptid=2085684" target="_blank">hjknight 发表于 2025-8-3 11:58</a>
+
+笑死个人，分离器凯恩被小路比利打下去；Nemo比利被拉基亚双叶荧打下去；小孩比利被胖狗牙刀打下去；胖狗牙 ...</blockquote>
+说明目前是对策＞性能的阶段，或者说哪怕性能小劣，也能靠对策逆转
+
+小路胖狗金豆腐都有让人眼前一亮的新对策，很明显有下功夫研究
+
