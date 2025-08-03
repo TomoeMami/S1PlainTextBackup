@@ -359,3 +359,14 @@ CGディレクター：大曽根悠介
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68197560&amp;ptid=2250190" target="_blank">新HGCG 发表于 2025-8-1 17:45</a></blockquote>
 数码宝贝电视动画上一个番茄头是新海春，声优内山夕实。
 
+
+*****
+
+####  liekong  
+##### 94#       发表于 2025-8-3 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68198850&amp;ptid=2250190" target="_blank">cmyk1234 发表于 2025-8-1 21:41</a>
+
+数码宝贝电视动画上一个番茄头是新海春，声优内山夕实。</blockquote>
+春是番茄但不是番茄头（
+
