@@ -1524,3 +1524,13 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 报丧尊者的池子保底数能留到下一个8月15日活动吗，或者不共通的?
 
+
+*****
+
+####  okey3m  
+##### 2397#       发表于 2025-8-3 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207386&amp;ptid=2071758" target="_blank">Lds19 发表于 2025-8-3 15:47</a>
+报丧尊者的池子保底数能留到下一个8月15日活动吗，或者不共通的?</blockquote>
+你说的是交换Pt吗？每个池子都不共通的
+

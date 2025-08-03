@@ -1736,3 +1736,94 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 还挺欧的，不过好像没高宝必要？强度看起来很一般啊
 
+
+*****
+
+####  xiongxingyu  
+##### 17309#       发表于 2025-8-3 18:10
+
+<img src="https://img.stage1st.com/forum/202508/03/180904m99c0xqxqi9i3ji3.jpg" referrerpolicy="no-referrer">
+
+<strong>a62661b76896c28e8b95d0d1b649f4b9.jpg</strong> (522.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 18:09 上传
+
+发生了什么？我只不过是想把土方给补到三宝，怎么突然冒出了两匹大马<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便一提，不是rider的那个变成盘子了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  天王寺凯伊姆  
+##### 17310#       发表于 2025-8-3 18:13
+
+一宝损耗有点大，剩下的抽泳装
+
+*****
+
+####  qixinno2  
+##### 17311#       发表于 2025-8-3 18:37
+
+700石二宝 Ex自选出了个最不需要的艾蕾 跑了
+
+*****
+
+####  yyzcacxg  
+##### 17312#       发表于 2025-8-3 18:42
+
+千石二宝，中间歪了一大堆，项羽、欧罗巴、皇女、白贞、尼莫，我真是...最想要的常驻娄希是影都没有
+
+*****
+
+####  Jamaisvu  
+##### 17313#       发表于 2025-8-3 18:42
+
+灵基三的所长既是活在当下的人类又是秩序善，刷羁绊应该很快。
+
+灵基一二貌似是按2—3—1的顺序开技能然后用红红EX三张AOE指令卡清场？
+
+下回合两个杀狐一技能充能放个宝具，重置技能CD，三回合再来一套平AOE？
+
+灵基三算是个拐，群体20攻+30红放+50爆+50黄金率+30充能，不过需要礼装或队友充能开三技能。
+
+*****
+
+####  alucardcz  
+##### 17314#       发表于 2025-8-3 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208351&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-3 18:42</a>
+
+灵基三的所长既是活在当下的人类又是秩序善，刷羁绊应该很快。
+
+灵基一二貌似是按2—3—1的顺序开技能然后 ...</blockquote>
+我拿去打了纪念本。。伤害低的可怕。。。平a的伤害。。。
+
+*****
+
+####  alucardcz  
+##### 17315#       发表于 2025-8-3 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208321&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-3 18:37</a>
+
+700石二宝 Ex自选出了个最不需要的艾蕾 跑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">太欧了 整整比萌新节约了500石
+
+*****
+
+####  rooarr  
+##### 17316#       发表于 2025-8-3 18:48
+
+终于轮到我欧了一回<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
