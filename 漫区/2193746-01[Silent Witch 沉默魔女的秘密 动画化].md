@@ -117,3 +117,14 @@
 
 又是同期任职又是一个师父教的师兄师妹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  terminator1990  
+##### 114#       发表于 2025-8-4 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68205434&amp;ptid=2193746" target="_blank">新人马甲2 发表于 2025-8-3 07:50</a>
+
+花了几天看完小说，这本放在今天的日本轻小说/网文/漫画这个文坛范围是断档级别的强，光一个能把政治戏写明 ...</blockquote>
++1，第九卷对主线的最终处理，光是把宫廷内几方势力台面下的妥协与制衡玩明白就足够让读者眼前一亮了，我书读得少，上回看到这么写的还是弗·福赛斯的国际政治惊险小说
+
