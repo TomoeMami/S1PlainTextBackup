@@ -1383,3 +1383,62 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 咕哒：救世呀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 17277#       发表于 2025-8-3 16:55
+
+还想再玩10年肥狗啊，叶叔叔约好了，一休尼！
+
+<img src="https://img.stage1st.com/forum/202508/03/165427dhwlzng6wq77sp99.jpg" referrerpolicy="no-referrer">
+
+<strong>X3(}Z[678XRGU5S`F_SH]G2.jpg</strong> (55.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 16:54 上传
+
+*****
+
+####  cckuku  
+##### 17278#       发表于 2025-8-3 16:55
+
+那它8月6日是不是要复刻所有ex卡池？？？包括两个兽？
+
+*****
+
+####  都谷捻柏  
+##### 17279#       发表于 2025-8-3 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207771&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-8-3 16:55</a>
+
+那它8月6日是不是要复刻所有ex卡池？？？包括两个兽？</blockquote>
+根据经验是的，ex全复刻，又是一长排卡池。
+
+*****
+
+####  密特里奈斯  
+##### 17280#       发表于 2025-8-3 16:59
+
+石头送的多+所长够牌面，这次10周年可以打满分
+
+希望强化本也够好
+
+
+*****
+
+####  壳壳牛  
+##### 17281#       发表于 2025-8-3 17:03
+
+艹又混杂
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  超阳电子炮  
+##### 17282#       发表于 2025-8-3 17:04
+
+我承认之前我的声音太大了，这就推图
+
