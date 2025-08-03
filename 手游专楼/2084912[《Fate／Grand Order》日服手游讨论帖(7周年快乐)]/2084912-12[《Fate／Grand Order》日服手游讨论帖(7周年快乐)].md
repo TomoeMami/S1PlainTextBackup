@@ -2071,3 +2071,40 @@ ex不像色卡这些有buff，没啥用吧
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  壳壳牛  
+##### 17343#       发表于 2025-8-3 20:30
+
+同志们大成功玄学真有用<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/26/bf6046355d02130733b6890c7df31bf2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 17344#       发表于 2025-8-3 20:34
+
+<blockquote>壳壳牛 发表于 2025-8-3 20:30
+同志们大成功玄学真有用
+
+—— 来自 鹅球 v3.5.99</blockquote>
+欧狗滚阿 不要勾引非洲人去抽卡了
+
+*****
+
+####  blue321  
+##### 17345#       发表于 2025-8-3 20:35
+
+这次真的欧，210多抽2社长1源为潮1阿纳斯
+
+送那么多顺便氪了一点抽两命定NEW了山老和卡莲，满足了
+
+*****
+
+####  希望之花  
+##### 17346#       发表于 2025-8-3 20:42
+
+第二宝吃井，今年吃了两个井，我收回原来的话，叶良树飞🐴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

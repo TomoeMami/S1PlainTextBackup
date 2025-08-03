@@ -415,3 +415,164 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 永远跟随765プロダクション<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 7135#       发表于 2025-8-3 20:38
+
+ 本帖最后由 wfhtony 于 2025-8-3 20:41 编辑 
+
+765PRO ALLSTARS LIVE ～NEVER END IDOL!!!!!!!!!!!!!～ Day 2 Setlist (於17:28(UTC+9)開演): （＊注意：Day 2公演中沒有「業務聯絡」環節。）
+
+[開演前注意事項 // 高木順二朗（CV.大塚芳忠）、音無小鳥（CV.滝田樹里）]
+
+・Overture + 1st block<blockquote>[Overture]（＊以《READY!!》和《M@STERPIECE》爲基底的Arrange+串燒）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/190c3c204229ed806cf941752ff06b4f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/54ac3b2545caecb04000fd29ac089ebb.jpg" referrerpolicy="no-referrer">
+
+01. THE IDOLM@STER // THE IDOLM@STER 765PRO ALLSTARS+（＊全員）
+
+→ 開場MC（MC①）
+
+02. GO MY WAY!! // 若林直美、浅倉杏美、中村繪里子、仁後真耶子、下田麻美（＊投票曲）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/5169156995e3dbd6502c25137c7f9af8.jpg" referrerpolicy="no-referrer">
+
+--Tr.02 途中免費部分結束--
+
+03. relations // 長谷川明子、今井麻美（＊投票曲）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/0989f33f0937784863fb58168a6e6877.jpg" referrerpolicy="no-referrer">
+
+04. MOONY // 下田麻美、釘宮理恵、若林直美、たかはし智秋
+<img src="https://tc2.wfhtony.space/images/2025/08/03/fcf7d16a4c2d0b6fc2892962b70cb281.jpg" referrerpolicy="no-referrer">
+
+（↑ 加上律子的完整體「龍宮小町」，以及作爲舞臺裝置的P。）
+
+→ MC②</blockquote>
+・2nd block + 3rd block<blockquote>05. 私はアイドル♥ // 平田宏美、釘宮理恵、滝田樹里（＊投票曲）
+
+06. LOST // たかはし智秋、原 由実、沼倉愛美（＊投票曲）
+
+07. YES♪ // 中村繪里子、平田宏美
+<img src="https://tc2.wfhtony.space/images/2025/08/03/9d98a7d292ab77334186f4be95802f93.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/3d4c069f1939c9b2a20f4d88b068e30e.jpg" referrerpolicy="no-referrer">
+
+08. チクタク // 浅倉杏美、仁後真耶子、長谷川明子
+<img src="https://tc2.wfhtony.space/images/2025/08/03/48efe2eeecadec3853d644c126351651.jpg" referrerpolicy="no-referrer">
+
+→ MC③
+
+09. Little Match Girl // 釘宮理恵、今井麻美、浅倉杏美、原 由実
+
+10. shiny smile // 若林直美、中村繪里子、沼倉愛美、たかはし智秋
+
+11. エージェント夜を往く // 今井麻美、平田宏美、下田麻美、仁後真耶子
+
+（↑ 安定的とかち）
+
+12. REALIZE!!! // 原 由実、長谷川明子、沼倉愛美
+
+（↑ 19:06:01 [UTC+9]）
+
+→ MC④</blockquote>
+・4th block (NEVER END IDOL SP MEDLEY)<blockquote>（＊本block除最終曲之外，所有曲目都是 Short Version / Game Version。）
+
+13. READY!! &amp; CHANGE!!!! // THE IDOLM@STER 765PRO ALLSTARS（＊串燒曲）
+
+14. 乙女よ大志を抱け！！ // 中村繪里子
+
+15. キラメキラリ // 仁後真耶子
+
+16. きゅんっ！ヴァンパイアガール // 浅倉杏美、釘宮理恵
+
+17. I Do // たかはし智秋
+
+18. YOU往MY進！ // 下田麻美
+<img src="https://tc2.wfhtony.space/images/2025/08/03/b321761aa4ae14adfe7915bd37ef9b6c.jpg" referrerpolicy="no-referrer">
+
+20. いっぱいいっぱい // 若林直美
+
+21. 翼 // 滝田樹里
+
+22. ザ・ライブ革命でSHOW! // たかはし智秋、浅倉杏美、釘宮理恵、仁後真耶子、沼倉愛美、中村繪里子
+
+→ MC⑤（中場休息互動，BGM《TOWN》）
+
+23. Day of the future // 長谷川明子
+
+24. プルメリアの花 // 浅倉杏美（＊爛鐵曲）
+
+（↑ azumin的淚腺沒撐住...）
+
+25. Good-Byes // 原 由実、下田麻美、仁後真耶子
+
+26. MUSIC♪ // 滝田樹里、沼倉愛美、若林直美、たかはし智秋、平田宏美
+
+27. DIAMOND // 釘宮理恵
+
+28. tear // 平田宏美
+
+29. Next Life // 沼倉愛美
+
+30. 風花 // 原 由実
+
+31. 蒼い鳥 // 今井麻美（＊街機/X360版 Game Version [High Tempo ver.]）
+
+32. GR@TITUDE // 長谷川明子、今井麻美、中村繪里子
+
+33. i // THE IDOLM@STER 765PRO ALLSTARS+（＊全員）
+
+→ 安可前MC
+
+34. カーテンコール // THE IDOLM@STER 765PRO ALLSTARS+（＊全員）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/a8794140d77b9b5064bf59890e4e7df1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/59433b56b7e4a5a7b710dcfa3a0ea31f.jpg" referrerpolicy="no-referrer"></blockquote>
+・安可<blockquote>嗯？居然不是社長？！（＊你現在是第一天上任的P。）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/ea861d3610b3c8b0bc7ccc178d6a25df.jpg" referrerpolicy="no-referrer">
+
+初代遊戲（街機、X360、PSP）必定獲得的第一個道具...「公主皇冠（お姫様ティアラ）」
+
+35. Destiny // THE IDOLM@STER 765PRO ALLSTARS
+
+（果然。）
+
+→ 安可MC
+<img src="https://tc2.wfhtony.space/images/2025/08/03/b07f49085c44500b038780dcc7e006df.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/49a355b133bc6c0bc169bdbd01830d0f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/11d8a1a99843378d5de6a004b979a5d7.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/7c5c7ff1d774886597029bb1b008cb88.jpg" referrerpolicy="no-referrer">
+
+36. M@STERPIECE // THE IDOLM@STER 765PRO ALLSTARS+（＊全員）
+<img src="https://tc2.wfhtony.space/images/2025/08/03/cc7cbb4c39a60e53f61a473f2308adc9.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/235af5354f1f6812cc40f68b043840e1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/b98a876bdfc3cb20bbef0cecc7779cd3.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/67219c43f1801e073a171112f9006f2a.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/d68f2416f725df8bbe0a2b27082f3e85.jpg" referrerpolicy="no-referrer">
+
+=====
+<img src="https://tc2.wfhtony.space/images/2025/08/03/9935d8f31afc5ec166a1a0791f658fd3.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/8cb1e624e82cef8d84feb93d6acc6a2f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/48fc50b150790445fc659c13e27a5d02.jpg" referrerpolicy="no-referrer">
+
+ありがとう！！！</blockquote>
+[Staff Roll]（＊BGM《まっすぐ》）<blockquote>まっすぐさん今天也上班啊(淚)
+
+<img src="https://tc2.wfhtony.space/images/2025/08/03/2607c5e9081d074e8dfc9f90d26d90fa.jpg" referrerpolicy="no-referrer">
+
+謝謝你，JUNGO。
+
+<img src="https://tc2.wfhtony.space/images/2025/08/03/9d15fb82f63442cd859c5d6017c29ff1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/f6f45d99fdc566663d71f8053dbf1a3b.jpg" referrerpolicy="no-referrer">
+
+最後的「...and you!」
+
+<img src="https://tc2.wfhtony.space/images/2025/08/03/f32b0ee36fc9bd713b73fcd0554ae1eb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/08/03/e1ac3ca1b6415dc9414ee805ccaa3ca6.jpg" referrerpolicy="no-referrer">
+
+アイマス最高！</blockquote>
+<img src="https://tc2.wfhtony.space/images/2025/08/03/da360de13590ab812f70d4daef6ba11e.jpg" referrerpolicy="no-referrer">
+
+本家20週年公演結束，お疲れ様でした。
+
+<img src="https://tc2.wfhtony.space/images/2025/08/03/16849824df0ff7c5df07550388d68854.png" referrerpolicy="no-referrer">
+
