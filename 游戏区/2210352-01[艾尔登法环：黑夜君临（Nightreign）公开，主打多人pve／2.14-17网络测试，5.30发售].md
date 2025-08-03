@@ -14075,3 +14075,15 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 这么一想黑猴好像只有一个boss设计了部位破坏？感觉就是试水，效果也不太好，不够直观，我二周目才做，试了好几次才完成
 
+
+*****
+
+####  战术核辣条  
+##### 1347#       发表于 2025-8-4 04:00
+
+ 本帖最后由 战术核辣条 于 2025-8-4 04:01 编辑 
+
+也不想想真有断尾，就凭fs这套系统的操作逻辑你能打吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就法环这个飞龙你想去打翅膀和脚都未必碰得到好吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
