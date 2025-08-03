@@ -2155,3 +2155,74 @@ ex不像色卡这些有buff，没啥用吧
 顺变问下 4星以下的卡谁有30他充？</blockquote>
 包括4星？我用的是泳装夏洛特
 
+
+*****
+
+####  alucardcz  
+##### 17352#       发表于 2025-8-3 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209113&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-3 21:07</a>
+
+徐福30单充，仅此一个，医神是群充20。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那衣服呢 衣服有30充吗。。 对了包括4星。。
+
+*****
+
+####  alucardcz  
+##### 17353#       发表于 2025-8-3 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209114&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2025-8-3 21:08</a>
+
+包括4星？我用的是泳装夏洛特</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">包括 但非洲人并没有泳装4星
+
+*****
+
+####  Jamaisvu  
+##### 17354#       发表于 2025-8-3 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209087&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-3 21:04</a>
+
+顺变问下 4星以下的卡谁有30他充？</blockquote>
+圣诞大王一技能，
+
+鬼一法眼二技能，
+
+泳装梅芙一技能（先开二技能），
+
+兰陵王二技能，
+
+堂吉诃德三技能（需要自己有30NP），
+
+美游三技能，
+
+泳装夏洛特三技能，
+
+徐福三技能。
+
+另外帕拉丁马修一阶段的二技能也有30充能，不过她cost16......
+
+*****
+
+####  alucardcz  
+##### 17355#       发表于 2025-8-3 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209167&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-3 21:15</a>
+
+圣诞大王一技能，
+
+鬼一法眼二技能，
+
+泳装梅芙一技能（先开二技能），</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">所长至少以后冲浪普通本可以单拐+一个30他充了
+
+*****
+
+####  都谷捻柏  
+##### 17356#       发表于 2025-8-3 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208861&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-3 20:22</a>
+
+测试了下 2宝  自出梅林借杀狐  第1面6w(单体) 第2面8w 第3面11w 还有2张红卡 平时的本够冲了。。。主要可 ...</blockquote>
+打人/星应该能打出很高的伤害，另外两个阵营伤害不太行的样子
+
