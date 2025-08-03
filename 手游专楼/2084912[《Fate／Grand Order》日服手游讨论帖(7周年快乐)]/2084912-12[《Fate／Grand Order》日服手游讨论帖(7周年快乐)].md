@@ -1574,3 +1574,42 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 哈哈哈哈哈哈，呼符抽到所长了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 17290#       发表于 2025-8-3 17:16
+
+完蛋500石下去啥都没有...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zechins  
+##### 17291#       发表于 2025-8-3 17:17
+
+<img src="https://img.stage1st.com/forum/202508/03/171732stn9y3ot93zk38aa.png" referrerpolicy="no-referrer">
+
+<strong>VYO_0]LO`C(Z4R68Z]7LBFK.png</strong> (95.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-3 17:17 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">fgo是一款我的问题
+
+*****
+
+####  里村紅葉  
+##### 17292#       发表于 2025-8-3 17:19
+
+真送了一井反而不知道抽什么了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17293#       发表于 2025-8-3 17:20
+
+330石头第二宝，走了走了，剩下的留给泳装了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
