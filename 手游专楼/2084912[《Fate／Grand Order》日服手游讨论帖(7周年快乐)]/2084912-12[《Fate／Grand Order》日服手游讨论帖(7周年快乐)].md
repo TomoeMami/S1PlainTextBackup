@@ -2381,3 +2381,35 @@ ex不像色卡这些有buff，没啥用吧
 
 400石头+20护符，就出了一个五星所长，理性告诉我该收手了，还剩下1200石头，看看后续强度和泳装再说吧。
 
+
+*****
+
+####  白金口袋  
+##### 17373#       发表于 2025-8-4 02:14
+
+50连6呼符1宝大总统，看漏油评价这么低还是赶紧收手等泳装吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 17374#       发表于 2025-8-4 02:25
+
+评价不低啊，我看nga已经在吹顶配通杀90++异形本，不知道该如何造本才能限制了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17375#       发表于 2025-8-4 05:04
+
+50抽1宝，21抽护符2宝，先跑路了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然没出5星礼装开图鉴
+
+*****
+
+####  森兰丸  
+##### 17376#       发表于 2025-8-4 06:47
+
+解锁成就一边住院一边抽卡……900多石头和50多张护符才3宝……6了
+
+还剩2000多石头备战泳池了
+
