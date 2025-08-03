@@ -307,3 +307,14 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">氪金换了FA寡妇然后单抽出宁里了，虽然是AN的，好耶
 
+
+*****
+
+####  Picavian  
+##### 1582#       发表于 2025-8-3 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68205194&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-8-3 02:20</a>
+
+说起来中间那个演出没看懂 监护人大婶是被sin带走了还是突发恶疾暴毙了</blockquote>
+总之本体（眼镜）留下了，后来改成了现在宁里的防紫外线镜
+
