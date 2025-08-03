@@ -194,3 +194,16 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  创始’’’天翔  
+##### 152#       发表于 2025-8-3 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68200052&amp;ptid=2250267" target="_blank">仟音一心 发表于 2025-8-2 08:09</a>
+
+歌查德是公认的烂了但是抛弃脑子看还有乐子。
+
+加布你要说烂到底可能目前还不至于但是太特么水了，磨磨唧 ...</blockquote>
+加布看下集还得继续生真跟他男友那套拉扯，都三回了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
