@@ -1641,3 +1641,12 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 编曲：長谷川大介（SUPA LOVE）</blockquote>
        [https://www.bilibili.com/video/BV1Ac8yzxERF/](https://www.bilibili.com/video/BV1Ac8yzxERF/)
 
+
+*****
+
+####  仟音一心  
+##### 41139#       发表于 2025-8-3 23:10
+
+<img src="https://p.sda1.dev/26/8922cf9ddf2f05329409d1777d4a77f0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/7df31cfe3f835333680334d49cf6385f/image.jpg" referrerpolicy="no-referrer">
+
