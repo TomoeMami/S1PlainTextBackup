@@ -1071,3 +1071,14 @@ Mr.エレガンス：小西克幸
 
 啊，什么时候有BD
 
+
+*****
+
+####  AraTurambar  
+##### 108#       发表于 2025-8-4 05:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207176&amp;ptid=2199597" target="_blank">manyin1 发表于 2025-8-3 15:01</a>
+
+会出BD吗</blockquote>
+36分钟咋出BD咧……
+
