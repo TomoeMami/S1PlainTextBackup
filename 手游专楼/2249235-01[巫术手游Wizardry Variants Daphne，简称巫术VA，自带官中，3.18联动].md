@@ -160,3 +160,15 @@ SR也有一些强角色，Elise的中立增伤，财迷的低消耗僧侣咒文+
 
 草竟然有初始号 但一想这游戏从头开始玩一遍剧情又不是其他手游纯点点点 是真的玩一遍单机 还是算了吧
 
+
+*****
+
+####  藤钢剑姬  
+##### 481#       发表于 2025-8-3 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68194836&amp;ptid=2249235" target="_blank">laputah 发表于 2025-8-1 10:22</a>
+草竟然有初始号 但一想这游戏从头开始玩一遍剧情又不是其他手游纯点点点 是真的玩一遍单机 还是算了吧 ...</blockquote>
+初始号直接抽武士可以杀穿第一章吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
