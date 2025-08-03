@@ -207,3 +207,19 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 加布你要说烂到底可能目前还不至于但是太特么水了，磨磨唧 ...</blockquote>
 加布看下集还得继续生真跟他男友那套拉扯，都三回了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 153#       发表于 2025-8-3 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68199768&amp;ptid=2250267" target="_blank">chdhdhd 发表于 2025-8-2 01:55</a>
+高桥悠也？悲观得不行
+
+除了ea全雷作记录，ea也不像是刻意写好的
+
+而且还是可恨的中后期垮的类型</blockquote>
+加布没看，不评论（也不会看了）歌的话我是歌孝子<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
