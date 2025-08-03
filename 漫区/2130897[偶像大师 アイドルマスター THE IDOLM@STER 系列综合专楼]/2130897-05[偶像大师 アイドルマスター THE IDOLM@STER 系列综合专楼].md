@@ -1063,3 +1063,11 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 今天原版relations的刺激太强烈了。无数人的愿望在今夜成真。
 
+
+*****
+
+####  御坂MKII  
+##### 7141#       发表于 2025-8-3 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">还要加班 没时间写感想，因为票是不同的号的中选，所以很成功的两天 700level，给万代的最速凯子抽选跪了
+
