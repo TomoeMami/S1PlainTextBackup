@@ -104,3 +104,16 @@
 
 这个凯西的人设感觉很眼熟啊。
 
+
+*****
+
+####  cxj649  
+##### 113#       发表于 2025-8-4 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68094964&amp;ptid=2193746" target="_blank">花達香奈 发表于 2025-7-14 10:29</a>
+
+保护王子真不是鬼畜眼镜为了迫使社恐松鼠交朋友/开后宫的借口？难道王子身边的都是除开five就剩内鬼了？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了外传，还真是为了迫使社恐松鼠交朋友
+
+又是同期任职又是一个师父教的师兄师妹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

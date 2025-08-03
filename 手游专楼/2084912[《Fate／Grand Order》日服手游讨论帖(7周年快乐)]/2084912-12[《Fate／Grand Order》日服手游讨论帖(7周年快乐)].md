@@ -2307,3 +2307,40 @@ ex不像色卡这些有buff，没啥用吧
 5宝了，将送的全部吐出来了，就算所长不强，起码也是等了很久了。反正对lip没兴趣，就这样吧。 ...</blockquote>
 欧 羡慕  为什么楼友都能轻松五宝
 
+
+*****
+
+####  khxooo  
+##### 17365#       发表于 2025-8-3 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68209966&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-3 23:28</a>
+
+欧 羡慕  为什么楼友都能轻松五宝</blockquote>
+也不算太欧吧，1300多5宝，也就比标准概率好一点<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17366#       发表于 2025-8-4 00:00
+
+<blockquote>khxooo 发表于 2025-8-3 23:52
+也不算太欧吧，1300多5宝，也就比标准概率好一点</blockquote>
+260石一个五星还想怎样
+
+*****
+
+####  alucardcz  
+##### 17367#       发表于 2025-8-4 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210066&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-3 23:52</a>
+
+也不算太欧吧，1300多5宝，也就比标准概率好一点</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">1500+30护符 2宝的看着你 你别逼萌新！
+
+*****
+
+####  qixinno2  
+##### 17368#       发表于 2025-8-4 00:24
+
+没忍住扔了四发十连 三宝了 溜了 楼友太害人
+
