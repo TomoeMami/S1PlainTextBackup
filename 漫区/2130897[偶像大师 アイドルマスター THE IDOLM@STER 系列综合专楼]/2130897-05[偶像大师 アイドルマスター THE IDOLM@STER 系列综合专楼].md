@@ -393,3 +393,25 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 [開演前注 ...</blockquote>
 瞟了一眼，voyager是6个人你漏了个原……
 
+
+*****
+
+####  wfhtony  
+##### 7133#       发表于 2025-8-3 20:05
+
+ミンゴス應該還是差點要哭了，頭兩句把「マスター」說成了「モンスター」...
+
+「アイドルマスター」→「アイドルモンスター」
+
+「M@STER VERSION」→「MONSTER VERSION」
+
+嘛，豪哥的曲子...確實可以稱得上「MONSTER VERSION」就是了w
+
+
+*****
+
+####  natmk  
+##### 7134#       发表于 2025-8-3 20:13
+
+永远跟随765プロダクション<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
