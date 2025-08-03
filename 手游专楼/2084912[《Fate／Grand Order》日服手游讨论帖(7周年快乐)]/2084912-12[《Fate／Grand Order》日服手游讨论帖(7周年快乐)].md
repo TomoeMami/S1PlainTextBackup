@@ -1827,3 +1827,40 @@ BEAST都能戴冠了，剧情里的战力还能再叠盒子吗</blockquote>
 
 终于轮到我欧了一回<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17317#       发表于 2025-8-3 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208394&amp;ptid=2084912" target="_blank">rooarr 发表于 2025-8-3 18:48</a>
+
+终于轮到我欧了一回不到5单抽满5宝附带一个阿周那</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油感觉已经很多年没见了 上来就欧 羡慕
+
+*****
+
+####  rooarr  
+##### 17318#       发表于 2025-8-3 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208400&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-3 18:49</a>
+漏油感觉已经很多年没见了 上来就欧 羡慕</blockquote>
+不欧哪敢露面，天天被萌新豹跳<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17319#       发表于 2025-8-3 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68208408&amp;ptid=2084912" target="_blank">rooarr 发表于 2025-8-3 18:51</a>
+
+不欧哪敢露面，天天被萌新豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">又尬黑萌新 萌新那么非
+
+*****
+
+####  modkingr  
+##### 17320#       发表于 2025-8-3 18:56
+
+奏4怎么解锁？我奏章都没打，从推荐点进去是奏3，把奏3打了就能进了么
+
