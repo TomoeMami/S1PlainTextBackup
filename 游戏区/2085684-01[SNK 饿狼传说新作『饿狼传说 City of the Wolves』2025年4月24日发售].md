@@ -84,3 +84,25 @@ GO1这未免有点过于小人得志了。
 
 都在管上看的？鱼上已经没人播饿狼了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hjknight  
+##### 545#       发表于 2025-8-3 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68206355&amp;ptid=2085684" target="_blank">MRSA 发表于 2025-8-3 12:14</a>
+都在管上看的？鱼上已经没人播饿狼了</blockquote>
+海鲜台上一直有英文源看。我之前还切着看侍魂晓，打得比饿狼好看<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hjknight  
+##### 546#       发表于 2025-8-3 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68206303&amp;ptid=2085684" target="_blank">KYO(T) 发表于 2025-8-3 12:05</a>
+说明目前是对策＞性能的阶段，或者说哪怕性能小劣，也能靠对策逆转
+
+小路胖狗金豆腐都有让人眼前一亮的新 ...</blockquote>
+其实很难说目前卡恩的性能就一定真正碾压其他赖角。
+本质现在这游戏还是一个卡比丸压得其他角色抬不起头的游戏。虽然两兄妹也不错，但都不像三赖有一个非常突出还能抢立回绝对先机的优点。
+
