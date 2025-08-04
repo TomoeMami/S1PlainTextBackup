@@ -157,3 +157,13 @@
 这种动画一般来说都相当于原作广告吧，但是这种便宜动画真的能起到推广原作的效果么。我原作都看完了，老实 ...</blockquote>
 这话说的，没这个广告你会去看原作？
 
+
+*****
+
+####  ArthurDent  
+##### 118#       发表于 2025-8-4 09:27
+
+你还别说，动画楼还真不一定赶得上原作楼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
