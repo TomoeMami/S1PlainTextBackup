@@ -1079,3 +1079,13 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 真好啊，765
 
+
+*****
+
+####  Ask_10A  
+##### 7143#       发表于 2025-8-4 19:41
+
+完美live<img src="https://p.sda1.dev/26/7be34eb6325d3f353d3b948394719428/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -2874,3 +2874,38 @@ iphone xr 單是讀取主介面已經不行了...
 又有一个豹跳满宝的 萌新快吸他们欧气</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们非萌平均800石一宝 怎么敢碰瓷欧皇
 
+
+*****
+
+####  rooarr  
+##### 17417#       发表于 2025-8-4 19:35
+
+还得是这个豹豹楼好，看到各种充满希望的抽卡记录<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17418#       发表于 2025-8-4 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214963&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 19:29</a>
+
+我们非萌平均800石一宝 怎么敢碰瓷欧皇</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你算个屁非 除了所长也没见哪个池子制裁你啊
+
+*****
+
+####  alucardcz  
+##### 17419#       发表于 2025-8-4 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215001&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 19:37</a>
+
+你算个屁非 除了所长也没见哪个池子制裁你啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是幻觉 这才是现实
+
+*****
+
+####  reekilynn  
+##### 17420#       发表于 2025-8-4 19:40
+
+话说主线任务自由quest那个330还有哪可以刷的？我把奏章4的free清了也只有328
+
