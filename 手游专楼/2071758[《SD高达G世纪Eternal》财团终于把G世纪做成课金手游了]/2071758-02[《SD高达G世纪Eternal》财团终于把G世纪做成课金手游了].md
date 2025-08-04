@@ -1644,3 +1644,18 @@ map是下个月的活动吧？
 
 SD高达传说周五要开了，又是存钻的一期活动<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 2408#       发表于 2025-8-4 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213491&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-8-4 14:55</a>
+
+9月前再加一个强敌活动倒是合理，填充一下时间，希望到时候能送点z标签的好机体。
+
+不过强敌来袭不送驾驶 ...</blockquote>
+最早的gqx就有驾驶吧，倒也不是完全不可能送
+
+z永恒缺的感觉是双支援机师，但是真放支援机打起来大概率又不够输出……除非两台Z高达的？
+
