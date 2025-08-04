@@ -1674,3 +1674,23 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
        [https://www.bilibili.com/video/BV1sVhLzmEyn](https://www.bilibili.com/video/BV1sVhLzmEyn)            &lt;——————哔哩哔哩搬运
 
+
+*****
+
+####  堀内爱里衣  
+##### 41141#       发表于 2025-8-4 12:57
+
+       <strong>实探“沪版秋叶原”！上海游戏产业的青春密码【上海人民广播电台×鹰角网络】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/04/125747t5q3q6lrp83fclzq.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-04_12-49-13.jpg</strong> (911.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 12:57 上传
+
+上海人民广播电台融媒体“话匣子”对话游戏企业鹰角网络</blockquote>  
+
+       [https://www.bilibili.com/video/BV1oetMzuECV](https://www.bilibili.com/video/BV1oetMzuECV)
+

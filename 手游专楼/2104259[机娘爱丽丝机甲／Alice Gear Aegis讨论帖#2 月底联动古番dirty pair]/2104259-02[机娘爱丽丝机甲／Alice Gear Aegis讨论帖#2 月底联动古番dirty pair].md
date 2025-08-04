@@ -346,3 +346,16 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1586#       发表于 2025-8-4 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212287&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-8-4 11:57</a>
+
+卡加载就是网不行，换个点
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">随便试了几个其他角色能看，就宁里的点进去转圈圈，看看等下的更新里有没有提好了（
+
