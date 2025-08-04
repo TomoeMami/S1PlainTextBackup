@@ -4910,3 +4910,17 @@ LOLのポパポ。パポ是普通啦。
 
 高飞的反应是第一次知道
 
+
+*****
+
+####  sino__unnko3  
+##### 19311#       发表于 2025-8-4 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213674&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-8-4 15:24</a>
+抽过烟绷不住了
+
+高飞的反应是第一次知道</blockquote>
+以前提起香烟的时候说讨厌烟味，看上次那个推广直播也不像能抽很多的，吧
+
+这次你咩说的是抽过啥烟来着？那段TTS文本没做区别
+
