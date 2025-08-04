@@ -238,3 +238,18 @@ et厉害呀<img src="https://static.stage1st.com/image/smiley/face2017/177.png" 
 可以肯定的是C罗，牙刀兄妹和洛克应该是第一梯队了 ...</blockquote>
 肯感觉不太行，大连段灌伤能力一般，拳脚也一般 t2角的样子
 
+
+*****
+
+####  KYO(T)  
+##### 559#       发表于 2025-8-4 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211144&amp;ptid=2085684" target="_blank">魔王候补77号 发表于 2025-8-4 09:39</a>
+
+分离器连续两次没有能进入决赛了
+
+ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也未见得比得上小 ...</blockquote>
+上次比赛8强里ET就是最菜的那个，这次进步太明显了
+
+可见这段时间是没少下功夫
+
