@@ -1587,3 +1587,16 @@ AOZ前期的几台主要机体是不是都已经在卡池里了？
 
 从直播来看，SD高达外传后面估摸着是MAP活动
 
+
+*****
+
+####  行政裁定书  
+##### 2403#       发表于 2025-8-4 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211450&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-8-4 10:25</a>
+
+从直播来看，SD高达外传后面估摸着是MAP活动</blockquote>
+map是下个月的活动吧？
+
+这个月应该不会只有一个sd高达外传活动吧？
+
