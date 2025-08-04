@@ -2445,3 +2445,45 @@ ex不像色卡这些有buff，没啥用吧
 还剩600石 好想满宝所长 但太穷了 泳装怕出什么强力大拐到时不抽又要苦B一整年 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">太欧了 600石居然能想这么多事情 可怕！
 
+
+*****
+
+####  qixinno2  
+##### 17381#       发表于 2025-8-4 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210991&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 09:13</a>
+
+太欧了 600石居然能想这么多事情 可怕！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人就不能有梦想么
+
+*****
+
+####  琴酒  
+##### 17382#       发表于 2025-8-4 09:51
+
+护符+石头混合99抽 满宝
+
+今年运气都用掉了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17383#       发表于 2025-8-4 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211220&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-4 09:51</a>
+
+护符+石头混合99抽 满宝
+
+今年运气都用掉了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕 把你的欧气分我点
+
+*****
+
+####  alucardcz  
+##### 17384#       发表于 2025-8-4 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211122&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 09:35</a>
+
+非洲人就不能有梦想么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">非萌从来就没有梦想 刚刚100石丢进去依然无事发生
+
