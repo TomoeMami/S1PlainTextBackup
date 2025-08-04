@@ -1600,3 +1600,16 @@ map是下个月的活动吧？
 
 这个月应该不会只有一个sd高达外传活动吧？
 
+
+*****
+
+####  rockroxas  
+##### 2404#       发表于 2025-8-4 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211041&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-8-4 09:20</a>
+
+这个月只有一个sd高达外传的活动了？
+
+会有强敌来袭之类的活动吗？</blockquote>
+提过八月下有强敌并且实装新的难度
+
