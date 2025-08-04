@@ -211,3 +211,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">我说不出狗Q好看这番话，至少我无法与跨种族男同三角恋和解……不过狗Q比今年有意思多了，目前来看
 
+
+*****
+
+####  pokemon最爱  
+##### 1208#       发表于 2025-8-4 18:29
+
+汪Q猫组塑造不错，悟彩恋爱线收的也还行，小麦可爱，主线取巧回避了问题算是没炸大雷，日常回也能打，在我这里是算得上佳作的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

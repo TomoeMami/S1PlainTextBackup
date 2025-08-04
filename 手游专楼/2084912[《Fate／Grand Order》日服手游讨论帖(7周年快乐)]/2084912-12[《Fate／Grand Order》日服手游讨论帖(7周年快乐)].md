@@ -2757,3 +2757,42 @@ iphone xr 單是讀取主介面已經不行了...
 
 村正这个宝具本的意义是？
 
+
+*****
+
+####  alucardcz  
+##### 17405#       发表于 2025-8-4 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214316&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-8-4 17:20</a>
+
+村正这个宝具本的意义是？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">占个位置
+
+*****
+
+####  blue321  
+##### 17406#       发表于 2025-8-4 18:17
+
+刚才连续狗粮大成功就上头去抽卡，然后多抽了200抽出了2宝社长+1宝项羽
+总计400抽1200石4宝感觉还可以
+
+但是新问题来了，还有800石想着要不要不等泳装冲人生第一个5宝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  千叶铁矢  
+##### 17407#       发表于 2025-8-4 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213934&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-4 16:10</a>
+一期给你来个天人特攻的狂光炮你抽不抽</blockquote>
+狂戴冠都打完了，重要性没以前大了
+
+*****
+
+####  alucardcz  
+##### 17408#       发表于 2025-8-4 18:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">冲阿 怕什么 有1600+30护符2宝的萌新在这里兜底呢（
+
