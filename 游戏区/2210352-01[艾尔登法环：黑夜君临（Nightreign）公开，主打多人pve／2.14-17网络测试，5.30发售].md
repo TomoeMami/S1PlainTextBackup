@@ -14124,3 +14124,18 @@ https://www.bilibili.com/opus/1095739701615132690解包剧透警告</blockquote>
 
 水皮蛋三阶段技能很多都能看出是前面阶段的对应进化版，思路很清晰
 
+
+*****
+
+####  jacket  
+##### 1351#       发表于 2025-8-4 05:17
+
+水皮蛋三阶段技能很多都能看出是前面阶段的对应进化版，思路很清晰
+
+*****
+
+####  hirro  
+##### 1352#       发表于 2025-8-4 08:48
+
+意识形态来说皮蛋不是另一个艾尔登之兽吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
