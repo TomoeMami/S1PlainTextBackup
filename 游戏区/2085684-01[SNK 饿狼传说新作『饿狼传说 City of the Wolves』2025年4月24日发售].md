@@ -214,3 +214,15 @@ et厉害呀<img src="https://static.stage1st.com/image/smiley/face2017/177.png" 
 
   
 
+
+*****
+
+####  F458  
+##### 557#       发表于 2025-8-4 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211288&amp;ptid=2085684" target="_blank">uponutopia 发表于 2025-8-4 10:04</a>
+
+装你麻呢说得好像你们很关心分离器似的，不就是找个理由喷GO1？日本EVO决赛分离器不一样被你们喷赖比？GO ...</blockquote>
+哄堂大孝了属于是，GO1和分离器闹到需要俱乐部出面调停，自己写小作文假装不知道分离器老爹重病，就别在这帮GO1洗地了。
+[https://www.bilibili.com/video/BV1ab8yzTEa5](https://www.bilibili.com/video/BV1ab8yzTEa5)
+

@@ -177,3 +177,11 @@
 这话说的，没这个广告你会去看原作？</blockquote>
 我是先看的原作啊，因为喜欢才来看的动画
 
+
+*****
+
+####  然后成为树洞  
+##### 120#       发表于 2025-8-4 10:07
+
+这股除了顶级制作外都是便宜动画的风气到底怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
