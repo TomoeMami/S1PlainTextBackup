@@ -2487,3 +2487,40 @@ ex不像色卡这些有buff，没啥用吧
 非洲人就不能有梦想么</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">非萌从来就没有梦想 刚刚100石丢进去依然无事发生
 
+
+*****
+
+####  qixinno2  
+##### 17385#       发表于 2025-8-4 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211409&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 10:18</a>
+
+非萌从来就没有梦想 刚刚100石丢进去依然无事发生</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">明显你上半年太欧了 所长觉得需要制裁你
+
+*****
+
+####  cckuku  
+##### 17386#       发表于 2025-8-4 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211220&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-4 09:51</a>
+
+护符+石头混合99抽 满宝
+
+今年运气都用掉了</blockquote>
+99抽？确定没打错？三个石头一抽，你不到300石头就满宝了<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17387#       发表于 2025-8-4 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">早上发了石头抽50练补到了三宝，等泳装了…
+
+*****
+
+####  失落之翼  
+##### 17388#       发表于 2025-8-4 11:17
+
+泳装二期还会更爆么？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
