@@ -1113,3 +1113,13 @@ Mr.エレガンス：小西克幸
 
 东京还有电影院在放映吗？想抽空看看…
 
+
+*****
+
+####  王九的哥哥  
+##### 112#       发表于 2025-8-4 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212717&amp;ptid=2199597" target="_blank">砂雪 发表于 2025-8-4 12:54</a>
+东京还有电影院在放映吗？想抽空看看…</blockquote>
+东京本来也就テアトル新宿和シネ・リーブル池袋两个馆有，目前还没有下映，不过一天也就两场左右吧……
+
