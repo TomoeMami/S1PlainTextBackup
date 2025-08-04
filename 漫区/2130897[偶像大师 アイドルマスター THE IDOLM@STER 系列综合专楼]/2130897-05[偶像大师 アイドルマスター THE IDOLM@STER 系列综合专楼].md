@@ -1113,3 +1113,31 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 完美的live，我的位置也完美，day1究极神席1-1.day2准神席，据我们在看直播的群友说，我们连番的几个人欢呼的时候还被摄像头拍到了，好像上电视了
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 7146#       发表于 2025-8-5 00:28
+
+反正推特说现地了的，灰百男人闪都有
+学好像没看到？miya是病了看的直播，其他人前两天好像没看到
+
+—— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  游蜓  
+##### 7147#       发表于 2025-8-5 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216328&amp;ptid=2130897" target="_blank">萩原组土狼p 发表于 2025-8-5 00:04</a>
+
+完美的live，我的位置也完美，day1究极神席1-1.day2准神席，据我们在看直播的群友说，我们连番的几个人欢 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">day2爽看
+
+*****
+
+####  游蜓  
+##### 7148#       发表于 2025-8-5 00:30
+
+今天一天都在贤者状态，前两天实在太开心了
+
