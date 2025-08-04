@@ -2558,3 +2558,44 @@ ex不像色卡这些有buff，没啥用吧
 
 这次泳装摆明了要三五星爆米的，就看后面几个五星四星的水平了
 
+
+*****
+
+####  eilot  
+##### 17393#       发表于 2025-8-4 15:24
+
+今次強化周，有2隻5星法，不過沒5星狂
+
+*****
+
+####  eilot  
+##### 17394#       发表于 2025-8-4 15:51
+
+之前到奏3，沒打新的奏4，重裝遊戲後530石+20符
+
+4星法尼 x 1 (第8隻了...)
+
+結束這回合，又順便刪遊戲
+
+iphone xr 單是讀取主介面已經不行了...
+
+*****
+
+####  khxooo  
+##### 17395#       发表于 2025-8-4 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212713&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 12:53</a>
+然而泳装池子一眼就是三个五星的那种 一期感觉就可以跳过</blockquote>
+一期给你来个天人特攻的狂光炮你抽不抽<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17396#       发表于 2025-8-4 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213822&amp;ptid=2084912" target="_blank">eilot 发表于 2025-8-4 15:51</a>
+之前到奏3，沒打新的奏4，重裝遊戲後530石+20符
+
+4星法尼 x 1 (第8隻了...)</blockquote>
+我的还可以勉强用，不过确实到换机的时候了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，估计过新年那时候换吧。
+
