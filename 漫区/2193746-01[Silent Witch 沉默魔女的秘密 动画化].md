@@ -197,3 +197,18 @@
 
 —— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  然后成为树洞  
+##### 122#       发表于 2025-8-4 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212333&amp;ptid=2193746" target="_blank">泥鳅 发表于 2025-8-4 12:02</a>
+
+这可是日本少数有可能名利双收的摇钱树产业了，制作委员会当然要在还能赚的时候拼命捞钱啊。
+
+—— 来自  ...</blockquote>
+你误会了，我说的是把除了顶级制作外的动画一律说成便宜动画的风气
+
+也不止这部动画了，很多地方都能看到（泥漂举例的话就是之前轮回七次的恶役千金专楼里面），明显花了钱的制作却会被说便宜动画，我是不能理解
+
