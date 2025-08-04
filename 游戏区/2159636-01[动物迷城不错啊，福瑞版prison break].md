@@ -24,3 +24,15 @@
 
 最后越狱的时候真的很不舍在牢里交到的朋友们（除了个别鞋教坑货疯子），不知道等灰猫线更新完了能不能给大家都安排一段出狱后的描写<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酱稀饭  
+##### 52#       发表于 2025-8-4 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215826&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-4 21:53</a>
+黑豹线也通了，重新跑腿送礼物是真的折磨。我还为了看狐狸当NPC多出来的那点新对话又熬到了最后一天才走
+
+最 ...</blockquote>
+灰猫至少是付费DLC了吧，不知道又要几年。已经尽力在身边宣传了，希望多卖几份给制作组多一些资金
+
