@@ -36,3 +36,14 @@
 最 ...</blockquote>
 灰猫至少是付费DLC了吧，不知道又要几年。已经尽力在身边宣传了，希望多卖几份给制作组多一些资金
 
+
+*****
+
+####  kerbad  
+##### 53#       发表于 2025-8-4 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216177&amp;ptid=2159636" target="_blank">酱稀饭 发表于 2025-8-4 23:12</a>
+
+灰猫至少是付费DLC了吧，不知道又要几年。已经尽力在身边宣传了，希望多卖几份给制作组多一些资金 ...</blockquote>
+参考黑豹线到推出怎么着都得一年半吧，要完善就得更多时间了。这游戏是我近年难得能玩得后劲十足的了，期待灰猫线还能更进一步
+
