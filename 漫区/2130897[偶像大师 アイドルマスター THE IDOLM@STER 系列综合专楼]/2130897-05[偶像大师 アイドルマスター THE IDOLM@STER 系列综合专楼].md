@@ -1071,3 +1071,11 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">还要加班 没时间写感想，因为票是不同的号的中选，所以很成功的两天 700level，给万代的最速凯子抽选跪了
 
+
+*****
+
+####  全装甲夏亚  
+##### 7142#       发表于 2025-8-4 10:44
+
+真好啊，765
+
