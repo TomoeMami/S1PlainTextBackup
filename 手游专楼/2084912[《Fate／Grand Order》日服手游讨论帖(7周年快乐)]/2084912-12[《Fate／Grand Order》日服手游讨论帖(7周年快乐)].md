@@ -2834,3 +2834,43 @@ iphone xr 單是讀取主介面已經不行了...
 萌不服 准备allin 所长 3石就抽 泳装是什么</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上头了可还行 你还差多少抽保底啊
 
+
+*****
+
+####  alucardcz  
+##### 17413#       发表于 2025-8-4 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214853&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 19:09</a>
+
+上头了可还行 你还差多少抽保底啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不多 也就190抽
+
+*****
+
+####  blue321  
+##### 17414#       发表于 2025-8-4 19:24
+
+赌赢了，450抽5宝
+
+还有700石头抽泳装<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17415#       发表于 2025-8-4 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214877&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 19:13</a>
+
+不多 也就190抽</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又有一个豹跳满宝的 萌新快吸他们欧气
+
+*****
+
+####  alucardcz  
+##### 17416#       发表于 2025-8-4 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214941&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 19:25</a>
+
+又有一个豹跳满宝的 萌新快吸他们欧气</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们非萌平均800石一宝 怎么敢碰瓷欧皇
+
