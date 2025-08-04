@@ -234,3 +234,12 @@
 
 这女配幻视京吹那谁了
 
+
+*****
+
+####  cxj649  
+##### 125#       发表于 2025-8-5 05:32
+
+看完外传，我想吐槽一些读者以为的CP相关
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以莫妮莫妮和冰男的CP感其实非常非常微妙好像推子的夸帽似得，男主明显是艾萨克好么
+
