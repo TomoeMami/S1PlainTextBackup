@@ -2796,3 +2796,41 @@ iphone xr 單是讀取主介面已經不行了...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">冲阿 怕什么 有1600+30护符2宝的萌新在这里兜底呢（
 
+
+*****
+
+####  qixinno2  
+##### 17409#       发表于 2025-8-4 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214669&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 18:29</a>
+
+冲阿 怕什么 有1600+30护符2宝的萌新在这里兜底呢（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等萌新泳装池疯狂单抽豹跳
+
+*****
+
+####  alucardcz  
+##### 17410#       发表于 2025-8-4 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214681&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 18:31</a>
+
+坐等萌新泳装池疯狂单抽豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌不服 准备allin 所长 3石就抽 泳装是什么
+
+*****
+
+####  shinitakute  
+##### 17411#       发表于 2025-8-4 18:39
+
+回坑了 新章好难打，灵脉石不够用啊
+
+*****
+
+####  qixinno2  
+##### 17412#       发表于 2025-8-4 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214691&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 18:32</a>
+
+萌不服 准备allin 所长 3石就抽 泳装是什么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上头了可还行 你还差多少抽保底啊
+
