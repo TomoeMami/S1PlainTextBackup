@@ -393,3 +393,14 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 没想到竟然还有煮出来几率不 ...</blockquote>
 而且橙色贝概率极低，我打了好多张图好像一个都没掉。要是有人把测试版的橙贝都换了那真的是挣大发了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1590#         楼主| 发表于 2025-8-4 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215631&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-8-4 21:19</a>
+
+而且橙色贝概率极低，我打了好多张图好像一个都没掉。要是有人把测试版的橙贝都换了那真的是挣大发了 ...</blockquote>
+不赚，我换了1/3，出了一堆长方盒子，强化攻击插没几个。气得我在想不如换便宜的普通三星插贝，起码没垃圾三星属性和血防都是小赚<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

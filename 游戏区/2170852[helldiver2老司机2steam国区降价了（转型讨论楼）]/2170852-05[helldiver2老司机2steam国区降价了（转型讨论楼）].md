@@ -22,3 +22,13 @@ CJ直播怎么还在尬吹洋泾浜保卫战啊…索尼中国没活了吗
 
 放屁虫是跟喷气旅一样的白给变种，大量小卡拉米爽杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mayochu爱好者  
+##### 6906#       发表于 2025-8-4 21:28
+
+爆裂铳爽打，其他打不动指挥官的自觉面壁
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
