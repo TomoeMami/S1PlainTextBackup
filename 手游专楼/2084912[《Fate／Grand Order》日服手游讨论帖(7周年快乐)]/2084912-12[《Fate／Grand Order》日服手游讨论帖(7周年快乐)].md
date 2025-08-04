@@ -2909,3 +2909,47 @@ iphone xr 單是讀取主介面已經不行了...
 
 话说主线任务自由quest那个330还有哪可以刷的？我把奏章4的free清了也只有328
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17421#       发表于 2025-8-4 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215014&amp;ptid=2084912" target="_blank">reekilynn 发表于 2025-8-4 19:40</a>
+话说主线任务自由quest那个330还有哪可以刷的？我把奏章4的free清了也只有328</blockquote>
+奏3平安京跟2.65看了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 17422#       发表于 2025-8-4 19:56
+
+270抽5宝外加歪2个常驻，第一个护符7抽第二个20连后面才开始拉锯，比我抽5宝公主硬吃一个大保底好太多了，不过泳装池基本可以不用看了肯定要还债
+
+<img src="https://img.stage1st.com/forum/202508/04/195450yzr1h3medtluerue.png" referrerpolicy="no-referrer">
+
+<strong>TWRLL~(J]B%(N@DFA8_QIHN.png</strong> (231.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 19:54 上传
+
+*****
+
+####  qixinno2  
+##### 17423#       发表于 2025-8-4 20:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">还在豹跳 楼友真的不给非洲人一点活路
+
+*****
+
+####  reekilynn  
+##### 17424#       发表于 2025-8-4 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215089&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2025-8-4 19:54</a>
+奏3平安京跟2.65看了吗</blockquote>
+这三个我检查了下，已经都清了
+要风暴罐的free quest还有几个没打
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
