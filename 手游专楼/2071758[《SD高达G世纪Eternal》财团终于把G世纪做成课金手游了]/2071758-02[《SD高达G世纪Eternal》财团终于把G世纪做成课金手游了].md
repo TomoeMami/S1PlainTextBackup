@@ -1613,3 +1613,18 @@ map是下个月的活动吧？
 会有强敌来袭之类的活动吗？</blockquote>
 提过八月下有强敌并且实装新的难度
 
+
+*****
+
+####  行政裁定书  
+##### 2405#       发表于 2025-8-4 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213268&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-4 14:19</a>
+
+提过八月下有强敌并且实装新的难度
+
+然后说本月公布的活动是有点少了，（因为都是提前在ACGHK2025公布的？ ...</blockquote>
+9月前再加一个强敌活动倒是合理，填充一下时间，希望到时候能送点z标签的好机体。
+
+不过强敌来袭不送驾驶员，z的驾驶员还是太少<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

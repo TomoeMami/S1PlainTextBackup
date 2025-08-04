@@ -15088,3 +15088,18 @@ StellarBlade_250802_02085500000.webp
 
 原图<img src="https://n1.kemono.cr/data/f3/c8/f3c8f4412ecfe987be74975dc99f9bcf86c93e8589686fc5fc28d89955be99c0.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 4224#       发表于 2025-8-4 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68192358&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-7-31 21:06</a>
+
+打完困难渡鸦封盘了，就俩字，背板。
+
+近乎100倍血量，一刀砍掉四成血盾，还好意思玩瞬移霸体。
+
+ARPG基本上 ...</blockquote>
+我是一周目结束刚进二周目的时候去挑战困难渡鸦的（为了拿衣服），然后发现数值上根本打不动。自己刮痧对面一套秒人。后来二周目打了一半，把脊椎组件之类的升级了下再去打就很容易就打过了。说到底还是个数值问题。
+
