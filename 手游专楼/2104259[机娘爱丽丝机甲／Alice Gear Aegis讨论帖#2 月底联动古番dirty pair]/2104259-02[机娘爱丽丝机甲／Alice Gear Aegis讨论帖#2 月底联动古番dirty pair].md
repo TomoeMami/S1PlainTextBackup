@@ -370,3 +370,13 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 随便试了几个其他角色能看，就宁里的点进去转圈圈，看看等下的更新里有没有提好了（ ...</blockquote>
 如果左下进度条一点没动，我一般就全断网，然后流量-wifi-更新配置换节点三步都试一试，基本能解决
 
+
+*****
+
+####  江戸前ルナ  
+##### 1588#         楼主| 发表于 2025-8-4 20:04
+
+之前说的，如果牌子还没换，那还是换最难出的几种天赋点吧……SP，回血，速度<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+没想到竟然还有煮出来几率不一样。这几天根据打调查的体感，我每种就够换了不够300个，但如果调查要出300个那可是太久了，不算每周任务，每张图有一种的3~6个就偷笑了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
