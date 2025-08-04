@@ -226,3 +226,15 @@ et厉害呀<img src="https://static.stage1st.com/image/smiley/face2017/177.png" 
 哄堂大孝了属于是，GO1和分离器闹到需要俱乐部出面调停，自己写小作文假装不知道分离器老爹重病，就别在这帮GO1洗地了。
 [https://www.bilibili.com/video/BV1ab8yzTEa5](https://www.bilibili.com/video/BV1ab8yzTEa5)
 
+
+*****
+
+####  魔王候补77号  
+##### 558#       发表于 2025-8-4 12:06
+
+<blockquote>hjknight 发表于 2025-8-4 10:03
+看调整内容，卡比丸应该是翻篇了，除了肯，冒头的是谁？
+
+可以肯定的是C罗，牙刀兄妹和洛克应该是第一梯队了 ...</blockquote>
+肯感觉不太行，大连段灌伤能力一般，拳脚也一般 t2角的样子
+
