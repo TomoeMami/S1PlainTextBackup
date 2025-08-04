@@ -14236,3 +14236,14 @@ excalibur!!!!!
 全程不倒地有加成</blockquote>
 刚单通测了一把，没倒地还是5个
 
+
+*****
+
+####  usodakedo  
+##### 1362#       发表于 2025-8-5 02:41
+
+ 本帖最后由 usodakedo 于 2025-8-5 02:46 编辑 
+
+翻看了一下以前自己打旧版米塔恩的录像，二阶段血爆加重力魔法加挥刀光污染，不得不说他比渡夜者更像个肉鸽选手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我们渡夜者啥时候也能整点什么一刀一剑气的词条啊，风暴的特效光给蓝皮蛋太浪费了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
