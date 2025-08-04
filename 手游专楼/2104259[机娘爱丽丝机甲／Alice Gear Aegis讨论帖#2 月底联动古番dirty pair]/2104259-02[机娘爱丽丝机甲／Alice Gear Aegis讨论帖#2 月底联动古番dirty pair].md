@@ -359,3 +359,14 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 —— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">随便试了几个其他角色能看，就宁里的点进去转圈圈，看看等下的更新里有没有提好了（
 
+
+*****
+
+####  冰风血羽  
+##### 1587#       发表于 2025-8-4 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212663&amp;ptid=2104259" target="_blank">madcow 发表于 2025-8-4 12:47</a>
+
+随便试了几个其他角色能看，就宁里的点进去转圈圈，看看等下的更新里有没有提好了（ ...</blockquote>
+如果左下进度条一点没动，我一般就全断网，然后流量-wifi-更新配置换节点三步都试一试，基本能解决
+
