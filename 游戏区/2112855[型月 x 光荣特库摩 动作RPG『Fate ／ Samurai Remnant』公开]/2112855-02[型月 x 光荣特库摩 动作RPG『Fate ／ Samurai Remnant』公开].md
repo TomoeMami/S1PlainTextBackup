@@ -24,3 +24,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xunit  
+##### 1831#       发表于 2025-8-5 06:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216452&amp;ptid=2112855" target="_blank">Mr1z 发表于 2025-8-5 00:35</a>
+哪里来的情报
+
+—— 来自 S1Fun</blockquote>
+<img src="https://p.sda1.dev/26/494ef7d6ef3e0c2bf61adb8439df4a77/image.jpg" referrerpolicy="no-referrer">
+有这么个个推特号，所以有人怀疑会动画化
+
