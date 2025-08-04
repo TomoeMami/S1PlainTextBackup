@@ -253,3 +253,16 @@ ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也
 
 可见这段时间是没少下功夫
 
+
+*****
+
+####  魔王候补77号  
+##### 560#       发表于 2025-8-4 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212910&amp;ptid=2085684" target="_blank">KYO(T) 发表于 2025-8-4 13:23</a>
+
+上次比赛8强里ET就是最菜的那个，这次进步太明显了
+
+可见这段时间是没少下功夫 ...</blockquote>
+是的 我觉得饿狼是个比KOF和街霸还吃练度的游戏， ET的努力真没话说
+
