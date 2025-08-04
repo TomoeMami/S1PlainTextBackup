@@ -15103,3 +15103,38 @@ StellarBlade_250802_02085500000.webp
 ARPG基本上 ...</blockquote>
 我是一周目结束刚进二周目的时候去挑战困难渡鸦的（为了拿衣服），然后发现数值上根本打不动。自己刮痧对面一套秒人。后来二周目打了一半，把脊椎组件之类的升级了下再去打就很容易就打过了。说到底还是个数值问题。
 
+
+*****
+
+####  darkangel0224  
+##### 4225#       发表于 2025-8-4 22:08
+
+ 本帖最后由 darkangel0224 于 2025-8-4 22:14 编辑 
+<blockquote>优秀 发表于 2025-7-28 11:28
+昨天打到列车之墓地图，打迅驰前有一段从列车里滑下去、中间有齿轮阻挡、最后还要跳起抓住空中横杆的那一段 ...</blockquote>
+
+这段也是失败的设计：视觉引导有问题，杆子很细，镜头也没有跟随给特写。不当残疾人开高对比度模式的话，基本反应不过来，是要跳起来抓杆子
+
+———————————
+
+去研究了一下UUU，楼上坛友说摆pose十来分钟，真是谦虚了
+
+虽然骨架列表名字挺清晰，但是里面项目点也多得有些吓人了
+
+操作界面的字体大小，对高DPI显示器也不太友好
+
+这妮姬boom皮倒是做出来的好快
+
+放个MOD制作指南，以备后用
+
+https://github.com/Stellar-Blade-Modding-Team/Stellar-Blade-Modding-Guide/wiki
+
+https://opm.fransbouma.com/uuuv4.htm
+
+https://x.com/CrimsonRoze/status/1951633042109349938
+
+https://x.com/CrimsonRoze/status/1951892187630760046
+
+<img src="https://p.inari.site/guest/25-08/04/6890be6fc1591.jpg" referrerpolicy="no-referrer">
+<img src="https://tupian.li/images/2025/08/04/6890bed83062e.jpeg" referrerpolicy="no-referrer">
+
