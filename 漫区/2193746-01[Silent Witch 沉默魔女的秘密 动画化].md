@@ -136,3 +136,24 @@
 
 如何评价这集🐎的作画水平？
 
+
+*****
+
+####  yzxdc  
+##### 116#       发表于 2025-8-4 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68202900&amp;ptid=2193746" target="_blank">66367749 发表于 2025-8-2 19:02</a>
+
+古连原来不是肌肉壮汉吗？</blockquote>
+你不要把家里卖肉的都当张飞啊
+
+*****
+
+####  yzxdc  
+##### 117#       发表于 2025-8-4 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68204036&amp;ptid=2193746" target="_blank">doraemoe 发表于 2025-8-2 21:58</a>
+
+这种动画一般来说都相当于原作广告吧，但是这种便宜动画真的能起到推广原作的效果么。我原作都看完了，老实 ...</blockquote>
+这话说的，没这个广告你会去看原作？
+
