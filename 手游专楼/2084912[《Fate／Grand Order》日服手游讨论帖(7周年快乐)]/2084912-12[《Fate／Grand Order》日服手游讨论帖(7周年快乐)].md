@@ -2721,3 +2721,39 @@ iphone xr 單是讀取主介面已經不行了...
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214079&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-4 16:35</a></blockquote>
 看看吧，这才是真正的欧狗，以后追着这位楼友骂就是了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 17401#       发表于 2025-8-4 16:45
+
+平均160石一宝还行吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+之前吃了两井可算好过一些了
+
+*****
+
+####  alucardcz  
+##### 17402#       发表于 2025-8-4 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214096&amp;ptid=2084912" target="_blank">cckuku 发表于 2025-8-4 16:39</a>
+
+连着两张护符出两个所长，你是人啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漏油你再自取其乳阿
+
+*****
+
+####  cckuku  
+##### 17403#       发表于 2025-8-4 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214146&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-4 16:51</a>
+
+漏油你再自取其乳阿</blockquote>
+确实没见过300石满宝，太狠了<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17404#       发表于 2025-8-4 17:20
+
+村正这个宝具本的意义是？
+
