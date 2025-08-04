@@ -462,3 +462,11 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1596#       发表于 2025-8-4 22:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">欸调查2.0试了下直接打BOSS好像也不是特别难，就是打完一堆贝壳直接爆仓了（
+

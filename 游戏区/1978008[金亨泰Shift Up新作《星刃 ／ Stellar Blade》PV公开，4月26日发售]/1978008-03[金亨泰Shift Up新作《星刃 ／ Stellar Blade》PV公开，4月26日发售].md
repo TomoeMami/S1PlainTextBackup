@@ -15138,3 +15138,13 @@ https://x.com/CrimsonRoze/status/1951892187630760046
 <img src="https://p.inari.site/guest/25-08/04/6890be6fc1591.jpg" referrerpolicy="no-referrer">
 <img src="https://tupian.li/images/2025/08/04/6890bed83062e.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 4226#       发表于 2025-8-4 22:18
+
+<blockquote>江戸前ルナ 发表于 2025-7-24 20:03
+看到这么多UE5翻车的……有点担心以后剑星2如果用5，那优化肯定也没现在好吧？我玩黑猴显卡风扇都轰鸣，玩 ...</blockquote>
+这游戏处处透露出各种UE4经典教程复现，有的还设计（山寨）得贼糟糕。真上UE5那必须翻车
+
