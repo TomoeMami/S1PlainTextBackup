@@ -193,3 +193,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  天邪鬼  
+##### 1206#       发表于 2025-8-4 07:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210476&amp;ptid=2208663" target="_blank">modedd 发表于 2025-8-4 02:02</a>
+去年因为拥有放眼整个系列也罕有（甚至唯一）的不含任何烂活儿且明确成了的bgcp自打昂贵告白回之后风评下 ...</blockquote>
+有没有可能对于某些人来说bgcp就已经是烂活了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
