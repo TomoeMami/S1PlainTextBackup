@@ -452,3 +452,13 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 之前游戏里反复强调女演员的出击时间限制，其实是因为超时出击会对身体有影响 ...</blockquote>
 很有鬼啊，这次活动还造成污染了。虽然很扯<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1595#       发表于 2025-8-4 21:57
+
+调查一张图一张图去刷基本都是普通贝壳，直接冲boss叠加下来总结算倒是会出些好东西
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
