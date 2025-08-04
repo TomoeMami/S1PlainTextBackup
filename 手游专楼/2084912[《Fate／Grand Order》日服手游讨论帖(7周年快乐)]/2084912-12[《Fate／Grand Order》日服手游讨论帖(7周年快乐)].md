@@ -2413,3 +2413,35 @@ ex不像色卡这些有buff，没啥用吧
 
 还剩2000多石头备战泳池了
 
+
+*****
+
+####  千叶铁矢  
+##### 17377#       发表于 2025-8-4 08:11
+
+又抽了剩下的300多石头，歪了一个仇尼托一个南丁，我还想五宝大总统呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大总统这个300自充跟公主的宝具等级绑特攻属实是异曲同工了
+
+*****
+
+####  qixinno2  
+##### 17378#       发表于 2025-8-4 09:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还剩600石 好想满宝所长 但太穷了 泳装怕出什么强力大拐到时不抽又要苦B一整年
+
+*****
+
+####  麻花疼  
+##### 17379#       发表于 2025-8-4 09:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17380#       发表于 2025-8-4 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210973&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 09:08</a>
+
+还剩600石 好想满宝所长 但太穷了 泳装怕出什么强力大拐到时不抽又要苦B一整年 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">太欧了 600石居然能想这么多事情 可怕！
+
