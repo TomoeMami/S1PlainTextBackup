@@ -5461,3 +5461,11 @@ NS版不知道为啥发行不把新补丁打上去，搞不懂
 
 还在更新吗？之前那个大版本我以为是最后的了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hinanya  
+##### 319#       发表于 2025-8-4 11:05
+
+当爹妈了创作灵感也就开始倒计时了
+
