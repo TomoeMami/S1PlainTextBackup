@@ -185,3 +185,15 @@
 
 这股除了顶级制作外都是便宜动画的风气到底怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泥鳅  
+##### 121#       发表于 2025-8-4 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211310&amp;ptid=2193746" target="_blank">然后成为树洞 发表于 2025-8-4 10:07</a>
+这股除了顶级制作外都是便宜动画的风气到底怎么回事</blockquote>
+这可是日本少数有可能名利双收的摇钱树产业了，制作委员会当然要在还能赚的时候拼命捞钱啊。
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
