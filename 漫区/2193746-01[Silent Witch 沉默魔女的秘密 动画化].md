@@ -212,3 +212,17 @@
 
 也不止这部动画了，很多地方都能看到（泥漂举例的话就是之前轮回七次的恶役千金专楼里面），明显花了钱的制作却会被说便宜动画，我是不能理解
 
+
+*****
+
+####  泥鳅  
+##### 123#       发表于 2025-8-4 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212647&amp;ptid=2193746" target="_blank">然后成为树洞 发表于 2025-8-4 12:45</a>
+你误会了，我说的是把除了顶级制作外的动画一律说成便宜动画的风气
+
+也不止这部动画了，很多地方都能看到 ...</blockquote>
+哦，个人感觉是之前所谓经费在燃烧的反噬，大多数人不知道太多需要烧钱的场景，所以就把没有大场面动作戏的作品当做便宜动画。
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

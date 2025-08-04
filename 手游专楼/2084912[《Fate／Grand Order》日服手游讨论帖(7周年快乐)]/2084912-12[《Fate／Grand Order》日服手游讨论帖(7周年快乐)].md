@@ -2524,3 +2524,37 @@ ex不像色卡这些有buff，没啥用吧
 
 泳装二期还会更爆么？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17389#       发表于 2025-8-4 11:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">所长池子为什么持续时间不更长点到月底 新泳装要是都不咋样到时直接梭哈所长
+
+*****
+
+####  khxooo  
+##### 17390#       发表于 2025-8-4 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212260&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-4 11:54</a>
+所长池子为什么持续时间不更长点到月底 新泳装要是都不咋样到时直接梭哈所长 ...</blockquote>
+17号关卡池，13号来泳装，有4天考虑
+
+*****
+
+####  qixinno2  
+##### 17391#       发表于 2025-8-4 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212670&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-4 12:47</a>
+
+17号关卡池，13号来泳装，有4天考虑</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而泳装池子一眼就是三个五星的那种 一期感觉就可以跳过
+
+*****
+
+####  angelooo  
+##### 17392#       发表于 2025-8-4 13:05
+
+这次泳装摆明了要三五星爆米的，就看后面几个五星四星的水平了
+
