@@ -14225,3 +14225,14 @@ excalibur!!!!!
 只有第一次是25个，后续一次基本是5个，偶尔6、7个，不知道是随机的还是有条件 ...</blockquote>
 全程不倒地有加成
 
+
+*****
+
+####  jacket  
+##### 1361#       发表于 2025-8-4 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213614&amp;ptid=2210352" target="_blank">Rai.Z 发表于 2025-8-4 15:16</a>
+
+全程不倒地有加成</blockquote>
+刚单通测了一把，没倒地还是5个
+
