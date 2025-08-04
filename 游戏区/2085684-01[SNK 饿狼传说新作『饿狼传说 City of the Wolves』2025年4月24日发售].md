@@ -178,3 +178,11 @@ ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也
 
 只能说没办法，不过票总算到手就好
 
+
+*****
+
+####  waelaZed  
+##### 554#       发表于 2025-8-4 09:50
+
+et厉害呀<img src="https://static.stage1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+

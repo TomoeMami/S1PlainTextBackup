@@ -167,3 +167,13 @@
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  doraemoe  
+##### 119#       发表于 2025-8-4 09:51
+
+<blockquote>yzxdc 发表于 2025-8-4 11:22
+这话说的，没这个广告你会去看原作？</blockquote>
+我是先看的原作啊，因为喜欢才来看的动画
+
