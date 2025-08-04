@@ -1097,3 +1097,19 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 听说关系者席堪称小moiw，day2离得很近但完全没有注意到
 
+
+*****
+
+####  萩原组土狼p  
+##### 7145#       发表于 2025-8-5 00:04
+
+<img src="https://img.stage1st.com/forum/202508/05/000351po42s2ma22kslk3o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1036.JPG</strong> (795.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-5 00:03 上传
+
+完美的live，我的位置也完美，day1究极神席1-1.day2准神席，据我们在看直播的群友说，我们连番的几个人欢呼的时候还被摄像头拍到了，好像上电视了
+
