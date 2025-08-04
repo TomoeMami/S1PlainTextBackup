@@ -2599,3 +2599,125 @@ iphone xr 單是讀取主介面已經不行了...
 4星法尼 x 1 (第8隻了...)</blockquote>
 我的还可以勉强用，不过确实到换机的时候了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，估计过新年那时候换吧。
 
+
+*****
+
+####  cckuku  
+##### 17397#       发表于 2025-8-4 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213934&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-4 16:10</a>
+一期给你来个天人特攻的狂光炮你抽不抽</blockquote>
+先跟水伊吹掰掰手腕吧，如果只是特攻对象不同那完全不值得投石头啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人特攻用摩根也勉勉强强吧。
+
+*****
+
+####  琴酒  
+##### 17398#       发表于 2025-8-4 16:35
+
+<blockquote>cckuku 发表于 2025-8-4 10:38
+99抽？确定没打错？三个石头一抽，你不到300石头就满宝了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/04/163507tnxi66ddotxdn0xt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162944115_Gspace.jpg</strong> (234.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163507wue99b75e9ri5elp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_163025504_Gspace.jpg</strong> (237.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163507i16px5dm66wypmmd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162905327_Gspace.jpg</strong> (236.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163508j9glgvlgg0bb81nv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162956096_Gspace.jpg</strong> (234.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163508deaab9aevv1vq9fk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162847936_Gspace.jpg</strong> (231.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163509fqcic31xii0oxllx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162728669_Gspace.jpg</strong> (232.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163509ha876e8i2s2sh7a8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162930911_Gspace.jpg</strong> (241.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163509ar1n1wlrrmyqr6kr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162654970_Gspace.jpg</strong> (228.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163510up68i3ks33uhekkd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_163007923_Gspace.jpg</strong> (241.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163510p5pn7ne8bwnh4kv8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162811529_Gspace.jpg</strong> (234.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+<img src="https://img.stage1st.com/forum/202508/04/163511xv6adp43iyxaduyu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250804_162919205_Gspace.jpg</strong> (233.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-4 16:35 上传
+
+*****
+
+####  cckuku  
+##### 17399#       发表于 2025-8-4 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214079&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-4 16:35</a></blockquote>
+连着两张护符出两个所长，你是人啊<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17400#       发表于 2025-8-4 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68214079&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-4 16:35</a></blockquote>
+看看吧，这才是真正的欧狗，以后追着这位楼友骂就是了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
