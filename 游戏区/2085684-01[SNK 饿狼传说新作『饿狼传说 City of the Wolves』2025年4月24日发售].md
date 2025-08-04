@@ -186,3 +186,31 @@ ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也
 
 et厉害呀<img src="https://static.stage1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hjknight  
+##### 555#       发表于 2025-8-4 10:03
+
+看调整内容，卡比丸应该是翻篇了，除了肯，冒头的是谁？
+可以肯定的是C罗，牙刀兄妹和洛克应该是第一梯队了。
+不知道音乐总监怎么样，看起来能龟着打了。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uponutopia  
+##### 556#       发表于 2025-8-4 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68211115&amp;ptid=2085684" target="_blank">F458 发表于 2025-8-4 09:33</a>
+
+他阴阳分离器实在不应该啊</blockquote>
+装你麻呢说得好像你们很关心分离器似的，不就是找个理由喷GO1？日本EVO决赛分离器不一样被你们喷赖比？GO1不是夺冠当天就被你们这群云狗喷赖比小人得志一直喷到现在，还用得着扯到分离器<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+    GO1和分离矛盾原话
+
+【自翻【GO1频道】小孩赛后貌似是挺受打击的吧！？皇太子招待，分离器竟然拒绝了！？ 其实呢，我是抱着挑战的心态来参加这次比赛的，所以在决赛的时候根本就不紧张啦！？】 [https://www.bilibili.com/video/B ... 2ccbf0a623c0d14879a](https://www.bilibili.com/video/BV1BauwzrErc/?share_source=copy_web&amp;vd_source=e644ab43c47b22ccbf0a623c0d14879a)
+
+这话放其它地方一个老钟外人只会评价小日子读空气闹麻了，这会儿都跑来假惺惺共情分离器了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+  
+
