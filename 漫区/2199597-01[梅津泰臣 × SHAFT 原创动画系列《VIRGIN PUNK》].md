@@ -1133,3 +1133,28 @@ Mr.エレガンス：小西克幸
 东京本来也就テアトル新宿和シネ・リーブル池袋两个馆有，目前还没有下映，不过一天也就两场左右吧…… ...</blockquote>
 好的谢谢～
 
+
+*****
+
+####  hunger  
+##### 114#       发表于 2025-8-4 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212717&amp;ptid=2199597" target="_blank">砂雪 发表于 2025-8-4 12:54</a>
+
+东京还有电影院在放映吗？想抽空看看…</blockquote>
+24日テアトル新宿有舞台挨拶，声优和监督会来，16:15那场还剩一点
+[https://ttcg.jp/theatre_shinjuku/topics/2025/07302100_32368.html](https://ttcg.jp/theatre_shinjuku/topics/2025/07302100_32368.html)
+
+
+*****
+
+####  砂雪  
+##### 115#       发表于 2025-8-4 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213626&amp;ptid=2199597" target="_blank">hunger 发表于 2025-8-4 15:17</a>
+
+24日テアトル新宿有舞台挨拶，声优和监督会来，16:15那场还剩一点
+
+https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
+谢谢！！！太感谢了
+
