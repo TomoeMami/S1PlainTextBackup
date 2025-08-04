@@ -380,3 +380,16 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 没想到竟然还有煮出来几率不一样。这几天根据打调查的体感，我每种就够换了不够300个，但如果调查要出300个那可是太久了，不算每周任务，每张图有一种的3~6个就偷笑了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1589#       发表于 2025-8-4 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215149&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-8-4 20:04</a>
+
+之前说的，如果牌子还没换，那还是换最难出的几种天赋点吧……SP，回血，速度
+
+没想到竟然还有煮出来几率不 ...</blockquote>
+而且橙色贝概率极低，我打了好多张图好像一个都没掉。要是有人把测试版的橙贝都换了那真的是挣大发了
+
