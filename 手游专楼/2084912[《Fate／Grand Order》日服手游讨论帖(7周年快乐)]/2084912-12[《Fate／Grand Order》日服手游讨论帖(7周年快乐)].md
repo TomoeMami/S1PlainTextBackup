@@ -3023,3 +3023,16 @@ iphone xr 單是讀取主介面已經不行了...
 600只出来一个也叫欧么 真的欧皇怕是600石都10宝不止了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都是欧皇 我们非萌现在已经是1700多石2宝了    大胆预测 最终记录1800+30护符2宝！  还有谁！
 
+
+*****
+
+####  少女人形  
+##### 17432#       发表于 2025-8-5 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218257&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-5 12:22</a>
+
+都是欧皇 我们非萌现在已经是1700多石2宝了    大胆预测 最终记录1800+30护符2宝！  还有谁！
+
+ ...</blockquote>
+你可以学我再吃第三个保底，现在2700石3宝<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

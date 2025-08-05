@@ -925,3 +925,14 @@ fgo还能续一年。
 几年不玩的刚回坑，现在要做什么？</blockquote>
 无论什么，学姐必抽？这样，起码留一井
 
+
+*****
+
+####  Blackson  
+##### 47297#       发表于 2025-8-5 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216947&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-5 08:35</a>
+ 几年不玩的刚回坑，现在要做什么？</blockquote>
+有条件的话抽个梅林，能跟后面泳装池的希耶尔有好组队。
+接下来就是跑主线清Free、强化本
+
