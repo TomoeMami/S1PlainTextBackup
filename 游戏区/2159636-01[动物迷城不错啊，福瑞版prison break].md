@@ -304,3 +304,32 @@
 说起来我倒是忘记彩票号码在哪里出现了
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  solmyrli  
+##### 79#       发表于 2025-8-5 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219506&amp;ptid=2159636" target="_blank">jxzeroga0 发表于 2025-8-5 16:20</a>
+没有披萨剧情，披萨是打电话订购的，电话号码在收发室某个文档有提示。游戏内出现的电话号码都能打，可以 ...</blockquote>
+彩票号码我听对话然后结交谁的时候听见了，我还以为小本本上面会记录呢，我就没当回事<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lkvdea  
+##### 80#       发表于 2025-8-5 16:25
+
+彩票号码是51888，还挺好记的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  wthall  
+##### 81#       发表于 2025-8-5 16:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">初见除了推箱子以外不推荐看任何攻略，这游戏的探索感做的太好了。
+
+很久没有玩到这么好玩的游戏了，真就是惊喜和好玩。
+

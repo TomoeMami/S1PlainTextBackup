@@ -3150,3 +3150,11 @@ iphone xr 單是讀取主介面已經不行了...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我连着好几个福袋不说没双黄了 出的不是我不需要的 就是我不需要的
 
+
+*****
+
+####  cckuku  
+##### 17444#       发表于 2025-8-5 16:34
+
+谁能懂我抽福袋，水妖兰/天使白贞/DB都可以，结果偏偏出了丑御前的心碎？
+
