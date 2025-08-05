@@ -1162,3 +1162,53 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 —— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  游蜓  
+##### 7151#       发表于 2025-8-5 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216328&amp;ptid=2130897" target="_blank">萩原组土狼p 发表于 2025-8-5 00:04</a>
+
+完美的live，我的位置也完美，day1究极神席1-1.day2准神席，据我们在看直播的群友说，我们连番的几个人欢 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">day2爽看
+
+*****
+
+####  游蜓  
+##### 7152#       发表于 2025-8-5 00:30
+
+今天一天都在贤者状态，前两天实在太开心了
+
+*****
+
+####  IPoke  
+##### 7153#       发表于 2025-8-5 01:36
+
+现在的BD都是一口价4W了吗，火锅2也是这个价
+一看moiw2015都3W，10年涨了1W也还好，
+再一看当年的初回限定是什么内容啊，这4W块钱四张碟一本册子，没了？
+
+*****
+
+####  RhmBWT_Wu  
+##### 7154#       发表于 2025-8-5 01:47
+
+现在下了飞机上了滴滴，回想起nei两天还是想哭
+感觉今天自己还处于亢奋状态，晚上九点到了登机口才想起自己一天没吃任何东西就灌了些茶水，但一点饿的感觉都没
+
+—— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  御坂MKII  
+##### 7155#       发表于 2025-8-5 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216583&amp;ptid=2130897" target="_blank">IPoke 发表于 2025-8-5 01:36</a>
+现在的BD都是一口价4W了吗，火锅2也是这个价
+一看moiw2015都3W，10年涨了1W也还好，
+再一看当年的初回限定 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实 虽然最后肯定还是会买 但是塞这么少东西还是暂时难以下手
+
+—— 来自 Xiaomi 24072PX77C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
