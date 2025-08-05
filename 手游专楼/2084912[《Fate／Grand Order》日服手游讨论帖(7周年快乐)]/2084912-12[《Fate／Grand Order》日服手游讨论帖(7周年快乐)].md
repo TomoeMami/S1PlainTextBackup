@@ -3195,3 +3195,37 @@ iphone xr 單是讀取主介面已經不行了...
 
 敲尼玛的唯一神，给个月神的充能本就这么难吗？真就内部爱呗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 17449#       发表于 2025-8-5 17:09
+
+被动点完配两个杀狐可以做到连锁两个回合的卡？太美丽了弓凛<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 17450#       发表于 2025-8-5 17:12
+
+<blockquote>khxooo 发表于 2025-8-5 16:59
+说起来好像没有日替？不会整个10周年只有所长一个卡池。</blockquote>
+可能是因为明天extra戴冠战有EX七阶全员的卡池，就没有必要额外安排日替了吧？
+
+*****
+
+####  壳壳牛  
+##### 17451#       发表于 2025-8-5 17:12
+
+真就ex全复刻...
+
+*****
+
+####  冰风血羽  
+##### 17452#       发表于 2025-8-5 17:15
+
+礼问一下我退坑号还停在大秦，想要拿1000石头大概要打多久哦
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
