@@ -227,3 +227,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">非要说的话就是“主线取巧回避问题”这点让我最不满，抛开这个不谈的话日常回我还挺喜欢的
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 1210#       发表于 2025-8-5 18:57
+
+应该说近几年的Q正作都不太行，个人觉得不错的只有某个续作
+
