@@ -3012,3 +3012,14 @@ iphone xr 單是讀取主介面已經不行了...
 这就是欧皇吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">600只出来一个也叫欧么 真的欧皇怕是600石都10宝不止了
 
+
+*****
+
+####  alucardcz  
+##### 17431#       发表于 2025-8-5 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218111&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 11:57</a>
+
+600只出来一个也叫欧么 真的欧皇怕是600石都10宝不止了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都是欧皇 我们非萌现在已经是1700多石2宝了    大胆预测 最终记录1800+30护符2宝！  还有谁！
+
