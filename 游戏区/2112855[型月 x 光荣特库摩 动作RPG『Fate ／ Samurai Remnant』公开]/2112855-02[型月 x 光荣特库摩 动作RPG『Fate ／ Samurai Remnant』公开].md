@@ -45,3 +45,15 @@
 
 看到顶起来了以为有NS2的加强了，有人试过NS2玩这个还流畅吗？
 
+
+*****
+
+####  Mr1z  
+##### 1833#       发表于 2025-8-5 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216737&amp;ptid=2112855" target="_blank">xunit 发表于 2025-8-5 06:33</a>
+有这么个个推特号，所以有人怀疑会动画化</blockquote>
+好的，感谢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
