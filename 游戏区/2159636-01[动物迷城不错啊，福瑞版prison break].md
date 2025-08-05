@@ -260,3 +260,33 @@
 我才刚要去收发室</blockquote>
 还是多吃点咖啡豆先吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  solmyrli  
+##### 75#       发表于 2025-8-5 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219391&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 16:03</a>
+还是多吃点咖啡豆先吧</blockquote>
+要不要买个机器磨成咖啡粉？
+
+
+*****
+
+####  kerbad  
+##### 76#       发表于 2025-8-5 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219398&amp;ptid=2159636" target="_blank">solmyrli 发表于 2025-8-5 16:06</a>
+
+要不要买个机器磨成咖啡粉？</blockquote>
+我更倾向直接吃豆吧，磨成粉的话半夜乱跑没水冲，初见买回来也没用过几次
+
+*****
+
+####  solmyrli  
+##### 77#       发表于 2025-8-5 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219450&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 16:12</a>
+我更倾向直接吃豆吧，磨成粉的话半夜乱跑没水冲，初见买回来也没用过几次 ...</blockquote>
+吼～感谢老铁～<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
