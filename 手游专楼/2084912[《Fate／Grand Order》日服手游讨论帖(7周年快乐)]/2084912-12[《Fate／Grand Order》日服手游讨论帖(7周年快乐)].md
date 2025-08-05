@@ -3588,3 +3588,13 @@ MD怎么会有奏4这么傻逼的章节
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓凛这个技能本好强，对比一看昨天村正的宝具本就是纯纯的小丑了
 
+
+*****
+
+####  森兰丸  
+##### 17488#       发表于 2025-8-6 01:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">仔细一想所长再不抽个5宝我这辣鸡游戏就真的玩的和咸鱼一样了
+
+只不过代价有点高用了1100多石头才抽到剩下2宝<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
