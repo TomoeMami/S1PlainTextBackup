@@ -3291,3 +3291,40 @@ iphone xr 單是讀取主介面已經不行了...
 
 昨天村正今天弓凛，那明天的四星枪不就铁是帕尔瓦蒂了…
 
+
+*****
+
+####  khxooo  
+##### 17459#       发表于 2025-8-5 17:40
+
+马勒戈壁，代充帮我搞掉号的，你们谁加了“六天”的好友如果看见3天没上线就删好友吧，我估计也会趁这个机会退坑了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 17460#       发表于 2025-8-5 17:43
+
+<blockquote>高木なつめ 发表于 2025-8-5 17:37
+昨天村正今天弓凛，那明天的四星枪不就铁是帕尔瓦蒂了…</blockquote>
+帕尔瓦蒂强化的话估计是三技能吧，一二技能和宝具都是EX级，就三技能A+。
+
+参考两仪式，也许会在技能最后加个充能，确保buff完队友后自己也能开宝具...
+
+*****
+
+####  alucardcz  
+##### 17461#       发表于 2025-8-5 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220028&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-5 17:40</a>
+
+马勒戈壁，代充帮我搞掉号的，你们谁加了“六天”的好友如果看见3天没上线就删好友吧，我估计也会趁这个机 ...</blockquote>
+现在账号不都是绑定那个a什么的了吗。。你摸了没绑？
+
+*****
+
+####  cckuku  
+##### 17462#       发表于 2025-8-5 17:45
+
+有没可能是我泳装莉莉丝呢？四星金枪还是樱系，没毛病啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

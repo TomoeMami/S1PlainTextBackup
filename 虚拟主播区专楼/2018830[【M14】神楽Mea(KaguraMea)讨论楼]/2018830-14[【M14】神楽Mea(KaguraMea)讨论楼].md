@@ -5598,3 +5598,18 @@ Bingo！My phone！
 
 唉唉唉LOL把人变成鬼，高飞也能在主播重病时来句去死罢，我要是主播我就房管给你你说话了
 
+
+*****
+
+####  TiHaru  
+##### 19326#       发表于 2025-8-5 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218005&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-8-5 11:42</a>
+
+就今天刚结束的t台直播 6小时47分到48分左右
+
+但根据本地记录，这件事她之前也是一点没提到，不排除口嗨 ...</blockquote>
+第一个是スチーム再起，aoshima给的szb启动不了的建议
+
+第二个是szb被人一套连招（我不懂szb）给秒了之后形容自己的感受像是醉烟（缺氧头晕）一样
+
