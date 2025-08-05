@@ -182,3 +182,14 @@ SR也有一些强角色，Elise的中立增伤，财迷的低消耗僧侣咒文+
 
 本来是每天上去签到领点石头，现在快被官方劝退了 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnknownRei  
+##### 483#       发表于 2025-8-6 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68221781&amp;ptid=2249235" target="_blank">LuciferGX 发表于 2025-8-6 00:10</a>
+
+你们的PC版游戏还能进去吗，从4号晚开始我就进不去了，试了几台电脑，也重新安装过，打开游戏就是反作弊的3 ...</blockquote>
+手动删除根目录GameGuard文件夹，换加速器or节点
+
