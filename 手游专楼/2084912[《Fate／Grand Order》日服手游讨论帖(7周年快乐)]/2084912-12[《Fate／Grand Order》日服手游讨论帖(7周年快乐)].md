@@ -3092,3 +3092,24 @@ iphone xr 單是讀取主介面已經不行了...
 那确实太惨了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以看看你是多么的欧！
 
+
+*****
+
+####  qixinno2  
+##### 17438#       发表于 2025-8-5 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218887&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-5 14:43</a>
+
+所以看看你是多么的欧！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">在前面那几个欧皇面前我顶多算亚洲人
+
+*****
+
+####  alucardcz  
+##### 17439#       发表于 2025-8-5 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219010&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 15:07</a>
+
+在前面那几个欧皇面前我顶多算亚洲人</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">错误的 并非人类 是卡密哒
+
