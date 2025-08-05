@@ -14267,3 +14267,15 @@ day2 摸索中
 
 诚邀坛友组队，请私信
 
+
+*****
+
+####  serj005  
+##### 1364#       发表于 2025-8-5 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216648&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-8-5 02:41</a>
+翻看了一下以前自己打旧版米塔恩的录像，二阶段血爆加重力魔法加挥刀光污染，不得不说他比渡夜者更像个肉鸽 ...</blockquote>
+神躯化剑蓄力带剑气，这种估计只能是部分金武的特权了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
