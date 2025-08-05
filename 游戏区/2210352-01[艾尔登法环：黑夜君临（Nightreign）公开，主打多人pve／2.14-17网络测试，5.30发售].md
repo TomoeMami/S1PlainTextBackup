@@ -14247,3 +14247,23 @@ excalibur!!!!!
 翻看了一下以前自己打旧版米塔恩的录像，二阶段血爆加重力魔法加挥刀光污染，不得不说他比渡夜者更像个肉鸽选手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我们渡夜者啥时候也能整点什么一刀一剑气的词条啊，风暴的特效光给蓝皮蛋太浪费了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Edgefield  
+##### 1363#       发表于 2025-8-5 09:19
+
+在泥潭募集一下联机好友
+
+每晚8点准时上线，固定双排好友，现在小队二等一
+
+8~10点固定两小时，童叟无欺，不上压力，欢快讨伐夜王
+
+都是黑魂老ass，但是已经年龄30+，老年人操作，连打3天暂未见过三头犬。
+
+day1 目前已经可以稳定升到5~6级
+
+day2 摸索中
+
+诚邀坛友组队，请私信
+
