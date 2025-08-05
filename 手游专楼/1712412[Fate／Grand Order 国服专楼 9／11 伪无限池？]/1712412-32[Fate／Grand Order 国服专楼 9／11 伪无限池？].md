@@ -966,3 +966,13 @@ fgo还能续一年。
 
 请问学姐 rba 是谁？ 
 
+
+*****
+
+####  khxooo  
+##### 47301#       发表于 2025-8-5 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219863&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-5 17:15</a>
+请问学姐 rba 是谁？</blockquote>
+学姐：星期天就实装从者，具体有多强B站一堆测评，Rba ：泳装斯卡蒂，100红爆3回合+每回合出星+当回合出星，很切合学姐。
+
