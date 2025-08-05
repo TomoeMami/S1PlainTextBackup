@@ -80,3 +80,32 @@
 黑豹还是等民间mod或者官方更新不同主角继承好感度再考虑吧，除了主线和多了几个专属的支线外日常部分跟狐 ...</blockquote>
 我觉得全部继承也挺无聊的，但是如果能够继承给另外的主角一半或者1/3就够了。要不然一周目开荒太苦
 
+
+*****
+
+####  妮贝雅  
+##### 57#       发表于 2025-8-5 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218538&amp;ptid=2159636" target="_blank">wthall 发表于 2025-8-5 13:27</a>
+
+我觉得全部继承也挺无聊的，但是如果能够继承给另外的主角一半或者1/3就够了。要不然一周目开荒太苦 ...</blockquote>
+或者集承最多100好感，需要再次深入了解也可以（
+
+*****
+
+####  wthall  
+##### 58#       发表于 2025-8-5 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218621&amp;ptid=2159636" target="_blank">妮贝雅 发表于 2025-8-5 13:49</a>
+
+或者集承最多100好感，需要再次深入了解也可以（</blockquote>
+不过看楼上的讨论，制作组人太少，估计有的等了，或者等mod吧
+
+
+*****
+
+####  水边井  
+##### 59#       发表于 2025-8-5 13:57
+
+这游戏像素画质量很高，人物形象和动作细腻又有特色，很难得的
+
