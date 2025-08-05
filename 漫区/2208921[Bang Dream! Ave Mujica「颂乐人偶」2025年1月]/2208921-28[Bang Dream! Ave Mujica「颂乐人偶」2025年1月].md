@@ -1789,3 +1789,15 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
 评论区比漫画本体搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 41149#       发表于 2025-8-5 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220562&amp;ptid=2208921" target="_blank">仟音一心 发表于 2025-8-5 19:32</a>
+Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
+
+作者：毛魂一直線（twi:moukonzenmetsu） ​​​</blockquote>
+这是暗示Ave Mujica动画第五话C Part， Mortis用芭蕾舞鞋试图联系的「医生」是祥子吗？<img src="https://p.sda1.dev/26/d6979ad4f2113121e1dfae139b3eea0b/image.jpg" referrerpolicy="no-referrer">
+
