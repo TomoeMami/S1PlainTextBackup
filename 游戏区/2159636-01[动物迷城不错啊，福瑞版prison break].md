@@ -344,3 +344,13 @@
 彩票号码我听对话然后结交谁的时候听见了，我还以为小本本上面会记录呢，我就没当回事 ...</blockquote>
 结交菲尔吧，他的深入了解也是跟彩票有关的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lightingwolf  
+##### 83#       发表于 2025-8-5 22:24
+
+<blockquote>jxzeroga0 发表于 2025-8-5 16:20
+没有披萨剧情，披萨是打电话订购的，电话号码在收发室某个文档有提示。游戏内出现的电话号码都能打，可以 ...</blockquote>
+披萨电话不用翻收发室，第一天查看囚犯身上如果有披萨，披萨的物品说明里有电话号码
+
