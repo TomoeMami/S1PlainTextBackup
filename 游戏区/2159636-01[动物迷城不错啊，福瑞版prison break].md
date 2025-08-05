@@ -188,3 +188,34 @@
 —— 来自 Xiaomi 2410DPN6CC, ...</blockquote>
 智力技能里的罪犯侧写点了解决，要是狱友身上都没的话就只能自己找or买了
 
+
+*****
+
+####  kerbad  
+##### 68#       发表于 2025-8-5 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218866&amp;ptid=2159636" target="_blank">solmyrli 发表于 2025-8-5 14:40</a>
+刚开始玩，加了sl真好呀，另外精力还是不太够，时间也不太够</blockquote>
+精力不够前期可以多买点咖啡豆吃，中后期有钱了订一堆披萨基本不存在精力不够的情况。时间精打细算玩的话是完全溢出的，不过一周目初见不熟悉哪里能省时间容易踩坑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 69#       发表于 2025-8-5 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219157&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 15:30</a>
+智力技能里的罪犯侧写点了能解决，要是狱友身上都没的话就只能自己找了 ...</blockquote>
+只能看到哪些狱友身上有，但动物脸盲每次切出去关系页面看人在哪里就忘了都有谁了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  solmyrli  
+##### 70#       发表于 2025-8-5 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219197&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 15:36</a>
+精力不够前期可以多买点咖啡豆吃，中后期有钱了订一堆披萨基本不存在精力不够的情况。时间精打细算玩的话 ...</blockquote>
+还……还没遇到披萨剧情<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
