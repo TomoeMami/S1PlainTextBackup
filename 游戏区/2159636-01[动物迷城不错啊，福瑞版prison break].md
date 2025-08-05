@@ -127,3 +127,14 @@
 打完只想知道狱友们的后续了，比如老虎知道被政府骗了后怎样了</blockquote>
 虎哥要报名地下拳赛找机会越狱复仇了，布鲁夺权失败的话虎哥会找比利，听说布鲁夺权成功的路线会去找大象。看制作人在设定集里说不写狱友的结局是不想定死角色们的结局留给玩家遐想，但我也是更想看明确结局的那个，跟朋友们不告而别还看不到他们后面的故事太难受了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 62#       发表于 2025-8-5 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218746&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 14:17</a>
+
+虎哥要报名地下拳赛找机会越狱复仇了，布鲁夺权失败的话虎哥会找比利，听说布鲁夺权成功的路线会去找大象 ...</blockquote>
+有一大半狱友都是因为这样那样无奈的原因进来的，其实都是很好的人。确实希望写点他们处于后的未来，做了点啥。
+
