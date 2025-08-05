@@ -3081,3 +3081,14 @@ iphone xr 單是讀取主介面已經不行了...
 3个所长就打发了，其他啥都没有</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那确实太惨了
 
+
+*****
+
+####  alucardcz  
+##### 17437#       发表于 2025-8-5 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218799&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 14:28</a>
+
+那确实太惨了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以看看你是多么的欧！
+
