@@ -976,3 +976,22 @@ fgo还能续一年。
 请问学姐 rba 是谁？</blockquote>
 学姐：星期天就实装从者，具体有多强B站一堆测评，Rba ：泳装斯卡蒂，100红爆3回合+每回合出星+当回合出星，很切合学姐。
 
+
+*****
+
+####  soop  
+##### 47302#       发表于 2025-8-5 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219972&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-8-5 17:32</a>
+学姐：星期天就实装从者，具体有多强B站一堆测评，Rba ：泳装斯卡蒂，100红爆3回合+每回合出星+当回合出 ...</blockquote>
+是 ruler 的斯卡哈吗 这个有
+
+*****
+
+####  khxooo  
+##### 47303#       发表于 2025-8-5 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220211&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-5 18:13</a>
+是 ruler 的斯卡哈吗 这个有</blockquote>
+对的，尺阶那个。
+
