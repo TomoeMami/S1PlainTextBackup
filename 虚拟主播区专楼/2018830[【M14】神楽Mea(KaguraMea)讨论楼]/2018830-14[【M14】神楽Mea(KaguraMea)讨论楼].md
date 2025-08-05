@@ -5167,3 +5167,14 @@ Roll？明天再说吧 话说怎么跑题到这了  
 
 完全搞不懂啦
 
+
+*****
+
+####  TiHaru  
+##### 19317#       发表于 2025-8-5 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68217765&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-8-5 11:00</a>
+喫煙の最近よしたんだけどね。
+ ならなかったから困った。 </blockquote>
+哪次直播提到的，能提供个时间戳吗
+
