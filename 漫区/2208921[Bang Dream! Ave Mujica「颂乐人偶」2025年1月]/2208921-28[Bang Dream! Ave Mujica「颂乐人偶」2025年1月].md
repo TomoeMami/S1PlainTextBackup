@@ -1801,3 +1801,13 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 作者：毛魂一直線（twi:moukonzenmetsu） ​​​</blockquote>
 这是暗示Ave Mujica动画第五话C Part， Mortis用芭蕾舞鞋试图联系的「医生」是祥子吗？<img src="https://p.sda1.dev/26/d6979ad4f2113121e1dfae139b3eea0b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 41150#       发表于 2025-8-5 22:55
+
+主要是這畫風，
+
+換成Pico 風觀感會好很多
+
