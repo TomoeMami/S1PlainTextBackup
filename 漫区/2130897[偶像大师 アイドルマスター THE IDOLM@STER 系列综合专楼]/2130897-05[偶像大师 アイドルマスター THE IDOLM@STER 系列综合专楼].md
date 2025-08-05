@@ -1212,3 +1212,14 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 
 —— 来自 Xiaomi 24072PX77C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  游蜓  
+##### 7156#       发表于 2025-8-5 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219694&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2025-8-5 16:48</a>
+
+这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
+top入场一直在放，也算有了（
+
