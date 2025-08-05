@@ -1781,3 +1781,11 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
 这漫画，看了能让人笑出来吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayachi  
+##### 41148#       发表于 2025-8-5 20:54
+
+评论区比漫画本体搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
