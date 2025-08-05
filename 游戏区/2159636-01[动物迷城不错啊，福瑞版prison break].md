@@ -240,3 +240,23 @@
 还……还没遇到披萨剧情</blockquote>
 披萨电话得把收发室都翻过一遍才知道，而且这玩意对于初期的收入来说挺贵的买不起，我都第二周快过完了才开始狂吃披萨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  solmyrli  
+##### 73#       发表于 2025-8-5 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219278&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 15:47</a>
+披萨电话得把收发室都翻过一遍才知道，而且这玩意对于初期的收入来说挺贵的买不起，我都第二周快过完了才 ...</blockquote>
+我才刚要去收发室<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerbad  
+##### 74#       发表于 2025-8-5 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219369&amp;ptid=2159636" target="_blank">solmyrli 发表于 2025-8-5 15:59</a>
+
+我才刚要去收发室</blockquote>
+还是多吃点咖啡豆先吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
