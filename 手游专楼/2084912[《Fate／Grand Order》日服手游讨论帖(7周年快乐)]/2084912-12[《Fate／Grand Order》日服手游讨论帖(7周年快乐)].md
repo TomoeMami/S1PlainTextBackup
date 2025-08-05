@@ -3328,3 +3328,51 @@ iphone xr 單是讀取主介面已經不行了...
 
 有没可能是我泳装莉莉丝呢？四星金枪还是樱系，没毛病啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17463#       发表于 2025-8-5 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220028&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-5 17:40</a>
+
+马勒戈壁，代充帮我搞掉号的，你们谁加了“六天”的好友如果看见3天没上线就删好友吧，我估计也会趁这个机 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧皇陨落了
+
+*****
+
+####  壳壳牛  
+##### 17464#       发表于 2025-8-5 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220028&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-5 17:40</a>
+
+马勒戈壁，代充帮我搞掉号的，你们谁加了“六天”的好友如果看见3天没上线就删好友吧，我估计也会趁这个机 ...</blockquote>
+代充有回执吗，试试找回吧...
+
+
+*****
+
+####  angelooo  
+##### 17465#       发表于 2025-8-5 17:54
+
+<blockquote>cckuku 发表于 2025-8-5 17:45
+有没可能是我泳装莉莉丝呢？四星金枪还是樱系，没毛病啊</blockquote>
+应该就是这两个里的一个了，要是明天是其他四星枪的强化，不敢想象这场面
+
+*****
+
+####  alucardcz  
+##### 17466#       发表于 2025-8-5 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220108&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-8-5 17:54</a>
+
+应该就是这两个里的一个了，要是明天是其他四星枪的强化，不敢想象这场面 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后强化黑枪呆 
+
+*****
+
+####  qixinno2  
+##### 17467#       发表于 2025-8-5 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天强化黑枪呆
+
