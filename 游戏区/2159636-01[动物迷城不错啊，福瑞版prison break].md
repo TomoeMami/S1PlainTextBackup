@@ -290,3 +290,17 @@
 我更倾向直接吃豆吧，磨成粉的话半夜乱跑没水冲，初见买回来也没用过几次 ...</blockquote>
 吼～感谢老铁～<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 78#       发表于 2025-8-5 16:20
+
+ 本帖最后由 jxzeroga0 于 2025-8-5 16:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219241&amp;ptid=2159636" target="_blank">solmyrli 发表于 2025-8-5 15:42</a>
+还……还没遇到披萨剧情</blockquote>
+没有披萨剧情，披萨是打电话订购的，电话号码在收发室某个文档有提示。游戏内出现的电话号码都能打，可以百度下全号码作为攻略加速。
+
+说起来我倒是忘记彩票号码在哪里出现了
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

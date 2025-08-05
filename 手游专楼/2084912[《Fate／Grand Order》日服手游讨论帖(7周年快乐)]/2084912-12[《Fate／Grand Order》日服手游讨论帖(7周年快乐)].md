@@ -3132,3 +3132,21 @@ iphone xr 單是讀取主介面已經不行了...
 之前在楼里说2宝跑路了，刚刚才去抽福袋结果15石和30石七骑士都双黄蛋了，然后去所长池抽1发10抽3宝了。。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">为什么楼友都这么欧
 
+
+*****
+
+####  blue321  
+##### 17442#       发表于 2025-8-5 16:18
+
+这才是欧洲人吧连续福袋双黄+10抽一宝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  qixinno2  
+##### 17443#       发表于 2025-8-5 16:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我连着好几个福袋不说没双黄了 出的不是我不需要的 就是我不需要的
+
