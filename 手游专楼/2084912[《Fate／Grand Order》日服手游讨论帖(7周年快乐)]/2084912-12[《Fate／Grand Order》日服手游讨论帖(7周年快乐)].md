@@ -3068,3 +3068,16 @@ iphone xr 單是讀取主介面已經不行了...
 
 3个所长就打发了，其他啥都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17436#       发表于 2025-8-5 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218729&amp;ptid=2084912" target="_blank">少女人形 发表于 2025-8-5 14:13</a>
+
+不是富哥，三次戴冠战攒了1200+石头和一堆护符，加上送的1400+
+
+3个所长就打发了，其他啥都没有</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那确实太惨了
+
