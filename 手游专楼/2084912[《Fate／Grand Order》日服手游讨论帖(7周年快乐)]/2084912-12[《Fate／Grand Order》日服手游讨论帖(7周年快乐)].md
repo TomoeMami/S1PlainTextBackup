@@ -3376,3 +3376,57 @@ iphone xr 單是讀取主介面已經不行了...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天强化黑枪呆
 
+
+*****
+
+####  Jamaisvu  
+##### 17468#       发表于 2025-8-5 17:58
+
+<blockquote>khxooo 发表于 2025-8-5 17:40
+马勒戈壁，代充帮我搞掉号的，你们谁加了“六天”的好友如果看见3天没上线就删好友吧，我估计也会趁这个机 ...</blockquote>
+
+A社绑定邮箱和账号找回邮箱好像不必是同一个吧？印象里就是去官网填个表格，把游玩进度、从者宝具、石头数量之类的填一下，再附上能对得上ID的氪金回执，留个邮箱等着发新的引继码就行。
+
+不知道的地方随便写就行，没有或者忘了。有大量回执的话能增加找回几率。
+
+当然如果趁此退坑的话也算是个解脱，不过最好还是把1000石都花完再考虑...
+
+*****
+
+####  天王寺凯伊姆  
+##### 17469#       发表于 2025-8-5 18:00
+
+两轮五星全空过我服啦，我本来之前在犹豫命定弓要不要选弓凛，虽然后来抽出来的是有珠
+
+*****
+
+####  里村紅葉  
+##### 17470#       发表于 2025-8-5 18:01
+
+兽尼最后一宝抽了600石<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17471#       发表于 2025-8-5 18:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">EX命定 六个NEW然后就出了唯一随便凑数的兽蕾 常规七骑的我直接放弃了
+
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17472#       发表于 2025-8-5 18:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">200石不到把兽尼补到了2宝，就看ex冠位能挖多少矿了
+
+*****
+
+####  alucardcz  
+##### 17473#       发表于 2025-8-5 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220147&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 18:03</a>
+
+EX命定 六个NEW然后就出了唯一随便凑数的兽蕾 常规七骑的我直接放弃了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧  不对  豪 羡慕
+
