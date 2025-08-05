@@ -167,3 +167,24 @@
 
 总体来说质量过硬，结尾十分好评
 
+
+*****
+
+####  kerbad  
+##### 66#       发表于 2025-8-5 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218791&amp;ptid=2159636" target="_blank">wthall 发表于 2025-8-5 14:27</a>
+有一大半狱友都是因为这样那样无奈的原因进来的，其实都是很好的人。确实希望写点他们处于后的未来，做了 ...</blockquote>
+除了个别倒霉蛋和纯恶人疯子以外大多都是好人，甚至有几个都跟霍普金斯医院有关系，破医院害人不浅
+
+*****
+
+####  kerbad  
+##### 67#       发表于 2025-8-5 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218912&amp;ptid=2159636" target="_blank">jxzeroga0 发表于 2025-8-5 14:49</a>
+每次缺素材找哪些人有都看花眼，没找到能追踪素材的功能，任务倒是会有提示
+
+—— 来自 Xiaomi 2410DPN6CC, ...</blockquote>
+智力技能里的罪犯侧写点了解决，要是狱友身上都没的话就只能自己找or买了
+
