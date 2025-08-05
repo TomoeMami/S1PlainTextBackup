@@ -3036,3 +3036,14 @@ iphone xr 單是讀取主介面已經不行了...
  ...</blockquote>
 你可以学我再吃第三个保底，现在2700石3宝<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17433#       发表于 2025-8-5 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218297&amp;ptid=2084912" target="_blank">少女人形 发表于 2025-8-5 12:31</a>
+
+你可以学我再吃第三个保底，现在2700石3宝</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">富哥太强了
+

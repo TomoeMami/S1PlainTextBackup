@@ -69,3 +69,14 @@
 我也是一周目打完了，最后洗衣房路线正好卡在最后一天逃脱，不过螃蟹房间里面那个尸体是啥？我没去调查，直 ...</blockquote>
 黑豹还是等民间mod或者官方更新多周目继承好感度再考虑吧，除了主线和多了几个专属的支线外日常部分跟狐狸大差不差的<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">。不知道后面会不会更新黑豹专属的越狱路线，狐狸怎么着还有个太阳线呢
 
+
+*****
+
+####  wthall  
+##### 56#       发表于 2025-8-5 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68217566&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-5 10:33</a>
+
+黑豹还是等民间mod或者官方更新不同主角继承好感度再考虑吧，除了主线和多了几个专属的支线外日常部分跟狐 ...</blockquote>
+我觉得全部继承也挺无聊的，但是如果能够继承给另外的主角一半或者1/3就够了。要不然一周目开荒太苦
+
