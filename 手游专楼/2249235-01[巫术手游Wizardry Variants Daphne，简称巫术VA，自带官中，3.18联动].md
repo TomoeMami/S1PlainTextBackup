@@ -172,3 +172,13 @@ SR也有一些强角色，Elise的中立增伤，财迷的低消耗僧侣咒文+
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  LuciferGX  
+##### 482#       发表于 2025-8-6 00:10
+
+你们的PC版游戏还能进去吗，从4号晚开始我就进不去了，试了几台电脑，也重新安装过，打开游戏就是反作弊的380错误
+
+本来是每天上去签到领点石头，现在快被官方劝退了 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
