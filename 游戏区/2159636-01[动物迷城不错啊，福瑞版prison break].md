@@ -59,3 +59,13 @@
 
 现在二周目打爆一切，直接从二楼爬进去，绕开来了门口一大堆前置。总算见到了艾瑞斯，后面就是等第四场拳赛打完去逃狱了。在犹豫要不要开黑豹线，重新送一遍礼确实有点遭不住。
 
+
+*****
+
+####  kerbad  
+##### 55#       发表于 2025-8-5 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68217458&amp;ptid=2159636" target="_blank">wthall 发表于 2025-8-5 10:17</a>
+我也是一周目打完了，最后洗衣房路线正好卡在最后一天逃脱，不过螃蟹房间里面那个尸体是啥？我没去调查，直 ...</blockquote>
+黑豹还是等民间mod或者官方更新多周目继承好感度再考虑吧，除了主线和多了几个专属的支线外日常部分跟狐狸大差不差的<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">。不知道后面会不会更新黑豹专属的越狱路线，狐狸怎么着还有个太阳线呢
+

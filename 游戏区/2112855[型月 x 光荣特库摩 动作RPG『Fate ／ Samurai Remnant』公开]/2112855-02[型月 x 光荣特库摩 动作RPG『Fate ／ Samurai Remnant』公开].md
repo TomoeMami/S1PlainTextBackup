@@ -37,3 +37,11 @@
 <img src="https://p.sda1.dev/26/494ef7d6ef3e0c2bf61adb8439df4a77/image.jpg" referrerpolicy="no-referrer">
 有这么个个推特号，所以有人怀疑会动画化
 
+
+*****
+
+####  stoiorz  
+##### 1832#       发表于 2025-8-5 10:34
+
+看到顶起来了以为有NS2的加强了，有人试过NS2玩这个还流畅吗？
+
