@@ -243,3 +243,14 @@
 看完外传，我想吐槽一些读者以为的CP相关
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以莫妮莫妮和冰男的CP感其实非常非常微妙好像推子的夸帽似得，男主明显是艾萨克好么
 
+
+*****
+
+####  cxj649  
+##### 126#       发表于 2025-8-5 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">CP吐槽
+女主和蓝毛这种寸止的纯爱1V1怎么回事，外传结局走蓝毛冰男线很猎奇的，尤其冰男更像是希望3P<[img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+金毛舔狗二王子看起来舔狗败犬，外传最后几篇都同居了，相比观众可能认为女主冰男是1对，但剧情内女主可能的”清誉"和剧中亲友视角女主和金毛各种意义上是1对
+
