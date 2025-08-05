@@ -1736,3 +1736,40 @@ Android: [https://goo.gl/xKdZmk](https://goo.gl/xKdZmk)
 
        [https://t.bilibili.com/1097238482006310945](https://t.bilibili.com/1097238482006310945)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41144#       发表于 2025-8-5 19:30
+
+ 本帖最后由 堀内爱里衣 于 2025-8-5 19:31 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/05/193146g7s4n3isqksgsv3d.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-05_19-31-23.jpg</strong> (411.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-5 19:31 上传
+
+       [https://t.bilibili.com/1097433628141420553](https://t.bilibili.com/1097433628141420553)
+
+*****
+
+####  仟音一心  
+##### 41145#       发表于 2025-8-5 19:32
+
+Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
+
+作者：毛魂一直線（twi:moukonzenmetsu） ​​​
+<img src="https://p.sda1.dev/26/abfdce821fd8fd0be0b9fac253d58048/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 41146#       发表于 2025-8-5 19:33
+
+重复，编辑。
+
