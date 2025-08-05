@@ -3158,3 +3158,13 @@ iphone xr 單是讀取主介面已經不行了...
 
 谁能懂我抽福袋，水妖兰/天使白贞/DB都可以，结果偏偏出了丑御前的心碎？
 
+
+*****
+
+####  qixinno2  
+##### 17445#       发表于 2025-8-5 16:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还在辱青
+
+【所长的正确用法！单人速通周回！薄纱以往所有组队！带俩老板上班的同时还只需要看一个宝具！所长杀死了地铺【FGO】】 [https://www.bilibili.com/video/BV1FrtjzqEee/](https://www.bilibili.com/video/BV1FrtjzqEee/)
+
