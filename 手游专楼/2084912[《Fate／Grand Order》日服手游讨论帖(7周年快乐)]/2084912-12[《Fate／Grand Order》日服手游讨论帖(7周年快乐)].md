@@ -3055,3 +3055,16 @@ iphone xr 單是讀取主介面已經不行了...
 
 反正我凹了，主要对lip真没兴趣。目前1800石4宝，歪一个欧罗巴，非完了，只能安慰自己跟去年800石满宝水蕾的好运抵消了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">该说不说这免费的石头抽起来就是爽。
 
+
+*****
+
+####  少女人形  
+##### 17435#       发表于 2025-8-5 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218543&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 13:29</a>
+
+富哥太强了</blockquote>
+不是富哥，三次戴冠战攒了1200+石头和一堆护符，加上送的1400+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+3个所长就打发了，其他啥都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -947,3 +947,14 @@ fgo还能续一年。
 接下来就是跑主线清Free、强化本 ...</blockquote>
 有杀狐和rba还要梅林吗？还是学姐抽宝合适？
 
+
+*****
+
+####  flyzzhj  
+##### 47299#       发表于 2025-8-5 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218441&amp;ptid=1712412" target="_blank">HinataY 发表于 2025-8-5 13:06</a>
+
+有杀狐和rba还要梅林吗？还是学姐抽宝合适？</blockquote>
+有杀狐有红卡打手甚至啥都不用抽了...
+
