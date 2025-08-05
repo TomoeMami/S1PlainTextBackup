@@ -3113,3 +3113,11 @@ iphone xr 單是讀取主介面已經不行了...
 在前面那几个欧皇面前我顶多算亚洲人</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">错误的 并非人类 是卡密哒
 
+
+*****
+
+####  岸浪白野  
+##### 17440#       发表于 2025-8-5 15:52
+
+之前在楼里说2宝跑路了，刚刚才去抽福袋结果15石和30石七骑士都双黄蛋了，然后去所长池抽1发10抽3宝了。。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/26/80feeaf343f25ee73056d8740215e8e3/image.jpg" referrerpolicy="no-referrer">
+

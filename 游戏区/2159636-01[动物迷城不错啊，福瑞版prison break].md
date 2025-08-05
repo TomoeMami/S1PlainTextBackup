@@ -219,3 +219,24 @@
 精力不够前期可以多买点咖啡豆吃，中后期有钱了订一堆披萨基本不存在精力不够的情况。时间精打细算玩的话 ...</blockquote>
 还……还没遇到披萨剧情<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 71#       发表于 2025-8-5 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219229&amp;ptid=2159636" target="_blank">jxzeroga0 发表于 2025-8-5 15:40</a>
+
+只能看到哪些狱友身上有，但动物脸盲每次切出去关系页面看人在哪里就忘了都有谁了有任务追踪的素材对应狱 ...</blockquote>
+这个算UI设计问题了，我玩的时候也在吐槽都告诉我谁有了怎么不顺便告诉我人在哪。虽然动物提高了辨识度但是我一开始还搞混过臭鼬和负鼠<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerbad  
+##### 72#       发表于 2025-8-5 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219241&amp;ptid=2159636" target="_blank">solmyrli 发表于 2025-8-5 15:42</a>
+
+还……还没遇到披萨剧情</blockquote>
+披萨电话得把收发室都翻过一遍才知道，而且这玩意对于初期的收入来说挺贵的买不起，我都第二周快过完了才开始狂吃披萨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
