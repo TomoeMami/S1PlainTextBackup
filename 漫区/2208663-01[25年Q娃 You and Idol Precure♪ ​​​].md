@@ -219,3 +219,11 @@
 
 汪Q猫组塑造不错，悟彩恋爱线收的也还行，小麦可爱，主线取巧回避了问题算是没炸大雷，日常回也能打，在我这里是算得上佳作的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 1209#       发表于 2025-8-5 09:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">非要说的话就是“主线取巧回避问题”这点让我最不满，抛开这个不谈的话日常回我还挺喜欢的
+
