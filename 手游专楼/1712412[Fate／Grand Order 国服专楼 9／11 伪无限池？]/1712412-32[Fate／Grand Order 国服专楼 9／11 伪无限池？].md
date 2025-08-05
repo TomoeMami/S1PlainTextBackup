@@ -936,3 +936,14 @@ fgo还能续一年。
 有条件的话抽个梅林，能跟后面泳装池的希耶尔有好组队。
 接下来就是跑主线清Free、强化本
 
+
+*****
+
+####  HinataY  
+##### 47298#       发表于 2025-8-5 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218268&amp;ptid=1712412" target="_blank">Blackson 发表于 2025-8-5 12:25</a>
+有条件的话抽个梅林，能跟后面泳装池的希耶尔有好组队。
+接下来就是跑主线清Free、强化本 ...</blockquote>
+有杀狐和rba还要梅林吗？还是学姐抽宝合适？
+
