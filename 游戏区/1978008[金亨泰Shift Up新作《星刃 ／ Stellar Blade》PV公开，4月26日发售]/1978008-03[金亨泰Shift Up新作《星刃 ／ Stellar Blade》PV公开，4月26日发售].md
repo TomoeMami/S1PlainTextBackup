@@ -15166,3 +15166,14 @@ https://x.com/CrimsonRoze/status/1951892187630760046
 周末打完卢瓦底层，发现百合好感度居然满了，难道和我喜欢跑废土和大沙漠做支线任务有关。 ...</blockquote>
 那个进度比起说是好感度不如说对依芙计划和真实历史的发掘度
 
+
+*****
+
+####  优秀  
+##### 4229#       发表于 2025-8-5 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68217740&amp;ptid=1978008" target="_blank">birdma 发表于 2025-8-5 10:56</a>
+
+那个进度比起说是好感度不如说对依芙计划和真实历史的发掘度</blockquote>
+是这样吗，我看网上说结局有个和百合好感度相关的分支，然后去搜怎么看百合好感度，果然看些文档就能增加好感度也太奇怪了。
+
