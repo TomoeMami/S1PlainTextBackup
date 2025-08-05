@@ -1773,3 +1773,11 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
 重复，编辑。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41147#       发表于 2025-8-5 20:31
+
+这漫画，看了能让人笑出来吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
