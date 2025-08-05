@@ -905,3 +905,23 @@ fgo还能续一年。
 
 几年不玩的刚回坑，现在要做什么？
 
+
+*****
+
+####  khxooo  
+##### 47295#       发表于 2025-8-5 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216947&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-5 08:35</a>
+几年不玩的刚回坑，现在要做什么？</blockquote>
+抽卡、练卡，推主线，也就这几样了。
+
+*****
+
+####  6030sylar  
+##### 47296#       发表于 2025-8-5 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68216947&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-5 08:35</a>
+
+几年不玩的刚回坑，现在要做什么？</blockquote>
+无论什么，学姐必抽？这样，起码留一井
+
