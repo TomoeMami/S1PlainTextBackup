@@ -3168,3 +3168,30 @@ iphone xr 單是讀取主介面已經不行了...
 
 【所长的正确用法！单人速通周回！薄纱以往所有组队！带俩老板上班的同时还只需要看一个宝具！所长杀死了地铺【FGO】】 [https://www.bilibili.com/video/BV1FrtjzqEee/](https://www.bilibili.com/video/BV1FrtjzqEee/)
 
+
+*****
+
+####  khxooo  
+##### 17446#       发表于 2025-8-5 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219650&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-5 16:41</a>
+还在辱青
+
+【所长的正确用法！单人速通周回！薄纱以往所有组队！带俩老板上班的同时还只需要看一个宝具！所 ...</blockquote>
+谁叫你青无论机制和数值都太超模了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17447#       发表于 2025-8-5 16:59
+
+说起来好像没有日替？不会整个10周年只有所长一个卡池。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 17448#       发表于 2025-8-5 17:03
+
+敲尼玛的唯一神，给个月神的充能本就这么难吗？真就内部爱呗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
