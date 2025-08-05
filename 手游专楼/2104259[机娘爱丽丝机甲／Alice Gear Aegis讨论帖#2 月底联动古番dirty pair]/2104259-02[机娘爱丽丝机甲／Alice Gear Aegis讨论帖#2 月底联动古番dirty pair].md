@@ -488,3 +488,11 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 话说宁里这派生格斗的浮游炮是不是不能触发派生手的侵蚀 体验试了好几次都没打出来 bug还是左右互搏了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  weiweiEX  
+##### 1599#       发表于 2025-8-5 17:20
+
+奖励还是很夸张的，稀有图的指挥官人均10s点，清一张图半张票出来了
+
