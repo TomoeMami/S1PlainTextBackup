@@ -3047,3 +3047,11 @@ iphone xr 單是讀取主介面已經不行了...
 你可以学我再吃第三个保底，现在2700石3宝</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">富哥太强了
 
+
+*****
+
+####  cckuku  
+##### 17434#       发表于 2025-8-5 13:59
+
+反正我凹了，主要对lip真没兴趣。目前1800石4宝，歪一个欧罗巴，非完了，只能安慰自己跟去年800石满宝水蕾的好运抵消了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">该说不说这免费的石头抽起来就是爽。
+
