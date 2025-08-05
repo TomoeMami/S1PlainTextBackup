@@ -5178,3 +5178,16 @@ Roll？明天再说吧 话说怎么跑题到这了  
  ならなかったから困った。 </blockquote>
 哪次直播提到的，能提供个时间戳吗
 
+
+*****
+
+####  sino__unnko3  
+##### 19318#       发表于 2025-8-5 11:42
+
+ 本帖最后由 sino__unnko3 于 2025-8-5 11:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68217960&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-8-5 11:34</a>
+哪次直播提到的，能提供个时间戳吗</blockquote>
+就今天刚结束的t台直播 6小时47分到48分左右
+
+但根据本地记录，这件事她之前也是一点没提到，不排除口嗨，虽然但是嗓子一直不太好就是了，你咩之前吸那个什么gaba的表现一点不像吸过烟的
+
