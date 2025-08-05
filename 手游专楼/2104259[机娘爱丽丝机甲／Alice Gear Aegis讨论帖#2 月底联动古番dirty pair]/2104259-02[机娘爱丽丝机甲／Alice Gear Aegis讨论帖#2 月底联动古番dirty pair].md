@@ -470,3 +470,11 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 
 <img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">欸调查2.0试了下直接打BOSS好像也不是特别难，就是打完一堆贝壳直接爆仓了（
 
+
+*****
+
+####  regular  
+##### 1597#       发表于 2025-8-5 13:13
+
+我也就敢打个180级左右的，再高就不成了。
+
