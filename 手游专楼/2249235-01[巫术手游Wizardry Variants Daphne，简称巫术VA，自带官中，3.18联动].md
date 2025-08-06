@@ -237,3 +237,14 @@ SR也有一些强角色，Elise的中立增伤，财迷的低消耗僧侣咒文+
 
 看开点，这游戏你当黑魂玩就行，后面你会发现阿猫阿狗都能按着你打，包括但不限于斗技场你那些开挂对手，路边的宝箱怪大蝎子，水里的鱼人，赌场的混混，地下监狱的驼背老头，一拳糊你在墙上的巨人，动不动秒你的吸血鬼，你要学会享受被虐的过程
 
+
+*****
+
+####  LuciferGX  
+##### 487#       发表于 2025-8-7 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68221941&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2025-8-6 00:55</a>
+
+手动删除根目录GameGuard文件夹，换加速器or节点</blockquote>
+删除和换节点都试过了，仍然不行
+

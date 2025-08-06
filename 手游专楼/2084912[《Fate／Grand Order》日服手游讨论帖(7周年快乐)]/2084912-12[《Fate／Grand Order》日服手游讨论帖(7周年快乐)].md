@@ -4171,3 +4171,11 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 我氪了两单才够保底第五宝</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">漏出豪性！
 
+
+*****
+
+####  khxooo  
+##### 17540#       发表于 2025-8-7 00:26
+
+草，EX2助战一堆满宝120所长的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
