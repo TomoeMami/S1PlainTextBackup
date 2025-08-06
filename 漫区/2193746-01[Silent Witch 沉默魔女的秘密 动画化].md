@@ -341,3 +341,11 @@ Web文的CP在长篇连载中意向会变化是很正常的事，例如隔壁下
 
 想起来在《是，大臣》第一季第二集中亦有类似的记载
 
+
+*****
+
+####  ardente  
+##### 134#       发表于 2025-8-6 14:18
+
+制作组应该不会就这么把校服长裙在骑术课一直画下去吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

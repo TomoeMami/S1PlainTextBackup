@@ -3770,3 +3770,11 @@ EX戴冠战第一期选手们的羁绊礼装加成：
 
 ex戴冠最大的问题是cost爆炸，不好贪
 
+
+*****
+
+####  qixinno2  
+##### 17501#       发表于 2025-8-6 14:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了眼自己的卡 不是没有就是1宝水枪 只希望没因陀罗那么蛋疼
+
