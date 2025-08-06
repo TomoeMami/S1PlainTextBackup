@@ -1939,3 +1939,20 @@ PC之类纯画饼的就省略了
 
 除非sp化后很强，不然没什么用
 
+
+*****
+
+####  rockroxas  
+##### 2431#       发表于 2025-8-6 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68225634&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-8-6 17:06</a>
+
+但送的两个ssr已经确定了。
+
+就算有z和百式，多半也就是sr。
+
+除非sp化后很强，不然没什么用 ...</blockquote>
+原本想说驾驶的，但想想SR驾驶就算给再好的技能组也补不来面板差距
+
+机体也是，SP再强驾驶限定SR那还是不行，除非这次的特殊机师能跟机体等级走……？可能性太低
+
