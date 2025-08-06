@@ -1029,3 +1029,13 @@ fgo还能续一年。
 
 艾雷王补到2宝，等抽学姐了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doublehit  
+##### 47308#       发表于 2025-8-6 21:42
+
+几个月前新买的号虽然拐多石头多，但是材料缺口好大，李庄也垃圾。自己的老号泛用打手没有，拐只有个梅林，但一想起仓库里七张黑杯还是不想放弃，推推主线算了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
