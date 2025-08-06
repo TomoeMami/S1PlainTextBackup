@@ -1990,3 +1990,20 @@ PC之类纯画饼的就省略了
 
 现在限定池的普池机超20个了吧，再说每次池都固定+1普池，已经没所谓污染不污染了（
 
+
+*****
+
+####  体制  
+##### 2436#       发表于 2025-8-6 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224940&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-6 15:15</a>
+现在几个永恒敌人都没那么集中吧
+
+而且系列开发机刚好降机动武器，刚好能在需要的地方配合上也不容易
+
+尤其 ...</blockquote>
+这个，降机动武器主要是减少boss凹度的。目前狗代给boss的机动比较高，导致开发机ssr驾驶员普遍只有60-70命中，sr驾驶员更是只有40-50命中，凹起来太痛苦（尤其是挂db的时候）。降机动武器可以让全体命中提升15%左右，**减轻凹度。
+没生存压力就不用挂必闪了。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -257,3 +257,15 @@ zzz是令和良太郎<img src="https://static.stage1st.com/image/smiley/face2017
 
 为啥是个过气老腊肉当二骑，演男主的爹都嫌他气质不符
 
+
+*****
+
+####  仟音一心  
+##### 158#       发表于 2025-8-6 23:50
+
+假面骑士Zeztz OP
+「VISIONS」
+歌手: NAQT VANE 
+作曲: 泽野弘之
+TV.SIZE明天解禁
+
