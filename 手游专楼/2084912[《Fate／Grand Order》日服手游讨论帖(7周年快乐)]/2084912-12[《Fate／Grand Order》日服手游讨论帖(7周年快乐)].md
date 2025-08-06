@@ -4006,3 +4006,44 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">啥职介打所长是红字来着
 
+
+*****
+
+####  Jamaisvu  
+##### 17524#       发表于 2025-8-6 19:38
+
+<blockquote>森兰丸 发表于 2025-8-6 19:32
+啥职介打所长是红字来着</blockquote>
+迦里的所长被狂、月癌和降临者克制，但EX本里这个好像谁打都是白字...
+
+
+*****
+
+####  alucardcz  
+##### 17525#       发表于 2025-8-6 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226271&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-6 19:32</a>
+
+啥职介打所长是红字来着</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">豹豹有点东西啊 躺医院还能豹!
+
+*****
+
+####  森兰丸  
+##### 17526#       发表于 2025-8-6 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226296&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-6 19:38</a>
+
+迦里的所长被狂、月癌和降临者克制，但EX本里这个好像谁打都是白字...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">白字就白字吧....EX里这么多神仙也足够爆杀了
+
+*****
+
+####  森兰丸  
+##### 17527#       发表于 2025-8-6 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226312&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-6 19:40</a>
+
+豹豹有点东西啊 躺医院还能豹!</blockquote>
+泥周凯.....非洲人已经半条命没了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
