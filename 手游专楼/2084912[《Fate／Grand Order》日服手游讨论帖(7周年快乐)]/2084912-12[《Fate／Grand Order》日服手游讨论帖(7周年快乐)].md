@@ -4074,3 +4074,15 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">认定战翻车了。。算了 等树刷满再打了
 
+
+*****
+
+####  poor  
+##### 17531#       发表于 2025-8-6 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226240&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-6 19:26</a>
+两个位置可以是同一EX分组，但不能选同一职业（比如不能选俩伯爵）。
+
+不过两个EX关卡是限定进入职业的， ...</blockquote>
+谢谢，果然是陷阱
+
