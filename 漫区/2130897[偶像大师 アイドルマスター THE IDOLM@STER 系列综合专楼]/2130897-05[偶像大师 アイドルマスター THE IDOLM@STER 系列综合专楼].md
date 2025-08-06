@@ -1223,3 +1223,11 @@ Day 1搞了如Day 2般的演出... 不愧是你，Jungo。
 这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
 top入场一直在放，也算有了（
 
+
+*****
+
+####  Buke  
+##### 7157#       发表于 2025-8-6 12:55
+
+本家NEI Live直播上映会有广州场，周末开完了周一我才知道。玉玉了，调理了几天还没好<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
