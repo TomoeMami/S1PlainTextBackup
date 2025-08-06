@@ -4179,3 +4179,11 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 草，EX2助战一堆满宝120所长的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17541#       发表于 2025-8-7 00:36
+
+为啥我不能兽冠位？因为我没打过四个所长本么？
+
