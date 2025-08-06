@@ -3703,3 +3703,19 @@ MD怎么会有奏4这么傻逼的章节
 实际上这次冲进度的过程中，大部分的助战多少都是 ...</blockquote>
 我辛苦抽的卡凭什么限制我用，你既然强制上角色，为什么设置抽卡这东西<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  exiaexa  
+##### 17497#       发表于 2025-8-6 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224031&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-6 12:29</a>
+
+我辛苦抽的卡凭什么限制我用，你既然强制上角色，为什么设置抽卡这东西，你打白字难道就比我的好友2倍克 ...</blockquote>
+我不说了吗，我牛逼的时候我觉得系统助战没用
+
+我傻逼的时候我觉得她还是有点用的
+
+你跟我杠这个没意义啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
