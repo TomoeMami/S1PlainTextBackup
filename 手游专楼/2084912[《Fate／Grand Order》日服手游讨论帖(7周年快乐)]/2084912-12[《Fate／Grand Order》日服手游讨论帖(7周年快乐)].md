@@ -3778,3 +3778,14 @@ ex戴冠最大的问题是cost爆炸，不好贪
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了眼自己的卡 不是没有就是1宝水枪 只希望没因陀罗那么蛋疼
 
+
+*****
+
+####  少女人形  
+##### 17502#       发表于 2025-8-6 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224546&amp;ptid=2084912" target="_blank">quanlix 发表于 2025-8-6 14:07</a>
+
+ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
+用4星玛修大人就好
+
