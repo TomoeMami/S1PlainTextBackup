@@ -3789,3 +3789,14 @@ ex戴冠最大的问题是cost爆炸，不好贪
 ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 用4星玛修大人就好
 
+
+*****
+
+####  jackyhuang  
+##### 17503#       发表于 2025-8-6 14:50
+
+外星人章节会像迪拜一样
+今年没圣诞了，还有什么活动好献祭的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
