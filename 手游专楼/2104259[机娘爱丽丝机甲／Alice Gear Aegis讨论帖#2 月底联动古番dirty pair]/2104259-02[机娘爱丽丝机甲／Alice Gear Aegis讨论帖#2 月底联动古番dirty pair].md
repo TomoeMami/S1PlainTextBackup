@@ -516,3 +516,15 @@ SB金字塔把新调查任务的技能强化用素材换成开贝形式了，似
 太绝望了，下午用大魔王带着二星宁里刷调查，出的贝 ...</blockquote>
 正常输出开了强化直接转起来就行吧 那个下派生对伤害有影响吗？
 
+
+*****
+
+####  冰风血羽  
+##### 1602#       发表于 2025-8-6 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68225159&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-8-6 15:50</a>
+
+正常输出开了强化直接转起来就行吧 那个下派生对伤害有影响吗？</blockquote>
+我抽不到只能试玩里转转转玩玩，贴吧有个分支讲解你可以看看
+[https://tieba.baidu.com/p/9929144342](https://tieba.baidu.com/p/9929144342)
+

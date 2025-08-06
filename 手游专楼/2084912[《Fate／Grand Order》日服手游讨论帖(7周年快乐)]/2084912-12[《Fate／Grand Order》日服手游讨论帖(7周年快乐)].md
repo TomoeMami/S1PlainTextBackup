@@ -3821,3 +3821,11 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 接下来国服要迎接的奏章三，看最后的两场战斗（月癌战、双白野战）完全就是奔着吃人（灵脉）石去的，完全不讲情面。
 2.5开场那个狂阶塔罗斯确实给人不好的印象，初见杀太恶意了。
 
+
+*****
+
+####  qixinno2  
+##### 17506#       发表于 2025-8-6 16:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后术冠应该就是打所罗门了
+
