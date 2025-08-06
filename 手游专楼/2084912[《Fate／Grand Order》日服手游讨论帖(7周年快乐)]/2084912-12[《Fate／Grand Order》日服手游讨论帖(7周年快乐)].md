@@ -3673,3 +3673,33 @@ MD怎么会有奏4这么傻逼的章节
 真正让助战难蹦的是2.6合奏章3，我不理解菌类在想什么，要么没buff要么配置有问题，然后你要去打对面一堆框，多整点奏章2和奏章4的这种有用的剧情buff比什么都强，
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 17495#       发表于 2025-8-6 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68221686&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2025-8-5 23:46</a>
+
+奏4这教育的谁对谁错先放一边，莉莉丝和玛修捉对撕逼这套我还蛮吃的</blockquote>
+玩奏章4的时候就感觉这个人完美符合riyo的性癖，那种扭曲的女同
+
+<img src="https://img.stage1st.com/forum/202508/06/122835m8if8cgc5dcccccd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ffe596958d38d5bc1672ab9a4fe548d6.jpeg</strong> (492.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-6 12:28 上传
+
+*****
+
+####  khxooo  
+##### 17496#       发表于 2025-8-6 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68223959&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-6 12:18</a>
+我用卖掉的老号我会同意这个看法，但是我现在不这么看
+
+实际上这次冲进度的过程中，大部分的助战多少都是 ...</blockquote>
+我辛苦抽的卡凭什么限制我用，你既然强制上角色，为什么设置抽卡这东西<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">。
+
