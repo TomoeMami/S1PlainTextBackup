@@ -7299,10 +7299,10 @@
     "update": false
   },
   "1978008": {
-    "totalreply": 4236,
+    "totalreply": 4237,
     "title": "[金亨泰Shift Up新作《星刃 ／ Stellar Blade》PV公开，4月26日发售]",
     "newtitle": "[金亨泰Shift Up新作《剑星（星刃）／ Stellar Blade》／PC版6月12日发售]",
-    "lastedit": 1754486773,
+    "lastedit": 1754488338,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 182676,
+    "totalreply": 182680,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754487981,
+    "lastedit": 1754488688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8739,10 +8739,10 @@
     "update": false
   },
   "2135953": {
-    "totalreply": 1175,
+    "totalreply": 1176,
     "title": "[灵游坊开发，影之刃0公布，确认登录ps5和pc]",
     "newtitle": "[灵游坊开发，影之刃0公布，确认登录ps5和pc／1.22新实机等情报]",
-    "lastedit": 1754487981,
+    "lastedit": 1754488338,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 12631,
+    "totalreply": 12640,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1754487981,
+    "lastedit": 1754488338,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 178105,
+    "totalreply": 178109,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1754487851,
+    "lastedit": 1754488447,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11876,7 +11876,7 @@
     "newtitle": "[モクモクれん《光死去的夏天》TV动画2025年7月6日播出]",
     "lastedit": 1754229379,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2103274": {
@@ -12231,10 +12231,10 @@
     "update": false
   },
   "2256712": {
-    "totalreply": 1465,
+    "totalreply": 1466,
     "title": "[要不咱们赌一把，大家觉得《明末》内容会踩几个雷？]",
     "newtitle": "[明末发售结算了，首日差评如潮，喜提村里第一个jiangping]",
-    "lastedit": 1754487736,
+    "lastedit": 1754488567,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13239,10 +13239,10 @@
     "update": false
   },
   "2000791": {
-    "totalreply": 389,
+    "totalreply": 390,
     "title": "[失落之魂将于2025年登录pc／ps5,由索尼负责全球发行，8.29发售]",
     "newtitle": "[失落之魂将于2025年登录pc／ps5,由索尼负责全球发行，8.29发售]",
-    "lastedit": 1754487981,
+    "lastedit": 1754488338,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14909,7 +14909,7 @@
     "newtitle": "[井口裕香原来这么大的么？]",
     "lastedit": 1754229380,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2257817": {
@@ -16875,10 +16875,10 @@
     "update": false
   },
   "2258460": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[片面的算了一下，90年代中日国民收入真是天壤之别]",
     "newtitle": "[片面的算了一下，90年代中日国民收入真是天壤之别]",
-    "lastedit": 1754487736,
+    "lastedit": 1754488689,
     "category": "外野",
     "active": true,
     "update": false
@@ -16907,6 +16907,15 @@
     "newtitle": "[女子自称“心情不好”在猫咖店虐猫致4只猫死亡]",
     "lastedit": 1754477538,
     "category": "手游战斗",
+    "active": true,
+    "update": false
+  },
+  "2258482": {
+    "totalreply": 42,
+    "title": "[有哪些游戏你尽管骂骂咧咧天天黑，但出了新作还是会老老实实掏钱？]",
+    "newtitle": "[有哪些游戏你尽管骂骂咧咧天天黑，但出了新作还是会老老实实掏钱？]",
+    "lastedit": 1754488338,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
