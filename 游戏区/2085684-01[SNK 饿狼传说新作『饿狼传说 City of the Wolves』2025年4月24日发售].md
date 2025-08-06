@@ -266,3 +266,11 @@ ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也
 可见这段时间是没少下功夫 ...</blockquote>
 是的 我觉得饿狼是个比KOF和街霸还吃练度的游戏， ET的努力真没话说
 
+
+*****
+
+####  特隆凯蒂  
+##### 561#       发表于 2025-8-6 11:15
+
+SNK的幽默更新，把比利砍成老寒腿择自己为什么特瑞跟着一起挨刀啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
