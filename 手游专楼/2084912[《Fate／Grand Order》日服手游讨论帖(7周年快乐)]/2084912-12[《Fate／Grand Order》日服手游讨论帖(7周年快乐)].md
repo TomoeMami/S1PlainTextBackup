@@ -4227,3 +4227,15 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 发霉通的特辑说全从者的8920人、全五宝的63人<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sin.yugi  
+##### 17546#       发表于 2025-8-7 04:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227449&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-8-6 12:29</a>
+发霉通的特辑说全从者的8920人、全五宝的63人</blockquote>
+8920人比想象中少，大佬你应该也是其中一个<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+— from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
