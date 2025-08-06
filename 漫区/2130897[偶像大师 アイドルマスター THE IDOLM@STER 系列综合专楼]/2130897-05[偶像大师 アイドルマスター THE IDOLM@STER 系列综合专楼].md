@@ -1258,3 +1258,58 @@ top入场一直在放，也算有了（
 
 之前B站传了一版本家的ncoped合集，就用的躺一圈那个做的封面
 
+
+*****
+
+####  游蜓  
+##### 7160#       发表于 2025-8-5 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219694&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2025-8-5 16:48</a>
+
+这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
+top入场一直在放，也算有了（
+
+
+*****
+
+####  Buke  
+##### 7161#       发表于 2025-8-6 12:55
+
+本家NEI Live直播上映会有广州场，周末开完了周一我才知道。玉玉了，调理了几天还没好<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫灰灰  
+##### 7162#       发表于 2025-8-7 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219694&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2025-8-5 16:48</a>
+这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
+鸟出演名单里就有啊，你不会看live之前都没关注吧
+
+*****
+
+####  RhmBWT_Wu  
+##### 7163#       发表于 2025-8-7 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218722&amp;ptid=2130897" target="_blank">御坂MKII 发表于 2025-8-5 14:12</a>
+
+对我来说，这次 live 在排除客观因素之外，真的是相当完美的了。而且我是真的非常非常喜欢作为动画结尾的  ...</blockquote>
+我也很喜欢私たちはずっと…でしょう？
+
+当初看动画看到25集，这首歌前面放之前的闪回，真有感受到了24集陪伴的感情<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+后面种树，树林里飞起的光芒变成台下的荧光棒我也很喜欢<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+之前B站传了一版本家的ncoped合集，就用的躺一圈那个做的封面
+
+*****
+
+####  斑驳的阴影  
+##### 7164#       发表于 2025-8-7 06:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224176&amp;ptid=2130897" target="_blank">Buke 发表于 2025-8-6 12:55</a>
+本家NEI Live直播上映会有广州场，周末开完了周一我才知道。玉玉了，调理了几天还没好 ...</blockquote>
+没事，票很早就卖光了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
