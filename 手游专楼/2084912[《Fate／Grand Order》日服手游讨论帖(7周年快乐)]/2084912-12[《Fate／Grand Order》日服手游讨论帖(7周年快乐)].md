@@ -4047,3 +4047,22 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 豹豹有点东西啊 躺医院还能豹!</blockquote>
 泥周凯.....非洲人已经半条命没了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17528#       发表于 2025-8-6 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226327&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-6 19:44</a>
+
+泥周凯.....非洲人已经半条命没了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">真正的非萌现在已经1900石2宝了  预计后天就能2000石2宝了
+
+
+*****
+
+####  khxooo  
+##### 17529#       发表于 2025-8-6 19:51
+
+小福袋，抽到了整个游戏最强的机制怪和数值怪的你青<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">，不错不错。
+
