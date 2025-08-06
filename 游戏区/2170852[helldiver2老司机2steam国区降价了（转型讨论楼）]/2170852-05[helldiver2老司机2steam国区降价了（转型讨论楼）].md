@@ -96,3 +96,14 @@ CJ直播怎么还在尬吹洋泾浜保卫战啊…索尼中国没活了吗
 <img src="https://p.sda1.dev/26/7c71d45bd19238ca7e937e8188ccd470/CMP_20250807013158743.jpg" referrerpolicy="no-referrer">
 梗图已经出了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半分宅  
+##### 6915#       发表于 2025-8-7 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227436&amp;ptid=2170852" target="_blank">qwased 发表于 2025-8-6 13:21</a>
+
+轨道炮这么个200秒CD大部分时候不如次抛好使的东西，免费送还能用用，要自己带还是算了 ...</blockquote>
+就是个局势很难看的时候拿来解场的东西。第一发筒子马枪了，或是同时出好几只重甲，来不及装填筒子，紧急掏出轨道炮丢在地上减轻压力。
+
