@@ -1231,3 +1231,13 @@ top入场一直在放，也算有了（
 
 本家NEI Live直播上映会有广州场，周末开完了周一我才知道。玉玉了，调理了几天还没好<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫灰灰  
+##### 7158#       发表于 2025-8-7 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68219694&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2025-8-5 16:48</a>
+这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
+鸟出演名单里就有啊，你不会看live之前都没关注吧
+
