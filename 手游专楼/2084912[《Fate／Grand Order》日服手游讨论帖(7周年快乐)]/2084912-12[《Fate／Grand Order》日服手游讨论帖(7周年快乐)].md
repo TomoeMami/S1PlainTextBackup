@@ -4142,3 +4142,11 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">这认定战也太烦了 。是我没找对打法吗
 
+
+*****
+
+####  alucardcz  
+##### 17537#       发表于 2025-8-6 22:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2个都打完了 挖了点矿 然后喜提2000+30护符2宝 很合理
+
