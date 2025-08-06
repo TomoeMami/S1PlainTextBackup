@@ -1241,3 +1241,20 @@ top入场一直在放，也算有了（
 这次少了一首mysong，一首top，但是也是完美的了，第一天我看到有鸟的时候直接愣住了，第二天直接和漏油整 ...</blockquote>
 鸟出演名单里就有啊，你不会看live之前都没关注吧
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 7159#       发表于 2025-8-7 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218722&amp;ptid=2130897" target="_blank">御坂MKII 发表于 2025-8-5 14:12</a>
+
+对我来说，这次 live 在排除客观因素之外，真的是相当完美的了。而且我是真的非常非常喜欢作为动画结尾的  ...</blockquote>
+我也很喜欢私たちはずっと…でしょう？
+
+当初看动画看到25集，这首歌前面放之前的闪回，真有感受到了24集陪伴的感情<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+后面种树，树林里飞起的光芒变成台下的荧光棒我也很喜欢<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+之前B站传了一版本家的ncoped合集，就用的躺一圈那个做的封面
+
