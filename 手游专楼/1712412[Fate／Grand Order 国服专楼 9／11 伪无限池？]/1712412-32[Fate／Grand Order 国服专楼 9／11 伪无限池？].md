@@ -1021,3 +1021,11 @@ fgo还能续一年。
 
 个人准备1宝停手应对自出的场合以及挖月光采矿场就好了
 
+
+*****
+
+####  失落之翼  
+##### 47307#       发表于 2025-8-6 11:50
+
+艾雷王补到2宝，等抽学姐了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -3645,3 +3645,13 @@ MD怎么会有奏4这么傻逼的章节
 
 2025-8-6 06:36 上传
 
+
+*****
+
+####  Blackson  
+##### 17493#       发表于 2025-8-6 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68222952&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-6 09:56</a>
+ 大概评价一下你游现在的系统下，冲进度的感觉吧  1、C呆的重要性跟其他拐有着断崖级的差距，碾压级的稳定性 ...</blockquote>
+你游现在主线能给人上难度的地方要么锁助战、要么各种直呼玩不起的破血条效果。尤以前者最为严重，因为废掉你一个位置，让你双拳难敌四手
+
