@@ -4066,3 +4066,11 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 小福袋，抽到了整个游戏最强的机制怪和数值怪的你青<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">，不错不错。
 
+
+*****
+
+####  alucardcz  
+##### 17530#       发表于 2025-8-6 20:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">认定战翻车了。。算了 等树刷满再打了
+
