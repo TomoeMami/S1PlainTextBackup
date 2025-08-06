@@ -3894,3 +3894,18 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 150果子龙，但是加上之前的480，总共630石头才将这傲娇龙拿到手<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17512#       发表于 2025-8-6 18:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么12一起开的 刷死了这要
+
+*****
+
+####  alucardcz  
+##### 17513#       发表于 2025-8-6 18:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">太强了 ex阶 300万没树直接带走
+

@@ -1964,3 +1964,21 @@ PC之类纯画饼的就省略了
 
 新池子居然也是限定<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  胖达君  
+##### 2433#       发表于 2025-8-6 17:56
+
+继续存钻，SD高达外传系列的角色都不喜欢
+
+*****
+
+####  无念  
+##### 2434#       发表于 2025-8-6 18:01
+
+限定好啊，不会污染普池
+强度美另说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
