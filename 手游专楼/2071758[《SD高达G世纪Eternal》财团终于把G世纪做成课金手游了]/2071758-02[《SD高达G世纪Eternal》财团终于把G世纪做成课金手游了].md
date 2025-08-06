@@ -1818,3 +1818,28 @@ PC之类纯画饼的就省略了
 
 或者官方玩个绝的，毕竟这游戏的机体都算SD高达，所以这个标签覆盖所有机体。
 
+
+*****
+
+####  岸波白野  
+##### 2423#       发表于 2025-8-6 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68218608&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-8-5 13:46</a>
+
+我玩SD就想玩那些犄角旮旯里的外传啊</blockquote>
++1,但比较反核心用户高达老登直觉的是要支撑手游这种大体量营收的话还是商业化上优先考量传播力本来就很强的机体角色，而且推有动画的作品也方便把手游吸来的用户进行转化，但终归这玩意是把主机作要干没了的样越想还是越气的<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 2424#       发表于 2025-8-6 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224967&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-8-6 15:21</a>
+
+“SD高达”标签范围也太窄了。
+
+或者官方玩个绝的，毕竟这游戏的机体都算SD高达，所以这个标签覆盖所有机体 ...</blockquote>
+不可能吧，G世纪标签都没这么强
+
+目前最大的桃大概是跟钢普拉一样，按原型加算标签，比如骑士沙扎比算逆鸭这样
+
