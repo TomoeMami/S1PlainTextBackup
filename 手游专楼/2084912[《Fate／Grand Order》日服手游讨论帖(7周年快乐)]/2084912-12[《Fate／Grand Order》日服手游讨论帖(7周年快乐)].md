@@ -3800,3 +3800,24 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 17504#       发表于 2025-8-6 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68224798&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-8-6 14:50</a>
+外星人章节会像迪拜一样
+今年没圣诞了，还有什么活动好献祭的</blockquote>
+没有名义上的主线，要拖9、10、11总共3个月，随便复刻2个活动加一个新活动，或者干脆全是复刻，每个月的冠位战就可以了。12月开最后的术冠位加2部终章。
+
+*****
+
+####  Blackson  
+##### 17505#       发表于 2025-8-6 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68223959&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-6 12:18</a>
+ 我用卖掉的老号我会同意这个看法，但是我现在不这么看 实际上这次冲进度的过程中，大部分的助战多少都是 ...</blockquote>
+接下来国服要迎接的奏章三，看最后的两场战斗（月癌战、双白野战）完全就是奔着吃人（灵脉）石去的，完全不讲情面。
+2.5开场那个狂阶塔罗斯确实给人不好的印象，初见杀太恶意了。
+
