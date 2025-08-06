@@ -4187,3 +4187,35 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 为啥我不能兽冠位？因为我没打过四个所长本么？
 
+
+*****
+
+####  khxooo  
+##### 17542#       发表于 2025-8-7 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227342&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-8-7 00:36</a>
+
+为啥我不能兽冠位？因为我没打过四个所长本么？</blockquote>
+是的，必须要打4个所长才能兽阶冠位。
+
+
+*****
+
+####  洛克萨斯  
+##### 17543#       发表于 2025-8-7 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227344&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-7 00:38</a>
+
+是的，必须要打4个所长才能兽阶冠位。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">............完蛋，瞬间不想玩了，四座塔有排打
+
+*****
+
+####  khxooo  
+##### 17544#       发表于 2025-8-7 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227349&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-8-7 00:42</a>
+
+............完蛋，瞬间不想玩了，四座塔有排打</blockquote>
+没办法，总得让纹章起点作用<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
