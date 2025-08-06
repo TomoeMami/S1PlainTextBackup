@@ -3927,3 +3927,56 @@ EX冠还是太全面了，突出一个xjbd
 
 枪冠真是屑中之屑
 
+
+*****
+
+####  琴酒  
+##### 17516#       发表于 2025-8-6 19:03
+
+奇怪为什么我的兽 不能戴冠 
+
+等级100技能全10了啊
+
+*****
+
+####  quanlix  
+##### 17517#       发表于 2025-8-6 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226166&amp;ptid=2084912" target="_blank">琴酒 发表于 2025-8-6 19:03</a>
+奇怪为什么我的兽 不能戴冠 
+
+等级100技能全10了啊</blockquote>
+四个大统领特异点都打完了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  quanlix  
+##### 17518#       发表于 2025-8-6 19:05
+
+EX怪物太多，咔咔乱杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  琴酒  
+##### 17519#       发表于 2025-8-6 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226171&amp;ptid=2084912" target="_blank">quanlix 发表于 2025-8-6 19:04</a>
+
+四个大统领特异点都打完了吗
+
+—— 来自 S1Fun</blockquote>
+没打完
+
+完蛋
+
+*****
+
+####  天王寺凯伊姆  
+##### 17520#       发表于 2025-8-6 19:08
+
+ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐了，太伟大了
+
