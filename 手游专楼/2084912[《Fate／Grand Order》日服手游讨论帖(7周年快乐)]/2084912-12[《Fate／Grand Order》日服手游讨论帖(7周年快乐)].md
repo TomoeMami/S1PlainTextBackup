@@ -3845,3 +3845,44 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 可惜不是群冲30
 
+
+*****
+
+####  Jamaisvu  
+##### 17509#       发表于 2025-8-6 17:41
+
+没想到能一次性戴冠两个角色，再转一下EX2从者的羁绊加成表：
+
+<img src="https://img.stage1st.com/forum/202508/06/174109d5kt5e9k9eaaz8ym.jpg" referrerpolicy="no-referrer">
+
+<strong>7E059107FD0C366A7DA19D385B005686.jpg</strong> (169.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 17:41 上传
+
+<img src="https://img.stage1st.com/forum/202508/06/174109clxqsbvpqcxbcxsc.jpg" referrerpolicy="no-referrer">
+
+<strong>111AF444224D3890ACABA3CDDDD5174E.jpg</strong> (170.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 17:41 上传
+
+*****
+
+####  alucardcz  
+##### 17510#       发表于 2025-8-6 17:43
+
+<img src="https://img.stage1st.com/forum/202508/06/174337nmr4erkjn36nk9ng.png" referrerpolicy="no-referrer">
+
+<strong>2323232.png</strong> (550.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-6 17:43 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">上班上班 羁绊礼装来不及了
+
