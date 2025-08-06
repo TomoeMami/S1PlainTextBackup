@@ -3909,3 +3909,11 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">太强了 ex阶 300万没树直接带走
 
+
+*****
+
+####  高木なつめ  
+##### 17514#       发表于 2025-8-6 18:14
+
+居然好友列表里有人给奥伯龙戴冠，太感谢他了
+
