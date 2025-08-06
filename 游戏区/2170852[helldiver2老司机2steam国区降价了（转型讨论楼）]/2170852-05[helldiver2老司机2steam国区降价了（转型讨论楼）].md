@@ -79,3 +79,11 @@ CJ直播怎么还在尬吹洋泾浜保卫战啊…索尼中国没活了吗
 
 休假结束了吧，赶紧修bug<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6913#       发表于 2025-8-7 01:21
+
+轨道炮这么个200秒CD大部分时候不如次抛好使的东西，免费送还能用用，要自己带还是算了
+
