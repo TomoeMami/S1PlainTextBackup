@@ -1956,3 +1956,11 @@ PC之类纯画饼的就省略了
 
 机体也是，SP再强驾驶限定SR那还是不行，除非这次的特殊机师能跟机体等级走……？可能性太低
 
+
+*****
+
+####  arthes  
+##### 2432#       发表于 2025-8-6 17:48
+
+新池子居然也是限定<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

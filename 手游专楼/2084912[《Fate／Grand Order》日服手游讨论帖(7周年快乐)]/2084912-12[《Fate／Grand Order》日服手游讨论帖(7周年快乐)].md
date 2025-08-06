@@ -3886,3 +3886,11 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">上班上班 羁绊礼装来不及了
 
+
+*****
+
+####  khxooo  
+##### 17511#       发表于 2025-8-6 17:54
+
+150果子龙，但是加上之前的480，总共630石头才将这傲娇龙拿到手<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
