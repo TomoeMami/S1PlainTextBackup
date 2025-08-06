@@ -1780,3 +1780,15 @@ PC之类纯画饼的就省略了
 
 能不能出个泛用的8% 10%机动啊，开发机真的很需要补命中
 
+
+*****
+
+####  体制  
+##### 2420#       发表于 2025-8-6 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68222868&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-6 09:44</a>
+能不能出个泛用的8% 10%机动啊，开发机真的很需要补命中</blockquote>
+可以用必闪防机降机动武器
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
