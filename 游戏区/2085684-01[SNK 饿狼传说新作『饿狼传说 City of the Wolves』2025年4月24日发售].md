@@ -274,3 +274,14 @@ ET太可惜了，连续几次都是生死择没猜对，这个年龄，天赋也
 
 SNK的幽默更新，把比利砍成老寒腿择自己为什么特瑞跟着一起挨刀啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔王候补77号  
+##### 562#       发表于 2025-8-6 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68223530&amp;ptid=2085684" target="_blank">特隆凯蒂 发表于 2025-8-6 11:15</a>
+
+SNK的幽默更新，把比利砍成老寒腿择自己为什么特瑞跟着一起挨刀啊</blockquote>
+特瑞还行 没感觉有什么削弱 在大家都多少挨了刀的情况下反而觉得算是加强了
+
