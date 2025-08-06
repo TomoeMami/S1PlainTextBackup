@@ -15243,3 +15243,14 @@ https://x.com/CrimsonRoze/status/1951892187630760046
 剑星剧情梗概</blockquote>
 还可以加个迅驰挡在伊芙背后，用怒斥猫猫的姿势喊“干什么”
 
+
+*****
+
+####  洛克萨斯  
+##### 4236#       发表于 2025-8-6 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68225820&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-8-6 17:40</a>
+
+剑星剧情梗概</blockquote>
+精辟
+

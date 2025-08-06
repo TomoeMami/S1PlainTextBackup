@@ -4102,3 +4102,27 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 所长3形态拐力太强了
 
+
+*****
+
+####  Jamaisvu  
+##### 17534#       发表于 2025-8-6 21:16
+
+发一下四个所长的特性，可以针对性地使用特攻从者：
+
+<img src="https://img.stage1st.com/forum/202508/06/211615oreervr1akr6naj6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250806_211301.jpg</strong> (105.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 21:16 上传
+
+*****
+
+####  实验性  
+##### 17535#       发表于 2025-8-6 21:16
+
+想着登上来品鉴一下，结果发现上次重装mumu把号搞没了，引继码真是坏文明<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
