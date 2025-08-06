@@ -2015,3 +2015,14 @@ PC之类纯画饼的就省略了
 
 世代之塔打满15层能有七八千钻吗
 
+
+*****
+
+####  rockroxas  
+##### 2438#       发表于 2025-8-7 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227235&amp;ptid=2071758" target="_blank">Lds19 发表于 2025-8-6 23:56</a>
+
+世代之塔打满15层能有七八千钻吗</blockquote>
+从1到15，总共3300，公告有写
+

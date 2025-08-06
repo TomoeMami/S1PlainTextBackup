@@ -5756,3 +5756,28 @@ Kei 酱。 要是觉得那种讨厌的话就只能变熟练点了。 作为 ADC 
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">可以结束了吗
 
+
+*****
+
+####  古战场亡魂  
+##### 19341#       发表于 2025-8-7 00:08
+
+逆风的时候泰坦这种英雄就是理想的背锅位，没勾中是开团不利疏通肠道，勾到了是带头送死。
+
+不过真厉害啊，在崩溃前把bgm开了，真是pro的主播。
+
+也没下播，继续打。
+
+*****
+
+####  术士q  
+##### 19342#       发表于 2025-8-7 00:09
+
+打野高飞和玩ad的imp加上yukio和kamito组成的训练赛
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+咩和imp的一些互动挺可爱的
+in酱是把我屏蔽了嘛
+in酱不要挂机啊
+
