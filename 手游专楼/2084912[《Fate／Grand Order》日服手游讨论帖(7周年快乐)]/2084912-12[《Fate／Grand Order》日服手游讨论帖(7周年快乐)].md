@@ -3727,3 +3727,38 @@ MD怎么会有奏4这么傻逼的章节
 
 今天c妈和卡米拉的广告礼装没语音，暂时还没人接大田中的班
 
+
+*****
+
+####  Jamaisvu  
+##### 17499#       发表于 2025-8-6 13:30
+
+EX戴冠战第一期选手们的羁绊礼装加成：
+
+<img src="https://img.stage1st.com/forum/202508/06/133036u0zv19jz9kcjh33s.jpg" referrerpolicy="no-referrer">
+
+<strong>918C3A691224D496F0BA68C2A708BA67.jpg</strong> (154.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 13:30 上传
+
+<img src="https://img.stage1st.com/forum/202508/06/133036wx0vvtavxa0xsgqs.jpg" referrerpolicy="no-referrer">
+
+<strong>F39D61A903955E3B2D1442F3398052C3.jpg</strong> (155.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 13:30 上传
+
+<img src="https://img.stage1st.com/forum/202508/06/133037h99qzo2vuzn65cdq.jpg" referrerpolicy="no-referrer">
+
+<strong>72B80B28D505220203460FD913938CCA.jpg</strong> (187.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-6 13:30 上传
+
