@@ -3829,3 +3829,19 @@ ex戴冠最大的问题是cost爆炸，不好贪</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后术冠应该就是打所罗门了
 
+
+*****
+
+####  angelooo  
+##### 17507#       发表于 2025-8-6 17:05
+
+果然是雪山樱
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 17508#       发表于 2025-8-6 17:13
+
+可惜不是群冲30
+

@@ -1922,3 +1922,20 @@ PC之类纯画饼的就省略了
 
 看看有没有开发骑士百式跟剑士Z吧，好像这个故事里是配角来着
 
+
+*****
+
+####  行政裁定书  
+##### 2430#       发表于 2025-8-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68225495&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-6 16:46</a>
+
+公告写的是编入机体自动编机师，解体机体机师消失，没说编入机师自动编机体？
+
+就是假如有多台SD会有多个 ...</blockquote>
+但送的两个ssr已经确定了。
+
+就算有z和百式，多半也就是sr。
+
+除非sp化后很强，不然没什么用
+
