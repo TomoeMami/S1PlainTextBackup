@@ -1792,3 +1792,29 @@ PC之类纯画饼的就省略了
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 2421#       发表于 2025-8-6 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68223724&amp;ptid=2071758" target="_blank">体制 发表于 2025-8-6 11:41</a>
+
+可以用必闪防机降机动武器
+
+—— 来自 Xiaomi 24129PN74C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+现在几个永恒敌人都没那么集中吧
+
+而且系列开发机刚好降机动武器，刚好能在需要的地方配合上也不容易
+
+尤其Z永恒都要SR上阵了，Z好像一个必闪都没？更别说必闪防了（虽然Z也不需要必闪，敌人的攻击力没那么高）
+
+*****
+
+####  行政裁定书  
+##### 2422#       发表于 2025-8-6 15:21
+
+“SD高达”标签范围也太窄了。
+
+或者官方玩个绝的，毕竟这游戏的机体都算SD高达，所以这个标签覆盖所有机体。
+
