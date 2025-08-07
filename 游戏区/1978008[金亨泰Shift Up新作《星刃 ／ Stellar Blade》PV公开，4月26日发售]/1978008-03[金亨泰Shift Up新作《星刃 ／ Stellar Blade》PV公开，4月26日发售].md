@@ -15368,3 +15368,16 @@ StellarBlade_250805_23562000000.webp
 11号矩阵，一处可以眺望大沙漠的著名吹裙，啊不对，吹风景点</blockquote>
 11号矩阵的入口其实就是大沙漠东南，那个营地和电话中间满地是炸药箱的地方
 
+
+*****
+
+####  rap72  
+##### 4242#       发表于 2025-8-7 08:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227373&amp;ptid=1978008" target="_blank">方舟售票员 发表于 2025-8-7 00:49</a>
+有没有哪个mod是把旗袍上身的披肩长袖去掉的啊</blockquote>
+https://www.nexusmods.com/stellarblade/mods/1032?tab=description
+这个，里面的alternative outfits
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
