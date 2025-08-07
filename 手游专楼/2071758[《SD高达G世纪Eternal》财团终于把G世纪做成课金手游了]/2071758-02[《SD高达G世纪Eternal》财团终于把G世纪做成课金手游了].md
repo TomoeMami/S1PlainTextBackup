@@ -2069,3 +2069,15 @@ PC之类纯画饼的就省略了
 
 我也觉得这次塔还可以，难度适中，关卡里也有很多原作相关梗，看得出来是用心的
 
+
+*****
+
+####  无念  
+##### 2443#       发表于 2025-8-7 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68226847&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-6 21:56</a>
+现在限定池的普池机超20个了吧，再说每次池都固定+1普池，已经没所谓污染不污染了（ ...</blockquote>
+不不不，要是sd都锁死机师和机体，那等于你抽一个半残废机师出来，歪的还好，保底出那真是高血压好吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
