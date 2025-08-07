@@ -260,3 +260,14 @@
 
 Q娃Staff现在给我感觉就是“怕死”、“不敢动”。但是又很想动某些方面的话题，这种自己给自己落得“进退不得”的境地除非它们自己下狠心或有强大外力所迫，否则真没法让这个戏列动摇
 
+
+*****
+
+####  八木爱月  
+##### 1214#       发表于 2025-8-7 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68220410&amp;ptid=2208663" target="_blank">阿卡拉兰斯 发表于 2025-8-5 18:57</a>
+
+应该说近几年的Q正作都不太行，个人觉得不错的只有某个续作</blockquote>
+我猜你说的是 法q2？
+
