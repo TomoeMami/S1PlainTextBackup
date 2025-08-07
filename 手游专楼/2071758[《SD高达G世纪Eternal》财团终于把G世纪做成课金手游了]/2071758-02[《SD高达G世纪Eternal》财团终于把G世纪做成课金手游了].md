@@ -2185,3 +2185,17 @@ PC之类纯画饼的就省略了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无念  
+##### 2453#       发表于 2025-8-7 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68232150&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-8-7 22:47</a>
+只能说你这要求放到一个氪金手游上确实有点离谱氪佬花了钱却发现自己抽的东西完全用不到属实有点喜剧
+
+— ...</blockquote>
+高难小乐子嘛<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
