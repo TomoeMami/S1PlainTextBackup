@@ -14464,3 +14464,22 @@ QQ群搜索里面直接搜黑夜君临群，加几个活跃度高的，要打就
 老哥你这个群号是qq群吗</blockquote>
 sorry没关私密搜索 现在能搜到了
 
+
+*****
+
+####  jacket  
+##### 1382#       发表于 2025-8-7 22:01
+
+普通地形，没搞明白怎么打，总之15级无赖用火武器莽穿了
+
+*****
+
+####  usodakedo  
+##### 1383#       发表于 2025-8-7 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68231801&amp;ptid=2210352" target="_blank">jockeyjoestar 发表于 2025-8-7 21:26</a>
+
+问一下法环雾门mod怎么打  怎么和随机物品mod整合</blockquote>
+没打过法环的mod，但应该和魂3差不多吧，你要不参考一下这个魂3雾门随机的安装方式
+[https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.bilibili.com/video/BV1r2PjenEyY/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d)
+
