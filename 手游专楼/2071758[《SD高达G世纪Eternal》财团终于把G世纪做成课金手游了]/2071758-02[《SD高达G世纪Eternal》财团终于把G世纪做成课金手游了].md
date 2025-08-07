@@ -2081,3 +2081,15 @@ PC之类纯画饼的就省略了
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 2444#       发表于 2025-8-7 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229378&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-8-7 13:25</a>
+虽然都说爬塔难但我还挺喜欢的，终于有点战棋游戏关卡设计的样子了，全灭，到达/防止到达指定位置，过关条 ...</blockquote>
+我觉得难度还不够，要有机战前中期那种限定机师机体走限定步数限定回合过关的额外关卡才好，反正真的不会打的关抄作业就好了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
