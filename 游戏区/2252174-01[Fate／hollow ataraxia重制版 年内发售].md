@@ -427,3 +427,15 @@ ns港区没有啊，a爹你在干什么
 
 为什么开头是恐怖片开局啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">，希望后面不要有jump scare。
 
+
+*****
+
+####  cuchulain2021  
+##### 47#       发表于 2025-8-7 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68230885&amp;ptid=2252174" target="_blank">空洞骑士 发表于 2025-8-7 18:10</a>
+为什么开头是恐怖片开局啊，希望后面不要有jump scare。</blockquote>
+居然有没玩过fha的。。。开头是个鬼故事啦，后面就没了
+
+—— 来自 OnePlus KB2000, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
