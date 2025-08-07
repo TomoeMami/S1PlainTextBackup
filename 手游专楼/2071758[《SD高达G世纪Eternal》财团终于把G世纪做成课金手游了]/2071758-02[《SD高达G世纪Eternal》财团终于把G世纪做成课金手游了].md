@@ -2160,3 +2160,28 @@ PC之类纯画饼的就省略了
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 2451#       发表于 2025-8-7 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68231541&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-8-7 20:35</a>
+其实你说的这种和永恒之路比较好抄作业，像这次14和15层没限制了，没认真研究机制或者没想到破局思路的反 ...</blockquote>
+永恒之路和这次的塔有啥区别么，不都是阵容自选，真要抄就等自己能用的作业就好
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  acg_gyanc  
+##### 2452#       发表于 2025-8-7 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68231442&amp;ptid=2071758" target="_blank">无念 发表于 2025-8-7 20:16</a>
+不不不，我说的是固定阵容打固定阵容
+比较容易理解的话就是历代版权机战第一话这种，没法选人的，甚至武 ...</blockquote>
+只能说你这要求放到一个氪金手游上确实有点离谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
