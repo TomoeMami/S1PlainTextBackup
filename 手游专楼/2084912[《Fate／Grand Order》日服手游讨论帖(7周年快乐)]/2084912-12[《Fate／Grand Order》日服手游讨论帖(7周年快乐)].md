@@ -4275,3 +4275,57 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 在火所长家里住下了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 17551#       发表于 2025-8-7 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227570&amp;ptid=2084912" target="_blank">sin.yugi 发表于 2025-8-7 04:55</a>
+
+8920人比想象中少，大佬你应该也是其中一个
+
+— from nubia NX729J, Android 14, S1 Next Goose v3.5.99 ...</blockquote>
+这个全从者可能是算3个泳装女武神了吧，我记得叶子好像只能换一个，夏活和复刻两次没有都拿到好像换不全？
+
+*****
+
+####  壳壳牛  
+##### 17552#       发表于 2025-8-7 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227891&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-8-7 08:54</a>
+这个全从者可能是算3个泳装女武神了吧，我记得叶子好像只能换一个，夏活和复刻两次没有都拿到好像换不全 ...</blockquote>
+另外两都是叶子换的，我看入手时间都是今年一月
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 17553#       发表于 2025-8-7 09:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">破罐子破摔ex1选玛修ex2选杀生院算了
+
+*****
+
+####  quanlix  
+##### 17554#       发表于 2025-8-7 09:40
+
+现在是三体人乱杀，下个月骑阶直接给打回原始人，想想就头疼
+
+*****
+
+####  森兰丸  
+##### 17555#       发表于 2025-8-7 09:41
+
+不明白所长的第3形态存在意义是啥......辅助能力也没变得有多强
+
+伤害比起前2个形态也差太多了....就算能上EX特攻也完全没意义<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 17556#       发表于 2025-8-7 09:42
+
+住水所长家的是不是就我了，光炮从者宝红红也能一回合啦，太感动了这个设计，顺便再次感慨所长这三个技能太JB离谱了
+
