@@ -1831,3 +1831,23 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
        [https://t.bilibili.com/1097859356056092679](https://t.bilibili.com/1097859356056092679)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41153#       发表于 2025-8-7 14:10
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/07/141018qt6tk6fo49f4t3z8.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-07_14-09-31.jpg</strong> (142.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-7 14:10 上传
+
+       [https://x.com/comic_growl/status/1953291324901515271](https://x.com/comic_growl/status/1953291324901515271)
+
+       [https://comic-growl.com/episodes/17ef3787c15d5/](https://comic-growl.com/episodes/17ef3787c15d5/)
+
