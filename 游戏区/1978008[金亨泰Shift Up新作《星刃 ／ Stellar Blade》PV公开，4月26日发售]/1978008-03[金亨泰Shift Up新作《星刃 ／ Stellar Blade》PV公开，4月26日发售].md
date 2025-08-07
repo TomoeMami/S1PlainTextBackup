@@ -15381,3 +15381,14 @@ https://www.nexusmods.com/stellarblade/mods/1032?tab=description
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  优秀  
+##### 4243#       发表于 2025-8-7 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68215924&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-8-4 22:08</a>
+
+这段也是失败的设计：视觉引导有问题，杆子很细，镜头也没有跟随给特写。不当残疾人开高对比度模式的话， ...</blockquote>
+请问这个劳拉的mod叫什么？
+
