@@ -458,3 +458,11 @@ ns港区没有啊，a爹你在干什么
 港区没有？那啥时候上啥时候补票了。
 对了，fsn是港区也没有吗？
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 50#       发表于 2025-8-7 21:06
+
+问下为什么我的游戏只有男主士郎讲话没有语音<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我记得PSV柳洞寺合宿开头应该是有语音的
+
