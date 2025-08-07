@@ -15403,3 +15403,16 @@ https://www.nexusmods.com/stellarblade/mods/1032?tab=description
 11号矩阵的入口其实就是大沙漠东南，那个营地和电话中间满地是炸药箱的地方 ...</blockquote>
 不是入口啊，就是过了著名跳列车之后有段破损的通道，那里可以眺望大沙漠，风还很大的地方
 
+
+*****
+
+####  方舟售票员  
+##### 4245#       发表于 2025-8-7 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227718&amp;ptid=1978008" target="_blank">rap72 发表于 2025-8-7 08:04</a>
+
+https://www.nexusmods.com/stellarblade/mods/1032?tab=description
+
+这个，里面的alternative outfits</blockquote>
+谢谢，这就去试
+

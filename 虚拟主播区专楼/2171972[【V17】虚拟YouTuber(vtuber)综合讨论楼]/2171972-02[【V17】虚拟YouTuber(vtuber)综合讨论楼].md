@@ -68,3 +68,13 @@
 企业势全倒台？你是哪条世界线上发来的回复？</blockquote>
 早年间的视频势基本都是企业的吧，指的是那些
 
+
+*****
+
+####  karastar  
+##### 1487#       发表于 2025-8-7 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68230696&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-8-7 17:34</a>
+早年间的视频势基本都是企业的吧，指的是那些</blockquote>
+企业势大规模倒台的时间和现在这个v圈崛起的时间都没同步<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
