@@ -58,3 +58,13 @@
 主播圈的虚拟主播很多都是炸雷，各种黑料、甚至私德有问题，依然喜欢她们的观众基本 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">企业势全倒台？你是哪条世界线上发来的回复？
 
+
+*****
+
+####  poipanchao  
+##### 1486#       发表于 2025-8-7 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68230476&amp;ptid=2171972" target="_blank">艾特娜 发表于 2025-8-7 17:01</a>
+企业势全倒台？你是哪条世界线上发来的回复？</blockquote>
+早年间的视频势基本都是企业的吧，指的是那些
+
