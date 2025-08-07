@@ -476,3 +476,13 @@ ns港区没有啊，a爹你在干什么
 问下为什么我的游戏只有男主士郎讲话没有语音我记得PSV柳洞寺合宿开头应该是有语音的 ...</blockquote>
 打开设置，详细设置里把士郎的语音打开。fsn复刻也这样，默认把主视角角色的语音给关掉了。
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 52#       发表于 2025-8-7 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68231852&amp;ptid=2252174" target="_blank">空洞骑士 发表于 2025-8-7 21:34</a>
+打开设置，详细设置里把士郎的语音打开。fsn复刻也这样，默认把主视角角色的语音给关掉了。 ...</blockquote>
+原来详细里面文本和音声还有分开设置<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这下好了，感谢
+
