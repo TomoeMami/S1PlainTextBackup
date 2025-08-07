@@ -439,3 +439,13 @@ ns港区没有啊，a爹你在干什么
 
 —— 来自 OnePlus KB2000, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  库德里尔  
+##### 48#         楼主| 发表于 2025-8-7 18:45
+
+回去看看这次的新ui长什么样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
