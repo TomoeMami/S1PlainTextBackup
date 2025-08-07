@@ -4403,3 +4403,57 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 这EX1用什么加NP？</blockquote>
 无敌的rba
 
+
+*****
+
+####  xiongxingyu  
+##### 17565#       发表于 2025-8-7 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68228153&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-7 09:41</a>
+
+不明白所长的第3形态存在意义是啥......辅助能力也没变得有多强
+
+伤害比起前2个形态也差太多了....就算能上 ...</blockquote>
+秩序善、女、活人，意义还不够大吗？搞不好终章还能混个灵衣
+
+*****
+
+####  quanlix  
+##### 17566#       发表于 2025-8-7 14:08
+
+没准这次泳装活动就给来套简易灵衣
+
+*****
+
+####  qixinno2  
+##### 17567#       发表于 2025-8-7 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能给牢青一个超级青子灵衣啊 
+
+*****
+
+####  洛克萨斯  
+##### 17568#       发表于 2025-8-7 14:21
+
+为什么ex1显示帕拉丁玛修有克制但是我打出来还是白字？
+
+*****
+
+####  yangun22  
+##### 17569#       发表于 2025-8-7 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229599&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-8-7 14:21</a>
+
+为什么ex1显示帕拉丁玛修有克制但是我打出来还是白字？</blockquote>
+所长身上有个全阶变白字的buff
+
+*****
+
+####  洛克萨斯  
+##### 17570#       发表于 2025-8-7 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229609&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-8-7 14:22</a>
+
+所长身上有个全阶变白字的buff</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">擦，难怪我说打不动
+
