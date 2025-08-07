@@ -2104,3 +2104,15 @@ PC之类纯画饼的就省略了
 我觉得难度还不够，要有机战前中期那种限定机师机体走限定步数限定回合过关的额外关卡才好，反正真的不会 ...</blockquote>
 然而就这难度贴吧已经有年一游的年轻人受不了了，真不知道对他们来说“玩”到底是个什么过程
 
+
+*****
+
+####  acg_gyanc  
+##### 2446#       发表于 2025-8-7 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68230585&amp;ptid=2071758" target="_blank">无念 发表于 2025-8-7 17:17</a>
+我觉得难度还不够，要有机战前中期那种限定机师机体走限定步数限定回合过关的额外关卡才好，反正真的不会 ...</blockquote>
+你说的不就是永恒之路么……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
