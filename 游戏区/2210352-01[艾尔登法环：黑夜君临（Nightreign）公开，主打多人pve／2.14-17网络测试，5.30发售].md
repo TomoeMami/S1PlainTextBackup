@@ -14327,3 +14327,17 @@ QQ群搜索里面直接搜黑夜君临群，加几个活跃度高的，要打就
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jy000129  
+##### 1370#       发表于 2025-8-7 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227987&amp;ptid=2210352" target="_blank">hirro 发表于 2025-8-7 09:11</a>
+一般大群组队效率低，很多就临时组一把和野人区别不大，如果是PS平台基本都是二三十人小群里在组
+
+一般都 ...</blockquote>
+一个群低，几个群就不低了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS不熟，但是PC基本开语音，怎么走都好说
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
