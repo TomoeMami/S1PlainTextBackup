@@ -15392,3 +15392,14 @@ https://www.nexusmods.com/stellarblade/mods/1032?tab=description
 这段也是失败的设计：视觉引导有问题，杆子很细，镜头也没有跟随给特写。不当残疾人开高对比度模式的话， ...</blockquote>
 请问这个劳拉的mod叫什么？
 
+
+*****
+
+####  江戸前ルナ  
+##### 4244#       发表于 2025-8-7 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227556&amp;ptid=1978008" target="_blank">snailium 发表于 2025-8-7 04:09</a>
+
+11号矩阵的入口其实就是大沙漠东南，那个营地和电话中间满地是炸药箱的地方 ...</blockquote>
+不是入口啊，就是过了著名跳列车之后有段破损的通道，那里可以眺望大沙漠，风还很大的地方
+

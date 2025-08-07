@@ -244,3 +244,11 @@
 新访谈出了 只能说这帮保守老登连战姬绝唱都不敢抄
 变身后又要做偶像又打架 结果现在像样子的演唱会都没有开过 打戏主线也别谈了 两过都是半吊子<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patapon3  
+##### 1212#       发表于 2025-8-7 11:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">去年狗q我是每周一集不落第一时间追完的，十分我给满分，扣0.5分在结尾不能猫猫狗狗变人身上，心目中近年最佳，偶q都是零零散散追着看
+
