@@ -1871,3 +1871,15 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 <img src="https://p.sda1.dev/26/da3eadb1463041dc30ab4075cf32d099/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/26/da3eadb1463041dc30ab4075cf32d099/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41155#       发表于 2025-8-8 01:17
+
+       <img src="https://img.stage1st.com/forum/202508/08/011548z7dnyyee9vkkoyu9.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/kaminepark/status/1953456101791613225](https://x.com/kaminepark/status/1953456101791613225)
+
+       [https://edith.co.jp/lp/bangdreamvacation/](https://edith.co.jp/lp/bangdreamvacation/)
+
