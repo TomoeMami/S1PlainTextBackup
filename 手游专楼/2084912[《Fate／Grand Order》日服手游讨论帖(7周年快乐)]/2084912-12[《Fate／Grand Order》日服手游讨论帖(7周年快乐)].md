@@ -4457,3 +4457,44 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 所长身上有个全阶变白字的buff</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">擦，难怪我说打不动
 
+
+*****
+
+####  森兰丸  
+##### 17571#       发表于 2025-8-7 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229117&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2025-8-7 12:18</a>
+
+能开两次的群体30充和一大坨横向buff，不开宝具的拐力还是有的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没看明白.....2技能不是6CD吗....开了1技能后也只是变成4CD....怎么开2次
+
+*****
+
+####  希望之花  
+##### 17572#       发表于 2025-8-7 14:57
+
+ex1的光炮本也没有照顾多少啊，三宝仇尼托上满buff一炮打不穿小怪，清完后还得靠暴击打所长
+
+*****
+
+####  qixinno2  
+##### 17573#       发表于 2025-8-7 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229823&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-8-7 14:57</a>
+
+ex1的光炮本也没有照顾多少啊，三宝仇尼托上满buff一炮打不穿小怪，清完后还得靠暴击打所长 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇尼托本身不就是水枪么
+
+*****
+
+####  rollingusagi  
+##### 17574#       发表于 2025-8-7 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68228153&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-7 09:41</a>
+不明白所长的第3形态存在意义是啥......辅助能力也没变得有多强
+
+伤害比起前2个形态也差太多了....就算能上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答案是无宝具纯暴击队的最后一块拼图，双三破所长配cd服就能提供三t满星，同时全队100爆伤40攻60红魔放100黄金率，配个尺呆的话全队再加40攻50爆伤50黄金率，可以说通杀所有非90++地铺了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
