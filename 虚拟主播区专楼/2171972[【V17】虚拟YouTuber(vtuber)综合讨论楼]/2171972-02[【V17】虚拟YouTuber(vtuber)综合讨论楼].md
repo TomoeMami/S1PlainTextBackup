@@ -45,3 +45,16 @@
 
 所以虚拟偶像的魅力究竟是她本人，还是她的人设？究竟是要台本还是不要台本？我个人是从vtuber四大天王时期关注这个圈子，但是看到企业势力都倒台了，全是个人直播势以后觉得无趣就不再看了。但是这些问题时不时还是在思考。
 
+
+*****
+
+####  艾特娜  
+##### 1485#       发表于 2025-8-7 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68221754&amp;ptid=2171972" target="_blank">wbtsy 发表于 2025-8-6 00:04</a>
+
+其实这个游戏很有趣。
+
+主播圈的虚拟主播很多都是炸雷，各种黑料、甚至私德有问题，依然喜欢她们的观众基本 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">企业势全倒台？你是哪条世界线上发来的回复？
+
