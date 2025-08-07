@@ -486,3 +486,14 @@ ns港区没有啊，a爹你在干什么
 打开设置，详细设置里把士郎的语音打开。fsn复刻也这样，默认把主视角角色的语音给关掉了。 ...</blockquote>
 原来详细里面文本和音声还有分开设置<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这下好了，感谢
 
+
+*****
+
+####  库德里尔  
+##### 53#         楼主| 发表于 2025-8-7 23:37
+
+打过原版了 也打过psv的语音移植版了
+回头找个100%的存档回顾一下几个有意思的scene好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
