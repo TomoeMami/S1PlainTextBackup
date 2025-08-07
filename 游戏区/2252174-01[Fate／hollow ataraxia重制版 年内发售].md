@@ -383,3 +383,21 @@ fe重制呢？我要猜拳口牙<img src="https://static.stage1st.com/image/smil
 认同前面漏油的说法，fha很有趣，如果是因为fsn入坑的型月，那fha确实是可以作为终点。
 还有偷吃的r姐很涩，我老婆卡莲也很涩
 
+
+*****
+
+####  猪突猛进R  
+##### 42#       发表于 2025-8-7 10:09
+
+阉割版是没有灵魂的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tissuesea  
+##### 43#       发表于 2025-8-7 10:13
+
+这部开始伊莉雅开始软妹了，到魔法少女伊莉雅就纯软妹了
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
