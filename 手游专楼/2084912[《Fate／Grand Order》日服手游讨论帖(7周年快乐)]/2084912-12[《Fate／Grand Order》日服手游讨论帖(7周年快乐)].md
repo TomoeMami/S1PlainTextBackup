@@ -4362,3 +4362,44 @@ ex这个拐量和多核真是仙人如麻，总算在正经本体验到所长拐
 
 种火好缺啊，溢出的冠星能不能转换成狗粮啊
 
+
+*****
+
+####  高木なつめ  
+##### 17561#       发表于 2025-8-7 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68228153&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-7 09:41</a>
+不明白所长的第3形态存在意义是啥......辅助能力也没变得有多强
+
+伤害比起前2个形态也差太多了....就算能上 ...</blockquote>
+能开两次的群体30充和一大坨横向buff，不开宝具的拐力还是有的
+
+*****
+
+####  alucardcz  
+##### 17562#       发表于 2025-8-7 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68228153&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-7 09:41</a>
+
+不明白所长的第3形态存在意义是啥......辅助能力也没变得有多强
+
+伤害比起前2个形态也差太多了....就算能上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不明白就对了 你这么欧 不需要明白（
+
+*****
+
+####  v22325  
+##### 17563#       发表于 2025-8-7 13:16
+
+这EX1用什么加NP？
+
+*****
+
+####  alucardcz  
+##### 17564#       发表于 2025-8-7 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68229348&amp;ptid=2084912" target="_blank">v22325 发表于 2025-8-7 13:16</a>
+
+这EX1用什么加NP？</blockquote>
+无敌的rba
+
