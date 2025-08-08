@@ -464,3 +464,69 @@ pv看着一般
 
 男二咋长得像隔壁捷德的小陆
 
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2025-8-8 10:16
+
+PV：[https://youtu.be/S64ibniszag](https://youtu.be/S64ibniszag)
+
+VISIONS TV size （『仮面ライダーゼッツ』主題歌）：[https://youtu.be/qFa7jgjjdok](https://youtu.be/qFa7jgjjdok)
+
+特报PV完全版：[https://youtu.be/zrmL2IPNhSk](https://youtu.be/zrmL2IPNhSk)
+
+スタッフ
+
+原作：石ノ森章太郎
+
+脚本：高橋悠也
+
+監督：上堀内佳寿也 ほか
+
+アクション監督：渡辺淳（ジャパンアクションエンタープライズ）
+
+特撮監督：佛田洋（特撮研究所）
+
+音楽：高木洋　坂部剛
+
+ゼネラルプロデューサー：大川武宏（テレビ朝日）
+
+プロデューサー：
+
+芝高啓介（テレビ朝日）
+
+谷中寿成（東映）、湊陽祐（東映）、高崎壮太（東映）
+
+制作：テレビ朝日・東映・ADK エモーションズ
+
+メインキャスト
+
+万津 莫／仮面ライダーゼッツ：今井竜太郎
+
+ねむ（国民的人気タレント）：堀口真帆
+
+富士見鉄也（警視庁公安部怪事課課長）：三嶋健太
+
+南雲なすか（警視庁公安部怪事課）：小貫莉奈
+
+万津美波（莫の妹）：八木美樹
+
+ノクス（謎の男）：古川雄輝
+
+ゼロの声：川平慈英
+
+ゼッツドライバーシステム音声：山寺宏一
+
+主題歌情報
+
+楽曲タイトル：VISIONS
+
+主題歌アーティスト：NAQT VANE ナクトベイン
+
+作詞：Benjamin + cAnON.
+
+作曲・編曲：Hiroyuki SAWANO
+<img src="https://p.sda1.dev/26/70142c2a12b7475bc1219df0c2eb116c/20250808_100418.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/fc4445206c0cc06169bc39fed9219003/20250808_094635.jpg" referrerpolicy="no-referrer">
+
