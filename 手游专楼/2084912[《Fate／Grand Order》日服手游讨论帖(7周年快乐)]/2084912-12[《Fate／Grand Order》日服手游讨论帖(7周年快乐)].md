@@ -4657,3 +4657,50 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 水绘抽满，周年送的石头都霍霍完了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17592#       发表于 2025-8-8 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">十周年氪了两单 只得到了五宝所长 一宝弓凛 蔓加一 我也想像楼友一样欧啊
+
+*****
+
+####  alucardcz  
+##### 17593#       发表于 2025-8-8 18:03
+
+单看这个强化。。幅度真的超大。。
+
+但实际。。。有啥用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17594#       发表于 2025-8-8 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236178&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:01</a>
+
+十周年氪了两单 只得到了五宝所长 一宝弓凛 蔓加一 我也想像楼友一样欧啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太欧了 恐怖 我们萌新看了一眼还有100抽又要保底了
+
+*****
+
+####  qixinno2  
+##### 17595#       发表于 2025-8-8 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236205&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 18:07</a>
+
+太欧了 恐怖 我们萌新看了一眼还有100抽又要保底了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你还没拿到第三宝保底啊
+
+*****
+
+####  alucardcz  
+##### 17596#       发表于 2025-8-8 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236309&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:24</a>
+
+你还没拿到第三宝保底啊</blockquote>
+还差100呢 减20 还差80 没有届到保底的可能<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

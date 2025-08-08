@@ -56,3 +56,42 @@
 
 （什么时候快进到血浴缸.jpg）
 
+
+*****
+
+####  Jamaisvu  
+##### 1164#       发表于 2025-8-8 18:27
+
+贾丘宝来了！鸿园君主人格！就管他叫君宝好了！
+
+<img src="https://img.stage1st.com/forum/202508/08/182210ojucudiitju7fndn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250808_181838.jpg</strong> (219.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-8 18:22 上传
+
+<img src="https://img.stage1st.com/forum/202508/08/182210nzj8mj0i5myyp268.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250808_181659.jpg</strong> (200.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-8 18:22 上传
+
+<img src="https://img.stage1st.com/forum/202508/08/182210xh77h83z3b7h17b6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250808_181641.jpg</strong> (284.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-8 18:22 上传
+
+除了贾丘的霸气，多了几分贾母的阴狠，看起来别具领袖气质。
+
+技能和几个黑兽都有搭配，看样子是船玛的协同进攻？小指人格都不会弱，出了必换。
+
