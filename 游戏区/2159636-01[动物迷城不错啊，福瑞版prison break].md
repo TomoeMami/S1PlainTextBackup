@@ -387,3 +387,13 @@
 
 最近几天上瘾天天玩到半夜两三点才睡，太上瘾了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 87#       发表于 2025-8-8 17:49
+
+今天更新之后总算能在图鉴里看身上有对应道具的人在什么位置了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+以及黑豹线第22天小狐狸的位置也从囚室改成监狱外了，第三周连续跑了3（+1）个人，你们这监狱行不行啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

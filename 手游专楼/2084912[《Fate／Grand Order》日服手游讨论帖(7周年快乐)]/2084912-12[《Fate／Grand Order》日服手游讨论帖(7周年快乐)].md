@@ -4626,3 +4626,34 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 17588#       发表于 2025-8-8 17:06
+
+终于轮到杰克了，现在才勉强拉回来<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 17589#       发表于 2025-8-8 17:21
+
+给旧常驻五星开本是好文明啊，大家人人有份
+
+*****
+
+####  angelooo  
+##### 17590#       发表于 2025-8-8 17:43
+
+杰克已经很惨了，国服名字都没了，总算还有人记得
+
+不过这样一来两个五星术里不会真有C呆吧，我原本以为五星杀会是X毛来着
+
+*****
+
+####  里村紅葉  
+##### 17591#       发表于 2025-8-8 17:53
+
+水绘抽满，周年送的石头都霍霍完了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
