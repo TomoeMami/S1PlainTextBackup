@@ -14517,3 +14517,13 @@ sorry没关私密搜索 现在能搜到了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  轻风弥华  
+##### 1388#       发表于 2025-8-8 13:46
+
+这雪山的地图种子未免也太少了吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">为了打王冰龙主动引地形结果打了三把一样的图
+
+右下角落地，下面是火教堂上面是毒遗迹，上面的监牢旁野外boss是黑刀，湖区是河马，主城失乡，下水道是狮子亚种
+
