@@ -4579,3 +4579,50 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">果然不能冲动 辛苦刷的石头一下梭哈连个四星都没出
 
+
+*****
+
+####  khxooo  
+##### 17583#       发表于 2025-8-8 15:26
+
+180石头学姐补到2宝，现在正在纠结是升等级还是开被动。
+
+*****
+
+####  qixinno2  
+##### 17584#       发表于 2025-8-8 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68235275&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-8 15:26</a>
+
+180石头学姐补到2宝，现在正在纠结是升等级还是开被动。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  blue321  
+##### 17585#       发表于 2025-8-8 15:54
+
+借楼友欧气，希望普池免费百连能出一个娄希吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  森兰丸  
+##### 17586#       发表于 2025-8-8 16:34
+
+所长绊10了.....那张咕嗒的ID照原来还是过去的东西
+
+只不过刚进迦的咕嗒和所长关系有这么好吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 17587#       发表于 2025-8-8 16:38
+
+专门办了张jcb信用卡，以后就自己氪了..
+第一单氪的福袋开了个好运<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/1145b8d84b180c0cd0a7d5974f2ce85c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
