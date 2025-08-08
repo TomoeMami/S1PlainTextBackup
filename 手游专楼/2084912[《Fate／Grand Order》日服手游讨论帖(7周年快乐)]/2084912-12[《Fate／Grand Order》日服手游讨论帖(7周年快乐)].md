@@ -4745,3 +4745,42 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 五星比我多的装什么非 被所长最后一宝勾引冲动了 反正今年不氪了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们非萌课了也只能3包 这就是欧菲的差距
 
+
+*****
+
+####  qixinno2  
+##### 17601#       发表于 2025-8-8 18:51
+
+<blockquote>alucardcz 发表于 2025-8-8 18:41
+我们非萌课了也只能3包 这就是欧菲的差距</blockquote>
+但你new比我多一倍
+
+*****
+
+####  alucardcz  
+##### 17602#       发表于 2025-8-8 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236423&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:51</a>
+
+但你new比我多一倍</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">都是些虚无缥缈的东西 跟5宝比不值得一提
+
+*****
+
+####  都谷捻柏  
+##### 17603#       发表于 2025-8-8 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236192&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 18:03</a>
+
+单看这个强化。。幅度真的超大。。
+
+但实际。。。有啥用</blockquote>
+强化幅度可以了，算是实用（对比第一天村正那个幽默强化），主要是卡太老底子太差，我算伤害时发现，周回本她等于就1个技能233
+
+*****
+
+####  alucardcz  
+##### 17604#       发表于 2025-8-8 19:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算羁绊 再刷180把大总统就能达成 连吃2个保底的成就
+
