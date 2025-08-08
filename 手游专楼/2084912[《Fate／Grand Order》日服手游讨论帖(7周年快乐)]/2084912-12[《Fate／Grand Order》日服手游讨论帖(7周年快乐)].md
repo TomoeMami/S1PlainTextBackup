@@ -4877,3 +4877,38 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 苹果不多了只剩1500金1700银了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我金银加起来只有280
 
+
+*****
+
+####  alucardcz  
+##### 17614#       发表于 2025-8-8 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236891&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 20:58</a>
+
+我金银加起来只有280</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">真正的肝 这游戏自从加了天赋树后 我活动基本就没有搬空过了
+
+*****
+
+####  qixinno2  
+##### 17615#       发表于 2025-8-8 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236904&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 21:01</a>
+
+真正的肝 这游戏自从加了天赋树后 我活动基本就没有搬空过了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并不肝 主要是瞎吃 甚至还干过吃完金苹果但懒得刷就下线了
+
+*****
+
+####  岸浪白野  
+##### 17616#       发表于 2025-8-8 21:46
+
+首先阉割宝具本少200倍率就已经亏了，50绿放变3回合和20宝威算是弥补了点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17617#       发表于 2025-8-8 22:41
+
+骑阶树点完了，就等骑阶冠位战了。现在都是将拿到的开锁工具点下一个冠位战的树了。
+
