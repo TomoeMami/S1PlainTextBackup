@@ -14543,3 +14543,16 @@ sorry没关私密搜索 现在能搜到了
 每个boss种子都是固定的 20个常规图种子 每种地形5个 一共40个
 [https://thefifthmatt.github.io/nightreign/](https://thefifthmatt.github.io/nightreign/)
 
+
+*****
+
+####  jacket  
+##### 1390#       发表于 2025-8-8 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236177&amp;ptid=2210352" target="_blank">ramoc 发表于 2025-8-8 18:01</a>
+
+一般一个夜王每种特殊地形固定就是五个种子，因为雪山地形过于对策冰龙所以特别明显
+
+每个boss种子都是固 ...</blockquote>
+还有这种网站
+
