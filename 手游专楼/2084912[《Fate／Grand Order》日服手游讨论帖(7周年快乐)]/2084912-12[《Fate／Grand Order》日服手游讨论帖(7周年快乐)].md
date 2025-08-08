@@ -4704,3 +4704,44 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 你还没拿到第三宝保底啊</blockquote>
 还差100呢 减20 还差80 没有届到保底的可能<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17597#       发表于 2025-8-8 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236328&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 18:29</a>
+
+还差100呢 减20 还差80 没有届到保底的可能</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">好羡慕上面那些几百石就能满宝所长的欧狗 现在零石泳装只能干瞪眼了
+
+*****
+
+####  alucardcz  
+##### 17598#       发表于 2025-8-8 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236334&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:31</a>
+
+好羡慕上面那些几百石就能满宝所长的欧狗 现在零石泳装只能干瞪眼了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你是欧皇还是克老 怕什么 我们非萌又非又穷才是最可怕的
+
+*****
+
+####  qixinno2  
+##### 17599#       发表于 2025-8-8 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236344&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 18:33</a>
+
+你是欧皇还是克老 怕什么 我们非萌又非又穷才是最可怕的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">五星比我多的装什么非 被所长最后一宝勾引冲动了 反正今年不氪了
+
+*****
+
+####  alucardcz  
+##### 17600#       发表于 2025-8-8 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236356&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:36</a>
+
+五星比我多的装什么非 被所长最后一宝勾引冲动了 反正今年不氪了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们非萌课了也只能3包 这就是欧菲的差距
+
