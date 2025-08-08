@@ -526,3 +526,15 @@ ns港区没有啊，a爹你在干什么
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kuarwbwe  
+##### 57#       发表于 2025-8-8 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68233374&amp;ptid=2252174" target="_blank">oi99o 发表于 2025-8-8 09:39</a>
+对，月姬和魔夜都有的
+
+论坛助手,iPhone</blockquote>
+月姬我刚玩完，魔夜我不准备再玩了。fsn和fha也就是图一个补票。他要不上港服那就不买了，啥时候上啥时候再说。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
