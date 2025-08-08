@@ -4784,3 +4784,41 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算羁绊 再刷180把大总统就能达成 连吃2个保底的成就
 
+
+*****
+
+####  qixinno2  
+##### 17605#       发表于 2025-8-8 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236645&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 19:47</a>
+
+算了算羁绊 再刷180把大总统就能达成 连吃2个保底的成就</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也太肝了
+
+*****
+
+####  v22325  
+##### 17606#       发表于 2025-8-8 20:30
+
+我也吃保底了……妈的三百抽一个五星都没有……周年石头就这么打水漂了
+
+*****
+
+####  khxooo  
+##### 17607#       发表于 2025-8-8 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236178&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 18:01</a>
+
+十周年氪了两单 只得到了五宝所长 一宝弓凛 蔓加一 我也想像楼友一样欧啊</blockquote>
+欧，羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17608#       发表于 2025-8-8 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236803&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-8 20:32</a>
+
+欧，羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你这轻松满宝还出了好几个NEW的欧狗羡慕个屁
+
