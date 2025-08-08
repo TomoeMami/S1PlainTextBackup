@@ -4822,3 +4822,58 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 欧，羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你这轻松满宝还出了好几个NEW的欧狗羡慕个屁
 
+
+*****
+
+####  alucardcz  
+##### 17609#       发表于 2025-8-8 20:43
+
+ 本帖最后由 alucardcz 于 2025-8-8 20:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236795&amp;ptid=2084912" target="_blank">v22325 发表于 2025-8-8 20:30</a>
+
+我也吃保底了……妈的三百抽一个五星都没有……周年石头就这么打水漂了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">萌新目前2300石上下 2宝所长 就歪了一个欧巴罗  你是不是觉得好受了点
+
+*****
+
+####  alucardcz  
+##### 17610#       发表于 2025-8-8 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236764&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 20:21</a>
+
+你也太肝了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不然怎么办 又不是漏油那么有钱说课就课 
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">总不能看着还剩50抽保底就这样放弃 
+
+*****
+
+####  qixinno2  
+##### 17611#       发表于 2025-8-8 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236851&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 20:45</a>
+
+不然怎么办 又不是漏油那么有钱说课就课 
+
+总不能看着还剩50抽保底就这样放弃  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">反正你苹果多 我看了下风水加一起我才刷了80次 刷助战太傻逼了
+
+*****
+
+####  alucardcz  
+##### 17612#       发表于 2025-8-8 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236882&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-8 20:53</a>
+
+反正你苹果多 我看了下风水加一起我才刷了80次 刷助战太傻逼了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">苹果不多了只剩1500金1700银了
+
+*****
+
+####  qixinno2  
+##### 17613#       发表于 2025-8-8 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68236888&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-8 20:56</a>
+
+苹果不多了只剩1500金1700银了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我金银加起来只有280
+
