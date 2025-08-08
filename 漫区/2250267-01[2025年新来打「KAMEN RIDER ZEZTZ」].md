@@ -530,3 +530,11 @@ VISIONS TV size （『仮面ライダーゼッツ』主題歌）：[https://yout
 <img src="https://p.sda1.dev/26/70142c2a12b7475bc1219df0c2eb116c/20250808_100418.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/26/fc4445206c0cc06169bc39fed9219003/20250808_094635.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 176#       发表于 2025-8-8 11:22
+
+泽野这歌没啥记忆点，感觉op不好剪
+

@@ -1039,3 +1039,13 @@ fgo还能续一年。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Kon-El  
+##### 47309#       发表于 2025-8-8 11:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">宇宙艾蕾追二宝结果没石头给学姐了…
+
+—— 来自 OnePlus PKR110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
