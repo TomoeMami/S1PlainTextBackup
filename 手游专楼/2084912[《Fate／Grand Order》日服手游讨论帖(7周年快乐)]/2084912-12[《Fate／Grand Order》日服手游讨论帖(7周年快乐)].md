@@ -4912,3 +4912,37 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 骑阶树点完了，就等骑阶冠位战了。现在都是将拿到的开锁工具点下一个冠位战的树了。
 
+
+*****
+
+####  alucardcz  
+##### 17618#       发表于 2025-8-8 22:43
+
+现在能点完5个树了。。我把ex12狂骑术点满了  
+
+然后拿了30个石头无事发生<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17619#       发表于 2025-8-8 23:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">牛逼 还差20发保底的时候出了。这是施舍吗
+
+*****
+
+####  poor  
+##### 17620#       发表于 2025-8-8 23:34
+
+白纸本上那两个加血土所长有什么傻瓜打法吗？月姬组都1宝，学妹跟所长有没有用？
+
+*****
+
+####  DARKGRAY  
+##### 17621#       发表于 2025-8-9 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68237487&amp;ptid=2084912" target="_blank">poor 发表于 2025-8-8 23:34</a>
+
+白纸本上那两个加血土所长有什么傻瓜打法吗？月姬组都1宝，学妹跟所长有没有用？ ...</blockquote>
+傻瓜打法：前面拆角阶段也尽上高输出的人然后每天三令咒狂轰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
