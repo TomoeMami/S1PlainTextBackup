@@ -2224,3 +2224,41 @@ PC之类纯画饼的就省略了
 
 骑士高达战斗动画总觉得有点拉胯，大概是当年机战bx那个动画实在太令人印象深刻了
 
+
+*****
+
+####  胖达君  
+##### 2457#       发表于 2025-8-8 12:40
+
+这都是什么弱智活动？只能用SD高达外传系列的机体？不抽卡初期只有2台垃圾能用，什么鬼？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rockroxas  
+##### 2458#       发表于 2025-8-8 12:44
+
+ 本帖最后由 rockroxas 于 2025-8-8 12:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68234546&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-8-8 12:40</a>
+
+这都是什么弱智活动？只能用SD高达外传系列的机体？不抽卡初期只有2台垃圾能用，什么鬼？ ...</blockquote>
+还有更弱智的
+
+hard也只能用SD高达一队，boss倒是可以用自由队但离得超远，隐藏boss第一回合最多有两台自由队碰得到boss
+
+打完普通关记得先去清boss跟票，换一堆SSR再来打hard
+
+*****
+
+####  胖达君  
+##### 2459#       发表于 2025-8-8 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68234567&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-8-8 12:44</a>
+
+还有更弱智的
+
+hard也只能用SD高达一队，boss倒是可以用自由队但离得超远，第一回合最多有两台见得到boss
+
+ ...</blockquote>
+真特么笑不活了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
