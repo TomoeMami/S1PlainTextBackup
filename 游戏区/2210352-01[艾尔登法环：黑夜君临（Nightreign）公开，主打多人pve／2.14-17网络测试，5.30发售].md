@@ -14527,3 +14527,19 @@ sorry没关私密搜索 现在能搜到了
 
 右下角落地，下面是火教堂上面是毒遗迹，上面的监牢旁野外boss是黑刀，湖区是河马，主城失乡，下水道是狮子亚种
 
+
+*****
+
+####  ramoc  
+##### 1389#       发表于 2025-8-8 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68234822&amp;ptid=2210352" target="_blank">轻风弥华 发表于 2025-8-8 13:46</a>
+
+这雪山的地图种子未免也太少了吧为了打王冰龙主动引地形结果打了三把一样的图
+
+右下角落地，下面是火教堂上 ...</blockquote>
+一般一个夜王每种特殊地形固定就是五个种子，因为雪山地形过于对策冰龙所以特别明显
+
+每个boss种子都是固定的 20个常规图种子 每种地形5个 一共40个
+[https://thefifthmatt.github.io/nightreign/](https://thefifthmatt.github.io/nightreign/)
+
