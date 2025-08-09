@@ -405,3 +405,13 @@
 
 我服了，食堂大战之后禁足两天我的黑爪帮欠款到期了，扣了20好感，没任务无法提升帮派好感我这没法拿猩猩技能了啊
 
+
+*****
+
+####  jxzeroga0  
+##### 89#       发表于 2025-8-9 10:09
+
+最近更新加上了素材npc显示位置和监狱传送，基本上痛点都改好了，爽玩<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
