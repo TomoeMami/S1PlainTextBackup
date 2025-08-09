@@ -5296,3 +5296,37 @@ here we go again.mp4
 说起老冠位战普通支援看的是活动栏还是日常栏？</blockquote>
 应该是日常栏，很容易刷到羁绊礼装，以日本人的尿性要是活动栏不可能这么容易找到的<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 17658#       发表于 2025-8-10 00:15
+
+你们池子是怎么歪的仇尼托啊教教我，抽仇尼托的池子tmd歪了呆毛王
+
+*****
+
+####  alucardcz  
+##### 17659#       发表于 2025-8-10 01:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起老冠位战普通支援看的是活动栏还是日常栏？
+
+*****
+
+####  khxooo  
+##### 17660#       发表于 2025-8-10 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68241638&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-10 01:03</a>
+
+说起老冠位战普通支援看的是活动栏还是日常栏？</blockquote>
+应该是日常栏，很容易刷到羁绊礼装，以日本人的尿性要是活动栏不可能这么容易找到的<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17661#       发表于 2025-8-10 06:29
+
+<blockquote>希望之花 发表于 2025-8-10 00:15
+你们池子是怎么歪的仇尼托啊教教我，抽仇尼托的池子tmd歪了呆毛王</blockquote>
+富哥太有实力了 还有石头抽仇尼托
+
