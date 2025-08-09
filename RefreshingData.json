@@ -5292,10 +5292,10 @@
     "update": false
   },
   "2076827": {
-    "totalreply": 2330,
+    "totalreply": 2331,
     "title": "[《伊苏》35周年有新作？（《伊苏X》情报公布）]",
     "newtitle": "[《伊苏》35周年有新作？（《伊苏X》情报公布）]",
-    "lastedit": 1754762049,
+    "lastedit": 1754762649,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 183505,
+    "totalreply": 183506,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754761688,
+    "lastedit": 1754762769,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 179494,
+    "totalreply": 179495,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1754761449,
+    "lastedit": 1754762771,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11862,12 +11862,12 @@
     "update": false
   },
   "2186388": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[Bad Girl 动画化]",
     "newtitle": "[Bad Girl 动画化]",
-    "lastedit": 1754273775,
+    "lastedit": 1754762771,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2255966": {
@@ -14625,10 +14625,10 @@
     "update": false
   },
   "2257995": {
-    "totalreply": 176,
+    "totalreply": 177,
     "title": "[2025年8月网文推荐交流互助楼]",
     "newtitle": "[2025年8月网文推荐交流互助楼]",
-    "lastedit": 1754762050,
+    "lastedit": 1754762650,
     "category": "外野",
     "active": true,
     "update": false
@@ -16875,10 +16875,10 @@
     "update": false
   },
   "2258754": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[“我只是个臭打游戏的，节奏我不关心”]",
     "newtitle": "[“我只是个臭打游戏的，节奏我不关心”]",
-    "lastedit": 1754761689,
+    "lastedit": 1754762650,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16916,6 +16916,15 @@
     "newtitle": "[《技术革命实现以后(想象图)》]",
     "lastedit": 1754749452,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2184844": {
+    "totalreply": 62,
+    "title": "[「9-nine-」TV动画化]",
+    "newtitle": "[「9-nine-」TV动画化]",
+    "lastedit": 1754762409,
+    "category": "漫区",
     "active": true,
     "update": false
   }
