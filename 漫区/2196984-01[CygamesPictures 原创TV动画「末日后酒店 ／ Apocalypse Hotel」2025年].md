@@ -34,3 +34,31 @@
 
 查看全部评分
 
+
+*****
+
+####  aptx8285144  
+##### 745#       发表于 2025-8-9 18:30
+
+11话不但有亚洲的画师，原来还有欧美的画师呀，这部作品看样子集世界之力<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NBXX  
+##### 746#       发表于 2025-8-9 18:33
+
+BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后再运回来，结果选错第一卷先发，好在顺利到达。
+<img src="https://p.sda1.dev/26/9e1502bf263b5bea618b004c5fbea529/27b6317aab94933328ef5e404facd98c.png" referrerpolicy="no-referrer">
+
+把BD附赠的竹本泉書き下ろし漫画収録 特製ブックレット里面的漫画扫了一下，因为是胶装舍不得拆所以用手机简单扫修。小册子里还有监督访谈，稍后我翻译一下发出来，漫画图源不太好先不翻译。
+
+<img src="https://p.sda1.dev/26/129b280563f4769d78442dc558f23c86/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/9b15b8b09d04493e3508441911f946f2/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/d6c7bb3308de80eb61f59f6726124039/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/b6be782bd1894ecbddf83d89f8bd3445/4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/8e7b059d3e35170abd712014a675f8e6/5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/f1b08651ded512e414c8100c2814cdff/6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/9a7b17f2fc7dfe14669a480591e5ff40/7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/95873dbdb694fa7a6ad15ece89ed4e2e/8.jpg" referrerpolicy="no-referrer">
+
