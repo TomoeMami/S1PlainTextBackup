@@ -5144,3 +5144,40 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 兽+人类威胁特攻？认真？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 17643#       发表于 2025-8-9 17:28
+
+这宝具本的特攻真是……
+
+我怎么觉得小玉要寄了啊
+
+*****
+
+####  qixinno2  
+##### 17644#       发表于 2025-8-9 17:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">奶一口明天强化C呆 三技能给个宝威
+
+*****
+
+####  DARKGRAY  
+##### 17645#       发表于 2025-8-9 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239683&amp;ptid=2084912" target="_blank">实验性 发表于 2025-8-9 16:50</a>
+
+现在日区的谷歌商店用不了礼品卡了吗，我还想充点抽福袋来着
+
+—— 来自 OnePlus PJA110, Android 15, 鹅球 ...</blockquote>
+封的不是点卡是IP，不在当地或者独立IP的梯子什么的就没戏<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 17646#       发表于 2025-8-9 18:03
+
+泳装活动直播出演有美海，不会真的二期有泳装仇尼托吧
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">一个石头都没有了啊啊啊
+
