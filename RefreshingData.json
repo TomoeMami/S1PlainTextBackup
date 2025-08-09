@@ -7659,12 +7659,12 @@
     "update": false
   },
   "2034167": {
-    "totalreply": 513,
+    "totalreply": 514,
     "title": "[【国服】【世界弹射物语】来共斗啦]",
     "newtitle": "[【国服】【世界弹射物语】来共斗啦]",
-    "lastedit": 1746661690,
+    "lastedit": 1754709968,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2172255": {
@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 1823,
+    "totalreply": 1824,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》新PV公开，2025年6月26日发售]",
-    "lastedit": 1754709490,
+    "lastedit": 1754709727,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 5231,
+    "totalreply": 5232,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1754708288,
+    "lastedit": 1754710095,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11232,10 +11232,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 1231,
+    "totalreply": 1232,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1754709490,
+    "lastedit": 1754710095,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11475,10 +11475,10 @@
     "update": false
   },
   "2169941": {
-    "totalreply": 380,
+    "totalreply": 381,
     "title": "[拔作岛／ぬきたし 25年7月播出]",
     "newtitle": "[拔作岛／ぬきたし 25年7月播出]",
-    "lastedit": 1754706260,
+    "lastedit": 1754709851,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12856,15 +12856,6 @@
     "title": "[佛山顺德确诊478例基孔肯雅热]",
     "newtitle": "[佛山顺德确诊478例基孔肯雅热]",
     "lastedit": 1753999688,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2257238": {
-    "totalreply": 45,
-    "title": "[超高层建筑灭火能否用无人机实现？]",
-    "newtitle": "[超高层建筑灭火能否用无人机实现？]",
-    "lastedit": 1753500252,
     "category": "外野",
     "active": false,
     "update": false
@@ -15741,10 +15732,10 @@
     "update": false
   },
   "2258302": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "[武大这两新生群有点意思啊]",
     "newtitle": "[武大这两新生群有点意思啊]",
-    "lastedit": 1754707816,
+    "lastedit": 1754710091,
     "category": "外野",
     "active": true,
     "update": false
@@ -16497,10 +16488,10 @@
     "update": false
   },
   "2258579": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[韩国知名画师BIYA自述肿瘤转移医生一年后才告知，本周五紧急手术（NSFW）]",
     "newtitle": "[韩国知名画师BIYA自述肿瘤转移医生一年后才告知，本周五紧急手术（NSFW）]",
-    "lastedit": 1754666054,
+    "lastedit": 1754710095,
     "category": "外野",
     "active": true,
     "update": false
@@ -16641,10 +16632,10 @@
     "update": false
   },
   "2258637": {
-    "totalreply": 122,
+    "totalreply": 123,
     "title": "[贝森特：东大是现代以来经济最失衡的国家]",
     "newtitle": "[贝森特：东大是现代以来经济最失衡的国家]",
-    "lastedit": 1754687886,
+    "lastedit": 1754709851,
     "category": "外野",
     "active": true,
     "update": false
@@ -16911,10 +16902,10 @@
     "update": false
   },
   "2258641": {
-    "totalreply": 82,
+    "totalreply": 85,
     "title": "[也聊聊“反战败”]",
     "newtitle": "[也聊聊“反战败”]",
-    "lastedit": 1754707816,
+    "lastedit": 1754710095,
     "category": "外野",
     "active": true,
     "update": false
@@ -16996,6 +16987,15 @@
     "title": "[史密斯专员击杀数再+1]",
     "newtitle": "[史密斯专员击杀数再+1]",
     "lastedit": 1754708650,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252846": {
+    "totalreply": 41,
+    "title": "[AKB48 20周年纪念上海国家会展中心公演 9月26-27日]",
+    "newtitle": "[AKB48 20周年纪念上海国家会展中心公演 9月26-27日]",
+    "lastedit": 1754709853,
     "category": "外野",
     "active": true,
     "update": false
