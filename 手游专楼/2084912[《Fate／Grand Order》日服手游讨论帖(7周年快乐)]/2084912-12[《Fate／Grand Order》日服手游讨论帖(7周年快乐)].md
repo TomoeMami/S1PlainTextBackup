@@ -4946,3 +4946,58 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 白纸本上那两个加血土所长有什么傻瓜打法吗？月姬组都1宝，学妹跟所长有没有用？ ...</blockquote>
 傻瓜打法：前面拆角阶段也尽上高输出的人然后每天三令咒狂轰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  少女人形  
+##### 17622#       发表于 2025-8-9 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68237487&amp;ptid=2084912" target="_blank">poor 发表于 2025-8-8 23:34</a>
+
+白纸本上那两个加血土所长有什么傻瓜打法吗？月姬组都1宝，学妹跟所长有没有用？ ...</blockquote>
+土所长被枪/术/月/批这4个职介克制
+
+底层机制：对土所长和角造成伤害会给自己的所有队伍叠buff
+
+前5~6队尽量上克制光炮，目的是为了爆破掉角叠buff
+
+后面上单体靠buff灌死
+
+记得学姐放最后一队
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17623#       发表于 2025-8-9 07:55
+
+草 剧情池单抽出了白贞<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真能出货啊
+
+*****
+
+####  xunit  
+##### 17624#       发表于 2025-8-9 08:06
+
+刚开始打ex2，看了一眼这绊礼装的覆盖面，真是惨不忍睹
+
+*****
+
+####  poor  
+##### 17625#       发表于 2025-8-9 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68237817&amp;ptid=2084912" target="_blank">少女人形 发表于 2025-8-9 02:16</a>
+土所长被枪/术/月/批这4个职介克制
+
+底层机制：对土所长和角造成伤害会给自己的所有队伍叠buff
+
+前5~6队尽 ...</blockquote>
+还是太费脑了，最好有那种第几T按哪个键那种<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 17626#       发表于 2025-8-9 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68237768&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-8-9 01:30</a>
+傻瓜打法：前面拆角阶段也尽上高输出的人然后每天三令咒狂轰</blockquote>
+感觉效率还是有点低，是不是加点拐好点？
+
