@@ -1049,3 +1049,19 @@ fgo还能续一年。
 
 —— 来自 OnePlus PKR110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  麻花疼  
+##### 47310#       发表于 2025-8-9 09:08
+
+<img src="https://img.stage1st.com/forum/202508/09/090814bge1ib44xmx4cim4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250809090721.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-9 09:08 上传
+
+学姐UP的前一天，终于攒到了4000石。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
