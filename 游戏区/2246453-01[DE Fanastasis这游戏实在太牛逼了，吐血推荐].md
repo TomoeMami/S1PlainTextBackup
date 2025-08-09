@@ -40,3 +40,15 @@
 正式版隐藏奖励就只有打完隐藏BOSS憎恶之雫和魔界龙后得到的两个图鉴未收录道具(狂暴无效和无属性魔法)吗 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有全道具，全血迹，全敌人收集
 
+
+*****
+
+####  hootao  
+##### 438#       发表于 2025-8-9 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240348&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-8-9 19:37</a>
+还有全道具，全血迹，全敌人收集</blockquote>
+这几个是全收集证明，没法装备应该不算
+
+—— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
