@@ -5277,3 +5277,11 @@ here we go again.mp4
 
 你们池子是怎么歪的仇尼托啊教教我，抽仇尼托的池子tmd歪了呆毛王
 
+
+*****
+
+####  alucardcz  
+##### 17656#       发表于 2025-8-10 01:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起老冠位战普通支援看的是活动栏还是日常栏？
+

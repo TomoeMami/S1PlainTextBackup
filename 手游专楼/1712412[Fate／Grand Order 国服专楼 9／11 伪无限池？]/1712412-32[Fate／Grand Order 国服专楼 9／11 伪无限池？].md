@@ -1109,3 +1109,13 @@ fgo还能续一年。
 
 学姐一宝就纯拐？可以带点暴击礼装硬用吗
 
+
+*****
+
+####  xy1041  
+##### 47316#       发表于 2025-8-10 01:02
+
+兽艾蕾6宝只用了800石100护肤，现在又有1400石应战学姐，抽个二宝三宝就可以等年底月批，前途简直一片光明啊<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
