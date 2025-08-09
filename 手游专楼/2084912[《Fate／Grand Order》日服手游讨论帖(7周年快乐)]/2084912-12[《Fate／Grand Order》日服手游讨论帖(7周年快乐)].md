@@ -5258,3 +5258,22 @@ here we go again.mp4
 尬黑了 这不是123次一起来了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有一个池子只算一次
 
+
+*****
+
+####  lokiling  
+##### 17654#       发表于 2025-8-10 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68238070&amp;ptid=2084912" target="_blank">xunit 发表于 2025-8-9 08:06</a>
+
+刚开始打ex2，看了一眼这绊礼装的覆盖面，真是惨不忍睹</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">EX2用P公主所长所长后备挂3个秩序善/女  爽吃羁绊啊
+
+
+*****
+
+####  希望之花  
+##### 17655#       发表于 2025-8-10 00:15
+
+你们池子是怎么歪的仇尼托啊教教我，抽仇尼托的池子tmd歪了呆毛王
+
