@@ -546,3 +546,11 @@ ns港区没有啊，a爹你在干什么
 
 月姬pc版呢，怎么感觉咕咕了好久<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alfredno2  
+##### 59#       发表于 2025-8-9 15:42
+
+买了ns版 在ns2上玩感觉还不错
+

@@ -5037,3 +5037,41 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  少女人形  
+##### 17631#       发表于 2025-8-9 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68238157&amp;ptid=2084912" target="_blank">poor 发表于 2025-8-9 09:00</a>
+
+还是太费脑了，最好有那种第几T按哪个键那种</blockquote>
+淘宝找人代打吧<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17632#       发表于 2025-8-9 15:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刷吐了 最终2600石 3宝 歪了个欧巴罗和娄希 再见了 所长
+
+*****
+
+####  qixinno2  
+##### 17633#       发表于 2025-8-9 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239438&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-9 15:36</a>
+
+刷吐了 最终2600石 3宝 歪了个欧巴罗和娄希 再见了 所长</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 竟然还有娄希 太强了
+
+*****
+
+####  alucardcz  
+##### 17634#       发表于 2025-8-9 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239452&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-9 15:39</a>
+
+欧 竟然还有娄希 太强了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">非萌怎么能比的上欧皇的5宝所长呢
+
