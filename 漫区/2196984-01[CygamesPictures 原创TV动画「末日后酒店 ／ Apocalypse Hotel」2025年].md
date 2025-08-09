@@ -62,3 +62,19 @@ BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后
 <img src="https://p.sda1.dev/26/9a7b17f2fc7dfe14669a480591e5ff40/7.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/26/95873dbdb694fa7a6ad15ece89ed4e2e/8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 747#       发表于 2025-8-9 18:41
+
+ 本帖最后由 aptx8285144 于 2025-8-9 18:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240041&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-8-9 18:33</a>
+
+BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后再运回来，结果选错第一卷先发，好在顺利到达。
+
+ ...</blockquote>
+大佬辛苦，期待大佬的翻译，因为更喜欢后面三卷收录的内容，还在考虑当中（当然，客观原因之一还是全买太贵了，我看番以来买过两部bd的只有不吉波普和机动第八课（
+
+顺便问一下大佬是用什么机器或者说什么方式翻译的呀？我以前翻译不吉波普19卷的app，前段时间发现要收费后，正无语呢（
+
