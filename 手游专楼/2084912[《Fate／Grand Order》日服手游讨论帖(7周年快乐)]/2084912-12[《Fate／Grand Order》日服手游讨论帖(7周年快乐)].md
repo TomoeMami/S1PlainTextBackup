@@ -5075,3 +5075,37 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 欧 竟然还有娄希 太强了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">非萌怎么能比的上欧皇的5宝所长呢
 
+
+*****
+
+####  khxooo  
+##### 17635#       发表于 2025-8-9 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239438&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-9 15:36</a>
+刷吐了 最终2600石 3宝 歪了个欧巴罗和娄希 再见了 所长</blockquote>
+有娄西，欧羡慕<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17636#       发表于 2025-8-9 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239466&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-9 15:42</a>
+
+非萌怎么能比的上欧皇的5宝所长呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我只是勉强偷渡到了亚洲 不配当个欧皇
+
+*****
+
+####  alucardcz  
+##### 17637#       发表于 2025-8-9 16:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天就是大家最喜欢的5星术了 奶一下 一个孔明一个c狐
+
+*****
+
+####  qixinno2  
+##### 17638#       发表于 2025-8-9 16:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">只要是我有的出什么都行 别出我没有的就好
+
