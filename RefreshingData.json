@@ -1251,10 +1251,10 @@
     "update": false
   },
   "1712412": {
-    "totalreply": 47310,
+    "totalreply": 47311,
     "title": "[Fate／Grand Order 国服专楼 9／11 伪无限池？]",
     "newtitle": "[Fate／Grand Order FGO国服专楼 12／18 3000天已过，笑看日服运营入坟]",
-    "lastedit": 1754702048,
+    "lastedit": 1754703971,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 183288,
+    "totalreply": 183291,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754703249,
+    "lastedit": 1754703969,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 178973,
+    "totalreply": 178974,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1754703490,
+    "lastedit": 1754703727,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11232,10 +11232,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 1221,
+    "totalreply": 1222,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1754703369,
+    "lastedit": 1754703608,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11475,10 +11475,10 @@
     "update": false
   },
   "2169941": {
-    "totalreply": 378,
+    "totalreply": 379,
     "title": "[拔作岛／ぬきたし 25年7月播出]",
     "newtitle": "[拔作岛／ぬきたし 25年7月播出]",
-    "lastedit": 1754703493,
+    "lastedit": 1754703728,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14378,7 +14378,7 @@
     "newtitle": "[小米发布SU7 Ultra纽北限量版·2025版实车，限量10辆，售价81.49万元]",
     "lastedit": 1754444301,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2257893": {
@@ -15206,7 +15206,7 @@
     "newtitle": "[俄罗斯卡车进口新规]",
     "lastedit": 1754444664,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2130715": {
@@ -15687,10 +15687,10 @@
     "update": false
   },
   "2258268": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[“草坪必须保持绿色”，美国女子因高温天气没有浇水，致家门前草坪枯黄被投入了监狱]",
     "newtitle": "[“草坪必须保持绿色”，美国女子因高温天气没有浇水，致家门前草坪枯黄被投入了监狱]",
-    "lastedit": 1754644107,
+    "lastedit": 1754704088,
     "category": "外野",
     "active": true,
     "update": false
@@ -16952,6 +16952,24 @@
     "newtitle": "[我听交警的]",
     "lastedit": 1754703010,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2258698": {
+    "totalreply": 42,
+    "title": "[日本人口降幅创纪录，总人口即将跌破1.2亿]",
+    "newtitle": "[日本人口降幅创纪录，总人口即将跌破1.2亿]",
+    "lastedit": 1754704088,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2258677": {
+    "totalreply": 41,
+    "title": "[NS剧情好的游戏推荐]",
+    "newtitle": "[NS剧情好的游戏推荐]",
+    "lastedit": 1754703971,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

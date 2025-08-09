@@ -1065,3 +1065,15 @@ fgo还能续一年。
 
 学姐UP的前一天，终于攒到了4000石。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47311#       发表于 2025-8-9 09:40
+
+如果前五个池子全都按照数学期望数左右出货的话
+
+我也应该早就过4000石了
+
+现在带上呼符才刚够4井
+
