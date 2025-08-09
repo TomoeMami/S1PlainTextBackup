@@ -5215,3 +5215,35 @@ here we go again.mp4
 又欧又欧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不如狗萌新的术打手
 
+
+*****
+
+####  alucardcz  
+##### 17650#       发表于 2025-8-9 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240117&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-9 18:46</a>
+
+不如狗萌新的术打手</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">时代变了  我现在是非萌新
+
+
+*****
+
+####  qixinno2  
+##### 17651#       发表于 2025-8-9 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240140&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-9 18:50</a>
+
+时代变了  我现在是非萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你只非了一次算什么非 
+
+*****
+
+####  alucardcz  
+##### 17652#       发表于 2025-8-9 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240168&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-9 18:56</a>
+
+你只非了一次算什么非</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">尬黑了 这不是123次一起来了
+
