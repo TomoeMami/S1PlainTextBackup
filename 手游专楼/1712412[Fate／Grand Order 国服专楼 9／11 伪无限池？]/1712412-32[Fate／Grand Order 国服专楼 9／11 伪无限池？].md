@@ -1101,3 +1101,11 @@ fgo还能续一年。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">50抽，优势在我
 
+
+*****
+
+####  sandro  
+##### 47315#       发表于 2025-8-9 22:29
+
+学姐一宝就纯拐？可以带点暴击礼装硬用吗
+
