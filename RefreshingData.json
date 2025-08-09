@@ -5351,7 +5351,7 @@
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "lastedit": 1754519768,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1865528": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 183519,
+    "totalreply": 183520,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754778007,
+    "lastedit": 1754779688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2258707": {
-    "totalreply": 78,
+    "totalreply": 79,
     "title": "[我听交警的]",
     "newtitle": "[我听交警的]",
-    "lastedit": 1754760253,
+    "lastedit": 1754779690,
     "category": "外野",
     "active": true,
     "update": false
