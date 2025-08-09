@@ -562,3 +562,16 @@ ns港区没有啊，a爹你在干什么
 
  你们对虎头钳就那么有兴趣吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dxx9665  
+##### 61#       发表于 2025-8-9 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68227286&amp;ptid=2252174" target="_blank">usodakedo 发表于 2025-8-7 00:15</a>
+
+能不能顺便动画化？虽然我知道很难。
+
+认同前面漏油的说法，fha很有趣，如果是因为fsn入坑的型月，那fha确实 ...</blockquote>
+动画化的话可以去看幻想嘉年华
+
