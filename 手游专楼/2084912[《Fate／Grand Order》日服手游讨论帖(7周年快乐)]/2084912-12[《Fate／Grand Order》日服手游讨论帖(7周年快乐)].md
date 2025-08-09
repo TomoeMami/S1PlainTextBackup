@@ -5001,3 +5001,39 @@ EX1、2的选定战搞掂了，所长就算只带午茶+秩序女，配合奥伯
 傻瓜打法：前面拆角阶段也尽上高输出的人然后每天三令咒狂轰</blockquote>
 感觉效率还是有点低，是不是加点拐好点？
 
+
+*****
+
+####  DARKGRAY  
+##### 17627#       发表于 2025-8-9 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68238160&amp;ptid=2084912" target="_blank">poor 发表于 2025-8-9 09:01</a>
+
+感觉效率还是有点低，是不是加点拐好点？</blockquote>
+加拐当然也算提高输出的一环<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17628#       发表于 2025-8-9 11:23
+
+现在才发现，怠惰在组队时的表情一脸的不愿意，比奥伯龙的表情还厉害<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17629#       发表于 2025-8-9 12:44
+
+羁绊6的任务130骑就没了？ 红的开锁道具还缺不少啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+现在红的黄的都没了反而最高级的还剩3个用不掉<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 17630#       发表于 2025-8-9 13:51
+
+骑和杀两棵树都只把带宝具威力的那两条线点满了，然后用这两场冠位战的星星再点半颗弓树
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
