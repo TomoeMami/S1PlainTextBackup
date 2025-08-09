@@ -14607,3 +14607,22 @@ sorry没关私密搜索 现在能搜到了
 
 虽然玩了百来小时，但你们说的种子是什么意思？
 
+
+*****
+
+####  jockeyjoestar  
+##### 1397#       发表于 2025-8-9 22:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  研究了半天 最后发现是雾门mod没更新  蛋疼  算了算了 
+
+*****
+
+####  囧Smith  
+##### 1398#       发表于 2025-8-9 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240908&amp;ptid=2210352" target="_blank">Jabeck 发表于 2025-8-9 21:39</a>
+虽然玩了百来小时，但你们说的种子是什么意思？</blockquote>
+肉鸽游戏一般都会有一个随机数种子，固定随机数种子你在一局内的地图掉落怪物都是固定的（或者根据随机数列顺序有所不同）
+黑环的种子主要是指地图上各种建筑和boss在地图上的分布以及特殊事件的组合，应该不是每局随机生成而是fs自己安排好的，组合数量有限，玩得够多开局就知道哪里是哪个boss，有没有特殊事件了。
+至于物品和词条掉落，目前来看还比较随机。
+
