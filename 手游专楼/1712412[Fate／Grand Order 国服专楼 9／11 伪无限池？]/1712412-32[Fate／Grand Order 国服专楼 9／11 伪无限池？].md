@@ -1139,3 +1139,46 @@ fgo还能续一年。
 
 我按500石头一个五星算都是往好了估计的啊
 
+
+*****
+
+####  麻花疼  
+##### 47319#       发表于 2025-8-10 14:53
+
+<img src="https://img.stage1st.com/forum/202508/10/144912g47i66piidve4k6v.png" referrerpolicy="no-referrer">
+
+<strong>F9D8UFULHF5]TJ])LT78IHS.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-10 14:49 上传
+
+<img src="https://img.stage1st.com/forum/202508/10/144917na089p99wda6w3qw.png" referrerpolicy="no-referrer">
+
+<strong>36B)9@G_HPLH]2TLLWY~KXP.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-10 14:49 上传
+
+<img src="https://img.stage1st.com/forum/202508/10/144921hy7hc5il7bvvzv0v.png" referrerpolicy="no-referrer">
+
+<strong>0AZU]{$_N3{956`W21RTR%D.png</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-10 14:49 上传
+
+330石，40护符，3宝学姐，两个当期四星也都出了，徐福四宝，毛萝一宝。
+
+剩下的石头备战牢茜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doublehit  
+##### 47320#       发表于 2025-8-10 14:56
+
+1300石二宝，太好玩了这游戏<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
