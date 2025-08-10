@@ -5425,3 +5425,15 @@ here we go again.mp4
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">狐狸在这游戏里的待遇也太差了
 
+
+*****
+
+####  eilot  
+##### 17673#       发表于 2025-8-10 17:33
+
+孔明那招...原本幫他人充NP30再追加寶具強化3T(30%)+OC2(3T但一回)
+
+你又要回醫院了
+
+近期不少強化都是由原本1T變成3T，不過就看有沒限次數
+
