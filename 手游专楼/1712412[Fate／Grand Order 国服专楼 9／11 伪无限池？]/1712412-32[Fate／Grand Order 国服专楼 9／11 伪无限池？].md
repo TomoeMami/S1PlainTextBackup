@@ -1199,3 +1199,44 @@ fgo还能续一年。
 
 小号300石头学姐+兽蕾，大号1200石头三宝，其实在之前欧的时候就猜到学姐会还债的了，没先到这么伤<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風駿  
+##### 47323#       发表于 2025-8-10 15:04
+
+放弃兽艾蕾省下700+石头全部砸下去，希耶尔3宝、徐福6宝、毛子5宝
+
+*****
+
+####  实验性  
+##### 47324#       发表于 2025-8-10 15:06
+
+30发没出，压力给到好友<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Akakaka  
+##### 47325#       发表于 2025-8-10 15:07
+
+之前抽兽尼上头这次只有500多石2宝学姐，呆毛+1，
+
+然后两个四星一个四宝一个五宝
+
+尴尬的发现终之花要通奏二
+
+现在开始紧急上班_(:_」∠)_
+
+*****
+
+####  麻花疼  
+##### 47326#       发表于 2025-8-10 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68243399&amp;ptid=1712412" target="_blank">Akakaka 发表于 2025-8-10 15:07</a>
+之前抽兽尼上头这次只有500多石2宝学姐，呆毛+1，
+
+然后两个四星一个四宝一个五宝
+
+尴尬的发现终之花要通奏二 ...</blockquote>
+白方块能换
+
