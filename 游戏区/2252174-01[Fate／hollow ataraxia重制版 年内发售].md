@@ -594,3 +594,14 @@ ns港区没有啊，a爹你在干什么
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  酱稀饭  
+##### 64#       发表于 2025-8-10 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239464&amp;ptid=2252174" target="_blank">alfredno2 发表于 2025-8-9 15:42</a>
+
+买了ns版 在ns2上玩感觉还不错</blockquote>
+在哪个服买的？港服还没上
+
