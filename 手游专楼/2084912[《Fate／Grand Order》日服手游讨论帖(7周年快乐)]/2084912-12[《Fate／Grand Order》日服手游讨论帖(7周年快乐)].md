@@ -5347,3 +5347,14 @@ here we go again.mp4
 
 单抽 雪山樱，也好，起码是个金卡<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17664#       发表于 2025-8-10 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68242804&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-10 12:24</a>
+
+单抽 雪山樱，也好，起码是个金卡</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 为什么楼友总能出货
+
