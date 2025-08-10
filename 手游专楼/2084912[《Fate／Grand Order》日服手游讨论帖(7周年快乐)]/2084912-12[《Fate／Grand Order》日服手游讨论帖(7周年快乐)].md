@@ -5387,3 +5387,18 @@ here we go again.mp4
 
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">还有15分钟漏油最喜欢的玉玉就要强化了（
 
+
+*****
+
+####  alucardcz  
+##### 17668#       发表于 2025-8-10 17:01
+
+是孔明<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 17669#       发表于 2025-8-10 17:03
+
+我玉是最早备战11年强化的从者
+
