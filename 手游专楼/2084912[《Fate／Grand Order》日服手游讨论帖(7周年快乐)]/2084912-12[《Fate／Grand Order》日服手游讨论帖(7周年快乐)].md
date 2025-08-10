@@ -5437,3 +5437,24 @@ here we go again.mp4
 
 近期不少強化都是由原本1T變成3T，不過就看有沒限次數
 
+
+*****
+
+####  khxooo  
+##### 17674#       发表于 2025-8-10 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68239814&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-9 17:31</a>
+
+奶一口明天强化C呆 三技能给个宝威</blockquote>
+奶对宝威了，可惜奶错人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 17675#       发表于 2025-8-10 17:50
+
+oc相关的buff都有次数限制，现在给水根打下手不错的，同为ex系女主狐狸跟尼禄一对比有点太惨了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
