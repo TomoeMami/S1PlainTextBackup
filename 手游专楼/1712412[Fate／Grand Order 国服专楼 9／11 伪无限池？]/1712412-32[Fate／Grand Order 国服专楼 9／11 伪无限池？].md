@@ -1408,3 +1408,20 @@ fgo还能续一年。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  GALLADE  
+##### 47344#       发表于 2025-8-10 20:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一年一度的抽卡结束了，不知道存到所长能存多少石，但好像娄希什么的还得抽
+
+*****
+
+####  doublehit  
+##### 47345#       发表于 2025-8-10 20:25
+
+二宝学姐能用吗，能用我就继续攒石头了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
