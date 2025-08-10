@@ -1240,3 +1240,46 @@ fgo还能续一年。
 尴尬的发现终之花要通奏二 ...</blockquote>
 白方块能换
 
+
+*****
+
+####  苍蓝之枪  
+##### 47327#       发表于 2025-8-10 15:13
+
+娄希大概不抽了，其他继续按计划抽
+
+计划基本都按500石头一个五星指定的
+
+真的石头没了的时候大概也是说再见的时候了
+
+
+*****
+
+####  实验性  
+##### 47328#       发表于 2025-8-10 15:20
+
+我服了，真有人能十连五宝啊
+
+<img src="https://img.stage1st.com/forum/202508/10/152014iz1ya912dost252t.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-10_15-19-40.png</strong> (264.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-10 15:20 上传
+
+<img src="https://img.stage1st.com/forum/202508/10/152014dgcmvii3f556vcbg.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-10_15-19-47.png</strong> (307.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-10 15:20 上传
+
+*****
+
+####  kyonkoism  
+##### 47329#       发表于 2025-8-10 15:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两次都是保底剩50抽的时候抽到的，太伤了
+
