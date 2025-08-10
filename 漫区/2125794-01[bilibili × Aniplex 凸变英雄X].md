@@ -53,3 +53,16 @@
 
 萝莉能和他过好多招，魂电也二打一(三打一？)也拿不下
 
+
+*****
+
+####  rushsong  
+##### 446#       发表于 2025-8-10 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68243026&amp;ptid=2125794" target="_blank">达达达达葱 发表于 2025-8-10 13:21</a>
+
+默杀是不是被甲克制
+
+萝莉能和他过好多招，魂电也二打一(三打一？)也拿不下 ...</blockquote>
+实际上信赖值到底影不影响战力也没说，设定不严谨
+
