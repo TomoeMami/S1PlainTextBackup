@@ -17,3 +17,13 @@ nagi能看到
 全程应该只有sayu一人不知道发生了什么。
 <img src="https://p.sda1.dev/26/954ca8f30bef4e1eeb579da2e700032a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1701#       发表于 2025-8-10 19:09
+
+Nagi也泪目了，唱到最后大家都绷不住<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
