@@ -1425,3 +1425,16 @@ fgo还能续一年。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47346#       发表于 2025-8-10 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68244517&amp;ptid=1712412" target="_blank">doublehit 发表于 2025-8-10 20:25</a>
+
+二宝学姐能用吗，能用我就继续攒石头了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+2宝可以了，攒石头吧，战年底那两张卡。
+

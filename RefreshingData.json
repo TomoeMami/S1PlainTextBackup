@@ -1152,12 +1152,12 @@
     "update": false
   },
   "2064739": {
-    "totalreply": 4063,
+    "totalreply": 4064,
     "title": "[塔防手游无期迷途8月11日公测]",
     "newtitle": "[塔防手游无期迷途8月11日公测]",
-    "lastedit": 1754563573,
+    "lastedit": 1754829969,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2015087": {
@@ -1251,10 +1251,10 @@
     "update": false
   },
   "1712412": {
-    "totalreply": 47345,
+    "totalreply": 47346,
     "title": "[Fate／Grand Order 国服专楼 9／11 伪无限池？]",
     "newtitle": "[Fate／Grand Order FGO国服专楼 12／18 3000天已过，笑看日服运营入坟]",
-    "lastedit": 1754828769,
+    "lastedit": 1754829970,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 6206,
+    "totalreply": 6207,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1754812208,
+    "lastedit": 1754829970,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 183648,
+    "totalreply": 183649,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754829488,
+    "lastedit": 1754829852,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 179738,
+    "totalreply": 179748,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1754829259,
+    "lastedit": 1754829853,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11286,10 +11286,10 @@
     "update": false
   },
   "2208790": {
-    "totalreply": 244,
+    "totalreply": 246,
     "title": "[2025年超级战队 No.1 SENTAI GOZYUGER]",
     "newtitle": "[2025年超级战队 No.1 SENTAI GOZYUGER]",
-    "lastedit": 1754816650,
+    "lastedit": 1754829610,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11466,10 +11466,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 7283,
+    "totalreply": 7284,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／8.7晚九点iw]",
-    "lastedit": 1754828652,
+    "lastedit": 1754829853,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16569,10 +16569,10 @@
     "update": false
   },
   "2258666": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[这旧剑动画化是没下文了？]",
     "newtitle": "[这旧剑动画化是没下文了？]",
-    "lastedit": 1754823614,
+    "lastedit": 1754829612,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16605,10 +16605,10 @@
     "update": false
   },
   "2258692": {
-    "totalreply": 160,
+    "totalreply": 162,
     "title": "[【易托横评】65辆热门新能源车高速极限续航测试]",
     "newtitle": "[【易托横评】65辆热门新能源车高速极限续航测试]",
-    "lastedit": 1754829266,
+    "lastedit": 1754830089,
     "category": "外野",
     "active": true,
     "update": false
@@ -16650,10 +16650,10 @@
     "update": false
   },
   "2258745": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[我顿时就猪脑过载了]",
     "newtitle": "[我顿时就猪脑过载了]",
-    "lastedit": 1754820369,
+    "lastedit": 1754830089,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16839,10 @@
     "update": false
   },
   "2258848": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[澳洲现在这么讨厌华人吗？]",
     "newtitle": "[澳洲现在这么讨厌华人吗？]",
-    "lastedit": 1754829488,
+    "lastedit": 1754830089,
     "category": "外野",
     "active": true,
     "update": false
@@ -16862,6 +16862,15 @@
     "newtitle": "[我讨厌JRPG的通关后的终盘游玩设定]",
     "lastedit": 1754829013,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2258827": {
+    "totalreply": 41,
+    "title": "[为什么欧美影视剧里他们吃药干吃的]",
+    "newtitle": "[为什么欧美影视剧里他们吃药干吃的]",
+    "lastedit": 1754829855,
+    "category": "外野",
     "active": true,
     "update": false
   }
