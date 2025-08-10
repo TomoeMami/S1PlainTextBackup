@@ -2023,3 +2023,47 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
        [https://x.com/comic_growl/status/1953969858665914387](https://x.com/comic_growl/status/1953969858665914387)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41161#       发表于 2025-8-11 00:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/11/003222k318i2iib40bjxy1.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-11_00-31-24.jpg</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-11 00:32 上传
+
+       链接：[https://post.tv-asahi.co.jp/post-535610/](https://post.tv-asahi.co.jp/post-535610/)
+
+       <strong>日本朝日电视台介绍邦多利 Ave Mujica EIGHT-JAM 高尾奏音 米澤茜 登场</strong>
+ <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/11/003356txstc4gp8lljzgzv.jpg" referrerpolicy="no-referrer">
+
+<strong>39b00131733252132242cfc234a250a80cdb2df8.jpg</strong> (241.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-11 00:33 上传
+
+[https://www.tv-asahi.co.jp/eightjam/](https://www.tv-asahi.co.jp/eightjam/)
+
+日本朝日电视台EIGHT-JAM介绍少女乐队，邦多利，AveMujica等
+
+这是全国同步播出的节目（全国ネット番組），邦邦也是进入主流媒体了呢！
+
+出演： 村上信五（主持人）
+
+高尾奏音
+
+米泽茜（动捕镜头）
+
+等</blockquote>
+       [https://www.bilibili.com/video/BV1GCbNz8EdG/](https://www.bilibili.com/video/BV1GCbNz8EdG/)
+
