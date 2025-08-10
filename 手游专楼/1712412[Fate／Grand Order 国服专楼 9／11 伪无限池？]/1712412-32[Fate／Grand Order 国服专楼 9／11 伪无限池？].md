@@ -1336,3 +1336,11 @@ fgo还能续一年。
 学姐需要6宝吗</blockquote>
 没必要，5宝就可以了。
 
+
+*****
+
+####  纯白花火  
+##### 47336#       发表于 2025-8-10 17:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">160抽满宝，fgo啥时这么良心了
+
