@@ -415,3 +415,11 @@
 
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  solmyrli  
+##### 90#       发表于 2025-8-10 13:35
+
+绷不住了，太上瘾了，目前玩到中期大半好友好感刷一半以上了，现在天天晚上睡觉做梦都是投骰子……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
