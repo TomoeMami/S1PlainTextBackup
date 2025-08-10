@@ -1481,3 +1481,22 @@ fgo还能续一年。
 
 想问下这游戏什么时候能优先消耗十连护符，什么时候开月癌星图？
 
+
+*****
+
+####  奈落的孤火花  
+##### 47351#       发表于 2025-8-11 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68205330&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-8-3 05:58</a>
+
+虽然歪，但5星出率有点高啊</blockquote>
+确实是比较高的出率了
+
+<img src="https://img.stage1st.com/forum/202508/11/020842bkw3ooxckwxpx3wx.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-08-10_20-00-48.png</strong> (200.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-11 02:08 上传
+
