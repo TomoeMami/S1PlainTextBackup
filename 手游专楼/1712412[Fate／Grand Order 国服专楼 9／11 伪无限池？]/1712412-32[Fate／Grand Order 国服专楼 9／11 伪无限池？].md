@@ -1182,3 +1182,20 @@ fgo还能续一年。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  深渊骑士  
+##### 47321#       发表于 2025-8-10 14:59
+
+1400事3宝学姐，7宝尼基，5宝徐福的游戏太好玩了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 47322#       发表于 2025-8-10 15:02
+
+小号300石头学姐+兽蕾，大号1200石头三宝，其实在之前欧的时候就猜到学姐会还债的了，没先到这么伤<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
