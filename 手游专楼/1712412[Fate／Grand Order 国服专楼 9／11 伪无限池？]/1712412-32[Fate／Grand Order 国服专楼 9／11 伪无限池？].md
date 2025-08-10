@@ -1500,3 +1500,18 @@ fgo还能续一年。
 
 2025-8-11 02:08 上传
 
+
+*****
+
+####  qucqee  
+##### 47352#       发表于 2025-8-11 06:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68245527&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2025-8-11 01:00</a>
+
+一千石五宝学姐
+
+想问下这游戏什么时候能优先消耗十连护符，什么时候开月癌星图？ ...</blockquote>
+2400 5宝
+
+下个月奏3打完 月癌就开了
+
