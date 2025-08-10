@@ -11183,7 +11183,7 @@
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
     "lastedit": 1754528655,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2071758": {
@@ -12858,15 +12858,6 @@
     "lastedit": 1754767811,
     "category": "漫区",
     "active": true,
-    "update": false
-  },
-  "1952573": {
-    "totalreply": 406,
-    "title": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
-    "newtitle": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
-    "lastedit": 1753578370,
-    "category": "漫区",
-    "active": false,
     "update": false
   },
   "2257506": {
@@ -16695,10 +16686,10 @@
     "update": false
   },
   "2258641": {
-    "totalreply": 128,
+    "totalreply": 129,
     "title": "[也聊聊“反战败”]",
     "newtitle": "[也聊聊“反战败”]",
-    "lastedit": 1754785689,
+    "lastedit": 1754787967,
     "category": "外野",
     "active": true,
     "update": false
