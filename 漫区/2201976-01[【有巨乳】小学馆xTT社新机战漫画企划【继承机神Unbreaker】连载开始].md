@@ -10,3 +10,11 @@
 この漫画は「週刊コロコロコミック」の漫画ではなく「小学館スーパー ...</blockquote>
 奇怪 作者也人间蒸发了
 
+
+*****
+
+####  永恒的王牌  
+##### 75#       发表于 2025-8-10 14:45
+
+可惜，当初看到冬瓜奶还挺感兴趣的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
