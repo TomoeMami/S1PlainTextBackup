@@ -5497,3 +5497,13 @@ C呆还是太强了 这几年蓝卡全都在还债
 因为你太欧了 我这种非洲人只有那几个卡不用拐都冲不起来 大拐羁绊嘎嘎升 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">有没有可能是太非了 有拐都不能用
 
+
+*****
+
+####  qixinno2  
+##### 17680#       发表于 2025-8-10 18:45
+
+<blockquote>alucardcz 发表于 2025-8-10 18:25
+有没有可能是太非了 有拐都不能用</blockquote>
+狗萌新只要自动组队无脑冲就好了 非洲人就只能用几个角色艰难刷本
+
