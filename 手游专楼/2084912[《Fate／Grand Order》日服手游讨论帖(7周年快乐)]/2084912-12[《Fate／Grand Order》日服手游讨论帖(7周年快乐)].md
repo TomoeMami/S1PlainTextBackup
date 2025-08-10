@@ -5469,3 +5469,31 @@ oc相关的buff都有次数限制，现在给水根打下手不错的，同为ex
 
 C呆还是太强了 这几年蓝卡全都在还债
 
+
+*****
+
+####  alucardcz  
+##### 17677#       发表于 2025-8-10 18:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">都是欧皇 我们非萌很久没用过蓝卡了 c呆甚至都没15羁绊
+
+
+*****
+
+####  qixinno2  
+##### 17678#       发表于 2025-8-10 18:25
+
+<blockquote>alucardcz 发表于 2025-8-10 18:18
+都是欧皇 我们非萌很久没用过蓝卡了 c呆甚至都没15羁绊</blockquote>
+因为你太欧了 我这种非洲人只有那几个卡不用拐都冲不起来 大拐羁绊嘎嘎升
+
+*****
+
+####  alucardcz  
+##### 17679#       发表于 2025-8-10 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68244069&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-10 18:25</a>
+
+因为你太欧了 我这种非洲人只有那几个卡不用拐都冲不起来 大拐羁绊嘎嘎升 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">有没有可能是太非了 有拐都不能用
+
