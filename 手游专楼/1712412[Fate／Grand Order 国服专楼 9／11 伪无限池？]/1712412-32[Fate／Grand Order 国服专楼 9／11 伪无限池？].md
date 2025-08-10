@@ -1283,3 +1283,20 @@ fgo还能续一年。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两次都是保底剩50抽的时候抽到的，太伤了
 
+
+*****
+
+####  一个陆仁贾  
+##### 47330#       发表于 2025-8-10 15:31
+
+400石两宝
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  GuDaZi  
+##### 47331#       发表于 2025-8-10 15:34
+
+约150抽3宝学姐，2宝徐福，没有尼基。只能到这了
+
