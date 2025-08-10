@@ -1325,3 +1325,14 @@ fgo还能续一年。
 
 这回剩下370石，2宝希尔，2宝水徐福，1宝尼基，可以了
 
+
+*****
+
+####  khxooo  
+##### 47335#       发表于 2025-8-10 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68243679&amp;ptid=1712412" target="_blank">GALLADE 发表于 2025-8-10 16:33</a>
+
+学姐需要6宝吗</blockquote>
+没必要，5宝就可以了。
+

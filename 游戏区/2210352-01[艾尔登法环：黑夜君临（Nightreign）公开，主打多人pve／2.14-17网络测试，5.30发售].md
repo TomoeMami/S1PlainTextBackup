@@ -14656,3 +14656,23 @@ sorry没关私密搜索 现在能搜到了
 
 感觉冰龙还是比王皮蛋打着好玩很多，整体战斗流程和大嘴比较接近，熟悉了后不用雪山也能无压力过，隐城玩多了试了下火山开，主打一个随机选一个幸运武器变成金色打王冰，也是蛮有意思的
 
+
+*****
+
+####  petitlui  
+##### 1402#       发表于 2025-8-10 15:10
+
+<blockquote>luodang007 发表于 2025-8-9 11:55
+昨天和队友山妖城，清完雪山地图，一个14，两个13，我无赖右手金武，左手初始武器带火伤，完全打不出硬直是 ...</blockquote>
+有雪山buff和火伤武器不应该呀，甚至冰龙的冰甲不一定要火属性才能破，输出足够（没研究到底是累计伤害还是削刃）就能破甲，无赖的话一直跳劈打头或者干脆修脚应该不难过的。
+
+*****
+
+####  luodang007  
+##### 1403#       发表于 2025-8-10 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68243407&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-8-10 15:10</a>
+
+有雪山buff和火伤武器不应该呀，甚至冰龙的冰甲不一定要火属性才能破，输出足够（没研究到底是累计伤害还 ...</blockquote>
+今晚如果还过不了的话，自己solo看看<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，看别人玩的视频很容易就硬直了，见鬼了
+
