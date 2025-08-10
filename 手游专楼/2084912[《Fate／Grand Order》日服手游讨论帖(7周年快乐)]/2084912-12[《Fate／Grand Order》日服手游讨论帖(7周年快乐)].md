@@ -5410,3 +5410,18 @@ here we go again.mp4
 
 小玉果然寄了，哎
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17671#       发表于 2025-8-10 17:21
+
+梭哈抽果子龙new了项羽<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是挖点石头等飞嫂吧
+
+*****
+
+####  都谷捻柏  
+##### 17672#       发表于 2025-8-10 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">狐狸在这游戏里的待遇也太差了
+
