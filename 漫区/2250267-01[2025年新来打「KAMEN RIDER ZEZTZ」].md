@@ -554,3 +554,11 @@ VISIONS TV size （『仮面ライダーゼッツ』主題歌）：[https://yout
 
 监督镇上堀内，山口，柏木和叶山平时不常见的都来了，杉原坂本不见，不知道等后面有没有，关键是为啥柴崎不能缺席一次，求求你了柴崎，去拍剧场版和外传吧
 
+
+*****
+
+####  阿刚  
+##### 179#       发表于 2025-8-10 22:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这逼令和骑士我看也就这样了，不能再报任何期望了
+
