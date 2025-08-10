@@ -2484,3 +2484,21 @@ DLC更新了
 
 DLC一个周末感觉快通关了，剧情设定还行，就是还有一个右上角绿色水晶的旋涡恶魔找不到在哪里
 
+
+*****
+
+####  锐鬼niki  
+##### 258#       发表于 2025-8-11 00:05
+
+<blockquote>wolfwood 发表于 2025-8-10 23:04
+DLC一个周末感觉快通关了，剧情设定还行，就是还有一个右上角绿色水晶的旋涡恶魔找不到在哪里 ...</blockquote>
+右上角那位在荒芜之地的左下角山洞里
+
+<img src="https://img.stage1st.com/forum/202508/11/000532pfzkfl0tf5tgp8f9.jpg" referrerpolicy="no-referrer">
+
+<strong>1000068970.jpg</strong> (134.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-11 00:05 上传
+
