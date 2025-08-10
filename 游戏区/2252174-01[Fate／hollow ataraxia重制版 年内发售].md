@@ -605,3 +605,13 @@ ns港区没有啊，a爹你在干什么
 买了ns版 在ns2上玩感觉还不错</blockquote>
 在哪个服买的？港服还没上
 
+
+*****
+
+####  kuarwbwe  
+##### 65#       发表于 2025-8-10 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68243274&amp;ptid=2252174" target="_blank">酱稀饭 发表于 2025-8-10 14:28</a>
+在哪个服买的？港服还没上</blockquote>
+日服可以买。
+
