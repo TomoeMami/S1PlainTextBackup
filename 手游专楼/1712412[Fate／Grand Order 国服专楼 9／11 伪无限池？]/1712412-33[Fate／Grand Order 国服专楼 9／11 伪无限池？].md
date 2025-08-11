@@ -42,3 +42,21 @@
 
 大翻车，概率全被徐福吃掉了，重现抽兽尼时的惨剧
 
+
+*****
+
+####  莱希拉姆  
+##### 47366#       发表于 2025-8-11 16:20
+
+第一宝吃井，第二30抽出，0五星，徐福出了9只<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 47367#       发表于 2025-8-11 16:25
+
+强化连续两个大成功，直接切过去一发十连，第三宝
+
+—— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
