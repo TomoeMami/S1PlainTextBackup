@@ -14828,3 +14828,14 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 8~10点固定两小时，童叟无欺 ...</blockquote>
 现在随便组个野队也不至于day1只能升到5-6级了，找点视频看看别人是怎么发育的吧
 
+
+*****
+
+####  斯普林菲尔德  
+##### 1419#       发表于 2025-8-11 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68246819&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-8-11 10:41</a>
+
+严格来说不是打碎冰块，冰龙每次给自己套冰甲后固定派生飞天落地放冰柱引发全屏暴风雪，在暴风雪生成前用 ...</blockquote>
+那还挺麻烦的，如果玩守护者的话还是很难处理这个机制，果然这个BOSS还是老实玩追踪者或者无赖好了。
+
