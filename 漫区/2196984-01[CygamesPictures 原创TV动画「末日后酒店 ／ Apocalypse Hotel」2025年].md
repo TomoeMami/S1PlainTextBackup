@@ -148,3 +148,17 @@ BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后
 
 虽然没有直接明示蚂蚁星人是怎么死的，但是一直是喜剧气氛为主（而不是添头）的好像只有第十集<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 753#       发表于 2025-8-11 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68244295&amp;ptid=2196984" target="_blank">shimotsuki14 发表于 2025-8-10 19:27</a>
+“当您什么都不想思考的时候可以播放看看，偶尔重温一下我也会非常高兴的。”
+
+2025年的惊喜。以后提到2025 ...</blockquote>
+我开香槟了反正，预定年度最佳<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
