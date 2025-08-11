@@ -5649,3 +5649,14 @@ x毛除了1技能过于幽默，其他三个强化肯定不能算是无效强化
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ex1冠位树搞定了，好像时间不够搞ex2的树了，是不是后面还有一次免门票的
 
+
+*****
+
+####  quanlix  
+##### 17694#       发表于 2025-8-11 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68248830&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-8-11 15:47</a>
+
+ex1冠位树搞定了，好像时间不够搞ex2的树了，是不是后面还有一次免门票的</blockquote>
+对的，8.27~9.3期间也免门票
+
