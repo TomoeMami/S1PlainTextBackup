@@ -1573,3 +1573,13 @@ fgo还能续一年。
 
 2025-8-11 09:48 上传
 
+
+*****
+
+####  khxooo  
+##### 47358#       发表于 2025-8-11 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68246380&amp;ptid=1712412" target="_blank">GALLADE 发表于 2025-8-11 09:39</a>
+千里眼范围内什么时候有种火半体和大成功几率UP啊，没规划过学姐104级就把迦里吃穷了 ...</blockquote>
+10月3000dl有大成功翻倍。
+
