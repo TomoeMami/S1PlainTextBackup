@@ -34,3 +34,11 @@
 
 第一宝吃井，第二60抽出<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 47365#       发表于 2025-8-11 12:24
+
+大翻车，概率全被徐福吃掉了，重现抽兽尼时的惨剧
+
