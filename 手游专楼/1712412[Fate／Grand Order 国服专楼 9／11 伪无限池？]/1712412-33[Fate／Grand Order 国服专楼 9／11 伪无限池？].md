@@ -76,3 +76,13 @@
 
 水艾蕾1080石+12护符满宝，学姐750+20护符3宝，还行
 
+
+*****
+
+####  FrozenA  
+##### 47370#       发表于 2025-8-12 02:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">孔明羁绊石头出来咋下去，学姐二宝了
+
+接下来一年活动体验有保底了
+
