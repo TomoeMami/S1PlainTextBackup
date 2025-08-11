@@ -60,3 +60,11 @@
 
 —— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  dhddhh  
+##### 47368#       发表于 2025-8-11 21:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好久没翻的这么厉害了，通常5宝的石头这次也就2宝，隔壁日服靠送的相同的石头得到所长6宝+学姐1宝
+
