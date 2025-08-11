@@ -14712,3 +14712,15 @@ sorry没关私密搜索 现在能搜到了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  luodang007  
+##### 1408#       发表于 2025-8-11 08:17
+
+服了，昨天3把又都没过。第一把在雪山突然碰到征兆，还以为送经验，结果打完被传送到最下面那个水地里，又重新跑一遍。
+
+第二和第三把都在雪山被恶魔诅咒了，然后又跑回来解诅咒，再过去
+
+这样子雪山buff至少少拿3个，fs做做人吧，特殊事件搞这么远干啥<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

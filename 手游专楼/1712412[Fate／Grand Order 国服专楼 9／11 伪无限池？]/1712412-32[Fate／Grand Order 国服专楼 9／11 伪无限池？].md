@@ -1528,3 +1528,17 @@ fgo还能续一年。
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 千石就井了吧，怎么还会最后凑30石抽到一个？
 
+
+*****
+
+####  往日不在  
+##### 47354#       发表于 2025-8-11 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">B​​BChannel 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+400多石无四星和五星，哈哈哈，太好玩了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
