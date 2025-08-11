@@ -129,3 +129,16 @@
 
 套皮主播和老爱这种根本是两个赛道了，商业模式都不同，后者垮台我觉得怪不了前者，不然不可能跨的如此全面性的，如果有两个商品品相属于相同赛道相互之间形成竞争的话，即使其中一个品相占据优势地位，劣势地位的品相哪怕大部分都垮了也应该能留下几个有竞争力的单品，全面跨成这样只能说明后者根本商业模式有问题，最初的投资吃完了就寄了
 
+
+*****
+
+####  艾特娜  
+##### 1492#       发表于 2025-8-11 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68245909&amp;ptid=2171972" target="_blank">wbtsy 发表于 2025-8-11 08:01</a>
+
+倒台和消失都不是一夜之间，是此消彼长的。
+
+那个时代还有一些v活得比爱久，但是都是路边一条或者转型成直 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是youtube真人主播依然是视频势大于直播势呢
+
