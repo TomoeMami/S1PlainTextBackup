@@ -1515,3 +1515,16 @@ fgo还能续一年。
 
 下个月奏3打完 月癌就开了
 
+
+*****
+
+####  flyzzhj  
+##### 47353#       发表于 2025-8-11 08:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68244117&amp;ptid=1712412" target="_blank">g020941 发表于 2025-8-10 18:39</a>
+
+1700石1宝，歪了两张，还好最后凑的30石抽到1个
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+千石就井了吧，怎么还会最后凑30石抽到一个？
+
