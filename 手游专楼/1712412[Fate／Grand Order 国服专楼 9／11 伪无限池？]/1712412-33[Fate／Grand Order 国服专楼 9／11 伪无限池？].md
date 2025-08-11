@@ -68,3 +68,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好久没翻的这么厉害了，通常5宝的石头这次也就2宝，隔壁日服靠送的相同的石头得到所长6宝+学姐1宝
 
+
+*****
+
+####  Urakawa  
+##### 47369#       发表于 2025-8-11 21:47
+
+水艾蕾1080石+12护符满宝，学姐750+20护符3宝，还行
+
