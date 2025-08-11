@@ -14883,3 +14883,16 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 第二个是另外两个不会的不听会的野人的指挥……
 
+
+*****
+
+####  subject07  
+##### 1424#       发表于 2025-8-11 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68247042&amp;ptid=2210352" target="_blank">zhzij111 发表于 2025-8-11 11:04</a>
+
+终盘机制深度都解包出来了，更完不得其名应该就没了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+终盘机制是什么，无限地牢吗？
+
