@@ -14724,3 +14724,13 @@ sorry没关私密搜索 现在能搜到了
 
 这样子雪山buff至少少拿3个，fs做做人吧，特殊事件搞这么远干啥<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  luodang007  
+##### 1409#       发表于 2025-8-11 08:33
+
+另外再问问我感觉雪山地图打冰龙，出生再右边，监牢里是神皮旁边boss是祖灵的，肯定会被恶魔诅咒
+
+如果提前去恶魔那里做交易，还会被诅咒吗？
+
