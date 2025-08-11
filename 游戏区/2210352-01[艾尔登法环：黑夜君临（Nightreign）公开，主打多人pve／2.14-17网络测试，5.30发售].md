@@ -14904,3 +14904,15 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 今年第四季度还有一个dlc，根据小石发售前的采访，会有新英雄和新boss，网传最新版本解包里有两个角色占位，一个擅长武器是刺剑一个是小锤。新地图不知道有没有，但我觉得新特殊地形的可能性还是挺大的。新boss应该也有历战王形态，乐观估计至少会更到鸭血出来吧。
 
+
+*****
+
+####  zhzij111  
+##### 1426#       发表于 2025-8-11 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68248627&amp;ptid=2210352" target="_blank">subject07 发表于 2025-8-11 15:15</a>
+终盘机制是什么，无限地牢吗？</blockquote>
+随机boss，每通一关难度递增，有红色品质武器，新词条和额外遗物格子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
