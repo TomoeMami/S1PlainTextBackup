@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 18234,
+    "totalreply": 18238,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.24 不弗不行]",
-    "lastedit": 1754965930,
+    "lastedit": 1754967491,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 184014,
+    "totalreply": 184019,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754966889,
+    "lastedit": 1754967489,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9374,7 +9374,7 @@
     "newtitle": "[【#11】hololive综合讨论楼]",
     "lastedit": 1754707687,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194673": {
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 5369,
+    "totalreply": 5371,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1754966658,
+    "lastedit": 1754967248,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 1339,
+    "totalreply": 1340,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1754966658,
+    "lastedit": 1754967370,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11889,10 +11889,10 @@
     "update": false
   },
   "2199007": {
-    "totalreply": 584,
+    "totalreply": 585,
     "title": "[我们不可能成为恋人！绝对不行 动画化 2025年夏]",
     "newtitle": "[我们不可能成为恋人！绝对不行 动画化 2025年夏]",
-    "lastedit": 1754964968,
+    "lastedit": 1754967134,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12425,15 +12425,6 @@
     "newtitle": "[itch.io所有的nsfw游戏都被撤下 更新：itch.io更新了他们的禁止内容。]",
     "lastedit": 1754099894,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2257350": {
-    "totalreply": 81,
-    "title": "[毒奶贴，你认为的最不可能“塌房”的声优的提名]",
-    "newtitle": "[毒奶贴，你认为的最不可能“塌房”的声优的提名]",
-    "lastedit": 1753757672,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -15827,7 +15818,7 @@
     "newtitle": "[（理论探讨）如何在生活中寻找完美灵魂伴侣]",
     "lastedit": 1754707816,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2257797": {
@@ -16722,10 +16713,10 @@
     "update": false
   },
   "2258900": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[se新财报mmo部门营收下降23%利润下降45%]",
     "newtitle": "[se新财报mmo部门营收下降23%利润下降45%]",
-    "lastedit": 1754962816,
+    "lastedit": 1754967372,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16893,10 +16884,10 @@
     "update": false
   },
   "2258981": {
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[有人科普一下吗？当年黑猴到底哪里辱女了]",
     "newtitle": "[有人科普一下吗？当年黑猴到底哪里辱女了]",
-    "lastedit": 1754966658,
+    "lastedit": 1754967249,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16956,10 +16947,10 @@
     "update": false
   },
   "2258960": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[8月11日，港股百果园集团开盘后大跌，截至发稿时，股价跌超5%。]",
     "newtitle": "[8月11日，港股百果园集团开盘后大跌，截至发稿时，股价跌超5%。]",
-    "lastedit": 1754966411,
+    "lastedit": 1754967372,
     "category": "外野",
     "active": true,
     "update": false
@@ -16970,6 +16961,15 @@
     "newtitle": "[Nintendo Music专楼（8月12日更新 Switch《前进！奇诺比奥队长》）]",
     "lastedit": 1754964488,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2258998": {
+    "totalreply": 44,
+    "title": "[原来之前女星天价耳环事件，连正品价值230万这个信息都是假的，属实震惊到我]",
+    "newtitle": "[原来之前女星天价耳环事件，连正品价值230万这个信息都是假的，属实震惊到我]",
+    "lastedit": 1754967372,
+    "category": "外野",
     "active": true,
     "update": false
   }
