@@ -76,3 +76,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下，好像流程还是有些问题，应该是理论通关12次胜利是没有余量的，不支持打技师解锁理智。断电存档也算存档，真要打全0的话估计要十天半个月。
 
+
+*****
+
+####  blackll7  
+##### 440#       发表于 2025-8-12 16:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">基本上就这样了，我想理论上剩下的优解只有不打海岸女巫，然后速拿记忆宝珠开启走路获取灵魂晶石，让99级主角solo的奇葩路线了，这样估计可以10胜结束。
+
