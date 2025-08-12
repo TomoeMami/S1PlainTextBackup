@@ -114,3 +114,13 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 <img src="https://img.stage1st.com/forum/202508/13/001648xxcttw5rmrawxpkw.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  soop  
+##### 47373#       发表于 2025-8-13 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68256793&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-8-13 00:16</a>
+很奇怪，每次上大号，水伊吹收获一大堆友情点</blockquote>
+求个好友位  现在在推主线  这个太好用了
+
