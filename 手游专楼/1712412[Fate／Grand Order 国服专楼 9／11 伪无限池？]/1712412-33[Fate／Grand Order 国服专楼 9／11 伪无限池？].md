@@ -97,3 +97,20 @@
 
 —— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 47372#       发表于 2025-8-13 00:16
+
+很奇怪，每次上大号，水伊吹收获一大堆友情点
+
+Screenshot_2025.08.13_00.16.21.008.png
+(1.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-13 00:16 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/001648xxcttw5rmrawxpkw.png" referrerpolicy="no-referrer">
+
