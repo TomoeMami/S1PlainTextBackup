@@ -15027,3 +15027,25 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 闪退没遇到过，但是昨晚三哈基蜗集美局打到第一夜突然电脑关机了，，再打开联机已经解散，希望不是硬件出问题了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1438#       发表于 2025-8-13 00:19
+
+这周山羊，果然b三狼放在压轴，fs是懂的，之所以说是压轴是因为不得其名根据解包来看应该有新的一个阶段，只是不知道啥时候出，b三狼看文本和招式也是劳布养的，一个最初，一个最后
+
+*****
+
+####  jockeyjoestar  
+##### 1439#       发表于 2025-8-13 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 悲 雾门随机坏档  哎 必经之路吧  还是挺好玩的只能说
+
+*****
+
+####  jockeyjoestar  
+##### 1440#       发表于 2025-8-13 00:28
+
+在想是接着玩DLC随机还是暗夜  私募哥看到了请带带我。  
+
