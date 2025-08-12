@@ -2067,3 +2067,42 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 等</blockquote>
        [https://www.bilibili.com/video/BV1GCbNz8EdG/](https://www.bilibili.com/video/BV1GCbNz8EdG/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41162#       发表于 2025-8-13 01:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/13/015727fnzw3rto2lootw51.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-13_01-55-31.jpg</strong> (403.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-13 01:57 上传
+
+       [https://x.com/bang_dream_info/status/1955192535959351502](https://x.com/bang_dream_info/status/1955192535959351502)
+
+       [https://t.co/zB3Oa7pgmY](https://t.co/zB3Oa7pgmY)
+
+*****
+
+####  堀内爱里衣  
+##### 41163#       发表于 2025-8-13 01:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/13/015750huoprp6r121ur22v.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-13_01-56-28.jpg</strong> (273.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-13 01:57 上传
+
+       [https://x.com/bang_dream_info/status/1955200083739431386](https://x.com/bang_dream_info/status/1955200083739431386)
+
+       [https://t.co/RetHsIV4ni](https://t.co/RetHsIV4ni)
+
