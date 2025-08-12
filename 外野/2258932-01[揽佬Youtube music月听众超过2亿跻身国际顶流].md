@@ -491,3 +491,16 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  然后成为树洞  
+##### 51#       发表于 2025-8-12 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68253718&amp;ptid=2258932" target="_blank">bigboss2367500 发表于 2025-8-12 14:26</a>
+
+反观结巴！</blockquote>
+别光顾着拿听众和结巴比了，好奇点开听几十秒也会算听众，但真正点了关注的有多少呢
+
+结巴在声破天好歹有700万粉，揽佬是20万
+
