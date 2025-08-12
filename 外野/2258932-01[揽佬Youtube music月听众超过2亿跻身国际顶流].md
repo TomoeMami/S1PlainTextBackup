@@ -437,3 +437,11 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
  我要所有航空公司都尼玛能正常飞行</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">民用机场
 
+
+*****
+
+####  卡嘎米  
+##### 45#       发表于 2025-8-12 14:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟听不懂的人没啥好解释的，幸福者退让
+
