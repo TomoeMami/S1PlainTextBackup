@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 18229,
+    "totalreply": 18230,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.24 不弗不行]",
-    "lastedit": 1754963175,
+    "lastedit": 1754964131,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5756,7 +5756,7 @@
     "newtitle": "[棕色尘埃2，10.26新角色很涩。s1有群吗]",
     "lastedit": 1754704572,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2141630": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 184003,
+    "totalreply": 184005,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1754963423,
+    "lastedit": 1754964009,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13239,10 +13239,10 @@
     "update": false
   },
   "2162832": {
-    "totalreply": 267,
+    "totalreply": 269,
     "title": "[美妙新作4月《秘密的偶像公主／爱噗哩》]",
     "newtitle": "[美妙新作4月《秘密的偶像公主／爱噗哩》]",
-    "lastedit": 1754963422,
+    "lastedit": 1754964373,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14522,7 +14522,7 @@
     "newtitle": "[GBVSR已发售，第二季票土龙5月28日上线]",
     "lastedit": 1754704572,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2199341": {
@@ -16515,19 +16515,19 @@
     "update": false
   },
   "2255749": {
-    "totalreply": 202,
+    "totalreply": 203,
     "title": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
     "newtitle": "[2025年过去一半了，你的年度游戏（上半年版）是啥？]",
-    "lastedit": 1754958848,
+    "lastedit": 1754964010,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2258838": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[B站的尺度啥情况]",
     "newtitle": "[B站的尺度啥情况]",
-    "lastedit": 1754963647,
+    "lastedit": 1754964374,
     "category": "外野",
     "active": true,
     "update": false
@@ -16749,10 +16749,10 @@
     "update": false
   },
   "2247114": {
-    "totalreply": 209,
+    "totalreply": 210,
     "title": "[【纯人工汉化】ざくざくアクターズ随性大冒险 汉化版发布（0520放出修正版）]",
     "newtitle": "[【纯人工汉化】ざくざくアクターズ随性大冒险 汉化版发布（0520放出修正版）]",
-    "lastedit": 1754930653,
+    "lastedit": 1754964132,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16767,10 +16767,10 @@
     "update": false
   },
   "2258947": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[明末通关后的你会买夏思源的下一部作品吗？]",
     "newtitle": "[明末通关后的你会买夏思源的下一部作品吗？]",
-    "lastedit": 1754963422,
+    "lastedit": 1754964132,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16875,10 +16875,10 @@
     "update": false
   },
   "2258892": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[求推荐完结漫画，近30年内完结都可以]",
     "newtitle": "[求推荐完结漫画，近30年内完结都可以]",
-    "lastedit": 1754960410,
+    "lastedit": 1754964374,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16947,20 +16947,29 @@
     "update": false
   },
   "2258966": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[zt秦岭失联约半个月的驴友找到了]",
     "newtitle": "[zt秦岭失联约半个月的驴友找到了]",
-    "lastedit": 1754963422,
+    "lastedit": 1754964374,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2258960": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[8月11日，港股百果园集团开盘后大跌，截至发稿时，股价跌超5%。]",
     "newtitle": "[8月11日，港股百果园集团开盘后大跌，截至发稿时，股价跌超5%。]",
-    "lastedit": 1754963776,
+    "lastedit": 1754964374,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2209171": {
+    "totalreply": 72,
+    "title": "[Nintendo Music专楼（8月12日更新 Switch《前进！奇诺比奥队长》）]",
+    "newtitle": "[Nintendo Music专楼（8月12日更新 Switch《前进！奇诺比奥队长》）]",
+    "lastedit": 1754964488,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
