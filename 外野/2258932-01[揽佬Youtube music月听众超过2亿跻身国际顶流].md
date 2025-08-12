@@ -462,3 +462,14 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
 新歌没啥意思，又是说唱圈那种老一套。
 而且重复感很强……
 
+
+*****
+
+####  H.trionum  
+##### 48#       发表于 2025-8-12 17:57
+
+很有本土特色很魔性。
+像加油卡这种只能说是亲身经历写的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
