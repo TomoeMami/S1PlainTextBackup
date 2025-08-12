@@ -3777,7 +3777,7 @@
     "lastedit": 1755026040,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 184169,
+    "totalreply": 184170,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755023287,
+    "lastedit": 1755029767,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 181224,
+    "totalreply": 181231,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755029048,
+    "lastedit": 1755029890,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16133,7 +16133,7 @@
     "newtitle": "[「9-nine-」TV动画化]",
     "lastedit": 1754770207,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1913064": {
