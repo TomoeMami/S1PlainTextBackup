@@ -418,3 +418,22 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
 
 反观结巴！
 
+
+*****
+
+####  卡嘎米  
+##### 43#       发表于 2025-8-12 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68252295&amp;ptid=2258932" target="_blank">DLAN 发表于 2025-8-12 10:19</a>
+ 整张专辑里最喜欢这首  —— 来自 Google Pixel 7 Pro, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在我这排第一的是六爻，然后最近特别爱唱 因果
+
+*****
+
+####  卡嘎米  
+##### 44#       发表于 2025-8-12 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68253159&amp;ptid=2258932" target="_blank">奶香花卷 发表于 2025-8-12 12:31</a>
+ 我要所有航空公司都尼玛能正常飞行</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">民用机场
+
