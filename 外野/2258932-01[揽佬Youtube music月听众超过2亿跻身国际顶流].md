@@ -445,3 +445,11 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟听不懂的人没啥好解释的，幸福者退让
 
+
+*****
+
+####  Valthonis_  
+##### 46#       发表于 2025-8-12 15:19
+
+看了这楼才搜了一下，出新专辑了啊，听下
+
