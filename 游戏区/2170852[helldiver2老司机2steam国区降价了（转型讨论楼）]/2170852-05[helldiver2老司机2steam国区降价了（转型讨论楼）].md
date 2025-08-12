@@ -57,3 +57,60 @@
 
 打7级以下任务才有装甲兵，想打mo就不能打n10
 
+
+*****
+
+####  Mayochu爱好者  
+##### 6923#       发表于 2025-8-12 05:07
+
+<img src="https://img.stage1st.com/forum/202508/12/045936l1nopapprsjo4je5.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-08-12 050014.jpg</strong> (76.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-12 04:59 上传
+
+现在仙女座10秒一发轨道精准还能同时扔出去，路边一条狗都要挨一发。投掷甲爽扔
+
+*****
+
+####  KOBI  
+##### 6924#       发表于 2025-8-12 10:49
+
+只能说通通给爷长出双马尾来！
+
+30s一发，爽
+
+*****
+
+####  FLZB  
+##### 6925#       发表于 2025-8-12 10:58
+
+神人策划<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6926#       发表于 2025-8-12 10:59
+
+楼卡了吗，看不到新回复
+哦，可以了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风萧飒  
+##### 6927#       发表于 2025-8-12 11:01
+
+轨道炮三十秒一发打西线其实还凑合，就是好久没用这个了，我搓球得搓半天<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FLZB  
+##### 6928#       发表于 2025-8-12 22:57
+
+卧槽怕不是odst联动要来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
