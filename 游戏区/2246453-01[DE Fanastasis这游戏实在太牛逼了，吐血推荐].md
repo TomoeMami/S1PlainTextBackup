@@ -52,3 +52,27 @@
 
 —— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blackll7  
+##### 439#       发表于 2025-8-12 10:09
+
+<img src="https://img.stage1st.com/forum/202508/12/100659ktxfffhhhxyet1ey.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (393.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-12 10:06 上传
+
+<img src="https://img.stage1st.com/forum/202508/12/100721dqo26b2h2mabhtw3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (415.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-12 10:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下，好像流程还是有些问题，应该是理论通关12次胜利是没有余量的，不支持打技师解锁理智。断电存档也算存档，真要打全0的话估计要十天半个月。
+
