@@ -28,3 +28,11 @@
 
 其实是小野猪
 
+
+*****
+
+####  madcow  
+##### 1606#       发表于 2025-8-12 08:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">又攒了二十连去抽宁里结果虽然每个十连都有四星但是一个an+1一个薰子阿姨，心态反而崩了草
+
