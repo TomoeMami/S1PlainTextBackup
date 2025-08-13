@@ -10,3 +10,16 @@
 
 不知道是制作者故意为之，还是单纯的程序这样写的。
 
+
+*****
+
+####  Muteki_Link  
+##### 1165#       发表于 2025-8-13 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68257035&amp;ptid=1992654" target="_blank">yourSwaTer 发表于 2025-8-13 01:49</a>
+
+今天尝试了一下，如果跳入了拿核心地方的黑洞（一周目），即使苏醒后的周目（二周目）打了真结局，仍然保持 ...</blockquote>
+因为你打二周目真结局时就已经脱离了循环了吧。之后再次从篝火苏醒并非三周目而是重新读档的二周目吧。
+
+理论上你只要二周目及时跳进宇宙之眼里的高维空间，悖论和超新星爆炸就都不会追你了。<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
