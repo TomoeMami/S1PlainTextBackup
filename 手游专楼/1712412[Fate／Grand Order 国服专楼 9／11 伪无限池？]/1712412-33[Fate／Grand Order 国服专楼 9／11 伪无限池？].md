@@ -168,3 +168,13 @@ Screenshot_2025.08.13_00.16.21.008.png
 求个好友位  现在在推主线  这个太好用了</blockquote>
 不好意思，好友位已经满了，等有人退坑了再加吧。
 
+
+*****
+
+####  kyonkoism  
+##### 47378#       发表于 2025-8-13 18:42
+
+雨神ml和大家都早默认是情妇役和败犬役的妖兰都是一个原理吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只能说招出来好感度就是高，后续剧情就是在这个设定上推进的，接受就完事了
+
