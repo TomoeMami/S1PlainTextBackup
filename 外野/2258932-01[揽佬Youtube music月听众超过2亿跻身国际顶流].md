@@ -526,3 +526,13 @@ yt music这听众该不会是在ytb里面点过视频就算的吧？
 不过他算圈子里地位很 ...</blockquote>
 欧阳靖纯粤语都没几首歌 他认真做的全是英语专辑 这几年为了吃国内钱弄的歌也是普通话粤语英语三合一的东西 
 
+
+*****
+
+####  07579394  
+##### 54#       发表于 2025-8-13 08:31
+
+客家话+潮汕话赛道这一块<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+广府话rapper听得舒服推一个mastamic，粗口少，也没有被招安
+
