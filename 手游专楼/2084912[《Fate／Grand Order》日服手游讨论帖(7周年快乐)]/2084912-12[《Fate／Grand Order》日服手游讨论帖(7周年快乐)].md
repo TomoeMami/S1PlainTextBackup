@@ -6088,3 +6088,126 @@ Fate/Extra初代的隐藏boss，职介Monster。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">1000石回收计划 哈哈 我没石头了
 
+
+*****
+
+####  Jamaisvu  
+##### 17741#       发表于 2025-8-13 19:05
+
+ 本帖最后由 Jamaisvu 于 2025-8-13 19:12 编辑 
+
+解包数据：
+
+lip
+
+<img src="https://img.stage1st.com/forum/202508/13/191134c3lwghz4ppjwy6y9.jpg" referrerpolicy="no-referrer">
+
+<strong>9B7B6DE3A9DC1F63E44E481D8734DCD9.jpg</strong> (449.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191134hcj6ckekkdkxjjdz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190611.png</strong> (364.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191135zh0xnruh0r904uyr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190621.png</strong> (215.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+克姐
+
+<img src="https://img.stage1st.com/forum/202508/13/191148jhb645nha4a7jjuh.jpg" referrerpolicy="no-referrer">
+
+<strong>FB53A3729E43852647F9CDE7F75DF762.jpg</strong> (366.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191156gefyglre4fzezysg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190638.png</strong> (311.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191157b1x5kbxsbxe6oesk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190647.png</strong> (210.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:11 上传
+
+呼延灼
+
+<img src="https://img.stage1st.com/forum/202508/13/191213hx5qwvfvyw6wo5ez.jpg" referrerpolicy="no-referrer">
+
+<strong>9EB5C731638651E16AE327394117AC84.jpg</strong> (365.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:12 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191213qez262ilqtkqq8ea.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190703.png</strong> (361.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:12 上传
+
+<img src="https://img.stage1st.com/forum/202508/13/191213yku3swkwctomofmt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250813_190712.png</strong> (301.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-13 19:12 上传
+
+*****
+
+####  khxooo  
+##### 17742#       发表于 2025-8-13 19:10
+
+90石头3宝飞嫂，可以可以，等提妈了。
+
+*****
+
+####  alucardcz  
+##### 17743#       发表于 2025-8-13 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">lip这卡面 就算我玩碧蓝航线都无法接受（
+
+*****
+
+####  森兰丸  
+##### 17744#       发表于 2025-8-13 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68260725&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-13 18:55</a>
+
+拿着匕首，应该是214，不是215，看PV好像有谷歌。而且FE还是哪作，式姐好像是隐藏boss。 ...</blockquote>
+FE的隐藏BOSS......那游戏当初都还没MC这概念....反正就是又硬塞
+
+不过214才刚在果子龙的活动里登场过....这出场率有点高啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
