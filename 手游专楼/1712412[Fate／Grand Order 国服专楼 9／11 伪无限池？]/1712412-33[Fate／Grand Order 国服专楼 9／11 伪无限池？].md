@@ -190,3 +190,13 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 最好都菜点
 
+
+*****
+
+####  一个陆仁贾  
+##### 47380#       发表于 2025-8-13 21:19
+
+喝彩之焰4等1，努力挖矿抽，结果兽蕾2宝变3宝也没出<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
