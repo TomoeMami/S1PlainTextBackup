@@ -133,3 +133,15 @@ Screenshot_2025.08.13_00.16.21.008.png
 雨神怎么也ml了？什么原理？
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g020941  
+##### 47375#       发表于 2025-8-13 15:59
+
+ 本帖最后由 g020941 于 2025-8-13 16:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68245935&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2025-8-11 08:12</a>
+
+千石就井了吧，怎么还会最后凑30石抽到一个？</blockquote>
+井只生效一次，抽完1700石还是一宝。后面又凑了30石再抽一发10连时出了第二宝。
+
