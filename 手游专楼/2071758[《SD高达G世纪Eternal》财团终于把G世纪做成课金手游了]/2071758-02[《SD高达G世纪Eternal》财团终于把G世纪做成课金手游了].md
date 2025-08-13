@@ -2485,3 +2485,11 @@ ex隐藏还是要二队的，还有小兵增援
 比较容易理解的话就是历代版权机战第一话这种，没法选人的，甚至武 ...</blockquote>
 我记得以前还有专门的解密关呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2482#       发表于 2025-8-13 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我突然发现EXIA居然不算专用机？上机和开三红都要虹膜扫描的，这可太专用了吧
+
