@@ -92,3 +92,11 @@
 
 有官中+画师重置下就好了
 
+
+*****
+
+####  verniy  
+##### 442#       发表于 2025-8-13 20:49
+
+以为进魔界洞和阿兹兰是最终战，看好多传送点没开到处逛到处碰壁，忍不住去看了攻略居然只是后半的开场吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

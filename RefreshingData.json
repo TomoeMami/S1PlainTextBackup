@@ -401,7 +401,7 @@
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "lastedit": 1754830460,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2086516": {
@@ -1593,10 +1593,10 @@
     "update": false
   },
   "1556697": {
-    "totalreply": 12419,
+    "totalreply": 12420,
     "title": "[S1机核网真爱楼]",
     "newtitle": "[S1机核网真爱楼]",
-    "lastedit": 1755086415,
+    "lastedit": 1755089415,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -3777,7 +3777,7 @@
     "lastedit": 1755026040,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 18320,
+    "totalreply": 18322,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.24 不弗不行]",
-    "lastedit": 1755082944,
+    "lastedit": 1755089787,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 66848,
+    "totalreply": 66849,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1755088571,
+    "lastedit": 1755089780,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 12806,
+    "totalreply": 12807,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1755089050,
+    "lastedit": 1755089787,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10422,10 +10422,10 @@
     "update": false
   },
   "2207788": {
-    "totalreply": 1711,
+    "totalreply": 1712,
     "title": "[流放之路2／降临(Path of Exile2) 大型施工现场]",
     "newtitle": "[乔纳森你毁了0.2.0 电矛之路2(Path of Exile2) 专楼]",
-    "lastedit": 1755067931,
+    "lastedit": 1755089787,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 181421,
+    "totalreply": 181424,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755089178,
+    "lastedit": 1755089787,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 5853,
+    "totalreply": 5854,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1755089178,
+    "lastedit": 1755089786,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11169,10 +11169,10 @@
     "update": false
   },
   "2125794": {
-    "totalreply": 453,
+    "totalreply": 454,
     "title": "[bilibili × Aniplex 凸变英雄X]",
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
-    "lastedit": 1754902101,
+    "lastedit": 1755089787,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11457,10 +11457,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 7383,
+    "totalreply": 7384,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／8.7晚九点iw]",
-    "lastedit": 1755087014,
+    "lastedit": 1755089787,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12024,19 +12024,19 @@
     "update": false
   },
   "2246453": {
-    "totalreply": 441,
+    "totalreply": 442,
     "title": "[DE Fanastasis这游戏实在太牛逼了，吐血推荐]",
     "newtitle": "[DE Fanastasis这游戏实在太牛逼了，吐血推荐]",
-    "lastedit": 1755006488,
+    "lastedit": 1755089415,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2256712": {
-    "totalreply": 1520,
+    "totalreply": 1521,
     "title": "[要不咱们赌一把，大家觉得《明末》内容会踩几个雷？]",
     "newtitle": "[明末发售结算了，首日差评如潮，喜提村里第一个jiangping]",
-    "lastedit": 1755088575,
+    "lastedit": 1755089787,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12470,15 +12470,6 @@
     "newtitle": "[不放线上demo，最后吃屎的不还是厂家自己？]",
     "lastedit": 1754108657,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2257574": {
-    "totalreply": 133,
-    "title": "[现在才知道《走向共和》明治这段是假的]",
-    "newtitle": "[现在才知道《走向共和》明治这段是假的]",
-    "lastedit": 1753879928,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -13383,10 +13374,10 @@
     "update": false
   },
   "2257987": {
-    "totalreply": 387,
+    "totalreply": 388,
     "title": "[俄乌8月楼]",
     "newtitle": "[俄乌8月楼]",
-    "lastedit": 1755087253,
+    "lastedit": 1755089652,
     "category": "外野",
     "active": true,
     "update": false
@@ -13590,10 +13581,10 @@
     "update": false
   },
   "2257995": {
-    "totalreply": 260,
+    "totalreply": 261,
     "title": "[2025年8月网文推荐交流互助楼]",
     "newtitle": "[2025年8月网文推荐交流互助楼]",
-    "lastedit": 1755074421,
+    "lastedit": 1755089892,
     "category": "外野",
     "active": true,
     "update": false
@@ -15309,10 +15300,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 340,
+    "totalreply": 341,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1755089173,
+    "lastedit": 1755089412,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15732,10 +15723,10 @@
     "update": false
   },
   "2258666": {
-    "totalreply": 96,
+    "totalreply": 98,
     "title": "[这旧剑动画化是没下文了？]",
     "newtitle": "[这旧剑动画化是没下文了？]",
-    "lastedit": 1755089178,
+    "lastedit": 1755089787,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16623,10 +16614,10 @@
     "update": false
   },
   "2259041": {
-    "totalreply": 66,
+    "totalreply": 70,
     "title": "[所以GPT-5是不是可以得出结论失败了？]",
     "newtitle": "[所以GPT-5是不是可以得出结论失败了？]",
-    "lastedit": 1755087852,
+    "lastedit": 1755089652,
     "category": "外野",
     "active": true,
     "update": false
@@ -16704,10 +16695,10 @@
     "update": false
   },
   "1867096": {
-    "totalreply": 552,
+    "totalreply": 553,
     "title": "[高分少女 新连载 高分少女DASH]",
     "newtitle": "[高分少女 新连载 高分少女DASH]",
-    "lastedit": 1755026533,
+    "lastedit": 1755089531,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16875,19 +16866,19 @@
     "update": false
   },
   "2259124": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[有一点我不理解：为什么会认为魂游是小众游戏？]",
     "newtitle": "[有一点我不理解：为什么会认为魂游是小众游戏？]",
-    "lastedit": 1755087981,
+    "lastedit": 1755089787,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2259116": {
-    "totalreply": 64,
+    "totalreply": 66,
     "title": "[对印度专用宝具高志凯]",
     "newtitle": "[对印度专用宝具高志凯]",
-    "lastedit": 1755089050,
+    "lastedit": 1755089892,
     "category": "外野",
     "active": true,
     "update": false
