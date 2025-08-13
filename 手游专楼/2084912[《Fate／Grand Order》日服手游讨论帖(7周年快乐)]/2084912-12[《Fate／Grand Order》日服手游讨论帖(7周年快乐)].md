@@ -6052,3 +6052,39 @@ ex1冠位战把学姐绊刷满了
 
 只有214能期待一下
 
+
+*****
+
+####  khxooo  
+##### 17737#       发表于 2025-8-13 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68260679&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-13 18:46</a>
+
+神经病啊.....215和MC有啥关系</blockquote>
+拿着匕首，应该是214，不是215，看PV好像有谷歌。而且FE还是哪作，式姐好像是隐藏boss。
+
+*****
+
+####  楽園のエル  
+##### 17738#       发表于 2025-8-13 18:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">泳装刺客登场 还剩500石10护肤 随缘了
+
+前几天冲刺打完奏四 拿了石头 500石抽了小教授P公主紫伯爵 枪福袋出了因陀罗 大胜利哒！
+
+*****
+
+####  Jamaisvu  
+##### 17739#       发表于 2025-8-13 18:59
+
+<blockquote>khxooo 发表于 2025-8-13 18:55
+拿着匕首，应该是214，不是215，看PV好像有谷歌。而且FE还是哪作，式姐好像是隐藏boss。 ...</blockquote>
+Fate/Extra初代的隐藏boss，职介Monster。
+
+*****
+
+####  qixinno2  
+##### 17740#       发表于 2025-8-13 19:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">1000石回收计划 哈哈 我没石头了
+
