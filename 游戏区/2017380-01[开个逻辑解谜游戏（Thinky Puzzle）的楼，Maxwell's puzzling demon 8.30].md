@@ -53,3 +53,15 @@
 
 不熟，日本人喜欢，姑且说说有这回事。
 
+
+*****
+
+####  库德里尔  
+##### 268#       发表于 2025-8-13 23:02
+
+说到推箱子就不得不提世界名画
+
+<img src="https://p.sda1.dev/26/9c5712130d195c86dbd197ab6cadc3da/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
