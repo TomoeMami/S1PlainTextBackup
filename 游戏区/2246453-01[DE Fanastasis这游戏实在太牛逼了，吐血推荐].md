@@ -100,3 +100,15 @@
 
 以为进魔界洞和阿兹兰是最终战，看好多传送点没开到处逛到处碰壁，忍不住去看了攻略居然只是后半的开场吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  荆棘花冠  
+##### 443#       发表于 2025-8-13 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68261188&amp;ptid=2246453" target="_blank">verniy 发表于 2025-8-13 20:49</a>
+以为进魔界洞和阿兹兰是最终战，看好多传送点没开到处逛到处碰壁，忍不住去看了攻略居然只是后半的开场吗 ...</blockquote>
+早了，后面还有几个图，至少还有20小时
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
