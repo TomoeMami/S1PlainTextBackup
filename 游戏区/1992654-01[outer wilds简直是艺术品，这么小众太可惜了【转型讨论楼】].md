@@ -23,3 +23,11 @@
 
 理论上你只要二周目及时跳进宇宙之眼里的高维空间，悖论和超新星爆炸就都不会追你了。<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  落油Я  
+##### 1166#       发表于 2025-8-13 15:39
+
+本来想再买一个NS版的，但看评论说有的地方没汉化，这么没诚意就算了
+
