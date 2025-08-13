@@ -145,3 +145,15 @@ Screenshot_2025.08.13_00.16.21.008.png
 千石就井了吧，怎么还会最后凑30石抽到一个？</blockquote>
 井只生效一次，抽完1700石还是一宝。后面又凑了30石再抽一发10连时出了第二宝。
 
+
+*****
+
+####  khxooo  
+##### 47376#       发表于 2025-8-13 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68258994&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2025-8-13 13:20</a>
+雨神怎么也ml了？什么原理？</blockquote>
+雨神落地就是ML +重女的设定。 她对咕哒的称呼是神官，而她的宝具语音是“心脏都市，启动。吾之祭坛，吾之薪柴！吾心爱的神官！这次，我决不会失去……！”<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+至于雨神会对2.7没什么交集的咕哒love ，那就不要问，问就是资本的力量<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
