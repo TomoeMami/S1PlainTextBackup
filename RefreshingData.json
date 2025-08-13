@@ -3777,7 +3777,7 @@
     "lastedit": 1755026040,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 184210,
+    "totalreply": 184211,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755054488,
+    "lastedit": 1755054848,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 5665,
+    "totalreply": 5674,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1755054386,
+    "lastedit": 1755054977,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11853,10 +11853,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 940,
+    "totalreply": 941,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市快3700了……（转型为股票讨论楼中）]",
-    "lastedit": 1755054141,
+    "lastedit": 1755054977,
     "category": "外野",
     "active": true,
     "update": false
@@ -13545,10 +13545,10 @@
     "update": false
   },
   "2257987": {
-    "totalreply": 367,
+    "totalreply": 369,
     "title": "[俄乌8月楼]",
     "newtitle": "[俄乌8月楼]",
-    "lastedit": 1755053896,
+    "lastedit": 1755054735,
     "category": "外野",
     "active": true,
     "update": false
@@ -15930,10 +15930,10 @@
     "update": false
   },
   "2258692": {
-    "totalreply": 222,
+    "totalreply": 223,
     "title": "[【易托横评】65辆热门新能源车高速极限续航测试]",
     "newtitle": "[【易托横评】65辆热门新能源车高速极限续航测试]",
-    "lastedit": 1755054386,
+    "lastedit": 1755054977,
     "category": "外野",
     "active": true,
     "update": false
@@ -16578,10 +16578,10 @@
     "update": false
   },
   "2258981": {
-    "totalreply": 97,
+    "totalreply": 99,
     "title": "[有人科普一下吗？当年黑猴到底哪里辱女了]",
     "newtitle": "[有人科普一下吗？当年黑猴到底哪里辱女了]",
-    "lastedit": 1755046334,
+    "lastedit": 1755054736,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16734,16 +16734,16 @@
     "totalreply": 0,
     "title": "[赶着末班车看了上海博物馆的埃及文物展]",
     "newtitle": "[]",
-    "lastedit": 1754979780,
+    "lastedit": 1755054840,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2259020": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[以前在泥潭看过一句“最好吃的日料在上海”这句话是真的还是玩笑？]",
     "newtitle": "[以前在泥潭看过一句“最好吃的日料在上海”这句话是真的还是玩笑？]",
-    "lastedit": 1755053659,
+    "lastedit": 1755054736,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,19 +16893,19 @@
     "update": false
   },
   "2259067": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[现在看战国七雄的划分是不是也不准确？]",
     "newtitle": "[现在看战国七雄的划分是不是也不准确？]",
-    "lastedit": 1755053063,
+    "lastedit": 1755054977,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2259001": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[有什么不错的桌面闹钟推荐吗]",
     "newtitle": "[有什么不错的桌面闹钟推荐吗]",
-    "lastedit": 1755054386,
+    "lastedit": 1755054732,
     "category": "外野",
     "active": true,
     "update": false
@@ -16933,6 +16933,15 @@
     "title": "[zt13岁男孩胖到420斤，家里床都压坏，刚减重20斤，姥姥心疼拒治疗]",
     "newtitle": "[zt13岁男孩胖到420斤，家里床都压坏，刚减重20斤，姥姥心疼拒治疗]",
     "lastedit": 1755054378,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2258889": {
+    "totalreply": 41,
+    "title": "[本田圭佑要变特亚了]",
+    "newtitle": "[本田圭佑要变特亚了]",
+    "lastedit": 1755054977,
     "category": "外野",
     "active": true,
     "update": false
