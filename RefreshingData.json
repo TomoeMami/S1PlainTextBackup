@@ -3777,7 +3777,7 @@
     "lastedit": 1755026040,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -6939,10 +6939,10 @@
     "update": false
   },
   "2163356": {
-    "totalreply": 8998,
+    "totalreply": 8999,
     "title": "[怪物猎人新作mh wild正式公开！2025年发售]",
     "newtitle": "[mh wilds／怪物猎人荒野，ps5／xs／pc，25.2.28发售]",
-    "lastedit": 1755086415,
+    "lastedit": 1755087376,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 66846,
+    "totalreply": 66847,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1755086415,
+    "lastedit": 1755087011,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7461,10 +7461,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 14611,
+    "totalreply": 14612,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
-    "lastedit": 1755085453,
+    "lastedit": 1755087014,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 184292,
+    "totalreply": 184294,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755085821,
+    "lastedit": 1755087494,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 12802,
+    "totalreply": 12803,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1755086775,
+    "lastedit": 1755087132,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 181401,
+    "totalreply": 181408,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755086773,
+    "lastedit": 1755087372,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11205,10 +11205,10 @@
     "update": false
   },
   "2236118": {
-    "totalreply": 396,
+    "totalreply": 397,
     "title": "[2025年全年推理游戏发售清单(更新至3.13)，2025推理游戏专楼]",
     "newtitle": "[2025年全年推理游戏发售清单(更新至7.30)，2025推理游戏专楼]",
-    "lastedit": 1755082339,
+    "lastedit": 1755087376,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11457,10 +11457,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 7381,
+    "totalreply": 7383,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／8.7晚九点iw]",
-    "lastedit": 1755084977,
+    "lastedit": 1755087014,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11853,10 +11853,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 975,
+    "totalreply": 976,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市快3700了……（转型为股票讨论楼中）]",
-    "lastedit": 1755078132,
+    "lastedit": 1755087494,
     "category": "外野",
     "active": true,
     "update": false
@@ -13383,10 +13383,10 @@
     "update": false
   },
   "2257987": {
-    "totalreply": 386,
+    "totalreply": 387,
     "title": "[俄乌8月楼]",
     "newtitle": "[俄乌8月楼]",
-    "lastedit": 1755085212,
+    "lastedit": 1755087253,
     "category": "外野",
     "active": true,
     "update": false
@@ -15971,7 +15971,7 @@
     "newtitle": "[新开一个食贫道专楼讨论一下吧]",
     "lastedit": 1754828054,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2258732": {
@@ -16623,10 +16623,10 @@
     "update": false
   },
   "2259041": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[所以GPT-5是不是可以得出结论失败了？]",
     "newtitle": "[所以GPT-5是不是可以得出结论失败了？]",
-    "lastedit": 1755086295,
+    "lastedit": 1755087253,
     "category": "外野",
     "active": true,
     "update": false
@@ -16713,10 +16713,10 @@
     "update": false
   },
   "2259007": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[求推荐：除疯猫外还有哪位up会介绍老游戏的]",
     "newtitle": "[求推荐：除疯猫外还有哪位up会介绍老游戏的]",
-    "lastedit": 1755083533,
+    "lastedit": 1755087376,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16740,10 +16740,10 @@
     "update": false
   },
   "2259001": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[有什么不错的桌面闹钟推荐吗]",
     "newtitle": "[有什么不错的桌面闹钟推荐吗]",
-    "lastedit": 1755085582,
+    "lastedit": 1755087253,
     "category": "外野",
     "active": true,
     "update": false
@@ -16875,19 +16875,19 @@
     "update": false
   },
   "2259124": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "[有一点我不理解：为什么会认为魂游是小众游戏？]",
     "newtitle": "[有一点我不理解：为什么会认为魂游是小众游戏？]",
-    "lastedit": 1755085581,
+    "lastedit": 1755087376,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2259116": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[对印度专用宝具高志凯]",
     "newtitle": "[对印度专用宝具高志凯]",
-    "lastedit": 1755085691,
+    "lastedit": 1755087494,
     "category": "外野",
     "active": true,
     "update": false
@@ -16911,10 +16911,10 @@
     "update": false
   },
   "2259113": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[财政部：简单测算 1%贴息比例意味着1元贴息资金可能带动100元贷款资金]",
     "newtitle": "[财政部：简单测算 1%贴息比例意味着1元贴息资金可能带动100元贷款资金]",
-    "lastedit": 1755086050,
+    "lastedit": 1755087494,
     "category": "外野",
     "active": true,
     "update": false
