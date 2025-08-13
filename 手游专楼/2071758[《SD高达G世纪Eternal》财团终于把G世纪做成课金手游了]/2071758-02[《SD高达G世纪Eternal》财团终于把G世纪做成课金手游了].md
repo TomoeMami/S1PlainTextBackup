@@ -2493,3 +2493,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我突然发现EXIA居然不算专用机？上机和开三红都要虹膜扫描的，这可太专用了吧
 
+
+*****
+
+####  王俊凯  
+##### 2483#       发表于 2025-8-13 17:02
+
+他说了算，这要纠结就没完没了了
+
