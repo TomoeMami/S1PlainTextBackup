@@ -157,3 +157,14 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 至于雨神会对2.7没什么交集的咕哒love ，那就不要问，问就是资本的力量<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47377#       发表于 2025-8-13 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68256995&amp;ptid=1712412" target="_blank">soop 发表于 2025-8-13 01:30</a>
+
+求个好友位  现在在推主线  这个太好用了</blockquote>
+不好意思，好友位已经满了，等有人退坑了再加吧。
+
