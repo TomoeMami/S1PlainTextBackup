@@ -284,3 +284,76 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">而且40块可太贵了 别看不起穷萌
 
+
+*****
+
+####  exiaexa  
+##### 17788#       发表于 2025-8-14 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264469&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 14:07</a>
+
+我不缺钱 而且抽卡也要时间 
+
+而且40块可太贵了 别看不起穷萌</blockquote>
+直接说结论，是你的错觉，抽卡时间相比起来不值一提
+
+就大号玩久了就会有这种错觉，实际上现在点一下光速100抽，直接屏蔽3星以下的卡，你打一把种火本的时间出的货真不如友情点抽的多
+
+唯一的问题就是友情点进货速度太慢
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17789#       发表于 2025-8-14 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264489&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-14 14:10</a>
+
+直接说结论，是你的错觉，抽卡时间相比起来不值一提
+
+就大号玩久了就会有这种错觉，实际上现在点一下光速1 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有个问题就是还差15w羁绊才能120 
+<img src="https://static.stage1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">到头来还是得刷
+
+*****
+
+####  exiaexa  
+##### 17790#       发表于 2025-8-14 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264498&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 14:12</a>
+
+还有个问题就是还差15w羁绊才能120 
+
+到头来还是得刷</blockquote>
+你醒醒，你5宝怎么可能要15羁绊
+
+别告诉我你开了三个被动
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17791#       发表于 2025-8-14 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264516&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-14 14:15</a>
+
+你醒醒，你5宝怎么可能要15羁绊
+
+别告诉我你开了三个被动</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">15w怎么就变15羁绊了
+
+*****
+
+####  exiaexa  
+##### 17792#       发表于 2025-8-14 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264526&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 14:16</a>
+
+15w怎么就变15羁绊了</blockquote>
+15w羁绊根本不是问题啊，所长有泳装加成的
+
+后半截活动你随便打两下不就出来了
+
+你有问题的点也太怪了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
