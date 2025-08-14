@@ -15293,3 +15293,20 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">双无赖双排过了，王城摸到把碎星大剑，一人复制一把，看到罪人就嘎嘎乱杀
 
+
+*****
+
+####  jacket  
+##### 1469#       发表于 2025-8-14 18:55
+
+想看鸡哥高手表演单通
+
+*****
+
+####  usodakedo  
+##### 1470#       发表于 2025-8-14 19:38
+
+这次山羊真挺强的，找回了大嘴刚上线时那种要研究要配合的感觉，不能随便野排瞎打过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
