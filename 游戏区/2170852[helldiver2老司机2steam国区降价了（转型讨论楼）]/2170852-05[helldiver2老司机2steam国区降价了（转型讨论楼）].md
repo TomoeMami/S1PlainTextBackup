@@ -114,3 +114,11 @@
 
 卧槽怕不是odst联动要来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 6929#       发表于 2025-8-14 21:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只有两千多蓝币还想着去挖一点，结果打了两三关发现，是不是N1没兴趣点了啊？？
+
