@@ -15228,3 +15228,21 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 这里可以直接延用法环盖利德竞技场门口那个复制真实玩家数据的方式吧
 
+
+*****
+
+####  Asimot  
+##### 1461#       发表于 2025-8-14 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263089&amp;ptid=2210352" target="_blank">Arinori 发表于 2025-8-14 09:57</a>
+
+已经更新了，双排还是比较简单的</blockquote>
+谢谢！凑不足3个人，就在等双排了
+
+*****
+
+####  petitlui  
+##### 1462#       发表于 2025-8-14 16:33
+
+后知后觉发现steam居然已经87%好评了，感觉努力一下说不定真能好评如潮
+
