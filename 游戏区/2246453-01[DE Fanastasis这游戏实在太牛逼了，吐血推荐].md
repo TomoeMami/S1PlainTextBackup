@@ -384,3 +384,16 @@
 
 需要找到卡农魔法钥匙
 
+
+*****
+
+####  凉良  
+##### 449#       发表于 2025-8-14 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263802&amp;ptid=2246453" target="_blank">hootao 发表于 2025-8-14 11:44</a>
+
+砖自WIKI
+
+https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
+建议反白
+
