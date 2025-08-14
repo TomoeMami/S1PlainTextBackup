@@ -15319,3 +15319,11 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 无赖单人隐城复制葛孚雷大斧，4条命跳劈剩个血皮过了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 这历战山羊aoe真挺多的，招了罪人之后很容易打一个的时候被另一个偷袭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1472#       发表于 2025-8-14 22:28
+
+太猛了羊头神<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
