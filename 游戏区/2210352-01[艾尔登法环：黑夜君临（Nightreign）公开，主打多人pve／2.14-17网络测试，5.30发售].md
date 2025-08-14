@@ -15197,3 +15197,34 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 石崎少冲点浪吧。
 什么追踪者cos铃珠猎人、铁壶香壶大炮铁之眼、只会尿尿摸鱼的哈基蜗，太难绷了
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 1458#       发表于 2025-8-14 15:49
+
+<img src="https://p.sda1.dev/26/58fc68b92b478bd3ed568c9d3e9f0bd5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/6f80fba9416d97e3e06cc37db4a93483/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/d477735524eaa1c49f0dc08f1d189c31/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  leafS  
+##### 1459#       发表于 2025-8-14 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264633&amp;ptid=2210352" target="_blank">慕兰 发表于 2025-8-14 14:34</a>
+
+石崎少冲点浪吧。
+
+什么追踪者cos铃珠猎人、铁壶香壶大炮铁之眼、只会尿尿摸鱼的哈基蜗，太难绷了 ...</blockquote>
+什么梗？
+
+*****
+
+####  jacket  
+##### 1460#       发表于 2025-8-14 16:16
+
+这里可以直接延用法环盖利德竞技场门口那个复制真实玩家数据的方式吧
+
