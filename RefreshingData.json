@@ -1575,10 +1575,10 @@
     "update": false
   },
   "1539923": {
-    "totalreply": 3095,
+    "totalreply": 3096,
     "title": "[《一人之下》漫画讨论：陆玲珑的身世]",
     "newtitle": "[《一人之下》漫画讨论：剧情加速，多线并进]",
-    "lastedit": 1755205927,
+    "lastedit": 1755210609,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9963,12 +9963,12 @@
     "update": false
   },
   "2154428": {
-    "totalreply": 732,
+    "totalreply": 734,
     "title": "[当哒当 TV动画化 2024年10月]",
     "newtitle": "[『当哒当 ／ 胆大党』TV动画化 2024年10月]",
-    "lastedit": 1754659215,
+    "lastedit": 1755210608,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2201639": {
@@ -12348,10 +12348,10 @@
     "update": false
   },
   "2257593": {
-    "totalreply": 457,
+    "totalreply": 458,
     "title": "[明末暴雷之后，下一款国产游戏你最不看好谁]",
     "newtitle": "[明末暴雷之后，下一款国产游戏你最不看好谁]",
-    "lastedit": 1755208210,
+    "lastedit": 1755210968,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16943,6 +16943,15 @@
     "newtitle": "[『怪化猫』新作剧场版动画制作决定 2024年7月26日上映]",
     "lastedit": 1755188891,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252337": {
+    "totalreply": 41,
+    "title": "[水雷要出战争黎明1代终极版了]",
+    "newtitle": "[水雷要出战争黎明1代终极版了]",
+    "lastedit": 1755210969,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
