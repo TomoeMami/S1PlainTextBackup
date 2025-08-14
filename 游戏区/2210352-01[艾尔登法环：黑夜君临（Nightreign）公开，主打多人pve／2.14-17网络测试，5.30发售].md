@@ -15108,3 +15108,24 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">更新双排了吗？
 
+
+*****
+
+####  Arinori  
+##### 1448#       发表于 2025-8-14 09:57
+
+<blockquote>Asimot 发表于 2025-8-14 09:49
+更新双排了吗？</blockquote>
+已经更新了，双排还是比较简单的
+
+*****
+
+####  nightmare902015  
+##### 1449#       发表于 2025-8-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263033&amp;ptid=2210352" target="_blank">Asimot 发表于 2025-8-14 09:49</a>
+更新双排了吗？</blockquote>
+魂量又多怪又弱，感觉带妹模式纯属
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
