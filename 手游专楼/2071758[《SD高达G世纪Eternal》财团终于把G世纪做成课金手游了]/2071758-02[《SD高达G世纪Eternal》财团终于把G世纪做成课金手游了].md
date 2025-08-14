@@ -2512,3 +2512,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alialex  
+##### 2485#       发表于 2025-8-14 14:59
+
+怎么hard都这么难，auto的骑士高达直接被反击秒了
+
