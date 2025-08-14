@@ -20,3 +20,11 @@
 
 （脱胎于原名的新名字，让我想起了汤姆里德尔的I'm Lord Voldmort<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  钟于123  
+##### 1166#       发表于 2025-8-14 22:23
+
+人格剧情确实不错，本来还说主线剧情多少有点失望，没想到在这撑起来了不少。
+
