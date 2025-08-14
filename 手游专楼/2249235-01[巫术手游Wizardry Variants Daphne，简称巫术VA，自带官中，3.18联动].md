@@ -32,3 +32,19 @@
 
 11抽2只骚鸡叶卡<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 495#       发表于 2025-8-14 21:59
+
+ 本帖最后由 Flechette 于 2025-8-14 22:01 编辑 
+
+怎么土法同化力量+3信仰+3就是不加智力
+
+这个加值应该和个体无关，是固定的吧
+
+虽然好看，但是比起后排加血，还是原皮的不死特效更有用
+
+要是皮肤和被动能脱钩就好了
+
