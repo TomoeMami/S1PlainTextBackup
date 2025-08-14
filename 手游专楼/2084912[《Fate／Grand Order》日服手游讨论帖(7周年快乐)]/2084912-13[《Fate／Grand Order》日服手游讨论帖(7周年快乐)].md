@@ -219,3 +219,68 @@
 你们都是欧狗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">去掉们 不要污蔑非萌
 
+
+*****
+
+####  exiaexa  
+##### 17783#       发表于 2025-8-14 11:48
+
+ 本帖最后由 exiaexa 于 2025-8-14 11:49 编辑 
+
+唯一神是不是觉得有了娄希所以绿卡狂可以发放开给
+
+试了下这呼延灼性能就离谱，甚至能一脚踹死自己的本体和绝大部分5星绿光炮
+
+要说有什么问题也就是全是自buff ，不太符合现在绿卡互助小组的风格
+
+已经可以等着项羽给50充或者锁卡了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17784#       发表于 2025-8-14 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263818&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-14 11:48</a>
+
+唯一神是不是觉得有了娄希所以绿卡狂可以发放开给
+
+试了下这呼延灼性能就离谱，甚至能一脚踹死自己的本体和 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿卡难得给的这么大方
+
+*****
+
+####  alucardcz  
+##### 17785#       发表于 2025-8-14 13:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从0开始刷狗粮要多少把才能100-120？现在2倍经验和大成功还在
+
+*****
+
+####  exiaexa  
+##### 17786#       发表于 2025-8-14 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264397&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 13:52</a>
+
+从0开始刷狗粮要多少把才能100-120？现在2倍经验和大成功还在</blockquote>
+你不如去淘宝40块钱买1e友情点，抽个5000w差不多就喂满了
+
+只是加得慢了点，大概要两周左右才能刷完1e，剩下的时间自己再打打种火本差不多了
+
+我新号没得喂，就这么喂满了紫发女同事，一把种火没打
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17787#       发表于 2025-8-14 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264453&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-14 14:05</a>
+
+你不如去淘宝40块钱买1e友情点，抽个5000w差不多就喂满了
+
+只是加得慢了点，大概要两周左右才能刷完1e，剩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我不缺钱 而且抽卡也要时间 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">而且40块可太贵了 别看不起穷萌
+
