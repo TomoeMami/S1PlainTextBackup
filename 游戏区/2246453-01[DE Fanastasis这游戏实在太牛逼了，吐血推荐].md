@@ -426,3 +426,14 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 确实很好玩，有类似的推荐吗？<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 453#       发表于 2025-8-14 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68265793&amp;ptid=2246453" target="_blank">剑影若兰 发表于 2025-8-14 18:08</a>
+
+确实很好玩，有类似的推荐吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 和histoire（イストーワル），地图上最接近的还是超级银河战士，气氛上还是black souls两作。非要说的话crystal project也是探路和rpg平衡的非常好的类型，不过更接近现代开放世界。
+
