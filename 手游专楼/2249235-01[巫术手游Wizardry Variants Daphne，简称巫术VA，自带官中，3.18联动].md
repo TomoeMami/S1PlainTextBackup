@@ -24,3 +24,11 @@
 
 新的别离洞出货很好，不知道会不会像牛洞那样削垃圾掉落，总之开刷，不太建议在刷够别离套和新单手剑前去打真BOSS，属于没苦硬吃了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 494#       发表于 2025-8-14 18:39
+
+11抽2只骚鸡叶卡<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
