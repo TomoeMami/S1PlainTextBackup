@@ -15178,3 +15178,22 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 更新双排了吗？</blockquote>
 双排数值感觉有问题，魂又多怪血又少，简单过头了
 
+
+*****
+
+####  jacket  
+##### 1456#       发表于 2025-8-14 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263995&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-8-14 12:16</a>
+
+交易会影响三阶段吗我现在就好奇</blockquote>
+看到一场选全力战斗，boss吃了个癫火然后转三阶段的
+
+*****
+
+####  慕兰  
+##### 1457#       发表于 2025-8-14 14:34
+
+石崎少冲点浪吧。
+什么追踪者cos铃珠猎人、铁壶香壶大炮铁之眼、只会尿尿摸鱼的哈基蜗，太难绷了
+
