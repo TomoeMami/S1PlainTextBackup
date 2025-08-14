@@ -371,3 +371,16 @@
 
 一切皆由阿尔弗雷德、圣人，抑或是其他某人的意志所引导。
 
+
+*****
+
+####  shimotsuki14  
+##### 448#       发表于 2025-8-14 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68262387&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-14 04:21</a>
+
+这样的门路上见到好多，要怎么开？</blockquote>
+标记在特殊的门分类中，圆窗/灰色的魔法门
+
+需要找到卡农魔法钥匙
+
