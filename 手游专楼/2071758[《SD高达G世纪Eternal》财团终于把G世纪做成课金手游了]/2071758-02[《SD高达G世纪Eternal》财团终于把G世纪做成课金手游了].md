@@ -2520,3 +2520,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 怎么hard都这么难，auto的骑士高达直接被反击秒了
 
+
+*****
+
+####  okey3m  
+##### 2486#       发表于 2025-8-14 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264771&amp;ptid=2071758" target="_blank">alialex 发表于 2025-8-14 14:59</a>
+怎么hard都这么难，auto的骑士高达直接被反击秒了</blockquote>
+右边有两个带加攻光环的
+
