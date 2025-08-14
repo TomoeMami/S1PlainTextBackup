@@ -15327,3 +15327,33 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 太猛了羊头神<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blz436  
+##### 1473#       发表于 2025-8-14 22:52
+
+ 本帖最后由 blz436 于 2025-8-14 22:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68266009&amp;ptid=2210352" target="_blank">jacket 发表于 2025-8-14 18:55</a>
+
+想看鸡哥高手表演单通</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/14/224716kmw1062c5ci6wr24.jpg" referrerpolicy="no-referrer">
+
+<strong>20250814223754_1.jpg</strong> (452.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-14 22:47 上传
+
+出癫火矛一切好说，每次召罪人都是白送一次战技机会，罪人发狂抗性也不算高，要没出怕不是要被活活耗死，罪人出双盾侠就打后手多利用强防反震和非延长技艺的击飞，没双盾侠直接盾戳嗯顶耗血
+
+*****
+
+####  clamp1010  
+##### 1474#       发表于 2025-8-14 22:56
+
+这个羊头王有点实力的，野排连跪三把，第四把翻了下仓库有个无赖可以用的癫火抗性遗物，局内找了个圣抗才过
+
+而且没敢用特大跳劈，后摇太大了，一个不注意一个圈直接上天
+
