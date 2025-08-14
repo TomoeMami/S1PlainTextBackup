@@ -395,3 +395,61 @@
 不愧是随便出货的萌新 太强了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你是课佬
 
+
+*****
+
+####  qixinno2  
+##### 17797#       发表于 2025-8-14 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264663&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 14:39</a>
+
+但你是课佬</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我算个屁氪佬 不如上面的EX哥和希望花
+
+*****
+
+####  exiaexa  
+##### 17798#       发表于 2025-8-14 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264679&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-14 14:42</a>
+
+我算个屁氪佬 不如上面的EX哥和希望花</blockquote>
+不要算上我啊
+
+为了戒氪我号都卖了，现在已经是福袋党了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17799#       发表于 2025-8-14 18:20
+
+单抽 彩圈！<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+杀阶 杰克<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17800#       发表于 2025-8-14 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68265845&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 18:20</a>
+
+单抽 彩圈！
+
+杀阶 杰克</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 狗萌新还在豹跳 完全爆杀我这种还不自量力氪金的非洲霉逼
+
+
+*****
+
+####  qixinno2  
+##### 17801#       发表于 2025-8-14 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68265804&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-8-14 18:11</a>
+
+不要算上我啊
+
+为了戒氪我号都卖了，现在已经是福袋党了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">大佬以前动不动就五宝的实力太强了
+
