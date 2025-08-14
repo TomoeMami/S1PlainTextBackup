@@ -15161,3 +15161,20 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 其他DEBUFF还好控制，随机涨条子真是闹残。
 
+
+*****
+
+####  petitlui  
+##### 1454#       发表于 2025-8-14 12:16
+
+交易会影响三阶段吗我现在就好奇
+
+*****
+
+####  桥洞底下盖小被  
+##### 1455#       发表于 2025-8-14 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263033&amp;ptid=2210352" target="_blank">Asimot 发表于 2025-8-14 09:49</a>
+更新双排了吗？</blockquote>
+双排数值感觉有问题，魂又多怪血又少，简单过头了
+
