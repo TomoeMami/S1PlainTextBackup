@@ -128,3 +128,14 @@
 
 这样的门路上见到好多，要怎么开？
 
+
+*****
+
+####  blueelf  
+##### 445#         楼主| 发表于 2025-8-14 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68262387&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-14 04:21</a>
+
+这样的门路上见到好多，要怎么开？</blockquote>
+跟剧情相关，需要特殊钥匙拿到了以后才能开，而且很多时候是很久以后才能拿到钥匙，这种会进笔记，而且有描述门的位置和颜色，免得玩家遗忘
+
