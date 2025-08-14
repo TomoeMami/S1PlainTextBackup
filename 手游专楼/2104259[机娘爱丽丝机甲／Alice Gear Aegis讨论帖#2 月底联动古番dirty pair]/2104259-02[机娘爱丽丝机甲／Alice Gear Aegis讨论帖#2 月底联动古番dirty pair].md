@@ -36,3 +36,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">又攒了二十连去抽宁里结果虽然每个十连都有四星但是一个an+1一个薰子阿姨，心态反而崩了草
 
+
+*****
+
+####  江戸前ルナ  
+##### 1607#         楼主| 发表于 2025-8-14 15:51
+
+推特看到日向这分支RPG的性能，文嘉再次哭晕在厕所
+
