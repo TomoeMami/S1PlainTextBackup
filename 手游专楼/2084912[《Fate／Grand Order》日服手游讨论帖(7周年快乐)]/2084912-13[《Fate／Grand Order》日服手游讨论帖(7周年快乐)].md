@@ -141,3 +141,40 @@
 
 214和[]都落地了，结合改名玉兔，我认为这个角色大概率是“织”
 
+
+*****
+
+####  yyzcacxg  
+##### 17775#       发表于 2025-8-14 10:02
+
+丢了30石捞了个水克姐，卡面不错性能不错宝具还有夫妇彩蛋，有趣的女人...
+
+*****
+
+####  qixinno2  
+##### 17776#       发表于 2025-8-14 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68262929&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 09:35</a>
+
+这才对！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 狗萌新太欧了
+
+*****
+
+####  shinitakute  
+##### 17777#       发表于 2025-8-14 10:35
+
+除了pv这些角色，还有可能有其他新角色吗
+
+感觉都不太戳我……
+
+*****
+
+####  alucardcz  
+##### 17778#       发表于 2025-8-14 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68263227&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-14 10:14</a>
+
+欧 狗萌新太欧了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">萌新把剩下15石丢进了泳装池但无事发生 哪欧了
+
