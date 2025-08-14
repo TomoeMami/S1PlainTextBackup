@@ -418,3 +418,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 话说这玩意儿有人做剧情整理解读吗？碎片化剧情很多地方没搞明白，比如男猪在地底城市发动起义然后怎么就成 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实还行，基本上一个地区一个故事线，讲述的都是地区故事。你把地区故事都整理一下放word里，就不显得碎片化了。男主是地下起义以后建立了一个帝国，因为地下新异种的科技和力量都更强，然后一波反推了王国。王国打不过就只能放魔计划了。说起来放魔本质不就是玩了一波花园口plus版。
 
+
+*****
+
+####  剑影若兰  
+##### 452#       发表于 2025-8-14 18:08
+
+确实很好玩，有类似的推荐吗？<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

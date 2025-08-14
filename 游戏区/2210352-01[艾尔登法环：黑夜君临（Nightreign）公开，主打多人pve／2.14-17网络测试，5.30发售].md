@@ -15261,3 +15261,20 @@ fs违背原计划准备把这游戏搞长线更新了吗？</blockquote>
 
 羊头太难了，真的打不过<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 1465#       发表于 2025-8-14 18:02
+
+<img src="https://p.sda1.dev/26/e925d2b33fafb3350d463442d484e5c3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jacket  
+##### 1466#       发表于 2025-8-14 18:06
+
+看到野外红名boss掉落脑瓜崩，之前以为这东西只有火山手子会出
+
