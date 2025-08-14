@@ -16,3 +16,11 @@
 
 省流...骚鸡土法，新迷宫的强力单手剑，未来会更新同一化会继承本体克己
 
+
+*****
+
+####  UnknownRei  
+##### 493#       发表于 2025-8-14 17:29
+
+新的别离洞出货很好，不知道会不会像牛洞那样削垃圾掉落，总之开刷，不太建议在刷够别离套和新单手剑前去打真BOSS，属于没苦硬吃了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
