@@ -357,3 +357,41 @@
 你有问题的点也太怪了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17793#       发表于 2025-8-14 14:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">带冠战所长三破一把起码1W2左右的羁绊 一天三把 五天就够了
+
+*****
+
+####  alucardcz  
+##### 17794#       发表于 2025-8-14 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264620&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-14 14:32</a>
+
+带冠战所长三破一把起码1W2左右的羁绊 一天三把 五天就够了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">3天太久了 今天必须120！ 已经110了
+
+*****
+
+####  qixinno2  
+##### 17795#       发表于 2025-8-14 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264642&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-14 14:35</a>
+
+3天太久了 今天必须120！ 已经110了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不愧是随便出货的萌新 太强了
+
+*****
+
+####  alucardcz  
+##### 17796#       发表于 2025-8-14 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68264658&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-14 14:38</a>
+
+不愧是随便出货的萌新 太强了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你是课佬
+
