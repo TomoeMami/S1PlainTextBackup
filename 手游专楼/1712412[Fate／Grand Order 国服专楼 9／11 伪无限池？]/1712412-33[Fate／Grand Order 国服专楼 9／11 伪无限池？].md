@@ -208,3 +208,11 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 啊 我也是喝彩4等1  艾蕾3宝<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47382#       发表于 2025-8-15 19:35
+
+笑死，兔子王的强化最后一个怪没有翻译，还是日文<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
