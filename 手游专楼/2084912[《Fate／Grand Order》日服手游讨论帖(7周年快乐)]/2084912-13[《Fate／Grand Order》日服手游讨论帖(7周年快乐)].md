@@ -638,3 +638,49 @@
 
 草  抽不到美游
 
+
+*****
+
+####  qixinno2  
+##### 17812#       发表于 2025-8-15 17:35
+
+<blockquote>kyonkoism 发表于 2025-8-15 17:25
+完全就是C106新刊封面的程度，，，，，</blockquote>
+佐藤空气恶堕魔法少女
+
+*****
+
+####  exiaexa  
+##### 17813#       发表于 2025-8-15 17:37
+
+广山用心程度秒杀社长
+
+就是两个都强度太微妙了，还是等提妈吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 17814#       发表于 2025-8-15 17:46
+
+你跟我说这是214我是不认的<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 17815#       发表于 2025-8-15 17:53
+
+美游枪阶丐版娄希，玉兔目前最强3t即死+对肃正贯通天特攻，可自选光炮单体，只能说特色是有的但是泛用性一眼寄，等提妈了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 17816#       发表于 2025-8-15 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270643&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-15 17:08</a>
+
+60抽2宝美游1宝式姐 突破后好看多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这就是欧皇吗 羡慕了
+
