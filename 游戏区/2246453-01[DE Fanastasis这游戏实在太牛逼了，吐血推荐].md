@@ -451,3 +451,19 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 到底是谁对谁说的？<img src="https://static.stage1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 455#       发表于 2025-8-15 12:41
+
+ 本帖最后由 blackll7 于 2025-8-15 12:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68269269&amp;ptid=2246453" target="_blank">这是马甲 发表于 2025-8-15 12:25</a>
+始终没看明白的一块:
+
+杀了三魔女后找女帝解除契约</blockquote>
+对“你”说的啊，也就是异界之魂或者说“圣人”。设定里面魔法来源于异界，龙是异界投影生物，所以可以从其身上获取各种魔法。异界之魂（玩家）也是异界生物投影，所以也具有独特的魔法（治愈）。
+被大魔女背刺以后，阿尔弗雷德的灵魂归大魔女，异界之魂就可以滚了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
