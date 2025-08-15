@@ -595,3 +595,13 @@ tachiyomi相关软件主要是用来追连载更新的，而komga一般是来管
 
 发现suwayomi最新版已支持webview，但是中文网页打开全是乱码，不过还是能勉强登陆上去。
 
+
+*****
+
+####  RaidenII  
+##### 51#       发表于 2025-8-16 05:06
+
+koreader上有rakuyomi插件，用的是老版本的aidoku源。
+
+漫画柜能用，但是rawkuma和rawdevart的插件都用不了
+
