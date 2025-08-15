@@ -850,3 +850,45 @@
 
 本来想抽个美游就溜，结果月式跟着来了，好在没有多用石头，这期泳装不出意外就此收手了
 
+
+*****
+
+####  angelooo  
+##### 17833#       发表于 2025-8-15 21:10
+
+不行了越看这卡面和宝具越难绷
+
+我要作法祈祷泳装藤乃永不落地了
+
+（我不信每个人都能有所长的运气
+
+*****
+
+####  alucardcz  
+##### 17834#       发表于 2025-8-15 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271674&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-8-15 21:10</a>
+
+不行了越看这卡面和宝具越难绷
+
+我要作法祈祷泳装藤乃永不落地了
+
+（我不信每个人都能有所长的运气 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">该加入 “给我玩fgo”的梗图里了
+
+*****
+
+####  白金口袋  
+##### 17835#       发表于 2025-8-15 21:34
+
+300石10呼符1玉兔，意外的还行，等提妈了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 17836#       发表于 2025-8-15 21:44
+
+这美游怎么看都应该是狂阶才对，已经是句句不离伊莉雅的颠婆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
