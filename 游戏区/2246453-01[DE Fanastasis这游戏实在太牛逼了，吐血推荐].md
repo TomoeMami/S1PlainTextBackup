@@ -528,3 +528,18 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 悬崖底下有个会叫肉盾的打得好折磨啊 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">有内置攻略啊，技能点出来就行，不是低通或者6难度的话还是没那么难的。
 
+
+*****
+
+####  荆棘花冠  
+##### 460#       发表于 2025-8-15 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271313&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-8-15 19:39</a>
+
+如何刷级？还有一些下级恶魔怎么打有攻略吗
+
+悬崖底下有个会叫肉盾的打得好折磨啊 ...</blockquote>
+你真要刷级可以跳海进海之道，满地魔女给你刷（顺带迷路）
+
+多数路线的拦路BOSS都可以绕道过去，特别是那些给XX之影的
+

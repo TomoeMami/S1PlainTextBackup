@@ -892,3 +892,55 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shoel  
+##### 17837#       发表于 2025-8-15 21:51
+
+幽默月式考据
+
+*****
+
+####  希望之花  
+##### 17838#       发表于 2025-8-15 22:01
+
+周年石头已经没有力，1500=3<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17839#       发表于 2025-8-15 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271833&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-8-15 22:01</a>
+
+周年石头已经没有力，1500=3</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">富哥太有实力啦
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 2|什么夸夸群xd|
+
+查看全部评分
+
+*****
+
+####  高木なつめ  
+##### 17840#       发表于 2025-8-15 23:32
+
+你是伊莉雅，种付大叔也是伊莉雅
+
+
+*****
+
+####  高木なつめ  
+##### 17841#       发表于 2025-8-15 23:33
+
+这下彻底没苹果了，刷狗粮都得吃彩的
+
