@@ -482,3 +482,33 @@ ft那个消息要是真的只能说明ds的方向真的无比坚决<img src="htt
 气坏了，欧洲这就去再开114个会，发514个宣言，定1919个标准，立810个法，最后做一个瓶盖出来。 ...</blockquote>
 再加上找个理由罚外国公司钱
 
+
+*****
+
+####  yuialon  
+##### 50#       发表于 2025-8-15 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68268905&amp;ptid=2259291" target="_blank">哈利谢顿 发表于 2025-8-15 11:27</a>
+
+叉一个新闻
+
+那个马努斯，就是核心跑路新加坡的（把国内的人开了的那份），被米国政府点名不能投资，首轮风 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+那破项目就算拿了投资也活不久，本身就没护城河，业务模式纯靠国内工程师撑着
+
+跑路新加坡死得更快，坡县那地方工程师价高质次
+
+
+*****
+
+####  枯风瘦雪  
+##### 51#       发表于 2025-8-15 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270007&amp;ptid=2259291" target="_blank">yuialon 发表于 2025-8-15 15:08</a>
+
+那破项目就算拿了投资也活不久，本身就没护城河，业务模式纯靠国内工程师撑着
+
+跑路新加坡死得更快，坡县 ...</blockquote>
+agent模式感觉就看不到啥落地盈利的可能性，不过这家要真的死了还挺乐的，之前搞一大堆营销号硬吹然后光速跑路的样子就很让人无语了
+
