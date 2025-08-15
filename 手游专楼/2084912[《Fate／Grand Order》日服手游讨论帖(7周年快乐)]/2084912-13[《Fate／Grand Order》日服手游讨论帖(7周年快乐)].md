@@ -596,3 +596,45 @@
 
 美游这个三破一地白灼也太糟糕了吧，穿着也是，像是魔法少女催眠会出现的装束一样，，，，<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 17808#       发表于 2025-8-15 17:20
+
+美游三破有点鸡动，抽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 17809#       发表于 2025-8-15 17:22
+
+ 本帖最后由 壳壳牛 于 2025-8-15 17:24 编辑 
+
+好事成双<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/ab8cc15d58d900f665b7516258c65059/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kyonkoism  
+##### 17810#       发表于 2025-8-15 17:25
+
+<img src="https://img.stage1st.com/forum/202508/15/172526jzvx5t845a8vb4fx.jpg" referrerpolicy="no-referrer">
+
+<strong>[)JXV9OO~)`TTRVI(OPW[35_tmb.jpg</strong> (134.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 17:25 上传
+
+完全就是C106新刊封面的程度，，，，，
+
+*****
+
+####  v22325  
+##### 17811#       发表于 2025-8-15 17:26
+
+草  抽不到美游
+
