@@ -453,3 +453,146 @@
 为了戒氪我号都卖了，现在已经是福袋党了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">大佬以前动不动就五宝的实力太强了
 
+
+*****
+
+####  alucardcz  
+##### 17802#       发表于 2025-8-14 19:34
+
+<img src="https://img.stage1st.com/forum/202508/14/193408pfn35tgk65t559z8.png" referrerpolicy="no-referrer">
+
+<strong>34343.png</strong> (374.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-14 19:34 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">搞定 从0开始好像也没很久（
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17803#       发表于 2025-8-15 08:41
+
+今天单抽new了个黄飞虎<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">开始感到剧情单抽是个好文明了
+
+*****
+
+####  qixinno2  
+##### 17804#       发表于 2025-8-15 17:08
+
+ 本帖最后由 qixinno2 于 2025-8-15 17:09 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">60抽2宝美游1宝式姐 突破后好看多了
+
+<img src="https://img.stage1st.com/forum/202508/15/170920ahosfgfhrfnnodgo.png" referrerpolicy="no-referrer">
+
+<strong>K@BN8NXRYNEROI)](~IR_DO.png</strong> (943.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 17:09 上传
+
+*****
+
+####  khxooo  
+##### 17805#       发表于 2025-8-15 17:13
+
+强度如何？
+
+*****
+
+####  Jamaisvu  
+##### 17806#       发表于 2025-8-15 17:13
+
+搬一下今天的新从者：
+
+兔式姐：
+
+<img src="https://img.stage1st.com/forum/202508/15/171413a34ge4s70sze092q.jpg" referrerpolicy="no-referrer">
+
+<strong>2DE316460B203979763BACDBC16B61A4.jpg</strong> (430.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:14 上传
+
+（能抽到的话一定常驻灵基二！）
+
+<img src="https://img.stage1st.com/forum/202508/15/171305rgu4zglqhn2l9piy.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250815_171111.jpg</strong> (319.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/15/171305o7s4z3y472aia9uu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250815_171121.jpg</strong> (240.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:13 上传
+
+水美游：
+
+<img src="https://img.stage1st.com/forum/202508/15/171329cp4ircrrlkm4ylly.jpg" referrerpolicy="no-referrer">
+
+<strong>55267362E394024EB6332A135C3A38DD.jpg</strong> (355.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:13 上传
+
+（三破这服设这眼神简直像佐藤空气画的...）
+
+<img src="https://img.stage1st.com/forum/202508/15/171329ifdhqdvroghh0djz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250815_171148.jpg</strong> (337.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/15/171329wb8gz136v333izbz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250815_171200.jpg</strong> (288.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-15 17:13 上传
+
+*****
+
+####  kyonkoism  
+##### 17807#       发表于 2025-8-15 17:14
+
+<img src="https://img.stage1st.com/forum/202508/15/171344toenrle2olrqetz3.jpg" referrerpolicy="no-referrer">
+
+<strong>9JH9A{{MHX63PT(KZGMZDWC_tmb.jpg</strong> (371.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202508/15/171345yewjzfw4wwf8e4qb.jpg" referrerpolicy="no-referrer">
+
+<strong>C)IL}]C5~[_]1}[DF{D~FY5_tmb.jpg</strong> (389.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 17:13 上传
+
+玉兔虽然三破露出了4脚，但是看满破依旧是全力社长，好看
+
+以及
+
+美游这个三破一地白灼也太糟糕了吧，穿着也是，像是魔法少女催眠会出现的装束一样，，，，<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
