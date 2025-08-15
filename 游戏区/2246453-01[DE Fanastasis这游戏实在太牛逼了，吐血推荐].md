@@ -437,3 +437,17 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 确实很好玩，有类似的推荐吗？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 和histoire（イストーワル），地图上最接近的还是超级银河战士，气氛上还是black souls两作。非要说的话crystal project也是探路和rpg平衡的非常好的类型，不过更接近现代开放世界。
 
+
+*****
+
+####  这是马甲  
+##### 454#       发表于 2025-8-15 12:25
+
+始终没看明白的一块:
+
+杀了三魔女后找女帝解除契约
+
+字幕过后的那几句话
+
+到底是谁对谁说的？<img src="https://static.stage1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
