@@ -722,3 +722,41 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  angelooo  
+##### 17821#       发表于 2025-8-15 18:34
+
+式姐只有和服那张好看啊，满破胸那里太可怕了艹
+
+美游……广山yyds
+
+*****
+
+####  qixinno2  
+##### 17822#       发表于 2025-8-15 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270931&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-15 18:13</a>
+
+不准备抽 这次打伤元气准备存石等拐了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">狗萌新每次都这么说 过两天就开始呼符单抽豹跳
+
+*****
+
+####  cckuku  
+##### 17823#       发表于 2025-8-15 19:02
+
+广山真是好哥们儿，
+
+*****
+
+####  xiongxingyu  
+##### 17824#       发表于 2025-8-15 19:09
+
+ 本帖最后由 xiongxingyu 于 2025-8-15 19:13 编辑 
+
+这个214强度不咋样，本来打算领个图鉴就走的，这上来3发11连每发给我一个是个什么意思？不用这么热情把，我就想领完美游把石头留给提妈啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+卧槽，完了，50发月兔4宝，美游还没出。我看了下7宝的强度美，又看了看4宝的水绘里濑。夏活、3五星、第二池，这个世界上不会有这么巧合的事情把<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
