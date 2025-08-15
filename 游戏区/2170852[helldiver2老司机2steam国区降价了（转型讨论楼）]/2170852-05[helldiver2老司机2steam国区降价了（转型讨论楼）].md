@@ -122,3 +122,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只有两千多蓝币还想着去挖一点，结果打了两三关发现，是不是N1没兴趣点了啊？？
 
+
+*****
+
+####  dxx9665  
+##### 6930#       发表于 2025-8-15 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68266749&amp;ptid=2170852" target="_blank">madcow 发表于 2025-8-14 21:50</a>
+只有两千多蓝币还想着去挖一点，结果打了两三关发现，是不是N1没兴趣点了啊？？ ...</blockquote>
+有啊，选那种圆形地图绕一圈就差不多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
