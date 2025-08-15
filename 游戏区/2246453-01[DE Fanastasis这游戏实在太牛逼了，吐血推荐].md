@@ -493,3 +493,15 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 何も…\.見えない…\.
 私の…\.た…\.魂…\.？\.が\.…
 
+
+*****
+
+####  windhawind2  
+##### 457#       发表于 2025-8-15 16:11
+
+打完卡农之冠了 不得不说最后一个遗骨藏得太阴间了。。提示文字还写的语焉不详 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不过最后凑齐后打龙还是挺爽的 
+
+（但是这游戏战斗也就图一乐了 看似大家都很多技能 其实大多复读攒sp技-sp大招连发 像枪妹一堆特攻技能还不如本身拿个特攻枪然后放三连击呢<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+（还有就是游戏的道具既廉价又强力 搞的药剂师这种纯辅助完全不如会二动吃道具的丽莎兼职辅助<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
