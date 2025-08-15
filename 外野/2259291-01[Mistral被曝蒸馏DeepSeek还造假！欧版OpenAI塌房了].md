@@ -444,3 +444,30 @@ CloseAI先偷，再偷必究
 DS这段时间风评也一般，国内感觉豆包更好用些了</blockquote>
 现在DS是真正普及了，我们学校都在考虑本地部署了
 
+
+*****
+
+####  aeolus039  
+##### 46#       发表于 2025-8-15 14:41
+
+ft那个消息要是真的只能说明ds的方向真的无比坚决<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道水军嘲笑个什么劲<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  XSK小龙王  
+##### 47#       发表于 2025-8-15 14:43
+
+别忘了DS不是人家公司的主业啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madness  
+##### 48#       发表于 2025-8-15 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68268981&amp;ptid=2259291" target="_blank">哈利谢顿 发表于 2025-8-15 11:36</a>
+
+说是华为去帮忙让DS适应他们的芯片，导致推迟发新版本</blockquote>
+那个说的infrence，压根无关的。或者说如果有，假如DS还是走开源路线，那是对华为搞技术扶贫——开源权重意味着随便哪个infra的都能做，而就DS对toC业务压根负优化的态度更是让他们没有任何动力去搞这一套，倒是华为为了让数据中心用他们的卡做infra有这个需求。
+
