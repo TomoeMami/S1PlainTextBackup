@@ -34,3 +34,11 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 
 我想问问有的npc有绿点，但是跑到跟前对话只亮一下就暗了，怎么都互动不上是为啥？
 
+
+*****
+
+####  yuo9  
+##### 4250#       发表于 2025-8-16 01:54
+
+更新完进游戏疯狂掉帧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
