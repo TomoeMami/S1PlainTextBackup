@@ -525,3 +525,14 @@ ft那个消息要是真的只能说明ds的方向真的无比坚决
 不知道水军嘲笑个什么劲 ...</blockquote>
 开源的对小国就是碾压（非中美以外都算小国），你无论如何做不过DS，玩毛？
 
+
+*****
+
+####  yuialon  
+##### 53#       发表于 2025-8-15 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270043&amp;ptid=2259291" target="_blank">枯风瘦雪 发表于 2025-8-15 15:14</a>
+
+agent模式感觉就看不到啥落地盈利的可能性，不过这家要真的死了还挺乐的，之前搞一大堆营销号硬吹然后光 ...</blockquote>
+作为下一代流量入口，直接卖广告就能赚，现在还处于各家抢地盘阶段
+
