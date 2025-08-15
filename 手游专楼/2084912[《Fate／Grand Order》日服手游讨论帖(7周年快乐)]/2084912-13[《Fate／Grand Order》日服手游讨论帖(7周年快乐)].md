@@ -760,3 +760,62 @@
 
 卧槽，完了，50发月兔4宝，美游还没出。我看了下7宝的强度美，又看了看4宝的水绘里濑。夏活、3五星、第二池，这个世界上不会有这么巧合的事情把<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 17825#       发表于 2025-8-15 19:16
+
+<img src="https://img.stage1st.com/forum/202508/15/191453wcl1vsbscgm9t9mw.png" referrerpolicy="no-referrer">
+
+<strong>IG`C4GBL(W32WUQ(FTK~Y@1.png</strong> (574.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 19:14 上传
+
+<img src="https://img.stage1st.com/forum/202508/15/191453ttiz6t5zn6zbq55z.png" referrerpolicy="no-referrer">
+
+<strong>1Q8}7L4[$KY2_@]SS$)5URQ.png</strong> (42.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 19:14 上传
+
+果不其然用的3破草
+
+吸精魔力中毒的作者苍海看来完全get到广山的梗了，毕竟全部认成伊莉雅这个技能也太本子捏他了，演都不演的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17826#       发表于 2025-8-15 19:32
+
+<blockquote>xiongxingyu 发表于 2025-8-15 19:09
+这个214强度不咋样，本来打算领个图鉴就走的，这上来3发11连每发给我一个是个什么意思？不用这么热情把，我 ...</blockquote>
+快逃吧，我碰到过两次这样的事，一次是为了抽鬼女红叶出了四个小王子，一次是为了抽正雪出了四个丑御前，丑御前甚至我扔呼符止损都在后面追我
+
+*****
+
+####  alucardcz  
+##### 17827#       发表于 2025-8-15 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271285&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-8-15 19:32</a>
+
+快逃吧，我碰到过两次这样的事，一次是为了抽鬼女红叶出了四个小王子，一次是为了抽正雪出了四个丑御前， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">为什么萌新从来没遇到过这种事
+
+*****
+
+####  xiongxingyu  
+##### 17828#       发表于 2025-8-15 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271285&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-8-15 19:32</a>
+
+快逃吧，我碰到过两次这样的事，一次是为了抽鬼女红叶出了四个小王子，一次是为了抽正雪出了四个丑御前， ...</blockquote>
+60连水式4，美游1，果断跑路，反正美游就是个插件，1宝也够了。
+
+卡4星倒不是那么稀奇的事，主要是你游开服10年一共就这么两次三池的夏活，上一次我是50发伊吹4宝，绘里濑2，冲着水绘强度搏了一把，结果100连时来了个双黄，水伊吹6水绘才3。复刻时不敢多抽，就每日1石抽了几天，结果水伊吹变7了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这回前3发直接来3个瞬间让我ptsd犯了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

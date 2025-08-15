@@ -505,3 +505,26 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 （还有就是游戏的道具既廉价又强力 搞的药剂师这种纯辅助完全不如会二动吃道具的丽莎兼职辅助<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RUANHYC  
+##### 458#       发表于 2025-8-15 19:39
+
+如何刷级？还有一些下级恶魔怎么打有攻略吗<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+悬崖底下有个会叫肉盾的打得好折磨啊
+
+
+*****
+
+####  blackll7  
+##### 459#       发表于 2025-8-15 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271313&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-8-15 19:39</a>
+
+如何刷级？还有一些下级恶魔怎么打有攻略吗
+
+悬崖底下有个会叫肉盾的打得好折磨啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">有内置攻略啊，技能点出来就行，不是低通或者6难度的话还是没那么难的。
+
