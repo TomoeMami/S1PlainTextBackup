@@ -2196,3 +2196,18 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
        [https://t.bilibili.com/1100968360455176193](https://t.bilibili.com/1100968360455176193)
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41167#       发表于 2025-8-15 08:55
+
+母鸡卡电影吗，继续看看柿本能搞什么新活，他要能继续毁人设我佩服<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 41168#       发表于 2025-8-15 08:56
+
+电影(总集篇)吧。
+
