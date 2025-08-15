@@ -544,3 +544,21 @@ agent模式感觉就看不到啥落地盈利的可能性，不过这家要真的
 
 现在国内AI编程写代码最强的是哪家？
 
+
+*****
+
+####  cmdycj0732  
+##### 55#       发表于 2025-8-15 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270159&amp;ptid=2259291" target="_blank">ppntint 发表于 2025-8-15 15:34</a>
+
+现在国内AI编程写代码最强的是哪家？</blockquote>
+K2和Qwen3-Coder吧
+
+*****
+
+####  星花  
+##### 56#       发表于 2025-8-15 15:45
+
+我寻思，全世界每年的广告费就那么点。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

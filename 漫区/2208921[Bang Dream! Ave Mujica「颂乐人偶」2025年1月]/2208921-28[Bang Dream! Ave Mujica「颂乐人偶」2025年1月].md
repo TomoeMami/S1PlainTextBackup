@@ -2232,3 +2232,19 @@ Ave Mujica 官方非日常四格漫画「Ave Mujica ～幻～」
 
 悬念是添加谁的，海铃、若麦二选一
 
+
+*****
+
+####  抽搐一下  
+##### 41171#       发表于 2025-8-15 15:54
+
+<img src="https://img.stage1st.com/forum/202508/15/155339q8u0uxdgaav9dyyv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (302.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-15 15:53 上传
+
+mygo时也写是新作剧场版，不过当时公布也写上是总集篇了时
+
