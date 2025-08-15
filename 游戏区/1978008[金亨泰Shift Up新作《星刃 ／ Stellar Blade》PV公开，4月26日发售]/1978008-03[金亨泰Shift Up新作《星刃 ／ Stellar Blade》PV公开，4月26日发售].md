@@ -42,3 +42,11 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 
 更新完进游戏疯狂掉帧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天选之子  
+##### 4251#       发表于 2025-8-16 03:25
+
+游戏都发售一年多了，PS5版都还是568港币，这游戏销量很好吗？迟迟不降价。
+
