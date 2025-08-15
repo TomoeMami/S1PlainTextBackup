@@ -56,3 +56,16 @@
 
 这样大派送优秀装备，看来周年庆同步上线第四章大概率是真的了，已经等不及要受苦了，快点端上来罢
 
+
+*****
+
+####  elven119  
+##### 497#       发表于 2025-8-15 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68266778&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-8-14 21:59</a>
+
+怎么土法同化力量+3信仰+3就是不加智力
+
+这个加值应该和个体无关，是固定的吧</blockquote>
+官推发了预告了，下个月皮肤改版，到时候应该皮肤和属性独立了
+
