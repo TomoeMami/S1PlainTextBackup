@@ -819,3 +819,34 @@
 
 这回前3发直接来3个瞬间让我ptsd犯了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 17829#       发表于 2025-8-15 19:54
+
+214补上MC蓝卡单体的5星位置，提妈是不是要补上5星绿卡单体弓的位置了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 17830#       发表于 2025-8-15 19:58
+
+<blockquote>alucardcz 发表于 2025-8-15 19:38
+为什么萌新从来没遇到过这种事</blockquote>
+也不是最厨然后强度也一般的五星不停出很恐怖的好吧，我真要抽的厨力卡&amp;强度卡的时候就不会发生这种事了OTZ
+
+*****
+
+####  cckuku  
+##### 17831#       发表于 2025-8-15 20:12
+
+1发十连，出了个美游，完美收场，溜了溜了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 17832#       发表于 2025-8-15 21:03
+
+本来想抽个美游就溜，结果月式跟着来了，好在没有多用石头，这期泳装不出意外就此收手了
+

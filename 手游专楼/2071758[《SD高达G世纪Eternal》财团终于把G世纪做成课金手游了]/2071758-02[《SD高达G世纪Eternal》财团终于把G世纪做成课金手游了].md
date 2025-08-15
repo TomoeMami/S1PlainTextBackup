@@ -2546,3 +2546,14 @@ ex隐藏还是要二队的，还有小兵增援
 
 这次强袭活动加强度了，所有强袭机体本都加强度了
 
+
+*****
+
+####  AminGly  
+##### 2489#       发表于 2025-8-15 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68271046&amp;ptid=2071758" target="_blank">captoon 发表于 2025-8-15 18:41</a>
+
+这次强袭活动加强度了，所有强袭机体本都加强度了</blockquote>
+小怪加吗
+
