@@ -562,3 +562,14 @@ K2和Qwen3-Coder吧
 
 我寻思，全世界每年的广告费就那么点。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ppntint  
+##### 57#       发表于 2025-8-15 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270215&amp;ptid=2259291" target="_blank">cmdycj0732 发表于 2025-8-15 15:45</a>
+
+K2和Qwen3-Coder吧</blockquote>
+谢谢！！！！！
+
