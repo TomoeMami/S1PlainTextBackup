@@ -22,3 +22,14 @@
 <img src="https://files.catbox.moe/owpa1u.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/u6rlhj.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 1228#       发表于 2025-8-16 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68210236&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-8-4 00:31</a>
+
+为什么在我不知道的情况下去年成了公认的系列佳作了？我明明也是每个星期天早上看的，怎么不知道有这回事 ...</blockquote>
+没事，狗Q在我这里是近五年来最差的一部，要战斗没战斗要剧情没剧情，动保主题充满了极其虚伪的白左味儿，还炒了这么久的BGCP然后把狗踹一边，所谓的粉主还真就是路边一条狗的待遇，连天Q都不如<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">支撑我看完的唯一理由就是真由和猫的CP
+
