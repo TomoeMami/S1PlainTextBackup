@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 185004,
+    "totalreply": 185010,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755339372,
+    "lastedit": 1755340090,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 182524,
+    "totalreply": 182530,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755339255,
+    "lastedit": 1755340089,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 741,
+    "totalreply": 743,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1755326411,
+    "lastedit": 1755340090,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 1446,
+    "totalreply": 1448,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1755339372,
+    "lastedit": 1755339728,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11754,10 +11754,10 @@
     "update": false
   },
   "2193746": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[Silent Witch 沉默魔女的秘密 动画化]",
     "newtitle": "[Silent Witch 沉默魔女的秘密 动画化]",
-    "lastedit": 1755337697,
+    "lastedit": 1755339855,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15359,7 +15359,7 @@
     "newtitle": "[【变成VR游戏游玩日记了】购入Quest3，不当索狗]",
     "lastedit": 1755080535,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2258709": {
@@ -16308,10 +16308,10 @@
     "update": false
   },
   "2259178": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[反差剧烈！影视经典角色盘点]",
     "newtitle": "[反差剧烈！影视经典角色盘点]",
-    "lastedit": 1755337812,
+    "lastedit": 1755339609,
     "category": "外野",
     "active": true,
     "update": false
@@ -16578,10 +16578,10 @@
     "update": false
   },
   "2259306": {
-    "totalreply": 111,
+    "totalreply": 112,
     "title": "[四大名著翻拍，现在能演好吗？]",
     "newtitle": "[四大名著翻拍，现在能演好吗？]",
-    "lastedit": 1755339254,
+    "lastedit": 1755339855,
     "category": "外野",
     "active": true,
     "update": false
@@ -16713,19 +16713,19 @@
     "update": false
   },
   "2259365": {
-    "totalreply": 108,
+    "totalreply": 110,
     "title": "[鹤卷和哉：再过十年，高达系列可能会难以为继。]",
     "newtitle": "[鹤卷和哉：再过十年，高达系列可能会难以为继。]",
-    "lastedit": 1755338290,
+    "lastedit": 1755339855,
     "category": "漫区",
     "active": true,
     "update": false
   },
   "2259379": {
-    "totalreply": 62,
+    "totalreply": 65,
     "title": "[求证：以色列那一万年前的草编竹篮子是后世造的？]",
     "newtitle": "[求证：以色列那一万年前的草编竹篮子是后世造的？]",
-    "lastedit": 1755339012,
+    "lastedit": 1755339610,
     "category": "外野",
     "active": true,
     "update": false
@@ -16754,6 +16754,15 @@
     "newtitle": "[丰崎爱生老公去世？]",
     "lastedit": 1755333847,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2259392": {
+    "totalreply": 41,
+    "title": "[把声优当成异性偶像是什么心理？]",
+    "newtitle": "[把声优当成异性偶像是什么心理？]",
+    "lastedit": 1755339856,
+    "category": "外野",
     "active": true,
     "update": false
   }
