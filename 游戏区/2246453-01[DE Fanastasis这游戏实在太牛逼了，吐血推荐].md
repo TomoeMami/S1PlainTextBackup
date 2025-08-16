@@ -543,3 +543,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 多数路线的拦路BOSS都可以绕道过去，特别是那些给XX之影的
 
+
+*****
+
+####  zonker  
+##### 461#       发表于 2025-8-16 17:02
+
+我日，按F12怎么是退出到加载界面啊，就想截个图，白打一小时<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
