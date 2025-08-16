@@ -2323,3 +2323,19 @@ mygo时也写是新作剧场版，不过当时公布也写上是总集篇了时
        <strong>NewType / 2025-03</strong> <blockquote>Animedia 2025-04 杂志 高尾奏音访谈全文+翻译+批注</blockquote>
        [https://weibo.com/ttarticle/p/show?id=2309405198892018303127](https://weibo.com/ttarticle/p/show?id=2309405198892018303127)
 
+
+*****
+
+####  6030sylar  
+##### 41176#       发表于 2025-8-16 12:54
+
+<img src="https://img.stage1st.com/forum/202508/16/125432g6iz1itqty61nt1z.png" referrerpolicy="no-referrer">
+
+<strong>92111235cb66744fc88da82a091e0fed.png</strong> (640.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 12:54 上传
+
+https://live.bilibili.com/21369309?live_from=81011&amp;spm_id_from=333.1365.top_right_bar_window_history.content.click
+
