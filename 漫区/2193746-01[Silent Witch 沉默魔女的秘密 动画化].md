@@ -70,3 +70,11 @@
 
 这集的冲突的结果算是写得有点意思，前面节奏太温水了
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 152#       发表于 2025-8-16 12:07
+
+华哥戏份太少,同居还一笔带过了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
