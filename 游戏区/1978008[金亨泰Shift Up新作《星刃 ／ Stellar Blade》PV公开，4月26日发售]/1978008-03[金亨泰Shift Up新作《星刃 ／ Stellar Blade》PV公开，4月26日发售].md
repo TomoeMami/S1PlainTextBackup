@@ -111,3 +111,11 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  千千千千鸟  
+##### 4258#       发表于 2025-8-16 16:41
+
+话说这游戏那些外观替换mod，游戏更新之后会失效吗？之前玩一半放置了，中间更新了好几个版本来着<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
