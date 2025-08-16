@@ -88,3 +88,16 @@
 
 这集剪掉了华哥和王子聊的两句，华哥表示自己只是吓吓人，父亲不会真的因私情影响大局，这段还挺喜欢的
 
+
+*****
+
+####  aptx8285144  
+##### 154#       发表于 2025-8-16 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273641&amp;ptid=2193746" target="_blank">tiro_finale 发表于 2025-8-16 12:30</a>
+
+同居原作也没写，对比拉娜，伊莎贝尔纯纯败犬呀，明明尽心尽力，只能说仰慕难敌朋友关系
+
+这集剪掉了华哥和 ...</blockquote>
+我相信外网应该有两人同居的本子（
+
