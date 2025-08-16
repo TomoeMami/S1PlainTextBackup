@@ -2441,3 +2441,22 @@ https://live.bilibili.com/21369309?live_from=81011&amp;spm_id_from=333.1365.top_
 
        [https://x.com/okada_mei0519/status/1956615995877171477](https://x.com/okada_mei0519/status/1956615995877171477)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41179#       发表于 2025-8-16 19:48
+
+       <strong>Ave Mujica - SUMMER SONIC 2025 [2025.08.16]</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/16/194757rwojbts2qw9tq4wb.jpg" referrerpolicy="no-referrer">
+
+<strong>3869a992c6b682367a568fa6015f0ddf5d790019.jpg</strong> (194.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 19:47 上传
+
+SC</blockquote>
+       [https://www.bilibili.com/video/BV1GbYYzEEPZ](https://www.bilibili.com/video/BV1GbYYzEEPZ)
+
