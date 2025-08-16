@@ -2590,3 +2590,16 @@ ex隐藏还是要二队的，还有小兵增援
 开始被上面大哥的回血BUFF带歪了思路想硬抗恶魔高达的地图炮慢慢处理上路，结果失 ...</blockquote>
 第一回合能秒尊者和恶魔就不用带盾，下面MAP多点一回合过也是可以的
 
+
+*****
+
+####  blue321  
+##### 2493#       发表于 2025-8-16 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274639&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-8-16 17:30</a>
+
+第一回合能秒尊者和恶魔就不用带盾，下面MAP多点一回合过也是可以的</blockquote>
+确实是第一回合集火秒掉了恶魔、然后闪避拖回合和尊者慢慢打刚好打过了
+
+第三回合刷出来的不是血厚防御怪真是太好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
