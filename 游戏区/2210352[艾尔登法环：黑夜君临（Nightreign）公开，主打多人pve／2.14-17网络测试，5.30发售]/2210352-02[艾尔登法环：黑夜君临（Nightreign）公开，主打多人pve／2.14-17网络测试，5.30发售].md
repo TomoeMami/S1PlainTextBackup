@@ -180,3 +180,14 @@ https://www.youtube.com/watch?v=SaWxwQux7n8</blockquote>
 听着好可怕 ...</blockquote>
 buff期间，触发时右边会提示出了虚假的祝福，然后身上会围三圈类似人马减速的光环。挺明显的，留意一下就能处理
 
+
+*****
+
+####  luodang007  
+##### 1500#       发表于 2025-8-16 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274151&amp;ptid=2210352" target="_blank">RinC 发表于 2025-8-16 14:56</a>
+
+buff期间，触发时右边会提示出了虚假的祝福，然后身上会围三圈类似人马减速的光环。挺明显的，留意一下就 ...</blockquote>
+3q，那问题应该不大，结束后能恢复等级就行
+
