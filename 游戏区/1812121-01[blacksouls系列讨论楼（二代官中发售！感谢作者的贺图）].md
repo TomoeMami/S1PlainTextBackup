@@ -939,3 +939,16 @@ dlc更新需要重新拖一遍本体么..看了一下下载只有一个完整的
 
 二代不可能发吧，steam对炼铜管的特别严
 
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 88#       发表于 2025-8-16 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273096&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-16 10:22</a>
+
+居然还有专楼
+
+二代不可能发吧，steam对炼铜管的特别严</blockquote>
+靠补丁和审核心情，妹生活不都有上了
+
