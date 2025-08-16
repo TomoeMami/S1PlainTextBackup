@@ -167,3 +167,16 @@ https://www.youtube.com/watch?v=SaWxwQux7n8</blockquote>
 
 听着好可怕
 
+
+*****
+
+####  RinC  
+##### 1499#       发表于 2025-8-16 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273958&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-8-16 14:00</a>
+
+今天晚上打山羊，喝血掉等级是掉了后持续到结束都掉级，还是中buff期间？
+
+听着好可怕 ...</blockquote>
+buff期间，触发时右边会提示出了虚假的祝福，然后身上会围三圈类似人马减速的光环。挺明显的，留意一下就能处理
+
