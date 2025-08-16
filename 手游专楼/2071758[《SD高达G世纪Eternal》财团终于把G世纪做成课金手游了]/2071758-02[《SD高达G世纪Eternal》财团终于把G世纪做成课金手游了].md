@@ -2603,3 +2603,17 @@ ex隐藏还是要二队的，还有小兵增援
 
 第三回合刷出来的不是血厚防御怪真是太好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 2494#       发表于 2025-8-16 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274798&amp;ptid=2071758" target="_blank">blue321 发表于 2025-8-16 18:09</a>
+确实是第一回合集火秒掉了恶魔、然后闪避拖回合和尊者慢慢打刚好打过了
+
+第三回合刷出来的不是血厚防御怪 ...</blockquote>
+那个尊者很好对付的，你拿明镜减伤那个武器先打他，好像是减伤50%还是多少，之后尊者打人就是挠痒痒了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
