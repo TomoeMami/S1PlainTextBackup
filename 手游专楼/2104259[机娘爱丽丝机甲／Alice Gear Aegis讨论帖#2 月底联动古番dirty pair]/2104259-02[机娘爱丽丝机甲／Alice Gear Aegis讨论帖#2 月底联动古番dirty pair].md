@@ -97,3 +97,14 @@
 
 顺便这是要赛车服换个色再卖一遍吗（（
 
+
+*****
+
+####  心之光  
+##### 1612#       发表于 2025-8-17 00:19
+
+被宁里勾回坑，肝了几天任务，AN＋1后连沉两次，还好最后一天无惊无险出了普通版<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/0eef2da00f111cae5d70a5480566c228/CMP_20250817001735582.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2217A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
