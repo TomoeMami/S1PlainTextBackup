@@ -591,3 +591,15 @@ K2和Qwen3-Coder吧</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  diohanmilton  
+##### 59#       发表于 2025-8-16 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68268754&amp;ptid=2259291" target="_blank">shiraikuroko 发表于 2025-8-15 11:06</a>
+开源的嘛，想用大方的说，加点改进说自己没毛病</blockquote>
+开源的是r1，v3又不开源。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
