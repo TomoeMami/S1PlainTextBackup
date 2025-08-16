@@ -551,3 +551,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 我日，按F12怎么是退出到加载界面啊，就想截个图，白打一小时<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 462#       发表于 2025-8-16 17:16
+
+这游戏99%的boss都可以通过看红字提前上好免疫道具，进去无脑刷sp，白毛帽子双刀哥大招三连直接带走
+

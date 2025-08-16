@@ -2339,3 +2339,39 @@ mygo时也写是新作剧场版，不过当时公布也写上是总集篇了时
 
 https://live.bilibili.com/21369309?live_from=81011&amp;spm_id_from=333.1365.top_right_bar_window_history.content.click
 
+
+*****
+
+####  堀内爱里衣  
+##### 41177#       发表于 2025-8-16 17:12
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/16/171149fwl2cnl04iewxln0.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-16_17-05-54.jpg</strong> (421.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 17:11 上传
+
+       [https://x.com/bang_dream_info/status/1956633826517512274](https://x.com/bang_dream_info/status/1956633826517512274)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/16/171148i9i3p6np9qri11io.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-16_17-06-29.jpg</strong> (274.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 17:11 上传
+
+       [https://x.com/bang_dream_info/status/1956633835871072328](https://x.com/bang_dream_info/status/1956633835871072328)
+
+       [https://t.co/2GOJdQ8waY](https://t.co/2GOJdQ8waY)
+
+       [https://t.co/aoxMxDwkSZ](https://t.co/aoxMxDwkSZ)
+
+       [https://t.co/eGSUf1Vkud](https://t.co/eGSUf1Vkud)
+
