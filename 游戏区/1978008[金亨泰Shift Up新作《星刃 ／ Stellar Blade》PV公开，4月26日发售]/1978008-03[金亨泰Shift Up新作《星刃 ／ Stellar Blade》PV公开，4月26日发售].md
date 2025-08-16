@@ -90,3 +90,24 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 
 如果我在没拿到之前，就打了某些衣服的反和谐mod，那是直接拥有还是依然要按游戏里的方式拿？
 
+
+*****
+
+####  Andariel  
+##### 4256#       发表于 2025-8-16 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274387&amp;ptid=1978008" target="_blank">黑暗之眼 发表于 2025-8-16 16:05</a>
+如果我在没拿到之前，就打了某些衣服的反和谐mod，那是直接拥有还是依然要按游戏里的方式拿？ ...</blockquote>
+替换的那种只是替换个模型，不影响其他机制
+
+*****
+
+####  黑暗之眼  
+##### 4257#       发表于 2025-8-16 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274444&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-8-16 16:25</a>
+替换的那种只是替换个模型，不影响其他机制</blockquote>
+懂了，放心打去，谢谢！
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
