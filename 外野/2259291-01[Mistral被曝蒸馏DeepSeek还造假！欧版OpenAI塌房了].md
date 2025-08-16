@@ -573,3 +573,21 @@ K2和Qwen3-Coder吧
 K2和Qwen3-Coder吧</blockquote>
 谢谢！！！！！
 
+
+*****
+
+####  泥头车  
+##### 58#       发表于 2025-8-16 20:11
+
+<img src="https://img.stage1st.com/forum/202508/16/050828su5vtovvozmto2pm.jpg" referrerpolicy="no-referrer">
+
+<strong>img_5834.jpg</strong> (381.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 20:08 上传
+
+用苹果马克笔打码的都是无效打码。把曝光、亮度等拉到最高即可破解
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
