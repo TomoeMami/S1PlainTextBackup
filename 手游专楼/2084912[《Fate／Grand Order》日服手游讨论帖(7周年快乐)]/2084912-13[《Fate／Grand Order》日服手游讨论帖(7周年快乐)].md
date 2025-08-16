@@ -987,3 +987,48 @@
 
 田岛老师的售后堪比choco啊，都是猛猛画新图
 
+
+*****
+
+####  qixinno2  
+##### 17846#       发表于 2025-8-16 12:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全都是伊莉雅的世界
+
+<img src="https://img.stage1st.com/forum/202508/16/120230n7mggsswjjujeglc.png" referrerpolicy="no-referrer">
+
+<strong>(N]M3D@HBJL~IJ81S{Y1G[6.png</strong> (498.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 12:02 上传
+
+*****
+
+####  alucardcz  
+##### 17847#       发表于 2025-8-16 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273501&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-16 12:02</a>
+
+全都是伊莉雅的世界</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">太欧了
+
+*****
+
+####  qixinno2  
+##### 17848#       发表于 2025-8-16 12:12
+
+<blockquote>alucardcz 发表于 2025-8-16 12:11
+太欧了</blockquote>
+转的图我欧什么了
+
+*****
+
+####  alucardcz  
+##### 17849#       发表于 2025-8-16 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273561&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-16 12:12</a>
+
+转的图我欧什么了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">皆可欧
+
