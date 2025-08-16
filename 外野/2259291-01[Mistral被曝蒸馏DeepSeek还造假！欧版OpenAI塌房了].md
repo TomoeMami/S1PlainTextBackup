@@ -616,3 +616,11 @@ K2和Qwen3-Coder吧</blockquote>
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 ds V3哪不开源了
 
+
+*****
+
+####  寇马可  
+##### 61#       发表于 2025-8-16 21:03
+
+老欧洲隔两年写个法律罚谷歌/微软/苹果/其他头部IT企业三五十亿打打牙祭就好了，搞什么自己的IT啊洗洗睡吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
