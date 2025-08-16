@@ -77,3 +77,23 @@
 
 估计其他措施远不如这调查V2对月卡促销效果大<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1611#       发表于 2025-8-17 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实我HARD都不打的，插件啥的也都没搞过，调查只是为了抽卡点（（
+
+以及最后突击10连结果是勇+1，AN宁里+1，还是没有普通宁里哭哭
+
+<img src="https://img.stage1st.com/forum/202508/17/000652w0a42ukzikni047f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250817000623.png</strong> (290.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-17 00:06 上传
+
+顺便这是要赛车服换个色再卖一遍吗（（
+
