@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 185126,
+    "totalreply": 185127,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755370806,
+    "lastedit": 1755371527,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16578,10 +16578,10 @@
     "update": false
   },
   "2259365": {
-    "totalreply": 123,
+    "totalreply": 124,
     "title": "[鹤卷和哉：再过十年，高达系列可能会难以为继。]",
     "newtitle": "[鹤卷和哉：再过十年，高达系列可能会难以为继。]",
-    "lastedit": 1755367209,
+    "lastedit": 1755371409,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16718,6 +16718,15 @@
     "newtitle": "[微软和任天堂签署10年合同！]",
     "lastedit": 1755368768,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2259414": {
+    "totalreply": 41,
+    "title": "[韩国新加坡以色列这些，算不算真正发达国家？]",
+    "newtitle": "[韩国新加坡以色列这些，算不算真正发达国家？]",
+    "lastedit": 1755371410,
+    "category": "外野",
     "active": true,
     "update": false
   }
