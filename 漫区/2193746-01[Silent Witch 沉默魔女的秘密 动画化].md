@@ -101,3 +101,13 @@
 这集剪掉了华哥和 ...</blockquote>
 我相信外网应该有两人同居的本子（
 
+
+*****
+
+####  arisato  
+##### 155#       发表于 2025-8-16 17:45
+
+动画组是不是混进了二王子派的人<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">虽然输了最终CP但动画里互动戏份都认真刻画了，一本满足
+
+剧情过得飞快的话，应该能够做到二王子主场那章吧
+
