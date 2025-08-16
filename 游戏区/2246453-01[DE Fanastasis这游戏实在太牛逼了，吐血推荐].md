@@ -573,3 +573,19 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 —— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  m1grandmk1  
+##### 464#       发表于 2025-8-16 22:35
+
+没中文啊，友情路过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  k1no  
+##### 465#       发表于 2025-8-16 22:40
+
+奇怪我地图没探完就开了牢狱之间的门，结果杀了个人就进BE了，还有其他结局吗
+

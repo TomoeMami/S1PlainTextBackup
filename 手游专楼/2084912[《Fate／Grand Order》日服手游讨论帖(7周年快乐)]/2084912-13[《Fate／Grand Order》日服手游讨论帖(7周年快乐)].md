@@ -1032,3 +1032,39 @@
 转的图我欧什么了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">皆可欧
 
+
+*****
+
+####  angelooo  
+##### 17850#       发表于 2025-8-16 13:05
+
+水美游以后会不会和其他五星枪一起up啊，实在不想顶着水式抽……
+
+*****
+
+####  khxooo  
+##### 17851#       发表于 2025-8-16 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273501&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-16 12:02</a>
+全都是伊莉雅的世界</blockquote>
+指令卡还没有P，差了一点<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  廖化  
+##### 17852#       发表于 2025-8-16 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270725&amp;ptid=2084912" target="_blank">kyonkoism 发表于 2025-8-15 17:25</a>
+
+完全就是C106新刊封面的程度，，，，，</blockquote>
+艹广山和土笔什么时候一起进去都不算冤<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 17853#       发表于 2025-8-16 22:37
+
+300石1宝式姐3宝美游
+
+剩下的等提妈
+
