@@ -559,3 +559,17 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 这游戏99%的boss都可以通过看红字提前上好免疫道具，进去无脑刷sp，白毛帽子双刀哥大招三连直接带走
 
+
+*****
+
+####  shimotsuki14  
+##### 463#       发表于 2025-8-16 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274557&amp;ptid=2246453" target="_blank">zonker 发表于 2025-8-16 17:02</a>
+我日，按F12怎么是退出到加载界面啊，就想截个图，白打一小时</blockquote>
+哈哈哈，不看游戏文件夹pdf操作说明吧
+
+什么，我也干过，那没事了
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
