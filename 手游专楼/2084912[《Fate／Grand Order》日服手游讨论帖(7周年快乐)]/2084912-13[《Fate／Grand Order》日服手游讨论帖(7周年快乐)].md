@@ -944,3 +944,46 @@
 
 这下彻底没苹果了，刷狗粮都得吃彩的
 
+
+*****
+
+####  quanlix  
+##### 17842#       发表于 2025-8-16 00:49
+
+现在开的两池都是双红和双蓝，礼拜日的池子怕不是双绿
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 17843#       发表于 2025-8-16 09:32
+
+美游这么颠居然不是狂卡.....
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17844#       发表于 2025-8-16 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68272940&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2025-8-16 09:32</a>
+美游这么颠居然不是狂卡.....</blockquote>
+但是有狂化EX啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 17845#       发表于 2025-8-16 11:40
+
+<img src="https://img.stage1st.com/forum/202508/16/114019yr6i2j7bqo2ftowc.png" referrerpolicy="no-referrer">
+
+<strong>F2GV@P2@9332A`]QLS{M_FX.png</strong> (801 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 11:40 上传
+
+我去 好帅的烟
+
+田岛老师的售后堪比choco啊，都是猛猛画新图
+
