@@ -14,3 +14,13 @@
 
 <img src="https://p.sda1.dev/26/4541566b227a7d2bb2914ad7fb2310cd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1709#       发表于 2025-8-17 00:32
+
+又是北京ido，羡慕
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
