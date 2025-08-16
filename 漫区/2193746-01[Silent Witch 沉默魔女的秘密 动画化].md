@@ -119,3 +119,21 @@
 
 二王子是属于追妻火葬场。。。。。外章终章才上赛道怎么救。。。。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 157#       发表于 2025-8-16 22:51
+
+ 本帖最后由 cxj649 于 2025-8-16 22:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274705&amp;ptid=2193746" target="_blank">arisato 发表于 2025-8-16 17:45</a>
+
+动画组是不是混进了二王子派的人虽然输了最终CP但动画里互动戏份都认真刻画了，一本满足
+
+剧情过得飞快的话 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所谓最终CP就算了，即使外传结局也是三人行
+
+下面是外传最后的一段
+
+アイザックはニヤリと笑い、右手でモニカ、左手でシリルの手をとって、軽やかにステップを踏んだ。
+
