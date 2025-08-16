@@ -603,3 +603,16 @@ K2和Qwen3-Coder吧</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 60#       发表于 2025-8-16 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68275406&amp;ptid=2259291" target="_blank">diohanmilton 发表于 2025-8-16 20:26</a>
+
+开源的是r1，v3又不开源。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+ds V3哪不开源了
+
