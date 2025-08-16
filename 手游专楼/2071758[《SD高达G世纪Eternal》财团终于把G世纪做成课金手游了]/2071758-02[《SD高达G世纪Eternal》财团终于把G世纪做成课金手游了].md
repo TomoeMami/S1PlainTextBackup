@@ -2617,3 +2617,14 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2495#       发表于 2025-8-17 05:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68275171&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-8-16 19:36</a>
+
+那个尊者很好对付的，你拿明镜减伤那个武器先打他，好像是减伤50%还是多少，之后尊者打人就是挠痒痒了… ...</blockquote>
+威力大的武器只有2射程在3格位置打比较好
+
