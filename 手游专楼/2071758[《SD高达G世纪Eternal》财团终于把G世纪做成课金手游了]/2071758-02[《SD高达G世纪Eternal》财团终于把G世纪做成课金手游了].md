@@ -2577,3 +2577,16 @@ ex隐藏还是要二队的，还有小兵增援
 
 希望14不会太麻烦拿不到拉克丝
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2492#       发表于 2025-8-16 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274488&amp;ptid=2071758" target="_blank">blue321 发表于 2025-8-16 16:43</a>
+
+慢慢爬塔终于打到13层了
+
+开始被上面大哥的回血BUFF带歪了思路想硬抗恶魔高达的地图炮慢慢处理上路，结果失 ...</blockquote>
+第一回合能秒尊者和恶魔就不用带盾，下面MAP多点一回合过也是可以的
+
