@@ -2314,3 +2314,12 @@ mygo时也写是新作剧场版，不过当时公布也写上是总集篇了时
 
        [https://x.com/bang_dream_info/status/1956272178057634257](https://x.com/bang_dream_info/status/1956272178057634257)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41175#       发表于 2025-8-16 10:49
+
+       <strong>NewType / 2025-03</strong> <blockquote>Animedia 2025-04 杂志 高尾奏音访谈全文+翻译+批注</blockquote>
+       [https://weibo.com/ttarticle/p/show?id=2309405198892018303127](https://weibo.com/ttarticle/p/show?id=2309405198892018303127)
+
