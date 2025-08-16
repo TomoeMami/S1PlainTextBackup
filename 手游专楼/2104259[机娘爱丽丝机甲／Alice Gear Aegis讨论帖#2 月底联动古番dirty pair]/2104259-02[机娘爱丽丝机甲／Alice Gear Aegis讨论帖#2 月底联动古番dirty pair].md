@@ -64,3 +64,16 @@
 
 新调查2真的是烦，逼你买月卡。说好的养老休闲游戏呢？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1610#         楼主| 发表于 2025-8-16 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68276210&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-8-16 22:36</a>
+
+新调查2真的是烦，逼你买月卡。说好的养老休闲游戏呢？</blockquote>
+你不买月卡就只能悠闲了啊，打2个首领点背包就满了，不砸电池就只能休息<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计其他措施远不如这调查V2对月卡促销效果大<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
