@@ -61,3 +61,14 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 我想问问有的npc有绿点，但是跑到跟前对话只亮一下就暗了，怎么都互动不上是为啥？ ...</blockquote>
 接了任务未完成。揭示板旁的女NPC我也试过这情况。接了炮塔任务在完成前就无法跟她再互动。
 
+
+*****
+
+####  落花微塵  
+##### 4253#       发表于 2025-8-16 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68273310&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-8-16 11:13</a>
+接了任务未完成。揭示板旁的女NPC我也试过这情况。接了炮塔任务在完成前就无法跟她再互动。 ...</blockquote>
+好的！
+我以为交互有问题卡住了呢。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
