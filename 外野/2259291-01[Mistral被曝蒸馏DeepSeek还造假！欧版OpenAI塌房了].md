@@ -624,3 +624,35 @@ ds V3哪不开源了
 
 老欧洲隔两年写个法律罚谷歌/微软/苹果/其他头部IT企业三五十亿打打牙祭就好了，搞什么自己的IT啊洗洗睡吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qqks  
+##### 62#       发表于 2025-8-16 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68270159&amp;ptid=2259291" target="_blank">ppntint 发表于 2025-8-15 15:34</a>
+
+现在国内AI编程写代码最强的是哪家？</blockquote>
+glm4.5,用过的都说好
+
+*****
+
+####  Azcarlo  
+##### 63#       发表于 2025-8-16 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68275406&amp;ptid=2259291" target="_blank">diohanmilton 发表于 2025-8-16 20:26</a>
+
+开源的是r1，v3又不开源。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/16/211402znn6s8oztp69im8n.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-08-16_21-12-51.png</strong> (804.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-16 21:14 上传
+
+你在说神魔？
+
