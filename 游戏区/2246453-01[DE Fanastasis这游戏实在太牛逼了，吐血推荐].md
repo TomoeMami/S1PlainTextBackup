@@ -589,3 +589,24 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 奇怪我地图没探完就开了牢狱之间的门，结果杀了个人就进BE了，还有其他结局吗
 
+
+*****
+
+####  blackll7  
+##### 466#       发表于 2025-8-16 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68276205&amp;ptid=2246453" target="_blank">m1grandmk1 发表于 2025-8-16 22:35</a>
+
+没中文啊，友情路过</blockquote>
+你在S1搜一下，有坛友汉化版
+
+*****
+
+####  blackll7  
+##### 467#       发表于 2025-8-17 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68276234&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-16 22:40</a>
+
+奇怪我地图没探完就开了牢狱之间的门，结果杀了个人就进BE了，还有其他结局吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不剧透的话，你需要继续努力探地图搞清楚究竟发生了什么，然后根据线索进行第二个仪式。
+
