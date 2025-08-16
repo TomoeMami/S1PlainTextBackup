@@ -108,3 +108,11 @@
 
 —— 来自 vivo V2217A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  冰风血羽  
+##### 1613#       发表于 2025-8-17 03:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我历经千辛万苦只有AN宁里，已经不敢再下池子捞原版了
+
