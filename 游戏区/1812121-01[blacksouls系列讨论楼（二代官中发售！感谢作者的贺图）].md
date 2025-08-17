@@ -1014,3 +1014,23 @@ steamdeck能玩吗</blockquote>
 
 发行商网站上切换中文下载就是中文版对应的补丁了
 
+
+*****
+
+####  医生狼多  
+##### 95#       发表于 2025-8-17 20:54
+
+二代steam页面也上了
+
+*****
+
+####  梦窗  
+##### 96#       发表于 2025-8-17 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279404&amp;ptid=1812121" target="_blank">北条早苗 发表于 2025-8-17 19:33</a>
+
+发行商网站上切换中文下载就是中文版对应的补丁了</blockquote>
+感谢，原来是因为之前挂着代理导致强制跳转回jp站点，我还以为暂时没做其他语言的。
+
+那就剩个字体问题了，实在不会改。
+
