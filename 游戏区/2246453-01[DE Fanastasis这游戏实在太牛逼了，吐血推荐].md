@@ -651,3 +651,14 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 卡关了，我现在魔女雪原进不去，伏龙殿进不去，魔法学院的校长室进不去左边的路也封着，魔界门也进不去。这么多图都探吐了也没啥发现，求指导<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 472#       发表于 2025-8-17 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279063&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-17 17:59</a>
+
+卡关了，我现在魔女雪原进不去，伏龙殿进不去，魔法学院的校长室进不去左边的路也封着，魔界门也进不去。连 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说的这些都是后半程的地图，你得先完成前半主线去魔界才能解锁后面这些地图，虽然说路线有两条。
+

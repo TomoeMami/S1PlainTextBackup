@@ -28,3 +28,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cs0111  
+##### 94#       发表于 2025-8-17 18:16
+
+<blockquote>equilibrium 发表于 2025-8-5 23:57
+纯粹的好玩，充满细节
+
+热度相比起游戏品质来说太低了</blockquote>
+crpg在国内本来也不算很大众的品类吧
+
