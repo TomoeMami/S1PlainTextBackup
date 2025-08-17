@@ -672,3 +672,13 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blackll7  
+##### 48#       发表于 2025-8-17 19:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太难了，我血压直线上升
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
