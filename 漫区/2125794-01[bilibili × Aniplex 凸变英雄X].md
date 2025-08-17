@@ -226,3 +226,13 @@ X的话36年登顶，现在是登顶6年连续3届
 
 所有内幕全盖住了，联合会那么有能耐吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  涟漪魔法师  
+##### 459#       发表于 2025-8-17 11:02
+
+憋了8集终于收束了，非常爽的一集，特别是女王出来的时候
+
+但从12集结尾来看，女王和青完全是从车上瞬移了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
