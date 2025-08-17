@@ -92,3 +92,14 @@ kr还是抠门，就3个卡面异画，直接送不行还搞3选1
 
 说是明天进商店，我看要卖多少钻
 
+
+*****
+
+####  希米露  
+##### 650#       发表于 2025-8-18 00:56
+
+据说是没能成为赠送的两个打包卖的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+cy打得真是好算盘
+
+—— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
