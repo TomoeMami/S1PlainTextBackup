@@ -1145,3 +1145,91 @@
 
 这次泳装对暴击队倒是极大补强，lip三技能和水提都能提供高额暴击，搭配锁卡打法，可以用平A跳过宝具了...
 
+
+*****
+
+####  壳壳牛  
+##### 17861#       发表于 2025-8-17 17:18
+
+360石1宝...雏鹤又满了...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  angelooo  
+##### 17862#       发表于 2025-8-17 17:18
+
+卡面赢太多了
+
+三破正脸已经是最拉的一张了但比本体三破那个被面甲整得和蛇精似的强太多了
+
+满破我瞎了，我只看到了大雷
+
+*****
+
+####  exiaexa  
+##### 17863#       发表于 2025-8-17 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278891&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-17 17:17</a>
+
+充能加攻这种事多核队的打手也做得到，水提亚不开宝具的话勉强算群体50充（20缓充）20蓝绿魔放20攻击50暴 ...</blockquote>
+这卡就差把“我是为冠位战生的”写在脸上了
+
+毕竟冠位战多开个宝具好过多打1t
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17864#       发表于 2025-8-17 17:20
+
+ 本帖最后由 qixinno2 于 2025-8-17 17:21 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">一发十连出了提妈 非洲人终于欧了 然而没鹤小姐 第二发十连毛都没出 没石头了 GG
+
+<img src="https://img.stage1st.com/forum/202508/17/172042fseathmzqqea2qte.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (420.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-17 17:20 上传
+
+*****
+
+####  khxooo  
+##### 17865#       发表于 2025-8-17 17:21
+
+270石头1宝提妈+2宝鹤，可以了，剩下30个付费石头每天单抽用了吧。整个10周年送的石头+自己氪的两单，包括福袋收获的5星分别是5宝所长+1宝果子龙+1宝学姐+1宝剑R+1宝梅贞+1宝水摩根+1宝青子+1宝提妈，算是不错了。
+
+*****
+
+####  Kirihara  
+##### 17866#       发表于 2025-8-17 17:21
+
+这给提妈的数据要不要这么扣，宝具把伤害扣掉了，群冲把30np扣掉了，5202年还能有这样的卡也是神奇<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 17867#       发表于 2025-8-17 17:22
+
+<blockquote>exiaexa 发表于 2025-8-17 17:18
+这卡就差把“我是为冠位战生的”写在脸上了
+
+毕竟冠位战多开个宝具好过多打1t
+
+ ...</blockquote>
+EX冠位战结束之后还要经历9月骑阶和10月杀阶，才能轮到11月的弓阶，现在抽了也算是长线投资...就是不晓得这两个月会不会再给弓阶补强...
+
+*****
+
+####  qixinno2  
+##### 17868#       发表于 2025-8-17 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278915&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-17 17:21</a>
+
+270石头1宝提妈+2宝鹤，可以了，剩下30个付费石头每天单抽用了吧。整个10周年送的石头+自己氪的两单，包括 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">太欧了 比我多了五个五星
+

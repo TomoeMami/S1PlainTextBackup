@@ -639,3 +639,13 @@ steam上了，被弧线弹打得死去活来
 
 我找了直播云了下，好丧心病狂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月光乱舞  
+##### 45#       发表于 2025-8-17 17:21
+
+steam上所有东方正作也全线打折了，这还是第一次吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
