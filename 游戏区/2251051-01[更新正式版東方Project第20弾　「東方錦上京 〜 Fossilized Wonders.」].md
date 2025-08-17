@@ -750,3 +750,17 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 不过游戏光盘当时去旅游的时候有收几片收藏
 
+
+*****
+
+####  isa2456  
+##### 55#       发表于 2025-8-18 03:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68280828&amp;ptid=2251051" target="_blank">希望之花 发表于 2025-8-18 00:54</a>
+东方正作我丢愿望单里十多年了这还真是第一次打折
+
+不过游戏光盘当时去旅游的时候有收几片收藏 ...</blockquote>
+可能老酒鬼会用steam了知道怎么调打折<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正作碟挺好买的，我朋友以前在机场附近都能看到有全正作碟卖
+
+—— 来自 Xiaomi 2405CPX3DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
