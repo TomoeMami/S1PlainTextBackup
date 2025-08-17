@@ -121,3 +121,16 @@
 
 小歌这首歌都唱了10年了啊……如果今年真是偶像题材这里该有新歌才对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 1237#       发表于 2025-8-17 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278227&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-8-17 13:51</a>
+
+梅洛伦和当年的5时期牛奶一样了 沦落为推进主线不讨喜的工具人惹
+
+不过它们两妖精形态都挺像 但问题是牛奶好 ...</blockquote>
+刚出场那会儿就特别有牛奶既视感，但牛奶入队之后直接人格改造变成全队最靠谱的常识人，反观地雷妹入队之后害兽程度有增无减<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是不是要等到揭露她支付的代价才开始人格改造啊
+
