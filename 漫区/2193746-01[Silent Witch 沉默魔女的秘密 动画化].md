@@ -215,3 +215,36 @@
 以下剧透内容。
 因为时间有点久，可能记错了，二王子是知道莫妮卡=沉默魔女的？打沃冈黑龙的时候看到，还是只看到背影没看到脸来着<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">后半段同意，甚至于他主场夜游那章我都觉得还有点机会的，但凡用点心认真点就拿下了（
 
+
+*****
+
+####  cxj649  
+##### 165#       发表于 2025-8-17 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279947&amp;ptid=2193746" target="_blank">melody18 发表于 2025-8-17 21:38</a>
+
+以下内容涉及剧透。请选择观看</blockquote>
+只能说是所谓作者的大手
+
+金毛是知道松鼠的父姓的，就是说他知道莫妮卡曾经是莫妮卡·雷因，但不知道松鼠是莫妮卡·埃瓦雷特这奇葩情况，要说的话莫妮卡一些信息是公开的233
+
+至于白毛一直很寸止，外传终章结局也是比较奇怪了233
+
+
+*****
+
+####  cxj649  
+##### 166#       发表于 2025-8-17 22:42
+
+ 本帖最后由 cxj649 于 2025-8-17 22:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68280125&amp;ptid=2193746" target="_blank">arisato 发表于 2025-8-17 22:11</a>
+
+我几年前读过原作web版，但外传因为不是我推的cp就没看下去了
+
+以下剧透内容。
+
+因为时间有点久，可能记错 ...</blockquote>
+是比较奇葩的下意识信息错位，前面我说了学生会都或多或少知道或者猜到松鼠目的，但都是下意识止步认证身份了233
+
+二王子知道莫妮卡曾经是莫妮卡·雷因，但不知道或者说拒绝知道松鼠是莫妮卡·埃瓦雷特
+
