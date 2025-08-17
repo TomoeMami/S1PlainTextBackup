@@ -179,3 +179,11 @@
 二王子是属于追妻火葬场。。。。。外章终章才上赛道怎么救。。。。</blockquote>
 我感觉也不算追妻火葬场吧？我理解的追妻火葬场是前期女生主动或者好感，但男方对女生爱搭不理，后来喜欢上了又去追。但二王子明显一开始就太过献殷勤，都被动画观众骂油腻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是莫妮卡从头到尾对他没有一点想法（
 
+
+*****
+
+####  稀勢のささ  
+##### 162#       发表于 2025-8-17 21:32
+
+一堆角色名字真的没啥印象<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面王子想跟白毛聊天XX想见XX都只能靠猜谁是谁
+
