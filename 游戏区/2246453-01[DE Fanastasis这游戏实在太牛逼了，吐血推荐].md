@@ -618,3 +618,15 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 马基堡学校左边隐藏通道上去的精英怪太难打了，我打了有十次换了丽莎才过<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hootao  
+##### 469#       发表于 2025-8-17 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68277826&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-17 12:02</a>
+马基堡学校左边隐藏通道上去的精英怪太难打了，我打了有十次换了丽莎才过 ...</blockquote>
+我也不太懂这BOSS的机制，似乎召唤出来的球概率攻击无效，也是用匕首妹和长矛妹多段破防才过的
+
+—— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
