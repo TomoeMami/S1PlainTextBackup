@@ -1042,3 +1042,18 @@ steamdeck能玩吗</blockquote>
 
 谢谢茄子也快是个时代眼泪的梗了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiiTiiLL  
+##### 98#       发表于 2025-8-17 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279037&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-17 17:52</a>
+
+这游戏通关多久，需要看攻略么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+其实不用全收集自己玩就可以了，最优体验应该是一周目瞎玩，二周目开始看攻略控sen见小红帽g结局，三周目刷混沌迷宫去dlc3，虽然刷完也不一定打得过dlc3的数值
+
+这作流程挺长的，正常游玩全剧情通过得40小时吧，不知道steam版包不包括3个dlc
+
