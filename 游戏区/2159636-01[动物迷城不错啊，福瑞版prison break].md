@@ -66,3 +66,14 @@ crpg在国内本来也不算很大众的品类吧
 当然黑豹线专门打架，斗破铁穹也很爽。</blockquote>
 要是能把恶魔线说的过去下沉到地底的城堡做成新地图就爽了
 
+
+*****
+
+####  king520kyo  
+##### 97#       发表于 2025-8-17 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279280&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-8-17 19:02</a>
+
+灰猫铁要干扰邪教三人组的，不过我有点好奇他要塞什么理由21天越狱</blockquote>
+感觉就不用越狱，监狱地下的大门和恶魔线的古代城堡都没提，估计灰猫线目的就是搞定邪神。灰猫这边能直接让别人遗忘的，搞定直接走就行了。
+
