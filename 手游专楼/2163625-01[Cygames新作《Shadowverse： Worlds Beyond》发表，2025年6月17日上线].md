@@ -48,3 +48,12 @@ kr还是抠门，就3个卡面异画，直接送不行还搞3选1
 
 能设计出让八成玩家不满意的活动的策划实在是太强了，我都不知道之后看到对面法师掏出久远版智慧之光会是什么心情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnhappyTails  
+##### 645#       发表于 2025-8-17 20:41
+
+然而日推还是在亚撒西，有时候真的觉得日本的游戏生意太好做了
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
