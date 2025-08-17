@@ -251,3 +251,11 @@ X的话36年登顶，现在是登顶6年连续3届
 
 这片尾FOMO和DOS老板盯着一个小强，是暗示小强移动到DOS？
 
+
+*****
+
+####  走来走去  
+##### 461#       发表于 2025-8-17 18:03
+
+没想到不但跟女王篇连上，跟第一集也连上了。中间几集真不太好看<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

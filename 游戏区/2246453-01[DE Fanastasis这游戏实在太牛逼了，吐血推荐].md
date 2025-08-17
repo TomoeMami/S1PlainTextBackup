@@ -643,3 +643,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 —— 来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机制很简单啊，就是挡固定次数攻击的屏障，找个高速人破了便是。然后就是魔防贼高物防低，用物理打。
 
+
+*****
+
+####  k1no  
+##### 471#       发表于 2025-8-17 17:59
+
+卡关了，我现在魔女雪原进不去，伏龙殿进不去，魔法学院的校长室进不去左边的路也封着，魔界门也进不去。这么多图都探吐了也没啥发现，求指导<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
