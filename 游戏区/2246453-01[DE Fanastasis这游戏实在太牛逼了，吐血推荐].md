@@ -610,3 +610,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 奇怪我地图没探完就开了牢狱之间的门，结果杀了个人就进BE了，还有其他结局吗 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不剧透的话，你需要继续努力探地图搞清楚究竟发生了什么，然后根据线索进行第二个仪式。
 
+
+*****
+
+####  k1no  
+##### 468#       发表于 2025-8-17 12:02
+
+马基堡学校左边隐藏通道上去的精英怪太难打了，我打了有十次换了丽莎才过<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
