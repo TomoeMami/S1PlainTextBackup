@@ -236,3 +236,18 @@ X的话36年登顶，现在是登顶6年连续3届
 
 但从12集结尾来看，女王和青完全是从车上瞬移了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 460#       发表于 2025-8-17 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68277573&amp;ptid=2125794" target="_blank">涟漪魔法师 发表于 2025-8-17 11:02</a>
+
+憋了8集终于收束了，非常爽的一集，特别是女王出来的时候
+
+但从12集结尾来看，女王和青完全是从车上瞬移了 ...</blockquote>
+领域内制定规则，区区瞬移不在话下
+
+这片尾FOMO和DOS老板盯着一个小强，是暗示小强移动到DOS？
+
