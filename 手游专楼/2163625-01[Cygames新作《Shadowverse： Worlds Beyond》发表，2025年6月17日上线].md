@@ -65,3 +65,20 @@ kr还是抠门，就3个卡面异画，直接送不行还搞3选1
 
 国际服这个yyr赢了真的有点太变态了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希米露  
+##### 647#       发表于 2025-8-17 21:47
+
+国际服这个yyr赢了实在是有点恶熏了<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  saitohimea  
+##### 648#       发表于 2025-8-17 21:48
+
+草，国际服为什么是YYR<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
