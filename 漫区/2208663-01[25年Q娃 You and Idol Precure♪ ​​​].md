@@ -111,3 +111,13 @@
 
 2025-8-17 15:29 上传
 
+
+*****
+
+####  leleq  
+##### 1236#       发表于 2025-8-17 16:15
+
+本集作画制作直接顶级了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+小歌这首歌都唱了10年了啊……如果今年真是偶像题材这里该有新歌才对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
