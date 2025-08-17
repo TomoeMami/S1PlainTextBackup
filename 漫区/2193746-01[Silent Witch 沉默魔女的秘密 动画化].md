@@ -187,3 +187,17 @@
 
 一堆角色名字真的没啥印象<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面王子想跟白毛聊天XX想见XX都只能靠猜谁是谁
 
+
+*****
+
+####  melody18  
+##### 163#       发表于 2025-8-17 21:38
+
+ 本帖最后由 melody18 于 2025-8-17 21:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278732&amp;ptid=2193746" target="_blank">arisato 发表于 2025-8-17 16:27</a>
+
+我感觉也不算追妻火葬场吧？我理解的追妻火葬场是前期女生主动或者好感，但男方对女生爱搭不理，后来喜欢 ...</blockquote>
+以下内容涉及剧透。请选择观看
+
+莫妮卡的父亲算被二王子牵连而死，但二王子在她父亲死后一直没有关心/找过莫妮卡。至于为什么说追妻火葬场，是因为二王子是个隐藏的沉默魔女激推。他对莫妮卡是玩的态度，但又激推沉默魔女（x 导致我觉得这也算追妻火葬场的一种。但凡他有关心过莫妮卡，冰男根本上不了位有没有。
+
