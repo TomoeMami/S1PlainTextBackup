@@ -41,3 +41,13 @@
 
 从政治正确的角度来看，近几年最佳是派对，圣母发作会吃瘪，坏人就算认错，也要坐牢偿还罪恶。不过日常剧情进一步低幼化，可惜了拓海的塑造。
 
+
+*****
+
+####  jaewoongh_  
+##### 1230#       发表于 2025-8-17 08:57
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/018.png" referrerpolicy="no-referrer">狗是不会说话的啦（
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">梅洛伦又要公式开爆了，我只有姐姐大人了……
+
