@@ -692,3 +692,11 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 — from Xiaomi 2410DPN6CC, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  莉可厨  
+##### 50#       发表于 2025-8-17 21:11
+
+混N还是蛮ez的，月亮机太棍了
+

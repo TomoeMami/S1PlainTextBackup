@@ -149,3 +149,13 @@
 
 我的建议是等Meroron支付的代价揭露后再说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1239#       发表于 2025-8-17 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279198&amp;ptid=2208663" target="_blank">梦诗歌雪 发表于 2025-8-17 18:38</a>
+刚出场那会儿就特别有牛奶既视感，但牛奶入队之后直接人格改造变成全队最靠谱的常识人，反观地雷妹入队之 ...</blockquote>
+预告30集就填这坑了 梅洛伦估计也要变怪一次
+
