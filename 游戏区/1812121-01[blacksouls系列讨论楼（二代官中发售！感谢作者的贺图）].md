@@ -1065,3 +1065,13 @@ steamdeck能玩吗</blockquote>
 
 这系列的分歧点早不早，能不能像魂那样某个点存个档看结局的？
 
+
+*****
+
+####  红魔馆的糖  
+##### 100#       发表于 2025-8-18 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68280516&amp;ptid=1812121" target="_blank">TiiTiiLL 发表于 2025-8-17 23:38</a>
+其实不用全收集自己玩就可以了，最优体验应该是一周目瞎玩，二周目开始看攻略控sen见小红帽g结局，三周目 ...</blockquote>
+上的是1，2还没上<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
