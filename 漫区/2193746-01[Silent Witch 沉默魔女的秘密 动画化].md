@@ -153,3 +153,19 @@
 
 也不是个个女性向结局都是三人行的(ry 。沉默魔女是除去CP 描写其他都各方面在线的。我自己本身也不满意CP 结局，之前在砖楼好像也有人讨论过，原本是二王子线的浪子回头金不换，但中途改成男二。CP 走男二线也不是不行，毕竟外传一开始连精灵都有了，各方面都很相称，但不知道为啥外传终章要扶二王子上赛道是什么鬼<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">另外安利一下，隔壁很冷，慢热的，CP 正常的炼金术，死にやすい公爵令嬢と七人の貴公。起码本传完结撒花。
 
+
+*****
+
+####  cxj649  
+##### 160#       发表于 2025-8-17 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68277872&amp;ptid=2193746" target="_blank">melody18 发表于 2025-8-17 12:13</a>
+
+也不是个个女性向结局都是三人行的(ry 。沉默魔女是除去CP 描写其他都各方面在线的。我自己本身也不满意CP  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">所以我说有点像推子的夸帽感觉
+
+二王子线一直是主线，但白毛冰男虽然一直发挂但仔细想想他和主线一直没啥关系
+外传又猎奇的是二王子都住进女主家了，而女主又和白毛男二双向暗恋
+
+奇怪的很
+
