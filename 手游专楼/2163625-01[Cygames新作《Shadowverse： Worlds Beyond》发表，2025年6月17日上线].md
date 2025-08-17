@@ -57,3 +57,11 @@ kr还是抠门，就3个卡面异画，直接送不行还搞3选1
 然而日推还是在亚撒西，有时候真的觉得日本的游戏生意太好做了
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a1370303  
+##### 646#       发表于 2025-8-17 21:22
+
+国际服这个yyr赢了真的有点太变态了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

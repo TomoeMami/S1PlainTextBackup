@@ -1157,7 +1157,7 @@
     "newtitle": "[塔防手游无期迷途8月11日公测]",
     "lastedit": 1755177616,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2015087": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 185264,
+    "totalreply": 185265,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755436574,
+    "lastedit": 1755436809,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 182963,
+    "totalreply": 182969,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755436574,
+    "lastedit": 1755437168,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 6038,
+    "totalreply": 6040,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1755436460,
+    "lastedit": 1755436811,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11511,10 +11511,10 @@
     "update": false
   },
   "2252904": {
-    "totalreply": 948,
+    "totalreply": 949,
     "title": "[江苏省城市足球联赛—苏超联赛专楼]",
     "newtitle": "[江苏省城市足球联赛—苏超联赛专楼]",
-    "lastedit": 1755436689,
+    "lastedit": 1755437055,
     "category": "外野",
     "active": true,
     "update": false
@@ -11565,10 +11565,10 @@
     "update": false
   },
   "2163625": {
-    "totalreply": 645,
+    "totalreply": 646,
     "title": "[Cygames新作《Shadowverse： Worlds Beyond》发表，2025年6月17日上线]",
     "newtitle": "[Cygames新作影之诗：超凡世界／Shadowverse： Worlds Beyond，2025年6月17日已上线]",
-    "lastedit": 1755434769,
+    "lastedit": 1755437169,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11754,10 +11754,10 @@
     "update": false
   },
   "2187541": {
-    "totalreply": 146,
+    "totalreply": 147,
     "title": "[原创TV动画『公主的管弦乐团 ／ Princess Session Orchestra』2025年]",
     "newtitle": "[原创TV动画『公主的管弦乐团 ／ Princess Session Orchestra』2025年]",
-    "lastedit": 1755284168,
+    "lastedit": 1755437169,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16011,10 +16011,10 @@
     "update": false
   },
   "2259186": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[【树洞】最近精神压力很大，是不是该放手]",
     "newtitle": "[【树洞】最近精神压力很大，是不是该放手]",
-    "lastedit": 1755245416,
+    "lastedit": 1755437055,
     "category": "外野",
     "active": true,
     "update": false
@@ -16533,10 +16533,10 @@
     "update": false
   },
   "2259381": {
-    "totalreply": 269,
+    "totalreply": 271,
     "title": "[传闻 古剑奇谭四明日首爆PV]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1755435853,
+    "lastedit": 1755437055,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16740,10 +16740,10 @@
     "update": false
   },
   "2259461": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[当初发明拼音的时候，为什么没有用v这个字形？]",
     "newtitle": "[当初发明拼音的时候，为什么没有用v这个字形？]",
-    "lastedit": 1755436460,
+    "lastedit": 1755437051,
     "category": "外野",
     "active": true,
     "update": false
@@ -16763,6 +16763,15 @@
     "newtitle": "[WITCH WATCH TV动画化 2025年4月]",
     "lastedit": 1755435983,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252655": {
+    "totalreply": 64,
+    "title": "[时隔五年终于开始玩2077]",
+    "newtitle": "[时隔五年终于开始玩2077]",
+    "lastedit": 1755437056,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
