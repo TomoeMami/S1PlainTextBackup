@@ -972,3 +972,15 @@ dlc更新需要重新拖一遍本体么..看了一下下载只有一个完整的
 
 steamdeck能玩吗
 
+
+*****
+
+####  Tissuesea  
+##### 91#       发表于 2025-8-17 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278843&amp;ptid=1812121" target="_blank">食粪者 发表于 2025-8-17 17:03</a>
+steamdeck能玩吗</blockquote>
+这肯定能啊，RPGMAKER的东西，我也就在玩勇者大战魔物娘RPG时开头加载比较慢
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

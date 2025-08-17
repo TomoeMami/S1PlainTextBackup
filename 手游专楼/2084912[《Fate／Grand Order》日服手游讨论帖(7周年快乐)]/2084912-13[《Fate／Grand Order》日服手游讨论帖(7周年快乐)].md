@@ -1068,3 +1068,80 @@
 
 剩下的等提妈
 
+
+*****
+
+####  高木なつめ  
+##### 17854#       发表于 2025-8-17 00:25
+
+无奈，吃两颗彩苹果刷狗粮吧
+
+*****
+
+####  exiaexa  
+##### 17855#       发表于 2025-8-17 17:06
+
+ 本帖最后由 exiaexa 于 2025-8-17 17:10 编辑 
+
+提妈这三破脸给我整笑了
+
+技能倒是挺适合拐的，看幅度了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+草，1技能给的也太抠了，逼着你开宝具是吧
+
+那你倒是给个伤害宝具啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 17856#       发表于 2025-8-17 17:10
+
+<blockquote>quanlix 发表于 2025-8-16 00:49
+现在开的两池都是双红和双蓝，礼拜日的池子怕不是双绿
+
+—— 来自 S1Fun</blockquote>
+预言失败，雏鹤蓝光炮，水提亚绿辅助，和七周年一样是一绿二红三蓝的宝具配置。
+
+*****
+
+####  希望之花  
+##### 17857#       发表于 2025-8-17 17:14
+
+海洋……是万物的母亲
+
+*****
+
+####  jackyhuang  
+##### 17858#       发表于 2025-8-17 17:14
+
+提妈解决了弓冠位战没拐的问题<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  exiaexa  
+##### 17859#       发表于 2025-8-17 17:16
+
+不得不说今年这个泳装太抽象了
+
+弓冠位我直接拉个提妈去蹭别人的打手好了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 17860#       发表于 2025-8-17 17:17
+
+<blockquote>exiaexa 发表于 2025-8-17 17:06
+提妈这三破脸给我整笑了
+
+技能倒是挺适合拐的，看幅度了
+
+</blockquote>
+充能加攻这种事多核队的打手也做得到，水提亚不开宝具的话勉强算群体50充（20缓充）20蓝绿魔放20攻击50暴击和2OC宝具，开宝具的话就是蓝绿魔放变70、暴击变150（默认3OC），感觉还可以，虽然说垫个无伤宝具有点麻烦...
+
+这次泳装对暴击队倒是极大补强，lip三技能和水提都能提供高额暴击，搭配锁卡打法，可以用平A跳过宝具了...
+

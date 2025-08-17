@@ -14,3 +14,17 @@
 
 有没有好点的攻略推荐
 
+
+*****
+
+####  C男人  
+##### 93#       发表于 2025-8-17 17:13
+
+狐狸线不战斗也能通关，这种攻略自由度很彰显游戏水平，
+
+当然黑豹线专门打架，斗破铁穹也很爽。
+
+将来的灰猫线会变成SCP故事吗？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

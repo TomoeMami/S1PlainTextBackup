@@ -621,3 +621,21 @@ boss反白
 
 steam上了，被弧线弹打得死去活来
 
+
+*****
+
+####  江戸前ルナ  
+##### 43#       发表于 2025-8-17 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278088&amp;ptid=2251051" target="_blank">没取名啊 发表于 2025-8-17 13:00</a>
+
+裸足好多啊，zun的新性癖吗</blockquote>
+辉针城不是别称裸足城了吗<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 44#       发表于 2025-8-17 17:05
+
+我找了直播云了下，好丧心病狂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
