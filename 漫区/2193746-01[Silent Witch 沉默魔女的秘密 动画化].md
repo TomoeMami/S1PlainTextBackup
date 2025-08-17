@@ -201,3 +201,17 @@
 
 莫妮卡的父亲算被二王子牵连而死，但二王子在她父亲死后一直没有关心/找过莫妮卡。至于为什么说追妻火葬场，是因为二王子是个隐藏的沉默魔女激推。他对莫妮卡是玩的态度，但又激推沉默魔女（x 导致我觉得这也算追妻火葬场的一种。但凡他有关心过莫妮卡，冰男根本上不了位有没有。
 
+
+*****
+
+####  arisato  
+##### 164#       发表于 2025-8-17 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279947&amp;ptid=2193746" target="_blank">melody18 发表于 2025-8-17 21:38</a>
+
+以下内容涉及剧透。请选择观看</blockquote>
+我几年前读过原作web版，但外传因为不是我推的cp就没看下去了
+
+以下剧透内容。
+因为时间有点久，可能记错了，二王子是知道莫妮卡=沉默魔女的？打沃冈黑龙的时候看到，还是只看到背影没看到脸来着<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">后半段同意，甚至于他主场夜游那章我都觉得还有点机会的，但凡用点心认真点就拿下了（
+
