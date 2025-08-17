@@ -649,3 +649,16 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  orangee  
+##### 46#       发表于 2025-8-17 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68278918&amp;ptid=2251051" target="_blank">月光乱舞 发表于 2025-8-17 17:21</a>
+
+steam上所有东方正作也全线打折了，这还是第一次吧
+
+—— 来自 S1Fun</blockquote>
+属于活久见了……
+

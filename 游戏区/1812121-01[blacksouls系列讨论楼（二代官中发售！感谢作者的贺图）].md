@@ -994,3 +994,15 @@ steamdeck能玩吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  红魔馆的糖  
+##### 93#       发表于 2025-8-17 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279037&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-17 17:52</a>
+这游戏通关多久，需要看攻略么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不到10小时，最好是看一下，本质类魂，会有一些会错过的东西。贴吧有攻略文档
+
