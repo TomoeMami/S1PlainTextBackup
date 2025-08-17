@@ -630,3 +630,16 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 —— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blackll7  
+##### 470#       发表于 2025-8-17 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68277969&amp;ptid=2246453" target="_blank">hootao 发表于 2025-8-17 12:32</a>
+
+我也不太懂这BOSS的机制，似乎召唤出来的球概率攻击无效，也是用匕首妹和长矛妹多段破防才过的
+
+—— 来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机制很简单啊，就是挡固定次数攻击的屏障，找个高速人破了便是。然后就是魔防贼高物防低，用物理打。
+
