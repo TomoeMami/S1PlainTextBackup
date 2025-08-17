@@ -682,3 +682,13 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  astrayveller  
+##### 49#       发表于 2025-8-17 19:49
+
+嘶 难度好高
+
+— from Xiaomi 2410DPN6CC, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
