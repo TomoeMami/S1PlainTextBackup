@@ -1075,3 +1075,11 @@ steamdeck能玩吗</blockquote>
 其实不用全收集自己玩就可以了，最优体验应该是一周目瞎玩，二周目开始看攻略控sen见小红帽g结局，三周目 ...</blockquote>
 上的是1，2还没上<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 101#       发表于 2025-8-18 01:24
+
+玩2的话建议在网上玩盗版的，因为正版版权纠问题改了一大堆音乐，完全没有原来那种狂气的味道。steam版应该同步的是新版
+
