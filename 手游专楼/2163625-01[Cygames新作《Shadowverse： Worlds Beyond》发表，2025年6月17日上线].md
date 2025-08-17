@@ -82,3 +82,13 @@ kr还是抠门，就3个卡面异画，直接送不行还搞3选1
 
 草，国际服为什么是YYR<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 649#       发表于 2025-8-18 00:44
+
+哈哈，神人运营，yyr异画要说很丑也不至于，只是我更想要枷薇<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+说是明天进商店，我看要卖多少钻
+
