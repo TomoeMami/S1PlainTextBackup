@@ -764,3 +764,16 @@ steam上所有东方正作也全线打折了，这还是第一次吧
 
 —— 来自 Xiaomi 2405CPX3DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  isa2456  
+##### 56#       发表于 2025-8-18 03:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68280717&amp;ptid=2251051" target="_blank">kenqqex 发表于 2025-8-18 00:19</a>
+建议用全开秘笈(</blockquote>
+那还不如直接去thbwiki看结局得了
+我看了奖杯，16遍普通结局差分就算了，ex也有差分，所以ex面你也得打16遍，这个游戏玩到头你得打32遍<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我刷了一晚上e灵梦还差两个绿色没打，已经打的快吐了
+
+—— 来自 Xiaomi 2405CPX3DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
