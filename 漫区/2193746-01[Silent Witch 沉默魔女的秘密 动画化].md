@@ -256,3 +256,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">完全没觉得某人是败犬啊，二王子在原作占的篇幅算得上里主角，最后没挑明感觉只是作者喜欢这种暧昧氛围（和三人行）罢了
 
+
+*****
+
+####  melody18  
+##### 168#       发表于 2025-8-18 07:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68280125&amp;ptid=2193746" target="_blank">arisato 发表于 2025-8-17 22:11</a>
+
+我几年前读过原作web版，但外传因为不是我推的cp就没看下去了
+
+以下剧透内容。
+
+因为时间有点久，可能记错 ...</blockquote>
+没看到脸，只看到背影。就是动画第一集最后的状态。我自己也是因为炒CP 炒到退市所以弃了，然后外传终章又捡回来看了一眼<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
