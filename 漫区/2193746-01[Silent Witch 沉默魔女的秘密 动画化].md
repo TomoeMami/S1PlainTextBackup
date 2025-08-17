@@ -169,3 +169,13 @@
 
 奇怪的很
 
+
+*****
+
+####  arisato  
+##### 161#       发表于 2025-8-17 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68274846&amp;ptid=2193746" target="_blank">melody18 发表于 2025-8-16 18:19</a>
+二王子是属于追妻火葬场。。。。。外章终章才上赛道怎么救。。。。</blockquote>
+我感觉也不算追妻火葬场吧？我理解的追妻火葬场是前期女生主动或者好感，但男方对女生爱搭不理，后来喜欢上了又去追。但二王子明显一开始就太过献殷勤，都被动画观众骂油腻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是莫妮卡从头到尾对他没有一点想法（
+
