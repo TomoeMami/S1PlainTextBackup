@@ -1781,3 +1781,15 @@ T1和T3本来就要开打手宝具的
 同样，我游戏闪退了十几次，才勉强到第二轮，看看能不能慢慢一点将数据下完吧 ...</blockquote>
 我是每次都下完的，刚才也清过，没多大区别，不过最后总算打过去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 17917#       发表于 2025-8-19 00:57
+
+泳装这期加起来 1000石的成果是2宝lip 1宝克姐，克姐160抽才出<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+2宝水式 和 5宝美游，1宝水提妈 和2宝水鹤
+
+可以安心了
+
