@@ -224,3 +224,11 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 所有石头用完学姐终于追到2宝，小艾没石头了，只能赶紧挖羁绊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47384#       发表于 2025-8-18 15:52
+
+DB大概率是24号，我估计要奏章4后再抽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
