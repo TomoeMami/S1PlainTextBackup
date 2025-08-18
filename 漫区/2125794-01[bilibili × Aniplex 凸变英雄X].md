@@ -293,3 +293,11 @@ X的话36年登顶，现在是登顶6年连续3届
 萝莉不知道是怎么封口</blockquote>
 封口估计是拿姬友命换的
 
+
+*****
+
+####  Sacross  
+##### 465#       发表于 2025-8-18 15:06
+
+突然想起来奈斯是到林凌替身了才拿到的第十，完了人气用的宣发还是林凌做的，真不行啊这是<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
