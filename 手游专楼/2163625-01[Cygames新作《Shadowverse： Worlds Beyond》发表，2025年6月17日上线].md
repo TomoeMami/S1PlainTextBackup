@@ -207,3 +207,13 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 顺便我使用大量悬丝傀儡去对家投降是不是能做到不战而屈人之兵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格雷殿下  
+##### 661#       发表于 2025-8-18 13:21
+
+听说国服yyr进来PK的时候在挂机
+
+早知道还是卧底
+
