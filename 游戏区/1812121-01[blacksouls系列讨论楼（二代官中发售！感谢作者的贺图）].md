@@ -1092,3 +1092,16 @@ steamdeck能玩吗</blockquote>
 bs1可以通过存档一周目看完全结局，不过因为类似本家的支线设计，击**oss会推进进度导致一些支线断掉
 这个系列一周目还是推荐无攻略瞎玩，非线性流程的设计还是不错的
 
+
+*****
+
+####  ParadiseMartyr  
+##### 103#       发表于 2025-8-18 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68281274&amp;ptid=1812121" target="_blank">北条早苗 发表于 2025-8-18 08:03</a>
+bs1可以通过存档一周目看完全结局，不过因为类似本家的支线设计，击**oss会推进进度导致一些支线断掉
+这个 ...</blockquote>
+这什么黑之灵魂，死一次就得到一个，提升全属性，是不是用了之后会有什么负面效果啊。而且这东西能卖，岂不是可以直接农魂了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
