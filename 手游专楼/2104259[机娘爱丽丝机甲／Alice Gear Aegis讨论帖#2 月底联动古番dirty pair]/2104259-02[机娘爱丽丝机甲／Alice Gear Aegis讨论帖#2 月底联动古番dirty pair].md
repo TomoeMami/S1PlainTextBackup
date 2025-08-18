@@ -116,3 +116,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我历经千辛万苦只有AN宁里，已经不敢再下池子捞原版了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1614#         楼主| 发表于 2025-8-18 13:12
+
+卧槽看到8月起岛田又开始画阿嘎（涩）图了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+另外贴吧似乎说月底有联动，疑似是魔女？？？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
