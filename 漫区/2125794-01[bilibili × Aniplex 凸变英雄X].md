@@ -301,3 +301,14 @@ X的话36年登顶，现在是登顶6年连续3届
 
 突然想起来奈斯是到林凌替身了才拿到的第十，完了人气用的宣发还是林凌做的，真不行啊这是<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  补丁  
+##### 466#       发表于 2025-8-18 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68283672&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-8-18 15:06</a>
+
+突然想起来奈斯是到林凌替身了才拿到的第十，完了人气用的宣发还是林凌做的，真不行啊这是 ...</blockquote>
+奈斯在英雄微笑事件后崩溃了，很久没曝光度排名肯定降，梁龙篇就到这剧情了
+
