@@ -1733,3 +1733,11 @@ T1和T3本来就要开打手宝具的
 
 南美雨姐怎么还在发癫<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17912#       发表于 2025-8-18 19:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">那最后的石头抽了发十连 鹤小姐也出了 看看活动结束前能不能再凑点石头把克里姆希德抽到手
+
