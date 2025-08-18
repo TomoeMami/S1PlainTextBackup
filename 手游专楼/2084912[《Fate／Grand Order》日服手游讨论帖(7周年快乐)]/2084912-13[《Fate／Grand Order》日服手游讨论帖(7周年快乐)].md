@@ -1725,3 +1725,11 @@ T1和T3本来就要开打手宝具的
 
 还以为喂圣杯这种设定上很重要的事情没有语音只是因为纯懒或者纯菜，十周年了终于有了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是只有一个
 
+
+*****
+
+####  里村紅葉  
+##### 17911#       发表于 2025-8-18 18:30
+
+南美雨姐怎么还在发癫<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
