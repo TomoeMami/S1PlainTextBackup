@@ -299,3 +299,18 @@
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cxj649  
+##### 172#       发表于 2025-8-18 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68283369&amp;ptid=2193746" target="_blank">ArthurDent 发表于 2025-8-18 14:11</a>
+
+草，到最后都没掉马甲吗，亏我还卷卷你8念叨
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99 ...</blockquote>
+学院里人到学院篇结局前，知道或者猜到女主是谁派来的，以及大致目的，甚至知道了松鼠小时候的身世
+
+但现在的伯爵7贤这最公开的身份，他们一直没往这查<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
