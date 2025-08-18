@@ -216,3 +216,11 @@ Screenshot_2025.08.13_00.16.21.008.png
 
 笑死，兔子王的强化最后一个怪没有翻译，还是日文<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 47383#       发表于 2025-8-18 15:38
+
+所有石头用完学姐终于追到2宝，小艾没石头了，只能赶紧挖羁绊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
