@@ -681,3 +681,19 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 之前云了下还不错
 
+
+*****
+
+####  windhawind2  
+##### 475#       发表于 2025-8-18 08:56
+
+67h真结局通关了 很可惜不能怼翻整个魔界..
+
+游戏的体量真是惊人 看了下还有一堆血迹和队友回忆、道具、boss没收集 有空再说吧<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+地图设计的太好了 剧情也很完整 很奇妙而充实的体验
+
+就是后篇的节奏有点问题 太急了 一堆设定往脸上扔<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+（话说一开始接触觉得系统和gbf相似 可惜后面没能像gbf玩那么花 应该还是受限于引擎的问题吧
+
