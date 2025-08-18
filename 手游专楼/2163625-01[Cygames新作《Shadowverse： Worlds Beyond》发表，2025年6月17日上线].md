@@ -158,3 +158,14 @@ cy打得真是好算盘
 
 我们国际服玩家就是纯冤种，氪金贵还要被直营喂屎<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 657#       发表于 2025-8-18 11:15
+
+ 本帖最后由 辞冬 于 2025-8-18 11:17 编辑 
+
+国际服steam倒余额可以做到328一单，我还提前倒了两单给第三弹呢，现在完全不想氪了，反正全女主战了，后面直接白嫖<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+这异画捆绑还卖1200钻，看笑了
+
