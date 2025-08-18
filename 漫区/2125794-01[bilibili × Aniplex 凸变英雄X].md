@@ -259,3 +259,14 @@ X的话36年登顶，现在是登顶6年连续3届
 
 没想到不但跟女王篇连上，跟第一集也连上了。中间几集真不太好看<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 462#       发表于 2025-8-18 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68279082&amp;ptid=2125794" target="_blank">走来走去 发表于 2025-8-17 18:03</a>
+
+没想到不但跟女王篇连上，跟第一集也连上了。中间几集真不太好看</blockquote>
+一下子把几个篇章都串起来，甚至有了导泻的感觉
+

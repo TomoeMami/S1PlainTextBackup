@@ -145,3 +145,19 @@ crpg在国内本来也不算很大众的品类吧
 
 —— 来自 OPPO PKU110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  jxzeroga0  
+##### 104#       发表于 2025-8-18 11:23
+
+ 本帖最后由 jxzeroga0 于 2025-8-18 11:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68281646&amp;ptid=2159636" target="_blank">Pettabuz 发表于 2025-8-18 09:31</a>
+
+这个在哪能看地图？按了所有按键都没有……
+
+还是说XGP版还没更新。。</blockquote>
+菜单页面，左上角有几个地图纸质的东西，点击打开。npc位置是素材手册看持有npc鼠标移上去头像会显示地点名称。
+
+不过这游戏确实没有严格意义上的地图，几个地图全景只是用来做脱狱路径参考而已。快捷传送在监狱中心才能用。
+
