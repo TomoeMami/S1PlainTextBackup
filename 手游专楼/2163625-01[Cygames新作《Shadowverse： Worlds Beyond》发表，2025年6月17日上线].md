@@ -169,3 +169,11 @@ cy打得真是好算盘
 国际服steam倒余额可以做到328一单，我还提前倒了两单给第三弹呢，现在完全不想氪了，反正全女主战了，后面直接白嫖<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 这异画捆绑还卖1200钻，看笑了
 
+
+*****
+
+####  千千千千鸟  
+##### 658#       发表于 2025-8-18 11:41
+
+无敌了，1200钻我屌，epic充值都要100块钱吧，有这钱我买个露娜或者亚里沙不比这好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
