@@ -1793,3 +1793,13 @@ T1和T3本来就要开打手宝具的
 
 可以安心了
 
+
+*****
+
+####  rollingusagi  
+##### 17918#       发表于 2025-8-19 01:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这剧情也太长了，不过y1s1蘑菇这次玩的是真大，看的也好爽，烟哥和雨神这俩太搞了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
