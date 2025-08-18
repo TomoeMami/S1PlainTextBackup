@@ -1759,3 +1759,14 @@ T1和T3本来就要开打手宝具的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 17915#       发表于 2025-8-18 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68284971&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-8-18 19:12</a>
+
+打到15节的战斗，IPAD终于到了进战斗读取途中就闪退的地步，甚至重启也一样，真得解决一下了 ...</blockquote>
+同样，我游戏闪退了十几次，才勉强到第二轮，看看能不能慢慢一点将数据下完吧<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
