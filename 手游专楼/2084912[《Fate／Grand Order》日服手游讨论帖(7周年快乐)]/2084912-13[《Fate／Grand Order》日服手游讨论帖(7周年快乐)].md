@@ -1741,3 +1741,11 @@ T1和T3本来就要开打手宝具的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">那最后的石头抽了发十连 鹤小姐也出了 看看活动结束前能不能再凑点石头把克里姆希德抽到手
 
+
+*****
+
+####  DARKGRAY  
+##### 17913#       发表于 2025-8-18 19:12
+
+打到15节的战斗，IPAD终于到了进战斗读取途中就闪退的地步，甚至重启也一样，真得解决一下了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
