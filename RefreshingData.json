@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 185378,
+    "totalreply": 185381,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755474488,
+    "lastedit": 1755477248,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10598,7 +10598,7 @@
     "newtitle": "[中二电波台真爱楼 2.0]",
     "lastedit": 1755217823,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1638006": {
@@ -16110,10 +16110,10 @@
     "update": false
   },
   "2259096": {
-    "totalreply": 649,
+    "totalreply": 650,
     "title": "[【街霸6】EWC 2025 电竞世界杯专楼（14号LCQ）]",
-    "newtitle": "[【街霸6】EWC 2025 电竞世界杯专楼（分组已出，20号正赛）]",
-    "lastedit": 1755458651,
+    "newtitle": "[【街霸6】EWC 2025 电竞世界杯专楼（对阵表已出，20号正赛）]",
+    "lastedit": 1755477368,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16488,10 +16488,10 @@
     "update": false
   },
   "2259381": {
-    "totalreply": 296,
+    "totalreply": 297,
     "title": "[传闻 古剑奇谭四明日首爆PV]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1755476768,
+    "lastedit": 1755477368,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16605,10 +16605,10 @@
     "update": false
   },
   "2259433": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[怪不得锦州这么重要]",
     "newtitle": "[怪不得锦州这么重要]",
-    "lastedit": 1755455168,
+    "lastedit": 1755477488,
     "category": "外野",
     "active": true,
     "update": false
@@ -16668,10 +16668,10 @@
     "update": false
   },
   "2259448": {
-    "totalreply": 53,
+    "totalreply": 55,
     "title": "[才开始玩2077，序章感觉有点烂]",
     "newtitle": "[才开始玩2077，序章感觉有点烂]",
-    "lastedit": 1755476530,
+    "lastedit": 1755477127,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16704,10 +16704,10 @@
     "update": false
   },
   "2259256": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[2025年了，选出你最喜欢的物语系列女角色（篇章主角）]",
     "newtitle": "[2025年了，选出你最喜欢的物语系列女角色（篇章主角）]",
-    "lastedit": 1755468487,
+    "lastedit": 1755477008,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16794,11 +16794,20 @@
     "update": false
   },
   "2259471": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[小米集团转发7月空调销售数据，小米销量表现亮眼，线上超越格力]",
     "newtitle": "[小米集团转发7月空调销售数据，小米销量表现亮眼，线上超越格力]",
-    "lastedit": 1755476292,
+    "lastedit": 1755477487,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2259026": {
+    "totalreply": 41,
+    "title": "[求推荐以优秀专业技术人士为主题的漫画]",
+    "newtitle": "[求推荐以优秀专业技术人士为主题的漫画]",
+    "lastedit": 1755477250,
+    "category": "漫区",
     "active": true,
     "update": false
   }
