@@ -2628,3 +2628,15 @@ ex隐藏还是要二队的，还有小兵增援
 那个尊者很好对付的，你拿明镜减伤那个武器先打他，好像是减伤50%还是多少，之后尊者打人就是挠痒痒了… ...</blockquote>
 威力大的武器只有2射程在3格位置打比较好
 
+
+*****
+
+####  blue321  
+##### 2496#       发表于 2025-8-18 23:22
+
+14层塔这个盾穆才是真正的强者啊，本身5次援护+在buff里加攻耗血
+
+然后全体残血等流星正义出来4动全收割完了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
