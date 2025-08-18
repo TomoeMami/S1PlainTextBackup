@@ -2640,3 +2640,19 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2497#       发表于 2025-8-19 00:53
+
+<img src="https://img.stage1st.com/forum/202508/19/005259w28ykp5d1155zl5z.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20250819-005228-027.png</strong> (417.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-19 00:52 上传
+
+这次能打的只有这些，感觉费劲了
+
