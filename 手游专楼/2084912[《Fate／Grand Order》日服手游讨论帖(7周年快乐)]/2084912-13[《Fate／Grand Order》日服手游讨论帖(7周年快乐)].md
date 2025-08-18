@@ -1706,3 +1706,14 @@ T1和T3本来就要开打手宝具的
 黑胡子作为历届最强的耐活王，大概是真的不怕被打死
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 17909#       发表于 2025-8-18 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68283511&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-8-18 14:38</a>
+
+【【FGO中翻】首次第一个喂圣杯拥有特殊语音 泳装鹤小姐非常惊讶发出卡哇伊的声音，可爱捏！-哔哩哔哩】  ...</blockquote>
+可别介，你游这圣杯要是地摊货管够还能这么玩，现在是完全不够用
+

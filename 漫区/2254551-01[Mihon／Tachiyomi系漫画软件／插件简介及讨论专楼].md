@@ -605,3 +605,14 @@ koreader上有rakuyomi插件，用的是老版本的aidoku源。
 
 漫画柜能用，但是rawkuma和rawdevart的插件都用不了
 
+
+*****
+
+####  azbhg1  
+##### 52#         楼主| 发表于 2025-8-18 18:14
+
+开个专项群
+
+Mihon/Tachiyomi系漫画软件/插件 蓝飞机交流群 ：[https://t.me/+wBT9JeAje5szMmMx](https://t.me/+wBT9JeAje5szMmMx)
+<img src="https://image.ys-8.de/file/1755511997615_Telegram_LjjV4lEX0H.png" referrerpolicy="no-referrer">
+
