@@ -1695,3 +1695,14 @@ T1和T3本来就要开打手宝具的
 
 （本想说可以给升到120级加个语音，但感觉太苛刻了...）
 
+
+*****
+
+####  exiaexa  
+##### 17908#       发表于 2025-8-18 17:53
+
+今天这个剧情，太草了
+
+黑胡子作为历届最强的耐活王，大概是真的不怕被打死
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
