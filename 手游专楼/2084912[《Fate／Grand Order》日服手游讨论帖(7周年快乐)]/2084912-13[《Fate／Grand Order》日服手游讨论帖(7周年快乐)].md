@@ -1770,3 +1770,14 @@ T1和T3本来就要开打手宝具的
 打到15节的战斗，IPAD终于到了进战斗读取途中就闪退的地步，甚至重启也一样，真得解决一下了 ...</blockquote>
 同样，我游戏闪退了十几次，才勉强到第二轮，看看能不能慢慢一点将数据下完吧<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 17916#       发表于 2025-8-19 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68285972&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-18 23:06</a>
+
+同样，我游戏闪退了十几次，才勉强到第二轮，看看能不能慢慢一点将数据下完吧 ...</blockquote>
+我是每次都下完的，刚才也清过，没多大区别，不过最后总算打过去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
