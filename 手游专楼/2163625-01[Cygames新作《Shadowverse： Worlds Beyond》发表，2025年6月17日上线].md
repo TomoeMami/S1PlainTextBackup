@@ -123,3 +123,11 @@ cy打得真是好算盘
 
 真有你的kmr，也是教玩家学上兵法了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raumanzug  
+##### 653#       发表于 2025-8-18 08:05
+
+草，打开游戏收到阴阳人惊了。
+
