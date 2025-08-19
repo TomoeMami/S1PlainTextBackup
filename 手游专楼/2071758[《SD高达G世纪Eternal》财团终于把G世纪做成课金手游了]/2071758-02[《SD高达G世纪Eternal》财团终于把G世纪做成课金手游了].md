@@ -2728,3 +2728,17 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2506#       发表于 2025-8-20 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291299&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-8-19 23:08</a>
+反复试错太恶心了，最后就差一步两步不行要重打
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+没错，我也重复好几次，有命中率问题，打不中就打不死杂兵
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

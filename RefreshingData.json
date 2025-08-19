@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 18545,
+    "totalreply": 18546,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.24 不弗不行]",
-    "lastedit": 1755616456,
+    "lastedit": 1755621136,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9995,7 +9995,7 @@
     "newtitle": "[【Love Live! Superstar!!】10月4日广州亚巡，6日上海、三期每周日播出企划5号楼]",
     "lastedit": 1755362055,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2044818": {
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 183904,
+    "totalreply": 183906,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755619928,
+    "lastedit": 1755621369,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 6068,
+    "totalreply": 6069,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1755618979,
+    "lastedit": 1755621253,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11178,10 +11178,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 2505,
+    "totalreply": 2506,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》【8.22 强袭活动 武者顽太无+指挥官高达】 S1群：9314964]",
-    "lastedit": 1755616456,
+    "lastedit": 1755621136,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2210352": {
-    "totalreply": 1542,
+    "totalreply": 1543,
     "title": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "newtitle": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve，5.30发售]",
-    "lastedit": 1755618012,
+    "lastedit": 1755621253,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11457,10 +11457,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 7777,
+    "totalreply": 7778,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／8.19卡车专场直面会]",
-    "lastedit": 1755620651,
+    "lastedit": 1755621250,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12420,10 +12420,10 @@
     "update": false
   },
   "2257987": {
-    "totalreply": 637,
+    "totalreply": 640,
     "title": "[俄乌8月楼]",
     "newtitle": "[俄乌8月楼]",
-    "lastedit": 1755620527,
+    "lastedit": 1755621371,
     "category": "外野",
     "active": true,
     "update": false
@@ -15075,10 +15075,10 @@
     "update": false
   },
   "2257989": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[填海日记]",
     "newtitle": "[填海日记]",
-    "lastedit": 1755612626,
+    "lastedit": 1755621132,
     "category": "外野",
     "active": true,
     "update": false
@@ -15570,10 +15570,10 @@
     "update": false
   },
   "2259247": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[bn泄露下个复刻为tox]",
     "newtitle": "[tox复刻，10.30发售]",
-    "lastedit": 1755620651,
+    "lastedit": 1755621007,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16641,10 +16641,10 @@
     "update": false
   },
   "2259587": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[《卡比的驭天飞行者》专场直面会将于8月19日21：00举办，时长约45分钟！]",
     "newtitle": "[《卡比的驭天飞行者》专场直面会将于8月19日21：00举办，时长约45分钟！]",
-    "lastedit": 1755615616,
+    "lastedit": 1755621253,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16834,6 +16834,15 @@
     "title": "[小米二季度财报]",
     "newtitle": "[小米二季度财报]",
     "lastedit": 1755620772,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2259649": {
+    "totalreply": 43,
+    "title": "[旅行车爱好者又有新选择了，Audi E5]",
+    "newtitle": "[旅行车爱好者又有新选择了，Audi E5]",
+    "lastedit": 1755621371,
     "category": "外野",
     "active": true,
     "update": false
