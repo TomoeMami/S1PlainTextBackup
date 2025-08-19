@@ -1337,3 +1337,35 @@ Dlc3很重要，一定要有
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ParadiseMartyr  
+##### 124#       发表于 2025-8-20 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291326&amp;ptid=1812121" target="_blank">h33 发表于 2025-8-19 23:13</a>
+草，玩完了才发现我是正版受害者吗。那网上什么版本bgm没改的同时有dlc3
+
+—— 来自 Xiaomi 23049RAD8C, An ...</blockquote>
+【超级会员V6】通过百度网盘分享的文件：BGM.zip
+链接:https://pan.baidu.com/s/1ald8Mb4EukyJQXpo5_5QoQ 
+提取码:7529
+复制这段内容打开「百度网盘APP 即可获取」
+我找到了BGM替换
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ParadiseMartyr  
+##### 125#       发表于 2025-8-20 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68290870&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-19 21:46</a>
+【BlackSouls2 OST - 柴郡猫-哔哩哔哩】 https://b23.tv/N4JDLag
+
+开局几分钟碰到猫猫听到的是这个音乐就 ...</blockquote>
+这些个入侵灵，不打过会损失什么吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+主要是入侵的地方都很刁钻，将来二次找感觉会比较困难
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
