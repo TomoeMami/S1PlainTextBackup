@@ -1299,3 +1299,16 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 二代的战斗 ...</blockquote>
 里线真的很神，各种卧槽<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 121#       发表于 2025-8-19 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289602&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-19 17:24</a>
+里线真的很神，各种卧槽</blockquote>
+3.3版是旧版么？
+nyaa找到一个中文版
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
