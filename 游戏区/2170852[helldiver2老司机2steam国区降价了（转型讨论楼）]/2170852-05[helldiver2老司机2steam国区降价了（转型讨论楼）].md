@@ -87,3 +87,11 @@
 侦察甲不是只能看敌人嘛
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">feet first怎么译成护腿为上了
 
+
+*****
+
+####  RinC  
+##### 6941#       发表于 2025-8-19 23:54
+
+是不是这么还原，连br不给一个，而且怎么都是轻武器，好歹给把狙吧
+
