@@ -2697,3 +2697,14 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 2503#       发表于 2025-8-19 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68288117&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-8-19 12:48</a>
+
+风灵要超强气才能用高伤武器，但是自动战斗使用MP+技能的逻辑很怪，目前看来只有傻子那会用，但是傻子那的 ...</blockquote>
+93海牛骡子，奶奶头，亚丝娜也行的
+
