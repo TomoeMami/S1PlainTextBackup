@@ -733,3 +733,14 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这个湿地的拉闸跑十个屋子的任务真给我跑红温了
 
+
+*****
+
+####  k1no  
+##### 479#       发表于 2025-8-20 03:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291951&amp;ptid=2246453" target="_blank">kyonko15 发表于 2025-8-20 03:42</a>
+
+这个湿地的拉闸跑十个屋子的任务真给我跑红温了</blockquote>
+好像跑完第六个的时候有个存档点
+
