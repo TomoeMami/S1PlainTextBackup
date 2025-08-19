@@ -1288,3 +1288,14 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 一代的战斗没什么好说的，灵魂巨箭平推，剧情的话算是黑魂和黑暗童话的合集，大头都放在C结局了
 二代的战斗和剧情部分进步都很大，里线的设计只能说作者脑子有病（褒义）
 
+
+*****
+
+####  红魔馆的糖  
+##### 120#       发表于 2025-8-19 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289544&amp;ptid=1812121" target="_blank">北条早苗 发表于 2025-8-19 17:14</a>
+一代的战斗没什么好说的，灵魂巨箭平推，剧情的话算是黑魂和黑暗童话的合集，大头都放在C结局了
+二代的战斗 ...</blockquote>
+里线真的很神，各种卧槽<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
