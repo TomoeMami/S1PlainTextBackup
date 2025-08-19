@@ -67,3 +67,23 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6939#       发表于 2025-8-19 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68290938&amp;ptid=2170852" target="_blank">Mayochu爱好者 发表于 2025-8-19 21:55</a>
+“护腿为上”被动效果-移动产生的噪音更小-特殊地点的探寻范围扩大30%-免疫腿伤 ...</blockquote>
+特殊地点侦查，之前的侦查甲有这个效果么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  madcow  
+##### 6940#       发表于 2025-8-19 23:16
+
+侦察甲不是只能看敌人嘛
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">feet first怎么译成护腿为上了
+
