@@ -1369,3 +1369,16 @@ Dlc3很重要，一定要有
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  红魔馆的糖  
+##### 126#       发表于 2025-8-20 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291680&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-20 01:29</a>
+这些个入侵灵，不打过会损失什么吗？
+主要是入侵的地方都很刁钻，将来二次找感觉会比较困难</blockquote>
+入侵灵会掉东西。剧情无影响
+
+入侵点位都是固定的，后面再来也一样
+
