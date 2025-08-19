@@ -1218,3 +1218,13 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Tissuesea  
+##### 114#       发表于 2025-8-19 16:27
+
+二代确实可以，没玩过血缘都迷恋上枪反打断了，人设也更饱满了
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
