@@ -250,3 +250,17 @@ DB大概率是24号，我估计要奏章4后再抽<img src="https://static.stage
 
 <img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">学姐和徐福都是满宝，那谁0宝，放弃了...
 
+
+*****
+
+####  hyhaha  
+##### 47387#       发表于 2025-8-19 08:23
+
+3宝艾蕾，喝彩之炎已经满破两张还有找了
+
+本来2宝的时候就停了，看到五星礼装4等1
+
+“出一张就跑”
+
+然后喜吃井
+
