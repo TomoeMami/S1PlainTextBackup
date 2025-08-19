@@ -48,3 +48,22 @@
 
 “护腿为上”被动效果-移动产生的噪音更小-特殊地点的探寻范围扩大30%-免疫腿伤
 
+
+*****
+
+####  ykyin09  
+##### 6937#       发表于 2025-8-19 22:40
+
+三号位没有吗，上次联动还给了个wasp
+
+*****
+
+####  风萧飒  
+##### 6938#       发表于 2025-8-19 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291175&amp;ptid=2170852" target="_blank">ykyin09 发表于 2025-8-19 22:40</a>
+三号位没有吗，上次联动还给了个wasp</blockquote>
+那个不是债券是直接mo给的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
