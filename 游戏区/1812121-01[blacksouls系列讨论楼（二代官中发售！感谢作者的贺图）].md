@@ -1182,3 +1182,39 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 2代映像最深的是那几个恐怖场景，本篇的精神病院还好，dlc的疗养院＋爱丽丝利德尔一家的那块是真jb吓人 ...</blockquote>
 所以说作者真实天才<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 111#       发表于 2025-8-19 15:55
+
+一代玩到就差杀掉三个魔姬或者白雪公主了。
+什么黑之审判者等级压制我，不农魂数值根本不够，好像有加密，简单的ce搜索搜不到魂的数据
+感觉这游戏就那样啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没觉得有多厉害了…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  虚无缥缈的分身  
+##### 112#       发表于 2025-8-19 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289103&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-19 15:55</a>
+
+一代玩到就差杀掉三个魔姬或者白雪公主了。
+
+什么黑之审判者等级压制我，不农魂数值根本不够，好像有加密， ...</blockquote>
+一代确实一般，二代差不多是把龙头rpgmaker引擎的极限给用出来了
+
+
+*****
+
+####  ParadiseMartyr  
+##### 113#       发表于 2025-8-19 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289120&amp;ptid=1812121" target="_blank">虚无缥缈的分身 发表于 2025-8-19 15:57</a>
+一代确实一般，二代差不多是把龙头rpgmaker引擎的极限给用出来了</blockquote>
+那等steam二代上了再说吧。dl现在还没打折，还不如等steam二代…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
