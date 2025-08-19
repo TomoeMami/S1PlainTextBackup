@@ -963,3 +963,25 @@ ZUN差不多下一作该自机组灵梦魔理沙她们裸足了吧
 三角走位 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这玩意跑出去之后冷不丁加速追你可比纯狐吓人多了
 
+
+*****
+
+####  kenqqex  
+##### 75#         楼主| 发表于 2025-8-19 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68287419&amp;ptid=2251051" target="_blank">防撞桶好 发表于 2025-8-19 10:35</a>
+
+这玩意跑出去之后冷不丁加速追你可比纯狐吓人多了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/19/104559r6uacn7i9ceubg3e.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202508/19/104559r6uacn7i9ceubg3e.png">
+
+<strong>图片.png</strong> (974.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-19 10:45 上传
+
+https://www.bilibili.com/video/BV1ZyY1zREMF/
+
+和我想的一样 就是这个大拉有点大...
+
