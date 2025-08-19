@@ -1255,3 +1255,27 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 二代因为版权问题大改过bgm，完全没了原来的味道，steam上的话估计也是上这个版本。想玩的话直接盗版玩老版然后等上了补票就是了，现在网上的各种资源应该都是默认的老版
 
+
+*****
+
+####  ParadiseMartyr  
+##### 117#       发表于 2025-8-19 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289401&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-19 16:50</a>
+二代因为版权问题大改过bgm，完全没了原来的味道，steam上的话估计也是上这个版本。想玩的话直接盗版玩老 ...</blockquote>
+现在已经改了魂量，准备速通了这一代了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  红魔馆的糖  
+##### 118#       发表于 2025-8-19 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289469&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-19 17:00</a>
+
+现在已经改了魂量，准备速通了这一代了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+其实一代后期玩法爷就能秒秒秒了，很魂1
+
