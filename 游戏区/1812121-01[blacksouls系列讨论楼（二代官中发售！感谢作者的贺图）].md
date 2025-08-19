@@ -1228,3 +1228,30 @@ steam版有什么新料吗？有收集卡吗？没什么新料就不全价入了
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  红魔馆的糖  
+##### 115#       发表于 2025-8-19 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289103&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-19 15:55</a>
+
+一代玩到就差杀掉三个魔姬或者白雪公主了。
+
+什么黑之审判者等级压制我，不农魂数值根本不够，好像有加密， ...</blockquote>
+一代只是个普通的好rm作品，二代是真正跃升了几个级别的顶级rm作品，感觉是作者被外神入侵了脑子做出来的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 116#       发表于 2025-8-19 16:50
+
+ 本帖最后由 红魔馆的糖 于 2025-8-19 16:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289167&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-19 16:03</a>
+
+那等steam二代上了再说吧。dl现在还没打折，还不如等steam二代…
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+二代因为版权问题大改过bgm，完全没了原来的味道，steam上的话估计也是上这个版本。想玩的话直接盗版玩老版然后等上了补票就是了，现在网上的各种资源应该都是默认的老版
+
