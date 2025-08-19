@@ -1312,3 +1312,18 @@ nyaa找到一个中文版
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  红魔馆的糖  
+##### 122#       发表于 2025-8-19 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68290646&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-19 20:54</a>
+3.3版是旧版么？
+nyaa找到一个中文版
+这个没有dlc3…</blockquote>
+【BlackSouls2 OST - 柴郡猫-哔哩哔哩】 https://b23.tv/N4JDLag
+
+开局几分钟碰到猫猫听到的是这个音乐就是原版
+Dlc3很重要，一定要有
+
