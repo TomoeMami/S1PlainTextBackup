@@ -616,3 +616,15 @@ koreader上有rakuyomi插件，用的是老版本的aidoku源。
 Mihon/Tachiyomi系漫画软件/插件 蓝飞机交流群 ：[https://t.me/+wBT9JeAje5szMmMx](https://t.me/+wBT9JeAje5szMmMx)
 <img src="https://image.ys-8.de/file/1755511997615_Telegram_LjjV4lEX0H.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 53#         楼主| 发表于 2025-8-19 20:17
+
+更新：
+
+Mihon官方讨论群组：[https://discord.gg/mihon](https://discord.gg/mihon) （含TachiyomiJ2k/Yokai/TachiyomiSY/Komikku）
+
+Suwayomi官方讨论群组：[https://discord.gg/DDZdqZWaHA](https://discord.gg/DDZdqZWaHA)
+
