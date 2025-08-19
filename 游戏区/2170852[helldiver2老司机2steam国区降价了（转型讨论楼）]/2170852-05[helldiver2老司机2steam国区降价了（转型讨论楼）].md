@@ -16,3 +16,15 @@
 
 只有轻武器，不好说，看看消音武器到时有什么说法吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOBI  
+##### 6934#       发表于 2025-8-19 21:37
+
+转轮筒呢？镭射呢？一定是送的吧（妄想）
+
+就箭头对AR系的恶意糖豆发射器根本没法期待啊
+
+难道还能指望甲是T1不成。。要不你给辆新车也好啊
+
