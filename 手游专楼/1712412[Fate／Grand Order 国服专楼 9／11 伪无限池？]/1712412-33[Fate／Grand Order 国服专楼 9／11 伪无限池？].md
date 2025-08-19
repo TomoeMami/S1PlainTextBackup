@@ -242,3 +242,11 @@ DB大概率是24号，我估计要奏章4后再抽<img src="https://static.stage
 
 刚才每日友情免费十连出了三星，于是又玄学了一下，三宝了。。。这不到300石头一下子就把出货率拉上来了。。。
 
+
+*****
+
+####  flyzzhj  
+##### 47386#       发表于 2025-8-19 08:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">学姐和徐福都是满宝，那谁0宝，放弃了...
+
