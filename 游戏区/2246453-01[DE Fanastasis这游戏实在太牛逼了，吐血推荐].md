@@ -725,3 +725,11 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 昨晚熬夜通关，今天打了隐藏boss，魔物收集完就不苛求道具全收集了，有几个宝箱地毯式检查也找不到拿的方式 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">具体来说参看伊修托儿之崖（洞穴）-雷光谷的故事线，分为两次援救，第一次是组队探路，从海岸出发到雷光谷地下入口，中途被尘埃感染返回（返回故事线是雷光谷-雷光峰）。得知尘埃感染的情况以后(大圣堂也是被这么攻破的），第二队出发，到地下入口布置魔法阵魔化了船长女儿，通过古代遗物（冠冕）来控制以进入地下策应地下暴动。当然魔化以后就寄了。指挥者是一开始等你的boss海岸女巫。
 
+
+*****
+
+####  kyonko15  
+##### 478#       发表于 2025-8-20 03:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这个湿地的拉闸跑十个屋子的任务真给我跑红温了
+
