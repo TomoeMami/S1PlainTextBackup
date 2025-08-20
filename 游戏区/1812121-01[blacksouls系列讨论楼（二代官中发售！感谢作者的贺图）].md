@@ -1538,3 +1538,15 @@ ps:2代建议前期先别乱逛，把时钟塔的boss杀了之后再乱逛，不
 2代不看攻略一周目太容易被狂鸟渡渡给制裁了</blockquote>
 我被制裁了，然后发现不坐火就不会推进时间，还好发现的早，硬是卡着最后一点推进值365里路从扑克女王城不坐火跑到时钟塔<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnmyster1ous  
+##### 140#       发表于 2025-8-20 18:50
+
+二代要玩DLC3还是很需要数值的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我印象刷到全2w左右玩正常物理哪怕说是轮椅的神天使双剑也很容易被一脚踢死
+最后想了一套靠拉莱耶之杖无限刷安魂曲的法系路子才玩下去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
