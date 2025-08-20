@@ -820,3 +820,13 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 —— 来自 Xiaomi 24129PN74C, Android 15上的 S1Next-鹅版 v2. ...</blockquote>
 我记得是只用装joiplay和那个RPGMPlugin名称的RPG Maker插件就行了。
 
+
+*****
+
+####  k1no  
+##### 487#       发表于 2025-8-21 01:31
+
+87个小时，终于把6666的最强boss也打败了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还是催眠流好用
+
+最终结局是主角废除契约寿终正寝吗
+
