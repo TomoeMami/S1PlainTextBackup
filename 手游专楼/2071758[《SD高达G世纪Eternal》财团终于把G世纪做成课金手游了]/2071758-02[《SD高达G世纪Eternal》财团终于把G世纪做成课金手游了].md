@@ -2742,3 +2742,16 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 2507#       发表于 2025-8-20 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291541&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-8-20 00:28</a>
+
+没错，我也重复好几次，有命中率问题，打不中就打不死杂兵
+
+—— 来自 Xiaomi 23049RAD8C, Android 15,  ...</blockquote>
+15层？上路能清掉脉冲和之前的杂鱼就行，下路搞定初始杂鱼之后就是负责引怪，大家搭好桥护送师匠一路好走就行了
+
