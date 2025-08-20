@@ -1027,3 +1027,25 @@ https://www.bilibili.com/video/BV1ZyY1zREMF/
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  EndlessDied  
+##### 79#       发表于 2025-8-20 13:26
+
+好耶，混过去啦
+
+合计61级，20个残碎，6.6命，加上部分boss也掉残碎，5道中掉1命，合计应该是11命这样，外加41个雷碎，算上其他掉落应该是16~18bomb
+
+资源算是挺富裕的
+
+然而见丰姬6命，打完只剩1命什么的，死了个爽<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202508/20/132332g8fifwcff183f3cw.png" referrerpolicy="no-referrer">
+
+<strong></strong> (304.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 13:23 上传
+
