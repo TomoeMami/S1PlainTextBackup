@@ -1590,3 +1590,20 @@ https://tieba.baidu.com/p/8339226158?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  姬茧墨  
+##### 145#       发表于 2025-8-21 03:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298438&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-21 03:06</a>
+
+已经NPC死光了，准备二周目了。压根没注意进度值这个玩意，结果誓约NPC全被突突了。海龟没誓约都直接死了 ...</blockquote>
+无所谓的，因为要进H结局（DLC3）本来就刚需多周目，如果你之后想看差分还得主动去触发狂鸟唱歌，反而麻烦，不如一周目随便逛逛
+
+我觉得一周目无攻略初见还是游戏体验很重要的一部分，探索未知，直面箱庭的恶意本来就是bs2的醍醐味之一
+
+我推荐别人玩bs2都是推荐一二周目尽可能不看攻略，之后再跟着攻略进DLC3，然后DLC3也初见开荒
+
+还有小红帽本来就是二周目以上才能看到，你一周目又调不了sen值
+
