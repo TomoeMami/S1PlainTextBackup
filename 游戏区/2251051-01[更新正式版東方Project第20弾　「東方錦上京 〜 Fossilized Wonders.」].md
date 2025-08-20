@@ -1049,3 +1049,11 @@ https://www.bilibili.com/video/BV1ZyY1zREMF/
 
 2025-8-20 13:23 上传
 
+
+*****
+
+####  ef6270  
+##### 80#       发表于 2025-8-20 17:11
+
+EXBOSS的人设好像非常适合用来玩梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
