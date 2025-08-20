@@ -1422,3 +1422,17 @@ BGM这方面其实也算是有点先入为主吧
 
 我估计这些更换bgm可能本来就在作者的备选之中，而不是出了事才临时去找的bgm
 
+
+*****
+
+####  cnmyster1ous  
+##### 130#       发表于 2025-8-20 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292589&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-20 08:50</a>
+旧版是创作的时候选的自己认为最适合的，新版是因为版权问题强行改的，怎么想都是旧版更适合呀 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么我玩的盗版也是受害者
+唉听一下原版完事
+不过新版也不差的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
