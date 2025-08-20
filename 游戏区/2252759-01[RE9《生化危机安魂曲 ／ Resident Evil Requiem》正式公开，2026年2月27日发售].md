@@ -2951,3 +2951,11 @@ PlayStation.Blog发的采访，新信息很少。
 
 女主是坡脚？怎么跑起来散步似的
 
+
+*****
+
+####  zqqwe  
+##### 291#       发表于 2025-8-20 23:08
+
+这第三人称fov贼低看着头晕，吓人演出还是基于第一人称做的，还是省钱了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">女主每次被吓到就一直呕吼呕吼挺喜感
+

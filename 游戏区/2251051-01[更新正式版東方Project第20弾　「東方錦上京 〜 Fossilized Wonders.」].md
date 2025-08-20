@@ -1057,3 +1057,15 @@ https://www.bilibili.com/video/BV1ZyY1zREMF/
 
 EXBOSS的人设好像非常适合用来玩梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 81#       发表于 2025-8-20 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68295889&amp;ptid=2251051" target="_blank">ef6270 发表于 2025-8-20 17:11</a>
+EXBOSS的人设好像非常适合用来玩梗</blockquote>
+zun好多年没出过这么有意思的角色了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
