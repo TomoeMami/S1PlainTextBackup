@@ -1867,3 +1867,21 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 
 新推的这套偏斜/受流系统才是系统核心，大概吧，还是别惦记旧作的操作节奏了
 
+
+*****
+
+####  stair楼梯  
+##### 209#       发表于 2025-8-20 09:58
+
+感觉这宫本武藏几个角度是真的很像甄子丹，尤其是侧面，老实说三船敏郎脸明显要宽一点，没这么瘦
+
+
+*****
+
+####  手铐君  
+##### 210#       发表于 2025-8-20 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68293115&amp;ptid=2210366" target="_blank">stair楼梯 发表于 2025-8-20 09:58</a>
+感觉这宫本武藏几个角度是真的很像甄子丹，尤其是侧面，老实说三船敏郎脸明显要宽一点，没这么瘦 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不认识这个脸模，但是第一个pv出来的时候我就觉得像甄子丹
+
