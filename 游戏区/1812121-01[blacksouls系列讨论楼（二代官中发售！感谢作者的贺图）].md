@@ -1462,3 +1462,27 @@ BGM这方面其实也算是有点先入为主吧
 
 怎么连手柄都不支持
 
+
+*****
+
+####  ParadiseMartyr  
+##### 134#       发表于 2025-8-20 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294015&amp;ptid=1812121" target="_blank">LMBS 发表于 2025-8-20 11:51</a>
+怎么连手柄都不支持</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支持，但是键位很奇怪，按f1可以设置。但是行走只能用摇杆不能用方向键
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ParadiseMartyr  
+##### 135#       发表于 2025-8-20 12:14
+
+太搞了，我隐形身躯跑图直接跑出来个加9武器<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+把一开始的boss打过给的三连斩刀+9了
+这下乱杀了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
