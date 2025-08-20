@@ -217,3 +217,21 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 早知道还是卧底
 
+
+*****
+
+####  千千千千鸟  
+##### 662#       发表于 2025-8-20 20:20
+
+草拟的大赛碰到一个66老头连拍的妖精，5回合把我打到1血。
+
+我567连招，手上攥个8，我以为翻盘了，结果居然差1血，被蔷薇女王法术收割<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202508/20/201911cap15akasy0av505.png" referrerpolicy="no-referrer">
+
+<strong>45d236df115779ef7378cc217d10f998.png</strong> (752.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:19 上传
+
