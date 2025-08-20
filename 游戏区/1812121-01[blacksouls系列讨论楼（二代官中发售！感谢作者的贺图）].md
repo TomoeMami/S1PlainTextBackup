@@ -1575,3 +1575,18 @@ bs2的设计还是挺有意思的，你可以在dlc2刷够数值正攻dlc3，也
 
 Bs2的换装系统和道具不花回合系统简直是化学反应的神来之笔，同样配置可以懂系统的可以打出比不懂系统的高几十倍的伤害
 
+
+*****
+
+####  ParadiseMartyr  
+##### 144#       发表于 2025-8-21 03:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296112&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-8-20 17:54</a>
+https://tieba.baidu.com/p/8339226158?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;clien ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">已经NPC死光了，准备二周目了。压根没注意进度值这个玩意，结果誓约NPC全被突突了。海龟没誓约都直接死了。
+现在到处乱跑，能誓约的基本我也全杀了拿魂，赤红女王那边还没图图，跑到深海发现彻底被数值碾压了，准备收集收集之后，直接修改魂量，进二周目再来了。
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+小红帽是压根没见过<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
