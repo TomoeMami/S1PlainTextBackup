@@ -1885,3 +1885,11 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 感觉这宫本武藏几个角度是真的很像甄子丹，尤其是侧面，老实说三船敏郎脸明显要宽一点，没这么瘦 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不认识这个脸模，但是第一个pv出来的时候我就觉得像甄子丹
 
+
+*****
+
+####  conanoysq  
+##### 211#       发表于 2025-8-20 10:32
+
+新PV里面对上boss一击的卸力特写镜头的表现力还是非常强的，不过对上小兵的一闪，人物会有一个清晰的突然加速的动作，感觉有点突兀，还不如以前白光一闪手起刀落那样利落啊
+
