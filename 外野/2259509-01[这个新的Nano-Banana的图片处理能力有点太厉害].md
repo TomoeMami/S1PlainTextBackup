@@ -608,3 +608,19 @@ google的，估计很快就要被收回去砍性能了
 
 2025-8-20 15:12 上传
 
+
+*****
+
+####  高粱河车神  
+##### 43#       发表于 2025-8-20 15:57
+
+xhs看到的
+
+<img src="https://img.stage1st.com/forum/202508/20/155741bqj3uwlvtd3wdlw3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0689.jpeg</strong> (339.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 15:57 上传
+
