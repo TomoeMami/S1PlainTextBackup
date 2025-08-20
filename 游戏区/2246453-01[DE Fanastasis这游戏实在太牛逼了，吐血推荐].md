@@ -830,3 +830,17 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 最终结局是主角废除契约寿终正寝吗
 
+
+*****
+
+####  blackll7  
+##### 488#       发表于 2025-8-21 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298245&amp;ptid=2246453" target="_blank">k1no 发表于 2025-8-21 01:31</a>
+87个小时，终于把6666的最强boss也打败了还是催眠流好用
+
+最终结局是主角废除契约寿终正寝吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没寿终啊，圣人契约的内容是混血与恶魔签订契约，获取异界之魂与异界之魂带来的魔法（灵魂与治愈），代价是寿终以后灵魂属于恶魔。破弃圣人契约实际上就是立即履约，释放走圣人的灵魂罢了。整个后篇流程实际上不就是通过各种心告诉你阿尔弗雷德最终的心静变化，最后破弃契约实际上和本篇结局跳大空洞是一样的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
