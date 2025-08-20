@@ -782,3 +782,16 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 进了伊修托尔就算完全通关了吗？最后有个巴洛克的灵魂没找到，攻略上说就在巴洛克研究室我没看到，有什么前 ...</blockquote>
 经典的把巴洛克尸体当家具不去互动
 
+
+*****
+
+####  瑟莉亚  
+##### 484#       发表于 2025-8-20 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292411&amp;ptid=2246453" target="_blank">shanajiang 发表于 2025-8-20 08:10</a>
+
+手机怎么玩，模拟器吗
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+安卓机的话可以用我415L发的joiplay模拟器
+

@@ -1837,3 +1837,52 @@ T1和T3本来就要开打手宝具的
 今天这个剧情笑死了，再发展下去立香怕是要对着尼禄掏出微笑世界了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 17921#       发表于 2025-8-19 01:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这剧情也太长了，不过y1s1蘑菇这次玩的是真大，看的也好爽，烟哥和雨神这俩太搞了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  exiaexa  
+##### 17922#       发表于 2025-8-19 14:26
+
+ 本帖最后由 exiaexa 于 2025-8-19 14:36 编辑 
+
+因为我的free本还没扫完，所以又打了一早上，双提妈试验结论：
+
+在不换人的前提下，有着远超想象的稳定性
+
+对于部分np性能特别好的打手（弓贞），或者np恢复能力特别强的打手（芝诺比娅、黑玛丽），增幅程度远大于多上一个拐
+
+这两种类型的打手最大的问题就是在传统纯蓝、绿拐的辅助下，虽然np管够，但很可能加了黑杯也打不掉道中/关底大怪，然后第4t开始吃屎
+
+更换双提妈后稳定给他们增加了道中20w、关底40w往上的暴击伤害，
+
+确实算是仓管拯救者了，比较建议点一个30+额外2技能然后去玩一玩
+
+至于90艹往上的，拉倒吧全是定制本
+
+谁知道下次谁吃红利谁吃屎
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 17923#       发表于 2025-8-19 17:46
+
+今天这个剧情笑死了，再发展下去立香怕是要对着尼禄掏出微笑世界了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinitakute  
+##### 17924#       发表于 2025-8-20 09:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个周年千石3金，顶不住了
+
