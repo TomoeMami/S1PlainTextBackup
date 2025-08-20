@@ -1964,3 +1964,11 @@ https://www.youtube.com/watch?v=TtFrm59tUc4
 
 看了**的视频，玩法彻底改了，基本是以普攻+武技的打法，一闪的作用感觉是明显 大削弱了。确实是有点像卡普空的实验性质的作品
 
+
+*****
+
+####  zxlice  
+##### 220#       发表于 2025-8-20 13:30
+
+这什么，怪物猎人味儿好重<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
