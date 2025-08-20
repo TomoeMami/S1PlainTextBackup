@@ -760,3 +760,15 @@ https://w.atwiki.jp/fanastasis/pages/20.html</blockquote>
 
 我中后期全靠罗莎利特带诅咒面具，一个大1w2简直秒天秒地，就是有点脆
 
+
+*****
+
+####  shanajiang  
+##### 482#       发表于 2025-8-20 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504936&amp;ptid=2246453" target="_blank">再迷 发表于 2025-2-24 14:02</a>
+pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除了第一次加载资源的时候，例如进战斗，攻击特效什 ...</blockquote>
+手机怎么玩，模拟器吗
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
