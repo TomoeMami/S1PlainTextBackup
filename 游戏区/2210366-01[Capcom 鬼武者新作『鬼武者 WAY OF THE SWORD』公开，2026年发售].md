@@ -1847,3 +1847,13 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 
 00:52秒才是一闪，小怪砍成两半直接秒
 
+
+*****
+
+####  kuarwbwe  
+##### 207#       发表于 2025-8-20 07:55
+
+确实。男主脸模突出一个可能像三船，但像三船不可能。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这片看着感觉好了点，可能是怪设比较合胃口吧。我应该还是会考虑玩一下。
+
