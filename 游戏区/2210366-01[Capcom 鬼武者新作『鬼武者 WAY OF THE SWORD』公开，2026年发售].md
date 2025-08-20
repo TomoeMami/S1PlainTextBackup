@@ -1972,3 +1972,21 @@ https://www.youtube.com/watch?v=TtFrm59tUc4
 
 这什么，怪物猎人味儿好重<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOJO42  
+##### 221#       发表于 2025-8-20 14:29
+
+实机演示现在已经下架了，不过这科隆实在是太草台了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，昨天忍龙的预告提前泄露，今天鬼武者的实机也提前泄露，不过看视频他这硬锁明显调教的有问题
+
+*****
+
+####  葵  
+##### 222#       发表于 2025-8-20 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292285&amp;ptid=2210366" target="_blank">卡拉德利姆 发表于 2025-8-20 07:29</a>
+
+这作每发一个片我都想吐槽一句这哪里像三船敏郎了</blockquote>
+一点不像三船，但是每个预告都很像甄子丹<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
