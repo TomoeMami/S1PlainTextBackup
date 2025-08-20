@@ -2497,3 +2497,11 @@ SC</blockquote>
 
        [https://www.summersonic.com/2025live/detail/ave-mujica/](https://www.summersonic.com/2025live/detail/ave-mujica/)
 
+
+*****
+
+####  mono  
+##### 41182#       发表于 2025-8-20 13:08
+
+BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

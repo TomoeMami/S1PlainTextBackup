@@ -2891,3 +2891,11 @@ PlayStation.Blog发的采访，新信息很少。
 九：给浣熊市故人的安魂曲——指女主她妈挂了
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 284#       发表于 2025-8-20 13:06
+
+亲妈不会被改造成BOSS了吧
+
