@@ -1886,3 +1886,35 @@ T1和T3本来就要开打手宝具的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个周年千石3金，顶不住了
 
+
+*****
+
+####  qixinno2  
+##### 17925#       发表于 2025-8-20 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">千石三金还不知足啊 喜欢我大保底900石一个五星没出么
+
+*****
+
+####  rooarr  
+##### 17926#       发表于 2025-8-20 10:12
+
+我300石头一个水鹤没出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17927#       发表于 2025-8-20 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292956&amp;ptid=2084912" target="_blank">shinitakute 发表于 2025-8-20 09:38</a>
+
+这个周年千石3金，顶不住了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">千石3金还顶不住？ 喜欢我2400石2金吗？
+
+*****
+
+####  alucardcz  
+##### 17928#       发表于 2025-8-20 12:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来所长是不是第1个只要2个人就能冲起来的角色？
+

@@ -2880,3 +2880,14 @@ PlayStation.Blog发的采访，新信息很少。
 
 说实话我对谁谁谁会不会露面一点兴趣都没有，我还以为都认为RE是弱剧情强游戏性的呢
 
+
+*****
+
+####  kcalb  
+##### 283#       发表于 2025-8-20 12:58
+
+八：某人的命运将迎来终结——指伊森挂了
+
+九：给浣熊市故人的安魂曲——指女主她妈挂了
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
