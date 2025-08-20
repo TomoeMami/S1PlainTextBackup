@@ -1212,3 +1212,11 @@ bilibili kun泄露的应该没错, 但是太抽象了
 我没记错的话Xbox Ally的Z2Go连Z1E的Ro ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 重点还是那个定制化 Windows，好用的话，后面一堆第三方设备商总归会出便宜机型的。
 
+
+*****
+
+####  karastar  
+##### 116#       发表于 2025-8-20 18:06
+
+ns2突然有性价比了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
