@@ -688,3 +688,35 @@ xhs看到的
 只稍微试过AI studio和GEMINI， ...</blockquote>
 如果你要的是角色一致性, 目前效果可以接受而且支持本地部署就只有Flux Kontext
 
+
+*****
+
+####  处男老司机  
+##### 49#       发表于 2025-8-20 22:49
+
+捣鼓了一晚上qwen image edit，开源模型里应该算最强了，虽然在易用性上比不了nano banana之类的闭源模型
+
+<img src="https://img.stage1st.com/forum/202508/20/224758wqdemtt7eg5qvtpk.jpg" referrerpolicy="no-referrer">
+
+<strong>image_1_29.jpg</strong> (109.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/224758jqch5vev919eux9s.jpg" referrerpolicy="no-referrer">
+
+<strong>image_1_30.jpg</strong> (115.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/224758bknw3pt9m3dzmmum.jpg" referrerpolicy="no-referrer">
+
+<strong>image_1_34.jpg</strong> (128.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 22:47 上传
+

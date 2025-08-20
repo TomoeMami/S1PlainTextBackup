@@ -2936,3 +2936,18 @@ PlayStation.Blog发的采访，新信息很少。
 
 看了下试玩，什么破玩意，女主一直鬼叫，跑步速度跟零有得一拼
 
+
+*****
+
+####  水边井  
+##### 289#       发表于 2025-8-20 22:52
+
+纹章钥匙、保险丝，真是老三样<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  weige  
+##### 290#       发表于 2025-8-20 22:54
+
+女主是坡脚？怎么跑起来散步似的
+
