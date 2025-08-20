@@ -1977,3 +1977,42 @@ T1和T3本来就要开打手宝具的
 不如狗萌新</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">莫尬黑 请叫我 非洲萌新
 
+
+*****
+
+####  khxooo  
+##### 17935#       发表于 2025-8-20 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292956&amp;ptid=2084912" target="_blank">shinitakute 发表于 2025-8-20 09:38</a>
+这个周年千石3金，顶不住了</blockquote>
+千石三金其实正常出率，别和楼里的欧狗比<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17936#       发表于 2025-8-20 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294989&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-20 14:40</a>
+
+千石三金其实正常出率，别和楼里的欧狗比</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼里最欧的不就是你么
+
+*****
+
+####  angelooo  
+##### 17937#       发表于 2025-8-20 17:38
+
+兽蕾：你吗的为什么
+
+*****
+
+####  exiaexa  
+##### 17938#       发表于 2025-8-20 17:56
+
+这个总结战太草
+
+2016年是魔猪，19年武藏没了让徒弟代打就算了，为什么虞姬也是代理啊
+
+然后2024兽蕾直接被抢戏了，草生
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

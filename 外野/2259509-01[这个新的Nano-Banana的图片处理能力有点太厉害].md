@@ -675,3 +675,16 @@ xhs看到的
 
 <img src="https://img.stage1st.com/forum/202508/20/161859xyeqcicefejkvvev.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mp5  
+##### 48#       发表于 2025-8-20 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68290040&amp;ptid=2259509" target="_blank">ww-tsl 发表于 2025-8-19 18:57</a>
+
+借地问：有哪些图片AI能根据提供的参考图片和要求生成画风相似并且能看的？
+
+只稍微试过AI studio和GEMINI， ...</blockquote>
+如果你要的是角色一致性, 目前效果可以接受而且支持本地部署就只有Flux Kontext
+

@@ -1197,3 +1197,18 @@ PSP也丑，也舒服
 
 我没记错的话Xbox Ally的Z2Go连Z1E的Rog Ally都打不过吧
 
+
+*****
+
+####  bypass  
+##### 115#       发表于 2025-8-20 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296074&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-8-20 17:46</a>
+
+?????????????????????
+
+bilibili kun泄露的应该没错, 但是太抽象了
+
+我没记错的话Xbox Ally的Z2Go连Z1E的Ro ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 重点还是那个定制化 Windows，好用的话，后面一堆第三方设备商总归会出便宜机型的。
+

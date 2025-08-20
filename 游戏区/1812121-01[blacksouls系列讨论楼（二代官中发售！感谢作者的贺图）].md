@@ -1505,3 +1505,36 @@ BGM这方面其实也算是有点先入为主吧
 
 二代的跑图也为速通和不升级等玩法提供了很多规划空间
 
+
+*****
+
+####  红魔馆的糖  
+##### 137#       发表于 2025-8-20 17:54
+
+https://tieba.baidu.com/p/8339226158?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.83.1.2&amp;st=1755683382&amp;is_video=false&amp;unique=891A68A1A89861C2E7AAD033174FE479
+
+好像有很多人在玩2代，由于2代有大量的事件和有不少会因为主线流程错过的东西，分享一下贴吧的攻略文档。
+
+ps:2代建议前期先别乱逛，把时钟塔的boss杀了之后再乱逛，不然会有大量内容错过。
+
+自己打完一周目之后，可根据这个攻略，进入里线，然后衔接DLC1，和本作的精髓dlc3
+
+ https://b23.tv/Anwvw72
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 138#       发表于 2025-8-20 18:03
+
+2代不看攻略一周目太容易被狂鸟<strong>渡渡</strong>给制裁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 139#       发表于 2025-8-20 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296144&amp;ptid=1812121" target="_blank">虚无缥缈的分身 发表于 2025-8-20 18:03</a>
+2代不看攻略一周目太容易被狂鸟渡渡给制裁了</blockquote>
+我被制裁了，然后发现不坐火就不会推进时间，还好发现的早，硬是卡着最后一点推进值365里路从扑克女王城不坐火跑到时钟塔<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
