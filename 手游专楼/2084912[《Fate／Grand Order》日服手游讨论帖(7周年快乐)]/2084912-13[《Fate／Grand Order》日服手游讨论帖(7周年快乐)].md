@@ -1918,3 +1918,62 @@ T1和T3本来就要开打手宝具的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来所长是不是第1个只要2个人就能冲起来的角色？
 
+
+*****
+
+####  rooarr  
+##### 17929#       发表于 2025-8-20 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294427&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-20 12:58</a>
+说起来所长是不是第1个只要2个人就能冲起来的角色？</blockquote>
+2个人怎么冲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害上限太低了吧
+
+*****
+
+####  alucardcz  
+##### 17930#       发表于 2025-8-20 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294556&amp;ptid=2084912" target="_blank">rooarr 发表于 2025-8-20 13:20</a>
+
+2个人怎么冲伤害上限太低了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">第3个人带个能给30np的  例如莎翁 伤害还真不第 打白字单人也能有15-20万上下
+
+*****
+
+####  qixinno2  
+##### 17931#       发表于 2025-8-20 13:33
+
+ 本帖最后由 qixinno2 于 2025-8-20 13:39 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要一面血不超过3W左右只要带个CD服所长就能一个人单冲三面
+
+*****
+
+####  alucardcz  
+##### 17932#       发表于 2025-8-20 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294637&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-20 13:33</a>
+
+只要一面血不超过3W左右只要带个CD服所长就能一个人单冲三面</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这就是5宝大佬的实力吗 欧 不羡慕
+
+*****
+
+####  qixinno2  
+##### 17933#       发表于 2025-8-20 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294672&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-20 13:41</a>
+
+这就是5宝大佬的实力吗 欧 不羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不如狗萌新
+
+*****
+
+####  alucardcz  
+##### 17934#       发表于 2025-8-20 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294680&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-20 13:43</a>
+
+不如狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">莫尬黑 请叫我 非洲萌新
+
