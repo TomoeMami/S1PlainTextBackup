@@ -2833,3 +2833,34 @@ PlayStation.Blog发的采访，新信息很少。
 
 你吐出些少弱氣小受的室內行動都好
 
+
+*****
+
+####  梅斯之围  
+##### 277#       发表于 2025-8-20 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嫌谜语播片的原来不是我一个
+
+*****
+
+####  u2deack  
+##### 278#       发表于 2025-8-20 11:58
+
+这种播片真的是没一点意义，虽然有很多人爱纠结生化到底在讲什么，但是真的有什么必要么
+还是等后续看玩法怎么说吧
+
+
+*****
+
+####  luodang007  
+##### 279#       发表于 2025-8-20 12:01
+
+有vr就行，一定要有呀<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Muteki_Link  
+##### 280#       发表于 2025-8-20 12:03
+
+发错了，风怒
+
