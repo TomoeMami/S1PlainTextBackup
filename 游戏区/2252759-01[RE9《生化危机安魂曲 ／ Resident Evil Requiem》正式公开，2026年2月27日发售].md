@@ -2809,3 +2809,13 @@ PlayStation.Blog发的采访，新信息很少。
 
 2025-8-20 11:27 上传
 
+
+*****
+
+####  plok201  
+##### 275#       发表于 2025-8-20 11:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不知道为啥，这播片给我一种隔壁荒野那个，卖的好是因为大家喜欢我们的剧情的感觉
+
+比起游玩变革和新系统，他重点是我们这过场多有美剧悬疑感
+
