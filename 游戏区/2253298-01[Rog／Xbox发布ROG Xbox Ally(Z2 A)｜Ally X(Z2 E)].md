@@ -1220,3 +1220,11 @@ bilibili kun泄露的应该没错, 但是太抽象了
 
 ns2突然有性价比了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我是快乐小马甲  
+##### 117#       发表于 2025-8-20 23:33
+
+On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, Canada, Czech Republic, China (Xbox Ally X only), Denmark, Finland, France, Germany, Hong Kong, Italy, Ireland, Japan, Malaysia, Mexico, the Netherlands, New Zealand, Norway, Philippines, Poland, Portugal, Romania, Saudi Arabia, Singapore, South Korea, Spain, Sweden, Switzerland, **, Turkey, United Arab Emirates, United Kingdom, United States and Vietnam. 还是华硕关系硬
+

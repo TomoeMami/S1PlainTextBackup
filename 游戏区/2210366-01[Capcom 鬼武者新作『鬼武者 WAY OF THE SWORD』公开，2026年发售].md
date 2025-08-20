@@ -2130,3 +2130,13 @@ pv里的斩击音效听起来很差，但实机演示戴耳机听起来却超带
 这小次郎BOSS战也太帅了吧，怎么这都还有人不满意的？？好奇怪的弹幕和评论。 ...</blockquote>
 act观感和操作者的实力联系太大了（，有的菜鸡一闪都没用出来导致上面有的人都以为没传统一闪。
 
+
+*****
+
+####  karastar  
+##### 236#       发表于 2025-8-20 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68297708&amp;ptid=2210366" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-8-20 23:17</a>
+不过这游戏的剑戟部分就像是更慢但打击感更好的对马岛</blockquote>
+不太像对马岛吧，还是说动作比较写实？
+
