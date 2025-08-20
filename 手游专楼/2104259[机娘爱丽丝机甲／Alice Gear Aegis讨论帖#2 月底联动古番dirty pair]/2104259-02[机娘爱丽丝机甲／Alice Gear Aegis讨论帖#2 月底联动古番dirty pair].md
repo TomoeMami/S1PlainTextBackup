@@ -196,3 +196,13 @@
 
 另外此楼标题都落后两个版本了不更新一下？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1623#         楼主| 发表于 2025-8-20 17:30
+
+贴吧消息是直接北欧+明娜一起上，分池还是3人UP粪池不知道。另外我也觉得海德玛莉是想多了，上不人气静夏也不会上她的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+标题就算啦，没啥好更新的，直接等月底消息确认<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
