@@ -2016,3 +2016,13 @@ T1和T3本来就要开打手宝具的
 然后2024兽蕾直接被抢戏了，草生
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 17939#       发表于 2025-8-20 21:24
+
+原来不是我的错觉啊，这次活动剧情就是很长<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
