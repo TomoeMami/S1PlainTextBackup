@@ -1998,3 +1998,45 @@ https://www.youtube.com/watch?v=TtFrm59tUc4
 
 PV3：[https://m.youtube.com/watch?v=Q3Zg7KRdxfw](https://m.youtube.com/watch?v=Q3Zg7KRdxfw)
 
+
+*****
+
+####  outerish  
+##### 224#       发表于 2025-8-20 20:10
+
+r
+
+<img src="https://img.stage1st.com/forum/202508/20/200713wek6w1of1lv49zvw.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub2_model.webp</strong> (403.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:07 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200748w4hrqq0j7qsqh3xm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub4_model.webp</strong> (349.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:07 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200815n4px7z4rri4tmp4p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub3_model.webp</strong> (287.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:08 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200914targiaakm22rrrzv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_enemy2_model.webp</strong> (206.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:09 上传
+
+妖怪设计真不错
+
