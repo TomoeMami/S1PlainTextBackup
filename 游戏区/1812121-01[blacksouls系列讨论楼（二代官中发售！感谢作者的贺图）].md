@@ -1454,3 +1454,11 @@ BGM这方面其实也算是有点先入为主吧
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  LMBS  
+##### 133#       发表于 2025-8-20 11:51
+
+怎么连手柄都不支持
+

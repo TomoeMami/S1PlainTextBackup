@@ -125,3 +125,11 @@ M90感觉最有盼头，6发的轻穿泵动喷，不得在属性上狠狠补偿
 
 看了下SD上运行的画面很寒颤啊. 但是国区Steam价格太便宜了.
 
+
+*****
+
+####  ykyin09  
+##### 6945#       发表于 2025-8-20 11:52
+
+sd跑高难度跑不动的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我试过了，糊得要死
+
