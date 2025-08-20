@@ -1607,3 +1607,18 @@ https://tieba.baidu.com/p/8339226158?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 
 还有小红帽本来就是二周目以上才能看到，你一周目又调不了sen值
 
+
+*****
+
+####  ParadiseMartyr  
+##### 146#       发表于 2025-8-21 03:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298451&amp;ptid=1812121" target="_blank">姬茧墨 发表于 2025-8-21 03:24</a>
+无所谓的，因为要进H结局（DLC3）本来就刚需多周目，如果你之后想看差分还得主动去触发狂鸟唱歌，反而麻 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要这种世界性事件有点太破坏体验了…
+黑魂也就加个滤镜，他这直接把我见过没见过的NPC全图图了
+话说为啥我看海龟那边是直接自杀，她还毒死红心女王的那个狮鹫骑士<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+狂鸟又没来图图她俩在这儿干啥呢…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
