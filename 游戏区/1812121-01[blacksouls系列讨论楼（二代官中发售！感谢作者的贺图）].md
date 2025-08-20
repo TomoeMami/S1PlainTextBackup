@@ -1622,3 +1622,22 @@ https://tieba.baidu.com/p/8339226158?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  姬茧墨  
+##### 147#       发表于 2025-8-21 03:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298463&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-21 03:31</a>
+
+主要这种世界性事件有点太破坏体验了…
+
+黑魂也就加个滤镜，他这直接把我见过没见过的NPC全图图了
+
+话说为 ...</blockquote>
+BS2就是这样，本身就是一个以多周目为底层前提设计的游戏，箱庭的轮回循环也是剧情核心之一，还有我一周目虽然直接把狂鸟宰了，但还是完全错过了狮鹫骑士还有公爵夫人的支线，放宽心就好了，二周目才是这个游戏真正的开始
+
+我是打到了五周目才进里线<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别着急慢慢玩
+
+狂鸟唱歌是诱发誓约角色发狂，每个角色发狂的表现都不一样
+
