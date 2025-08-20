@@ -1382,3 +1382,30 @@ Dlc3很重要，一定要有
 
 入侵点位都是固定的，后面再来也一样
 
+
+*****
+
+####  检索者  
+##### 127#         楼主| 发表于 2025-8-20 08:45
+
+BGM这方面其实也算是有点先入为主吧
+
+对于玩的早的人，开荒期就是听着旧版BGM过的，自然会觉得旧版更好
+
+但贴吧新入坑的人里也有不少喜欢新版bgm的
+
+就我个人来说，新旧版各有优劣吧
+
+*****
+
+####  红魔馆的糖  
+##### 128#       发表于 2025-8-20 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292561&amp;ptid=1812121" target="_blank">检索者 发表于 2025-8-20 08:45</a>
+BGM这方面其实也算是有点先入为主吧
+
+对于玩的早的人，开荒期就是听着旧版BGM过的，自然会觉得旧版更好
+
+但贴 ...</blockquote>
+旧版是创作的时候选的自己认为最适合的，新版是因为版权问题强行改的，怎么想都是旧版更适合呀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
