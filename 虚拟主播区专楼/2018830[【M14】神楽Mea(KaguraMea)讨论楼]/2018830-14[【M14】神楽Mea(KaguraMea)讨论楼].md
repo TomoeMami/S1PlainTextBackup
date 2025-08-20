@@ -1899,3 +1899,14 @@ Tsuba酱，谢谢。
 
 唉唉唉再也不可能坐夜班巴士然后捡到jk麻酱了
 
+
+*****
+
+####  sino__unnko3  
+##### 19422#       发表于 2025-8-20 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289595&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-8-19 17:22</a>
+这段为调试相关，单独拉出，有待后续解读
+*号为魔法，数量太多不再修改</blockquote>
+是mudfish，但我也没用过，看了下gpt介绍就是游戏特化的提供服务商的魔法，跟小猫咪区别很大(我是在想你咩总不至于拿小猫咪来打游戏，配置更是说难听点100个人里面能有几个会调的就不错了)
+
