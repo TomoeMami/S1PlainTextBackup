@@ -144,3 +144,11 @@ sd跑高难度跑不动的<img src="https://static.stage1st.com/image/smiley/fac
 sd跑高难度跑不动的我试过了，糊得要死</blockquote>
 看了下数毛社的PS5 Pro HD2视频, 评论区都说PC版都优化爆炸<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">, CPU要求高的吓死人
 
+
+*****
+
+####  保科智子  
+##### 6947#       发表于 2025-8-20 16:16
+
+怕啥。总比隔壁荒野好。我e3v2都在跑，效果还不错。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

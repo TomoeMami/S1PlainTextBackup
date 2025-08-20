@@ -658,3 +658,20 @@ xhs看到的
 居然还能自己认出来是虹夏，现在的ai好强啊</blockquote>
 但眼镜厂是外星人的 ﹃_﹃〣 三眼星人
 
+
+*****
+
+####  ivanwhite2  
+##### 47#       发表于 2025-8-20 16:19
+
+<img src="https://messages-prod.27c852f3500f38c1e7786e2c9ff9e48f.r2.cloudflarestorage.com/6308f277-16b4-4afa-b6d5-90aa6073df67/1755677864145-cf7f4775-ba80-4a66-a426-02e2d738dbf9.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&amp;X-Amz-Content-Sha256=UNSIGNED-PAYLOAD&amp;X-Amz-Credential=c86e09ae0bc1d897b03dfaa30a8b51f3%2F20250820%2Fauto%2Fs3%2Faws4_request&amp;X-Amz-Date=20250820T081744Z&amp;X-Amz-Expires=3600&amp;X-Amz-Signature=e9d95d140c7f50f4e04e64762bca24b2d0cd8d2dd73202a3afe02878511889ee&amp;X-Amz-SignedHeaders=host&amp;x-amz-checksum-mode=ENABLED&amp;x-id=GetObject" id="aimg_tUOg8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)这这
+
+6f8943fbfbedab644bada264f736afc378311e39.jpg
+(304.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/161859xyeqcicefejkvvev.jpg" referrerpolicy="no-referrer">
+
