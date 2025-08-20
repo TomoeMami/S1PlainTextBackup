@@ -133,3 +133,14 @@ M90感觉最有盼头，6发的轻穿泵动喷，不得在属性上狠狠补偿
 
 sd跑高难度跑不动的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我试过了，糊得要死
 
+
+*****
+
+####  泰坦失足  
+##### 6946#       发表于 2025-8-20 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294028&amp;ptid=2170852" target="_blank">ykyin09 发表于 2025-8-20 11:52</a>
+
+sd跑高难度跑不动的我试过了，糊得要死</blockquote>
+看了下数毛社的PS5 Pro HD2视频, 评论区都说PC版都优化爆炸<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">, CPU要求高的吓死人
+
