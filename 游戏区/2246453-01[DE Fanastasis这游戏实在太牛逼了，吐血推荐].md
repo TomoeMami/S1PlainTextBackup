@@ -807,3 +807,16 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  瑟莉亚  
+##### 486#       发表于 2025-8-20 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68293251&amp;ptid=2246453" target="_blank">shanajiang 发表于 2025-8-20 10:14</a>
+
+多谢，是文件夹里四个apk都需要安装吗？
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 S1Next-鹅版 v2. ...</blockquote>
+我记得是只用装joiplay和那个RPGMPlugin名称的RPG Maker插件就行了。
+
