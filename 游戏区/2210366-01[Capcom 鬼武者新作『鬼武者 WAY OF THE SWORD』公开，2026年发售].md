@@ -1911,3 +1911,16 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 
 看了实机演示发现原来主打的是晕眩然后处决
 
+
+*****
+
+####  djw1984  
+##### 214#       发表于 2025-8-20 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68293700&amp;ptid=2210366" target="_blank">猫出没注意 发表于 2025-8-20 11:08</a>
+
+https://www.youtube.com/watch?v=TtFrm59tUc4
+
+一段实机视频</blockquote>
+看着有点一般，卡表实验作无疑
+
