@@ -2907,3 +2907,14 @@ PlayStation.Blog发的采访，新信息很少。
 
 不是说有线下试玩吗，有没有说啥时候。
 
+
+*****
+
+####  wsdbyh  
+##### 286#       发表于 2025-8-20 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294697&amp;ptid=2252759" target="_blank">bingo0716 发表于 2025-8-20 13:46</a>
+
+不是说有线下试玩吗，有没有说啥时候。</blockquote>
+大概今天晚上开始陆陆续续会有展会试玩视频放上来的了
+
