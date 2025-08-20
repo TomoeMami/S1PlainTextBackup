@@ -1486,3 +1486,22 @@ BGM这方面其实也算是有点先入为主吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  检索者  
+##### 136#         楼主| 发表于 2025-8-20 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294168&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-20 12:14</a>
+
+太搞了，我隐形身躯跑图直接跑出来个加9武器
+
+把一开始的boss打过给的三连斩刀+9了
+
+这下乱杀了</blockquote>
+这个系列在地图探索的开放度上做的还是挺不错的
+
+一代就能在不打任何boss的情况下直接跑到图书室那边刷兔子
+
+二代的跑图也为速通和不升级等玩法提供了很多规划空间
+
