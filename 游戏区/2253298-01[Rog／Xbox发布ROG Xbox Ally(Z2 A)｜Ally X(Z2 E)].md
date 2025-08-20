@@ -1181,3 +1181,19 @@ PSP也丑，也舒服
 🔸 ROG Xbox Ally: 549.99 USD
 🔹 ROG Xbox Ally X: 899.99 USD
 
+
+*****
+
+####  泰坦失足  
+##### 114#         楼主| 发表于 2025-8-20 17:46
+
+ 本帖最后由 泰坦失足 于 2025-8-20 17:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296037&amp;ptid=2253298" target="_blank">医生狼多 发表于 2025-8-20 17:36</a>
+
+🔸 ROG Xbox Ally: 549.99 USD
+
+🔹 ROG Xbox Ally X: 899.99 USD</blockquote>
+?????????????????????
+
+我没记错的话Xbox Ally的Z2Go连Z1E的Rog Ally都打不过吧
+
