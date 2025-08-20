@@ -326,3 +326,13 @@
 
 从理论分析上觉得定的cp性格契合，伏笔很多，从情感接受上每次看到逆后宫剧情就尴尬到头皮发麻
 
+
+*****
+
+####  ardente  
+##### 174#       发表于 2025-8-20 19:37
+
+这集演出居然是廖总
+
+syl，楼里没提的话，按习惯确实很难想象冰男副会长居然是要进感情线的主要角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
