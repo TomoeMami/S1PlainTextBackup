@@ -2791,3 +2791,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 没有预告 好耶，22号普池
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2512#       发表于 2025-8-21 00:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也挺好的，每天闲了就点一下，好过天天挂机刷61式
+
