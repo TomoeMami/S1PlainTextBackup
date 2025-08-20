@@ -795,3 +795,15 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 —— 来自 Xiaomi 24129PN74C, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 安卓机的话可以用我415L发的joiplay模拟器
 
+
+*****
+
+####  shanajiang  
+##### 485#       发表于 2025-8-20 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292971&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-8-20 09:40</a>
+安卓机的话可以用我415L发的joiplay模拟器</blockquote>
+多谢，是文件夹里四个apk都需要安装吗？
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
