@@ -1228,3 +1228,13 @@ ns2突然有性价比了。<img src="https://static.stage1st.com/image/smiley/fa
 
 On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, Canada, Czech Republic, China (Xbox Ally X only), Denmark, Finland, France, Germany, Hong Kong, Italy, Ireland, Japan, Malaysia, Mexico, the Netherlands, New Zealand, Norway, Philippines, Poland, Portugal, Romania, Saudi Arabia, Singapore, South Korea, Spain, Sweden, Switzerland, **, Turkey, United Arab Emirates, United Kingdom, United States and Vietnam. 还是华硕关系硬
 
+
+*****
+
+####  fbman  
+##### 118#       发表于 2025-8-20 23:39
+
+居然有国行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
