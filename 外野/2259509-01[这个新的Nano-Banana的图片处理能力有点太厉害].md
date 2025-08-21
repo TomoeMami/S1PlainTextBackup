@@ -765,3 +765,12 @@ xhs看到的
 ——</blockquote>
 那个.ORG的？我也差点被骗了，要不是直接给他家中转打广告这行为太诡异怎么都说不通我大概就从了，现在AI写官网真是利好骗子<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蔡小贫  
+##### 54#       发表于 2025-8-21 14:42
+
+不错不错，好玩，谢谢楼主
+<img src="https://messages-prod.27c852f3500f38c1e7786e2c9ff9e48f.r2.cloudflarestorage.com/e212f2a9-c82e-4fd4-ab09-6d73f73d67bc/1755758481953-1223e109-2cd1-4287-b91c-5fc7b448f340.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&amp;X-Amz-Content-Sha256=UNSIGNED-PAYLOAD&amp;X-Amz-Credential=c86e09ae0bc1d897b03dfaa30a8b51f3%2F20250821%2Fauto%2Fs3%2Faws4_request&amp;X-Amz-Date=20250821T064122Z&amp;X-Amz-Expires=3600&amp;X-Amz-Signature=b6913fc16f65aa619f9c6be02725ceaaea5c8909d72811587e2f92c3a242d121&amp;X-Amz-SignedHeaders=host&amp;x-amz-checksum-mode=ENABLED&amp;x-id=GetObject" id="aimg_yvGcD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

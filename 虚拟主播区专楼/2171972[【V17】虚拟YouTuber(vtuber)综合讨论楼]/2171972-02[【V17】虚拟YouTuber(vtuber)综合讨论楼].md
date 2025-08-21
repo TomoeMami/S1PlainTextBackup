@@ -146,3 +146,14 @@ Fan Club会员们好久不见，这里是栞叶琉璃。不对，我最近经常
 
 当然也可能是护士谷那个兔子太丑太敷衍了我没感受到出谷的好
 
+
+*****
+
+####  NBXX  
+##### 1504#       发表于 2025-8-21 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68289148&amp;ptid=2171972" target="_blank">虚无缥缈的分身 发表于 2025-8-19 16:00</a>
+
+最近韩国是不是出了不少3d的套皮团，最近有刷到一个大概是c位长得像千早爱音的韩国虚拟人团，感觉模型技术 ...</blockquote>
+也不能说是最近出的多，只是最近来B站活动的有不少，你说的这个应该是PARABLE旗下今年推出的新团 IRISÉ 。模型风格是标准的SOOP量产风，去[SOOP的虚拟区](https://www.sooplive.co.kr/directory/category/%EB%B2%84%EC%B6%94%EC%96%BC/live)看可以找到很多类似的。
+
