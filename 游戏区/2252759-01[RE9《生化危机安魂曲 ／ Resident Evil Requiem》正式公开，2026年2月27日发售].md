@@ -3024,3 +3024,23 @@ PlayStation.Blog发的采访，新信息很少。
 
 外网这猜想还挺地狱的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 299#       发表于 2025-8-21 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299728&amp;ptid=2252759" target="_blank">JOJO42 发表于 2025-8-21 11:24</a>
+
+外网这猜想还挺地狱的</blockquote>
+
+我觉得这算明示吧，甚至更像8代克里斯黑化那种烟雾弹。不过alyssa从ps2版那个冷峻御姐变成路路人水平的洋bba还是太遗憾了
+
+<img src="https://img.stage1st.com/forum/202508/21/124528rzjf1xu4j2cr2jfb.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0538.jpeg</strong> (68.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 12:45 上传
+
