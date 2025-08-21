@@ -2505,3 +2505,23 @@ SC</blockquote>
 
 BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41183#       发表于 2025-8-21 15:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/21/154445lvriauqnfbpqgqzp.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-21_15-44-07.jpg</strong> (160.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 15:44 上传
+
+       [https://x.com/comic_growl/status/1958364714997784993](https://x.com/comic_growl/status/1958364714997784993)
+
+       [https://comic-growl.com/episodes/762b2141d3cff/](https://comic-growl.com/episodes/762b2141d3cff/)
+
