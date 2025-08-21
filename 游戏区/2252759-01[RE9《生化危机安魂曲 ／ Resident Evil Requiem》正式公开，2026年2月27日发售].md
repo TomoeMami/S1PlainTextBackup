@@ -2969,3 +2969,18 @@ PlayStation.Blog发的采访，新信息很少。
 
 不過今集她媽媽也有出場，不要說當年她未死透，一直被當苗床吧...(又玩生7劇情?生6的雪莉2人中期被捉後都好像說測試了半年)
 
+
+*****
+
+####  洛亚替身  
+##### 293#       发表于 2025-8-21 09:43
+
+不聊剧情，实机本身给我感觉像小岛的PT，卡婊上代人偶宅邸试手，这部有可能大半部流程都能把恐怖要素做到和人偶宅邸一个水平<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 294#       发表于 2025-8-21 09:44
+
+女主太菜鸡了，一惊一乍的。看实机的时候还没注意到怪，先被女主的尖叫给吓到了<img src="https://static.stage1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
