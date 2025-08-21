@@ -896,3 +896,16 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RinC  
+##### 1568#       发表于 2025-8-21 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301594&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-8-21 17:21</a>
+
+随时间掉的，大概10秒左右掉一层，它叠满三层后数值很高。
+
+刚才说的叠层机制貌似有误，暂时先编辑了，但降 ...</blockquote>
+看到有人说是散步逛街时打他会给他叠层，不知道真假
+
