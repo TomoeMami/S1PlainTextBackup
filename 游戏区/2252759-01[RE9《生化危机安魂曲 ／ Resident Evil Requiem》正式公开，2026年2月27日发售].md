@@ -3178,3 +3178,11 @@ TGS里昂会登场吧。。。。。。。。。
 
 这大只怪包是Alyssa的，而且肯定后面还会有残存意识认出女主保护女儿牺牲自己升华母爱的烂俗桥段
 
+
+*****
+
+####  dhddhh  
+##### 312#       发表于 2025-8-21 22:17
+
+对re引擎从7开始到现在的9的画面表现已经有些厌倦了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真人脸模这路线也顺便微调一下。
+

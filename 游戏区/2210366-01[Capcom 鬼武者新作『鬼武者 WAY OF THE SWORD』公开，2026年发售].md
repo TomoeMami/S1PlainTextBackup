@@ -2435,3 +2435,11 @@ a9转发的视频里我看到有一次对杂兵的一闪应该就是普通一闪
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kalavinka  
+##### 264#       发表于 2025-8-21 22:13
+
+steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合一闪应该会很爽<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
