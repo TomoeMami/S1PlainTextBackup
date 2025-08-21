@@ -1319,3 +1319,15 @@ bilibilikun的爆料准确度还是可以的，899售价首发想要799估计挺
 
 掌机本身没啥意思，也就那个精简版win11有点看头。如果好用的话，我想给我的幻x装一个
 
+
+*****
+
+####  大暴死  
+##### 126#       发表于 2025-8-21 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298759&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:39</a>
+z2e那款按照传言来看最低799</blockquote>
+目前z2e版的微星claw A8，pdd百补5k5，而国内零售指导价是6999，欧洲卖999欧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
