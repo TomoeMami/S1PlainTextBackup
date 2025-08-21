@@ -1092,3 +1092,17 @@ zun好多年没出过这么有意思的角色了吧
 
 4面和6面boss这次虽然又是立本民俗那套，但本身人设以zun的水平来说是高水准了，5面老熟人反而感觉差了些。EX面虽然人设平平，但这设定太有梗了，连现在看到的同人图都是梗图居多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 84#       发表于 2025-8-21 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299158&amp;ptid=2251051" target="_blank">ef6270 发表于 2025-8-21 09:59</a>
+原本以为他扯AI是想蹭一下热点，没想到还真有点想法，这作在部分设定上还挺对我胃口的。
+
+可惜老酒鬼年龄 ...</blockquote>
+这次故事是ai倒屎进幻想乡然后幻想乡满了把屎倒进月都，这种题材太有拓展性了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

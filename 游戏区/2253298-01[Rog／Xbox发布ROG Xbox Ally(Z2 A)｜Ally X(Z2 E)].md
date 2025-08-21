@@ -1345,3 +1345,15 @@ https://www.youtube.com/watch?v=VTaboYwSyuc
 我的 Xbox 账户里拥有 559 款游 ...</blockquote>
 下一代Xbox直接上win11系统吧，这样就不用纠结什么XPA了
 
+
+*****
+
+####  itis1999  
+##### 128#       发表于 2025-8-21 11:40
+
+<blockquote>大暴死 发表于 2025-8-21 09:56
+目前z2e版的微星claw A8，pdd百补5k5，而国内零售指导价是6999，欧洲卖999欧
+
+—— 来自 Xiaomi 25019PNF ...</blockquote>
+是的，国外就算卖的贵，国内也可能会便宜一点
+
