@@ -1264,3 +1264,17 @@ On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, 
 我关心厚度重量，还是sd那种举重机那就算了。</blockquote>
 高性能加上估计超过两小时的续航，重量低不了
 
+
+*****
+
+####  itis1999  
+##### 121#       发表于 2025-8-21 08:39
+
+<blockquote>泰坦失足 发表于 2025-6-9 10:23
+Z2A何止是SD的对手, 性能都和SD差不多
+
+到时候看看价格如何. 400刀的话甚至更低的话, 感觉有点戏. 
+
+Z2E那 ...</blockquote>
+z2e那款按照传言来看最低799
+
