@@ -884,3 +884,15 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 三狗好像每次剑插地接地板火都会给自己上个加攻，然后叠三层。但有时候打着打着就掉一层，不知道怎么降的，如果能稳定降下来还是能处理的
 
+
+*****
+
+####  usodakedo  
+##### 1567#       发表于 2025-8-21 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301037&amp;ptid=2210352" target="_blank">RinC 发表于 2025-8-21 15:52</a>
+三狗好像每次剑插地接地板火都会给自己上个加攻，然后叠三层。但有时候打着打着就掉一层，不知道怎么降的， ...</blockquote>
+随时间掉的，大概10秒左右掉一层，它叠满三层后数值很高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
