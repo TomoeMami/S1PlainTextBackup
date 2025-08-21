@@ -1069,3 +1069,18 @@ zun好多年没出过这么有意思的角色了吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ef6270  
+##### 82#       发表于 2025-8-21 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68297659&amp;ptid=2251051" target="_blank">希望之异热同心 发表于 2025-8-20 23:04</a>
+
+zun好多年没出过这么有意思的角色了吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+原本以为他扯AI是想蹭一下热点，没想到还真有点想法，这作在部分设定上还挺对我胃口的。
+
+可惜老酒鬼年龄大了游戏制作水准下滑，我自己的游戏能力也衰退不少，只能放弃亲自动手玩玩变成云玩家了。
+
