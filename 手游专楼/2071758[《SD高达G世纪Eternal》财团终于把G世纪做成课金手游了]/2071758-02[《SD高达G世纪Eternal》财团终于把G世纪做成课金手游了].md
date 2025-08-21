@@ -2817,3 +2817,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 没有新机器么，太好了可以储下钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 2515#       发表于 2025-8-21 18:23
+
+我才发现能在手动模式下直接关闭动画不用skip的设置了
+
