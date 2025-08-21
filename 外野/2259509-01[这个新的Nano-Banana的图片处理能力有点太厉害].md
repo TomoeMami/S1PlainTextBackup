@@ -774,3 +774,19 @@ xhs看到的
 不错不错，好玩，谢谢楼主
 <img src="https://messages-prod.27c852f3500f38c1e7786e2c9ff9e48f.r2.cloudflarestorage.com/e212f2a9-c82e-4fd4-ab09-6d73f73d67bc/1755758481953-1223e109-2cd1-4287-b91c-5fc7b448f340.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&amp;X-Amz-Content-Sha256=UNSIGNED-PAYLOAD&amp;X-Amz-Credential=c86e09ae0bc1d897b03dfaa30a8b51f3%2F20250821%2Fauto%2Fs3%2Faws4_request&amp;X-Amz-Date=20250821T064122Z&amp;X-Amz-Expires=3600&amp;X-Amz-Signature=b6913fc16f65aa619f9c6be02725ceaaea5c8909d72811587e2f92c3a242d121&amp;X-Amz-SignedHeaders=host&amp;x-amz-checksum-mode=ENABLED&amp;x-id=GetObject" id="aimg_yvGcD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  DiAria  
+##### 55#       发表于 2025-8-21 14:57
+
+<img src="https://img.stage1st.com/forum/202508/21/145702dkkb4v1c5m4pekqc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 14:57 上传
+
+确实断崖的强 和其他模型相比
+
