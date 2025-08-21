@@ -636,3 +636,14 @@ Suwayomi官方讨论群组：[https://discord.gg/DDZdqZWaHA](https://discord.gg/
 
 请问我插件下了以后 软件退出再进就没有了，每次漫画源要重新下载怎么办？
 
+
+*****
+
+####  azbhg1  
+##### 55#         楼主| 发表于 2025-8-22 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301065&amp;ptid=2254551" target="_blank">qyc96 发表于 2025-8-21 15:56</a>
+
+请问我插件下了以后 软件退出再进就没有了，每次漫画源要重新下载怎么办？ ...</blockquote>
+我这没遇到过这种情况，要不你把设置里的插件安装方式都切换一下试一下
+
