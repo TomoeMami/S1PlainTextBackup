@@ -272,3 +272,26 @@ DB大概率是24号，我估计要奏章4后再抽<img src="https://static.stage
 
 额外2树点了一半，现在是不是该为了学姐去点额外1了啊
 
+
+*****
+
+####  飛霞精灵  
+##### 47389#       发表于 2025-8-21 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68286633&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2025-8-19 08:09</a>
+
+学姐和徐福都是满宝，那谁0宝，放弃了...</blockquote>
+帮你一下：满破很东北雨姐<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|现在每天一钻看缘分了|
+
+查看全部评分
+

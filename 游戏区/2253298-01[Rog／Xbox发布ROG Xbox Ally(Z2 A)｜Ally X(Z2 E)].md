@@ -1298,3 +1298,16 @@ z2e那款按照传言来看最低799
 z2e那款按照传言来看最低799</blockquote>
 bilibilikun的爆料准确度还是可以的，899售价首发想要799估计挺难的
 
+
+*****
+
+####  zid99825  
+##### 124#       发表于 2025-8-21 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298819&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:54</a>
+这玩意又不是只能玩微软游戏，ms不可能亏本卖机器的，甚至可能华硕也有话语权，更不可能不赚机器钱了，反 ...</blockquote>
+这东西就是华硕在卖，微软那边只是partner，当然不可能亏本卖的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除了那个优化版的win11，掌机的常规渲染分辨率正好在AutoSR的好球区，只要效果好就行，这下评测sd没法用720p的渲染占优势了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
