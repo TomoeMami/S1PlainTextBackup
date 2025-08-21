@@ -3186,3 +3186,15 @@ TGS里昂会登场吧。。。。。。。。。
 
 对re引擎从7开始到现在的9的画面表现已经有些厌倦了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真人脸模这路线也顺便微调一下。
 
+
+*****
+
+####  kalavinka  
+##### 313#       发表于 2025-8-21 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301868&amp;ptid=2252759" target="_blank">DelayNoMore 发表于 2025-8-21 18:07</a>
+开锁怎么还是上世纪的单独一个馃攽演出，独立游戏还算了，这是3a啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+开锁转阀门这些应该是故意的吧，re祖传之法，以后估计也不会改<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
