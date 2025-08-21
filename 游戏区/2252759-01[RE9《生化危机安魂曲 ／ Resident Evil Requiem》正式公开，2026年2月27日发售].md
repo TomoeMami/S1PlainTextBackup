@@ -3001,3 +3001,26 @@ PlayStation.Blog发的采访，新信息很少。
 
 这玩意一点兴趣没有，看着不是那种战点式，而是类似寂静岭那种模式<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chris1987  
+##### 297#       发表于 2025-8-21 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第三视角下的女主太喜感了。。
+
+*****
+
+####  JOJO42  
+##### 298#       发表于 2025-8-21 11:24
+
+<img src="https://img.stage1st.com/forum/202508/21/112351sdqvrafd4tazv7jf.jpg" referrerpolicy="no-referrer">
+
+<strong>GyzaC1cXMAEJKs-.jpg</strong> (205.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 11:23 上传
+
+外网这猜想还挺地狱的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
