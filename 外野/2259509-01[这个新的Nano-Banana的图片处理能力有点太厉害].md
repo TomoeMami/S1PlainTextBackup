@@ -869,3 +869,13 @@ xhs看到的
 
 有没有比较好用的ai部署教程，我也想实现ai色图自由
 
+
+*****
+
+####  bonnwang  
+##### 61#       发表于 2025-8-21 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68302662&amp;ptid=2259509" target="_blank">憧憬鲨 发表于 2025-8-21 21:14</a>
+有没有比较好用的ai部署教程，我也想实现ai色图自由</blockquote>
+b站搜秋叶
+
