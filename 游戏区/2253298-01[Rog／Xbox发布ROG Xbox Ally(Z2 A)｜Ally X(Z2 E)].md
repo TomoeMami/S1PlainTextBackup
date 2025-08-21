@@ -1238,3 +1238,19 @@ On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  泰坦失足  
+##### 119#         楼主| 发表于 2025-8-21 08:02
+
+[https://www.youtube.com/watch?v=VTaboYwSyuc](https://www.youtube.com/watch?v=VTaboYwSyuc)
+
+油 管评论比我想象的还刻薄<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我的 Xbox 账户里拥有 559 款游戏——只有 25 款支持 Xbox Play Anywhere。把这台设备称为“Xbox”毫无道理，因为它无法运行 95% 的 Xbox 游戏。它应该被称为“PC ROG Ally”或“Windows ROG Ally”。把“Xbox”作为这款掌机的名字极具误导性。想象一下家长买来当礼物，结果发现孩子根本不能在上面玩 Xbox 游戏 
+
+我唯一的问题是，Sarah Bond 在 03:32 说：“如果这是原生 PC 游戏？你就能直接在那上面玩。是仅限主机的游戏？你就能从云端进行串流……” 事情是这样的……我不想把我为 Xbox 购买的游戏通过云端来串流。我想大家都会同意，如果你买了一个 Xbox 游戏，你就希望能够在这台掌机上原生安装并游玩，而不是依赖云端串流
+
+我记得那个有胡子的家伙。“Series S 能做到 Series X 能做的事情，只是分辨率是 1440p。” 他们说的每一句话都不值得信任。
+
