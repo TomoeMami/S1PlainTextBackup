@@ -804,3 +804,28 @@ xhs看到的
 
 2025-8-21 15:11 上传
 
+
+*****
+
+####  Eadric  
+##### 57#       发表于 2025-8-21 15:56
+
+这么复杂都可以，牛啊
+
+<img src="https://img.stage1st.com/forum/202508/21/155639a1buyodfoib9z4cw.png" referrerpolicy="no-referrer">
+
+<strong>nano-banana_A_professional_produ1.png</strong> (177.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 15:56 上传
+
+5379350c19e374224a67906b338e62fa37976886.jpg
+(359.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 15:56 上传
+
+<img src="https://img.stage1st.com/forum/202508/21/155639aujbmmsjbp1t131m.jpg" referrerpolicy="no-referrer">
+
