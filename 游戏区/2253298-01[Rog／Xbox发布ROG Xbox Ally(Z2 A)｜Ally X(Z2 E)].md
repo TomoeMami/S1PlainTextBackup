@@ -1254,3 +1254,13 @@ On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, 
 
 我记得那个有胡子的家伙。“Series S 能做到 Series X 能做的事情，只是分辨率是 1440p。” 他们说的每一句话都不值得信任。
 
+
+*****
+
+####  itis1999  
+##### 120#       发表于 2025-8-21 08:21
+
+<blockquote>nage560 发表于 2025-6-9 07:41
+我关心厚度重量，还是sd那种举重机那就算了。</blockquote>
+高性能加上估计超过两小时的续航，重量低不了
+
