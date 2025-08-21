@@ -1780,3 +1780,22 @@ sen值代表的是格林的疯狂程度， ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  姬茧墨  
+##### 160#       发表于 2025-8-21 15:29
+
+ 本帖最后由 姬茧墨 于 2025-8-21 15:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300732&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-8-21 15:03</a>
+
+不是，一代d结局都夺权了
+
+二代搞这么多折磨主角么。
+
+刚刚约会看电影三人茶会有剧情大概有点猜到了，然后 ...</blockquote>
+因为奈亚和茶会爱丽丝并非在同一立场上
+
+这个里线F结局里有详细解释，F结局相当于告诉你了不思议之国这个箱庭的本质，F结局初见还是挺震撼的我就不过多剧透了
+正因为奈亚是不懂爱的支配者，所以她才对让茶会爱丽丝陷入恋爱的格林如此着迷
+
