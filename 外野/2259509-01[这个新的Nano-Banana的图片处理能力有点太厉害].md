@@ -750,3 +750,18 @@ xhs看到的
 
 就是定价太贵了……
 
+
+*****
+
+####  mintslime  
+##### 53#       发表于 2025-8-21 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299742&amp;ptid=2259509" target="_blank">西风之哀 发表于 2025-8-21 11:26</a>
+
+官网已经明牌是google的了。
+
+就是定价太贵了……
+
+——</blockquote>
+那个.ORG的？我也差点被骗了，要不是直接给他家中转打广告这行为太诡异怎么都说不通我大概就从了，现在AI写官网真是利好骗子<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
