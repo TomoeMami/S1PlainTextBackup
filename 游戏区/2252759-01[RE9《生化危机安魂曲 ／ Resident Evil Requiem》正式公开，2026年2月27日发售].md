@@ -2984,3 +2984,20 @@ PlayStation.Blog发的采访，新信息很少。
 
 女主太菜鸡了，一惊一乍的。看实机的时候还没注意到怪，先被女主的尖叫给吓到了<img src="https://static.stage1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yidian  
+##### 295#       发表于 2025-8-21 10:55
+
+<blockquote>洛亚替身 发表于 2025-8-21 09:43
+不聊剧情，实机本身给我感觉像小岛的PT，卡婊上代人偶宅邸试手，这部有可能大半部流程都能把恐怖要素做到和 ...</blockquote>
+感觉一点没pt氛围像村庄翻版，而且我看不是可以切换人称吗？这不就是和村庄一样，我怀疑剧情也差不多，唯一疑惑就是这是故事从哪开始接的
+
+*****
+
+####  红魔馆的糖  
+##### 296#       发表于 2025-8-21 10:59
+
+这玩意一点兴趣没有，看着不是那种战点式，而是类似寂静岭那种模式<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

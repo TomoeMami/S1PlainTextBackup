@@ -2799,3 +2799,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也挺好的，每天闲了就点一下，好过天天挂机刷61式
 
+
+*****
+
+####  无念  
+##### 2513#       发表于 2025-8-21 10:56
+
+不错了，点三次就有快100台铁球，这个效率已经可以去换凤凰了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

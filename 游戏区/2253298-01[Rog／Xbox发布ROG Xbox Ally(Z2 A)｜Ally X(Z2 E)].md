@@ -1331,3 +1331,17 @@ z2e那款按照传言来看最低799</blockquote>
 
 —— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡普空  
+##### 127#       发表于 2025-8-21 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298696&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-8-21 08:02</a>
+https://www.youtube.com/watch?v=VTaboYwSyuc
+
+油 管评论比我想象的还刻薄
+
+我的 Xbox 账户里拥有 559 款游 ...</blockquote>
+下一代Xbox直接上win11系统吧，这样就不用纠结什么XPA了
+
