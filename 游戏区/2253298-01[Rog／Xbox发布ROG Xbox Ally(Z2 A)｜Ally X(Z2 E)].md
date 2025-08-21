@@ -1365,3 +1365,13 @@ https://www.youtube.com/watch?v=VTaboYwSyuc
 
 这是历史上第一次发生一个公司的同世代掌机比主机还贵，而且还贵不少的情况吧？
 
+
+*****
+
+####  4869Bi  
+##### 130#       发表于 2025-8-21 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299982&amp;ptid=2253298" target="_blank">usoulo 发表于 2025-8-21 12:12</a>
+这是历史上第一次发生一个公司的同世代掌机比主机还贵，而且还贵不少的情况吧？ ...</blockquote>
+ROG的主机比掌机贵
+
