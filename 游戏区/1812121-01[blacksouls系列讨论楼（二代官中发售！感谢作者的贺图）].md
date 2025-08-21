@@ -1816,3 +1816,15 @@ sen值代表的是格林的疯狂程度， ...</blockquote>
 
 而爱丽丝01本人就是个受害者，她才是最不希望变成现在这状况的人，迷宫那剧情已经是正常情况下能做出最大程度的反抗了。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 162#       发表于 2025-8-21 16:12
+
+<a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301126&amp;ptid=1812121" target="_blank">quote][tatara 发表于 2025-8-21 16:06</a>
+
+DLC2迷宫么…那玩意试了一下全是随机数，深度进度还是随机推进的，试了一下三十多层都没出深度1进深度2，没耐心刷深度了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
