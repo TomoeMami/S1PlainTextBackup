@@ -1288,3 +1288,13 @@ z2e那款按照传言来看最低799
 难说，看微软什么态度吧，对于生态来说，掌机的价格是很重要的因素，老任和 valve 还算比较拎得清的，掌 ...</blockquote>
 这玩意又不是只能玩微软游戏，ms不可能亏本卖机器的，甚至可能华硕也有话语权，更不可能不赚机器钱了，反正我是当便携电脑买，类比高端轻薄本价格贵也能接受
 
+
+*****
+
+####  clyde-wang  
+##### 123#       发表于 2025-8-21 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298759&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:39</a>
+z2e那款按照传言来看最低799</blockquote>
+bilibilikun的爆料准确度还是可以的，899售价首发想要799估计挺难的
+
