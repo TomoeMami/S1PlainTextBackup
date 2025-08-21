@@ -943,3 +943,13 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 三狗除了红点集火难处理点和数值很爆以外不是挺一板一眼的boss吗，基本招式都是靠滚处理掉。从我的角度看反正比山羊那种几乎没有解法的鬼屋大乱斗好点 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JackTitor  
+##### 1573#       发表于 2025-8-21 21:54
+
+数值，就纯数值，伤害太爆了，感觉是灵活版一直复读砸地的大嘴<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
