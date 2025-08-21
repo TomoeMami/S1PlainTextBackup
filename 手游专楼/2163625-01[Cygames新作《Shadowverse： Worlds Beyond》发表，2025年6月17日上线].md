@@ -267,3 +267,11 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 国际服玩跳费鸡翅龙打大赛，第一次尝试被红宝石虫妖和天糊快梦踢死了，第二次吃了2个皇有1个人偶仇1个快梦进A了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，加强龙族刻不容缓
 
+
+*****
+
+####  神他妈的开胃菜  
+##### 667#       发表于 2025-8-21 20:57
+
+连续三期通行证都是歪瓜裂枣<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

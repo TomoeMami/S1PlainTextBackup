@@ -2112,3 +2112,35 @@ ex戴冠战什么时候继续开？又攒了点石头战月批
 
 改用模拟器玩了，西哥那个本动一次闪退一次实在顶不顺，就是心疼白天的体力，浪费了。
 
+
+*****
+
+####  quanlix  
+##### 17949#       发表于 2025-8-21 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301574&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2025-8-21 17:17</a>
+
+ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
+8.27~9.3免门票
+
+*****
+
+####  希望之花  
+##### 17950#       发表于 2025-8-21 18:18
+
+蚊子腿也单抽出了个莫德雷德<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 17951#       发表于 2025-8-21 18:46
+
+楼友太欧，太羡慕了，非酋也就出过两4星<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 17952#       发表于 2025-8-21 21:01
+
+只有我每天都是三星？
+
