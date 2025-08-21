@@ -3198,3 +3198,19 @@ TGS里昂会登场吧。。。。。。。。。
 —— 来自 鹅球 v3.5.99-alpha ...</blockquote>
 开锁转阀门这些应该是故意的吧，re祖传之法，以后估计也不会改<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 314#       发表于 2025-8-22 06:50
+
+阿丽莎还不如序章就退场，爆发难得有个角色进正传结果被霍霍成怪物也太惨了
+
+<img src="https://img.stage1st.com/forum/202508/22/074920k888t60bfxyu2t8x.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (358 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-8-22 06:49 上传
+
