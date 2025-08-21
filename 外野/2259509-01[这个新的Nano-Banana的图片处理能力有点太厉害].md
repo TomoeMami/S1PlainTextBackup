@@ -790,3 +790,17 @@ xhs看到的
 
 确实断崖的强 和其他模型相比
 
+
+*****
+
+####  Eadric  
+##### 56#       发表于 2025-8-21 15:11
+
+<img src="https://img.stage1st.com/forum/202508/21/151127x6n8adtyxanzg0tw.png" referrerpolicy="no-referrer">
+
+<strong>nano-banana_A_professional_produ.png</strong> (110.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 15:11 上传
+
