@@ -2425,3 +2425,13 @@ a9转发的视频里我看到有一次对杂兵的一闪应该就是普通一闪
 
 节奏有点慢，那种剑刃交锋的感觉很棒，感觉很独特
 
+
+*****
+
+####  夜雨秋水  
+##### 263#       发表于 2025-8-21 21:21
+
+佐佐木必是可控吧，两个可控地图利用率翻倍<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
