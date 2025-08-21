@@ -2541,3 +2541,11 @@ BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.sta
 <img src="https://p.sda1.dev/26/e24294a07ac78eba9421353f2fa11359/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/26/75348ae230208bb0e477a3bd05eb2078/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41185#       发表于 2025-8-21 20:38
+
+剧情本来就不行，画风也过于生草<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
