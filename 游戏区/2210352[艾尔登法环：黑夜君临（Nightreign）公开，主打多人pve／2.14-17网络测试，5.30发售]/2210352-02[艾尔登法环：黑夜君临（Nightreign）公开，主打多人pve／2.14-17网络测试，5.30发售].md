@@ -973,3 +973,13 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1576#       发表于 2025-8-21 23:36
+
+ 本帖最后由 桥洞底下盖小被 于 2025-8-21 23:39 编辑 
+
+好玩程度盖棺定论：羊头神！＞大嘴≈人马＞慧心虫＝b三狼＞＞＞冰龙＞＞＞＞＞＞＞＞水泡<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
