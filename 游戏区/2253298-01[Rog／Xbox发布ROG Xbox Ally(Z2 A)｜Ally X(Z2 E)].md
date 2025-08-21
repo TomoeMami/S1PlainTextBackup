@@ -1311,3 +1311,11 @@ bilibilikun的爆料准确度还是可以的，899售价首发想要799估计挺
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dududa  
+##### 125#       发表于 2025-8-21 09:19
+
+掌机本身没啥意思，也就那个精简版win11有点看头。如果好用的话，我想给我的幻x装一个
+
