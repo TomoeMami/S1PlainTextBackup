@@ -3044,3 +3044,14 @@ PlayStation.Blog发的采访，新信息很少。
 
 2025-8-21 12:45 上传
 
+
+*****
+
+####  JOJO42  
+##### 300#       发表于 2025-8-21 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300116&amp;ptid=2252759" target="_blank">zqqwe 发表于 2025-8-21 12:44</a>
+
+我觉得这算明示吧，甚至更像8代克里斯黑化那种烟雾弹。不过alyssa从ps2版那个冷峻御姐变成路路人水平的洋 ...</blockquote>
+估计这代对应上代父爱如山，最后是母爱终极牺牲了吧
+
