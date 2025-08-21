@@ -19,3 +19,26 @@
 
 今天怎么回事
 
+
+*****
+
+####  holofan  
+##### 11158#       发表于 2025-8-19 20:02
+
+<img src="https://img.stage1st.com/forum/202508/19/200235hohuttsoxooqhmht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-19 20:02 上传
+
+*****
+
+####  holofan  
+##### 11159#       发表于 2025-8-21 20:27
+
+8DX现在挂逼和捣乱的人比例越来越高了，毕竟正常人受不了这个鬼环境已经去world了，8DX的线上匹配以后基本成为地狱了
+
+不过说起来上次播8DX的时候记得说上次是最后一次播8DX……
+
