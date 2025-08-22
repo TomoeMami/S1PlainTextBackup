@@ -2904,3 +2904,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fireadol  
+##### 2523#       发表于 2025-8-22 13:23
+
+打上大师就撤了，这期没拉克丝玩不了一点<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
