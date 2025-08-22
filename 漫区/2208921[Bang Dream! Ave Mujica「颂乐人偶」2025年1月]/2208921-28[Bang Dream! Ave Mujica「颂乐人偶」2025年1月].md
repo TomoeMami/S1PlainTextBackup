@@ -2549,3 +2549,42 @@ BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.sta
 
 剧情本来就不行，画风也过于生草<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41186#       发表于 2025-8-22 19:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/22/192357uqgzk6cq6qxcg6k6.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-22_19-22-59.jpg</strong> (274.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-22 19:23 上传
+
+       [https://x.com/bang_dream_info/status/1958823965406712002](https://x.com/bang_dream_info/status/1958823965406712002)
+
+       [https://t.co/y4egz7W35a](https://t.co/y4egz7W35a)
+
+       [https://t.co/21TPbEf3wg](https://t.co/21TPbEf3wg)
+
+*****
+
+####  堀内爱里衣  
+##### 41187#       发表于 2025-8-22 19:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/22/192734kbo0ac62cwqolcan.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-22_19-26-15.jpg</strong> (276.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-22 19:27 上传
+
+       [https://x.com/BUSHIM_ongaku/status/1958766231034454127](https://x.com/BUSHIM_ongaku/status/1958766231034454127)
+

@@ -2244,3 +2244,14 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 这次会是诺亚嘛？还是新空降冠位？
 
+
+*****
+
+####  khxooo  
+##### 17962#       发表于 2025-8-22 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306784&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-22 18:15</a>
+
+你被动点了吗</blockquote>
+被动改为追加攻击+20NP，一样有两个小怪收不了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
