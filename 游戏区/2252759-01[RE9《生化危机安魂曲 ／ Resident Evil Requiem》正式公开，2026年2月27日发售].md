@@ -3296,3 +3296,14 @@ boss战的地点是在浣熊市附近的疗养院
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 好吧，这个被误导了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOJO42  
+##### 323#       发表于 2025-8-22 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306132&amp;ptid=2252759" target="_blank">ww-tsl 发表于 2025-8-22 16:14</a>
+
+用“敌人害怕光亮，无法进入明亮的环境”来制作安全屋确实是个巨大的改进，并且还能随之产生“灯光熄灭会导 ...</blockquote>
+这不就心灵杀手2那套，但我不觉得卡婊会在这块拓展太多
+
