@@ -195,3 +195,14 @@ https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_inst
 我看到关于《地 ...</blockquote>
 如果不想一个200MB的补丁就读写硬盘20GB的话这么打包其实很合理<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 6951#       发表于 2025-8-22 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307310&amp;ptid=2170852" target="_blank">qwased 发表于 2025-8-22 20:23</a>
+
+如果不想一个200MB的补丁就读写硬盘20GB的话这么打包其实很合理</blockquote>
+不打大包没问题，但为什么要大量重复打包相同的资产导致游戏体积膨胀数倍？活久见<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
