@@ -2346,3 +2346,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 而且谁说我不吃的....可这苹果吃也吃不完啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 17971#       发表于 2025-8-22 20:49
+
+看了看公告，新活动没有Free刷，会是爬塔嘛<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
