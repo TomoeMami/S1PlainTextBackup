@@ -2188,3 +2188,16 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 都说了不用放宝具.....1宝都行啊
 
+
+*****
+
+####  alucardcz  
+##### 17957#       发表于 2025-8-22 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305630&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 14:29</a>
+
+萌新这是已经成条件反射了么
+
+都说了不用放宝具.....1宝都行啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">问题不大 水bb也是一种欧！
+
