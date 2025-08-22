@@ -2214,3 +2214,14 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 下次活动快点把90+++端上来吧 ...</blockquote>
 怎么打的到的？我120所长+龙娘+BB，龙娘算是最强增伤拐了，EX攻击都收不了小怪<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 17959#       发表于 2025-8-22 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306654&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 17:50</a>
+
+怎么打的到的？我120所长+龙娘+BB，龙娘算是最强增伤拐了，EX攻击都收不了小怪 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你被动点了吗
+

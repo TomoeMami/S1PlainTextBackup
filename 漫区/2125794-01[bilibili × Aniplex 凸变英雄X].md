@@ -359,3 +359,14 @@ X的话36年登顶，现在是登顶6年连续3届
 
 还有四集不知道会怎么收尾
 
+
+*****
+
+####  rushsong  
+##### 471#       发表于 2025-8-22 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300003&amp;ptid=2125794" target="_blank">达达达达葱 发表于 2025-8-21 12:17</a>
+
+还有四集不知道会怎么收尾</blockquote>
+到奈斯自杀那里啊，林凌篇就是这一季的结尾
+
