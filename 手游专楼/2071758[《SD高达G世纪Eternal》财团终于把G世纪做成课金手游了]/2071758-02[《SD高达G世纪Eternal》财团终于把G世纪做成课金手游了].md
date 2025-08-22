@@ -2951,3 +2951,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 20层不加长时间有点<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 2528#       发表于 2025-8-22 14:18
+
+20層主要是太重複作業
+
+自動AI又蠢…….
+
