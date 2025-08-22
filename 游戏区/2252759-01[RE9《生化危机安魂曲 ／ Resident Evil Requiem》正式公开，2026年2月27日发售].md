@@ -3283,3 +3283,16 @@ demo里的是疗养院，不是遇害的那个鹪木旅馆
 
 正式游戏中应该会出现“主动制造明亮区域以逃离/对付敌人”这种内容。
 
+
+*****
+
+####  Muteki_Link  
+##### 322#       发表于 2025-8-22 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305086&amp;ptid=2252759" target="_blank">csolfans 发表于 2025-8-22 12:30</a>
+
+boss战的地点是在浣熊市附近的疗养院
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+好吧，这个被误导了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
