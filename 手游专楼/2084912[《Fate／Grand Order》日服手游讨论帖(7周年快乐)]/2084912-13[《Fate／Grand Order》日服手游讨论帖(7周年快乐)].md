@@ -2175,3 +2175,16 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 下次活动快点把90+++端上来吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕  这就是豹皇的实力吗！
 
+
+*****
+
+####  森兰丸  
+##### 17956#       发表于 2025-8-22 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305206&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-22 12:55</a>
+
+欧 羡慕  这就是豹皇的实力吗！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新这是已经成条件反射了么
+
+都说了不用放宝具.....1宝都行啊
+
