@@ -2941,3 +2941,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 2527#       发表于 2025-8-22 13:58
+
+1000日元一个10连是日本手游月卡常态吧，20天可以重买大概算是愿意氪金的人福利，就是不方便氪金会觉得烦了
+
+20层不加长时间有点<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
