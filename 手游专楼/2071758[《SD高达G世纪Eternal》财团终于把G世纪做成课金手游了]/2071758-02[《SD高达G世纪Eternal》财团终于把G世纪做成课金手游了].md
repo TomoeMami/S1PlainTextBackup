@@ -2837,3 +2837,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 直接兩隊硬突中路騙盾沖過去就完事了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2517#       发表于 2025-8-22 11:52
+
+无氪平民第一时间打到大师15W<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怕再晚点不过了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
