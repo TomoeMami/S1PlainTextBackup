@@ -2855,3 +2855,16 @@ ex隐藏还是要二队的，还有小兵增援
 
 这四个强敌每个都是20层么？
 
+
+*****
+
+####  光辉传递者  
+##### 2519#       发表于 2025-8-22 12:15
+
+ 本帖最后由 光辉传递者 于 2025-8-22 12:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304967&amp;ptid=2071758" target="_blank">dio999 发表于 2025-8-22 12:04</a>
+
+这四个强敌每个都是20层么？</blockquote>
+以前的也能打。
+<img src="https://p.sda1.dev/26/d7fe336072a4c67048a491d9b8d80ac7/image.jpg" referrerpolicy="no-referrer">
+
