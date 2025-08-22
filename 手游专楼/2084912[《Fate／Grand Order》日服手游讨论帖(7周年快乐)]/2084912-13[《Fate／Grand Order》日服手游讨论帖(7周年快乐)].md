@@ -2144,3 +2144,13 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 只有我每天都是三星？
 
+
+*****
+
+####  森兰丸  
+##### 17953#       发表于 2025-8-22 10:36
+
+所长配合水BB锁卡再随便拉个加攻的拐连一次宝具都不用放就能刷90++了啊
+
+下次活动快点把90+++端上来吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
