@@ -766,3 +766,16 @@ https://weibo.com/2194035935/5201811174591897
 一个加拿大的JavaScript程序员Wes Bos，发了一篇淘宝购 ...</blockquote>
 螺纹沉孔没留直线段<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Baccano  
+##### 67#       发表于 2025-8-22 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299630&amp;ptid=2259792" target="_blank">循此苦旅 发表于 2025-8-21 11:08</a>
+
+这联系的也是客服吧，真正的一对一加工制造还是得上闲鱼找小作坊。
+
+磁铁没法验证不锈钢真假，201也是弱磁 ...</blockquote>
+网上买不锈钢我已经默认想买304就买标316的，标304的可能连201的都不是。
+
