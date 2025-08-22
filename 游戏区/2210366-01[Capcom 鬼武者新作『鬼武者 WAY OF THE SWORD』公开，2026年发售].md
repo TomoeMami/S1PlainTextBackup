@@ -2443,3 +2443,21 @@ a9转发的视频里我看到有一次对杂兵的一闪应该就是普通一闪
 
 steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合一闪应该会很爽<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 265#       发表于 2025-8-22 08:48
+
+看到国内有去科隆现场玩儿的了，有中配
+
+
+*****
+
+####  kuarwbwe  
+##### 266#       发表于 2025-8-22 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68303993&amp;ptid=2210366" target="_blank">conanoysq 发表于 2025-8-22 08:48</a>
+看到国内有去科隆现场玩儿的了，有中配</blockquote>
+这游戏开steam商店页面就标明了有中配。
+
