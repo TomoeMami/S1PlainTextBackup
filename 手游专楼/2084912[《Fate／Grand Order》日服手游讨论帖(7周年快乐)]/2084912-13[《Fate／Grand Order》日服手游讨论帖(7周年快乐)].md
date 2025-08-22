@@ -2201,3 +2201,16 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 都说了不用放宝具.....1宝都行啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">问题不大 水bb也是一种欧！
 
+
+*****
+
+####  khxooo  
+##### 17958#       发表于 2025-8-22 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304499&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 10:36</a>
+
+所长配合水BB锁卡再随便拉个加攻的拐连一次宝具都不用放就能刷90++了啊
+
+下次活动快点把90+++端上来吧 ...</blockquote>
+怎么打的到的？我120所长+龙娘+BB，龙娘算是最强增伤拐了，EX攻击都收不了小怪<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
