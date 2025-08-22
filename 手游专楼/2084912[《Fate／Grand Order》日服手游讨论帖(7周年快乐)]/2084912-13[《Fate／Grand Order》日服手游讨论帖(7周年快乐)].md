@@ -2263,3 +2263,42 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 用了初始服，甚至要用了加攻击力的技能才能收了小怪，导致最后的大公收不了，还是用自己黑贞那套吧。
 
+
+*****
+
+####  alucardcz  
+##### 17964#       发表于 2025-8-22 19:38
+
+ 本帖最后由 alucardcz 于 2025-8-22 19:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307072&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 19:27</a>
+
+用了初始服，甚至要用了加攻击力的技能才能收了小怪，导致最后的大公收不了，还是用自己黑贞那套吧。 ...</blockquote>
+忘说了 这是5加成的打法 所长（倍卡）+bb 2人 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 17965#       发表于 2025-8-22 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307040&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 19:20</a>
+
+被动改为追加攻击+20NP，一样有两个小怪收不了</blockquote>
+活动倍卡礼装+金芙芙吃满+星盘点满+被动....你看看漏了什么
+
+第一回合就所长技能全开+水BB开锁卡.....我大多数时候好友都是抓的奥伯龙.....拐的技能到了第3回合才开
+
+我看别人90级EX攻击都能打掉小怪....120级没可能收不掉啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 17966#       发表于 2025-8-22 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307131&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 19:42</a>
+
+活动倍卡礼装+金芙芙吃满+星盘点满+被动....你看看漏了什么
+
+第一回合就所长技能全开+水BB开锁卡.....我 ...</blockquote>
+我还以为是6加成<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
