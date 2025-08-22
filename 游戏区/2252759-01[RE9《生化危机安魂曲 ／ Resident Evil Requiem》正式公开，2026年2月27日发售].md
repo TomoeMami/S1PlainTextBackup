@@ -3230,3 +3230,16 @@ TGS里昂会登场吧。。。。。。。。。
 
 后面重制五代然后重启后续时间线吧，角色年龄也别跟着显示时间走了，老角色也没出场几次就五十了都<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Muteki_Link  
+##### 317#       发表于 2025-8-22 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299728&amp;ptid=2252759" target="_blank">JOJO42 发表于 2025-8-21 11:24</a>
+
+外网这猜想还挺地狱的</blockquote>
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解读，但boss把人双手抓起来咬下去的处决方式还有本身的骇人造型确实会让人联想起农神吞噬其子那幅画，那背后的隐喻就不言而喻了。
+
+就是真要这样的话制作组这活有点狠了，好歹也是爆发里的主角之一。不过不少人看这段试玩都会联想到rebio的莉莎，那个也算是生化史里排上号的罪恶剧情了
+

@@ -2154,3 +2154,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 下次活动快点把90+++端上来吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 17954#       发表于 2025-8-22 10:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今天普池也出了个大王，但感觉是今年泳装一张没出换来的
+
