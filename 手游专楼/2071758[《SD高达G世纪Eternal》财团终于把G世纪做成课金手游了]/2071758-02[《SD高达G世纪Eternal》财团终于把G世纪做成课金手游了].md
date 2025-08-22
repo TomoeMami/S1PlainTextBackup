@@ -2892,3 +2892,15 @@ ex隐藏还是要二队的，还有小兵增援
 
 早打晚打应该是一样的，每次的队伍都是官方设置的那些固定队伍
 
+
+*****
+
+####  jackyhuang  
+##### 2522#       发表于 2025-8-22 12:54
+
+<img src="https://p.sda1.dev/26/eda3da98b74c69849629a8a3c6967e95/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/f452f710bcfc4db6b0d3f85c69333e1e/image.jpg" referrerpolicy="no-referrer">
+拉克丝加SF已经变成这个游戏的底层逻辑了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
