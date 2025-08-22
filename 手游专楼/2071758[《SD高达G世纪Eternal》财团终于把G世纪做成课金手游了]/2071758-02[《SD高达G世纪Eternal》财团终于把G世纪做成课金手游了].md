@@ -2868,3 +2868,27 @@ ex隐藏还是要二队的，还有小兵增援
 以前的也能打。
 <img src="https://p.sda1.dev/26/d7fe336072a4c67048a491d9b8d80ac7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 2520#       发表于 2025-8-22 12:36
+
+<img src="https://img.stage1st.com/forum/202508/22/123546py4nbibz4d4uzvpz.png" referrerpolicy="no-referrer">
+
+<strong>中文？.png</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-22 12:35 上传
+
+什么叫3100天领15个钻石<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜之光  
+##### 2521#       发表于 2025-8-22 12:39
+
+早打晚打应该是一样的，每次的队伍都是官方设置的那些固定队伍
+
