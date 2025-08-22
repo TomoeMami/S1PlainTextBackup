@@ -3040,3 +3040,14 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  电脑死机  
+##### 2537#       发表于 2025-8-22 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305322&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-8-22 13:23</a>
+
+打上大师就撤了，这期没拉克丝玩不了一点</blockquote>
+14船，sp风灵和金异端，300红高达，加上两台能吃加成的盾机，已经拿到低保15w走人啦
+
