@@ -3251,3 +3251,25 @@ TGS里昂会登场吧。。。。。。。。。
 
 莉莎也是为了找妈到处乱窜，现在可不就找到新妈了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 319#       发表于 2025-8-22 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+boss战的地点是在浣熊市附近的疗养院
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  shinra-01  
+##### 320#       发表于 2025-8-22 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+demo里的是疗养院，不是遇害的那个鹪木旅馆
+
