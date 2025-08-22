@@ -2920,3 +2920,24 @@ ex隐藏还是要二队的，还有小兵增援
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">立本人日子真好过，月卡就20天
 
+
+*****
+
+####  丹德里恩  
+##### 2525#       发表于 2025-8-22 13:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这次肯定有压分，打完5个SS才14w，刷了几次才上低保
+
+至于强敌这个20层*7真是绝了，还必须全灭
+
+
+*****
+
+####  jackyhuang  
+##### 2526#       发表于 2025-8-22 13:44
+
+多一个拿钻的方式倒也不错啊，但是你这强敌来袭又不像永恒之路是常驻的
+而且还有芯片要拿，那就更难受了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
