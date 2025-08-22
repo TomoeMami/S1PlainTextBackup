@@ -2354,3 +2354,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 看了看公告，新活动没有Free刷，会是爬塔嘛<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 17972#       发表于 2025-8-22 21:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不想爬塔 太弱智了
+
