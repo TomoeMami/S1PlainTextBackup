@@ -2162,3 +2162,16 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今天普池也出了个大王，但感觉是今年泳装一张没出换来的
 
+
+*****
+
+####  alucardcz  
+##### 17955#       发表于 2025-8-22 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304499&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 10:36</a>
+
+所长配合水BB锁卡再随便拉个加攻的拐连一次宝具都不用放就能刷90++了啊
+
+下次活动快点把90+++端上来吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕  这就是豹皇的实力吗！
+
