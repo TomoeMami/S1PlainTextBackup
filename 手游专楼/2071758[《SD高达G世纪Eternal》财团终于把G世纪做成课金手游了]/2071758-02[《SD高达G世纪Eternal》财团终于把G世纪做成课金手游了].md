@@ -3051,3 +3051,14 @@ ex隐藏还是要二队的，还有小兵增援
 打上大师就撤了，这期没拉克丝玩不了一点</blockquote>
 14船，sp风灵和金异端，300红高达，加上两台能吃加成的盾机，已经拿到低保15w走人啦
 
+
+*****
+
+####  rockroxas  
+##### 2538#       发表于 2025-8-22 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307020&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-8-22 19:16</a>
+
+不能直接看到挑战奖励就很烦，想问问是所有的金插件都是对应强敌机体的么？是的话我就随便打打不强求打完了 ...</blockquote>
+跟塔那个差不多，我就打了3个，比如SSR是强敌标签专用8%攻击，武者顽驮无额外+2%攻击
+

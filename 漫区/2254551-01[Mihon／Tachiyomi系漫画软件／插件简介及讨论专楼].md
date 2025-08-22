@@ -655,3 +655,18 @@ Suwayomi官方讨论群组：[https://discord.gg/DDZdqZWaHA](https://discord.gg/
 
 J2K虽然没人维护了不过现在是不是继续用也没啥问题？我目前还在用，感觉也没啥特别需要维护的地方
 
+
+*****
+
+####  azbhg1  
+##### 57#         楼主| 发表于 2025-8-22 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304166&amp;ptid=2254551" target="_blank">WhiteGlint 发表于 2025-8-22 09:30</a>
+
+J2K虽然没人维护了不过现在是不是继续用也没啥问题？我目前还在用，感觉也没啥特别需要维护的地方 ...</blockquote>
+我没关注主要开发者动态，具体不懂
+
+但是我看仓库也还没归档吧，而且上个月不还在更新代码。现在只是稳定版更新慢，估计目前是以维护现有功能为主了，不怎么新加功能了。
+
+说起来个人觉得j2k这个分支系列的UI是最好看的....SY那一系的都太丑了....
+
