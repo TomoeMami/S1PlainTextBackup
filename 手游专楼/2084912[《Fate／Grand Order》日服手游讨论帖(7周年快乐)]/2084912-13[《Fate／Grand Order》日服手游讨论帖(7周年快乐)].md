@@ -2362,3 +2362,32 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不想爬塔 太弱智了
 
+
+*****
+
+####  khxooo  
+##### 17973#       发表于 2025-8-22 22:29
+
+日服全从者主动技能999达成，不刷了，已经不需要再战斗了<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17974#       发表于 2025-8-22 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307805&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 22:29</a>
+
+日服全从者主动技能999达成，不刷了，已经不需要再战斗了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">恐怖如斯 又欧又肝又氪
+
+
+*****
+
+####  khxooo  
+##### 17975#       发表于 2025-8-22 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307828&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-22 22:33</a>
+
+恐怖如斯 又欧又肝又氪</blockquote>
+只是没你那么多从者而已<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
