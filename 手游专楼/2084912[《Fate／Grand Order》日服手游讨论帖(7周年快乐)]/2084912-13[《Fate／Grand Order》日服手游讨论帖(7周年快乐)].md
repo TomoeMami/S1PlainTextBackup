@@ -2255,3 +2255,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 你被动点了吗</blockquote>
 被动改为追加攻击+20NP，一样有两个小怪收不了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 17963#       发表于 2025-8-22 19:27
+
+用了初始服，甚至要用了加攻击力的技能才能收了小怪，导致最后的大公收不了，还是用自己黑贞那套吧。
+
