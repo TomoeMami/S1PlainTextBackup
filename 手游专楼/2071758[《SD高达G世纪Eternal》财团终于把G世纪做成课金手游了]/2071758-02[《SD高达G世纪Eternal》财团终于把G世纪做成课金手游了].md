@@ -2979,3 +2979,16 @@ ex隐藏还是要二队的，还有小兵增援
 
 然而并不是20天重买 只要你领完了就能重买 多的天数是怕你忘记登录了
 
+
+*****
+
+####  光辉传递者  
+##### 2531#       发表于 2025-8-22 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305571&amp;ptid=2071758" target="_blank">南宮凝香 发表于 2025-8-22 14:18</a>
+
+20層主要是太重複作業
+
+自動AI又蠢…….</blockquote>
+一想到是所有强敌都有20层就忍不住一阵恶寒……
+
