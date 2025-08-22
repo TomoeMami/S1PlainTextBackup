@@ -2302,3 +2302,47 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 第一回合就所长技能全开+水BB开锁卡.....我 ...</blockquote>
 我还以为是6加成<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 17967#       发表于 2025-8-22 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307146&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 19:45</a>
+
+我还以为是6加成</blockquote>
+能够不用看宝具动画....少1加成也是赚的啊!<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 17968#       发表于 2025-8-22 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307158&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 19:48</a>
+
+能够不用看宝具动画....少1加成也是赚的啊!</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">又欧  你又不吃苹果刷
+
+*****
+
+####  khxooo  
+##### 17969#       发表于 2025-8-22 19:51
+
+ 本帖最后由 khxooo 于 2025-8-22 19:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307158&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-22 19:48</a>
+
+能够不用看宝具动画....少1加成也是赚的啊!</blockquote>
+黑贞那个阵容可以后排挂3张羁绊礼装，看动画就看动画吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，而且第二面要指定飞龙，我这个直接宝具就搞掂小怪，不需要多做指定这个动作。
+
+*****
+
+####  森兰丸  
+##### 17970#       发表于 2025-8-22 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307163&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-22 19:49</a>
+
+又欧  你又不吃苹果刷</blockquote>
+萌新又在瞎胡闹......吃苹果和欧不欧有啥关系
+
+而且谁说我不吃的....可这苹果吃也吃不完啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
