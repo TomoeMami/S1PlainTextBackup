@@ -2225,3 +2225,22 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 怎么打的到的？我120所长+龙娘+BB，龙娘算是最强增伤拐了，EX攻击都收不了小怪 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你被动点了吗
 
+
+*****
+
+####  khxooo  
+##### 17960#       发表于 2025-8-22 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306784&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-22 18:15</a>
+
+你被动点了吗</blockquote>
+那是我忘记了，我再试试。
+
+
+*****
+
+####  khxooo  
+##### 17961#       发表于 2025-8-22 19:15
+
+这次会是诺亚嘛？还是新空降冠位？
+
