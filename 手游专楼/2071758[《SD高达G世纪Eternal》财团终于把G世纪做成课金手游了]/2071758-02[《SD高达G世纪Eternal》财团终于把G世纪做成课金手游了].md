@@ -2992,3 +2992,11 @@ ex隐藏还是要二队的，还有小兵增援
 自動AI又蠢…….</blockquote>
 一想到是所有强敌都有20层就忍不住一阵恶寒……
 
+
+*****
+
+####  胖达君  
+##### 2532#       发表于 2025-8-22 16:18
+
+20层应该是可以累计的，这次打不完，下次开强敌后可以继续打...就是每个月就那么一次强敌...<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
