@@ -1182,3 +1182,23 @@ A professional product photo of a high-quality, collect ...</blockquote>
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68311064&amp;ptid=2259509" target="_blank">死宅真恶心 发表于 2025-8-23 20:58</a></blockquote>
 模型不对，这个是qwen
 
+
+*****
+
+####  死宅真恶心  
+##### 80#       发表于 2025-8-23 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68311511&amp;ptid=2259509" target="_blank">秦南心 发表于 2025-8-23 22:43</a>
+
+模型不对，这个是qwen</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/23/231210yd4dn5e81vnkuxrd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7416.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 23:12 上传
+
+感谢提醒，刷了几次roll出来了
+
