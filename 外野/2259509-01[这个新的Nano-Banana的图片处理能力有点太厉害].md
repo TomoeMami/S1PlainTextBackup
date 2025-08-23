@@ -887,3 +887,37 @@ b站搜秋叶
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点怀疑这网站现在是初期大概率给你提供nano banana的生成，一两次后就几乎再也不提供了，我试了好多次都是一开始能刷出nano banana，后面再怎么反复提交也都是其他AI模型的了
 
+
+*****
+
+####  璇瑢子R  
+##### 63#       发表于 2025-8-23 11:04
+
+我这张图
+
+<img src="https://img.stage1st.com/forum/202508/23/110310lltj2q123tgtoh1g.jpg" referrerpolicy="no-referrer">
+
+<strong>zero-5171527-58536876_p0.jpg</strong> (163.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 11:03 上传
+
+nano-banana不如gpt-image-1（虽然姿势变了）
+
+<img src="https://img.stage1st.com/forum/202508/23/110416fpulsccf7hlz6spp.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (190.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 11:04 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/110416cj1hpr0b1rqh1crn.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (152.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 11:04 上传
+
