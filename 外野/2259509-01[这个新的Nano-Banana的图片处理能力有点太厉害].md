@@ -950,3 +950,14 @@ nano-banana现在直接刷不到了啊
 有没有比较好用的ai部署教程，我也想实现ai色图自由</blockquote>
 顺便提下，这东西对硬件有一定要求。需要至少6G显存的独立显卡和16G内存。
 
+
+*****
+
+####  秦南心  
+##### 67#       发表于 2025-8-23 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68309085&amp;ptid=2259509" target="_blank">シマエナガ 发表于 2025-8-23 11:20</a>
+
+nano-banana现在直接刷不到了啊</blockquote>
+刷的到，纯看运气
+
