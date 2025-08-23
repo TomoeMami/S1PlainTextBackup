@@ -2391,3 +2391,20 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 恐怖如斯 又欧又肝又氪</blockquote>
 只是没你那么多从者而已<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 17976#       发表于 2025-8-23 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306654&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-22 17:50</a>
+
+怎么打的到的？我120所长+龙娘+BB，龙娘算是最强增伤拐了，EX攻击都收不了小怪 ...</blockquote>
+别用水BB，好友里随便抱个杀狐，龙娘/大姐都行，衣服用减CD的。
+
+一面所长开两轮技能（所长231，杀狐1，衣服减CD，所长23），就把1技能留着。打红绿蓝卡。二面所长宝具直接收掉，三面所长开1技能，打红蓝红卡。
+
+所长别用灵基3，被动用1和5。
+
+2000金芙芙，树开满，2宝就够。
+
