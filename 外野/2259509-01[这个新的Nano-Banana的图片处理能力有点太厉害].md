@@ -879,3 +879,11 @@ xhs看到的
 有没有比较好用的ai部署教程，我也想实现ai色图自由</blockquote>
 b站搜秋叶
 
+
+*****
+
+####  猫出没注意  
+##### 62#       发表于 2025-8-23 10:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点怀疑这网站现在是初期大概率给你提供nano banana的生成，一两次后就几乎再也不提供了，我试了好多次都是一开始能刷出nano banana，后面再怎么反复提交也都是其他AI模型的了
+
