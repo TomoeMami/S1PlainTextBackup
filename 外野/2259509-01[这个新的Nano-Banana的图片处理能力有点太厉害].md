@@ -1173,3 +1173,12 @@ A professional product photo of a high-quality, collect ...</blockquote>
 
 2025-8-23 20:58 上传
 
+
+*****
+
+####  秦南心  
+##### 79#       发表于 2025-8-23 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68311064&amp;ptid=2259509" target="_blank">死宅真恶心 发表于 2025-8-23 20:58</a></blockquote>
+模型不对，这个是qwen
+
