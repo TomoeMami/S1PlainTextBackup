@@ -929,3 +929,24 @@ nano-banana不如gpt-image-1（虽然姿势变了）
 
 nano-banana现在直接刷不到了啊
 
+
+*****
+
+####  秦南心  
+##### 65#       发表于 2025-8-23 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68308992&amp;ptid=2259509" target="_blank">猫出没注意 发表于 2025-8-23 10:46</a>
+
+有点怀疑这网站现在是初期大概率给你提供nano banana的生成，一两次后就几乎再也不提供了，我试了好多次都 ...</blockquote>
+纯随机，目前没看出什么规律
+
+
+*****
+
+####  美坂汐里  
+##### 66#       发表于 2025-8-23 11:36
+
+<blockquote>憧憬鲨 发表于 2025-8-21 21:14
+有没有比较好用的ai部署教程，我也想实现ai色图自由</blockquote>
+顺便提下，这东西对硬件有一定要求。需要至少6G显存的独立显卡和16G内存。
+
