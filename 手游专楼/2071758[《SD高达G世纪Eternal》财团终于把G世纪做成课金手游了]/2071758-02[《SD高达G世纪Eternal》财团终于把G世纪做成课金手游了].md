@@ -3096,3 +3096,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 代哥你能再膨胀点不，指挥官那底下一排超远程炮台是恶心谁呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2543#       发表于 2025-8-24 02:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那我来求个auto作业
+
