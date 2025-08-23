@@ -2408,3 +2408,48 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 2000金芙芙，树开满，2宝就够。
 
+
+*****
+
+####  DARKGRAY  
+##### 17977#       发表于 2025-8-23 16:13
+
+闪退得受不了，终于给IPAD升了系统，然而该闪退的还是闪退<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17978#       发表于 2025-8-23 19:11
+
+挺喜欢水鹤给水鹤2宝补了5宝，没想到附带水提妈也2宝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 17979#       发表于 2025-8-23 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68310628&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-8-23 19:11</a>
+
+挺喜欢水鹤给水鹤2宝补了5宝，没想到附带水提妈也2宝了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友的太欧了
+
+*****
+
+####  alucardcz  
+##### 17980#       发表于 2025-8-23 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68310630&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-23 19:12</a>
+
+楼友的太欧了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友确实太欧了
+
+*****
+
+####  qixinno2  
+##### 17981#       发表于 2025-8-23 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68310925&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-23 20:23</a>
+
+楼友确实太欧了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">攒了30石 一发十连下去连个活动礼装都没出 不如狗萌新
+

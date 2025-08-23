@@ -2484,3 +2484,29 @@ steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合
 
 打斗手感像荣耀战魂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千本blur  
+##### 270#       发表于 2025-8-23 16:03
+
+看试完看试玩感觉这就是我想要的剑斗游戏
+
+*****
+
+####  慕容断月  
+##### 271#       发表于 2025-8-23 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897396&amp;ptid=2210366" target="_blank">沉睡城市 发表于 2025-6-7 15:21</a>
+另外，武藏的配音是谁？听起来好像是阿部宽？</blockquote>
+趴地上说不要停下来的那个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  灼热的小市民  
+##### 272#       发表于 2025-8-23 17:35
+
+虽然但是这个用刀受け流し出火花的动作真的好帅啊
+

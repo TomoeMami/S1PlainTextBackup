@@ -993,3 +993,183 @@ nano-banana现在直接刷不到了啊</blockquote>
 
 好强啊！
 
+
+*****
+
+####  ななひら  
+##### 70#       发表于 2025-8-23 16:29
+
+感觉连着几十次没刷到banana了，狗屎seededit嘎嘎出
+
+*****
+
+####  寻龙分金看缠山  
+##### 71#         楼主| 发表于 2025-8-23 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68309994&amp;ptid=2259509" target="_blank">ななひら 发表于 2025-8-23 16:29</a>
+
+感觉连着几十次没刷到banana了，狗屎seededit嘎嘎出</blockquote>
+我也是，之前差不多三次就能摇到一次
+
+现在难了，怀疑是降权重了
+
+*****
+
+####  秦南心  
+##### 72#       发表于 2025-8-23 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68291477&amp;ptid=2259509" target="_blank">Azcarlo 发表于 2025-8-20 00:01</a>
+
+叫gemini改了下提示词，这个nano banana好强啊
+
+A professional product photo of a high-quality, collect ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/23/175302xhvr6ay261u19q11.png" referrerpolicy="no-referrer">
+
+<strong>1755687673220-17413a15-a89c-477a-8c43-f5f47bcb1e08.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175302mv7c88rxyayessxr.png" referrerpolicy="no-referrer">
+
+<strong>1755677063727-8e079d9a-d3b4-4f8c-93fd-e27af62511c0.png</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175304cq2jrfjrcswf22ix.png" referrerpolicy="no-referrer">
+
+<strong>1755690548108-4067203d-6516-41a6-aba1-f889df82b3c3.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175307wgfkfl007eks0002.png" referrerpolicy="no-referrer">
+
+<strong>d86921f7aa76b68934a2093bd9527477.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175306gjd53393nnv5anlc.png" referrerpolicy="no-referrer">
+
+<strong>1755924765637-530a84e6-6896-421c-8c2b-f9b3497508418.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175305aekzhhlmkg646btg.png" referrerpolicy="no-referrer">
+
+<strong>1755913533157-0a369148-23f8-44ea-9e7f-a9864d057620.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175302hvuac1kgwbemg5ix.png" referrerpolicy="no-referrer">
+
+<strong>1755685890545-6a29b8e2-e853-497b-98fd-482345d0ea3b.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/175305xa7gjovk7j7okgrv.png" referrerpolicy="no-referrer">
+
+<strong>1755915412397-68e26b0f-d936-4b3f-9ad2-d8ea7f41dc22.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 17:53 上传
+
+ <blockquote>提示词：A professional product photo of a high-quality, collectible PVC scale figure of the person in the photo. The figure is expertly sculpted, posed dynamically on a circular plastic base. In the immediate background is its retail box, which has a clear plastic window contain nothing . The main figure is fully 3D and volumetric, made of molded plastic with realistic matte and semi-gloss textures. Studio lighting, sharp focus, indoor setting. This is a three-dimensional statue.
+
+如果光照不够自然，可以将 Studio lighting 改成natural light, back light</blockquote>毛了你的提示词改了下，挺好用的，删掉了最后一句和中间在手办盒里放手办的一句。<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 73#       发表于 2025-8-23 19:14
+
+牛逼，真好玩
+
+*****
+
+####  赞卡机  
+##### 74#       发表于 2025-8-23 19:25
+
+怪哦，只要上传的图片是比基尼或者露了南半球或者小肚子就卡审核，我看楼里泳装图也不少啊大家没有被卡吗
+
+*****
+
+####  秦南心  
+##### 75#       发表于 2025-8-23 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68310688&amp;ptid=2259509" target="_blank">赞卡机 发表于 2025-8-23 19:25</a>
+
+怪哦，只要上传的图片是比基尼或者露了南半球或者小肚子就卡审核，我看楼里泳装图也不少啊大家没有被卡吗 ...</blockquote>
+图里的性征描写不能太明显，丝袜不容易被卡，
+
+然后比较像make love的姿势就算没有露点也容易被卡，同理，黑色裤袜就算是比较涩清的姿势也不容易被卡
+
+*****
+
+####  赞卡机  
+##### 76#       发表于 2025-8-23 19:43
+
+透视装和紧身衣都可以<img src="https://p.sda1.dev/26/bab7cabbe923e3b80770af8949723ad8/image.jpg" referrerpolicy="no-referrer">
+巫女装侧卧又不行好奇怪的审核
+<img src="https://p.sda1.dev/26/1224ccbc477f0a25f78be4a28e5103a0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qwjhb  
+##### 77#       发表于 2025-8-23 20:02
+
+<img src="https://img.stage1st.com/forum/202508/23/200148mlz7jahayy4jqqq4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 20:01 上传
+
+确实强啊 甚至画了个gw的logo
+
+原图就是个stl的截图
+
+<img src="https://img.stage1st.com/forum/202508/23/200222fzfiskd2dmvdwdj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 20:02 上传
+
+*****
+
+####  死宅真恶心  
+##### 78#       发表于 2025-8-23 20:58
+
+<img src="https://img.stage1st.com/forum/202508/23/205806c0a188nse85uuxxu.png" referrerpolicy="no-referrer">
+
+<strong>31AC98AF79A062D338B69684BCE53E8F.png</strong> (825.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202508/23/205806wkv69v9vv9vbz7bv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7408.png</strong> (248.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-23 20:58 上传
+

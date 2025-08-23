@@ -380,3 +380,14 @@ X的话36年登顶，现在是登顶6年连续3届
 到奈斯自杀那里啊，林凌篇就是这一季的结尾</blockquote>
 潇月卿为啥要死总该交代一下吧
 
+
+*****
+
+####  rushsong  
+##### 473#       发表于 2025-8-23 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307504&amp;ptid=2125794" target="_blank">达达达达葱 发表于 2025-8-22 21:20</a>
+
+潇月卿为啥要死总该交代一下吧</blockquote>
+放到下一季交代也不是没可能
+
