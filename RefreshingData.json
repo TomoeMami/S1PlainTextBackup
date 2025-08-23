@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 17519,
+    "totalreply": 17521,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1755924130,
+    "lastedit": 1755925087,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -2349,12 +2349,12 @@
     "update": false
   },
   "1551439": {
-    "totalreply": 965,
+    "totalreply": 966,
     "title": "[川原砾作品讨论专楼 sao27卷10月 dc1卷11月]",
     "newtitle": "[川原砾作品讨论专楼 dc3卷11月发售]",
-    "lastedit": 1738819695,
+    "lastedit": 1755924970,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2053088": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 186336,
+    "totalreply": 186337,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1755924252,
+    "lastedit": 1755924852,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 185012,
+    "totalreply": 185013,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1755924367,
+    "lastedit": 1755924969,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12330,10 +12330,10 @@
     "update": false
   },
   "2258077": {
-    "totalreply": 135,
+    "totalreply": 136,
     "title": "[有完整观测以来，我国最热的一个月]",
     "newtitle": "[有完整观测以来，我国最热的一个月]",
-    "lastedit": 1755839656,
+    "lastedit": 1755924853,
     "category": "外野",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "1950481": {
-    "totalreply": 472,
+    "totalreply": 475,
     "title": "[《凡人修仙传》网络动画专楼]",
     "newtitle": "[《凡人修仙传》网络动画专楼]",
-    "lastedit": 1755922929,
+    "lastedit": 1755924970,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15858,10 +15858,10 @@
     "update": false
   },
   "2259719": {
-    "totalreply": 348,
+    "totalreply": 349,
     "title": "[有点绝望，感觉我国的禁烟注定失败]",
     "newtitle": "[有点绝望，感觉我国的禁烟注定失败]",
-    "lastedit": 1755922809,
+    "lastedit": 1755924856,
     "category": "外野",
     "active": true,
     "update": false
@@ -16245,10 +16245,10 @@
     "update": false
   },
   "2259785": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[“补贴换股份”！不只是英特尔，美政府欲入股美光、三星甚至台积电]",
     "newtitle": "[“补贴换股份”！不只是英特尔，美政府欲入股美光、三星甚至台积电]",
-    "lastedit": 1755914541,
+    "lastedit": 1755924608,
     "category": "外野",
     "active": true,
     "update": false
@@ -16461,10 +16461,10 @@
     "update": false
   },
   "2259819": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[黑神话这个IP在国外算立起来了，《钟馗》的PV成为科隆展的最多播放数]",
     "newtitle": "[黑神话这个IP在国外算立起来了，《钟馗》的PV成为科隆展的最多播放数]",
-    "lastedit": 1755869061,
+    "lastedit": 1755924608,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16673,6 +16673,15 @@
     "newtitle": "[五星物语的发展]",
     "lastedit": 1755915979,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2150951": {
+    "totalreply": 370,
+    "title": "[《沙加 Emerald Beyond》公开，24年4月25日发售]",
+    "newtitle": "[《沙加 Emerald Beyond》公开，24年4月25日发售]",
+    "lastedit": 1755924869,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
