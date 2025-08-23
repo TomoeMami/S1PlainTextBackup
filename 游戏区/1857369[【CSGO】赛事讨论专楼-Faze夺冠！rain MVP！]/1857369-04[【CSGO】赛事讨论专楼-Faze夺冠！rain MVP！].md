@@ -20,3 +20,11 @@ X队2:1绿龙
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  朔方原的星  
+##### 4789#         楼主| 发表于 2025-8-24 01:33
+
+蒙古队打得真是好啊，就是时不时有点choke，韧性差点，major差一口气但这次很有机会了
+
