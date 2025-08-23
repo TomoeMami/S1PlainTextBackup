@@ -5607,12 +5607,12 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 12752,
+    "totalreply": 12753,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1755301927,
+    "lastedit": 1755991453,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2125110": {
@@ -11574,10 +11574,10 @@
     "update": false
   },
   "2251078": {
-    "totalreply": 1293,
+    "totalreply": 1294,
     "title": "[【DKX破坏】咚奇刚3D全新作《咚奇刚 蕉力全开》公布！2025.7.17发售！]",
     "newtitle": "[【DKX破坏】《蕉力全开》专楼！现已发售！]",
-    "lastedit": 1755971289,
+    "lastedit": 1755991450,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14283,10 +14283,10 @@
     "update": false
   },
   "2259096": {
-    "totalreply": 3131,
+    "totalreply": 3137,
     "title": "[【街霸6】EWC 2025 电竞世界杯专楼（14号LCQ）]",
     "newtitle": "[【街霸6】EWC 2025 电竞世界杯专楼（恭喜xiaohai卫冕！）]",
-    "lastedit": 1755990848,
+    "lastedit": 1755991688,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16614,10 +16614,10 @@
     "update": false
   },
   "2150442": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[你认为BG3的成功是因为拉瑞安还是IP本身]",
     "newtitle": "[你认为BG3的成功是因为拉瑞安还是IP本身]",
-    "lastedit": 1755967934,
+    "lastedit": 1755991453,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16700,6 +16700,15 @@
     "newtitle": "[刚看完种子自由，怎么基神都三部了一点长进都没有]",
     "lastedit": 1755979928,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2260060": {
+    "totalreply": 42,
+    "title": "[大家的梦想是什么]",
+    "newtitle": "[大家的梦想是什么]",
+    "lastedit": 1755991689,
+    "category": "外野",
     "active": true,
     "update": false
   }
