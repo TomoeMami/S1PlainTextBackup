@@ -153,3 +153,11 @@ yls就作吧，我看明年这1000石也就填一个所长了
 
 30抽出了雨神，等年底公主了
 
+
+*****
+
+####  FrozenA  
+##### 47401#       发表于 2025-8-24 23:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">小抽没出，等月批吧
+
