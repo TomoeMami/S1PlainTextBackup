@@ -2453,3 +2453,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 楼友确实太欧了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">攒了30石 一发十连下去连个活动礼装都没出 不如狗萌新
 
+
+*****
+
+####  shinitakute  
+##### 17982#       发表于 2025-8-24 12:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最后的30石抽水提歪了恩奇都 万 策 尽
+
