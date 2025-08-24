@@ -2510,3 +2510,13 @@ steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合
 
 虽然但是这个用刀受け流し出火花的动作真的好帅啊
 
+
+*****
+
+####  真实之影  
+##### 273#       发表于 2025-8-25 00:24
+
+[https://www.youtube.com/watch?v=cykCLpvR2gw](https://www.youtube.com/watch?v=cykCLpvR2gw)
+
+找了个偏向一闪的试玩演示
+
