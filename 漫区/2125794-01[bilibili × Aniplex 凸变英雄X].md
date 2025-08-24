@@ -417,3 +417,14 @@ smile怎么这么HOMO
 
 这集开始变好看了啊
 
+
+*****
+
+####  补丁  
+##### 477#       发表于 2025-8-24 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307504&amp;ptid=2125794" target="_blank">达达达达葱 发表于 2025-8-22 21:20</a>
+
+潇月卿为啥要死总该交代一下吧</blockquote>
+那个魂电是不是假的？他没啥理由杀潇月卿，而尚德这边一心要杀魂电搞死岩莫给儿子报仇，潇死了给林凌上点动力，而且他有条件第一时间掌握林凌位置当面杀潇月卿
+
