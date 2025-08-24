@@ -2520,3 +2520,13 @@ steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合
 
 找了个偏向一闪的试玩演示
 
+
+*****
+
+####  57042711  
+##### 274#       发表于 2025-8-25 01:19
+
+这崩一闪不就是处决嘛，看起来已经是只狼的形状了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
