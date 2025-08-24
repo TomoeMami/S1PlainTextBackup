@@ -113,3 +113,11 @@
 
 yls就作吧，我看明年这1000石也就填一个所长了
 
+
+*****
+
+####  GuDaZi  
+##### 47397#       发表于 2025-8-24 20:43
+
+赤保底了，应该是欧了小半年的代价了<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
