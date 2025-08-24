@@ -94,3 +94,14 @@
 我兽雷井，学姐200抽一个，这次200抽0五星，吐了</blockquote>
 你这也不过三次，我在你的基础上还要再倒推三个池子都是这副样子
 
+
+*****
+
+####  sandro  
+##### 47395#       发表于 2025-8-24 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68315587&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-8-24 20:10</a>
+
+你这也不过三次，我在你的基础上还要再倒推三个池子都是这副样子</blockquote>
+垃圾游戏嗼
+
