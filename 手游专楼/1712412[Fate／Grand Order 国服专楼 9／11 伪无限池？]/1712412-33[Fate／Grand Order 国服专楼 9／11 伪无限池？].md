@@ -83,3 +83,14 @@
 别说平均300，平均500都不够 ...</blockquote>
 我兽雷井，学姐200抽一个，这次200抽0五星，吐了
 
+
+*****
+
+####  苍蓝之枪  
+##### 47394#       发表于 2025-8-24 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68315530&amp;ptid=1712412" target="_blank">sandro 发表于 2025-8-24 19:56</a>
+
+我兽雷井，学姐200抽一个，这次200抽0五星，吐了</blockquote>
+你这也不过三次，我在你的基础上还要再倒推三个池子都是这副样子
+
