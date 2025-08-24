@@ -50,3 +50,13 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 不是吧，这打到结局怎么还给我安排一场强制boss战，我一周目一场架都没打过，这下死档了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 110#       发表于 2025-8-24 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68313603&amp;ptid=2159636" target="_blank">漫漫来 发表于 2025-8-24 09:30</a>
+不是吧，这打到结局怎么还给我安排一场强制boss战，我一周目一场架都没打过，这下死档了 ...</blockquote>
+狐狸最终战可以回避的，调查一下周围的拍摄设备<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
