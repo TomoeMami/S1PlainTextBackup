@@ -5864,7 +5864,7 @@
     "newtitle": "[十周年纪念『吹响！上低音号』三期剧场版『最终乐章 吹响！上低音号』2026年上映]",
     "lastedit": 1755767425,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1980598": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 186594,
+    "totalreply": 186595,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756024208,
+    "lastedit": 1756026727,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 185475,
+    "totalreply": 185478,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1756025529,
+    "lastedit": 1756026967,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 6146,
+    "totalreply": 6147,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1756011968,
+    "lastedit": 1756026851,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 1890,
+    "totalreply": 1891,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1756025649,
+    "lastedit": 1756026850,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15719,7 +15719,7 @@
     "newtitle": "[大概九月三号是真不放假了]",
     "lastedit": 1755767789,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2259707": {
@@ -16272,10 +16272,10 @@
     "update": false
   },
   "2252113": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[你是谁？请支持终天教团（小高和刚×中泽工×北山猛邦新作游戏）]",
     "newtitle": "[你是谁？请支持终天教团（小高和刚×中泽工×北山猛邦新作游戏）]",
-    "lastedit": 1755955121,
+    "lastedit": 1756026853,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16623,28 +16623,37 @@
     "update": false
   },
   "2260033": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[在语义学上，每个特定事物都有独立名称有什么优点？]",
     "newtitle": "[在语义学上，每个特定事物都有独立名称有什么优点？]",
-    "lastedit": 1756026489,
+    "lastedit": 1756027090,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2260090": {
-    "totalreply": 73,
+    "totalreply": 75,
     "title": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
     "newtitle": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
-    "lastedit": 1756026491,
+    "lastedit": 1756026853,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2260058": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[各位要的真正的少女乐队]",
     "newtitle": "[各位要的真正的少女乐队]",
-    "lastedit": 1756024930,
+    "lastedit": 1756027089,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2259928": {
+    "totalreply": 41,
+    "title": "[有幸去静态体验了雅力士gr]",
+    "newtitle": "[有幸去静态体验了雅力士gr]",
+    "lastedit": 1756027091,
     "category": "外野",
     "active": true,
     "update": false
