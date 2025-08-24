@@ -36,3 +36,11 @@
 
 虽然不知道为什么前脚刚说一个人不能变身，后脚就又能自己一个人变身，不过闪彩编剧今年也不是第一次干这种事情了，感受就好
 
+
+*****
+
+####  codezwei  
+##### 1243#       发表于 2025-8-24 17:38
+
+钢之炼金术师+魔法少女小圆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
