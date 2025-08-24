@@ -1243,3 +1243,24 @@ A professional product photo of a high-quality, collect ...</blockquote>
 
 <img src="https://img.stage1st.com/forum/202508/24/064957l0oocobv5zuq0yu2.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuzinheart  
+##### 83#       发表于 2025-8-24 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300692&amp;ptid=2259509" target="_blank">DiAria 发表于 2025-8-21 14:57</a>
+
+确实断崖的强 和其他模型相比</blockquote>
+阿 这个真好看 青春气息max了
+
+*****
+
+####  yuzinheart  
+##### 84#       发表于 2025-8-24 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68310481&amp;ptid=2259509" target="_blank">秦南心 发表于 2025-8-23 18:33</a>
+
+毛了你的提示词改了下，挺好用的，删掉了最后一句和中间在手办盒里放手办的一句。</blockquote>
+这个也很好哇 牛逼
+
