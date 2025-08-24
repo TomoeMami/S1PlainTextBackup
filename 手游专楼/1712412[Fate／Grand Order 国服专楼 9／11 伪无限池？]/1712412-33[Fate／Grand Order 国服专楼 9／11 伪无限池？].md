@@ -46,3 +46,13 @@
 
 开服就是这个ID，只能说真爱确实会带来奇迹 510石头满宝了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死宅真恶心  
+##### 47391#       发表于 2025-8-24 19:16
+
+传说中的单抽出货撞上了<img src="https://p.sda1.dev/26/5306cdb7d8b1cabbeeb1c5a82ead0058/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24053PY09C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
