@@ -42,3 +42,11 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 黑豹一开始帮布鲁让菲尔闭嘴的任务做完，然后食堂暴动的结果是大象赢就行 ...</blockquote>
 好的，谢谢
 
+
+*****
+
+####  漫漫来  
+##### 109#       发表于 2025-8-24 09:30
+
+不是吧，这打到结局怎么还给我安排一场强制boss战，我一周目一场架都没打过，这下死档了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
