@@ -68,3 +68,18 @@
 
 别说平均300，平均500都不够
 
+
+*****
+
+####  sandro  
+##### 47393#       发表于 2025-8-24 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68315403&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-8-24 19:24</a>
+
+傻逼游戏，我只能说总算没保底
+
+所谓平均300石一个五星简直是笑话
+
+别说平均300，平均500都不够 ...</blockquote>
+我兽雷井，学姐200抽一个，这次200抽0五星，吐了
+
