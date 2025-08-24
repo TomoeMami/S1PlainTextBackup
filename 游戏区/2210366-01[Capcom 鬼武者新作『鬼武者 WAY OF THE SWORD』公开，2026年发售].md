@@ -2530,3 +2530,17 @@ steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  天选之子  
+##### 275#       发表于 2025-8-25 02:39
+
+<blockquote>真实之影 发表于 2025-8-25 00:24
+https://www.youtube.com/watch?v=cykCLpvR2gw
+
+找了个偏向一闪的试玩演示
+
+https://www.bilibili.com/video/ ...</blockquote>
+一闪可以同时削体力条和架势条，架势条清空以后接处决的回报比平砍和一闪高。感觉高手速通的套路就是“一闪接一闪接处决”了。
+
