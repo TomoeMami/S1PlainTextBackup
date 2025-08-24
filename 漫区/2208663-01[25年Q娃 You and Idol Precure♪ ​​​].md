@@ -44,3 +44,13 @@
 
 钢之炼金术师+魔法少女小圆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1244#       发表于 2025-8-24 21:09
+
+你一个强化道具（？）演出的这么邪恶真的没问题吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过虽然演出的这么夸张看起来下集就解决
+
