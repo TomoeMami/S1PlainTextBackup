@@ -3114,3 +3114,14 @@ ex隐藏还是要二队的，还有小兵增援
 
 自动感觉就是要多带必闪机师，高级了boss容易秒人，自己回合必闪打+敌人回合援防比较容易过
 
+
+*****
+
+####  AminGly  
+##### 2545#       发表于 2025-8-24 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68312453&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-8-24 02:05</a>
+
+那我来求个auto作业</blockquote>
+【智障ai全自动打武者高达20层-哔哩哔哩】 [https://b23.tv/eqxnvYg](https://b23.tv/eqxnvYg)
+
