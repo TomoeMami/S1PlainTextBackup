@@ -206,3 +206,70 @@ https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_inst
 如果不想一个200MB的补丁就读写硬盘20GB的话这么打包其实很合理</blockquote>
 不打大包没问题，但为什么要大量重复打包相同的资产导致游戏体积膨胀数倍？活久见<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保科智子  
+##### 6952#       发表于 2025-8-20 16:16
+
+怕啥。总比隔壁荒野好。我e3v2都在跑，效果还不错。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 6953#       发表于 2025-8-22 18:45
+
+[https://www.reddit.com/r/Helldiv ... _is_130_gb_install/](https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_install/)
+
+我看到关于《地狱潜者2》PC版安装大小的帖子。这不是因为4K纹理，因为游戏中4K纹理很少。也不是因为语言包，不同语言是可选DLC，每个约400MB可在Steam下载。游戏安装体积巨大的原因在于资源重复使用。
+
+它会大量重复打包资源。
+
+游戏并未采用单一副本的方式存储纹理（或其他资源），而是将同一纹理打包到多个不同文件中，并与其他使用该纹理的资源一起。例如，Devastator和重型Devastator的网格模型（3D模型）分别存储在单独文件中。但每个文件中都会包含多个相同纹理的副本，因为它们的主体都使用相同的纹理。
+
+Devastator主体的法线贴图在游戏文件中出现了44次。我编写了一个脚本，用于扫描游戏文件并统计每个游戏资源的出现次数，输出结果如图片帖子所示（按出现次数排序，仅显示前几项）。所有游戏资源的总和大小为133.97 GB（我已安装所有额外语言包，因此你的安装大小可能略低）。但唯一资源的实际大小仅为30.39 GB。也就是说，如果游戏每个资源只保留一份拷贝，可以将安装大小减少100 GB。我发现最占用文件空间的重复资源是岩石环境的2K法线贴图，该资源被复制了128次，总共占用了2 GB存储空间。
+
+技术的神<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ジム  
+##### 6954#       发表于 2025-8-22 18:57
+
+<blockquote>泰坦失足 发表于 2025-8-20 11:31
+看了下SD上运行的画面很寒颤啊. 但是国区Steam价格太便宜了.</blockquote>
+用来低难度单刷个蓝币啥的完全没问题，配合小黄鸭也基本可以在60帧上下
+
+高难度还是不要委屈自己眼睛了
+
+*****
+
+####  qwased  
+##### 6955#       发表于 2025-8-22 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306891&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-8-22 18:45</a>
+
+https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_install/
+
+我看到关于《地 ...</blockquote>
+如果不想一个200MB的补丁就读写硬盘20GB的话这么打包其实很合理<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 6956#       发表于 2025-8-22 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307310&amp;ptid=2170852" target="_blank">qwased 发表于 2025-8-22 20:23</a>
+
+如果不想一个200MB的补丁就读写硬盘20GB的话这么打包其实很合理</blockquote>
+不打大包没问题，但为什么要大量重复打包相同的资产导致游戏体积膨胀数倍？活久见<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6957#       发表于 2025-8-24 18:13
+
+太哈人了，今天这穿刺虫一刷刷五六只，比路边的野狗都要多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
