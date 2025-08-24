@@ -3104,3 +3104,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那我来求个auto作业
 
+
+*****
+
+####  rockroxas  
+##### 2544#       发表于 2025-8-24 17:29
+
+为什么0085红高是7%攻跟10%防，哪怕给个机动补命中呢
+
+自动感觉就是要多带必闪机师，高级了boss容易秒人，自己回合必闪打+敌人回合援防比较容易过
+
