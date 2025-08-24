@@ -351,10 +351,10 @@
     "update": false
   },
   "2084912": {
-    "totalreply": 17982,
+    "totalreply": 17983,
     "title": "[《Fate／Grand Order》日服手游讨论帖(7周年快乐)]",
     "newtitle": "[FGO日服讨论帖]",
-    "lastedit": 1756010650,
+    "lastedit": 1756022768,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 186590,
+    "totalreply": 186592,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756022048,
+    "lastedit": 1756022650,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11574,10 +11574,10 @@
     "update": false
   },
   "2251078": {
-    "totalreply": 1296,
+    "totalreply": 1297,
     "title": "[【DKX破坏】咚奇刚3D全新作《咚奇刚 蕉力全开》公布！2025.7.17发售！]",
     "newtitle": "[【DKX破坏】《蕉力全开》专楼！现已发售！]",
-    "lastedit": 1756018691,
+    "lastedit": 1756022651,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13140,10 +13140,10 @@
     "update": false
   },
   "2258441": {
-    "totalreply": 183,
+    "totalreply": 184,
     "title": "[中东专楼-8月版]",
     "newtitle": "[中东专楼-8月版]",
-    "lastedit": 1756021933,
+    "lastedit": 1756022529,
     "category": "外野",
     "active": true,
     "update": false
@@ -14792,7 +14792,7 @@
     "newtitle": "[展现驾驶员与后勤深度合作的机战作品]",
     "lastedit": 1755763097,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2259428": {
@@ -16533,10 +16533,10 @@
     "update": false
   },
   "2260039": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "[生育率跌破2，印度人也不想生了]",
     "newtitle": "[生育率跌破2，印度人也不想生了]",
-    "lastedit": 1756017975,
+    "lastedit": 1756022768,
     "category": "外野",
     "active": true,
     "update": false
@@ -16632,11 +16632,20 @@
     "update": false
   },
   "2260090": {
-    "totalreply": 59,
+    "totalreply": 63,
     "title": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
     "newtitle": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
-    "lastedit": 1756022288,
+    "lastedit": 1756022887,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2260058": {
+    "totalreply": 42,
+    "title": "[各位要的真正的少女乐队]",
+    "newtitle": "[各位要的真正的少女乐队]",
+    "lastedit": 1756022529,
+    "category": "外野",
     "active": true,
     "update": false
   }

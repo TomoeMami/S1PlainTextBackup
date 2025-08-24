@@ -2461,3 +2461,11 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最后的30石抽水提歪了恩奇都 万 策 尽
 
+
+*****
+
+####  千叶铁矢  
+##### 17983#       发表于 2025-8-24 16:03
+
+追求商店毕业的话是平铺出现率礼装还是氪金礼装？
+
