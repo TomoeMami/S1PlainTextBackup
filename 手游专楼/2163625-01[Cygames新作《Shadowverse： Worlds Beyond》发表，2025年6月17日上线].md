@@ -333,3 +333,11 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 我们鱼丸怎么会变成这样子，惊天两条蛆，最喜欢玩的鱼龙教已经有2家提前备战第4弹了
 
+
+*****
+
+####  windhawind2  
+##### 675#       发表于 2025-8-25 13:46
+
+目前透露的卡除了皇很强以外 其它看上去都菜菜的。。。<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">（梦论外 得看整个体系）
+
