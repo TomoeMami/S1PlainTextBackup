@@ -2544,3 +2544,14 @@ https://www.youtube.com/watch?v=cykCLpvR2gw
 https://www.bilibili.com/video/ ...</blockquote>
 一闪可以同时削体力条和架势条，架势条清空以后接处决的回报比平砍和一闪高。感觉高手速通的套路就是“一闪接一闪接处决”了。
 
+
+*****
+
+####  57042711  
+##### 276#       发表于 2025-8-25 17:11
+
+不知道大型妖怪好不好打出失衡…不行的话那还是原汁原味鬼武者<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+等一个大型妖怪实机演示…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
