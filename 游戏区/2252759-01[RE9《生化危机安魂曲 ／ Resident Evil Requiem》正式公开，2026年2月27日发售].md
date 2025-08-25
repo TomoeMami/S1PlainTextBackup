@@ -3326,3 +3326,14 @@ boss战的地点是在浣熊市附近的疗养院
 这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
 维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼
 
+
+*****
+
+####  Muteki_Link  
+##### 326#       发表于 2025-8-25 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318470&amp;ptid=2252759" target="_blank">ronac 发表于 2025-8-25 12:35</a>
+
+维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼</blockquote>
+老威坟头草都老高了，史蒂夫还没下文。克莱尔在后续启示录里或者动画电影里也没再提过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
