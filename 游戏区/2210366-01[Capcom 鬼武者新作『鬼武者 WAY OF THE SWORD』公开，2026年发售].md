@@ -2555,3 +2555,11 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hikari0805  
+##### 277#       发表于 2025-8-25 18:36
+
+我是一点不担心鬼武者大型boss，卡普空这方面积累可太多了。倒是这么多年了，卡普空人形boss设计有没新突破是我关心的
+

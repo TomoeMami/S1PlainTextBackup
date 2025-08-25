@@ -2547,3 +2547,13 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 狗萌新的日常......毫不意外</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">豹豹又尬黑
 
+
+*****
+
+####  琴酒  
+##### 17992#       发表于 2025-8-25 18:34
+
+最后321才抽到提妈<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还债了
+
