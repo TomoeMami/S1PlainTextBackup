@@ -2571,3 +2571,14 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 这次感觉日版是不是又是和谐版的，我看欧美媒体演示里界面是英文语言的小怪被终结斩杀或者一闪的时候有断肢和分尸效果，几个日本媒体的日文界面的演示里被终结斩杀后就完全没断肢效果<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drx66  
+##### 279#       发表于 2025-8-26 07:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68321185&amp;ptid=2210366" target="_blank">葵 发表于 2025-8-25 22:10</a>
+
+这次感觉日版是不是又是和谐版的，我看欧美媒体演示里界面是英文语言的小怪被终结斩杀或者一闪的时候有断肢 ...</blockquote>
+有选项开关，日媒自己关了
+
