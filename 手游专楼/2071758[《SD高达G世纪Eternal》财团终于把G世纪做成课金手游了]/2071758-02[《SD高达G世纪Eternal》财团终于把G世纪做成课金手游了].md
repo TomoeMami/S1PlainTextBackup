@@ -3157,3 +3157,19 @@ ex隐藏还是要二队的，还有小兵增援
 
 试了下还能用，关键还是重复作业难顶
 
+
+*****
+
+####  captoon  
+##### 2549#       发表于 2025-8-26 02:52
+
+<img src="https://img.stage1st.com/forum/202508/26/025221qjxli9mmjh1xq19n.png" referrerpolicy="no-referrer">
+
+<strong>CE38D32DC60579BC633BEA0874E5CE42.png</strong> (482.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 02:52 上传
+
+这期要到20，有不小的难度，怀疑到时间我都磨不到20
+
