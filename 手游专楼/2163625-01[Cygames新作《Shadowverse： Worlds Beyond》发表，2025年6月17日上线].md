@@ -351,3 +351,11 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 我怀疑第三弹应该就皇梦龙的卡像个样子
 
+
+*****
+
+####  千千千千鸟  
+##### 677#       发表于 2025-8-25 21:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主教玩家本来想说第三版本冲个500胜利拿称号的，目前胜场差不多250，我是250吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
