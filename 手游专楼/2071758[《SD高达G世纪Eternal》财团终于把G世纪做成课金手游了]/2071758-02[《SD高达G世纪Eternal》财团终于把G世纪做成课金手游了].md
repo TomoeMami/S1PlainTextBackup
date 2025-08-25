@@ -3133,3 +3133,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 强敌挑战最恶心的是命脉吧，自动13层就打不动了，手操有救世主红扎一下一个，优先黄鸡还有三台盾机挡着，把这几台打完命脉清场了，除了开必闪耗命脉EN就没其他打法了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2547#       发表于 2025-8-25 10:00
+
+不打了。。。重复劳动，拿到芯片走人。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
