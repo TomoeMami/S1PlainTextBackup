@@ -2588,3 +2588,68 @@ BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.sta
 
        [https://x.com/BUSHIM_ongaku/status/1958766231034454127](https://x.com/BUSHIM_ongaku/status/1958766231034454127)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41188#       发表于 2025-8-25 18:39
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/25/183940q4m73mzl43kywmew.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-25_18-38-42.jpg</strong> (573.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:39 上传
+
+       [https://x.com/anime_tokyo/status/1959903578468049265](https://x.com/anime_tokyo/status/1959903578468049265)
+
+       [https://tokyoanimecenter.jp/event/anime_mygo-avemujica_osaka_exh/](https://tokyoanimecenter.jp/event/anime_mygo-avemujica_osaka_exh/)
+
+*****
+
+####  堀内爱里衣  
+##### 41189#       发表于 2025-8-25 18:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/25/184237mxyn2xptfpktp2f2.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-25_18-40-21.jpg</strong> (336.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:42 上传
+
+       [https://x.com/BUSHIM_ongaku/status/1959903576815525998](https://x.com/BUSHIM_ongaku/status/1959903576815525998)
+
+       [https://bushiroad-music.com/topics/19572/](https://bushiroad-music.com/topics/19572/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/25/184236lzw9nh9s364g2iym.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-25_18-41-05.jpg</strong> (297.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:42 上传
+
+       [https://x.com/bang_dream_info/status/1959903585241866253](https://x.com/bang_dream_info/status/1959903585241866253)
+
+       [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/25/184235howy5ifuhqqshuos.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-25_18-41-54.jpg</strong> (189.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:42 上传
+
+       [https://t.bilibili.com/1104994548692549635](https://t.bilibili.com/1104994548692549635)
+
