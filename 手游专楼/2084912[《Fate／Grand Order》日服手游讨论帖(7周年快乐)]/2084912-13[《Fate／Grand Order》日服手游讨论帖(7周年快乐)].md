@@ -2515,3 +2515,24 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 那肯定是氪金礼装啊，不过我个人是各带一张满破氪金礼装，然后找好友的满出现率礼装的，自己带满破+掉落 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">基础概率30？ 要70才能满？
 
+
+*****
+
+####  qixinno2  
+##### 17989#       发表于 2025-8-25 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-25 17:47</a>
+
+免费单抽原来真能出货</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕 竟然还是剧情限定
+
+*****
+
+####  森兰丸  
+##### 17990#       发表于 2025-8-25 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-25 17:47</a>
+
+免费单抽原来真能出货</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">狗萌新的日常......毫不意外
+
