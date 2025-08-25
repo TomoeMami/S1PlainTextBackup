@@ -193,3 +193,14 @@ yls就作吧，我看明年这1000石也就填一个所长了
 
 30抽下去啥都没<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47405#       发表于 2025-8-25 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318197&amp;ptid=1712412" target="_blank">失落之翼 发表于 2025-8-25 11:46</a>
+
+30抽下去啥都没</blockquote>
+或者氪金？起码我是氪金就出了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
