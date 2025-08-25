@@ -10422,10 +10422,10 @@
     "update": false
   },
   "2207788": {
-    "totalreply": 1733,
+    "totalreply": 1734,
     "title": "[流放之路2／降临(Path of Exile2) 大型施工现场]",
     "newtitle": "[第四章+大加强 国服9／11 流放之路2 (Path of Exile2) 专楼]",
-    "lastedit": 1756134012,
+    "lastedit": 1756135578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 185813,
+    "totalreply": 185815,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1756134610,
+    "lastedit": 1756135574,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11727,10 +11727,10 @@
     "update": false
   },
   "2193746": {
-    "totalreply": 208,
+    "totalreply": 209,
     "title": "[Silent Witch 沉默魔女的秘密 动画化]",
     "newtitle": "[Silent Witch 沉默魔女的秘密 动画化]",
-    "lastedit": 1756134976,
+    "lastedit": 1756135578,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15674,7 +15674,7 @@
     "newtitle": "[原来《七剑下天山》跟《七剑》就只剩下名字有关系了]",
     "lastedit": 1755875891,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2259785": {
@@ -16034,7 +16034,7 @@
     "newtitle": "[美军F-18战机坠毁。]",
     "lastedit": 1755876133,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2259967": {
@@ -16061,7 +16061,7 @@
     "newtitle": "[《Baba is you》作者最新纸牌大作《A Solitaire Mystery》]",
     "lastedit": 1755875774,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2259974": {
@@ -16164,10 +16164,10 @@
     "update": false
   },
   "2150442": {
-    "totalreply": 129,
+    "totalreply": 131,
     "title": "[你认为BG3的成功是因为拉瑞安还是IP本身]",
     "newtitle": "[你认为BG3的成功是因为拉瑞安还是IP本身]",
-    "lastedit": 1756133650,
+    "lastedit": 1756135578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16299,10 +16299,10 @@
     "update": false
   },
   "2260090": {
-    "totalreply": 167,
+    "totalreply": 169,
     "title": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
     "newtitle": "[不知火舞这脸也太伟大了，就该拿冠军好吧]",
-    "lastedit": 1756133649,
+    "lastedit": 1756135578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16461,10 +16461,10 @@
     "update": false
   },
   "2260125": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[据说凡人修仙传几个女角色好像都挺火的？]",
     "newtitle": "[据说凡人修仙传几个女角色好像都挺火的？]",
-    "lastedit": 1756134733,
+    "lastedit": 1756135327,
     "category": "外野",
     "active": true,
     "update": false
@@ -16551,10 +16551,10 @@
     "update": false
   },
   "2260166": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[打完明末我又去玩了黑魂3]",
     "newtitle": "[打完明末我又去玩了黑魂3]",
-    "lastedit": 1756134983,
+    "lastedit": 1756135578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16605,10 +16605,10 @@
     "update": false
   },
   "2050551": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[多年后重看一遍《只有神知道的世界》，感觉还是意难平啊]",
     "newtitle": "[多年后重看一遍《只有神知道的世界》，感觉还是意难平啊]",
-    "lastedit": 1756107021,
+    "lastedit": 1756135578,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16718,6 +16718,15 @@
     "newtitle": "[成都一男子骑车不慎，头部卡进红绿灯40分钟]",
     "lastedit": 1756133172,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2148085": {
+    "totalreply": 58,
+    "title": "[《尸体派对2 Darkness Distortion》延期至2025年发售]",
+    "newtitle": "[《尸体派对2 Darkness Distortion》延期至2025年发售]",
+    "lastedit": 1756135211,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
