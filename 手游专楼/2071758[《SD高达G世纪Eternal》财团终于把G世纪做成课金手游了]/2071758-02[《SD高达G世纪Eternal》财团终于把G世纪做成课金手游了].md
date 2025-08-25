@@ -3143,3 +3143,17 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 2548#       发表于 2025-8-25 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68316983&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-8-25 08:34</a>
+
+强敌挑战最恶心的是命脉吧，自动13层就打不动了，手操有救世主红扎一下一个，优先黄鸡还有三台盾机挡着，把 ...</blockquote>
+不是有挡援防的玩法
+[https://www.bilibili.com/video/BV1xR35zwEAG](https://www.bilibili.com/video/BV1xR35zwEAG)
+
+试了下还能用，关键还是重复作业难顶
+
