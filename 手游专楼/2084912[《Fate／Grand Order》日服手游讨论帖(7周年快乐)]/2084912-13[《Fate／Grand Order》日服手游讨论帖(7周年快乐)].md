@@ -2480,3 +2480,38 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 追求商店毕业的话是平铺出现率礼装还是氪金礼装？</blockquote>
 那肯定是氪金礼装啊，不过我个人是各带一张满破氪金礼装，然后找好友的满出现率礼装的，自己带满破+掉落的一张。
 
+
+*****
+
+####  shinitakute  
+##### 17985#       发表于 2025-8-24 12:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最后的30石抽水提歪了恩奇都 万 策 尽
+
+*****
+
+####  千叶铁矢  
+##### 17986#       发表于 2025-8-24 16:03
+
+追求商店毕业的话是平铺出现率礼装还是氪金礼装？
+
+*****
+
+####  khxooo  
+##### 17987#       发表于 2025-8-24 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68314774&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2025-8-24 16:03</a>
+
+追求商店毕业的话是平铺出现率礼装还是氪金礼装？</blockquote>
+那肯定是氪金礼装啊，不过我个人是各带一张满破氪金礼装，然后找好友的满出现率礼装的，自己带满破+掉落的一张。
+
+*****
+
+####  alucardcz  
+##### 17988#       发表于 2025-8-25 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68316253&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-24 23:31</a>
+
+那肯定是氪金礼装啊，不过我个人是各带一张满破氪金礼装，然后找好友的满出现率礼装的，自己带满破+掉落 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">基础概率30？ 要70才能满？
+
