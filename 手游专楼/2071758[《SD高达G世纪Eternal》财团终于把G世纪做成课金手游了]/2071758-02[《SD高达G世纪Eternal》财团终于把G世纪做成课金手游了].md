@@ -3125,3 +3125,11 @@ ex隐藏还是要二队的，还有小兵增援
 那我来求个auto作业</blockquote>
 【智障ai全自动打武者高达20层-哔哩哔哩】 [https://b23.tv/eqxnvYg](https://b23.tv/eqxnvYg)
 
+
+*****
+
+####  fireadol  
+##### 2546#       发表于 2025-8-25 08:34
+
+强敌挑战最恶心的是命脉吧，自动13层就打不动了，手操有救世主红扎一下一个，优先黄鸡还有三台盾机挡着，把这几台打完命脉清场了，除了开必闪耗命脉EN就没其他打法了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
