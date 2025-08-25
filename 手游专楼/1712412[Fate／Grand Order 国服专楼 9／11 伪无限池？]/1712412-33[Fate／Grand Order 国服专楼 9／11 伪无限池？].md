@@ -185,3 +185,11 @@ yls就作吧，我看明年这1000石也就填一个所长了
 
 不过存量只有150发了 感觉藤蔓和娄希要不放一个要不就得动用魔法的力量
 
+
+*****
+
+####  失落之翼  
+##### 47404#       发表于 2025-8-25 11:46
+
+30抽下去啥都没<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
