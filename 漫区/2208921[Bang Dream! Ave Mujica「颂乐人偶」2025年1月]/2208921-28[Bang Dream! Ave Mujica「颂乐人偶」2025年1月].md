@@ -2653,3 +2653,37 @@ BUSHIROAD这次财报好看但是股价涨得不多 <img src="https://static.sta
 
        [https://t.bilibili.com/1104994548692549635](https://t.bilibili.com/1104994548692549635)
 
+
+*****
+
+####  الطائر  
+##### 41190#       发表于 2025-8-25 19:00
+
+<img src="https://img.stage1st.com/forum/202508/25/185456wc1mqmmzkh2ct6o9.jpg" referrerpolicy="no-referrer">
+
+<strong>GzLyC1MaYAA5Lkk.jpg</strong> (98.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:54 上传
+
+<img src="https://img.stage1st.com/forum/202508/25/185735gerb15b0sdb1sdzg.jpg" referrerpolicy="no-referrer">
+
+<strong>GzMMvDCbwAA0BC9.jpg</strong> (88.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-25 18:57 上传
+
+一色 しめ ✴
+
+@shime_isshiki
+
+Ave Mujica 3rd Single
+
+イラストを描かせていただきました🌕
+
+どうぞよろしくお願いいたします！
+
+[https://x.com/shime_isshiki/status/1959924274938200097](https://x.com/shime_isshiki/status/1959924274938200097)
+
