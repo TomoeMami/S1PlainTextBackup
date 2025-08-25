@@ -2563,3 +2563,11 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 我是一点不担心鬼武者大型boss，卡普空这方面积累可太多了。倒是这么多年了，卡普空人形boss设计有没新突破是我关心的
 
+
+*****
+
+####  葵  
+##### 278#       发表于 2025-8-25 22:10
+
+这次感觉日版是不是又是和谐版的，我看欧美媒体演示里界面是英文语言的小怪被终结斩杀或者一闪的时候有断肢和分尸效果，几个日本媒体的日文界面的演示里被终结斩杀后就完全没断肢效果<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
