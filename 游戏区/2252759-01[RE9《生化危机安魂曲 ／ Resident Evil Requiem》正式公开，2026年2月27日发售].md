@@ -3315,3 +3315,14 @@ boss战的地点是在浣熊市附近的疗养院
 
 希望做的有心灵杀手水平，感觉会比八好玩
 
+
+*****
+
+####  ronac  
+##### 325#       发表于 2025-8-25 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼
+
