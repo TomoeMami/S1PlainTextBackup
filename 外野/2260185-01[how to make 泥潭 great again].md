@@ -358,3 +358,28 @@ with all my respect, "again"多余了
 
 半死不活的泥潭才是最好的泥潭<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克拉苏  
+##### 46#       发表于 2025-8-25 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68319740&amp;ptid=2260185" target="_blank">B能水野多 发表于 2025-8-25 16:16</a>
+我看出来了，你们是真的想让狗叔进去踩缝纫机</blockquote>
+现在是学建模<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  百损道人  
+##### 47#       发表于 2025-8-25 19:34
+
+文章憎命达，风雨飘摇的泥潭才能出精华帖<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novem  
+##### 48#       发表于 2025-8-25 19:36
+
+老用户都知道和换地址没有任何关系
+
