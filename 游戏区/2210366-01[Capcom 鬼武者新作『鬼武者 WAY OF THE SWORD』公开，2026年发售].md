@@ -2592,3 +2592,14 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 以前各种动作游戏都没有让我产生过这种感觉，可能这种偏写实的技巧、人形boss的原因？本作对敌技法还有动作的节奏明显都是奔着写实去的，或者说偏日本传统剑戟片的风格，但动作结果上又和剑戟片那种顺分生死产生了矛盾感。
 
+
+*****
+
+####  pu  
+##### 281#       发表于 2025-8-26 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68322190&amp;ptid=2210366" target="_blank">尘世小狗 发表于 2025-8-26 09:04</a>
+
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
+ 我也觉得这点不太给力 不过对手不是正常人 可以靠设定糊弄过去
+
