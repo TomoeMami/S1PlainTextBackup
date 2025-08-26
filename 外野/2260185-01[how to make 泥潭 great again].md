@@ -538,3 +538,13 @@ with all my respect, "again"多余了
 
 论坛这种形式是在渐渐落后于时代的，要学会接受现实
 
+
+*****
+
+####  AP0rt_  
+##### 67#       发表于 2025-8-26 15:59
+
+<img src="https://p.sda1.dev/26/369a5e036b0fd00bbe33eebc58f708d9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
