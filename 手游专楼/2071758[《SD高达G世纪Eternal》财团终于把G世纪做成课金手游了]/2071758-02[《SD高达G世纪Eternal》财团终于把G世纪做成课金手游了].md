@@ -3254,3 +3254,13 @@ ex隐藏还是要二队的，还有小兵增援
 
 大号轻松写意
 
+
+*****
+
+####  一个陆仁贾  
+##### 2555#       发表于 2025-8-26 14:55
+
+指挥官的挑战太磨人了，放一堆炮台在反方向，打完boss还要赶路打炮台增加时间<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
