@@ -193,3 +193,15 @@
 
 现在我只想知道轻语谈没谈原版的发行事宜，说白了不如赶紧把原版和重制捆一起放steam卖，还能给原作者多分点钱，事到如今新的那个做成什么×样没几个人在意
 
+
+*****
+
+####  kuarwbwe  
+##### 830#       发表于 2025-8-26 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68326078&amp;ptid=2093296" target="_blank">shimotsuki14 发表于 2025-8-26 22:20</a>
+还要加料？真的假的……能跟上节奏吗
+
+—— 来自 OPPO PKJ110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+去年就说了找了枯草章吉加剧情。
+
