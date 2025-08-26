@@ -632,3 +632,21 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 毫不意外又跳票了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">明年是原作（PC-98版）三十周年，喜事要丧办了。
 
+
+*****
+
+####  量产失败型  
+##### 61#       发表于 2025-8-26 18:49
+
+草  2代chapter1医院里关了12年还没出来的嘛<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忧郁  
+##### 62#       发表于 2025-8-26 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68325197&amp;ptid=2148085" target="_blank">灵魂收割机 发表于 2025-8-26 18:37</a>
+明年是原作（PC-98版）三十周年，喜事要丧办了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原作30周年当然是把今年上ns的冷饭合集再上一次pc
+
