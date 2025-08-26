@@ -3210,3 +3210,47 @@ ex隐藏还是要二队的，还有小兵增援
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AminGly  
+##### 2554#       发表于 2025-8-26 14:42
+
+原来真的计分有问题啊，可以歇逼了
+
+<img src="https://img.stage1st.com/forum/202508/26/144139pykk4ykcnatxkrpy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0e42692f668aa331b02778d5d9ca5880.jpeg</strong> (233.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 14:41 上传
+
+<img src="https://img.stage1st.com/forum/202508/26/144139byrh95y5va5avr3q.png" referrerpolicy="no-referrer">
+
+<strong>AF15EDE6AF166F620A2AB7C29627F3C1.png</strong> (369.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 14:41 上传
+
+<img src="https://img.stage1st.com/forum/202508/26/144139bdh0hikyeahq0xtn.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3380.png</strong> (611.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 14:41 上传
+
+小号都开榨不出来了
+
+<img src="https://img.stage1st.com/forum/202508/26/144140lmm7e51xzu7eu4q1.png" referrerpolicy="no-referrer">
+
+<strong>60DCB004D3D929860D67031053DA3896.png</strong> (382.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 14:41 上传
+
+大号轻松写意
+
