@@ -2687,3 +2687,35 @@ Ave Mujica 3rd Single
 
 [https://x.com/shime_isshiki/status/1959924274938200097](https://x.com/shime_isshiki/status/1959924274938200097)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41191#       发表于 2025-8-26 19:14
+
+ 本帖最后由 堀内爱里衣 于 2025-8-26 19:15 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/26/191525afaj571u1k1q5fut.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-26_19-14-43.jpg</strong> (634.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 19:15 上传
+
+       [https://x.com/bang_dream_info/status/1960296173862060415](https://x.com/bang_dream_info/status/1960296173862060415)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/26/191404zuv57hf7nx7ln500.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-26_19-13-34.jpg</strong> (655.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 19:14 上传
+
+       [https://t.bilibili.com/1105385427207979013](https://t.bilibili.com/1105385427207979013)
+
