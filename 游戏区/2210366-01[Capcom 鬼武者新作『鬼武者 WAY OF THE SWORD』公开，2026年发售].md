@@ -2614,3 +2614,13 @@ https://www.bilibili.com/video/ ...</blockquote>
 有选项开关，日媒自己关了</blockquote>
 哦哦，那就好<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天选之子  
+##### 283#       发表于 2025-8-27 04:42
+
+<blockquote>尘世小狗 发表于 2025-8-26 09:04
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
+佐佐木小次郎也有鬼之笼手，也算鬼武者，鬼武者已经不是普通人类了，一代结局动画里金城武被幻魔王捏死了都能靠鬼之笼手满血复活一次。
+
