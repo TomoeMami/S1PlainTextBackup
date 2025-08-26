@@ -150,3 +150,20 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lkvdea  
+##### 825#       发表于 2025-8-26 17:08
+
+不是，就个重制版为啥还要有文案写东西啊，直接照搬不就行了
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  桥洞底下盖小被  
+##### 826#       发表于 2025-8-26 17:12
+
+顶上来我还以为要发售了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
