@@ -85,3 +85,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一直很好奇，明明之前cp试玩玩的人也说就是独立游戏规模重制，为什么能开发到一半进度还要招这么多人啊，你总不能说是为了《废都物语2》准备吧
 
+
+*****
+
+####  ziyer  
+##### 818#       发表于 2025-8-26 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320169&amp;ptid=2093296" target="_blank">asikies 发表于 2025-8-25 17:45</a>
+
+小众玩意，预期不行，待遇肯定低于市场，只能靠用爱发电。</blockquote>
+但是也可以说：有一定知名度的作品，民间评价很高口碑很高，爱好者多且忠诚度高。全国找几个愿意为爱发电的人也不算难吧。并且我看过他们家的td，开的价还算合理，不是特别高，但是也不是太低。只是做一个大部分内容不需要创作，单纯重置的项目不算很难才对
+
