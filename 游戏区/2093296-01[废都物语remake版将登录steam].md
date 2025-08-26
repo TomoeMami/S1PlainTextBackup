@@ -167,3 +167,13 @@
 
 顶上来我还以为要发售了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 827#       发表于 2025-8-26 22:20
+
+还要加料？真的假的……能跟上节奏吗
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
