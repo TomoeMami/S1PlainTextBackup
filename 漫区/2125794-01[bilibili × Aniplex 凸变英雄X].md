@@ -440,3 +440,35 @@ smile怎么这么HOMO
 
 反过来看当时破坏王打林凌那次确实得说明明奈斯有那么个好基友结果一条路走到黑走死了，换林凌上台的时候反而连一点高层的人都没接触到靠着启示一个人直接给摁顶进了英雄塔
 
+
+*****
+
+####  DARK_HGCG  
+##### 479#       发表于 2025-8-26 18:29
+
+居然有人cos幸运青
+
+<img src="https://img.stage1st.com/forum/202508/26/182950gy775yfh3olt3syc.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250826-192914.png</strong> (216.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 18:29 上传
+
+<img src="https://img.stage1st.com/forum/202508/26/182952c2bde7z27mmmzd22.jpg" referrerpolicy="no-referrer">
+
+<strong>20250826_192857.jpg</strong> (944.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 18:29 上传
+
+<img src="https://img.stage1st.com/forum/202508/26/182952bh5bqw9btnbbe0gl.jpg" referrerpolicy="no-referrer">
+
+<strong>20250826_192852.jpg</strong> (732.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 18:29 上传
+
