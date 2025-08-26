@@ -281,3 +281,11 @@ https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_inst
 
 啥时候更新
 
+
+*****
+
+####  xinfengj  
+##### 6959#       发表于 2025-8-26 16:43
+
+更完了，只加了债券，晚上8点解锁。mod不出意外炸了。
+
