@@ -446,3 +446,11 @@ with all my respect, "again"多余了
 
 强制要求只会加减鹅的人士（小号）发帖，一周内没有10个回复或主题的不容许给别人加减鹅。
 
+
+*****
+
+####  bbk6rz  
+##### 57#       发表于 2025-8-26 08:35
+
+再来一个国家队，可能稍微有点救<img src="https://static.stage1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
