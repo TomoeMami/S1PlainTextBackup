@@ -289,3 +289,11 @@ https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_inst
 
 更完了，只加了债券，晚上8点解锁。mod不出意外炸了。
 
+
+*****
+
+####  FLZB  
+##### 6960#       发表于 2025-8-26 18:06
+
+M7S的dps接近杀戮地带的乌兹野牛，后坐力低不少，不过消音武器应该会在初速和衰减上下毒。MA5C可能跟审判者坐一桌，但没改装跟审判者坐一桌有点不太可能。喷子意料之中伤害最高，高达605<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
