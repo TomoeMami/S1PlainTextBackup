@@ -467,3 +467,29 @@ S1这边就先抽两个key吧，明天开，要是反响好我在去毛一点
 
 来当个分母
 
+
+*****
+
+####  某雷  
+##### 56#         楼主| 发表于 2025-8-26 21:59
+
+ 本帖最后由 某雷 于 2025-8-26 22:02 编辑 
+
+<img src="https://img.stage1st.com/forum/202508/26/215843qsfzfquagvv3n4l5.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-08-26_21-58-28.png</strong> (116.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 21:58 上传
+
+<img src="https://img.stage1st.com/forum/202508/26/220240h9kshyruczrb90po.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-08-26_22-01-35.png</strong> (70.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 22:02 上传
+
+恭喜48楼和26楼
+
