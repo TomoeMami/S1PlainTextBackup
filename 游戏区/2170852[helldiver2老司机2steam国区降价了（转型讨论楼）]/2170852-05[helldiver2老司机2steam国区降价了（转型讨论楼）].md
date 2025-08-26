@@ -393,3 +393,54 @@ xbox拼好兵巨浪上演冲击光能滩头。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">5个支线就找到两个，然后结算的时候其中一个变成空白了只算了一个，什么神秘bug
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6972#       发表于 2025-8-26 22:45
+
+我就说我今天玩了四五把卡死两次，我还以为是我电脑有问题了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  madcow  
+##### 6973#       发表于 2025-8-26 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">PC版真的不想办法缩缩体积嘛
+
+*****
+
+####  stormquantage  
+##### 6974#       发表于 2025-8-26 23:26
+
+20w上线史诗狂潮席卷银河系口牙。
+
+xbox拼好兵巨浪上演冲击光能滩头。
+
+今秋，全力呈现<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 6975#       发表于 2025-8-26 23:31
+
+让软软bug吃到饱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 6976#       发表于 2025-8-27 04:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">5个支线就找到两个，然后结算的时候其中一个变成空白了只算了一个，什么神秘bug
+
+*****
+
+####  xinfengj  
+##### 6977#       发表于 2025-8-27 07:40
+
+吞支线bug之前大城市图就有了，现在蔓延到野外了。
+
+看下周二能修多少吧
+
