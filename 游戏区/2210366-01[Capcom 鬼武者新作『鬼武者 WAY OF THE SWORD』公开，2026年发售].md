@@ -2603,3 +2603,14 @@ https://www.bilibili.com/video/ ...</blockquote>
 没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
  我也觉得这点不太给力 不过对手不是正常人 可以靠设定糊弄过去
 
+
+*****
+
+####  葵  
+##### 282#       发表于 2025-8-27 04:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68321909&amp;ptid=2210366" target="_blank">drx66 发表于 2025-8-26 07:30</a>
+
+有选项开关，日媒自己关了</blockquote>
+哦哦，那就好<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
