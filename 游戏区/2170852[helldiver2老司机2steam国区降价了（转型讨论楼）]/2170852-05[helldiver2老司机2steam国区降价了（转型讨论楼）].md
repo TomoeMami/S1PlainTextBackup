@@ -385,3 +385,11 @@ xbox拼好兵巨浪上演冲击光能滩头。
 
 让软软bug吃到饱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6971#       发表于 2025-8-27 04:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">5个支线就找到两个，然后结算的时候其中一个变成空白了只算了一个，什么神秘bug
+
