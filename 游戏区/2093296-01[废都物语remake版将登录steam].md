@@ -70,3 +70,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tmmd  
+##### 816#       发表于 2025-8-26 09:57
+
+不是, 还没出啊 
+
+*****
+
+####  噗呸破屁诚  
+##### 817#       发表于 2025-8-26 09:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一直很好奇，明明之前cp试玩玩的人也说就是独立游戏规模重制，为什么能开发到一半进度还要招这么多人啊，你总不能说是为了《废都物语2》准备吧
+
