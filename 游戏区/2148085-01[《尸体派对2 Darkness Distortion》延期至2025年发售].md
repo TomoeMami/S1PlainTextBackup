@@ -621,3 +621,14 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 毫不意外又跳票了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">等一个开发中止  想起我天国的侦探绅士完结篇了
 
+
+*****
+
+####  灵魂收割机  
+##### 60#       发表于 2025-8-26 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68321375&amp;ptid=2148085" target="_blank">smdzh2 发表于 2025-8-25 23:16</a>
+
+毫不意外又跳票了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">明年是原作（PC-98版）三十周年，喜事要丧办了。
+
