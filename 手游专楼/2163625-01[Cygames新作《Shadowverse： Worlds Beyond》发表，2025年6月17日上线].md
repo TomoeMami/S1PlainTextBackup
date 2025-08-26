@@ -359,3 +359,19 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主教玩家本来想说第三版本冲个500胜利拿称号的，目前胜场差不多250，我是250吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 678#       发表于 2025-8-26 21:08
+
+居然冠军了，2把内战，2把法爷，1把妖精，我说尤利乌斯是对的，真得带1<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202508/26/210427sossysycdodrm8si.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (367.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 21:04 上传
+
