@@ -484,3 +484,21 @@ with all my respect, "again"多余了
 管理员都不急，你急什么？</blockquote>
 急着让二狗喝茶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightraven  
+##### 61#       发表于 2025-8-26 14:31
+
+有些滑梯NGA国新区能聊泥潭因为怕炸潭不能聊，久而久之人就不来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  克拉苏  
+##### 62#       发表于 2025-8-26 14:35
+
+话我就搁这儿了 泥潭 never great<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

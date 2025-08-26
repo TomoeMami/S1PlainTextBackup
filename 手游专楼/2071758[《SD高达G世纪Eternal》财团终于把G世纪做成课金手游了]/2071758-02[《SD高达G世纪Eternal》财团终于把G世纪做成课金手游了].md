@@ -3189,3 +3189,24 @@ ex隐藏还是要二队的，还有小兵增援
 
 计分方式出BUG了，刚刚公告。难怪我说这期15W都那么难躺平，补偿500钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 2552#       发表于 2025-8-26 14:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+先骂代孙都说是没错的了 233
+
+谁调整的分数算法拖出去打了
+
+*****
+
+####  jackyhuang  
+##### 2553#       发表于 2025-8-26 14:27
+
+笑死分数调整完直接达标了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
