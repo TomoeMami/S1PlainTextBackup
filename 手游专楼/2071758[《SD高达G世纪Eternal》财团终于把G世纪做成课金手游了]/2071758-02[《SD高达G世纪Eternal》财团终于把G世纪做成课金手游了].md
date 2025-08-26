@@ -3181,3 +3181,11 @@ ex隐藏还是要二队的，还有小兵增援
 
 积分下调，17w就最高档了233
 
+
+*****
+
+####  胖达君  
+##### 2551#       发表于 2025-8-26 14:12
+
+计分方式出BUG了，刚刚公告。难怪我说这期15W都那么难躺平，补偿500钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
