@@ -273,3 +273,11 @@ https://www.reddit.com/r/Helldivers/comments/1mw3qcx/why_the_game_is_130_gb_inst
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 6958#       发表于 2025-8-26 16:16
+
+啥时候更新
+
