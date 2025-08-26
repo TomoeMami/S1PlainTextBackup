@@ -502,3 +502,11 @@ with all my respect, "again"多余了
 
 话我就搁这儿了 泥潭 never great<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  boeing  
+##### 63#       发表于 2025-8-26 14:44
+
+找几个搬屎的人，双向搬，把外面搬进来，把泥潭的搬出去。
+
