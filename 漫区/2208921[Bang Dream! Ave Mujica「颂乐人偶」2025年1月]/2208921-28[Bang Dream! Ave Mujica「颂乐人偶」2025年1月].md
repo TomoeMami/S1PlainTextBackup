@@ -2719,3 +2719,33 @@ Ave Mujica 3rd Single
 
        [https://t.bilibili.com/1105385427207979013](https://t.bilibili.com/1105385427207979013)
 
+
+*****
+
+####  Alicest  
+##### 41192#       发表于 2025-8-26 20:14
+
+这嵌字真的是神人了
+
+第一张：原文是黑体你为什么用圆体？嗯？而且“~”为什么不标准垂直？
+
+<img src="https://img.stage1st.com/forum/202508/26/201419qxkrzktqf26x6x6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 20:14 上传
+
+第二张：我操啊你是故意的吗？？？为什么这次在左边的“~”标准垂直了？但是右边的两个感叹号压根没动？？？为什么两边明明是左黑体右圆体你用个黑体改体还改了粗细？明明上一张就有圆体啊？你很得意吗？？？
+
+<img src="https://img.stage1st.com/forum/202508/26/201424z9l39sqqldelh3c5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 20:14 上传
+
+你这是人吗，是人吗？？？
+
