@@ -650,3 +650,33 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 明年是原作（PC-98版）三十周年，喜事要丧办了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原作30周年当然是把今年上ns的冷饭合集再上一次pc
 
+
+*****
+
+####  稀勢のささ  
+##### 63#       发表于 2025-8-26 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68325241&amp;ptid=2148085" target="_blank">量产失败型 发表于 2025-8-26 18:49</a>
+
+草  2代chapter1医院里关了12年还没出来的嘛</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个好像反反复复几次，一会儿要做一会儿不做来着
+
+*****
+
+####  smdzh2  
+##### 64#       发表于 2025-8-26 18:59
+
+<blockquote>量产失败型 发表于 2025-8-26 19:49
+草  2代chapter1医院里关了12年还没出来的嘛</blockquote>
+官方说以后会补上
+
+<img src="https://img.stage1st.com/forum/202508/26/195839gudms5m5zbu2mjuz.png" referrerpolicy="no-referrer">
+
+<strong>037.png</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-8-26 18:58 上传
+
+照这个工作效率2030年可以玩到
+
