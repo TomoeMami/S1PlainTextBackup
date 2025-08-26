@@ -2557,3 +2557,48 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 还债了
 
+
+*****
+
+####  森兰丸  
+##### 17993#       发表于 2025-8-25 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-25 17:47</a>
+
+免费单抽原来真能出货</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">狗萌新的日常......毫不意外
+
+*****
+
+####  alucardcz  
+##### 17994#       发表于 2025-8-25 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320215&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-8-25 17:54</a>
+
+狗萌新的日常......毫不意外</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">豹豹又尬黑
+
+*****
+
+####  琴酒  
+##### 17995#       发表于 2025-8-25 18:34
+
+最后321才抽到提妈<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还债了
+
+*****
+
+####  zechins  
+##### 17996#       发表于 2025-8-26 12:46
+
+<img src="https://img.stage1st.com/forum/202508/26/124636mvordsvxpvjlr08p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (377.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-26 12:46 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">被美游做局了
+
