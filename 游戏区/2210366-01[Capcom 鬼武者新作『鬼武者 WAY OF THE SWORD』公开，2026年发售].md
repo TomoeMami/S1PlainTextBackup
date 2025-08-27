@@ -2728,3 +2728,11 @@ fami通访谈
 开发进度80%，试玩版也能用通常的一闪。
 [https://www.famitsu.com/article/202508/50519](https://www.famitsu.com/article/202508/50519)
 
+
+*****
+
+####  Leliel  
+##### 294#       发表于 2025-8-28 00:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">想玩试玩
+
