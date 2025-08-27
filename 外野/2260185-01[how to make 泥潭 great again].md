@@ -702,3 +702,16 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 —— 来自 deltainno DT1901A, Android 10, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  休斯顿·张伯伦  
+##### 84#       发表于 2025-8-27 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68328612&amp;ptid=2260185" target="_blank">zhmouohz 发表于 2025-8-27 13:44</a>
+
+要不重新定义下什么叫great,比如说所有帖子字体大小都用一号叫great。
+
+论坛这种组织形式因为对内容创作者的 ...</blockquote>
+就是因为没有奖励才能维持一个起码正常的讨论环境，要有奖励分分钟就被营销号矩阵占领了。
+
