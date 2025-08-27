@@ -105,3 +105,14 @@ steam那个比微软自带的好用
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zid99825  
+##### 1428#       发表于 2025-8-27 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68327550&amp;ptid=2086469" target="_blank">bypass 发表于 2025-8-27 10:19</a>
+
+我的经验是不要对消费级特供版的 Windows 抱太大期望，最后经常都是被砍掉的命。 ...</blockquote>
+然而并不是特供版，就是完整版win11内追加的feature，但只开放给白名单掌机设备
+
