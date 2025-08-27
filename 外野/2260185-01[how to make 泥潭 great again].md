@@ -635,3 +635,36 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 现身说法，我原本以为已经嘎了，也是昨天试着打开这个新域名才进来的
 
+
+*****
+
+####  lyb  
+##### 77#       发表于 2025-8-27 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68328577&amp;ptid=2260185" target="_blank">愛繋璃まつり 发表于 2025-8-27 13:38</a>
+因为有出息的会离开S1 走向世界，所以留下来的
+
+一堆傻逼车贴，S1这么小流量的地方还在反复开新号小号聊车 ...</blockquote>
+那不是小米造车了吗
+
+
+*****
+
+####  mtxyd  
+##### 78#       发表于 2025-8-27 14:12
+
+<blockquote>lyb 发表于 2025-8-27 14:07
+那不是小米造车了吗</blockquote>
+小米车开始卖之前比亚迪的颓势尽显帖就在泥潭发了快一年吧，那时候就有要不要重开车版的讨论了
+
+结论是车版从来没关过无所谓重开
+
+*****
+
+####  dasik  
+##### 79#       发表于 2025-8-27 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">游戏区漫区不都好好活着呢吗？顶梁柱都没死你们急什么，泥潭不是游戏动漫论坛吗
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
