@@ -465,3 +465,15 @@ xbox那边服务器崩了<img src="https://static.stage1st.com/image/smiley/face
 
 这新敌人像sc2蟑螂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6980#       发表于 2025-8-27 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉箭头不知道修了什么，现在很多东西手感变了，特别是最后通牒
+
+帧数稳定了一点
+
+音效彻底烂了，混战的时候很多声音都断断续续或者消失掉
+
