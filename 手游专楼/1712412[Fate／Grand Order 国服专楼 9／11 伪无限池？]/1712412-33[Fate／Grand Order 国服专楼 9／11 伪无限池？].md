@@ -204,3 +204,11 @@ yls就作吧，我看明年这1000石也就填一个所长了
 30抽下去啥都没</blockquote>
 或者氪金？起码我是氪金就出了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47406#       发表于 2025-8-27 16:54
+
+草，付费石头不出东西，呼符来了个雨神，付费石头没灵魂<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
