@@ -3337,3 +3337,11 @@ boss战的地点是在浣熊市附近的疗养院
 维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼</blockquote>
 老威坟头草都老高了，史蒂夫还没下文。克莱尔在后续启示录里或者动画电影里也没再提过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  理子石  
+##### 327#       发表于 2025-8-27 19:20
+
+看试玩还挺恐怖的
+
