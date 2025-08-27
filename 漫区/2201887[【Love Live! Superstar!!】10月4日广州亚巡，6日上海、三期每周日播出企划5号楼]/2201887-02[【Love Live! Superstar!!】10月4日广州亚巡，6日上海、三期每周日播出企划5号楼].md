@@ -32,3 +32,14 @@
 
 <img src="https://p.sda1.dev/26/059e506eb6c402d94560de86f8173ffa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1713#       发表于 2025-8-27 17:37
+
+day2灯佩妃
+<img src="https://p.sda1.dev/26/2c62ee37c0af9c21e5c3ff77ca4b3dfe/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
