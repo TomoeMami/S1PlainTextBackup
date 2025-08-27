@@ -992,3 +992,18 @@ yukio就不说了，这个蹦极好多v都去过，prr和429去的都是这边
 我寻思今天是星期二也不是星期四啊
 不过果然还是要点战前准备
 
+
+*****
+
+####  TiHaru  
+##### 19472#       发表于 2025-8-27 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68286414&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-8-19 02:35</a>
+
+45.96/54.04
+
+50946/59893</blockquote>
+45.83/54.17
+
+52948/62594
+
