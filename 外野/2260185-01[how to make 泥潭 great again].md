@@ -798,3 +798,16 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 只需改名southplus1
 
+
+*****
+
+####  今天不守尸  
+##### 93#       发表于 2025-8-27 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68329666&amp;ptid=2260185" target="_blank">kcalb 发表于 2025-8-27 17:15</a>
+
+以前当季最火的能上100页，
+
+现在当季最火的579页</blockquote>
+上一部高达水星的魔女我记得漫区盖了不止一千多页吧，看来漫区确实完蛋了
+
