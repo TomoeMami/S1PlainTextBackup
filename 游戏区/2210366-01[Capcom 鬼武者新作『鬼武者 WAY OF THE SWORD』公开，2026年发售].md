@@ -2708,3 +2708,23 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 真的是不喜欢写实画风，卡婊现在还能做不写实的游戏吗
 
+
+*****
+
+####  57042711  
+##### 292#       发表于 2025-8-28 00:24
+
+远距离处决那个弓手是真的帅，比近身那个单手下斩帅多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kos_mos  
+##### 293#       发表于 2025-8-28 00:25
+
+fami通访谈
+
+开发进度80%，试玩版也能用通常的一闪。
+[https://www.famitsu.com/article/202508/50519](https://www.famitsu.com/article/202508/50519)
+
