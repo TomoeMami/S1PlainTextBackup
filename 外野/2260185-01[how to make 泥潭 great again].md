@@ -776,3 +776,25 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 收费论坛就应该为用户提供更多服务，干死那些不想见到的声音，而不是让用户自己和人互撕慢慢把对立者淘汰掉
 
+
+*****
+
+####  kcalb  
+##### 91#       发表于 2025-8-27 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68329461&amp;ptid=2260185" target="_blank">今天不守尸 发表于 2025-8-27 16:34</a>
+
+漫区不是已经死了吗
+
+以前当季新番最火的专楼能上100页，甚至每集还要开新楼，现在超过10页就算热门 ...</blockquote>
+以前当季最火的能上100页，
+
+现在当季最火的579页<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 92#       发表于 2025-8-27 17:16
+
+只需改名southplus1
+
