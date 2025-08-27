@@ -576,3 +576,18 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 泥潭不是很喜欢宏大叙事吗，现在大趋势就是bbs都得死，泥潭也不能例外
 
+
+*****
+
+####  痴货  
+##### 71#       发表于 2025-8-27 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68322175&amp;ptid=2260185" target="_blank">叉子 发表于 2025-8-26 09:00</a>
+
+说正经的，我一般在微博看到热点新闻。回头看泥潭有没有。
+
+我那是想看新闻吗？
+
+我想看群魔乱舞好吧。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 确实，一大乐趣就是看泥潭在新闻帖下面露出屁股激情互喷，现在没那翔味了
+
