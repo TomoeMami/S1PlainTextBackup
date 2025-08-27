@@ -723,3 +723,38 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 没事 撑不住会关站的 你不用担心
 
+
+*****
+
+####  今天不守尸  
+##### 86#       发表于 2025-8-27 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68328762&amp;ptid=2260185" target="_blank">dasik 发表于 2025-8-27 14:17</a>
+ 游戏区漫区不都好好活着呢吗？顶梁柱都没死你们急什么，泥潭不是游戏动漫论坛吗  —— 来自 OnePlus PJZ110 ...</blockquote>
+漫区不是已经死了吗
+以前当季新番最火的专楼能上100页，甚至每集还要开新楼，现在超过10页就算热门<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gameselect  
+##### 87#       发表于 2025-8-27 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68329461&amp;ptid=2260185" target="_blank">今天不守尸 发表于 2025-8-27 16:34</a>
+
+漫区不是已经死了吗
+
+以前当季新番最火的专楼能上100页，甚至每集还要开新楼，现在超过10页就算热门 ...</blockquote>
+上季和上上季不是有
+
+目前没讨论度高的
+
+*****
+
+####  lucifer123  
+##### 88#       发表于 2025-8-27 16:45
+
+我以前都觉得泥潭能活，每次关了再开也没感觉。但是这次关了再开明显感觉发帖和回帖量少多了。
+
+且刷切珍惜吧，说不定哪天就没了。
+

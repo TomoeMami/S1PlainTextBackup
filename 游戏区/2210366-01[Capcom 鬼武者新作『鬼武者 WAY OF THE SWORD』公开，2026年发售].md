@@ -2673,3 +2673,14 @@ https://www.bilibili.com/video/ ...</blockquote>
 
 再一点，这个游戏还没出，我根据视频发表自己的看法，你不同意没问题，别一上来就是我被强X怎么怎么了，挺没意思的
 
+
+*****
+
+####  JOJO42  
+##### 288#       发表于 2025-8-27 16:44
+
+ 本帖最后由 JOJO42 于 2025-8-27 16:45 编辑 
+
+官推发了个10分钟流程演示，光谈动画这块是真不赖，感觉除了背后暗杀，别的动作几乎没有模型吸附观感
+[https://www.youtube.com/watch?v=mjDbYpNrFjI](https://www.youtube.com/watch?v=mjDbYpNrFjI)
+
