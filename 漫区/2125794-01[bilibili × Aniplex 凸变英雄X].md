@@ -482,3 +482,17 @@ smile怎么这么HOMO
 那个魂电是不是假的？他没啥理由杀潇月卿，而尚德这边一心要杀魂电搞死岩莫给儿子报仇，潇死了给林凌上点 ...</blockquote>
 我觉得有道理
 
+
+*****
+
+####  DARK_HGCG  
+##### 481#       发表于 2025-8-27 21:19
+
+<img src="https://img.stage1st.com/forum/202508/27/211925weup585zpi51tl5o.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (99.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-27 21:19 上传
+
