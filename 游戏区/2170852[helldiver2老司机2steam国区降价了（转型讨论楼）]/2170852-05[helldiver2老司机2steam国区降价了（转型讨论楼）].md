@@ -457,3 +457,11 @@ xbox拼好兵巨浪上演冲击光能滩头。
 —— 来自 S1Fun</blockquote>
 xbox那边服务器崩了<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">梦回开服
 
+
+*****
+
+####  kalavinka  
+##### 6979#         楼主| 发表于 2025-8-27 11:44
+
+这新敌人像sc2蟑螂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
