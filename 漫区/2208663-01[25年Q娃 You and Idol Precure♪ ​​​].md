@@ -154,3 +154,15 @@ Capture d’écran 2025-08-25 170722.png
 
 东映又被黑客黑了
 
+
+*****
+
+####  leleq  
+##### 1250#       发表于 2025-8-27 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68329866&amp;ptid=2208663" target="_blank">gameselect 发表于 2025-8-27 18:03</a>
+东映又被黑客黑了</blockquote>
+挑n年前的剧场版官网鉴定为ff黑客。
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

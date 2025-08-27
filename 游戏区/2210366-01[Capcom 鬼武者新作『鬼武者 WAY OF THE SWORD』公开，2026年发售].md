@@ -2684,3 +2684,11 @@ https://www.bilibili.com/video/ ...</blockquote>
 官推发了个10分钟流程演示，光谈动画这块是真不赖，感觉除了背后暗杀，别的动作几乎没有模型吸附观感
 [https://www.youtube.com/watch?v=mjDbYpNrFjI](https://www.youtube.com/watch?v=mjDbYpNrFjI)
 
+
+*****
+
+####  大喇叭花田  
+##### 289#       发表于 2025-8-27 19:34
+
+三船这个脸是加了美颜还是因为画质原因看不清皮肤？没有PV1那种老男人的沧桑感了。
+
