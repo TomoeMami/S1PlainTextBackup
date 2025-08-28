@@ -602,3 +602,11 @@ rule姐（学生会长）
 
 一般高价区和低价区差个20%左右吧 他这个能达到50% 就很夸张
 
+
+*****
+
+####  8frames  
+##### 42#       发表于 2025-8-28 13:33
+
+所以前作那个raynatis有人品了吗，是真没看见有谁写了详细评测，就看见人口嗨说要玩了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

@@ -217,3 +217,11 @@ Capture d’écran 2025-08-25 170722.png
 这个算强化吗，更像是换色派生....</blockquote>
 一代没有，一代换色，未来就笑话她俩
 
+
+*****
+
+####  pokemon最爱  
+##### 1257#       发表于 2025-8-28 13:27
+
+只是换色的话，感觉可以期待一下打戏（也就是不是只放合体技用而是肉搏战也用）<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
