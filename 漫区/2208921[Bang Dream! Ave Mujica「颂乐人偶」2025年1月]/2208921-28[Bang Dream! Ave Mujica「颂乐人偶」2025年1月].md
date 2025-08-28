@@ -2773,3 +2773,42 @@ Ave Mujica 3rd Single
 
 感觉不如推特随便刷到的二创
 
+
+*****
+
+####  堀内爱里衣  
+##### 41196#       发表于 2025-8-28 12:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/28/124253ltlps84twt8sw8tt.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-28_12-07-17.jpg</strong> (165.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 12:42 上传
+
+       [https://t.bilibili.com/1106011665664573465](https://t.bilibili.com/1106011665664573465)
+
+       <strong>【明日方舟 × BanG Dream! Ave Mujica】SideStory「无忧梦呓」活动宣传PV</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/28/124252sdvf7dva93ddxevc.jpg" referrerpolicy="no-referrer">
+
+<strong>e0ded593b79bd597db823d03d60befb5bb356b56.jpg</strong> (335.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 12:42 上传
+
+【明日方舟 × BanG Dream! Ave Mujica】SideStory「无忧梦呓」活动宣传PV
+
+【明日方舟 × BanG Dream! Ave Mujica】SideStory「无忧梦呓」限时活动即将开启
+
+在这片大地上，留下属于我们的声音吧！
+
+————————————
+
+详细活动内容敬请关注《明日方舟》游戏内相关公告。</blockquote>
+      [https://www.bilibili.com/video/BV1bveDzcEY7](https://www.bilibili.com/video/BV1bveDzcEY7)
+
