@@ -636,3 +636,21 @@ change the background to the art style of anime
 使用models/nano-banana或models/gemini-2.5-flash-image-preview处理 ...</blockquote>
 哦哦，谢谢指南
 
+
+*****
+
+####  agsva  
+##### 42#       发表于 2025-8-28 08:02
+
+ 本帖最后由 agsva 于 2025-8-28 08:03 编辑 
+
+不知道是喂的图的精度问题还是关键词的问题，后面盒子的是喂给AI的图，生成的模型一点都不像。
+
+<img src="https://img.stage1st.com/forum/202508/28/080153a4hbw2yh5k54wy4l.png" referrerpolicy="no-referrer">
+
+<strong>unnamed-1.png</strong> (152.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 08:01 上传
+
