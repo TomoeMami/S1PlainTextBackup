@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 187422,
+    "totalreply": 187423,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756394890,
+    "lastedit": 1756395247,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8661,10 +8661,10 @@
     "totalreply": 12962,
     "title": "[《活侠传》定档6月19号发售]",
     "newtitle": "[武侠游戏《活侠传》现已发售,剧透请反白谢谢]",
-    "lastedit": 1756393811,
+    "lastedit": 1756395120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2019520": {
     "totalreply": 1071,
@@ -10575,13 +10575,13 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 186946,
+    "totalreply": 186951,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1756394772,
+    "lastedit": 1756395180,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2210567": {
     "totalreply": 673,
@@ -11457,13 +11457,13 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 8134,
+    "totalreply": 8135,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代／8.19卡车专场直面会]",
-    "lastedit": 1756393810,
+    "lastedit": 1756395120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2169941": {
     "totalreply": 443,
@@ -11577,10 +11577,10 @@
     "totalreply": 1297,
     "title": "[【DKX破坏】咚奇刚3D全新作《咚奇刚 蕉力全开》公布！2025.7.17发售！]",
     "newtitle": "[【DKX破坏】《蕉力全开》专楼！现已发售！]",
-    "lastedit": 1756022651,
+    "lastedit": 1756395120,
     "category": "游戏区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2253379": {
     "totalreply": 1376,
@@ -12186,10 +12186,10 @@
     "update": false
   },
   "1950481": {
-    "totalreply": 499,
+    "totalreply": 500,
     "title": "[《凡人修仙传》网络动画专楼]",
     "newtitle": "[《凡人修仙传》网络动画专楼]",
-    "lastedit": 1756394051,
+    "lastedit": 1756395011,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15737,7 +15737,7 @@
     "newtitle": "[国产精苏手游《雪松》——喜获版号啦！]",
     "lastedit": 1756135809,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2260022": {
@@ -15753,10 +15753,10 @@
     "totalreply": 323,
     "title": "[日本要求各国不参加中国的九三抗日胜利纪念活动]",
     "newtitle": "[日本要求各国不参加中国的九三抗日胜利纪念活动]",
-    "lastedit": 1756394528,
+    "lastedit": 1756395060,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2260140": {
     "totalreply": 55,
@@ -16347,10 +16347,10 @@
     "totalreply": 107,
     "title": "[临近93来点小日子／精日笑话]",
     "newtitle": "[临近93来点小日子／精日笑话]",
-    "lastedit": 1756394892,
+    "lastedit": 1756395240,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2260274": {
     "totalreply": 49,
@@ -16734,10 +16734,10 @@
     "totalreply": 46,
     "title": "[米凯拉出了之后，环学视频就式微了]",
     "newtitle": "[米凯拉出了之后，环学视频就式微了]",
-    "lastedit": 1756394171,
+    "lastedit": 1756395180,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2160915": {
     "totalreply": 169,
@@ -16752,18 +16752,18 @@
     "totalreply": 104,
     "title": "[『Princess Principal Crown Handler』剧场第三章／2023]",
     "newtitle": "[『Princess Principal Crown Handler』剧场第三章／2023]",
-    "lastedit": 1756391892,
+    "lastedit": 1756395060,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2260376": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[新能源车型命名有个不太好的风气]",
     "newtitle": "[新能源车型命名有个不太好的风气]",
-    "lastedit": 1756394892,
+    "lastedit": 1756395240,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   }
 }
