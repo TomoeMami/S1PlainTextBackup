@@ -1021,3 +1021,11 @@ ai_studio_code.srt
 
 可能有大量错1-3秒的轴和少量AI飙英语，调一调应该just work，如果到周末精翻字幕还没出来我会抽空粗调一下轴再传一版
 
+
+*****
+
+####  oi99o  
+##### 105#       发表于 2025-8-28 23:31
+
+原来第四章有资源了，都没关注<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">诺曼底公rip了才想起来
+
