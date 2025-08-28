@@ -198,3 +198,11 @@ Capture d’écran 2025-08-25 170722.png
 
 十圣刃式换色强化，放Q娃里感觉是1P色、2P色的味道
 
+
+*****
+
+####  丹德里恩  
+##### 1255#       发表于 2025-8-28 10:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个算强化吗，更像是换色派生....
+
