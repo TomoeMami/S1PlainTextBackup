@@ -748,3 +748,50 @@ change the background to the art style of anime
 
 等开源了。
 
+
+*****
+
+####  坏掉了  
+##### 53#       发表于 2025-8-28 23:56
+
+<img src="https://img.stage1st.com/forum/202508/28/235600uw6xghzbyhghwhtg.jpg" referrerpolicy="no-referrer">
+
+<strong>f08e0b15-8f5a-4c40-a738-59f1c15bab9a.jpg</strong> (283.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 23:56 上传
+
+<img src="https://img.stage1st.com/forum/202508/28/235615k44f3gvqsgdvsbs1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 23:56 上传
+
+
+*****
+
+####  坏掉了  
+##### 54#       发表于 2025-8-29 00:03
+
+将画面奔跑的女性，生成为一个有PVC质感的日本动漫风格手办，要有PVC的质感，保留人物的相貌、神态和动作，其中人物嘴上要叼着一个面包片，PVC手办要有一个圆形透明底座，手办放在桌子上，手办后面是手办的包装盒，图像背景是一个书房。生成的图像要高度精细，分辨率要大，质量要高，光线为摄影棚级别光照
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+R-C.jfif
+(246.53 KB, 下载次数: 0)
+
+2025-8-29 00:03 上传
+
+点击文件名下载附件
+
+<img src="https://img.stage1st.com/forum/202508/29/000357nzz3oxrsozdr310r.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (92.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-29 00:03 上传
+
