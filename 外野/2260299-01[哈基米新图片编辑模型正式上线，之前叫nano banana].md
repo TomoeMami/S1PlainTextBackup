@@ -702,3 +702,24 @@ change the background to the art style of anime
 这玩意没开源，魔塔怎么能上的？</blockquote>
 网页写得用的OpenRouter API
 
+
+*****
+
+####  万恶淫猥手  
+##### 48#         楼主| 发表于 2025-8-28 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334802&amp;ptid=2260299" target="_blank">Izunu_3 发表于 2025-8-28 18:09</a>
+
+试了几次都是错误。。。</blockquote>
+今天下午 OpenRouter 挂过一段时间，魔搭用的它家的 API 中转。当然，用的人太多了，估计也会被限制的...
+
+*****
+
+####  万恶淫猥手  
+##### 49#         楼主| 发表于 2025-8-28 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334805&amp;ptid=2260299" target="_blank">bestwood 发表于 2025-8-28 18:10</a>
+
+这个支持中文提示词不，敏感度怎么样，另外有每天有使用次数限制吗</blockquote>
+参考我之前的回复，英文效果会更好一些，但中文也支持的
+
