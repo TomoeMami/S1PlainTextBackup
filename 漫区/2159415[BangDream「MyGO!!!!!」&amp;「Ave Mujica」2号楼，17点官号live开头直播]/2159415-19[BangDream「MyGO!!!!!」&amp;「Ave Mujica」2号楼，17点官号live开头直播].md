@@ -37,3 +37,11 @@
 详细活动内容敬请关注《明日方舟》游戏内相关公告。</blockquote>
        [https://www.bilibili.com/video/BV1bveDzcEY7](https://www.bilibili.com/video/BV1bveDzcEY7)
 
+
+*****
+
+####  丹德里恩  
+##### 27240#       发表于 2025-8-28 13:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">都要9月了还没定什么时候开票吗
+
