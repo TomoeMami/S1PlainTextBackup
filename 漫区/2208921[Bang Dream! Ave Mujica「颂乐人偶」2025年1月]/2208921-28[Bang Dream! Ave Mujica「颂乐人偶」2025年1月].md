@@ -2896,3 +2896,26 @@ Ave Mujica 3rd Single
 
        [https://weibo.com/6279793937/Q1Xisqw0d](https://weibo.com/6279793937/Q1Xisqw0d)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41204#       发表于 2025-8-28 19:00
+
+       <strong>にゃむちチャンネル（Nyamuchi channel）第9回</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202508/28/185958zpnpcz7fnypccpgg.jpg" referrerpolicy="no-referrer">
+
+<strong>31e0d13dd6fc7c65a737d9194c56795015bed3bf.jpg</strong> (71.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 18:59 上传
+
+最近东京还是超级热的~大家那里天气怎么样呢？
+
+如果也热得不行的话就来听Nyamuchi讲鬼故事吧~~👻
+
+顺便祝大家明天七夕快乐💗</blockquote>
+       [https://www.bilibili.com/video/BV124hyzaEbA/](https://www.bilibili.com/video/BV124hyzaEbA/)
+
