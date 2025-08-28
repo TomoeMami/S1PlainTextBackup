@@ -723,3 +723,13 @@ change the background to the art style of anime
 这个支持中文提示词不，敏感度怎么样，另外有每天有使用次数限制吗</blockquote>
 参考我之前的回复，英文效果会更好一些，但中文也支持的
 
+
+*****
+
+####  overflowal  
+##### 50#       发表于 2025-8-28 22:51
+
+直接接openrouter的api，这也行啊。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
