@@ -2602,3 +2602,41 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">被美游做局了
 
+
+*****
+
+####  alucardcz  
+##### 17997#       发表于 2025-8-26 12:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油又欧 羡慕
+
+*****
+
+####  1a不解释  
+##### 17998#       发表于 2025-8-28 10:24
+
+戴冠战的初始np是哪里来的，为啥我的所长会有28点np，不是30好难受
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 17999#       发表于 2025-8-28 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68332245&amp;ptid=2084912" target="_blank">1a不解释 发表于 2025-8-28 10:24</a>
+
+戴冠战的初始np是哪里来的，为啥我的所长会有28点np，不是30好难受
+
+—— 来自 OPPO PKB110, Android 15,  ...</blockquote>
+你的EX2天赋树没点满 
+
+*****
+
+####  1a不解释  
+##### 18000#       发表于 2025-8-28 10:43
+
+冠位的树点满了呀，懂了，是羁绊没到10吧
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
