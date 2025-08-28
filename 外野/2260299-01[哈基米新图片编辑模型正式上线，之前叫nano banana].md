@@ -733,3 +733,18 @@ change the background to the art style of anime
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
 
+
+*****
+
+####  zy450  
+##### 51#       发表于 2025-8-28 23:18
+
+好玩！改了表情后，面部没办法保持很完美就是了
+
+*****
+
+####  zerona  
+##### 52#       发表于 2025-8-28 23:21
+
+等开源了。
+
