@@ -206,3 +206,14 @@ Capture d’écran 2025-08-25 170722.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个算强化吗，更像是换色派生....
 
+
+*****
+
+####  lydia5989  
+##### 1256#       发表于 2025-8-28 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68332455&amp;ptid=2208663" target="_blank">丹德里恩 发表于 2025-8-28 10:51</a>
+
+这个算强化吗，更像是换色派生....</blockquote>
+一代没有，一代换色，未来就笑话她俩
+
