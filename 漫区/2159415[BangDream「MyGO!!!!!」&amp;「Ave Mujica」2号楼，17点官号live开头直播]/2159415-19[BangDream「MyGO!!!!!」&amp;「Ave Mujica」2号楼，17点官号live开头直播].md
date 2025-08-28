@@ -55,3 +55,33 @@
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  傘木希美  
+##### 27242#       发表于 2025-8-28 19:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好遥远啊，哪怕没抢到也让我断了念想啊
+
+—— 来自 Xiaomi 25079RPDCC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  堀内爱里衣  
+##### 27243#       发表于 2025-8-28 20:04
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/28/200357e90d8x4psaps9qe0.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-08-28_20-02-28.jpg</strong> (153.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 20:03 上传
+
+       [https://x.com/comic_growl/status/1960901222904578138](https://x.com/comic_growl/status/1960901222904578138)
+
+       [https://comic-growl.com/episodes/d6db3c35d764c/](https://comic-growl.com/episodes/d6db3c35d764c/)
+
