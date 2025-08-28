@@ -212,3 +212,13 @@ yls就作吧，我看明年这1000石也就填一个所长了
 
 草，付费石头不出东西，呼符来了个雨神，付费石头没灵魂<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47407#       发表于 2025-8-28 14:09
+
+算了一下最近的三个池子，又是500抽两个五星，要吐了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+抓包发现概率还是1%，想起了这一年抽卡疯狂歪常驻的痛苦过往。
+

@@ -610,3 +610,15 @@ rule姐（学生会长）
 
 所以前作那个raynatis有人品了吗，是真没看见有谁写了详细评测，就看见人口嗨说要玩了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 43#       发表于 2025-8-28 14:07
+
+ 本帖最后由 哎哟卧槽了 于 2025-8-28 14:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68333434&amp;ptid=2251267" target="_blank">8frames 发表于 2025-8-28 13:33</a>
+
+所以前作那个raynatis有人品了吗，是真没看见有谁写了详细评测，就看见人口嗨说要玩了 ...</blockquote>
+有馆有几个kol之前直播过，十分劝退
+
