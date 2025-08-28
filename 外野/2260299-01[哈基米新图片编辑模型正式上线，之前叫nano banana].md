@@ -654,3 +654,11 @@ change the background to the art style of anime
 
 2025-8-28 08:01 上传
 
+
+*****
+
+####  万恶淫猥手  
+##### 43#         楼主| 发表于 2025-8-28 17:46
+
+现在无需翻，魔搭也已经上线此模型，可以直接使用。 [https://www.modelscope.cn/studios/AI-ModelScope/nano_banana_demo](https://www.modelscope.cn/studios/AI-ModelScope/nano_banana_demo)
+
