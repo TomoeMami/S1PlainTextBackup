@@ -2919,3 +2919,51 @@ Ave Mujica 3rd Single
 顺便祝大家明天七夕快乐💗</blockquote>
        [https://www.bilibili.com/video/BV124hyzaEbA/](https://www.bilibili.com/video/BV124hyzaEbA/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41205#       发表于 2025-8-28 19:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/28/192953p6m48bknqoynolni.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-28_19-16-43.jpg</strong> (395.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 19:29 上传
+
+       [https://x.com/Schecter_JAPAN/status/1960900303630557621](https://x.com/Schecter_JAPAN/status/1960900303630557621)
+
+       [https://schecter.co.jp/collaboration/avemujica/](https://schecter.co.jp/collaboration/avemujica/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/28/192952kega2exidx1x1t78.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-28_19-24-28.jpg</strong> (381.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 19:29 上传
+
+       [https://x.com/Schecter_JAPAN/status/1960900900693643405](https://x.com/Schecter_JAPAN/status/1960900900693643405)
+
+       [https://schecter.co.jp/collaboration/avemujica/](https://schecter.co.jp/collaboration/avemujica/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/28/192951ymvsg4ngsfnnsmfo.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-28_19-29-06.jpg</strong> (650.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-28 19:29 上传
+
+       [https://x.com/Schecter_JAPAN/status/1960901736245420067](https://x.com/Schecter_JAPAN/status/1960901736245420067)
+
+       [https://schecter.co.jp/collaboration/avemujica/](https://schecter.co.jp/collaboration/avemujica/)
+
