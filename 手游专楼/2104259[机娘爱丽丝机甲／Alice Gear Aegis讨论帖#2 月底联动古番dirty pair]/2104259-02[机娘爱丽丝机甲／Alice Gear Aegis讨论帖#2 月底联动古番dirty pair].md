@@ -61,3 +61,13 @@ PV搬运
 
 看活动开头，这次穿越的时间线是1944年？
 
+
+*****
+
+####  不灭的旋律  
+##### 1642#       发表于 2025-8-28 16:16
+
+岛田居然转帖发推了，这是和解了？还说AGA世界不需要魔力可以实装大魔王青梅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，该不会是AGA不实装麻野才闹翻的吧
+
+这次围巾居然又要去那个破apppay输入，懒得搞日本IP不要了
+
