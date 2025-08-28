@@ -691,3 +691,14 @@ change the background to the art style of anime
 
 这玩意没开源，魔塔怎么能上的？
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 47#       发表于 2025-8-28 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334822&amp;ptid=2260299" target="_blank">燕山雪 发表于 2025-8-28 18:14</a>
+
+这玩意没开源，魔塔怎么能上的？</blockquote>
+网页写得用的OpenRouter API
+
