@@ -501,3 +501,63 @@ xbox那边服务器崩了<img src="https://static.stage1st.com/image/smiley/face
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6x6z6w  
+##### 6983#       发表于 2025-8-27 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68327152&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-8-27 09:17</a>
+
+全平台在线快40w了
+
+—— 来自 S1Fun</blockquote>
+xbox那边服务器崩了<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">梦回开服
+
+*****
+
+####  kalavinka  
+##### 6984#         楼主| 发表于 2025-8-27 11:44
+
+这新敌人像sc2蟑螂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 6985#       发表于 2025-8-27 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉箭头不知道修了什么，现在很多东西手感变了，特别是最后通牒
+
+帧数稳定了一点
+
+音效彻底烂了，混战的时候很多声音都断断续续或者消失掉
+
+*****
+
+####  ジム  
+##### 6986#       发表于 2025-8-27 19:05
+
+<blockquote>赤井稻妻 发表于 2025-8-27 08:30
+整个地下图让我想起edf了，hd2这个地下图说是会有露天区域来获得补给，那战死的潜兵应该怎么补充，该不会死 ...</blockquote>
+没露天谁召你下来……
+
+*****
+
+####  ParadiseMartyr  
+##### 6987#       发表于 2025-8-28 02:55
+
+难顶。本来最后一把就睡，俩新人拖着找最稀有样本，幸好我看俩都是低等级备战也纯搞笑就带了踹哈补包火喷通牒榴弹套装，不然我看估计是直接任务失败样本也带不走40分钟白忙活
+拿个空爆不会玩，太悲哀了
+到最后虫烟猛的要死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每波都是俩泰坦带三四个牛
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后撤离点全是虫烟，差点样本全丢船都上不去
+俩新人压不住一点虫子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全靠我和另一个150踹哈
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  人生短短几个秋  
+##### 6988#       发表于 2025-8-28 08:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">地下就要全员**电弧一起用啊，无消耗想想都爽，至于会电队友？那就穿个电甲<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
