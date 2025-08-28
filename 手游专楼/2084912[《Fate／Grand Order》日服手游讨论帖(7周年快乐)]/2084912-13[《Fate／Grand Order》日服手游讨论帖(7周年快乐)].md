@@ -2640,3 +2640,64 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 —— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alucardcz  
+##### 18001#       发表于 2025-8-28 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68332392&amp;ptid=2084912" target="_blank">1a不解释 发表于 2025-8-28 10:43</a>
+
+冠位的树点满了呀，懂了，是羁绊没到10吧
+
+—— 来自 OPPO PKB110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+看的是ex2所有从者的羁绊总和
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 1a不解释| + 2|确实|
+
+查看全部评分
+
+*****
+
+####  khxooo  
+##### 18002#       发表于 2025-8-29 04:57
+
+<img src="https://img.stage1st.com/forum/202508/29/045721s4u40w8xvzuzq5p4.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20250829-045654-982.png</strong> (455.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-29 04:57 上传
+
+出货了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 18003#       发表于 2025-8-29 05:13
+
+弓教授的声优去世了啊
+
+本来是冠位是在妖崔和教授间犹豫的，现在就选教授吧
+
+*****
+
+####  khxooo  
+##### 18004#       发表于 2025-8-29 05:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336337&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-8-29 05:13</a>
+
+弓教授的声优去世了啊
+
+本来是冠位是在妖崔和教授间犹豫的，现在就选教授吧 ...</blockquote>
+可惜了，上一次的朗读剧应该是老爷子最后一次的献声了。
+
