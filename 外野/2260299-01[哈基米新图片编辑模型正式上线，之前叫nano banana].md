@@ -662,3 +662,32 @@ change the background to the art style of anime
 
 现在无需翻，魔搭也已经上线此模型，可以直接使用。 [https://www.modelscope.cn/studios/AI-ModelScope/nano_banana_demo](https://www.modelscope.cn/studios/AI-ModelScope/nano_banana_demo)
 
+
+*****
+
+####  Izunu_3  
+##### 44#       发表于 2025-8-28 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334692&amp;ptid=2260299" target="_blank">万恶淫猥手 发表于 2025-8-28 17:46</a>
+
+现在无需翻，魔搭也已经上线此模型，可以直接使用。 https://www.modelscope.cn/studios/AI-ModelScope/nan ...</blockquote>
+试了几次都是错误。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bestwood  
+##### 45#       发表于 2025-8-28 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334692&amp;ptid=2260299" target="_blank">万恶淫猥手 发表于 2025-8-28 17:46</a>
+
+现在无需翻，魔搭也已经上线此模型，可以直接使用。 https://www.modelscope.cn/studios/AI-ModelScope/nan ...</blockquote>
+这个支持中文提示词不，敏感度怎么样，另外有每天有使用次数限制吗
+
+
+*****
+
+####  燕山雪  
+##### 46#       发表于 2025-8-28 18:14
+
+这玩意没开源，魔塔怎么能上的？
+
