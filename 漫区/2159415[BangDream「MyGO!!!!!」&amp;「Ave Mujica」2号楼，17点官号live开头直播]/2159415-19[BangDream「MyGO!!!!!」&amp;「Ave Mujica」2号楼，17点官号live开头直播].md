@@ -45,3 +45,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">都要9月了还没定什么时候开票吗
 
+
+*****
+
+####  Milarvoz  
+##### 27241#       发表于 2025-8-28 14:56
+
+还早呢，一般提前三个礼拜开。
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
