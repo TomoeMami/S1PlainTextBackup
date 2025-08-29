@@ -2741,3 +2741,51 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 出货了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">欧  为什么漏油都能出货
 
+
+*****
+
+####  壳壳牛  
+##### 18009#       发表于 2025-8-29 17:03
+
+ 本帖最后由 壳壳牛 于 2025-8-29 17:10 编辑 
+
+妈耶又来福袋...
+
+艾蕾+1...还行吧...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 18010#       发表于 2025-8-29 17:06
+
+<img src="https://img.stage1st.com/forum/202508/29/170543vkecsn7nz3erskck.jpg" referrerpolicy="no-referrer">
+
+<strong>1756458301876.jpg</strong> (316.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-8-29 17:05 上传
+
+12个有偿石出任选21骑中的一个，还算划算。
+
+最近又是职介日替又是福袋，有偿石消耗还挺大...
+
+*****
+
+####  angelooo  
+##### 18011#       发表于 2025-8-29 17:32
+
+终于赶上美服国服进度的福袋……
+
+教授+1，想到声优人没了，哎
+
+*****
+
+####  khxooo  
+##### 18012#       发表于 2025-8-29 17:37
+
+草，早知道那30就不单抽了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
