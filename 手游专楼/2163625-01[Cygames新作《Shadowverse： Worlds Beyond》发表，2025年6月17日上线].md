@@ -451,3 +451,11 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 你新版本推的体系都是什么几把？真的会有让人想组套牌的兴趣吗<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 688#       发表于 2025-8-29 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">二代新入坑玩家，虽然氪了一些，但是我感觉也快流失了…这游戏来自运营的挫折感负反馈太强了，五个箱子活动广场赛活动坐大牢，连个比赛门票都要自己买，而且就连什么蚊子腿环节都搞贫富差距，小唐人箱子啦开包皮肤之类的，人与人之间的差距过大也带来很多不愉快
+
