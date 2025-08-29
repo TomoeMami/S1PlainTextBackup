@@ -561,3 +561,53 @@ xbox那边服务器崩了<img src="https://static.stage1st.com/image/smiley/face
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">地下就要全员**电弧一起用啊，无消耗想想都爽，至于会电队友？那就穿个电甲<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 6989#       发表于 2025-8-28 10:57
+
+多研究了几遍宣传片，感觉这个所谓的地下网道其实就是把高山拉满的地形，下面有通道联通，然后隔一段有一个开口场地方便叫补给和增援。考虑到新版本的虫子都会钻地，在地下网道里靠堵口来限制虫群可能很难实现，而且还会有背后刷新的巡逻队，挺难搞的
+
+*****
+
+####  qwased  
+##### 6990#       发表于 2025-8-29 01:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打3把闪退两把，我还是房主，算了等新债券吧
+
+*****
+
+####  Poketto  
+##### 6991#       发表于 2025-8-29 02:41
+
+虫子都能搞虫穴室内战了，那哑铃人是不是可以搞一个巨型工厂的室内站，里面整点哑铃人生产组装流水线什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  madcow  
+##### 6992#       发表于 2025-8-29 21:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">话说之前不是说要发个啥债券兑换币啥的嘛，是发了我没拿到还是还没发，之前是预购的豪华版
+
+*****
+
+####  FLZB  
+##### 6993#       发表于 2025-8-29 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340615&amp;ptid=2170852" target="_blank">madcow 发表于 2025-8-29 21:24</a>
+
+话说之前不是说要发个啥债券兑换币啥的嘛，是发了我没拿到还是还没发，之前是预购的豪华版 ...</blockquote>
+那是更新后买的豪华版老兵债卷改成代币了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6994#       发表于 2025-8-30 00:10
+
+东线这个b环境没闪包玩不了一点
+不得不暂时放弃最爱的无后座了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

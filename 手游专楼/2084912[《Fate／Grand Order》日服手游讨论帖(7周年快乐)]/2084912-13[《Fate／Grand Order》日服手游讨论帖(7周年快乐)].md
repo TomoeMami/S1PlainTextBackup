@@ -2882,3 +2882,43 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 现在不是能去商店换药么 接着肝羁绊石啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">萌新刷不动了 又不是你这样的欧皇随便刷刷就出货了
 
+
+*****
+
+####  qixinno2  
+##### 18023#       发表于 2025-8-29 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340375&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-29 20:51</a>
+
+萌新刷不动了 又不是你这样的欧皇随便刷刷就出货了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我刷的石头根本没出货 不如楼友
+
+*****
+
+####  alucardcz  
+##### 18024#       发表于 2025-8-29 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340482&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 21:06</a>
+
+我刷的石头根本没出货 不如楼友</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">非萌大总统刷太多了 已经凭空多了n个15羁绊 本来就没几个人  不如大佬你人多随便刷（
+
+*****
+
+####  qixinno2  
+##### 18025#       发表于 2025-8-29 23:12
+
+<blockquote>alucardcz 发表于 2025-8-29 22:29
+非萌大总统刷太多了 已经凭空多了n个15羁绊 本来就没几个人  不如大佬你人多随便刷（ ...</blockquote>
+屁 我跟本没几个角色和苹果刷
+
+*****
+
+####  exiaexa  
+##### 18026#       发表于 2025-8-30 00:12
+
+紫发女同事15绊下班
+
+新号的极限只能到这儿了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
