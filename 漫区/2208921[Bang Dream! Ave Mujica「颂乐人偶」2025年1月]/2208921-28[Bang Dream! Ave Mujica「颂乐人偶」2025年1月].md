@@ -3041,3 +3041,11 @@ Ave Mujica 3rd Single
 
        [https://weibo.com/6279793937/Q26ICBsbw](https://weibo.com/6279793937/Q26ICBsbw)
 
+
+*****
+
+####  hkguty  
+##### 41210#       发表于 2025-8-29 22:54
+
+4W买把七弦还是挺不值的
+
