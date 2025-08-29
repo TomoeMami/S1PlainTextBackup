@@ -516,3 +516,14 @@ FP藏得这么严实也是这个原因，一个不小心就会破坏fsn的世界
 
 在当下业界大伙都流水线敷衍完成任务的状态下，母鸡卡这种主创绞尽脑汁把自己整魔怔了来为大家奉献乐子的精神，总不能说完全没有一点被触动吧
 
+
+*****
+
+####  aptx8285144  
+##### 44#       发表于 2025-8-29 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336999&amp;ptid=2260253" target="_blank">star78952 发表于 2025-8-29 10:09</a>
+
+感觉没混过社区的真没觉得有多烂，互相聊了聊都是不喜欢木子米左脑殴打右脑水时长，还到最后都不知道她到 ...</blockquote>
+大烂就有第七话CCC系姨姥们被天意脑控冷漠对待爱音(世界名画，众人看爱音)，这可不是少歌架空舞台露女士还能和华恋打一场，母鸡卡第七话成了最后一根稻草，倒数第三话十五年大主唱学狗爬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
