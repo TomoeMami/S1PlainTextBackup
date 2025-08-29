@@ -944,3 +944,14 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 现在的论坛：我是对的，你是阶级敌人的走狗，你要么去自首要么我弄死你个傻逼
 
+
+*****
+
+####  luguozmy  
+##### 107#       发表于 2025-8-29 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68320008&amp;ptid=2260185" target="_blank">chexk03 发表于 2025-8-25 17:10</a>
+
+我也是，S1上不了，鹅球就不能带个公示链接啥的么，放在更新地址，或最新版本自带也行啊，我是老用户也好 ...</blockquote>
+移动年代没有一个官方客户端是最致命的
+
