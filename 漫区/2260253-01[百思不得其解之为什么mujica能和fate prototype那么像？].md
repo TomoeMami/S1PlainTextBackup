@@ -566,3 +566,14 @@ FP藏得这么严实也是这个原因，一个不小心就会破坏fsn的世界
 
 第五话后，连喜欢大祥的电台就暗示种命大祥是真飞鸟第二(发布节目最后背景是种命的音乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  star78952  
+##### 48#         楼主| 发表于 2025-8-29 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68337745&amp;ptid=2260253" target="_blank">SoraMinazuki 发表于 2025-8-29 12:11</a>
+
+这片的烂法和新三国一样，最烂的部分甚至已经不是剧情本身，而是叙述这个剧情的过程本身都烂完了。 上一 ...</blockquote>
+不能就这样说上一集的事情下一集就当不存在，前面就有人向祥讨债，我在向木子米讨债，身上有债就证明故事还是连续的，故事写的就是关于这些债如何分配如何处理，最后消债的方式是在少女乐队片里反乐队导致失去存在意义的木子米似了，祥带着她的小姨跑路了
+
