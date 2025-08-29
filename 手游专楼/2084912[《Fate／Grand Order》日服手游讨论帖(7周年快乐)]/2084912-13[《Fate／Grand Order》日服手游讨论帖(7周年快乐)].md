@@ -2789,3 +2789,55 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 
 草，早知道那30就不单抽了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 18013#       发表于 2025-8-29 17:55
+
+12个石头正好是给冲一单的福袋党消耗付费石头的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 18014#       发表于 2025-8-29 18:15
+
+福袋new了艾蕾，还行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18015#       发表于 2025-8-29 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">为什么不能像楼友们那么欧 刷出来的羁绊石毛都没出
+
+*****
+
+####  alucardcz  
+##### 18016#       发表于 2025-8-29 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68339867&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 19:12</a>
+
+为什么不能像楼友们那么欧 刷出来的羁绊石毛都没出</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但你也是欧皇啊 看看萌新 泳装全是未召唤
+
+*****
+
+####  qixinno2  
+##### 18017#       发表于 2025-8-29 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340055&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-29 19:53</a>
+
+但你也是欧皇啊 看看萌新 泳装全是未召唤</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是因为你根本没抽么
+
+*****
+
+####  alucardcz  
+##### 18018#       发表于 2025-8-29 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340065&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 19:56</a>
+
+不是因为你根本没抽么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">尬黑了 丢了20发了呢
+

@@ -3365,3 +3365,11 @@ GGETSURVEY3
 
 怎么是盾机阿<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2566#       发表于 2025-8-29 19:52
+
+怎么是个盾，zz这不就没机会出攻了？
+
