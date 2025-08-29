@@ -643,3 +643,16 @@ prototype不认识，第一次听
 
 魔法还真是有，型月第一法的超低配版，也就是海猫的魔法，祥写剧本的作用出来了，只要在“庭”里你就是无敌的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  star78952  
+##### 54#         楼主| 发表于 2025-8-30 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340888&amp;ptid=2260253" target="_blank">Cortana 发表于 2025-8-29 22:10</a>
+
+没扛过FP，也是个呼唤打破内心的枷锁明心见性的故事吗？</blockquote>
+大菌老师根本没放出来呢，但设定已经散到处都是要自己找这个拼好番
+
+结局算是女主为了大义打死变成怪物的姐姐拯救世界的同时找回自己的真实身份（灰姑娘变回了魔女）最终boss战后和不知情但杀了自己姐姐的王子告别，然后踏上向王子“复仇”的旅途，像一千五百年前一样<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
