@@ -628,3 +628,18 @@ prototype不认识，第一次听
 
 —— 来自 HUAWEI HDL-W09, Android 8.0.0, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  star78952  
+##### 53#         楼主| 发表于 2025-8-30 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340651&amp;ptid=2260253" target="_blank">阿塔丽 发表于 2025-8-29 21:29</a>
+
+1.五个神人，
+
+2现实主义的少女乐队番(没有魔法，没有火力对轰可以让观众直接宣泄，多重人格又是为第一点服 ...</blockquote>
+其实所谓神人感是不是团里所有人都各想各各利用各的导致乱成一团，从mygo开始我第一次见有冻鳗主角团这么不齐心，母鸡卡加量又加倍，喵梦的骑驴找马太典了（但现实里的打工人谁没骑驴找马过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+魔法还真是有，型月第一法的超低配版，也就是海猫的魔法，祥写剧本的作用出来了，只要在“庭”里你就是无敌的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
