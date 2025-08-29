@@ -2985,3 +2985,23 @@ Ave Mujica 3rd Single
 
        [https://weibo.com/6279793937/Q24tXjlcU](https://weibo.com/6279793937/Q24tXjlcU)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41207#       发表于 2025-8-29 14:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202508/29/143253q0de49b79c60fm0o.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-08-29_14-29-52.jpg</strong> (336.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-29 14:32 上传
+
+       [https://x.com/bang_dream_info/status/1961282673290391841](https://x.com/bang_dream_info/status/1961282673290391841)
+
+       [https://bushiroad-creative.com/topics/89702/](https://bushiroad-creative.com/topics/89702/)
+

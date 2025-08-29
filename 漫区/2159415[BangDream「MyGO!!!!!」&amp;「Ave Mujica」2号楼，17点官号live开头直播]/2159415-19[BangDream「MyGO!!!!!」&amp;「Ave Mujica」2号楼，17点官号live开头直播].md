@@ -85,3 +85,15 @@
 
        [https://comic-growl.com/episodes/d6db3c35d764c/](https://comic-growl.com/episodes/d6db3c35d764c/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27244#       发表于 2025-8-29 14:34
+
+       <img src="https://img.stage1st.com/forum/202508/29/143253q0de49b79c60fm0o.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_info/status/1961282673290391841](https://x.com/bang_dream_info/status/1961282673290391841)
+
+       [https://bushiroad-creative.com/topics/89702/](https://bushiroad-creative.com/topics/89702/)
+
