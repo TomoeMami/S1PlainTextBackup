@@ -2701,3 +2701,43 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 本来是冠位是在妖崔和教授间犹豫的，现在就选教授吧 ...</blockquote>
 可惜了，上一次的朗读剧应该是老爷子最后一次的献声了。
 
+
+*****
+
+####  qixinno2  
+##### 18005#       发表于 2025-8-29 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336333&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-29 04:57</a>
+
+出货了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 都单抽出两个了吧
+
+*****
+
+####  khxooo  
+##### 18006#       发表于 2025-8-29 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336424&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 07:42</a>
+欧 都单抽出两个了吧</blockquote>
+不，这个是第一个，你将狗萌新出的那个羽蛇神记错了。
+
+*****
+
+####  qixinno2  
+##### 18007#       发表于 2025-8-29 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336515&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-29 08:27</a>
+
+不，这个是第一个，你将狗萌新出的那个羽蛇神记错了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">羡慕能单抽出货的
+
+*****
+
+####  alucardcz  
+##### 18008#       发表于 2025-8-29 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68336333&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-29 04:57</a>
+
+出货了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">欧  为什么漏油都能出货
+
