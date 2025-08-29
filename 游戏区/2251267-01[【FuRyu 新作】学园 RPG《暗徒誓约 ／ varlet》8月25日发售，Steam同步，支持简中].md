@@ -646,3 +646,16 @@ rule姐（学生会长）
 
 这家出的游戏感觉也不少，有哪部是真的能玩的么
 
+
+*****
+
+####  Sopp  
+##### 47#       发表于 2025-8-30 03:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68341614&amp;ptid=2251267" target="_blank">u2deack 发表于 2025-8-30 02:23</a>
+
+这家出的游戏感觉也不少，有哪部是真的能玩的么</blockquote>
+我觉得没有
+
+但是真的有人喜欢他们家的东西
+
