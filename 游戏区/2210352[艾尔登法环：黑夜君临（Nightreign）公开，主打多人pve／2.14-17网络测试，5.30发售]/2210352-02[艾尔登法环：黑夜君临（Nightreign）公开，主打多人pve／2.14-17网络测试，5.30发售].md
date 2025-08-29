@@ -1334,3 +1334,20 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 深度4/5会是无限模式？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkfall  
+##### 1614#       发表于 2025-8-29 01:52
+
+深度4/5会是无限模式？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  evestart  
+##### 1615#       发表于 2025-8-29 10:04
+
+ 本帖最后由 evestart 于 2025-8-29 10:05 编辑 
+
+好像说多给的那3个槽只能用在深度模式，不知道为啥要怎么搞，怕影响普通的难度吗？但这又不是PVP游戏，带着一定肉鸽性质的还不能让玩家爽一下吗？带着深度的装备去打普通不是更让人有成就感吗？
+
