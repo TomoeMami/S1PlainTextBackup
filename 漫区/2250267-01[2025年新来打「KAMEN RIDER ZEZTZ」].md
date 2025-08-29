@@ -1899,3 +1899,14 @@ shf切的太丑了
 
 说是面向全世界，globle账号在情报解禁几星期后才介绍，明显就是同步上线试水。pv里介绍俩条子，一股日剧警视厅味道。鬼子阿宅也担心过迎合海外丢了味道，现在看还是内味。美式风格更明显的还是塚田p的侦探和美式校园
 
+
+*****
+
+####  粉儿alice  
+##### 185#       发表于 2025-8-29 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68332899&amp;ptid=2250267" target="_blank">古怪山庄士大夫 发表于 2025-8-28 11:54</a>
+shf切的太丑了</blockquote>
+这玩意就开价7150日元
+反正来打shf也彻底烂透了<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
