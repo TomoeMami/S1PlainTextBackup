@@ -243,3 +243,16 @@ Capture d’écran 2025-08-25 170722.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">很可能粉色形态只会在强化技能bank中出现哦，不要给3D组的staff们添麻烦哦
 
+
+*****
+
+####  pokemon最爱  
+##### 1260#       发表于 2025-8-30 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340907&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-8-29 22:12</a>
+
+很可能粉色形态只会在强化技能bank中出现哦，不要给3D组的staff们添麻烦哦</blockquote>
+剧场版软糖闪卡就没有Idol基础形态，偶像心缎带放到合体技玩具上也是剧场版限定合体技，我倾向于是这个形态是Idol被定为偶Q这个组合的C位后升级出来的新基础形态，也就是TV后半不会再有原本的金发粉衣Idol，直接就是变红色的偶像心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本身这个形态几乎就是纯换色，又不需要重新建模，添什么麻烦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
