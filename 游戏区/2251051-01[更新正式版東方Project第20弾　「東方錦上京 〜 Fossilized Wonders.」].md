@@ -28,3 +28,11 @@
 
 我一直不升win11就是怕用不到,结果 zun本人却被巨硬强升了笑死
 
+
+*****
+
+####  isa2456  
+##### 88#       发表于 2025-8-29 23:40
+
+难道整个zunteam都没有一台不是win11的电脑吗，这我洗不动了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
