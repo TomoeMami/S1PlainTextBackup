@@ -2841,3 +2841,44 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 不是因为你根本没抽么</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">尬黑了 丢了20发了呢
 
+
+*****
+
+####  qixinno2  
+##### 18019#       发表于 2025-8-29 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340066&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-29 19:56</a>
+
+尬黑了 丢了20发了呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">才20 直接梭哈
+
+*****
+
+####  alucardcz  
+##### 18020#       发表于 2025-8-29 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340117&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 20:07</a>
+
+才20 直接梭哈</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">才20 x 只有20 o 非洲人是这样的
+
+*****
+
+####  qixinno2  
+##### 18021#       发表于 2025-8-29 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340251&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-29 20:28</a>
+
+才20 x 只有20 o 非洲人是这样的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在不是能去商店换药么 接着肝羁绊石啊
+
+*****
+
+####  alucardcz  
+##### 18022#       发表于 2025-8-29 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340287&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-29 20:33</a>
+
+现在不是能去商店换药么 接着肝羁绊石啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">萌新刷不动了 又不是你这样的欧皇随便刷刷就出货了
+
