@@ -441,3 +441,13 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 感觉国服会凉得很快，可能大伙真没见过这么抠门的二游，这样看来国服不上心也正常，cy不放权的话按他们的运营方式在国内肯定没前途，早点找其他出路才对<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 687#       发表于 2025-8-29 12:14
+
+猪打牌这种死吗卡组都几把第三个版本了，cy你亲吗是被桃乐丝绑架了吗？
+
+你新版本推的体系都是什么几把？真的会有让人想组套牌的兴趣吗<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
