@@ -431,3 +431,13 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 今天明明是新版本第一天，但是感觉国际服务匹配变慢了什么情况。。。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 686#       发表于 2025-8-29 10:38
+
+ 本帖最后由 辞冬 于 2025-8-29 10:39 编辑 
+
+感觉国服会凉得很快，可能大伙真没见过这么抠门的二游，这样看来国服不上心也正常，cy不放权的话按他们的运营方式在国内肯定没前途，早点找其他出路才对<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
