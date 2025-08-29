@@ -3349,3 +3349,11 @@ GGETSURVEY3
 
 白卡限定，朱总居然是普池，可以跳过不抽了
 
+
+*****
+
+####  dio999  
+##### 2564#       发表于 2025-8-29 17:19
+
+你装甲ZZ有甲就盾机是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
