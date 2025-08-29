@@ -235,3 +235,11 @@ Capture d’écran 2025-08-25 170722.png
 东大妈网络运营信息安全部门的人都可以直接炒鱿鱼了
 反正坏事传千里呗<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1259#       发表于 2025-8-29 22:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">很可能粉色形态只会在强化技能bank中出现哦，不要给3D组的staff们添麻烦哦
+

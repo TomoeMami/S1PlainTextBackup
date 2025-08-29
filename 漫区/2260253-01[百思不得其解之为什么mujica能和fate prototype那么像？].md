@@ -610,3 +610,11 @@ FP藏得这么严实也是这个原因，一个不小心就会破坏fsn的世界
 
 这三大前提之下，业界几乎没人能驾驭的了这剧本<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cortana  
+##### 51#       发表于 2025-8-29 22:10
+
+没扛过FP，也是个呼唤打破内心的枷锁明心见性的故事吗？
+
