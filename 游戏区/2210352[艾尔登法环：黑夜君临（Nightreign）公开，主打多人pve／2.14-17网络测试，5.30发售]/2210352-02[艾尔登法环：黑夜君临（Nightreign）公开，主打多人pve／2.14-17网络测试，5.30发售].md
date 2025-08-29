@@ -1396,3 +1396,11 @@ fs突然开始抓老金改遗物，难道是因为下一个阶段就要更新深
 
 深夜石头普通模式不让带还行，真闹麻了吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1621#       发表于 2025-8-29 18:14
+
+三个遗物变六个打普通模式那不是秒天秒地，还玩个蛋
+
