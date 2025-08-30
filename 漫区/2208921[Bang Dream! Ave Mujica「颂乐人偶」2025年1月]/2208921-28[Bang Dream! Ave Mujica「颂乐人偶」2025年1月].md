@@ -3189,3 +3189,11 @@ Ave Mujica 3rd Single
 
        [https://weibo.com/6279793937/Q2g8txRqj](https://weibo.com/6279793937/Q2g8txRqj)
 
+
+*****
+
+####  thisisaspider  
+##### 41216#       发表于 2025-8-30 23:47
+
+不知道有没有声优工商环节<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
