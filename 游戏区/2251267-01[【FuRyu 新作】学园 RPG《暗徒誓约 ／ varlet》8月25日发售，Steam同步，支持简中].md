@@ -706,3 +706,13 @@ rule姐（学生会长）
 
 这女主是真的嘴臭<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MaGK  
+##### 53#       发表于 2025-8-30 17:43
+
+<blockquote>u2deack 发表于 2025-8-30 02:23
+这家出的游戏感觉也不少，有哪部是真的能玩的么</blockquote>
+卡里古拉2吧，水平刚好就是能玩的级别
+
