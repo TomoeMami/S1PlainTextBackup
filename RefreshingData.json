@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 187959,
+    "totalreply": 187964,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756564089,
+    "lastedit": 1756564687,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 11277,
+    "totalreply": 11278,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1756518730,
+    "lastedit": 1756564208,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11885,7 +11885,7 @@
     "newtitle": "[原创TV动画「死灵之子的宇宙恐怖秀」]",
     "lastedit": 1756305371,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2246453": {
@@ -11961,10 +11961,10 @@
     "update": false
   },
   "2000791": {
-    "totalreply": 537,
+    "totalreply": 538,
     "title": "[失落之魂将于2025年登录pc／ps5,由索尼负责全球发行，8.29发售]",
     "newtitle": "[失落之魂将于2025年登录pc／ps5,由索尼负责全球发行，8.29发售]",
-    "lastedit": 1756558216,
+    "lastedit": 1756564573,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2258441": {
-    "totalreply": 241,
+    "totalreply": 242,
     "title": "[中东专楼-8月版]",
     "newtitle": "[中东专楼-8月版]",
-    "lastedit": 1756563257,
+    "lastedit": 1756564570,
     "category": "外野",
     "active": true,
     "update": false
@@ -12685,15 +12685,6 @@
     "title": "[孙悟空的同门师兄弟，到底都去哪了？为啥取经路上从没见过？]",
     "newtitle": "[孙悟空的同门师兄弟，到底都去哪了？为啥取经路上从没见过？]",
     "lastedit": 1755398055,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2259291": {
-    "totalreply": 64,
-    "title": "[Mistral被曝蒸馏DeepSeek还造假！欧版OpenAI塌房了]",
-    "newtitle": "[Mistral被曝蒸馏DeepSeek还造假！欧版OpenAI塌房了]",
-    "lastedit": 1755354622,
     "category": "外野",
     "active": false,
     "update": false
@@ -16164,10 +16155,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 264,
+    "totalreply": 267,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
-    "lastedit": 1756563856,
+    "lastedit": 1756564447,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16515,10 +16506,10 @@
     "update": false
   },
   "2260531": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[木子美爆料柴静被三个老登叠过]",
     "newtitle": "[木子美爆料柴静被三个老登叠过]",
-    "lastedit": 1756550417,
+    "lastedit": 1756564573,
     "category": "外野",
     "active": true,
     "update": false
@@ -16907,6 +16898,15 @@
     "newtitle": "[知名恩情up主李唐yo的粉丝都快突破百万了]",
     "lastedit": 1756563614,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2260486": {
+    "totalreply": 41,
+    "title": "[重看老杂志，好像找到星之海洋5暴死的一个(重要)原因]",
+    "newtitle": "[重看老杂志，好像找到星之海洋5暴死的一个(重要)原因]",
+    "lastedit": 1756564573,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
