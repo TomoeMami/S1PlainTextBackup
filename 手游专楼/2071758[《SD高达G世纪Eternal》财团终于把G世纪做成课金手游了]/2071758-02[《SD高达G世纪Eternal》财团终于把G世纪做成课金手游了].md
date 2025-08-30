@@ -3373,3 +3373,14 @@ GGETSURVEY3
 
 怎么是个盾，zz这不就没机会出攻了？
 
+
+*****
+
+####  rockroxas  
+##### 2567#       发表于 2025-8-30 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68340044&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-8-29 19:52</a>
+
+怎么是个盾，zz这不就没机会出攻了？</blockquote>
+不是还有普通ZZ强化ZZ跟精神力ZZ等可以出（
+
