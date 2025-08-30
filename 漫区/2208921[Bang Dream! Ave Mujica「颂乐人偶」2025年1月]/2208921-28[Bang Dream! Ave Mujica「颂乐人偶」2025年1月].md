@@ -3227,3 +3227,13 @@ Ave Mujica 3rd Single
 
        [https://x.com/bang_dream_info/status/1961774916967264653](https://x.com/bang_dream_info/status/1961774916967264653)
 
+
+*****
+
+####  pure_liquid  
+##### 41219#       发表于 2025-8-31 01:06
+
+好奇一个问题：关于B站官号上放的喵梦频道视频
+
+究竟是让声优本人用vtuber那样的实时面捕+Live2D技术录播制作的呢，还是动画故意模仿制作成类似vtuber直播的样子，然后找声优配音的呢？
+
