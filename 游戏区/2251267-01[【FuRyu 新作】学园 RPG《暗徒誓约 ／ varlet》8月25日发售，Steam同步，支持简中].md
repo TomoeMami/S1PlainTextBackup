@@ -670,3 +670,13 @@ rule姐（学生会长）
 这家出的游戏感觉也不少，有哪部是真的能玩的么</blockquote>
 生存同盟吧可能，庸作已经是这家公司最好的质量了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 49#         楼主| 发表于 2025-8-30 09:14
+
+<blockquote>u2deack 发表于 2025-8-30 02:23
+这家出的游戏感觉也不少，有哪部是真的能玩的么</blockquote>
+上上作恸哭奇机算是正面意义的集自家大成了，感觉也就战斗系统没深度导致的高速脆皮毛病
+
