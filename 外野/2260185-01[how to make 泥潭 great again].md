@@ -963,3 +963,13 @@ b站评论区的尺度都比泥潭大，泥潭好多东西都不让聊，怎么g
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">非战之罪，乃天命也。
 
+
+*****
+
+####  往世雷书  
+##### 109#       发表于 2025-8-30 16:12
+
+<blockquote>等等!等灯等灯 发表于 2025-8-29 02:20
+啊？你能保证自己永远站对队？</blockquote>
+能，还有问题吗？
+
