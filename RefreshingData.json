@@ -7466,7 +7466,7 @@
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
     "lastedit": 1756255088,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2052383": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 187777,
+    "totalreply": 187778,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756512487,
+    "lastedit": 1756514409,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 187315,
+    "totalreply": 187316,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1756514049,
+    "lastedit": 1756514408,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11781,10 +11781,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 2011,
+    "totalreply": 2012,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1756494966,
+    "lastedit": 1756514890,
     "category": "外野",
     "active": true,
     "update": false
@@ -12577,15 +12577,6 @@
     "title": "[美国国家科学院院士建议日本领导人到南京下跪]",
     "newtitle": "[美国国家科学院院士建议日本领导人到南京下跪]",
     "lastedit": 1755830410,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2259180": {
-    "totalreply": 123,
-    "title": "[美国人 是完全不在意凶宅吗？]",
-    "newtitle": "[美国人 是完全不在意凶宅吗？]",
-    "lastedit": 1755304695,
     "category": "外野",
     "active": false,
     "update": false
@@ -15813,10 +15804,10 @@
     "update": false
   },
   "2260270": {
-    "totalreply": 300,
+    "totalreply": 301,
     "title": "[卢总你惹格力干嘛？]",
     "newtitle": "[卢总你惹格力干嘛？]",
-    "lastedit": 1756512729,
+    "lastedit": 1756514890,
     "category": "外野",
     "active": true,
     "update": false
@@ -16326,10 +16317,10 @@
     "update": false
   },
   "2251267": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[【FuRyu 新作】学园 RPG《暗徒誓约 ／ varlet》8月25日发售，Steam同步，支持简中]",
     "newtitle": "[【FuRyu 新作】学园 RPG《暗徒誓约 ／ varlet》8月25日发售，Steam同步，支持简中]",
-    "lastedit": 1756495206,
+    "lastedit": 1756514889,
     "category": "游戏区",
     "active": true,
     "update": false
