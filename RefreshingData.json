@@ -5292,10 +5292,10 @@
     "update": false
   },
   "2076827": {
-    "totalreply": 2425,
+    "totalreply": 2426,
     "title": "[《伊苏》35周年有新作？（《伊苏X》情报公布）]",
     "newtitle": "[《伊苏》35周年有新作？（《伊苏X》情报公布）]",
-    "lastedit": 1756358771,
+    "lastedit": 1756582447,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7475,7 +7475,7 @@
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "lastedit": 1756322770,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2110102": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 188020,
+    "totalreply": 188021,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1756581729,
+    "lastedit": 1756582329,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14598,10 +14598,10 @@
     "update": false
   },
   "2135452": {
-    "totalreply": 482,
+    "totalreply": 483,
     "title": "[《合金装备3：食蛇者》重制版 2025年8月28日发售]",
     "newtitle": "[《合金装备3：食蛇者》重制版 2025年8月28日发售]",
-    "lastedit": 1756571170,
+    "lastedit": 1756582687,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16893,10 +16893,10 @@
     "update": false
   },
   "2260606": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[知名恩情up主李唐yo的粉丝都快突破百万了]",
     "newtitle": "[知名恩情up主李唐yo的粉丝都快突破百万了]",
-    "lastedit": 1756581368,
+    "lastedit": 1756582567,
     "category": "外野",
     "active": true,
     "update": false
@@ -16953,6 +16953,6 @@
     "lastedit": 1756579080,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
