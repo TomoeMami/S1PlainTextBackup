@@ -3197,3 +3197,15 @@ Ave Mujica 3rd Single
 
 不知道有没有声优工商环节<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 41217#       发表于 2025-8-31 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68345401&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-8-30 23:47</a>
+不知道有没有声优工商环节</blockquote>
+其实应该期待有无新联动曲的（隔壁mygo跟崩2联动的时候都出了一支），这样明年鹰角音乐会还能请来演出
+
+—— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
