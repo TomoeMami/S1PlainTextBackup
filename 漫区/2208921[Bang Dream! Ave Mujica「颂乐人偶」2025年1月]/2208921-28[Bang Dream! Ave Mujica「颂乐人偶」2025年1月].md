@@ -3237,3 +3237,14 @@ Ave Mujica 3rd Single
 
 究竟是让声优本人用vtuber那样的实时面捕+Live2D技术录播制作的呢，还是动画故意模仿制作成类似vtuber直播的样子，然后找声优配音的呢？
 
+
+*****
+
+####  genki  
+##### 41220#       发表于 2025-8-31 04:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68334439&amp;ptid=2208921" target="_blank">凉良 发表于 2025-8-28 16:39</a>
+
+听说粥粥还会出谷子  终于可以有便宜好看的谷子了么</blockquote>
+以前没出过联动角色的官方通行证，说不定有同人自制的通行证<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
