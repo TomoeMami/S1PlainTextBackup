@@ -256,3 +256,25 @@ Capture d’écran 2025-08-25 170722.png
 
 本身这个形态几乎就是纯换色，又不需要重新建模，添什么麻烦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 1261#       发表于 2025-8-30 12:36
+
+第30話　プリキュア！キラッキラン・フォー・ユー！
+
+脚本：加藤陽一
+
+演出：広末悠奈
+
+作画監督：爲我井克美、稲上晃
+
+美術：徐柱星
+
+伝説のハートキラリロックの力で闇のカプセルに閉じ込められてしまったメロロン（CV.花井美春）。田中の家に集まったうた（CV.松岡美里）たちはピカリーネを通信で呼び出し、メロロンがハートキラリロックに封印した「いちばん大切なもの」について聞く。そのなかで、キラキランドには「世界に闇の兆しがあらわれたとき、闇を知る者が伝説のハートキラリロックと共に生まれる」という言い伝えがあり、その言い伝えの通りに生まれたのがメロロンだという。ピカリーネにもメロロンを助けだす方法はわからないままだったが、メロロンを助けようと諦めないうたたち。そこでなな（CV.髙橋ミナミ）は、図書館でメロロンが読んでいた『キズナのリボン』という本をみんなに紹介する。
+<img src="https://files.catbox.moe/nac46w.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/e8l2nn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/uefmj4.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/pmex63.jpg" referrerpolicy="no-referrer">
+
