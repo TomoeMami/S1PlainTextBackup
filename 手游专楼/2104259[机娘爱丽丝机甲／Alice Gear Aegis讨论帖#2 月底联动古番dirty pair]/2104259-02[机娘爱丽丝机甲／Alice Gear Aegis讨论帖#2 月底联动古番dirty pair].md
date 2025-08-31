@@ -79,3 +79,14 @@ PV搬运
 
 艾拉大招的无敌闪避那个读条是什么，冷却吗？被打一下开始读条，读条期间没有无敌？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1644#         楼主| 发表于 2025-8-31 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68345206&amp;ptid=2104259" target="_blank">alialex 发表于 2025-8-30 23:18</a>
+
+艾拉大招的无敌闪避那个读条是什么，冷却吗？被打一下开始读条，读条期间没有无敌？ ...</blockquote>
+读条期间条被打光无敌就没了，要等重新读。
+
