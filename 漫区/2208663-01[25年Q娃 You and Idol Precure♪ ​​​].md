@@ -344,3 +344,16 @@ Meroron终于娇了，不容易<img src="https://static.stage1st.com/image/smile
 
 强化形态大概是9.14正式登场？要跟剧场版同步
 
+
+*****
+
+####  pokemon最爱  
+##### 1270#       发表于 2025-8-31 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347257&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-8-31 15:17</a>
+
+强化形态大概是9.14正式登场？要跟剧场版同步</blockquote>
+剧场版9月13就上映，会出现偶像心缎带的来源问题吧。而且9月14日是PuriMero学校回和新道具不沾边。
+
+相反下周定C位的剧情很容易切入到新道具的获取，也能解释为什么是单人的新形态（本质C位形态）
+
