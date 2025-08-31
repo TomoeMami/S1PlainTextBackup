@@ -278,3 +278,11 @@ Capture d’écran 2025-08-25 170722.png
 <img src="https://files.catbox.moe/uefmj4.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/pmex63.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 1262#       发表于 2025-8-31 07:51
+
+台词不带语尾的话超级感人啊
+
