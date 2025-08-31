@@ -336,3 +336,11 @@ Meroron终于娇了，不容易<img src="https://static.stage1st.com/image/smile
 
 什么代价不代价的 初中生变身都不需要代价 我精灵出生就有营业执照的 变个身还要被抓去坐半天牢 气煞我也 梅伦！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1269#       发表于 2025-8-31 15:17
+
+强化形态大概是9.14正式登场？要跟剧场版同步
+
