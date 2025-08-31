@@ -520,3 +520,13 @@ smile怎么这么HOMO
 
 现在知道奈斯为啥要跳楼了
 
+
+*****
+
+####  补丁  
+##### 485#       发表于 2025-8-31 11:26
+
+下集预告里强拆就是树人要盖大楼的吧？这锅还是奈斯的，盖的就是奈斯大厦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+X能力逆天，下季排位赛怎么打
+
