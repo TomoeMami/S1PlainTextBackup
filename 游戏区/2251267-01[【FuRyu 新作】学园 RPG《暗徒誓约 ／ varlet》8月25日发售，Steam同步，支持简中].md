@@ -759,3 +759,19 @@ rule姐（学生会长）
 
 男主比女主骚
 
+
+*****
+
+####  Blackson  
+##### 58#       发表于 2025-8-31 23:12
+
+ 本帖最后由 Blackson 于 2025-8-31 23:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347798&amp;ptid=2251267" target="_blank">锦木万束 发表于 2025-8-31 18:17</a>
+
+我玩过caligula、caligula2和恸哭奇机，我是没有一个推荐的，三个都要往死里肝等级花时间不说，前两个的 ...</blockquote>
+Caligula 2只有前期第一~二章吃等级(招式少打不出搭配)，一路上跑图清完怪和做支线等级追上和搭配招式多起来就没什么问题。后面越级打怪家便常饭
+
+Caligula 一代是真的不行，Boss和小怪的攻击特别难躲和难被反击，每人每回合三次行动太影响未来视很难连Combo
+
+这家只有Crystar(Crymania前作)、Monark(varlet的前作)才是刷子游戏，甚至还弄多周目才会有真结局的设定
+
