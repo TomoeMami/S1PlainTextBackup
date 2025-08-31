@@ -928,3 +928,11 @@ SQ08那个七步飞是啥意思 搜了好像是将棋 但是看不懂</blockquot
 不打算试试坛友汉化的随性大冒险么，还是准备等泳装篇也汉化完先</blockquote>
 没错，泳装可是至关重要的啊<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 66#         楼主| 发表于 2025-8-31 15:13
+
+我也快结束一周目了，过两天会把剩下流程内明显的翻译错误修改一下，还有补翻成就房间里的未翻译文本
+
