@@ -2965,3 +2965,14 @@ NEW个4星不至于吧</blockquote>
 喜欢我刷了150石头连个四星都没出么</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜欢我600石都没有4星从者吗
 
+
+*****
+
+####  qixinno2  
+##### 18031#       发表于 2025-8-31 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68348434&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-31 21:09</a>
+
+喜欢我600石都没有4星从者吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">狗萌新之前太欧把欧气用尽了
+
