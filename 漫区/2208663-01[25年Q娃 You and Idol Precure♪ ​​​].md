@@ -310,3 +310,21 @@ Capture d’écran 2025-08-25 170722.png
 
 Meroron终于娇了，不容易<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 1266#       发表于 2025-8-31 11:00
+
+感觉梅洛伦这线收的对不起近20集的铺垫 前面十几集感觉油盐不进 和其他人关系都没什么进展 上集奈奈聊会天就唐突想和大家交朋友了 埋了这么久的代价也是突然唱首歌就解决了 如果没有反派出来捣乱甚至上半集就解决了
+
+
+*****
+
+####  jaewoongh_  
+##### 1267#       发表于 2025-8-31 11:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得搞了一次高质量回，这个月就不骂你闪彩编剧了
+
+广末悠奈真是个人才，能不能做一辈子q娃
+
