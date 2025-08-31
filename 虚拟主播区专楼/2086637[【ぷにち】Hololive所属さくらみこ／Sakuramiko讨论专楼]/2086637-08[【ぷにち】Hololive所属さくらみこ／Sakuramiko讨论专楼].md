@@ -53,3 +53,40 @@
 
 这4人凑一块用脚猜都知道要唱哪首
 
+
+*****
+
+####  holofan  
+##### 11170#       发表于 2025-8-31 18:17
+
+<img src="https://img.stage1st.com/forum/202508/31/181707fe2a2uq1kii1k2yn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-31 18:17 上传
+
+*****
+
+####  holofan  
+##### 11171#       发表于 2025-8-31 18:38
+
+<img src="https://img.stage1st.com/forum/202508/31/183807oop2p1tosypbs5o4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (205.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-31 18:38 上传
+
+指名：星街
+
+fbk（mio）
+
+lpls
+
+towa
+
+最后两名比较意外
+

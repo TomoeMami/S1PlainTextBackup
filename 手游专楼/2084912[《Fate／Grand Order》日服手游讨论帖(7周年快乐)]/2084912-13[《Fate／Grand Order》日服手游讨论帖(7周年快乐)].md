@@ -2944,3 +2944,13 @@ NEW个4星不至于吧</blockquote>
 NEW个4星不至于吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">喜欢我刷了150石头连个四星都没出么
 
+
+*****
+
+####  khxooo  
+##### 18029#       发表于 2025-8-31 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347837&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-31 18:30</a>
+喜欢我刷了150石头连个四星都没出么</blockquote>
+那确实比较惨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
