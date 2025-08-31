@@ -3501,3 +3501,15 @@ GGETSURVEY3
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我ur词缀船只有突破力，ssr只有电光石火，坚牢还是送的，看着手上那堆一击必杀的机体人都傻了
 
+
+*****
+
+####  一个陆仁贾  
+##### 2579#       发表于 2025-8-31 16:41
+
+ 本帖最后由 一个陆仁贾 于 2025-8-31 16:42 编辑 
+
+地图事件里面第一阶段出现的那个有5个体力恢复的隐藏关（骰子高达图标）是陷阱，实力不高的后面再来挑战<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
