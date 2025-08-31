@@ -12354,7 +12354,7 @@
     "lastedit": 1756661280,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2258947": {
     "totalreply": 145,
@@ -16106,7 +16106,7 @@
     "newtitle": "[推漫，午夜心旋律（68话,确定动画化）]",
     "lastedit": 1756411567,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2140549": {
@@ -16416,10 +16416,10 @@
     "update": false
   },
   "2260471": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[艺术作品中宏大叙事的正确处理]",
     "newtitle": "[艺术作品中宏大叙事的正确处理]",
-    "lastedit": 1756669928,
+    "lastedit": 1756670887,
     "category": "漫区",
     "active": true,
     "update": false
