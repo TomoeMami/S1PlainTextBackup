@@ -3469,3 +3469,11 @@ GGETSURVEY3
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">190才出 麻了 那就抽到200换个升一星白卡了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2576#       发表于 2025-8-31 12:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这游戏机体的定位和标签，总给我一种万代不懂高达的感觉
+
