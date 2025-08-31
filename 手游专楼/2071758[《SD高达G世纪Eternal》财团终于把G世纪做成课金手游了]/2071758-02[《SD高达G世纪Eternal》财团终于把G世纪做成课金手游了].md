@@ -3448,3 +3448,24 @@ GGETSURVEY3
 
 有人保留了上次的PP包吗？我印象中保留了点，这次都清空了
 
+
+*****
+
+####  rockroxas  
+##### 2574#       发表于 2025-8-31 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68346647&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-8-31 12:02</a>
+
+有人保留了上次的PP包吗？我印象中保留了点，这次都清空了</blockquote>
+我记得说过每次清空的
+
+所以要用光，商店的也不需要买（除非上线得少）
+
+
+*****
+
+####  一之江瑞江  
+##### 2575#       发表于 2025-8-31 12:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">190才出 麻了 那就抽到200换个升一星白卡了
+
