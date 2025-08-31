@@ -357,3 +357,15 @@ Meroron终于娇了，不容易<img src="https://static.stage1st.com/image/smile
 
 相反下周定C位的剧情很容易切入到新道具的获取，也能解释为什么是单人的新形态（本质C位形态）
 
+
+*****
+
+####  leleq  
+##### 1271#       发表于 2025-8-31 23:40
+
+梅洛诺黑化那段打斗真是不错！就算是短了点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这个缎带强化故事前几集该提一下的
+
+小歌终于有新歌了？！哦是强化大招的歌啊也行吧
+
