@@ -3536,3 +3536,17 @@ GGETSURVEY3
 單防盾究竟有什麼用……</blockquote>
 机体有受击加防，还是不限回合的？给约拿好像还挺强（
 
+
+*****
+
+####  Abomination  
+##### 2582#       发表于 2025-8-31 20:06
+
+抽到哈曼就停手，毫不意外200抽都抽不到哈曼<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+ur船一个都没有，zz出了两个。
+
+zz感觉上是单机突入不停反击的pve用机体，但麻烦在这游戏又没有嘲讽，
+
+要安排走位让他单机突入不如我好好清场<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
