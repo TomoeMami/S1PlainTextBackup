@@ -716,3 +716,27 @@ rule姐（学生会长）
 这家出的游戏感觉也不少，有哪部是真的能玩的么</blockquote>
 卡里古拉2吧，水平刚好就是能玩的级别
 
+
+*****
+
+####  diectt  
+##### 54#       发表于 2025-8-31 17:57
+
+作为游戏是真不好玩，看剧情的话pv2把底基本上泄光了也没啥看的，但嘴臭女主真的挺有意思的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 55#       发表于 2025-8-31 18:01
+
+整部游戏就女主最有意思
+
+<img src="https://img.stage1st.com/forum/202508/31/190105jc38ankaecy7kqbq.png" referrerpolicy="no-referrer">
+
+<strong>067 (2).png</strong> (413 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-8-31 18:01 上传
+
