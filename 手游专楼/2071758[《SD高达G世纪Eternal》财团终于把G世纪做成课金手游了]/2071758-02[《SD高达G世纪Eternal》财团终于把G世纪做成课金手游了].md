@@ -3430,3 +3430,13 @@ GGETSURVEY3
 
 最后悔的就是没抽满破拉妖
 
+
+*****
+
+####  rockroxas  
+##### 2572#       发表于 2025-8-31 11:38
+
+拉妖，告诉你为什么标题叫永恒<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+宿敌其实也算不错了，下一个这么泛用的大概得是主角标签？
+

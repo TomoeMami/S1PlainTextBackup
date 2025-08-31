@@ -40,3 +40,16 @@
 虽然没有直接明示蚂蚁星人是怎么死的，但是一直是喜剧气氛为主（而不是添头）的好像只有第十集 ...</blockquote>
 其实12集或多或少还是收了一下蚂蚁星人那一集是怎么回事的。12集里面弟弟出场就强调说自己是无业游民而非陶瓷匠人，我理解就是在解释蚂蚁星人那里只是梦一场或者平行世界什么的。
 
+
+*****
+
+####  aptx8285144  
+##### 756#       发表于 2025-8-31 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68240041&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-8-9 18:33</a>
+
+BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后再运回来，结果选错第一卷先发，好在顺利到达。
+
+ ...</blockquote>
+吐槽一下，乐天的购够网竟然连日本邮费都要购买者自己付<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
