@@ -2922,3 +2922,14 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 新号的极限只能到这儿了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18027#       发表于 2025-8-31 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347634&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-31 17:32</a>
+
+NEW个4星不至于吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太至于了 羡慕
+
