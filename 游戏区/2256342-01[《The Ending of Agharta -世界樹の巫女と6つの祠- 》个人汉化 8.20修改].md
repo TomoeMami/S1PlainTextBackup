@@ -906,3 +906,25 @@ SQ08那个七步飞是啥意思 搜了好像是将棋 但是看不懂</blockquot
 
 2025-8-31 12:57 上传
 
+
+*****
+
+####  kerbad  
+##### 64#       发表于 2025-8-31 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68346833&amp;ptid=2256342" target="_blank">urvark 发表于 2025-8-31 12:58</a>
+
+有趣的是，在freegame历年得点排行总榜上，2024年的大赏作品ルナスティア -忘却の少女と魔法学校-排行13（ ...</blockquote>
+不打算试试坛友汉化的随性大冒险么，还是准备等泳装篇也汉化完先<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  urvark  
+##### 65#       发表于 2025-8-31 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68346944&amp;ptid=2256342" target="_blank">kerbad 发表于 2025-8-31 13:28</a>
+
+不打算试试坛友汉化的随性大冒险么，还是准备等泳装篇也汉化完先</blockquote>
+没错，泳装可是至关重要的啊<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
