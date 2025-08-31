@@ -2933,3 +2933,14 @@ ex戴冠战什么时候继续开？又攒了点石头战月批</blockquote>
 NEW个4星不至于吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太至于了 羡慕
 
+
+*****
+
+####  qixinno2  
+##### 18028#       发表于 2025-8-31 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347634&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-8-31 17:32</a>
+
+NEW个4星不至于吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">喜欢我刷了150石头连个四星都没出么
+

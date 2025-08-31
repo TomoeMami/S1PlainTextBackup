@@ -1091,3 +1091,11 @@ magnet:?xt=urn:btih:9286ce4ba9900796391052cd4c8659453237f7c3&amp;dn=%5BIoroid%5D
 
 雖然關注點是公主和安潔的真身會否公開，但用來作最後的反擊，感覺上氣勢還有所不足
 
+
+*****
+
+####  aptx8285144  
+##### 113#       发表于 2025-8-31 18:32
+
+你们现在肯定没有什么正常的翻译可看吧？叔叔家那个ai翻译我看了一会儿实在绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而停下来了
+
