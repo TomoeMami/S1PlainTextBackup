@@ -249,3 +249,13 @@ yls就作吧，我看明年这1000石也就填一个所长了
 我靠，喂技能居然喂到qp空了，好多年没这么窘迫了，啥时候才有猛刷qp的机会 ...</blockquote>
 冠位战不是正好猛猛刷
 
+
+*****
+
+####  khxooo  
+##### 47411#       发表于 2025-8-31 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68345731&amp;ptid=1712412" target="_blank">sandro 发表于 2025-8-31 02:04</a>
+我靠，喂技能居然喂到qp空了，好多年没这么窘迫了，啥时候才有猛刷qp的机会 ...</blockquote>
+最快都要10月，白纸地球每天刷三次应急吧。
+
