@@ -3523,3 +3523,16 @@ GGETSURVEY3
 
 單防盾究竟有什麼用……
 
+
+*****
+
+####  rockroxas  
+##### 2581#       发表于 2025-8-31 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347775&amp;ptid=2071758" target="_blank">南宮凝香 发表于 2025-8-31 18:11</a>
+
+我沒看錯的話朱總是單防盾？
+
+單防盾究竟有什麼用……</blockquote>
+机体有受击加防，还是不限回合的？给约拿好像还挺强（
+
