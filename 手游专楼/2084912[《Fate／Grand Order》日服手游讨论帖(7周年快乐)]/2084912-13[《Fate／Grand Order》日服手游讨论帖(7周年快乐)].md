@@ -2992,3 +2992,49 @@ NEW个4星不至于吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">什么 5护符居然有灵魂？
 
+
+*****
+
+####  alucardcz  
+##### 18033#       发表于 2025-8-31 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347837&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-8-31 18:30</a>
+
+喜欢我刷了150石头连个四星都没出么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜欢我600石都没有4星从者吗
+
+*****
+
+####  qixinno2  
+##### 18034#       发表于 2025-8-31 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68348434&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-8-31 21:09</a>
+
+喜欢我600石都没有4星从者吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">狗萌新之前太欧把欧气用尽了
+
+*****
+
+####  alucardcz  
+##### 18035#       发表于 2025-9-1 01:18
+
+<img src="https://img.stage1st.com/forum/202509/01/011810znbtg1b1yn0yifsn.png" referrerpolicy="no-referrer">
+
+<strong>ED2FA6BD2A4B351C6744DC48046BAD8C.png</strong> (596.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-1 01:18 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">什么 5护符居然有灵魂？
+
+*****
+
+####  qixinno2  
+##### 18036#       发表于 2025-9-1 06:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68349419&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-1 01:18</a>
+
+什么 5护符居然有灵魂？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不愧是狗萌新
+
