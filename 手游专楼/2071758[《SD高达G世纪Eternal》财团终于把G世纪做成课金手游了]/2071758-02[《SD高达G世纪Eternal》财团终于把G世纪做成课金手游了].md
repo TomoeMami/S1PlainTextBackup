@@ -3493,3 +3493,11 @@ GGETSURVEY3
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">赚了这么多，吃相就不能稍微好点吗
 
+
+*****
+
+####  洛克萨斯  
+##### 2578#       发表于 2025-8-31 13:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我ur词缀船只有突破力，ssr只有电光石火，坚牢还是送的，看着手上那堆一击必杀的机体人都傻了
+
