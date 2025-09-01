@@ -3550,3 +3550,16 @@ zz感觉上是单机突入不停反击的pve用机体，但麻烦在这游戏又
 
 要安排走位让他单机突入不如我好好清场<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 2583#       发表于 2025-9-1 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68348173&amp;ptid=2071758" target="_blank">Abomination 发表于 2025-8-31 20:06</a>
+
+抽到哈曼就停手，毫不意外200抽都抽不到哈曼
+
+ur船一个都没有，zz出了两个。</blockquote>
+30发出了2ur船，不过是zz和w的……笑也不是哭也不是
+
