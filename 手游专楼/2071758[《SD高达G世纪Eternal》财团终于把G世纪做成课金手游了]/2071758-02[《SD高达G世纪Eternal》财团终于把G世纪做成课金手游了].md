@@ -3614,3 +3614,11 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧了一回，送的3000出白卡了，安心存个钻等半周年看看有什么活
 
+
+*****
+
+####  AminGly  
+##### 2589#       发表于 2025-9-1 17:10
+
+又出bug了 1300w完不成 要1400w
+
