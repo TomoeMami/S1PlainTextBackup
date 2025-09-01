@@ -3630,3 +3630,11 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 这次地图事件难度飙升啊，非常不利好刚入坑的玩家嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  markava  
+##### 2591#       发表于 2025-9-1 22:41
+
+送的十连，闺女给抽出了ur凤凰，美滋滋
+
