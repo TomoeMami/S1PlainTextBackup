@@ -289,3 +289,11 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 单抽，金卡<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，很欧吗，这种占了五星出率的歪卡我是一点都高兴不起来的，我宁可出个垃圾三星
 
+
+*****
+
+####  失落之翼  
+##### 47415#       发表于 2025-9-1 11:01
+
+迪拜BB池真的啥都没有啊，快100抽了一个4星都不来<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
