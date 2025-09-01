@@ -560,3 +560,16 @@ X要打肯定有方法，X没弱点上班族还是有的
 
 顺便奈斯现在好像是除了X以外所有画风都有一个的，本来还觉得逼格不够有点小丑，现在看倒是也还行
 
+
+*****
+
+####  rushsong  
+##### 489#       发表于 2025-9-1 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68353965&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-9-1 20:17</a>
+
+X要打肯定有方法，X没弱点上班族还是有的
+
+不如说现在梁龙怎么处理</blockquote>
+不是，狗和魂电也是所有画风都有一个
+
