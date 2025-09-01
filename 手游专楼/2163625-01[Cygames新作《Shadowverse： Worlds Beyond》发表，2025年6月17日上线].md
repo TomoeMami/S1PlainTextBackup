@@ -471,3 +471,11 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 新版本新卡组是什么东西
 
+
+*****
+
+####  duraa  
+##### 690#       发表于 2025-9-1 09:54
+
+新版本最没想到的还是蛋鱼居然是成立的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
