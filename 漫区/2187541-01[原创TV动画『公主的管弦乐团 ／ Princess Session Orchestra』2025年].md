@@ -22,3 +22,14 @@
 
 防人是吧，红女王你平常用剑吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，算是大家都猜到的故事展开了
 
+
+*****
+
+####  lydia5989  
+##### 151#       发表于 2025-9-1 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68349083&amp;ptid=2187541" target="_blank">leommoo 发表于 2025-8-31 23:23</a>
+
+防人是吧，红女王你平常用剑吗，算是大家都猜到的故事展开了</blockquote>
+估计cv访谈的话能乐死在访谈现场
+
