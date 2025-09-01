@@ -3038,3 +3038,44 @@ NEW个4星不至于吧</blockquote>
 什么 5护符居然有灵魂？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不愧是狗萌新
 
+
+*****
+
+####  alucardcz  
+##### 18037#       发表于 2025-9-1 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68349642&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-1 06:29</a>
+
+不愧是狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">唯一泳装 不如漏油一根毛
+
+*****
+
+####  qixinno2  
+##### 18038#       发表于 2025-9-1 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68352107&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-1 14:59</a>
+
+唯一泳装 不如漏油一根毛</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">又刷了120石头 就一个四星 没苹果了不如狗萌新
+
+*****
+
+####  alucardcz  
+##### 18039#       发表于 2025-9-1 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68352166&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-1 15:10</a>
+
+又刷了120石头 就一个四星 没苹果了不如狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 居然能有这么多人能刷羁绊
+
+*****
+
+####  qixinno2  
+##### 18040#       发表于 2025-9-1 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68352179&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-1 15:12</a>
+
+太欧了 居然能有这么多人能刷羁绊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">一堆1宝四星 没啥用
+
