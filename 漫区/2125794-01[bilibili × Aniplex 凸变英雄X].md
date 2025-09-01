@@ -573,3 +573,14 @@ X要打肯定有方法，X没弱点上班族还是有的
 不如说现在梁龙怎么处理</blockquote>
 不是，狗和魂电也是所有画风都有一个
 
+
+*****
+
+####  Sacross  
+##### 490#       发表于 2025-9-2 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68354632&amp;ptid=2125794" target="_blank">rushsong 发表于 2025-9-1 23:13</a>
+
+不是，狗和魂电也是所有画风都有一个</blockquote>
+魂电没有狗子的那种偏美式卡通的画风吧，预告里那个风格感觉和之前日系2d差距还挺大的
+
