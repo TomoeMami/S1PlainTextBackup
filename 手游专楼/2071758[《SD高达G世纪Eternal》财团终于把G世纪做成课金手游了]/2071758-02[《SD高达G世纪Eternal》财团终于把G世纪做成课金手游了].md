@@ -3622,3 +3622,11 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 又出bug了 1300w完不成 要1400w
 
+
+*****
+
+####  胖达君  
+##### 2590#       发表于 2025-9-1 17:55
+
+这次地图事件难度飙升啊，非常不利好刚入坑的玩家嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
