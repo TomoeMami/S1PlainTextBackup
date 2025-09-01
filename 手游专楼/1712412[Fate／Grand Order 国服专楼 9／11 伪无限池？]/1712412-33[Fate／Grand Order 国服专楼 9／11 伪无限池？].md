@@ -297,3 +297,14 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 迪拜BB池真的啥都没有啊，快100抽了一个4星都不来<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 47416#       发表于 2025-9-1 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68349975&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-9-1 09:04</a>
+
+单抽，金卡，剑阶，棉被，很欧吗，这种占了五星出率的歪卡我是一点都高兴不起来的，我宁可出个垃圾三星 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">起码剑阶的时候就让你死心了，不像有的职阶...
+
