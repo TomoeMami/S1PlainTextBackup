@@ -34,3 +34,16 @@
 
 下个月应该要出第四章了吧，都拖这么久了
 
+
+*****
+
+####  电脑死机  
+##### 503#       发表于 2025-9-1 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68353306&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-9-1 17:54</a>
+
+古城，第三次来袭
+
+下个月应该要出第四章了吧，都拖这么久了</blockquote>
+之前访谈说工作量比预期大，年内出不来的，最近又有传闻说跟周年庆一起上，不知道怎么样了，总之等吧，现在我都是每天上线15分钟收菜
+
