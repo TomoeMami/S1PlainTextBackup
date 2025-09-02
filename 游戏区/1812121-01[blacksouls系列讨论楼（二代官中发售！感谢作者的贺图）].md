@@ -63,3 +63,18 @@
 
 是什么按键操作不对吗
 
+
+*****
+
+####  检索者  
+##### 179#         楼主| 发表于 2025-9-2 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68358198&amp;ptid=1812121" target="_blank">维克塔利昂 发表于 2025-9-2 17:03</a>
+
+刚打完狼，为啥我各种地方都不能去？
+
+火鸡场那个地下楼梯，火鸡场左下角，打完狼上面的路，狼下面的路，就 ...</blockquote>
+steam版把内容基本砍完了，能去的地方就这些（可能是为了过审）
+
+得去发行商官网下补丁才是完整版
+
