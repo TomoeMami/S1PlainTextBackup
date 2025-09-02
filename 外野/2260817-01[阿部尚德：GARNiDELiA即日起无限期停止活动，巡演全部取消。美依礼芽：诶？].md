@@ -966,3 +966,27 @@ https://finance.sina.cn/2025-06- ... d.html?vt ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 97#       发表于 2025-9-2 16:09
+
+<blockquote>twilightzone 发表于 2025-9-2 13:21
+《曾毅：凤凰传奇即日起无限期停止活动，巡演全部取消》</blockquote>
+toku不负责唱歌，对巡演影响不大。感觉这种情况更像是方文山和周杰伦闹分手...
+
+*****
+
+####  cybernetics31  
+##### 98#       发表于 2025-9-2 16:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这三方都有问题吧，但问题是你现在这么一搞，连个人活动都没法弄了。
+
+*****
+
+####  昵称怎么起  
+##### 99#       发表于 2025-9-2 16:13
+
+现在的经纪是波丽佳音？那女方敢这么撕破脸是真准备住国内了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
