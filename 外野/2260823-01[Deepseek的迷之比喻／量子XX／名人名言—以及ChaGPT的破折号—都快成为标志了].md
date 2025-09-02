@@ -495,3 +495,15 @@ em dash</blockquote>
 
 当然作者可以一点点仔细修改，但有这功夫，还不如自己好好写论文呢。
 
+
+*****
+
+####  MeursaulT  
+##### 47#       发表于 2025-9-3 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359414&amp;ptid=2260823" target="_blank">Prushka 发表于 2025-9-2 22:07</a>
+用AI“写作”导致4段话里面能塞15个“引号”的“小编”真是“司马”了  ...</blockquote>
+这个引号可能是公文里来的，给流行词加引号的习惯历来有之
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
