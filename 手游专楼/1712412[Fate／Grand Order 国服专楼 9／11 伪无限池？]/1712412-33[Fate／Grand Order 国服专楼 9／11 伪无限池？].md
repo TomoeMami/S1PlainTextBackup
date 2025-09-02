@@ -318,3 +318,11 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 额！不对，居然是bb！惊喜！好吧，也没啥用。。。
 
+
+*****
+
+####  khxooo  
+##### 47418#       发表于 2025-9-2 17:42
+
+最简单的一天，狂娜简直就是减速带了，不过后面2.5的回忆才是赤石<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
