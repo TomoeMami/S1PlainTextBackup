@@ -507,3 +507,11 @@ em dash</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  remediosOlOOOO  
+##### 48#       发表于 2025-9-3 02:08
+
+我这种喜欢用破折号的人还找不到输入法里的破折号呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后还得被直接打成ai吗？
+
