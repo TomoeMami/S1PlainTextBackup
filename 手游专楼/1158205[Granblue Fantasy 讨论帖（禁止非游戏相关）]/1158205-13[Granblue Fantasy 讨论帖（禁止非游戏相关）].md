@@ -16,3 +16,13 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Niu  
+##### 18257#       发表于 2025-9-2 13:01
+
+我靠, 30%武器直接賣
+
+對於沒湊到第二把的非洲人來說這還滿划算的
+

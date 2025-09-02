@@ -643,3 +643,11 @@ girls，lamb，极乐净土，等等
 
 我记得之前看哪个日本漫才组合几十年了工作以外零交流。
 
+
+*****
+
+####  蒜灵  
+##### 65#       发表于 2025-9-2 12:57
+
+你日不是最讲究表面功夫吗？连表面功夫都不做了那是有点严重的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

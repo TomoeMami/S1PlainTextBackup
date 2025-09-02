@@ -3638,3 +3638,23 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 送的十连，闺女给抽出了ur凤凰，美滋滋
 
+
+*****
+
+####  行政裁定书  
+##### 2592#       发表于 2025-9-2 12:59
+
+这次地图事件的积分战，有没有平民阵容的攻略视频？
+
+很难啊。
+
+*****
+
+####  行政裁定书  
+##### 2593#       发表于 2025-9-2 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68354519&amp;ptid=2071758" target="_blank">markava 发表于 2025-9-1 22:41</a>
+
+送的十连，闺女给抽出了ur凤凰，美滋滋</blockquote>
+这次ur凤凰和小马哥数值给得都很拉，不知道为什么
+
