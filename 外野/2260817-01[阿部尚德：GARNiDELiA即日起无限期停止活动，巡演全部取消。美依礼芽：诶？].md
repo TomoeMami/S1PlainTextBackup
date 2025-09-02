@@ -831,3 +831,11 @@ girls，lamb，极乐净土，等等
 https://finance.sina.cn/2025-06- ... d.html?vt ...</blockquote>
 唉，沾上内娱就会有这种破事
 
+
+*****
+
+####  休人负我  
+##### 83#       发表于 2025-9-2 15:34
+
+大家都是来看主唱的，一个搞创作的干干幕后就行了，强行带个乐器上台<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
