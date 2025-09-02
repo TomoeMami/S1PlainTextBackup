@@ -3583,3 +3583,20 @@ Ave Mujica 3rd Single
 黑白细剑有什么特殊的么</blockquote>
 只是我以前想过鸡狗的人会用什么武器 在粥里对上了祥老师细剑 勉强还有个大喵长柄武器而已
 
+
+*****
+
+####  jiangyou  
+##### 41239#       发表于 2025-9-3 05:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359146&amp;ptid=2208921" target="_blank">凉良 发表于 2025-9-2 20:51</a>
+
+黑白细剑有什么特殊的么</blockquote>
+用作阅读理解来说黑剑白剑刚好代表钢琴的黑键白键
+
+这个游戏中祥子是既可以打魔法伤害也可以打物理伤害还可以打同时打两种伤害
+
+攻击动画打魔法伤害时用白剑打物理伤害时有黑剑，打混伤就两把剑一起挥
+
+有点想法在里面<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
