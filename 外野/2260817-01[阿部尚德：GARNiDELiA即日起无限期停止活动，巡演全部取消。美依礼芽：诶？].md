@@ -799,3 +799,23 @@ girls，lamb，极乐净土，等等
 
 突然意识到7月6号北京那场没去简直就是大失策，谁能算到那段竟然是最后一次了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 80#       发表于 2025-9-2 15:08
+
+<blockquote>人生オワタ 发表于 2025-9-2 10:58
+记得是最大手的Smap还是Arashi，部分成员私下也是不怎么联系的。</blockquote>
+应该是arashi私下不联系，smap就是因为搞内部小团体才解散的
+
+
+*****
+
+####  Victorino  
+##### 81#       发表于 2025-9-2 15:11
+
+<blockquote>twilightzone 发表于 2025-9-2 13:21
+《曾毅：凤凰传奇即日起无限期停止活动，巡演全部取消》</blockquote>
+曾毅哪有这个权限，凤凰传奇老板是玲花老公（且经常把曾毅当假想情敌版）
+
