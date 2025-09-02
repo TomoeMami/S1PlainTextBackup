@@ -3756,3 +3756,13 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  blue321  
+##### 2603#       发表于 2025-9-2 20:23
+
+活动普池票好久没出货了，结果出了专1的Z高达词条的支援舰……
+
+除了永恒路之外平常使用真用不上啊这类作品系支援舰，加上我还没有UR Z高达和THEO<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
