@@ -863,3 +863,40 @@ https://finance.sina.cn/2025-06- ... d.html?vt ...</blockquote>
 
 经济公司的纠纷？
 
+
+*****
+
+####  你妈的为什么  
+##### 86#       发表于 2025-9-2 15:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">啥意思 被经济公司阴了光干活钱没拿全？
+
+
+*****
+
+####  cqc1021  
+##### 87#       发表于 2025-9-2 15:50
+
+意思是水桥舞跟经纪公司闹矛盾，本来想带着toku一起跑路，结果toku把她踢了？
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  icecry  
+##### 88#       发表于 2025-9-2 15:52
+
+8月通过律师向事务所发解雇通知，那她唉个啥
+
+*****
+
+####  黑上シグマ  
+##### 89#       发表于 2025-9-2 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357673&amp;ptid=2260817" target="_blank">cqc1021 发表于 2025-9-2 15:50</a>
+
+意思是水桥舞跟经纪公司闹矛盾，本来想带着toku一起跑路，结果toku把她踢了？
+
+—— 来自 samsung SM-N9860 ...</blockquote>
+看上面那意思是都没找男方商量过，就自己找律师给事务所发函了
+
