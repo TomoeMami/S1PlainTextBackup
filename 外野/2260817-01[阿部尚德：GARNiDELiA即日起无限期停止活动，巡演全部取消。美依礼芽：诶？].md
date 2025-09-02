@@ -596,3 +596,50 @@ girls，lamb，极乐净土，等等
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  ChelJW  
+##### 61#       发表于 2025-9-2 12:36
+
+真的很糟啊，以这种方式结束，那个男的这么搞也就算了，连事务所都瞒着当事人发公告，完全不顾正常的商业合作原则，太过分了，难道她是有什么滔天的罪恶所以要这么报复吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+直接来内娱发展算了
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  风夏  
+##### 62#       发表于 2025-9-2 12:40
+
+えっ！？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来俩人矛盾已经大到藏不住啦
+
+*****
+
+####  花咲茜  
+##### 63#       发表于 2025-9-2 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68356225&amp;ptid=2260817" target="_blank">别里科夫 发表于 2025-9-2 10:56</a>
+
+彩虹乐队下班之后更是一点都不联系。
+
+—— 来自 vivo V2324A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+话说有个乐队自称成员从组建起到现在一直没见过面
+
+*****
+
+####  dddty  
+##### 64#       发表于 2025-9-2 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68356005&amp;ptid=2260817" target="_blank">=w= 发表于 2025-9-2 10:28</a>
+
+之前看竹内亮拍的纪录片 https://www.bilibili.com/video/BV18eUWYmEUT/
+
+他俩平时根本都没什么交流，这都 ...</blockquote>
+放日本太正常了，很多组合就是同事关系甚至一点私交都没有。
+
+我记得之前看哪个日本漫才组合几十年了工作以外零交流。
+
