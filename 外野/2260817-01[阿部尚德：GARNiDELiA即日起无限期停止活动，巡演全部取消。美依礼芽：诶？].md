@@ -1498,3 +1498,20 @@ toku：不，it's mygo（指炸团）
 
 说到不交流，我看downtown的纪录片，滨田也说平时和松本没交流，我那时候是完全不信的。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kilty  
+##### 145#       发表于 2025-9-3 00:27
+
+涉事当事人的做法都太日本了
+
+*****
+
+####  地方就是咖啡好  
+##### 146#       发表于 2025-9-3 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">诶，内娱，你是吃人的魔鬼。
+
+—— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
