@@ -754,3 +754,48 @@ girls，lamb，极乐净土，等等
 这个是正式唱片出道的组合 男的是音 ...</blockquote>
 以前还在成都的漫展看到过银发和217跳极乐净土来着
 
+
+*****
+
+####  kurihayn  
+##### 77#       发表于 2025-9-2 14:54
+
+<blockquote>kenqqex 发表于 2025-9-2 10:07
+2025 广州的小美内娱live 
+
+是我这辈子参加过的最烂的live无之一.....</blockquote>
+
+哪方面啊？我记得女主唱的唱跳都是没问题的吧？
+
+*****
+
+####  kenqqex  
+##### 78#       发表于 2025-9-2 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357404&amp;ptid=2260817" target="_blank">kurihayn 发表于 2025-9-2 14:54</a>
+
+哪方面啊？我记得女主唱的唱跳都是没问题的吧？</blockquote>
+美依礼芽广州演唱会被吐槽“草台班子”，投资方严正声明
+[https://finance.sina.cn/2025-06- ... d.html?vt=4&amp;pos=108](https://finance.sina.cn/2025-06-10/detail-inezqmne5704919.d.html?vt=4&amp;pos=108)
+
+<img src="https://img.stage1st.com/forum/202509/02/145810wsk5j910lp88wq0p.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250902145755.jpg</strong> (150.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-2 14:58 上传
+
+大概是开场唱完三首日语歌  之后唱的全都是中文的
+
+中间换衣服的时候guest 都是内娱艺人 有男有女
+
+后面的节奏就是guest一首她一首 她两合唱一首 都是中文
+
+*****
+
+####  慕容断月  
+##### 79#       发表于 2025-9-2 14:59
+
+突然意识到7月6号北京那场没去简直就是大失策，谁能算到那段竟然是最后一次了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

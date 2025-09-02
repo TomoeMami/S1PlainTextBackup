@@ -3691,3 +3691,15 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 普池终于满200可以换一个了，结果一看后面的常驻都没进来<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 2597#       发表于 2025-9-2 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357055&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-9-2 13:34</a>
+普池终于满200可以换一个了，结果一看后面的常驻都没进来</blockquote>
+那些是在其他池里面当地雷阴人的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
