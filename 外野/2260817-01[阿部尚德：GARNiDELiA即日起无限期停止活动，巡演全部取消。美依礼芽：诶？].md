@@ -1490,3 +1490,11 @@ toku：不，it's mygo（指炸团）
 
 仅次于Keiko背着大妈复活kalafina给我带来的冲击。
 
+
+*****
+
+####  遗尿  
+##### 144#       发表于 2025-9-3 00:20
+
+说到不交流，我看downtown的纪录片，滨田也说平时和松本没交流，我那时候是完全不信的。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
