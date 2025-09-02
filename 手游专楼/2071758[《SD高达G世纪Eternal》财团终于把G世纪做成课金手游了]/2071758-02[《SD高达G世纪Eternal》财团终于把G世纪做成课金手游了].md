@@ -3766,3 +3766,15 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 除了永恒路之外平常使用真用不上啊这类作品系支援舰，加上我还没有UR Z高达和THEO<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 2604#       发表于 2025-9-2 21:46
+
+鳳凰主要是傷害低
+
+小馬哥又沒特別功能
+
+其他點都不錯
+
