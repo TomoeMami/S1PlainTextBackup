@@ -3778,3 +3778,13 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 其他點都不錯
 
+
+*****
+
+####  一个陆仁贾  
+##### 2605#       发表于 2025-9-2 22:00
+
+地图活动积分挑战这回也毫不意外的最后忘记围攻导致积分没达标得打第二次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
