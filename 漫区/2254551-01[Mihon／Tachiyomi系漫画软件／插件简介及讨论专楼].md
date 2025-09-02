@@ -955,3 +955,16 @@ mihon自带的备份用不了咩？今天想把手机的书架移到平板里，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 83#         楼主| 发表于 2025-9-2 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359433&amp;ptid=2254551" target="_blank">软软人 发表于 2025-9-2 22:16</a>
+
+mihon自带的备份用不了咩？今天想把手机的书架移到平板里，备份文件导过去但是显示备份失败~
+
+—— 来自 鹅 ...</blockquote>
+导入过去不该是恢复备份吗
+

@@ -3788,3 +3788,17 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  棍机凹升龙  
+##### 2606#       发表于 2025-9-2 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357566&amp;ptid=2071758" target="_blank">fireadol 发表于 2025-9-2 15:26</a>
+抽限定会歪的，你懂抽海牛看到创强的感觉吗，可以跟凤凰竞争最弱UR的含金量
+
+顺便普池换亚丝娜还是支援骡 ...</blockquote>
+这期就抽来了创强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚丝娜和骡子倒是有了所以不急着换
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
