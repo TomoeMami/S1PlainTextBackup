@@ -425,3 +425,29 @@ em dash</blockquote>
 
 用AI“写作”导致4段话里面能塞15个“引号”的“小编”真是“司马”了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  草台培训班  
+##### 42#       发表于 2025-9-2 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357710&amp;ptid=2260823" target="_blank">siebten 发表于 2025-9-2 15:56</a>
+
+一颗石子投入湖面
+
+紧张的指节泛白
+
+在第六次钟声敲响之后</blockquote>
+指节泛白和一丝不易察觉的狡黠不是网文很早就在用的句式吗？
+
+*****
+
+####  草台培训班  
+##### 43#       发表于 2025-9-2 22:22
+
+开头——插入语——结束。
+
+这也是正常用法吧，类似英文的插入语。
+
+毕竟中文不能像英文一样写成：开头，插入语，结束。
+
