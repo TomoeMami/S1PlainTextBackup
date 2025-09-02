@@ -1411,3 +1411,28 @@ MYGO超神了
 
 欢乐多，没想到是这种展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cqc1021  
+##### 136#       发表于 2025-9-2 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68358778&amp;ptid=2260817" target="_blank">Natsunagi 发表于 2025-9-2 19:16</a>
+说白了这两人就是普通同事关系，私下根本不熟，然后maria觉得公司待遇太差了，跟领导提了离职，但没跟toku ...</blockquote>
+toku的发言没感觉跟公司有矛盾，更像是跟公司一起把水桥舞给踢了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Natsunagi  
+##### 137#       发表于 2025-9-2 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68358869&amp;ptid=2260817" target="_blank">cqc1021 发表于 2025-9-2 19:37</a>
+
+toku的发言没感觉跟公司有矛盾，更像是跟公司一起把水桥舞给踢了
+
+—— 来自 samsung SM-N9860, Android  ...</blockquote>
+主要是这个公司旗下一共就两个人，主要市场全在中国，基本上全靠maria在赚钱，没她还真不行，公司和toku不会不明白这个道理，如果toku也是和公司站一边的话，得知maria要走难道不是应该去挽留一下吗，但从maria的反应来看toku是没跟她通过气，所以大概率是toku也拿不到什么钱
+
