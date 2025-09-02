@@ -3489,3 +3489,21 @@ Ave Mujica 3rd Single
 
        [https://bang-dream.com/events/rijf2025](https://bang-dream.com/events/rijf2025)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41232#       发表于 2025-9-2 11:02
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/02/110238oizdpih5ddbi6ir5.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-02_11-01-21.jpg</strong> (170.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-2 11:02 上传
+
+       [https://weibo.com/6279793937/Q2G3AxjEx](https://weibo.com/6279793937/Q2G3AxjEx)
+
