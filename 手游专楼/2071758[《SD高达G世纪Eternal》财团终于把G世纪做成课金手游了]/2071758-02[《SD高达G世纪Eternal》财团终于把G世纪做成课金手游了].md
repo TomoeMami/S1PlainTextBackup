@@ -3672,3 +3672,14 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  马桶3  
+##### 2595#       发表于 2025-9-2 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68356922&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-9-2 13:00</a>
+
+这次ur凤凰和小马哥数值给得都很拉，不知道为什么</blockquote>
+小马哥觉醒数值还是可以的，别的一般般
+
