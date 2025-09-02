@@ -651,3 +651,34 @@ girls，lamb，极乐净土，等等
 
 你日不是最讲究表面功夫吗？连表面功夫都不做了那是有点严重的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  熊边上  
+##### 66#       发表于 2025-9-2 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68356005&amp;ptid=2260817" target="_blank">=w= 发表于 2025-9-1 21:28</a>
+之前看竹内亮拍的纪录片 https://www.bilibili.com/video/BV18eUWYmEUT/
+
+他俩平时根本都没什么交流，这都 ...</blockquote>
+公司凑的组合这种事太常见了
+
+
+*****
+
+####  约定的明日  
+##### 67#       发表于 2025-9-2 13:11
+
+ 本帖最后由 约定的明日 于 2025-9-2 13:13 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是在中国赚的钱太多了，一想到这是日本人能搞出来的烂活，就很符合刻板印象了，老中的钱赚再多也不行
+
+*****
+
+####  熊边上  
+##### 68#       发表于 2025-9-2 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68356181&amp;ptid=2260817" target="_blank">agsva 发表于 2025-9-1 21:51</a>
+感觉日本这些组合就是纯同事关系，之前看一些日综，一些搞笑组合私底下都不联系的。 ...</blockquote>
+不光日本，欧美那些组合或者乐队，只要成员是公司给找的，很多也都是没什么私交
+
