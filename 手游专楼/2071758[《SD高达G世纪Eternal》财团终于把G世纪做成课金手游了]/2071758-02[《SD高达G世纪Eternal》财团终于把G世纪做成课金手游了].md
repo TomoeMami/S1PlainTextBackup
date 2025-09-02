@@ -3683,3 +3683,11 @@ UR正义出了两个，UR凤凰出了两个，喜提两个满星主页L2D<img sr
 这次ur凤凰和小马哥数值给得都很拉，不知道为什么</blockquote>
 小马哥觉醒数值还是可以的，别的一般般
 
+
+*****
+
+####  棍机凹升龙  
+##### 2596#       发表于 2025-9-2 13:34
+
+普池终于满200可以换一个了，结果一看后面的常驻都没进来<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
