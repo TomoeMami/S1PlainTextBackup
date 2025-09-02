@@ -90,3 +90,19 @@ steam版把内容基本砍完了，能去的地方就这些（可能是为了过
 其实01（普莉凯特）也是奈亚分身，其他奈亚分身看到01玩那么high才想跟着来和主角玩捉迷藏的恋爱游戏。
 正因如此二代h结局01才不能跟主角一起走，只要01在主角就逃不掉。
 
+
+*****
+
+####  JunkoPureFuries  
+##### 181#       发表于 2025-9-2 20:10
+
+<img src="https://img.stage1st.com/forum/202509/02/200856b7al5zfv7ccp7laf.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-09-02 200824.png</strong> (103.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-2 20:08 上传
+
+又一次知道你游的火热程度<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然以前知道有六国语言的汉化，没想到这么火
+

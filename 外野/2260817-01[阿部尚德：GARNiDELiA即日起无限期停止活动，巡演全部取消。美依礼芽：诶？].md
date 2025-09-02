@@ -1454,3 +1454,21 @@ toku：不，it's mygo（指炸团）
 
 内地娱乐市场是真的大啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  加油牛油果  
+##### 140#       发表于 2025-9-2 20:10
+
+感觉要被当牌用了怎么说，作曲的发展前景肯定比当歌手的要好啊<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jcwatm1  
+##### 141#       发表于 2025-9-2 20:10
+
+这样结束也挺好，maria已经彻底是内娱的模样了，业务能力也不断退化，今年给极乐净土拍的mv，代表作跳舞都跳不好了
+以后maria就好好混内娱吧，也算和二次元切割了
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
