@@ -741,3 +741,16 @@ girls，lamb，极乐净土，等等
 
 真毁了说不定钱更多了。
 
+
+*****
+
+####  梁日浮  
+##### 76#       发表于 2025-9-2 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357094&amp;ptid=2260817" target="_blank">糖尔 发表于 2025-9-2 13:46</a>
+
+那是maria在nico活动时代的舞见组合（和舞见银发娘和217舞蹈小分队）
+
+这个是正式唱片出道的组合 男的是音 ...</blockquote>
+以前还在成都的漫展看到过银发和217跳极乐净土来着
+
