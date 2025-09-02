@@ -725,3 +725,11 @@ girls，lamb，极乐净土，等等
 那是maria在nico活动时代的舞见组合（和舞见银发娘和217舞蹈小分队）
 这个是正式唱片出道的组合 男的是音乐人
 
+
+*****
+
+####  RaKboW  
+##### 74#       发表于 2025-9-2 14:16
+
+有点意思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
