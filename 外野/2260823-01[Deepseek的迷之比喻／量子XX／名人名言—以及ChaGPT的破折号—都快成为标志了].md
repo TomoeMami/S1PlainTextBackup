@@ -515,3 +515,25 @@ em dash</blockquote>
 
 我这种喜欢用破折号的人还找不到输入法里的破折号呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后还得被直接打成ai吗？
 
+
+*****
+
+####  qwased  
+##### 49#       发表于 2025-9-3 02:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359960&amp;ptid=2260823" target="_blank">草台培训班 发表于 2025-9-3 01:03</a>
+语料库里有网文是肯定的，但这些也已经是很多人常用句式了，不好判断是不是ai。
+
+倒是那个“在第X次XX之后 ...</blockquote>
+第x次xx是以前的历史类实体小说喜欢用的，大概率也是因为训练材料里面实体小说权重太高了
+
+*****
+
+####  泰坦失足  
+##### 50#         楼主| 发表于 2025-9-3 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359414&amp;ptid=2260823" target="_blank">Prushka 发表于 2025-9-2 22:07</a>
+
+用AI“写作”导致4段话里面能塞15个“引号”的“小编”真是“司马”了  ...</blockquote>
+已经能看到文字脑子里出现AI声或者念稿声了
+
