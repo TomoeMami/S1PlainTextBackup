@@ -3106,3 +3106,35 @@ NEW个4星不至于吧</blockquote>
 狗屎 歪了个奥德修斯</blockquote>
 有灵衣、可以加快挖矿。五星从者，欧羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18044#       发表于 2025-9-1 21:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">大总统我敬爱你口牙
+
+*****
+
+####  qixinno2  
+##### 18045#       发表于 2025-9-1 21:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗屎 歪了个奥德修斯
+
+*****
+
+####  khxooo  
+##### 18046#       发表于 2025-9-2 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68354310&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-1 21:51</a>
+
+狗屎 歪了个奥德修斯</blockquote>
+有灵衣、可以加快挖矿。五星从者，欧羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 18047#       发表于 2025-9-2 08:36
+
+挖呀挖，终于挖出第三宝月批了
+

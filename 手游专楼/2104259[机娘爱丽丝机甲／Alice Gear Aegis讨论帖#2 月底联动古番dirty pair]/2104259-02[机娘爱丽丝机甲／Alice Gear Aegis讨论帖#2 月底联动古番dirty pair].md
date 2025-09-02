@@ -112,3 +112,11 @@ PV搬运
 
 这么一看开始死磕北欧组是错的，应该先去抽明娜
 
+
+*****
+
+####  madcow  
+##### 1647#       发表于 2025-9-2 08:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">感觉最近四星倒是出的不少，真数起来其实还挺多的，但是好多都是歪的（
+
