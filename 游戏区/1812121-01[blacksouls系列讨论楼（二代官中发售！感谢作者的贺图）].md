@@ -106,3 +106,17 @@ steam版把内容基本砍完了，能去的地方就这些（可能是为了过
 
 又一次知道你游的火热程度<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然以前知道有六国语言的汉化，没想到这么火
 
+
+*****
+
+####  ParadiseMartyr  
+##### 182#       发表于 2025-9-3 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359003&amp;ptid=1812121" target="_blank">JunkoPureFuries 发表于 2025-9-2 20:10</a>
+又一次知道你游的火热程度虽然以前知道有六国语言的汉化，没想到这么火
+
+ ...</blockquote>
+2000评论啥概念？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

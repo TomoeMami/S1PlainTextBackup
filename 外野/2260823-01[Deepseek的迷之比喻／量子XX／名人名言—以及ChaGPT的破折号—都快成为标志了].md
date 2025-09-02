@@ -459,3 +459,14 @@ em dash</blockquote>
 
 真正能判断ai的，是ai写长文，到后面肯定逻辑越来越混乱，特别是那种会多次切换叙事主体的文章，ai必乱。
 
+
+*****
+
+####  siebten  
+##### 45#       发表于 2025-9-3 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359446&amp;ptid=2260823" target="_blank">草台培训班 发表于 2025-9-2 22:20</a>
+
+指节泛白和一丝不易察觉的狡黠不是网文很早就在用的句式吗？</blockquote>
+所以怀疑哈基米训练语料里有大量古早网文
+
