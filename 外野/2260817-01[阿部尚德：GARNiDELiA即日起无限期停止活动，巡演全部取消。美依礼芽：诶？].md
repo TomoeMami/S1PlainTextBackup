@@ -714,3 +714,14 @@ girls，lamb，极乐净土，等等
 
 原来组合不是三个女人吗？原来是一男一女？？？
 
+
+*****
+
+####  糖尔  
+##### 73#       发表于 2025-9-2 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357063&amp;ptid=2260817" target="_blank">消防 发表于 2025-9-2 13:36</a>
+原来组合不是三个女人吗？原来是一男一女？？？</blockquote>
+那是maria在nico活动时代的舞见组合（和舞见银发娘和217舞蹈小分队）
+这个是正式唱片出道的组合 男的是音乐人
+

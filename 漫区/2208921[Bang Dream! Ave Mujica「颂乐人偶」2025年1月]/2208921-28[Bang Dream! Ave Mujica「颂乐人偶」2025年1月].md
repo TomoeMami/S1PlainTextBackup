@@ -3507,3 +3507,14 @@ Ave Mujica 3rd Single
 
        [https://weibo.com/6279793937/Q2G3AxjEx](https://weibo.com/6279793937/Q2G3AxjEx)
 
+
+*****
+
+####  卡蓮  
+##### 41233#       发表于 2025-9-2 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68345841&amp;ptid=2208921" target="_blank">genki 发表于 2025-8-31 04:34</a>
+
+以前没出过联动角色的官方通行证，说不定有同人自制的通行证</blockquote>
+彩6通行证根本卖不完，怪猎和迷宫饭没有，还是看版权方放权不放权
+
