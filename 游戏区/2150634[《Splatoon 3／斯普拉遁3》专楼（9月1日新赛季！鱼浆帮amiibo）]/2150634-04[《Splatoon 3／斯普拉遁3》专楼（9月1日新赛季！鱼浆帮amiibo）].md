@@ -138,3 +138,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SB91又赢了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5765#       发表于 2025-9-3 14:56
+
+研究所是不是不看社区反馈的，玩家喊了多久要削sb泡了
+
