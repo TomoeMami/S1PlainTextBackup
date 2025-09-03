@@ -8,3 +8,15 @@
 大概一个房间右上角有魔法阵群围着一个女性无法靠近。
 这两天的进度是大圣堂-古书院-古代遗迹
 
+
+*****
+
+####  alleriawr9  
+##### 492#       发表于 2025-9-3 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68361517&amp;ptid=2246453" target="_blank">索非亚 发表于 2025-9-3 09:46</a>
+有个地方想不起来再哪了来请教一下:
+大概一个房间右上角有魔法阵群围着一个女性无法靠近。
+这两天的进度是 ...</blockquote>
+古书院南边的麻鸡煲某房子地下
+

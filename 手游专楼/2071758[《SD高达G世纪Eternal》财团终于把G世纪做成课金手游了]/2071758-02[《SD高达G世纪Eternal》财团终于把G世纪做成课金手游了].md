@@ -3812,3 +3812,16 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 然后暴击还特别高，抄作业都很容易被暴击几下人就没了
 
+
+*****
+
+####  markava  
+##### 2608#       发表于 2025-9-3 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68357793&amp;ptid=2071758" target="_blank">无念 发表于 2025-9-2 16:09</a>
+
+凤凰主要是机师平均加点了，这代因为ex的输出公式就是越偏科越强，同样受害者还有海盗X1机师
+
+—— 来自 HO ...</blockquote>
+这俩都抽到了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
