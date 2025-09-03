@@ -1545,3 +1545,13 @@ toku：不，it's mygo（指炸团）
 
 只能说草台的方式也很有小团队特色<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凯尔薇斯  
+##### 150#       发表于 2025-9-3 08:56
+
+两个人的组合你都发律师函要跑路几周了还不跟另一个人通个气，人家知道了跟你爆了你还装nm呢还在那欸<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+都说是被内娱带的，实际上还没学会内娱恶人先告状+倒打一耙那套，还是老蜗最爱的装弱小+茶言茶语<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
