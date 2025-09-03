@@ -3341,3 +3341,11 @@ NEW个4星不至于吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">骑阶挑了半天也没有特别心水的，看看新活动是不是诺亚了，不行只能捏着鼻子点冠位拉二
 
+
+*****
+
+####  希望之花  
+##### 18065#       发表于 2025-9-3 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拉二当年拉梅盾大战高难本也是出过力的，该给一个冠位
+
