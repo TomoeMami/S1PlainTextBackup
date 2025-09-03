@@ -584,3 +584,17 @@ X要打肯定有方法，X没弱点上班族还是有的
 不是，狗和魂电也是所有画风都有一个</blockquote>
 魂电没有狗子的那种偏美式卡通的画风吧，预告里那个风格感觉和之前日系2d差距还挺大的
 
+
+*****
+
+####  DARK_HGCG  
+##### 491#       发表于 2025-9-3 23:05
+
+<img src="https://img.stage1st.com/forum/202509/03/230510fv9jrncecic6y9c9.jpg" referrerpolicy="no-referrer">
+
+<strong>20250904_000429.jpg</strong> (270.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-3 23:05 上传
+
