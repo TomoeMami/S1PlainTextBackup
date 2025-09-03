@@ -3179,3 +3179,60 @@ NEW个4星不至于吧</blockquote>
 5星就是欧  欧 羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不如楼友
 
+
+*****
+
+####  rooarr  
+##### 18052#       发表于 2025-9-2 15:07
+
+欧了不到一个月又吃了一井<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 18053#       发表于 2025-9-2 18:51
+
+每次开melt池都会去抽一下，又把石头霍霍完了也没出…确实是没有缘分吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  yyzcacxg  
+##### 18054#       发表于 2025-9-3 06:09
+
+两次EX戴冠战刷了7个120级，梦火圣杯都快见底了...低宝强冲120太累了，也就五宝的所长和玛修开了3个追加技能，提丰和月披都只开了2还没开5...
+
+<img src="https://img.stage1st.com/forum/202509/03/060749avjj022444k4z4k0.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20250903-055826-383.png</strong> (385.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-3 06:07 上传
+
+*****
+
+####  Jamaisvu  
+##### 18055#       发表于 2025-9-3 18:25
+
+更新之后出了个bug，狗粮本应该消耗20AP，但连战情况下显示的是10AP，虽然通关的体力消耗还是20：
+
+<img src="https://img.stage1st.com/forum/202509/03/182510x0t0zzwh0hdcwv1s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250903_182144_com.aniplex.fategrandorder.jpg</strong> (180.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-3 18:25 上传
+
+<img src="https://img.stage1st.com/forum/202509/03/182510dqk1q1lkk5ga3k10.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250903_182353_com.aniplex.fategrandorder.jpg</strong> (178.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-3 18:25 上传
+
