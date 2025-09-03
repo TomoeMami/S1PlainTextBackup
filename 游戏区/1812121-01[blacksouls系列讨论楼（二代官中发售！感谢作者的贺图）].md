@@ -184,3 +184,17 @@ steam版价格优势不大，还有正版受害者的风险，最大的魅力点
 
 但如果有自带的游戏完成度统计（包括不限于：武器饰品情报、敌人情报、名词术语情报、结局回收……），我还是上dlsite买吧
 
+
+*****
+
+####  ParadiseMartyr  
+##### 189#       发表于 2025-9-4 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68366523&amp;ptid=1812121" target="_blank">上杉打老虎 发表于 2025-9-4 00:01</a>
+问一下，这个游戏除了CG回收外，有自带的类似游戏完成度统计系统吗？
+
+现在买的话，steam版49元，阉割版，在 ...</blockquote>
+steam版并不正版受害者，cg甚至是无码的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
