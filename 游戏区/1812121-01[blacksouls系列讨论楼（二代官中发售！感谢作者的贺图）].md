@@ -148,3 +148,13 @@ steam版把内容基本砍完了，能去的地方就这些（可能是为了过
 
 销量这个就不太好说了，bs的社区很活跃，可能会有更高比例的玩家去评论
 
+
+*****
+
+####  红魔馆的糖  
+##### 186#       发表于 2025-9-3 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359924&amp;ptid=1812121" target="_blank">无攻不受鹿 发表于 2025-9-3 00:49</a>
+为什么这么多年了作者还不做3代？</blockquote>
+在做外传，快做完了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
