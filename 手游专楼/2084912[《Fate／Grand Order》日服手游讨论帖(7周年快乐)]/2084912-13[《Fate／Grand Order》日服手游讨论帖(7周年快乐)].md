@@ -3319,3 +3319,17 @@ NEW个4星不至于吧</blockquote>
 拐拉百级有啥收益吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">造福社会（
 
+
+*****
+
+####  exiaexa  
+##### 18063#       发表于 2025-9-3 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365853&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-9-3 21:10</a>
+
+拐拉百级有啥收益吗</blockquote>
+造福社会+1，我临时拉了个百级的斯卡蒂扔支援
+
+确实被薅爆了，但也就赚了10万多友情点，跟40块1e比起来完全微不足道
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
