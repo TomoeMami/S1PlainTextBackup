@@ -3275,3 +3275,26 @@ NEW个4星不至于吧</blockquote>
 
 虽然荚膜和骑无毛大概猫用都没有
 
+
+*****
+
+####  qixinno2  
+##### 18059#       发表于 2025-9-3 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365580&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-3 19:48</a>
+
+萌新就不一样了 都已经决定好了  就等全变蓝框了
+
+虽然荚膜和骑无毛大概猫用都没有</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕 
+
+*****
+
+####  alucardcz  
+##### 18060#       发表于 2025-9-3 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365740&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-3 20:37</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如漏油一根毛
+
