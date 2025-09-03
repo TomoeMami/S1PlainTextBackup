@@ -3236,3 +3236,24 @@ NEW个4星不至于吧</blockquote>
 由手机上传
 2025-9-3 18:25 上传
 
+
+*****
+
+####  alucardcz  
+##### 18056#       发表于 2025-9-3 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365478&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-9-3 19:23</a>
+
+完料，家里一个能拿出手的骑阶都没有现在打术阶敌人都是丑阶上班的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉个百级司马懿啊
+
+*****
+
+####  exiaexa  
+##### 18057#       发表于 2025-9-3 19:33
+
+2宝拉二搞定，不用头疼冠位阵容了
+
+后续就慢慢养号完事儿
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
