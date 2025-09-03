@@ -988,3 +988,14 @@ mihon自带的备份用不了咩？今天想把手机的书架移到平板里，
 
 在漫画的等级是不是还要绑定手机
 
+
+*****
+
+####  azbhg1  
+##### 86#         楼主| 发表于 2025-9-3 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365828&amp;ptid=2254551" target="_blank">hyhaha 发表于 2025-9-3 21:05</a>
+
+在漫画的等级是不是还要绑定手机</blockquote>
+算了，我二楼写清楚吧，不绑手机大概大部分日漫都不给看
+
