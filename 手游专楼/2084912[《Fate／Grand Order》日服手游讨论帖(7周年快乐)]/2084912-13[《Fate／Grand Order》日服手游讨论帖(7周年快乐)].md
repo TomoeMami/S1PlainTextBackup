@@ -3333,3 +3333,11 @@ NEW个4星不至于吧</blockquote>
 确实被薅爆了，但也就赚了10万多友情点，跟40块1e比起来完全微不足道
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zechins  
+##### 18064#       发表于 2025-9-3 22:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">骑阶挑了半天也没有特别心水的，看看新活动是不是诺亚了，不行只能捏着鼻子点冠位拉二
+
