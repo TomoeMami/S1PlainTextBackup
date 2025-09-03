@@ -3357,3 +3357,15 @@ NEW个4星不至于吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">突然发现一个问题 那就是我甚至没有拉二    该羡慕漏油了 欧 羡慕 欧
 
+
+*****
+
+####  khxooo  
+##### 18067#       发表于 2025-9-4 03:03
+
+ 本帖最后由 khxooo 于 2025-9-4 03:04 编辑 
+
+单抽兰斯洛特，可以吧。
+
+拉二、梅芙都拉到100级了，就看看对面是不是男性了。
+
