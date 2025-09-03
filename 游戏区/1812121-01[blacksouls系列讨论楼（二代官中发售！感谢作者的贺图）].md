@@ -168,3 +168,19 @@ steam版把内容基本砍完了，能去的地方就这些（可能是为了过
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  上杉打老虎  
+##### 188#       发表于 2025-9-4 00:01
+
+问一下，这个游戏除了CG回收外，有自带的类似<strong>游戏完成度统计</strong>系统吗？
+
+现在买的话，steam版49元，阉割版<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">，在发行商官网下载补丁后，应该、可能、大概能体验完整内容
+
+dlsite版1403/20 = 70元，100%原汁原味<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+steam版价格优势不大，还有正版受害者的风险，最大的魅力点在于成就系统
+
+但如果有自带的游戏完成度统计（包括不限于：武器饰品情报、敌人情报、名词术语情报、结局回收……），我还是上dlsite买吧
+
