@@ -30,3 +30,43 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 并非18</blockquote>
 有分R18版出来的
 
+
+*****
+
+####  squallx  
+##### 2380#       发表于 2025-9-3 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68366120&amp;ptid=1860817" target="_blank">madcow 发表于 2025-9-3 22:06</a>
+
+有分R18版出来的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那等图包了
+
+*****
+
+####  kyonkoism  
+##### 2381#       发表于 2025-9-3 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365754&amp;ptid=1860817" target="_blank">squallx 发表于 2025-9-3 20:43</a>
+
+推奨年齢区分：17+
+
+并非18</blockquote>
+玩R18版甚至过了序章就给你看一个角色的R18事件<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看着BA画风的角色被干的阿黑颜还别有一番味道
+
+*****
+
+####  kyonkoism  
+##### 2382#       发表于 2025-9-3 23:33
+
+今天试了下，合着事前登录5个角色只给你选一个继承，我还在暗爽我抽了3个SSR
+
+还好继承的白毛妹，有前排，整个游戏没有体力，没有素材本，东西都得靠挂远征，然后战斗只能配置好后纯看动画，还是进战斗就已经有结果的
+
+我在玩什么披着BA皮的R18版舰队collection么我草你的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以及如果有玩的朋友
+
+这是10连兑换码：GIRLSGARDEN
+
