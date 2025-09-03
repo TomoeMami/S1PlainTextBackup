@@ -130,3 +130,11 @@
 
 对战和回放的音效缺失问题就真不修呗
 
+
+*****
+
+####  秋月孝三  
+##### 5764#       发表于 2025-9-3 13:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SB91又赢了
+
