@@ -189,3 +189,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laosai13  
+##### 5770#       发表于 2025-9-4 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68364893&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2025-9-3 17:11</a>
+
+现在发现这游戏玩不了很久，15局后人就趴了，后面再强撑打就会状态很差，严重的情况晚上就得吃布洛芬
+
+而且 ...</blockquote>
+感觉处理信息多精力太集中了，打一段时间就累了，也可能是上班上的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
