@@ -3600,3 +3600,23 @@ Ave Mujica 3rd Single
 
 有点想法在里面<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41240#       发表于 2025-9-3 14:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/03/143000ef1y7okaavaoaa5b.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-09-03_14-29-15.jpg</strong> (200.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-3 14:30 上传
+
+       [https://x.com/bang_dream_info/status/1963082019359101048](https://x.com/bang_dream_info/status/1963082019359101048)
+
+       [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
