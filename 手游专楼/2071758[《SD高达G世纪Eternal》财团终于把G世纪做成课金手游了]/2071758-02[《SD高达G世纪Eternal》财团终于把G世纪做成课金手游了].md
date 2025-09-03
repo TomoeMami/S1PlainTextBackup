@@ -3833,3 +3833,17 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 普池200抽天鹅或者牛推荐换哪个呀？其他主流支援ur基本都有的
 
+
+*****
+
+####  blue321  
+##### 2610#       发表于 2025-9-3 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68363001&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-9-3 10:59</a>
+普池200抽天鹅或者牛推荐换哪个呀？其他主流支援ur基本都有的</blockquote>
+换牛吧？我天鹅用着手感好怪地图炮不好用、驾驶精神也不好…
+
+我也差一点普池天井能换了，图鉴差凤凰和妖刀纠结补哪个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
