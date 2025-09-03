@@ -158,3 +158,13 @@ steam版把内容基本砍完了，能去的地方就这些（可能是为了过
 为什么这么多年了作者还不做3代？</blockquote>
 在做外传，快做完了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 187#       发表于 2025-9-3 09:37
+
+感觉不到五万，但也非常多了
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
