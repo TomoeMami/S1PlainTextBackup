@@ -360,3 +360,13 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 居然有6关，把普通的打完已经恶心坏了，超级加倍感觉玩不了
 
+
+*****
+
+####  FrozenA  
+##### 47423#       发表于 2025-9-4 21:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">千里眼受损，早知道留一点石头给RBA了
+
+马上刷出来的两个羁绊10连得留好了
+
