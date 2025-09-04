@@ -3773,3 +3773,34 @@ in your blue eyes</blockquote>
 
 mrfz的联动剧情看了，感觉其实还是挺普通的，除了祥子和睦好一点外，其他三个角色都过于被一创“拖累”了，虽然肯定是比柿版好，但还是对于她们的三个关键词很难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asikies  
+##### 41248#       发表于 2025-9-5 00:39
+
+联动剧情没那味。
+
+*****
+
+####  ParadiseMartyr  
+##### 41249#       发表于 2025-9-5 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68372608&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-9-5 00:34</a>
+mrfz的联动剧情看了，感觉其实还是挺普通的，除了祥子和睦好一点外，其他三个角色都过于被一创“拖累”了， ...</blockquote>
+至少给了祥子和母亲告别的机会。算好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ParadiseMartyr  
+##### 41250#       发表于 2025-9-5 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68372635&amp;ptid=2208921" target="_blank">asikies 发表于 2025-9-5 00:39</a>
+联动剧情没那味。</blockquote>
+柿味儿么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
