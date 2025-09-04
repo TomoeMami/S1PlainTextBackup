@@ -999,3 +999,13 @@ mihon自带的备份用不了咩？今天想把手机的书架移到平板里，
 在漫画的等级是不是还要绑定手机</blockquote>
 算了，我二楼写清楚吧，不绑手机大概大部分日漫都不给看
 
+
+*****
+
+####  傘木希美  
+##### 87#       发表于 2025-9-4 09:05
+
+借问下现在有用mihon tachiyomi插件的嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看芙莉莲和金牌得主都没更新，电锯人有更新，那这种情况就是本体那边也没更新嘛
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
