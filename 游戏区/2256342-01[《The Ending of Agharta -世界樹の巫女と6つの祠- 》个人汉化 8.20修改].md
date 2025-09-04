@@ -1046,3 +1046,19 @@ mark~~~~~~~~~~~
 
 感谢汉化，顺路马克
 
+
+*****
+
+####  blueelf  
+##### 76#         楼主| 发表于 2025-9-4 08:49
+
+<img src="https://img.stage1st.com/forum/202509/04/084913lpr91h8i1haayb6h.jpg" referrerpolicy="no-referrer">
+
+<strong>718517F991D76C3A820D7A39CBE9BBFF.jpg</strong> (239.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 08:49 上传
+
+通了一个普通结局，剩下俩结局打完就开始修改剧情文本
+
