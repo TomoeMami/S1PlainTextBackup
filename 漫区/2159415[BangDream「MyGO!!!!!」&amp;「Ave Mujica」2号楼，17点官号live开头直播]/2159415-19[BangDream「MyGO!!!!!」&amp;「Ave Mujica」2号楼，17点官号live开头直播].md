@@ -16,3 +16,11 @@ woc！ccc娃娃！还有sumimi！？
 <img src="https://p.sda1.dev/26/2eec79b698c99b831a2518fa1aafe9d2/Image_1756994237132.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/26/ae94e9e94ade37248d0bb8fd0995a96b/Image_1756994143806.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silversor  
+##### 27247#       发表于 2025-9-4 22:59
+
+被go改变的一生，十几年买的塑料小人不超过5个，自从开始买棉花娃娃，算上没发货的已经买了20多个了... mana又得买了
+
