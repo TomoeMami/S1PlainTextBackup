@@ -1009,3 +1009,14 @@ mihon自带的备份用不了咩？今天想把手机的书架移到平板里，
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 88#         楼主| 发表于 2025-9-4 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367147&amp;ptid=2254551" target="_blank">傘木希美 发表于 2025-9-4 09:05</a>
+
+借问下现在有用mihon copymanga插件的嘛看芙莉莲和金牌得主都没更新，电锯人有更新，那这种情况就是本体那 ...</blockquote>
+你用什么插件就去插件对应的网站先看看到底更新没有呗
+
