@@ -3450,3 +3450,49 @@ NEW个4星不至于吧</blockquote>
 
 唉...好累...无限池和冠位轮着来...不想刷了...
 
+
+*****
+
+####  quanlix  
+##### 18076#       发表于 2025-9-4 11:16
+
+ 本帖最后由 quanlix 于 2025-9-4 11:18 编辑 
+
+现在骑戴冠最好就是水边+超巨大直接给尼莫做球就完了，一堆原始人菜的抠脚，火力面最全面的还是水铃鹿和水飞嫂，这次卡池还不带飞嫂玩，像补宝补不了
+
+*****
+
+####  exiaexa  
+##### 18077#       发表于 2025-9-4 11:42
+
+骑阶的问题是没有群30就算了，单体自充还一个个抠门得要死，你上莱尼丝又只有个单体buff
+
+比较好的情况是双太公望骑脸打掉两边+任意一个带群冲的单体输出
+
+实在不行在冠位盘子里给30初始np吧
+
+不过看枪冠位盘子那吊样，感觉希望不大
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 18078#       发表于 2025-9-4 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68368121&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-4 11:42</a>
+骑阶的问题是没有群30就算了，单体自充还一个个抠门得要死，你上莱尼丝又只有个单体buff
+
+比较好的情况是双 ...</blockquote>
+群30，梅芙凑合用
+
+*****
+
+####  exiaexa  
+##### 18079#       发表于 2025-9-4 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68370259&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2025-9-4 17:09</a>
+
+群30，梅芙凑合用</blockquote>
+那确实是凑合用，自己都启动不了自己
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

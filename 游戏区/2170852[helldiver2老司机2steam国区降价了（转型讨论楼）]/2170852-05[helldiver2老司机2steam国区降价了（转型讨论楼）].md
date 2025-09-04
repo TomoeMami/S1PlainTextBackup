@@ -517,3 +517,13 @@ n8压力没那么大，冲了。
 
 BUG也很磨人，降落卡山顶问题前面老哥已经说了；打一个爆破虫脉任务，呼叫便携式地狱火炸弹每次都不来，一队人在峡谷硬撑了十几分钟呼了几轮，才发现炸弹都是降落到地图另一边的巢穴，最后堪堪超时才完成任务。
 
+
+*****
+
+####  buchaladi  
+##### 7032#       发表于 2025-9-4 18:01
+
+[https://www.bilibili.com/video/B ... 33d87b91bd7cb6fd5e2](https://www.bilibili.com/video/BV1dkaAzAEsE?spm_id_from=333.788.player.player_end_recommend_autoplay&amp;vd_source=c7949f17df9d033d87b91bd7cb6fd5e2)
+
+发给你想玩新版本潜兵的朋友
+
