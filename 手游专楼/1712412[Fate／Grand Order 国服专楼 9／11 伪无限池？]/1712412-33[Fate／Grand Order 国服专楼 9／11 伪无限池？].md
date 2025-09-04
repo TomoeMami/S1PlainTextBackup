@@ -344,3 +344,11 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 吃了两三个金苹果终于刷够泪石了，可以自回体刷QP 了。
 
+
+*****
+
+####  khxooo  
+##### 47421#       发表于 2025-9-4 14:29
+
+叔叔又手搓复刻池子了，不过估计都是盯着梅莉或者RBA吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
