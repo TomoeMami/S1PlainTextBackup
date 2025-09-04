@@ -60,3 +60,11 @@
 
 白羽，我的白羽<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Graduation  
+##### 220#       发表于 2025-9-4 09:14
+
+key这难产死已经典到可以申请专利了，以后其他冻鳗出现难产死剧情都得向key交专利费<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

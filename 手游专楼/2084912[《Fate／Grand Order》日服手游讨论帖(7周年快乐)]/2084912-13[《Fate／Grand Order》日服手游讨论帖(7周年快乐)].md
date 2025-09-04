@@ -3369,3 +3369,47 @@ NEW个4星不至于吧</blockquote>
 
 拉二、梅芙都拉到100级了，就看看对面是不是男性了。
 
+
+*****
+
+####  希望之花  
+##### 18068#       发表于 2025-9-3 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拉二当年拉梅盾大战高难本也是出过力的，该给一个冠位
+
+*****
+
+####  alucardcz  
+##### 18069#       发表于 2025-9-3 23:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">突然发现一个问题 那就是我甚至没有拉二    该羡慕漏油了 欧 羡慕 欧
+
+*****
+
+####  khxooo  
+##### 18070#       发表于 2025-9-4 03:03
+
+ 本帖最后由 khxooo 于 2025-9-4 03:04 编辑 
+
+单抽兰斯洛特，可以吧。
+
+拉二、梅芙都拉到100级了，就看看对面是不是男性了。
+
+*****
+
+####  Jamaisvu  
+##### 18071#       发表于 2025-9-4 09:21
+
+<img src="https://img.stage1st.com/forum/202509/04/091847jtdz8v347d7utd3o.png" referrerpolicy="no-referrer">
+
+<strong>1756948686236.png</strong> (60.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-4 09:18 上传
+
+骑阶戴冠战改成9.9号了，少长草一天。
+
+活动一般都是周三开吧，提前一天不知道在规划什么...
+
