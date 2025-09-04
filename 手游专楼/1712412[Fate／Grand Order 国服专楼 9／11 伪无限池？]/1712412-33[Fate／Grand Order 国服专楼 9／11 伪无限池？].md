@@ -370,3 +370,16 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 马上刷出来的两个羁绊10连得留好了
 
+
+*****
+
+####  khxooo  
+##### 47424#       发表于 2025-9-4 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68371561&amp;ptid=1712412" target="_blank">FrozenA 发表于 2025-9-4 21:26</a>
+
+千里眼受损，早知道留一点石头给RBA了
+
+马上刷出来的两个羁绊10连得留好了</blockquote>
+当这个池子不存在，按照之前的计划攒石就是了。
+
