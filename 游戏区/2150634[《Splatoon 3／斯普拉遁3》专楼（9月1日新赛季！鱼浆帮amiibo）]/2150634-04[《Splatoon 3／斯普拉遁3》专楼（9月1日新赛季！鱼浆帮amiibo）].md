@@ -253,3 +253,11 @@ uu还有加速棒这种方便随身携带的，外出住宿要用的话很方便
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dopant  
+##### 5776#       发表于 2025-9-4 09:27
+
+这游戏现在适合新手入坑吗，没有玩过前作，学习成本大不大，现在玩会不会被乱杀毫无游戏体验<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
