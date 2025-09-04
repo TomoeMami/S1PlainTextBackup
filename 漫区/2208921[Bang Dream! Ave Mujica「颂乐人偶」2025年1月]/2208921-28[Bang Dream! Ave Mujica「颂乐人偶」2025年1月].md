@@ -3669,3 +3669,89 @@ Ave Mujica 3rd Single
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真出sumimi和CCC的娃娃啊
 
+
+*****
+
+####  堀内爱里衣  
+##### 41244#       发表于 2025-9-4 22:08
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/04/220818i8lzdedbxgicdcec.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-09-04_22-05-08.jpg</strong> (247.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 22:08 上传
+
+       [https://x.com/BDP_AveMujica/status/1963557655584055326](https://x.com/BDP_AveMujica/status/1963557655584055326)
+
+       [https://bmu.lnk.to/AveMujica_inyourblueeyestw](https://bmu.lnk.to/AveMujica_inyourblueeyestw)
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/04/220818l0qn6hz5u2ads3qz.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-04_22-06-00.jpg</strong> (145.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 22:08 上传
+
+       [https://t.bilibili.com/1108729907519684624](https://t.bilibili.com/1108729907519684624)
+
+       <strong>《明日方舟》EP - in your blue eyes</strong>
+
+      <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/04/220817ozacsz98vmm8s0hc.jpg" referrerpolicy="no-referrer">
+
+<strong>545829b034104b0d6ed9c40ea23bf35aae40332d.jpg</strong> (342.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 22:08 上传
+
+9月4日 in your blue eyes 正式上架
+
+作词：Diggy-MO’
+
+作曲：Diggy-MO’、松坂康司 (SUPA LOVE)
+
+编曲：Diggy-MO’、松坂康司 (SUPA LOVE)
+
+【专辑介绍】
+
+溺于苍白的月光，抑或猩红的梦境？
+
+醒来吧，她轻声呼唤，携着青蓝色的爱与叹息。
+
+苏醒的人偶拾起乐器，奏响重塑世界的乐声。
+
+直至人偶走下舞台，而戏剧仍在继续。
+
+【歌曲列表】
+
+in your blue eyes</blockquote>
+      [https://www.bilibili.com/video/BV13Ma2zjEMA](https://www.bilibili.com/video/BV13Ma2zjEMA)
+
+*****
+
+####  堀内爱里衣  
+##### 41245#       发表于 2025-9-4 22:11
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/04/221131yt4jtq78jrqj5yxn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-04_22-10-51.jpg</strong> (164.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 22:11 上传
+
+       [https://x.com/diggymo04/status/1963563187015446552](https://x.com/diggymo04/status/1963563187015446552)
+
+       [https://bmu.lnk.to/AveMujica_inyourblueeyes](https://bmu.lnk.to/AveMujica_inyourblueeyes)
+
