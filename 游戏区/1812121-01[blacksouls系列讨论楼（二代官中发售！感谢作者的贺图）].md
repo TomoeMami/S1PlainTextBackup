@@ -198,3 +198,18 @@ steam版并不正版受害者，cg甚至是无码的<img src="https://static.sta
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  检索者  
+##### 190#         楼主| 发表于 2025-9-4 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68366523&amp;ptid=1812121" target="_blank">上杉打老虎 发表于 2025-9-4 00:01</a>
+
+问一下，这个游戏除了CG回收外，有自带的类似游戏完成度统计系统吗？
+
+现在买的话，steam版49元，阉割版，在 ...</blockquote>
+steam版打了补丁之后和dl版内容是一样的（甚至因为作者打包失误多了两张废案CG），以及有去码和国区低价的优势，虽然去了码也只能看到高清的主角小灰机就是了
+
+完成度方面游戏本身除了一个回想房间之外没有别的统计，steam版追加的成就只对应了全结局和战胜各个boss，不过好在没啥太麻烦的成就，二周目就可打完全成就
+
