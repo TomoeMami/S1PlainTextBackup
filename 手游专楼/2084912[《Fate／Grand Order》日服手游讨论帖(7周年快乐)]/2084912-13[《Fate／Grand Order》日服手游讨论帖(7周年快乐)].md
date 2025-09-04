@@ -3413,3 +3413,40 @@ NEW个4星不至于吧</blockquote>
 
 活动一般都是周三开吧，提前一天不知道在规划什么...
 
+
+*****
+
+####  qixinno2  
+##### 18072#       发表于 2025-9-4 10:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">还是抽了这辣鸡暗锅 结果出了齐格鲁德 2025年了竟然还有这么菜的 感觉被四星飞哥爆杀啊
+
+*****
+
+####  element71  
+##### 18073#       发表于 2025-9-4 10:47
+
+现在还有FGO日服群吗？补上主线进度后一直没有找到组织
+
+*****
+
+####  Muteki_Link  
+##### 18074#       发表于 2025-9-4 10:49
+
+ 本帖最后由 Muteki_Link 于 2025-9-4 10:50 编辑 
+
+骑阶没啥好卡，打算上我的百级玛尔塔了，毫无战力因素甚至也造福不了社会纯厨力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我知道玛尔塔从战力考虑尺阶更适合，但extra位实在太抢手了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+（以后开杀阶不知道能不能看到冠位玛塔哈丽<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  壳壳牛  
+##### 18075#       发表于 2025-9-4 10:58
+
+下四除了狂我都拿不出优质打手...百级的都是厨力角色...
+
+唉...好累...无限池和冠位轮着来...不想刷了...
+
