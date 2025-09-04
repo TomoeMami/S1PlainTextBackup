@@ -1113,3 +1113,14 @@ mark~~~~~~~~~~~
 
 这个原文是什么？
 
+
+*****
+
+####  linyc0010  
+##### 81#       发表于 2025-9-5 04:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68372905&amp;ptid=2256342" target="_blank">redsouris 发表于 2025-9-5 03:21</a>
+
+这个原文是什么？</blockquote>
+从西边的入口进洞，植物=绿色地块，数好两个绿色地块之间的格数
+
