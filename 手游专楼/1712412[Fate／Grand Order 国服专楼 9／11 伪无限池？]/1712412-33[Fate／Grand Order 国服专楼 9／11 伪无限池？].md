@@ -352,3 +352,11 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 叔叔又手搓复刻池子了，不过估计都是盯着梅莉或者RBA吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47422#       发表于 2025-9-4 17:14
+
+居然有6关，把普通的打完已经恶心坏了，超级加倍感觉玩不了
+
