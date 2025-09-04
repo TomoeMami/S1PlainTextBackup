@@ -1079,3 +1079,20 @@ mark~~~~~~~~~~~
 
 这游戏刷的收益很低，前期非常缺钱……我玩的时候，大部分时候都感觉不到提升，有一种永远保持在贫困线以下的感觉……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 79#         楼主| 发表于 2025-9-4 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367670&amp;ptid=2256342" target="_blank">christiny 发表于 2025-9-4 10:30</a>
+
+这游戏刷的收益很低，前期非常缺钱……我玩的时候，大部分时候都感觉不到提升，有一种永远保持在贫困线以下 ...</blockquote>
+你玩的什么难度？起码hard难度下钱不缺
+
+这是个完全任务引导的游戏，任务不但给钱，过程中拿到的装备质量也普遍高于任务建议等级下的装备
+
+中前期钱除了买晶纹和住店之外没多少用途，最多也就跑酷去正阳买把好刀
+
+后期有些加魔力容量的商店防具可以买，几把魔法武器，还有就是2万一个的修炼卷轴了，那时候也不缺钱了
+

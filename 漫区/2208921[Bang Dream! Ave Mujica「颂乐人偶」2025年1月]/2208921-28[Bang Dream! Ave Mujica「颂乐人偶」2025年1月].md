@@ -3620,3 +3620,23 @@ Ave Mujica 3rd Single
 
        [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41241#       发表于 2025-9-4 11:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/04/111903ugxlln36e3a462d5.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-04_11-18-00.jpg</strong> (156.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-4 11:19 上传
+
+       [https://x.com/comic_growl/status/1963438092188356713](https://x.com/comic_growl/status/1963438092188356713)
+
+       [https://comic-growl.com/episodes/f81436e639fa3/](https://comic-growl.com/episodes/f81436e639fa3/)
+
