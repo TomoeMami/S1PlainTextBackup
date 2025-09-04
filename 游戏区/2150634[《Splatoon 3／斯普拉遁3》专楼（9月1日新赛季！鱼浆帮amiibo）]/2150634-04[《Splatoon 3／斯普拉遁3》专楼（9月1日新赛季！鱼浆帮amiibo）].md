@@ -261,3 +261,33 @@ uu还有加速棒这种方便随身携带的，外出住宿要用的话很方便
 
 这游戏现在适合新手入坑吗，没有玩过前作，学习成本大不大，现在玩会不会被乱杀毫无游戏体验<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5777#       发表于 2025-9-4 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367280&amp;ptid=2150634" target="_blank">dopant 发表于 2025-9-4 09:27</a>
+这游戏现在适合新手入坑吗，没有玩过前作，学习成本大不大，现在玩会不会被乱杀毫无游戏体验 ...</blockquote>
+不需要有前作经验。
+学习成本最大的门槛就是：习惯并学习体感操作。
+玩家群体主要分为：PvP玩家(对战)和PVE玩家(打工)
+对战在最基础的「占地对战」(根据涂墨面积定胜负)模式下只有比较短暂的新手保护期，在进阶的「蛮颓比赛」(抢地推塔投篮送鱼)就是按照你当前段位匹配基本上真的就是菜鸡互啄了。再上去还有天梯x比赛，后期再考虑)。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  dopant  
+##### 5778#       发表于 2025-9-4 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367345&amp;ptid=2150634" target="_blank">shirolin 发表于 2025-9-4 09:37</a>
+
+不需要有前作经验。
+
+学习成本最大的门槛就是：习惯并学习体感操作。
+
+玩家群体主要分为：PvP玩家(对战)和P ...</blockquote>
+我的意思就是现在进去能匹配到差不多水平的新手玩家一起玩吗，因为之前玩过几个运营比较久了的pvpv游戏，进去全是老手只有被吊打的份毫无游戏体验
+
