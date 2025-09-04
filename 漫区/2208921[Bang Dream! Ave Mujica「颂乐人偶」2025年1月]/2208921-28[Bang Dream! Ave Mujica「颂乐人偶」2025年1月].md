@@ -3765,3 +3765,11 @@ in your blue eyes</blockquote>
 
 卖狗又要有动画mv
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41247#       发表于 2025-9-5 00:34
+
+mrfz的联动剧情看了，感觉其实还是挺普通的，除了祥子和睦好一点外，其他三个角色都过于被一创“拖累”了，虽然肯定是比柿版好，但还是对于她们的三个关键词很难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
