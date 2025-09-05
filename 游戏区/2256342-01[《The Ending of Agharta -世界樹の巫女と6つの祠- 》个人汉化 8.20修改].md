@@ -1124,3 +1124,11 @@ mark~~~~~~~~~~~
 这个原文是什么？</blockquote>
 从西边的入口进洞，植物=绿色地块，数好两个绿色地块之间的格数
 
+
+*****
+
+####  Alice.Andvari  
+##### 82#       发表于 2025-9-5 21:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚开始玩，任务就卡住了。有个任务是找神秘洞穴最底层的6个角中间的遗物，这个是指底层那个6个钟乳石柱子的小房间吧，我找了一遍都没有，是bug吗
+
