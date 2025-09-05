@@ -3616,3 +3616,35 @@ NEW个4星不至于吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">强度好像还行，但是这个素足怼脸俺不中了
 
+
+*****
+
+####  qixinno2  
+##### 18093#       发表于 2025-9-5 20:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长是不是把技术力透支了 又是那套升天十字架
+
+*****
+
+####  exiaexa  
+##### 18094#       发表于 2025-9-5 20:30
+
+一个十连俩五星礼装，羁绊+60%，意满离
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18095#       发表于 2025-9-5 20:32
+
+兽科拐，水伊吹还在上分<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 18096#       发表于 2025-9-5 20:58
+
+战斗演出做的是真烂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
