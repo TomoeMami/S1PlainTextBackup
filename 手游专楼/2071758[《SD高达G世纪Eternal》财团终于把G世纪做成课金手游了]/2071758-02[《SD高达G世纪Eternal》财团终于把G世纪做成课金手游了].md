@@ -3885,3 +3885,13 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 这次强敌自动12关过不去了，数值膨胀这一块<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 2615#       发表于 2025-9-5 15:41
+
+数值还好，主要是这关卡在boss点的后排放了两个给boss加400%防御的经验怪恶心人，开自动的话不会去绕后打的
+
+非逼着玩家手操20层？
+

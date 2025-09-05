@@ -130,3 +130,13 @@ PV搬运
 
 想抽卤鸡泥一看还得等到9号
 
+
+*****
+
+####  alialex  
+##### 1649#       发表于 2025-9-5 15:39
+
+北欧组齐了，刚好lv1还差一抽的经验升到lv2，不过还有20多天有点纠结是停在lv1屯票抽明娜还是升到lv2了。
+
+501全员9/11，后面还差个夏莉的双up<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
