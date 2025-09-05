@@ -108,3 +108,11 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来鸡枞有没有对阅兵发表啥看法
 
+
+*****
+
+####  03e7  
+##### 2387#       发表于 2025-9-5 19:02
+
+这游戏怎么选项还对剧情有影响的
+
