@@ -3528,3 +3528,56 @@ NEW个4星不至于吧</blockquote>
 
 活动礼装的加成效果不知道只有活动的柱子有还是骑冠位战也有效果
 
+
+*****
+
+####  alucardcz  
+##### 18084#       发表于 2025-9-5 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68376704&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-5 18:45</a>
+
+没石头 跳过</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">然后3石出货是吧 先欧羡慕
+
+*****
+
+####  qixinno2  
+##### 18085#       发表于 2025-9-5 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68376746&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-5 18:57</a>
+
+然后3石出货是吧 先欧羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你在说你自己吧
+
+*****
+
+####  alucardcz  
+##### 18086#       发表于 2025-9-5 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68376763&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-5 19:00</a>
+
+你在说你自己吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新我之前已经allin兽妮光速寄了
+
+*****
+
+####  exiaexa  
+##### 18087#       发表于 2025-9-5 19:10
+
+ 本帖最后由 exiaexa 于 2025-9-5 19:13 编辑 
+
+笑死，怎么会有自己把自己爆的一干二净的卡，还是同一个职介
+
+哦看岔了这是个光炮
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便这卡面男娘含量是不是过于离谱了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18088#       发表于 2025-9-5 19:11
+
+二破我还以为是司马懿呢？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
