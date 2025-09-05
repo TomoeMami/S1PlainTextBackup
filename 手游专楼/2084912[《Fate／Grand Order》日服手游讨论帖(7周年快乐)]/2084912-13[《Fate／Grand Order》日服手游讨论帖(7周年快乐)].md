@@ -3581,3 +3581,38 @@ NEW个4星不至于吧</blockquote>
 
 二破我还以为是司马懿呢？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yyzcacxg  
+##### 18089#       发表于 2025-9-5 19:34
+
+90石捞了个美少年，前面两破都是画女说男吧...
+
+还有这活动开了也是如开，主线跑完无所事事了...
+
+*****
+
+####  jackyhuang  
+##### 18090#       发表于 2025-9-5 19:53
+
+原来之前绊加成能堆到300%的吗…
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  blue321  
+##### 18091#       发表于 2025-9-5 20:18
+
+果然30石是无法出货的，还想赌一把抽个拐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  zechins  
+##### 18092#       发表于 2025-9-5 20:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">强度好像还行，但是这个素足怼脸俺不中了
+
