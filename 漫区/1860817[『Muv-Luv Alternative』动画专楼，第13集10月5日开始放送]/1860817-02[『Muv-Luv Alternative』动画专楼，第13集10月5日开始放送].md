@@ -116,3 +116,15 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 这游戏怎么选项还对剧情有影响的
 
+
+*****
+
+####  squallx  
+##### 2388#       发表于 2025-9-5 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68376770&amp;ptid=1860817" target="_blank">03e7 发表于 2025-9-5 19:02</a>
+这游戏怎么选项还对剧情有影响的</blockquote>
+既然是抹布辣舞 主线轮回也不足为奇吧
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
