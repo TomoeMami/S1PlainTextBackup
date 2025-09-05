@@ -1495,3 +1495,14 @@ fantia好像绑不上国内的JCB，不过已经断了 再续也没意义了</bl
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  azbhg1  
+##### 157#       发表于 2025-9-5 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68373828&amp;ptid=2178442" target="_blank">黑上シグマ 发表于 2025-9-5 10:02</a>
+他也没写是针对信用卡付款啊，其他付款方法也是一样啊
+还说了在准备新的返利方法</blockquote>
+只有信用卡付款才会返点数吧，点数付款是不返的
+
