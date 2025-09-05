@@ -3877,3 +3877,11 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 我怎么余下了4个材料啊 这样凑不满6个了啊
 
+
+*****
+
+####  fireadol  
+##### 2614#       发表于 2025-9-5 15:33
+
+这次强敌自动12关过不去了，数值膨胀这一块<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
