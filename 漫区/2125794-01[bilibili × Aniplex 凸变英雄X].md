@@ -608,3 +608,16 @@ X要打肯定有方法，X没弱点上班族还是有的
 
 听说评价都很高？
 
+
+*****
+
+####  rushsong  
+##### 493#       发表于 2025-9-5 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367685&amp;ptid=2125794" target="_blank">行政裁定书 发表于 2025-9-4 10:33</a>
+
+最近比较忙，有五、六集没看了，
+
+听说评价都很高？</blockquote>
+？你说海外野榜吗？不过给国内工作室练手倒是看得出来，后面集数的作画水平比前面好多了
+
