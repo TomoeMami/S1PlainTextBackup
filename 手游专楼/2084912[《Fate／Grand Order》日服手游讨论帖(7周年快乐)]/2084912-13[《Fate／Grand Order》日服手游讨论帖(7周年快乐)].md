@@ -3496,3 +3496,35 @@ NEW个4星不至于吧</blockquote>
 那确实是凑合用，自己都启动不了自己
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 18080#       发表于 2025-9-5 11:27
+
+希望给个容易点的配置吧，最好就是个海无力那样的单体木桩，临时拉个骑龙娘或者金时完事了
+
+
+*****
+
+####  壳壳牛  
+##### 18081#       发表于 2025-9-5 18:36
+
+神经病...冠位前还塞柱子...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 18082#       发表于 2025-9-5 18:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头 跳过
+
+*****
+
+####  yangun22  
+##### 18083#       发表于 2025-9-5 18:49
+
+活动礼装的加成效果不知道只有活动的柱子有还是骑冠位战也有效果
+
