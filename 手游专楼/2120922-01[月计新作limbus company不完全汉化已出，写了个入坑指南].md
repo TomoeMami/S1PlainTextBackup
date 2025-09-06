@@ -44,3 +44,31 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 1172#       发表于 2025-9-6 20:46
+
+15层镜牢用黑兽呼破队带着所有星之恩惠打实在是太爽了，对面几万血的BOSS也不过是大号沙包。
+
+话说我一开始以为蛇罗的伤害已经够高了，虽然没拿什么穿刺饰品，二号位给马箱了。结果依然能打出超高伤害：
+
+<img src="https://img.stage1st.com/forum/202509/06/204532axoxdu76ius2k2o6.jpg" referrerpolicy="no-referrer">
+
+<strong>20250906204131_1.jpg</strong> (558.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 20:45 上传
+
+当然最逆天的是下面这位纯凑数才塞进来的，甚至没给他换过技能...：
+
+<img src="https://img.stage1st.com/forum/202509/06/204605yi5vznz5qb5b7sts.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_948.jpg</strong> (497.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 20:46 上传
+

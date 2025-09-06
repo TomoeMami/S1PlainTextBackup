@@ -3717,3 +3717,34 @@ NEW个4星不至于吧</blockquote>
 
 怎么你狗也再创世了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18105#       发表于 2025-9-6 18:05
+
+OK，新增了两个小怪的模组，冠位战九成九和强光炮一样要光炮+单体混合了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18106#       发表于 2025-9-6 18:08
+
+万一又和冠枪一样折磨人...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  乾理央  
+##### 18107#       发表于 2025-9-6 19:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">九成九是多目标了吧，这俩小孩是诺亚放出去一去不复返的乌鸦跟叼来橄榄枝的鸽子，再加上更新了新的怪物，估计骑冠位是3个以上目标的了
+
+*****
+
+####  CHCL3  
+##### 18108#       发表于 2025-9-6 20:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">美美出货
+

@@ -479,3 +479,11 @@ CSGO的初代NAVI队员小马哥markeloff那会戏称马克皮肤
 
 然后他们就送了 收完大分不想装了属于是
 
+
+*****
+
+####  贝恩德塔  
+##### 45#       发表于 2025-9-6 20:52
+
+skb发了个无声视频，怎么还有c9和小蜜蜂的事情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
