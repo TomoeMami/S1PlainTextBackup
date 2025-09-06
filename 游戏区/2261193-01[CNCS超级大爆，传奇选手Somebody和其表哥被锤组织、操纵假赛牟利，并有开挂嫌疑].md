@@ -487,3 +487,11 @@ CSGO的初代NAVI队员小马哥markeloff那会戏称马克皮肤
 
 skb发了个无声视频，怎么还有c9和小蜜蜂的事情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  11116等  
+##### 46#       发表于 2025-9-6 21:14
+
+【LOVEYY回忆伦敦Major中国线上预选剪网线事件，暗示大猫是剪网线元凶！冬瓜强难绷白警官在钢盔起把连狙0比15翻盘把中国主播队全打散了】 [https://www.bilibili.com/video/B ... d599fa4018e3bee6c0d](https://www.bilibili.com/video/BV1oYYTzUEiF/?share_source=copy_web&amp;vd_source=664b85b35107ad599fa4018e3bee6c0d)
+
