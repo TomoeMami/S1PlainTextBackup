@@ -443,3 +443,13 @@ De.jail
 
 2025-9-6 14:05 上传
 
+
+*****
+
+####  StrangerJ  
+##### 43#       发表于 2025-9-6 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68380017&amp;ptid=2261193" target="_blank">贝恩德塔 发表于 2025-9-6 14:06</a>
+不知真假，能扯到jackz和ztr等海外战队的职业选手那就不是小事了，直接把小蜜蜂g2液体等也扯进来了，不过感 ...</blockquote>
+欧洲线上赛吃也不是新闻了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
