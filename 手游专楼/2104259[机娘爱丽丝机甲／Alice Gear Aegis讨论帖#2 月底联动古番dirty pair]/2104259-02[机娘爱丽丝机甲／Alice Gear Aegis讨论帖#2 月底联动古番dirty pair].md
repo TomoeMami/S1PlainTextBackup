@@ -169,3 +169,16 @@ PV搬运
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1653#         楼主| 发表于 2025-9-6 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68379394&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-9-6 11:54</a>
+
+不是说后半段还有大的吗
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha</blockquote>
+以为明娜就是那个大啊，一开始直接出来了，但也不好说<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
