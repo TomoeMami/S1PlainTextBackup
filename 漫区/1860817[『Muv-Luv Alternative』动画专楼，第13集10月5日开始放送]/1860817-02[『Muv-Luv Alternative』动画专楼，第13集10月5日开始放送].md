@@ -178,3 +178,35 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 果然作为muvluv系列作品的主角怎么能没有战术机，就是这机设咋看的不像是吹雪那个年代的，反倒是返璞归真到初代战术机上了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄昏琥珀  
+##### 2392#       发表于 2025-9-6 20:54
+
+你们居然在这楼里讨论起这个来了啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  kyonkoism  
+##### 2393#       发表于 2025-9-6 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68381710&amp;ptid=1860817" target="_blank">黄昏琥珀 发表于 2025-9-6 20:54</a>
+
+你们居然在这楼里讨论起这个来了啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟也算是最新muvluv作品了，，，，
+
+*****
+
+####  黄昏琥珀  
+##### 2394#       发表于 2025-9-6 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68381812&amp;ptid=1860817" target="_blank">kyonkoism 发表于 2025-9-6 21:19</a>
+
+毕竟也算是最新muvluv作品了，，，，</blockquote>
+那么粉毛线和大小姐线有什么区别？
+
