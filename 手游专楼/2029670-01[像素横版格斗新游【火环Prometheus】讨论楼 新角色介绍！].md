@@ -509,3 +509,17 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 没救了吗，这种横版形式是真对胃口，会有其他厂商做这类游戏吗<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 50#         楼主| 发表于 2025-9-6 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68378636&amp;ptid=2029670" target="_blank">HEERO.W 发表于 2025-9-6 08:20</a>
+火环本来就有过2次公开测试了，这次是付费测很正常。
+
+就算这次不付费也没救的 ...</blockquote>
+主要是没有那种优化方案，说明大概率没货赚一波跑路
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
