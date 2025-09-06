@@ -501,3 +501,11 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 就算这次不付费也没救的
 
+
+*****
+
+####  雷攻姛人  
+##### 49#       发表于 2025-9-6 08:33
+
+没救了吗，这种横版形式是真对胃口，会有其他厂商做这类游戏吗<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
