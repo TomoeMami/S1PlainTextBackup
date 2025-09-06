@@ -182,3 +182,24 @@ konami操作了？
 
 七字母果然呆在一起久了性格都磨成一样的了
 
+
+*****
+
+####  holofan  
+##### 11180#       发表于 2025-9-6 18:27
+
+还有你不认识的holo曲子吗，regloss的全都懂
+
+*****
+
+####  holofan  
+##### 11181#       发表于 2025-9-6 21:50
+
+<img src="https://img.stage1st.com/forum/202509/06/215032u6s6w5185waowzw6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 21:50 上传
+
