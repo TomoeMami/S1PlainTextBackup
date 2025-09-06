@@ -3683,3 +3683,37 @@ NEW个4星不至于吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">出了个拿破仑…我服了
 
+
+*****
+
+####  希望之花  
+##### 18101#       发表于 2025-9-5 23:56
+
+宝具动画无法吐槽，不抽了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 18102#       发表于 2025-9-6 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68377518&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-5 21:58</a>
+
+我查了查，梅芙极其缺魔放，而骑阶大多数提供的都是宝威+攻击力，能提供大量魔放的只有君士坦11，而君士坦1 ...</blockquote>
+红卡缺魔放的话，衣服可以用金色庆典，配合冠位树就是90红魔放。
+
+*****
+
+####  6030sylar  
+##### 18103#       发表于 2025-9-6 12:11
+
+人马一体超级赤兔吕布呢（错乱）
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  里村紅葉  
+##### 18104#       发表于 2025-9-6 17:44
+
+怎么你狗也再创世了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
