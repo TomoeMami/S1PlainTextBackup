@@ -495,3 +495,11 @@ skb发了个无声视频，怎么还有c9和小蜜蜂的事情<img src="https://
 
 【LOVEYY回忆伦敦Major中国线上预选剪网线事件，暗示大猫是剪网线元凶！冬瓜强难绷白警官在钢盔起把连狙0比15翻盘把中国主播队全打散了】 [https://www.bilibili.com/video/B ... d599fa4018e3bee6c0d](https://www.bilibili.com/video/BV1oYYTzUEiF/?share_source=copy_web&amp;vd_source=664b85b35107ad599fa4018e3bee6c0d)
 
+
+*****
+
+####  f0rest  
+##### 47#       发表于 2025-9-6 23:32
+
+天禄那时候反正都是爽吃为啥后面要找印尼人啊？还搞来peacemaker做教练，真的想出成绩？？
+
