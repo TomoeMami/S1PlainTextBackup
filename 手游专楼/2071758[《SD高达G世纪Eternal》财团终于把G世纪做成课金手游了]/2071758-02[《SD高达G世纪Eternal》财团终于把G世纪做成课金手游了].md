@@ -3943,3 +3943,15 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 这次杂兵配置也恶心，水温上来了
 
+
+*****
+
+####  jackyhuang  
+##### 2621#       发表于 2025-9-6 16:44
+
+<img src="https://p.sda1.dev/26/374d269bc0578b4e6052bb1c423ea96e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/d5e5b932f668529afaf6a8afe83f3545/image.jpg" referrerpolicy="no-referrer">
+这个13万分任务感觉被官方钓鱼了，以后水温怕不是要升高<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
