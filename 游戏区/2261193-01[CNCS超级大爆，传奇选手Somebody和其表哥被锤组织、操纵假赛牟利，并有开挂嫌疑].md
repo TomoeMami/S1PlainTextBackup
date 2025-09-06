@@ -427,3 +427,19 @@ De.jail
 
 没劲啊，不知道是真被举报了还是装的想要收名单上的人的米，这才爆出一个老ra就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有点假了
 
+
+*****
+
+####  贝恩德塔  
+##### 42#       发表于 2025-9-6 14:06
+
+不知真假，能扯到jackz和ztr等海外战队的职业选手那就不是小事了，直接把小蜜蜂g2液体等也扯进来了，不过感觉就算为真也没有下文，hltv也没胆子爆料的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/06/140547dwqzdp8etqjpqj4r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>14aa9bd055ce64b93c8ba124058570e7.jpeg</strong> (90.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 14:05 上传
+
