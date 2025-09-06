@@ -128,3 +128,53 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 —— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  03e7  
+##### 2389#       发表于 2025-9-5 19:02
+
+这游戏怎么选项还对剧情有影响的
+
+*****
+
+####  squallx  
+##### 2390#       发表于 2025-9-5 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68376770&amp;ptid=1860817" target="_blank">03e7 发表于 2025-9-5 19:02</a>
+这游戏怎么选项还对剧情有影响的</blockquote>
+既然是抹布辣舞 主线轮回也不足为奇吧
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kyonkoism  
+##### 2391#       发表于 2025-9-6 20:35
+
+<img src="https://img.stage1st.com/forum/202509/06/203414t40s0g50394gpzgn.png" referrerpolicy="no-referrer">
+
+<strong>XVYYYRGJWA@9]CW7HNGKS(A.png</strong> (749.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 20:34 上传
+
+<img src="https://img.stage1st.com/forum/202509/06/203415esjmr65mtstk4ytv.png" referrerpolicy="no-referrer">
+
+<strong>MXQ1TJAM@H~BLABO5`MEL4D.png</strong> (175.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 20:34 上传
+
+<img src="https://img.stage1st.com/forum/202509/06/203435mpmvvbpaxcgxmz9o.png" referrerpolicy="no-referrer">
+
+<strong>96OQ6BY1M7[Q(KSU5P19VGB.png</strong> (189.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-6 20:34 上传
+
+果然作为muvluv系列作品的主角怎么能没有战术机，就是这机设咋看的不像是吹雪那个年代的，反倒是返璞归真到初代战术机上了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
