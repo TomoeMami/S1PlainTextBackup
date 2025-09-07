@@ -3952,3 +3952,45 @@ good，水阿比你拿好这个梦火，然后上班吧
 
 你们卡吗？我从刚才开始都进不了了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 18130#       发表于 2025-9-7 20:48
+
+不卡吧，至少我这边网络没什么问题
+
+倒是这个大方舟把战斗卡得掉帧
+
+*****
+
+####  khxooo  
+##### 18131#       发表于 2025-9-7 20:51
+
+可以进了，估计我这里的网络波动了。
+
+*****
+
+####  jackyhuang  
+##### 18132#       发表于 2025-9-7 21:05
+
+按现在速度12点前就打完了吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 18133#       发表于 2025-9-7 21:31
+
+可以可以<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+MuMu-20250907-212930-247.jpg
+(473.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-7 21:31 上传
+
+<img src="https://img.stage1st.com/forum/202509/07/213128lzo733u437mw54n7.jpg" referrerpolicy="no-referrer">
+

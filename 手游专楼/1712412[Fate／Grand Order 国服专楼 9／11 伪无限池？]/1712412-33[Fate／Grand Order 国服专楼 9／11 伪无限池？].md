@@ -445,3 +445,14 @@ bb看白野的表情真不错
 
 不打是不是就少几个茶壶跟苹果
 
+
+*****
+
+####  khxooo  
+##### 47432#       发表于 2025-9-7 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68384978&amp;ptid=1712412" target="_blank">FrozenA 发表于 2025-9-7 17:24</a>
+
+不打是不是就少几个茶壶跟苹果</blockquote>
+一个金苹果+100方块而已，不要也罢<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
