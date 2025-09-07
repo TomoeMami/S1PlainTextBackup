@@ -3832,3 +3832,55 @@ good，水阿比你拿好这个梦火，然后上班吧
 
 雨神解除战续加30减防，无敌了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 18118#       发表于 2025-9-7 17:43
+
+<img src="https://img.stage1st.com/forum/202509/07/174306aihohoxhs4x8o8wi.jpg" referrerpolicy="no-referrer">
+
+<strong>1000023612.jpg</strong> (318.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-7 17:43 上传
+
+以为又歪了，没想到双黄了
+
+*****
+
+####  Jamaisvu  
+##### 18119#       发表于 2025-9-7 17:56
+
+<img src="https://img.stage1st.com/forum/202509/07/175509sz09qfefsz2n9ia1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250907_175412_com.aniplex.fategrandorder.jpg</strong> (343.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-7 17:55 上传
+
+三宝尼莫（没打强化本），辅助杀生院和奥伯龙，带极地服，能直接把boss秒掉，可以爽刷了。
+
+（昨天养了半天百级诺亚，最后发现一发宝具打不死，尴尬...只能备战戴冠战了...）
+
+*****
+
+####  khxooo  
+##### 18120#       发表于 2025-9-7 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68385003&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-9-7 17:30</a>
+
+雨神解除战续加30减防，无敌了</blockquote>
+是20加攻+50降防，我是用雨神、莉莉丝、奥伯龙+武则天，可惜莉莉丝只有1宝，要带黑杯就是了。
+
+
+*****
+
+####  yyzcacxg  
+##### 18121#       发表于 2025-9-7 18:09
+
+雨神羁绊满了，用的水克姐、诺亚、莉莉丝，缺点是要看俩宝具...
+
