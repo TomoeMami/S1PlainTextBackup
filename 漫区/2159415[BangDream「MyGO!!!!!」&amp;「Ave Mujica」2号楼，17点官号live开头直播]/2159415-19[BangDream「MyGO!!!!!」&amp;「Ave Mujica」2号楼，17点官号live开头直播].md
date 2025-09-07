@@ -174,3 +174,14 @@ m团这是完全被抛弃了吧。
 
        [https://t.bilibili.com/1109915758750597137](https://t.bilibili.com/1109915758750597137)
 
+
+*****
+
+####  cxj649  
+##### 27260#       发表于 2025-9-8 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68386023&amp;ptid=2159415" target="_blank">バーチャルS1er 发表于 2025-9-7 21:36</a>
+
+这人设还以为是哪里的管人呢</blockquote>
+就是管人啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
