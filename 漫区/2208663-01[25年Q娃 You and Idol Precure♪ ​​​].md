@@ -37,3 +37,15 @@
 
 估计ジョギ是凯特桑在练习生时代的队友，后来因为各种原因决裂了，最终话凯特桑化身夜礼服假面英雄救美（不是）
 
+
+*****
+
+####  cmyk1234  
+##### 1278#       发表于 2025-9-7 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68383175&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-9-7 09:26</a>
+这集意外的还挺好看……今年真的只有独角兽和山田由香这俩人的脚本比较有味道
+
+估计ジョギ是凯特桑在练习生 ...</blockquote>
+ジョギ也可能在现役偶像期间发掘了凯特吧（豪兽者的具岛玲）？
+
