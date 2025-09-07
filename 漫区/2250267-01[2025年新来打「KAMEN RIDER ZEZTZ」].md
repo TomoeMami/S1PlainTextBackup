@@ -60,3 +60,16 @@
 
 后面会怎么样先不管，总之这个第一集爽到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鲁邦三世1  
+##### 193#       发表于 2025-9-7 10:19
+
+高桥要是骑士写不下去了就再回来写一部鲁邦三世tv吧
+不需要多强的主线，猛猛写单元剧，五个主角人设也都已经固定了
+
+zzz开头bgm也挺有鲁邦风格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
