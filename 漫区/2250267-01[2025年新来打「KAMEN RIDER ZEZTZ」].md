@@ -242,3 +242,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 —— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  BQlin  
+##### 213#       发表于 2025-9-7 12:51
+
+打斗皮好糙，平时大都是只有头盔糙，这次连身体都没法看了，全是贴纸
+
