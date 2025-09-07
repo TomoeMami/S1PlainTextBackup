@@ -73,3 +73,29 @@ zzz开头bgm也挺有鲁邦风格
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  上坂莲华  
+##### 194#       发表于 2025-9-7 10:30
+
+【评分9.5！如此美妙的开局！】<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄昏琥珀  
+##### 195#       发表于 2025-9-7 10:32
+
+东映又不会让一个人写全一年的剧本
+
+
+*****
+
+####  pokemon最爱  
+##### 196#       发表于 2025-9-7 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68383420&amp;ptid=2250267" target="_blank">黄昏琥珀 发表于 2025-9-7 10:32</a>
+
+东映又不会让一个人写全一年的剧本</blockquote>
+EA、Build、极狐：那我们走？
+
