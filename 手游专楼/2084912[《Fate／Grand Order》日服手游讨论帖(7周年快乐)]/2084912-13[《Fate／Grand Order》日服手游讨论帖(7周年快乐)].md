@@ -3884,3 +3884,42 @@ good，水阿比你拿好这个梦火，然后上班吧
 
 雨神羁绊满了，用的水克姐、诺亚、莉莉丝，缺点是要看俩宝具...
 
+
+*****
+
+####  qixinno2  
+##### 18122#       发表于 2025-9-7 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我选择不刷好友直接用所长踢死
+
+*****
+
+####  森兰丸  
+##### 18123#       发表于 2025-9-7 18:34
+
+这柱子还掉5星狗粮啊....那不得不刷爆了
+
+而且比目前为止所有的冠位战都更容易1T打完<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18124#       发表于 2025-9-7 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68385246&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-9-7 18:34</a>
+
+这柱子还掉5星狗粮啊....那不得不刷爆了
+
+而且比目前为止所有的冠位战都更容易1T打完 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">豹皇！又豹
+
+*****
+
+####  森兰丸  
+##### 18125#       发表于 2025-9-7 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68385251&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-7 18:35</a>
+
+豹皇！又豹</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">才刚刚每日免费单抽出5星的欧萌哪好意思说这种话!
+
