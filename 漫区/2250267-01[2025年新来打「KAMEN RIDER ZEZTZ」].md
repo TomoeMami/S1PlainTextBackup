@@ -52,3 +52,11 @@
 
 还行，上堀内还是能整活的，搞得有模有样的
 
+
+*****
+
+####  pokemon最爱  
+##### 192#       发表于 2025-9-7 10:16
+
+后面会怎么样先不管，总之这个第一集爽到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
