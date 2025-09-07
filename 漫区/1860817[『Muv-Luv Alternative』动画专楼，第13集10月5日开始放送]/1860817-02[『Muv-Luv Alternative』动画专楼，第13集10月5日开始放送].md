@@ -210,3 +210,32 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 毕竟也算是最新muvluv作品了，，，，</blockquote>
 那么粉毛线和大小姐线有什么区别？
 
+
+*****
+
+####  kyonkoism  
+##### 2395#       发表于 2025-9-6 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68381832&amp;ptid=1860817" target="_blank">黄昏琥珀 发表于 2025-9-6 21:23</a>
+
+那么粉毛线和大小姐线有什么区别？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在才玩到第一章快结束，不如说我都不知道竟然还有分线路，虽然我选了黄毛当队长
+
+感觉现在还是共通部分吧？黄毛虽然是队长，但是主角重点培养的还是粉毛，而且这个世界没有beta，战术机也是拿来挖矿洞顺带打打矿洞里的小怪的，大的估计没那么快来
+
+*****
+
+####  若菜  
+##### 2396#       发表于 2025-9-7 02:13
+
+爬洞遇到过非法开采组织，开的是不像战术机的二足机器人，可能后面还真会有会死人的pvp剧情，不过目前还都是学园过家家。
+
+*****
+
+####  iuiuk2  
+##### 2397#       发表于 2025-9-7 17:19
+
+这手游质量竟然还行，有的部分甚至想让那俩借鉴对象学学
+
+就是这好感剧情每次结尾一转攻势的时候，是真的很难绷得住<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

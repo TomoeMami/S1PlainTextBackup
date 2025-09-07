@@ -429,3 +429,11 @@ bb看白野的表情真不错
 这次算复刻？</blockquote>
 是的，和之前的一样，大象和威廉是新增的。后面的也是会新增。特别是2.5系列，简直是赤石般的体验<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47430#       发表于 2025-9-7 17:23
+
+我都不记得上次打了没，可能上次就没打
+
