@@ -325,3 +325,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦境那股子莫名其妙的味挺浓的，感觉拍得像赛文X....
 
+
+*****
+
+####  鬼谷ask  
+##### 222#       发表于 2025-9-7 22:11
+
+只能说还凑合吧，倒不至于太差观感，打起来也还行，虽然皮套质感确实是问题，帮助他人会受厄运这点我觉得作为一个长篇的idea不是太好处理，看看什么时候会被解决。
+
