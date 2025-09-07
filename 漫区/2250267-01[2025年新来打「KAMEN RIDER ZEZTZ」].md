@@ -197,3 +197,14 @@ EA、Build、极狐：那我们走？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃特效的片子越往后越大概率出现池沼CG
 
+
+*****
+
+####  黄昏琥珀  
+##### 208#       发表于 2025-9-7 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68383435&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2025-9-7 10:36</a>
+
+EA、Build、极狐：那我们走？</blockquote>
+这些都是一人执笔啊，那不崩坏预定了么
+
