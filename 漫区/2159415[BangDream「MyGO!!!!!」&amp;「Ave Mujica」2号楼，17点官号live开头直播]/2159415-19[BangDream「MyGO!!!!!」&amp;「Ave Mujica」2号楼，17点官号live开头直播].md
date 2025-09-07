@@ -50,3 +50,45 @@ woc！ccc娃娃！还有sumimi！？
 
 梦团算第三世代了吧
 
+
+*****
+
+####  堀内爱里衣  
+##### 27250#       发表于 2025-9-7 20:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/07/204222vnrthukh5nrtfsgt.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-09-07_20-41-35.jpg</strong> (500 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-7 20:42 上传
+
+       [https://x.com/bang_dream_info/status/1964657550223352229](https://x.com/bang_dream_info/status/1964657550223352229)
+
+       [https://anime.bang-dream.com/yumemita/](https://anime.bang-dream.com/yumemita/)
+
+*****
+
+####  仟音一心  
+##### 27251#       发表于 2025-9-7 20:46
+
+『BanG Dream!』第十代少女乐队 梦限大Mewtype TV动画化「YUME∞MITA」2026年开播
+动画制作：NICHICALINE
+音乐制作：PHYZ 
+公式照全员公开
+<img src="https://p.sda1.dev/26/7dd99725c728f1920de55c544d1228e3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/75acdc7e43c812ded88800a470cffe34/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/e7060d882594801439b76220c12d8091/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/d3040532cbd6e5ffe1dd4f159f95d699/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/ac68b96e89df36987344859d83bd4993/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/26/3ea752c893b90bf0655c3ff6ae445c8e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/83331acf26223654ad432b0747a933c2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/56f1baf898cb5d00be979e1417426635/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/2c8c99c37d6cbe992875efa802a4b0e9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/903f87326ca5e43cea1b2cfa06d67971/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/aa443b9eaaab37c55efc463dcadd6882/image.jpg" referrerpolicy="no-referrer">
+
