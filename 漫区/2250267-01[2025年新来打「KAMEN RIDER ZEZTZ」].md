@@ -365,3 +365,13 @@ YY文学，已经想到男主唯心呐喊大爆发
 
 勾勒一身大棉衣一样
 
+
+*****
+
+####  暗黑能乐  
+##### 224#       发表于 2025-9-8 01:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">握草，我感觉第一集非常棒啊，伏笔也很多，而且和极狐不一样，我感觉主线能写的很饱满，这次真的有强烈的感觉
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
