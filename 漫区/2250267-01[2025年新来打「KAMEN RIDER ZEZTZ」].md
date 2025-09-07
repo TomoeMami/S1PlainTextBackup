@@ -281,3 +281,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 还有这种梦中带点我寻思的能力，不用想后期1000%会崩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 217#       发表于 2025-9-7 14:15
+
+更期待下周上堀内op怎么玩，感觉泽野这歌挺难剪的
+
