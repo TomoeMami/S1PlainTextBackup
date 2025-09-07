@@ -3748,3 +3748,37 @@ OK，新增了两个小怪的模组，冠位战九成九和强光炮一样要光
 
 <img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">美美出货
 
+
+*****
+
+####  绿坝娘  
+##### 18109#       发表于 2025-9-6 23:03
+
+这卡池我连歪3个狂还没出诺亚<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2413, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18110#       发表于 2025-9-7 04:38
+
+ 本帖最后由 岸浪白野 于 2025-9-7 04:46 编辑 
+
+还行，本来纠结要不要抽点礼装刷绊想了想还是抽了，结果30抽1发诺亚2宝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/086c61d5b00156f6a3124eae0ab41d69/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18111#       发表于 2025-9-7 07:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友还在欧 羡慕了
+
+*****
+
+####  千叶铁矢  
+##### 18112#       发表于 2025-9-7 16:49
+
+每日一抽有说法啊，我抽到第二个五星了，抽了个怖军，虽然没什么用
+
