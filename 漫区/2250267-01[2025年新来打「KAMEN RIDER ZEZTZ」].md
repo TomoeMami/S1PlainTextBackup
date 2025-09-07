@@ -224,3 +224,21 @@ EA、Build、极狐：那我们走？</blockquote>
 
 感觉可以追到30来集进结局篇前弃
 
+
+*****
+
+####  黑上シグマ  
+##### 211#       发表于 2025-9-7 12:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼推，果然不止我一个人听成“心の味噌汁”
+
+
+*****
+
+####  白玫瑰之夜  
+##### 212#       发表于 2025-9-7 12:22
+
+第一集感觉就很公式化流程甚至有点莫名其妙，反正对现在假面骑士的剧情已经不抱期望了，别想隔壁一样无聊到不想看就行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
