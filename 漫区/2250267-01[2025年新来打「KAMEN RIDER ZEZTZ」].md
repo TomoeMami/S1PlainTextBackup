@@ -317,3 +317,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 说真的我是搞不懂日本人是怎么想的，虽然我作为骑士老观众看着感觉还行，但是就这样真的能有什么全球市场可言吗
 
+
+*****
+
+####  丹德里恩  
+##### 221#       发表于 2025-9-7 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦境那股子莫名其妙的味挺浓的，感觉拍得像赛文X....
+
