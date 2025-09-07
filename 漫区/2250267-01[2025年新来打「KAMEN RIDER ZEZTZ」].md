@@ -289,3 +289,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 更期待下周上堀内op怎么玩，感觉泽野这歌挺难剪的
 
+
+*****
+
+####  AP0rt_  
+##### 218#       发表于 2025-9-7 14:49
+
+别的不说特效拉满了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
