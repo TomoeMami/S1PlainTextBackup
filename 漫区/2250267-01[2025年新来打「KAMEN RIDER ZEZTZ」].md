@@ -148,3 +148,13 @@ EA、Build、极狐：那我们走？
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  晴岚  
+##### 203#       发表于 2025-9-7 11:12
+
+男主丑，演技不好看，打戏还行。整体一般，有点尬……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
