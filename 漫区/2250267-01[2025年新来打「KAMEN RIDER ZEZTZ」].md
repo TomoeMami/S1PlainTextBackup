@@ -271,3 +271,13 @@ EA、Build、极狐：那我们走？</blockquote>
 
 令和的骑士战队奥特曼第一集，一直都是这个问题，没解决过。
 
+
+*****
+
+####  scorbian  
+##### 216#       发表于 2025-9-7 13:55
+
+怎么感觉剪辑好多地方有点乱&amp;生硬<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">虽然能看出制作上很想体现出噩梦的混沌感但是呈现出来的效果实在有点难评
+
+还有这种梦中带点我寻思的能力，不用想后期1000%会崩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
