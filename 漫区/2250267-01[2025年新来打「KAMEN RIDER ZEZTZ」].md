@@ -250,3 +250,11 @@ EA、Build、极狐：那我们走？</blockquote>
 
 打斗皮好糙，平时大都是只有头盔糙，这次连身体都没法看了，全是贴纸
 
+
+*****
+
+####  HATENA  
+##### 214#       发表于 2025-9-7 13:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好无聊啊，观感比加布第一集差多了，明明都用梦当主题夏天也没过去，强度再上一点直球致敬点恐怖电影不好吗
+
