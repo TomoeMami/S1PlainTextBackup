@@ -417,3 +417,15 @@ UP和歪的期望比是4:1，现数下来都能发现歪的数量高了
 
 bb看白野的表情真不错
 
+
+*****
+
+####  khxooo  
+##### 47429#       发表于 2025-9-7 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68382434&amp;ptid=1712412" target="_blank">hyhaha 发表于 2025-9-7 00:10</a>
+话说这个回忆关是不是之前打过啊
+
+这次算复刻？</blockquote>
+是的，和之前的一样，大象和威廉是新增的。后面的也是会新增。特别是2.5系列，简直是赤石般的体验<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
