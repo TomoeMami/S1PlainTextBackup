@@ -395,3 +395,15 @@ YY文学，已经想到男主唯心呐喊大爆发
 
 第一集拍的不错，但是剧情没啥亮点
 
+
+*****
+
+####  damian-wade  
+##### 227#       发表于 2025-9-8 11:05
+
+主角这个夸张的倒霉设定，按以往的经验我想着大概率让演员用非常浮夸的演技来表演，结果拍出来还是比较自然收敛的，这点我个人还满意
+黑夜中展示放光条纹的皮套视觉效果壮实得有点过，确实更像美式超英而不是日式来打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+妹妹太棒了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
