@@ -564,3 +564,13 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202509/08/231146dpp2n9f9pe2un29g.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 242#       发表于 2025-9-8 23:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都不用看cast表啊，早就公布了啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+

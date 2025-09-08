@@ -4356,3 +4356,35 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年戴冠战用了几次fga后就抽卡不出货了，建议不要用
 
+
+*****
+
+####  khxooo  
+##### 18167#       发表于 2025-9-8 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68391932&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-8 22:21</a>
+
+坐等骑呆来个超绝强化本直接飞升骑阶第一单体打手</blockquote>
+然后是梅芙的充能技能本<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 18168#       发表于 2025-9-8 23:18
+
+已百级拉二<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 18169#       发表于 2025-9-8 23:22
+
+好几个阶都没啥想冠的<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少女人形  
+##### 18170#       发表于 2025-9-8 23:27
+
+啥时候再发点苹果
+
