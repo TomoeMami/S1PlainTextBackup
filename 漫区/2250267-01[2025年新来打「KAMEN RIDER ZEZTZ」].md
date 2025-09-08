@@ -450,3 +450,17 @@ YY文学，已经想到男主唯心呐喊大爆发
 结果第一话展示的男主过于离谱 ...</blockquote>
 那好像不太能解释男主心脏跳动归零又因为装了腰带又开始起搏这件事
 
+
+*****
+
+####  黑暗之眼  
+##### 232#       发表于 2025-9-8 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68388752&amp;ptid=2250267" target="_blank">damian-wade 发表于 2025-9-8 11:54</a>
+皮套演员好像是新人吧，又不是老二叔，发福也太扯了还是皮套的问题吧
+
+—— 来自 HONOR MAG-AN00, Androi ...</blockquote>
+40岁了，跑了十年龙套
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

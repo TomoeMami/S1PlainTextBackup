@@ -42,3 +42,16 @@
 二抽继续落选。。这个阵容虹为啥要选个2000人的小场</blockquote>
 漏油广岛买谷吗 买的话拼一拼两个随机的？
 
+
+*****
+
+####  Devi_Lito  
+##### 1512#       发表于 2025-9-8 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68388784&amp;ptid=2171972" target="_blank">宫宝兔丁 发表于 2025-9-8 11:59</a>
+
+漏油广岛买谷吗 买的话拼一拼两个随机的？</blockquote>
+买的，不过随机谷我其实比较无所谓（手上已经一堆拍立得和徽章在吃灰了）
+
+你要是有需求的话我可以随缘拼一点帮个忙
+
