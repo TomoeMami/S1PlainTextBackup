@@ -4066,3 +4066,54 @@ MuMu-20250907-212930-247.jpg
 
 卧槽  早上起来看给了30石头又出了
 
+
+*****
+
+####  jackyhuang  
+##### 18142#       发表于 2025-9-8 06:35
+
+一觉醒来又补货了？
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18143#       发表于 2025-9-8 06:47
+
+一大早又加了500W<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18144#       发表于 2025-9-8 07:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">没白刷石头
+
+<img src="https://img.stage1st.com/forum/202509/08/074911q3nn5tn0b957953b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (392.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-8 07:49 上传
+
+*****
+
+####  khxooo  
+##### 18145#       发表于 2025-9-8 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68387283&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-8 07:49</a>
+没白刷石头</blockquote>
+欧，羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18146#       发表于 2025-9-8 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68387713&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-8 09:29</a>
+
+欧，羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我出一个你都出三个了
+
