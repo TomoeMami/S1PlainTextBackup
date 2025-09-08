@@ -464,3 +464,18 @@ YY文学，已经想到男主唯心呐喊大爆发
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 233#       发表于 2025-9-8 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68388815&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2025-9-8 12:02</a>
+
+之前展出玩具的时候我就觉得明明是梦中作战，待机音却是『醒来吧』有点奇怪
+
+结果第一话展示的男主过于离谱 ...</blockquote>
+庄周梦蝶，究竟是庄周做梦变成了蝴蝶，还是蝴蝶做梦变成了庄周呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这倒确实是一个不错的展开点，究竟哪边是梦境哪边是现实，还是说两边都既是梦境也是现实，有人将梦境与现实融合到了一起后又将混合后的世界重新切割成了“梦境”和“现实”？
+
