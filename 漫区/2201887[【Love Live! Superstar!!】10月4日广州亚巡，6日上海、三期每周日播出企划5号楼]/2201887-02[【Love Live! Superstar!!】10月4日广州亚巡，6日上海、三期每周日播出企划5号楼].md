@@ -52,3 +52,15 @@ StarRise
 结那美得太权威了</blockquote>
 这次参加了签名会能近距离看见她，真的美而且身材超棒<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1719#       发表于 2025-9-8 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68391642&amp;ptid=2201887" target="_blank">starring 发表于 2025-9-8 21:02</a>
+这次参加了签名会能近距离看见她，真的美而且身材超棒</blockquote>
+腿特别白<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
