@@ -32,3 +32,13 @@
 
 接下来可以看有多少虹毕业生会相信大姐头投奔re;BON了，奶一口相羽和诗子<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宫宝兔丁  
+##### 1511#       发表于 2025-9-8 11:59
+
+<blockquote>Devi_Lito 发表于 2025-9-6 15:04
+二抽继续落选。。这个阵容虹为啥要选个2000人的小场</blockquote>
+漏油广岛买谷吗 买的话拼一拼两个随机的？
+

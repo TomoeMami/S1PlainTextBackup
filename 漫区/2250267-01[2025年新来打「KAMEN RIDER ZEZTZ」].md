@@ -427,3 +427,26 @@ YY文学，已经想到男主唯心呐喊大爆发
 
 —— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  浅川雏羽  
+##### 230#       发表于 2025-9-8 12:02
+
+之前展出玩具的时候我就觉得明明是梦中作战，待机音却是『醒来吧』有点奇怪
+结果第一话展示的男主过于离谱的倒霉履历，打爆梦魇后梦魇明显的睡着并化为梦蝶的演出，都有种暗示主世界才是梦世界的感觉
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  暗黑能乐  
+##### 231#       发表于 2025-9-8 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68388815&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2025-9-8 12:02</a>
+
+之前展出玩具的时候我就觉得明明是梦中作战，待机音却是『醒来吧』有点奇怪
+
+结果第一话展示的男主过于离谱 ...</blockquote>
+那好像不太能解释男主心脏跳动归零又因为装了腰带又开始起搏这件事
+
