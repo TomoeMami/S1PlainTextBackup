@@ -4215,3 +4215,44 @@ MuMu-20250907-212930-247.jpg
 
 为什么你们都能吃完苹果啊....非洲人已经够努力了可感觉直到这垃圾游戏关服苹果都会堆积如山<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 18155#       发表于 2025-9-8 13:45
+
+<blockquote>森兰丸 发表于 2025-9-8 13:32
+为什么你们都能吃完苹果啊....非洲人已经够努力了可感觉直到这垃圾游戏关服苹果都会堆积如山
+
+ ...</blockquote>
+用FGA之类的脚本挂机刷啊，不知不觉苹果就吃完了。
+
+*****
+
+####  壳壳牛  
+##### 18156#       发表于 2025-9-8 13:48
+
+以后常规活动不能追求商店毕业了...
+多攒苹果多种树...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  森兰丸  
+##### 18157#       发表于 2025-9-8 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68389388&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-8 13:45</a>
+
+用FGA之类的脚本挂机刷啊，不知不觉苹果就吃完了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真不怕进封神榜啊
+
+*****
+
+####  千叶铁矢  
+##### 18158#       发表于 2025-9-8 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68389783&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-9-8 14:54</a>
+真不怕进封神榜啊</blockquote>
+触屏脚本进什么封神榜，黑卡都没封多少呢
+
