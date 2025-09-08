@@ -4256,3 +4256,59 @@ MuMu-20250907-212930-247.jpg
 真不怕进封神榜啊</blockquote>
 触屏脚本进什么封神榜，黑卡都没封多少呢
 
+
+*****
+
+####  Jamaisvu  
+##### 18159#       发表于 2025-9-8 16:17
+
+ 本帖最后由 Jamaisvu 于 2025-9-8 16:24 编辑 
+<blockquote>森兰丸 发表于 2025-9-8 14:54
+真不怕进封神榜啊</blockquote>
+据我所知，只有氪黑卡才会进封神榜，那种涉嫌改程序的秒杀过关科技号都没怎么管过，更遑论按键精灵like了...
+
+重复刷本太消耗身心，不反对自动脚本也算是延长游戏寿命的一种权衡，隔壁赛马娘都有官方的全自动养成...
+
+FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成可直达10级我都算它大突破了...
+
+当然我也并非鼓励或推荐脚本，不过官方都推出15绊这种天坑矿藏，完全徒手挖掘的话...不由得想起GBF一个踢罐子的梗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18160#       发表于 2025-9-8 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68389783&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-9-8 14:54</a>
+
+真不怕进封神榜啊</blockquote>
+从原理上来说，FGA是触屏脚本
+
+除非官方盯着你的屏幕，或者像GBF一样，连续操作多少时间就开始疯狂弹认证
+
+不然确实没有办法判定你到底是不是真人
+
+其实主要是FGO的数据传输方式太草台了
+
+比如每个回合只在开局前才发送数据，导致甚至可以修改客户端改变任意倍率这种东西存在
+
+要不是掉落数据是服务器返回来的，怕是早就被改出一键满掉落了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modkingr  
+##### 18161#       发表于 2025-9-8 20:53
+
+狗粮溢出怎么处理？喜欢的角色也没有硬币升级
+
+*****
+
+####  alucardcz  
+##### 18162#       发表于 2025-9-8 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68391605&amp;ptid=2084912" target="_blank">modkingr 发表于 2025-9-8 20:53</a>
+
+狗粮溢出怎么处理？喜欢的角色也没有硬币升级</blockquote>
+仓库背包全满了的话  只能卖掉
+
