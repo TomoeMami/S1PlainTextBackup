@@ -12806,15 +12806,6 @@
     "active": false,
     "update": false
   },
-  "2188685": {
-    "totalreply": 56,
-    "title": "[异世界默示录米诺戈拉 TV动画化]",
-    "newtitle": "[异世界默示录米诺戈拉 TV动画化]",
-    "lastedit": 1756152368,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
   "2260154": {
     "totalreply": 180,
     "title": "[已婚的坛友来说下无性婚姻是这样产生的吗？有点恐怖啊]",
@@ -16917,6 +16908,6 @@
     "lastedit": 1757354700,
     "category": "手游战斗",
     "active": true,
-    "update": false
+    "update": true
   }
 }
