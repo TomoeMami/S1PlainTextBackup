@@ -544,3 +544,23 @@ YY文学，已经想到男主唯心呐喊大爆发
 
 长官声音是谁 听得出来吗
 
+
+*****
+
+####  王九的哥哥  
+##### 241#       发表于 2025-9-8 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68391586&amp;ptid=2250267" target="_blank">byisme001 发表于 2025-9-8 20:48</a>
+
+长官声音是谁 听得出来吗</blockquote>
+这不是cast表第一个就写了……
+
+image.png
+(37.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-8 23:11 上传
+
+<img src="https://img.stage1st.com/forum/202509/08/231146dpp2n9f9pe2un29g.png" referrerpolicy="no-referrer">
+

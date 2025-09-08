@@ -4312,3 +4312,47 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 狗粮溢出怎么处理？喜欢的角色也没有硬币升级</blockquote>
 仓库背包全满了的话  只能卖掉
 
+
+*****
+
+####  森兰丸  
+##### 18163#       发表于 2025-9-8 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68390389&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-8 16:33</a>
+
+从原理上来说，FGA是触屏脚本
+
+除非官方盯着你的屏幕，或者像GBF一样，连续操作多少时间就开始疯狂弹认证
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">听起来有点诱人......不过思考了5秒钟想了下后我应该还是不会去用的
+
+这辣鸡游戏都已经差不多10年这么玩下来了没必要现在还去折腾这东西
+
+（好吧其实主要是我懒不想再花时间去研究怎么用<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18164#       发表于 2025-9-8 22:19
+
+好麻烦....明天的骑阶还真不知道要冠谁
+
+这么多年下来运营就没出过啥对我XP的骑阶角色....立绘唯一能看得过去的也就个水黑呆...但强度太拉垮了....也没个强化任务来拯救下
+
+为啥不能从EX阶的人拉个过去转成骑阶<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18165#       发表于 2025-9-8 22:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">坐等骑呆来个超绝强化本直接飞升骑阶第一单体打手
+
+*****
+
+####  希望之花  
+##### 18166#       发表于 2025-9-8 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年戴冠战用了几次fga后就抽卡不出货了，建议不要用
+
