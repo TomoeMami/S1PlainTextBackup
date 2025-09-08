@@ -4151,3 +4151,67 @@ MuMu-20250907-212930-247.jpg
 
 可能诺亚方舟是纳米机器人，一到危险阈值就会自动修复吧。
 
+
+*****
+
+####  Jamaisvu  
+##### 18151#       发表于 2025-9-8 12:39
+
+<img src="https://img.stage1st.com/forum/202509/08/123448v4o0rfgbzmm2kn4b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250908_123423_com.aniplex.fategrandorder.jpg</strong> (208.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-8 12:34 上传
+
+刷得几乎弹尽粮绝......我现在就如同洪荒中漂泊的诺亚，带着一帮禽兽，与方舟对峙了数百回合，补给全都耗尽，只剩下神赐光辉石与劣质苹果酒聊以解乏。
+
+*****
+
+####  Jamaisvu  
+##### 18152#       发表于 2025-9-8 12:42
+
+<img src="https://img.stage1st.com/forum/202509/08/124113pfolctfooef3cl1v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250908_124045.jpg</strong> (83.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-8 12:41 上传
+
+<img src="https://img.stage1st.com/forum/202509/08/124113cgdfzsgj0mfgiyli.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250908_124100.jpg</strong> (81.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-8 12:41 上传
+
+悲，本来想截个114514的数字，结果一瞬间就刷过去了...
+
+*****
+
+####  xiongxingyu  
+##### 18153#       发表于 2025-9-8 13:30
+
+方舟终于还是被打爆了，都快背鹦鹉螺号捅成筛子了吧，不愧是型月传统艺能我杀我自己<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18154#       发表于 2025-9-8 13:32
+
+<img src="https://img.stage1st.com/forum/202509/08/133042edgpifl9pgf910gi.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (776.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-8 13:30 上传
+
+为什么你们都能吃完苹果啊....非洲人已经够努力了可感觉直到这垃圾游戏关服苹果都会堆积如山<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
