@@ -4117,3 +4117,37 @@ MuMu-20250907-212930-247.jpg
 欧，羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我出一个你都出三个了
 
+
+*****
+
+####  壳壳牛  
+##### 18147#       发表于 2025-9-8 09:38
+
+450石就歪了一个
+开始还债了<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18148#       发表于 2025-9-8 10:26
+
+又加了300W了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 18149#       发表于 2025-9-8 10:28
+
+一到一百万就补货是吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 18150#       发表于 2025-9-8 10:45
+
+可能诺亚方舟是纳米机器人，一到危险阈值就会自动修复吧。
+
