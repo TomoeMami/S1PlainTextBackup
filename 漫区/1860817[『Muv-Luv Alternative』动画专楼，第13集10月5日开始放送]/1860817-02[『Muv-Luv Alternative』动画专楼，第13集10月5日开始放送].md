@@ -239,3 +239,38 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 就是这好感剧情每次结尾一转攻势的时候，是真的很难绷得住<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  03e7  
+##### 2398#       发表于 2025-9-7 21:52
+
+没有体力限制，可以一直推进剧情直到你打不过为止。
+
+可以省略战斗过程直接跳结算画面。
+
+这两点好评
+
+*****
+
+####  闭挂锁人  
+##### 2399#       发表于 2025-9-8 14:02
+
+ 本帖最后由 闭挂锁人 于 2025-9-8 14:06 编辑 
+
+道理我都懂，但第二章我就打不过去了，后排的一只怪蓄力一口咬所有前排1w+血<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+设定好像还有点像来自深渊？中央的纵矿坑强度太高没人进得去，现在只能在旁支挖，主角团还是只能在旁支的浅层挖矿的菜鸡。
+
+*****
+
+####  windlikeman  
+##### 2400#       发表于 2025-9-8 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68381832&amp;ptid=1860817" target="_blank">黄昏琥珀 发表于 2025-9-6 21:23</a>
+
+那么粉毛线和大小姐线有什么区别？</blockquote>
+第三节剧情不一样（哪里不一样我也不清楚 选了粉毛基本第三节都是在话聊她）
+
+顺便第二章也要雌小鬼和一条二选一 也是选完第三节剧情不一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
