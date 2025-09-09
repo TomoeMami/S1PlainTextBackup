@@ -4031,3 +4031,11 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">凹不到13W了，我认输我投降
 
+
+*****
+
+####  fireadol  
+##### 2630#       发表于 2025-9-9 10:46
+
+这13W有什么好打的，就几百奖章也不给钻<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
