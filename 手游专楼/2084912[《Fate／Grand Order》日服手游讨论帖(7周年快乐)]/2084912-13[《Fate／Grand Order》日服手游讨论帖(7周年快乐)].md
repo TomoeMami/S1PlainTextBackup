@@ -4388,3 +4388,44 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 
 啥时候再发点苹果
 
+
+*****
+
+####  zechins  
+##### 18171#       发表于 2025-9-9 09:08
+
+<img src="https://img.stage1st.com/forum/202509/09/090737dfbwkbkvmyd31k0u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-9 09:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">蚊子腿单抽又出货了，再也不诋毁了
+
+*****
+
+####  qixinno2  
+##### 18172#       发表于 2025-9-9 09:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友都太欧了
+
+*****
+
+####  blue321  
+##### 18173#       发表于 2025-9-9 10:37
+
+我一个金的都没有，楼友已经用又字了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  壳壳牛  
+##### 18174#       发表于 2025-9-9 10:40
+
+又回到石不过三的日子了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
