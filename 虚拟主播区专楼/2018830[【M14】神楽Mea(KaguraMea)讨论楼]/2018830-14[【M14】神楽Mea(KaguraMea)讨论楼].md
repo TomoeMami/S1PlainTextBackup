@@ -88,3 +88,11 @@ YouTube 完全做不了。
 嗯，辛苦了。
 晚安，なさいみ。
 
+
+*****
+
+####  受菊  
+##### 19550#       发表于 2025-9-9 19:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">推特看到释迦，zero还有个谁的采访，粗看了一下提了好几次主播，愣是一句好话都没【释迦好歹挽尊了一下】，我不好说
+
