@@ -4461,3 +4461,69 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 这楼的楼友太过分了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">你说你自己吗！
 
+
+*****
+
+####  exiaexa  
+##### 18179#       发表于 2025-9-9 17:44
+
+事实证明，最狗屎的还是枪冠
+
+骑阶就纯纯的力大砖飞
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18180#       发表于 2025-9-9 17:44
+
+ 本帖最后由 Jamaisvu 于 2025-9-9 17:48 编辑 
+<blockquote>森兰丸 发表于 2025-9-9 17:22
+有骑阶的礼装加成图么</blockquote>
+
+【【FGO】骑阶插件＆绊加成礼装收益从者总结：自带20%加成的职阶-哔哩哔哩】 https://b23.tv/t911xGp
+
+首先骑阶有通用羁绊加成礼装，其他礼装对应的加成从者，根据视频统计为：
+
+<img src="https://img.stage1st.com/forum/202509/09/174412vkeprlzqe193ikfp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250909_174232.jpg</strong> (225.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-9 17:44 上传
+
+满足复合条件的有：
+
+<img src="https://img.stage1st.com/forum/202509/09/174412t5jajtm95rj0e4xx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250909_174253.jpg</strong> (170.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-9 17:44 上传
+
+*****
+
+####  壳壳牛  
+##### 18181#       发表于 2025-9-9 18:30
+
+感觉只能冠莱妮丝然后抱大腿了...
+
+*****
+
+####  Jamaisvu  
+##### 18182#       发表于 2025-9-9 18:36
+
+ 本帖最后由 Jamaisvu 于 2025-9-9 18:37 编辑 
+<blockquote>壳壳牛 发表于 2025-9-9 18:30
+感觉只能冠莱妮丝然后抱大腿了...</blockquote>
+
+诺亚战的机制是我方发动辅助宝具后，五个小怪给诺亚加HP上限的被动会失效（315W变成168W），莱尼丝基本上是必带的。
+
+（否则就只能上君11和布狄卡了...）
+
+另外四星从者中泳装铃鹿很适合骑冠战，宝具对诺亚有神性特攻，对小怪有地特攻，算是官方喂饭了。
+
