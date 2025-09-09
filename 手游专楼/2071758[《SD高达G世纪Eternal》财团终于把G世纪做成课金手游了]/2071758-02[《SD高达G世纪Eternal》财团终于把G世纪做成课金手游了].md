@@ -4039,3 +4039,11 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 这13W有什么好打的，就几百奖章也不给钻<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2631#       发表于 2025-9-9 18:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">月钢要出了，那我之前抽到的SSR阿斯塔罗特，能给我补个驾驶员吗
+
