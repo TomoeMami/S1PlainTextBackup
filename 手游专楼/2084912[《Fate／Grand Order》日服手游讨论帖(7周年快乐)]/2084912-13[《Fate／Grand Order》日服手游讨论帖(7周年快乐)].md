@@ -4527,3 +4527,37 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 
 另外四星从者中泳装铃鹿很适合骑冠战，宝具对诺亚有神性特攻，对小怪有地特攻，算是官方喂饭了。
 
+
+*****
+
+####  alucardcz  
+##### 18183#       发表于 2025-9-9 18:58
+
+笑了。。骑无毛果然毛用都没纯拖后腿。。。。但懒得拉其他人了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18184#       发表于 2025-9-9 19:03
+
+我想问一下，说辅助宝具能去掉HP上限，非冠位的辅助宝具也能去掉吗？
+
+*****
+
+####  森兰丸  
+##### 18185#       发表于 2025-9-9 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396555&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-9 18:36</a>
+
+诺亚战的机制是我方发动辅助宝具后，五个小怪给诺亚加HP上限的被动会失效（315W变成168W），莱尼丝基本上 ...</blockquote>
+所以小怪都不用光炮杀么<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 18186#       发表于 2025-9-9 19:11
+
+<blockquote>khxooo 发表于 2025-9-9 19:03
+我想问一下，说辅助宝具能去掉HP上限，非冠位的辅助宝具也能去掉吗？</blockquote>
+能的，我就是不冠君11带个np礼装再蹭蹭队友加np技能开宝具降血线，满绊君11自然租不到司马懿也少打最高本只能少带张绊礼装让君11启动，妈的君11最有用的一集
+
