@@ -4685,3 +4685,37 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 当然是借的 我们非萌怎么会有2宝</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">只能用布狄卡的仰望
 
+
+*****
+
+####  angelooo  
+##### 18198#       发表于 2025-9-9 20:43
+
+同只能用布狄卡23333
+
+*****
+
+####  都谷捻柏  
+##### 18199#       发表于 2025-9-9 20:48
+
+2宝冠位梅芙+1宝冠位莱尼丝+太公望/金时就能全加成不换人otk了。
+
+*****
+
+####  exiaexa  
+##### 18200#       发表于 2025-9-9 21:06
+
+50把收工，明天挂着FA古战场继续
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 18201#       发表于 2025-9-9 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68397212&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-9-9 20:48</a>
+
+2宝冠位梅芙+1宝冠位莱尼丝+太公望/金时就能全加成不换人otk了。</blockquote>
+1宝冠位梅芙+莱妮丝+太公望/诺亚+圣诞尼莫，我现在能不能1T就看好友有没有开冠位树，但凡好友开冠位树都能1T，可惜很多都没开<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。等我梅芙羁绊满了，应该可以用3宝具不换人。
+

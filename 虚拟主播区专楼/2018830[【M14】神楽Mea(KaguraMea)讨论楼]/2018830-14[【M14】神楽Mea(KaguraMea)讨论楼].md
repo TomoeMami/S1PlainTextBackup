@@ -96,3 +96,16 @@ YouTube 完全做不了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">推特看到释迦，zero还有个谁的采访，粗看了一下提了好几次主播，愣是一句好话都没【释迦好歹挽尊了一下】，我不好说
 
+
+*****
+
+####  术士q  
+##### 19551#       发表于 2025-9-9 21:05
+
+ 本帖最后由 术士q 于 2025-9-9 21:06 编辑 
+
+shaka人挺好的，之前咩在线上赛的败者采访说不出来话的时候也是shaka去打圆场给台阶下的
+zerost嘛...<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一直看下来的话感觉是没什么好话的，有什么问题全推给主播，自己美美隐身，主播要说点什么就立刻带节奏带成主播的错。
+今天还说什么"断罪"出来了。（指等会的苔姨的那个联动，zerost说是"断罪"什么的。听了就火大）
+好像说是苔姨请的zerost，根据第一局normal中某句话的推测，可能是苔姨也不太了解情况吧，估计晚上这联动看着也要一肚子火了，反正zerost这人挺难评的，很难给这人说什么好话。
+
