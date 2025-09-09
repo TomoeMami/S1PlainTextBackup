@@ -109,3 +109,11 @@ zerost嘛...<img src="https://static.stage1st.com/image/smiley/face2017/003.png"
 今天还说什么"断罪"出来了。（指等会的苔姨的那个联动，zerost说是"断罪"什么的。听了就火大）
 好像说是苔姨请的zerost，根据第一局normal中某句话的推测，可能是苔姨也不太了解情况吧，估计晚上这联动看着也要一肚子火了，反正zerost这人挺难评的，很难给这人说什么好话。
 
+
+*****
+
+####  受菊  
+##### 19552#       发表于 2025-9-9 22:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能说有些人不能给脸，这联动难评
+
