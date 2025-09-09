@@ -274,3 +274,48 @@ https://play.games.dmm.co.jp/game/muvluv_ggx_538269</blockquote>
 
 顺便第二章也要雌小鬼和一条二选一 也是选完第三节剧情不一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wsqxz  
+##### 2401#       发表于 2025-9-9 11:59
+
+E绅士上有CG包了
+
+*****
+
+####  若菜  
+##### 2402#       发表于 2025-9-9 15:11
+
+<blockquote>闭挂锁人 发表于 2025-9-8 14:02
+道理我都懂，但第二章我就打不过去了，后排的一只怪蓄力一口咬所有前排1w+血
+
+设定好像还有点像来自深渊？中 ...</blockquote>
+刷挖矿的加type别的成长，角色的单独加点，还有校园level，各种养成拉起来第二章难度也一般。体力无限自动刷刷刷游戏。我现在65级刷2章1节还是很简单。
+
+  最近每天都是dmm游戏第一位，抽卡资料给的一堆。太爽了。
+
+*****
+
+####  若菜  
+##### 2403#       发表于 2025-9-9 15:13
+
+<blockquote>windlikeman 发表于 2025-9-8 16:54
+第三节剧情不一样（哪里不一样我也不清楚 选了粉毛基本第三节都是在话聊她）
+
+顺便第二章也要雌小鬼和一 ...</blockquote>
+
+我是金发，和她一起潜入对方校区，后面对战那个敌方白毛ace yuri也是金发打败的。剧情都是金发大小姐为主。
+
+*****
+
+####  windlikeman  
+##### 2404#       发表于 2025-9-9 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68395381&amp;ptid=1860817" target="_blank">若菜 发表于 2025-9-9 15:13</a>
+
+我是金发，和她一起潜入对方校区，后面对战那个敌方白毛ace yuri也是金发打败的。剧情都是金发大小姐为主 ...</blockquote>
+尤利娅么 对面队长？
+
+那听起来感觉和粉毛线做的事情一样啊 就是换了个人而已
+
