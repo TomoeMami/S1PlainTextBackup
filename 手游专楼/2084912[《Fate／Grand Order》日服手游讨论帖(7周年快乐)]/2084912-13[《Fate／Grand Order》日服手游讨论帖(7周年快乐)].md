@@ -4561,3 +4561,82 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 我想问一下，说辅助宝具能去掉HP上限，非冠位的辅助宝具也能去掉吗？</blockquote>
 能的，我就是不冠君11带个np礼装再蹭蹭队友加np技能开宝具降血线，满绊君11自然租不到司马懿也少打最高本只能少带张绊礼装让君11启动，妈的君11最有用的一集
 
+
+*****
+
+####  alucardcz  
+##### 18187#       发表于 2025-9-9 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396555&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-9 18:36</a>
+
+诺亚战的机制是我方发动辅助宝具后，五个小怪给诺亚加HP上限的被动会失效（315W变成168W），莱尼丝基本上 ...</blockquote>
+意思是我骑无毛有救了？
+
+*****
+
+####  khxooo  
+##### 18188#       发表于 2025-9-9 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396746&amp;ptid=2084912" target="_blank">岸波白野 发表于 2025-9-9 19:11</a>
+
+能的，我就是不冠君11带个np礼装再蹭蹭队友加np技能开宝具降血线，满绊君11自然租不到司马懿也少打最高本 ...</blockquote>
+所以我之前说的队伍没问题，可以了。日服没有，但是我国服刚好抽了个君11<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18189#       发表于 2025-9-9 19:22
+
+确实可以。。。但问题来了。。不是冠位的司马懿np不够要带np礼装。。
+
+*****
+
+####  exiaexa  
+##### 18190#       发表于 2025-9-9 19:39
+
+ 本帖最后由 exiaexa 于 2025-9-9 19:42 编辑 
+
+跟先前猜的一样，顶配钓鱼佬比顶配酒鬼强多了
+
+宝具连发能直接强杀
+
+1宝自己钓鱼佬-5宝黑杯钓鱼佬-2宝自己的黑杯拉二
+
+抓5宝黑杯酒鬼会剩38w，这还是120的酒鬼
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便这套梅芙也能用，羁绊李庄+20np就行
+
+*****
+
+####  alucardcz  
+##### 18191#       发表于 2025-9-9 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396890&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-9 19:39</a>
+
+跟先前猜的一样，顶配钓鱼佬比顶配酒鬼强多了
+
+宝具连发能直接强杀</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但司马懿+2宝黑呆就能杀了
+
+*****
+
+####  exiaexa  
+##### 18192#       发表于 2025-9-9 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396910&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-9 19:42</a>
+
+但司马懿+2宝黑呆就能杀了</blockquote>
+然而并没有好友挂司马懿，我也没辙啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18193#       发表于 2025-9-9 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396915&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-9 19:43</a>
+
+然而并没有好友挂司马懿，我也没辙啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">司马懿不是冠位Np差的有点多 烦
+
