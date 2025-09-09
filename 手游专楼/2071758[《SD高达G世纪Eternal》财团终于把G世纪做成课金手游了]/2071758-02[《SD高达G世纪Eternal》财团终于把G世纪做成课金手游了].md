@@ -4047,3 +4047,21 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">月钢要出了，那我之前抽到的SSR阿斯塔罗特，能给我补个驾驶员吗
 
+
+*****
+
+####  AminGly  
+##### 2632#       发表于 2025-9-9 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396542&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-9 18:34</a>
+
+月钢要出了，那我之前抽到的SSR阿斯塔罗特，能给我补个驾驶员吗</blockquote>
+这不就给你了吗<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AminGly  
+##### 2633#       发表于 2025-9-9 21:14
+
+顺带一个时期 这次送的蓝机 上一个形态有盾 这一个没有
+
