@@ -4429,3 +4429,35 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  v22325  
+##### 18175#       发表于 2025-9-9 17:17
+
+这冠谁好 
+
+*****
+
+####  森兰丸  
+##### 18176#       发表于 2025-9-9 17:22
+
+有骑阶的礼装加成图么<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18177#       发表于 2025-9-9 17:24
+
+这楼的楼友太过分了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18178#       发表于 2025-9-9 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396181&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-9 17:24</a>
+
+这楼的楼友太过分了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">你说你自己吗！
+
