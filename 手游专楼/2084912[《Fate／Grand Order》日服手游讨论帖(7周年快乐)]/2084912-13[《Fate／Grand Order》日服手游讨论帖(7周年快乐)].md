@@ -4640,3 +4640,48 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 然而并没有好友挂司马懿，我也没辙啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">司马懿不是冠位Np差的有点多 烦
 
+
+*****
+
+####  qixinno2  
+##### 18194#       发表于 2025-9-9 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396910&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-9 19:42</a>
+
+但司马懿+2宝黑呆就能杀了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新竟然有司马懿和二宝骑呆
+
+*****
+
+####  alucardcz  
+##### 18195#       发表于 2025-9-9 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68397033&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-9 20:13</a>
+
+欧 羡慕 狗萌新竟然有司马懿和二宝骑呆</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是借的 我们非萌怎么会有2宝
+
+*****
+
+####  森兰丸  
+##### 18196#       发表于 2025-9-9 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396923&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-9 19:45</a>
+
+司马懿不是冠位Np差的有点多 烦
+
+不过作为一条咸鱼萌新 直接宝石翁了 放弃思考</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕萌新有司马懿
+
+非洲人只有布狄卡可以用
+
+*****
+
+####  qixinno2  
+##### 18197#       发表于 2025-9-9 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68397041&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-9 20:14</a>
+
+当然是借的 我们非萌怎么会有2宝</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">只能用布狄卡的仰望
+
