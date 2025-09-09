@@ -117,3 +117,17 @@ zerost嘛...<img src="https://static.stage1st.com/image/smiley/face2017/003.png"
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能说有些人不能给脸，这联动难评
 
+
+*****
+
+####  术士q  
+##### 19553#       发表于 2025-9-9 23:30
+
+看得想掰手机。
+要说不是吧，那好歹是说明背后还是有犬山这边的关系，然后对切片也"多少"有些前因后果的解释，多少说明还有"靠山"，ramuchi也会多少帮着些mea
+要说是吧，那些切片大部分都是断章取义的，包括shaka的那个闪现的道歉如果不看之前的，也应该会以为是让咩闪现咩不闪，但是实际上对应的是早期shaka打得不够激进，有闪不交。
+而且说uhi别再来家里的那个切片也给轻飘飘一个不让玩波比带过了。根本原因就是针对主播还连续压力主播，第一把压力主播掘墓，说从来没见过这么垃圾的掘墓，主播还不好直接骂回去
+和takachan的切片也是算断章取义，忽略了本身就是玩得很好的朋友，聊得很随便。
+最后下播前zerost说的什么"从lol圈里面【追放】出去"
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那群烂人以为那个lol圈很好?说是曾经韩王，来峡谷之巅碰碰?气笑了都。
+
