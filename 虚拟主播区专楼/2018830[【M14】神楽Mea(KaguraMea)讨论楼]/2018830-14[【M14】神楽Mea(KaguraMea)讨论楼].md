@@ -473,3 +473,13 @@ LOL这些都能忍
 因为喜欢主播是因为喜欢搞笑艺人而不是偶像或者游戏主播，好久之前就一直对主播全职摆烂lol有意见。（虽然最大原因可能是自己lol玩的多，之前看主播血压太高了）
 一直靠楼友云的主播，今天看到人说lol日服今年人数比22年翻了三倍，难道主播真的是对的吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">遇见了唯一一条对的世界线
 
+
+*****
+
+####  sino__unnko3  
+##### 19559#       发表于 2025-9-11 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404594&amp;ptid=2018830" target="_blank">Eutopia 发表于 2025-9-11 00:08</a>
+因为喜欢主播是因为喜欢搞笑艺人而不是偶像或者游戏主播，好久之前就一直对主播全职摆烂lol有意见。（虽然 ...</blockquote>
+你咩大事不糊涂
+
