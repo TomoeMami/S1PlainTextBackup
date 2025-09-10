@@ -165,3 +165,15 @@
 追踪追斩变成要耗精了，这是真大削了。这砍俩叠层武器跟雨中冒险真没啥道理，不知道的还以为这游戏金武很强 ...</blockquote>
 火焰斩耗精还是小事，最大的削弱是双大剑跳劈砍了五分之一的削韧，还是看看隔壁50力敏免疫侧袭自带减伤的守护者大人吧
 
+
+*****
+
+####  usodakedo  
+##### 1640#       发表于 2025-9-11 03:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404344&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-9-10 22:44</a>
+数值改了？雨中的毒伤好高啊
+
+—— 来自 S1Fun</blockquote>
+确实改了，为了不让你雨中冒险，不懂意义何在，这次一些改动有股教玩家玩游戏的味了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
