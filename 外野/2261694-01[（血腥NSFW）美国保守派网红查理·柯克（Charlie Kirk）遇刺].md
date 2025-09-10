@@ -477,3 +477,31 @@ Kirk中枪之前可是高强度发相关推文<img src="https://static.stage1st.
 
 原来是这位，看过他舌战群大学生，还挺像那么回事的
 
+
+*****
+
+####  martysama  
+##### 52#       发表于 2025-9-11 07:18
+
+这下往大火烧的世界线狠狠迈了一大步了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lactone  
+##### 53#       发表于 2025-9-11 07:19
+
+怎么睿站评论区还有不少哭丧的
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  greataxe_02  
+##### 54#       发表于 2025-9-11 07:19
+
+批判的武器和武器的批判<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
