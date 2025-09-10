@@ -582,3 +582,78 @@ image.png
 
 之前东映拍日剧有过请津叔来当演员但全程不拍他正脸的操作，这次司令官真人是伏笔还是单纯又不拍正脸呢
 
+
+*****
+
+####  秋月艾莉  
+##### 244#       发表于 2025-9-10 03:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主平时还不错，戴了美瞳反而有点难绷
+
+*****
+
+####  黄泉川此方  
+##### 245#       发表于 2025-9-10 04:10
+
+ 本帖最后由 黄泉川此方 于 2025-9-10 04:31 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集挺好的啊
+
+主角的身世和自我认同交代的很清楚
+
+做清醒梦或许是变身能力的由来，故事悬念也留下了
+
+虽然他能成功活这么久反而是天生的强运了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打系也这么意识流是没想到，俺寻思CG恐怕过几集就看不到了
+
+反派好像暗黑周杰伦
+
+至于以后会不会烂
+
+我都看令和骑士了还在乎这个<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 246#       发表于 2025-9-10 07:35
+
+烂不烂难说，吵起来概率99.9%吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+糖人第一集说自己也是怪物很含蓄表达了他内心也是受伤的，有些自我厌恶，人设就不是开香槟的时候说的觉悟拉满，后面写自我认同部分落个软蛋头衔，香村没活水剧情脾气起来更落实了清算大潮。特务负面描写更露骨，ttk,yzmttk<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  暗黑能乐  
+##### 247#       发表于 2025-9-10 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68398837&amp;ptid=2250267" target="_blank">milky658 发表于 2025-9-10 07:35</a>
+
+烂不烂难说，吵起来概率99.9%吧第一集梦境相当篇幅是对特务的负面描写，这个角色实质是有一些病态的，按套 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">糖人的问题感觉是同一个东西来回车轱辘，并不是有负面就等于会吵吧
+
+*****
+
+####  暗黑能乐  
+##### 248#       发表于 2025-9-10 16:33
+
+古川节目里感觉造型还好啊，怎么剧里观感杀马特翻倍
+
+*****
+
+####  suika2  
+##### 249#       发表于 2025-9-10 20:55
+
+那些年纪大点的明星好像都会做医美保养，比如热玛吉，拉皮手术等。可能拍剧没时间做，上节目之前有空做了
+

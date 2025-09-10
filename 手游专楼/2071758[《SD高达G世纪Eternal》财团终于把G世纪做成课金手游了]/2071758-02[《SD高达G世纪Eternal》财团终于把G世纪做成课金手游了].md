@@ -4073,3 +4073,75 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 有情报说疑似半周年卡池裸装oo和x了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2635#       发表于 2025-9-10 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是代孙我大腿都要拍断了，强自这么早拉出来干嘛。这次明显学聪明了，先拉个裸00，之后什么七剑七剑g00r有得好受的
+
+*****
+
+####  洛克萨斯  
+##### 2636#       发表于 2025-9-10 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68399900&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-10 10:45</a>
+
+我是代孙我大腿都要拍断了，强自这么早拉出来干嘛。这次明显学聪明了，先拉个裸00，之后什么七剑七剑g00r有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">别急，以后强自2和强自荣光捍卫者还有飞自荣光捍卫者都能出，煌大和还能吃至少三次
+
+*****
+
+####  马桶3  
+##### 2637#       发表于 2025-9-10 15:06
+
+反正普通玩家坚持无井不下池就是了，现在我感觉氪金SSR其实也没啥大用，没必要留着每个都升3星，挑几个强力的剩下都分了，下两次井应该就能够特殊币换个UR升星
+
+*****
+
+####  夜之光  
+##### 2638#       发表于 2025-9-10 15:53
+
+卡池SSR除了某个特别强的，不是非常喜欢直接拆了吧，给不少点数能换机体突破，这东西连永恒之路任务都做不了基本是没啥用的废料，一开始不知道叠了不少感觉亏炸。
+
+*****
+
+####  AminGly  
+##### 2639#       发表于 2025-9-10 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68400011&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-9-10 10:56</a>
+
+别急，以后强自2和强自荣光捍卫者还有飞自荣光捍卫者都能出，煌大和还能吃至少三次 ...</blockquote>
+别急 我看自由 （destiny）也在路上
+
+*****
+
+####  AminGly  
+##### 2640#       发表于 2025-9-10 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68399900&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-10 10:45</a>
+
+我是代孙我大腿都要拍断了，强自这么早拉出来干嘛。这次明显学聪明了，先拉个裸00，之后什么七剑七剑g00r有 ...</blockquote>
+你看啊 后面出个爆种版本 再来个流星 黄大河还有剧场版呢 又不是多年前没剧场版的时代
+
+
+*****
+
+####  ティグル  
+##### 2641#       发表于 2025-9-10 21:08
+
+我看海牛也可以这么搞，光是紫海牛就能出有无针管枪的俩版本
+
+代便的底牌太多了
+
+*****
+
+####  AminGly  
+##### 2642#       发表于 2025-9-10 21:24
+
+这游戏我看倒闭前，人气机都出不玩
+[https://www.bilibili.com/video/B ... namic.content.click](https://www.bilibili.com/video/BV1A1HSzHEQa/?spm_id_from=333.1007.top_right_bar_window_dynamic.content.click)
+
+顺带看看694台可收集机体
+

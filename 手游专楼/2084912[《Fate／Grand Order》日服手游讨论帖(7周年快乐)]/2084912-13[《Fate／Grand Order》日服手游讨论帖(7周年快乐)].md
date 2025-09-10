@@ -4719,3 +4719,112 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 2宝冠位梅芙+1宝冠位莱尼丝+太公望/金时就能全加成不换人otk了。</blockquote>
 1宝冠位梅芙+莱妮丝+太公望/诺亚+圣诞尼莫，我现在能不能1T就看好友有没有开冠位树，但凡好友开冠位树都能1T，可惜很多都没开<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。等我梅芙羁绊满了，应该可以用3宝具不换人。
 
+
+*****
+
+####  yangun22  
+##### 18202#       发表于 2025-9-10 10:47
+
+冠位妹夫加普通君11太互补了，好友只用看带的啥礼装就行了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18203#       发表于 2025-9-10 11:37
+
+ 本帖最后由 Jamaisvu 于 2025-9-10 11:43 编辑 
+<blockquote>exiaexa 发表于 2025-9-10 09:24
+比不过辅助不丢人，毕竟是专门喂饭的，定位不一样
+
+诺亚最搞的是被钓鱼佬按在地上锤，打法一样，定位一样， ...</blockquote>
+为了对比实验，我从好友里找了个两个黑杯百级五宝诺亚/太公（羁绊礼装都选充能），均用司马懿宝具+光炮宝具（不触发色卡连携）打钻研战，结果如下：
+
+<img src="https://img.stage1st.com/forum/202509/10/113409vcmlgnhhbgeguln0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250910_112739_com.aniplex.fategrandorder.jpg</strong> (267.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-10 11:34 上传
+
+<img src="https://img.stage1st.com/forum/202509/10/113409ookvkrs91hv1evkh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250910_113230_com.aniplex.fategrandorder.jpg</strong> (311.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-10 11:34 上传
+
+诺亚打小动物的总伤更高（你都保护了什么呀！），但是太公的神性特攻太针对了，总体来说对诺亚很不友好。
+
+诺亚：老姜你什么时候站对面开个法天象地让我也爽爽...<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+太公：我连神性都没有，怎么会用那玩意<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18204#       发表于 2025-9-10 12:19
+
+ 本帖最后由 exiaexa 于 2025-9-10 12:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68400372&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-10 11:37</a>
+
+为了对比实验，我从好友里找了个两个黑杯百级五宝诺亚/太公（羁绊礼装都选充能），均用司马懿宝具+光炮宝 ...</blockquote>
+就是靠特攻
+
+加入你把自己的诺亚换成同配置的太公望
+
+两个钓鱼佬自己互助还能多出30神性特攻（2张羁绊礼装）
+
+诺亚应该当场就被砸死了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最离谱的是钓鱼佬挂支援甚至可以不带黑杯
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18205#       发表于 2025-9-10 12:45
+
+<blockquote>exiaexa 发表于 2025-9-10 12:19
+就是靠特攻
+
+加入你把自己的诺亚换成同配置的太公望
+
+两个钓鱼佬自己互助就是还能30神性特攻（2张羁绊礼装） ...</blockquote>
+方舟齐出，约战太公。太公携尼莫、仲达二人出战，尼莫一车面包人，仲达布开混元阵。众人交兵，只杀得霭霭红云笼迦球，腾腾杀气照人理。
+
+太公暗想：“御主所赐打神鞭，何不祭起！”太公将神鞭丢起空中，只见云天乍破，神鞭落下，正中诺亚顶上，打得脑浆迸出，死于非命，一魂已入英灵座去了。
+
+*****
+
+####  blue321  
+##### 18206#       发表于 2025-9-10 18:34
+
+骑阶实在没人还要去嫖其他人的莱尼斯，把把都要打五六回合真的折磨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qixinno2  
+##### 18207#       发表于 2025-9-10 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68403200&amp;ptid=2084912" target="_blank">blue321 发表于 2025-9-10 18:34</a>
+
+骑阶实在没人还要去嫖其他人的莱尼斯，把把都要打五六回合真的折磨
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定是你太贪了 我带了个龙脉布狄卡随便换人1T
+
+*****
+
+####  khxooo  
+##### 18208#       发表于 2025-9-10 19:28
+
+单抽B叔，多个金方块也不错。
+
