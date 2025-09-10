@@ -532,3 +532,40 @@ Kirk中枪之前可是高强度发相关推文<img src="https://static.stage1st.
 
 出血量还挺大
 
+
+*****
+
+####  last_regret  
+##### 58#       发表于 2025-9-11 07:40
+
+<blockquote>lactone 发表于 2025-9-11 07:19
+怎么睿站评论区还有不少哭丧的
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+国内既然存在离线民主党，那有离线Maga不也很正常。去贸易类新闻下经常有吹金毛关税的
+
+*****
+
+####  亚尔迪8424  
+##### 59#       发表于 2025-9-11 07:41
+
+好似。犹纳走狗
+
+*****
+
+####  nightraven  
+##### 60#       发表于 2025-9-11 07:43
+
+说不定许多年后会有人捶胸顿足道：倘若柯克在，断不会使我大美如此也<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Schwarzess  
+##### 61#       发表于 2025-9-11 07:45
+
+阿批选举前还有不少搬这人视频的，什么成分不好说。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
