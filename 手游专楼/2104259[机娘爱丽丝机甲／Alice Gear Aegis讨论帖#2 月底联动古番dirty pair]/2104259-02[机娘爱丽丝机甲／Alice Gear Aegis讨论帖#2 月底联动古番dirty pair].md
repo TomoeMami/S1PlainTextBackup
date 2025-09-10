@@ -33,3 +33,15 @@
 
 没抽到，还歪了个白色长发的权当艾拉代餐吧<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1659#       发表于 2025-9-11 05:44
+
+看贴吧才明白原来网页visa氪金用访客直接刷卡会跳过1日元认证……不过我失败大概率是脑回路没转回来名字没用拼音而是直接上了汉字<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+抽到了明娜，想买个周年服结果卖的是白色那款而不是黑色，阿金有钱不赚啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只好买俩福袋抽泳装穿上了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
