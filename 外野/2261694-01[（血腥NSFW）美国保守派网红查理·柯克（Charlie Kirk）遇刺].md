@@ -8136,3 +8136,34 @@ R.I. ...</blockquote>
 
 你把跨从女改成男也好，从男改成女也好，都不过是从一种主流身份改变成另一种主流身份，这样子还怎么给LGBT们制造少数群体，操作身份政治的空间？
 
+
+*****
+
+####  双面人  
+##### 763#       发表于 2025-9-12 02:16
+
+说起红脖子的智力和战力不得不提波拉特2拍摄时主演跑红脖子集会放了堆彩虹屁把红脖子红的拍手叫好，被别人提醒才知道是拍讽刺电影准备殴打泄愤而且未能成功的事儿了
+
+*****
+
+####  Alexmacau8  
+##### 764#       发表于 2025-9-12 02:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410608&amp;ptid=2261694" target="_blank">miaoer0623 发表于 2025-9-12 01:42</a>
+感叹一句原来菜园是轮子啊，那就不奇怪了。我到现在都记得他那个楼里，有个人非常激动的说，如果taco不当选 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">还有更离谱的选阿川就是救中国呢……
+
+*****
+
+####  saizeriya  
+##### 765#       发表于 2025-9-12 02:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410364&amp;ptid=2261694" target="_blank">撒撒 发表于 2025-9-12 00:11</a>
+
+看了不同社交平台的评论，最吃惊的是许多评论的话术/认知是trump遭到枪 击是右派内斗，枪 手是右派。
+
+R.I. ...</blockquote>
+[https://www.northcountrypublicra ... ump-gunman-fbi-says](https://www.northcountrypublicradio.org/news/npr/nx-s1-5057323/social-media-account-with-extremist-comments-could-be-tied-to-trump-gunman-fbi-says)
+
+托马斯·马修·克鲁克斯的社交媒体上大部分都是反移民和反犹的言论，按照丑国的政治光谱确实是右派，
+
