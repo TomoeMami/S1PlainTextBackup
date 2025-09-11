@@ -7562,3 +7562,94 @@ MAGA要塑造的共同体be like</blockquote>
 左左们永远学不会辩证法，还得让我一个老保教。一个人一个群体永远是复杂的多面的，他是保卫者的情况下也 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你其实搞错对象了，左经虽然跨洋鼓动了这些，但是抱团搞事的完全不是“左”，左不会要求xx fisrt的，什么优先？所以说啊没有经书就是难
 
+
+*****
+
+####  卖哥  
+##### 713#       发表于 2025-9-11 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409396&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 20:21</a>
+
+左左们永远学不会辩证法，还得让我一个老保教。一个人一个群体永远是复杂的多面的，他是保卫者的情况下也 ...</blockquote>
+这时候又不理解女性和LGBT受到的历史压迫和现实困境了？又不会辨证法了？
+
+*****
+
+####  胜改藏  
+##### 714#       发表于 2025-9-11 20:37
+
+<blockquote>outerish 发表于 2025-9-11 20:25
+还没抓到人吗？又准又能脱身很专业啊</blockquote>
+没抓到人就可以抓所有人。抓到了万一是👴国的就麻了
+
+*****
+
+####  season1237  
+##### 715#       发表于 2025-9-11 20:37
+
+<blockquote>卡嘎米 发表于 2025-9-11 20:28
+你其实搞错对象了，左经虽然跨洋鼓动了这些，但是抱团搞事的完全不是“左”，左不会要求xx fisrt的，什么 ...</blockquote>
+都这个时代了，还在纠结什么真左假左已经没意义了，反正它们认了左，左也认了它们，还把反对他们的都打成右，那就这样呗。
+
+你说maga们也都是保守右吗？教皇就真这么保守吗？我看也未必嘛。
+
+
+*****
+
+####  卖哥  
+##### 716#       发表于 2025-9-11 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409460&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 20:37</a>
+
+都这个时代了，还在纠结什么真左假左已经没意义了，反正它们认了左，左也认了它们，还把反对他们的都打成 ...</blockquote>
+所以你把一切不同意的打成左，甚至开始攻击中。
+
+就像一开始说的，左右有什么差别呢？大概就是右不爱念书吧。
+
+*****
+
+####  season1237  
+##### 717#       发表于 2025-9-11 20:41
+
+<blockquote>卖哥 发表于 2025-9-11 20:36
+这时候又不理解女性和LGBT受到的历史压迫和现实困境了？又不会辨证法了？
+
+ ...</blockquote>
+“女性和LGBT受到的历史压迫和现实困境”是她们诬告和杀人的免罪符吗？结合实际好像还真是。
+
+左左们又愿意理解劳保们痛苦无奈被压迫被侮辱的现实困境吗？都在拍手称快在狂欢嘛。
+
+*****
+
+####  卡嘎米  
+##### 718#       发表于 2025-9-11 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409460&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 20:37</a>
+
+都这个时代了，还在纠结什么真左假左已经没意义了，反正它们认了左，左也认了它们，还把反对他们的都打成 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">典型的不纠结——右不需要真相，只需要动员材料，也对，但是很难搞，最多也就是另一个刹车片生态位
+
+*****
+
+####  whzfjd  
+##### 719#       发表于 2025-9-11 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409139&amp;ptid=2261694" target="_blank">丸山之上缤纷彩 发表于 2025-9-11 19:33</a>
+
+其实LGBT把T切割出去就行，前面LGB多少也算人类传统，唯独T是后来整出来的烂活，你看你说的这些东西其实 ...</blockquote>
+LGB切T的话就没脸面要求顺直顺着它们了
+
+*****
+
+####  卖哥  
+##### 720#       发表于 2025-9-11 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409483&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 20:41</a>
+
+“女性和LGBT受到的历史压迫和现实困境”是她们诬告和杀人的免罪符吗？结合实际好像还真是。
+
+左左们又愿 ...</blockquote>
+不是免罪符，但是不去解决问题，那就客观存在。
+
+你难道以为靠打压有用么？打压了几千年了。
+
