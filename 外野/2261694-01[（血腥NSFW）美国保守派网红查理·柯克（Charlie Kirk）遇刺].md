@@ -7948,3 +7948,55 @@ LGB切T的话就没脸面要求顺直顺着它们了
 老maga演讲的时候被颗秒算不算一种弹丸论破</blockquote>
 我记得弹丸1代有个班长死者设定里处刑就是自己当选首相受人群欢呼，结果被骷髅13造型的黑白熊射杀
 
+
+*****
+
+####  acguy  
+##### 747#       发表于 2025-9-12 00:08
+
+这场残暴的欢愉，终将以残暴终结
+
+*****
+
+####  saizeriya  
+##### 748#       发表于 2025-9-12 00:10
+
+<img src="https://img.stage1st.com/forum/202509/12/001046m6nm64bdddh11ule.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912001017.jpg</strong> (111.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 00:10 上传
+
+*****
+
+####  撒撒  
+##### 749#       发表于 2025-9-12 00:11
+
+ 本帖最后由 撒撒 于 2025-9-12 00:13 编辑 
+
+看了不同社交平台的评论，最吃惊的是许多评论的话术/认知是trump遭到枪 击是右派内斗，枪 手是右派。
+
+R.I.P.
+
+
+*****
+
+####  就咋的  
+##### 750#       发表于 2025-9-12 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410108&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-11 23:05</a>
+
+不是，现在把这货和马丁路德金相提并论了？</blockquote>
+美籍种_族主义分子和非暴力民权领袖（平权非特权）放一块，后现代艺术么，“左右”站位倒是可以
+
+*****
+
+####  就咋的  
+##### 751#       发表于 2025-9-12 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410355&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 00:10</a></blockquote>
+贝斯手的笑话找到了，安倍死
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
