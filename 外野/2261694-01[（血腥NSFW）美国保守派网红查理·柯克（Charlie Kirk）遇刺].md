@@ -1474,3 +1474,127 @@ bibi在事发几分钟后就转推
 
 好似<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 159#       发表于 2025-9-11 09:14
+
+奶龙连发3条帖文下令全国降半旗志哀，直至14日傍晚6时。
+
+*****
+
+####  ShinShiHT  
+##### 160#       发表于 2025-9-11 09:16
+
+年级轻轻就站不住了非要坐着，公共场合一定要学taco站起来左摇右摆扭来扭去
+
+
+*****
+
+####  破晓之光  
+##### 161#       发表于 2025-9-11 09:16
+
+打起来，打起来<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  句扶  
+##### 162#       发表于 2025-9-11 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405388&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-11 09:14</a>
+
+奶龙连发3条帖文下令全国降半旗志哀，直至14日傍晚6时。</blockquote>
+所以说凭啥，就一幕僚没了凭啥全国下半旗？
+
+*****
+
+####  月白天青  
+##### 163#       发表于 2025-9-11 09:18
+
+没毛病啊，实践是检验真理的唯一标准。支持持枪，吃到持枪的现实结果不是求仁得仁吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  acg_gyanc  
+##### 164#       发表于 2025-9-11 09:19
+
+这也下半旗，感觉老美还挺廉价的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Pfizer  
+##### 165#       发表于 2025-9-11 09:20
+
+极端右翼白皮，敌视老中，长期造谣老中
+
+好人，死晚了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 166#       发表于 2025-9-11 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405228&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-11 08:45</a>
+
+人刚参加完异性恋骄傲大游行呢你没看错我也没打错字</blockquote>
+不意外，符合troll人设
+
+不过存在异性恋骄傲游行我比较意外<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saizeriya  
+##### 167#       发表于 2025-9-11 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405421&amp;ptid=2261694" target="_blank">句扶 发表于 2025-9-11 09:18</a>
+所以说凭啥，就一幕僚没了凭啥全国下半旗？</blockquote>
+千金难买懂乐意<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  古凌锋  
+##### 168#       发表于 2025-9-11 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405228&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-11 08:45</a>
+
+人刚参加完异性恋骄傲大游行呢你没看错我也没打错字</blockquote>
+不是说这人是基佬吗，为什么要参加异性恋骄傲游行
+
+
+*****
+
+####  双面人  
+##### 169#       发表于 2025-9-11 09:24
+
+<blockquote>句扶 发表于 2025-9-11 09:18
+所以说凭啥，就一幕僚没了凭啥全国下半旗？</blockquote>
+懂王：maga都是我兄弟，我兄弟死了不降半旗不合适吧
+
+*****
+
+####  Pfizer  
+##### 170#       发表于 2025-9-11 09:26
+
+这什么B人死了都降半旗啊？
+
+*****
+
+####  星零影  
+##### 171#       发表于 2025-9-11 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405021&amp;ptid=2261694" target="_blank">遗尿 发表于 2025-9-11 07:47</a>
+LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的，不过白左说不过就枪杀还是这种场合，感觉反而 ...</blockquote>
+说不定最后结论凶手是哈马斯呢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
