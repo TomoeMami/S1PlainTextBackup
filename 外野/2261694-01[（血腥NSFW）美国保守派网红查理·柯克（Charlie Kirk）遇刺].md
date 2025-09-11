@@ -2390,3 +2390,143 @@ bibi干的可能性不能为0</blockquote>
 
 —— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xuanwu_lei  
+##### 253#       发表于 2025-9-11 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406012&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:46</a>
+确实，十几年前的叙利亚自爆卡车还需要死士驾驶，现在ai那么强，无人自爆泥头车堪称巷战神器。</blockquote>
+不管是无人矿卡还是萝卜快炸，不都实锤亲中吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qqks  
+##### 254#       发表于 2025-9-11 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405978&amp;ptid=2261694" target="_blank">呼鲁鲁修 发表于 2025-9-11 10:42</a>
+
+如果抓到凶手又是个黑人精神病，再联想到之前公交车上的白女被捅脖子。。。爆发骚乱也不是不可能 ...</blockquote>
+要是没抓到犯人呢？
+
+想德国那样，左派撕破脸直接大规模暗杀右派政客那才叫好看。
+
+*****
+
+####  lactone  
+##### 255#       发表于 2025-9-11 10:50
+
+支持班德拉的左翼，我看搞不好过几年就有支持闵采尔的极右了<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一骑当千  
+##### 256#       发表于 2025-9-11 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405967&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-11 10:41</a>
+
+姐夫也加入战场了？</blockquote>
+这要真是乌乌支持者，懂王不和二毛爆了。
+
+*****
+
+####  Pfizer  
+##### 257#       发表于 2025-9-11 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406016&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 10:48</a>
+
+不管是无人矿卡还是萝卜快炸，不都实锤亲中吗</blockquote>
+按知乎乌友的说法，“乌克兰是世界第一无人机制造大国”
+
+ 美国从乌克兰进口点小型无人机是没难度的，用不着亲中
+
+*****
+
+####  qqks  
+##### 258#       发表于 2025-9-11 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406016&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 10:48</a>
+
+不管是无人矿卡还是萝卜快炸，不都实锤亲中吗</blockquote>
+自动驾驶有很多开源项目的，从端到端到vla都有，这些玩意，真上路用是不大行，有去无回的自杀袭击那可是太爽了啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飛霞精灵  
+##### 259#       发表于 2025-9-11 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405962&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:40</a>
+
+老登说这话的时候，脑子明显还活在海湾战争时代。</blockquote>
+想想看图尔萨大屠杀，美国人对这个搞不好还真没心理负担。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林无德  
+##### 260#       发表于 2025-9-11 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405999&amp;ptid=2261694" target="_blank">windtrack 发表于 2025-9-11 10:45</a>
+
+美国人就该执行蔚蓝档案那种理念，出门不带枪就等于裸奔那种羞耻感普及一下，这样就不会遭遇6%小概率事件了 ...</blockquote>
+顺便给他们批发光环，虽然这光环不防弹，还得是中弹后才能得到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  女权咏唱者  
+##### 261#       发表于 2025-9-11 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405599&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 09:41</a>
+
+国内不少看多了反民主党宣传就成为离岸maga或者白右拥趸。和搞dei的白左一样是鲨臂罢了
+
+—— 来自 OnePlus ...</blockquote>
+原点在泥潭，泥潭早在9年前就是华语离岸maga的教坛总舵了，菜园姐布教传道的龙兴之地<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aiooia  
+##### 262#       发表于 2025-9-11 10:53
+
+军盲想问下，假设大美想像管制自动Rifle一样管制sniper gun。这种一定距离上的精准射击Rifle能够通过技术指标和其他Rifle区分开么？
+
+*****
+
+####  mtbull  
+##### 263#       发表于 2025-9-11 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406012&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:46</a>
+
+确实，十几年前的叙利亚自爆卡车还需要死士驾驶，现在ai那么强，无人自爆泥头车堪称巷战神器。</blockquote>
+阿美那个危险品管控力度之松散是具备无人机无人卡车自爆的条件的，但是基础教育水平不支持，十以内加减法都要按计算器的选手让他搓炸药有点强人所难了
+
+*****
+
+####  卡修_Kasio  
+##### 264#       发表于 2025-9-11 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406012&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:46</a>
+
+确实，十几年前的叙利亚自爆卡车还需要死士驾驶，现在ai那么强，无人自爆泥头车堪称巷战神器。</blockquote>
+自爆卡车不是利比亚的特殊兵种么。
+
+*****
+
+####  大义灭亲林有德  
+##### 265#       发表于 2025-9-11 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405962&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:40</a>
+
+老登说这话的时候，脑子明显还活在海湾战争时代。</blockquote>
+看鱿鱼，但从战术上讲这么干也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">关键是要看制定计划和执行计划的人有多大决心，牢美现在最大的问题是无论哪派还都没有彻底掀桌肉体消灭对方的决心。
+
+*****
+
+####  億万千  
+##### 266#       发表于 2025-9-11 10:57
+
+宪法里那个持枪权就是说gun吧，直接只允许民间持有手枪是不是就行了，也不违宪
+
