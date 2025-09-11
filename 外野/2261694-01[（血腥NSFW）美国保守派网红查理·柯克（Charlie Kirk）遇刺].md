@@ -7894,3 +7894,27 @@ LGB切T的话就没脸面要求顺直顺着它们了
 不是，现在把这货和马丁路德金相提并论了？
 <img src="https://p.sda1.dev/26/6055d82125ab1955c9c9f89aa54a3f6d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vega2017  
+##### 741#       发表于 2025-9-11 23:10
+
+枪手有没有被抓的风险？现在连个影子都没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ykyin09  
+##### 742#       发表于 2025-9-11 23:11
+
+好嘛，一死直接封圣了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电波系腑海林  
+##### 743#       发表于 2025-9-11 23:13
+
+现在闹得欢，过了一个月就是无人在意，这才是美国社会最强大的纠正机制，再大的冲突，只要一个月就能烟消云散。真想看到美国内乱的那一天我估计得再来个911。
+
