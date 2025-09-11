@@ -7127,3 +7127,48 @@ MAGA要塑造的共同体be like</blockquote>
 出台法律大力支持是吧？</blockquote>
 没有中特社保护你你看他妈的白右会不会来杀你全家，傻逼
 
+
+*****
+
+####  飛霞精灵  
+##### 676#       发表于 2025-9-11 18:47
+
+<img src="https://img.stage1st.com/forum/202509/11/184653ad7ex7e7dod9rjrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 18:46 上传
+
+你们这么共情MAGA，人家拿你当人吗？
+
+人家眼里的黄皮猴子+病毒制造者，别在这自作多情。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  全都笑了  
+##### 677#       发表于 2025-9-11 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408853&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 18:42</a>
+
+美Dem这种中右政党也配叫左人吗
+
+大奴隶主华盛顿历史罪行都不肯清算的货</blockquote>
+这和一般日子人说不到，他们看到“佐”和“进步”不保护一般民众只偏袒妖魔鬼怪，他们只能寻求愿意庇护他们的人。比如某大学生被诬告，被造谣是权贵攻讦至今，进步壬和满嘴阶级斗争的佐人一言不发，诬告犯自爆之前长达两年半的时间里只有进步壬和佐人最看不起的“男拳”为他说话<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HATENA  
+##### 678#       发表于 2025-9-11 18:50
+
+红脖子真是废物，大事全都民主党那边干的，还maga个屁
+
+*****
+
+####  长弓破风  
+##### 679#       发表于 2025-9-11 18:50
+
+转进国内的蠢货能不能去死一死？
+
