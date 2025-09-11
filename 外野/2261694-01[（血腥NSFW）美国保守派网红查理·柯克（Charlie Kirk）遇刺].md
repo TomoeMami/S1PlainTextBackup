@@ -1738,3 +1738,93 @@ maga们这能忍, 赶快向白左动手啊<img src="https://static.stage1st.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lyt777  
+##### 187#       发表于 2025-9-11 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405544&amp;ptid=2261694" target="_blank">ゆゆうた 发表于 2025-9-11 09:34</a>
+
+这人就是靠诡辩+挑选对手+切片获得的善辩形象（which和管人一样），可以去看看剑桥场这人是怎么被喷的。 ...</blockquote>
+但是我还是希望能有个嘴替来喷LGBT。<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+仔细想想他和魏德尔在国内的生态位比较类似。
+
+*****
+
+####  鸟耶稣  
+##### 188#       发表于 2025-9-11 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405564&amp;ptid=2261694" target="_blank">失落之翼 发表于 2025-9-11 09:36</a>
+
+阿懂那次没闪的话是不是也会像这样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半只耳变半张脸吧
+
+*****
+
+####  膛线  
+##### 189#       发表于 2025-9-11 09:40
+
+不理解，为什么美国奥运会射击成绩那么差，是因为他们只擅长打移动靶吗？
+
+*****
+
+####  月白天青  
+##### 190#       发表于 2025-9-11 09:41
+
+国内不少看多了反民主党宣传就成为离岸maga或者白右拥趸。和搞dei的白左一样是鲨臂罢了
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zewubbfa  
+##### 191#       发表于 2025-9-11 09:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次倒真的是当事人自己都没意见了。
+
+*****
+
+####  black199  
+##### 192#       发表于 2025-9-11 09:45
+
+ 本帖最后由 black199 于 2025-9-11 09:47 编辑 
+<blockquote>膛线 发表于 2025-9-11 09:40
+不理解，为什么美国奥运会射击成绩那么差，是因为他们只擅长打移动靶吗？ ...</blockquote>
+
+飞碟美国有拿吧 就是更擅长打会动的
+
+*****
+
+####  双面人  
+##### 193#       发表于 2025-9-11 09:45
+
+<blockquote>鸟耶稣 发表于 2025-9-11 09:39
+半只耳变半张脸吧</blockquote>
+和我头像对上了可还行
+
+*****
+
+####  bindata  
+##### 194#       发表于 2025-9-11 09:46
+
+<img src="https://img.stage1st.com/forum/202509/11/094523ru52c527o72o2t2y.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250911-094441.png</strong> (190.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 09:45 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">bibi干的可能性不能为0
+
+*****
+
+####  纸皮  
+##### 195#       发表于 2025-9-11 09:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">美国人应该在辩经时更多的运用效率高见效快的武器的批判
+别天天光记着在路边和学校玩啊
+
