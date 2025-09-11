@@ -4516,3 +4516,179 @@ tmd阻止大家在网络社群起飞的就是保守主义右翼，尤其以**牢
 
 川宝宝看了都要生气了，俺投放狗粮不亚于对家，咋把扰中的“功劳”都推给对方了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  再键政就是狗  
+##### 450#       发表于 2025-9-11 14:14
+
+为什么非得挑一坨屎吃呢，真佩服你们吃屎的勇气<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  season1237  
+##### 451#       发表于 2025-9-11 14:14
+
+<blockquote>卖哥 发表于 2025-9-11 14:12
+自私没错，但是请诚实说自私
+
+挑选组合要素没错，但是翻车了请自己买单，不要甩锅。
+
+做得到么？
+</blockquote>
+开始贷款赢学了。
+
+*****
+
+####  就咋的  
+##### 452#       发表于 2025-9-11 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407033&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 14:08</a>
+
+左是进步主义，右是保守主义
+
+极左是激进主义，极右是反动主义。</blockquote>
+他所谓的“和稀泥”应该对应“炸屎”
+
+*****
+
+####  卖哥  
+##### 453#       发表于 2025-9-11 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407070&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 14:14</a>
+
+开始贷款赢学了。</blockquote>
+知道么，左派议题也是自私的人在主导，而且新世纪大部分时期他们比主导右派议题的人赚的多。
+
+*****
+
+####  season1237  
+##### 454#       发表于 2025-9-11 14:16
+
+<blockquote>古凌锋 发表于 2025-9-11 14:12
+可惜外国人看你不起……</blockquote>
+左左天天在微博骂男人骂顺直呢，我都被国内一半的人看不起了，我还怕外国人看得我吗？
+
+早就被左左锻炼出来了。
+
+*****
+
+####  mandown  
+##### 455#       发表于 2025-9-11 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405010&amp;ptid=2261694" target="_blank">nightraven 发表于 2025-9-11 07:43</a>
+
+说不定许多年后会有人捶胸顿足道：倘若柯克在，断不会使我大美如此也
+
+—— 来自 OnePlus PKR110, Android  ...</blockquote>
+柯克在时，不觉其异，柯克之后，不见其比<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 456#       发表于 2025-9-11 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406957&amp;ptid=2261694" target="_blank">FanFun 发表于 2025-9-11 13:56</a>
+爬了下楼看怎么吵起来的，338楼开始转进攻击国内右，351楼开始扩大到所有右派，352楼开始攻击泥潭用户 ...</blockquote>
+至少在本楼，哪方主动展现攻击性，扩大化扣帽子，还是挺清晰的
+
+*****
+
+####  卖哥  
+##### 457#       发表于 2025-9-11 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407070&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 14:14</a>
+
+开始贷款赢学了。</blockquote>
+知道么？不是右派主导者比左排主导者自私，是右派主导者比左派主导者不愿意学习，理解不了进步议题，没法用这些议题来自私。
+
+*****
+
+####  什么面具人  
+##### 458#       发表于 2025-9-11 14:19
+
+快点，快点加大规模和力度，我要看到maga和dei门大打特打全羙大战<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TI三冠王AME  
+##### 459#       发表于 2025-9-11 14:21
+
+什么情况，这种看乐子的帖子后排两帮人开始黄脖子大战左左了，鉴定为白左和白右的两批精神奴才代理人战争
+
+*****
+
+####  卡嘎米  
+##### 460#       发表于 2025-9-11 14:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而右和右是相斥的，苏德最终是要打的，虽然乐见右干翻左，但并不是说右能笑到最后
+
+
+*****
+
+####  kilty  
+##### 461#       发表于 2025-9-11 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405095&amp;ptid=2261694" target="_blank">真贝尔奈普斯 发表于 2025-9-11 08:13</a>
+还是牛逼，左摇右晃就躲过去了，这个就是个废物，就这么呆坐着，没学到精髓
+
+—— 来自 Xiaomi 23049RAD8C, ...</blockquote>
+才发现原来这个表情有新版
+
+*****
+
+####  破晓之光  
+##### 462#       发表于 2025-9-11 14:24
+
+我说打起来怎么泥潭自己两波打起来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zeroboss4  
+##### 463#       发表于 2025-9-11 14:26
+
+白左差不多该国会放火了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古凌锋  
+##### 464#       发表于 2025-9-11 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407112&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-11 14:21</a>
+
+什么情况，这种看乐子的帖子后排两帮人开始黄脖子大战左左了，鉴定为白左和白右的两批精神奴才代理人战争 ...</blockquote>
+不能觉得两边都傻逼吗
+
+*****
+
+####  xuanwu_lei  
+##### 465#       发表于 2025-9-11 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407137&amp;ptid=2261694" target="_blank">破晓之光 发表于 2025-9-11 14:24</a>
+我说打起来怎么泥潭自己两波打起来了
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+毕竟是出了菜园之洲的泥潭<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+况且泥潭现在这波白右跟屁虫的理论基础还比不上菜园之洲的Great Two叙事呢，杀个白右跟杀了他精神爹似的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 466#       发表于 2025-9-11 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407132&amp;ptid=2261694" target="_blank">kilty 发表于 2025-9-11 14:23</a>
+
+才发现原来这个表情有新版</blockquote>
+MAGA
+<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+MAGA! ! !
+<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">
+
+还有一个新表情，“强尼来咯！”
+<img src="https://static.stage1st.com/image/smiley/face2017/278.png" referrerpolicy="no-referrer">
+
