@@ -90,3 +90,31 @@ C区域吗？我去试试看
 
 问下各位大佬，地下设施那个认证密码要填什么，看不懂提示卡住了
 
+
+*****
+
+####  urvark  
+##### 89#       发表于 2025-9-11 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408355&amp;ptid=2256342" target="_blank">Alice.Andvari 发表于 2025-9-11 17:18</a>
+
+应该不是，船强化后造型会变
+
+***</blockquote>
+给个提示的截图……我忘记是啥了
+
+
+*****
+
+####  blueelf  
+##### 90#         楼主| 发表于 2025-9-11 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408355&amp;ptid=2256342" target="_blank">Alice.Andvari 发表于 2025-9-11 17:18</a>
+
+应该不是，船强化后造型会变
+
+***</blockquote>
+每个花坛前两位数字串起来，从最远的门口开始
+
+这个提示在雷恩家的回忆里
+

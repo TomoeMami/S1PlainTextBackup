@@ -7848,3 +7848,26 @@ LGB切T的话就没脸面要求顺直顺着它们了
 更可怕的是，生成的新性别 ...</blockquote>
 树屋俱乐部这帮人理念还是比较宗教化的，大意就是上帝赐予你的身体你想改变它说明被恶魔蛊惑了，不存在社会构建性别，性别只有两种，肉体性别就是性别身份，这是上帝定好的，性取向不涉及性别构建。 其实他们这套组合拳对dems挺好用的，就是象党内部内战时要不是他们🪣战价值高会被爆杀
 
+
+*****
+
+####  Yugao  
+##### 737#       发表于 2025-9-11 22:33
+
+老maga演讲的时候被颗秒算不算一种弹丸论破
+
+*****
+
+####  xuanwu_lei  
+##### 738#       发表于 2025-9-11 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409696&amp;ptid=2261694" target="_blank">新HGCG 发表于 2025-9-11 21:20</a>
+这家伙还和神谷宗币是一伙的
+
+看来没死错</blockquote>
+就是胜共连/统教会一系嘛……
+
+尼克松的后手遗祸至今
+
+甚至石平太君都是这个系列的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
