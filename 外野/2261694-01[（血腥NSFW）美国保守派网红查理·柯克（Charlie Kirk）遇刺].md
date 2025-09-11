@@ -8239,3 +8239,15 @@ R.I. ...</blockquote>
 
 以及为什么还有人暗戳戳的希望“懂王中期选举最好肯定赢了”。别扯东扯西，对任何不是自认殖人的中国人，西大最好的选举结果是无限反转，最好是永远朝小野大。
 
+
+*****
+
+####  有钱多买小人  
+##### 772#       发表于 2025-9-12 07:09
+
+据称是凶手使用的步枪。
+
+这个距离上同精度的ar也不会太贵，但栓动有一点好，就是合法度极高<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/26/b1c23d3257b7fb7c858abfe5f8b1af22/image.jpg" referrerpolicy="no-referrer">
+
