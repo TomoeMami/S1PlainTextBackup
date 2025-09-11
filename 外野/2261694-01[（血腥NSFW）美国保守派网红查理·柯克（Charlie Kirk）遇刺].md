@@ -5219,3 +5219,151 @@ LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的
 这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而red ...</blockquote>
 梗图段子来点<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古凌锋  
+##### 516#       发表于 2025-9-11 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407407&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-11 15:04</a>
+
+这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而red ...</blockquote>
+所以梗图呢
+
+*****
+
+####  火星後繼者  
+##### 517#       发表于 2025-9-11 15:15
+
+<img src="https://img.stage1st.com/forum/202509/11/151501spx3w2mhpphtyfqw.jpg" referrerpolicy="no-referrer">
+
+<strong>35f2482e843e60729e0b96a8472a194c.jpg</strong> (55.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 15:15 上传
+
+物理prove
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古凌锋| + 2|欢乐多|
+
+查看全部评分
+
+*****
+
+####  纸皮  
+##### 518#       发表于 2025-9-11 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407407&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-11 15:04</a>
+
+这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而red ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">我点了几个地狱笑话之后，整个X首页有一半都是这个事儿各种复读和嘲讽了
+
+我首页的美丽二刺猿图片都快看不到了！
+
+*****
+
+####  xuanwu_lei  
+##### 519#       发表于 2025-9-11 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407478&amp;ptid=2261694" target="_blank">JOY_GoGo 发表于 2025-9-11 15:13</a>
+有了这次事件以后 是不是两边可以肆无忌惮的开A了</blockquote>
+我更倾向于懂政权会直接有权不用过期作废，直接开始抓反对的influencer<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+扣扣熊和囧司徒危险了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  black199  
+##### 520#       发表于 2025-9-11 15:16
+
+<blockquote>TI三冠王AME 发表于 2025-9-11 15:04
+这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而red ...</blockquote>
+dem现在就是内部抢方向盘山头林立导致谁都管不了下面的了，你说老登和纽森是头领，底下dems认吗
+
+
+*****
+
+####  season1237  
+##### 521#       发表于 2025-9-11 15:17
+
+<blockquote>胜改藏 发表于 2025-9-11 15:12
+直抒胸臆，挺好的。
+
+</blockquote>
+我来只为喷左左，我认为这个白垃圾死的好，我也不组织你去喷这个白垃圾，只是可惜这个白垃圾没能能带走几个白左。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xuanwu_lei|-1|滚回格斗区|
+
+查看全部评分
+
+*****
+
+####  RGm  
+##### 522#       发表于 2025-9-11 15:19
+
+挺好，美国真的可以内战了。
+
+以前猎巫，这次可以猎左了。
+
+*****
+
+####  llysander  
+##### 523#       发表于 2025-9-11 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407366&amp;ptid=2261694" target="_blank">lactone 发表于 2025-9-11 14:58</a>
+
+怎么这就把锅扣白左了搞不好是欧盟或者泽圣敲打 ykw 呢
+
+—— 来自 HONOR PPG-AN00, Android 15, 鹅球 v3.5 ...</blockquote>
+已经没人在乎枪手成分了，调查结果说什么都没人听了，
+
+“大伙心里已经有答案”
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aeolus039  
+##### 524#       发表于 2025-9-11 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407501&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-11 15:16</a>
+dem现在就是内部抢方向盘山头林立导致谁都管不了下面的了，你说老登和纽森是头领，底下dems认吗 ...</blockquote>
+纯粹fw老白男dems控制不住小将罢了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+聪明人如AOC一转控枪
+
+
+*****
+
+####  xuanwu_lei  
+##### 525#       发表于 2025-9-11 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407506&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 15:17</a>
+我来只为喷左左，我认为这个白垃圾死的好，我也不组织你去喷这个白垃圾，只是可惜这个白垃圾没能能带走几 ...</blockquote>
+那你还不滚回格斗区，不要影响日子人发梗图<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  哈扎马  
+##### 526#       发表于 2025-9-11 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407255&amp;ptid=2261694" target="_blank">wgoenitz 发表于 2025-9-11 14:43</a>
+
+看到知乎有人说看视频慢镜头，枪手子弹是打中他胸部的防弹衣后反弹到脖子上的。 ...</blockquote>
+看一楼gif确实躯干防弹衣震动幅度有点夸张<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">但子弹可以不损害防弹衣外的t恤跳弹吗？不太懂布类的材料强度
+
