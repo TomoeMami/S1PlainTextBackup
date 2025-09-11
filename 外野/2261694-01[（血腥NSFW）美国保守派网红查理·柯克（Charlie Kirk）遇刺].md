@@ -3488,3 +3488,99 @@ http://xhslink.com/o/9aCtHV4rsJf</blockquote>
 
 2025-9-11 12:40 上传
 
+
+*****
+
+####  saizeriya  
+##### 360#       发表于 2025-9-11 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406628&amp;ptid=2261694" target="_blank">蠢吐槽 发表于 2025-9-11 12:37</a>
+呃呃 看了下这个人的演讲和辩论视频，我咋感觉他的风格跟户子直播连麦一毛一样。都是那种咄咄逼人，抓住一 ...</blockquote>
+户子应该就是学他的，专门找一些辨不过他的连麦片段剪到一起，连麦碰上自己辨不过的马上掐网线。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  busuoni  
+##### 361#       发表于 2025-9-11 12:51
+
+ 本帖最后由 busuoni 于 2025-9-11 12:54 编辑 
+<blockquote>月白天青 发表于 2025-9-11 12:17
+看了下国内网络给他赛博哭坟的不少啊，这样一个反华反堕胎的魔怔人，闲人往国内搬了一些怼民主党支持者的视 ...</blockquote>
+
+第一次体会？早就说了泥潭老右除了不支持鱿鱼和无脑反华之外，早就在几乎任何议题上都和欧美另类右翼大团结了，这个潮流甚至可以追溯到4chan笑话集那时候。反正看不惯的就扣白左帽子嘛，明明耍的是“总有老爷权贵群体想害我”的右翼民粹那套，却始终觉得自己最红最正，另类右口哨吹半天，末了儿宣称自己是乐子人就完事儿了嗷
+
+*****
+
+####  鲁邦三世1  
+##### 362#       发表于 2025-9-11 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406610&amp;ptid=2261694" target="_blank">艾诺琳 发表于 2025-9-11 12:34</a>
+就美国那平均教育水平想玩转fpv太难了，而且这玩意没纸质书，你上网搜索第一时间就会被关注
+
+还不如烂大街 ...</blockquote>
+fpv教程相较于爆炸物和rpg弹头还是好弄一点
+
+没有rpg弹头，难道拿着fpv当飞镖去撞人吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  wtwtwt21  
+##### 363#       发表于 2025-9-11 12:52
+
+ 本帖最后由 wtwtwt21 于 2025-9-11 12:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406462&amp;ptid=2261694" target="_blank">Siran_China 发表于 2025-9-11 12:06</a>
+
+这人我还看过他不少视频，辩论的一把好手，喜欢在路边摆场子和随机路人辩论政治观点，没有准备的路人哪能比 ...</blockquote>
+这人有团队有准备，在开放场合里随机逮几个路过没准备的人辩论自然能大占上风，就是职业对业余的压制，如果让他上正式场合进行公平的有准备辩论，那可就未必了
+
+<img src="https://img.stage1st.com/forum/202509/11/125430i5coentv7cc0nhce.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_2025-09-11_125351_426.png</strong> (564.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 12:54 上传
+
+就是这种正式的公开辩论会
+
+*****
+
+####  kaminagi  
+##### 364#       发表于 2025-9-11 12:53
+
+人，持，不，乱。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  season1237  
+##### 365#       发表于 2025-9-11 12:54
+
+<blockquote>月白天青 发表于 2025-9-11 12:17
+看了下国内网络给他赛博哭坟的不少啊，这样一个反华反堕胎的魔怔人，闲人往国内搬了一些怼民主党支持者的视 ...</blockquote>
+因为比起民主党输出的恶心人的女权和lgbt做的恶，白右还是太拟人了。
+
+本来歧视就是相互的，咱这里歧视美国人想核平美国人的也大有人在，山高不是一直在喊昂撒匪帮必然被毁灭吗。
+
+*****
+
+####  高本惠  
+##### 366#       发表于 2025-9-11 12:54
+
+真是杀手如云，个个枪法如神
+
+*****
+
+####  black199  
+##### 367#       发表于 2025-9-11 12:56
+
+<blockquote>busuoni 发表于 2025-9-11 12:51
+第一次体会？早就说了泥潭老右除了不支持鱿鱼和无脑反华之外，早就在几乎任何议题上都和欧美另类右翼大团 ...</blockquote>
+也不单是泥潭了 民族右派底色都是相似的
+
