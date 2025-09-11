@@ -8212,3 +8212,16 @@ R.I. ...</blockquote>
 
 当然也有一种令人熟悉的味道，就是轮子造谣的味道。
 
+
+*****
+
+####  YG111  
+##### 770#       发表于 2025-9-12 06:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410664&amp;ptid=2261694" target="_blank">Alexmacau8 发表于 2025-9-12 02:17</a>
+还有更离谱的选阿川就是救中国呢……</blockquote>
+某种程度来说 这并不是一个完全不靠谱的想法<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
