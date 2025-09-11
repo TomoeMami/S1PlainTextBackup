@@ -811,3 +811,108 @@ stand alone complex了
 去大学舌战群左的maga网红我只知道那个英国犹太基佬Milo，那会也是风头很盛，不过那是川宝第一届那会的事了 ...</blockquote>
 那人好像给炼铜洗地寄了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双面人  
+##### 89#       发表于 2025-9-11 08:16
+
+也别断言党争，万一想复现金毛神迹但是玩砸了呢
+
+*****
+
+####  fanny  
+##### 90#       发表于 2025-9-11 08:16
+
+不管你的身份 地位 财富 被枪打中 血肉之躯 该死就要死 美利坚人民早点意识到这一点 大杀特杀 杀的血流成河才好
+
+*****
+
+####  lega-II  
+##### 91#       发表于 2025-9-11 08:17
+
+<blockquote>siebten 发表于 2025-9-11 08:13
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+切片啊，都是各取所需。你要是多看点左派视频就会有kirk在学生那边吃瘪的切片推送给你了。
+
+*****
+
+####  black199  
+##### 92#       发表于 2025-9-11 08:17
+
+<blockquote>灰色的狐狸 发表于 2025-9-11 07:50
+有一说一，这人一个政党喉舌跑去大学找大学生辩论那不就是炸鱼
+
+而且还有辩不下去的
+
+</blockquote>
+他不是喉舌，纯网红，影响力很大被认为有望从政，属于自干maga的生态
+
+*****
+
+####  profklugstein  
+##### 93#       发表于 2025-9-11 08:17
+
+世上还是好子弹多啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Saa123  
+##### 94#       发表于 2025-9-11 08:20
+
+物理消灭是否是玩不起的表现
+
+*****
+
+####  xuanwu_lei  
+##### 95#       发表于 2025-9-11 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404940&amp;ptid=2261694" target="_blank">变老的大二 发表于 2025-9-11 07:00</a>
+小红书牢美正在狂欢中，笑死</blockquote>
+来点笔记看看<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+之前脱离对账人茧房了刷不到了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 96#       发表于 2025-9-11 08:23
+
+<blockquote>xuanwu_lei 发表于 2025-9-11 08:22
+来点笔记看看
+
+之前脱离对账人茧房了刷不到了</blockquote>
+其实一搜这人名字就能看见了
+
+91 小红薯 32D45G62D发布了一篇小红书笔记，快来看吧！ 😆 40bEBYm6OHx 😆 http://xhslink.com/m/A7YfDXYPC6o 复制本条信息，打开【小红书】App查看精彩内容！
+
+*****
+
+####  greataxe_02  
+##### 97#       发表于 2025-9-11 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405021&amp;ptid=2261694" target="_blank">遗尿 发表于 2025-9-11 07:47</a>
+LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的，不过白左说不过就枪杀还是这种场合，感觉反而 ...</blockquote>
+白左：批判的武器不能代替武器的批判<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  VALKIRA  
+##### 98#       发表于 2025-9-11 08:23
+
+然后呢
+
+maga的pussy能有什么本事报复吗
+
+*****
+
+####  wjxforever  
+##### 99#       发表于 2025-9-11 08:24
+
+出血量惊人，而且感觉人瞬间就失去意识了啊，还以为会挣扎一下
+
