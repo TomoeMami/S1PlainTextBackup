@@ -3258,3 +3258,150 @@ step1查理柯克是**总统的心腹，坚定支持**总统的决定。据**总
 这人我还看过他不少视频，辩论的一把好手，喜欢在路边摆场子和随机路人辩论政治观点，没有准备的路人哪能比 ...</blockquote>
 就和美国那种连100以内加减法算不出来，谁偷袭珍珠港不知道，找不到俄罗斯在地图上什么地方的人辩论赢了=辩论的一把好手？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RYURYUTA  
+##### 337#       发表于 2025-9-11 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">美服还是太能整活了
+
+*****
+
+####  月白天青  
+##### 338#       发表于 2025-9-11 12:17
+
+看了下国内网络给他赛博哭坟的不少啊，这样一个反华反堕胎的魔怔人，闲人往国内搬了一些怼民主党支持者的视频，就能收获一批拥趸。我一直有个观点，现在白人保守主义在我国形成了文化输出，不少人喜欢这些直球歧视中国人的白右政客网红，挺奇葩的
+
+—— 来自 OnePlus OPD2407, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  卡嘎米  
+##### 339#       发表于 2025-9-11 12:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说什么来着，左确实爱暗杀，但是结果往往被利用，因为天然不正义
+
+
+*****
+
+####  月白天青  
+##### 340#       发表于 2025-9-11 12:20
+
+这老头好惨<img src="https://p.sda1.dev/26/9ad7c52b4b0ada1fef5c357fd7543e58/image.jpg" referrerpolicy="no-referrer">，抓错人裤子都被扒了
+
+—— 来自 OnePlus OPD2407, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  呼鲁鲁修  
+##### 341#       发表于 2025-9-11 12:21
+
+如果是.22打的，那也太准了，远距离小口径，直接命中柔软的颈部。打到头都不一定死的了。
+
+*****
+
+####  aeolus039  
+##### 342#       发表于 2025-9-11 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406534&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 12:20</a>
+这老头好惨，抓错人裤子都被扒了
+
+—— 来自 OnePlus OPD2407, Android 15, 鹅球 v3.5.99 ...</blockquote>
+这老头是个乐子人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  守名居  
+##### 343#       发表于 2025-9-11 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406462&amp;ptid=2261694" target="_blank">Siran_China 发表于 2025-9-11 12:06</a>
+这人我还看过他不少视频，辩论的一把好手，喜欢在路边摆场子和随机路人辩论政治观点，没有准备的路人哪能比 ...</blockquote>
+[http://xhslink.com/o/2CH9XI6R14N](http://xhslink.com/o/2CH9XI6R14N)
+自己打自己脸
+[http://xhslink.com/o/9aCtHV4rsJf](http://xhslink.com/o/9aCtHV4rsJf)
+被剑桥学生辩的丢盔弃甲
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你不能只看赢赢赢的
+
+*****
+
+####  windtrack  
+##### 344#       发表于 2025-9-11 12:21
+
+<img src="https://img.stage1st.com/forum/202509/11/122112pabaaaqfq1adj3aa.png" referrerpolicy="no-referrer">
+
+<strong>b6d540cb27eb27f21a4b4fc5bc5620c5.png</strong> (40.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 12:21 上传
+
+地狱meme：查理·柯克终于在枪支问题上学会了左倾
+
+*****
+
+####  zxlice  
+##### 345#       发表于 2025-9-11 12:21
+
+底层人民感觉零元购就差不多了，起来对抗感觉美国人都教化的差不多了<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寇马可  
+##### 346#       发表于 2025-9-11 12:22
+
+“为了保留第二修正案，枪支造成的死亡就算不幸也是值得的。”
+——查理·柯克（1994-2025）
+
+*****
+
+####  aeolus039  
+##### 347#       发表于 2025-9-11 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406521&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 12:17</a>
+看了下国内网络给他赛博哭坟的不少啊，这样一个反华反堕胎的魔怔人，闲人往国内搬了一些怼民主党支持者的视 ...</blockquote>
+<img src="https://p.sda1.dev/26/f671c1f4ad57150c5ea015d4d756b02b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/7125a0e2bc36780263e2121aa4045083/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  倒影_  
+##### 348#       发表于 2025-9-11 12:23
+
+我年轻的时候支持持枪，等我老了就把我枪毙了吧，被枪杀的人啊，查理柯克来给你们赔不是了，这叫物质不灭定律
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  大义灭亲林有德  
+##### 349#       发表于 2025-9-11 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406402&amp;ptid=2261694" target="_blank">又怎么啦？ 发表于 2025-9-11 11:54</a>
+
+好玩美国每年枪击死那个几万人相当部分是自己人误击或自杀，各种用枪的谋杀暗杀又可能相当部分没统计进去 ...</blockquote>
+还包括各种用刀的，找不到尸体的，尸体无法确定身份的，失踪的每年好几十万。说白了牢美内部现在就是一个巨大的克苏鲁状态，它们的左不是我们认知的左，它们的右也不是我们理解的右，它们是一种非常抽象混沌的缠绕状态，我非常同意有B站UP分析美国未来的内战阵营不是左右大战而是精神倪哥和精神白男互杀，你甚至不能用阶级和肤色去划分阵营，一切全靠心证，满地邪 教武装和街区自保组织互相低烈度互杀，直到杀出个实力足够大的WARBOSS。
+
+*****
+
+####  Siran_China  
+##### 350#       发表于 2025-9-11 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406545&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-11 12:21</a>
+
+http://xhslink.com/o/2CH9XI6R14N
+
+自己打自己脸
+
+http://xhslink.com/o/9aCtHV4rsJf</blockquote>
+草，看来还是被职业辩手爆杀了
+
+*****
+
+####  Unbiquitous  
+##### 351#       发表于 2025-9-11 12:25
+
+<blockquote>月白天青 发表于 2025-9-11 12:17
+看了下国内网络给他赛博哭坟的不少啊，这样一个反华反堕胎的魔怔人，闲人往国内搬了一些怼民主党支持者的视 ...</blockquote>
+忽略互相歧视的部分，右派的底色都是一样的
+
