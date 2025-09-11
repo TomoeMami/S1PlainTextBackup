@@ -8187,3 +8187,28 @@ R.I. ...</blockquote>
 还有更离谱的选阿川就是救中国呢……</blockquote>
 因为阿川上台美国就会爆炸我国就可以崛起了？好像也不算完全没逻辑？
 
+
+*****
+
+####  张元英  
+##### 768#       发表于 2025-9-12 03:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410608&amp;ptid=2261694" target="_blank">miaoer0623 发表于 2025-9-12 01:42</a>
+
+感叹一句原来菜园是轮子啊，那就不奇怪了。我到现在都记得他那个楼里，有个人非常激动的说，如果taco不当选 ...</blockquote>
+哪个是菜园之州?
+
+*****
+
+####  zeroblaze44  
+##### 769#       发表于 2025-9-12 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410608&amp;ptid=2261694" target="_blank">miaoer0623 发表于 2025-9-12 01:42</a>
+
+感叹一句原来菜园是轮子啊，那就不奇怪了。我到现在都记得他那个楼里，有个人非常激动的说，如果taco不当选 ...</blockquote>
+菜园是轮子这个结论，你怎么得出来的？
+
+你这个发言也太过匪夷所思和莫名其妙了，以至于让我对你后一句话的真实性都感到了怀疑，你的记忆真的可靠吗？
+
+当然也有一种令人熟悉的味道，就是轮子造谣的味道。
+
