@@ -8251,3 +8251,16 @@ R.I. ...</blockquote>
 
 <img src="https://p.sda1.dev/26/b1c23d3257b7fb7c858abfe5f8b1af22/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火箭布雷器  
+##### 773#       发表于 2025-9-12 07:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410798&amp;ptid=2261694" target="_blank">有钱多买小人 发表于 2025-9-12 07:09</a>
+
+据称是凶手使用的步枪。
+
+这个距离上同精度的ar也不会太贵，但栓动有一点好，就是合法度极高</blockquote>
+这不是雷明顿700？
+
