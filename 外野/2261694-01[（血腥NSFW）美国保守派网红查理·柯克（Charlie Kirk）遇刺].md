@@ -8225,3 +8225,17 @@ R.I. ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tillnight  
+##### 771#       发表于 2025-9-12 06:45
+
+ 本帖最后由 tillnight 于 2025-9-12 06:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410533&amp;ptid=2261694" target="_blank">巴达兽 发表于 2025-9-12 01:10</a>
+
+凶手最好是民主党lgbt，懂王中期选举肯定赢了</blockquote>
+为什么有那么多人以为今年是中期选举年？
+
+以及为什么还有人暗戳戳的希望“懂王中期选举最好肯定赢了”。别扯东扯西，对任何不是自认殖人的中国人，西大最好的选举结果是无限反转，最好是永远朝小野大。
+
