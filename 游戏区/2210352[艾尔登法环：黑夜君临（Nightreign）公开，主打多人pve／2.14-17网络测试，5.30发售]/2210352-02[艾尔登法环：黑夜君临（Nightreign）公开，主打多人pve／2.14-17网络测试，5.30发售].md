@@ -387,3 +387,23 @@
 
 刚打了一场深夜，复仇酱开局捡的印记是淋雨伤害+100%，跑圈的时候忘了这茬了，直接淋死XD 然后boss是人马，灭了
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 1662#       发表于 2025-9-11 21:03
+
+笑死我了，开局监牢石肤众王，执行者还引来了黑剑眷属，堆尸赢了之后狗屁没给，遗迹是红名看门狗，一刀劈死三个XD
+
+第一晚所有人2级打王，偏偏是蚯蚓脸，全灭
+
+有开荒内味了嗷，过几天都熟了就没意思了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/11/210334z4jb0f6sen30ghdf.jpg" referrerpolicy="no-referrer">
+
+<strong>20250911205148_1.jpg</strong> (639.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 21:03 上传
+

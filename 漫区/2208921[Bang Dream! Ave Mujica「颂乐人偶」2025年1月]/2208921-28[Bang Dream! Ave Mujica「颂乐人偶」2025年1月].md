@@ -4321,3 +4321,11 @@ MyGo 漫畫這話Soyo 就是在後面拱火
 
 一想到她後面要被回旋鏢打爆就想笑了
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41273#       发表于 2025-9-11 21:03
+
+soyo视角漫画心里的想法写出来很多，都没有一开始动画里那种腹黑的感觉了，现在纯纯走一步看一步的小笨蛋<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
