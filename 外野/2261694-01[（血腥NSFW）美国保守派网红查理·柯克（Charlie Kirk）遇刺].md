@@ -1828,3 +1828,126 @@ maga们这能忍, 赶快向白左动手啊<img src="https://static.stage1st.com/
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">美国人应该在辩经时更多的运用效率高见效快的武器的批判
 别天天光记着在路边和学校玩啊
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 196#       发表于 2025-9-11 09:49
+
+这感觉：被高速BB弹命中的概率不为0
+
+*****
+
+####  SwitchAttach  
+##### 197#       发表于 2025-9-11 09:49
+
+怎么才降半旗啊，开🔫打回去啊，你米国国家传统都忘了还好意思叫maga
+
+*****
+
+####  saizeriya  
+##### 198#       发表于 2025-9-11 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405580&amp;ptid=2261694" target="_blank">lyt777 发表于 2025-9-11 09:38</a>
+但是我还是希望能有个嘴替来喷LGBT。
+
+仔细想想他和魏德尔在国内的生态位比较类似。 ...</blockquote>
+错了，这人是户晨风生态位，魏德尔好歹是正经的上议会里喷人的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  2017.05.04  
+##### 199#       发表于 2025-9-11 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405628&amp;ptid=2261694" target="_blank">bindata 发表于 2025-9-11 09:46</a>
+
+bibi干的可能性不能为0</blockquote>
+确实有可能
+
+*****
+
+####  poor  
+##### 200#       发表于 2025-9-11 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405010&amp;ptid=2261694" target="_blank">nightraven 发表于 2025-9-11 07:43</a>
+
+说不定许多年后会有人捶胸顿足道：倘若柯克在，断不会使我大美如此也
+
+—— 来自 OnePlus PKR110, Android  ...</blockquote>
+好事啊，说明死了都不知道怎么死的，下次继续死<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Prushka  
+##### 201#       发表于 2025-9-11 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405628&amp;ptid=2261694" target="_blank">bindata 发表于 2025-9-11 09:46</a>
+bibi干的可能性不能为0</blockquote>
+什么软件，能把used翻译成我们ed<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  月白天青  
+##### 202#       发表于 2025-9-11 09:54
+
+还是持枪的人不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/26/40c00918a223ecb71fbf2d2527e71901/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  卡修_Kasio  
+##### 203#       发表于 2025-9-11 09:55
+
+这就降半旗了？我还以为是给911降旗的呢。。以后阿美911到底纪念哪个
+
+*****
+
+####  bindata  
+##### 204#       发表于 2025-9-11 09:55
+
+<blockquote>Prushka 发表于 2025-9-11 09:52
+什么软件，能把used翻译成我们ed
+
+论坛助手,iPhone</blockquote>
+微软翻的，机翻看看就好
+
+*****
+
+####  苍之轨迹  
+##### 205#       发表于 2025-9-11 09:56
+
+红脖子太拉了，一群全都是支持持枪的，但一个带枪打回去的都没有<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanayashikijp  
+##### 206#       发表于 2025-9-11 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405544&amp;ptid=2261694" target="_blank">ゆゆうた 发表于 2025-9-11 09:34</a>
+
+这人就是靠诡辩+挑选对手+切片获得的善辩形象（which和管人一样），可以去看看剑桥场这人是怎么被喷的。 ...</blockquote>
+这种互联网时代民粹意见领袖，就喜欢和知识储备、思辨能力远不如自己的人对线，把对方耍的团团转然后宣布胜利。
+
+*****
+
+####  ShinShiHT  
+##### 207#       发表于 2025-9-11 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405694&amp;ptid=2261694" target="_blank">卡修_Kasio 发表于 2025-9-11 09:55</a>
+
+这就降半旗了？我还以为是给911降旗的呢。。以后阿美911到底纪念哪个</blockquote>
+再降一半就是了，日降其半，万世不竭
+
+*****
+
+####  露综bot一号机  
+##### 208#       发表于 2025-9-11 09:57
+
+极左还是比老→癫多了
+
