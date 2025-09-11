@@ -7431,3 +7431,29 @@ MAGA要塑造的共同体be like</blockquote>
 那你应该知道为什么黄也是异端了，因为根本就不是最大的右，你认错了</blockquote>
 虽然我也知道皇汉本质cosplay团体，但想着cosplay总该也有点真情在吧，结果真情有几分呢
 
+
+*****
+
+####  牛顿学物理  
+##### 703#       发表于 2025-9-11 19:54
+
+ 本帖最后由 牛顿学物理 于 2025-9-11 19:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409139&amp;ptid=2261694" target="_blank">丸山之上缤纷彩 发表于 2025-9-11 19:33</a>
+
+其实LGBT把T切割出去就行，前面LGB多少也算人类传统，唯独T是后来整出来的烂活，你看你说的这些东西其实 ...</blockquote>
+现在还在妄想能把T切出去。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+一个为了身份政治搞出来的邪教团体还妄想和T这种天生的身份政治群体搞切割？
+
+你见过纳粹和种族主义切割的吗？
+
+*****
+
+####  扎克远山  
+##### 704#       发表于 2025-9-11 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408947&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 19:02</a>
+
+白右杀没杀到我不知道，反正白左已经杀到门口了，谁来保护他们呢？</blockquote>
+所以这就是你躲在自己的保卫者身后跟敌人共情，对着保卫者哈气的原因？你怎么这么贱呢你？
+
