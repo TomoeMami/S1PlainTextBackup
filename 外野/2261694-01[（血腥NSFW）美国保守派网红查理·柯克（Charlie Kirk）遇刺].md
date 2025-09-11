@@ -3438,3 +3438,53 @@ http://xhslink.com/o/9aCtHV4rsJf</blockquote>
 
 还不如烂大街的枪械来得方便
 
+
+*****
+
+####  Pfizer  
+##### 355#       发表于 2025-9-11 12:36
+
+兄弟们快去小红书围观
+
+左右两派美国人在小红书互喷呢
+
+95 【Pray for Charlie Kirk ! - momo | 小红书 - 你的生活兴趣社区】 😆 1YYkUH75phPnS1F 😆 [https://www.xiaohongshu.com/disc ... sec_source=pc_share](https://www.xiaohongshu.com/discovery/item/68c1e29e000000001d0080a2?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=CBDN7p28vF3mUBPBSoS6qcn7DO-Hkgg-s02rWGFs6FK5c=&amp;xsec_source=pc_share)
+
+97 【Charlie Kirk in 2023 - Bobby Kantor | 小红书 - 你的生活兴趣社区】 😆 GTJ5rtOmg2oZ0qK 😆 [https://www.xiaohongshu.com/disc ... sec_source=pc_share](https://www.xiaohongshu.com/discovery/item/68c216bf000000001d012d18?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=ABtRca-PYwh-IwXqddtEG__gic0ZxsRYUkpLWbSaL_JQc=&amp;xsec_source=pc_share)
+
+*****
+
+####  行政裁定书  
+##### 356#       发表于 2025-9-11 12:37
+
+好啊，最好你美两边打起来，互相鲨，加速
+
+*****
+
+####  蠢吐槽  
+##### 357#       发表于 2025-9-11 12:37
+
+呃呃 看了下这个人的演讲和辩论视频，我咋感觉他的风格跟户子直播连麦一毛一样。都是那种咄咄逼人，抓住一个点拷打
+
+*****
+
+####  掘墓人  
+##### 358#       发表于 2025-9-11 12:39
+
+治不了老川还治不了你？
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Benighted  
+##### 359#       发表于 2025-9-11 12:40
+
+<img src="https://img.stage1st.com/forum/202509/11/124010phoho04aa5s0mqs4.jpg" referrerpolicy="no-referrer">
+
+<strong>G0g6dSWXoAEsd_W.jpg</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 12:40 上传
+
