@@ -3662,3 +3662,86 @@ fpv教程相较于爆炸物和rpg弹头还是好弄一点
 第一次体会？早就说了泥潭老右除了不支持鱿鱼和无脑反华之外，早就在几乎任何议题上都和欧美另类右翼大团 ...</blockquote>
 因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全世界日子人都面临左派的双标和迫害。左派不是最喜欢讲觉醒文化和团结吗？这其实就是保守日子人的觉醒和团结。
 
+
+*****
+
+####  御姐控之耻  
+##### 375#       发表于 2025-9-11 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406171&amp;ptid=2261694" target="_blank">痴货 发表于 2025-9-11 11:14</a>
+. 发现个更神奇的，这个人和另一个人Bill Montgomery成立了保守组织Turning Point (TPUSA)，COVID期间极端 ...</blockquote>
+宁愿得病死也要反口罩疫苗的因为传染病死了。
+宁愿被枪杀也要反禁枪的被枪杀了。
+
+这组织很硬核啊，突出一个求仁得仁。
+
+
+*****
+
+####  busuoni  
+##### 376#       发表于 2025-9-11 13:10
+
+<blockquote>season1237 发表于 2025-9-11 13:05
+因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全 ...</blockquote>
+唉正常日子，唉左派
+
+*****
+
+####  永远的访客  
+##### 377#       发表于 2025-9-11 13:12
+
+拥枪派：看到没，需要枪才能保护自己
+
+禁枪派：看到没，只要有枪就能解决拥枪派
+
+所以今天美国枪支相关股票暴涨？<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aeolus039  
+##### 378#       发表于 2025-9-11 13:14
+
+阻止这些右派魔怔人上门像杀朝鲜渔民一样杀你全家的是老钟的武器，而不是右派是好人，望周知
+
+
+*****
+
+####  卖哥  
+##### 379#       发表于 2025-9-11 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406695&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 12:54</a>
+
+因为比起民主党输出的恶心人的女权和lgbt做的恶，白右还是太拟人了。
+
+本来歧视就是相互的，咱这里歧视美 ...</blockquote>
+历史上的压迫是存在的，得到平权是应当的，问题是现在**弄的很恶心
+
+说白了，这是左的议题被抢了方向盘。
+
+让左的路线偏离了实际操作的可行性，偏离了生产力发展的客观规律，得利的恰恰是右。
+
+所以民主党真的是左么？
+
+*****
+
+####  umbasa  
+##### 380#       发表于 2025-9-11 13:16
+
+<img src="https://img.stage1st.com/forum/202509/11/131559a513ccl1ne00rlyy.jpg" referrerpolicy="no-referrer">
+
+<strong>1757567678989.jpg</strong> (86.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 13:15 上传
+
+“你曾近距离见过枪击吗，它拯救的生命多到超乎你的想象”
+
+*****
+
+####  wgoenitz  
+##### 381#       发表于 2025-9-11 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405276&amp;ptid=2261694" target="_blank">胖达君 发表于 2025-9-11 08:56</a></blockquote>
+Guns kill Devils
+
