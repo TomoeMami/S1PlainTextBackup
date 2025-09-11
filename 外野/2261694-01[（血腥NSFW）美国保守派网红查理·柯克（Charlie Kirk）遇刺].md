@@ -1404,3 +1404,73 @@ THE fire rise！</blockquote>
 
 男儿气概，能动手绝不哔哔！
 
+
+*****
+
+####  行政裁定书  
+##### 151#       发表于 2025-9-11 09:07
+
+他曾经支持以色列，但后面开始轻微批评，并说爱泼斯坦是摩萨德，还邀请过反锡安主义者上他节目。
+
+他担心过鱿鱼会暗杀他。
+
+bibi在事发几分钟后就转推
+
+*****
+
+####  sdeplee  
+##### 152#       发表于 2025-9-11 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405095&amp;ptid=2261694" target="_blank">真贝尔奈普斯 发表于 2025-9-11 08:13</a>
+
+还是牛逼，左摇右晃就躲过去了，这个就是个废物，就这么呆坐着，没学到精髓
+
+—— 来自 Xiaomi 23049RAD8C, ...</blockquote>
+他前后晃 身法不对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanayashikijp  
+##### 153#       发表于 2025-9-11 09:08
+
+更黑色幽默的是，就在他中枪之前，和大伙抬杠的话题正是控枪 <blockquote>“那你倒是说说有多少变性人枪手？” -“很多。” “你知道一年有多少大规模枪击吗？” -“黑帮火并要不要算进来？” ——啪</blockquote>
+
+*****
+
+####  妄想騎士  
+##### 154#       发表于 2025-9-11 09:08
+
+天诛<img src="https://static.stage1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sandro  
+##### 155#       发表于 2025-9-11 09:12
+
+宝这不得重拳出击？
+
+*****
+
+####  shiraikuroko  
+##### 156#       发表于 2025-9-11 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404965&amp;ptid=2261694" target="_blank">tuatha 发表于 2025-9-11 07:15</a>
+
+原来是这位，看过他舌战群大学生，还挺像那么回事的</blockquote>
+喜欢辨经是吧？那用你最爱的持枪来物理辨经
+
+*****
+
+####  胜改藏  
+##### 157#       发表于 2025-9-11 09:12
+
+【美国白左狂欢庆祝：保守派意见领袖查理柯克被刺身亡！-哔哩哔哩】 https://b23.tv/KkdPB0Z
+
+*****
+
+####  欧比旺  
+##### 158#       发表于 2025-9-11 09:13
+
+好似<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
