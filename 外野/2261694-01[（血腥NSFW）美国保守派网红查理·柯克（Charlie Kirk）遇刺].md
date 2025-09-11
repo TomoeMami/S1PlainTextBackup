@@ -6967,3 +6967,32 @@ MAGA要塑造的共同体be like</blockquote>
 他这么穿一定有他的道理，关我球事</blockquote>
 不关你球事你跳出来给LGBT洗是吃饱了闲的还是你爹妈也是LGBT？
 
+
+*****
+
+####  xuanwu_lei  
+##### 660#       发表于 2025-9-11 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408721&amp;ptid=2261694" target="_blank">火箭布雷器 发表于 2025-9-11 18:15</a>
+不关你球事你跳出来给LGBT打掩护是吃饱了闲的还是你爹妈也是LGBT？</blockquote>
+不想玩塞勒姆荡秋千游戏的理由还不够吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 661#       发表于 2025-9-11 18:21
+
+狗咬狗 人在旁边不看笑话
+
+非要跳下场子帮一条狗咬另一条狗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  嵐色羽空  
+##### 662#       发表于 2025-9-11 18:24
+
+上升到政治谋杀了，<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">什么时候内战
+
