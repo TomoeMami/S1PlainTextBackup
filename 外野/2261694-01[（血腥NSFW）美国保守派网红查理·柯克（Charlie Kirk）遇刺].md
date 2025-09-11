@@ -3018,3 +3018,94 @@ bibi干的可能性不能为0</blockquote>
 
 据说是.22打的，这枪准的可怕了
 
+
+*****
+
+####  毛线夜  
+##### 314#       发表于 2025-9-11 11:47
+
+接下来的剧本可以按此流程发展
+
+step1查理柯克是**总统的心腹，坚定支持**总统的决定。据**总统的保镖反应，两人经常在办公室里彻夜长聊，**总统甚至把自己的床让给查理柯克，而自己跑去睡沙发……
+
+step2**总统对查理柯克的遇刺极为震怒，下令要求严查
+
+step3警卫在护送枪击案证人去NYPD的路上，突然遭遇车祸，证人当场死亡，但其他警卫全部毫发无伤
+
+step4……
+
+*****
+
+####  大义灭亲林有德  
+##### 315#       发表于 2025-9-11 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406300&amp;ptid=2261694" target="_blank">stmule 发表于 2025-9-11 11:35</a>
+
+我想了想，fpv有啥难的，我咬咬牙都能装
+
+对我来说难点大概在电烙铁，其他不是有手就行</blockquote>
+我就这么跟你说吧，现在还能自己手搓点东西的美国人要不是移民，要不是40岁左右受过良好教育或者有专业背景的人，剩下的20~30岁左右的teen或者红脖子，他的“药理学”知识可能才是最丰富的，好多国人对牢美这10年以来国民整体有多堕落，全民素质有多下滑其实没什么概念。
+
+*****
+
+####  西瓜不甜不甜  
+##### 316#       发表于 2025-9-11 11:47
+
+意思是这个人反对禁枪，支持拥有枪支，然后被人用枪干掉了。
+
+支持禁枪，反对他的人，因为辩不过他，用枪把他干掉了？？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  守名居  
+##### 317#       发表于 2025-9-11 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405421&amp;ptid=2261694" target="_blank">句扶 发表于 2025-9-11 09:18</a>
+所以说凭啥，就一幕僚没了凭啥全国下半旗？</blockquote>
+你不下场撑网红
+其他听你差遣/为你冲锋网红怎么看你，怎么给你办事？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玉渊谭天扒过taco的支持者的组成，不少是自媒体和跨界网红
+
+
+*****
+
+####  fangJmin  
+##### 318#       发表于 2025-9-11 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406356&amp;ptid=2261694" target="_blank">毛线夜 发表于 2025-9-11 11:47</a>
+接下来的剧本可以按此流程发展
+
+step1查理柯克是**总统的心腹，坚定支持**总统的决定。据**总统的保镖反应 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把什么时候“我们的身后就是华盛顿dc”
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  nosmokingsp  
+##### 319#       发表于 2025-9-11 11:53
+
+我就说吧，左派做事就是这么没有底线的，“防止右，但更要提防左”
+
+*****
+
+####  chris1987  
+##### 320#       发表于 2025-9-11 11:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以把枪叫做真理。。
+
+
+*****
+
+####  又怎么啦？  
+##### 321#       发表于 2025-9-11 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406243&amp;ptid=2261694" target="_blank">大义灭亲林有德 发表于 2025-9-11 11:24</a>
+
+我不想抬杠，不过一年枪战死几万人的牢美独一家，甚至超过俄乌战场，蓝星独此一家。
+
+另外FPV和自爆泥头车 ...</blockquote>
+好玩美国每年枪击死那个几万人相当部分是自己人误击或自杀，各种用枪的谋杀暗杀又可能相当部分没统计进去
+
