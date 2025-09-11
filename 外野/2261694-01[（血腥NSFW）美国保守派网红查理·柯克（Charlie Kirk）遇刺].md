@@ -7289,3 +7289,53 @@ MAGA要塑造的共同体be like</blockquote>
 
 说明互联网还是好的，起码避免了很多辩着辩着动手的情况<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  manysun  
+##### 690#       发表于 2025-9-11 19:17
+
+是AR-15击中的！为什么知道，是他自己说的！
+
+<img src="https://img.stage1st.com/forum/202509/11/191634ikrz7edrzr33gvoq.jpg" referrerpolicy="no-referrer">
+
+<strong>output.jpg</strong> (33.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 19:16 上传
+
+这条推火了，哈哈，14年的预测
+
+*****
+
+####  poor  
+##### 691#       发表于 2025-9-11 19:18
+
+这哥们的推简直宝藏啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  胜改藏  
+##### 692#       发表于 2025-9-11 19:18
+
+<blockquote>manysun 发表于 2025-9-11 19:17
+是AR-15击中的！为什么知道，是他自己说的！
+
+这条推火了，哈哈，14年的预测 ...</blockquote>
+这就是圣啊，自我预言。
+
+
+*****
+
+####  卡嘎米  
+##### 693#       发表于 2025-9-11 19:20
+
+ 本帖最后由 卡嘎米 于 2025-9-11 19:22 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+但是右应该同情不了对面右，因为立场根本相反，除非脑子不灵光。
+
+什么叫因为对岸右杀对岸左所以支持的？
+
