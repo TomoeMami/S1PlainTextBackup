@@ -3109,3 +3109,85 @@ step1查理柯克是**总统的心腹，坚定支持**总统的决定。据**总
 另外FPV和自爆泥头车 ...</blockquote>
 好玩美国每年枪击死那个几万人相当部分是自己人误击或自杀，各种用枪的谋杀暗杀又可能相当部分没统计进去
 
+
+*****
+
+####  卖哥  
+##### 322#       发表于 2025-9-11 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406395&amp;ptid=2261694" target="_blank">nosmokingsp 发表于 2025-9-11 11:53</a>
+
+我就说吧，左派做事就是这么没有底线的，“防止右，但更要提防左”</blockquote>
+那说明你没理解这句话。
+
+这句话的意思是左在革命国家有天然正确性，缺乏自然阻力，是更危险的存在。
+
+在美国其实是倒过来的，右能加速，左闹不大。
+
+*****
+
+####  就咋的  
+##### 323#       发表于 2025-9-11 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406359&amp;ptid=2261694" target="_blank">西瓜不甜不甜 发表于 2025-9-11 11:47</a>
+
+意思是这个人反对禁枪，支持拥有枪支，然后被人用枪干掉了。
+
+支持禁枪，反对他的人，因为辩不过他，用枪把 ...</blockquote>
+这两拨人用“辩论”不合适，算是互相输出歪理邪说的“抡便”，死了一个到处泄愤的
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼丈人  
+##### 324#       发表于 2025-9-11 11:58
+
+突然注意到他伤的地方和前两天那个乌克兰女生是一样的，该不会是枪手故意的吧
+
+
+*****
+
+####  Kynareth  
+##### 325#       发表于 2025-9-11 12:00
+
+心诚则灵了属于是
+
+—— 来自 OnePlus PGP110, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nianiania  
+##### 326#       发表于 2025-9-11 12:01
+
+美国什么时候内战，好急啊
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  余海露  
+##### 327#       发表于 2025-9-11 12:02
+
+这就是民主的真谛啊  biu~
+妈民主在德国短短两周接连胜利了7次，民主在米国两天内实现二连胜
+
+加油啊
+
+*****
+
+####  valand  
+##### 328#       发表于 2025-9-11 12:05
+
+只关心会不会引发全美范围的骚乱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Siran_China  
+##### 329#       发表于 2025-9-11 12:06
+
+这人我还看过他不少视频，辩论的一把好手，喜欢在路边摆场子和随机路人辩论政治观点，没有准备的路人哪能比得过他一个主持人出身，基本上没两回合都会败下阵来<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+印象最深的是去年竞选期间有个视频，一个金发女大学生，大概率民主党，辩不过就耍小手段，用手把胸前衣服往下拉，据说是借ytb的审核规则想让视频下架<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过后来没成功就是了，这个视频还相当火
+

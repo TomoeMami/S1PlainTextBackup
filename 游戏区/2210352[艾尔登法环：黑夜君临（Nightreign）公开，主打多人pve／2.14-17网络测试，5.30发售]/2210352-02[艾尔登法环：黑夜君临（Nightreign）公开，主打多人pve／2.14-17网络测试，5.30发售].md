@@ -257,3 +257,14 @@
 
 无赖深夜不行了，深夜伤害太高了无赖没法换血了
 
+
+*****
+
+####  luodang007  
+##### 1649#       发表于 2025-9-11 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406277&amp;ptid=2210352" target="_blank">桥洞底下盖小被 发表于 2025-9-11 11:30</a>
+
+无赖深夜不行了，深夜伤害太高了无赖没法换血了</blockquote>
+那其它角色不是更脆，听起来好难<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
