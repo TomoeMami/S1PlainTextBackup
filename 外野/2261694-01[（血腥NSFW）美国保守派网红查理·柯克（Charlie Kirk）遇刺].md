@@ -3191,3 +3191,70 @@ step1查理柯克是**总统的心腹，坚定支持**总统的决定。据**总
 
 印象最深的是去年竞选期间有个视频，一个金发女大学生，大概率民主党，辩不过就耍小手段，用手把胸前衣服往下拉，据说是借ytb的审核规则想让视频下架<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过后来没成功就是了，这个视频还相当火
 
+
+*****
+
+####  试制甲炮  
+##### 330#       发表于 2025-9-11 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406395&amp;ptid=2261694" target="_blank">nosmokingsp 发表于 2025-9-11 11:53</a>
+
+我就说吧，左派做事就是这么没有底线的，“防止右，但更要提防左”</blockquote>
+6月份明尼苏达州两位民主党议员被枪击的时候就有底线了？
+
+*****
+
+####  black199  
+##### 331#       发表于 2025-9-11 12:06
+
+美国那情况不存在禁枪，看看常常被玩梗的阿拉巴马或者圣路易斯安娜那情况，城堡法有天然正确性，国家jc很难覆盖全的。 但是不禁枪不代表不进行枪支管制，奈何一是党争让观点极化了，象党表示我已经枪支管制了，二是高举禁枪大旗的驴党对社会治安连装都不装了，完全纵容黑人黑帮犯罪
+
+*****
+
+####  yanghuangu  
+##### 332#       发表于 2025-9-11 12:07
+
+懂王这最近去哪都是嘘声，正愁没处发难吧，接下来估计好戏不断啊
+
+
+*****
+
+####  天选之子  
+##### 333#       发表于 2025-9-11 12:10
+
+<blockquote>鱼丈人 发表于 2025-9-11 11:58
+突然注意到他伤的地方和前两天那个乌克兰女生是一样的，该不会是枪手故意的吧 ...</blockquote>
+不一样，他是左颈中枪，乌克兰女难民是右颈被刺。
+
+*****
+
+####  天选之子  
+##### 334#       发表于 2025-9-11 12:11
+
+<blockquote>valand 发表于 2025-9-11 12:05
+只关心会不会引发全美范围的骚乱
+
+—— 来自 OPPO PHZ110, Android 15, 鹅球 v3.5.99</blockquote>
+想多了，新冠病毒搞死两百万人都没发生骚乱。
+
+*****
+
+####  sunanya  
+##### 335#       发表于 2025-9-11 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405127&amp;ptid=2261694" target="_blank">Saa123 发表于 2025-9-11 08:20</a>
+
+物理消灭是否是玩不起的表现</blockquote>
+怎么叫玩不起呢
+
+人家认为拥枪天生正义，反对者只是用实际行动来驳斥他的观点
+
+*****
+
+####  windtrack  
+##### 336#       发表于 2025-9-11 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406462&amp;ptid=2261694" target="_blank">Siran_China 发表于 2025-9-11 12:06</a>
+这人我还看过他不少视频，辩论的一把好手，喜欢在路边摆场子和随机路人辩论政治观点，没有准备的路人哪能比 ...</blockquote>
+就和美国那种连100以内加减法算不出来，谁偷袭珍珠港不知道，找不到俄罗斯在地图上什么地方的人辩论赢了=辩论的一把好手？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
