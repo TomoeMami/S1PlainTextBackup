@@ -678,3 +678,136 @@ LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的
 
 看来还是武器的批判管用啊，maga。愿所有有志让美国再次伟大的人拿起武器好好批判一番<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 74#       发表于 2025-9-11 08:07
+
+所以已经抓错两个人了
+
+*****
+
+####  你妈的为什么  
+##### 75#       发表于 2025-9-11 08:07
+
+这枪法可以。可惜没有爆头<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  moekyo  
+##### 76#       发表于 2025-9-11 08:10
+
+这才对嘛，不然你美国人人均持枪量这么高干嘛
+
+*****
+
+####  天选之子  
+##### 77#       发表于 2025-9-11 08:11
+
+<blockquote>link@1018max 发表于 2025-9-11 08:05
+看来还是武器的批判管用啊，maga。愿所有有志让美国再次伟大的人拿起武器好好批判一番 ...</blockquote>
+三亿美国人拿起武器互相批判。
+
+*****
+
+####  pandaman7777  
+##### 78#       发表于 2025-9-11 08:11
+
+可谓是艺术源于生活切低于生活了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aeolus039  
+##### 79#       发表于 2025-9-11 08:13
+
+说实话美国左派和dem还是喜欢遵守规矩，要不然早该提枪开干了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+希望这事成为你美大吃鸡开始<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真贝尔奈普斯  
+##### 80#       发表于 2025-9-11 08:13
+
+还是<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">牛逼，左摇右晃就躲过去了，这个就是个废物，就这么呆坐着，没学到精髓<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  siebten  
+##### 81#       发表于 2025-9-11 08:13
+
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 或者说信白左的脑子确实比信上帝的弱一点
+
+*****
+
+####  zxlice  
+##### 82#       发表于 2025-9-11 08:13
+
+离谱
+
+*****
+
+####  iceplatinum  
+##### 83#       发表于 2025-9-11 08:14
+
+这事有点恐怖了。。。
+
+*****
+
+####  dclara1  
+##### 84#       发表于 2025-9-11 08:15
+
+去大学舌战群左的maga网红我只知道那个英国犹太基佬Milo，那会也是风头很盛，不过那是川宝第一届那会的事了，不知近况如何，也好多年没刷到了
+
+*****
+
+####  变老的大二  
+##### 85#       发表于 2025-9-11 08:15
+
+看看这个距离，尼孩你忏悔吧
+
+<img src="https://img.stage1st.com/forum/202509/11/081522y090gj286p87p9zp.jpg" referrerpolicy="no-referrer">
+
+<strong>1000027652.jpg</strong> (62.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 08:15 上传
+
+*****
+
+####  yesandno  
+##### 86#       发表于 2025-9-11 08:15
+
+哈哈哈，有意思
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  2017.05.04  
+##### 87#       发表于 2025-9-11 08:15
+
+stand alone complex了
+还有辩不辩的过他的这个问题，你辩过了他会把视频放出来吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现任副总统也是辩论好手
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  aeolus039  
+##### 88#       发表于 2025-9-11 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405101&amp;ptid=2261694" target="_blank">dclara1 发表于 2025-9-11 08:15</a>
+去大学舌战群左的maga网红我只知道那个英国犹太基佬Milo，那会也是风头很盛，不过那是川宝第一届那会的事了 ...</blockquote>
+那人好像给炼铜洗地寄了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
