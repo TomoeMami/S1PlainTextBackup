@@ -2063,3 +2063,81 @@ bibi干的可能性不能为0</blockquote>
 
 用生命捍卫观点的伟人<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索拉利斯  
+##### 219#       发表于 2025-9-11 10:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">鼓吹拥抢的人有一种很奇特的思维，就好像获得了武器就自动获得了战斗的决心一样
+
+结果MAGA红脖们拥抢亿万，活得像条龟，除了校园屠杀什么也做不到，一旦摊上大事就会被对面当猪宰
+
+还是我的朋友老周说得好啊，弱者拔刀，只会向更弱者
+
+*****
+
+####  最后的要塞  
+##### 220#       发表于 2025-9-11 10:10
+
+卧槽b站经常给我推他找大学生辩论的视频，辩论水平血虐大学生。没想到最后结局是被肉体血虐。
+
+*****
+
+####  pu  
+##### 221#       发表于 2025-9-11 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405628&amp;ptid=2261694" target="_blank">bindata 发表于 2025-9-11 09:46</a>
+
+bibi干的可能性不能为0</blockquote>
+这人我看了几个洗鱿鱼辩论被喷爆的
+
+诡辩如此他也洗不下去了 
+
+最近在批评以色列
+
+剑桥辩论洗鱿鱼被爆的体无完肤
+
+所以你不可能辩赢一个根本不对的事情
+
+*****
+
+####  璇瑢子R  
+##### 222#       发表于 2025-9-11 10:11
+
+美国降半旗应该挺普通的。我以前上学的时候旗升满了才是罕见现象
+
+*****
+
+####  猫出没注意  
+##### 223#       发表于 2025-9-11 10:11
+
+适合拥枪派的唯一死法是被枪击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  waterstars  
+##### 224#       发表于 2025-9-11 10:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实就是，红脖子白右天天嗷嗷持枪，枪械保护人民
+
+但左边才真敢掏出来除魔卫道
+
+
+*****
+
+####  Ashice  
+##### 225#       发表于 2025-9-11 10:12
+
+被气步枪200码外一枪干掉算不算上帝来收人头了？
+
+*****
+
+####  2017.05.04  
+##### 226#       发表于 2025-9-11 10:15
+
+保守主义者（红脖）和新自由主义（白左）只是美国人的一体两面，实际上都是被来回割的韭菜，里面的日子人是绝对多数，但是揪几个典型出来来回煽动这两个群体之间的矛盾倒是特别好使
+发动群众斗群众嘛
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
