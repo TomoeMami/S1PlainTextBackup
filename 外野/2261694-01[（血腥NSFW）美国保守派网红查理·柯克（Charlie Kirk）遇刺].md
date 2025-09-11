@@ -5773,3 +5773,85 @@ XD
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xwr  
+##### 560#       发表于 2025-9-11 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407826&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 16:00</a>
+
+人类生活在现实世界
+
+物理消灭永远是一个选择
+
+无视这种选择，那是理想主义，恰恰是脱离现实的。</blockquote>
+他还是年轻，觉得搞意识形态斗争就和宣教差不多，只要多接触人特别是年轻人，身体力行搞对话扩散思想拉人进平台就行，很显然他可能没意识到美国已经过了这个阶段......
+
+
+*****
+
+####  喷气推进实验室  
+##### 561#       发表于 2025-9-11 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407431&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-11 08:08</a>
+
+讲实话，我一直认为摩根——你坛ID菜园之州——那个假女人真轮子一直在视奸你坛，他那个小团伙也一直忽悠自 ...</blockquote>
+啥？轮子？这倒不知道。单纯好奇有啥证据吗？
+
+*****
+
+####  lokok  
+##### 562#       发表于 2025-9-11 16:10
+
+小时候还觉得gta罪恶都市枪击效果太夸张。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  123gp199  
+##### 563#       发表于 2025-9-11 16:11
+
+<blockquote>2017.05.04 发表于 2025-9-11 09:01
+美帝网红的特点，起号快销号也快
+
+—— 来自 HUAWEI PLA-AL10, Android 12, 鹅球 v3.5.99-alpha ...</blockquote>
+他直接掺和政治比奶龙还早，18岁就出来键政，混了10多年期间搭上了保守派财阀，才能有今天的声势
+
+*****
+
+####  samuel.j  
+##### 564#       发表于 2025-9-11 16:12
+
+从帖子里某几个人可以明显看出，美在华远程养殖其实是全方位无死角的，什么派别都有渗透进来。当然，你如果仔细的话还会发现日甚至俄也会玩广撒网多捞鱼
+
+*****
+
+####  卖哥  
+##### 565#       发表于 2025-9-11 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407891&amp;ptid=2261694" target="_blank">xwr 发表于 2025-9-11 16:08</a>
+
+他还是年轻，觉得搞意识形态斗争就和宣教差不多，只要多接触人特别是年轻人，身体力行搞对话扩散思想拉人 ...</blockquote>
+拥枪主义者有几个敢对校园枪击说可接受的代价，还是反复说的。
+
+这每一次都是在提醒别人，可以用那个绝妙的回答。
+
+*****
+
+####  双面人  
+##### 566#       发表于 2025-9-11 16:13
+
+<blockquote>失落之翼 发表于 2025-9-11 16:06
+期望是美国的一个转折点，五十诸侯共逐鹿，想看</blockquote>
+国贼**嘛（超大声）
+
+
+*****
+
+####  czs13  
+##### 567#       发表于 2025-9-11 16:16
+
+乡巴佬万斯干的，动机是扼杀参选下届总统的竞争对手。<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
