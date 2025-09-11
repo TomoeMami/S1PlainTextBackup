@@ -2192,3 +2192,73 @@ bibi干的可能性不能为0</blockquote>
 
 打起来.jpg
 
+
+*****
+
+####  古桥一浩  
+##### 233#       发表于 2025-9-11 10:29
+
+原来红脖子的红，是这么个红法。
+
+*****
+
+####  月白天青  
+##### 234#       发表于 2025-9-11 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405727&amp;ptid=2261694" target="_blank">agsva 发表于 2025-9-11 10:00</a>
+这种对防止大规模突突的估计还能有点用。
+
+像之前奶龙和这次这类定点暗杀的就没用了。 ...</blockquote>
+那可能是他自己忘带枪了。
+这哥们的回旋镖言论太乐了，无死角的<img src="https://p.sda1.dev/26/8edc7af5783d9392e59fdbc3a824756e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kris_chris  
+##### 235#       发表于 2025-9-11 10:31
+
+这是变成真正的红脖子了~~~
+
+*****
+
+####  Paradox7  
+##### 236#       发表于 2025-9-11 10:31
+
+最好真是犹太人干的
+
+
+*****
+
+####  cqduoluo  
+##### 237#       发表于 2025-9-11 10:33
+
+回旋镖的含金量
+
+*****
+
+####  千秋难诉  
+##### 238#       发表于 2025-9-11 10:33
+
+就是那个“女儿被雷普都算活该”和“黑人就该当农奴”的那个活体纳粹，他一生做得最伟大的事就是他的死可能进一步撕裂米国社会
+
+*****
+
+####  飛霞精灵  
+##### 239#       发表于 2025-9-11 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405867&amp;ptid=2261694" target="_blank">blbpuu 发表于 2025-9-11 10:23</a>
+
+美国人民拥枪为了反抗暴政，在19世纪之前还是有点成立的。所以我支持每几千万美国人民拥一辆航母以及相应数 ...</blockquote>
+登子真的说过，想反抗，得要有F22。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+几乎是直球告诉说你们拥枪的都是SB、根本别想推翻我们了。
+
+*****
+
+####  qqks  
+##### 240#       发表于 2025-9-11 10:37
+
+什么时候上自主fpv定点暗杀才是真正与时俱进
+
