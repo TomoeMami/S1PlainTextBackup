@@ -2262,3 +2262,131 @@ bibi干的可能性不能为0</blockquote>
 
 什么时候上自主fpv定点暗杀才是真正与时俱进
 
+
+*****
+
+####  cirl01  
+##### 241#       发表于 2025-9-11 10:40
+
+<img src="https://p.sda1.dev/26/172a3803607a256c8412d3a4f714d529/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qqks  
+##### 242#       发表于 2025-9-11 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405936&amp;ptid=2261694" target="_blank">飛霞精灵 发表于 2025-9-11 10:35</a>
+
+登子真的说过，想反抗，得要有F22。
+
+几乎是直球告诉说你们拥枪的都是SB、根本别想推翻我们了。 ...</blockquote>
+老登说这话的时候，脑子明显还活在海湾战争时代。
+
+就现代战争在fpv的打击效率，真要用心打城市游击战，传统陆军兵器屁用都没，f22更加甭提了，难不成不分敌我把街区的人全炸死？
+
+*****
+
+####  仟音一心  
+##### 243#       发表于 2025-9-11 10:41
+
+姐夫也加入战场了？
+
+<img src="https://img.stage1st.com/forum/202509/11/104055qjl7mfmaajpa7s7h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 10:40 上传
+
+*****
+
+####  艾诺琳  
+##### 244#       发表于 2025-9-11 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405690&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 09:54</a>
+
+还是持枪的人不够
+
+—— 来自 OnePlus PJE110, Android 15, 鹅球 v3.5.99</blockquote>
+那这位是遇到了6%的小概率事件吗
+
+
+*****
+
+####  今天不守尸  
+##### 245#       发表于 2025-9-11 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405967&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-11 10:41</a>
+ 姐夫也加入战场了？</blockquote>
+泽圣：卧槽，这也有我的事啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呼鲁鲁修  
+##### 246#       发表于 2025-9-11 10:42
+
+如果抓到凶手又是个黑人精神病，再联想到之前公交车上的白女被捅脖子。。。爆发骚乱也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pfizer  
+##### 247#       发表于 2025-9-11 10:42
+
+美国人对枪支有近乎狂热的爱好，认为用枪杀人才是正道
+
+但是街头杀人最有效率的办法是泥头车或爆炸物 
+
+希望美国人民早日醒悟，早日用上无人自爆百吨王
+
+*****
+
+####  zerocount  
+##### 248#       发表于 2025-9-11 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405969&amp;ptid=2261694" target="_blank">艾诺琳 发表于 2025-9-11 10:42</a>
+
+那这位是遇到了6%的小概率事件吗</blockquote>
+他的这个场景并不是大规模枪击案现场
+
+得多突突几个才能触发这个机制
+
+*****
+
+####  windtrack  
+##### 249#       发表于 2025-9-11 10:45
+
+美国人就该执行蔚蓝档案那种理念，出门不带枪就等于裸奔那种羞耻感普及一下，这样就不会遭遇6%小概率事件了
+
+*****
+
+####  夜光铃  
+##### 250#       发表于 2025-9-11 10:45
+
+好人，死晚了.jpg
+
+*****
+
+####  qqks  
+##### 251#       发表于 2025-9-11 10:46
+
+ 本帖最后由 qqks 于 2025-9-11 10:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405979&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-11 10:42</a>
+
+美国人对枪支有近乎狂热的爱好，认为用枪杀人才是正道
+
+但是街头杀人最有效率的办法是泥头车或爆炸物 </blockquote>
+确实，十几年前的叙利亚自爆卡车还需要死士驾驶，现在ai那么强，无人自爆泥头车堪称巷战神器。
+
+漂亮国这明显还没完全撕破脸，步枪暗杀什么时代的破玩意，上无人机无人大卡车啊
+
+*****
+
+####  Суслов  
+##### 252#       发表于 2025-9-11 10:46
+
+武器的批判还是太有用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
