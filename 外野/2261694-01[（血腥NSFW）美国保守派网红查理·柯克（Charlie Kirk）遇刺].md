@@ -4692,3 +4692,78 @@ MAGA! ! !
 还有一个新表情，“强尼来咯！”
 <img src="https://static.stage1st.com/image/smiley/face2017/278.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 467#       发表于 2025-9-11 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407112&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-11 14:21</a>
+什么情况，这种看乐子的帖子后排两帮人开始黄脖子大战左左了，鉴定为白左和白右的两批精神奴才代理人战争 ...</blockquote>
+精神白左白右已经在知乎打了一个上午了，黄皮小maga又气又急的样子亦是怜爱，，，要是白皮能每天这么互图就爽了<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  胜改藏  
+##### 468#       发表于 2025-9-11 14:30
+
+<blockquote>古凌锋 发表于 2025-9-11 14:26
+不能觉得两边都傻逼吗</blockquote>
+
+嘲讽劳保就变左了，话术上直接排除讽刺劳保的是正常人这个可能。一转对立
+
+*****
+
+####  roaraurora  
+##### 469#       发表于 2025-9-11 14:31
+
+被南方公园cue到可不是什么好兆头
+
+- 奥特曼光速滑跪，声称让chatgpr太会奉承是个错误
+
+- 这位播客网红更是一命呜呼，不会连累到克莱德吧
+
+*****
+
+####  古凌锋  
+##### 470#       发表于 2025-9-11 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407172&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-11 14:30</a>
+
+嘲讽劳保就变左了，话术上直接排除讽刺劳保的是正常人这个可能。一转对立 ...</blockquote>
+噢，感情是装糊涂啊
+
+
+*****
+
+####  卖哥  
+##### 471#       发表于 2025-9-11 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407151&amp;ptid=2261694" target="_blank">古凌锋 发表于 2025-9-11 14:26</a>
+
+不能觉得两边都傻逼吗</blockquote>
+因为没有本质不同，都是上坏下蠢
+
+都是周星驰鹿鼎记里那句反清复明是说给下面人听的。
+
+*****
+
+####  水边井  
+##### 472#       发表于 2025-9-11 14:36
+
+<img src="https://p.sda1.dev/26/adfa4c8dbf75de722f6179f17fdc4af4/image.jpg" referrerpolicy="no-referrer">
+
+bro可以加入少女乐队了
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  TI三冠王AME  
+##### 473#       发表于 2025-9-11 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407172&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-11 14:30</a>
+
+嘲讽劳保就变左了，话术上直接排除讽刺劳保的是正常人这个可能。一转对立 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">楼里拷打右右时开口用黄脖子讽刺劳保的肯定不是从白左那继承了词汇的达利特奴才吧
+
