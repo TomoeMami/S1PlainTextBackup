@@ -1951,3 +1951,115 @@ bibi干的可能性不能为0</blockquote>
 
 极左还是比老→癫多了
 
+
+*****
+
+####  agsva  
+##### 209#       发表于 2025-9-11 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405690&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 09:54</a>
+
+还是持枪的人不够
+
+—— 来自 OnePlus PJE110, Android 15, 鹅球 v3.5.99</blockquote>
+这种对防止大规模突突的估计还能有点用。
+
+像之前奶龙和这次这类定点暗杀的就没用了。
+
+*****
+
+####  ammk  
+##### 210#       发表于 2025-9-11 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405137&amp;ptid=2261694" target="_blank">greataxe_02 发表于 2025-9-11 08:23</a>
+
+白左：批判的武器不能代替武器的批判
+
+—— 来自 S1Fun</blockquote>
+白左要是敢动枪，他就不是现在这个生态位
+
+*****
+
+####  tonyshva  
+##### 211#       发表于 2025-9-11 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405541&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-11 09:33</a>
+唏嘘啥呀，现在的美国政坛除了激进繁华的就是温和繁华的，两边拿起武器互相批判才是⏰喜闻乐见的。 ...</blockquote>
+哎，主要觉得活人这样被弄死过于残忍，而且欧美很多这种愚者形象最后容易被塑造成神，最后反而加强了这股子难闻的味道
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  龙骑士尹志平  
+##### 212#       发表于 2025-9-11 10:01
+
+<blockquote>lyt777 发表于 2025-9-11 09:38
+但是我还是希望能有个嘴替来喷LGBT。
+
+仔细想想他和魏德尔在国内的生态位比较类似。 ...</blockquote>
+魏女士可是中国银行前员工，半颗中国心，这哥们拿什么和魏女士比
+
+*****
+
+####  一骑当千  
+##### 213#       发表于 2025-9-11 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405388&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-11 09:14</a>
+
+奶龙连发3条帖文下令全国降半旗志哀，直至14日傍晚6时。</blockquote>
+一个大网红居然配享如此哀容?
+
+
+*****
+
+####  钢铁之魂  
+##### 214#       发表于 2025-9-11 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405493&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-11 09:26</a>
+
+这什么B人死了都降半旗啊？</blockquote>
+据说这个人在保守派里势头很猛，这几年在养望，已经不输给当年的万斯了，28年出来选保底一个众议员，参议员也是有可能的。
+
+*****
+
+####  首领  
+##### 215#       发表于 2025-9-11 10:03
+
+ 本帖最后由 首领 于 2025-9-11 10:04 编辑 
+
+智者只会被霸凌
+
+不装蠢能混
+
+*****
+
+####  苍之轨迹  
+##### 216#       发表于 2025-9-11 10:05
+
+想起了卡特降半旗中途还被奶龙取消了，漂亮国的降半旗被奶龙玩的毫无含金量了
+
+*****
+
+####  bindata  
+##### 217#       发表于 2025-9-11 10:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以色列杀他的阴谋论是，bibi在以色列的半夜事件发生没几分钟就发推悼念这个人，比美国媒体还跑得快
+
+柯克一个月前对以色列态度转变，区区是bb为了巩固权力养的哈马斯，还说以色列会杀了他
+
+*****
+
+####  windtrack  
+##### 218#       发表于 2025-9-11 10:06
+
+<img src="https://img.stage1st.com/forum/202509/11/100718f6u9o35r6ufdrgrz.png" referrerpolicy="no-referrer">
+
+<strong>fa91c9adb2e66a8ca7b12ae12cc92c71.png</strong> (100.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 10:07 上传
+
+用生命捍卫观点的伟人<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

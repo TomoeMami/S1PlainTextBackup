@@ -210,3 +210,11 @@
 
 砍阿追火刀确实比较怪，这个没到需要砍的地步吧
 
+
+*****
+
+####  jacket  
+##### 1644#       发表于 2025-9-11 09:56
+
+跟几周前预想的一摸一样，出生碰到第一个教堂boss就是强化版石像守卫，开局5分钟直接被打退<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
