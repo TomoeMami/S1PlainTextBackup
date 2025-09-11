@@ -6940,3 +6940,30 @@ MAGA要塑造的共同体be like</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看推上一群日本人哭丧哭得可起劲了，笑死我了
 
+
+*****
+
+####  season1237  
+##### 658#       发表于 2025-9-11 18:12
+
+<blockquote>ccared 发表于 2025-9-11 18:02
+那你就担心自己被大洋对面的左左暴力暗杀，被我戳穿了一转往国内滑坡呗。
+
+一个支持持枪的沙币白皮在三天 ...</blockquote>
+左左在国外杀人。
+
+左左在国内一边诬告一边杀小孩，还在豆瓣号召线下带刀杀人，传授通过伪装溺水法杀人。
+
+都是左左作恶多端，我反对左左在国内国外作恶，你怎么能诬告我支持持枪呢？
+
+
+*****
+
+####  火箭布雷器  
+##### 659#       发表于 2025-9-11 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408678&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 18:05</a>
+
+他这么穿一定有他的道理，关我球事</blockquote>
+不关你球事你跳出来给LGBT洗是吃饱了闲的还是你爹妈也是LGBT？
+
