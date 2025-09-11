@@ -638,3 +638,43 @@ LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的
 
 看有评论说这人对喷不过就疯狂复读maga
 
+
+*****
+
+####  全世界失恋  
+##### 69#       发表于 2025-9-11 08:01
+
+求仁得仁，死得其所，我要是西大军火贩子高低给他立个牌坊
+
+*****
+
+####  畜男不是人  
+##### 70#       发表于 2025-9-11 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404968&amp;ptid=2261694" target="_blank">lactone 发表于 2025-9-10 18:19</a>
+怎么睿站评论区还有不少哭丧的
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+因为网路上有很多这人舌战群儒的切片，完美符合学生对所谓逻辑辩论的向往
+
+*****
+
+####  agsva  
+##### 71#       发表于 2025-9-11 08:05
+
+感觉查到最后还是那种小年轻独狼作案。
+
+*****
+
+####  天青色的西风  
+##### 72#       发表于 2025-9-11 08:05
+
+“这种卑鄙的暴力在我们的民主制度下不应存在”——不止存在，还很频繁呢，你说这是为什么。<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  link@1018max  
+##### 73#       发表于 2025-9-11 08:05
+
+看来还是武器的批判管用啊，maga。愿所有有志让美国再次伟大的人拿起武器好好批判一番<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

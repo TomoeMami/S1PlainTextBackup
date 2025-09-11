@@ -177,3 +177,14 @@
 —— 来自 S1Fun</blockquote>
 确实改了，为了不让你雨中冒险，不懂意义何在，这次一些改动有股教玩家玩游戏的味了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Eutopia  
+##### 1641#       发表于 2025-9-11 07:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404614&amp;ptid=2210352" target="_blank">聊nsy专用号 发表于 2025-9-11 00:15</a>
+火焰斩耗精还是小事，最大的削弱是双大剑跳劈砍了五分之一的削韧，还是看看隔壁50力敏免疫侧袭自带减伤的 ...</blockquote>
+法环的跳劈确实强，黑环跳劈强的不正常，所以其实削了能理解，毕竟做了那么多模型结果最后全跳劈了不是白做了嘛<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+问题是小石这职业特殊模组纯纯负优化
+
