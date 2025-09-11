@@ -1128,3 +1128,193 @@ maga的pussy能有什么本事报复吗
 
 打得真准，直接封喉
 
+
+*****
+
+####  火烧云  
+##### 123#       发表于 2025-9-11 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405153&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-11 08:27</a>
+主要是驴党养猪养的一群纯废物，和象党少壮派有生力量比起来自然就不行了，驴党现在年轻人稍微能打的比如 ...</blockquote>
+驴党老登不肯给年轻人让位，年轻人早就渴望进步了
+
+*****
+
+####  拉莱耶妇联主任  
+##### 124#       发表于 2025-9-11 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404931&amp;ptid=2261694" target="_blank">变老的大二 发表于 2025-9-11 06:51</a>
+
+奶龙速速发动大清洗吧。看戏看戏</blockquote>
+奶龙这种软蛋 全身上下嘴硬的就是那张嘴了吧
+
+*****
+
+####  苍之轨迹  
+##### 125#       发表于 2025-9-11 08:47
+
+大动脉中枪后就像水龙头一样，救不活，根本救不活。
+
+这不就是很多小说里的段子：辩友，这是我方论据！
+
+*****
+
+####  Demi.Albertini  
+##### 126#       发表于 2025-9-11 08:49
+
+今天这日子出点事也正常
+
+*****
+
+####  Alexmacau8  
+##### 127#       发表于 2025-9-11 08:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">这位算阿川的精神继承人的 ，死得有点潦草了
+
+*****
+
+####  飛霞精灵  
+##### 128#       发表于 2025-9-11 08:49
+
+自己视频网站还能剪辑出自己辩论输了的嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有些事情原本就是最基础的对错，被这帮党棍喉舌给绕进去了而已。
+
+鱿鱼屠杀加沙难民、对手无寸铁的儿童甚至婴儿下手，原本就洗无可洗。
+
+跟他辩经的或者蠢驴或者被他诡辩进去了。
+
+*****
+
+####  black199  
+##### 129#       发表于 2025-9-11 08:50
+
+<blockquote>火烧云 发表于 2025-9-11 08:46
+驴党老登不肯给年轻人让位，年轻人早就渴望进步了</blockquote>
+
+民主党建制派肯定是要完蛋的，驴党要还能活下来被夺舍基本上是板上钉钉的，不过反正也不是第一次了
+
+*****
+
+####  里奥哟西  
+##### 130#       发表于 2025-9-11 08:51
+
+看到一条弹幕，这下真红脖子了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乔伊  
+##### 131#       发表于 2025-9-11 08:51
+
+他的言论和事迹包括但不限于：认为为了保卫拥枪权每年发生几次校园枪击是必要的牺牲；认为假如自己女儿被强，把和犯人的孩子生下来也不能堕胎；因为驾驶员是黑人就拒绝乘机<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  TTAA  
+##### 132#       发表于 2025-9-11 08:51
+
+THE fire rise！
+
+*****
+
+####  广州粉肠  
+##### 133#       发表于 2025-9-11 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405096&amp;ptid=2261694" target="_blank">siebten 发表于 2025-9-11 08:13</a>
+
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+想了一下, 应该是灵活运用"你错了=我对了"的辩论技巧
+
+
+*****
+
+####  遗尿  
+##### 134#       发表于 2025-9-11 08:52
+
+大统领有替身使者，这个没有替身使者所以死了。
+
+1ad5ad6eddc451da0a344fd0337d0068d116325d.webp
+(34.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 08:52 上传
+
+<img src="https://img.stage1st.com/forum/202509/11/085234ruiebizvyoiycc4u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Louiskeep24ever  
+##### 135#       发表于 2025-9-11 08:53
+
+辩论么，再歪的理你气势强理直气壮也能说服观众的，可惜说服不了子弹
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RPG-7  
+##### 136#       发表于 2025-9-11 08:53
+
+文斗不如武斗是对的！
+
+*****
+
+####  yanghuangu  
+##### 137#       发表于 2025-9-11 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405127&amp;ptid=2261694" target="_blank">Saa123 发表于 2025-9-11 08:20</a>
+
+物理消灭是否是玩不起的表现</blockquote>
+批判的武器不如武器的批判<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双击道道  
+##### 138#       发表于 2025-9-11 08:54
+
+赤裸裸的暴力，邪恶，魔鬼的行径<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卵真是牛逼  
+##### 139#       发表于 2025-9-11 08:54
+
+射击领域大神
+
+*****
+
+####  black199  
+##### 140#       发表于 2025-9-11 08:55
+
+<blockquote>飛霞精灵 发表于 2025-9-11 08:49
+自己视频网站还能剪辑出自己辩论输了的嘛
+
+有些事情原本就是最基础的对错，被这帮党棍喉舌给绕进去了而已。
+
+ ...</blockquote>
+本质是在意加沙和鱿的人其实不多的，为啥他能辩赢也很简单，你现在去问那些正在开香槟的驴党支持者大学生们＂你支持拥枪吗？＂
+
+看这群只会精神错乱对你哈气的辩赢太简单了
+
+*****
+
+####  xuanwu_lei  
+##### 141#       发表于 2025-9-11 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405127&amp;ptid=2261694" target="_blank">Saa123 发表于 2025-9-11 08:20</a>
+物理消灭是否是玩不起的表现</blockquote>
+<img src="https://p.sda1.dev/26/1fba297860e0c007779fd69c869fe709/image.jpg" referrerpolicy="no-referrer">
+
+事教人一次会，圣托马斯·马修·克鲁克已经让金毛奶龙教过一次了，还不悔悟的已经是死硬派了，让它们物理意义上地死硬有啥问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tau_cross  
+##### 142#       发表于 2025-9-11 08:56
+
+我已经看了至少四个机位记录这哥们被毙了 这待遇比安倍还好
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
