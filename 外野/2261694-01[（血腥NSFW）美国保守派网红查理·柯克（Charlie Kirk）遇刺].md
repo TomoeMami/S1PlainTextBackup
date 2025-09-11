@@ -5965,3 +5965,140 @@ XD
 打脖子一秒僵硬（？）的情况来看是瞬间死亡的吧
 感觉很像车祸视频看过的那种头部着地休克死亡的，估计他都没意识到发生啥就死了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwr  
+##### 577#       发表于 2025-9-11 16:38
+
+ 本帖最后由 xwr 于 2025-9-11 16:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408030&amp;ptid=2261694" target="_blank">oyss 发表于 2025-9-11 16:29</a>
+
+我觉得泥潭有些人似乎分不清楚这个问题.
+
+1.MAGA骨子里是瞧不起中国人的,中国人干的就是错的,就是敌对.  当 ...</blockquote>
+我觉得吧，其实是有些人想搞个汉民族主义MAGA，但这不是很团结，不好直说只能藏心里，结果表现得就像MAGA支持者一样，其次是不少人对LGBTQ+，特定肤色人种，特定宗教信仰，特定性别思潮非常反感，MAGA至少在这方面迎合了诉求，结果就是这些人看起来像是在举双手支持MAGA<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zewubbfa  
+##### 578#       发表于 2025-9-11 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408060&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-11 16:36</a>
+
+打脖子一秒僵硬（？）的情况来看是瞬间死亡的吧
+
+感觉很像车祸视频看过的那种头部着地休克死亡的，估计他都 ...</blockquote>
+从出血量看打中的是静脉，动脉压力更大会泚的更远，这种属于脑内血液瞬间清空了。
+
+*****
+
+####  古凌锋  
+##### 579#       发表于 2025-9-11 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408076&amp;ptid=2261694" target="_blank">xwr 发表于 2025-9-11 16:38</a>
+
+我觉得吧，其实是有些人想搞个汉民族主义MAGA，但这不是很团结，不好直说，结果表现得就像MAGA支持者一样 ...</blockquote>
+LGBT和黑人还好说，maga基本都是教徒吧，方案宗教信仰为什么会支持maga
+
+*****
+
+####  hgamer  
+##### 580#       发表于 2025-9-11 16:41
+
+这下新时代的霍斯特威塞尔了
+
+
+*****
+
+####  艾诺琳  
+##### 581#       发表于 2025-9-11 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407923&amp;ptid=2261694" target="_blank">samuel.j 发表于 2025-9-11 16:12</a>
+
+从帖子里某几个人可以明显看出，美在华远程养殖其实是全方位无死角的，什么派别都有渗透进来。当然，你如果 ...</blockquote>
+如果你说的包括大使馆的文化交流活动
+
+那除了一些穷到当裤子的国家都有
+
+但是正儿八经编列经费，并且在大使馆以外直接接触的，那就主要是日本美国台湾省和部分西方国家了
+
+*****
+
+####  格林达姆  
+##### 582#       发表于 2025-9-11 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408060&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-11 16:36</a>
+
+打脖子一秒僵硬（？）的情况来看是瞬间死亡的吧
+
+感觉很像车祸视频看过的那种头部着地休克死亡的，估计他都 ...</blockquote>
+应该是去脑强直吧
+
+大脑.exe未响应，打穿脖子脊柱脑干应该都遭重了
+
+*****
+
+####  卡嘎米  
+##### 583#       发表于 2025-9-11 16:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右派其实根本不怕暗杀，右派是一种组织，被推选出来的那些个“头”，看似权力无限，其实是祭品，是用来承担责任的，
+
+能理解这一层就能明白，为什么暗杀没用，为什么右派越杀越多，
+
+而左派就是一群个人英雄主义傻白甜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 584#       发表于 2025-9-11 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408030&amp;ptid=2261694" target="_blank">oyss 发表于 2025-9-11 16:29</a>
+
+我觉得泥潭有些人似乎分不清楚这个问题.
+
+1.MAGA骨子里是瞧不起中国人的,中国人干的就是错的,就是敌对.  当 ...</blockquote>
+错误的不会因为白皮变得正确，正确的也不会因为白皮变得更正确
+
+网上不少人对这些白皮政治明星的态度近乎谄媚，理解不了，这就是梵化吗
+
+*****
+
+####  艾诺琳  
+##### 585#       发表于 2025-9-11 16:45
+
+国内保守派和maga合流不是很正常吗？
+
+政治光谱挺相近的，都是反移民，反LGBT，优待本族
+
+*****
+
+####  Суслов  
+##### 586#       发表于 2025-9-11 16:45
+
+美国maga急着给他封圣就算了，国内不少人也急着给他封圣吹他逻辑辩论无敌不知道是咋想的。如果国内比如说马逆在武大演讲被膏药旗椅子砸死了也不会急着抬上神坛，更何况一个外国人呢。只能说既然会有离岸**煮党也会有离岸maga了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  卡嘎米  
+##### 587#       发表于 2025-9-11 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408030&amp;ptid=2261694" target="_blank">oyss 发表于 2025-9-11 16:29</a>
+
+我觉得泥潭有些人似乎分不清楚这个问题.
+
+1.MAGA骨子里是瞧不起中国人的,中国人干的就是错的,就是敌对.  当 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右和右虽然相似，但天然互斥，因为是以某个具体群体利益优先，只在对付左方面有联合
+
+*****
+
+####  xwr  
+##### 588#       发表于 2025-9-11 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408090&amp;ptid=2261694" target="_blank">古凌锋 发表于 2025-9-11 16:40</a>
+
+LGBT和黑人还好说，maga基本都是教徒吧，方案宗教信仰为什么会支持maga</blockquote>
+可能是基督徒也许可以交人头税保命，无神论者只能物理毁灭吧
+
