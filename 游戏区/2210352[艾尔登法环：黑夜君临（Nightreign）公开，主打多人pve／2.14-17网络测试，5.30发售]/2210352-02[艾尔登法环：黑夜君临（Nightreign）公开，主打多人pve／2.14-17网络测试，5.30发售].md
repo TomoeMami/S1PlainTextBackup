@@ -334,3 +334,16 @@
 
 深夜遗物抽一次1800暗痕，真贵
 
+
+*****
+
+####  luodang007  
+##### 1657#       发表于 2025-9-11 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407934&amp;ptid=2210352" target="_blank">Arinori 发表于 2025-9-11 16:14</a>
+
+目前为王之证现在还没法换深夜遗物，也许深度深了深夜模式能匹配到永夜王之后就会开放
+
+深夜遗物抽一次180 ...</blockquote>
+深夜模式一局暗痕给的多吗？目前只攒了十几万，普通模式都不舍得抽（也抽不到毕业的遗物）。另外问问深夜模式是只生效新增的3个遗物栏，还是6个都生效。上班不能第一时间体验急死了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
