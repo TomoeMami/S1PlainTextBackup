@@ -1318,3 +1318,89 @@ THE fire rise！
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  胖达君  
+##### 143#       发表于 2025-9-11 08:56
+
+<img src="https://img.stage1st.com/forum/202509/11/085543jgoz1i1udwkniizn.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250911085426_145657_1.jpg</strong> (51.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 08:55 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 144#       发表于 2025-9-11 08:56
+
+<blockquote>TTAA 发表于 2025-9-11 08:51
+THE fire rise！</blockquote>
+烈焰啊，你升腾吧
+
+*****
+
+####  luguozmy  
+##### 145#       发表于 2025-9-11 08:57
+
+人人有枪，它才不乱<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  首领  
+##### 146#       发表于 2025-9-11 08:59
+
+米版真理大讨论，枪击是检验的唯一标准。
+
+*****
+
+####  拉莱耶妇联主任  
+##### 147#       发表于 2025-9-11 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405246&amp;ptid=2261694" target="_blank">飛霞精灵 发表于 2025-9-11 08:49</a>
+
+自己视频网站还能剪辑出自己辩论输了的嘛
+
+有些事情原本就是最基础的对错，被这帮党棍喉舌给绕进去了而已。
+
+ ...</blockquote>
+其实他的那个大学活动，跟他辩的都是些信白左但不知道为什么信的，而且都有点唐，辩论的也都是那些生造的lgbt议题，赢这帮人真挺正常的
+
+可以看看他在剑桥辩论那场，人直接拿加沙、军售、债务这种议题，柯克根本不敢正面回答，完败
+
+
+*****
+
+####  2017.05.04  
+##### 148#       发表于 2025-9-11 09:01
+
+美帝网红的特点，起号快销号也快
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  pu  
+##### 149#       发表于 2025-9-11 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405246&amp;ptid=2261694" target="_blank">飛霞精灵 发表于 2025-9-11 08:49</a>
+
+自己视频网站还能剪辑出自己辩论输了的嘛
+
+有些事情原本就是最基础的对错，被这帮党棍喉舌给绕进去了而已。
+
+ ...</blockquote>
+去剑桥辩论被薄纱  他也只能辩辩美国白痴白左学生了 
+
+*****
+
+####  谷歌街景  
+##### 150#       发表于 2025-9-11 09:06
+
+男儿气概，能动手绝不哔哔！
+
