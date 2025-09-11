@@ -45,3 +45,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1660#         楼主| 发表于 2025-9-11 19:00
+
+虽然但是，提醒各位有拖延症的队长，这次小裤裤的活动全部都是调查形式，一共有586个格子，虽然现在还剩10天以上，但还是建议要开始清了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
