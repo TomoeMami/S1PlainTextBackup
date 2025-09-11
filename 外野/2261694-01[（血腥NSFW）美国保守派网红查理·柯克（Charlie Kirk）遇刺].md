@@ -8117,3 +8117,22 @@ R.I. ...</blockquote>
 
 因为这个发言太过匪夷所思和莫名其妙以至于让我一直记到现在
 
+
+*****
+
+####  火箭布雷器  
+##### 762#       发表于 2025-9-12 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410025&amp;ptid=2261694" target="_blank">你说这个谁懂呀? 发表于 2025-9-11 22:44</a>
+
+不是,中国是全世界最支持跨的国家了吧. . .
+
+很多情况下,你只要国内医院做了之后开了证明直接改身份. . .
+
+你 ...</blockquote>
+你这不就是想简单了。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+“改身份”这种说法就是LGBT们大加指责的“二元性别”叙事。
+
+你把跨从女改成男也好，从男改成女也好，都不过是从一种主流身份改变成另一种主流身份，这样子还怎么给LGBT们制造少数群体，操作身份政治的空间？
+
