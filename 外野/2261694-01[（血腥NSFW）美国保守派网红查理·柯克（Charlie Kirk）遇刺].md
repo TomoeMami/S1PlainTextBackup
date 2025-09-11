@@ -6480,3 +6480,111 @@ xs<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerp
 我今天在UP主不抱团乐队讲这件事的节目底下的评论里看到这个，皇汉现在都主动共情美国保守派了吗，对此美国 ...</blockquote>
 因为再不报团就要被左左杀光了。
 
+
+*****
+
+####  valand  
+##### 620#       发表于 2025-9-11 17:28
+
+这次的枪手很专业啊，居然还没抓到，不是上次刺杀奶龙那种菜鸡
+
+—— 来自 OPPO PHZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  叩叩叩  
+##### 621#       发表于 2025-9-11 17:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有人看慢放说是击中他的防弹背心然后反弹到脖子了，那也是挺倒霉的
+
+*****
+
+####  scikirbypoke  
+##### 622#       发表于 2025-9-11 17:30
+
+我说怎么一天干到600多页了，原来搁这左左右右的
+
+
+*****
+
+####  deer2010  
+##### 623#       发表于 2025-9-11 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408406&amp;ptid=2261694" target="_blank">zerocount 发表于 2025-9-11 17:25</a>
+艹
+
+反向思考了是吧？
+
+“如果枪是坏的，为啥我死了？”</blockquote>
+如果撒旦进攻纳粹，我也愿意为他辩护一番<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  骑兵突击步枪  
+##### 624#       发表于 2025-9-11 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408418&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 17:27</a>
+
+因为再不报团就要被左左杀光了。
+
+正常日子人没有人想被想被左左暴力暗杀。 ...</blockquote>
+国内现在谁杀皇汉了？
+
+*****
+
+####  古凌锋  
+##### 625#       发表于 2025-9-11 17:35
+
+<blockquote>zerocount 发表于 2025-9-11 17:25
+艹
+
+反向思考了是吧？
+
+“如果枪是坏的，为啥我死了？”</blockquote>
+谁来证明他错了
+
+*****
+
+####  ccared  
+##### 626#       发表于 2025-9-11 17:35
+
+黄右实在不行搞点封建复辟吧，保守派民粹这玩意儿又不要求进步性，总比吃白皮二手屎强。
+
+整天自封日子人，有没有一种可能真日子人都觉得你美人人持枪他才不乱纯纯的奇异搞笑，是彻头彻尾的嘲讽对象啊。踏马的正经活在国内能怕被左左暴力暗杀的吗，你黄右的黄在哪，民族自信呢。
+
+*****
+
+####  就不的  
+##### 627#       发表于 2025-9-11 17:36
+
+<img src="https://wx3.sinaimg.cn/mw690/6d8f0a71ly1i59hqnnnpbj21uo0u0jv5.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/11/173708zi5j5kn09fynhxvx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250911173651.png</strong> (116.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 17:37 上传
+
+*****
+
+####  火箭布雷器  
+##### 628#       发表于 2025-9-11 17:37
+
+LGBT这种毫无主体性的后现代主义贵物那肯定不如maga在正常人眼里讨喜。
+
+maga好歹是有一个能称之为社会主流之一的意识形态作为基本盘来塑造共同体。这起吗是一个正常的意识形态该有的样子。
+
+LGBT有什么呢？一群互相看不起的少数身份群体聚在一起操弄身份政治，这就不是正常的政治势力该有的样子，纯纯的资本家放出来搞竖切转移阶级矛盾的社会苍蝇。
+
+*****
+
+####  hujingjing  
+##### 629#       发表于 2025-9-11 17:38
+
+按道理说上次懂王捡回一条命就处处显得很阴谋论，什么警察几次通知特勤局但是特勤不鸟，明明房顶有一队狙击手却一直没发现枪手直到对面开枪了，特勤局长最后啥都不说直接辞职，就很诡异，这次这个感觉还挺专业的，一枪解决，人还跑了
+
