@@ -8025,3 +8025,29 @@ R.I.P.
 你 ...</blockquote>
 你要么是男要么是女。别琢磨直升机。
 
+
+*****
+
+####  就咋的  
+##### 754#       发表于 2025-9-12 00:55
+
+ 本帖最后由 就咋的 于 2025-9-12 00:58 编辑 
+
+FBI 公布的疑似相关人员（监控截图）
+
+<img src="https://img.stage1st.com/forum/202509/12/005428ikixg3csc7bvz5v6.png" referrerpolicy="no-referrer">
+
+<strong>fbi_ck_shooter_1.png</strong> (197.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 00:54 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/005435m2m3y2v7h3yjlgz3.png" referrerpolicy="no-referrer">
+
+<strong>fbi_ck_shooter_2.png</strong> (126.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 00:54 上传
+
