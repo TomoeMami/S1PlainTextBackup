@@ -2731,3 +2731,118 @@ bibi干的可能性不能为0</blockquote>
 
 而且对精英阶层大规模互相暗杀，那肯定跟以前屁民杀来杀去不是一个量级
 
+
+*****
+
+####  pepsiny  
+##### 287#       发表于 2025-9-11 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405979&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-11 10:42</a>
+
+美国人对枪支有近乎狂热的爱好，认为用枪杀人才是正道
+
+但是街头杀人最有效率的办法是泥头车或爆炸物，最精 ...</blockquote>
+用枪多容易啊，搞爆炸物泥头车一大堆需要计划的，对他们要求过高了。
+
+*****
+
+####  鵝  
+##### 288#       发表于 2025-9-11 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406098&amp;ptid=2261694" target="_blank">鲁邦三世1 发表于 2025-9-11 11:01</a>
+玩fpv你得有爆炸物或者大量rpg弹头啊
+目前看来还是枪比较好搞到手</blockquote>
+手搓呗，保温杯压力锅，各国革命无不从手搓炸弹开始，继承革命老区和老老区的先进经验
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  outerish  
+##### 289#       发表于 2025-9-11 11:18
+
+挑动仇恨和搞对立的被仇恨反噬，也算是一个警惕
+
+*****
+
+####  Pfizer  
+##### 290#       发表于 2025-9-11 11:20
+
+北美资深克苏鲁观察员 @瓜熟迪落拉 下午三点直播
+
+有的聊了
+
+
+*****
+
+####  Pfizer  
+##### 291#       发表于 2025-9-11 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406193&amp;ptid=2261694" target="_blank">pepsiny 发表于 2025-9-11 11:16</a>
+
+用枪多容易啊，搞爆炸物泥头车一大堆需要计划的，对他们要求过高了。</blockquote>
+手搓高压锅对美国人也不是难事，波士顿马拉松爆炸案就是个典型
+
+*****
+
+####  金牌打手  
+##### 292#       发表于 2025-9-11 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405936&amp;ptid=2261694" target="_blank">飛霞精灵 发表于 2025-9-11 10:35</a>
+
+登子真的说过，想反抗，得要有F22。
+
+几乎是直球告诉说你们拥枪的都是SB、根本别想推翻我们了。 ...</blockquote>
+查了一下原文，登子说得要F-15哈哈，老登还活在以前呢。
+
+*****
+
+####  大义灭亲林有德  
+##### 293#       发表于 2025-9-11 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406169&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 11:13</a>
+
+只靠步枪一年死个几万真不算啥，无人机，星链，github，再配已经开始的程序员失业潮，我看好未来几年间美 ...</blockquote>
+我不想抬杠，不过一年枪战死几万人的牢美独一家，甚至超过俄乌战场，蓝星独此一家。
+
+另外FPV和自爆泥头车在牢美难普及的原因一个是装备难获取，无论FPV的器材零件还是现成的炸药，都比枪支子弹难获取，另一个关键的问题是这俩都有很高的技术门槛，无论组装调试操作FPV还是只做炸药和引爆装置，现在的美国人除了有专业背景的，剩下的比起俄克拉荷马案和波士顿案的前辈都既没技术也没决心，早退化成一帮费拉不堪只会飞 叶 子嗑 药的玩意儿，包括现在这帮程序员也是如此。未来能整活的只会是各种军警宪特退役人员和有技术又有钱的拉美帮派，希望他们能引领整活潮流带动产业升级吧。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 294#       发表于 2025-9-11 11:26
+
+美国极右被美国极左 (?) 用美国极右的方式消解掉了。距离200码，真准啊
+
+*****
+
+####  又怎么啦？  
+##### 295#       发表于 2025-9-11 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406171&amp;ptid=2261694" target="_blank">痴货 发表于 2025-9-11 11:14</a>
+
+. 发现个更神奇的，这个人和另一个人Bill Montgomery成立了保守组织Turning Point (TPUSA)，COVID期间极端 ...</blockquote>
+这叫身体力行，以身证道！(反证也是证）
+
+*****
+
+####  zoomegg  
+##### 296#       发表于 2025-9-11 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406092&amp;ptid=2261694" target="_blank">百损道人 发表于 2025-9-11 10:59</a>
+
+这不就纯正的美国人吗，逢场必吹战功赫赫，结果全是虐菜刷的数据，真被武器批判一下就嗝屁了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">那么...
+
+*****
+
+####  saizeriya  
+##### 297#       发表于 2025-9-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406238&amp;ptid=2261694" target="_blank">金牌打手 发表于 2025-9-11 11:24</a>
+查了一下原文，登子说得要F-15哈哈，老登还活在以前呢。</blockquote>
+之所以说f15是为了和ar15呼应，原文我记得是用ar15是没法反抗f15的。
+登子比较老派，还是讲究一个对仗的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
