@@ -6317,3 +6317,18 @@ LGBT问题上有著名论断「关你屁事，关我屁事」，你觉得LGBT传
 
 暗杀搞的都是左派，很难出个右疯子
 
+
+*****
+
+####  卡嘎米  
+##### 606#       发表于 2025-9-11 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408256&amp;ptid=2261694" target="_blank">你说这个谁懂呀? 发表于 2025-9-11 17:04</a>
+
+可垃**倒吧,
+
+你说上世纪的左有信仰我信,
+
+人家是有事真上,为了无产阶级参加西班牙内战,</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">左大多数负责逼逼而不付具体代价，付个人代价的叫有信仰，殉道，这么说明白吗
+
