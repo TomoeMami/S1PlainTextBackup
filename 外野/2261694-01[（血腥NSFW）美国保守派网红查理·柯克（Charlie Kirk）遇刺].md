@@ -7026,3 +7026,104 @@ MAGA要塑造的共同体be like</blockquote>
 
 —— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  全都笑了  
+##### 666#       发表于 2025-9-11 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408733&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 18:19</a>
+
+不想玩塞勒姆荡秋千游戏的理由还不够吗</blockquote>
+本来不想掺和这话题，但你说这个太尴尬了，现在全世界到处猎巫的是佐人。
+
+*****
+
+####  llysander  
+##### 667#       发表于 2025-9-11 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406541&amp;ptid=2261694" target="_blank">呼鲁鲁修 发表于 2025-9-11 12:21</a>
+
+如果是.22打的，那也太准了，远距离小口径，直接命中柔软的颈部。打到头都不一定死的了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">太扯了 .22 , 130米 豺狼的日子级别的bs射击，豺狼是用狙击弹打头，这人得命中小得多的颈动脉
+
+奥运都只用.22射50米，乌克兰神枪手还是摩萨德还是犹太佬雇的豺狼总之不像4chan左小酱水平<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丸山之上缤纷彩  
+##### 668#       发表于 2025-9-11 18:38
+
+反LGBT和支持LGBT，都是受欧美影响，中国传统是完全不在乎性取向的，只要你有儿子就行
+
+*****
+
+####  扎克远山  
+##### 669#       发表于 2025-9-11 18:39
+
+果然高楼必有傻逼，泥潭这物种多样性挺高的嘛
+
+
+*****
+
+####  yang1820  
+##### 670#       发表于 2025-9-11 18:40
+
+中特社努力维持国家的和平和发展，提高了国防力量，在西方种族主义势力的环绕下，保卫了自己的国民。
+
+然后某个被保卫的国民为西方种族主义势力叫好，大骂中特社做了什么。
+
+中特社虽然暂时不能让你不被白左议题恶心，但是至少保住了你的命。
+
+以及，某人该不会真以为白右的行为是解决白左议题以及背后隐藏的社会矛盾的正道吧？白左白右的这种党争对轰强硬对打实际上只会让社会更加撕裂，只是表面看起来很解气。如果中特社直接有样学样copy白右，那才是真掉坑里了。最终肯定还是要摸索出符合国情的中特社方案。而且说句实话，有些社会矛盾的本质还是发展的问题，发展不到那个程度，就不可能根本解决。
+
+*****
+
+####  bfogda  
+##### 671#       发表于 2025-9-11 18:41
+
+好似<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gammatau  
+##### 672#       发表于 2025-9-11 18:41
+
+<blockquote>全都笑了 发表于 2025-9-11 18:37
+本来不想掺和这话题，但你说这个太尴尬了，现在全世界到处猎巫的是佐人。 ...</blockquote>
+就是说啊，美国的舆论俨然是不支持割蛋蛋就要荡秋千的样子
+
+*****
+
+####  xuanwu_lei  
+##### 673#       发表于 2025-9-11 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408816&amp;ptid=2261694" target="_blank">全都笑了 发表于 2025-9-11 18:37</a>
+本来不想掺和这话题，但你说这个太尴尬了，现在全世界到处猎巫的是佐人。 ...</blockquote>
+美Dem这种中右政党也配叫左人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大奴隶主华盛顿历史罪行都不肯清算的货<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  black199  
+##### 674#       发表于 2025-9-11 18:43
+
+<blockquote>丸山之上缤纷彩 发表于 2025-9-11 18:38
+反LGBT和支持LGBT，都是受欧美影响，中国传统是完全不在乎性取向的，只要你有儿子就行 ...</blockquote>
+虽然中式传统是只要你生育不管你性取向如何，但现在说这个还是比较政治不正确的，哪怕是只谈国内的政治正确
+
+*****
+
+####  扎克远山  
+##### 675#       发表于 2025-9-11 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406963&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 13:56</a>
+
+你中特社在反对白左邪教上干啥了？
+
+出台法律大力支持是吧？</blockquote>
+没有中特社保护你你看他妈的白右会不会来杀你全家，傻逼
+
