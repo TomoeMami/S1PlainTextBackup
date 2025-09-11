@@ -2141,3 +2141,54 @@ bibi干的可能性不能为0</blockquote>
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  blbpuu  
+##### 227#       发表于 2025-9-11 10:23
+
+美国人民拥枪为了反抗暴政，在19世纪之前还是有点成立的。所以我支持每几千万美国人民拥一辆航母以及相应数量的其他军舰，战斗机等等先进武器，要不然打不过美军啊
+
+*****
+
+####  无攻不受鹿  
+##### 228#       发表于 2025-9-11 10:23
+
+犯人还没抓到吗？这么大庭广众的<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk此方  
+##### 229#       发表于 2025-9-11 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405869&amp;ptid=2261694" target="_blank">无攻不受鹿 发表于 2025-9-11 10:23</a>
+犯人还没抓到吗？这么大庭广众的</blockquote>
+没 现在都不知道枪手是谁 可能是在房顶远距离狙杀的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Evomenon  
+##### 230#       发表于 2025-9-11 10:26
+
+好似<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  璇瑢子R  
+##### 231#       发表于 2025-9-11 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405869&amp;ptid=2261694" target="_blank">无攻不受鹿 发表于 2025-9-11 10:23</a>
+犯人还没抓到吗？这么大庭广众的</blockquote>
+已经误抓了两个人然后又发现抓错了
+
+*****
+
+####  jojog  
+##### 232#       发表于 2025-9-11 10:28
+
+打起来.jpg
+

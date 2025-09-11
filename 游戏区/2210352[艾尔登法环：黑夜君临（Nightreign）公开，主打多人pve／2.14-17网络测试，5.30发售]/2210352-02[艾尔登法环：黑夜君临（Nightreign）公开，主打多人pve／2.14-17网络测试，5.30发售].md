@@ -218,3 +218,18 @@
 
 跟几周前预想的一摸一样，出生碰到第一个教堂boss就是强化版石像守卫，开局5分钟直接被打退<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天悬星河  
+##### 1645#       发表于 2025-9-11 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405177&amp;ptid=2210352" target="_blank">厄斯沃穆 发表于 2025-9-11 08:34</a>
+
+雨中冒险一刀砍了不是很正常。
+
+第二夜雨中冒险本来就是很畸形的玩法，收益就三瓜两枣，但是死了活活了死消 ...</blockquote>
+肯定支持砍雨中冒险平衡剑骸玛雷啊
+
+因为我真的遇到过神人队友第二天最后出了一把剑骸晚上独自雨中冒险刷了半个多小时叠了不到30层最后还把自己毒死buff全掉的局
+
