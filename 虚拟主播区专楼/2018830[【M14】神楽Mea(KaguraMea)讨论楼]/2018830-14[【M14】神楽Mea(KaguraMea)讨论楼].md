@@ -687,3 +687,23 @@ YouTube也太久没做了吧。
 
 话说什么上市，我错过什么瓜了吗
 
+
+*****
+
+####  sino__unnko3  
+##### 19568#       发表于 2025-9-11 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409548&amp;ptid=2018830" target="_blank">术士q 发表于 2025-9-11 20:50</a>
+9/11 歌单
+
+1.  亲吻我吧西点师/ キス・ミー・パティシエ</blockquote>
+一个游戏的梗，约等于“被（你咩）制裁了”
+
+
+*****
+
+####  TiHaru  
+##### 19569#       发表于 2025-9-11 21:22
+
+之前主播说和hendy有过一次来往，还以为是神域或者pubg之类的，查了一下发现是notbot时期一起玩过糖豆人
+
