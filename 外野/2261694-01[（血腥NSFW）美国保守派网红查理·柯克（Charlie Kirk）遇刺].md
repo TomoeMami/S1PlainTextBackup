@@ -5855,3 +5855,52 @@ XD
 
 乡巴佬万斯干的，动机是扼杀参选下届总统的竞争对手。<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 568#       发表于 2025-9-11 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407919&amp;ptid=2261694" target="_blank">123gp199 发表于 2025-9-11 16:11</a>
+
+他直接掺和政治比奶龙还早，18岁就出来键政，混了10多年期间搭上了保守派财阀，才能有今天的声势 ...</blockquote>
+之前对他没印象，还以为是22年才出现的
+
+*****
+
+####  xwr  
+##### 569#       发表于 2025-9-11 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407924&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 16:12</a>
+
+拥枪主义者有几个敢对校园枪击说可接受的代价，还是反复说的。
+
+这每一次都是在提醒别人，可以用那个绝妙 ...</blockquote>
+从某种角度上来讲也不是坏事，他拥枪至少保证了一枪毙命进而封圣。
+
+*****
+
+####  今天不守尸  
+##### 570#       发表于 2025-9-11 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407950&amp;ptid=2261694" target="_blank">czs13 发表于 2025-9-11 16:16</a>
+ 乡巴佬万斯干的，动机是扼杀参选下届总统的竞争对手。</blockquote>
+那我觉得还可能是万斯示爱不成恼羞成怒因爱生恨了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卖哥  
+##### 571#       发表于 2025-9-11 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407964&amp;ptid=2261694" target="_blank">xwr 发表于 2025-9-11 16:18</a>
+
+从某种角度上来讲也不是坏事，他拥枪至少保证了一枪毙命进而封圣。</blockquote>
+这么说吧
+
+他要封圣了，以后敢对校园枪击说可接受的代价的人会变多；
+
+他要成了教训，以后敢对校园枪击说可接受的代价的人会更少。
+
+我猜测是后者，我猜测他成为的是一个教训。
+
