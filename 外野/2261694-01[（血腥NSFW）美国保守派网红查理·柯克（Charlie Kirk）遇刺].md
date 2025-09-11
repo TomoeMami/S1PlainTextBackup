@@ -5091,3 +5091,131 @@ LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而reddit和tiktok的dem友完全无视头领指挥，开始疯狂生产梗图、段子，嘲讽美国版户子回旋镖，于是被搬运到白右论坛引发螺旋式应激，口嗨内战等等，当然鉴于白右一贯的cuck废物属性最后也就不了了之了
 
+
+*****
+
+####  火星後繼者  
+##### 503#       发表于 2025-9-11 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">美国人互杀看戏呗，反正不影响我月工资。
+
+*****
+
+####  Sunyalche  
+##### 504#       发表于 2025-9-11 15:04
+
+唉, 左左人. 唉, 团结人
+
+棒男是要代入的, 白皮是要共情的, 然而汉男是必须狠狠骑脸的, 但我一定是最→的汉族至上主义者
+
+*****
+
+####  Yeelolo  
+##### 505#       发表于 2025-9-11 15:06
+
+还得是武器的批判啊，能言善辩有什么用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zewubbfa  
+##### 506#       发表于 2025-9-11 15:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">讲实话，我一直认为摩根——你坛ID菜园之州——那个假女人真轮子一直在视奸你坛，他那个小团伙也一直忽悠自己的拥趸来你坛带节奏，控评，炸贴。
+
+*****
+
+####  lactone  
+##### 507#       发表于 2025-9-11 15:08
+
+以后查理柯克这级别难道还能叫特勤局保护<img src="https://static.stage1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  season1237  
+##### 508#       发表于 2025-9-11 15:08
+
+<blockquote>胜改藏 发表于 2025-9-11 15:01
+所以你现在为了异族白皮喷的汉人都是中华民族，不是你的汉族至上里的汉族？
+
+谁教你搞这种对立的？ ...</blockquote>
+这得感谢左左们每天每天的教导。
+
+我一开始也意识不到，得多亏左左们夜以继日的教导，让我认识到中华民族和汉族可是两个含义截然不同的概念。
+
+
+*****
+
+####  FanFun  
+##### 509#       发表于 2025-9-11 15:10
+
+哎，早上开开心心的吃瓜看乐子氛围回不来了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡嘎米  
+##### 510#       发表于 2025-9-11 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">左右其实很好分，标准就是左要求“普世”不分群体，右要求“xx first”某个群体优先，对号入座即可，没有分错的，无论哪种思想，
+
+比如某性别平等是“普世”，具体到某个要求“平等”团体的诉求则是“xx first”
+
+*****
+
+####  纸皮  
+##### 511#       发表于 2025-9-11 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想起来尹桑今年刚发癫的时候看过还在拿他要锤女拳，为尹桑（或者支持尹桑小丑了的自己？）挽尊的
+
+*****
+
+####  胜改藏  
+##### 512#       发表于 2025-9-11 15:12
+
+<blockquote>season1237 发表于 2025-9-11 15:08
+这得感谢左左们每天每天的教导。
+
+我一开始也意识不到，得多亏左左们夜以继日的教导，让我认识到中华民族 ...</blockquote>
+直抒胸臆，挺好的。
+
+所以您是
+
+可以为了异族白皮，喷中华民族的，汉族至上主义者？
+
+*****
+
+####  adw667  
+##### 513#       发表于 2025-9-11 15:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">我还以为你们发了13页的表情包呢结果怎么在汴京啊，今天不是911吗，群里吃KFC都得吃100块的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 就咋的| + 2|哈哈哈哈哈哈哈|
+
+查看全部评分
+
+*****
+
+####  JOY_GoGo  
+##### 514#       发表于 2025-9-11 15:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有了这次事件以后 是不是两边可以肆无忌惮的开A了
+
+*****
+
+####  adw667  
+##### 515#       发表于 2025-9-11 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407407&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-11 15:04</a>
+
+这件事目前的走向确实热闹，老逼登和纽森这类dem头领第一时间发文谴责、哀悼，想传达一种调和情绪，然而red ...</blockquote>
+梗图段子来点<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
