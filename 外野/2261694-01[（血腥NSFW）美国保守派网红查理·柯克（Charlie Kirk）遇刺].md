@@ -2530,3 +2530,88 @@ bibi干的可能性不能为0</blockquote>
 
 宪法里那个持枪权就是说gun吧，直接只允许民间持有手枪是不是就行了，也不违宪
 
+
+*****
+
+####  卖哥  
+##### 267#       发表于 2025-9-11 10:59
+
+枪是远程武器，真以杀人为目的而不是行为艺术优先的情况，并不会因为在场有人持枪反击就能阻止。
+
+*****
+
+####  百损道人  
+##### 268#       发表于 2025-9-11 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405706&amp;ptid=2261694" target="_blank">nanayashikijp 发表于 2025-9-11 09:56</a>
+这种互联网时代民粹意见领袖，就喜欢和知识储备、思辨能力远不如自己的人对线，把对方耍的团团转然后宣布 ...</blockquote>
+这不就纯正的美国人吗，逢场必吹战功赫赫，结果全是虐菜刷的数据，真被武器批判一下就嗝屁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qqks  
+##### 269#       发表于 2025-9-11 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406059&amp;ptid=2261694" target="_blank">大义灭亲林有德 发表于 2025-9-11 10:55</a>
+
+看鱿鱼，但从战术上讲这么干也不是不行关键是要看制定计划和执行计划的人有多大决心，牢美现在最大的问题 ...</blockquote>
+加沙这完全被孤立的孤岛，dji都没几个，哪能跟几千上万公里边境线比
+
+这次万一抓不到凶手，mega方大规模反击，配合ai编程成熟，大量程序员失业的大背景，左派点子王不会缺的。
+
+*****
+
+####  牛顿学物理  
+##### 270#       发表于 2025-9-11 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406049&amp;ptid=2261694" target="_blank">aiooia 发表于 2025-9-11 10:53</a>
+
+军盲想问下，假设大美想像管制自动Rifle一样管制sniper gun。这种一定距离上的精准射击Rifle能够通过技术指 ...</blockquote>
+200码的距离上打头基本是个步枪就能做到。<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲁邦三世1  
+##### 271#       发表于 2025-9-11 11:01
+
+玩fpv你得有爆炸物或者大量rpg弹头啊
+目前看来还是枪比较好搞到手
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  卖哥  
+##### 272#       发表于 2025-9-11 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406072&amp;ptid=2261694" target="_blank">億万千 发表于 2025-9-11 10:57</a>
+
+宪法里那个持枪权就是说gun吧，直接只允许民间持有手枪是不是就行了，也不违宪 ...</blockquote>
+应该问为啥Machine gun不允许，20mm是枪炮分界线，所以皮卡后面架一挺14.5mm高射机枪也是很合理的嘛
+
+*****
+
+####  烦死了  
+##### 273#       发表于 2025-9-11 11:01
+
+这货的典中典言论真不少啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qqks  
+##### 274#       发表于 2025-9-11 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406051&amp;ptid=2261694" target="_blank">mtbull 发表于 2025-9-11 10:54</a>
+
+阿美那个危险品管控力度之松散是具备无人机无人卡车自爆的条件的，但是基础教育水平不支持，十以内加减法 ...</blockquote>
+美国不缺左派失业程序员的，现在ai普及后，那就更多了，这里面你认为会少左派点子王？
+
+*****
+
+####  天选之子  
+##### 275#       发表于 2025-9-11 11:03
+
+<blockquote>牛顿学物理 发表于 2025-9-11 11:00
+200码的距离上打头基本是个步枪就能做到。</blockquote>
+200码外一枪爆头，在游戏里我至少得开四倍镜。
+

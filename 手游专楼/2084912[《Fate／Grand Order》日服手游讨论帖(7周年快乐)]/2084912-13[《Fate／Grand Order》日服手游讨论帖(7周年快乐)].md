@@ -4828,3 +4828,42 @@ FGO目前最大的让步也就是1T刷图，什么时候能把技能升级改成
 
 单抽B叔，多个金方块也不错。
 
+
+*****
+
+####  blue321  
+##### 18209#       发表于 2025-9-10 18:34
+
+骑阶实在没人还要去嫖其他人的莱尼斯，把把都要打五六回合真的折磨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qixinno2  
+##### 18210#       发表于 2025-9-10 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68403200&amp;ptid=2084912" target="_blank">blue321 发表于 2025-9-10 18:34</a>
+
+骑阶实在没人还要去嫖其他人的莱尼斯，把把都要打五六回合真的折磨
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定是你太贪了 我带了个龙脉布狄卡随便换人1T
+
+*****
+
+####  khxooo  
+##### 18211#       发表于 2025-9-10 19:28
+
+单抽B叔，多个金方块也不错。
+
+*****
+
+####  exiaexa  
+##### 18212#       发表于 2025-9-11 10:58
+
+11区的兄弟好像终于反应过来了
+
+昨天清一色的诺亚，今天一刷全是钓鱼佬
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
