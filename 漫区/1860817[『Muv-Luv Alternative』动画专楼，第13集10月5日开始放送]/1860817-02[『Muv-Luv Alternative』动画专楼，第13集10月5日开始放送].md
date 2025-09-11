@@ -354,3 +354,35 @@ E绅士上有CG包了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">围观群众如果不是什么打不死的基沃托斯超人的话未免也太嗜血了吧
 
+
+*****
+
+####  闭挂锁人  
+##### 2408#       发表于 2025-9-9 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68396317&amp;ptid=1860817" target="_blank">03e7 发表于 2025-9-9 17:49</a>
+
+试试组个属性克制的队伍。同一关，我自己组8w9的战斗力的队伍被精英怪一招全灭，让电脑自动帮我组，7w多 ...</blockquote>
+过还是能过的，就是缺人只能拉等级过去
+
+*****
+
+####  闭挂锁人  
+##### 2409#       发表于 2025-9-9 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68398031&amp;ptid=1860817" target="_blank">madcow 发表于 2025-9-9 23:47</a>
+
+战术机在街道上打模拟战，周围全是围观用的看台，虽然提了一嘴学校会负责损害赔偿之类并且用的是模拟弹
+
+然 ...</blockquote>
+此事在少女与战车亦有记载<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 2410#       发表于 2025-9-12 01:58
+
+第一感觉是概念神 UI 不卡 NIKKE，但贤者化后感觉制作还是有点平庸，估计走不远。
+
+小女孩推矿车让我久违地找回了帕鲁的快乐，看来搞黑奴这块还得是日本人。
+
