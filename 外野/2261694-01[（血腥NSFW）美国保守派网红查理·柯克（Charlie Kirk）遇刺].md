@@ -5665,3 +5665,111 @@ XD
 
 “empathy is a made-up new age term”
 
+
+*****
+
+####  黄泉川此方  
+##### 549#       发表于 2025-9-11 15:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">没几页果然又开始转进国内，还有几个知名傻逼给转进国内的加鹅
+
+*****
+
+####  哈扎马  
+##### 550#       发表于 2025-9-11 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407758&amp;ptid=2261694" target="_blank">wgoenitz 发表于 2025-9-11 15:50</a>
+
+多半是射角非垂直，所以没有击穿而是弹跳.然后视频比较糊，看不清衣服的细节。 ...</blockquote>
+也有可能，这个分辨率实在不能确定衣服的状态
+
+*****
+
+####  2017.05.04  
+##### 551#       发表于 2025-9-11 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407782&amp;ptid=2261694" target="_blank">last_regret 发表于 2025-9-11 15:54</a>
+这位说过
+
+“empathy is a made-up new age term”</blockquote>
+他不是东西不代表别人要跟他一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  卖哥  
+##### 552#       发表于 2025-9-11 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407779&amp;ptid=2261694" target="_blank">xwr 发表于 2025-9-11 15:53</a>
+
+右翼的旗手变右翼的烈士了，这回右翼也有圣人了，左翼有脖子被压不能呼吸的黑皮圣人，右翼有脖子被打穿的白 ...</blockquote>
+人类生活在现实世界
+
+物理消灭永远是一个选择
+
+无视这种选择，那是理想主义，恰恰是脱离现实的。
+
+具体这个案例我认为这就是求锤得锤，结合场景问答，没有更好的更绝妙的回答了。
+
+至于之前说辩不赢，那是之前受限于道德做不出如此绝妙的回答。
+
+*****
+
+####  Shih0_Matsuri  
+##### 553#       发表于 2025-9-11 16:00
+
+为什么扣鹅没有一个熔断机制，短时间大量扣鹅直接小黑屋
+
+*****
+
+####  木水风铃  
+##### 554#       发表于 2025-9-11 16:01
+
+话说这穿防弹衣已经是美国人日常了吗？按理他也不算太高层还这么小心，是吸了太多仇恨？按理一个网红而已，还是之前被威胁过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大友切  
+##### 555#       发表于 2025-9-11 16:01
+
+算了，已经被歪楼了，看来这个话题要讨论新发展得开新楼
+
+
+*****
+
+####  aeolus039  
+##### 556#       发表于 2025-9-11 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68407832&amp;ptid=2261694" target="_blank">木水风铃 发表于 2025-9-11 16:01</a>
+话说这穿防弹衣已经是美国人日常了吗？按理他也不算太高层还这么小心，是吸了太多仇恨？按理一个网红而已， ...</blockquote>
+他都是新生代maga中坚力量了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 557#       发表于 2025-9-11 16:04
+
+<img src="https://p.sda1.dev/26/01b4fc9074e3cb8ba5d1feb7c184e16f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 558#       发表于 2025-9-11 16:06
+
+期望是美国的一个转折点，五十诸侯共逐鹿，想看
+
+*****
+
+####  stmule  
+##### 559#       发表于 2025-9-11 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406877&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 13:40</a>
+白右最极端也就到是安资斯坦，终产者奴隶制社会，最极端的白左可是认为人人活着就是有害环境，最终愿景是 ...</blockquote>
+居留在地球上的人类不过是地上的跳蚤，总帅不是曰过了么，地球寒冷化作战！<img src="https://static.stage1st.com/image/smiley/bundam2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
