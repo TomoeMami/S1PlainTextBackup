@@ -2615,3 +2615,119 @@ bibi干的可能性不能为0</blockquote>
 200码的距离上打头基本是个步枪就能做到。</blockquote>
 200码外一枪爆头，在游戏里我至少得开四倍镜。
 
+
+*****
+
+####  卖哥  
+##### 276#       发表于 2025-9-11 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406115&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-11 11:03</a>
+
+200码外一枪爆头，在游戏里我至少得开四倍镜。</blockquote>
+应该就是爆头失败打的脖子。
+
+*****
+
+####  xuanwu_lei  
+##### 277#       发表于 2025-9-11 11:05
+
+特么的小红书这个自动tag要笑死我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+谁说小红书AI不行的，这可太行了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/0ee61811ea3bf31fd89fbffe344a8315/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Pfizer  
+##### 278#       发表于 2025-9-11 11:05
+
+ 本帖最后由 Pfizer 于 2025-9-11 11:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406094&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:59</a>
+
+加沙这完全被孤立的孤岛，dji都没几个，哪能跟几千上万公里边境线比
+
+这次万一抓不到凶手，mega方大规模 ...</blockquote>
+现成的乌克兰无人机飞手有的是，极端左派请这批人来美国开几个培训班，那就是遍地开花了
+
+限制美国人用自爆卡车和无人机的不是物质条件，也不是教育水平，是思想，以及具体的实操技能
+
+*****
+
+####  大义灭亲林有德  
+##### 279#       发表于 2025-9-11 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406094&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 10:59</a>
+
+加沙这完全被孤立的孤岛，dji都没几个，哪能跟几千上万公里边境线比
+
+这次万一抓不到凶手，mega方大规模 ...</blockquote>
+不会存在什么大规模反击的，因为拜这么多年的社会竖切、族群细分、社会原子化，牢美现在无论哪一派都是一盘散沙无限细分，所以只会出现各种弱相关的独狼事件，很难出现有组织的团体性动员（那种拿钱上街的不在此列）。美国这么多年其实早就处在一切人反对一切人的低烈度内战中了，每年死个5~6W人绝不是单纯的归咎于基层治理失能和治安恶化。
+
+*****
+
+####  宏.  
+##### 280#       发表于 2025-9-11 11:08
+
+<blockquote>鲁邦三世1 发表于 2025-9-11 11:01
+玩fpv你得有爆炸物或者大量rpg弹头啊
+
+目前看来还是枪比较好搞到手
+</blockquote>
+美国还缺这玩意？火药那不就是超市随便买买，顺手再买个高压锅好了啊
+
+
+*****
+
+####  qqks  
+##### 281#       发表于 2025-9-11 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406128&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-11 11:05</a>
+
+现成的乌克兰无人机飞手有的是，极端左派请这批人来美国开几个培训班，那就是遍地开花了
+
+限制美国人用自 ...</blockquote>
+其实只差决心，美国那堆左派平心而论智力水平比maga高不少。
+
+不过这才第一年呢，这种温情脉脉的暗杀早晚要被事实性的无人机内战取代的
+
+*****
+
+####  鱼丈人  
+##### 282#       发表于 2025-9-11 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405978&amp;ptid=2261694" target="_blank">呼鲁鲁修 发表于 2025-9-11 10:42</a>
+如果抓到凶手又是个黑人精神病，再联想到之前公交车上的白女被捅脖子。。。爆发骚乱也不是不可能 ...</blockquote>
+黑人干的反而很难引起骚乱。
+
+*****
+
+####  qqks  
+##### 283#       发表于 2025-9-11 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406139&amp;ptid=2261694" target="_blank">大义灭亲林有德 发表于 2025-9-11 11:08</a>
+
+不会存在什么大规模反击的，因为拜这么多年的社会竖切、族群细分、社会原子化，牢美现在无论哪一派都是一 ...</blockquote>
+只靠步枪一年死个几万真不算啥，无人机，星链，github，再配已经开始的程序员失业潮，我看好未来几年间美国这种内战的烈度会上升一两个数量级
+
+*****
+
+####  痴货  
+##### 284#       发表于 2025-9-11 11:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，COVID期间极端反对戴口罩和疫苗，Bill Montgomery后来还愿得COVID挂了。这下两个创始人都没了，这个TPUSA这么能克主啊
+ https://en.wikipedia.org/wiki/Turning_Point_USA复制代码
+
+*****
+
+####  露综bot一号机  
+##### 285#       发表于 2025-9-11 11:14
+
+东欧寡头派人让我跟贵坛说一下，认识枪手的告诉他联系他们领队，青训按niko价收他
+
+*****
+
+####  qqks  
+##### 286#       发表于 2025-9-11 11:15
+
+而且对精英阶层大规模互相暗杀，那肯定跟以前屁民杀来杀去不是一个量级
+

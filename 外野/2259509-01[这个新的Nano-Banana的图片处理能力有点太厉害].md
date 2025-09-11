@@ -23,3 +23,16 @@ f3119313b07eca808157f1f2d72397dda1448352.jpg
 
 <img src="https://img.stage1st.com/forum/202509/09/155606xe6688cpdd66cryr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葛雷新  
+##### 87#       发表于 2025-9-11 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68281091&amp;ptid=2259509" target="_blank">寻龙分金看缠山 发表于 2025-8-18 03:24</a>
+
+我这个提示词放二楼
+
+Please turn this photo into a figure. Behind it, there should be an paper box wh ...</blockquote>
+功德无量<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">
+
