@@ -1598,3 +1598,143 @@ LBGT+议题看他辩白左还是挺好看的，拥枪被枪杀也是挺搞笑的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  仟音一心  
+##### 172#       发表于 2025-9-11 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405421&amp;ptid=2261694" target="_blank">句扶 发表于 2025-9-11 09:18</a>
+
+所以说凭啥，就一幕僚没了凭啥全国下半旗？</blockquote>
+
+反正已经降了。
+<img src="https://youke1.picui.cn/s1/2025/09/11/68c22552caecd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiragz  
+##### 173#       发表于 2025-9-11 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405375&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-11 09:12</a>
+
+【美国白左狂欢庆祝：保守派意见领袖查理柯克被刺身亡！-哔哩哔哩】 https://b23.tv/KkdPB0Z ...</blockquote>
+都什么妖魔鬼怪
+
+*****
+
+####  kiragz  
+##### 174#       发表于 2025-9-11 09:29
+
+如果奶龙当时没转头估计差不多就这个效果
+
+*****
+
+####  lyt777  
+##### 175#       发表于 2025-9-11 09:29
+
+这哥们儿辩论的切片在B站很多，思路确实很清晰，水平也很高。就这么被毙了说实话有点可惜。
+
+*****
+
+####  tonyshva  
+##### 176#       发表于 2025-9-11 09:29
+
+看过他不少视频，全是汴京，观点非常maga，竟然落得这个下场，感觉还是很唏嘘的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hanabusters  
+##### 177#       发表于 2025-9-11 09:30
+
+废死死于谋杀，拥枪死于枪杀，乐子不过如此了呀<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wakener2  
+##### 178#       发表于 2025-9-11 09:30
+
+感受沃尔玛塑料袋的愤怒吧！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人丙丁  
+##### 179#       发表于 2025-9-11 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405421&amp;ptid=2261694" target="_blank">句扶 发表于 2025-9-11 09:18</a>
+所以说凭啥，就一幕僚没了凭啥全国下半旗？</blockquote>
+一样在演讲的时候被枪击，一个活着一个死了，肯定得纪念一下
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mp5  
+##### 180#       发表于 2025-9-11 09:33
+
+maga们这能忍, 赶快向白左动手啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天选之子  
+##### 181#       发表于 2025-9-11 09:33
+
+<blockquote>tonyshva 发表于 2025-9-11 09:29
+看过他不少视频，全是汴京，观点非常maga，竟然落得这个下场，感觉还是很唏嘘的
+
+论坛助手,iPhone ...</blockquote>
+唏嘘啥呀，现在的美国政坛除了激进繁华的就是温和繁华的，两边拿起武器互相批判才是⏰喜闻乐见的。
+
+
+*****
+
+####  ゆゆうた  
+##### 182#       发表于 2025-9-11 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405511&amp;ptid=2261694" target="_blank">lyt777 发表于 2025-9-11 09:29</a>
+
+这哥们儿辩论的切片在B站很多，思路确实很清晰，水平也很高。就这么被毙了说实话有点可惜。 ...</blockquote>
+这人就是靠诡辩+挑选对手+切片获得的善辩形象（which和管人一样），可以去看看剑桥场这人是怎么被喷的。
+
+*****
+
+####  trow233  
+##### 183#       发表于 2025-9-11 09:34
+
+众议院议长迈克·约翰逊要求全体人员默哀一分钟，但很快，大家就开始争论默哀是否过少或过多。
+
+这是什么地狱笑话
+
+*****
+
+####  last_regret  
+##### 184#       发表于 2025-9-11 09:36
+
+  
+
+<img src="https://img.stage1st.com/forum/202509/11/093554auo18u2w5vgzr7il.jpg" referrerpolicy="no-referrer">
+
+<strong>20250911_093539.jpg</strong> (75.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 09:35 上传
+
+*****
+
+####  失落之翼  
+##### 185#       发表于 2025-9-11 09:36
+
+阿懂那次没闪的话是不是也会像这样
+
+*****
+
+####  Louiskeep24ever  
+##### 186#       发表于 2025-9-11 09:37
+
+这剧情我懂，调查发现杀手是哈马斯，家里社交媒体显示哈马斯还策划在美国制造大规模杀伤事件<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
