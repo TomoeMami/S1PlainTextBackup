@@ -3745,3 +3745,69 @@ fpv教程相较于爆炸物和rpg弹头还是好弄一点
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405276&amp;ptid=2261694" target="_blank">胖达君 发表于 2025-9-11 08:56</a></blockquote>
 Guns kill Devils
 
+
+*****
+
+####  sjax001  
+##### 382#       发表于 2025-9-11 13:18
+
+感慨一下，这个人该不该死和该不该爆头他其实是两个问题，现在maga蓄意混淆两个问题，我看白左又是辩不过的
+
+*****
+
+####  cloudskate  
+##### 383#       发表于 2025-9-11 13:20
+
+稍微看了下这人辩论水平也不行啊就网络喷子的等级，自己一套逻辑自洽的话术，然后车轱辘话来回说
+
+辩论至少得旁征博引吧，我看他学历应该不高
+
+*****
+
+####  wgoenitz  
+##### 384#       发表于 2025-9-11 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405434&amp;ptid=2261694" target="_blank">acg_gyanc 发表于 2025-9-11 09:19</a>
+
+这也下半旗，感觉老美还挺廉价的
+
+—— 来自 S1Fun</blockquote>
+可以直接当内裤穿，能不廉价么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  03e7  
+##### 385#       发表于 2025-9-11 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406414&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 11:56</a>
+
+那说明你没理解这句话。
+
+这句话的意思是左在革命国家有天然正确性，缺乏自然阻力，是更危险的存在。
+
+在美 ...</blockquote>
+原文：防止右，但更要提防“左”。
+
+那个双引号才是整句话的核心。
+
+
+*****
+
+####  xuanwu_lei  
+##### 386#       发表于 2025-9-11 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406735&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 13:05</a>
+因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全 ...</blockquote>
+正常过日子的日常是virus和gun不离口，女儿被强了不能吃毓婷的话，这日子也「正常」地太可悲了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以上「日常」都是被击毙这个逼人的原话哦<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 387#       发表于 2025-9-11 13:27
+
+不是，这什么玩意儿也能降半旗？按照这个标准美国以后得全年降半旗
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
