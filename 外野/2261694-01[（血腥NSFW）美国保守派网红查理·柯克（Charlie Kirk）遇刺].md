@@ -7551,3 +7551,14 @@ MAGA要塑造的共同体be like</blockquote>
 
 还没抓到人吗？又准又能脱身很专业啊
 
+
+*****
+
+####  卡嘎米  
+##### 712#       发表于 2025-9-11 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409396&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 20:21</a>
+
+左左们永远学不会辩证法，还得让我一个老保教。一个人一个群体永远是复杂的多面的，他是保卫者的情况下也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你其实搞错对象了，左经虽然跨洋鼓动了这些，但是抱团搞事的完全不是“左”，左不会要求xx fisrt的，什么优先？所以说啊没有经书就是难
+
