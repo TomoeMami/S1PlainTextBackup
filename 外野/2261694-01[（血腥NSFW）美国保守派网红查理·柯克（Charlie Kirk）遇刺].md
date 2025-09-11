@@ -6996,3 +6996,33 @@ MAGA要塑造的共同体be like</blockquote>
 
 上升到政治谋杀了，<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">什么时候内战
 
+
+*****
+
+####  sungoldy  
+##### 663#       发表于 2025-9-11 18:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">  可以看美国狗咬狗的笑话，
+
+当然也可以看中国狗咬狗的笑话啊，不要小看中国速度，这些女拳起来，也不是不能杀个法官+全家的嘛，比美国这种搞意识形态杀人高的多了，大家也能看的懂。
+
+*****
+
+####  火箭布雷器  
+##### 664#       发表于 2025-9-11 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408733&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-11 18:19</a>
+不想玩塞勒姆荡秋千游戏的理由还不够吗</blockquote>
+不想玩荡秋千所以选择割蛋蛋。
+但为什么你会觉得割蛋蛋就能避免荡秋千呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 665#       发表于 2025-9-11 18:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看动图仿佛是B级片的出血量，只不过并不具备B级片角色的超长血条
+
+—— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
