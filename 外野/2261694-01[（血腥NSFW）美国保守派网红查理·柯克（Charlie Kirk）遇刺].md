@@ -8264,3 +8264,13 @@ R.I. ...</blockquote>
 这个距离上同精度的ar也不会太贵，但栓动有一点好，就是合法度极高</blockquote>
 这不是雷明顿700？
 
+
+*****
+
+####  有钱多买小人  
+##### 774#       发表于 2025-9-12 07:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410804&amp;ptid=2261694" target="_blank">火箭布雷器 发表于 2025-9-12 07:17</a>
+这不是雷明顿700？</blockquote>
+枪栓末尾形状不像雷明顿。
+
