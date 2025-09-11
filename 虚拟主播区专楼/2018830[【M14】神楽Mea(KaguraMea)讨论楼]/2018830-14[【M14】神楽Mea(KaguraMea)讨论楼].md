@@ -517,3 +517,14 @@ LOL这些都能忍
 
 说的好像主播在vspo粉丝里就不恶评如潮一样
 
+
+*****
+
+####  poipanchao  
+##### 19563#       发表于 2025-9-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406203&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2025-9-11 11:17</a>
+说的好像主播在vspo粉丝里就不恶评如潮一样</blockquote>
+在可观测范畴内还行啊，就连串里风评也还行
+说实话主播也就那样，不如男主播性骚扰恶心
+

@@ -2846,3 +2846,99 @@ bibi干的可能性不能为0</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大义灭亲林有德  
+##### 298#       发表于 2025-9-11 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406154&amp;ptid=2261694" target="_blank">qqks 发表于 2025-9-11 11:10</a>
+
+其实只差决心，美国那堆左派平心而论智力水平比maga高不少。</blockquote>
+你要是多跟这些所谓的左派对对线就会发现他们和右派是卧龙凤雏，在同一个教育体系和社会制度下不存在某派智商会高于另一派的情况，不过白左比右派颠倒是真的。
+
+*****
+
+####  stmule  
+##### 299#       发表于 2025-9-11 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406049&amp;ptid=2261694" target="_blank">aiooia 发表于 2025-9-11 10:53</a>
+军盲想问下，假设大美想像管制自动Rifle一样管制sniper gun。这种一定距离上的精准射击Rifle能够通过技术指 ...</blockquote>
+存量解决不了，有很多高精度步枪在“藏家”手里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  谢云流  
+##### 300#       发表于 2025-9-11 11:30
+
+这枪法，万一是觉得他是异端的极右翼呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  大义灭亲林有德  
+##### 301#       发表于 2025-9-11 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406232&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-11 11:22</a>
+
+手搓高压锅对美国人也不是难事，波士顿马拉松爆炸案就是个典型</blockquote>
+然而至此之后美国近些年其实没再发生过这种有技术含量的袭击，一方面是911后的整体监控力度极大，另一方面是这手艺不被重视了。只能等经过真主党培训的拉美人才带动本地市场技术迭代了。
+
+*****
+
+####  aeolus039  
+##### 302#       发表于 2025-9-11 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406267&amp;ptid=2261694" target="_blank">大义灭亲林有德 发表于 2025-9-11 11:28</a>
+你要是多跟这些所谓的左派对对线就会发现他们和右派是卧龙凤雏，在同一个教育体系和社会制度下不存在某派 ...</blockquote>
+白左的优势在于没进门的温和派比较有学问，如果奶龙把他们折腾极端了就有好戏看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+右派整个光谱就没啥有脑子的
+
+*****
+
+####  nexus1  
+##### 303#       发表于 2025-9-11 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406072&amp;ptid=2261694" target="_blank">億万千 发表于 2025-9-11 10:57</a>
+
+宪法里那个持枪权就是说gun吧，直接只允许民间持有手枪是不是就行了，也不违宪 ...</blockquote><blockquote>A well regulated Militia, being necessary to the security of a free State, the right of the people to keep and bear Arms, shall not be infringed.</blockquote>
+
+就arm,怎么理解都行
+
+*****
+
+####  猫出没注意  
+##### 304#       发表于 2025-9-11 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405672&amp;ptid=2261694" target="_blank">Prushka 发表于 2025-9-11 09:52</a>
+
+什么软件，能把used翻译成我们ed
+
+论坛助手,iPhone</blockquote>
+仔细看了一下原文，大概率是弱智机翻被其中的粗体字干扰到翻译了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raragon  
+##### 305#       发表于 2025-9-11 11:35
+
+一枪打中脖子这枪法堪比塔科夫的AI了
+
+*****
+
+####  stmule  
+##### 306#       发表于 2025-9-11 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406243&amp;ptid=2261694" target="_blank">大义灭亲林有德 发表于 2025-9-11 11:24</a>
+我不想抬杠，不过一年枪战死几万人的牢美独一家，甚至超过俄乌战场，蓝星独此一家。
+
+另外FPV和自爆泥头车 ...</blockquote>
+我想了想，fpv有啥难的，我咬咬牙都能装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对我来说难点大概在电烙铁，其他不是有手就行
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
