@@ -360,3 +360,14 @@
 
 说实话他这个抽抽乐真的不用忍，可以攒几个颜色合适的大遗物然后根据遗物生成规则改成自己想要的合法词条
 
+
+*****
+
+####  jacket  
+##### 1659#       发表于 2025-9-11 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408039&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-9-11 16:30</a>
+
+深夜模式一局暗痕给的多吗？目前只攒了十几万，普通模式都不舍得抽（也抽不到毕业的遗物）。另外问问深夜 ...</blockquote>
+我都是攒够十万然后存档抽，抽不到合适的就读档
+

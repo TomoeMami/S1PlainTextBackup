@@ -6174,3 +6174,146 @@ LGBT和黑人还好说，maga基本都是教徒吧，方案宗教信仰为什么
 因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全 ...</blockquote>
 白右不让我看片玩黄油，支持白左杀光白右<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡嘎米  
+##### 596#       发表于 2025-9-11 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408200&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 16:54</a>
+
+操弄议题的大概率不是真正相信这些议题的，无论左右
+
+意见领袖倒大概是真的信，但也不全面，他们会推一部分 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">左是真相信，左可以用一个词叫“信仰”，信仰是做不得假的，
+
+否则就没有自我牺牲骗廷杖这类动作了，
+
+而右的领袖那确实是人设，什么有利说什么，因为右的本质是功利主义，
+
+比如眼线为了人设可以是maga，但其实呵呵
+
+*****
+
+####  lexi  
+##### 597#       发表于 2025-9-11 17:00
+
+<blockquote>守名居 发表于 2025-9-11 16:36
+打脖子一秒僵硬（？）的情况来看是瞬间死亡的吧
+
+感觉很像车祸视频看过的那种头部着地休克死亡的，估计他都 ...</blockquote>
+除非子弹射中颈部的力量传导到脑部，剧烈震动让他瞬间昏迷，否则光是失血，他的大脑在彻底缺氧死亡前还能清醒十几秒的。
+
+*****
+
+####  缪斯替  
+##### 598#       发表于 2025-9-11 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408172&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-11 16:51</a>
+
+哪有那么复杂，打游戏的觉得被白左“迫害”了
+
+小头控制大头，不论黑猫白猫，能让小头硬的就是好猫</blockquote>
+就事论事倒没什么，但上次阿川收拾信用卡那事最后重点是在保护maga/宗教组织上吧，游戏提都没提
+
+结果国内不知谁推波助澜一下就一堆玩家给人唱赞歌，现在一看信用卡公司真对游戏松绑了吗？这下赞歌白唱了
+
+
+*****
+
+####  2017.05.04  
+##### 599#       发表于 2025-9-11 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408236&amp;ptid=2261694" target="_blank">lexi 发表于 2025-9-11 17:00</a>
+
+除非子弹射中颈部的力量传导到脑部，剧烈震动让他瞬间昏迷，否则光是失血，他的大脑在彻底缺氧死亡前还能 ...</blockquote>
+他颈椎应该受了强烈冲击，说不定当场已经颈椎骨折死亡了
+
+*****
+
+####  liuguokobe  
+##### 600#       发表于 2025-9-11 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408227&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-11 16:58</a>
+
+左是真相信，左可以用一个词叫“信仰”，信仰是做不得假的，
+
+否则就没有自我牺牲骗廷杖这类动作了，</blockquote>
+按你这么说那左派更不怕暗杀啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，反正都是因信称义
+
+
+*****
+
+####  卡嘎米  
+##### 601#       发表于 2025-9-11 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408244&amp;ptid=2261694" target="_blank">缪斯替 发表于 2025-9-11 17:02</a>
+
+就事论事倒没什么，但上次阿川收拾信用卡那事最后重点是在保护maga/宗教组织上吧，游戏提都没提
+
+结果国内 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右就喜欢乱认队友，发现错了光速切割，毫无心里负担，因为功利不要脸的，你看阿川胡咧咧有什么心理压力么，啊打脸了完全不在乎。
+
+*****
+
+####  xuanwu_lei  
+##### 602#       发表于 2025-9-11 17:04
+
+ 本帖最后由 xuanwu_lei 于 2025-9-11 17:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408132&amp;ptid=2261694" target="_blank">艾诺琳 发表于 2025-9-11 16:45</a>
+国内保守派和maga合流不是很正常吗？
+
+政治光谱挺相近的，都是反移民，反LGBT，优待本族</blockquote>
+能不能在坚持本土习惯的基础上抄点好的，而不是吃另类右的二手屎<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+移民问题上儒教有「夷狄入夏」论，道教有「种民」论
+
+LGBT问题上有著名论断「关你屁事，关我屁事」，你觉得LGBT传播艾呀梅事，那还有德式健康研究党跟法式Pacs协定可以抄
+
+优待本族首先需要定义本族，这又回到问题一了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自己几千年历史，欧洲几千年历史，不去利用，天天吃某个塞勒姆挂人大赛的产物的二手屎有意思吗<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你说这个谁懂呀?  
+##### 603#       发表于 2025-9-11 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408227&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-11 16:58</a>
+
+左是真相信，左可以用一个词叫“信仰”，信仰是做不得假的，
+
+否则就没有自我牺牲骗廷杖这类动作了，</blockquote>
+可垃**倒吧,
+
+你说上世纪的左有信仰我信,
+
+人家是有事真上,为了无产阶级参加西班牙内战,
+
+现在的白左你问问愿不愿意为了他们口中的环保真的全部放弃私家车,
+
+选择公共交通出行?
+
+还记着当年采访,一问就是我支持难民进来之后现场抓个难民过来,
+
+一个个家里事情就拉满不让来了.<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  循此苦旅  
+##### 604#       发表于 2025-9-11 17:05
+
+这T恤下面也不可能有插板吧，怎么跳弹？就单纯是命中时衣服抖动吧。
+
+*****
+
+####  卡嘎米  
+##### 605#       发表于 2025-9-11 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408248&amp;ptid=2261694" target="_blank">liuguokobe 发表于 2025-9-11 17:02</a>
+
+按你这么说那左派更不怕暗杀啊，反正都是因信称义</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是右一般是不搞暗杀这种个人英雄主义的，因为右都是一群怕承担责任的，要集体办事。
+
+暗杀搞的都是左派，很难出个右疯子
+
