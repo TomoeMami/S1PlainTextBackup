@@ -6102,3 +6102,75 @@ LGBT和黑人还好说，maga基本都是教徒吧，方案宗教信仰为什么
 LGBT和黑人还好说，maga基本都是教徒吧，方案宗教信仰为什么会支持maga</blockquote>
 可能是基督徒也许可以交人头税保命，无神论者只能物理毁灭吧
 
+
+*****
+
+####  卡嘎米  
+##### 589#       发表于 2025-9-11 16:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么左会让右联合，因为左搞那套叫“普世”，就是你们一起上，同时损害所有群体，在世界富有的时候左可以随便作，随便消耗资源，但一旦下行，所有群体都容不得他们
+
+*****
+
+####  2017.05.04  
+##### 590#       发表于 2025-9-11 16:50
+
+宝终于蹦出来喊抓人，那大概率是抓到了
+
+*****
+
+####  outerish  
+##### 591#       发表于 2025-9-11 16:51
+
+哪有那么复杂，打游戏的觉得被白左“迫害”了
+
+小头控制大头，不论黑猫白猫，能让小头硬的就是好猫
+
+*****
+
+####  牛顿学物理  
+##### 592#       发表于 2025-9-11 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408030&amp;ptid=2261694" target="_blank">oyss 发表于 2025-9-11 16:29</a>
+
+我觉得泥潭有些人似乎分不清楚这个问题.
+
+1.MAGA骨子里是瞧不起中国人的,中国人干的就是错的,就是敌对.  当 ...</blockquote>
+不就是“本土派”和“世界公民”之间的斗争
+
+我们搞这种斗争其实比maga还早呢
+
+*****
+
+####  畜男不是人  
+##### 593#       发表于 2025-9-11 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408133&amp;ptid=2261694" target="_blank">Суслов 发表于 2025-9-11 03:45</a>
+美国maga急着给他封圣就算了，国内不少人也急着给他封圣吹他逻辑辩论无敌不知道是咋想的。如果国内比如说马 ...</blockquote>
+圣都是对应一个范围人群的，他封个白右圣问题不大吧，国内的网友也不至于把他变成自己的圣
+
+
+*****
+
+####  卖哥  
+##### 594#       发表于 2025-9-11 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408122&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-11 16:44</a>
+
+右派其实根本不怕暗杀，右派是一种组织，被推选出来的那些个“头”，看似权力无限，其实是祭品，是用来承担 ...</blockquote>
+操弄议题的大概率不是真正相信这些议题的，无论左右
+
+意见领袖倒大概是真的信，但也不全面，他们会推一部分自己的思想，一部分不符合自己思想的会附和来凹人设获得更大规模的支持者。
+
+比如最常见的凹出来的人设，无私。
+
+*****
+
+####  onion0201  
+##### 595#       发表于 2025-9-11 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406735&amp;ptid=2261694" target="_blank">season1237 发表于 2025-9-11 13:05</a>
+
+因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全 ...</blockquote>
+白右不让我看片玩黄油，支持白左杀光白右<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -347,3 +347,16 @@
 深夜遗物抽一次180 ...</blockquote>
 深夜模式一局暗痕给的多吗？目前只攒了十几万，普通模式都不舍得抽（也抽不到毕业的遗物）。另外问问深夜模式是只生效新增的3个遗物栏，还是6个都生效。上班不能第一时间体验急死了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shyso  
+##### 1658#       发表于 2025-9-11 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408039&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-9-11 16:30</a>
+
+深夜模式一局暗痕给的多吗？目前只攒了十几万，普通模式都不舍得抽（也抽不到毕业的遗物）。另外问问深夜 ...</blockquote>
+暗痕和普通给的一样，通关3000上下，遗物是6个都生效
+
+说实话他这个抽抽乐真的不用忍，可以攒几个颜色合适的大遗物然后根据遗物生成规则改成自己想要的合法词条
+
