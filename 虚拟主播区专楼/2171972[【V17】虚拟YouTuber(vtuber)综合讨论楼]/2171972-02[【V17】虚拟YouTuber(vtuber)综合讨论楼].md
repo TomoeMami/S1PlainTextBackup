@@ -134,3 +134,14 @@ yqqx这箱看上去也是不出两年就会被b社收购的东西，在名气上
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能被b社收就已经算不错了
 
+
+*****
+
+####  poipanchao  
+##### 1522#       发表于 2025-9-11 18:01
+
+b社这么玩到底有没有搞头啊
+你要说乱烧钱嘛还是有优质资产的
+但是没见它搞什么联合，就各玩各的
+可能是一些周边和设备有共享吧
+
