@@ -7818,3 +7818,33 @@ LGB切T的话就没脸面要求顺直顺着它们了
 和terf还是不一样，老美想把跨踢出去的主力是树屋俱乐部，这群人虽然基本都是同性恋，但倡导＂男人就应该 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我印象有些变性人也挺喜欢强调＂男人就应该有男人样，女人就应该有女人样＂的。
 
+
+*****
+
+####  danbreath  
+##### 735#       发表于 2025-9-11 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409693&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-11 21:19</a>
+
+康左也是大批抽象的。
+
+实际上，有了实事求的认知就是中了。</blockquote>
+左右就是美国一种让大脑扁平化的话术。
+
+对于老美，你说的“中”指代的群体应该是改良建制派；
+
+但是国内的改良建制派如果老美的光谱来划分的话，应该是国内有实际影响力的群体中最左的了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  black199  
+##### 736#       发表于 2025-9-11 21:56
+
+<blockquote>卖哥 发表于 2025-9-11 21:42
+这就是性别能出来那么多个的原因呀
+
+自然性别、自身认知、性取向，乘出性别数量
+
+更可怕的是，生成的新性别 ...</blockquote>
+树屋俱乐部这帮人理念还是比较宗教化的，大意就是上帝赐予你的身体你想改变它说明被恶魔蛊惑了，不存在社会构建性别，性别只有两种，肉体性别就是性别身份，这是上帝定好的，性取向不涉及性别构建。 其实他们这套组合拳对dems挺好用的，就是象党内部内战时要不是他们🪣战价值高会被爆杀
+
