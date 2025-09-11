@@ -916,3 +916,97 @@ maga的pussy能有什么本事报复吗
 
 出血量惊人，而且感觉人瞬间就失去意识了啊，还以为会挣扎一下
 
+
+*****
+
+####  mingrimong  
+##### 100#       发表于 2025-9-11 08:27
+
+看这位的言论，唯一的遗憾是走的不够痛苦。
+
+*****
+
+####  black199  
+##### 101#       发表于 2025-9-11 08:27
+
+<blockquote>siebten 发表于 2025-9-11 08:13
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+主要是驴党养猪养的一群纯废物，和象党少壮派有生力量比起来自然就不行了，驴党现在年轻人稍微能打的比如aoc其实是党外吸纳的，现在用老朽这个词形容驴党完全是恰如其分
+
+*****
+
+####  kyomu  
+##### 102#       发表于 2025-9-11 08:28
+
+奶龙有身法的呀
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  aeolus039  
+##### 103#       发表于 2025-9-11 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405153&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-11 08:27</a>
+主要是驴党养猪养的一群纯废物，和象党少壮派有生力量比起来自然就不行了，驴党现在年轻人稍微能打的比如 ...</blockquote>
+驴党的所有努力其实都成了让奶龙挥霍的资本，着实可笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hydro  
+##### 104#       发表于 2025-9-11 08:30
+
+<blockquote>Saa123 发表于 2025-9-11 08:20
+物理消灭是否是玩不起的表现</blockquote>
+我印象里拥枪叙事不就是反权威的吗，本来就是掀桌子用的
+
+只不过这次自己被当成权威掀了
+
+这也反映出群体之间的分裂谁也不服谁，都自认觉醒
+
+*****
+
+####  intotherain9  
+##### 105#       发表于 2025-9-11 08:30
+
+"为了拥有第二修正案，每年付出一些枪支死亡的代价也是值得的"
+----Charlie Krik
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+他要是有外骨骼装甲不就死不了了么<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  呼鲁鲁修  
+##### 106#       发表于 2025-9-11 08:31
+
+居然还要降半旗？？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他配吗，干脆给他在白宫加一幅画像好了
+
+*****
+
+####  summerfish  
+##### 107#       发表于 2025-9-11 08:32
+
+妈呀，算是第一次看到血流如注
+
+*****
+
+####  离魂仙  
+##### 108#       发表于 2025-9-11 08:33
+
+终于知道“动漫量”到底啥样了
+
+*****
+
+####  TNN  
+##### 109#       发表于 2025-9-11 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405139&amp;ptid=2261694" target="_blank">wjxforever 发表于 2025-9-11 08:24</a>
+
+出血量惊人，而且感觉人瞬间就失去意识了啊，还以为会挣扎一下</blockquote>
+脑缺氧是这样的，比掐脖子好用的多
+
