@@ -73,3 +73,20 @@ C区域吗？我去试试看
 
 这个不是汉化的问题，原版游戏就是这样的
 
+
+*****
+
+####  Alice.Andvari  
+##### 88#       发表于 2025-9-11 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68403600&amp;ptid=2256342" target="_blank">blueelf 发表于 2025-9-10 19:59</a>
+
+试了一下，到这里还可以正常打捞
+
+到这里就不行了</blockquote>
+应该不是，船强化后造型会变
+
+***
+
+问下各位大佬，地下设施那个认证密码要填什么，看不懂提示卡住了
+

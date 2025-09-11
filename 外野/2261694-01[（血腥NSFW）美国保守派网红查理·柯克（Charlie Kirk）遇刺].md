@@ -6332,3 +6332,151 @@ LGBT问题上有著名论断「关你屁事，关我屁事」，你觉得LGBT传
 人家是有事真上,为了无产阶级参加西班牙内战,</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">左大多数负责逼逼而不付具体代价，付个人代价的叫有信仰，殉道，这么说明白吗
 
+
+*****
+
+####  守名居  
+##### 607#       发表于 2025-9-11 17:16
+
+12:20查理被枪击
+
+12:24科罗拉多州发生校园枪击案，不过简单看了下新闻两人住院没死，新闻写病危，凶手是学生，枪击后自伤可能会死
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aeolus039  
+##### 608#       发表于 2025-9-11 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408264&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-11 17:05</a>
+但是右一般是不搞暗杀这种个人英雄主义的，因为右都是一群怕承担责任的，要集体办事。
+
+暗杀搞的都是左派 ...</blockquote>
+**透露，在博尔特车辆中发现了三支AK-47突击步枪、一把9毫米手枪、防弹背心、警用徽章以及一份长达数页的暗杀名单。
+名单中列有多名民主党议员、堕胎权支持者、非营利机构人员和一位知名慈善家。执法部门初步认定，博尔特伪装成警察，驾驶改装后的仿警车发动袭击，意图制造一系列政治暗杀。
+
+能不能别转眼就忘了三个月前的事？
+
+*****
+
+####  profklugstein  
+##### 609#       发表于 2025-9-11 17:18
+
+不知道你们有什么好辩的，这智商死了属于物竞天择，<img src="https://p.sda1.dev/26/442f353a40272a7532118a177ec426bd/image.jpg" referrerpolicy="no-referrer">有利于人类进步
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gammatau  
+##### 610#       发表于 2025-9-11 17:19
+
+罗马共和国也是精英在街头乱斗里互杀啊，影射史学不学不行（
+
+*****
+
+####  2017.05.04  
+##### 611#       发表于 2025-9-11 17:20
+
+少放地图炮多具体问题具体分析
+
+*****
+
+####  你来搞笑  
+##### 612#       发表于 2025-9-11 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408264&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-11 17:05</a>
+但是右一般是不搞暗杀这种个人英雄主义的，因为右都是一群怕承担责任的，要集体办事。
+
+暗杀搞的都是左派 ...</blockquote>
+这就有点扯淡了，暗杀不暗杀和左右无关，和组织的素质有关
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  骑兵突击步枪  
+##### 613#       发表于 2025-9-11 17:23
+
+ 本帖最后由 骑兵突击步枪 于 2025-9-11 17:25 编辑 
+
+我今天在UP主不抱团乐队讲这件事的节目底下的评论里看到这个，皇汉现在都主动共情美国保守派了吗，对此美国保守派估计只会说“你们这帮chink是JB谁啊”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://i0.hdslb.com/bfs/new_dyn/3c16f6051260fb8c48e387e2a18e12dc3494356763806024.jpg@1052w_!web-dynamic.avif" id="aimg_IUQED" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+3c16f6051260fb8c48e387e2a18e12dc3494356763806024.jpg@1052w_!web-dynamic.avif
+
+2025-9-11 17:25 上传
+点击文件名下载附件
+
+40.28 KB, 下载次数: 0
+
+*****
+
+####  卡嘎米  
+##### 614#       发表于 2025-9-11 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408353&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-11 17:18</a>
+
+**透露，在博尔特车辆中发现了三支AK-47突击步枪、一把9毫米手枪、防弹背心、警用徽章以及一份长达数页的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说一般不搞，并不是绝对没有，因为右是一种类似邪教的组织，出个疯子也正常，但一般行动是以集体名义，个人独走比较少，都是集体发疯比如226，发了首先想到的还是谁负责
+
+*****
+
+####  苓宁  
+##### 615#       发表于 2025-9-11 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405594&amp;ptid=2261694" target="_blank">膛线 发表于 2025-9-11 09:40</a>
+
+不理解，为什么美国奥运会射击成绩那么差，是因为他们只擅长打移动靶吗？ ...</blockquote>
+xs<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">**是移动靶 也没打到啊 这次的查理是几乎**的
+
+*****
+
+####  畜男不是人  
+##### 616#       发表于 2025-9-11 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408388&amp;ptid=2261694" target="_blank">骑兵突击步枪 发表于 2025-9-11 04:23</a>
+我今天在UP主不抱团乐队讲这件事的节目底下的评论里看到这个，皇汉现在都主动共情美国保守派了吗，对此美国 ...</blockquote>
+客观来讲只是因为国内的皇汉压根不成气候，也没人了解。 但保守右翼抱团确实是一种天然趋势
+
+*****
+
+####  Belisarius  
+##### 617#       发表于 2025-9-11 17:25
+
+一下午没看盖了300楼还以为大的来了，一点开发现是左右大混操，失望，管理员什么时候进来栓人
+
+*****
+
+####  zerocount  
+##### 618#       发表于 2025-9-11 17:25
+
+<img src="https://img.stage1st.com/forum/202509/11/172349xhf2snquvy00z2ul.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250911172318.png</strong> (995.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 17:23 上传
+
+艹
+
+反向思考了是吧？
+
+“如果枪是坏的，为啥我死了？”
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  season1237  
+##### 619#       发表于 2025-9-11 17:27
+
+<blockquote>骑兵突击步枪 发表于 2025-9-11 17:23
+我今天在UP主不抱团乐队讲这件事的节目底下的评论里看到这个，皇汉现在都主动共情美国保守派了吗，对此美国 ...</blockquote>
+因为再不报团就要被左左杀光了。
+
