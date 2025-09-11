@@ -2942,3 +2942,79 @@ bibi干的可能性不能为0</blockquote>
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  革萌  
+##### 307#       发表于 2025-9-11 11:37
+
+这次是远距离一发击中颈动脉，大概率是专业枪手
+
+*****
+
+####  大义灭亲林有德  
+##### 308#       发表于 2025-9-11 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406286&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-11 11:31</a>
+
+白左的优势在于没进门的温和派比较有学问，如果奶龙把他们折腾极端了就有好戏看了
+
+右派整个光谱就没啥有 ...</blockquote>
+其实我真的觉得从这么多年在X和**/红迪上和他们对线的经验来看，美国人现在还热衷于趟政治浑水的，无论左右都没区别，也许大略观测一下像个正常人，但多聊两句你就会发现他们的底层逻辑非常克苏鲁，而且他们都一样傲慢，相信自己是绝对正义的。真正有点脑子的只对3件事有兴趣，1是搞钱，2是怎么润出去，3是润不出去该怎么自保，没人会跟你扯政治，因为觉得左右都太S B，提起来只想骂街。
+
+
+*****
+
+####  猫出没注意  
+##### 309#       发表于 2025-9-11 11:40
+
+"Prove me wrong (证明我错了/不服来辩)"，这下被物理说服了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/11/114027zdvsikqqhhs1of1s.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-09-11_11-39-29.png</strong> (10.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-11 11:40 上传
+
+*****
+
+####  1010248485  
+##### 310#       发表于 2025-9-11 11:40
+
+ 本帖最后由 1010248485 于 2025-9-11 11:42 编辑 
+
+<img src="https://i0.hdslb.com/bfs/new_dyn/f8d94c1d03e417bbc85b6bd34aad5df5290548469.jpg@1052w_!web-dynamic.avif" id="aimg_YX6eH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+别怕，这是治疗
+
+*****
+
+####  nekkihs2  
+##### 311#       发表于 2025-9-11 11:42
+
+老歪动作真快
+<img src="https://p.sda1.dev/26/661aaad8a8e45cddcba4ea4c2716a274/1000002793.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/4521b789ae50998c84c5bf266304bb46/1000002790.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/3383c876deb23d27f7a1340559504bc3/1000002791.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/26/489130e6c5edb8be597dac719f257569/1000002792.jpg" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  天选之子  
+##### 312#       发表于 2025-9-11 11:43
+
+<blockquote>革萌 发表于 2025-9-11 11:37
+这次是远距离一发击中颈动脉，大概率是专业枪手</blockquote>
+也有可能是不专业枪手瞄头打脖子。
+
+*****
+
+####  Yugao  
+##### 313#       发表于 2025-9-11 11:44
+
+据说是.22打的，这枪准的可怕了
+
