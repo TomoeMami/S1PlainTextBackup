@@ -1010,3 +1010,121 @@ maga的pussy能有什么本事报复吗
 出血量惊人，而且感觉人瞬间就失去意识了啊，还以为会挣扎一下</blockquote>
 脑缺氧是这样的，比掐脖子好用的多
 
+
+*****
+
+####  Vora  
+##### 110#       发表于 2025-9-11 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405096&amp;ptid=2261694" target="_blank">siebten 发表于 2025-9-11 08:13</a>
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+诡辩+自己剪的视频集锦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Hydro  
+##### 111#       发表于 2025-9-11 08:36
+
+<blockquote>Hydro 发表于 2025-9-11 08:30
+我印象里拥枪叙事不就是反权威的吗，本来就是掀桌子用的
+
+只不过这次自己被当成权威掀了
+
+这也反映出群体之 ...</blockquote>
+当然上述形容只用于真的“信徒”之间，主楼这个我觉得就单纯是个政治投机者
+
+政治投机和商业投机是劳美舆论汴京的醍醐味，不得不品尝
+
+*****
+
+####  周处除三害  
+##### 112#       发表于 2025-9-11 08:37
+
+美国户晨风
+
+*****
+
+####  胜改藏  
+##### 113#       发表于 2025-9-11 08:37
+
+求仁得仁？
+
+*****
+
+####  防撞桶好  
+##### 114#       发表于 2025-9-11 08:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以身证道说是
+
+*****
+
+####  万恶淫猥手  
+##### 115#       发表于 2025-9-11 08:38
+
+<blockquote>siebten 发表于 2025-9-11 08:13
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+信白左那套的大多王八念经，因为这样所以这样，没什么逻辑的
+
+*****
+
+####  畜男不是人  
+##### 116#       发表于 2025-9-11 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405127&amp;ptid=2261694" target="_blank">Saa123 发表于 2025-9-10 19:20</a>
+物理消灭是否是玩不起的表现</blockquote>
+并非 不过是玩的终极形态罢了
+
+*****
+
+####  wtwtwt21  
+##### 117#       发表于 2025-9-11 08:41
+
+批判的武器不如武器的批判
+
+
+*****
+
+####  冤枉呐  
+##### 118#       发表于 2025-9-11 08:42
+
+我靠何等激烈滴豆蒸
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  影子都没有了  
+##### 119#       发表于 2025-9-11 08:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">动图看起来射脖子比爆头还刺激啊
+
+*****
+
+####  naclken.  
+##### 120#       发表于 2025-9-11 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405172&amp;ptid=2261694" target="_blank">summerfish 发表于 2025-9-11 08:32</a>
+
+妈呀，算是第一次看到血流如注</blockquote>
+无独有偶，前两天被尼哥捅死的难民也是这个部位，也是血流如注。<img src="https://static.stage1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  black199  
+##### 121#       发表于 2025-9-11 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405101&amp;ptid=2261694" target="_blank">dclara1 发表于 2025-9-11 08:15</a>
+
+去大学舌战群左的maga网红我只知道那个英国犹太基佬Milo，那会也是风头很盛，不过那是川宝第一届那会的事了 ...</blockquote>
+人刚参加完异性恋骄傲大游行呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你没看错我也没打错字
+
+*****
+
+####  周处除三害  
+##### 122#       发表于 2025-9-11 08:45
+
+打得真准，直接封喉
+
