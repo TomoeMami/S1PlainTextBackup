@@ -3584,3 +3584,81 @@ fpv教程相较于爆炸物和rpg弹头还是好弄一点
 第一次体会？早就说了泥潭老右除了不支持鱿鱼和无脑反华之外，早就在几乎任何议题上都和欧美另类右翼大团 ...</blockquote>
 也不单是泥潭了 民族右派底色都是相似的
 
+
+*****
+
+####  今天不守尸  
+##### 368#       发表于 2025-9-11 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406534&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-11 12:20</a>
+ 这老头好惨，抓错人裤子都被扒了  —— 来自 OnePlus OPD2407, Android 15, 鹅球 v3.5.99 ...</blockquote>
+这老头是那种有过激弹幕骂主播**时，他就立马狂刷“保护”滚屏的乐子人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾诺琳  
+##### 369#       发表于 2025-9-11 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406688&amp;ptid=2261694" target="_blank">鲁邦三世1 发表于 2025-9-11 12:52</a>
+fpv教程相较于爆炸物和rpg弹头还是好弄一点
+
+没有rpg弹头，难道拿着fpv当飞镖去撞人吗？</blockquote>
+我的意思就会爆炸fpv难点在于组装爆炸物和可靠引信
+
+只有等乌克兰把技术狠狠扩散了
+
+
+*****
+
+####  bad_alloc  
+##### 370#       发表于 2025-9-11 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405250&amp;ptid=2261694" target="_blank">乔伊 发表于 2025-9-11 08:51</a>
+他的言论和事迹包括但不限于：认为为了保卫拥枪权每年发生几次校园枪击是必要的牺牲；认为假如自己女儿被强 ...</blockquote>
+草，某种意义上也是知行合一了，nra得给他封个主保圣人才对
+
+*****
+
+####  tillnight  
+##### 371#       发表于 2025-9-11 13:02
+
+<blockquote>西瓜不甜不甜 发表于 2025-9-11 11:47
+意思是这个人反对禁枪，支持拥有枪支，然后被人用枪干掉了。
+
+支持禁枪，反对他的人，因为辩不过他，用枪把 ...</blockquote>
+差不多得了。
+
+第一，我也可以说是巴勒斯坦支持者正义审判。
+
+第二，他不是什么辩论奇才，已经有无数人指出了这人的典型网红套路，剪几段口水喷赢的就当无敌寂寞了，实际在剑桥辩论被人吊打但无人传播。
+
+第三，反对他就可以枪杀他这是拥枪主义求仁得仁，但不等于杀他的人辩不过他。我辩赢了就不可以杀你这个嘴下败将但依然到处走穴哔哔个没完的？
+
+*****
+
+####  Tissuesea  
+##### 372#       发表于 2025-9-11 13:04
+
+说起来这算不算致敬懂王被枪杀的情节，可惜没活过来，活过来万斯要紧张起来了。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  wtwtwt21  
+##### 373#       发表于 2025-9-11 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405096&amp;ptid=2261694" target="_blank">siebten 发表于 2025-9-11 08:13</a>
+
+其实他逻辑辩论真的很强吗 我感觉更像是美国大学生智力不行 或者说信白左的脑子确实比信上帝的弱一点 ...</blockquote>
+他的校园辩论场合都是有团队有准备随机找几个路人学生有备打无备，职业打业余性质的碾压局根本不能说明他的辩论能力很强，拳打南山敬老院脚踢北海育婴堂罢了
+
+*****
+
+####  season1237  
+##### 374#       发表于 2025-9-11 13:05
+
+<blockquote>busuoni 发表于 2025-9-11 12:51
+第一次体会？早就说了泥潭老右除了不支持鱿鱼和无脑反华之外，早就在几乎任何议题上都和欧美另类右翼大团 ...</blockquote>
+因为每个日子人每天都在被左派的女权和lgbt恶心和迫害，连过正常日子都是奢望，这是全世界普遍的问题，全世界日子人都面临左派的双标和迫害。左派不是最喜欢讲觉醒文化和团结吗？这其实就是保守日子人的觉醒和团结。
+
