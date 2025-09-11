@@ -8010,3 +8010,18 @@ R.I.P.
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zerona  
+##### 753#       发表于 2025-9-12 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410025&amp;ptid=2261694" target="_blank">你说这个谁懂呀? 发表于 2025-9-11 22:44</a>
+
+不是,中国是全世界最支持跨的国家了吧. . .
+
+很多情况下,你只要国内医院做了之后开了证明直接改身份. . .
+
+你 ...</blockquote>
+你要么是男要么是女。别琢磨直升机。
+
