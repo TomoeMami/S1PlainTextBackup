@@ -2021,7 +2021,7 @@
     "newtitle": "[（不）推漫：咒术回战]",
     "lastedit": 1757315054,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1726277": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 19334,
+    "totalreply": 19335,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》8.28 奥气冲天]",
-    "lastedit": 1757573408,
+    "lastedit": 1757574008,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 189755,
+    "totalreply": 189758,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1757573901,
+    "lastedit": 1757574267,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9846,10 +9846,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 12925,
+    "totalreply": 12926,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1757573408,
+    "lastedit": 1757574128,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -11655,10 +11655,10 @@
     "update": false
   },
   "2076978": {
-    "totalreply": 872,
+    "totalreply": 873,
     "title": "[TRIGGER 扳机社 吊带袜天使新作动画『新·吊带袜天使』]",
     "newtitle": "[TRIGGER 扳机社 吊带袜天使新作动画『新·吊带袜天使』]",
-    "lastedit": 1757573901,
+    "lastedit": 1757574267,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11727,10 +11727,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 2454,
+    "totalreply": 2456,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1757573901,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -12518,15 +12518,6 @@
     "active": false,
     "update": false
   },
-  "2260138": {
-    "totalreply": 63,
-    "title": "[ZT 完美承担40万人漫展的上海，为什么栽在了一场8万人的演唱会上？]",
-    "newtitle": "[ZT 完美承担40万人漫展的上海，为什么栽在了一场8万人的演唱会上？]",
-    "lastedit": 1756364782,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2260154": {
     "totalreply": 180,
     "title": "[已婚的坛友来说下无性婚姻是这样产生的吗？有点恐怖啊]",
@@ -12896,15 +12887,6 @@
     "active": false,
     "update": false
   },
-  "2260372": {
-    "totalreply": 49,
-    "title": "[konami官方入驻b站]",
-    "newtitle": "[konami官方入驻b站]",
-    "lastedit": 1756364653,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2260375": {
     "totalreply": 67,
     "title": "[是不是很多老年人都有大医院恐惧症？]",
@@ -12960,10 +12942,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 1150,
+    "totalreply": 1153,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
-    "lastedit": 1757569104,
+    "lastedit": 1757574267,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -14085,10 +14067,10 @@
     "update": false
   },
   "2260696": {
-    "totalreply": 174,
+    "totalreply": 176,
     "title": "[中东专楼-9月版]",
     "newtitle": "[中东专楼-9月版]",
-    "lastedit": 1757573175,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -14193,10 +14175,10 @@
     "update": false
   },
   "2260703": {
-    "totalreply": 282,
+    "totalreply": 283,
     "title": "[俄乌9月楼]",
     "newtitle": "[俄乌9月楼]",
-    "lastedit": 1757573901,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -14292,10 +14274,10 @@
     "update": false
   },
   "2260786": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "[没人告诉我地球防卫军6那么好玩啊，打得头皮发麻]",
     "newtitle": "[没人告诉我地球防卫军6那么好玩啊，打得头皮发麻]",
-    "lastedit": 1757569332,
+    "lastedit": 1757574488,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15782,7 +15764,7 @@
     "newtitle": "[我发现雷克萨斯的轿车蛮好看的]",
     "lastedit": 1757315172,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2261385": {
@@ -16461,10 +16443,10 @@
     "update": false
   },
   "2261595": {
-    "totalreply": 265,
+    "totalreply": 266,
     "title": "[白切鸡事件是不是对两广网民喜欢锐评其他菜系的反噬]",
     "newtitle": "[白切鸡事件是不是对两广网民喜欢锐评其他菜系的反噬]",
-    "lastedit": 1757573774,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -16497,10 +16479,10 @@
     "update": false
   },
   "2261647": {
-    "totalreply": 201,
+    "totalreply": 202,
     "title": "[留美文科生眼中最黑暗的一天（内含DEI小作文，慎入）]",
     "newtitle": "[留美文科生眼中最黑暗的一天（内含DEI小作文，慎入），更新后续。]",
-    "lastedit": 1757572702,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -16614,10 +16596,10 @@
     "update": false
   },
   "2261600": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[暴雪毁了RTS是不是一种非常典型的暴白言论？]",
     "newtitle": "[暴雪毁了RTS是不是一种非常典型的暴白言论？]",
-    "lastedit": 1757573540,
+    "lastedit": 1757574129,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16650,19 +16632,19 @@
     "update": false
   },
   "2261562": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[漫区人口普查2025]",
     "newtitle": "[漫区人口普查2025]",
-    "lastedit": 1757570889,
+    "lastedit": 1757574260,
     "category": "漫区",
     "active": true,
     "update": false
   },
   "2198881": {
-    "totalreply": 175,
+    "totalreply": 176,
     "title": "[动漫之家倒了]",
     "newtitle": "[动漫之家倒了]",
-    "lastedit": 1757570531,
+    "lastedit": 1757574488,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16731,10 +16713,10 @@
     "update": false
   },
   "2261694": {
-    "totalreply": 493,
+    "totalreply": 502,
     "title": "[（血腥NSFW）美国保守派网红查理·柯克（Charlie Kirk）遇刺]",
     "newtitle": "[（血腥NSFW）美国保守派网红查理·柯克（Charlie Kirk）遭枪击身亡]",
-    "lastedit": 1757573774,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16821,10 @@
     "update": false
   },
   "2261631": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[高德地图上线“高德扫街榜”，对标大众点评]",
     "newtitle": "[高德地图上线“高德扫街榜”，对标大众点评]",
-    "lastedit": 1757573773,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
@@ -16857,10 +16839,10 @@
     "update": false
   },
   "2261695": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[尼泊尔总理辞职 总统已接受辞呈]",
     "newtitle": "[尼泊尔总理辞职 总统已接受辞呈]",
-    "lastedit": 1757572932,
+    "lastedit": 1757574267,
     "category": "外野",
     "active": true,
     "update": false
