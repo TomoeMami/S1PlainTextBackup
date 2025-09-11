@@ -7937,3 +7937,14 @@ LGB切T的话就没脸面要求顺直顺着它们了
 
 凶手动机真的能调查出来么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发财就收  
+##### 746#       发表于 2025-9-12 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409990&amp;ptid=2261694" target="_blank">Yugao 发表于 2025-9-11 22:33</a>
+
+老maga演讲的时候被颗秒算不算一种弹丸论破</blockquote>
+我记得弹丸1代有个班长死者设定里处刑就是自己当选首相受人群欢呼，结果被骷髅13造型的黑白熊射杀
+
