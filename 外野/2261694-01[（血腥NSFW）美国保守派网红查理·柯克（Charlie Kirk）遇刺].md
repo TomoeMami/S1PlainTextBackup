@@ -12221,3 +12221,28 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 简称玩OO玩的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fangJmin  
+##### 1129#       发表于 2025-9-13 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418658&amp;ptid=2261694" target="_blank">Siran_China 发表于 2025-9-13 02:01</a>
+披风蟑螂风评被害，看到这件事我好像能理解为啥 GW 要大力和各种极端思想预防性切割 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gw在被光头党扯大旗整活之前也是疯狂往设定里加cooool的东西，脑子进矢只能说成功取代诺丁汉风味楠桐了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  2017.05.04  
+##### 1130#       发表于 2025-9-13 02:28
+
+结论是就一个梗小鬼，但是拿到了枪
+如果在澳村，这也就又一个teenager
+如果在毛子，这人可能是个阿迪光头党
+如果在大陆，是个家里有背景的开盒小鬼
+然而生在美利坚
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
