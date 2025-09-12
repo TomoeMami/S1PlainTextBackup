@@ -9315,3 +9315,49 @@ FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
 
 “再说了，你的儿子呆在你的身边，不会有呆在我的身边这么有出息，你说是不是啊<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">”
 
+
+*****
+
+####  valand  
+##### 867#       发表于 2025-9-12 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412304&amp;ptid=2261694" target="_blank">迷路的石头 发表于 2025-9-12 11:38</a>
+美国总统需要能整活
+
+吉米卡特那么牛逼，一手建立全球反苏圈，扭转了冷战形势的人，美国战后少有的有长远 ...</blockquote>
+像中美建交这种事情都是尼克松时代就打下的底子啊，他自己一手促成的就一个戴维营协议吧
+
+—— 来自 OPPO PHZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lexi  
+##### 868#       发表于 2025-9-12 12:11
+
+<blockquote>就咋的 发表于 2025-9-12 11:45
+还有“冷战”大明星里根，还还还有巨星 MAGA 教主。这俩的从政之路就是一步总统
+
+不对，里根当过加州州长
+</blockquote>
+卡特主要是当时的伊朗人质危机出了篓子，在全世界面前丢人现眼了，而里根戏子出身，演讲、表演能力没得说，外在魅力远超老好人。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 就咋的| + 2||
+
+查看全部评分
+
+*****
+
+####  古畑任三郎2015  
+##### 869#       发表于 2025-9-12 12:15
+
+什么枪斗术，防弹服反弹也在计算之内吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美式传武还是太强了
+
