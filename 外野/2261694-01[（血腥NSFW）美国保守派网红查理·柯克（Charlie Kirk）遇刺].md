@@ -10702,3 +10702,44 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 —— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  叩叩叩  
+##### 985#       发表于 2025-9-12 20:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说是抓到了？被朋友举报了
+
+*****
+
+####  stmule  
+##### 986#       发表于 2025-9-12 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415556&amp;ptid=2261694" target="_blank">lactone 发表于 2025-9-12 20:37</a>
+土澳治安最大威胁不是非法移民是童党吧
+
+—— 来自 HONOR PPG-AN00, Android 15, 鹅球 v3.5.99 ...</blockquote>
+不是袋鼠野兔和鹈鹕么<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">鹈鹕战争都打了2次输了2次了
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  卡嘎米  
+##### 987#       发表于 2025-9-12 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415566&amp;ptid=2261694" target="_blank">叩叩叩 发表于 2025-9-12 20:39</a>
+
+说是抓到了？被朋友举报了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会这么典吧？妈的革命叛徒总是伴随着左逼
+
+*****
+
+####  qwased  
+##### 988#       发表于 2025-9-12 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414645&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 18:05</a>
+
+懂子这是急火攻心，要中风了</blockquote>
+一看日历上任还没一年<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">ykw会不会中道崩殂啊
+
