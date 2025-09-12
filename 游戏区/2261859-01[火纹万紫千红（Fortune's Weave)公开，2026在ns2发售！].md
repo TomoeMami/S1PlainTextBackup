@@ -2280,3 +2280,13 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 不知道鸵鸟  以及 战车和马有啥区别。
 
+
+*****
+
+####  klushyo  
+##### 253#       发表于 2025-9-13 07:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417060&amp;ptid=2261859" target="_blank">nowiner 发表于 2025-9-12 22:21</a>
+为什么大家都说是前传，苏蒂斯长大，时间线不应该在三房后面吗</blockquote>
+苏蒂斯本来就是千年老龙王，死后重生才缩成萝莉的
+

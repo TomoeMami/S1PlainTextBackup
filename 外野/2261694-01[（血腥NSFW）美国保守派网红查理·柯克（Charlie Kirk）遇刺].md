@@ -12597,3 +12597,29 @@ https://weibo.com/7765195356/Q4j8HmtWg
 总之就是强行反向解释，“你 ...</blockquote>
 gay那个我都看到说“这好比就是深柜骂直男所以这人是lgbt”的强行解释了。
 
+
+*****
+
+####  守名居  
+##### 1155#       发表于 2025-9-13 07:09
+
+<img src="https://img.stage1st.com/forum/202509/13/070813xhh6kbg64yygmh8b.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9779.jpeg</strong> (31 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 07:08 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">地狱老司机不要害得地狱老司机玩不了地狱老司机
+
+*****
+
+####  巨魔已被忠诚  
+##### 1156#       发表于 2025-9-13 07:13
+
+MAGA本来成分就非常复杂，各色人喊着口号聚在这个旗子下面，就连3k都混在里面。看上面说的背景，这个情况更像“清君侧”：
+棒约克精神小伙荣誉击杀他觉得魔怔的鲨臂，拯救美国。
+
+归根到底还是扑街的当事人喜欢号召年轻选民参与zz，结果玩脱了呗。
+
