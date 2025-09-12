@@ -443,3 +443,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jy000129  
+##### 1666#       发表于 2025-9-12 09:35
+
+正常来打隐城，火山，腐败图收益都很大，身上有受伤涨负面状态遗物词条尽量不要打冰龙<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jacket  
+##### 1667#       发表于 2025-9-12 10:14
+
+对某异常状态敌人加攻+0+1+2三种叠不叠加啊？
+

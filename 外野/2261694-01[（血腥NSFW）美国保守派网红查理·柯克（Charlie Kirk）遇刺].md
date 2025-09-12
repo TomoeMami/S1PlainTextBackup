@@ -8732,3 +8732,24 @@ pro与否且不论，这事里边有几个点是很值得斟酌的：
 —— 来自 OnePlus OPD2407, Android 15, 鹅球 v3.5.99</blockquote>
 牢美目前的票选政治下，大影响力的网红就是公职的前置职业。 这位等同于maga的少壮派，专门拉大学生票仓的。影响力和地位都很高。 他想选州长才没有被任命的，否则大概率进内阁。
 
+
+*****
+
+####  Alexmacau8  
+##### 816#       发表于 2025-9-12 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410765&amp;ptid=2261694" target="_blank">YG111 发表于 2025-9-12 06:23</a>
+某种程度来说 这并不是一个完全不靠谱的想法</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是后话了，按当时菜园的逻辑，阿川可是要带领美利坚中兴的
+
+*****
+
+####  Alexmacau8  
+##### 817#       发表于 2025-9-12 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410851&amp;ptid=2261694" target="_blank">一心六文 发表于 2025-9-12 07:47</a>
+还有那句经典的反川即反华呢
+
+—— 来自 Xiaomi 2203121C, Android 14, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是中将还是谁加的吧 当时就很离谱
+
