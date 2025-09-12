@@ -12191,3 +12191,16 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员 ...</blockquote>
 所以说抓住前不要瞎做判断，上来就扣左帽子虽然可能性最大但是错了之后也最可笑（观只看该作者有感）
 
+
+*****
+
+####  卡嘎米  
+##### 1127#       发表于 2025-9-13 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418660&amp;ptid=2261694" target="_blank">liuguokobe 发表于 2025-9-13 02:02</a>
+
+所以说抓住前不要瞎做判断，上来就扣左帽子虽然可能性最大但是错了之后也最可笑（观只看该作者有感） ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预判有什么可笑，我目前仍旧预判这人是左，因为他爹是右，根据代际论一般情况推测就是长期压抑叛逆了，
+
+但是如果最后确认这人真是极右互害，那就判断错了呗，有什么问题？但是这个证据可能被当局掩盖
+
