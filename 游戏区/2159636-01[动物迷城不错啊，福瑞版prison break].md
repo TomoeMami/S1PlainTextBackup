@@ -1107,3 +1107,14 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 要出主机实体版了，不知道会不会出豪华给凯一下</blockquote>
 就是这代理商，云豹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 113#       发表于 2025-9-12 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414038&amp;ptid=2159636" target="_blank">RAMDA 发表于 2025-9-12 16:30</a>
+
+就是这代理商，云豹</blockquote>
+不清楚云豹有什么瓜，求科普<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
