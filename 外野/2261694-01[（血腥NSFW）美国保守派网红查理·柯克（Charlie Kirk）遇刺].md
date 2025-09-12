@@ -12313,3 +12313,19 @@ bella ciao
 C. KIRK 可以吊起脖子用来止血
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stormquantage  
+##### 1137#       发表于 2025-9-13 03:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406049&amp;ptid=2261694" target="_blank">aiooia 发表于 2025-9-11 10:53</a>
+
+军盲想问下，假设大美想像管制自动Rifle一样管制sniper gun。这种一定距离上的精准射击Rifle能够通过技术指 ...</blockquote>
+根本不能。
+
+高精度瞄准镜不是管制物品。高精度枪管也不是管制物品。更以AR来说，军用级火控组件，包括自动机，扳机，抽壳件，气吹管，都不是管制物品。什么是管制物品呢？用来装下机匣的那块铁坨子。90%情况下，这块铁坨子的质量基本无关紧要。标价30刀的下机匣，只要能严丝合缝的匹配上机匣组件（包括BCG枪机组, 枪管，瞄具）搭上顺手的扳机和握把，甚至撞火枪托或者强制复位扳机，就是下能全自动上能精确打击的玩意儿。
+<img src="https://www.aeroprecisionusa.com/media/catalog/product/a/p/apar600001c-m4e1-stripped-lower-receiver-black-1.jpg?quality=80&amp;bg-color=255,255,255&amp;fit=bounds&amp;height=&amp;width=" id="aimg_Tcjih" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+你要说精度平台那更没法找。去体育商店甚至当铺就能买到配用口径的猎用步枪，取下枪机组，自己装高精尖瞄具，枪管是没有任何人管的。你拿来是什么和你最终成果如何是没人能在除非已经盯梢的情况下追查得到的。
+
