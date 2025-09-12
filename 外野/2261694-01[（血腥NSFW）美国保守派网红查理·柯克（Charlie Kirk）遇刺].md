@@ -9261,3 +9261,57 @@ FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
 
 不对，里根当过加州州长
 
+
+*****
+
+####  zaozaoxx  
+##### 863#       发表于 2025-9-12 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412355&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 11:45</a>
+
+还有“冷战”大明星里根，还还还有巨星 MAGA 教主。这俩的从政之路就是一步总统
+
+不对，里根当过加州州长</blockquote>
+加州怎么这么喜欢明星当州长<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其实从媒体影响总统选举的时候已经埋下种子了吧，至晚从JFK电视辩论薄纱尼克松开始<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 864#       发表于 2025-9-12 11:56
+
+ 本帖最后由 就咋的 于 2025-9-12 11:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412408&amp;ptid=2261694" target="_blank">zaozaoxx 发表于 2025-9-12 11:54</a>
+
+加州怎么这么喜欢明星当州长
+
+其实从媒体影响总统选举的时候已经埋下种子了吧，至晚从JFK电视辩论薄纱尼克 ...</blockquote>
+好莱坞啊！
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+影视形象和现实世界分不清。乌克兰那货也是个“影视总统”转到现实世界的
+
+*****
+
+####  泥鳅  
+##### 865#       发表于 2025-9-12 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405969&amp;ptid=2261694" target="_blank">艾诺琳 发表于 2025-9-11 10:42</a>
+那这位是遇到了6%的小概率事件吗</blockquote>
+不，他的问题是美利坚自由精神领悟的不够，没有在子弹飞过来的时候迅速拔枪把它射下来。
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  TNN  
+##### 866#       发表于 2025-9-12 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412250&amp;ptid=2261694" target="_blank">AP0rt_ 发表于 2025-9-12 11:31</a>
+
+不会是为了转变萝莉岛风向而自导自演的吧</blockquote>
+“想借你一样东西以安军心，不过此物我只能借不能还了”
+
+“再说了，你的儿子呆在你的身边，不会有呆在我的身边这么有出息，你说是不是啊<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">”
+
