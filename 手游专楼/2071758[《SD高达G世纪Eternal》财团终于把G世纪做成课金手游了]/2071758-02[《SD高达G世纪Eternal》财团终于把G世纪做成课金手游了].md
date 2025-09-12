@@ -4169,3 +4169,15 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 之前弃坑了一段时间现在有点想回坑....问下赚GP还是开发铁球去卖效率最高吗
 
+
+*****
+
+####  无念  
+##### 2646#       发表于 2025-9-12 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414007&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-12 16:25</a>
+之前弃坑了一段时间现在有点想回坑....问下赚GP还是开发铁球去卖效率最高吗 ...</blockquote>
+是的，现在可以一次开发32台铁球了，效率提升好多
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
