@@ -8997,3 +8997,81 @@ pro与否且不论，这事里边有几个点是很值得斟酌的：
 真是3006的话 直射距离200还不是小意思，弹道就算下坠也就一点点，瞄准镜做好归零随便打阿 ...</blockquote>
 200码属于第二次下坠，第一次下坠是50码左右，但是这个距离上做微调打中头部是没问题的。凶手能做到一枪击中不补枪，而且撤退的很干净，我还是倾向于此人实际射击的那个瞬间心理素质一般，但是执行力很强。
 
+
+*****
+
+####  zewubbfa  
+##### 839#       发表于 2025-9-12 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411958&amp;ptid=2261694" target="_blank">章文元 发表于 2025-9-12 10:57</a>
+
+你说的是弹头章动吧...我自己在美国就受过枪械训练，说的就是我自己射击经验的感觉，200码配镜绝对不算远 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">我建议你还是找个正面的视频逐帧看一下，衣服下面有个防弹插板的轮廓，中弹瞬间锁骨附近的衣服被 插板带起来形成了剧烈的位移跳动，然后脖子上出现血洞。很明显是打在插板边缘跳弹穿了脖子。
+
+*****
+
+####  卖哥  
+##### 840#       发表于 2025-9-12 11:14
+
+枪法找个小树林练就行了
+
+pro也是pro在事前准备、事后撤离上。
+
+更pro一点，他甚至可能是知道那个行为艺术老头会在场才选择的这次机会。
+
+
+*****
+
+####  forestlimit  
+##### 841#       发表于 2025-9-12 11:18
+
+还没抓到吗
+
+*****
+
+####  寒夜未央  
+##### 842#       发表于 2025-9-12 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411958&amp;ptid=2261694" target="_blank">章文元 发表于 2025-9-12 10:57</a>
+你说的是弹头章动吧...我自己在美国就受过枪械训练，说的就是我自己射击经验的感觉，200码配镜绝对不算远 ...</blockquote>
+之前看报道说是200多米，假设这枪弹组合精度1moa，子弹散步也是直径6cm以上的，现在命中脖子我感觉更可能是瞄准的鼻子附近的位置
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  就咋的  
+##### 843#       发表于 2025-9-12 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410489&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 00:55</a>
+
+FBI 公布的疑似相关人员（监控截图）</blockquote>
+更多监控截图
+
+<img src="https://img.stage1st.com/forum/202509/12/111742vuvb43hbv1moxulk.png" referrerpolicy="no-referrer">
+
+<strong>x.com_UtahDPS_1234.png</strong> (1000.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 11:17 上传
+
+从“疑似枪手”的着装来看，美国旗和白头鹰（昨天以为是乌兹或 tec9 ），没法判断背景，可能是伪装，也可能是右派系内斗
+
+*****
+
+####  aeolus039  
+##### 844#       发表于 2025-9-12 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412163&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 11:21</a>
+更多监控截图</blockquote>
+American fuck yeah！
+
+*****
+
+####  weary11  
+##### 845#       发表于 2025-9-12 11:24
+
+到现在人抓不到，那就是已经跑了，永远抓不到。
+
