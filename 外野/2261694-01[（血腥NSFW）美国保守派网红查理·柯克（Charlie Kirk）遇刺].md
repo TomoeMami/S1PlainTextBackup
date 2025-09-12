@@ -10871,3 +10871,21 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 这么快就抓到了
 
+
+*****
+
+####  卡嘎米  
+##### 1002#       发表于 2025-9-12 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416061&amp;ptid=2261694" target="_blank">tillnight 发表于 2025-9-12 21:25</a>
+
+我的重点在后半句。</blockquote>
+其实没有什么日子人，从态度都可以分出来，是“理”大还是“利”大，大多数都是右，不是才奇怪了，所以看起来没什么行动力
+
+*****
+
+####  2017.05.04  
+##### 1003#       发表于 2025-9-12 21:30
+
+似乎家里人是保守派
+
