@@ -4371,3 +4371,55 @@ P
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得打钱
 
+
+*****
+
+####  堀内爱里衣  
+##### 41277#       发表于 2025-9-12 20:58
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/12/205838r31qk9idkk9jduv7.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-09-12_20-57-44.jpg</strong> (316.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 20:58 上传
+
+       [https://x.com/bang_dream_info/status/1966397607191916693/history](https://x.com/bang_dream_info/status/1966397607191916693/history)
+
+       [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
+*****
+
+####  堀内爱里衣  
+##### 41278#       发表于 2025-9-12 20:59
+
+       <strong>【中字短切】关于0th神之一指——为了保护吉他遂膝盖砸地</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/12/205902afpsk4zjaqs00aqs.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-12_13-09-04.jpg</strong> (79.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 20:59 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/205901cbbemn0f14mnbmzn.gif" referrerpolicy="no-referrer">
+
+<strong>20250912_130957.gif</strong> (803.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 20:59 上传
+
+極めエンタメ道
+
+中字渣翻瞎切
+
+听译/轴/字幕：我
+
+校对：你</blockquote>
+       [https://www.bilibili.com/video/BV1eEHizaEWd/](https://www.bilibili.com/video/BV1eEHizaEWd/)
+

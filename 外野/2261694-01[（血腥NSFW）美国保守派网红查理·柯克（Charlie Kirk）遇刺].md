@@ -10753,3 +10753,30 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 反正人被认出来了，估计也逃不了，还不如让家人领了这10万刀
 
+
+*****
+
+####  2017.05.04  
+##### 990#       发表于 2025-9-12 20:59
+
+原来是家里人劝自首了
+
+*****
+
+####  Sunyalche  
+##### 991#       发表于 2025-9-12 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415666&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-12 20:50</a>
+
+好像是自己父亲带去投案的
+
+反正人被认出来了，估计也逃不了，还不如让家人领了这10万刀 ...</blockquote>
+领不了这10万吧...  不过真想要钱贴个捐款账号应该是随便财务自由了
+
+*****
+
+####  forestlimit  
+##### 992#       发表于 2025-9-12 21:02
+
+意思是说抓了两天最后是凶手活着去自首的……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
