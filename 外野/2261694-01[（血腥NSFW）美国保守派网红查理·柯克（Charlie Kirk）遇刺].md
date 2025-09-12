@@ -10743,3 +10743,13 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 懂子这是急火攻心，要中风了</blockquote>
 一看日历上任还没一年<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">ykw会不会中道崩殂啊
 
+
+*****
+
+####  outerish  
+##### 989#       发表于 2025-9-12 20:50
+
+好像是自己父亲带去投案的
+
+反正人被认出来了，估计也逃不了，还不如让家人领了这10万刀
+
