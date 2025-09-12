@@ -10134,3 +10134,13 @@ https://b23.tv/XZVzeHx
 
 哦忘了不止有被以军杀的美国人，也有在以军杀人的美国人呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这网红还叫好
 
+
+*****
+
+####  休斯顿·张伯伦  
+##### 934#       发表于 2025-9-12 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405127&amp;ptid=2261694" target="_blank">Saa123 发表于 2025-9-11 08:20</a>
+物理消灭是否是玩不起的表现</blockquote>
+总有人会因为自己有一点特权就忘了暴力也是支配世界的底层逻辑之一，用这种方式提醒一下他们挺好的。
+
