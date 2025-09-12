@@ -12264,3 +12264,18 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 2025-9-13 02:36 上传
 
+
+*****
+
+####  Sunyalche  
+##### 1132#       发表于 2025-9-13 02:44
+
+分什么左派右派已经过时了, 现在是安卓派枪击苹果派
+
+*****
+
+####  Awanano  
+##### 1133#       发表于 2025-9-13 02:49
+
+炒鸡地球是没洗干净纳粹的北欧国家一帮觉得可以指指点点嘲笑曾经美苏的人做出来的。和这事情扯上一点都不无辜好吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
