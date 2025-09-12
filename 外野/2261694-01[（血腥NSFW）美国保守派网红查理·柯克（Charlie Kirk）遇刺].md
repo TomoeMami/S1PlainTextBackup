@@ -9775,3 +9775,11 @@ https://tieba.baidu.com/p/10028455018
 才注意这个种_族主义货还穿着印有 Freedom 的衣服，真好玩诶
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnwind042  
+##### 905#       发表于 2025-9-12 14:51
+
+看到射手从屋顶跳下来脱离现场的监控录像，这身手感觉有点东西啊……
+
