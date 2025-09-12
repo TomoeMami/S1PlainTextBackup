@@ -2260,3 +2260,13 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 我来贷款吃屎。是后传，主角逐渐被夺舍了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nez  
+##### 251#       发表于 2025-9-13 06:28
+
+英文名fortune's weave也可以是four tunes weave的双关
+
+说不定这代编剧要搞一波大的，像十三机兵那样群像+多线交叉叙事，把握得住吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
