@@ -9783,3 +9783,30 @@ https://tieba.baidu.com/p/10028455018
 
 看到射手从屋顶跳下来脱离现场的监控录像，这身手感觉有点东西啊……
 
+
+*****
+
+####  outerish  
+##### 906#       发表于 2025-9-12 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413228&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-12 14:24</a>
+
+所以为啥就无视俩月前MAGA突突dem议员的事啊</blockquote>
+两个月前的事谁记得啊？何况那议员没有这网红多梗，没片子看很难留下印象的
+
+而且国内报导这事的也不多吧，很多人不知道也正常
+
+
+*****
+
+####  saizeriya  
+##### 907#       发表于 2025-9-12 15:03
+
+<img src="https://img.stage1st.com/forum/202509/12/150259t17gyy15gfeuuee5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912150248.jpg</strong> (68.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 15:02 上传
+
