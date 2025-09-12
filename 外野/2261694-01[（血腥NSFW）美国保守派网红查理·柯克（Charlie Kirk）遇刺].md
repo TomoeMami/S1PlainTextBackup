@@ -10565,3 +10565,44 @@ taco哪急了
 第一天，“这是全美至暗时刻。”
 第二天，“嘿嘿嘿，躲在防弹玻璃后面看棒球比赛真好看，爽的挥手手。”
 
+
+*****
+
+####  zeroboss4  
+##### 973#       发表于 2025-9-12 19:21
+
+拥枪对象党的农场主是刚需
+
+不然乡下十来个非法移民就敢洗劫一座农场 
+
+*****
+
+####  outerish  
+##### 974#       发表于 2025-9-12 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414448&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 17:33</a>
+
+有消息说子弹被刻字附魔了，难怪命中得很奇怪</blockquote>
+据说所谓刻字其实只是生产商的字母缩写，新闻学的，华尔街日报已经把那段改了
+
+<img src="https://img.stage1st.com/forum/202509/12/192448r2ugu222izli2sp2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0010.jpeg</strong> (229.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 19:24 上传
+
+*****
+
+####  半江瑟瑟半江红  
+##### 975#       发表于 2025-9-12 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412304&amp;ptid=2261694" target="_blank">迷路的石头 发表于 2025-9-12 11:38</a>
+美国总统需要能整活
+
+吉米卡特那么牛逼，一手建立全球反苏圈，扭转了冷战形势的人，美国战后少有的有长远 ...</blockquote>
+别提了，卡特死了降半旗都被金毛叫停了
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

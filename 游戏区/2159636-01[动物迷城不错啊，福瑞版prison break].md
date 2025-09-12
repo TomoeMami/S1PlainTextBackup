@@ -1118,3 +1118,16 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 就是这代理商，云豹</blockquote>
 不清楚云豹有什么瓜，求科普<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稲海爽輔  
+##### 114#       发表于 2025-9-12 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414504&amp;ptid=2159636" target="_blank">kerbad 发表于 2025-9-12 17:41</a>
+
+不清楚云豹有什么瓜，求科普</blockquote>
+新世代法老控全家桶就是他家发行，以前都多多少少有些骚操作和问题，所以大概印象不太好
+
+像这种小体量游戏云豹也是有经验的（魔女之泉、方根胶卷），不用过多担忧也不用抱过多期待...
+
