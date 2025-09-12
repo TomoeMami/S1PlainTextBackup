@@ -9904,3 +9904,69 @@ https://b23.tv/XZVzeHx
 虽然口头高喊停止政治暴力，但是死结已经深深缠绕了，就现在这个势头来看，不太可能踩得住刹车，更何况两党 ...</blockquote>
 冤冤相报何时了，时代像是美国老狐在这挑事儿，“行了行了，他都打死你这边一个人了，你还能打回去不成？” XD
 
+
+*****
+
+####  michaelakan  
+##### 917#       发表于 2025-9-12 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413179&amp;ptid=2261694" target="_blank">寒夜未央 发表于 2025-9-12 14:15</a>
+
+有的兄弟，有的
+
+我图便宜没有买陶瓷插板，买的5.2mm厚的防弹钢板，子弹打上去肯定会崩裂/跳，我本来寻思 ...</blockquote>
+这种的外面套T恤肯定看得出来啊，而且怎么偏转能转到视频那个弹道
+
+*****
+
+####  又怎么啦？  
+##### 918#       发表于 2025-9-12 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413616&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 15:23</a>
+
+.30-06在200码内直接命中脖子不太像视频里那种情况</blockquote>
+好奇下你打过还是见过类似情形？
+
+*****
+
+####  2017.05.04  
+##### 919#       发表于 2025-9-12 15:32
+
+一边反对暴力一边又呼吁持枪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+美国人均double think
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  朔方原的星  
+##### 920#       发表于 2025-9-12 15:33
+
+从房顶到他那那个入射角度就算打到防弹衣上也不可能跳弹
+
+
+*****
+
+####  acguy  
+##### 921#       发表于 2025-9-12 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413643&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 15:26</a>
+
+冤冤相报何时了，时代像是美国老狐在这挑事儿，“行了行了，他都打死你这边一个人了，你还能打回去不成？ ...</blockquote>
+蓝党靠政治暗杀搞掉点后三排的网红巨魔，让自由派在网上狂欢一番
+
+红党靠受害者角度炒作热度拉高民调，为颁布和执行更多行政令制造舆论，顺便还能铺垫更多诸如改选区之类的操作为未来中期选举和大选铺路
+
+总的来说都是各取所需
+
+*****
+
+####  就咋的  
+##### 922#       发表于 2025-9-12 15:38
+
+<blockquote>acguy 发表于 2025-9-12 15:35
+蓝党靠政治暗杀搞掉点后三排的网红巨魔，让自由派在网上狂欢一番
+
+红党靠受害者角度炒作热度拉高民调，为 ...</blockquote>
+任何社会话题都能被红蓝“有效利用”，制造新的分裂
+
