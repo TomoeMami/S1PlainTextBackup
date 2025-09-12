@@ -12132,3 +12132,23 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员，动机是看不惯柯克
 
+
+*****
+
+####  windtrack_qh  
+##### 1121#       发表于 2025-9-13 01:36
+
+美国现在属于不给你贴个政治身份标签都无法进行进一步解读的弱智水平了
+
+*****
+
+####  saizeriya  
+##### 1122#       发表于 2025-9-13 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418544&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-13 01:27</a>
+
+“极左”，包括各种左，里面还有无政_府。我在用左右手比划这个概念，缠到一起，然后抽筋了。
+
+ ...</blockquote>
+丑国划分左右高度依赖3g1a（Gay、Gun、God、Abortion）立场，除此以外的一切正常的左右翼区分标准都不适合这个神经病国家的神经病人民
+
