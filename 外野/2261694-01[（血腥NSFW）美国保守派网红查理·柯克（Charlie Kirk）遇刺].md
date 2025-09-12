@@ -10889,3 +10889,35 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 似乎家里人是保守派
 
+
+*****
+
+####  就咋的  
+##### 1004#       发表于 2025-9-12 21:44
+
+ 本帖最后由 就咋的 于 2025-9-12 21:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415074&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-12 19:24</a>
+
+据说所谓刻字其实只是生产商的字母缩写，新闻学的，华尔街日报已经把那段改了</blockquote>
+土耳其的子弹品牌 Turan, 头印 (headstamp) 是 TRN
+
+<img src="https://img.stage1st.com/forum/202509/12/214002g1t8ypk15f66tq15.png" referrerpolicy="no-referrer">
+
+<strong>trn_headstamp.png</strong> (566.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 21:40 上传
+
+New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - International Ammunition Association Web Forum
+[https://forum.cartridgecollectors.org/t/new-turkish-turan-ammunition-2020/38337/5](https://forum.cartridgecollectors.org/t/new-turkish-turan-ammunition-2020/38337/5)
+
+和 trans 什么的没关系。
+
+*****
+
+####  FanFun  
+##### 1005#       发表于 2025-9-12 21:44
+
+居然是靠自首<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
