@@ -9997,3 +9997,45 @@ https://b23.tv/XZVzeHx
 
 —— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  喷气推进实验室  
+##### 926#       发表于 2025-9-12 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413560&amp;ptid=2261694" target="_blank">西瓜不甜不甜 发表于 2025-9-12 08:14</a>
+
+后知后觉，我才发现这个人，是我之前看某个英语学习账号里看过的一个很牛的辩论高手。
+
+—— 来自 鹅球 v3. ...</blockquote>
+这个辩论高手和拳打南山敬老院脚踢北海幼儿园的高度一样高
+
+*****
+
+####  喷气推进实验室  
+##### 927#       发表于 2025-9-12 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410774&amp;ptid=2261694" target="_blank">tillnight 发表于 2025-9-11 23:45</a>
+
+为什么有那么多人以为今年是中期选举年？
+
+以及为什么还有人暗戳戳的希望“懂王中期选举最好肯定赢了”。 ...</blockquote>
+为什么有那么多人以为今年是中期选举年？
+
+因为ykw整活的密度大到大家都觉得他已经在位一年多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 928#       发表于 2025-9-12 15:59
+
+<img src="https://img.stage1st.com/forum/202509/12/155848j1rl1h22tk1t1dn1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 15:58 上传
+
+唉老钟毛子怎么这么坏啊
+
