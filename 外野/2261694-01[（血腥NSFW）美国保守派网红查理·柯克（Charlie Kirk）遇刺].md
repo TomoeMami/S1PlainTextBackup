@@ -8378,3 +8378,68 @@ R.I. ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这待遇简直拉满了，除了找到凶手报仇
 taco底下的那群网红一想想有如此待遇都要骄傲的挺起胸膛了吧
 
+
+*****
+
+####  emcl  
+##### 785#       发表于 2025-9-12 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410902&amp;ptid=2261694" target="_blank">刘昊霖 发表于 2025-9-12 08:07</a>
+灵柩由空军二号运往亚利桑那，副总统亲自护送</blockquote>
+千金市骨，
+私人比活人好用.jpg
+
+*****
+
+####  lexi  
+##### 786#       发表于 2025-9-12 08:20
+
+开始打复活赛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/12/082013cp6o2qx2i7o7hxle.jpg" referrerpolicy="no-referrer">
+
+<strong>1757621270241474m.jpg</strong> (78.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 08:20 上传
+
+*****
+
+####  卖哥  
+##### 787#       发表于 2025-9-12 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410869&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-12 07:58</a>
+
+这个瞄准镜是几倍镜？感觉不止四倍。</blockquote>
+3-9x40mm吧
+
+应该是可调镜
+
+*****
+
+####  cirl01  
+##### 788#       发表于 2025-9-12 08:22
+
+很值啊很值<img src="https://p.sda1.dev/26/284a6bf04519b9d014d14b0bd57c38ec/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 789#       发表于 2025-9-12 08:25
+
+<blockquote>有钱多买小人 发表于 2025-9-12 07:09
+据称是凶手使用的步枪。
+
+这个距离上同精度的ar也不会太贵，但栓动有一点好，就是合法度极高，这把还是内置 ...</blockquote>
+毛瑟30-06，
+
+还得是old School，
+
+老古董你又查不到，
+
+这7.62x63是春田和尬兰德用的老蛋，
+
+比现代狙击用的7.62x51可给劲多了。
+
