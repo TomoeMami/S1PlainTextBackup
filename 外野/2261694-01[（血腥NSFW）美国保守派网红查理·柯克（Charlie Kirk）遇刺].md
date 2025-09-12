@@ -9495,3 +9495,41 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=3453641521578286325&amp;skey=@cr
 
 2025-9-12 12:56 上传
 
+
+*****
+
+####  Awanano  
+##### 881#       发表于 2025-9-12 13:08
+
+根据FIB传统，哪怕提供线索估计也没奖赏。而且路易吉被犹大拿下还没多远，很好奇现在提供线索的人想干什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约定的明日  
+##### 882#       发表于 2025-9-12 13:10
+
+[https://b23.tv/XZVzeHx](https://b23.tv/XZVzeHx)
+
+破案了，是詹密下手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  胜改藏  
+##### 883#       发表于 2025-9-12 13:14
+
+<blockquote>Benighted 发表于 2025-9-12 12:59
+</blockquote>
+照片挺像豺狼的
+
+*****
+
+####  变老的大二  
+##### 884#       发表于 2025-9-12 13:14
+
+<blockquote>约定的明日 发表于 2025-9-12 13:10
+https://b23.tv/XZVzeHx
+
+破案了，是詹密下手</blockquote>
+窝猩伟大。
+
