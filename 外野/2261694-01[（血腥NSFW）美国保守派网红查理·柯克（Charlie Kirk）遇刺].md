@@ -9970,3 +9970,20 @@ https://b23.tv/XZVzeHx
 红党靠受害者角度炒作热度拉高民调，为 ...</blockquote>
 任何社会话题都能被红蓝“有效利用”，制造新的分裂
 
+
+*****
+
+####  michaelakan  
+##### 923#       发表于 2025-9-12 15:38
+
+从房顶朝下射击反弹到脖子，这特么是WANTED里面朱丽甩**转一圈是吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 924#       发表于 2025-9-12 15:38
+
+红脖子也有武德吧，之前杀亲爹的不就是红脖子，不过应该算另类右
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
