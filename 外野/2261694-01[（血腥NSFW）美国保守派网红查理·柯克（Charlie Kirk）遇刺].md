@@ -11732,3 +11732,58 @@ mugshot
 感觉这两都有可能</blockquote>
 第二句是我说的
 
+
+*****
+
+####  ykyin09  
+##### 1084#       发表于 2025-9-12 23:56
+
+reddit的地狱潜兵版锁版了，你们共和党不要害得我们以后没有地狱潜兵玩
+
+*****
+
+####  hersi  
+##### 1085#       发表于 2025-9-12 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417968&amp;ptid=2261694" target="_blank">perfect_duck 发表于 2025-9-12 23:39</a>
+
+mugshot</blockquote>
+长得像林志炫
+
+*****
+
+####  Solnke  
+##### 1086#       发表于 2025-9-13 00:00
+
+<blockquote>就咋的 发表于 2025-9-12 23:51
+反法不是“人类共识”么，犹他州长啥意思。</blockquote>
+反法是共识，但死的这个人是否是法就难定了，总之就是个文字游戏，他们意思应该是指凶手反法是左，但死者是右不假但不是法，这是政治仇杀
+
+*****
+
+####  Idea  
+##### 1087#       发表于 2025-9-13 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418050&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 23:51</a>
+反法不是“人类共识”么，犹他州长啥意思。</blockquote>
+可能是自由派通常会把极右翼称为“法西斯”？
+
+
+*****
+
+####  2017.05.04  
+##### 1088#       发表于 2025-9-13 00:00
+
+唉，仰齐滨怎么这么坏啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  幽远ghofar  
+##### 1089#       发表于 2025-9-13 00:02
+
+如果这位和路易吉都被判了死刑，那就实在是莫大的讽刺了。
+
+大家看得很清楚，你跑进校园杀了几十个人都不一定死刑（可以去查查美国各种校园枪击案没被判死刑的凶手），但是你哪怕只杀了一个，但那个人是权贵，那肯定死刑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

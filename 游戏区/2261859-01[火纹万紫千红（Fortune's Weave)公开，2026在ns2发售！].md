@@ -1648,3 +1648,68 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 
 没有暗耻的三房前传还能叫三房前传吗
 
+
+*****
+
+####  X9999  
+##### 191#       发表于 2025-9-12 23:59
+
+再等等目前看人设感觉比二次元管人风格的engage好
+
+*****
+
+####  Nez  
+##### 192#       发表于 2025-9-12 23:59
+
+眼镜妹倒是完全没有在过场中出镜，不清楚到底是个什么定位
+
+*****
+
+####  UnknownRei  
+##### 193#       发表于 2025-9-13 00:00
+
+人设好丑，没有一个戳窝的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛奶笛  
+##### 194#       发表于 2025-9-13 00:01
+
+为什么港任放着万紫千红这个现成的汉字不用，非要另外取一个万缕千丝的名字
+
+*****
+
+####  Humpy  
+##### 195#       发表于 2025-9-13 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417652&amp;ptid=2261859" target="_blank">黑上シグマ 发表于 2025-9-12 23:09</a>
+
+看到有个面板画面的左下角有个纹章，是三房DLC尤里斯的纹章，不知道是什么关系了
+
+----发送自 STAGE1 App f ...</blockquote>
+现在蓝毛非主角论里论据最硬的应该就是这个了，奥班纹章，更像是单线主角而不是持有火焰纹章的真主角。
+
+顺便迪特里希的纹章是奔驰姐弟的纹章<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  28201  
+##### 196#       发表于 2025-9-13 00:02
+
+原来那俩是男女主吗，看着像崇拜男主的小弟和女主最好的朋友（兼世界观解说）
+
+
+*****
+
+####  kongxian  
+##### 197#       发表于 2025-9-13 00:04
+
+眼镜妹怎么长的像是现代日本人穿越过来的
+
+*****
+
+####  王元姬无惨  
+##### 198#       发表于 2025-9-13 00:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">柯南的声音太抢戏了
+
