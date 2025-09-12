@@ -12041,3 +12041,28 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nekkihs2  
+##### 1111#       发表于 2025-9-13 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417222&amp;ptid=2261694" target="_blank">叩叩叩 发表于 2025-9-12 10:30</a>
+
+良家子</blockquote>
+真正的保守派良家子看出MAGA本质是社达法西斯还是锡安鬼子的鹰犬
+
+*****
+
+####  碧空之歌P  
+##### 1112#       发表于 2025-9-13 00:56
+
+还是得多上网呀，没有互联网正常人就太多了
+
+*****
+
+####  小小雪空  
+##### 1113#       发表于 2025-9-13 01:01
+
+互联网太伟大了！
+
