@@ -12162,3 +12162,32 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 让这些搞对立吃仇恨饭的政客/网红不要以为搞仇恨的流量没成本
 
+
+*****
+
+####  就咋的  
+##### 1124#       发表于 2025-9-13 01:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418594&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-13 01:37</a>
+
+丑国划分左右高度依赖3g1a（Gay、Gun、God、Abortion）立场，除此以外的一切正常的左右翼区分标准都不适 ...</blockquote>
+不可名状了，触手缠绕直到把自己挤出污汁儿，早晚自爆
+
+
+*****
+
+####  Siran_China  
+##### 1125#       发表于 2025-9-13 02:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">披风蟑螂风评被害，看到这件事我好像能理解为啥 GW 要大力和各种极端思想预防性切割
+
+*****
+
+####  liuguokobe  
+##### 1126#       发表于 2025-9-13 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418552&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-13 01:29</a>
+
+现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员 ...</blockquote>
+所以说抓住前不要瞎做判断，上来就扣左帽子虽然可能性最大但是错了之后也最可笑（观只看该作者有感）
+

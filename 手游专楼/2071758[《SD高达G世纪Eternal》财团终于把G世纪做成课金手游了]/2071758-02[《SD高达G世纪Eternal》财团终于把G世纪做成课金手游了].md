@@ -4212,3 +4212,11 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2649#       发表于 2025-9-13 01:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有传说是00R+巴巴托斯最后一个形态的，一万个舅舅
+
