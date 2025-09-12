@@ -9453,3 +9453,23 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=3453641521578286325&amp;skey=@cr
 
 成龙，是成龙杀的人（不是
 
+
+*****
+
+####  变老的大二  
+##### 878#       发表于 2025-9-12 12:47
+
+明显的穿透伤，包不可能是防弹衣反弹的。
+
+*****
+
+####  zewubbfa  
+##### 879#       发表于 2025-9-12 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412566&amp;ptid=2261694" target="_blank">循此苦旅 发表于 2025-9-12 12:19</a>
+
+没有什么插板轮廓，单纯就是命中时身体抖动</blockquote>
+[https://tieba.baidu.com/p/10028455018](https://tieba.baidu.com/p/10028455018)
+
+图传不上来，去贴吧看吧。
+
