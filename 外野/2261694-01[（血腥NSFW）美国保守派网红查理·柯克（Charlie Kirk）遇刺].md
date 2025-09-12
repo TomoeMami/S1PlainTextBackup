@@ -8666,3 +8666,20 @@ taco流量治国，给产生流量的网红国级待遇有什么不对吗<img sr
 
 金毛是铁了心要把它捧成圣人了，这么高的规格，干脆给他葬进阿林顿国家公墓，然后在DC也弄个雕像纪念园吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 811#       发表于 2025-9-12 09:29
+
+挺好的，美国现在就喜欢干动嘴不干活的人<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+说明工程师文化已经死绝了，👊🇺🇸🔥
+
+*****
+
+####  kilty  
+##### 812#       发表于 2025-9-12 09:30
+
+凶手抓到了吗
+
