@@ -11787,3 +11787,34 @@ mugshot</blockquote>
 
 大家看得很清楚，你跑进校园杀了几十个人都不一定死刑（可以去查查美国各种校园枪击案没被判死刑的凶手），但是你哪怕只杀了一个，但那个人是权贵，那肯定死刑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ranocchia  
+##### 1090#       发表于 2025-9-13 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418125&amp;ptid=2261694" target="_blank">Solnke 发表于 2025-9-13 00:00</a>
+
+反法是共识，但死的这个人是否是法就难定了，总之就是个文字游戏，他们意思应该是指凶手反法是左，但死者 ...</blockquote>
+从动机角度来说应该这么理解吧，死者被污蔑为法，凶手留有反法象征的物品，故凶手杀人动机处于政治目的。
+
+*****
+
+####  就咋的  
+##### 1091#       发表于 2025-9-13 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418126&amp;ptid=2261694" target="_blank">Idea 发表于 2025-9-13 00:00</a>
+
+可能是自由派通常会把极右翼称为“法西斯”？</blockquote>
+总之是个筐，也可以说极右把对立面都划到“左”
+
+
+*****
+
+####  变老的大二  
+##### 1092#       发表于 2025-9-13 00:12
+
+致敬传奇抗压王 箭头
+
+在中国玩家评论轰炸之王，还要遭受懂王怒火
+

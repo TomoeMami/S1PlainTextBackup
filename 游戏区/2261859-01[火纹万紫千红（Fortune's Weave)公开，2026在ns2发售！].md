@@ -1713,3 +1713,83 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">柯南的声音太抢戏了
 
+
+*****
+
+####  月下的沉默  
+##### 199#       发表于 2025-9-13 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有没人截图队友头像的，我看到的像素还是低了点。
+
+*****
+
+####  Humpy  
+##### 200#       发表于 2025-9-13 00:11
+
+队友头像里有个看着太巴西初音+魔法少女了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜的风  
+##### 201#       发表于 2025-9-13 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418144&amp;ptid=2261859" target="_blank">Humpy 发表于 2025-9-13 00:02</a>
+
+现在蓝毛非主角论里论据最硬的应该就是这个了，奥班纹章，更像是单线主角而不是持有火焰纹章的真主角。
+
+ ...</blockquote>
+苏蒂斯最后那话，感觉就是对自捏说的。
+
+只目前用排除法PV里和A少打的有来有回的白袍持枪感觉有点像女自捏
+
+那就现在PV4个角色 脏辫男蓝 柯南黄  舞女红 A少黑的阵营旗来看，应该又是选阵营。
+
+片头也说了一开始是打竞技场，那就有种像三房学院时期。主角在里边选边站，然后认识拉拢各选手进自己队，然后X年后，大家分道杨镳，来个为国为民相爱相杀。
+
+
+*****
+
+####  风使塞缇  
+##### 202#       发表于 2025-9-13 00:15
+
+哎，想到了早年风花雪月2的传闻，还是被做实了……
+
+当年我也是在这里分析了每一部风花雪月的宣传片，时间过得真快
+
+先说个初步结论，这部新作是风花雪月的【后传】，不是前传
+
+其他的我再看看……
+
+说实话，其实当年我对风花雪月是抱有很高期望的，但最后所有线路通关后，整体的剧情还是让我比较失望的
+
+导致我不太想再对新火纹宣传片进行长篇系统性的分析了
+
+风花雪月的设定架构很好，但故事却没有讲好
+
+这部希望不要再走多线剧情了，好好把一条故事线讲好
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 203#       发表于 2025-9-13 00:15
+
+<img src="https://img.stage1st.com/forum/202509/13/001314y7gnjkl0ldbqdbqw.jpg" referrerpolicy="no-referrer">
+
+<strong>27575275282785.JPG</strong> (71.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 00:13 上传
+
+发现大家都忽略了一闪而过的这两位，右边这个还行。
+
+可能是刷脸多的男主、厚嘴唇，和one more thing的苏蒂丝的带给人的冲击太强，焦点被转移了。
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 204#       发表于 2025-9-13 00:15
+
+港任翻译叫万缕千丝，为什么不直接用日语原文<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
