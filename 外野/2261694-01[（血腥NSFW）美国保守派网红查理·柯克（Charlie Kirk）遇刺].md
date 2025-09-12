@@ -9632,3 +9632,43 @@ https://tieba.baidu.com/p/10028455018
 
 但也就这样了，当年消肯尼迪户口本呢。
 
+
+*****
+
+####  一心六文  
+##### 895#       发表于 2025-9-12 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413064&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-12 13:55</a>
+美国右派不行啊，左派都搞过两次枪杀了。右派作为拥枪派居然毫无作为</blockquote>
+民主党死的那个州议员应该不是左派开枪的吧
+
+—— 来自 Xiaomi 2203121C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  幽远ghofar  
+##### 896#       发表于 2025-9-12 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412354&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 11:45</a>
+
+防弹插板说</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真是太扯淡了
+
+1、这人明显没穿防弹衣
+
+2、就算穿了防弹衣了，现代防弹衣还跳弹？什么中世纪板甲？
+
+*****
+
+####  寒夜未央  
+##### 897#       发表于 2025-9-12 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413167&amp;ptid=2261694" target="_blank">幽远ghofar 发表于 2025-9-12 14:12</a>
+真是太扯淡了
+
+1、这人明显没穿防弹衣</blockquote>
+有的兄弟，有的
+我图便宜没有买陶瓷插板，买的5.2mm厚的防弹钢板，子弹打上去肯定会崩裂/跳，我本来寻思有时间自己diy加一层聚脲上去，但是一直没动手
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
