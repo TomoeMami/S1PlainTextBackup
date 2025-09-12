@@ -2188,3 +2188,13 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 用三房的皮卖结合的魂，我支持IS<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackeyed  
+##### 245#       发表于 2025-9-13 03:52
+
+繁体为什么叫 萬縷千絲……
+
+繁体人没有万紫千红这个词吗, 没有的话, 也可以统一成万缕千丝<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
