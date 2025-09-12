@@ -11998,3 +11998,18 @@ Come on！你总得选一个吧<img src="https://static.stage1st.com/image/smile
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  火箭布雷器  
+##### 1107#       发表于 2025-9-13 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418326&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-13 00:35</a>
+
+一个美国人被枪杀了，最应该负责的是；
+
+&gt;老中
+
+&gt;电子游戏</blockquote>
+怪瑞典人制作了绝地潜兵？
+
