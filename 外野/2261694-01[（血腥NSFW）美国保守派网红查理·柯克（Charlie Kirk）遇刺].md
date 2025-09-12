@@ -8830,3 +8830,46 @@ Charlie Kirk 遗体乘坐空军二号抵达凤凰城
 
 认为哪个对⏰有利哪个有害都很片面，不如认为交替是最有利的，一方面交替会浪费前任的政策成果，另一方面美国一直交替也是无论什么办法都对⏰崛起无用的最好证明。
 
+
+*****
+
+####  zewubbfa  
+##### 824#       发表于 2025-9-12 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411367&amp;ptid=2261694" target="_blank">章文元 发表于 2025-9-12 09:38</a>
+
+pro与否且不论，这事里边有几个点是很值得斟酌的：
+
+    从现场看，现场在一个学校里，目前来看凶手是在20 ...</blockquote>
+你这……哪转的？完全没摸过枪的人在那瞎想，又不是黑火药打球型弹，枪口章动哪有那么远。
+
+
+*****
+
+####  mahoraga  
+##### 825#       发表于 2025-9-12 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411703&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 10:25</a>
+
+共和党这次损失看起来真的很严重，都急成这样了</blockquote>
+这下不得不说一句好似了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tissuesea  
+##### 826#       发表于 2025-9-12 10:41
+
+之前随口调侃一句万斯的竞争者居然是真的，还是说因为他死了所以他的影响力高估成这样，起码在泥潭之前都没听过这号人。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  acguy  
+##### 827#       发表于 2025-9-12 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411852&amp;ptid=2261694" target="_blank">Tissuesea 发表于 2025-9-12 10:41</a>
+
+之前随口调侃一句万斯的竞争者居然是真的，还是说因为他死了所以他的影响力高估成这样，起码在泥潭之前都没 ...</blockquote>
+政治也要讲论资排辈，30出头的人再努力也不可能爬多高
+
