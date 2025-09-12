@@ -11090,3 +11090,35 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 似乎大概有可能差不多可以解释
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onion0201  
+##### 1023#       发表于 2025-9-12 22:35
+
+唉，左逼
+
+*****
+
+####  勿徊哉  
+##### 1024#       发表于 2025-9-12 22:35
+
+如果懂王挂了，A股是会大涨吗》
+
+*****
+
+####  lactone  
+##### 1025#       发表于 2025-9-12 22:38
+
+这和布什内尔，路易吉差不多啊，都是中上层美国家庭了
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  就咋的  
+##### 1026#       发表于 2025-9-12 22:42
+
+老美日子人反纳反种族不分左右，定点除虫而已，只不过是爆浆了。街头遇到新纳崽子们只要打不跑，就得活活打死
+

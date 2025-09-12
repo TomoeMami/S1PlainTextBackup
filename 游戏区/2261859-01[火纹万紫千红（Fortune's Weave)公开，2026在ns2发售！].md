@@ -897,3 +897,143 @@ is是在搞什么路线斗争吗，武器耐久这东西反复横跳几部了
 这作一堆褐色皮肤啊，我记得三房世界观里芙朵拉东北边是不是还有一大片区域啊，什么蛮族居住的，会不会就是 ...</blockquote>
 库洛德老家吧
 
+
+*****
+
+####  tachikoma27  
+##### 112#       发表于 2025-9-12 22:37
+
+肯定是分两条线开发了呗，三房这一系的就给光荣，is做自己的，好事<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siriii  
+##### 113#       发表于 2025-9-12 22:37
+
+黑皮男人我觉得还可以，女人就不行了。看起来好像还是有军团，希望engage的战斗动画别丢。剧情貌似不是老一套国战了，希望能有点新花样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的分身  
+##### 114#       发表于 2025-9-12 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417293&amp;ptid=2261859" target="_blank">kalavinka 发表于 2025-9-12 22:35</a>
+
+库洛德老家吧</blockquote>
+你这么一说，突然想起来库罗德是褐色皮肤，本作也一堆褐色皮肤，真可能是讲库罗德老家的故事了
+
+*****
+
+####  ミズタ  
+##### 115#       发表于 2025-9-12 22:39
+
+以后火纹要分四字和两字辈
+
+风花雪月/万紫千红
+
+觉醒/命运/结合
+
+
+*****
+
+####  嘉术2015  
+##### 116#       发表于 2025-9-12 22:42
+
+我一想到hero以后还要拿这作的人物骗人抽卡就想笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 117#       发表于 2025-9-12 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417353&amp;ptid=2261859" target="_blank">ミズタ 发表于 2025-9-12 22:39</a>
+
+以后火纹要分四字和两字辈
+
+风花雪月/万紫千红
+
+觉醒/命运/结合</blockquote>
+结合有点不配。。
+
+
+*****
+
+####  杜微  
+##### 118#       发表于 2025-9-12 22:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我也觉得好几个人太过眼熟，也不够有特色，但是我感觉也还在可接受范围，进主楼一看还有这么多人觉得不如engage，我也吃了一惊
+
+*****
+
+####  suzakushi  
+##### 119#       发表于 2025-9-12 22:44
+
+好好做系谱重制双剑重制能死吗。整这种东西出来恶心人，仓花能不能撒泡尿自己看看自己画的这堆黑鬼一个个是人类吗。
+
+*****
+
+####  -マユ‐  
+##### 120#       发表于 2025-9-12 22:45
+
+人设不说，这个战斗动画感觉不如结合啊，不带感<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzf111  
+##### 121#       发表于 2025-9-12 22:46
+
+不是脏辫胜似脏辫，看得好恶心
+
+*****
+
+####  伊露伊道格拉斯  
+##### 122#       发表于 2025-9-12 22:46
+
+这中年苏蒂斯吗？乍一看也太……大妈脸了。
+
+理论上女老师穿神祖服cosplay的那个姿态，不就类似苏蒂斯长大的样子。
+
+实在没想到真出来长大形象会变成这样<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+来个建模的侧脸或者立绘吧，看看还有没有能微调的余地
+
+*****
+
+####  Piano-Forest  
+##### 123#       发表于 2025-9-12 22:46
+
+PV：[https://youtu.be/PqUW8tjuhzU](https://youtu.be/PqUW8tjuhzU)
+
+Nintendo Switch 2 ソフト『ファイアーエムブレム 万紫千紅』が2026年に発売決定
+[https://www.nintendo.com/jp/topi ... c-8ac2-76b69d7a00ef](https://www.nintendo.com/jp/topics/article/1fa40820-586f-451c-8ac2-76b69d7a00ef)
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 124#       发表于 2025-9-12 22:46
+
+只有建模和渲染打过engage，不多说了，回头看看我的安娜保养下眼睛。
+
+<img src="https://img.stage1st.com/forum/202509/12/224620virueqnukei6mhft.png" referrerpolicy="no-referrer">
+
+<strong>00e93901213fb80e7becb8084f87382eb9389a503eef.png</strong> (218.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 22:46 上传
+
+*****
+
+####  雨翼free  
+##### 125#       发表于 2025-9-12 22:46
+
+正常，泥潭估计是剩的唯一一个压倒性吹结合的地方了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Youszsh  
+##### 126#       发表于 2025-9-12 22:48
+
+有吗？不是刚公布人设的时候一边倒的骂管人风？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
