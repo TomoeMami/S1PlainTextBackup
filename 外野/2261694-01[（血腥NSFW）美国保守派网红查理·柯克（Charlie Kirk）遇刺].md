@@ -12013,3 +12013,31 @@ Come on！你总得选一个吧<img src="https://static.stage1st.com/image/smile
 &gt;电子游戏</blockquote>
 怪瑞典人制作了绝地潜兵？
 
+
+*****
+
+####  siebten  
+##### 1108#       发表于 2025-9-13 00:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 sb美国人不要害得我们玩不了绝地潜兵
+
+*****
+
+####  xuanwu_lei  
+##### 1109#       发表于 2025-9-13 00:47
+
+https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjhryF&amp;utm_psn=1949996058529751530
+
+知乎的互联网史料价值就这么体现了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+五年后的这颗子弹不过是这张「pepe蛙爆菊图」的现实具现，笑死<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tissuesea  
+##### 1110#       发表于 2025-9-13 00:48
+
+按美国的身份政治，这位真的会死刑吗，说到底这位的动机都搞不清楚不知道懂王会怎么搞
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

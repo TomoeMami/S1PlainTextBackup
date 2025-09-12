@@ -1930,3 +1930,35 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 在我看来人设比结合那管人风格可强太多了，另外妹子你拿的这是什么</blockquote>
 枪克剑啊，怎么了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 218#       发表于 2025-9-13 00:51
+
+眼镜娘这个画风和黑皮皇女差太多了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hjknight  
+##### 219#       发表于 2025-9-13 00:53
+
+借楼问一下淘宝上现在ns2港版32XX是正常售价吗？打算公布火纹就买一台吃灰的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxz1994  
+##### 220#       发表于 2025-9-13 00:56
+
+怎么这么多喷人设的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我的第一印象是比风花雪月和结合要强，整体来看还可以了
+风花雪月大部分女角色都挺一般的，男角色一眼牛郎风，没查资料都基本确认是乙女画师
+结合虽然也是我不喜欢的管人画风，但看出来在努力媚宅了，所以我这里人设评分比风花雪月高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过都比if的人设差远了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
