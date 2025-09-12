@@ -10979,3 +10979,22 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">希望是保懂派的
 
+
+*****
+
+####  lactone  
+##### 1012#       发表于 2025-9-12 21:59
+
+这不就是个普通美国男大吗
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nightraven  
+##### 1013#       发表于 2025-9-12 22:00
+
+确定是这人吗？年纪轻轻枪法倒是挺好的嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
