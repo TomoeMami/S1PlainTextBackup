@@ -9720,3 +9720,46 @@ https://tieba.baidu.com/p/10028455018
 
 所以为啥就无视俩月前MAGA突突dem议员的事啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ciwei01  
+##### 902#       发表于 2025-9-12 14:31
+
+这人就没穿防弹衣，高清照片能看到乳头和项链
+
+*****
+
+####  循此苦旅  
+##### 903#       发表于 2025-9-12 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412734&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-12 12:47</a>
+[https://tieba.baidu.com/p/10028455018](https://tieba.baidu.com/p/10028455018)
+
+图传不上来，去贴吧看吧。</blockquote>
+高清照片很多，能看到胸肌轮廓甚至凸点
+
+<img src="https://img.stage1st.com/forum/202509/12/143219pr6mss1tx9y7xyy2.jpg" referrerpolicy="no-referrer">
+
+<strong>gettyimages-2234095044.jpg</strong> (672.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 14:32 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/143030swzawcpgrooropoc.png" referrerpolicy="no-referrer">
+
+<strong>dbb363551065959452a08a6834d59858.png</strong> (3.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 14:30 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/143030ga2arflci2ri21if.jpg" referrerpolicy="no-referrer">
+
+<strong>kirk2-scaled.jpg</strong> (665.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 14:30 上传
+
