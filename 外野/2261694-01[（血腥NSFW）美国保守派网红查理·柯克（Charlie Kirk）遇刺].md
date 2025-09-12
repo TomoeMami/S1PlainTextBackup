@@ -12329,3 +12329,21 @@ C. KIRK 可以吊起脖子用来止血
 
 你要说精度平台那更没法找。去体育商店甚至当铺就能买到配用口径的猎用步枪，取下枪机组，自己装高精尖瞄具，枪管是没有任何人管的。你拿来是什么和你最终成果如何是没人能在除非已经盯梢的情况下追查得到的。
 
+
+*****
+
+####  就咋的  
+##### 1138#       发表于 2025-9-13 04:13
+
+半岛的报道，10分钟前，回顾总结。标红的“严重谋杀” (Utah Code Section 76-5-202) 好像在这一条，链接打不开。
+
+[https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html](https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html)
+
+<img src="https://img.stage1st.com/forum/202509/13/041100na4w5i1n1tw9ianc.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-09-13 at 04-06-33 LIVE Charlie Kirk shooting suspect Tyler Robin.png</strong> (101.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 04:11 上传
+
