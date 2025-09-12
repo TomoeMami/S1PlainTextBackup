@@ -2244,3 +2244,19 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 除了苏蒂斯PV里还有熟人？
 
+
+*****
+
+####  takayama  
+##### 249#       发表于 2025-9-13 06:19
+
+哦，有战车单位了么，让我想起了三国志英杰传系列了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星花  
+##### 250#       发表于 2025-9-13 06:25
+
+我来贷款吃屎。是后传，主角逐渐被夺舍了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
