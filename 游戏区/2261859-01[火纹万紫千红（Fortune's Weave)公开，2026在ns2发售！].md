@@ -1793,3 +1793,36 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 
 港任翻译叫万缕千丝，为什么不直接用日语原文<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  撒撒  
+##### 205#       发表于 2025-9-13 00:20
+
+<img src="https://i.postimg.cc/V60QyMLF/1.png" referrerpolicy="no-referrer">
+
+最开头出现的姑娘，个人觉得最好看。
+
+*****
+
+####  Humpy  
+##### 206#       发表于 2025-9-13 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418195&amp;ptid=2261859" target="_blank">月夜的风 发表于 2025-9-13 00:12</a>
+
+苏蒂斯最后那话，感觉就是对自捏说的。
+
+只目前用排除法PV里和A少打的有来有回的白袍持枪感觉有点像女自 ...</blockquote>
+那个应该是普通队友吧……？PV里蓝毛战斗演示部分有出现，武器当时是空手格斗
+
+*****
+
+####  pf67  
+##### 207#       发表于 2025-9-13 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418139&amp;ptid=2261859" target="_blank">牛奶笛 发表于 2025-9-13 00:01</a>
+为什么港任放着万紫千红这个现成的汉字不用，非要另外取一个万缕千丝的名字 ...</blockquote>
+我觉得港任这个和英文的比较贴近，万紫千红太抽象
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

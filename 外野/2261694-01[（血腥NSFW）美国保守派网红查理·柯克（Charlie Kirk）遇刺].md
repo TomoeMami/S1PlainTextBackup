@@ -11818,3 +11818,111 @@ mugshot</blockquote>
 
 在中国玩家评论轰炸之王，还要遭受懂王怒火
 
+
+*****
+
+####  火箭布雷器  
+##### 1093#       发表于 2025-9-13 00:15
+
+ 本帖最后由 火箭布雷器 于 2025-9-13 00:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418050&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 23:51</a>
+反法不是“人类共识”么，犹他州长啥意思。</blockquote>政治暗杀又不是什么意识形态的用词。
+一百年前的世界各地的革命党没干过几件政治刺杀都不好意思出门和人打招呼。
+
+*****
+
+####  windtrack_qh  
+##### 1094#       发表于 2025-9-13 00:18
+
+说起来这哥们在子弹上刻字的巨魔程度，到时会不会也在法庭继续巨魔表演涮媒体
+
+*****
+
+####  xuanwu_lei  
+##### 1095#       发表于 2025-9-13 00:18
+
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnLdL&amp;utm_psn=1949988943459227533
+
+「我草，事情大条了，真的大条了。
+
+目前已知的情报可以判断，枪手Tyler Robinson不但是个共和党支持者，而且还是个Groyper。他杀死Kirk最可能的原因是由于发生在2019年的“Groyper战争”导致的旧怨。
+
+Groyper的意思其实就是美国主播Nick Fuentes的粉丝，也就是pepe蛙（悲伤青蛙）这个右翼梗的主要推动者，没有之一。他们的立场有点像双尾彗星粉丝，特别魔怔，主要特征是魔怔级别的反犹和反lgbt。同时，他们又往往声称自己不是法西斯主义者，而是普通的好人或者白人民族主义者，这导致他们的脏话中有几个比较常见的指向：
+
+Fake Conservative——假保守派，一般指的是Kirk
+
+Gay——同性恋，最严重的侮辱语（然而Fuentes自己就是深柜男同）
+
+Jew——犹太人，第二严重，因为即使Groyper也不得不承认bibi武德高
+
+We see your bulge——我看到你的鸡鸡印了，意思就是说其他人是跨性别。Groyper群体比较奇特，反跨在他们这边似乎不是热门话题，可能是被主流共和党抢走了的原因。
+
+Fascist——法西斯主义者。Groyper吸收了15年推特对于自由意志主义的推崇，喜欢骂别人是法西斯主义者，并且会传唱各种反法西斯主义歌曲，据说这是和antifa学的，但实际情况不明。
+
+而枪手在子弹上刻的文字就是：
+
+“你看到这行字那你就是gay”
+
+“嘿，Fascist！接着！”
+
+“我看到你的凸起了OWO那是什么？”
+
+“Bella Ciao (意大利反法西斯歌曲）”
+
+基本上可以肯定，他是个Nick Fuentes粉丝，右
+到现在的共和党无法接受的怪胎。
+
+很多人也许会觉得，天父杀天兄嘛，多大点事，
+那我必须说，这是一件非常大的事。因为
+Groyper和川粉是一个被动联盟——它们互相之
+间的关系其实很紧张，类似于美国红左与美国
+liberal的关系。
+
+而Charlie Kirk遇刺，用左翼的情况来比喻，就是
+AOC在演讲的时候，被美共人士刺杀，理由是
+“过度亲近以色列”。
+
+而发生这种事之后，你觉得Groyper的处境会怎
+么样呢？
+
+事态冲着最有趣的方向发展了…….
+」
+
+震天的战鼓再次响起.mp4<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡嘎米  
+##### 1096#       发表于 2025-9-13 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到目前为止基本和前面推断一样——保守中产家庭出生的，吃饱了撑的为了“精神理想”跑去搞暗杀的年轻左派傻子，和打阿川那个不同的是他还活着，可以看到他鲁莽幼稚行为给原本就情况不妙的民主党左派带来的麻烦。
+
+
+*****
+
+####  normalli  
+##### 1097#       发表于 2025-9-13 00:20
+
+都说左翼无限可分，但右翼才是天然的都是死对头。
+
+*****
+
+####  风景很好  
+##### 1098#       发表于 2025-9-13 00:21
+
+<blockquote>幽远ghofar 发表于 2025-9-13 00:02
+如果这位和路易吉都被判了死刑，那就实在是莫大的讽刺了。
+
+大家看得很清楚，你跑进校园杀了几十个人都不一 ...</blockquote>
+犹他州还真有死刑
+
+*****
+
+####  卡嘎米  
+##### 1099#       发表于 2025-9-13 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418228&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 00:18</a>
+
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">互为异端！
+
