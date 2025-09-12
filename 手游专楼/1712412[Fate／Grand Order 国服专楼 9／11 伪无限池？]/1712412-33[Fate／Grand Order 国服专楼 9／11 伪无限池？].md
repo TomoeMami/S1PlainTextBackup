@@ -550,3 +550,11 @@ bb看白野的表情真不错
 彩圈！狂阶！手办娘</blockquote>
 又补了20抽拿到伊吹了
 
+
+*****
+
+####  khxooo  
+##### 47444#       发表于 2025-9-12 23:21
+
+全部搞掂，大号用了一颗灵脉石打巨人，小号用了三次令咒给C呆充能，反而没用灵脉石<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，小号也抽满了女的岸波白野了，大号等UP吧，只剩7KW了，要省着用。
+
