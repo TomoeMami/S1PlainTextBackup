@@ -11684,3 +11684,51 @@ mugshot
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社交账户扒出和多个Antifa群有联系，其实也好理解，毕竟和老爹一个信仰是不行的
 
+
+*****
+
+####  卡嘎米  
+##### 1080#       发表于 2025-9-12 23:50
+
+- 家人举报了他
+
+- 他与室友讨论了计划
+
+- 之前把枪藏在灌木丛里
+
+- 子弹壳上印有反法西斯主义、LGBTQ 和左翼信息
+
+- 近年来他变得激进
+
+
+*****
+
+####  Idea  
+##### 1081#       发表于 2025-9-12 23:51
+
+地狱潜兵风评被害​
+
+*****
+
+####  就咋的  
+##### 1082#       发表于 2025-9-12 23:51
+
+反法不是“人类共识”么，犹他州长啥意思。
+
+<img src="https://img.stage1st.com/forum/202509/12/234940hfzqmtiyxfxsctqk.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-09-12 at 23-48-42 LIVE Charlie Kirk shooting suspect in custody .png</strong> (51.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:49 上传
+
+*****
+
+####  最后的法芙娜  
+##### 1083#       发表于 2025-9-12 23:54
+
+<blockquote>糖尔 发表于 2025-9-12 23:13
+感觉这两都有可能</blockquote>
+第二句是我说的
+
