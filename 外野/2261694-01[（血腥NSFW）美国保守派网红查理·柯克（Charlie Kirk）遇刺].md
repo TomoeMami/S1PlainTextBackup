@@ -8954,3 +8954,46 @@ pro与否且不论，这事里边有几个点是很值得斟酌的：
 共和党这次损失看起来真的很严重，都急成这样了</blockquote>
 怎么说呢，比我想象的讲道理，起码没说把嘲笑的美国人扔出去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就咋的  
+##### 835#       发表于 2025-9-12 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411942&amp;ptid=2261694" target="_blank">miaoer0623 发表于 2025-9-12 10:54</a>
+
+那你就再仔细看看往前翻，就前面评论有提到啊</blockquote>
+试图扔排泄物炸坛的，把自己的下水挤出来了，味还得散一阵
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tissuesea  
+##### 836#       发表于 2025-9-12 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411961&amp;ptid=2261694" target="_blank">Processed 发表于 2025-9-12 10:57</a>
+绝大部分人接受外国信息的主要方式还是电视新闻，因为有语言关在这里，除非以此为业，否则很少有键政佬每 ...</blockquote>
+主要是去年那个共和党大会我也关注了，当时新闻里大概报道懂王奇奇怪怪的盟友，什么WWE壮汉，著名节目的主持人，这位真的一点印象都没有，可能新闻没报道吧。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  双面人  
+##### 837#       发表于 2025-9-12 11:05
+
+<blockquote>saizeriya 发表于 2025-9-12 10:26
+可怜的二桶</blockquote>
+使枪是原罪蹲一个二桶玩枪触发老蝙蝠P TSD被踢出家族
+
+*****
+
+####  章文元  
+##### 838#       发表于 2025-9-12 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411910&amp;ptid=2261694" target="_blank">RPG-7 发表于 2025-9-12 10:49</a>
+
+真是3006的话 直射距离200还不是小意思，弹道就算下坠也就一点点，瞄准镜做好归零随便打阿 ...</blockquote>
+200码属于第二次下坠，第一次下坠是50码左右，但是这个距离上做微调打中头部是没问题的。凶手能做到一枪击中不补枪，而且撤退的很干净，我还是倾向于此人实际射击的那个瞬间心理素质一般，但是执行力很强。
+
