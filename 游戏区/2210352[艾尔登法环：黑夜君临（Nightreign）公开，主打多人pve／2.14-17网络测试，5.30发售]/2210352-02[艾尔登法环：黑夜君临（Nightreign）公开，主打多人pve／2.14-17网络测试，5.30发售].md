@@ -496,3 +496,26 @@
 </blockquote>
 买地形深夜不生效，深夜特殊地形进图时随机roll的，概率很低，绝大部分都是无地形
 
+
+*****
+
+####  jy000129  
+##### 1671#       发表于 2025-9-12 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411881&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-9-12 10:45</a>
+买地形深夜不生效，深夜特殊地形进图时随机roll的，概率很低，绝大部分都是无地形 ...</blockquote>
+昨天打难1开的火山都生效了，可能2以上就全随机了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  petitlui  
+##### 1672#       发表于 2025-9-12 11:31
+
+<blockquote>jy000129 发表于 2025-9-12 11:23
+昨天打难1开的火山都生效了，可能2以上就全随机了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+可能是刚好运气好roll到地形，我开着隐城打了四把深度1，一把其他地形三把无地形
+

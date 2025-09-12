@@ -9075,3 +9075,113 @@ American fuck yeah！
 
 到现在人抓不到，那就是已经跑了，永远抓不到。
 
+
+*****
+
+####  2017.05.04  
+##### 846#       发表于 2025-9-12 11:26
+
+棒球帽戴眼镜长裤长袖黑色背包牛仔裤帆布鞋
+
+实话说不像是枪手，估计只是监控拍到的无关人
+
+*****
+
+####  forestlimit  
+##### 847#       发表于 2025-9-12 11:28
+
+<blockquote>2017.05.04 发表于 2025-9-12 11:26
+棒球帽戴眼镜长裤长袖黑色背包牛仔裤帆布鞋
+
+实话说不像是枪手，估计只是监控拍到的无关人 ...</blockquote>
+
+他从楼上跳下来的
+
+【FBI公布柯克枪杀案现场监控-哔哩哔哩】 [https://www.bilibili.com/video/BV16ZH6zHEeh](https://www.bilibili.com/video/BV16ZH6zHEeh)
+
+*****
+
+####  就咋的  
+##### 848#       发表于 2025-9-12 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412212&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-12 11:26</a>
+
+棒球帽戴眼镜长裤长袖黑色背包牛仔裤帆布鞋
+
+实话说不像是枪手，估计只是监控拍到的无关人 ...</blockquote>
+FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
+
+*****
+
+####  章文元  
+##### 849#       发表于 2025-9-12 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412099&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-12 11:14</a>
+
+我建议你还是找个正面的视频逐帧看一下，衣服下面有个防弹插板的轮廓，中弹瞬间锁骨附近的衣服被 插板带起 ...</blockquote>
+居然还有防弹插板？那我是真不知道了，我去找一下。
+
+*****
+
+####  outerish  
+##### 850#       发表于 2025-9-12 11:29
+
+还没抓到的话，近期内没人敢公开演说了吧
+
+
+*****
+
+####  AP0rt_  
+##### 851#       发表于 2025-9-12 11:31
+
+不会是为了转变萝莉岛风向而自导自演的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  又怎么啦？  
+##### 852#       发表于 2025-9-12 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412163&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 11:21</a>
+
+更多监控截图</blockquote>
+这人好像拉美裔白人（南欧血统）
+
+*****
+
+####  双面人  
+##### 853#       发表于 2025-9-12 11:33
+
+<blockquote>AP0rt_ 发表于 2025-9-12 11:31
+不会是为了转变萝莉岛风向而自导自演的吧</blockquote>
+你别说这两天被称是金毛给爱泼斯坦写的贺卡正好曝光
+
+*****
+
+####  就咋的  
+##### 854#       发表于 2025-9-12 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412250&amp;ptid=2261694" target="_blank">AP0rt_ 发表于 2025-9-12 11:31</a>
+
+不会是为了转变萝莉岛风向而自导自演的吧</blockquote>
+截图人员的帽子看着像阿迪达斯的，"Nothing is important"
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  章文元  
+##### 855#       发表于 2025-9-12 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412131&amp;ptid=2261694" target="_blank">寒夜未央 发表于 2025-9-12 11:18</a>
+
+之前看报道说是200多米，假设这枪弹组合精度1moa，子弹散步也是直径6cm以上的，现在命中脖子我感觉更可能 ...</blockquote>
+我也这么觉得，凶手之前可能只是简单测算过距离，忽略了高低差和温差等指标，而且这种刺杀也没法做二次校正。
+
+*****
+
+####  qwased  
+##### 856#       发表于 2025-9-12 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411703&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 10:25</a>
+共和党这次损失看起来真的很严重，都急成这样了</blockquote>
+搜了一下信息感觉这人算共和党下一代继承人的位置了，被打死肯定急<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
