@@ -9845,3 +9845,62 @@ https://b23.tv/XZVzeHx
 破案了，是詹密下手</blockquote>
 可疑，这还有詹<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 911#       发表于 2025-9-12 15:14
+
+后知后觉，我才发现这个人，是我之前看某个英语学习账号里看过的一个很牛的辩论高手。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  就咋的  
+##### 912#       发表于 2025-9-12 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413497&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-12 15:06</a>
+
+美国《时代》杂志最新一期封面加上了“血色”滤镜，并对美国日益泛滥的政治暴力大喊“够了”（Enough）。 ...</blockquote>
+时辰已到 (the TIME has come)
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  循此苦旅  
+##### 913#       发表于 2025-9-12 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413507&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 15:07</a>
+
+真没有防弹板的话，说不定子弹真是击中那条项链或者锁骨才发生的偏转</blockquote>
+就是直接命中脖子啊，哪来的偏转
+
+*****
+
+####  acguy  
+##### 914#       发表于 2025-9-12 15:19
+
+虽然口头高喊停止政治暴力，但是死结已经深深缠绕了，就现在这个势头来看，不太可能踩得住刹车，更何况两党都是要猛踩油门的
+
+
+*****
+
+####  acguy  
+##### 915#       发表于 2025-9-12 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413583&amp;ptid=2261694" target="_blank">循此苦旅 发表于 2025-9-12 15:18</a>
+
+就是直接命中脖子啊，哪来的偏转</blockquote>
+.30-06在200码内直接命中脖子不太像视频里那种情况
+
+
+*****
+
+####  就咋的  
+##### 916#       发表于 2025-9-12 15:26
+
+<blockquote>acguy 发表于 2025-9-12 15:19
+虽然口头高喊停止政治暴力，但是死结已经深深缠绕了，就现在这个势头来看，不太可能踩得住刹车，更何况两党 ...</blockquote>
+冤冤相报何时了，时代像是美国老狐在这挑事儿，“行了行了，他都打死你这边一个人了，你还能打回去不成？” XD
+
