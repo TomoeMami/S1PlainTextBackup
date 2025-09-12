@@ -10780,3 +10780,33 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 意思是说抓了两天最后是凶手活着去自首的……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  守名居  
+##### 993#       发表于 2025-9-12 21:04
+
+这10万真的能领到？
+
+之前那个路易吉的举报人拿到钱了吗？
+
+*****
+
+####  llysander  
+##### 994#       发表于 2025-9-12 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414345&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-12 17:16</a>
+
+和某些粉丝群体是不是一样的，其实本质完全一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这下放下矜持了，魔法对魔法，就等以枪对枪
+
+*****
+
+####  卡嘎米  
+##### 995#       发表于 2025-9-12 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415821&amp;ptid=2261694" target="_blank">llysander 发表于 2025-9-12 21:06</a>
+
+这下放下矜持了，魔法对魔法，就等以枪对枪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右逼一般是集体行动，比如国会山，抓了的立为英雄，不会像左逼这样独走，右逼报复是成建制的，某种程度来说比左逼破坏力大多了
+

@@ -596,3 +596,11 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 濒死降生命值上限的debuff居然可以叠，感觉是目前拿过的最毒的词条
 
+
+*****
+
+####  Jabeck  
+##### 1681#       发表于 2025-9-12 21:09
+
+现在深2，怎么说呢，顺风起来顺风顺水暗夜王都能随便打，不顺起来被怪一刀三倒<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
