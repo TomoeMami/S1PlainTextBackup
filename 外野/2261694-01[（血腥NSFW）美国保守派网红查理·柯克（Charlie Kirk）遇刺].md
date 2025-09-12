@@ -11626,3 +11626,61 @@ OMG! They killed Cartman! GOOD JOB!
 
 而且感觉基本上其实就是本身追求love&amp;peace的中间建制派，只能说是魔怔的环境把他们变成这样了
 
+
+*****
+
+####  aeolus039  
+##### 1075#       发表于 2025-9-12 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417909&amp;ptid=2261694" target="_blank">糖尔 发表于 2025-9-12 23:35</a>
+亚伦·布什内尔、1999年生人、行伍世家，路易吉·尼古拉斯·曼吉奥内、1998年生人、硅谷富二代，泰勒·罗宾 ...</blockquote>
+亚伦那个背景是一帮弱智硬凑的，他家其实是极端保守基督教世家
+
+*****
+
+####  perfect_duck  
+##### 1076#       发表于 2025-9-12 23:39
+
+mugshot
+
+<img src="https://img.stage1st.com/forum/202509/12/233943vmlp7zq39z3mm7zi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:39 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/233948oxnbxxb3nqwbxnnz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:39 上传
+
+*****
+
+####  胜改藏  
+##### 1077#       发表于 2025-9-12 23:41
+
+ 本帖最后由 胜改藏 于 2025-9-12 23:42 编辑 
+<blockquote>aeolus039 发表于 2025-9-12 23:39
+亚伦那个背景是一帮弱智硬凑的，他家其实是极端保守基督教世家</blockquote>
+
+先癫的是渴望正常生活的老星条旗
+
+*****
+
+####  windtrack_qh  
+##### 1078#       发表于 2025-9-12 23:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然还是用毛瑟98射的吗
+
+*****
+
+####  卡嘎米  
+##### 1079#       发表于 2025-9-12 23:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社交账户扒出和多个Antifa群有联系，其实也好理解，毕竟和老爹一个信仰是不行的
+
