@@ -12279,3 +12279,37 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 炒鸡地球是没洗干净纳粹的北欧国家一帮觉得可以指指点点嘲笑曾经美苏的人做出来的。和这事情扯上一点都不无辜好吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Illidan  
+##### 1134#       发表于 2025-9-13 03:09
+
+ bella ciao
+
+【意大利反法西斯歌曲Bella Ciao《啊，姑娘再见》】 [https://b23.tv/kg4m3Vy](https://b23.tv/kg4m3Vy)
+
+*****
+
+####  希望之花  
+##### 1135#       发表于 2025-9-13 03:13
+
+贝拉焯焯焯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 1136#       发表于 2025-9-13 03:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418757&amp;ptid=2261694" target="_blank">Illidan 发表于 2025-9-13 03:09</a>
+
+bella ciao
+
+【意大利反法西斯歌曲Bella Ciao《啊，姑娘再见》】 https://b23.tv/kg4m3Vy ...</blockquote>
+- “墨索里尼，总是有理！”
+
+- “真理审判！”
+
+C. KIRK 可以吊起脖子用来止血
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
