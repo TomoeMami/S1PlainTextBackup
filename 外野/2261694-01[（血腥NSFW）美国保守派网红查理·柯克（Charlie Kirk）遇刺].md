@@ -8274,3 +8274,33 @@ R.I. ...</blockquote>
 这不是雷明顿700？</blockquote>
 枪栓末尾形状不像雷明顿。
 
+
+*****
+
+####  一心六文  
+##### 775#       发表于 2025-9-12 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410664&amp;ptid=2261694" target="_blank">Alexmacau8 发表于 2025-9-12 02:17</a>
+还有更离谱的选阿川就是救中国呢……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还有那句经典的反川即反华呢
+
+—— 来自 Xiaomi 2203121C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  FanFun  
+##### 776#       发表于 2025-9-12 07:55
+
+24小时了还没捉到人，菜B老美
+
+
+*****
+
+####  天选之子  
+##### 777#       发表于 2025-9-12 07:56
+
+<blockquote>Alexmacau8 发表于 2025-9-12 02:17
+还有更离谱的选阿川就是救中国呢……</blockquote>
+阿川搞战略收缩的确有利于中国。
+
