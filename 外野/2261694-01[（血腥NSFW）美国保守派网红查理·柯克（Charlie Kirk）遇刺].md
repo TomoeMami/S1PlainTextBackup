@@ -9607,3 +9607,28 @@ https://b23.tv/XZVzeHx
 
 美国右派不行啊，左派都搞过两次枪杀了。右派作为拥枪派居然毫无作为
 
+
+*****
+
+####  骷髅兵  
+##### 893#       发表于 2025-9-12 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412734&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-12 12:47</a>
+
+https://tieba.baidu.com/p/10028455018
+
+图传不上来，去贴吧看吧。</blockquote>
+仔细看了一下，那个轮廓好像不是防弹板造成的，像是衣服上额外别有一个小型无线麦克风，给狗破什么的设备录音用，被击中瞬间后仰时震飞了拉扯到衣服产生的。
+
+*****
+
+####  卖哥  
+##### 894#       发表于 2025-9-12 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412900&amp;ptid=2261694" target="_blank">夜月紫耀 发表于 2025-9-12 13:23</a>
+
+这事我看美国左右都觉得震动很大啊，是不是大的要来了？</blockquote>
+左右矛盾进一步激化是肯定的
+
+但也就这样了，当年消肯尼迪户口本呢。
+
