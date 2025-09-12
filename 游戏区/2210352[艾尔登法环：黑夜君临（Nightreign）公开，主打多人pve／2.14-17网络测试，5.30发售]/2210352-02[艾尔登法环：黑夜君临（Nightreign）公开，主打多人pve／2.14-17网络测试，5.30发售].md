@@ -624,3 +624,11 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  usodakedo  
+##### 1684#       发表于 2025-9-13 01:52
+
+以前看到灵珠还想试试打一打，现在深夜是真的不好惹了，好几次追斩时一不小心被他打一下就把我第六感干出来了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
