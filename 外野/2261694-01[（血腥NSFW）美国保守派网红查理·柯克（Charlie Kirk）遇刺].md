@@ -8304,3 +8304,40 @@ R.I. ...</blockquote>
 还有更离谱的选阿川就是救中国呢……</blockquote>
 阿川搞战略收缩的确有利于中国。
 
+
+*****
+
+####  天选之子  
+##### 778#       发表于 2025-9-12 07:58
+
+<blockquote>有钱多买小人 发表于 2025-9-12 07:09
+据称是凶手使用的步枪。
+
+这个距离上同精度的ar也不会太贵，但栓动有一点好，就是合法度极高，这把还是内置 ...</blockquote>
+这个瞄准镜是几倍镜？感觉不止四倍。
+
+
+*****
+
+####  有钱多买小人  
+##### 779#       发表于 2025-9-12 08:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410869&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-12 07:58</a>
+这个瞄准镜是几倍镜？感觉不止四倍。</blockquote>
+大概是可变倍，这样子的太多了，上限10倍吧。
+
+*****
+
+####  刘昊霖  
+##### 780#         楼主| 发表于 2025-9-12 08:07
+
+<img src="https://img.stage1st.com/forum/202509/12/080735s3stqdaqizxta3ld.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 08:07 上传
+
+灵柩由空军二号运往亚利桑那，副总统亲自护送
+
