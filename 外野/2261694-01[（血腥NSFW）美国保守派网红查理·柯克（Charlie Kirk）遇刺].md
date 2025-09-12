@@ -10998,3 +10998,28 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 —— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  烦死了  
+##### 1014#       发表于 2025-9-12 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415666&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-12 20:50</a>
+好像是自己父亲带去投案的
+
+反正人被认出来了，估计也逃不了，还不如让家人领了这10万刀 ...</blockquote>
+钱肯定没有的，之前举报路易吉那人也没拿到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 1015#       发表于 2025-9-12 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416606&amp;ptid=2261694" target="_blank">nightraven 发表于 2025-9-12 22:00</a>
+
+确定是这人吗？年纪轻轻枪法倒是挺好的嘛
+
+—— 来自 OnePlus PKR110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+外国轻兵器爱好者，可以与实践相结合。
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

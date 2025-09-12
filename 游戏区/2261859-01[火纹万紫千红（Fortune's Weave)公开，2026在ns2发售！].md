@@ -498,3 +498,228 @@ rgb主角只有g是能入眼 但是长得像吸血鬼 也不行<img src="https:/
 
 三房卖这么好肯定走三房路线，难道走应给机路线等着系列再次嗝屁吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 62#       发表于 2025-9-12 22:16
+
+三房子开局也是一堆人喷仓花的，到后面怎么反转了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得万紫这几个还挺好看的
+
+*****
+
+####  zechins  
+##### 63#       发表于 2025-9-12 22:17
+
+苏谛斯为什么不是萝莉了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 64#       发表于 2025-9-12 22:17
+
+这一看就不是三房的画师吧
+
+*****
+
+####  ckl80  
+##### 65#       发表于 2025-9-12 22:17
+
+我觉得还是建模问题大点
+
+*****
+
+####  The_Fool_  
+##### 66#       发表于 2025-9-12 22:17
+
+属于是看完后完全不想买的水平
+
+*****
+
+####  4700  
+##### 67#       发表于 2025-9-12 22:17
+
+这一眼不如三房时髦，还是嗯钙急遗毒未除，还要多杀is遗老，光荣你回来罢
+
+—— 来自 Xiaomi 23013PC75G, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 68#       发表于 2025-9-12 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416963&amp;ptid=2261859" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2025-9-12 22:15</a>
+
+我就是个俗人，我宁愿萌豚二次元也不要黑皮高级审美脏辫男</blockquote>
+真的该学学二次元手游，人设寻求大众喜好的最大公约数，而不是自high的个性<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘉术2015  
+##### 69#       发表于 2025-9-12 22:18
+
+先看衰，再看衰，后面能反转我给is道歉<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakufa782  
+##### 70#       发表于 2025-9-12 22:18
+
+开头的城市有种罗马风格但是迦太基的味道，古典时代爱好者狂喜
+
+*****
+
+####  未熟串烧  
+##### 71#       发表于 2025-9-12 22:19
+
+虽然新作是新作，可惜是最兴奋不起来的模式。别的不说火纹的龙娘成年都要变大妈吗<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 72#       发表于 2025-9-12 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416837&amp;ptid=2261859" target="_blank">黑卷轴陶德传 发表于 2025-9-12 22:10</a>
+
+故事发生地可能是芙朵拉下面的摩尔菲斯，风花雪月里面说那里是沙漠中的魔道都市，符合这些黑皮人设
+
+顺带大 ...</blockquote>
+就算三房文本好，人设体验一般也是无法改变的，更别说好不容易看顺眼了又给你整个五年后被刺，我的刘海学生妹全部发际线后退了，不然我也不会抬 engage（
+
+*****
+
+####  雨翼free  
+##### 73#       发表于 2025-9-12 22:19
+
+太怪了，再看一眼。风格系统明显是风花雪月，但建模又像结合
+
+*****
+
+####  虚无连斩  
+##### 74#       发表于 2025-9-12 22:19
+
+所以449为什么不用，449为什么不用，手游都画了画个本篇很难吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沙发果冻  
+##### 75#       发表于 2025-9-12 22:20
+
+怎么看都是三房前传吧，就是苏提斯也太大妈了
+
+*****
+
+####  Nez  
+##### 76#       发表于 2025-9-12 22:20
+
+看样子这作没有武器耐久，战技改成消耗hp了
+
+*****
+
+####  Bruce33  
+##### 77#       发表于 2025-9-12 22:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真破了，还是把手游下回来吧，至少男的帅女的美
+
+*****
+
+####  新世界的派蒙  
+##### 78#       发表于 2025-9-12 22:21
+
+三房续作好好好，人设一堆黑皮就算了，女主还是我最无感的眼镜娘属性，何意味阿，眼镜属性本来就是小众萌点，逆着时代特色也要上眼镜这是画师个人XP么<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowiner  
+##### 79#       发表于 2025-9-12 22:21
+
+为什么大家都说是前传，苏蒂斯长大，时间线不应该在三房后面吗
+
+*****
+
+####  嘲哳的声音  
+##### 80#       发表于 2025-9-12 22:21
+
+希望能比风花好玩一点吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 81#       发表于 2025-9-12 22:21
+
+主要草甸还是黑皮，印度中东的五官也不差，跟 DEI 远远沾不上边
+
+*****
+
+####  hkguty  
+##### 82#       发表于 2025-9-12 22:21
+
+主角真的是主角吗，这主角这人设也太没看头了，我反而感觉像是多角色线叙事的样子
+
+*****
+
+####  牧月萌  
+##### 83#       发表于 2025-9-12 22:23
+
+这黑皮厚嘴唇单看脸比红秋裤差远了吧
+
+*****
+
+####  费罗米隆  
+##### 84#       发表于 2025-9-12 22:23
+
+苏谛斯这成人模组，，，
+
+你们三房的主打女神真不如姨姥的娜迦，米拉两位神龙女神<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  killcal  
+##### 85#       发表于 2025-9-12 22:23
+
+非洲火纹
+
+*****
+
+####  squa11  
+##### 86#       发表于 2025-9-12 22:24
+
+只能祈祷不是is本社做的，一定还有另一款火纹正在秘密开发，对吧？对吧？ 
+
+*****
+
+####  bad_alloc  
+##### 87#       发表于 2025-9-12 22:24
+
+这罗马风怎么看都比风花雪月古早，加上大人版的萝莉baba，不会是前传吧
+
+
+*****
+
+####  qiyu1234  
+##### 88#       发表于 2025-9-12 22:24
+
+话说这作在战场设定上是不是又回到了不带部队的小队战斗设计（1个地图单位=1个角色）？
+
+虽然セオドラ发动计略的时候能看到部队兵，但感觉只是计略限定出现的演出
+
+*****
+
+####  越谷小小鞠  
+##### 89#       发表于 2025-9-12 22:24
+
+太丑了，目前最丑一作火纹
+
+—— 来自 realme RMX3823, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  kalavinka  
+##### 90#       发表于 2025-9-12 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417060&amp;ptid=2261859" target="_blank">nowiner 发表于 2025-9-12 22:21</a>
+为什么大家都说是前传，苏蒂斯长大，时间线不应该在三房后面吗</blockquote>
+大结局力量散尽变成幼年体也不是啥新鲜设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

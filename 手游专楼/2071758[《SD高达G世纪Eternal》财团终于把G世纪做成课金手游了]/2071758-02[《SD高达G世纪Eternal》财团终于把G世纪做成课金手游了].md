@@ -4181,3 +4181,34 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 2647#       发表于 2025-9-12 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414690&amp;ptid=2071758" target="_blank">无念 发表于 2025-9-12 18:14</a>
+
+是的，现在可以一次开发32台铁球了，效率提升好多
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可还是不能一次开发更多数量和卖的时候最多也只能卖100台
+
+就是要你多花时间多点几下来恶心你
+
+（我才不信运营没那个技术来弄个一键开发和卖却最大数量铁球的功能
+
+
+*****
+
+####  acg_gyanc  
+##### 2648#       发表于 2025-9-12 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417012&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-12 22:19</a>
+可还是不能一次开发更多数量和卖的时候最多也只能卖100台
+
+就是要你多花时间多点几下来恶心你</blockquote>
+我现在就每天做开发日常的时候点一下32台，币一个月换6个武器素材是绝对够了，想攒ssr通用素材的话才要刷刷吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
