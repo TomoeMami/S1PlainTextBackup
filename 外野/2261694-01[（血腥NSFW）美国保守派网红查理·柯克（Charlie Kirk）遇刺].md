@@ -10296,3 +10296,103 @@ scotte ritter说被杀原因还有可能是这人近来有反鱿倾向
 一天了，只会搞搞线上，怎么不线下狙个左派的名人对冲，费拉不堪
 是不是红脖子智力不行用不来狙<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北山玖公  
+##### 949#       发表于 2025-9-12 17:24
+
+老妹来开老🕰️的盒试试，我不得不说这网红死得好了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  forestlimit  
+##### 950#       发表于 2025-9-12 17:25
+
+<blockquote>ccared 发表于 2025-9-12 17:21
+x家军要不过去帮右右做玩盒技术指导吧，以后灯塔真内战了给二字记一功。</blockquote>
+美国人本来就爱实名上网啊，名字照片都用真的
+
+*****
+
+####  卡嘎米  
+##### 951#       发表于 2025-9-12 17:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为右从根本上是不愿意自己付代价的，只能网上低成本搞搞这样，但是抱团起来胆子就大了，什么都敢干，搞出问题有组织撑腰
+
+*****
+
+####  变老的大二  
+##### 952#       发表于 2025-9-12 17:29
+
+<blockquote>行政裁定书 发表于 2025-9-12 17:22
+这个Jackson Hinkle果然是最会玩社媒的，抓住Kirk死前一小段时间似乎有批评鱿鱼的倾向，然后结合bibi等由于 ...</blockquote>
+这哥们也是个抽象逼，疯狂拱火内斗。
+
+
+*****
+
+####  云梦泽岸  
+##### 953#       发表于 2025-9-12 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414342&amp;ptid=2261694" target="_blank">SH-gpj 发表于 2025-9-12 17:16</a>
+我草，盒！美国红脖子们现在设立了一个网站，要把所有在网上嘲笑过查理•柯克的人全都开盒，已经开了上千个 ...</blockquote>
+请他们来这个论坛看一看吧，说不定当晚就跨洋就把大家一锅端了呢。
+
+*****
+
+####  acguy  
+##### 954#       发表于 2025-9-12 17:33
+
+<img src="https://img.stage1st.com/forum/202509/12/173225z5r3ttwcz45r61w5.jpg" referrerpolicy="no-referrer">
+
+<strong>1000021851.jpg</strong> (296.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 17:32 上传
+
+有消息说子弹被刻字附魔了，难怪命中得很奇怪
+
+*****
+
+####  zaozaoxx  
+##### 955#       发表于 2025-9-12 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414429&amp;ptid=2261694" target="_blank">云梦泽岸 发表于 2025-9-12 17:30</a>
+
+请他们来这个论坛看一看吧，说不定当晚就跨洋就把大家一锅端了呢。</blockquote>
+有一说一在泥潭只要id不用一样的，只靠泥潭里的数据还是很难特定人物吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2017.05.04  
+##### 956#       发表于 2025-9-12 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414429&amp;ptid=2261694" target="_blank">云梦泽岸 发表于 2025-9-12 17:30</a>
+请他们来这个论坛看一看吧，说不定当晚就跨洋就把大家一锅端了呢。</blockquote>
+泥潭是哈马斯论坛，不洁食，万一看一了眼就不能回去舔bibi的腚眼了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不会来的
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Tissuesea  
+##### 957#       发表于 2025-9-12 17:34
+
+不知道现在凶手是活着还是死了，如果能活捉那绝对是大乐子，将和那个刺杀保险巨头的人一起被一直讨论。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  木水风铃  
+##### 958#       发表于 2025-9-12 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414448&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 17:33</a>
+有消息说子弹被刻字附魔了，难怪命中得很奇怪</blockquote>
+反法西斯主义是antifa还是反法西斯啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
