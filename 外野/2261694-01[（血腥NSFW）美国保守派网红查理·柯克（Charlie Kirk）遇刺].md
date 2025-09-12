@@ -10122,3 +10122,15 @@ https://b23.tv/XZVzeHx
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413949&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-12 16:16</a></blockquote>
 能开盒老钟吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 933#       发表于 2025-9-12 16:26
+
+够双标的，巴勒斯坦两年死了不知道多少人，三百记者，还有中央厨房那种公益组织，没见过这帮东西这么上心过
+
+死这么个网红倒搞起政治正确了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+哦忘了不止有被以军杀的美国人，也有在以军杀人的美国人呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这网红还叫好
+
