@@ -10606,3 +10606,24 @@ taco哪急了
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zerona  
+##### 976#       发表于 2025-9-12 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414773&amp;ptid=2261694" target="_blank">Sunyalche 发表于 2025-9-12 18:30</a>
+
+现在还没抓到人? 在大学里就这么跑了吗</blockquote>
+这不会是做了个头套吧？
+
+*****
+
+####  喷气推进实验室  
+##### 977#       发表于 2025-9-12 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414645&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 11:05</a>
+
+懂子这是急火攻心，要中风了</blockquote>
+这不典型的面瘫（医学意义上的）脸
+
