@@ -9810,3 +9810,38 @@ https://tieba.baidu.com/p/10028455018
 
 2025-9-12 15:02 上传
 
+
+*****
+
+####  仟音一心  
+##### 908#       发表于 2025-9-12 15:06
+
+<img src="https://img.stage1st.com/forum/202509/12/150639izz1vmljgvwu15rb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 15:06 上传
+
+美国《时代》杂志最新一期封面加上了“血色”滤镜，并对美国日益泛滥的政治暴力大喊“够了”（Enough）。
+
+*****
+
+####  acguy  
+##### 909#       发表于 2025-9-12 15:07
+
+真没有防弹板的话，说不定子弹真是击中那条项链或者锁骨才发生的偏转
+
+
+*****
+
+####  古畑任三郎2015  
+##### 910#       发表于 2025-9-12 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412842&amp;ptid=2261694" target="_blank">约定的明日 发表于 2025-9-12 13:10</a>
+https://b23.tv/XZVzeHx
+
+破案了，是詹密下手</blockquote>
+可疑，这还有詹<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
