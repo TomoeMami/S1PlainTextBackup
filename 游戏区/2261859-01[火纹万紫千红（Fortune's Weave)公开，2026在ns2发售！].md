@@ -1310,3 +1310,107 @@ engage的引擎其实做的挺好，放弃这个方向有点可惜。</blockquot
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我以为engage红蓝配色已经很抽象了，没想到还有高手
 
+
+*****
+
+####  VVhaleVoice  
+##### 156#       发表于 2025-9-12 23:05
+
+已经看到有群友拿着零星的游戏画面在研究系统了，这就是火学家吗<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  killbillwillil  
+##### 157#       发表于 2025-9-12 23:05
+
+别人设找不找谁的了，首先现在这建模风格人设谁来了都是拉下水
+
+mica原图不画的也比嗯给鸡建模好看？这次如果是仓花那建模反而不如风花雪月那低多边形顺眼，认了罢，唉
+
+*****
+
+####  nagitoY  
+##### 158#       发表于 2025-9-12 23:06
+
+最大的惊喜应该是长大后的苏蒂斯。风花雪月的三级长和贝老师看来都有概率出场。然后学级内高人气角色放dlc。
+
+*****
+
+####  山口達也  
+##### 159#       发表于 2025-9-12 23:06
+
+蓝发疑似不是主角，蓝发和其他几个角色疑似三房级长定位的样子
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 160#       发表于 2025-9-12 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417591&amp;ptid=2261859" target="_blank">lbj5454 发表于 2025-9-12 23:02</a>
+
+你们先别急着骂，游戏应该有时间线，小孩哥说不定有第二形态，银镜女主肯定也有第二形态，就像尼亚一样。
+
+ ...</blockquote>
+当年MJ皮肤变白被说白化，小孩没了脏辫不知道会有怎样的节奏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アーリィ  
+##### 161#       发表于 2025-9-12 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417539&amp;ptid=2261859" target="_blank">u2deack 发表于 2025-9-12 22:57</a>
+
+如果都是帕迈拉的人，该不会全员说话都结巴吧</blockquote>
+结巴是布里吉特，帕迈拉不结巴
+
+*****
+
+####  黑上シグマ  
+##### 162#       发表于 2025-9-12 23:09
+
+看到有个面板画面的左下角有个纹章，是三房DLC尤里斯的纹章，不知道是什么关系了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  whzfjd  
+##### 163#       发表于 2025-9-12 23:10
+
+感觉火纹群体对火纹技术面的认知撕裂程度比手游玩家觉得尘白禁区渲染有没有问题都大。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 164#       发表于 2025-9-12 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417489&amp;ptid=2261859" target="_blank">whzfjd 发表于 2025-9-12 22:53</a>
+
+你抱着张 engage 的渲染图说建模和渲染打过 engage</blockquote>
+我觉得engage连渲染图都打不过新作实机，没差吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keytomylife  
+##### 165#       发表于 2025-9-12 23:11
+
+不觉得人设丑，就皮肤黑了点
+
+这作KT开发，那就肯定不用engage的引擎啊
+
+*****
+
+####  lbj5454  
+##### 166#       发表于 2025-9-12 23:11
+
+明天看bilibili纹学家分析
+
+*****
+
+####  秦南心  
+##### 167#       发表于 2025-9-12 23:12
+
+美术糅合点啥风格不好，缝罗马，还往早了缝。就不能香草社抓几个人指导一下
+

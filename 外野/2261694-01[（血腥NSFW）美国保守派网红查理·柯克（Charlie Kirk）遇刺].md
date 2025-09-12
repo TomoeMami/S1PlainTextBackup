@@ -11223,3 +11223,179 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 听说子弹上还刻着 bella ciao?
 
+
+*****
+
+####  2017.05.04  
+##### 1038#       发表于 2025-9-12 23:06
+
+这下好汉杀好汉了
+
+唉白左<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  崩崩小圆帽  
+##### 1039#       发表于 2025-9-12 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417623&amp;ptid=2261694" target="_blank">龙骑士尹志平 发表于 2025-9-12 23:05</a>
+听说子弹上还刻着 bella ciao?</blockquote>
+还有你看到这说明你是gay，LMAO
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  守名居  
+##### 1040#       发表于 2025-9-12 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417616&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-12 23:05</a>
+
+大概是他老爹觉得肯定逃不掉了，送去自首看能不能争取个轻判。</blockquote>
+就这舆论架势，我感觉自首也不可能轻判，感觉阿美要给觉得自首就能轻判的父亲一点点maga主义（？）的震撼了
+
+
+*****
+
+####  牛顿学物理  
+##### 1041#       发表于 2025-9-12 23:08
+
+所以这位应该是antifa咯？
+
+倒是和前面很多人猜测的一样
+
+*****
+
+####  kaluoan  
+##### 1042#       发表于 2025-9-12 23:08
+
+<img src="https://img.stage1st.com/forum/202509/12/230838pa38bb9rxgsbrtxz.png" referrerpolicy="no-referrer">
+
+<strong>262dd2e32735c7df8d148b354bd41743.png</strong> (256.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:08 上传
+
+万斯抬棺，国会瞻仰，太伟大了！
+
+红脖子也有自己的马丁路德金了！
+
+好死，哈哈哈哈哈
+
+查理还是太年轻了，以为汴京赢了就能洗信仰，席德梅尔的文明玩多了。
+
+*****
+
+####  outerish  
+##### 1043#       发表于 2025-9-12 23:09
+
+还刻了地狱老司机的⬆️➡️⬇️⬇️⬇️
+
+这下懂王有借口说游戏暴力问题了
+
+*****
+
+####  就咋的  
+##### 1044#       发表于 2025-9-12 23:09
+
+OwO
+
+<img src="https://img.stage1st.com/forum/202509/12/230901uujkd0m4njcnnt07.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-09-12 at 23-08-13 LIVE Charlie Kirk shooting suspect in custody .png</strong> (80.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:09 上传
+
+*****
+
+####  yanghuangu  
+##### 1045#       发表于 2025-9-12 23:09
+
+结果是小孩子不懂事，射着玩的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 1046#       发表于 2025-9-12 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417616&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-12 23:05</a>
+大概是他老爹觉得肯定逃不掉了，送去自首看能不能争取个轻判。</blockquote>
+大案看政治舆论，小案才会扣法条自首减罪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叩叩叩  
+##### 1047#       发表于 2025-9-12 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弹壳上刻了↑→↓↓↓
+
+*****
+
+####  ranger_wang  
+##### 1048#       发表于 2025-9-12 23:12
+
+不会真的是在网上和柯克对喷急眼了选择线下真实他吧？
+
+*****
+
+####  龙骑士尹志平  
+##### 1049#       发表于 2025-9-12 23:12
+
+反同的antifa？很奇怪的成分啊
+
+*****
+
+####  卡嘎米  
+##### 1050#       发表于 2025-9-12 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417650&amp;ptid=2261694" target="_blank">kaluoan 发表于 2025-9-12 23:08</a>
+
+万斯抬棺，国会瞻仰，太伟大了！
+
+红脖子也有自己的马丁路德金了！
+
+好死，哈哈哈哈哈</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说暗杀往往起到反作用
+
+*****
+
+####  糖尔  
+##### 1051#       发表于 2025-9-12 23:13
+
+<img src="https://img.stage1st.com/forum/202509/12/231302weupipyoyuxuyide.png" referrerpolicy="no-referrer">
+
+<strong>24AEEA0818D8A79C5D9E7C470F463B53.png</strong> (17.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:13 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/231303m9vbrzll0pmdck79.png" referrerpolicy="no-referrer">
+
+<strong>A9BDE89E65933D9C0E4EEC145512C74E.png</strong> (62.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 23:13 上传
+
+感觉这两都有可能
+
+*****
+
+####  胜改藏  
+##### 1052#       发表于 2025-9-12 23:14
+
+良家子啊，唉，良家子，唉，老星条旗
+
+*****
+
+####  聊nsy专用号  
+##### 1053#       发表于 2025-9-12 23:15
+
+生活在保守州的保守家庭的高智商年轻人更容易偏激也很正常
+
+也没必要非给枪手扣个安提法的帽子，查理这种靠霸凌弱者起号的傻逼越是有正义感的人越讨厌，良家子就不能打抱不平吗
+
