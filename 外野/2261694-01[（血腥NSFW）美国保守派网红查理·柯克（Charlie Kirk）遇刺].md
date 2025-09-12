@@ -8341,3 +8341,40 @@ R.I. ...</blockquote>
 
 灵柩由空军二号运往亚利桑那，副总统亲自护送
 
+
+*****
+
+####  yongze  
+##### 781#       发表于 2025-9-12 08:10
+
+批判的武器代替不了武器的批判
+
+
+*****
+
+####  大暴死  
+##### 782#       发表于 2025-9-12 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406820&amp;ptid=2261694" target="_blank">长弓破风 发表于 2025-9-11 13:29</a>
+在牢美要搞🔫容易，搞炸药还是比较困难，当初俄克拉荷马爆炸案给它们整怕了，对炸药的管控还是很严格的 ...</blockquote>
+所以紧急呼救第二还是第三季的炸弹快递有点太扯了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  昨天动画看了吗  
+##### 783#       发表于 2025-9-12 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68410862&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-12 07:56</a>
+阿川搞战略收缩的确有利于中国。</blockquote>
+哈哈哈哈
+
+*****
+
+####  守名居  
+##### 784#       发表于 2025-9-12 08:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这待遇简直拉满了，除了找到凶手报仇
+taco底下的那群网红一想想有如此待遇都要骄傲的挺起胸膛了吧
+
