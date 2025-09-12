@@ -12204,3 +12204,20 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 但是如果最后确认这人真是极右互害，那就判断错了呗，有什么问题？但是这个证据可能被当局掩盖
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 1128#       发表于 2025-9-13 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418326&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-13 00:35</a>
+
+一个美国人被枪杀了，最应该负责的是；
+
+&gt;老中
+
+&gt;电子游戏</blockquote>
+那当然是老钟利用电子游戏在互联网上散布的极端思想！
+
+简称玩OO玩的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
