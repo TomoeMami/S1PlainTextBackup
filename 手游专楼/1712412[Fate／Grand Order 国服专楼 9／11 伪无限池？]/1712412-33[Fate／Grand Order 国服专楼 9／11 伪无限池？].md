@@ -522,3 +522,13 @@ bb看白野的表情真不错
 
 迪拜BB池沉的一塌糊涂，140抽左右都快半井了一个四星从者都没<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47441#       发表于 2025-9-12 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412259&amp;ptid=1712412" target="_blank">失落之翼 发表于 2025-9-12 11:32</a>
+迪拜BB池沉的一塌糊涂，140抽左右都快半井了一个四星从者都没</blockquote>
+兄弟冷静，别抽了，虽然我也花花池上头，但是冷静，冷静，冷…………，我要抽花花啊<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

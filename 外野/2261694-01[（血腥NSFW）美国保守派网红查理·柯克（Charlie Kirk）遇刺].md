@@ -9185,3 +9185,79 @@ FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
 共和党这次损失看起来真的很严重，都急成这样了</blockquote>
 搜了一下信息感觉这人算共和党下一代继承人的位置了，被打死肯定急<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷路的石头  
+##### 857#       发表于 2025-9-12 11:38
+
+<blockquote>卖哥 发表于 2025-9-12 10:29
+倘若美国一任总统，4年内安分守己不折腾，成功维持了1%通胀3%GDP增长，他有机会连任么？
+
+在我看来是不能的 ...</blockquote>
+美国总统需要能整活
+
+吉米卡特那么牛逼，一手建立全球反苏圈，扭转了冷战形势的人，美国战后少有的有长远眼光的政治家而非纯政客
+
+美国国内对他的评价是软，给第三世界让渡了太多权利
+
+*****
+
+####  bingpou  
+##### 858#       发表于 2025-9-12 11:38
+
+<blockquote>forestlimit 发表于 2025-9-12 11:28
+他从楼上跳下来的
+
+【FBI公布柯克枪杀案现场监控-哔哩哔哩】 https://www.bilibili.com/video/BV16ZH6zHE ...</blockquote>
+看原版长的视频感觉有练过，但不是pro。
+
+
+*****
+
+####  acguy  
+##### 859#       发表于 2025-9-12 11:40
+
+凶手形象一下子朝新版豺狼的日子发展了
+
+*****
+
+####  TTAA  
+##### 860#       发表于 2025-9-12 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412304&amp;ptid=2261694" target="_blank">迷路的石头 发表于 2025-9-12 11:38</a>
+
+美国总统需要能整活
+
+吉米卡特那么牛逼，一手建立全球反苏圈，扭转了冷战形势的人，美国战后少有的有长远 ...</blockquote>
+这样的政体真是没救了，最高领导人居然是选秀明星
+
+
+*****
+
+####  acguy  
+##### 861#       发表于 2025-9-12 11:45
+
+<img src="https://img.stage1st.com/forum/202509/12/114502xrmzll2027m2o5rl.jpg" referrerpolicy="no-referrer">
+
+<strong>304B5C5DE6930DD4A1726404EAB9CBD1.jpg</strong> (117.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 11:45 上传
+
+防弹插板说
+
+*****
+
+####  就咋的  
+##### 862#       发表于 2025-9-12 11:45
+
+ 本帖最后由 就咋的 于 2025-9-12 11:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412324&amp;ptid=2261694" target="_blank">TTAA 发表于 2025-9-12 11:41</a>
+
+这样的政体真是没救了，最高领导人居然是选秀明星</blockquote>
+还有“冷战”大明星里根，还还还有巨星 MAGA 教主。这俩的从政之路就是一步总统
+
+不对，里根当过加州州长
+
