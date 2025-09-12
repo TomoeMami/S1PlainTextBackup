@@ -9541,3 +9541,11 @@ https://b23.tv/XZVzeHx
 
 这事我看美国左右都觉得震动很大啊，是不是大的要来了？
 
+
+*****
+
+####  东窗下的鸟  
+##### 886#       发表于 2025-9-12 13:34
+
+美丽国要开展大武斗了么，画美不看<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
