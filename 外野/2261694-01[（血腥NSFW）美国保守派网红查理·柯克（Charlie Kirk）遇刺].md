@@ -10810,3 +10810,64 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 这下放下矜持了，魔法对魔法，就等以枪对枪</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右逼一般是集体行动，比如国会山，抓了的立为英雄，不会像左逼这样独走，右逼报复是成建制的，某种程度来说比左逼破坏力大多了
 
+
+*****
+
+####  tillnight  
+##### 996#       发表于 2025-9-12 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415849&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-12 21:08</a>
+
+右逼一般是集体行动，比如国会山，抓了的立为英雄，不会像左逼这样独走，右逼报复是成建制的，某种程度来 ...</blockquote>
+不是很懂楼里一遍一遍重复今年已经有独狼直接上门杀民主党议员全家了，楼里还是一遍一遍复读红脖子不行、老右遵纪守法。事实是两边都有极端魔怔人，但是指望在这个现代社会有成建制的真搞事的（国会山散步那种可不算）。差不多得了，泥潭成天论述为什么抖音能降低全球生育率，就想不到在这个娱乐至死的年代，吃不饱饭的人都有娱乐产品爽，哪有人上陪你梁山，注定只有两边的魔怔人独狼作案，大多数人就是打打键政嘴炮继续做日子人。
+
+
+*****
+
+####  卖哥  
+##### 997#       发表于 2025-9-12 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415591&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-12 20:42</a>
+
+不会这么典吧？妈的革命叛徒总是伴随着左逼
+
+ BREAKING NEWS: President Trump says a suspect likely in  ...</blockquote>
+在没有确认动机前，先不要认领义士。
+
+*****
+
+####  卡嘎米  
+##### 998#       发表于 2025-9-12 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415982&amp;ptid=2261694" target="_blank">tillnight 发表于 2025-9-12 21:18</a>
+
+不是很懂楼里一遍一遍重复今年已经有独狼直接上门杀民主党议员全家了，楼里还是一遍一遍复读红脖子不行、 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可没说右逼遵纪守法，我分析的是右逼普遍怂逼，因为右逼的本质是功利，以自己利益为优先，你说有没有疯子，那当然有，但比起左来说不是普遍
+
+*****
+
+####  卡嘎米  
+##### 999#       发表于 2025-9-12 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416050&amp;ptid=2261694" target="_blank">卖哥 发表于 2025-9-12 21:23</a>
+
+在没有确认动机前，先不要认领义士。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这是认领吗？我太看得起这类表演了
+
+*****
+
+####  tillnight  
+##### 1000#       发表于 2025-9-12 21:25
+
+<blockquote>卡嘎米 发表于 2025-9-12 21:23
+我可没说右逼遵纪守法，我分析的是右逼普遍怂逼，因为右逼的本质是功利，以自己利益为优先，你说有没有疯 ...</blockquote>
+我的重点在后半句。
+
+
+*****
+
+####  novem  
+##### 1001#       发表于 2025-9-12 21:26
+
+这么快就抓到了
+
