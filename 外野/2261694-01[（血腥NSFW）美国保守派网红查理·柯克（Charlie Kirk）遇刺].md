@@ -9473,3 +9473,25 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=3453641521578286325&amp;skey=@cr
 
 图传不上来，去贴吧看吧。
 
+
+*****
+
+####  Benighted  
+##### 880#       发表于 2025-9-12 12:59
+
+<img src="https://img.stage1st.com/forum/202509/12/125629qaear5aeme5b4s54.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912125600.png</strong> (395.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 12:56 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/125628ivnfh1v0r3jsy7nf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912125605.png</strong> (159.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 12:56 上传
+
