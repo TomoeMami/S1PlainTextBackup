@@ -11023,3 +11023,70 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 外国轻兵器爱好者，可以与实践相结合。
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Azcarlo  
+##### 1016#       发表于 2025-9-12 22:24
+
+你美这个玩枪环境出几个枪法好的不奇怪吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mahoraga  
+##### 1017#       发表于 2025-9-12 22:27
+
+老星条旗良家子了，虽然不知道枪手自己有什么政治偏向，但是家庭确实是典型的保守派白人家庭，从小练美国传武的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1018#       发表于 2025-9-12 22:29
+
+4chan侦探，认真破案
+
+
+*****
+
+####  叩叩叩  
+##### 1019#       发表于 2025-9-12 22:30
+
+良家子
+
+<img src="https://img.stage1st.com/forum/202509/12/223005a9t3hcc2xuq833pz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250912222939.png</strong> (171.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 22:30 上传
+
+*****
+
+####  风景很好  
+##### 1020#       发表于 2025-9-12 22:31
+
+难道是建制派？
+
+*****
+
+####  全世界失恋  
+##### 1021#       发表于 2025-9-12 22:32
+
+美国人民需要第二次内战了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 1022#       发表于 2025-9-12 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417173&amp;ptid=2261694" target="_blank">mahoraga 发表于 2025-9-12 22:27</a>
+
+老星条旗良家子了，虽然不知道枪手自己有什么政治偏向，但是家庭确实是典型的保守派白人家庭，从小练美国传 ...</blockquote>
+- "Prove Me Wrong"
+
+- “你挑的嘛偶像！”
+
+似乎大概有可能差不多可以解释
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

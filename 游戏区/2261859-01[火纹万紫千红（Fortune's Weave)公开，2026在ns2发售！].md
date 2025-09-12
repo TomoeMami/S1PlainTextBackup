@@ -723,3 +723,177 @@ rgb主角只有g是能入眼 但是长得像吸血鬼 也不行<img src="https:/
 为什么大家都说是前传，苏蒂斯长大，时间线不应该在三房后面吗</blockquote>
 大结局力量散尽变成幼年体也不是啥新鲜设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滋啦球  
+##### 91#       发表于 2025-9-12 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417014&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2025-9-12 22:19</a>
+
+虽然新作是新作，可惜是最兴奋不起来的模式。别的不说火纹的龙娘成年都要变大妈吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">琪琪长大没这么丑
+
+*****
+
+####  The_Fool_  
+##### 92#       发表于 2025-9-12 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417052&amp;ptid=2261859" target="_blank">Nez 发表于 2025-9-12 22:20</a>
+
+看样子这作没有武器耐久，战技改成消耗hp了</blockquote>
+回看视频还是有耐久度的，这也是我不喜欢风花雪月的原因之一<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LMBS  
+##### 93#       发表于 2025-9-12 22:27
+
+玩法 系统 人设这些就先不管
+
+结合的界面明明改的这么好，怎么又改回去了，就不能吸取下吗
+
+*****
+
+####  yt5wt2c  
+##### 94#       发表于 2025-9-12 22:28
+
+is是在搞什么路线斗争吗，武器耐久这东西反复横跳几部了
+
+*****
+
+####  jcwatm1  
+##### 95#       发表于 2025-9-12 22:28
+
+这一部简称“春”吧
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Nez  
+##### 96#       发表于 2025-9-12 22:29
+
+仔细看了下还是有武器耐久的，但是没有在武器图标旁边标出来而是写在武器信息里了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">意义不明
+
+骑兵像三房一样可以上下马，有个和持有物分开的道具袋指令不知道是干什么的，该不会这作人均运输队了吧
+
+等级旁边有个能量槽好像是新系统，也有个指令叫“能量槽管理”，就是不知道为什么pv里只有歌姬有
+
+*****
+
+####  无辄辄  
+##### 97#       发表于 2025-9-12 22:29
+
+泥潭真是严格啊，我看外面的评论区基本都是好评的，不过没关系，吹死婊活，看到泥潭评判是好事啊。
+
+*****
+
+####  虚无连斩  
+##### 98#       发表于 2025-9-12 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417152&amp;ptid=2261859" target="_blank">滋啦球 发表于 2025-9-12 22:26</a>
+
+琪琪长大没这么丑</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">御姐琪琪还是大谷育江呢，四舍五入可以娶皮卡丘结婚不好吗
+
+*****
+
+####  绿冰  
+##### 99#       发表于 2025-9-12 22:30
+
+果然得光荣才能救火纹，是吧233
+
+*****
+
+####  LMBS  
+##### 100#       发表于 2025-9-12 22:31
+
+这人设对我来说就比饼好
+
+*****
+
+####  chjimi  
+##### 101#       发表于 2025-9-12 22:31
+
+已经迫不及待的想看三房厨大战新作厨了，感觉比打游戏还有意思得多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 102#       发表于 2025-9-12 22:32
+
+有望dlc全三房角色回归享受新系统，最期待的一集
+
+
+*****
+
+####  wanghuanqishi  
+##### 103#       发表于 2025-9-12 22:32
+
+结合暴死，不做三房续作做什么？你给销量吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哲学向黑子  
+##### 104#       发表于 2025-9-12 22:32
+
+这帮市场调研的人到底有没有搞懂，风花雪月大卖因素不就是帅哥美女校园战争养成谈恋爱
+
+你给端上个脏辫小孩哥，你一个主打战争的战棋游戏用小孩当主角，脑子有屎都是在夸你了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzzplht  
+##### 105#       发表于 2025-9-12 22:33
+
+姨姥看到三房系就疯狂哈气
+
+*****
+
+####  大阪  
+##### 106#       发表于 2025-9-12 22:33
+
+要是这作把结合在画面上的优点（大地图转小战场流畅，战斗动画优秀）抛掉，把卖点放在三房like的育成上是真不想买了，人设越看越丑，而且还得买ns2.
+
+*****
+
+####  虚无缥缈的分身  
+##### 107#       发表于 2025-9-12 22:34
+
+这作一堆褐色皮肤啊，我记得三房世界观里芙朵拉东北边是不是还有一大片区域啊，什么蛮族居住的，会不会就是那边的故事
+
+*****
+
+####  逆城的风  
+##### 108#       发表于 2025-9-12 22:34
+
+许愿出几首好曲子吧，三房的鹫狮子和野望地平线是真不错
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  普通哈尼  
+##### 109#       发表于 2025-9-12 22:34
+
+全是黑的，万紫千红在哪<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jimclack  
+##### 110#       发表于 2025-9-12 22:35
+
+整体风格有点走暗喻幻想那个路子，不过暗语幻想都暴死了还学是否有点……不过mc评分这下稳了
+
+*****
+
+####  kalavinka  
+##### 111#       发表于 2025-9-12 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417273&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2025-9-12 22:34</a>
+这作一堆褐色皮肤啊，我记得三房世界观里芙朵拉东北边是不是还有一大片区域啊，什么蛮族居住的，会不会就是 ...</blockquote>
+库洛德老家吧
+
