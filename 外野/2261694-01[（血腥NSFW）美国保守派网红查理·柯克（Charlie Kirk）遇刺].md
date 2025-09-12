@@ -10209,3 +10209,30 @@ scotte ritter说被杀原因还有可能是这人近来有反鱿倾向
 因为ykw整活的密度大到大家都觉得他已经在位一年多了 ...</blockquote>
 仿照曼德拉效应，以后这类“整活太多以至于时间流速错觉”就叫做懂王效应吧。
 
+
+*****
+
+####  SH-gpj  
+##### 941#       发表于 2025-9-12 17:16
+
+我草，盒！美国红脖子们现在设立了一个网站，要把所有在网上嘲笑过查理•柯克的人全都开盒，已经开了上千个人的个人信息了。。。
+[https://www.charliesmurderers.com/](https://www.charliesmurderers.com/)
+
+<img src="https://img.stage1st.com/forum/202509/12/171601n5twswyll50lztbw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 17:16 上传
+
+*****
+
+####  卡嘎米  
+##### 942#       发表于 2025-9-12 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414342&amp;ptid=2261694" target="_blank">SH-gpj 发表于 2025-9-12 17:16</a>
+
+我草，盒！美国红脖子们现在设立了一个网站，要把所有在网上嘲笑过查理•柯克的人全都开盒，已经开了上千个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和某些粉丝群体是不是一样的，其实本质完全一样
+
