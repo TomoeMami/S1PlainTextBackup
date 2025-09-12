@@ -10670,3 +10670,12 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 别人可以限制到shotgun为啥你美不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  agsva  
+##### 982#       发表于 2025-9-12 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413955&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-12 16:17</a></blockquote>
+这种就是买件T恤然后热转印吧，有机器就能搞，肯定不需要义乌进货。
+
