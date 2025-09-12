@@ -12434,3 +12434,83 @@ Nicholas Fuentes还极端反LGBT，极端厌女，也就是真正的极端男权
 丑国划分左右高度依赖3g1a（Gay、Gun、God、Abortion）立场，除此以外的一切正常的左右翼区分标准都不适 ...</blockquote>
 你仔细看这四项，实际上只有god和gun两项而已。左手圣经，右手利剑，还是那老一套殖民地传教士
 
+
+*****
+
+####  yayoi801  
+##### 1143#       发表于 2025-9-13 04:27
+
+乐子人本地白男小登作案<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“Hey Fascist! Catch! ↑→↓↓↓"
+<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wtwtwt21  
+##### 1144#       发表于 2025-9-13 05:13
+
+ 本帖最后由 wtwtwt21 于 2025-9-13 05:14 编辑 
+
+[https://weibo.com/7765195356/Q4j8HmtWg](https://weibo.com/7765195356/Q4j8HmtWg)
+
+抽象老美
+
+这次枪杀柯克的嫌疑人罗宾逊疑似是Nicholas Fuentes的粉丝。
+
+Nicholas Fuentes是一位白人至上主义领袖、组织者和播客，他致力于打造一个与主流共和党不同的白人民族主义替代方案。
+
+Groyper运动最大特点就是极端反犹，包括反以色列。
+
+不像柯克创立的Turning point USA，和很多传统的MAGA，虽然反对美国的犹太社区，但支持以色列。
+
+2019年，在美国右翼出现很轰动的Groyper战争，就是Nicholas Fuentes跟柯克之间的战争。
+
+Nicholas Fuentes作为极右翼，指责同样极右翼的柯克，不够“极端”。
+
+比如Nicholas Fuentes指责柯克创立的Turning point USA是亲以色列的新保守派，是犹太复国派的傀儡。
+
+于是柯克把Nicholas Fuentes及其组织相关成员，开除右籍。
+
+双方因此结下仇恨。
+
+Nicholas Fuentes还极端反LGBT，极端厌女，也就是真正的极端男权。
+如果柯克是极右翼，那么Nicholas Fuentes就是极极右翼。
+
+因为过于极端，已经从极极右翼，似乎跳到极左翼去了，变成了美国“输学家”，也就是美国的降临派。
+
+而Nicholas Fuentes所希望美国被降临的对象，没错，就是我方。
+
+比如Nicholas Fuentes希望我方去管理美国，把纽约建设得跟北京上海一样。
+
+你没看错，一个极端白人至上主义者，反而变成了美国降临派。
+
+总之嫌疑人是Nicholas Fuentes的粉丝就可以解释他为何杀柯克，只是还不能解释，为什么是这个时候枪杀柯克。
+
+毕竟柯克通过Groyper战争跟Nicholas Fuentes结怨是2019年的事情了。
+
+这事情应该还有一个导火索。
+
+当然以上仅仅只是猜测一种可能性，事实如何还需要进一步查证，目前还不能明确嫌疑人就是Groyper运动成员。
+
+总之，这事情太抽象了，MAGA阵营一直希望凶手是一个典型的LGBT或者白左。
+
+没想到是一个神神极右翼，是极端反LGBT的，变成了极右翼窝里斗了，实在太抽象了。
+
+*****
+
+####  鱼丈人  
+##### 1145#       发表于 2025-9-13 05:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418594&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-13 01:37</a>
+丑国划分左右高度依赖3g1a（Gay、Gun、God、Abortion）立场，除此以外的一切正常的左右翼区分标准都不适 ...</blockquote>
+你仔细看这四项，实际上只有god和gun两项而已。左手圣经，右手利剑，还是那老一套殖民地传教士
+
+*****
+
+####  H2Ofrozen  
+##### 1146#       发表于 2025-9-13 05:24
+
+不错，这事后续大概要朝着解构狂欢去发展了，标签化的政治脸谱也不再有任何严肃意义。恰恰不觉得是什么魔怔人内斗，而是后现代给前现代打出物理意义上的一枪
+
+[【XQC难崩美国警察读出枪击查理柯克凶手的弹壳字迹，第三个直接崩不出笑出声！-哔哩哔哩】](https://www.bilibili.com/video/BV1x2p5zoE9z)
+
