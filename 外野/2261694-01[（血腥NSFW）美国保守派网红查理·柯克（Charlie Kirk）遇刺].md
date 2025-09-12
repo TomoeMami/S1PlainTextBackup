@@ -9412,3 +9412,44 @@ FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
 
 这种公众人物还是很讲究个人形象的，穿着短衫去大学演讲，如果里面还穿防弹衣，很容易被看出来，给人的印象就不好，甚至以后会被政敌嘲笑攻击许多年。另外，他现在怎么说也还只是个崭露头角的极右翼新人，估计也没料到有人会这么一枪毙了他。
 
+
+*****
+
+####  zaozaoxx  
+##### 874#       发表于 2025-9-12 12:38
+
+竟然从房顶直接跑酷跑的，真pro<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+_cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=3453641521578286325&amp;skey=@crypt_971a.jpg
+(115.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 12:38 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/123801hon10a0ou25nzau5.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xuanwu_lei  
+##### 875#       发表于 2025-9-12 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68412686&amp;ptid=2261694" target="_blank">zaozaoxx 发表于 2025-9-12 12:38</a>
+竟然从房顶直接跑酷跑的，真pro</blockquote>
+育碧出一期吧（bushi
+
+*****
+
+####  acguy  
+##### 876#       发表于 2025-9-12 12:42
+
+有说法他之前就遭受过多次死亡威胁，所以才穿的防弹衣，另外如果真是裸身，是否也有可能子弹擦中锁骨导致偏转再击中颈部动脉？
+
+*****
+
+####  colike  
+##### 877#       发表于 2025-9-12 12:44
+
+成龙，是成龙杀的人（不是
+
