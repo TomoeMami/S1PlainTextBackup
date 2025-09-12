@@ -8753,3 +8753,56 @@ pro与否且不论，这事里边有几个点是很值得斟酌的：
 —— 来自 Xiaomi 2203121C, Android 14, 鹅球 v3.5.99</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是中将还是谁加的吧 当时就很离谱
 
+
+*****
+
+####  土星环  
+##### 818#       发表于 2025-9-12 10:22
+
+死于自己的支持的东西，这是好事啊
+
+*****
+
+####  saizeriya  
+##### 819#       发表于 2025-9-12 10:25
+
+<img src="https://img.stage1st.com/forum/202509/12/102431ua4ymytuue0yuzun.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912102405.jpg</strong> (269.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 10:24 上传
+
+共和党这次损失看起来真的很严重，都急成这样了
+
+*****
+
+####  saizeriya  
+##### 820#       发表于 2025-9-12 10:26
+
+<img src="https://img.stage1st.com/forum/202509/12/102533r9iuzjzkcbecgchc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912102518.jpg</strong> (304.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 10:25 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/102533vnrvd4nob2y2y299.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250912102522.png</strong> (192.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 10:25 上传
+
+可怜的二桶
+
+*****
+
+####  acguy  
+##### 821#       发表于 2025-9-12 10:28
+
+吊销签证的由头没有9个也有10个了，共和党什么时候开除自由派国籍
+
