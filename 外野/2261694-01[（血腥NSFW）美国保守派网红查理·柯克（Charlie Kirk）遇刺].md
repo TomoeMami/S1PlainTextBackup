@@ -10921,3 +10921,61 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 居然是靠自首<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acguy  
+##### 1006#       发表于 2025-9-12 21:49
+
+<img src="https://img.stage1st.com/forum/202509/12/214936c551gz79q9cz3lu7.jpg" referrerpolicy="no-referrer">
+
+<strong>001X45xdgy1i5b8ajo1jnj60zu1fmao902.jpg</strong> (244.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 21:49 上传
+
+*****
+
+####  鵝  
+##### 1007#       发表于 2025-9-12 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416416&amp;ptid=2261694" target="_blank">acguy 发表于 2025-9-12 21:49</a></blockquote>
+这房间和我家好像，尤其键盘前边那个壶<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  林无德  
+##### 1008#       发表于 2025-9-12 21:52
+
+六郡良家子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  树上的诚炎  
+##### 1009#       发表于 2025-9-12 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416061&amp;ptid=2261694" target="_blank">tillnight 发表于 2025-9-12 21:25</a>
+我的重点在后半句。</blockquote>
+卡嘎米已经是知名帽子大王了，和这哥们辩论除了让自己多顶帽子没意义的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  就咋的  
+##### 1010#       发表于 2025-9-12 21:54
+
+第三个选项，更像是没啥诉求的“神经病”枪手，《出租车司机》
+<img src="https://static.stage1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  守名居  
+##### 1011#       发表于 2025-9-12 21:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">希望是保懂派的
+
