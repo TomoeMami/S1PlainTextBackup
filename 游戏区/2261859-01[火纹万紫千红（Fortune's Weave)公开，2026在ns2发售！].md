@@ -1826,3 +1826,107 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑上シグマ  
+##### 208#       发表于 2025-9-13 00:27
+
+想当初三房最早宣传时候把五年后藏得贼严实（虽说被舅舅透了个底朝天），这次不知道藏了点什么
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  黑暗之眼  
+##### 209#       发表于 2025-9-13 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418259&amp;ptid=2261859" target="_blank">pf67 发表于 2025-9-13 00:23</a>
+
+我觉得港任这个和英文的比较贴近，万紫千红太抽象
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3.5 ...</blockquote>
+万紫千红本身就是个汉语词，哪里抽象了？
+
+*****
+
+####  hkguty  
+##### 210#       发表于 2025-9-13 00:29
+
+火纹版四方旅人，或者可能还有其他POV未登场，这样的话说不定也没有好感度系统，感觉一下子oldschool起来了
+
+
+*****
+
+####  月夜的风  
+##### 211#       发表于 2025-9-13 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418249&amp;ptid=2261859" target="_blank">Humpy 发表于 2025-9-13 00:22</a>
+
+那个应该是普通队友吧……？PV里蓝毛战斗演示部分有出现，武器当时是空手格斗 ...</blockquote>
+这只吗，当时看小头像第一眼还蛮看好的。
+
+不过还是被GUN给带歪了没往她身上想。
+
+333.png
+(44.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 00:29 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/002915wmmh1mdmdjojjz19.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zeroboss4  
+##### 212#       发表于 2025-9-13 00:30
+
+吐了 全黑皮？
+
+能不能把风花雪月更新60帧补丁
+
+*****
+
+####  Pikatruck  
+##### 213#       发表于 2025-9-13 00:31
+
+这不比engage那杀马特造型好多了，只要后期不重复我是支持做学院养成的<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Humpy  
+##### 214#       发表于 2025-9-13 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418311&amp;ptid=2261859" target="_blank">Pikatruck 发表于 2025-9-13 00:31</a>
+这不比engage那杀马特造型好多了，只要后期不重复我是支持做学院养成的</blockquote>
+杀马特还是有的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想想Pv里一闪而过的高饱和巴西初音<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉佳厨  
+##### 215#       发表于 2025-9-13 00:36
+
+现在出来的介绍都是描述“四位战士”，总觉得眼镜娘或者后面的白衣枪娘才是自捏
+
+*****
+
+####  karastar  
+##### 216#       发表于 2025-9-13 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418297&amp;ptid=2261859" target="_blank">黑暗之眼 发表于 2025-9-13 00:29</a>
+万紫千红本身就是个汉语词，哪里抽象了？</blockquote>
+英语原文Fortune’weave类似命运像网一样互相交织，近似命运之网，万缕千丝估计是从英语翻译的
+
+*****
+
+####  otakun  
+##### 217#       发表于 2025-9-13 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417444&amp;ptid=2261859" target="_blank">斯卡雷特 发表于 2025-9-12 22:48</a>
+在我看来人设比结合那管人风格可强太多了，另外妹子你拿的这是什么</blockquote>
+枪克剑啊，怎么了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

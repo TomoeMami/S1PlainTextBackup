@@ -11926,3 +11926,75 @@ AOC在演讲的时候，被美共人士刺杀，理由是
 https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">互为异端！
 
+
+*****
+
+####  busuoni  
+##### 1100#       发表于 2025-9-13 00:28
+
+某楼友要不要这么搞笑，一开始打得还是“搞暗杀的年轻左派傻子”，一看是Groyper的人还给把左派俩字编辑了，要不要这么现眼啊
+
+*****
+
+####  守名居  
+##### 1101#       发表于 2025-9-13 00:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">查理的账号开直播了
+
+
+*****
+
+####  叩叩叩  
+##### 1102#       发表于 2025-9-13 00:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">FBI那个阿三笑死了，一个阿三对一个基督徒说瓦尔哈拉见
+
+*****
+
+####  卡嘎米  
+##### 1103#       发表于 2025-9-13 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418290&amp;ptid=2261694" target="_blank">busuoni 发表于 2025-9-13 00:28</a>
+
+某楼友要不要这么搞笑，一开始打得还是“搞暗杀的年轻左派傻子”，一看是Groyper的人还给把左派俩字编辑了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在都是二手消息当然要严谨，如果错了难道还不让编辑？
+
+•他的家人说，他转向左翼激进主义，拒绝了他成长过程中所接受的价值观，在最近的一次家庭聚餐上表达了强烈的反保守观点
+
+•在 Antifa Discord 服务器中活跃。
+
+•确信查理·柯克是一个“传播仇恨”的“法西斯分子”。
+
+•在犯罪现场留下反法西斯主义的口号和言论。
+
+• 一名警长的儿子——当他被证明是凶手时，他的父亲就将他告发了。
+
+*****
+
+####  糖尔  
+##### 1104#       发表于 2025-9-13 00:30
+
+刻的字都在开gay笑话很难说是（典型美国）左翼 大概率之前都没什么立场，至于他为什么杀人，感觉就是上网上魔怔了
+
+*****
+
+####  cyanwow  
+##### 1105#       发表于 2025-9-13 00:32
+
+都怪电子游戏！<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 1106#       发表于 2025-9-13 00:35
+
+一个美国人被枪杀了，最应该负责的是；
+&gt;老中
+&gt;电子游戏
+&gt;互联网
+&gt;极左/极右思想
+
+Come on！你总得选一个吧<img src="https://static.stage1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">总不能真怪人人持枪吧
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
