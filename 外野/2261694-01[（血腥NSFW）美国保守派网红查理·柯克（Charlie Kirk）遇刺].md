@@ -10647,3 +10647,26 @@ taco哪急了
 军盲想问下，假设大美想像管制自动Rifle一样管制sniper gun。这种一定距离上的精准射击Rifle能够通过技术指 ...</blockquote>
 狙击是一种战术不指代任何武器，任何一把调整好的长枪都能成为狙击步枪，当然借助掩体掩护用手枪也不是不行，你用弓弩投石器掷矛器都能达成狙击的目的
 
+
+*****
+
+####  xuanwu_lei  
+##### 980#       发表于 2025-9-12 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414645&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 18:05</a>
+懂子这是急火攻心，要中风了</blockquote>
+Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuanwu_lei  
+##### 981#       发表于 2025-9-12 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415056&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-12 19:21</a>
+拥枪对象党的农场主是刚需
+
+不然乡下十来个非法移民就敢洗劫一座农场</blockquote>
+这玩意儿十年前就辩烂了，再村村得过澳大利亚吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别人可以限制到shotgun为啥你美不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
