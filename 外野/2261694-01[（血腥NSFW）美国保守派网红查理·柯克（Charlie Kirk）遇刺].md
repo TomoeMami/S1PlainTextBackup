@@ -9361,3 +9361,40 @@ FBL 把“调查”线路放到这个人身上了，在网上发悬赏。
 
 什么枪斗术，防弹服反弹也在计算之内吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美式传武还是太强了
 
+
+*****
+
+####  天选之子  
+##### 870#       发表于 2025-9-12 12:18
+
+<blockquote>acguy 发表于 2025-9-12 11:45
+防弹插板说</blockquote>
+之前还以为是瞄头打颈，现在看来更像是瞄心打颈？
+
+*****
+
+####  循此苦旅  
+##### 871#       发表于 2025-9-12 12:19
+
+<blockquote>zewubbfa 发表于 2025-9-12 11:14
+我建议你还是找个正面的视频逐帧看一下，衣服下面有个防弹插板的轮廓，中弹瞬间锁骨附近的衣服被 插板带起 ...</blockquote>
+没有什么插板轮廓，单纯就是命中时身体抖动
+
+
+*****
+
+####  守名居  
+##### 872#       发表于 2025-9-12 12:21
+
+<img src="https://img.stage1st.com/forum/202509/12/122000kdwmmclfyh91lw15.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9746.jpeg</strong> (566.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 12:20 上传
+
+这图有激凸应该是没有防弹措施吧
+
+或者上台前穿了
+
