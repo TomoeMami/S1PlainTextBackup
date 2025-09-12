@@ -2290,3 +2290,11 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 为什么大家都说是前传，苏蒂斯长大，时间线不应该在三房后面吗</blockquote>
 苏蒂斯本来就是千年老龙王，死后重生才缩成萝莉的
 
+
+*****
+
+####  FACS  
+##### 254#       发表于 2025-9-13 07:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">is个日本企业做的游戏也要把英文当基准吗，此时在fs亦有记载
+
