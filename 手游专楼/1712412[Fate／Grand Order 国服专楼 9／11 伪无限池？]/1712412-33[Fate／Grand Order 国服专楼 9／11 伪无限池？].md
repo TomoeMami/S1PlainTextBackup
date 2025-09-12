@@ -566,3 +566,13 @@ bb看白野的表情真不错
 
 娄希前再也不抽了，今年rp透支的太厉害了，一年三个双黄<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Urakawa  
+##### 47446#       发表于 2025-9-13 05:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68414929&amp;ptid=1712412" target="_blank">Urakawa 发表于 2025-9-12 19:01</a>
+又补了20抽拿到伊吹了</blockquote>
+90抽补了公主的第5宝，等年底月批了
+
