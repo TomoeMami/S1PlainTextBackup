@@ -11122,3 +11122,56 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 老美日子人反纳反种族不分左右，定点除虫而已，只不过是爆浆了。街头遇到新纳崽子们只要打不跑，就得活活打死
 
+
+*****
+
+####  冰风血羽  
+##### 1027#       发表于 2025-9-12 22:47
+
+是什么让一个又一个良家子举起了手中的GUN<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宇白顺  
+##### 1028#       发表于 2025-9-12 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417337&amp;ptid=2261694" target="_blank">lactone 发表于 2025-9-12 22:38</a>
+
+这和布什内尔，路易吉差不多啊，都是中上层美国家庭了
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3 ...</blockquote>
+革命的火苗往往来自中层
+
+*****
+
+####  weary11  
+##### 1029#       发表于 2025-9-12 22:49
+
+红脖子才是真fw把？看看人家建制派行动能力，一枪一个。
+
+红脖子除了喊口号什么都不行啊。
+
+
+*****
+
+####  武男  
+##### 1030#       发表于 2025-9-12 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417466&amp;ptid=2261694" target="_blank">weary11 发表于 2025-9-12 22:49</a>
+
+红脖子才是真fw把？看看人家建制派行动能力，一枪一个。
+
+红脖子除了喊口号什么都不行啊。
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">早说了，他们是群COS爱好者了，东亚这边刀劈首相的事情多了去了。
+
+他们手里的那堆烧火棍，是不敢用来反抗的。
+
+*****
+
+####  天选之子  
+##### 1031#       发表于 2025-9-12 22:56
+
+结果真的是共和党杀共和党？好戏开场！
+

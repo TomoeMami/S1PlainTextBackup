@@ -1037,3 +1037,179 @@ Nintendo Switch 2 ソフト『ファイアーエムブレム 万紫千紅』が2
 
 有吗？不是刚公布人设的时候一边倒的骂管人风？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡雷特  
+##### 127#       发表于 2025-9-12 22:48
+
+在我看来人设比结合那管人风格可强太多了，另外妹子你拿的这是什么<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+QQ图片20250912224639.png
+(898.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/224753lhyhbxmntzibbwwy.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜的风  
+##### 128#       发表于 2025-9-12 22:48
+
+其实我觉得这才是女主啊。有IF阿夸定位差不多的感觉。这次给她的镜头也不少。
+
+1234567.png
+(1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 22:48 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/224819ndvp0d5km1xzxkdv.png" referrerpolicy="no-referrer">
+
+123.png
+(175.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 22:48 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/224849a6egg5uzrjgx5zsx.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西多士  
+##### 129#       发表于 2025-9-12 22:48
+
+<blockquote>虚无缥缈的分身 发表于 2025-9-12 22:39
+你这么一说，突然想起来库罗德是褐色皮肤，本作也一堆褐色皮肤，真可能是讲库罗德老家的故事了 ...</blockquote>
+就是帕迈拉大陆，与芙朵拉相邻的那个，风花雪月里那些黑皮大多来自那里，当时剧情有带到，想着应该是给续作留伏笔，没想到真的给做出来了
+
+*****
+
+####  killbillwillil  
+##### 130#       发表于 2025-9-12 22:49
+
+应该就是脱光主力开发罢，感觉战斗动作没有嗯给鸡K得那么有灵性，就是三房那系的跳起大砍
+
+2D头像风格还是比较接近风花雪月的头像的，看这耳朵画法说不定还是仓花继续人设的。但是这建模感觉和其它FE一条线上了，估计是和前几作一样找了ANIMA？3D观感确实俗了很多。而且过场动画这尬演感也很嗯给鸡。
+
+只希望剧本继续让脱光那边写吧，
+
+还有就是别让马场继续主导音乐了，金崎或者森下谁来都能牛几倍
+
+*****
+
+####  wesin  
+##### 131#       发表于 2025-9-12 22:49
+
+仔细辨别了一下宣传片出现的模糊头像应该还是有几个好看的
+
+—— 来自 vivo V2339A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
+*****
+
+####  jimclack  
+##### 132#       发表于 2025-9-12 22:50
+
+虽然确实丑，不过最新的一代火纹要被骂也是系列传统
+
+*****
+
+####  Rainwedell  
+##### 133#       发表于 2025-9-12 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417431&amp;ptid=2261859" target="_blank">雨翼free 发表于 2025-9-12 22:46</a>
+正常，泥潭估计是剩的唯一一个压倒性吹结合的地方了</blockquote>
+不早被清算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zzzplht  
+##### 134#       发表于 2025-9-12 22:52
+
+喜欢engega的应该祈祷万紫千红大卖。这样IS下一作才能奖励自己。
+
+*****
+
+####  whzfjd  
+##### 135#       发表于 2025-9-12 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417424&amp;ptid=2261859" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-9-12 22:46</a>
+
+只有建模和渲染打过engage，不多说了，回头看看我的安娜保养下眼睛。</blockquote>
+你抱着张 engage 的渲染图说建模和渲染打过 engage<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MaGK  
+##### 136#       发表于 2025-9-12 22:53
+
+这人设不知道以为欧美同人
+
+
+*****
+
+####  hiro123  
+##### 137#       发表于 2025-9-12 22:54
+
+让小崎祐介画不好么
+
+*****
+
+####  nagitoY  
+##### 138#       发表于 2025-9-12 22:55
+
+整体ui更像风花雪月。
+
+engage的引擎其实做的挺好，放弃这个方向有点可惜。
+
+*****
+
+####  -マユ‐  
+##### 139#       发表于 2025-9-12 22:55
+
+为啥人设不找左了，感觉回声的立绘挺好
+
+*****
+
+####  ikariam_hk  
+##### 140#       发表于 2025-9-12 22:55
+
+能不能换if的画师啊
+
+*****
+
+####  Farlight  
+##### 141#       发表于 2025-9-12 22:56
+
+男女主人设都不戳我
+这pv里也没看到戳我的人设，除了少爷那把遗产刀挺好看
+等新人设公布看看了
+
+*****
+
+####  nozomitech  
+##### 142#       发表于 2025-9-12 22:56
+
+火焰纹章 万千大妈
+
+*****
+
+####  u2deack  
+##### 143#       发表于 2025-9-12 22:57
+
+如果都是帕迈拉的人，该不会全员说话都结巴吧
+
+*****
+
+####  Mayochu爱好者  
+##### 144#       发表于 2025-9-12 22:57
+
+有没有可能结合和这个都丑，不同方向上的。
+
