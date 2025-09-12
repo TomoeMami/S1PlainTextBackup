@@ -11175,3 +11175,51 @@ New Turkish "Turan" Ammunition 2020 - General Ammunition Discussion - Internatio
 
 结果真的是共和党杀共和党？好戏开场！
 
+
+*****
+
+####  崩崩小圆帽  
+##### 1032#       发表于 2025-9-12 22:57
+
+刚看了发布会，弹壳上的刻字也太巨魔了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 1033#       发表于 2025-9-12 22:59
+
+有点失望，典型驴派才更能激发阿美对立<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 1034#       发表于 2025-9-12 22:59
+
+我记得美国法律甚至不要求你作证亲人有罪，这人老爹还去举报，秦制爱好者了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  守名居  
+##### 1035#       发表于 2025-9-12 23:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">子弹的LGBT是写的“你是同性恋，笑死我了”
+
+怎么感觉是嘲讽查理啊
+
+*****
+
+####  天选之子  
+##### 1036#       发表于 2025-9-12 23:05
+
+<blockquote>烦死了 发表于 2025-9-12 22:59
+我记得美国法律甚至不要求你作证亲人有罪，这人老爹还去举报，秦制爱好者了 ...</blockquote>
+大概是他老爹觉得肯定逃不掉了，送去自首看能不能争取个轻判。
+
+*****
+
+####  龙骑士尹志平  
+##### 1037#       发表于 2025-9-12 23:05
+
+听说子弹上还刻着 bella ciao?
+

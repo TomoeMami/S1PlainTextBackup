@@ -1213,3 +1213,100 @@ engage的引擎其实做的挺好，放弃这个方向有点可惜。
 
 有没有可能结合和这个都丑，不同方向上的。
 
+
+*****
+
+####  嘲哳的声音  
+##### 145#       发表于 2025-9-12 22:58
+
+感觉是ディートリヒ对应艾黛，オセドラ对应库洛德，レダ对应帝弥？
+
+*****
+
+####  horacio  
+##### 146#       发表于 2025-9-12 22:59
+
+这主角的立绘只配以前火纹沙漠关的小偷npc…
+
+*****
+
+####  大阪  
+##### 147#       发表于 2025-9-12 22:59
+
+希望是真的群像，多主角吧。
+
+那脏辫小孩过于辣眼，跟结合的主角打得难分难解。
+
+*****
+
+####  慈父斯大林  
+##### 148#       发表于 2025-9-12 23:00
+
+三房的世界观印象里没有精灵吧。
+开头这位绿头发能露着尖耳朵公开讲话，估计这作龙族是直接抛头露面而不是上一作藏起来的状态了。
+
+*****
+
+####  nagitoY  
+##### 149#       发表于 2025-9-12 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417520&amp;ptid=2261859" target="_blank">nagitoY 发表于 2025-9-12 22:55</a>
+
+整体ui更像风花雪月。
+
+engage的引擎其实做的挺好，放弃这个方向有点可惜。</blockquote>
+没学到风花雪月时髦的人设，这次pv里女角色好多黑皮<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如果走风花雪月重rpg养成元素的话，目前不看好
+
+*****
+
+####  qrgarry  
+##### 150#       发表于 2025-9-12 23:01
+
+能不能给三房出个ns2补丁啊
+
+*****
+
+####  lbj5454  
+##### 151#       发表于 2025-9-12 23:02
+
+你们先别急着骂，游戏应该有时间线，小孩哥说不定有第二形态，银镜女主肯定也有第二形态，就像尼亚一样。
+
+另外到底是不是前传还不一定。说不定第二个PV真主角出场了。
+
+*****
+
+####  伊露伊道格拉斯  
+##### 152#       发表于 2025-9-12 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417191&amp;ptid=2261859" target="_blank">jcwatm1 发表于 2025-9-12 22:28</a>
+
+这一部简称“春”吧
+
+—— 来自 realme RMX5010, Android 15, 鹅球 v3.5.99</blockquote>
+一时没搞懂什么梗，想了一下才反应过来。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过这作可能还真的也有中文梗，三房那个拆词也不知道怎么想出来的(
+
+*****
+
+####  Jabeck  
+##### 153#       发表于 2025-9-12 23:03
+
+至少舞娘和阿鲁卡多少爷都不能算丑吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hhgjf  
+##### 154#       发表于 2025-9-12 23:03
+
+风格确实不喜欢,不知道为啥总觉得很暗喻幻想<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天天acgn  
+##### 155#       发表于 2025-9-12 23:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我以为engage红蓝配色已经很抽象了，没想到还有高手
+
