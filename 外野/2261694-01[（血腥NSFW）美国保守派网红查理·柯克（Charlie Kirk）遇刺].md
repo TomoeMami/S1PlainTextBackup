@@ -12105,3 +12105,30 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 我不太明白为什么网络身份被扒出来之后重点就必须放在此人多么鉴证魔怔，本人的观点不是已经很简单直白“牢柯充满仇恨并传播仇恨”，这是个有必要结合他在网上有多魔怔才能理解的动机么
 
+
+*****
+
+####  纸皮  
+##### 1118#       发表于 2025-9-13 01:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">别又来互相把凶手推给另一边的玩法啊
+推来推去纠结细节网上车轱辘把火气和行动力都消耗掉了，太不利于双方线下进行富有烟火气的交流了
+
+*****
+
+####  就咋的  
+##### 1119#       发表于 2025-9-13 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418483&amp;ptid=2261694" target="_blank">wangandh 发表于 2025-9-13 01:13</a>
+
+安提法（antifa，anti-facist）是以反法西斯为名义的极端组织。懂王早在上一任期就和安提法互相看不顺眼 ...</blockquote>
+“极左”，包括各种左，里面还有无政_府。我在用左右手比划这个概念，缠到一起，然后抽筋了。
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡嘎米  
+##### 1120#       发表于 2025-9-13 01:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员，动机是看不惯柯克
+
