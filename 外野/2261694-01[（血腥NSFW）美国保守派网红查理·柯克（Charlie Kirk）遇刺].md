@@ -8873,3 +8873,84 @@ pro与否且不论，这事里边有几个点是很值得斟酌的：
 之前随口调侃一句万斯的竞争者居然是真的，还是说因为他死了所以他的影响力高估成这样，起码在泥潭之前都没 ...</blockquote>
 政治也要讲论资排辈，30出头的人再努力也不可能爬多高
 
+
+*****
+
+####  天选之子  
+##### 828#       发表于 2025-9-12 10:48
+
+<blockquote>Tissuesea 发表于 2025-9-12 10:41
+之前随口调侃一句万斯的竞争者居然是真的，还是说因为他死了所以他的影响力高估成这样，起码在泥潭之前都没 ...</blockquote>
+北棒政坛的二号人物在泥潭也没几个人讨论，曝光度还不如三胖老婆、三胖女儿和三胖妹妹。
+
+*****
+
+####  RPG-7  
+##### 829#       发表于 2025-9-12 10:49
+
+真是3006的话 直射距离200还不是小意思，弹道就算下坠也就一点点，瞄准镜做好归零随便打阿
+
+
+*****
+
+####  miaoer0623  
+##### 830#       发表于 2025-9-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411148&amp;ptid=2261694" target="_blank">谢云流 发表于 2025-9-12 09:00</a>
+
+往前翻了四五页都没看出是什么支持你这结论的</blockquote>
+那你就再仔细看看往前翻，就前面评论有提到啊
+
+*****
+
+####  章文元  
+##### 831#       发表于 2025-9-12 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411818&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-12 10:36</a>
+
+你这……哪转的？完全没摸过枪的人在那瞎想，又不是黑火药打球型弹，枪口章动哪有那么远。 ...</blockquote>
+你说的是弹头章动吧...我自己在美国就受过枪械训练，说的就是我自己射击经验的感觉，200码配镜绝对不算远，但是这个距离要打中头那么小的区域还带摇晃需要算好高低差还有初次下坠，这个枪手明显是经验有的，但是打偏了。
+
+*****
+
+####  Processed  
+##### 832#       发表于 2025-9-12 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411852&amp;ptid=2261694" target="_blank">Tissuesea 发表于 2025-9-12 10:41</a>
+
+之前随口调侃一句万斯的竞争者居然是真的，还是说因为他死了所以他的影响力高估成这样，起码在泥潭之前都没 ...</blockquote>
+绝大部分人接受外国信息的主要方式还是电视新闻，因为有语言关在这里，除非以此为业，否则很少有键政佬每天泡在外文网络环境里面的，这就造成了对那些网红及其理念会相对陌生一些
+
+*****
+
+####  仟音一心  
+##### 833#       发表于 2025-9-12 10:58
+
+据美国有线电视新闻网（CNN）报道，在美国总统**的重要亲信查理·柯克于当地时间9月10日遭人暗杀死亡后，美国国务院的官员发出警告说，任何敢嘲笑柯克之死的外国人，将面临惩罚，包括会被撤销签证。
+
+<img src="https://img.stage1st.com/forum/202509/12/105740pym6lz7p2dm562iy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 10:57 上传
+
+<img src="https://img.stage1st.com/forum/202509/12/105759kwb88fxlaxiw6o8x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 10:57 上传
+
+*****
+
+####  poor  
+##### 834#       发表于 2025-9-12 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68411703&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-12 10:25</a>
+
+共和党这次损失看起来真的很严重，都急成这样了</blockquote>
+怎么说呢，比我想象的讲道理，起码没说把嘲笑的美国人扔出去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
