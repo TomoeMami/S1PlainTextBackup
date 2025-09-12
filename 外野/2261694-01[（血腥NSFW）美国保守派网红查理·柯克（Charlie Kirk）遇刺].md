@@ -11582,3 +11582,47 @@ OwO
 
 好事啊，都是好事啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  outerish  
+##### 1071#       发表于 2025-9-12 23:28
+
+ 本帖最后由 outerish 于 2025-9-12 23:29 编辑 
+
+目前看来不是白右眼中的变同黑绿完美凶手
+
+不过还没公布动机，性取向，自认性别，可能还有反转呢
+
+
+*****
+
+####  jojog  
+##### 1072#       发表于 2025-9-12 23:31
+
+感觉是4chan巨魔啊
+
+*****
+
+####  就咋的  
+##### 1073#       发表于 2025-9-12 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417650&amp;ptid=2261694" target="_blank">kaluoan 发表于 2025-9-12 23:08</a>
+
+万斯抬棺，国会瞻仰，太伟大了！
+
+红脖子也有自己的马丁路德金了！
+
+好死，哈哈哈哈哈</blockquote>
+OMG! They killed Cartman! GOOD JOB!
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  糖尔  
+##### 1074#       发表于 2025-9-12 23:35
+
+亚伦·布什内尔、1999年生人、行伍世家，路易吉·尼古拉斯·曼吉奥内、1998年生人、硅谷富二代，泰勒·罗宾逊、2003年生人、共和党建制派中产；全是良家子，全是Z世代
+
+而且感觉基本上其实就是本身追求love&amp;peace的中间建制派，只能说是魔怔的环境把他们变成这样了
+
