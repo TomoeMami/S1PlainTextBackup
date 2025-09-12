@@ -9672,3 +9672,51 @@ https://tieba.baidu.com/p/10028455018
 
 —— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  i0ncube_R  
+##### 898#       发表于 2025-9-12 14:18
+
+还没抓到？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nianiania  
+##### 899#       发表于 2025-9-12 14:24
+
+红脖子永远都只会嚷嚷，去闹个国会都不敢带枪，还是年轻白左武德充沛，英雄辈出，我看美利坚还得多来几个，方显第一大国风采
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  acguy  
+##### 900#       发表于 2025-9-12 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413167&amp;ptid=2261694" target="_blank">幽远ghofar 发表于 2025-9-12 14:12</a>
+
+真是太扯淡了
+
+1、这人明显没穿防弹衣</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/12/141929n5gc797rgar0cgx2.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-dbf0a760ed6c4738cb9a97b39c86e2d0_r.jpg</strong> (14.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-12 14:19 上传
+
+类似这种设计，防弹板周边加了一圈就是为了防止跳弹再伤害四肢或者头颈部，如果这位网红选择了一款相对贴身的薄插板，没有防跳弹设计，一旦被击中确实有可能跳弹然后再次命中。苏联战斗工兵使用战斗胸甲也有类似的衣领设计防止跳弹伤害脖颈和头部
+
+*****
+
+####  aeolus039  
+##### 901#       发表于 2025-9-12 14:24
+
+所以为啥就无视俩月前MAGA突突dem议员的事啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
