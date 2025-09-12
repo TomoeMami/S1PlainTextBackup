@@ -12424,3 +12424,13 @@ Nicholas Fuentes还极端反LGBT，极端厌女，也就是真正的极端男权
 
 没想到是一个神神极右翼，是极端反LGBT的，变成了极右翼窝里斗了，实在太抽象了。
 
+
+*****
+
+####  鱼丈人  
+##### 1142#       发表于 2025-9-13 05:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418594&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-13 01:37</a>
+丑国划分左右高度依赖3g1a（Gay、Gun、God、Abortion）立场，除此以外的一切正常的左右翼区分标准都不适 ...</blockquote>
+你仔细看这四项，实际上只有god和gun两项而已。左手圣经，右手利剑，还是那老一套殖民地传教士
+
