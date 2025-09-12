@@ -2013,3 +2013,27 @@ Fortune's Weave 命运之网，说不定对应火纹IF的外文版Fate呢。
 
 蓝毛是尤里斯的纹章，A少是奔驰姐的纹章，还有一个面具女带着康斯坦兹的纹章，剩余两个POV纹章未明
 
+
+*****
+
+####  抹茶瓜  
+##### 227#       发表于 2025-9-13 01:08
+
+is自己做的话 那就继续关注下<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 228#       发表于 2025-9-13 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418411&amp;ptid=2261859" target="_blank">zxz1994 发表于 2025-9-13 00:56</a>
+
+怎么这么多喷人设的
+
+我的第一印象是比风花雪月和结合要强，整体来看还可以了
+
+风花雪月大部分女角色都挺一般 ...</blockquote>
+歌姬、奔驰、粉毛、小白毛都很不错吧，再加上重量级皇女和贝蕾丝。
+
+结合主要是女主红蓝配色太炸裂了，好看的女角色也挺多的。
+
