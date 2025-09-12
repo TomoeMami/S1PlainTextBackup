@@ -10679,3 +10679,26 @@ Sleeply Donald<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68413955&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-12 16:17</a></blockquote>
 这种就是买件T恤然后热转印吧，有机器就能搞，肯定不需要义乌进货。
 
+
+*****
+
+####  yakee  
+##### 983#       发表于 2025-9-12 20:36
+
+美帝民间天天折腾半自动AR，搞精确射击竞赛都大把
+
+—— 来自 HUAWEI GLA-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 984#       发表于 2025-9-12 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415358&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-12 20:09</a>
+这玩意儿十年前就辩烂了，再村村得过澳大利亚吗
+
+别人可以限制到shotgun为啥你美不行 ...</blockquote>
+土澳治安最大威胁不是非法移民是童党吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
