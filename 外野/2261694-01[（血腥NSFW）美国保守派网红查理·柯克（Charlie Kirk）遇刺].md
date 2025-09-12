@@ -12246,3 +12246,21 @@ https://www.zhihu.com/question/388189578/answer/1176569339?share_code=1fKJQaOBjh
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  就咋的  
+##### 1131#       发表于 2025-9-13 02:37
+
+ 本帖最后由 就咋的 于 2025-9-13 02:38 编辑 
+
+"MAGA Media" 地点特拉维夫
+
+<img src="https://img.stage1st.com/forum/202509/13/023634zdom68cmtd0cowwb.png" referrerpolicy="no-referrer">
+
+<strong>trump_x_kirk.png</strong> (425.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 02:36 上传
+
