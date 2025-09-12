@@ -648,3 +648,19 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 今天王城见过三次灵珠，队友都是疯狂跑路同时给自己标点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 1687#       发表于 2025-9-13 04:19
+
+<img src="https://img.stage1st.com/forum/202509/13/041636el5n3w5mfksksp6w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (251.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 04:16 上传
+
+一路单排到深度3，感觉到深度2为止难度其实没高多少，就连神鹰哥都可以拿出来玩玩
+
