@@ -2218,3 +2218,29 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 能照搬才是汉字圈的优势，为什么还要去二手翻译英文
 
+
+*****
+
+####  嘲哳的声音  
+##### 248#       发表于 2025-9-13 06:09
+
+<img src="https://img.stage1st.com/forum/202509/13/060825zng9ccfqce5cy3gx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 06:08 上传
+
+计策看起来不是人人都能用？
+
+<img src="https://img.stage1st.com/forum/202509/13/060903q33hue3vn4c4ebt3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 06:09 上传
+
+除了苏蒂斯PV里还有熟人？
+
