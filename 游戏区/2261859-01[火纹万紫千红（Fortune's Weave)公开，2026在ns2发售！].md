@@ -3339,3 +3339,27 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 
 X上纹学家的一点推测
 
+
+*****
+
+####  撒撒  
+##### 358#       发表于 2025-9-13 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420439&amp;ptid=2261859" target="_blank">撒撒 发表于 2025-9-13 13:36</a>
+
+火焰纹章26年新作盯帧解析！火焰纹章-万紫千红
+
+https://www.bilibili.com/video/BV1mrpGzpEEy/</blockquote>
+【4K】五千字逐帧分析解说《火焰纹章万紫千红》
+[https://www.bilibili.com/video/BV1QwpEzVEWS/](https://www.bilibili.com/video/BV1QwpEzVEWS/)
+
+视频下面的评论：
+
+帝国历 721年 第一次密雅哈战役鞑古扎军跨海进攻。即使帝国军击退了入侵者，密雅哈地区仍受到不少损伤。
+
+帝国历 728年 进攻布里基特帝国军向曾协助鞑古扎军的布里基特群岛进攻。帝国获胜，并让布里基特人民服从帝国。
+
+帝国历 731年 进攻鞑古扎帝国军以布里基特群岛作为战略立足点，向鞑古扎进行大规模入侵，却武运不佳，不幸败退。
+
+从他那个斗技场还是比赛的名字（大姑习翁）来看，似乎就是芙朵拉海对面的大姑扎国（类似火纹和纹章之谜），风花雪月世界观堂堂拓展，但是和芙朵拉应该是没什么关系了。
+
