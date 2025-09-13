@@ -3315,3 +3315,27 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 
 按草木原的说法大苏提斯才是完全体
 
+
+*****
+
+####  蓮華  
+##### 357#       发表于 2025-9-13 19:34
+
+<img src="https://img.stage1st.com/forum/202509/13/193411t06a656ojojw95c4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250913193323.png</strong> (146.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/193411nzgzwnby90p2e2t3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250913193339.png</strong> (212.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 19:34 上传
+
+X上纹学家的一点推测
+

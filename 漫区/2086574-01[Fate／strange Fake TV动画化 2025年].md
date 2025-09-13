@@ -4294,3 +4294,11 @@ CG監督：宮風 慎一（グラフィニカ）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">fgo明年新年池会是谁呢
 
+
+*****
+
+####  岸波白野  
+##### 418#       发表于 2025-9-13 19:33
+
+这摄影真的磨了这么久还是一副被幽浮桌吊锤的样儿
+

@@ -14512,3 +14512,36 @@ BOOOOOOOOOOM! !
 
 <img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a2042312  
+##### 1308#       发表于 2025-9-13 19:26
+
+都是兄弟，这扯不扯。
+
+*****
+
+####  chdhdhd  
+##### 1309#       发表于 2025-9-13 19:29
+
+ 本帖最后由 chdhdhd 于 2025-9-13 19:30 编辑 
+<blockquote>Yugao 发表于 2025-9-11 22:33
+老maga演讲的时候被颗秒算不算一种弹丸论破</blockquote>
+
+按这楼后续的情况发展回看，“弹丸论破”实在总结的太精妙
+
+不仅效果是论破，还真的射的是言弹
+
+
+*****
+
+####  aeolus039  
+##### 1310#       发表于 2025-9-13 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421955&amp;ptid=2261694" target="_blank">chdhdhd 发表于 2025-9-13 19:29</a>
+按这楼后续的情况发展回看，“弹丸论破”实在总结的太精妙
+
+不仅效果是论破，还真的射的是言弹 ...</blockquote>
+枪弹辩驳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
