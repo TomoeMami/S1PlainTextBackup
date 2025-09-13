@@ -2622,3 +2622,45 @@ fortune's weave --&gt; four tunes weave……四调？
 
 看了看pv有点兴趣了，开头这个城市致敬罗马，罗马东线势力范围也确实是在中东，这么看还挺亲切的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0nelooker  
+##### 290#       发表于 2025-9-13 10:33
+
+内哥大乱斗说是
+
+苏提斯已经不是阿姨了, 这望着得有50了
+
+*****
+
+####  西多士  
+##### 291#       发表于 2025-9-13 10:34
+
+<blockquote>黑暗之眼 发表于 2025-9-13 08:42
+那风花雪月是不是也没体现出三方，怎么港任就直接用了呢？根本说不通
+
+—— 来自 HUAWEI PLA-AL10, Andro ...</blockquote>
+风花雪月其实是剧透四方，但第四线是隐藏分支，没玩之前不会知道，欧美那边也是按三房叫的
+
+*****
+
+####  Nez  
+##### 292#       发表于 2025-9-13 10:35
+
+脏辫好像有在其他领主的战场作为友军登场的镜头
+
+还是觉得不会分线了，应该更偏向晓女那样多视角交叉展开同一个故事
+
+*****
+
+####  血狂毘沙门  
+##### 293#       发表于 2025-9-13 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419402&amp;ptid=2261859" target="_blank">katern 发表于 2025-9-13 10:06</a>
+
+这代也是四条线吧，四个角色都是级长级别</blockquote>
+应该不是级长那种对等的关系
+
+出身阶级相差挺大的
+

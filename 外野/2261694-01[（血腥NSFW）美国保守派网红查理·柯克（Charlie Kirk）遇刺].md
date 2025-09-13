@@ -13036,3 +13036,76 @@ FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄
 白人新 ...</blockquote>
 这名字，局长是印度的？
 
+
+*****
+
+####  胜改藏  
+##### 1194#       发表于 2025-9-13 10:38
+
+<blockquote>zeroboss4 发表于 2025-9-13 10:34
+未发射的弹壳：
+
+"Hey fascist, catch! ⬆️➡️⬇️⬇️⬇️ "法西斯，食炸弹啦！" 后面五个箭头是绝地潜 ...</blockquote>
+发现不是双相有色变性人后，就是电子游戏背锅了
+
+*****
+
+####  Tissuesea  
+##### 1195#       发表于 2025-9-13 10:38
+
+假如他手机电脑被查到真的是一个受红迪或绝地潜兵影响的人，红迪或游戏会被搞吗？
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ccared  
+##### 1196#       发表于 2025-9-13 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419553&amp;ptid=2261694" target="_blank">CCCTHUN 发表于 2025-9-13 10:35</a>
+他爹是警察，收到通缉令的第一眼就认出是自己儿子了。</blockquote>
+后续澄清了，那个警察和他爹是同名同姓，他爹是个小建材公司老板
+
+*****
+
+####  火星後繼者  
+##### 1197#       发表于 2025-9-13 10:39
+
+<img src="https://img.stage1st.com/forum/202509/13/103942dakqpbkhffhkzxuz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1757727492468.jpeg</strong> (68.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:39 上传
+
+致敬传奇绝地潜兵🫡
+
+
+*****
+
+####  last_regret  
+##### 1198#       发表于 2025-9-13 10:42
+
+<blockquote>飞天猪2005 发表于 2025-9-13 10:37
+这名字，局长是印度的？</blockquote>
+局长是印度的
+
+而且在基督教氛围那么浓的情况下提瓦尔哈拉也有点微妙
+
+*****
+
+####  i0ncube_R  
+##### 1199#       发表于 2025-9-13 10:42
+
+看了一下，原来是小保嫌劳保不够保，就把劳保狙死了，谁再敢说只有左派肉体毁灭，右派没有行动力
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  牛顿学物理  
+##### 1200#       发表于 2025-9-13 10:44
+
+泥潭左右大战几十页，想好了十几种美国内战思路，最后发现是一名绝地潜兵<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
