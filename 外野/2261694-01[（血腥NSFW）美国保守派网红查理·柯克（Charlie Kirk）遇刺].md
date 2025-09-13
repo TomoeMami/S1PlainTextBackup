@@ -14719,3 +14719,12 @@ Charlie Kirk（1994-2025）
 降临派说是，有点离谱
 <img src="https://p.sda1.dev/27/a89f6746062cfd663a1996f08ca8bb24/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就咋的  
+##### 1327#       发表于 2025-9-13 21:58
+
+不好说，逻辑不对，得找到枪手和 GROYPER 的直接证据，不能因为他用悲伤蛙 (Pepe) 梗图就说他是什么派别的支持者，要把他使用的所有梗图都拿出来一一对照，那就可以新建一个“党派”了
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
