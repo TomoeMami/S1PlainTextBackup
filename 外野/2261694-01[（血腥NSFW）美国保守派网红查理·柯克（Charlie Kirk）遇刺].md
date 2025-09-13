@@ -12812,3 +12812,28 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 
 红迪现在基本上是左倾论坛了吧
 
+
+*****
+
+####  sdeplee  
+##### 1173#       发表于 2025-9-13 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419164&amp;ptid=2261694" target="_blank">lactone 发表于 2025-9-13 09:01</a>
+
+最后查出来动机万一是杀着玩
+
+—— 来自 HONOR PPG-AN00, Android 15, 鹅球 v3.5.99</blockquote>
+“孩子不懂事，杀着玩的”
+
+*****
+
+####  sdeplee  
+##### 1174#       发表于 2025-9-13 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419281&amp;ptid=2261694" target="_blank">belmen 发表于 2025-9-13 09:34</a>
+
+https://x.com/ShadowofEzra/status/1966614804925210739
+
+枪手的高中同学（自称不熟）：刷太多红迪导致的</blockquote>
+红迪几个大板块基本上全是网军 肯定偏左
+
