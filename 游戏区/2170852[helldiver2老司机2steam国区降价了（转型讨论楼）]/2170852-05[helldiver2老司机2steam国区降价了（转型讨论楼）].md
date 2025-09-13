@@ -1181,3 +1181,14 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 叽里咕噜说啥呢，↑→↓↓↓。
 
+
+*****
+
+####  xinfengj  
+##### 7101#       发表于 2025-9-14 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422211&amp;ptid=2170852" target="_blank">madcow 发表于 2025-9-13 20:29</a>
+
+现在要上哪打霸王虫？？</blockquote>
+欧绍恩一直有啊，海尔迈尔今天外溢了一波被打回去了
+
