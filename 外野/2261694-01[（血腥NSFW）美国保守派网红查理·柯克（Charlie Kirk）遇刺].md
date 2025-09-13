@@ -13570,3 +13570,67 @@ CNM你要不要看看你脚下的土地叫什么怎么来的再说话。
 果然和我猜的一样良家子弟干的，白左对这人看法其实挺一致的，敌人的SB，对于这种，白左内部有很多方法消解 ...</blockquote>
 对中国人，极端白左右有区别吗？别试图理解他们了。
 
+
+*****
+
+####  火箭布雷器  
+##### 1244#       发表于 2025-9-13 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420207&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 12:43</a>
+
+三个US还是太缺乏想象力了
+
+按照知乎答案的说法，大帐篷被撕毁以后就是美共、Dem Establishment、MAGA Es ...</blockquote>
+裂成七块吧。
+
+硅谷精英AI统治的加利福尼亚
+
+毒贩横行墨西哥军阀的新墨西哥
+
+摩门圣地一夫多妻的圣犹他
+
+古巴和委内瑞拉人的应许之地佛罗里达
+
+AOC和马姆达尼共襄盛举的纽约州
+
+龙兴之地的铁锈带底特律
+
+孤悬海外的冰雪王国阿拉斯加
+
+*****
+
+####  胜改藏  
+##### 1245#       发表于 2025-9-13 13:19
+
+<blockquote>火箭布雷器 发表于 2025-9-13 13:18
+裂成七块吧。
+
+硅谷精英AI统治的加利福尼亚
+
+毒贩横行墨西哥军阀的新墨西哥
+</blockquote>
+
+辐射世界观
+
+*****
+
+####  Cthululives  
+##### 1246#       发表于 2025-9-13 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418839&amp;ptid=2261694" target="_blank">wtwtwt21 发表于 2025-9-13 05:13</a>
+https://weibo.com/7765195356/Q4j8HmtWg
+
+抽象老美
+
+这次枪杀柯克的嫌疑人罗宾逊疑似是Nicholas Fuentes的粉 ...</blockquote>
+极极右翼直接成为极左简直是集哲学社会学和当代互联网现状大成于一体的范例<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火箭布雷器  
+##### 1247#       发表于 2025-9-13 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420358&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-13 13:19</a>
+辐射世界观</blockquote>
+那应该再加一个自由放荡的独立都市：拉斯维加斯
+

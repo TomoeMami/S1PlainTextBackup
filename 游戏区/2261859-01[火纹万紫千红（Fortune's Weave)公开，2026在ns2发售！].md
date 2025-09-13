@@ -2960,3 +2960,45 @@ c标只有
 
 要求很低，只要不是中后期大家一起转飞龙天马就行。
 
+
+*****
+
+####  nma  
+##### 324#       发表于 2025-9-13 13:19
+
+脏辫什么的往后稍稍，无非就是占个农夫之子起于微末生态位，这眼镜娘是什么鬼啊，穿越者吗？不会来表演文学少女穿越跟王子将军恋爱的东西吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 而且人设厨跳出来拿现在这几个踩engage，是不是有点过急了。。
+
+*****
+
+####  whzfjd  
+##### 325#       发表于 2025-9-13 13:23
+
+<blockquote>巴尔干炮 发表于 2025-9-13 10:24
+目前已知人物头像。</blockquote>
+要是印度初音是白皮就无敌了
+
+*****
+
+####  洛亚替身  
+##### 326#       发表于 2025-9-13 13:23
+
+其实前半段罗马风仅限于竞技场这种刻板印象，但最后军队行进凯旋式直接把罗马要素拉满了
+
+*****
+
+####  星花  
+##### 327#       发表于 2025-9-13 13:23
+
+结合人设是好的，但立不起来啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 328#       发表于 2025-9-13 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419854&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-13 11:27</a>
+话说这舞台还是芙朵拉吗？如果是我只能说兄弟赢麻了，无论是敞开国门还是异族入侵（时间线后推的前提下）但 ...</blockquote>
+名字叫鞑古席翁大剑斗祭，感觉发生在上代背景国家鞑古扎的可能性更大些？
+
+一个和故事主线无关的背景国家无双里还在增补设定，如果真是发生在这个国家那应该是早有预谋了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
