@@ -13208,3 +13208,54 @@ FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄
 这下禁游令了
 “你们这什么fxs游戏啊，你们害人不浅啊，把我儿子害成这样了😭”
 
+
+*****
+
+####  鱼丈人  
+##### 1210#       发表于 2025-9-13 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419181&amp;ptid=2261694" target="_blank">poor 发表于 2025-9-13 09:06</a>
+天天跟我说大的要来，结果现在还没开打，真的打起来之前看都不看</blockquote>
+要是没抓到他或者抓到他之前有组织地在美国网络上带节奏可能真能整点大活，现在这么快就抓住了就来不及了。
+也能侧面说明毛子等等各方面米线还是很高的，都没有干涉美国内政。
+
+*****
+
+####  日日日日日野  
+##### 1211#       发表于 2025-9-13 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419281&amp;ptid=2261694" target="_blank">belmen 发表于 2025-9-13 09:34</a>
+
+https://x.com/ShadowofEzra/status/1966614804925210739
+
+枪手的高中同学（自称不熟）：刷太多红迪导致的</blockquote>
+这人也说了，毕业后没联系，现在他们大学都毕业了。也就是说，这位对凶手的印象已经穿越了差不多整个covid周期，这期间观点或光谱有点什么变化，就太正常了。
+
+*****
+
+####  鱼丈人  
+##### 1212#       发表于 2025-9-13 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419242&amp;ptid=2261694" target="_blank">一心六文 发表于 2025-9-13 09:26</a>
+为了调和美国矛盾，干脆查查太玩不玩闹钟的手游吧
+
+—— 来自 vivo V2454A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+玩老钟游戏算左还是算右，可是老钟游戏不够dei诶
+
+
+*****
+
+####  lactone  
+##### 1213#       发表于 2025-9-13 11:25
+
+箭头社有没有种做个杀手同款皮肤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  遗尿  
+##### 1214#       发表于 2025-9-13 11:27
+
+有没有展示弹壳照片啊，我很好奇OWO那个到底是啥，有人说是凸OWO
+

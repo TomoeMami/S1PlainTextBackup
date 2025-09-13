@@ -2819,3 +2819,37 @@ c标只有
 
 这代有了个耗血使用的叫blaze arts的东西，阿鲁卡多的瞬移和舞女的召怪都是这一类，感觉是个绑定在角色上的东西，阿鲁卡多瞬移的时候职业是剑士，大概能减少一点三房的角色公式化培养。
 
+
+*****
+
+####  洛亚替身  
+##### 309#       发表于 2025-9-13 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418304&amp;ptid=2261859" target="_blank">月夜的风 发表于 2025-9-13 00:30</a>
+
+这只吗，当时看小头像第一眼还蛮看好的。
+
+不过还是被GUN给带歪了没往她身上想。</blockquote>
+这位估计接的莉丝缇亚位，颜值高故事不错的角色，不过预告片这几位看起来像是接级长位路线主角的角色感觉人气都不会太高的样子
+
+*****
+
+####  qiyu1234  
+##### 310#       发表于 2025-9-13 11:19
+
+几个主角里只有塞奥多拉有军事指挥官的背景，军团攻击甚至是角色特殊能力，其他几位基本都是素人
+
+感觉故事不会特别复杂，可能还是以那种鱿鱼游戏作为核心流程伴随一些阴谋之类的
+
+然后“神威法王”是路易位
+
+*****
+
+####  洛亚替身  
+##### 311#       发表于 2025-9-13 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419624&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2025-9-13 10:47</a>
+
+有作为友军出场不等于不分线，可能会比三房的分线队员组成更加灵活</blockquote>
+肯定是角度问题，预告片男性颜值担当都这德行了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
