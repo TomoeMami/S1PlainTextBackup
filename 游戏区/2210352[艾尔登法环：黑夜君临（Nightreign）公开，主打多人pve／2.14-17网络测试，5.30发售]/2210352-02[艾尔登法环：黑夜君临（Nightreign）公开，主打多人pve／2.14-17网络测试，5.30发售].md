@@ -766,3 +766,11 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jabeck  
+##### 1699#       发表于 2025-9-13 16:03
+
+异常分两种，一种收到攻击累计一种血不满累计，反正我现在玩起来跟魂斗罗似的，不发想想这两个条能累计满<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
