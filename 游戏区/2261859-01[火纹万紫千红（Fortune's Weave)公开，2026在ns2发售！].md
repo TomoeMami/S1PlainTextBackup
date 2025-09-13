@@ -3149,3 +3149,31 @@ https://zhuanlan.zhihu.com/p/56272119</blockquote>
 
 三房的设定很诱人，但是大家还是要对剧情降低期待
 
+
+*****
+
+####  星花  
+##### 342#       发表于 2025-9-13 14:45
+
+ 本帖最后由 星花 于 2025-9-13 14:46 编辑 
+
+本来就没期待啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真田源次郎信繁  
+##### 343#       发表于 2025-9-13 14:49
+
+engage如果游戏里和cg一样，吐槽的大概就没那么多了
+
+到底是技术原因还是别的什么完全搞不清楚<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月亮与五块钱  
+##### 344#       发表于 2025-9-13 14:49
+
+希望能有三房的战棋水平和结合的剧情高度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
