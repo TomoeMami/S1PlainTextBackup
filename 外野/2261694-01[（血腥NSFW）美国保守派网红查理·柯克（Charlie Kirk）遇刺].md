@@ -14905,3 +14905,36 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 感觉新蝙蝠侠的含金量还在提升，未来一段时间应该能不少看见4chan老哥整活
 
+
+*****
+
+####  RPG-7  
+##### 1342#       发表于 2025-9-13 23:09
+
+ 本帖最后由 RPG-7 于 2025-9-13 23:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422543&amp;ptid=2261694" target="_blank">ggggggssss 发表于 2025-9-13 21:41</a>
+
+哈耶美是这样的，吹起来就说枪械文化，仔细一看上上世纪的四大老牌厂，温彻斯特，柯尔特，春田，雷明顿到现 ...</blockquote>
+西巴，AR15可是阿米自研的！<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">坚持气吹主体思想，打倒活塞异端！
+
+
+*****
+
+####  lactone  
+##### 1343#       发表于 2025-9-13 23:14
+
+哎哟⏰太坏了
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  loli炮  
+##### 1344#       发表于 2025-9-13 23:15
+
+ 本帖最后由 loli炮 于 2025-9-13 23:17 编辑 
+
+感觉这位天赋怪 技能有点神似美术生
+
+zz嗅觉 煽动 诡辩 演讲  组织力
+
