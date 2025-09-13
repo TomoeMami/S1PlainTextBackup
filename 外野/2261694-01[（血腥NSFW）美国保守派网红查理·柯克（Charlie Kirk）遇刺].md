@@ -14285,3 +14285,27 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 
 话说那个绝地潜兵2好玩吗？适合不怎么玩射击游戏的人入坑吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡文分则能成  
+##### 1287#       发表于 2025-9-13 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421246&amp;ptid=2261694" target="_blank">大友切 发表于 2025-9-13 16:52</a>
+
+话说那个绝地潜兵2好玩吗？适合不怎么玩射击游戏的人入坑吗？</blockquote>
+不推荐，除非有好兄弟一块
+
+
+*****
+
+####  ranocchia  
+##### 1288#       发表于 2025-9-13 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420856&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-13 15:12</a>
+
+反正人被抓了，等待审讯吧，但是taco会不会公布不利于maga的部分很难说，
+
+期待各路人马挖掘这人过往的网 ...</blockquote>
+他爹不是警察，别传谣了。
+

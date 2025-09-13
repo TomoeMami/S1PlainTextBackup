@@ -1138,3 +1138,11 @@ reddit潜兵版紧急戒严艹
 
 bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 7096#       发表于 2025-9-13 17:01
+
+索尼希望的GAAS12神将, HD2算是彻底爆火了. 虽然是在原来就很火, 因为意想不到的因素彻底爆了. 算不算完成当时指定12神将时候的期望呢
+
