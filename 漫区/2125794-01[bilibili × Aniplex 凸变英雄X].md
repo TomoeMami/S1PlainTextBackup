@@ -746,3 +746,31 @@ X要打肯定有方法，X没弱点上班族还是有的
 下一季还能存活多少人</blockquote>
 没人了，最新集在B站才150万播放量，第二季更是无人问津
 
+
+*****
+
+####  evangelina  
+##### 504#       发表于 2025-9-13 13:51
+
+ 本帖最后由 evangelina 于 2025-9-13 13:52 编辑 
+
+<img src="https://img.stage1st.com/forum/202509/13/135249w1oq0zkznkx1qqv5.png" referrerpolicy="no-referrer">
+
+<strong>a9u5tmc.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 13:52 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/135248apfwp12pww1wwpz8.png" referrerpolicy="no-referrer">
+
+<strong>a9u5tc.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 13:52 上传
+
+[https://www.bilibili.com/bangumi/play/ep2147516](https://www.bilibili.com/bangumi/play/ep2147516)
+
+还有新OP？？有点帅<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
