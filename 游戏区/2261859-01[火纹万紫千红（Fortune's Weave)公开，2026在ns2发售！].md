@@ -2333,3 +2333,15 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 结合这么垃圾的人设还来碰瓷新作？
 
+
+*****
+
+####  FACS  
+##### 259#       发表于 2025-9-13 08:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419010&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2025-9-13 07:56</a>
+四方阵营聚到一个竞技场，这雷达已经响爆了
+
+格局突然就low了起来，又是一种你以为他要搞大的，结果原来就这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别急，再让你打四遍共通线就知道错了
+
