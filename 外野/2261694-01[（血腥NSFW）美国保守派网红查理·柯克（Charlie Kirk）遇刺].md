@@ -14606,3 +14606,42 @@ BOOOOOOOOOOM! !
 
 现在美国呢？美国有那么多真反贼吗，不如说你如何定义反贼？还不是激进派狗咬狗
 
+
+*****
+
+####  windtrack_qh  
+##### 1317#       发表于 2025-9-13 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422298&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-13 20:48</a>
+
+我还见过把查理柯克说成是伟人的呢，前面有楼友说要警惕境外势力我现在信了，不然解释不了这种现象 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">润人里都有给他封成白人马丁路德金的了
+
+
+*****
+
+####  就咋的  
+##### 1318#       发表于 2025-9-13 21:02
+
+ 本帖最后由 就咋的 于 2025-9-13 21:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422298&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-13 20:48</a>
+
+我还见过把查理柯克说成是伟人的呢，前面有楼友说要警惕境外势力我现在信了，不然解释不了这种现象 ...</blockquote>
+C. Kirk 遗孀发表演说，称“他宣扬爱国主义、信仰和‘上帝慈爱’” (patriotism, faith, god’s merciful love) 就这三个词，没了。
+
+YKW 称死者是个“最优秀的人” (finest person)
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卖哥  
+##### 1319#       发表于 2025-9-13 21:06
+
+如果Charlie Kirk定位是户圣
+
+那么Nick Fuentes定位大概是章北海official
+
+为啥一个右旗一个左旗就是我前面提到的，政治光谱在不同国家有不同的天然正确性。
+
+所以，Nick Fuentes跟Groyper未必是真右，他们更大的可能只是选择了国家天然正确的立场作为攻击发起角度，从而在嘴炮跟整活时获得更高的防御力。
+

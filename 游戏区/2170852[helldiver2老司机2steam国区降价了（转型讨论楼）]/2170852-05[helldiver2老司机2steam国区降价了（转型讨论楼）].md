@@ -1162,3 +1162,14 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无主之地4搞完我就来买这个
 
+
+*****
+
+####  outerish  
+##### 7099#       发表于 2025-9-13 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421286&amp;ptid=2170852" target="_blank">泰坦失足 发表于 2025-9-13 17:01</a>
+
+索尼希望的GAAS12神将, HD2算是彻底爆火了. 虽然原来就很火, 因为意想不到的因素彻底爆了. 算不算完成当时 ...</blockquote>
+爆梗而已又不能变现，这两天CCU也没怎么升
+
