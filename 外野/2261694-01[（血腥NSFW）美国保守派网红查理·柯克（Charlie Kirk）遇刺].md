@@ -13427,3 +13427,21 @@ https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 1231#       发表于 2025-9-13 12:20
+
+看了那个发布会，发言人念子弹上写的梗，笑死我了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  猪突猛进R  
+##### 1232#       发表于 2025-9-13 12:22
+
+“Hey fascist! Catch!↑→↓↓↓”
+
