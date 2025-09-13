@@ -14156,3 +14156,39 @@ Derpy Donald
 https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
 艹，这不就是典中典/pol小将<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡嘎米  
+##### 1276#       发表于 2025-9-13 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420805&amp;ptid=2261694" target="_blank">llysander 发表于 2025-9-13 15:01</a>
+
+　这俩屁股根本没法搭，里头得有一个是内奸，
+
+人不嗑点什么药没法这么混沌 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正人被抓了，等待审讯吧，但是taco会不会公布不利于maga的部分很难说，
+
+期待各路人马挖掘这人过往的网络言论，
+
+还有他爹作为一个前警察的态度如何，
+
+现在做一个预测，
+
+如果这人近期思想上有较大变化倾向于安提法极左，
+
+他爹作为一个传统右应该站出来谴责网络害了他儿，
+
+如果这人是极右互害，那他爹的态度就很难说
+
+*****
+
+####  acejoe  
+##### 1277#       发表于 2025-9-13 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417758&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-12 23:20</a>
+现在就看TACO会不会把锅甩给游戏了，毕竟3月份的时候就甩过
+
+前不久还有人觉得TACO是玩家这一边的 ...</blockquote>
+甩锅游戏就是轻轻放下了，不打算政治攻击
+
