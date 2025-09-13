@@ -2345,3 +2345,14 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 格局突然就low了起来，又是一种你以为他要搞大的，结果原来就这 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别急，再让你打四遍共通线就知道错了
 
+
+*****
+
+####  bonnwang  
+##### 260#       发表于 2025-9-13 08:20
+
+风花雪月世界观挺有意思的
+期待
+
+不过女主是不是真希波，男主是不是王国之心男子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

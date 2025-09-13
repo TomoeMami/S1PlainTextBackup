@@ -12688,3 +12688,26 @@ https://weibo.com/7765195356/Q4j8HmtWg
 
 —— 来自 HUAWEI VOG-AL00, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  就咋的  
+##### 1163#       发表于 2025-9-13 08:23
+
+Tyler Robinson 为“无党派人士”，也是“不活跃”选民。还有一条辟谣，大致内容：同名的 TR 在2020年为 YKW 竞选捐款，与本事件嫌疑人无关
+
+（中文部分机翻） <blockquote>Suspect comes from Republican family, but voting record show him as unaffiliated
+
+嫌疑人来自共和党家庭，但投票记录显示他无党派
+
+Both of Tyler Robinson’s parents are registered Republicans, voter records show.
+
+选民记录显示，泰勒·罗宾逊的父母都是登记的共和党人。
+
+But the suspected shooter himself is listed as “unaffiliated”. The 22-year-old is also labelled as “inactive” as a voter, indicating that he has not voted in recent elections.
+
+但枪击嫌疑人本人却被列为“无党派人士”。这名22岁的男子也被标记为“不活跃”选民，表明他没有在最近的选举中投票。</blockquote>
+<blockquote>Fact check: Shooting suspect did not donate to Trump’s campaign
+
+事实核查：枪击案嫌疑人没有向 YKW 的竞选活动捐款</blockquote>
+
