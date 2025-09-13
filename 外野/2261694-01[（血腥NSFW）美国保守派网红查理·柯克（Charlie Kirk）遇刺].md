@@ -13335,3 +13335,73 @@ https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
 
 什么叫年度最佳运营啊
 
+
+*****
+
+####  profklugstein  
+##### 1222#       发表于 2025-9-13 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419894&amp;ptid=2261694" target="_blank">busuoni 发表于 2025-9-13 11:37</a>
+只要我在海量另类右翼认同符号里藏一句绝地潜兵烂梗，再帆船几句安提法，就有中国老哥替我汴京我是“不关心 ...</blockquote>
+这右翼含量尚不及“瓦尔哈拉再见”这句一毛，看到老印说这句我笑喷了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  那由  
+##### 1223#       发表于 2025-9-13 11:59
+
+<img src="https://img.stage1st.com/forum/202509/13/115906bqt1bjx34dxztuj3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 11:59 上传
+
+*****
+
+####  123485k  
+##### 1224#       发表于 2025-9-13 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419990&amp;ptid=2261694" target="_blank">那由 发表于 2025-9-13 11:59</a></blockquote>
+细节法外制裁
+
+*****
+
+####  RainbowSealife  
+##### 1225#       发表于 2025-9-13 12:03
+
+现在还看不出来这枪手有什么诉求，不像路易吉这么明确自己的目的。如果只是保守派家庭出身，忽左忽右的抽象小登一时兴起，那还真就是“孩子不懂事，沙着玩的”，乐，人人持枪，它才不乱，期待牢美下一个颈上添花的羟基喜剧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月白天青  
+##### 1226#       发表于 2025-9-13 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419894&amp;ptid=2261694" target="_blank">busuoni 发表于 2025-9-13 11:37</a>
+只要我在海量另类右翼认同符号里藏一句绝地潜兵烂梗，再帆船几句安提法，就有中国老哥替我汴京我是“不关心 ...</blockquote>
+有没有可能，老钟根本不关心这人到底是左还是右，只想看乐子。关于他是左还是右，我愿意接受乐子更大的说法，但是他现在整出个网络烂梗魔怔人的可能，比左右有乐子多了。
+在这件事喜欢上纲上线左啊右啊的，脑子都变成美国人形状了。死了个反华反堕胎魔怔人，只有乐的可能性，谁会想要严肃辩是左干的还是右干的。在这个事吵的所谓左右都是以美国标准划定的，和我们都尿不到一壶里，那么真心实意干嘛
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  三尖酸努努  
+##### 1227#       发表于 2025-9-13 12:06
+
+这下有乐子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313
+
+*****
+
+####  love4aids  
+##### 1228#       发表于 2025-9-13 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420025&amp;ptid=2261694" target="_blank">月白天青 发表于 2025-9-13 12:05</a>
+
+有没有可能，老钟根本不关心这人到底是左还是右，只想看乐子。关于他是左还是右，我愿意接受乐子更大的说 ...</blockquote>
+泥潭可以是有真心实意的川粉的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
