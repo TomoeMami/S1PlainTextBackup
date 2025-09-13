@@ -1059,3 +1059,54 @@ reddit潜兵版紧急戒严艹
 
 绝地潜兵2能火到这程度也是没谁了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">如果箭头还敢做个披风出来那真的是绝杀
 
+
+*****
+
+####  ykyin09  
+##### 7087#       发表于 2025-9-13 06:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是接下来箭头发免费飞鹰500那就是本年度最狠的活
+
+*****
+
+####  Koyishi  
+##### 7088#       发表于 2025-9-13 06:38
+
+贱头应该真要免费发500kg也会被索尼按住吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  outerish  
+##### 7089#       发表于 2025-9-13 07:14
+
+游戏火不火不好说，不过真的很出梗
+
+本来是讽刺法西斯的，结果也真聚了不少极端份子
+
+箭头不管管的话还真有可能没得玩
+
+*****
+
+####  jy000129  
+##### 7090#       发表于 2025-9-13 10:30
+
+网瘾祸害美国儿童了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DawnGuardian  
+##### 7091#       发表于 2025-9-13 10:36
+
+<blockquote>6x6z6w 发表于 2025-9-13 05:48
+绝地潜兵2能火到这程度也是没谁了如果箭头还敢做个披风出来那真的是绝杀</blockquote>
+别，这热度可不兴蹭啊
+
+*****
+
+####  kalavinka  
+##### 7092#         楼主| 发表于 2025-9-13 11:02
+
+该做披风了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
