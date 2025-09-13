@@ -14976,3 +14976,55 @@ nfQ2w-2fc2KqT1kSgf-ba.jpg.medium.jpg
 西巴，AR15可是阿米自研的！坚持气吹主体思想，打倒活塞异端！</blockquote>
 现在短活塞款的AR不是大头嘛？
 
+
+*****
+
+####  武男  
+##### 1348#       发表于 2025-9-13 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423007&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 23:21</a>
+
+来、红脖跳脚截图</blockquote>
+红脖：非法广播就得关闭
+
+360截图20250913233736099.jpg
+(99.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 23:40 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/234025tlksjg0zgnag7lxj.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  RPG-7  
+##### 1349#       发表于 2025-9-13 23:41
+
+ 本帖最后由 RPG-7 于 2025-9-13 23:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423075&amp;ptid=2261694" target="_blank">又怎么啦？ 发表于 2025-9-13 23:35</a>
+
+现在短活塞款的AR不是大头嘛？</blockquote>
+短活塞AR15就是异端嘛（点名416）——至于191算特色缝合怪不计入
+
+现在精品气吹也很多阿，URGI，N4，还有KAC和LMT等等
+
+*****
+
+####  2017.05.04  
+##### 1350#       发表于 2025-9-13 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423007&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 23:21</a>
+来、红脖跳脚截图</blockquote>
+有人翻出这人当年在电视上说登子应该被干死<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/0f26ced4dee1f476f68c3a9e88351922/image.jpg" referrerpolicy="no-referrer">
+列了这人干过的宣扬种族隔离，喷马丁路德金，给反复国主义者发死亡威胁等等罪状，观众纷纷表示
+
+<img src="https://p.sda1.dev/27/98c67785cca8d5bac1c82ace659d50ed/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/4b41d354b0792b1ee3ad49c65ed0d62c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/fc089acd981c0f702f34849f5b3886c6/image.jpg" referrerpolicy="no-referrer">
+
+人挺好，就是死晚了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
