@@ -14378,3 +14378,29 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 说起来之前给taco打耳洞的那位后来查出来什么倾向，后面都没声音了</blockquote>
 也是个偏右派的，反移民反犹，所以不怎么宣传了
 
+
+*****
+
+####  赛文欧德  
+##### 1296#       发表于 2025-9-13 18:15
+
+最后没想到是美国烂梗人干的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  云梦泽岸  
+##### 1297#       发表于 2025-9-13 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420475&amp;ptid=2261694" target="_blank">ccared 发表于 2025-9-13 13:46</a>
+已经开始成规模解雇嘲笑好圣孙之死的人了，大举办时代来临力。</blockquote>
+似曾相识的场景，以前我们天天互相批斗，揪反贼特务，几十年后又在大洋彼岸看到美国倒退回去了。
+
+*****
+
+####  纸皮  
+##### 1298#       发表于 2025-9-13 18:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国空虚小青年会不会觉得这个烂梗小哥有点酷啊，玩游戏梗，说抽象话，打大人物
+求求你们多效仿吧
+
