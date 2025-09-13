@@ -13109,3 +13109,34 @@ FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄
 
 泥潭左右大战几十页，想好了十几种美国内战思路，最后发现是一名绝地潜兵<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  B能水野多  
+##### 1201#       发表于 2025-9-13 10:48
+
+所以GTA6还能发售嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 1202#       发表于 2025-9-13 10:50
+
+<img src="https://img.stage1st.com/forum/202509/13/105050aismiw6qyc6bamja.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:50 上传
+
+
+*****
+
+####  星花  
+##### 1203#       发表于 2025-9-13 10:55
+
+ 本帖最后由 星花 于 2025-9-13 10:56 编辑 
+
+等5月来个大的，然后GTA6被迫停售。<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
