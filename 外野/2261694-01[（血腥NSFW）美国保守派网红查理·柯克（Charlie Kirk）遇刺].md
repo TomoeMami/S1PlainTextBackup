@@ -12766,3 +12766,49 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  破晓之光  
+##### 1169#       发表于 2025-9-13 09:26
+
+这个发展很不错，很幽默<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一心六文  
+##### 1170#       发表于 2025-9-13 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418552&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-13 01:29</a>
+现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lightingwolf  
+##### 1171#       发表于 2025-9-13 09:34
+
+<blockquote>烦死了 发表于 2025-9-12 22:59
+我记得美国法律甚至不要求你作证亲人有罪，这人老爹还去举报，秦制爱好者了 ...</blockquote>
+中国法律一样
+
+根据《刑事诉讼法》第188条，被告人的配偶、父母、子女无需出庭作证，但需注意：
+
+‌强制到庭义务‌：若证人无正当理由拒不出庭，法院可强制其到庭（被告人配偶、父母、子女除外）。 ‌
+
+*****
+
+####  belmen  
+##### 1172#       发表于 2025-9-13 09:34
+
+[https://x.com/ShadowofEzra/status/1966614804925210739](https://x.com/ShadowofEzra/status/1966614804925210739)
+
+枪手的高中同学（自称不熟）：刷太多红迪导致的
+
+红迪现在基本上是左倾论坛了吧
+
