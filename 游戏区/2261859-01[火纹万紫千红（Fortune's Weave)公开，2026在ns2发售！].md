@@ -3253,3 +3253,49 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 
 或说横版波斯王子主角也留的脏辫，波斯人以前也有留脏辫的传统吗
 
+
+*****
+
+####  Tilocal  
+##### 354#       发表于 2025-9-13 19:08
+
+ 本帖最后由 Tilocal 于 2025-9-13 19:09 编辑 
+
+这个神威法王原文直接用的汉字，日语法王就是教皇所以中文会翻译成神威教皇吗
+
+(在系列已经有一个ifカムイ被翻译成神威，回声カムイ被翻译成卡武伊的情况下又来了一个神威)
+
+<img src="https://img.stage1st.com/forum/202509/13/184409ss22ayc82j27k27y.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-09-13 at 18-42-17 Nintendo Switch 2 ソフト『ファイアーエムブレム.png</strong> (628.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 18:44 上传
+
+从耳朵上看毫无疑问又是龙族，总体给人感觉也很像回声的多玛
+
+<img src="https://img.stage1st.com/forum/202509/13/190531ofjhzokpvjap1ksq.png" referrerpolicy="no-referrer">
+
+<strong>Duma_God_of_Strength_Face.png</strong> (317.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 19:05 上传
+
+其实初代纹谜和外传加贺就加了很多古希腊古罗马的要素，不说马大饼这名字什么墨丘利剑帕提亚弓古拉迪乌斯枪，三房里也能搞到这几把武器
+
+这次FEH这个月的斗技场主题池子感觉也是有预谋的
+
+*****
+
+####  qiyu1234  
+##### 355#       发表于 2025-9-13 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421852&amp;ptid=2261859" target="_blank">Tilocal 发表于 2025-9-13 19:08</a>
+
+这个神威法王原文直接用的汉字，日语法王就是教皇所以中文会翻译成神威教皇吗
+
+(在系列已经有一个ifカムイ被 ...</blockquote>
+繁中预告是直接照搬汉字
+
