@@ -2430,3 +2430,26 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 万房这套战斗系统是不是还是三房那套超无聊的系统啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我真打三房战斗打得昏昏欲睡，pv官网看了半天没看出有没有三角克制
 
+
+*****
+
+####  没取名啊  
+##### 269#       发表于 2025-9-13 08:57
+
+我老婆苏谛斯变成阿姨了，我不能接受!!!!!<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asikies  
+##### 270#       发表于 2025-9-13 08:58
+
+只有男性主人公这么逆天？
+
+
+*****
+
+####  辞冬  
+##### 271#       发表于 2025-9-13 09:03
+
+看到有人说万紫千红人设和暗喻幻想差不多，还真是，期待欧美好评如潮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

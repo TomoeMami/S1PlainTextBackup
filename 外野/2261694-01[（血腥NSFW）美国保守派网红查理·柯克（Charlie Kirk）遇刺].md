@@ -12711,3 +12711,22 @@ But the suspected shooter himself is listed as “unaffiliated”. The 22-year-o
 
 事实核查：枪击案嫌疑人没有向 YKW 的竞选活动捐款</blockquote>
 
+
+*****
+
+####  lactone  
+##### 1164#       发表于 2025-9-13 09:01
+
+最后查出来动机万一是杀着玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  poor  
+##### 1165#       发表于 2025-9-13 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418228&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 00:18</a>
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
+天天跟我说大的要来，结果现在还没开打，真的打起来之前看都不看<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
