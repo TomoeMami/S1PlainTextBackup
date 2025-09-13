@@ -15138,3 +15138,35 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 整个西大右翼转了一大圈 最终发现它们只是想要建一个⏰这样的-无 ...</blockquote>
 就如同法国好久以前那群空想社脑海里的完美无缺的东方古国一样——要是把旁边英国佬的抽象行为也算上，比如笛福由爱转恨痛骂⏰棉布，那就更可乐了。
 
+
+*****
+
+####  张元英  
+##### 1359#       发表于 2025-9-14 06:03
+
+<img src="https://img.stage1st.com/forum/202509/14/060303zpqlx5pyq5bxhh51.png" referrerpolicy="no-referrer">
+
+<strong>wechat_2025-09-14_060207_430.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 06:03 上传
+
+<img src="https://img.stage1st.com/forum/202509/14/060303z6cmnn02oi6468t4.png" referrerpolicy="no-referrer">
+
+<strong>wechat_2025-09-14_060221_401.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 06:03 上传
+
+<img src="https://img.stage1st.com/forum/202509/14/060302p11klwqzlxzzdlnw.png" referrerpolicy="no-referrer">
+
+<strong>wechat_2025-09-14_060232_943.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 06:03 上传
+
+这什么帝国大概250年保质期不是中国独一份的经验吗
+
