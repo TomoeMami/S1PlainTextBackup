@@ -4302,3 +4302,13 @@ CG監督：宮風 慎一（グラフィニカ）
 
 这摄影真的磨了这么久还是一副被幽浮桌吊锤的样儿
 
+
+*****
+
+####  khxooo  
+##### 419#       发表于 2025-9-13 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421932&amp;ptid=2086574" target="_blank">zechins 发表于 2025-9-13 19:24</a>
+fgo明年新年池会是谁呢</blockquote>
+仇海/弓海，狂信子，死亡骑士，弗拉德，估计这几个其中一个。
+
