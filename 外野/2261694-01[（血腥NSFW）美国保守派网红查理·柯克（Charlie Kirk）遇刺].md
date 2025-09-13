@@ -14823,3 +14823,57 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 这篇微博下面的评论可以看到国内精神maga也不少了</blockquote>
 对于国内某些牧羊犬来说，灯塔不亮一定是有小人做坏事，这个小人现在是民主党和有色人种。
 
+
+*****
+
+####  2017.05.04  
+##### 1334#       发表于 2025-9-13 22:43
+
+上推看了几个红脖感觉他们要把自己气死了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+到处搜捕做meme的人
+
+有人发了近年政治刺杀的左右翼意识形态分部<img src="https://p.sda1.dev/27/21335a0e94814a70a95d1f224768bb81/image.jpg" referrerpolicy="no-referrer">
+
+顺带一提我觉得这种调查毫无道理，右翼杀人多/被杀多和意识形态无关，完全是因为这边人都受众拥枪基数大<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  睡茫砾  
+##### 1335#       发表于 2025-9-13 22:50
+
+看来真像是4chan老哥
+
+川子那种maga右不反犹和日右不反美是一样的表面功夫，一种被阉割的假右翼，一点独立自主的本事也没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 1336#       发表于 2025-9-13 22:50
+
+这图里左的那个企图杀川‎普的甚至没有枪.
+
+
+*****
+
+####  Solnke  
+##### 1337#       发表于 2025-9-13 22:55
+
+感觉没救了，左的嘲弄，右的追捕，基本难以调合，中间派看见极左极右各种抬头各种疯狂，怕也不知道选哪边了，竖切政治害人啊
+
+*****
+
+####  2017.05.04  
+##### 1338#       发表于 2025-9-13 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422852&amp;ptid=2261694" target="_blank">oyss 发表于 2025-9-13 22:50</a>
+这图里左的那个企图杀川‎普的甚至没有枪.</blockquote>
+拥枪问题在美国就是房间大象，任何一个bb意识形态导致政治暴力的人首先必须忽视拥枪是导致暴力变现的第一要素
+而且这帮人绝不会在平民被刺杀的时候出来bb，他们先看一眼这人意识形态，如果是反对拥枪的会嘲笑因为没枪所以没法保护自己，而如果是支持拥枪的则是会认为这人枪术不行拔枪慢了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+总之就是枪是信仰，不能质疑枪
+被枪打死属于命中有劫难
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
