@@ -14343,3 +14343,15 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 他爹不是警察，别传谣了。</blockquote>
 自己举报，能拿那10w奖金么？
 
+
+*****
+
+####  Baccano  
+##### 1293#       发表于 2025-9-13 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418912&amp;ptid=2261694" target="_blank">DsicoElysium 发表于 2025-9-13 06:54</a>
+看了下，Groypers这不是美国**吗？要废除选举制度，建立天主教的政教合一政权
+
+—— 来自 HONOR CLK-AN00,  ...</blockquote>
+确定是天主教，不是基督教吗？在美国建立天主教国家，各个方面都很炸裂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
