@@ -14802,3 +14802,24 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 线上打枪线下还打枪，fps游戏该搞点自定义弹壳皮肤功能了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 1332#       发表于 2025-9-13 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422575&amp;ptid=2261694" target="_blank">ammk 发表于 2025-9-13 21:50</a>
+降临派说是，有点离谱</blockquote>
+确实很多极右白皮会向往⏰，因为他们相信那些西方媒体的宣传……
+觉得又打压绿又关押维的⏰简直是天堂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望⏰给欧美也来这套净化完了只剩下白人
+
+*****
+
+####  rozen121  
+##### 1333#       发表于 2025-9-13 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422683&amp;ptid=2261694" target="_blank">last_regret 发表于 2025-9-13 22:13</a>
+
+这篇微博下面的评论可以看到国内精神maga也不少了</blockquote>
+对于国内某些牧羊犬来说，灯塔不亮一定是有小人做坏事，这个小人现在是民主党和有色人种。
+

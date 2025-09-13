@@ -814,3 +814,16 @@ https://www.bilibili.com/bangumi/play/ep2147516
 
 怎么还有奈斯
 
+
+*****
+
+####  rushsong  
+##### 508#       发表于 2025-9-13 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420547&amp;ptid=2125794" target="_blank">补丁 发表于 2025-9-13 14:05</a>
+
+新op好有信息量，不过一向PV诈骗，第二季有这些内容吗
+
+X获得能力大概和黑长直妹子有关，她还疑似BOSS，外星 ...</blockquote>
+还是担心一下第二季的剧本吧，我希望换一个编剧
+
