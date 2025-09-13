@@ -3415,3 +3415,26 @@ X上纹学家的一点推测</blockquote>
 武器耐久度又回来了，我这个仓鼠玩家还是不喜欢这点。engage就是没耐久度，给我下棋下爽了 ...</blockquote>
 没耐久度就给强力武器下毒，我还是宁可有耐久
 
+
+*****
+
+####  Onelooker  
+##### 363#       发表于 2025-9-13 20:47
+
+眼睛娘这个凉鞋 + 靴子的设计确实是有点超出我的认知范围了
+
+<img src="https://p.sda1.dev/27/7f8a0a85f608c5843c35e4175a412eea/PixPin_2025-09-13_20-45-44.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 364#       发表于 2025-9-13 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420749&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2025-9-13 14:49</a>
+engage如果游戏里和cg一样，吐槽的大概就没那么多了
+
+到底是技术原因还是别的什么完全搞不清楚 ...</blockquote>
+其实这代游戏里的建模和cg一比也看着不像一个人……
+
+感觉最明显的是雷达女士<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气质都不一样了
+

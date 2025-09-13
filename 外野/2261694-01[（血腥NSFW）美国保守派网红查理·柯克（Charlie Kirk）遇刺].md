@@ -14572,3 +14572,37 @@ BOOOOOOOOOOM! !
 
 4chan认领到底是不是国内传的，我上4ch怎么只看见骂他是个discord串妮
 
+
+*****
+
+####  outerish  
+##### 1314#       发表于 2025-9-13 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422128&amp;ptid=2261694" target="_blank">normalli 发表于 2025-9-13 20:11</a>
+
+我发现这事特别容易识别水军，正常人都不会把这家伙当极左吧，但有些账号不知道从哪接的通稿，各种奇谈怪论 ...</blockquote>
+我还见过把查理柯克说成是伟人的呢，前面有楼友说要警惕境外势力我现在信了，不然解释不了这种现象
+
+*****
+
+####  就咋的  
+##### 1315#       发表于 2025-9-13 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422244&amp;ptid=2261694" target="_blank">dreamill 发表于 2025-9-13 20:35</a>
+
+4chan认领到底是不是国内传的，我上4ch怎么只看见骂他是个discord串妮</blockquote>
+没人认领，那句是开玩笑。Discord 把枪手的号删了，压力来到 Reddit 的各种相关板块了
+
+
+*****
+
+####  VALKIRA  
+##### 1316#       发表于 2025-9-13 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421654&amp;ptid=2261694" target="_blank">云梦泽岸 发表于 2025-9-13 18:22</a>
+
+似曾相识的场景，以前我们天天互相批斗，揪反贼特务，几十年后又在大洋彼岸看到美国倒退回去了。 ...</blockquote>
+以前那是我们真的有很多反贼特务
+
+现在美国呢？美国有那么多真反贼吗，不如说你如何定义反贼？还不是激进派狗咬狗
+
