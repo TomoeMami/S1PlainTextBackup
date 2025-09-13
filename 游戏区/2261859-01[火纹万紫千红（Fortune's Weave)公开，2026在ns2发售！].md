@@ -3489,3 +3489,13 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 <img src="https://img.stage1st.com/forum/202509/13/210754rulvipvmlfvlu68y.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  defer  
+##### 367#       发表于 2025-9-13 21:16
+
+哪里来的简体正式名称万紫千红。
+
+任天堂发行的游戏三地名称早就统一了，还有什么简繁不对应的情况吗？
+
