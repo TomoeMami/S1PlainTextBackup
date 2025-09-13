@@ -3032,3 +3032,36 @@ c标只有
 
 播片开头出现的城市全貌，第一反应不是罗马，是君士坦丁堡。
 
+
+*****
+
+####  洛亚替身  
+##### 332#       发表于 2025-9-13 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420439&amp;ptid=2261859" target="_blank">撒撒 发表于 2025-9-13 13:36</a>
+
+火焰纹章26年新作盯帧解析！火焰纹章-万紫千红https://www.bilibili.com/video/BV1mrpGzpEEy/
+
+播片开头出 ...</blockquote>
+帝国真就武德充沛的法兰克蛮子生态位是吧
+
+*****
+
+####  karastar  
+##### 333#       发表于 2025-9-13 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420384&amp;ptid=2261859" target="_blank">星花 发表于 2025-9-13 13:23</a>
+结合人设是好的，但立不起来啊。</blockquote>
+认真的吗，刚出的时候全是吐槽管人画风的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 334#       发表于 2025-9-13 13:39
+
+ 本帖最后由 xwr 于 2025-9-13 13:41 编辑 
+
+看官网介绍4人战士参加大剑斗祭，pv也是四人四面旗帜，所以说这是火纹四方旅人，还是说在藏个大的？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在比较在意的就是pv里出现的纹章，拉弥努，奥班，诺亚，我个人倾向还是后传，甚至是时间过了很长的后传。
+

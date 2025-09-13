@@ -752,3 +752,17 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 累计异常当没有说是 带个物攻+4 受伤攒发狂条 连排两把永夜羊头直接-400<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ohi.02  
+##### 1698#       发表于 2025-9-13 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419230&amp;ptid=2210352" target="_blank">另外四分之三 发表于 2025-9-13 09:21</a>
+有人总结过什么负面词条勉强可以接受么，还在第一级，感觉目前还能按照老思路打
+
+我追踪有个减少回血的词条 ...</blockquote>
+腐败中毒都可以考虑，局内打boss有几率掉落腐败或中毒回血的buff，正好抵消掉了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

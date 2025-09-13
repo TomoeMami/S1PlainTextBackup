@@ -13883,3 +13883,20 @@ X上反贼因为这事互相举报内斗笑死我了
 
 —— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tansapple  
+##### 1252#       发表于 2025-9-13 13:37
+
+极左和极右最后的诉求都是趋同的，就是不听我的就物理上干死你。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你来搞笑  
+##### 1253#       发表于 2025-9-13 13:38
+
+可是超级地球是一个披着民主皮的超级集权政府啊，全体公民纳税造空间站，真理部控制舆论，异见者全都发配自由营<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
