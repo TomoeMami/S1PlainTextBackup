@@ -14877,3 +14877,31 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zeroboss4  
+##### 1339#       发表于 2025-9-13 23:01
+
+说穿了 西大的现在的右翼受⏰影响太深了
+
+整个西大右翼转了一大圈 最终发现它们只是想要建一个⏰这样的-无论是它们宣传中的⏰还是实际的⏰-这样的白人国家
+
+
+*****
+
+####  AgentZiGZAG  
+##### 1340#       发表于 2025-9-13 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422575&amp;ptid=2261694" target="_blank">ammk 发表于 2025-9-13 21:50</a>
+
+降临派说是，有点离谱</blockquote>
+这是直接复制黏贴这楼前面一个坛友的，，，
+
+*****
+
+####  TTAA  
+##### 1341#       发表于 2025-9-13 23:04
+
+感觉新蝙蝠侠的含金量还在提升，未来一段时间应该能不少看见4chan老哥整活
+
