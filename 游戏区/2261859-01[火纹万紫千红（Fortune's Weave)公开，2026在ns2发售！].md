@@ -3299,3 +3299,19 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 (在系列已经有一个ifカムイ被 ...</blockquote>
 繁中预告是直接照搬汉字
 
+
+*****
+
+####  蓮華  
+##### 356#       发表于 2025-9-13 19:23
+
+<img src="https://img.stage1st.com/forum/202509/13/192237n7oaq7oqzfoi5ri5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250913192217.png</strong> (127.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 19:22 上传
+
+按草木原的说法大苏提斯才是完全体
+
