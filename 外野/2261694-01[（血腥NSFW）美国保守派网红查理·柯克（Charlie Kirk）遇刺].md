@@ -14404,3 +14404,27 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国空虚小青年会不会觉得这个烂梗小哥有点酷啊，玩游戏梗，说抽象话，打大人物
 求求你们多效仿吧
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1299#       发表于 2025-9-13 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421246&amp;ptid=2261694" target="_blank">大友切 发表于 2025-9-13 16:52</a>
+
+话说那个绝地潜兵2好玩吗？适合不怎么玩射击游戏的人入坑吗？</blockquote>
+有朋友好玩
+
+*****
+
+####  就咋的  
+##### 1300#       发表于 2025-9-13 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421665&amp;ptid=2261694" target="_blank">纸皮 发表于 2025-9-13 18:24</a>
+
+美国空虚小青年会不会觉得这个烂梗小哥有点酷啊，玩游戏梗，说抽象话，打大人物
+
+求求你们多效仿吧 ...</blockquote>
+驴党呼吁线上平和，象党要清理激进派，有关部门公布烂梗小哥没有“注册”的政治派别，同一时间 4chan 社区：“emm... 这好像是我们的人 LOL”
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
