@@ -14464,3 +14464,21 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 BOOOOOOOOOOM! !
 <img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月亮与五块钱  
+##### 1304#       发表于 2025-9-13 18:48
+
+奶龙:你看我第一任期就说过，电子游戏导致暴力，没错吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  非建政专用号  
+##### 1305#       发表于 2025-9-13 18:54
+
+在弹壳上刻烂梗是不是同时做到了武器的批判和批判的武器<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
