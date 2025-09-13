@@ -3554,3 +3554,14 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  血狂毘沙门  
+##### 374#       发表于 2025-9-14 04:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420926&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-13 15:29</a>
+
+主角要么是透明人跟随四个pov之一，要么就是没有，pov就是各自路线的主角，感觉没有藏的必要，除非跟贝老师 ...</blockquote>
+应该是藏了个角色 不然苏提斯最后在跟谁说好久不见呢  总不能是跟小杂毛说吧
+
