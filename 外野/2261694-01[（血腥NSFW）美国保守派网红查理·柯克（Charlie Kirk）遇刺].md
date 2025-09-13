@@ -13164,3 +13164,47 @@ FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄
 
 地狱潜兵这下爆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  colike  
+##### 1206#       发表于 2025-9-13 11:08
+
+太好笑了，直接消解了MAGA的英雄和斗争叙事
+
+试问哪个正经人会被写满网络烂梗的子弹打死呢
+
+对政治不感兴趣的贴吧老哥对当街表演的政客给出了正义一击
+
+*****
+
+####  鵝  
+##### 1207#       发表于 2025-9-13 11:11
+
+瓦尔哈拉不是北欧英灵殿吗，印度人也信？
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Milarvoz  
+##### 1208#       发表于 2025-9-13 11:15
+
+今年tga最佳持续运营建议颁给这位枪手。
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  鱼丈人  
+##### 1209#       发表于 2025-9-13 11:16
+
+ 本帖最后由 鱼丈人 于 2025-9-13 11:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419549&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-13 10:34</a>
+未发射的弹壳：
+
+"Hey fascist, catch! ⬆️➡️⬇️⬇️⬇️ "法西斯，食炸弹啦！" 后面五个箭头是绝地潜 ...</blockquote>
+这下禁游令了
+“你们这什么fxs游戏啊，你们害人不浅啊，把我儿子害成这样了😭”
+

@@ -2782,3 +2782,40 @@ c标只有
 © Nintendo / INTELLIGENT SYSTEMS
 估计真和kt无关
 
+
+*****
+
+####  桐野心音  
+##### 305#       发表于 2025-9-13 11:09
+
+难得见到黑皮这么丑的
+
+*****
+
+####  星花  
+##### 306#       发表于 2025-9-13 11:09
+
+ 本帖最后由 星花 于 2025-9-13 11:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419666&amp;ptid=2261859" target="_blank">医生狼多 发表于 2025-9-13 10:54</a>
+
+【《火焰纹章：万缕千丝》故事背景和4位角色信息公开】任天堂昨晚宣布了新作《火焰纹章：万缕千丝》将于明 ...</blockquote>
+ 说不定  剧情抄明英烈。比赛是一场阴谋，逃出去后开始造反。
+
+
+*****
+
+####  darkprince120  
+##### 307#       发表于 2025-9-13 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419297&amp;ptid=2261859" target="_blank">绿冰 发表于 2025-9-13 09:39</a>
+
+或者拉鲁瓦那一派的地底人，比较正派</blockquote>
+那地底人都有了眼镜工艺，光学科技和玻璃材料都研发出来了，地上人还有戏么
+
+*****
+
+####  EigenVesper  
+##### 308#       发表于 2025-9-13 11:14
+
+这代有了个耗血使用的叫blaze arts的东西，阿鲁卡多的瞬移和舞女的召怪都是这一类，感觉是个绑定在角色上的东西，阿鲁卡多瞬移的时候职业是剑士，大概能减少一点三房的角色公式化培养。
+
