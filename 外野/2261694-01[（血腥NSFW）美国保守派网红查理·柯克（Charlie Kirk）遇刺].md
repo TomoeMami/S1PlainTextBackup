@@ -12730,3 +12730,39 @@ But the suspected shooter himself is listed as “unaffiliated”. The 22-year-o
 https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
 天天跟我说大的要来，结果现在还没开打，真的打起来之前看都不看<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 1166#       发表于 2025-9-13 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418839&amp;ptid=2261694" target="_blank">wtwtwt21 发表于 2025-9-13 05:13</a>
+https://weibo.com/7765195356/Q4j8HmtWg
+
+抽象老美
+
+这次枪杀柯克的嫌疑人罗宾逊疑似是Nicholas Fuentes的粉 ...</blockquote>
+前面被永封那个鲨臂是不是就是国内版Nicholas Fuentes<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱撕衣魔刃  
+##### 1167#       发表于 2025-9-13 09:21
+
+<blockquote>Siran_China 发表于 2025-9-13 02:01
+披风蟑螂风评被害，看到这件事我好像能理解为啥 GW 要大力和各种极端思想预防性切割 ...</blockquote>
+目标达成：关停非法广播
+
+大家要笑死了。
+
+*****
+
+####  一心六文  
+##### 1168#       发表于 2025-9-13 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418228&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 00:18</a>
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就是牛头人和兽人打起来了嘛
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
