@@ -14355,3 +14355,26 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 —— 来自 HONOR CLK-AN00,  ...</blockquote>
 确定是天主教，不是基督教吗？在美国建立天主教国家，各个方面都很炸裂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  休斯顿·张伯伦  
+##### 1294#       发表于 2025-9-13 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68415358&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-12 20:09</a>
+这玩意儿十年前就辩烂了，再村村得过澳大利亚吗
+
+别人可以限制到shotgun为啥你美不行 ...</blockquote>
+澳大利亚农民只要对付袋鼠和鳄鱼，美国人民可是要对付有自动武器的邻居啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saizeriya  
+##### 1295#       发表于 2025-9-13 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421451&amp;ptid=2261694" target="_blank">FanFun 发表于 2025-9-13 17:37</a>
+
+说起来之前给taco打耳洞的那位后来查出来什么倾向，后面都没声音了</blockquote>
+也是个偏右派的，反移民反犹，所以不怎么宣传了
+
