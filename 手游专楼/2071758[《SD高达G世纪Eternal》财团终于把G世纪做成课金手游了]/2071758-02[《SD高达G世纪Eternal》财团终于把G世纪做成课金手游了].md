@@ -4220,3 +4220,14 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有传说是00R+巴巴托斯最后一个形态的，一万个舅舅
 
+
+*****
+
+####  AminGly  
+##### 2650#       发表于 2025-9-13 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418638&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-13 01:55</a>
+
+怎么还有传说是00R+巴巴托斯最后一个形态的，一万个舅舅</blockquote>
+那个是纯猜的
+
