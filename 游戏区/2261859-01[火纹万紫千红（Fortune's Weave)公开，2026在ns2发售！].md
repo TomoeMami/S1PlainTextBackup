@@ -3002,3 +3002,33 @@ c标只有
 
 一个和故事主线无关的背景国家无双里还在增补设定，如果真是发生在这个国家那应该是早有预谋了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 329#       发表于 2025-9-13 13:27
+
+如果是后继，椅子上的其实是上代女主，人类的心智无法和神比，时间长了就这样了。
+
+
+*****
+
+####  洛亚替身  
+##### 330#       发表于 2025-9-13 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420385&amp;ptid=2261859" target="_blank">Humpy 发表于 2025-9-13 13:23</a>
+
+名字叫鞑古席翁大剑斗祭，感觉发生在上代背景国家鞑古扎的可能性更大些？
+
+一个和故事主线无关的背景国家 ...</blockquote>
+那帝国含金量还在上升，这世界观下就没有帝国没对线的国家，卧槽我去火纹吧查了下，纹章武器也有解释了，帝国讨伐十杰家族的确有残余带着宝物润了鞑古扎，那这故事大概率后传，逻辑也完全说得通了
+
+*****
+
+####  撒撒  
+##### 331#       发表于 2025-9-13 13:36
+
+火焰纹章26年新作盯帧解析！火焰纹章-万紫千红[https://www.bilibili.com/video/BV1mrpGzpEEy/](https://www.bilibili.com/video/BV1mrpGzpEEy/)
+
+播片开头出现的城市全貌，第一反应不是罗马，是君士坦丁堡。
+
