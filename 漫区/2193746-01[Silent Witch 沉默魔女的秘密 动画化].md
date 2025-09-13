@@ -24,3 +24,13 @@
 
 笑死，女仆和使魔两个活宝还挺搞笑的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，话说巴尼对诺顿穿着七人服装就不满指责你是来嘲笑我的吗，有点没看懂，原作也是这样吗
 
+
+*****
+
+####  jie2000  
+##### 232#       发表于 2025-9-13 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420064&amp;ptid=2193746" target="_blank">aptx8285144 发表于 2025-9-13 12:13</a>
+笑死，女仆和使魔两个活宝还挺搞笑的，拉娜小天使，话说巴尼对诺顿穿着七人服装以及无唱了，就不满指责你是 ...</blockquote>
+小屁孩的嫉妒心作祟<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
