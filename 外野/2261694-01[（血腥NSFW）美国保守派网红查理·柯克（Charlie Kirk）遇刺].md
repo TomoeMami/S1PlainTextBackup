@@ -15028,3 +15028,11 @@ nfQ2w-2fc2KqT1kSgf-ba.jpg.medium.jpg
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  日日日日日野  
+##### 1351#       发表于 2025-9-14 00:30
+
+emmmmm，现在最新的消息是，这人有一个同居的MTF女（？）友，或许要再观察观察这人的光谱了。
+
