@@ -3141,3 +3141,11 @@ https://zhuanlan.zhihu.com/p/56272119</blockquote>
 
 三房世界观感兴趣，但这个人设一言难尽，尤其是男主一头脏辫，感觉像是和波斯猴子新作一样，zzzq的余毒还没清干净（虽然留脏辫的地区多了去了，但是现在脏辫还挺刻板印象的）战棋玩不来，现在回想起三房还记得跟着攻略凹了好多飞龙将领。另外都NS2了，纹理可以不用那么糊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzzplht  
+##### 341#       发表于 2025-9-13 14:40
+
+三房的设定很诱人，但是大家还是要对剧情降低期待
+

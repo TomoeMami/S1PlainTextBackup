@@ -784,3 +784,25 @@ X要打肯定有方法，X没弱点上班族还是有的
 
 X获得能力大概和黑长直妹子有关，她还疑似BOSS，外星人吗？
 
+
+*****
+
+####  新HGCG  
+##### 506#       发表于 2025-9-13 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420499&amp;ptid=2125794" target="_blank">evangelina 发表于 2025-9-13 13:51</a>
+
+https://www.bilibili.com/bangumi/play/ep2147516
+
+还有新OP？？有点帅</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/13/144504yjot7yjotjo5xynp.gif" referrerpolicy="no-referrer">
+
+<strong>图片20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 14:45 上传
+
+这个黑长直好
+
