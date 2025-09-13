@@ -3094,3 +3094,14 @@ c标只有
 
 行政区数目：5（色雷斯、亚细亚、本都、东方、埃及），行省数目：48
 
+
+*****
+
+####  星花  
+##### 336#       发表于 2025-9-13 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420452&amp;ptid=2261859" target="_blank">karastar 发表于 2025-9-13 13:39</a>
+
+认真的吗，刚出的时候全是吐槽管人画风的</blockquote>
+主要是后半句立不起来啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

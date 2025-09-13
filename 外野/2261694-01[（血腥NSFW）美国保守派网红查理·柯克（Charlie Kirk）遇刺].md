@@ -13908,3 +13908,33 @@ X上反贼因为这事互相举报内斗笑死我了
 
 已经开始成规模解雇嘲笑好圣孙之死的人了，大举办时代来临力。
 
+
+*****
+
+####  saizeriya  
+##### 1255#       发表于 2025-9-13 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420475&amp;ptid=2261694" target="_blank">ccared 发表于 2025-9-13 13:46</a>
+
+已经开始成规模解雇嘲笑好圣孙之死的人了，大举办时代来临力。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开除这么多人非农就业数据会不会受影响
+
+*****
+
+####  天选之子  
+##### 1256#       发表于 2025-9-13 14:02
+
+<blockquote>ccared 发表于 2025-9-13 13:46
+已经开始成规模解雇嘲笑好圣孙之死的人了，大举办时代来临力。</blockquote>
+在美国，人人享有言论自由，但是一部分人比其他人更自由。
+
+*****
+
+####  星花  
+##### 1257#       发表于 2025-9-13 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420534&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-13 14:02</a>
+
+开除这么多人非农就业数据会不会受影响</blockquote>
+就业会增加的。开除后打三份工就业加2。
+

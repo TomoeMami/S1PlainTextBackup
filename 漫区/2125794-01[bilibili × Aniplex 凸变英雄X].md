@@ -774,3 +774,13 @@ X要打肯定有方法，X没弱点上班族还是有的
 
 还有新OP？？有点帅<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  补丁  
+##### 505#       发表于 2025-9-13 14:05
+
+新op好有信息量，不过一向PV诈骗，第二季有这些内容吗
+
+X获得能力大概和黑长直妹子有关，她还疑似BOSS，外星人吗？
+
