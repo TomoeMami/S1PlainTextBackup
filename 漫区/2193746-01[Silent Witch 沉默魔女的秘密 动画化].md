@@ -14,3 +14,13 @@
 
 年纪大了看不得这种经典剧情，后面能不能彭彭给他两拳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 231#       发表于 2025-9-13 12:13
+
+ 本帖最后由 aptx8285144 于 2025-9-13 12:15 编辑 
+
+笑死，女仆和使魔两个活宝还挺搞笑的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，话说巴尼对诺顿穿着七人服装就不满指责你是来嘲笑我的吗，有点没看懂，原作也是这样吗
+

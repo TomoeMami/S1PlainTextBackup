@@ -13405,3 +13405,25 @@ https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
 有没有可能，老钟根本不关心这人到底是左还是右，只想看乐子。关于他是左还是右，我愿意接受乐子更大的说 ...</blockquote>
 泥潭可以是有真心实意的川粉的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  agsva  
+##### 1229#       发表于 2025-9-13 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68405065&amp;ptid=2261694" target="_blank">agsva 发表于 2025-9-11 08:05</a>
+
+有种感觉查到最后还是像奶龙那次一样，都是那种小年轻独狼作案。</blockquote>
+我了个去还真是……
+
+*****
+
+####  7776169  
+##### 1230#       发表于 2025-9-13 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420036&amp;ptid=2261694" target="_blank">love4aids 发表于 2025-9-13 12:07</a>
+泥潭可以是有真心实意的川粉的</blockquote>
+哦，你说那个菜园之州？<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
