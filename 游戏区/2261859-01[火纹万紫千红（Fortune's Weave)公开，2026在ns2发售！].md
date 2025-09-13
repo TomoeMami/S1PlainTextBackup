@@ -3543,3 +3543,14 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 好想赶紧玩到啊。
 
+
+*****
+
+####  13街的居住民  
+##### 373#       发表于 2025-9-14 02:06
+
+想了想，如果是各个纹章齐聚在斗技场，确实是火纹圣杯战争了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">人设还是要喷的，三房和结合初期给的人设还不算烂到爆
+期待期待 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
