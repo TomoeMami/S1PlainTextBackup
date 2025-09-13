@@ -14938,3 +14938,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 zz嗅觉 煽动 诡辩 演讲  组织力
 
+
+*****
+
+####  xuanwu_lei  
+##### 1345#       发表于 2025-9-13 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422815&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-13 22:43</a>
+上推看了几个红脖感觉他们要把自己气死了
+到处搜捕做meme的人</blockquote>
+来、红脖跳脚截图<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
