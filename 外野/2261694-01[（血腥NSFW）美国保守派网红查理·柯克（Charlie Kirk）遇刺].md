@@ -14949,3 +14949,30 @@ zz嗅觉 煽动 诡辩 演讲  组织力
 到处搜捕做meme的人</blockquote>
 来、红脖跳脚截图<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 1346#       发表于 2025-9-13 23:33
+
+这波流量，地狱潜兵还吃到了。。就是不知道白宫姥爷们会不会应激动手了。。
+
+nfQ2w-2fc2KqT1kSgf-ba.jpg.medium.jpg
+(25.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/233212ut71ze01s0jllt00.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  又怎么啦？  
+##### 1347#       发表于 2025-9-13 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422951&amp;ptid=2261694" target="_blank">RPG-7 发表于 2025-9-13 23:09</a>
+
+西巴，AR15可是阿米自研的！坚持气吹主体思想，打倒活塞异端！</blockquote>
+现在短活塞款的AR不是大头嘛？
+
