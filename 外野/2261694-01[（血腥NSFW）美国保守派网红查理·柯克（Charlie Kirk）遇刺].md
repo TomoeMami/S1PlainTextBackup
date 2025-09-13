@@ -13445,3 +13445,14 @@ https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
 
 “Hey fascist! Catch!↑→↓↓↓”
 
+
+*****
+
+####  2017.05.04  
+##### 1233#       发表于 2025-9-13 12:29
+
+急也是美国人急<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+以后有的是急
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
