@@ -12837,3 +12837,24 @@ https://x.com/ShadowofEzra/status/1966614804925210739
 枪手的高中同学（自称不熟）：刷太多红迪导致的</blockquote>
 红迪几个大板块基本上全是网军 肯定偏左
 
+
+*****
+
+####  变老的大二  
+##### 1175#       发表于 2025-9-13 09:49
+
+<img src="https://img.stage1st.com/forum/202509/13/094906h3f3v3aknn9f323o.jpg" referrerpolicy="no-referrer">
+
+<strong>1000027775.jpg</strong> (46.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 09:49 上传
+
+*****
+
+####  Lorraine_Kinney  
+##### 1176#       发表于 2025-9-13 09:49
+
+烂梗枪手，留在弹壳上的全是烂梗
+
