@@ -14192,3 +14192,29 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 前不久还有人觉得TACO是玩家这一边的 ...</blockquote>
 甩锅游戏就是轻轻放下了，不打算政治攻击
 
+
+*****
+
+####  aeolus039  
+##### 1278#       发表于 2025-9-13 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420790&amp;ptid=2261694" target="_blank">循此苦旅 发表于 2025-9-13 14:57</a>
+有点牵强</blockquote>
+早有人扒过Bella Ciao就是Groyper战歌之一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loli炮  
+##### 1279#       发表于 2025-9-13 15:26
+
+有没有可能 川子是二战后美国实际控制能力最低的总统  换句话说就是被架成一个空架子 搞的那些激进改革最后还是浮于表面的样子货。
+
+*****
+
+####  Sevenzerofive  
+##### 1280#       发表于 2025-9-13 15:26
+
+人还没抓到吗
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
