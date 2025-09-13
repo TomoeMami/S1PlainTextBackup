@@ -2453,3 +2453,16 @@ if又是机关傀儡又是魔导炮台大炮的看着像是比觉醒科技发达
 
 看到有人说万紫千红人设和暗喻幻想差不多，还真是，期待欧美好评如潮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qiyu1234  
+##### 272#       发表于 2025-9-13 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419170&amp;ptid=2261859" target="_blank">辞冬 发表于 2025-9-13 09:03</a>
+
+看到有人说万紫千红人设和暗喻幻想差不多，还真是，期待欧美好评如潮</blockquote>
+人设真不像，暗喻背景里有一堆非人类不说人型角色也是为了突出不同种族特征搞得千奇百怪，角色的形象区分特别明显 唯独性别特征不明显<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+千丝万缕目前看着起码还算是正常的
+
