@@ -2853,3 +2853,32 @@ c标只有
 有作为友军出场不等于不分线，可能会比三房的分线队员组成更加灵活</blockquote>
 肯定是角度问题，预告片男性颜值担当都这德行了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 312#       发表于 2025-9-13 11:27
+
+ 本帖最后由 洛亚替身 于 2025-9-13 11:31 编辑 
+
+话说这舞台还是芙朵拉吗？如果是我只能说兄弟赢麻了，无论是敞开国门还是异族入侵<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sakaiyuki  
+##### 313#       发表于 2025-9-13 11:32
+
+中东佬棕皮也太刻板印象了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">明明中东佬是白皮
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  蓮華  
+##### 314#       发表于 2025-9-13 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419746&amp;ptid=2261859" target="_blank">星花 发表于 2025-9-13 11:09</a>
+说不定  剧情抄明英烈。比赛是一场阴谋，逃出去后开始造反。</blockquote>
+飞狐外传是吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

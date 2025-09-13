@@ -13259,3 +13259,57 @@ https://x.com/ShadowofEzra/status/1966614804925210739
 
 有没有展示弹壳照片啊，我很好奇OWO那个到底是啥，有人说是凸OWO
 
+
+*****
+
+####  TI三冠王AME  
+##### 1215#       发表于 2025-9-13 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419753&amp;ptid=2261694" target="_blank">鵝 发表于 2025-9-13 11:11</a>
+
+瓦尔哈拉不是北欧英灵殿吗，印度人也信？
+
+—— 来自 Xiaomi M2003J15SC, Android 12, 鹅球 v3.5.99 ...</blockquote>
+笑点就是印度人根本不信。
+
+北欧新异教是反犹极右重新发明的玩意儿，指导纲领是“基督教是犹太人发明的脑/控白人的工具”，只有自认为最右、最极端、最阿尔法的白右才能意识到异教的魅力。
+
+然后一个白右近期最看不起的印度裔随口就对着信基督教的CK说了新异教词汇，给白右带来的羞辱感比直球攻击大了十倍甚至九倍。
+
+*****
+
+####  聊nsy专用号  
+##### 1216#       发表于 2025-9-13 11:33
+
+<blockquote>遗尿 发表于 2025-9-13 11:27
+有没有展示弹壳照片啊，我很好奇OWO那个到底是啥，有人说是凸OWO</blockquote>
+https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
+
+你可以理解成语c搞黄色
+
+
+*****
+
+####  jy000129  
+##### 1217#       发表于 2025-9-13 11:35
+
+今年的最佳运营奖跑不掉了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lactone  
+##### 1218#       发表于 2025-9-13 11:36
+
+只能说辩论这种东西太反巨魔了
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  busuoni  
+##### 1219#       发表于 2025-9-13 11:37
+
+只要我在海量另类右翼认同符号里藏一句绝地潜兵烂梗，再帆船几句安提法，就有中国老哥替我汴京我是“不关心政治的正常贴吧老哥”是吧。一个字，绝
+
