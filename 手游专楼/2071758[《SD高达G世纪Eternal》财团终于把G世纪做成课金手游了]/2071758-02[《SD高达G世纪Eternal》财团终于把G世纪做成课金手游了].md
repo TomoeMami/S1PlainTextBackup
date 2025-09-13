@@ -4231,3 +4231,18 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 怎么还有传说是00R+巴巴托斯最后一个形态的，一万个舅舅</blockquote>
 那个是纯猜的
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2651#       发表于 2025-9-13 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359332&amp;ptid=2071758" target="_blank">南宮凝香 发表于 2025-9-2 21:46</a>
+
+鳳凰主要是傷害低
+
+小馬哥又沒特別功能
+
+其他點都不錯</blockquote>
+群体回血已经够特别了
+
