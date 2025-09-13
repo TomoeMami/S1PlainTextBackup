@@ -1130,3 +1130,11 @@ reddit潜兵版紧急戒严艹
 
 我TM只是玩梗讽刺啊，谁知道有巨魔当真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大友切  
+##### 7095#       发表于 2025-9-13 16:55
+
+bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

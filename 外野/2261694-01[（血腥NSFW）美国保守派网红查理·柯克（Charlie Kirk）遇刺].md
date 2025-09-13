@@ -14277,3 +14277,11 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 理解了。
 <img src="https://p.sda1.dev/27/c4bac901cb290412e6040e4caaca7e27/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大友切  
+##### 1286#       发表于 2025-9-13 16:52
+
+话说那个绝地潜兵2好玩吗？适合不怎么玩射击游戏的人入坑吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
