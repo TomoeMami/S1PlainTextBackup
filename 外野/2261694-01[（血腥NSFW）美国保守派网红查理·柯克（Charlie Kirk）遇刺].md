@@ -14071,3 +14071,88 @@ X上反贼因为这事互相举报内斗笑死我了
 Sleeply Donald</blockquote>
 Derpy Donald
 
+
+*****
+
+####  循此苦旅  
+##### 1269#       发表于 2025-9-13 14:57
+
+有点牵强
+
+<img src="https://img.stage1st.com/forum/202509/13/145748wnrnr242thxrxrod.png" referrerpolicy="no-referrer">
+
+<strong>bili_poster-1757745873492.png</strong> (182.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 14:57 上传
+
+*****
+
+####  喷气推进实验室  
+##### 1270#       发表于 2025-9-13 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417756&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-12 16:20</a>
+一点点小小的震撼 XD</blockquote>
+上右下下下是什么梗？
+
+*****
+
+####  xuanwu_lei  
+##### 1271#       发表于 2025-9-13 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420793&amp;ptid=2261694" target="_blank">喷气推进实验室 发表于 2025-9-13 14:59</a>
+上右下下下是什么梗？</blockquote>
+披风蟑螂召唤航弹的指令<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 1272#       发表于 2025-9-13 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418552&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-13 01:29</a>
+
+现在推上在左右大战，一边说这人和安提法混百分百是激进左，另一边说扒出一张照片这人是激进右Groyper成员 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">　这俩屁股根本没法搭，里头得有一个是内奸，
+
+人不嗑点什么药没法这么混沌
+
+
+*****
+
+####  Layor Rik  
+##### 1273#       发表于 2025-9-13 15:03
+
+🔻**的“戈培尔”斯蒂芬·米勒刚刚声称：查理·柯克发给他的最后一条信息呼吁解散在全美煽动暴力的激进白左组织，并确认“将以他的名义执行这项使命”。
+🔻我就说死人比活人有用吧？按照获利最大者嫌疑最大的原则，还真说不清楚谁指使的呢。
+🔻via 福克斯新闻
+#暗杀柯克的凶手确认身份##热点现场##海外新鲜事# http://t.cn/AXhw7YYM 
+
+太棒了！美国人真是太棒了~~
+
+—— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zzxzz1019  
+##### 1274#       发表于 2025-9-13 15:04
+
+<img src="https://img.stage1st.com/forum/202509/13/150350t212gjm1zgoqzr24.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 15:03 上传
+
+和我的500kg炸弹说去吧！
+
+*****
+
+####  喷气推进实验室  
+##### 1275#       发表于 2025-9-13 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418228&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-12 17:18</a>
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
+艹，这不就是典中典/pol小将<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
