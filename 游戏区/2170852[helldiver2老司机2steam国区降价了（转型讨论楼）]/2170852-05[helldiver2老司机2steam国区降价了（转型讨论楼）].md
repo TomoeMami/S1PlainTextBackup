@@ -1192,3 +1192,13 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 现在要上哪打霸王虫？？</blockquote>
 欧绍恩一直有啊，海尔迈尔今天外溢了一波被打回去了
 
+
+*****
+
+####  qwased  
+##### 7102#       发表于 2025-9-14 01:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在打霸王虫全靠亚空间补包+核弹手枪，就这样也得打半天
+
+另外发现把没用的喷火器丢霸王虫身上他会带着跑，这样看小地图就能看到霸王虫往哪跑了，很方便
+
