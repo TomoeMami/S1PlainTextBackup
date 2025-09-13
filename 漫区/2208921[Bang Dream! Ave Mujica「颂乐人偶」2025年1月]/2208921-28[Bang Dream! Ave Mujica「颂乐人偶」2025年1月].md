@@ -4492,3 +4492,12 @@ P
 
 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">鸡友狗友来爆米了
 
+
+*****
+
+####  丰川祥  
+##### 41284#       发表于 2025-9-13 13:12
+
+这应援棒非场控还搞24色
+换色换到死<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
