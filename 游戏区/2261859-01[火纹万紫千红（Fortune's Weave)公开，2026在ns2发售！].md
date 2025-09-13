@@ -3363,3 +3363,28 @@ https://www.bilibili.com/video/BV1mrpGzpEEy/</blockquote>
 
 从他那个斗技场还是比赛的名字（大姑习翁）来看，似乎就是芙朵拉海对面的大姑扎国（类似火纹和纹章之谜），风花雪月世界观堂堂拓展，但是和芙朵拉应该是没什么关系了。
 
+
+*****
+
+####  katern  
+##### 359#       发表于 2025-9-13 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421978&amp;ptid=2261859" target="_blank">蓮華 发表于 2025-9-13 19:34</a>
+
+X上纹学家的一点推测</blockquote>
+二次元受众特有的根据发色和脸型猜关系<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我看大概率是没半毛钱关系的另外一个区域
+
+*****
+
+####  蓮華  
+##### 360#       发表于 2025-9-13 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422111&amp;ptid=2261859" target="_blank">katern 发表于 2025-9-13 20:08</a>
+
+二次元受众特有的根据发色和脸型猜关系
+
+我看大概率是没半毛钱关系的另外一个区域 ...</blockquote>
+那不至于，阿鲁卡多和奔驰姐弟肯定是有关系的，纹章是同一个
+
