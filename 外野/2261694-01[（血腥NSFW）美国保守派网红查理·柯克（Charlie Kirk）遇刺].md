@@ -12910,3 +12910,129 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 怎么就激进了？这不是正常三观吗</blockquote>
 乌克兰也自称不是法西斯呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nanayashikijp  
+##### 1182#       发表于 2025-9-13 10:27
+
+你想杀谁就杀谁 因为你就是 绝地潜兵(
+
+*****
+
+####  lactone  
+##### 1183#       发表于 2025-9-13 10:31
+
+这个算不算世界最知名巨魔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  CCCTHUN  
+##### 1184#       发表于 2025-9-13 10:32
+
+<img src="https://img.stage1st.com/forum/202509/13/103112pn50zammmdhpcccn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046748.jpg</strong> (31.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:31 上传
+
+我们超级地球一直是帽子工厂，法西斯虫子，康米机器人，鱿太外星人都是超级地球的死敌。
+
+*****
+
+####  ccared  
+##### 1185#       发表于 2025-9-13 10:33
+
+一个能被牧师和老爹劝去自首的巨魔吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zeroboss4  
+##### 1186#       发表于 2025-9-13 10:34
+
+未发射的弹壳：
+
+"Hey fascist, catch! ⬆️➡️⬇️⬇️⬇️ "法西斯，食炸弹啦！" 后面五个箭头是绝地潜兵里面投弹的键位组合
+
+后续：
+
+美国卫生部长称游戏或助长枪击暴力：已启动关联调查
+
+*****
+
+####  pgain2004  
+##### 1187#       发表于 2025-9-13 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419536&amp;ptid=2261694" target="_blank">ccared 发表于 2025-9-13 10:33</a>
+一个能被牧师和老爹劝去自首的巨魔吗</blockquote>
+你在战场上再怎么自由，最后还不是得看战果简报（
+
+*****
+
+####  就咋的  
+##### 1188#       发表于 2025-9-13 10:35
+
+OwO
+
+<img src="https://img.stage1st.com/forum/202509/13/102924bfzz3vvu1l7pgpzc.png" referrerpolicy="no-referrer">
+
+<strong>OwO.png</strong> (7.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:29 上传
+
+*****
+
+####  CCCTHUN  
+##### 1189#       发表于 2025-9-13 10:35
+
+<blockquote>ccared 发表于 2025-9-13 10:33
+一个能被牧师和老爹劝去自首的巨魔吗</blockquote>
+他爹是警察，收到通缉令的第一眼就认出是自己儿子了。
+
+*****
+
+####  飞天猪2005  
+##### 1190#       发表于 2025-9-13 10:35
+
+<blockquote>zeroboss4 发表于 2025-9-13 10:34
+未发射的弹壳：
+
+"Hey fascist, catch! ⬆️➡️⬇️⬇️⬇️ "法西斯，食炸弹啦！" 后面五个箭头是绝地潜 ...</blockquote>
+赞，封了绝地潜兵吧
+
+*****
+
+####  TI三冠王AME  
+##### 1191#       发表于 2025-9-13 10:36
+
+FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄弟。我们会继续守望。瓦尔哈拉再见。”
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白人新异教主义者全都绷不住了，还得是印度婆罗门亲自拷打蛮友
+
+*****
+
+####  bladethunder  
+##### 1192#       发表于 2025-9-13 10:37
+
+所以现在4ch粪坑里是怎么说的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">打起来了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  飞天猪2005  
+##### 1193#       发表于 2025-9-13 10:37
+
+<blockquote>TI三冠王AME 发表于 2025-9-13 10:36
+FBI 局长卡什·帕特尔：“致我的朋友查理·柯克。安息吧，兄弟。我们会继续守望。瓦尔哈拉再见。”
+
+白人新 ...</blockquote>
+这名字，局长是印度的？
+
