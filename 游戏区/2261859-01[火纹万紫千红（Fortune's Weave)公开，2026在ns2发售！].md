@@ -2882,3 +2882,28 @@ c标只有
 说不定  剧情抄明英烈。比赛是一场阴谋，逃出去后开始造反。</blockquote>
 飞狐外传是吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 315#       发表于 2025-9-13 11:51
+
+蓝毛眼镜还挺可爱的，就是画风不太一样<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 316#       发表于 2025-9-13 11:53
+
+繁中预告片用的英文版演示有点微妙啊
+
+不会到时候本地化也是基于英文版台词吧
+
+
+*****
+
+####  撒撒  
+##### 317#       发表于 2025-9-13 11:55
+
+泄露的大部分是蓝色外框，可能一方势力（一国）是这种风格，还有三个国家？可能是不同风格。
+
