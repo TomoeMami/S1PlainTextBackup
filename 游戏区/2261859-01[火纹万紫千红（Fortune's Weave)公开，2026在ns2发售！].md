@@ -2559,3 +2559,27 @@ fortune's weave --&gt; four tunes weave……四调？
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  Nez  
+##### 283#       发表于 2025-9-13 10:18
+
+四（丝）律（缕）也行，刚好还对上港任翻译
+
+
+*****
+
+####  巴尔干炮  
+##### 284#       发表于 2025-9-13 10:24
+
+<img src="https://img.stage1st.com/forum/202509/13/102352uiektt7t2z2ui27h.png" referrerpolicy="no-referrer">
+
+<strong>1757728909464106.png</strong> (28.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:23 上传
+
+目前已知人物头像。
+

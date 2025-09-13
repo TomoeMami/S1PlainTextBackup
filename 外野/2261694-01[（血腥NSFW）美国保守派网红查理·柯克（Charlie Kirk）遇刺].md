@@ -12866,3 +12866,47 @@ https://x.com/ShadowofEzra/status/1966614804925210739
 
 4ch老哥整活就是猛！
 
+
+*****
+
+####  yesandno  
+##### 1178#       发表于 2025-9-13 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68418228&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-13 00:18</a>
+https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?share_code=1e9kGgQEAnL ...</blockquote>
+反鱿 反lgbt 不是法西斯
+怎么就激进了？这不是正常三观吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  白菜达人  
+##### 1179#       发表于 2025-9-13 10:19
+
+下一步是搜查出案犯购买了MIC的斐济杯，然后都是鈡的错。
+
+
+*****
+
+####  hgnooweaj  
+##### 1180#       发表于 2025-9-13 10:20
+
+<img src="https://img.stage1st.com/forum/202509/13/102013pjkkdzjupmb44pkm.png" referrerpolicy="no-referrer">
+
+<strong>4chan.png</strong> (118.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 10:20 上传
+
+*****
+
+####  aeolus039  
+##### 1181#       发表于 2025-9-13 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68419448&amp;ptid=2261694" target="_blank">yesandno 发表于 2025-9-13 10:15</a>
+反鱿 反lgbt 不是法西斯
+怎么就激进了？这不是正常三观吗</blockquote>
+乌克兰也自称不是法西斯呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
