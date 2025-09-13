@@ -3105,3 +3105,31 @@ c标只有
 认真的吗，刚出的时候全是吐槽管人画风的</blockquote>
 主要是后半句立不起来啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 337#       发表于 2025-9-13 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420511&amp;ptid=2261859" target="_blank">撒撒 发表于 2025-9-13 13:53</a>
+
+关于一张公元395年的罗马帝国行政区划图的翻译及资料整理
+
+https://zhuanlan.zhihu.com/p/56272119</blockquote>
+还真有可能，登场最多的黑皮女指挥官的不会是帕尔米拉的芝诺比娅的生态位？这部还真可能三世纪危机当故事原型
+
+
+*****
+
+####  cih  
+##### 338#       发表于 2025-9-13 14:12
+
+丑比成这样的人设是进军国际市场的调研么？
+
+*****
+
+####  墨染白泉  
+##### 339#       发表于 2025-9-13 14:15
+
+藏了个自捏主角吗
+
