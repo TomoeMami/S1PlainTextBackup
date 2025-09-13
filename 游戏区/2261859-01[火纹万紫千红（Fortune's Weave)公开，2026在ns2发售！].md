@@ -3245,3 +3245,11 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 
 所以这作到底有没有光荣参与？没有我必买，有我可能就要考虑考虑了，在我这结合是要比三房好玩太多的游戏～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jimclack  
+##### 353#       发表于 2025-9-13 18:40
+
+或说横版波斯王子主角也留的脏辫，波斯人以前也有留脏辫的传统吗
+

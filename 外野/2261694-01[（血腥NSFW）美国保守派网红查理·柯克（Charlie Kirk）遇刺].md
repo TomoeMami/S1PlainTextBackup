@@ -14428,3 +14428,39 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 驴党呼吁线上平和，象党要清理激进派，有关部门公布烂梗小哥没有“注册”的政治派别，同一时间 4chan 社区：“emm... 这好像是我们的人 LOL”
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 1301#       发表于 2025-9-13 18:42
+
+2x2ch全责。
+
+*****
+
+####  胜改藏  
+##### 1302#       发表于 2025-9-13 18:43
+
+<blockquote>就咋的 发表于 2025-9-13 18:33
+驴党呼吁线上平和，象党要清理激进派，有关部门公布烂梗小哥没有“注册”的政治派别，同一时间 4chan 社 ...</blockquote>
+管他哪派的
+
+<img src="https://img.stage1st.com/forum/202509/13/184318p2ine5jihfnznazb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000029327.jpg</strong> (21.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 18:43 上传
+
+*****
+
+####  就咋的  
+##### 1303#       发表于 2025-9-13 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421746&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-13 18:43</a>
+
+管他哪派的</blockquote>
+BOOOOOOOOOOM! !
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

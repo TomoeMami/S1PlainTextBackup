@@ -67,3 +67,17 @@
 
 既然还有以前的同学有可能在学校间交流时碰到，当初是怎么样心大到不变装就直接插班混进去当卧底？
 
+
+*****
+
+####  cxj649  
+##### 236#       发表于 2025-9-13 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421660&amp;ptid=2193746" target="_blank">starfisher 发表于 2025-9-13 18:24</a>
+
+既然还有以前的同学有可能在学校间交流时碰到，当初是怎么样心大到不变装就直接插班混进去当卧底？ ...</blockquote>
+作者大手别管
+
+甚至女主被知道女主小时候身世，就是学院的人都自动脑内无视女主是7贤这可能
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
