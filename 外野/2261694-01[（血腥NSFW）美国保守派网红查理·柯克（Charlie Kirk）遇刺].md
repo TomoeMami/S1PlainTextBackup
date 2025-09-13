@@ -14545,3 +14545,14 @@ BOOOOOOOOOOM! !
 不仅效果是论破，还真的射的是言弹 ...</blockquote>
 枪弹辩驳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 1311#       发表于 2025-9-13 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420915&amp;ptid=2261694" target="_blank">windtrack_qh 发表于 2025-9-13 15:28</a>
+
+这一任川子比上一任川子控制力还是强点的，上一任甚至内阁都不是自己人 ...</blockquote>
+所以在部分MAGA看来川子不纯洁了。
+
