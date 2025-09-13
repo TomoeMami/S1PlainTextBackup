@@ -1938,3 +1938,11 @@ Comiket 的周边也请多多支持的话我会很开心。
 总之，大家谢谢了。
 回头见，拜拜。
 
+
+*****
+
+####  受菊  
+##### 19574#       发表于 2025-9-14 00:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">苔姨这联动基本上就是给主播做售后了，只能说还得是母爱
+

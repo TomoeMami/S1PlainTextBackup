@@ -15036,3 +15036,17 @@ nfQ2w-2fc2KqT1kSgf-ba.jpg.medium.jpg
 
 emmmmm，现在最新的消息是，这人有一个同居的MTF女（？）友，或许要再观察观察这人的光谱了。
 
+
+*****
+
+####  就咋的  
+##### 1352#       发表于 2025-9-14 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422815&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-13 22:43</a>
+
+上推看了几个红脖感觉他们要把自己气死了
+
+到处搜捕做meme的人</blockquote>
+红脖儿现在全网搜 Haters 的社交软件曝光，不怕踩到雷碰上 Hackers
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
