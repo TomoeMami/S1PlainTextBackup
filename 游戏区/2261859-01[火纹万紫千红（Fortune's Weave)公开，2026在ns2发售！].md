@@ -3404,3 +3404,14 @@ X上纹学家的一点推测</blockquote>
 
 等闲识得东风面，万紫千红总是春。”
 
+
+*****
+
+####  李阿宝  
+##### 362#       发表于 2025-9-13 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421492&amp;ptid=2261859" target="_blank">墨染白泉 发表于 2025-9-13 17:48</a>
+
+武器耐久度又回来了，我这个仓鼠玩家还是不喜欢这点。engage就是没耐久度，给我下棋下爽了 ...</blockquote>
+没耐久度就给强力武器下毒，我还是宁可有耐久
+
