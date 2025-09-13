@@ -13456,3 +13456,73 @@ https://knowyourmeme.com/memes/notices-bulge-owo-whats-this
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  outerish  
+##### 1234#       发表于 2025-9-13 12:35
+
+有一说一，最大的乐子应该是左右塔塔开，USA USB USC
+
+现在虽然蛮搞笑但是不上不下的，说不定过几天就没人记得了
+
+*****
+
+####  天选之子  
+##### 1235#       发表于 2025-9-13 12:39
+
+<blockquote>outerish 发表于 2025-9-13 12:35
+有一说一，最大的乐子应该是左右塔塔开，USA USB USC
+
+现在虽然蛮搞笑但是不上不下的，说不定过几天就没人记 ...</blockquote>
+牢美枪支泛滥，说不定以后会有更多的模仿犯，阿川的日子一天天地好起来了。
+
+*****
+
+####  ccared  
+##### 1236#       发表于 2025-9-13 12:41
+
+ykw没有继续发推也不继续长篇大论，应该说他本人的核心圈子还是试图弥合国内两派矛盾的。
+
+问题是钦定的好圣孙死了，他手下的人会争着吃留下的真空，一争就是比谁更极端了。最后民主党的基层日子人仍然会承受前所未有的审查冲击，去催生下一场极端事件。
+
+
+*****
+
+####  xuanwu_lei  
+##### 1237#       发表于 2025-9-13 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420175&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-13 12:35</a>
+有一说一，最大的乐子应该是左右塔塔开，USA USB USC
+
+现在虽然蛮搞笑但是不上不下的，说不定过几天就没人记 ...</blockquote>
+三个US还是太缺乏想象力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按照知乎答案的说法，大帐篷被撕毁以后就是美共、Dem Establishment、MAGA Establishment、Groyper四党大混操<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果安人再从美共的Antifa统一战线里独立出来，美军再来个拥兵自保，那就是六党大混操<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡文分则能成  
+##### 1238#       发表于 2025-9-13 12:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/13/124357ctjtszjftssud7ej.jpg" referrerpolicy="no-referrer">
+
+<strong>37a6af0265e14133fedf6b18333618d5108894341.jpg</strong> (27.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 12:43 上传
+
+*****
+
+####  巨魔已被忠诚  
+##### 1239#       发表于 2025-9-13 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420031&amp;ptid=2261694" target="_blank">三尖酸努努 发表于 2025-9-13 12:06</a>
+这下有乐子了https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313</blockquote>
+下次表情之后发链接回车一行，链接点的难死了。
+
