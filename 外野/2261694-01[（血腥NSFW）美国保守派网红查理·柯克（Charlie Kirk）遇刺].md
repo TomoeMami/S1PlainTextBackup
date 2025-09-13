@@ -15182,3 +15182,46 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 
 红脖的政治站位不是很理想
 
+
+*****
+
+####  Awanano  
+##### 1361#       发表于 2025-9-14 07:36
+
+这事情给我最大震撼的还是阿川原来现在还没上满9个月
+
+整活的密集程度让我连关税反击都感觉像是去年发生的
+
+即便知道阿川这四年乐子不小这个丰富性还是太夸张了
+
+*****
+
+####  Vega2017  
+##### 1362#       发表于 2025-9-14 07:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423866&amp;ptid=2261694" target="_blank">Awanano 发表于 2025-9-14 07:32</a>
+感觉他家人要他投也是莫名其妙的，干出这种乐子横竖都是死了，晚个几天还能让他们心爱的阿川多攻击几天对手 ...</blockquote>
+也不一定，之前杀总统的好几个被抓起来也没判死刑，这算自首，而且死了maga大将，某种程度上是利好民主党的，过几年说不定就放了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Awanano  
+##### 1363#       发表于 2025-9-14 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423877&amp;ptid=2261694" target="_blank">Vega2017 发表于 2025-9-14 07:38</a>
+
+也不一定，之前杀总统的好几个被抓起来也没判死刑，这算自首，而且死了maga大将，某种程度上是利好民主党 ...</blockquote>
+老美回旋余地这么大的<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+我还以为象党主场州犯案他已经必死了
+
+*****
+
+####  KIMINO  
+##### 1364#       发表于 2025-9-14 07:45
+
+可是我看fox已经指认他有同性“伴侣”了。照片都放出来了。<img src="https://p.sda1.dev/27/a672b80892f783cf72036a147a3df4a1/image.jpg" referrerpolicy="no-referrer">
+
