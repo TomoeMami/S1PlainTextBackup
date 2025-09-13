@@ -3438,3 +3438,54 @@ engage如果游戏里和cg一样，吐槽的大概就没那么多了
 
 感觉最明显的是雷达女士<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气质都不一样了
 
+
+*****
+
+####  hkguty  
+##### 365#       发表于 2025-9-13 21:07
+
+感觉建模是engage的团队，捏的让人看不出画师的画风
+
+*****
+
+####  woaimiyabi  
+##### 366#       发表于 2025-9-13 21:08
+
+喷了游戏人设一天  好好讨论游戏实质性内容的没几个，放一个别人的分析吧。
+
+B56F37283076EC2FC57886CC2178BD3D.jpg
+(117.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 21:07 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/210743dyov9yvvn29yoelw.jpg" referrerpolicy="no-referrer">
+
+960BD9DF18D150CBFD791E292DF7D912.jpg
+(108.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 21:07 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/210748q6q62eiqtteti4zt.jpg" referrerpolicy="no-referrer">
+
+9ACB6CD28A741A21682A7244A5BD42D1.jpg
+(82.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 21:07 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/210751pmqkakgl9h0chl7n.jpg" referrerpolicy="no-referrer">
+
+CB707CB9C1E72E04367CB45158D1957E.jpg
+(103.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 21:07 上传
+
+<img src="https://img.stage1st.com/forum/202509/13/210754rulvipvmlfvlu68y.jpg" referrerpolicy="no-referrer">
+
