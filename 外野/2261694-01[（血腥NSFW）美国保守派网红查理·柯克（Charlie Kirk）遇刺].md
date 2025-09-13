@@ -14482,3 +14482,33 @@ BOOOOOOOOOOM! !
 
 在弹壳上刻烂梗是不是同时做到了武器的批判和批判的武器<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逐天  
+##### 1306#       发表于 2025-9-13 19:01
+
+这人挺难活到开庭那天吧，没抓到之前，ykw想把这人塑造成白左去压对面，但是目前来看更像内部打架，你看州长那个采访就是，现在只能怪民主党污染了孩子
+
+到时候凶手真出来说话把事情定性成好汉杀好汉就麻烦了
+
+
+*****
+
+####  yuandi0120  
+##### 1307#       发表于 2025-9-13 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421746&amp;ptid=2261694" target="_blank">胜改藏 发表于 2025-9-13 18:43</a>
+
+管他哪派的</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/13/190510wwxfzbff8wcy045n.png" referrerpolicy="no-referrer">
+
+<strong>0439.png</strong> (38.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 19:05 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
