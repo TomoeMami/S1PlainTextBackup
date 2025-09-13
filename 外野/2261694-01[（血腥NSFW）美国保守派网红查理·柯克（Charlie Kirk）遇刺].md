@@ -14218,3 +14218,28 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack_qh  
+##### 1281#       发表于 2025-9-13 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68420894&amp;ptid=2261694" target="_blank">loli炮 发表于 2025-9-13 15:26</a>
+
+有没有可能 川子是二战后美国实际控制能力最低的总统  换句话说就是被架成一个空架子 搞的那些激进改革最后 ...</blockquote>
+这一任川子比上一任川子控制力还是强点的，上一任甚至内阁都不是自己人
+
+*****
+
+####  llysander  
+##### 1282#       发表于 2025-9-13 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417758&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-12 23:20</a>
+
+现在就看TACO会不会把锅甩给游戏了，毕竟3月份的时候就甩过
+
+前不久还有人觉得TACO是玩家这一边的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">　甩锅游戏了还怎么攻击政敌，政治动物不会拱手送掉这种机会
+
+站玩家边也是因为现在玩家因为反（游戏业内的）dei压倒性站保守派，可以被利用
+
