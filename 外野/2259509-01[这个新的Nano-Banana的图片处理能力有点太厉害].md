@@ -44,3 +44,14 @@ Please turn this photo into a figure. Behind it, there should be an paper box wh
 
 字节的那个怎么样？据说比这个还强？
 
+
+*****
+
+####  droople  
+##### 89#       发表于 2025-9-13 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68337544&amp;ptid=2259509" target="_blank">泰坦失足 发表于 2025-8-29 11:33</a>
+
+随便输了个中文提示词, 效果已经很好了. 未来会有那种提供2D立绘, 把涂装好的3D打印手办寄到家里的流水线吗 ...</blockquote>
+现在也行了吧
+

@@ -14243,3 +14243,28 @@ https://www.zhihu.com/question/1949966863627953161/answer/1949982324147074313?sh
 
 站玩家边也是因为现在玩家因为反（游戏业内的）dei压倒性站保守派，可以被利用
 
+
+*****
+
+####  aeolus039  
+##### 1283#       发表于 2025-9-13 16:31
+
+🔻犹他州州长斯宾塞·考克斯表示：“过去的 33 小时里，我一直在祈祷，如果悲剧必须在这里发生，那么不要是我们中的一员，希望是外州开车来的人，或是异国而来的访客。但事实恰恰相反，凶手就是我们中的一员。”
+
+笑cry
+
+*****
+
+####  H2Ofrozen  
+##### 1284#       发表于 2025-9-13 16:34
+
+世纪大和解！终于来好消息了
+
+<img src="https://img.stage1st.com/forum/202509/13/163244pm6lld85idooni87.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1757747015148.jpeg</strong> (230.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-13 16:32 上传
+
