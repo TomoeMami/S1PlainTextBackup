@@ -4211,3 +4211,26 @@ is肯定是有能力做好slg的，问题是愿意花多大力气去做。其实
 
 想起因为犯懒教会线用留的存档，结果因为当时初见红花没刷够蕾雅好感没能婚蕾雅就sad
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 436#       发表于 2025-9-14 22:23
+
+ 本帖最后由 伊露伊道格拉斯 于 2025-9-14 22:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68427849&amp;ptid=2261859" target="_blank">Jabeck 发表于 2025-9-14 22:12</a>
+
+三房的3D建模也跟立绘差距不小。</blockquote>
+主要是三房大部分时间都是用立绘，就能做到遮瑕的效果，不像engage，对话和战斗都用的3D模型。
+
+虽然engage模型看起来确实比三房那糊的建模精度高些，但实机的建模对比立绘和CG的建模都没眼看<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">。
+
+只能说，还好剧情里神龙就是憨憨的，建模也就加深了憨憨的刻板印象，不然观感更差。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 437#       发表于 2025-9-14 22:25
+
+学IF这种不同路线不同关卡的就行了。
+
