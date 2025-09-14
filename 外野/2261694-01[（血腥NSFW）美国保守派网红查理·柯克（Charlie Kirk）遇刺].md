@@ -15849,3 +15849,11 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 911之后也有一堆殖人说“今晚我们都是美国人”，全世界的殖人都喜欢给自己疯狂加戏。
 
+
+*****
+
+####  约定的明日  
+##### 1420#       发表于 2025-9-14 22:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老中与其说是什么劳保神国，不如说是建制神国，美国不可能禁枪最核心的原因就是联邦政府没那个能力
+
