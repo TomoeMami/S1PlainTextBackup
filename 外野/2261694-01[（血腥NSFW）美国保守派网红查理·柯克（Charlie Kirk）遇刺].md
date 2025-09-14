@@ -15684,3 +15684,24 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
   
 
+
+*****
+
+####  johnkamsar  
+##### 1405#       发表于 2025-9-14 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422785&amp;ptid=2261694" target="_blank">朔方原的星 发表于 2025-9-13 22:37</a>
+确实很多极右白皮会向往⏰，因为他们相信那些西方媒体的宣传……
+觉得又打压绿又关押维的⏰简直是天堂， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  出逃白鲸  
+##### 1406#       发表于 2025-9-14 19:03
+
+<blockquote>johnkamsar 发表于 2025-9-14 18:57
+想起那个老梗了：“某种意义上来说，老钟是你美劳保的地上劳保神国”</blockquote>
+但是美国劳保反对堕胎啊
+

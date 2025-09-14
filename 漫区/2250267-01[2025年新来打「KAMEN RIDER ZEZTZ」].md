@@ -920,3 +920,16 @@ ep1:第一次看骑士，感觉开局慢热。
 
 ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 
+
+*****
+
+####  pokemon最爱  
+##### 276#       发表于 2025-9-14 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425383&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2025-9-14 14:37</a>
+
+哇第二集就把预知梦的点子用上了，还是个小反转
+
+就算是国民级偶像，每个人都会梦到宁梦也不正常吧</blockquote>
+高桥作品的女主就没有普通人全是人造出来的非人，极狐更是女一猫猫女二吃牡蛎身世都有问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
