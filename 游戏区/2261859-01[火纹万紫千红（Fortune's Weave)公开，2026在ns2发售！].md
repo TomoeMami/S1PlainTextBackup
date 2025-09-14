@@ -3995,3 +3995,14 @@ engage如果把超难以下所有难度都取消掉风评会好很多
 
 好兄弟感觉游离在剧情冲突核心之外的，说句难听的删掉也不影响主线吧
 
+
+*****
+
+####  EigenVesper  
+##### 414#       发表于 2025-9-14 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425887&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-14 16:52</a>
+
+其实IS和玩家观感定位都不一样，看访谈风花雪月才是稳住遗老的成人战争史，结合应该是尽可能不踩雷扩展玩家 ...</blockquote>
+感觉就是站队的时候一定要强调自己才是系列正统
+
