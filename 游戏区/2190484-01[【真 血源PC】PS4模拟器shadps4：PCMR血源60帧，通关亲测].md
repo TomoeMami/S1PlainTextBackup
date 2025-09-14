@@ -1680,3 +1680,15 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 —— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  usodakedo  
+##### 161#       发表于 2025-9-15 07:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68428724&amp;ptid=2190484" target="_blank">gkstill 发表于 2025-9-15 01:00</a>
+现在基本上是完全版了，除了显存会越打越多，但是连续玩两个小时还是不会爆炸的（rtx2080，8g显存），偶 ...</blockquote>
+8g显存大概最多能顶多久？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
