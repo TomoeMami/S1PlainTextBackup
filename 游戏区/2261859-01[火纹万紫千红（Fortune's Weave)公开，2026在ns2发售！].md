@@ -3836,3 +3836,44 @@ is其实被任天堂点名说那不是我们的子公司，财报里甚至都没
 
 虽然我是觉醒开始玩的，应该没记错以前苍炎，晓女一类战争史模式好像销量都快把火纹系列腰斩连带着整个SRPG一起走进历史的坟墓里吧？
 
+
+*****
+
+####  FACS  
+##### 401#       发表于 2025-9-14 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425887&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-14 16:52</a>
+其实IS和玩家观感定位都不一样，看访谈风花雪月才是稳住遗老的成人战争史，结合应该是尽可能不踩雷扩展玩家 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">真的假的，三房给老登结合扩圈吗
+还找不找得到访谈链接（
+
+*****
+
+####  洛亚替身  
+##### 402#       发表于 2025-9-14 17:03
+
+ 本帖最后由 洛亚替身 于 2025-9-14 17:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425922&amp;ptid=2261859" target="_blank">FACS 发表于 2025-9-14 17:02</a>
+
+真的假的，三房给老登结合扩圈吗
+
+还找不找得到访谈链接（</blockquote>
+Yokota: The two games began development at similar times, so one of the themes was to do things differently from Three Houses.
+
+Higuchi: The last game, Three Houses, was planned with the idea of making an adu/lt  war chronicle. On the other hand, Engage was made with the idea of broadening our audience, such that even people who have never tried FE would want to pick it up. It’s been over 10 years since Awakening, so we also thought of making another FE that would appeal to a wide audience.
+
+Yokota: These ideas surface in the gameplay loop of this game too. Three Houses had life at the Monastery as part of the gameplay, and the way you advanced the main story was a bit special, while Engage uses the familiar style of going back and forth between the map and story chapters.
+
+Tei: For the story, unlike Three Houses, we thought it might be good to focus on the growth of the protagonist. While FE is definitely a war chronicle, there have been plenty of games that were tales of adventure or heroism. The first title, Shadow Dragon and the Blade of Light as well as the three Gameboy Advance games left impressions of that nature, so I feel that this series can accommodate either direction. As storytellers, we decided on the orthodox style of focusing on Alear’s story while the Emblems help them move forward.
+
+欧美那边也觉得抽象，还吐槽说有时候老板傻逼，员工也只能拍手叫好
+
+*****
+
+####  巴尔干炮  
+##### 403#       发表于 2025-9-14 17:03
+
+风花雪月涌进来的新人1是因为学院，2是皇女这个争议角色吧，和战旗部分没什么关系。
+
+万紫千红想成功也一样，你得承认战旗这种玩法已经过时了，不搞点新东西进来就别想火。
+
