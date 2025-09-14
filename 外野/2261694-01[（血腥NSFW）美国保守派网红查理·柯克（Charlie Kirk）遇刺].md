@@ -15654,3 +15654,17 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 润人群体早就开始就这事互相举报了</blockquote>
 “你爱美国？你爱的是哪个美国？”<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全都笑了  
+##### 1403#       发表于 2025-9-14 16:51
+
+以后殖人之间说话先对暗号，暗号对不上，就说明眼前这人比小粉红还可恶10000倍。标准暗号：
+
+“支持堕胎吗”
+
+“ykw是不是美国最伟大的总统”
+
+“查理柯克死了是个杯具吗”
+
