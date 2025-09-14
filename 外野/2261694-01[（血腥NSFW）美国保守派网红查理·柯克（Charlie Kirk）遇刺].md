@@ -15451,3 +15451,28 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">润人群体早就开始就这事互相举报了
 
+
+*****
+
+####  胜改藏  
+##### 1387#       发表于 2025-9-14 12:40
+
+<blockquote>2017.05.04 发表于 2025-9-14 12:14
+都要到白宫告状了，也别叫黄右了吧黄到哪去了
+
+叫殖右差不多
+</blockquote>
+黄在皮肤，底层代码啊，它内心再殖，在白皮看来还是黄皮猪仔
+
+*****
+
+####  jy000129  
+##### 1388#       发表于 2025-9-14 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68421246&amp;ptid=2261694" target="_blank">大友切 发表于 2025-9-13 16:52</a>
+话说那个绝地潜兵2好玩吗？适合不怎么玩射击游戏的人入坑吗？</blockquote>
+好玩，而且并不像CS之类的射击游戏那样需要很好的瞄准能力，战斗中可以通过召唤空中打击和炮台之类来解决目标
+能找好朋友一起打更快乐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
