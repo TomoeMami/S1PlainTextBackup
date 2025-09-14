@@ -846,3 +846,25 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 昨天刚到深3，1、2胡起来比普通模式爽，虽然背的时候也是到处碰壁拔剑四顾心茫然（。感觉2的水温对我来说正 ...</blockquote>
 折叠流是怎么弄的，目前只过了一次一层，折磨<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 1708#       发表于 2025-9-14 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424433&amp;ptid=2210352" target="_blank">luodang007 发表于 2025-9-14 10:58</a>
+折叠流是怎么弄的，目前只过了一次一层，折磨</blockquote>
+举例就是火增伤，火+1，火+2是可以叠加的，物理职业还能兼容上油增伤，法系可以叠加魔法增伤，祷告增伤之类的，局内还能上黄金树武器战技增益之类，叠起来伤害就很高了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  luodang007  
+##### 1709#       发表于 2025-9-14 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424758&amp;ptid=2210352" target="_blank">jy000129 发表于 2025-9-14 12:04</a>
+
+举例就是火增伤，火+1，火+2是可以叠加的，物理职业还能兼容上油增伤，法系可以叠加魔法增伤，祷告增伤之 ...</blockquote>
+了解了，那这样子还是爆发高速度快的职业比较好打了，<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
