@@ -15857,3 +15857,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老中与其说是什么劳保神国，不如说是建制神国，美国不可能禁枪最核心的原因就是联邦政府没那个能力
 
+
+*****
+
+####  2017.05.04  
+##### 1421#       发表于 2025-9-14 22:39
+
+红脖历史上没少突突联邦公务员，千万别以为这帮人是什么善茬
+前段时间还有攻击灭山火的消防队员的事
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
