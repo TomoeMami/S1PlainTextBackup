@@ -15497,3 +15497,13 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  卡普空  
+##### 1391#       发表于 2025-9-14 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423762&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-14 06:03</a>
+这什么帝国大概250年保质期不是中国独一份的经验吗</blockquote>
+说明偷偷学习过伟大文明的先进经验了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

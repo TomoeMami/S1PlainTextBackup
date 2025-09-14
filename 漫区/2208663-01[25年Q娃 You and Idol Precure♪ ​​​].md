@@ -153,3 +153,15 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 
 这集PPT有点多了，黑板上亮签名不怕被身份暴露吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 1290#       发表于 2025-9-14 13:38
+
+感觉有十几年没看Q娃剧场版了，不过今年的真好看……
+
+后半一直在开live，而且跟前辈Q娃的共斗方式也非常idol……
+
+如果说年年都是为醋包饺子，那今年可以说醋香馅儿美，就是皮有点破包不大住<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
