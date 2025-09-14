@@ -15476,3 +15476,24 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  廖化  
+##### 1389#       发表于 2025-9-14 12:50
+
+我以前觉得殖子再怎么蠢至少算个智人生物吧，结果今天看到有殖子说要把状子递交白宫转乘国务卿桌上，下面一堆殖友大喊XX真有排面手眼通天
+
+今天的乐子太可乐了！看的我都想喝个酒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_gyanc  
+##### 1390#       发表于 2025-9-14 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424382&amp;ptid=2261694" target="_blank">LilithMardin 发表于 2025-9-14 10:44</a>
+最后一个橙衣哥已经终结比赛了，该说的都说了</blockquote>
+终结比赛？哪里看出来的？他说左派指责右派散播仇恨是假的，但这是真的么？这个采访明显能看出屁股是朝哪边坐的，要我说这和查理那些“辩论”都是一个路数的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

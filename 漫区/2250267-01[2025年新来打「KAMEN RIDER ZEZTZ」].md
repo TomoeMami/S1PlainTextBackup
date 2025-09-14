@@ -794,3 +794,48 @@ image.png
 
 这种梦里/幻想中战斗让我想起非公认战队了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 265#       发表于 2025-9-14 12:47
+
+<img src="https://img.stage1st.com/forum/202509/14/124711am8gnfgfm3d3xema.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 12:47 上传
+
+第三话铺设定了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOHNCHCHAN  
+##### 266#       发表于 2025-9-14 12:52
+
+久违的实拍追车戏，有点梦回空我的感觉。
+
+*****
+
+####  pokemon最爱  
+##### 267#       发表于 2025-9-14 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424926&amp;ptid=2250267" target="_blank">挺好的 发表于 2025-9-14 12:47</a>
+
+第三话铺设定了</blockquote>
+虽然但是这个翻译是错的，原文的意思是“到第三话为止才是事实上的第一话”（也就是说前三集加起来相当于ZZZ这个故事实际上的第一话）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 268#       发表于 2025-9-14 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424926&amp;ptid=2250267" target="_blank">挺好的 发表于 2025-9-14 12:47</a>
+第三话铺设定了</blockquote>
+不如说1-3话一直在铺基础设定
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
