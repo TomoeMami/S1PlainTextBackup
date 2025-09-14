@@ -3635,3 +3635,11 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 魂焰技和战技是分开的，那么可能只有战技才消耗武器耐久，普攻随便用
 
+
+*****
+
+####  chjimi  
+##### 382#       发表于 2025-9-14 13:24
+
+不是吧又搞分线，三房3.5条线各种复制粘贴关卡历历在目，新作还搞4条线？is哪来的自信啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
