@@ -3978,3 +3978,20 @@ engage如果把超难以下所有难度都取消掉风评会好很多
 
 不知道IS的人自己玩没玩过普通难度的engage，那几乎就是屎了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 413#       发表于 2025-9-14 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426167&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2025-9-14 17:48</a>
+
+题外话，最近看几个管人直播三房都是通了一条青狮子线完事的，该说是传统王子复仇线受欢迎还是青狮子班综合 ...</blockquote>
+无论怎么看青狮线都最正统王道吧
+
+红秋裤线算是隐藏反派线
+
+教会线打起来也很难受，被背叛的感觉
+
+好兄弟感觉游离在剧情冲突核心之外的，说句难听的删掉也不影响主线吧
+
