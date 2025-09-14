@@ -15868,3 +15868,18 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  双面人  
+##### 1422#       发表于 2025-9-14 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68427985&amp;ptid=2261694" target="_blank">约定的明日 发表于 2025-9-14 22:31</a>
+
+老中与其说是什么劳保神国，不如说是建制神国，美国不可能禁枪最核心的原因就是联邦政府没那个能力 ...</blockquote>
+1.是没有动力，几大枪支制造商都给钱的你把市场关了，枪支制造商他们真有枪啊
+
+2.是没有能力，你让军队去手脚枪**可不就就变相开启内战了
+
+之前有沙雕看中国枪击案发生率垫底的时候冷嘲热讽，我就说有本事你让美国也像当年中国那样搞枪支治理啊，你弄不成又啥脸来嘲讽的
+
