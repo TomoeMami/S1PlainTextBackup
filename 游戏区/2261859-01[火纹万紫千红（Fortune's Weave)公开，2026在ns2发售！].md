@@ -3715,3 +3715,31 @@ gvsgicu3gzof1.jpeg
 
 <img src="https://img.stage1st.com/forum/202509/14/152201m87ecaeb28f19e9r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 390#       发表于 2025-9-14 15:26
+
+ 本帖最后由 星花 于 2025-9-14 15:30 编辑 
+
+黑人小孩剧情是最好抄的。类似的各种文学作品写过无数遍了。问题火纹肯定会写的很欢乐。
+
+*****
+
+####  xwr  
+##### 391#       发表于 2025-9-14 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425528&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-14 15:22</a>
+
+大概率是要分线的，三世纪危机罗马大逃杀可能性又高了点</blockquote>
+既然设计了旗帜，分线是必然的，pv里还有互为友军的画面，现在就是不太清楚要怎么分，一个小屁孩，一个可疑的外乡人，一个舞女，一个战士女王，我都不知道要如何把他们撮合在一起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星花  
+##### 392#       发表于 2025-9-14 15:34
+
+四个人可能是引子，引出四派人。
+
