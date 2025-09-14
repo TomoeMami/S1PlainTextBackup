@@ -8,3 +8,14 @@
 
 ps:另外求一个从哥布林到哥布林神的漫画源，需要中文的，目前加的几个都是英文的<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慈父斯大林  
+##### 91#       发表于 2025-9-14 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408868&amp;ptid=2254551" target="_blank">luodang007 发表于 2025-9-11 18:45</a>
+看了下我也用的那个总插件仓库，但是有很多插件更新不下来是什么原因呢，有的又可以，比如zaimanhua是可以 ...</blockquote>
+GODA漫画、COLAMANGA、漫蛙。
+就是对条漫分页切割方式有点奇怪，怎么调都不舒服。
+

@@ -3768,3 +3768,14 @@ gvsgicu3gzof1.jpeg
 好好做系谱重制双剑重制能死吗。整这种东西出来恶心人，仓花能不能撒泡尿自己看看自己画的这堆黑鬼一个个是 ...</blockquote>
 说句不爱听的~~~系谱复刻哪怕不爆死,也不容易大卖,更何况现在DEI还没退潮,系谱里满地的伦理梗要么改成鬼都不认得的新设定,要么就是风评爆炸
 
+
+*****
+
+####  Lacsiess  
+##### 395#       发表于 2025-9-14 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417708&amp;ptid=2261859" target="_blank">八月飞雪 发表于 2025-9-12 23:15</a>
+
+火纹什么时候能出steam版本的呢……当初买NS结果到后面就玩了风花雪月和健身环，感觉真的有点不值得 ...</blockquote>
+任地狱第一方游戏你指望steam~~~除非G胖收购任地狱成功吧
+
