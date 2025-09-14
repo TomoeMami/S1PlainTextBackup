@@ -15807,3 +15807,13 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 【查理柯克谈中国9.3阅兵，中国每一笔钱都花在刀刃上，反观我们美国**问题严重！】 [https://www.bilibili.com/video/B ... 0622749dc939d2ec600](https://www.bilibili.com/video/BV1qepnzFE3D/?share_source=copy_web&amp;vd_source=fb3b0ddcb29c90622749dc939d2ec600)
 
+
+*****
+
+####  冰风血羽  
+##### 1416#       发表于 2025-9-14 20:48
+
+【著名教授：美罪犯美枪弹杀美国主播，中国吃瓜民众该反思】 [https://www.bilibili.com/video/BV1cupcz1EGu](https://www.bilibili.com/video/BV1cupcz1EGu)
+
+过于幽默
+
