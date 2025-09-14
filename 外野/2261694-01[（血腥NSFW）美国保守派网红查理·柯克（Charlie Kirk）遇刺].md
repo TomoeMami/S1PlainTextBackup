@@ -15360,3 +15360,26 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 绝大部分是这个人种，主要是新教徒聚集 (?)</blockquote>
 看来欧美人是被训练的挺彻底的。他们可是语言互通的这都不查资料啊。
 
+
+*****
+
+####  无须关怀  
+##### 1378#       发表于 2025-9-14 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68406946&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-11 13:52</a>
+
+右右从布雷维克起杀人杀少了吗
+
+今年6月一MAGA干掉俩dem议员国内有啥反应吗 ...</blockquote>
+我错了，人家老哥也是右右
+
+*****
+
+####  就咋的  
+##### 1379#       发表于 2025-9-14 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424457&amp;ptid=2261694" target="_blank">zerona 发表于 2025-9-14 11:02</a>
+
+看来欧美人是被训练的挺彻底的。他们可是语言互通的这都不查资料啊。</blockquote>
+有傻子，还有假傻子，用煽动极端言论者的“父亲”、“丈夫”、“爱国者”、“新教徒”身份来找认同，至于他因为什么死的，别问，问就是“他都死了，你在讲什么！”
+
