@@ -867,3 +867,16 @@ image.png
 虽然算上预告片，前三集看起来确实噱头和制作拉满，但是刚刚第二集就出现了为了蹭噱头，给男主设定了一个【 ...</blockquote>
 英语倒没啥问题，大学里英语水平烂的随处可见。那段只是调节气氛和给小朋友讲设定的闲笔，迷惑程度也不如蒙面好汉包永梦高材生主角和院长不知道病毒变异这码事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 272#       发表于 2025-9-14 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425014&amp;ptid=2250267" target="_blank">狮子咕 发表于 2025-9-14 13:05</a>
+
+虽然算上预告片，前三集看起来确实噱头和制作拉满，但是刚刚第二集就出现了为了蹭噱头，给男主设定了一个【 ...</blockquote>
+我觉得纯粹是为了增加搞笑氛围的设定吧，而且上了大学却英语烂也不是什么奇怪的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+或者应该说是英语的听说不行，但是梦里因为是做梦所以本质上不是对英语进行听说而是在进行读写，所以没问题（
+

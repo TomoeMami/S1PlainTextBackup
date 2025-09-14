@@ -15507,3 +15507,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 这什么帝国大概250年保质期不是中国独一份的经验吗</blockquote>
 说明偷偷学习过伟大文明的先进经验了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逐天  
+##### 1392#       发表于 2025-9-14 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424382&amp;ptid=2261694" target="_blank">LilithMardin 发表于 2025-9-14 10:44</a>
+
+最后一个橙衣哥已经终结比赛了，该说的都说了</blockquote>
+橙衣说的那堆左派颠倒黑白不就说他自己么，凶手没抓到就说都怪左派，左派凶手啥的，和查克一样，拿假的东西当真的去诡辩
+

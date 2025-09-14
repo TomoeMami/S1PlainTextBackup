@@ -66,3 +66,11 @@
 不过四通八达联通的迷宫和存档点能进入独立的传送空间这点真的能看出来fanastasis学习致敬nepheshel的地方<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 顺手提一嘴后辈histore（イストワール），这作好在数值设计放宽，只要舔图找的强力装备够好你当跑酷侠时不时撞几个明雷的程度就能干过强敌，而且游戏的内置成就也指名了这游戏是可以不收队友独狼通关的，不过还没看别人的一周目视频，我个人感觉一周目就独狼还是有些难<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 495#         楼主| 发表于 2025-9-14 13:50
+
+histore这游戏有汉化吗？
+
