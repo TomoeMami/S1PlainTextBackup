@@ -15416,3 +15416,38 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 底下评论更有意思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，让我不得不感慨啊中的人群多样性
 
+
+*****
+
+####  廖化  
+##### 1383#       发表于 2025-9-14 12:04
+
+我艹还真有黄右跑到每个说死的好的微博下面转发说要告到美国的，这也太可乐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他们甚至需要翻译软件！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡嘎米  
+##### 1384#       发表于 2025-9-14 12:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于右来说，真相并不重要，要的是行动借口，已经开始点名在美黄皮了
+
+
+*****
+
+####  2017.05.04  
+##### 1385#       发表于 2025-9-14 12:14
+
+都要到白宫告状了，也别叫黄右了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄到哪去了
+叫殖右差不多
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  windtrack_qh  
+##### 1386#       发表于 2025-9-14 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">润人群体早就开始就这事互相举报了
+

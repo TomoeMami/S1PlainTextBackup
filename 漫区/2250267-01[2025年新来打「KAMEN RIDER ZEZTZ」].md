@@ -786,3 +786,11 @@ image.png
 
 不过预告结尾部分的BGM真不错啊
 
+
+*****
+
+####  otakun  
+##### 264#       发表于 2025-9-14 12:14
+
+这种梦里/幻想中战斗让我想起非公认战队了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
