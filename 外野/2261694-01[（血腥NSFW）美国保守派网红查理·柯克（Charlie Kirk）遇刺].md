@@ -15771,3 +15771,12 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 差不多得了，要论真拥gun自由，没人能超过美国。更别说俄罗斯只是反极端女权，人也不禁堕胎，真地上神国那可真是有部分地区现在相当于禁止堕胎的。别整天yy什么红脖子眼中的老保神国，那种神国就是他们的母国最接近，其他国家无非是特定切片下的国外月亮圆。
 
+
+*****
+
+####  卡嘎米  
+##### 1412#       发表于 2025-9-14 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426769&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-14 19:39</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好好，这就是为什么美右坏心办好事
+
