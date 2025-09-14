@@ -15528,3 +15528,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 橙衣说的那堆左派颠倒黑白不就说他自己么，凶手没抓到就说都怪左派，左派凶手啥的，和查克一样，拿假的东 ...</blockquote>
 橙衣哥和拍摄者的屁股明显是坐共和党那边的。
 
+
+*****
+
+####  又怎么啦？  
+##### 1394#       发表于 2025-9-14 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424523&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-14 11:13</a>
+
+美国互联网是这样啊，之前遇事就是甩锅，扣对方驴象的帽子，真正的问题反而被忽视了，ykw能赢也是这种氛围 ...</blockquote>
+这可能就是统治阶级要的效果
+

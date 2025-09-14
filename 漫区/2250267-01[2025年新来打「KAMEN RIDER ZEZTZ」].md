@@ -880,3 +880,13 @@ image.png
 
 或者应该说是英语的听说不行，但是梦里因为是做梦所以本质上不是对英语进行听说而是在进行读写，所以没问题（
 
+
+*****
+
+####  暗黑能乐  
+##### 273#       发表于 2025-9-14 14:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">至于对一个搞笑场景这么挑刺吗
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
