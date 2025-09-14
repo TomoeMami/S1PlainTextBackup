@@ -15788,3 +15788,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 别，可别给送回国了 <img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 1414#       发表于 2025-9-14 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426781&amp;ptid=2261694" target="_blank">tillnight 发表于 2025-9-14 19:41</a>
+
+差不多得了，要论真拥gun自由，没人能超过美国。更别说俄罗斯只是反极端女权，人也不禁堕胎，真地上神国那 ...</blockquote>
+论拥枪自由，阿富汗不是就能甩美国八条街吗？你美82年以后只能买半自动偷偷过瘾，他阿富汗老乡娶亲送葬随便都掏出十几条全自动AK打两梭子助兴的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

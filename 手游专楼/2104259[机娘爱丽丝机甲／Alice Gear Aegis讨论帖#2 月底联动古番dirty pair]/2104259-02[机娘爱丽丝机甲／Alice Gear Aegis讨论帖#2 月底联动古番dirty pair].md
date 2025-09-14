@@ -61,3 +61,33 @@
 
 又到了复刻活动猜谜时间，按金字塔的尿性未必就是阿迪王
 
+
+*****
+
+####  冰风血羽  
+##### 1662#       发表于 2025-9-14 20:08
+
+小裤裤地图真是美啊，云层之上的巨大圆月还有流星雨
+
+*****
+
+####  madcow  
+##### 1663#       发表于 2025-9-14 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68408929&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-9-11 19:00</a>
+
+虽然但是，提醒各位有拖延症的队长，这次小裤裤的活动全部都是调查形式，一共有586个格子，虽然现在还剩10 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">强烈要求调查2.0式外挂队友引入所有模式这样就可以一路挂机过去了
+
+
+*****
+
+####  冰风血羽  
+##### 1664#       发表于 2025-9-14 20:14
+
+HUTTVYJQTB
+
+网站输码得100S点
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
