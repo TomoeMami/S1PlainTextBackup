@@ -15294,3 +15294,15 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 
 —— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  寒夜未央  
+##### 1372#       发表于 2025-9-14 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424093&amp;ptid=2261694" target="_blank">coldhot3 发表于 2025-9-14 09:04</a>
+哥，陶瓷五百块人民币，真不贵。</blockquote>
+没事，我在中国用上概率也不高，就当减肥负重了
+
+—— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
