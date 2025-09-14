@@ -15284,3 +15284,13 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 国内网络看了一圈，还真有人真情实感为柯克这样的白右痛心疾首如丧考妣的 ...</blockquote>
 与其说真情实感，不如说绝妙的回答摧毁了这个角色之前支撑的论点，让这杆洋枪没那么好用了。
 
+
+*****
+
+####  月白天青  
+##### 1371#       发表于 2025-9-14 09:28
+
+整个美国社会，包括部分外国人都在不遗余力往枪手头上扣左和右帽子<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">深层社会问题是不重要的
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
