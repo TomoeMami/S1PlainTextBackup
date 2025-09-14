@@ -15631,3 +15631,15 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 和我的500kg炸弹说去吧！</blockquote>
 这构图好眼熟，原梗是出自哪里的？
 
+
+*****
+
+####  nightomorrow  
+##### 1401#       发表于 2025-9-14 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425622&amp;ptid=2261694" target="_blank">TI三冠王AME 发表于 2025-9-14 15:46</a>
+严峰这种精神白皮古墓派目田真是死了亲妈了，一开口就恶心得左左右右上上下下都想吐 ...</blockquote>
+这种人就需要被黄皮MAGA来治<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
