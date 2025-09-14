@@ -1202,3 +1202,16 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 另外发现把没用的喷火器丢霸王虫身上他会带着跑，这样看小地图就能看到霸王虫往哪跑了，很方便
 
+
+*****
+
+####  ykyin09  
+##### 7103#       发表于 2025-9-14 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423419&amp;ptid=2170852" target="_blank">qwased 发表于 2025-9-14 01:21</a>
+
+现在打霸王虫全靠亚空间补包+核弹手枪，就这样也得打半天
+
+另外发现把没用的喷火器丢霸王虫身上他会带着跑， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">染色球是吧
+

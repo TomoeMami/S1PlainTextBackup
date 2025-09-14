@@ -3651,3 +3651,26 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 千丝万缕 当然是网状叙事 希望是 if 结合的编剧 反正剧情不抱希望 不如多点乐子。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 384#       发表于 2025-9-14 14:10
+
+感觉洋人火纹板块讨论真的很没意思，就是开香槟＋我们三房太厉害了，可以继续讨论三房七年了
+
+甚至那边粉丝都默认发生地点都在芙朵拉了，国内这边起码找了历史原型根据前作设定推测续作舞台位置
+
+
+*****
+
+####  karastar  
+##### 385#       发表于 2025-9-14 14:14
+
+ 本帖最后由 karastar 于 2025-9-14 14:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425277&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-14 14:10</a>
+感觉洋人火纹板块讨论真的很没意思，就是开香槟＋我们三房太厉害了，可以继续讨论三房七年了
+
+甚至那边粉丝 ...</blockquote>
+泥潭不也是转的b站分析，要看万字解析去**<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
