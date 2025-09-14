@@ -15915,3 +15915,19 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 能力其实是有的 美国人都大量卖血生存了 底层容忍度高的惊人 单纯是没利益。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美国这个政治体制真没有能力，你要禁枪第一步谁去缴枪？警察还是军队，谁授予缴枪的权力，联邦政府还是州政府，光这几个问题就能把美国搞炸了
 
+
+*****
+
+####  素盏鸣尊  
+##### 1426#       发表于 2025-9-15 05:29
+
+我超。龟
+
+<img src="https://img.stage1st.com/forum/202509/15/052942lruyflu1ouudfrui.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6816.webp</strong> (56.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 05:29 上传
+
