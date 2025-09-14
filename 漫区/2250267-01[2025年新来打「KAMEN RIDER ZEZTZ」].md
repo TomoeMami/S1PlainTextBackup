@@ -839,3 +839,11 @@ image.png
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  狮子咕  
+##### 269#       发表于 2025-9-14 13:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然算上预告片，前三集看起来确实噱头和制作拉满，但是刚刚第二集就出现了为了蹭噱头，给男主设定了一个【梦里英语十分流利，任务的时候只说英语；但是现实里虽然上了大学（第一集报纸设定），英语却屁都不懂】这种十分迷惑的设定，对后期的发展肯定是不看好的好吧
+

@@ -3605,3 +3605,17 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 看了眼官网，不会这个PV只是介绍其中四个队友吧？官网说除了这四个战士还有许多角色登场于大剑斗祭,让人好奇接下来的发展，这几位甚至可能不是级长役只是队友中的一部分，黑发枪妹那个播片也可能只是她入队前的剧情动画而已
 
+
+*****
+
+####  撒撒  
+##### 379#       发表于 2025-9-14 13:03
+
+ 本帖最后由 撒撒 于 2025-9-14 13:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422079&amp;ptid=2261859" target="_blank">撒撒 发表于 2025-9-13 20:00</a>
+
+【4K】五千字逐帧分析解说《火焰纹章万紫千红》
+[https://www.bilibili.com/video/BV1QwpEzVEWS/](https://www.bilibili.com/video/BV1QwpEzVEWS/)</blockquote>
+【火纹万紫千红】风花雪月续作，仍要选路线？全网最全PV1分析来了！
+[https://www.bilibili.com/video/BV1ppHZzuEiP/](https://www.bilibili.com/video/BV1ppHZzuEiP/)
+
