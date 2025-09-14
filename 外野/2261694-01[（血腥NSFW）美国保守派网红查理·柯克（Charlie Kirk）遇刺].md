@@ -15716,3 +15716,25 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 想起那个老梗了：“某种意义上来说，老钟是你美劳保的地上劳保神国”</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">稍微了解点美国人就不会说出这么蠢的话。
 
+
+*****
+
+####  Lokad  
+##### 1408#       发表于 2025-9-14 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426509&amp;ptid=2261694" target="_blank">johnkamsar 发表于 2025-9-14 18:57</a>
+
+想起那个老梗了：“某种意义上来说，老钟是你美劳保的地上劳保神国”</blockquote>
+劳保是绝对拥护枪械自由的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  saizeriya  
+##### 1409#       发表于 2025-9-14 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426572&amp;ptid=2261694" target="_blank">zewubbfa 发表于 2025-9-14 19:09</a>
+稍微了解点美国人就不会说出这么蠢的话。</blockquote>
+⏰是康米大红龙，但是牢鹅可真的是地上神国。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

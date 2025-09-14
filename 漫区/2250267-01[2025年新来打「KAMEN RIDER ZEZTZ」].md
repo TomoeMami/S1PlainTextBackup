@@ -942,3 +942,20 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 讲个笑话 zzz第二集就有战斗曲了
 加布就一首战斗曲后期大结局前才出来 而且是三位一起用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 278#       发表于 2025-9-14 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68426534&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2025-9-14 19:02</a>
+
+高桥作品的女主就没有普通人全是人造出来的非人，极狐更是女一猫猫女二吃牡蛎身世都有问题 ...</blockquote>
+主角梦到她的频率实在太高了
+
+第二集可能是警察日有所思，夜有所梦，梦到主角把他拉进了自己的梦境
+
+也有点像宁音的角色扮演成一日署长，把主角和男警察两个人的梦融合了
+
+懂了宁音是poppy，诺克斯是帕拉德<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
