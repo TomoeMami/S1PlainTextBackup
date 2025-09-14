@@ -15668,3 +15668,19 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 “查理柯克死了是个杯具吗”
 
+
+*****
+
+####  last_regret  
+##### 1404#       发表于 2025-9-14 18:43
+
+<img src="https://img.stage1st.com/forum/202509/14/184304jfymk2m328fy448y.jpg" referrerpolicy="no-referrer">
+
+<strong>20250914_184044.jpg</strong> (50.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 18:43 上传
+
+  
+
