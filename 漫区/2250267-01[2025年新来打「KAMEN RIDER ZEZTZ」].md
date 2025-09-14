@@ -890,3 +890,21 @@ image.png
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  黄泉川此方  
+##### 274#       发表于 2025-9-14 14:37
+
+哇第二集就把预知梦用上了
+
+就算是国民级偶像，每个人都会梦到宁音也不正常吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+男主在梦里装逼时，声线不是压而是夹，显得特别油
+
+醒的时候又学01那样鬼叫<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+今年变身动作特别流畅，好评
+
+前两集编排的真不错，扫堂腿踢爆卡车看爽了
+
