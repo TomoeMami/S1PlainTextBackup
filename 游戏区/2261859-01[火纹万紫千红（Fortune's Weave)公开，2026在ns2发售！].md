@@ -3674,3 +3674,19 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 甚至那边粉丝 ...</blockquote>
 泥潭不也是转的b站分析，要看万字解析去**<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 386#       发表于 2025-9-14 14:58
+
+感觉那几个分析说的都是些知道的东西了，第一个PV藏得挺深，不过标题都叫万缕千丝了，分线的可能性我觉得是9成9，而且目前的一些战斗截图，其他POV很多时候都是以绿色友军参战而不是蓝色的己方人员，明显到了后面就要开始相互杀戮了
+
+
+*****
+
+####  xwr  
+##### 387#       发表于 2025-9-14 15:04
+
+现在很好奇主视觉图会是什么样，四人转么？，三房是共通线加个人线，现在这四人感觉身份相差比较大，早期共通线很难，总不能是四人都来晚了结果被塞到同一个队里，主角是自捏的角斗士教练吧<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">，剧情进行到后半因为万能的许愿机只有一个，四人大打出手，而你只能选择一位冠军<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

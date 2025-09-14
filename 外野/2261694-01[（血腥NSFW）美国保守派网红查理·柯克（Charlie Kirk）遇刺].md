@@ -15567,3 +15567,19 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 桑德斯在美国媒体中被认为属民主党左翼，与主流政客保持距离，经常批评美国政治和经济体制。他呼吁缩小贫富差距、维护女权主义、坚持反战。美国的中产阶级、工人阶级和知识分子是他的主要拉票对象。</blockquote>
 [http://www.xinhuanet.com/world/2016-02/21/c_128737616.htm](http://www.xinhuanet.com/world/2016-02/21/c_128737616.htm)
 
+
+*****
+
+####  H2Ofrozen  
+##### 1396#       发表于 2025-9-14 15:03
+
+*notices bulges* 哥们你口袋怎么鼓起来了
+
+<img src="https://img.stage1st.com/forum/202509/14/150032dja3gree6ecemewd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1757832542378.jpeg</strong> (154.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 15:00 上传
+
