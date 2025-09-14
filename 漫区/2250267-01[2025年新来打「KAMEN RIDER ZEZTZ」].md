@@ -720,3 +720,11 @@ image.png
 
 省略OP还不够放，梦回中后期的蒙面超人终极救助<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acejoe  
+##### 257#       发表于 2025-9-14 10:57
+
+果然不拍悬疑模式，用英雄正路模式拍就正常太多了
+

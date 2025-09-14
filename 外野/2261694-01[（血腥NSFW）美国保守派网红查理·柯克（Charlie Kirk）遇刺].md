@@ -15349,3 +15349,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 拿同性恋攻击不是回旋镖吗？懂王内阁好几个同性恋呢，比如财政部长贝森特就是。 ...</blockquote>
 那能一样吗.jpg
 
+
+*****
+
+####  zerona  
+##### 1377#       发表于 2025-9-14 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423585&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-14 02:38</a>
+
+绝大部分是这个人种，主要是新教徒聚集 (?)</blockquote>
+看来欧美人是被训练的挺彻底的。他们可是语言互通的这都不查资料啊。
+
