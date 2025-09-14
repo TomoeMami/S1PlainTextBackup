@@ -15883,3 +15883,16 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 之前有沙雕看中国枪击案发生率垫底的时候冷嘲热讽，我就说有本事你让美国也像当年中国那样搞枪支治理啊，你弄不成又啥脸来嘲讽的
 
+
+*****
+
+####  loli炮  
+##### 1423#       发表于 2025-9-14 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68428221&amp;ptid=2261694" target="_blank">双面人 发表于 2025-9-14 23:24</a>
+
+1.是没有动力，几大枪支制造商都给钱的你把市场关了，枪支制造商他们真有枪啊
+
+2.是没有能力，你让军队去 ...</blockquote>
+能力其实是有的 美国人都大量卖血生存了 底层容忍度高的惊人 单纯是没利益。
+
