@@ -703,3 +703,20 @@ image.png
 
 感觉公调内调什么时候要出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 255#       发表于 2025-9-14 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说op了，ed画面全塞剧情也才刚好够讲完，看完了我还觉得不够看，急急急
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  浅川雏羽  
+##### 256#       发表于 2025-9-14 10:42
+
+省略OP还不够放，梦回中后期的蒙面超人终极救助<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15325,3 +15325,27 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 
 嗨呀阿米怎么还没🔫战大乱斗，这么乐的事情没有煎蒸爱好者拱火吗
 
+
+*****
+
+####  LilithMardin  
+##### 1375#       发表于 2025-9-14 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422652&amp;ptid=2261694" target="_blank">乔伊 发表于 2025-9-13 22:09</a>
+转自微博 @古典奥派主义者
+
+查理·柯克遇刺后，美国大学生的反应
+
+https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
+最后一个橙衣哥已经终结比赛了，该说的都说了
+
+*****
+
+####  飛霞精灵  
+##### 1376#       发表于 2025-9-14 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423944&amp;ptid=2261694" target="_blank">CCCTHUN 发表于 2025-9-14 08:07</a>
+
+拿同性恋攻击不是回旋镖吗？懂王内阁好几个同性恋呢，比如财政部长贝森特就是。 ...</blockquote>
+那能一样吗.jpg
+
