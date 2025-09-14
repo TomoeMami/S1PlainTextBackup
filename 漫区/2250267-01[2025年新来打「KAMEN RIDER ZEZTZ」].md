@@ -766,3 +766,23 @@ image.png
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 262#       发表于 2025-9-14 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68424591&amp;ptid=2250267" target="_blank">离心 发表于 2025-9-14 11:30</a>
+
+这内心期望之事被噩梦扭曲扩大，很容易写但同样也能暴雷啊看监督和制作人能不能压住了不过男女主互动难得放 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是因为万津莫不知道是本人以为纯做梦所以小手比较不干净吧，放现实里铁怂哥们一个
+
+*****
+
+####  blue321  
+##### 263#       发表于 2025-9-14 12:04
+
+怎么第三集预告就一整个大结局一样的切片<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过预告结尾部分的BGM真不错啊
+
