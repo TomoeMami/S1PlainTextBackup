@@ -203,3 +203,14 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 
 不得不说应援棒和Cure Kiss太有能了
 
+
+*****
+
+####  Blackson  
+##### 1294#       发表于 2025-9-14 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68427160&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-9-14 20:24</a>
+
+今大妈导演《极主夫道》剧中剧 追加黄是两主角老师 到自己拍q娃了 把两害兽搞怎么成熟 结果就比三主角大一 ...</blockquote>
+感觉这种征兆从天空Q娃就开始了，弄噱头很多都是雷声大雨声小
+
