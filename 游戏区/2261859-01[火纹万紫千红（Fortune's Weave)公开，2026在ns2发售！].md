@@ -3779,3 +3779,13 @@ gvsgicu3gzof1.jpeg
 火纹什么时候能出steam版本的呢……当初买NS结果到后面就玩了风花雪月和健身环，感觉真的有点不值得 ...</blockquote>
 任地狱第一方游戏你指望steam~~~除非G胖收购任地狱成功吧
 
+
+*****
+
+####  真田源次郎信繁  
+##### 396#       发表于 2025-9-14 16:05
+
+is其实被任天堂点名说那不是我们的子公司，财报里甚至都没披露财务关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也许这就是外包吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
