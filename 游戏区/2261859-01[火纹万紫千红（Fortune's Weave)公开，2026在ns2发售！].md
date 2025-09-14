@@ -3698,3 +3698,20 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 共同线就是剑斗祭啊，目的是混个眼熟。元顺帝邀请天下英雄举行比武大会 其实是想一网打尽 各路人马逃出去后纷纷自立为王。 早年说书是这样玩的。
 
+
+*****
+
+####  洛亚替身  
+##### 389#       发表于 2025-9-14 15:22
+
+大概率是要分线的，三世纪危机罗马大逃杀可能性又高了点
+
+gvsgicu3gzof1.jpeg
+(51.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 15:22 上传
+
+<img src="https://img.stage1st.com/forum/202509/14/152201m87ecaeb28f19e9r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
