@@ -179,3 +179,13 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 
 咋演到一半想起来搞“便利”的结界了呢？
 
+
+*****
+
+####  粉儿alice  
+##### 1292#       发表于 2025-9-14 20:24
+
+今大妈导演《极主夫道》剧中剧 追加黄是两主角老师 到自己拍q娃了 把两害兽搞怎么成熟 结果就比三主角大一点点 设置成高中生也行啊 反正成人q娃也是q娃笑话之一了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+去年的大福人形声优 今年的两害兽人间体也是要拖到剧场版上映才公布 总是把心事放到这些可无可有的噱头上
+

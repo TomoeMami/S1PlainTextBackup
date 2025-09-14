@@ -15799,3 +15799,11 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 差不多得了，要论真拥gun自由，没人能超过美国。更别说俄罗斯只是反极端女权，人也不禁堕胎，真地上神国那 ...</blockquote>
 论拥枪自由，阿富汗不是就能甩美国八条街吗？你美82年以后只能买半自动偷偷过瘾，他阿富汗老乡娶亲送葬随便都掏出十几条全自动AK打两梭子助兴的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡嘎米  
+##### 1415#       发表于 2025-9-14 20:20
+
+【查理柯克谈中国9.3阅兵，中国每一笔钱都花在刀刃上，反观我们美国**问题严重！】 [https://www.bilibili.com/video/B ... 0622749dc939d2ec600](https://www.bilibili.com/video/BV1qepnzFE3D/?share_source=copy_web&amp;vd_source=fb3b0ddcb29c90622749dc939d2ec600)
+
