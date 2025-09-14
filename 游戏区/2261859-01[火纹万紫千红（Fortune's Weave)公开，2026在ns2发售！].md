@@ -3943,3 +3943,11 @@ Tei: For the story, unlike Three Houses, we thought it might be good to focus on
 
 现在IS发现传统火纹剧情又有市场了不就果断把光荣踢掉自己开发万紫千红嘛，说到底我的确不理解以前疯狂吹这类题材的遗老在这类战争史类回归情况下又开始为以前瞧不起的觉醒系，狗血剧站台，开始强调自己只在乎玩法不在乎题材，剧情，养成，世设的新观点<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88ace88  
+##### 409#       发表于 2025-9-14 17:39
+
+看新旧只看故事背景，系统、玩法、人设(包括人物塑造)等等其他方面全都不看的话，那我只能认为is的认知也很菜，难怪觉醒之前都快把这个系列做死了。
+
