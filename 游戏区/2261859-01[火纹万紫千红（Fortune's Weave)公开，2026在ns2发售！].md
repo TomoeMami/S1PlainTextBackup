@@ -3690,3 +3690,11 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 
 现在很好奇主视觉图会是什么样，四人转么？，三房是共通线加个人线，现在这四人感觉身份相差比较大，早期共通线很难，总不能是四人都来晚了结果被塞到同一个队里，主角是自捏的角斗士教练吧<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">，剧情进行到后半因为万能的许愿机只有一个，四人大打出手，而你只能选择一位冠军<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 388#       发表于 2025-9-14 15:14
+
+共同线就是剑斗祭啊，目的是混个眼熟。元顺帝邀请天下英雄举行比武大会 其实是想一网打尽 各路人马逃出去后纷纷自立为王。 早年说书是这样玩的。
+
