@@ -933,3 +933,12 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 就算是国民级偶像，每个人都会梦到宁梦也不正常吧</blockquote>
 高桥作品的女主就没有普通人全是人造出来的非人，极狐更是女一猫猫女二吃牡蛎身世都有问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 277#       发表于 2025-9-14 19:09
+
+讲个笑话 zzz第二集就有战斗曲了
+加布就一首战斗曲后期大结局前才出来 而且是三位一起用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
