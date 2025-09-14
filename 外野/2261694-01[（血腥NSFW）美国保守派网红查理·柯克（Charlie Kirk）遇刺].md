@@ -15402,3 +15402,17 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 之前也提到象党想通过树屋俱乐部来抢性少数话题的方向盘，而树屋俱乐部本身很排斥跨
 
+
+*****
+
+####  再键政就是狗  
+##### 1382#       发表于 2025-9-14 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422652&amp;ptid=2261694" target="_blank">乔伊 发表于 2025-9-13 22:09</a>
+转自微博 @古典奥派主义者
+
+查理·柯克遇刺后，美国大学生的反应
+
+https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
+底下评论更有意思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，让我不得不感慨啊中的人群多样性
+
