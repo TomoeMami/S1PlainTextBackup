@@ -15225,3 +15225,13 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 
 可是我看fox已经指认他有同性“伴侣”了。照片都放出来了。<img src="https://p.sda1.dev/27/a672b80892f783cf72036a147a3df4a1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCCTHUN  
+##### 1365#       发表于 2025-9-14 08:07
+
+<blockquote>KIMINO 发表于 2025-9-14 07:45
+可是我看fox已经指认他有同性“伴侣”了。照片都放出来了。</blockquote>
+拿同性恋攻击不是回旋镖吗？懂王内阁好几个同性恋呢，比如财政部长贝森特就是。
+
