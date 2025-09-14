@@ -74,3 +74,13 @@
 
 histore这游戏有汉化吗？
 
+
+*****
+
+####  kerbad  
+##### 496#       发表于 2025-9-14 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425200&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-9-14 13:50</a>
+histore这游戏有汉化吗？</blockquote>
+还没呢吧，要是有的话至少早就在坛里口口相传了
+
