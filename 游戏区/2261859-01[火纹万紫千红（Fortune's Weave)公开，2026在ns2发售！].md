@@ -4189,3 +4189,25 @@ is肯定是有能力做好slg的，问题是愿意花多大力气去做。其实
 
 我都不明白为啥要在访谈里说这些，都不自己护一下短，是太自信了，还是因为被任天堂血藏而自暴自弃了
 
+
+*****
+
+####  Jabeck  
+##### 434#       发表于 2025-9-14 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68427779&amp;ptid=2261859" target="_blank">绿冰 发表于 2025-9-14 22:04</a>
+
+不知道，IS就是这么抽象，整个访谈里各种暴论
+
+其他的还说了，神龙原本设定更弱智，这已经是被任天堂打回 ...</blockquote>
+三房的3D建模也跟立绘差距不小。
+
+*****
+
+####  鬼谷ask  
+##### 435#       发表于 2025-9-14 22:13
+
+只能说分线设计能不能为全剧情玩家的游戏体验优化一下，三房来3次半已经很折磨了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+想起因为犯懒教会线用留的存档，结果因为当时初见红花没刷够蕾雅好感没能婚蕾雅就sad
+
