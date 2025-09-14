@@ -15306,3 +15306,14 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 
 —— 来自 vivo V2307A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  evaeyes2  
+##### 1373#       发表于 2025-9-14 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68404852&amp;ptid=2261694" target="_blank">叩叩叩 发表于 2025-9-11 04:29</a>
+
+搜了下第一条就说他是个🦑支持者，看了几个视频确实是不止一次，还经常针对加沙儿童，那只能说句好似 ...</blockquote>
+最新消息是它开始转向了 下个月有行程说是要说以色列的问题 然后老胡在它被杀之后第一时间跳出来说不是以色列干的……EMMMMM 4CHAN上很多人就EMMMMM
+
