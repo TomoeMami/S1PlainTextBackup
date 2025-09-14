@@ -3951,3 +3951,18 @@ Tei: For the story, unlike Three Houses, we thought it might be good to focus on
 
 看新旧只看故事背景，系统、玩法、人设(包括人物塑造)等等其他方面全都不看的话，那我只能认为is的认知也很菜，难怪觉醒之前都快把这个系列做死了。
 
+
+*****
+
+####  未熟串烧  
+##### 410#       发表于 2025-9-14 17:48
+
+题外话，最近看几个管人直播三房都是通了一条青狮子线完事的，该说是传统王子复仇线受欢迎还是青狮子班综合人设比较好呢，我猜是后者。
+
+*****
+
+####  xwr  
+##### 411#       发表于 2025-9-14 17:51
+
+所以原来is认为会大卖的是engage，小众作品是风花雪月?<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
