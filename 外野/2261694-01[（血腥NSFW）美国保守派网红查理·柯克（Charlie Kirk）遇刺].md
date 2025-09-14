@@ -15904,3 +15904,14 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 不行的，卖枪的有游说团队，能影响选票的。
 
+
+*****
+
+####  约定的明日  
+##### 1425#       发表于 2025-9-15 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68428262&amp;ptid=2261694" target="_blank">loli炮 发表于 2025-9-14 23:35</a>
+
+能力其实是有的 美国人都大量卖血生存了 底层容忍度高的惊人 单纯是没利益。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美国这个政治体制真没有能力，你要禁枪第一步谁去缴枪？警察还是军队，谁授予缴枪的权力，联邦政府还是州政府，光这几个问题就能把美国搞炸了
+
