@@ -3583,3 +3583,15 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 应该是藏了个角色 不然苏提斯最后在跟谁说好久不见呢  总不能是跟小杂毛说吧 ...</blockquote>
 不好说，主要已经有蓝毛逛街的画面，看后面会不会有其他角色逛街的画面吧
 
+
+*****
+
+####  Humpy  
+##### 377#       发表于 2025-9-14 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68423707&amp;ptid=2261859" target="_blank">血狂毘沙门 发表于 2025-9-14 04:49</a>
+应该是藏了个角色 不然苏提斯最后在跟谁说好久不见呢  总不能是跟小杂毛说吧 ...</blockquote>
+如果玩剪辑欺诈的话，也可以是神威法王见到了苏提斯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+成年苏提斯恢复记忆的话这句话也可以理解为苏提斯和自己创造的眷属之间的对话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
