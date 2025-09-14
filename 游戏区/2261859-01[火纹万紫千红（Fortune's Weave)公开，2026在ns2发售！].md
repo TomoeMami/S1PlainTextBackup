@@ -3619,3 +3619,11 @@ CB707CB9C1E72E04367CB45158D1957E.jpg
 【火纹万紫千红】风花雪月续作，仍要选路线？全网最全PV1分析来了！
 [https://www.bilibili.com/video/BV1ppHZzuEiP/](https://www.bilibili.com/video/BV1ppHZzuEiP/)
 
+
+*****
+
+####  hkguty  
+##### 380#       发表于 2025-9-14 13:17
+
+紫毛丁真已经展现了标题的紫色纹章，保底肯定是个级长级别的
+
