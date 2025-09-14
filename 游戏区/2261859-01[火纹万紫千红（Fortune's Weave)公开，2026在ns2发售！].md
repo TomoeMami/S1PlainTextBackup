@@ -3901,3 +3901,45 @@ Tei: For the story, unlike Three Houses, we thought it might be good to focus on
 
 作为20年的中玩家，本来我对据点无所谓但是风花雪月太对我味令我对这部分有些执着；剧情只要给我个普通的王子复仇记我就能满足，但是円给几的台词水平远低于普通达到负分、弱智等级；下棋是円给几唯一且很突出的优点，期望保持，新作真是IS做的话我觉得这部分最稳，这么多年过来看得到IS在下棋方面的稳健
 
+
+*****
+
+####  Jabeck  
+##### 406#       发表于 2025-9-14 17:26
+
+ 本帖最后由 Jabeck 于 2025-9-14 17:29 编辑 
+
+结合有哪点扩圈的要素？是因为觉得用了唐式管人人设角色会吸引管人痴吗？还是dinner剧情能吸引喜欢dinner剧情的玩家？
+
+*****
+
+####  伊露伊道格拉斯  
+##### 407#       发表于 2025-9-14 17:28
+
+外网也不喜欢黑皮小孩，也喜欢雷达和阿鲁卡多少爷，审美还是正常的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/14/172658izq9xpx2qx29qpph.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1757841996611.jpg</strong> (136.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 17:26 上传
+
+
+*****
+
+####  洛亚替身  
+##### 408#       发表于 2025-9-14 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425999&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2025-9-14 17:14</a>
+
+没玩过风花雪月只看大纲当然可能以为是传统火纹那种
+
+结果打架三分钟，学院一小时先不说，刚发售都没超难， ...</blockquote>
+战棋游戏性这方面后续有很多机会完善提高的
+
+但题材方面已经风水轮流转了，考虑到结合和三房同时开发，三房还是交给光荣做的，IS的确认为三房这种传统题材已经彻底退版本无法做到扩展用户群（考虑到觉醒前那几部险些让火纹死掉）
+
+现在IS发现传统火纹剧情又有市场了不就果断把光荣踢掉自己开发万紫千红嘛，说到底我的确不理解以前疯狂吹这类题材的遗老在这类战争史类回归情况下又开始为以前瞧不起的觉醒系，狗血剧站台，开始强调自己只在乎玩法不在乎题材，剧情，养成，世设的新观点<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
