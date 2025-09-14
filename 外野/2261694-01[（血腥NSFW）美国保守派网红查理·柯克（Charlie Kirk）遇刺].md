@@ -15235,3 +15235,14 @@ zz嗅觉 煽动 诡辩 演讲  组织力</blockquote>
 可是我看fox已经指认他有同性“伴侣”了。照片都放出来了。</blockquote>
 拿同性恋攻击不是回旋镖吗？懂王内阁好几个同性恋呢，比如财政部长贝森特就是。
 
+
+*****
+
+####  亚尔迪8424  
+##### 1366#       发表于 2025-9-14 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68422461&amp;ptid=2261694" target="_blank">女权咏唱者 发表于 2025-9-13 21:21</a>
+
+国内网络看了一圈，还真有人真情实感为柯克这样的白右痛心疾首如丧考妣的 ...</blockquote>
+复旦严某如丧考妣
+
