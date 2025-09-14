@@ -3789,3 +3789,25 @@ is其实被任天堂点名说那不是我们的子公司，财报里甚至都没
 
 也许这就是外包吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巨馍蘸酱  
+##### 397#       发表于 2025-9-14 16:26
+
+人设比结合强度唯一一点就是有立绘，没跟结合一样自信取消立绘<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 这建模也没比结合好到哪去，立绘普遍比建模好看
+
+不考虑立绘这一点的话这一堆尼格我觉得还不如结合的管人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tilocal  
+##### 398#       发表于 2025-9-14 16:34
+
+分线这块要是选完阵营之后又要打大量重复的共通关卡还不如回归776GBA那几作的AB线东西线模式
+
+要是能学兰古瑞萨那种分支路线模式就更好了
+
+甚至百日战记不也算是战棋游戏<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
