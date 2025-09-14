@@ -3966,3 +3966,15 @@ Tei: For the story, unlike Three Houses, we thought it might be good to focus on
 
 所以原来is认为会大卖的是engage，小众作品是风花雪月?<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 412#       发表于 2025-9-14 18:03
+
+engage如果把超难以下所有难度都取消掉风评会好很多
+
+但是超难又没遭遇战，没法刷支援对话，两头堵
+
+不知道IS的人自己玩没玩过普通难度的engage，那几乎就是屎了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
