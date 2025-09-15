@@ -4262,3 +4262,18 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 可以继续跳过了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 2654#       发表于 2025-9-15 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68417012&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-12 22:19</a>
+
+可还是不能一次开发更多数量和卖的时候最多也只能卖100台
+
+就是要你多花时间多点几下来恶心你</blockquote>
+如果一直玩的玩家早就从各个活动碎了一大堆垃圾机体了
+
+事实上我已经好久没特意做铁球了
+
