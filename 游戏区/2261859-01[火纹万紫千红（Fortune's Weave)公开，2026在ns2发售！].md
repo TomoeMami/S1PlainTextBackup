@@ -4651,3 +4651,14 @@ IS真能写好剧本吗</blockquote>
 
 我觉得无论前传后传，这个苏蒂斯应该都不是来卖萌的，感觉可能会展现更残酷的一面
 
+
+*****
+
+####  苍蓝之枪  
+##### 473#       发表于 2025-9-15 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433483&amp;ptid=2261859" target="_blank">Humpy 发表于 2025-9-15 17:09</a>
+
+其实这代剧情我要求不高，内容可以一般，但游戏设计别再像三房一样和叙事割裂就行……多整几个能够活动的城 ...</blockquote>
+我觉得这些担忧点大概率会全中
+
