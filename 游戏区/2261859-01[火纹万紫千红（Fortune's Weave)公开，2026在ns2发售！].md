@@ -4795,3 +4795,11 @@ IS我忘记了，但人物塑造没那么格式化和白痴。</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  俾斯麥  
+##### 485#       发表于 2025-9-16 00:39
+
+只要你出三间房子相关的东西我们就是好朋友<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
