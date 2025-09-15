@@ -16208,3 +16208,24 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 2025-9-15 13:45 上传
 
+
+*****
+
+####  i0ncube_R  
+##### 1454#       发表于 2025-9-15 14:03
+
+人人表态，人人过关<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  就咋的  
+##### 1455#       发表于 2025-9-15 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431586&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 12:17</a>
+
+韩国这波也太丢人了。</blockquote>
+小孩们的眼神，反拿的标语，嘴叼的标语。好歹用“韩文”啊，南方当局做给谁看呢，就是想举星条旗吧，是吧是吧。
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
