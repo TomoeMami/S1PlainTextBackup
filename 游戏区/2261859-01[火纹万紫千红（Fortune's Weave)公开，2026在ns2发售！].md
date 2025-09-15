@@ -4774,3 +4774,14 @@ IS开发的话剧情比较担忧，好像又是多线的节奏，担忧更加大
 不会 你看if的剧情……is就是这么菜</blockquote>
 IS我忘记了，但人物塑造没那么格式化和白痴。
 
+
+*****
+
+####  yt5wt2c  
+##### 483#       发表于 2025-9-15 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68435297&amp;ptid=2261859" target="_blank">Jabeck 发表于 2025-9-15 23:22</a>
+
+IS我忘记了，但人物塑造没那么格式化和白痴。</blockquote>
+神威那已经不是白痴了，每次玩暗夜我跳过键都是直接按烂。
+
