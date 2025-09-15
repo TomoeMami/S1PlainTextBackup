@@ -16432,3 +16432,13 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 贵灯塔再这么搞从上到下心力交瘁，我建议还是开发一套国家文创，每人发一套标签吧唧，什么驴党象党什么LGBTQX什么安替法什么有色人种等等全给你做一个，还可以定期更新新款供大家选购，大家自行佩戴，然后上街大家互相按标签认人，某些标签如果侦测到组合佩戴，自动通知**或自动boooooooooooom，大家开心
 
+
+*****
+
+####  xuanwu_lei  
+##### 1475#       发表于 2025-9-15 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68435120&amp;ptid=2261694" target="_blank">Cthululives 发表于 2025-9-15 22:42</a>
+贵灯塔再这么搞从上到下心力交瘁，我建议还是开发一套国家文创，每人发一套标签吧唧，什么驴党象党什么LGBT ...</blockquote>
+某个加拿大人已经根据这个点子出过键政圈知名剧集了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
