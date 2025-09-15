@@ -16309,3 +16309,44 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 严大教授可能“不知道”第一修正案的例外
  <blockquote>对于言论自由的限制是基于其传播影响（communicative impact）而言的，其中有一些受到完全限制，另一些则受部分限制。诸如煽动、对事实的虚假陈述、X秽、儿童X情、恐吓、他人言论等都不受第一修正案的保护。而商业广告则只受到部分保护，这意味着政府的干涉也受到限制。 </blockquote>
 
+
+*****
+
+####  就咋的  
+##### 1463#       发表于 2025-9-15 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433444&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 17:00</a></blockquote>
+严大“卫道士”搞不清法律与道德，讲法律的时候谈感性，评道德的时候说理性
+
+*****
+
+####  Benighted  
+##### 1464#       发表于 2025-9-15 17:44
+
+<img src="https://img.stage1st.com/forum/202509/15/174407cep5c5doqzdod6c5.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043080.jpg</strong> (200.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202509/15/174407w5xm111hgiioz4t1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043082.jpg</strong> (319.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 17:44 上传
+
+*****
+
+####  双面人  
+##### 1465#       发表于 2025-9-15 17:44
+
+<blockquote>就咋的 发表于 2025-9-15 17:41
+严大“卫道士”搞不清法律与道德，讲法律的时候谈感性，评道德的时候说理性
+
+ ...</blockquote>
+错误的，单纯看屁股坐哪边
+
