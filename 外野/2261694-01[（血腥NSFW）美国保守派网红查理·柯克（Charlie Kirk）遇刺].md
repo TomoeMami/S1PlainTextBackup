@@ -16389,3 +16389,13 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 我美急需苹果手机开发新功能，检测到说川宝不是最伟大总统、查理柯克之死不是杯具、以色列不是正义的、人民有堕胎的权力、禁gun是正确的之类的言论，自动高温过热继而发出闪光和巨响，以色列可提供技术支持。
 
+
+*****
+
+####  aeolus039  
+##### 1470#       发表于 2025-9-15 20:12
+
+一个安提法穿着枪手衣服杀上门把转折点总部的社区追悼会砸了，果然武德充沛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/8803d85ae6f12ce24ba4fa4c92b79093/image.jpg" referrerpolicy="no-referrer">
+

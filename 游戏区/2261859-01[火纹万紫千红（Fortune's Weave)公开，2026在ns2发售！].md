@@ -4662,3 +4662,52 @@ IS真能写好剧本吗</blockquote>
 其实这代剧情我要求不高，内容可以一般，但游戏设计别再像三房一样和叙事割裂就行……多整几个能够活动的城 ...</blockquote>
 我觉得这些担忧点大概率会全中
 
+
+*****
+
+####  巴尔干炮  
+##### 474#       发表于 2025-9-15 20:08
+
+ 本帖最后由 巴尔干炮 于 2025-9-15 20:13 编辑 
+
+<img src="https://img.stage1st.com/forum/202509/15/200739ghr79c4orrftrlft.jpg" referrerpolicy="no-referrer">
+
+<strong>1757927967366958.jpg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 20:07 上传
+
+<img src="https://img.stage1st.com/forum/202509/15/201049vrrefhryarmh9brm.jpg" referrerpolicy="no-referrer">
+
+<strong>1757931463771778.jpg</strong> (125.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 20:10 上传
+
+<img src="https://img.stage1st.com/forum/202509/15/201143q6208s18w8160qzh.jpg" referrerpolicy="no-referrer">
+
+<strong>1757930484488254.jpg</strong> (599.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 20:11 上传
+
+同人图还挺快~
+
+*****
+
+####  u2deack  
+##### 475#       发表于 2025-9-15 20:11
+
+黑皮的声音过于大妈了，不然其实我觉得还行，但是造型也不够野
+
+
+*****
+
+####  黛冬優子  
+##### 476#       发表于 2025-9-15 20:15
+
+太柯南了
+
