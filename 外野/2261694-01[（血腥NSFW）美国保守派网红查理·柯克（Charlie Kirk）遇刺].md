@@ -16361,3 +16361,12 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 错误的，单纯看屁股坐哪边</blockquote>
 查理事件就像一场暴雨，暴雨过后土里的蚯蚓都钻出来了。
 
+
+*****
+
+####  云梦泽岸  
+##### 1467#       发表于 2025-9-15 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433667&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-15 17:44</a></blockquote>
+查抄大观园是吧
+
