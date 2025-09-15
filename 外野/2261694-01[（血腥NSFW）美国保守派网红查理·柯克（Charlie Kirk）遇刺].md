@@ -16273,3 +16273,16 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 哪里有查理的梗图梗言集中站，我要去！
 
+
+*****
+
+####  大义灭亲林有德  
+##### 1460#       发表于 2025-9-15 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68409119&amp;ptid=2261694" target="_blank">水电工 发表于 2025-9-11 19:30</a>
+
+这事儿到底归圣锤修会还是异形修会管？</blockquote>
+也需六臂神皇管起来效率还高点
+
+这人其实和路易吉差不多，很难用左右模版套，他是隐藏的更深，更混沌的4CH乐子人。
+

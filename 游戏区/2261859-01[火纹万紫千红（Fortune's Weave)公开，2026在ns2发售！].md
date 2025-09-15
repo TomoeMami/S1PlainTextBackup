@@ -4543,3 +4543,16 @@ IS真能写好剧本吗</blockquote>
 
 甚至引申一下，一辈子都在追求起源纹章士的尚卜尔也可以指对新作各种挑刺不满意的火纹遗老们（
 
+
+*****
+
+####  洛亚替身  
+##### 462#       发表于 2025-9-15 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68432268&amp;ptid=2261859" target="_blank">黑卷轴陶德传 发表于 2025-9-15 14:16</a>
+
+个人的一点期待吧：
+
+1.机能已经不是问题，工期也很足够（风花雪月6年前了），应该能整多点章节了吧（风花雪 ...</blockquote>
+兄弟表示我虽然是半个外人，但我的线把芙朵拉那堆陈芝麻烂谷子事都解决了好不好？斩草除根迈向新世界，偏要我深度参与你们恩怨情仇是不是有点难为我了，我就想干教会，干老登证明自己让老家不讨厌我的皮而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
