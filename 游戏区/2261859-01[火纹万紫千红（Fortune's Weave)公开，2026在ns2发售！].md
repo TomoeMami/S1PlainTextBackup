@@ -4785,3 +4785,13 @@ IS我忘记了，但人物塑造没那么格式化和白痴。
 IS我忘记了，但人物塑造没那么格式化和白痴。</blockquote>
 神威那已经不是白痴了，每次玩暗夜我跳过键都是直接按烂。
 
+
+*****
+
+####  57042711  
+##### 484#       发表于 2025-9-16 00:37
+
+剧情能超过贝利克物语吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
