@@ -262,3 +262,13 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 可是公主的原名也不是白雪公主啊，没记错的话是说她喜欢白雪公主所以直接用了 ...</blockquote>
 查了下姓白雪是编的，但是名字hime是原本名字里就有的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机器人屑人鱼和索拉都是本名没有问题。
 
+
+*****
+
+####  199april  
+##### 1300#       发表于 2025-9-15 22:21
+
+很神奇，两害兽的q娃形态，害兽形态，人类形态设计风格差别非常大
+
+不知道小友会不会看得十分混乱
+
