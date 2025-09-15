@@ -16229,3 +16229,39 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 小孩们的眼神，反拿的标语，嘴叼的标语。好歹用“韩文”啊，南方当局做给谁看呢，就是想举星条旗吧，是吧是吧。
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hgamer  
+##### 1456#       发表于 2025-9-15 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431586&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 12:17</a>
+
+韩国这波也太丢人了。</blockquote>
+事大嘛，半岛传统，不寒掺<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就咋的  
+##### 1457#       发表于 2025-9-15 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68432107&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-15 13:45</a>
+
+主要是内网也没有很熟这人，只是看到一些他怼白左的切片会去吹他也正常 ...</blockquote>
+现在的所谓主流价值观国家，在用“父亲、丈夫、爱国者、‘虔诚’新教徒”的身份标签为“支持战争的种_族主义者”站队，韩国也是新教的徒子徒孙，那家伙地下邪教、家庭邪教多的哟。
+
+现在还在哭丧的国内孝子贤孙们，除了认同“主流价值观”，还有极端分子对另一派极端分子的“感同身受”。
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 1458#       发表于 2025-9-15 14:16
+
+<blockquote>守名居 发表于 2025-9-15 12:37
+按说查理那套支持丈夫的钱全给妻子花，棒子居然还能吊唁</blockquote>
+棒子看起来男女闹得凶，也不可能是所有人都在闹吧，传统事大男尊女卑老保和高度基督教化的妻子服从丈夫二合一，肯定有很多男女问题上的老保的。
+
+应该正是因为老保太多了才出现了激进女性势力，激进女性引发了后现代男性势力
+
