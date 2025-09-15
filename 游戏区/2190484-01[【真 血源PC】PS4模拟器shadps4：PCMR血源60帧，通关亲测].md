@@ -1750,3 +1750,15 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 何必如此勉强，买台破解ps4pro吧
 
+
+*****
+
+####  gkstill  
+##### 168#       发表于 2025-9-15 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+何必如此勉强，买台破解ps4pro吧</blockquote>
+没有高帧率啊，而且当初在ps4pro上打了十几遍了
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
