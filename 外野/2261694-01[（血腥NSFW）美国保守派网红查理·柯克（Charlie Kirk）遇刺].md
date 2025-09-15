@@ -15949,3 +15949,15 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 美国正在解雇发帖嘲笑科克死亡的人，你看就业岗位就创造出来了</blockquote>
 神经外科医生转帖也被解雇了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星零影  
+##### 1429#       发表于 2025-9-15 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68429775&amp;ptid=2261694" target="_blank">双面人 发表于 2025-9-15 08:09</a>
+美国正在解雇发帖嘲笑科克死亡的人，你看就业岗位就创造出来了</blockquote>
+失业人口也创造出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
