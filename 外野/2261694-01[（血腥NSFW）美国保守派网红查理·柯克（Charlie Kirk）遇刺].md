@@ -16469,3 +16469,19 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 上个诱杀消防员的倒是真是个小马宝莉粉femboy
 
+
+*****
+
+####  全世界失恋  
+##### 1478#       发表于 2025-9-16 07:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说好的言论自由呢，怎么转个帖就要被开除，西大这是准备复刻什么著名历史事件了吗
+
+
+*****
+
+####  03e7  
+##### 1479#       发表于 2025-9-16 07:32
+
+因为发个帖子就丢了工作的民主党人们就这么忍着吗？
+
