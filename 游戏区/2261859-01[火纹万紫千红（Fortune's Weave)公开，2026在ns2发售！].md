@@ -4763,3 +4763,14 @@ IS开发的话剧情比较担忧，好像又是多线的节奏，担忧更加大
 结合要扩圈，不会是为了扩到低龄圈所以剧情对话还有人物都那么弱智和单调吧？ ...</blockquote>
 不会 你看if的剧情……is就是这么菜
 
+
+*****
+
+####  Jabeck  
+##### 482#       发表于 2025-9-15 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68435173&amp;ptid=2261859" target="_blank">black199 发表于 2025-9-15 22:55</a>
+
+不会 你看if的剧情……is就是这么菜</blockquote>
+IS我忘记了，但人物塑造没那么格式化和白痴。
+
