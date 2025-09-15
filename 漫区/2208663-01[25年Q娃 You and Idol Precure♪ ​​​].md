@@ -251,3 +251,14 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 机器人屑人鱼和索拉那都是本来的名字吧（屑人鱼准确说是和茶几的小公主一样是本名缩写，不过小公主那边缩 ...</blockquote>
 可是公主的原名也不是白雪公主啊，没记错的话是说她喜欢白雪公主所以直接用了
 
+
+*****
+
+####  pokemon最爱  
+##### 1299#       发表于 2025-9-15 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433773&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-9-15 18:00</a>
+
+可是公主的原名也不是白雪公主啊，没记错的话是说她喜欢白雪公主所以直接用了 ...</blockquote>
+查了下姓白雪是编的，但是名字hime是原本名字里就有的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机器人屑人鱼和索拉都是本名没有问题。
+
