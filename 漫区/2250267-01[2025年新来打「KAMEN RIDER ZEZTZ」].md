@@ -1157,3 +1157,14 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  暗黑能乐  
+##### 298#       发表于 2025-9-15 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431707&amp;ptid=2250267" target="_blank">kyomu 发表于 2025-9-15 12:38</a>
+
+第二集观感比第一集好，男主演逗比比装逼强多了。打斗也没多好吧，全靠视效来拉观感，而且音效有点问题，配 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这实拍飙车戏很多年都没看到了
+

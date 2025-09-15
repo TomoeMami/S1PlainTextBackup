@@ -16154,3 +16154,21 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 按说查理那套支持丈夫的钱全给妻子花，棒子居然还能吊唁<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yho  
+##### 1449#       发表于 2025-9-15 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68430787&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 10:44</a></blockquote>
+这桃子摘得也太明显了吧
+
+*****
+
+####  古凌锋  
+##### 1450#       发表于 2025-9-15 13:15
+
+<blockquote>守名居 发表于 2025-9-15 12:37
+按说查理那套支持丈夫的钱全给妻子花，棒子居然还能吊唁</blockquote>
+国内不也有孝子贤孙吹他“反女权”嘛，一回事
+
