@@ -1708,3 +1708,13 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 可以开1080以上了么，之前高分辨率很容易死机
 
+
+*****
+
+####  bypass  
+##### 164#       发表于 2025-9-15 09:39
+
+今年三月份打通的，2K + RTX HDR 绝赞，可惜当时 2K 分辨率很不稳定。
+
+[https://www.bilibili.com/video/BV1AyXWY1Eeo](https://www.bilibili.com/video/BV1AyXWY1Eeo)
+
