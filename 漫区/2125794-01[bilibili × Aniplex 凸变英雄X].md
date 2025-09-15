@@ -1003,3 +1003,11 @@ X给幸运青投币的时候还没能力？
 X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较他人就着有质的飞跃，然后各路手下败将们的恐惧让他逐渐成为了无法战胜的存在？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 和0不同的是X的身份一直无人知晓，被开盒的时点已经不受信赖/恐惧体系束缚，到达了更唯心的俺寻思之力的境界？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 526#       发表于 2025-9-15 21:29
+
+期待第二季啊啊啊啊啊啊我要看更多2D幸运青
+
