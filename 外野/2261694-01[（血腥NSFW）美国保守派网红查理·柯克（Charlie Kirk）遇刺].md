@@ -16350,3 +16350,14 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
  ...</blockquote>
 错误的，单纯看屁股坐哪边
 
+
+*****
+
+####  就咋的  
+##### 1466#       发表于 2025-9-15 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433669&amp;ptid=2261694" target="_blank">双面人 发表于 2025-9-15 17:44</a>
+
+错误的，单纯看屁股坐哪边</blockquote>
+查理事件就像一场暴雨，暴雨过后土里的蚯蚓都钻出来了。
+
