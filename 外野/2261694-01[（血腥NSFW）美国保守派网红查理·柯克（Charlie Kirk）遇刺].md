@@ -16399,3 +16399,13 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 <img src="https://p.sda1.dev/27/8803d85ae6f12ce24ba4fa4c92b79093/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  notromeo  
+##### 1471#       发表于 2025-9-15 20:17
+
+复旦殖种再次证明了自己的本色
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
