@@ -16119,3 +16119,13 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 现在教皇我记得是美国人了吧，大小得给查理柯克封个圣了吧
 
+
+*****
+
+####  xuanwu_lei  
+##### 1445#       发表于 2025-9-15 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431487&amp;ptid=2261694" target="_blank">windtrack_qh 发表于 2025-9-15 12:03</a>
+现在教皇我记得是美国人了吧，大小得给查理柯克封个圣了吧</blockquote>
+首先，查理是抗罗宗的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
