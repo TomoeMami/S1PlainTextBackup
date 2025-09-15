@@ -16146,3 +16146,11 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 南棒充分发挥了孝感动天精神。
 
+
+*****
+
+####  守名居  
+##### 1448#       发表于 2025-9-15 12:37
+
+按说查理那套支持丈夫的钱全给妻子花，棒子居然还能吊唁<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

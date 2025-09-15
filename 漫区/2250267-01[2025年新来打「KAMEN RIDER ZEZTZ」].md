@@ -1147,3 +1147,13 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 敌役：特殊战士NOX
 <img src="https://p.sda1.dev/27/4a6e65a182d6157bf0b90af8c337ac0d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyomu  
+##### 297#       发表于 2025-9-15 12:38
+
+第二集观感比第一集好，男主演逗比比装逼强多了。打斗也没多好吧，全靠视效来拉观感，而且音效有点问题，配得软绵绵的，跟视觉不匹配。最后那个摩托车上凹造型拍得挺好的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
