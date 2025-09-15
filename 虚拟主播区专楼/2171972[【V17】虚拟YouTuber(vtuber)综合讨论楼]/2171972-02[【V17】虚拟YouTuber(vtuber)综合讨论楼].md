@@ -252,3 +252,15 @@ syl，yhm也是会公开不锁在推上骂的，只是找起来需要点技术
 
 看了一眼也没几次啊，最近的也就社，其他不都是跟小姐妹联动？
 
+
+*****
+
+####  Ketestrait  
+##### 1535#       发表于 2025-9-15 22:07
+
+ 本帖最后由 Ketestrait 于 2025-9-15 22:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434938&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-9-15 22:03</a>
+
+看了一眼也没几次啊，最近的也就社，其他不都是跟小姐妹联动？</blockquote>
+联动男V只是其中一条，其他联动也喷了，总之就是喷你丫联动来者不拒，挤占普通直播时间，再联动下去来看你的人都跑了之类
+

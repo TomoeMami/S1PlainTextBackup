@@ -16409,3 +16409,18 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1472#       发表于 2025-9-15 22:11
+
+<img src="https://p.sda1.dev/27/528a7ca23fd85616e6850b44c2f5739d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  black199  
+##### 1473#       发表于 2025-9-15 22:14
+
+4.0不是高中绩点吗，而且学杂费全免，理论上已经是赢到起跑线了结果最后还是成了家里蹲
+
