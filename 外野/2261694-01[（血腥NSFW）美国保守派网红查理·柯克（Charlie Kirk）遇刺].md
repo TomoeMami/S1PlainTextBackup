@@ -15994,3 +15994,21 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 —— 来自 S1Fun</blockquote>
 民主党美国人失业和我maga有什么关系？<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 1433#       发表于 2025-9-15 09:47
+
+想象下，一帮人在网上狂吹你不悼念某某网红你就不是X国人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/339e38a02a4be2329723b637ef4b45cc/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  03e7  
+##### 1434#       发表于 2025-9-15 09:49
+
+脖子左拧
+
