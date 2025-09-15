@@ -4803,3 +4803,17 @@ IS我忘记了，但人物塑造没那么格式化和白痴。</blockquote>
 
 只要你出三间房子相关的东西我们就是好朋友<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 486#       发表于 2025-9-16 01:33
+
+你们一吹一踩的最好知道一下开发真相，其实你们一直被IS左右手战略性玩弄<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+《火焰纹章：风花雪月》的开发主要人员包括横田弦纪（监督，任天堂企划开发部所属）和草木原俊行（监督，就职于 Intelligent Systems）
+
+《风花雪月》在设定上有些像三国，这可能是潜意识中受到了光荣特库摩开发者的启发，Intelligent Systems团队没有特意想过要去致敬《三国演义》
+
+ 根据草木原介绍，光荣特库摩在设计方面并没有做很多工作，美术和设计工作全由Intelligent Systems团队完成，自由画师幸田和磨与角色设计师仓花千夏帮助进行了制作，主要情节、游戏系统、全部的创意、游戏机制——这些基础都是由Intelligent Systems团队决定
+
