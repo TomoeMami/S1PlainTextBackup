@@ -1718,3 +1718,35 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 [https://www.bilibili.com/video/BV1AyXWY1Eeo](https://www.bilibili.com/video/BV1AyXWY1Eeo)
 
+
+*****
+
+####  gkstill  
+##### 165#       发表于 2025-9-15 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68429673&amp;ptid=2190484" target="_blank">usodakedo 发表于 2025-9-15 07:07</a>
+8g显存大概最多能顶多久？
+
+—— 来自 S1Fun</blockquote>
+两个小时就会从4g干到7.8g，偶尔会自己释放一些显存，但是会卡几秒
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  gkstill  
+##### 166#       发表于 2025-9-15 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68430152&amp;ptid=2190484" target="_blank">Mephisto 发表于 2025-9-15 09:29</a>
+可以开1080以上了么，之前高分辨率很容易死机</blockquote>
+我这8g破显卡能开，但是可能半个小时就爆显存了
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  huahuaanying  
+##### 167#       发表于 2025-9-15 21:54
+
+何必如此勉强，买台破解ps4pro吧
+
