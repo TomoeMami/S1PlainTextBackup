@@ -16012,3 +16012,28 @@ https://weibo.com/7452902073/Q452LqpjU ...</blockquote>
 
 脖子左拧
 
+
+*****
+
+####  全都笑了  
+##### 1435#       发表于 2025-9-15 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68430282&amp;ptid=2261694" target="_blank">2017.05.04 发表于 2025-9-15 09:47</a>
+
+想象下，一帮人在网上狂吹你不悼念某某网红你就不是X国人</blockquote>
+给查理柯克敬个礼再走！不顶不是美国人！
+
+
+*****
+
+####  仟音一心  
+##### 1436#       发表于 2025-9-15 10:44
+
+<img src="https://img.stage1st.com/forum/202509/15/104430x9a9s1yj6ojtt6h1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 10:44 上传
+
