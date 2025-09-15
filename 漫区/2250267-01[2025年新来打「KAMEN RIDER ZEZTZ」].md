@@ -1168,3 +1168,11 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 第二集观感比第一集好，男主演逗比比装逼强多了。打斗也没多好吧，全靠视效来拉观感，而且音效有点问题，配 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这实拍飙车戏很多年都没看到了
 
+
+*****
+
+####  石狮鬼  
+##### 299#       发表于 2025-9-15 16:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2话看下来，砍掉各种动作戏码，文戏看着其实很生硬，先质疑
+
