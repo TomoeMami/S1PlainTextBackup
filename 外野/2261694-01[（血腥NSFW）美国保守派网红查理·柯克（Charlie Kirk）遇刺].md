@@ -16111,3 +16111,11 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 [https://www.youtube.com/watch?v=STwfqfGH1wc](https://www.youtube.com/watch?v=STwfqfGH1wc)</blockquote>
 没毛病，这是他这频道最体现社会正面意义，人生一辈子贡献最大的时刻<img src="https://static.stage1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 1444#       发表于 2025-9-15 12:03
+
+现在教皇我记得是美国人了吧，大小得给查理柯克封个圣了吧
+
