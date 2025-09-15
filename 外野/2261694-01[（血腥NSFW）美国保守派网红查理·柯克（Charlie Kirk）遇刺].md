@@ -16099,3 +16099,15 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 油-管上查理·柯克的账号刚刚直播了自己的葬礼<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qsjs  
+##### 1443#       发表于 2025-9-15 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431244&amp;ptid=2261694" target="_blank">longrider 发表于 2025-9-15 11:30</a>
+
+WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
+[https://www.youtube.com/watch?v=STwfqfGH1wc](https://www.youtube.com/watch?v=STwfqfGH1wc)</blockquote>
+没毛病，这是他这频道最体现社会正面意义，人生一辈子贡献最大的时刻<img src="https://static.stage1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
