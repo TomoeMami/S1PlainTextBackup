@@ -16129,3 +16129,20 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 现在教皇我记得是美国人了吧，大小得给查理柯克封个圣了吧</blockquote>
 首先，查理是抗罗宗的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1446#       发表于 2025-9-15 12:17
+
+韩国这波也太丢人了。
+<img src="https://p.sda1.dev/27/596df9197b1c34ade14ca512a8097068/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飛霞精灵  
+##### 1447#       发表于 2025-9-15 12:21
+
+南棒充分发挥了孝感动天精神。
+
