@@ -16286,3 +16286,17 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 
 这人其实和路易吉差不多，很难用左右模版套，他是隐藏的更深，更混沌的4CH乐子人。
 
+
+*****
+
+####  仟音一心  
+##### 1461#       发表于 2025-9-15 17:00
+
+<img src="https://img.stage1st.com/forum/202509/15/170049apryx2vqptxp3q83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 17:00 上传
+
