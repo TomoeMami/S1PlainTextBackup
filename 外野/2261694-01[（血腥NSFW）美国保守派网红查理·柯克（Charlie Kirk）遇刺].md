@@ -16370,3 +16370,22 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433667&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-15 17:44</a></blockquote>
 查抄大观园是吧
 
+
+*****
+
+####  全都笑了  
+##### 1468#       发表于 2025-9-15 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433444&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 17:00</a></blockquote>
+我国目田派最典的乐子是，支持本国本民族工商业算小粉红<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  全都笑了  
+##### 1469#       发表于 2025-9-15 18:14
+
+ 本帖最后由 全都笑了 于 2025-9-15 18:17 编辑 
+
+我美急需苹果手机开发新功能，检测到说川宝不是最伟大总统、查理柯克之死不是杯具、以色列不是正义的、人民有堕胎的权力、禁gun是正确的之类的言论，自动高温过热继而发出闪光和巨响，以色列可提供技术支持。
+
