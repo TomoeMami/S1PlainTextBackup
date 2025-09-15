@@ -1700,3 +1700,11 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 马克一下
 
+
+*****
+
+####  Mephisto  
+##### 163#       发表于 2025-9-15 09:29
+
+可以开1080以上了么，之前高分辨率很容易死机
+
