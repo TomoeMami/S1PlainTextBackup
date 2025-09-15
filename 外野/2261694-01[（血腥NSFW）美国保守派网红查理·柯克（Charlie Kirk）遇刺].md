@@ -16442,3 +16442,16 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 贵灯塔再这么搞从上到下心力交瘁，我建议还是开发一套国家文创，每人发一套标签吧唧，什么驴党象党什么LGBT ...</blockquote>
 某个加拿大人已经根据这个点子出过键政圈知名剧集了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 1476#       发表于 2025-9-16 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431029&amp;ptid=2261694" target="_blank">双面人 发表于 2025-9-15 11:07</a>
+
+新乐子，嫌疑人室友实际是他正在变性的男友
+
+太乱了，混沌温床了说是</blockquote>
+米匪的右派好像扒出来枪手本人steam游戏库和其他社交媒体了，如果不是栽赃的话还是个兽圈毛基，要是真的也算刻板印象拉满了
+
