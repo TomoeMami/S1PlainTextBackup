@@ -16190,3 +16190,21 @@ WASHINGTON D.C. PRAYER VIGIL FOR CHARLIE KIRK
 按说查理那套支持丈夫的钱全给妻子花，棒子居然还能吊唁</blockquote>
 正常啊，就以他们的宗教思维来看，第一个人是亚当是男人，第一个女人是亚当身上肋骨变来的，女人是男人的一部分，给自己一部分花钱理所当然，但同样也会要求自己的一部分完全听他的
 
+
+*****
+
+####  outerish  
+##### 1453#       发表于 2025-9-15 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431943&amp;ptid=2261694" target="_blank">古凌锋 发表于 2025-9-15 13:15</a>
+
+国内不也有孝子贤孙吹他“反女权”嘛，一回事</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/15/134541ashlq5lse8e5ki6l.png" referrerpolicy="no-referrer">
+
+<strong>image_2025-09-15_134539398.png</strong> (391.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-15 13:45 上传
+
