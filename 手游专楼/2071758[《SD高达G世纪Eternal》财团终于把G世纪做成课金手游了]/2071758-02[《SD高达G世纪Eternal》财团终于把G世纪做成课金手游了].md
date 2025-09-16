@@ -4361,3 +4361,15 @@ fes在香港那边整那么大阵仗，挺大概率是神高达吧
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  dio999  
+##### 2663#       发表于 2025-9-16 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68439395&amp;ptid=2071758" target="_blank">arthes 发表于 2025-9-16 16:53</a>
+fes在香港那边整那么大阵仗，挺大概率是神高达吧
+
+而且神高达有sd系列最能整活的无数角色神手指台词，论牌面 ...</blockquote>
+香港那边早几天不是w的无人机表演嘛，说不定是掉毛呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
