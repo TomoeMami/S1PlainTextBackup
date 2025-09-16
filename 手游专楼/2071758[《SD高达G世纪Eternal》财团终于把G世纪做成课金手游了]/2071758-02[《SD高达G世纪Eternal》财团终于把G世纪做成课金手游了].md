@@ -4373,3 +4373,11 @@ fes在香港那边整那么大阵仗，挺大概率是神高达吧
 而且神高达有sd系列最能整活的无数角色神手指台词，论牌面 ...</blockquote>
 香港那边早几天不是w的无人机表演嘛，说不定是掉毛呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 2664#       发表于 2025-9-16 20:49
+
+网页抽卡活动，国际服记得选择英语就可以抽了。选择日语的话，对应的是日服
+
