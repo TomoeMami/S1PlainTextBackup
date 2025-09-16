@@ -179,3 +179,58 @@
 </blockquote>
 这集我看过，是不是等会黑格塞斯要进来一则为主公感到悲伤二则为主公道喜
 
+
+*****
+
+####  就咋的  
+##### 1498#       发表于 2025-9-16 11:27
+
+虚假的左右横跳 (MAGA)
+<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">
+
+真正的上下左右跳 (RAGE)
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1499#       发表于 2025-9-16 11:28
+
+vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
+
+*****
+
+####  扎克远山  
+##### 1500#       发表于 2025-9-16 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431586&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 12:17</a>
+
+韩国这波也太丢人了。</blockquote>
+真是一条好狗.jpg
+
+
+*****
+
+####  胜改藏  
+##### 1501#       发表于 2025-9-16 11:34
+
+ 本帖最后由 胜改藏 于 2025-9-16 11:35 编辑 
+<blockquote>加油牛油果 发表于 2025-9-16 09:58
+楼太高了没有爬，杀人动机有了吗，是具体反对查理哪条言论</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/16/113359jnj5m5fjjknmm3aj.jpg" referrerpolicy="no-referrer">
+
+<strong>1000023117.jpg</strong> (31.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 11:33 上传
+
+<img src="https://img.stage1st.com/forum/202509/16/113459yz1okbwt9kvutm93.jpg" referrerpolicy="no-referrer">
+
+<strong>1000023119.jpg</strong> (50.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 11:34 上传
+
