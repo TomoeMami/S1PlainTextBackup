@@ -149,3 +149,15 @@
 楼太高了没有爬，杀人动机有了吗，是具体反对查理哪条言论</blockquote>
 没有，拒绝回答，从4chan账号发言看其实就是想出名……
 
+
+*****
+
+####  鵝  
+##### 1495#       发表于 2025-9-16 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436828&amp;ptid=2261694" target="_blank">加油牛油果 发表于 2025-9-16 09:58</a>
+楼太高了没有爬，杀人动机有了吗，是具体反对查理哪条言论</blockquote>
+就是玩梗玩上头的梗小鬼嗷的一声发动了“人诛”吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
