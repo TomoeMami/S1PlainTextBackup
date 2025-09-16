@@ -379,3 +379,21 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 为什么你们不说这个是在学我们，但是他又办不到
 
+
+*****
+
+####  outerish  
+##### 1516#       发表于 2025-9-17 03:26
+
+疑似枪手Steam被挖出来了
+
+<img src="https://img.stage1st.com/forum/202509/17/032534e88qjpz8t14w3snp.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0012.jpeg</strong> (65.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 03:25 上传
+
+玩了快400小时给差评
+
