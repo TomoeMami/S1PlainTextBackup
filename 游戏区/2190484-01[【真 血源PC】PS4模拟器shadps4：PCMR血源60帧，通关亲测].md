@@ -1795,3 +1795,13 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 何必如此勉强，买台破解ps4pro吧</blockquote>
 简中重译，提灯增强，60帧这些都能提升体验的功能ps都没啊
 
+
+*****
+
+####  zhenlune  
+##### 172#       发表于 2025-9-16 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68440667&amp;ptid=2190484" target="_blank">浅色轮回 发表于 2025-9-16 21:20</a>
+简中重译，提灯增强，60帧这些都能提升体验的功能ps都没啊</blockquote>
+简中重译的mod可以打到实机上，但是超级麻烦<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
