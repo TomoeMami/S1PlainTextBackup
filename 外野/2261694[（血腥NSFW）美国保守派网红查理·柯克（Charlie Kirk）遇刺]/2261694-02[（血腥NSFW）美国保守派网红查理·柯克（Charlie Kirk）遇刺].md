@@ -299,3 +299,11 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 白右只敢学白左的取消文化吗？红脖子的武德充沛呢？我要看血流成河！
 
+
+*****
+
+####  卡嘎米  
+##### 1509#       发表于 2025-9-16 16:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白右的行为模式你们真的可以参考女X组织，所以这人必须是白左，不是也是
+
