@@ -1032,3 +1032,14 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 
 而且海外一片好评
 
+
+*****
+
+####  rushsong  
+##### 529#       发表于 2025-9-16 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68429530&amp;ptid=2125794" target="_blank">KUMA 发表于 2025-9-15 04:57</a>
+
+感觉就是给买人物周边做的广告片，所以做成人物单元剧就是这个道理。故事剧情方面呵呵呵就行了，各式人物有 ...</blockquote>
+问题就是这片的人设太土了，lh0连人设都不会买了，bangumi就有人吐槽过了，主要角色里有四个白毛，两个撞外形能力，除了x和女王以外其他人的能力土的一比
+
