@@ -4976,3 +4976,30 @@ IS现在最大的问题是很多时候他们脑子根本就不清醒，也看不
 
 倒不如IS现在属于觉得什么火就做什么，不然也不会因为觉醒惯性觉得结合是花了大功夫会受到更多玩家喜欢的扩圈作品，我可能觉得他们真的完全没有开发方向，看国内火纹历史视频＋欧美玩家推测，这帮人现在开发作品很大程度上靠点子文学＋市场反馈<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PrincessBanana  
+##### 499#       发表于 2025-9-16 15:40
+
+这作背景很明显chu的迦太基啊，作为一个横亘中东北非的帝国，人设这么做没啥问题吧
+黑皮XP大满足了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/16/153900cjtx7xj5mc5x3b5k.jpg" referrerpolicy="no-referrer">
+
+<strong>5FFF977E-536C-45BC-8987-94E1AF1BE7B0.jpg</strong> (351.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 15:38 上传
+
+<img src="https://img.stage1st.com/forum/202509/16/153900p9prp8b7n7plvi8h.jpg" referrerpolicy="no-referrer">
+
+<strong>3AA4778D-39CE-42AF-9D76-9EA7520CFF10.jpg</strong> (777.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 15:39 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -291,3 +291,11 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 再加一句。
 <img src="https://p.sda1.dev/27/796e899a7323b16725232d0a9d51db90/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  outerish  
+##### 1508#       发表于 2025-9-16 15:43
+
+白右只敢学白左的取消文化吗？红脖子的武德充沛呢？我要看血流成河！
+
