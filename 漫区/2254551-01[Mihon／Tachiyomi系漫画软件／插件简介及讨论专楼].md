@@ -32,3 +32,16 @@ GODA漫画、COLAMANGA、漫蛙。
 就是对条漫分页切割方式有点奇怪，怎么调都不舒服。 ...</blockquote>
 谢谢，有了，确实漫条有点奇怪，这个只能上下翻而且翻的特别慢。
 
+
+*****
+
+####  软软人  
+##### 93#       发表于 2025-9-17 04:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68425650&amp;ptid=2254551" target="_blank">慈父斯大林 发表于 2025-9-14 15:52</a>
+GODA漫画、COLAMANGA、漫蛙。
+就是对条漫分页切割方式有点奇怪，怎么调都不舒服。 ...</blockquote>
+条漫尽量就是按条漫模式看，不要分页和选择切割，虽然不分页跨页的画画面也对不齐，之前我也很不习惯条漫都不看的觉得眼晕，前阵子看了几个觉得已经习惯了，不得不感叹人类的自适应能力太强了！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
