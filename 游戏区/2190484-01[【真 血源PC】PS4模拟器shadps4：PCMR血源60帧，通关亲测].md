@@ -1762,3 +1762,25 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 —— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  yvev  
+##### 169#       发表于 2025-9-16 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+
+何必如此勉强，买台破解ps4pro吧</blockquote>
+才发现独醒侠活这么密，本以为只是来串的，现在有点钦佩起来了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usodakedo  
+##### 170#       发表于 2025-9-16 20:13
+
+ 本帖最后由 usodakedo 于 2025-9-16 20:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+何必如此勉强，买台破解ps4pro吧</blockquote>
+八百年前早就通关好几遍了，宝石也基本刷毕业了，现在模拟器不就图一个怀旧加高帧数加做视频方便吗？对于新人来说也更方便体验
+

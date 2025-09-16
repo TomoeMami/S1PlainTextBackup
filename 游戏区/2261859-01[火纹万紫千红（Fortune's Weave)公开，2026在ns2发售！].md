@@ -5209,3 +5209,15 @@ IS现在最大的问题是很多时候他们脑子根本就不清醒，也看不
 
 if的支援对话又不傻逼，engage是自断双臂
 
+
+*****
+
+####  沙发果冻  
+##### 518#       发表于 2025-9-16 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68435606&amp;ptid=2261859" target="_blank">57042711 发表于 2025-9-16 00:37</a>
+剧情能超过贝利克物语吗
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能，剧情能有三房那个水平就谢天谢地了，你现在还没发现么，engage剧情就是is的常规水平
+
