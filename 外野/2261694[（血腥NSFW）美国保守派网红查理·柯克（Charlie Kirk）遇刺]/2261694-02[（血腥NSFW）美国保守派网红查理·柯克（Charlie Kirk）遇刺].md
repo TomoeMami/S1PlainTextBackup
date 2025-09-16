@@ -270,3 +270,24 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 看到建议宣布Antifa是外国恐怖组织，这招太狠了
 
+
+*****
+
+####  素盏鸣尊  
+##### 1506#       发表于 2025-9-16 14:08
+
+好像msn新闻找到枪手的discord账号了。证实其中有赞扬Nick Fuentes对保守派的纯度测试，辱骂查理柯克为“犹太复国主义叛徒”，以及分享Groyper表情包的行为。不过还没看到截图证据。
+
+
+*****
+
+####  仟音一心  
+##### 1507#       发表于 2025-9-16 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436303&amp;ptid=2261694" target="_blank">三天八百万 发表于 2025-9-16 08:54</a>
+一个美国人和一个中国人谈话。
+
+　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
+再加一句。
+<img src="https://p.sda1.dev/27/796e899a7323b16725232d0a9d51db90/image.jpg" referrerpolicy="no-referrer">
+
