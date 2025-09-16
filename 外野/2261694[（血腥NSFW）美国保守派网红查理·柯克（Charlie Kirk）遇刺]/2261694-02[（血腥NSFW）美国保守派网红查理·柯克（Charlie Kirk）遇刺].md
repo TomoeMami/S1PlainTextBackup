@@ -397,3 +397,15 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 玩了快400小时给差评
 
+
+*****
+
+####  qwased  
+##### 1517#       发表于 2025-9-17 04:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68441671&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-17 03:26</a>
+疑似枪手Steam被挖出来了
+
+玩了快400小时给差评</blockquote>
+我也400小时给差评啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
