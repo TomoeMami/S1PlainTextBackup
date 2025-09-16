@@ -5019,3 +5019,20 @@ IS现在最大的问题是很多时候他们脑子根本就不清醒，也看不
 
 黑皮和黑人是两个概念，这作四大势力代表角色中，蓝方的黑皮小男孩和黄方的黑皮大姐都有明显的黑人特征（脏辫or厚嘴唇），红方的舞娘虽然也是黑皮但没有非洲人种的特征，更像是印度或者波斯那一块的。不过四大势力领袖有三个都是偏黑色皮肤确实太过于激进了
 
+
+*****
+
+####  蓮華  
+##### 502#       发表于 2025-9-16 16:16
+
+<img src="https://img.stage1st.com/forum/202509/16/161615srlf8rliqeglwg0r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4783.jpeg</strong> (179.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-16 16:16 上传
+
+这张图还能用下去
+
