@@ -242,3 +242,31 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 我的好朋友kirk死了，为什么！
 
+
+*****
+
+####  2017.05.04  
+##### 1503#       发表于 2025-9-16 12:30
+
+好事，该让大家看看真正的保守主义者是什么玩意了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  龙利鱼钓鱼  
+##### 1504#       发表于 2025-9-16 12:33
+
+<blockquote>gammatau 发表于 2025-9-16 12:07
+我的好朋友kirk死了，为什么！</blockquote>
+“因为他是个安卓人！”
+
+说罢，户晨风将苹果水一口饮尽，关掉了万斯的流媒体直播
+
+*****
+
+####  储安平  
+##### 1505#       发表于 2025-9-16 12:34
+
+看到建议宣布Antifa是外国恐怖组织，这招太狠了
+
