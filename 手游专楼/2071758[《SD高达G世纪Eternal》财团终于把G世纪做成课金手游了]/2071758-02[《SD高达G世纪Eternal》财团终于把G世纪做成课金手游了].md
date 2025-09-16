@@ -4314,3 +4314,16 @@ ZZ永恒对机体机师要求倒是不高，但赌命中非常严重……用的
 
 半周年大概率是G高达了，多刷点G高达的开发材料吧
 
+
+*****
+
+####  kenqqex  
+##### 2659#       发表于 2025-9-16 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68438185&amp;ptid=2071758" target="_blank">captoon 发表于 2025-9-16 13:14</a>
+
+半周年大概率是G高达了，多刷点G高达的开发材料吧</blockquote>
+正确的说法是g的主线后半部分
+
+半周年fes的机体还是没说是啥
+
