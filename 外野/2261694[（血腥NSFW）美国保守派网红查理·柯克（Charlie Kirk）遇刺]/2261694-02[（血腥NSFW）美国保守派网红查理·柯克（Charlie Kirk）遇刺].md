@@ -169,3 +169,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真心实意的串子简直就是身份政治的天然克星
 
+
+*****
+
+####  双面人  
+##### 1497#       发表于 2025-9-16 11:14
+
+<blockquote>last_regret 发表于 2025-9-16 09:53
+</blockquote>
+这集我看过，是不是等会黑格塞斯要进来一则为主公感到悲伤二则为主公道喜
+
