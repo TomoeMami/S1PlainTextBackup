@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 13280,
+    "totalreply": 13281,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1758019109,
+    "lastedit": 1758025450,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 191200,
+    "totalreply": 191203,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1758024867,
+    "lastedit": 1758025568,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 192378,
+    "totalreply": 192385,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1758025094,
+    "lastedit": 1758025692,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 9960,
+    "totalreply": 9961,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼／指到秋直!912晚九点!]",
-    "lastedit": 1758023899,
+    "lastedit": 1758025690,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16232,7 +16232,7 @@
     "newtitle": "[Fate／strange Fake TV动画化 2026年1月]",
     "lastedit": 1757766368,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2261774": {
@@ -17001,10 +17001,10 @@
     "update": false
   },
   "2262052": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[ACG业界有哪些有趣的“失传媒体”]",
     "newtitle": "[ACG业界有哪些有趣的“失传媒体”]",
-    "lastedit": 1758023533,
+    "lastedit": 1758025331,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2262134": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[空洞骑士丝之歌vs密特罗德生存恐惧]",
     "newtitle": "[空洞骑士丝之歌vs密特罗德生存恐惧]",
-    "lastedit": 1758016950,
+    "lastedit": 1758025692,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17163,19 +17163,19 @@
     "update": false
   },
   "2262129": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[机器狗这种东西普通人日常生活能用来干啥？]",
     "newtitle": "[机器狗这种东西普通人日常生活能用来干啥？]",
-    "lastedit": 1758024867,
+    "lastedit": 1758025451,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2262149": {
-    "totalreply": 102,
+    "totalreply": 103,
     "title": "[内塔尼亚胡：你有手机吧，只要你有手机，你就拿着“一块以色列”。]",
     "newtitle": "[内塔尼亚胡：你有手机吧，只要你有手机，你就拿着“一块以色列”。]",
-    "lastedit": 1758024867,
+    "lastedit": 1758025211,
     "category": "外野",
     "active": true,
     "update": false
@@ -17235,11 +17235,20 @@
     "update": false
   },
   "2262154": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[如果真有her机器人，还会有人找真实人类吗]",
     "newtitle": "[如果真有her机器人，还会有人找真实人类吗]",
-    "lastedit": 1758024858,
+    "lastedit": 1758025209,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2262159": {
+    "totalreply": 41,
+    "title": "[（丝之歌）玩家为什么会生气]",
+    "newtitle": "[（丝之歌）玩家为什么会生气]",
+    "lastedit": 1758025454,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
