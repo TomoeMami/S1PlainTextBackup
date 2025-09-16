@@ -424,3 +424,13 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 大多数人都在那时候打了差评+退款申请
 
+
+*****
+
+####  休達  
+##### 1519#       发表于 2025-9-17 07:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431934&amp;ptid=2261694" target="_blank">yho 发表于 2025-9-15 13:13</a>
+这桃子摘得也太明显了吧</blockquote>
+死人比活人好用
+
