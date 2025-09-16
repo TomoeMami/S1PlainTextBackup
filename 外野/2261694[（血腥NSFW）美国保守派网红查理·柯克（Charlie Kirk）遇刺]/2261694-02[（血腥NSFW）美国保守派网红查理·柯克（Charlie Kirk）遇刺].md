@@ -307,3 +307,29 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白右的行为模式你们真的可以参考女X组织，所以这人必须是白左，不是也是
 
+
+*****
+
+####  双面人  
+##### 1510#       发表于 2025-9-16 16:53
+
+之前说方舟子我还以为爆了什么高论呢
+
+一看主要是四字“求仁得仁
+
+都不值得收入查理柯克死亡梗好么
+
+
+*****
+
+####  仟音一心  
+##### 1511#       发表于 2025-9-16 17:01
+
+<img src="https://img.stage1st.com/forum/202509/16/170139jzw59tpohquo365t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 17:01 上传
+
