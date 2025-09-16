@@ -5256,3 +5256,14 @@ if的支援对话又不傻逼，engage是自断双臂
 成年苏迪斯的台词比较冷漠，感觉这个成年版是要展示她坏的一面的，或者起码是没那么善的一面，说不定她在这 ...</blockquote>
 正片的学院篇里，苏蒂斯直接提醒主角要小心蕾雅<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">学院篇皇女、苏蒂斯、老爹包括几个智囊学生都提醒贝老师要提防蕾雅，很难不被带偏。
 
+
+*****
+
+####  hkguty  
+##### 522#       发表于 2025-9-16 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68440672&amp;ptid=2261859" target="_blank">nagitoY 发表于 2025-9-16 21:21</a>
+
+无双里苏蒂斯倒是杀伐果断，几次都差点要了谢兹的命。</blockquote>
+她本就是个对自己人亲，对敌人狠的角色，如果万紫千红里还有她的话估计也还是赛罗司那时的杀伐果断性格
+
