@@ -4899,3 +4899,14 @@ IS现在最大的问题是很多时候他们脑子根本就不清醒，也看不
 
 觉醒if、复刻的外传，engage，如果再算上手游的火纹，不要对is剧情有什么期待，人物一般也只能看个皮，给你打架钻研钻研关卡就完事了。
 
+
+*****
+
+####  nagitoY  
+##### 493#       发表于 2025-9-16 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68437154&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2025-9-16 10:36</a>
+
+对于万紫千红这部，如果上一部的玩家自捏能够作为最终BOSS登场（或者苏提斯真的即将靠玩家复活），那么剧情 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
