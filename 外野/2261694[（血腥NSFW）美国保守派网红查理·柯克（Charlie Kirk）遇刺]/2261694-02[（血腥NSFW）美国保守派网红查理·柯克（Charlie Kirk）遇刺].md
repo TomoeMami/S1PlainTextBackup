@@ -93,3 +93,30 @@
 查抄大观园是吧</blockquote>
 可知这样大族人家，若从外头杀来，一时是杀不死的，这是古人曾说的‘百足之虫，死而不僵’，必须先从家里自杀自灭起来，才能一败涂地！
 
+
+*****
+
+####  last_regret  
+##### 1490#       发表于 2025-9-16 09:53
+
+<img src="https://img.stage1st.com/forum/202509/16/095316wizc277b7710fz9z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-09-16-09-52-23-553_com.twitter.android-edit.jpg</strong> (544.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-16 09:53 上传
+
+  
+
+*****
+
+####  xuanwu_lei  
+##### 1491#       发表于 2025-9-16 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436595&amp;ptid=2261694" target="_blank">酱豆腐 发表于 2025-9-16 09:30</a>
+其实工资本上交这一条就是错的，已经被女权带歪了，按照老保或者是老祖宗们的智慧，资产还是拿在男的手里 ...</blockquote>
+这个进化到最后就是法式Pacs协议
+
+对红脖子来说还是太左逼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
