@@ -333,3 +333,16 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 2025-9-16 17:01 上传
 
+
+*****
+
+####  失落之翼  
+##### 1512#       发表于 2025-9-16 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436819&amp;ptid=2261694" target="_blank">Cthululives 发表于 2025-9-16 09:57</a>
+
+在某乎说这话未必见得就安全吧
+
+美国会不会跨洋执法先两说，某乎一众小将说不定直接就招呼上来了 ...</blockquote>
+某乎小将招呼上来又如何，网页或者APP一关，难道还能顺网线吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
