@@ -1049,3 +1049,13 @@ PS5野排，关掉跨区域路人素质超乎你的想象。
 
 STEAM平台 情况如何不知道 反正PS5平台 还没BOSS 一倒就拔线 ，瞎几把跑跟不上 就自己拔线的 各种拔线的SB越来越多 开10局 7 8局 拔线的 
 
+
+*****
+
+####  jy000129  
+##### 1730#       发表于 2025-9-16 12:56
+
+昨天群里组队，深3开局就翻车团灭了一次，坚持下去还是过了，不过有一局王三狼很顺都团灭<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
