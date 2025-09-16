@@ -1282,3 +1282,16 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 7107#       发表于 2025-9-17 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68440764&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-9-16 21:42</a>
+
+无限补包修了吗？
+
+—— 来自 HONOR FLC-AN00, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+没有，但是修了钻地旅扑不到客机的bug
+
