@@ -1295,3 +1295,11 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 —— 来自 HONOR FLC-AN00, Android 15, 鹅球 v3.5.99-alpha</blockquote>
 没有，但是修了钻地旅扑不到客机的bug
 
+
+*****
+
+####  qwased  
+##### 7108#       发表于 2025-9-17 03:36
+
+现在客机的难度很低感觉有点无聊，n10也像逛大街
+
