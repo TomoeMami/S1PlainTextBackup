@@ -658,3 +658,13 @@ bb看白野的表情真不错
 
 db想要用是不是几乎只能用兔女郎灵基？明明bb宇宙看起来更可爱
 
+
+*****
+
+####  khxooo  
+##### 47456#       发表于 2025-9-16 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68435564&amp;ptid=1712412" target="_blank">sandro 发表于 2025-9-16 00:24</a>
+db想要用是不是几乎只能用兔女郎灵基？明明bb宇宙看起来更可爱</blockquote>
+你要吃兽科的羁绊的确只能兔女郎，但是我才不管呢，看大奶奶不比看这黄金女郎好？宇宙BB那个宝具动画总是幻视BB一个屁将对面崩死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

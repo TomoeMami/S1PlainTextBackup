@@ -120,3 +120,32 @@
 
 对红脖子来说还是太左逼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cthululives  
+##### 1492#       发表于 2025-9-16 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436303&amp;ptid=2261694" target="_blank">三天八百万 发表于 2025-9-16 08:54</a>
+一个美国人和一个中国人谈话。
+
+　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
+在某乎说这话未必见得就安全吧
+美国会不会跨洋执法先两说，某乎一众小将说不定直接就招呼上来了
+
+*****
+
+####  加油牛油果  
+##### 1493#       发表于 2025-9-16 09:58
+
+楼太高了没有爬，杀人动机有了吗，是具体反对查理哪条言论
+
+*****
+
+####  black199  
+##### 1494#       发表于 2025-9-16 09:59
+
+<blockquote>加油牛油果 发表于 2025-9-16 09:58
+楼太高了没有爬，杀人动机有了吗，是具体反对查理哪条言论</blockquote>
+没有，拒绝回答，从4chan账号发言看其实就是想出名……
+
