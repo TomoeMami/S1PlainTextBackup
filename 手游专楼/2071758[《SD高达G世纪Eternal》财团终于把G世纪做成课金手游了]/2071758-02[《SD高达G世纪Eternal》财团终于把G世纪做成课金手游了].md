@@ -4337,3 +4337,27 @@ fes在香港那边整那么大阵仗，挺大概率是神高达吧
 
 而且神高达有sd系列最能整活的无数角色神手指台词，论牌面也合适fes机体
 
+
+*****
+
+####  安广多惠子  
+##### 2661#       发表于 2025-9-16 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">中了hk producer meeting，去看看到底说些啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无念  
+##### 2662#       发表于 2025-9-16 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68439395&amp;ptid=2071758" target="_blank">arthes 发表于 2025-9-16 16:53</a>
+fes在香港那边整那么大阵仗，挺大概率是神高达吧
+
+而且神高达有sd系列最能整活的无数角色神手指台词，论牌面 ...</blockquote>
+开发线要补G最后一台肯定给神的，池子说不定给掉毛了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+话说ult说是12届机体，考虑到九龙已经在开发里了，乌鲁贝高达可能性很高
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
