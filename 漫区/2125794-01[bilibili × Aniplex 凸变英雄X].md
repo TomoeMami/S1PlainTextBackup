@@ -1019,3 +1019,16 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 
 到底会不会有第二季呢
 
+
+*****
+
+####  补丁  
+##### 528#       发表于 2025-9-16 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68438170&amp;ptid=2125794" target="_blank">达达达达葱 发表于 2025-9-16 13:12</a>
+
+到底会不会有第二季呢</blockquote>
+当然有第二季，还得卖周边呢，动画完结新出一堆周边
+
+而且海外一片好评
+
