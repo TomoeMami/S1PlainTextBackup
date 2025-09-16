@@ -360,3 +360,14 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 2025-9-16 23:39 上传
 
+
+*****
+
+####  piako  
+##### 1514#       发表于 2025-9-16 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436587&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-16 09:28</a>
+
+话说川大总统没想过铁拳4chan吗，虽然是匿名网站，但服务器总能被查水表吧 ...</blockquote>
+4chan大把大把的MAGA，正给kirk哭丧呢，没必要对自己人动手。反而是4chan有人举报别的网站<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
