@@ -1784,3 +1784,14 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 何必如此勉强，买台破解ps4pro吧</blockquote>
 八百年前早就通关好几遍了，宝石也基本刷毕业了，现在模拟器不就图一个怀旧加高帧数加做视频方便吗？对于新人来说也更方便体验
 
+
+*****
+
+####  浅色轮回  
+##### 171#       发表于 2025-9-16 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+
+何必如此勉强，买台破解ps4pro吧</blockquote>
+简中重译，提灯增强，60帧这些都能提升体验的功能ps都没啊
+

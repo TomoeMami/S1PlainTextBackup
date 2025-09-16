@@ -5221,3 +5221,38 @@ if的支援对话又不傻逼，engage是自断双臂
 —— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能，剧情能有三房那个水平就谢天谢地了，你现在还没发现么，engage剧情就是is的常规水平
 
+
+*****
+
+####  土星蛋  
+##### 519#       发表于 2025-9-16 21:18
+
+以前我一直认为，剧情低幼并不能代情剧情质量不行，本质上和所谓的宏大叙事或是黑深惨，龙傲天是并行的一种品类，没有高下之分。
+
+但是玩了engage之后我错了，剧情可以低幼，但你不能弱智啊
+
+这全程充满了弱智的人物塑造，潦草的世界观，敷衍的人物对话（从过场剧情到支援对话），这都不知道是怎么写出来的。
+
+打了邪恶之章，开章就被花国的黑化王子和妹妹惊艳到了，心想终于要有点乐子了吗？然后打完就现原型了，没乐子，本传什么水平这DLC就什么水平，突出一个你不想写可以不写，留白都比你写的好。
+
+*****
+
+####  nagitoY  
+##### 520#       发表于 2025-9-16 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68439918&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-16 18:28</a>
+
+成年苏迪斯的台词比较冷漠，感觉这个成年版是要展示她坏的一面的，或者起码是没那么善的一面，说不定她在这 ...</blockquote>
+无双里苏蒂斯倒是杀伐果断，几次都差点要了谢兹的命。
+
+
+*****
+
+####  nagitoY  
+##### 521#       发表于 2025-9-16 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68439918&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-16 18:28</a>
+
+成年苏迪斯的台词比较冷漠，感觉这个成年版是要展示她坏的一面的，或者起码是没那么善的一面，说不定她在这 ...</blockquote>
+正片的学院篇里，苏蒂斯直接提醒主角要小心蕾雅<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">学院篇皇女、苏蒂斯、老爹包括几个智囊学生都提醒贝老师要提防蕾雅，很难不被带偏。
+
