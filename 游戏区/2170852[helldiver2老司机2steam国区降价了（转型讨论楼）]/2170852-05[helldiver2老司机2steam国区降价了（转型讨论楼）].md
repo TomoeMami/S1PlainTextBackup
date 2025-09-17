@@ -1337,3 +1337,11 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 而且现在新版本出来一个月都不到玩家数就暴跌到十几万了，箭头真的觉得问题出在一个数值不平衡的敌人身上吗<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">早点宣布你们要改善优化还差不多
 
+
+*****
+
+####  FLZB  
+##### 7113#       发表于 2025-9-18 07:42
+
+这破逼游戏攒了一堆半年甚至一年都没修的bug，玩家不停的反馈和抱怨全当没看见。现在必须进行一次大规模修复更新，然后完善QA流程，否则之后每次更新箭头最好祈祷不要出问题，一旦出问题必被冲<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
