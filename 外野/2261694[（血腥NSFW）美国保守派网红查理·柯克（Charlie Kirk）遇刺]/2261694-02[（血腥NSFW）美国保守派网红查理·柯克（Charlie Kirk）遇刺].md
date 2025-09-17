@@ -1624,3 +1624,22 @@ BOOOOOOOOOOM! ! !
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说看了几个切片，发现这家伙真是死的不冤，就算今天不被崩也早晚要被人当靶子打的，这家伙把所有极端化的言论和阴谋论都具现化到自己身上然后全国到处宣传，把自己都特么快结晶化了。
 
+
+*****
+
+####  madbird023  
+##### 1593#       发表于 2025-9-17 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444557&amp;ptid=2261694" target="_blank">变老的大二 发表于 2025-9-17 15:12</a>
+
+虽然是深红的犹他州，但是他住在盐湖城啊，那地方是蓝色的。。。</blockquote>
+只能说**的影响力也远不如前，甚至也堕落了
+
+
+*****
+
+####  素盏鸣尊  
+##### 1594#       发表于 2025-9-17 18:24
+
+正常情况游戏遭铁拳可能性不大。两党都是大帐篷，共和党还要靠游戏团结年轻男性。不过现在美国政客加起来没有多少脑细胞，也有可能鼠目寸光牺牲游戏转移注意力。
+
