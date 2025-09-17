@@ -5345,3 +5345,16 @@ if的支援对话又不傻逼，engage是自断双臂
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  土星蛋  
+##### 527#       发表于 2025-9-17 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68441828&amp;ptid=2261859" target="_blank">xwr 发表于 2025-9-17 07:52</a>
+
+现在几乎没有编剧能写群像+宏大叙事了，消费者也不感兴趣，皇骑2的时代早就过了，什么民族纷争，阶级矛盾， ...</blockquote>
+这倒是，昨天去贴吧看了一眼，玩家纷纷表示不要群像，就要主角龙傲天给自己代入。
+
+这么看来，结合当年的追求目标也不算错
+
