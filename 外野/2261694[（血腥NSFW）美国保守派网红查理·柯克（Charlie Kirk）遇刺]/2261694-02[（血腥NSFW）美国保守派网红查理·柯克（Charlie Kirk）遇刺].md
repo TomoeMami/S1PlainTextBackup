@@ -1061,3 +1061,66 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  鵝  
+##### 1546#       发表于 2025-9-17 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68442221&amp;ptid=2261694" target="_blank">真红之闪电 发表于 2025-9-17 09:21</a>
+别黑蚯蚓啊，正经是对土壤和生态有益的
+
+—— 来自 S1Fun</blockquote>
+雨后乱爬的不止有蚯蚓，还有马陆，害虫，恶臭，还长着很多腿吓人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/bdda70482149e8b8efa120ee9336ad80/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  2017.05.04  
+##### 1547#       发表于 2025-9-17 12:33
+
+心理素质挺可以啊，还跟朋友说不要发表言论，有事都找律师
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Benighted  
+##### 1548#       发表于 2025-9-17 12:34
+
+不少网友对聊天记录真实性表达了质疑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">：
+
+<img src="https://img.stage1st.com/forum/202509/17/123337ncwdaeh29cchwocz.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-09-17_12-30-16.jpg</strong> (183.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202509/17/123336fka4qaawkraa4f6v.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-09-17_12-31-23.jpg</strong> (225.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202509/17/123336br7nstnse0erx559.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-09-17_12-32-44.jpg</strong> (178.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202509/17/123336k20o0woac11o61a6.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-09-17_12-33-01.jpg</strong> (125.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 12:33 上传
+
