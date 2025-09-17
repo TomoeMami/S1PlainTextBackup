@@ -527,3 +527,15 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 还真是为了男娘狙了川皇的爱将？</blockquote>
 冲冠一怒为紫颜。
 
+
+*****
+
+####  真红之闪电  
+##### 1526#       发表于 2025-9-17 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68433718&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-15 17:52</a>
+查理事件就像一场暴雨，暴雨过后土里的蚯蚓都钻出来了。</blockquote>
+别黑蚯蚓啊，正经是对土壤和生态有益的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
