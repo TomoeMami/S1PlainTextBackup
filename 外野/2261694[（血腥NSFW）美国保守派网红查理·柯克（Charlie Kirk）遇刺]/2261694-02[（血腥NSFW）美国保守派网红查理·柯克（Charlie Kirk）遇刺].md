@@ -1862,3 +1862,11 @@ BBC也报道了
 </blockquote>
 “我是斯巴达克斯！”
 
+
+*****
+
+####  loli炮  
+##### 1613#       发表于 2025-9-17 21:23
+
+诡辩就是把正常人辩的热血上涌 浑身战栗 有苦难言  精神失控，早晚是要挨武器的批判的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
