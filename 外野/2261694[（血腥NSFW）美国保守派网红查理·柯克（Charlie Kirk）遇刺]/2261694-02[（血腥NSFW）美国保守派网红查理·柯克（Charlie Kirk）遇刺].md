@@ -1443,3 +1443,39 @@ genz 后现代 游戏宅男 全额奖学金 大学辍学和室友同居
 
 永久改变了美国政治生态，不愧是2024TGA最佳运营奖
 
+
+*****
+
+####  又怎么啦？  
+##### 1578#       发表于 2025-9-17 15:09
+
+[双语]专访最后一位与 Charlie Kirk 辩论的人，到底发生了什么？_哔哩哔哩_bilibili
+
+[https://www.bilibili.com/video/BV1ZFpmzMExh/](https://www.bilibili.com/video/BV1ZFpmzMExh/)
+
+他最后辩论的对手姓Hunter（猎人）
+
+*****
+
+####  致远星总书记  
+##### 1579#       发表于 2025-9-17 15:10
+
+&gt;在美国的日子人数比极右翼和特色极左翼多得多<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+&gt;平时极右杀人杀的也大多是中间派日子人，特色极左杀的也是中间派日子人<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+&gt;日子人一枪干爆极右翼意见领袖<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+&gt;日子人为自己发声，支持日子人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1580#       发表于 2025-9-17 15:12
+
+<blockquote>aeolus039 发表于 2025-9-17 14:55
+他要真有个男娘恋人，柯克的煽动是真的可能让深红州的他俩生活环境急剧恶化的。
+
+兴许就是家庭朋友聚会之类 ...</blockquote>
+虽然是深红的犹他州，但是他住在盐湖城啊，那地方是蓝色的。。。
+
