@@ -5591,3 +5591,18 @@ yt有风花up分析说预告4人都不是主角，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  土星蛋  
+##### 549#       发表于 2025-9-17 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443627&amp;ptid=2261859" target="_blank">zyupha 发表于 2025-9-17 12:13</a>
+
+讲道理，风花本篇就是地底人魔法朋克核弹科技接中世纪，文明再倒退也不是不行
+
+何况pv里不是有枪和眼镜（ ...</blockquote>
+再看了一遍，没看到有枪啊？
+
+至于眼镜，那是XP你别管，就好像贝老师穿的黑丝一样，中世纪哪来黑丝。。
+

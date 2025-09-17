@@ -4429,3 +4429,13 @@ G的ult竟然不是恶魔高达jr。
 
 十二届根本没什么正经机体啊，难道是那个巨丑无比的乌鲁贝高达？
 
+
+*****
+
+####  马桶3  
+##### 2669#       发表于 2025-9-17 12:22
+
+代哥零时工把过关给的100钻设置成1000了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+谢谢你，程序员
+

@@ -1047,3 +1047,17 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 
 [https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html](https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html)
 
+
+*****
+
+####  stmule  
+##### 1545#       发表于 2025-9-17 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443578&amp;ptid=2261694" target="_blank">outerish 发表于 2025-9-17 12:07</a>
+律师只能找角度避免死刑吧，肯定会教枪手什么都别说的
+
+白右还是有很多角度去利益最大化的，可以反LGBT，可 ...</blockquote>
+一级谋杀不一定判死刑的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
