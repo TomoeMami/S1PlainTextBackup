@@ -1132,3 +1132,11 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 
 这挖来挖去别开始清算电子游戏就搞笑了
 
+
+*****
+
+####  今天不守尸  
+##### 1550#       发表于 2025-9-17 13:03
+
+可能跟什么政治立场男娘室友关系都不大，单纯是看不惯柯克这个人，觉得不能再留这个虫豸在世上浪费白米饭了，于是就头脑一热开干了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
