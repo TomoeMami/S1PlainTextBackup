@@ -150,3 +150,18 @@ C区域吗？我去试试看
 
 弓太强了，后面直接3保1了……2动+3连，把主线最终boss直接给秒了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 94#         楼主| 发表于 2025-9-17 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443864&amp;ptid=2256342" target="_blank">Alice.Andvari 发表于 2025-9-17 12:50</a>
+
+通关了，这游戏确实是标准的JRPG，探索要素超级多
+
+无限迷宫要怎么玩？我理解到就是看到宝箱就拐弯，但是走 ...</blockquote>
+每个拐角都要拐弯，不能走直线，往没有宝箱的方向拐
+
+你这个GQ没完成，那就还没打到真结局，继续吧
+

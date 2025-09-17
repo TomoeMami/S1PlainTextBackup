@@ -1168,3 +1168,24 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 <img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
  <blockquote>“我马上就要去碎觉了，超级困觉，”他在一条帖子中这样说道，故意将“睡觉”一词拼错——这是 Z 世代常见的俏皮表达方式。</blockquote>
 
+
+*****
+
+####  变老的大二  
+##### 1553#       发表于 2025-9-17 13:19
+
+讨厌Kirk,手里有枪，一枪秒了。 这个逻辑很合理啊。
+
+奶龙也一样，讨厌非法移民+drug，手里有导弹，一炮炸了船。
+
+*****
+
+####  black199  
+##### 1554#       发表于 2025-9-17 13:20
+
+<blockquote>就咋的 发表于 2025-9-17 13:12
+驴象魔怔人和 4chan 也可能把这条信息解读成“他在模仿或嘲笑南方公园里的 Jimmy”
+
+</blockquote>
+是的 他的表达很多像是在论坛发帖，不像一般人和朋友说话，很多人觉得这聊天记录不是ChatGPT生成的就是他真的混论坛把脑子混坏了
+
