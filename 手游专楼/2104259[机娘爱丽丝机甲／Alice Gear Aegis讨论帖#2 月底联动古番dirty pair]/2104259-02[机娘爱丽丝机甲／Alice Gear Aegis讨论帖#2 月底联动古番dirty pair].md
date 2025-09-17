@@ -123,3 +123,20 @@ HUTTVYJQTB
 
 这次活动剧情前面写得这么紧凑，后面一转集合一点感觉都没……虽然剧情里说被围了然后飙起了501的八道烟，但演出跟不上啊一点绝体绝命的氛围都没还是感觉是郊游<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1669#       发表于 2025-9-17 23:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">ST阿迪的侧面散热只剩一条缝了！
+
+Base Profile Screenshot 2025.09.17 - 23.21.12.54.jpg
+(222.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 23:24 上传
+
+<img src="https://img.stage1st.com/forum/202509/17/232420i5l8yn58kqnqlny3.jpg" referrerpolicy="no-referrer">
+
