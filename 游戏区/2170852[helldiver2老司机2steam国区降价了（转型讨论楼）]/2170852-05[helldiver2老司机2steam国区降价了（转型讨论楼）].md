@@ -1327,3 +1327,13 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 指挥官箭头被爆炸武器集火了，pro哥武斗虫还在土里玩反器材。
 
+
+*****
+
+####  6x6z6w  
+##### 7112#       发表于 2025-9-18 07:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">五周能修的好啥，以箭头这个人力我看五个月都难，感觉就是为了平息众怒做的PR操作
+
+而且现在新版本出来一个月都不到玩家数就暴跌到十几万了，箭头真的觉得问题出在一个数值不平衡的敌人身上吗<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">早点宣布你们要改善优化还差不多
+
