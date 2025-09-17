@@ -566,3 +566,19 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 —— 来自 S1Fun</blockquote>
 我犯了同样的错误，没能全面的了解蚯蚓对大环境的影响，而是在攻击蚯蚓的外观和生活习性（包括负趋光性）
 
+
+*****
+
+####  就咋的  
+##### 1529#       发表于 2025-9-17 11:04
+
+蚯蚓战士 Jim
+
+<img src="https://img.stage1st.com/forum/202509/17/110113d6ri36ie3re76z46.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-09-17 at 11-00-27 Earthworm Jim Earthworm Jim Wiki Fandom.png</strong> (165.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 11:01 上传
+
