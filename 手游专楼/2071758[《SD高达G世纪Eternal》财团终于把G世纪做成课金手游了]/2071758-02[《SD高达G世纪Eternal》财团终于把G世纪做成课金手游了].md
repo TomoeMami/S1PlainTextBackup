@@ -4381,3 +4381,21 @@ fes在香港那边整那么大阵仗，挺大概率是神高达吧
 
 网页抽卡活动，国际服记得选择英语就可以抽了。选择日语的话，对应的是日服
 
+
+*****
+
+####  acg_gyanc  
+##### 2665#       发表于 2025-9-17 10:53
+
+<img src="https://img.stage1st.com/forum/202509/17/105230didn8ixxxmrxnxxp.jpg" referrerpolicy="no-referrer">
+
+<strong>18324139181758077402988.jpg</strong> (26.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 10:52 上传
+
+傻卵万代还填错奖励了，我说怎么活动的三关hard每关都给1000钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

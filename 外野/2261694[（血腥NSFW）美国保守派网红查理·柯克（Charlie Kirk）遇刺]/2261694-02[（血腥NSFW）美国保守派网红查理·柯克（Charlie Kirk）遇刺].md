@@ -553,3 +553,16 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 2025-9-17 10:32 上传
 
+
+*****
+
+####  就咋的  
+##### 1528#       发表于 2025-9-17 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68442221&amp;ptid=2261694" target="_blank">真红之闪电 发表于 2025-9-17 09:21</a>
+
+别黑蚯蚓啊，正经是对土壤和生态有益的
+
+—— 来自 S1Fun</blockquote>
+我犯了同样的错误，没能全面的了解蚯蚓对大环境的影响，而是在攻击蚯蚓的外观和生活习性（包括负趋光性）
+
