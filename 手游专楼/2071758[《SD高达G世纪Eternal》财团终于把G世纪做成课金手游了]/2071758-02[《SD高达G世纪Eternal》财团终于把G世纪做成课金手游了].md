@@ -4457,3 +4457,11 @@ G的ult竟然不是恶魔高达jr。
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  arthes  
+##### 2672#       发表于 2025-9-17 14:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不知道这个游戏会是哪个机体池子最早实现无法登顶
+
