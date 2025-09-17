@@ -1598,3 +1598,21 @@ BOOOOOOOOOOM! ! !
 　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
 老实说某乎没见着，小红书上是真见着美国人高呼好死了
 
+
+*****
+
+####  日日日日日野  
+##### 1590#       发表于 2025-9-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443772&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-17 12:34</a>
+
+不少网友对聊天记录真实性表达了质疑：</blockquote>
+这个聊天记录，确实不如前面那个discord真，因为discord那个有很多z世代会用的用语。
+
+*****
+
+####  weary11  
+##### 1591#       发表于 2025-9-17 16:49
+
+苏联笑话是美国人根据美国现实写的。
+
