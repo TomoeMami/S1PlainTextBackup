@@ -695,3 +695,13 @@ db雨神队还三人全锁，太恶心了
 
 打到第五特异点没体力了
 
+
+*****
+
+####  khxooo  
+##### 47460#       发表于 2025-9-17 22:31
+
+[https://www.bilibili.com/video/av115078061885361/](https://www.bilibili.com/video/av115078061885361/)
+
+刷到这个视频笑死了，真是太‘尊重’青子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
