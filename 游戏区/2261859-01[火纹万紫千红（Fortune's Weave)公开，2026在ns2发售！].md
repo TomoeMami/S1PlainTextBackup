@@ -5538,3 +5538,24 @@ yt有风花up分析说预告4人都不是主角，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hkguty  
+##### 545#       发表于 2025-9-17 11:56
+
+主要是有什么藏的必要，感觉完全没必要，要是主角还是活了千年后的贝老师那倒不一样
+
+
+*****
+
+####  土星蛋  
+##### 546#       发表于 2025-9-17 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443006&amp;ptid=2261859" target="_blank">406 发表于 2025-9-17 11:00</a>
+
+冰国姐更是随便反转的杂鱼，正片信神龙直球告白最ml，反转就毫无理由对着尚卜尔那个逼样喊最强大最美丽的 ...</blockquote>
+花国公主还是有一点塑造的，至少开场时的反转公主我觉得有一点惊艳，也是所有反转人物中好像少有至少塑造了一下的人物。
+
+你别管下场怎么样，反正没演<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

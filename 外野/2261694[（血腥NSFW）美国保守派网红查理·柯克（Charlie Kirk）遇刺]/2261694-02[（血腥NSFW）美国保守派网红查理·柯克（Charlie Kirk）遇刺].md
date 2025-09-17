@@ -798,3 +798,28 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 挺明显了，日子人，游戏宅，良家子爱上了男娘，最终忍不了柯克的仇恨言论跟他爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 1539#       发表于 2025-9-17 11:54
+
+这人开庭会说什么我都不敢想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别真在庭上喊for superearth
+
+*****
+
+####  2017.05.04  
+##### 1540#       发表于 2025-9-17 11:56
+
+挺日子人的，显然不是某种极端政治狂热者
+然而绝对不能怪持枪，只能疯狂找别的什么方向扣帽子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  FanFun  
+##### 1541#       发表于 2025-9-17 12:00
+
+为“女友”出头也符合象党价值观，所以不好深挖用来攻击吧
+
