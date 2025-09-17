@@ -5620,3 +5620,15 @@ yt有风花up分析说预告4人都不是主角，
 
 那个跟A少对打的妹子就是拿着一把tmp，不过我觉得也证明不了年代，毕竟前作连导弹都有了，但其实也蛮有意思的就是了，这些武器本来就是弟弟人的技术，但是这个妹子看起来明显不是弟弟人的装束反倒有点像塞罗斯教的人，感觉颇为矛盾，可能该地区的教派允许使用弟弟人武器
 
+
+*****
+
+####  Humpy  
+##### 551#       发表于 2025-9-17 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443744&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-17 12:28</a>
+那个跟A少对打的妹子就是拿着一把tmp，不过我觉得也证明不了年代，毕竟前作连导弹都有了，但其实也蛮有意 ...</blockquote>
+除了她以外那个眯眼深绿发女性角色也是用枪的，不过武器显示是空手格斗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怕不是这代的格斗术是枪斗术<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
