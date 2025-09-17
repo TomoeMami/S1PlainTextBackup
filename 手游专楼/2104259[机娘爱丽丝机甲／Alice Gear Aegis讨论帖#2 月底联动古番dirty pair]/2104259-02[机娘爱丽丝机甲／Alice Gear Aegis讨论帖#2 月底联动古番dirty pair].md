@@ -115,3 +115,11 @@ HUTTVYJQTB
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">活动快结束了，一个4没有谁懂啊
 
+
+*****
+
+####  江戸前ルナ  
+##### 1668#         楼主| 发表于 2025-9-17 19:13
+
+这次活动剧情前面写得这么紧凑，后面一转集合一点感觉都没……虽然剧情里说被围了然后飙起了501的八道烟，但演出跟不上啊一点绝体绝命的氛围都没还是感觉是郊游<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
