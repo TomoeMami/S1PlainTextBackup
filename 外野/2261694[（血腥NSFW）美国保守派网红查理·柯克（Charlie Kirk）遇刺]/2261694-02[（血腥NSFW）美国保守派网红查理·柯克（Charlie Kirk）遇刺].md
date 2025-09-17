@@ -1575,3 +1575,26 @@ BOOOOOOOOOOM! ! !
 你看上面那个Hunter的采访，他去和柯克辩就是因为柯克在煽动对跨的仇恨。对于有男娘女友的泰勒来说已经是打上门了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/27/932de8910547a4cbe11875aa6b6c3fca/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 1588#       发表于 2025-9-17 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444904&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-17 16:03</a>
+
+你看上面那个Hunter的采访，他去和柯克辩就是因为柯克在煽动对跨的仇恨。对于有男娘女友的泰勒来说已经是 ...</blockquote>
+道理当然是这个道理，但最后媒体塑造叙事的情况下，肯定就说你左了，而非无政治意识形态的日子人
+
+*****
+
+####  ycls1  
+##### 1589#       发表于 2025-9-17 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436303&amp;ptid=2261694" target="_blank">三天八百万 发表于 2025-9-16 08:54</a>
+
+一个美国人和一个中国人谈话。
+
+　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
+老实说某乎没见着，小红书上是真见着美国人高呼好死了
+
