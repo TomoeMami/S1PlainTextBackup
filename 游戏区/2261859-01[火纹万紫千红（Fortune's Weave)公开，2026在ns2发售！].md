@@ -5854,3 +5854,15 @@ IGN的常规操作，火纹视频，换源了。
 
 三房已经赢其他火纹太多了，我觉得万紫千红也难以塑造出更争议的角色、剧情来一直维持多年的话题性
 
+
+*****
+
+####  Humpy  
+##### 565#       发表于 2025-9-18 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68447438&amp;ptid=2261859" target="_blank">洛亚替身 发表于 2025-9-18 00:06</a>
+其实就是没给玩家留想象空间而已，以前反派都是侧写不敢真给线
+
+皇女这边直接塑造对位其他三条线，无法像阿 ...</blockquote>
+也不要太相信分线战士，别忘了三房无双<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
