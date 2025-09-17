@@ -598,3 +598,16 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 我看有分析说，冷枪首发命中确实能说明这个人特地去练习过，并按冷枪调整好了瞄准镜
 
+
+*****
+
+####  牛顿学物理  
+##### 1532#       发表于 2025-9-17 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443107&amp;ptid=2261694" target="_blank">RPG-7 发表于 2025-9-17 11:12</a>
+
+我看有分析说，冷枪首发命中确实能说明这个人特地去练习过，并按冷枪调整好了瞄准镜 ...</blockquote>
+这个距离上技术不会是问题的
+
+心态才是绝对大头
+
