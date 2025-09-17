@@ -1785,3 +1785,26 @@ But freedom come at a price...
 说个题外话：马逆等对这种靠在网上发暴论就可以转入政治体系，甚至可以当上部长、副总统、总统的体制，是不 ...</blockquote>
 记不记得当时韩二、李眼儿的粉丝大声疾呼，让这些个玩意儿选这个选那个的。
 
+
+*****
+
+####  black199  
+##### 1608#       发表于 2025-9-17 20:08
+
+<blockquote>烦死了 发表于 2025-9-17 19:46
+等等 黄图也犯法啊？</blockquote>
+不犯法，但未成年sq犯
+
+*****
+
+####  艾诺琳  
+##### 1609#       发表于 2025-9-17 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68445933&amp;ptid=2261694" target="_blank">gammatau 发表于 2025-9-17 18:53</a>
+哈草
+
+打游戏
+
+变性</blockquote>
+接下来是不是应该有个男人打响指，开始征兵了？
+
