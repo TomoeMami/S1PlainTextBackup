@@ -1059,3 +1059,13 @@ STEAM平台 情况如何不知道 反正PS5平台 还没BOSS 一倒就拔线 ，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JackTitor  
+##### 1731#       发表于 2025-9-17 18:56
+
+不得其名数值一高也太难打了，这还没有永夜版的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

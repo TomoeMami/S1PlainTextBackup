@@ -1714,3 +1714,23 @@ But freedom come at a price...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">恁美乐子人实在太多了
 
+
+*****
+
+####  出逃白鲸  
+##### 1601#       发表于 2025-9-17 18:59
+
+<blockquote>aeolus039 发表于 2025-9-17 18:54
+</blockquote>
+爆笑了家人们
+
+*****
+
+####  守名居  
+##### 1602#       发表于 2025-9-17 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68445937&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-17 18:54</a></blockquote>
+这个老头本身就是会当街露屌的“行为艺术家“，再加上这个博主还是个把BIBI威胁所有手机的发言改成苹果手机的
+
+先观望吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
