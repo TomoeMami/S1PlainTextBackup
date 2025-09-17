@@ -1319,3 +1319,11 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 钻地旅回炉重造了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mayochu爱好者  
+##### 7111#       发表于 2025-9-18 01:29
+
+指挥官箭头被爆炸武器集火了，pro哥武斗虫还在土里玩反器材。
+
