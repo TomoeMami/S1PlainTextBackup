@@ -5642,3 +5642,14 @@ yt有风花up分析说预告4人都不是主角，
 
 最后一关我打了十小时，哪还记得剧情
 
+
+*****
+
+####  撒撒  
+##### 553#       发表于 2025-9-17 14:03
+
+pv中出现了多少熟悉的纹章？显微镜带你一起看
+[https://www.bilibili.com/video/BV1BqpwzLEUa/](https://www.bilibili.com/video/BV1BqpwzLEUa/)
+
+IGN的常规操作，火纹视频，换源了。
+

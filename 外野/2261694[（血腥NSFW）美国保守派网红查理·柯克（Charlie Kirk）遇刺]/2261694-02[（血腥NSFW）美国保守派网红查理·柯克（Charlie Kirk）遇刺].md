@@ -1247,3 +1247,37 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
 苏联笑话集要进化成美利坚笑话集了。
 
+
+*****
+
+####  Benighted  
+##### 1561#       发表于 2025-9-17 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444156&amp;ptid=2261694" target="_blank">就咋的 发表于 2025-9-17 13:54</a>
+
+图3讨论的 TR 父亲职业“兼任法院职员和牧师”，也是真实世界的另一种“魔怔人”了。第一修正案和司法行 ...</blockquote>
+courthouse officer 是负责法院里维持秩序的，类似保安
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 就咋的| + 2|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  iantsai  
+##### 1562#       发表于 2025-9-17 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431586&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 12:17</a>
+
+韩国这波也太丢人了。</blockquote>
+孝死人了，棒子总是这么抽象而忠诚<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
