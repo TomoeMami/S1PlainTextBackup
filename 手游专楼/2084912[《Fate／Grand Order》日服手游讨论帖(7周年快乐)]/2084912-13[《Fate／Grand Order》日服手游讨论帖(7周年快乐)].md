@@ -195,3 +195,12 @@
 
 感谢复刻，终于届到莉莉丝了。
 
+
+*****
+
+####  exiaexa  
+##### 18228#       发表于 2025-9-17 19:55
+
+狂冠位这五花八门的支援，只能说是相当抽象了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
