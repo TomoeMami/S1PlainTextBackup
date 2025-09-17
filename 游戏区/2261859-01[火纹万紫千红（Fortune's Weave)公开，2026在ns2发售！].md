@@ -5632,3 +5632,13 @@ yt有风花up分析说预告4人都不是主角，
 
 怕不是这代的格斗术是枪斗术<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 552#       发表于 2025-9-17 13:45
+
+邪龙dlc超难打完剧情都该忘了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+最后一关我打了十小时，哪还记得剧情
+

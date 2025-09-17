@@ -1213,3 +1213,37 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 
 讨厌一个人可以把一个人一枪秒了，这不还是不控枪造成的问题么。
 
+
+*****
+
+####  就咋的  
+##### 1558#       发表于 2025-9-17 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443772&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-17 12:34</a>
+
+不少网友对聊天记录真实性表达了质疑：</blockquote>
+图3讨论的 TR 父亲职业“兼任法院职员和牧师”，也是真实世界的另一种“魔怔人”了。第一修正案和司法行为准则，公职人员不得参与宗教活动
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 1559#       发表于 2025-9-17 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444012&amp;ptid=2261694" target="_blank">black199 发表于 2025-9-17 13:20</a>
+
+是的 他的表达很多像是在论坛发帖，不像一般人和朋友说话，很多人觉得这聊天记录不是ChatGPT生成的就是他 ...</blockquote>
+网民还在质疑聊天记录里的 FBL 痕迹
+
+*****
+
+####  iantsai  
+##### 1560#       发表于 2025-9-17 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68436303&amp;ptid=2261694" target="_blank">三天八百万 发表于 2025-9-16 08:54</a>
+
+一个美国人和一个中国人谈话。
+
+　　中国人:“我敢在简中网上大喊查理柯克好死,你敢吗?”</blockquote>
+苏联笑话集要进化成美利坚笑话集了。
+
