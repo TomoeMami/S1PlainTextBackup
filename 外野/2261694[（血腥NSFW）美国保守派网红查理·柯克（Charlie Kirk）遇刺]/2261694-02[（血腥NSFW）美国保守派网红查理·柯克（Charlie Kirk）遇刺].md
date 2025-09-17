@@ -1489,3 +1489,31 @@ genz 后现代 游戏宅男 全额奖学金 大学辍学和室友同居
 
 不如说他确实有点恃才傲物愤世嫉俗，只是没明确的政治光谱找不到归属感
 
+
+*****
+
+####  就咋的  
+##### 1582#       发表于 2025-9-17 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444536&amp;ptid=2261694" target="_blank">又怎么啦？ 发表于 2025-9-17 15:09</a>
+
+[双语]专访最后一位与 Charlie Kirk 辩论的人，到底发生了什么？_哔哩哔哩_bilibili</blockquote>
+- "Prove Me Wrong" (CK)
+
+- "Tagging" (Hunter)
+
+- "Too many" (CK)
+
+- "Tagging" (Hunter)
+
+- "Blahblahblah..." (CK)
+
+- "Tagged" (Hunter)
+
+- "ROGER THAT! UP RIGHT DOWN DOWN DOWN! ! !" (TR)
+
+BOOOOOOOOOOM! ! !
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+我脑补的，请勿过度解读。
+
