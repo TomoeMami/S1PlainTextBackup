@@ -1098,3 +1098,16 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 
 2025-9-17 20:55 上传
 
+
+*****
+
+####  rushsong  
+##### 534#       发表于 2025-9-17 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443951&amp;ptid=2125794" target="_blank">qiaogaohhb 发表于 2025-9-17 13:05</a>
+
+看了一眼隔壁《鬼灭之刃》，我觉得这人设还蛮时髦的。
+
+多画风有个额外好处，是观众看完回忆的时候，会默 ...</blockquote>
+为啥要比烂啊，它要是像鬼灭一样老实走套路就不会让人觉得是卖人设的作品了
+

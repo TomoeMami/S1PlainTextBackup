@@ -1959,3 +1959,39 @@ NS2另售《少女魔役》卡包及其他DLC。
 
 新挂画有点想入，豪华版还包扩展包
 
+
+*****
+
+####  whzfjd  
+##### 167#       发表于 2025-9-17 23:05
+
+AMIAMI 预约特典：A4文件夹
+
+<img src="https://img.stage1st.com/forum/202509/17/225849ykmcfbmmmqern5tb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 22:58 上传
+
+AMIAMI 加钱特典：A6 亚克力板
+
+<img src="https://img.stage1st.com/forum/202509/17/230117q34vy9dwbbh5ll4k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (731.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 23:01 上传
+
+WonderGOO 原创（加钱）特典：
+
+<img src="https://img.stage1st.com/forum/202509/17/230212cugvv5lckl69khgr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (678.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 23:02 上传
+
