@@ -823,3 +823,227 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 为“女友”出头也符合象党价值观，所以不好深挖用来攻击吧
 
+
+*****
+
+####  outerish  
+##### 1542#       发表于 2025-9-17 12:07
+
+律师只能找角度避免死刑吧，肯定会教枪手什么都别说的
+
+白右还是有很多角度去利益最大化的，可以反LGBT，可以怪枪手对查理仇恨都是极左煽动的
+
+*****
+
+####  Benighted  
+##### 1543#       发表于 2025-9-17 12:12
+
+ <blockquote><strong>一、当事人信息</strong>
+
+原告 (Plaintiff): 犹他州
+
+被告 (Defendant): TYLER JAMES ROBINSON
+
+地址：894 W Cimarron Dr, Washington, UT 84780
+
+出生日期：2003年4月16日
+
+OTN: 70090584
+
+受害人 (Victim): Charlie Kirk
+
+检察官 (Deputy Utah County Attorneys): 略</blockquote>
+<blockquote><strong>二、指控罪名</strong>
+
+罪名 1 (COUNT 1): 加重谋杀罪 (AGGRAVATED MURDER)
+
+罪行性质：重罪 (Capital Felony)
+
+违反犹他州法典：§ 76-5-202
+
+描述：Tyler James Robinson于2025年9月10日在犹他县故意或明知地导致Charlie Kirk死亡，且制造了对Charlie Kirk以外的其他人造成巨大死亡风险的情况。
+
+可能判决：死刑，或根据犹他州法典76-3-207.7，强制性监禁：(i) 无假释的终身监禁；或 (ii) 不少于25年且可能为终身的无期徒刑。
+
+罪名 2 (COUNT 2): 重罪开枪造成严重身体伤害 (FELONY DISCHARGE OF A FIREARM CAUSING SERIOUS BODILY INJURY)
+
+罪行性质：一级重罪 (First Degree Felony)
+
+违反犹他州法典：§ 76-11-210(2) 和 (3)(c)
+
+描述：Tyler James Robinson于2025年9月10日在犹他县向Charlie Kirk方向开枪，明知或有理由相信此举可能危及Charlie Kirk，且此行为对Charlie Kirk造成严重身体伤害，最终导致其死亡。
+
+罪名 3 (COUNT 3): 妨碍司法公正 (OBSTRUCTION OF JUSTICE)
+
+罪行性质：二级重罪 (Second Degree Felony)
+
+违反犹他州法典：§ 76-8-306(2)
+
+描述：Tyler James Robinson于2025年9月10日在犹他县，意图阻碍、延迟或阻止对与刑事犯罪相关的任何人的调查、逮捕、起诉、定罪或惩罚：(c) 隐藏或移除用于射击Charlie Kirk的枪支；且该行为构成重罪或一级重罪。
+
+罪名 4 (COUNT 4): 妨碍司法公正 (OBSTRUCTION OF JUSTICE)
+
+罪行性质：二级重罪 (Second Degree Felony)
+
+违反犹他州法典：§ 76-8-306(2)
+
+描述：Tyler James Robinson于2025年9月11日左右在犹他县，意图阻碍、延迟或阻止对与刑事犯罪相关的任何人的调查、逮捕、起诉、定罪或惩罚：(c) 销毁、隐藏或移除其在射击时所穿的衣物；且该行为构成重罪或一级重罪。
+
+罪名 5 (COUNT 5): 干扰证人 (TAMPERING WITH A WITNESS)
+
+罪行性质：三级重罪 (Third Degree Felony)
+
+违反犹他州法典：§ 76-8-508
+
+描述：Tyler James Robinson于2025年9月10日左右在犹他县：(a)(i) 认为一项官方程序或调查正在进行或即将开始；或 (ii) 意图阻止一项官方程序或调查；并且 (b) 试图引诱或以其他方式使其室友 (ii) 隐瞒证词、信息、文件或物品，即：指示其室友删除犯罪性短信。
+
+罪名 6 (COUNT 6): 干扰证人 (TAMPERING WITH A WITNESS)
+
+罪行性质：三级重罪 (Third Degree Felony)
+
+违反犹他州法典：§ 76-8-508
+
+描述：Tyler James Robinson于2025年9月11日左右在犹他县：(a)(i) 认为一项官方程序或调查正在进行或即将开始；或 (ii) 意图阻止一项官方程序或调查；并且 (b) 试图引诱或以其他方式使其室友 (ii) 隐瞒证词或信息，即：指示其室友在**提问时保持沉默。
+
+罪名 7 (COUNT 7): 在儿童面前实施暴力犯罪 (VIOLENT OFFENSE COMMITTED IN THE PRESENCE OF A CHILD)
+
+罪行性质：A级轻罪 (Class A Misdemeanor)
+
+违反犹他州法典：§ 76-3-203.10(2) 和 § 76-3-203.14(3)(a)(ii)
+
+描述：Tyler James Robinson于2025年9月10日左右在犹他县，在一名14岁以下儿童的实际存在下犯下刑事杀人罪，且明知有儿童在场并可能看到或听到刑事杀人罪的发生。</blockquote>
+<blockquote><strong>三、增强条款和加重因素</strong>
+
+受害者目标增强 (VICTIM TARGETING ENHANCEMENT):
+
+违反犹他州法典：§ 76-3-203.14(2)
+
+描述：Tyler James Robinson故意选择Charlie Kirk是因为他对Charlie Kirk政治言论的信念或看法。
+
+通知：如果事实裁决者在合理怀疑之外认定受害者目标增强条款适用，量刑法官或假释委员会应将被告选择受害者作为加重因素。
+
+在儿童面前实施暴力犯罪 – 加重因素 (VIOLENT OFFENSE COMMITTED IN THE PRESENCE OF A CHILD – AGGRAVATING FACTOR):
+
+描述：量刑法官或假释委员会应将被告在儿童面前实施暴力犯罪作为审议中的加重因素。</blockquote>
+<blockquote><strong>四、可能原因声明 (PROBABLE CAUSE STATEMENT)</strong>
+
+犹他州调查局的Brian Davis基于以下证据提交了此起诉书：
+
+枪击事件：
+
+2025年9月10日约12:23 PM，Charlie Kirk在犹他谷大学（UVU）奥勒姆校区的一次公共户外活动中被枪杀。他当时正在向人群讲话。
+
+**在现场附近发现了一支疑似的作案凶器，一支栓动式.30-06步枪。
+
+事件发生时，受害者身边有几名儿童。
+
+Charlie Kirk在被送往医院后被宣布死亡。
+
+UVU监控调查：
+
+一名UVU警官在事件发生时从高处观察人群，听到枪声后发现一名可疑的狙击手。
+
+监控录像显示，一名身穿深色衣物的人于12:15 PM从公共走道翻过栏杆跳到屋顶。
+
+此人在屋顶上低爬到狙击位置，开枪后又跑开，携带一个形状像步枪的物品。
+
+监控还显示，嫌疑人于11:51 AM从北侧进入校园，身穿黑色T恤，中间有美国国旗，戴深色棒球帽和大墨镜。其步态异常，右腿很少弯曲，这与裤子里藏着步枪一致。
+
+扩大的犯罪现场调查：
+
+**沿着嫌疑人的逃跑路径，在校园东北端一片树林中发现了一支用毛巾包裹的栓动式步枪。
+
+步枪中有一发已击发的子弹和三发未击发的子弹。没有弹壳在屋顶被发现，符合栓动式步枪的特点。
+
+每发子弹上都有蚀刻文字：
+
+已击发弹壳 (Fired cartridge): "NoTices Bulge OWO What's This?"
+
+第二发弹壳 (Second cartridge): "Hey Facist! Catch! [arrow symbols]"
+
+第三发弹壳 (Third cartridge): "O Bella ciao, Bella ciao Bella ciao Ciao, ciao!"
+
+第四发弹壳 (Fourth cartridge): "If you Read This, You Are GAY Lmao"
+
+在枪支、弹药和毛巾上发现了与Robinson一致的DNA，包括扳机、枪支其他部分、已击发弹壳、两发未击发弹壳和毛巾。
+
+华盛顿县调查 (自首)：
+
+2025年9月11日晚，Tyler James Robinson在家人的陪同下，到华盛顿县警长办公室自首。
+
+Robinson的母亲在新闻中看到枪手的照片后，认为像自己的儿子。她打电话给儿子，儿子称自己生病在家。
+
+Robinson的父亲也认为照片像儿子，并认为**公布的步枪与他送给儿子的枪支相似。
+
+Robinson的父母说服他回家，Robinson暗示自己是枪手，并表示他不想进监狱，只想结束这一切。他解释说“邪恶太多，那个人 [Charlie Kirk] 散布了太多仇恨”。
+
+一位退休的副警长家庭朋友帮助说服Robinson自首，并建议他带上所有证据，避免**搜查父母家。Robinson承认已将作案时穿的衣物丢弃在不同地方。
+
+室友的证词：
+
+**采访了Robinson的室友，他与Robinson有恋爱关系。室友向**提供了Robinson发来的关于枪击事件的信息。
+
+2025年9月10日，室友收到Robinson的短信：“drop what you are doing, look under my keyboard.”（放下你正在做的事情，看看我的键盘下。）
+
+室友在键盘下发现一张纸条，上面写着：“I had the opportunity to take out Charlie Kirk and I'm going to take it."（我有机会除掉Charlie Kirk，我将要去做。）
+
+以下是短信聊天记录原文：(中文翻译见1520楼)
+
+室友 (Roommate): “What?????????????? You're joking, right????"
+
+Robinson: “I am still ok my love, but am stuck in orem for a little while longer yet. Shouldn't be long until I can come home, but I gotta grab my rifle still. To be honest I had hoped to keep this secret till I died of old age. I am sorry to involve you.”
+
+室友 (Roommate): “you weren't the one who did it right????”
+
+Robinson: “I am, I'm sorry”
+
+室友 (Roommate): “I thought they caught the person?”
+
+Robinson: “no, they grabbed some crazy old dude, then interrogated someone in similar clothing. I had planned to grab my rifle from my drop point shortly after, but most of that side of town got locked down. Its quiet, almost enough to get out, but theres one vehicle lingering.”
+
+室友 (Roommate): “Why?”
+
+Robinson: “Why did I do it?”
+
+室友 (Roommate): “Yeah”
+
+Robinson: “I had enough of his hatred. Some hate can't be negotiated out. If I am able to grab my rifle unseen, I will have left no evidence. Going to attempt to retrieve it again, hopefully they have moved on. I haven't seen anything about them finding it.”
+
+室友 (Roommate): “How long have you been planning this?”
+
+Robinson: “a bit over a week I believe. I can get close to it but there is a squad car parked right by it. I think they already swept that spot, but I don't wanna chance it”
+
+Robinson: “I'm wishing I had circled back and grabbed it as soon as I got to my vehicle. ... I'm worried what my old man would do if I didn't bring back grandpas rifle idek if it had a serial number, but it wouldn't trace to me. I worry about prints I had to leave it in a bush where I changed outfits. didn't have the ability or time to bring it with. I might have to abandon it and hope they don't find prints. how the fuck will I explain losing it to my old man. ... only thing I left was the rifle wrapped in a towel. ... remember how I was engraving bullets? The fuckin messages are mostly a big meme, if I see “notices bulge uwu" on fox new I might have a stroke alright im gonna have to leave it, that really fucking sucks. judging from today I'd say grandpas gun does just fine idk. I think that was a $2k scope ;-;”
+
+Robinson: “delete this exchange”
+
+Robinson: “my dad wants photos of the rifle ... he says grandpa wants to know who has what, the feds released a photo of the rifle, and it is very unique. Hes calling me rn, not answering.”
+
+Robinson: “since trump got into office [my dad] has been pretty diehard maga.”
+
+Robinson: “Im gonna turn myself in willingly, one of my neighbors here is a deputy for the sheriff.”
+
+Robinson: “you are all I worry about love”
+
+室友 (Roommate): “I'm much more worried about you”
+
+Robinson: “don't talk to the media please. don't take any interviews or make any comments. ... if any police ask you questions ask for a lawyer and stay silent”
+
+搜查Robinson住所：
+
+**对Robinson的住所执行了搜查令。
+
+搜查中发现了一个弹壳，其蚀刻与在UVU附近步枪中发现的弹壳相似。
+
+**还在Robinson家中发现了几个带有弹孔的靶子。</blockquote>
+
+
+*****
+
+####  就咋的  
+##### 1544#       发表于 2025-9-17 12:17
+
+"Utah Code Section 76-5-202" 的原文，链接好像只能在北美地区打开。
+
+[https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html](https://le.utah.gov/xcode/Title76/Chapter5/76-5-S202.html)
+

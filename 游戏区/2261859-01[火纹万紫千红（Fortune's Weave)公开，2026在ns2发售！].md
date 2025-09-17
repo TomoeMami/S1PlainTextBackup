@@ -5559,3 +5559,35 @@ yt有风花up分析说预告4人都不是主角，
 
 你别管下场怎么样，反正没演<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  土星蛋  
+##### 547#       发表于 2025-9-17 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443499&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-17 11:56</a>
+
+主要是有什么藏的必要，感觉完全没必要，要是主角还是活了千年后的贝老师那倒不一样 ...</blockquote>
+情报分阶段解禁，保持粉丝的吸引力吧，很常见的套路。
+
+不太可能是前作时间段之后啊，这斗技场，战车，巨港都拍你脸上了，罗马迦太基时代是早于中世纪的，采用的时代原型很明显就是前作几百年前
+
+你中世纪发展了几百后后面接古典时代也太怪了吧
+
+
+*****
+
+####  zyupha  
+##### 548#       发表于 2025-9-17 12:13
+
+ 本帖最后由 zyupha 于 2025-9-17 12:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443587&amp;ptid=2261859" target="_blank">土星蛋 发表于 2025-9-17 12:09</a>
+情报分阶段解禁，保持粉丝的吸引力吧，很常见的套路。
+
+不太可能是前作时间段之后啊，这斗技场，战车，巨 ...</blockquote>
+讲道理，风花本篇就是地底人魔法朋克核弹科技接中世纪，文明再倒退也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+何况pv里不是有枪和眼镜（还有疑似水手服？）了嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
