@@ -1399,3 +1399,47 @@ genz 后现代 游戏宅男 全额奖学金 大学辍学和室友同居
 他要真有个男娘恋人，柯克的煽动是真的可能让深红州的他俩生活环境急剧恶化的。
 兴许就是家庭朋友聚会之类的时候有人说听了柯克讲话感觉该把跨都烧死呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  VALKIRA  
+##### 1574#       发表于 2025-9-17 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443787&amp;ptid=2261694" target="_blank">阿刚 发表于 2025-9-17 12:36</a>
+
+这挖来挖去别开始清算电子游戏就搞笑了</blockquote>
+这很有可能
+
+右翼不可能承认是拥枪的错，也不可能承认这是maga内讧
+
+左翼也不可能承认这人是个极端左
+
+然后两党的老登都看不爽电子游戏很久了
+
+蛋壳又给了完美的借口
+
+最后老登们一拍即合都是电子游戏的错难道是很难想象的事吗
+
+*****
+
+####  卡嘎米  
+##### 1575#       发表于 2025-9-17 15:01
+
+这很明显就是传统右派家庭里的所谓“日子人”被左派变性人影响三观了，日子人就是保持现状的右，日子人上大学拿奖学金，然后只上了一个学期就跑了，找了个变性女友，自己感受一下是什么心态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 1576#       发表于 2025-9-17 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68431586&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-15 12:17</a>
+韩国这波也太丢人了。</blockquote>
+叹为观止
+
+*****
+
+####  lilisipis  
+##### 1577#       发表于 2025-9-17 15:05
+
+永久改变了美国政治生态，不愧是2024TGA最佳运营奖
+
