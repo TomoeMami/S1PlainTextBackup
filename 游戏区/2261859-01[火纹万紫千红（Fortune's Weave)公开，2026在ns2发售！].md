@@ -5866,3 +5866,11 @@ IGN的常规操作，火纹视频，换源了。
 皇女这边直接塑造对位其他三条线，无法像阿 ...</blockquote>
 也不要太相信分线战士，别忘了三房无双<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88ace88  
+##### 566#       发表于 2025-9-18 01:08
+
+光荣写分线剧本的实力，看看无双系列，只能说栽的次数不比is写fe剧本时少
+
