@@ -204,3 +204,14 @@
 狂冠位这五花八门的支援，只能说是相当抽象了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18229#       发表于 2025-9-17 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68446210&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-17 19:55</a>
+
+狂冠位这五花八门的支援，只能说是相当抽象了</blockquote>
+日服的助战哪里不抽象的，各种奇葩的礼装挂发都有<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
