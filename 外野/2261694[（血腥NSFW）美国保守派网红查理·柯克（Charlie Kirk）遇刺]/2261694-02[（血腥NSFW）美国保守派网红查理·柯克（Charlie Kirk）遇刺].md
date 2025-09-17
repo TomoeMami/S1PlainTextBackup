@@ -779,3 +779,22 @@ vance主持kirk秀，誓言要清除ngo，鼓励举报嘲笑kirk之死的人
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Benighted  
+##### 1537#       发表于 2025-9-17 11:41
+
+<blockquote>Tissuesea 发表于 2025-9-17 11:35
+上面那个独家报道说的凶手死了一样，既然是活的就可以审讯他呀，不知道能不能公审
+
+—— 来自 HONOR ALI-AN ...</blockquote>
+起诉书已经公开了，稍后发个整理后的版本
+
+*****
+
+####  aeolus039  
+##### 1538#       发表于 2025-9-17 11:45
+
+挺明显了，日子人，游戏宅，良家子爱上了男娘，最终忍不了柯克的仇恨言论跟他爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

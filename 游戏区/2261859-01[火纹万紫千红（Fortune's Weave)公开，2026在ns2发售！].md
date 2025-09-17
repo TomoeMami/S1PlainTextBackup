@@ -5526,3 +5526,15 @@ yt有风花up分析说预告4人都不是主角，
 
 毕竟背景是角逐出第一强者实现愿望的大剑斗祭，让潜在的竞争对手彼此合作还能说得过去，直接赠与未来的对手道具装备什么的在叙事上多少有点奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zyupha  
+##### 544#       发表于 2025-9-17 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443216&amp;ptid=2261859" target="_blank">Humpy 发表于 2025-9-17 11:23</a>
+有藏着的真主角倒还好，就怕IS真犯病道具装备系统来个系谱现代复刻版，人物金钱道具装备独立，不能交换装 ...</blockquote>
+艹，指令里有分随身物品和道具袋真没注意到，这么复杂的吗这可是操作十几个角色的游戏啊怎么还能每个人分开小仓库的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

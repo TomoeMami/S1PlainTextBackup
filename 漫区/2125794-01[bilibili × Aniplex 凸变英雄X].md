@@ -1055,3 +1055,19 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 而且海外一片好评</blockquote>
 那就太好了
 
+
+*****
+
+####  新HGCG  
+##### 531#       发表于 2025-9-17 11:44
+
+这帧幸运青美如画
+
+<img src="https://img.stage1st.com/forum/202509/17/114411ji2eiii4vdvnyd6i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 11:44 上传
+
