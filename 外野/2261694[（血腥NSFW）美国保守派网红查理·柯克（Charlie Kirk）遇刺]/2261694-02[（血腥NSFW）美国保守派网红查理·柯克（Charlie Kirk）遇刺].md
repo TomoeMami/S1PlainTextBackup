@@ -1517,3 +1517,31 @@ BOOOOOOOOOOM! ! !
 
 我脑补的，请勿过度解读。
 
+
+*****
+
+####  xuanwu_lei  
+##### 1583#       发表于 2025-9-17 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444477&amp;ptid=2261694" target="_blank">VALKIRA 发表于 2025-9-17 15:01</a>
+这很有可能
+
+右翼不可能承认是拥枪的错，也不可能承认这是maga内讧
+
+左翼也不可能承认这人是个极端左</blockquote>
+美版网瘾战争以后，枪店走进来两个年轻人，请问老板如何分辨哪个年轻人是思想正派的MAGA想买谷子，哪个是游戏nerd准备报复老登<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+原子化叛乱，启动<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xuanwu_lei  
+##### 1584#       发表于 2025-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444397&amp;ptid=2261694" target="_blank">小小雪空 发表于 2025-9-17 14:44</a>
+有一说一，我几喜欢日子人突突极端派这说法，一改我们日子人不会发声的印象……× ...</blockquote>
+别人都可以感叹，雪空你感叹就搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+从「vtuber吧」到「尾巴区」，你还没见够「魔怔-日子」两级反转的现象吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

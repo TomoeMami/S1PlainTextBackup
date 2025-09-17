@@ -45,3 +45,14 @@ GODA漫画、COLAMANGA、漫蛙。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  慈父斯大林  
+##### 94#       发表于 2025-9-17 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68441687&amp;ptid=2254551" target="_blank">软软人 发表于 2025-9-17 04:06</a>
+条漫尽量就是按条漫模式看，不要分页和选择切割，虽然不分页跨页的画画面也对不齐，之前我也很不习惯条漫 ...</blockquote>
+看了下确实是我点了分割双页的问题。
+印象里以前用tachiyomi的时候可以对单个漫画设置是否分割双页，换成mihon好像反而不行了。
+
