@@ -1654,3 +1654,63 @@ BOOOOOOOOOOM! ! !
 正常情况游戏遭铁拳可能性不大。两党都是大帐篷，共和党还要靠游戏团结年轻男性。不过现在美国政客加起来没 ...</blockquote>
 地狱潜兵2和明年的GTA6感觉是不好说。纯粹打打杀杀倒是很安全
 
+
+*****
+
+####  stmule  
+##### 1596#       发表于 2025-9-17 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444477&amp;ptid=2261694" target="_blank">VALKIRA 发表于 2025-9-17 15:01</a>
+这很有可能
+
+右翼不可能承认是拥枪的错，也不可能承认这是maga内讧
+
+左翼也不可能承认这人是个极端左</blockquote>
+利好gta6<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  素盏鸣尊  
+##### 1597#       发表于 2025-9-17 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68445891&amp;ptid=2261694" target="_blank">日日日日日野 发表于 2025-9-17 18:42</a>
+
+地狱潜兵2和明年的GTA6感觉是不好说。纯粹打打杀杀倒是很安全</blockquote>
+明年这事就过去了。目前炒作柯圣有五成动机分散爱泼斯坦名单。
+
+*****
+
+####  gammatau  
+##### 1598#       发表于 2025-9-17 18:53
+
+<blockquote>xuanwu_lei 发表于 2025-9-17 16:01
+听说过什么叫radical centrist吗
+
+老右的一堆「你应该blabla」可以「啊对对对」应付下来，但是要想突破「 ...</blockquote>
+哈草
+
+打游戏
+
+变性
+
+Our way of life
+
+But freedom come at a price...
+
+
+*****
+
+####  aeolus039  
+##### 1599#       发表于 2025-9-17 18:54
+
+<img src="https://p.sda1.dev/27/20910953035ead7b27a5ec539418009a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 1600#       发表于 2025-9-17 18:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">恁美乐子人实在太多了
+

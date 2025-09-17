@@ -5661,3 +5661,25 @@ IGN的常规操作，火纹视频，换源了。
 
 我看有人说最后苏谛斯出现的那一幕可能不止她一个，镜头一晃下面有五个白色突出物，可能是站了5个穿白斗篷的人，信徒之类的。
 
+
+*****
+
+####  Humpy  
+##### 555#       发表于 2025-9-17 18:54
+
+<img src="https://img.stage1st.com/forum/202509/17/185031jmjf6xi7zui6ggjx.png" referrerpolicy="no-referrer">
+
+<strong>leda.png</strong> (842.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 18:50 上传
+
+画了新作的雷达姐。
+
+因为游戏还没有给出更详细的设定所以也不清楚雷达姐不复仇的时候是什么性格所以就自由发挥下，但既然是舞娘风格的造型应该不会少了色气吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但无论如何，雷达姐必须要有大雷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑皮就是要出汗才好！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
