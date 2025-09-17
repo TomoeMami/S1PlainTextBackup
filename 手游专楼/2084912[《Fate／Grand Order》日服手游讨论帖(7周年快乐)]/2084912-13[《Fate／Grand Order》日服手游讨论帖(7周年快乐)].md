@@ -106,3 +106,60 @@
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我现在越来越觉得这辣鸡游戏是真的要关服了....现在在捞最后一笔
 
+
+*****
+
+####  Jamaisvu  
+##### 18224#       发表于 2025-9-17 18:14
+
+<blockquote>森兰丸 发表于 2025-9-17 17:41
+剑阶和狂阶的礼装羁绊加成图谁能再发下</blockquote>
+
+【【FGO】剑·狂阶插件＆牵绊加成表，迎接第二波钻研战限免吧-哔哩哔哩】 https://b23.tv/UYXtWfB
+
+感谢up主暴走的秋田君整理。具体内容如下。
+
+剑阶羁绊：
+
+<img src="https://img.stage1st.com/forum/202509/17/181451ox0vc0bx0rrkb4mz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250917_181108.jpg</strong> (220.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-17 18:14 上传
+
+复合加成：
+
+<img src="https://img.stage1st.com/forum/202509/17/181400csnow3sawxjaasj3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250917_181125.jpg</strong> (145.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-17 18:14 上传
+
+狂阶羁绊：
+
+<img src="https://img.stage1st.com/forum/202509/17/181405iupeppdu9ug5pueg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250917_181237.jpg</strong> (186.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-17 18:14 上传
+
+复合加成：
+
+<img src="https://img.stage1st.com/forum/202509/17/181411dcxxkcks46mkf8km.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250917_181211.jpg</strong> (121.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-17 18:14 上传
+
