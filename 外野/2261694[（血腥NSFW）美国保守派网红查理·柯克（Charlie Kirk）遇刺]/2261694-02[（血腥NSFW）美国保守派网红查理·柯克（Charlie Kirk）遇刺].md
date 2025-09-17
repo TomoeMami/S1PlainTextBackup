@@ -1140,3 +1140,31 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 
 可能跟什么政治立场男娘室友关系都不大，单纯是看不惯柯克这个人，觉得不能再留这个虫豸在世上浪费白米饭了，于是就头脑一热开干了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  edlose  
+##### 1551#       发表于 2025-9-17 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443945&amp;ptid=2261694" target="_blank">今天不守尸 发表于 2025-9-17 13:03</a>
+
+可能跟什么政治立场男娘室友关系都不大，单纯是看不惯柯克这个人，觉得不能再留这个虫豸在世上浪费白米饭了 ...</blockquote>
+嗷的一声发动天诛
+
+
+*****
+
+####  就咋的  
+##### 1552#       发表于 2025-9-17 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68443239&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-17 11:25</a>
+
+独家报道：查理·柯克遇刺案泄露信息曝光
+
+被指控枪手的"政治立场"并非政府与媒体所言
+
+肯·克里彭斯坦</blockquote>
+驴象魔怔人和 4chan 也可能把这条信息解读成“他在模仿或嘲笑南方公园里的 Jimmy”
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+ <blockquote>“我马上就要去碎觉了，超级困觉，”他在一条帖子中这样说道，故意将“睡觉”一词拼错——这是 Z 世代常见的俏皮表达方式。</blockquote>
+

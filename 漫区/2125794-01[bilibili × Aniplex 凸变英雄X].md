@@ -1071,3 +1071,16 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 
 2025-9-17 11:44 上传
 
+
+*****
+
+####  qiaogaohhb  
+##### 532#       发表于 2025-9-17 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68438758&amp;ptid=2125794" target="_blank">rushsong 发表于 2025-9-16 15:10</a>
+
+问题就是这片的人设太土了，lh0连人设都不会买了，bangumi就有人吐槽过了，主要角色里有四个白毛，两个撞 ...</blockquote>
+看了一眼隔壁《鬼灭之刃》，我觉得这人设还蛮时髦的。
+
+多画风有个额外好处，是观众看完回忆的时候，会默认用最优画风脑补<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
