@@ -1870,3 +1870,14 @@ BBC也报道了
 
 诡辩就是把正常人辩的热血上涌 浑身战栗 有苦难言  精神失控，早晚是要挨武器的批判的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vega2017  
+##### 1614#       发表于 2025-9-17 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68446207&amp;ptid=2261694" target="_blank">天青色的西风 发表于 2025-9-17 19:54</a>
+
+说个题外话：马逆等对这种靠在网上发暴论就可以转入政治体系，甚至可以当上部长、副总统、总统的体制，是不 ...</blockquote>
+死的那个家伙 组织了2000多个学生社团，这个才是核心
+
