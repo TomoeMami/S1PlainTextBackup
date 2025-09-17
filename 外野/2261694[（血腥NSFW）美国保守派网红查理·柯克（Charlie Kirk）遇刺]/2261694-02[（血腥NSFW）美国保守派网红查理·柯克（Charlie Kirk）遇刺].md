@@ -1343,3 +1343,15 @@ courthouse officer 是负责法院里维持秩序的，类似保安
 前 ...</blockquote>
 各路人马冲击每一个社会问题，包括枪击案本身，挑选双方当事人的某些“身份标签”，拿噪音掩盖噪音，将矛盾转化为新的矛盾，用美国反对美国
 
+
+*****
+
+####  Cthululives  
+##### 1569#       发表于 2025-9-17 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444246&amp;ptid=2261694" target="_blank">yang1820 发表于 2025-9-17 14:13</a>
+如果他真是“日子人”或者中间派，那么就是“最坏的答案”，美国左右两派（尤其是右派）都不会接受的。
+
+前 ...</blockquote>
+最近因为美国抽象事儿太多去看了几个泥潭推荐up的分析和案例分享，深感美国人似乎普遍没有实事求是的习惯，都不是说教员说的那种实事求是分析主次矛盾找到症结的级别了，就单纯先了解一下事实是什么样都不愿意，不禁让人在脑子里冒出许多“劣根性”云云的词汇来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
