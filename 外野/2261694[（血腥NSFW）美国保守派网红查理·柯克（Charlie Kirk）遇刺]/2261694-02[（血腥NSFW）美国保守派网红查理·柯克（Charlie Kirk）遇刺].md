@@ -1189,3 +1189,11 @@ Robinson: “don't talk to the media please. don't take any interviews or make a
 </blockquote>
 是的 他的表达很多像是在论坛发帖，不像一般人和朋友说话，很多人觉得这聊天记录不是ChatGPT生成的就是他真的混论坛把脑子混坏了
 
+
+*****
+
+####  lyb  
+##### 1555#       发表于 2025-9-17 13:33
+
+“电子芬太尼！”
+
