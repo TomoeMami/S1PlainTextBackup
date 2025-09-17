@@ -1320,3 +1320,26 @@ courthouse officer 是负责法院里维持秩序的，类似保安
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  iantsai  
+##### 1567#       发表于 2025-9-17 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68427530&amp;ptid=2261694" target="_blank">天选之子 发表于 2025-9-14 21:18</a>
+
+911之后也有一堆殖人说“今晚我们都是美国人”，全世界的殖人都喜欢给自己疯狂加戏。 ...</blockquote>
+凤凰卫视当晚的节目就叫“今晚我们都是美国人”，妈的，当时真是笑死我了。
+
+*****
+
+####  就咋的  
+##### 1568#       发表于 2025-9-17 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444246&amp;ptid=2261694" target="_blank">yang1820 发表于 2025-9-17 14:13</a>
+
+如果他真是“日子人”或者中间派，那么就是“最坏的答案”，美国左右两派（尤其是右派）都不会接受的。
+
+前 ...</blockquote>
+各路人马冲击每一个社会问题，包括枪击案本身，挑选双方当事人的某些“身份标签”，拿噪音掩盖噪音，将矛盾转化为新的矛盾，用美国反对美国
+

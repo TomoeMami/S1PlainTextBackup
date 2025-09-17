@@ -4447,3 +4447,13 @@ G的ult竟然不是恶魔高达jr。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感恩，还是感恩
 
+
+*****
+
+####  无念  
+##### 2671#       发表于 2025-9-17 14:25
+
+神高只要有个电影弹map就能骗课了，毕竟不少人上次刚用开发师匠逃课过，明镜止水和风云再起还可以再骗两次<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
