@@ -1545,3 +1545,33 @@ BOOOOOOOOOOM! ! !
 
 从「vtuber吧」到「尾巴区」，你还没见够「魔怔-日子」两级反转的现象吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 1585#       发表于 2025-9-17 15:59
+
+咋说呢，他和同居男友的短信爆出来之后，也明确说了查理柯克是个煽动仇恨的人。这其实就很难将其定义为日子人了，因为真的日子人是不会care这种政治网红的。
+
+
+*****
+
+####  xuanwu_lei  
+##### 1586#       发表于 2025-9-17 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444480&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-17 15:01</a>
+这很明显就是传统右派家庭里的所谓“日子人”被左派变性人影响三观了，日子人就是保持现状的右，日子人上大 ...</blockquote>
+听说过什么叫radical centrist吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老右的一堆「你应该blabla」可以「啊对对对」应付下来，但是要想突破「奥符顿之窗」，那就要「保卫与mtf女友贴贴的现代生活」了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aeolus039  
+##### 1587#       发表于 2025-9-17 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444885&amp;ptid=2261694" target="_blank">日日日日日野 发表于 2025-9-17 15:59</a>
+咋说呢，他和同居男友的短信爆出来之后，也明确说了查理柯克是个煽动仇恨的人。这其实就很难将其定义为日子 ...</blockquote>
+你看上面那个Hunter的采访，他去和柯克辩就是因为柯克在煽动对跨的仇恨。对于有男娘女友的泰勒来说已经是打上门了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/932de8910547a4cbe11875aa6b6c3fca/image.jpg" referrerpolicy="no-referrer">
+
