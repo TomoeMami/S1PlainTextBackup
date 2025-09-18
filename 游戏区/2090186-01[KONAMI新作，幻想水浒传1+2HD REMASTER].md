@@ -3697,3 +3697,14 @@ PSP版就修了
 
 求问一下，一代怎么存档？  刚开头，发现大地图跟旅店都没有存档点呀，哪位好心人指点一下，谢谢
 
+
+*****
+
+####  captoon  
+##### 391#       发表于 2025-9-19 07:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453710&amp;ptid=2090186" target="_blank">露卡 发表于 2025-9-19 02:26</a>
+
+求问一下，一代怎么存档？  刚开头，发现大地图跟旅店都没有存档点呀，哪位好心人指点一下，谢谢 ...</blockquote>
+出城，右拐，有个小村庄，进去旅店 存档
+
