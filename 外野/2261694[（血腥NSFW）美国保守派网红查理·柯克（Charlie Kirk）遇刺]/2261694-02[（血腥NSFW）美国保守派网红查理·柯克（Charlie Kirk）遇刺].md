@@ -1982,3 +1982,16 @@ BBC也报道了
 看到建议宣布Antifa是外国恐怖组织，这招太狠了</blockquote>
 已经结束了
 
+
+*****
+
+####  VALKIRA  
+##### 1624#       发表于 2025-9-18 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448128&amp;ptid=2261694" target="_blank">h小号 发表于 2025-9-18 08:45</a>
+
+突然想明白了很多事，互联网上很多人是在用西方那一套夺权</blockquote>
+本来就是啊
+
+你以为罗圣这些人是想干嘛？
+
