@@ -6161,3 +6161,38 @@ IGN的常规操作，火纹视频，换源了。
 山猪当上国王没疯没瞎唯有在红花线才可以做到，有点讽刺。第一次打的红花线，还以为皇女对山猪有弑母之仇 ...</blockquote>
 但哪怕山猪没认定炎帝是主动图光达斯卡悲剧受害人的幕后真凶，五年后山猪落魄疯狂把仇恨对准皇女其实也挺合理的。因为粉毛伪圣女确实是和皇女合作，才陷害山猪为谋杀叔父的凶手，虐独眼，再把王国西部送给帝国的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Troywest  
+##### 592#       发表于 2025-9-18 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450656&amp;ptid=2261859" target="_blank">嘉术2015 发表于 2025-9-18 14:58</a>
+过了五天了，我和阿鲁卡多、舞娘、黑皮女帝，甚至眼睛妹都和解了，但我就是没法和男主的造型和解，只能希望 ...</blockquote>
+可能他并不是男主。
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zyupha  
+##### 593#       发表于 2025-9-18 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450086&amp;ptid=2261859" target="_blank">Troywest 发表于 2025-9-18 13:25</a>
+虽说大概率是人物描写做的不够好，但也能用日本人喜欢的反差感来解释三房子为什么做成我们看到的这样。比如 ...</blockquote>
+满肚子坏水的同盟阴谋家库洛德设定可能是正篇不敢用才给塞到无双里了呢，
+什么阴谋用毒都只是嘴上说说，他用的毒都没整天把贵族精神放在嘴边的洛连兹多<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  绿冰  
+##### 594#       发表于 2025-9-18 15:19
+
+<blockquote>406 发表于 2025-9-18 15:12
+但哪怕山猪没认定炎帝是主动图光达斯卡悲剧受害人的幕后真凶，五年后山猪落魄疯狂把仇恨对准皇女其实也挺 ...</blockquote>
+王国跟教会合流了，山猪还没疯，红花线中间五年是王国最强势的时候，地底人要怎么下手
+
+不管圣女闹什么事，哪怕没疯的山猪心软，蕾雅这种铁腕的也肯定不会手下留情
+
