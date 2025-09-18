@@ -2350,3 +2350,11 @@ Anti-Judaism 和 Anti-Christ 宣布加入战场？
 
 —— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  stygian  
+##### 1660#       发表于 2025-9-18 14:37
+
+antifa一开始就是个去中心化+大帐篷的运动，嗯画一个靶子来打，ykw这是要开展有美帝国主义特色的21世纪CR了啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
