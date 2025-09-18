@@ -6228,3 +6228,57 @@ IGN的常规操作，火纹视频，换源了。
 但哪怕山猪没认定炎帝是主动图光达斯卡悲剧受害人的幕后真凶，五年后山猪落魄疯狂把仇恨对准皇女其实也挺 ...</blockquote>
 有点忘了。王国的巨乳伪圣女在红花线里有戏份吗。
 
+
+*****
+
+####  406  
+##### 598#       发表于 2025-9-18 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450774&amp;ptid=2261859" target="_blank">zyupha 发表于 2025-9-18 15:15</a>
+
+满肚子坏水的同盟阴谋家库洛德设定可能是正篇不敢用才给塞到无双里了呢，
+
+什么阴谋用毒都只是嘴上说说， ...</blockquote>
+洛廉兹也是个把帮助平民的医疗用品随身带的正人君子啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全学生里唯一明确品格有问题，学生期间就搞暗杀搞威胁的，只有皇女御用黑手套修伯特了。这人和皇女的支援对话甚至总是当自走棋抢着领锅
+
+
+*****
+
+####  hkguty  
+##### 599#       发表于 2025-9-18 15:50
+
+主要本篇有贝老师坐镇教会，库罗德没有想对教会下手，本来库罗德就不希望蕾雅活着。
+
+*****
+
+####  406  
+##### 600#       发表于 2025-9-18 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450962&amp;ptid=2261859" target="_blank">nagitoY 发表于 2025-9-18 15:42</a>
+
+有点忘了。王国的巨乳伪圣女在红花线里有戏份吗。</blockquote>
+红花线的伪圣女被皇女的奇袭把戏蒙骗，以给王国军带来防卫大机器人的好盟友身份，屈辱地死了。其他线山猪疯了是因为被王国下达死刑，苍月线直接演示是伪圣女的操作把山猪判死刑
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nagitoY| + 1|对伪圣女印象只剩下胸好大了|
+
+查看全部评分
+
+
+*****
+
+####  女反派  
+##### 601#       发表于 2025-9-18 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449115&amp;ptid=2261859" target="_blank">whzfjd 发表于 2025-9-18 11:08</a>
+
+后知后觉红秋裤这风味不就是某25年1月少女乐队番吗</blockquote>
+！！！豁然开朗
+
