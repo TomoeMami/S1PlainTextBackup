@@ -2126,3 +2126,65 @@ ykw亲自发了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就跟抓革命党一样吗，看你不爽就给你扣个革命党的帽子杀了，不要太舒服
 
+
+*****
+
+####  全都笑了  
+##### 1639#       发表于 2025-9-18 11:45
+
+安提法（组织名）跳的太高了，连泥潭的冥猪邪档星怒力都拿着破玩意隔着太平洋恐吓谭友，这把川宝真要用fxs手段抓这群猪猡送去萨尔瓦多烤哥斯拉了，支持继续安提法（动词），打起来赶紧的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1640#       发表于 2025-9-18 11:46
+
+外网评四大刺客，最左这位是唯一没得手的。
+<img src="https://p.sda1.dev/27/303ea19db8ddd816c6f36de1b36c099a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gammatau  
+##### 1641#       发表于 2025-9-18 11:48
+
+<blockquote>wwmmddqqbbpp 发表于 2025-9-18 04:47
+这套逻辑感觉和信教的差不多吧，首先得信，任何基于事实的探究都是小信的人的做法。感觉宗教这东西真是底 ...</blockquote>
+fact check这个词在16年时就被玩坏了，当时美国leftist创造了无数fact check网站生称公平核查各种问题，实则对ykw吹毛求疵不惮以最强词夺理的方式进行攻击。现在一提到fact check美国右派基本就觉得你是冲着他们来的
+
+*****
+
+####  变老的大二  
+##### 1642#       发表于 2025-9-18 11:48
+
+关键antifa只是一个政治倡议。你怎么抓?街上抓个人问你反不反对法西斯，你认不认为maga是法西斯?
+
+*****
+
+####  烦死了  
+##### 1643#       发表于 2025-9-18 11:49
+
+红迪上好多人退订abc了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  全都笑了  
+##### 1644#       发表于 2025-9-18 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449426&amp;ptid=2261694" target="_blank">变老的大二 发表于 2025-9-18 11:48</a>
+
+关键antifa只是一个政治倡议。你怎么抓?街上抓个人问你反不反对法西斯，你认不认为maga是法西斯? ...</blockquote>
+当初antifa得势伙同blm到处横行霸道，空口鉴定法西斯的时候可没把自己当成“政治倡议”噢，既然喜欢做x卫兵，权力靠山倒台被清算也是x卫兵的一部分。登式：你不能只有在清算别人的时候才说没有人是不懂政治只是出来玩玩的。
+
+*****
+
+####  ssnp  
+##### 1645#       发表于 2025-9-18 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449410&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-18 11:46</a>
+外网评四大刺客，最左这位是唯一没得手的。</blockquote>
+但是最左边的也是难度最高的吧。最右也难不过难点其实是武器获取现场安保力度一般。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
