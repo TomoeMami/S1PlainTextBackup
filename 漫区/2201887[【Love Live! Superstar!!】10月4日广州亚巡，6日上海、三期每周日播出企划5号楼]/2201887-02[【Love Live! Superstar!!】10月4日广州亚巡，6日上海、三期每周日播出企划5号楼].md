@@ -17,3 +17,14 @@
 星3期现在BD卷均是多少？8000多？</blockquote>
 11745+6675+6727+7568+8208+8898；卷均8304
 
+
+*****
+
+####  evestart  
+##### 1727#       发表于 2025-9-18 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68440873&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-9-16 22:13</a>
+
+11745+6675+6727+7568+8208+8898；卷均8304</blockquote>
+感觉还行，可能比当初大家预期的要好一点？
+
