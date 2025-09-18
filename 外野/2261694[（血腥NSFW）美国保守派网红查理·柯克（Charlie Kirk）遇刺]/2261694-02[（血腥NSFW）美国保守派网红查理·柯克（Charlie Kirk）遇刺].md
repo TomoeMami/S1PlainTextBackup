@@ -2003,3 +2003,31 @@ BBC也报道了
 
 路易基搞不好要无罪释放了，现在除了一个二级谋杀，其他都被律师大佬给否掉了
 
+
+*****
+
+####  outerish  
+##### 1626#       发表于 2025-9-18 10:20
+
+吉米鸡毛也被搞？他人脉很好的，后续震动肯定大
+
+言论自由的回旋镖，查理一鲸落万物生，加大力度！
+
+*****
+
+####  aeolus039  
+##### 1627#       发表于 2025-9-18 10:22
+
+<img src="https://p.sda1.dev/27/24d0fa14fb6920d1a9cd00e38b10a795/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cthululives  
+##### 1628#       发表于 2025-9-18 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448128&amp;ptid=2261694" target="_blank">h小号 发表于 2025-9-18 08:45</a>
+突然想明白了很多事，互联网上很多人是在用西方那一套夺权</blockquote>
+本来就是，现在网上各类一个傻逼意见领袖发明一种新话术然后振臂高呼，一群傻逼立刻影从的操作，根子不就在阿美党争么，为了争取权利，双方都在抢夺优先创造声明，话语权和道德高地的机会，没有道德标准我就创造道德标准，反正不管说什么总有追随者滚雪球
+
