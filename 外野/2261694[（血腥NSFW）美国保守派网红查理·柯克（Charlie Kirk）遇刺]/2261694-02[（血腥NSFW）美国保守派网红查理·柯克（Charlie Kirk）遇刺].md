@@ -2074,3 +2074,22 @@ ykw亲自发了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 懂逼CBS开除扣熊时，就点了ABC吉米鸡毛不能留，这才多久啊，ABC就找到机会了，好了现在就剩下肥伦了，你 ...</blockquote>
 肥伦那么滑头的人，不会被开的。你忘了懂王第一次竞选就上了肥伦秀，肥伦除了把懂王的头发弄乱了其他的也没啥过分的。事后肥伦还被左派批评对懂王太客气
 
+
+*****
+
+####  Cthululives  
+##### 1633#       发表于 2025-9-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448908&amp;ptid=2261694" target="_blank">pushare 发表于 2025-9-18 10:38</a>
+ykw亲自发了</blockquote>
+可安提法也不是一个固定的人员组织吧，那是不是只能在大街上随机拦人进行思想检查然后见机进行**灭除行动了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuanwu_lei  
+##### 1634#       发表于 2025-9-18 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449025&amp;ptid=2261694" target="_blank">Cthululives 发表于 2025-9-18 10:56</a>
+可安提法也不是一个固定的人员组织吧，那是不是只能在大街上随机拦人进行思想检查然后见机进行**灭除行动 ...</blockquote>
+目前最快捷证明自己不是Antifa的手段只能是见到思想警察直接用西嗨打招呼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
