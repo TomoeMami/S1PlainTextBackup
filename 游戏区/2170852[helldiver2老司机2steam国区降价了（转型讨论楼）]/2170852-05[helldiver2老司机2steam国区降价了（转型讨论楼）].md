@@ -1442,3 +1442,16 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qwased  
+##### 7124#       发表于 2025-9-18 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451957&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-9-18 18:16</a>
+
+感觉好菜
+
+—— 来自 鹅球 v3.3.96</blockquote>
+如果能免疫火伤的话打虫子应该很好玩
+

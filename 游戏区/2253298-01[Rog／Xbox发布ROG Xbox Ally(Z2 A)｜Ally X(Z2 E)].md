@@ -1390,3 +1390,13 @@ https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9</blockquote>
 
 省流：休眠没解决，性能没提升
 
+
+*****
+
+####  luffyzhou  
+##### 134#       发表于 2025-9-18 19:07
+
+那岂不是还不如steam大屏模式
+
+—— 来自 samsung SM-F9660, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
