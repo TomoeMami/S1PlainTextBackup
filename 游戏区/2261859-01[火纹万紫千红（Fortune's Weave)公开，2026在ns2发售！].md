@@ -6426,3 +6426,35 @@ IGN的常规操作，火纹视频，换源了。
 
 —— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Troywest  
+##### 614#       发表于 2025-9-18 16:44
+
+到时候等is端出来一个集合了三房的地图设计，玩法机制，和engage的剧情，演出；再整上三四条路线，每条路线从十几章后才分叉的终极火纹。
+啧啧，那画面太美我不敢看<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ymm1030  
+##### 615#       发表于 2025-9-18 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68416817&amp;ptid=2261859" target="_blank">はちたや 发表于 2025-9-12 22:09</a>
+
+这男主算是脏辫变种吗
+
+女主眼镜娘感觉像是穿越过来的</blockquote>
+不是变种，就是脏辫了吧
+
+*****
+
+####  绿冰  
+##### 616#       发表于 2025-9-18 16:49
+
+<blockquote>ymm1030 发表于 2025-9-18 16:46
+不是变种，就是脏辫了吧</blockquote>
+没，是假装成脏辫的头发，pv里其他扎辫子的角色都有明显的纹理
+

@@ -2465,3 +2465,18 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 —— 来自 samsung SM-S9110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  loli炮  
+##### 1671#       发表于 2025-9-18 16:50
+
+大明1566有英配版吗
+
+*****
+
+####  Geronimo  
+##### 1672#       发表于 2025-9-18 16:52
+
+再来几个差不多可以组成美末四大案了吧？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

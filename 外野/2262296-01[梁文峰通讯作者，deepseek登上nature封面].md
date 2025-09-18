@@ -528,3 +528,23 @@ AI：人类你把对错标注一下就行了，别自作多情，剩下让老子
 组里今年毕业的博士除了我没有年包低于120的，这年头还得是大模型，之前信誓旦旦跟我说一定去搞学术的朋友 ...</blockquote>
 去学术才是死路一条，大学有鬼的算力，给你搞AI
 
+
+*****
+
+####  Ronso  
+##### 55#       发表于 2025-9-18 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451383&amp;ptid=2262296" target="_blank">smiths146 发表于 2025-9-18 16:42</a>
+
+去学术才是死路一条，大学有鬼的算力，给你搞AI</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">能上海油还是不错的，上上届的一个学长搞一年半博后就海油了，钱是没企业多但是自由不少啊。
+
+*****
+
+####  千千千千鸟  
+##### 56#       发表于 2025-9-18 16:51
+
+还是想要R2吧，写文章最终还得靠国产AI，希望在写文方面能快点超越gemini。
+
+其实只要针对经典文学作品、通俗文学作品以及各种文字类材料进行定向训练，应该很快就超越了吧，只能说可能他们的重心不在这边，以及上下文希望能多点，我不介意花钱。
+
