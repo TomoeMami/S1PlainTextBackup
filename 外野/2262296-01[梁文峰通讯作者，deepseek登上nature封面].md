@@ -459,3 +459,30 @@ ai训练的花费说实话在推理面前基本可以忽略不计，无非是sca
 
 说起来现在大模型这块全世界好像都是公司领先高校了。毕竟公司太有钱了。
 
+
+*****
+
+####  华夷之辩  
+##### 49#       发表于 2025-9-18 16:05
+
+80W年薪在程序员里算高薪嘛？反正我姐夫作为程序员30W的样子，再普通人里肯定是高薪的。
+
+
+*****
+
+####  cmdycj0732  
+##### 50#       发表于 2025-9-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449604&amp;ptid=2262296" target="_blank">moekyo 发表于 2025-9-18 12:08</a>
+什么不缺，我怎么记得之前有采访说，算力还是不够，真够了也没必要像之前来源周来开源的那一堆库所做的，拼 ...</blockquote>
+如果以满足几亿人同时访问为标准的话全世界算力都不够
+
+—— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  Ronso  
+##### 51#       发表于 2025-9-18 16:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">组里今年毕业的博士除了我没有年包低于120的，这年头还得是大模型
+
