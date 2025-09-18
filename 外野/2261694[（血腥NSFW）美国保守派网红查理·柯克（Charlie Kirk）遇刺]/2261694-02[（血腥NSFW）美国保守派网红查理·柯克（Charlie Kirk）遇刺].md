@@ -2064,3 +2064,13 @@ ykw亲自发了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://p.sda1.dev/27/e2ed75c9907b4f46b702b13913118079/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lightingwolf  
+##### 1632#       发表于 2025-9-18 10:52
+
+<blockquote>cashhellsing 发表于 2025-9-18 10:35
+懂逼CBS开除扣熊时，就点了ABC吉米鸡毛不能留，这才多久啊，ABC就找到机会了，好了现在就剩下肥伦了，你 ...</blockquote>
+肥伦那么滑头的人，不会被开的。你忘了懂王第一次竞选就上了肥伦秀，肥伦除了把懂王的头发弄乱了其他的也没啥过分的。事后肥伦还被左派批评对懂王太客气
+

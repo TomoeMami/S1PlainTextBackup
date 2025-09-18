@@ -1184,3 +1184,21 @@ ep2:如果梦主在梦里当敌人，主角负责治心病，还有丶意思
 
 这个第二集还不够好啊，不知道的还以为最近几年吃的是什么细糠，多少年没见实景来打骑摩托了
 
+
+*****
+
+####  milky658  
+##### 301#       发表于 2025-9-18 10:55
+
+more bike action is coming...
+
+机车战真能有5集剧烂了我也给东映磕头好嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/18/105430wm2mmzovch1h2323.jpg" referrerpolicy="no-referrer">
+
+<strong>769bb6a015e05e5465d17fab6ecb250b.jpg</strong> (214.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-18 10:54 上传
+

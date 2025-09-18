@@ -4475,3 +4475,17 @@ G的ult竟然不是恶魔高达jr。
 
 只有游戏刚开服时的SSR可以选
 
+
+*****
+
+####  一个陆仁贾  
+##### 2674#       发表于 2025-9-18 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448516&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-18 09:41</a>
+这运营也太小气了....周年WEB活动最高只送SSR也就算了连后面出的SSR也没
+
+只有游戏刚开服时的SSR可以选 ...</blockquote>
+是只给你选没有驾驶员的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
