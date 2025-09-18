@@ -6473,3 +6473,24 @@ IGN的常规操作，火纹视频，换源了。
 
 还能再看到芺莲吗，希望她还没似，三房中最喜欢的角色。 。
 
+
+*****
+
+####  الطائر  
+##### 619#       发表于 2025-9-18 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451393&amp;ptid=2261859" target="_blank">Troywest 发表于 2025-9-18 16:44</a>
+
+到时候等is端出来一个集合了三房的地图设计，玩法机制，和engage的剧情，演出；再整上三四条路线，每条路线 ...</blockquote>
+火纹 if 的分版本发售商法不可不品尝。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（分四个版本：紫毛+眼镜妹、紫毛+女王、紫毛+阿鲁卡多、紫毛+舞娘，其他路线和隐藏路线作为DLC）
+
+
+*****
+
+####  苍蓝之枪  
+##### 620#       发表于 2025-9-18 18:12
+
+比共通线十几章更可怕的是，一共就十几章
+

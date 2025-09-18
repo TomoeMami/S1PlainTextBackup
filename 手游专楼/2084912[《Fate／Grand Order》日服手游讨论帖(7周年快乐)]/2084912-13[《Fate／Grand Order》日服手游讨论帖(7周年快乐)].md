@@ -267,3 +267,42 @@
 
 开咕哒咕哒新活动了，又是新选组，而且直接上日区趋势
 
+
+*****
+
+####  jackyhuang  
+##### 18236#       发表于 2025-9-18 17:57
+
+咕哒咕哒也end了，果然是要跑了啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 18237#       发表于 2025-9-18 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451865&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-9-18 17:57</a>
+咕哒咕哒也end了，果然是要跑了啊
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+本能寺  the end <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 18238#       发表于 2025-9-18 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451887&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-18 18:00</a>
+本能寺  the end</blockquote>
+冠位杀会不会来个冲田啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  壳壳牛  
+##### 18239#       发表于 2025-9-18 18:12
+
+近藤该落地了吧
+
