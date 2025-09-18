@@ -28,3 +28,14 @@
 11745+6675+6727+7568+8208+8898；卷均8304</blockquote>
 感觉还行，可能比当初大家预期的要好一点？
 
+
+*****
+
+####  csolfans  
+##### 1728#       发表于 2025-9-18 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450366&amp;ptid=2201887" target="_blank">evestart 发表于 2025-9-18 14:09</a>
+
+感觉还行，可能比当初大家预期的要好一点？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卖得好不好，全靠live开得如何
+
