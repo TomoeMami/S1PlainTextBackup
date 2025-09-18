@@ -1430,3 +1430,15 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 红战备不指望，新机甲是个什么玩意？</blockquote>
 参考一代，机炮机甲和机枪机甲都有了，还有个喷火器+反坦克炮的。有可能是这台。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7123#       发表于 2025-9-18 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451898&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-9-18 18:01</a>
+参考一代，机炮机甲和机枪机甲都有了，还有个喷火器+反坦克炮的。有可能是这台。 ...</blockquote>
+感觉好菜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

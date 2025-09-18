@@ -14,3 +14,11 @@
 
 来转发一下参考参考
 
+
+*****
+
+####  osore  
+##### 2412#       发表于 2025-9-18 18:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">氪金抽beta是吧，脑子抽了
+
