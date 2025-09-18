@@ -6354,3 +6354,75 @@ IGN的常规操作，火纹视频，换源了。
 
 —— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hkguty  
+##### 608#       发表于 2025-9-18 16:13
+
+<blockquote>nagitoY 发表于 2025-9-18 16:03
+我记得白银的少女这一章是红花的倒数第三章？这里皇女和地底人还没正式开战吗。
+
+还是说知道打完蕾雅，皇 ...</blockquote>
+皇女做掉粉毛就是公爵开始觉得她不对劲所以一导弹把帝都炸了警告皇女别轻举妄动啊，后面只是因为还没解决蕾雅所以双方还没有正式撕破脸而已
+
+*****
+
+####  zyupha  
+##### 609#       发表于 2025-9-18 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451129&amp;ptid=2261859" target="_blank">Troywest 发表于 2025-9-18 16:05</a>
+感觉都保守了，我们小群里，现在还有聊系谱如何如何的。这游戏过去了快30年了
+
+—— 来自 OnePlus PJZ110 ...</blockquote>
+求小群号可以吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  绿冰  
+##### 610#       发表于 2025-9-18 16:14
+
+<blockquote>nagitoY 发表于 2025-9-18 16:03
+我记得白银的少女这一章是红花的倒数第三章？这里皇女和地底人还没正式开战吗。
+
+还是说知道打完蕾雅，皇 ...</blockquote>
+没有，终章时地底人的亚兰德公还专门来围观
+
+*****
+
+####  zyupha  
+##### 611#       发表于 2025-9-18 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451106&amp;ptid=2261859" target="_blank">Tilocal 发表于 2025-9-18 16:02</a>
+他的箭是带毒的，来自FEH的情报
+
+只是正作游戏里貌似直接表现成攻击力而不是上中毒状态了 ...</blockquote>
+原来弓箭手里最高的力量是这样来的吗hhh，露娜难度人憎鬼厌的蛇毒弓箭手原来就是好兄弟（？
+
+不过说真的等暴击叠起来后刀刀暴击也不差那点毒了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  苍蓝之枪  
+##### 612#       发表于 2025-9-18 16:21
+
+这不就是分线流量密码吗，is深谙此道，虽然我觉得这个剧本根本没啥好聊的，游戏实际游玩内容与剧本的割裂导致这些东西都只是空中楼阁，分析合理性有意义吗？他妈的贝雷特进修道院当教师已经是巨大的不合理了
+
+*****
+
+####  Troywest  
+##### 613#       发表于 2025-9-18 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451197&amp;ptid=2261859" target="_blank">zyupha 发表于 2025-9-18 16:14</a>
+求小群号可以吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+946278971
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

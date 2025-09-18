@@ -2403,3 +2403,15 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 塔克卡尔森居然罕见指责某些亲以势力利用Kirk的死为自己的议题上分，好好玩啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saizeriya  
+##### 1666#       发表于 2025-9-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451065&amp;ptid=2261694" target="_blank">yayoi801 发表于 2025-9-18 15:57</a>
+塔克卡尔森居然罕见指责某些亲以势力利用Kirk的死为自己的议题上分，好好玩啊 ...</blockquote>
+塔克卡尔森自从见过杰弗里萨克斯之后就开始对鱿鱼上强度了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
