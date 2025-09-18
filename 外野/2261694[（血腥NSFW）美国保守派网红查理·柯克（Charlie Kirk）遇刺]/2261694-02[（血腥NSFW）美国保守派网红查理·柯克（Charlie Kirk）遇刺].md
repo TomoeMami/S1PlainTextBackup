@@ -1961,3 +1961,24 @@ BBC也报道了
 说个题外话：马逆等对这种靠在网上发暴论就可以转入政治体系，甚至可以当上部长、副总统、总统的体制，是不 ...</blockquote>
 突然想明白了很多事，互联网上很多人是在用西方那一套夺权
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 1622#       发表于 2025-9-18 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448081&amp;ptid=2261694" target="_blank">刘昊霖 发表于 2025-9-18 08:35</a>
+ ABC周三晚间宣布“无限期”停播其王牌深夜脱口秀节目《吉米·坎摩尔直播秀！》(Jimmy Kimmel Live!)。 停播 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下天父杀天兄了
+
+
+*****
+
+####  储安平  
+##### 1623#       发表于 2025-9-18 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68437979&amp;ptid=2261694" target="_blank">储安平 发表于 2025-9-16 12:34</a>
+
+看到建议宣布Antifa是外国恐怖组织，这招太狠了</blockquote>
+已经结束了
+
