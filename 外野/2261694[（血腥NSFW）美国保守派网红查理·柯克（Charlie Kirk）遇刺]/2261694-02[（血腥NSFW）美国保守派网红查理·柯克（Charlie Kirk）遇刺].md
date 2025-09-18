@@ -2533,3 +2533,24 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 <img src="https://p.sda1.dev/27/321bc328234668de17ba4d4a884c1ac5/image.jpg" referrerpolicy="no-referrer">
 仔细想想也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星零影  
+##### 1678#       发表于 2025-9-19 00:32
+
+看b站上一个up说，作案工具是一把用3006子弹的毛瑟98？
+那两百米距离只是小意思
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aeolus039  
+##### 1679#       发表于 2025-9-19 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453507&amp;ptid=2261694" target="_blank">星零影 发表于 2025-9-19 00:32</a>
+看b站上一个up说，作案工具是一把用3006子弹的毛瑟98？
+那两百米距离只是小意思</blockquote>
+但是这有个问题，有个红脖子拿了把差不多长的枪发现拆了装不进背包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
