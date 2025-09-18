@@ -1404,3 +1404,11 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我个人最烦的一个是主客机难度差异，还有个就是pc端游戏体积真有点离谱了
 
+
+*****
+
+####  xinfengj  
+##### 7120#       发表于 2025-9-18 17:23
+
+经典二选一，新机甲或者新红战备<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
