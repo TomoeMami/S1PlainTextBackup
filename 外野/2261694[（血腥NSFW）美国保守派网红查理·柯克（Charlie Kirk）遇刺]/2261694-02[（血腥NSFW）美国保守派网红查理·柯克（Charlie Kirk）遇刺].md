@@ -2395,3 +2395,11 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 啊？这都是什么妖魔鬼怪
 <img src="https://static.stage1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yayoi801  
+##### 1665#       发表于 2025-9-18 15:57
+
+塔克卡尔森居然罕见指责某些亲以势力利用Kirk的死为自己的议题上分，好好玩啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

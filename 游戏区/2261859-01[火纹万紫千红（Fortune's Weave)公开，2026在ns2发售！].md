@@ -6282,3 +6282,75 @@ IGN的常规操作，火纹视频，换源了。
 后知后觉红秋裤这风味不就是某25年1月少女乐队番吗</blockquote>
 ！！！豁然开朗
 
+
+*****
+
+####  hkguty  
+##### 602#       发表于 2025-9-18 15:57
+
+<blockquote>zzzplht 发表于 2025-9-18 14:51
+开始了开始了。要我说IS就得把这一作时间放在三房之后不远，剧情里再露一点前作人物的碎片信息。这样社区还 ...</blockquote>
+确实，那感觉可以再聊十年没开玩笑
+
+*****
+
+####  绿冰  
+##### 603#       发表于 2025-9-18 15:59
+
+<blockquote>nagitoY 发表于 2025-9-18 15:42
+有点忘了。王国的巨乳伪圣女在红花线里有戏份吗。</blockquote>
+皇女专门佯装进攻王都，带自己部队瞒着地底人打下白银的少女把她杀了
+
+然后地底人跟皇女抱怨她可能投靠的，然后用导弹把白银少女轰了
+
+
+*****
+
+####  nagitoY  
+##### 604#       发表于 2025-9-18 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451022&amp;ptid=2261859" target="_blank">406 发表于 2025-9-18 15:50</a>
+
+红花线的伪圣女被皇女的奇袭把戏蒙骗，以给王国军带来防卫大机器人的好盟友身份，屈辱地死了。其他线山猪 ...</blockquote>
+哦我记起来了。
+
+红花线的这场战役至关重要。因为皇女的专属武器需要地底人水晶才能恢复耐久。普通魔兽掉落的黑暗水晶只能恢复英雄遗产的耐久。而皇女的狂风六连太过好用，但是整条红花线好像就只有两处可以拿到地底人水晶，其中一场就是这次和王国伪圣女作战，而且打完这场战役，红花线好像就剩下两章了。
+
+*****
+
+####  Tilocal  
+##### 605#       发表于 2025-9-18 16:02
+
+<blockquote>zyupha 发表于 2025-9-18 15:15
+满肚子坏水的同盟阴谋家库洛德设定可能是正篇不敢用才给塞到无双里了呢，
+
+什么阴谋用毒都只是嘴上说说， ...</blockquote>
+他的箭是带毒的，来自FEH的情报
+
+只是正作游戏里貌似直接表现成攻击力而不是上中毒状态了
+
+*****
+
+####  nagitoY  
+##### 606#       发表于 2025-9-18 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451083&amp;ptid=2261859" target="_blank">绿冰 发表于 2025-9-18 15:59</a>
+
+皇女专门佯装进攻王都，带自己部队瞒着地底人打下白银的少女把她杀了
+
+然后地底人跟皇女抱怨她可能投靠的 ...</blockquote>
+我记得白银的少女这一章是红花的倒数第三章？这里皇女和地底人还没正式开战吗。
+
+还是说知道打完蕾雅，皇女和地底人才正式决裂？
+
+*****
+
+####  Troywest  
+##### 607#       发表于 2025-9-18 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451066&amp;ptid=2261859" target="_blank">hkguty 发表于 2025-9-18 15:57</a>
+确实，那感觉可以再聊十年没开玩笑</blockquote>
+感觉都保守了，我们小群里，现在还有聊系谱如何如何的。这游戏过去了快30年了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
