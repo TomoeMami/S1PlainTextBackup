@@ -7470,12 +7470,12 @@
     "update": false
   },
   "2052383": {
-    "totalreply": 499,
+    "totalreply": 500,
     "title": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
-    "lastedit": 1757354648,
+    "lastedit": 1758222252,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2110102": {
@@ -17334,10 +17334,10 @@
     "update": false
   },
   "2262344": {
-    "totalreply": 97,
+    "totalreply": 99,
     "title": "[美国单身汉7.5w年薪都过不下去？]",
     "newtitle": "[美国单身汉7.5w年薪都过不下去？]",
-    "lastedit": 1758221528,
+    "lastedit": 1758222250,
     "category": "外野",
     "active": true,
     "update": false
@@ -17401,6 +17401,15 @@
     "title": "[KONAMI新作，幻想水浒传1+2HD REMASTER]",
     "newtitle": "[KONAMI新作，幻想水浒传1+2HD REMASTER]",
     "lastedit": 1758220220,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252287": {
+    "totalreply": 94,
+    "title": "[NS1版游戏升级NS2相关信息（2025-09-19更新）]",
+    "newtitle": "[NS1版游戏升级NS2相关信息（2025-09-19更新）]",
+    "lastedit": 1758222255,
     "category": "游戏区",
     "active": true,
     "update": false
