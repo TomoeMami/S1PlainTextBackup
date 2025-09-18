@@ -56,3 +56,17 @@ GODA漫画、COLAMANGA、漫蛙。
 看了下确实是我点了分割双页的问题。
 印象里以前用tachiyomi的时候可以对单个漫画设置是否分割双页，换成mihon好像反而不行了。
 
+
+*****
+
+####  ipcjs  
+##### 95#       发表于 2025-9-18 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67983181&amp;ptid=2254551" target="_blank">charlespfan 发表于 2025-6-23 01:13</a>
+magazine pocket的插件还没修吗……最近都用ai写了个给加密图片解密的离线html了……
+
+—— 来自 S1Fun ...</blockquote>
+让AI修一下插件（
+
+— from Google Pixel 6 Pro, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -1400,3 +1400,11 @@ https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9</blockquote>
 
 —— 来自 samsung SM-F9660, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zhhuan  
+##### 135#       发表于 2025-9-18 19:42
+
+还是等正式卖的测评吧，现在这些偷跑的微软都没做适配，看下rog xbox ally的系统到底有多大提升
+
