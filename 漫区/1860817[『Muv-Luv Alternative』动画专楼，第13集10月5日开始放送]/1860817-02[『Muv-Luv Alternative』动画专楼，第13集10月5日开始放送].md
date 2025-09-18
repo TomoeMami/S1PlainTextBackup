@@ -41,3 +41,13 @@
 来转发一下参考参考</blockquote>
 beta眼里的人类不是生物，是会动的石头，甚至beta自己都不认为自己是生物
 
+
+*****
+
+####  startea15  
+##### 2415#       发表于 2025-9-18 21:58
+
+还在beta，トロロ都说了新设定不要惦记了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S918U1, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
