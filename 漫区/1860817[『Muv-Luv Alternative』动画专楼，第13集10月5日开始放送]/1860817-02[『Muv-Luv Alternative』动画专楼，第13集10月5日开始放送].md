@@ -72,3 +72,13 @@ beta眼里的人类不是生物，是会动的石头，甚至beta自己都不认
 设定好像还有点像来自深渊？中 ...</blockquote>
 ？纵坑？果然是HIVE底下啊……………………
 
+
+*****
+
+####  Sacross  
+##### 2418#       发表于 2025-9-19 04:50
+
+不如说要真没有beta没有战术机，干嘛还叫抹布<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
