@@ -2567,3 +2567,43 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星零影  
+##### 1681#       发表于 2025-9-19 00:32
+
+看b站上一个up说，作案工具是一把用3006子弹的毛瑟98？
+那两百米距离只是小意思
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aeolus039  
+##### 1682#       发表于 2025-9-19 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453507&amp;ptid=2261694" target="_blank">星零影 发表于 2025-9-19 00:32</a>
+看b站上一个up说，作案工具是一把用3006子弹的毛瑟98？
+那两百米距离只是小意思</blockquote>
+但是这有个问题，有个红脖子拿了把差不多长的枪发现拆了装不进背包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星零影  
+##### 1683#       发表于 2025-9-19 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453515&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-19 00:33</a>
+但是这有个问题，有个红脖子拿了把差不多长的枪发现拆了装不进背包</blockquote>
+有道理，up说的是毛瑟98而不是98k，如果他指的是标准版这把枪可不短
+那就有意思了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刘昊霖  
+##### 1684#         楼主| 发表于 2025-9-19 05:47
+
+美国参议院将查理柯克的生日10月14日，设为“查理·柯克国家纪念日”
+
