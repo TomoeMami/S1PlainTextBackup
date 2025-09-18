@@ -2093,3 +2093,13 @@ ykw亲自发了</blockquote>
 可安提法也不是一个固定的人员组织吧，那是不是只能在大街上随机拦人进行思想检查然后见机进行**灭除行动 ...</blockquote>
 目前最快捷证明自己不是Antifa的手段只能是见到思想警察直接用西嗨打招呼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 1635#       发表于 2025-9-18 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448822&amp;ptid=2261694" target="_blank">Cthululives 发表于 2025-9-18 10:24</a>
+本来就是，现在网上各类一个傻逼意见领袖发明一种新话术然后振臂高呼，一群傻逼立刻影从的操作，根子不就 ...</blockquote>
+早从“公知”这个词出来时，就是要创造官方和民间之间的“第三权”，本身就是充满赤裸裸对权力和话语权的欲望的。
+
