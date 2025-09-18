@@ -2480,3 +2480,38 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 再来几个差不多可以组成美末四大案了吧？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  loli炮  
+##### 1673#       发表于 2025-9-18 16:57
+
+<blockquote>Geronimo 发表于 2025-9-18 16:52
+再来几个差不多可以组成美末四大案了吧？</blockquote>
+刺柯案 还真tm有点神似刺马案了
+
+*****
+
+####  coldhot3  
+##### 1674#       发表于 2025-9-18 16:58
+
+<blockquote>nightraven 发表于 2025-9-18 14:02
+杰克森欣克尔是maga？这老哥只是鉴证巨魔吧
+
+—— 来自 OnePlus PKR110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+一个跑去给胡赛直播打气的maga？我不懂了。
+
+
+*****
+
+####  十六夜pad长  
+##### 1675#       发表于 2025-9-18 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451359&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-18 16:39</a>
+美国左派右派的假消息太多了，这个总结对吗</blockquote>
+讨论是不是同性恋那两段可以不要，直接跳到福瑞控伴侣就行了。福瑞控不考虑同性异性，都兽装了，性别不重要了。
+
+总之大体看下来没什么问题，有行动力的福瑞控梗小鬼。抛开阶级斗争和宏大叙事不谈，这是其实是一个枪支泛滥的实际案例，只是这个时候的美国没人会说是不是控枪的问题。
+
+—— 来自 OnePlus PHB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
