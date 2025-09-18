@@ -233,3 +233,37 @@
 
 补到lip喽，复刻好文明啊
 
+
+*****
+
+####  khxooo  
+##### 18232#       发表于 2025-9-17 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68446210&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-17 19:55</a>
+
+狂冠位这五花八门的支援，只能说是相当抽象了</blockquote>
+日服的助战哪里不抽象的，各种奇葩的礼装挂发都有<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 18233#       发表于 2025-9-17 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68446210&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-9-17 19:55</a>
+狂冠位这五花八门的支援，只能说是相当抽象了</blockquote>
+水c一人就能8加成，抽象点也无所谓
+
+*****
+
+####  天王寺凯伊姆  
+##### 18234#       发表于 2025-9-17 21:47
+
+补到lip喽，复刻好文明啊
+
+*****
+
+####  廖化  
+##### 18235#       发表于 2025-9-18 17:28
+
+开咕哒咕哒新活动了，又是新选组，而且直接上日区趋势
+

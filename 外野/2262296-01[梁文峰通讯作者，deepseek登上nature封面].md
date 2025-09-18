@@ -559,3 +559,15 @@ AI：人类你把对错标注一下就行了，别自作多情，剩下让老子
 AI现在都是华人玩得转，是不是因为现在华人是最讲逻辑的人？</blockquote>
 因为中华民族是最勤奋，最实事求是，最会举一反三的民族，没有之一
 
+
+*****
+
+####  cloudian  
+##### 58#       发表于 2025-9-18 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448572&amp;ptid=2262296" target="_blank">poor 发表于 2025-9-18 09:49</a>
+AI现在都是华人玩得转，是不是因为现在华人是最讲逻辑的人？</blockquote>
+只有华人和俄罗斯人还在学数学，中国人甚至还在纠结3×8=8×3到底对不对……虽然我实名反对小学教材如此僵化，但是我深刻意识到纠结本身就足够说明中国人有多重视数学……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
