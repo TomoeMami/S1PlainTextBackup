@@ -2031,3 +2031,36 @@ BBC也报道了
 突然想明白了很多事，互联网上很多人是在用西方那一套夺权</blockquote>
 本来就是，现在网上各类一个傻逼意见领袖发明一种新话术然后振臂高呼，一群傻逼立刻影从的操作，根子不就在阿美党争么，为了争取权利，双方都在抢夺优先创造声明，话语权和道德高地的机会，没有道德标准我就创造道德标准，反正不管说什么总有追随者滚雪球
 
+
+*****
+
+####  cashhellsing  
+##### 1629#       发表于 2025-9-18 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448081&amp;ptid=2261694" target="_blank">刘昊霖 发表于 2025-9-18 08:35</a>
+ABC周三晚间宣布“无限期”停播其王牌深夜脱口秀节目《吉米·坎摩尔直播秀！》(Jimmy Kimmel Live!)。
+
+停播 ...</blockquote>
+懂逼CBS开除扣熊时，就点了ABC吉米鸡毛不能留，这才多久啊，ABC就找到机会了，好了现在就剩下肥伦了，你不被开就证明你有问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+懂这四年，还真是有仇报仇，有恩报仇啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h小号  
+##### 1630#       发表于 2025-9-18 10:38
+
+<blockquote>VALKIRA 发表于 2025-9-18 09:23
+本来就是啊
+
+你以为罗圣这些人是想干嘛？</blockquote>
+本以为只是求名求利，或者是被动滚雪球
+
+*****
+
+####  pushare  
+##### 1631#       发表于 2025-9-18 10:38
+
+ykw亲自发了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/e2ed75c9907b4f46b702b13913118079/image.jpg" referrerpolicy="no-referrer">
+
