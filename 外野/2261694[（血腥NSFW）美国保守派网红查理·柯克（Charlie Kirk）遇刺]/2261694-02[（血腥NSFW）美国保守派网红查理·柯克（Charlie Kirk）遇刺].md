@@ -2358,3 +2358,11 @@ Anti-Judaism 和 Anti-Christ 宣布加入战场？
 
 antifa一开始就是个去中心化+大帐篷的运动，嗯画一个靶子来打，ykw这是要开展有美帝国主义特色的21世纪CR了啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  女权咏唱者  
+##### 1661#       发表于 2025-9-18 14:57
+
+才9个月这火药桶就快炸了，等到选举年那还了得
+

@@ -1369,3 +1369,16 @@ ROG的主机比掌机贵
 新模式可以在其他win设备上试用了
 https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9
 
+
+*****
+
+####  泰坦失足  
+##### 132#         楼主| 发表于 2025-9-18 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450532&amp;ptid=2253298" target="_blank">医生狼多 发表于 2025-9-18 14:38</a>
+
+新模式可以在其他win设备上试用了
+
+https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9</blockquote>
+看到B站和贴吧上也有人宣传了. 在发售前的卖点功能就能在其他设备上体验到. 也算GBA模拟器比GBA上市先的又一个伙伴了
+
