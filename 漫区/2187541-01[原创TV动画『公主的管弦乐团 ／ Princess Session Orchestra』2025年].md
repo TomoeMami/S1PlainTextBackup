@@ -18,3 +18,11 @@
 
 最好还是女王能坚持半年当最终boss，毕竟和女主妈一样都是给联合国下属特务机关打工的上代princess（错乱
 
+
+*****
+
+####  水莲寺流歌  
+##### 162#       发表于 2025-9-19 01:26
+
+不管是女王光速送了还是强化光速吃瘪感觉都很下不来台啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
