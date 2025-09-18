@@ -1382,3 +1382,11 @@ https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9
 https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9</blockquote>
 看到B站和贴吧上也有人宣传了. 在发售前的卖点功能就能在其他设备上体验到. 也算GBA模拟器比GBA上市先的又一个伙伴了
 
+
+*****
+
+####  Herreimu  
+##### 133#       发表于 2025-9-18 18:35
+
+省流：休眠没解决，性能没提升
+
