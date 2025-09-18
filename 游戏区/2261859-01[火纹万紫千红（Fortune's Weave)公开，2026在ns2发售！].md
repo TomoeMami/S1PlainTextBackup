@@ -6494,3 +6494,14 @@ IGN的常规操作，火纹视频，换源了。
 
 比共通线十几章更可怕的是，一共就十几章
 
+
+*****
+
+####  andychen  
+##### 621#       发表于 2025-9-18 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451570&amp;ptid=2261859" target="_blank">MrlOst 发表于 2025-9-18 17:10</a>
+
+还能再看到芺莲吗，希望她还没似，三房中最喜欢的角色</blockquote>
+问题不是她死没死，而是出生没出生<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

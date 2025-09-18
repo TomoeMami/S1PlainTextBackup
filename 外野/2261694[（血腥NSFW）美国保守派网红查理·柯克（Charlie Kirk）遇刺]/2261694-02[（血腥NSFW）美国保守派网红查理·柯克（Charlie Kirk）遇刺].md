@@ -2523,3 +2523,13 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 美国右翼无限可分
 
+
+*****
+
+####  xuanwu_lei  
+##### 1677#       发表于 2025-9-18 22:28
+
+逼乎作为美国智库的含金量还在上升<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/321bc328234668de17ba4d4a884c1ac5/image.jpg" referrerpolicy="no-referrer">
+仔细想想也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
