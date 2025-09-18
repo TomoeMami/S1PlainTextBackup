@@ -306,3 +306,44 @@
 
 近藤该落地了吧
 
+
+*****
+
+####  廖化  
+##### 18240#       发表于 2025-9-18 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451940&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-9-18 18:12</a>
+
+近藤该落地了吧</blockquote>
+近藤不会还是男的吧
+
+
+*****
+
+####  khxooo  
+##### 18241#       发表于 2025-9-18 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451926&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-9-18 18:10</a>
+
+冠位杀会不会来个冲田啊
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+看介绍，没说和冠位杀有关，估计直接就是爷爷当守门员了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18242#       发表于 2025-9-18 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68452096&amp;ptid=2084912" target="_blank">廖化 发表于 2025-9-18 18:47</a>
+
+近藤不会还是男的吧</blockquote>
+年初的剪影倒是还剩两个男的
+
+*****
+
+####  poor  
+##### 18243#       发表于 2025-9-18 20:51
+
+你游的近藤鸭太郎那期被狂黑，或者说超还原历史吧，真的会出吗？
+
