@@ -412,3 +412,33 @@ ai训练的花费说实话在推理面前基本可以忽略不计，无非是sca
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  星零影  
+##### 44#       发表于 2025-9-18 15:40
+
+这两天还看到有人说ds是蒸馏的，有没有腿粗的说说到底咋回事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈利谢顿  
+##### 45#       发表于 2025-9-18 15:43
+
+//@汴梁的响马:涂津豪，他的AI模型在已经寿终正寝的阿里巴巴全球数学竞赛上获得了AI队伍里的最高分。//@用户8016993312:作者之一Tu Jinhao作者单位是Jianpin High School[赞][赞][赞][赞]
+
+艹，还有个小天才？
+
+
+*****
+
+####  EP2  
+##### 46#       发表于 2025-9-18 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449277&amp;ptid=2262296" target="_blank">lilisipis 发表于 2025-9-18 11:28</a>
+
+为啥不协调大企业的那堆H100给他跑模型，几十万美元都这样了，给几千万资源不得起飞 ...</blockquote>
+他自己就是大企业，堆了一堆计算卡来着
+
