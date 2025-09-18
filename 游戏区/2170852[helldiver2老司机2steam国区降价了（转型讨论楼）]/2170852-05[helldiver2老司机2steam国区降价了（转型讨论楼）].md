@@ -1455,3 +1455,22 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 —— 来自 鹅球 v3.3.96</blockquote>
 如果能免疫火伤的话打虫子应该很好玩
 
+
+*****
+
+####  xinfengj  
+##### 7125#       发表于 2025-9-19 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451670&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-9-18 17:23</a>
+经典二选一，新机甲或者新红战备</blockquote>
+<img src="https://p.sda1.dev/27/cab30c1c774263c1e6004c70b30809d5/CMP_20250919013534921.jpg" referrerpolicy="no-referrer">
+更正，官方discord澄清不会有新战备，只会有buff<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 7126#       发表于 2025-9-19 01:38
+
+<img src="https://p.sda1.dev/27/6c9fe817ce7bd921683d9e8c8d61e0ea/20250919_013403.jpg" referrerpolicy="no-referrer">
+另外因为↑→↓↓↓那事没找索尼没找箭头，把G胖拉去三堂会审了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
