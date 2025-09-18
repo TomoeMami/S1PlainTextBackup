@@ -517,3 +517,14 @@ AI：人类你把对错标注一下就行了，别自作多情，剩下让老子
 —— 来自 S1Fun ...</blockquote>
 他比nature懂，应该用水洗煤
 
+
+*****
+
+####  smiths146  
+##### 54#       发表于 2025-9-18 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451188&amp;ptid=2262296" target="_blank">Ronso 发表于 2025-9-18 16:13</a>
+
+组里今年毕业的博士除了我没有年包低于120的，这年头还得是大模型，之前信誓旦旦跟我说一定去搞学术的朋友 ...</blockquote>
+去学术才是死路一条，大学有鬼的算力，给你搞AI
+

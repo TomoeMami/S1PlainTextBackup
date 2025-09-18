@@ -2438,3 +2438,30 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 美国文字狱已经激烈到这种地步。
 
+
+*****
+
+####  lilisipis  
+##### 1669#       发表于 2025-9-18 16:39
+
+美国左派右派的假消息太多了，这个总结对吗
+
+<img src="https://img.stage1st.com/forum/202509/18/163916c0bwh0b7bnf5hbwv.jpg" referrerpolicy="no-referrer">
+
+<strong>1000093331.jpg</strong> (496.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-18 16:39 上传
+
+*****
+
+####  红炉灰  
+##### 1670#       发表于 2025-9-18 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449718&amp;ptid=2261694" target="_blank">cashhellsing 发表于 2025-9-18 12:19</a>
+美国传来大好消息：收视率惨淡的《吉米·坎摩尔鸡毛秀》被砍掉了。祝贺 ABC 终于有勇气做了该做的事。这 ...</blockquote>
+美国，请等等你的人民<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
