@@ -59,3 +59,16 @@ beta眼里的人类不是生物，是会动的石头，甚至beta自己都不认
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">beta是抹布的底层逻辑
 
+
+*****
+
+####  hacisiki  
+##### 2417#       发表于 2025-9-19 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68389473&amp;ptid=1860817" target="_blank">闭挂锁人 发表于 2025-9-8 14:02</a>
+
+道理我都懂，但第二章我就打不过去了，后排的一只怪蓄力一口咬所有前排1w+血
+
+设定好像还有点像来自深渊？中 ...</blockquote>
+？纵坑？果然是HIVE底下啊……………………
+
