@@ -1474,3 +1474,12 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 <img src="https://p.sda1.dev/27/6c9fe817ce7bd921683d9e8c8d61e0ea/20250919_013403.jpg" referrerpolicy="no-referrer">
 另外因为↑→↓↓↓那事没找索尼没找箭头，把G胖拉去三堂会审了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7127#       发表于 2025-9-19 01:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在最后通牒有很大概率往脚底发射炸死自己，好烦
+感觉又到了卸载游戏半年后再回来的时候了
+
