@@ -4465,3 +4465,13 @@ G的ult竟然不是恶魔高达jr。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不知道这个游戏会是哪个机体池子最早实现无法登顶
 
+
+*****
+
+####  森兰丸  
+##### 2673#       发表于 2025-9-18 09:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">这运营也太小气了....周年WEB活动最高只送SSR也就算了连后面出的SSR也没
+
+只有游戏刚开服时的SSR可以选
+
