@@ -486,3 +486,34 @@ ai训练的花费说实话在推理面前基本可以忽略不计，无非是sca
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">组里今年毕业的博士除了我没有年包低于120的，这年头还得是大模型
 
+
+*****
+
+####  a4ac7  
+##### 52#       发表于 2025-9-18 16:27
+
+<blockquote>纯RL的有效性：论文强有力地证明了，预训练模型本身已蕴含巨大的推理潜力，解锁的关键不是人类标注，而是提供难题、可靠的验证器和充足的计算资源进行RL训练。
+自我演化：高级的推理行为（如自我验证、反思）是在RL过程中自然涌现（Emerge） 的，而非被人工灌输的。
+能力蒸馏：成功地将大模型的推理能力蒸馏（Distill） 到了更小的模型中，降低了强大AI的获取成本和能耗。</blockquote>
+AI：人类你把对错标注一下就行了，别自作多情，剩下让老子来<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<blockquote>R1-Zero缺点：
+
+可读性差 &amp; 语言混合：由于基座模型是多语言的，它经常在一条推理链中混合使用英语和中文。
+泛化能力窄：其能力高度集中在推理任务上，在写作、开放域问答等通用任务上表现不佳。</blockquote>
+怪不得我前几天试3.1，有中英文混合
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  shiraikuroko  
+##### 53#       发表于 2025-9-18 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450953&amp;ptid=2262296" target="_blank">星零影 发表于 2025-9-18 15:40</a>
+
+这两天还看到有人说ds是蒸馏的，有没有腿粗的说说到底咋回事
+
+—— 来自 S1Fun ...</blockquote>
+他比nature懂，应该用水洗煤
+

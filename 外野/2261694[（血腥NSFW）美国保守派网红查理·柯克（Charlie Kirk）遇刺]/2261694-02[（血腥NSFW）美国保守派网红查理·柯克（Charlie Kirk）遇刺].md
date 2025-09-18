@@ -2415,3 +2415,26 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  yayoi801  
+##### 1667#       发表于 2025-9-18 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451189&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-18 16:13</a>
+
+塔克卡尔森自从见过杰弗里萨克斯之后就开始对鱿鱼上强度了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+塔克属于是基督教本位壬，鱿鱼图图平民就算了、图图加沙基督教徒暴击教堂的时候起便忍不下去了，做了好几期采访巴勒斯坦基督教徒的节目，比某些爱犹爱到丧失理智的christian zionist要高
+
+
+*****
+
+####  wgoenitz  
+##### 1668#       发表于 2025-9-18 16:33
+
+鸡毛秀被禁了，这也太秀了。
+
+美国文字狱已经激烈到这种地步。
+
