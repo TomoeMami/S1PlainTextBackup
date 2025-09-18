@@ -2118,3 +2118,11 @@ ykw亲自发了</blockquote>
 
 懂王是打算用antifa做个框，把所有仇家往里面装？超级气球真理部！
 
+
+*****
+
+####  windtrack_qh  
+##### 1638#       发表于 2025-9-18 11:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就跟抓革命党一样吗，看你不爽就给你扣个革命党的帽子杀了，不要太舒服
+
