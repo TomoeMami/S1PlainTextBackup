@@ -3276,3 +3276,11 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡嘎米  
+##### 1742#       发表于 2025-9-19 21:26
+
+【查理柯克案凶手动机曝光：为变性人男友“复仇”与西方社会意识形态内战】 [https://www.bilibili.com/video/B ... 0622749dc939d2ec600](https://www.bilibili.com/video/BV1GXWgzcE92/?share_source=copy_web&amp;vd_source=fb3b0ddcb29c90622749dc939d2ec600)
+
