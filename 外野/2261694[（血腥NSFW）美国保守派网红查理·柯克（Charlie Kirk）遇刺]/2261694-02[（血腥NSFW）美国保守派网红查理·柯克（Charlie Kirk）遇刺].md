@@ -3120,3 +3120,31 @@ Vrchat怎么你了
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  变老的大二  
+##### 1730#       发表于 2025-9-19 13:18
+
+<blockquote>Alvisivla 发表于 2025-9-19 11:36
+有些人甚至意识不到VRCHAT的危害性有多大
+
+—— 来自 vivo V2425A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+貌似是maga在造谣，截图是别人随机发的。
+
+tyler的只能通过掉落卡牌和游戏评测来确认历史。
+
+
+*****
+
+####  就咋的  
+##### 1731#       发表于 2025-9-19 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455810&amp;ptid=2261694" target="_blank">stmule 发表于 2025-9-19 13:15</a>
+
+太tm强了，我steam小时数最高是kerbal，也就不到700小时
+
+—— 来自 samsung SM-S9110, Android 14, 鹅球 ...</blockquote>
+太空宰人计划
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
