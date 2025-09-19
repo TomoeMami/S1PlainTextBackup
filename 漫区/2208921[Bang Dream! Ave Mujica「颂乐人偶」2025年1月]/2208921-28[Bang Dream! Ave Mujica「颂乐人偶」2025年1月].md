@@ -5088,3 +5088,22 @@ Ave Mujica manuscriptus 12–②
 
        [https://t.co/E4cGVJwPMg](https://t.co/E4cGVJwPMg)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41326#       发表于 2025-9-20 00:52
+
+       <strong>【BanG Dream！】活动剧情【中字】わかれ道をゆく人たちへ</strong> <blockquote><img src="https://img.stage1st.com/forum/202509/20/000449t4l93dnjs9nnqwsy.jpg" referrerpolicy="no-referrer">
+
+机翻：hurryshan
+
+校对：无路矢
+
+润色：凩
+
+时轴合成：天若逍遥、kkkkk
+
+感谢log佬的技术支持和HurryPeng大佬提供的自动打轴脚本</blockquote>
+      [https://www.bilibili.com/video/BV1gcWVzYEHq/](https://www.bilibili.com/video/BV1gcWVzYEHq/)
+
