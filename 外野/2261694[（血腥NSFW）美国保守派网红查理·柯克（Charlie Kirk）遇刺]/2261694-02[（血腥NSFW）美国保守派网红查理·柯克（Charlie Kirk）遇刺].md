@@ -2668,3 +2668,19 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 并非西方
 
+
+*****
+
+####  全都笑了  
+##### 1690#       发表于 2025-9-19 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453909&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-19 07:37</a></blockquote>
+快进到武装maga队查理柯克师
+
+*****
+
+####  astrayveller  
+##### 1691#       发表于 2025-9-19 10:06
+
+组党卫军是吧
+
