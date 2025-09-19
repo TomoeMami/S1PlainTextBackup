@@ -2708,3 +2708,27 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 <img src="https://img.stage1st.com/forum/202509/19/104750prsrcpllvqvss1tl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全都笑了  
+##### 1693#       发表于 2025-9-19 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68454846&amp;ptid=2261694" target="_blank">hosinomiyako 发表于 2025-9-19 10:48</a>
+
+真成电子**了</blockquote>
+瑞典人日本人自己都不玩的游戏，卖到美国毒害美国人！
+
+
+*****
+
+####  03e7  
+##### 1694#       发表于 2025-9-19 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68454442&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-19 09:41</a>
+
+查理柯克上西天了，是不是就变成了西区柯克？
+
+——@不加班的梆梆 ​​​ ...</blockquote>
+这几天我看这帖子，脑子跟眼睛都在为了是希区柯克还是查理柯克在打架
+
