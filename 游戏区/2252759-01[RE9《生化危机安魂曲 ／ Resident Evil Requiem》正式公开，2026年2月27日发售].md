@@ -71,3 +71,13 @@ d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
 
 <img src="https://img.stage1st.com/forum/202509/19/171617ed1rv71bz2n3f4df.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cangyuyao  
+##### 338#       发表于 2025-9-20 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455653&amp;ptid=2252759" target="_blank">我不是夏承凛 发表于 2025-9-19 12:40</a>
+可能是……意外泄露出来了？</blockquote>
+……草这怪设太搞笑了，假如卡普空30周年做出个1925版歌剧魅影cosplay那可以直接埋了
+
