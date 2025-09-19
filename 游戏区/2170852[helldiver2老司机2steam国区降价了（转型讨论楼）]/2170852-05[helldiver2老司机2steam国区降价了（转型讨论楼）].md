@@ -1533,3 +1533,15 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 
 这勾史刷怪系统盯着一个人刷也不知道什么时候能修，估计箭头压根不知道有这问题，虽然已经习以为常了但每次碰到还是能让人红温，四面八方密不透风的不间断刷新巡逻队，队友清完大半张图了我连拉三波烟才勉强拿下一个点<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7133#       发表于 2025-9-19 19:11
+
+ 本帖最后由 xinfengj 于 2025-9-19 19:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455598&amp;ptid=2170852" target="_blank">qwased 发表于 2025-9-19 12:32</a>
+sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测，早该挨骂了</blockquote><img src="https://p.sda1.dev/27/8cb88ce2e22b34ea39ec96c4eb01be20/CMP_20250919191249918.jpg" referrerpolicy="no-referrer">
+
+胯下漏出来的传动轴降到3甲就挺好了，激光大炮中距离处理能省很大劲
+
