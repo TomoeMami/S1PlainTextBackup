@@ -3002,3 +3002,46 @@ P社罪大恶极，应马上跨国拘捕<img src="https://static.stage1st.com/im
 
 绝地潜兵、钢铁雄心，瑞典人你好自为之吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xuanwu_lei  
+##### 1720#       发表于 2025-9-19 12:58
+
+ 本帖最后由 xuanwu_lei 于 2025-9-19 12:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455693&amp;ptid=2261694" target="_blank">Pfizer 发表于 2025-9-19 12:48</a>
+前现代老登，现代中登，已经完全没有能力也没有意愿去看懂后现代小登搞的是什么抽象活了
+
+就像S1的人基本上 ...</blockquote>
+看不懂朴吧解构定型文的能老登到哪里去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+「游戏动画论坛stage1st」的老用户都知道「定型文」这玩意儿是日本先行服搞过的，反倒是童厕小登一边听哈基米音乐一边争论「 听《密码的周一》是吃屎还是只有听无意义哈基米音骂才算吃屎」<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小小雪空  
+##### 1721#       发表于 2025-9-19 12:58
+
+<blockquote>xuanwu_lei 发表于 2025-9-19 11:45
+Vrchat怎么你了
+
+不是一直保持了绊爱+四天王时代的皮套人圈子的萌萌属性的地方吗</blockquote>
+想了想，管人再萌萌也的確是最純正的後現代文化，比大部分後現代都純
+
+*****
+
+####  outerish  
+##### 1722#       发表于 2025-9-19 13:00
+
+看枪手的steam评论有理性有建设性，不是那些无的放矢骂制作人去四的屁孩
+
+*****
+
+####  古凌锋  
+##### 1723#       发表于 2025-9-19 13:02
+
+<blockquote>outerish 发表于 2025-9-19 13:00
+看枪手的steam评论有理性有建设性，不是那些无的放矢骂制作人去四的屁孩</blockquote>
+他steam评论说啥了
+
