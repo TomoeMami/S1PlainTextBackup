@@ -3165,3 +3165,13 @@ tyler的只能通过掉落卡牌和游戏评测来确认历史。
 
 本体好像是当厨师的猛男 [https://www.bilibili.com/video/BV192cceWESc/](https://www.bilibili.com/video/BV192cceWESc/)
 
+
+*****
+
+####  johnkamsar  
+##### 1733#       发表于 2025-9-19 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68444375&amp;ptid=2261694" target="_blank">Cthululives 发表于 2025-9-17 14:40</a>
+最近因为美国抽象事儿太多去看了几个泥潭推荐up的分析和案例分享，深感美国人似乎普遍没有实事求是的习惯 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有句说句，其实大部分人都是没有这种精神，哪怕一丁点正常的质疑精神都没，因为实事求是一方面需要大量精力去调研，另一方面也可能就此得罪人，也因此很多人宁愿接受被歪曲被篡改的内容也不愿意去查查是不是真的。
+
