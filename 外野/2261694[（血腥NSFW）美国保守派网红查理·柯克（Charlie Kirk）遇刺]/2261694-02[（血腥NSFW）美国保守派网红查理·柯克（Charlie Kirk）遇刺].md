@@ -3327,3 +3327,11 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Awanano  
+##### 1747#       发表于 2025-9-20 07:34
+
+非常生动的展示了为什么中世纪封圣的权力逐渐被梵蒂冈收掉了
+
