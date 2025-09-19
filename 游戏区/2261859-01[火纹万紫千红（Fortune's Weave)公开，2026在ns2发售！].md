@@ -6515,3 +6515,14 @@ IGN的常规操作，火纹视频，换源了。
 
 engage的各种问题我权当is多年没主导家用机平台项目练手了，毕竟都知道风花雪月的主力开发是光荣。这回风花雪月世界观的作品肯定是重头戏，希望不要搞崩了
 
+
+*****
+
+####  nagitoY  
+##### 623#       发表于 2025-9-19 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453123&amp;ptid=2261859" target="_blank">andychen 发表于 2025-9-18 22:34</a>
+
+问题不是她死没死，而是出生没出生</blockquote>
+芙莲是四圣人之一，当初塞罗斯和解放王的战争都参加了吧。
+
