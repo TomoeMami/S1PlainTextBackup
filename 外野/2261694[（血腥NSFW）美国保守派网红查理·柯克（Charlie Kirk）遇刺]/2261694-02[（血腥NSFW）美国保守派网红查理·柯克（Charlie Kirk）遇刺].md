@@ -2607,3 +2607,11 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 美国参议院将查理柯克的生日10月14日，设为“查理·柯克国家纪念日”
 
+
+*****
+
+####  JY要塞  
+##### 1685#       发表于 2025-9-19 08:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到长刀之夜
+
