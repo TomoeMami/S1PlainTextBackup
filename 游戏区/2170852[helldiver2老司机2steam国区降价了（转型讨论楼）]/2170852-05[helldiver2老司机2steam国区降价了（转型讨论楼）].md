@@ -1579,3 +1579,15 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 
 奇奇怪怪的恶性bug越来越频繁了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7137#       发表于 2025-9-20 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457907&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-9-19 19:11</a>
+胯下漏出来的传动轴降到3甲就挺好了，激光大炮中距离处理能省很大劲</blockquote>
+这玩意比泰坦脑袋和无畏眼睛都难瞄…
+整个腿部全做成弱点还差不多
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

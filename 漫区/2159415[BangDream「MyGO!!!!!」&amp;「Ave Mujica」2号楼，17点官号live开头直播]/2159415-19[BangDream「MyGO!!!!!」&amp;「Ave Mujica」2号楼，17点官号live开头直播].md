@@ -62,3 +62,30 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">新pv十分感动，清新感有当年高祖的イントロダクション的味道了
 
+
+*****
+
+####  堀内爱里衣  
+##### 27271#       发表于 2025-9-20 00:04
+
+       <strong>【BanG Dream！】活动剧情【中字】わかれ道をゆく人たちへ</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/20/000449t4l93dnjs9nnqwsy.jpg" referrerpolicy="no-referrer">
+
+<strong>9b693b734119ae69e28930797effea1e30e13c35.jpg</strong> (226.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 00:04 上传
+
+机翻：hurryshan
+
+校对：无路矢
+
+润色：凩
+
+时轴合成：天若逍遥、kkkkk
+
+感谢log佬的技术支持和HurryPeng大佬提供的自动打轴脚本</blockquote>
+       [https://www.bilibili.com/video/BV1gcWVzYEHq/](https://www.bilibili.com/video/BV1gcWVzYEHq/)
+
