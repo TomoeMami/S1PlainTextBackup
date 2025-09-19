@@ -2740,3 +2740,14 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 几天没关注就已经完全看不懂这件事的走向了……
 
+
+*****
+
+####  yanghuangu  
+##### 1696#       发表于 2025-9-19 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453825&amp;ptid=2261694" target="_blank">ak123 发表于 2025-9-19 06:27</a>
+
+还真是个屎忽毛基么，要是真的那这场刺杀就过于爆笑了.保守派中产养的互联网抽象lgbt魔怔人，为了社区 ...</blockquote>
+福瑞控最可怕还是真搞“杰哥家里有好康的”那套，骗小孩上门玩的
+
