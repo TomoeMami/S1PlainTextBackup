@@ -1560,3 +1560,14 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 ↓
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7135#       发表于 2025-9-19 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457907&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-9-19 19:11</a>
+胯下漏出来的传动轴降到3甲就挺好了，激光大炮中距离处理能省很大劲</blockquote>
+我的想法是应该给激光种加武器散热器，扔炸弹的在炸弹发射前两秒允许对抛射器灌到殉爆
+双足 蟑龙 拼好人这种毫无互动的傻逼怪太敷衍了
+
