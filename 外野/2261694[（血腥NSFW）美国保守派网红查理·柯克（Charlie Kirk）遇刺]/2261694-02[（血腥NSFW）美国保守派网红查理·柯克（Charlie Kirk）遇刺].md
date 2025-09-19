@@ -2808,3 +2808,26 @@ Vrchat怎么你了<img src="https://static.stage1st.com/image/smiley/face2017/06
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  7776169  
+##### 1702#       发表于 2025-9-19 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455326&amp;ptid=2261694" target="_blank">半江瑟瑟半江红 发表于 2025-9-19 11:45</a>
+钢丝四千小时
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+我觉得这个更可怕点
+
+然后再看看有没有玩某个大火烧mod<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  烦死了  
+##### 1703#       发表于 2025-9-19 11:50
+
+玩得最多的是钢铁雄心啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
