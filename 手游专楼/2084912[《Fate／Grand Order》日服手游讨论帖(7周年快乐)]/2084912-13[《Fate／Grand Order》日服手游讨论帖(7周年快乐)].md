@@ -382,3 +382,38 @@
 没想到每日单抽的运气连着来。。。。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/27/876855ec80b6ba978f6dafe43db2a1a8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18248#       发表于 2025-9-19 16:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">楼友太欧了
+
+*****
+
+####  千叶铁矢  
+##### 18249#       发表于 2025-9-19 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68456930&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-9-19 16:19</a>
+没想到每天单抽的运气连着来。。。。</blockquote>
+这也不是常驻啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 18250#       发表于 2025-9-19 17:26
+
+妈呀我最想要的娄希，人生真没有乐趣可言啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  岸浪白野  
+##### 18251#       发表于 2025-9-19 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457332&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2025-9-19 17:23</a>
+这也不是常驻啊</blockquote>
+说1石单抽也接着这运气而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
