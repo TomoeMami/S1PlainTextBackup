@@ -1545,3 +1545,18 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 
 胯下漏出来的传动轴降到3甲就挺好了，激光大炮中距离处理能省很大劲
 
+
+*****
+
+####  xinfengj  
+##### 7134#       发表于 2025-9-19 19:17
+
+<img src="https://p.sda1.dev/27/ab9f486e50b08aa1ad26516be2c43719/img-17582798165846b473706f295fcf956c73b010815fa17e8c581a60b611b9e229fe54c2a601444.jpg" referrerpolicy="no-referrer">
+子弹上刻500那货的steam账号被扒出来了
+↓
+但是他给绝地潜兵打的是差评
+↓
+但是打差评的原因是索尼锁区妨碍箭头赚钱了
+↓
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
