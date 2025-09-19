@@ -3284,3 +3284,16 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 【查理柯克案凶手动机曝光：为变性人男友“复仇”与西方社会意识形态内战】 [https://www.bilibili.com/video/B ... 0622749dc939d2ec600](https://www.bilibili.com/video/BV1GXWgzcE92/?share_source=copy_web&amp;vd_source=fb3b0ddcb29c90622749dc939d2ec600)
 
+
+*****
+
+####  喷气推进实验室  
+##### 1743#       发表于 2025-9-19 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68456355&amp;ptid=2261694" target="_blank">iantsai 发表于 2025-9-19 07:50</a>
+
+都什么傻逼达利特行为啊这是？你特么的傻逼都看不懂查理科克们的政治主张是什么就跪上去拜？
+
+ ...</blockquote>
+英文和中文字幕每张都不挨着也是人才
+
