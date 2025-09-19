@@ -3106,3 +3106,13 @@ owo还是太op了
 
 ズズ那张照片是他参加的剧本杀朗诵角色的cos，感觉是完全不一样的圈子但是主播居然认识
 
+
+*****
+
+####  sino__unnko3  
+##### 19588#       发表于 2025-9-20 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68459241&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-9-20 01:48</a>
+ズズ那张照片是他参加的剧本杀朗诵角色的cos，感觉是完全不一样的圈子但是主播居然认识 ...</blockquote>
+什么少男歌剧
+

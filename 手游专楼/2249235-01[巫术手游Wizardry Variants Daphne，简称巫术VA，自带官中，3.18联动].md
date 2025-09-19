@@ -36,3 +36,11 @@
 
 古城有了上次经验之后很快也杀穿了，拿完奖励安心继续摆烂
 
+
+*****
+
+####  UnknownRei  
+##### 510#       发表于 2025-9-20 01:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">怪的配置都不改一下……打了个一千多名，抗性堆满不吃混乱魅惑啥的前排三战士强度有点高啊
+
