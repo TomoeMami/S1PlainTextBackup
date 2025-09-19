@@ -6564,3 +6564,14 @@ engage的各种问题我权当is多年没主导家用机平台项目练手了，
 
 gba系到晓女这种只有几个备选角色的属于不算的
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 627#       发表于 2025-9-19 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453123&amp;ptid=2261859" target="_blank">andychen 发表于 2025-9-18 22:34</a>
+
+问题不是她死没死，而是出生没出生</blockquote>
+芙莲都没出生的话那得是还是神祖统治芙朵拉的神话年代了吧，那也太久远了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

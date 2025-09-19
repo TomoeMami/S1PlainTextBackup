@@ -3175,3 +3175,43 @@ tyler的只能通过掉落卡牌和游戏评测来确认历史。
 最近因为美国抽象事儿太多去看了几个泥潭推荐up的分析和案例分享，深感美国人似乎普遍没有实事求是的习惯 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有句说句，其实大部分人都是没有这种精神，哪怕一丁点正常的质疑精神都没，因为实事求是一方面需要大量精力去调研，另一方面也可能就此得罪人，也因此很多人宁愿接受被歪曲被篡改的内容也不愿意去查查是不是真的。
 
+
+*****
+
+####  就咋的  
+##### 1734#       发表于 2025-9-19 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68456268&amp;ptid=2261694" target="_blank">johnkamsar 发表于 2025-9-19 14:37</a>
+
+有句说句，其实大部分人都是没有这种精神，哪怕一丁点正常的质疑精神都没，因为实事求是一方面需要大量精 ...</blockquote>
+国会、总统、高院三权分立 [X]
+
+立法、行政、司法狼狈为奸 [O]
+
+T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iantsai  
+##### 1735#       发表于 2025-9-19 14:50
+
+都什么傻逼达利特行为啊这是？你特么的傻逼都看不懂查理科克们的政治主张是什么就跪上去拜？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/19/144948hw3a334zw5ee15sx.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250919143620_56798_3.jpg</strong> (331.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 14:49 上传
+
+*****
+
+####  johnkamsar  
+##### 1736#       发表于 2025-9-19 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449718&amp;ptid=2261694" target="_blank">cashhellsing 发表于 2025-9-18 12:19</a>
+美国传来大好消息：收视率惨淡的《吉米·坎摩尔鸡毛秀》被砍掉了。祝贺 ABC 终于有勇气做了该做的事。这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不一定，john可是铁血鱿鱼，身份高得很，当初daily show我记得好像就嘲笑过巴勒斯坦，只是那时候没这次高关注度
+
