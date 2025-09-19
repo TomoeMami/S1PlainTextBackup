@@ -45,3 +45,29 @@ big boss ？？
 可能是……意外泄露出来了？</blockquote>
 这老头右手好像扛着什么东西，是大剑么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  showhand2008  
+##### 337#       发表于 2025-9-19 17:18
+
+27号有50分钟的活动，估计会有战斗演示，并且开预购了，预测三光结尾炸裂出现.......
+
+d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
+(44.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 17:16 上传
+
+<img src="https://img.stage1st.com/forum/202509/19/171612j5yw9tjd5z4bpk9m.jpg" referrerpolicy="no-referrer">
+
+487ef21fbe096b63a3a901464a338744ebf8ac28.jpg
+(127.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 17:16 上传
+
+<img src="https://img.stage1st.com/forum/202509/19/171617ed1rv71bz2n3f4df.jpg" referrerpolicy="no-referrer">
+
