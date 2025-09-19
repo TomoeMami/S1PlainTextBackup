@@ -6602,3 +6602,13 @@ gba系到晓女这种只有几个备选角色的属于不算的
 
 暴论:宝可梦孵蛋也属于给配角组cp
 
+
+*****
+
+####  otakun  
+##### 631#       发表于 2025-9-19 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68456714&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2025-9-19 15:45</a>
+暴论:宝可梦孵蛋也属于给配角组cp</blockquote>
+你这百变怪差不多全员支援S合不合法啊
+
