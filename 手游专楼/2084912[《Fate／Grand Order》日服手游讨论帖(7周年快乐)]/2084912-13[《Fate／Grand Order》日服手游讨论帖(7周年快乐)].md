@@ -347,3 +347,38 @@
 
 你游的近藤鸭太郎那期被狂黑，或者说超还原历史吧，真的会出吗？
 
+
+*****
+
+####  白金口袋  
+##### 18244#       发表于 2025-9-18 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68452096&amp;ptid=2084912" target="_blank">廖化 发表于 2025-9-18 04:47</a>
+近藤不会还是男的吧</blockquote>
+上次泥游连着出男人是啥时候的事来着<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18245#       发表于 2025-9-19 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453217&amp;ptid=2084912" target="_blank">白金口袋 发表于 2025-9-18 22:58</a>
+上次泥游连着出男人是啥时候的事来着</blockquote>
+应该是君11那次，君11，查理曼、罗兰、小教授和唐吉柯德
+
+*****
+
+####  岸浪白野  
+##### 18246#       发表于 2025-9-19 16:06
+
+每天单抽new了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/2dc73d2e51de4ac694207205ed09fc40/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18247#       发表于 2025-9-19 16:19
+
+没想到每日单抽的运气连着来。。。。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/876855ec80b6ba978f6dafe43db2a1a8/image.jpg" referrerpolicy="no-referrer">
+
