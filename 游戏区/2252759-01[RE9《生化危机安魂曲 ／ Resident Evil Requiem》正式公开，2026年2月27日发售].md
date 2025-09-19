@@ -34,3 +34,14 @@ big boss ？？
 
 这张图传到外网去了，评论说假，红框和指示线看上去很山寨，放大可以看到粗糙的线，右边的骷髅rpd像是劣质的ai生成物，里昂则像是ai遵循关键词机械照搬人物特征的产物，没有原角色的神韵
 
+
+*****
+
+####  kcalb  
+##### 336#       发表于 2025-9-19 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455653&amp;ptid=2252759" target="_blank">我不是夏承凛 发表于 2025-9-19 12:40</a>
+
+可能是……意外泄露出来了？</blockquote>
+这老头右手好像扛着什么东西，是大剑么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
