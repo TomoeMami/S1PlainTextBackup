@@ -2684,3 +2684,27 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 组党卫军是吧
 
+
+*****
+
+####  hosinomiyako  
+##### 1692#       发表于 2025-9-19 10:48
+
+<img src="https://img.stage1st.com/forum/202509/19/104742mvuchupt1xc29t31.jpg" referrerpolicy="no-referrer">
+
+<strong>K{7XZPL9]C{$OEB1$@AN){U_tmb.jpg</strong> (146.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 10:47 上传
+
+真成电子**了
+
+(69.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 10:47 上传
+
+<img src="https://img.stage1st.com/forum/202509/19/104750prsrcpllvqvss1tl.jpg" referrerpolicy="no-referrer">
+
