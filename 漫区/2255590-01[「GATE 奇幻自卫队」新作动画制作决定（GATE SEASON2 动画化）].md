@@ -480,3 +480,11 @@ TVアニメ『GATE SEASON2　自衛隊　彼の海にて、斯く戦えり』制
 続報にご期待ください！
 <img src="https://p.sda1.dev/27/83f0d466ee5683d25b00f97e571fc5d6/20250919_143515.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusfive  
+##### 54#       发表于 2025-9-19 16:15
+
+这部是个人仅有的看得心理不适的作品
+
