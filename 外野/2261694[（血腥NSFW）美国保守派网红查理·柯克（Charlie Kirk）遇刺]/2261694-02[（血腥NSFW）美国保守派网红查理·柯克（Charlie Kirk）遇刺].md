@@ -2751,3 +2751,60 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 还真是个屎忽毛基么，要是真的那这场刺杀就过于爆笑了.保守派中产养的互联网抽象lgbt魔怔人，为了社区 ...</blockquote>
 福瑞控最可怕还是真搞“杰哥家里有好康的”那套，骗小孩上门玩的
 
+
+*****
+
+####  Alvisivla  
+##### 1697#       发表于 2025-9-19 11:36
+
+<img src="https://p.sda1.dev/27/36fe272f444a445a0c0bab8c150ef739/CMP_20250919113612964.jpg" referrerpolicy="no-referrer">
+
+有些人甚至意识不到VRCHAT的危害性有多大<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2425A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  日日日日日野  
+##### 1698#       发表于 2025-9-19 11:43
+
+本质上，这事儿的后续走向都在助推Project 2025的进度条继续往前推
+
+*****
+
+####  仟音一心  
+##### 1699#       发表于 2025-9-19 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455303&amp;ptid=2261694" target="_blank">日日日日日野 发表于 2025-9-19 11:43</a>
+本质上，这事儿的后续走向都在助推Project 2025的进度条继续往前推</blockquote>
+project 2025是啥。
+
+*****
+
+####  xuanwu_lei  
+##### 1700#       发表于 2025-9-19 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455247&amp;ptid=2261694" target="_blank">Alvisivla 发表于 2025-9-19 11:36</a>
+有些人甚至意识不到VRCHAT的危害性有多大
+
+—— 来自 vivo V2425A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+Vrchat怎么你了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不是一直保持了绊爱+四天王时代的皮套人圈子的萌萌属性的地方吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最多也就开点虚拟银趴<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1701#       发表于 2025-9-19 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455247&amp;ptid=2261694" target="_blank">Alvisivla 发表于 2025-9-19 11:36</a>
+有些人甚至意识不到VRCHAT的危害性有多大
+
+—— 来自 vivo V2425A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+钢丝四千小时<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
