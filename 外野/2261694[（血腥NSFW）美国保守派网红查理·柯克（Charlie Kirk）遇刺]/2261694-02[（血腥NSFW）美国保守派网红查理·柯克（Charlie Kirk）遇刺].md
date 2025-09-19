@@ -2970,3 +2970,18 @@ project 2025是啥。</blockquote>
 犹他山谷大学的缩写是 UVU (Utah Valley University), 击毙死者的弹壳刻有 OwO
 <img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Pfizer  
+##### 1717#       发表于 2025-9-19 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455247&amp;ptid=2261694" target="_blank">Alvisivla 发表于 2025-9-19 11:36</a>
+
+有些人甚至意识不到VRCHAT的危害性有多大
+
+—— 来自 vivo V2425A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+玩了四千个小时的战犯游戏，
+
+P社罪大恶极，应马上跨国拘捕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
