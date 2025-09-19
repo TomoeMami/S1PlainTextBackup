@@ -1510,3 +1510,18 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 当然，要是能磁轨打脚一发更好了
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6x6z6w  
+##### 7131#       发表于 2025-9-19 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455989&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-9-19 13:46</a>
+
+大双足还好吧，次抛打腿就行了
+
+当然，要是能磁轨打脚一发更好了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+大双足模板下的难10一个小据点能站3到4个大双足，一轮次抛根本杀不完<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你队友不带筒子那就等着受罪吧
+
