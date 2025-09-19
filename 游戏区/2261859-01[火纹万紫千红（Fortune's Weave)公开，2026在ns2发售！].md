@@ -6641,3 +6641,39 @@ gba系到晓女这种只有几个备选角色的属于不算的
 
 觉醒开始的掌机时代作品风格延续下来的作品是engage，现在看来后续估计要放弃这条路线了
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 635#       发表于 2025-9-19 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457467&amp;ptid=2261859" target="_blank">lbj5454 发表于 2025-9-19 17:41</a>
+
+巨乳伪圣女长啥样？我怎么想不起来了？有图吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/19/180859j2zdndtizsdgkkkt.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>280px-科尔娜莉亚.webp</strong> (18.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 18:08 上传
+
+这大婶
+
+*****
+
+####  土星蛋  
+##### 636#       发表于 2025-9-19 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457559&amp;ptid=2261859" target="_blank">andychen 发表于 2025-9-19 17:56</a>
+
+觉醒算是续了命，但是后面也一直是低空飞行的状态。至于拉郎配这个每代都有，算不上觉醒的特色
+
+觉醒开始 ...</blockquote>
+大公司的IP就这点不好，对失败极其敏感，一有点事轻则狂掉头（现在什么是火纹自己的风格估计已经没人能理的轻的），重则直接IP雪藏。
+
+最近折腾了一下炼金工坊，又回想到以前还没被万代收回去的机战。
+
+这种只有一两个IP的中小型公司反而激情满满，主打一个失败多少次都能站起来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
