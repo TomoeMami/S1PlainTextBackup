@@ -4561,3 +4561,15 @@ G的ult竟然不是恶魔高达jr。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">修个解体怎么修几天了都没修好
 
+
+*****
+
+####  无念  
+##### 2682#       发表于 2025-9-19 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457405&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-19 17:32</a>
+修个解体怎么修几天了都没修好</blockquote>
+估计用了邪修方法达成的，结果和上个版本哪个功能冲突了要从头写
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
