@@ -2850,3 +2850,46 @@ Vrchat怎么你了<img src="https://static.stage1st.com/image/smiley/face2017/06
 project 2025是啥。</blockquote>
 一个dem阴谋论的奶龙上台的施政纲领，要把阿妹变成劳保红脖子地上神国
 
+
+*****
+
+####  Benighted  
+##### 1706#       发表于 2025-9-19 12:10
+
+<img src="https://img.stage1st.com/forum/202509/19/121000wzcha4ecxd7417zz.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043313.jpg</strong> (255.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 12:10 上传
+
+<img src="https://img.stage1st.com/forum/202509/19/121000hpz6m7797s7m78m7.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043315.jpg</strong> (266.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 12:10 上传
+
+政府官员亲自带头人肉撕毁纪念科克海报的一名年轻女子
+
+*****
+
+####  仟音一心  
+##### 1707#       发表于 2025-9-19 12:13
+
+<img src="https://p.sda1.dev/27/44a21ccece530253e3bd446148e1818d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就咋的  
+##### 1708#       发表于 2025-9-19 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455492&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-19 12:13</a></blockquote>
+- 喷了，谁问你了，你谁啊
+
+- I'm Neta Nyaa Who!
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
