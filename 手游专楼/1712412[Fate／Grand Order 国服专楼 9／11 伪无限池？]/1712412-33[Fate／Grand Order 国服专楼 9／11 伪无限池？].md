@@ -705,3 +705,15 @@ db雨神队还三人全锁，太恶心了
 
 刷到这个视频笑死了，真是太‘尊重’青子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝仓和美  
+##### 47461#       发表于 2025-9-20 07:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68447036&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-9-17 22:31</a>
+https://www.bilibili.com/video/av115078061885361/</blockquote>
+【【FGO】阿青，收手吧！-哔哩哔哩】 https://b23.tv/EXKnLGz
+
+她第一发技能没伤害的！
+
