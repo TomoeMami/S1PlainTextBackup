@@ -2985,3 +2985,20 @@ project 2025是啥。</blockquote>
 
 P社罪大恶极，应马上跨国拘捕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Pfizer  
+##### 1718#       发表于 2025-9-19 12:48
+
+前现代老登，现代中登，已经完全没有能力也没有意愿去看懂后现代小登搞的是什么抽象活了
+
+就像S1的人基本上也看不懂也不想看朴吧和B站童厕的小鬼们在干啥
+
+*****
+
+####  女权咏唱者  
+##### 1719#       发表于 2025-9-19 12:52
+
+绝地潜兵、钢铁雄心，瑞典人你好自为之吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
