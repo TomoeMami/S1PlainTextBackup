@@ -3231,3 +3231,12 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 真post-humanism还得看vtuber四天王的狐叔还有Neuro圈「纵大运也幸福」那位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Idea  
+##### 1738#       发表于 2025-9-19 15:29
+
+爆笑了 谁问你了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/d0c9f1d6be473a7b133ef10f2fa94a84/image.jpg" referrerpolicy="no-referrer">
+
