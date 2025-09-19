@@ -2831,3 +2831,22 @@ Vrchat怎么你了<img src="https://static.stage1st.com/image/smiley/face2017/06
 
 玩得最多的是钢铁雄心啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就咋的  
+##### 1704#       发表于 2025-9-19 12:01
+
+前几天“公布”的 Discord 聊天记录我有疑问，因为当天就被销号了。提供的是网民截图，还是从服务器找回的，还还还是 FBL 写的。
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  listenermy  
+##### 1705#       发表于 2025-9-19 12:05
+
+<blockquote>仟音一心 发表于 2025-9-19 11:44
+project 2025是啥。</blockquote>
+一个dem阴谋论的奶龙上台的施政纲领，要把阿妹变成劳保红脖子地上神国
+
