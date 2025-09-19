@@ -3240,3 +3240,39 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 爆笑了 谁问你了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/27/d0c9f1d6be473a7b133ef10f2fa94a84/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 1739#       发表于 2025-9-19 18:37
+
+<img src="https://img.stage1st.com/forum/202509/19/183710olxxvj6xlzi54l2h.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043344.jpg</strong> (244.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 18:37 上传
+
+
+*****
+
+####  black199  
+##### 1740#       发表于 2025-9-19 18:44
+
+<blockquote>Pfizer 发表于 2025-9-19 12:48
+前现代老登，现代中登，已经完全没有能力也没有意愿去看懂后现代小登搞的是什么抽象活了
+
+就像S1的人基本上 ...</blockquote>
+后现代小登不应该是kuromi吧吗
+
+*****
+
+####  nianiania  
+##### 1741#       发表于 2025-9-19 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457755&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-19 18:37</a></blockquote>
+背后还有个超人的电影海报，有点搞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

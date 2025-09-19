@@ -1525,3 +1525,11 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 大双足模板下的难10一个小据点能站3到4个大双足，一轮次抛根本杀不完<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你队友不带筒子那就等着受罪吧
 
+
+*****
+
+####  FLZB  
+##### 7132#       发表于 2025-9-19 18:39
+
+这勾史刷怪系统盯着一个人刷也不知道什么时候能修，估计箭头压根不知道有这问题，虽然已经习以为常了但每次碰到还是能让人红温，四面八方密不透风的不间断刷新巡逻队，队友清完大半张图了我连拉三波烟才勉强拿下一个点<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
