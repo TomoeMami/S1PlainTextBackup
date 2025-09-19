@@ -3297,3 +3297,15 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
  ...</blockquote>
 英文和中文字幕每张都不挨着也是人才
 
+
+*****
+
+####  tonyunreal  
+##### 1744#       发表于 2025-9-20 00:34
+
+<img src="https://p.sda1.dev/27/f44e6b2379850b338b9711b68356a91a/demkirk.jpg" referrerpolicy="no-referrer">
+
+众议院通过决议，纪念查理柯克，谴责政治暴力，称赞柯克是“勇敢的美国爱国者，坚定热忱地秉持自己的信仰，是全部政治光谱下年轻人的楷模，在校园、社交媒体和全国性论坛上总是以尊重、礼貌的方式进行辩论，永远力求发掘真相，鼓励相互理解，强化国家利益”。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
