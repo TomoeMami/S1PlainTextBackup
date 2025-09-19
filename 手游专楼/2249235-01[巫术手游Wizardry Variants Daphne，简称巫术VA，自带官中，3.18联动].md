@@ -16,3 +16,13 @@
 
 就忍者刀和武士刀还是那样
 
+
+*****
+
+####  Flechette  
+##### 508#       发表于 2025-9-19 13:48
+
+这次双手武器改动连着技能的伤害衰减公式都一起改了，单手剑的二打优势几乎全无
+
+不仅要重新农武器，还要农一些新的单件来弥补之前盾上带着的行动速度词条，又是无尽的伐木地狱<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
