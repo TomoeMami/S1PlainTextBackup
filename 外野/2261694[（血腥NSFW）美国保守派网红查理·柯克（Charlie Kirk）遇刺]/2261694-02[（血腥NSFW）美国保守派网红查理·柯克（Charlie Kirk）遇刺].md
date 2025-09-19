@@ -3045,3 +3045,78 @@ Vrchat怎么你了
 看枪手的steam评论有理性有建设性，不是那些无的放矢骂制作人去四的屁孩</blockquote>
 他steam评论说啥了
 
+
+*****
+
+####  outerish  
+##### 1724#       发表于 2025-9-19 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455752&amp;ptid=2261694" target="_blank">古凌锋 发表于 2025-9-19 13:02</a>
+
+他steam评论说啥了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/19/130512xczibgj9gicdg4bg.png" referrerpolicy="no-referrer">
+
+<strong>image_2025-09-19_130507983.png</strong> (204.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 13:05 上传
+
+*****
+
+####  月白天青  
+##### 1725#       发表于 2025-9-19 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451359&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-18 16:39</a>
+美国左派右派的假消息太多了，这个总结对吗</blockquote>
+感觉不太完整。我看到有人说他子弹的梗和社交媒体记录可能和另类右翼kol有关联，不过不懂美国那些妖魔鬼怪。不过他子弹那个gay的玩笑，不像是美国左翼会用的样子
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lyb  
+##### 1726#       发表于 2025-9-19 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451322&amp;ptid=2261694" target="_blank">wgoenitz 发表于 2025-9-18 16:33</a>
+鸡毛秀被禁了，这也太秀了。
+
+美国文字狱已经激烈到这种地步。</blockquote>
+装标本就是基操，**内脱口秀讽刺下女的试试<img src="https://static.stage1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuanwu_lei  
+##### 1727#       发表于 2025-9-19 13:08
+
+ 本帖最后由 xuanwu_lei 于 2025-9-19 13:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455734&amp;ptid=2261694" target="_blank">小小雪空 发表于 2025-9-19 12:58</a>
+想了想，管人再萌萌也的確是最純正的後現代文化，比大部分後現代都純</blockquote>
+从开始争论「绊爱是真人还是AI」开始管人就带上了post-humanism的痕迹了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好不容易去魅一个春日望，又钻出来个Neuro sama<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+管人最萌萌的状态才是连Jreg都不敢想的魔怔意识形态建构，现在这帮子圣杯都不想用的性压抑观众其实是最日子的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就咋的  
+##### 1728#       发表于 2025-9-19 13:12
+
+编辑的内容大致就是说的游戏本身，BUG、反作弊、读取时间、命中判定？还有第一句这是个和朋友一起玩的有趣游戏，下一句 "If you play alone you will die alone", 如果你独自玩耍，你就会孤独死去。
+
+*****
+
+####  stmule  
+##### 1729#       发表于 2025-9-19 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455247&amp;ptid=2261694" target="_blank">Alvisivla 发表于 2025-9-19 11:36</a>
+有些人甚至意识不到VRCHAT的危害性有多大
+
+—— 来自 vivo V2425A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+太tm强了，我steam小时数最高是kerbal，也就不到700小时<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
