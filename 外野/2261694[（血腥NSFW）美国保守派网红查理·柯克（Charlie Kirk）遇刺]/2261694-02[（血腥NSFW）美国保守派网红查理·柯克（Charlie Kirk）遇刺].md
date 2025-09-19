@@ -2646,3 +2646,25 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 不知道那个牛头人出来了没</blockquote>
 牛头人不是说死了么
 
+
+*****
+
+####  仟音一心  
+##### 1688#       发表于 2025-9-19 09:41
+
+查理柯克上西天了，是不是就变成了西区柯克？
+
+——@不加班的梆梆 ​​​
+
+*****
+
+####  zerocount  
+##### 1689#       发表于 2025-9-19 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68448128&amp;ptid=2261694" target="_blank">h小号 发表于 2025-9-18 08:45</a>
+
+突然想明白了很多事，互联网上很多人是在用西方那一套夺权</blockquote>
+【2000个乐子人发展出了一套医院管理模式 （双直播游戏复盘）】 [https://www.bilibili.com/video/BV1o3pkzsESM](https://www.bilibili.com/video/BV1o3pkzsESM)
+
+并非西方
+
