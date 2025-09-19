@@ -26,3 +26,11 @@ big boss ？？
 
 这不会是里昂瞎了一只眼吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈罗  
+##### 335#       发表于 2025-9-19 14:15
+
+这张图传到外网去了，评论说假，红框和指示线看上去很山寨，放大可以看到粗糙的线，右边的骷髅rpd像是劣质的ai生成物，里昂则像是ai遵循关键词机械照搬人物特征的产物，没有原角色的神韵
+

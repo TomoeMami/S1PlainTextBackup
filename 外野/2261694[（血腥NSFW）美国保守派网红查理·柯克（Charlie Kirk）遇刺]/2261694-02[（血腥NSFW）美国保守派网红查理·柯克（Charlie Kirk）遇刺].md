@@ -3148,3 +3148,20 @@ tyler的只能通过掉落卡牌和游戏评测来确认历史。
 太空宰人计划
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  循此苦旅  
+##### 1732#       发表于 2025-9-19 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455780&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-19 13:08</a>
+
+从开始争论「绊爱是真人还是AI」开始管人就带上了post-humanism的痕迹了
+
+好不容易去魅一个春日望，又钻 ...</blockquote>
+这里有个实例 [https://x.com/nayabus](https://x.com/nayabus)
+
+下面是去年法属新喀里多尼亚骚乱时发的现场照片，上面是萌萌贴贴，就很割裂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+本体好像是当厨师的猛男 [https://www.bilibili.com/video/BV192cceWESc/](https://www.bilibili.com/video/BV192cceWESc/)
+
