@@ -6677,3 +6677,11 @@ gba系到晓女这种只有几个备选角色的属于不算的
 
 这种只有一两个IP的中小型公司反而激情满满，主打一个失败多少次都能站起来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 637#       发表于 2025-9-19 18:29
+
+机战 炼金 不是好例子啊。
+
