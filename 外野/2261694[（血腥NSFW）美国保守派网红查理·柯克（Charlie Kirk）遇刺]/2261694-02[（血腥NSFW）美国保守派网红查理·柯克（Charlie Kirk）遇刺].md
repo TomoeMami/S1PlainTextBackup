@@ -2631,3 +2631,18 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 —— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nylonchina1  
+##### 1687#       发表于 2025-9-19 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68454024&amp;ptid=2261694" target="_blank">乔伊 发表于 2025-9-19 08:24</a>
+
+米帝早就再干了
+
+懂王一上台就说要赦免1月6号冲国会山的MAGA
+
+不知道那个牛头人出来了没</blockquote>
+牛头人不是说死了么
+
