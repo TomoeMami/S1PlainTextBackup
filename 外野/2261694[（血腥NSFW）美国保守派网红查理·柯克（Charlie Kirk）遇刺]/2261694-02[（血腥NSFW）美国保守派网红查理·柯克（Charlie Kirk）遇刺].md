@@ -3215,3 +3215,19 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 美国传来大好消息：收视率惨淡的《吉米·坎摩尔鸡毛秀》被砍掉了。祝贺 ABC 终于有勇气做了该做的事。这 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不一定，john可是铁血鱿鱼，身份高得很，当初daily show我记得好像就嘲笑过巴勒斯坦，只是那时候没这次高关注度
 
+
+*****
+
+####  xuanwu_lei  
+##### 1737#       发表于 2025-9-19 14:59
+
+ 本帖最后由 xuanwu_lei 于 2025-9-19 15:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68456167&amp;ptid=2261694" target="_blank">循此苦旅 发表于 2025-9-19 14:22</a>
+这里有个实例 https://x.com/nayabus
+
+下面是去年法属新喀里多尼亚骚乱时发的现场照片，上面是萌萌贴贴， ...</blockquote>
+这部分很正常吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/531484c1868c35dfa844f8983a7d3f7b/image.jpg" referrerpolicy="no-referrer">
+
+真post-humanism还得看vtuber四天王的狐叔还有Neuro圈「纵大运也幸福」那位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

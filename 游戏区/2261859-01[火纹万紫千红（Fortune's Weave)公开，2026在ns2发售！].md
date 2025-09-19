@@ -6575,3 +6575,14 @@ gba系到晓女这种只有几个备选角色的属于不算的
 问题不是她死没死，而是出生没出生</blockquote>
 芙莲都没出生的话那得是还是神祖统治芙朵拉的神话年代了吧，那也太久远了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杜微  
+##### 628#       发表于 2025-9-19 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68454303&amp;ptid=2261859" target="_blank">Rary 发表于 2025-9-19 09:20</a>
+
+记得救了火纹的是觉醒吧，觉醒之前系列好像快完了。从觉醒拯救这个系列来看，也说明玩家群体喜欢的就是拉 ...</blockquote>
+火不火另说，现在能自己给配角之间配CP的热门游戏感觉不多吧，也算是个特色了
+
