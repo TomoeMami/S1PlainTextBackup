@@ -1483,3 +1483,20 @@ bro，玩绝地潜兵真的可以变成神射手<img src="https://static.stage1s
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在最后通牒有很大概率往脚底发射炸死自己，好烦
 感觉又到了卸载游戏半年后再回来的时候了
 
+
+*****
+
+####  6x6z6w  
+##### 7128#       发表于 2025-9-19 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好起来了，白皮在箭头半桶水的优化外加新版本的一堆粪怪的催化下又开始炎上了，而且这次终于注意到机器人的大双足在设计上有多傻逼了
+
+*****
+
+####  qwased  
+##### 7129#       发表于 2025-9-19 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68455583&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-9-19 12:30</a>
+好起来了，白皮在箭头半桶水的优化外加新版本的一堆粪怪的催化下又开始炎上了，而且这次终于注意到机器人的 ...</blockquote>
+sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测，早该挨骂了
+

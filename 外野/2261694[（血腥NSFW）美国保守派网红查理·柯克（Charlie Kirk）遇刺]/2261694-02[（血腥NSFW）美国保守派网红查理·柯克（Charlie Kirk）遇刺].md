@@ -2925,3 +2925,48 @@ project 2025是啥。</blockquote>
 
 4300小时钢丝+2600小时vrchat就喜庆起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 1712#       发表于 2025-9-19 12:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">2600小时vrchat真没啥吗
+
+*****
+
+####  outerish  
+##### 1713#       发表于 2025-9-19 12:30
+
+纪念日有没有假期啊？有假期的话建议多枪击几个
+
+*****
+
+####  秦南心  
+##### 1714#       发表于 2025-9-19 12:31
+
+没玩过vrchat，有没有人解释下危害大是什么说法
+
+*****
+
+####  就咋的  
+##### 1715#       发表于 2025-9-19 12:32
+
+战略：HOIIV (4300h)
+
+战术：Helldivers (400h), R6 (440h), CS2 (380h)
+
+训练：VRChat (2600h)
+
+地点：犹他大学
+<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就咋的  
+##### 1716#       发表于 2025-9-19 12:36
+
+犹他山谷大学的缩写是 UVU (Utah Valley University), 击毙死者的弹壳刻有 OwO
+<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
