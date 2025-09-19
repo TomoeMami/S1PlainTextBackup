@@ -6775,3 +6775,26 @@ engage里配角不给配了，是有点可惜 ...</blockquote>
 
 三房和系列其他作品一样最多只能算拉郎
 
+
+*****
+
+####  DarkDawn  
+##### 644#       发表于 2025-9-19 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450364&amp;ptid=2261859" target="_blank">nagitoY 发表于 2025-9-18 14:08</a>
+
+山猪当上国王没疯没瞎唯有在红花线才可以做到，有点讽刺。第一次打的红花线，还以为皇女对山猪有弑母之仇 ...</blockquote>
+无双也做到了
+
+共同点：蕾雅被从教会打跑去了王国那边<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+说明在蕾雅的帮助下山猪可以完全压制住国内的意外情况<img src="https://static.stage1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 645#       发表于 2025-9-19 19:05
+
+IS感觉这几年对老任的贡献可能主要还是靠手游，engage的销量也不算很好看，这次万紫千红可不能再搞砸了，不过前期四个角色有两个毫无看点，舞娘也只能算是过得去，让我觉得IS可能要么藏了角色要么活该倒闭
+
