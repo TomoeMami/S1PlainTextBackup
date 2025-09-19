@@ -2615,3 +2615,19 @@ MAGA那边有一派在宗教上是新教-犹太教合流的，和其他人这方
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到长刀之夜
 
+
+*****
+
+####  乔伊  
+##### 1686#       发表于 2025-9-19 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453097&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-18 22:28</a>
+逼乎作为美国智库的含金量还在上升
+
+仔细想想也不是不行</blockquote>
+米帝早就再干了
+懂王一上台就说要赦免1月6号冲国会山的MAGA
+不知道那个牛头人出来了没<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
