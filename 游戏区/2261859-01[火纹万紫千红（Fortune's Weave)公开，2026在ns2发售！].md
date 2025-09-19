@@ -6925,3 +6925,15 @@ if还有个奇葩的问题是男神威如果不婚那几个特殊角色或者子
 
 看到别人截的图苏蒂丝下方确实像有一堆人头在楼梯下面，如果是这样的话似乎很大几率是苏蒂丝还有肉身、未死之前的时代，也许那时弟弟人还没有跟苏蒂丝闹翻所以信徒可以公然持枪？
 
+
+*****
+
+####  ppa11  
+##### 656#       发表于 2025-9-19 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457644&amp;ptid=2261859" target="_blank">土星蛋 发表于 2025-9-19 18:13</a>
+大公司的IP就这点不好，对失败极其敏感，一有点事轻则狂掉头（现在什么是火纹自己的风格估计已经没人能理 ...</blockquote>
+有一说一，is的员工数估计和gust差不多，is就100来号人，甚至包括ip运营之类的人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

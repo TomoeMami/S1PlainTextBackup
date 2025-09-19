@@ -122,3 +122,33 @@ E绅士上有CG包了</blockquote>
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  若菜  
+##### 2423#       发表于 2025-9-19 23:10
+
+<img src="https://img.stage1st.com/forum/202509/19/230451qeloldeirjgdjg8l.jpg" referrerpolicy="no-referrer">
+
+<strong>1000676212.jpg</strong> (231.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 23:04 上传
+
+抄作业、研究下配队110级平民无氪金配置打过综合150了，库拉拉负责加速，让主攻先手，蓝盾负责全体加防，技能都是优先打后排的，给敌人将攻将防，保证不被boss秒，yulia负责秒对面沙耶和主输出。
+
+打到高难度，队伍配置，站位都非常将就。同样的五个人，改个站位结果就天差地别。 现在又卡168了。
+
+可以看别人的通关队伍的设计不错，可以参考下别人的战术思路，有个别是低通的，开始以为是开挂了，研究下发现都是细节。
+
+/
+
+<img src="https://img.stage1st.com/forum/202509/19/230822fc3btpzddco49iii.jpg" referrerpolicy="no-referrer">
+
+<strong>1000676218.jpg</strong> (265.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-19 23:08 上传
+
