@@ -98,3 +98,14 @@ beta眼里的人类不是生物，是会动的石头，甚至beta自己都不认
 
 我猜感觉是专门用来突破beta巢穴的部队 毕竟从正门一路炸进去只有武搭配奶黄包成功过  认知障碍接除后 就是你搭乘奶黄包 配合你选择小队复刻樱花作战
 
+
+*****
+
+####  突发性哮喘病患  
+##### 2421#       发表于 2025-9-19 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68394359&amp;ptid=1860817" target="_blank">wsqxz 发表于 2025-9-9 11:59</a>
+
+E绅士上有CG包了</blockquote>
+搜MUV没搜到，求关键词
+
