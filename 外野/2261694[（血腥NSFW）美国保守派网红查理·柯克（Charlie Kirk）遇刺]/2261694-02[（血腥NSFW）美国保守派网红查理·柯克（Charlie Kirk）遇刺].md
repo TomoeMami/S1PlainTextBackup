@@ -2893,3 +2893,35 @@ project 2025是啥。</blockquote>
 - I'm Neta Nyaa Who!
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 1709#       发表于 2025-9-19 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453804&amp;ptid=2261694" target="_blank">刘昊霖 发表于 2025-9-19 05:47</a>
+美国参议院将查理柯克的生日10月14日，设为“查理路柯克国家纪念日”</blockquote>
+那个黑色的弗洛伊德也是同一天出生
+笑了，这下又blm了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出逃白鲸  
+##### 1710#       发表于 2025-9-19 12:20
+
+这就是隔岸观火的快感吗
+
+每天都有新的爆笑角度
+
+
+*****
+
+####  林无德  
+##### 1711#       发表于 2025-9-19 12:23
+
+4300小时钢丝没啥
+
+2600小时vrchat也没啥
+
+4300小时钢丝+2600小时vrchat就喜庆起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
