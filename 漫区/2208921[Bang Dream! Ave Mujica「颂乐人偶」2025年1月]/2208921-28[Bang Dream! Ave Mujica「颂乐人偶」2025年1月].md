@@ -5173,3 +5173,22 @@ Ave Mujica manuscriptus 12–②
 
        [https://x.com/Kanon_Takao/status/1969245333172453640](https://x.com/Kanon_Takao/status/1969245333172453640)
 
+
+*****
+
+####  [皆神孝介]  
+##### 41328#       发表于 2025-9-20 18:07
+
+动画BD终于到了……<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/f2fab09657f8fe4151854cc9a0434c03/image.jpg" referrerpolicy="no-referrer">
+
+以下有缘坛友可自取
+<img src="https://p.sda1.dev/27/e7061b28ec8da950b03a15744b3bd8b3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/dde8d2d8582c09744dfa1547511f3673/image.jpg" referrerpolicy="no-referrer">
+
+[公演情报] https://bang-dream.com/avemujica_talkevent2026
+
+[受付URL] https://eplus.jp/serial/avemujica_talkevent2026/
+
+シリアルナンバー 89w3k6u6 skt78739复制代码
+
