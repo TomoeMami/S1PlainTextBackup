@@ -5270,3 +5270,42 @@ Ave Mujica manuscriptus 12–②
 
        [https://x.com/okada_mei0519/status/1969378512298787111](https://x.com/okada_mei0519/status/1969378512298787111)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41330#       发表于 2025-9-20 21:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/20/215734vdgmvkhkgwnvdhmg.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-20_21-56-45.jpg</strong> (123.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 21:57 上传
+
+       [https://x.com/rockinon_com/status/1969379775824478458](https://x.com/rockinon_com/status/1969379775824478458)
+
+       [https://rockinon.com/quick/rijf2025/detail/213227](https://rockinon.com/quick/rijf2025/detail/213227)
+
+*****
+
+####  堀内爱里衣  
+##### 41331#       发表于 2025-9-20 22:03
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/20/220334nrdv33atn7zipd8v.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-20_21-59-10.jpg</strong> (235.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 22:03 上传
+
+       [https://x.com/rockinon_fes/status/1969375991945453847](https://x.com/rockinon_fes/status/1969375991945453847)
+
+       [https://www.bilibili.com/video/BV1vzpRz9EuR](https://www.bilibili.com/video/BV1vzpRz9EuR)              &lt;——哔哩哔哩视频搬运
+
