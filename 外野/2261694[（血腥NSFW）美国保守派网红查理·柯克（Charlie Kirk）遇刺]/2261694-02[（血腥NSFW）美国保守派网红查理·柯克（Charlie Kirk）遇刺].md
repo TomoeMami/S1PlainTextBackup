@@ -3354,3 +3354,13 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 基督教能赢是因为别的更烂啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwr  
+##### 1750#       发表于 2025-9-20 09:08
+
+教宗为查理‧柯克及其家人祈祷
+
+（梵蒂冈新闻网）教宗良十四世上周六接见了前来呈递国书的美国驻圣座新任大使柏奇（Brian Burch）。教宗表示，一定为在9月10日遭遇刺杀的政治活动人士查理‧柯克（Charlie Kirk）及其遗孀和子女祈祷。
+
