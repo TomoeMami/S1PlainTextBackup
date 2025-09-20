@@ -6969,3 +6969,14 @@ if还有个奇葩的问题是男神威如果不婚那几个特殊角色或者子
 我认真觉得engage销量不佳的最大原因可能还是皮相不好看，is的实机模型还不太正常的同时又直接放弃了所有游 ...</blockquote>
 engage我还挺喜欢妹妹，可能是声优精湛的演技和is痴呆的演出，对比起来有点太惹人怜惜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 660#       发表于 2025-9-20 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68459299&amp;ptid=2261859" target="_blank">小学生把持不住 发表于 2025-9-20 03:10</a>
+
+一个战棋游戏随便出都能卖到普遍JRPG销量上限水平叫不行，真是旱死涝死了</blockquote>
+engage的战斗都叫随便出的话，大部分jrpg可以算尿床尿出来的画了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
