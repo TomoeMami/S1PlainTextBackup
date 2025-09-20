@@ -3783,3 +3783,11 @@ NO，是男方出钱和AA制哪个合适，
 卢是给仰慕保守派的小登写爽文的博主</blockquote>
 他得赶紧写了，等10月8号「懂王战网魔」以后他就得套现休假享受生活去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘昊霖  
+##### 1786#         楼主| 发表于 2025-9-20 15:24
+
+【查理柯克遇刺后，网友们造梗的手又按捺不住了-哔哩哔哩】 [https://b23.tv/Q6AQQ0L](https://b23.tv/Q6AQQ0L)
+
