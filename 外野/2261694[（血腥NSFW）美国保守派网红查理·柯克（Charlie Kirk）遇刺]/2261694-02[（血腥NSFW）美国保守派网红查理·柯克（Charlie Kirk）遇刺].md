@@ -3459,3 +3459,57 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 不是...等等，Kirk在美国的辩论是怎么转进到国内女婴问题的？美国的堕胎问题我记得跟性别选择关系不大，人 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真相不重要，这个卢其实和他反对的群体一样，相关材料是说给想听的人听的
 
+
+*****
+
+####  zeroboss4  
+##### 1761#       发表于 2025-9-20 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460664&amp;ptid=2261694" target="_blank">yang1820 发表于 2025-9-20 12:52</a>
+不是...等等，Kirk在美国的辩论是怎么转进到国内女婴问题的？美国的堕胎问题我记得跟性别选择关系不大，人 ...</blockquote>
+真相不重要 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+这只是一个中国人也能听懂的比喻<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+而且他死了 不是吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  last_regret  
+##### 1762#       发表于 2025-9-20 12:57
+
+<blockquote>lilisipis 发表于 2025-9-20 12:11
+教宗不占右派难道站LGBT的左派吗</blockquote>
+上一任说不定真占左边了
+
+*****
+
+####  卡嘎米  
+##### 1763#       发表于 2025-9-20 12:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是啊和男性玩这一套宗教动员有个天生劣势，男性是理性动物，经书可千万别编出致命bug，小bug倒是无所谓
+
+
+*****
+
+####  ccccch  
+##### 1764#       发表于 2025-9-20 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460513&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-20 12:11</a>
+
+教宗不占右派难道站LGBT的左派吗</blockquote>
+方身上的左派气息是极为浓厚的。
+
+良作为他一手指定和扶持的继承人，且同时是拉美大区出来的，左派立场同样谈不上很少，只不过表现的没老方那么圣徒而已。
+
+不过按老良平时生活里的表现，此君多半是不想生事而已，随性派，洒脱派。
+
+*****
+
+####  与何人说  
+##### 1765#       发表于 2025-9-20 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460594&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 12:32</a>
+在伦敦举行的查理·科克悼念仪式上，一群来自新西兰的毛利人参加了仪式，并表演了哈卡战舞，以示对这位死于 ...</blockquote>
+这也太弱智了，堕胎问题是神学问题，中式思维代入个鸡儿
+
