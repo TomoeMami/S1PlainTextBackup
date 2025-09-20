@@ -3810,3 +3810,12 @@ NO，是男方出钱和AA制哪个合适，
 开头的 BMG 好像飞天德历险记第三幕第一关 (?) 丛林
 <img src="https://static.stage1st.com/image/smiley/device2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1789#       发表于 2025-9-20 19:47
+
+似乎解释了韩国这次怎么回事。
+<img src="https://p.sda1.dev/27/33feaf390213b973306dbb9c29f9a19e/image.jpg" referrerpolicy="no-referrer">
+
