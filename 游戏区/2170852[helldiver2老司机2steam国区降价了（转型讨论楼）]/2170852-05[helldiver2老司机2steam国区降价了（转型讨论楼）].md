@@ -1602,3 +1602,11 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 奇奇怪怪的恶性bug越来越频繁了</blockquote>
 现在在西线大城市图打超过三场的话必卡，退游戏重开才能修复，我就不掺和了，直接去南线帮UNSC老兵们打打鱿鱼<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 7139#       发表于 2025-9-20 15:49
+
+常看的两个管子up也做了长视频清算箭头，一个对账60天更新，发现当时很多已经改善的问题又被后续“平衡”改动和新敌人改回去了，直呼贱÷又回来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
