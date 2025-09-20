@@ -3763,3 +3763,13 @@ NO，是男方出钱和AA制哪个合适，
 
 不懂就问，这卢拿胚胎跟婴儿打比方，这两不是不同的概念吗，为啥能当一个议题来举例<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 1784#       发表于 2025-9-20 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460463&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 12:02</a>
+转卢诗涵</blockquote>
+美国又没有堕女婴问题。国内反对的不是堕女婴，而是“只”堕女婴，这个两个问题搞不清楚的不是蠢就是坏
+
