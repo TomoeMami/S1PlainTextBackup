@@ -3819,3 +3819,35 @@ NO，是男方出钱和AA制哪个合适，
 似乎解释了韩国这次怎么回事。
 <img src="https://p.sda1.dev/27/33feaf390213b973306dbb9c29f9a19e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1790#       发表于 2025-9-20 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68462215&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-20 19:47</a>
+
+似乎解释了韩国这次怎么回事。</blockquote>
+所以美国现在的东西除了部分科技其他基本都反就成了。
+
+
+*****
+
+####  saizeriya  
+##### 1791#       发表于 2025-9-20 20:15
+
+<img src="https://img.stage1st.com/forum/202509/20/201506ovn11vdndn7nbg10.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250920201331.png</strong> (51.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 20:15 上传
+
+*****
+
+####  saizeriya  
+##### 1792#       发表于 2025-9-20 20:15
+
+夜之城没有活着的传奇.jpg
+
