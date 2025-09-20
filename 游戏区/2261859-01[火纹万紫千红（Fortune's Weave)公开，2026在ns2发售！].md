@@ -6959,3 +6959,13 @@ if还有个奇葩的问题是男神威如果不婚那几个特殊角色或者子
 
 一个战棋游戏能卖到普遍JRPG多平台销量上限水平叫垃圾，真是旱死涝死了
 
+
+*****
+
+####  siriii  
+##### 659#       发表于 2025-9-20 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68459012&amp;ptid=2261859" target="_blank">Dreammask 发表于 2025-9-20 00:06</a>
+我认真觉得engage销量不佳的最大原因可能还是皮相不好看，is的实机模型还不太正常的同时又直接放弃了所有游 ...</blockquote>
+engage我还挺喜欢妹妹，可能是声优精湛的演技和is痴呆的演出，对比起来有点太惹人怜惜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

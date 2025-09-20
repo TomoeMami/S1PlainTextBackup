@@ -3346,3 +3346,11 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 非常生动的展示了为什么中世纪封圣的权力逐渐被梵蒂冈收掉了</blockquote>
 最近几年真实深刻的认识到，某些看似腐朽落后的规矩，是为了关住更不可名状的事物<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 1749#       发表于 2025-9-20 08:21
+
+基督教能赢是因为别的更烂啊。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
