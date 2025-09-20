@@ -3335,3 +3335,14 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 非常生动的展示了为什么中世纪封圣的权力逐渐被梵蒂冈收掉了
 
+
+*****
+
+####  全都笑了  
+##### 1748#       发表于 2025-9-20 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68459433&amp;ptid=2261694" target="_blank">Awanano 发表于 2025-9-20 07:34</a>
+
+非常生动的展示了为什么中世纪封圣的权力逐渐被梵蒂冈收掉了</blockquote>
+最近几年真实深刻的认识到，某些看似腐朽落后的规矩，是为了关住更不可名状的事物<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
