@@ -1610,3 +1610,11 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 
 常看的两个管子up也做了长视频清算箭头，一个对账60天更新，发现当时很多已经改善的问题又被后续“平衡”改动和新敌人改回去了，直呼贱÷又回来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7140#       发表于 2025-9-20 23:46
+
+进西线又被双足连续颠勺颠到死两把，退出卸载一气呵成，半年后再见<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
