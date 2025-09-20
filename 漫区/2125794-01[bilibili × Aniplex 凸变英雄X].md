@@ -1174,3 +1174,16 @@ X最初的信赖值就是卖唱青给的，初始能力在幸运buff加持下较
 
 现在这片子感觉有一种想要打造一个ip的味，本来想着24集完结故事讲完挺好，现在感觉要烂尾了……
 
+
+*****
+
+####  rushsong  
+##### 539#       发表于 2025-9-20 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68458819&amp;ptid=2125794" target="_blank">Sacross 发表于 2025-9-19 22:57</a>
+
+人设的问题倒是还好，主要还是中间幸运青开始带女王和罗莉都突出一个淡如水，导致中间阶段看着非常难受
+
+然 ...</blockquote>
+ed估计就是第二季的内容，也是一种诈骗
+
