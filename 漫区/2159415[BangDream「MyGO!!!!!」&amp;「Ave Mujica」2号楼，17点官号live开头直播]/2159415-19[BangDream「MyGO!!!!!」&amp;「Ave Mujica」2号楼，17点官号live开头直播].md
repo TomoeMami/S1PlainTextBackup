@@ -89,3 +89,72 @@
 感谢log佬的技术支持和HurryPeng大佬提供的自动打轴脚本</blockquote>
        [https://www.bilibili.com/video/BV1gcWVzYEHq/](https://www.bilibili.com/video/BV1gcWVzYEHq/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27272#       发表于 2025-9-20 17:57
+
+       <strong>【BanG Dream！】卡面剧情【中字】想いを綴るひとひら</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/20/175717h2ylowzxdv1k8y2x.jpg" referrerpolicy="no-referrer">
+
+<strong>3635712a480c36974536c2b6fad6d68cd7851f83.jpg</strong> (176.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 17:57 上传
+
+机翻：hurryshan
+
+校对：无路矢
+
+润色：sbwsd
+
+时轴合成：天若逍遥
+
+感谢HurryPeng大佬提供的自动打轴脚本</blockquote>
+       [https://www.bilibili.com/video/BV1MupXzqEGR/](https://www.bilibili.com/video/BV1MupXzqEGR/)
+
+       <strong>【BanG Dream！】卡面剧情【中字】夕方の密会</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/20/175717uhhu8shzhtt9bhpb.jpg" referrerpolicy="no-referrer">
+
+<strong>fe87fcc1ecde9818a3d4b3de71003ac3cf969769.jpg</strong> (219.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 17:57 上传
+
+机翻：hurryshan
+
+校对：无路矢
+
+润色：sbwsd
+
+时轴合成：天若逍遥
+
+感谢HurryPeng大佬提供的自动打轴脚本</blockquote>
+       [https://www.bilibili.com/video/BV1MupXzqEGb/](https://www.bilibili.com/video/BV1MupXzqEGb/)
+
+       <strong>【BanG Dream！】卡面剧情【中字】気まぐれな野良猫と</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/20/175716ihldcpv1l1hldlz1.jpg" referrerpolicy="no-referrer">
+
+<strong>2fb2cbd4563cd14496599da86419deb0e58fa31b.jpg</strong> (182.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 17:57 上传
+
+机翻：hurryshan
+
+校对：无路矢
+
+润色：sbwsd
+
+时轴合成：天若逍遥
+
+感谢HurryPeng大佬提供的自动打轴脚本</blockquote>
+       [https://www.bilibili.com/video/BV1mupXziEx1/](https://www.bilibili.com/video/BV1mupXziEx1/)
+
