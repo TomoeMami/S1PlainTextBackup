@@ -3741,3 +3741,17 @@ NO，是男方出钱和AA制哪个合适，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就咋的  
+##### 1782#       发表于 2025-9-20 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460877&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-20 13:35</a>
+
+尹锡悦铁粉
+
+说个严肃的事吧</blockquote>
+居然还有，精……精神韩六学学者
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
