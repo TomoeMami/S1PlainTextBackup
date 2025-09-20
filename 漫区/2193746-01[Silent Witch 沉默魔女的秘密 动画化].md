@@ -142,3 +142,18 @@
 
 拉娜拉着莫妮卡走那段有点爽<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 249#       发表于 2025-9-20 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460067&amp;ptid=2193746" target="_blank">aptx8285144 发表于 2025-9-20 10:48</a>
+
+拉娜拉着莫妮卡走那段有点爽，巴尼的心态转变感觉要是再铺垫一下就好了，也有点小蠢，我要是有个身边人爬到 ...</blockquote>
+看作品人設吧
+
+這類見到外表超弱者想將對方收為跟班，結果這小跟班其實是超級天才，之後就反救了對方或考試大勝對方，就因妒嫉，你是否看不起我就分割了...
+
+當然也有龍球超第6宇宙中，那對義姊妹，愷兒就算未變傳超前都已經強過變了超賽的凱莉，但一直介意被發現所以不出手或偷偷出手，去到菲利吐槽後才知情，但姊姊反而因此更開心，真心喜歡這位義妹妹比自己更強
+
