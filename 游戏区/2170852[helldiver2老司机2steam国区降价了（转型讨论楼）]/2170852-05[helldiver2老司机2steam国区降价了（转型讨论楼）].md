@@ -1618,3 +1618,13 @@ sb箭头加的新怪都不设计弱点的，就硬给你弄反坦克能力检测
 
 进西线又被双足连续颠勺颠到死两把，退出卸载一气呵成，半年后再见<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御风沐雪  
+##### 7141#       发表于 2025-9-21 00:15
+
+更新后 linux 运行防作弊结束后直接闪退了，暂时没解决思路
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
