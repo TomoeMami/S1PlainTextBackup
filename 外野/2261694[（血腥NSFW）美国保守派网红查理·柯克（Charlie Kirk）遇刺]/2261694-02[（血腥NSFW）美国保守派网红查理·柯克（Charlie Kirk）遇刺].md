@@ -3364,3 +3364,11 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 （梵蒂冈新闻网）教宗良十四世上周六接见了前来呈递国书的美国驻圣座新任大使柏奇（Brian Burch）。教宗表示，一定为在9月10日遭遇刺杀的政治活动人士查理‧柯克（Charlie Kirk）及其遗孀和子女祈祷。
 
+
+*****
+
+####  qq460262849  
+##### 1751#       发表于 2025-9-20 09:24
+
+教宗这算不算站队了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
