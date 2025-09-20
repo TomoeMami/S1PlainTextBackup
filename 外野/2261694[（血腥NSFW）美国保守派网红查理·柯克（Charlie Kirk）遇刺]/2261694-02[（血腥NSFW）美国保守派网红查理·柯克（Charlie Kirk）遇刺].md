@@ -3430,3 +3430,32 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 <img src="https://p.sda1.dev/27/0948199534cca569bad489753dea54e6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈扎马  
+##### 1758#       发表于 2025-9-20 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460463&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 12:02</a>
+
+转卢诗涵</blockquote>
+不认识卢诗涵这人（好像有外号卢老爷？），可这段所谓极大影响美国就是纯扯淡，因为美国并没有大规模堕女胎议题啊<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">能在这事上斯比的只有国内，可能印度也能斯，喜欢选择后代性别的美国人好像只有马斯克
+
+
+*****
+
+####  yang1820  
+##### 1759#       发表于 2025-9-20 12:52
+
+不是...等等，Kirk在美国的辩论是怎么转进到国内女婴问题的？美国的堕胎问题我记得跟性别选择关系不大，人家主要吵的不是这个。总不能是中国的大学生上去跟他辩论吧......
+
+*****
+
+####  卡嘎米  
+##### 1760#       发表于 2025-9-20 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460664&amp;ptid=2261694" target="_blank">yang1820 发表于 2025-9-20 12:52</a>
+
+不是...等等，Kirk在美国的辩论是怎么转进到国内女婴问题的？美国的堕胎问题我记得跟性别选择关系不大，人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真相不重要，这个卢其实和他反对的群体一样，相关材料是说给想听的人听的
+
