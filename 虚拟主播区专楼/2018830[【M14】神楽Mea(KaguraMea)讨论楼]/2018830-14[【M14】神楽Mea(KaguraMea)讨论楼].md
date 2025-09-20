@@ -4154,3 +4154,11 @@ M也在挑S。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说实话也是老问题了，有人骂也正常，不过昨天队友们的处理其实挺宽容的，应该还是没什么事
 
+
+*****
+
+####  古战场亡魂  
+##### 19593#       发表于 2025-9-20 22:11
+
+什么初始卡组
+
