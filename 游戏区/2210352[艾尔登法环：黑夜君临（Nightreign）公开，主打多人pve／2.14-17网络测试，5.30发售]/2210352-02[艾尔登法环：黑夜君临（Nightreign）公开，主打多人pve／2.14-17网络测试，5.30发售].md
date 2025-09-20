@@ -1115,3 +1115,13 @@ STEAM平台 情况如何不知道 反正PS5平台 还没BOSS 一倒就拔线 ，
 我去，真出深度可选和保护机制了，不会真的是我的邮件发力了吧，不过以前给fs发过好几次bug和改进的邮件那是完全石沉大海，估计这次是因为和我相同想法然后发邮件和留言的很多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 但是怎么词条不改进啊词条，这才是重中之重
 
+
+*****
+
+####  luodang007  
+##### 1737#       发表于 2025-9-20 08:07
+
+昨天打的好奇怪，还是深夜第一层，小怪仇恨范围好远，比如主城门口打那2个失乡，旁边红眼失乡和杂兵都过来了
+
+是改过了还是有人拿了奇怪的词条<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
