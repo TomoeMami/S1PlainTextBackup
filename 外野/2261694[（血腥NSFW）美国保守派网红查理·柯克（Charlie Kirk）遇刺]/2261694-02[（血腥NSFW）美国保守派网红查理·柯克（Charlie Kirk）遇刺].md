@@ -3791,3 +3791,22 @@ NO，是男方出钱和AA制哪个合适，
 
 【查理柯克遇刺后，网友们造梗的手又按捺不住了-哔哩哔哩】 [https://b23.tv/Q6AQQ0L](https://b23.tv/Q6AQQ0L)
 
+
+*****
+
+####  tansapple  
+##### 1787#       发表于 2025-9-20 15:38
+
+卢诗涵也是吃性别对立这口饭的，这人转述的内容也是一个看人下菜。<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就咋的  
+##### 1788#       发表于 2025-9-20 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68461178&amp;ptid=2261694" target="_blank">刘昊霖 发表于 2025-9-20 15:24</a>
+
+【查理柯克遇刺后，网友们造梗的手又按捺不住了-哔哩哔哩】 https://b23.tv/Q6AQQ0L ...</blockquote>
+开头的 BMG 好像飞天德历险记第三幕第一关 (?) 丛林
+<img src="https://static.stage1st.com/image/smiley/device2017/011.png" referrerpolicy="no-referrer">
+
