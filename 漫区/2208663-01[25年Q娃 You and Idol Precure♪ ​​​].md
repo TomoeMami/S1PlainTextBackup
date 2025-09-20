@@ -280,3 +280,43 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我至今都没办法将zukyoon和噗哩伦联系在一起
 
+
+*****
+
+####  咲良うた  
+##### 1302#       发表于 2025-9-20 11:07
+
+第32話　プリ！メロ！夢の学園生活
+
+脚本：金杉弘子
+
+絵コンテ：佐々木憲世
+
+演出：岩井隆央
+
+作画監督：青山充
+
+美術：倉橋隆
+
+双子姉妹の学園生活を描いた小説を読んでいたメロロン（CV.花井美春）は、プリルン（CV.南條愛乃）といっしょに自分も学園生活を過ごしたいと言い出す。しかし、プリキュアの姿で登校するわけにもいかず悩んでいると、メロロンがとあることを思いつく。夢の学園生活のために 2 人で試行錯誤していると、キラキライトがキラッキランリボンバトンに変化し、プリルンとメロロンの姿が…。翌朝、晴れて学校にいくことができるようになったプリルンとメロロンは、初めて体験することばかりの学校生活を楽しむ。一方、うた（CV.松岡美里）たちのクラスには、この日から持田という教育実習生がやってきていた。
+<img src="https://files.catbox.moe/s3uggz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/foqzu4.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/q7rh34.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/5yzbe4.jpg" referrerpolicy="no-referrer">
+
+第33話　どすこ～い！アイドルデビュー！？
+
+脚本：山田由香
+
+演出：横内一樹
+
+作画監督：廣中美佳、美馬健二
+
+美術：戸杉奈津子
+
+アイドルプリキュアへのファンレターがたくさん届く中、一通の手紙の差出人の名前に目をとめるうた（CV.松岡美里）。それはうたとプリルンが以前出会った、お相撲さんのくりきゅうたからのものだった。手紙には、強いお相撲さんになるために頑張っていること、ときどきくじけそうになるけど、アイドルプリキュアから元気をもらっていることが書かれていた。事務所を後にし、広場にやってきたうたたちは、そこで偶然、くりきゅうたと再会する。以前出会った時に、プリキュアと自分の名前を聞き間違え、プリルン（CV.南條愛乃）とともにMOMOに乗り込んだくりきゅうただったが、それからしばらくしてアイドルプリキュアを知り、ファンクラブでひとケタ番の会員番号を持つほどのファンになっていた。話を聞き、「きゅうたさんを応援します」と伝えるうたたちだったが、くりきゅうたは「お相撲さんをやめる」とつぶやき、さらに「アイドルプリキュアになる！」と言い始める。
+<img src="https://files.catbox.moe/qqojz7.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/v29zsy.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/3znpdl.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/qi35an.jpg" referrerpolicy="no-referrer">
+
