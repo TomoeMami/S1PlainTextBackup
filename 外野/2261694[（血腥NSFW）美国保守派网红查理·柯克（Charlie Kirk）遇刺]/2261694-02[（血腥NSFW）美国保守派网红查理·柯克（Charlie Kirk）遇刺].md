@@ -3513,3 +3513,84 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 在伦敦举行的查理·科克悼念仪式上，一群来自新西兰的毛利人参加了仪式，并表演了哈卡战舞，以示对这位死于 ...</blockquote>
 这也太弱智了，堕胎问题是神学问题，中式思维代入个鸡儿
 
+
+*****
+
+####  ccared  
+##### 1766#       发表于 2025-9-20 13:06
+
+这个卢越发成为揣着明白装明白的高手了。
+我看他也没把国男当成智人。
+
+*****
+
+####  black199  
+##### 1767#       发表于 2025-9-20 13:08
+
+良是激进派和保守派博弈的结果，是在不会大改方济各之前各方向方阵的情况下最保守的选择，而且表态上是更保守的。而且方济各因为太照顾亚非拉的教区而且对亚非拉教区的各种弥撒仪式改良过于开明(比如摇滚弥撒啥的)老欧洲和北美的主教门都是有些不满的
+
+*****
+
+####  zeroboss4  
+##### 1768#       发表于 2025-9-20 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460694&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-20 12:59</a>
+但是啊和男性玩这一套宗教动员有个天生劣势，男性是理性动物，经书可千万别编出致命bug，小bug倒是无所谓 ...</blockquote>
+基于事实才会有bug
+
+基于编的没有 就算有也能修正
+
+其实无论是死的这位 还是白左 还是卢 
+
+都明白这点
+
+*****
+
+####  古凌锋  
+##### 1769#       发表于 2025-9-20 13:09
+
+这个胡诗涵是干嘛的啊
+
+
+*****
+
+####  就咋的  
+##### 1770#       发表于 2025-9-20 13:11
+
+上一个在竞选口号里支持堕胎权的，是2016年驴党党内大选的“社会主义者桑德斯”（实为无党派）么？
+
+第1395楼，驴象2016年党内竞选新闻。
+[https://stage1st.com/2b/forum.ph ... 94&amp;pid=68425428](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2261694&amp;pid=68425428)
+
+*****
+
+####  fangJmin  
+##### 1771#       发表于 2025-9-20 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460594&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 12:32</a>
+在伦敦举行的查理·科克悼念仪式上，一群来自新西兰的毛利人参加了仪式，并表演了哈卡战舞，以示对这位死于 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">tmd新西兰毛利人享受的待遇就类似国内少民了，和卢说得有啥联系。任何非白人群体和maga混都只能说脑子有问题，搞保守至少来点自己理论啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  black199  
+##### 1772#       发表于 2025-9-20 13:12
+
+卢是给仰慕保守派的小登写爽文的博主
+
+*****
+
+####  卡嘎米  
+##### 1773#       发表于 2025-9-20 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460740&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 13:09</a>
+
+基于事实才会有bug
+
+基于编的没有 就算有也能修正</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右经都是通过采选事实编的，水平高低而已，都有bug但是不重要，只要不致命，看偶像的个人魅力，本质是注意力，你看taco满嘴跑火车也无所谓。
+
+左经可不是能乱编的，左经可是要忽悠人到死
+
