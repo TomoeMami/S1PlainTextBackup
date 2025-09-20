@@ -3594,3 +3594,62 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 左经可不是能乱编的，左经可是要忽悠人到死
 
+
+*****
+
+####  古凌锋  
+##### 1774#       发表于 2025-9-20 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460761&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-20 13:13</a>
+
+右经都是通过采选事实编的，水平高低而已，都有bug但是不重要，只要不致命，看偶像的个人魅力，本质是注 ...</blockquote>
+但这也不是左啊
+
+*****
+
+####  卡嘎米  
+##### 1775#       发表于 2025-9-20 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460766&amp;ptid=2261694" target="_blank">古凌锋 发表于 2025-9-20 13:14</a>
+
+但这也不是左啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在说这个卢，这个卢和他反对的群体其实是一样的，当然是右，你理解成啥了？
+
+*****
+
+####  madness  
+##### 1776#       发表于 2025-9-20 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460513&amp;ptid=2261694" target="_blank">lilisipis 发表于 2025-9-20 12:11</a>
+
+教宗不占右派难道站LGBT的左派吗</blockquote>
+一个很难蚌的是，以美国魔改基督教为标准，别说直接绝罚了极右翼美国大主教的非著名左翼教皇方济各，就是整体公教会来说，都是左派……
+
+作为普世宗教的公教会，虽然从来以保守被批判，但是实际上很大程度上更加是从乡愿下保护人……
+
+
+*****
+
+####  卡嘎米  
+##### 1777#       发表于 2025-9-20 13:22
+
+【[熟肉]查理·柯克：捍卫未出生者】 [https://www.bilibili.com/video/B ... 0622749dc939d2ec600](https://www.bilibili.com/video/BV1uqXNYBEDa/?share_source=copy_web&amp;vd_source=fb3b0ddcb29c90622749dc939d2ec600)
+
+
+*****
+
+####  black199  
+##### 1778#       发表于 2025-9-20 13:24
+
+保守派不需要理论的，从来都不需要，保守派需要的是＂事实＂和＂经验＂，所以maga常说的就是＂常识＂，保守派想要的就是约定俗成的东西，即便漏洞百出
+
+*****
+
+####  古凌锋  
+##### 1779#       发表于 2025-9-20 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460781&amp;ptid=2261694" target="_blank">卡嘎米 发表于 2025-9-20 13:16</a>
+
+我在说这个卢，这个卢和他反对的群体其实是一样的，当然是右，你理解成啥了？ ...</blockquote>
+我是说你上面说“ 但是啊和男性玩这一套宗教动员有个天生劣势，男性是理性动物，经书可千万别编出致命bug，小bug倒是无所谓”，但这人也不是左啊，所以他乱编也无所谓吧
+
