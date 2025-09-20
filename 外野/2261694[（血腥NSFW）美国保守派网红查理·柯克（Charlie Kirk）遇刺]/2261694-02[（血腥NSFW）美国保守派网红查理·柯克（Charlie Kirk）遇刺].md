@@ -3851,3 +3851,18 @@ NO，是男方出钱和AA制哪个合适，
 
 夜之城没有活着的传奇.jpg
 
+
+*****
+
+####  就咋的  
+##### 1793#       发表于 2025-9-20 20:20
+
+ 本帖最后由 就咋的 于 2025-9-20 20:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68462339&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-20 20:15</a>
+
+夜之城没有活着的传奇.jpg</blockquote>
+给吸管么？那个，我是指比纸杯硬的吸管。
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+（上一个图文）
+
