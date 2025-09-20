@@ -3392,3 +3392,41 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 教宗这算不算站队了</blockquote>
 教宗不占右派难道站LGBT的左派吗
 
+
+*****
+
+####  FanFun  
+##### 1754#       发表于 2025-9-20 12:25
+
+上一位教宗是指责加沙屠杀的
+这一位给个否认屠杀的祈祷，不好说
+
+*****
+
+####  卡嘎米  
+##### 1755#       发表于 2025-9-20 12:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白左这堆妖魔鬼怪要在这轮极右反弹中被彻底清算，好日子快来了
+
+*****
+
+####  全都笑了  
+##### 1756#       发表于 2025-9-20 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460463&amp;ptid=2261694" target="_blank">zeroboss4 发表于 2025-9-20 12:02</a>
+
+转卢诗涵</blockquote>
+这下看懂了。所以我对白右的态度一直是丘式，如果白佐入侵地狱，我也会为路西法说两句好话。
+
+
+*****
+
+####  zeroboss4  
+##### 1757#       发表于 2025-9-20 12:32
+
+在伦敦举行的查理·科克悼念仪式上，一群来自新西兰的毛利人参加了仪式，并表演了哈卡战舞，以示对这位死于遥远的美国的右翼精神导师的尊崇。
+
+卢诗涵
+
+<img src="https://p.sda1.dev/27/0948199534cca569bad489753dea54e6/image.jpg" referrerpolicy="no-referrer">
+
