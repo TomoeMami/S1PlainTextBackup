@@ -6980,3 +6980,13 @@ engage我还挺喜欢妹妹，可能是声优精湛的演技和is痴呆的演出
 一个战棋游戏随便出都能卖到普遍JRPG销量上限水平叫不行，真是旱死涝死了</blockquote>
 engage的战斗都叫随便出的话，大部分jrpg可以算尿床尿出来的画了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七月狼  
+##### 661#       发表于 2025-9-20 08:54
+
+结合的合体造型太杀马特了，和MM4的姐姐摩托一样直接一眼劝退
+
+剧情也很低幼，适合6-12岁儿童，稍微大一点都会吐槽的
+
