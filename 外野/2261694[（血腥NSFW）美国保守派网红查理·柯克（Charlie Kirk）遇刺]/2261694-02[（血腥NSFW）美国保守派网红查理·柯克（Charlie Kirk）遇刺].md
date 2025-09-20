@@ -3382,3 +3382,13 @@ T-I-A! THIS IS AMERICAAAAAA!!! MAGAAAAA!!!
 
 <img src="https://p.sda1.dev/27/30ae8b240c82959ce2c15c636792cd55/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilisipis  
+##### 1753#       发表于 2025-9-20 12:11
+
+<blockquote>qq460262849 发表于 2025-9-20 09:24
+教宗这算不算站队了</blockquote>
+教宗不占右派难道站LGBT的左派吗
+

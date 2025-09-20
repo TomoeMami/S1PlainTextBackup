@@ -157,3 +157,16 @@
 
 當然也有龍球超第6宇宙中，那對義姊妹，愷兒就算未變傳超前都已經強過變了超賽的凱莉，但一直介意被發現所以不出手或偷偷出手，去到菲利吐槽後才知情，但姊姊反而因此更開心，真心喜歡這位義妹妹比自己更強
 
+
+*****
+
+####  aptx8285144  
+##### 250#       发表于 2025-9-20 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460308&amp;ptid=2193746" target="_blank">eilot 发表于 2025-9-20 11:34</a>
+
+看作品人設吧
+
+這類見到外表超弱者想將對方收為跟班，結果這小跟班其實是超級天才，之後就反救了對方或考試 ...</blockquote>
+<strong>“你是因为嫉妒”吧</strong>，拉娜对巴尼轰出这句说时，我快乐出来了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
