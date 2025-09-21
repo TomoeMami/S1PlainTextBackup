@@ -4199,3 +4199,36 @@ NO，是男方出钱和AA制哪个合适，
 
 <img src="https://p.sda1.dev/27/b67d53d1ea46d6eb204d1278e03f70f5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  摸鱼2号  
+##### 1818#       发表于 2025-9-21 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68467469&amp;ptid=2261694" target="_blank">aeolus039 发表于 2025-9-21 22:45</a>
+
+俄克拉荷马准备立法要求每个学校都给查理柯克本人或者他们一家立像</blockquote>
+maga圣人是吧
+
+*****
+
+####  天气_nini  
+##### 1819#       发表于 2025-9-21 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68466746&amp;ptid=2261694" target="_blank">qianhe12 发表于 2025-9-21 20:26</a>
+
+上面我要求正面回答的甚至可以是“以色列犯下了反人类罪行，请问美国什么时候开始制裁以色列。”
+
+随便他 ...</blockquote>
+是你没看过那个经典的
+
+过去多少年里有变性人犯枪击案（还是什么恶性犯罪）
+
+查理柯克立刻回答：很多
+
+然后群众欢呼
+
+对方说：其实只有5起
+
+但是群众还是嘘他，多不多不重要了
+
