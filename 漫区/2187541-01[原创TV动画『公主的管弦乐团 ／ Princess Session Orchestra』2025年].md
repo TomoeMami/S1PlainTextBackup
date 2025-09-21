@@ -123,3 +123,12 @@
 男装丽人学姐 风花堇 声优鬼头
 淡紫毛路人ed表连名字都没有 声优伊藤
 
+
+*****
+
+####  糖尔  
+##### 172#       发表于 2025-9-22 03:14
+
+一炮送红女王上天 是不是太丢人了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过谜语人了半天世界观还是没展开太多 接下来估计就打香菜了
+
