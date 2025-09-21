@@ -458,3 +458,30 @@ Japan is blacked?
 <img src="https://static.stage1st.com/image/smiley/carton2017/305.png" referrerpolicy="no-referrer">：反正选上后就没人记得了，为什
 么要实现
 
+
+*****
+
+####  洛拉斯  
+##### 49#       发表于 2025-9-21 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463649&amp;ptid=2262583" target="_blank">黑上シグマ 发表于 2025-9-20 23:56</a>
+“再次推向世界的顶点”
+嗯你们有当过顶点吗？</blockquote>
+日本是世界被核爆国家顶点
+
+*****
+
+####  Cthululives  
+##### 50#       发表于 2025-9-21 09:11
+
+麻利的赶紧的不要怂
+
+*****
+
+####  洛拉斯  
+##### 51#       发表于 2025-9-21 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464321&amp;ptid=2262583" target="_blank">全都笑了 发表于 2025-9-21 08:27</a>
+你们再乐，精日就要盗用伟人名言来捂嘴了。“你说得对但是中国人民和日本人民是一致的……”，然后排队加鹅 ...</blockquote>
+但是现在日本大部分人都支持**，都是我们敌人，怎么了不服气？
+
