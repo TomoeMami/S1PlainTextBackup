@@ -402,3 +402,20 @@ Japan Is BAck! JIBA!
 嗯你们有当过顶点吗？</blockquote>
 有阿，毕竟广岛和长崎曾经是世界温度的顶点，高市当选，大日本会成为真正的日出之国（温度全球最高）
 
+
+*****
+
+####  星零影  
+##### 43#       发表于 2025-9-21 08:09
+
+某种角度来说，我正发愁你日不回去呢（拉枪栓<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  和平保卫者  
+##### 44#       发表于 2025-9-21 08:10
+
+那可太好了，就怕鬼子认怂呢
+
