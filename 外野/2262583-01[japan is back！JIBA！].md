@@ -619,3 +619,11 @@ JiBa？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" refe
 
 磁(ジ)場(バ)転 動 九 重 天<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  name2157041  
+##### 64#       发表于 2025-9-21 13:53
+
+模仿痕迹太重，好歹用日语啊，假名也行
+
