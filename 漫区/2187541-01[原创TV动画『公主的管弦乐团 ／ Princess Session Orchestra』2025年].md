@@ -92,3 +92,25 @@
 
 —— 来自 samsung SM-A5560, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  新HGCG  
+##### 170#       发表于 2025-9-21 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464362&amp;ptid=2187541" target="_blank">spadepie 发表于 2025-9-21 08:49</a>
+
+堇是之前玩具扒语音的时候就知道了，另一个是普通路人不会给这么大的特写的
+
+—— 来自 samsung SM-A5560 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202509/21/102015kvi1ll3f3kp6kwvv.gif" referrerpolicy="no-referrer">
+
+<strong>图片20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-21 10:20 上传
+
+男装丽人大姐姐呸喽呸喽
+
