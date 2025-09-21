@@ -1311,3 +1311,21 @@ more bike action is coming...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 314#       发表于 2025-9-21 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465161&amp;ptid=2250267" target="_blank">himfsz 发表于 2025-9-21 12:46</a>
+
+感觉拍出来的节奏有点奇怪，调动不起情绪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">感觉主要是虽然救了人，但是确实的对现实造成了大破坏，救到小的没救到大的，赢了也没啥快感吧
+
+*****
+
+####  暗黑能乐  
+##### 315#       发表于 2025-9-21 13:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集这个是新娘不想嫁，希望有人来劫婚吗。。这种应该就不会造成什么大破坏了吧
+
