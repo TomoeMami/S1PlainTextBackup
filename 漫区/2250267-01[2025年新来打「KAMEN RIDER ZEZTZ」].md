@@ -1340,3 +1340,15 @@ more bike action is coming...
 感觉主要是虽然救了人，但是确实的对现实造成了大破坏，救到小的没救到大的，赢了也没啥快感吧 ...</blockquote>
 不是这个意思，是说应该一气呵成的地方，拍得总是慢悠悠的，感觉还是应该加个op然后节奏就能紧凑点了
 
+
+*****
+
+####  浅川雏羽  
+##### 317#       发表于 2025-9-21 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465440&amp;ptid=2250267" target="_blank">himfsz 发表于 2025-9-21 14:24</a>
+不是这个意思，是说应该一气呵成的地方，拍得总是慢悠悠的，感觉还是应该加个op然后节奏就能紧凑点了 ...</blockquote>
+看官网小作文的说法，前三回是作为试播集拍出来，当年寄狐的试播集是前两回而且节奏分明，这次三集试播集明显是冲着一个完整的60分钟特别篇做的，剪出来很难看
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
