@@ -3883,3 +3883,13 @@ NO，是男方出钱和AA制哪个合适，
 由手机上传
 2025-9-20 20:40 上传
 
+
+*****
+
+####  avayazhg  
+##### 1795#       发表于 2025-9-21 16:42
+
+<img src="https://origin.picgo.net/2025/09/21/3BB0C66AB188B93A3F779E4A65758E1186cf0663315d9c91.gif" referrerpolicy="no-referrer">
+
+群里做了个图
+
