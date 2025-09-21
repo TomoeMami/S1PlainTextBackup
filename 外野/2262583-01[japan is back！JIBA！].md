@@ -389,3 +389,16 @@ Japan Is BAck! JIBA!
 
 她要是当选了，以后就叫她JIBA姐吧，好期待<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  尼采生存哲学  
+##### 42#       发表于 2025-9-21 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463649&amp;ptid=2262583" target="_blank">黑上シグマ 发表于 2025-9-20 23:56</a>
+
+“再次推向世界的顶点”
+
+嗯你们有当过顶点吗？</blockquote>
+有阿，毕竟广岛和长崎曾经是世界温度的顶点，高市当选，大日本会成为真正的日出之国（温度全球最高）
+
