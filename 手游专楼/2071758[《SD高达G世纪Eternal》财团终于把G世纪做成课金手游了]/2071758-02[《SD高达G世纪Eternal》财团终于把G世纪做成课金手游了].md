@@ -4581,3 +4581,14 @@ G的ult竟然不是恶魔高达jr。
 
 逆鸭和seedd进去说stage增加了，但是看了看又没有？
 
+
+*****
+
+####  zksandy  
+##### 2684#       发表于 2025-9-21 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465753&amp;ptid=2071758" target="_blank">silvia 发表于 2025-9-21 16:08</a>
+
+逆鸭和seedd进去说stage增加了，但是看了看又没有？</blockquote>
+bug……这个是
+
