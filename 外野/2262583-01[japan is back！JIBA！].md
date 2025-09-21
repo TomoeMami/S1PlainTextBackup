@@ -419,3 +419,21 @@ Japan Is BAck! JIBA!
 
 那可太好了，就怕鬼子认怂呢
 
+
+*****
+
+####  Jet.Black  
+##### 45#       发表于 2025-9-21 08:18
+
+Japan is blacked?
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  全都笑了  
+##### 46#       发表于 2025-9-21 08:27
+
+你们再乐，精日就要盗用伟人名言来捂嘴了。“你说得对但是中国人民和日本人民是一致的……”，然后排队加鹅、发旅游贴、宣布大获全胜<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
