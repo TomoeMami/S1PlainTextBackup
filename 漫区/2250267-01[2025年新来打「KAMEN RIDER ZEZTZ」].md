@@ -1230,3 +1230,11 @@ more bike action is coming...
 
 居然还有拉茶环节，但还是不够高
 
+
+*****
+
+####  pokemon最爱  
+##### 305#       发表于 2025-9-21 10:34
+
+所以ZZZ最后播OP的集数能不能超过EA呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
