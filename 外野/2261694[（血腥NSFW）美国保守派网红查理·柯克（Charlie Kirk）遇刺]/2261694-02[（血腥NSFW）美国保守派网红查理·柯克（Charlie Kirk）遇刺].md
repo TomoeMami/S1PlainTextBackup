@@ -3893,3 +3893,14 @@ NO，是男方出钱和AA制哪个合适，
 
 群里做了个图
 
+
+*****
+
+####  摸鱼2号  
+##### 1796#       发表于 2025-9-21 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68451516&amp;ptid=2261694" target="_blank">十六夜pad长 发表于 2025-9-18 17:02</a>
+
+讨论是不是同性恋那两段可以不要，直接跳到福瑞控伴侣就行了。福瑞控不考虑同性异性，都兽装了，性别不重 ...</blockquote>
+阿美的福瑞或者说互联网比较喜欢发声的福瑞大部分是南通福瑞，性别还是有点意义的
+
