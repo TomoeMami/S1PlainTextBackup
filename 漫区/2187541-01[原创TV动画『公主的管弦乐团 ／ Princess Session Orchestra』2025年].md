@@ -70,3 +70,13 @@
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  亚原子8  
+##### 168#       发表于 2025-9-21 08:44
+
+后半主视觉图<img src="https://p.sda1.dev/27/df56ca5d04334f27cfdc350eed975368/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
