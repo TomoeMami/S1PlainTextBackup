@@ -1329,3 +1329,14 @@ more bike action is coming...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集这个是新娘不想嫁，希望有人来劫婚吗。。这种应该就不会造成什么大破坏了吧
 
+
+*****
+
+####  himfsz  
+##### 316#       发表于 2025-9-21 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465322&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2025-9-21 13:47</a>
+
+感觉主要是虽然救了人，但是确实的对现实造成了大破坏，救到小的没救到大的，赢了也没啥快感吧 ...</blockquote>
+不是这个意思，是说应该一气呵成的地方，拍得总是慢悠悠的，感觉还是应该加个op然后节奏就能紧凑点了
+
