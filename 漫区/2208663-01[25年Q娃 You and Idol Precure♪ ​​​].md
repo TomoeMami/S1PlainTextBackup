@@ -328,3 +328,17 @@ BG环节也太多了，独角兽好坏<img src="https://static.stage1st.com/imag
 
 粉丝名投票结果来了个最差的么……
 
+
+*****
+
+####  leleq  
+##### 1304#       发表于 2025-9-21 22:33
+
+谐音梗太多啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+田中过于有能了
+
+虽然Q娃不说减肥鼓励幼女多吃但力士锅这种养猪的玩意还是算了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+明明是水回打斗戏怎么在乱动啊你们怎么分配资源的啊喂<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
