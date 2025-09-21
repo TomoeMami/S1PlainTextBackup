@@ -80,3 +80,15 @@
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  spadepie  
+##### 169#       发表于 2025-9-21 08:49
+
+<img src="https://p.sda1.dev/27/5ebdae3c81a3b6946bc35c77cedc4961/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/90ea2cd1768e942b6116cc4054d52880/image.jpg" referrerpolicy="no-referrer">
+堇是之前玩具扒语音的时候就知道了，另一个是普通路人不会给这么大的特写的
+
+—— 来自 samsung SM-A5560, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

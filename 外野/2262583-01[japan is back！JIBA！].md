@@ -437,3 +437,24 @@ Japan is blacked?
 
 你们再乐，精日就要盗用伟人名言来捂嘴了。“你说得对但是中国人民和日本人民是一致的……”，然后排队加鹅、发旅游贴、宣布大获全胜<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cc-2  
+##### 47#       发表于 2025-9-21 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464189&amp;ptid=2262583" target="_blank">maecena 发表于 2025-9-21 05:55</a>
+
+可它周边的各种夷人，都有核弹啊。</blockquote>
+（被核弹）再次推向世界的顶点
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 48#       发表于 2025-9-21 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463825&amp;ptid=2262583" target="_blank">白影 发表于 2025-9-21 00:38</a>
+话说口号谁都能说，她打算如何办到呢？有施政纲领吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/305.png" referrerpolicy="no-referrer">：反正选上后就没人记得了，为什
+么要实现
+
