@@ -4178,3 +4178,23 @@ M也在挑S。
 
 在打台服，以及延迟高飞全责草，好像是mudfish里某个地方调的是大阪不是东京，然后咩的延迟就在30ms-100ms来回跳，第一把给咩心态搞得很厉害
 
+
+*****
+
+####  古战场亡魂  
+##### 19596#       发表于 2025-9-21 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465458&amp;ptid=2018830" target="_blank">术士q 发表于 2025-9-21 14:28</a>
+
+在打台服，以及延迟高飞全责草，因为之前打台服是高飞帮着调的，好像是mudfish里某个地方调的是大阪不是东 ...</blockquote>
+这也不咋地啊，60多的跳。
+
+*****
+
+####  sino__unnko3  
+##### 19597#       发表于 2025-9-21 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465458&amp;ptid=2018830" target="_blank">术士q 发表于 2025-9-21 14:28</a>
+在打台服，以及延迟高飞全责草，因为之前打台服是高飞帮着调的，好像是mudfish里某个地方调的是大阪不是东 ...</blockquote>
+并非解决
+
