@@ -1254,3 +1254,24 @@ more bike action is coming...
 
 皮套里的灯似乎有点接触不良，夜战的时候做动作会闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但夜战真是好文明，01那荧光皮套就剧场版来了一场太可惜了
 
+
+*****
+
+####  AP0rt_  
+##### 308#       发表于 2025-9-21 10:57
+
+ 本帖最后由 AP0rt_ 于 2025-9-21 11:01 编辑 
+
+这集怎么有种大的就这的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 309#       发表于 2025-9-21 10:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这么一看莫确实菜啊，梦魇得开三扇门才能进现实搞破坏，即使进了现实一样可以打败他把梦主救出来，等于莫最后完成任务也只是堪堪保住人命而已，警局都炸成啥样了。。
+
+不过长期发展下去莫压力可能会拉闷啊，肯定没法怪到梦主身上，不就只能怪自己无能了吗
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
