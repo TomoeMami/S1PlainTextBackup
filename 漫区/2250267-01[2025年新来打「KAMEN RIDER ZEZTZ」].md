@@ -1352,3 +1352,19 @@ more bike action is coming...
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Alicest  
+##### 318#       发表于 2025-9-21 15:11
+
+第三集的骑士踢比第一集帅多了
+不过和隔壁战队一样都是组合终结技<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windaria  
+##### 319#       发表于 2025-9-21 15:13
+
+不是说史上最高预算吗，怎么还是转眼就没的场景破坏特效
+
