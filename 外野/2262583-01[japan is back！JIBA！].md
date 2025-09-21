@@ -656,3 +656,24 @@ JiBa？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" refe
 你说能不能从日本人找到一些算是好人的个体，那答案是肯定的，但是上升到日本人这个群体，那只能说，日本人 ...</blockquote>
 大友克洋已经把本子战后第二次经济高峰期（泡沫时期）的所有问题分析差不多了，结果就是电影版第一幕的东京核爆、弹坑“阿基拉”。反战派看的很清楚，不破不立。
 
+
+*****
+
+####  moekyo  
+##### 68#       发表于 2025-9-21 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465696&amp;ptid=2262583" target="_blank">就咋的 发表于 2025-9-21 15:46</a>
+
+大友克洋已经把本子战后第二次经济高峰期（泡沫时期）的所有问题分析差不多了，结果就是电影版第一幕的东 ...</blockquote>
+提出问题有时候比解决问题简单，而且现在的趋势是，提出问题就算解决问题了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就咋的  
+##### 69#       发表于 2025-9-21 16:10
+
+<blockquote>moekyo 发表于 2025-9-21 16:03
+提出问题有时候比解决问题简单，而且现在的趋势是，提出问题就算解决问题了 ...</blockquote>
+这派现在就是提问题的，因为上不去只能提问题，为什么上不去，因为没有大部分支持。死循环了
+
