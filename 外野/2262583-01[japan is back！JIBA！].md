@@ -583,3 +583,15 @@ Japan is blacked?
 Tempest in a teapot (茶壶里的暴风雨)
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七月狼  
+##### 60#       发表于 2025-9-21 11:46
+
+<blockquote>AgentZiGZAG 发表于 2025-9-20 23:59
+当过世界城市最高温度顶点广岛和长崎的5000+摄氏度最高气温应该是很难打破了 ...</blockquote>
+不会的，纽约会超越
+
+三战总会打的，早一天晚一天罢了
+
