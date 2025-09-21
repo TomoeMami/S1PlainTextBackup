@@ -635,3 +635,14 @@ JiBa？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" refe
 
 你说能不能从日本人找到一些算是好人的个体，那答案是肯定的，但是上升到日本人这个群体，那只能说，日本人还是欠屠了
 
+
+*****
+
+####  寇马可  
+##### 66#       发表于 2025-9-21 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463670&amp;ptid=2262583" target="_blank">AgentZiGZAG 发表于 2025-9-20 23:59</a>
+
+当过世界城市最高温度顶点广岛和长崎的5000+摄氏度最高气温应该是很难打破了 ...</blockquote>
+我相信现在的聚变武器可以轻易打破这个记录
+
