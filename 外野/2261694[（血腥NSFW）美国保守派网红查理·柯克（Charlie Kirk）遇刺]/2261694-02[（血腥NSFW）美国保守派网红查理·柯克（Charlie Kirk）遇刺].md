@@ -4188,3 +4188,14 @@ NO，是男方出钱和AA制哪个合适，
 
 他主动给台阶：听着，军人为了正义为了自己的人民勇敢的陷入危险之中，但他们还是普通人，周边随时可能出现袭击，应激在所难免，任何国家也不能保证不导致平民伤亡。
 
+
+*****
+
+####  aeolus039  
+##### 1817#       发表于 2025-9-21 22:45
+
+<img src="https://p.sda1.dev/27/59810403971fca4fd70930ec8b747350/image.jpg" referrerpolicy="no-referrer">
+俄克拉荷马准备立法要求每个学校都给查理柯克本人或者他们一家立像
+
+<img src="https://p.sda1.dev/27/b67d53d1ea46d6eb204d1278e03f70f5/image.jpg" referrerpolicy="no-referrer">
+
