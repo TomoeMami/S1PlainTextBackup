@@ -688,3 +688,14 @@ JiBa？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" refe
 AV标题已经想好了，Japan is blacked，形似早苗的女尤大战一群黑叔叔</blockquote>
 最近日本准备引进大量三哥<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  logiccat  
+##### 71#       发表于 2025-9-21 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463670&amp;ptid=2262583" target="_blank">AgentZiGZAG 发表于 2025-9-20 23:59</a>
+
+当过世界城市最高温度顶点广岛和长崎的5000+摄氏度最高气温应该是很难打破了 ...</blockquote>
+技术有进步了，现代的小男孩说不定可以有更高温……
+
