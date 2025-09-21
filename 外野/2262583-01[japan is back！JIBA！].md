@@ -552,3 +552,34 @@ Japan is blacked?
 
 到时候日本一群jiba人
 
+
+*****
+
+####  orecheng  
+##### 58#       发表于 2025-9-21 11:08
+
+连美国产业秩序都不敢挑战，还想让经济增长回来？纯属做梦
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 就咋的| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  就咋的  
+##### 59#       发表于 2025-9-21 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464802&amp;ptid=2262583" target="_blank">orecheng 发表于 2025-9-21 11:08</a>
+
+连美国产业秩序都不敢挑战，还想让经济增长回来？纯属做梦</blockquote>
+Tempest in a teapot (茶壶里的暴风雨)
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
