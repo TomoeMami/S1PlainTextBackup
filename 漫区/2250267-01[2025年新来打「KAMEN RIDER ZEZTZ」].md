@@ -1246,3 +1246,11 @@ more bike action is coming...
 
 夜战好爽，今年是夜战厨的狂欢年<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 307#       发表于 2025-9-21 10:46
+
+皮套里的灯似乎有点接触不良，夜战的时候做动作会闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但夜战真是好文明，01那荧光皮套就剧场版来了一场太可惜了
+
