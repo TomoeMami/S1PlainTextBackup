@@ -485,3 +485,22 @@ Japan is blacked?
 你们再乐，精日就要盗用伟人名言来捂嘴了。“你说得对但是中国人民和日本人民是一致的……”，然后排队加鹅 ...</blockquote>
 但是现在日本大部分人都支持**，都是我们敌人，怎么了不服气？
 
+
+*****
+
+####  Cthululives  
+##### 52#       发表于 2025-9-21 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464321&amp;ptid=2262583" target="_blank">全都笑了 发表于 2025-9-21 08:27</a>
+你们再乐，精日就要盗用伟人名言来捂嘴了。“你说得对但是中国人民和日本人民是一致的……”，然后排队加鹅 ...</blockquote>
+这话有哪里不对吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7776169  
+##### 53#       发表于 2025-9-21 09:23
+
+这回真的是“岛夷”了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
