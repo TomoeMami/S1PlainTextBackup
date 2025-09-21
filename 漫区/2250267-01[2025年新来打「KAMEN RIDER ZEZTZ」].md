@@ -1398,3 +1398,11 @@ more bike action is coming...
 
 有些清算已经是阴谋论的打法了，扣着作品里没解释清楚的细节搞扩大化来论证阴谋，也挺搞笑
 
+
+*****
+
+####  暗黑能乐  
+##### 323#       发表于 2025-9-21 20:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">话说下一话狼姐都直接进秘密基地骑摩托了，那莫到底要不要对怪事科解释事情的经过呢
+
