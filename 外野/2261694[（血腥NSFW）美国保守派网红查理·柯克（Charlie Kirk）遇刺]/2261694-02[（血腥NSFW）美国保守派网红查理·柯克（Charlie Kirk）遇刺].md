@@ -4253,3 +4253,18 @@ maga圣人是吧
 
 上面好好翻翻呗，我再多说有点浪费版面了。
 
+
+*****
+
+####  天气_nini  
+##### 1821#       发表于 2025-9-21 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68467661&amp;ptid=2261694" target="_blank">qianhe12 发表于 2025-9-21 23:36</a>
+
+？
+
+所以？</blockquote>
+可能你没理解我说的，被嘘的是那个摆数据讲道理的
+
+查理柯克只要说变性人就是干了很多枪击案，变性人就是坏等等，主场就在欢呼
+
