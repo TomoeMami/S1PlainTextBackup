@@ -1406,3 +1406,13 @@ more bike action is coming...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">话说下一话狼姐都直接进秘密基地骑摩托了，那莫到底要不要对怪事科解释事情的经过呢
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 324#       发表于 2025-9-21 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68466487&amp;ptid=2250267" target="_blank">milky658 发表于 2025-9-21 19:26</a>
+社区还是太注重盖棺扣个佳作冥作帽子论战用了，这种娱乐作品首先放平心态就行，不管以后烂不烂现在自己的体 ...</blockquote>
+以我的观察三观小鬼已经进化为键政小鬼，先挑三观问题再拐到小日子劣根性……balabala，任何圈子沾上这种贵物，讨论环境都好不了
+
