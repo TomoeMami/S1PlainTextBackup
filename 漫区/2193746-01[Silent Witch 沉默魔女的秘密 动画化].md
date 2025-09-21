@@ -294,3 +294,14 @@
 
 寶玉本人戰力再差，他的最後那批作品加古代魔導具，還是要7賢人再加星槍等豪華集團才算是解決
 
+
+*****
+
+####  稀勢のささ  
+##### 261#       发表于 2025-9-21 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463475&amp;ptid=2193746" target="_blank">nice女武神 发表于 2025-9-20 23:27</a>
+
+既怕兄弟过的苦 又怕兄弟开路虎  其实也挺好理解的</blockquote>
+这种心态从逻辑上能理解但还喜欢跑去嘴臭就有点小丑了
+
