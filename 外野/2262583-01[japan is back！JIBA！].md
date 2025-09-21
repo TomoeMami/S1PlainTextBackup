@@ -611,3 +611,11 @@ JiBa？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" refe
 
 日本人民当然是要团结的，但是对于已经在支持**法西斯的人，就只有先打一顿让他知道错了才能团结过来了。人没有撞墙怎么会知道错了呢？
 
+
+*****
+
+####  百损道人  
+##### 63#       发表于 2025-9-21 12:21
+
+磁(ジ)場(バ)転 動 九 重 天<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
