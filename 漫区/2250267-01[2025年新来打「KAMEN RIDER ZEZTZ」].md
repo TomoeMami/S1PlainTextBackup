@@ -1452,3 +1452,11 @@ more bike action is coming...
 40集后就是梦境的仓库和后山啦</blockquote>
 如果不是提前半年开拍，我都觉得十几话后会直接路线变更成只在现实中战斗的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 329#       发表于 2025-9-22 10:05
+
+PV里就已经有经典小树林和仓库了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

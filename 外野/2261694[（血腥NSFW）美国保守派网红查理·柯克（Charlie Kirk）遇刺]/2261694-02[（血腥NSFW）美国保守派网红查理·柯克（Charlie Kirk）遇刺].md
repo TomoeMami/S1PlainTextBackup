@@ -4359,3 +4359,12 @@ maga圣人是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  守名居  
+##### 1829#       发表于 2025-9-22 10:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事啊，以前说国内有香蕉人maga总有人狡辩“自己是看taco笑话的，哪里是taco粉丝了”
+现在简单了，如果说自己是看taco笑话的，那么请说一段查理科克的地狱笑话，不能说那就是香蕉人maga
+
