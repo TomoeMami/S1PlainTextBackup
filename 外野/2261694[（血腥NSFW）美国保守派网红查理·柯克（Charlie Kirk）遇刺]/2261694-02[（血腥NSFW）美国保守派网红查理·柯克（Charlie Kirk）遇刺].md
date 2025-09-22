@@ -4348,3 +4348,14 @@ maga圣人是吧
 
 —— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  TTAA  
+##### 1828#       发表于 2025-9-22 09:30
+
+黄皮吗噶真的是
+什么时候能看到你美圈一个集中营把他们全送进去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
