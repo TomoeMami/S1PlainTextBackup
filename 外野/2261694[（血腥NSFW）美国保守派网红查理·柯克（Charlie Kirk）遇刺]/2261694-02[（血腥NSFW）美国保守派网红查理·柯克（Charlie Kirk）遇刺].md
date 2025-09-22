@@ -4322,3 +4322,18 @@ maga圣人是吧
 这也太弱智了，堕胎问题是神学问题，中式思维代入个鸡儿</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">如果我记得没错，这位是能把米莱和尹锡悦上位都归功于他们反女拳的神人，总之万事万物都能一转反女拳，只要你反女拳就能获得他口中的“沉默的大多数”的支持
 
+
+*****
+
+####  牛顿学物理  
+##### 1826#       发表于 2025-9-22 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68467488&amp;ptid=2261694" target="_blank">天气_nini 发表于 2025-9-21 22:51</a>
+
+是你没看过那个经典的
+
+过去多少年里有变性人犯枪击案（还是什么恶性犯罪）
+
+查理柯克立刻回答：很多</blockquote>
+好了，现在有6起了（大概）<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
