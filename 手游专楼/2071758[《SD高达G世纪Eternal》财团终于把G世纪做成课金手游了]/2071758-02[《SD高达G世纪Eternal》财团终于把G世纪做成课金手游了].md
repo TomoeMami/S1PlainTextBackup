@@ -4636,3 +4636,11 @@ bug……这个是
 
 <img src="https://static.stage1st.com/image/smiley/bundam2017/034.png" referrerpolicy="no-referrer">只要我掏出无敌的海牛
 
+
+*****
+
+####  ドロロ  
+##### 2690#       发表于 2025-9-22 18:25
+
+混个16w了，打海牛队还是打不过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
