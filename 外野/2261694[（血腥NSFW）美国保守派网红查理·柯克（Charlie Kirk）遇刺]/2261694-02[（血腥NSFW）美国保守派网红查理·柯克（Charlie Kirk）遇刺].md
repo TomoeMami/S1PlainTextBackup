@@ -4437,3 +4437,16 @@ maga圣人是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  日日日日日野  
+##### 1836#       发表于 2025-9-22 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471216&amp;ptid=2261694" target="_blank">Schwarzess 发表于 2025-9-22 16:22</a>
+
+突然发现他老婆叫Erika。
+
+那很根正苗红的辣脆了.jpg</blockquote>
+史蒂芬米勒昨天的演讲就是歌培尔
+
