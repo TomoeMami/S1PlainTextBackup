@@ -1460,3 +1460,13 @@ more bike action is coming...
 
 PV里就已经有经典小树林和仓库了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 330#       发表于 2025-9-22 10:23
+
+感觉不行啊，这前三集没啥给人眼前一亮的感觉，节奏也有点奇怪。看这令和的尿性难道还能期待啥神展开？
+
+U咩是在漫才的时候搞笑，你这主角日常就这么搞是否太刻意了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
