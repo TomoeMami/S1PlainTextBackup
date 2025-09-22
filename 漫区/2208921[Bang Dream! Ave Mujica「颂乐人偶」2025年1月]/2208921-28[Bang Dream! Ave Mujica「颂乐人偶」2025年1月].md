@@ -5318,3 +5318,23 @@ Ave Mujica manuscriptus 12–②
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450610&amp;ptid=2208921" target="_blank">仟音一心 发表于 2025-9-18 14:50</a></blockquote>
 爱音和初华？还有高手？！
 
+
+*****
+
+####  堀内爱里衣  
+##### 41333#       发表于 2025-9-22 19:29
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/22/192925fulyoojun8lr8a8r.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-09-22_19-28-16.jpg</strong> (291.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-22 19:29 上传
+
+       [https://x.com/bang_dream_info/status/1970042886751219762](https://x.com/bang_dream_info/status/1970042886751219762)
+
+       [https://t.co/tIHSUrr4gO](https://t.co/tIHSUrr4gO)
+
