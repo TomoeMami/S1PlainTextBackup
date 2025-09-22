@@ -4402,3 +4402,16 @@ maga圣人是吧
 —— 来自 X ...</blockquote>
 太孝了，怎么不去4ch把发地狱笑话的举报了
 
+
+*****
+
+####  adw667  
+##### 1833#       发表于 2025-9-22 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68468600&amp;ptid=2261694" target="_blank">TTAA 发表于 2025-9-22 09:30</a>
+
+黄皮吗噶真的是
+
+什么时候能看到你美圈一个集中营把他们全送进去</blockquote>
+它美一直在迫害黄皮MAGA，可惜黄皮MAGA会骗自己<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
