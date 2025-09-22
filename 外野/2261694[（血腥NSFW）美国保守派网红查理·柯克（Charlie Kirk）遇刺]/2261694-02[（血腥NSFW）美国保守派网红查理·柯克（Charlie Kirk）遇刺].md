@@ -4517,3 +4517,14 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 
 话说罗伯逊是什么成分有结论吗？
 
+
+*****
+
+####  日日日日日野  
+##### 1844#       发表于 2025-9-23 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68472929&amp;ptid=2261694" target="_blank">参考消息 发表于 2025-9-22 22:47</a>
+
+话说罗伯逊是什么成分有结论吗？</blockquote>
+没有，但这不妨碍**说他是极左
+
