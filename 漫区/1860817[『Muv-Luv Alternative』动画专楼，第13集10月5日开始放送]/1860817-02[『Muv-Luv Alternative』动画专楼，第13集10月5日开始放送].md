@@ -192,3 +192,41 @@ E绅士上有CG包了</blockquote>
 库拉拉不是送一张么</blockquote>
 什么送一张，我怎么不知道<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  03e7  
+##### 2429#       发表于 2025-9-20 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68459389&amp;ptid=1860817" target="_blank">startea15 发表于 2025-9-20 06:29</a>
+
+什么送一张，我怎么不知道</blockquote>
+7天新手任务，完成了送一张
+
+*****
+
+####  startea15  
+##### 2430#       发表于 2025-9-21 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460088&amp;ptid=1860817" target="_blank">03e7 发表于 2025-9-19 19:50</a>
+7天新手任务，完成了送一张</blockquote>
+哦我认错人了，想说绿色的菲没有，库拉拉确实都有
+
+—— 来自 samsung SM-S918U1, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  windlikeman  
+##### 2431#       发表于 2025-9-22 20:19
+
+今天队伍拉到120级终于过爬塔150了
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">试了好久结果把库拉拉踢了就过了...
+
+<img src="https://img.stage1st.com/forum/202509/22/201954n00dmiwi1dydfk0s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (411.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-22 20:19 上传
+
