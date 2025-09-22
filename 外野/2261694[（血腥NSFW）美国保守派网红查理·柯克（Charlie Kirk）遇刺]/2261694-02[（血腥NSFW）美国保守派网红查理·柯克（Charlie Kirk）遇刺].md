@@ -4484,3 +4484,17 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 
 没人提查理·柯克的葬礼弄得跟演唱会一样，是不是观众要买票才能参加网红的葬礼
 
+
+*****
+
+####  Benighted  
+##### 1841#       发表于 2025-9-22 21:52
+
+<img src="https://img.stage1st.com/forum/202509/22/215247lifhp2mp8shligl7.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043583.jpg</strong> (203.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-22 21:52 上传
+
