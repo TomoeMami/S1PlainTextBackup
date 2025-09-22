@@ -4415,3 +4415,14 @@ maga圣人是吧
 什么时候能看到你美圈一个集中营把他们全送进去</blockquote>
 它美一直在迫害黄皮MAGA，可惜黄皮MAGA会骗自己<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanghuangu  
+##### 1834#       发表于 2025-9-22 16:11
+
+查理·柯克追悼会上，塔克·卡尔森暗示以色列人杀害了查理，然后疯狂大笑
+[https://www.bilibili.com/video/B ... cc88ad48ce3914124a2](https://www.bilibili.com/video/BV1o6JfzZEZE/?share_source=copy_web&amp;vd_source=978fce5bcc4eccc88ad48ce3914124a2)
+
+塔克·卡尔森不会是下一个吧，乐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

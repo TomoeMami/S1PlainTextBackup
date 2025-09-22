@@ -1319,3 +1319,36 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 
 刚出深夜时抽了几发直接给法师跟人偶妹安排上了n折叠，结果打到现在别的角色的没一个能凑齐的，，不会还要抽吧
 
+
+*****
+
+####  JackTitor  
+##### 1756#       发表于 2025-9-22 16:05
+
+折叠没我想象中的伤害这么高，难道是我叠的还不够<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sissii  
+##### 1757#       发表于 2025-9-22 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471118&amp;ptid=2210352" target="_blank">JackTitor 发表于 2025-9-22 16:05</a>
+
+折叠没我想象中的伤害这么高，难道是我叠的还不够
+
+—— 来自 HUAWEI SEA-AL10, Android 10, 鹅球 v3.5.99 ...</blockquote>
+看叠法，隐士叠3*魔力+4 3*魔力+2，伤害已经非常可观了。（这个也非常好凑，商店+剧情遗物就给两个魔力），自己抽3个魔力+4就行了。
+
+哈基蜗更是折叠领域大神，雷神火神融化一切。。。
+
+法爵我个人不玩，不喜欢这个法爵打法。
+
+*****
+
+####  Jabeck  
+##### 1758#       发表于 2025-9-22 16:15
+
+深夜模式就是量变引发质变的典型，面对怪一下一个的攻击力玩起来都快变成MMORPG坦克DPS模式了。
+
