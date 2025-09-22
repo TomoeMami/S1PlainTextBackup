@@ -4538,3 +4538,38 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 谁知道呢，FBI给出的聊天短信简直就把“我是伪造的”写在脑门上了，但枪手模仿pepe和骑着ykw公仔的照片是 ...</blockquote>
 那个ykw公仔是MAGA应援物
 
+
+*****
+
+####  参考消息  
+##### 1846#       发表于 2025-9-22 22:47
+
+话说罗伯逊是什么成分有结论吗？
+
+*****
+
+####  日日日日日野  
+##### 1847#       发表于 2025-9-23 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68472929&amp;ptid=2261694" target="_blank">参考消息 发表于 2025-9-22 22:47</a>
+
+话说罗伯逊是什么成分有结论吗？</blockquote>
+没有，但这不妨碍**说他是极左
+
+*****
+
+####  Promeus  
+##### 1848#       发表于 2025-9-23 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471902&amp;ptid=2261694" target="_blank">女权咏唱者 发表于 2025-9-22 18:44</a>
+谁知道呢，FBI给出的聊天短信简直就把“我是伪造的”写在脑门上了，但枪手模仿pepe和骑着ykw公仔的照片是 ...</blockquote>
+那个ykw公仔是MAGA应援物
+
+*****
+
+####  御晴初  
+##### 1849#       发表于 2025-9-23 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68472716&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-22 21:52</a></blockquote>
+有点《血色将至》后面那段年轻牧师在集会上当众给戴刘易斯做洗礼那种感觉了。
+
