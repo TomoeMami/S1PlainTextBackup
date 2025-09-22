@@ -4378,3 +4378,15 @@ maga圣人是吧
 
 <img src="https://p.sda1.dev/27/00f22d4060667f2d292a9e918a985eb4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 1831#       发表于 2025-9-22 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68468437&amp;ptid=2261694" target="_blank">烈焰舞阳 发表于 2025-9-22 09:09</a>
+经典黄皮MAGA之不许嘲笑，否则我想我爹举报吊销你们护照，好像他真的以为护照是美国发的一样
+
+—— 来自 X ...</blockquote>
+哇，原来你们基教的天使都是这样的啊（捂鼻）
+
