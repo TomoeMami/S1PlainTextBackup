@@ -1470,3 +1470,11 @@ PV里就已经有经典小树林和仓库了<img src="https://static.stage1st.co
 
 U咩是在漫才的时候搞笑，你这主角日常就这么搞是否太刻意了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 331#       发表于 2025-9-22 10:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥，真有人把社长说那话当搞笑的吗
+
