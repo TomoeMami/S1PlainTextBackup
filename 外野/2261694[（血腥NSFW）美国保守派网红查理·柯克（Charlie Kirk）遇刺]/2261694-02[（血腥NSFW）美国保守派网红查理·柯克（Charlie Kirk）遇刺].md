@@ -4368,3 +4368,13 @@ maga圣人是吧
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事啊，以前说国内有香蕉人maga总有人狡辩“自己是看taco笑话的，哪里是taco粉丝了”
 现在简单了，如果说自己是看taco笑话的，那么请说一段查理科克的地狱笑话，不能说那就是香蕉人maga
 
+
+*****
+
+####  zeroboss4  
+##### 1830#       发表于 2025-9-22 11:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/00f22d4060667f2d292a9e918a985eb4/image.jpg" referrerpolicy="no-referrer">
+
