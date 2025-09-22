@@ -4498,3 +4498,14 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 
 2025-9-22 21:52 上传
 
+
+*****
+
+####  zerona  
+##### 1842#       发表于 2025-9-22 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471493&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-22 17:19</a>
+
+目前基本可以确定枪手不是之前传的极右了吧, 就是个LGBT, 只能说左派宣传力量恐怖如斯, 漏洞百出的东西都能 ...</blockquote>
+那你看眼现在美国的极右们在干啥？比如1841楼贴的。我的总结：2边都不要去试图靠近。
+
