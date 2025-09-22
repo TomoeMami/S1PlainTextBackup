@@ -1266,3 +1266,36 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 后摇增伤实测非常坑，要是所有怪都能做到完美闪避当我没说，正常人翻滚慢一拍的情况是非常多的，被boss抓 ...</blockquote>
 但是，你翻滚被BOSS抓到，没有满血减伤的情况下，就算没这增伤，也是死啊，深度越高短时效的增伤越没用<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 1751#       发表于 2025-9-22 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470934&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-9-22 15:36</a>
+但是，你翻滚被BOSS抓到，没有满血减伤的情况下，就算没这增伤，也是死啊，深度越高短时效的增伤越没用 ...</blockquote>
+近战抓滚从能抗一刀到一刀秒差距很大啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不考虑深度45这种逼着人玩无伤挑战的，大部分深度3以下的带这个体验极差。
+而且就算是深度45,神鹰哥和无赖这种基础血量高的依然能抗点伤害，也有不少人玩的血量上限折叠，不至于什么招式都被一刀秒，换了这个词条之后暴毙率猛增。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  woodey  
+##### 1752#       发表于 2025-9-22 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470744&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-9-22 15:07</a>
+
+你这说的有对有错，卢恩减少比较伤，圣杯瓶使用增伤和闪避当下增伤只有动作中和后摇的半秒不到才生效，注 ...</blockquote>
+受伤咒死也比较不能接受，耍枪小兵突刺一下就噶了
+
+*****
+
+####  Sissii  
+##### 1753#       发表于 2025-9-22 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470969&amp;ptid=2210352" target="_blank">serj005 发表于 2025-9-22 15:40</a>
+
+近战抓滚从能抗一刀到一刀秒差距很大啊，不考虑深度45这种逼着人玩无伤挑战的，大部分深度3以下的带这个 ...</blockquote>
+我近战是血魔流加局内拿减伤，隐士是六折叠，近战反正失误不会暴毙，远程吃伤害就躺，个人感觉这词条没啥负面效果
+
