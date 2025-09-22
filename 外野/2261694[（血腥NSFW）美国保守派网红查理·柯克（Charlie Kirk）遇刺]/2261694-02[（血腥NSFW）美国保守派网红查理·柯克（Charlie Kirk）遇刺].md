@@ -4390,3 +4390,15 @@ maga圣人是吧
 —— 来自 X ...</blockquote>
 哇，原来你们基教的天使都是这样的啊（捂鼻）
 
+
+*****
+
+####  蒜灵  
+##### 1832#       发表于 2025-9-22 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68468437&amp;ptid=2261694" target="_blank">烈焰舞阳 发表于 2025-9-22 09:09</a>
+经典黄皮MAGA之不许嘲笑，否则我想我爹举报吊销你们护照，好像他真的以为护照是美国发的一样
+
+—— 来自 X ...</blockquote>
+太孝了，怎么不去4ch把发地狱笑话的举报了
+
