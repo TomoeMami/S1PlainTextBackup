@@ -4465,3 +4465,14 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 
 目前基本可以确定枪手不是之前传的极右了吧, 就是个LGBT, 只能说左派宣传力量恐怖如斯, 漏洞百出的东西都能第一时间横跨地球席卷中国
 
+
+*****
+
+####  女权咏唱者  
+##### 1839#       发表于 2025-9-22 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471493&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-22 17:19</a>
+
+目前基本可以确定枪手不是之前传的极右了吧, 就是个LGBT, 只能说左派宣传力量恐怖如斯, 漏洞百出的东西都能 ...</blockquote>
+谁知道呢，FBI给出的聊天短信简直就把“我是伪造的”写在脑门上了，但枪手模仿pepe和骑着ykw公仔的照片是实打实的
+
