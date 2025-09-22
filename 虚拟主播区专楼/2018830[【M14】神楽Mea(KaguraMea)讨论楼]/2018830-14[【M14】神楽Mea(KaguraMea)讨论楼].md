@@ -6427,3 +6427,17 @@ What the **** 太夸张。
 那么各位，感谢光临。
 再见（中文）。
 
+
+*****
+
+####  shmilyhua  
+##### 19607#       发表于 2025-9-22 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68467692&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-9-21 23:48</a>
+才发现楼友的函馆回被下了，有补档或者文件链接吗</blockquote>
+是被星力下的，补档估计也活不了多久。
+1drv.ms/f/c/b725a2e72a1a305c/EkUAMlebpylPjxUzG3D-2HIBiPUB-wGNjXYiMWfyz3bpTQ?e=mluMDO
+这是之前给jimmy传的OD，一会儿我再传个BD。
+
+—— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
