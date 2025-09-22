@@ -1158,3 +1158,20 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 
 [https://www.bilibili.com/video/BV1ezYEz5ER4](https://www.bilibili.com/video/BV1ezYEz5ER4)
 
+
+*****
+
+####  JackTitor  
+##### 1741#       发表于 2025-9-22 12:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  忘却旋律  
+##### 1742#       发表于 2025-9-22 13:38
+
+我想刷点 铁眼 追sir的 改属性词条的2个 遗物，刷了半天 都不出  追sir的 双词条 副词条感人 要么 负面效果感人， 铁眼更是 除了 只出了 加感应 的哪个  另外一个 加力量的 玩到现在 一个没见过，另外一个常玩的女爵 倒是双词条都刷出了 比较好的 而且没什么负面效果的，但是 我特么 无赖 复仇 隐士 执行者 这几个 我从来不碰的 几个 完美词条出了一批又一批是他妈几个意思，这特么也高仓管吗，我他妈就是不喜欢玩  这几个怎么了 你还出了好词条逼我去玩吗，
+
