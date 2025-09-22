@@ -4337,3 +4337,14 @@ maga圣人是吧
 查理柯克立刻回答：很多</blockquote>
 好了，现在有6起了（大概）<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烈焰舞阳  
+##### 1827#       发表于 2025-9-22 09:09
+
+<img src="https://p.sda1.dev/27/991f300f3c738def7750359363090be9/image.jpg" referrerpolicy="no-referrer">
+经典黄皮MAGA之不许嘲笑，否则我想我爹举报吊销你们护照，好像他真的以为护照是美国发的一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
