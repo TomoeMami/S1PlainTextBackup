@@ -354,3 +354,16 @@
 
 這些才算是天才級
 
+
+*****
+
+####  yzxdc  
+##### 265#       发表于 2025-9-22 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465790&amp;ptid=2193746" target="_blank">没什么bu好 发表于 2025-9-21 16:17</a>
+
+眼镜哥做不到无吟唱可以去研究简化吟唱啊，不也一样算天才
+
+----发送自 Xiaomi 24129PN74C,Android 15 ...</blockquote>
+差的远了，所谓努力的天才也有一个路易斯了，至少要做到路易斯那样魔武双修才可以
+
