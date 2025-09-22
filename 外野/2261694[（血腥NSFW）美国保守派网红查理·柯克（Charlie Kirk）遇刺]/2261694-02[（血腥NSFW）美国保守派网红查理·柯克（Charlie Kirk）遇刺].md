@@ -4528,3 +4528,13 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 话说罗伯逊是什么成分有结论吗？</blockquote>
 没有，但这不妨碍**说他是极左
 
+
+*****
+
+####  Promeus  
+##### 1845#       发表于 2025-9-23 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471902&amp;ptid=2261694" target="_blank">女权咏唱者 发表于 2025-9-22 18:44</a>
+谁知道呢，FBI给出的聊天短信简直就把“我是伪造的”写在脑门上了，但枪手模仿pepe和骑着ykw公仔的照片是 ...</blockquote>
+那个ykw公仔是MAGA应援物
+
