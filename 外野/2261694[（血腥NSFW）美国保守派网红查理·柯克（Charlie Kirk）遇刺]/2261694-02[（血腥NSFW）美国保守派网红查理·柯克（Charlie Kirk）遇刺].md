@@ -4426,3 +4426,14 @@ maga圣人是吧
 
 塔克·卡尔森不会是下一个吧，乐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 1835#       发表于 2025-9-22 16:22
+
+突然发现他老婆叫Erika。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那很根正苗红的辣脆了.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
