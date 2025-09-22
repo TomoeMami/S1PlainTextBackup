@@ -4311,3 +4311,14 @@ maga圣人是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  幽远ghofar  
+##### 1825#       发表于 2025-9-22 08:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68460709&amp;ptid=2261694" target="_blank">与何人说 发表于 2025-9-20 13:02</a>
+
+这也太弱智了，堕胎问题是神学问题，中式思维代入个鸡儿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">如果我记得没错，这位是能把米莱和尹锡悦上位都归功于他们反女拳的神人，总之万事万物都能一转反女拳，只要你反女拳就能获得他口中的“沉默的大多数”的支持
+

@@ -717,3 +717,20 @@ https://www.bilibili.com/video/av115078061885361/</blockquote>
 
 她第一发技能没伤害的！
 
+
+*****
+
+####  flyzzhj  
+##### 47462#       发表于 2025-9-22 08:08
+
+3200天的30石，最后的波纹没想到BB池的一发10连全出了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+BB.jpg
+(441.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-22 08:08 上传
+
+<img src="https://img.stage1st.com/forum/202509/22/080835m07aa22s0aiaz75l.jpg" referrerpolicy="no-referrer">
+
