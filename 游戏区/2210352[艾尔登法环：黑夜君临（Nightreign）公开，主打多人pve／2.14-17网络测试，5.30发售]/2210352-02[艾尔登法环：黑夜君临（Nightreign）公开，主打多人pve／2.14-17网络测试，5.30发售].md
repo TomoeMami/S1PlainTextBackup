@@ -1232,3 +1232,37 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 
 不过负面词条真正的毒瘤应该是持续扣血，感觉只要摊上这个词条整个遗物就废了。不过现在只要正面词条够极品就算负面剧毒的遗物我都一律留下了，赌的就是小石日后出洗遗物系统（（（（（（
 
+
+*****
+
+####  serj005  
+##### 1748#       发表于 2025-9-22 15:32
+
+ 本帖最后由 serj005 于 2025-9-22 15:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470744&amp;ptid=2210352" target="_blank">Sissii 发表于 2025-9-22 15:07</a>
+你这说的有对有错，卢恩减少比较伤，圣杯瓶使用增伤和闪避当下增伤只有动作中和后摇的半秒不到才生效，注 ...</blockquote>
+后摇增伤实测非常坑，要是所有怪都能做到完美闪避当我没说，正常人翻滚慢一拍的情况是非常多的，被boss抓到一个后摇基本就被秒了，145%的伤害实在太高。
+还有面对数个杂兵的时候小怪随手一刀砍到闪避后摇就是大残。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sissii  
+##### 1749#       发表于 2025-9-22 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470864&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-9-22 15:25</a>
+
+感觉铁眼改力量加点的那个遗物有点陷阱，至今也没琢磨出力量流铁眼有什么套路（总不能玩大弓吧），如果只是 ...</blockquote>
+力量铁眼感觉是单人用的，单人怪物韧性低，标记加近战武器高削韧高伤可以短时间爆标记，三人模式里面怪的血量和韧性不支持铁眼这么打了，老老实实玩毒爆弓上标记，等着法系猛猛输出吧。
+
+*****
+
+####  Sissii  
+##### 1750#       发表于 2025-9-22 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68470912&amp;ptid=2210352" target="_blank">serj005 发表于 2025-9-22 15:32</a>
+
+后摇增伤实测非常坑，要是所有怪都能做到完美闪避当我没说，正常人翻滚慢一拍的情况是非常多的，被boss抓 ...</blockquote>
+但是，你翻滚被BOSS抓到，没有满血减伤的情况下，就算没这增伤，也是死啊，深度越高短时效的增伤越没用<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
