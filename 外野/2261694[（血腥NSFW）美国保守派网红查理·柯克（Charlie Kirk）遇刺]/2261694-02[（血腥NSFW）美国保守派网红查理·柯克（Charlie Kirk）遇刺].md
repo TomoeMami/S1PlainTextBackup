@@ -4893,3 +4893,15 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 而左不同，经书倡导的类容是跨洋的，跨一切组织，而且天然联合，所以这是真的能够离岸养殖。
 
+
+*****
+
+####  xuanwu_lei  
+##### 1881#       发表于 2025-9-23 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68477181&amp;ptid=2261694" target="_blank">tansapple 发表于 2025-9-23 17:38</a>
+只有老美叙事上脑的人才会纠结枪手的身份，因为他们脑子里只容得下二元论 ...</blockquote>
+说白了，哪怕单从选举政治观察的模式来讲，美国这种从第一党系修修补补到第七党系的「两坨选一坨」体制，不管是德国的握手帐篷还是法国的民选皇帝，都比美国这坨屎山代码要务实得多
+
+甚至美军在美国本土成立GHQ然后建立美式自民党都比现在这个屎山代码靠谱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
