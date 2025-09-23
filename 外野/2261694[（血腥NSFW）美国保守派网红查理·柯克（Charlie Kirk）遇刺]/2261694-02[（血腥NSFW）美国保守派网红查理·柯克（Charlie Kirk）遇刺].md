@@ -4787,3 +4787,18 @@ taco反什么lgbt你就当说说就行了
 
 老美现在是把多层大蛋糕用刀竖着切完，拿着两块差不多的告诉你这俩完全不一样，拿着其中一块告诉你奶油、水果和蛋糕体是一模一样的。魔怔人应该是拿蛋糕拍脸的
 
+
+*****
+
+####  加兰凡特  
+##### 1870#       发表于 2025-9-23 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475305&amp;ptid=2261694" target="_blank">守名居 发表于 2025-9-23 12:42</a>
+
+怎么还在纠结阿美的那种左右啊
+
+taco反什么lgbt你就当说说就行了
+
+贝森特就是明牌gay，还是taco提拔上来的</blockquote>
+因为泥潭真的有极右（不是说极左就没有的意思）
+
