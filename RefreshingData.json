@@ -2205,12 +2205,12 @@
     "update": false
   },
   "2027972": {
-    "totalreply": 1929,
+    "totalreply": 1930,
     "title": "[Gran Turismo 7 ／ GT7 讨论专楼]",
     "newtitle": "[Gran Turismo 7 ／ GT7 讨论专楼]",
-    "lastedit": 1754706017,
+    "lastedit": 1758641171,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2034757": {
@@ -6165,10 +6165,10 @@
     "update": false
   },
   "2148387": {
-    "totalreply": 1685,
+    "totalreply": 1686,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然是8e]",
-    "lastedit": 1758616453,
+    "lastedit": 1758641171,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 11140,
+    "totalreply": 11142,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1758639973,
+    "lastedit": 1758640934,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11970,10 +11970,10 @@
     "update": false
   },
   "2100506": {
-    "totalreply": 667,
+    "totalreply": 668,
     "title": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
     "newtitle": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
-    "lastedit": 1758639612,
+    "lastedit": 1758640809,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12893,15 +12893,6 @@
     "newtitle": "[丝之歌发售10天后MC均分预测]",
     "lastedit": 1757522271,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2261548": {
-    "totalreply": 74,
-    "title": "[奔驰高管：东大电车靠烧钱的模式撑不过五年，时间是站在我们奔驰这边]",
-    "newtitle": "[奔驰高管：东大电车靠烧钱的模式撑不过五年，时间是站在我们奔驰这边]",
-    "lastedit": 1757431217,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -15678,10 +15669,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 1991,
+    "totalreply": 1995,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1758640336,
+    "lastedit": 1758641171,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16083,10 +16074,10 @@
     "update": false
   },
   "2262425": {
-    "totalreply": 177,
+    "totalreply": 178,
     "title": "[麦当劳和黑神话联名，有人要哈气了]",
     "newtitle": "[麦当劳和黑神话联名，有人要哈气了]",
-    "lastedit": 1758640092,
+    "lastedit": 1758640934,
     "category": "外野",
     "active": true,
     "update": false
@@ -16677,10 +16668,10 @@
     "update": false
   },
   "2262610": {
-    "totalreply": 459,
+    "totalreply": 463,
     "title": "[今年最强台风“桦加沙”来袭]",
     "newtitle": "[今年最强台风“桦加沙”来袭]",
-    "lastedit": 1758640091,
+    "lastedit": 1758641288,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17118,10 @@
     "update": false
   },
   "2262793": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[为啥到处都是韩国游客]",
     "newtitle": "[为啥到处都是韩国游客]",
-    "lastedit": 1758638544,
+    "lastedit": 1758641289,
     "category": "外野",
     "active": true,
     "update": false
@@ -17181,10 +17172,10 @@
     "update": false
   },
   "2262158": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[nate：下周将有ps发布会]",
     "newtitle": "[新一期sop官宣：9.25凌晨三点，时长35分钟]",
-    "lastedit": 1758639375,
+    "lastedit": 1758641171,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17204,6 +17195,15 @@
     "newtitle": "[四月三原创，火车、gbc、水母，单集评分(第六集.ver)]",
     "lastedit": 1758638547,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2261213": {
+    "totalreply": 67,
+    "title": "[【剧透】伊苏8真结局通关！说说感想及对X的想法]",
+    "newtitle": "[【剧透】伊苏8真结局通关！说说感想及对X的想法]",
+    "lastedit": 1758640812,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
