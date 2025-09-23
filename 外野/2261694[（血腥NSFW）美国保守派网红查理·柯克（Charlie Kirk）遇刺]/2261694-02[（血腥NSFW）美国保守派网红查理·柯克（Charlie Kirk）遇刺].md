@@ -4608,3 +4608,47 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 离岸MAGA甚至不知道LGB是懂贼大帐篷的一部分，只是踢走了T而已 ...</blockquote>
 那他插的不正是T的皮炎吗?
 
+
+*****
+
+####  FanFun  
+##### 1853#       发表于 2025-9-23 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474048&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-23 09:16</a>
+「土殖的最大问题是土」这句话还在发力
+
+离岸MAGA甚至不知道LGB是懂贼大帐篷的一部分，只是踢走了T而已</blockquote>
+可凶手的恋人就是T啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuanwu_lei  
+##### 1854#       发表于 2025-9-23 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474057&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-23 09:18</a>
+那他插的不正是T的皮炎吗? 帮我证明?</blockquote>
+画圈处也可以看做父权菲勒斯<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/45858a982c6ce03b04ab55d3b425ca42/image.jpg" referrerpolicy="no-referrer">
+
+枪手是督皮燕子那个又不是摘蛋那个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 1855#       发表于 2025-9-23 09:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡毛秀这就复活了？会否太快了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  张元英  
+##### 1856#       发表于 2025-9-23 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474088&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-23 09:22</a>
+
+画圈处也可以看做父权菲勒斯</blockquote>
+为爱杀人有什么难以理解的吗
+
