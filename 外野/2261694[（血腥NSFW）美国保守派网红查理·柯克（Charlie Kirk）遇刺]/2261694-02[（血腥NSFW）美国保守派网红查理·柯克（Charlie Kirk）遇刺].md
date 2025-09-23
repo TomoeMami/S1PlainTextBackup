@@ -4671,3 +4671,30 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 
 ykw签了把antifa列为恐怖组织的行政令<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 1859#       发表于 2025-9-23 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474974&amp;ptid=2261694" target="_blank">pushare 发表于 2025-9-23 11:45</a>
+
+ykw签了把antifa列为恐怖组织的行政令</blockquote>
+<blockquote>第1条 安提法构成恐怖主义威胁。安提法是一个**、无政府主义组织，公然呼吁推翻美国政府、执法当局及法律体系。该组织通过非法手段在全国范围内策划并实施暴力与恐怖活动以实现其目标，<strong>包括通过武装对峙阻碍联邦法律执行、组织暴乱、暴力袭击移民海关执法局及其他执法人员</strong>，并系统性曝光政治人物与活动人士隐私以实施威胁。安提法招募、训练并煽动美国年轻人参与暴力活动及压制政治行动，同时采用复杂手段隐藏成员身份、掩盖资金源与运作模式以逃避执法打击，持续扩充成员规模。 与安提法有关联并代表其行事的个人，进一步与其他组织和实体协调，以传播、煽动和推进政治暴力，并压制合法的政治言论。这种旨在通过胁迫和恐吓实现政策目标的组织化努力，属于国内恐怖主义。
+
+第 2 条 指定为国内恐怖组织。鉴于上述旨在压制合法政治活动和阻碍法治的政治暴力模式，我特此将安提法指定为“国内恐怖组织”。所有相关的行政部门和机构应运用所有适用的权力，调查、瓦解和摧毁安提法或任何声称代表安提法行事的人，或安提法或任何声称代表安提法行事的人提供物质支持的所有非法行动——特别是涉及恐怖行为的行动，包括对资助此类行动的人采取必要的调查和起诉行动。
+
+第 3 条 总则。(a) 本行政令的执行须符合适用法律规定。本行政令无意创设、也未创设任何法律或衡平法上可由任何一方针对美国及其部门、机构或实体、其官员、雇员或代理人或任何其他人士强制执行的实际或程序性权利或利益。</blockquote>
+
+以后只要跟ICE对着干都可以作为**抓起来了，好日子来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  全都笑了  
+##### 1860#       发表于 2025-9-23 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474974&amp;ptid=2261694" target="_blank">pushare 发表于 2025-9-23 11:45</a>
+
+ykw签了把antifa列为恐怖组织的行政令</blockquote>
+极佐的标准下场，一生追求拿手枪上拳击台，在权力庇护下出尽盘外招恶整对手，结果往往发展成上了内战战场，然而手里还是只有手枪<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
