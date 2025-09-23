@@ -4883,3 +4883,13 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 你管枪手前后左右呢，反正一枪崩死个巨魔算为民除害了（甚至可能除了不止一个害
 
+
+*****
+
+####  卡嘎米  
+##### 1880#       发表于 2025-9-23 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老保阵营和对岸maga阵营其实是一类右人，只有在喷左的时候有共同语言，除开这个互相都是敌人，所谓离岸maga不过是互相没见面，见面3分钟就得打起来。
+
+而左不同，经书倡导的类容是跨洋的，跨一切组织，而且天然联合，所以这是真的能够离岸养殖。
+
