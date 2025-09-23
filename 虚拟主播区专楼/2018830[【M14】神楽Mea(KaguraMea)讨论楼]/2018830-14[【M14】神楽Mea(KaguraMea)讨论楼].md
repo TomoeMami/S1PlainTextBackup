@@ -7018,3 +7018,16 @@ Win曲。
 
 不是很懂tgs，主播出场是27号中午，不知道有没有直播能看到
 
+
+*****
+
+####  shmilyhua  
+##### 19611#       发表于 2025-9-24 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68478974&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-9-24 00:28</a>
+不是很懂tgs，主播出场是27号中午，不知道有没有直播能看到</blockquote>
+有的。
+youtube.com/live/yLIeiBiXCSQ
+
+—— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
