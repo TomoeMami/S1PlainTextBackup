@@ -4836,3 +4836,11 @@ bro，0个人在意白人左派和白人右派谁才是对的
 Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Eric_方歌阙  
+##### 1874#       发表于 2025-9-23 17:14
+
+我说怎么美国贴吧全是把antifa和反法西斯历史照片联系在一起的通稿呢<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
