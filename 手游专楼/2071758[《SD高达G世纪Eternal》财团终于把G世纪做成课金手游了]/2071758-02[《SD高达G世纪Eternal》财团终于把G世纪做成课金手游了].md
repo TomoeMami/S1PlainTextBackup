@@ -4754,3 +4754,22 @@ G跟绿色幼女控双限定吗
 
 这个舅舅党有点东西
 
+
+*****
+
+####  arthes  
+##### 2701#       发表于 2025-9-23 19:57
+
+神高达有点酷炫啊，还带洗牌同盟拳的
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">卖BGM了 3800日元好像
+
+
+*****
+
+####  jackyhuang  
+##### 2702#       发表于 2025-9-23 20:04
+
+高达也能开冠位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
