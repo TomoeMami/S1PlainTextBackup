@@ -4735,3 +4735,14 @@ ykw签了把antifa列为恐怖组织的行政令</blockquote>
 以后只要跟ICE对着干都可以作为**抓起来了，好日子来了</blockquote>
 都说了针对ICE检查最快捷的方式就是直接西嗨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  素盏鸣尊  
+##### 1865#       发表于 2025-9-23 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474007&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-23 09:06</a>
+
+反对户晨风的人玩他的苹果安卓梗也不会有什么不适, 拜登也亲手戴过MAGA帽, 但是不会有直男因为玩梗就去插 ...</blockquote>
+双也可以查男人皮炎啊。怎么就不是直男了。更何况还是男娘，在武德高地纯阳阿拉伯文化中是标准大丈夫。
+
