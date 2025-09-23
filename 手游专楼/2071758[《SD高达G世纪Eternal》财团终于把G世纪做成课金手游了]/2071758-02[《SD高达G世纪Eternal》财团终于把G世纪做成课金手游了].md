@@ -4827,3 +4827,21 @@ G跟绿色幼女控双限定吗
 没得看直播，有无总结</blockquote>
 [https://bbs.nga.cn/read.php?tid=45187904](https://bbs.nga.cn/read.php?tid=45187904)   看图可以快速概括直播内容
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2709#       发表于 2025-9-23 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68478187&amp;ptid=2071758" target="_blank">arthes 发表于 2025-9-23 21:11</a>
+
+https://bbs.nga.cn/read.php?tid=45187904   看图可以快速概括直播内容</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 2710#       发表于 2025-9-23 21:36
+
+算战舰4up了，代便似乎并没有那么友好
+
