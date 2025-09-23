@@ -4822,3 +4822,17 @@ bro，0个人在意白人左派和白人右派谁才是对的<img src="https://s
 
 吃瓜看戏过程中被喷，唯一原因，只有带入戏中人，挡住电视机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就咋的  
+##### 1873#       发表于 2025-9-23 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68476671&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-23 16:18</a>
+
+bro，0个人在意白人左派和白人右派谁才是对的
+
+吃瓜看戏过程中被喷，唯一原因，只有带入戏中人，挡住电视 ...</blockquote>
+Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
