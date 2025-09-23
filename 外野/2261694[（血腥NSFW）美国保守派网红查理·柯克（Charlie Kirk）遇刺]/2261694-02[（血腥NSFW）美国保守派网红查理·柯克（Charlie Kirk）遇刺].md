@@ -4768,3 +4768,14 @@ taco反什么lgbt你就当说说就行了
 那个ykw公仔是MAGA应援物</blockquote>
 大概我的表述产生了歧义，我的意思就是想说这照片证明了枪手有MAGA属性
 
+
+*****
+
+####  广州粉肠  
+##### 1868#       发表于 2025-9-23 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475119&amp;ptid=2261694" target="_blank">jasongoden 发表于 2025-9-23 12:08</a>
+
+人家是变性同居的同时还是玩枪高手。这种后现代中间派上网魔怔人分左右已经没啥意义了，难不成以后凡是出现 ...</blockquote>
+只能说这种老旧的政治划分越来越不好用了
+
