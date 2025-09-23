@@ -140,3 +140,14 @@
 
 我能接受防人女王一集下线，但是至少唱个歌啊，把上周的特殊ED重唱一次也好啊
 
+
+*****
+
+####  lydia5989  
+##### 174#       发表于 2025-9-23 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68468070&amp;ptid=2187541" target="_blank">32767 发表于 2025-9-22 04:07</a>
+
+我能接受防人女王一集下线，但是至少唱个歌啊，把上周的特殊ED重唱一次也好啊 ...</blockquote>
+太贵了舍不得花钱 2333
+
