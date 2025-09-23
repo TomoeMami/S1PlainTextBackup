@@ -1377,3 +1377,11 @@ TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平
 
 <img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不是，不看的人跑来这发病是咋样
 
+
+*****
+
+####  oi99o  
+##### 142#       发表于 2025-9-23 16:42
+
+水魔的时候不也是在吐槽为什么不是大河内的单集脚本，双人脚本是不是意味着改剧本了云云<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
