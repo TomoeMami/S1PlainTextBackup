@@ -4693,3 +4693,14 @@ bug……这个是
 
 无脑all in骡子就对了，骡叔叔还会骗你吗
 
+
+*****
+
+####  电脑死机  
+##### 2694#       发表于 2025-9-23 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68472251&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-22 20:03</a>
+
+无脑all in骡子就对了，骡叔叔还会骗你吗</blockquote>
+我那边就一台ur，战舰也是送的，也是随便打到16w了，安心吃完低保摆烂
+
