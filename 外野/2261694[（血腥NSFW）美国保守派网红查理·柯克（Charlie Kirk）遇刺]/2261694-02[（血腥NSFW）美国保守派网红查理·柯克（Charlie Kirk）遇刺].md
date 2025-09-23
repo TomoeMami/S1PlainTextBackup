@@ -4844,3 +4844,11 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 我说怎么美国贴吧全是把antifa和反法西斯历史照片联系在一起的通稿呢<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幽远ghofar  
+##### 1875#       发表于 2025-9-23 17:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">bro，原来还真有中国人跟着maga的指挥棒起舞，整天纠结枪手到底是左还是右
+
