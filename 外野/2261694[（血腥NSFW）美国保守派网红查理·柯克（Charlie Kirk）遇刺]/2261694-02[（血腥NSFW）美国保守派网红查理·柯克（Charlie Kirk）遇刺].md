@@ -4905,3 +4905,39 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 甚至美军在美国本土成立GHQ然后建立美式自民党都比现在这个屎山代码靠谱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nianiania  
+##### 1882#       发表于 2025-9-23 19:08
+
+泥潭还真有人对老美的身份政治入脑啊，我还以为国内搞这套的只会叫皇汉满姨呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  TTAA  
+##### 1883#       发表于 2025-9-23 19:13
+
+为什么会有人跟着美帝意识形态指挥棒分左右，很简单，因为泥潭真有白右
+可能现在媒体叙事太发达，有些人把你美媒体写的新闻报道当作小说一样读。然后他们日常接触的媒体就那几个游戏，哦，现在白左删除我喜欢的游戏角色，badbad,**冬蒜。
+平日里在互联网见到的白右多半就是这样，本质上和4ch那些蛆差不多。如果你重读毛选第一卷第一章，会发现小资里的右派是这样的，一百年后还是这样，他们就是太喜欢活在自己那点世界里了。
+怎么办呢，你总不能请这些人回高中重修辩证法和历史唯物主义吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xuanwu_lei| + 1|欢乐多|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+

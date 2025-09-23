@@ -1405,3 +1405,16 @@ TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平
 
 不过我也没看过少战，不清楚具体情况就是了。
 
+
+*****
+
+####  ardente  
+##### 145#       发表于 2025-9-23 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68477564&amp;ptid=2140549" target="_blank">伊露伊道格拉斯 发表于 2025-9-23 18:56</a>
+
+听人说好像是学的少战模式，搞什么有生之年剧场版。
+
+不过我也没看过少战，不清楚具体情况就是了。 ...</blockquote>
+制作公司确实是共同制作的，少战人气热度少说高十倍都有，人家随便玩，prpr学同商法说一句丢人现眼都是好听的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
