@@ -1369,3 +1369,11 @@ TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平
 
 水魔出来后：<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 141#       发表于 2025-9-23 16:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不是，不看的人跑来这发病是咋样
+

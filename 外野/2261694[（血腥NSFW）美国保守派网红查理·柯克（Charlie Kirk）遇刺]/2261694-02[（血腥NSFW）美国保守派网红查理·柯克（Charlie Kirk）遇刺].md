@@ -4810,3 +4810,15 @@ taco反什么lgbt你就当说说就行了
 
 一堆之前嘴上喊着反白左的在这里疯狂帮白左辩护, 当白左虫群下属, 只能说终于不装了
 
+
+*****
+
+####  xuanwu_lei  
+##### 1872#       发表于 2025-9-23 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68476645&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-23 16:13</a>
+一堆之前嘴上喊着反白左的在这里疯狂帮白左辩护, 当白左虫群下属, 只能说终于不装了 ...</blockquote>
+bro，0个人在意白人左派和白人右派谁才是对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+吃瓜看戏过程中被喷，唯一原因，只有带入戏中人，挡住电视机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
