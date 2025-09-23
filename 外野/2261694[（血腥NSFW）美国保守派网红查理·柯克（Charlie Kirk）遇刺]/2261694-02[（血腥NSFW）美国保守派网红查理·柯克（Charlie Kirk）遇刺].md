@@ -4698,3 +4698,40 @@ ykw签了把antifa列为恐怖组织的行政令</blockquote>
 ykw签了把antifa列为恐怖组织的行政令</blockquote>
 极佐的标准下场，一生追求拿手枪上拳击台，在权力庇护下出尽盘外招恶整对手，结果往往发展成上了内战战场，然而手里还是只有手枪<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  张元英  
+##### 1861#       发表于 2025-9-23 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474696&amp;ptid=2261694" target="_blank">参考消息 发表于 2025-9-23 11:00</a>
+
+就是确定有变性**同居？</blockquote>
+有多方消息验证了, 左派基本也不否认这点, 只能用其他无关紧要的东西来混淆视听
+
+*****
+
+####  全都笑了  
+##### 1862#       发表于 2025-9-23 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475026&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-23 11:55</a>
+
+以后只要跟ICE对着干都可以作为**抓起来了，好日子来了</blockquote>
+登子得势那两年，黄冥猪邪档没少吹这些冲锋队，这下全体变成涉恐，要和ice玩大健身了。这些人当初无非是想爱美国，妹想到在中国爱美国远比在美国爱美国安全。
+
+*****
+
+####  jasongoden  
+##### 1863#       发表于 2025-9-23 12:08
+
+人家是变性同居的同时还是玩枪高手。这种后现代中间派上网魔怔人分左右已经没啥意义了，难不成以后凡是出现这种上网魔怔人你们都要分个派系吗
+
+*****
+
+####  xuanwu_lei  
+##### 1864#       发表于 2025-9-23 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475026&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-23 11:55</a>
+以后只要跟ICE对着干都可以作为**抓起来了，好日子来了</blockquote>
+都说了针对ICE检查最快捷的方式就是直接西嗨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
