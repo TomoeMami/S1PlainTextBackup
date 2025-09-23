@@ -4573,3 +4573,38 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68472716&amp;ptid=2261694" target="_blank">Benighted 发表于 2025-9-22 21:52</a></blockquote>
 有点《血色将至》后面那段年轻牧师在集会上当众给戴刘易斯做洗礼那种感觉了。
 
+
+*****
+
+####  最终空想  
+##### 1850#       发表于 2025-9-23 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68471493&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-22 17:19</a>
+目前基本可以确定枪手不是之前传的极右了吧, 就是个LGBT, 只能说左派宣传力量恐怖如斯, 漏洞百出的东西都能 ...</blockquote>
+需要在两坨里面选一坨的是美国人，中国人纯纯看乐子起个哄就可以了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  xuanwu_lei  
+##### 1851#       发表于 2025-9-23 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474007&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-23 09:06</a>
+反对户晨风的人玩他的苹果安卓梗也不会有什么不适, 拜登也亲手戴过MAGA帽, 但是不会有直男因为玩梗就去插 ...</blockquote>
+「土殖的最大问题是土」这句话还在发力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+离岸MAGA甚至不知道LGB是懂贼大帐篷的一部分，只是踢走了T而已<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  张元英  
+##### 1852#       发表于 2025-9-23 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474048&amp;ptid=2261694" target="_blank">xuanwu_lei 发表于 2025-9-23 09:16</a>
+
+「土殖的最大问题是土」这句话还在发力
+
+离岸MAGA甚至不知道LGB是懂贼大帐篷的一部分，只是踢走了T而已 ...</blockquote>
+那他插的不正是T的皮炎吗?
+
