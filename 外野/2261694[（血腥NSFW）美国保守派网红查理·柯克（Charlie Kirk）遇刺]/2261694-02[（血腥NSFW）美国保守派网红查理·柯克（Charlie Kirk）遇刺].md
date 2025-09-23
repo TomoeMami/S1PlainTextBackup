@@ -4852,3 +4852,26 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">bro，原来还真有中国人跟着maga的指挥棒起舞，整天纠结枪手到底是左还是右
 
+
+*****
+
+####  tansapple  
+##### 1876#       发表于 2025-9-23 17:38
+
+只有老美叙事上脑的人才会纠结枪手的身份，因为他们脑子里只容得下二元论<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liuguokobe  
+##### 1877#       发表于 2025-9-23 17:42
+
+这二极管得仿佛只要确定了枪手的倾向那反方向就一定正确一般可笑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1878#       发表于 2025-9-23 17:46
+
+我就希望白左白右打出狗脑子。怎么坛友真情实感干起来了。 
+
