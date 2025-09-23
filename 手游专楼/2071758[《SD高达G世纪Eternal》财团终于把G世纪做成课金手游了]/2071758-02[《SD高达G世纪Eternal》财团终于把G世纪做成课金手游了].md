@@ -4773,3 +4773,30 @@ G跟绿色幼女控双限定吗
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ティグル  
+##### 2703#       发表于 2025-9-23 20:07
+
+乐，这么看闪哈2还真是26年初上映了
+
+这不纯赶鸭子上架吗
+
+还是说祖宗之法不可变继续沿用SDGG里的设定？
+
+
+*****
+
+####  arthes  
+##### 2704#       发表于 2025-9-23 20:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 2705#       发表于 2025-9-23 20:15
+
+这次半周年真良心吧，不像万代<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
