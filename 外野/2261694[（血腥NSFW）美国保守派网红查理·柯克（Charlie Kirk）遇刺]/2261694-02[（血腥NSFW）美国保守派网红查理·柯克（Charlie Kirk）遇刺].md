@@ -4757,3 +4757,14 @@ taco反什么lgbt你就当说说就行了
 贝森特就是明牌gay，还是taco提拔上来的
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  女权咏唱者  
+##### 1867#       发表于 2025-9-23 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68473290&amp;ptid=2261694" target="_blank">Promeus 发表于 2025-9-23 00:30</a>
+
+那个ykw公仔是MAGA应援物</blockquote>
+大概我的表述产生了歧义，我的意思就是想说这照片证明了枪手有MAGA属性
+
