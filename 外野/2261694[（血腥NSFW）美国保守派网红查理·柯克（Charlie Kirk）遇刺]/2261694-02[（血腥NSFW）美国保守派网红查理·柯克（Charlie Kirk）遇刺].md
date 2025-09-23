@@ -4652,3 +4652,14 @@ auf...auf der Heide blüht ein kleines Blümelein! （突然激昂）
 画圈处也可以看做父权菲勒斯</blockquote>
 为爱杀人有什么难以理解的吗
 
+
+*****
+
+####  参考消息  
+##### 1857#       发表于 2025-9-23 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68474007&amp;ptid=2261694" target="_blank">张元英 发表于 2025-9-23 09:06</a>
+
+反对户晨风的人玩他的苹果安卓梗也不会有什么不适, 拜登也亲手戴过MAGA帽, 但是不会有直男因为玩梗就去插 ...</blockquote>
+就是确定有变性**同居？
+
