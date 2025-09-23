@@ -4746,3 +4746,14 @@ ykw签了把antifa列为恐怖组织的行政令</blockquote>
 反对户晨风的人玩他的苹果安卓梗也不会有什么不适, 拜登也亲手戴过MAGA帽, 但是不会有直男因为玩梗就去插 ...</blockquote>
 双也可以查男人皮炎啊。怎么就不是直男了。更何况还是男娘，在武德高地纯阳阿拉伯文化中是标准大丈夫。
 
+
+*****
+
+####  守名居  
+##### 1866#       发表于 2025-9-23 12:42
+
+怎么还在纠结阿美的那种左右啊
+taco反什么lgbt你就当说说就行了
+贝森特就是明牌gay，还是taco提拔上来的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
