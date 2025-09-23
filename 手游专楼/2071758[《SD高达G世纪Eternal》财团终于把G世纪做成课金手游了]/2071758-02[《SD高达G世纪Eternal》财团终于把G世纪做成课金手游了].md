@@ -4816,3 +4816,14 @@ G跟绿色幼女控双限定吗
 
 没得看直播，有无总结
 
+
+*****
+
+####  arthes  
+##### 2708#       发表于 2025-9-23 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68478089&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-23 20:52</a>
+
+没得看直播，有无总结</blockquote>
+[https://bbs.nga.cn/read.php?tid=45187904](https://bbs.nga.cn/read.php?tid=45187904)   看图可以快速概括直播内容
+
