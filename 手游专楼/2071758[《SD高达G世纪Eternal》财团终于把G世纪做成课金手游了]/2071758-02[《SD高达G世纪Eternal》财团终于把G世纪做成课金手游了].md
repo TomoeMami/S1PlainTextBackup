@@ -4910,3 +4910,11 @@ UR-》 UUR -〉 UUUR
 
 掉毛肯定没戏啊，等着圣诞节一起更新剧情呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜之光  
+##### 2718#       发表于 2025-9-24 14:05
+
+这周年连抽给我看笑了，UR和SSR几率都砍了半
+
