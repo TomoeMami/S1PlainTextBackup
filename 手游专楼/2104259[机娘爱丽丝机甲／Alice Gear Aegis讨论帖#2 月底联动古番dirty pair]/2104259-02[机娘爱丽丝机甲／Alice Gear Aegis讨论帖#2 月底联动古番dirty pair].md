@@ -20,3 +20,11 @@ FY13 7493 CQ6U UJAN
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  alialex  
+##### 1672#       发表于 2025-9-24 10:56
+
+看着群里死亡冲刺的队长真是愉悦啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
