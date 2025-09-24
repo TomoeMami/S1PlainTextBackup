@@ -66,3 +66,11 @@ Arrowhead开发团队
 <img src="https://p.sda1.dev/27/3df9074f13b111df2d45082d43e041e4/CMP_20250925000526868.jpeg" referrerpolicy="no-referrer">
 转个问答
 
+
+*****
+
+####  6x6z6w  
+##### 7146#       发表于 2025-9-25 00:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能说出“反作弊对性能影响微乎其微”我真的乐死了，gameguard这破软件在你启动游戏时连你电脑摄像头设置都会改的，你老实说你签了几年合同必须要用这个反作弊不就行了？
+
