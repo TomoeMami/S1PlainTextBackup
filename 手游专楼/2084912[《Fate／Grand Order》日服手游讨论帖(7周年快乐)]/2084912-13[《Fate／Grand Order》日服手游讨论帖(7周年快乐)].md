@@ -119,3 +119,117 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 18263#       发表于 2025-9-24 18:47
+
+ 本帖最后由 Jamaisvu 于 2025-9-24 18:55 编辑 
+
+<img src="https://img.stage1st.com/forum/202509/24/184646bvclqhlq3o323krb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250924_184632.jpg</strong> (186.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 18:46 上传
+
+这个太妹应该是新卫星，不会有二池吧？
+
+二池看剪影是男人：
+
+<img src="https://img.stage1st.com/forum/202509/24/184944d41wmm94t3kwmdo9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250924_184917.png</strong> (219.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 18:49 上传
+
+应该是PV里这位白发黑挑染的面具帅哥：
+
+<img src="https://img.stage1st.com/forum/202509/24/185451jyu80frl8lzfo573.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250924_185357.png</strong> (134.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 18:54 上传
+
+<img src="https://img.stage1st.com/forum/202509/24/185451lzlndlduyyneqluf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250924_185408.png</strong> (72.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 18:54 上传
+
+咕哒咕哒活动历代都有一些只建模不实装的NPC，不知道这次轮到谁了...没建模的卫星倒是有落地可能，比如高杉晋助。
+
+*****
+
+####  壳壳牛  
+##### 18264#       发表于 2025-9-24 18:51
+
+黑崎一护艹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  exiaexa  
+##### 18265#       发表于 2025-9-24 18:53
+
+<img src="https://img.stage1st.com/forum/202509/24/185309muq05v2j2730ua8r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-24 18:53 上传
+
+已经笑死了，帮楼上贴个图
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jamaisvu| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 18266#       发表于 2025-9-24 18:58
+
+我们FGO联动浪客剑心还联动死神啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18267#       发表于 2025-9-24 18:58
+
+距离终章还有三个活动，三场戴冠战：
+
+<img src="https://img.stage1st.com/forum/202509/24/185729vjnj3wzokh6ughiu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250924_185657.png</strong> (271.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 18:57 上传
+
+第三个活动得想个办法让盖提亚落地吧，从而打冠位所罗门。
+
