@@ -36,3 +36,11 @@ Arrowhead开发团队
 
 早点承认自己没能力短时间内修复把事情说明白不就完了，拖到现在面子里子都丢完了才承认<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 7143#       发表于 2025-9-24 22:55
+
+静音强袭硬拖一年半，TAA没记错也有半年了，真是一帮剑冢，不被冲烂不知错<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
