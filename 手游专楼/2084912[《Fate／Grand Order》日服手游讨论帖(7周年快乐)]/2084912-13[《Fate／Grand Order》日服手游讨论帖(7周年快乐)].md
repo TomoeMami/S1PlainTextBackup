@@ -429,3 +429,68 @@ CD服,全技能叠2次
 
 顺便从小看新撰组异闻录长大的总感觉藤堂好像抢走了新八的外形23333
 
+
+*****
+
+####  Jamaisvu  
+##### 18283#       发表于 2025-9-24 20:02
+
+ 本帖最后由 Jamaisvu 于 2025-9-24 20:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68483137&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-9-24 19:43</a>
+
+松永久秀这性转太扯淡了
+
+女剑心这画得比水式强多了
+
+顺便从小看新撰组异闻录长大的总感觉藤堂好像抢走了新八 ...</blockquote>
+我也看不出画师，上色倒是有些像月姬格斗的风格？
+
+<img src="https://img.stage1st.com/forum/202509/24/200139ar5i5ivyq554k8yq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250924_200038.jpg</strong> (142.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-24 20:01 上传
+
+（这腿和手太正常了，不像是武内，他打的稿让别人画倒有可能，就像弹丸论破似的...）
+
+*****
+
+####  Jamaisvu  
+##### 18284#       发表于 2025-9-24 20:04
+
+二池的骷髅杀鸡还是虚化版的（误）
+
+<img src="https://img.stage1st.com/forum/202509/24/200439jz53sxsep2pqqp5q.jpg" referrerpolicy="no-referrer">
+
+<strong>37DD613E74E01330401EF298822B1EEA.jpg</strong> (145.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-24 20:04 上传
+
+*****
+
+####  Jamaisvu  
+##### 18285#       发表于 2025-9-24 20:18
+
+ 本帖最后由 Jamaisvu 于 2025-9-24 20:21 编辑 
+
+lack老师发的贺图，感觉做四破卡面都够格了，不过lack的三破四破都喜欢用一个造型。
+
+<img src="https://img.stage1st.com/forum/202509/24/201826dh8ozz7oqofoqyu2.png" referrerpolicy="no-referrer">
+
+<strong>1758715114640.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-24 20:18 上传
+
+*****
+
+####  angelooo  
+##### 18286#       发表于 2025-9-24 20:48
+
+剑心这模组也太流畅了，宝具更是衬得水式像搞笑角色一样
+

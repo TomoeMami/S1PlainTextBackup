@@ -33,3 +33,16 @@ PC版今天也有小更新啊，可以领一个国服NIKKLE的码，还有可以
 
 剑星豪华版值得买吗，是不是除了联动就几套衣服
 
+
+*****
+
+####  江戸前ルナ  
+##### 4272#       发表于 2025-9-24 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68482704&amp;ptid=1978008" target="_blank">kaion111 发表于 2025-9-24 18:11</a>
+
+剑星豪华版值得买吗，是不是除了联动就几套衣服</blockquote>
+几套衣服都很好，虽然也可以靠MOD。
+
+但是红莲伟大，无价。质量最高的几场BOSS战之一。
+
