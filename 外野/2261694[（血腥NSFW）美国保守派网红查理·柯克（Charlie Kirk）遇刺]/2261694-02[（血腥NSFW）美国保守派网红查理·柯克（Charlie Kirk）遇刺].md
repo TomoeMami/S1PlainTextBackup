@@ -4996,3 +4996,22 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 一堆之前嘴上喊着反白左的在这里疯狂帮白左辩护, 当白左虫群下属, 只能说终于不装了 ...</blockquote>
 你们美国青虫没有自己的论坛么？
 
+
+*****
+
+####  卡嘎米  
+##### 1888#       发表于 2025-9-24 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68479879&amp;ptid=2261694" target="_blank">月亮与五块钱 发表于 2025-9-24 09:48</a>
+
+还在左右还在左右，念经念魔怔了
+
+这种4chan老哥还想用政客嘴里的左右单线思维来划分，傻不傻
+
+去贴吧给米线 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">简单得很，家里蹲死宅那统统都是右，这类人还有超越自我利益的信仰了？
+
+什么米线山搜了一下不就一个表演巨魔吗，
+
+至于泥潭请自己对号入座。
+
