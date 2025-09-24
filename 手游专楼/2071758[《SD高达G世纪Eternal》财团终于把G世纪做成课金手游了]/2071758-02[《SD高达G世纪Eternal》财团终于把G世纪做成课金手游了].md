@@ -4952,3 +4952,16 @@ UR-》 UUR -〉 UUUR
 
 找个三动把1杀穿两次就是
 
+
+*****
+
+####  blue321  
+##### 2722#       发表于 2025-9-24 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68482538&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-9-24 17:38</a>
+
+打永恒的任务？不是打两次HARD就行了
+
+找个三动把1杀穿两次就是</blockquote>
+看漏条件了吗，看到EX两字就两眼一花了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
