@@ -1392,3 +1392,13 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 
 卡在深夜4了，怎么都打不过深夜4黑夜王。执行者真是玩吐了，整个癫火折叠哈基蜗再整个光环折叠哈基蜗，对菜下碟了
 
+
+*****
+
+####  JackTitor  
+##### 1764#       发表于 2025-9-24 16:21
+
+怎么深4了还能排到喜欢拿药不去主城的老外的，偏偏打的还是最不能一拖二的永夜虫，血压爆了<img src="https://static.stage1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
