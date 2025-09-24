@@ -716,3 +716,11 @@ PV2：[https://youtu.be/s2EMatSXJoU](https://youtu.be/s2EMatSXJoU)
 　　　増山徳孝(ダンサー)
 <img src="https://p.sda1.dev/27/a660b1a8ab3728591615e04892e470a5/IMG_20250924_140918.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 76#       发表于 2025-9-24 14:27
+
+莫名感觉几次预告里唱歌的女性，如龙系列里的身份是悦子大妈<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
