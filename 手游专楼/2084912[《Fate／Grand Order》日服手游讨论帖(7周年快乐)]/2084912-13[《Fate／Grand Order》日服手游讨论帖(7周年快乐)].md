@@ -494,3 +494,37 @@ lack老师发的贺图，感觉做四破卡面都够格了，不过lack的三破
 
 剑心这模组也太流畅了，宝具更是衬得水式像搞笑角色一样
 
+
+*****
+
+####  yangun22  
+##### 18287#       发表于 2025-9-24 20:52
+
+ 本帖最后由 yangun22 于 2025-9-24 20:57 编辑 
+
+幕末的最强剑士都性转了，我懂了，幕末流行辟邪剑法<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+另外松永这个贱表情觉得和最近看的那个致敬月姬的漫画很像
+
+*****
+
+####  xiongxingyu  
+##### 18288#       发表于 2025-9-24 21:08
+
+连面具都有，面具长角，四舍五入就是牛头，你还说你不是黑崎一护<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18289#       发表于 2025-9-24 23:08
+
+这次几个模组真的不错，希望保持<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18290#       发表于 2025-9-24 23:09
+
+河上彦斋有对王哈桑的语音，吐槽他拿着那么大的剑竟然不是saber。
+
+感觉剑心真有可能是冠杀守门人，上岗前先问候下老领导<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

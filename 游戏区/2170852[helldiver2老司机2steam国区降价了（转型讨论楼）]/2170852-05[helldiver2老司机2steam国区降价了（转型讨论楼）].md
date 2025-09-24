@@ -44,3 +44,16 @@ Arrowhead开发团队
 
 静音强袭硬拖一年半，TAA没记错也有半年了，真是一帮剑冢，不被冲烂不知错<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7144#       发表于 2025-9-24 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68483941&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-9-24 22:55</a>
+静音强袭硬拖一年半，TAA没记错也有半年了，真是一帮剑冢，不被冲烂不知错 ...</blockquote>
+我不觉得他们是拖，就是单纯没能力修，也不认为十月的补丁能修好静音牛。
+声音这个问题是一直到这次更新了之后整个声音相关的东西都炸了才在不久前找到问题方向是wsapi相关，十月份的补丁可能能把音频这块修的好一点，但是完全修好我认为不太可能。
+
+整篇公告用一句话总结就是“我们承认自己没能力短时间内修好，十月份屎山上会再打个补丁应急，轰多尼私密马赛”
+
