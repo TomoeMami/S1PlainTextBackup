@@ -4941,3 +4941,58 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 查看全部评分
 
+
+*****
+
+####  xuanwu_lei  
+##### 1884#       发表于 2025-9-23 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68477181&amp;ptid=2261694" target="_blank">tansapple 发表于 2025-9-23 17:38</a>
+只有老美叙事上脑的人才会纠结枪手的身份，因为他们脑子里只容得下二元论 ...</blockquote>
+说白了，哪怕单从选举政治观察的模式来讲，美国这种从第一党系修修补补到第七党系的「两坨选一坨」体制，不管是德国的握手帐篷还是法国的民选皇帝，都比美国这坨屎山代码要务实得多
+
+甚至美军在美国本土成立GHQ然后建立美式自民党都比现在这个屎山代码靠谱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 1885#       发表于 2025-9-23 19:08
+
+泥潭还真有人对老美的身份政治入脑啊，我还以为国内搞这套的只会叫皇汉满姨呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  TTAA  
+##### 1886#       发表于 2025-9-23 19:13
+
+为什么会有人跟着美帝意识形态指挥棒分左右，很简单，因为泥潭真有白右
+可能现在媒体叙事太发达，有些人把你美媒体写的新闻报道当作小说一样读。然后他们日常接触的媒体就那几个游戏，哦，现在白左删除我喜欢的游戏角色，badbad,**冬蒜。
+平日里在互联网见到的白右多半就是这样，本质上和4ch那些蛆差不多。如果你重读毛选第一卷第一章，会发现小资里的右派是这样的，一百年后还是这样，他们就是太喜欢活在自己那点世界里了。
+怎么办呢，你总不能请这些人回高中重修辩证法和历史唯物主义吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xuanwu_lei| + 1|欢乐多|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  刀青虫吃菠菜  
+##### 1887#       发表于 2025-9-24 08:49
+
+<blockquote>张元英 发表于 2025-9-23 16:13
+一堆之前嘴上喊着反白左的在这里疯狂帮白左辩护, 当白左虫群下属, 只能说终于不装了 ...</blockquote>
+你们美国青虫没有自己的论坛么？
+
