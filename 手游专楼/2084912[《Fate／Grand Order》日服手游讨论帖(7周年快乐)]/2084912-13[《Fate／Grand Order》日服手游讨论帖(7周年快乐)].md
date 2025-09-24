@@ -233,3 +233,87 @@
 
 第三个活动得想个办法让盖提亚落地吧，从而打冠位所罗门。
 
+
+*****
+
+####  qixinno2  
+##### 18268#       发表于 2025-9-24 19:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四发十连连个四星都没出 滚了
+
+*****
+
+####  Jamaisvu  
+##### 18269#       发表于 2025-9-24 19:08
+
+这期卡面感觉意外的正常啊，社长竟然没画鸡爪：
+
+<img src="https://img.stage1st.com/forum/202509/24/190839w0d402sd4m00x8m8.jpg" referrerpolicy="no-referrer">
+
+<strong>0EDDFC3E31B7E9B52CCEFC3D29B471B411047050.jpg</strong> (350.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202509/24/190839yw8wcbho4hbydh9w.jpg" referrerpolicy="no-referrer">
+
+<strong>7C15820BAC462CB30CEBC6276D6A5D17.jpg</strong> (354.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202509/24/190839nx9woe7ggww9ojow.jpg" referrerpolicy="no-referrer">
+
+<strong>83F8E963F98D648F27E72B703FC5B5DA.jpg</strong> (448.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-24 19:08 上传
+
+*****
+
+####  exiaexa  
+##### 18270#       发表于 2025-9-24 19:10
+
+ 本帖最后由 exiaexa 于 2025-9-24 19:11 编辑 
+
+红、单体、神性特攻、人特攻、防御无视、无敌贯通、自带60攻击力up
+
+已经预感到这是专门打守门员的了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18271#       发表于 2025-9-24 19:13
+
+藤堂平助额上这道疤痕太显眼了，让我想起了年轻的丿字斋山本重国...
+
+*****
+
+####  alucardcz  
+##### 18272#       发表于 2025-9-24 19:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10张护符 新选组r姐x3 
+
+*****
+
+####  Jamaisvu  
+##### 18273#       发表于 2025-9-24 19:16
+
+<blockquote>exiaexa 发表于 2025-9-24 19:10
+红、单体、神性特攻、人特攻、防御无视、无敌贯通、自带60攻击力up
+
+已经预感到这是专门打守门员的了
+
+ ...</blockquote>
+
+根据因陀罗和诺亚的经验，戴冠战前出的五星不一定对守门员有特攻，倒是有可能针对某个Beast...
+
+虽说如此，但目前最有资质当冠位杀的烟雾镜和王哈桑，一个神性一个人...
+
