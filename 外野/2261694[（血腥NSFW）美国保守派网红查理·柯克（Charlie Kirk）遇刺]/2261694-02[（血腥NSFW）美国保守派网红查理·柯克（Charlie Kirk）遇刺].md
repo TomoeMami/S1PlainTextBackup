@@ -5015,3 +5015,25 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 至于泥潭请自己对号入座。
 
+
+*****
+
+####  saizeriya  
+##### 1889#       发表于 2025-9-25 01:20
+
+<img src="https://p.sda1.dev/27/b9ab147761888c943cbc41244d7df28d/image.jpg" referrerpolicy="no-referrer">震怒！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
