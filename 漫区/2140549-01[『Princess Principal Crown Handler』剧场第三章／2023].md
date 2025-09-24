@@ -1418,3 +1418,14 @@ TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平
 不过我也没看过少战，不清楚具体情况就是了。 ...</blockquote>
 制作公司确实是共同制作的，少战人气热度少说高十倍都有，人家随便玩，prpr学同商法说一句丢人现眼都是好听的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 146#       发表于 2025-9-24 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475404&amp;ptid=2140549" target="_blank">ardente 发表于 2025-9-23 12:56</a>
+
+这部企划能变成拖上十年的六连剧场版就奇怪，第一章的时候字幕都没人做，本土也没什么热度，不知道哪来的信 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一章也是我组的字幕，nico上刚有资源一周就做出来了啊，后面千夏的字幕就隔了很久
+

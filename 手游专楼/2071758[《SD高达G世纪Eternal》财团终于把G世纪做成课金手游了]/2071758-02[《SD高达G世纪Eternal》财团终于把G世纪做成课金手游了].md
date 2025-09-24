@@ -4939,3 +4939,16 @@ UR-》 UUR -〉 UUUR
 都不敢想以后5周年 ...</blockquote>
 说是ssp其实就是隔壁机战dd的超改，只是名字取得不行
 
+
+*****
+
+####  rockroxas  
+##### 2721#       发表于 2025-9-24 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68482136&amp;ptid=2071758" target="_blank">blue321 发表于 2025-9-24 16:35</a>
+
+怎么又要打两次EX，不想动</blockquote>
+打永恒的任务？不是打两次HARD就行了
+
+找个三动把1杀穿两次就是
+
