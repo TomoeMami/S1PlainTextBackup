@@ -4965,3 +4965,11 @@ UR-》 UUR -〉 UUUR
 找个三动把1杀穿两次就是</blockquote>
 看漏条件了吗，看到EX两字就两眼一花了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 2723#       发表于 2025-9-24 19:32
+
+10月中是0083sm第二弹所以半周年限定基本上确认是冰箱？
+

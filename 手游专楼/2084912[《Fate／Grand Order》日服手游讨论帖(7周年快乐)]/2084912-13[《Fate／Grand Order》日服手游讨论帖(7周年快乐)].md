@@ -317,3 +317,55 @@
 
 虽说如此，但目前最有资质当冠位杀的烟雾镜和王哈桑，一个神性一个人...
 
+
+*****
+
+####  exiaexa  
+##### 18274#       发表于 2025-9-24 19:19
+
+ 本帖最后由 exiaexa 于 2025-9-24 19:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68483009&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-24 19:16</a>
+
+根据因陀罗和诺亚的经验，戴冠战前出的五星不一定对守门员有特攻，倒是有可能针对某个Beast...
+
+虽说如此 ...</blockquote>
+她那个2+3技能CD特不特攻都无所谓了，配合杀狐轻轻松松单人90B
+
+更别说被动还是对assassin
+
+整个杀阶都羡慕哭了，不对，应该说整个杀阶都被吓哭了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 18275#       发表于 2025-9-24 19:20
+
+ 本帖最后由 xiongxingyu 于 2025-9-24 19:22 编辑 
+
+本来想说你谁啊，蛐蛐个人斩就五星，转念一想，原来是剑心啊，那是得给个五星了，以藏你输得不冤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18276#       发表于 2025-9-24 19:28
+
+ 本帖最后由 Jamaisvu 于 2025-9-24 19:30 编辑 
+<blockquote>exiaexa 发表于 2025-9-24 19:19
+她那个2+3技能CD特不特攻都无所谓了，配合杀狐轻轻松松单人90B
+
+更别说被动还是对assassin
+
+</blockquote>
+
+二技能的纳刀架势好像不能叠加触发吧，宝具前置条件是处于纳刀架势时获得30加攻，一回合用两次二技能应该没有额外效果。
+
+不过确实和杀狐相性极佳，二技能叠暴击伤害相当客观。
+
+*****
+
+####  風卷豹  
+##### 18277#       发表于 2025-9-24 19:31
+
+咕哒咕哒活动才是真正的月球钓凯子活动，每年都是在之前出一大批卫星的前提下空降n个角色，然后在当期里再加一大堆卫星看反响拍别的活动里落地<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
