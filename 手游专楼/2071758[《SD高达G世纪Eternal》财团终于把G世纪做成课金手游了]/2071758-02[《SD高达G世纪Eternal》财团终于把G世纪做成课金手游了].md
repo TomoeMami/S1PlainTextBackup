@@ -4926,3 +4926,16 @@ UR-》 UUR -〉 UUUR
 
 怎么又要打两次EX，不想动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 2720#       发表于 2025-9-24 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68479058&amp;ptid=2071758" target="_blank">plok201 发表于 2025-9-24 00:58</a>
+
+其他都还好，这个ssp也太生草了，起码是别的游戏3-5周年才出的系统，半周年就端出来了
+
+都不敢想以后5周年 ...</blockquote>
+说是ssp其实就是隔壁机战dd的超改，只是名字取得不行
+
