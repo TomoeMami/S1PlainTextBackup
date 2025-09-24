@@ -369,3 +369,63 @@
 
 咕哒咕哒活动才是真正的月球钓凯子活动，每年都是在之前出一大批卫星的前提下空降n个角色，然后在当期里再加一大堆卫星看反响拍别的活动里落地<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18278#       发表于 2025-9-24 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68483064&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-9-24 19:28</a>
+
+二技能的纳刀架势好像不能叠加触发吧，宝具前置条件应该是处于纳刀架势时获得30加攻，一回合两次二技能应 ...</blockquote>
+CD服,全技能叠2次
+
+光自BUFF就能有
+
+60蓝+60红+100人特攻+100爆伤+20星+60暴击耐性+60攻
+
+宝具再加30攻和10宝具威力，被动30对assassin
+
+对面只要敢单人出来那真的是个死，都没算狐狸的
+
+不过敢这么放出来，估计又是强制多怪减伤的门神
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  廖化  
+##### 18279#       发表于 2025-9-24 19:35
+
+真的新选组全员到齐啊，你月是不是有什么新选组的粉……
+
+*****
+
+####  exiaexa  
+##### 18280#       发表于 2025-9-24 19:37
+
+艹生
+
+我还说这雌小鬼从哪儿冒出来的
+
+你TM怎么是松永久秀啊，还是给了个生草的变性原因
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 18281#       发表于 2025-9-24 19:43
+
+炸弹人有建模有语音，落地可能性up！
+
+*****
+
+####  angelooo  
+##### 18282#       发表于 2025-9-24 19:43
+
+松永久秀这性转太扯淡了
+
+女剑心这画得比水式强多了
+
+顺便从小看新撰组异闻录长大的总感觉藤堂好像抢走了新八的外形23333
+
