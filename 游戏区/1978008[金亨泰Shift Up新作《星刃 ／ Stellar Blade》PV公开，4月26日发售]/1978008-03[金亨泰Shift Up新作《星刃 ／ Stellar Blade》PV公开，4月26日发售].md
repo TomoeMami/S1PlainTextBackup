@@ -7,3 +7,13 @@
 <img src="https://p.sda1.dev/27/01c015185b8b08c9755b19910fd09323/CMP_20250924134749088.jpg" referrerpolicy="no-referrer">
 剑星和nikke联动的皮肤领过国际服的还可以再独立领个国服的，不玩nikke的玩家这下可以咸鱼回血了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4269#         楼主| 发表于 2025-9-24 15:01
+
+《剑星》PC版今日开启8折优惠啦！我们还准备了一些新的任务内容和体验等各位来挑战，PS5玩家将于9月24日更新内容 PC版将于9月30日更新。请关注公告栏中全新任务内容，完成后还有一份小礼物等你们领取哦。 
+
+除此之外，我们努力为大家准备更多精彩的免费更新内容，敬请期待后续的惊喜来袭
+
