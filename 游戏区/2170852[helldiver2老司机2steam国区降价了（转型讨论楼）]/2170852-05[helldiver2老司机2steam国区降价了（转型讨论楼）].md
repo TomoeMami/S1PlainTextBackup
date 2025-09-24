@@ -74,3 +74,11 @@ Arrowhead开发团队
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能说出“反作弊对性能影响微乎其微”我真的乐死了，gameguard这破软件在你启动游戏时连你电脑摄像头设置都会改的，你老实说你签了几年合同必须要用这个反作弊不就行了？
 
+
+*****
+
+####  FLZB  
+##### 7147#       发表于 2025-9-25 00:50
+
+看来后续基本不用期待了，bug是必修不完的，能继续维持这个勉强能玩的状态就不错了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
