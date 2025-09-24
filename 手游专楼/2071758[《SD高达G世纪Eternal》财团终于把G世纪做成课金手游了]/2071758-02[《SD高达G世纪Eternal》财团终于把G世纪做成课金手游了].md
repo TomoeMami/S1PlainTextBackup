@@ -4918,3 +4918,11 @@ UR-》 UUR -〉 UUUR
 
 这周年连抽给我看笑了，UR和SSR几率都砍了半
 
+
+*****
+
+####  blue321  
+##### 2719#       发表于 2025-9-24 16:35
+
+怎么又要打两次EX，不想动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
