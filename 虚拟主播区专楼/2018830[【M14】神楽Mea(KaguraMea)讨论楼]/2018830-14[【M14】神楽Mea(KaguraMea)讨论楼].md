@@ -7818,3 +7818,11 @@ First Blood。
 这样玩过以后她应该也能开心一些了吧，明天早上她好像还有工作来着<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 yauyau
 
+
+*****
+
+####  TiHaru  
+##### 19614#       发表于 2025-9-25 03:54
+
+隔夜最后读sc的时候提了一嘴主播，给观众说主播不是坏人发狂是演的又给观众保证以后不会去接触主播
+
