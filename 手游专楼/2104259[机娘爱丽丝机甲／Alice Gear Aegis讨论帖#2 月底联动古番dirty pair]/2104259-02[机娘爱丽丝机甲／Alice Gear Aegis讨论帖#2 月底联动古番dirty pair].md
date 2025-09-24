@@ -28,3 +28,11 @@ FY13 7493 CQ6U UJAN
 
 看着群里死亡冲刺的队长真是愉悦啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1673#       发表于 2025-9-24 12:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是联动那么多格子还一个没打过吧
+
