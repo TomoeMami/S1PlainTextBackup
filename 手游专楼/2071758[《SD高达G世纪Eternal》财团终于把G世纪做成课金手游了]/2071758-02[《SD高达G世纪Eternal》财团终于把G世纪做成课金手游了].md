@@ -4997,3 +4997,15 @@ UR-》 UUR -〉 UUUR
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧已经有兄弟畅想bd1的ssp化改适应性之后大杀四方了
 
+
+*****
+
+####  无念  
+##### 2727#       发表于 2025-9-25 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68485071&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-9-25 09:20</a>
+贴吧已经有兄弟畅想bd1的ssp化改适应性之后大杀四方了</blockquote>
+然后发现bd1改造奖励是加伤害，地形适应性在苍白骑士那<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
