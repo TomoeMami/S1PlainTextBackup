@@ -567,3 +567,53 @@ lack老师发的贺图，感觉做四破卡面都够格了，不过lack的三破
 
 用来打打冠位战应该够用了吧....收手了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18295#       发表于 2025-9-25 10:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">更想抽四星小男孩，然而没出
+
+*****
+
+####  khxooo  
+##### 18296#       发表于 2025-9-25 17:25
+
+ 本帖最后由 khxooo 于 2025-9-25 17:45 编辑 
+
+果然是近藤，太容易猜到了。
+
+什么杀阶UP池<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+MuMu-20250925-174415-737.jpg
+(452.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-25 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202509/25/174515j6n6g261g68k64pc.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18297#       发表于 2025-9-25 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68484658&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-25 07:47</a>
+
+终于轮到我欧一次了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧皇吗 每次都欧 羡慕了
+
+*****
+
+####  alucardcz  
+##### 18298#       发表于 2025-9-25 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68485091&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-9-25 09:22</a>
+
+500多石头和20多张护符抽了3宝河上
+
+用来打打冠位战应该够用了吧....收手了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差点漏了豹皇！又发力了（
+
