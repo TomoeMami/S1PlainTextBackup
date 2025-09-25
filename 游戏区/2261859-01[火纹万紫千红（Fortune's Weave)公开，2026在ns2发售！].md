@@ -78,3 +78,26 @@
 
 个人倒是不讨厌黑皮，engage的萌萌哒女角色也大多愿意刷满支援。但目前万紫千红放出的黑皮，真没有黑过engage沙漠国姐弟的吧。我甚至还挺喜欢姐姐的声音，但在画面暗的地图和姐姐对话，那效果真的是暗得看不清人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 673#       发表于 2025-9-25 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68457939&amp;ptid=2261859" target="_blank">Troywest 发表于 2025-9-19 19:17</a>
+说火纹是大ip怕不是远远高估这ip了。“徒有其名”可能是最能概括觉醒前的火纹系列的词语了。
+
+烈火之前因为 ...</blockquote>
+你是不是没概念200w不到对战棋是什么水平
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hansel  
+##### 674#       发表于 2025-9-25 15:22
+
+风花雪月那作火我觉得是 NS1 的势头真的猛，能把这 jrpg 带起来，炸弹人都能卖一百万你以为，玩法和剧情其实就那样，卖相也相当贫穷，那画面糊得堪比 nds，结婚 CG 都嘴歪眼斜的
+
+万紫千红这作感觉美术还是相当的丑，IS 手游赚那么多钱怎么美术还是这种垃圾的水平，角色也丑，感觉都不如平均日厂
+
