@@ -606,3 +606,24 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 而且一代很大的加分项在于傲视独游的美术和海量有趣的文本内容<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeverCU  
+##### 69#       发表于 2025-9-25 17:41
+
+<blockquote>漆黑_残月 发表于 2025-9-25 14:26
+欧美新一代的游戏媒体和玩家就是steam起家的， 对steam游戏的滤镜比老家伙们大多了 ...</blockquote>
+确切地说，是欧洲，特别是那些小国家。
+
+
+*****
+
+####  karastar  
+##### 70#       发表于 2025-9-25 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68487346&amp;ptid=2262912" target="_blank">alucardcz 发表于 2025-9-25 14:55</a>
+
+现在的高分也太不值钱了</blockquote>
+十年前独游崛起开始就不值钱了
+
