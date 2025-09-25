@@ -32,3 +32,11 @@
 
 额，也就那样这人设，感觉不如小崎裕介
 
+
+*****
+
+####  TANA  
+##### 668#       发表于 2025-9-25 10:56
+
+这手游人设水平和engage我看也大哥不笑二哥<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
