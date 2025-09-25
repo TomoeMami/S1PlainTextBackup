@@ -585,3 +585,14 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 那今天什么时候更新正式版呢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AEmpire  
+##### 67#       发表于 2025-9-25 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68487393&amp;ptid=2262912" target="_blank">高贵的 发表于 2025-9-25 15:01</a>
+
+那今天什么时候更新正式版呢</blockquote>
+国区今晚零点
+
