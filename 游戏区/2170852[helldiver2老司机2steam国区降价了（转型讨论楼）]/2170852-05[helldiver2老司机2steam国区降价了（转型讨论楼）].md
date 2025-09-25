@@ -137,3 +137,14 @@ Arrowhead开发团队
 
 新回应，所以箭头就是压根不知道怎么下手修复，上面给压力但是下面写代码的摆烂了吧
 
+
+*****
+
+####  6x6z6w  
+##### 7153#       发表于 2025-9-26 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490087&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-9-26 00:31</a>
+
+新回应，所以箭头就是压根不知道怎么下手修复，上面给压力但是下面写代码的摆烂了吧 ...</blockquote>
+箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">箭头一直在用过期引擎做游戏的代价就是一直在给未来的自己欠债，现在这个债已经到了不得不还的时候了
+
