@@ -5069,3 +5069,23 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 <img src="https://p.sda1.dev/27/e94de69c27c4e51249229596e705b8f5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liquer  
+##### 1893#       发表于 2025-9-25 19:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">张元英这种反华精致利己卖肉上位润唇膏涂满脸的油哄哄大肥猪当然是黄右小跟班心目中的女神了，靠卡护照BUG全家逃兵役，卖骚卖肉卖笑买通稿吹牛逼，虽然没梵化成美国佬但是获得了给爸爸做rbq的资格，怎能不让做梦都想着给白皮老爷推屁股的黄皮达利特心向往之，张元英对着白皮爹鞠躬倒奶的残余物给达利特导管，达利特都要感恩是白皮右爹恩赐他看擦边的机会
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
