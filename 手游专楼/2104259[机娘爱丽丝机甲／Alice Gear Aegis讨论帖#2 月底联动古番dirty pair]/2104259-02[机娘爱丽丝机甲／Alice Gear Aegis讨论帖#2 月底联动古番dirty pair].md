@@ -118,3 +118,11 @@ FY13 7493 CQ6U UJAN
 
 啊啊啊可恶啊，小学生组就算了，JC组的旗袍也是和谐的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1682#       发表于 2025-9-25 15:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小朋友组遮得死死的还摆ドヤ脸太草了
+
