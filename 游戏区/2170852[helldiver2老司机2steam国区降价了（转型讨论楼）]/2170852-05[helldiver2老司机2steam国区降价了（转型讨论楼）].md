@@ -106,3 +106,13 @@ Arrowhead开发团队
 
 2025-9-25 20:18 上传
 
+
+*****
+
+####  madcow  
+##### 7150#       发表于 2025-9-25 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别的好说，游戏体积也没办法吗？？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便怎么感觉现在虫子和光能单刷7~8级都好难打，已经是离了不拉屎将军补包不会玩了
+
