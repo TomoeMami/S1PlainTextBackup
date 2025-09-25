@@ -596,3 +596,13 @@ Inti Creates，老牌公司，上独立游戏发布会
 那今天什么时候更新正式版呢</blockquote>
 国区今晚零点
 
+
+*****
+
+####  葵  
+##### 68#       发表于 2025-9-25 17:35
+
+哈迪斯系列本来就好玩，无非是泥潭一直看不上罢了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+而且一代很大的加分项在于傲视独游的美术和海量有趣的文本内容<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
