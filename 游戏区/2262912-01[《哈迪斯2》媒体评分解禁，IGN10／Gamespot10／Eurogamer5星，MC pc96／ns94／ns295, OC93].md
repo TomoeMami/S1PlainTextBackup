@@ -627,3 +627,11 @@ Inti Creates，老牌公司，上独立游戏发布会
 现在的高分也太不值钱了</blockquote>
 十年前独游崛起开始就不值钱了
 
+
+*****
+
+####  Firvox  
+##### 71#       发表于 2025-9-26 02:12
+
+玩了两小时，好玩！一代我不喜欢的宝石终于没了，改成统一魔法点挺不错的，美术配音和台本都在线，真不错<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
