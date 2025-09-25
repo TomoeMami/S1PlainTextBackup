@@ -90,3 +90,19 @@ Arrowhead开发团队
 
 代码能力太烂了，屎山爆炸迟早的事
 
+
+*****
+
+####  FLZB  
+##### 7149#       发表于 2025-9-25 20:31
+
+原来箭头的Grunt Fantasy是把潜兵比作白兵，喷了，人家白兵干什么活你潜兵干什么活？四个人下来就搞敌后破坏你高低得是共和国突击队，难怪平衡怎么改都是一坨，根本定位上就存在严重偏差<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202509/25/201815atcezf1jtg4whc4e.png" referrerpolicy="no-referrer">
+
+<strong>h.png</strong> (68.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-25 20:18 上传
+
