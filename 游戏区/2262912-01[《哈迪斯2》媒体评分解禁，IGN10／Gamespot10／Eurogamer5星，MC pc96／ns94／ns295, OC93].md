@@ -562,3 +562,18 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 欧美新一代的游戏媒体和玩家就是steam起家的， 对steam游戏的滤镜比老家伙们大多了
 
+
+*****
+
+####  back57992  
+##### 64#       发表于 2025-9-25 14:53
+
+玩是肯定要玩的 这分就有点离谱了
+
+*****
+
+####  alucardcz  
+##### 65#       发表于 2025-9-25 14:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的高分也太不值钱了
+
