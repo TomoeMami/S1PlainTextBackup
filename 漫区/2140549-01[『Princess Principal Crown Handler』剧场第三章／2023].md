@@ -1429,3 +1429,14 @@ TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平
 这部企划能变成拖上十年的六连剧场版就奇怪，第一章的时候字幕都没人做，本土也没什么热度，不知道哪来的信 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一章也是我组的字幕，nico上刚有资源一周就做出来了啊，后面千夏的字幕就隔了很久
 
+
+*****
+
+####  ardente  
+##### 147#       发表于 2025-9-25 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68482504&amp;ptid=2140549" target="_blank">梦诗歌雪 发表于 2025-9-24 17:33</a>
+
+第一章也是我组的字幕，nico上刚有资源一周就做出来了啊，后面千夏的字幕就隔了很久 ...</blockquote>
+那应该是我记错时间了
+
