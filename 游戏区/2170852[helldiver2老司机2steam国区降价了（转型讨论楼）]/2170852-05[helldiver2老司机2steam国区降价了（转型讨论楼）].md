@@ -82,3 +82,11 @@ Arrowhead开发团队
 
 看来后续基本不用期待了，bug是必修不完的，能继续维持这个勉强能玩的状态就不错了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Firvox  
+##### 7148#       发表于 2025-9-25 08:42
+
+代码能力太烂了，屎山爆炸迟早的事
+
