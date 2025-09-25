@@ -5057,3 +5057,15 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 我感觉这个韩团女id发言一贯如此
 
+
+*****
+
+####  zeroboss4  
+##### 1892#       发表于 2025-9-25 16:42
+
+共和党人希望发行印有柯克肖像的硬币
+
+<img src="https://p.sda1.dev/27/69c677dd7605fb0ec21ebce4af0b4707/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/e94de69c27c4e51249229596e705b8f5/image.jpg" referrerpolicy="no-referrer">
+
