@@ -617,3 +617,43 @@ MuMu-20250925-174415-737.jpg
 用来打打冠位战应该够用了吧....收手了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差点漏了豹皇！又发力了（
 
+
+*****
+
+####  森兰丸  
+##### 18299#       发表于 2025-9-25 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68488636&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-25 18:30</a>
+
+差点漏了豹皇！又发力了（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每日免费单抽出货的欧萌没资格说这话!非洲人到现在就连4星角色也没抽到过
+
+*****
+
+####  exiaexa  
+##### 18300#       发表于 2025-9-25 20:41
+
+这新衣服太草了
+
+没NP没减CD
+
+剑心：你TM是真的一点用都没有啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18301#       发表于 2025-9-25 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68488477&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-25 17:52</a>
+
+这就是欧皇吗 每次都欧 羡慕了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你梭哈你也出
+
+*****
+
+####  白金口袋  
+##### 18302#       发表于 2025-9-25 23:57
+
+近藤局长=大猩猩是什么空知牌思想钢印吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
