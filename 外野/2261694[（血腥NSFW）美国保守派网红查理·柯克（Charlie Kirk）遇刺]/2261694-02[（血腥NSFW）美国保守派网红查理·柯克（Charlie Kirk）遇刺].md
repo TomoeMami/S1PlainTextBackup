@@ -5049,3 +5049,11 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 —— 来自 鹅球 v3.3.96</blockquote>
 太小丑了
 
+
+*****
+
+####  RinQ0326  
+##### 1891#       发表于 2025-9-25 09:37
+
+我感觉这个韩团女id发言一贯如此
+
