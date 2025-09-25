@@ -64,3 +64,13 @@ PC版今天也有小更新啊，可以领一个国服NIKKLE的码，还有可以
 
 希雍已经进不去了，不开新周目是不是啥也领不到了
 
+
+*****
+
+####  江戸前ルナ  
+##### 4275#       发表于 2025-9-25 10:04
+
+原来就一个工作室彩蛋+一件衣服，联动想多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过看彩蛋以后渡鸦续作可能还有戏？
+
