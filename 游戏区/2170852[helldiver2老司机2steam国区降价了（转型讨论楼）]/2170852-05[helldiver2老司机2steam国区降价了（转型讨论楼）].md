@@ -116,3 +116,24 @@ Arrowhead开发团队
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便怎么感觉现在虫子和光能单刷7~8级都好难打，已经是离了不拉屎将军补包不会玩了
 
+
+*****
+
+####  xinfengj  
+##### 7151#       发表于 2025-9-26 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68489883&amp;ptid=2170852" target="_blank">madcow 发表于 2025-9-25 23:16</a>
+别的好说，游戏体积也没办法吗？？
+
+顺便怎么感觉现在虫子和光能单刷7~8级都好难打，已经是离了不拉屎将军 ...</blockquote>
+它pc搞一堆重复素材就是为了加载的时候不用现解包吧，全删了肯定会让性能雪上加霜<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 7152#       发表于 2025-9-26 00:31
+
+<img src="https://p.sda1.dev/27/474b9d1e1c7bc95677d67252da728328/CMP_20250926002831368.jpeg" referrerpolicy="no-referrer">
+
+新回应，所以箭头就是压根不知道怎么下手修复，上面给压力但是下面写代码的摆烂了吧
+
