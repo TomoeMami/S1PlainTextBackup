@@ -195,3 +195,11 @@ FES人设是FEH里也很活跃的ニジハヤシ啊
 
 2025-9-26 07:15 上传
 
+
+*****
+
+####  蓮華  
+##### 683#       发表于 2025-9-26 07:20
+
+现在想来这手游是不是给FEH每年的兽化池子和暗堕池子攒素材啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
