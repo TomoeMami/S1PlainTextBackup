@@ -159,3 +159,14 @@ Arrowhead开发团队
 箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了箭头一直在用过期引擎做游戏的代价就是一直在给未 ...</blockquote>
 换引擎不如做HD3<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把现在这些影响游戏的bug尽量修到没有重大影响然后准备开发HD3就行了
 
+
+*****
+
+####  FLZB  
+##### 7155#       发表于 2025-9-26 03:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490198&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-9-26 01:32</a>
+
+箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了箭头一直在用过期引擎做游戏的代价就是一直在给未 ...</blockquote>
+换引擎基本等于重做了，必不可能。现在能多招几个有技术有经验的能修一点是一点就不错了，记得之前说是招到了肥鲨的人，希望能起点作用吧只能说<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
