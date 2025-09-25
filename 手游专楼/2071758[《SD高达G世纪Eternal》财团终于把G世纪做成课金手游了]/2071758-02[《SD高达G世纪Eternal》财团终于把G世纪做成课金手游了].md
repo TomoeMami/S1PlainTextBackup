@@ -4989,3 +4989,11 @@ UR-》 UUR -〉 UUUR
 
 本来不想做两个大扎姆一直拖着永恒0079，这下完成开发任务顺便做了，永恒也有任务一起完成算了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2726#       发表于 2025-9-25 09:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧已经有兄弟畅想bd1的ssp化改适应性之后大杀四方了
+

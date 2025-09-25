@@ -528,3 +528,42 @@ lack老师发的贺图，感觉做四破卡面都够格了，不过lack的三破
 
 感觉剑心真有可能是冠杀守门人，上岗前先问候下老领导<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggyy0088  
+##### 18291#       发表于 2025-9-24 23:44
+
+るろうに謙信了太招笑了
+
+*****
+
+####  白金口袋  
+##### 18292#       发表于 2025-9-25 04:02
+
+420石头+16呼符1剑心，这卡面这模组这技能，真不是周年庆角色吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18293#       发表于 2025-9-25 07:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">终于轮到我欧一次了
+
+<img src="https://img.stage1st.com/forum/202509/25/074730pb8dxctrtdxad3tm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-25 07:47 上传
+
+*****
+
+####  森兰丸  
+##### 18294#       发表于 2025-9-25 09:22
+
+500多石头和20多张护符抽了3宝河上
+
+用来打打冠位战应该够用了吧....收手了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

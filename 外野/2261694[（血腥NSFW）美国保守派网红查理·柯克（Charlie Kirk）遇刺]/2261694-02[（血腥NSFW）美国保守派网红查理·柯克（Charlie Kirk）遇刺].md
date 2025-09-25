@@ -5037,3 +5037,15 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 
 查看全部评分
 
+
+*****
+
+####  Eric_方歌阙  
+##### 1890#       发表于 2025-9-25 09:21
+
+<blockquote>saizeriya 发表于 2025-9-25 01:20
+震怒！
+
+—— 来自 鹅球 v3.3.96</blockquote>
+太小丑了
+
