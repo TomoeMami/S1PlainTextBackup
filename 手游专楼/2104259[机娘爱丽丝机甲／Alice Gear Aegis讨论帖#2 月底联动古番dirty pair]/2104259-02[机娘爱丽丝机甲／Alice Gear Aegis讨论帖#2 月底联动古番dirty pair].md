@@ -126,3 +126,11 @@ FY13 7493 CQ6U UJAN
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小朋友组遮得死死的还摆ドヤ脸太草了
 
+
+*****
+
+####  不灭的旋律  
+##### 1683#       发表于 2025-9-25 15:52
+
+而且一件120石贵死，你遮得这么严谁买啊？比小学生还小学生的光反而不遮简直自欺欺人，干脆你游宣称登场人物全部18岁以上算了
+
