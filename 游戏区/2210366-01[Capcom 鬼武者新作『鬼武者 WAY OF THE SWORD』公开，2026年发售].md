@@ -2690,3 +2690,11 @@ fami通访谈
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉这一闪动作真的是慢腾腾拖泥带水，旧时代那种瞬移秒砍多帅气
 
+
+*****
+
+####  马甲20250922  
+##### 297#       发表于 2025-9-25 08:53
+
+新预告片的配乐还是一代的那个味儿，买了买了！
+
