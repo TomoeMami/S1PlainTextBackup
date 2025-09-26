@@ -657,3 +657,56 @@ MuMu-20250925-174415-737.jpg
 
 近藤局长=大猩猩是什么空知牌思想钢印吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 18303#       发表于 2025-9-26 08:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我对近藤勇的印象是这个金发碧眼巨乳大小姐<img src="https://p.sda1.dev/27/a2cd9637fe6da9f4237e97cdbe97a155/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  汉魏洛阳  
+##### 18304#       发表于 2025-9-26 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490656&amp;ptid=2084912" target="_blank">乾理央 发表于 2025-9-26 08:54</a>
+
+还好我对近藤勇的印象是这个金发碧眼巨乳大小姐</blockquote>
+巧了，当年没完整看过银魂和剑心，我对新选组和幕末的所有知识都来源于叶山这部历史教科书式的黄油……
+
+*****
+
+####  alucardcz  
+##### 18305#       发表于 2025-9-26 12:01
+
+<img src="https://img.stage1st.com/forum/202509/26/120103rsc2wwwlytix2e2g.png" referrerpolicy="no-referrer">
+
+<strong>343434.png</strong> (609.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-26 12:01 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">漏油是对的  丢了2发出了
+
+*****
+
+####  qixinno2  
+##### 18306#       发表于 2025-9-26 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68491668&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-26 12:01</a>
+
+漏油是对的  丢了2发出了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕 不愧是狗萌新
+
+*****
+
+####  alucardcz  
+##### 18307#       发表于 2025-9-26 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68491774&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-26 12:19</a>
+
+欧 羡慕 不愧是狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">非萌可是2600石3宝的非洲人 不如看看楼上2个限定5宝 外加一堆高宝的豹皇！
+
