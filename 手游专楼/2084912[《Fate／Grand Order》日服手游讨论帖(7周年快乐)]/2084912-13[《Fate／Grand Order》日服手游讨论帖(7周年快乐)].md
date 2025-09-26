@@ -710,3 +710,13 @@ MuMu-20250925-174415-737.jpg
 欧 羡慕 不愧是狗萌新</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">非萌可是2600石3宝的非洲人 不如看看楼上2个限定5宝 外加一堆高宝的豹皇！
 
+
+*****
+
+####  Jamaisvu  
+##### 18308#       发表于 2025-9-26 20:18
+
+近藤勇这两个形态都帅得有些违和，让我怀疑是不是缝合了什么东西...毕竟大猩猩既符合史实又深入人心。
+
+话说他会不会像理查那样，灵三整个无辜怪物形态，直接从一护和白哉变成狛村<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
