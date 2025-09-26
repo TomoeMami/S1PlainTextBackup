@@ -116,3 +116,11 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 
 原版不是去最国际化的 nyaa 或者 anime-sharing 吗
 
+
+*****
+
+####  alucardcz  
+##### 64#       发表于 2025-9-26 22:48
+
+有没有人通了 剧本如何。。上作天使骚骚根本玩不下去，。。催眠中的催眠<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
