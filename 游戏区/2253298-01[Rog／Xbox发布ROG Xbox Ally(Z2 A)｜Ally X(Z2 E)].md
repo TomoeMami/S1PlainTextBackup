@@ -73,3 +73,16 @@ Best Buy网站点进去竟然还要排队<img src="https://static.stage1st.com/i
 
 如果十月上市时候的系统跟泄露版差不多的话…<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 只能说比原来的狗屎系统好那么一点。
 
+
+*****
+
+####  ultraseven  
+##### 142#       发表于 2025-9-26 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490623&amp;ptid=2253298" target="_blank">zid99825 发表于 2025-9-26 08:45</a>
+
+不觉得rog会放多少货
+
+论坛助手,iPhone</blockquote>
+确实没放多少货。看了下美区微软商店和华硕商店都暂时售罄
+
