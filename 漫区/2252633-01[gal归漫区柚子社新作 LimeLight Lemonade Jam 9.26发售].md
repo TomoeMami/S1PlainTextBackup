@@ -124,3 +124,13 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 
 有没有人通了 剧本如何。。上作天使骚骚根本玩不下去，。。催眠中的催眠<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  h1h234h  
+##### 65#       发表于 2025-9-27 01:47
+
+<blockquote>alucardcz 发表于 2025-9-26 22:48
+有没有人通了 剧本如何。。上作天使骚骚根本玩不下去，。。催眠中的催眠</blockquote>
+正在看，共通线水平放柚子社作品里top2了感觉，可以把天使骚骚当成路边一条踹死
+
