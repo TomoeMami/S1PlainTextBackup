@@ -150,3 +150,13 @@ FY13 7493 CQ6U UJAN
 
 按折扣买衣服就是90钻1件还能接受，可惜不能换色，这件蓝旗袍感觉只适合深色皮肤跟黑长直们
 
+
+*****
+
+####  冰风血羽  
+##### 1686#       发表于 2025-9-26 12:05
+
+这个蓝色我看着太艳了，买是买不了一点。我本来想把免费给水管人的，但是想了想其他新欢衣服也挺多了，入坑契机小奶游却好久没给新衣服了就给她了，一换上emmm<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
