@@ -5047,3 +5047,13 @@ SSP只能用在SSR和以下单位，早期UR反而没法加强地形或者移动
 大冰箱地形适应一泡污啊，而且0079阵容太拥挤了，不过还是想收藏一个</blockquote>
 来个修正地形op不就解决了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mrm4B  
+##### 2732#       发表于 2025-9-27 02:34
+
+准备买个初始入坑 有啥是刚需的吗
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
