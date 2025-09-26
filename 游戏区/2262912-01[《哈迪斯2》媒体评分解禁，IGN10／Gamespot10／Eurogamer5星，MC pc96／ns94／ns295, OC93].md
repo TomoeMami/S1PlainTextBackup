@@ -721,3 +721,11 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 二代玩过下EA，忘记了为啥没玩下去，现在正式版有什么区别吗？
 
+
+*****
+
+####  AEmpire  
+##### 81#       发表于 2025-9-26 17:34
+
+老师的变羊能counter吗，不会是必吃的吧 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

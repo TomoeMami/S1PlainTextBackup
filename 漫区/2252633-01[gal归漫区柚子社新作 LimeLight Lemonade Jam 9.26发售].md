@@ -74,3 +74,15 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  wolf1997  
+##### 60#       发表于 2025-9-26 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68493016&amp;ptid=2252633" target="_blank">黑上シグマ 发表于 2025-9-26 17:04</a>
+2大姐没死呢，找生肉有啥难的
+
+----发送自 STAGE1 App for Android.</blockquote>
+2dj和kf这些大论坛自然不用说，但很多资源小站就没那么多生肉资源了。
+
