@@ -510,3 +510,15 @@
 
 這和白翼的軍事化小部隊不同
 
+
+*****
+
+####  azbhg1  
+##### 274#       发表于 2025-9-26 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68484303&amp;ptid=2193746" target="_blank">阿萨姆1405 发表于 2025-9-25 01:06</a>
+降龙哥长得五大三粗其实意外的是科研型人才（
+
+对龙专用的索敌道具还有用雷魔术改编的捕龙网都是他开发出 ...</blockquote>
+这作的精灵到底是怎么个设定
+
