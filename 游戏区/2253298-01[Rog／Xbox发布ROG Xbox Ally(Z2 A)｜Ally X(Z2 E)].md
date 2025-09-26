@@ -29,3 +29,31 @@ Pricing based on Best Buy API
 
 大概是最好预购的一次, 这个总不会要抢了吧
 
+
+*****
+
+####  ultraseven  
+##### 138#       发表于 2025-9-26 08:37
+
+ 本帖最后由 ultraseven 于 2025-9-26 08:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490447&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-9-26 07:39</a>
+
+除了Holy Shit想不出第二个词
+
+"ROG Xbox Ally preorders may go live in 30 minutes (5 PM PT). Best Buy ...</blockquote>
+Best Buy网站点进去竟然还要排队<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过看了眼微软官网也有售，这下可以用礼品卡折扣了
+
+
+*****
+
+####  zid99825  
+##### 139#       发表于 2025-9-26 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490447&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-9-26 07:39</a>
+除了Holy Shit想不出第二个词
+
+"ROG Xbox Ally preorders may go live in 30 minutes (5 PM PT). Best Buy ...</blockquote>
+不觉得rog会放多少货
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
