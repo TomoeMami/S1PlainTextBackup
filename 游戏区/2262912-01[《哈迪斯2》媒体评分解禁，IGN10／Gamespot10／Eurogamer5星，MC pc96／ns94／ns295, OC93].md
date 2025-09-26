@@ -643,3 +643,24 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 这战斗跟资源解锁和ea啥区别 玩一会就不想玩了
 
+
+*****
+
+####  ybfelix  
+##### 73#       发表于 2025-9-26 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68488382&amp;ptid=2262912" target="_blank">葵 发表于 2025-9-25 17:35</a>
+
+哈迪斯系列本来就好玩，无非是泥潭一直看不上罢了
+
+而且一代很大的加分项在于傲视独游的美术和海量有趣的文 ...</blockquote>
+滴灌喂食，打一整局可能才出一句新对话，还可能不出。加上局外资源的掉率和填充数值，比上班还上班。设想要是Persona5做成打一次Mementos给一句社群对话，文本量观感简直爆了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HellMaster  
+##### 74#       发表于 2025-9-26 15:15
+
+后面新内容会越来越多，而且随着人物解锁会扎堆出现…
+
