@@ -2749,3 +2749,15 @@ TGS大量演示和试玩视频流出
 
 感觉动作轻飘飘的，没有旧作那种力量感
 
+
+*****
+
+####  JOJO42  
+##### 304#       发表于 2025-9-26 23:18
+
+ 本帖最后由 JOJO42 于 2025-9-26 23:20 编辑 
+
+<img src="https://wx1.sinaimg.cn/large/005DY3dDly1i5q706wo3ng30go09e4qx.gif" referrerpolicy="no-referrer">https://wx1.sinaimg.cn/large/005DY3dDly1i5q706wo3ng30go09e4qx.gif
+
+完整的连续一闪片段
+
