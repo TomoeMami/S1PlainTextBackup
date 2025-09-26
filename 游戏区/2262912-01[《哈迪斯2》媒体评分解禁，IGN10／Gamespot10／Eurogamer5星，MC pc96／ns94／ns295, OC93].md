@@ -672,3 +672,11 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 素材获取是少的可怜居然这么久都没改过数量，我EA反正是修改器改的2-3倍素材<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酒瓶止迁  
+##### 76#       发表于 2025-9-26 16:00
+
+这家我个人玩得最开心的是堡垒，故事完整，想刷也有高难度的选择，后续作品感觉都是堡垒plus，不是叙事一股子味就是疯狂拖时间
+
