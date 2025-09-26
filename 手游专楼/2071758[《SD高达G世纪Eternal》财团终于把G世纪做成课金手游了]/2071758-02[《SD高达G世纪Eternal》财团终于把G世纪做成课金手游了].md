@@ -5025,3 +5025,25 @@ UR-》 UUR -〉 UUUR
 
 SSP只能用在SSR和以下单位，早期UR反而没法加强地形或者移动力了
 
+
+*****
+
+####  无念  
+##### 2730#       发表于 2025-9-26 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68491550&amp;ptid=2071758" target="_blank">alialex 发表于 2025-9-26 11:44</a>
+SSP只能用在SSR和以下单位，早期UR反而没法加强地形或者移动力了</blockquote>
+没事，可以奶一周年直接上修<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 2731#       发表于 2025-9-26 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68483633&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-9-24 21:25</a>
+大冰箱地形适应一泡污啊，而且0079阵容太拥挤了，不过还是想收藏一个</blockquote>
+来个修正地形op不就解决了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
