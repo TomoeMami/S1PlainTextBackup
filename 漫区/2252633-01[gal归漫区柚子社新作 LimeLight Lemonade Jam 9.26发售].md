@@ -97,3 +97,14 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 2dj和kf这些大论坛自然不用说，但很多资源小站就没那么多生肉资源了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有那不就对了吗，为啥要去什么小站，这不叫找生肉难这叫找不到的人蠢
 
+
+*****
+
+####  mooerfoes  
+##### 62#       发表于 2025-9-26 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68493143&amp;ptid=2252633" target="_blank">wolf1997 发表于 2025-9-26 17:33</a>
+
+2dj和kf这些大论坛自然不用说，但很多资源小站就没那么多生肉资源了。</blockquote>
+真有生肉需求就没必要跑去小站了，那种地方大多没有资源纯净的意识的
+
