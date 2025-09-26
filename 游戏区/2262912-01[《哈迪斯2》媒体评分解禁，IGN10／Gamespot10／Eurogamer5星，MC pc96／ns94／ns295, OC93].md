@@ -664,3 +664,11 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 后面新内容会越来越多，而且随着人物解锁会扎堆出现…
 
+
+*****
+
+####  方舟失智博士  
+##### 75#       发表于 2025-9-26 15:42
+
+素材获取是少的可怜居然这么久都没改过数量，我EA反正是修改器改的2-3倍素材<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
