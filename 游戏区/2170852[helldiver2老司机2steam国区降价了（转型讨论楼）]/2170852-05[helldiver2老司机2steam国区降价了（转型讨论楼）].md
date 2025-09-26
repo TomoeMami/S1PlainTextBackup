@@ -170,3 +170,12 @@ Arrowhead开发团队
 箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了箭头一直在用过期引擎做游戏的代价就是一直在给未 ...</blockquote>
 换引擎基本等于重做了，必不可能。现在能多招几个有技术有经验的能修一点是一点就不错了，记得之前说是招到了肥鲨的人，希望能起点作用吧只能说<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7156#       发表于 2025-9-27 02:26
+
+<img src="https://p.sda1.dev/27/329d533573cfd612421748e84109ae2a/CMP_20250927022457939.jpeg" referrerpolicy="no-referrer">
+速报这几天的ceo问答号外还挺不错
+
