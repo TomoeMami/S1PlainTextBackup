@@ -61,3 +61,16 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 
 现在的gal确实找生肉比找AI翻译版要难，很多地方都直接传AI汉化版的。
 
+
+*****
+
+####  黑上シグマ  
+##### 59#       发表于 2025-9-26 17:04
+
+<blockquote>引用第57楼wolf1997于2025-09-26 16:38发表的  :
+
+现在的gal确实找生肉比找AI翻译版要难，很多地方都直接传AI汉化版的。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2大姐没死呢，找生肉有啥难的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
