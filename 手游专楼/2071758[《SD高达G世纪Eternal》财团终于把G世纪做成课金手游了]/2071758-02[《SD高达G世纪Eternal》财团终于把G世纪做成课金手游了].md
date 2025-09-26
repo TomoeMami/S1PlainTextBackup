@@ -5017,3 +5017,11 @@ UR-》 UUR -〉 UUUR
 
 顶多给你个△吧，怎么大杀四方<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 2729#       发表于 2025-9-26 11:44
+
+SSP只能用在SSR和以下单位，早期UR反而没法加强地形或者移动力了
+
