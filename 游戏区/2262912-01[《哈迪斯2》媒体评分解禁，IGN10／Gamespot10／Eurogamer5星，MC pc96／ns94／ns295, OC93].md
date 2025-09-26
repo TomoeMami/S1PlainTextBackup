@@ -635,3 +635,11 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 玩了两小时，好玩！一代我不喜欢的宝石终于没了，改成统一魔法点挺不错的，美术配音和台本都在线，真不错<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qq2007ssy  
+##### 72#       发表于 2025-9-26 14:33
+
+这战斗跟资源解锁和ea啥区别 玩一会就不想玩了
+
