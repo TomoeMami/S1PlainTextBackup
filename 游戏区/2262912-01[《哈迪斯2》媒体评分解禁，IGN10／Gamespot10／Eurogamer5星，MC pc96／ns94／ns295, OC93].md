@@ -756,3 +756,15 @@ Inti Creates，老牌公司，上独立游戏发布会
 
 不然就要趁弹丸加速的时候反方向冲刺，来回三五次就过掉了，挺难躲的。
 
+
+*****
+
+####  Firvox  
+##### 85#       发表于 2025-9-26 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68492779&amp;ptid=2262912" target="_blank">水边井 发表于 2025-9-26 16:12</a>
+昨天把1代下回来玩了一下，发现还是不会玩，要不是锤子不对，组件不齐，要不是前置凑齐了双重祝福不出，死 ...</blockquote>
+祝福最优先雅典娜的闪避盾，其他祝福选两个主神的，因为可以roll到强力的双重祝福
+
+锤子看情况选，这个你得查查资料
+
