@@ -57,3 +57,11 @@ Best Buy网站点进去竟然还要排队<img src="https://static.stage1st.com/i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ultraseven  
+##### 140#       发表于 2025-9-26 08:55
+
+国行6499？看起来还行
+
