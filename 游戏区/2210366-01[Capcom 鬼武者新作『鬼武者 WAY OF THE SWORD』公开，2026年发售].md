@@ -2866,3 +2866,13 @@ mh的rpg啊
 对卡表不抱什么希望
 不会又准备卖348吧😅😅
 
+
+*****
+
+####  yyf1940  
+##### 315#       发表于 2025-9-27 19:21
+
+盲猜一个首发优化爆炸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
