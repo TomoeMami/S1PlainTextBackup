@@ -25,3 +25,38 @@
 
 声优是滋贺县出身新人
 
+
+*****
+
+####  zzhh0131  
+##### 43#       发表于 2025-9-27 19:00
+
+[https://x.com/Goodbye_Lara/status/1971890266786422862](https://x.com/Goodbye_Lara/status/1971890266786422862)
+
+˚⊹
+
+　出会った。
+
+　　　
+
+　　まだ知らない。
+
+　　　　　あなたと。
+
+　　　　　　　　　⊹˚
+
+～TVアニメ『#さよなララ』2026年放送～
+
+ララ役：#菱川花菜
+
+大津茉里役：#川石奈奈
+
+監督：#小出卓史
+
+キャラクターデザイン：#谷紫織
+
+音楽：yuma yamaguchi
+
+原作・アニメーション制作：キネマシトラス
+<img src="https://p.sda1.dev/27/6674eaa3968dcbb8a5786f99fc6775b3/G12PvluaYAAEquf.jpg" referrerpolicy="no-referrer">
+
