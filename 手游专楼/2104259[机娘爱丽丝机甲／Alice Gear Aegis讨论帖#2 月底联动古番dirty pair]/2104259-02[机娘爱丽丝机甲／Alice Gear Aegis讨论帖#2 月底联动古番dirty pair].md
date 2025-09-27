@@ -168,3 +168,15 @@ FY13 7493 CQ6U UJAN
 
 全员都有份的衣服第一次50~60钻，其他衣服100钻折后75钻。120是特别衣服的价了，全买据说要7万yen富哥专用。
 
+
+*****
+
+####  冰风血羽  
+##### 1688#       发表于 2025-9-27 20:27
+
+<img src="https://p.sda1.dev/27/b8d8efebc7fabecd0ba62a519313d7c3/image.jpg" referrerpolicy="no-referrer">
+
+莫名其妙的和谐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
