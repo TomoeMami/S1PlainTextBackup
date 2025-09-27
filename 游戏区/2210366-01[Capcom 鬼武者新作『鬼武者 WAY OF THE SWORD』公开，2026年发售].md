@@ -2793,3 +2793,14 @@ TGS大量演示和试玩视频流出
 
 目前看来下最大问题就是小怪类型，演示各种关卡大量重复出现序章那种小怪，正式版如果怪物类型少肯定被喷
 
+
+*****
+
+####  Markorca  
+##### 308#       发表于 2025-9-27 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495192&amp;ptid=2210366" target="_blank">缺德猫 发表于 2025-9-27 08:43</a>
+
+目前看来下最大问题就是小怪类型，演示各种关卡大量重复出现序章那种小怪，正式版如果怪物类型少肯定被喷 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前鬼武者普通拿刀小怪是移动的资源，给你一闪回血回蓝的，多出现点也没啥问题，这回就不太清楚了
+
