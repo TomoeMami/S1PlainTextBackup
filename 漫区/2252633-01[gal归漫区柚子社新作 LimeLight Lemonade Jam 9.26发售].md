@@ -210,3 +210,18 @@ gemini的吧
 2dj和kf这些大论坛自然不用说，但很多资源小站就没那么多生肉资源了。</blockquote>
 这发言太典了。找资源不去2dj、nyaa这些大站，却跑去路边一条的小站是什么逻辑？给那些收费资源网站打广告吗？
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 72#         楼主| 发表于 2025-9-27 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495815&amp;ptid=2252633" target="_blank">dookiee 发表于 2025-9-27 12:16</a>
+
+小小ky一下，大家经常吹柚子美术多屌，但是这么多作下来每个角色都同一张脸真的不会看腻吗脸盲程度感觉比什 ...</blockquote>
+其实柚子的美术也没人吹吧至少最近几年，这一作反而有点回光返照了再往前一年比一年拉包括今年也是激情抨击的不少
+
+我印象里星巴克和扑棱蛾子出之前就有无数换脸了，只不过因为那部都是19年的事了，往后就是天使拉了一次大的，现在柚子唯一被多数好评的大概只有系统吧
+
+尤其我是smee厨，沟槽的hook系都5202年了还没有跳到下个选项功能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
