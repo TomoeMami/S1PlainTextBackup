@@ -5098,3 +5098,15 @@ Bro, NO One cares who's right between "Bai Zuo" and "Bai You", NO ONE.
 死老公真开心。
 <img src="https://p.sda1.dev/27/926b070174fc042253ce33d2b704048a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星零影  
+##### 1895#       发表于 2025-9-27 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68497954&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-27 22:01</a>
+死老公真开心。</blockquote>
+Mrs.心胸开阔也是这样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
