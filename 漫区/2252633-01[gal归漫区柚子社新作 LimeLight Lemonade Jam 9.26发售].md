@@ -189,3 +189,13 @@ gemini的吧
 
 —— 来自 vivo V2339A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  dookiee  
+##### 70#       发表于 2025-9-27 12:16
+
+小小ky一下，大家经常吹柚子美术多屌，但是这么多作下来每个角色都同一张脸真的不会看腻吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脸盲程度感觉比什么八月脸和武内脸还要严重得多，然后发型啥的也很普，基本就是换换发色，就让人感觉很行活
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
