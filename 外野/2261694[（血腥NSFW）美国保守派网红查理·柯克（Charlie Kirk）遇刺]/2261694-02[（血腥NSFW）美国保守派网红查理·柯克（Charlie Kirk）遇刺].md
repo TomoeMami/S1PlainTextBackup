@@ -5137,3 +5137,15 @@ Mrs.心胸开阔也是这样<img src="https://static.stage1st.com/image/smiley/f
 这电视节目 "Real America's Voice", 保持真实、屁散的落夫、死根儿~
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 1898#       发表于 2025-9-28 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68497954&amp;ptid=2261694" target="_blank">仟音一心 发表于 2025-9-27 22:01</a>
+死老公真开心。</blockquote>
+哇老公死了，美美吃遗产咯
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
