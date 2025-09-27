@@ -225,3 +225,14 @@ gemini的吧
 
 尤其我是smee厨，沟槽的hook系都5202年了还没有跳到下个选项功能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 73#       发表于 2025-9-27 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495898&amp;ptid=2252633" target="_blank">Toby_dak 发表于 2025-9-27 12:47</a>
+
+这发言太典了。找资源不去2dj、nyaa这些大站，却跑去路边一条的小站是什么逻辑？给那些收费资源网站打广 ...</blockquote>
+我一直用KF和nyaa的不用跟我说，有这点想法主要是因为去年听说忧郁的弟弟出事之后，发现G吧里原来有很多人就指望着这类网站过活的，顺带发现了一堆小网站，不收费、受众也是真不少，特别适合那些不喜欢混论坛的。2DFAN比KF本身火多了也有这点原因。
+

@@ -98,3 +98,37 @@
 
 总算有新歌了
 
+
+*****
+
+####  堀内爱里衣  
+##### 41339#       发表于 2025-9-27 14:15
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/27/141504x3k81b2wb5sd5knl.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-27_14-12-42.jpg</strong> (92.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 14:15 上传
+
+       [https://t.bilibili.com/1117167381545746439](https://t.bilibili.com/1117167381545746439)
+
+       [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
+       
+
+<img src="https://img.stage1st.com/forum/202509/27/141503hjcq0b4t4np4zpcp.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-09-27_14-14-01.jpg</strong> (173.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 14:15 上传
+
+       [https://x.com/BDP_AveMujica/status/1971771792537931841](https://x.com/BDP_AveMujica/status/1971771792537931841)
+
+       [https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
