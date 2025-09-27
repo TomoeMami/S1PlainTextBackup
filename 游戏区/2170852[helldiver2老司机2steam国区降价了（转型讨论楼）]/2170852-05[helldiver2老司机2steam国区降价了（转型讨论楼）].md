@@ -193,3 +193,67 @@ Arrowhead开发团队
 
 现在通过问答来看可能的情况就是，开发阶段反复在付费问题上来回变，最后成了一团浆糊。箭头主流意见应该还是想做成一代这样的买断制，索尼迫切要一个长线运营游戏顶上星明特工的缺强加内购系统…最后箭头叛逆的小念头一起搞了个阳奉阴违，把现在的这套蓝币系统填上去把索尼糊弄过去了…
 
+
+*****
+
+####  6x6z6w  
+##### 7158#       发表于 2025-9-26 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490087&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-9-26 00:31</a>
+
+新回应，所以箭头就是压根不知道怎么下手修复，上面给压力但是下面写代码的摆烂了吧 ...</blockquote>
+箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">箭头一直在用过期引擎做游戏的代价就是一直在给未来的自己欠债，现在这个债已经到了不得不还的时候了
+
+*****
+
+####  qwased  
+##### 7159#       发表于 2025-9-26 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490198&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-9-26 01:32</a>
+
+箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了箭头一直在用过期引擎做游戏的代价就是一直在给未 ...</blockquote>
+换引擎不如做HD3<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把现在这些影响游戏的bug尽量修到没有重大影响然后准备开发HD3就行了
+
+*****
+
+####  FLZB  
+##### 7160#       发表于 2025-9-26 03:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68490198&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-9-26 01:32</a>
+
+箭头聪明点的话现在已经在开始招人并考虑换引擎的事情了箭头一直在用过期引擎做游戏的代价就是一直在给未 ...</blockquote>
+换引擎基本等于重做了，必不可能。现在能多招几个有技术有经验的能修一点是一点就不错了，记得之前说是招到了肥鲨的人，希望能起点作用吧只能说<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xinfengj  
+##### 7161#       发表于 2025-9-27 02:26
+
+<img src="https://p.sda1.dev/27/329d533573cfd612421748e84109ae2a/CMP_20250927022457939.jpeg" referrerpolicy="no-referrer">
+速报这几天的ceo问答号外还挺不错
+
+*****
+
+####  xinfengj  
+##### 7162#       发表于 2025-9-27 02:49
+
+ 本帖最后由 xinfengj 于 2025-9-27 02:54 编辑 
+
+之前觉得箭头把付费货币相关设置的很混乱，正常的游戏的付费货币绝不会可以从游戏中无上限获得，这样就是自杀，自己消灭自己靠内购赚钱的可能。
+
+魔兽世界的时光徽章、EVE的飞行员执照这种虽然可以用免费货币交易到，源头也是付费玩家从运营手里买来再通过游戏内经济系统交易出去的。而抽卡手游里的“农免费钻”则是严格控制数量，时不时出一些强力卡掏空玩家囤积后再开活动逼课。
+
+但是蓝币系统即使反作弊100%工作，普通人靠农也能把所有债券农出来，那他这个付费债券系统对于赚钱来说就彻底失败了。把玩家掏不掏钱的权利送回了玩家自己手里，做成免费游戏的话付费率索尼绝对要骂街的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+现在通过问答来看可能的情况就是，开发阶段反复在付费问题上来回变，最后成了一团浆糊。箭头主流意见应该还是想做成一代这样的买断制，索尼或者有领导上压力要做一个长线运营游戏加内购系统…最后箭头攻城狮叛逆的小念头一起搞了个阳奉阴违，用现在的这套蓝币系统填上去把上头糊弄过去了…
+
+*****
+
+####  FLZB  
+##### 7163#       发表于 2025-9-27 07:55
+
+我看他得亏做成这样，走初代付费模式恐怕早凉透了。配装凑拼图起码一两百起步，连骑士都有p2w争议，这堆破烂玩具要让玩家花钱买我不知道谁会玩
+
+箭头纯粹就是自己把路走死，护甲非得绑加成，搞得没法卖皮肤，而玩家为了解毒又不得不穿上各种丑逼护甲，达成了双输的局面<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
