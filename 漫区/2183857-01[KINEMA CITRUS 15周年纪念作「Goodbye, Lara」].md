@@ -60,3 +60,34 @@
 原作・アニメーション制作：キネマシトラス
 <img src="https://p.sda1.dev/27/6674eaa3968dcbb8a5786f99fc6775b3/G12PvluaYAAEquf.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 44#         楼主| 发表于 2025-9-27 19:12
+
+“大津茉里”発表PV：[https://youtu.be/-NJlbqDXhBk](https://youtu.be/-NJlbqDXhBk)
+
+2026年放送
+
+スタッフ
+
+監督：小出卓史
+
+シリーズ構成：川原杏奈
+
+キャラクターデザイン：谷紫織
+
+音楽：yuma yamaguchi
+
+原作・アニメーション制作：キネマシトラス
+
+キャスト
+
+ララ：菱川花菜
+
+大津茉里：川石奈奈
+<img src="https://p.sda1.dev/27/8f95739d936319a3096e63be500209fc/20250927_190652.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/3aa3c97f6fa0ec62cc2fd88fdcd02d02/20250927_190659.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/a1f7ce9f17379154af1fab068caba2b5/20250927_190700.jpg" referrerpolicy="no-referrer">
+
