@@ -74,3 +74,51 @@ PC版今天也有小更新啊，可以领一个国服NIKKLE的码，还有可以
 
 不过看彩蛋以后渡鸦续作可能还有戏？
 
+
+*****
+
+####  两个路人  
+##### 4276#       发表于 2025-9-27 21:46
+
+ 本帖最后由 两个路人 于 2025-9-27 21:48 编辑 
+
+这联动配音比本体舒服一些。原版真特么垃圾文本翻译，挂起来好了
+
+【【国服中配】星之追忆者 MEMORIES TELLER 剑星联动剧情 故事 1【NIKKE胜利女神新的希望】4K60-哔哩哔哩】 https://b23.tv/8B5z18X
+
+SIMPLIFIED CHINESE TEXT LOCALISATION
+
+OneSky
+
+SIMPLIFIED CHINESE AUDIO LOCALISATION
+
+Keywords Studios
+
+SIMPLIFIED CHINESE TRANSLATION
+
+Kiko Deng
+
+Dan Gao
+
+Albert Wei
+
+Pengfei Zhan
+
+Luna Lu
+
+TRADITIONAL CHINESE LOCALISATION
+
+OneSky
+
+TRADITIONAL CHINESE TRANSLATION
+
+Jenson Chen
+
+Abby Tseng
+
+Amy Lin
+
+Eve Wu
+
+Tony Tang
+

@@ -720,3 +720,13 @@ MuMu-20250925-174415-737.jpg
 
 话说他会不会像理查那样，灵三整个无辜怪物形态，直接从一护和白哉变成狛村<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 18309#       发表于 2025-9-27 21:48
+
+卧槽，进门就看到原田在乳海
+
+【B叔：绷不住了，单挑怎么还有比我战续多的人？😓-哔哩哔哩】 https://b23.tv/JmutPWZ
+
