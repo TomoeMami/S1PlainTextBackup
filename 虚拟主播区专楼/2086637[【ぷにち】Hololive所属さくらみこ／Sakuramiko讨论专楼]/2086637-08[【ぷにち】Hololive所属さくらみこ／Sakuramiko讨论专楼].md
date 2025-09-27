@@ -168,3 +168,33 @@ GTA。。。。。？
 
 okayo和星街的组合名确定了
 
+
+*****
+
+####  holofan  
+##### 11209#       发表于 2025-9-27 23:38
+
+<img src="https://img.stage1st.com/forum/202509/27/233845mfgqi2sita11sayq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 23:38 上传
+
+<img src="https://img.stage1st.com/forum/202509/27/233906gywro4i3zcmtrw4i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 23:39 上传
+
+
+*****
+
+####  holofan  
+##### 11210#       发表于 2025-9-27 23:43
+
+这下真的不认识了，这两人以前什么关系？
+
