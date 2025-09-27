@@ -424,3 +424,16 @@ rog降价没msi那么夸张
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ultraseven  
+##### 42#       发表于 2025-9-27 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495697&amp;ptid=2263003" target="_blank">亚瑟摩根 发表于 2025-9-27 11:41</a>
+
+你这真尬黑了，哪个软软会吹这玩意是ns2 killer，你要不要帖几个让我开开眼？
+
+—— 来自 S1Fun ...</blockquote>
+Legion Go 2杀手？
+
