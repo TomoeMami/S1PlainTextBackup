@@ -2876,3 +2876,11 @@ mh的rpg啊
 
 —— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  RinQ0326  
+##### 316#       发表于 2025-9-27 20:38
+
+鬼武者不需要美少女吧，怎么有坛友这么在意这个。
+
