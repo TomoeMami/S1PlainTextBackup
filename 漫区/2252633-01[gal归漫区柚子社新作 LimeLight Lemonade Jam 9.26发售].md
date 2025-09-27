@@ -159,3 +159,33 @@ AI汉化补丁甚至半天不到就有了，柚子社人气还是高啊
 
 哪位大佬能发个汉化资源？
 
+
+*****
+
+####  nagitoY  
+##### 68#       发表于 2025-9-27 10:49
+
+现在汉化补丁选哪个
+
+<img src="https://img.stage1st.com/forum/202509/27/104826fup7c57ja75h2ta8.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (184.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 10:48 上传
+
+2dfan好多，一般来说翻译方面选gemini还是ds
+
+
+*****
+
+####  燚龘YD  
+##### 69#       发表于 2025-9-27 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495534&amp;ptid=2252633" target="_blank">nagitoY 发表于 2025-9-27 10:49</a>
+现在汉化补丁选哪个</blockquote>
+gemini的吧
+
+—— 来自 vivo V2339A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
