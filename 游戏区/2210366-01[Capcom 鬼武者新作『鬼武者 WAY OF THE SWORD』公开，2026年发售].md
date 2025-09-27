@@ -2884,3 +2884,14 @@ mh的rpg啊
 
 鬼武者不需要美少女吧，怎么有坛友这么在意这个。
 
+
+*****
+
+####  zqqwe  
+##### 317#       发表于 2025-9-27 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68497582&amp;ptid=2210366" target="_blank">RinQ0326 发表于 2025-9-27 20:38</a>
+
+鬼武者不需要美少女吧，怎么有坛友这么在意这个。</blockquote>
+即使不提人设二次元化的新鬼，123的可操作女角色在当时看都是标准美少女水平吧，哪有现在公布这俩这么“特色”
+
