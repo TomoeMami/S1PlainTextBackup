@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 18451,
+    "totalreply": 18452,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1758931570,
+    "lastedit": 1758935170,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 19926,
+    "totalreply": 19927,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.17 我见尤怜]",
-    "lastedit": 1758934568,
+    "lastedit": 1758935169,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 68604,
+    "totalreply": 68606,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1758933009,
+    "lastedit": 1758934809,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12348,10 +12348,10 @@
     "update": false
   },
   "2260696": {
-    "totalreply": 329,
+    "totalreply": 331,
     "title": "[中东专楼-9月版]",
     "newtitle": "[中东专楼-9月版]",
-    "lastedit": 1758932168,
+    "lastedit": 1758935170,
     "category": "外野",
     "active": true,
     "update": false
@@ -14211,10 +14211,10 @@
     "update": false
   },
   "2262134": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[空洞骑士丝之歌vs密特罗德生存恐惧]",
     "newtitle": "[空洞骑士丝之歌vs密特罗德生存恐惧]",
-    "lastedit": 1758934328,
+    "lastedit": 1758935288,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15476,7 +15476,7 @@
     "newtitle": "[父嫁，这是父嫁！]",
     "lastedit": 1758675491,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2155525": {
@@ -15629,7 +15629,7 @@
     "newtitle": "[电池弹射技术来啦]",
     "lastedit": 1758675740,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2184844": {
@@ -17384,6 +17384,15 @@
     "newtitle": "[【简单投】明末vs匹诺曹]",
     "lastedit": 1758931338,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2263068": {
+    "totalreply": 41,
+    "title": "[为什么战国三杰里最拟人的德川家康在本子那边的人气远不如另两位贵物？]",
+    "newtitle": "[为什么战国三杰里最拟人的德川家康在本子那边的人气远不如另两位贵物？]",
+    "lastedit": 1758934811,
+    "category": "外野",
     "active": true,
     "update": false
   }
