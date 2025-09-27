@@ -730,3 +730,13 @@ MuMu-20250925-174415-737.jpg
 
 【B叔：绷不住了，单挑怎么还有比我战续多的人？😓-哔哩哔哩】 https://b23.tv/JmutPWZ
 
+
+*****
+
+####  森兰丸  
+##### 18310#       发表于 2025-9-28 00:08
+
+废狗的藤堂这塑造的也太讨人厌了吧.....和个耍性子的小屁孩没啥区别
+
+想不出后续有啥剧情能挽回对这个角色的观感<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
