@@ -199,3 +199,14 @@ gemini的吧
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Toby_dak  
+##### 71#       发表于 2025-9-27 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68493143&amp;ptid=2252633" target="_blank">wolf1997 发表于 2025-9-26 18:33</a>
+
+2dj和kf这些大论坛自然不用说，但很多资源小站就没那么多生肉资源了。</blockquote>
+这发言太典了。找资源不去2dj、nyaa这些大站，却跑去路边一条的小站是什么逻辑？给那些收费资源网站打广告吗？
+
