@@ -5110,3 +5110,30 @@ Mrs.心胸开阔也是这样<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  2017.05.04  
+##### 1896#       发表于 2025-9-27 23:15
+
+哥伦比亚总统在联合国大会喷了一顿之后去纽约街头呼吁美军反抗暴政，被吊销签证了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝拒了那么多签证结果还是有漏网之鱼啊
+<img src="https://p.sda1.dev/27/2f62002682f5d7086761c62f1491a6c6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/371305cbbfa0ff3b8a7f81bbe697ff36/image.jpg" referrerpolicy="no-referrer">
+然后这位秘书也刚发了个声明为了声援总统自愿放弃签证
+<img src="https://p.sda1.dev/27/f26dbf3b777a17c3768f896bd74dc98b/image.jpg" referrerpolicy="no-referrer">
+
+其实这是个好办法啊，很多国家都应该查查有哪些人不支持巴勒斯坦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  就咋的  
+##### 1897#       发表于 2025-9-27 23:20
+
+前几天不是丧事喜办么，Mrs. Kirk 当选了 TPUSA 新一任 CEO, 人逢喜事精神爽
+
+这电视节目 "Real America's Voice", 保持真实、屁散的落夫、死根儿~
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
