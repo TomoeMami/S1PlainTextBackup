@@ -3127,3 +3127,13 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 鬼武者传统上有个魔宫模式吧？有点期待这回是什么样。
 
+
+*****
+
+####  57042711  
+##### 335#       发表于 2025-9-29 00:22
+
+也许后面能变身了就是前作那种一刀过去敌人直接化成灰<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
