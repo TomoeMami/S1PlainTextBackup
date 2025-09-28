@@ -267,3 +267,18 @@ gemini的吧
 女主cv已经确定是岛袋美由利了吗</blockquote>
 bangumi已经打上岛袋美由利的标签了，有点意外，我是没听出来
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 77#         楼主| 发表于 2025-9-28 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68499244&amp;ptid=2252633" target="_blank">nagitoY 发表于 2025-9-28 09:48</a>
+
+bangumi已经打上岛袋美由利的标签了，有点意外，我是没听出来</blockquote>
+小道消息早就有了，我之前搬过
+
+但是没实锤，bgm和yndb说到底是用户网站你可以自己改内容的
+
+就和本作昨天评分区10分1分八角笼一样
+
