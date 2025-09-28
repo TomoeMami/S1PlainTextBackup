@@ -1462,3 +1462,30 @@ fs这个公告表述也太不清不楚，看完我也没搞明白如果主动降
 
 昨天终于和队友进2了，2里面小怪好猛呀，比如那个腐败森林的那个远程放有轨迹的攻击的那个怪，中一下大半管血就没了，是不是得先清点小怪再打boss<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  petitlui  
+##### 1772#       发表于 2025-9-28 16:36
+
+<blockquote>luodang007 发表于 2025-9-28 10:29
+昨天终于和队友进2了，2里面小怪好猛呀，比如那个腐败森林的那个远程放有轨迹的攻击的那个怪，中一下大半管 ...</blockquote>
+我会清，就算是普通模式脆皮被虫丝打死的概率也不为0（。
+
+*****
+
+####  luodang007  
+##### 1773#       发表于 2025-9-28 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68501268&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-9-28 16:36</a>
+
+我会清，就算是普通模式脆皮被虫丝打死的概率也不为0（。</blockquote>
+了解，深夜还是要换个思路
+
+*****
+
+####  luodang007  
+##### 1774#       发表于 2025-9-28 16:41
+
+另外今天看到一个不错的数据查询网站分享下 [https://xxiixi.github.io/NightreignQuickRef/](https://xxiixi.github.io/NightreignQuickRef/)
+
