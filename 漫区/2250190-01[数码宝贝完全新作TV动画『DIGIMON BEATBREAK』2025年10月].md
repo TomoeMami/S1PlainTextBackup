@@ -114,3 +114,18 @@ TVアニメ『DIGIMON BEATBREAK』
 为啥要改</blockquote>
 可能zz要素可能宗教要素，反正官方没写
 
+
+*****
+
+####  想喝一点点  
+##### 107#       发表于 2025-9-28 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68500040&amp;ptid=2250190" target="_blank">恋叶梦境 发表于 2025-9-28 12:00</a>
+
+女主搭档的进化
+
+ウルヴァモン
+
+词源是Wolverine</blockquote>
+格斗狼人真多啊
+
