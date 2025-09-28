@@ -256,3 +256,14 @@ gemini的吧
 
 女主cv已经确定是岛袋美由利了吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 76#       发表于 2025-9-28 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68496440&amp;ptid=2252633" target="_blank">花海佑芽 发表于 2025-9-27 16:02</a>
+
+女主cv已经确定是岛袋美由利了吗</blockquote>
+bangumi已经打上岛袋美由利的标签了，有点意外，我是没听出来
+

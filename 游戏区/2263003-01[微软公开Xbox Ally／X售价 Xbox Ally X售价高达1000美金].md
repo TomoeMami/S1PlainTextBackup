@@ -437,3 +437,35 @@ rog降价没msi那么夸张
 —— 来自 S1Fun ...</blockquote>
 Legion Go 2杀手？
 
+
+*****
+
+####  泰坦失足  
+##### 43#       发表于 2025-9-28 09:48
+
+真的有黄牛炒? 真的有人从黄牛那里买?
+
+<img src="https://img.stage1st.com/forum/202509/28/094743zlykhapzvnnupnls.jpg" referrerpolicy="no-referrer">
+
+<strong>G1zuXBDaoAEGtVX.jpg</strong> (101.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 09:47 上传
+
+<img src="https://img.stage1st.com/forum/202509/28/094754x1luqlpqslex3qez.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (342.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 09:47 上传
+
+<img src="https://img.stage1st.com/forum/202509/28/094808ipmufkxmezt0l4lu.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (764.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 09:48 上传
+
