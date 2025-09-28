@@ -148,3 +148,16 @@ TVアニメ『DIGIMON BEATBREAK』
 怎么从猫进化成狗了，补药啊<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 而且男二兽不也是狼吗
 
+
+*****
+
+####  新HGCG  
+##### 110#       发表于 2025-9-28 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68500903&amp;ptid=2250190" target="_blank">哈尔路尼亚 发表于 2025-9-28 15:19</a>
+
+怎么从猫进化成狗了，补药啊
+
+而且男二兽不也是狼吗</blockquote>
+不是狗是獾
+
