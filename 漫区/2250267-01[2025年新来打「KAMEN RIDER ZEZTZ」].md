@@ -6,3 +6,15 @@
 
 OP很脱力燃不起来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 335#       发表于 2025-9-28 09:36
+
+Case5「堕ちろ」
+
+脚本：高橋悠也
+
+監督：柏木宏紀
+
