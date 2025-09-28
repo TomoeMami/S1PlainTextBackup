@@ -5079,3 +5079,11 @@ SSP只能用在SSR和以下单位，早期UR反而没法加强地形或者移动
 
 f91居然是盾，驴是辅助
 
+
+*****
+
+####  arthes  
+##### 2735#       发表于 2025-9-28 17:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也觉得绿驴三面盾又有过扛炮实绩做盾机，F91超一击就是开分身援护三次虚构层上更合理，可能就是单纯新机制py给人气机更好，只好牺牲f91了
+
