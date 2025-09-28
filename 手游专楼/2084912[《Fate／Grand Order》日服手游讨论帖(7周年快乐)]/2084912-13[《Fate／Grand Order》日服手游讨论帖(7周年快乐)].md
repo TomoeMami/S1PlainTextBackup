@@ -758,3 +758,16 @@ MuMu-20250925-174415-737.jpg
 
 十有八九是被松永或背后的黑幕当工具人用的，后面把伊东也整出来，和近藤一起解决掉他的心结就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18313#       发表于 2025-9-28 16:14
+
+今年哪里样板戏了，弓nobu一出来直接吊打对面不是乐麻了吗
+
+充分说明了历年对面开局ban nobu的必要性，不然天天吹这堆半编制自警团，都快忘了英灵大战是什么水准
+
+你们有几个人能打过剑性恋
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
