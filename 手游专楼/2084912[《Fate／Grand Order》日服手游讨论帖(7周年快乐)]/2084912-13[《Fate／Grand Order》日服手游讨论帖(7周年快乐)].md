@@ -789,3 +789,25 @@ MuMu-20250925-174415-737.jpg
 
 总司这个宝具本……额，我很难评
 
+
+*****
+
+####  khxooo  
+##### 18316#       发表于 2025-9-28 17:44
+
+CNM的后置效果，TM的给个前置会死吗<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18317#       发表于 2025-9-28 17:45
+
+总司这微妙的强化，强了又好像没强
+
+山南倒是比以前有用多了，现在可以提供全队
+
+20atk、20np率、30宝具威力、20充
+
+还挺大方的，可能是再给那个谜一样的宝具找补吧
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
