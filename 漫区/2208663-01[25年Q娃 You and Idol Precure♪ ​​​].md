@@ -40,3 +40,19 @@
 
 —— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  湖静欲成冰  
+##### 1308#       发表于 2025-9-28 14:51
+
+这集很乐，田中这个造型真有趣，后续还有回归的机会吗？
+
+<img src="https://img.stage1st.com/forum/202509/28/144757tyaa1oyn2n51k122.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 14:47 上传
+
