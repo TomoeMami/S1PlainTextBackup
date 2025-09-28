@@ -10,3 +10,18 @@
 
 这皇子也太二流反派了，诺曼底公要是这都搞不定也太丢人了
 
+
+*****
+
+####  aptx8285144  
+##### 149#       发表于 2025-9-28 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68502613&amp;ptid=2140549" target="_blank">一色いろは 发表于 2025-9-28 21:59</a>
+
+这集也太过渡了......
+
+这皇子也太二流反派了，诺曼底公要是这都搞不定也太丢人了
+
+ ...</blockquote>
+但是还有代表共和国部分势力的泽尔达在
+
