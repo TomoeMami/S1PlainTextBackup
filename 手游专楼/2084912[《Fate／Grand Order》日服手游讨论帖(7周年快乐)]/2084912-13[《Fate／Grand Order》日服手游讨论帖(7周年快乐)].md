@@ -750,3 +750,11 @@ MuMu-20250925-174415-737.jpg
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARKGRAY  
+##### 18312#       发表于 2025-9-28 11:13
+
+十有八九是被松永或背后的黑幕当工具人用的，后面把伊东也整出来，和近藤一起解决掉他的心结就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
