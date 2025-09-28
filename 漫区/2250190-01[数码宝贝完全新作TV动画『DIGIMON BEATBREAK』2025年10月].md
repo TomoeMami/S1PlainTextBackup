@@ -103,3 +103,14 @@ TVアニメ『DIGIMON BEATBREAK』
 本月10号有将队伍名修改</blockquote>
 为啥要改
 
+
+*****
+
+####  恋叶梦境  
+##### 106#       发表于 2025-9-28 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68500280&amp;ptid=2250190" target="_blank">达达达达葱 发表于 2025-9-28 12:45</a>
+
+为啥要改</blockquote>
+可能zz要素可能宗教要素，反正官方没写
+
