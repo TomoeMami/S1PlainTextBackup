@@ -740,3 +740,13 @@ MuMu-20250925-174415-737.jpg
 
 想不出后续有啥剧情能挽回对这个角色的观感<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 18311#       发表于 2025-9-28 10:36
+
+经验值样板戏次次都这么演，今年厌烦的人终于到一定比例了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
