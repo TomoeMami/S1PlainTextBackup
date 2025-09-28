@@ -3119,3 +3119,11 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 当然也有完全玩不会的，比如IGN<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  peipei6955  
+##### 334#       发表于 2025-9-28 23:41
+
+鬼武者传统上有个魔宫模式吧？有点期待这回是什么样。
+
