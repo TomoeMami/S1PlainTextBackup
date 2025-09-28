@@ -2927,3 +2927,11 @@ mh的rpg啊
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  conanoysq  
+##### 321#       发表于 2025-9-28 10:24
+
+就生化4re的表现来看，这种线性场景会出现优化爆炸情况，几乎不可能吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
