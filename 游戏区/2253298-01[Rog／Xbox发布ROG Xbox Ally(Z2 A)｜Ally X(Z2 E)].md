@@ -86,3 +86,11 @@ Best Buy网站点进去竟然还要排队<img src="https://static.stage1st.com/i
 论坛助手,iPhone</blockquote>
 确实没放多少货。看了下美区微软商店和华硕商店都暂时售罄
 
+
+*****
+
+####  startraveller  
+##### 143#       发表于 2025-9-28 18:47
+
+后面都能用新系统的话，是不是msi 那个a8可以平替？
+
