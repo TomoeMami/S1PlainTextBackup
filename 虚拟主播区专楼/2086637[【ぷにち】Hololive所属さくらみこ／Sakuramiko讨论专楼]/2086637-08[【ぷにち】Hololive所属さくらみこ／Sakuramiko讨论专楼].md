@@ -223,3 +223,60 @@ okayo和星街的组合名确定了
 
 —— 来自 HUAWEI ELE-AL00, Android 10, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rs5621  
+##### 11214#       发表于 2025-9-28 12:54
+
+[Hololive ホロライブ] [HLBD-10005] さくらみこ1st Live “flower fantasista!” MKV Remux
+
+<img src="https://img.stage1st.com/forum/202509/28/124023k572z29m5mw4oo87.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (410.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 12:40 上传
+
+https://nyaa.si/view/2024621，37g这玩意也太大了吧下不动
+
+还有一个5g 版的
+[https://nyaa.si/view/1891409](https://nyaa.si/view/1891409)
+
+[2024.09.25] hololive さくらみこ 1stアルバム「flower rhapsody」[通常盤][CD-FLAC+CUE+LOG+SCANS]
+
+<img src="https://img.stage1st.com/forum/202509/28/124829qpkfiwp70dz1wg0e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-28 12:48 上传
+
+[https://nyaa.si/view/1877451](https://nyaa.si/view/1877451)
+
+这专辑听了好久真不错
+
+推荐这三首我喜欢的
+
+7.きゅんきゅんみこきゅんきゅん♡
+
+8.あーゆーれでぃ
+
+10.ライクとヘイト
+
+老古董笔记本开不了机，用不了光驱，有资源省得我折腾了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11215#       发表于 2025-9-28 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68500310&amp;ptid=2086637" target="_blank">rs5621 发表于 2025-9-28 12:54</a>
+
+[Hololive ホロライブ] [HLBD-10005] さくらみこ1st Live “flower fantasista!” MKV Remuxhttps://nyaa.s ...</blockquote><blockquote>Date:2024-10-27 04:20</blockquote>
+那个5G的版本是去年live的录像，不是BD抓的
+
+去年的录像跟今年发售的BD很多地方不一样，还是要看BD的
+
