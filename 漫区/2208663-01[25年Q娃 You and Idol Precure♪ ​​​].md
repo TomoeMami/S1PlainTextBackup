@@ -70,3 +70,14 @@
 
 脸盆砸头我也是乱马那看的不过我猜应该有源头把估计是古早综艺节目？
 
+
+*****
+
+####  starring  
+##### 1310#       发表于 2025-9-28 18:46
+
+前几天看了剧场版，比去年好看不少。虽然知道编剧想写寿命论，但是对偶像的描写有点用力过猛，BOSS都因此魔怔了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+还有就是前辈组纯粹助拳工具人，跟偶像组几乎没有互动
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
