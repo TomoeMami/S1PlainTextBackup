@@ -875,3 +875,29 @@ FZ三王的闪闪和呆毛都改过两次宝具动画，等到王军里的英灵
 
 （还可以加个韦伯随机出现的彩蛋）
 
+
+*****
+
+####  alucardcz  
+##### 18324#       发表于 2025-9-29 18:21
+
+[https://www.bilibili.com/video/BV1wEnBz7ELD](https://www.bilibili.com/video/BV1wEnBz7ELD)
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">90++ 所长还可以战！
+
+*****
+
+####  exiaexa  
+##### 18325#       发表于 2025-9-29 18:23
+
+近藤这个技能组，你也不能说它杂鱼吧
+
+但是你一个特攻都没有
+
+双近藤拐自己人是60np，拐别人40np，也没上你的必要
+
+开了宝具也就全20魔放，更别说还欠20np开宝具
+
+还是等手术室吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
