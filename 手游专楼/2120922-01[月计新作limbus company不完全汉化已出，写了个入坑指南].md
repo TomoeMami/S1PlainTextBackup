@@ -55,3 +55,36 @@
 
 剧情EGO展示只放了两个确实迷惑，毕竟虫叔那位压根没登场都开了，另外两个剧情中加进去也没难度才对。
 
+
+*****
+
+####  Jamaisvu  
+##### 1184#       发表于 2025-9-29 11:06
+
+<blockquote>龙宫李奥义 发表于 2025-9-29 09:32
+本次4个EGO强度还真是不差，镜牢限定卡包配某个EGO走路确实爽啊，和小金和解一分钟，可惜联动结束卡包就没 ...</blockquote>
+
+这个审判官艾丽妮就是浊心斯卡蒂出场的活动覆潮之下里面的NPC，态度恶劣的执法者，长的也不好看，没想到后期换了个立绘、声优找了钉宫理惠，实装成六星近卫干员了。
+
+对比照片：
+
+<img src="https://img.stage1st.com/forum/202509/29/110654omjo9fcodbjjb2bd.jpg" referrerpolicy="no-referrer">
+
+<strong>0.jpg</strong> (48.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-29 11:06 上传
+
+<img src="https://img.stage1st.com/forum/202509/29/110526pafj6cqz6zqf9qaq.png" referrerpolicy="no-referrer">
+
+<strong>1200px-Pack_艾丽妮_skin_0_0.png</strong> (118.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-9-29 11:05 上传
+
+（话说她都有剧情却没出ego，可能小金也不想复刻近卫方舟吧...）
+

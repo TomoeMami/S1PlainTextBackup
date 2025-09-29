@@ -5149,3 +5149,17 @@ Mrs.心胸开阔也是这样<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  2017.05.04  
+##### 1899#       发表于 2025-9-29 11:09
+
+<blockquote>当地时间28日，美国密歇根州一教堂发生持枪袭击事件，造成2人死亡，8名伤者在医院治疗。据当地**通报，枪手是一名40岁男子，案发时教堂内有数百人，枪手驾车冲入并开枪。在与**的交火中，枪手被击毙。事发后，这所教堂迅速燃起大火，**初步判定是嫌疑人蓄意纵火。
+
+美媒报道，枪击嫌疑人是一名美国海军陆战队老兵，曾于2004年至2008年在伊拉克服役。</blockquote>
+
+新枪击案
+
+该开始论证是左翼了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
