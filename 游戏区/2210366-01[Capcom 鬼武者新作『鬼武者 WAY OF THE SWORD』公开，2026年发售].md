@@ -3153,3 +3153,14 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 突然有点担心，这个游戏流程会不会很短？
 
+
+*****
+
+####  若菜  
+##### 338#       发表于 2025-9-29 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68505375&amp;ptid=2210366" target="_blank">woshenc 发表于 2025-9-29 13:06</a>
+
+突然有点担心，这个游戏流程会不会很短？</blockquote>
+感觉不会长，2.3都是十小时左右通，1也就五小时。这代更是只有刀这一把主武器，估计也不会搞的太长。
+
