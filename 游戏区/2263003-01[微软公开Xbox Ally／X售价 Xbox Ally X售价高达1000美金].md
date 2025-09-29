@@ -485,3 +485,26 @@ MSI CLAW8 AI+不也这么贵。
 
 黄牛炒到2000+刀乐图什么
 
+
+*****
+
+####  ultraseven  
+##### 46#       发表于 2025-9-29 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68501394&amp;ptid=2263003" target="_blank">NameLess2501 发表于 2025-9-28 17:00</a>
+
+MSI CLAW8 AI+不也这么贵。</blockquote>
+微星和联想的都是8寸+
+
+
+*****
+
+####  大暴死  
+##### 47#       发表于 2025-9-29 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68501394&amp;ptid=2263003" target="_blank">NameLess2501 发表于 2025-9-28 17:00</a>
+MSI CLAW8 AI+不也这么贵。</blockquote>
+Claw8 ai+硬件规格也更高啊(ultra7 258v)，你应该和同样z2e的claw A8比（后者pdd最低5500左右）
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
