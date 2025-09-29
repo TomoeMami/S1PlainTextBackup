@@ -922,3 +922,25 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 90++ 所长还可以战！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我所长14绊了 离彻底下班越来越近
 
+
+*****
+
+####  alucardcz  
+##### 18328#       发表于 2025-9-29 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68507221&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-29 19:45</a>
+
+我所长14绊了 离彻底下班越来越近</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+*****
+
+####  qixinno2  
+##### 18329#       发表于 2025-9-29 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68507267&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-29 19:55</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这算个毛欧
+
