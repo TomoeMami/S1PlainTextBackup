@@ -280,3 +280,26 @@ https://nyaa.si/view/2024621，37g这玩意也太大了吧下不动
 
 去年的录像跟今年发售的BD很多地方不一样，还是要看BD的
 
+
+*****
+
+####  holofan  
+##### 11216#       发表于 2025-9-29 12:35
+
+3D新衣装直播只做一次放在星街频道播，看来很微妙了
+
+重大告知大概是1个新曲1个卖周边了
+
+*****
+
+####  holofan  
+##### 11217#       发表于 2025-9-29 12:47
+
+<img src="https://img.stage1st.com/forum/202509/29/124737vttv4n4tkmnwe2np.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-29 12:47 上传
+
