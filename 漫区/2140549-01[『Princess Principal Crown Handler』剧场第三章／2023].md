@@ -25,3 +25,13 @@
  ...</blockquote>
 但是还有代表共和国部分势力的泽尔达在
 
+
+*****
+
+####  暗黑能乐  
+##### 150#       发表于 2025-9-29 08:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诺曼底公烦的应该是整个王室全是反贼这件事
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
