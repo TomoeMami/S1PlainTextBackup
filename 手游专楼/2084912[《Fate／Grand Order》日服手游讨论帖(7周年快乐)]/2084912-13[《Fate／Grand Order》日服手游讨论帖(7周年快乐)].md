@@ -901,3 +901,11 @@ FZ三王的闪闪和呆毛都改过两次宝具动画，等到王军里的英灵
 还是等手术室吧
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18326#       发表于 2025-9-29 19:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">新选组就是近藤带队进剑冠位战回头一看有四个人被踢出队伍的神秘组合…
+
