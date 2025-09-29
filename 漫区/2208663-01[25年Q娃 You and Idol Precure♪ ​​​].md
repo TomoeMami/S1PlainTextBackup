@@ -81,3 +81,14 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 1311#       发表于 2025-9-30 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68501894&amp;ptid=2208663" target="_blank">starring 发表于 2025-9-28 18:46</a>
+
+前几天看了剧场版，比去年好看不少。虽然知道编剧想写寿命论，但是对偶像的描写有点用力过猛，BOSS都因此魔 ...</blockquote>
+本来就是偶像组剧场版两组前辈来客串，又不是以前的全明星或三代同堂春剧场，前辈组纯助拳工具人有什么可奇怪的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
