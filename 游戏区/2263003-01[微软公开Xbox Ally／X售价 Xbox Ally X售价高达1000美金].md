@@ -508,3 +508,13 @@ Claw8 ai+硬件规格也更高啊(ultra7 258v)，你应该和同样z2e的claw A8
 
 —— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pointer243  
+##### 48#       发表于 2025-9-30 05:39
+
+前阵子在ucg表哥那里看到宣传后,我就看国外有消息是低配599高配799甚至849之类的,就觉得跟sd比在价格上根本没有任何优势,很难能从sd手中抢一块肉。结果现在来个高配999,这下真可以埋了
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
