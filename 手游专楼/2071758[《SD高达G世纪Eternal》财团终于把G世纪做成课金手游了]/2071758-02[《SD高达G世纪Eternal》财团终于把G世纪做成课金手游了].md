@@ -5250,3 +5250,13 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 神高达不够强，不能一机干几个月，真没必要冲
 
+
+*****
+
+####  lighttt  
+##### 2754#       发表于 2025-9-29 23:16
+
+抽个独角兽就跑路<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
