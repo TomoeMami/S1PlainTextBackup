@@ -811,3 +811,32 @@ CNM的后置效果，TM的给个前置会死吗<img src="https://static.stage1st
 还挺大方的，可能是再给那个谜一样的宝具找补吧
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18318#       发表于 2025-9-29 17:35
+
+后置赋予新选组特性，这压强度压得太明显了。
+
+
+*****
+
+####  jackyhuang  
+##### 18319#       发表于 2025-9-29 17:40
+
+大号伊阿宋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  angelooo  
+##### 18320#       发表于 2025-9-29 17:43
+
+<blockquote>jackyhuang 发表于 2025-9-29 17:40
+大号伊阿宋
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+一个日本近代砍人组织的老大和希腊神话英雄相提并论已经很离谱了吧！
+
