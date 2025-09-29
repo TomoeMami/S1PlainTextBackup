@@ -5230,3 +5230,15 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 神高达能给8移动还行，可惜是个走地鸡
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2752#       发表于 2025-9-29 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68507668&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-9-29 21:16</a>
+神高达能给8移动还行，可惜是个走地鸡</blockquote>
+为了以后骑马，现在这个应该不能飞
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
