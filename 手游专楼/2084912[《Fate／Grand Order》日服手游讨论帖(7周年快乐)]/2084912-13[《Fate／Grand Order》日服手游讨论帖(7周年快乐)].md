@@ -909,3 +909,16 @@ FZ三王的闪闪和呆毛都改过两次宝具动画，等到王军里的英灵
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">新选组就是近藤带队进剑冠位战回头一看有四个人被踢出队伍的神秘组合…
 
+
+*****
+
+####  qixinno2  
+##### 18327#       发表于 2025-9-29 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68506859&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-29 18:21</a>
+
+https://www.bilibili.com/video/BV1wEnBz7ELD
+
+90++ 所长还可以战！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我所长14绊了 离彻底下班越来越近
+
