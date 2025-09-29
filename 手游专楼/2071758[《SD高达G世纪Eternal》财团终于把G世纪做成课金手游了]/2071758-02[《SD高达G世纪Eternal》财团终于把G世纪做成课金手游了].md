@@ -5260,3 +5260,36 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  eilot  
+##### 2755#       发表于 2025-9-30 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68507728&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-9-29 21:30</a>
+
+为了以后骑马，现在这个应该不能飞
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+沒那麼快吧
+
+先給神威高達EX(LOVELOVE拳)，不過是支援機
+
+再來神威高達EX(石破)，不過是盾機來...
+
+這時才出神威高達+風雲再起EX和尊者高達+風雲再起EX
+
+之後再來神威高達明鏡止水模式EX
+
+再來神威高達明鏡止水模式EX(阿露比雙手指)
+
+再出閃光超級模式EX(師徒超級霸王電影陣)
+
+之後給尊者高達明鏡止水模式EX(師徒雙手指)
+
+再來尊者高達明鏡止水模式EX(師徒石破究極天驚拳)
+
+但現在最大缺點是洗牌拳要貼臉來打，而且秒不到對方就MP回不到
+
+雖然洗牌拳被遠攻能減傷，但都要看實際場合MP會變成如何
+
