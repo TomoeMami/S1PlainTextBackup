@@ -5675,3 +5675,13 @@ F91不是
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">服了 怎么修补大青椒是SSR 原版反而只有SR 万代能不能出个十二妹开的UR版（
 
+
+*****
+
+####  大十字紅朔  
+##### 2794#       发表于 2025-9-30 22:23
+
+这游戏你说他不用心吧，G高达剧情配音居然是新配的，老头的配音话都有点没力气说了（虐待老人？）
+
+你说他用心吧，傻呼噜同盟拳的配音是个别录的，完全各喊各的……<img src="https://static.stage1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">
+
