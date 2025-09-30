@@ -5592,3 +5592,45 @@ f91抽满破了<img src="https://static.stage1st.com/image/smiley/face2017/003.p
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  dio999  
+##### 2787#       发表于 2025-9-30 19:37
+
+<img src="https://img.stage1st.com/forum/202509/30/193559vxndcmathnvlwztr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9764.png</strong> (616.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 19:35 上传
+
+我猜中了开头没有猜中结尾，正好200抽才出骗钱兽。神高满破了，船也出了，f91一破，船还出了皇小姐
+
+
+*****
+
+####  一个陆仁贾  
+##### 2788#       发表于 2025-9-30 19:43
+
+uc剧情的旁白是巴纳吉念的么，而且感觉bgm的曲目有好多，不愧是骗钱兽待遇真好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rockroxas  
+##### 2789#       发表于 2025-9-30 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68512711&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2025-9-30 19:04</a>
+
+半年了，终于抽到限定UR了
+
+话说绿一角驴是限定吧</blockquote>
+狗头/绿驴/王牌船限定
+
+F91不是
+
+话说那个礼包UR券是到7月14为止的非限定，所以是到海牛池（脉冲）为止？那好像还是没什么用
+
