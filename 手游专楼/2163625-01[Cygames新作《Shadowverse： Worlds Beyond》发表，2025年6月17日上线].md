@@ -37,3 +37,18 @@ gbf早就换制作人了，pcr本身就在缩减更新快死了
 
 —— 来自 Xiaomi 2405CPX3DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  宵神乐  
+##### 704#       发表于 2025-9-30 16:04
+
+cy现在唯一能看的就是马娘了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Meiien  
+##### 705#       发表于 2025-9-30 16:05
+
+应该是早走了，gbf那边也是不干好几年了才出来承认，byd开服到现在这么多烂活也说得通了。
+
