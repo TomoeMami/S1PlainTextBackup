@@ -332,3 +332,20 @@ byd刚全推完，气笑了
 [collapse=剧透]王道设定的家人，王道设定的邂逅，王道设定的绝症，结果和HCG杂在一起扔进搅拌机打成糊糊端上来，为母亲唱生日歌写歌这一段应该下经费和演出的重点演出也拉胯前后怎么还会安排HCG和一段情人节送巧克力的啊[/collapse]啊米诺斯真给我气笑了
 结果来论居然是三四号位拉分而一二号位拖后腿，真不如千恋万花，虽然相当值得一玩但一号位粉毛简直是犯罪<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 82#       发表于 2025-9-30 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68507807&amp;ptid=2252633" target="_blank">阿卡拉兰斯 发表于 2025-9-29 21:45</a>
+
+byd刚全推完，气笑了
+
+一开始推的是青梅，最有兴趣的角色，优秀
+
+然后推的是夏和小，体验版最喜欢的，拉了但 ...</blockquote>
+没有折叠，用反白吧。
+
+另外3号位的黄毛只看人设真的是毫无兴趣啊
+
