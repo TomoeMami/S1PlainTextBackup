@@ -22,3 +22,11 @@ kmr辞职
 
 <img src="https://img.stage1st.com/forum/202509/30/145420pxizp3k6bzpib0zb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  klzxs  
+##### 18261#       发表于 2025-9-30 15:07
+
+群里看到时因为最后一句胜利信我自动当是假的了，没想到是真的
+

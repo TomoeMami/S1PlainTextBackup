@@ -17,3 +17,13 @@
 我们影之诗的电竞梦...会变成什么样子(哽咽)
 <img src="https://p.sda1.dev/27/da19e1acb162d448cbbddba6c5c04eef/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  klzxs  
+##### 702#       发表于 2025-9-30 15:14
+
+gbf早就换制作人了，pcr本身就在缩减更新快死了
+
+没了kmr的电竞梦szb真感觉有点危啊
+
