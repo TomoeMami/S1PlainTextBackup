@@ -5580,3 +5580,15 @@ F91抽满破了nm<img src="https://static.stage1st.com/image/smiley/face2017/001
 半年了，终于抽到限定UR了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 话说绿一角驴是限定吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mrm4B  
+##### 2786#       发表于 2025-9-30 19:15
+
+f91抽满破了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+其他ur盾机就正义和nta
+就约拿配f91用着吗
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
