@@ -5561,3 +5561,13 @@ F91抽满破了nm<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 100抽出了独角兽和神，哎，要不要再抽100再拿个神高达突破一下，100抽不上不下得<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 2784#       发表于 2025-9-30 18:20
+
+神高達考慮如何組隊好
+
+配甚麼艦給他好
+
