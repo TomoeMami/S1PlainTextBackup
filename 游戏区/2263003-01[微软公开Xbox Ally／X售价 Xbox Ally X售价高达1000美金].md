@@ -560,3 +560,16 @@ rog这台是带着npu的AI z2e……贵是必然的
 
 这种情况是买steam deck好还是买这个xbox ally x好哇？tgs上试了下xbox ally还蛮重的.....
 
+
+*****
+
+####  ultraseven  
+##### 53#       发表于 2025-9-30 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68508778&amp;ptid=2263003" target="_blank">zid99825 发表于 2025-9-30 08:19</a>
+
+rog这台是带着npu的AI z2e……贵是必然的
+
+论坛助手,iPhone</blockquote>
+不觉得这个NPU有多大用，AutoSR也比不上DLSS
+

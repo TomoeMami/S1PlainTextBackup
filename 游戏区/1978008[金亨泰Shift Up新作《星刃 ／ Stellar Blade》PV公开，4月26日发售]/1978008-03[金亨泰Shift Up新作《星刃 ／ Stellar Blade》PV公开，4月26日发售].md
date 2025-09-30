@@ -136,3 +136,11 @@ Tony Tang
 
 就不能做个章节选择么
 
+
+*****
+
+####  lunaticfear  
+##### 4278#       发表于 2025-9-30 10:03
+
+今天又有6G的更新啊，看补丁说是增加个特定结局后的任务，早知道不进新周目了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
