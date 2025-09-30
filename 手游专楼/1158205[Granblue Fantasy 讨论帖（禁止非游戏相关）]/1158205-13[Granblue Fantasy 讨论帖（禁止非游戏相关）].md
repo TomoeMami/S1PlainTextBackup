@@ -30,3 +30,14 @@ kmr辞职
 
 群里看到时因为最后一句胜利信我自动当是假的了，没想到是真的
 
+
+*****
+
+####  Sylpheed  
+##### 18262#       发表于 2025-9-30 17:40
+
+这下真斩断恶的锁链了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过老实讲cy内部看着像人的就不多，木总走了走了不好说是好事还是坏事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
