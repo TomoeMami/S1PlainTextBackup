@@ -5511,3 +5511,13 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 130抽只有台绿独角...这尼玛
 
+
+*****
+
+####  行政裁定书  
+##### 2779#       发表于 2025-9-30 14:38
+
+46抽除了保底，一个UR都没抽到。（保底的两个也是已经有的ur，用处不大）
+
+这概率……<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
