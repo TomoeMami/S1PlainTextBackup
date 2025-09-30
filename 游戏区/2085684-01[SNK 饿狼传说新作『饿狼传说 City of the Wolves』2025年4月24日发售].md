@@ -16,3 +16,16 @@
 
 —— 来自 Xiaomi 2109119BC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔王候补77号  
+##### 570#       发表于 2025-9-30 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68495247&amp;ptid=2085684" target="_blank">特隆凯蒂 发表于 2025-9-27 09:09</a>
+
+肖嗨复健好像成了？</blockquote>
+我觉得双叶莹会挨刀
+
+最近几场大赛双叶莹已经霸屏了，隐隐约约已经是版本最强角的感觉（之前都觉得双叶劣牙刀，现在似乎也不劣），东丈版本SWC前出来的话，双叶很可能要削弱
+

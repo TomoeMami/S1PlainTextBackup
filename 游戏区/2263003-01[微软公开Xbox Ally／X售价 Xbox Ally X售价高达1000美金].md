@@ -573,3 +573,14 @@ rog这台是带着npu的AI z2e……贵是必然的
 论坛助手,iPhone</blockquote>
 不觉得这个NPU有多大用，AutoSR也比不上DLSS
 
+
+*****
+
+####  ultraseven  
+##### 54#       发表于 2025-9-30 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509201&amp;ptid=2263003" target="_blank">蛇头 发表于 2025-9-30 09:42</a>
+
+借个楼问一问，手上没有游戏本，平时玩游戏全在自家台式上。但每次回国休假十几天（一年合计1个半月左右吧 ...</blockquote>
+看预算了呗。二手Steam Deck OLED很便宜，但问题是性能对于2025年的大型游戏很吃力，小游戏还是没问题的。再上面是二手的ROG Ally X和Legion Go（上一代Z1E芯片）。这代Z2E芯片对比Z1E的提升大概在30%左右，选择有ROG Xbox Ally X，微星的MSI CLAW 8，联想的Legion Go 2等，价格都在$1000上下。这其中ROG Xbox Ally X屏幕又是最小的（7英寸），微星的8英寸，联想的8.8英寸。
+
