@@ -623,3 +623,58 @@ rog这台是带着npu的AI z2e……贵是必然的
 
 对我来讲ns2就玩玩独立游戏和独占, 有个能玩steam库和pgp的掌上设备还是很有吸引力的, 就是希望国内不要太耍猴<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zid99825  
+##### 58#       发表于 2025-9-30 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509531&amp;ptid=2263003" target="_blank">亚瑟摩根 发表于 2025-9-30 10:26</a>
+如果喜欢独立那就sd oled就行
+
+如果有一点大型游戏的要求基本就要看Z1E或者Z2E了</blockquote>
+确定有quick resume了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  亚瑟摩根  
+##### 59#       发表于 2025-9-30 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509695&amp;ptid=2263003" target="_blank">zid99825 发表于 2025-9-30 10:44</a>
+
+确定有quick resume了？
+
+论坛助手,iPhone</blockquote>
+微博那个二柄去tgs试了
+
+说有快速恢复
+
+*****
+
+####  zid99825  
+##### 60#       发表于 2025-9-30 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509712&amp;ptid=2263003" target="_blank">亚瑟摩根 发表于 2025-9-30 10:46</a>
+微博那个二柄去tgs试了
+
+说有快速恢复</blockquote>
+那个感觉就是在读rog的商单稿……而且他那个看着像是纯多程序窗口切换
+
+我是觉得有quick resume微软的新闻稿不可能不提吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  亚瑟摩根  
+##### 61#       发表于 2025-9-30 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509733&amp;ptid=2263003" target="_blank">zid99825 发表于 2025-9-30 10:48</a>
+
+那个感觉就是在读rog的商单稿……而且他那个看着像是纯多程序窗口切换
+
+我是觉得有quick resume微软的新 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">阿这！
+
