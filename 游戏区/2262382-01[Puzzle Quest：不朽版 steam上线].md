@@ -24,3 +24,14 @@
 跟nds版本比起来有啥区别?除了音乐画面升级啥的</blockquote>
 加了后续的DLC，职业法术和装备更多了
 
+
+*****
+
+####  back57992  
+##### 47#       发表于 2025-9-30 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68512351&amp;ptid=2262382" target="_blank">redsouris 发表于 2025-9-30 17:36</a>
+
+加了后续的DLC，职业法术和装备更多了</blockquote>
+感谢 原来这玩意有dlc
+
