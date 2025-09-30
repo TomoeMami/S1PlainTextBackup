@@ -5472,3 +5472,17 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 狗头伤害肯定足啊，主要是限制恶心人
 
+
+*****
+
+####  一个陆仁贾  
+##### 2776#       发表于 2025-9-30 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510872&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-30 13:17</a>
+拿2破神高去打活动没用技能EX同盟拳打了20多万伤害
+
+我见识少这伤害正常不 ...</blockquote>
+给敌机上debuff了吗？
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
