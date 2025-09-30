@@ -52,3 +52,13 @@ cy现在唯一能看的就是马娘了<img src="https://static.stage1st.com/imag
 
 应该是早走了，gbf那边也是不干好几年了才出来承认，byd开服到现在这么多烂活也说得通了。
 
+
+*****
+
+####  qxs  
+##### 706#       发表于 2025-9-30 16:33
+
+幽默蒸蒸日下电竞梦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
