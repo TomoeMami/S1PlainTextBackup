@@ -51,3 +51,41 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 超级狐狸不打了，对于这种不能爆破的恶心东西没有打的想法。
 
+
+*****
+
+####  赤备传承  
+##### 47469#       发表于 2025-9-30 22:04
+
+下班收了bgo运营发的快递，上半年报名中奖的生日礼物，赶在放假前提前发了
+
+<img src="https://img.stage1st.com/forum/202509/30/215952stpj3f7w2mvtrntp.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250930_184546.jpg</strong> (801.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 21:59 上传
+
+<img src="https://img.stage1st.com/forum/202509/30/220001s0ciizp7yvg58iio.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250930_184337.jpg</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 22:00 上传
+
+然后进游戏抽了一发友情来了个三星从者
+
+看了下已经120多抽只跑过两次芙芙拿了两个四星的迪拜bb池子，感觉还没到
+
+再翻了一圈其他池子，就选择卡莲了，于是跑芙芙，中奖。。。不错的一天
+
+<img src="https://img.stage1st.com/forum/202509/30/220348nj9tbbxbjybb8tj1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250930_215511_com.bilibili.fatego.jpg</strong> (547.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 22:03 上传
+
