@@ -5642,3 +5642,20 @@ F91不是
 
 <img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">出个UR报丧女妖驾驶员12妹吧，我什么都会做的
 
+
+*****
+
+####  nagamasa  
+##### 2791#       发表于 2025-9-30 21:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给想氪音乐包的坛友们提个醒，买音乐包只能在买的对应那个平台使用，我在ios上买了，用模拟器打开但因为是安卓平台所以用不了
+
+微信图片_20250930212631_145_25.png
+(445.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202509/30/212755x4xo4lldllb7ly97.png" referrerpolicy="no-referrer">
+
