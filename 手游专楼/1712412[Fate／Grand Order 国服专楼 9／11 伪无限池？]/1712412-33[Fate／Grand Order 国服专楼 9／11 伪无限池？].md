@@ -97,3 +97,14 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 大象仇尼姜子牙三选一，哪个将来比较有用啊
 
+
+*****
+
+####  khxooo  
+##### 47471#       发表于 2025-9-30 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513466&amp;ptid=1712412" target="_blank">sandro 发表于 2025-9-30 22:08</a>
+
+大象仇尼姜子牙三选一，哪个将来比较有用啊</blockquote>
+看你想干什么。你想让自己的从者打的伤害更高就大象，打地铺就仇尼，打戴冠就太公望。
+

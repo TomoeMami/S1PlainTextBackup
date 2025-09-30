@@ -62,3 +62,13 @@ cy现在唯一能看的就是马娘了<img src="https://static.stage1st.com/imag
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  super_uni  
+##### 707#       发表于 2025-9-30 22:34
+
+看好继任者把游戏弄成一天不上线就扣金币<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
