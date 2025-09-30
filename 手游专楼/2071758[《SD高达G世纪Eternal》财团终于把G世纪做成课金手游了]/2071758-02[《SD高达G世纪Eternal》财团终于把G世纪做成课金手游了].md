@@ -5308,3 +5308,14 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 这限定船啥评价？60抽仨机体都捞到了在想要不要去追船
 
+
+*****
+
+####  洛克萨斯  
+##### 2758#       发表于 2025-9-30 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510169&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-9-30 11:37</a>
+
+这限定船啥评价？60抽仨机体都捞到了在想要不要去追船</blockquote>
+我100连船神驴，f91不跟了，剩8w多石头开始存了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，船我觉得不错，我没一击必杀船，这个船吃到的还可以
+

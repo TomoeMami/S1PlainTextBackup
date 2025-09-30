@@ -55,3 +55,11 @@
 
 当然也有可能只发新角色不改平衡
 
+
+*****
+
+####  特隆凯蒂  
+##### 573#       发表于 2025-9-30 11:44
+
+现在看恰普通的骚操作比SNK不遑多让<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
