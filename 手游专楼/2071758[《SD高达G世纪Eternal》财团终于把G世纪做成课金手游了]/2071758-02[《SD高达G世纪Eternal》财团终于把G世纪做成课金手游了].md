@@ -5319,3 +5319,42 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 这限定船啥评价？60抽仨机体都捞到了在想要不要去追船</blockquote>
 我100连船神驴，f91不跟了，剩8w多石头开始存了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，船我觉得不错，我没一击必杀船，这个船吃到的还可以
 
+
+*****
+
+####  dfdddfdd  
+##### 2759#       发表于 2025-9-30 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510236&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-9-30 11:44</a>
+
+我100连船神驴，f91不跟了，剩8w多石头开始存了，船我觉得不错，我没一击必杀船，这个船吃到的还可以 ...</blockquote>
+我也没拉克丝，感觉不抽这船神高也没船搭配，但追船总觉得很不靠谱<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 2760#       发表于 2025-9-30 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510278&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-9-30 11:49</a>
+
+我也没拉克丝，感觉不抽这船神高也没船搭配，但追船总觉得很不靠谱</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你抽到绿驴这船能用，我觉得很关键
+
+
+*****
+
+####  dfdddfdd  
+##### 2761#       发表于 2025-9-30 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510285&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-9-30 11:50</a>
+
+你抽到绿驴这船能用，我觉得很关键</blockquote>
+发现这次三个机体都有突破力，先用送的小林凑活玩玩<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddlsyo  
+##### 2762#       发表于 2025-9-30 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">300抽5UR0支援，心很痛
+
