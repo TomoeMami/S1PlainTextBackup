@@ -5521,3 +5521,14 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 这概率……<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 2780#       发表于 2025-9-30 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68511334&amp;ptid=2071758" target="_blank">zExs 发表于 2025-9-30 14:26</a>
+
+130抽只有台绿独角...这尼玛</blockquote>
+70抽出了狗头+王牌船，玄学抽卡大法救我狗命
+
