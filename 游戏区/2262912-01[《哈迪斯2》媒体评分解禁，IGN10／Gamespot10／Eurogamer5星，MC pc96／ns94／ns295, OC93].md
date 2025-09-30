@@ -1070,3 +1070,234 @@ EA其实已经有提丰了，但两边打完最终boss都是直接结束，这�
 补充一条最重要的……解锁饼干之后，只有你不带宠物的时候遇到这些新宠物才能把他们带回家，如果你已经带 ...</blockquote>
 不，我得到猫之后基本每场都带，没带的混沌试炼反而没有遇到，从鼬、鸟到狗都是在这个状态下招募回来的，所以谁总结的这条你不妨问问对方哪来的信息
 
+
+*****
+
+####  pgain2004  
+##### 112#       发表于 2025-9-30 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513403&amp;ptid=2262912" target="_blank">asdfg 发表于 2025-9-30 21:54</a>
+
+补充一条最重要的……解锁饼干之后，只有你不带宠物的时候遇到这些新宠物才能把他们带回家，如果你已经带 ...</blockquote>
+顺便我刚想到点思路，搜到了相关事件文本，里面有需求。例如艾鼬(polecat)，在RoomDataP.lua里有对应事件段落如下：
+
+StartThreadedEvents =
+
+{                        
+
+        {
+
+                FunctionName = "ActivateFamiliar",
+
+                GameStateRequirements =
+
+                {
+
+                        -- gale appearance requirements; requires HecateGrantsFamiliars01 to be recruited
+
+                        {
+
+                                PathFalse = { "GameState", "FamiliarsUnlocked", "PolecatFamiliar" },
+
+                        },
+
+                        {
+
+                                -- PathTrue = { "GameState", "WorldUpgradesAdded", "WorldUpgradeFamiliarUpgradeSystem" }
+
+                        },
+
+                        {
+
+                                Path = { "GameState", "LifetimeResourcesSpent", "FamiliarPoints" },
+
+                                Comparison = "&gt;=",
+
+                                Value = 3,
+
+                        },
+
+                        {
+
+                                PathFalse = { "CurrentRun", "ActiveBounty" },
+
+                        },
+
+                        NamedRequirementsFalse = { "HecateFamiliarsInHub" },
+
+                        -- ChanceToPlay = 0.75,
+
+                },
+
+                Args =
+
+                {
+
+                        Id = 778664,
+
+                        Name = "PolecatFamiliar",
+
+                        SkipAISetup = true,
+
+                        OverwriteSelf =
+
+                        {
+
+                                OnUsedFunctionName = "nil",
+
+                                SpecialInteractFunctionName = "PolecatFamiliarSpecialInteractLockedInRun",
+
+                                PreRecruit = true,
+
+                                DistanceTriggers =
+
+                                {
+
+                                        {
+
+                                                WithinDistance = 550,
+
+                                                FunctionName = "GenericPresentation",
+
+                                                Args =
+
+                                                {
+
+                                                        PreWait = 0.0,
+
+                                                        AngleTowardHero = true,
+
+                                                        SetAnimation = "Familiar_Polecat_Greet",
+
+                                                        VoiceLines = { GlobalVoiceLines = "PolecatReactionVoiceLines" },
+
+                                                },
+
+                                        },
+
+                                }
+
+                        },
+
+                },
+
+        },
+
+}
+
+狗的类似：
+
+StartThreadedEvents =
+
+{
+
+        {
+
+                FunctionName = "ActivateFamiliar",
+
+                GameStateRequirements =
+
+                {
+
+                        -- hecuba appearance requirements; requires HecateGrantsFamiliars01 to be recruited
+
+                        {
+
+                                PathFalse = { "GameState", "FamiliarsUnlocked", "HoundFamiliar" },
+
+                        },
+
+                        {
+
+                                FunctionName = "RequiredAlive",
+
+                                FunctionArgs = { Units = { "NPC_Nemesis_01", }, Alive = false },
+
+                        },
+
+                        {
+
+                                -- PathTrue = { "GameState", "WorldUpgradesAdded", "WorldUpgradeFamiliarUpgradeSystem" }
+
+                        },
+
+                        {
+
+                                Path = { "GameState", "LifetimeResourcesSpent", "FamiliarPoints" },
+
+                                Comparison = "&gt;=",
+
+                                Value = 2,
+
+                        },
+
+                        {
+
+                                PathFalse = { "CurrentRun", "ActiveBounty" },
+
+                        },
+
+                        NamedRequirementsFalse = { "HecateFamiliarsInHub", "HecateMissing" },
+
+                        ChanceToPlay = 0.8,
+
+                },
+
+                Args =
+
+                {
+
+                        Id = 722876,
+
+                        Name = "HoundFamiliar",
+
+                        SkipAISetup = true,
+
+                        OverwriteSelf =
+
+                        {
+
+                                OnUsedFunctionName = "nil",
+
+                                SpecialInteractFunctionName = "HoundFamiliarSpecialInteractLockedInRun",
+
+                                PreRecruit = true,
+
+                                DistanceTriggers =
+
+                                {
+
+                                        {
+
+                                                WithinDistance = 550,
+
+                                                FunctionName = "GenericPresentation",
+
+                                                Args =
+
+                                                {
+
+                                                        PreWait = 0.0,
+
+                                                        AngleTowardHero = true,
+
+                                                        SetAnimation = "Familiar_Hound_Greet",
+
+                                                        Sound = "/SFX/Familiars/DogBarkDiscovery",
+
+                                                        VoiceLines = { GlobalVoiceLines = "HoundReactionVoiceLines" },
+
+                                                },
+
+                                        },
+
+                                }
+
+                        },
+
+                },
+
+        },
+
+}
+
