@@ -5378,3 +5378,20 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 200 抽 7ur0 支援，这次王牌是不是大奖
 
+
+*****
+
+####  gutzz  
+##### 2765#       发表于 2025-9-30 12:17
+
+送的30抽保底了，还出的已经满破的沙萨比<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">限定池160抽5ur出了师匠和两个f91，想要船啊
+
+— from OnePlus GM1910, Android 12, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  夜之光  
+##### 2766#       发表于 2025-9-30 12:17
+
+王牌船很烂，这次大奖绿驴，狗头本身也下了毒觉得综合比Z弱点，F91纯污染卡池
+
