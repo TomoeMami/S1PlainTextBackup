@@ -534,3 +534,17 @@ Claw8 ai+硬件规格也更高啊(ultra7 258v)，你应该和同样z2e的claw A8
 
 索尼的掌机是不是也快出来了？
 
+
+*****
+
+####  zid99825  
+##### 51#       发表于 2025-9-30 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68504364&amp;ptid=2263003" target="_blank">大暴死 发表于 2025-9-29 10:22</a>
+Claw8 ai+硬件规格也更高啊(ultra7 258v)，你应该和同样z2e的claw A8比（后者pdd最低5500左右）
+
+—— 来 ...</blockquote>
+rog这台是带着npu的AI z2e……贵是必然的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
