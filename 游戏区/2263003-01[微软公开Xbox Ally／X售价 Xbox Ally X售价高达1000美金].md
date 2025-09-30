@@ -615,3 +615,11 @@ rog这台是带着npu的AI z2e……贵是必然的
 索尼的掌机是不是也快出来了？</blockquote>
 那玩意是next gen的
 
+
+*****
+
+####  静静在想我  
+##### 57#       发表于 2025-9-30 10:34
+
+对我来讲ns2就玩玩独立游戏和独占, 有个能玩steam库和pgp的掌上设备还是很有吸引力的, 就是希望国内不要太耍猴<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
