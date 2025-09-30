@@ -138,3 +138,14 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 有说看日服公布杀戴冠看要不要选这几个杀，是大概什么时候公布？
 
+
+*****
+
+####  khxooo  
+##### 47475#       发表于 2025-9-30 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513786&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-9-30 23:26</a>
+
+有说看日服公布杀戴冠看要不要选这几个杀，是大概什么时候公布？</blockquote>
+应该是15号开始戴冠战。
+
