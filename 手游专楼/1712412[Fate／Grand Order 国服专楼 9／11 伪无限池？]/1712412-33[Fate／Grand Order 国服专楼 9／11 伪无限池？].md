@@ -30,3 +30,16 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 那么五星选哪个
 
+
+*****
+
+####  khxooo  
+##### 47467#       发表于 2025-9-30 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68512535&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-9-30 18:21</a>
+
+那么五星选哪个</blockquote>
+[https://www.bilibili.com/video/av115241706919159/](https://www.bilibili.com/video/av115241706919159/)
+
+2：14开始
+

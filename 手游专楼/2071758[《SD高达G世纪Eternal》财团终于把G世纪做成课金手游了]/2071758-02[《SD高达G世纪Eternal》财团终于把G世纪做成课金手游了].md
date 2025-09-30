@@ -5571,3 +5571,12 @@ F91抽满破了nm<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 配甚麼艦給他好
 
+
+*****
+
+####  里村紅葉  
+##### 2785#       发表于 2025-9-30 19:04
+
+半年了，终于抽到限定UR了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+话说绿一角驴是限定吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
