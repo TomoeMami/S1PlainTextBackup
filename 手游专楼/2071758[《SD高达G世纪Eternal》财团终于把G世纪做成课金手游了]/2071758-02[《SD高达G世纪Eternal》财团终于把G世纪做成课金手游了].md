@@ -5701,3 +5701,15 @@ F91不是
 
 又进入0ur周期
 
+
+*****
+
+####  Abomination  
+##### 2797#       发表于 2025-10-1 02:33
+
+上一次抽哈曼沉船现在只有45k钻，要把强敌来袭和永恒都清了看看能不能存够60k钻<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+这次的强敌来袭红机很强！条件加攻加专用配件sp后轻松14k攻击力，5移动5射程可飞行加突破力，感觉突破力补强得太多了吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次3ur5ssr也是突破力
+
+新人类专用机甚么玩意，不如贝嫂一根毛呀！因为和王牌机互斥结果一堆新开发机都不是新人类专用机！可惜我没有<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+

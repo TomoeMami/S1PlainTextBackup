@@ -80,3 +80,11 @@ cy现在唯一能看的就是马娘了<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">szb2明显对cy自己是好消息，信不信下个卡包继续冲顶，怎么都比szb2出之前那一滩死水的cy好，kmr也算给老东家留了个不错的遗产了。
 
+
+*****
+
+####  凉良  
+##### 709#       发表于 2025-10-1 02:36
+
+szb2明显开服就不是kmr管吧
+
