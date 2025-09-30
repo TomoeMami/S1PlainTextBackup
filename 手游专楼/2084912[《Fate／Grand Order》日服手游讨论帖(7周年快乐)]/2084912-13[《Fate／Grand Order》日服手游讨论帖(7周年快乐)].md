@@ -1000,3 +1000,14 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 攒了发十连 竟然二宝了</blockquote>
 欧，羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18336#       发表于 2025-9-30 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513705&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-30 23:04</a>
+
+攒了发十连 竟然二宝了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">现在开始你就是本楼的欧皇了
+
