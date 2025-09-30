@@ -5410,3 +5410,13 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">绿独角怎么能没有新人类词条，不是NT你这盾怎么飞出去的，再怎么自由也要讲点基本法吧
 
+
+*****
+
+####  blue321  
+##### 2769#       发表于 2025-9-30 12:28
+
+这次的母舰不行吗？70抽抽齐了机体想着要不要强抽支援的，毕竟适配范围在我的阵容里很广…我这里的ur舰基本都是作品强化<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
