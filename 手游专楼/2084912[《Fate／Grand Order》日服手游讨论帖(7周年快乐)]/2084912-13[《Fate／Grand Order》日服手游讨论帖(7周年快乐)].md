@@ -1011,3 +1011,24 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 攒了发十连 竟然二宝了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">现在开始你就是本楼的欧皇了
 
+
+*****
+
+####  qixinno2  
+##### 18337#       发表于 2025-9-30 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513717&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-30 23:08</a>
+
+欧，羡慕了，现在开始你就是本楼的欧皇了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不如你欧 你才是今年的欧皇
+
+*****
+
+####  qixinno2  
+##### 18338#       发表于 2025-9-30 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513771&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-30 23:25</a>
+
+这就是欧皇吗 现在开始你就是本楼的欧皇了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不如你楼上的才是真欧皇
+

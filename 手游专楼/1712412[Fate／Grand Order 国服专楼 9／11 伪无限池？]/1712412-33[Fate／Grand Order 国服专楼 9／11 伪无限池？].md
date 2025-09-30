@@ -130,3 +130,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 现在fgo也太复杂了。。。</blockquote>
 本来就是1宝能有多大提升，就是喜欢哪个选哪个，既然要利益最大化那只能细分了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 47474#       发表于 2025-9-30 23:26
+
+有说看日服公布杀戴冠看要不要选这几个杀，是大概什么时候公布？
+
