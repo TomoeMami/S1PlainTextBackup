@@ -153,3 +153,11 @@ Tony Tang
 🔶 PS5 &amp; PC Shared update details!
 🔸After one ending comes another beginning — explore three epilogues that reveal the lives of EVE and the people of Xion following a specific ending
 
+
+*****
+
+####  mhss  
+##### 4280#       发表于 2025-9-30 12:37
+
+好反直觉啊，国际服最后降到10块才出掉，国服这个一挂25就被贩子拍走了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
