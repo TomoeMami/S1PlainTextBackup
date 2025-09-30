@@ -1301,3 +1301,13 @@ StartThreadedEvents =
 
 }
 
+
+*****
+
+####  Firvox  
+##### 113#       发表于 2025-9-30 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513403&amp;ptid=2262912" target="_blank">asdfg 发表于 2025-9-30 21:54</a>
+补充一条最重要的……解锁饼干之后，只有你不带宠物的时候遇到这些新宠物才能把他们带回家，如果你已经带 ...</blockquote>
+可以解锁，只是不会立即跟你身边，需要回三岔路训练场，武器祭坛下面找它们对话才能带
+
