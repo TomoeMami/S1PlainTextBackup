@@ -5553,3 +5553,11 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 F91抽满破了nm<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 2783#       发表于 2025-9-30 17:27
+
+100抽出了独角兽和神，哎，要不要再抽100再拿个神高达突破一下，100抽不上不下得<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
