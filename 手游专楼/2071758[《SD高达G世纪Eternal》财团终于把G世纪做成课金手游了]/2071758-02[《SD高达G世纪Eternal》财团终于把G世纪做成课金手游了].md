@@ -5486,3 +5486,20 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 2777#       发表于 2025-9-30 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68511197&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-9-30 14:05</a>
+
+给敌机上debuff了吗？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">没.....打的是一开始第一波的同盟
+
+之后增援的金闪光上了debuff后别人也打不出10万以上的伤害
+
+只有神高还是打了17万
+
