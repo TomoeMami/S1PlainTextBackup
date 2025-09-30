@@ -5532,3 +5532,24 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 130抽只有台绿独角...这尼玛</blockquote>
 70抽出了狗头+王牌船，玄学抽卡大法救我狗命
 
+
+*****
+
+####  马桶3  
+##### 2781#       发表于 2025-9-30 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68511410&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-9-30 14:38</a>
+46抽除了保底，一个UR都没抽到。（保底的两个也是已经有的ur，用处不大）
+
+这概率…… ...</blockquote>
+正常的，46抽除了保底外，前面的ur概率是正常池子的一般<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  12481632  
+##### 2782#       发表于 2025-9-30 17:15
+
+F91抽满破了nm<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
