@@ -119,3 +119,14 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 看你想干什么。你想让自己的从者打的伤害更高就大象，打地铺就仇尼，打戴冠就太公望。 ...</blockquote>
 现在fgo也太复杂了。。。
 
+
+*****
+
+####  khxooo  
+##### 47473#       发表于 2025-9-30 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513693&amp;ptid=1712412" target="_blank">sandro 发表于 2025-9-30 23:01</a>
+
+现在fgo也太复杂了。。。</blockquote>
+本来就是1宝能有多大提升，就是喜欢哪个选哪个，既然要利益最大化那只能细分了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
