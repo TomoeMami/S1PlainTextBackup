@@ -5358,3 +5358,23 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">300抽5UR0支援，心很痛
 
+
+*****
+
+####  一个陆仁贾  
+##### 2763#       发表于 2025-9-30 12:01
+
+<img src="https://p.sda1.dev/27/47169f0b8d5bbb51c52974571e9c1cc5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/32faad1ebd2380b9f3eff93a31dfc402/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/2b8434951314752f4de588812eec4e1f/image.jpg" referrerpolicy="no-referrer">爽到
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  chivalry  
+##### 2764#       发表于 2025-9-30 12:04
+
+200 抽 7ur0 支援，这次王牌是不是大奖
+
