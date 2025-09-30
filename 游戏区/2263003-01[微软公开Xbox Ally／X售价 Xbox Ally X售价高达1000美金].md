@@ -678,3 +678,17 @@ rog这台是带着npu的AI z2e……贵是必然的
 我是觉得有quick resume微软的新 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">阿这！
 
+
+*****
+
+####  大暴死  
+##### 62#       发表于 2025-9-30 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509712&amp;ptid=2263003" target="_blank">亚瑟摩根 发表于 2025-9-30 10:46</a>
+微博那个二柄去tgs试了
+
+说有快速恢复</blockquote>
+24g ram中小型游戏后台放两三个ok啦，你说quick不quick肯定quick啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
