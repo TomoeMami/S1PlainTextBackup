@@ -5395,3 +5395,18 @@ EX掉MP也太离谱了，还掉5点，这么来下毒？相比起来绿独角就
 
 王牌船很烂，这次大奖绿驴，狗头本身也下了毒觉得综合比Z弱点，F91纯污染卡池
 
+
+*****
+
+####  Marseille  
+##### 2767#       发表于 2025-9-30 12:25
+
+36抽出了两个正义两个X-1<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  螺旋的小夜曲  
+##### 2768#       发表于 2025-9-30 12:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">绿独角怎么能没有新人类词条，不是NT你这盾怎么飞出去的，再怎么自由也要讲点基本法吧
+
