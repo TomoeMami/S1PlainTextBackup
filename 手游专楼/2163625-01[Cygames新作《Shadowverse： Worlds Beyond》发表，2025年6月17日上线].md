@@ -72,3 +72,11 @@ cy现在唯一能看的就是马娘了<img src="https://static.stage1st.com/imag
 
 — from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  横寺阳人  
+##### 708#       发表于 2025-10-1 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">szb2明显对cy自己是好消息，信不信下个卡包继续冲顶，怎么都比szb2出之前那一滩死水的cy好，kmr也算给老东家留了个不错的遗产了。
+
