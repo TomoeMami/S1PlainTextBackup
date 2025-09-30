@@ -326,3 +326,32 @@ https://nyaa.si/view/2024621，37g这玩意也太大了吧下不动
 
 另外一提柚子的新黄油台词提了一嘴miko的以前的直播事故neta
 
+
+*****
+
+####  holofan  
+##### 11220#       发表于 2025-9-30 17:17
+
+<img src="https://img.stage1st.com/forum/202509/30/171631fhgxukfw131l5aph.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 17:16 上传
+
+无限延期篇开始了，今年能不能出荷都悬
+
+*****
+
+####  holofan  
+##### 11221#       发表于 2025-9-30 20:07
+
+<img src="https://img.stage1st.com/forum/202509/30/200707u2w17n111pe1we1p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-30 20:07 上传
+
