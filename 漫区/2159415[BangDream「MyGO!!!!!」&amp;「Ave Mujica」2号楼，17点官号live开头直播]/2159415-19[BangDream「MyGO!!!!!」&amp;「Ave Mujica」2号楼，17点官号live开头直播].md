@@ -16,3 +16,11 @@
 
 一开捡到day2票后二三开day1连续败北，想看校服版ccc好难啊<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone00000  
+##### 27277#       发表于 2025-10-1 01:40
+
+捡了张day2回流内场<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">day2回流票不停的，day1回流没几张，还秒没，之后看看能不能捡张day1野狗席
+
