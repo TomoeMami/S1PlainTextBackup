@@ -584,3 +584,34 @@ rog这台是带着npu的AI z2e……贵是必然的
 借个楼问一问，手上没有游戏本，平时玩游戏全在自家台式上。但每次回国休假十几天（一年合计1个半月左右吧 ...</blockquote>
 看预算了呗。二手Steam Deck OLED很便宜，但问题是性能对于2025年的大型游戏很吃力，小游戏还是没问题的。再上面是二手的ROG Ally X和Legion Go（上一代Z1E芯片）。这代Z2E芯片对比Z1E的提升大概在30%左右，选择有ROG Xbox Ally X，微星的MSI CLAW 8，联想的Legion Go 2等，价格都在$1000上下。这其中ROG Xbox Ally X屏幕又是最小的（7英寸），微星的8英寸，联想的8.8英寸。
 
+
+*****
+
+####  亚瑟摩根  
+##### 55#       发表于 2025-9-30 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509201&amp;ptid=2263003" target="_blank">蛇头 发表于 2025-9-30 09:42</a>
+
+借个楼问一问，手上没有游戏本，平时玩游戏全在自家台式上。但每次回国休假十几天（一年合计1个半月左右吧 ...</blockquote>
+如果喜欢独立那就sd oled就行
+
+如果有一点大型游戏的要求基本就要看Z1E或者Z2E了
+
+不过现在xbox ally 有精简系统，快速恢复，着色器这些特性
+
+国行6499，说实话如果不选sd，我个人建议就xbox ally了
+
+毕竟Z2E
+
+当然了xbox ally的屏幕小了点
+
+*****
+
+####  亚瑟摩根  
+##### 56#       发表于 2025-9-30 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68508760&amp;ptid=2263003" target="_blank">抽水机 发表于 2025-9-30 08:14</a>
+
+索尼的掌机是不是也快出来了？</blockquote>
+那玩意是next gen的
+

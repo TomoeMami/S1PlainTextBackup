@@ -42,3 +42,16 @@
 最近几场大赛双叶莹已经霸屏了，隐隐约约已经是版本最强角的感觉（之前都觉得双叶劣 ...</blockquote>
 大赛前做版本调整? snk不至于这么傻逼吧...
 
+
+*****
+
+####  魔王候补77号  
+##### 572#       发表于 2025-9-30 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509481&amp;ptid=2085684" target="_blank">风夏 发表于 2025-9-30 10:20</a>
+
+大赛前做版本调整? snk不至于这么傻逼吧...</blockquote>
+东丈版本是秋季上线，那不就是SCS吗
+
+当然也有可能只发新角色不改平衡
+

@@ -144,3 +144,12 @@ Tony Tang
 
 今天又有6G的更新啊，看补丁说是增加个特定结局后的任务，早知道不进新周目了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 4279#       发表于 2025-9-30 10:23
+
+🔶 PS5 &amp; PC Shared update details!
+🔸After one ending comes another beginning — explore three epilogues that reveal the lives of EVE and the people of Xion following a specific ending
+
