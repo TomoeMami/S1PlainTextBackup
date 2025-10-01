@@ -5880,3 +5880,17 @@ UC这开发机SSR非终端真是能明显拖慢开发速度
 
 拜亚兰我也sp了，但是这个命中率确实有点恶心，希望ssp可以加命中吧，不过我感觉也不会优先ssp他-，-
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2813#       发表于 2025-10-2 03:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68518383&amp;ptid=2071758" target="_blank">arthes 发表于 2025-10-2 01:43</a>
+100抽只有3ur，但是好歹神和绿驴都出了，继续抽到保底拿个船算了
+
+拜亚兰我也sp了，但是这个命中率确实有点 ...</blockquote>
+只能让有命中率技能的人来开了。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
