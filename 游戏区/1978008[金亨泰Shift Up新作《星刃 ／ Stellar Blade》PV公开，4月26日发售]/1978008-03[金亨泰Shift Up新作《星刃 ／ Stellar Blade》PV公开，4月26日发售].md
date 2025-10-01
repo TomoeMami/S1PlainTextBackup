@@ -161,3 +161,11 @@ Tony Tang
 
 好反直觉啊，国际服最后降到10块才出掉，国服这个一挂25就被贩子拍走了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 4281#       发表于 2025-10-1 09:42
+
+特意去杀了3次高达就为了看这个......也太短
+
