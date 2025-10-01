@@ -24,3 +24,11 @@
 
 捡了张day2回流内场<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">day2回流票不停的，day1回流没几张，还秒没，之后看看能不能捡张day1野狗席
 
+
+*****
+
+####  6030sylar  
+##### 27278#       发表于 2025-10-1 09:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">昨晚抢到day2 1580的了，过两小时通知国庆要下社区消杀（广东江门），不知道国庆后能不能跑
+
