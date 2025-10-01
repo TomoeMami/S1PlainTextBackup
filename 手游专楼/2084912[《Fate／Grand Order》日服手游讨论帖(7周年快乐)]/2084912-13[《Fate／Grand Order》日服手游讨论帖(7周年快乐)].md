@@ -1086,3 +1086,39 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 没有战续是拿来当单体大英雄吗，记得那个月姬联动送的四星还 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">碎石打法无视对面所有机制
 
+
+*****
+
+####  alucardcz  
+##### 18344#       发表于 2025-10-1 17:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么没人豹 
+
+*****
+
+####  Jamaisvu  
+##### 18345#       发表于 2025-10-1 18:14
+
+近藤勇的声优是新垣樽助，间桐雁夜的声优。
+
+另外他还在风云新选组系列游戏里配过土方岁三，以及刀剑乱舞里的压切长谷部、长增弥虎彻、千代金丸。
+
+长增弥虎彻就是近藤勇的佩刀，算是在玩梗吧。
+
+*****
+
+####  angelooo  
+##### 18346#       发表于 2025-10-1 18:24
+
+近藤这个拿掉护额的灵衣没啥必要吧，黑剑士的面具形态呢？？？
+
+*****
+
+####  qixinno2  
+##### 18347#       发表于 2025-10-1 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516675&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-1 17:58</a>
+
+怎么没人豹</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男的 强度一般 没人抽
+
