@@ -57,3 +57,11 @@ kmr辞职
 
 kmr辞职了，fhkr也老早挑担子跑路了，小小福干脆表示社恐不说话，这以后生放送谁来负责装模作样念稿子<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnmyster1ous  
+##### 18265#       发表于 2025-10-1 13:27
+
+不知道是不是庆祝kmr离职，这两天野房天元极法菜的夸张，10把不一定能有2把是6属全解的
+
