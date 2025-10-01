@@ -5752,3 +5752,16 @@ UC和G的ULT机体值得做出终极版吗<img src="https://static.stage1st.com/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">300 抽没出船，绿独角 f91 元祖全满破了，神也二破了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2802#       发表于 2025-10-1 13:14
+
+ 本帖最后由 真贝尔奈普斯 于 2025-10-1 13:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68515109&amp;ptid=2071758" target="_blank">demon6666 发表于 2025-10-1 11:11</a>
+UC和G的ULT机体值得做出终极版吗</blockquote>
+G明显不值得，支援机
+UC是攻击机，可以先开发到第二阶段观望
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
