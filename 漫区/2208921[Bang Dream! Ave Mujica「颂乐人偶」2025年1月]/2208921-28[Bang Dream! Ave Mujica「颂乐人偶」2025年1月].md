@@ -188,3 +188,26 @@
 
        [https://x.com/cfvanguard_PR/status/1972979742325567806](https://x.com/cfvanguard_PR/status/1972979742325567806)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41343#       发表于 2025-10-1 19:31
+
+       <strong>にゃむちチャンネル（Nyamuchi channel）第10回</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/01/193136t7lv11hb1dbbvdby.jpg" referrerpolicy="no-referrer">
+
+<strong>ff422ae1b012224dac4f8dfaaec14dc8250f9139.jpg</strong> (254.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-1 19:31 上传
+
+马上又要去上海啦~好期待见到大家❤️
+
+跟着Nyamuchi一起回忆一下7月的上海之旅吧~
+
+欢迎在评论栏给Nyamuchi推荐更多美食哟~</blockquote>
+       [https://www.bilibili.com/video/BV1uUHWzWE99](https://www.bilibili.com/video/BV1uUHWzWE99)
+
