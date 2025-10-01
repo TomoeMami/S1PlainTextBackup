@@ -169,3 +169,16 @@ Tony Tang
 
 特意去杀了3次高达就为了看这个......也太短
 
+
+*****
+
+####  Andariel  
+##### 4282#       发表于 2025-10-1 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68514763&amp;ptid=1978008" target="_blank">oyss 发表于 2025-10-1 09:42</a>
+
+特意去杀了3次高达就为了看这个......也太短</blockquote>
+怎么触发的？选握手杀高达才能看吗？
+
+这三个新尾声的分支是什么判定条件？
+
