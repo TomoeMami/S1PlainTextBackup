@@ -593,3 +593,15 @@ bloober真王朝了
 已经进入全面制作阶段
 [https://www.stockwatch.pl/czat-i ... rzesnia-o-godz-1100](https://www.stockwatch.pl/czat-inwestorow-gieldowych/piotr-babieno-prezes-karolina-nowak-wiceprezes-bloober-team-start-30-wrzesnia-o-godz-1100),797
 
+
+*****
+
+####  时空之旅  
+##### 69#       发表于 2025-10-1 14:24
+
+<blockquote>黑卷轴陶德传 发表于 2025-6-10 09:42
+搞点老游戏重制可能吗？掠夺者，宇宙骑警那种AVG按侦探俱乐部规格重制成本应该也没多少吧
+
+顺便寂静岭F女主 ...</blockquote>
+没有一丁点可能性，以科乐美的尿性这种名下既无名气又无人气又无销量的游戏海了去了
+
