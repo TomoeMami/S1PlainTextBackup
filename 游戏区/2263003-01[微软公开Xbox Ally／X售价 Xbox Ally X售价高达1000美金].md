@@ -692,3 +692,14 @@ rog这台是带着npu的AI z2e……贵是必然的
 
 —— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Herreimu  
+##### 63#       发表于 2025-10-1 19:40
+
+ 本帖最后由 Herreimu 于 2025-10-1 19:42 编辑 
+
+pdd刷到港版，x卖8k，无印5k
+你妈5k的z2a谁会买啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
