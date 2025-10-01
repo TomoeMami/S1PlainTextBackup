@@ -5713,3 +5713,26 @@ F91不是
 
 新人类专用机甚么玩意，不如贝嫂一根毛呀！因为和王牌机互斥结果一堆新开发机都不是新人类专用机！可惜我没有<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2798#       发表于 2025-10-1 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68510872&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-9-30 13:17</a>
+
+拿2破神高去打活动没用技能EX同盟拳打了20多万伤害
+
+我见识少这伤害正常不 ...</blockquote>
+强敌的难度在高层前10楼都是送的
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 2799#       发表于 2025-10-1 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513802&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-9-30 23:31</a>
+
+独角兽第八关气笑了，SFS做了但就是不给你用，唉就是玩</blockquote>
+开发的SFS机只有MK2
+
