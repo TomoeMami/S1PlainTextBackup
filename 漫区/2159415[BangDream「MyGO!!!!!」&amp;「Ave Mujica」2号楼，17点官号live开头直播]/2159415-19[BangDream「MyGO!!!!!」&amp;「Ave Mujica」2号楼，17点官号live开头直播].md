@@ -40,3 +40,11 @@
 
 明天就有新pico看了 <img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 27280#       发表于 2025-10-1 14:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> day1 1780内场 坐等贴友
+
