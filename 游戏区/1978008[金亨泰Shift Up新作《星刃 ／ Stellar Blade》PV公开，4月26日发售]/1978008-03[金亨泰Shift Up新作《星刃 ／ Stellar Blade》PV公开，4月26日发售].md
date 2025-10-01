@@ -182,3 +182,28 @@ Tony Tang
 
 这三个新尾声的分支是什么判定条件？
 
+
+*****
+
+####  oyss  
+##### 4283#       发表于 2025-10-1 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68515079&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-10-1 11:04</a>
+
+怎么触发的？选握手杀高达才能看吗？
+
+这三个新尾声的分支是什么判定条件？ ...</blockquote>
+应该是每次不同滚动播放,没条件.读档直接反复打高达就是了.
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Andariel| + 1|好评加鹅|
+
+查看全部评分
+
