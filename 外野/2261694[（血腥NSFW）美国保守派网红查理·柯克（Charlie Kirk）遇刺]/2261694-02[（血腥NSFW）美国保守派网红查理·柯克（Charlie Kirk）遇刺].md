@@ -5242,3 +5242,16 @@ Mrs.心胸开阔也是这样<img src="https://static.stage1st.com/image/smiley/f
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  素盏鸣尊  
+##### 1904#       发表于 2025-10-1 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68505568&amp;ptid=2261694" target="_blank">saizeriya 发表于 2025-9-29 13:56</a>
+
+【没错，保守派的**在宣传**的诸多好处，刚刚在truth上分享-哔哩哔哩】 https://b23.tv/WLBmiWy
+
+——这个 ...</blockquote>
+太可悲了。虽然在大选前已经可以看到奶龙以成为硅谷的傀儡。但一年不到发展成这样。
+
