@@ -1032,3 +1032,57 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 这就是欧皇吗 现在开始你就是本楼的欧皇了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不如你楼上的才是真欧皇
 
+
+*****
+
+####  alucardcz  
+##### 18339#       发表于 2025-9-30 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513705&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-9-30 23:04</a>
+
+攒了发十连 竟然二宝了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">现在开始你就是本楼的欧皇了
+
+*****
+
+####  qixinno2  
+##### 18340#       发表于 2025-9-30 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513717&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-9-30 23:08</a>
+
+欧，羡慕了，现在开始你就是本楼的欧皇了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不如你欧 你才是今年的欧皇
+
+*****
+
+####  qixinno2  
+##### 18341#       发表于 2025-9-30 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68513771&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-9-30 23:25</a>
+
+这就是欧皇吗 现在开始你就是本楼的欧皇了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不如你楼上的才是真欧皇
+
+*****
+
+####  希望之花  
+##### 18342#       发表于 2025-10-1 17:19
+
+没抽到五星，这个四星自爆单体绿卡仇给了三宝
+
+没有战续是拿来当单体大英雄吗，记得那个月姬联动送的四星还是单体自爆狂？
+
+三个宝具打下去无人生还？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18343#       发表于 2025-10-1 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516522&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-10-1 17:19</a>
+
+没抽到五星，这个四星自爆单体绿卡仇给了三宝
+
+没有战续是拿来当单体大英雄吗，记得那个月姬联动送的四星还 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">碎石打法无视对面所有机制
+
