@@ -32,3 +32,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">昨晚抢到day2 1580的了，过两小时通知国庆要下社区消杀（广东江门），不知道国庆后能不能跑
 
+
+*****
+
+####  mono  
+##### 27279#       发表于 2025-10-1 14:26
+
+明天就有新pico看了 <img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
