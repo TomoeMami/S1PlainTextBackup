@@ -5744,3 +5744,11 @@ F91不是
 
 UC和G的ULT机体值得做出终极版吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 2801#       发表于 2025-10-1 12:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">300 抽没出船，绿独角 f91 元祖全满破了，神也二破了
+
