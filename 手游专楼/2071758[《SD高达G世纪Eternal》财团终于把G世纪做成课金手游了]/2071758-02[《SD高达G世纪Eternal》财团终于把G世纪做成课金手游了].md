@@ -5870,3 +5870,13 @@ UC这开发机SSR非终端真是能明显拖慢开发速度
 上次是砸锅卖铁没出尊者
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">对于武斗传粉丝不是很友好啊
 
+
+*****
+
+####  arthes  
+##### 2812#       发表于 2025-10-2 01:43
+
+100抽只有3ur，但是好歹神和绿驴都出了，继续抽到保底拿个船算了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+拜亚兰我也sp了，但是这个命中率确实有点恶心，希望ssp可以加命中吧，不过我感觉也不会优先ssp他-，-
+
