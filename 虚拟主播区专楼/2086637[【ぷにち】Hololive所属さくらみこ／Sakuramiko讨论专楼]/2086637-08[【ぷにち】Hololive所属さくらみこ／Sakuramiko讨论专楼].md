@@ -521,3 +521,34 @@ USJ给了多少宣传费
 
 loli！？
 
+
+*****
+
+####  holofan  
+##### 11235#       发表于 2025-10-2 20:48
+
+<img src="https://img.stage1st.com/forum/202510/02/204816w4xfa4eha0x7uje0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:48 上传
+
+果然是醋嘛
+
+*****
+
+####  holofan  
+##### 11236#       发表于 2025-10-2 20:50
+
+<img src="https://img.stage1st.com/forum/202510/02/205017nr258ktd5em5dw85.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (198.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:50 上传
+
+这要是亲笔签名市场价就要上天了
+
