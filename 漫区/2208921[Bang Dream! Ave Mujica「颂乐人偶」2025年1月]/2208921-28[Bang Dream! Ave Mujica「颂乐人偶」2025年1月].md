@@ -211,3 +211,25 @@
 欢迎在评论栏给Nyamuchi推荐更多美食哟~</blockquote>
        [https://www.bilibili.com/video/BV1uUHWzWE99](https://www.bilibili.com/video/BV1uUHWzWE99)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41344#       发表于 2025-10-2 13:24
+
+ 本帖最后由 堀内爱里衣 于 2025-10-2 13:26 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/02/132621vj5qz85zx444jqq4.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-10-02_13-26-04.jpg</strong> (190.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 13:26 上传
+
+       [https://x.com/comic_growl/status/1973584927108235763](https://x.com/comic_growl/status/1973584927108235763)
+
+       [https://comic-growl.com/episodes/d8a6a79dd74f7/](https://comic-growl.com/episodes/d8a6a79dd74f7/)
+
