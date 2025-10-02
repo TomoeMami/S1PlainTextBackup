@@ -95,3 +95,16 @@ cy还有人么.这下.
 
 cy是不是抬头一看,已经追不上其他对手的开发能力了?
 
+
+*****
+
+####  Sylpheed  
+##### 18269#       发表于 2025-10-2 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68518215&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2025-10-2 00:18</a>
+看推特简介应该是被炒鱿鱼了，身体不适只是体面说法</blockquote>
+咋可能真体调不良就卸任，一直都是好用的借口啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大概率还是自己辞的，之前731那段时间是不是还爆出被董事会质问来着？现在大概斗争失败被拿下了，赖着不走也是跟老兄弟一起卖电话卡去，稍微有点志向也自己走了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
