@@ -1122,3 +1122,48 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 怎么没人豹</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男的 强度一般 没人抽
 
+
+*****
+
+####  alucardcz  
+##### 18348#       发表于 2025-10-1 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516805&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-1 18:31</a>
+
+男的 强度一般 没人抽</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你可以的 3石的事情
+
+*****
+
+####  qixinno2  
+##### 18349#       发表于 2025-10-1 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516933&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-1 19:00</a>
+
+你可以的 3石的事情</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这种事还是狗萌新来吧 非洲人这个月的五星欧气用掉了
+
+*****
+
+####  岸浪白野  
+##### 18350#       发表于 2025-10-2 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516522&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-10-1 17:19</a>
+
+没抽到五星，这个四星自爆单体绿卡仇给了三宝
+
+没有战续是拿来当单体大英雄吗，记得那个月姬联动送的四星还 ...</blockquote>
+从图坦卡蒙开始出的自爆都没特殊宝具倍率，这位有秩序特攻一看不就是给人所长EX1用绿卡单体除了伯爵烧伤特攻的第二选择，也就这样了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18351#       发表于 2025-10-2 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68516777&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-10-1 18:24</a>
+
+近藤这个拿掉护额的灵衣没啥必要吧，黑剑士的面具形态呢？？？</blockquote>
+讲道理戴面具这个模组都做出来站对面了都没整第2个简易灵衣确实有点幽默的
+
+这没护额灵衣其实除了虎徹变白色就是模组待机的时候拿的刀是有特效光的，但是一开宝具动画还是那套<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
