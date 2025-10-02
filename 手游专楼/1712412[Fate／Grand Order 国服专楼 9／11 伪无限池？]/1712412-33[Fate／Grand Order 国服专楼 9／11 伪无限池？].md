@@ -175,3 +175,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 三选一而已，也没啥复杂的吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47479#       发表于 2025-10-2 20:12
+
+和计划的一样，小号选了白枪，大号选了特斯拉。
+
