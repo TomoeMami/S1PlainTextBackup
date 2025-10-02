@@ -58,3 +58,13 @@
 
 大家最喜欢的胡逼小动画，就是这第一集也太短了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 27282#       发表于 2025-10-2 21:19
+
+泡面番也得三四分钟一集吧，这一分半希望只是第一集的原因
+
+不过这小动画最关注的还是要怎么塑造鸡团<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
