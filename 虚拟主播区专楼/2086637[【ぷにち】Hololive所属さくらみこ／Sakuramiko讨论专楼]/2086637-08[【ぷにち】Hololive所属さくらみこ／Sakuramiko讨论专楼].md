@@ -552,3 +552,32 @@ loli！？
 
 这要是亲笔签名市场价就要上天了
 
+
+*****
+
+####  holofan  
+##### 11237#       发表于 2025-10-2 21:23
+
+<img src="https://img.stage1st.com/forum/202510/02/212245lpqdl5uz0pg9zu3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 21:22 上传
+
+果然点名要星街当大谷是故意的
+
+*****
+
+####  holofan  
+##### 11238#       发表于 2025-10-2 22:27
+
+<img src="https://img.stage1st.com/forum/202510/02/222804vrvz9ck1l5ivti9i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 22:28 上传
+
