@@ -447,3 +447,53 @@ akuramiko是什么JB
 
 眼睛也太大了吧
 
+
+*****
+
+####  holofan  
+##### 11229#       发表于 2025-10-2 20:22
+
+<img src="https://img.stage1st.com/forum/202510/02/202155ereutuq75385reoy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:21 上传
+
+<img src="https://img.stage1st.com/forum/202510/02/202214xrw2rh9o955rwznw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:22 上传
+
+*****
+
+####  holofan  
+##### 11230#       发表于 2025-10-2 20:26
+
+USJ给了多少宣传费
+
+*****
+
+####  holofan  
+##### 11231#       发表于 2025-10-2 20:31
+
+<img src="https://img.stage1st.com/forum/202510/02/203051iz0eqk1zef6kavuf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (549.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:30 上传
+
+<img src="https://img.stage1st.com/forum/202510/02/203111cqbqcpabbp8ckcuz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (346.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-2 20:31 上传
+
