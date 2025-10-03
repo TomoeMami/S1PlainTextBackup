@@ -72,3 +72,15 @@ PC版中大量数据存在重复存储。这种通过数据复制缩短加载时
 
 B站有个叫突击炮的哥们播潜兵，他还真是机械盘，每次更新补丁下好解压几个小时<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 7166#       发表于 2025-10-3 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523584&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-10-3 17:54</a>
+B站有个叫突击炮的哥们播潜兵，他还真是机械盘，每次更新补丁下好解压几个小时 ...</blockquote>
+我解压慢是机械硬盘的原因<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
