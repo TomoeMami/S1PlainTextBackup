@@ -64,3 +64,11 @@ PC版中大量数据存在重复存储。这种通过数据复制缩短加载时
 
 游戏这么大不就为了让你们pc玩家的机械硬盘加载速度快一点嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7165#       发表于 2025-10-3 17:54
+
+B站有个叫突击炮的哥们播潜兵，他还真是机械盘，每次更新补丁下好解压几个小时<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

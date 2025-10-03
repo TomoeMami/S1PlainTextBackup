@@ -1235,3 +1235,17 @@ F-22好歹有打过的火焰痕迹，好歹在地面做过维护，j-20apu都出
 
 信这个孤证真不如信外包瞎做的，而且其他航展也没见类似的展板啊。央视前两天都能把f-22当j-35宣传
 
+
+*****
+
+####  第九协奏曲  
+##### 113#         楼主| 发表于 2025-10-3 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523544&amp;ptid=2263560" target="_blank">whyczc 发表于 2025-10-3 17:43</a>
+话说，什么叫锁定？
+
+—— 来自 vivo V2452A, Android 15, 鹅球 v3.5.99</blockquote>
+雷达或者光电稳定跟踪，构成射击条件
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
