@@ -774,3 +774,26 @@ f35跟我们碰可不止一次吧，前一段j20不是也驱逐过
 
 J20那个机身布局不靠现代飞控根本不可能实现，F22毕竟是30多年前那个航电和飞控水平下设计的飞机了，而老美又失去了持续改进迭代优化的能力。
 
+
+*****
+
+####  都是好事  
+##### 73#       发表于 2025-10-3 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522887&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 13:51</a>
+请锐评一下J20的机炮
+
+—— 来自 鹅球 v3.5.99</blockquote>
+j20也贴脸拍了，没看到过航炮口
+
+*****
+
+####  第九协奏曲  
+##### 74#         楼主| 发表于 2025-10-3 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523069&amp;ptid=2263560" target="_blank">都是好事 发表于 2025-10-3 14:58</a>
+j20也贴脸拍了，没看到过航炮口</blockquote>
+航展展板上明确说的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
