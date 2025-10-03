@@ -183,3 +183,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 和计划的一样，小号选了白枪，大号选了特斯拉。
 
+
+*****
+
+####  khxooo  
+##### 47480#       发表于 2025-10-3 08:10
+
+说是不打，还是抄了个3宝学姐1令咒的打法将欧罗巴的回忆本过了<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
