@@ -191,3 +191,13 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 说是不打，还是抄了个3宝学姐1令咒的打法将欧罗巴的回忆本过了<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 47481#       发表于 2025-10-3 11:32
+
+又攒了4000石了，DL选了尼托<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+等牢茜UP再抽一波， 然后明年抽所长<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
