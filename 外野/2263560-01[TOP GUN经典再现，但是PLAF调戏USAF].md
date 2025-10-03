@@ -2199,3 +2199,21 @@ su35那不是航电太烂，配套的弹也太烂么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  第九协奏曲  
+##### 183#         楼主| 发表于 2025-10-3 19:41
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 19:46 编辑 
+
+少装点舅舅党有利于脑子进化
+
+相声组说625打不了无人机，野战防空被35炮淘汰要改去空军的时候有些人也当圣旨
+
+结果阅兵时开出来的35炮偏偏不是越野底盘<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+某些ID报人家履历报这么熟练，想必进化得全家211<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
