@@ -84,3 +84,18 @@ boss是arl吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png
 
 <img src="https://p.sda1.dev/27/4bed47f6a033efcc4d7c927485472092/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mono  
+##### 27285#       发表于 2025-10-3 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68521001&amp;ptid=2159415" target="_blank">丰川祥 发表于 2025-10-2 21:27</a>
+
+boss是arl吗</blockquote>
+负乐队粒子是初华身上冒出来的，ed里只有她是面向右边
+
+显然是被污染的人失去意志成为小boss的桥段
+
+所以最终boss应该是发明负乐队粒子害了她的杮本和木谷
+

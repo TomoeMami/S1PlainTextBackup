@@ -2045,3 +2045,66 @@ F15E最后交货的也20多年了
 在我看来这更像是空军找老爷们要军费的片汤话。毕竟单论空军的话，他们对F35的性能一直不甚满意，只是国会 ...</blockquote>
 摆参数的话F-22打7万英尺的气球也是手拿把掐，现实里6万英尺的气球它都打不着
 
+
+*****
+
+####  LilyWhite  
+##### 170#       发表于 2025-10-3 19:07
+
+<blockquote>鲁邦三世1 发表于 2025-10-3 14:50
+牢美飞行员训练时间年均不足100小时到我国飞行员年均训练时长200小时都好几年了
+
+再加上牢美那一堆老年机
+
+ ...</blockquote>
+我国飞行员年均能上200也是顶尖精锐了，全军平均不到150，只不过美军全军平均90顶尖也才120太拉了
+
+*****
+
+####  LilyWhite  
+##### 171#       发表于 2025-10-3 19:09
+
+<blockquote>第九协奏曲 发表于 2025-10-3 15:02
+航展展板上明确说的
+
+</blockquote>
+航展展板胡说八道也不是一回两回了，J-10的航程在几次航展上的数据互相打架也是老笑话了
+
+*****
+
+####  洛拉斯  
+##### 172#       发表于 2025-10-3 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523588&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 17:55</a>
+
+谁知道呢
+
+—— 来自 鹅球 v3.5.99</blockquote>
+模型瞎几把开模又不是罕见的事情
+
+
+*****
+
+####  第九协奏曲  
+##### 173#         楼主| 发表于 2025-10-3 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523848&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 19:09</a>
+航展展板胡说八道也不是一回两回了，J-10的航程在几次航展上的数据互相打架也是老笑话了 ...</blockquote>
+确实
+
+但我个人就是觉得这个盖板的样子太可疑了<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛拉斯  
+##### 174#       发表于 2025-10-3 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523832&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 19:05</a>
+
+F15E最后交货的也20多年了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+这不是还有比055少的F15ex吗
+
