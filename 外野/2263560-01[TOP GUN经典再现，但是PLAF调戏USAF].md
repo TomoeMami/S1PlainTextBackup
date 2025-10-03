@@ -899,3 +899,22 @@ C型作为攻击机挺好的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sellboy  
+##### 83#       发表于 2025-10-3 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523082&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 15:02</a>
+
+航展展板上明确说的</blockquote>
+Gsh-301不是转膛炮。
+
+
+*****
+
+####  x分裂者  
+##### 84#       发表于 2025-10-3 15:43
+
+四铁那个报道不是这次的，李超是雾都雄鹰的
+
