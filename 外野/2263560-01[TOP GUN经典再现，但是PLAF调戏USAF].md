@@ -1476,3 +1476,172 @@ EPU/APU 排气孔</blockquote>
 
 设备舱口有可能，可是又不是机炮，f-22开完炮机体是有焰痕的，j-20有见过一次吗？
 
+
+*****
+
+####  第九协奏曲  
+##### 130#         楼主| 发表于 2025-10-3 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523695&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:24</a>
+设备舱口有可能，可是又不是机炮，f-22开完炮机体是有焰痕的，j-20有见过一次吗？ ...</blockquote>
+公开露面的服役的J20一共才几架
+
+我还是持保留态度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 131#       发表于 2025-10-3 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523677&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:19</a>
+
+没有痕迹的F22也多了去了，红圈里那个长六面型盖板就是机炮射击口盖板
+
+不同于美军的F22海外部署，大 ...</blockquote>
+你这个逻辑有问题，不是说一定要有焰痕，是不能14年了一次都见不到。
+
+很简单的逻辑，j-20弹舱都开给你看了，你什么机炮能神秘过pl-15和pl-10啊？
+
+*****
+
+####  stannislas  
+##### 132#       发表于 2025-10-3 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523681&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:20</a>
+
+这个肯定不是排气孔
+
+—— 来自 鹅球 v3.5.99</blockquote>
+但这也更极大概率不是机炮
+
+*****
+
+####  第九协奏曲  
+##### 133#         楼主| 发表于 2025-10-3 18:28
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 18:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523705&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:27</a>
+你这个逻辑有问题，不是说一定要有焰痕，是不能14年了一次都见不到。
+
+很简单的逻辑，j-20弹舱都开给你看 ...</blockquote>
+其实14年一共也没给你看过几架J20的机背<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+不争了，等后续咯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 134#       发表于 2025-10-3 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523082&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 15:02</a>
+
+航展展板上明确说的</blockquote>
+这是什么航展？哪年的珠海吗？
+
+*****
+
+####  stannislas  
+##### 135#       发表于 2025-10-3 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523708&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:28</a>
+
+其实14年一共也没给你看过几架J20的机背
+
+不争了，等后续咯</blockquote>
+.......啊？你不会以为j-20转弯不用压坡度吧？
+
+
+*****
+
+####  第九协奏曲  
+##### 136#         楼主| 发表于 2025-10-3 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523716&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:31</a>
+.......啊？你不会以为j-20转弯不用压坡度吧？</blockquote>
+我的意思是挑几架干干净净的给你看可太简单了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 137#       发表于 2025-10-3 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523704&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:27</a>
+
+公开露面的服役的J20一共才几架
+
+我还是持保留态度</blockquote>
+公开露面，话说你给的模型都是又是什么三无？是央视还是什么地方公开露面的？
+
+*****
+
+####  stannislas  
+##### 138#       发表于 2025-10-3 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523719&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:32</a>
+
+我的意思是挑几架干干净净的给你看可太简单了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/03/183342lwndneqnddj2fnna.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-10-03 203336.jpg</strong> (28.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 18:33 上传
+
+几架？我这可算是少的很的了
+
+你们机炮党可以全网找，找到一架就成，14年了，你们找到了吗？
+
+*****
+
+####  第九协奏曲  
+##### 139#         楼主| 发表于 2025-10-3 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523722&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:32</a>
+公开露面，话说你给的模型都是又是什么三无？是央视还是什么地方公开露面的？ ...</blockquote>
+那个模型都是2020年的事情，中航发的纪念品，所以当时就有过讨论
+
+主要是跟真机上的舱口形状对应
+
+你觉得不可信就不可信咯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cube  
+##### 140#       发表于 2025-10-3 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523719&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:32</a>
+
+我的意思是挑几架干干净净的给你看可太简单了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+问题在于，机炮又不是什么先进装备，装没装机炮也不是什么本质性的问题，甚至连型号都用的进口版，更没必要藏着掖着。
+
+在这个前提下，目前所有实机展示的内容都不支撑J20装了机炮。
+
+不过这个事情其实无所谓，装了不装都有道理，只是确实不是那么紧要罢了。
+
+*****
+
+####  第九协奏曲  
+##### 141#         楼主| 发表于 2025-10-3 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523726&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:34</a>
+几架？我这可算是少的很的了
+
+你们机炮党可以全网找，找到一架就成，14年了，你们找到了吗？</blockquote>
+你数数机号咯，多少是重复的机
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
