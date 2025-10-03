@@ -2152,3 +2152,50 @@ F15E最后交货的也20多年了
 
 英国佬还打算拆台风的机炮呢发现根本用不上，结果后来发现拆掉再换一配重件比装一真的还贵，就留那了
 
+
+*****
+
+####  第九协奏曲  
+##### 179#         楼主| 发表于 2025-10-3 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523897&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 19:23</a>
+阵风锁F-22是法兰西超人连做4个还是6个9G过载的机动锁上的，这里一个滚筒一锁二有点太轻松了 ...</blockquote>
+CCTV的节目一般不会细节说太细的
+
+往往配套的视频画面也都是剪辑过的，大量往期镜头重复剪
+
+这段几句话肯定不是现场的全部情况
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 180#       发表于 2025-10-3 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523897&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 19:23</a>
+
+阵风锁F-22是法兰西超人连做4个还是6个9G过载的机动锁上的，这里一个滚筒一锁二有点太轻松了 ...</blockquote>
+嘛，现实一点的估计是美帝飞行员进日韩空域横惯了，看到pla都不机动占位的，上来直接让j-16打了了措手不及，来了个骑脸输出。
+
+
+*****
+
+####  Toby_dak  
+##### 181#       发表于 2025-10-3 19:32
+
+现在还在坚持J20有航炮的确不算什么事，毕竟18舰都下水了还有人说信誓旦旦说装了核堆，不然怎么体现生物多样性和优胜劣汰。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  第九协奏曲  
+##### 182#         楼主| 发表于 2025-10-3 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523812&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 18:59</a>
+别提了，南霸天接了SU-35以后对抗里被兄弟部队花式调戏</blockquote>
+su35那不是航电太烂，配套的弹也太烂么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
