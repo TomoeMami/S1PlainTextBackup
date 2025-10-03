@@ -1645,3 +1645,166 @@ EPU/APU 排气孔</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  stannislas  
+##### 142#       发表于 2025-10-3 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523731&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:36</a>
+
+那个模型都是2020年的事情，中航发的纪念品，所以当时就有过讨论
+
+主要是跟真机上的舱口形状对应</blockquote>
+中航纪念品....笑死，成飞给送的j-20第一个模型，j-20弹舱都是左右只有一块的...
+
+这玩意本来就是发包给工艺品厂生产的...拿这个当考据也真的是...
+
+*****
+
+####  stannislas  
+##### 143#       发表于 2025-10-3 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523734&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:37</a>
+
+你数数机号咯，多少是重复的机
+
+—— 来自 鹅球 v3.5.99</blockquote>
+你继续杠，反正你们机炮党除了嘴硬也没别的证据了
+
+*****
+
+####  第九协奏曲  
+##### 144#         楼主| 发表于 2025-10-3 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523733&amp;ptid=2263560" target="_blank">cube 发表于 2025-10-3 18:36</a>
+问题在于，机炮又不是什么先进装备，装没装机炮也不是什么本质性的问题，甚至连型号都用的进口版，更没必 ...</blockquote>
+我觉得跟先进不先进没关系，阿sir的军宣根本不讲逻辑
+
+F22航展的时候也不特意翻开这个射击口盖板
+
+我们知道F22有机炮是因为洛马从竞标开始就明确这个设计，对公众是公开的
+
+而中航并没有给大众这样的官方“设定集”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  第九协奏曲  
+##### 145#         楼主| 发表于 2025-10-3 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523747&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:39</a>
+中航纪念品....笑死，成飞给送的j-20第一个模型，j-20弹舱都是左右只有一块的...
+
+这玩意本来就是发包给工 ...</blockquote>
+如果没有后续的真机照片，我当然也不是信模型的
+
+但是这个盖板形状和位置，我选择信一下<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 146#         楼主| 发表于 2025-10-3 18:43
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 18:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523748&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:40</a>
+你继续杠，反正你们机炮党除了嘴硬也没别的证据了</blockquote>
+彼此彼此
+
+目前中航官方宣传里既然没有正面的回应过没有
+
+那大家不都是猜<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 147#       发表于 2025-10-3 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523734&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:37</a>
+
+你数数机号咯，多少是重复的机
+
+—— 来自 鹅球 v3.5.99</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/03/184243dt0kj0a3s83vjq0y.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-10-03 204237.jpg</strong> (129.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 18:42 上传
+
+一共91架，一架都没有，这还不算2001,2011这14架。
+
+这比f-22 和f-35加起来露面都不少吧，人家几张照片就有机炮，甚至开火，焰痕。
+
+我们弹舱都露面了，怎么机炮都没有过哪怕一次？
+
+*****
+
+####  stannislas  
+##### 148#       发表于 2025-10-3 18:45
+
+ 本帖最后由 stannislas 于 2025-10-3 18:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523763&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:43</a>
+
+彼此彼此
+
+目前官方既不否认也不承认</blockquote>
+意思就说，我怀疑登月是假的，只要nasa没有亲自跳起来扇我脸我就是正确的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你让官方否认一个不存在的东西，不就是精神胜利自己骗自己吗？
+
+*****
+
+####  第九协奏曲  
+##### 149#         楼主| 发表于 2025-10-3 18:46
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 18:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523766&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:44</a>
+一共91架，一架都没有，这还不算2001,2011这14架。
+
+这比f-22 和f-35加起来露面都不少吧，人家几张照片 ...</blockquote>
+有机背这个位置的有几架？
+
+露个机头和远景的不算
+
+那些镜头APU排烟口的痕迹你都看不清
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 150#         楼主| 发表于 2025-10-3 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523768&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:45</a>
+意思就说，我怀疑登月是假的，只要nasa没有亲自跳起来扇我脸我就是正确的？
+
+你让官方否认一个不存在的东西 ...</blockquote>
+不一样
+
+NASA在你出生前就直播了登月
+
+而中航哪次公开说过J20的机炮？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 151#       发表于 2025-10-3 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523773&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:46</a>
+
+不一样
+
+NASA在你出生前就直播了登月</blockquote>
+哪次？来来来，包括你的航展，哪个航展？哪年？
+
