@@ -1056,3 +1056,52 @@ R77是跟30MK引进的</blockquote>
 
 传奇白俄罗斯大技霸催眠N001倒卡雷达，飞行员手掐秒表，把R77当成R27ER打
 
+
+*****
+
+####  第九协奏曲  
+##### 98#         楼主| 发表于 2025-10-3 16:28
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 16:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523309&amp;ptid=2263560" target="_blank">ggggggssss 发表于 2025-10-3 16:26</a>
+那次去泰国J11A确实可以打
+
+传奇白俄罗斯大技霸催眠N001倒卡雷达，飞行员手掐秒表，把R77当成R27ER打 ...</blockquote>
+这种打法发挥不了导弹应有的性能
+
+主动弹也是需要前期引导修正误差的，不然脱靶率会很高
+
+尤其R77这种本来就阻力大的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  sellboy  
+##### 99#       发表于 2025-10-3 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523131&amp;ptid=2263560" target="_blank">乔伊 发表于 2025-10-3 15:22</a>
+
+F35除了短距起降的型号都挺好的
+
+—— 来自 OPPO PKB110, Android 15, 鹅球 v3.5.99</blockquote>
+我的观点是最差是C。
+
+B的问题是不需要那么大，当然这在把35B从伴随掩护两栖舰上起飞的直升机这个局限性上放开，视为要在一些国家当正经舰载机用的，那么这个大小是有实际好处的。
+
+*****
+
+####  第九协奏曲  
+##### 100#         楼主| 发表于 2025-10-3 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523327&amp;ptid=2263560" target="_blank">sellboy 发表于 2025-10-3 16:32</a>
+我的观点是最差是C。
+
+B的问题是不需要那么大，当然这在把35B从伴随掩护两栖舰上起飞的直升机这个局限性上 ...</blockquote>
+当年只考虑美国海军陆战队和空军要求的验证机可苗条了
+
+眉清目秀的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
