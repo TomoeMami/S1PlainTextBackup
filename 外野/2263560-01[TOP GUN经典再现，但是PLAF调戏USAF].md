@@ -1168,3 +1168,25 @@ j-20也出来14年了，要是有机炮也不至于一次也没见 ...</blockquo
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  yuxiao  
+##### 106#       发表于 2025-10-3 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522569&amp;ptid=2263560" target="_blank">silversor 发表于 2025-10-3 12:11</a>
+军盲好奇，j16居然还那咬住f35吗？不是差一代机的水平吗</blockquote>
+肥电，之所以叫肥电，就是因为这玩意儿在研发过程中各种既要又要也要被塞得太满了，最后除了能隐身能垂直起降外其它一无是处，也就欺负下没有反隐体系的三流国家
+
+
+*****
+
+####  cube  
+##### 107#       发表于 2025-10-3 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523422&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 16:58</a>
+跟F22一样盖板盖着咯，不开火的时候表面是没有开口的</blockquote>
+F22的机炮是有实际演示的画面的，但是J20弹舱都打开展示多次了，到现在为止也没有实机展示过机炮，这又不是什么需要保密的技术。
+
+所以是不是真装上了还是存疑，虽然毛子这套机炮系统确实挺不错。
+
