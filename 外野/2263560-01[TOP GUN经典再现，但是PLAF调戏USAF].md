@@ -2277,3 +2277,25 @@ su35那不是航电太烂，配套的弹也太烂么
 
 论坛的臭军迷就是毒瘤,也不看论坛关了多少次了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  喷气推进实验室  
+##### 189#       发表于 2025-10-3 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523136&amp;ptid=2263560" target="_blank">Toby_dak 发表于 2025-10-3 08:22</a>
+Fat Amy那水桶腰，跟侧卫系玩狗斗属实嫌命长了。
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+水桶机（物理）
+
+*****
+
+####  Toby_dak  
+##### 190#       发表于 2025-10-3 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523848&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 20:09</a>
+
+航展展板胡说八道也不是一回两回了，J-10的航程在几次航展上的数据互相打架也是老笑话了 ...</blockquote>
+从08年J10首次参展第一次去珠海，再到去年去珠海，看着自己拍的照片里，快20年如一日地原地踏步射程290km的展牌。只能说负责航展展牌的宣传 口深得战忽局真传，能拿来奉若圭臬金口直断真是无话可说。
+
