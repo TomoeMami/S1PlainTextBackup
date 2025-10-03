@@ -1284,3 +1284,101 @@ F-22好歹有打过的火焰痕迹，好歹在地面做过维护，j-20apu都出
 —— 来自 鹅球 v3.5.99</blockquote>
 后期型应该是取消了机炮，我看到这个位置，在之前央视报道的j20转场的报道里面是放行李和小备件的。
 
+
+*****
+
+####  stannislas  
+##### 117#       发表于 2025-10-3 18:08
+
+ 本帖最后由 stannislas 于 2025-10-3 18:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523588&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 17:55</a>
+
+谁知道呢
+
+—— 来自 鹅球 v3.5.99</blockquote>
+兄弟，这不能说明啥，而且也跟真机对不上
+
+这是今年长春的
+
+<img src="https://img.stage1st.com/forum/202510/03/180802ghonvvw1vk0w5fk2.jpg" referrerpolicy="no-referrer">
+
+<strong>54811344376_edaa008f0a_o.jpg</strong> (173.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 18:08 上传
+
+你能找到1架符合你模型的真机就成...
+
+*****
+
+####  cube  
+##### 118#       发表于 2025-10-3 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523544&amp;ptid=2263560" target="_blank">whyczc 发表于 2025-10-3 17:43</a>
+
+话说，什么叫锁定？
+
+—— 来自 vivo V2452A, Android 15, 鹅球 v3.5.99</blockquote>
+就是被雷达锁头了，一旦对手发射空空导弹，这个距离基本上必中。
+
+在演习里被锁定基本上就可以判断为被击落了。
+
+*****
+
+####  stannislas  
+##### 119#       发表于 2025-10-3 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523628&amp;ptid=2263560" target="_blank">dabao362 发表于 2025-10-3 18:05</a>
+
+后期型应该是取消了机炮，我看到这个位置，在之前央视报道的j20转场的报道里面是放行李和小备件的。 ...</blockquote>
+不用后期型，从2011年追到现在，光j-20图片都存了几千张了，一架带机炮的真机都没见过...
+
+*****
+
+####  第九协奏曲  
+##### 120#         楼主| 发表于 2025-10-3 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523637&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:08</a>
+兄弟，这不能说明啥，而且也跟真机对不上
+
+这是今年长春的</blockquote>
+我这也是真机啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/27/a31d5827a893e299e71e95dbf4280cd4/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/ed0786362d711f93d77f40eb89408231/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  stannislas  
+##### 121#       发表于 2025-10-3 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523650&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:11</a>
+
+我这也是真机啊</blockquote>
+兄弟，你怎么证明这不是一个正常的开口，还有左边那个怎么就不是APU或者散热开口。
+
+还有，你模型上有个机炮的突起，你这两张图的机炮突起呢？？？？
+
+*****
+
+####  cube  
+##### 122#       发表于 2025-10-3 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523650&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:11</a>
+
+我这也是真机啊</blockquote>
+这两个地方更像是电子设备的散热进风口。
+
+*****
+
+####  stannislas  
+##### 123#       发表于 2025-10-3 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523650&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:11</a>
+
+我这也是真机啊</blockquote>
+最关键，你有见过哪家飞机打过机炮，一次痕迹都没有的
+
