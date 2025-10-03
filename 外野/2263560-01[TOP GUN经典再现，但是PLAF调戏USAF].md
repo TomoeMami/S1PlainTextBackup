@@ -626,3 +626,77 @@ F15C、E全被F22吊打
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仓岛千百合  
+##### 61#       发表于 2025-10-3 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522782&amp;ptid=2263560" target="_blank">cyberalogogo 发表于 2025-10-3 13:12</a>
+说起吊打J11，想起J11还被泰国的鹰狮吊打过，被剃了个0：4光头。
+
+这么一说感觉是个飞机都能吊打J11。 ...</blockquote>
+科普下0：4是超视距项目 狗斗项目我们是嬴的。
+J11A=国产su27 打不了主动弹，超视距吃大亏。
+
+*****
+
+####  fanisy  
+##### 62#       发表于 2025-10-3 14:30
+
+我国周边有F22驻扎吗
+
+
+*****
+
+####  cube  
+##### 63#       发表于 2025-10-3 14:32
+
+ 本帖最后由 cube 于 2025-10-3 14:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522971&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 14:18</a>
+
+F15C、E全被F22吊打
+
+—— 来自 鹅球 v3.5.99</blockquote>
+在狗斗这个层面，F22虽然在五代机里机动性算强的，但是四代机和其之间不存在隐身超视距作战哪个级别的代差。演习中被吊打更可能是双方飞行员技术和配备装备水平的差距，因为装了头瞄的台风是和没装头瞄的F22在近距离打过五五甚至还取得过优势的。
+
+美军自己F22第一次被模拟击落就是在低速区的时候被EA-18G给抓住锁定了。
+
+说白了狗斗就是烂泥坑打滚，在飞机性能没有显著的代差前提下非常看飞行员对自己座驾的掌握程度。
+
+*****
+
+####  cuslaa  
+##### 64#       发表于 2025-10-3 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522569&amp;ptid=2263560" target="_blank">silversor 发表于 2025-10-3 12:11</a>
+
+军盲好奇，j16居然还那咬住f35吗？不是差一代机的水平吗</blockquote>
+只是隐身差了一层。电战是16强，机动和狗斗f35更是路边一条。
+
+*****
+
+####  第九协奏曲  
+##### 65#         楼主| 发表于 2025-10-3 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523001&amp;ptid=2263560" target="_blank">fanisy 发表于 2025-10-3 14:30</a>
+我国周边有F22驻扎吗</blockquote>
+去年嘉手纳靠三个中队硬凑了十多架F22
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 66#         楼主| 发表于 2025-10-3 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523010&amp;ptid=2263560" target="_blank">cube 发表于 2025-10-3 14:32</a>
+在狗斗这个层面，F22虽然在五代机里机动性算强的，但是四代机和其之间不存在隐身超视距作战哪个级别的代差 ...</blockquote>
+演习或者演练往往是有限定条件的
+
+不是所有的演戏都有空战自由对攻
+
+但F22格斗吊打F15全家是美国空军自己说的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
