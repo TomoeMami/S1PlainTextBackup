@@ -2241,3 +2241,39 @@ su35那不是航电太烂，配套的弹也太烂么
 而且，养鸡说过这个故事，打熟了以后重型 ...</blockquote>
 其实异形机对抗里J-10最大的劣势是挂载。金头盔的自由空战对抗里J-10两中两近实在不够用，这帮华夏超人硬拉过载甩两发中距弹跟喝水一样。J-10两发中距弹打出去毛都摸不着的情况太常见了，如果是打侧卫系MISS两发中距弹以后想靠两根格斗烧火棍追双发重歼着实是自讨没趣
 
+
+*****
+
+####  Tinkling4617  
+##### 186#       发表于 2025-10-3 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523964&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 19:41</a>
+少装点舅舅党有利于脑子进化
+
+相声组说625打不了无人机，野战防空被35炮淘汰要改去空军的时候有些人也当圣 ...</blockquote>
+人家真有舅舅，没消息源玩开源的也有点水平啊，j20没机炮不止一个大佬说过，萌虎鲸和张之洞都说过，我信他两也不可能信你。而且央视这个采访和你发的四铁都不是一个单位，这点核查能力都没有，当什么军迷啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 187#       发表于 2025-10-3 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523903&amp;ptid=2263560" target="_blank">prattwhitney 发表于 2025-10-3 20:25</a>
+
+有没有一种可能是J-20有机炮预留位但是最终没用上？这有什么好奇怪的吗？
+
+当初设计的时候预留了机炮安装位 ...</blockquote>
+预留口子这说法有点站不住脚。
+
+量产300架都不知道迭代多少批了。王海大队就说过，新批次跟旧批次就有明显战斗力差异。既然一线都觉得不需要机炮来狗斗，那为啥不优化掉？无论机务维护还是隐身性能，多了一口子始终是个说大不大说小不小的麻烦。更不要后来的A和S两个亚型。
+
+当然，非要扯到实战检验那我也接不下去了。
+
+*****
+
+####  星空天神  
+##### 188#       发表于 2025-10-3 20:46
+
+论坛的臭军迷就是毒瘤,也不看论坛关了多少次了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
