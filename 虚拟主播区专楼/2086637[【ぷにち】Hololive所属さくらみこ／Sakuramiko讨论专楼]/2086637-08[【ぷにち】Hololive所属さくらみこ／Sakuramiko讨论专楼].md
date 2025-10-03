@@ -581,3 +581,36 @@ loli！？
 
 2025-10-2 22:28 上传
 
+
+*****
+
+####  holofan  
+##### 11239#       发表于 2025-10-3 16:21
+
+昨天看外景拍任天堂乐园还有人在说是不是有工商了
+
+<img src="https://img.stage1st.com/forum/202510/03/162109lnxp5ftx2w113pn5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 16:21 上传
+
+*****
+
+####  holofan  
+##### 11240#       发表于 2025-10-3 17:27
+
+<img src="https://img.stage1st.com/forum/202510/03/172624jl11lvae286iimb8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 17:26 上传
+
+今晚的预定没有变，还是fbmicomet（+mio）的联动
+
+确实梦回2年前煤炉毕业当天
+
