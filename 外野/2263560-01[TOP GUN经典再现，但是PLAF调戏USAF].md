@@ -2299,3 +2299,86 @@ Fat Amy那水桶腰，跟侧卫系玩狗斗属实嫌命长了。
 航展展板胡说八道也不是一回两回了，J-10的航程在几次航展上的数据互相打架也是老笑话了 ...</blockquote>
 从08年J10首次参展第一次去珠海，再到去年去珠海，看着自己拍的照片里，快20年如一日地原地踏步射程290km的展牌。只能说负责航展展牌的宣传 口深得战忽局真传，能拿来奉若圭臬金口直断真是无话可说。
 
+
+*****
+
+####  CCauchy  
+##### 191#       发表于 2025-10-3 20:56
+
+就是硬黑，现在体系作战，都出到20s了还在这讨论机炮，它就是真有机炮我都觉得浪费税金
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ryanghj  
+##### 192#       发表于 2025-10-3 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523817&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 19:01</a>
+
+金头盔2020还是2022年以后就没有来了，最后几年全是j-16的貌似
+
+而且，养鸡说过这个故事，打熟了以后重型 ...</blockquote>
+只是单纯不报道了而已，金头盔不是没了
+
+*****
+
+####  第九协奏曲  
+##### 193#         楼主| 发表于 2025-10-3 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68524139&amp;ptid=2263560" target="_blank">Tinkling4617 发表于 2025-10-3 20:42</a>
+人家真有舅舅，没消息源玩开源的也有点水平啊，j20没机炮不止一个大佬说过，萌虎鲸和张之洞都说过，我信 ...</blockquote>
+你叫我一声军迷我还涨职级了呢<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Toby_dak  
+##### 194#       发表于 2025-10-3 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68524175&amp;ptid=2263560" target="_blank">CCauchy 发表于 2025-10-3 21:56</a>
+
+就是硬黑，现在体系作战，都出到20s了还在这讨论机炮，它就是真有机炮我都觉得浪费税金
+
+论坛助手,iPhone ...</blockquote>
+打个赌，南北六代肯定也有人讨论要不要机炮。
+
+
+*****
+
+####  stannislas  
+##### 195#       发表于 2025-10-3 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68524054&amp;ptid=2263560" target="_blank">LilyWhite 发表于 2025-10-3 20:13</a>
+
+其实异形机对抗里J-10最大的劣势是挂载。金头盔的自由空战对抗里J-10两中两近实在不够用，这帮华夏超人硬 ...</blockquote>
+那个，虽然但是啊。
+
+最后几届金头盔经常打的已经不止是2v2或者4v4了，经常是2v4，据说甚至打过4xj-16 vs 2xj-10c<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stannislas  
+##### 196#       发表于 2025-10-3 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68524178&amp;ptid=2263560" target="_blank">ryanghj 发表于 2025-10-3 20:56</a>
+
+只是单纯不报道了而已，金头盔不是没了</blockquote>
+金头盔和红箭合二为一了，
+
+21年？以前金头盔是只比空战。
+
+现在是红箭前几名全给金头盔
+
+*****
+
+####  1303312165  
+##### 197#       发表于 2025-10-3 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522636&amp;ptid=2263560" target="_blank">马甲20250922 发表于 2025-10-3 12:30</a>
+F35输给J16，再输下去就要输J10了……（范志毅脸）</blockquote>
+再输八爷没得输了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
