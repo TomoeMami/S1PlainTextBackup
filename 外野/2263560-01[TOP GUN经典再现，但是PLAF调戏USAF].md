@@ -2217,3 +2217,15 @@ su35那不是航电太烂，配套的弹也太烂么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  stmule  
+##### 184#       发表于 2025-10-3 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522966&amp;ptid=2263560" target="_blank">千钧棒一号 发表于 2025-10-3 14:15</a>
+要看飞行员水平的，再强的飞机你上个菜鸟开也不行</blockquote>
+亚赞：你开都不会开，谈什么性能<img src="https://static.stage1st.com/image/smiley/bundam2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
