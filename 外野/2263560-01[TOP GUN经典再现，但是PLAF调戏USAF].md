@@ -1249,3 +1249,38 @@ F-22好歹有打过的火焰痕迹，好歹在地面做过维护，j-20apu都出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  第九协奏曲  
+##### 114#         楼主| 发表于 2025-10-3 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523552&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 17:45</a>
+F-22好歹有打过的火焰痕迹，好歹在地面做过维护，j-20apu都出来过，烟痕和地面保养一次都没见过可能吗？
+
+ ...</blockquote>
+<img src="https://p.sda1.dev/27/c53ca9125f3509e8c8a1d7eb600d5f46/image.jpg" referrerpolicy="no-referrer">
+
+谁知道呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 115#         楼主| 发表于 2025-10-3 17:59
+
+<img src="https://p.sda1.dev/27/cd3747b781e275d4d265f3e2a0bcc03c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  dabao362  
+##### 116#       发表于 2025-10-3 18:05
+
+<blockquote>第九协奏曲 发表于 2025-10-3 17:59
+—— 来自 鹅球 v3.5.99</blockquote>
+后期型应该是取消了机炮，我看到这个位置，在之前央视报道的j20转场的报道里面是放行李和小备件的。
+
