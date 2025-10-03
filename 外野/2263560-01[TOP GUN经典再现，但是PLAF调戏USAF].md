@@ -797,3 +797,27 @@ j20也贴脸拍了，没看到过航炮口</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cube  
+##### 75#       发表于 2025-10-3 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523038&amp;ptid=2263560" target="_blank">naihs 发表于 2025-10-3 14:45</a>
+
+真的是f35吗？
+
+f35跟我们碰可不止一次吧，前一段j20不是也驱逐过</blockquote>
+是F22，去年的事，被拿出来报道是因为一锁二实在是太牛了。
+
+上面那个内部公开报道是多次驱离F35中的一次，锁定长机后对面僚机帮助长机脱离接触跑了。
+
+毕竟F22完蛋一架少一架，主力战机F35要是还不敢飞以后老美就彻底告别南海了。
+
+*****
+
+####  luguozmy  
+##### 76#       发表于 2025-10-3 15:12
+
+最后一张图有视频吗？
+

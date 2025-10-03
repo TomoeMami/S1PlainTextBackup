@@ -219,3 +219,12 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 但是平均700石一个真觉得恶心
 
+
+*****
+
+####  朝仓和美  
+##### 47484#       发表于 2025-10-3 15:16
+
+选了梅芙，太有性价比了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
