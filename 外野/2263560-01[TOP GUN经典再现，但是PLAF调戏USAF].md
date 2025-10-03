@@ -559,3 +559,17 @@ F35A的翼载偏高的
 
 f35的稳盘是f4那代的水平甚至不如
 
+
+*****
+
+####  第九协奏曲  
+##### 55#         楼主| 发表于 2025-10-3 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522851&amp;ptid=2263560" target="_blank">pzgr43 发表于 2025-10-3 13:37</a>
+但问题是空军型号的F35A推重比并不会比J16差啊，歼16不是歼11B，为了重载挂架大幅加强过机体（增重） ...</blockquote>
+J16的发动机推力也大
+
+类似F15E，其实推重比比F15C高
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
