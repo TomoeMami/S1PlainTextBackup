@@ -821,3 +821,56 @@ f35跟我们碰可不止一次吧，前一段j20不是也驱逐过</blockquote>
 
 最后一张图有视频吗？
 
+
+*****
+
+####  第九协奏曲  
+##### 77#         楼主| 发表于 2025-10-3 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523100&amp;ptid=2263560" target="_blank">luguozmy 发表于 2025-10-3 15:12</a>
+最后一张图有视频吗？</blockquote>
+那是《TOP GUN》里的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  乔伊  
+##### 78#       发表于 2025-10-3 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522602&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 12:19</a>
+F35A的敏捷性相对早期四代机其实很好的，虽然总的推重比一般，翼载也偏高。客观的说，洛马螺丝壳里做道场 ...</blockquote>
+F35除了短距起降的型号都挺好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Toby_dak  
+##### 79#       发表于 2025-10-3 15:22
+
+<blockquote>引用第15楼silversor于2025-10-03 12:11发表的  :
+
+军盲好奇，j16居然还那咬住f35吗？不是差一代机的水平吗</blockquote>
+Fat Amy那水桶腰，跟侧卫系玩狗斗属实嫌命长了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  第九协奏曲  
+##### 80#         楼主| 发表于 2025-10-3 15:23
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 15:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523131&amp;ptid=2263560" target="_blank">乔伊 发表于 2025-10-3 15:22</a>
+F35除了短距起降的型号都挺好的
+
+—— 来自 OPPO PKB110, Android 15, 鹅球 v3.5.99</blockquote>
+C型作为攻击机挺好的
+
+作为战斗机也有点难评
+
+作为用户的角度，其实B型才是最好的，毕竟美国海军陆战队之前用的是AV8，没吃过细糠
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
