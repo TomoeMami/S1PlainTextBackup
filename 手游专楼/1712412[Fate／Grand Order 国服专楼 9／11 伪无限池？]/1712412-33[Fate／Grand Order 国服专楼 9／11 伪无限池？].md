@@ -228,3 +228,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 选了梅芙，太有性价比了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47485#       发表于 2025-10-3 18:50
+
+用金钻头、梅莉和C呆磨过去了，TMD凯尼斯像疯狗一样追着梅莉打，其他人都没打几下，导致要用令咒回血
+

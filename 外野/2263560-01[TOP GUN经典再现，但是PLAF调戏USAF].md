@@ -1808,3 +1808,97 @@ NASA在你出生前就直播了登月
 NASA在你出生前就直播了登月</blockquote>
 哪次？来来来，包括你的航展，哪个航展？哪年？
 
+
+*****
+
+####  stannislas  
+##### 152#       发表于 2025-10-3 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523773&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:46</a>
+
+不一样
+
+NASA在你出生前就直播了登月</blockquote>
+啧啧啧，我还可以说直播是假的呢，绿幕拍的，对不对，youtube上一搜一大把，你想要啥版本都可以<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们机炮党是不是也要发展到那个地步啊？
+
+要官方公开否认一个不存在事情？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stannislas  
+##### 153#       发表于 2025-10-3 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523773&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:46</a>
+
+不一样
+
+NASA在你出生前就直播了登月</blockquote>
+你既然知道没说过，你叫官方否认一个不存在的事情不是在耍流氓？？？
+
+
+*****
+
+####  第九协奏曲  
+##### 154#         楼主| 发表于 2025-10-3 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523779&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:48</a>
+啧啧啧，我还可以说直播是假的呢，绿幕拍的，对不对，youtube上一搜一大把，你想要啥版本都可以
+
+你们机 ...</blockquote>
+你当然可以说NASA的直播的假的，那你怀疑的是NASA官方
+
+我可没说我怀疑中航官方
+
+中航官方如果有展板或者访谈里说J20没有机炮，那我肯定信啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  LilyWhite  
+##### 155#       发表于 2025-10-3 18:53
+
+<blockquote>cyberalogogo 发表于 2025-10-3 12:15
+艹，原来人类史上首次狗斗四代机锁定五代机成就是东大解锁的，之前法国超人用阵风锁定一次F22还吹得全网 ...</blockquote>
+按养鸡的说法，那架潜水F-35是在着舰时被老钟的J-11B锁了导致动作变形跳海里去了
+
+*****
+
+####  LilyWhite  
+##### 156#       发表于 2025-10-3 18:55
+
+<blockquote>龙骑士尹志平 发表于 2025-10-3 12:31
+j16在金头盔不是被j10c花式吊打吗，f35打不过j16阿三买了也打不过巴基的j10c了吧 ...</blockquote>
+不可能花式吊打，J-10A吊打J11A，然后J-11B找回场子，然后J-10C吊打J11B，然后J-16找回场子。这几年J-10C还是有金头盔的，但是J-16明显占上风
+
+*****
+
+####  Toby_dak  
+##### 157#       发表于 2025-10-3 18:55
+
+航展上的展板看看就行，宣传用的别全当真。不然一堆展板上最大射程290km的算什么呢？
+
+现在还在否认J20没机炮这事，大概跟沈黑抗拒发财31一机N吃那事是半斤八两。前阵子J20都在长春静态展示，网上一堆高清视频图片，哪怕能指出哪个疑似机炮盖子呢？
+
+军工组的养鸡高卓，我在新浪就已经关注了，他的观察力和爆料的确有一套。人家正经哈工航发科班出身，进观网后被邀请去毛子战车道参赛部队开96B，扈从主编上过16舰和51舰，光这些经历就比许多论坛大神高了不知道多少。去年南北六代出来前，养鸡就以访问六代机发动机总师的方式旁敲侧击爆料过。军工相声组在陆海二炮方面也许算战忽，但在航空口这块，养鸡在国内国外GTW眼中是闭源开源第一人了。
+
+这贴里上窜下跳自以为爆料的坛友就别回了，之前在J20专楼跳大神时候就已经塞抹布。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  stannislas  
+##### 158#       发表于 2025-10-3 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523789&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:52</a>
+
+你当然可以说NASA的直播的假的，那你怀疑的是NASA官方
+
+我可没说我怀疑中航官方</blockquote>
+笑死，你可真能杠，你叫官方否认一个不存在的东西，可以的...
+
+你咋不说官方也没否认过j-20带激光炮，核弹，超穿越引擎呢？
+
