@@ -612,3 +612,17 @@ J16升级过航电和机动。
 俄罗斯航空博主fightbomer说在叙利亚f22狗斗吊打苏35,这歼16难道机动性比苏35强？ ...</blockquote>
 要看飞行员水平的，再强的飞机你上个菜鸟开也不行
 
+
+*****
+
+####  第九协奏曲  
+##### 60#         楼主| 发表于 2025-10-3 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522961&amp;ptid=2263560" target="_blank">cube 发表于 2025-10-3 14:14</a>
+J16升级过航电和机动。
+
+但是假设那位博主说的是真的，SU-35狗斗被F22吊打说明SU-35飞行员菜. ...</blockquote>
+F15C、E全被F22吊打
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
