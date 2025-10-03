@@ -874,3 +874,28 @@ C型作为攻击机挺好的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗月杀人兔  
+##### 81#       发表于 2025-10-3 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522587&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 12:16</a>
+
+—— 来自 鹅球 v3.5.99</blockquote>
+又看了遍这图对不上啊，报道里是美僚机帮长机解围了，新闻里是两个被一起锁了，这是两个事件吧
+
+
+*****
+
+####  第九协奏曲  
+##### 82#         楼主| 发表于 2025-10-3 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523037&amp;ptid=2263560" target="_blank">鲁邦三世1 发表于 2025-10-3 14:45</a>
+不管信不信军工相声组养鸡说这次是歼16一挑二f22还有南海白板侧卫一枪挑落肥电导致肥电降落失败落水
+
+都不 ...</blockquote>
+什么时候陆军的625全退了我就信相声组不讲相声
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
