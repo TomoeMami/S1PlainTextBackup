@@ -201,3 +201,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 等牢茜UP再抽一波， 然后明年抽所长<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FrozenA  
+##### 47482#       发表于 2025-10-3 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">直接选仇尼托了，有机会入手真是太好了
+
