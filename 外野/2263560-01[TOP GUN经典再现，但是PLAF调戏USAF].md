@@ -981,3 +981,78 @@ F35除了短距起降的型号都挺好的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  stanzgy  
+##### 91#       发表于 2025-10-3 16:19
+
+有人做动画还原下现场吗
+
+*****
+
+####  发呆的龙虾  
+##### 92#       发表于 2025-10-3 16:20
+
+F35项目基本算成功的，没必要因为现在比不过强敌而贬低。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ggggggssss  
+##### 93#       发表于 2025-10-3 16:21
+
+<blockquote>仓岛千百合 发表于 2025-10-3 14:26
+科普下0：4是超视距项目 狗斗项目我们是嬴的。
+
+J11A=国产su27 打不了主动弹，超视距吃大亏。 ...</blockquote>
+还是能打R77的
+
+
+*****
+
+####  第九协奏曲  
+##### 94#         楼主| 发表于 2025-10-3 16:22
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 16:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523292&amp;ptid=2263560" target="_blank">ggggggssss 发表于 2025-10-3 16:21</a>
+还是能打R77的</blockquote>
+27SK不能打，只能打R27
+
+R77是跟30MKK引进的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ggggggssss  
+##### 95#       发表于 2025-10-3 16:23
+
+<blockquote>第九协奏曲 发表于 2025-10-3 12:16
+—— 来自 鹅球 v3.5.99</blockquote>
+不是新闻的这次，你看新闻里的机号，雾都雄鹰的人。如果按照描述只碰见一次的话，大概率是F22了。
+
+*****
+
+####  sellboy  
+##### 96#       发表于 2025-10-3 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523276&amp;ptid=2263560" target="_blank">bankofsoul 发表于 2025-10-3 16:14</a>
+
+所以我这种纯看热点视频获取相关信息的军盲越发不理解这三型飞迹为啥要烩一锅里…捞钱也不是这个捞法吧。 ...</blockquote>
+结果论，F35已经是美军新世纪最成功项目。
+
+*****
+
+####  ggggggssss  
+##### 97#       发表于 2025-10-3 16:26
+
+<blockquote>第九协奏曲 发表于 2025-10-3 16:22
+27SK不能打，只能打R27
+
+R77是跟30MK引进的</blockquote>
+那次去泰国J11A确实可以打
+
+传奇白俄罗斯大技霸催眠N001倒卡雷达，飞行员手掐秒表，把R77当成R27ER打
+
