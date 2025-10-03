@@ -1382,3 +1382,97 @@ F-22好歹有打过的火焰痕迹，好歹在地面做过维护，j-20apu都出
 我这也是真机啊</blockquote>
 最关键，你有见过哪家飞机打过机炮，一次痕迹都没有的
 
+
+*****
+
+####  第九协奏曲  
+##### 124#         楼主| 发表于 2025-10-3 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523656&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:13</a>
+兄弟，你怎么证明这不是一个正常的开口，还有左边那个怎么就不是APU或者散热开口。
+
+还有，你模型上有个 ...</blockquote>
+如果是F22那样的盖板
+
+根本就不会有凸起
+
+你不能否认这个位置存在一个设备仓开口
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  stannislas  
+##### 125#       发表于 2025-10-3 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523650&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:11</a>
+
+我这也是真机啊</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/03/181658hlexexlkxjy2i0nl.jpg" referrerpolicy="no-referrer">
+
+<strong>2Qr8YrA.jpg</strong> (294.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-3 18:16 上传
+
+EPU/APU 排气孔
+
+*****
+
+####  爱撕衣魔刃  
+##### 126#       发表于 2025-10-3 18:18
+
+10C对阵16/11B这类双发大肉<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+第一次对头交汇后，
+
+肯定是我先指你啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第九协奏曲  
+##### 127#         楼主| 发表于 2025-10-3 18:19
+
+ 本帖最后由 第九协奏曲 于 2025-10-3 18:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523662&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:14</a>
+最关键，你有见过哪家飞机打过机炮，一次痕迹都没有的</blockquote>
+<img src="https://p.sda1.dev/27/2f28dd12f9a077201e19bcce6af5f85d/image.jpg" referrerpolicy="no-referrer">
+
+没有痕迹的F22也多了去了
+
+不同于美军的F22海外部署，大量日常维护照片外流
+
+今年地面展示之前，J20所有的照片、视频，都是阿sir想给你看的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 128#         楼主| 发表于 2025-10-3 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523674&amp;ptid=2263560" target="_blank">stannislas 发表于 2025-10-3 18:18</a>
+EPU/APU 排气孔</blockquote>
+<img src="https://p.sda1.dev/27/bfb08452f30e3396b5551aa5d36ea4b6/image.jpg" referrerpolicy="no-referrer">
+
+这个肯定不是排气孔
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  stannislas  
+##### 129#       发表于 2025-10-3 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523667&amp;ptid=2263560" target="_blank">第九协奏曲 发表于 2025-10-3 18:16</a>
+
+如果是F22那样的盖板
+
+根本就不会有凸起</blockquote>
+<img src="https://i.imgur.com/sjlM8vz.jpeg" referrerpolicy="no-referrer">
+
+设备舱口有可能，可是又不是机炮，f-22开完炮机体是有焰痕的，j-20有见过一次吗？
+
