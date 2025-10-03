@@ -573,3 +573,42 @@ J16的发动机推力也大
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Theseus  
+##### 56#       发表于 2025-10-3 14:08
+
+16虐22虽然不可思议，但还能理解。
+
+之前开su27sk那位才是神中神，间接击落2架。对手心态都崩了。
+
+
+*****
+
+####  科本学士  
+##### 57#       发表于 2025-10-3 14:12
+
+俄罗斯航空博主fightbomer说在叙利亚f22狗斗吊打苏35,这歼16难道机动性比苏35强？
+
+*****
+
+####  cube  
+##### 58#       发表于 2025-10-3 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522956&amp;ptid=2263560" target="_blank">科本学士 发表于 2025-10-3 14:12</a>
+
+俄罗斯航空博主fightbomer说在叙利亚f22狗斗吊打苏35,这歼16难道机动性比苏35强？ ...</blockquote>
+J16升级过航电和机动。
+
+但是假设那位博主说的是真的，SU-35狗斗被F22吊打说明SU-35飞行员菜.
+
+*****
+
+####  千钧棒一号  
+##### 59#       发表于 2025-10-3 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522956&amp;ptid=2263560" target="_blank">科本学士 发表于 2025-10-3 14:12</a>
+俄罗斯航空博主fightbomer说在叙利亚f22狗斗吊打苏35,这歼16难道机动性比苏35强？ ...</blockquote>
+要看飞行员水平的，再强的飞机你上个菜鸟开也不行
+
