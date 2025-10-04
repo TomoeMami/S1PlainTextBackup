@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 18612,
+    "totalreply": 18614,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1759568047,
+    "lastedit": 1759571168,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 195085,
+    "totalreply": 195087,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1759570569,
+    "lastedit": 1759571287,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11943,10 +11943,10 @@
     "update": false
   },
   "2100506": {
-    "totalreply": 1081,
+    "totalreply": 1082,
     "title": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
     "newtitle": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
-    "lastedit": 1759568290,
+    "lastedit": 1759571046,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2246062": {
-    "totalreply": 290,
+    "totalreply": 291,
     "title": "[数码宝贝物语 时空异客发布，2025／10／3发售，ps5／xs／pc]",
     "newtitle": "[数码宝贝物语 时空异客发布，2025／10／3发售，ps5／xs／pc，demo9.11上线]",
-    "lastedit": 1759570092,
+    "lastedit": 1759570928,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12488,7 +12488,7 @@
     "newtitle": "[（血腥NSFW）美国保守派网红查理·柯克（Charlie Kirk）遭枪击身亡]",
     "lastedit": 1759311496,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2261695": {
@@ -16133,7 +16133,7 @@
     "newtitle": "[过了十多年了 无限恐怖代表的无限流似乎已经退潮 杀戮都市影响力反而越来越大]",
     "lastedit": 1759311499,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263347": {
@@ -16254,10 +16254,10 @@
     "update": false
   },
   "2263388": {
-    "totalreply": 269,
+    "totalreply": 270,
     "title": "[为什么麻辣仙人越斗争地盘越小？]",
     "newtitle": "[为什么麻辣仙人越斗争地盘越小？]",
-    "lastedit": 1759564330,
+    "lastedit": 1759571288,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -16704,10 +16704,10 @@
     "update": false
   },
   "2263425": {
-    "totalreply": 54,
+    "totalreply": 56,
     "title": "[2025年10月网文推荐交流互助楼]",
     "newtitle": "[2025年10月网文推荐交流互助楼]",
-    "lastedit": 1759563014,
+    "lastedit": 1759570929,
     "category": "外野",
     "active": true,
     "update": false
@@ -16902,10 +16902,10 @@
     "update": false
   },
   "2263615": {
-    "totalreply": 272,
+    "totalreply": 273,
     "title": "[今天揭晓谁是日本下一任首相]",
     "newtitle": "[超搞笑级的乐子——高市早苗将成为新任日本首相！]",
-    "lastedit": 1759570332,
+    "lastedit": 1759571169,
     "category": "外野",
     "active": true,
     "update": false
@@ -16961,6 +16961,15 @@
     "newtitle": "[朋友的妹妹只喜欢烦我 TV动画化]",
     "lastedit": 1759569977,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2263635": {
+    "totalreply": 41,
+    "title": "[高市早苗当选日本自民党总裁]",
+    "newtitle": "[高市早苗当选日本自民党总裁]",
+    "lastedit": 1759570808,
+    "category": "外野",
     "active": true,
     "update": false
   }
