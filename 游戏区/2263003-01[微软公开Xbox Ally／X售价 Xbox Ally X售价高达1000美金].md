@@ -703,3 +703,11 @@ rog这台是带着npu的AI z2e……贵是必然的
 pdd刷到港版，x卖8k，无印5k
 你妈5k的z2a谁会买啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  XxXr  
+##### 64#       发表于 2025-10-4 15:30
+
+Quick resume是基于xbox系统运行游戏的虚拟机快照的吧?普通Windows系统不可能有的，除非MS想做真xbox handheld。
+
