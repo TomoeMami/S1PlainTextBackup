@@ -2789,3 +2789,13 @@ R77是跟30MKK引进的</blockquote>
 
 西大进度最快的反隐雷达就rtx的ltamds了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 232#       发表于 2025-10-4 11:59
+
+有没有一种可能，就连服役的第一批j20都没机炮，试飞版的机炮是用来验证机炮不行的，毕竟不可能只靠嘴来否定这个设计传统吧。拿着几个疑似机炮的“证据”来论证机炮的存在，简直就是在质疑j20的设计思路，就好像盼着空军走弯路一样。只有没有机炮的j20才是完美的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
