@@ -2595,3 +2595,14 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  IMINN  
+##### 218#       发表于 2025-10-4 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525251&amp;ptid=2263560" target="_blank">天涯墨客 发表于 2025-10-4 08:46</a>
+
+为什么这个楼里有个弱智专注歪楼，之前也是忘记哪个帖子了，这弱智一个破交战直接带歪，这次又来J20带不带 ...</blockquote>
+还哪个帖子，那位仁兄可是真十年如一日，没变过。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
