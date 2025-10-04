@@ -6143,3 +6143,22 @@ sd武者高达在专用机关一定要用到
 命运脉冲在种系列关是免费mvp，放自由队 ...</blockquote>
 OK，谢谢
 
+
+*****
+
+####  rockroxas  
+##### 2836#       发表于 2025-10-4 20:01
+
+<blockquote>saber2000 发表于 2025-10-4 19:51
+OK，谢谢</blockquote>
+哦对了，武者高达记得是自带三动ssr机师来着，而且sd高达词条机缺口大，想了下优先度好像还算高的
+
+不过都刷体力感觉就不太够了，有闲心可以无限打当期挑战1凑次数，不花体力
+
+*****
+
+####  螺旋的小夜曲  
+##### 2837#       发表于 2025-10-4 20:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">SSP什么时候开啊？
+
