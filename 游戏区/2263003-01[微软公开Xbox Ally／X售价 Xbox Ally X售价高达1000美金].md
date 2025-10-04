@@ -749,3 +749,17 @@ z2e国行预售不是6499吗？
 —— 来自 Xiaomi M2012K11AC, Android 13, 鹅球 v3.5.99</blockquote>
 上一代耍了半年猴，估计这次也差不多。在想不如冲微星a8 下车算了，反正系统都能用
 
+
+*****
+
+####  tillnight  
+##### 68#       发表于 2025-10-4 23:42
+
+ 本帖最后由 tillnight 于 2025-10-4 23:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68509806&amp;ptid=2263003" target="_blank">大暴死 发表于 2025-9-30 10:56</a>
+
+24g ram中小型游戏后台放两三个ok啦，你说quick不quick肯定quick啊
+
+—— 来自 Xiaomi 25019PNF3C, Andro ...</blockquote>
+事实是根本不会有。系统遮遮掩掩倒是KOL反复在YY什么快速恢复，然后认真一看99%连什么是快速恢复什么是待机模式都没分清楚，比如上面吹的什么二柄的啥玩意在tgs试了（太高级了，试了展示机说的好像拿了华硕评测邀请函一样），结果在视频里展示了一下windows的多窗口切换，指着这说你看有quick resume，被弹幕喷你这连睡眠模式都不是，下面还有人洗地说展示机都连着充电线所以测不了睡眠（那您这商稿都不好好念自由发挥yy个什么快速恢复）。从目前的情报看，YY Quick Resume的不知道是什么人，反正现在看极大概率这所谓的定制系统连真正必须但WIN掌机从来做不好（原生）的待机/唤醒都没什么改进。你问能不能待，怎么不能，win系统理论上本来就能低功耗睡眠，但是会不会睡死，您就赌赌看吧。<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
