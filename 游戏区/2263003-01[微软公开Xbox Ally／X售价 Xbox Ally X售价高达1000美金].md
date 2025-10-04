@@ -725,3 +725,15 @@ z2e国行预售不是6499吗？
 
 —— 来自 Xiaomi M2012K11AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cosx  
+##### 66#       发表于 2025-10-4 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68508778&amp;ptid=2263003" target="_blank">zid99825 发表于 2025-9-30 08:19</a>
+rog这台是带着npu的AI z2e……贵是必然的
+
+论坛助手,iPhone</blockquote>
+我记得z2e就是阉割了npu的hx370，还是我记错了
+
