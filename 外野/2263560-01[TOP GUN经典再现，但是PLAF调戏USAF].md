@@ -2849,3 +2849,24 @@ R77是跟30MKK引进的</blockquote>
 还是思路问题
 全能=全不能<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stannislas  
+##### 237#       发表于 2025-10-4 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525100&amp;ptid=2263560" target="_blank">太极八爪鱼 发表于 2025-10-4 06:14</a>
+
+我记得有一张黄皮20鸭翼旁边机身被锯齿状黑色圈了一块的图，不过具体是啥想不起来了。得找找 ...</blockquote>
+那种黑色胶条作为软质密封,量产机上也一堆
+
+*****
+
+####  stannislas  
+##### 238#       发表于 2025-10-4 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525860&amp;ptid=2263560" target="_blank">CCauchy 发表于 2025-10-4 11:59</a>
+
+有没有一种可能，就连服役的第一批j20都没机炮，试飞版的机炮是用来验证机炮不行的，毕竟不可能只靠嘴来否 ...</blockquote>
+杨伟说的，你狗斗你**，他作为设计师不比你懂？
+
