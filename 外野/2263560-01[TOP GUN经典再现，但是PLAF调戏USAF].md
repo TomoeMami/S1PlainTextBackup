@@ -2769,3 +2769,15 @@ R77是跟30MKK引进的</blockquote>
 
  别人P的  脑补一下吧
 
+
+*****
+
+####  Unlight  
+##### 230#       发表于 2025-10-4 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68523548&amp;ptid=2263560" target="_blank">bankofsoul 发表于 2025-10-3 17:44</a>
+那确实。之前下饭时候看的布克项目分析视频，有位老哥评论“我们部门开发一款飞机杯都不会搞成这样”。 ...</blockquote>
+布克好就好在它被砍了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
