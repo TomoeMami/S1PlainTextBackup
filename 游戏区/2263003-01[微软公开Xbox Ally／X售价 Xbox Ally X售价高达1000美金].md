@@ -711,3 +711,17 @@ pdd刷到港版，x卖8k，无印5k
 
 Quick resume是基于xbox系统运行游戏的虚拟机快照的吧?普通Windows系统不可能有的，除非MS想做真xbox handheld。
 
+
+*****
+
+####  lwj8507  
+##### 65#       发表于 2025-10-4 22:01
+
+ 本帖最后由 lwj8507 于 2025-10-4 22:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68517112&amp;ptid=2263003" target="_blank">Herreimu 发表于 2025-10-1 19:40</a>
+pdd刷到港版，x卖8k，无印5k
+你妈5k的z2a谁会买啊</blockquote>
+z2e国行预售不是6499吗？
+
+—— 来自 Xiaomi M2012K11AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
