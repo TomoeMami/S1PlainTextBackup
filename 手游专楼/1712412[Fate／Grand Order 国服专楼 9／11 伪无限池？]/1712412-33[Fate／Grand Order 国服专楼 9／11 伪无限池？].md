@@ -252,3 +252,14 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 拐都齐，是太空望补2宝还是北半球冲3宝比较适合后面的戴冠环境？
 
+
+*****
+
+####  qixinno2  
+##### 47488#       发表于 2025-10-4 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68527665&amp;ptid=1712412" target="_blank">GALLADE 发表于 2025-10-4 20:40</a>
+
+拐都齐，是太空望补2宝还是北半球冲3宝比较适合后面的戴冠环境？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选喜欢的 压力给到好友就行 毕竟国服助战比日服好用的多
+
