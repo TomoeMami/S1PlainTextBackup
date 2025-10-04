@@ -2585,3 +2585,13 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  天涯墨客  
+##### 217#       发表于 2025-10-4 08:46
+
+为什么这个楼里有个弱智专注歪楼，之前也是忘记哪个帖子了，这弱智一个破交战直接带歪，这次又来J20带不带机炮
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
