@@ -99,3 +99,22 @@ boss是arl吗</blockquote>
 
 所以最终boss应该是发明负乐队粒子害了她的杮本和木谷
 
+
+*****
+
+####  堀内爱里衣  
+##### 27286#       发表于 2025-10-4 23:50
+
+      <img src="https://img.stage1st.com/forum/202510/04/234859j96oaxeixdgtexiv.jpg" referrerpolicy="no-referrer">
+
+      [https://weibo.com/7755164033/Q7xlncu6c](https://weibo.com/7755164033/Q7xlncu6c)
+
+*****
+
+####  堀内爱里衣  
+##### 27287#       发表于 2025-10-4 23:50
+
+       <img src="https://img.stage1st.com/forum/202510/04/234951jo3d55qrg22lttfp.jpg" referrerpolicy="no-referrer">
+
+       [https://weibo.com/7755164033/Q7Aufihz8](https://weibo.com/7755164033/Q7Aufihz8)
+
