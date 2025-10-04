@@ -2799,3 +2799,15 @@ R77是跟30MKK引进的</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  第九协奏曲  
+##### 233#         楼主| 发表于 2025-10-4 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525765&amp;ptid=2263560" target="_blank">pushare 发表于 2025-10-4 11:33</a>
+西大进度最快的反隐雷达就rtx的ltamds了</blockquote>
+美国陆军的东西就算能用也飞不到天上啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
