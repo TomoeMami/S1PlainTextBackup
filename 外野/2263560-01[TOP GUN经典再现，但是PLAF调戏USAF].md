@@ -2811,3 +2811,13 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  油条小贩  
+##### 234#       发表于 2025-10-4 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525565&amp;ptid=2263560" target="_blank">RPG-7 发表于 2025-10-4 10:29</a>
+别人P的  脑补一下吧</blockquote>
+好像macross里面见过类似的
+
