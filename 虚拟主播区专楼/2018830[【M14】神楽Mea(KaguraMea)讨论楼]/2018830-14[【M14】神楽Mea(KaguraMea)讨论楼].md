@@ -16951,3 +16951,11 @@ A酱。还有けど先生，“太阳用英语说”。
 --------------------------------------------
 这次歌回唱了hello world啊，一直想听但是都没怎么听到的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 19653#       发表于 2025-10-4 19:32
+
+这首以前超喜欢的
+
