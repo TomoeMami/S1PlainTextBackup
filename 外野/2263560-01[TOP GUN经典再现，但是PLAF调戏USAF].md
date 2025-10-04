@@ -2753,3 +2753,19 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  RPG-7  
+##### 229#       发表于 2025-10-4 10:29
+
+<img src="https://img.stage1st.com/forum/202510/04/102909jpy666p7oyyro847.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-4 10:29 上传
+
+ 别人P的  脑补一下吧
+
