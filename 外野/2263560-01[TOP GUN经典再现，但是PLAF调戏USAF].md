@@ -2838,3 +2838,14 @@ R77是跟30MKK引进的</blockquote>
 
 现在的问题是那个机炮预留空间，也就是蒙皮下面框架里面现在是拿来做什么了，装其他的设备，额外装了个油箱，或者直接空在那里。如果是直接空在那里还预留接口的话，搞不好还有一本手册专门写如果要装机炮应该怎么执行。
 
+
+*****
+
+####  春哥亲自  
+##### 236#       发表于 2025-10-4 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68522569&amp;ptid=2263560" target="_blank">silversor 发表于 2025-10-3 12:11</a>
+军盲好奇，j16居然还那咬住f35吗？不是差一代机的水平吗</blockquote>
+还是思路问题
+全能=全不能<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
