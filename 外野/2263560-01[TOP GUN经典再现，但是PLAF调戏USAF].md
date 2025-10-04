@@ -2688,3 +2688,68 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  第九协奏曲  
+##### 225#         楼主| 发表于 2025-10-4 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525330&amp;ptid=2263560" target="_blank">千钧棒一号 发表于 2025-10-4 09:22</a>
+不是
+
+中国很容易破美军战斗机的雷达隐身，反之不亦然</blockquote>
+美军最新的预警机也是11年前的东西
+
+雷达技术是200X年的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Toby_dak  
+##### 226#       发表于 2025-10-4 10:10
+
+ 本帖最后由 Toby_dak 于 2025-10-4 11:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525163&amp;ptid=2263560" target="_blank">yigua 发表于 2025-10-4 08:43</a>
+
+看到过几张照片，国内的11A挂R77，应该是2000年之后改进过，毕竟破解Su30火控适配PL12都能做到，破解J11 ...</blockquote>
+<img src="https://p.sda1.dev/27/1fdbd4dc17071ac40b23f72b4d45ccc4/2.jpg.285303ca285c2320d1655f1288e72885.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/0e61195bbf47abaf453115ee7a0c2ec8/b72ddc24ed33fe3561286bec7075ff95a2760426.jpeg" referrerpolicy="no-referrer">
+
+空军发布的，机腹下面矩形弹翼的总不能说P图吧。
+
+*****
+
+####  第九协奏曲  
+##### 227#         楼主| 发表于 2025-10-4 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525330&amp;ptid=2263560" target="_blank">千钧棒一号 发表于 2025-10-4 09:22</a>
+不是
+
+中国很容易破美军战斗机的雷达隐身，反之不亦然</blockquote>
+美军最新的E2D也是11年前的东西
+
+雷达技术是200X年的
+
+公司实验室里或许
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  第九协奏曲  
+##### 228#         楼主| 发表于 2025-10-4 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525330&amp;ptid=2263560" target="_blank">千钧棒一号 发表于 2025-10-4 09:22</a>
+不是
+
+中国很容易破美军战斗机的雷达隐身，反之不亦然</blockquote>
+美军最新的E2D也是11年前的东西
+
+雷达技术是200X年的
+
+雷神公司实验室里或许些东西
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
