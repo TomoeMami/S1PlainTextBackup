@@ -244,3 +244,11 @@ DB池子可能和我真的八字不合，100抽了一个金卡从者都没有就
 
 2宝土方打了300多W，可惜冠位战不能上陈宫，否则就没汇呆什么事了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GALLADE  
+##### 47487#       发表于 2025-10-4 20:40
+
+拐都齐，是太空望补2宝还是北半球冲3宝比较适合后面的戴冠环境？
+
