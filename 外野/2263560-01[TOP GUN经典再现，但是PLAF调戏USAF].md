@@ -2606,3 +2606,35 @@ R77是跟30MKK引进的</blockquote>
 为什么这个楼里有个弱智专注歪楼，之前也是忘记哪个帖子了，这弱智一个破交战直接带歪，这次又来J20带不带 ...</blockquote>
 还哪个帖子，那位仁兄可是真十年如一日，没变过。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第九协奏曲  
+##### 219#         楼主| 发表于 2025-10-4 09:20
+
+ 本帖最后由 第九协奏曲 于 2025-10-4 09:24 编辑 
+
+真好笑，那帖子我贴个美军测试快沉JDAM，有人问干啥的，那说句炸商船的有什么问题？ 非要说炸船没用的又不是我<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+有些ID自己在那回复的时候就不叫歪楼
+
+当时没喷过现在出来搞团建了，真带种<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  千钧棒一号  
+##### 220#       发表于 2025-10-4 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68524943&amp;ptid=2263560" target="_blank">cmdycj0732 发表于 2025-10-4 01:16</a>
+
+单纯隐身很容易被雷达破掉，正常五代机是隐身和超音速机动结合，但F-35的超音速机动是残疾的
+
+—— 来自  ...</blockquote>
+不是
+
+中国很容易破美军战斗机的雷达隐身，反之不亦然
+
+因为中国在反隐身技术上的工作远超美国
+

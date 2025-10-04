@@ -86,7 +86,7 @@
     "newtitle": "[转型2022小黄油砖楼+21个人GOTY]",
     "lastedit": 1759281733,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2041774": {
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 18610,
+    "totalreply": 18611,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1759540568,
+    "lastedit": 1759540933,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 195051,
+    "totalreply": 195053,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1759539848,
+    "lastedit": 1759541287,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9846,10 +9846,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 13545,
+    "totalreply": 13547,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1759540447,
+    "lastedit": 1759541172,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -13014,10 +13014,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 4783,
+    "totalreply": 4785,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1759540329,
+    "lastedit": 1759540933,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13055,15 +13055,6 @@
     "newtitle": "[Rog／Xbox发布ROG Xbox Ally(Z2 A)｜Ally X(Z2 E)]",
     "lastedit": 1759056616,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2262306": {
-    "totalreply": 107,
-    "title": "[华子官宣昇腾950，2026Q1上市，搭配自研HBM]",
-    "newtitle": "[华子官宣昇腾950，2026Q1上市，搭配自研HBM]",
-    "lastedit": 1758331091,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16839,10 +16830,10 @@
     "update": false
   },
   "2263560": {
-    "totalreply": 218,
+    "totalreply": 220,
     "title": "[TOP GUN经典再现，但是PLAF调戏USAF]",
     "newtitle": "[TOP GUN经典再现，但是PLAF调戏USAF]",
-    "lastedit": 1759540569,
+    "lastedit": 1759541172,
     "category": "外野",
     "active": true,
     "update": false
@@ -16857,10 +16848,10 @@
     "update": false
   },
   "2263530": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[以色列拦截全球苏穆德船队队并拘留包括格蕾塔·通贝里在内的活动人士]",
     "newtitle": "[以色列拦截全球苏穆德船队队并拘留包括格蕾塔·通贝里在内的活动人士]",
-    "lastedit": 1759539613,
+    "lastedit": 1759541170,
     "category": "外野",
     "active": true,
     "update": false
@@ -17006,6 +16997,15 @@
     "newtitle": "[75万公务员近7年的工作文件全部丢失]",
     "lastedit": 1759538048,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1857594": {
+    "totalreply": 140,
+    "title": "[塔希里亚魔法编年史～《法杖》最终章～第2部完结～～～]",
+    "newtitle": "[塔希里亚魔法编年史～《法杖》最终章～第2部完结～～～]",
+    "lastedit": 1759540936,
+    "category": "漫区",
     "active": true,
     "update": false
   }
