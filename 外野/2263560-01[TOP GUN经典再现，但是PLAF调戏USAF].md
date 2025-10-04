@@ -2575,3 +2575,13 @@ R77是跟30MKK引进的</blockquote>
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  yigua  
+##### 216#       发表于 2025-10-4 08:09
+
+看过大几百张长春开放日J20高清照片，看到过舱盖上飞虫印子，机背奇怪补丁，甚至分析了机翼挂点在啥时候看不到啥时候勉强能辨认，但是确实没有看到机炮射击口盖板
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
