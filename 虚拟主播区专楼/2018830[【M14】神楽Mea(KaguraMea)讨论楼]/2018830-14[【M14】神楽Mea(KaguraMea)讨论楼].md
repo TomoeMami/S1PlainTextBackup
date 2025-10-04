@@ -16975,3 +16975,13 @@ A酱。还有けど先生，“太阳用英语说”。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shmilyhua  
+##### 19656#       发表于 2025-10-5 06:03
+
+想着把23年+更早的联动直播录像也都传到B上，结果发现硬盘问题导致23年6-9月的多数存档都🈚了，目前绝赞崩溃中…
+
+—— 来自 Google Pixel 8 Pro, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
