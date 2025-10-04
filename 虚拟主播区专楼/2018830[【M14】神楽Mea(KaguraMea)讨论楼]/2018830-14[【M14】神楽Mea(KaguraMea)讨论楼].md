@@ -16967,3 +16967,11 @@ A酱。还有けど先生，“太阳用英语说”。
 
 好几首老歌
 
+
+*****
+
+####  GRMeA104  
+##### 19655#       发表于 2025-10-4 22:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

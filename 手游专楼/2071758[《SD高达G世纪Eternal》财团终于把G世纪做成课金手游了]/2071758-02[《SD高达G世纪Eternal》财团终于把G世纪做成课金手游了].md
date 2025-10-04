@@ -6188,3 +6188,13 @@ SSP冬天，大概是1月和过年活动一起上线吧
 
 用tierlists导入模版然后录屏拖动就行，加一点评语，直接就出炉一个视频
 
+
+*****
+
+####  一个陆仁贾  
+##### 2841#       发表于 2025-10-4 22:19
+
+400ap砸下去一个恶魔高达的技术书没出<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
