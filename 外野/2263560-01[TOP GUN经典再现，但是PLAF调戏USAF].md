@@ -2663,3 +2663,28 @@ R77是跟30MKK引进的</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么扯这么远,和上次破交战那次好像啊
 
+
+*****
+
+####  liliaceae  
+##### 223#       发表于 2025-10-4 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525385&amp;ptid=2263560" target="_blank">Toby_dak 发表于 2025-10-4 09:42</a>
+什么十年如一日，外野J20专楼就已经上下跳。想想都多久事，早塞早省心
+
+刚好官方出J20首飞视频了。</blockquote>
+养鸡确实说过一个机炮，还是转管的。不过现在pl15大杀四方，后继型号都有了，现在在机炮有啥用位置的是pl10了吧。
+
+*****
+
+####  第九协奏曲  
+##### 224#         楼主| 发表于 2025-10-4 10:02
+
+我好像没说S型有机炮吧
+
+某个ID党扭曲别人观点同伐异扣帽子15年不变
+
+“跳大神”这话是我当年嘲讽什么可调DSI，不是Al31的信舅舅党的，现在倒打一耙了，阴湿<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
