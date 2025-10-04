@@ -737,3 +737,15 @@ rog这台是带着npu的AI z2e……贵是必然的
 论坛助手,iPhone</blockquote>
 我记得z2e就是阉割了npu的hx370，还是我记错了
 
+
+*****
+
+####  startraveller  
+##### 67#       发表于 2025-10-4 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68527980&amp;ptid=2263003" target="_blank">lwj8507 发表于 2025-10-4 22:01</a>
+z2e国行预售不是6499吗？
+
+—— 来自 Xiaomi M2012K11AC, Android 13, 鹅球 v3.5.99</blockquote>
+上一代耍了半年猴，估计这次也差不多。在想不如冲微星a8 下车算了，反正系统都能用
+
