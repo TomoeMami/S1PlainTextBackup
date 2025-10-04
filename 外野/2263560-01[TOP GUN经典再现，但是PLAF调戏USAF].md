@@ -2655,3 +2655,11 @@ R77是跟30MKK引进的</blockquote>
 
 原型J20有机炮，甚至实施射击测试那不奇怪。但现在S型明说了指挥无人机作战，无人僚机和无人制空战斗机都上长安街了，还纠结机炮狗斗。怕不是Macross Plus的VF-21打Ghost看上脑了。
 
+
+*****
+
+####  nexus1  
+##### 222#       发表于 2025-10-4 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么扯这么远,和上次破交战那次好像啊
+
