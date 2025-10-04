@@ -2638,3 +2638,20 @@ R77是跟30MKK引进的</blockquote>
 
 因为中国在反隐身技术上的工作远超美国
 
+
+*****
+
+####  Toby_dak  
+##### 221#       发表于 2025-10-4 09:42
+
+ 本帖最后由 Toby_dak 于 2025-10-4 10:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68525301&amp;ptid=2263560" target="_blank">IMINN 发表于 2025-10-4 10:11</a>
+
+还哪个帖子，那位仁兄可是真十年如一日，没变过。</blockquote>
+什么十年如一日，外野J20专楼就已经上下跳。想想都多久事，早塞早省心<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+刚好官方出J20首飞视频了。
+[https://www.bilibili.com/video/BV1gmH5zPE6m](https://www.bilibili.com/video/BV1gmH5zPE6m)
+
+原型J20有机炮，甚至实施射击测试那不奇怪。但现在S型明说了指挥无人机作战，无人僚机和无人制空战斗机都上长安街了，还纠结机炮狗斗。怕不是Macross Plus的VF-21打Ghost看上脑了。
+
