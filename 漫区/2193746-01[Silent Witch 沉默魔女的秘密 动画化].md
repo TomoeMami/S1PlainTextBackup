@@ -32,3 +32,23 @@
 
 万圣节的气氛做得不错，美术功底很好，话说王子既然对魔法也是感兴趣的，他不知道莫妮卡要买的书的作者身份吗？
 
+
+*****
+
+####  tiro_finale  
+##### 284#       发表于 2025-10-5 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68529044&amp;ptid=2193746" target="_blank">aptx8285144 发表于 2025-10-5 10:11</a>
+
+万圣节的气氛做得不错，美术功底很好，话说王子既然对魔法也是感兴趣的，他不知道莫妮卡要买的书的作者身份 ...</blockquote>
+莫妮卡老爸的书和王子感兴趣的领域差异非常大，差不多都跨学科了，不知道很正常
+
+*****
+
+####  Tehebe  
+##### 285#       发表于 2025-10-5 12:41
+
+最后一集制作还是挺好看的，给爽到了
+
+—— 来自 OnePlus CPH2649, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
