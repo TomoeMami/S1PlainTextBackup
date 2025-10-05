@@ -86,3 +86,17 @@
 
 (他本人就是直接殺害小松鼠父親原因之一)
 
+
+*****
+
+####  ArthurDent  
+##### 288#       发表于 2025-10-5 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68529578&amp;ptid=2193746" target="_blank">然后成为树洞 发表于 2025-10-5 13:16</a>
+最后一话和二王子的CP感还挺强的，都快有种钦定的感觉了
+
+虽然看前面的讨论知道官配是冰男 ...</blockquote>
+也没有吧，属于是都吊着的状态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
