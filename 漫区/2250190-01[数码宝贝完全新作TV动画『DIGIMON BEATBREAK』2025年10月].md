@@ -129,3 +129,13 @@ OP：[https://youtu.be/X-SOSlnkXAc](https://youtu.be/X-SOSlnkXAc)
 
 ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
+
+*****
+
+####  pzk  
+##### 121#       发表于 2025-10-5 22:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哥哥掉进水里不救的话是不是死透了？
+
+感觉男主的性格在短短几分钟就转变了三次，和哥哥对话的台词里逻辑也怪怪的……
+
