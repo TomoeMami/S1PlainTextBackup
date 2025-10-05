@@ -8,3 +8,12 @@
 结果公布的新反派声优和扒出追加战士声优一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 官方是故意的吧
 
+
+*****
+
+####  粉儿alice  
+##### 176#       发表于 2025-10-5 17:52
+
+这也算二偶企划 要组女团也是要开演唱会的
+论鬼后和脚印姐地位要给三新人做陪 国王唱片也有本事的
+
