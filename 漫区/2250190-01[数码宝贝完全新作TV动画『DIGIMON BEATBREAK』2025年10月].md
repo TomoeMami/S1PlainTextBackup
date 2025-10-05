@@ -119,3 +119,13 @@ ed完整版BV1Don2zpE7E
 看打戏吧，看了第一集文戏不用太期待了，男主和他哥的对话各种拧巴，这部是半年还是年番 ...</blockquote>
 推上的情报是49集
 
+
+*****
+
+####  Piano-Forest  
+##### 120#         楼主| 发表于 2025-10-5 20:45
+
+OP：[https://youtu.be/X-SOSlnkXAc](https://youtu.be/X-SOSlnkXAc)
+
+ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
+
