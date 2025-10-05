@@ -1167,3 +1167,34 @@ https://www.bilibili.com/video/BV1wEnBz7ELD
 
 这没护额灵衣其实除了虎徹变白色就是模组待机的时候拿的刀是有特效光的，但是一开宝具动画还是那套<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18352#       发表于 2025-10-2 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说不是做不好 纯粹就是没想做好
+
+*****
+
+####  壳壳牛  
+##### 18353#       发表于 2025-10-4 17:30
+
+冠杀开始预热了
+
+彦斋卡池怎么不延期...
+
+*****
+
+####  khxooo  
+##### 18354#       发表于 2025-10-4 18:01
+
+可惜了，本想肝点石头看看能不能豹跳的。
+
+*****
+
+####  zechins  
+##### 18355#       发表于 2025-10-5 09:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">20连出了艳后，不错
+
