@@ -6234,3 +6234,14 @@ SSP冬天，大概是1月和过年活动一起上线吧
 
 就是支援机给的防御很莫名，就算数值差点就不能给个机动补命中吗
 
+
+*****
+
+####  森兰丸  
+##### 2845#       发表于 2025-10-5 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68529202&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-10-5 11:15</a>
+
+只有支援机才这样吧</blockquote>
+好吧看错了的确是支援机<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
