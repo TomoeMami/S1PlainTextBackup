@@ -16993,3 +16993,15 @@ A酱。还有けど先生，“太阳用英语说”。
 
 以前存的录播机都没了，我自己也只存了TC和推特空间。
 
+
+*****
+
+####  shmilyhua  
+##### 19658#       发表于 2025-10-5 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68528704&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-10-5 06:03</a>
+想着把23年+更早的联动直播录像也都传到B上，结果发现硬盘问题导致23年6-9月的多数存档都🈚了，目前绝赞崩 ...</blockquote>
+以主播打撸打爽了的九月来算，各种录像加在一起有555GB。😂
+
+—— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
