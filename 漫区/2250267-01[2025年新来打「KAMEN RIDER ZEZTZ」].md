@@ -36,3 +36,11 @@ Case6「封じる」
 
 单元路人依旧背景板水准，剧情也很普，恐高的小反转倒有点惊喜。希望设定和人设定型以后能有余裕多挖掘几个有水准的单元剧（不可能，绝对不可能）
 
+
+*****
+
+####  blue321  
+##### 349#       发表于 2025-10-5 11:59
+
+基地这么简单就被找到安保太弱了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
