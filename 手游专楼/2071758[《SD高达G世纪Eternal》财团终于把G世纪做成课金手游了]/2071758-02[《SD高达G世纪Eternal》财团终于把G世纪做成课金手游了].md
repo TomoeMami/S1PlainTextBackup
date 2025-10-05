@@ -6198,3 +6198,13 @@ SSP冬天，大概是1月和过年活动一起上线吧
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 2842#       发表于 2025-10-5 09:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也开始补课强敌了.....一堆攻击机的专武都是加防御和加血的
+
+怎么还能在这种地方下毒恶心人的
+
