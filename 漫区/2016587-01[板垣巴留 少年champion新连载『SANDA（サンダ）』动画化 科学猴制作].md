@@ -26,3 +26,15 @@ Amazon独占 有官中
 
 现在的动画不都是第一集来个大的收尾吸引观众么？这全程低信息量对话太催眠了
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 68#       发表于 2025-10-5 17:58
+
+才注意到OPED是yama+崎山苍志
+
+上一次这个配置是21年的清阴男排 从那以后开始关注崎山苍志的
+
+时间过得好快<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
