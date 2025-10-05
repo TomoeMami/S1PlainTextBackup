@@ -77,3 +77,11 @@ ed完整版BV1Don2zpE7E
 男主开局就死哥
 女主马上就吃瘪
 
+
+*****
+
+####  moudianzi  
+##### 115#       发表于 2025-10-5 15:29
+
+看这大哥一股天元突破大哥的既视感，且这弟弟的性格也蛮扭感的，就直觉这大哥应该活不过5集，迟早要被弟弟坑一波，结果这暴毙居然来得比想象的还快<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer"> 看看之后是能直接捞回来，还是说会恶堕啥的
+
