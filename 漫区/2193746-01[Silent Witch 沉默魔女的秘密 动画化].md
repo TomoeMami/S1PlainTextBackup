@@ -52,3 +52,13 @@
 
 —— 来自 OnePlus CPH2649, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  然后成为树洞  
+##### 286#       发表于 2025-10-5 13:16
+
+最后一话和二王子的CP感还挺强的，都快有种钦定的感觉了
+
+虽然看前面的讨论知道官配是冰男<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
