@@ -51,3 +51,13 @@
 即使冒着事业完蛋的风险也要和年长男性/小女孩谈恋爱还是很现实的，具体参考隔壁战队的独角兽，希望也有 ...</blockquote>
 才发现这集还都是大小姐写的，凯多不被捅一刀也太不公平了吧，明明你自己都相信粉丝是会这么做的
 
+
+*****
+
+####  粉儿alice  
+##### 1318#       发表于 2025-10-5 13:49
+
+今年有几集一度怀疑士大夫是不是没有拍过偶像番 是不是加藤先生和今大妈<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+之前二段强化红小歌和响凯特玩偶是一起卖的 怀疑这集卖bg也是带货要求拍的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+下集终于开演唱会了 但是是和现实演唱会联动回<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
