@@ -6245,3 +6245,11 @@ SSP冬天，大概是1月和过年活动一起上线吧
 只有支援机才这样吧</blockquote>
 好吧看错了的确是支援机<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  远野乙姬  
+##### 2846#       发表于 2025-10-5 12:26
+
+回坑抽了狗头绿驴船，看了半天配队，感觉自己2破拉克丝要浪费了
+
