@@ -16,3 +16,55 @@ ed完整版BV1Don2zpE7E
 
 看完了，感觉是……一般吧
 
+
+*****
+
+####  恋叶梦境  
+##### 113#       发表于 2025-10-5 09:19
+
+@momoshiomomo
+
+デジモンビートブレイクのOP原画、1カット描かせていただきました！ 本編はノータッチなので普通の視聴者として楽しみたいと思います 
+
+<img src="https://img.stage1st.com/forum/202510/05/091345i31z8s44zf33t4cu.jpg" referrerpolicy="no-referrer">
+
+<strong>@momoshiomomo.jpg</strong> (172.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-5 09:13 上传
+
+@ark_0115
+
+1話に参加させていただきました!アスカがトモロウを起こしてから出て行くまでの一連を担当しております。
+
+トモロウの不安や葛藤、苛立ちなどの表現が難しいな、と思いつつもとても楽しいお仕事でした。
+
+本編の今後も楽しみにしております…!!お誘いありがとうございました!!!
+
+<img src="https://img.stage1st.com/forum/202510/05/091748ty6jjfxc66jbkqic.jpg" referrerpolicy="no-referrer">
+
+<strong>@ark_0115.jpg</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-5 09:17 上传
+
+@akamine_aki
+
+いよいよ放送開始💫
+
+3話から動検で参加しますので、
+
+これからもよろしくお願いします。
+
+ぜひ観てね！
+
+<img src="https://img.stage1st.com/forum/202510/05/091816qbux0bh4l04vhbxv.jpg" referrerpolicy="no-referrer">
+
+<strong>@akamine_aki.jpg</strong> (96.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-5 09:18 上传
+
