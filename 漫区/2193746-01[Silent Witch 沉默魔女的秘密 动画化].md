@@ -100,3 +100,18 @@
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cxj649  
+##### 289#       发表于 2025-10-6 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68529578&amp;ptid=2193746" target="_blank">然后成为树洞 发表于 2025-10-5 13:16</a>
+
+最后一话和二王子的CP感还挺强的，都快有种钦定的感觉了
+
+虽然看前面的讨论知道官配是冰男 ...</blockquote>
+所谓“官配”，我个人就好像推子的有马加奈差不多，很微妙
+
+顺便结局是3人行，而且X垒来说，二王子的进度远比冰男高
+
