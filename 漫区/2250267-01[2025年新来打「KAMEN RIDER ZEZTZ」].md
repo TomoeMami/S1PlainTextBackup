@@ -60,3 +60,11 @@ Case6「封じる」
 
 居然是恐高？就这么简单？
 
+
+*****
+
+####  恶意之刃  
+##### 352#       发表于 2025-10-5 14:47
+
+每集谜语丑大叔真是一言难尽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
