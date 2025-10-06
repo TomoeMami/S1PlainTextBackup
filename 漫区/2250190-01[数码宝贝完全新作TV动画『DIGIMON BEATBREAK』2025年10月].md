@@ -299,3 +299,13 @@ ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
 第一集意外的有趣，期待OP里的敌方妹子
 
+
+*****
+
+####  cmyk1234  
+##### 134#       发表于 2025-10-6 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68532280&amp;ptid=2250190" target="_blank">小学生把持不住 发表于 2025-10-6 09:32</a>
+哪有什么野心和革新，不就是主张每人都有数码兽的02再缝合组织解决问题的拯救者、AI协同人类秘密操控世界的 ...</blockquote>
+E脉冲这玩意让我想到心跳光之美少女的psyche，主编剧都是山口亮太。心跳的反派把人类的psyche染黑制造怪物。
+
