@@ -223,3 +223,13 @@ ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
 小熊猫兽的配色让我想起一位故兽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 130#       发表于 2025-10-6 09:32
+
+ 本帖最后由 小学生把持不住 于 2025-10-6 09:34 编辑 
+
+哪有什么野心和革新，不就是主张每个人都有数码兽的02再缝合建立组织解决问题的拯救者、赛博AI秘密操控世界的赛博应用兽、数码兽大闹现实世界的幽灵游戏这三部的设定和风格吗
+
