@@ -291,3 +291,11 @@ ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  hououmon  
+##### 133#       发表于 2025-10-6 10:37
+
+第一集意外的有趣，期待OP里的敌方妹子
+
