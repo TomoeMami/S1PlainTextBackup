@@ -233,3 +233,51 @@ ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
 哪有什么野心和革新，不就是主张每个人都有数码兽的02再缝合建立组织解决问题的拯救者、赛博AI秘密操控世界的赛博应用兽、数码兽大闹现实世界的幽灵游戏这三部的设定和风格吗
 
+
+*****
+
+####  TOYSTORY  
+##### 131#       发表于 2025-10-6 10:01
+
+ 本帖最后由 TOYSTORY 于 2025-10-6 10:07 编辑 
+
+<img src="https://img.stage1st.com/forum/202510/06/100258ob3be6447eqxu7ez.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (186.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-6 10:02 上传
+
+<img src="https://img.stage1st.com/forum/202510/06/100259bc8pwt0y70hh00oo.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (150.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-6 10:02 上传
+
+<img src="https://img.stage1st.com/forum/202510/06/100259lhxxgu81zixx1x0w.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (201.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-6 10:02 上传
+
+<img src="https://img.stage1st.com/forum/202510/06/100303oe777rez9e0vzzy9.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (263.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-6 10:03 上传
+
+这个第一话讲得太平淡了还搞断章，主角兽的成长期战斗都没打完。但是背景设定能看出来是有些东西的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+开头介绍一闪而过的画面里有疑似给婴儿注射东西的画面（正片每人手上的二维码？），城市边缘区域有竖立在海上的残破的建筑（废土背景？），从跟路人女学生的对话里能隐约听出整个城市的区域是分不同阶层的人居住的，巨型蛋区域就是有跟电子相关的特殊才能的人才能住的地方
+
+整一个反乌托邦背景，还是有些大胆的。OP里的反派五天王的人设也过得去，能给个未来可期的评价吧
+
+但是看OP里都没男主兽的成熟期画面，怕是一时半会也不会进化了，一段时间内只能看吐舌头的成长期兽的战斗......作画堆得再好也没啥兴趣啊，只能看角色和故事能不能讲得有意思点了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
