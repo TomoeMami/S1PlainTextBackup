@@ -69,3 +69,13 @@ fa最新的是唯和未罗。
 
 原来这次活动的内容和之前两个宁里登场的活动是相关的，但隔了这么久我看都有人都忘了。活动最后还暗示可能去美国。接下来无论是主线还是活动都可能和SIN发生直接冲突了。京姐赌博游轮的下半段可能也是相关剧情，实装AN二毛。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1699#         楼主| 发表于 2025-10-6 13:34
+
+主要是她们几个自己商量了下就直接可以解除武器限制可以玩PVP了吗？这么儿戏的吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+阿金什么时候可以来真正的女演员VS女演员<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（不是那破模拟的CS
+
