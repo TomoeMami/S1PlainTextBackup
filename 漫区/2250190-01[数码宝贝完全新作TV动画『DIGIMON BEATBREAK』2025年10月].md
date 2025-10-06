@@ -281,3 +281,13 @@ ED：[https://youtu.be/Je4IjQqlD84](https://youtu.be/Je4IjQqlD84)
 
 但是看OP里都没男主兽的成熟期画面，怕是一时半会也不会进化了，一段时间内只能看吐舌头的成长期兽的战斗......作画堆得再好也没啥兴趣啊，只能看角色和故事能不能讲得有意思点了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 132#       发表于 2025-10-6 10:14
+
+个人觉得节奏怪怪的，如果有40分钟会好点
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
