@@ -95,3 +95,11 @@ fa最新的是唯和未罗。
 
 竟然按旧历送中秋SP<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1702#       发表于 2025-10-6 19:42
+
+首饰能封箱打包送，SP却还是一个个送，神奇
+
