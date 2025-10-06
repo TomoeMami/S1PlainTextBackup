@@ -29,3 +29,19 @@
 泷奈穿这身还算文学少女
 另一只就有点沐猴而冠<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 2401#         楼主| 发表于 2025-10-7 01:57
+
+今日はみんなでお月見🍡🌕
+
+…ってアンタそれ何作ってんの？？
+
+ミズキ
+<img src="https://p.sda1.dev/27/e06552f48a092493bf9d29e9947db2ff/20251007_015249.jpg" referrerpolicy="no-referrer">
+
+2025年10月24日(金)より、TVアニメ「リコリス・リコイル」“読書”TSUTAYA POP UP SHOPの開催決定！！ 読書をテーマにした新規描き下ろし＆描き起こしイラストのグッズやノベルティが盛り沢山！
+<img src="https://p.sda1.dev/27/f43171dab96da0c62f0f1366b883f0d6/20251007_015306.jpg" referrerpolicy="no-referrer">
+
