@@ -1265,3 +1265,16 @@ a店的5%氪金折扣明天中午截止了
 再说一次本非洲人到目前为止每日免费一抽可是连4星角色都没出过</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但限定UP随便出是吧
 
+
+*****
+
+####  森兰丸  
+##### 18362#       发表于 2025-10-7 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68536859&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-7 15:57</a>
+
+但限定UP随便出是吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非洲人只有偶尔出货了才会上来冒泡.....保底沉船的时候根本就郁闷的不想打开论坛
+
+光是去年就已经吃了3次保底
+
