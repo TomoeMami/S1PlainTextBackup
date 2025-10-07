@@ -1338,3 +1338,16 @@ a店的5%氪金折扣明天中午截止了
 非洲人玩这辣鸡游戏玩了要10年了不也就只有2个5宝</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是整整2个！ 还有几千石呢！ 你看非萌只剩10几石了！
 
+
+*****
+
+####  森兰丸  
+##### 18368#       发表于 2025-10-7 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68537226&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-7 18:15</a>
+
+那可是整整2个！ 还有几千石呢！ 你看非萌只剩10几石了！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人的石头那都是忍着好几个月不抽卡辛辛苦苦攒下来的!
+
+哪像萌新欧到天天单抽出货
+
