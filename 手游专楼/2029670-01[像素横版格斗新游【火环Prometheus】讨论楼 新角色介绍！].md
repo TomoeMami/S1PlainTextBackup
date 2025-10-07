@@ -532,3 +532,11 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 看了一下测试服的视频，怎么感觉就是差一口气啊<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uyghgyg  
+##### 53#       发表于 2025-10-7 22:14
+
+感觉还是卡池问题最大
+
