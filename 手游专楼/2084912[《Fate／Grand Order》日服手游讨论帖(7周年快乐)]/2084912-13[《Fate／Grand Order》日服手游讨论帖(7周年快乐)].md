@@ -1312,3 +1312,16 @@ a店的5%氪金折扣明天中午截止了
 你知道人家有多少满宝5星限定吗！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">数不清
 
+
+*****
+
+####  森兰丸  
+##### 18366#       发表于 2025-10-7 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68537091&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-7 17:24</a>
+
+你知道人家有多少满宝5星限定吗！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在XJB乱说
+
+非洲人玩这辣鸡游戏玩了要10年了不也就只有2个5宝
+
