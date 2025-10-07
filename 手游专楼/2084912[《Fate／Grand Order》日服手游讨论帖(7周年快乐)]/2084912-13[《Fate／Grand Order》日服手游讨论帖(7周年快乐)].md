@@ -1246,3 +1246,11 @@ a店的5%氪金折扣明天中午截止了
 这就是欧皇吗 本楼你最欧了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不如KHXOOO 狗萌新和森兰丸
 
+
+*****
+
+####  森兰丸  
+##### 18360#       发表于 2025-10-7 15:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说一次本非洲人到目前为止每日免费一抽可是连4星角色都没出过
+
