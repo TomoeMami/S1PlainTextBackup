@@ -14,3 +14,11 @@
 
 很好玩，但当时总感觉高等级敌人有预制菜连消，不爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ChrisSnake  
+##### 50#       发表于 2025-10-7 11:03
+
+这个辣鸡玩意可不好叫puzzle quest
+
