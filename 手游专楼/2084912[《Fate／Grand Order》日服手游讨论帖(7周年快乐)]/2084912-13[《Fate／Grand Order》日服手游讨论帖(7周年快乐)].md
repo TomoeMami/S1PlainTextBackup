@@ -1278,3 +1278,16 @@ a店的5%氪金折扣明天中午截止了
 
 光是去年就已经吃了3次保底
 
+
+*****
+
+####  qixinno2  
+##### 18363#       发表于 2025-10-7 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68537023&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-7 16:58</a>
+
+非洲人只有偶尔出货了才会上来冒泡.....保底沉船的时候根本就郁闷的不想打开论坛
+
+光是去年就已经吃了3次 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但每次都是多宝豹的飞起
+
