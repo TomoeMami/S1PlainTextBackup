@@ -9846,10 +9846,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 13745,
+    "totalreply": 13747,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1759803608,
+    "lastedit": 1759804571,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12182,7 +12182,7 @@
     "newtitle": "[专楼新•首都高赛车 已发售抢鲜体验（9月25日正式发售）]",
     "lastedit": 1759544888,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194055": {
@@ -12726,10 +12726,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 5623,
+    "totalreply": 5626,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1759802049,
+    "lastedit": 1759804570,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15633,10 +15633,10 @@
     "update": false
   },
   "2263388": {
-    "totalreply": 374,
+    "totalreply": 375,
     "title": "[为什么麻辣仙人越斗争地盘越小？]",
     "newtitle": "[为什么麻辣仙人越斗争地盘越小？]",
-    "lastedit": 1759803969,
+    "lastedit": 1759804329,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -16223,7 +16223,7 @@
     "newtitle": "[（剧透）冷门漫画推荐«地图上找不到的地方»和«情书和13岁女演员»]",
     "lastedit": 1759545011,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2087542": {
@@ -16389,10 +16389,10 @@
     "update": false
   },
   "2263643": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[突击检查！把你正在玩的游戏截图发上来让大伙品鉴一下]",
     "newtitle": "[突击检查！把你正在玩的游戏截图发上来让大伙品鉴一下]",
-    "lastedit": 1759765452,
+    "lastedit": 1759804448,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16677,10 +16677,10 @@
     "update": false
   },
   "2263783": {
-    "totalreply": 127,
+    "totalreply": 129,
     "title": "[成绩都是假的，唯有阶级永恒]",
     "newtitle": "[成绩都是假的，唯有阶级永恒]",
-    "lastedit": 1759803730,
+    "lastedit": 1759804687,
     "category": "外野",
     "active": true,
     "update": false
@@ -16722,10 +16722,10 @@
     "update": false
   },
   "2263778": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[之前相亲过的女生结婚了]",
     "newtitle": "[之前相亲过的女生结婚了]",
-    "lastedit": 1759803489,
+    "lastedit": 1759804688,
     "category": "外野",
     "active": true,
     "update": false
@@ -16790,6 +16790,15 @@
     "newtitle": "[ghg，高市早苗“将”组建史上女性最多的内阁]",
     "lastedit": 1759804092,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2215724": {
+    "totalreply": 41,
+    "title": "[2025年，我又捡起了动森]",
+    "newtitle": "[2025年，我又捡起了动森]",
+    "lastedit": 1759804450,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
