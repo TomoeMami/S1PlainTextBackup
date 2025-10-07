@@ -1235,3 +1235,14 @@ a店的5%氪金折扣明天中午截止了
 终于轮到我了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这就是欧皇吗 本楼你最欧了
 
+
+*****
+
+####  qixinno2  
+##### 18359#       发表于 2025-10-7 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68536464&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-7 13:41</a>
+
+这就是欧皇吗 本楼你最欧了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不如KHXOOO 狗萌新和森兰丸
+
