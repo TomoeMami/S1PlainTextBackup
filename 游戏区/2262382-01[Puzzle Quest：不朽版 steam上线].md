@@ -56,3 +56,20 @@
 
 之前玩时最终BOSS都打完了，唯独剩下个叫Khaz-Barak的任务，描述是在Kahz barak搜索什么矮人金矿，但找遍地图也没找到这个地点。有人玩到这个任务吗
 
+
+*****
+
+####  纸窗泪  
+##### 55#       发表于 2025-10-7 17:31
+
+这一关是怎么解密的有人还记得么
+
+QQ20251007-172952.png
+(770.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-7 17:31 上传
+
+<img src="https://img.stage1st.com/forum/202510/07/173121lbhutkk5kkak4kkb.png" referrerpolicy="no-referrer">
+

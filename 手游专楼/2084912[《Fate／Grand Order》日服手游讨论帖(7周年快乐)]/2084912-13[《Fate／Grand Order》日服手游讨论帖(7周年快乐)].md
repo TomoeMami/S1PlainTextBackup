@@ -1291,3 +1291,24 @@ a店的5%氪金折扣明天中午截止了
 光是去年就已经吃了3次 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但每次都是多宝豹的飞起
 
+
+*****
+
+####  alucardcz  
+##### 18364#       发表于 2025-10-7 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68537072&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-7 17:15</a>
+
+但每次都是多宝豹的飞起</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你知道人家有多少满宝5星限定吗！
+
+*****
+
+####  qixinno2  
+##### 18365#       发表于 2025-10-7 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68537091&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-7 17:24</a>
+
+你知道人家有多少满宝5星限定吗！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">数不清
+
