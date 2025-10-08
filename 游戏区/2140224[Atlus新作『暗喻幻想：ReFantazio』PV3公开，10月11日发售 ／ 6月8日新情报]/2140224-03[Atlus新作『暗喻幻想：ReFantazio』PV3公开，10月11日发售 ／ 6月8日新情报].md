@@ -106,3 +106,13 @@
 艹，路易能入队那最终boss打谁</blockquote>
 就打莫尔吧，因为莫尔创造了一个所有人都幸福的世界。
 
+
+*****
+
+####  ——啧  
+##### 3666#       发表于 2025-10-8 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68540246&amp;ptid=2140224" target="_blank">Sopp 发表于 2025-10-8 14:16</a>
+艹，路易能入队那最终boss打谁</blockquote>
+我打我自己，把路易作为坏人的部分切下来当BOSS就行了，还能做成白毛萝莉入队<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
