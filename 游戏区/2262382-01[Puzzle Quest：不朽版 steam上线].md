@@ -114,3 +114,14 @@ QQ20251007-172952.png
 我草，哥们牛逼啊，你这是攻略么？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">b站不是有捕获视频攻略吗
 
+
+*****
+
+####  InfiniteGyre  
+##### 59#       发表于 2025-10-8 14:42
+
+捕获我用的都是这个文字版，就是要会怪物英语名
+https://gamefaqs.gamespot.com/switch/272661-puzzle-quest-the-legend-returns/faqs/78621
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

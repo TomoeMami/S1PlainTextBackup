@@ -483,3 +483,15 @@ da的情怀都做了多少答辩出来了，真别再搞了<img src="https://sta
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  a85982313  
+##### 153#       发表于 2025-10-8 14:39
+
+ 本帖最后由 a85982313 于 2025-10-8 14:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68539256&amp;ptid=2250190" target="_blank">二阶堂真琉 发表于 2025-10-8 09:29</a>
+
+膜DA膜太多次大火都看累了，不如来玩玩我们旧作TV梗一堆的时空异客吧</blockquote>
+我都通了也没看到有多少tv梗啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然偶尔能看到野生NPC数码宝贝有tv彩蛋，但是也就是一起出现这种程度了
+
