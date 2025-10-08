@@ -567,3 +567,14 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单机玩家能看上它啥
 
+
+*****
+
+####  HEERO.W  
+##### 57#       发表于 2025-10-8 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68538174&amp;ptid=2029670" target="_blank">雷攻姛人 发表于 2025-10-7 22:38</a>
+
+现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
+不是，都付费测了，落地是很难的一件事吗？成千上万个抽卡二游里，付费测后不公测的都不到一只手。你悲观个啥，还不如悲观下这个质量铁活不到周年
+

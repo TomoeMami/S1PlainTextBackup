@@ -1373,3 +1373,22 @@ a店的5%氪金折扣明天中午截止了
 我已经很久没有出货了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">很久指不到一个月么
 
+
+*****
+
+####  DARKGRAY  
+##### 18371#       发表于 2025-10-8 17:20
+
+这下树是不是基本能全开了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 18372#       发表于 2025-10-8 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68540901&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-10-8 17:20</a>
+
+这下树是不是基本能全开了</blockquote>
+起码开了9成了。剩下的就是宝威那几个没送。
+
