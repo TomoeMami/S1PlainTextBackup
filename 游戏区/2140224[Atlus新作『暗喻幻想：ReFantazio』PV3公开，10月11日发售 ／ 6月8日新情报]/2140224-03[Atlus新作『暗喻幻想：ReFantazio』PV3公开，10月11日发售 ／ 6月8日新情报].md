@@ -25,3 +25,18 @@
 
 出皇家版吧反正我不买了
 
+
+*****
+
+####  alucardcz  
+##### 3657#       发表于 2025-10-8 13:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Atlus会出dlc？看不起谁呢！
+
+*****
+
+####  卢迪克  
+##### 3658#       发表于 2025-10-8 13:24
+
+应该是出皇家版，顺便把ns2版出了，这个月p3r也发售了，该宣布了
+
