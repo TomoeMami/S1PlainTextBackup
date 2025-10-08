@@ -37,3 +37,16 @@
 
 虽然故事写的还行，但是粉毛莫名的百合要素还是太他妈为了自己的xp瞎写了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 87#         楼主| 发表于 2025-10-8 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541724&amp;ptid=2252633" target="_blank">浅川雏羽 发表于 2025-10-8 21:10</a>
+金毛线本来是一点儿兴趣都没有，听说是伞哥写的所以打了
+
+打完的感觉是伞哥读过共通线没啊，你这个粉毛和共 ...</blockquote>
+根据吧友扒的博客答案大概率是真没读，伞纯纯负责一条个人线
+偏偏这次发挥我整体满意，尤其某粉毛个人线真感觉还没伞里的好，明明共通线给我挺高期待的<img src="https://p.sda1.dev/27/268222c49e7ddd86cd726f4858ccbe59/image.jpg" referrerpolicy="no-referrer">
+
