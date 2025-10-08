@@ -75,3 +75,14 @@
 
 路易是不是要入队了
 
+
+*****
+
+####  Sopp  
+##### 3663#       发表于 2025-10-8 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68540225&amp;ptid=2140224" target="_blank">变老的大二 发表于 2025-10-8 14:11</a>
+
+路易是不是要入队了</blockquote>
+艹，路易能入队那最终boss打谁
+
