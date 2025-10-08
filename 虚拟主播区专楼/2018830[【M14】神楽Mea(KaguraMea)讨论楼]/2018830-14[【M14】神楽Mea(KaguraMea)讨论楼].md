@@ -22797,3 +22797,13 @@ Vtuber小姐没有男朋友，不可能吧。
 
 如果是食物中毒导致的话，如果情况确实不是很好，该去开点药还是得开点药啊...
 
+
+*****
+
+####  sino__unnko3  
+##### 19670#       发表于 2025-10-8 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541592&amp;ptid=2018830" target="_blank">术士q 发表于 2025-10-8 20:37</a>
+那段不太记得清了，可能是放了比较久的咖喱还是什么?具体是core正赛开始前闭麦和大家说的，语音比较乱理 ...</blockquote>
+咖喱这事是这几天的？以为是旧闻
+
