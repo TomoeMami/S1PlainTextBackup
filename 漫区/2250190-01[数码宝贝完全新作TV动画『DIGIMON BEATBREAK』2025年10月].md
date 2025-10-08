@@ -495,3 +495,11 @@ da的情怀都做了多少答辩出来了，真别再搞了<img src="https://sta
 膜DA膜太多次大火都看累了，不如来玩玩我们旧作TV梗一堆的时空异客吧</blockquote>
 我都通了也没看到有多少tv梗啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然偶尔能看到野生NPC数码宝贝有tv彩蛋，但是也就是一起出现这种程度了
 
+
+*****
+
+####  莉佳厨  
+##### 154#       发表于 2025-10-8 18:30
+
+兜帽蝠兽好可爱<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
