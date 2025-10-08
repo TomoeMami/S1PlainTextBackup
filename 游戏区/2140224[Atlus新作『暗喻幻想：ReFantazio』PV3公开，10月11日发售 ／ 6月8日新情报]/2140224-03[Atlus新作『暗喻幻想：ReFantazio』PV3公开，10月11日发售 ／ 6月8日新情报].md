@@ -9,3 +9,11 @@
 
 —— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hkguty  
+##### 3655#       发表于 2025-10-8 11:24
+
+加强版不会这么快，应该是dlc或者动画化
+
