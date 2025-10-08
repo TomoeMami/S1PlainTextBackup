@@ -112,3 +112,17 @@
 
 实际打完是不赖的，差点中了人设的陷阱
 
+
+*****
+
+####  gaiadc  
+##### 93#       发表于 2025-10-8 23:59
+
+ 本帖最后由 gaiadc 于 2025-10-9 00:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541724&amp;ptid=2252633" target="_blank">浅川雏羽 发表于 2025-10-8 21:10</a>
+
+金毛线本来是一点儿兴趣都没有，听说是伞哥写的所以打了
+
+打完的感觉是伞哥读过共通线没啊，你这个粉毛和共 ...</blockquote>
+伞就是喜欢犯病，别说月望线了，粉毛线里粉毛乳枕莉莉子的那段也是他写的，用词完全命中伞的热区；他不只在自己负责的线路里犯病，别人负责的线路他也敢<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
