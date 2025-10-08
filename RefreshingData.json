@@ -8613,19 +8613,19 @@
     "update": false
   },
   "2140224": {
-    "totalreply": 3666,
+    "totalreply": 3667,
     "title": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售 ／ 6月8日新情报]",
     "newtitle": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售]",
-    "lastedit": 1759906451,
+    "lastedit": 1759908850,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2184782": {
-    "totalreply": 195533,
+    "totalreply": 195535,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1759908368,
+    "lastedit": 1759908967,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 3370,
+    "totalreply": 3371,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1759908007,
+    "lastedit": 1759908610,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11295,10 +11295,10 @@
     "update": false
   },
   "2175566": {
-    "totalreply": 397,
+    "totalreply": 398,
     "title": "[尝试建一个TCG专楼]",
     "newtitle": "[符文战场、高达TCG、柯南简中已发售——尝试建一个TCG专楼]",
-    "lastedit": 1759907651,
+    "lastedit": 1759908852,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12339,10 +12339,10 @@
     "update": false
   },
   "2246062": {
-    "totalreply": 411,
+    "totalreply": 412,
     "title": "[数码宝贝物语 时空异客发布，2025／10／3发售，ps5／xs／pc]",
     "newtitle": "[数码宝贝物语 时空异客发布，2025／10／3发售，ps5／xs／pc，demo9.11上线]",
-    "lastedit": 1759903808,
+    "lastedit": 1759908610,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12434,15 +12434,6 @@
     "newtitle": "[雷霆宙域225话：奶奶头归来加入奥古]",
     "lastedit": 1758874451,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2261840": {
-    "totalreply": 113,
-    "title": "[茂儿这个狡猾]",
-    "newtitle": "[茂儿这个狡猾]",
-    "lastedit": 1758699387,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -12897,10 +12888,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 441,
+    "totalreply": 442,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1759897687,
+    "lastedit": 1759908852,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16115,7 +16106,7 @@
     "newtitle": "[环保少女格蕾塔第三次赴加沙，以色列称将按terrorist处置]",
     "lastedit": 1759649288,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263693": {
@@ -16515,10 +16506,10 @@
     "update": false
   },
   "2263845": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[年轻人第一部四驱车选哪个？]",
     "newtitle": "[年轻人第一部四驱车选哪个？]",
-    "lastedit": 1759857850,
+    "lastedit": 1759909089,
     "category": "外野",
     "active": true,
     "update": false
@@ -16605,19 +16596,19 @@
     "update": false
   },
   "2263841": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[后知后觉，Engage这下棋是这好玩啊]",
     "newtitle": "[后知后觉，Engage这下棋是这好玩啊]",
-    "lastedit": 1759903449,
+    "lastedit": 1759908610,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2263861": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[话说现在最好用的AI是哪个？]",
     "newtitle": "[话说现在最好用的AI是哪个？]",
-    "lastedit": 1759907052,
+    "lastedit": 1759909089,
     "category": "外野",
     "active": true,
     "update": false
@@ -16691,6 +16682,15 @@
     "newtitle": "[以前看日本动画就搞不懂业界的改编方针]",
     "lastedit": 1759904896,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2263920": {
+    "totalreply": 43,
+    "title": "[表哥的劝婚引发的思考]",
+    "newtitle": "[表哥的劝婚引发的思考]",
+    "lastedit": 1759909089,
+    "category": "外野",
     "active": true,
     "update": false
   }
