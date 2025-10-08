@@ -556,3 +556,14 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧
 
+
+*****
+
+####  Sopp  
+##### 56#       发表于 2025-10-8 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68538174&amp;ptid=2029670" target="_blank">雷攻姛人 发表于 2025-10-7 22:38</a>
+
+现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单机玩家能看上它啥
+
