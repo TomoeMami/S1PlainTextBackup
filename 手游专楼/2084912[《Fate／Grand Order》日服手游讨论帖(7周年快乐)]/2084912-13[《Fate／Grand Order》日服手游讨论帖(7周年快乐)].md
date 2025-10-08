@@ -1362,3 +1362,14 @@ a店的5%氪金折扣明天中午截止了
 数不清</blockquote>
 我已经很久没有出货了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18370#       发表于 2025-10-8 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68538533&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-8 00:20</a>
+
+我已经很久没有出货了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">很久指不到一个月么
+
