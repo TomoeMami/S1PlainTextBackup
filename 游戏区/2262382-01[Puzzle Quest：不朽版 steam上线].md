@@ -104,3 +104,13 @@ QQ20251007-172952.png
 看看图片</blockquote>
 我草，哥们牛逼啊，你这是攻略么？
 
+
+*****
+
+####  shinnfin  
+##### 58#       发表于 2025-10-8 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68540252&amp;ptid=2262382" target="_blank">纸窗泪 发表于 2025-10-8 14:17</a>
+我草，哥们牛逼啊，你这是攻略么？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">b站不是有捕获视频攻略吗
+
