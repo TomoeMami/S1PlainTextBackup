@@ -126,3 +126,16 @@ fa最新的是唯和未罗。
 
 阿嘎今天直播说了什么内容有人整理吗
 
+
+*****
+
+####  不灭的旋律  
+##### 1705#       发表于 2025-10-8 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541838&amp;ptid=2104259" target="_blank">alialex 发表于 2025-10-8 21:36</a>
+
+阿嘎今天直播说了什么内容有人整理吗</blockquote>
+机甲换色本月底陆续实装，先实装5名。需要用金币买一个角色一个，四个部位能分开换色，部分特殊装备不能换色。
+
+人气活动投票公布，迷你四驱活动明天复刻。没了
+
