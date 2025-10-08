@@ -22762,3 +22762,15 @@ Vtuber小姐没有男朋友，不可能吧。
 
 啊——因为真的——太快乐了。
 
+
+*****
+
+####  术士q  
+##### 19667#       发表于 2025-10-8 20:16
+
+ 本帖最后由 术士q 于 2025-10-8 20:20 编辑 
+
+来之不易的胜利啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，最后那波赌的真的挺大的
+中间那里咩连砍两个头也挺关键的
+这次似乎吃坏了肚子，腹胀打的，发挥来看总体还是挺好的，特别是后半段，确实辛苦了，gg<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
