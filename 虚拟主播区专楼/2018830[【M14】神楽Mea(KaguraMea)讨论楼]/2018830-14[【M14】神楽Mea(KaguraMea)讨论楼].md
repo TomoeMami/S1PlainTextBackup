@@ -22774,3 +22774,26 @@ Vtuber小姐没有男朋友，不可能吧。
 中间那里咩连砍两个头也挺关键的
 这次似乎吃坏了肚子，腹胀打的，发挥来看总体还是挺好的，特别是后半段，确实辛苦了，gg<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 19668#       发表于 2025-10-8 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541512&amp;ptid=2018830" target="_blank">术士q 发表于 2025-10-8 20:16</a>
+来之不易的胜利啊，最后那波赌的真的挺大的
+中间那里咩连砍两个头也挺关键的
+这次似乎吃坏了肚子，腹胀打的 ...</blockquote>
+这次吃啥吃坏的
+
+*****
+
+####  术士q  
+##### 19669#       发表于 2025-10-8 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68541571&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-10-8 20:31</a>
+这次吃啥吃坏的</blockquote>
+那段不太记得清了，可能是放了比较久的咖喱还是什么?具体是core正赛开始前闭麦和大家说的，语音比较乱理不太清，具体可以再去重听一下那段
+
+如果是食物中毒导致的话，如果情况确实不是很好，该去开点药还是得开点药啊...
+
