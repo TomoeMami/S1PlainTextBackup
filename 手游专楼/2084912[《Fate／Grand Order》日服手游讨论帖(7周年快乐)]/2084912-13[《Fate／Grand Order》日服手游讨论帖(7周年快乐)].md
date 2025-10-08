@@ -1392,3 +1392,29 @@ a店的5%氪金折扣明天中午截止了
 这下树是不是基本能全开了</blockquote>
 起码开了9成了。剩下的就是宝威那几个没送。
 
+
+*****
+
+####  岸浪白野  
+##### 18373#       发表于 2025-10-8 17:32
+
+送了12个红星24个黄星已经能确保7颗普通树都能满了，所以方块总换能换40个白纸罐给人追星砂，但是上限还是9个超过就不能换<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后盾阶还加了卡背<img src="https://p.sda1.dev/27/578c7beec36979a2ba3ee1a68d94fa70/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 18374#       发表于 2025-10-8 17:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就应该这么送 非要卡那么久进度 结果就差三个职介带冠战都要打一圈了
+
+*****
+
+####  Jamaisvu  
+##### 18375#       发表于 2025-10-8 17:36
+
+盾阶卡背应该是给加拉哈德落地准备的吧，我还以为要等到周年或者新年呢。制作组这是不准备藏着掖着了，能落地的卫星都即将返航？
+
+...不过月姬侧那几位大概就真得等第三部了...
+
