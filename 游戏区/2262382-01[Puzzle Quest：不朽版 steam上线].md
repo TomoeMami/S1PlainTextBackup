@@ -125,3 +125,14 @@ https://gamefaqs.gamespot.com/switch/272661-puzzle-quest-the-legend-returns/faqs
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  纸窗泪  
+##### 60#       发表于 2025-10-8 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68540295&amp;ptid=2262382" target="_blank">shinnfin 发表于 2025-10-8 14:28</a>
+
+b站不是有捕获视频攻略吗</blockquote>
+好吧，我国庆出去旅游前还没看到有人出视频，然后旅游时卡住了就没玩了，昨天回家才想起来来论坛问这关怎么过
+
