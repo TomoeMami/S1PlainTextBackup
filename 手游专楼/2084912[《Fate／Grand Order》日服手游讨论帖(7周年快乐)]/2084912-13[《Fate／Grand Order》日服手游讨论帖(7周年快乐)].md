@@ -1465,3 +1465,14 @@ a店的5%氪金折扣明天中午截止了
 
 礼问一下，现在日服有没有出红蓝技能石头转换金石头的功能呀
 
+
+*****
+
+####  Jamaisvu  
+##### 18381#       发表于 2025-10-9 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68546220&amp;ptid=2084912" target="_blank">FrozenA 发表于 2025-10-9 20:40</a>
+
+礼问一下，现在日服有没有出红蓝技能石头转换金石头的功能呀</blockquote>
+没有这种好事，但是有了白方块兑换和冠位戴冠战后，倒也不是很缺金饼干。
+
