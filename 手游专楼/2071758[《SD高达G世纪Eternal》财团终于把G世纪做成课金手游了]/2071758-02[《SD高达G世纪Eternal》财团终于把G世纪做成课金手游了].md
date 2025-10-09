@@ -6340,3 +6340,41 @@ ex冰箱是盾，ex绿螳螂是攻
 
 可以被打爆后脱甲还行吧，不然就真搞笑了
 
+
+*****
+
+####  Abomination  
+##### 2856#       发表于 2025-10-9 22:05
+
+软磨硬泡了15k钻，储够60k保底钻开抽，30抽就抽到了神高达<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/09/220029gu62u9s8j6x6zxu9.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251009-205727_G世代 永恆.png</strong> (379.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-9 22:00 上传
+
+想一想还是想抽齐扑克同盟，再抽就出了绿独角，双限定都出了但还是想要齐SSR，结果...
+
+结果80抽出了四绿独角<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/09/220046qptot17o1q1pzpo1.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251009-211456_G世代 永恆.png</strong> (626.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-9 22:00 上传
+
+<img src="https://img.stage1st.com/forum/202510/09/220046wlg1rqqy1e1geejj.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251009-214242_G世代 永恆.png</strong> (415.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-9 22:00 上传
+
+扑克同盟还差1都不抽了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
