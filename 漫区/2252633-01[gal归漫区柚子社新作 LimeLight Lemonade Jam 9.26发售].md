@@ -126,3 +126,11 @@
 打完的感觉是伞哥读过共通线没啊，你这个粉毛和共 ...</blockquote>
 伞就是喜欢犯病，别说月望线了，粉毛线里粉毛乳枕莉莉子的那段也是他写的，用词完全命中伞的热区；他不只在自己负责的线路里犯病，别人负责的线路他也敢<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花海佑芽  
+##### 94#       发表于 2025-10-9 08:33
+
+粉毛线就是柚子核心企划剧本家天宫写的，写的烂毫无意外，他就是纯废物<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
