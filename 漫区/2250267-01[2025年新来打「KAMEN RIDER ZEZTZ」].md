@@ -122,3 +122,11 @@ Case6「封じる」
 
 目前看着不太像全程单元，可能像drive那样后半段突入主线转连续剧
 
+
+*****
+
+####  粉儿alice  
+##### 358#       发表于 2025-10-9 10:57
+
+op完整版出了 红鸡不出意外被骂上敷衍了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
