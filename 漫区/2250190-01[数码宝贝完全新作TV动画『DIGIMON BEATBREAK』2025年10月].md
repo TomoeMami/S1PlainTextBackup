@@ -503,3 +503,11 @@ da的情怀都做了多少答辩出来了，真别再搞了<img src="https://sta
 
 兜帽蝠兽好可爱<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闭挂锁人  
+##### 155#       发表于 2025-10-9 14:58
+
+第一话这个表现虽然粗糙但算可以了，比大部分的10月番和过去的da都更吸引人
+
