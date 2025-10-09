@@ -6307,3 +6307,12 @@ BOSS 9万多的攻击打我的防御机也是一下秒....只能用必闪
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 2852#       发表于 2025-10-9 16:22
+
+ex冰箱是盾，ex绿螳螂是攻
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
