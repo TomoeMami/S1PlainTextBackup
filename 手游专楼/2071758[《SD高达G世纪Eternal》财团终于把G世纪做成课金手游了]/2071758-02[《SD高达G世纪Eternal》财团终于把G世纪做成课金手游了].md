@@ -6378,3 +6378,13 @@ ex冰箱是盾，ex绿螳螂是攻
 
 扑克同盟还差1都不抽了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  حماس  
+##### 2857#       发表于 2025-10-10 03:53
+
+卡多还给了个强化 开GP02物理武装射程+1 
+
+不知道核弹map吃不吃得到加成 否则其实还是蛮弱的 
+
