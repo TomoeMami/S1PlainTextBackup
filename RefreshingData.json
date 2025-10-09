@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1759784648,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -15354,10 +15354,10 @@
     "update": false
   },
   "2263313": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[台风来了]",
     "newtitle": "[台风来了]",
-    "lastedit": 1759992977,
+    "lastedit": 1760044086,
     "category": "外野",
     "active": true,
     "update": false
