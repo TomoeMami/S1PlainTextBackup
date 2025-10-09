@@ -6316,3 +6316,11 @@ BOSS 9万多的攻击打我的防御机也是一下秒....只能用必闪
 ex冰箱是盾，ex绿螳螂是攻
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 2853#       发表于 2025-10-9 17:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
