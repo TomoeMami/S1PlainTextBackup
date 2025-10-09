@@ -50,3 +50,12 @@
 
        [https://x.com/comic_growl/status/1976075331942613128](https://x.com/comic_growl/status/1976075331942613128)
 
+
+*****
+
+####  CyDiablo  
+##### 27290#       发表于 2025-10-9 20:32
+
+四开大麦终于丝滑拿下day1 1580<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+开票到第二排属实是没想到，已经做好被遮挡（如果有的话）的心理准备了
+
