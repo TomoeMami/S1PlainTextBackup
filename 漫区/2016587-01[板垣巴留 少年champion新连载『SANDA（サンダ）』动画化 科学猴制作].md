@@ -70,3 +70,12 @@ Amazon独占 有官中
 
 巴留上一部会爆还是因为角色是福瑞，还有整个主题加成。这部……说实话不看好
 
+
+*****
+
+####  Vitiate  
+##### 73#       发表于 2025-10-9 20:03
+
+<img src="https://p.sda1.dev/27/ccb93783e5bcd3929e4d3c222b86effd/image.jpg" referrerpolicy="no-referrer">
+soul mate害人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
