@@ -158,3 +158,16 @@ fa最新的是唯和未罗。
 机甲换色本月底陆续实装，先实装5名。需要用金币买一个角色一个，四个部位能分开换色，部分特殊装备不能 ...</blockquote>
 游戏内公告里一串公布的原来就是个投票结果吗，好像也没有对应的奖励
 
+
+*****
+
+####  不灭的旋律  
+##### 1708#       发表于 2025-10-9 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68543426&amp;ptid=2104259" target="_blank">madcow 发表于 2025-10-9 10:39</a>
+
+配色我只看总结图没看明白，是自己随便换颜色还是另一套固定的涂装给选？ ...</blockquote>
+两个固定配色自选，能随便自定义是想太多了这可是金字塔啊
+
+哦对了还有送了大流士两个角色的湿身道具。在更衣室点击warning会有警告音。不过大概没人关心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
