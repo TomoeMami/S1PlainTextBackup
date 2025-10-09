@@ -171,3 +171,13 @@ fa最新的是唯和未罗。
 
 哦对了还有送了大流士两个角色的湿身道具。在更衣室点击warning会有警告音。不过大概没人关心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1709#       发表于 2025-10-9 18:40
+
+因为配套衣服要买啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
