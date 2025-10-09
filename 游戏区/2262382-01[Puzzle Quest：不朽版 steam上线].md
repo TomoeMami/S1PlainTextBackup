@@ -136,3 +136,28 @@ https://gamefaqs.gamespot.com/switch/272661-puzzle-quest-the-legend-returns/faqs
 b站不是有捕获视频攻略吗</blockquote>
 好吧，我国庆出去旅游前还没看到有人出视频，然后旅游时卡住了就没玩了，昨天回家才想起来来论坛问这关怎么过
 
+
+*****
+
+####  纸窗泪  
+##### 61#       发表于 2025-10-9 20:48
+
+ 本帖最后由 纸窗泪 于 2025-10-9 20:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68536829&amp;ptid=2262382" target="_blank">Ichihatsu 发表于 2025-10-7 15:45</a>
+
+之前玩时最终BOSS都打完了，唯独剩下个叫Khaz-Barak的任务，描述是在Kahz barak搜索什么矮人金矿，但找遍地 ...</blockquote>
+是这个任务吧，我这里很奇怪，这任务是金色主线的标记，但是显示为可重复完成，在加利亚城接，接了任务以后就是去右下方的卡兹巴拉克打个瘟疫法师任务就完成了
+
+我通关后没有得到那个全主线任务完成的成就，不知道是不是跟这个任务有关
+
+说起来，你们通关后那个获取全符文的成就完成了么，我也没完成，不知道是不是因为中间有一段是用steam deck离线玩的原因
+
+QQ20251009-204453.png
+(1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-9 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202510/09/204620bby1iz05y9w5cn9d.png" referrerpolicy="no-referrer">
+
