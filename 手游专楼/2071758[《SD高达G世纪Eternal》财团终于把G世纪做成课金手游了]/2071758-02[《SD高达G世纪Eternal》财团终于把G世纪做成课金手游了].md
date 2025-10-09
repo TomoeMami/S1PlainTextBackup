@@ -6324,3 +6324,11 @@ ex冰箱是盾，ex绿螳螂是攻
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2854#       发表于 2025-10-9 19:32
+
+03D可以脱出成03S，就不知道是不是有双EX技能
+
