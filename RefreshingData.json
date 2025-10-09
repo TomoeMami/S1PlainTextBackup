@@ -12860,15 +12860,6 @@
     "active": true,
     "update": false
   },
-  "2163364": {
-    "totalreply": 102,
-    "title": "[小岛工作室×微软 新作《OD》正式公开]",
-    "newtitle": "[小岛工作室×微软 新作《OD - KNOCK》正式公开]",
-    "lastedit": 1758843850,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2262748": {
     "totalreply": 72,
     "title": "[＂迷路的柔弱女高中生＂]",
@@ -13019,15 +13010,6 @@
     "newtitle": "[已得到西大认证！这些被西大提防的大学里，有你的大学上榜吗？]",
     "lastedit": 1758873255,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2262830": {
-    "totalreply": 55,
-    "title": "[红白机当初为什么要有SELECT这个按键]",
-    "newtitle": "[红白机当初为什么要有SELECT这个按键]",
-    "lastedit": 1758843490,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -15476,7 +15458,7 @@
     "newtitle": "[冈本001还是超薄套的极限吗？]",
     "lastedit": 1759794008,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1985585": {
@@ -16551,10 +16533,10 @@
     "update": false
   },
   "2263988": {
-    "totalreply": 59,
+    "totalreply": 61,
     "title": "[员工为给领导添堵向境外泄密导致货船公海被拦]",
     "newtitle": "[员工为给领导添堵向境外泄密导致货船公海被拦]",
-    "lastedit": 1760034491,
+    "lastedit": 1760053569,
     "category": "外野",
     "active": true,
     "update": false
@@ -16578,10 +16560,10 @@
     "update": false
   },
   "2263992": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[新公司的开发环境太令人痛苦了]",
     "newtitle": "[新公司的开发环境太令人痛苦了]",
-    "lastedit": 1760050809,
+    "lastedit": 1760053568,
     "category": "外野",
     "active": true,
     "update": false
