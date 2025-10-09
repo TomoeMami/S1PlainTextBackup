@@ -161,3 +161,13 @@ QQ20251009-204453.png
 
 <img src="https://img.stage1st.com/forum/202510/09/204620bby1iz05y9w5cn9d.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ichihatsu  
+##### 62#       发表于 2025-10-10 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68546243&amp;ptid=2262382" target="_blank">纸窗泪 发表于 2025-10-9 20:48</a>
+是这个任务吧，我这里很奇怪，这任务是金色主线的标记，但是显示为可重复完成，在加利亚城接，接了任务以 ...</blockquote>
+就是这个<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">显示成主线还没法放弃，方便的话能截个地图位置吗，我是找了好几年都没找到这个地点
+
