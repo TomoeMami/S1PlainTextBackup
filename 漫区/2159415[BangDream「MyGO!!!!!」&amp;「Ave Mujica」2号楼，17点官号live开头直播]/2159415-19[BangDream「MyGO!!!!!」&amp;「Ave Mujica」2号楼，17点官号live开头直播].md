@@ -68,3 +68,13 @@
 [【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你02 红色跑车-哔哩哔哩番剧】](https://b23.tv/ep2237177)
 <img src="https://p.sda1.dev/27/c42f77139a2f07b3824022f2bdb4273d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 27292#         楼主| 发表于 2025-10-10 08:49
+
+<blockquote>CyDiablo 发表于 2025-10-9 05:23
+【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你02 红色跑车-哔哩哔哩番剧】</blockquote>
+我们邦邦终于也是真百动画了
+
