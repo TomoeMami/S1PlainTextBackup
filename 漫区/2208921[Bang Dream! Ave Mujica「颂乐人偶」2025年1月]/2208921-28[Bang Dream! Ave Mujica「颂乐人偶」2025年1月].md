@@ -212,3 +212,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 这种阴湿花篮不拆还给留在那不成<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝恩德塔  
+##### 41363#       发表于 2025-10-10 23:41
+
+ 本帖最后由 贝恩德塔 于 2025-10-10 23:44 编辑 
+
+这有什么不好理解的，梅西如果有送花篮环节有梅西黑去送了个看起来没啥毛病，其实小图里藏着一米4身高侏儒身材脸上贴了个日本人胡子然后跪着给c罗咬，旁边放着阿根廷骨灰的花篮，花篮被梅西粉直接原地烧了甚至能引发国际冲突都没啥事吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上是真不知道假不知道鸡狗暗区的存在？ 
+

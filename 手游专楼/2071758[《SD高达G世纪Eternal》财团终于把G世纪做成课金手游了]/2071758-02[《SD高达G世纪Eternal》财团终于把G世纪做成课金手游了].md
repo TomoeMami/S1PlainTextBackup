@@ -6475,3 +6475,15 @@ ex冰箱是盾，ex绿螳螂是攻
 
 10张定向券抽完了毛都没出就这样了？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2867#       发表于 2025-10-10 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68551931&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-10-10 22:07</a>
+10张定向券抽完了毛都没出就这样了？</blockquote>
+就是看运气。。。有的人能中ur在那晒<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
