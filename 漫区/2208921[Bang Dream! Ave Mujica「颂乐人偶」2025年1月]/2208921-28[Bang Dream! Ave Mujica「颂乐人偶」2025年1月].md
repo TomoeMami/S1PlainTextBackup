@@ -192,3 +192,23 @@ STAFF2使用卡组：Ave Mujica卡组
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡狗批线下P事真多
 
+
+*****
+
+####  凉良  
+##### 41361#       发表于 2025-10-10 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68548851&amp;ptid=2208921" target="_blank">Milarvoz 发表于 2025-10-10 13:09</a>
+
+啊？这花篮有雷点吗……
+
+—— 来自 samsung SM-S9380, Android 16, 鹅球 v3.5.99</blockquote>
+给死人的花加世冠输的蝶粉花  标牌上的橡果4个木头
+
+*****
+
+####  凉良  
+##### 41362#       发表于 2025-10-10 23:27
+
+这种阴湿花篮不拆还给留在那不成<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
