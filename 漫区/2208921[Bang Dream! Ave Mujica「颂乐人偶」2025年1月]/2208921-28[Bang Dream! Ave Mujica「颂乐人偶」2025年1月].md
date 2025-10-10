@@ -293,3 +293,21 @@ STAFF2使用卡组：Ave Mujica卡组
 【鸡狗对邦】2025.10『剧本说』花篮绘制过程
 [https://www.bilibili.com/video/BV1xw4jzgEwZ/](https://www.bilibili.com/video/BV1xw4jzgEwZ/)
 
+
+*****
+
+####  丰川祥  
+##### 41370#       发表于 2025-10-11 04:02
+
+说明你楼确实是路人多，暗区上浮这种事不抵制有一就有二，有什么奇怪的
+
+竟然还有烟雾镜的图
+
+<img src="https://img.stage1st.com/forum/202510/11/040213u0iq17zza5glzwwg.png" referrerpolicy="no-referrer">
+
+<strong>E3550C9AB820734BE06C7E9A4B7D3650.png</strong> (506.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 04:02 上传
+
