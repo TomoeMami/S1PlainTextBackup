@@ -274,3 +274,22 @@ STAFF2使用卡组：Ave Mujica卡组
 只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了，那个花篮对我来说除了感觉黑白照不妥以外其他我都 ...</blockquote>
 因为花篮要过审核啊 你以为直白攻击少了吗
 
+
+*****
+
+####  الطائر  
+##### 41369#       发表于 2025-10-11 03:14
+
+与此同时，在不为人知的角落……
+
+<img src="https://img.stage1st.com/forum/202510/11/031248tq1bb2lxmbjrh12q.jpg" referrerpolicy="no-referrer">
+
+<strong>4b6d50adb920d8944c60bc6f5012785d5233835.jpg</strong> (552.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 03:12 上传
+
+【鸡狗对邦】2025.10『剧本说』花篮绘制过程
+[https://www.bilibili.com/video/BV1xw4jzgEwZ/](https://www.bilibili.com/video/BV1xw4jzgEwZ/)
+
