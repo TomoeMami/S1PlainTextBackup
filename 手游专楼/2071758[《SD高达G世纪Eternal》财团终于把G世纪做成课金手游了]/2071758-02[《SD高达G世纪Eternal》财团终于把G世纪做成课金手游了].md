@@ -6487,3 +6487,13 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 2868#       发表于 2025-10-10 23:59
+
+为什么这次ex老是打着打着就卡住不动了淦…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
