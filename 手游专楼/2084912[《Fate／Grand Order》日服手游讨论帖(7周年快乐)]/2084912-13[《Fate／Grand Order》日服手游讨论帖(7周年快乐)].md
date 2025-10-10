@@ -1500,3 +1500,14 @@ a店的5%氪金折扣明天中午截止了
 
 早说啊，现在都是石不过三，只出了藤堂，没石头了，只能肝了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 18384#       发表于 2025-10-11 00:58
+
+签到还有30石
+优势在我
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

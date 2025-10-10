@@ -264,3 +264,13 @@ STAFF2使用卡组：Ave Mujica卡组
 只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了，那个花篮对我来说除了感觉黑白照不妥以外其他我都 ...</blockquote>
 丰川祥子吐槽吧就很直白啊，直接让丰川祥子被她爸被她姥爷草的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真认为真白会通过花篮审核吗
 
+
+*****
+
+####  凉良  
+##### 41368#       发表于 2025-10-11 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552546&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-10-11 00:38</a>
+只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了，那个花篮对我来说除了感觉黑白照不妥以外其他我都 ...</blockquote>
+因为花篮要过审核啊 你以为直白攻击少了吗
+
