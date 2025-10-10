@@ -6459,3 +6459,11 @@ ex冰箱是盾，ex绿螳螂是攻
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次送的居然是定向抽，不是普池卷
 
+
+*****
+
+####  王俊凯  
+##### 2865#       发表于 2025-10-10 21:03
+
+普池券在第5.6箱，有9张的
+

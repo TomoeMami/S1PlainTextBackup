@@ -191,3 +191,24 @@ QQ20251010-195529.png
 
 <img src="https://img.stage1st.com/forum/202510/10/195652lih382gvihivwz3i.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ichihatsu  
+##### 64#       发表于 2025-10-10 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68551304&amp;ptid=2262382" target="_blank">纸窗泪 发表于 2025-10-10 19:57</a>
+
+就加利亚城右下方画圈的地方，不过你点击任务他不是会自动提示要去的地方么，怎么会找不到......
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">我这应该是BUG了，地图上到这就没了，点任务也不会寻路
+
+<img src="https://img.stage1st.com/forum/202510/10/205558imsrfewfsrewr9tj.png" referrerpolicy="no-referrer">
+
+<strong>0291a8c5-bf85-4376-ac10-2b836cebb9b6.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 20:55 上传
+
