@@ -6414,3 +6414,17 @@ ex冰箱是盾，ex绿螳螂是攻
 
 不然ur辅助机师都拿去开攻击机了
 
+
+*****
+
+####  一个陆仁贾  
+##### 2861#       发表于 2025-10-10 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68547994&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-10-10 10:24</a>
+以后早期机师都给加一个和自己机体绑定的三技能进行强化么
+
+不然ur辅助机师都拿去开攻击机了 ...</blockquote>
+再怎么强化，输出也比不上攻击机多攻击一次吧？
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
