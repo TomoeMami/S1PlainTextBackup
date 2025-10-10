@@ -6451,3 +6451,11 @@ ex冰箱是盾，ex绿螳螂是攻
 
 483了，弃坑！
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2864#       发表于 2025-10-10 18:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次送的居然是定向抽，不是普池卷
+
