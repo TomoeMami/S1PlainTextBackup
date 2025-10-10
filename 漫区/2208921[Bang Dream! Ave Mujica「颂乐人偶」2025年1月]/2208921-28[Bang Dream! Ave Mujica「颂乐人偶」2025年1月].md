@@ -55,3 +55,11 @@
 
 送的组织有啊 我不信国内官方不知道现在鸡狗什么环境
 
+
+*****
+
+####  osore  
+##### 41351#       发表于 2025-10-10 13:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送到演出现场了吗
+
