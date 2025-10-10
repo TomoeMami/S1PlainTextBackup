@@ -130,3 +130,33 @@ STAFF2使用卡组：Ave Mujica卡组
 ・可能存在不影响对战的范围内省略一部分操作的情况</blockquote>
        [https://www.bilibili.com/video/BV1Fq47zKEcK](https://www.bilibili.com/video/BV1Fq47zKEcK)
 
+
+*****
+
+####  仟音一心  
+##### 41356#       发表于 2025-10-10 17:27
+
+<img src="https://img.stage1st.com/forum/202510/10/172715cltuw0n89426e80n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 17:27 上传
+
+<img src="https://img.stage1st.com/forum/202510/10/172723zjciss7wcumu7874.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 17:27 上传
+
+<img src="https://img.stage1st.com/forum/202510/10/172758b6x10plhu1704n1n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 17:27 上传
+
