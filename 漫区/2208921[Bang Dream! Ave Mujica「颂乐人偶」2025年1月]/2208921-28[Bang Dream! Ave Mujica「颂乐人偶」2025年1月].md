@@ -63,3 +63,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送到演出现场了吗
 
+
+*****
+
+####  Milarvoz  
+##### 41352#       发表于 2025-10-10 15:05
+
+刚摆出来牌子就被人扯了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
