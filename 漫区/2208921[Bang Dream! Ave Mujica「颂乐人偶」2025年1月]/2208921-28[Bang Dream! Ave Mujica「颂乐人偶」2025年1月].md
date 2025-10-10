@@ -38,3 +38,20 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">单看这个花篮好像没啥问题，顺便青雀这个b头像一眼就认出来了
 
+
+*****
+
+####  Milarvoz  
+##### 41349#       发表于 2025-10-10 13:09
+
+啊？这花篮有雷点吗……
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  哈曼的YY  
+##### 41350#       发表于 2025-10-10 13:11
+
+送的组织有啊 我不信国内官方不知道现在鸡狗什么环境
+
