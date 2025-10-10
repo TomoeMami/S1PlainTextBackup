@@ -6467,3 +6467,11 @@ ex冰箱是盾，ex绿螳螂是攻
 
 普池券在第5.6箱，有9张的
 
+
+*****
+
+####  dfdddfdd  
+##### 2866#       发表于 2025-10-10 22:07
+
+10张定向券抽完了毛都没出就这样了？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
