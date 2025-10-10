@@ -105,3 +105,28 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斗争太激烈了
 
+
+*****
+
+####  堀内爱里衣  
+##### 41355#       发表于 2025-10-10 17:18
+
+       <strong>STAFF对战 「MyGO!!!!!×Ave Mujica」【简中版放课后Weiß Schwarz】</strong> <blockquote><img src="https://img.stage1st.com/forum/202510/10/171753fi6wgntgibt88ldm.jpg" referrerpolicy="no-referrer">
+
+集换式卡牌游戏 黑白双翼
+
+本次由两位STAFF为大家带来在2025年10月10日发售的
+
+简体中文版 补充包「MyGO!!!!! × Ave Mujica」
+
+使用其中卡片进行构筑的对战视频！
+
+STAFF1使用卡组：MyGO!!!!!卡组 
+
+STAFF2使用卡组：Ave Mujica卡组 
+
+・可能存在不影响对战的范围内与规则不完全一致的细微操作
+
+・可能存在不影响对战的范围内省略一部分操作的情况</blockquote>
+       [https://www.bilibili.com/video/BV1Fq47zKEcK](https://www.bilibili.com/video/BV1Fq47zKEcK)
+
