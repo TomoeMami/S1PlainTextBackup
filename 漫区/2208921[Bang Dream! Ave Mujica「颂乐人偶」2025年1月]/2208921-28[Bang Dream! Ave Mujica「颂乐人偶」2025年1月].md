@@ -73,3 +73,27 @@
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  丰川祥  
+##### 41353#       发表于 2025-10-10 15:57
+
+结算画面<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/10/155621g6izhehhioi07iir.png" referrerpolicy="no-referrer">
+
+<strong>66D7ECB032701B7AD86059FC43319963.png</strong> (251.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 15:56 上传
+
+<img src="https://img.stage1st.com/forum/202510/10/155732p317bk7ey5c1xx37.png" referrerpolicy="no-referrer">
+
+<strong>88527FF13D7FD2F9590F3A38213DEBEE.png</strong> (687.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 15:57 上传
+
