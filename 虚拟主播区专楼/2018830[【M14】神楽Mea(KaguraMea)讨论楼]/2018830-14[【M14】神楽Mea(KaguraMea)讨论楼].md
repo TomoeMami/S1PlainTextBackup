@@ -23061,3 +23061,12 @@ Donate 我收下啦。
 如同在篝火旁边一样柔和，非常推荐的歌回
 半夜突击的话有命顶住的财布也可以重点关注一下
 
+
+*****
+
+####  术士q  
+##### 19677#       发表于 2025-10-11 01:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">好可怕的游戏，不过今天咩确实玩爽了
+开心就好
+
