@@ -6428,3 +6428,18 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 2862#       发表于 2025-10-10 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68548162&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-10-10 10:51</a>
+
+再怎么强化，输出也比不上攻击机多攻击一次吧？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+能加到6射程，或者本身输出够强的辅助机配上多一次支援的话就不好说了
+
+不过支援家兔好像评价本来就特别弱来着？我是没有啦
+
