@@ -1,0 +1,13 @@
+﻿
+*****
+
+####  lydia5989  
+##### 177#       发表于 2025-10-10 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68530428&amp;ptid=2187541" target="_blank">粉儿alice 发表于 2025-10-5 17:52</a>
+
+这也算二偶企划 要组女团也是要开演唱会的
+
+论鬼后和脚印姐地位要给三新人做陪 国王唱片也有本事的 ...</blockquote>
+一个人的命运啊，当然要靠自我奋斗，但是也要考虑到动画的进程，真能给这三抬起来这三也是烧高香了
+

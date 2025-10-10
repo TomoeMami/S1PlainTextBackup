@@ -6404,3 +6404,13 @@ ex冰箱是盾，ex绿螳螂是攻
 
 <img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">今早更新完感觉丝滑了好多，是错觉吗
 
+
+*****
+
+####  洛克萨斯  
+##### 2860#       发表于 2025-10-10 10:24
+
+以后早期机师都给加一个和自己机体绑定的三技能进行强化么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不然ur辅助机师都拿去开攻击机了
+
