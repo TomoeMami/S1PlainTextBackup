@@ -241,3 +241,26 @@ STAFF2使用卡组：Ave Mujica卡组
 这我是真没看出来，这也不是花圈啊，还是说隐藏了什么要玩足游和混现地才懂的梗 ...</blockquote>
 简单来说，丰川祥子吐槽吧是一个恶意攻击丰川祥子，给丰川祥子造黄谣，和邦多利百破吧属于一伙的吧，虽然同属于鸡狗暗区，但和千早爱音吐槽吧和邦紫吧基本上处于对立状态，图标都是以恶意攻击丰川祥子为主，送的却是丰川祥子花篮，你说属于什么成分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41366#       发表于 2025-10-11 00:38
+
+只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了，那个花篮对我来说除了感觉黑白照不妥以外其他我都看不出来<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这要是足球篮球体育竞技圈的斗争就直接多了，黑白照丑化照加上各种黑称，主打一个直白<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  贝恩德塔  
+##### 41367#       发表于 2025-10-11 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552546&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-10-11 00:38</a>
+
+只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了，那个花篮对我来说除了感觉黑白照不妥以外其他我都 ...</blockquote>
+丰川祥子吐槽吧就很直白啊，直接让丰川祥子被她爸被她姥爷草的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真认为真白会通过花篮审核吗
+
