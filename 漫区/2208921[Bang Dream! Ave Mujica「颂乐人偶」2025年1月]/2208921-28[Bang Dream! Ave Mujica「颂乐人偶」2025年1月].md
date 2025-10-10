@@ -230,3 +230,14 @@ STAFF2使用卡组：Ave Mujica卡组
 
 这我是真没看出来，这也不是花圈啊，还是说隐藏了什么要玩足游和混现地才懂的梗
 
+
+*****
+
+####  贝恩德塔  
+##### 41365#       发表于 2025-10-11 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552427&amp;ptid=2208921" target="_blank">Yugao 发表于 2025-10-11 00:03</a>
+
+这我是真没看出来，这也不是花圈啊，还是说隐藏了什么要玩足游和混现地才懂的梗 ...</blockquote>
+简单来说，丰川祥子吐槽吧是一个恶意攻击丰川祥子，给丰川祥子造黄谣，和邦多利百破吧属于一伙的吧，虽然同属于鸡狗暗区，但和千早爱音吐槽吧和邦紫吧基本上处于对立状态，图标都是以恶意攻击丰川祥子为主，送的却是丰川祥子花篮，你说属于什么成分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

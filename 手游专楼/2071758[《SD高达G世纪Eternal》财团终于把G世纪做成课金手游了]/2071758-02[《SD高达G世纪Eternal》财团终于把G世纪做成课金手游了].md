@@ -6497,3 +6497,21 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  chivalry  
+##### 2869#       发表于 2025-10-11 00:08
+
+<img src="https://img.stage1st.com/forum/202510/11/000750op044ozwpp9nihau.jpg" referrerpolicy="no-referrer">
+
+<strong>B332A753-1E94-44E7-8BAF-9C5D70E970D4.jpg</strong> (276.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 00:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">定向券出的这个，很难说自己欧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
