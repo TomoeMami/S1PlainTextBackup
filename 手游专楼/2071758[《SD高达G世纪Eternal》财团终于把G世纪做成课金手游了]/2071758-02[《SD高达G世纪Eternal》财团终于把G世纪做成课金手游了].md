@@ -6579,3 +6579,18 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  夜之光  
+##### 2875#       发表于 2025-10-11 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68553313&amp;ptid=2071758" target="_blank">远野乙姬 发表于 2025-10-11 09:31</a>
+
+我有一个想法…不是自己特别喜欢的卡池ssr是不是就可以拆了
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3. ...</blockquote>
+是的，卡池SSR及以下的别叠起来全拆了，然后换UR突破道具。
+
+这游戏基本用不到卡池SSR，永恒拿钻锁开发活动机，其他能上UR就上UR了。
+
