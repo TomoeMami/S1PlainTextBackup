@@ -168,3 +168,39 @@
 
 叫大家出来就为了这点小事·jpg<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3671#         楼主| 发表于 2025-10-11 14:50
+
+［GDC 2025］ゲームの“顔”としてのユーザーインタフェース──「メタファー：リファンタジオ」のUIは，感情を揺さぶる体験の一部
+[https://www.4gamer.net/games/367/G036702/20250322013/](https://www.4gamer.net/games/367/G036702/20250322013/)
+
+［GDC 2025］アトラスのRPGはなぜ“悪魔的”に難しいのに面白いのか──「メタファー：リファンタジオ」が挑んだ，コマンドバトルの再構築
+[https://www.4gamer.net/games/367/G036702/20250322011/](https://www.4gamer.net/games/367/G036702/20250322011/)
+
+<img src="https://p.sda1.dev/27/59d72397c6994b40f1862af2633e61ef/20251011_144705.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/1b59b3a3f437dadfb9300d3601aad6a6/20251011_144708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/81ffc78bd1fa2f89c2d2854a9a11b90e/20251011_144718.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/afb38a9f28a845560f05ca3584015a7f/20251011_144816.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/a29bb2a599339cf5f84270f1051c97da/20251011_144814.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/6e5951a5e608e2c93b5750382266cffc/20251011_144735.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/cbffd00f696ac8bf87c9fb1a787c840c/20251011_144736.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3672#         楼主| 发表于 2025-10-11 14:51
+
+『メタファー：リファンタジオ』 発売1周年を記念して
+
+キャラクターデザイナー副島成記描き下ろしの記念イラストをなんと…！
+
+主人公・ガリカ・ストロール・ヒュルケンベルグの4キャラ分一挙公開！
+<img src="https://p.sda1.dev/27/2a786dc74a8571e3103c416311f69257/20251011_143049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/b08547462d347ad7c4ca8cea48860b5b/20251011_143221.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/45355668035496713a54e513754e09a6/20251011_143223.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/be4404d0adc431ece4f0282599eeb1e1/20251011_143224.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/b6aa7c9d8db95ba9a929b3c919ec75d5/20251011_143225.jpg" referrerpolicy="no-referrer">
+

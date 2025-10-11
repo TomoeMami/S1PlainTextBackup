@@ -6602,3 +6602,17 @@ ex冰箱是盾，ex绿螳螂是攻
 
 这池子太谜了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 60抽2机1船 全都是歪的
 
+
+*****
+
+####  无念  
+##### 2877#       发表于 2025-10-11 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552442&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-10-11 00:08</a>
+定向券出的这个，很难说自己欧
+
+—— 来自 S1Fun</blockquote>
+这几个卡池都在补强突破力啊，不亏的
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
