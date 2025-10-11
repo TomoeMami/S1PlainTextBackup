@@ -1559,3 +1559,38 @@ a店的5%氪金折扣明天中午截止了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">漏油说的对！
 
+
+*****
+
+####  qixinno2  
+##### 18389#       发表于 2025-10-11 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68554553&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-11 13:03</a>
+
+漏油说的对！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 不愧狗萌新 随随便便就出货了
+
+*****
+
+####  exiaexa  
+##### 18390#       发表于 2025-10-11 14:43
+
+只能说我和楼友们玩的根本不是一个游戏
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18391#       发表于 2025-10-11 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68554981&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-10-11 14:43</a>
+只能说我和楼友们玩的根本不是一个游戏</blockquote>
+应该是他和我们玩的不是同一个游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 18392#       发表于 2025-10-12 00:34
+
+老咸鱼终于打完奏章四，花了300石才new了杀狐。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
