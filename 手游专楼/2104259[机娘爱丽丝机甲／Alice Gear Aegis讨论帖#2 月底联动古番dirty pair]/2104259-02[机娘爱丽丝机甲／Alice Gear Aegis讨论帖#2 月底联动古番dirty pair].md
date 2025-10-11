@@ -181,3 +181,19 @@ fa最新的是唯和未罗。
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1710#       发表于 2025-10-11 17:56
+
+<img src="https://img.stage1st.com/forum/202510/11/175728ovs2sz4zf1gs144o.jpg" referrerpolicy="no-referrer">
+
+<strong>G248y-GboAEHYkw.jpg</strong> (387.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 17:57 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

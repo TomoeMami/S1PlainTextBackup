@@ -212,3 +212,14 @@ QQ20251010-195529.png
 
 2025-10-10 20:55 上传
 
+
+*****
+
+####  纸窗泪  
+##### 65#       发表于 2025-10-11 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68551615&amp;ptid=2262382" target="_blank">Ichihatsu 发表于 2025-10-10 20:58</a>
+
+我这应该是BUG了，地图上到这就没了，点任务也不会寻路,反正都出演职员表了，以后重开档玩吧</blockquote>
+等下，为啥你这个画面和我差别这么大
+
