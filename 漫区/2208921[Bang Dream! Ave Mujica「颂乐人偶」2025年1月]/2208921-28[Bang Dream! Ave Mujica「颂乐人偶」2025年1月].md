@@ -692,3 +692,27 @@ STAFF2使用卡组：Ave Mujica卡组
 
 对邦七宗罪
 
+
+*****
+
+####  丰川祥  
+##### 41400#       发表于 2025-10-12 04:06
+
+李弄卖得不知天地为何物了，99
+
+<img src="https://img.stage1st.com/forum/202510/12/040607cq5b9qqfu3urffhw.png" referrerpolicy="no-referrer">
+
+<strong>D860B43161C5F30E0C1116A4137CF069.png</strong> (214.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 04:06 上传
+
+<img src="https://img.stage1st.com/forum/202510/12/040608nt2xcu29y2xuxxd2.png" referrerpolicy="no-referrer">
+
+<strong>99089CDAEE9258EFE5C6FE6216A789AD.png</strong> (294.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 04:06 上传
+
