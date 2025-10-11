@@ -1511,3 +1511,51 @@ a店的5%氪金折扣明天中午截止了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 18385#       发表于 2025-10-10 20:17
+
+楼友要的卡池延期
+
+<img src="https://img.stage1st.com/forum/202510/10/201718nyayq7ldqwfglgr2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-10 20:17 上传
+
+*****
+
+####  khxooo  
+##### 18386#       发表于 2025-10-11 00:25
+
+早说啊，现在都是石不过三，只出了藤堂，没石头了，只能肝了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18387#       发表于 2025-10-11 00:58
+
+签到还有30石
+优势在我
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 18388#       发表于 2025-10-11 13:03
+
+<img src="https://img.stage1st.com/forum/202510/11/130309yribf8a48qfair8z.png" referrerpolicy="no-referrer">
+
+<strong>3434.png</strong> (598.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 13:03 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">漏油说的对！
+

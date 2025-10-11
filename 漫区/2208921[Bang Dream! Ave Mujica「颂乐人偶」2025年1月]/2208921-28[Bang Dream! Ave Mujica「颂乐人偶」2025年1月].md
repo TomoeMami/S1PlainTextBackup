@@ -490,3 +490,16 @@ STAFF2使用卡组：Ave Mujica卡组
 
 —— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  丰川祥  
+##### 41389#       发表于 2025-10-11 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68554456&amp;ptid=2208921" target="_blank">小妻水亚美 发表于 2025-10-11 12:44</a>
+
+那个反诈app的海报怎么领啊？
+
+—— 来自 motorola XT2401-2, Android 15, 鹅球 v3.5.99</blockquote>
+下了之后给结账的stf看下就发海报
+
