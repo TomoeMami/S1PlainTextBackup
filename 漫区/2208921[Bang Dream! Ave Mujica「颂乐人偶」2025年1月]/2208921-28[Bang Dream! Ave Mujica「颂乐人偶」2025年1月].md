@@ -416,3 +416,19 @@ STAFF2使用卡组：Ave Mujica卡组
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">忘战必危
 
+
+*****
+
+####  丰川祥  
+##### 41381#       发表于 2025-10-11 10:27
+
+你楼完结后没几个活人，就这两天的回复也算不上纯良吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不了解不关心但是懂完了
+
+
+*****
+
+####  厄神之息  
+##### 41382#       发表于 2025-10-11 10:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">项目四这种从撸狗那偷的烂梗属于是只要你混的是贴吧系你一眼就能知道什么意思的抽象玩意，如果你不知道，觉得小众。除了表面你的社交体系不包含贴吧外什么都说明不了。你当然可以说“哎呀，我都不用贴吧这种首陀罗软件的！贱民说的话有什么意义？”但是因为自己不用就觉得“贴吧系”是小圈子那真是大可不必。我说难听的，你列一大堆社交媒体，那顶上活人加一起可能都没贴吧多。
+
