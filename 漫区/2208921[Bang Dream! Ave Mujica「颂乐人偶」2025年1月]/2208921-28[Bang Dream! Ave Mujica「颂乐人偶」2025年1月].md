@@ -674,3 +674,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
 春日影可以合唱全曲，天球最后四句却合唱的不行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 41398#       发表于 2025-10-12 01:23
+
+看群里的repo西面基本看不了多少东西 都喊退钱了
+
