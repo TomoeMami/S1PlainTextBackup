@@ -519,3 +519,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不是联动168亿吗
 
+
+*****
+
+####  cccpprc  
+##### 41392#       发表于 2025-10-11 23:21
+
+所以说某大主播的事情什么情况？有没有希望发展成蕾忍2.0
+
