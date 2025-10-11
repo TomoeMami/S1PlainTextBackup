@@ -6616,3 +6616,25 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 2878#       发表于 2025-10-11 15:06
+
+<img src="https://img.stage1st.com/forum/202510/11/150634w4nltoztat080sro.jpg" referrerpolicy="no-referrer">
+
+<strong>11DA8A9CC5A29A97AF87307895ABAB31.jpg</strong> (206.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 15:06 上传
+
+<img src="https://img.stage1st.com/forum/202510/11/150641mjgzs891c2bj5fzs.jpg" referrerpolicy="no-referrer">
+
+<strong>E5029391A24ADEDCE6C0B3578D63A540.jpg</strong> (208.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 15:06 上传
+
