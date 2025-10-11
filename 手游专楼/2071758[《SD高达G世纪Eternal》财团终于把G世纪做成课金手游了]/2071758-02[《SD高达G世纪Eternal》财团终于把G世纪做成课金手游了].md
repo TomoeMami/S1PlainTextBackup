@@ -6515,3 +6515,15 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dfdddfdd  
+##### 2870#       发表于 2025-10-11 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552325&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-10-10 23:39</a>
+就是看运气。。。有的人能中ur在那晒
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+确实 群里有人在晒出大冰箱了...
+
