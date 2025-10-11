@@ -87,3 +87,11 @@ soul mate害人<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二集搞了3话啊，按照这个进度估计动画12集就是冲着做完漫画42集去的，估计有角色的戏份要被删了，就决定是你了二胡（？）。话说第二集结尾好像没有把校长喊【冬村】的部分做出来？
 
+
+*****
+
+####  hyc0769  
+##### 75#       发表于 2025-10-11 20:18
+
+两集下来，节奏非常微妙，分镜也很一般。动画开局观感比漫画糟糕多了
+
