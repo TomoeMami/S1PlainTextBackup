@@ -6569,3 +6569,13 @@ ex冰箱是盾，ex绿螳螂是攻
 
 这个月都不黑万代了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 2874#       发表于 2025-10-11 13:06
+
+这个给的票10连也出冰箱了，还行，没想到这个卡池也有3000拿，感谢大佬<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
