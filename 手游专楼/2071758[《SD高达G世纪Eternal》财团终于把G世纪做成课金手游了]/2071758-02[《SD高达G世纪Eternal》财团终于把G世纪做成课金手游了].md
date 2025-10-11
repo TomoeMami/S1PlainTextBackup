@@ -6646,3 +6646,15 @@ ex冰箱是盾，ex绿螳螂是攻
 
 不会要出掉毛限定了吧？！没钻了啊！<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 2880#       发表于 2025-10-11 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555001&amp;ptid=2071758" target="_blank">无念 发表于 2025-10-11 14:48</a>
+这几个卡池都在补强突破力啊，不亏的
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">但是这是 00 系加强
+
