@@ -408,3 +408,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
 这么热闹还以为有啥新情报，原来又是那几个破吧的吉列豆蒸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 41380#       发表于 2025-10-11 10:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">忘战必危
+
