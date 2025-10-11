@@ -223,3 +223,14 @@ QQ20251010-195529.png
 我这应该是BUG了，地图上到这就没了，点任务也不会寻路,反正都出演职员表了，以后重开档玩吧</blockquote>
 等下，为啥你这个画面和我差别这么大
 
+
+*****
+
+####  Ichihatsu  
+##### 66#       发表于 2025-10-11 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555883&amp;ptid=2262382" target="_blank">纸窗泪 发表于 2025-10-11 17:51</a>
+
+等下，为啥你这个画面和我差别这么大</blockquote>
+是之前NS版的，除了画面翻译其他内容一样
+
