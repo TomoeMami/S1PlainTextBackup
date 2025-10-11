@@ -544,3 +544,125 @@ STAFF2使用卡组：Ave Mujica卡组
 
 虽然不知道你说什么，lex当年是被管人痴搞死的，少女乐队粉丝应该没有管人痴的水平……
 
+
+*****
+
+####  堀内爱里衣  
+##### 41395#       发表于 2025-10-12 00:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/004816dh507vdtxajvmh8h.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-46-23.jpg</strong> (276.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:48 上传
+
+       [https://x.com/bang_dream_info/status/1977033951559794789](https://x.com/bang_dream_info/status/1977033951559794789)
+
+       [https://liveviewing.jp/bangdream-shanghai/](https://liveviewing.jp/bangdream-shanghai/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41396#       发表于 2025-10-12 00:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005335vnonnx6fl30fupzn.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-49-43.jpg</strong> (190.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/sasakirico/status/1977008533045756122](https://x.com/sasakirico/status/1977008533045756122)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005334zi4hsozimuufos8u.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-50-15.jpg</strong> (250.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/Kanon_Takao/status/1977022214450168236](https://x.com/Kanon_Takao/status/1977022214450168236)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005334icgfgzbmg9ybvynr.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-50-43.jpg</strong> (208.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/AkaneY_banu/status/1977022249996894441](https://x.com/AkaneY_banu/status/1977022249996894441)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005333pq6egdajawcjaz9u.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-51-15.jpg</strong> (235.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/okada_mei0519/status/1977030419179786449](https://x.com/okada_mei0519/status/1977030419179786449)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005332zttsbdn6nzpsbdnp.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-51-37.jpg</strong> (211.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/Watase_Yuzuki/status/1977034797102121202](https://x.com/Watase_Yuzuki/status/1977034797102121202)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005332ohzubo62t2d9rdsw.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-51-59.jpg</strong> (324.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/tanda_hazuki/status/1977037837620199797](https://x.com/tanda_hazuki/status/1977037837620199797)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005331n1yle1ey3o1ywkyk.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-52-23.jpg</strong> (29.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/sasakirico/status/1977047130083934429](https://x.com/sasakirico/status/1977047130083934429)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/005331xggx3030f4zfbg3x.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_00-52-41.jpg</strong> (27.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 00:53 上传
+
+       [https://x.com/tanda_hazuki/status/1977049490902405186](https://x.com/tanda_hazuki/status/1977049490902405186)
+
