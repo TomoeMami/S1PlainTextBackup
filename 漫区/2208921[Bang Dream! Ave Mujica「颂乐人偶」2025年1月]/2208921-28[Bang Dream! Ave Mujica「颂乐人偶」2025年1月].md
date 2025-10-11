@@ -449,3 +449,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 不了解不关心但是懂完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最爱面包超人  
+##### 41385#       发表于 2025-10-11 11:54
+
+祥子黑称不只是贴吧在发，舟游测评弹幕都有人发
+
+—— 来自 OPPO PHW110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
