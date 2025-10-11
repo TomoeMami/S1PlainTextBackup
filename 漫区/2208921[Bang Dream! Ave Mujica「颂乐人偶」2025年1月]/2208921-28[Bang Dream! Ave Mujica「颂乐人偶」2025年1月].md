@@ -375,3 +375,15 @@ STAFF2使用卡组：Ave Mujica卡组
 
 你自己对比一下，又是花又是隐喻，和直接骂侏儒鬼子跪下的，哪个更显得“有文化”或者“婉转”？
 
+
+*****
+
+####  贝恩德塔  
+##### 41377#       发表于 2025-10-11 09:44
+
+ 本帖最后由 贝恩德塔 于 2025-10-11 09:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68553277&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-10-11 09:24</a>
+
+我平常逛的和bang相关的社区，nga专版，s1专楼，bangdream吧，这些地方对你上面说的黑祥子的这花那花在这 ...</blockquote>
+想婉转起来谁不会啊，小学生都能空谈几句资本论的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要看它表面功夫做了什么，要看它实际做了什么，就像我外野发的王安石司马光贴一样，这都不理解的吗
+
