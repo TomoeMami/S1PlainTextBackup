@@ -1577,3 +1577,22 @@ toku：不，it's mygo（指炸团）
 <img src="https://p.sda1.dev/27/3b9d95fd569862d47e4a45f91fa6c91d/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/27/a1ff6099932f23a6cfd4d12a3821a349/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  循此苦旅  
+##### 152#       发表于 2025-10-11 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68355888&amp;ptid=2260817" target="_blank">武川日玄 发表于 2025-9-2 10:10</a>
+
+30年后会有极乐净土广场舞嘛？
+
+duangduang的更加扰民了</blockquote>
+不用30年后，3年前就有了
+
+大半夜在家跳《极乐净土》是什么体验？ [https://b23.tv/seoOV5c](https://b23.tv/seoOV5c)
+
+【vrchat】新ik体验之跳半首极乐净土 [https://b23.tv/La5rtwj](https://b23.tv/La5rtwj)
+
+【VRChat全身动捕】2025年了居然还在极乐净土，真是经典永流传啊！ [https://b23.tv/EI1cooE](https://b23.tv/EI1cooE)
+
