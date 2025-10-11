@@ -6658,3 +6658,15 @@ ex冰箱是盾，ex绿螳螂是攻
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">但是这是 00 系加强
 
+
+*****
+
+####  lighttt  
+##### 2881#       发表于 2025-10-11 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555234&amp;ptid=2071758" target="_blank">demon6666 发表于 2025-10-11 15:36</a>
+不会要出掉毛限定了吧？！没钻了啊！</blockquote>
+我刚300抽拿的船，不会吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
