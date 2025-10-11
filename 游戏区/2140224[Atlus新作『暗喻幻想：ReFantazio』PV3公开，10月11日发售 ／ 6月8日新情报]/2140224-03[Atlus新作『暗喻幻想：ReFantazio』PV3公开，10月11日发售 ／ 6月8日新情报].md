@@ -223,3 +223,13 @@
 
 —— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 3675#       发表于 2025-10-11 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555006&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2025-10-11 14:50</a>
+［GDC 2025］ゲームの“顔”としてのユーザーインタフェース──「メタファー：リファンタジオ」のUIは，感 ...</blockquote>
+感觉早期UI更好看也更符合奇幻风格，还不伤眼睛
+
