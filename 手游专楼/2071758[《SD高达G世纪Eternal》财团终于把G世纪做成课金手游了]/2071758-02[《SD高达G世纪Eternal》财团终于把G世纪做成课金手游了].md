@@ -6709,3 +6709,13 @@ ex冰箱是盾，ex绿螳螂是攻
 
 开服就入坑的话开发机体就够做完满突任务了
 
+
+*****
+
+####  mrm4B  
+##### 2887#       发表于 2025-10-11 19:02
+
+n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
