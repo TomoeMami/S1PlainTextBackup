@@ -311,3 +311,34 @@ STAFF2使用卡组：Ave Mujica卡组
 
 2025-10-11 04:02 上传
 
+
+*****
+
+####  Yugao  
+##### 41371#       发表于 2025-10-11 08:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这么说大概懂了，小偶像粉丝举对家证件照也不是没见过
+
+*****
+
+####  刑部姬真可爱  
+##### 41372#       发表于 2025-10-11 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68552570&amp;ptid=2208921" target="_blank">贝恩德塔 发表于 2025-10-11 00:45</a>
+
+丰川祥子吐槽吧就很直白啊，直接让丰川祥子被她爸被她姥爷轮 奸的您真认为暗区真直白攻击攻击性会不够吗什 ...</blockquote>
+毕竟你也说了是<strong><strong>暗</strong>区</strong>，不关注的话还真不知道，足篮体育竞技可不讲究暗区，就像你上面举的嘻嘻的例子，对于路人而言，一眼就能看出侏儒日胡跪骡是在侮辱嘻嘻，而祥子这花篮，路人还得去了解花的结构、含义，还有大概和萌战有关的花？还有什么橡果4个木头路人能懂什么意思吗？
+
+总而言之，你们要说这个花篮有什么什么问题那就直说，但真不要问看不懂的楼友什么脑回路，丰川祥子吐槽吧又不是什么热门吧，这花篮搞得跟解密似的更不是什么大众文化
+
+
+*****
+
+####  贝恩德塔  
+##### 41373#       发表于 2025-10-11 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68553141&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-10-11 08:55</a>
+
+毕竟你也说了是暗区，不关注的话还真不知道，足篮体育竞技可不讲究暗区，就像你上面举的嘻嘻的例子，对于 ...</blockquote>
+我可没说这件事你不知道是什么脑回路，是说你认为“只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了”是什么脑回路<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">二次元能有文化真是天大的笑话
+
