@@ -6670,3 +6670,18 @@ ex冰箱是盾，ex绿螳螂是攻
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  arthes  
+##### 2882#       发表于 2025-10-11 16:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我也是刚被神池子吸干，别那么快来掉毛啊
+
+*****
+
+####  ティグル  
+##### 2883#       发表于 2025-10-11 16:53
+
+送背心搞不好是抽拖三
+
