@@ -666,3 +666,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
        [https://x.com/tanda_hazuki/status/1977049490902405186](https://x.com/tanda_hazuki/status/1977049490902405186)
 
+
+*****
+
+####  yone00000  
+##### 41397#       发表于 2025-10-12 01:09
+
+春日影可以合唱全曲，天球最后四句却合唱的不行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

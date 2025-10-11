@@ -220,3 +220,15 @@ fa最新的是唯和未罗。
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1713#       发表于 2025-10-12 01:11
+
+<img src="https://p.sda1.dev/27/ce40adf8bd6c4599fb340bd8ce2651fa/image.jpg" referrerpolicy="no-referrer">
+
+日子不错，截图留念下
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
