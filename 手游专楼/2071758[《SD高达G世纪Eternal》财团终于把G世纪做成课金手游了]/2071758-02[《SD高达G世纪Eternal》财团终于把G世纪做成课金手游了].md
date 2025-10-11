@@ -6594,3 +6594,11 @@ ex冰箱是盾，ex绿螳螂是攻
 
 这游戏基本用不到卡池SSR，永恒拿钻锁开发活动机，其他能上UR就上UR了。
 
+
+*****
+
+####  vincenttc  
+##### 2876#       发表于 2025-10-11 14:19
+
+这池子太谜了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 60抽2机1船 全都是歪的
+
