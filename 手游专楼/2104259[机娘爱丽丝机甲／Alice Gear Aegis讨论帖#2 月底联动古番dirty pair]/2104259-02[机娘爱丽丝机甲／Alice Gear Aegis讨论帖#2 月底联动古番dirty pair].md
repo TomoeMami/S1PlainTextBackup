@@ -197,3 +197,12 @@ fa最新的是唯和未罗。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精英级自演乙  
+##### 1711#       发表于 2025-10-11 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555906&amp;ptid=2104259" target="_blank">madcow 发表于 2025-10-11 17:56</a></blockquote>
+求个出处
+
