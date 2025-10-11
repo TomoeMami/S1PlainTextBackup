@@ -1609,3 +1609,28 @@ duangduang的更加扰民了</blockquote>
 
 本质是toku不给她授权了，毕竟词曲作者都是toku，v家出身的底气啊233<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  含蓄地反复  
+##### 154#       发表于 2025-10-11 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555685&amp;ptid=2260817" target="_blank">仟音一心 发表于 2025-10-11 17:12</a>
+更新：不再演唱GARNiDELiA时期的歌曲。</blockquote>
+成员之间的隔阂多少是有的了
+
+
+*****
+
+####  X(iaolw)S  
+##### 155#       发表于 2025-10-11 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555871&amp;ptid=2260817" target="_blank">pigsy 发表于 2025-10-11 17:48</a>
+
+说是“不演唱”其实是稍微挽尊说法吧
+
+本质是toku不给她授权了，毕竟词曲作者都是toku，v家出身的底气啊2 ...</blockquote>
+这种商业化的版权不会是私人授权的，要么卖给了唱片公司，要么委托版权协会管理，要么自己开公司管理，
+
+也就最后一种情况能看作者心情卡授权，其他的按规矩申请就行
+
