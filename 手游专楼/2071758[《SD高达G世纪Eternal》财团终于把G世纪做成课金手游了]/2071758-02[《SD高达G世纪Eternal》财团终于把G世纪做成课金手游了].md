@@ -6527,3 +6527,19 @@ ex冰箱是盾，ex绿螳螂是攻
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
 确实 群里有人在晒出大冰箱了...
 
+
+*****
+
+####  zksandy  
+##### 2871#       发表于 2025-10-11 09:08
+
+<img src="https://img.stage1st.com/forum/202510/11/090834e773nrn339c9fjtm.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5445.png</strong> (505.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-11 09:08 上传
+
+确实能出冰箱
+

@@ -342,3 +342,13 @@ STAFF2使用卡组：Ave Mujica卡组
 毕竟你也说了是暗区，不关注的话还真不知道，足篮体育竞技可不讲究暗区，就像你上面举的嘻嘻的例子，对于 ...</blockquote>
 我可没说这件事你不知道是什么脑回路，是说你认为“只能说二次元粉黑斗争还是太“有文化”或者说“婉转”了”是什么脑回路<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">二次元能有文化真是天大的笑话
 
+
+*****
+
+####  丹德里恩  
+##### 41374#       发表于 2025-10-11 09:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就是因为上不了桌，所以才叫<strong>暗区</strong>，别人压根不认识也懒得去了解，我只关心我四番战一张票都没抢到
+
+说什么暗区上浮，那不是该由你们这些看得懂黑话的<strong>同类</strong>负责再把他们锤回去吗
+
