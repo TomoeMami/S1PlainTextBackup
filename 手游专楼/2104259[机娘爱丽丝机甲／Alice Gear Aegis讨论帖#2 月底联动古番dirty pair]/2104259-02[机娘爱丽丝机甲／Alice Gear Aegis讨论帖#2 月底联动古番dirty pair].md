@@ -206,3 +206,17 @@ fa最新的是唯和未罗。
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555906&amp;ptid=2104259" target="_blank">madcow 发表于 2025-10-11 17:56</a></blockquote>
 求个出处
 
+
+*****
+
+####  冰风血羽  
+##### 1712#       发表于 2025-10-11 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68556265&amp;ptid=2104259" target="_blank">精英级自演乙 发表于 2025-10-11 19:26</a>
+求个出处</blockquote>
+我来抢答一个
+くじらローラン
+@kujira_lorant
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
