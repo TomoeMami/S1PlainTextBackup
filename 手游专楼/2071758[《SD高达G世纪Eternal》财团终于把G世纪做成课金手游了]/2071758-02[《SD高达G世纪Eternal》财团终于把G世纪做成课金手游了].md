@@ -6776,3 +6776,13 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 持续到三周年就关服重启咯，财团又不是没关过高达手游
 
+
+*****
+
+####  Abomination  
+##### 2895#       发表于 2025-10-12 01:30
+
+到最后还是忍不住手想抽ssr飞龙高达多抽了120抽，结果还是沉船齐不了扑克同盟<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+动画出完了还有漫画，刚出完活动的月钢不就是纯漫画外传。我还指望出年轻彗星的肖像可以抽少女哈曼<img src="https://static.stage1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
