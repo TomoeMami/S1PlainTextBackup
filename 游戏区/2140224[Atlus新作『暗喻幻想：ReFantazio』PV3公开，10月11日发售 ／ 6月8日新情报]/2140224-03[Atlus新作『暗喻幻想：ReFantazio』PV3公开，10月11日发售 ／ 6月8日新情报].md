@@ -212,3 +212,14 @@
 
 参照真女五，加强版至少得两年以上<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 3674#       发表于 2025-10-11 16:30
+
+我还以为要出加强版了
+难得没跟着首发，等出了加强版再来品鉴（？）
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
