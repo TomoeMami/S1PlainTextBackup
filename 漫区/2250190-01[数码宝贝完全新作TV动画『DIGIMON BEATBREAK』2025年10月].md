@@ -807,3 +807,11 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 下集脚本似乎是会川升
 
+
+*****
+
+####  永恒的王牌  
+##### 178#       发表于 2025-10-12 18:18
+
+虽然知道担心家人也是人之常情，但像这样高强度尼桑多少有点令人烦躁了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
