@@ -12501,10 +12501,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 6924,
+    "totalreply": 6931,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1760234893,
+    "lastedit": 1760235490,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 512,
+    "totalreply": 514,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1760206089,
+    "lastedit": 1760235490,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15291,10 +15291,10 @@
     "update": false
   },
   "2263824": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[智能马桶臀部清洗好用吗？]",
     "newtitle": "[智能马桶臀部清洗好用吗？]",
-    "lastedit": 1760231655,
+    "lastedit": 1760235371,
     "category": "外野",
     "active": true,
     "update": false
@@ -15548,7 +15548,7 @@
     "newtitle": "[2.5米看85寸电视合适吗]",
     "lastedit": 1759975813,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263915": {
@@ -16605,10 +16605,10 @@
     "update": false
   },
   "2264203": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[现在看杨振宁反对建大型对撞机还是有前瞻性的]",
     "newtitle": "[现在看杨振宁反对建大型对撞机还是有前瞻性的]",
-    "lastedit": 1760234893,
+    "lastedit": 1760235371,
     "category": "外野",
     "active": true,
     "update": false
@@ -16628,6 +16628,15 @@
     "newtitle": "[Mihon／Tachiyomi系漫画软件／插件简介及讨论专楼]",
     "lastedit": 1760232138,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2262587": {
+    "totalreply": 41,
+    "title": "[《魔法少女的魔女审判》好玩吗]",
+    "newtitle": "[《魔法少女的魔女审判》好玩吗]",
+    "lastedit": 1760235130,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
