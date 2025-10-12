@@ -24,3 +24,11 @@
  Battlefield 6 ROG XBOX ALLY X | AI ...</blockquote>
 那个标准版和sd一模一样的性能，有什么好测的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dududa  
+##### 146#       发表于 2025-10-12 20:53
+
+拿win平板试了一下这个xbox全屏模式，你别说，对触屏适配得挺好的，从底部上滑可以呼出来游戏切换的那个界面，左边右划可以呼出来gamebar，完全不需要xbox键。但缺少把游戏以外的软件加进xbox的方法，以及对我而言比较重要的锁帧功能。微软应该是指望掌机oem做各自掌机的锁帧功能，像我这种平板肯定是没人管了
+
