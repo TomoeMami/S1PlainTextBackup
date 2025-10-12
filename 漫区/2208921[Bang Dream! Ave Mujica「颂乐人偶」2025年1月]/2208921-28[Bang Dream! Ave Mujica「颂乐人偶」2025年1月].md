@@ -859,3 +859,33 @@ day2天球比day1好多了
 
 退场MC现场大屏不显示太过分了，内场屁都看不到
 
+
+*****
+
+####  堀内爱里衣  
+##### 41416#       发表于 2025-10-12 22:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/224924qmlu7h47askiua20.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_22-48-13.jpg</strong> (269.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 22:49 上传
+
+       [https://x.com/bang_dream_info/status/1977348161229234193](https://x.com/bang_dream_info/status/1977348161229234193)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/224923xx1xedgv13mxinxd.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_22-48-33.jpg</strong> (87.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 22:49 上传
+
+       [https://t.bilibili.com/1122869021498146824](https://t.bilibili.com/1122869021498146824)
+
