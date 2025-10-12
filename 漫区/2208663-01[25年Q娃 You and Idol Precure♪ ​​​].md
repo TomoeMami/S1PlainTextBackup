@@ -78,3 +78,19 @@
 
 别人变身是为了打怪，你们变身是要开演唱会<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1331#       发表于 2025-10-12 21:48
+
+还是那句话你们改叫带Q算了
+
+偶活棚至少还能想个歌词啥的今年的Q娃就只能想个标题<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+田中不知道从哪拽来了一车黑奴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打斗莫名的还不错<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+下一集终于要从粉主变红主了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
