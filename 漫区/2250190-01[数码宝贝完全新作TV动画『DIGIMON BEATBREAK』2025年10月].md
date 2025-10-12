@@ -875,3 +875,15 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 2025-10-13 00:08 上传
 
+
+*****
+
+####  赤道氮  
+##### 185#       发表于 2025-10-13 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559994&amp;ptid=2250190" target="_blank">永恒的王牌 发表于 2025-10-12 18:18</a>
+虽然知道担心家人也是人之常情，但像这样高强度尼桑多少有点令人烦躁了</blockquote>
+这不才第二天，不惦记他哥岂不是活畜牲了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
