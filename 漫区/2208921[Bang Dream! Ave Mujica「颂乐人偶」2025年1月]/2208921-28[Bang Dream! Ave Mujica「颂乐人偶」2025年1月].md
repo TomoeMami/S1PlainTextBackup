@@ -847,3 +847,15 @@ STAFF2使用卡组：Ave Mujica卡组
 mujica没啥说的，李神牛逼就完了，舞台效果确实好，而且饭撒也不错，和动画反过来团队感更强。哦，今天退场的时候，青木阳菜溜得最快，倒挺符合动画人设<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 还有就是李子最后和队友退场时发现了最后的哈酱，一溜烟跑过去了，带着哈酱一起退场，果然我们sumimi是不会解散的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone00000  
+##### 41415#       发表于 2025-10-12 22:29
+
+焚音打好像有什么问题，和声听不到，然后就是大家不会合唱，英语还是太难了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+day2天球比day1好多了
+
+退场MC现场大屏不显示太过分了，内场屁都看不到
+
