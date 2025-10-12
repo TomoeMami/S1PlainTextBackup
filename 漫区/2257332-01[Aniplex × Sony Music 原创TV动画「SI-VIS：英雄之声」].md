@@ -809,3 +809,31 @@ aniki被隔开那一幕有点像蓝染<img src="https://static.stage1st.com/imag
 
 好土，大丸老师终于是要江郎才尽了吗？
 
+
+*****
+
+####  aptx8285144  
+##### 43#       发表于 2025-10-12 18:56
+
+还行吧，唱的歌词感觉还挺好听的，世界观拓展有即视感，不过团队看起来都还挺有责任心的，红发是佐仓，有段时间没听到她这种懒散而又偏中性的声音了
+
+
+*****
+
+####  aptx8285144  
+##### 44#       发表于 2025-10-12 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68530053&amp;ptid=2257332" target="_blank">Mc凉月奏酱 发表于 2025-10-5 15:49</a>
+
+这个蓝毛后面百分百要开口的 无奖竞猜CV是谁</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/12/190313b787wuw7kz87jrwu.jpg" referrerpolicy="no-referrer">
+
+<strong>不是羊宫.jpg</strong> (70.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 19:03 上传
+
+好消息，官方已经公布是石见舞了（虽然现在还在沉默），为什么说是好消息呢，前几天我看有up主们在祈祷不是羊宫<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
