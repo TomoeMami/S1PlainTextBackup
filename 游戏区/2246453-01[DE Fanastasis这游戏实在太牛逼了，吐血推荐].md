@@ -17,3 +17,15 @@
 我把Fanastasis所归类的日墙类游戏，也就是ネフェイスト系RPG鼻祖之一的《Nepheshel》的机翻给校对了一遍！ ...</blockquote>
 单开一帖吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三度音  
+##### 500#       发表于 2025-10-12 16:58
+
+<blockquote>慕容断月 发表于 2025-10-12 14:33
+单开一帖吧</blockquote>
+N一串字母老前辈有历史意义，
+
+但我感觉没好玩到单开一贴的程度。
+
