@@ -815,3 +815,11 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 虽然知道担心家人也是人之常情，但像这样高强度尼桑多少有点令人烦躁了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 179#       发表于 2025-10-12 20:15
+
+主角有一种青春期的性格不安定感。第一第二集除了作画以外都有一些很棒的配合bgm鼓点的剪辑点。若是会川升，这一作的背景设定看上去也挺能鉴证的……
+

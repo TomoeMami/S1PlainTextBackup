@@ -853,3 +853,11 @@ aniki被隔开那一幕有点像蓝染<img src="https://static.stage1st.com/imag
 
 ED  赛是有flag的
 
+
+*****
+
+####  会长辅佐  
+##### 46#       发表于 2025-10-12 20:05
+
+白瞎了我左爹的人设<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
