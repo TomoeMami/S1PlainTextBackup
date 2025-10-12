@@ -855,3 +855,23 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 为啥人设像从影之诗片场出来的一样，原班人马吗
 
+
+*****
+
+####  新HGCG  
+##### 184#       发表于 2025-10-13 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68553045&amp;ptid=2250190" target="_blank">黑暗之眼 发表于 2025-10-11 08:35</a>
+
+不要搞错，闪光暴龙才是驯兽师，它的数码宝贝是超究极体大门大兽
+
+—— 来自 HUAWEI PLA-AL10, Android 1 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/13/000807zk7ui2th180u22v8.jpg" referrerpolicy="no-referrer">
+
+<strong>44bea255gw1f5cfsrg6kqj20c0090gnq.jpg</strong> (46.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-13 00:08 上传
+
