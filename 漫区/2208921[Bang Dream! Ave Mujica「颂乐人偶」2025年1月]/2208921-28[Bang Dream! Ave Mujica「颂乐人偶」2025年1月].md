@@ -740,3 +740,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 除了音响，其他几个七宗罪没啥把
 
+
+*****
+
+####  07579394  
+##### 41404#       发表于 2025-10-12 12:33
+
+只说合唱，不说直拍？
+
+其实重点是暗示想开东蛋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
