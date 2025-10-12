@@ -837,3 +837,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 小羊垫了一首半后就越唱越好了
 
+
+*****
+
+####  AlfredXC  
+##### 41414#       发表于 2025-10-12 22:10
+
+昨天是现场，在西区201看台第6排，刚进场还觉得位置不错视野挺好，结果基本上没怎么转过来。音响效果也不咋的，Mygo第一首聿日笺秋都没咋听见🐏声，但羊姐后面发挥越来越好。今天在影院看的线上，感觉效果要好些，不知道现场咋样。羊姐今天开场状态就不错，但焚音打不知道是忘词还是咋了，感觉羊姐自己都有些绷不住了。
+mujica没啥说的，李神牛逼就完了，舞台效果确实好，而且饭撒也不错，和动画反过来团队感更强。哦，今天退场的时候，青木阳菜溜得最快，倒挺符合动画人设<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还有就是李子最后和队友退场时发现了最后的哈酱，一溜烟跑过去了，带着哈酱一起退场，果然我们sumimi是不会解散的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

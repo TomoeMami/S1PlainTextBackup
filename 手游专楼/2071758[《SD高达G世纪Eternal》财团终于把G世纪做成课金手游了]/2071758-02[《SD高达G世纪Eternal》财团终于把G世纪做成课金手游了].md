@@ -6804,3 +6804,11 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 顶多是缺大主线更新吧，机子的话，把市面上全部HG出完再担心吧
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2898#       发表于 2025-10-12 22:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">居然能担心会出完？就现在封面都没出完，就这个封面都够他吃三年的了，茫茫多的小说漫画游戏那真是九牛一毛了
+
