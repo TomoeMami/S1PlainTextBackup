@@ -732,3 +732,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">合唱声音都大到入麦了
 
+
+*****
+
+####  中已矣  
+##### 41403#       发表于 2025-10-12 09:36
+
+除了音响，其他几个七宗罪没啥把
+
