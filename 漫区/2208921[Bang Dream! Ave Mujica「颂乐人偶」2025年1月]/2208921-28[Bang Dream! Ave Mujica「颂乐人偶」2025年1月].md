@@ -760,3 +760,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  凉良  
+##### 41406#       发表于 2025-10-12 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68557140&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-10-11 23:21</a>
+所以说某大主播的事情什么情况？有没有希望发展成蕾忍2.0</blockquote>
+结果是堪比钟离假死的巅峰智斗
+
