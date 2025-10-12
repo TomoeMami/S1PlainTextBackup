@@ -102,3 +102,22 @@
 
 为什么观众不是5000个咚兄弟呢？
 
+
+*****
+
+####  粉儿alice  
+##### 1333#       发表于 2025-10-12 23:39
+
+这集就是为了18号演唱会预热的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+三歌手也是打酱油
+最后搞个画ppt静止图放歌也行啊
+
+*****
+
+####  粉儿alice  
+##### 1334#       发表于 2025-10-12 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559312&amp;ptid=2208663" target="_blank">ジュゴン 发表于 2025-10-12 15:13</a>
+梦女精准营销，不然为什么CV选佐久间大介</blockquote>
+加士大夫公开追星<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
