@@ -724,3 +724,11 @@ STAFF2使用卡组：Ave Mujica卡组
 
 <img src="https://p.sda1.dev/27/82772aada2f13ae1ace0a8b32f2dbacc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 41402#       发表于 2025-10-12 09:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">合唱声音都大到入麦了
+
