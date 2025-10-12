@@ -750,3 +750,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 其实重点是暗示想开东蛋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milarvoz  
+##### 41405#       发表于 2025-10-12 13:21
+
+盗摄想管只能像日本一样增加staff人数，高强度巡逻出警了。光呼吁也没什么用。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
