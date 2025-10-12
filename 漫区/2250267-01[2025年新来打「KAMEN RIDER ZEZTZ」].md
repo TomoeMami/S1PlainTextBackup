@@ -138,3 +138,13 @@ op完整版出了 红鸡不出意外被骂上敷衍了<img src="https://static.s
 
 根本没追的欲望，前期都这样更不要想后期了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 360#       发表于 2025-10-12 11:27
+
+男主已经是第二次在特工模式突发恶疾大声讲话
+
+当年大尊师也是急了就上去抱住humagear或者老千大声讲话，给我洞幺ptsd搞犯了
+
