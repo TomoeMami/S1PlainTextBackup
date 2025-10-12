@@ -791,3 +791,13 @@ STAFF2使用卡组：Ave Mujica卡组
 
 不过今天有全武行
 
+
+*****
+
+####  仟音一心  
+##### 41409#       发表于 2025-10-12 21:06
+
+感觉挺不错，我反正挑不出什么毛病。
+转一个战吧评论
+<img src="https://p.sda1.dev/27/03f88128ff05332403b3b573b4c8d89a/image.jpg" referrerpolicy="no-referrer">
+
