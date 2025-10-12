@@ -1226,3 +1226,96 @@ https://x.com/cocohayashi515/status/1977361151747879242
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  凉良  
+##### 41433#       发表于 2025-10-12 21:35
+
+应该是三场搏击  场内一个开孔雀的被日本保安打了  两个mtf骂滞纳猪被推搡了  场外卖假票的被打了
+
+*****
+
+####  Hieda  
+##### 41434#       发表于 2025-10-12 21:50
+
+ 本帖最后由 Hieda 于 2025-10-12 21:54 编辑 
+
+我在d1西区山顶雅座，虽然转盘确实没转过来几次，但因为站起来后前面老哥的头正好会挡住转盘边缘的位置，所以我基本一直弃疗看大屏幕<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+音响确实调得很差，虽然对圣李子来说影响不大，但小羊声音很容易被盖住
+
+小羊垫了一首半后就越唱越好了
+
+*****
+
+####  AlfredXC  
+##### 41435#       发表于 2025-10-12 22:10
+
+昨天是现场，在西区201看台第6排，刚进场还觉得位置不错视野挺好，结果基本上没怎么转过来。音响效果也不咋的，Mygo第一首聿日笺秋都没咋听见🐏声，但羊姐后面发挥越来越好。今天在影院看的线上，感觉效果要好些，不知道现场咋样。羊姐今天开场状态就不错，但焚音打不知道是忘词还是咋了，感觉羊姐自己都有些绷不住了。
+mujica没啥说的，李神牛逼就完了，舞台效果确实好，而且饭撒也不错，和动画反过来团队感更强。哦，今天退场的时候，青木阳菜溜得最快，倒挺符合动画人设<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还有就是李子最后和队友退场时发现了最后的哈酱，一溜烟跑过去了，带着哈酱一起退场，果然我们sumimi是不会解散的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yone00000  
+##### 41436#       发表于 2025-10-12 22:29
+
+焚音打好像有什么问题，和声听不到，然后就是大家不会合唱，英语还是太难了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+day2天球比day1好多了
+
+退场MC现场大屏不显示太过分了，内场屁都看不到
+
+*****
+
+####  堀内爱里衣  
+##### 41437#       发表于 2025-10-12 22:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/224924qmlu7h47askiua20.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_22-48-13.jpg</strong> (269.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 22:49 上传
+
+       [https://x.com/bang_dream_info/status/1977348161229234193](https://x.com/bang_dream_info/status/1977348161229234193)
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/12/224923xx1xedgv13mxinxd.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-12_22-48-33.jpg</strong> (87.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 22:49 上传
+
+       [https://t.bilibili.com/1122869021498146824](https://t.bilibili.com/1122869021498146824)
+
+*****
+
+####  Milarvoz  
+##### 41438#       发表于 2025-10-12 23:05
+
+本来挺开心的，结果焚音打小羊少了半句，最后观众也没合唱起来，一回头身后厄介还和日本人打起来了。直接给我兴致全干没了。day2真的烂完了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cauchua3  
+##### 41439#       发表于 2025-10-12 23:08
+
+梵音打到底是小羊忘词还是系统出故障？
+
+*****
+
+####  拱猪  
+##### 41440#       发表于 2025-10-12 23:13
+
+还好我是昨天去的，说起来武士道在国内办演唱会会出bd么，还想回味怎么办
+
