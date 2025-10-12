@@ -49,3 +49,24 @@
 
 这尼玛纯纯的带货回，而且下集看起来超级危险，特别的人？？？
 
+
+*****
+
+####  jaewoongh_  
+##### 1328#       发表于 2025-10-12 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559275&amp;ptid=2208663" target="_blank">湖静欲成冰 发表于 2025-10-12 15:05</a>
+
+不赖，还好早早撤退了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">特别的xxx去年不是已经用过一次了吗，问题是这次完全没铺垫，难道真的是看脸？
+
+
+*****
+
+####  ジュゴン  
+##### 1329#       发表于 2025-10-12 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559300&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-10-12 15:09</a>
+特别的xxx去年不是已经用过一次了吗，问题是这次完全没铺垫，难道真的是看脸？ ...</blockquote>
+梦女精准营销，不然为什么CV选佐久间大介<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
