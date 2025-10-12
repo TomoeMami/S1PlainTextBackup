@@ -94,3 +94,11 @@
 
 下一集终于要从粉主变红主了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 1332#       发表于 2025-10-12 22:04
+
+为什么观众不是5000个咚兄弟呢？
+
