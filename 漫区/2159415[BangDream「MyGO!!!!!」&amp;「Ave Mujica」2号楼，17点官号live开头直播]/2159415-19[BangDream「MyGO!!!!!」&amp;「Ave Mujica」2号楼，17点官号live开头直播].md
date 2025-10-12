@@ -127,3 +127,151 @@ STAFF2使用卡组：Ave Mujica卡组
 ・可能存在不影响对战的范围内省略一部分操作的情况</blockquote>
        [https://www.bilibili.com/video/BV1Fq47zKEcK](https://www.bilibili.com/video/BV1Fq47zKEcK)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27296#       发表于 2025-10-13 00:28
+
+       <img src="https://img.stage1st.com/forum/202510/12/224924qmlu7h47askiua20.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_info/status/1977348161229234193](https://x.com/bang_dream_info/status/1977348161229234193)
+
+       <img src="https://img.stage1st.com/forum/202510/12/224923xx1xedgv13mxinxd.jpg" referrerpolicy="no-referrer">
+
+       [https://t.bilibili.com/1122869021498146824](https://t.bilibili.com/1122869021498146824)
+
+*****
+
+####  堀内爱里衣  
+##### 27297#       发表于 2025-10-13 00:28
+
+       <img src="https://img.stage1st.com/forum/202510/13/001053yezfix3x7z0g3y5r.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/Hina_Youmiya/status/1977375730280407515](https://x.com/Hina_Youmiya/status/1977375730280407515)
+
+*****
+
+####  堀内爱里衣  
+##### 27298#       发表于 2025-10-13 00:28
+
+       <img src="https://img.stage1st.com/forum/202510/13/001208euuxjx32s32uyio2.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/aoki__hina/status/1977358213625385045](https://x.com/aoki__hina/status/1977358213625385045)
+
+*****
+
+####  堀内爱里衣  
+##### 27299#       发表于 2025-10-13 00:29
+
+       <img src="https://img.stage1st.com/forum/202510/13/001343cd05e5030e0wee5j.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/ttisrn_0710/status/1977356068305969321](https://x.com/ttisrn_0710/status/1977356068305969321)
+
+*****
+
+####  堀内爱里衣  
+##### 27300#       发表于 2025-10-13 00:29
+
+       <img src="https://img.stage1st.com/forum/202510/13/001618gmfx15d5ir1iip41.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/kohinatamika/status/1977361098463739916](https://x.com/kohinatamika/status/1977361098463739916)
+
+       <img src="https://img.stage1st.com/forum/202510/13/001617mcm9p990qplzvni9.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/kohinatamika/status/1977370178703790568](https://x.com/kohinatamika/status/1977370178703790568)
+
+*****
+
+####  堀内爱里衣  
+##### 27301#       发表于 2025-10-13 00:29
+
+       <img src="https://img.stage1st.com/forum/202510/13/001817djw1banu0mnuacuz.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/cocohayashi515/status/1977361151747879242](https://x.com/cocohayashi515/status/1977361151747879242)
+
+       <img src="https://img.stage1st.com/forum/202510/13/001816esw97fpxq7hps72j.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/cocohayashi515/status/1977373105690378716](https://x.com/cocohayashi515/status/1977373105690378716)
+
+*****
+
+####  堀内爱里衣  
+##### 27302#       发表于 2025-10-13 00:29
+
+       <img src="https://img.stage1st.com/forum/202510/12/235331lm1ea5sv44mg1ldh.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/Kanon_Takao/status/1977356639175901691](https://x.com/Kanon_Takao/status/1977356639175901691)
+
+       <img src="https://img.stage1st.com/forum/202510/12/235330bknemumndmmwudum.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/Kanon_Takao/status/1977364176226939206](https://x.com/Kanon_Takao/status/1977364176226939206)
+
+*****
+
+####  堀内爱里衣  
+##### 27303#       发表于 2025-10-13 00:29
+
+       <img src="https://img.stage1st.com/forum/202510/12/235520myday5zl1515d5tg.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/AkaneY_banu/status/1977351312334262326](https://x.com/AkaneY_banu/status/1977351312334262326)
+
+
+*****
+
+####  堀内爱里衣  
+##### 27304#       发表于 2025-10-13 00:30
+
+ 本帖最后由 堀内爱里衣 于 2025-10-13 00:34 编辑 
+
+       <img src="https://img.stage1st.com/forum/202510/12/235753eyuc10tuig0fuuwf.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/sasakirico/status/1977359056244277315](https://x.com/sasakirico/status/1977359056244277315)
+
+       <img src="https://img.stage1st.com/forum/202510/12/235752qdj6bqiq9uq59jqx.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/sasakirico/status/1977365045555187893](https://x.com/sasakirico/status/1977365045555187893)
+
+       <img src="https://img.stage1st.com/forum/202510/13/003248w81x1rq6r4rmiirx.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/sasakirico/status/1977375091395526748](https://x.com/sasakirico/status/1977375091395526748)
+
+*****
+
+####  堀内爱里衣  
+##### 27305#       发表于 2025-10-13 00:30
+
+       <img src="https://img.stage1st.com/forum/202510/13/000132g5kr8ayklk5tlwza.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/okada_mei0519/status/1977364662665494702](https://x.com/okada_mei0519/status/1977364662665494702)
+
+       <img src="https://img.stage1st.com/forum/202510/13/000131k4yzlltoyyy8clc9.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/okada_mei0519/status/1977397929779351666](https://x.com/okada_mei0519/status/1977397929779351666)
+
+*****
+
+####  堀内爱里衣  
+##### 27306#       发表于 2025-10-13 00:31
+
+       <img src="https://img.stage1st.com/forum/202510/13/000251f60g0h648qwe1tmk.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/Watase_Yuzuki/status/1977365696934805664](https://x.com/Watase_Yuzuki/status/1977365696934805664)
+
+*****
+
+####  堀内爱里衣  
+##### 27307#       发表于 2025-10-13 00:31
+
+       <img src="https://img.stage1st.com/forum/202510/13/000457zezvxeexyrxhvemm.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/tanda_hazuki/status/1977355736872071340](https://x.com/tanda_hazuki/status/1977355736872071340)
+
+       <img src="https://img.stage1st.com/forum/202510/13/000456k9qc48fw9cma8033.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/tanda_hazuki/status/1977369502816825676](https://x.com/tanda_hazuki/status/1977369502816825676)
+
+       <img src="https://img.stage1st.com/forum/202510/13/000455j8j02qqqj0e6e0st.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/tanda_hazuki/status/1977390073097212239](https://x.com/tanda_hazuki/status/1977390073097212239)
+
