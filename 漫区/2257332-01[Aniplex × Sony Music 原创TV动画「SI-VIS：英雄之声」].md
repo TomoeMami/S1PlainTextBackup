@@ -837,3 +837,19 @@ aniki被隔开那一幕有点像蓝染<img src="https://static.stage1st.com/imag
 
 好消息，官方已经公布是石见舞了（虽然现在还在沉默），为什么说是好消息呢，前几天我看有up主们在祈祷不是羊宫<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 45#       发表于 2025-10-12 19:14
+
+<img src="https://img.stage1st.com/forum/202510/12/191333wjqxn5fs2sgz55wf.jpg" referrerpolicy="no-referrer">
+
+<strong>ed.jpg</strong> (30.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-12 19:13 上传
+
+ED  赛是有flag的
+
