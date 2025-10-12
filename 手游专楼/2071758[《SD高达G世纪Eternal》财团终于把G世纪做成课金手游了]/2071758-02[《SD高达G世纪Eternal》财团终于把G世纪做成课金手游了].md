@@ -6812,3 +6812,15 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">居然能担心会出完？就现在封面都没出完，就这个封面都够他吃三年的了，茫茫多的小说漫画游戏那真是九牛一毛了
 
+
+*****
+
+####  无念  
+##### 2899#       发表于 2025-10-12 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68555467&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-10-11 16:22</a>
+但是这是 00 系加强</blockquote>
+看错了我以为是电视姬233
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
