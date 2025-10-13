@@ -6824,3 +6824,13 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  远野乙姬  
+##### 2900#       发表于 2025-10-13 21:14
+
+只要运营没崩，tv正作出完的时候才是传说的开始吧
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
