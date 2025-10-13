@@ -294,3 +294,13 @@
 
 老登不是没打直接剧情杀了么，正好拉起来当BOSS<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 3683#       发表于 2025-10-13 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68562204&amp;ptid=2140224" target="_blank">modkingr 发表于 2025-10-13 09:21</a>
+呃，这游戏UI也算缺点吗，别的缺点一大堆，感觉2D和平面部分应该是唯一过人的地方了吧 ...</blockquote>
+没说是缺点，P组特色还在，就是色调有点晃眼，个人是感觉早期开发版温和一点的比较好
+
