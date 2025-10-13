@@ -129,3 +129,11 @@
 
 同年龄段的我可以接受，这成年老男人还是偶像何意味啊，蓝神既视感太重了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 1336#       发表于 2025-10-13 10:33
+
+这集纯粹现实联动回，属于（往后补番）跳过也没影响的一集。普利伦一句话开启本集故事。
+
