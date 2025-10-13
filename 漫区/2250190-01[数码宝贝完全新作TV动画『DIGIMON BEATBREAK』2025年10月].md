@@ -906,3 +906,15 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 —— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 188#       发表于 2025-10-13 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68561877&amp;ptid=2250190" target="_blank">Troywest 发表于 2025-10-13 08:17</a>
+开场那个蛋蛋被弄坏的女生居然是路人女主吗？直接挂了？
+
+—— 来自 OnePlus PJZ110, Android 15上的 S1Nex ...</blockquote>
+感觉大概率路人吧，也说不准，因为下两集大概就救回来了，目前解除冻心症的方法简单直接讲了就是哪只数码兽吃的e脉冲打倒就能拿回来，除了男主他哥的又被悟空兽抢了，看下集预告吃这女生的鬣狗兽下集又找上门来了，应该会安排进化回击败它
+
