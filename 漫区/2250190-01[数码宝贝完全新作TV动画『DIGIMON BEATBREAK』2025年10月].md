@@ -938,3 +938,14 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 这设定和网侦如出一辙啊，吃人的数码兽（侵蚀者），冻心症（eden群侯症）。不过网侦的设定放到动画里还是很潮，当年玩完网侦骇客就想着动画化就好了，这不就来了吗，满足满足<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gofbayrf  
+##### 191#       发表于 2025-10-13 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68563030&amp;ptid=2250190" target="_blank">alingkz 发表于 2025-10-13 11:10</a>
+
+这设定和网侦如出一辙啊，吃人的数码兽（侵蚀者），冻心症（eden群侯症）。不过网侦的设定放到动画里还是很 ...</blockquote>
+沒有V字胸不能接受
+
