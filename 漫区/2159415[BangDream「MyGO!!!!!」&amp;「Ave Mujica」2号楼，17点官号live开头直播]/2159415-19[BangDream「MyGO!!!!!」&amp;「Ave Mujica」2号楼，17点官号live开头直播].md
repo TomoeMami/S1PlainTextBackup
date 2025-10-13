@@ -275,3 +275,21 @@ STAFF2使用卡组：Ave Mujica卡组
 
        [https://x.com/tanda_hazuki/status/1977390073097212239](https://x.com/tanda_hazuki/status/1977390073097212239)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27308#       发表于 2025-10-13 13:26
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/13/132652q44a4ptqp4s7aa4q.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-13_13-26-08.jpg</strong> (200.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-13 13:26 上传
+
+       [https://weibo.com/1796981640/Q8OMYkHrF](https://weibo.com/1796981640/Q8OMYkHrF)
+
