@@ -14562,10 +14562,10 @@
     "update": false
   },
   "2256585": {
-    "totalreply": 195,
+    "totalreply": 196,
     "title": "[b站童子军大王是什么鬼？]",
     "newtitle": "[b站童子军大王是什么鬼？]",
-    "lastedit": 1760376497,
+    "lastedit": 1760382727,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16610,6 +16610,15 @@
     "newtitle": "[AI生成动画的发展速度实在是太快了，sora2已经可以生成普通观众识别不了的日式动画了]",
     "lastedit": 1760380691,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2199341": {
+    "totalreply": 69,
+    "title": "[泰坦之旅2信息集中贴]",
+    "newtitle": "[泰坦之旅2信息集中贴]",
+    "lastedit": 1760382969,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
