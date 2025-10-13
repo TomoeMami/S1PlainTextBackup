@@ -949,3 +949,27 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 这设定和网侦如出一辙啊，吃人的数码兽（侵蚀者），冻心症（eden群侯症）。不过网侦的设定放到动画里还是很 ...</blockquote>
 沒有V字胸不能接受
 
+
+*****
+
+####  二阶堂真琉  
+##### 192#       发表于 2025-10-13 12:34
+
+小潘配的这个守宫兽，这一听就跳到某外星人搞笑漫画的声线和配色，怎么看都是在netaK66军曹啊（
+
+[TamersUnion]DIGIMON BEATBREAK[01][WEBrip][x264_AAC][CHS_JPN].mp4_20251013_110316.376.jpg
+(93.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-13 12:32 上传
+
+<img src="https://img.stage1st.com/forum/202510/13/123225lez81jdhjo6zjj80.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 193#       发表于 2025-10-13 12:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这OP开头敲的那两下总幻听下一秒开始dont say lazy
+
