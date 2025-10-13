@@ -278,3 +278,11 @@
 
 呃，这游戏UI也算缺点吗，别的缺点一大堆，感觉2D部分应该是唯一过人的地方了吧
 
+
+*****
+
+####  wingofsilver  
+##### 3681#       发表于 2025-10-13 09:29
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">看最近打折力度挺大，考虑冬促时候入个看看
+
