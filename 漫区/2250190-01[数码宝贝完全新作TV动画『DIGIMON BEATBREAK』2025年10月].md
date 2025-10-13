@@ -896,3 +896,13 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 半年或者年番可以多花点时间塑造成长过程和背景<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 相依为命的哥哥“死”了难受得不知所措吃不下饭，被带去医院看望，不知道不当清道夫会被通缉所以觉得是想利用他，跑路之后引出蘑菇兄弟介绍背景，他别无选择只能被推着向前。说行为举止迁怒确实迁怒，但也谈不上对错好坏。第一集就很明显了主角是一个非常感性的家人侠。
 
+
+*****
+
+####  Troywest  
+##### 187#       发表于 2025-10-13 08:17
+
+开场那个蛋蛋被弄坏的女生居然是路人女主吗？直接挂了？
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
