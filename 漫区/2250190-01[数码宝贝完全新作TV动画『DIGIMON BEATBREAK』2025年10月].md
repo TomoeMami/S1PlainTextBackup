@@ -1015,3 +1015,11 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 
 e-パルスをエネルギー源として動く、サポートAI搭載のタマゴ型デバイス。広く普及が進んでおり、所持を前提に社会が設計されている。</blockquote>
 
+
+*****
+
+####  aptx8285144  
+##### 196#       发表于 2025-10-13 23:20
+
+这秀气的黄发是女孩子吧，肯定是（破音，我还以为是田村睦心来配的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
