@@ -304,3 +304,14 @@
 呃，这游戏UI也算缺点吗，别的缺点一大堆，感觉2D和平面部分应该是唯一过人的地方了吧 ...</blockquote>
 没说是缺点，P组特色还在，就是色调有点晃眼，个人是感觉早期开发版温和一点的比较好
 
+
+*****
+
+####  uponutopia  
+##### 3684#       发表于 2025-10-13 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68562518&amp;ptid=2140224" target="_blank">伊丽虾皇VI 发表于 2025-10-13 10:06</a>
+
+没说是缺点，P组特色还在，就是色调有点晃眼，个人是感觉早期开发版温和一点的比较好 ...</blockquote>
+这不是什么早期开发版啊 UI是一样的只不过立绘是草图
+
