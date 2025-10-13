@@ -930,3 +930,11 @@ DIGIMON BEATBREAK 本日2話！！ よろしくお願いいたします！！！
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 想了想也是，爹妈不在和老哥相依为命，突然哥就呆了让人立刻下定决心确定目标加入队伍这种期待多少有点过分了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alingkz  
+##### 190#       发表于 2025-10-13 11:10
+
+这设定和网侦如出一辙啊，吃人的数码兽（侵蚀者），冻心症（eden群侯症）。不过网侦的设定放到动画里还是很潮，当年玩完网侦骇客就想着动画化就好了，这不就来了吗，满足满足<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
