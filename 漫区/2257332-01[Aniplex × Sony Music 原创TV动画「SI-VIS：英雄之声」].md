@@ -861,3 +861,13 @@ ED  赛是有flag的
 
 白瞎了我左爹的人设<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 47#         楼主| 发表于 2025-10-13 15:32
+
+OP：[https://youtu.be/7MKcme-tctg](https://youtu.be/7MKcme-tctg)
+
+ED：[https://youtu.be/DwN9TQt3zvY](https://youtu.be/DwN9TQt3zvY)
+
