@@ -293,3 +293,16 @@ STAFF2使用卡组：Ave Mujica卡组
 
        [https://weibo.com/1796981640/Q8OMYkHrF](https://weibo.com/1796981640/Q8OMYkHrF)
 
+
+*****
+
+####  CyDiablo  
+##### 27309#       发表于 2025-10-14 13:44
+
+两天live看得真的很开心，下次还来<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/683ca609e4338d6f2717127573aa016e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/909f6680af6dc6efdd488b1c8b5c1247/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/27/6b3485bbbfaad1394e0d2f1f8acb3676/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/27/fa71ea6004b059ce0d4cd0c6a01c1683/image.jpg" referrerpolicy="no-referrer">
+
