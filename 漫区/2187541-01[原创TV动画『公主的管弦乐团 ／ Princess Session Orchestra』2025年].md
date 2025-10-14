@@ -20,3 +20,16 @@
 op2很燃 可以准备大结局当插曲以及大招（误）
 ed2就一般了 直接剧透堇和花骑士一个人 这两位很快会入队了
 
+
+*****
+
+####  lydia5989  
+##### 179#       发表于 2025-10-14 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68561195&amp;ptid=2187541" target="_blank">粉儿alice 发表于 2025-10-12 23:56</a>
+
+op2很燃 可以准备大结局当插曲以及大招（误）
+
+ed2就一般了 直接剧透堇和花骑士一个人 这两位很快会入队了 ...</blockquote>
+感觉ed和op换个位置更好，ed感觉有点燃，估计11月中旬前这俩会入队
+
