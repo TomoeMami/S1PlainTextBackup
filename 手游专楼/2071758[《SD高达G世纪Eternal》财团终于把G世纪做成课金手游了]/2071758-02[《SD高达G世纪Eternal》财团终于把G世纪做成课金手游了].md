@@ -6908,3 +6908,44 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 刚看到这游戏5个月营收已经破了295億円.....财阀B这次是真的捡到宝了</blockquote>
 你代哥早点请外包做早就赢麻了，非要自己做一堆垃圾出来
 
+
+*****
+
+####  远野乙姬  
+##### 2908#       发表于 2025-10-14 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68569549&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-10-14 15:40</a>
+你代哥早点请外包做早就赢麻了，非要自己做一堆垃圾出来</blockquote>
+我都想问sbgi这次怎么舍得做个如此上台面的游戏…还我高破2啊
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  远野乙姬  
+##### 2909#       发表于 2025-10-14 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68569016&amp;ptid=2071758" target="_blank">captoon 发表于 2025-10-14 13:41</a>
+分解机体，刷HARD本
+
+多刷强袭EX难度的，综合收益最高</blockquote>
+谢谢，看来我思路没大错，就是好使的hard掉落少，我现在冲着更珍贵的资源刷的，比如独角兽的牌子<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  远野乙姬  
+##### 2910#       发表于 2025-10-14 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68568678&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-10-14 12:18</a>
+就是资源太少，而且最近连续出主线故事，开发地狱，材料、金钱、体力全都不够。
+
+必须要加强了。
+
+香港见面 ...</blockquote>
+我看他们已经意识到了，独角兽开发那是什么资源需求，太离谱了，集中刷都够刷一个月了吧
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
