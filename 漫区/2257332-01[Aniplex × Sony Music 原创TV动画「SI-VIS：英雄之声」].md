@@ -879,3 +879,38 @@ ED：[https://youtu.be/DwN9TQt3zvY](https://youtu.be/DwN9TQt3zvY)
 
 看到這個涉谷消滅, 我的直覺反應是美妙世界
 
+
+*****
+
+####  宅🍐eriri  
+##### 49#       发表于 2025-10-14 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68560248&amp;ptid=2257332" target="_blank">aptx8285144 发表于 2025-10-12 19:14</a>
+
+ED  赛是有flag的</blockquote>
+OP也有明示
+
+<img src="https://img.stage1st.com/forum/202510/14/140750f25hq2r6y5285zdt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-14 14:07 上传
+
+<img src="https://img.stage1st.com/forum/202510/14/140824d44pmjolpwphl7q1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-14 14:08 上传
+
+<img src="https://img.stage1st.com/forum/202510/14/140839d6629xjkk8rvajdx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-14 14:08 上传
+
