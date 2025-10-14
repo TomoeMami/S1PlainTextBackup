@@ -6949,3 +6949,16 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 2911#       发表于 2025-10-14 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68570366&amp;ptid=2071758" target="_blank">远野乙姬 发表于 2025-10-14 18:02</a>
+
+谢谢，看来我思路没大错，就是好使的hard掉落少，我现在冲着更珍贵的资源刷的，比如独角兽的牌子
+
+——  ...</blockquote>
+先别急着刷，AP药留着等后面看SP技师和SSP机体的产出在哪里再刷
+
