@@ -871,3 +871,11 @@ OP：[https://youtu.be/7MKcme-tctg](https://youtu.be/7MKcme-tctg)
 
 ED：[https://youtu.be/DwN9TQt3zvY](https://youtu.be/DwN9TQt3zvY)
 
+
+*****
+
+####  Niu  
+##### 48#       发表于 2025-10-14 12:40
+
+看到這個涉谷消滅, 我的直覺反應是美妙世界
+
