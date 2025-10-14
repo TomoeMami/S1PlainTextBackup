@@ -6962,3 +6962,14 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 ——  ...</blockquote>
 先别急着刷，AP药留着等后面看SP技师和SSP机体的产出在哪里再刷
 
+
+*****
+
+####  AminGly  
+##### 2912#       发表于 2025-10-14 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68571166&amp;ptid=2071758" target="_blank">captoon 发表于 2025-10-14 21:09</a>
+
+先别急着刷，AP药留着等后面看SP技师和SSP机体的产出在哪里再刷</blockquote>
+已经吃光了 3星工程快结束了
+
