@@ -799,3 +799,11 @@ Literally stylish-act
 
 看b站分析，印度真3a是另一家制作组在做，这个阿凡达其实2a都不大算的上，只不过老板更懂怎么玩转互联网<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yyman  
+##### 85#       发表于 2025-10-14 22:33
+
+   实际玩起来怎么样另说，至少节目效果是拉满了。讲真我觉得昭和米国物语那个制作组应该学学三哥的松弛感，别做一个胡逼游戏包袱还那么重
+
