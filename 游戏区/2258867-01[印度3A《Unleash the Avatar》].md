@@ -807,3 +807,13 @@ Literally stylish-act
 
    实际玩起来怎么样另说，至少节目效果是拉满了。讲真我觉得昭和米国物语那个制作组应该学学三哥的松弛感，别做一个胡逼游戏包袱还那么重
 
+
+*****
+
+####  cqc1021  
+##### 86#       发表于 2025-10-15 00:01
+
+不知道男主开大会是什么效果，希望能做出电视剧《摩诃婆罗多》里奎师那现出真身那段那种特效又贫穷又震撼的独特味道<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
