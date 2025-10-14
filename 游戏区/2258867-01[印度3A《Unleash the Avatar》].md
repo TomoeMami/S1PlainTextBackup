@@ -791,3 +791,11 @@ Literally stylish-act
 印度神话的逼格是有，不过这游戏的战斗表现有点小家子气了，只狼的痕迹太重。如果这一部能火的话，我希望 ...</blockquote>
 倒是希望他们出个真正意义上的阿修罗之怒
 
+
+*****
+
+####  今天不守尸  
+##### 84#       发表于 2025-10-14 22:01
+
+看b站分析，印度真3a是另一家制作组在做，这个阿凡达其实2a都不大算的上，只不过老板更懂怎么玩转互联网<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
