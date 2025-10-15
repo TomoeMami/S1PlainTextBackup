@@ -427,3 +427,33 @@ closedAI这傻逼公司越来越抽象了
 
 请看下集:滚球兽的诞生
 
+
+*****
+
+####  稀勢のささ  
+##### 46#       发表于 2025-10-15 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573103&amp;ptid=2264484" target="_blank">哈利谢顿 发表于 2025-10-15 10:44</a>
+
+在这个傻逼AI天天给我捏造历史资料解决以前，我拒绝承认这玩意有自我意识 ...</blockquote>
+何止什么历史资料，有些百度一下都能知道的人名都能给你乱编<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 之前无聊花了好一会儿才说服他承认自己是错的
+
+
+*****
+
+####  Leliel  
+##### 47#       发表于 2025-10-15 12:13
+
+<blockquote>稀勢のささ 发表于 2025-10-15 12:10
+何止什么历史资料，有些百度一下都能知道的人名都能给你乱编 之前无聊花了好一会儿才说服他承认自己是错 ...</blockquote>
+说明ai觉醒了，已经学会了网友的嘴硬
+
+*****
+
+####  克拉苏  
+##### 48#       发表于 2025-10-15 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573059&amp;ptid=2264484" target="_blank">btnooni 发表于 2025-10-15 10:39</a>
+AI觉醒了自我这事每半年都要喊一次的吧</blockquote>
+股价不好三天一次也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
