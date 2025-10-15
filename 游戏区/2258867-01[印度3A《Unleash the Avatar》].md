@@ -905,3 +905,13 @@ Literally stylish-act
 —— 来自 OnePlus PJE110, Android 15, 鹅球 v3.5. ...</blockquote>
 我又能不能代表所有人，我觉得昏昏欲睡的游戏不代表其他人不喜欢。至于有没有昏昏欲睡的游戏评论，你逛论坛你不清楚问我干嘛。
 
+
+*****
+
+####  今天不守尸  
+##### 96#       发表于 2025-10-15 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572378&amp;ptid=2258867" target="_blank">ybfelix 发表于 2025-10-15 09:12</a>
+ 哪个印度真3A?</blockquote>
+巴拉特时代，据说制作人是育碧出来的，编剧请的是印度知名畅销书作家，还有印度著名影星老巴强投资入股，算是恒河战舰了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
