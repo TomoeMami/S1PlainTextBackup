@@ -151,3 +151,88 @@
 这位守门人叫苍之亚兹拉尔且有神性，可能是死亡天使以某位暗杀者的身体为容器降临的，就如同梅塔特隆借贞德 ...</blockquote>
 还在这有神性该看看新消息了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 18408#       发表于 2025-10-15 17:37
+
+听说吃即死？214能上吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 18409#       发表于 2025-10-15 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575593&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-10-15 17:36</a>
+
+还在这有神性该看看新消息了</blockquote>
+我说怎么哈基王年轻时有神性，老了反而没了，且不是越练越回去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18410#       发表于 2025-10-15 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575585&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-10-15 17:34</a>
+
+顺便这按顺序即死，王哈才是最舒服的，因为王哈自带即死无效</blockquote>
+按顺序？ 我剑心放123号位为什么都是第1个死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sesuna  
+##### 18411#       发表于 2025-10-15 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575352&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-15 16:54</a>
+
+马上就开杀冠战了，先放一个羁绊加成表在这里。
+
+单一加成：</blockquote>
+灵衣+恶少了杀狐<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">理论上狐狸应该是吃加成最多了。。
+
+
+*****
+
+####  Jamaisvu  
+##### 18412#       发表于 2025-10-15 17:42
+
+杀阶有人特攻的只有耀星哈桑（光炮宝具、羁绊礼装群buff），河上彦斋（一技能、羁绊礼装群buff），杀狐二技能。
+
+用杀狐的话那单体红宝具的杀阶也能上场，也就是卡米拉、桑松、王哈和彦斋四位。
+
+综合来看这次的定制冠军可比诺亚靠谱多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18413#       发表于 2025-10-15 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575588&amp;ptid=2084912" target="_blank">6030sylar 发表于 2025-10-15 17:35</a>
+
+就是现在国服3000万下载自选那四个没个有用的？
+
+—— 来自 OnePlus PKG110, Android 15, 鹅球 v3.5.99-alp ...</blockquote>
+是的，都是花瓶，所以不要选了。
+
+*****
+
+####  Jamaisvu  
+##### 18414#       发表于 2025-10-15 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575629&amp;ptid=2084912" target="_blank">sesuna 发表于 2025-10-15 17:42</a>
+
+灵衣+恶少了杀狐理论上狐狸应该是吃加成最多了。。</blockquote>
+这个表好像没考虑重复从者，杀狐是兽科+秩序女+恶+灵衣。
+
+虽然经此一役后大部分人的杀狐都该变成15绊的加成礼装了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 18415#       发表于 2025-10-15 17:45
+
+乍看是剑心售后，其实还是你月传统自己杀自己，周回本的王哈lily有一个100万血的战续，如果用即死杀掉就不会触发，而且王哈lily的即死耐性很低，配合冠位树叠即死率应该可以叠到100，所以冠杀最优解还是王哈自己，同时也给咒腕、桑松这些低星留了条路，设计得还算可以<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

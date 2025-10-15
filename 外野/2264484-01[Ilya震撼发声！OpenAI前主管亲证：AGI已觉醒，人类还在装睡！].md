@@ -670,3 +670,22 @@ Scaling Law破产以后，close ai天天就整这种烂活
 
 扎克伯格不是AGI吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星零影  
+##### 75#       发表于 2025-10-15 17:37
+
+要换成别的我还看看，OpenAI……搞不搞颜色都要靠人设置的ai觉醒个毛线<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Lorraine_Kinney  
+##### 76#       发表于 2025-10-15 17:38
+
+ 本帖最后由 Lorraine_Kinney 于 2025-10-15 17:39 编辑 
+
+当年GPT4的时候怎么炒作的，还搁这觉醒，OPENAI这帮傻批炒作都只会复读了
+
