@@ -555,3 +555,11 @@ AGI（已觉醒）（不吃香菜版）
 
 拉个闸就老实了
 
+
+*****
+
+####  thecatnie  
+##### 61#       发表于 2025-10-15 13:45
+
+他家要是整不出AGI来，后面的金主会不会把他脑子挖出来做成AGI<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
