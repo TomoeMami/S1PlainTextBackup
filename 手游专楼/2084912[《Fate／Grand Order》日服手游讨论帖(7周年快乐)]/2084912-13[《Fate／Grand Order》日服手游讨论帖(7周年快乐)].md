@@ -505,3 +505,17 @@
 欧皇你怎么还换人 丢欧！</blockquote>
 非洲人没羁绊礼装不换人连宝具都开不出来啊....能怎么办!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 18440#       发表于 2025-10-15 19:46
+
+<blockquote>alucardcz 发表于 2025-10-15 19:18
+问题不是暴击能不能即死  而是有没有指令卡给你暴击
+
+我刷到现在好像没有见到暴击没触发即死 ...</blockquote>
+【【FGO】稳定1T・100★★★冠位杀，我是主角！-哔哩哔哩】 https://b23.tv/iDW39IY
+
+有个换人的打法，就是打手放后排，前排谁刷出两张卡就跟打手换位置，稳定出指令卡...
+
