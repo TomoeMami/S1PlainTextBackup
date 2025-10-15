@@ -427,3 +427,38 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便这是萌新的1t稳定秒杀阵容 但要用到换人 给漏油丢人了
 
+
+*****
+
+####  qixinno2  
+##### 18433#       发表于 2025-10-15 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575918&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-15 18:52</a>
+
+顺便这是萌新的1t稳定秒杀阵容 但要用到换人 给漏油丢人了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我也这阵容 就是把214换成了大姐 没区别
+
+*****
+
+####  森兰丸  
+##### 18434#       发表于 2025-10-15 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575892&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-15 18:46</a>
+
+怎么稳定秒？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刑部姬和杀狐还有战斗服技能全开彦斎宝具能打200多万伤害
+
+再随便抱个能即死的大腿就行了
+
+*****
+
+####  alucardcz  
+##### 18435#       发表于 2025-10-15 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575943&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-15 18:58</a>
+
+刑部姬和杀狐还有战斗服技能全开彦斎宝具能打200多万伤害
+
+再随便抱个能即死的大腿就行了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇你怎么还换人 丢欧！
+
