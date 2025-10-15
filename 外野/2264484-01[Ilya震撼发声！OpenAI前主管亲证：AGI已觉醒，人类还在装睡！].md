@@ -563,3 +563,35 @@ AGI（已觉醒）（不吃香菜版）
 
 他家要是整不出AGI来，后面的金主会不会把他脑子挖出来做成AGI<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 62#       发表于 2025-10-15 14:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">美国这帮投资人真信AGI？
+
+
+*****
+
+####  Promeus  
+##### 63#       发表于 2025-10-15 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68574477&amp;ptid=2264484" target="_blank">swessia 发表于 2025-10-15 14:26</a>
+美国这帮投资人真信AGI？</blockquote>
+就现在这个铁索连环的样子显然是真信
+
+*****
+
+####  流缨  
+##### 64#       发表于 2025-10-15 14:35
+
+翻译一下：急需更弱智且还没有觉醒的投资人加入伟大的事业，不然牛皮吹爆了大家一起玩完
+
+*****
+
+####  nnknnk  
+##### 65#       发表于 2025-10-15 14:35
+
+家人们他炒的是哪个股啊我也想赚钱<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
