@@ -8622,13 +8622,13 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 196549,
+    "totalreply": 196550,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1760564640,
+    "lastedit": 1760565128,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2185160": {
     "totalreply": 852,
@@ -13775,7 +13775,7 @@
     "newtitle": "[《夜曲／彻夜之歌》粗点心战争作者新作！教你玩夜晚的游戏]",
     "lastedit": 1760305807,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263621": {
