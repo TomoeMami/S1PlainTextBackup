@@ -662,3 +662,11 @@ Scaling Law破产以后，close ai天天就整这种烂活
 
 有生之年能看到魔神zero吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 74#       发表于 2025-10-15 17:25
+
+扎克伯格不是AGI吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

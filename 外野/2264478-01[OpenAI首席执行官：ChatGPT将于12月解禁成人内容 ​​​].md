@@ -555,3 +555,11 @@ ds弄个api就行了，甲很薄随便破
 ds本都部署对黄色限制高吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">这逼鲸鱼炫压抑的你甚至要设提示词让他别太奔放
 
+
+*****
+
+####  sxcluck  
+##### 62#       发表于 2025-10-15 17:34
+
+自我阉割，完了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
