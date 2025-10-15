@@ -892,3 +892,16 @@ Literally stylish-act
 
 —— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  horacio  
+##### 95#       发表于 2025-10-15 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68574080&amp;ptid=2258867" target="_blank">月白天青 发表于 2025-10-15 13:13</a>
+
+好奇你口中很多比起这坨来让人昏昏欲睡的是哪些游戏
+
+—— 来自 OnePlus PJE110, Android 15, 鹅球 v3.5. ...</blockquote>
+我又能不能代表所有人，我觉得昏昏欲睡的游戏不代表其他人不喜欢。至于有没有昏昏欲睡的游戏评论，你逛论坛你不清楚问我干嘛。
+
