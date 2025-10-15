@@ -571,3 +571,18 @@ ds本都部署对黄色限制高吗</blockquote>
 
 没活了 之前是整agent，gpt5就开始给人藏着掖着，现在整这东西
 
+
+*****
+
+####  虚空之言  
+##### 64#       发表于 2025-10-15 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572853&amp;ptid=2264478" target="_blank">js· 发表于 2025-10-15 10:15</a>
+
+笑死。
+
+最近听说某大热刘备第一人称被全家桶文，在某p连载，一章10块。
+
+快到大结局看卖不好了，直接宣布入 ...</blockquote>
+还是会有的，有人就是懒到想要别人给自己上下其手的
+

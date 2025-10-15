@@ -283,3 +283,44 @@
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 你居然能有一个200w 一个100w的单体 太欧了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外可以削掉  即死 还有天赋树
 
+
+*****
+
+####  森兰丸  
+##### 18420#       发表于 2025-10-15 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575728&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-15 18:05</a>
+
+欧 你居然能有一个200w 一个100w的单体 太欧了
+
+另外可以削掉  即死 还有天赋树
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打手当然是找大腿啊
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本身我都不想自出杀狐了....现在看起来还是要上
+
+起码先把彦斎的羁绊礼装50NP肝出来再说
+
+*****
+
+####  xiongxingyu  
+##### 18421#       发表于 2025-10-15 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575652&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-15 17:48</a>
+
+这么说的话大姐斯忒诺岂不是MVP</blockquote>
+看错了，即死只能消掉王哈lily的战续，那200w血还得自己砍掉，开荒拿黑杯打的，没注意不是即死死的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过大姐配剑心倒是有点说法
+
+*****
+
+####  Jamaisvu  
+##### 18422#       发表于 2025-10-15 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575764&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-10-15 18:14</a>
+
+看错了，即死只能消掉王哈lily的战续，那200w血还得自己砍掉，开荒拿黑杯打的，没注意不是即死死的不过大 ...</blockquote>
+大姐宝具解战续，二三技能可以提供20三色魔放和20攻击，和杀狐并称杀阶双拐。
+
+至于某公主，祝她绿邢愉快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
