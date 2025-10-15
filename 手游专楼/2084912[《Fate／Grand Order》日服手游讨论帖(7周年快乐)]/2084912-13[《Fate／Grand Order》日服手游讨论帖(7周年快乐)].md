@@ -519,3 +519,16 @@
 
 有个换人的打法，就是打手放后排，前排谁刷出两张卡就跟打手换位置，稳定出指令卡...
 
+
+*****
+
+####  alucardcz  
+##### 18441#       发表于 2025-10-15 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68576117&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-15 19:46</a>
+
+【【FGO】稳定1T・100★★★冠位杀，我是主角！-哔哩哔哩】 https://b23.tv/iDW39IY
+
+有个换人的打法，就 ...</blockquote>
+贴过了 把214放后排就是
+
