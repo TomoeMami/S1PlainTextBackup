@@ -360,3 +360,26 @@ grok生成的黄图是不是也是有一定限制，
 
 据说放开后AI没甲轻装上阵性能会变好？
 
+
+*****
+
+####  bcrrry  
+##### 44#       发表于 2025-10-15 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573398&amp;ptid=2264478" target="_blank">龙井橘 发表于 2025-10-15 11:21</a>
+
+能搞啊，前段时间grok在中文互联网出名就是能写刘备文，输段文字就破甲了 ...</blockquote>
+我最多只能生成不露点舔大乃乃的视频<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  neptunehs  
+##### 45#       发表于 2025-10-15 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573889&amp;ptid=2264478" target="_blank">fmchar 发表于 2025-10-15 12:33</a>
+据说放开后AI没甲轻装上阵性能会变好？</blockquote>
+就算你能放开瑟瑟吧 能放开鱿鱼相关？别想了 该影响性能影响性能
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
