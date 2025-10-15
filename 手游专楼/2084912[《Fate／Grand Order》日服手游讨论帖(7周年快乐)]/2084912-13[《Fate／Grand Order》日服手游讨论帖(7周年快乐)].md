@@ -324,3 +324,20 @@
 
 至于某公主，祝她绿邢愉快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18423#       发表于 2025-10-15 18:26
+
+王哈太难借了 各种不带np礼装不点额外技能
+
+还是我214好 借214 我自己上剑心 概率1回合砍死
+
+*****
+
+####  alucardcz  
+##### 18424#       发表于 2025-10-15 18:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不对 好像自己上剑心214 然后借个大佬高宝 100%1回合秒 就是要3宝具（
+
