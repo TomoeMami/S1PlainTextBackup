@@ -654,3 +654,11 @@ Scaling Law破产以后，close ai天天就整这种烂活
 
 牛头不对马嘴
 
+
+*****
+
+####  磁场颠佬  
+##### 73#       发表于 2025-10-15 17:09
+
+有生之年能看到魔神zero吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
