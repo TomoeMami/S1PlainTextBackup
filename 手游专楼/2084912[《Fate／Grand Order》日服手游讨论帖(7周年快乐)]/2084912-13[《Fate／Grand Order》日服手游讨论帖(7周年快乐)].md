@@ -341,3 +341,22 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不对 好像自己上剑心214 然后借个大佬高宝 100%1回合秒 就是要3宝具（
 
+
+*****
+
+####  Jamaisvu  
+##### 18425#       发表于 2025-10-15 18:29
+
+ 本帖最后由 Jamaisvu 于 2025-10-15 18:33 编辑 
+
+考虑到即死的话，夏洛特科黛也不错，一技能提升100即死率，二技能30攻击，三技能30蓝放或50宝威，宝具中概率（60-100）即死。
+
+问题是这帮即死打手没几个有自充的，杀狐基本必带，如果不是红宝具会有点亏...
+
+*****
+
+####  alucardcz  
+##### 18426#       发表于 2025-10-15 18:31
+
+好烦啊 必须自己上一个冠位 不然杀狐214 借个大佬完事了。。。。。。再叫我喂个100杀狐或者214真不高兴<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

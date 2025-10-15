@@ -689,3 +689,11 @@ Scaling Law破产以后，close ai天天就整这种烂活
 
 当年GPT4的时候怎么炒作的，还搁这觉醒，OPENAI这帮傻批炒作都只会复读了
 
+
+*****
+
+####  FACS  
+##### 77#       发表于 2025-10-15 18:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我穿越成功了？
+

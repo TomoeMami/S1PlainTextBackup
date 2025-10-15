@@ -586,3 +586,13 @@ ds本都部署对黄色限制高吗</blockquote>
 快到大结局看卖不好了，直接宣布入 ...</blockquote>
 还是会有的，有人就是懒到想要别人给自己上下其手的
 
+
+*****
+
+####  0WHan0  
+##### 65#       发表于 2025-10-15 18:27
+
+grok现在可以随便写r18，但感觉grok本身水平一般，期待chatgpt的效果
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
