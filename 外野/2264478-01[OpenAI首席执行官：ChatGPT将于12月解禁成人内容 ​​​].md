@@ -628,3 +628,37 @@ sora2能开放限制才是真的炸裂
 
 还是xp系统好用
 
+
+*****
+
+####  ななひら  
+##### 70#       发表于 2025-10-15 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572853&amp;ptid=2264478" target="_blank">js· 发表于 2025-10-15 10:15</a>
+
+笑死。
+
+最近听说某大热刘备第一人称被全家桶文，在某p连载，一章10块。
+
+快到大结局看卖不好了，直接宣布入 ...</blockquote>
+我把之前喜欢的刘备文打包喂给ai，然后续写或者写新的，生成出来的东西完美符合xp，比找作者订制好用多了。估计以后就是漫天ai文卷到白菜价，赚点信息差的钱了
+
+
+*****
+
+####  ななひら  
+##### 71#       发表于 2025-10-15 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572925&amp;ptid=2264478" target="_blank">洛拉斯 发表于 2025-10-15 10:22</a>
+
+ds本都部署对黄色限制高吗</blockquote>
+不用本地部署
+
+ollama现在的那个cloud上的ds有一点免费额度，我试了几乎没有任何限制，可以随便搞
+
+其次还有openrouter上的ds，这个也几乎没限制
+
+ds官方的api时不时就会限制
+
+目前发现最严格的是魔搭
+
