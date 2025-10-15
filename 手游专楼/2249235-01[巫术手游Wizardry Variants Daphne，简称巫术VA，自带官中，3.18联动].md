@@ -43,3 +43,17 @@
 
 一周年送的骨头有料的，出了风矮人跟莉瓦娜，拾骨者貌似也是给的限定，今天一天不黑drecom<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 517#       发表于 2025-10-15 15:45
+
+ 本帖最后由 Flechette 于 2025-10-15 15:47 编辑 
+
+我真的好想要一只黑兽<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+自选不送，歪也歪不出，只能目指二周年自选了吗
+
+阳炎洞的兵粮丸可以换怪异阳炎杂物了，希望各位没有和我一样早早拿金币*100清空掉
+
