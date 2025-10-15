@@ -479,3 +479,29 @@
 
 即死宝具并非必需品了，不过暴击肯定没宝具即死率高，可以带总耶校服降对面即死抗性。
 
+
+*****
+
+####  alucardcz  
+##### 18438#       发表于 2025-10-15 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68576000&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-15 19:10</a>
+
+星盘里有个暴击即死的效果，人人都可以臻至境界。
+
+即死宝具并非必需品了，不过暴击肯定没宝具即死率高，可 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不是暴击能不能即死  而是有没有指令卡给你暴击
+
+我刷到现在好像没有见到暴击没触发即死
+
+
+*****
+
+####  森兰丸  
+##### 18439#       发表于 2025-10-15 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575947&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-15 18:59</a>
+
+欧皇你怎么还换人 丢欧！</blockquote>
+非洲人没羁绊礼装不换人连宝具都开不出来啊....能怎么办!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
