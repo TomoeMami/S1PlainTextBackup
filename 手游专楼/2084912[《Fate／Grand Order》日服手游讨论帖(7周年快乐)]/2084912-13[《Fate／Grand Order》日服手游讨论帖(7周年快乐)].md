@@ -390,3 +390,40 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">所以有什么稳定1T好阵容么
 
+
+*****
+
+####  alucardcz  
+##### 18430#       发表于 2025-10-15 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575893&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-15 18:47</a>
+
+所以有什么稳定1T好阵容么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单 双杀狐王哈大腿  100%otk
+
+*****
+
+####  里村紅葉  
+##### 18431#       发表于 2025-10-15 18:50
+
+还以为即死是什么杀阶人手一个的基础能力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18432#       发表于 2025-10-15 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575893&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-15 18:47</a>
+
+所以有什么稳定1T好阵容么</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/15/185218yxros8frntroooo0.png" referrerpolicy="no-referrer">
+
+<strong>23232322.png</strong> (628.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-15 18:52 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便这是萌新的1t稳定秒杀阵容 但要用到换人 给漏油丢人了
+
