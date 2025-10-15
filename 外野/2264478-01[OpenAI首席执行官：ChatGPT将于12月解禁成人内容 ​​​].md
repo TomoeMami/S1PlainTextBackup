@@ -436,3 +436,21 @@ DS和谷歌的gemini2.5 PRO 比 哪个更智商高一点？
 
 方向是对的，说实话，不能搞瑟瑟的AI对我来讲毫无吸引力，就是私搭太贵了，不然早就私搭了。
 
+
+*****
+
+####  MeraMiru  
+##### 52#       发表于 2025-10-15 13:55
+
+难绷，不久之前问了DS、Gemini、grok三个模型“Metroid Strip是什么意思”
+
+DS讲了是类银中去能力化的游戏流程；Gemini说是萨姆斯·阿兰在通关游戏后脱下她的动力装甲的场景；至于Grok演都不演了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/15/135552w7y1anybegkbhryn.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-10-15_13-52-45.png</strong> (42.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-15 13:55 上传
+
