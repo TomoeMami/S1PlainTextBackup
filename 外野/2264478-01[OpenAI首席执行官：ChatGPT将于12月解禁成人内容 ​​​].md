@@ -479,3 +479,34 @@ gpt其实解禁相当一段时间了。如果sora解了才让人惊讶。
 
 最后：claude 4.5s我真的喜欢，尤其是在4代不尽人意后
 
+
+*****
+
+####  银枪子龙  
+##### 55#       发表于 2025-10-15 14:46
+
+是个人物，希望你说到做到
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 56#       发表于 2025-10-15 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573117&amp;ptid=2264478" target="_blank">羊寢 发表于 2025-10-15 10:46</a>
+
+ds弄个api就行了，甲很薄随便破
+
+与其费劲巴拉弄本地部署还不如整个api弄下酒馆去类脑找个ds预设随便玩(昨 ...</blockquote>
+愿闻其详，是字面意义上加入“入木三分”的关键词吗？<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羊寢  
+##### 57#       发表于 2025-10-15 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68574585&amp;ptid=2264478" target="_blank">屡败屡战阿巴顿 发表于 2025-10-15 14:48</a>
+愿闻其详，是字面意义上加入“入木三分”的关键词吗？</blockquote>
+角色和环境刻画入木三分
+这句加进去就行
+
