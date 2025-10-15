@@ -482,3 +482,21 @@ AGI已然觉醒，你们还没有收到通知吗？
 
 那我弄了一份ai的拷贝是不是我帮ai赛博射O了？
 
+
+*****
+
+####  星花  
+##### 52#       发表于 2025-10-15 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573806&amp;ptid=2264484" target="_blank">agsva 发表于 2025-10-15 12:20</a>
+
+猜猜是先出现天网叛乱还是AI股泡沫先破掉？</blockquote>
+先出好莱坞级天网叛乱。
+
+*****
+
+####  星の守  
+##### 53#       发表于 2025-10-15 12:36
+
+配合OpenAI炒作是吧
+

@@ -1,0 +1,362 @@
+﻿
+*****
+
+####  仟音一心  
+##### 1#       楼主       发表于 2025-10-15 09:49
+
+<img src="https://img.stage1st.com/forum/202510/15/094935u5b21k8wddve2jvk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-15 09:49 上传
+
+*****
+
+####  a4ac7  
+##### 2#       发表于 2025-10-15 09:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牌坊立不住了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  天气_nini  
+##### 3#       发表于 2025-10-15 09:53
+
+查了下，马斯克搞黄色后增速很快
+
+果然互联网最大的流量就是搞黄色
+
+*****
+
+####  星花  
+##### 4#       发表于 2025-10-15 09:53
+
+开放情色 其实 不是好现象。盈利压力？没活了？
+
+*****
+
+####  濡鸦之羽_  
+##### 5#       发表于 2025-10-15 09:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">成人才是主力军啊，我说的是人
+
+*****
+
+####  死宅真恶心  
+##### 6#       发表于 2025-10-15 09:55
+
+死宅真恶心！
+
+*****
+
+####  理子石  
+##### 7#       发表于 2025-10-15 09:57
+
+挺正常，之前有个调查统计，人们对于AI的使用用途排第一的是查资料，排第二就是涩涩
+
+*****
+
+####  不见不散  
+##### 8#       发表于 2025-10-15 09:57
+
+互联网有一半流量是色情内容
+
+*****
+
+####  处男鉴黄师  
+##### 9#       发表于 2025-10-15 09:59
+
+开源模型危险了！
+
+*****
+
+####  xwr  
+##### 10#       发表于 2025-10-15 10:02
+
+马斯克那边有哥特金发双马尾，那openAI准备搞个什么啊？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  守名居  
+##### 11#       发表于 2025-10-15 10:04
+
+现在就剩哈基米和克劳德管的很严了吧？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个稍微带点成人就掐断，一个是用户跟规则斗智斗勇
+
+*****
+
+####  Ncr110  
+##### 12#       发表于 2025-10-15 10:14
+
+搞黄色才是第一用户生产力
+
+*****
+
+####  js·  
+##### 13#       发表于 2025-10-15 10:15
+
+笑死。
+
+最近听说某刘备第一人称被全家桶文，之前一章10块。
+
+快到大结局看卖不好了，直接搞包书。
+
+2xx进群的有100多，然后开始拖，最后群里想差不多300多人，然后有人八卦算了一下，订阅+包书+金主打赏，差不多挣了20个w。
+
+p站那些短篇既堕文卖的也挺多的，上面那本书抄的另外一本文的作者在日本，就因为提现到国内账户被国内锁卡打电话让到派出所说明了，直接导致tj。
+
+不是因为这本文太监，上面那本可卖不好。
+
+去年到今年抓里几十号作者，加上书贩子，算下来几百万的案子了。
+
+这玩意开放起来，我看现在这些ai写文的作者以后吃什么。
+
+*****
+
+####  临界点  
+##### 14#       发表于 2025-10-15 10:19
+
+说明国外这些AI真是找不到盈利点了  只能往成人靠<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 15#       发表于 2025-10-15 10:19
+
+果然色情业才是我大米AI帝pao国mo的主要盈利手段
+
+到时候换头更方便了，天天对巴伦小公子使用四姐玩法
+
+*****
+
+####  lilisipis  
+##### 16#       发表于 2025-10-15 10:21
+
+这下国外AI真立于不败之地了
+
+*****
+
+####  洛拉斯  
+##### 17#       发表于 2025-10-15 10:22
+
+ds本都部署对黄色限制高吗
+
+*****
+
+####  chris1987  
+##### 18#       发表于 2025-10-15 10:22
+
+马斯克那个弥海砂现在可以做到什么程度
+
+*****
+
+####  moekyo  
+##### 19#       发表于 2025-10-15 10:26
+
+但是问题是就算靠这个能盈利，但是可以撑得起现在泡沫吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nukacolamania  
+##### 20#       发表于 2025-10-15 10:30
+
+制！度！优！势！
+
+*****
+
+####  宵神乐  
+##### 21#       发表于 2025-10-15 10:31
+
+福利姬有难了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 22#       发表于 2025-10-15 10:33
+
+AI限制黄色本来就是弱智行为
+
+*****
+
+####  斯大林的拖拉机  
+##### 23#       发表于 2025-10-15 10:39
+
+不作恶什么时候把哈基米也解禁成人
+
+*****
+
+####  bartholo4  
+##### 24#       发表于 2025-10-15 10:40
+
+互联网一开始也是靠搞黄色把最开始的内容生态做起来的<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Prushka  
+##### 25#       发表于 2025-10-15 10:41
+
+充分发挥制度优势，同时打开了巨大的应用市场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 26#       发表于 2025-10-15 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572925&amp;ptid=2264478" target="_blank">洛拉斯 发表于 2025-10-15 10:22</a>
+ds本都部署对黄色限制高吗</blockquote>
+ds弄个api就行了，甲很薄随便破
+与其费劲巴拉弄本地部署还不如整个api弄下酒馆去类脑找个ds预设随便玩(昨晚还刚有人科研出来文风要求里面加个入木三分死人一样的3.2也能瞬间变神<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 27#       发表于 2025-10-15 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572766&amp;ptid=2264478" target="_blank">xwr 发表于 2025-10-15 10:02</a>
+马斯克那边有哥特金发双马尾，那openAI准备搞个什么啊？</blockquote>
+怕不是牛鬼蛇神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bcrrry  
+##### 28#       发表于 2025-10-15 10:55
+
+马斯克的AI能搞颜色？怎么我用gork只能生成擦边视频，根本搞不了颜色啊？
+
+*****
+
+####  GMJ  
+##### 29#       发表于 2025-10-15 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572766&amp;ptid=2264478" target="_blank">xwr 发表于 2025-10-15 10:02</a>
+
+马斯克那边有哥特金发双马尾，那openAI准备搞个什么啊？</blockquote>
+那只能是姬发式白毛红瞳JK才能抗衡了
+
+*****
+
+####  dulun59  
+##### 30#       发表于 2025-10-15 10:56
+
+这招太狠了
+
+*****
+
+####  主人ハム子  
+##### 31#       发表于 2025-10-15 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573205&amp;ptid=2264478" target="_blank">bcrrry 发表于 2025-10-15 10:55</a>
+马斯克的AI能搞颜色？怎么我用gork只能生成擦边视频，根本搞不了颜色啊？</blockquote>
+二次元可以，但是很拉。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  onezeron  
+##### 32#       发表于 2025-10-15 10:58
+
+本质没活硬整了，感觉来年就是要来大的了
+
+*****
+
+####  marquez  
+##### 33#       发表于 2025-10-15 11:18
+
+我记得看过一个报告说安全限制会影响性能
+
+快进到开放成人内容后数学编程突飞猛进
+
+*****
+
+####  龙井橘  
+##### 34#       发表于 2025-10-15 11:21
+
+<blockquote>bcrrry 发表于 2025-10-15 10:55
+马斯克的AI能搞颜色？怎么我用gork只能生成擦边视频，根本搞不了颜色啊？</blockquote>
+能搞啊，前段时间grok在中文互联网出名就是能写刘备文，输段文字就破甲了
+
+*****
+
+####  仓岛千百合  
+##### 35#       发表于 2025-10-15 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573223&amp;ptid=2264478" target="_blank">主人ハム子 发表于 2025-10-15 10:57</a>
+二次元可以，但是很拉。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅球 v3.5.99</blockquote>
+但是grok的Imagine是免费的啊
+
+*****
+
+####  normalli  
+##### 36#       发表于 2025-10-15 12:05
+
+搞瑟瑟绝对是ai的强项，ai活多但准确性差，瑟瑟内容刚好就需要多样性但对准确性差不多就行
+
+*****
+
+####  傅里叶假面  
+##### 37#       发表于 2025-10-15 12:09
+
+AI瑟图看多了有点千篇一律，没有灵魂啊
+
+*****
+
+####  Jet.Black  
+##### 38#       发表于 2025-10-15 12:19
+
+大的AI要来了？
+
+哦，原来是大乃大臀么
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wolfwood  
+##### 39#       发表于 2025-10-15 12:21
+
+可以生成视频的话就无敌了，慢慢发展吧
+
+—— 来自 nubia NX729J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  windrarara  
+##### 40#       发表于 2025-10-15 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572925&amp;ptid=2264478" target="_blank">洛拉斯 发表于 2025-10-15 10:22</a>
+
+ds本都部署对黄色限制高吗</blockquote>
+很容易绕过去
+
+
+*****
+
+####  未来会变好吗  
+##### 41#       发表于 2025-10-15 12:30
+
+建议马斯克直接一步到位，把GROK变成云酒馆，直接垄断相关产业，岂不美哉！<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我劝马圣重抖擞，不拘一格做AI！
+
+*****
+
+####  naalo2  
+##### 42#       发表于 2025-10-15 12:33
+
+grok生成的黄图是不是也是有一定限制，
+算soft而不是hard？
+
+*****
+
+####  fmchar  
+##### 43#       发表于 2025-10-15 12:33
+
+据说放开后AI没甲轻装上阵性能会变好？
+

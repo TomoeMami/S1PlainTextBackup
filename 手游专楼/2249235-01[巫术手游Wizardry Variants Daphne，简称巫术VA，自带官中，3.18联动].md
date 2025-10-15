@@ -25,3 +25,13 @@
 目前只有一个烟杆东洋角色图透，第四章延后到年内推出，服哩</blockquote>
 就没见过这么简陋的周年庆……策划和开发这么废物，白浪费游戏的好底子了
 
+
+*****
+
+####  茄子自走炮  
+##### 515#       发表于 2025-10-15 12:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">drecom是这样的
+
+新出的官漫味道还挺正
+
