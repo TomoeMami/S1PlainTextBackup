@@ -580,3 +580,13 @@
 
 迦摩满羁绊了，可以休息了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 18448#       发表于 2025-10-16 00:55
+
+彦斎的羁绊礼装肝出来了....可以不用换人了
+
+今天的任务完成...可以休息了～<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
