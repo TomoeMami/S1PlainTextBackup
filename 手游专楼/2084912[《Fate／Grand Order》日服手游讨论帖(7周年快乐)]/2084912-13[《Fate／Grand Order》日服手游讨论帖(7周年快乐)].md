@@ -236,3 +236,36 @@
 
 乍看是剑心售后，其实还是你月传统自己杀自己，周回本的王哈lily有一个100万血的战续，如果用即死杀掉就不会触发，而且王哈lily的即死耐性很低，配合冠位树叠即死率应该可以叠到100，所以冠杀最优解还是王哈自己，同时也给咒腕、桑松这些低星留了条路，设计得还算可以<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 18416#       发表于 2025-10-15 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575644&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-10-15 17:45</a>
+
+乍看是剑心售后，其实还是你月传统自己杀自己，周回本的王哈lily有一个100万血的战续，如果用即死杀掉就不 ...</blockquote>
+这么说的话大姐斯忒诺岂不是MVP<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sesuna  
+##### 18417#       发表于 2025-10-15 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575639&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-15 17:44</a>
+
+这个表好像没考虑重复从者，杀狐是兽科+秩序女+恶+灵衣。
+
+虽然经此一役后大部分人的杀狐都该变成15绊的 ...</blockquote>
+加成最多的女人，过劳死的存在<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 18418#       发表于 2025-10-15 17:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这战续能不能像诺亚的BUFF那样消掉....要一回合稳定也太看发牌员脸色了
+
+难道只能上2个单体打手
+

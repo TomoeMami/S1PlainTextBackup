@@ -563,3 +563,11 @@ ds本都部署对黄色限制高吗</blockquote>
 
 自我阉割，完了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gammatau  
+##### 63#       发表于 2025-10-15 17:45
+
+没活了 之前是整agent，gpt5就开始给人藏着掖着，现在整这东西
+
