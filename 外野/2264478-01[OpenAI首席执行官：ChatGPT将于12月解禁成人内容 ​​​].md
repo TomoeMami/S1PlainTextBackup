@@ -662,3 +662,33 @@ ds官方的api时不时就会限制
 
 目前发现最严格的是魔搭
 
+
+*****
+
+####  千千千千鸟  
+##### 72#       发表于 2025-10-15 20:57
+
+我猜还是有软道歉机制，除不干净。但至少是个好现象，哈基米现在截断的已经让人不耐烦了，甚至还没有进入nsfw情节就开始截断，纯纯的发癫
+
+*****
+
+####  バーチャルS1er  
+##### 73#       发表于 2025-10-15 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572853&amp;ptid=2264478" target="_blank">js· 发表于 2025-10-15 10:15</a>
+
+笑死。
+
+最近听说某大热刘备第一人称被全家桶文，在某p连载，一章10块。
+
+快到大结局看卖不好了，直接宣布入 ...</blockquote>
+不要小看人的惰性和信息圈格差
+
+
+*****
+
+####  バーチャルS1er  
+##### 74#       发表于 2025-10-15 21:03
+
+研究AI写文后，现在我开始学习哲学了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
