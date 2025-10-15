@@ -825,3 +825,14 @@ Literally stylish-act
 
 接抛飞盘敲钟那里动作调的真帅啊
 
+
+*****
+
+####  ybfelix  
+##### 88#       发表于 2025-10-15 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68571374&amp;ptid=2258867" target="_blank">今天不守尸 发表于 2025-10-14 22:01</a>
+
+看b站分析，印度真3a是另一家制作组在做，这个阿凡达其实2a都不大算的上，只不过老板更懂怎么玩转互联网 ...</blockquote>
+哪个印度真3A?
+
