@@ -269,3 +269,17 @@
 
 难道只能上2个单体打手
 
+
+*****
+
+####  alucardcz  
+##### 18419#       发表于 2025-10-15 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575677&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-15 17:54</a>
+
+这战续能不能像诺亚的BUFF那样消掉....要一回合稳定也太看发牌员脸色了
+
+难道只能上2个单体打手 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 你居然能有一个200w 一个100w的单体 太欧了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外可以削掉  即死 还有天赋树
+
