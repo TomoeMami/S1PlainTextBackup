@@ -612,3 +612,11 @@ sora2能开放限制才是真的炸裂
 
 入木三分真的有用，莫名其妙的无意义句子少多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 68#       发表于 2025-10-15 20:28
+
+能改变 谷 歌 搜索机能大减（包括从六月起搜图功能就废掉搜不了带一点颜色的图）的现状吗
+
