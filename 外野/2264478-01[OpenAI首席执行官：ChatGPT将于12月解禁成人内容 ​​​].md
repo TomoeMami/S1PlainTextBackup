@@ -544,3 +544,14 @@ ds弄个api就行了，甲很薄随便破
 8 亿用户仅 5% 付费，OpenAI 急寻“钱路子” - IT之家
 [https://www.ithome.com/0/889/618.htm](https://www.ithome.com/0/889/618.htm)
 
+
+*****
+
+####  阿刚  
+##### 61#       发表于 2025-10-15 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572925&amp;ptid=2264478" target="_blank">洛拉斯 发表于 2025-10-15 10:22</a>
+
+ds本都部署对黄色限制高吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">这逼鲸鱼炫压抑的你甚至要设提示词让他别太奔放
+
