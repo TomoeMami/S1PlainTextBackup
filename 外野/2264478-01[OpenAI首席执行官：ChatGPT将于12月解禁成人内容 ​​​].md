@@ -723,3 +723,16 @@ ds官方的api时不时就会限制
 
 哈，果然，之前都在那装清高
 
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 79#       发表于 2025-10-15 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68574613&amp;ptid=2264478" target="_blank">羊寢 发表于 2025-10-15 14:53</a>
+
+角色和环境刻画入木三分
+
+这句加进去就行</blockquote>
+求一个AI黄书交流群号
+
