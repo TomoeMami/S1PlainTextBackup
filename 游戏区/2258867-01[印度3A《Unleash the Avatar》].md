@@ -880,3 +880,15 @@ Literally stylish-act
 
 看多了有点腻，槽点还是很多的，战斗节奏太慢，我第一次看主角格挡能看困，格挡音效也很差，运镜更是容易头晕
 
+
+*****
+
+####  月白天青  
+##### 94#       发表于 2025-10-15 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573586&amp;ptid=2258867" target="_blank">horacio 发表于 2025-10-15 11:45</a>
+我还不懂国内讨论为什么要关心国外有没有人讨论。这个东西不是很简单，国内玩家数量太多了，这种有个性的风 ...</blockquote>
+好奇你口中很多比起这坨来让人昏昏欲睡的是哪些游戏
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
