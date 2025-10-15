@@ -697,3 +697,26 @@ Scaling Law破产以后，close ai天天就整这种烂活
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我穿越成功了？
 
+
+*****
+
+####  Sei_R  
+##### 78#       发表于 2025-10-15 19:25
+
+AI已经崛起，你们还没收到通知吗
+
+
+*****
+
+####  shellcode  
+##### 79#       发表于 2025-10-15 19:31
+
+看了眼图片右下角的来源，我觉得继续睡觉比较实际一点<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ROT  
+##### 80#       发表于 2025-10-15 19:32
+
+现在的AI连不知道都不会说，只会硬编，就这还AGI？
+
