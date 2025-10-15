@@ -572,3 +572,11 @@
 
 认定战多打非chain，给自己多上几个能累加的闪避状态就好打了
 
+
+*****
+
+####  khxooo  
+##### 18447#       发表于 2025-10-16 00:28
+
+迦摩满羁绊了，可以休息了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
