@@ -360,3 +360,33 @@
 
 好烦啊 必须自己上一个冠位 不然杀狐214 借个大佬完事了。。。。。。再叫我喂个100杀狐或者214真不高兴<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 18427#       发表于 2025-10-15 18:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我彦斎冠位星盘技能还没点满已经能一回合秒了
+
+等肝出羁绊礼装的50NP后自己上个2姐就完事了....好友里挂杀狐的还是挺多的
+
+
+*****
+
+####  alucardcz  
+##### 18428#       发表于 2025-10-15 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68575856&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-15 18:37</a>
+
+我彦斎冠位星盘技能还没点满已经能一回合秒了
+
+等肝出羁绊礼装的50NP后自己上个2姐就完事了....好友里挂杀狐 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么稳定秒？
+
+*****
+
+####  qixinno2  
+##### 18429#       发表于 2025-10-15 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">所以有什么稳定1T好阵容么
+
