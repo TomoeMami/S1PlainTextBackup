@@ -333,3 +333,13 @@ STAFF2使用卡组：Ave Mujica卡组
 [【【元祖！BanG Dream Chan】 #3 和平时一样的归宿-哔哩哔哩】](https://b23.tv/Ks91yh3)
 一直摸兜里在哪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 27312#       发表于 2025-10-17 00:55
+
+有没有画师会画爱灯天台告白时，在旁边吃面包喝咖啡看戏并发出一直摸兜里的某夕阳红五人组啊<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
