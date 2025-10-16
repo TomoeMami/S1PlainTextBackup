@@ -1503,12 +1503,12 @@
     "update": false
   },
   "1849302": {
-    "totalreply": 1687,
+    "totalreply": 1688,
     "title": "[EPIC每周白嫖指南：无人机竞速联盟模拟器]",
-    "newtitle": "[EPIC每周白嫖指南：重力回路]",
-    "lastedit": 1760288056,
+    "newtitle": "[EPIC每周白嫖指南：Amnesia： The Bunker]",
+    "lastedit": 1760641807,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1861134": {
@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 11277,
+    "totalreply": 11278,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1760628488,
+    "lastedit": 1760642049,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16830,11 +16830,20 @@
     "update": false
   },
   "2264637": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[外籍人士在中国比例图]",
     "newtitle": "[外籍人士在中国比例图]",
-    "lastedit": 1760631492,
+    "lastedit": 1760642167,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2112884": {
+    "totalreply": 141,
+    "title": "[2022动画全年简评]",
+    "newtitle": "[2022动画全年简评]",
+    "lastedit": 1760642054,
+    "category": "漫区",
     "active": true,
     "update": false
   }
