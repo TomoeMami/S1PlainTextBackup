@@ -7148,3 +7148,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 2930#       发表于 2025-10-17 06:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68582014&amp;ptid=2071758" target="_blank">岸波白野 发表于 2025-10-16 23:45</a>
+
+自box ur大概这样，普池刚凑齐200票，感觉没有的比较值得换的也就ur93骡鸭和斯莱塔，不过3动机师红基神傻子 ...</blockquote>
+主要看你平时用什么母舰配搭，缺的哪种支援db？
+
+更多UR必中支援肯定是更好的，三动也是越多越好，骡鸭都是好选择，水魔是一击队缺人时才比较要考虑
+
+要凸的话二星妖刀感觉比三星幼女控有用点，打桩输出缺口大才考虑吧，幼女控破满感觉就挂首页的用途了（对我来说也有电光/精神感应/新人类强机太多放不下的原因，不知道你怎么样）
+
