@@ -643,3 +643,48 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 18454#       发表于 2025-10-16 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68577779&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-10-16 09:20</a>
+
+【【FGO彩蛋】不管从者身高体型，亚兹拉尔都确保都砍到脖子-哔哩哔哩】 https://b23.tv/BNbdkn3
+
+再有新的 ...</blockquote>
+答案是统一身高，不出特殊体型的杀阶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18455#       发表于 2025-10-16 16:41
+
+这又是什么BUG...
+
+<img src="https://img.stage1st.com/forum/202510/16/163735edlqq7za4auca4dd.jpg" referrerpolicy="no-referrer">
+
+<strong>73089cc6803da1acfac6be11da2587b.jpg</strong> (256.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-16 16:37 上传
+
+*****
+
+####  khxooo  
+##### 18456#       发表于 2025-10-16 17:36
+
+草，单抽阿育王，你在隔壁过来是吧。
+
+*****
+
+####  alucardcz  
+##### 18457#       发表于 2025-10-16 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68580481&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-16 17:36</a>
+
+草，单抽阿育王，你在隔壁过来是吧。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧！
+
