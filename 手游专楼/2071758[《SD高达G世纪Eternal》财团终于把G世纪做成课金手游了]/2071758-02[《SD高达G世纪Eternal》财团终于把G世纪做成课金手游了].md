@@ -7053,3 +7053,11 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 
 不过少爷射击只有700出头比不上几个SPSR的，靠一手多动被动混出击名额
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2920#       发表于 2025-10-16 15:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">KA飞翼这个白值，认真的吗
+
