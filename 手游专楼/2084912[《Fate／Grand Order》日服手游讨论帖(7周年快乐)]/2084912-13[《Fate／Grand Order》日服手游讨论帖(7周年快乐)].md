@@ -603,3 +603,43 @@
 今天的任务完成...可以休息了～ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  khxooo  
+##### 18450#       发表于 2025-10-16 00:28
+
+迦摩满羁绊了，可以休息了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18451#       发表于 2025-10-16 00:55
+
+彦斎的羁绊礼装肝出来了....可以不用换人了
+
+今天的任务完成...可以休息了～<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18452#       发表于 2025-10-16 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68577139&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-16 00:55</a>
+
+彦斎的羁绊礼装肝出来了....可以不用换人了
+
+今天的任务完成...可以休息了～ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  jackyhuang  
+##### 18453#       发表于 2025-10-16 09:20
+
+【【FGO彩蛋】不管从者身高体型，亚兹拉尔都确保都砍到脖子-哔哩哔哩】 https://b23.tv/BNbdkn3
+
+再有新的杀职实装了是不是还要做匹配啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
