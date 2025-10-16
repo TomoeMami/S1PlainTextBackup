@@ -67,3 +67,14 @@
 
 自动战斗能用技能了 爽auto
 
+
+*****
+
+####  电脑死机  
+##### 519#       发表于 2025-10-16 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68574773&amp;ptid=2249235" target="_blank">琉歌 发表于 2025-10-15 15:22</a>
+
+一周年送的骨头有料的，出了风矮人跟莉瓦娜，拾骨者貌似也是给的限定，今天一天不黑drecom ...</blockquote>
+日，我出的sp王女和狼叔……
+
