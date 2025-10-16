@@ -1291,3 +1291,17 @@ StartThreadedEvents =
 中国玩家应该对西方游戏媒体祛魅了，不能盲目迷信西方媒体评分</blockquote>
 我玩PS的时候西方媒体编辑还是液体呢。
 
+
+*****
+
+####  5long  
+##### 116#       发表于 2025-10-16 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68580228&amp;ptid=2262912" target="_blank">wthall 发表于 2025-10-16 17:00</a>
+想问一下这代怎么快速rerun，看到菜单里面的唯一选项是遗忘这夜，点了之后感觉就是回档到这局开始，没法快 ...</blockquote>
+到后面会解锁一个大锅配方，炼了之后可以在出门前对着誓言那个东西敬礼，效果就是重设 RNG 种子
+
+没解锁就只能像一代那样站着给怪打回家
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
