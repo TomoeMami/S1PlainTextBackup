@@ -7071,3 +7071,11 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 
 梗王居然是个盾，本来我还想着sp她的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leliel  
+##### 2922#       发表于 2025-10-16 19:27
+
+这游戏是不是说加入google play games可以上pc玩了
+
