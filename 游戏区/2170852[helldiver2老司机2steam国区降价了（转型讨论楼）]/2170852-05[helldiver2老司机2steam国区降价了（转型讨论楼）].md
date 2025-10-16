@@ -59,3 +59,11 @@
 <img src="https://p.sda1.dev/27/51e25972b3091f77adc35090eb8bfb27/CMP_20251015102038645.jpg" referrerpolicy="no-referrer">
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 7188#       发表于 2025-10-16 21:08
+
+最近鬼佬乐子不少，LtBuzzLitebeer上周发了个关于社区谣言的视频，箭÷要求他删除其中关于管子AI钓鱼封面的片段，拒绝后直接被创作者计划除名。另一个叫Eravin的up反复申请加入创作者计划被箭÷莫名其妙针对鸽了一年半，结果箭÷以他在直播时抱怨为由不准他加入，还要求他接下来六周别说坏话，好好表现的话兴许就会考虑他的申请，然后就没下文了。另一边头号小黑子OhDough进游戏9800x3d直接烧毁，还有两个小up一个炸了硬盘一个疑似显卡受损，只能说今年的活比自由升级那会狠多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
