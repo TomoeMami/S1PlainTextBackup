@@ -7102,3 +7102,11 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 
 应该是新手吧，大多都是第一次实战就是高达这种豪华跑车的
 
+
+*****
+
+####  王俊凯  
+##### 2925#       发表于 2025-10-16 21:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">纪念活动lv2没开别打雷霆（劲省ap提醒
+

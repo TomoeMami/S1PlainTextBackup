@@ -324,3 +324,12 @@ STAFF2使用卡组：Ave Mujica卡组
 
        [https://www.adores.jp/tenpo/sunshine.html](https://www.adores.jp/tenpo/sunshine.html)
 
+
+*****
+
+####  CyDiablo  
+##### 27311#       发表于 2025-10-16 21:33
+
+[【【元祖！BanG Dream Chan】 #3 和平时一样的归宿-哔哩哔哩】](https://b23.tv/Ks91yh3)
+一直摸兜里在哪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
