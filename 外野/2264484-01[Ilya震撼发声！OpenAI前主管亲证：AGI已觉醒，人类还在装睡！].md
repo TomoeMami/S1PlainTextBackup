@@ -753,3 +753,13 @@ AI已经崛起，你们还没收到通知吗
 
 狼又来了嘛？
 
+
+*****
+
+####  pointer243  
+##### 85#       发表于 2025-10-16 08:07
+
+CloseAI 没活可以让ai咬打火机
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
