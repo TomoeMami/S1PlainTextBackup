@@ -779,3 +779,15 @@ CloseAI 没活可以让ai咬打火机
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我比较肤浅，我只想知道能不能用没有限制器的AI写刘备
 
+
+*****
+
+####  jojog  
+##### 88#       发表于 2025-10-16 12:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞了半天是炒作啥“艺术品”的，创意还是偷的
+
+[https://x.com/karinanguyen_/status/1978492907725476060](https://x.com/karinanguyen_/status/1978492907725476060)
+
+乐.jpg
+
