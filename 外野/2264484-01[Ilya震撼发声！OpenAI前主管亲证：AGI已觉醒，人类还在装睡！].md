@@ -771,3 +771,11 @@ CloseAI 没活可以让ai咬打火机
 
 我是真睡，他是装醒<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朋友费小号  
+##### 87#       发表于 2025-10-16 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我比较肤浅，我只想知道能不能用没有限制器的AI写刘备
+
