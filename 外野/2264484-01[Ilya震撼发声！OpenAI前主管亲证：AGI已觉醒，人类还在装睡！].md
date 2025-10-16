@@ -807,3 +807,15 @@ CloseAI 没活可以让ai咬打火机
 
 要是不懂技术的话说不定还真给唬到了
 
+
+*****
+
+####  我家阿喵叫花花  
+##### 91#       发表于 2025-10-16 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68572958&amp;ptid=2264484" target="_blank">Ncr110 发表于 2025-10-15 10:26</a>
+智械危机来了吗</blockquote>
+一般来说，科技的最新发展都会被用来搞黄色<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
