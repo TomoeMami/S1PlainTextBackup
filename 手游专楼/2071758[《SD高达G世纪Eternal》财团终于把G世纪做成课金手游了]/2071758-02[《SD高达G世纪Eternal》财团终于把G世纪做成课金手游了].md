@@ -7118,3 +7118,13 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 
 主要71鸡是自由配套机师，八竿子打不着了
 
+
+*****
+
+####  dio999  
+##### 2927#       发表于 2025-10-16 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68581534&amp;ptid=2071758" target="_blank">王俊凯 发表于 2025-10-16 21:31</a>
+纪念活动lv2没开别打雷霆（劲省ap提醒</blockquote>
+已经迟了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
