@@ -3977,3 +3977,11 @@ Zach-like游戏QuantumPulse 2A有人玩吗？看到个管人在玩lol
 
 闰月之年确实好玩
 
+
+*****
+
+####  Algie  
+##### 276#       发表于 2025-10-16 18:00
+
+metroidbrainia的范畴越来越怪了，逛了一下r/metroidbrainia，为啥现在连奥伯拉丁like和8号出口like都要标榜自己是metroidbrainia啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
