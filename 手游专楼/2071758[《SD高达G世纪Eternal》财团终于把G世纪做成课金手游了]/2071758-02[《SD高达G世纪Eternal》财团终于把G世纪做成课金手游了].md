@@ -7079,3 +7079,26 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 
 这游戏是不是说加入google play games可以上pc玩了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2923#       发表于 2025-10-16 19:32
+
+<img src="https://img.stage1st.com/forum/202510/16/193229gnzuqqqulrae5b6l.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20251016-193147.png</strong> (304.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-16 19:32 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">菜鸟？？
+
+*****
+
+####  arthes  
+##### 2924#       发表于 2025-10-16 19:34
+
+应该是新手吧，大多都是第一次实战就是高达这种豪华跑车的
+
