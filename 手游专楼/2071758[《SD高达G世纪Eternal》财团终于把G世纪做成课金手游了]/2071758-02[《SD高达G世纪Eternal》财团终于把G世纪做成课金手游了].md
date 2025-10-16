@@ -7009,3 +7009,11 @@ n卡r卡突破有没有快捷操作，只能一个个点吗<img src="https://sta
 
 历史关卡要重新打，但可以再拿一次钻，。相当于新活动了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，都不知道该说万代啥好了。。
 
+
+*****
+
+####  森兰丸  
+##### 2916#       发表于 2025-10-16 11:56
+
+ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
