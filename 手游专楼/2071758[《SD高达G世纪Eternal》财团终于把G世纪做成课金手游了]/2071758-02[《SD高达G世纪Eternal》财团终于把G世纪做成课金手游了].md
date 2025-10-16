@@ -7128,3 +7128,12 @@ ASTRAY常态化后就没有加成了么<img src="https://static.stage1st.com/ima
 纪念活动lv2没开别打雷霆（劲省ap提醒</blockquote>
 已经迟了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 2928#       发表于 2025-10-16 23:45
+
+自box ur大概这样，普池刚凑齐200票，感觉没有的比较值得换的也就ur93骡鸭和斯莱塔，不过3动机师红基神傻子那也有了，支援机没有什么ur高破的不知道换骡和狸猫值不值，大概需求也就是看看打永恒之路这些角色还有没有刚需天梯一直混低保，还是说换个独角兽满破算了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/831c2d278b8e8ce1ca1a6c9922ec0c01/image.jpg" referrerpolicy="no-referrer">
+
