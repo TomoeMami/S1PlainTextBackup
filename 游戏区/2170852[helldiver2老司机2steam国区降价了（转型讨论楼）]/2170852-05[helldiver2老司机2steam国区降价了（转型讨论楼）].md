@@ -78,3 +78,16 @@
 最近鬼佬乐子不少，LtBuzzLitebeer上周发了个关于社区谣言的视频，箭÷要求他删除其中关于管子AI钓鱼封面的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这几个烤机的是不是都玩了战地6？感觉战地那个内核级反作弊配合司马gameguard双管齐下确实是能烧主板的
 
+
+*****
+
+####  FLZB  
+##### 7190#       发表于 2025-10-16 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68581764&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-10-16 22:25</a>
+
+这几个烤机的是不是都玩了战地6？感觉战地那个内核级反作弊配合司马gameguard双管齐下确实是能烧主板的
+
+ ...</blockquote>
+OhDough是玩了战地的，虽然现在炸机原因还没有定论，但他们确实都是玩这游戏出的问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
