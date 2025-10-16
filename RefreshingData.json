@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 11259,
+    "totalreply": 11260,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1760601012,
+    "lastedit": 1760601977,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 196674,
+    "totalreply": 196676,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1760601370,
+    "lastedit": 1760601977,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9828,10 +9828,10 @@
     "update": false
   },
   "2014256": {
-    "totalreply": 610,
+    "totalreply": 612,
     "title": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]",
     "newtitle": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]",
-    "lastedit": 1760592973,
+    "lastedit": 1760601973,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 3452,
+    "totalreply": 3453,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1760601010,
+    "lastedit": 1760601608,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11700,10 +11700,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 3431,
+    "totalreply": 3432,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1760600535,
+    "lastedit": 1760601735,
     "category": "外野",
     "active": true,
     "update": false
@@ -11997,10 +11997,10 @@
     "update": false
   },
   "2075348": {
-    "totalreply": 4090,
+    "totalreply": 4093,
     "title": "[《空洞骑士：丝之歌》2025年发售，首发XGP]",
     "newtitle": "[《空洞骑士：丝之歌》2025年9月4日发售！首发XGP]",
-    "lastedit": 1760601371,
+    "lastedit": 1760602088,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13050,10 +13050,10 @@
     "update": false
   },
   "2263388": {
-    "totalreply": 471,
+    "totalreply": 472,
     "title": "[为什么麻辣仙人越斗争地盘越小？]",
     "newtitle": "[为什么麻辣仙人越斗争地盘越小？]",
-    "lastedit": 1760599943,
+    "lastedit": 1760601847,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -13172,7 +13172,7 @@
     "newtitle": "[xgpu涨价，美区上涨50%至30刀／月]",
     "lastedit": 1760342422,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263455": {
@@ -13473,10 +13473,10 @@
     "update": false
   },
   "2263409": {
-    "totalreply": 215,
+    "totalreply": 217,
     "title": "[俄乌10月楼]",
     "newtitle": "[俄乌10月楼]",
-    "lastedit": 1760601127,
+    "lastedit": 1760601977,
     "category": "外野",
     "active": true,
     "update": false
@@ -16560,10 +16560,10 @@
     "update": false
   },
   "2264511": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[马达加斯加政变，总统已乘坐法国飞机出国]",
     "newtitle": "[马达加斯加政变，总统已乘坐法国飞机出国]",
-    "lastedit": 1760600535,
+    "lastedit": 1760601977,
     "category": "外野",
     "active": true,
     "update": false
@@ -16695,10 +16695,10 @@
     "update": false
   },
   "2264556": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[环保少女讲述遭以色列虐待的经历]",
     "newtitle": "[环保少女讲述遭以色列虐待的经历]",
-    "lastedit": 1760600535,
+    "lastedit": 1760601735,
     "category": "外野",
     "active": true,
     "update": false
@@ -16776,11 +16776,29 @@
     "update": false
   },
   "2264601": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[可以随便找个人结婚吗]",
     "newtitle": "[可以随便找个人结婚吗]",
-    "lastedit": 1760601489,
+    "lastedit": 1760601735,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2264574": {
+    "totalreply": 42,
+    "title": "[世界达到第一个气候临界点]",
+    "newtitle": "[世界达到第一个气候临界点]",
+    "lastedit": 1760601977,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2264609": {
+    "totalreply": 47,
+    "title": "[板垣伴信怎么了？（应该是已去世了）]",
+    "newtitle": "[板垣伴信怎么了？（应该是已去世了）]",
+    "lastedit": 1760602090,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
