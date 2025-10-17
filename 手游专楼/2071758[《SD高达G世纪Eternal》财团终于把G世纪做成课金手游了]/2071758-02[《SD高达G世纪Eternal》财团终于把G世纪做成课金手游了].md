@@ -7181,3 +7181,13 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 新加的十关最恶心的是水产那关，要做一个UC的MA（估计大部分人都放最后做甚至不想做），然后剩下9个位置要用复制人深渊和祖鲁塞满。新关卡总体难度很低，基本老玩家随便打打就过了。
 
+
+*****
+
+####  dfdddfdd  
+##### 2933#       发表于 2025-10-17 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68582623&amp;ptid=2071758" target="_blank">夜之光 发表于 2025-10-17 08:36</a>
+各种做满星图鉴的SR呗，主要是给的人必中少了，没UR铃司的话好像只有联邦魔女僚机和捷多的橙毛小兄弟，这两 ...</blockquote>
+水产我做了7台亚修过的，r卡相对便宜点<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
