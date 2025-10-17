@@ -7245,3 +7245,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 有人能发下PC版的客户端安装包么....我这里google play装不了</blockquote>
 我看了下自己安装过程最后网络连接卡在和IPV6服务器的交互上，应该是我电脑的网络（梯子）不支持IPV6的关系，所以有安装包也没用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 2940#       发表于 2025-10-17 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68584923&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-10-17 14:35</a>
+
+我看了下自己安装过程最后网络连接卡在和IPV6服务器的交互上，应该是我电脑的网络（梯子）不支持IPV6的关 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我网络应该是没问题的....别的外服游戏都能玩
+
+单纯就是我电脑装不了google game play这个应用程序
+
+其它一些别的在google game play上架的游戏我直接安装游戏的客户端都能玩
+
