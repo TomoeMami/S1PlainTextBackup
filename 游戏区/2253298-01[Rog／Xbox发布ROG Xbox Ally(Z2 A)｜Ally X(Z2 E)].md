@@ -94,3 +94,11 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  taxiom  
+##### 158#       发表于 2025-10-17 10:39
+
+这代手感看起来好棒，然而狗屎华硕把XGM无情抛弃<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
