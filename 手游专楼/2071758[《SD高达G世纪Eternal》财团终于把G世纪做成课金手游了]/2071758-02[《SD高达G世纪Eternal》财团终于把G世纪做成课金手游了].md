@@ -7234,3 +7234,14 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 普池初始还差巴巴托斯，凤凰，妖刀没抽出来
 
+
+*****
+
+####  马桶3  
+##### 2939#       发表于 2025-10-17 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68583124&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-10-17 09:52</a>
+
+有人能发下PC版的客户端安装包么....我这里google play装不了</blockquote>
+我看了下自己安装过程最后网络连接卡在和IPV6服务器的交互上，应该是我电脑的网络（梯子）不支持IPV6的关系，所以有安装包也没用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
