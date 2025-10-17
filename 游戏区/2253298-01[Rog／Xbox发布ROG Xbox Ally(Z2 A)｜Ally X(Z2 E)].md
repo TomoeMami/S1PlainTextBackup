@@ -102,3 +102,15 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 这代手感看起来好棒，然而狗屎华硕把XGM无情抛弃<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  张叔夜  
+##### 159#       发表于 2025-10-17 10:53
+
+说起来8060s这款核显什么时候能下放到5000元左右的轻薄本上面啊
+
+感觉下放了就是绝杀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
