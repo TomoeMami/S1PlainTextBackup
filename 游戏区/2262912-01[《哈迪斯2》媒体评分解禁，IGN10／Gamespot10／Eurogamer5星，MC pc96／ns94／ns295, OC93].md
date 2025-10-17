@@ -1313,3 +1313,16 @@ StartThreadedEvents =
 
 这代什么时候能解锁祝福清单？想合双重祝福都不知道前置是什么
 
+
+*****
+
+####  wthall  
+##### 118#       发表于 2025-10-17 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68580658&amp;ptid=2262912" target="_blank">5long 发表于 2025-10-16 18:13</a>
+
+到后面会解锁一个大锅配方，炼了之后可以在出门前对着誓言那个东西敬礼，效果就是重设 RNG 种子
+
+没解锁 ...</blockquote>
+解锁了出门以后也没法快速重开啊。。。。。必须被打死，太蠢了
+
