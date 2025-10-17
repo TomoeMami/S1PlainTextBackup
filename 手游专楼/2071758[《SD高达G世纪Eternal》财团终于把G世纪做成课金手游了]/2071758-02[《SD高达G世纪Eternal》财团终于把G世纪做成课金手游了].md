@@ -7206,3 +7206,11 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 人物SP点数估计还是在打永恒之路EX遇上miss心态爆炸的时候用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 2936#       发表于 2025-10-17 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">有人能发下PC版的客户端安装包么....我这里google play装不了
+
