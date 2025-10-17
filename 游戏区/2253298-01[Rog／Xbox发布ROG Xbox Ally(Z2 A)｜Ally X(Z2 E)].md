@@ -122,3 +122,16 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 这玩意的宣传主打一个2077漫威蜘蛛侠八十帧超越ps5Xbox 233
 
+
+*****
+
+####  zid99825  
+##### 161#       发表于 2025-10-17 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68583532&amp;ptid=2253298" target="_blank">taxiom 发表于 2025-10-17 10:39</a>
+
+这代手感看起来好棒，然而狗屎华硕把XGM无情抛弃</blockquote>
+不是兼容新的XGM么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+这台新的ally x支持tb4的
+
