@@ -1343,3 +1343,13 @@ StartThreadedEvents =
 
 局外成长起来后再看爷爷就是我还没用力你怎么就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  这次是十块钱  
+##### 121#       发表于 2025-10-17 20:41
+
+我个人觉得还挺有意思的，人物个性鲜明，细节满满，战斗虽然无聊但是也算是及格分，美术大加分
+
+楼上还有人说星界战士的，战斗系统上也许好一点，但是当时ns版恶性bug打完最终boss一定概率闪退不保留进度真的是制作组活全家了
+
