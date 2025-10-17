@@ -1335,3 +1335,11 @@ StartThreadedEvents =
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68497280&amp;ptid=2262912" target="_blank">方舟失智博士 发表于 2025-9-27 19:35</a></blockquote>
 好家伙，我现在连EA 30小时进度是正在做第2步（一共见到2次，其中1次有了能赢的幻想<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  卡拉德利姆  
+##### 120#       发表于 2025-10-17 20:33
+
+局外成长起来后再看爷爷就是我还没用力你怎么就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
