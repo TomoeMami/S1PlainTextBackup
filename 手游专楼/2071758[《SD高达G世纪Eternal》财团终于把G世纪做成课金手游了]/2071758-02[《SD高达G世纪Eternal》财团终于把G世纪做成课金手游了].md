@@ -7191,3 +7191,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 各种做满星图鉴的SR呗，主要是给的人必中少了，没UR铃司的话好像只有联邦魔女僚机和捷多的橙毛小兄弟，这两 ...</blockquote>
 水产我做了7台亚修过的，r卡相对便宜点<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 2934#       发表于 2025-10-17 09:14
+
+这google play安装不知道为啥一直卡在87%<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马桶3  
+##### 2935#       发表于 2025-10-17 09:14
+
+人物SP点数估计还是在打永恒之路EX遇上miss心态爆炸的时候用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

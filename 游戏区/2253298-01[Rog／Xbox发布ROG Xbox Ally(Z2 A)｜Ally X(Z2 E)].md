@@ -50,3 +50,15 @@
 
 这个掌机能外接显示器吗
 
+
+*****
+
+####  zid99825  
+##### 154#       发表于 2025-10-17 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68582772&amp;ptid=2253298" target="_blank">等等!等灯等灯 发表于 2025-10-17 09:01</a>
+这个掌机能外接显示器吗</blockquote>
+就是个pc啊，当然能接
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
