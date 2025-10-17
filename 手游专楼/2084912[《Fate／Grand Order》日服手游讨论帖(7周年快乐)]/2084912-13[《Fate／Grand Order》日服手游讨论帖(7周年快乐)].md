@@ -762,3 +762,98 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便出 反正没石头 跳过
 
+
+*****
+
+####  exiaexa  
+##### 18466#       发表于 2025-10-17 18:43
+
+惊了，居然还有新的万圣活动，龙娘又要增殖了吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18467#       发表于 2025-10-17 19:02
+
+上两次的幕后黑手应该出来了吧。
+
+*****
+
+####  岸浪白野  
+##### 18468#       发表于 2025-10-17 20:51
+
+真正的内部爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实装前几天还在调整
+
+<img src="https://img.stage1st.com/forum/202510/17/204720w6d6m11emm1iimne.png" referrerpolicy="no-referrer">
+
+<strong>HM7S[](GYJB1QS9XCB{`[L7.png</strong> (819.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:47 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204732xzw033l097ywzhx5.png" referrerpolicy="no-referrer">
+
+<strong>1WERDO}{Q72T}E(%9XTJ$X3.png</strong> (975.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:47 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204740l57rbc1uyi7c6yc0.png" referrerpolicy="no-referrer">
+
+<strong>HDX74_]1)@(0FKHJ[VEW]BX.png</strong> (838.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:47 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204747u6v3990b005fmlv6.png" referrerpolicy="no-referrer">
+
+<strong>3EL3J`8@17PVD$OL~](G2SQ.png</strong> (748.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:47 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204757dbazte9c2iehknng.png" referrerpolicy="no-referrer">
+
+<strong>0PWD0JRWK~61V(P%GYSDA.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:47 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204805k3qnx0njs4s0n73s.png" referrerpolicy="no-referrer">
+
+<strong>2DX}W_YQ4$QEUVWYOSNCAEW.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:48 上传
+
+<img src="https://img.stage1st.com/forum/202510/17/204813pp9eusw1aw02suue.png" referrerpolicy="no-referrer">
+
+<strong>97XO@6%3{O6I)SYF)5N[2WR.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-10-17 20:48 上传
+
+*****
+
+####  qixinno2  
+##### 18469#       发表于 2025-10-17 21:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">反观有的角色只配一键换装飞天十字架 
+
+*****
+
+####  jackyhuang  
+##### 18470#       发表于 2025-10-17 21:18
+
+不要尬黑，有的从者实装后也调整了不是吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
