@@ -7214,3 +7214,13 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">有人能发下PC版的客户端安装包么....我这里google play装不了
 
+
+*****
+
+####  白猫MKII  
+##### 2937#       发表于 2025-10-17 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68582014&amp;ptid=2071758" target="_blank">岸波白野 发表于 2025-10-16 23:45</a>
+自box ur大概这样，普池刚凑齐200票，感觉没有的比较值得换的也就ur93骡鸭和斯莱塔，不过3动机师红基神傻子 ...</blockquote>
+沙扎比是普池最值得换的，技师和机体都是。如果抄作业过永恒的话，93骡也要一个，缺了某几关会很恶心。
+

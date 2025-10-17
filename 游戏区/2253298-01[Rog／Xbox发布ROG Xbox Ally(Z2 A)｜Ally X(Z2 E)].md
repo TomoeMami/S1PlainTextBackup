@@ -80,3 +80,17 @@
 
 说起来国产掌机圈也是卷到起飞，某品牌AI Max+ 395都上了，核显性能堪比移动版4060，就是价格也起飞了。
 
+
+*****
+
+####  大暴死  
+##### 157#       发表于 2025-10-17 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68583074&amp;ptid=2253298" target="_blank">eternity0079 发表于 2025-10-17 09:43</a>
+核显890M也算是提升不小，基本能到摸到1060的脚，看系统能优化到什么程度。
+
+说起来国产掌机圈也是卷到起飞 ...</blockquote>
+gpd win5，电池还能拆卸（不拆的话整机太重了）
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
