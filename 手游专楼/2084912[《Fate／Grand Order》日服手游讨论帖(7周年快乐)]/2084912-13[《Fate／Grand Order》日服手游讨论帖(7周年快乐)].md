@@ -731,3 +731,34 @@
 认定战sub的被爷爷Lily挨个即死，只剩我的爷爷对砍……</blockquote>
 其实开局点名砍头利用好了反而对我方有利，毕竟顺序是固定的，同时王哈被动和冠位树的特殊回避都可以无效并给我方加攻，算好顺序挨个把拐送掉加buff，然后我方两个冠杀猛猛砍就过了（刑部姬、大姐、泳装女武神、鬼一，杀阶的拐充能一般但数量还是挺多的）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 18462#       发表于 2025-10-17 14:15
+
+歪大公了艹
+
+*****
+
+####  jackyhuang  
+##### 18463#       发表于 2025-10-17 17:13
+
+啥？万圣节活动？
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  希望之花  
+##### 18464#       发表于 2025-10-17 17:36
+
+这次会是龙娘X JAPAN吗
+
+*****
+
+####  qixinno2  
+##### 18465#       发表于 2025-10-17 17:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便出 反正没石头 跳过
+
