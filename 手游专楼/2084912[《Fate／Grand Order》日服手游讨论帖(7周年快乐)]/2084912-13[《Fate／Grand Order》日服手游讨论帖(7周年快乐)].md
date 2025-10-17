@@ -688,3 +688,46 @@
 草，单抽阿育王，你在隔壁过来是吧。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧！
 
+
+*****
+
+####  Jamaisvu  
+##### 18458#       发表于 2025-10-16 18:40
+
+<blockquote>壳壳牛 发表于 2025-10-16 16:41
+这又是什么BUG...</blockquote>
+这真的是同一个号吗，如果是两个同名同等级同纹章的账号同时登录，应该能达到这种效果...
+
+不同之处是角色等级、礼装、戴冠、友情点，我试了一下同一角色哪怕有两张卡，也不能重复作为助战。
+
+脑洞了一下，也许是同一账号登录不同设备，一号设备保存好助战后不操作也不掉线，二号设备引继后提升练度更换礼装，从而实现禁忌的双重存在之时空悖论？
+
+*****
+
+####  壳壳牛  
+##### 18459#       发表于 2025-10-16 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68580764&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-16 18:40</a>
+
+这真的是同一个号吗，如果是两个同名同等级同纹章的账号同时登录，应该能达到这种效果...
+
+不同之处是角 ...</blockquote>
+就是一个号，我还专门点助战看了...
+
+*****
+
+####  zecchino  
+##### 18460#       发表于 2025-10-17 11:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">认定战sub的被爷爷Lily挨个即死，只剩我的爷爷对砍……
+
+*****
+
+####  xiongxingyu  
+##### 18461#       发表于 2025-10-17 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68583864&amp;ptid=2084912" target="_blank">zecchino 发表于 2025-10-17 11:28</a>
+
+认定战sub的被爷爷Lily挨个即死，只剩我的爷爷对砍……</blockquote>
+其实开局点名砍头利用好了反而对我方有利，毕竟顺序是固定的，同时王哈被动和冠位树的特殊回避都可以无效并给我方加攻，算好顺序挨个把拐送掉加buff，然后我方两个冠杀猛猛砍就过了（刑部姬、大姐、泳装女武神、鬼一，杀阶的拐充能一般但数量还是挺多的）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
