@@ -190,3 +190,13 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 —— 来自 HUAWEI VDE-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  又是十元  
+##### 167#       发表于 2025-10-18 16:01
+
+七寸屏幕小了点啊，看惯ns2的八寸了
+
+— from OnePlus CPH2551, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
