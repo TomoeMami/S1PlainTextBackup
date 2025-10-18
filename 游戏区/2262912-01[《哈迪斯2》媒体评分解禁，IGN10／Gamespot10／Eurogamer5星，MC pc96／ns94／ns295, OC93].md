@@ -1433,3 +1433,14 @@ StartThreadedEvents =
 
 这游戏那个弹幕量，那就是build成型远大于动作技术啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斧子也只是一种低频高伤的底子罢了
 
+
+*****
+
+####  bonysl  
+##### 131#       发表于 2025-10-18 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68590997&amp;ptid=2262912" target="_blank">otakun 发表于 2025-10-18 20:58</a>
+
+我说的是作为近战比远程面对的风险更大，但没有对应获得什么防御或攻击上的明显优势，而不是问有什么祝福流 ...</blockquote>
+近战动作模组本身数值也更好，普遍不费蓝就能打出高输出，费蓝打出更爆炸伤害
+
