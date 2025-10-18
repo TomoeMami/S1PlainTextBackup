@@ -1407,3 +1407,13 @@ StartThreadedEvents =
 
 近战用灶阳闪避流，匠后法力盾都能玩吧，不是只有一种加肉度的组合
 
+
+*****
+
+####  水边井  
+##### 128#       发表于 2025-10-18 20:55
+
+开个锤子可roll就行，锤子这么关键的东西居然不能roll也太蠢了
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
