@@ -1425,3 +1425,11 @@ StartThreadedEvents =
 
 我说的是作为近战比远程面对的风险更大，但没有对应获得什么防御或攻击上的明显优势，而不是问有什么祝福流派可以玩，EA期间都玩腻了。什么闪避、冻结、护盾的祝福近战能用远程也能用，也没特别优待。
 
+
+*****
+
+####  sgssk  
+##### 130#       发表于 2025-10-18 21:13
+
+这游戏那个弹幕量，那就是build成型远大于动作技术啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斧子也只是一种低频高伤的底子罢了
+
