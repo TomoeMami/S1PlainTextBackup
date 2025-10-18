@@ -169,3 +169,24 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cc-2  
+##### 165#       发表于 2025-10-18 15:32
+
+系统能直接刷给ROG ALLY X用吗
+
+*****
+
+####  飞侠小黑  
+##### 166#       发表于 2025-10-18 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68583074&amp;ptid=2253298" target="_blank">eternity0079 发表于 2025-10-17 09:43</a>
+核显890M也算是提升不小，基本能到摸到1060的脚，看系统能优化到什么程度。
+
+说起来国产掌机圈也是卷到起飞 ...</blockquote>
+395啥时候能把价格降下来啊，好想买一台
+
+—— 来自 HUAWEI VDE-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
