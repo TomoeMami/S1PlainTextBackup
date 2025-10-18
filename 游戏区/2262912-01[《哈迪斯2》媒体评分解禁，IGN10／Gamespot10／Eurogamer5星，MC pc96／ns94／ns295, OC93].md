@@ -1389,3 +1389,13 @@ StartThreadedEvents =
 
 如果只是想通关的话，带随便什么神的信物，紧着稀有度高的选就行，阿卡纳牌升上去后数值的宽容非常高了
 
+
+*****
+
+####  otakun  
+##### 126#       发表于 2025-10-18 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68590073&amp;ptid=2262912" target="_blank">哈罗 发表于 2025-10-18 17:38</a>
+近战祝福增伤比较高，拿爱神+冰神祝福，攻击能冲到三四百的百分比，爱神近距离全程虚弱，减伤30%起，冰神 ...</blockquote>
+虽然说重开是肉鸽的精粹，但只有拿了固定核心才能玩的肉鸽游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这近战不要也罢
+

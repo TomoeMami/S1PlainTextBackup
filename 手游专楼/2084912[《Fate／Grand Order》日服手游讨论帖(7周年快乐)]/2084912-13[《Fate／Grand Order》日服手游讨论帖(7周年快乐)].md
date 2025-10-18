@@ -906,3 +906,42 @@ MuMu-20251018-080100-186.jpg
 
 而且这样的人还不止1个2个<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 18475#       发表于 2025-10-18 17:43
+
+这期冠位打起来就是舒服，上期骑阶诺亚打起来太折磨了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qixinno2  
+##### 18476#       发表于 2025-10-18 17:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">没梦火懒得刷了
+
+*****
+
+####  alucardcz  
+##### 18477#       发表于 2025-10-18 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68588325&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-18 10:53</a>
+
+不知道有的人光兔挂午餐不挂午茶是在搞啥.....故意恶心人么....总不至于没午茶吧
+
+而且这样的人还不止1个2 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为和自己用的是共通的吧 自己刷的时候就5%
+
+*****
+
+####  alucardcz  
+##### 18478#       发表于 2025-10-18 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68587871&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-18 08:03</a>
+
+本来看见没有跑狗不报希望的，最后还是神贞给的30石头创造奇迹</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">为什么欧 萌新也想欧
+
