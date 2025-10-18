@@ -1444,3 +1444,57 @@ StartThreadedEvents =
 我说的是作为近战比远程面对的风险更大，但没有对应获得什么防御或攻击上的明显优势，而不是问有什么祝福流 ...</blockquote>
 近战动作模组本身数值也更好，普遍不费蓝就能打出高输出，费蓝打出更爆炸伤害
 
+
+*****
+
+####  哈罗  
+##### 132#       发表于 2025-10-18 22:33
+
+这游戏其实没有远程武器，都是短至中距离，斧子挥砍和杖的打击范围都属于近距离判定，只有类似杖特斧特这些属于远距离，但是靠这种方式主输出是很便秘的，高热限时又群魔乱舞，肯定打不动
+
+
+*****
+
+####  叶雾  
+##### 133#       发表于 2025-10-18 22:41
+
+这游戏，只以全成就为目标，哪需要什么build啊，随缘打不也是都能过
+
+最难的估计就是随机的超级冥界混沌了，要打随机的20热度，那也是完全随机的
+
+<img src="https://img.stage1st.com/forum/202510/18/223905ot00a7sztmm8asi8.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1760798257544.jpg</strong> (150.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-18 22:39 上传
+
+<img src="https://img.stage1st.com/forum/202510/18/223905a38ptp8pt99orw5p.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1760798263646.jpg</strong> (122.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-18 22:39 上传
+
+<img src="https://img.stage1st.com/forum/202510/18/223905ce7czyoyn72vvl0n.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1760798260669.jpg</strong> (138.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-18 22:39 上传
+
+<img src="https://img.stage1st.com/forum/202510/18/223922pnvluznk7uu7w1a1.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1760798353874.jpg</strong> (114.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-18 22:39 上传
+
+我是20来夜第一次通地下，现在116夜全成就差一个涅梅西斯1000金币
+
+局外成长起来后，随机开一局，翻车也是小概率事件
+
