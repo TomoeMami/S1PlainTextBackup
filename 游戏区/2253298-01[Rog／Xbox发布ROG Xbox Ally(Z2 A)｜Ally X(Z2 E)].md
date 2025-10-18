@@ -200,3 +200,13 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 — from OnePlus CPH2551, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zid99825  
+##### 168#       发表于 2025-10-18 20:22
+
+话说华硕已经把价格加到6999了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

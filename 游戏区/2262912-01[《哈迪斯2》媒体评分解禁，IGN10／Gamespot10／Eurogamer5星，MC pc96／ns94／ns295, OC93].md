@@ -1399,3 +1399,11 @@ StartThreadedEvents =
 近战祝福增伤比较高，拿爱神+冰神祝福，攻击能冲到三四百的百分比，爱神近距离全程虚弱，减伤30%起，冰神 ...</blockquote>
 虽然说重开是肉鸽的精粹，但只有拿了固定核心才能玩的肉鸽游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这近战不要也罢
 
+
+*****
+
+####  bonysl  
+##### 127#       发表于 2025-10-18 20:22
+
+近战用灶阳闪避流，匠后法力盾都能玩吧，不是只有一种加肉度的组合
+
