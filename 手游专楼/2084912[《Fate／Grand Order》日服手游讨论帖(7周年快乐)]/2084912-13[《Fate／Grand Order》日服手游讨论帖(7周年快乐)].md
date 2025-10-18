@@ -857,3 +857,52 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qixinno2  
+##### 18471#       发表于 2025-10-17 21:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">调的更烂是吧
+
+*****
+
+####  khxooo  
+##### 18472#       发表于 2025-10-18 08:03
+
+本来看见没有跑狗不报希望的，最后还是神贞给的30石头创造奇迹<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+MuMu-20251018-080100-186.jpg
+(471.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-18 08:03 上传
+
+<img src="https://img.stage1st.com/forum/202510/18/080310mh6h1le6ved1q6ci.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18473#       发表于 2025-10-18 09:43
+
+<img src="https://img.stage1st.com/forum/202510/18/093939merxhtyg4h4le9tt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251018_093815.jpg</strong> (134.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-18 09:39 上传
+
+做了个测试，同为混沌恶，呼延灼与千代女羁绊值获取一样，证明活动预热从者的20%绊加成不作用于冠位战。
+
+*****
+
+####  森兰丸  
+##### 18474#       发表于 2025-10-18 10:53
+
+不知道有的人光兔挂午餐不挂午茶是在搞啥.....故意恶心人么....总不至于没午茶吧
+
+而且这样的人还不止1个2个<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
