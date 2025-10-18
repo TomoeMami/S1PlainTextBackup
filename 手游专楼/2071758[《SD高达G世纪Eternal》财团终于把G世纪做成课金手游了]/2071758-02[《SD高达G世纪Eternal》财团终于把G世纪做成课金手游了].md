@@ -7260,3 +7260,11 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 其它一些别的在google game play上架的游戏我直接安装游戏的客户端都能玩
 
+
+*****
+
+####  ドロロ  
+##### 2941#       发表于 2025-10-18 22:52
+
+要上贡新安州刹帝利，角色人物卡死了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
