@@ -153,3 +153,19 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 —— 来自 vivo V2436A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  navarra  
+##### 164#       发表于 2025-10-18 13:40
+
+到了，颜值虽然下降了，但是手感比1和x好太多了，到手先把机器拆了换上之前给1用的4tb固态，然后等云端恢复等了大半个小时。
+<img src="https://p.sda1.dev/28/90d3c8cd945c1910779553c7e5d6fe72/image.jpg" referrerpolicy="no-referrer">
+现在还在OOBE，整个OOBE流程全部支持手柄操作，软键盘也支持手柄，最逗的图标是给设备起名的时候，你这图像意思是我在给switch装win11是吗？
+<img src="https://p.sda1.dev/28/bbea8359569eeac0409adebec2cc2494/image.jpg" referrerpolicy="no-referrer">
+
+给两代机器来个合影
+<img src="https://p.sda1.dev/28/1ab878c04155d1b829b2ed256d7e9612/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
