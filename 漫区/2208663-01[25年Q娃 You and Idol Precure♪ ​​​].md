@@ -22,3 +22,11 @@
 <img src="https://files.catbox.moe/jswkrm.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/zk7kfc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1338#       发表于 2025-10-19 08:27
+
+虽然这集没有新歌没有新舞，下集又是在插科打诨，但我们新增了搅基！大家快来看！
+
