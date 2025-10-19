@@ -14,3 +14,11 @@
 
 三话看下来Siren不化妆的时候面相挺像男孩的<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖尔  
+##### 54#       发表于 2025-10-19 17:47
+
+虽然企划卖歌完全是暴死相，但是动画到目前第三集其实观感到还行，角色互动到还算挺有team的感觉，拍个劣质版战姬绝唱估计也能普普通通
+
