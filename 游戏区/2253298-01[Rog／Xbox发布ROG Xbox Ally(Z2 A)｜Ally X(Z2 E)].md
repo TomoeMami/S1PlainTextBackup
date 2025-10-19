@@ -210,3 +210,15 @@ gpd win5，电池还能拆卸（不拆的话整机太重了）
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  navarra  
+##### 169#       发表于 2025-10-19 12:49
+
+f1 25 开fsr3帧生成，35w模式，预设中档，各向异性过滤16x，帧数70到80，不错了。
+改成预设高档，帧数也有60到70
+限制为17w性能档，预设再调回中，也有50到60了，关键是这个档位噪音很小，基本上被游戏声音盖住了。
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
