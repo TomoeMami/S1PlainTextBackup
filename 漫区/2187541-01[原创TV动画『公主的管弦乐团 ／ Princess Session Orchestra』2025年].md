@@ -16,3 +16,13 @@
 
 op里三人出场时水萌基本都是不笑的玉玉镜头，要不是晨间都感觉在明示走te或者be了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚原子8  
+##### 181#       发表于 2025-10-19 23:32
+
+ep27真不错的，很搞笑，从严肃转向欢乐也很自然，既展现了每个角色的个性，也展现整个团的欢乐氛围，节奏把控的真好
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -66,3 +66,25 @@
 红小歌纯换色 大招live和之前一模一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 主线又别是几个男人的破事 就差圣母爆典
 
+
+*****
+
+####  leleq  
+##### 1343#       发表于 2025-10-19 23:29
+
+我看出来了今年一有时间多出来要水就水带货
+
+小歌和凯特这个关系算是标准的乙女向关系了，进可以抱帅哥当男友，退可以看2帅哥搞基，就缺买一送一了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这凯特变怪哪来的绳子啊xp是捆绑play是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这红主能算强化么……如果是这种水平的强化的话正常情况下后面该是每个人的单独升级回……<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  himfsz  
+##### 1344#       发表于 2025-10-19 23:34
+
+只是变红的话，马琳也可以变
+
