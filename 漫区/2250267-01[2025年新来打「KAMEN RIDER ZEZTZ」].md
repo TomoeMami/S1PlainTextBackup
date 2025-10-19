@@ -93,3 +93,11 @@ Case8「饗す」
 
 一个国民偶像多年不见真人不仅热度不减还没人怀疑，包是拍脑袋想的啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除非真是网友猜测的那样现实世界也是谁谁的梦，中后期揭露真相故事舞台和人物关系重构再次发生翻天覆地的变化。先别说高桥能不能把握这么大的反转，骑士棚真能出现这种剧本吗
 
+
+*****
+
+####  otakun  
+##### 379#       发表于 2025-10-19 18:51
+
+就应该把小偶像设定成皮套人，内胆失踪了换个人顶4年也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
