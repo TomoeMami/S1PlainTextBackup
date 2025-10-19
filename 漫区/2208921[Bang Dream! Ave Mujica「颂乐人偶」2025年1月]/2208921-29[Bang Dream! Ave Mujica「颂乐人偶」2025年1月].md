@@ -182,3 +182,86 @@
 
        [https://x.com/okada_mei0519/status/1979836160127185315](https://x.com/okada_mei0519/status/1979836160127185315)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41464#       发表于 2025-10-19 21:34
+
+       <strong>【ノーカット】Ave Mujica声優陣が集結！　合同ライブの舞台裏を語る｜映画『MyGO!!!!!×Ave Mujica 合同ライブ「わかれ道の、その先へ」 LIVE FILM』公開御礼舞台挨拶</strong>
+
+       <strong>【完整无删减】Ave Mujica 声优阵容集结！畅谈联合演唱会幕后花絮｜电影《MyGO!!!!!×Ave Mujica 联合演唱会「分岔路的前方」现场影像》上映答谢舞台致辞</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/19/213406pgmdpgdfc5605zc6.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault.jpg</strong> (128.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-19 21:34 上传
+
+2025年10月19日（日）に開催された映画『MyGO!!!!!×Ave Mujica 合同ライブ「わかれ道の、その先へ」 LIVE FILM』公開御礼舞台挨拶の模様を公開！
+<strong>2025 年 10 月 19 日（周日）举办的电影《MyGO!!!!!×Ave Mujica 联合演唱会「分岔路的前方」 LIVE FILM》公开致谢舞台问候影像正式公开！</strong>
+
+当日はAve Mujicaのキャストである佐々木李子さん（ドロリス/三角初華 役）、渡瀬結月さん（モーティス/若葉睦 役）、岡田夢以さん（ティモリス/八幡海鈴 役）、米澤茜さん（アモーリス/祐天寺にゃむ 役）、高尾奏音さん（オブリビオニス/豊川祥子 役）が登壇。
+<strong>当天登台的有 Ave Mujica 组合成员佐佐木李子（饰演 Doloris/三角初华）、渡濑结月（饰演 Mortis/若叶睦）、冈田梦以（饰演 Timoris/八幡海铃）、米泽茜（饰演 Amoris/祐天寺喵姆）、高尾奏音（饰演 Oblivionis/丰川祥子）。</strong>
+
+Ave Mujicaらしい仲睦まじい雰囲気で、MyGO!!!!!との合同ライブの舞台裏エピソードを披露しました。
+<strong>以 Ave Mujica 特有的和谐氛围，披露了与 MyGO!!!!!联合演唱会的幕后花絮。</strong>
+
+【作品概要】
+
+タイトル：映画『MyGO!!!!!×Ave Mujica 合同ライブ「わかれ道の、その先へ」 LIVE FILM』
+
+公開時期：公開中
+
+配給：ブシロードムーブ　／　チームジョイ
+<strong>【作品概要】
+
+电影《MyGO!!!!!×Ave Mujica 联合演唱会「分岔路的前方」LIVE FILM》
+
+上映时间：正在热映中
+
+发行：Bushiroad Move / Team Joy</strong>
+
+【イントロダクション】
+
+『BanG Dream!』で新たに誕生した新バンド「MyGO!!!!!」と「Ave Mujica」。
+
+2025年4月26日・27日にKアリーナ横浜で開催された両バンドによる合同大型ライブを映画化。
+<strong>【引言】
+
+在《BanG Dream!》中全新诞生的两支乐队「MyGO!!!!!」与「Ave Mujica」。
+
+2025 年 4 月 26 日・27 日在 K-Arena 横滨举行的两大乐队联合大型演唱会现已被制作成电影。</strong>
+
+『BanG Dream!』の歴史に刻まれるこの伝説的なステージに加え、MyGO!!!!! 高松燈役・羊宮妃那と、Ave Mujica オブリビオニス/豊川祥子役・高尾奏音による劇場版限定の新規撮り下ろしカットも収録。
+<strong>除了将载入《BanG Dream!》史册的传奇舞台外，本作还收录了由 MyGO!!!!!高松灯役・羊宫妃那与 Ave Mujica Oblivionis/丰川祥子役・高尾奏音特别为剧场版全新拍摄的限定镜头。</strong>
+
+2人がライブへの想いを語り合う、ファン必見の特別映像です！
+<strong>两人畅谈对演唱会的热忱，是粉丝必看的特别影像！</strong>
+
+【関連リンク】
+
+公式HP：[https://bang-dream.com/mygo_avemujica...](https://bang-dream.com/mygo_avemujica...)
+
+公式X： [https://x.com/bang_dream_info](https://x.com/bang_dream_info)
+
+公式YouTube：    / @bang_dream_official  
+<strong>【相关链接】
+
+官方网站：[https://bang-dream.com/mygo_avemujica...](https://bang-dream.com/mygo_avemujica...)
+
+官方 X 账号：[https://x.com/bang_dream_info](https://x.com/bang_dream_info)
+
+官方 YouTube 频道：  / @bang_dream_official</strong>
+
+(C)BanG Dream! Project
+<strong>(C)BanG Dream! 企划</strong>
+
+#AveMujica #MyGO #バンドリ #佐々木李子 #渡瀬結月 #岡田夢以 #米澤茜 #高尾奏音 #声優 #アニメ #舞台挨拶
+<strong>#AveMujica #MyGO #BanG_Dream #佐佐木李子 #渡濑结月 #冈田梦以 #米泽茜 #高尾奏音 #声优 #动漫 #舞台致辞</strong></blockquote>
+       [https://www.youtube.com/watch?v=0mThPeityFo](https://www.youtube.com/watch?v=0mThPeityFo)
+
+       [https://www.bilibili.com/video/BV1MisPzrE2J](https://www.bilibili.com/video/BV1MisPzrE2J)   &lt;——哔哩哔哩搬运
+

@@ -945,3 +945,62 @@ MuMu-20251018-080100-186.jpg
 本来看见没有跑狗不报希望的，最后还是神贞给的30石头创造奇迹</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">为什么欧 萌新也想欧
 
+
+*****
+
+####  khxooo  
+##### 18479#       发表于 2025-10-18 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68590716&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-18 19:54</a>
+为什么欧 萌新也想欧</blockquote>
+两宝的就不要出来说别人欧了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 18480#       发表于 2025-10-19 13:06
+
+用老芥打冠位好难打，但我还是快打完了
+
+<img src="https://img.stage1st.com/forum/202510/19/130538rb1goox1c4hbozxk.gif" referrerpolicy="no-referrer">
+
+<strong>ezgif-556ce708032e67.gif</strong> (576.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-19 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202510/19/130538mv3vmpqi5srr1dag.gif" referrerpolicy="no-referrer">
+
+<strong>ezgif-7ebf5a4429bdf8.gif</strong> (905.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-19 13:05 上传
+
+
+*****
+
+####  reekilynn  
+##### 18481#       发表于 2025-10-19 13:49
+
+咸鱼终于吭哧吭哧把所有的认定战打完了
+然而大总统那四个碎片还是打不过……
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  大十字紅朔  
+##### 18482#       发表于 2025-10-19 21:26
+
+花了三个小时做了这个
+
+<img src="https://img.stage1st.com/forum/202510/19/212559lhqg1h5ztadd1h9h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (805.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-19 21:25 上传
+
