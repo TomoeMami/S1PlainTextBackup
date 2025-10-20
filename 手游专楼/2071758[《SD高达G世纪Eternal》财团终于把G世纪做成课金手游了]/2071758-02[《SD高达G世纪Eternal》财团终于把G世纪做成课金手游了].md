@@ -7268,3 +7268,19 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 要上贡新安州刹帝利，角色人物卡死了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2942#       发表于 2025-10-20 14:10
+
+<img src="https://img.stage1st.com/forum/202510/20/141013givt4tjika4v8lxk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-20 14:10 上传
+
+你代哥真是勤俭持家，倒闭手游的素材是一点都不会浪费
+

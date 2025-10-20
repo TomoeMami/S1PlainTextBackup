@@ -514,3 +514,29 @@ rm游戏虽然剧情跟设计不错的游戏很多，就是游戏性跟卖相是
 
 网站正常，需要开梯子
 
+
+*****
+
+####  mes  
+##### 42#       发表于 2025-10-20 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68584978&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-10-17 14:45</a>
+
+确确实实是这样，每个人阅历不同，我之蜜糖彼之砒霜的情况多的很
+
+但我也把这游戏好在哪里写出来了，有戳 ...</blockquote>
+主要是我也玩电子小说类，孔布解密类，开始还好，屎就屎点，后来渐渐察觉，这屎里怎么还有毒，上面一眼看到列出的条，就不得不有某种预感，某些点还是说详细些好，不过个人的建议而已。
+
+*****
+
+####  InfiniteGyre  
+##### 43#       发表于 2025-10-20 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68597579&amp;ptid=2263973" target="_blank">frank14 发表于 2025-10-20 11:27</a>
+https://skyandearth.wiki.fc2.com/
+
+网站正常，需要开梯子</blockquote>
+试了下换日本梯子就能用了，403应该是ip被禁止了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
