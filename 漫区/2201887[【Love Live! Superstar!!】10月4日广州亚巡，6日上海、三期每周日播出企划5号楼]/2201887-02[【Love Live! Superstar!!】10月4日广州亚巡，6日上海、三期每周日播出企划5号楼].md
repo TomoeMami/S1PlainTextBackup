@@ -24,3 +24,11 @@
 
 太出圈了，可以理解，虽然感觉很谐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1739#       发表于 2025-10-20 10:01
+
+用这种形式再上红白，对现在的LL来说是最好的结果
+
