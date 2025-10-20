@@ -109,3 +109,11 @@ Case8「饗す」
 
 这开局有点烂了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuuga  
+##### 381#       发表于 2025-10-20 15:47
+
+绷不住了，司机遇到来车打方向还猛踩刹车让乘客仓承受直接伤害<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
