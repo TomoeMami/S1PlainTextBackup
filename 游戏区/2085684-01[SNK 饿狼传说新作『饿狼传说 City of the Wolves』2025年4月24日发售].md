@@ -67,3 +67,14 @@
 布兑, 还有中年罗伯特</blockquote>
 这个怎么看都是坂崎良啊，有得选的时候罗伯特什么时候穿过橙色的衣服……而且坂崎良也是当过天狗二代目的
 
+
+*****
+
+####  蕾丝控  
+##### 580#       发表于 2025-10-20 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68600963&amp;ptid=2085684" target="_blank">风夏 发表于 2025-10-20 21:32</a>
+
+好吧, 狼城里的坂崎良多大年纪了啊</blockquote>
+比特瑞他们大十岁左右，现在应该已经是二代目天狗了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
