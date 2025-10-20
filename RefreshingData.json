@@ -4640,7 +4640,7 @@
     "newtitle": "[【FTG节奏贴】2025年节奏楼]",
     "lastedit": 1760714890,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1988324": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 197493,
+    "totalreply": 197495,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1760974094,
+    "lastedit": 1760974692,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 25082,
+    "totalreply": 25083,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1760973846,
+    "lastedit": 1760974207,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 11897,
+    "totalreply": 11899,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1760973368,
+    "lastedit": 1760974572,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 2119,
+    "totalreply": 2121,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1760974099,
+    "lastedit": 1760974694,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11943,19 +11943,19 @@
     "update": false
   },
   "2144768": {
-    "totalreply": 354,
+    "totalreply": 355,
     "title": "[鵺の阴阳师 这部意外的有人气？]",
     "newtitle": "[鵺の阴阳师 这部意外的有人气？]",
-    "lastedit": 1760366425,
+    "lastedit": 1760974572,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2075348": {
-    "totalreply": 4127,
+    "totalreply": 4128,
     "title": "[《空洞骑士：丝之歌》2025年发售，首发XGP]",
     "newtitle": "[《空洞骑士：丝之歌》2025年9月4日发售！首发XGP]",
-    "lastedit": 1760955134,
+    "lastedit": 1760974338,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12258,10 +12258,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 9284,
+    "totalreply": 9286,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1760973735,
+    "lastedit": 1760974572,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13041,10 +13041,10 @@
     "update": false
   },
   "2196270": {
-    "totalreply": 373,
+    "totalreply": 374,
     "title": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
     "newtitle": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
-    "lastedit": 1760940149,
+    "lastedit": 1760974570,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15885,10 +15885,10 @@
     "update": false
   },
   "2264549": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[伊苏9通关，神作！]",
     "newtitle": "[伊苏9通关，神作！]",
-    "lastedit": 1760973735,
+    "lastedit": 1760974694,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16083,10 +16083,10 @@
     "update": false
   },
   "2264600": {
-    "totalreply": 156,
+    "totalreply": 157,
     "title": "[10月国内金价会破千吗]",
     "newtitle": "[10月国内金价会破千吗]",
-    "lastedit": 1760965578,
+    "lastedit": 1760974338,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17127,19 @@
     "update": false
   },
   "2264950": {
-    "totalreply": 50,
+    "totalreply": 53,
     "title": "[联动曹操梦男，分析下易中天为啥如此迷恋曹操]",
     "newtitle": "[联动曹操梦男，分析下易中天为啥如此迷恋曹操]",
-    "lastedit": 1760974099,
+    "lastedit": 1760974694,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2265000": {
+    "totalreply": 42,
+    "title": "[新加坡总统在IMF会议上喊话中国：放弃完全自给自足的发展路线]",
+    "newtitle": "[新加坡总统在IMF会议上喊话中国：放弃完全自给自足的发展路线]",
+    "lastedit": 1760974695,
     "category": "外野",
     "active": true,
     "update": false
