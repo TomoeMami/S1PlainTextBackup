@@ -145,3 +145,16 @@ EX：一堆强者，就算不抽所长能打的人太多了。
 
 大号中奖了，小号没中<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qucqee  
+##### 47506#       发表于 2025-10-20 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68593219&amp;ptid=1712412" target="_blank">姬萩九郎 发表于 2025-10-19 11:51</a>
+
+30抽，樱厨的底力</blockquote>
+拳头硬了
+
+我20 30 10 40 300 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">早知道不5宝了555
+
