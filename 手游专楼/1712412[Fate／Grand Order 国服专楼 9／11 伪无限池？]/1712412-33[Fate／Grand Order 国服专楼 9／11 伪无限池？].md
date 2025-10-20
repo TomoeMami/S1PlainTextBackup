@@ -137,3 +137,11 @@ EX：一堆强者，就算不抽所长能打的人太多了。
 
 30抽，樱厨的底力<img src="https://p.sda1.dev/28/d9617baec776e58e5c2927a40623fb46/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47505#       发表于 2025-10-20 17:23
+
+大号中奖了，小号没中<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
