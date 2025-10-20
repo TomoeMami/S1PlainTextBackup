@@ -18,3 +18,16 @@
 
 我是游戏快通关了才回去拿的<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  省心  
+##### 504#       发表于 2025-10-20 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559691&amp;ptid=2246453" target="_blank">三度音 发表于 2025-10-12 16:58</a>
+
+N一串字母老前辈有历史意义，
+
+但我感觉没好玩到单开一贴的程度。</blockquote>
+但是方便大家搜索还有收藏啊
+
