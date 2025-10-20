@@ -54,3 +54,16 @@
 硬币应该是在一场重要的比试中从罗伯特手里赢过来的。 ...</blockquote>
 好吧, 狼城里的坂崎良多大年纪了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asdfg  
+##### 579#       发表于 2025-10-20 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68600897&amp;ptid=2085684" target="_blank">风夏 发表于 2025-10-20 08:10</a>
+
+天狗要来了, 整点新鲜东西吧新大地君
+
+布兑, 还有中年罗伯特</blockquote>
+这个怎么看都是坂崎良啊，有得选的时候罗伯特什么时候穿过橙色的衣服……而且坂崎良也是当过天狗二代目的
+
