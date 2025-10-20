@@ -101,3 +101,11 @@ Case8「饗す」
 
 就应该把小偶像设定成皮套人，内胆失踪了换个人顶4年也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 380#       发表于 2025-10-20 11:22
+
+这开局有点烂了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
