@@ -32,3 +32,11 @@
 
 用这种形式再上红白，对现在的LL来说是最好的结果
 
+
+*****
+
+####  仟音一心  
+##### 1740#       发表于 2025-10-20 12:09
+
+<img src="https://p.sda1.dev/28/d6962065e1ee5eb89d4d9fc8e1a4a1d5/image.jpg" referrerpolicy="no-referrer">
+
