@@ -1012,3 +1012,42 @@ MuMu-20251018-080100-186.jpg
 
 单抽黄飞虎，第二个了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reekilynn  
+##### 18484#       发表于 2025-10-20 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68599958&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-20 17:32</a>
+发生了什么？服务器大爆炸？ 居然还未定</blockquote>
+据说是亚马逊的云服务炸了
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  壳壳牛  
+##### 18485#       发表于 2025-10-20 22:48
+
+表演一个单抽出货<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/7293bd1b48fa1d17680040ac98e30973/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 18486#       发表于 2025-10-21 02:29
+
+单抽黄飞虎，第二个了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18487#       发表于 2025-10-21 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68601934&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-21 02:29</a>
+
+单抽黄飞虎，第二个了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">又欧又欧
+
