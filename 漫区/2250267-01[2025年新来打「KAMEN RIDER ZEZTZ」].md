@@ -117,3 +117,11 @@ Case8「饗す」
 
 绷不住了，司机遇到来车打方向还猛踩刹车让乘客仓承受直接伤害<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 382#       发表于 2025-10-21 09:23
+
+草，好像被东南亚老哥泄了不少东西？
+
