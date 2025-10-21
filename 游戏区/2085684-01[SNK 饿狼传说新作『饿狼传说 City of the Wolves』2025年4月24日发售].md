@@ -90,3 +90,32 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王不动  
+##### 582#       发表于 2025-10-21 08:28
+
+ 本帖最后由 王不动 于 2025-10-21 08:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68601007&amp;ptid=2085684" target="_blank">asdfg 发表于 2025-10-20 21:41</a>
+
+这个怎么看都是坂崎良啊，有得选的时候罗伯特什么时候穿过橙色的衣服……而且坂崎良也是当过天狗二代目的 ...</blockquote>
+罗伯特早期的皮外套是橙色的
+
+<img src="https://img.stage1st.com/forum/202510/21/083005qo253iiihdmhm5id.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>R-C.webp</strong> (13.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-21 08:30 上传
+
+*****
+
+####  syndrome2032  
+##### 583#       发表于 2025-10-21 08:33
+
+nbc的ryo和robert差不多是龙虎本篇结束后到饿狼正片时期的造型。不过狼城都是饿狼本篇10还是11年后了。不排除snk偷懒又穿回去了。
+
+毕竟已经说了龙虎之拳复活，那双主角的建模和动作正好做好了拿来用。
+
