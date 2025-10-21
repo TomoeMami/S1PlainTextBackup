@@ -582,3 +582,18 @@ https://skyandearth.wiki.fc2.com/
 
 这章就是剧情起飞的开始了，你继续打下去是不会有太多心情管魔境的
 
+
+*****
+
+####  Sannapolis  
+##### 48#       发表于 2025-10-21 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68603632&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-10-21 12:11</a>
+
+记得是在马上要出丘陵的地方有个山洞，不是后面去的，这张地图很大，慢慢找吧
+
+这章是剧情起飞的开始，你再 ...</blockquote>
+第五章结尾的怒涛展开确实让人没有管魔境的心思了
+
+作者写故事真的有一套，到第五章为止各种经典一波接一波地来但写得并不让人觉得厌烦和无聊，很期待后续剧情的发展<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
