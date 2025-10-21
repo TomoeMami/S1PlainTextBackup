@@ -367,3 +367,13 @@ kuyo加速器今天就能下载了
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  主人ハム子  
+##### 43#       发表于 2025-10-22 06:52
+
+PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
