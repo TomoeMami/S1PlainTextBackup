@@ -7304,3 +7304,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 200pt先留着了，以后活动有需求再换
 
+
+*****
+
+####  一个陆仁贾  
+##### 2945#       发表于 2025-10-22 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68606057&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-10-21 20:27</a>
+普池还空着ez8 nta 风灵 能天使
+
+200pt先留着了，以后活动有需求再换</blockquote>
+我感觉井一次限定卡池总会出来那么一两个
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
