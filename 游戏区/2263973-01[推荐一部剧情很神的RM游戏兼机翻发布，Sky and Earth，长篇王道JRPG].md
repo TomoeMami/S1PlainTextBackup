@@ -597,3 +597,11 @@ https://skyandearth.wiki.fc2.com/
 
 作者写故事真的有一套，到第五章为止各种经典一波接一波地来但写得并不让人觉得厌烦和无聊，很期待后续剧情的发展<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lastrei  
+##### 49#       发表于 2025-10-21 23:08
+
+mark下，有趣。
+
