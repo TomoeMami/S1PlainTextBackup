@@ -755,3 +755,27 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  伊布桑  
+##### 84#       发表于 2025-10-22 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610289&amp;ptid=2256125" target="_blank">发呆的龙虾 发表于 2025-10-22 17:16</a>
+
+艹，刚准备重开，拿免费版登顶送的五抽出了光盾，这下不重开了。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但光盾不是削了吗？
+
+*****
+
+####  发呆的龙虾  
+##### 85#       发表于 2025-10-22 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610306&amp;ptid=2256125" target="_blank">伊布桑 发表于 2025-10-22 17:19</a>
+但光盾不是削了吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样吗，我看wiki都写ss评价。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
