@@ -1098,3 +1098,83 @@ CV真的是志贵<img src="https://static.stage1st.com/image/smiley/face2017/067
 
 王哈有直死魔眼吗？他在步入幽谷前是否有莺莺燕燕环绕身旁？他可曾遇到过一个心仪的女孩，把她十七等分了才发现不会复活？他执着于首级莫不是知道平行时空里某个魔血猛男也在觊觎着他的脑袋？
 
+
+*****
+
+####  希望之花  
+##### 18492#       发表于 2025-10-22 18:21
+
+官方和攻略网站合作了可还行
+
+*****
+
+####  Jamaisvu  
+##### 18493#       发表于 2025-10-22 18:40
+
+ 本帖最后由 Jamaisvu 于 2025-10-22 18:47 编辑 
+
+<img src="https://img.stage1st.com/forum/202510/22/184110g6zzwsrq2wh20qqy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251022_183758.jpg</strong> (358.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-22 18:41 上传
+
+仇阶的终极伊丽莎白，看着像花嫁不过应该只是修女装，裙子和卡米拉同款并且能变成铁处女...
+
+这个配色让我想起了尘骸魔京的伊格尼斯...
+
+新五星礼装又是redrop超常发挥，大龙娘色疯了：
+
+<img src="https://img.stage1st.com/forum/202510/22/184218nw59zh8n7mv87adn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251022_184138.jpg</strong> (402.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-22 18:42 上传
+
+五星从者是第一个五星伊丽莎白，可惜是枪阶，既不能给龙娘全职阶补位，也打不了接下来的冠位战...
+
+<img src="https://img.stage1st.com/forum/202510/22/184656w1dovo119iwd1uoi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251022_184644.jpg</strong> (411.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-22 18:46 上传
+
+灵基三的宝具效果也会变，大总统待遇呀。
+
+（这构图看着像俩矮子合力扛大枪...）
+
+*****
+
+####  exiaexa  
+##### 18494#       发表于 2025-10-22 18:44
+
+ 本帖最后由 exiaexa 于 2025-10-22 18:46 编辑 
+
+不是，你怎么是个Lancer啊
+
+但是看起来好有趣的样子
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 18495#       发表于 2025-10-22 18:44
+
+恭喜伊利亲喜提五星<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18496#       发表于 2025-10-22 18:45
+
+这次五星礼装大龙娘的M字腿太香了，希望是Redrop画的
+
