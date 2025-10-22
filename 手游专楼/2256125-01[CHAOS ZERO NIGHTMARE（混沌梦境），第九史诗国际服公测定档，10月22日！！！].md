@@ -897,3 +897,14 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 养马的关卡一周只能打四次？我还想爽刷呐
 
+
+*****
+
+####  三谷歩夢  
+##### 98#       发表于 2025-10-23 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611805&amp;ptid=2256125" target="_blank">碧空之歌P 发表于 2025-10-23 00:25</a>
+
+养马的关卡一周只能打四次？我还想爽刷呐</blockquote>
+爬塔吗，领额外奖励需要代币，不领奖励只刷存档和探索率可以无限刷
+
