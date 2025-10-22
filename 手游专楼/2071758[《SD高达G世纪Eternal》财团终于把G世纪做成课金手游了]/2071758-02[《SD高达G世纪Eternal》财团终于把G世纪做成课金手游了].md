@@ -7376,3 +7376,15 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 不停出同一架超高人 ...</blockquote>
 这游戏太赚钱，我感觉不会有新的家用机G世纪了
 
+
+*****
+
+####  acg_gyanc  
+##### 2951#       发表于 2025-10-22 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609102&amp;ptid=2071758" target="_blank">大十字紅朔 发表于 2025-10-22 13:22</a>
+这游戏太赚钱，我感觉不会有新的家用机G世纪了</blockquote>
+以后手游机体出得多了再来一波素材复用弄个单机还是有可能的吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

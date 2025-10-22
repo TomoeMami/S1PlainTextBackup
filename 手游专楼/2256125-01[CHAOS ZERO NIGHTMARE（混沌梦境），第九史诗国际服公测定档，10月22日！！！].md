@@ -630,3 +630,19 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 中午时间还能正常玩玩，现在已经动一下卡好久了，一到上班时间就开始摸鱼是吧 ...</blockquote>
 我倒是相反，中午的时候连序章第一章都过不完，过了1点半之后就流畅了
 
+
+*****
+
+####  发呆的龙虾  
+##### 71#       发表于 2025-10-22 15:01
+
+这混沌一关也太长了把。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asd235614  
+##### 72#       发表于 2025-10-22 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一直弹有一笔异常退款记录和商品列表载入失败是啥情况有人遇到过么
+
