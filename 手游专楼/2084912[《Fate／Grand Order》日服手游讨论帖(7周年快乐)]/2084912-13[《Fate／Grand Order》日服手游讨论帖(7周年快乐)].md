@@ -1281,3 +1281,66 @@ PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开
 
 能打得过妖兰和白枪吗？
 
+
+*****
+
+####  blue321  
+##### 18505#       发表于 2025-10-22 19:20
+
+草，危楼飞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18506#       发表于 2025-10-22 19:23
+
+ 本帖最后由 Jamaisvu 于 2025-10-22 19:27 编辑 
+<blockquote>cckuku 发表于 2025-10-22 19:14
+能打得过妖兰和白枪吗？</blockquote>
+
+白枪是光炮，伤害buff有50魔放20宝威20攻击，50混沌/恶特攻。
+
+妖兰单体宝具只有40攻击，用灵三开局有40攻击30宝威20红魔放。
+
+星龙娘用伤害最大化的灵三，20攻击30红魔放20宝威，还有龙特攻。
+
+跟那两位红光炮比buff肯定差一些，但不考虑特攻恐怕是单体枪中一骑绝尘的强者，更遑论还有逆天的充能效果，恐怕历年万圣从者被克扣的强度都加于其一身了吧...
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18507#       发表于 2025-10-22 19:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">开服爆炸后十连第一个来的金边从者就是四星伊丽酱，今天第一个十连也主动来了，感动
+
+*****
+
+####  exiaexa  
+##### 18508#       发表于 2025-10-22 19:26
+
+都不说强度，这满坡真无敌了
+
+完美挡住了wada的所有缺点，全都是情怀
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18509#       发表于 2025-10-22 19:29
+
+<blockquote>exiaexa 发表于 2025-10-22 19:26
+都不说强度，这满坡真无敌了
+
+完美挡住了wada的所有缺点，全都是情怀</blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/22/192956snjkwi5fb01ihx7i.png" referrerpolicy="no-referrer">
+
+<strong>1761132587815.png</strong> (166.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-22 19:29 上传
+
+硬要说缺点的话就是要素太多，像是什么间章的通关礼装...
+
