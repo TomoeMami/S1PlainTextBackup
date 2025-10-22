@@ -7416,3 +7416,11 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 真的看不上<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2954#       发表于 2025-10-22 19:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我可能是模拟器用太多了，现在才知道这游戏居然不能后台下载。手机挂着一下午进度条纹丝未动
+
