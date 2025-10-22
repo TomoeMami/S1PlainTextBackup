@@ -59,3 +59,14 @@ se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">万圣节饰品抽卡能100一抽吗？点的手酸...
 
+
+*****
+
+####  不灭的旋律  
+##### 1720#       发表于 2025-10-22 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609962&amp;ptid=2104259" target="_blank">madcow 发表于 2025-10-22 16:15</a>
+
+草，东京偶像大尸第一次联动时候不是说本体已经死了吗，可以这么刨坟的吗 ...</blockquote>
+第一次联动的时候还活得好好的，西塔拉还跑过去实装了呢，你游唯一在其他游戏实装的角色（装作没有看见某棒球游戏）
+

@@ -779,3 +779,16 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 86#       发表于 2025-10-22 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610312&amp;ptid=2256125" target="_blank">发呆的龙虾 发表于 2025-10-22 17:20</a>
+
+这样吗，我看wiki都写ss评价。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, 鹅球 v3.5.99</blockquote>
+内测是有个bug灵光，天鹰剑原本2费AOE，灵光有一个进化是变1费，然后这卡是如果手牌里有秃鹰发射就回手并减1费，灵光之后就变永动机了，这种肯定要削弱的，削弱之后也是比较好用的角色，只是没那么逆天
+
