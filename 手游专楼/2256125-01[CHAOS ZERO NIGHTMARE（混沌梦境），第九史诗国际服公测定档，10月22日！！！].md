@@ -450,3 +450,64 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 2025.11.22 11:18 网易uu也不行
 
+
+*****
+
+####  yufeng029  
+##### 51#       发表于 2025-10-22 11:36
+
+23抽普池+970钻，这刷个屁初始
+
+*****
+
+####  机动三轮  
+##### 52#       发表于 2025-10-22 11:36
+
+服务器爆了不敢重启换繁中了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  主人ハム子  
+##### 53#       发表于 2025-10-22 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68607944&amp;ptid=2256125" target="_blank">windaria 发表于 2025-10-22 10:21</a>
+账号所在地区可以手动切换一次</blockquote>
+用的是以前e7国际服的号，搞不懂。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  主人ハム子  
+##### 54#       发表于 2025-10-22 11:38
+
+新手教程都打不完，什么垃圾服务器。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  icelord  
+##### 55#       发表于 2025-10-22 11:42
+
+无敌了 好不容易连进去 打新手教程就掉
+
+*****
+
+####  胖达君  
+##### 56#       发表于 2025-10-22 11:42
+
+卸载了，永远都是在标题界面弹窗提示文件加载错误，无法下载数据包，连游戏都进不去，不管裸连还是挂HK,JP,KR的梯子都一样<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  发呆的龙虾  
+##### 57#       发表于 2025-10-22 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68608555&amp;ptid=2256125" target="_blank">胖达君 发表于 2025-10-22 11:42</a>
+卸载了，永远都是在标题界面弹窗提示文件加载错误，无法下载数据包，连游戏都进不去，不管裸连还是挂HK,JP, ...</blockquote>
+需要全局梯子。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
