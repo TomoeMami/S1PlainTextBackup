@@ -7401,3 +7401,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单机怕是连海牛卡池的量都卖不出，没有动力啊
 
+
+*****
+
+####  大十字紅朔  
+##### 2953#       发表于 2025-10-22 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609561&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-10-22 14:59</a>
+
+以后手游机体出得多了再来一波素材复用弄个单机还是有可能的吧
+
+—— 来自 S1Fun ...</blockquote>
+给它算卖每份游戏能赚4000日元，就算卖能100万，也才40亿，就相当于这游戏一个月的流水而已
+
+真的看不上<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
