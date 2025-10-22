@@ -717,3 +717,31 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  发呆的龙虾  
+##### 80#       发表于 2025-10-22 16:56
+
+啊，好想重开，但是重开太麻烦了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  伊布桑  
+##### 81#       发表于 2025-10-22 17:00
+
+真得点操这游戏所有的不便利功能，比如日常本不给扫荡，比如剧情只能加速不能跳，比如没有便利刷初始方法<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发呆的龙虾  
+##### 82#       发表于 2025-10-22 17:02
+
+最点操的不是麻烦到爆的刷初始么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
