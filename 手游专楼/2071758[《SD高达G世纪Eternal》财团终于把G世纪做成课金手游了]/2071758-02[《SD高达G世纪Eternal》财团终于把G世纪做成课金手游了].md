@@ -7388,3 +7388,16 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  洛克萨斯  
+##### 2952#       发表于 2025-10-22 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609561&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-10-22 14:59</a>
+
+以后手游机体出得多了再来一波素材复用弄个单机还是有可能的吧
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单机怕是连海牛卡池的量都卖不出，没有动力啊
+
