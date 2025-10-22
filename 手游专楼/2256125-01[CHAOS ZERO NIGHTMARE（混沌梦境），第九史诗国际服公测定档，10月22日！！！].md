@@ -679,3 +679,14 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jxzeroga0  
+##### 76#       发表于 2025-10-22 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609583&amp;ptid=2256125" target="_blank">asd235614 发表于 2025-10-22 15:04</a>
+
+一直弹有一笔异常退款记录和商品列表载入失败是啥情况有人遇到过么</blockquote>
+加速器不行
+
