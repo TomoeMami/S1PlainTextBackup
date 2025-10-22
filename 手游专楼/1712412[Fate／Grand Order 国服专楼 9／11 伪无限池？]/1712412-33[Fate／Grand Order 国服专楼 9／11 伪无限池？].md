@@ -158,3 +158,11 @@ EX：一堆强者，就算不抽所长能打的人太多了。
 
 我20 30 10 40 300 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">早知道不5宝了555
 
+
+*****
+
+####  khxooo  
+##### 47507#       发表于 2025-10-22 23:38
+
+小号2宝水伊吹成功2T高难，就是T2的时候要刷发牌，等大号打的时候用狮子王就简单很多了。
+
