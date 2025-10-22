@@ -24,3 +24,23 @@
 
        [https://www.bilibili.com/video/BV1i4WRzdE7Z](https://www.bilibili.com/video/BV1i4WRzdE7Z)     &lt;——预告视频哔哩哔哩搬运
 
+
+*****
+
+####  堀内爱里衣  
+##### 27314#       发表于 2025-10-22 17:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/22/175916jpj5uprythur7snh.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-22_17-58-05.jpg</strong> (294.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-22 17:59 上传
+
+       [https://x.com/rakutenbooks/status/1980907017188597762](https://x.com/rakutenbooks/status/1980907017188597762)
+
+       [https://t.co/oUIH6LKkYd](https://t.co/oUIH6LKkYd)
+
