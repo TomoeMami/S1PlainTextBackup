@@ -1419,3 +1419,43 @@ PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开
 欧 羡慕 狗萌新又在单抽</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都是幻觉 漏油才是最欧的
 
+
+*****
+
+####  qixinno2  
+##### 18518#       发表于 2025-10-22 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611413&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-22 22:00</a>
+
+都是幻觉 漏油才是最欧的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">目前就你各种单抽出货 十个池子起码8个在豹跳
+
+*****
+
+####  alucardcz  
+##### 18519#       发表于 2025-10-22 22:22
+
+ 本帖最后由 alucardcz 于 2025-10-22 22:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611434&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-22 22:07</a>
+
+目前就你各种单抽出货 十个池子起码8个在豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">非萌可是3000石3宝的人
+
+*****
+
+####  qixinno2  
+##### 18520#       发表于 2025-10-22 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611490&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-22 22:22</a>
+
+非萌可是3000石2宝的人</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这么多年你也就非这一次 喜欢我三次氪金氪到吃了三次大保底么
+
+
+*****
+
+####  khxooo  
+##### 18521#       发表于 2025-10-22 23:54
+
+五星大龙娘的礼装太吸引人了，好想下池抽卡<img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
