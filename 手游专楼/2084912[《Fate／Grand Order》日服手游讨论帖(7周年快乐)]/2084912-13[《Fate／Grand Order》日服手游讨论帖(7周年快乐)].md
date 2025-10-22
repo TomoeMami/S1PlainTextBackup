@@ -1344,3 +1344,35 @@ PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开
 
 硬要说缺点的话就是要素太多，像是什么间章的通关礼装...
 
+
+*****
+
+####  里村紅葉  
+##### 18510#       发表于 2025-10-22 19:31
+
+100抽出了一堆乱七八糟的四星，佛了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18511#       发表于 2025-10-22 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610847&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-22 19:29</a>
+
+硬要说缺点的话就是要素太多，像是什么间章的通关礼装...</blockquote>
+的确，和大黑天一样还以为是礼装呢
+
+*****
+
+####  blue321  
+##### 18512#       发表于 2025-10-22 20:07
+
+200石沉船，都是诺亚害了我……
+
+*****
+
+####  yangun22  
+##### 18513#       发表于 2025-10-22 20:31
+
+三技能那个龙娘粒子可以重复的，所以3人队2技能直接就是40冲，减cd用两次3技能的话2技能直接70冲，np是真的给的足<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
