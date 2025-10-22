@@ -377,3 +377,19 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  胖达君  
+##### 44#       发表于 2025-10-22 09:53
+
+今天挂梯子还是一直提示这个，是不是不行了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/22/095313zw6044nhnwczc62n.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251022094953_230270_1.png</strong> (30.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-22 09:53 上传
+
