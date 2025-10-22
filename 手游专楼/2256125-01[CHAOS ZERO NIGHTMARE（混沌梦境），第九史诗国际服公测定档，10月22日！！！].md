@@ -619,3 +619,14 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  三谷歩夢  
+##### 70#       发表于 2025-10-22 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609295&amp;ptid=2256125" target="_blank">暗口崩子 发表于 2025-10-22 14:07</a>
+
+中午时间还能正常玩玩，现在已经动一下卡好久了，一到上班时间就开始摸鱼是吧 ...</blockquote>
+我倒是相反，中午的时候连序章第一章都过不完，过了1点半之后就流畅了
+
