@@ -7327,3 +7327,13 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 你游现在惯例新更新的主角最终形态是盾机，不要妨碍代哥卖卡。
 
+
+*****
+
+####  洛克萨斯  
+##### 2947#       发表于 2025-10-22 09:39
+
+神高达那个盾就搞笑的，但是两头驴那个盾不搞笑，挺强的<img src="https://static.stage1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">
+
+命运那个盾也还可以
+
