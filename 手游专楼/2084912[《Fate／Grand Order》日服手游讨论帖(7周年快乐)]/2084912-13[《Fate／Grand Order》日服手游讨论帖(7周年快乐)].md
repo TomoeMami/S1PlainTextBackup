@@ -1459,3 +1459,47 @@ PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开
 
 五星大龙娘的礼装太吸引人了，好想下池抽卡<img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18522#       发表于 2025-10-23 00:38
+
+1个10连，出来的时候我都懵逼了。我真的只是想抽5星礼装<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+MuMu-20251023-003639-215.jpg
+(469.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-23 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202510/23/003758ayuuu8yjoluorjwg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18523#       发表于 2025-10-23 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611829&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-23 00:38</a>
+
+1个10连，出来的时候我都懵逼了。我真的只是想抽5星礼装</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">今年最欧的就是你了
+
+*****
+
+####  khxooo  
+##### 18524#       发表于 2025-10-23 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611882&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-23 01:12</a>
+
+今年最欧的就是你了</blockquote>
+那个萌新呼符出货，比我厉害多了。
+
+*****
+
+####  岸浪白野  
+##### 18525#       发表于 2025-10-23 05:33
+
+还行，虽然80抽才出龙娘，但是40抽就已经把卡池5星礼装满破了，4星礼装比5星还难出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/28/c512167872435a2f052d07d3f996bac3/image.jpg" referrerpolicy="no-referrer">
+
