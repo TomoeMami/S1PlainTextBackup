@@ -878,3 +878,14 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 爬塔可以理解为养种马吗
 
+
+*****
+
+####  yufeng029  
+##### 96#       发表于 2025-10-22 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610945&amp;ptid=2256125" target="_blank">21wwwb 发表于 2025-10-22 19:56</a>
+
+手游端貌似不能登出游客账号，点删除也会提示你要进入删除中的账号吗？选否就把游戏退了。。太神了这程序员 ...</blockquote>
+刷初始不点删账号，点下面的伺服器重置
+

@@ -7424,3 +7424,13 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我可能是模拟器用太多了，现在才知道这游戏居然不能后台下载。手机挂着一下午进度条纹丝未动
 
+
+*****
+
+####  plok201  
+##### 2955#       发表于 2025-10-22 21:36
+
+开发盾多是好事啊，卡池限定盾你又不抽
+
+我还希望这次铁华团给点好盾UR三明用呢
+
