@@ -7461,3 +7461,20 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 所以真是等到出離線版，到時我們還有沒時間玩手遊都是一個問題...
 
+
+*****
+
+####  大十字紅朔  
+##### 2957#       发表于 2025-10-23 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611632&amp;ptid=2071758" target="_blank">eilot 发表于 2025-10-22 23:14</a>
+
+其實之前G高達的神高達尊者都是之前家用機火線的DLC來
+
+只是神高達在這裡多了一招洗牌拳，師傅就沒了石破 ...</blockquote>
+但是他这个做的比交叉火力糊弄多了，真出单机版我不会买的<img src="https://static.stage1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+剧情模式居然是直接从动画截图的（是啦，反正剧情大家都不看的）
+
+这么想想交叉火力的剧情模式做得好认真，虽然代价是作品很少
+
