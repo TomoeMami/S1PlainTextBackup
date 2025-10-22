@@ -1376,3 +1376,46 @@ PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开
 
 三技能那个龙娘粒子可以重复的，所以3人队2技能直接就是40冲，减cd用两次3技能的话2技能直接70冲，np是真的给的足<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qucqee  
+##### 18514#       发表于 2025-10-22 21:52
+
+但是**有学姐大人了。。
+
+*****
+
+####  qixinno2  
+##### 18515#       发表于 2025-10-22 21:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连出了
+
+<img src="https://img.stage1st.com/forum/202510/22/215256aygqi308c34d0qn7.png" referrerpolicy="no-referrer">
+
+<strong>S53PNQ2}C7(Y`UAL}]N`]]4.png</strong> (256.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-22 21:52 上传
+
+*****
+
+####  qixinno2  
+##### 18516#       发表于 2025-10-22 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610772&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-22 19:07</a>
+
+护符是对的！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新又在单抽
+
+*****
+
+####  alucardcz  
+##### 18517#       发表于 2025-10-22 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611386&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-22 21:53</a>
+
+欧 羡慕 狗萌新又在单抽</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都是幻觉 漏油才是最欧的
+
