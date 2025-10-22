@@ -1178,3 +1178,47 @@ CV真的是志贵<img src="https://static.stage1st.com/image/smiley/face2017/067
 
 这次五星礼装大龙娘的M字腿太香了，希望是Redrop画的
 
+
+*****
+
+####  angelooo  
+##### 18497#       发表于 2025-10-22 18:54
+
+终于有五星龙娘了
+
+所以鬼龙娘呢？？？
+
+*****
+
+####  xiongxingyu  
+##### 18498#       发表于 2025-10-22 18:54
+
+看来fgo是真的要完结了，玩了10年的龙娘没5星梗也破了，话说10周年出5星龙女正好还能玩骑士梗，这个完美艾莉酱到底是万圣节的毁灭者呢，还是至仁至善至高至强的万圣王呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18499#       发表于 2025-10-22 18:57
+
+发现自己姐妹众多、毫不孤独，进而陷入狂喜的吉他英灵——后藤伊丽：
+
+<img src="https://img.stage1st.com/forum/202510/22/185647p5gxl55w5dc5gb4q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251022_185517.jpg</strong> (142.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-22 18:56 上传
+
+*****
+
+####  Jamaisvu  
+##### 18500#       发表于 2025-10-22 19:01
+
+<blockquote>xiongxingyu 发表于 2025-10-22 18:54
+看来fgo是真的要完结了，玩了10年的龙娘没5星梗也破了，话说10周年出5星龙女正好还能玩骑士梗，这个完美艾 ...</blockquote>
+PV里都写着究极与至高了，而且有个同阶的幼体在时间线的开端，大概是逢魔艾莉吧。
+
+不过说起究极和至高，也可能是奥特艾莉和阿布索留特艾莉...
+
