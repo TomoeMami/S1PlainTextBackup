@@ -43,3 +43,11 @@ JGLMHPHNJV昨天的直播码
 
 se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1718#       发表于 2025-10-22 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，东京偶像大尸第一次联动时候不是说本体已经死了吗，可以这么刨坟的吗
+

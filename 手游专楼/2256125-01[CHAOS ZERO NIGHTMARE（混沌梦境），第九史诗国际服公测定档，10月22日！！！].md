@@ -707,3 +707,13 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 主要还是看因子刷得怎样
 
+
+*****
+
+####  发呆的龙虾  
+##### 79#       发表于 2025-10-22 16:19
+
+我现在是送的盾、兔狙和dot女，太缺AOE了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
