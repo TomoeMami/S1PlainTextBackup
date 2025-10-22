@@ -646,3 +646,14 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一直弹有一笔异常退款记录和商品列表载入失败是啥情况有人遇到过么
 
+
+*****
+
+####  三谷歩夢  
+##### 73#       发表于 2025-10-22 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68609573&amp;ptid=2256125" target="_blank">发呆的龙虾 发表于 2025-10-22 15:01</a>
+
+这混沌一关也太长了把。</blockquote>
+爬塔模式那个吗，那个刷因子用的，太短的话坐牢程度要加倍了
+
