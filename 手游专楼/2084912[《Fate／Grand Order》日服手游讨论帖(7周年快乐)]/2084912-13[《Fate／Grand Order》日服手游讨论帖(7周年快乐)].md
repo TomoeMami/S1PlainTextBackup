@@ -1051,3 +1051,50 @@ MuMu-20251018-080100-186.jpg
 单抽黄飞虎，第二个了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">又欧又欧
 
+
+*****
+
+####  乾理央  
+##### 18488#       发表于 2025-10-22 10:40
+
+刷了621个王哈，拿了16个离婚证，360多石头，下班<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18489#       发表于 2025-10-22 17:04
+
+CV真的是志贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202510/22/170429ehv29ay2zhtpl59l.png" referrerpolicy="no-referrer">
+
+<strong>]B@SSGAP~_){(FFK58KPF_tmb.png</strong> (666.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-22 17:04 上传
+
+<img src="https://img.stage1st.com/forum/202510/22/170420dluwulhul3hq6a3q.png" referrerpolicy="no-referrer">
+
+<strong>7XO4}TMEUA`REHA8~L[2Q.png</strong> (119.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-22 17:04 上传
+
+*****
+
+####  qixinno2  
+##### 18490#       发表于 2025-10-22 17:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未来实装杀人贵是吧
+
+*****
+
+####  Jamaisvu  
+##### 18491#       发表于 2025-10-22 17:43
+
+不仅是声优，甚至冠杀战都开在志贵的生日10.15，该不会两人是同分异构体吧？西格玛志贵最终沦为骷髅骑士？
+
+王哈有直死魔眼吗？他在步入幽谷前是否有莺莺燕燕环绕身旁？他可曾遇到过一个心仪的女孩，把她十七等分了才发现不会复活？他执着于首级莫不是知道平行时空里某个魔血猛男也在觊觎着他的脑袋？
+
