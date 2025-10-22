@@ -560,3 +560,11 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 战斗任务打一半一直跳通讯不稳定了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  21wwwb  
+##### 64#       发表于 2025-10-22 13:12
+
+这肉鸽打完之后获得的可继承奖励还真有点吸引人 但现在不能自动挺雷点的 以后应该能吧
+
