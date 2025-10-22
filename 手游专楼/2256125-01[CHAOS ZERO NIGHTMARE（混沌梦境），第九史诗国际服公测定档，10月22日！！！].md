@@ -414,3 +414,13 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 先直连看看 至少PC下载啥的都很顺利
 
+
+*****
+
+####  伊布桑  
+##### 47#       发表于 2025-10-22 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68607768&amp;ptid=2256125" target="_blank">胖达君 发表于 2025-10-22 09:53</a>
+今天挂梯子还是一直提示这个，是不是不行了？</blockquote>
+我挂梯子也这样，只有加速器能上，目前只找到kuyo限时免费加速<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">pc可能只有付费加速器能用了。
+
