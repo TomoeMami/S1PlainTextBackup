@@ -535,3 +535,20 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 加速器好不稳
 
+
+*****
+
+####  伊布桑  
+##### 61#       发表于 2025-10-22 12:06
+
+现在是服务器炸了的问题，能在里面玩的算是运气好挤进去了，进不去的不一定是梯子加速器问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  发呆的龙虾  
+##### 62#       发表于 2025-10-22 12:08
+
+初步感觉比预想的好玩，就看抽卡部分了。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
