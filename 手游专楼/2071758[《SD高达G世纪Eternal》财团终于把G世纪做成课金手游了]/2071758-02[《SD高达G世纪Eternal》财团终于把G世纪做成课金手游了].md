@@ -7361,3 +7361,18 @@ ka飞翼明显对标的开发树sr飞翼，连4+4都复刻了<img src="https://s
 
 铁血系盾机毒在大家都没盾，看看会不会在被动上给点补偿
 
+
+*****
+
+####  大十字紅朔  
+##### 2950#       发表于 2025-10-22 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68573430&amp;ptid=2071758" target="_blank">eilot 发表于 2025-10-15 11:25</a>
+
+這作根本不會死
+
+除非是突然加了超大幅增加難度，新活動關卡的第一關已經是數值超膨漲
+
+不停出同一架超高人 ...</blockquote>
+这游戏太赚钱，我感觉不会有新的家用机G世纪了
+
