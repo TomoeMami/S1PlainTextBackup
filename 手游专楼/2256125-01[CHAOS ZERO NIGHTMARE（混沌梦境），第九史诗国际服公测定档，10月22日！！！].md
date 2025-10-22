@@ -393,3 +393,16 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 2025-10-22 09:53 上传
 
+
+*****
+
+####  windaria  
+##### 45#       发表于 2025-10-22 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68607120&amp;ptid=2256125" target="_blank">主人ハム子 发表于 2025-10-22 06:52</a>
+
+PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅球  ...</blockquote>
+账号所在地区可以手动切换一次
+
