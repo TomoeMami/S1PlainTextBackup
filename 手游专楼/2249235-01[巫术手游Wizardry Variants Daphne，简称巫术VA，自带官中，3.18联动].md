@@ -245,3 +245,14 @@
 我又去打了三次女法师，确实行动非常随机，既碰上连续三回合丢拉系法术的也碰到连着上降攻减速的，丢单体 ...</blockquote>
 即死对这群货有没有效果
 
+
+*****
+
+####  Flechette  
+##### 529#       发表于 2025-10-23 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68614630&amp;ptid=2249235" target="_blank">电脑死机 发表于 2025-10-23 15:36</a>
+
+即死对这群货有没有效果</blockquote>
+没有，身上连miss都不跳
+
