@@ -1503,3 +1503,45 @@ MuMu-20251023-003639-215.jpg
 
 还行，虽然80抽才出龙娘，但是40抽就已经把卡池5星礼装满破了，4星礼装比5星还难出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/28/c512167872435a2f052d07d3f996bac3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 18526#       发表于 2025-10-23 07:02
+
+才反应过来三头龙原来是星战二期那个通缉犯啊
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 18527#       发表于 2025-10-23 09:35
+
+<blockquote>jackyhuang 发表于 2025-10-23 07:02
+才反应过来三头龙原来是星战二期那个通缉犯啊
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+提到宇宙三头龙，第一反应肯定是基多拉。正好龙娘也算是哥斯拉的定位（机械艾莉），boss模组应该会致敬一下吧？
+
+（无所谓金色，三个头造型不一样就对了）
+
+另外星龙娘灵基二的白色外套也可能在neta太空哥总的结晶外骨骼...
+
+*****
+
+####  失落之翼  
+##### 18528#       发表于 2025-10-23 10:48
+
+看这样子或许明年万圣节不是龙娘了吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18529#       发表于 2025-10-23 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68611829&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-10-23 00:38</a>
+
+1个10连，出来的时候我都懵逼了。我真的只是想抽5星礼装</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">今年最欧的就是你了
+
