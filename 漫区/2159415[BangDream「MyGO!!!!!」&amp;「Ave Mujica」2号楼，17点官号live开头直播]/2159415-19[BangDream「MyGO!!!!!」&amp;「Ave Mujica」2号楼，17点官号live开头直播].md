@@ -64,3 +64,83 @@
 
        [https://comic-growl.com/episodes/7026cea2f6b20/](https://comic-growl.com/episodes/7026cea2f6b20/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27316#       发表于 2025-10-23 17:20
+
+      <strong>【试听】MyGO!!!!! 8th Single「静降想」（2025.12.3 发售）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202510/23/172001tljn2zf8dyj88r8z.jpg" referrerpolicy="no-referrer">
+
+<strong>e62fb758986f97e2592b9bf72e38598eb23076a3.jpg</strong> (125.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-23 17:20 上传
+
+MyGO!!!!! 8th Single发售确定。
+
+收录曲「エガクミライ（描绘未来）」由 Aqua Timez 的太志与大介创作，在舒缓而富有律动的旋律中，主唱温柔的歌声，将这首作品打造成了一首带着几分淡淡感伤、动人的抒情曲。
+
+Blu-ray付生产限定盘A中收录了 2025年7月举办的「MyGO!!!!! ZEPP TOUR 2025「心のはしを辿って」东京公演」。
+
+Blu-ray付生产限定盘B中收录了 2025年8月举办的『MyGO!!!!!の「迷子集会」出張版 第二弾 - 日常の欠片』白天场・夜间场。
+
+=====
+
+★商品信息
+[https://bang-dream.com/discographies/4132](https://bang-dream.com/discographies/4132)
+
+【发售日】
+
+ 2025年12月3日（周三）
+
+【价格】
+
+Blu-ray付生产限定盘A：8,800日元（含税）
+
+Blu-ray付生产限定盘B：8,800日元（含税）
+
+通常盘：1,540日元（含税）
+
+【收录内容】
+
+[CD]
+
+0:00 1.静降想
+
+1:27 2.エガクミライ（描绘未来）
+
+3.静降想 -instrumental-
+
+4.エガクミライ -instrumental-
+
+[Blu-ray]
+
+MyGO!!!!! ZEPP TOUR 2025「心のはしを辿って」东京公演　※Blu-ray付生产限定盘仅限A
+
+MyGO!!!!!の「迷子集会」出張版 第二弾 - 日常の欠片 - 白天场・夜间场　※Blu-ray付生产限定盘仅限B
+
+【生产分限定包装】
+
+・特制三面外盒包装　※Blu-ray付生产限定盘仅限A
+
+・特制透明外盒包装　※Blu-ray付生产限定盘仅限B
+
+※初回生产分售罄后，将更换为普通包装
+
+【初回生产分限定封入特典】
+
+・2026年后举办的 MyGO!!!!! 单独LIVE 最速先行抽选申请券
+
+・原创角色卡1张（限定盘A图ver.全5种）　※Blu-ray付生产限定盘仅限A
+
+・原创角色卡1张（限定盘B图ver.全5种）　※Blu-ray付生产限定盘仅限B
+
+・原创角色卡1张（通常盘图ver.全5种）　※仅限通常盘
+
+#BanG Dream# #mygo# #静降想#</blockquote>
+       [https://www.bilibili.com/video/BV1FZsBzsE91](https://www.bilibili.com/video/BV1FZsBzsE91)
+
