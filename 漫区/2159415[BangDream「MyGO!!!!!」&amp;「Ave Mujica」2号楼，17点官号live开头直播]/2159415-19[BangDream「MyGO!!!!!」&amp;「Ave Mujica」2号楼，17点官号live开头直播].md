@@ -44,3 +44,23 @@
 
        [https://t.co/oUIH6LKkYd](https://t.co/oUIH6LKkYd)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27315#       发表于 2025-10-23 13:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/23/130933sepps9bdbn7c66er.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-23_13-07-50.jpg</strong> (140.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-23 13:09 上传
+
+       [https://x.com/comic_growl/status/1981195097908924682](https://x.com/comic_growl/status/1981195097908924682)
+
+       [https://comic-growl.com/episodes/7026cea2f6b20/](https://comic-growl.com/episodes/7026cea2f6b20/)
+
