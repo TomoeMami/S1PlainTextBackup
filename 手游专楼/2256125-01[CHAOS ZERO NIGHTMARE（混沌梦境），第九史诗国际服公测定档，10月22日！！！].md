@@ -1272,3 +1272,11 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 剧情本和战斗本卡等级
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我是忍不到双十一蝗国服了
 
+
+*****
+
+####  orangee  
+##### 134#       发表于 2025-10-23 21:30
+
+这凯隆从E7追到E9了啊靠，老哥看着不强啊……
+
