@@ -968,3 +968,26 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 nikke应该也没少玩
 
+
+*****
+
+####  发呆的龙虾  
+##### 104#       发表于 2025-10-23 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68612455&amp;ptid=2256125" target="_blank">Fuero 发表于 2025-10-23 09:15</a>
+只能说系统策划没少玩，很多界面的操作都是自然而然完成的，点之前看UI布局就知道作用
+
+nikke应该也没少 ...</blockquote>
+ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让你手操，还有剧情不能跳过，大世界等级什么的和星铁一毛一样。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  发呆的龙虾  
+##### 105#       发表于 2025-10-23 09:26
+
+二十级送的抽出了小春，看来可以多玩一段时间了。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
