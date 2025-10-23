@@ -943,3 +943,13 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 目前刚开服很多东西不确定，很多排行榜差别很大<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我也不好说哪个靠谱，等后面大家满级了都在刷圣遗物了可能才会稳定下来
 另外小春应该是铁强的，可以通过商店换几个up抽刷一下小春的初始
 
+
+*****
+
+####  发呆的龙虾  
+##### 102#       发表于 2025-10-23 09:02
+
+越玩越觉得我在玩星铁，各种既视感。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
