@@ -1051,3 +1051,13 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 兔狙我觉得还好，机制很强但是数值差了点，算狼的下位吧
 
+
+*****
+
+####  伊布桑  
+##### 112#       发表于 2025-10-23 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68613348&amp;ptid=2256125" target="_blank">windaria 发表于 2025-10-23 11:36</a>
+你们pc版看过场动画会卡吗，我一顿一顿的</blockquote>
+可能是pc读取视频文件有bug。我一开始是卡的，后来刷初始发现没卡了，可能重启游戏就行
+
