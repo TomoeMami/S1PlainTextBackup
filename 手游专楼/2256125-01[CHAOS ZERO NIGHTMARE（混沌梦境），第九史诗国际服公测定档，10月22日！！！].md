@@ -1246,3 +1246,29 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">习惯性上线先把交流次数用了，然后爬塔绝赞翻车，发现治疗要用交流次数，看来以后还得先爬再交流
 
+
+*****
+
+####  tvfxqalways5  
+##### 132#       发表于 2025-10-23 20:00
+
+第2章的肉鸽怎么过啊？
+
+抽不到强力角色又不想转生
+
+只用御三家 m欧文米卡德蕾莎能过吗？
+
+*****
+
+####  暗口崩子  
+##### 133#       发表于 2025-10-23 20:02
+
+卡30级，各种资源都抠抠索索的，玩都不知道玩什么
+
+迷宫一周只有四次奖励，剩下是坐牢刷牌组，初期这点破卡刷了也白刷，副本下多了疯了还得花资源聊天，做日常还得留一个给约会
+
+所有素材本都吃大量体力，farm点也就算了，装备目前看着只有套装效果但是按E7尿性以后肯定还有词条<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情本和战斗本卡等级
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我是忍不到双十一蝗国服了
+
