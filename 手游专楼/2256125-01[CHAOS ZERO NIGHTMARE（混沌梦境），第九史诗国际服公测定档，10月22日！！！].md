@@ -916,3 +916,15 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 养马留下的卡有介绍吗
 
+
+*****
+
+####  ppa11  
+##### 100#       发表于 2025-10-23 08:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68610306&amp;ptid=2256125" target="_blank">伊布桑 发表于 2025-10-22 17:19</a>
+但光盾不是削了吗？</blockquote>
+新手50抽只出了个光盾，有节奏排名吗，刷哪个比较好？
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
