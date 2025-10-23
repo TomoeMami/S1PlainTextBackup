@@ -991,3 +991,15 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 106#       发表于 2025-10-23 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68612216&amp;ptid=2256125" target="_blank">ppa11 发表于 2025-10-23 08:15</a>
+新手50抽只出了个光盾，有节奏排名吗，刷哪个比较好？
+
+—— 來自 realme RMX3700, Android 14, 鵝球 v3. ...</blockquote>
+雨果还是巨强，和内测差不多，有初始送的水奶和德蕾莎就能启动，我刷了个额外攻击时发动夹击的灵光，打啥都是砍瓜切菜，唯一的问题就是你能不能接受福瑞，不过这种凶狠型的我觉得比E7那堆福瑞能接受
+
