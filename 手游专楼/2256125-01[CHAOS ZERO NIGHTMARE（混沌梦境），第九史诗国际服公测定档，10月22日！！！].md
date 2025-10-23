@@ -928,3 +928,18 @@ PC锁区，手机锁区加检测虚拟机。算了能玩玩不能玩拉倒了。
 
 —— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  伊布桑  
+##### 101#       发表于 2025-10-23 08:44
+
+ 本帖最后由 伊布桑 于 2025-10-23 08:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68612216&amp;ptid=2256125" target="_blank">ppa11 发表于 2025-10-23 08:15</a>
+新手50抽只出了个光盾，有节奏排名吗，刷哪个比较好？
+
+—— 來自 realme RMX3700, Android 14, 鵝球 v3. ...</blockquote>
+虽然削了，但是强度依然不低，因为天上这个词条很强，外加开局御三家没盾，打本上盾可以防压力，如果你刷到光盾应该还是不错的。
+目前刚开服很多东西不确定，很多排行榜差别很大<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我也不好说哪个靠谱，等后面大家满级了都在刷圣遗物了可能才会稳定下来
+另外小春应该是铁强的，可以通过商店换几个up抽刷一下小春的初始
+
