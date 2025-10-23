@@ -1079,3 +1079,13 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 米池游戏真有刷初始的意义吗，，，
 
+
+*****
+
+####  aksasa  
+##### 115#       发表于 2025-10-23 13:30
+
+25级解锁圣遗物<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">润了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
