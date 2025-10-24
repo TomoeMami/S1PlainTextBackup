@@ -264,3 +264,16 @@
 
 这妖精草任务感觉不值得花时间做
 
+
+*****
+
+####  电脑死机  
+##### 531#       发表于 2025-10-24 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68615251&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-10-23 17:31</a>
+
+没有，身上连miss都不跳</blockquote>
+又试了一次，运气好，对面法术丢的不多，死两个人硬杀两个骑士干掉了
+
+妖精草简单，带上火法过去就行，去个怪多点的地方挂机都能拿完……火法原版还是可以练一只的，我方目前唯一一个火法师，而且是我方最大
+
