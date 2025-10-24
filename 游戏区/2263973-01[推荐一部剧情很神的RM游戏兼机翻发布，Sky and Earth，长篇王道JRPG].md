@@ -662,3 +662,11 @@ mark下，有趣。
 
 我终于打到第七章了…………都已经74小时了  可怕的内容量，事件过后npc对白还会变。。。。作为同人游戏的制作水平。。。这游戏真可怕。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">  打完以后来写完整的感想，期待结局
 
+
+*****
+
+####  永远的访客  
+##### 56#       发表于 2025-10-25 01:25
+
+慢慢打到第2章，设定、剧情未收的伏笔已经多到爆炸了，人名也只能记住几个。这游戏可惜只是RM，要是正儿八经让公司投钱进去就是个当年的一流大作，经典的愤世嫉俗身世成谜男主配乐观开朗的天降美少女组合，治好了电子阳痿(？)<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
