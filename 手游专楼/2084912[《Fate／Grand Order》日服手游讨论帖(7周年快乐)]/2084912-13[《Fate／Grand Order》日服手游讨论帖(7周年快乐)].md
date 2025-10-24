@@ -1545,3 +1545,36 @@ MuMu-20251023-003639-215.jpg
 1个10连，出来的时候我都懵逼了。我真的只是想抽5星礼装</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">今年最欧的就是你了
 
+
+*****
+
+####  khxooo  
+##### 18530#       发表于 2025-10-23 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68613040&amp;ptid=2084912" target="_blank">失落之翼 发表于 2025-10-23 10:48</a>
+看这样子或许明年万圣节不是龙娘了吧</blockquote>
+应该不是了，莫莱那个活动黑手应该就是这次的三头龙伊丽莎了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 18531#       发表于 2025-10-24 14:37
+
+一本设定集就塞四个人，看来还是卖得太好了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 18532#       发表于 2025-10-24 17:18
+
+总而言之，gxyy了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 18533#       发表于 2025-10-24 17:26
+
+yy这神必的强化，可惜我没有没法嫖两个石头
+
