@@ -1351,3 +1351,21 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 另外内测的时候爬爬刷得挺频繁的，公测之后我一次都没见过，不知道是不是改了
 
+
+*****
+
+####  ppa11  
+##### 142#       发表于 2025-10-24 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68612618&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-10-23 09:39</a>
+
+雨果还是巨强，和内测差不多，有初始送的水奶和德蕾莎就能启动，我刷了个额外攻击时发动夹击的灵光，打啥 ...</blockquote>
+福瑞还是算了。。只玩妹纸（
+
+*****
+
+####  冬妮娅  
+##### 143#       发表于 2025-10-24 10:29
+
+今天上号发现IP被封了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
