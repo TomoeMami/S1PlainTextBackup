@@ -47,3 +47,13 @@
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 2965#       发表于 2025-10-24 19:35
+
+pvp的f91蛮可怕的，防住一次就超强气，没被击破就容易被拖进持久战
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
