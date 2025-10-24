@@ -1397,3 +1397,27 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 有没有推荐的up主，我看看是怎么攻略的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 147#       发表于 2025-10-24 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68619236&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2025-10-24 13:15</a>
+早上试了下御二家+飞刀妹，还是过不去第2章肉鸽。
+
+有没有推荐的up主，我看看是怎么攻略的 ...</blockquote>
+第二章内测的时候也挺难的，总的来说就是最好不要越级打，你把角色和武器都拉到20，天赋至少点开进门送一张灵光一闪能力。中间剧情打虫子优先打死虫窝，不然会无限产怪，无限塞牌永远打不完
+
+*****
+
+####  三谷歩夢  
+##### 148#       发表于 2025-10-24 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68619236&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2025-10-24 13:15</a>
+
+早上试了下御二家+飞刀妹，还是过不去第2章肉鸽。
+
+有没有推荐的up主，我看看是怎么攻略的 ...</blockquote>
+手上都有哪些角色？一般来说水奶+德蕾莎，水奶装那个修女战斗员，角色不使用攻击牌的回合结束时会回血，基本没啥生存压力，剩下一个角色补补输出就行了，角色能升级就升级
+
