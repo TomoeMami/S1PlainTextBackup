@@ -1369,3 +1369,11 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 今天上号发现IP被封了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 144#       发表于 2025-10-24 11:49
+
+30级卡厄思居然有自选卡神一闪的稀有事件
+
