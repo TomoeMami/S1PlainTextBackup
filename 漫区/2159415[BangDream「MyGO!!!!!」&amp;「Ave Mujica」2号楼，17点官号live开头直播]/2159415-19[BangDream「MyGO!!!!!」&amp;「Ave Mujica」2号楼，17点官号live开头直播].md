@@ -255,3 +255,12 @@ soyo变成吐槽役了。
 按顺序应该是pp，go插队了</blockquote>
 ……啊？这也可以吵起来？还是吃太饱了（嗝儿）
 
+
+*****
+
+####  仟音一心  
+##### 27328#       发表于 2025-10-24 22:19
+
+<img src="https://p.sda1.dev/28/31cd70018d2a0dd47d0a11f05673f961/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/566b2c5c33125c79500ede74380bb711/image.jpg" referrerpolicy="no-referrer">
+
