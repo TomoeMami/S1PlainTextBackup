@@ -235,3 +235,23 @@ soyo变成吐槽役了。
 <img src="https://p.sda1.dev/28/b06cadc6e6a7418e806f81cb28396077/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/28/91e9259f5c846c4f3eebbdbf3ba395c2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 27326#       发表于 2025-10-24 12:32
+
+因为没把灯的位置和摆石头的相对位置画出来所以不好判断，如果按灯说的是正确来推的话，第五颗石头是离灯最近的那颗的话，爱音拿的是第四颗修学石，立希拿的是第三颗3m石。而且从灯的手从左上角伸出来来考虑，第四颗或者第五颗是靠灯最近的，综上的话灯肯定是没认错的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+不过倒是立希同学竟敢无视灯，明明灯已经说了爱音手里那颗是修学石，立希同学竟然还能不知道哪颗是修学石，一看就知道没有很好听灯说话<img src="https://static.stage1st.com/image/smiley/carton2017/470.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  depthlee  
+##### 27327#       发表于 2025-10-24 12:37
+
+<blockquote>好想看Mujica啊 发表于 2025-10-24 10:35
+按顺序应该是pp，go插队了</blockquote>
+……啊？这也可以吵起来？还是吃太饱了（嗝儿）
+
