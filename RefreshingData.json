@@ -6926,7 +6926,7 @@
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "lastedit": 1761007213,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2092342": {
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 2531,
+    "totalreply": 2532,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1761266294,
+    "lastedit": 1761266539,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12015,10 +12015,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 2762,
+    "totalreply": 2763,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 10.21「促融共竞#2」&amp;三丽鸥二期(本楼含YJWL动态交流)]",
-    "lastedit": 1761265328,
+    "lastedit": 1761266647,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12222,10 +12222,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 10055,
+    "totalreply": 10059,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1761266046,
+    "lastedit": 1761266408,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 1172,
+    "totalreply": 1174,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1761265934,
+    "lastedit": 1761266534,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12672,10 +12672,10 @@
     "update": false
   },
   "2255013": {
-    "totalreply": 222,
+    "totalreply": 223,
     "title": "[原创TV动画「永远的黄昏 ／ 永久のユウグレ」2025年10月]",
     "newtitle": "[原创TV动画「永远的黄昏 ／ 永久のユウグレ」2025年10月]",
-    "lastedit": 1761262930,
+    "lastedit": 1761266409,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15228,10 +15228,10 @@
     "update": false
   },
   "2264584": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[第一次投黄金etf，许愿涨]",
     "newtitle": "[第一次投黄金etf，许愿涨]",
-    "lastedit": 1761261491,
+    "lastedit": 1761266539,
     "category": "外野",
     "active": true,
     "update": false
@@ -15993,10 +15993,10 @@
     "update": false
   },
   "2264778": {
-    "totalreply": 412,
+    "totalreply": 413,
     "title": "[《逃离鸭科夫》这游戏真不错吧]",
     "newtitle": "[《逃离鸭科夫》这游戏真不错吧]",
-    "lastedit": 1761264127,
+    "lastedit": 1761266890,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17010,10 +17010,10 @@
     "update": false
   },
   "2265294": {
-    "totalreply": 107,
+    "totalreply": 109,
     "title": "[这么点瑕疵就闹着换车啊？]",
     "newtitle": "[这么点瑕疵就闹着换车啊？（更新，车主已提车）]",
-    "lastedit": 1761265571,
+    "lastedit": 1761266890,
     "category": "外野",
     "active": true,
     "update": false
@@ -17091,10 +17091,10 @@
     "update": false
   },
   "2265320": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[a站现状已经这么惨了吗]",
     "newtitle": "[a站现状已经这么惨了吗]",
-    "lastedit": 1761230896,
+    "lastedit": 1761266539,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,10 +17244,10 @@
     "update": false
   },
   "2265335": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[张雪峰账号解封]",
     "newtitle": "[张雪峰账号解封]",
-    "lastedit": 1761227050,
+    "lastedit": 1761266539,
     "category": "外野",
     "active": true,
     "update": false
@@ -17334,11 +17334,29 @@
     "update": false
   },
   "2265409": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[如果被小登呛「你这辈子也就这样了」你会怎么办？]",
     "newtitle": "[如果被小登呛「你这辈子也就这样了」你会怎么办？]",
-    "lastedit": 1761265940,
+    "lastedit": 1761266889,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2265370": {
+    "totalreply": 43,
+    "title": "[老娘47了  眼巴巴的盼着退休  唉]",
+    "newtitle": "[老娘47了  眼巴巴的盼着退休  唉]",
+    "lastedit": 1761266539,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2265398": {
+    "totalreply": 41,
+    "title": "[评价游戏不看游戏的价格和体量吗？论丝之歌]",
+    "newtitle": "[评价游戏不看游戏的价格和体量吗？论丝之歌]",
+    "lastedit": 1761266539,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
