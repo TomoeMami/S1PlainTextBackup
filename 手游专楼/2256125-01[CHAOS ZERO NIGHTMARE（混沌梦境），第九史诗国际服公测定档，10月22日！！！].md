@@ -1387,3 +1387,13 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tvfxqalways5  
+##### 146#       发表于 2025-10-24 13:15
+
+早上试了下御二家+飞刀妹，还是过不去第2章肉鸽。
+
+有没有推荐的up主，我看看是怎么攻略的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
