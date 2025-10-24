@@ -1429,3 +1429,19 @@ ui什么另说，我的感觉主要是明明可以自动战斗，但是非要让
 
 小怪这些个死法 国服和谐得过来吗
 
+
+*****
+
+####  暗口崩子  
+##### 150#       发表于 2025-10-24 21:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">凑不出二队有啥法子么，主队小春百丽儿米卡
+
+C有凯隆和梅铃，感觉这俩都能搭雷伊不过试了下肉鸽没有米卡生存压力巨大<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+5X 小春 凯隆 梅玲
+
+4X 尼亚 玛丽贝尔 卢卡斯 希林娜 
+
+梅玲 希林娜 雷伊，雷伊下本刷成奶配置？
+
