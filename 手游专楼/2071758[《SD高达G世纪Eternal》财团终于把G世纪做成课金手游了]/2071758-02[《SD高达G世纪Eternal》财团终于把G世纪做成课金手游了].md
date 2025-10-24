@@ -7534,3 +7534,17 @@ GF真是全部中小型都能用配置支援機，雖然動作就刪得只得1HI
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 2960#       发表于 2025-10-24 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68618766&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-10-24 11:55</a>
+笑死，光速维护
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪来这么多bug，我都没遇到负分什么的，正常打，打着打着就无了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
