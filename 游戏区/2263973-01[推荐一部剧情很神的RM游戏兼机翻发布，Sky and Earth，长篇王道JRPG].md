@@ -654,3 +654,11 @@ mark下，有趣。
 
 —— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kinfox  
+##### 55#       发表于 2025-10-25 00:14
+
+我终于打到第七章了…………都已经74小时了  可怕的内容量，事件过后npc对白还会变。。。。作为同人游戏的制作水平。。。这游戏真可怕。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">  打完以后来写完整的感想，期待结局
+
