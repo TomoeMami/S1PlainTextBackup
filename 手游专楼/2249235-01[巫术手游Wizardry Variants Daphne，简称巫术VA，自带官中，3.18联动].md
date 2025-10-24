@@ -313,3 +313,15 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wcorvo  
+##### 535#       发表于 2025-10-24 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68620564&amp;ptid=2249235" target="_blank">orz100 发表于 2025-10-24 17:23</a>
+女法师是四星异格，没必要抽。水战士现在双手武器改版了算有点价值但是也价值不高，不是重氪或者钻多到用 ...</blockquote>
+那还是算了吧，我买的自抽号，还剩3w多钻，还是攒着等后面的角色了
+
+—— 来自 vivo V2426A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
