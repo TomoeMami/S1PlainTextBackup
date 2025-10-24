@@ -287,3 +287,14 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wcorvo  
+##### 533#       发表于 2025-10-24 17:13
+
+抽完狮樱之后没玩了，现在又捡起来，刚刚出了那个花魁，想问下这期池子那个女法师和女战士要抽吗？
+还有我40抽出的花魁，要再砸够100抽换她的专武吗？
+
+—— 来自 vivo V2426A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
