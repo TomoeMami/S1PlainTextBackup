@@ -158,3 +158,14 @@
 
 有点神秘
 
+
+*****
+
+####  kenqqex  
+##### 7189#       发表于 2025-10-25 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68624509&amp;ptid=2130897" target="_blank">信长的呕吐 发表于 2025-10-25 16:29</a>
+
+学中了day2</blockquote>
+我中了d1
+
