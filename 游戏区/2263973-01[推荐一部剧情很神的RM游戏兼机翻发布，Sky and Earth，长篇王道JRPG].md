@@ -694,3 +694,15 @@ mark下，有趣。
 就是这个该有出 ...</blockquote>
 能提供任务前的存档吗，我看看日文版有没有进支线列表
 
+
+*****
+
+####  InfiniteGyre  
+##### 59#       发表于 2025-10-25 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626171&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-10-25 22:00</a>
+能提供任务前的存档吗，我看看日文版有没有进支线列表</blockquote>
+私信了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
