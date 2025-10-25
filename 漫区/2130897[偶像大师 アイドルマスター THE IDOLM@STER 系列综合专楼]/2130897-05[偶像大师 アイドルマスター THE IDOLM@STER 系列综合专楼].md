@@ -177,3 +177,12 @@
 
 难道只有我两天全落🐴
 
+
+*****
+
+####  a1370303  
+##### 7191#       发表于 2025-10-26 00:51
+
+今天live构成还挺奇怪的，螺旋的新打歌服只在第一首出现了一次。结束也挺突然，这边山顶7楼很多人一开始还没有意识到要喊安可，小高又在整活<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/0d4f9a4d9625ca282b7408a9d984f2f1/image.jpg" referrerpolicy="no-referrer">
+
