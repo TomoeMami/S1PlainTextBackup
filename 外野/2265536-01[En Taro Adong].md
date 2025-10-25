@@ -407,3 +407,26 @@ We are as one!
 
 那华盛顿要大停电了
 
+
+*****
+
+####  背后捅刀擎天柱  
+##### 45#       发表于 2025-10-25 20:05
+
+米帝也可以考古啊，只要把封存的鸭滑开出来一定能消灭老中的。
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  武川日玄  
+##### 46#       发表于 2025-10-25 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68624528&amp;ptid=2265536" target="_blank">jojog 发表于 2025-10-25 16:36</a>
+
+建完了怕不是阿川自己已经驾鹤西归了吧
+
+不对 正好叫**号？</blockquote>
+建航母名字还轮不到他，所以另起炉灶
+
