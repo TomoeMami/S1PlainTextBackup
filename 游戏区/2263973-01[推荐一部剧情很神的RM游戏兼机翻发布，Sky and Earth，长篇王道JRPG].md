@@ -706,3 +706,14 @@ mark下，有趣。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blackll7  
+##### 60#       发表于 2025-10-25 23:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了，如果你喜欢王道的话，可以试试Magica-tale
+[https://www.freem.ne.jp/win/game/25738](https://www.freem.ne.jp/win/game/25738)
+
+这个总体来说节奏是很不错的，嗯而且新作也已经在开发中了（虽然新作是基于豆包AI的也是很逗）
+
