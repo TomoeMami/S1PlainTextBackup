@@ -33,3 +33,63 @@
 <img src="https://files.catbox.moe/zbrddi.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/k2xzac.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1348#       发表于 2025-10-25 19:43
+
+ 本帖最后由 jaewoongh_ 于 2025-10-25 19:47 编辑 
+
+今天下午去看了今年q娃电影的应援场（据说是今年最后一次应援上映），大概是因为电影院就在东映大泉摄影棚旁边，所以观众看起来都很专业（？），坐我旁边的大姐把化棒横幅全掏出来了，全副武装这一块
+
+不过虽然说是应援场，观众还是比想象中腼腆的，比起欢呼鼓掌更愿意摇化棒，好在后排有个大哥一直在带头喊，气氛总体上很热烈
+
+这次q娃剧场版依旧有前辈登场，从欢呼声来看sky、wonderful和lilian是人气最高的，特别是lilian登场的时候女观众的欢呼声巨大，wing和butterfly合击绝技的时候欢呼声也巨大（不过这大概也没法代表什么东西，有的时候刚打完大招就要开始对反派话疗了，没有什么喝彩的余地）
+
+这次自己还闹了个笑话，q娃电影有个定番是主角团被击倒在地，然后观众摇手电给q娃传递元气，结果我忘记把电池的塑料片取出来了，折腾半天，限定形态都出来了才把灯弄亮，实在是非常遗憾
+
+不算家长的话小友大概占了二成，比我想象中要多，顺便一提后排有个很小的小友，q娃一被打就哇哇哭，一到live部分就开心，英才教育初见成效（
+
+最后还有个聊天环节，大概只有应援场才有？可以拍照所以挑着拍了几张
+
+<img src="https://img.stage1st.com/forum/202510/25/194316oekk0gl0lc2facee.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251025202748_174_5.jpg</strong> (381.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 19:43 上传
+
+<img src="https://img.stage1st.com/forum/202510/25/194320tigir2x0d15g77rd.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251025202743_170_5.jpg</strong> (268.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 19:43 上传
+
+<img src="https://img.stage1st.com/forum/202510/25/194319xxitqdtzkd8tdz5e.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251025202745_171_5.jpg</strong> (219.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 19:43 上传
+
+<img src="https://img.stage1st.com/forum/202510/25/194318onzv5ek40nv88g5i.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251025202746_172_5.jpg</strong> (268.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 19:43 上传
+
+<img src="https://img.stage1st.com/forum/202510/25/194317uew6ilarigle6eir.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20251025202747_173_5.jpg</strong> (264.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 19:43 上传
+
