@@ -466,3 +466,13 @@ We are as one!
 
 mylifeformoney
 
+
+*****
+
+####  体制  
+##### 51#       发表于 2025-10-25 21:28
+
+我玩过的rts里，无论是神族的黄金舰队还是厄普西隆的黄金舰队都没有好下场啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
