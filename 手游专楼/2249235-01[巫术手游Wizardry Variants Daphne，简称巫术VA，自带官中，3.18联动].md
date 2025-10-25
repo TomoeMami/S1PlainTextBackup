@@ -352,3 +352,26 @@
 
 —— 来自 vivo V2426A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UnknownRei  
+##### 538#       发表于 2025-10-25 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68623211&amp;ptid=2249235" target="_blank">wcorvo 发表于 2025-10-25 10:27</a>
+
+我还是把专武弄出来了，出了四个角色，怎么看哪个优秀点的？我看性格全是恶，属性也一样，就是有个初始加 ...</blockquote>
+抽多了可以看下初始个体是什么，意志力是不是100的，再选一个培养
+
+
+*****
+
+####  琉歌  
+##### 539#       发表于 2025-10-25 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68623211&amp;ptid=2249235" target="_blank">wcorvo 发表于 2025-10-25 10:27</a>
+我还是把专武弄出来了，出了四个角色，怎么看哪个优秀点的？我看性格全是恶，属性也一样，就是有个初始加 ...</blockquote>
+攻略站可以看七围基础数值，哪一项多出1点就是XX个体，这一项后续成长会高一些（或者注册的时候直接自己仓库的几只对比下数值也行）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
