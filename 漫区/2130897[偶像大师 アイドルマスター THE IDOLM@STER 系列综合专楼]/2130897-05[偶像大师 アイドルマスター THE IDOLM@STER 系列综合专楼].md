@@ -140,3 +140,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kykawaiii  
+##### 7187#       发表于 2025-10-25 16:48
+
+<img src="https://p.sda1.dev/28/d761c0bebc3abfe36d123a59cca9ac69/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -101,3 +101,11 @@ se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1724#         楼主| 发表于 2025-10-25 16:53
+
+这镰鼬还是螳螂，的盖塔飞斧太猛了，去B站看大触打全部都是躲60外躲掉的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
