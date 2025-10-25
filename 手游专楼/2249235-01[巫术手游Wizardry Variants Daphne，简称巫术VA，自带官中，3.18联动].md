@@ -339,3 +339,16 @@
 
 不过我是第一只抽到生命力个体，实在太差才补井的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，下井还是三思吧
 
+
+*****
+
+####  wcorvo  
+##### 537#       发表于 2025-10-25 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68620855&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-10-24 18:13</a>
+银苦无我看好几个社区讨论好久了，个人觉得还是可以考虑拿一把的，主要原因在新女忍的技能和武器非常定制： ...</blockquote>
+我还是把专武弄出来了，出了四个角色，怎么看哪个优秀点的？我看性格全是恶，属性也一样，就是有个初始加点是10点，有个是8点这样
+直接培养那个初始加点比较高的么？
+
+—— 来自 vivo V2426A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
