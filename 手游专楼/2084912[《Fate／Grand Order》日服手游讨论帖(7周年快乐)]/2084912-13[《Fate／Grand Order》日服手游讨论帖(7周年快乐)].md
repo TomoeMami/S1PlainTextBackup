@@ -1578,3 +1578,52 @@ MuMu-20251023-003639-215.jpg
 
 yy这神必的强化，可惜我没有没法嫖两个石头
 
+
+*****
+
+####  khxooo  
+##### 18534#       发表于 2025-10-24 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68620586&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-10-24 17:26</a>
+
+yy这神必的强化，可惜我没有没法嫖两个石头</blockquote>
+不如说这才是正常的强化，三技能那个强化才是真正的意味不明
+
+*****
+
+####  angelooo  
+##### 18535#       发表于 2025-10-24 17:34
+
+<blockquote>khxooo 发表于 2025-10-24 17:31
+不如说这才是正常的强化，三技能那个强化才是真正的意味不明</blockquote>
+就是那个三技能强化nt啊，简直浪费
+
+今天这强化一出更显得之前那个强化搞笑了
+
+*****
+
+####  khxooo  
+##### 18536#       发表于 2025-10-25 00:16
+
+笑死，，掉第二张礼装了，无限池不见这欧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18537#       发表于 2025-10-25 17:14
+
+<img src="https://img.stage1st.com/forum/202510/25/171506i894lxlx1ohzxn8x.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20251025_171145.png</strong> (404.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-25 17:15 上传
+
+终焉三头龙•王者艾莉莎
+
+三头四臂的连体婴儿，看着好别扭啊...
+
+三个躯干共用一个下身，让我想起了殷商时代的某位蓝皮巨人...
+
