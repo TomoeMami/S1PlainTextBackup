@@ -7475,7 +7475,7 @@
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "lastedit": 1761158770,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2110102": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 198127,
+    "totalreply": 198128,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1761417630,
+    "lastedit": 1761418686,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13004,15 +13004,6 @@
     "active": false,
     "update": false
   },
-  "2264044": {
-    "totalreply": 88,
-    "title": "[这罕见发言太像是串子]",
-    "newtitle": "[这罕见发言太像是串子]",
-    "lastedit": 1760208614,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2218983": {
     "totalreply": 64,
     "title": "[细田守监督 新作动画电影『无尽希望的斯嘉丽 ／ 果てしなきスカーレット』11月21日上映]",
@@ -13284,10 +13275,10 @@
     "update": false
   },
   "2208973": {
-    "totalreply": 221,
+    "totalreply": 222,
     "title": "[GNOSIA TV动画化 2025年]",
     "newtitle": "[GNOSIA TV动画化 2025年]",
-    "lastedit": 1761416048,
+    "lastedit": 1761418207,
     "category": "漫区",
     "active": true,
     "update": false
