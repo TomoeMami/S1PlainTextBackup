@@ -1648,3 +1648,11 @@ ai抽卡动画，ai三四星，太丑陋了
 
 之前E7杀过初始么？想买个初始了
 
+
+*****
+
+####  船见  
+##### 168#       发表于 2025-10-26 06:30
+
+搞不明白保留队，修女的保留物和蓝卡完全没法激活百丽尔的机制<img src="https://static.stage1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
