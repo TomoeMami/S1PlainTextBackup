@@ -717,3 +717,18 @@ mark下，有趣。
 
 这个总体来说节奏是很不错的，嗯而且新作也已经在开发中了（虽然新作是基于豆包AI的也是很逗）
 
+
+*****
+
+####  blueelf  
+##### 61#         楼主| 发表于 2025-10-25 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626394&amp;ptid=2263973" target="_blank">blackll7 发表于 2025-10-25 23:07</a>
+
+对了，如果你喜欢王道的话，可以试试Magica-tale
+
+https://www.freem.ne.jp/win/game/25738
+
+这个总体来说节 ...</blockquote>
+感谢大佬分享，千年时计汉化马上出了，等那个打完我就去搞这个
+
