@@ -1674,3 +1674,17 @@ ai抽卡动画，ai三四星，太丑陋了
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  笨蛋，我知道的  
+##### 171#       发表于 2025-10-26 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68627252&amp;ptid=2256125" target="_blank">远野乙姬 发表于 2025-10-26 09:07</a>
+小春到底咋样，看一个貌似挺不错的up说不值得投up池的票，我自己的不太会用，手感确实也不好
+
+—— 来自 OP ...</blockquote>
+现在没到60，1费召回锚+0费强化锚+3费锚攻击，一回合要打基础连招就要4费，还得考虑其他强化牌，现阶段缺乏加费手段很卡手，体验关卡给60级配对可以瞎几把打，得先把米拉或者其他加AP的角色拉起来才能打出最佳效果，反正是常驻角色，个人认为没必要去up池硬抽。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
