@@ -1711,3 +1711,16 @@ ai抽卡动画，ai三四星，太丑陋了
 —— 来自 OP ...</blockquote>
 只能说还行但比不上明显比较厉害的那几个C（梅玲、仓鼠狙、狼），要刷回费神闪锚点弥补卡手问题
 
+
+*****
+
+####  三谷歩夢  
+##### 174#       发表于 2025-10-26 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68627555&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2025-10-26 10:41</a>
+
+感觉这游戏挺肝的。
+
+有点想把小春活动放弃了。但群友都劝这活动白嫖的。</blockquote>
+活动还行吧全清也就打一把卡4的时间，主要也不用刷什么东西，过过剧情和试用关就行了
+
