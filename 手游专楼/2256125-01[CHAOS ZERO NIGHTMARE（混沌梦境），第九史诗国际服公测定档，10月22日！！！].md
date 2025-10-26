@@ -1821,3 +1821,21 @@ ai抽卡动画，ai三四星，太丑陋了
 
 感觉主要费劲的点就是养成 国服能上手优化就好了
 
+
+*****
+
+####  镜像导航图  
+##### 184#       发表于 2025-10-26 20:59
+
+话说这游戏的卡池，期间限定UP的角色以后进不进普池的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">进普池我先不抽了
+
+
+*****
+
+####  stonego  
+##### 185#       发表于 2025-10-26 21:03
+
+抬小春的是最后一个卡厄斯和主线最终boss Judas，尤其是后者，专克多动怪<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+40级能打0号，不过实际上存档上限一开始也就是高，只能说小心点能避免被往卡组里塞屎了。小春UP池结束前，大部分应该能到50级解锁全部系统。
+
