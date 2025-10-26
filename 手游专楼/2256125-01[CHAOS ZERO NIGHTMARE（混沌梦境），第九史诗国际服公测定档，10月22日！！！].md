@@ -1860,3 +1860,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 感觉现在最恶心的是局外，角色等级之类的东西短时间内拉不起来，被迫越级打肉鸽然后三人下本疯四个<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 188#       发表于 2025-10-26 23:57
+
+角色太少，今天出了四星里的红盾推图舒服多了，一看图鉴里正经盾就一个四星一个五星……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
