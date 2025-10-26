@@ -1664,3 +1664,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">卡4的神闪确实多，但是怎么一个都歪不到想要的上面呢
 
+
+*****
+
+####  远野乙姬  
+##### 170#       发表于 2025-10-26 09:07
+
+小春到底咋样，看一个貌似挺不错的up说不值得投up池的票，我自己的不太会用，手感确实也不好
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
