@@ -1662,3 +1662,49 @@ yy这神必的强化，可惜我没有没法嫖两个石头</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARKGRAY  
+##### 18542#       发表于 2025-10-25 19:42
+
+假如从者宇宙转正是为了用在第三部的话，现有条件已经足够让蘑菇交棒去忙月姬魔夜什么的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18543#       发表于 2025-10-26 19:09
+
+<img src="https://img.stage1st.com/forum/202510/26/190510m5xaiyzraaucimub.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251026_185132_com.aniplex.fategrandorder.jpg</strong> (193.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-10-26 19:05 上传
+
+史上最烂boss建模，同是三头龙为何不学学提丰...
+
+一想到送的终焉艾莉宝具动画也可能有这三张要吃热狗的脸，完全绷不住了...
+
+*****
+
+####  woodacg  
+##### 18544#       发表于 2025-10-26 19:16
+
+md我千石一宝，中间还歪了个奥，太jb心痛了
+
+*****
+
+####  angelooo  
+##### 18545#       发表于 2025-10-26 20:40
+
+<blockquote>Jamaisvu 发表于 2025-10-26 19:09
+史上最烂boss建模，同是三头龙为何不学学提丰...
+
+一想到送的终焉艾莉宝具动画也可能有这三张要吃热狗的 ...</blockquote>
+进场差点给我吓得把手机都扔了
+
+基多拉这boss怎么整的全是烂活，终焉龙娘还有救吗
+
