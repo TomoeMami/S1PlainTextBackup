@@ -1787,3 +1787,29 @@ ai抽卡动画，ai三四星，太丑陋了
 
 其实小春最抽象的地方是主线卡厄思前四个没一个是水属性的，像小春这种高费c能不能破韧对关卡推进影响还挺大的
 
+
+*****
+
+####  三层楼的楼层三  
+##### 182#       发表于 2025-10-26 17:00
+
+我们杀戮尖塔搜打撤实在是太好玩了
+
+其实那张基础防御卡给删了，我刚开始还害怕容量不够，结果还给我塞回来了，难4关灯
+
+<img src="https://img.stage1st.com/forum/202510/26/170016m3ip3mo87cf3lrzi.png" referrerpolicy="no-referrer">
+
+<strong>[2VU_0$_YF`VVG)%I1ULF48.png</strong> (346.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-26 17:00 上传
+
+<img src="https://img.stage1st.com/forum/202510/26/170024ubs6ss4gzszwbp02.png" referrerpolicy="no-referrer">
+
+<strong>KF3~36JGL$[A)ASS0I8@B5C.png</strong> (271.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-26 17:00 上传
+
