@@ -1852,3 +1852,11 @@ ai抽卡动画，ai三四星，太丑陋了
 
 角色培养又各种需要消耗体力
 
+
+*****
+
+####  伊布桑  
+##### 187#       发表于 2025-10-26 23:36
+
+感觉现在最恶心的是局外，角色等级之类的东西短时间内拉不起来，被迫越级打肉鸽然后三人下本疯四个<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
