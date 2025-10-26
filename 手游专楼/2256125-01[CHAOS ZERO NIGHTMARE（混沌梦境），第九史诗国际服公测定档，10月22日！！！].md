@@ -1766,3 +1766,16 @@ ai抽卡动画，ai三四星，太丑陋了
 
 感觉严选存档还得等40级的零号系统，看了一下已经有人带出来把基础牌删光的存档了
 
+
+*****
+
+####  windaria  
+##### 180#       发表于 2025-10-26 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68627555&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2025-10-26 10:41</a>
+
+感觉这游戏挺肝的。
+
+有点想把小春活动放弃了。但群友都劝这活动白嫖的。</blockquote>
+活动还有很长时间，难度也不高
+

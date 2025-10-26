@@ -732,3 +732,20 @@ https://www.freem.ne.jp/win/game/25738
 这个总体来说节 ...</blockquote>
 感谢大佬分享，千年时计汉化马上出了，等那个打完我就去搞这个
 
+
+*****
+
+####  blueelf  
+##### 62#         楼主| 发表于 2025-10-26 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626017&amp;ptid=2263973" target="_blank">InfiniteGyre 发表于 2025-10-25 21:24</a>
+
+到第十章了，这种众志成城的王道展开真是久违了，真的爽到，现在真就是rm才能实现这种体量
+
+就是这个该有出 ...</blockquote>
+确实是有遗漏支线了，模型的锅，检查了一下翻译文本，个别任务在任务说明里漏掉了句末的"&gt;"符号
+
+出错的任务总共5个，其中象灵试炼那个是限时任务，其他都可以后补
+
+更新后的补丁已经上传，现在不会有任务遗漏了
+
