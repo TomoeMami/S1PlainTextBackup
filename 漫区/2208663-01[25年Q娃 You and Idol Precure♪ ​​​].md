@@ -127,3 +127,11 @@
 
 说起来男Q的官方缩写是BokuPuri（我Q），而偶Q的官方缩写是KimiPuri（你Q），其实还挺有梗的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 1351#       发表于 2025-10-26 10:56
+
+之前男Q也出了人间体二次元画风的谷子，这次是首次在本家(Q娃 TV正片)里客串出场。估计未来全明星摇手电有他们的份。
+
