@@ -25,3 +25,15 @@
 来了</blockquote>
 SU7 Ultra 那会儿 GT7 在官网有新闻稿宣布合作，仰望这个怎么只有比亚迪自己的 YouTube 频道在说
 
+
+*****
+
+####  一个陆仁贾  
+##### 1936#       发表于 2025-10-26 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68628122&amp;ptid=2027972" target="_blank">leystage 发表于 2025-10-26 13:22</a>
+SU7 Ultra 那会儿 GT7 在官网有新闻稿宣布合作，仰望这个怎么只有比亚迪自己的 YouTube 频道在说 ...</blockquote>
+playstation在b站的号也宣传了，外网可能还要时间吧
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
