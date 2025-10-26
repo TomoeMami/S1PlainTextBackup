@@ -561,3 +561,11 @@ My lifr for Aryan
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  takami  
+##### 62#       发表于 2025-10-26 19:26
+
+现在美军那么胖，是不是兵营能直接产执政官了？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
