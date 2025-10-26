@@ -21,3 +21,15 @@
 —— 来自 鹅球 v3.4.97-alpha</blockquote>
 这种都只能等插件作者更新维护
 
+
+*****
+
+####  超时空鉴定师  
+##### 103#       发表于 2025-10-26 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626928&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-10-26 02:29</a>
+这种都只能等插件作者更新维护</blockquote>
+Github搜了一下，把插件域名换了解决了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
