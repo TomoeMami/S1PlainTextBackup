@@ -143,3 +143,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集真是够烂的，外包画得啥玩意儿，脚本也不明所以……下下周预告的作画看起来很不错，虽然有五男人但应该还是会看一眼
 
+
+*****
+
+####  himfsz  
+##### 1353#       发表于 2025-10-26 11:45
+
+他妈的这么喜欢男人明年直接男人q娃转正算了
+
