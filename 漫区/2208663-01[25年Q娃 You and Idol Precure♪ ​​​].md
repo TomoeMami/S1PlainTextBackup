@@ -162,3 +162,11 @@
 
 作画也非常不错 什么意思男人回就上好资源 两害兽第一次变人间体上学就上青山大神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  codezwei  
+##### 1355#       发表于 2025-10-26 14:40
+
+把我的BG还给我，这集有点糙，梅伦伦没傲娇没那味，奈奈banana也有点PTSD了
+
