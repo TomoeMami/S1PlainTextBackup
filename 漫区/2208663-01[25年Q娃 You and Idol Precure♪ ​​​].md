@@ -170,3 +170,19 @@
 
 把我的BG还给我，这集有点糙，梅伦伦没傲娇没那味，奈奈banana也有点PTSD了
 
+
+*****
+
+####  leleq  
+##### 1356#       发表于 2025-10-26 22:35
+
+怕鬼这事以前一般都是蓝紫来干这次轮到粉主了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+瓜达是吧<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+这集搁到以前就该是nana回忆完拿出强化玩具二段变身了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+哦还有闭眼bank呢
+
+男Q！不要啊我不要看啊<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
