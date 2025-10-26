@@ -597,3 +597,11 @@ My lifr for Aryan
 
 这就是马润的下场！
 
+
+*****
+
+####  欧比旺  
+##### 65#       发表于 2025-10-26 20:12
+
+已知高达里金色的百式可以反光束，那是不是金色的阿利伯克也能反激光<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
