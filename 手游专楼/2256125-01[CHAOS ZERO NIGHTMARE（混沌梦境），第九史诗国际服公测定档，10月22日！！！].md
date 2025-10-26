@@ -1878,3 +1878,26 @@ ai抽卡动画，ai三四星，太丑陋了
 
 看了一些视频40级以后的情况，真正的牢中牢
 
+
+*****
+
+####  远野乙姬  
+##### 190#       发表于 2025-10-27 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68627337&amp;ptid=2256125" target="_blank">笨蛋，我知道的 发表于 2025-10-26 09:35</a>
+现在没到60，1费召回锚+0费强化锚+3费锚攻击，一回合要打基础连招就要4费，还得考虑其他强化牌，现阶段缺 ...</blockquote>
+正好问一下漏油，是不是2命其实没有想象那么关键，我感觉2命也不很正路啊，看起来不卡手，其实就是方便叠层，输出基本也是没有的
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  远野乙姬  
+##### 191#       发表于 2025-10-27 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68627561&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-10-26 10:43</a>
+只能说还行但比不上明显比较厉害的那几个C（梅玲、仓鼠狙、狼），要刷回费神闪锚点弥补卡手问题 ...</blockquote>
+输出的顶点是不是就梅玲…
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
