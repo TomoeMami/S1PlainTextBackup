@@ -569,3 +569,17 @@ My lifr for Aryan
 
 现在美军那么胖，是不是兵营能直接产执政官了？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 63#       发表于 2025-10-26 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626038&amp;ptid=2265536" target="_blank">体制 发表于 2025-10-25 21:28</a>
+我玩过的rts里，无论是神族的黄金舰队还是厄普西隆的黄金舰队都没有好下场啊
+
+—— 来自 鹅球 v3.5.99-alph ...</blockquote>
+赞达拉黄金舰队也是。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
