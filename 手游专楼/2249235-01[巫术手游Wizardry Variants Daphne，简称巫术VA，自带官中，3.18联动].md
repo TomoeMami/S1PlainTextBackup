@@ -422,3 +422,19 @@
 不过搞不太清楚装备价值，目前按三星以下直接卖三星分解（白强到5分解）四星先留着，把青铜的全清了，武器清掉冥以下的，非武器三星以下的全合一掉。
 但还是剩下好多，有没有快速判断装备价值的标准？
 
+
+*****
+
+####  琉歌  
+##### 543#       发表于 2025-10-26 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68626026&amp;ptid=2249235" target="_blank">香草控 发表于 2025-10-25 21:26</a>
+仓库要爆了，不想折腾库管角色，打算清理一波装备和杂物。
+不过搞不太清楚装备价值，目前按三星以下直接卖 ...</blockquote>
+其实就是筛选有效词条，可以看看巴哈的这篇帖子：
+
+【攻略】裝備的去與留，如何篩選你的裝備？（因應改版翻修）
+https://forum.gamer.com.tw/C.php?bsn=70180&amp;snA=1912
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
