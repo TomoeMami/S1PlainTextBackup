@@ -809,3 +809,11 @@ https://www.freem.ne.jp/win/game/25738
 
 才试个开头几章，比想象中好，一堆3a大作没玩，先玩着这个了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ra2163  
+##### 68#       发表于 2025-10-27 23:07
+
+这游戏能看历史对话么
+
