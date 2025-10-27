@@ -2124,3 +2124,16 @@ ai抽卡动画，ai三四星，太丑陋了
 
 政策应该都走完一轮了吧，下一轮可以换代理人，我没刷到角色外出给我卡好感任务好几天了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  远野乙姬  
+##### 211#       发表于 2025-10-27 23:02
+
+体会到这游戏乐趣了，刷存档好满足啊
+
+<img src="https://p.sda1.dev/28/4799b615d04ccc28cabdc13fd31f7bde/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/7a2d60707fd5a04d7a2bd479c0cabaef/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

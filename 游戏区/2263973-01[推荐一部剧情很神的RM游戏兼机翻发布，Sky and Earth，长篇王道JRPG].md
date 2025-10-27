@@ -801,3 +801,11 @@ https://www.freem.ne.jp/win/game/25738
 忘 ...</blockquote>
 一开始打普通，第1章结束后想慢慢玩改成了困难，确实稍微难了一点，不吃药敞开了用法术会在中途魔法耗完进退两难或者遇到异变敌人后不能全力投入，后来发现魔法其实可以零成本恢复后又变成了欢乐的全程自动清怪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星夜月  
+##### 67#       发表于 2025-10-27 22:59
+
+才试个开头几章，比想象中好，一堆3a大作没玩，先玩着这个了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
