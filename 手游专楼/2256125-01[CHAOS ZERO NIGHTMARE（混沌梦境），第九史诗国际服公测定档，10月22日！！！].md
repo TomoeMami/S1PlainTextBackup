@@ -2073,3 +2073,30 @@ ai抽卡动画，ai三四星，太丑陋了
 啊，我想问的是队友配置，感觉都不太好配合</blockquote>
 当你需要上t的时候就已经是刚需了，无所谓配队。狗t本身也不吃配队，没啥要配合的，就单纯挨打反击人
 
+
+*****
+
+####  远野乙姬  
+##### 207#       发表于 2025-10-27 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634776&amp;ptid=2256125" target="_blank">钟于123 发表于 2025-10-27 19:28</a>
+当你需要上t的时候就已经是刚需了，无所谓配队。狗t本身也不吃配队，没啥要配合的，就单纯挨打反击人 ...</blockquote>
+她群体脆弱还是蛮屌的吧，官方不是给了配小春
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tvfxqalways5  
+##### 208#       发表于 2025-10-27 20:10
+
+练哪6个40级啊？2队怎么组？
+
+<img src="https://img.stage1st.com/forum/202510/27/201008sklk8y9jz8n5kcp3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251027_195056_com.smilegate.chaoszero.stove.google.jpg</strong> (543.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-27 20:10 上传
+
