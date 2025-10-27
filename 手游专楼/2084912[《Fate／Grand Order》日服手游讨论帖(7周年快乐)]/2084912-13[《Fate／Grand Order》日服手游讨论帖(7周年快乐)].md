@@ -1718,3 +1718,25 @@ md我千石一宝，中间还歪了个奥，太jb心痛了
 
 卡面不是基多拉太好了
 
+
+*****
+
+####  岸浪白野  
+##### 18547#       发表于 2025-10-27 17:41
+
+宝具动画有三头龙出现还是有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过开头的鲜血浴缸倒是梦回龙娘那张插画<img src="https://p.sda1.dev/28/c711f098d5ba3306fd95731b8fe6aaf9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18548#       发表于 2025-10-27 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634271&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-10-27 17:31</a>
+
+卧槽，是小梅林
+
+卡面不是基多拉太好了</blockquote>
+这哪儿是小梅林，这是大家梦寐以求的用完就快速送走的超级梅林
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
