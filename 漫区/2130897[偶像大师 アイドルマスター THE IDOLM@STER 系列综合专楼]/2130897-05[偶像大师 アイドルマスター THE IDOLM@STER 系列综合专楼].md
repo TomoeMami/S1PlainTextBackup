@@ -220,3 +220,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  殿珣  
+##### 7196#       发表于 2025-10-27 10:58
+
+<img src="https://p.sda1.dev/28/713a844c45f7d330c10a79c6008656a5/image.jpg" referrerpolicy="no-referrer">
+儿力✖️美琴
+队内关系好不好，看社交网络的合影一看便知啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+丫丫和紫月的合影都蛮公式的。
+最好的一看就是水组和迷光<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
