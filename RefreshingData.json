@@ -1143,12 +1143,12 @@
     "update": false
   },
   "2052401": {
-    "totalreply": 1413,
+    "totalreply": 1414,
     "title": "[这种败坏魔王军形象的部门]",
     "newtitle": "[这种败坏魔王军形象的部门]",
-    "lastedit": 1760938331,
+    "lastedit": 1761574927,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2064739": {
@@ -4955,7 +4955,7 @@
     "newtitle": "[月计新作limbus company第二赛季来啦]",
     "lastedit": 1761315853,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2123311": {
@@ -8838,12 +8838,12 @@
     "update": false
   },
   "2186920": {
-    "totalreply": 858,
+    "totalreply": 859,
     "title": "[【创1】全网最麻辣的游戏《地下城与勇士：创新世纪》综合讨论楼，手游NGスレ]",
     "newtitle": "[【创1】全网最麻辣的游戏《地下城与勇士：创新世纪》综合讨论楼，「SAO」再临スレ]",
-    "lastedit": 1760151377,
+    "lastedit": 1761575177,
     "category": "手游战斗",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2186973": {
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2196876": {
-    "totalreply": 4430,
+    "totalreply": 4431,
     "title": "[空之轨迹1st重制公开！2025年全球同步发售，登录ns／ps／pc!]",
     "newtitle": "[空之轨迹1st重制公开！2025.9.19全球同步发售，登录ns／ns2／ps5／pc!]",
-    "lastedit": 1761573613,
+    "lastedit": 1761574929,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11997,10 +11997,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 3274,
+    "totalreply": 3275,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 10.21「促融共竞#2」&amp;三丽鸥二期(本楼含YJWL动态交流)]",
-    "lastedit": 1761573489,
+    "lastedit": 1761574813,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2263615": {
-    "totalreply": 1361,
+    "totalreply": 1362,
     "title": "[今天揭晓谁是日本下一任首相]",
     "newtitle": "[高市早苗正式担任日本首相！自维保参N右翼大集结]",
-    "lastedit": 1761573974,
+    "lastedit": 1761574810,
     "category": "外野",
     "active": true,
     "update": false
@@ -12741,15 +12741,6 @@
     "lastedit": 1761388208,
     "category": "漫区",
     "active": true,
-    "update": false
-  },
-  "2104089": {
-    "totalreply": 211,
-    "title": "[【汉化专楼】《吸血鬼避世血族》主体测试完成，招校对]",
-    "newtitle": "[【汉化专楼】《吸血鬼避世血族》主体测试完成，招校对]",
-    "lastedit": 1760365099,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2263876": {
@@ -14796,10 +14787,10 @@
     "update": false
   },
   "2264778": {
-    "totalreply": 774,
+    "totalreply": 775,
     "title": "[《逃离鸭科夫》这游戏真不错吧]",
     "newtitle": "[《逃离鸭科夫》这游戏真不错吧]",
-    "lastedit": 1761574327,
+    "lastedit": 1761575288,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15597,10 +15588,10 @@
     "update": false
   },
   "2265173": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[10月破千遂愿，年底会破1200吗]",
     "newtitle": "[10月破千遂愿，年底会破1200吗]",
-    "lastedit": 1761574572,
+    "lastedit": 1761575179,
     "category": "外野",
     "active": true,
     "update": false
@@ -16137,10 +16128,10 @@
     "update": false
   },
   "2265409": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[如果被小登呛「你这辈子也就这样了」你会怎么办？]",
     "newtitle": "[如果被小登呛「你这辈子也就这样了」你会怎么办？]",
-    "lastedit": 1761473413,
+    "lastedit": 1761575176,
     "category": "外野",
     "active": true,
     "update": false
@@ -16740,10 +16731,10 @@
     "update": false
   },
   "2265546": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[说起来回合制（比如战棋类）能否做＂搜打撤＂？]",
     "newtitle": "[说起来回合制（比如战棋类）能否做＂搜打撤＂？]",
-    "lastedit": 1761573254,
+    "lastedit": 1761575290,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16776,19 +16767,19 @@
     "update": false
   },
   "2265644": {
-    "totalreply": 176,
+    "totalreply": 178,
     "title": "[美海军舰载机在南海坠落]",
     "newtitle": "[美海军舰载机在南海坠落]",
-    "lastedit": 1761574572,
+    "lastedit": 1761575178,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2265628": {
-    "totalreply": 78,
+    "totalreply": 79,
     "title": "[痛了个猛男粉的车，太羞耻了]",
     "newtitle": "[痛了个猛男粉的车，太羞耻了]",
-    "lastedit": 1761573979,
+    "lastedit": 1761574813,
     "category": "外野",
     "active": true,
     "update": false
@@ -17010,10 +17001,10 @@
     "update": false
   },
   "2265714": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[也别中老年国产货不行刻板印象]",
     "newtitle": "[也别中老年国产货不行刻板印象]",
-    "lastedit": 1761573012,
+    "lastedit": 1761575176,
     "category": "外野",
     "active": true,
     "update": false
