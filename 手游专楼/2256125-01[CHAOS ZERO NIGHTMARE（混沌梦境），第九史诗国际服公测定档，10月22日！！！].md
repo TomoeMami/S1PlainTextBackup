@@ -1922,3 +1922,16 @@ ai抽卡动画，ai三四星，太丑陋了
 
 听说很肝，日常20分钟能完成吗
 
+
+*****
+
+####  stonego  
+##### 194#       发表于 2025-10-27 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68631030&amp;ptid=2256125" target="_blank">LMBS 发表于 2025-10-27 09:20</a>
+
+听说很肝，日常20分钟能完成吗</blockquote>
+不打肉鸽，一天的自然回复体力5分钟就刷完了，加上二游标配的家园和好感系统，最多也就10分钟。
+
+当然，上头刷存档的话，24h不够你肝的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
