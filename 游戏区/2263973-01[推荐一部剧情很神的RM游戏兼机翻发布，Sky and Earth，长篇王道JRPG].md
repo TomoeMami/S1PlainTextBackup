@@ -757,3 +757,17 @@ https://www.freem.ne.jp/win/game/25738
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">沃柑 打到第三章怎么入队了个雪豹小男孩 刚从数码宝贝那过来应激了
 
+
+*****
+
+####  永远的访客  
+##### 64#       发表于 2025-10-27 09:49
+
+刚到第3章，好玩归好玩，有些缺点也实在难受
+
+-怪物种类少（？），掉落少，每个区域除了箱子只想快速到终点见boss
+
+-打野怪为了节约魔力抠抠索索，结果发现防御就能自动回魔，于是开始一路自动，快用完了找个战斗摸鱼补回来，节奏一塌糊涂，不如做成战后自动回复完事，而且已经习惯战后一键治疗了
+
+-人物太多，图鉴要是配人物头像就好了，翻过的那些书也应该自动有个位置被保存，很多线索和伏笔都是很久以前就给出了却完全不记得了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
