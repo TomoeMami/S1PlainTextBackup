@@ -25,3 +25,13 @@
 
 忍具没继承这二周目不好打啊……
 
+
+*****
+
+####  术士q  
+##### 19761#       发表于 2025-10-27 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68633638&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2025-10-27 15:52</a>
+忍具没继承这二周目不好打啊……</blockquote>
+无所谓，反正咩基本上都是弹刀打的，问题不大(
+
