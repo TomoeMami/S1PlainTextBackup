@@ -1838,3 +1838,28 @@ NMD你们这些五星拐能不能都去重新进修
 然后跟妈龙娘塞一起（带点数加成+点满1技能就行），就可以打穿这个311了，不放心的话4号位再赛一个拐
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18557#       发表于 2025-10-27 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634586&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-10-27 18:35</a>
+
+太离谱了艹
+
+我也要喊妈妈了</blockquote>
+我们红卡真是太有操作了.JPG
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18558#       发表于 2025-10-27 18:44
+
+龙妈三技能自残简直具有划时代意义，以前需要带嘲讽礼装实现换拐的时候，哪怕是角色厨有时也恨不得三破70级，生怕生命值过高打不死没法下场换人。
+
+现在好了，即便我给龙妈喂到120级，上完buff一开技能，该退场就退场，毫不含糊。
+
+这就是母爱吗，怎么有种自惭形秽的感觉...
+

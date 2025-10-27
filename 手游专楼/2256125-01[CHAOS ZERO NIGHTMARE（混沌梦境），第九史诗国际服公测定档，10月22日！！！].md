@@ -2018,3 +2018,16 @@ ai抽卡动画，ai三四星，太丑陋了
 还是搞不懂存档容量和卡牌灵光删除以及崩溃次数之类怎么计算的，而且如果是辅助卡的话留下少量牌，分比较低 ...</blockquote>
 因为系统只会通过你单张卡质量来算法而不会考虑卡组运作和联动之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有时候低分也能出绝世好档的
 
+
+*****
+
+####  钟于123  
+##### 203#       发表于 2025-10-27 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68632537&amp;ptid=2256125" target="_blank">叩叩叩 发表于 2025-10-27 12:58</a>
+
+冰狗有啥刷存档配置吗，梅林刷的差不多了，想给冰狗刷一下，感觉打起来好难受，道中碰到那个要破盾才跑的这 ...</blockquote>
+狗t刚需一个蓝饰品（都是肉鸽局内装备），每回合直接使用手中的一张主导牌（后面抽上来的不算），有蓝防具每回合反击2更好。
+
+卡组最好有个2费冰拳灵光变群攻，剩下的就拿点中立删点牌差不多了。
+
