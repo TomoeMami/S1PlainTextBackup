@@ -788,3 +788,16 @@ https://www.freem.ne.jp/win/game/25738
 
 翻的书得到的信息没有自动保存这是业界通病了，好多游戏都想要这功能<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 66#       发表于 2025-10-27 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68631482&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-10-27 10:20</a>
+
+你打的什么难度，低难度就该一路自动的，反正剧情BOSS前都有恢复点，也就疯狂敌人面前需要注意一下魔力
+
+忘 ...</blockquote>
+一开始打普通，第1章结束后想慢慢玩改成了困难，确实稍微难了一点，不吃药敞开了用法术会在中途魔法耗完进退两难或者遇到异变敌人后不能全力投入，后来发现魔法其实可以零成本恢复后又变成了欢乐的全程自动清怪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
