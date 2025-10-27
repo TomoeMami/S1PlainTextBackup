@@ -2008,3 +2008,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 还是搞不懂存档容量和卡牌灵光删除以及崩溃次数之类怎么计算的，而且如果是辅助卡的话留下少量牌，分比较低却很好用，不太好评价啊
 
+
+*****
+
+####  伊布桑  
+##### 202#       发表于 2025-10-27 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68632698&amp;ptid=2256125" target="_blank">wsqxz 发表于 2025-10-27 13:30</a>
+还是搞不懂存档容量和卡牌灵光删除以及崩溃次数之类怎么计算的，而且如果是辅助卡的话留下少量牌，分比较低 ...</blockquote>
+因为系统只会通过你单张卡质量来算法而不会考虑卡组运作和联动之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有时候低分也能出绝世好档的
+
