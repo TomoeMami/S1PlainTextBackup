@@ -825,3 +825,13 @@ https://www.freem.ne.jp/win/game/25738
 
 通关了，感谢汉化，真的是款好游戏，看着后日谈每个角色都幸福的生活着，眼睛要尿尿了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  InfiniteGyre  
+##### 70#       发表于 2025-10-28 00:15
+
+打小怪其实没啥意义吧，素材可以买，开图鉴不需要打倒，攒tp一般BOSS战开头会清空，也就是刷钱刷经验和给疯狂敌人攒tp了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
