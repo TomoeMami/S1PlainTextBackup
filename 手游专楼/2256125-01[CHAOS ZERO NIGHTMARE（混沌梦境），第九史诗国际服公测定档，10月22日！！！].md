@@ -2051,3 +2051,14 @@ ai抽卡动画，ai三四星，太丑陋了
 
 来源：【卡厄思梦境】公测全职业伙伴分析推荐，底层BUFF机制讲解】 [https://www.bilibili.com/video/B ... f3de4d485e14938a566](https://www.bilibili.com/video/BV19es7zJEhD/?share_source=copy_web&amp;vd_source=b74c3f024a94af3de4d485e14938a566)
 
+
+*****
+
+####  叩叩叩  
+##### 205#       发表于 2025-10-27 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634619&amp;ptid=2256125" target="_blank">钟于123 发表于 2025-10-27 18:44</a>
+
+狗t刚需一个蓝饰品（都是肉鸽局内装备），每回合直接使用手中的一张主导牌（后面抽上来的不算），有蓝防 ...</blockquote>
+啊，我想问的是队友配置，感觉都不太好配合
+
