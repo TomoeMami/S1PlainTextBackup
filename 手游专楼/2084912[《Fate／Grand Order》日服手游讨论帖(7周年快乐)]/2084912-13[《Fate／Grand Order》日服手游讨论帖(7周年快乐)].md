@@ -1902,3 +1902,11 @@ NMD你们这些五星拐能不能都去重新进修
 欧！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧个毛啊
 
+
+*****
+
+####  森兰丸  
+##### 18563#       发表于 2025-10-28 04:52
+
+窝巢送的这4星强度爆表啊...螺旋社什么时候这么大方了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
