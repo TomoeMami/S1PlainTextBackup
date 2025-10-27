@@ -1873,3 +1873,32 @@ NMD你们这些五星拐能不能都去重新进修
 
 不愧是完结篇
 
+
+*****
+
+####  qixinno2  
+##### 18560#       发表于 2025-10-27 19:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩FGO用红卡就行了
+
+
+*****
+
+####  alucardcz  
+##### 18561#       发表于 2025-10-27 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634742&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-27 19:18</a>
+
+玩FGO用红卡就行了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！
+
+*****
+
+####  qixinno2  
+##### 18562#       发表于 2025-10-27 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634756&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-27 19:22</a>
+
+欧！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧个毛啊
+
