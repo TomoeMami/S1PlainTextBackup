@@ -1740,3 +1740,27 @@ md我千石一宝，中间还歪了个奥，太jb心痛了
 这哪儿是小梅林，这是大家梦寐以求的用完就快速送走的超级梅林
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18549#       发表于 2025-10-27 17:59
+
+还行，开开心心的就完结了，结尾还有些生草的小细节
+
+只能说新选组还是太拉了，导致场面非常绷不住
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 18550#       发表于 2025-10-27 18:02
+
+<blockquote>exiaexa 发表于 2025-10-27 17:41
+这哪儿是小梅林，这是大家梦寐以求的用完就快速送走的超级梅林
+
+搞不好还能跑去跟水梣混一桌
+
+</blockquote>
+我擦，用了下直接自爆了，是我保守了
+
