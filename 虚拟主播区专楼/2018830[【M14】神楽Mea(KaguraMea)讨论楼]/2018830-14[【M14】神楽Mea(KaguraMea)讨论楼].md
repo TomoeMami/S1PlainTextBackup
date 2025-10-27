@@ -35,3 +35,14 @@
 忍具没继承这二周目不好打啊……</blockquote>
 无所谓，反正咩基本上都是弹刀打的，问题不大(
 
+
+*****
+
+####  古战场亡魂  
+##### 19762#       发表于 2025-10-27 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68633784&amp;ptid=2018830" target="_blank">术士q 发表于 2025-10-27 16:16</a>
+
+无所谓，反正咩基本上都是弹刀打的，问题不大(</blockquote>
+是问题不大，被两只鸡干掉的狼……
+
