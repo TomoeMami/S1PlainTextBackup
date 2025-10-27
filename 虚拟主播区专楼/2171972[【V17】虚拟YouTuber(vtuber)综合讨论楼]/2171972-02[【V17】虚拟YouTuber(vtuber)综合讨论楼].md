@@ -30,3 +30,11 @@
 
 但对于你虹这批vta之后引进来的粉丝来说大概大部分的老liver在他们眼里都是这人谁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 1558#       发表于 2025-10-27 19:48
+
+nrk是什么咖位又不是不知道，说句难听的，除了那些彩虹必须死的公司黑粉，哪还有人理这事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
