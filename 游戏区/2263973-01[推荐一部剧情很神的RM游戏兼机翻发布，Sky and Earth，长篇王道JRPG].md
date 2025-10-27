@@ -771,3 +771,20 @@ https://www.freem.ne.jp/win/game/25738
 
 -人物太多，图鉴要是配人物头像就好了，翻过的那些书也应该自动有个位置被保存，很多线索和伏笔都是很久以前就给出了却完全不记得了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 65#         楼主| 发表于 2025-10-27 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68631256&amp;ptid=2263973" target="_blank">永远的访客 发表于 2025-10-27 09:49</a>
+
+刚到第3章，好玩归好玩，有些缺点也实在难受
+
+-怪物种类少（？），掉落少，每个区域除了箱子只想快速到终点 ...</blockquote>
+你打的什么难度，低难度就该一路自动的，反正剧情BOSS前都有恢复点，也就疯狂敌人面前需要注意一下魔力
+
+忘记的主要是那些狩魔刃吧？打到后面差不多就能记住了，那些人还是有些高光的
+
+翻的书得到的信息没有自动保存这是业界通病了，好多游戏都想要这功能<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

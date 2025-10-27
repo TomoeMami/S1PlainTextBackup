@@ -201,3 +201,22 @@
 这集搁到以前就该是nana回忆完拿出强化玩具二段变身 ...</blockquote>
 强化，没有啦，再过两周新女人情报都出来了，旧女人可以抛弃了
 
+
+*****
+
+####  pokemon最爱  
+##### 1358#       发表于 2025-10-27 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68629950&amp;ptid=2208663" target="_blank">leleq 发表于 2025-10-26 22:35</a>
+
+怕鬼这事以前一般都是蓝紫来干这次轮到粉主了
+
+瓜达是吧
+
+这集搁到以前就该是nana回忆完拿出强化玩具二段变身 ...</blockquote>
+一哥、美幸、未来：被开除粉主籍了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+夏海皇&amp;空少侠：好吧我们确实不是粉主<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+主Q怕鬼这事以前也不是没有，主要还是为了反差萌的设定<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
