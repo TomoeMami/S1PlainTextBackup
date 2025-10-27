@@ -220,3 +220,13 @@
 
 主Q怕鬼这事以前也不是没有，主要还是为了反差萌的设定<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 1359#       发表于 2025-10-27 11:59
+
+呃呃，怎么还有男q的事啊
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
