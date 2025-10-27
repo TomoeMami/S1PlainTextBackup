@@ -2031,3 +2031,23 @@ ai抽卡动画，ai三四星，太丑陋了
 
 卡组最好有个2费冰拳灵光变群攻，剩下的就拿点中立删点牌差不多了。
 
+
+*****
+
+####  钟于123  
+##### 204#       发表于 2025-10-27 18:50
+
+中文Wiki：[https://www.gamekee.com/czn](https://www.gamekee.com/czn)
+
+乘区
+
+<img src="https://img.stage1st.com/forum/202510/27/184914bj5zj9i2qjdmttdm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-27 18:49 上传
+
+来源：【卡厄思梦境】公测全职业伙伴分析推荐，底层BUFF机制讲解】 [https://www.bilibili.com/video/B ... f3de4d485e14938a566](https://www.bilibili.com/video/BV19es7zJEhD/?share_source=copy_web&amp;vd_source=b74c3f024a94af3de4d485e14938a566)
+
