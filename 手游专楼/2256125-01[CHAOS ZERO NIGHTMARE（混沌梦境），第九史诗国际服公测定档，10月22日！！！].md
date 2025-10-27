@@ -2153,3 +2153,27 @@ ai抽卡动画，ai三四星，太丑陋了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  三谷歩夢  
+##### 213#       发表于 2025-10-28 01:49
+
+<img src="https://img.stage1st.com/forum/202510/28/014600xqwbgmdyd4qbnb0t.jpg" referrerpolicy="no-referrer">
+
+<strong>20251028014507.jpg</strong> (98.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-28 01:46 上传
+
+<img src="https://img.stage1st.com/forum/202510/28/014600tey26yytz4ynn6sg.jpg" referrerpolicy="no-referrer">
+
+<strong>20251028014525.jpg</strong> (87.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-28 01:46 上传
+
+整了套暴雨梨花针，一回合叠几十个dot，还挺好玩的，可惜这游戏没有引爆
+
