@@ -33,3 +33,12 @@ Github搜了一下，把插件域名换了解决了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  pgain2004  
+##### 104#       发表于 2025-10-27 18:30
+
+https://wotaku.wiki/guides/ext/mihon#video-guides
+放个仓库收集页面，含漫画和动画
+

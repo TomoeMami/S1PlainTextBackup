@@ -1774,3 +1774,67 @@ md我千石一宝，中间还歪了个奥，太jb心痛了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">90++ 所长依然轻松过  说起来我拐除了孔明。全都15羁绊了。。还有未来马！
 
+
+*****
+
+####  exiaexa  
+##### 18552#       发表于 2025-10-27 18:29
+
+不是，这妈龙娘真有说法啊
+
+羁绊李庄是退场时全队充30
+
+NMD你们这些五星拐能不能都去重新进修
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 18553#       发表于 2025-10-27 18:31
+
+终焉龙娘宝具里的三头龙拉远镜头就没关卡里那么惊悚了，可以接受。
+
+强度是真离谱，自爆拐，可能制作组想把竞速玩家从换人服中解放出来吧。鹤小姐水小黑终龙娘，确实没必要用衣服换人了。
+
+话说万圣龙娘真不交代一下吗，不出灵衣是要变成卫星从者吗...
+
+*****
+
+####  hououmon  
+##### 18554#       发表于 2025-10-27 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634574&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-10-27 18:31</a>
+
+终焉龙娘宝具里的三头龙拉远镜头就没关卡里那么惊悚了，可以接受。
+
+强度是真离谱，自爆拐，可能制作组想把 ...</blockquote>
+因为重画了啊，跟boss不是同一套，boss那套模组太丑了，直接用这套多好
+
+*****
+
+####  angelooo  
+##### 18555#       发表于 2025-10-27 18:35
+
+<blockquote>exiaexa 发表于 2025-10-27 18:29
+不是，这妈龙娘真有说法啊
+
+羁绊李庄是退场时全队充30
+
+</blockquote>
+太离谱了艹
+
+我也要喊妈妈了
+
+*****
+
+####  exiaexa  
+##### 18556#       发表于 2025-10-27 18:35
+
+如果你有超级枪龙娘的话，哪怕只有1宝
+
+你去枪阶再抓一个超级枪龙娘，哪怕只有1宝
+
+然后跟妈龙娘塞一起（带点数加成+点满1技能就行），就可以打穿这个311了，不放心的话4号位再赛一个拐
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
