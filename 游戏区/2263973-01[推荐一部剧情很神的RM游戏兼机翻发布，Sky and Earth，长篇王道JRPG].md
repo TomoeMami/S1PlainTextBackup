@@ -817,3 +817,11 @@ https://www.freem.ne.jp/win/game/25738
 
 这游戏能看历史对话么
 
+
+*****
+
+####  skyfaker305  
+##### 69#       发表于 2025-10-28 00:06
+
+通关了，感谢汉化，真的是款好游戏，看着后日谈每个角色都幸福的生活着，眼睛要尿尿了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
