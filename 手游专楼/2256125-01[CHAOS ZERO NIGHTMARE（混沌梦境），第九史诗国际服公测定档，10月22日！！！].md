@@ -2277,3 +2277,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SL这种对玩家有利的倒是改的飞快，还好我把主力材料都SL刷了一遍了
 
+
+*****
+
+####  orangee  
+##### 224#       发表于 2025-10-28 16:07
+
+送了俩体力药，今天仍然刷不出来六张40的礼装<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
