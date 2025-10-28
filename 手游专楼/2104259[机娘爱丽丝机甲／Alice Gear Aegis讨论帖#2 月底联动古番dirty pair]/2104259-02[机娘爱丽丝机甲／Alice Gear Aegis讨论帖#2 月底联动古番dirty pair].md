@@ -133,3 +133,11 @@ se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">装备换色就这？
 
+
+*****
+
+####  wilkyway  
+##### 1727#       发表于 2025-10-28 17:59
+
+不是亚马达这逼派生谁设计的啊 街霸两帧精防都没这么难按<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
