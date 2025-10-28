@@ -2246,3 +2246,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 我刚练的女主就被削了
 
+
+*****
+
+####  三谷歩夢  
+##### 221#       发表于 2025-10-28 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68638166&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2025-10-28 13:11</a>
+我刚练的女主就被削了</blockquote>
+无所谓的，女主不靠这个bug打伤害
+
