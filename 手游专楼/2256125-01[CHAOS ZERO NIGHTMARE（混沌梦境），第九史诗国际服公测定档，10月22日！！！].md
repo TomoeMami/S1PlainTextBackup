@@ -2269,3 +2269,11 @@ ai抽卡动画，ai三四星，太丑陋了
 —— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">壮壮该用就用，别老捏着，捏的越多嘎的越快
 
+
+*****
+
+####  叩叩叩  
+##### 223#       发表于 2025-10-28 14:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SL这种对玩家有利的倒是改的飞快，还好我把主力材料都SL刷了一遍了
+
