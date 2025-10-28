@@ -454,3 +454,26 @@ https://forum.gamer.com.tw/C.php?bsn=70180&amp;snA=1912
 
 afk几个月回坑，伸手问下忍者洞boss怎么打<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 546#       发表于 2025-10-28 18:58
+
+30号更新3.5G 是不是把第四奈落塞进来了
+
+*****
+
+####  茄子自走炮  
+##### 547#       发表于 2025-10-28 19:02
+
+<blockquote>toblkr 发表于 2025-10-28 17:57
+afk几个月回坑，伸手问下忍者洞boss怎么打</blockquote>
+前排回避拉满 最好180左右
+
+有忍者带忍者幻雾降下命中率
+
+boss前排中间那个掉血了会隐身 需要法术来解除
+
+剩下就是roll脸少吃暴击
+
