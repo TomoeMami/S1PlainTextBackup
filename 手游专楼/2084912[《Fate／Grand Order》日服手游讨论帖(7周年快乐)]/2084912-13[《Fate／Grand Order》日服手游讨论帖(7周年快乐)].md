@@ -1910,3 +1910,41 @@ NMD你们这些五星拐能不能都去重新进修
 
 窝巢送的这4星强度爆表啊...螺旋社什么时候这么大方了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18564#       发表于 2025-10-27 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634742&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-10-27 19:18</a>
+
+玩FGO用红卡就行了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！
+
+*****
+
+####  qixinno2  
+##### 18565#       发表于 2025-10-27 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68634756&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-10-27 19:22</a>
+
+欧！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧个毛啊
+
+*****
+
+####  森兰丸  
+##### 18566#       发表于 2025-10-28 04:52
+
+窝巢送的这4星强度爆表啊...螺旋社什么时候这么大方了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 18567#       发表于 2025-10-28 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68635954&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-28 04:52</a>
+
+窝巢送的这4星强度爆表啊...螺旋社什么时候这么大方了</blockquote>
+临终关怀嘛，反正就去年下半年开始这从者的强度，我是真的相信fgo大概到第二部就为止了，再有后续估计也是新作了。
+
