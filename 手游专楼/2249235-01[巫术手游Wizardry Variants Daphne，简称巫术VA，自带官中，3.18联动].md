@@ -438,3 +438,11 @@ https://forum.gamer.com.tw/C.php?bsn=70180&amp;snA=1912
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  茄子自走炮  
+##### 544#       发表于 2025-10-28 15:48
+
+没怎么刷悬赏马上奖励刷新，有悬赏速刷攻略吗
+
