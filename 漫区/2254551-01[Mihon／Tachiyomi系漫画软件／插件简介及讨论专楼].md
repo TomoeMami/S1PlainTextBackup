@@ -42,3 +42,13 @@ Github搜了一下，把插件域名换了解决了
 https://wotaku.wiki/guides/ext/mihon#video-guides
 放个仓库收集页面，含漫画和动画
 
+
+*****
+
+####  jackyhuang  
+##### 105#       发表于 2025-10-28 11:52
+
+拷贝半年上不去了，换域名换插件**都试过了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
