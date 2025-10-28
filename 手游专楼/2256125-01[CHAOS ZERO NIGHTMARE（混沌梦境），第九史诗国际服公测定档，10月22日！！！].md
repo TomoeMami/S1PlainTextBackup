@@ -2256,3 +2256,16 @@ ai抽卡动画，ai三四星，太丑陋了
 我刚练的女主就被削了</blockquote>
 无所谓的，女主不靠这个bug打伤害
 
+
+*****
+
+####  patema  
+##### 222#       发表于 2025-10-28 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68637944&amp;ptid=2256125" target="_blank">远野乙姬 发表于 2025-10-28 12:37</a>
+
+不出治疗灵光的情况快要顶不住了
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">壮壮该用就用，别老捏着，捏的越多嘎的越快
+
