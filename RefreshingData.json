@@ -1508,7 +1508,7 @@
     "newtitle": "[EPIC每周白嫖指南：Fear the Spotlight]",
     "lastedit": 1761414130,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1861134": {
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 2925,
+    "totalreply": 2926,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1761672968,
+    "lastedit": 1761673211,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11772,10 +11772,10 @@
     "update": false
   },
   "2257148": {
-    "totalreply": 1373,
+    "totalreply": 1374,
     "title": "[战地新作正式定名战地6，揭晓预告片7月24日发布]",
     "newtitle": "[【战地，崛起！1077881202交流群】战地6公测结束，10月10日发售]",
-    "lastedit": 1761671648,
+    "lastedit": 1761673568,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12168,10 +12168,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 11558,
+    "totalreply": 11562,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1761672850,
+    "lastedit": 1761673211,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1761668408,
+    "lastedit": 1761673447,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12627,12 +12627,12 @@
     "update": false
   },
   "2194542": {
-    "totalreply": 242,
+    "totalreply": 243,
     "title": "[弹珠汽水瓶里的千岁同学 TV动画化 2025年]",
     "newtitle": "[弹珠汽水瓶里的千岁同学 TV动画化 2025年]",
-    "lastedit": 1761308169,
+    "lastedit": 1761673211,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2246539": {
@@ -13028,15 +13028,6 @@
     "newtitle": "[宝可梦G10及后续作品泄露内容讨论]",
     "lastedit": 1760677574,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2264362": {
-    "totalreply": 115,
-    "title": "[适合发家族群的视频：多年后再看转基因就是一场笑话]",
-    "newtitle": "[适合发家族群的视频：多年后再看转基因就是一场笑话]",
-    "lastedit": 1760463976,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -14355,10 +14346,10 @@
     "update": false
   },
   "2264778": {
-    "totalreply": 908,
+    "totalreply": 909,
     "title": "[《逃离鸭科夫》这游戏真不错吧]",
     "newtitle": "[《逃离鸭科夫》这游戏真不错吧]",
-    "lastedit": 1761672610,
+    "lastedit": 1761673569,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16704,10 +16695,10 @@
     "update": false
   },
   "2265743": {
-    "totalreply": 121,
+    "totalreply": 123,
     "title": "[静安面包房全关了，其他也快了]",
     "newtitle": "[静安面包房全关了，其他也快了]",
-    "lastedit": 1761669729,
+    "lastedit": 1761673686,
     "category": "外野",
     "active": true,
     "update": false
@@ -16924,6 +16915,15 @@
     "title": "[口罩库存是清光了吗？]",
     "newtitle": "[口罩库存是清光了吗？]",
     "lastedit": 1761673090,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2265755": {
+    "totalreply": 41,
+    "title": "[清野史稿]",
+    "newtitle": "[清野史稿]",
+    "lastedit": 1761673330,
     "category": "外野",
     "active": true,
     "update": false
