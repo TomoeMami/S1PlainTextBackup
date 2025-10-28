@@ -2218,3 +2218,15 @@ ai抽卡动画，ai三四星，太丑陋了
 
 图4困难，  有人神闪，中立，删卡合计超过三个的吗。 我手上的档普通上限是二， 困难上限是三<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  远野乙姬  
+##### 218#       发表于 2025-10-28 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68637589&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-10-28 11:38</a>
+成型之后奶量很大，输出面看着可以无限成长但是角色面板较低，实际伤害也就那样，辅助方面可以和百丽儿配 ...</blockquote>
+不出治疗灵光的情况快要顶不住了
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
