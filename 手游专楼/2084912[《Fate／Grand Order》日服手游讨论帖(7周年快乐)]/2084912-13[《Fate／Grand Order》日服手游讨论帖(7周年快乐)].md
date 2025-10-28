@@ -2000,3 +2000,56 @@ NMD你们这些五星拐能不能都去重新进修
 
 我是感觉蘑菇交出去的可能性不低，从者宇宙开始提地球的事情，这活动出场的几个宇宙从者+阿波罗人设看着已经和本体没多大区别了，搞不好就是内部已经打好地基可以交给别人随便折腾了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 18572#       发表于 2025-10-28 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68637649&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-10-28 11:48</a>
+
+1、小黑从头到尾按着打的只有月神，但是月神早就被二姐和罗宾汉肘爆了，更何况小黑比弓呆后出，并且从来没 ...</blockquote>
+照你这么说这龙娘更没用了，buff量和梅林这种周回都没人用的过时拐持平还要少30群冲，自杀对于刷本来说完全是浪费时间的玩具
+
+*****
+
+####  都谷捻柏  
+##### 18573#       发表于 2025-10-28 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68637751&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-28 12:03</a>
+
+一方面我也是觉得这辣鸡游戏各种迹象都表明了是在往关服的方向上跑
+
+另一方面怎么都不信资本怎么可能就这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主线结束不等于关服吧，继续出新活动新卡呗。
+
+*****
+
+####  都谷捻柏  
+##### 18574#       发表于 2025-10-28 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68638439&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-10-28 14:01</a>
+
+照你这么说这龙娘更没用了，buff量和梅林这种周回都没人用的过时拐持平还要少30群冲，自杀对于刷本来说完 ...</blockquote>
+这卡可以给所长加射程，也相当于降配了。
+
+比如泳8那个血量的本，以前要满配roll个0.94，现在可以降到至少2宝百级。
+
+*****
+
+####  森兰丸  
+##### 18575#       发表于 2025-10-28 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68639027&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-10-28 15:32</a>
+
+主线结束不等于关服吧，继续出新活动新卡呗。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">主线结束了咕嗒不就要回老家和色茄子结婚了么.....还有啥理由留在嘉乐迪
+
+*****
+
+####  岸浪白野  
+##### 18576#       发表于 2025-10-28 16:11
+
+主线第二部结束就结束，但你看着这大方就又讨论这游戏寿命去向问题没必要想这么多该玩玩继续玩，我心念某些联动不还是第二部结束后才有机会，尤其FSF<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有想着大展开新故事这种留给新作很正常，但这游戏不明摆要苟活下去了，别幻想着螺旋社突然某天整个FGO remake  接这游戏班了，早就错过推出remake 的风口了
+
