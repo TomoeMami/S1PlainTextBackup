@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 198487,
+    "totalreply": 198488,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1761666613,
+    "lastedit": 1761667447,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 2918,
+    "totalreply": 2919,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1761666853,
+    "lastedit": 1761667692,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11534,7 +11534,7 @@
     "newtitle": "[小约翰可汗真爱楼（归墟版）]",
     "lastedit": 1761408372,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2163625": {
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2257975": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[《塞尔达无双 封印战记》专楼 2025年冬发售]",
     "newtitle": "[《塞尔达无双 封印战记》2025年11月6日发售 ｜ PV3公布]",
-    "lastedit": 1761662531,
+    "lastedit": 1761667692,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12213,10 +12213,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 1492,
+    "totalreply": 1493,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1761665289,
+    "lastedit": 1761667690,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14373,10 +14373,10 @@
     "update": false
   },
   "2264778": {
-    "totalreply": 896,
+    "totalreply": 898,
     "title": "[《逃离鸭科夫》这游戏真不错吧]",
     "newtitle": "[《逃离鸭科夫》这游戏真不错吧]",
-    "lastedit": 1761667091,
+    "lastedit": 1761667448,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16160,7 +16160,7 @@
     "newtitle": "[我国在氢能源方面的技术储备怎么样啊？]",
     "lastedit": 1761408372,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2265519": {
@@ -16749,10 +16749,10 @@
     "update": false
   },
   "2265779": {
-    "totalreply": 124,
+    "totalreply": 125,
     "title": "[14岁男生被女同学击中左胸后瘫痪]",
     "newtitle": "[14岁男生被女同学击中左胸后瘫痪]",
-    "lastedit": 1761666372,
+    "lastedit": 1761667331,
     "category": "外野",
     "active": true,
     "update": false
@@ -16767,10 +16767,10 @@
     "update": false
   },
   "2265769": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[原则不是免费的。]",
     "newtitle": "[原则不是免费的。]",
-    "lastedit": 1761665059,
+    "lastedit": 1761667568,
     "category": "外野",
     "active": true,
     "update": false
@@ -16803,10 +16803,10 @@
     "update": false
   },
   "2265803": {
-    "totalreply": 150,
+    "totalreply": 151,
     "title": "[整理丈夫电脑，第一次有“是不是嫁错人了”的想法]",
     "newtitle": "[整理丈夫电脑，第一次有“是不是嫁错人了”的想法]",
-    "lastedit": 1761666976,
+    "lastedit": 1761667331,
     "category": "外野",
     "active": true,
     "update": false
@@ -16821,10 +16821,10 @@
     "update": false
   },
   "2265792": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[安史之乱为什么会发生？看了知乎一个回答 感觉怪怪的]",
     "newtitle": "[安史之乱为什么会发生？看了知乎一个回答 感觉怪怪的]",
-    "lastedit": 1761665771,
+    "lastedit": 1761667330,
     "category": "外野",
     "active": true,
     "update": false
@@ -16925,6 +16925,15 @@
     "newtitle": "[你们相信”上火“这个概念吗？]",
     "lastedit": 1761666976,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2063508": {
+    "totalreply": 151,
+    "title": "[王者天下最新回]",
+    "newtitle": "[王者天下最新回]",
+    "lastedit": 1761667574,
+    "category": "漫区",
     "active": true,
     "update": false
   }
