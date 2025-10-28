@@ -494,3 +494,30 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 
 还有中了魅惑之后关游戏大法是不是没用了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mp5  
+##### 549#       发表于 2025-10-28 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68640764&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-10-28 20:45</a>
+没得逃课，还是得做闪避装
+
+还有中了魅惑之后关游戏大法是不是没用了</blockquote>
+可以用三法师后排强行轰过，我过的时候前排最高闪避只有100出头，另外两个不到80
+过程比较痛苦，试了四五次才找到感觉，拉人拉得我人都麻了，打完后全员意志没有一个超过60的，最低一个是0意志强行拉起来<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Flechette  
+##### 550#       发表于 2025-10-28 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68640764&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-10-28 20:45</a>
+
+没得逃课，还是得做闪避装
+
+还有中了魅惑之后关游戏大法是不是没用了</blockquote>
+古城前修掉了，本意是不让邪道凹蝎子女的分，干掉人偶逃课顺手的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+艾娜支线的别离洞窟会出抗混乱抗魅惑的装备，但我不知道第三章主线推到哪才会解锁这个支线
+
