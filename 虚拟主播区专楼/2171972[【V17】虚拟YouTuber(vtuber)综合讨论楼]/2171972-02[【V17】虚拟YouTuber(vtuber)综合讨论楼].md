@@ -38,3 +38,11 @@
 
 nrk是什么咖位又不是不知道，说句难听的，除了那些彩虹必须死的公司黑粉，哪还有人理这事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 1559#       发表于 2025-10-28 19:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">说句难听的，19组大部分都是虹的累赘
+
