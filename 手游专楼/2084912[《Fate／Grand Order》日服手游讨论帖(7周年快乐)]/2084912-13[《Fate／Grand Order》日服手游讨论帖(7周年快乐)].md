@@ -2053,3 +2053,51 @@ NMD你们这些五星拐能不能都去重新进修
 主线第二部结束就结束，但你看着这大方就又讨论这游戏寿命去向问题没必要想这么多该玩玩继续玩，我心念某些联动不还是第二部结束后才有机会，尤其FSF<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 有想着大展开新故事这种留给新作很正常，但这游戏不明摆要苟活下去了，别幻想着螺旋社突然某天整个FGO remake  接这游戏班了，早就错过推出remake 的风口了
 
+
+*****
+
+####  exiaexa  
+##### 18577#       发表于 2025-10-28 16:30
+
+ 本帖最后由 exiaexa 于 2025-10-28 16:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68638439&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-10-28 14:01</a>
+
+照你这么说这龙娘更没用了，buff量和梅林这种周回都没人用的过时拐持平还要少30群冲，自杀对于刷本来说完 ...</blockquote>
+别闹了，这卡对微课是实打实的降配，对氪金姥也是
+
+最典型的就是弓本311，俩超级龙娘+老妈+适配的拐就可以稳定打穿，超级龙娘因为可以叠伊利莎粒子特性，导致双龙的情况下数值非常的离谱，开了树更离谱
+
+而且不用强绑换人，随便选什么红卡输出衣服都行，哪面需要增伤很容易控制
+
+这个是你还可以选择上不上奥伯龙，你换别的就是必须上奥伯龙
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18578#       发表于 2025-10-28 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68639259&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-10-28 16:07</a>
+
+主线结束了咕嗒不就要回老家和色茄子结婚了么.....还有啥理由留在嘉乐迪</blockquote>
+特异点啊，实践证明这吊东西跟迦勒底屁关系没有，时不时就会冒出来一个，随时可以给立香找个班上
+
+对菌鸽鸽只要保证每年出来摸一两个本子就可以继续卖，对作家群来说应该也到了舒适区
+
+2.0整个题材我感觉对他们就属于超纲了，反而是写特异点的时候还比较好玩
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 18579#       发表于 2025-10-28 17:38
+
+回老家也有魔伊联动最后小黑复制人进迦之类的方法，复制小黑依然算活在当下的人类，也没被排外，甚至可以做成可选项让玩家选本人和复制人谁留迦勒底谁回老家，以后的主线和活动都可以像小黑一样照常写，不用再提这事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18580#       发表于 2025-10-28 18:09
+
+估计就是主线完结，然后定期开活动，等没人气了就关服了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
