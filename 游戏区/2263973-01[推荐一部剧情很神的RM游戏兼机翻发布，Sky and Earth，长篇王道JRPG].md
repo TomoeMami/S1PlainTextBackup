@@ -835,3 +835,13 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  shimotsuki14  
+##### 71#       发表于 2025-10-28 11:03
+
+马了，今年玩完DEfanastasis，明年玩这个
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
