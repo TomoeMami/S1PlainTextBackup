@@ -477,3 +477,20 @@ boss前排中间那个掉血了会隐身 需要法术来解除
 
 剩下就是roll脸少吃暴击
 
+
+*****
+
+####  toblkr  
+##### 548#       发表于 2025-10-28 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68640348&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2025-10-28 19:02</a>
+
+前排回避拉满 最好180左右
+
+有忍者带忍者幻雾降下命中率
+
+boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
+没得逃课，还是得做闪避装<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+还有中了魅惑之后关游戏大法是不是没用了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
