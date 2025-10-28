@@ -2177,3 +2177,15 @@ ai抽卡动画，ai三四星，太丑陋了
 
 整了套暴雨梨花针，一回合叠几十个dot，还挺好玩的，可惜这游戏没有引爆
 
+
+*****
+
+####  orangee  
+##### 214#       发表于 2025-10-28 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68635860&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-10-28 01:49</a>
+整了套暴雨梨花针，一回合叠几十个dot，还挺好玩的，可惜这游戏没有引爆 ...</blockquote>
+问下下面这个角色好用么，歪了一个看卡牌一堆好像是个多面手，还没资源练
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
