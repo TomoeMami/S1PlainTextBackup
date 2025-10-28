@@ -1948,3 +1948,55 @@ NMD你们这些五星拐能不能都去重新进修
 窝巢送的这4星强度爆表啊...螺旋社什么时候这么大方了</blockquote>
 临终关怀嘛，反正就去年下半年开始这从者的强度，我是真的相信fgo大概到第二部就为止了，再有后续估计也是新作了。
 
+
+*****
+
+####  yangun22  
+##### 18568#       发表于 2025-10-28 09:25
+
+不是早期送的金时和小黑值班了多少5星单体弓骑啊，不如说因为这两个后面送的倒是收敛很多了
+
+*****
+
+####  exiaexa  
+##### 18569#       发表于 2025-10-28 11:48
+
+ 本帖最后由 exiaexa 于 2025-10-28 12:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68636560&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-10-28 09:25</a>
+
+不是早期送的金时和小黑值班了多少5星单体弓骑啊，不如说因为这两个后面送的倒是收敛很多了 ...</blockquote>
+1、小黑从头到尾按着打的只有月神，但是月神早就被二姐和罗宾汉肘爆了，更何况小黑比弓呆后出，并且从来没有完胜过弓呆，后续一堆人疯狂强化以后直接就查无此人了；
+
+2、金时从来没有打赢过自己的本体，更何况金时之后很快就是拉二和羽蛇神两个超重量级，绿拐直到2.2才落地，你见过起源弹拉二，你见过几个起源弹金时；
+
+说到底这俩这种短期空白称王的，强的根本原因是初期的同阶级五星大多是光炮，一有替代马上就下去了
+
+哪有资格去碰瓷一个不管你氪多少都可以用的拐啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且你要吹骑金时那不如去吹圣诞黑呆毛，这玩意儿才是当时的氪佬带着宝石翁都要硬上的强度，
+
+自带宝具本的含金量，乳船长乳到她出宝具本。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18570#       发表于 2025-10-28 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68636236&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-10-28 08:37</a>
+
+临终关怀嘛，反正就去年下半年开始这从者的强度，我是真的相信fgo大概到第二部就为止了，再有后续估计也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一方面我也是觉得这辣鸡游戏各种迹象都表明了是在往关服的方向上跑
+
+另一方面怎么都不信资本怎么可能就这样放过这棵摇钱树
+
+反正马上也就知道了
+
+*****
+
+####  DARKGRAY  
+##### 18571#       发表于 2025-10-28 12:23
+
+我是感觉蘑菇交出去的可能性不低，从者宇宙开始提地球的事情，这活动出场的几个宇宙从者+阿波罗人设看着已经和本体没多大区别了，搞不好就是内部已经打好地基可以交给别人随便折腾了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
