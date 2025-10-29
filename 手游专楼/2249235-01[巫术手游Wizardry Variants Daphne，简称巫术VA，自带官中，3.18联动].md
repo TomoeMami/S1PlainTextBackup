@@ -580,3 +580,15 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 
 战斗结束结算画面下，获取经验的下面有个绿色的票，那是啥
 
+
+*****
+
+####  藤钢剑姬  
+##### 557#       发表于 2025-10-29 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68644080&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-10-29 14:48</a>
+战斗结束结算画面下，获取经验的下面有个绿色的票，那是啥</blockquote>
+通行证，加经验的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
