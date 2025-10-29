@@ -48,3 +48,23 @@ MyGO!!!!!×Ave Mujica 联合公演「分歧路口，前途漫漫」
 #BanGDream# #MyGO# #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV111yzBcEca](https://www.bilibili.com/video/BV111yzBcEca)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27333#       发表于 2025-10-29 20:08
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/29/200822ekzqlqtnvjjmqjjc.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-29_20-06-20.jpg</strong> (92.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-29 20:08 上传
+
+       [https://t.bilibili.com/1129134878418272281](https://t.bilibili.com/1129134878418272281)
+
+       售票链接：[https://tr.ee/acNTR2Xng3](https://tr.ee/acNTR2Xng3)
+

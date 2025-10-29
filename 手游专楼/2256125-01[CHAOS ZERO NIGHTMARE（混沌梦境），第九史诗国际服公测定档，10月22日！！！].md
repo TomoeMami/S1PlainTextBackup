@@ -2358,3 +2358,11 @@ ai抽卡动画，ai三四星，太丑陋了
 
 怎么感觉前两个星球的核心关底比后面的难<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  abysmal  
+##### 233#       发表于 2025-10-29 20:06
+
+这游戏听说游戏性还不错，那美术和剧情怎么样?
+
