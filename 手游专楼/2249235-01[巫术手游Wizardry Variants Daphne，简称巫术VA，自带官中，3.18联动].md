@@ -560,3 +560,15 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 还有中了魅惑之后关游戏大法是不是没用了</blockquote>
 回避150够用了，另外魅惑那个bug早修了，乖乖做装备吧
 
+
+*****
+
+####  orz100  
+##### 555#       发表于 2025-10-29 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68639133&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2025-10-28 15:48</a>
+没怎么刷悬赏马上奖励刷新，有悬赏速刷攻略吗</blockquote>
+不介意脚本的话就菜刀队前排闪避拉到140+然后脚本挂机蝎子女，挂一天就够换完除了猎犬头之外的东西
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
