@@ -2295,3 +2295,13 @@ ai抽卡动画，ai三四星，太丑陋了
 
 这游戏真可以往搜打撤的方向发展，可惜大框架定死了，除非后续新赛季新玩法
 
+
+*****
+
+####  fireflies  
+##### 226#       发表于 2025-10-29 14:01
+
+尖塔like还是很有趣啊
+
+【卡厄斯梦境富有想象力的构筑仅需三张新手卡就能乱杀】 [https://www.bilibili.com/video/B ... 90bec8984b8489f261c](https://www.bilibili.com/video/BV1hvyrB1ELd/?p=2&amp;share_source=copy_web&amp;vd_source=a38fe25beb0f390bec8984b8489f261c)
+
