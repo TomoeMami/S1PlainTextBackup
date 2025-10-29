@@ -2390,3 +2390,26 @@ ai抽卡动画，ai三四星，太丑陋了
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 236#       发表于 2025-10-29 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68645889&amp;ptid=2256125" target="_blank">abysmal 发表于 2025-10-29 20:06</a>
+
+这游戏听说游戏性还不错，那美术和剧情怎么样?</blockquote>
+美术大量AI，角色立绘方面还行，不算精美但也没到有些人黑的很丑那种程度，用E7的水平来比的话放E7里面算中等的那一档。战斗内的卡牌美术比较灾难，在AI图里也算劣质的那一批，UI和小人动作很流畅
+
+剧情的话，主线一坨，纯过家家，比E7开服那会还差点，角色创伤剧情还行，女主的剧情应该是写得最好的。世界观设定写得不错，肉鸽模式里面各种小故事也还可以
+
+*****
+
+####  三谷歩夢  
+##### 237#       发表于 2025-10-29 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68646112&amp;ptid=2256125" target="_blank">远野乙姬 发表于 2025-10-29 20:58</a>
+
+带卡利佩和小春下本真的不好使…打得太慢了，不知道是我不会用还是有问题，完全没带鼠兔的行云流水，刚才打 ...</blockquote>
+卡4一堆盾怪和士气怪，很吃DPS，DPS越高越好打，小春出不了好灵光的话很麻烦
+
