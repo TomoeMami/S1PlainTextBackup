@@ -1197,12 +1197,12 @@
     "update": false
   },
   "1986197": {
-    "totalreply": 17945,
+    "totalreply": 17946,
     "title": "[ブルーアーカイブ／Blue Archive／蔚蓝檔案 日服2021／2／4中午…]",
     "newtitle": "[ブルーアーカイブ 综合讨论]",
-    "lastedit": 1761312373,
+    "lastedit": 1761757810,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1471785": {
@@ -9369,10 +9369,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 12531,
+    "totalreply": 12532,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1761755533,
+    "lastedit": 1761757930,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 26260,
+    "totalreply": 26261,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1761755287,
+    "lastedit": 1761758172,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 3000,
+    "totalreply": 3002,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1761756256,
+    "lastedit": 1761757809,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12141,10 +12141,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 11843,
+    "totalreply": 11845,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1761756971,
+    "lastedit": 1761758170,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12186,10 +12186,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 1524,
+    "totalreply": 1525,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1761757088,
+    "lastedit": 1761757810,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2265839": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[这巨猿得有多少战斗力？]",
     "newtitle": "[这巨猿得有多少战斗力？]",
-    "lastedit": 1761747618,
+    "lastedit": 1761757933,
     "category": "外野",
     "active": true,
     "update": false
@@ -16812,10 +16812,10 @@
     "update": false
   },
   "2265884": {
-    "totalreply": 94,
+    "totalreply": 95,
     "title": "[【悲报】《怪物猎人：荒野》本财年第二季度仅售出16万套，财年累计销量低于崛起…]",
     "newtitle": "[【悲报】《怪物猎人：荒野》本财年第二季度仅售出16万套，财年累计销量低于崛起…]",
-    "lastedit": 1761755654,
+    "lastedit": 1761758048,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16857,10 +16857,10 @@
     "update": false
   },
   "2265885": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[1300亿基金会、1.4万亿投资、3年实现AGI：OpenAI最新股改和路线图总结]",
     "newtitle": "[1300亿基金会、1.4万亿投资、3年实现AGI：OpenAI最新股改和路线图总结]",
-    "lastedit": 1761757567,
+    "lastedit": 1761757933,
     "category": "外野",
     "active": true,
     "update": false
@@ -16916,6 +16916,15 @@
     "newtitle": "[河狸种田游戏《Timberborn》有人玩了吗（抢先体验已出）]",
     "lastedit": 1761754700,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "1935298": {
+    "totalreply": 431,
+    "title": "[【NSFW】日南mkt利香nico会限讨论贴]",
+    "newtitle": "[【NSFW】日南mkt利香nico会限讨论贴]",
+    "lastedit": 1761757947,
+    "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   }
