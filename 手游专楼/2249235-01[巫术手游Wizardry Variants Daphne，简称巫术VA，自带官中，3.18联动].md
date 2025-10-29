@@ -537,3 +537,26 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 
 前几天开始打开游戏突然说00000034错误，重装app也照样弹。我的手机root了，之前magsik对app排除玩的好好的，本来steam就进不去，这是官方劝退吗
 
+
+*****
+
+####  电脑死机  
+##### 553#       发表于 2025-10-29 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68641223&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-10-28 22:43</a>
+
+远古灵庙那个唤骸脂肪是干嘛用的</blockquote>
+拿光灵庙里面骨头的话可以拿这个刷新一批，对每两周刷新那个无效，刷出来吃也行拿牌子也行，部分sr角色不弱的
+
+*****
+
+####  电脑死机  
+##### 554#       发表于 2025-10-29 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68640764&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-10-28 20:45</a>
+
+没得逃课，还是得做闪避装
+
+还有中了魅惑之后关游戏大法是不是没用了</blockquote>
+回避150够用了，另外魅惑那个bug早修了，乖乖做装备吧
+
