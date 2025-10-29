@@ -845,3 +845,13 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  煌煌其烨  
+##### 72#       发表于 2025-10-29 17:37
+
+已经打到第九章了，这剧情量是真的满，而且水分很少，感觉就我玩到的地方换成轨迹已经可以水成三部的量了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
