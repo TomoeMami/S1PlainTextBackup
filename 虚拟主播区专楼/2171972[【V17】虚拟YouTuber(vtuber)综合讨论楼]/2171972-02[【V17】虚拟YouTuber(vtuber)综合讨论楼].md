@@ -134,3 +134,13 @@ nrk的竞品在vspo……
 不得不回炉重造吧。
 要是能继续推谁愿意把自己之前投入的资源当白费<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1565#       发表于 2025-10-29 18:41
+
+18的黑黑咲唯和19的3bk社长不破之类又不是没继续推
+
+艺人公司肯定不可能给所有人平均分配资源的
+
