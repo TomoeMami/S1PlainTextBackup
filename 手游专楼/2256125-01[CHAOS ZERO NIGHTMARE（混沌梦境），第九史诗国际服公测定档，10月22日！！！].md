@@ -2321,3 +2321,14 @@ ai抽卡动画，ai三四星，太丑陋了
 
 之前开auto时没注意，今天挂1章困难没打过才发现这游戏的自动比我想象中还要弱智，乱出牌都无所谓，但是在4ap满手牌的情况下点了个1费终结牌结束回合真挺变态的吧，这个逻辑到底是怎么写的<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 229#       发表于 2025-10-29 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68644467&amp;ptid=2256125" target="_blank">若流水 发表于 2025-10-29 15:52</a>
+
+之前开auto时没注意，今天挂1章困难没打过才发现这游戏的自动比我想象中还要弱智，乱出牌都无所谓，但是在4 ...</blockquote>
+不带终结牌还好吧，至少不是从左到右用，其他游戏的auto大部分都是哪个亮了点哪个
+
