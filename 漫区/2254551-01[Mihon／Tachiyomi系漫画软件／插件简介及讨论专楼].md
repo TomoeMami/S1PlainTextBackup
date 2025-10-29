@@ -60,3 +60,11 @@ https://wotaku.wiki/guides/ext/mihon#video-guides
 
 好多网站不更新网页版只更新APP版，都爬不到了……
 
+
+*****
+
+####  naiveyan  
+##### 107#       发表于 2025-10-29 14:22
+
+之前再漫画插件出问题全迁移到拷贝，现在拷贝插件出问题再全迁移到再漫画，虽然麻烦但好处是收藏夹不会再丢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
