@@ -2366,3 +2366,15 @@ ai抽卡动画，ai三四星，太丑陋了
 
 这游戏听说游戏性还不错，那美术和剧情怎么样?
 
+
+*****
+
+####  远野乙姬  
+##### 234#       发表于 2025-10-29 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68644467&amp;ptid=2256125" target="_blank">若流水 发表于 2025-10-29 15:52</a>
+之前开auto时没注意，今天挂1章困难没打过才发现这游戏的自动比我想象中还要弱智，乱出牌都无所谓，但是在4 ...</blockquote>
+你这个不够高血压的，我带雷伊自动，每次放点心时间就删我关键牌，什么锚炮，投射器之类
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
