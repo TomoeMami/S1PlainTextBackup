@@ -149,3 +149,16 @@ se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/
 
 换色买了个个四姑的，只有normal腿的，an腿也不能用，这也太拉了。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1729#         楼主| 发表于 2025-10-30 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68649668&amp;ptid=2104259" target="_blank">regular 发表于 2025-10-30 15:04</a>
+
+换色买了个个四姑的，只有normal腿的，an腿也不能用，这也太拉了。</blockquote>
+BUG了，在修（
+
+还有换色，文鸟的非常漂亮，熏子的……………………
+
