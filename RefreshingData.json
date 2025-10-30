@@ -1148,7 +1148,7 @@
     "newtitle": "[这种败坏魔王军形象的部门]",
     "lastedit": 1761574927,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2064739": {
@@ -2736,10 +2736,10 @@
     "update": false
   },
   "2013983": {
-    "totalreply": 2148,
+    "totalreply": 2150,
     "title": "[『鬼灭之刃 游郭篇』完结 &amp; 『锻刀村篇』TV动画化]",
     "newtitle": "[『鬼灭之刃』动画楼 游郭篇／锻刀村篇／柱训练篇 完结 无限城篇 剧场三部作]",
-    "lastedit": 1761833300,
+    "lastedit": 1761834026,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 70066,
+    "totalreply": 70067,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1761833408,
+    "lastedit": 1761834249,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 198781,
+    "totalreply": 198782,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1761833300,
+    "lastedit": 1761834026,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9369,10 +9369,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 12549,
+    "totalreply": 12550,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1761833300,
+    "lastedit": 1761834373,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 14645,
+    "totalreply": 14654,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1761831610,
+    "lastedit": 1761834026,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 10997,
+    "totalreply": 11000,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼／指到秋直!912晚九点!]",
-    "lastedit": 1761830175,
+    "lastedit": 1761834026,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11565,10 +11565,10 @@
     "update": false
   },
   "2252861": {
-    "totalreply": 277,
+    "totalreply": 279,
     "title": "[后宫文／修罗场文讨论楼3.0]",
     "newtitle": "[后宫文／修罗场文讨论楼3.0 0917铸命升途阶段性完结]",
-    "lastedit": 1761647534,
+    "lastedit": 1761834250,
     "category": "外野",
     "active": true,
     "update": false
@@ -11664,10 +11664,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 3847,
+    "totalreply": 3848,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1761833528,
+    "lastedit": 1761834494,
     "category": "外野",
     "active": true,
     "update": false
@@ -12132,10 +12132,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 12219,
+    "totalreply": 12221,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1761833769,
+    "lastedit": 1761834376,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2263409": {
-    "totalreply": 567,
+    "totalreply": 568,
     "title": "[俄乌10月楼]",
     "newtitle": "[俄乌10月楼]",
-    "lastedit": 1761822498,
+    "lastedit": 1761834491,
     "category": "外野",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2249536": {
-    "totalreply": 225,
+    "totalreply": 226,
     "title": "[CK3dlc溥天之下10月28日发售]",
     "newtitle": "[CK3dlc溥天之下10月28日发售]",
-    "lastedit": 1761815058,
+    "lastedit": 1761834026,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13047,15 +13047,6 @@
     "lastedit": 1761721221,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2264568": {
-    "totalreply": 70,
-    "title": "[日本的烤肉放题是不是一般外国人去的多？]",
-    "newtitle": "[日本的烤肉放题是不是一般外国人去的多？]",
-    "lastedit": 1760624780,
-    "category": "外野",
-    "active": false,
     "update": false
   },
   "2264417": {
@@ -13770,10 +13761,10 @@
     "update": false
   },
   "2264778": {
-    "totalreply": 1057,
+    "totalreply": 1058,
     "title": "[《逃离鸭科夫》这游戏真不错吧]",
     "newtitle": "[《逃离鸭科夫》这游戏真不错吧]",
-    "lastedit": 1761833172,
+    "lastedit": 1761834374,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14112,10 +14103,10 @@
     "update": false
   },
   "2175655": {
-    "totalreply": 183,
+    "totalreply": 184,
     "title": "[《二重螺旋》没有专楼吗（公测定档2025.10.28）]",
     "newtitle": "[《二重螺旋》没有专楼吗（公测定档2025.10.28）]",
-    "lastedit": 1761829939,
+    "lastedit": 1761834026,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16218,10 +16209,10 @@
     "update": false
   },
   "2265792": {
-    "totalreply": 111,
+    "totalreply": 112,
     "title": "[安史之乱为什么会发生？看了知乎一个回答 感觉怪怪的]",
     "newtitle": "[安史之乱为什么会发生？看了知乎一个回答 感觉怪怪的]",
-    "lastedit": 1761799571,
+    "lastedit": 1761834494,
     "category": "外野",
     "active": true,
     "update": false
@@ -16344,10 +16335,10 @@
     "update": false
   },
   "2265755": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[清野史稿]",
     "newtitle": "[清野史稿]",
-    "lastedit": 1761831136,
+    "lastedit": 1761834494,
     "category": "外野",
     "active": true,
     "update": false
@@ -16452,19 +16443,19 @@
     "update": false
   },
   "2265868": {
-    "totalreply": 94,
+    "totalreply": 95,
     "title": "[吐槽一下当今国内电商弱智一样的耍猴、真的是烂完了]",
     "newtitle": "[吐槽一下当今国内电商弱智一样的耍猴、真的是烂完了]",
-    "lastedit": 1761833888,
+    "lastedit": 1761834494,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2265859": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[又一款高规格国产单机 长生：白夜无名]",
     "newtitle": "[又一款高规格国产单机 长生：白夜无名]",
-    "lastedit": 1761810866,
+    "lastedit": 1761834376,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16578,10 +16569,10 @@
     "update": false
   },
   "2252500": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[dq1+2hd2d重制版10月30日登录全平台]",
     "newtitle": "[dq1+2hd2d重制版10月30日登录全平台]",
-    "lastedit": 1761828013,
+    "lastedit": 1761834026,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16650,10 +16641,10 @@
     "update": false
   },
   "2265921": {
-    "totalreply": 152,
+    "totalreply": 156,
     "title": "[炮轰ZA——GF端出的屎味的屎]",
     "newtitle": "[炮轰ZA——GF端出的屎味的屎]",
-    "lastedit": 1761833409,
+    "lastedit": 1761834374,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16907,6 +16898,15 @@
     "newtitle": "[GBVSR已发售，第二季票土龙5月28日上线]",
     "lastedit": 1761830190,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2190553": {
+    "totalreply": 44,
+    "title": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
+    "newtitle": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
+    "lastedit": 1761834026,
+    "category": "漫区",
     "active": true,
     "update": false
   }
