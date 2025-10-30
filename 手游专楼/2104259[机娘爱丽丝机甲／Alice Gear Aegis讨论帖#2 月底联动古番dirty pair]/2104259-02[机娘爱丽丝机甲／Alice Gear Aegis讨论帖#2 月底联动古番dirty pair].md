@@ -141,3 +141,11 @@ se是什么鬼 王国之心联动？<img src="https://static.stage1st.com/image/
 
 不是亚马达这逼派生谁设计的啊 街霸两帧精防都没这么难按<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 1728#       发表于 2025-10-30 15:04
+
+换色买了个个四姑的，只有normal腿的，an腿也不能用，这也太拉了。
+
