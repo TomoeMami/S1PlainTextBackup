@@ -3424,3 +3424,21 @@ d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
 
 格蕾丝COS八尺夫人倒是非常喜感
 
+
+*****
+
+####  bill910  
+##### 344#       发表于 2025-10-30 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68647679&amp;ptid=2252759" target="_blank">godless2020 发表于 2025-10-30 09:29</a>
+
+在葡萄牙语版《生化危机：安魂曲》的官方PS5版预购页面上，索尼不小心泄露了里昂的豪华版服装 ...</blockquote>
+没有图吗？
+
+*****
+
+####  luffy0085  
+##### 345#       发表于 2025-10-30 11:27
+
+总觉得这一代需要承载的要素实在太多了，格蕾丝的视角能否很好的串联起来还是个疑问。
+
