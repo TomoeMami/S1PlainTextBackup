@@ -3388,3 +3388,11 @@ d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
 
 开启预购了
 
+
+*****
+
+####  godless2020  
+##### 340#       发表于 2025-10-30 09:29
+
+在葡萄牙语版《生化危机：安魂曲》的官方PS5版预购页面上，索尼不小心泄露了里昂的豪华版服装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
