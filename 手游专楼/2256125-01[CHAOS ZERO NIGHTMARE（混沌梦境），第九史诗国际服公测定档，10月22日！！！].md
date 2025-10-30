@@ -2439,3 +2439,18 @@ ai抽卡动画，ai三四星，太丑陋了
 
 xm修了，2天就修了🌿。不能崩溃删牌了。
 
+
+*****
+
+####  tvfxqalways5  
+##### 241#       发表于 2025-10-30 15:51
+
+对玩家有利的bug早早修复。不愧是你啊xm<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三谷歩夢  
+##### 242#       发表于 2025-10-30 15:55
+
+女主2命的bug好像也修了
+
