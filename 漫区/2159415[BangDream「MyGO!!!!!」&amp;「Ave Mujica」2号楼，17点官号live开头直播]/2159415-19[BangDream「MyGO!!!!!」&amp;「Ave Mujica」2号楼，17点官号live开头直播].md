@@ -68,3 +68,13 @@ MyGO!!!!!×Ave Mujica 联合公演「分歧路口，前途漫漫」
 
        售票链接：[https://tr.ee/acNTR2Xng3](https://tr.ee/acNTR2Xng3)
 
+
+*****
+
+####  CyDiablo  
+##### 27334#       发表于 2025-10-30 21:38
+
+[【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你05 Hello happy例会-哔哩哔哩番剧】](https://b23.tv/ep2314980)
+
+<img src="https://p.sda1.dev/28/3ce693463da1173d2248813c39a14a1b/image.jpg" referrerpolicy="no-referrer">
+
