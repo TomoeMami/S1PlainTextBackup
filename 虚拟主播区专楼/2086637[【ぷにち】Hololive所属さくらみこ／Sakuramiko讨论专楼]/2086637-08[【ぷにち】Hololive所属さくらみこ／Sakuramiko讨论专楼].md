@@ -102,3 +102,26 @@ konami感谢
 
 洗澡中就这么很自然接电话了可见平时
 
+
+*****
+
+####  holofan  
+##### 11259#       发表于 2025-10-29 19:29
+
+<img src="https://img.stage1st.com/forum/202510/29/192915zji4ylmlrxzwr4gz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-29 19:29 上传
+
+*****
+
+####  holofan  
+##### 11260#       发表于 2025-10-30 22:08
+
+今年都精神崩溃2次了最少
+
+压力太大了吧
+
