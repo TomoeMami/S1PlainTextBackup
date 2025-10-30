@@ -3396,3 +3396,13 @@ d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
 
 在葡萄牙语版《生化危机：安魂曲》的官方PS5版预购页面上，索尼不小心泄露了里昂的豪华版服装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马甲20250922  
+##### 341#       发表于 2025-10-30 09:51
+
+<blockquote>godless2020 发表于 2025-10-30 09:29
+在葡萄牙语版《生化危机：安魂曲》的官方PS5版预购页面上，索尼不小心泄露了里昂的豪华版服装 ...</blockquote>
+《鬼泣5》的白胡子但丁建模不能浪费了，再用一次！
+
