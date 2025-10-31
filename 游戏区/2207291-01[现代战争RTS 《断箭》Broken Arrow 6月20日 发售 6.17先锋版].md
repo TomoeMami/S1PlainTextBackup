@@ -103,3 +103,11 @@ stb能不能下手轻点，不然我们美团玩家只能打内战了<img src="h
 太他妈难受了，我觉得这游戏其实除了很多影响PVP的恶性BUG和外挂问题以外，最大头的还是这个游戏环境问题。 ...</blockquote>
 中午才打了一把 有个队友 一个地面抗线不出 就出飞机炸 还不出sead和空优 说他他直接飞机炸你兵 纯纯不是人
 
+
+*****
+
+####  PresentTime  
+##### 134#       发表于 2025-10-31 15:13
+
+上个版本我就不玩近摩了，除非被发配到平原点，图近坦强度的话海坦更舒服<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
