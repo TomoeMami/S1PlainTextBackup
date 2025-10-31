@@ -855,3 +855,11 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Booorunestud  
+##### 73#       发表于 2025-10-31 16:17
+
+这游戏的cg画师是谁哦，应该不是立绘那位
+

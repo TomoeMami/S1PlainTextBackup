@@ -147,3 +147,14 @@ stb能不能下手轻点，不然我们美团玩家只能打内战了<img src="h
 这次更新最恶心的改动我觉得就 ...</blockquote>
 机摩被海步挤占了生存空间，但是我说实话机摩和海机的侧重点完全不一样，机摩拥有更好的单走能力，火炮也更强，能打林子能打城区，海机就是少一手火炮，但是冲击力肯定是比机摩更强的，650筒子实在是太强了，kh32削弱其实意料之中，但是也不是没了kh32就废了，实际上你还可以玩450分的tu142嘛不是
 
+
+*****
+
+####  银月术士329  
+##### 139#         楼主| 发表于 2025-10-31 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68655716&amp;ptid=2207291" target="_blank">nbwjh0630 发表于 2025-10-31 15:51</a>
+机摩被海步挤占了生存空间，但是我说实话机摩和海机的侧重点完全不一样，机摩拥有更好的单走能力，火炮也 ...</blockquote>
+问题是KH35U真的有点幽默<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，出那个我还不如ka52K
+我近坦一般都是联VDV带核弹所以还有个BMD导弹车兜底
+
