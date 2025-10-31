@@ -78,3 +78,21 @@ MyGO!!!!!×Ave Mujica 联合公演「分歧路口，前途漫漫」
 
 <img src="https://p.sda1.dev/28/3ce693463da1173d2248813c39a14a1b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 27335#       发表于 2025-10-31 09:50
+
+       
+
+<img src="https://img.stage1st.com/forum/202510/31/095045hahh09p9xxiz9zih.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-10-31_09-49-41.jpg</strong> (243.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-31 09:50 上传
+
+       [https://x.com/AMNIBUS/status/1983897930508517875](https://x.com/AMNIBUS/status/1983897930508517875)
+
