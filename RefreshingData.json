@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 21225,
+    "totalreply": 21226,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》10.30 江湖梦远]",
-    "lastedit": 1761921020,
+    "lastedit": 1761923887,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 198950,
+    "totalreply": 198951,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1761922695,
+    "lastedit": 1761923655,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 12488,
+    "totalreply": 12491,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1761922568,
+    "lastedit": 1761923652,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2263615": {
-    "totalreply": 1547,
+    "totalreply": 1548,
     "title": "[今天揭晓谁是日本下一任首相]",
     "newtitle": "[高市早苗正式担任日本首相！自维保参N右翼大集结]",
-    "lastedit": 1761922699,
+    "lastedit": 1761923414,
     "category": "外野",
     "active": true,
     "update": false
@@ -12630,9 +12630,9 @@
     "totalreply": 76,
     "title": "[沙加碧翠之境PC繁简汉化移植发布［沙加中文移植计划组］（10／10更新）]",
     "newtitle": "[沙加碧翠之境PC繁简汉化移植发布［沙加中文移植计划组］（10／10更新）]",
-    "lastedit": 1761490812,
+    "lastedit": 1761923040,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2264190": {
@@ -12852,10 +12852,10 @@
     "update": false
   },
   "2252024": {
-    "totalreply": 412,
+    "totalreply": 416,
     "title": "[【EVA系列30周年】未官宣 EVA新剧场版序破Q终 疑似内地公映？]",
     "newtitle": "[【EVA系列30周年】《EVA新剧场：终 ／ 天鹰战士：最后的冲击》 内地定档10月31日上映]",
-    "lastedit": 1761923050,
+    "lastedit": 1761923651,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13244,15 +13244,6 @@
     "newtitle": "[《吸血鬼：避世血族2》 定于2025年10月21日发售]",
     "lastedit": 1761271349,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2189828": {
-    "totalreply": 82,
-    "title": "[『魔法骑士』新作动画制作决定]",
-    "newtitle": "[『魔法骑士』新作动画制作决定]",
-    "lastedit": 1760713809,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -15809,7 +15800,7 @@
     "newtitle": "[知乎那边关于洪承畴为什么投降的瓜越来越夸张了]",
     "lastedit": 1761664571,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2265742": {
@@ -16911,19 +16902,19 @@
     "update": false
   },
   "2266045": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[比亚迪第三季度营收 1949.85 亿元同比下降 3.05%，净利润 78.23 亿元同比下降 32.60%]",
     "newtitle": "[比亚迪第三季度营收 1949.85 亿元同比下降 3.05%，净利润 78.23 亿元同比下降 32.60%]",
-    "lastedit": 1761914534,
+    "lastedit": 1761923414,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2266062": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[所谓“男性30岁之后精子质量下滑，基因变异增加”是否在贩卖男性焦虑？]",
     "newtitle": "[所谓“男性30岁之后精子质量下滑，基因变异增加”是否在贩卖男性焦虑？]",
-    "lastedit": 1761921020,
+    "lastedit": 1761923769,
     "category": "外野",
     "active": true,
     "update": false
@@ -16969,6 +16960,33 @@
     "title": "[风云T11，17.99起]",
     "newtitle": "[风云T11，17.99起]",
     "lastedit": 1761921862,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2249578": {
+    "totalreply": 105,
+    "title": "[关于1997年的eva剧场版]",
+    "newtitle": "[关于1997年的eva剧场版]",
+    "lastedit": 1761923658,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2266092": {
+    "totalreply": 44,
+    "title": "[中国制造业全球占比30%这个数据太有迷惑性了]",
+    "newtitle": "[中国制造业全球占比30%这个数据太有迷惑性了]",
+    "lastedit": 1761923772,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2263672": {
+    "totalreply": 41,
+    "title": "[南昌有啥好玩的推荐？]",
+    "newtitle": "[南昌有啥好玩的推荐？]",
+    "lastedit": 1761923772,
     "category": "外野",
     "active": true,
     "update": false
