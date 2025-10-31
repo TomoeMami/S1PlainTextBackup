@@ -873,3 +873,13 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  blueelf  
+##### 75#         楼主| 发表于 2025-10-31 21:49
+
+<blockquote>煌煌其烨 发表于 2025-10-31 21:05
+主线打通了，真是个好故事啊，确实是会让人想写个长篇的安利贴给别人的程度。其实最终boss的动机和目的还是 ...</blockquote>
+前作千年时计的汉化已经出了，不是我翻译的，目前在测试，过段时间会放出来
+
