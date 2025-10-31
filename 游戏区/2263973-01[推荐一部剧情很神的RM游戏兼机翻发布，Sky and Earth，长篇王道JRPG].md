@@ -863,3 +863,13 @@ https://www.freem.ne.jp/win/game/25738
 
 这游戏的cg画师是谁哦，应该不是立绘那位
 
+
+*****
+
+####  煌煌其烨  
+##### 74#       发表于 2025-10-31 21:05
+
+主线打通了，真是个好故事啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。友情线方面里克迪奥和哈扎马也比我预想的要…好味的多。看前面的楼，楼主现在是在翻译作者的前作吗？我就先期待着了。
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
