@@ -161,3 +161,22 @@ konami感谢
 
 来真的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11265#       发表于 2025-10-31 23:37
+
+这直播最大的意义不是发表最后通牒也不是说阿心的事，而是把社内有leaker的事拿到台面上正式承认了，在今天之前绝大多数表面粉丝是完全不知道网上有过这么阴暗面的事，这么一公开相当于把yagoo等管理层放在架子上烤了，每天都有人问cover运营 你们抓到leaker了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+多少给点压力也好过什么都不干，再说了这份声明文运营看过同意了也就是内部承认的事实了
+
+*****
+
+####  holofan  
+##### 11266#       发表于 2025-11-1 00:00
+
+她对阿心的表态倒跟我之前想象的一样 确实也就这么一回事大家都不知道她病得那么重没有早点关心精神状态
+
+不过这病不是一般人帮就能救得了的
+
