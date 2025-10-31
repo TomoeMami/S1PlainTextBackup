@@ -111,3 +111,11 @@ stb能不能下手轻点，不然我们美团玩家只能打内战了<img src="h
 
 上个版本我就不玩近摩了，除非被发配到平原点，图近坦强度的话海坦更舒服<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ppp爱好者  
+##### 135#       发表于 2025-10-31 15:32
+
+海坦上个版本强度刚刚的 没话说 bmpt+船锚+菊花车 舒服
+
