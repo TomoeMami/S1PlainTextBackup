@@ -741,3 +741,16 @@ https://x.com/Goodbye_Lara/status/1971890266786422862
 #さよならララ
 <img src="https://p.sda1.dev/28/ecb88ef69c665d4a6331ae54ad73857f/G4hoqEVawAAmIPc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 47#         楼主| 发表于 2025-10-31 15:14
+
+🎃⸜𝑯𝒂𝒑𝒑𝒚 𝑯𝒂𝒍𝒍𝒐𝒘𝒆𝒆𝒏⸝*👻
+
+キャラクターデザインの #谷紫織 さんによる、ララと茉里のハロウィンイラストをおすそわけ🎃
+
+すてきなハロウィンをお過ごしください✨
+<img src="https://p.sda1.dev/28/929b93a9d55aeda5aa650a3b6e7776f8/20251031_150857.jpg" referrerpolicy="no-referrer">
+
