@@ -3461,3 +3461,16 @@ d3b7a0ec08fa513d679730c87b6d55fbb2fbd99b.jpg
 主人公グレースの行く手に待ち受けるものは――
 <img src="https://p.sda1.dev/28/853a5e48d9ca841d996924f51a6c990b/20251031_150938.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 348#       发表于 2025-11-1 20:48
+
+又多一個洩露來源
+
+Fhalcon Gaming Store 
+[https://www.facebook.com/photo?f ... t=a.626230729548342](https://www.facebook.com/photo?fbid=1254290033409072&amp;set=a.626230729548342)
+
+今次特典是有LEON的內褲
+
