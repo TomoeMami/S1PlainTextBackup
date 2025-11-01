@@ -180,3 +180,36 @@ konami感谢
 
 不过这病不是一般人帮就能救得了的
 
+
+*****
+
+####  holofan  
+##### 11267#       发表于 2025-11-1 09:17
+
+<img src="https://img.stage1st.com/forum/202511/01/091614bz7s5ju7hjzsh8hh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-1 09:16 上传
+
+海外粉丝投稿交流 参考
+
+*****
+
+####  holofan  
+##### 11268#       发表于 2025-11-1 13:00
+
+<img src="https://img.stage1st.com/forum/202511/01/130007hb6cc68za3w6vrcx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-1 13:00 上传
+
+上一次GTA歌回是在去年告知holoGTA企划的前一星期做的
+
+所以
+
