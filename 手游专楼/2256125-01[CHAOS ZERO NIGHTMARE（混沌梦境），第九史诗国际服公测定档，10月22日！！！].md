@@ -2615,3 +2615,14 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 257#       发表于 2025-11-1 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68662204&amp;ptid=2256125" target="_blank">远野乙姬 发表于 2025-11-1 23:03</a>
+
+女主那个剧情我给90分，最后打到he余韵久久不散，一次性把零号和创伤治疗都讲活了，冲这个支线跟主线的强 ...</blockquote>
+据说是主角能力设定太逆天了，就是你打牌的时候右下角有个悔棋的功能，消耗资源可以回溯到最后一张牌之前或者回合开始前，然后他们把这个能力写到了剧情设定里，搞得主线很难写，再加上总监看进度太慢介入剧情，最后就变成这样了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
