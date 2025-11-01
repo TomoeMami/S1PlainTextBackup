@@ -2574,3 +2574,15 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 2025-11-1 22:12 上传
 
+
+*****
+
+####  远野乙姬  
+##### 254#       发表于 2025-11-1 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68632247&amp;ptid=2256125" target="_blank">stonego 发表于 2025-10-27 12:04</a>
+小春卡利佩米卡是开荒零号梦境高难最稳的配对之一了，而且相对来说玩法简单不用像雷欧娜梅玲啥的还得计算牌 ...</blockquote>
+但是感觉卡利佩作用有点那个，不够强
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
