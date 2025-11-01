@@ -2634,3 +2634,11 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 有纠结剧情的功夫不如多写几个副本事件，谁玩这种游戏是冲着剧情来的啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nyaneko  
+##### 259#       发表于 2025-11-1 23:59
+
+棱镜池子是不是改了，没有五星动画的时候，五星的也框框出
+
