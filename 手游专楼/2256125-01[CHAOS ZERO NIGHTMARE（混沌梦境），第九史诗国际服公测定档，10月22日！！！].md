@@ -2586,3 +2586,18 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 255#       发表于 2025-11-1 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68661972&amp;ptid=2256125" target="_blank">叩叩叩 发表于 2025-11-1 22:02</a>
+
+好像滑跪了？发40连，剧情重置
+
+但是沟槽的养成怎么没提</blockquote>
+说会发更多资源，不知道除了抽卡还有没有养成资源
+
+其实剧情重制才是最主要的，主线过家家比起女主创伤剧情还有卡厄思里面的小事件写得太烂了
+
