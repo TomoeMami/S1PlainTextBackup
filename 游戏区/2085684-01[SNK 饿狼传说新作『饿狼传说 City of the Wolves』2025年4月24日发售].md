@@ -38,3 +38,19 @@
 
 斗奶是致敬当年那张插画不?
 
+
+*****
+
+####  shimotsuki14  
+##### 592#       发表于 2025-11-1 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68659983&amp;ptid=2085684" target="_blank">chdhdhd 发表于 2025-11-1 13:48</a>
+这个预告片真的蛮搞笑的
+
+两个baba一边一本正经的说“让我们决出谁是真正的美女格斗家”之类的抽象话
+
+一边 ...</blockquote>
+致敬当年的名画嘛。当年连嘴都快亲上了
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

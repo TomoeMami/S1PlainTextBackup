@@ -23,3 +23,13 @@ MuMu-20251101-015512-495.jpg
 
 <img src="https://img.stage1st.com/forum/202511/01/020114wjc0agc66p67c5j7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  任天索尼子  
+##### 47512#       发表于 2025-11-1 15:19
+
+白嫖二宝藤蔓 还是两发单抽
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
