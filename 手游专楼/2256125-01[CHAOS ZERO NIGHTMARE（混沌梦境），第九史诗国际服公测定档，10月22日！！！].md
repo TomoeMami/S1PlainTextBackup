@@ -2548,3 +2548,29 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 但是沟槽的养成怎么没提
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 253#       发表于 2025-11-1 22:22
+
+惨(第一排没截)，想带区区3神闪3中立出来难道很贪吗<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">  开场抽了稀有？区域增加也不赖我啊，老天对我不公（心虚
+
+<img src="https://img.stage1st.com/forum/202511/01/221246wjwczi2jjedcijj0.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-01_220258.jpg</strong> (168.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-1 22:12 上传
+
+   →    
+
+<img src="https://img.stage1st.com/forum/202511/01/221250gl4guttl9gs6lta9.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-01_221358.jpg</strong> (187.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-1 22:12 上传
+
