@@ -39,3 +39,15 @@
 <img src="https://p.sda1.dev/28/026bf55663bd55b19fc8e8522343da8e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/28/2760e1be59dacc44cfc5abd4701137af/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1749#       发表于 2025-11-1 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68659369&amp;ptid=2201887" target="_blank">仟音一心 发表于 2025-11-1 11:29</a>
+坂仓花 加入 速水奖的 Rush Style 事务所 ​​​​</blockquote>
+速水奖有提到了怎么招过来的吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

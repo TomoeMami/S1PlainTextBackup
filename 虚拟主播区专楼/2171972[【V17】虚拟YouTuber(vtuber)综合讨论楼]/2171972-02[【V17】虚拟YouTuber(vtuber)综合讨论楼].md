@@ -199,3 +199,11 @@ nrk的竞品在vspo……
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下面不是有写每组多少人的吗，这都能搞错，当年5个人占8%那是什么概念啊怎么可能
 
+
+*****
+
+####  cckuku  
+##### 1570#       发表于 2025-11-1 13:29
+
+但是最新的两个大叔和女子乐队和男高组合，有什么水花嘛？
+
