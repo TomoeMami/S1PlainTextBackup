@@ -183,3 +183,11 @@ nrk的竞品在vspo……
 爆哭惹
 [https://www.bilibili.com/video/BV1THW9zGEda/](https://www.bilibili.com/video/BV1THW9zGEda/)
 
+
+*****
+
+####  Harunoharu  
+##### 1568#       发表于 2025-11-1 09:19
+
+游戏力是哪种游戏力，apex的话那确实没有了
+
