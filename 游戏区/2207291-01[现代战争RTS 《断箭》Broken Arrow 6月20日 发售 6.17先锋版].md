@@ -158,3 +158,11 @@ stb能不能下手轻点，不然我们美团玩家只能打内战了<img src="h
 问题是KH35U真的有点幽默<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，出那个我还不如ka52K
 我近坦一般都是联VDV带核弹所以还有个BMD导弹车兜底
 
+
+*****
+
+####  露综bot一号机  
+##### 140#       发表于 2025-11-1 19:41
+
+最近龙卷风是不是有bug，我龙卷风这几天总是T上一个锁定的目标
+
