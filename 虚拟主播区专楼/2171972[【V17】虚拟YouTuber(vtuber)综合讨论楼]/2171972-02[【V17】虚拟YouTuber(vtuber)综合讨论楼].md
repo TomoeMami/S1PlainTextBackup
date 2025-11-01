@@ -191,3 +191,11 @@ nrk的竞品在vspo……
 
 游戏力是哪种游戏力，apex的话那确实没有了
 
+
+*****
+
+####  艾特娜  
+##### 1569#       发表于 2025-11-1 10:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下面不是有写每组多少人的吗，这都能搞错，当年5个人占8%那是什么概念啊怎么可能
+
