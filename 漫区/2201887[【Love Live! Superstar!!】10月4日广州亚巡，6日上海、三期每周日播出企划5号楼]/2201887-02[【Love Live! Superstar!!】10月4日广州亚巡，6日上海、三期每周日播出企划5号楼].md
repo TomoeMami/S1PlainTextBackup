@@ -28,3 +28,14 @@
 
 花花终于脱离苦海
 
+
+*****
+
+####  仟音一心  
+##### 1748#       发表于 2025-11-1 11:29
+
+坂仓花 加入 速水奖的 Rush Style 事务所 ​​​​
+<img src="https://p.sda1.dev/28/f02bc16ff0c8e58da6bd20afd1917b47/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/026bf55663bd55b19fc8e8522343da8e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/2760e1be59dacc44cfc5abd4701137af/image.jpg" referrerpolicy="no-referrer">
+
