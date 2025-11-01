@@ -213,3 +213,26 @@ konami感谢
 
 所以
 
+
+*****
+
+####  holofan  
+##### 11269#       发表于 2025-11-1 21:10
+
+GTA的PS服现在应该是鬼服中的鬼服了吧 
+
+唯一好的是没有挂壁
+
+*****
+
+####  holofan  
+##### 11270#       发表于 2025-11-1 21:23
+
+<img src="https://img.stage1st.com/forum/202511/01/212259vzcmfc9c761wccb7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-1 21:22 上传
+
