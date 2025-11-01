@@ -2538,3 +2538,13 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 鼠兔这手感玩得我想去玩轻弩了。。
 
+
+*****
+
+####  叩叩叩  
+##### 252#       发表于 2025-11-1 22:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好像滑跪了？发40连，剧情重置
+
+但是沟槽的养成怎么没提
+
