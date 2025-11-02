@@ -2847,3 +2847,16 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  三谷歩夢  
+##### 274#       发表于 2025-11-3 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68666441&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-2 23:43</a>
+
+抛出来的设定突出一个贪多嚼不烂连poe类似的天赋树都默认出来了，poe2现在那个鬼样子 访谈总监说没用ai，但 ...</blockquote>
+没用AI这种批话听听就得了，现在棒子手游没几个不用AI辅助的，区别就是修得好和修得敷衍而已，我个人是不排斥AI，但也不能太敷衍
+
+人物立绘还好说，很多角色独有牌的卡面那潦草程度一眼AI，尤其是下个UP的雌小鬼有几张卡连衣服样式都不太对得上，如果这是纯手工画的那只能说xm的美术资源烂完了
+
