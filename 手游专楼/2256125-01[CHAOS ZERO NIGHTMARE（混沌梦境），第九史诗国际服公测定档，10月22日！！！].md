@@ -2830,3 +2830,20 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 有点担心十来天后的新赛季的质量了
 
+
+*****
+
+####  qixinno2  
+##### 272#       发表于 2025-11-2 23:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要各种材料掉落翻三倍以上 其他我都无所谓 一路瞎JB玩 各个角色都练了一点 结果就是整体都拉了
+
+*****
+
+####  orangee  
+##### 273#       发表于 2025-11-2 23:43
+
+抛出来的设定突出一个贪多嚼不烂连poe类似的天赋树都默认出来了，poe2现在那个鬼样子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 访谈总监说没用ai，但有些图的风格也太像有ai辅助吧，直接否认不怕回旋镖么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
