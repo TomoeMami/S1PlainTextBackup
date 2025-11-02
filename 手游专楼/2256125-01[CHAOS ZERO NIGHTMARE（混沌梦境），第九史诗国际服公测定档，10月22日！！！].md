@@ -2808,3 +2808,13 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 原设定系统臃肿了一些，不过就这么掰了也太可惜了
 
+
+*****
+
+####  stonego  
+##### 270#       发表于 2025-11-2 17:20
+
+今天升到50级打完故事，最后的尾声不就是在用时间循环能力（RE：0同款）SL吗，所以原编剧的大纲应该也没删完<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+估计重做的部分就是中间这段教团的故事吧，跟前面后面和旁边（指创伤代码的side story）都格格不如了属于是<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
