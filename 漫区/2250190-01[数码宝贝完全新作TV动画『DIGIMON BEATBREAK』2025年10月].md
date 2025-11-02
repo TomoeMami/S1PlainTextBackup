@@ -23,3 +23,11 @@ dt基尔兽第八集才进化成熟期，守宫兽还有的等<img src="https://
 
 syl，赤星政尚脚本<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 251#       发表于 2025-11-2 21:19
+
+我猜下集熊猫兽估计是狮子兽展开了，然后小队拿奖励换商店街留存这样
+
