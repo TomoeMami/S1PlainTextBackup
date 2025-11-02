@@ -2689,3 +2689,84 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 —— 来自 Xiaomi M2012K11AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 265#       发表于 2025-11-2 12:35
+
+ 本帖最后由 三谷歩夢 于 2025-11-2 12:38 编辑 
+
+<img src="https://img.stage1st.com/forum/202511/02/123346z4123za31agg2a33.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (103.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123346d4iu2qrq2a09a0sa.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (94.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123346s4ho0mk4ykha43hg.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (96.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123346cfdhtmhkm2dll1th.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (100.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123347hzr6495659lj4uhl.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (114.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123347cdvmiheimidjouqj.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (105.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202511/02/123347bxksmgzg7fgnsy1s.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>mwQkqu-cgo8K1vT3cS10w-kg.webp</strong> (67.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-2 12:33 上传
+
+ <blockquote>(泄露版和正式版的地图探索界面对比)
+
+“而且这游戏原本不是混沌模拟器而是行星探索的理由还有一个。泄露版的概念是真的在废墟或者这种行星上到处逛，所以把破败的废墟都画出来了。
+
+这游戏，无论是看泄露版还是看被推翻前2024年上传的故事PV都能知道，
+
+玩家被称为“船长”是有理由的，
+
+游戏里也有能让人接受的设定。
+
+现在这帮人连那个都实现不了，就全给砍了。
+
+这真不是一般的**。”</blockquote>
+我靠，XM真的是畜生啊，原本这设定不比现在带感多了？这一说我也好像有印象当初刚关注这游戏的时候宣传就说了有时间循环要素
+
+而且看泄露截图当初还有转职和天赋树系统
+
