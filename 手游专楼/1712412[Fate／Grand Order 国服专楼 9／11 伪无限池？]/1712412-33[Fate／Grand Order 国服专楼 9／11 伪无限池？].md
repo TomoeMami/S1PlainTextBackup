@@ -41,3 +41,13 @@ MuMu-20251101-015512-495.jpg
 
 回忆本压根不打算打了，这次高难时间都有点紧了，毕竟我倍卡完全没换，希望是能把倍卡换出来后再打
 
+
+*****
+
+####  FrozenA  
+##### 47514#       发表于 2025-11-2 11:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11月了，种了半个月苹果该紧急冲刺活动了
+
+man抽了还没玩，双db挖月光矿还没玩腻
+
