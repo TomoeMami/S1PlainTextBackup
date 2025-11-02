@@ -903,3 +903,11 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bixinhaner  
+##### 78#       发表于 2025-11-3 00:36
+
+不知道能不能在ios上玩。搜到一个app说是只支持rpgmaker mv的游戏，这个是吗？
+
