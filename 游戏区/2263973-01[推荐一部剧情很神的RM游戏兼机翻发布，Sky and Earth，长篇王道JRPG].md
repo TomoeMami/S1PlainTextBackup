@@ -891,3 +891,15 @@ https://www.freem.ne.jp/win/game/25738
 
 45小时刚打进第4章，剧情稍微填了几个坑又马上挖出更多，全靠这个主线撑了。目前最痛苦的还是名字设定记不全，他们说了半天我还得想想指的是谁<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  InfiniteGyre  
+##### 77#       发表于 2025-11-3 00:14
+
+打完了，就是要这种一报还一报纯纯正正的王道才是清新脱俗啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+就是后期战斗全是按顺序放技能残留斗技攒OP开觉醒单调了些，不过对于rm也没法在系统上要求过多了
+异戒天魔和不完全王的名字颜色差不多我还以为有什么伏笔，结果真的就是颜色没区分开吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
