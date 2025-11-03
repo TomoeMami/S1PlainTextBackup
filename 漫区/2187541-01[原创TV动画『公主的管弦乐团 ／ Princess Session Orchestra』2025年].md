@@ -43,3 +43,14 @@
 乐队那主唱跟水萌单挑时那踢技冲着头就过去了。。怕不是物理打断</blockquote>
 还真是，因为躲过了给忘记这茬了
 
+
+*****
+
+####  lydia5989  
+##### 208#       发表于 2025-11-3 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68668488&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2025-11-3 12:48</a>
+
+还真是，因为躲过了给忘记这茬了</blockquote>
+而且开二段第二次开战，架子鼓也是下死手对着分身去的，乐队都是冲着头给的踢技但被击退或格挡了，骑士的剑技也是冲着脖子去的，看来都深知打断歌不如物理打断人<img src="https://static.stage1st.com/image/smiley/carton2017/466.png" referrerpolicy="no-referrer">
+
