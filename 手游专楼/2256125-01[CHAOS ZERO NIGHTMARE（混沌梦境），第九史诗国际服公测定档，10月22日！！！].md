@@ -3007,3 +3007,14 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 N10反而不太行 太反直觉了
 
+
+*****
+
+####  三谷歩夢  
+##### 290#       发表于 2025-11-3 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68669850&amp;ptid=2256125" target="_blank">siebten 发表于 2025-11-3 17:06</a>
+
+建了个号没想到还挺欧的 出了俩五星 但是这游戏有pc版吗 手机玩起来太费劲了 我选的亚服 ...</blockquote>
+PC版要装stove平台，做得还挺垃圾的，我每次登录跳转到网页的时候火狐内存占用都暴涨
+
