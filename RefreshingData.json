@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 199277,
+    "totalreply": 199279,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1762162690,
+    "lastedit": 1762163289,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 12832,
+    "totalreply": 12833,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1762161740,
+    "lastedit": 1762163288,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13208,15 +13208,6 @@
     "newtitle": "[网友石锤雷军健身房打卡造假 并摆出证据]",
     "lastedit": 1761109569,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2074080": {
-    "totalreply": 195,
-    "title": "[加贺昭三《维斯塔利亚传说2》正式发售 简中同步推出]",
-    "newtitle": "[加贺昭三《维斯塔利亚传说2》正式发售 简中同步推出]",
-    "lastedit": 1760953574,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -14742,12 +14733,12 @@
     "update": false
   },
   "2265545": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[“外面是什么，你不用告诉我”系列AI图火了]",
     "newtitle": "[“外面是什么，你不用告诉我”系列AI图火了（回帖可能重口，慎入）]",
-    "lastedit": 1761812064,
+    "lastedit": 1762163057,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2265566": {
@@ -15624,10 +15615,10 @@
     "update": false
   },
   "2265886": {
-    "totalreply": 186,
+    "totalreply": 188,
     "title": "[融入中文环境的、不能用字面意思理解的日文汉字]",
     "newtitle": "[融入中文环境的、不能用字面意思理解的日文汉字]",
-    "lastedit": 1762162459,
+    "lastedit": 1762163060,
     "category": "外野",
     "active": true,
     "update": false
@@ -15957,10 +15948,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 335,
+    "totalreply": 336,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 「全面测试」招募开启]",
-    "lastedit": 1762147336,
+    "lastedit": 1762163060,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16614,10 +16605,10 @@
     "update": false
   },
   "2266175": {
-    "totalreply": 119,
+    "totalreply": 120,
     "title": "[单季亏损120亿美元？微软财报意外披露OpenAI财务状况]",
     "newtitle": "[单季亏损120亿美元？微软财报意外披露OpenAI财务状况]",
-    "lastedit": 1762139531,
+    "lastedit": 1762163061,
     "category": "外野",
     "active": true,
     "update": false
@@ -16641,10 +16632,10 @@
     "update": false
   },
   "2266151": {
-    "totalreply": 106,
+    "totalreply": 108,
     "title": "[观李新野约会指南有感]",
     "newtitle": "[观李新野约会指南有感]",
-    "lastedit": 1762162459,
+    "lastedit": 1762163060,
     "category": "外野",
     "active": true,
     "update": false
@@ -16767,10 +16758,10 @@
     "update": false
   },
   "2266226": {
-    "totalreply": 88,
+    "totalreply": 90,
     "title": "[萨莉亚北上广利润下滑超20%]",
     "newtitle": "[萨莉亚北上广利润下滑超20%]",
-    "lastedit": 1762162689,
+    "lastedit": 1762163061,
     "category": "外野",
     "active": true,
     "update": false
@@ -16821,10 +16812,10 @@
     "update": false
   },
   "2266239": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[水库，放生，猫……？]",
     "newtitle": "[水库，放生，猫……？]",
-    "lastedit": 1762157291,
+    "lastedit": 1762163065,
     "category": "外野",
     "active": true,
     "update": false
@@ -16943,6 +16934,15 @@
     "newtitle": "[比亚迪 10 月各车型销量明细公布]",
     "lastedit": 1762162459,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2182993": {
+    "totalreply": 65,
+    "title": "[圣 战士丹拜因新作动画公开]",
+    "newtitle": "[圣 战士丹拜因新作动画公开]",
+    "lastedit": 1762162935,
+    "category": "漫区",
     "active": true,
     "update": false
   }
