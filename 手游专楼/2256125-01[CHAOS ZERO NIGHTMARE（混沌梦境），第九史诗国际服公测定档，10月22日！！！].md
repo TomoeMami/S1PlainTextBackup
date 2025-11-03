@@ -2932,3 +2932,13 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 以及到底那些算额外攻击，反击和攻击两次的第二下算不算之类的 真费劲啊
 
+
+*****
+
+####  掉头学姐  
+##### 283#       发表于 2025-11-3 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68668205&amp;ptid=2256125" target="_blank">Dreki 发表于 2025-11-3 11:55</a>
+话说这个治疗为什么有的时候可以治san值有的时候不能？</blockquote>
+血不满才能回
+
