@@ -610,3 +610,16 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 
 抽到了个10BP的男忍 问下加点什么好
 
+
+*****
+
+####  电脑死机  
+##### 560#       发表于 2025-11-3 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68658176&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2025-10-31 23:38</a>
+
+挂机就别离或者船 手动就阳炎刷忍者
+
+抽到了个10BP的男忍 问下加点什么好</blockquote>
+看什么个体，一般无脑加力
+
