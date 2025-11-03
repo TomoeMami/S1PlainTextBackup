@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 26567,
+    "totalreply": 26568,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1762172892,
+    "lastedit": 1762173493,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11664,10 +11664,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 3932,
+    "totalreply": 3933,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1762163414,
+    "lastedit": 1762173498,
     "category": "外野",
     "active": true,
     "update": false
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 12850,
+    "totalreply": 12854,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1762172527,
+    "lastedit": 1762173367,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12141,10 +12141,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 1631,
+    "totalreply": 1632,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年10月21日发售，XGP首发]",
-    "lastedit": 1762168093,
+    "lastedit": 1762173498,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12726,10 +12726,10 @@
     "update": false
   },
   "2252024": {
-    "totalreply": 553,
+    "totalreply": 555,
     "title": "[【EVA系列30周年】未官宣 EVA新剧场版序破Q终 疑似内地公映？]",
     "newtitle": "[【EVA系列30周年】《EVA新剧场：终 ／ 天鹰战士：最后的冲击》 内地定档10月31日上映]",
-    "lastedit": 1762172768,
+    "lastedit": 1762173130,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13235,15 +13235,6 @@
     "newtitle": "[羊尾后，我爱上中二电波台]",
     "lastedit": 1761065046,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2264854": {
-    "totalreply": 41,
-    "title": "[潭有干ai的吗？我就直接问了]",
-    "newtitle": "[潭有干ai的吗？我就直接问了]",
-    "lastedit": 1760963778,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -15633,10 +15624,10 @@
     "update": false
   },
   "2252500": {
-    "totalreply": 178,
+    "totalreply": 179,
     "title": "[dq1+2hd2d重制版10月30日登录全平台]",
     "newtitle": "[dq1+2hd2d重制版10月30日登录全平台]",
-    "lastedit": 1762170488,
+    "lastedit": 1762173498,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16506,10 +16497,10 @@
     "update": false
   },
   "2266107": {
-    "totalreply": 79,
+    "totalreply": 81,
     "title": "[2025年11月网文推荐交流互助楼]",
     "newtitle": "[2025年11月网文推荐交流互助楼]",
-    "lastedit": 1762143146,
+    "lastedit": 1762173498,
     "category": "外野",
     "active": true,
     "update": false
@@ -16695,10 +16686,10 @@
     "update": false
   },
   "2266226": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[萨莉亚北上广利润下滑超20%]",
     "newtitle": "[萨莉亚北上广利润下滑超20%]",
-    "lastedit": 1762171454,
+    "lastedit": 1762173131,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16830,10 @@
     "update": false
   },
   "2266275": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[高市内阁支持率达82%，自2001年以来第二高]",
     "newtitle": "[高市内阁支持率达82%，自2001年以来第二高]",
-    "lastedit": 1762168450,
+    "lastedit": 1762173498,
     "category": "外野",
     "active": true,
     "update": false
@@ -16907,6 +16898,15 @@
     "newtitle": "[现在哪怕数字版贵一点也宁愿买数字版了]",
     "lastedit": 1762172894,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266296": {
+    "totalreply": 43,
+    "title": "[s1是老登论坛？刚好可以问一下，按现在的视角，s1众老登认为人生最重要的是什么？]",
+    "newtitle": "[s1是老登论坛？刚好可以问一下，按现在的视角，s1众老登认为人生最重要的是什么？]",
+    "lastedit": 1762173498,
+    "category": "外野",
     "active": true,
     "update": false
   }
