@@ -2942,3 +2942,17 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 话说这个治疗为什么有的时候可以治san值有的时候不能？</blockquote>
 血不满才能回
 
+
+*****
+
+####  orangee  
+##### 284#       发表于 2025-11-3 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68668394&amp;ptid=2256125" target="_blank">21wwwb 发表于 2025-11-3 12:28</a>
+至今搞不明白反击的机制，有时候A角色刷的反击，对面打过来AB角色都会反击回去，有时候又不会
+
+以及到底那 ...</blockquote>
+反击应该都是个人buff吧，点开详情以后在谁头像上谁反击，装备给的反击也应该是给到人的？我记得有次把一个开场反击的手套装米卡身上了她也反击了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
