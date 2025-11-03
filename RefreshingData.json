@@ -1274,7 +1274,7 @@
     "newtitle": "[《天地劫幽城再临》讨论帖群号662553135]",
     "lastedit": 1761953047,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1539006": {
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2266260": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[是不是有些专业是贵族学科不适合平民学习的]",
     "newtitle": "[是不是有些专业是贵族学科不适合平民学习的]",
-    "lastedit": 1762192571,
+    "lastedit": 1762212009,
     "category": "外野",
     "active": true,
     "update": false
@@ -16848,10 +16848,10 @@
     "update": false
   },
   "2266301": {
-    "totalreply": 70,
+    "totalreply": 72,
     "title": "[太空鼠鼠起名]",
     "newtitle": "[太空鼠鼠起名]",
-    "lastedit": 1762210807,
+    "lastedit": 1762212010,
     "category": "外野",
     "active": true,
     "update": false
@@ -16916,6 +16916,15 @@
     "newtitle": "[美术抄袭 Bungie新作《马拉松 ／ Marathon》]",
     "lastedit": 1762210689,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266321": {
+    "totalreply": 41,
+    "title": "[中国航天员吃上了太空烧烤]",
+    "newtitle": "[中国航天员吃上了太空烧烤]",
+    "lastedit": 1762212367,
+    "category": "外野",
     "active": true,
     "update": false
   }
