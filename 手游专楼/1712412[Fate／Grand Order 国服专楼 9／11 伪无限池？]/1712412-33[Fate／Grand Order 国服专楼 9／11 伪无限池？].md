@@ -67,3 +67,11 @@ man抽了还没玩，双db挖月光矿还没玩腻
 
 大公很容易啊，进入排阵发现还保留上次的阵容，2姐C呆梅丽蓝卡轮转就行了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FrozenA  
+##### 47517#       发表于 2025-11-3 14:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">抽了man，没想到1宝卡莲也能拉出来打打图，还蛮舒适的
+
