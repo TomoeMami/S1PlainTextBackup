@@ -2956,3 +2956,18 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  三谷歩夢  
+##### 285#       发表于 2025-11-3 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68668394&amp;ptid=2256125" target="_blank">21wwwb 发表于 2025-11-3 12:28</a>
+
+至今搞不明白反击的机制，有时候A角色刷的反击，对面打过来AB角色都会反击回去，有时候又不会
+
+以及到底那 ...</blockquote>
+应该是带了加反击的装备吧，装备在谁身上就是谁反击
+
+反击没试过，额外攻击不算攻击次数，卡牌上的伤害xN就是判定N次，比如图3核心区BOSS拿狼打额外攻击不减BOSS的buff层数，多段攻击的牌一下就减好几层
+
