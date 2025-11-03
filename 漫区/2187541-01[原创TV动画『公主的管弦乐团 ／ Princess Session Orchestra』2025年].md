@@ -54,3 +54,13 @@
 还真是，因为躲过了给忘记这茬了</blockquote>
 而且开二段第二次开战，架子鼓也是下死手对着分身去的，乐队都是冲着头给的踢技但被击退或格挡了，骑士的剑技也是冲着脖子去的，看来都深知打断歌不如物理打断人<img src="https://static.stage1st.com/image/smiley/carton2017/466.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖尔  
+##### 209#       发表于 2025-11-4 00:44
+
+这集真幻视白色恶魔了
+你不懂的
+你不解释那我又怎么能明白<img src="https://static.stage1st.com/image/smiley/carton2017/466.png" referrerpolicy="no-referrer">
+
