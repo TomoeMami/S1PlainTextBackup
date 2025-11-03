@@ -174,3 +174,13 @@ stb能不能下手轻点，不然我们美团玩家只能打内战了<img src="h
 
 这几天感觉挂又多了点
 
+
+*****
+
+####  nbwjh0630  
+##### 142#       发表于 2025-11-3 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个新版的末端制导真的太几把恐怖了，MSE王朝下固定翼事故率直线上升
+
+另外俄联邦胜率掉到41%了，这波比哈耶克的大手还狠了。
+
