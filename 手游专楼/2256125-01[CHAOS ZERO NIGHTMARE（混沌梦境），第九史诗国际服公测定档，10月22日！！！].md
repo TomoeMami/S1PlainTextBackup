@@ -2868,3 +2868,15 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 276#       发表于 2025-11-3 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68666605&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-3 01:01</a>
+没用AI这种批话听听就得了，现在棒子手游没几个不用AI辅助的，区别就是修得好和修得敷衍而已，我个人是不 ...</blockquote>
+有些伙伴图的异味都像我自己炼的了……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
