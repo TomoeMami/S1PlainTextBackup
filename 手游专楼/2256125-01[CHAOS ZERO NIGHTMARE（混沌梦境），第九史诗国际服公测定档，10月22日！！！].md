@@ -2904,3 +2904,21 @@ xm修了，2天就修了🌿。不能崩溃删牌了。
 
 我怀疑巧克力棒是用牢大炼的
 
+
+*****
+
+####  Dreki  
+##### 280#       发表于 2025-11-3 11:55
+
+话说这个治疗为什么有的时候可以治san值有的时候不能？
+
+
+*****
+
+####  super_uni  
+##### 281#       发表于 2025-11-3 12:02
+
+笑门滑轨看看就行了，e7一个残废扫荡都憋了好多年才出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO PKM110, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
