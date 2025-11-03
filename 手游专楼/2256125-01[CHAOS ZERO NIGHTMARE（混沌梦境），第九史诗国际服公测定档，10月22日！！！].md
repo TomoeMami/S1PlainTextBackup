@@ -3059,3 +3059,16 @@ N10好像是武器太吃点数
 
 目前未修
 
+
+*****
+
+####  伊布桑  
+##### 295#       发表于 2025-11-4 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68670053&amp;ptid=2256125" target="_blank">shinitakute 发表于 2025-11-3 17:48</a>
+不知道这里能不能讨论内鬼
+
+之前X上看到泄露出一个后手缚的角色 现在就等这个了 ...</blockquote>
+那个好像也不算内鬼，官网上有啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/797a89b0c9b226614b146decbd775b35/image.jpg" referrerpolicy="no-referrer">
+
