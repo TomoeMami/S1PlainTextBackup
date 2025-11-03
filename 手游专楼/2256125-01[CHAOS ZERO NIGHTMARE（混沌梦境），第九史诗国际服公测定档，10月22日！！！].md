@@ -3072,3 +3072,11 @@ N10好像是武器太吃点数
 那个好像也不算内鬼，官网上有啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/28/797a89b0c9b226614b146decbd775b35/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 296#       发表于 2025-11-4 01:46
+
+现在真泄露的角色就一个泰妮了吧
+
