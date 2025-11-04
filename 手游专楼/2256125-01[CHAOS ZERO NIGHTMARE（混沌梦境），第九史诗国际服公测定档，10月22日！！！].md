@@ -3175,3 +3175,29 @@ N10好像是武器太吃点数
 
 不如想想难5百万撤离的bug要怎么收场，这个整不好就真的爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一之江瑞江  
+##### 306#       发表于 2025-11-4 19:35
+
+摸到40级了 这体力缺口真大啊 正式进入摸鱼养成阶段好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  orangee  
+##### 307#       发表于 2025-11-4 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68675229&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-4 18:55</a>
+
+不如想想难5百万撤离的bug要怎么收场，这个整不好就真的爆炸了</blockquote>
+好弄，新赛季的套牌需要重新刷就行了
+
+
+*****
+
+####  21wwwb  
+##### 308#       发表于 2025-11-4 19:42
+
+公告里提米哈游也太变态了吧
+
