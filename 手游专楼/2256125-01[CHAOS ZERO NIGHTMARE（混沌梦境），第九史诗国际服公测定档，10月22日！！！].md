@@ -3090,3 +3090,14 @@ N10好像是武器太吃点数
 
 两个打手都爆炸了，米卡就差一点爆炸，还好跑了，靠着小怪总算救回来了。
 
+
+*****
+
+####  windaria  
+##### 298#       发表于 2025-11-4 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68669850&amp;ptid=2256125" target="_blank">siebten 发表于 2025-11-3 17:06</a>
+
+建了个号没想到还挺欧的 出了俩五星 但是这游戏有pc版吗 手机玩起来太费劲了 我选的亚服 ...</blockquote>
+我就用的pc，要用加速器加速到正确的区服才能行
+
