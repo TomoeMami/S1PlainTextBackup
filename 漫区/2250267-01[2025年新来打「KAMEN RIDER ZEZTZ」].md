@@ -100,3 +100,11 @@
 
 事实证明东映绞尽脑汁找过气糊逼打开中国市场，不如找眼熟的特摄小演员再就业。今年高桥写波瑠姐姐的剧都照常打工，好多人已经期待对璃塔特别关照了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 402#       发表于 2025-11-4 18:08
+
+高桥的女骑看看就行，还是指望一下她加入坂本的假面骑士girls吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
