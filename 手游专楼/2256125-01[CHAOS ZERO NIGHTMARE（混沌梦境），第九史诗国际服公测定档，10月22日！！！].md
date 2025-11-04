@@ -3101,3 +3101,15 @@ N10好像是武器太吃点数
 建了个号没想到还挺欧的 出了俩五星 但是这游戏有pc版吗 手机玩起来太费劲了 我选的亚服 ...</blockquote>
 我就用的pc，要用加速器加速到正确的区服才能行
 
+
+*****
+
+####  super_uni  
+##### 299#       发表于 2025-11-4 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68671639&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-4 01:46</a>
+现在真泄露的角色就一个泰妮了吧</blockquote>
+给自己队友上压力是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from vivo V2445EA, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
