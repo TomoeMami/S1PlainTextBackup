@@ -3113,3 +3113,15 @@ N10好像是武器太吃点数
 
 — from vivo V2445EA, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  TheOccuria  
+##### 300#       发表于 2025-11-4 12:34
+
+这游戏分亚服和全球服？
+
+从ios日服下载的是哪个服的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
