@@ -3368,3 +3368,16 @@ N10好像是武器太吃点数
 目前C基本全有了，没修女，主队狼刀 ...</blockquote>
 考虑未来刷存档的话卡利佩好点吧，深度创伤高难度带老板不带盾还是有点麻烦的，输出方面你这两队都不缺
 
+
+*****
+
+####  fireflies  
+##### 320#       发表于 2025-11-5 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68676369&amp;ptid=2256125" target="_blank">暗口崩子 发表于 2025-11-5 00:15</a>
+
+这波失忆症够普池300自选了，卡利佩 麦格纳 薇若尼卡 三选一有啥更优吗
+
+目前C基本全有了，没修女，主队狼刀 ...</blockquote>
+卡莉佩，可以当本能属性c用
+
