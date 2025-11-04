@@ -81,3 +81,22 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这多久之后的啊，感觉近期完全不会登场啊
 
+
+*****
+
+####  zpl123  
+##### 400#       发表于 2025-11-4 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68674266&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2025-11-4 15:31</a>
+
+这多久之后的啊，感觉近期完全不会登场啊</blockquote>
+起码明年了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  milky658  
+##### 401#       发表于 2025-11-4 16:03
+
+事实证明东映绞尽脑汁找过气糊逼打开中国市场，不如找眼熟的特摄小演员再就业。今年高桥写波瑠姐姐的剧都照常打工，好多人已经期待对璃塔特别关照了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
