@@ -3233,3 +3233,11 @@ N10好像是武器太吃点数
 
 草，典中典的无能小机灵鬼上司，血压起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  涟漪魔法师  
+##### 310#       发表于 2025-11-4 22:34
+
+回档了，gg<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
