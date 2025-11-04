@@ -3301,3 +3301,13 @@ N10好像是武器太吃点数
 
 - 优化'存档资料'管理使用体验并提升操作便捷性
 
+
+*****
+
+####  fireflies  
+##### 314#       发表于 2025-11-4 22:56
+
+我才刚40级，还没刷零号本<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+错过了十万撤离体验
+
