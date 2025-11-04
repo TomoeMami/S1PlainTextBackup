@@ -73,3 +73,11 @@
 
 —— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 399#       发表于 2025-11-4 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这多久之后的啊，感觉近期完全不会登场啊
+
