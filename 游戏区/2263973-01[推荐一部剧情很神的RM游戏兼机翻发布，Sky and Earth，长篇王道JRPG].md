@@ -978,3 +978,13 @@ https://www.freem.ne.jp/win/game/25738
 
 bmg爱好者看完lz的推荐被狠狠地吸引了，等忙完这段时间必须得尝试一下
 
+
+*****
+
+####  bixinhaner  
+##### 85#       发表于 2025-11-5 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68676395&amp;ptid=2263973" target="_blank">InfiniteGyre 发表于 2025-11-5 00:26</a>
+一般来说都是通过支线开启的，支线触发后跟对应NPC对话一下就会提示魔境xxx可以进入了，这之后魔境就出现 ...</blockquote>
+谢谢，找到了，都是看菜单里的支线就行。这游戏看起来没什么阴逼设定，也没什么限定掉落物，不看攻略好像也不会漏什么
+

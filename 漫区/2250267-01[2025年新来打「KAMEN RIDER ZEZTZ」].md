@@ -117,3 +117,11 @@
 高桥写的人设高情商来说都有点从那个年代过来的时代感，体现在女角色上就经常有任性，做作，还要对犯病男角色正义执行的桥段。包括他今年的日剧，女主也有这方面体现
 现在看下来和他配合最好的还是小池建版的鲁邦，几部鲁邦真有种独特的浪漫，劲很大回味无穷<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwftyyyyy  
+##### 404#       发表于 2025-11-5 01:27
+
+这次的女角色都是我喜欢的脸<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
