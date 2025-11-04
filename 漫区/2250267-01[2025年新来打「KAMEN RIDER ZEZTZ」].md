@@ -32,3 +32,18 @@
 
 这作这么冷的嘛<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 395#       发表于 2025-11-4 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68672861&amp;ptid=2250267" target="_blank">milky658 发表于 2025-11-4 11:15</a>
+
+谜语人VLOG剧透
+
+名字叫小“鹰”贤政，按一富士二鹰三茄子的命名规律，谜语人也是条子
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定就是怪事课跑路了的那个后辈？
+
