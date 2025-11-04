@@ -3397,3 +3397,11 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">30抽毛都没出 
 
+
+*****
+
+####  缺德猫  
+##### 323#       发表于 2025-11-5 03:18
+
+这游戏真是吃时间机器，开服这段时间把我搞得头昏脑胀
+
