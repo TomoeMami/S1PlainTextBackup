@@ -927,3 +927,15 @@ https://www.freem.ne.jp/win/game/25738
 
 感谢楼主推荐，激起了我久违的rpg之魂。<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉有  
+##### 80#       发表于 2025-11-4 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68671528&amp;ptid=2263973" target="_blank">kinfox 发表于 2025-11-4 00:19</a>
+耗时150h，除了几个秘境没打完，其他的都打完了。真是一个漫长庞大的游戏体量。也是一段极其难忘的游戏旅程 ...</blockquote>
+150！看来我玩到80h的第七章才一半啊my god
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
