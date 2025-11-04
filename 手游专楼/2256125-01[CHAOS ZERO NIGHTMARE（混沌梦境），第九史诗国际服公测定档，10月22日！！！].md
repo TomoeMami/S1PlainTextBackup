@@ -3389,3 +3389,11 @@ N10好像是武器太吃点数
 
 早该显示肉鸽存档机制数据的，非要出个大bug倒逼才肯把这玩意放出来，真是逆天<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 322#       发表于 2025-11-5 02:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">30抽毛都没出 
+
