@@ -3125,3 +3125,15 @@ N10好像是武器太吃点数
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  伊布桑  
+##### 301#       发表于 2025-11-4 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68673353&amp;ptid=2256125" target="_blank">TheOccuria 发表于 2025-11-4 12:34</a>
+这游戏分亚服和全球服？
+
+从ios日服下载的是哪个服的</blockquote>
+这俩共用一个客户端，你打开进去可以选服
+
