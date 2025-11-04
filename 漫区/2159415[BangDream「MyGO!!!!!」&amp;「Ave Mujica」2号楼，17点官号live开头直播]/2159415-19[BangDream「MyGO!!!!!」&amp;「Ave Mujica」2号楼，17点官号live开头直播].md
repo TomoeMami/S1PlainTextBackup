@@ -42,3 +42,37 @@
 
        [Android] [http://bit.ly/hkmovieAPP](http://bit.ly/hkmovieAPP)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27338#       发表于 2025-11-5 00:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/05/004452s9ygyyglldedrdgd.png" referrerpolicy="no-referrer">
+
+<strong>SnowShot_2025-11-05_00-41-37.png</strong> (414.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-5 00:44 上传
+
+       [https://x.com/bang_dream_info/status/1985648226587066812](https://x.com/bang_dream_info/status/1985648226587066812)
+
+       [https://mygo-movie.bang-dream.com/blu-ray/](https://mygo-movie.bang-dream.com/blu-ray/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/05/004452bbmeats8hzqkj9ha.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-05_00-43-33.jpg</strong> (269.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-5 00:44 上传
+
+       [https://x.com/BUSHIM_ongaku/status/1985648214171910541](https://x.com/BUSHIM_ongaku/status/1985648214171910541)
+
+       [https://bushiroad-music.com/topics/19452/](https://bushiroad-music.com/topics/19452/)
+
