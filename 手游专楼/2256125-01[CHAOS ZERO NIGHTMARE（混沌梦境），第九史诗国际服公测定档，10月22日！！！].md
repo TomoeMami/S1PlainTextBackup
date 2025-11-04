@@ -3381,3 +3381,11 @@ N10好像是武器太吃点数
 目前C基本全有了，没修女，主队狼刀 ...</blockquote>
 卡莉佩，可以当本能属性c用
 
+
+*****
+
+####  伊布桑  
+##### 321#       发表于 2025-11-5 01:11
+
+早该显示肉鸽存档机制数据的，非要出个大bug倒逼才肯把这玩意放出来，真是逆天<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
