@@ -3311,3 +3311,33 @@ N10好像是武器太吃点数
 
 错过了十万撤离体验
 
+
+*****
+
+####  叩叩叩  
+##### 315#       发表于 2025-11-4 23:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">突然想起来百丽儿这套我刷完还没爽过呢
+
+*****
+
+####  三谷歩夢  
+##### 316#       发表于 2025-11-4 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68676174&amp;ptid=2256125" target="_blank">叩叩叩 发表于 2025-11-4 23:07</a>
+
+突然想起来百丽儿这套我刷完还没爽过呢</blockquote>
+没事，今天不删改，过段时间删改，还能爽一会<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  涟漪魔法师  
+##### 317#       发表于 2025-11-4 23:13
+
+测试服，限时活动，大量奖励。刚刚赶紧把深渊打了
+
+全体补偿，刷档被调整得貌似还有额外的
+
+国服能有这种待遇吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
