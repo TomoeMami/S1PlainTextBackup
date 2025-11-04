@@ -3341,3 +3341,17 @@ N10好像是武器太吃点数
 
 国服能有这种待遇吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗口崩子  
+##### 318#       发表于 2025-11-5 00:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波失忆症够普池300自选了，卡利佩 麦格纳 薇若尼卡 三选一有啥更优吗
+
+目前C基本全有了，没修女，主队狼刀米卡，副队梅玲兔枪梅伊，替补小春
+
+卡利佩的话暂时只有小春能用上，主要是怕未来高压本没盾寸步难行
+
+维若妮卡 梅玲小春都能用，但是不确定有啥具体提升
+

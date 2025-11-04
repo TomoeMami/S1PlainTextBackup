@@ -957,3 +957,16 @@ https://www.freem.ne.jp/win/game/25738
 
 刚玩第一章说到魔境，这个怎么找呢，我看攻略说恩惠之泉随行的时候就能进，但是玩到离开城镇也没看到魔境在哪
 
+
+*****
+
+####  InfiniteGyre  
+##### 83#       发表于 2025-11-5 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68676097&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-4 22:45</a>
+刚玩第一章说到魔境，这个怎么找呢，我看攻略说恩惠之泉随行的时候就能进，但是玩到离开城镇也没看到魔境在 ...</blockquote>
+一般来说都是通过支线开启的，支线触发后跟对应NPC对话一下就会提示魔境xxx可以进入了，这之后魔境就出现在地图了
+顺便一提第一个魔境是在初始村东边不是南边
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
