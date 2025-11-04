@@ -949,3 +949,11 @@ https://www.freem.ne.jp/win/game/25738
 
 反正越玩越希望这游戏能换个更好的商业底座再加些要素进来就再无遗憾了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bixinhaner  
+##### 82#       发表于 2025-11-4 22:45
+
+刚玩第一章说到魔境，这个怎么找呢，我看攻略说恩惠之泉随行的时候就能进，但是玩到离开城镇也没看到魔境在哪
+
