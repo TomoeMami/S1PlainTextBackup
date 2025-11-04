@@ -939,3 +939,13 @@ https://www.freem.ne.jp/win/game/25738
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  永远的访客  
+##### 81#       发表于 2025-11-4 13:02
+
+每天只玩30-45分钟，过1-2个区域打个1-2场boss/精英，等我通关估计要2026年底
+
+反正越玩越希望这游戏能换个更好的商业底座再加些要素进来就再无遗憾了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
