@@ -988,3 +988,15 @@ bmg爱好者看完lz的推荐被狠狠地吸引了，等忙完这段时间必须
 一般来说都是通过支线开启的，支线触发后跟对应NPC对话一下就会提示魔境xxx可以进入了，这之后魔境就出现 ...</blockquote>
 谢谢，找到了，都是看菜单里的支线就行。这游戏看起来没什么阴逼设定，也没什么限定掉落物，不看攻略好像也不会漏什么
 
+
+*****
+
+####  PigMourne  
+##### 86#       发表于 2025-11-5 01:50
+
+ 本帖最后由 PigMourne 于 2025-11-5 01:55 编辑 
+
+这游戏前期剧情给人期待值真拉挺高的，其他rm游戏要么是没什么剧情要么是太糊比搞笑了，像这种正经王道写法真挺少见的。虽然节奏慢了点，但脚本看起来很舒服，cg也画得很好（就是不知道能画这种cg为什么更简单的人物头像却要等同人补完<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">），有种梦回xb的感觉
+
+当然还是要多亏楼主的汉化<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
