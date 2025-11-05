@@ -118,3 +118,18 @@ MuMu-20251103-180326-706.jpg
 
 这样下来月p要抽几宝比较好
 
+
+*****
+
+####  khxooo  
+##### 47521#       发表于 2025-11-5 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68681162&amp;ptid=1712412" target="_blank">ackroyd 发表于 2025-11-5 22:18</a>
+
+手上有剑蓝呆/狂大公/杰克/水伊吹/弓闪闪/超人熊/奥伯龙/梅林/c呆/孔明   都是一宝  
+
+石头两井
+
+接下来抽月P ...</blockquote>
+看抽的情况怎样，如果抽的超过600就先1宝，然后福袋拼一下2宝。
+
