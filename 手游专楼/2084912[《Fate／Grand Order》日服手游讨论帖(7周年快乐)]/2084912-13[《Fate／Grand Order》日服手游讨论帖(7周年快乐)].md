@@ -32,3 +32,37 @@
 
 单抽，又是你雪山樱，来个黑枪都好啊<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 18585#       发表于 2025-11-5 17:10
+
+你游十年了，我居然一个想给冠位的弓阶都找不出<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18586#       发表于 2025-11-5 18:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">梭哈 一个五星没出 GG
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18587#       发表于 2025-11-5 19:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">报纸池40连全是二姐！
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">但是十连出了弓提妈
+可以安心等戴冠了
+
+*****
+
+####  khxooo  
+##### 18588#       发表于 2025-11-6 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68679772&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-11-5 17:10</a>
+
+你游十年了，我居然一个想给冠位的弓阶都找不出</blockquote>
+弓凛也不想吗？
+
