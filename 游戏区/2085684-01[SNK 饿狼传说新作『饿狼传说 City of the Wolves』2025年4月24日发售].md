@@ -130,3 +130,27 @@
 
 这个春丽的建模质量怎么比一期角色好这么多？
 
+
+*****
+
+####  风夏  
+##### 600#       发表于 2025-11-5 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68680739&amp;ptid=2085684" target="_blank">蕾丝控 发表于 2025-11-5 20:50</a>
+这个春丽的建模质量怎么比一期角色好这么多？</blockquote>
+卡大哥技术扶贫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  蕾丝控  
+##### 601#       发表于 2025-11-5 21:34
+
+<blockquote>风夏 发表于 2025-11-5 21:27
+卡大哥技术扶贫
+
+—— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99</blockquote>
+我怀疑狼城刚立项开工的时候石油佬的钱还没到账。
+

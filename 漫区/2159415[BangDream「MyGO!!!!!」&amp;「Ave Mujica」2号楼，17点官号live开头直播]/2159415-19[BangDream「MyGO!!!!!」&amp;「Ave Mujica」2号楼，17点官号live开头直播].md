@@ -100,3 +100,11 @@
 (Mercedes-Benz Arena)
 <img src="https://p.sda1.dev/28/5238ffa81ad6db1961051c3b05cb2260/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone0000  
+##### 27341#       发表于 2025-11-5 21:27
+
+周五的票应该比较好抢吧（
+
