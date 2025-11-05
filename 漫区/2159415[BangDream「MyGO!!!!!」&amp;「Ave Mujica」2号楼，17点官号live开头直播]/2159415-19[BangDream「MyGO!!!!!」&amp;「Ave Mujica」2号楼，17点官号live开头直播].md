@@ -84,3 +84,19 @@
 
 <img src="https://p.sda1.dev/28/83d38f8f8c4ca2d54803ddb9bb0dbd8c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27340#       发表于 2025-11-5 17:04
+
+来了沪萝，看看是全开还是三面<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+・日程
+2026年1月16日(周五)・17日(周六)
+
+・会场
+上海·梅赛德斯-奔驰文化中心
+(Mercedes-Benz Arena)
+<img src="https://p.sda1.dev/28/5238ffa81ad6db1961051c3b05cb2260/image.jpg" referrerpolicy="no-referrer">
+
