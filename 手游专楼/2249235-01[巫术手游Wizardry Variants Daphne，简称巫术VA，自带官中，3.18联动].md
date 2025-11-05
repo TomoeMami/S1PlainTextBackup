@@ -631,3 +631,14 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骑士试炼要来了 记得准备好俩骑士
 
+
+*****
+
+####  电脑死机  
+##### 562#       发表于 2025-11-5 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68680272&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2025-11-5 18:59</a>
+
+骑士试炼要来了 记得准备好俩骑士</blockquote>
+舍不得把王女转回去，打算找狼叔和罐头姐试试看了
+
