@@ -3566,3 +3566,11 @@ N10好像是武器太吃点数
 意思便利性机制不是决定性的？</blockquote>
 除了某些极度依赖自身机制的角色（比如黑洞哥），绝大部分角色的命座提升不大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">具体可以看开服小春风评的变化
 
+
+*****
+
+####  powerpyc  
+##### 338#       发表于 2025-11-6 00:48
+
+所以现在还能刷存档提升战力么？深渊打不过想提升存档战力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
