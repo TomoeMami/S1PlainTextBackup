@@ -3414,3 +3414,16 @@ N10好像是武器太吃点数
 问下这游戏有命座吗？
 满命区别打吗？尸块机制还是纯加数值？
 
+
+*****
+
+####  暗口崩子  
+##### 325#       发表于 2025-11-5 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68676894&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-5 08:52</a>
+
+问下这游戏有命座吗？
+
+满命区别打吗？尸块机制还是纯加数值？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不仅有，而且确实有机制性提升
+
