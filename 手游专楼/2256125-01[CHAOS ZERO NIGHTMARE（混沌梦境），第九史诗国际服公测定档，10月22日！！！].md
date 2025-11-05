@@ -3606,3 +3606,14 @@ N10好像是武器太吃点数
 
 这游戏玩进去了还真上头，研究几个手上的角色，今天把这期次元打过去了，第十关还挺险的小刀一直丢到最后一把才踩着12T的线过去了，不过我这个炼金和米卡是昨天BUG前刷的，后面没BUG的卡组还没那么强<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  powerpyc  
+##### 341#       发表于 2025-11-6 04:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68681762&amp;ptid=2256125" target="_blank">镜像导航图 发表于 2025-11-6 01:51</a>
+
+这游戏玩进去了还真上头，研究几个手上的角色，今天把这期次元打过去了，第十关还挺险的小刀一直丢到最后 ...</blockquote>
+牛逼啊，楼友也是卡在50级的么
+
