@@ -3553,3 +3553,16 @@ N10好像是武器太吃点数
 
 绝大部分提升不如神闪闪的好
 
+
+*****
+
+####  patema  
+##### 337#       发表于 2025-11-5 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68680084&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-5 18:21</a>
+
+尸块机制但是满命区别不大？
+
+意思便利性机制不是决定性的？</blockquote>
+除了某些极度依赖自身机制的角色（比如黑洞哥），绝大部分角色的命座提升不大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">具体可以看开服小春风评的变化
+
