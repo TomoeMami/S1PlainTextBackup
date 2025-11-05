@@ -623,3 +623,11 @@ boss前排中间那个掉血了会隐身 需要法术来解除</blockquote>
 抽到了个10BP的男忍 问下加点什么好</blockquote>
 看什么个体，一般无脑加力
 
+
+*****
+
+####  茄子自走炮  
+##### 561#       发表于 2025-11-5 18:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骑士试炼要来了 记得准备好俩骑士
+
