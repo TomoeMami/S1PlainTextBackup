@@ -3480,3 +3480,21 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">我之前的神档就是这么没的，别人受益我受害
 
+
+*****
+
+####  Hchan  
+##### 331#       发表于 2025-11-5 16:37
+
+原本想着反正深渊打满了，新赛季前可以存粹的享受肉鸽的快乐
+
+结果新角色根本拉不起来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dio999  
+##### 332#       发表于 2025-11-5 16:39
+
+刷了下存档把第一个深渊满星了，第二个打到9层被初见杀了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+话说两个深渊都是感觉第七层有难度，第八层能满星第七层满不了
+
