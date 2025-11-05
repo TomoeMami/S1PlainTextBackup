@@ -3538,3 +3538,18 @@ N10好像是武器太吃点数
 意思便利性机制不是决定性的？</blockquote>
 刷的卡组存档影响更大，因为可以强化卡牌和加中立牌
 
+
+*****
+
+####  icelord  
+##### 336#       发表于 2025-11-5 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68680084&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-5 18:21</a>
+
+尸块机制但是满命区别不大？
+
+意思便利性机制不是决定性的？</blockquote>
+是的 基本不如你灵光不对影响大
+
+绝大部分提升不如神闪闪的好
+
