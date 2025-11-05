@@ -3510,3 +3510,18 @@ N10好像是武器太吃点数
 
 —— 来自 Xiaomi M2012K11AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 334#       发表于 2025-11-5 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68677968&amp;ptid=2256125" target="_blank">icelord 发表于 2025-11-5 11:36</a>
+问下这游戏有命座吗？
+
+满命区别打吗？尸块机制还是纯加数值？
+
+有</blockquote>
+尸块机制但是满命区别不大？
+意思便利性机制不是决定性的？
+
