@@ -108,3 +108,14 @@
 
 周五的票应该比较好抢吧（
 
+
+*****
+
+####  rollingusagi  
+##### 27342#       发表于 2025-11-6 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68680944&amp;ptid=2159415" target="_blank">yone0000 发表于 2025-11-5 21:27</a>
+
+周五的票应该比较好抢吧（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好不好抢主要看人数，抢的人多那就不用猜测哪天好抢了都一样的，抢的人少那就是真的好抢，像MacrossF的，大麦上就一万人想看，开个虹馆那真是随便抢，二开开票过了一分钟刷进去都能看到剩票的
+

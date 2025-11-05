@@ -143,3 +143,14 @@ MuMu-20251103-180326-706.jpg
 
 我明年的抽卡计划就是福尔摩斯1宝、弓教授1宝、狂莉莉丝2宝、果子龙1宝、所长5宝、弓提妈1宝、剑心1宝了。
 
+
+*****
+
+####  ackroyd  
+##### 47523#       发表于 2025-11-6 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68681454&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-11-5 23:45</a>
+
+看抽的情况怎样，如果抽的超过600就先1宝，然后福袋拼一下2宝。</blockquote>
+ok谢谢                     
+
