@@ -3582,3 +3582,27 @@ N10好像是武器太吃点数
 
 第四图的那个蛋事件也太离谱了吧。两次在这翻车，最后的8掷骰都低于8。然后手牌还一直抽到米卡的，抽取牌里还塞满火
 
+
+*****
+
+####  镜像导航图  
+##### 340#       发表于 2025-11-6 01:51
+
+<img src="https://img.stage1st.com/forum/202511/06/014852ou6ca68u8xy6ruyq.png" referrerpolicy="no-referrer">
+
+<strong>b0cb89ec-3880-4023-9dc2-decf8c9c5737.png</strong> (3.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-11-6 01:48 上传
+
+<img src="https://img.stage1st.com/forum/202511/06/014856x67gfegtxstgg5nx.png" referrerpolicy="no-referrer">
+
+<strong>4c43ac0c-d5bf-4ad8-b65a-7111a75d1c50.png</strong> (3.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-11-6 01:48 上传
+
+这游戏玩进去了还真上头，研究几个手上的角色，今天把这期次元打过去了，第十关还挺险的小刀一直丢到最后一把才踩着12T的线过去了，不过我这个炼金和米卡是昨天BUG前刷的，后面没BUG的卡组还没那么强<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
