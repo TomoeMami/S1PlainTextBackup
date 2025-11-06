@@ -3617,3 +3617,11 @@ N10好像是武器太吃点数
 这游戏玩进去了还真上头，研究几个手上的角色，今天把这期次元打过去了，第十关还挺险的小刀一直丢到最后 ...</blockquote>
 牛逼啊，楼友也是卡在50级的么
 
+
+*****
+
+####  qixinno2  
+##### 342#       发表于 2025-11-6 11:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又非又咸又菜 直接不折腾了 现在就是上线刷波材料用完体力下线
+
