@@ -119,3 +119,16 @@
 周五的票应该比较好抢吧（</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好不好抢主要看人数，抢的人多那就不用猜测哪天好抢了都一样的，抢的人少那就是真的好抢，像MacrossF的，大麦上就一万人想看，开个虹馆那真是随便抢，二开开票过了一分钟刷进去都能看到剩票的
 
+
+*****
+
+####  织部琴音  
+##### 27343#       发表于 2025-11-6 07:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68679733&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-11-5 17:04</a>
+
+沪萝来了，看看是全开还是三面
+
+・日程</blockquote>
+鸡狗是对邦开两天梅奔，萝直接梅奔两天感觉有点冒进啊，正常应该是和ppp拼个两天
+
