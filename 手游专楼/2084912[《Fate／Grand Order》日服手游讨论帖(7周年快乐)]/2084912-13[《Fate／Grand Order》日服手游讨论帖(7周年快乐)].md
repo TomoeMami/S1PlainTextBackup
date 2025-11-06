@@ -171,3 +171,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">all in兽尼 寄了！ 为什么萌新就没欧过！
 
+
+*****
+
+####  poor  
+##### 18595#       发表于 2025-11-6 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68685184&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-11-6 17:47</a>
+查了一下Chaldea，白纸钱本和普通钱本极级掉落QP都是330W，而百星冠位本掉落QP是390W。
+
+只考虑刷钱的话等 ...</blockquote>
+谢谢，原来白纸前本早就退环境了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">考虑副产出还是刷冠本好了
+无限池的钱也就续个命，得打柱子才够回血
+
