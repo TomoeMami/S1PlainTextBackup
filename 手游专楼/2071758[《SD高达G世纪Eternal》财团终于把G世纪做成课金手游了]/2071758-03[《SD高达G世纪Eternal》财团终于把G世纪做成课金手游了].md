@@ -556,3 +556,31 @@ aoz还是那个问题，目前UR都送机师的，你掏银雷可以，谁开？
 
 以后可以尝试出一些没原配驾驶员的ur，很多设定里的强力机体都没原配驾驶员，到时候数值可以拉得强一点，玩家自己想办法配
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3013#       发表于 2025-11-6 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68683235&amp;ptid=2071758" target="_blank">alialex 发表于 2025-11-6 11:41</a>
+这种自己想的倒是说一下，别搞得像官方确定的预告似得
+
+0080目前还没在官方的更新列表里 ...</blockquote>
+其实W也还没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都是合理猜测
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  电脑死机  
+##### 3014#       发表于 2025-11-6 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68678274&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-5 12:21</a>
+
+哎，这次狼王池吃井
+
+年底圣诞节抽不起闪哈和掉毛了</blockquote>
+30发捞到一只狼王，溜了
+
+这次爬塔，20层派了狼王和绿独角兽上，最后狼王一套打完把哈姆太郎干剩1w-的血，独角兽补刀完事，输出确实非常猛
+
