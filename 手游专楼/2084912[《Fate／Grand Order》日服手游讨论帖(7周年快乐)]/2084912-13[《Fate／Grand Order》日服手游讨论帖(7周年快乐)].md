@@ -205,3 +205,13 @@ syl，所长4补5已经砸了600石进去没见一丝水花了
 </blockquote>
 太恐怖了艹
 
+
+*****
+
+####  jackyhuang  
+##### 18598#       发表于 2025-11-6 19:55
+
+还好先清了体力<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
