@@ -140,3 +140,12 @@
 
 <img src="https://p.sda1.dev/28/cdd6d1c713b12cc3eb5fef26d75f4f19/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27345#       发表于 2025-11-6 21:16
+
+[【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你06 作为专业音乐人-哔哩哔哩番剧】](https://b23.tv/ep2341038)
+<img src="https://p.sda1.dev/28/2d0f63976042cdfbe5de40410b019deb/image.jpg" referrerpolicy="no-referrer">
+
