@@ -66,3 +66,14 @@
 你游十年了，我居然一个想给冠位的弓阶都找不出</blockquote>
 弓凛也不想吗？
 
+
+*****
+
+####  森兰丸  
+##### 18589#       发表于 2025-11-6 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684267&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-11-6 15:02</a>
+
+小时候还没那么多ex</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞这个核弹很早就出了....只不过当时真没想到之后EX阶会井喷式的出这么多
+
