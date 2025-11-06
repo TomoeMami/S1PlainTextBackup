@@ -87,3 +87,60 @@
 弓凛只有一宝</blockquote>
 一宝不也照打<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 18591#       发表于 2025-11-6 17:30
+
+史诗级名场面，106池大混战：
+
+<img src="https://img.stage1st.com/forum/202511/06/173049rxu9nrue89mv9dzm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251106_172612.jpg</strong> (284.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-6 17:30 上传
+
+<img src="https://img.stage1st.com/forum/202511/06/172832hno3nr7nr7u3t77u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251106_172636.jpg</strong> (247.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-6 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202511/06/172834bzkpbqpckjkhd1bb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251106_172654.jpg</strong> (228.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-6 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202511/06/172837pbrcl33rcw42l9b2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251106_172714.jpg</strong> (243.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-6 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202511/06/172838jv62883edtttvf3v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251106_172734.jpg</strong> (158.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-6 17:28 上传
+
+眼都看花了，这卡池数太过夸张...
+
+建议开终章的时候再整个全角色up，然后去申请吉尼斯世界纪录...
+
