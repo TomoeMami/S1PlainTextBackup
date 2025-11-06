@@ -3671,3 +3671,24 @@ N10好像是武器太吃点数
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  powerpyc  
+##### 348#       发表于 2025-11-6 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684066&amp;ptid=2256125" target="_blank">VioletHill 发表于 2025-11-6 14:26</a>
+
+删掉的卡还会给你塞回来，负反馈很强</blockquote>
+草，我说为什么我删掉的护盾卡又回来了。所以这存档机制到底是啥
+
+
+*****
+
+####  Dreki  
+##### 349#       发表于 2025-11-6 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684121&amp;ptid=2256125" target="_blank">powerpyc 发表于 2025-11-6 14:37</a>
+草，我说为什么我删掉的护盾卡又回来了。所以这存档机制到底是啥</blockquote>
+他有个内置的算分系统，拿新卡和删卡都有分，超了地图的限制之后就给你塞卡或者删卡，说是以后才会公开这个系统
+
