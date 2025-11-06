@@ -3652,3 +3652,22 @@ N10好像是武器太吃点数
 
 等等，这游戏存档回来之后还会掉卡？
 
+
+*****
+
+####  VioletHill  
+##### 346#       发表于 2025-11-6 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684020&amp;ptid=2256125" target="_blank">powerpyc 发表于 2025-11-6 14:15</a>
+等等，这游戏存档回来之后还会掉卡？</blockquote>
+删掉的卡还会给你塞回来，负反馈很强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orangee  
+##### 347#       发表于 2025-11-6 14:28
+
+这周一天两把到现在没刷到过梅玲的攻击牌移动回手+火属性连击腿的档，这是有多霉……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
