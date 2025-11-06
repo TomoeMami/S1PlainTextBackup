@@ -3692,3 +3692,19 @@ N10好像是武器太吃点数
 草，我说为什么我删掉的护盾卡又回来了。所以这存档机制到底是啥</blockquote>
 他有个内置的算分系统，拿新卡和删卡都有分，超了地图的限制之后就给你塞卡或者删卡，说是以后才会公开这个系统
 
+
+*****
+
+####  yyccq  
+##### 350#       发表于 2025-11-6 15:03
+
+<img src="https://img.stage1st.com/forum/202511/06/150202til1gpu331u3l4la.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2146.jpeg</strong> (477.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-6 15:02 上传
+
+刷到个机关枪女主的档，配上找牌的辅助打深渊还挺爽的，可惜三花没有神闪减费，不过神闪了可能就带不出来了
+
