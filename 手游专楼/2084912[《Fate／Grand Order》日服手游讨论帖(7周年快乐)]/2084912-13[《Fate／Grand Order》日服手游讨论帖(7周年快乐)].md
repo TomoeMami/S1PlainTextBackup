@@ -77,3 +77,13 @@
 小时候还没那么多ex</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞这个核弹很早就出了....只不过当时真没想到之后EX阶会井喷式的出这么多
 
+
+*****
+
+####  khxooo  
+##### 18590#       发表于 2025-11-6 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684093&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-11-6 14:32</a>
+弓凛只有一宝</blockquote>
+一宝不也照打<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
