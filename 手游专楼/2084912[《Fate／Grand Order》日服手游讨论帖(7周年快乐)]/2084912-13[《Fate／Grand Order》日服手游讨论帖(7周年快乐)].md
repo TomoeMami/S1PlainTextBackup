@@ -223,3 +223,16 @@ syl，所长4补5已经砸了600石进去没见一丝水花了
 
 怎么又清缓存了...
 
+
+*****
+
+####  khxooo  
+##### 18600#       发表于 2025-11-7 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68685184&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-11-6 17:47</a>
+
+查了一下Chaldea，白纸钱本和普通钱本极级掉落QP都是330W，而百星冠位本掉落QP是390W。
+
+只考虑刷钱的话等 ...</blockquote>
+这次12月活动应该不是无限池了吧，估计和主线有关系。
+
