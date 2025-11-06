@@ -3708,3 +3708,17 @@ N10好像是武器太吃点数
 
 刷到个机关枪女主的档，配上找牌的辅助打深渊还挺爽的，可惜三花没有神闪减费，不过神闪了可能就带不出来了
 
+
+*****
+
+####  暗口崩子  
+##### 351#       发表于 2025-11-6 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684072&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-6 14:28</a>
+
+这周一天两把到现在没刷到过梅玲的攻击牌移动回手+火属性连击腿的档，这是有多霉……
+
+—— 来自 鹅球 v3.3 ...</blockquote>
+刚打了一把回收+神闪ap1，还复制上了，二面翻车了想着这个档也挺强了
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一看给塞了一张盾
+
