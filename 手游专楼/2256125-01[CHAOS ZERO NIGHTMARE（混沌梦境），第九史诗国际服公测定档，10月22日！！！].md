@@ -3722,3 +3722,17 @@ N10好像是武器太吃点数
 刚打了一把回收+神闪ap1，还复制上了，二面翻车了想着这个档也挺强了
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一看给塞了一张盾
 
+
+*****
+
+####  orangee  
+##### 352#       发表于 2025-11-6 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68684656&amp;ptid=2256125" target="_blank">暗口崩子 发表于 2025-11-6 16:15</a>
+刚打了一把回收+神闪ap1，还复制上了，二面翻车了想着这个档也挺强了
+
+一看给塞了一张盾 ...</blockquote>
+盾还好啦，需要的时候也能多踢一脚
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
