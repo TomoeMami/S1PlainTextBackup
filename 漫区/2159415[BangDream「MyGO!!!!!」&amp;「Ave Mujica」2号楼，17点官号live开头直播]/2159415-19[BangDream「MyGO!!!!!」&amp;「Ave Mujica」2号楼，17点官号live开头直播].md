@@ -173,3 +173,17 @@
 下半场
 <img src="https://p.sda1.dev/28/f4ce55f1ba99b7505867a54e6151d7fe/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27347#       发表于 2025-11-6 21:48
+
+BanG Dream! 10th Anniversary LIVE
+「In the name of BanG Dream!」
+主视觉图公开
+<img src="https://p.sda1.dev/28/3ccb7427c178ac25d813068222434348/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/9a6bd7ce80c290ad521472465782f9dc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/ddd0c58176e7d58d47f4342c668b3c3d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/5f110ffd7aa5e6ae10261e120df04710/image.jpg" referrerpolicy="no-referrer">
+
