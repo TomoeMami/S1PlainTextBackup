@@ -547,3 +547,19 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 
 1T模型本地用不了啊，100到200范围的模型还是gpt和qwen还有GLA的天下吧？
 
+
+*****
+
+####  mintslime  
+##### 50#       发表于 2025-11-7 22:03
+
+<blockquote>malisa 发表于 2025-11-7 20:09
+对 我交钱了 一般是app
+
+我有些weekly和报告还离不开 Gemini 
+
+写作能力gpt太差了 ...</blockquote>
+能说一下你具体的使用方法和prompt的大致写法吗？以我个人的体验来说，我觉得gemini对gpt5除了幻觉少点外基本没有优势。
+
+推荐要用gemini直接用aistudio网页端爽白嫖，连蕉都可以无限用。
+
