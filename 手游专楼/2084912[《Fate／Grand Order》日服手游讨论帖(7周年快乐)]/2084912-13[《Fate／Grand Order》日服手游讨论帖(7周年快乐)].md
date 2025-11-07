@@ -236,3 +236,16 @@ syl，所长4补5已经砸了600石进去没见一丝水花了
 只考虑刷钱的话等 ...</blockquote>
 这次12月活动应该不是无限池了吧，估计和主线有关系。
 
+
+*****
+
+####  Jamaisvu  
+##### 18601#       发表于 2025-11-7 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68686902&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-11-7 00:52</a>
+
+这次12月活动应该不是无限池了吧，估计和主线有关系。</blockquote>
+主线预热不影响活动形式吧，去年圣诞有无限池（阿比）和柱子战（幻月），今年肯定也有个值得刷的活动。
+
+假如圣诞实装人王盖提亚，然后把他扔抽奖界面被迫营业念台词，想想就好玩<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
