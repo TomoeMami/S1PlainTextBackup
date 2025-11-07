@@ -1046,3 +1046,11 @@ ed里也没写有别的画师，但看这作者别的作品明显不是自己画
 昨晚肝到后半夜打完第二章，主线一展开根本停不下来了。现在8个多小时，感觉第二章量比第一章多了很多，后 ...</blockquote>
 后面的确会有特别特别长的一章…………你甚至有一种是不是大结局了的感觉<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  despotnanoha  
+##### 91#       发表于 2025-11-7 23:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">感谢楼主感谢楼主。不过说起来，我这种不叮不玩的脑瘫选手，自从发现mtool可以给主角加一串对面BOSS的技能之后，突然觉得基于RM的RPG游戏满足了我拿BOSS技能轰死对面的幻想，真是太好了，让我看看这游戏的BOSS技能有多酷炫先
+
