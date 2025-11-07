@@ -3817,3 +3817,13 @@ N10好像是武器太吃点数
 
 战斗的打击感真是够好的 弄了个标记的卡 标记一下鼠兔哐哐两枪 回合结束后再哐哐两枪 把怪打成血花 看她开枪的动作就很有感觉
 
+
+*****
+
+####  orangee  
+##### 360#       发表于 2025-11-7 13:34
+
+维神在肉鸽里表现还是比梅玲稳定多了，梅玲没攻防一体的时候感觉和没这人一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
