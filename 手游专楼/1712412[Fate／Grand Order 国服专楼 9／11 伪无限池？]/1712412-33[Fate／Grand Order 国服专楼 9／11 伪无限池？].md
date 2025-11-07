@@ -162,3 +162,11 @@ ok谢谢                     
 
 冲刺失败，果然也到了赛博阳痿了，连看man的放小车的过场动画都很累。
 
+
+*****
+
+####  flyzzhj  
+##### 47525#       发表于 2025-11-7 08:17
+
+哎，早上抽卡读了2次条都是4星，服了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
