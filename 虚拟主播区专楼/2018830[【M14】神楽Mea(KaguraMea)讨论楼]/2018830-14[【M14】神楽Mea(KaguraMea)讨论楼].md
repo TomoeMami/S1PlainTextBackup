@@ -692,3 +692,14 @@ download.shmilyhua.com/archive/twitch/audio_only/
 
 —— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sino__unnko3  
+##### 19829#       发表于 2025-11-7 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68691427&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-11-7 21:36</a>
+这么刚好吗，难道twitch还能实时处理版权音频，不过yt-dlp处理twitch好像一直问题多多。
+总之又加了个str ...</blockquote>
+yt dlp是这样，我也在找替代方案
+
