@@ -600,3 +600,14 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 
 你上面提到的功能都有，可以加git来保存历史迅速回滚，可以一键切换模型，也许会更符合你的需求？
 
+
+*****
+
+####  lambl  
+##### 53#       发表于 2025-11-8 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68691536&amp;ptid=2266645" target="_blank">mintslime 发表于 2025-11-7 22:03</a>
+
+能说一下你具体的使用方法和prompt的大致写法吗？以我个人的体验来说，我觉得gemini对gpt5除了幻觉少点外 ...</blockquote>
+哪有无限用啊，只能100句啊，我都用好几次超限了。
+
