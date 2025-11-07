@@ -4703,3 +4703,11 @@ https://weibo.com/5343568641/5218146195083036
 
 —— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  car123  
+##### 48#       发表于 2025-11-7 14:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这个系列出场人物多，而且时间顺序有点乱，这样放一块剧情倒是清晰了不少（另外作者的xp绝对是覆面伤痕脸）
+
