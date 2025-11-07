@@ -3843,3 +3843,11 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">看了下新角色剧透要搭吉他，哪来练2个人的资源啊
 
+
+*****
+
+####  qixinno2  
+##### 363#       发表于 2025-11-7 22:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非现在素材本产出翻三倍甚至五倍 不然爱JB出啥出啥 根本没资源练 我现在手里的还都是残疾状态
+
