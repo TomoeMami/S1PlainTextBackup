@@ -1035,3 +1035,14 @@ ed里也没写有别的画师，但看这作者别的作品明显不是自己画
 昨晚肝到后半夜打完第二章，主线一展开根本停不下来了。现在8个多小时，感觉第二章量比第一章多了很多，后 ...</blockquote>
 我只能告诉你3章比2章短，4章又比3章短，5章开始我还没打完<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kinfox  
+##### 90#       发表于 2025-11-7 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68688808&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-7 12:30</a>
+
+昨晚肝到后半夜打完第二章，主线一展开根本停不下来了。现在8个多小时，感觉第二章量比第一章多了很多，后 ...</blockquote>
+后面的确会有特别特别长的一章…………你甚至有一种是不是大结局了的感觉<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
