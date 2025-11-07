@@ -677,3 +677,18 @@ download.shmilyhua.com/archive/twitch/audio_only/
 
 5:10:52到5:11:53这一分钟
 
+
+*****
+
+####  shmilyhua  
+##### 19828#       发表于 2025-11-7 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68690565&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-11-7 17:59</a>
+感谢留档，但是奇迹般的第二次提女风那段正好没有录上，也可能是我解码器不对？
+
+5:10:52到5:11:53这一分 ...</blockquote>
+这么刚好吗，难道twitch还能实时处理版权音频。
+总之又加了个streamlink录制，希望能提高点容灾能力。
+
+—— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
