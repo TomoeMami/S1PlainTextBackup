@@ -11250,12 +11250,12 @@
     "update": false
   },
   "2186945": {
-    "totalreply": 822,
+    "totalreply": 823,
     "title": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
     "newtitle": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
-    "lastedit": 1754817371,
+    "lastedit": 1762546087,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2188167": {
@@ -16970,6 +16970,15 @@
     "newtitle": "[刚知道西南地区还有个铁改余的荒诞事]",
     "lastedit": 1762538534,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252859": {
+    "totalreply": 364,
+    "title": "[《最终幻想战略版 伊瓦利斯战记》2025.9.30]",
+    "newtitle": "[《最终幻想战略版 伊瓦利斯战记》2025.9.30]",
+    "lastedit": 1762545741,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
