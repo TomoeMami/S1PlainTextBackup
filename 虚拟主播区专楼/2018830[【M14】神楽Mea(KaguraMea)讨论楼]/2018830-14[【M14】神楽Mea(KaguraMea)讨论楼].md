@@ -662,3 +662,18 @@ download.shmilyhua.com/archive/twitch/audio_only/
 
 —— 来自 Google Pixel Fold, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  TiHaru  
+##### 19827#       发表于 2025-11-7 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68688935&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-11-7 12:51</a>
+
+download.shmilyhua.com/archive/twitch/audio_only/
+
+录的audio_only，但是twitch会塞广告倒计时画面，源在 ...</blockquote>
+感谢留档，但是奇迹般的第二次提女风那段正好没有录上，也可能是我解码器不对？
+
+5:10:52到5:11:53这一分钟
+
