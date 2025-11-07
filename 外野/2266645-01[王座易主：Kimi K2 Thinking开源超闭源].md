@@ -470,3 +470,20 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 一个是比较懒 其实联网搜索不是很勤快,很多时候信息会比较旧,特别是写weekly的时候,日期稍不注意就给你改 ...</blockquote>
 你是用gemini app吗，ai studio里面用会好一些，分支和手动开搜索也是支持的
 
+
+*****
+
+####  malisa  
+##### 42#       发表于 2025-11-7 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68691045&amp;ptid=2266645" target="_blank">mintslime 发表于 2025-11-7 20:02</a>
+
+你是用gemini app吗，ai studio里面用会好一些，分支和手动开搜索也是支持的
+
+ ...</blockquote>
+对 我交钱了 一般是app
+
+我有些weekly和报告还离不开 Gemini 
+
+写作能力gpt太差了
+
