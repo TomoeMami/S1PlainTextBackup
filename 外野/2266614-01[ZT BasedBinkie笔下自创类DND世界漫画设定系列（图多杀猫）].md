@@ -4521,3 +4521,155 @@ https://weibo.com/5343568641/5218146195083036
 由手机上传
 2025-11-7 12:54 上传
 
+
+*****
+
+####  哈利谢顿  
+##### 43#         楼主| 发表于 2025-11-7 12:58
+
+仰望繁星的权利 前篇http://t.cn/AXwrnhuN
+
+作者：BasedBinkie
+
+作者推特：http://t.cn/A6YeEikm
+
+作者Patreon：http://t.cn/A6k7SfMM ​​​ ​​​​
+
+（“希望”赋予了人类承受苦难的韧性，却也维系着一个由痛苦与乐观交织而成、可能永无出路的循环。当世界充斥着自私的神明与不可名状的怪物时，“希望”驻足于此，成为人类仅存的最后慰藉。）
+
+<img src="https://img.stage1st.com/forum/202511/07/125704suvrrx54uho354ze.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202511/07/125704suvrrx54uho354ze.jpeg">
+
+<strong>IMG_4095.jpeg</strong> (446.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:57 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125705b09pzmqupqwlpszt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4096.jpeg</strong> (441.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:57 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125705icncu4wg4cqz990n.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4097.jpeg</strong> (339.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:57 上传
+
+图书馆少女观察记录
+
+作者：BasedBinkie
+
+作者推特：http://t.cn/A6YeEikm
+
+作者Patreon：http://t.cn/A6k7SfMM ​​​ ​​​​
+
+<img src="https://img.stage1st.com/forum/202511/07/125728ak24vr5bww944k0o.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4098.jpeg</strong> (571.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:57 上传
+
+"归根结底…死亡，是我所能给予的最大的仁慈。"
+
+作者：BasedBinkie
+
+作者推特：http://t.cn/A6YeEikm
+
+作者Patreon：http://t.cn/A6k7SfMM ​​​ ​​​​
+
+<img src="https://img.stage1st.com/forum/202511/07/125802wwqfp2pvpvqigtaw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4100.jpeg</strong> (552.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125802klx3w7yw2c9ffwzw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4099.jpeg</strong> (544.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125802ym299ad29texmz7a.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4101.jpeg</strong> (605.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+恶名1
+
+作者：BasedBinkie
+
+作者推特：http://t.cn/A6YeEikm
+
+作者Patreon：http://t.cn/A6k7SfMM ​​​ ​​​​
+
+<img src="https://img.stage1st.com/forum/202511/07/125837p9vvcyt8gvzsjjyi.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4104.jpeg</strong> (671.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125837oqyzfoh4lf5rhcsg.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4102.jpeg</strong> (717.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125837g9mxkelexmoexknn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4103.jpeg</strong> (694.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/07/125840erf5px33uui1dvvh.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4105.jpeg</strong> (729.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-7 12:58 上传
+
+*****
+
+####  哈利谢顿  
+##### 44#         楼主| 发表于 2025-11-7 13:00
+
+总算搬运完毕了
+
+有点后悔应该放动漫区的
+
+地精经济学可能图太大，搬运的话论坛放不了
+
+有人看的话留个言
+
