@@ -563,3 +563,26 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 
 推荐要用gemini直接用aistudio网页端爽白嫖，连蕉都可以无限用。
 
+
+*****
+
+####  malisa  
+##### 51#       发表于 2025-11-7 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68691536&amp;ptid=2266645" target="_blank">mintslime 发表于 2025-11-7 22:03</a>
+
+能说一下你具体的使用方法和prompt的大致写法吗？以我个人的体验来说，我觉得gemini对gpt5除了幻觉少点外 ...</blockquote>
+我是日文 最早的时候有 写了几版 微调过几次 都是canvas  该写什么,一些词去掉之类
+
+然后你跟着这个对话写下去就是,后面基本不用提示
+
+就说新的一周开始了,然后贴材料和做一些细节指示就行了
+
+大量上下文在这里 风格就稳定了
+
+用canvas得理由是是可以选定范围ask 能ask就能微调 效率高很多
+
+最大的优势还有就是连续性和记忆性
+
+比如上一个客户没解决的事情,后续中文讲一下进展 就出来了 非常效率 命名都能保持一致
+
