@@ -3851,3 +3851,13 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非现在素材本产出翻三倍甚至五倍 不然爱JB出啥出啥 根本没资源练 我现在手里的还都是残疾状态
 
+
+*****
+
+####  orangee  
+##### 364#       发表于 2025-11-7 23:32
+
+难度九能出三个橙色碎片以后完全不打素材本了，等50级能打后面难度再说了，反正两天也升不了一级慢慢磨吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
