@@ -611,3 +611,23 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 能说一下你具体的使用方法和prompt的大致写法吗？以我个人的体验来说，我觉得gemini对gpt5除了幻觉少点外 ...</blockquote>
 哪有无限用啊，只能100句啊，我都用好几次超限了。
 
+
+*****
+
+####  malisa  
+##### 54#       发表于 2025-11-8 08:06
+
+ 本帖最后由 malisa 于 2025-11-8 08:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68692157&amp;ptid=2266645" target="_blank">mintslime 发表于 2025-11-8 01:27</a>
+
+要不然试试直接写markdown，然后用cursor（或者其他ide工具）编辑？
+
+你上面提到的功能都有，可以加git来 ...</blockquote>
+对 这个方法也很好
+
+我最近是在往这个方向改
+
+周报因为以前都word 我也没留md pandoc转效果不好, 历史包袱比较重, 只是在惰性在用 Gemini 我把下个月的订阅停了,但事到如今 3.0也快了,感觉还是会续上<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+其他的文章我基本开始md归档了, 上次试了一下 Gemini cli 效果不错 用codex估计也差不多
+
