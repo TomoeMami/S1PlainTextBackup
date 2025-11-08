@@ -74,3 +74,11 @@ spinx打得真的一坨屎
 猎鹰这图池在bo5的major决赛一点夺冠可能都没有</blockquote>
 有不了一点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4799#       发表于 2025-11-8 19:46
+
+感觉黑豹2:0带走了啊
+
