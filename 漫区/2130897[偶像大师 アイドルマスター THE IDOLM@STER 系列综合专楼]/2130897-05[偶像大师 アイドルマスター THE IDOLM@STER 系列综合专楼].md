@@ -40,3 +40,11 @@
 
 【HLTV】桐花万里丹山路，雏凤清于老凤声！偶像大师宣布下放主狙天海春香，上调青训小将黛冬优子至主队
 
+
+*****
+
+####  a1370303  
+##### 7200#       发表于 2025-11-8 13:47
+
+moiw三次抽选全落，学友，恐怖如斯<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
