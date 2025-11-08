@@ -3948,3 +3948,11 @@ N10好像是武器太吃点数
 
 医疗中心真的能白嫖，日常刷新后治疗不消耗次数。
 
+
+*****
+
+####  Dreki  
+##### 372#       发表于 2025-11-9 03:23
+
+又出了个修女，现在五星有两个盾加卢克凯隆修女，太尼玛牢了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
