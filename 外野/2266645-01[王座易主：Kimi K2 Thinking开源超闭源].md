@@ -741,3 +741,23 @@ kimi2t八股像ds大概因为它基底模型用的就是ds v3
 
 目前也就是上下文长度没得救，记忆力容量决定上限了
 
+
+*****
+
+####  2017.05.04  
+##### 65#       发表于 2025-11-8 16:50
+
+什么时候有统一标准了再说，现在都是PPT瞎画图
+
+
+*****
+
+####  cmdycj0732  
+##### 66#       发表于 2025-11-8 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68693829&amp;ptid=2266645" target="_blank">火烧云 发表于 2025-11-8 15:34</a>
+这些模型开源后的好处有哪些，其他开发者的使用形成正反馈了吗</blockquote>
+Cursor上了新的自研模型，被扒出来是GLM4.6微调的
+
+—— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

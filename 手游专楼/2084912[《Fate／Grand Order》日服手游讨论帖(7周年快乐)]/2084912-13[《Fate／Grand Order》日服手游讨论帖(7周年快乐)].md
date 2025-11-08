@@ -249,3 +249,42 @@ syl，所长4补5已经砸了600石进去没见一丝水花了
 
 假如圣诞实装人王盖提亚，然后把他扔抽奖界面被迫营业念台词，想想就好玩<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 18602#       发表于 2025-11-6 22:03
+
+怎么又清缓存了...
+
+*****
+
+####  khxooo  
+##### 18603#       发表于 2025-11-7 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68685184&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-11-6 17:47</a>
+
+查了一下Chaldea，白纸钱本和普通钱本极级掉落QP都是330W，而百星冠位本掉落QP是390W。
+
+只考虑刷钱的话等 ...</blockquote>
+这次12月活动应该不是无限池了吧，估计和主线有关系。
+
+*****
+
+####  Jamaisvu  
+##### 18604#       发表于 2025-11-7 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68686902&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-11-7 00:52</a>
+
+这次12月活动应该不是无限池了吧，估计和主线有关系。</blockquote>
+主线预热不影响活动形式吧，去年圣诞有无限池（阿比）和柱子战（幻月），今年肯定也有个值得刷的活动。
+
+假如圣诞实装人王盖提亚，然后把他扔抽奖界面被迫营业念台词，想想就好玩<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18605#       发表于 2025-11-8 16:44
+
+抽个10连，鹤两宝变4宝，不错不错<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
