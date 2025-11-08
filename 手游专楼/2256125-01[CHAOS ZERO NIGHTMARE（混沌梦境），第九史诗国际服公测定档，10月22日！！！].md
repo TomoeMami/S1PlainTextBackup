@@ -3921,3 +3921,12 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不和我一样，普池保底出的这俩，看了看梅林，还是再给梅林刷一下吧
 
+
+*****
+
+####  fireflies  
+##### 370#       发表于 2025-11-8 19:17
+
+新版本直播来了
+[https://live.bilibili.com/182867 ... id_from=333.337.0.0](https://live.bilibili.com/1828677110?live_from=84001&amp;spm_id_from=333.337.0.0)
+
