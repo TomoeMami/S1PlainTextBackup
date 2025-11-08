@@ -647,3 +647,15 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 
 代码能力和agent能力跟minimax m2和qwen3比怎样啊，这两个我都做了几个项目，其中有个项目还特别复杂，生成了5多行代码
 
+
+*****
+
+####  羊寢  
+##### 57#       发表于 2025-11-8 11:00
+
+ 本帖最后由 羊寢 于 2025-11-8 11:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68692710&amp;ptid=2266645" target="_blank">白头盔 发表于 2025-11-8 10:18</a>
+是针对几个评测做了很好的moe训练吧</blockquote>
+不知道代码能力如何，反正写作能力据说是现在国模顶尖了，昨天类脑的人都在测
+不过好像说是官网api也有内审？硅基还没更新上我没还用过不知道具体情况
+
