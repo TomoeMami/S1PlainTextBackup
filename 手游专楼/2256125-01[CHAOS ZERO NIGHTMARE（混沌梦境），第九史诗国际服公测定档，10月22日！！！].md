@@ -3930,3 +3930,21 @@ N10好像是武器太吃点数
 新版本直播来了
 [https://live.bilibili.com/182867 ... id_from=333.337.0.0](https://live.bilibili.com/1828677110?live_from=84001&amp;spm_id_from=333.337.0.0)
 
+
+*****
+
+####  nyaneko  
+##### 371#       发表于 2025-11-9 02:10
+
+<img src="https://img.stage1st.com/forum/202511/09/020435pzezeegywga2nbjb.png" referrerpolicy="no-referrer">
+
+<strong>2025-11-08 180314.png</strong> (195.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-9 02:04 上传
+
+没钱了，只能去打普通卡厄思难度5打存档，还不错，就是没随到装备以及香族的精神最后boss才给我，也没闪。貌似还被删了一张攻防一体。
+
+医疗中心真的能白嫖，日常刷新后治疗不消耗次数。
+
