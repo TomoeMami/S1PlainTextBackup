@@ -803,3 +803,15 @@ DS能用，但是需求如果复杂了，写出来的就会比GPT差，一般的
 kimi2t八股像d ...</blockquote>
 这明显驴唇不对马嘴，K2基模是1T的，已经开源了，比DSV3还大
 
+
+*****
+
+####  羊寢  
+##### 70#       发表于 2025-11-8 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68694734&amp;ptid=2266645" target="_blank">qratosones1337 发表于 2025-11-8 20:05</a>
+这明显驴唇不对马嘴，K2基模是1T的，已经开源了，比DSV3还大</blockquote>
+看了一下截图，是我记错了
+<img src="https://p.sda1.dev/28/d20bc92fb6f08beea72b17b2ab99f160/image.jpg" referrerpolicy="no-referrer">
+说是用的v3架构，确实八股像ds应该不是这个原因……吧？
+
