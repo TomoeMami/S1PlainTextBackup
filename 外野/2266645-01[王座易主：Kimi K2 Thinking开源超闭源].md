@@ -790,3 +790,16 @@ DS能用，但是需求如果复杂了，写出来的就会比GPT差，一般的
 
 但是GPT太贵了，大家有好的推荐吗。DS没找到有付费版的··
 
+
+*****
+
+####  qratosones1337  
+##### 69#       发表于 2025-11-8 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68693817&amp;ptid=2266645" target="_blank">羊寢 发表于 2025-11-8 15:30</a>
+
+这样吗，周四那天看很多人说写nsfw会截断，当时他们推测是有审核，这样看来不是审核问题？
+
+kimi2t八股像d ...</blockquote>
+这明显驴唇不对马嘴，K2基模是1T的，已经开源了，比DSV3还大
+
