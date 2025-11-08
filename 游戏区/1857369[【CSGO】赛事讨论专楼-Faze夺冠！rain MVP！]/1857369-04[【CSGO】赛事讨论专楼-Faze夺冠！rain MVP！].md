@@ -98,3 +98,19 @@ spinx打得真的一坨屎
 
 最后这分小孩全责啊，今天状态有点差了
 
+
+*****
+
+####  icecry  
+##### 4802#       发表于 2025-11-8 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幽默猎鹰，小孩今年依然0冠，谁才是真正的mo神
+
+
+*****
+
+####  heseran  
+##### 4803#       发表于 2025-11-8 21:06
+
+这米垃圾太搞笑了打的，不清包点就下包被打死紧接着eco局下到一半松手，这两把连在一起看太下饭了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
