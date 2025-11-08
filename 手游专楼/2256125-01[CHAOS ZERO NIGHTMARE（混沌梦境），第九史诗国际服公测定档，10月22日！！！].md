@@ -3913,3 +3913,11 @@ N10好像是武器太吃点数
 打到40级五星c只有卢克和凯隆，这两个哪个更不坐牢一点我去练一练</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这俩不都是牢中牢 
 
+
+*****
+
+####  叩叩叩  
+##### 369#       发表于 2025-11-8 17:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不和我一样，普池保底出的这俩，看了看梅林，还是再给梅林刷一下吧
+
