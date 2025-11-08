@@ -1054,3 +1054,13 @@ ed里也没写有别的画师，但看这作者别的作品明显不是自己画
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">感谢楼主感谢楼主。不过说起来，我这种不叮不玩的脑瘫选手，自从发现mtool可以给主角加一串对面BOSS的技能之后，突然觉得基于RM的RPG游戏满足了我拿BOSS技能轰死对面的幻想，真是太好了，让我看看这游戏的BOSS技能有多酷炫先
 
+
+*****
+
+####  blueelf  
+##### 92#         楼主| 发表于 2025-11-8 08:47
+
+RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+开始玩sky and earth的朋友，看到明显的语句错误能截图，之后打包私聊发我一下吗？
+
