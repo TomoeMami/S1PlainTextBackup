@@ -1072,3 +1072,13 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 
 第五章开头有个叫荣火泡沫殿的魔境怎么走
 
+
+*****
+
+####  Sannapolis  
+##### 94#       发表于 2025-11-9 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68695537&amp;ptid=2263973" target="_blank">麦吉卡 发表于 2025-11-8 23:11</a>
+第五章开头有个叫荣火泡沫殿的魔境怎么走</blockquote>
+地图左下方有一排不同颜色的按钮，按下去就能解锁地图其他地方对应颜色的门禁了
+
