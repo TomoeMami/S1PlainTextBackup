@@ -659,3 +659,17 @@ Grok 4刘备文写得飞起，国产大模型能么？</blockquote>
 不知道代码能力如何，反正写作能力据说是现在国模顶尖了，昨天类脑的人都在测
 不过好像说是官网api也有内审？硅基还没更新上我没还用过不知道具体情况
 
+
+*****
+
+####  無始無終  
+##### 58#       发表于 2025-11-8 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68691232&amp;ptid=2266645" target="_blank">完全不懂 发表于 2025-11-7 20:46</a>
+自测，翻译英文小说远不如qwen max
+
+—— 来自 S1Fun</blockquote>
+翻译文章需要用推理模型吗
+
+—— 来自 Xiaomi 23054RA19C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
