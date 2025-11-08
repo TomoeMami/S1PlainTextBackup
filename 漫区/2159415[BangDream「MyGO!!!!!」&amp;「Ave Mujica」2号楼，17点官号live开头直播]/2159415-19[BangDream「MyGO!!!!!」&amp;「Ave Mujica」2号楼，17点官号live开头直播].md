@@ -187,3 +187,47 @@ BanG Dream! 10th Anniversary LIVE
 <img src="https://p.sda1.dev/28/ddd0c58176e7d58d47f4342c668b3c3d/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/28/5f110ffd7aa5e6ae10261e120df04710/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 27348#       发表于 2025-11-8 13:36
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/08/133638tqqrqmoy5si95qa7.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-08_13-33-23.jpg</strong> (333.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-8 13:36 上传
+
+       [https://x.com/comic_growl/status/1986947317401006410](https://x.com/comic_growl/status/1986947317401006410)
+
+       [https://t.co/4AWwMQcHeD](https://t.co/4AWwMQcHeD)
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/08/133637i68g845kw6hh8wch.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-08_13-34-21.jpg</strong> (326.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-8 13:36 上传
+
+       [https://x.com/maymaymay7523/status/1986978240448327900](https://x.com/maymaymay7523/status/1986978240448327900)
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/08/133636w1nrxb2o233vvda2.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-08_13-34-49.jpg</strong> (241.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-8 13:36 上传
+
+       [https://x.com/HaibuchiYotsuji/status/1986994861304872960](https://x.com/HaibuchiYotsuji/status/1986994861304872960)
+
