@@ -3902,3 +3902,14 @@ N10好像是武器太吃点数
 
 打到40级五星c只有卢克和凯隆，这两个哪个更不坐牢一点我去练一练<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 368#       发表于 2025-11-8 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68693968&amp;ptid=2256125" target="_blank">Dreki 发表于 2025-11-8 16:14</a>
+
+打到40级五星c只有卢克和凯隆，这两个哪个更不坐牢一点我去练一练</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这俩不都是牢中牢 
+
