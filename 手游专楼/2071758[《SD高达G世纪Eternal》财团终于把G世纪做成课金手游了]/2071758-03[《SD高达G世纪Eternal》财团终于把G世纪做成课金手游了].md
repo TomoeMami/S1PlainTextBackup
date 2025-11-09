@@ -634,3 +634,15 @@ bd1（攻）
 
 这次有漫画版参战，卡池还藏了FA版的
 
+
+*****
+
+####  acg_gyanc  
+##### 3019#       发表于 2025-11-9 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68697836&amp;ptid=2071758" target="_blank">plok201 发表于 2025-11-9 16:27</a>
+不过到最后，BD系列的排面还得是BD1啊，BD3这个高达的人气真的太惨了</blockquote>
+个人感觉bd3造型没啥特色，晃眼一看还以为是陆高……bd1这个蓝皮红墨镜还是帅多了，bd2那个红肩也不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
