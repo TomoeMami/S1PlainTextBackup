@@ -130,3 +130,11 @@ spinx打得真的一坨屎
 
 可以提前恭喜黑豹了，太强了
 
+
+*****
+
+####  朔方原的星  
+##### 4806#         楼主| 发表于 2025-11-9 19:43
+
+VRS太权威了，VRS第一就是比第二强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
