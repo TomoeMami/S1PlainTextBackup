@@ -114,3 +114,11 @@ spinx打得真的一坨屎
 
 这米垃圾太搞笑了打的，不清包点就下包被打死紧接着eco局下到一半松手，这两把连在一起看太下饭了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 4804#         楼主| 发表于 2025-11-9 18:04
+
+黑豹打得真好啊，Molodoy真强，a队要是有这么个新人解放老汤拿步枪真有打头吧，唉
+
