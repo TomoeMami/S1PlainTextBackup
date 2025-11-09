@@ -4017,3 +4017,21 @@ N10好像是武器太吃点数
 以为难度九能掉三个橙色碎片了爽刷，刷了一天才发现他好像只掉后三位的，想要前三位的得拆橙色的拿碎片手工 ...</blockquote>
 难度10指的是刷圣遗物的难度10？
 
+
+*****
+
+####  叩叩叩  
+##### 379#       发表于 2025-11-10 03:42
+
+ 本帖最后由 叩叩叩 于 2025-11-10 03:45 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">最难受的一集，第3脚给删了也就算了还塞回来护盾，应该是第一脚的神闪占了位，明明没啥用非得神闪这里
+
+<img src="https://img.stage1st.com/forum/202511/10/034040u8zq98421r3qa50y.png" referrerpolicy="no-referrer">
+
+<strong>QQ20251110-033600.png</strong> (150.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-10 03:40 上传
+
