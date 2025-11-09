@@ -1155,3 +1155,18 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 
 城内的部分npc会随着剧情更新对话，这点很棒，就很有轨迹的那种感觉。
 
+
+*****
+
+####  InfiniteGyre  
+##### 99#       发表于 2025-11-9 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68699104&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-9 21:06</a>
+玩到第三章发现逃跑是必定先手且100%，之前迷宫还要跑酷躲怪，现在直接横着走找终点的恢复法阵不就行了。逃 ...</blockquote>
+没有，甚至逃跑了也能开图鉴，非要说的话就是少经验钱和素材，素材甚至可以商店买
+
+一周目通关后嫌练级太慢没打那些高级副本就换二周目开三倍经验了，这通关后内容有点太枯燥了吧，这些个兽之使徒纯纯下副本打boss也没点剧情的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战斗也甚至都不用找弱点，挑那几组攒OP攒的快的技能按顺序放就完了
+这世界观战力膨胀也够夸张的，开头无天说的个个都像是毁灭世界的水平，主线后期无天遍地走深魔不如狗，通关后甚至xx因子遍地走无天也只能当看门狗了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
