@@ -146,3 +146,23 @@ VRS太权威了，VRS第一就是比第二强<img src="https://static.stage1st.c
 
 0封真没想到了。真强啊
 
+
+*****
+
+####  heseran  
+##### 4808#       发表于 2025-11-9 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68698613&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-11-9 19:43</a>
+
+VRS太权威了，VRS第一就是比第二强</blockquote>
+
+<img src="https://img.stage1st.com/forum/202511/09/210310vnvvyh4eewhemees.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>70CFA8B4-FA04-4D2C-B01B-44EDFFE132AC.jpeg</strong> (73.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-9 21:03 上传
+
+决赛日前的排名就是1到4名，等级森严<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
