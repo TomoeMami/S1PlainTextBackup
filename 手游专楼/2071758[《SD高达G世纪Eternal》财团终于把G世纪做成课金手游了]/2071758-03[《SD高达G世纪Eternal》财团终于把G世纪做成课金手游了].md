@@ -654,3 +654,14 @@ bd1（攻）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">UR了给个宇△不过分吧
 
+
+*****
+
+####  AminGly  
+##### 3021#       发表于 2025-11-9 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68698919&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-11-9 20:30</a>
+
+UR了给个宇△不过分吧</blockquote>
+现在不是没啥用的情况，△=不考虑了
+
