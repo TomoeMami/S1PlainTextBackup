@@ -24,3 +24,66 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">6张预告图，共出现12个人物，其中男人占了8个人头数
 
+
+*****
+
+####  jaewoongh_  
+##### 1364#       发表于 2025-11-9 08:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">怎么还做了特殊转场……话说舞男人那个**不是大叔吗
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这集抛开致死量的男人不谈其实还挺不错，顺便谁能数数kkr对寸田先辈脸红了几次
+
+*****
+
+####  modedd  
+##### 1365#       发表于 2025-11-9 08:10
+
+ 本帖最后由 modedd 于 2025-11-9 08:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68696168&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-11-9 08:06</a>
+
+怎么还做了特殊转场……话说舞男人那个**不是大叔吗
+
+这集抛开致死量的男人不谈其实还挺不错，顺便谁能数数 ...</blockquote>
+结尾不是一直在脸红吗（
+
+*****
+
+####  codezwei  
+##### 1366#       发表于 2025-11-9 10:55
+
+内功加强护盾，阵法克敌，这集的打戏有点修仙味<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奈奈的大额头 suki<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1367#       发表于 2025-11-9 12:42
+
+给五男人画了2d唱名和合体技 还有特殊过场 待遇拉满了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  湖静欲成冰  
+##### 1368#       发表于 2025-11-9 12:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">剧情不评价，好棒的大额头与腋，suki。
+
+<img src="https://img.stage1st.com/forum/202511/09/124537jqn7ocwwi9kvkmon.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-9 12:45 上传
+
+*****
+
+####  粉儿alice  
+##### 1369#       发表于 2025-11-9 13:13
+
+下集又双叒叕是老掉牙的被流放到外国 当q娃二选一的剧情 这剧情越拍越不舒服 能不能别再拍了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+编剧还是敏鬼闺女 战队那里已经够乱了 飘去管管你家南波万吧
+

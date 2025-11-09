@@ -80,3 +80,48 @@ syl，赤星政尚脚本<img src="https://static.stage1st.com/image/smiley/face2
 
 哎呀，连续五集好看了，不容易吧
 
+
+*****
+
+####  zing223  
+##### 258#       发表于 2025-11-9 11:58
+
+ 本帖最后由 zing223 于 2025-11-9 16:10 编辑 
+
+这集感觉稍微差点，主要还是战斗分镜有些凌乱，空间感和时序让人有些无法理解，崩掉的中景近景也较前几集稍多。剧本还是浓浓昭和味<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">熊猫兽的战斗决策也让人感觉很不错，脚本的设计是毫无问题的
+
+syl，京出现了威胁佬的崭新一面，脏活累活还是成年人来做，真是好领导啊……看了一下怎么设定是22岁<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恋叶梦境  
+##### 259#       发表于 2025-11-9 13:16
+
+没想到保下来了，epulse还能传递
+
+*****
+
+####  YetToCome  
+##### 260#       发表于 2025-11-9 13:50
+
+完全理解不了这两集想讲的故事，老头去的对面被暴打一顿的意义是什么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，科技进化到这种程度怎么还有这样的故事，是没别的可写了吗
+
+—— 来自 realme RMX3706, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  永恒的王牌  
+##### 261#       发表于 2025-11-9 14:02
+
+原来E脉冲还能兽兽相传的吗，总之恭喜熊猫兽活下来吧
+
+*****
+
+####  zing223  
+##### 262#       发表于 2025-11-9 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68697293&amp;ptid=2250190" target="_blank">YetToCome 发表于 2025-11-9 13:50</a>
+
+完全理解不了这两集想讲的故事，老头去的对面被暴打一顿的意义是什么，科技进化到这种程度怎么还有这样的故 ...</blockquote>
+因为他觉得跑到人家大本营闹切腹有用，实际上还是新旧黑道有无任侠精神的价值观念冲突啦。我是觉得科技进化才更应该有这样的故事，在科技秩序下失序的那点阴暗地带更会人情和关系横行。本作设定在2050年，属于是科技走的太快没等上你的下等人民了（乐）让商店街这种社区构成苟延残喘到那个时代勉强也算说得通。
+

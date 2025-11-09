@@ -154,3 +154,18 @@ zzz片场出事了 皮套演员排练时掉下去了 现在说是头盖骨骨折
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑暗周杰伦真的有毒啊
 
+
+*****
+
+####  milky658  
+##### 408#       发表于 2025-11-9 08:30
+
+骑士经常“泄露”没多久官宣就跟上。谜语人泄露的时候就在猜会不会这周要公布身份，果然是奉旨剧透吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 409#       发表于 2025-11-9 13:01
+
+除了最后身份解密之外没什么看点，还有吃东西中毒到一半恢复就满口称赞这转场挺怪
+

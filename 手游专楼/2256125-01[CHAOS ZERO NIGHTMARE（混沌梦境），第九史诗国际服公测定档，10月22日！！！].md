@@ -3956,3 +3956,35 @@ N10好像是武器太吃点数
 
 又出了个修女，现在五星有两个盾加卢克凯隆修女，太尼玛牢了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 373#       发表于 2025-11-9 11:00
+
+ 本帖最后由 orangee 于 2025-11-9 11:02 编辑 
+
+以为难度九能掉三个橙色碎片了爽刷，刷了一天才发现他好像只掉后三位的，想要前三位的得拆橙色的拿碎片手工做，而且做一次要100碎（不指定位置50碎，指定直接翻倍），一个橙色才能拆10碎……喷了策划怎么能这么多小心思啊
+
+楼友如果还有没开到难度10的先打白本的零号系统把难度推到10再说，别浪费太多钱合法典，刷满了放心直接用宝珠合法典就不用钱了
+
+*****
+
+####  三谷歩夢  
+##### 374#       发表于 2025-11-9 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68696627&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-9 11:00</a>
+
+以为难度九能掉三个橙色碎片了爽刷，刷了一天才发现他好像只掉后三位的，想要前三位的得拆橙色的拿碎片手工 ...</blockquote>
+前三个部位直接用低级的顶上就行了，属性提升很小，主要提升还是后三个部位，一个拉满就是25%攻击
+
+*****
+
+####  orangee  
+##### 375#       发表于 2025-11-9 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68696690&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-9 11:17</a>
+
+前三个部位直接用低级的顶上就行了，属性提升很小，主要提升还是后三个部位，一个拉满就是25%攻击 ...</blockquote>
+实际问题就是低级的太少了凑套装不好凑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
