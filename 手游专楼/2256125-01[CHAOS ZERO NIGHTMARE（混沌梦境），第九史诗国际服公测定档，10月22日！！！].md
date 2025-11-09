@@ -3988,3 +3988,11 @@ N10好像是武器太吃点数
 前三个部位直接用低级的顶上就行了，属性提升很小，主要提升还是后三个部位，一个拉满就是25%攻击 ...</blockquote>
 实际问题就是低级的太少了凑套装不好凑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 376#       发表于 2025-11-10 01:07
+
+为啥打存档时候，最后复制好了，出来一看存档里又没有复制的卡？？
+
