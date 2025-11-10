@@ -71,3 +71,11 @@
 
 1/4的雕像吧，有授权吗？我记得我之前就看到圣诞装有过官方授权的企划
 
+
+*****
+
+####  永远的访客  
+##### 4288#       发表于 2025-11-10 20:15
+
+这raven太犯规了，我都想揍亚当一顿了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
