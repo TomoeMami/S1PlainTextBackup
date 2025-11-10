@@ -46,3 +46,18 @@ Suwayomi使用参考
 
 浏览-图源/插件，页面右上角的“三”（设置），把中文打开，刷新一下就能看到列表了
 
+
+*****
+
+####  喵神八百万  
+##### 113#       发表于 2025-11-10 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68697899&amp;ptid=2254551" target="_blank">☆炫 发表于 2025-11-9 16:48</a>
+
+Suwayomi使用参考
+
+设置-外观-语言-中文HANS</blockquote>
+okok 我试下
+
+周末放弃了suwayomi，开始用venera了
+
