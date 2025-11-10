@@ -267,3 +267,13 @@ BanG Dream! 10th Anniversary LIVE
 
        [https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f](https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f)
 
+
+*****
+
+####  RPG-7  
+##### 27351#       发表于 2025-11-11 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704626&amp;ptid=2159415" target="_blank">堀内爱里衣 发表于 2025-11-10 23:02</a>
+[https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f](https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f)</blockquote>
+真快 在bt站都没刷到呢
+

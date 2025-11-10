@@ -4185,3 +4185,32 @@ N10好像是武器太吃点数
 
 难2蓝壶神了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 389#       发表于 2025-11-11 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704827&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-11 00:00</a>
+
+难2蓝壶神了</blockquote>
+蓝湖哪个图的呀？
+
+未知区域出吗？
+
+
+*****
+
+####  三谷歩夢  
+##### 390#       发表于 2025-11-11 00:34
+
+ 本帖最后由 三谷歩夢 于 2025-11-11 00:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704907&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-11 00:27</a>
+
+蓝湖哪个图的呀？
+
+未知区域出吗？</blockquote>
+图1就是蓝壶，这个图前半段BOSS前有一个事件是肉铺，可以把一张卡转换为可移除的中立卡，用过一次就会从卡组永久移除，这样等于完全不占分数就可以删除一张卡，配合蓝壶其他的转换事件再删卡可以做到极简卡组
+
+选难2+尽量避战，尽量少闪出角色卡，我上面那个就是转2删2+转1移除
+
