@@ -1183,3 +1183,13 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 如果说隔壁圣女和六祠堂就是一个精致的庭院， ...</blockquote>
 羡慕毕业的，我现在80小时左右还在6章，一开怪物图鉴看30%不到就有深深的脱力感，等通关也来写点总结，不知道2025年是不是全交代在里面了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 101#       发表于 2025-11-10 13:40
+
+100多小时了，第七章还没完
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
