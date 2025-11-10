@@ -4105,3 +4105,15 @@ N10好像是武器太吃点数
 
 塞尽量多的手套，手套买的少就考虑多删和尝试复制手套。
 
+
+*****
+
+####  orangee  
+##### 383#       发表于 2025-11-10 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68700079&amp;ptid=2256125" target="_blank">powerpyc 发表于 2025-11-10 02:48</a>
+难度10指的是刷圣遗物的难度10？</blockquote>
+零号系统里的那个难度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
