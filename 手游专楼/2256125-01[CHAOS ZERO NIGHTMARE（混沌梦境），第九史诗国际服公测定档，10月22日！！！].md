@@ -4047,3 +4047,11 @@ N10好像是武器太吃点数
  ...</blockquote>
 听说被塞回来的防不会被攻防一体检索到，不知道真的假的，如果真的可以将就用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 381#       发表于 2025-11-10 11:30
+
+不知道新赛季图有没有转换事件，可以试试那个中立删卡法
+
