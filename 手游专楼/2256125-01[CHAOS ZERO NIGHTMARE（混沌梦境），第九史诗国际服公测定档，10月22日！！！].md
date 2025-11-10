@@ -4035,3 +4035,15 @@ N10好像是武器太吃点数
 
 2025-11-10 03:40 上传
 
+
+*****
+
+####  伊布桑  
+##### 380#       发表于 2025-11-10 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68700098&amp;ptid=2256125" target="_blank">叩叩叩 发表于 2025-11-10 03:42</a>
+最难受的一集，第3脚给删了也就算了还塞回来护盾，应该是第一脚的神闪占了位，明明没啥用非得神闪这里
+
+ ...</blockquote>
+听说被塞回来的防不会被攻防一体检索到，不知道真的假的，如果真的可以将就用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
