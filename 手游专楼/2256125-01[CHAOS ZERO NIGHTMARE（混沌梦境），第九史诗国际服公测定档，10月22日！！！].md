@@ -4152,3 +4152,20 @@ N10好像是武器太吃点数
 
 装备一般几分呀，谢谢
 
+
+*****
+
+####  涟漪魔法师  
+##### 387#       发表于 2025-11-10 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704250&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-10 21:13</a>
+
+请问满分是10吗？
+
+装备一般几分呀？
+
+你说的中立闪是自己卡的普通闪吗？还是共同卡的闪？一张就2分？</blockquote>
+目前推测满分 12/10/8...... 非常高/高.....
+
+装备不算分（或可能紫装+1）
+
