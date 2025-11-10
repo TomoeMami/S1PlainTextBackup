@@ -860,3 +860,23 @@ Kimi局势不妙→Kimi昏招频出→Kimi陷入苦战→Kimi进退维谷→Kimi
 
 继续等类脑测NSFW的效果，如果效果好的话就充钱搞API吧，虽说gemini2.5现在靠公益站基本上是纯免费了，但gemini2.5确实还是有点蠢，我发现它真是写不来NTR类的东西
 
+
+*****
+
+####  赞卡机  
+##### 75#       发表于 2025-11-10 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68701480&amp;ptid=2266645" target="_blank">千千千千鸟 发表于 2025-11-10 11:36</a>
+继续等类脑测NSFW的效果，如果效果好的话就充钱搞API吧，虽说gemini2.5现在靠公益站基本上是纯免费了，但ge ...</blockquote>
+求个公益站地址bro
+
+*****
+
+####  千千千千鸟  
+##### 76#       发表于 2025-11-10 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68701506&amp;ptid=2266645" target="_blank">赞卡机 发表于 2025-11-10 11:38</a>
+
+求个公益站地址bro</blockquote>
+直接类脑搜索公益站就行了一大堆，但是只能用来玩酒馆的NSFW这是规定，如果要工作还是找别的吧
+

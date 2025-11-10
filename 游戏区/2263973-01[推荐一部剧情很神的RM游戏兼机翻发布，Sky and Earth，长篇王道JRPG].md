@@ -1170,3 +1170,16 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  永远的访客  
+##### 100#       发表于 2025-11-10 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68695778&amp;ptid=2263973" target="_blank">Alice.Andvari 发表于 2025-11-9 00:37</a>
+
+通关了，接近100小时。剩几个110级的魔宫没打，有空再说了。
+
+如果说隔壁圣女和六祠堂就是一个精致的庭院， ...</blockquote>
+羡慕毕业的，我现在80小时左右还在6章，一开怪物图鉴看30%不到就有深深的脱力感，等通关也来写点总结，不知道2025年是不是全交代在里面了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

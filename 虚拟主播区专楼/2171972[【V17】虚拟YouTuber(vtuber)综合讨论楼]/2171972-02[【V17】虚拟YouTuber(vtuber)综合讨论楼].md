@@ -31,3 +31,12 @@ nrk的竞品在vspo……
 
 只能希望她未来的人生不会走入绝境了.
 
+
+*****
+
+####  渡鸦骑士  
+##### 1577#       发表于 2025-11-10 11:41
+
+谁让天神子兔音运营不下去了呢。
+隔壁nayuta live不断，也只是从三份工作转为两份工作，因为V的事业发展了才能不当社畜<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
