@@ -4214,3 +4214,39 @@ N10好像是武器太吃点数
 
 选难2+尽量避战，尽量少闪出角色卡，我上面那个就是转2删2+转1移除
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 391#       发表于 2025-11-11 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704925&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-11 00:34</a>
+
+图1就是蓝壶，这个图前半段BOSS前有一个事件是肉铺，可以把一张卡转换为可移除的中立卡，用过一次就会从卡 ...</blockquote>
+你这是初始4张，闪了1张，一共5
+
+然后转2删2，转1移除=5-3=2，然后复制1
+
+是吧
+
+
+*****
+
+####  三谷歩夢  
+##### 392#       发表于 2025-11-11 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704948&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-11 00:46</a>
+
+你这是初始4张，闪了1张，一共5
+
+然后转2删2，转1移除=5-3=2，然后复制1
+
+是吧 ...</blockquote>
+转2删2 1分
+
+转1移除 0分
+
+复制1 0分
+
+角色卡闪不知道占不占分，我感觉是不占的，中立卡闪明显占分
+
