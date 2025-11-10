@@ -692,3 +692,11 @@ f90、影子方程式什么的
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">不要担心没东西出，红独角兽巴纳吉加个绿框，直接就搬到绿独角兽上了，姿势都不带变的。真的想出换个衣服都能出。
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚好露娜出了兔女郎手办，我看下一个就她吧
 
+
+*****
+
+####  洛克萨斯  
+##### 3025#       发表于 2025-11-10 11:52
+
+露娜版脉冲起码可以出两个，还能出强人
+

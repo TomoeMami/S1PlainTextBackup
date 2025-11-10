@@ -880,3 +880,11 @@ Kimi局势不妙→Kimi昏招频出→Kimi陷入苦战→Kimi进退维谷→Kimi
 求个公益站地址bro</blockquote>
 直接类脑搜索公益站就行了一大堆，但是只能用来玩酒馆的NSFW这是规定，如果要工作还是找别的吧
 
+
+*****
+
+####  minefriys  
+##### 77#       发表于 2025-11-10 11:48
+
+试了一下，目前问题是思考时间过长，一个简单的逻辑推理题，ds做3分钟，他居然思考10分钟才做出来，感觉思考部分过于谨慎了不停地验算检查<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
