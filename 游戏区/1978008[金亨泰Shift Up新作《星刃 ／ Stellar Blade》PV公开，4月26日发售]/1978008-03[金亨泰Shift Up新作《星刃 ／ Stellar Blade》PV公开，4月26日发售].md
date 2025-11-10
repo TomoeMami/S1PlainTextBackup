@@ -79,3 +79,11 @@
 
 这raven太犯规了，我都想揍亚当一顿了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ladiesman802  
+##### 4289#       发表于 2025-11-10 23:12
+
+这种擦边的肯定没授权，雕像为主
+
