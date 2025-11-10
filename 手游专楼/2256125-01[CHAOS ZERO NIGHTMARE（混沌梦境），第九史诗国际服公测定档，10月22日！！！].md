@@ -4169,3 +4169,19 @@ N10好像是武器太吃点数
 
 装备不算分（或可能紫装+1）
 
+
+*****
+
+####  三谷歩夢  
+##### 388#       发表于 2025-11-11 00:00
+
+<img src="https://img.stage1st.com/forum/202511/11/000029g9lqnvw9gj2pl9wv.jpg" referrerpolicy="no-referrer">
+
+<strong>蓝壶.jpg</strong> (95.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-11 00:00 上传
+
+难2蓝壶神了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
