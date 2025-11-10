@@ -815,3 +815,19 @@ kimi2t八股像d ...</blockquote>
 <img src="https://p.sda1.dev/28/d20bc92fb6f08beea72b17b2ab99f160/image.jpg" referrerpolicy="no-referrer">
 说是用的v3架构，确实八股像ds应该不是这个原因……吧？
 
+
+*****
+
+####  流缨  
+##### 71#       发表于 2025-11-10 10:08
+
+花了49体验了一下kimi2深度思考和刚出的OK Computer，前者主要是搜索整理信息，最终结果是生成报告；后者就是agent模式
+
+功能都不新鲜，都有珠玉在前。但作为国内用户来说体验比gpt强，因为深度思考以往都是输出一大堆结果，看的非常累。
+
+kimi最后很聪明的搞了不少预制模板做了可视化报告，观感非常好，用来发给领导糊弄某些常识问题十分足够了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+agent做个PPT/网页也是像模像样，能够调用模型的图片生成能力做插图设计。
+
+后续探索一下它搞小项目的能力如何，能否作为简单任务的替代
+
