@@ -1193,3 +1193,20 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Booorunestud  
+##### 102#       发表于 2025-11-10 23:04
+
+终于算是彻底打完了
+
+这游戏通关并不是头，还有些不算多但挺有分量的剧情藏在全成就的途中和全成就后解锁的剧情里
+
+一部分是全成就才能解锁的后日谈，接近1个小时的量，但全成就肝度感人，我放一份存档在这可以直接看后日谈，别覆盖新开个游戏目录
+[https://wwpb.lanzouw.com/iqYOq3aqnvsh](https://wwpb.lanzouw.com/iqYOq3aqnvsh)
+
+也涉及一些全成就途中的剧情，只通关的进度可能接不上
+
+作者说还在开发个小型更新
+

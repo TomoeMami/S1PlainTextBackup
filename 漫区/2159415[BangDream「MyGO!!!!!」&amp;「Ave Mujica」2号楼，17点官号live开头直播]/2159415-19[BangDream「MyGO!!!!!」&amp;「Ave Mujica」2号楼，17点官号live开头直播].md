@@ -249,3 +249,21 @@ BanG Dream! 10th Anniversary LIVE
 
        [https://weibo.com/7148264675/QcTgLq5pD](https://weibo.com/7148264675/QcTgLq5pD)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27350#       发表于 2025-11-10 23:02
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/10/230238ke1od6spza6stsha.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-10_22-59-08.jpg</strong> (90.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-10 23:02 上传
+
+       [https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f](https://pan.baidu.com/s/1FFdC7mqSCkdlvUhi4K5uvQ?pwd=5d5f)
+
