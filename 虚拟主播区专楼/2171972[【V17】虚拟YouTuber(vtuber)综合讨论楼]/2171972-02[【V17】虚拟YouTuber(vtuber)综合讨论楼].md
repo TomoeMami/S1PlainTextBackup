@@ -40,3 +40,33 @@ nrk的竞品在vspo……
 谁让天神子兔音运营不下去了呢。
 隔壁nayuta live不断，也只是从三份工作转为两份工作，因为V的事业发展了才能不当社畜<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zjoi  
+##### 1578#       发表于 2025-11-11 15:25
+
+之前虹看到杏第一季财报里卡片爆卖，也想跟进上去赚一把
+
+结果现在杏第二季财报出来了，卡片销售完全熄火…本来想作为在直播增长瓶颈后的长期补丸，结果一炮就射干精囊
+
+不知道现在大张旗鼓跟进TGC的虹，会不会吓得瑟瑟发抖
+
+考虑到虹粉男人比例低，搞不好比杏还难看
+
+<img src="https://img.stage1st.com/forum/202511/11/152537c55p4p5q8ru1o1r1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-11 15:25 上传
+
+<img src="https://img.stage1st.com/forum/202511/11/152537t4qjzjek1bkrsxxv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (182.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-11 15:25 上传
+
