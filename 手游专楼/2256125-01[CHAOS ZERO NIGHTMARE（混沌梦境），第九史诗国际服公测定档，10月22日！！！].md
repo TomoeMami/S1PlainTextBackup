@@ -4258,3 +4258,41 @@ N10好像是武器太吃点数
 
 据研究，角色卡神闪才+2
 
+
+*****
+
+####  phoenixxj  
+##### 394#       发表于 2025-11-11 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704250&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-10 21:13</a>
+
+请问满分是10吗？
+
+装备一般几分呀？
+
+你说的中立闪是自己卡的普通闪吗？还是共同卡的闪？一张就2分？</blockquote>
+中立卡就是商店里的卡 中立卡闪了会占用分
+
+但是角色卡普通闪是不占分的
+
+装备有人测试过我不占分的。
+
+*****
+
+####  phoenixxj  
+##### 395#       发表于 2025-11-11 10:23
+
+<img src="https://img.stage1st.com/forum/202511/11/102230x0xave5o92vvzv0x.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (316.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-11 10:22 上传
+
+笑死，本来是5手套+2脆弱
+
+但是貌似我没把转化的卡删了（都是手套 我分不清啊！）所以变成4手套1脆弱了，血炸！
+
+话说 我第一次在非bug看到快7w分的卡组
+
