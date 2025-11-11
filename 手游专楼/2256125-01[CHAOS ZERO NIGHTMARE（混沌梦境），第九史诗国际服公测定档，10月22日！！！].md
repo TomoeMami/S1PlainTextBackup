@@ -4312,3 +4312,11 @@ N10好像是武器太吃点数
 
 根本不想抽卡，这BYD的养成，这个池也跳了算了
 
+
+*****
+
+####  fireflies  
+##### 398#       发表于 2025-11-11 19:13
+
+明天大更新，现在还没发具体时间消息<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
