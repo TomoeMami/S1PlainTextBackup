@@ -4344,3 +4344,11 @@ N10好像是武器太吃点数
 
 别急，等赛季卡抬一手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 402#       发表于 2025-11-11 21:15
+
+学习下舰C大变申到后天吧，当年e7刚开的时候也炸过的吧
+
