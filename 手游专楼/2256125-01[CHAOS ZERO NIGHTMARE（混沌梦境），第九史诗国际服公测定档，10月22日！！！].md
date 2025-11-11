@@ -4352,3 +4352,21 @@ N10好像是武器太吃点数
 
 学习下舰C大变申到后天吧，当年e7刚开的时候也炸过的吧
 
+
+*****
+
+####  凤凰院天豪  
+##### 403#       发表于 2025-11-11 21:18
+
+新卡什么强度？我新手进来连跳两个池子就没人用了
+
+*****
+
+####  qixinno2  
+##### 404#       发表于 2025-11-11 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68709207&amp;ptid=2256125" target="_blank">凤凰院天豪 发表于 2025-11-11 21:18</a>
+
+新卡什么强度？我新手进来连跳两个池子就没人用了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播满练度按官方配对打个50级本能翻车的强度
+
