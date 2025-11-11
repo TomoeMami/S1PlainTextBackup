@@ -4370,3 +4370,11 @@ N10好像是武器太吃点数
 新卡什么强度？我新手进来连跳两个池子就没人用了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播满练度按官方配对打个50级本能翻车的强度
 
+
+*****
+
+####  cowgp01  
+##### 405#       发表于 2025-11-11 21:43
+
+这是我看过最诚实的带货直播，是路边一条就是路边一条
+
