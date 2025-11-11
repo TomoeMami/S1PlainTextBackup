@@ -4328,3 +4328,19 @@ N10好像是武器太吃点数
 
 明天大更来点氪金点吧 想冲点什么都感觉不是很带劲 只买了大小月卡
 
+
+*****
+
+####  qixinno2  
+##### 400#       发表于 2025-11-11 21:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满命满练度打难5直播全翻车 感觉不如抽小春
+
+
+*****
+
+####  三谷歩夢  
+##### 401#       发表于 2025-11-11 21:05
+
+别急，等赛季卡抬一手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
