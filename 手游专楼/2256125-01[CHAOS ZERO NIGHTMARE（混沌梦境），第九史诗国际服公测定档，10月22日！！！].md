@@ -4403,3 +4403,18 @@ N10好像是武器太吃点数
 
 <img src="https://img.stage1st.com/forum/202511/11/221050yscywnun11ysnzwz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 408#       发表于 2025-11-11 22:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉可以跟琳争谁更弱了 看来是太刀的错
+
+*****
+
+####  fireflies  
+##### 409#       发表于 2025-11-11 22:25
+
+这波是智斗环节，前瞻翻车让人抽小春，赛季靠专属卡加强吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
