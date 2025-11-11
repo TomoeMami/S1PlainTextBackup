@@ -3425,3 +3425,11 @@ Printical 的实动。
 
 shaka的代打是kanae草
 
+
+*****
+
+####  古战场亡魂  
+##### 19836#       发表于 2025-11-11 17:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
