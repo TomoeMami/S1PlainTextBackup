@@ -4478,3 +4478,14 @@ N10好像是武器太吃点数
 
 别急，牢纪总有一天会等来属于她的周日哥
 
+
+*****
+
+####  powerpyc  
+##### 417#       发表于 2025-11-12 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68709614&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-11 23:06</a>
+
+悲报，一男三狗削弱了</blockquote>
+啥玩意？这种抽卡游戏还能搞削弱的？
+

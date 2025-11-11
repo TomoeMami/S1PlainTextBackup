@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 200441,
+    "totalreply": 200442,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1762878130,
+    "lastedit": 1762879087,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12114,10 +12114,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 14934,
+    "totalreply": 14935,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1762877886,
+    "lastedit": 1762878848,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12222,10 +12222,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 193,
+    "totalreply": 194,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1762829168,
+    "lastedit": 1762878729,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12348,10 +12348,10 @@
     "update": false
   },
   "2246539": {
-    "totalreply": 141,
+    "totalreply": 142,
     "title": "[身为暗杀者的我明显比勇者还强 TV动画化 2025年10月]",
     "newtitle": "[身为暗杀者的我明显比勇者还强 TV动画化 2025年10月]",
-    "lastedit": 1762873452,
+    "lastedit": 1762878848,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12726,10 +12726,10 @@
     "update": false
   },
   "2256125": {
-    "totalreply": 416,
+    "totalreply": 417,
     "title": "[CHAOS ZERO NIGHTMARE（混沌梦境），第九史诗国际服公测定档，10月22日！！！]",
     "newtitle": "[CHAOS ZERO NIGHTMARE（混沌梦境），笑门已滑轨，未来可期，蒸蒸日上，UPUP！]",
-    "lastedit": 1762873694,
+    "lastedit": 1762878730,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -15098,7 +15098,7 @@
     "newtitle": "[IMAX不是看鬼灭无限城的首选，面向漫区的影院特效厅推介（56L更新鬼灭拷贝情况）]",
     "lastedit": 1762619772,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2266292": {
@@ -15593,7 +15593,7 @@
     "newtitle": "[太阁立志传V&amp;大航海4怎么玩？]",
     "lastedit": 1762619412,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2252299": {
@@ -15989,7 +15989,7 @@
     "newtitle": "[对于一个固执的酒鬼如何让他戒酒]",
     "lastedit": 1762619293,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2266559": {
@@ -16988,6 +16988,15 @@
     "newtitle": "[“太鼓之达人” 中国游戏游艺设备版项目正式启动，预计2023年秋季发行]",
     "lastedit": 1762873096,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266963": {
+    "totalreply": 41,
+    "title": "[日本前首相鸠山由纪夫批车力早苗：vvvv问题归根结底是中国内政]",
+    "newtitle": "[日本前首相鸠山由纪夫批车力早苗：vvvv问题归根结底是中国内政]",
+    "lastedit": 1762878968,
+    "category": "外野",
     "active": true,
     "update": false
   }
