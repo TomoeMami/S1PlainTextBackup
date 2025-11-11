@@ -4386,3 +4386,20 @@ N10好像是武器太吃点数
 
 10抽小保底，不出等下一位
 
+
+*****
+
+####  丢人居士  
+##### 407#       发表于 2025-11-11 22:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此刻，已成艺术
+
+7C81818C1DE99A9E07715A7B2F660EEA.jpg
+(86.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-11 22:10 上传
+
+<img src="https://img.stage1st.com/forum/202511/11/221050yscywnun11ysnzwz.jpg" referrerpolicy="no-referrer">
+
