@@ -88,3 +88,15 @@ nrk的竞品在vspo……
 
 参考CR的卡牌，女粉是真不买的，连买来摆祭坛都没卡牌的份儿
 
+
+*****
+
+####  艾特娜  
+##### 1581#       发表于 2025-11-11 20:10
+
+ 本帖最后由 艾特娜 于 2025-11-11 20:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68708225&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-11-11 17:32</a>
+
+参考CR的卡牌，女粉是真不买的，连买来摆祭坛都没卡牌的份儿</blockquote>
+效果数值设计敷衍得都不好意思自己内部搞比赛宣传的东西就算了
+
