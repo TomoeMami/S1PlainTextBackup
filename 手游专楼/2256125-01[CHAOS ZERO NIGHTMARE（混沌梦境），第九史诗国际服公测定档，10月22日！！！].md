@@ -4489,3 +4489,13 @@ N10好像是武器太吃点数
 悲报，一男三狗削弱了</blockquote>
 啥玩意？这种抽卡游戏还能搞削弱的？
 
+
+*****
+
+####  暗口崩子  
+##### 418#       发表于 2025-11-12 01:17
+
+[https://nga.178.com/read.php?tid=45556687&amp;_ff=824](https://nga.178.com/read.php?tid=45556687&amp;_ff=824)
+
+这个蓝壶n2绝了，辅助都能刷一套<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
