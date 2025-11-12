@@ -4692,3 +4692,14 @@ N10好像是武器太吃点数
 
 我去，猫全部没了，不会这也是bug吧
 
+
+*****
+
+####  三谷歩夢  
+##### 438#       发表于 2025-11-12 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68712970&amp;ptid=2256125" target="_blank">windaria 发表于 2025-11-12 15:52</a>
+
+我去，猫全部没了，不会这也是bug吧</blockquote>
+更新日志说了下调了猫的出现率
+
