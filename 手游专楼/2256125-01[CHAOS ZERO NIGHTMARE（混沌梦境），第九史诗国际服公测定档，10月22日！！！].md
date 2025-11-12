@@ -4753,3 +4753,39 @@ N10好像是武器太吃点数
 
 看到nga有人算了下，第一赛季商店搬空要打一百把，感觉这就是下一个要冲的目标的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动卡厄思10级难度是对标零号十级的，但是不吃零号的buff，非常离谱
 
+
+*****
+
+####  一之江瑞江  
+##### 444#       发表于 2025-11-12 21:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这活动的数值有点高啊 有推荐打法吗
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 445#       发表于 2025-11-12 21:50
+
+大佬们
+
+梅林的最强组队是啥
+
+梅林+维罗妮卡+米卡
+
+梅林+贝利尔+米卡
+
+梅林+赛琳娜+米卡
+
+*****
+
+####  伊布桑  
+##### 446#       发表于 2025-11-12 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68714667&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-12 21:50</a>
+大佬们
+
+梅林的最强组队是啥
+
+梅林+维罗妮卡+米卡</blockquote>
+梅琳+薇若妮卡+蕾伊吧感觉。虽然米卡也不错
+
