@@ -93,3 +93,13 @@
 
 能看p房就买，我在乎的是能连续跑24h吗？
 
+
+*****
+
+####  Totokei  
+##### 1946#       发表于 2025-11-12 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711655&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2025-11-12 11:40</a>
+付费dlc多少钱啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">包含货币500w，可以参考一下买500w的内购多少钱
+
