@@ -286,3 +286,42 @@ BanG Dream! 10th Anniversary LIVE
 破茧化蝶。
 <img src="https://p.sda1.dev/28/edd2807a62546b03fc975a2dbb02b2f9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 27353#       发表于 2025-11-12 13:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/12/134001bzmwi345c522u3xu.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-12_13-36-36.jpg</strong> (280.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-12 13:40 上传
+
+       [https://x.com/bang_dream_info/status/1988434271967867194](https://x.com/bang_dream_info/status/1988434271967867194)
+
+       [https://bang-dream.com/discographies/4093](https://bang-dream.com/discographies/4093)
+
+*****
+
+####  堀内爱里衣  
+##### 27354#       发表于 2025-11-12 13:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/12/134045ek03o8lhl00nqwkn.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-12_13-37-08.jpg</strong> (458.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-12 13:40 上传
+
+       [https://x.com/bang_dream_info/status/1988441628210852235](https://x.com/bang_dream_info/status/1988441628210852235)
+
+       [https://bang-dream.com/events/mygo-avemujica2026](https://bang-dream.com/events/mygo-avemujica2026)
+
