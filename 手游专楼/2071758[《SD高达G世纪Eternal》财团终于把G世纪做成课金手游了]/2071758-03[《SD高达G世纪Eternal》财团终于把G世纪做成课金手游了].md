@@ -950,3 +950,11 @@ BD剧本这次做的不错，最后竟然还补了阿克西斯，50抽搞了个B
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">真的，14层上边神，下边海牛，第一回合把鸡狼穆迪亚哥全肘死，之前还要一点点挪克鲁泽算距离，现在全都不用了
 
+
+*****
+
+####  洛克萨斯  
+##### 3049#       发表于 2025-11-12 23:53
+
+好不容易过了19层，这20层怎么还要骗防的，太变态了，打不过啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
