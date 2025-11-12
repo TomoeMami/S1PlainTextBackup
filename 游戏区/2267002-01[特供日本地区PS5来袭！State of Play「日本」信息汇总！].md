@@ -508,3 +508,22 @@ jp版O键确认？显示器qhd？2k屏？</blockquote>
 真别说，要是幕府版独占了OX互换，我愿称之为索尼的顶级商法</blockquote>
 事到如今太晚了，之前发售的日版游戏也都是x确定了，只是主机改回去的话系统和游戏的确定键又对不上了
 
+
+*****
+
+####  zzf111  
+##### 44#       发表于 2025-11-12 12:35
+
+我就知道昨天零散看到的几个血源的料又是假的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袄_偶滴小乔  
+##### 45#       发表于 2025-11-12 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711957&amp;ptid=2267002" target="_blank">赤井稻妻 发表于 2025-11-12 12:31</a>
+事到如今太晚了，之前发售的日版游戏也都是x确定了，只是主机改回去的话系统和游戏的确定键又对不上了 ...</blockquote>
+不一定，ps4时代就存在游戏跟系统的，同一张碟你插美版就x确定，插日版机就o确定，这种游戏到ps5上也自动识别x确定的，其实看索尼代码怎么写的，我记得老主机破解了就能改ox
+
+当然我估计索尼ps5不会改了
+
