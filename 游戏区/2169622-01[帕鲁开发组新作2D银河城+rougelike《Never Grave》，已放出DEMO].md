@@ -1091,3 +1091,15 @@ demo之后憋了一年半，准备出正式版1.0了
 
 就好比那个死亡细胞，媒体说它是银河城加roguelite，但其实就是拿到一些法器，之后能够开启不同路线而已，根本就不是银河城。这也太不专业了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  schneehertz  
+##### 115#       发表于 2025-11-12 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711066&amp;ptid=2169622" target="_blank">huahuaanying 发表于 2025-11-12 10:19</a>
+其实我想说银河城和roguelite这个类型本来就是互相排斥的。 银河城讲究一个精心编排的地图，roguelite讲究 ...</blockquote>
+对的，这个游戏就是类死亡细胞，根本不是银河城
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

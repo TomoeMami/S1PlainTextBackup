@@ -897,3 +897,14 @@ BD剧本这次做的不错，最后竟然还补了阿克西斯，50抽搞了个B
 
 普池什么时候能更新啊，很需要一个飞鸟<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3044#       发表于 2025-11-12 11:46
+
+确实体会到自己养成强度提高了，之前打13层还需要靠npc才打得舒服
+这次磨磨蹭蹭打到13后，发现可以自己手撕全场了，神高打爆发真爽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
