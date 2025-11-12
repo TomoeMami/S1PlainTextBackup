@@ -4499,3 +4499,38 @@ N10好像是武器太吃点数
 
 这个蓝壶n2绝了，辅助都能刷一套<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phoenixxj  
+##### 419#       发表于 2025-11-12 07:47
+
+<blockquote>碧空之歌P 发表于 2025-11-11 22:50
+都攒到现在了，怎么可能回头抽小春，到现在都没抽的人说明既不喜欢也没必要抽 ...</blockquote>
+你游属性克制和对策能让普通人变强。所以现在抽小春毫无游戏体验改善。
+
+但是yuki也有话说：我一个赛季新卡连这个待遇都没吗！
+
+只能说，该屯那就得屯
+
+*****
+
+####  伊布桑  
+##### 420#       发表于 2025-11-12 07:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68709906&amp;ptid=2256125" target="_blank">powerpyc 发表于 2025-11-12 00:27</a>
+啥玩意？这种抽卡游戏还能搞削弱的？</blockquote>
+是一个逆天小怪被削了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 421#       发表于 2025-11-12 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68709473&amp;ptid=2256125" target="_blank">phoenixxj 发表于 2025-11-11 22:31</a>
+小春也是对策卡，这种强攻数值怪遇到非克制的就只能强换血，打肉鸽牌差一点就容易翻。
+
+不知道新赛季的挑战 ...</blockquote>
+有神闪连击锚炮弱点克制的，你怕不怕<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
