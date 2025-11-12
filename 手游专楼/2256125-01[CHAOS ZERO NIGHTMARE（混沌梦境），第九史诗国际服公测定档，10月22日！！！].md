@@ -4534,3 +4534,13 @@ N10好像是武器太吃点数
 不知道新赛季的挑战 ...</blockquote>
 有神闪连击锚炮弱点克制的，你怕不怕<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phoenixxj  
+##### 422#       发表于 2025-11-12 08:24
+
+<blockquote>掉头学姐 发表于 2025-11-12 07:57
+有神闪连击锚炮弱点克制的，你怕不怕</blockquote>
+局外可以凹暴击回收，还可以凹开局完全不怕。这不关键是局内神鬼莫测，他但凡每局给我稳定连击锚感觉也能杀穿了
+
