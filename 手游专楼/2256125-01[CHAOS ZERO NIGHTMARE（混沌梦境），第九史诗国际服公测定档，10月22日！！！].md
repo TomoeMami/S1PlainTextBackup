@@ -4825,3 +4825,18 @@ N10好像是武器太吃点数
 
 局外环境纯粹看哪个存档刷得更好，局外米卡肯定是让出去给别的队自己拉个雷伊
 
+
+*****
+
+####  三谷歩夢  
+##### 449#       发表于 2025-11-12 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68714667&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-12 21:50</a>
+
+大佬们
+
+梅林的最强组队是啥
+
+梅林+维罗妮卡+米卡</blockquote>
+局外的话蓝壶刷个双0费喘气的极简卡组鼠兔，配梅玲香族精神那个热情卡牌+伤的闪还有升龙脚热情牌+次数的闪，刷一轮一拳几千伤害
+
