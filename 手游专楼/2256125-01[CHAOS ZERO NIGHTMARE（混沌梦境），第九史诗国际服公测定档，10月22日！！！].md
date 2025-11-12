@@ -4676,3 +4676,19 @@ N10好像是武器太吃点数
 
 草，百丽儿有BUG，破绽强化有时候不会开炮，有时候还会鞭尸
 
+
+*****
+
+####  windaria  
+##### 437#       发表于 2025-11-12 15:52
+
+<img src="https://img.stage1st.com/forum/202511/12/155133lfqqlvcfgn6yv7s6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (372.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-12 15:51 上传
+
+我去，猫全部没了，不会这也是bug吧
+
