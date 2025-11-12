@@ -4721,3 +4721,11 @@ N10好像是武器太吃点数
 
 不是这游戏公司怎么回事？开服活动还是个卡等级活动，要50级解锁<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nyaneko  
+##### 441#       发表于 2025-11-12 20:04
+
+试玩都这么刮痧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不想抽了。
+
