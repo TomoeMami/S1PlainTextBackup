@@ -1081,3 +1081,13 @@ demo之后憋了一年半，准备出正式版1.0了
 2026年3月5日发售
 [https://www.youtube.com/watch?v=hdxd-TcYIJc](https://www.youtube.com/watch?v=hdxd-TcYIJc)
 
+
+*****
+
+####  huahuaanying  
+##### 114#       发表于 2025-11-12 10:19
+
+其实我想说银河城和roguelite这个类型本来就是互相排斥的。 银河城讲究一个精心编排的地图，roguelite讲究每一局地图随机生成，怎么可能出现在同一个游戏里呢？
+
+就好比那个死亡细胞，媒体说它是银河城加roguelite，但其实就是拿到一些法器，之后能够开启不同路线而已，根本就不是银河城。这也太不专业了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
