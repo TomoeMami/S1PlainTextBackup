@@ -4544,3 +4544,15 @@ N10好像是武器太吃点数
 有神闪连击锚炮弱点克制的，你怕不怕</blockquote>
 局外可以凹暴击回收，还可以凹开局完全不怕。这不关键是局内神鬼莫测，他但凡每局给我稳定连击锚感觉也能杀穿了
 
+
+*****
+
+####  远野乙姬  
+##### 423#       发表于 2025-11-12 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68710384&amp;ptid=2256125" target="_blank">phoenixxj 发表于 2025-11-12 08:24</a>
+局外可以凹暴击回收，还可以凹开局完全不怕。这不关键是局内神鬼莫测，他但凡每局给我稳定连击锚感觉也能 ...</blockquote>
+其实目前还是数值怪阶段，把遗物拉起来，动不动暴击2 3000伤害就爽到了，没有那么胡的牌也一样可以打。真正不胡牌就吐血的是梅林…
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
