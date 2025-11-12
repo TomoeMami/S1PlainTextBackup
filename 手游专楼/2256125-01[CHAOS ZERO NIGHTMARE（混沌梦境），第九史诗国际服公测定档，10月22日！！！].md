@@ -4632,3 +4632,11 @@ N10好像是武器太吃点数
 
 能准时维护好不<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  21wwwb  
+##### 432#       发表于 2025-11-12 14:23
+
+一抽卡就闪退说是
+
