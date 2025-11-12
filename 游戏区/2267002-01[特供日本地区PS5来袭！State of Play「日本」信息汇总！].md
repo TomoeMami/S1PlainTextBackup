@@ -497,3 +497,14 @@ jp版O键确认？显示器qhd？2k屏？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能感觉日本人民生活的水深火热，现在分区定价更多是为了适配各地区人民的购买能力，多卖一套多赚一点钱。
 
+
+*****
+
+####  赤井稻妻  
+##### 43#       发表于 2025-11-12 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711508&amp;ptid=2267002" target="_blank">嘉术2015 发表于 2025-11-12 11:18</a>
+
+真别说，要是幕府版独占了OX互换，我愿称之为索尼的顶级商法</blockquote>
+事到如今太晚了，之前发售的日版游戏也都是x确定了，只是主机改回去的话系统和游戏的确定键又对不上了
+
