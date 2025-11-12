@@ -4840,3 +4840,38 @@ N10好像是武器太吃点数
 梅林+维罗妮卡+米卡</blockquote>
 局外的话蓝壶刷个双0费喘气的极简卡组鼠兔，配梅玲香族精神那个热情卡牌+伤的闪还有升龙脚热情牌+次数的闪，刷一轮一拳几千伤害
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 450#       发表于 2025-11-12 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68714704&amp;ptid=2256125" target="_blank">暗口崩子 发表于 2025-11-12 21:58</a>
+
+得看肉鸽局内还是局外了，肉鸽 鼠兔&gt;兔狙 应该是没什么争议，不吃牌权，方便过牌，额外攻击稳定输出也高
+
+ ...</blockquote>
+谢谢
+
+那我组梅林+维罗妮卡+雷伊
+
+*****
+
+####  phoenixxj  
+##### 451#       发表于 2025-11-12 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68714667&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-12 21:50</a>
+
+大佬们
+
+梅林的最强组队是啥
+
+梅林+维罗妮卡+米卡</blockquote>
+局内
+
+米卡 卡佩利 维神 （没错 梅林我觉得打肉鸽并不很厉害 如果刷卡组不得不带他）
+
+局外
+
+维神 梅林 雷伊
+
