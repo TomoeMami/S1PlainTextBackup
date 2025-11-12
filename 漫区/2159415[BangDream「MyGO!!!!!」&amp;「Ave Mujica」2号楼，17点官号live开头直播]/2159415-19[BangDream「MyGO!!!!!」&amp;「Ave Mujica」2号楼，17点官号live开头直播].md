@@ -325,3 +325,15 @@ BanG Dream! 10th Anniversary LIVE
 
        [https://bang-dream.com/events/mygo-avemujica2026](https://bang-dream.com/events/mygo-avemujica2026)
 
+
+*****
+
+####  紫吹兰  
+##### 27355#         楼主| 发表于 2025-11-12 13:59
+
+<blockquote>堀内爱里衣 发表于 2025-11-11 21:40
+https://x.com/bang_dream_info/status/1988441628210852235
+
+       https://bang-dream.co ...</blockquote>
+都不太好说是画得不好，已经画得有些吓人了
+
