@@ -569,3 +569,14 @@ vr还行 steam machine这个配置纯不可燃垃圾了
 
 7600m。。。。那不就是和比ps5稍微强一点<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 43#       发表于 2025-11-13 06:36
+
+frame和controller可以啊
+vr头显我本来还打算这个月下个月发钱了买quest的，这下可以等等且慢入场了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
