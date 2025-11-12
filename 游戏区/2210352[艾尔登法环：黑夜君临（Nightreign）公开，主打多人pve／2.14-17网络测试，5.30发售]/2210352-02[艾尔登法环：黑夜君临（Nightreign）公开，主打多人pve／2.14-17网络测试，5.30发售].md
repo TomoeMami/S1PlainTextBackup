@@ -67,3 +67,14 @@
 
 哎卧槽4号就能玩了，真好。终于有个近战女角色玩了，希望自带的小锤模组好用点
 
+
+*****
+
+####  忘却旋律  
+##### 1793#       发表于 2025-11-12 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68710745&amp;ptid=2210352" target="_blank">dydqydz 发表于 2025-11-12 09:26</a>
+
+葬遗屋皮衣是好文明</blockquote>
+女爵是谁 不熟 别联系我了 我怕 葬仪屋 误会
+
