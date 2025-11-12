@@ -4902,3 +4902,25 @@ N10好像是武器太吃点数
 以前还能说棒游就要你命，这游福利这么差真是要你钱又要你命</blockquote>
 那确实还是不怎么要钱的，毕竟都找不出什么氪金点
 
+
+*****
+
+####  暗口崩子  
+##### 455#       发表于 2025-11-12 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68714908&amp;ptid=2256125" target="_blank">Dreki 发表于 2025-11-12 22:55</a>
+
+感觉可以等更新了，这活动这样刷不动</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">活动本真是弱智的要命，不共享0号的天赋就算了，活动内没天赋，N6开始就感觉纯纯坐牢了
+
+新事件基本还都是负面的，打了三四把都是纯纯吃屎体验，一点都不想打等热更了
+
+*****
+
+####  orangee  
+##### 456#       发表于 2025-11-12 23:23
+
+最后一个难度是T12 80级么，策划意思是为了稳定刷分应该都去打T11 75级这个？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
