@@ -537,3 +537,17 @@ jp版O键确认？显示器qhd？2k屏？</blockquote>
 
 毫无难度的玩意，ps5就是不想做，说白了就是官方想借此机会彻底统一东西方玩家“价值观”
 
+
+*****
+
+####  sakuranosibe  
+##### 47#       发表于 2025-11-12 17:38
+
+<img src="https://img.stage1st.com/forum/202511/12/173825hg5vkrzl4trolz1o.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2858.jpeg</strong> (360.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-12 17:38 上传
+
