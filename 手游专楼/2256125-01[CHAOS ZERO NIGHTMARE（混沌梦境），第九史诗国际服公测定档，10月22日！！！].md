@@ -4612,3 +4612,15 @@ N10好像是武器太吃点数
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  orangee  
+##### 430#       发表于 2025-11-12 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711597&amp;ptid=2256125" target="_blank">笨蛋，我知道的 发表于 2025-11-12 11:30</a>
+早上起来看了下，创伤入口小春的关了，结果女主的怎么进也找不到了，太神秘了这个ui。不知道维护之后还能不 ...</blockquote>
+快捷入口关了应该在那个城市的治疗中心里还有个入口吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
