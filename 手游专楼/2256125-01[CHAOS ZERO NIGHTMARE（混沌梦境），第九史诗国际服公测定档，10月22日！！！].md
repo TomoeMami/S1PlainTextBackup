@@ -4713,3 +4713,11 @@ N10好像是武器太吃点数
 
 现在稳定阵容就是熊盾鼠兔初始奶妈带队，基本不带翻车的。
 
+
+*****
+
+####  fireflies  
+##### 440#       发表于 2025-11-12 19:44
+
+不是这游戏公司怎么回事？开服活动还是个卡等级活动，要50级解锁<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
