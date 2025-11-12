@@ -42,3 +42,30 @@
 
 这个 Power Pack 居然是收费的，主打耐力赛事，不知道价格会是多少（PD 为了增加收入也是绞尽脑汁了 <img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  一个陆仁贾  
+##### 1940#       发表于 2025-11-12 10:24
+
+有练习赛和排位赛，终于不用尾部发车了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  iou90  
+##### 1941#       发表于 2025-11-12 10:26
+
+24小时赛事可以中途保存退出吗 不然真的搞不动…
+
+
+*****
+
+####  NEIN  
+##### 1942#       发表于 2025-11-12 10:32
+
+是单机还是多人内容嘞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
