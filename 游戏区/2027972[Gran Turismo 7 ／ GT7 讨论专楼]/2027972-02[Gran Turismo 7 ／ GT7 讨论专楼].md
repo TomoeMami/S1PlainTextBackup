@@ -103,3 +103,11 @@
 付费dlc多少钱啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">包含货币500w，可以参考一下买500w的内购多少钱
 
+
+*****
+
+####  Totokei  
+##### 1947#       发表于 2025-11-12 20:20
+
+想问一下如果我在acc或者ac有一个同款车的涂装想转移到GT的话有什么比较简单的办法？我看文件里有一个dds的文件是按照模板涂好的
+
