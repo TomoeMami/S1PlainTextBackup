@@ -34,3 +34,11 @@
 
 “动力扩容”DLC还会附赠5,000,000游戏内货币。
 
+
+*****
+
+####  leystage  
+##### 1939#         楼主| 发表于 2025-11-12 09:26
+
+这个 Power Pack 居然是收费的，主打耐力赛事，不知道价格会是多少（PD 为了增加收入也是绞尽脑汁了 <img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">）
+
