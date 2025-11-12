@@ -4591,3 +4591,14 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像N5的BUG档还是没说修正 更新后还能爽
 
+
+*****
+
+####  fireflies  
+##### 428#       发表于 2025-11-12 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68711248&amp;ptid=2256125" target="_blank">qixinno2 发表于 2025-11-12 10:45</a>
+
+好像N5的BUG档还是没说修正 更新后还能爽</blockquote>
+感觉有点暂时放弃了，赛季活动只能用赛季档打，深渊放水了吧
+
