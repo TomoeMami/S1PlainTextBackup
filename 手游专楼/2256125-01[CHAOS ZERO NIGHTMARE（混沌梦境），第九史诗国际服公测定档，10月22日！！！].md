@@ -4602,3 +4602,13 @@ N10好像是武器太吃点数
 好像N5的BUG档还是没说修正 更新后还能爽</blockquote>
 感觉有点暂时放弃了，赛季活动只能用赛季档打，深渊放水了吧
 
+
+*****
+
+####  笨蛋，我知道的  
+##### 429#       发表于 2025-11-12 11:30
+
+早上起来看了下，创伤入口小春的关了，结果女主的怎么进也找不到了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，太神秘了这个ui。不知道维护之后还能不能找到。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
