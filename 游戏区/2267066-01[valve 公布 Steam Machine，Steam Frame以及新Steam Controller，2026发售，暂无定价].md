@@ -2632,3 +2632,23 @@ valve又不自己生产硬件，出货量也比不过其他家，为什么会有
 不交windows授权费+硬件配置低？steam deck不也差不多</blockquote>
 PS5和XBOX也不交windows授权费啊，甚至DIY你也能自己装linux，难不成竞品是品牌整机吗？
 
+
+*****
+
+####  はちたや  
+##### 248#       发表于 2025-11-13 17:29
+
+<blockquote>umbasa 发表于 2025-11-13 17:20
+你这话别和我说，这么瞧不上v社的“电子垃圾”，那你自掏腰包给鬼佬把高端硬件价格打下来啊。我只知道任 ...</blockquote>
+你也太搞笑了，我又不是鬼佬，倒是你这么积极和鬼佬共情给阀门这个玩意洗地，是真的没办法在国内装机？不行你上pdd买个百补ps5吧
+
+*****
+
+####  雪山不卖防寒衣  
+##### 249#       发表于 2025-11-13 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718584&amp;ptid=2267066" target="_blank">Amami_Haruka_ 发表于 2025-11-13 17:20</a>
+PS5和XBOX也不交windows授权费啊，甚至DIY你也能自己装linux，难不成竞品是品牌整机吗？
+ ...</blockquote>
+从游戏库的角度来说 也许是的吧  等于pc玩家买主机的时候不用再买一遍游戏了
+
