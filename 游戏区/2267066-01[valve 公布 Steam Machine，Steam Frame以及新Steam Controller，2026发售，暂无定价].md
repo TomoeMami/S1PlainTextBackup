@@ -2355,3 +2355,16 @@ arm Linux的头显有点意思，手柄也还行，主机感觉太拉了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  霖岚_  
+##### 220#       发表于 2025-11-13 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715860&amp;ptid=2267066" target="_blank">病態極端 发表于 2025-11-13 09:24</a></blockquote>
+这还是得跟steamdeck那样拆开才能换硬盘，我想的是能不能和surface pro这样在背面找个犄角旮旯弄个螺丝盖板,，卸掉就能插个ssd上去直接扩容这样的
+
+但话又说回来都主机形态了不需要像sd要便携属性，usb直接插个ssd好像也没差……
+
+<img src="https://p.sda1.dev/28/785c421f94414e37f13b6e0440be0352/1000095546.jpg" referrerpolicy="no-referrer">
+
