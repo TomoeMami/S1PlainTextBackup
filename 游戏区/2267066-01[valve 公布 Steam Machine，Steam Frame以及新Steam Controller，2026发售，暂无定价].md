@@ -1918,3 +1918,29 @@ Archlinux官方现在只支持x64
 
 衍生的Manjaro和archlinuxarm就支持arm，steamos不是不可以 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  samusialan  
+##### 176#       发表于 2025-11-13 11:09
+
+“兔奶奶”
+
+
+*****
+
+####  ajsh  
+##### 177#       发表于 2025-11-13 11:12
+
+399刀，现在北美ps5都做不到这么便宜
+
+*****
+
+####  simonroam  
+##### 178#       发表于 2025-11-13 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716429&amp;ptid=2267066" target="_blank">tillnight 发表于 2025-11-13 10:49</a>
+
+我完全没理解普遍氛围是vr已死的游戏社区会为这个frame兴奋，怕不是叶公好龙。本质上和quest3pico4u同级， ...</blockquote>
+大概就是V社风评好吧，出什么大家都欢迎
+
