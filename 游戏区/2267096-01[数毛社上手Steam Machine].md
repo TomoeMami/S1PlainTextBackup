@@ -753,3 +753,20 @@ sd光凭一个开机即可玩和steamos就不是其他win掌机可以比的，ns
 dlss变fsr，反向升级</blockquote>
 这没办法，linux下只有a卡能用
 
+
+*****
+
+####  医生狼多  
+##### 79#         楼主| 发表于 2025-11-13 18:33
+
+stos的开机可玩和win掌机也就60分和50分差距吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我sd睡死的次数也不少了
+
+*****
+
+####  CALPISSODA  
+##### 80#       发表于 2025-11-13 18:36
+
+<blockquote>纯白花火 发表于 2025-11-13 13:47
+真有蒸斯林买台3060都不如的主机放客厅？太抽象了</blockquote>
+不会装机又想用steam玩游戏的人可能会需要吧？
+

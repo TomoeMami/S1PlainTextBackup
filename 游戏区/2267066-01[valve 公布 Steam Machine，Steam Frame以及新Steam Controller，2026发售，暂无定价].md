@@ -2790,3 +2790,15 @@ pc区还有人为了大屏幕影音出游带显示器呢
 
 換內核也可以一路下一步，廠商提供安裝腳本就行了。當然都是紙上談兵。But you already know that.
 
+
+*****
+
+####  沧兰殇  
+##### 262#       发表于 2025-11-13 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718491&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 17:04</a>
+不是你急眼什么？我又没让别人买，我自己也不打算买，我怎么就孝子了？我就是分析为什么这玩意在海外有市 ...</blockquote>
+查看你回的这位的历史发言，合理怀疑是索尼养的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这个帖子里就他最急，又是电子垃圾，又是画靶7000块的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
