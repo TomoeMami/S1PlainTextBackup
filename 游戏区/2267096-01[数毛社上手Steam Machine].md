@@ -540,3 +540,29 @@ linux上换个proton-ge就能用fsr4，不过相比rdna4显卡原生帧数的性
 
 明年400刀应该能组出比3036强的主机吧, 感觉是比win掌机还小众的需求<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zid99825  
+##### 57#       发表于 2025-11-13 16:16
+
+steam现在3060/4060占有率最高的情况下，升级steam machine真的是升级么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zid99825  
+##### 58#       发表于 2025-11-13 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717266&amp;ptid=2267096" target="_blank">油条小贩 发表于 2025-11-13 12:59</a>
+
+win的底层系统太难了，光一个休眠唤起都经常出bug程序关闭</blockquote>
+没第三方软件乱加hook和resumeTimer的情况下，固定硬件+驱动改好，理论上win的modern standby没什么问题的
+
+
+*****
+
+####  克里斯邓恩  
+##### 59#       发表于 2025-11-13 16:20
+
+我不会买，所以我觉得这个配置还可以接受，就当成一台特制的nuc，就像steam deck一样，如果当成掌机你会觉得不行，但你当成一台特制的笔记本，那价格是可以接受而且销量是非常恐怖。
+
