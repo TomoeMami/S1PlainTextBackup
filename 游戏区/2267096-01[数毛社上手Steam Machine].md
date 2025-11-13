@@ -1,0 +1,414 @@
+﻿
+*****
+
+####  医生狼多  
+##### 1#       楼主       发表于 2025-11-13 10:06
+
+【数毛社上手V社新设备：Steam Machine性能介于XSS和PS5之间】Valve在今天凌晨公布了三款全新硬件，其中PC/主机混合设备Steam Machine最为引人关注。技术媒体“数毛社”分享了他们的上手体验，分析了这款Steam主机的前景。报告内容如下：
+1.Steam Machine由Valve自行制造并销售。根据目前的规格表，它的性能大约介于Xbox Series S与标准版PS5之间，甚至在某些方面更接近PS5，但也存在一些前提条件。
+2.Steam Machine拥有统一的硬件规格，采用立方体机箱设计，内部有巨大的散热器，保留部分可更换组件的空间，并仅提供512GB或2TB内置存储的两个版本（均采用M.2 2230固态硬盘）。
+3.Digital Foundry推测Steam Machine的CPU源自Phoenix或Hawk Point APU，禁用了两个核心，并屏蔽了集成GPU。
+4.Steam Machine的GPU部分被认为和RX 7600最为接近，其规格从32个计算单元缩减至28个。数毛社猜测这块GPU很可能仍采用128-bit位宽，功耗（TDP）也更低：官方参数为110W，而Valve员工表示实际范围为110W–130W。
+5.Valve员工在与Digital Foundry的交流中多次表示，Steam Machine的性能目标是实现4K分辨率和60帧运行游戏，不过这要借助AMD的FSR技术，从较低分辨率上采样到4K图像。
+6.对于上述目标，数毛社认为就CPU而言，机器采用的Zen 4架构与标定频率足以在多数游戏中维持60帧。然而，8GB GDDR6的显存可能成为绊脚石。
+7.Valve工程师解释称，8GB显存的选择是出于“成本考虑”，但截至目前这台主机的定价尚未公布。
+8.Valve设计Steam Machine的理念主要依据Steam硬件调查数据。他们选定了一个能让大多数Steam玩家体验到性能升级的硬件水平。数毛社认为这种思路对控制成本或许有效，但在当下及未来的PC游戏趋势中可能会落后，玩家应降低对性能的期望。
+9.Valve确认开发者将获得一个API，用于识别Steam Machine硬件并自动调整游戏内设置，就像Steam Deck API一样。
+10.在Steam Machine的首次试玩活动中，他们选择了“老演员”《赛博朋克2077》来进行测试。在将大多数选项设为较高，关闭全部光追选项，启用FSR升采样至1440p时，帧率基本稳定在60帧。当保持相同分辨率与设定，但打开光追阴影与光追反射后，帧率下降至不稳定的30帧区间。
+11.据称Steam Machine支持VRR。
+12.Valve工程师表示，他们正在专注于优化驱动层面的光追加速结构编译流程，目标是在正式发售前让SteamOS的翻译层充分利用GPU的光追能力。
+13.他们的试玩过程中使用了全新的Steam Controller手柄，对它几乎挑不出什么毛病，认为这款外形精致、手感舒适的手柄非常适合作为Steam Machine的标配。他们用这款手柄玩了《小丑牌》，触控板手感顺滑、精度高，可以让人轻松抓取并放置游戏中的扑克牌。
+14.Steam Controller新手柄使用了隧道磁阻（TMR）摇杆，还加入了名为“Grip Sense”的功能，在射击类游戏中启用后，握住手柄侧面的握把即可启动陀螺仪体感控制；当玩家需要重新调整手部姿势时，只需放开握把即可暂停体感，再次握住则重新启用。
+15.Valve将Steam Controller的无线接收模块直接集成在了Steam Machine中，因此套装内的控制器可以即插即用，且可以无线开机或唤醒主机，Steam Machine也和Steam Deck一样支持休眠暂停游戏。
+16.Steam Machine能够通过可替换的磁吸外壳来更改外观。 Valve将公开3D CAD文件，供玩家自行制作外壳。
+17.Valve确认用户可以手动升级内置存储，主板上的M.2插槽同时支持2230与2280规格的SSD。两条笔记本电脑规格的内存模块也可更换，但较难拆卸
+18.Steam Machine的售价并未公布。数毛社认为这台机器若能以399美元发售，将颇具吸引力；若价格接近甚至超过现有主机，而纸面性能又不占优势，就令人难以接受。
+
+*****
+
+####  叶雾  
+##### 2#       发表于 2025-11-13 10:14
+
+Valve设计Steam Machine的理念主要依据Steam硬件调查数据。他们选定了一个能让大多数Steam玩家体验到性能升级的硬件水平。数毛社认为这种思路对控制成本或许有效，但在当下及未来的PC游戏趋势中可能会落后，玩家应降低对性能的期望。
+
+中位数
+
+*****
+
+####  mjzs07  
+##### 3#       发表于 2025-11-13 10:26
+
+不懂sm为啥不用n卡， steam 知道用户数据a卡数量肯定可以忽略不计的
+
+*****
+
+####  Xerxes_2  
+##### 4#       发表于 2025-11-13 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716277&amp;ptid=2267096" target="_blank">mjzs07 发表于 2025-11-13 12:26</a>
+不懂sm为啥不用n卡， steam 知道用户数据a卡数量肯定可以忽略不计的</blockquote>
+N 卡 Linux 驱动是💩
+
+— from Google Pixel 10 Pro XL, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  dududa  
+##### 5#       发表于 2025-11-13 10:32
+
+<blockquote>mjzs07 发表于 2025-11-13 10:26
+不懂sm为啥不用n卡， steam 知道用户数据a卡数量肯定可以忽略不计的</blockquote>
+不用n卡倒好理解，steamos说到底还是linux，a卡驱动在linux下还行，与windows相比基本没有损失，但n卡驱动不行，与windows相比性能损失很大
+
+*****
+
+####  umbasa  
+##### 6#       发表于 2025-11-13 10:32
+
+<blockquote>mjzs07 发表于 2025-11-13 10:26
+不懂sm为啥不用n卡， steam 知道用户数据a卡数量肯定可以忽略不计的</blockquote>
+老黄不可能给g胖单独定一套方案，sm的出货量太小了，又不是ns2那样生涯保底5kw的出货量。要是直接买4060m，价格又太贵了，成本控制不住。你看数毛社问v社员工为啥只有8g显存，回答也是为了尽可能控制成本。
+
+*****
+
+####  windspearw  
+##### 7#       发表于 2025-11-13 10:52
+
+只期望会有显卡扩展坞
+
+—— 来自 samsung SM-S9210, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  subject07  
+##### 8#       发表于 2025-11-13 11:07
+
+399美元的话确实可以，拿来放客厅玩steam库了
+
+*****
+
+####  back57992  
+##### 9#       发表于 2025-11-13 11:15
+
+399带手柄 v社就是爷
+
+*****
+
+####  我是快乐小马甲  
+##### 10#       发表于 2025-11-13 11:17
+
+客厅都是4K，性能这么差，FSR也不行，那真是图个乐了。400刀PS5能买台全新了，XSX能买个二手。索尼微软：吓老子一大跳。
+
+*****
+
+####  leavan  
+##### 11#       发表于 2025-11-13 11:35
+
+典型的电子垃圾，25年公布的硬件PS5性能都不如，switch2作为掌机在各路掌机里性能并不算最拉，款这电子垃圾在各种游戏PC里也是最low的一档，
+
+蒸斯林下一步该吹steam os 和一键唤醒了，“红酒大沙发”也借用用
+
+*****
+
+####  Rowen233  
+##### 12#       发表于 2025-11-13 11:38
+
+不是，你都游戏机＋定制SOC了为什么不上24gb统一内存＋显存<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gpu也就28个cu应该能封装在一起啊
+
+*****
+
+####  比乐  
+##### 13#       发表于 2025-11-13 11:39
+
+游戏库基本全在steam，对我来说还挺有吸引力的，如果399的话考虑放一台在客厅玩
+
+*****
+
+####  sellboy  
+##### 14#       发表于 2025-11-13 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716753&amp;ptid=2267096" target="_blank">Rowen233 发表于 2025-11-13 11:38</a>
+
+不是，你都游戏机＋定制SOC了为什么不上24gb统一内存＋显存gpu也就28个cu应该能封装在一起啊 ...</blockquote>
+肯定不是定制SOC
+
+*****
+
+####  warjuggler  
+##### 15#       发表于 2025-11-13 11:40
+
+ 本帖最后由 warjuggler 于 2025-11-13 11:42 编辑 
+
+最大的价值是能在客厅玩 steam 游戏库，新的手柄也可以预想到会很好用。对于只玩 switch 和 steam 平台的我来说非常有吸引力了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  沧兰殇  
+##### 16#       发表于 2025-11-13 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716618&amp;ptid=2267096" target="_blank">我是快乐小马甲 发表于 2025-11-13 11:17</a>
+客厅都是4K，性能这么差，FSR也不行，那真是图个乐了。400刀PS5能买台全新了，XSX能买个二手。索尼微软：吓 ...</blockquote>
+ps5国外定价不是500刀起步了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qwased  
+##### 17#       发表于 2025-11-13 11:58
+
+这配置不全是捡垃圾吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">APU废片都来了
+
+可能对现在消费降级的美国人来说还是有吸引力的吧
+
+*****
+
+####  zris  
+##### 18#       发表于 2025-11-13 12:05
+
+我又想起之前一些话术
+
+什么steam os加G胖特调着色器缓存 等于优化无敌
+
+看好steam machine
+
+*****
+
+####  Midnight.Coup  
+##### 19#       发表于 2025-11-13 12:06
+
+ 本帖最后由 Midnight.Coup 于 2025-11-13 12:16 编辑 
+
+已知 Strix Halo 有 16c Zen5 和 40CU RDNA3.5，加上 FSR 跑 4K60fps 还是痴人说梦呢，V 社这吹的有点过了。不过可换内存、SSD、前面板、提供3D打印图纸，Framework Desktop 表示很赞。
+
+硬件就 PS5 Lite 水平，价格最好也是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+手柄除了正面有点大外完美，霍尔摇杆、陀螺仪、触摸板、四背键、红外追踪都有，2.4GHz 轮询率 125Hz，延迟 8ms， Steam Machine 自带手柄接收器和蓝牙专用天线。不过能不能复活一下老款的外观<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+单千兆网口也没雷电，软路由/AIO 大失败，当 NAS 欠扩展性，还是老老实实当 Linux 主机，毕竟有官方固件支持
+
+*****
+
+####  karastar  
+##### 20#       发表于 2025-11-13 12:13
+
+就是一台固定配置的PC吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  simonroam  
+##### 21#       发表于 2025-11-13 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个性能拿来当客厅游戏机，感觉更像完成某种仪式感的需求
+
+*****
+
+####  ra2163  
+##### 22#       发表于 2025-11-13 12:20
+
+我怎么感觉V社每次出硬件的时机都很呆，存储颗粒这样涨，摆明明年就是最贵的时候，你价格怎么做呢
+
+steamdeck也是，逮着疫情供应链紧张的时候出
+
+*****
+
+####  snarc1  
+##### 23#       发表于 2025-11-13 12:27
+
+如果是rdna4还有点竞争力，rdna3真是拉完了
+
+*****
+
+####  7do  
+##### 24#       发表于 2025-11-13 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717047&amp;ptid=2267096" target="_blank">ra2163 发表于 2025-11-13 12:20</a>
+我怎么感觉V社每次出硬件的时机都很呆，存储颗粒这样涨，摆明明年就是最贵的时候，你价格怎么做呢
+
+steamdec ...</blockquote>
+有没有可能人家根本不考虑这个
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Nanachi  
+##### 25#       发表于 2025-11-13 12:31
+
+ 本帖最后由 Nanachi 于 2025-11-13 12:32 编辑 
+
+我没看懂，为啥要专门买个这个机器「在客厅玩steam游戏库」，组个Windows主机放客厅开steam的大屏幕模式不就行了吗，再把主机连上电视，插个无线手柄就行。
+
+我就这样用换下来的3700x+6600xt玩了三年了，虽然大部分时间还是只是在客厅看客户端版的抖音/B站
+
+*****
+
+####  星花  
+##### 26#       发表于 2025-11-13 12:41
+
+脑子瓦特了。
+
+*****
+
+####  天国で青空  
+##### 27#       发表于 2025-11-13 12:42
+
+就这参数还4K60帧，哪怕有FSR也是扯淡，评价为拉完了
+
+*****
+
+####  wtyrambo  
+##### 28#       发表于 2025-11-13 12:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个架构还是RDNA3吧，只能用垮到不行的fsr3来着
+
+*****
+
+####  平井姨夫  
+##### 29#       发表于 2025-11-13 12:52
+
+买个当steam deck的显卡扩展坞用，steam deck串流显示Steam Machine<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油条小贩  
+##### 30#       发表于 2025-11-13 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717116&amp;ptid=2267096" target="_blank">Nanachi 发表于 2025-11-13 12:31</a>
+我没看懂，为啥要专门买个这个机器「在客厅玩steam游戏库」，组个Windows主机放客厅开steam的大屏幕模式不 ...</blockquote>
+win的底层系统太难了，光一个休眠唤起都经常出bug程序关闭
+
+*****
+
+####  空洞骑士  
+##### 31#       发表于 2025-11-13 13:01
+
+我会等G胖的新手柄5刀清库存的时候入手一个。上一次手柄清库存的时候没买遗憾终生。
+
+*****
+
+####  alucardcz  
+##### 32#       发表于 2025-11-13 13:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真的会399吗 到时候599 699
+
+*****
+
+####  桥洞底下盖小被  
+##### 33#       发表于 2025-11-13 13:14
+
+纯电子垃圾，手柄倒是可以整一个
+
+*****
+
+####  Sissii  
+##### 34#       发表于 2025-11-13 13:20
+
+并非定制，现成笔记本芯片改改弄出来的
+
+*****
+
+####  onlv星骸  
+##### 35#       发表于 2025-11-13 13:28
+
+ 本帖最后由 onlv星骸 于 2025-11-13 13:30 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然但是,忽略PC的话STEAM主机的"独占"游戏是最多的，
+而且还有联机不用交会员税的优势，唯一缺陷就是用不了实体盘
+
+*****
+
+####  黄字  
+##### 36#       发表于 2025-11-13 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717266&amp;ptid=2267096" target="_blank">油条小贩 发表于 2025-11-13 12:59</a>
+
+win的底层系统太难了，光一个休眠唤起都经常出bug程序关闭</blockquote>
+如果他是掌机，或者其他形态的携带设备确实要考虑这一点。
+
+可他基本是一个台式机，一直现代待机也不会怎么样。
+
+这玩意儿也接不来现代电视，只有HDMI2.0。
+
+*****
+
+####  hu794  
+##### 37#       发表于 2025-11-13 13:36
+
+ps5杀手来了
+
+*****
+
+####  keytomylife  
+##### 38#       发表于 2025-11-13 13:37
+
+ 本帖最后由 keytomylife 于 2025-11-13 13:43 编辑 
+
+7600也好意思4K60？
+
+3060级别的玩意
+
+怕是性能模式都难4K60，还超级性能+插帧吗
+
+*****
+
+####  5353  
+##### 39#       发表于 2025-11-13 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717361&amp;ptid=2267096" target="_blank">onlv星骸 发表于 2025-11-13 13:28</a>
+
+虽然但是,忽略PC的话STEAM主机的"独占"游戏是最多的，
+
+而且还有联机不用交会员税的优势，唯一缺陷就是用不 ...</blockquote>
+我觉的绝大部分人要玩steam也是配pc。
+
+而且pc本身还有很多其他用途。
+
+买一个linux系统的主机，真的有必要吗。
+
+我真有些搞不懂这个的定位。
+
+就是真要玩steam为什么不配pc啊。
+
+*****
+
+####  纯白花火  
+##### 40#       发表于 2025-11-13 13:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有蒸斯林买台3060都不如的主机放客厅？太抽象了
+
+
+*****
+
+####  AEmpire  
+##### 41#       发表于 2025-11-13 13:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我更在意同步会不会有valve第一方护航大作的存在
+
+*****
+
+####  精钢魔像  
+##### 42#       发表于 2025-11-13 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717440&amp;ptid=2267096" target="_blank">5353 发表于 2025-11-13 13:44</a>
+
+我觉的绝大部分人要玩steam也是配pc。
+
+而且pc本身还有很多其他用途。
+
+买一个linux系统的主机，真的有必要 ...</blockquote>
+可能是微软和v社勾结。
+
+微软出类似xsx的高端机，绑定steam库。v社出类似xss的低端机和掌机。
+
+*****
+
+####  Tissuesea  
+##### 43#       发表于 2025-11-13 13:52
+
+就当是G胖的小玩具了，忽然想到就这个配置打cs2可以吗？
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
