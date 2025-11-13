@@ -2748,3 +2748,45 @@ windows比linux安全嗎？聞所未聞。
 
 看了下白皮的普遍预期：399乐观 499正常 599偏贵 
 
+
+*****
+
+####  斯库鲁多  
+##### 259#       发表于 2025-11-13 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718510&amp;ptid=2267066" target="_blank">勿徊哉 发表于 2025-11-13 17:07</a>
+
+没啥问题，一个单反包大小的单肩包而已
+
+pc区还有人为了大屏幕影音出游带显示器呢
+
+ ...</blockquote>
+我的错，看到后置电池默认以为frame像pico、quest pro以及psvr那样都是硬框架的头戴<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了一眼还是用织物带的
+
+*****
+
+####  frankCC  
+##### 260#       发表于 2025-11-13 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718758&amp;ptid=2267066" target="_blank">NeverCU 发表于 2025-11-13 17:52</a>
+看了下白皮的普遍预期：399乐观 499正常 599偏贵</blockquote>
+499是和其他两家数字版主机同价，算是个互有胜负。
+399就是完全地亏损走量，靠软件补收入的主机打法了。
+至于599，那只能自娱自乐了。
+
+*****
+
+####  病態極端  
+##### 261#       发表于 2025-11-13 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718715&amp;ptid=2267066" target="_blank">Midnight.Coup 发表于 2025-11-13 17:44</a>
+
+隔壁国产 Android 全面收紧 BL 的其中一个契机就是 Root 后开挂的人太多了
+
+另一个就游戏厂的内核开发水平 ...</blockquote>
+聽起來像是藉口。
+
+至於開發水平…目前大部分廠商就連windows上的反作弊都爛穿了（不是指反作弊能力），所以你這問題確實無解。
+
+換內核也可以一路下一步，廠商提供安裝腳本就行了。當然都是紙上談兵。But you already know that.
+

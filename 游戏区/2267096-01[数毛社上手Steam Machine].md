@@ -705,3 +705,15 @@ df的语气不就是399基本不可能么
 df的语气不就是399基本不可能么</blockquote>
 是啊，dram和nand都涨疯了，再用AMD的边角料都省不下来<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iou90  
+##### 74#       发表于 2025-11-13 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718398&amp;ptid=2267096" target="_blank">itis1999 发表于 2025-11-13 16:48</a>
+性能不如ps5，系统不如win11可以上网娱乐学习办公，便携不如游戏本，还不能够diy升级配置，不管什么价格都 ...</blockquote>
+steam deck 据三方统计貌似销量有突破 5m 
+所有 windows 掌机包含 steam deck 也没有 10m 吧
+之前记得有新闻报道 rog ally 销量有突破 0.5m 大新闻一样囧
+
