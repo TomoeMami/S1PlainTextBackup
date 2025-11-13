@@ -3342,3 +3342,17 @@ ps5 slim没光驱，首发的ps5数字版不就是399？而且找你的说法，
 
 成本低，那你ps5咋不卖399，只能靠打折假装399呢
 
+
+*****
+
+####  nozomitech  
+##### 314#       发表于 2025-11-14 07:13
+
+ 本帖最后由 nozomitech 于 2025-11-14 00:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68720688&amp;ptid=2267066" target="_blank">NeverCU 发表于 2025-11-13 23:57</a>
+
+成本低，那你ps5咋不卖399，只能靠打折假装399呢</blockquote>
+别的地方我不知道，我这常年就是399欧元，什么打折不打折的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你要杠那你说说这玩意卖多少合适呢？理由是什么呢？
+
+顺便如果是因为提了一句ps5就虚空索敌觉得我是索狗的那您还是少废那劲，真不是<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
