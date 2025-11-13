@@ -2595,3 +2595,40 @@ Steam Machine 性能定位有点问题，既然中位数是这个水平，为啥
 不是你急眼什么？我又没让别人买，我自己也不打算买，我怎么就孝子了？我就是分析为什么这玩意在海外有市 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">出个电子垃圾整机收割在你嘴里就变成搅活游戏硬件市场了，还是你会吹
 
+
+*****
+
+####  Amami_Haruka_  
+##### 244#       发表于 2025-11-13 17:14
+
+valve又不自己生产硬件，出货量也比不过其他家，为什么会有人觉得它能更便宜
+
+*****
+
+####  雪山不卖防寒衣  
+##### 245#       发表于 2025-11-13 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718556&amp;ptid=2267066" target="_blank">Amami_Haruka_ 发表于 2025-11-13 17:14</a>
+valve又不自己生产硬件，出货量也比不过其他家，为什么会有人觉得它能更便宜 ...</blockquote>
+不交windows授权费+硬件配置低？steam deck不也差不多
+
+
+*****
+
+####  umbasa  
+##### 246#       发表于 2025-11-13 17:20
+
+<blockquote>はちたや 发表于 2025-11-13 17:12
+出个电子垃圾整机收割在你嘴里就变成搅活游戏硬件市场了，还是你会吹</blockquote>
+你这话别和我说，这么瞧不上v社的“电子垃圾”，那你自掏腰包给鬼佬把高端硬件价格打下来啊。我只知道任天堂和索尼都搞起幕府百亿补贴了，我看着也挺眼红的，毕竟谁不想买到价格实惠的商品呢。
+
+*****
+
+####  Amami_Haruka_  
+##### 247#       发表于 2025-11-13 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718568&amp;ptid=2267066" target="_blank">雪山不卖防寒衣 发表于 2025-11-13 17:17</a>
+
+不交windows授权费+硬件配置低？steam deck不也差不多</blockquote>
+PS5和XBOX也不交windows授权费啊，甚至DIY你也能自己装linux，难不成竞品是品牌整机吗？
+
