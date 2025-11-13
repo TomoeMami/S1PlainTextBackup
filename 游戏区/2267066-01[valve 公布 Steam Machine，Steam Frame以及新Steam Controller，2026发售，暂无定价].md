@@ -945,3 +945,119 @@ HDMI 2.0是写错了还是啥，2.0应该只有4k60吧
 
 价格合理点就入
 
+
+*****
+
+####  勿徊哉  
+##### 81#       发表于 2025-11-13 08:38
+
+frame感觉价格不会高于index
+还能像19年一样用点卡打7折吗？
+
+*****
+
+####  Awanano  
+##### 82#       发表于 2025-11-13 08:38
+
+手柄定价应该是索软的英精定位吧，这背键续航摇杆看着都不错，别的不说续航薄纱索尼那个了
+
+VR就是不知道256G和1T有什么实际区别，以及能不能毛开发者套件
+
+唉好想1月份就发售还能往国内倒一两份<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  umbasa  
+##### 83#       发表于 2025-11-13 08:38
+
+<blockquote>zhangzcl2 发表于 2025-11-13 08:36
+这主机要是御三家出的又要被骂电子垃圾</blockquote>
+说的好像xss和ns没被骂成电子垃圾一样，笑
+
+*****
+
+####  勿徊哉  
+##### 84#       发表于 2025-11-13 08:39
+
+frame能将任意3d游戏立体化吗？
+比如轨迹啥的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  mjzs07  
+##### 85#       发表于 2025-11-13 08:40
+
+sm很吸引唯一缺点是用A卡，索尼微软还没一点危机意识吗，索尼游戏跨steam ，sm也可以摆脱windows 了
+
+*****
+
+####  谢三哥  
+##### 86#       发表于 2025-11-13 08:41
+
+<blockquote>umbasa 发表于 2025-11-13 08:28
+还支持dp1.4，这图上没标注。说实话我觉得这玩意除了价格最大的问题就是rdna3.0的生态，amd有没有官宣fsr ...</blockquote>
+那立足点还是连接显示器了，hdmi2.0连电视实在太不2025年了
+
+
+*****
+
+####  heseran  
+##### 87#       发表于 2025-11-13 08:42
+
+主机499以内交个朋友
+
+*****
+
+####  mjzs07  
+##### 88#       发表于 2025-11-13 08:42
+
+<blockquote>zhangzcl2 发表于 2025-11-13 08:36
+这主机要是御三家出的又要被骂电子垃圾</blockquote>
+
+性能不可能比ps5差 不然没法玩索尼游戏
+
+*****
+
+####  KevinGraham  
+##### 89#       发表于 2025-11-13 08:42
+
+主机没意思，手柄出了整一个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 90#       发表于 2025-11-13 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715604&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 08:34</a>
+反正当初amd的kol吹的牛逼是人人有红石用，“感谢苏妈开源”。
+
+“得益于我上面说的这些原理，FSR Redsto ...</blockquote>
+udna的硬件特性rtx40系全部都有，当然能用了，但rdna3可没有啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  umbasa  
+##### 91#       发表于 2025-11-13 08:46
+
+<blockquote>谢三哥 发表于 2025-11-13 08:41
+那立足点还是连接显示器了，hdmi2.0连电视实在太不2025年了</blockquote>
+是啊，这玩意根子还是pc。我觉得这波最难受的其实是微软，steamos是真的对windows有一定威胁的，别管这威胁有多小，关键在于steam带着linux死灰复燃了。另外从硬件设计概念上，也和下一代xbox撞车了，人家落地还比你早——“他说的都是我的词啊！”
+
+*****
+
+####  はちたや  
+##### 92#       发表于 2025-11-13 08:47
+
+入门pc，我笑了
+
+阀门真觉得自己有硬件粉，学任天堂出电子垃圾？可任天堂真有独占
+
+*****
+
+####  umbasa  
+##### 93#       发表于 2025-11-13 08:47
+
+<blockquote>KevinGraham 发表于 2025-11-13 08:46
+udna的硬件特性rtx40系全部都有，当然能用了，但rdna3可没有啊</blockquote>
+文字游戏时间是吧，嗨，老a卡用户现在不开香槟等红石真的落地再开就晚了。
+
