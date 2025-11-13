@@ -2802,3 +2802,27 @@ pc区还有人为了大屏幕影音出游带显示器呢
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  医生狼多  
+##### 263#       发表于 2025-11-13 18:41
+
+实际上499也没法打，索尼现在是拉高零售价但促销也多，黑五堡垒包449<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/28/216db4e83dcec828d3c37c2743363208/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  伊丽虾皇VI  
+##### 264#       发表于 2025-11-13 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718755&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 17:50</a>
+哥，你赢了，我说不过你。g胖这种把电子垃圾卖7000块的黑心商人就该下十八层地狱，可以了吧？ ...</blockquote>
+是该算了bro，旁观你俩几条不懂他为什么要敌意这么大和你说话
+
+*****
+
+####  朔方原的星  
+##### 265#       发表于 2025-11-13 18:45
+
+<img src="https://p.sda1.dev/28/1669b7b13f8fcd759b8041f9fb639519/image.jpg" referrerpolicy="no-referrer">
+
