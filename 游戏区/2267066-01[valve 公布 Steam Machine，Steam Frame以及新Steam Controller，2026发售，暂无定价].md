@@ -2913,3 +2913,39 @@ xbox有下一代
 
 —— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  はちたや  
+##### 274#       发表于 2025-11-13 19:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭还是有意思，喷个阀门的电子垃圾也是索孝子，极致的路径依赖是吧
+
+
+*****
+
+####  Midnight.Coup  
+##### 275#       发表于 2025-11-13 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718393&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 16:48</a>
+因为鬼佬的diy成本非常高。鬼佬又不是傻子，ps5北美都卖500刀了，要是pc的diy真的像国内一样便宜，那他们 ...</blockquote>
+7600M 前两年已经国内小厂拿来做外接显卡的库存货了，5205年G胖还能拿出来宣传成fsr后4K@60的卡<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都是神人
+
+*****
+
+####  darthruse  
+##### 276#       发表于 2025-11-13 19:33
+
+Steam Frame 相比quest3有竞争力吗？刚买了quest3
+
+*****
+
+####  Hyst3r1a  
+##### 277#       发表于 2025-11-13 19:34
+
+【【官方双语】 完爆全场 - Steam Frame第一时间上手#linus谈科技-哔哩哔哩】 https://b23.tv/DYoB8M2
+
+这个frame真搞了个转译层运行x86游戏，g胖真是带善人，国内安卓寨机和vr眼镜爽死了吧
+
+—— 来自 OPPO PLG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
