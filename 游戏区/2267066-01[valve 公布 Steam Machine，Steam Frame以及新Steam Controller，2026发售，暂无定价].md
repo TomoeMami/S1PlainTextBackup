@@ -2482,3 +2482,14 @@ PC最大的优势MOD和风灵月影能在这个主机上用吗</blockquote>
 PC最大的优势MOD和风灵月影能在这个主机上用吗</blockquote>
 sd也能曲线用风灵月影，这个倒是应该问题不大
 
+
+*****
+
+####  斯库鲁多  
+##### 233#       发表于 2025-11-13 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715821&amp;ptid=2267066" target="_blank">勿徊哉 发表于 2025-11-13 09:17</a>
+
+是的，随时随地用大屏玩游戏还不用带屏幕，高铁通勤神器。我现在出远门都必带vision pro了，frame将会是 ...</blockquote>
+这种硬质头戴随身携带，认真的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
