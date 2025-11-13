@@ -2826,3 +2826,35 @@ pc区还有人为了大屏幕影音出游带显示器呢
 
 <img src="https://p.sda1.dev/28/1669b7b13f8fcd759b8041f9fb639519/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沧兰殇  
+##### 266#       发表于 2025-11-13 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718982&amp;ptid=2267066" target="_blank">朔方原的星 发表于 2025-11-13 18:45</a></blockquote>
+感觉可以把xbox和任天堂去掉，一个已经不知道有没有下代，一个和steam不干扰，感觉就ps5和蒸汽机器会有重合度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  病態極端  
+##### 267#       发表于 2025-11-13 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718982&amp;ptid=2267066" target="_blank">朔方原的星 发表于 2025-11-13 18:45</a></blockquote>
+有一說一，Phil Spencer發推祝賀了V社。風度這一塊沒得黑。雖然他不能代表微軟
+
+*****
+
+####  朔方原的星  
+##### 268#       发表于 2025-11-13 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718932&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 18:33</a>
+查看你回的这位的历史发言，合理怀疑是索尼养的，这个帖子里就他最急，又是电子垃圾，又是画靶7000块的
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被训狗训得听不见狗哨响不知道怎么活了，理解一下
+
+在索索的世界里怎么能存在一种没有训狗措施不以什么形式逼你买的电子产品呢，电子产品这东西就得吹狗哨用什么措施逼你买才行啊，怎么能，怎么能没有呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
