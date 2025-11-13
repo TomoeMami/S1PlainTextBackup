@@ -4991,3 +4991,16 @@ N10好像是武器太吃点数
 
 先突破-点技能-周本到10刷材料点天赋-最后升级，再之后再是伙伴
 
+
+*****
+
+####  三谷歩夢  
+##### 463#       发表于 2025-11-13 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715808&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-13 09:15</a>
+
+我连直接出院的两万都拿不出来了！
+
+—— 来自 鹅球 v3.3.96</blockquote>
+活动关给的钱还挺多的，全清完得有个百来万吧
+

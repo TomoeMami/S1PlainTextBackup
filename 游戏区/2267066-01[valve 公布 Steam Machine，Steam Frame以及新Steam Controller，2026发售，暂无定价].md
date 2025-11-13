@@ -1708,3 +1708,59 @@ YTB宣传片下面最多赞的评论是GabeCube过于生草
 硬件很难拉出差距，但跑的是能离线运行App的原生SteamOS，别的不说，VRChat大概率能跑PC版而不是头显版 ...</blockquote>
 8gen3转译x86，还能本地跑的动PC版的VRC，那想必头显版的阉割VRC是因为开发商太蠢不知道直接移植就能跑。
 
+
+*****
+
+####  nianiania  
+##### 158#       发表于 2025-11-13 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716320&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 10:31</a>
+彩透这东西不都是第三方去出的？而且看视频前面板可以随便换，再加上比掌机零件少，换整机壳子很简单
+
+— ...</blockquote>
+？彩透又不是单纯改个摄像头的事儿啊，系统层面也得优化，q3才出来的时候彩透效果和现在最新系统的彩透效果进步大得很，我总感觉大家是不是对v社抱有什么奇怪的幻想，硬件就放在那儿，镜片也是q3同款的，还有人幻想 画面显示效果比q3好，还有拿来和国内卖七八千pcvr比的。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  5353  
+##### 159#       发表于 2025-11-13 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716160&amp;ptid=2267066" target="_blank">牛奶笛 发表于 2025-11-13 10:09</a>
+
+PC最大的优势MOD和风灵月影能在这个主机上用吗</blockquote>
+不是说用的deck同款系统吗。
+
+那mod和风灵月影就都能用。
+
+但是我必须说，相较于pc，在deck上用要麻烦。
+
+有些补丁没办法运行的，必须在win上下好，运行好补丁，在把游戏整体复制过来。
+
+*****
+
+####  沧兰殇  
+##### 160#       发表于 2025-11-13 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716353&amp;ptid=2267066" target="_blank">nianiania 发表于 2025-11-13 10:38</a>
+？彩透又不是单纯改个摄像头的事儿啊，系统层面也得优化，q3才出来的时候彩透效果和现在最新系统的彩透效 ...</blockquote>
+？
+我理解错了，我说的是彩透外壳，你说的是透镜？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  umbasa  
+##### 161#       发表于 2025-11-13 10:42
+
+ 本帖最后由 umbasa 于 2025-11-13 10:45 编辑 
+<blockquote>nage560 发表于 2025-11-13 09:52
+怎么还是没有公布sd的销量？SD主机我觉得不会定价1200刀或者太贵吧，定位应该就是XSS这种，steam的用户显卡 ...</blockquote>
+
+不是没可能，512g版如果卖449刀以内，2t版本卖599刀以内，那对430刀的xss1t版和550刀的xsx标准版来说都有威胁，730刀的xsx2t版直接不用讨论，太贵了。
+
+另外目前steam持有量最大的显卡是4060，哪怕移动端和桌面端分开算，也还是4060位居榜首。
+
