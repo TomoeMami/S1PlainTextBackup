@@ -1255,3 +1255,87 @@ YTB宣传片下面最多赞的评论是GabeCube过于生草
 看来steamdeck确实给了V社很大信心，之前xbox ally发售的时 ...</blockquote>
 和index一样吧，中间有带子从后脑到眼镜上方
 
+
+*****
+
+####  勿徊哉  
+##### 114#       发表于 2025-11-13 09:13
+
+等等，wifi 6e在国内能用吗？
+steam frame这种串流用wifi 6e，国内用会有法律问题吗？
+
+*****
+
+####  nianiania  
+##### 115#       发表于 2025-11-13 09:13
+
+vr好在哪？这跟quest3能拉出本质差距吗？更别说起码比q3贵一倍啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，甚至连彩透都没有
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  KevinGraham  
+##### 116#       发表于 2025-11-13 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715745&amp;ptid=2267066" target="_blank">霖岚_ 发表于 2025-11-13 09:04</a>
+YTB宣传片下面最多赞的评论是GabeCube过于生草
+
+看来steamdeck确实给了V社很大信心，之前xbox ally发售的时 ...</blockquote>
+7640u+7400xt或者说7600m，全套货架产品<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  umbasa  
+##### 117#       发表于 2025-11-13 09:13
+
+查了下xbox ally和xbox ally x的价格，我估计steam这定制pc的首发价格应该是和xbox ally一样的599刀，真的看齐xbox ally x的999刀还是太逆天了，我觉得v社没那么疯，希望不会被打脸。
+
+*****
+
+####  はちたや  
+##### 118#       发表于 2025-11-13 09:14
+
+<blockquote>umbasa 发表于 2025-11-13 09:05
+50%用户的gpu性能不如ps5，这至少能说明sm的硬件性能在今天并没有完全落伍。
+
+所以你是觉得ps5的性能放在2 ...</blockquote>
+我觉得把一台4060 laptop级的游戏pc包装一下卖6 7000很搞笑，就这样。也别贴着ps5打，ps5也是有独占的，这玩意不就是个阀门认证整机？换成淘宝整机给你高价低配你也吹吗
+
+*****
+
+####  ohi.02  
+##### 119#       发表于 2025-11-13 09:15
+
+steam frame太让人失望了，这么多年过去了，VR的显示技术还是那个样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  泰坦失足  
+##### 120#       发表于 2025-11-13 09:15
+
+简单的看了下，这个头显能独立运行，arm，还能玩x86 win游戏？ 要是steam手机能最新的高通芯片，arm下转译win游戏就太酷了
+
+[论坛助手,iPad](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  darkjack  
+##### 121#       发表于 2025-11-13 09:16
+
+都可以买，只要价格合理
+
+*****
+
+####  勿徊哉  
+##### 122#       发表于 2025-11-13 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715809&amp;ptid=2267066" target="_blank">泰坦失足 发表于 2025-11-13 09:15</a>
+简单的看了下，这个头显能独立运行，arm，还能玩x86 win游戏？ 要是steam手机能最新的高通芯片，arm下转译w ...</blockquote>
+是的，随时随地用大屏玩游戏还不用带屏幕，高铁通勤神奇。我现在出远门都必带vision pro了，frame将会是我的新宠。
+
+不知道楼里其他人在失望啥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

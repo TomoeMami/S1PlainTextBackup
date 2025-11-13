@@ -4956,3 +4956,30 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这养成真是搞笑，50级了。升完6个角色6个伙伴，再都强化到55。升级了几个记忆碎片，然后就没钱了。
 
+
+*****
+
+####  orangee  
+##### 460#       发表于 2025-11-13 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715002&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-12 23:32</a>
+暂时不推荐刷，目前看大部分事件都很垃圾，单纯的给中立卡（还要扔骰子），但是中立卡不是每个都好用，你 ...</blockquote>
+费劲巴拉的把最后一级开了，一看是t13 80级，为了能打刷了200代币把词条刷成了战斗给钱少+每回合扣血+加精英点<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 这能选的最弱组合好像只有这个了？
+
+舰长等级升到50的楼友先升主c就行了啊，别一下把米卡点到60连钱都没了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  orangee  
+##### 461#       发表于 2025-11-13 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715430&amp;ptid=2256125" target="_blank">nyaneko 发表于 2025-11-13 07:14</a>
+这养成真是搞笑，50级了。升完6个角色6个伙伴，再都强化到55。升级了几个记忆碎片，然后就没钱了。
+
+ ...</blockquote>
+我连直接出院的两万都拿不出来了！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
