@@ -2453,3 +2453,11 @@ windows比linux安全嗎？聞所未聞。
 
 SM 超过 3500 不如直接在笔记本上装 steam OS，但是不超过四千以内我会买的，谅他也不敢贵过 PS5
 
+
+*****
+
+####  病態極端  
+##### 230#       发表于 2025-11-13 15:55
+
+<img src="https://p.sda1.dev/28/9c011ff5ad23512588d8e696eb5c7ec4/sJI3qTb2ze8 00-13-15 Steam Machine Specs Analysis_ Valve Might Price XBOX out of Gaming!.jpeg" referrerpolicy="no-referrer">
+
