@@ -1764,3 +1764,126 @@ PC最大的优势MOD和风灵月影能在这个主机上用吗</blockquote>
 
 另外目前steam持有量最大的显卡是4060，哪怕移动端和桌面端分开算，也还是4060位居榜首。
 
+
+*****
+
+####  Fuero  
+##### 162#       发表于 2025-11-13 10:48
+
+ 本帖最后由 Fuero 于 2025-11-13 10:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716341&amp;ptid=2267066" target="_blank">tillnight 发表于 2025-11-13 10:36</a>
+
+8gen3转译x86，还能本地跑的动PC版的VRC，那想必头显版的阉割VRC是因为开发商太蠢不知道直接移植就能跑。 ...</blockquote>
+这个事情的核心本质上是VRC不用专门拉分支去做类似Quest的适配，而是直接让玩家下Steam库里的depot就好了，性能问题是另一回事，SteamDeck能跑的高需求游戏多的去了，即使低帧也是0和1的区别
+
+*****
+
+####  sellboy  
+##### 163#       发表于 2025-11-13 10:48
+
+我预测下价格吧
+
+512GB型号599
+
+2TB型号749
+
+2TB型号+自定义前面板+自定义面板的手柄（上面型号不包括手柄）+专属steam背景 899
+
+手柄 99美元
+
+自定义面板的手柄 149美元
+
+预设花式的主机前面板 29美元
+
+自定义主机前面板 79美元
+
+*****
+
+####  tillnight  
+##### 164#       发表于 2025-11-13 10:49
+
+我完全没理解普遍氛围是vr已死的游戏社区会为这个frame兴奋，怕不是叶公好龙。本质上和quest3pico4u同级，生态还不如两可能更便宜的，quest/pico甚至还能cos个mr设备用，也能完全兼容steamvr生态（串流）。
+
+拿arm芯片跑转译pcvr游戏就是个笑话，跑转译老3a能30帧就是成功（起码能玩），但是vr游戏不能玩。说到底v社在硬件上野心勃勃掌机主机都是半定制芯片，这个frame不说让高通出定制芯片甚至连让高通稍微加快点mr芯片迭代速度都做不到，要不就继续用三年前手机芯片水平的xr2gen2+，要不就只能像现在这样凑合用8gen3，考虑到xr2gen2虽然是8gen2类似物但是gpu做了特化，这个普通8gen3在跑本地游戏上甚至够呛真的能强点。
+
+*****
+
+####  nage560  
+##### 165#       发表于 2025-11-13 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716383&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 10:42</a>
+
+不是没可能，512g版如果卖449刀以内，2t版本卖599刀以内，那对430刀的xss1t版和550刀的xsx标准版来说都有 ...</blockquote>
+我看新闻还是3060占比最多，不过不管3060还是4060，用户的消费层级都差不多，现在都直接出主机了，G胖只要不是微软阿三那样脑抽的话就应该是考虑这种用户层做的机子才对。
+
+
+*****
+
+####  DawnGuardian  
+##### 166#       发表于 2025-11-13 10:52
+
+感觉又是G胖奖励自己玩的东西。。。
+
+*****
+
+####  kivz  
+##### 167#       发表于 2025-11-13 10:53
+
+摇杆触控是啥……那条不会只是电容按键吧<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xbhuang  
+##### 168#       发表于 2025-11-13 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716421&amp;ptid=2267066" target="_blank">Fuero 发表于 2025-11-13 10:48</a>
+这个事情的核心本质上是VRC不用专门拉分支去做类似Quest的适配，而是直接让玩家下Steam库里的depot就好了 ...</blockquote>
+VR可不一样，steamdeck跑30帧就算能跑了，VR你跑30帧你戴头上试试看会不会吐？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Amami_Haruka_  
+##### 169#       发表于 2025-11-13 10:54
+
+比起硬件销量，其实Steam Machine更应该成为steam平台游戏未来几年的硬件参考标准。
+
+但ps5已经到生涯中后期了，Steam Machine感觉够呛。
+
+*****
+
+####  Asukalangley33  
+##### 170#       发表于 2025-11-13 10:55
+
+手柄肯定买，主机100%不买
+头显看有没有护航游戏了
+quest2打完alyx后吃灰多少年都没开过机<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Fuero  
+##### 171#       发表于 2025-11-13 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716467&amp;ptid=2267066" target="_blank">xbhuang 发表于 2025-11-13 10:53</a>
+
+VR可不一样，steamdeck跑30帧就算能跑了，VR你跑30帧你戴头上试试看会不会吐？
+
+—— 来自 S1Fun ...</blockquote>
+我用Vision Pro跑过30帧的VRC
+
+也用Q3跑过30帧的PVCR串流（虽然是设置错误）
+
+没吐过
+
+*****
+
+####  umbasa  
+##### 172#       发表于 2025-11-13 10:56
+
+<blockquote>nage560 发表于 2025-11-13 10:49
+我看新闻还是3060占比最多，不过不管3060还是4060，用户的消费层级都差不多，现在都直接出主机了，G胖只 ...</blockquote>
+说到底还是价格，能不能从xbox身上撕一块肉下来，就看v社怎么定价了。数毛社说的399纯属v社做慈善，肯定不用想。考虑到北美ps5数字/光驱都涨到500/550了，512g入门款价格低于500都算g胖做了个人。
+
