@@ -1544,3 +1544,42 @@ Valve在今天凌晨公布了三款全新硬件，其中PC/主机混合设备Ste
 
 18.Steam Machine的售价并未公布。数毛社认为这台机器若能以399美元发售，将颇具吸引力；若价格接近甚至超过现有主机，而纸面性能又不占优势，就令人难以接受。
 
+
+*****
+
+####  WGTCorp  
+##### 140#       发表于 2025-11-13 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715624&amp;ptid=2267066" target="_blank">勿徊哉 发表于 2025-11-13 08:39</a>
+
+frame能将任意3d游戏立体化吗？
+
+比如轨迹啥的</blockquote>
+不能吧，非VR游戏应该还是用剧院模式启动的，只是相当于把游戏画面投到大屏幕上
+
+*****
+
+####  我是快乐小马甲  
+##### 141#       发表于 2025-11-13 10:03
+
+微软：感谢Steam替我们发售了Xbox下时代的主机
+
+
+*****
+
+####  Sevenzerofive  
+##### 142#       发表于 2025-11-13 10:05
+
+手柄不赖
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sevenzerofive  
+##### 143#       发表于 2025-11-13 10:05
+
+手柄不赖
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
