@@ -3257,3 +3257,23 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 
 v社这套对linux打游戏来说特别友好
 
+
+*****
+
+####  朔方原的星  
+##### 306#       发表于 2025-11-14 00:53
+
+【【官方双语】V社新款Steam Machine+Steam Controller第一时间上手#linus谈科技-哔哩哔哩】 https://b23.tv/lIN7aAf
+
+【【官方双语】 完爆全场 - Steam Frame第一时间上手#linus谈科技-哔哩哔哩】 https://b23.tv/6TLeIaj
+
+*****
+
+####  慕容断月  
+##### 307#       发表于 2025-11-14 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719995&amp;ptid=2267066" target="_blank">含恨未了切莫死 发表于 2025-11-13 22:57</a>
+
+手柄看着比一般手柄大一整圈</blockquote>
+实际上就和xbox手柄差不多大，我参照他们的官图里和deck的对比拿我的xsx手柄与deck对比，发现大小是差不多的
+
