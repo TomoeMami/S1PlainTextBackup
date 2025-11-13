@@ -2423,3 +2423,33 @@ sd还要断电放电
 
 Steam Machine 性能定位有点问题，既然中位数是这个水平，为啥这广大玩家还要花钱换个差不多/提升不多性能的机子，至少也得是 9060XT(8G)/RX6800 级别吧
 
+
+*****
+
+####  Steel.Haze  
+##### 227#       发表于 2025-11-13 15:46
+
+我在琢磨Steam Machine有没有扩内存魔改成AI机的潜力
+
+*****
+
+####  BRS5672023  
+##### 228#       发表于 2025-11-13 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715842&amp;ptid=2267066" target="_blank">病態極端 发表于 2025-11-13 09:20</a>
+windows比linux安全嗎？聞所未聞。
+
+戰地6和三角洲反作弊互相攔截也不是洋蔥新聞吧。
+
+最後，linux換內核 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">windows还有卸载游戏反作弊删不掉的问题呢。。
+
+—— 来自 HUAWEI JAD-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hansel  
+##### 229#       发表于 2025-11-13 15:48
+
+SM 超过 3500 不如直接在笔记本上装 steam OS，但是不超过四千以内我会买的，谅他也不敢贵过 PS5
+

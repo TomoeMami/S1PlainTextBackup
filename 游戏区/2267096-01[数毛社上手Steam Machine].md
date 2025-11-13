@@ -532,3 +532,11 @@ linux上换个proton-ge就能用fsr4，不过相比rdna4显卡原生帧数的性
 而且还有联机不用交会员税的优势，唯一缺陷就是用不 ...</blockquote>
 联机不用交会员税，但是没法联机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  静静在想我  
+##### 56#       发表于 2025-11-13 15:46
+
+明年400刀应该能组出比3036强的主机吧, 感觉是比win掌机还小众的需求<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
