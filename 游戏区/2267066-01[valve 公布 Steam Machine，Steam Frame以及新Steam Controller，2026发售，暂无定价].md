@@ -2858,3 +2858,14 @@ pc区还有人为了大屏幕影音出游带显示器呢
 
 在索索的世界里怎么能存在一种没有训狗措施不以什么形式逼你买的电子产品呢，电子产品这东西就得吹狗哨用什么措施逼你买才行啊，怎么能，怎么能没有呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sablexc  
+##### 269#       发表于 2025-11-13 19:00
+
+太抢占了steamdeck肯定也把ns抢占了吧
+沧澜桑这条从索尼发布会接连在几个楼蹦哒仿佛被索尼沙马一样到现在终于有人肯理他了<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 來自 vivo V2303A, Android 15, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
