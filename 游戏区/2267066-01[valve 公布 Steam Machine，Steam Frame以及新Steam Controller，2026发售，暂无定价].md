@@ -2023,3 +2023,117 @@ steam毕竟是电脑就行，又不限定是g胖的机器
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  沧兰殇  
+##### 187#       发表于 2025-11-13 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716717&amp;ptid=2267066" target="_blank">Lisylfn 发表于 2025-11-13 11:33</a>
+那确实做梦了，steamdeck出的时候他们就说有放新steamos的官方镜像的想法，懒狗到现在都没做出来，第三方 ...</blockquote>
+这次配置更接近电脑硬件组合，说不定这几年已经搞出来了呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  iou90  
+##### 188#       发表于 2025-11-13 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716666&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 11:24</a>
+我在做一个梦，如果蒸汽机器发布的同时，宣布steam os官方版面向家用x86电脑安装，如果拥有性能更强的电脑 ...</blockquote>
+装完后可以 steam 手柄直接唤醒就牛逼炸了 不知道未来2年可不可以 可以的时候就换个 6060/70 7060/70 笔记本哈哈哈
+
+*****
+
+####  qqq2142  
+##### 189#       发表于 2025-11-13 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716692&amp;ptid=2267066" target="_blank">满满一大杯 发表于 2025-11-13 11:29</a>
+
+bazzite请
+
+不过linux嘛，为了方便，显卡基本上只能A了。愿意折腾的话N也不是不行。 ...</blockquote>
+问一下现在再linux环境下一些反作弊软件的兼容性如何，会不会出现因为反作弊卡住导致游戏无法运行
+
+*****
+
+####  朔方原的星  
+##### 190#       发表于 2025-11-13 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716467&amp;ptid=2267066" target="_blank">xbhuang 发表于 2025-11-13 10:53</a>
+VR可不一样，steamdeck跑30帧就算能跑了，VR你跑30帧你戴头上试试看会不会吐？
+
+—— 来自 S1Fun ...</blockquote>
+vrc人多时候30帧很正常啊
+
+*****
+
+####  KevinGraham  
+##### 191#       发表于 2025-11-13 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716429&amp;ptid=2267066" target="_blank">tillnight 发表于 2025-11-13 10:49</a>
+我完全没理解普遍氛围是vr已死的游戏社区会为这个frame兴奋，怕不是叶公好龙。本质上和quest3pico4u同级， ...</blockquote>
+再说一遍，steam deck 用的van gogh吃的苹果剩饭（macOS代码里测试过），steam machine更是直接用的货架7640u+7600m，没有哪个是真的定制<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满满一大杯  
+##### 192#       发表于 2025-11-13 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716755&amp;ptid=2267066" target="_blank">qqq2142 发表于 2025-11-13 11:38</a>
+问一下现在再linux环境下一些反作弊软件的兼容性如何，会不会出现因为反作弊卡住导致游戏无法运行 ...</blockquote>
+和楼上说的一样，反作弊是没有的，所以大部分联机游戏都不支持linux，包括转译。甚至你用waydroid跑安卓游戏，都会被有些游戏认定为非法设备封号。
+
+
+*****
+
+####  Nanachi  
+##### 193#       发表于 2025-11-13 11:43
+
+&gt; 继 Steam Deck 之后，V社宣布又将有三款全新硬件产品加入硬件家族。畅玩游戏库内容、性能强劲的主机 Steam Machine
+
+&gt; ……
+
+&gt; 作为一款主打客厅场景的准主机设备，Valve 全新推出的 Steam Machine 试图在 PC 游戏体验与客厅主机之间找到平衡点，定位上接近 Xbox Series S 与 PS5 标准版之间。
+
+&gt; 然而数毛社也明确指出8GB 显存或许将成为这台设备的最大短板。
+
+出乎意料、令人惊喜：V社硬件上手体验心得汇总 | 机核 GCORES
+[https://www.gcores.com/articles/206879](https://www.gcores.com/articles/206879)
+
+笑点解析之性能强劲
+
+*****
+
+####  5353  
+##### 194#       发表于 2025-11-13 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716755&amp;ptid=2267066" target="_blank">qqq2142 发表于 2025-11-13 11:38</a>
+
+问一下现在再linux环境下一些反作弊软件的兼容性如何，会不会出现因为反作弊卡住导致游戏无法运行 ...</blockquote>
+deck的情况，那几个大型联机游戏的反作弊运行不了，直接不让你在上面玩。
+
+*****
+
+####  烦不烦  
+##### 195#       发表于 2025-11-13 11:44
+
+steam machine有高配版可以考虑下
+
+*****
+
+####  zonker  
+##### 196#       发表于 2025-11-13 11:45
+
+昨天才买了quest3，看参数好像差不多
+
+*****
+
+####  三天八百万  
+##### 197#       发表于 2025-11-13 11:48
+
+国内diy价格便宜，这类设备没太大优势。
+
+这个造型真喜欢，dp1.4劝退
+
