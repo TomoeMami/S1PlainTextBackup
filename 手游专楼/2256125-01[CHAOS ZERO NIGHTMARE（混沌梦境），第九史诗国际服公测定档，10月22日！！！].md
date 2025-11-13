@@ -5146,3 +5146,21 @@ N10好像是武器太吃点数
 不需要刷卡组，因为boss随便打就拿完钻了</blockquote>
 所以我才说随便打打BOSS摆烂啊，我拿有纪随便打了两把难4存档都过叠加7了，问题这BOSS不是这赛季的最终内容，单纯是个存档质检机，这么点钻又干不了啥事
 
+
+*****
+
+####  TheOccuria  
+##### 474#       发表于 2025-11-13 15:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动卡35级，34级萌新还得等明天才能吃
+
+这游戏后面也是要两队人打深渊吗，我这二队练哪些
+
+<img src="https://img.stage1st.com/forum/202511/13/153358sjxxx88pn884qcqp.jpg" referrerpolicy="no-referrer">
+
+<strong>3e2729c6928353e3f5d69424539f23f0.jpg</strong> (486.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-13 15:33 上传
+
