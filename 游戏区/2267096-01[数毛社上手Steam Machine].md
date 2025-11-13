@@ -463,3 +463,38 @@ ps5杀手来了
 
 玩pc游戏的机器，性能不如ps5，按我理解是不太行的，除非只用1080p
 
+
+*****
+
+####  BRS5672023  
+##### 50#       发表于 2025-11-13 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717193&amp;ptid=2267096" target="_blank">wtyrambo 发表于 2025-11-13 12:44</a>
+这个架构还是RDNA3吧，只能用垮到不行的fsr3来着</blockquote>
+linux上换个proton-ge就能用fsr4，不过相比rdna4显卡原生帧数的性能损失会大一些
+
+—— 来自 HUAWEI JAD-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  TheOccuria  
+##### 51#       发表于 2025-11-13 15:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是美国那边没有卖整机的业务，g胖干了
+
+淘宝上5060整机便宜点的能弄到5k吧
+
+*****
+
+####  不见不散  
+##### 52#       发表于 2025-11-13 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717440&amp;ptid=2267096" target="_blank">5353 发表于 2025-11-13 13:44</a>
+我觉的绝大部分人要玩steam也是配pc。
+
+而且pc本身还有很多其他用途。
+
+买一个linux系统的主机，真的有必要 ...</blockquote>
+主机有主机的好处，比如定制系统、手柄唤醒、即插即用等等，用来做客厅机比pc方便得多
+

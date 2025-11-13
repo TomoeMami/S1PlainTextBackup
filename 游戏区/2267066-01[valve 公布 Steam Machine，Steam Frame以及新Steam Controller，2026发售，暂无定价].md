@@ -2334,3 +2334,24 @@ arm Linux的头显有点意思，手柄也还行，主机感觉太拉了
 
 能装WPS和微信的话就可以办公了吧<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夕暮至破晓  
+##### 218#       发表于 2025-11-13 14:58
+
+新机型完全抛弃了lighthouse系统有点令人失望，v社五六年前能做出那么酷的东西，现在却为了市场去追随quest的设计
+考虑到新机型后基站和追踪器大概率不会再有更新甚至逐渐停产，全追玩家只能再去物色成色好的指虎撑几年目睹这种玩法沉寂了
+
+*****
+
+####  战术核辣条  
+##### 219#       发表于 2025-11-13 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717729&amp;ptid=2267066" target="_blank">啊孤独感放辣椒 发表于 2025-11-13 14:47</a>
+为什么不装Windows当电脑卖，linux能干啥，steam上游戏都不一定全能玩</blockquote>
+你蒸做硬件的起点就是看Windows不爽
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至严格一点说g胖出来开valve也是看微软不爽，就是写在骨子里的不对付好吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
