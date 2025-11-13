@@ -3330,3 +3330,15 @@ v社这套对linux打游戏来说特别友好
 哪有发售价对比打折价的道理，499就别拿促销活动假装399。</blockquote>
 ps5 slim没光驱，首发的ps5数字版不就是399？而且找你的说法，2025年达到同样的性能，成本要比2020年低呢<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeverCU  
+##### 313#       发表于 2025-11-14 06:57
+
+ 本帖最后由 NeverCU 于 2025-11-14 06:59 编辑 
+<blockquote>nozomitech 发表于 2025-11-14 06:37
+ps5 slim没光驱，首发的ps5数字版不就是399？而且找你的说法，2025年达到同样的性能，成本要比2020年低呢 ...</blockquote>
+
+成本低，那你ps5咋不卖399，只能靠打折假装399呢
+
