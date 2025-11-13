@@ -519,3 +519,16 @@ linux上换个proton-ge就能用fsr4，不过相比rdna4显卡原生帧数的性
 
 不懂怎么开始脑补出有消息399的，数毛社的原话低情商翻译是这机器只值399，卖贵了就等褒姒。不是数毛社有消息源的意思。
 
+
+*****
+
+####  含恨未了切莫死  
+##### 55#       发表于 2025-11-13 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717361&amp;ptid=2267096" target="_blank">onlv星骸 发表于 2025-11-13 13:28</a>
+
+虽然但是,忽略PC的话STEAM主机的"独占"游戏是最多的，
+
+而且还有联机不用交会员税的优势，唯一缺陷就是用不 ...</blockquote>
+联机不用交会员税，但是没法联机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
