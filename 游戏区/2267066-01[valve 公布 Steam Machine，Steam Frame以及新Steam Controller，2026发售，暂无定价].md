@@ -2250,3 +2250,16 @@ windows比linux安全嗎？聞所未聞。
 
 去外网看了这新设备的拆解视频，感觉手柄肯定是不用期待了，虽然有背键，但是整体握姿很不舒服，两个触摸屏太占地方导致按键位置不太舒服，新主机这itx倒是做得很精细非常小巧挺好携带的
 
+
+*****
+
+####  满满一大杯  
+##### 209#       发表于 2025-11-13 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717018&amp;ptid=2267066" target="_blank">7do 发表于 2025-11-13 12:16</a>
+steamos能直接装非游戏的通用软件吗？
+
+— from S1 Next Goose v3.5.99</blockquote>
+steamos为了稳定，采用的是不可变系统的机制，/usr除了/usr/local外都是只读的，也就是一般系统软件没法直接装，更新也是/usr会整个覆盖。
+一般是通过flatpak安装各种软件，主要是桌面软件；无需外部依赖的可执行文件可以丢进/usr/local，其他的也可以用层叠包和容器安装。
+
