@@ -1887,3 +1887,34 @@ VR可不一样，steamdeck跑30帧就算能跑了，VR你跑30帧你戴头上试
 我看新闻还是3060占比最多，不过不管3060还是4060，用户的消费层级都差不多，现在都直接出主机了，G胖只 ...</blockquote>
 说到底还是价格，能不能从xbox身上撕一块肉下来，就看v社怎么定价了。数毛社说的399纯属v社做慈善，肯定不用想。考虑到北美ps5数字/光驱都涨到500/550了，512g入门款价格低于500都算g胖做了个人。
 
+
+*****
+
+####  风夏  
+##### 173#       发表于 2025-11-13 10:56
+
+archlinux 不是专注于x86吗, 为啥外面有消息说牛子2要用arm芯片跑arm版的steamos?
+
+*****
+
+####  WGTCorp  
+##### 174#       发表于 2025-11-13 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716462&amp;ptid=2267066" target="_blank">kivz 发表于 2025-11-13 10:53</a>
+
+摇杆触控是啥……那条不会只是电容按键吧</blockquote>
+摇杆表面有触控检测，可以设置成陀螺仪开关，把手指放上去/点一下就能开关陀螺仪
+
+
+*****
+
+####  mono  
+##### 175#       发表于 2025-11-13 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716482&amp;ptid=2267066" target="_blank">风夏 发表于 2025-11-13 10:56</a>
+
+archlinux 不是专注于x86吗, 为啥外面有消息说牛子2要用arm芯片跑arm版的steamos?</blockquote>
+Archlinux官方现在只支持x64
+
+衍生的Manjaro和archlinuxarm就支持arm，steamos不是不可以 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
