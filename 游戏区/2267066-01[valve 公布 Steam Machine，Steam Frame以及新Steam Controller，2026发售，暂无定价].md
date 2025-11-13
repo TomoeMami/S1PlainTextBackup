@@ -2154,3 +2154,27 @@ steam machine有高配版可以考虑下
 
 最蒸幻想
 
+
+*****
+
+####  7do  
+##### 200#       发表于 2025-11-13 12:16
+
+steamos能直接装非游戏的通用软件吗？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  战术核辣条  
+##### 201#       发表于 2025-11-13 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717018&amp;ptid=2267066" target="_blank">7do 发表于 2025-11-13 12:16</a>
+steamos能直接装非游戏的通用软件吗？
+
+— from S1 Next Goose v3.5.99</blockquote>
+本质上是个arch linux，你能在linux上装的就能装
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
