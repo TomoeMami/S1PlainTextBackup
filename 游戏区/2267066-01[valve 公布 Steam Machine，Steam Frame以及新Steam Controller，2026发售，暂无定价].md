@@ -2300,3 +2300,37 @@ steamos为了稳定，采用的是不可变系统的机制，/usr除了/usr/loca
 
 手柄整一个打算
 
+
+*****
+
+####  noahhhh  
+##### 214#       发表于 2025-11-13 14:46
+
+arm Linux的头显有点意思，手柄也还行，主机感觉太拉了
+
+*****
+
+####  啊孤独感放辣椒  
+##### 215#       发表于 2025-11-13 14:47
+
+为什么不装Windows当电脑卖，linux能干啥，steam上游戏都不一定全能玩
+
+*****
+
+####  trentswd  
+##### 216#       发表于 2025-11-13 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717729&amp;ptid=2267066" target="_blank">啊孤独感放辣椒 发表于 2025-11-13 14:47</a>
+为什么不装Windows当电脑卖，linux能干啥，steam上游戏都不一定全能玩</blockquote>
+因为Deck铺路了
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  千千千千鸟  
+##### 217#       发表于 2025-11-13 14:50
+
+能装WPS和微信的话就可以办公了吧<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
