@@ -2281,3 +2281,14 @@ steamos为了稳定，采用的是不可变系统的机制，/usr除了/usr/loca
 
 说起来这种分体的体感控制器除了VR上只有NS joycon，但是很少有非VR的游戏使用类似的操作方式，可能定位的问题还是不太好解决？
 
+
+*****
+
+####  bypass  
+##### 212#       发表于 2025-11-13 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717469&amp;ptid=2267066" target="_blank">WGTCorp 发表于 2025-11-13 13:51</a>
+
+说起来Frame用的是8g3，还可以跑pc游戏，那是不是可以期待一下自带兼容层，可以直接运行pc游戏的steam安卓 ...</blockquote>
+我最在意的也是这个，V 社应该会加大人力去维护 Proton on ARM，后续 ARM 版本的 Steam Deck 也可以期待了。
+
