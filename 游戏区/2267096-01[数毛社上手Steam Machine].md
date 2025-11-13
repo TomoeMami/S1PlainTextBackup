@@ -717,3 +717,39 @@ steam deck 据三方统计貌似销量有突破 5m
 所有 windows 掌机包含 steam deck 也没有 10m 吧
 之前记得有新闻报道 rog ally 销量有突破 0.5m 大新闻一样囧
 
+
+*****
+
+####  zhenlune  
+##### 75#       发表于 2025-11-13 18:07
+
+最低特效fsr超级性能4k 60帧是吧
+
+*****
+
+####  drx66  
+##### 76#       发表于 2025-11-13 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718204&amp;ptid=2267096" target="_blank">zid99825 发表于 2025-11-13 16:16</a>
+
+steam现在3060/4060占有率最高的情况下，升级steam machine真的是升级么</blockquote>
+dlss变fsr，反向升级
+
+
+*****
+
+####  mj240608414  
+##### 77#       发表于 2025-11-13 18:12
+
+sd光凭一个开机即可玩和steamos就不是其他win掌机可以比的，ns2也就罢了，说到玩steam游戏除非非要上大作不然最好的选择不还是sd
+
+*****
+
+####  精钢魔像  
+##### 78#       发表于 2025-11-13 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718825&amp;ptid=2267096" target="_blank">drx66 发表于 2025-11-13 18:07</a>
+
+dlss变fsr，反向升级</blockquote>
+这没办法，linux下只有a卡能用
+
