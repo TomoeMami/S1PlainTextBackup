@@ -2869,3 +2869,47 @@ pc区还有人为了大屏幕影音出游带显示器呢
 
 —— 來自 vivo V2303A, Android 15, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  含恨未了切莫死  
+##### 270#       发表于 2025-11-13 19:15
+
+<blockquote>Amami_Haruka_ 发表于 2025-11-13 17:20
+PS5和XBOX也不交windows授权费啊，甚至DIY你也能自己装linux，难不成竞品是品牌整机吗？
+
+ ...</blockquote>
+我觉得目标消费者真就是想打游戏又想买整机pc的人，sm研发成本肯定比steamdeck低多了，毕竟nuc寨厂都能做的也没什么难度
+
+*****
+
+####  serj005  
+##### 271#       发表于 2025-11-13 19:17
+
+数毛社给出的预期价位是399刀来着
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  亚瑟摩根  
+##### 272#       发表于 2025-11-13 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719007&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 18:51</a>
+
+感觉可以把xbox和任天堂去掉，一个已经不知道有没有下代，一个和steam不干扰，感觉就ps5和蒸汽机器会有重 ...</blockquote>
+
+xbox有下一代
+
+
+*****
+
+####  岬开斗  
+##### 273#       发表于 2025-11-13 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718491&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 17:04</a>
+不是你急眼什么？我又没让别人买，我自己也不打算买，我怎么就孝子了？我就是分析为什么这玩意在海外有市 ...</blockquote>
+2026年性能不如PS5，大概率还比PS5贵，这是能给哪个游戏硬件厂商上压力啊。
+
+—— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
