@@ -694,3 +694,14 @@ LINUX的输入法在桌面模式也比较感人
  ...</blockquote>
 df的语气不就是399基本不可能么
 
+
+*****
+
+####  广告位  
+##### 73#       发表于 2025-11-13 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718693&amp;ptid=2267096" target="_blank">zid99825 发表于 2025-11-13 17:38</a>
+
+df的语气不就是399基本不可能么</blockquote>
+是啊，dram和nand都涨疯了，再用AMD的边角料都省不下来<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

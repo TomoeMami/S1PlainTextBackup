@@ -5248,3 +5248,18 @@ N10好像是武器太吃点数
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">友纪看起来不是很有资格当吃资源的主C
 
+
+*****
+
+####  TheOccuria  
+##### 482#       发表于 2025-11-13 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718636&amp;ptid=2256125" target="_blank">暗口崩子 发表于 2025-11-13 17:30</a>
+
+梅玲 鼠兔/兔狙 雷伊，狼刀米卡，小春 鼠兔/百丽儿 米卡
+
+友纪看起来不是很有资格当吃资源的主C</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">友纪我试玩看是群攻“大”c觉得日常体验会好就抽了，然后晚上看评测天塌了
+
+话说这游戏日常福利怎么样，抽这俩已经干了
+
