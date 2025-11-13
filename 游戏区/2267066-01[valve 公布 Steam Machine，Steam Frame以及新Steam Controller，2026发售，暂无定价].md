@@ -3356,3 +3356,13 @@ ps5 slim没光驱，首发的ps5数字版不就是399？而且找你的说法，
 
 顺便如果是因为提了一句ps5就虚空索敌觉得我是索狗的那您还是少废那劲，真不是<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 315#       发表于 2025-11-14 07:21
+
+<blockquote>TiiTiiLL 发表于 2025-11-13 23:27
+q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载安卓也没关系吧 ...</blockquote>
+因为突然冒出一堆“哇塞居然可以大屏剧院模式游玩非vr的steam游戏”“wow居然可以跑安卓应用，我岂不是装个视频站当便携电影院用”“无线串流好神奇，再也不用拖个线了”“彩透是什么虽然我不懂，但是我懂vr”
+
