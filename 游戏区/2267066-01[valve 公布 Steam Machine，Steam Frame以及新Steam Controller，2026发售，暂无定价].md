@@ -726,3 +726,92 @@ V社是铁了心要下场厮杀了，但是Steam Deck发售时是精准补缺了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  沧兰殇  
+##### 60#       发表于 2025-11-13 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715520&amp;ptid=2267066" target="_blank">schneehertz 发表于 2025-11-13 08:05</a>
+还是等等xbox machine？吧
+
+—— 来自 鹅球 v3.5.99</blockquote>
+难道这个就不是"this is an xbox"了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  umbasa  
+##### 61#       发表于 2025-11-13 08:09
+
+<blockquote>斯哈 发表于 2025-11-13 08:03
+V社是铁了心要下场厮杀了，但是Steam Deck发售时是精准补缺了市场需求，现在这些产品都是有相当成熟的市场 ...</blockquote>
+难说，我看这这玩意真正的对手其实是4060笔记本，算是在游戏本和游戏主机之间的一个过渡形态。对于买笔记本主要为了打游戏的用户，这玩意未尝没有一定的吸引力。哪怕对于笔电男大，这玩意也能在小众独特上吸引一部分追时髦的酷哥。
+
+*****
+
+####  胶布  
+##### 62#       发表于 2025-11-13 08:10
+
+按照现在欧洲和美国的物价，以及V社的供应链水平，感觉发售价格会在700欧以上。
+
+
+*****
+
+####  Nanachi  
+##### 63#       发表于 2025-11-13 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715519&amp;ptid=2267066" target="_blank">慕容断月 发表于 2025-11-13 08:04</a>
+阀门的风格就是你买回去就是你的，怎么折腾都行，反正我接口都给你留好
+
+所以这玩意哪怕以后性能完全不行 ...</blockquote>
+按之前楼友的说法，这个主机是v社配的pc跑SteamOS（Linux），那自然都能这样改了。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zid99825  
+##### 64#       发表于 2025-11-13 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715501&amp;ptid=2267066" target="_blank">4869Bi 发表于 2025-11-13 07:56</a>
+可以防止开挂，不少多人在线游戏直接不支持steamos</blockquote>
+你拿什么防？一堆gaas不支持linux就是因为Linux不能做内核态防护，用户自己有root权限那不是想跑什么跑什么
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  慕容断月  
+##### 65#       发表于 2025-11-13 08:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715539&amp;ptid=2267066" target="_blank">Nanachi 发表于 2025-11-13 08:13</a>
+
+按之前楼友的说法，这个主机是v社配的pc跑SteamOS（Linux），那自然都能这样改了。
+
+论坛助手,iPhone ...</blockquote>
+手持蒸汽牛子的用户表示就是这样，反正软硬件都给你，爱怎么改怎么改，买到手就是你的
+
+*****
+
+####  zid99825  
+##### 66#       发表于 2025-11-13 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715471&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 07:43</a>
+还真是7600m，28cu，浮点17.27TFLOPS，tdp 90w，g胖这个110w大概实际性能表现就是4060m同级吧。
+
+ ...</blockquote>
+这图错的离谱了吧，steam machine总共16G统一内存，然后给vram分8G
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  满满一大杯  
+##### 67#       发表于 2025-11-13 08:17
+
+machine尺寸不错，价格合适的话会搞一个连电视，真的大型游戏就串流（
+
+frame倒是满足了我当年对V社硬件的期待。
+
