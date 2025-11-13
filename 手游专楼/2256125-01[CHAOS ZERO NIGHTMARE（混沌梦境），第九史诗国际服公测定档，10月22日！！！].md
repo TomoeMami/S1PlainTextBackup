@@ -5120,3 +5120,16 @@ N10好像是武器太吃点数
 没啥压力。 ...</blockquote>
 没说BOSS难打，是说这肉鸽高难难打
 
+
+*****
+
+####  phoenixxj  
+##### 472#       发表于 2025-11-13 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717517&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-13 14:03</a>
+
+没说BOSS难打，是说这肉鸽高难难打</blockquote>
+那正确的逻辑是
+
+不需要刷卡组，因为boss随便打就拿完钻了
+
