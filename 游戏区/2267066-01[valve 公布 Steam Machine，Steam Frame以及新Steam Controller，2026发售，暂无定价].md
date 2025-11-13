@@ -3171,3 +3171,14 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 赛道不太一样，q3该用用
 
+
+*****
+
+####  frankCC  
+##### 298#       发表于 2025-11-13 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719335&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 20:12</a>
+
+那不是相对的嘛，这机器卖3000估计国内大部分玩家都觉得是臭狗屎，499卖给鬼佬他们未必不买账。就好比306 ...</blockquote>
+对的，总有人拿国内套国外，海外又没有2000块随便买的ps5数字版。SM没进国内，价格对比也是和海外那些对手做比较。如果有一天真进了国内，到时也自然会有一个国内实际价格的。
+
