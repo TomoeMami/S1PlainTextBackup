@@ -387,3 +387,14 @@ https://x.com/bang_dream_info/status/1988441628210852235
 [https://bang-dream.com/discographies/4093](https://bang-dream.com/discographies/4093)</blockquote>
        [https://www.bilibili.com/video/BV1aHC4BNEGL](https://www.bilibili.com/video/BV1aHC4BNEGL)
 
+
+*****
+
+####  CyDiablo  
+##### 27360#       发表于 2025-11-13 21:13
+
+这周小动画有点变态的
+[【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你07 羽化～growth～-哔哩哔哩番剧】](https://b23.tv/ep2378888)
+<img src="https://p.sda1.dev/28/db2a6d6a57f22cef52661c294ed1246a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/28/e392d9a8202deb3b053bc42267e03ac7/image.jpg" referrerpolicy="no-referrer">
+

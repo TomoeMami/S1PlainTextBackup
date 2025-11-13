@@ -3161,3 +3161,13 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  朔方原的星  
+##### 297#       发表于 2025-11-13 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719174&amp;ptid=2267066" target="_blank">darthruse 发表于 2025-11-13 19:33</a>
+Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
+赛道不太一样，q3该用用
+
