@@ -3132,3 +3132,32 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 
 软软索索的 非 电子垃圾掌机什么时候出啊，早点定下标杆大家好做事啊，不然市场上出现任何一个硬件都会成为电子垃圾的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はちたや  
+##### 295#       发表于 2025-11-13 20:36
+
+<blockquote>沧兰殇 发表于 2025-11-13 20:16
+啊，抱歉，我把你和97楼当成一个人了，上午看到你两个在说电子垃圾，下午就你一个，我当成对面了，抱歉
+
+ ...</blockquote>
+那就等着看呗，某些人眼中明明用着供应链上的尾货干个组装整机的活却能够教训市场核心部件制造商的游戏界圣人g胖会怎么让利给真正的玩家
+
+
+*****
+
+####  沧兰殇  
+##### 296#       发表于 2025-11-13 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719042&amp;ptid=2267066" target="_blank">sablexc 发表于 2025-11-13 19:00</a>
+太抢占了steamdeck肯定也把ns抢占了吧
+沧澜桑这条任屯从索尼财报出来后接连在几个楼蹦哒仿佛被索尼沙马一样 ...</blockquote>
+财报？我根本没看过财报，财报楼都没进去过，你说我是财报后这么急？难道你看了历史发言后连我在哪些楼说过话都不知道？
+还是说你天天游戏版里视奸别人，每个帖子都看看有没有反索的，然后记住是哪些id，盯着别人发言然后忘了别人是在哪些楼里发言的？
+然后这楼里又在这里看到对应id了不冷不热地阴阳两句？
+翻了下，09年往后没有发言，25年才开始又有发言和主题贴了，又是哪年买的小号？发言就光会时不时阴阳两句？
+<img src="https://p.sda1.dev/28/c31d83601f8257482180f63aea9b0d4b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
