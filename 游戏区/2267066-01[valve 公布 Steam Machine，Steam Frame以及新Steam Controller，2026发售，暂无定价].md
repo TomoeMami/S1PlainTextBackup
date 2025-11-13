@@ -3102,3 +3102,33 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  沧兰殇  
+##### 292#       发表于 2025-11-13 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719135&amp;ptid=2267066" target="_blank">はちたや 发表于 2025-11-13 19:25</a>
+泥潭还是有意思，喷个阀门的电子垃圾也是索孝子，极致的路径依赖是吧</blockquote>
+啊，抱歉，我把你和97楼当成一个人了，上午看到你两个在说电子垃圾，下午就你一个，我当成对面了，抱歉
+但是我也不清楚定价没出的时候为啥你要张口叫7000，然后看着比谁都急
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  电磁炮233  
+##### 293#       发表于 2025-11-13 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719174&amp;ptid=2267066" target="_blank">darthruse 发表于 2025-11-13 19:33</a>
+
+Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
+哦对这玩意儿没有彩透和手追，看片不如q3
+
+*****
+
+####  nma  
+##### 294#       发表于 2025-11-13 20:18
+
+软软索索的 非 电子垃圾掌机什么时候出啊，早点定下标杆大家好做事啊，不然市场上出现任何一个硬件都会成为电子垃圾的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
