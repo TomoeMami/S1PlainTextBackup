@@ -5133,3 +5133,16 @@ N10好像是武器太吃点数
 
 不需要刷卡组，因为boss随便打就拿完钻了
 
+
+*****
+
+####  三谷歩夢  
+##### 473#       发表于 2025-11-13 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717570&amp;ptid=2256125" target="_blank">phoenixxj 发表于 2025-11-13 14:16</a>
+
+那正确的逻辑是
+
+不需要刷卡组，因为boss随便打就拿完钻了</blockquote>
+所以我才说随便打打BOSS摆烂啊，我拿有纪随便打了两把难4存档都过叠加7了，问题这BOSS不是这赛季的最终内容，单纯是个存档质检机，这么点钻又干不了啥事
+

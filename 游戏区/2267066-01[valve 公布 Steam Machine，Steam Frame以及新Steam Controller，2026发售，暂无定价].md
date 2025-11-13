@@ -2292,3 +2292,11 @@ steamos为了稳定，采用的是不可变系统的机制，/usr除了/usr/loca
 说起来Frame用的是8g3，还可以跑pc游戏，那是不是可以期待一下自带兼容层，可以直接运行pc游戏的steam安卓 ...</blockquote>
 我最在意的也是这个，V 社应该会加大人力去维护 Proton on ARM，后续 ARM 版本的 Steam Deck 也可以期待了。
 
+
+*****
+
+####  perfect_duck  
+##### 213#       发表于 2025-11-13 14:43
+
+手柄整一个打算
+
