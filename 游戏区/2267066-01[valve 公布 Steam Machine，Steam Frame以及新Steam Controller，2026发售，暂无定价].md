@@ -3277,3 +3277,13 @@ v社这套对linux打游戏来说特别友好
 手柄看着比一般手柄大一整圈</blockquote>
 实际上就和xbox手柄差不多大，我参照他们的官图里和deck的对比拿我的xsx手柄与deck对比，发现大小是差不多的
 
+
+*****
+
+####  沧兰殇  
+##### 308#       发表于 2025-11-14 01:07
+
+我拿手柄和视频对比了下，仅供参考，可以看看按键和摇杆的排布位置和比例<img src="https://p.sda1.dev/28/d3277b7d5a5756aae0f775e18d5e5d60/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
