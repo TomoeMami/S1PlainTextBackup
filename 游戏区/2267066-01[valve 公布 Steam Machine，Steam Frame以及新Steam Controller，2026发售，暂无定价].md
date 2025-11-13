@@ -3019,3 +3019,45 @@ sm这现在价格都没有，不知道能不能算最有性价比的linux consol
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  umbasa  
+##### 285#       发表于 2025-11-13 19:54
+
+<blockquote>Midnight.Coup 发表于 2025-11-13 19:30
+7600M 前两年已经国内小厂拿来做外接显卡的库存货了，5205年G胖还能拿出来宣传成fsr后4K@60的卡Zen3更没 ...</blockquote>
+这就是diy用户的福报，ani三家都换着花样恶心玩家，所以我打心底希望g胖能搅起点水花来。
+
+*****
+
+####  勿徊哉  
+##### 286#       发表于 2025-11-13 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719176&amp;ptid=2267066" target="_blank">Hyst3r1a 发表于 2025-11-13 19:34</a>
+
+【【官方双语】 完爆全场 - Steam Frame第一时间上手#linus谈科技-哔哩哔哩】 https://b23.tv/DYoB8M2
+
+这 ...</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202511/13/195728djm266df0zizcdda.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-13 19:57 上传
+
+*****
+
+####  Lisylfn  
+##### 287#       发表于 2025-11-13 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719261&amp;ptid=2267066" target="_blank">umbasa 发表于 2025-11-13 19:54</a>
+这就是diy用户的福报，ani三家都换着花样恶心玩家，所以我打心底希望g胖能搅起点水花来。 ...</blockquote>
+捡amd垃圾，定制都没有，就别说什么ani不当人g胖能搅和了，他还用着你说不当人的a的货架产品呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
