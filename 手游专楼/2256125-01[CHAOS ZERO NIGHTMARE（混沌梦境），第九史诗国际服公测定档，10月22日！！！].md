@@ -5096,3 +5096,27 @@ N10好像是武器太吃点数
 
 所以唯一让人膈应的  哪个傻x策划设计的100把搬完商店。
 
+
+*****
+
+####  orangee  
+##### 470#       发表于 2025-11-13 14:00
+
+最高难这一层boss能带毒的啊？？现在是不是就没法对付毒……直接被活生生毒死了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  三谷歩夢  
+##### 471#       发表于 2025-11-13 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68717441&amp;ptid=2256125" target="_blank">phoenixxj 发表于 2025-11-13 13:44</a>
+这boss没有那么难打啊
+
+我那8都没打，拿着难6出来的存档就把boss的钻全拿完了（要打难4 6tag）
+
+没啥压力。 ...</blockquote>
+没说BOSS难打，是说这肉鸽高难难打
+
