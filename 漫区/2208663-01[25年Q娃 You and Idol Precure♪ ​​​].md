@@ -14,3 +14,11 @@
 
 山口亮太也说了这事，太遗憾了
 
+
+*****
+
+####  wolf1997  
+##### 1374#       发表于 2025-11-13 16:17
+
+师傅山内重保还在活跃，徒弟却先走一步了，太可惜了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
