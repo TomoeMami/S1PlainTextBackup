@@ -1649,3 +1649,62 @@ PC最大的优势MOD和风灵月影能在这个主机上用吗</blockquote>
 
 这个配置能卖2台mac mini价钱吗？  <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Zeno_5  
+##### 152#       发表于 2025-11-13 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716008&amp;ptid=2267066" target="_blank">chizuru 发表于 2025-11-13 09:47</a>
+
+看到一些评论说ps5有限时独占优势，其实steam平台的独占游戏数量是远超ps5平台的吧？ ...</blockquote>
+但是steam平台本身不独占，很多设备都能跑......
+
+*****
+
+####  TiiTiiLL  
+##### 153#       发表于 2025-11-13 10:29
+
+看了下居然没有彩透，那基本就是纯游戏机的定位了，有点遗憾......
+
+*****
+
+####  马甲20250922  
+##### 154#       发表于 2025-11-13 10:30
+
+<blockquote>霖岚_ 发表于 2025-11-13 09:04
+YTB宣传片下面最多赞的评论是GabeCube过于生草
+
+看来steamdeck确实给了V社很大信心，之前xbox ally发售的时 ...</blockquote>
+不如NGC，NGC有一个把手，可以提起来砸人，战斗力高得多。
+
+*****
+
+####  沧兰殇  
+##### 155#       发表于 2025-11-13 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716297&amp;ptid=2267066" target="_blank">TiiTiiLL 发表于 2025-11-13 10:29</a>
+看了下居然没有彩透，那基本就是纯游戏机的定位了，有点遗憾......</blockquote>
+彩透这东西不都是第三方去出的？而且看视频前面板可以随便换，再加上比掌机零件少，换整机壳子很简单
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  NeverCU  
+##### 156#       发表于 2025-11-13 10:31
+
+<blockquote>chizuru 发表于 2025-11-13 09:47
+看到一些评论说ps5有限时独占优势，其实steam平台的独占游戏数量是远超ps5平台的吧？ ...</blockquote>
+没出sd可以吹吹，有了还怎么吹，销量证明没几个买单的
+
+
+*****
+
+####  tillnight  
+##### 157#       发表于 2025-11-13 10:36
+
+<blockquote>Fuero 发表于 2025-11-13 09:32
+硬件很难拉出差距，但跑的是能离线运行App的原生SteamOS，别的不说，VRChat大概率能跑PC版而不是头显版 ...</blockquote>
+8gen3转译x86，还能本地跑的动PC版的VRC，那想必头显版的阉割VRC是因为开发商太蠢不知道直接移植就能跑。
+
