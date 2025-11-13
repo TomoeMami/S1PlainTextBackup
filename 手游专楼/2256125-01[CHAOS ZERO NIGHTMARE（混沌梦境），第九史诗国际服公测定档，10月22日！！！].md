@@ -5278,3 +5278,19 @@ N10好像是武器太吃点数
 
 日常福利么，你看到处都在喷卡养成喷命座就懂了
 
+
+*****
+
+####  qixinno2  
+##### 484#       发表于 2025-11-13 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转的图 真正的AOE大C
+
+<img src="https://img.stage1st.com/forum/202511/13/181610zr1zqrrbbyzpp79r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-13 18:16 上传
+
