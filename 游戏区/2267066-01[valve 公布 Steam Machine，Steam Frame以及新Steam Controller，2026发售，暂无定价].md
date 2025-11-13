@@ -2194,3 +2194,42 @@ steamos能直接装非游戏的通用软件吗？
 
 手柄和vr还是有点意思的，主机这个受众是以steam 库为基础的玩家，steam OS对那种 rpg maker 和老游戏的兼容不知道怎么样，如果做的到无感体验的话倒是挺想弄一个，性能够不上的就拿来串流。最心水的是手柄，这不串流神器吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱尿TV  
+##### 204#       发表于 2025-11-13 12:41
+
+ 本帖最后由 爱尿TV 于 2025-11-13 12:45 编辑 
+
+被霸凌的V子的一生：
+出掌机被任豚打压
+出主机被索狗打压
+出单机被tga打压
+出网游被拳头抄袭打压
+做平台被epic**打压（唯一没打赢的）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  defer  
+##### 205#       发表于 2025-11-13 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715842&amp;ptid=2267066" target="_blank">病態極端 发表于 2025-11-13 09:20</a>
+windows比linux安全嗎？聞所未聞。
+
+戰地6和三角洲反作弊互相攔截也不是洋蔥新聞吧。
+
+最後，linux換內核 ...</blockquote>
+看笑了，能访问system32的情况下不如直接用消防斧。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zzy516232108  
+##### 206#       发表于 2025-11-13 12:48
+
+3000能买到他就是出一坨大便我也买
+
