@@ -681,3 +681,16 @@ LINUX的输入法在桌面模式也比较感人
 
 我有一计，改主机为刀斯林和CS导购游戏中随机掉落兑换码，氪金可增加掉落率<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zid99825  
+##### 72#       发表于 2025-11-13 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68718565&amp;ptid=2267096" target="_blank">广告位 发表于 2025-11-13 17:17</a>
+
+看了数毛社的拆解，成本不低啊，台达的散热风扇，群光的内置电源，2230 SSD，还有手柄和wifi6E的独立天线
+
+ ...</blockquote>
+df的语气不就是399基本不可能么
+
