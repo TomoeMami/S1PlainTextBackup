@@ -2178,3 +2178,19 @@ steamos能直接装非游戏的通用软件吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zris  
+##### 202#       发表于 2025-11-13 12:29
+
+玩不了土命2，不买了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 203#       发表于 2025-11-13 12:35
+
+手柄和vr还是有点意思的，主机这个受众是以steam 库为基础的玩家，steam OS对那种 rpg maker 和老游戏的兼容不知道怎么样，如果做的到无感体验的话倒是挺想弄一个，性能够不上的就拿来串流。最心水的是手柄，这不串流神器吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
