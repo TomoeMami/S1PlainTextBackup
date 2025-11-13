@@ -3319,3 +3319,14 @@ v社这套对linux打游戏来说特别友好
 数毛社说的没错啊，这玩意就算在欧美也不能超过399啊，因为399都能买ps5 slim了。 ...</blockquote>
 哪有发售价对比打折价的道理，499就别拿促销活动假装399。
 
+
+*****
+
+####  nozomitech  
+##### 312#       发表于 2025-11-14 06:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68720670&amp;ptid=2267066" target="_blank">NeverCU 发表于 2025-11-13 23:34</a>
+
+哪有发售价对比打折价的道理，499就别拿促销活动假装399。</blockquote>
+ps5 slim没光驱，首发的ps5数字版不就是399？而且找你的说法，2025年达到同样的性能，成本要比2020年低呢<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
