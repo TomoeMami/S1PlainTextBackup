@@ -2977,3 +2977,45 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3
 Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
 国内用不了 6GHz 串流，只能当一体机用
 
+
+*****
+
+####  zris  
+##### 281#       发表于 2025-11-13 19:47
+
+说实话这么有争议，不还是spec一眼到头
+
+我觉得拿sd举例没道理的
+
+2022年在6800u出来前，399刀的sd，无疑是最有性价比性能最强的x86 handheld
+
+何况sd有一个便携属性在这
+
+sm这现在价格都没有，不知道能不能算最有性价比的linux console
+
+*****
+
+####  久保由利香  
+##### 282#       发表于 2025-11-13 19:47
+
+到底是发生了什么让沧兰桑这么喜欢幻想一键灭索，微距了
+
+
+*****
+
+####  满满一大杯  
+##### 283#       发表于 2025-11-13 19:50
+
+我之前的HTPC还是真NUC呢，蒸汽机16cm立方内置电源，做HTPC确实戳。所以顺便问问有没有类似尺寸的自攒方案？
+
+话说NUC本来就偏贵，感觉蒸汽机499都压不到。
+
+*****
+
+####  fbman  
+##### 284#       发表于 2025-11-13 19:51
+
+快把arm steamos搞成，利好寨机<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

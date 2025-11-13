@@ -363,3 +363,27 @@ https://x.com/bang_dream_info/status/1988441628210852235
 
 字数补丁。
 
+
+*****
+
+####  堀内爱里衣  
+##### 27359#       发表于 2025-11-13 19:48
+
+       <strong>【LIVE DIGEST】MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202511/13/194749od66f6f4977faa59.jpg" referrerpolicy="no-referrer">
+
+<strong>39848b4ede4c747ad9bc8103c9b03608426d015f.jpg</strong> (106.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-13 19:47 上传
+
+2025年4月举办的MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」的剪辑影像公开！
+
+本视频也将收录于11月12日(周三)发售的Blu-ray之中。
+
+★商品情报
+[https://bang-dream.com/discographies/4093](https://bang-dream.com/discographies/4093)</blockquote>
+       [https://www.bilibili.com/video/BV1aHC4BNEGL](https://www.bilibili.com/video/BV1aHC4BNEGL)
+
