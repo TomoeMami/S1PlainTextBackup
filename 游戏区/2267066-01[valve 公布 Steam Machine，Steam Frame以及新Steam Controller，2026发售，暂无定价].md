@@ -1988,3 +1988,38 @@ Archlinux官方现在只支持x64
 
 现在闪存和内存一直涨价，阀门能否在控制成本的前提下满足配件供应都难说
 
+
+*****
+
+####  满满一大杯  
+##### 184#       发表于 2025-11-13 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716666&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 11:24</a>
+我在做一个梦，如果蒸汽机器发布的同时，宣布steam os官方版面向家用x86电脑安装，如果拥有性能更强的电脑 ...</blockquote>
+bazzite请<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+不过linux嘛，为了方便，显卡基本上只能A了。愿意折腾的话N也不是不行。
+
+*****
+
+####  Antidote丶  
+##### 185#       发表于 2025-11-13 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716008&amp;ptid=2267066" target="_blank">chizuru 发表于 2025-11-13 09:47</a>
+
+看到一些评论说ps5有限时独占优势，其实steam平台的独占游戏数量是远超ps5平台的吧？ ...</blockquote>
+不能这么直接比较。
+
+steam毕竟是电脑就行，又不限定是g胖的机器
+
+
+*****
+
+####  Lisylfn  
+##### 186#       发表于 2025-11-13 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716666&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2025-11-13 11:24</a>
+我在做一个梦，如果蒸汽机器发布的同时，宣布steam os官方版面向家用x86电脑安装，如果拥有性能更强的电脑 ...</blockquote>
+那确实做梦了，steamdeck出的时候他们就说有放新steamos的官方镜像的想法，懒狗到现在都没做出来，第三方自己折腾去吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
