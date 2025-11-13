@@ -3287,3 +3287,17 @@ v社这套对linux打游戏来说特别友好
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  RTLordCaptain  
+##### 309#       发表于 2025-11-14 03:51
+
+ 本帖最后由 RTLordCaptain 于 2025-11-14 03:54 编辑 
+<blockquote>KevinGraham 发表于 2025-11-13 11:40
+再说一遍，steam deck 用的van gogh吃的苹果剩饭（macOS代码里测试过），steam machine更是直接用的货架7 ...</blockquote>
+
+那我还真好奇小霸王当年怎么忽悠amd做了凤凰apu的，这项目怕不是赔惨了
+
+以及要是proton早几年成熟，搞不好v社会回收这玩意做成steam machine了
+
