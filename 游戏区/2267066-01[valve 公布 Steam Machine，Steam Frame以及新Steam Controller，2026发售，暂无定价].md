@@ -2949,3 +2949,31 @@ Steam Frame 相比quest3有竞争力吗？刚买了quest3
 
 —— 来自 OPPO PLG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ajsh  
+##### 278#       发表于 2025-11-13 19:34
+
+我觉得阀门的这个小pc没必要打价格战的
+
+*****
+
+####  Huiiii  
+##### 279#       发表于 2025-11-13 19:37
+
+不是
+价格都没出，扣一个电子垃圾的帽子的人不是急了是什么，总不能是“沉稳的怀疑论者”吧
+
+退一万步讲，按现在的体积与性能，即便steam machine最终价格不如人意，只要出厂做工过得去，内部可拓展性强，做一款小众冷门产品定位也不过不失吧
+
+
+*****
+
+####  Midnight.Coup  
+##### 280#       发表于 2025-11-13 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719174&amp;ptid=2267066" target="_blank">darthruse 发表于 2025-11-13 19:33</a>
+Steam Frame 相比quest3有竞争力吗？刚买了quest3</blockquote>
+国内用不了 6GHz 串流，只能当一体机用
+

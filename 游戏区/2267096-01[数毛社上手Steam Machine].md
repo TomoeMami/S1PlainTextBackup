@@ -801,3 +801,14 @@ steam deck 据三方统计貌似销量有突破 5m
 之前记得有 ...</blockquote>
 我说的是sd现在是电子垃圾，刚发售那两年还是能买的
 
+
+*****
+
+####  sswhxj  
+##### 84#       发表于 2025-11-13 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716753&amp;ptid=2267096" target="_blank">Rowen233 发表于 2025-11-13 11:38</a>
+
+不是，你都游戏机＋定制SOC了为什么不上24gb统一内存＋显存gpu也就28个cu应该能封装在一起啊 ...</blockquote>
+他这定制，大概就是定制了标，拿现成apu屏蔽核心
+
