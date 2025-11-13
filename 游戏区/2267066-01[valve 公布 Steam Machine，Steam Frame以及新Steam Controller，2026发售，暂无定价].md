@@ -1378,3 +1378,49 @@ YTB宣传片下面最多赞的评论是GabeCube过于生草
 看来steamdeck确实给了V社很大信心，之前xbox ally发售的时 ...</blockquote>
 <img src="https://p.sda1.dev/28/15615587b8593e3aeb0d5c0fb34d401b/Spectacle_20251113_092308.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fuero  
+##### 126#       发表于 2025-11-13 09:32
+
+<blockquote>nianiania 发表于 2025-11-13 09:13
+vr好在哪？这跟quest3能拉出本质差距吗？更别说起码比q3贵一倍啊，甚至连彩透都没有
+
+—— 来自 vivo V2405 ...</blockquote>
+硬件很难拉出差距，但跑的是能离线运行App的原生SteamOS，别的不说，VRChat大概率能跑PC版而不是头显版
+
+*****
+
+####  5353  
+##### 127#       发表于 2025-11-13 09:32
+
+重点还是价格。
+
+就我这几年deck的体验，我是不喜欢这个系统的。
+
+
+*****
+
+####  zid99825  
+##### 128#       发表于 2025-11-13 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68715842&amp;ptid=2267066" target="_blank">病態極端 发表于 2025-11-13 09:20</a>
+windows比linux安全嗎？聞所未聞。
+
+戰地6和三角洲反作弊互相攔截也不是洋蔥新聞吧。
+
+最後，linux換內核 ...</blockquote>
+哦，你不懂什么是可信环境是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，算了，不谈了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  luffyzhou  
+##### 129#       发表于 2025-11-13 09:34
+
+machine和手柄打算买，手柄1代就买了，当时还买的link那个小垃圾……
+
+就是machine性能还不如手里的笔记本强，要是能再提升些性能和ps5pro差不多就好了
+
