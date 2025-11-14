@@ -483,3 +483,18 @@ Valve（V社）近日宣布，Steam平台将正式支持安卓游戏。这一战
 
 V社工程师杰瑞米·塞拉恩表示，此次更新的目标是让玩家“根本无需考虑”游戏来自哪个商店平台。用户只需通过Steam访问游戏库，直接下载并点击启动按钮即可运行。技术层面，此次更新将利用Proton兼容层，使Steam Frame能够直接运行APK文件。Arm架构代码无需转译即可在Arm处理器上原生运行，大幅简化了移植流程。
 
+
+*****
+
+####  病態極端  
+##### 45#       发表于 2025-11-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721216&amp;ptid=2267134" target="_blank">Fricassee 发表于 2025-11-14 09:31</a>
+
+Steam Frame这个东西最大作用是解决“为什么要用VR”
+
+现在的整个MR生态里，VR已经是堆栈规模最大的了，AR就 ...</blockquote>
+相等於便攜的顯示器/電視/影院吧。
+
+不過目前V社的宣傳不足以改變玩家看到VR就只能想象到「玩起來需要一直扭頭甩手，只有FPS玩的機器」的現況啊。
+
