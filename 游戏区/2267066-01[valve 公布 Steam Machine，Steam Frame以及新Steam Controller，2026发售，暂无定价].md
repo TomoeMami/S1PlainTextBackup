@@ -3516,3 +3516,16 @@ steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越吹越离谱了，干掉windows都来了
 
+
+*****
+
+####  病態極端  
+##### 331#       发表于 2025-11-14 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721880&amp;ptid=2267066" target="_blank">cauchua3 发表于 2025-11-14 11:09</a>
+
+steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记本有啥区别</blockquote>
+單一硬件型號，遊戲廠可以針對優化。當然現實是遊戲廠可能連傳統遊戲機的版本都沒優化了，根本輪不到蒸汽機。
+
+雲端編譯着色器，所有蒸汽機下載編譯完的着色器，跳過編譯。
+
