@@ -3700,3 +3700,26 @@ FEX都5年了，Box64也4年了这又不是V社先搞的，现在安卓上的模
 
 关于硬件的各种疑问最后答案应该都是V社只能淘到这些
 
+
+*****
+
+####  Lisylfn  
+##### 346#       发表于 2025-11-14 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68722598&amp;ptid=2267066" target="_blank">慕容断月 发表于 2025-11-14 13:03</a>
+
+完全统一配置的基础上不对系统和游戏文件做多余改动理论上这是不可能的
+
+实际上我测+平时使用这2年也有上 ...</blockquote>
+SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡proton兼容。
+
+还能一款游戏开着没问题退出再进就卡，这个游戏没问题换个游戏就卡
+
+
+*****
+
+####  千千千千鸟  
+##### 347#       发表于 2025-11-14 16:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">这玩意如果能刷windows系统那不就是一个steam品牌机PC了吗。加上steamOS的溢价个50刀，等价对比A卡的ITX主机就是了
+
