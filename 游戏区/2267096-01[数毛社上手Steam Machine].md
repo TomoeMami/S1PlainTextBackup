@@ -1045,3 +1045,13 @@ sm就是台式机你拿屏幕说事？能不能 ...</blockquote>
 游戏库基本全在steam，对我来说还挺有吸引力的，如果399的话考虑放一台在客厅玩 ...</blockquote>
 至少得699
 
+
+*****
+
+####  胶布  
+##### 106#       发表于 2025-11-15 06:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68726314&amp;ptid=2267096" target="_blank">慕容断月 发表于 2025-11-15 02:41</a>
+启动慢是网的问题，挂个梯子解决，或者可以选择断网，你说的问题断网可破，如果又要联网又要快还不想挂梯 ...</blockquote>
+我不在国内。我的sd也有启动慢问题。
+
