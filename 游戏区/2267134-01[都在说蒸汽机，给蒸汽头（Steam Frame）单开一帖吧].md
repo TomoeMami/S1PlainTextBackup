@@ -591,3 +591,13 @@ steam frame以一体机模式玩的话，没看到全身动捕的演示。不会
 还是老生常谈的问题，戴眼镜的用户用这玩意体验好嘛</blockquote>
 Vr很多都能自己网上配镜片装上去，也不贵，再怎么改善戴眼镜体验都不会有磁吸镜片来的好，少戴一个东西就是更舒服（磁吸镜片还能额外保护vr头显镜片不会被划伤）
 
+
+*****
+
+####  Freshfish  
+##### 54#       发表于 2025-11-14 15:21
+
+6G频段在国内能正常用吗<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
