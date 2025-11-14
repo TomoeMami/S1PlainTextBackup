@@ -3435,3 +3435,15 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 我猜512G版599
 2T版799
 
+
+*****
+
+####  沧兰殇  
+##### 323#       发表于 2025-11-14 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721269&amp;ptid=2267066" target="_blank">秦南心 发表于 2025-11-14 09:39</a>
+这真不是一个小闷箱吗</blockquote>
+前面磁吸盖确实有点挡风，可是把这个面盖去掉，就是标准的贯穿风道，散热效果会很好
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
