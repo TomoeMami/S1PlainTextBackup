@@ -1016,3 +1016,13 @@ sm就是台式机你拿屏幕说事？能不能 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  慕容断月  
+##### 103#       发表于 2025-11-15 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68725995&amp;ptid=2267096" target="_blank">RαPβiT 发表于 2025-11-15 00:26</a>
+我的sd开机和游戏启动感觉要等一万年，更别提楼上提到的睡死问题，掌机主打就是一个随玩随放，这点上sd简直 ...</blockquote>
+启动慢是网的问题，挂个梯子解决，或者可以选择断网，你说的问题断网可破，如果又要联网又要快还不想挂梯子……确实有点太为难一个没在中国大陆正式发售的电子设备了
+
