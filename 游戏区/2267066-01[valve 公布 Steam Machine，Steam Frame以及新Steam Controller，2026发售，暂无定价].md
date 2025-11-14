@@ -3613,3 +3613,36 @@ Steamdeck那个云端着色器编译会经常性造成游戏卡死无法启动</
 
 实际上我测+平时使用这2年也有上百款了，一次都没遇到过这种情况，这个还是得分情况讨论，太个例了
 
+
+*****
+
+####  RTLordCaptain  
+##### 340#       发表于 2025-11-14 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721961&amp;ptid=2267066" target="_blank">qappip 发表于 2025-11-14 11:18</a>
+
+有谁知道国外整机 4060 价格多少？我感觉按那个猜比较准。
+
+—— 来自 vivo V2436A, Android 15, 鹅球 v3.5 ...</blockquote>
+新蛋搜了下，价格确实很不美丽，还全是二手的
+
+<img src="https://img.stage1st.com/forum/202511/14/131800dtmw3035mkvltszg.jpg" referrerpolicy="no-referrer">
+
+<strong>prebuilt.jpg</strong> (267.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-14 13:18 上传
+
+pcpartspicker随便选了些便宜的，结果如下 （也可以换成同价位5050，应该更好。4060更贵）
+
+<img src="https://img.stage1st.com/forum/202511/14/131822tgxuffu9dgx69hxz.jpg" referrerpolicy="no-referrer">
+
+<strong>diybuild.jpg</strong> (221.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-14 13:18 上传
+
+当然要是愿意蹲或者去microcenter实体店淘应该能找到更便宜的，不过如果不想研究只想激情下单那只能买到这样的了
+
