@@ -580,3 +580,14 @@ steam frame以一体机模式玩的话，没看到全身动捕的演示。不会
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  BK10  
+##### 53#       发表于 2025-11-14 15:11
+
+ 本帖最后由 BK10 于 2025-11-14 15:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721040&amp;ptid=2267134" target="_blank">cauchua3 发表于 2025-11-14 09:02</a>
+还是老生常谈的问题，戴眼镜的用户用这玩意体验好嘛</blockquote>
+Vr很多都能自己网上配镜片装上去，也不贵，再怎么改善戴眼镜体验都不会有磁吸镜片来的好，少戴一个东西就是更舒服（磁吸镜片还能额外保护vr头显镜片不会被划伤）
+
