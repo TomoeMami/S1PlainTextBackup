@@ -3756,3 +3756,18 @@ steam主机本质是linux系统，厂商根本不可能管的。
 
 全看兼容层在那里玩。
 
+
+*****
+
+####  阿西噶基米  
+##### 351#       发表于 2025-11-14 18:34
+
+<img src="https://p.sda1.dev/28/ae674ba3fac9fc76f16f913091955fdf/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 352#       发表于 2025-11-14 18:37
+
+厂商：我管你干甚，先卖过1000W台再说吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

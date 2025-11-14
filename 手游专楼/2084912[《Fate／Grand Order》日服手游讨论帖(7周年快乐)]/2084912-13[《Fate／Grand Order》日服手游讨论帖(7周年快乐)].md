@@ -245,3 +245,39 @@ MD气笑了，做的最好的地方是
 
 不愧掉的材料都是宝物库掉的，就这弓阶冠位战QP也是比别的冠位战多2倍的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 18632#       发表于 2025-11-14 18:22
+
+提妈要点被动的吗，你游这几年的从者我一个都不知道怎么用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18633#       发表于 2025-11-14 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724305&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-11-14 18:22</a>
+
+提妈要点被动的吗，你游这几年的从者我一个都不知道怎么用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点20np阿 不然第1回合不能起飞
+
+*****
+
+####  壳壳牛  
+##### 18634#       发表于 2025-11-14 18:29
+
+qp又要爆仓了<img src="https://static.stage1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  里村紅葉  
+##### 18635#       发表于 2025-11-14 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724313&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-11-14 18:23</a>
+点20np阿 不然第1回合不能起飞</blockquote>
+她二技能不是50自充吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
