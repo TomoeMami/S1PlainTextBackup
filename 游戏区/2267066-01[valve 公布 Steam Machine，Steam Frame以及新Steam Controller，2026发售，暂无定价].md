@@ -3797,3 +3797,23 @@ steam主机本质是linux系统，厂商根本不可能管的。
 
 SM设计不错的啊，卖来当windows主机也挺好吧
 
+
+*****
+
+####  fyzqwzh  
+##### 356#       发表于 2025-11-15 02:28
+
+刷windows不看好，基本不会更新windows驱动，尤其是显卡驱动
+
+
+*****
+
+####  慕容断月  
+##### 357#       发表于 2025-11-15 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68723764&amp;ptid=2267066" target="_blank">Lisylfn 发表于 2025-11-14 16:47</a>
+SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡proton兼容。
+
+还能一款游戏开着没问题退出再 ...</blockquote>
+前两个网络问题。断网可破，第三个我真没遇到过，真没，我以为你说卡启动是进游戏黑屏了，卡在启动程序上那就是多半网络问题，走的服务器国内连得慢，挂个梯子进去飞快
+
