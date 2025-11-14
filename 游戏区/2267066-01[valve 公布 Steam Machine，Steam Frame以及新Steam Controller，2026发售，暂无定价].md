@@ -3723,3 +3723,11 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">这玩意如果能刷windows系统那不就是一个steam品牌机PC了吗。加上steamOS的溢价个50刀，等价对比A卡的ITX主机就是了
 
+
+*****
+
+####  小修  
+##### 348#       发表于 2025-11-14 17:41
+
+这个太棒了，以后Pc游戏优化有标准了。你先把steam主机优化好再上平台
+

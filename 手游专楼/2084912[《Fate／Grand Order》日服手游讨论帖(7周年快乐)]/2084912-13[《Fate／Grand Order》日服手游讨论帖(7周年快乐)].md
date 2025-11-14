@@ -171,3 +171,37 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 18624#       发表于 2025-11-14 17:32
+
+ 本帖最后由 Jamaisvu 于 2025-11-14 17:36 编辑 
+
+参考武藏和狂海，冠位从者的模组都是独有的，估计刺猬头半裸闪也不会作为简易灵衣落地了，明明从1.7盼到现在...
+
+*****
+
+####  exiaexa  
+##### 18625#       发表于 2025-11-14 17:37
+
+MD气笑了，做的最好的地方是
+
+材料是直接从旺财掉出来的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18626#       发表于 2025-11-14 17:40
+
+最高难度打的好轻松。。但是要看3-4个宝具+2回合<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18627#       发表于 2025-11-14 17:41
+
+实在没什么人能冠.....想了想还是冠2姐吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
