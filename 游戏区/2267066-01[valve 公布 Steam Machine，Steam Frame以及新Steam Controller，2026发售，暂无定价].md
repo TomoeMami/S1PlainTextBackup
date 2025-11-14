@@ -3374,3 +3374,11 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 
 这新主机成熟的话我就不需要windows主机了啊，搞快点
 
+
+*****
+
+####  herryk159  
+##### 317#       发表于 2025-11-14 08:10
+
+看X上梗图，8G vRam？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这太少了吧
+
