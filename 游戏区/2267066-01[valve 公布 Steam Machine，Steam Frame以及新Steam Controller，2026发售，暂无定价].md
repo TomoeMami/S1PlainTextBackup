@@ -3544,3 +3544,11 @@ system76的NUC，599起：https://system76.com/desktops/meerkat/#specs
 国产那堆NUC在北美也不便宜：像是https://www.geekompc.com/
 反正我觉得蒸汽机最多也就是499交个朋友了，399别想。
 
+
+*****
+
+####  muderx  
+##### 333#       发表于 2025-11-14 12:03
+
+要走量的机型不应太高配
+
