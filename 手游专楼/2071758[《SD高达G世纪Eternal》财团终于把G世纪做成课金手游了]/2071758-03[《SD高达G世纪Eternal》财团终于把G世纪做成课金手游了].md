@@ -1050,3 +1050,11 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 —— 来自 S1Fun</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有ur三明也凑不到95暴击率啊
 
+
+*****
+
+####  AminGly  
+##### 3059#       发表于 2025-11-14 10:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">叽里咕噜说什么呢 和我的满星ur说去吧
+
