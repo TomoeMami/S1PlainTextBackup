@@ -3779,3 +3779,13 @@ steam主机本质是linux系统，厂商根本不可能管的。
 
 不用4k，主要是玩老游戏和模拟器还是可以的
 
+
+*****
+
+####  Unbiquitous  
+##### 354#       发表于 2025-11-15 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68723764&amp;ptid=2267066" target="_blank">Lisylfn 发表于 2025-11-14 16:47</a>
+ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡proton兼容。 还能一款游戏开着没问题退出再 ...</blockquote>
+前两个感觉是网络问题
+
