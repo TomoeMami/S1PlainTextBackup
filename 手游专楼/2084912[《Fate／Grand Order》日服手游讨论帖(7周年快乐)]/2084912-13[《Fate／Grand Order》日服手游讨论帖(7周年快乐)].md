@@ -205,3 +205,43 @@ MD气笑了，做的最好的地方是
 
 实在没什么人能冠.....想了想还是冠2姐吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18628#       发表于 2025-11-14 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724044&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-11-14 17:41</a>
+
+实在没什么人能冠.....想了想还是冠2姐吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">虽不欧 但欧羡慕
+
+*****
+
+####  exiaexa  
+##### 18629#       发表于 2025-11-14 17:52
+
+都11月了，怎么还有人提妈没点二技能啊
+
+甚至还直接戴了冠
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18630#       发表于 2025-11-14 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724121&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-11-14 17:52</a>
+
+都11月了，怎么还有人提妈没点二技能啊
+
+甚至还直接戴了冠</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">已经中了3次了  都是冠位
+
+*****
+
+####  岸浪白野  
+##### 18631#       发表于 2025-11-14 18:14
+
+不愧掉的材料都是宝物库掉的，就这弓阶冠位战QP也是比别的冠位战多2倍的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
