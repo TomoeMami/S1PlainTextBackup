@@ -3489,3 +3489,30 @@ steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记
 FEX都5年了，Box64也4年了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这又不是V社先搞的，现在安卓上的模拟器比如Winlator和盖世游戏已经很成熟了
 不过Valve也的确给FEX贡献不少，光Billy两年就交了400+ commits
 
+
+*****
+
+####  frankCC  
+##### 328#       发表于 2025-11-14 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721880&amp;ptid=2267066" target="_blank">cauchua3 发表于 2025-11-14 11:09</a>
+
+steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记本有啥区别</blockquote>
+大概是类似于surface之于windows，给其他厂商打个样吧。
+
+*****
+
+####  qappip  
+##### 329#       发表于 2025-11-14 11:18
+
+有谁知道国外整机 4060 价格多少？我感觉按那个猜比较准。
+
+—— 来自 vivo V2436A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  simonroam  
+##### 330#       发表于 2025-11-14 11:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越吹越离谱了，干掉windows都来了
+
