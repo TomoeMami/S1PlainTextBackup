@@ -4084,3 +4084,19 @@ Vtuber 嘛。
 
 别人打boss起手不死斩，mea在那边慢腾腾的拼刀，本来也竞速不起来。
 
+
+*****
+
+####  古战场亡魂  
+##### 19867#       发表于 2025-11-14 18:38
+
+封面诈骗啊
+
+<img src="https://img.stage1st.com/forum/202511/14/183807wk5kendq5z13km6l.png" referrerpolicy="no-referrer">
+
+<strong>5ce69175-7eaf-41c5-9967-02de8c257910.png</strong> (182.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-14 18:38 上传
+
