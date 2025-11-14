@@ -121,3 +121,53 @@
 
 果然是金皮卡
 
+
+*****
+
+####  千叶铁矢  
+##### 18619#       发表于 2025-11-14 17:14
+
+神话礼装闪？
+
+*****
+
+####  Jamaisvu  
+##### 18620#       发表于 2025-11-14 17:16
+
+男性+神性+天+王，弓阶特攻神性的是信长和拿皇，特攻男性的是月神和二姐，特攻天的是杜尔迦和特斯拉，特攻王的是芝诺比阿和杉谷善住坊。
+
+感觉两个三星成为MVP的可能性不小？
+
+*****
+
+####  zechins  
+##### 18621#       发表于 2025-11-14 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蘑菇想起他最严厉的父亲了
+
+*****
+
+####  exiaexa  
+##### 18622#       发表于 2025-11-14 17:22
+
+ 本帖最后由 exiaexa 于 2025-11-14 17:25 编辑 
+
+不是，蘑菇野爹这冠位动画也太莫名其妙了
+
+就硬跟小恩对标是吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你非要做个新动画
+
+还不如干脆落地旧闪
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 18623#       发表于 2025-11-14 17:24
+
+二姐射爆一条血，提妈踢死，宝具都没看到，有变化吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
