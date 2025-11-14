@@ -3654,3 +3654,27 @@ pcpartspicker随便选了些便宜的，结果如下 （也可以换成同价位
 
 确实，白皮的机子会按白皮的价格出的
 
+
+*****
+
+####  fallenevil  
+##### 342#       发表于 2025-11-14 13:37
+
+主机没啥意思，想不出用途在哪儿，一般来说会搞steam的都有pc，想在电视上玩直接串流就行了，何必花钱再搞一台主机呢。
+frame倒是挺感兴趣的，不知道到时候什么价格
+
+—— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zris  
+##### 343#       发表于 2025-11-14 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68722745&amp;ptid=2267066" target="_blank">fallenevil 发表于 2025-11-14 13:37</a>
+
+主机没啥意思，想不出用途在哪儿，一般来说会搞steam的都有pc，想在电视上玩直接串流就行了，何必花钱再搞 ...</blockquote>
+说了不会超过index
+
+那就是999以内
+
