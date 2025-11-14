@@ -338,3 +338,41 @@ qp又要爆仓了<img src="https://static.stage1st.com/image/smiley/face2017/261
 
 有看到，就是为了这醋，而且反正打2t又适合上弓凛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18640#       发表于 2025-11-14 20:05
+
+好友杀手最多的一次冠位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kirihara  
+##### 18641#       发表于 2025-11-14 20:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我提妈点了np被动，有dalao愿意加么，784009916。
+
+*****
+
+####  alucardcz  
+##### 18642#       发表于 2025-11-14 20:18
+
+<img src="https://img.stage1st.com/forum/202511/14/201754v5j6jj6j6p6j6jp6.png" referrerpolicy="no-referrer">
+
+<strong>12313.png</strong> (617.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-14 20:17 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最菜的认定战。。四舍五入等于没有任何机制  50把也刷完了 收工收工
+
+*****
+
+####  khxooo  
+##### 18643#       发表于 2025-11-14 22:45
+
+搞掂，弓凛也很快10羁绊了，吃的加成太多，不用像之前几个那么刷那么多次。
+
