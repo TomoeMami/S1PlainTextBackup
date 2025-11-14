@@ -3771,3 +3771,11 @@ steam主机本质是linux系统，厂商根本不可能管的。
 
 厂商：我管你干甚，先卖过1000W台再说吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精钢魔像  
+##### 353#       发表于 2025-11-14 19:19
+
+不用4k，主要是玩老游戏和模拟器还是可以的
+
