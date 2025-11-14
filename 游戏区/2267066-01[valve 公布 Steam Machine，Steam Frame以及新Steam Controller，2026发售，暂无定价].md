@@ -3447,3 +3447,13 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  heseran  
+##### 324#       发表于 2025-11-14 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721269&amp;ptid=2267066" target="_blank">秦南心 发表于 2025-11-14 09:39</a>
+这真不是一个小闷箱吗</blockquote>
+底部也是孔
+
