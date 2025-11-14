@@ -3590,3 +3590,26 @@ Steamdeck那个云端着色器编译会经常性造成游戏卡死无法启动
 说个地狱的事情，SteamDeck之前有出现在战场上被改造为自动化机枪的操作单元。 虽然后来并没有大规模普及。 ...</blockquote>
 这不早有了，还有拿quest远程操作机器人的呢
 
+
+*****
+
+####  RTLordCaptain  
+##### 338#       发表于 2025-11-14 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68722278&amp;ptid=2267066" target="_blank">泰坦失足 发表于 2025-11-14 12:08</a>
+
+说个地狱的事情，SteamDeck之前有出现在战场上被改造为自动化机枪的操作单元。 虽然后来并没有大规模普及。 ...</blockquote>
+看过纪录片讲xbox360手柄早就在米军潜艇上用过了
+
+*****
+
+####  慕容断月  
+##### 339#       发表于 2025-11-14 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68722295&amp;ptid=2267066" target="_blank">谢三哥 发表于 2025-11-14 12:10</a>
+
+Steamdeck那个云端着色器编译会经常性造成游戏卡死无法启动</blockquote>
+完全统一配置的基础上不对系统和游戏文件做多余改动理论上这是不可能的
+
+实际上我测+平时使用这2年也有上百款了，一次都没遇到过这种情况，这个还是得分情况讨论，太个例了
+
