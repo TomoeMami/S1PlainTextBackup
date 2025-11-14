@@ -1026,3 +1026,27 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学到一个套路，ssr的狼王sp化打20层因为是95爆所以能骗防御，过了，直接砸ssr升级道具凑够三星，还没过的楼友可以试试，一巴掌一个
 
+
+*****
+
+####  acg_gyanc  
+##### 3057#       发表于 2025-11-14 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68720504&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-11-14 02:01</a>
+学到一个套路，ssr的狼王sp化打20层因为是95爆所以能骗防御，过了，直接砸ssr升级道具凑够三星，还没过的楼 ...</blockquote>
+你怎么一句ur三明都不提的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 3058#       发表于 2025-11-14 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721220&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-11-14 09:32</a>
+
+你怎么一句ur三明都不提的
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有ur三明也凑不到95暴击率啊
+
