@@ -3741,3 +3741,18 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 很成熟吗，我印象中这俩都是 box64 直接运行 x86 应用，感觉只是打包开源软件，尤其这个架构会浪费性能模 ...</blockquote>
 对，FEX的ARM64EC部分基本是他贡献的。Box64未来应该也会做吧，不过可能没太大竞争力了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5353  
+##### 350#       发表于 2025-11-14 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724050&amp;ptid=2267066" target="_blank">小修 发表于 2025-11-14 17:41</a>
+
+这个太棒了，以后Pc游戏优化有标准了。你先把steam主机优化好再上平台</blockquote>
+steam主机本质是linux系统，厂商根本不可能管的。
+
+原生游戏很少。
+
+全看兼容层在那里玩。
+
