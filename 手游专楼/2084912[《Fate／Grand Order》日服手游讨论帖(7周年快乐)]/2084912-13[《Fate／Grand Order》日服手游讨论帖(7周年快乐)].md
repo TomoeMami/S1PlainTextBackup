@@ -281,3 +281,60 @@ qp又要爆仓了<img src="https://static.stage1st.com/image/smiley/face2017/261
 点20np阿 不然第1回合不能起飞</blockquote>
 她二技能不是50自充吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18636#       发表于 2025-11-14 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724364&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-11-14 18:33</a>
+
+她二技能不是50自充吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20+30+30 等于几
+
+*****
+
+####  Jamaisvu  
+##### 18637#       发表于 2025-11-14 19:09
+
+<blockquote>岸浪白野 发表于 2025-11-14 18:14
+不愧掉的材料都是宝物库掉的，就这弓阶冠位战QP也是比别的冠位战多2倍的
+
+ ...</blockquote>
+首次限免期间有为期一周的QP掉落加成，过时恢复正常：
+
+<img src="https://img.stage1st.com/forum/202511/14/190932bi8irymi98rismzm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251114_190759.jpg</strong> (162.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-14 19:09 上传
+
+*****
+
+####  exiaexa  
+##### 18638#       发表于 2025-11-14 19:26
+
+我他妈笑死
+
+网友们加把力，狠狠的鞭挞这个加塞的野爹
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+0caa13c510be10d6dcc4cae86e4a5f18_720.jpg
+(143.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-14 19:26 上传
+
+<img src="https://img.stage1st.com/forum/202511/14/192606s3o78tsk9zgrkr3g.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18639#       发表于 2025-11-14 19:27
+
+有看到，就是为了这醋，而且反正打2t又适合上弓凛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
