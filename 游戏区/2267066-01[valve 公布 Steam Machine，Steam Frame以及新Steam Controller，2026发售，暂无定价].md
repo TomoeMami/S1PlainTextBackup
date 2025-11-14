@@ -3529,3 +3529,18 @@ steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记
 
 雲端編譯着色器，所有蒸汽機下載編譯完的着色器，跳過編譯。
 
+
+*****
+
+####  满满一大杯  
+##### 332#       发表于 2025-11-14 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721961&amp;ptid=2267066" target="_blank">qappip 发表于 2025-11-14 11:18</a>
+有谁知道国外整机 4060 价格多少？我感觉按那个猜比较准。
+
+—— 来自 vivo V2436A, Android 15, 鹅球 v3.5 ...</blockquote>
+当然是按性价比更低的NUC来看定价，给些参考：
+system76的NUC，599起：https://system76.com/desktops/meerkat/#specs
+国产那堆NUC在北美也不便宜：像是https://www.geekompc.com/
+反正我觉得蒸汽机最多也就是499交个朋友了，399别想。
+

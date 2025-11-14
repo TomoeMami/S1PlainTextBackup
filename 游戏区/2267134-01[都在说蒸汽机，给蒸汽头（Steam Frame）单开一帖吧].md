@@ -515,3 +515,17 @@ Steam Frame这个东西最大作用是解决“为什么要用VR”
 
 玩家习惯改变是个漫长的过程，软件和硬件堆栈会越来越好，但关键技术成熟到便宜可以下放，业内就可以厂商大规模明显变革了。
 
+
+*****
+
+####  勿徊哉  
+##### 47#       发表于 2025-11-14 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721089&amp;ptid=2267134" target="_blank">Fuero 发表于 2025-11-14 09:12</a>
+心理价位是到手8K，超过还是pass等降价了
+
+Q3还是我的主力娱乐机，但多个玩具又有什么坏处呢，玩HiFi的仙人 ...</blockquote>
+没啥问题
+玩hifi的人收藏headset
+玩vr的人也收藏headset
+
