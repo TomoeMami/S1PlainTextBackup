@@ -1034,3 +1034,14 @@ sm就是台式机你拿屏幕说事？能不能 ...</blockquote>
 
 499以内可能会搞个来玩玩，当机顶盒使也不错
 
+
+*****
+
+####  riin2  
+##### 105#       发表于 2025-11-15 05:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716760&amp;ptid=2267096" target="_blank">比乐 发表于 2025-11-13 11:39</a>
+
+游戏库基本全在steam，对我来说还挺有吸引力的，如果399的话考虑放一台在客厅玩 ...</blockquote>
+至少得699
+
