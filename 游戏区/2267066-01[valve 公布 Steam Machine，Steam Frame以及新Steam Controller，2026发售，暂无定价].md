@@ -3382,3 +3382,16 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 
 看X上梗图，8G vRam？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这太少了吧
 
+
+*****
+
+####  NeverCU  
+##### 318#       发表于 2025-11-14 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68720700&amp;ptid=2267066" target="_blank">nozomitech 发表于 2025-11-14 07:13</a>
+
+别的地方我不知道，我这常年就是399欧元，什么打折不打折的，都和你说了ps5数字版首发就是399，现在因为欧 ...</blockquote>
+1.哪说你索狗了，臆想症？
+
+2.399、499都是默认美元怎么欧元冒出来了
+
