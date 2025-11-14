@@ -986,3 +986,13 @@ sm就是台式机你拿屏幕说事？能不能 ...</blockquote>
 
 —— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  和菜头  
+##### 100#       发表于 2025-11-14 23:28
+
+我买了个Mac Mini M4在客厅接电视当游戏机用，现在PS3 PS4 NS模拟器都很完善了，不知道Steam Machine性能如何
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
