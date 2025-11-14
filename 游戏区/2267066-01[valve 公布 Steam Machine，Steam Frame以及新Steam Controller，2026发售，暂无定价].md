@@ -3469,3 +3469,23 @@ q3也能侧载安卓app啊，开个开发者权限就行，而且彩透和侧载
 
 凑合的话，去美服捣点余额<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cauchua3  
+##### 326#       发表于 2025-11-14 11:09
+
+steammachine本质上和V社向各大笔记本厂授权steamos出itx或者笔记本有啥区别
+
+*****
+
+####  unlsycn  
+##### 327#       发表于 2025-11-14 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719176&amp;ptid=2267066" target="_blank">Hyst3r1a 发表于 2025-11-13 19:34</a>
+【【官方双语】 完爆全场 - Steam Frame第一时间上手#linus谈科技-哔哩哔哩】 https://b23.tv/DYoB8M2
+
+这 ...</blockquote>
+FEX都5年了，Box64也4年了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这又不是V社先搞的，现在安卓上的模拟器比如Winlator和盖世游戏已经很成熟了
+不过Valve也的确给FEX贡献不少，光Billy两年就交了400+ commits
+
