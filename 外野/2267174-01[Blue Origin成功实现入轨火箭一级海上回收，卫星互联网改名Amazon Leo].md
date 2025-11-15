@@ -407,3 +407,15 @@ SS/SH一级关机速度差不多才1.3km/s
 
 这个新闻一出 我重仓的火箭实验室 就狂跌， 真是人麻了
 
+
+*****
+
+####  璇瑢子R  
+##### 45#         楼主| 发表于 2025-11-16 03:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68730099&amp;ptid=2267174" target="_blank">宏. 发表于 2025-11-15 22:36</a>
+一级回收的事情，关二级什么事？</blockquote>
+因为二级不回收，所以每次二级成本是实打实的
+
+回收的部分贵一点倒是无所谓
+
