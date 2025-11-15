@@ -5627,3 +5627,16 @@ E7也没少被泥头车，棒子多创几次自己就学乖了
 
 螃蟹最高难度也恶心，少抽一张加塞垃圾，经常啥也做不了，boss伤害还越来越高
 
+
+*****
+
+####  windaria  
+##### 512#       发表于 2025-11-15 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68723957&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-14 17:24</a>
+
+我估计一开始想做，但换牌组他们策划觉得搞不定平衡或者弄得太复杂就先没端上来
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+能有什么不平衡，能有什么复杂的，说不定推倒重来之前就有的设计
+
