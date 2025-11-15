@@ -1106,3 +1106,25 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 3064#       发表于 2025-11-16 04:59
+
+<img src="https://img.stage1st.com/forum/202511/16/045931wa7f5zaac5fnes2g.jpg" referrerpolicy="no-referrer">
+
+<strong>81FFD0721B82A2BD1FF5193501ACDB56.jpg</strong> (62.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 04:59 上传
+
+<img src="https://img.stage1st.com/forum/202511/16/045931v320m5ooikcm4nct.jpg" referrerpolicy="no-referrer">
+
+<strong>24AB99EF91411648992E2BA1340EFAEE.jpg</strong> (59.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 04:59 上传
+
