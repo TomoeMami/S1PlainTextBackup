@@ -28,3 +28,23 @@
 
        [https://x.com/canvas2929/status/1989272461393977590](https://x.com/canvas2929/status/1989272461393977590)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41491#       发表于 2025-11-15 21:59
+
+      
+
+<img src="https://img.stage1st.com/forum/202511/15/215916opwztmtwhj42wk1h.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-15_21-57-40.jpg</strong> (313.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-15 21:59 上传
+
+      [https://x.com/oshitabi_update/status/1989649583962820685](https://x.com/oshitabi_update/status/1989649583962820685)
+
+      [https://t.co/i4D3PrBQhL](https://t.co/i4D3PrBQhL)
+

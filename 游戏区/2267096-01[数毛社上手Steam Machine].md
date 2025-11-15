@@ -1084,3 +1084,16 @@ sm就是台式机你拿屏幕说事？能不能 ...</blockquote>
 
 启动慢把着色器关了
 
+
+*****
+
+####  希德尼娅  
+##### 110#       发表于 2025-11-15 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68716312&amp;ptid=2267096" target="_blank">Xerxes_2 发表于 2025-11-13 10:30</a>
+
+N 卡 Linux 驱动是💩
+
+— from Google Pixel 10 Pro XL, Android 16, S1 Next Goose v3.5.99</blockquote>
+那你valve社这么人才就不能给写一个嘛
+
