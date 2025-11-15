@@ -38,3 +38,27 @@
 
 是不是龙珠和OP两个片场连轴转的缘故……
 
+
+*****
+
+####  咲良うた  
+##### 1377#       发表于 2025-11-15 11:43
+
+第40話　聴いてください！なな色の旋律
+
+脚本：井上亜樹子
+
+演出：ひろしまひでき
+
+絵コンテ：佐々木憲世
+
+美術：徐柱星
+
+作画監督：赤田信人、小澤誠、沼田広
+
+なな（CV.髙橋ミナミ）のもとに、海外でピアニストとして活動する母の睦美から航空券とコンサートのチケットが届いた。父とともにフランスにわたり、コンサートを堪能したななは、久しぶりに家族 3 人いっしょの時間を過ごす。ななは睦美にピアノの演奏を聞いてもらったあと、髪をブラシでとかしてもらいながら、睦美が海外に渡る前のことを話す。すると、睦美はななにあることを提案する。翌日、集まっていたうた（CV.松岡美里）たちのもとにななからの連絡が入り、母親から「このままフランスで暮らさないか」とさそわれ、迷っていることを明かされる。
+<img src="https://files.catbox.moe/te47yf.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ol68dt.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/tcrb8j.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/nnpm0w.jpg" referrerpolicy="no-referrer">
+
