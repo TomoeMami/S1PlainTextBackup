@@ -3885,3 +3885,17 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  慕容断月  
+##### 365#       发表于 2025-11-16 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68730072&amp;ptid=2267066" target="_blank">Lisylfn 发表于 2025-11-15 22:30</a>
+那不就是不够舒服吗？卡网络那可太卡了，这个没事那个有事。
+
+—— 来自 S1Fun ...</blockquote>
+我寻思这玩意能简单解决那不就不算大问题嘛，它能用，启动后黑屏完全没法跑或者启动后立刻崩溃退出这种才是真的大问题，我也不是没遇到过这种不过这也是第三方且是windows下都跑不利索的冷门winxp时代的游戏（当然，这个就没上任何数字销售平台），而steam库里的也确实没碰到过这种<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+所以各人标准不同带来的认知差异就在这吧，不认同很正常
+
