@@ -3873,3 +3873,15 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 看你们吹sm性能不够的样子不知道还以为人均5090了呢</blockquote>
 那平时一个个骂ps5垃圾性能的都去哪了？
 
+
+*****
+
+####  Lisylfn  
+##### 364#       发表于 2025-11-15 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68726309&amp;ptid=2267066" target="_blank">慕容断月 发表于 2025-11-15 02:34</a>
+前两个网络问题。断网可破，第三个我真没遇到过，真没，proton版本导致启动不了的我只遇到过老游戏上，一 ...</blockquote>
+那不就是不够舒服吗？卡网络那可太卡了，这个没事那个有事。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
