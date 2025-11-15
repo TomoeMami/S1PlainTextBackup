@@ -6083,3 +6083,11 @@ view count
 
 BOSS也就罢了，途中小怪也全都是。各种中毒。打个难度6还能翻车。
 
+
+*****
+
+####  叩叩叩  
+##### 535#       发表于 2025-11-16 06:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">终于出鼠兔了，我要无敌啦！干，之前拉了女主已经没资源了
+
