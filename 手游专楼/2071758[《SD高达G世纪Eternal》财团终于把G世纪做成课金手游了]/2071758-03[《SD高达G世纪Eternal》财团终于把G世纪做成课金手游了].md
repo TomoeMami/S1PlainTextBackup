@@ -1092,3 +1092,17 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 闪哈能塞主线关卡确实是没想到的
 
+
+*****
+
+####  一个陆仁贾  
+##### 3063#       发表于 2025-11-15 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68729571&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-15 21:03</a>
+哎什么时候才能实装悔棋，哪怕一步也好
+
+有时候手机玩不小心点错全盘皆输真难受 ...</blockquote>
+官方未来一段时间都不会考虑这个了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
