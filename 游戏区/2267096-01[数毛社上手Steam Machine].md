@@ -1097,3 +1097,14 @@ N 卡 Linux 驱动是💩
 — from Google Pixel 10 Pro XL, Android 16, S1 Next Goose v3.5.99</blockquote>
 那你valve社这么人才就不能给写一个嘛
 
+
+*****
+
+####  病態極端  
+##### 111#       发表于 2025-11-15 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68729873&amp;ptid=2267096" target="_blank">希德尼娅 发表于 2025-11-15 22:03</a>
+
+那你valve社这么人才就不能给写一个嘛</blockquote>
+逆向工程N卡不違法嗎
+
