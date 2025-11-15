@@ -49,3 +49,26 @@
 
 都diy hitbox了，咋不找外设厂家做下联动
 
+
+*****
+
+####  madcow  
+##### 1738#       发表于 2025-11-15 16:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">话说现在调查挖红点的话是2.0还是原来的好，怎么记得以前旧版整张图打完也会给点，现在好像都没了
+
+
+*****
+
+####  江戸前ルナ  
+##### 1739#         楼主| 发表于 2025-11-15 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68728446&amp;ptid=2104259" target="_blank">madcow 发表于 2025-11-15 16:37</a>
+
+话说现在调查挖红点的话是2.0还是原来的好，怎么记得以前旧版整张图打完也会给点，现在好像都没了 ...</blockquote>
+看你技术水平（
+
+2.0的大BOSS点固定2点，进了资源图则是10点或30点，你越不需要削等级效率就越高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然还有个问题需要考虑就是爆仓问题，不买月卡干3个大BOSS点就快要爆仓了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
