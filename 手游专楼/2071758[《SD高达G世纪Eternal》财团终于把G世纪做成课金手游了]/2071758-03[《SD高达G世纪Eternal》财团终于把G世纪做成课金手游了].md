@@ -1084,3 +1084,11 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 有时候手机玩不小心点错全盘皆输真难受<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3062#       发表于 2025-11-15 21:27
+
+闪哈能塞主线关卡确实是没想到的
+
