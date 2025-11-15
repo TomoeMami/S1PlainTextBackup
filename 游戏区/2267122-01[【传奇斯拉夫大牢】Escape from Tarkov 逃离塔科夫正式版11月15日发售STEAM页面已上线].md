@@ -534,3 +534,13 @@ Qol 与 UI 优化
 
 pvp的话感觉很难不吃到外挂的大份，感觉体验最好的可能是和朋友一起用离线版+fika联机（然后有另一台电脑来开headless运算ai），虽然过程会有点折腾
 
+
+*****
+
+####  银月术士329  
+##### 47#         楼主| 发表于 2025-11-15 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68726889&amp;ptid=2267122" target="_blank">我是快乐小马甲 发表于 2025-11-15 10:00</a>
+还剩不到12小时开服，那么黑边有没有必要升蓝边呢。感觉黑边的金色名字还挺好看，升蓝边还要45欧 ...</blockquote>
+想升就升<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
