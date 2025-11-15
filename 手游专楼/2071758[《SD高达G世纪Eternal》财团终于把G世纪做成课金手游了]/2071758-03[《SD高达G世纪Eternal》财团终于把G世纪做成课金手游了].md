@@ -1074,3 +1074,13 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 各位钻够么，闪哈要来了
 
+
+*****
+
+####  blue321  
+##### 3061#       发表于 2025-11-15 21:03
+
+哎什么时候才能实装悔棋，哪怕一步也好
+
+有时候手机玩不小心点错全盘皆输真难受<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
