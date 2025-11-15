@@ -414,3 +414,52 @@ qp又要爆仓了<img src="https://static.stage1st.com/image/smiley/face2017/261
 职业树那边红星星和绿星星都是十几个的状态，唯独蓝星星永远是0</blockquote>
 没问题 红黄星星之前邮件发了一堆 就蓝的没给
 
+
+*****
+
+####  大十字紅朔  
+##### 18648#       发表于 2025-11-15 11:29
+
+ 本帖最后由 大十字紅朔 于 2025-11-15 11:35 编辑 
+
+一枪260万。
+
+NOBUNAGA~~~~~<img src="https://static.stage1st.com/image/smiley/carton2017/083.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202511/15/113450st3ty2m4pfpmuueu.png" referrerpolicy="no-referrer">
+
+<strong>AUO2.png</strong> (3.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-11-15 11:34 上传
+
+*****
+
+####  DARKGRAY  
+##### 18649#       发表于 2025-11-15 11:30
+
+蓝星卡着总量呢，目前还需要再额外送一个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高木なつめ  
+##### 18650#       发表于 2025-11-15 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68724872&amp;ptid=2084912" target="_blank">Kirihara 发表于 2025-11-14 20:17</a>
+
+我提妈点了np被动，有dalao愿意加么，784009916。</blockquote>
+申请+follow了
+
+*****
+
+####  大十字紅朔  
+##### 18651#       发表于 2025-11-15 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68723901&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-11-14 17:16</a>
+
+男性+神性+天+王，弓阶特攻神性的是信长和拿皇，特攻男性的是月神和二姐，特攻天的是杜尔迦和特斯拉，特攻 ...</blockquote>
+
+性转人还多一个对弓的被动
+[https://www.bilibili.com/video/BV1H5C5BHEoR/](https://www.bilibili.com/video/BV1H5C5BHEoR/)
+
