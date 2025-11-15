@@ -6038,3 +6038,14 @@ view count
 
 虽然策划把9级难度以后弄炸了但好像nga又开发出来了新玩法： 搜这个 我们先进的第0研究所已经全面超越了老式的N2蓝壶
 
+
+*****
+
+####  三谷歩夢  
+##### 531#       发表于 2025-11-15 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68729562&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-15 21:01</a>
+
+虽然策划把9级难度以后弄炸了但好像nga又开发出来了新玩法： 搜这个 我们先进的第0研究所已经全面超越了老 ...</blockquote>
+比蓝壶差太多了，我蓝壶几乎每次都稳定转换移除3张卡，这逼赛季肉鸽打5把都遇不到一次<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只能靠roll传令兵和命运转换卡
+
