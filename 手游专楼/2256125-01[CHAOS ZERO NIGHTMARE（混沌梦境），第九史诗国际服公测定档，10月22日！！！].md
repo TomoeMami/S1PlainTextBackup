@@ -5964,3 +5964,11 @@ view count
 
 能选择也就算了....随机这不是史诗级削弱么......<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吃货红毛  
+##### 522#       发表于 2025-11-15 13:42
+
+居然延迟了一小时 已经等不及要进入卡厄斯战斗到不知天地为何物了
+

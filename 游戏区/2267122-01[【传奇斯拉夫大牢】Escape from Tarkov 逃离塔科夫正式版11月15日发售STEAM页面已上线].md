@@ -521,3 +521,16 @@ Qol 与 UI 优化
 
 每个档卡我最久的前期任务都是吗啡
 
+
+*****
+
+####  BRS5672023  
+##### 46#       发表于 2025-11-15 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68725192&amp;ptid=2267122" target="_blank">妹控使徒 发表于 2025-11-14 21:21</a>
+
+虽然最佳体验大概率是离线端  但还是希望有机会和时间的还是玩一阵子PVP,    玩家的行动逻辑和互动不是目前 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">离线版加sain ai的体验只能说是没在其他游戏里见过的级别了，而且还见过oddba里炼丹提升ai的贴子（虽然炼出来的结果使ai倾向于暴力拉参数了。。）
+
+pvp的话感觉很难不吃到外挂的大份，感觉体验最好的可能是和朋友一起用离线版+fika联机（然后有另一台电脑来开headless运算ai），虽然过程会有点折腾
+
