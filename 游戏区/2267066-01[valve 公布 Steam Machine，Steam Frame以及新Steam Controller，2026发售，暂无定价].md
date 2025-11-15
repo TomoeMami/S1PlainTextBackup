@@ -3899,3 +3899,14 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 
 所以各人标准不同带来的认知差异就在这吧，不认同很正常
 
+
+*****
+
+####  riin2  
+##### 366#       发表于 2025-11-16 03:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68729601&amp;ptid=2267066" target="_blank">薪火带新茶 发表于 2025-11-15 21:13</a>
+
+内存和硬盘都是可以换的，奈何8g显存是有点难崩，不过看llt的视频感觉手柄很牛逼啊，其次头戴vr本身也是个 ...</blockquote>
+本来就是60系显卡的水平，给8g很正常
+
