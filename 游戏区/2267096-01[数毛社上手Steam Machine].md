@@ -1108,3 +1108,13 @@ N 卡 Linux 驱动是💩
 那你valve社这么人才就不能给写一个嘛</blockquote>
 逆向工程N卡不違法嗎
 
+
+*****
+
+####  indtability  
+##### 112#       发表于 2025-11-15 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68729873&amp;ptid=2267096" target="_blank">希德尼娅 发表于 2025-11-15 22:03</a>
+那你valve社这么人才就不能给写一个嘛</blockquote>
+因为 valve 已经深度参与 amd 的开源驱动开发了，valve 甚至在最近几年是给 mesa 驱动提交 commit 最多的公司，还不算排第二的 collabora 也被 valve 赞助，本来就有社区基础，而且 amd 也愿意配合，何必去贴 nvidia 的冷屁股。
+
