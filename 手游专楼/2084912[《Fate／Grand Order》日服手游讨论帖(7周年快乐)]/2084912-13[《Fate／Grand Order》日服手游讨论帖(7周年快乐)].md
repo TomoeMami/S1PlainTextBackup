@@ -463,3 +463,43 @@ NOBUNAGA~~~~~<img src="https://static.stage1st.com/image/smiley/carton2017/083.p
 性转人还多一个对弓的被动
 [https://www.bilibili.com/video/BV1H5C5BHEoR/](https://www.bilibili.com/video/BV1H5C5BHEoR/)
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18652#       发表于 2025-11-15 12:25
+
+413,250,121
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">活人秩序女被动2提妈，但是羁绊礼装还没到帐，有兴趣的朋友请
+
+*****
+
+####  poor  
+##### 18653#       发表于 2025-11-15 16:03
+
+好友只有高配绿茶，有什么办法稳定给闸总王下毒？
+
+*****
+
+####  岸浪白野  
+##### 18654#       发表于 2025-11-15 16:55
+
+稳定方法只有再指令卡纹章下毒，本来对面对魔力就已经提高到对魔力B了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真的冠位提妈就行了，试了弓凛不冠位都够用的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18655#       发表于 2025-11-16 03:08
+
+还可以吧，起码是个5星<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+MuMu-20251116-030705-365.jpg
+(422.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 03:08 上传
+
+<img src="https://img.stage1st.com/forum/202511/16/030840obv6bety22bm12ej.jpg" referrerpolicy="no-referrer">
+
