@@ -6049,3 +6049,11 @@ view count
 虽然策划把9级难度以后弄炸了但好像nga又开发出来了新玩法： 搜这个 我们先进的第0研究所已经全面超越了老 ...</blockquote>
 比蓝壶差太多了，我蓝壶几乎每次都稳定转换移除3张卡，这逼赛季肉鸽打5把都遇不到一次<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只能靠roll传令兵和命运转换卡
 
+
+*****
+
+####  吃货红毛  
+##### 532#       发表于 2025-11-15 21:48
+
+刷了个好猛的有寄 无限拔刀好爽
+
