@@ -76,3 +76,20 @@ molodoy再杀4个人人头都是他的3倍了</blockquote>
 看molodoy看得流口水，丹麦什么时候出个小将带我老汤再拿两个冠军啊，老汤最后能打的两年全浪费了 ...</blockquote>
 纯血母语队太难了
 
+
+*****
+
+####  doublehit  
+##### 4817#       发表于 2025-11-16 21:44
+
+海参今年是不是第五亚<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这方面有没有记录啥的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  阿卵真是牛逼  
+##### 4818#       发表于 2025-11-16 21:45
+
+碗橱最后还是没憋住<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
