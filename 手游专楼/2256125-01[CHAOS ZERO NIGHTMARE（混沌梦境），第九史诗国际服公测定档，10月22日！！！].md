@@ -6091,3 +6091,16 @@ BOSS也就罢了，途中小怪也全都是。各种中毒。打个难度6还能
 
 <img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">终于出鼠兔了，我要无敌啦！干，之前拉了女主已经没资源了
 
+
+*****
+
+####  三谷歩夢  
+##### 536#       发表于 2025-11-16 09:29
+
+ 本帖最后由 三谷歩夢 于 2025-11-16 09:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731030&amp;ptid=2256125" target="_blank">nyaneko 发表于 2025-11-16 04:57</a>
+不是，这赛季本怎么回事，难度6怎么还各种感染的怪。总不能拿了禁忌卡后，怪全感染了吧。
+
+BOSS也就罢了，途 ...</blockquote>
+你吞噬记忆拿多了，堆到4层还是5层后面个个怪都是超人
+
