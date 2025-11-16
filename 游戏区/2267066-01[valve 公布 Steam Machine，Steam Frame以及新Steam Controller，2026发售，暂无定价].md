@@ -3910,3 +3910,13 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 内存和硬盘都是可以换的，奈何8g显存是有点难崩，不过看llt的视频感觉手柄很牛逼啊，其次头戴vr本身也是个 ...</blockquote>
 本来就是60系显卡的水平，给8g很正常
 
+
+*****
+
+####  heseran  
+##### 367#       发表于 2025-11-16 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68730925&amp;ptid=2267066" target="_blank">慕容断月 发表于 2025-11-16 02:19</a>
+我寻思这玩意能简单解决那不就不算大问题嘛，它能用，启动后黑屏完全没法跑或者启动后立刻崩溃退出这种才 ...</blockquote>
+这种说法跟手机那边“广告可以关所以算没广告”有什么区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
