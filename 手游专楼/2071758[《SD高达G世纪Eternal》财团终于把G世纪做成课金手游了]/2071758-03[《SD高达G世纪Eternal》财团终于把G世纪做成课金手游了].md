@@ -1136,3 +1136,13 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 这个塔15层逃课要一个能三动加移动的刹那，没有的话怎么打<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3066#       发表于 2025-11-16 08:29
+
+这14和15层，看隔壁帖子带一个恶魔高达最终型真的好爽，一个AOE爽炸<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不知道后面难度怎么样，这塔连续爬起来真难受，平时又没法抽太多时间出来<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
