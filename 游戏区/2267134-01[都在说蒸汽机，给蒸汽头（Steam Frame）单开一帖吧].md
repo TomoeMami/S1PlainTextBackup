@@ -614,3 +614,16 @@ Steam Frame这个东西最大作用是解决“为什么要用VR”
 现在的整个MR生态里，VR已经是堆栈规模最大的了，AR就 ...</blockquote>
 想多了吧，到现在还没有什么FEX执行效率的实测，8gen3的性能也就那样，本地执行x86大型游戏就别想了，也就玩一些小游戏而已。FRAME主要还是用来串流PC的。
 
+
+*****
+
+####  Steel.Haze  
+##### 56#       发表于 2025-11-16 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721089&amp;ptid=2267134" target="_blank">Fuero 发表于 2025-11-14 09:12</a>
+
+心理价位是到手8K，超过还是pass等降价了
+
+Q3还是我的主力娱乐机，但多个玩具又有什么坏处呢，玩HiFi的仙人 ...</blockquote>
+我倒是看好的，如果18日官宣HL3（支持VR）或A2，那么就是要爆款了。不过反正爆不爆早期都一股子买不到的样子。
+
