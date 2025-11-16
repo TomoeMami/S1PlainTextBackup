@@ -503,3 +503,40 @@ MuMu-20251116-030705-365.jpg
 
 <img src="https://img.stage1st.com/forum/202511/16/030840obv6bety22bm12ej.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 18656#       发表于 2025-11-16 03:35
+
+教授没法凑齐三红，三蓝红宝具是什么崽种设计<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 18657#       发表于 2025-11-16 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68730986&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-11-16 03:08</a>
+
+还可以吧，起码是个5星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">楼友还在欧 楼友又在欧 怎么楼友总在欧 
+
+*****
+
+####  khxooo  
+##### 18658#       发表于 2025-11-16 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731123&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-11-16 07:43</a>
+楼友还在欧 楼友又在欧 怎么楼友总在欧</blockquote>
+刑部姬不至于<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18659#       发表于 2025-11-16 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68730986&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-11-16 03:08</a>
+
+还可以吧，起码是个5星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">漏油还在欧 为什么萌新就不欧
+

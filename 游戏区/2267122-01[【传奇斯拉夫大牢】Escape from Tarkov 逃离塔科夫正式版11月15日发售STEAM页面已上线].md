@@ -711,3 +711,18 @@ tb花五毛弄的
 
 从steam买一个能玩我官网的蓝边号吗
 
+
+*****
+
+####  妹控使徒  
+##### 66#       发表于 2025-11-16 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68726435&amp;ptid=2267122" target="_blank">laputah 发表于 2025-11-15 07:06</a>
+
+鸟狙加跳蚤再买个2倍镜进入工厂 枪法不是太歪两把以内肯定能打完 很多人莫辛鸡苗搁那硬打 肯定坐牢 2倍镜 ...</blockquote>
+不是鸟狙+366AP吗
+
+近距离击杀PMC也不需要2倍镜吧?
+
+主要难度是下工厂的很多都是起了战斗装备吧 不说高防甲至少有全自动武器  一枪没击杀基本就难了
+
