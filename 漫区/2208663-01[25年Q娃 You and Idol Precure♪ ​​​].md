@@ -62,3 +62,13 @@
 <img src="https://files.catbox.moe/tcrb8j.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/nnpm0w.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1378#       发表于 2025-11-16 08:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">倒不是说井上这集写得不好，而是这集看起来像是突然冒出来的，唉一整年都是这种观感……
+
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">梅啊，咱别跟傻子老姐玩，和新女友私奔吧
+
