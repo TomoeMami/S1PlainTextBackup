@@ -6112,3 +6112,14 @@ BOSS也就罢了，途 ...</blockquote>
 
 看了下nga，这游戏太神奇了，昨天还在骂，今天好多人都通了高难度刷了好存档，美滋滋在晒
 
+
+*****
+
+####  orangee  
+##### 538#       发表于 2025-11-16 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731946&amp;ptid=2256125" target="_blank">远野乙姬 发表于 2025-11-16 11:57</a>
+
+看了下nga，这游戏太神奇了，昨天还在骂，今天好多人都通了高难度刷了好存档，美滋滋在晒 ...</blockquote>
+牌佬是这样的 策划不当人也就是当加难度了，估计不少都是尖塔20难度起步的大佬……
+
