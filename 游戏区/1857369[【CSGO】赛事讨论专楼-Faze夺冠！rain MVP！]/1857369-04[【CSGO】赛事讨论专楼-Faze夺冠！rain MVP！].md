@@ -46,3 +46,33 @@ niko真菜啊，退役吧<img src="https://static.stage1st.com/image/smiley/face
 niko真菜啊，退役吧</blockquote>
 真不配拿冠军吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4814#       发表于 2025-11-16 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733857&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-11-16 21:24</a>
+真不配拿冠军吧</blockquote>
+molodoy再杀4个人人头都是他的3倍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 4815#         楼主| 发表于 2025-11-16 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733874&amp;ptid=1857369" target="_blank">heseran 发表于 2025-11-16 21:26</a>
+
+molodoy再杀4个人人头都是他的3倍了</blockquote>
+看molodoy看得流口水，丹麦什么时候出个小将带我老汤再拿两个冠军啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，老汤最后能打的两年全浪费了
+
+
+*****
+
+####  heseran  
+##### 4816#       发表于 2025-11-16 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733880&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-11-16 21:28</a>
+看molodoy看得流口水，丹麦什么时候出个小将带我老汤再拿两个冠军啊，老汤最后能打的两年全浪费了 ...</blockquote>
+纯血母语队太难了
+
