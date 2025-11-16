@@ -22,3 +22,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么快揭开二骑的身份么，我还以为会再藏一下
 
+
+*****
+
+####  milky658  
+##### 416#       发表于 2025-11-16 16:36
+
+学鲁邦P4先虚晃一枪引出设定，后面再展开大事件吗？高桥写不下去的话干脆洗稿意大利之梦吧，爱看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
