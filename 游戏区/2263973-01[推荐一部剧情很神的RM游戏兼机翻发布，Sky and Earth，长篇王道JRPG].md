@@ -1256,3 +1256,23 @@ RM游戏的技能你就别想着多酷炫了<img src="https://static.stage1st.co
 主要是对999个地 ...</blockquote>
 白天我会在主贴更新ruina大佬的汉化补丁，虽说跟我这个一样是用gemini2.5pro翻译的，但他有增加翻译提示词，文本颜色出错的问题应该没有了，大佬如果要润色，就在他的补丁基础上润色吧，需要他的术语表和T++的trans文件吗？很期待你的润色，这游戏我也想再玩一遍
 
+
+*****
+
+####  永远的访客  
+##### 106#       发表于 2025-11-16 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731026&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-11-16 04:52</a>
+
+白天我会在主贴更新ruina大佬的汉化补丁，虽说跟我这个一样是用gemini2.5pro翻译的，但他有增加翻译提示 ...</blockquote>
+可以可以，资源共享一下吧。昨天我做了大概几十条，有留了简单的对照记录，估计还能翻工，干脆做成文本全摘录再重写完事，本来只想改单句的BUG，现在发现还是干脆连上下文一起读会比较靠谱<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+QQ20251116-094331.png
+(322.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 09:46 上传
+
+<img src="https://img.stage1st.com/forum/202511/16/094616xizkckqsfajzccft.png" referrerpolicy="no-referrer">
+
