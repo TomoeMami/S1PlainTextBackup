@@ -90,3 +90,14 @@
 
 个人回连个换色强化形态都不够，有够敷衍
 
+
+*****
+
+####  Blackson  
+##### 1381#       发表于 2025-11-16 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733051&amp;ptid=2208663" target="_blank">starring 发表于 2025-11-16 17:33</a>
+ 个人回连个换色强化形态都不够，有够敷衍</blockquote>
+今年如果不是上面有人不想(红色形态)被毙，很可能今年是既天空之后第二组TV里无二段强化形态的Q娃。
+Idol那个换色形态也是大招发射器，净化歌也是Remix。
+
