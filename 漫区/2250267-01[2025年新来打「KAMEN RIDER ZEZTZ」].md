@@ -63,3 +63,13 @@
 
 诺克斯小爆了一下，他不会是上代ZZZ吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 420#       发表于 2025-11-17 00:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想的是既然主角是7号，那应该会有1~6号的吧？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+

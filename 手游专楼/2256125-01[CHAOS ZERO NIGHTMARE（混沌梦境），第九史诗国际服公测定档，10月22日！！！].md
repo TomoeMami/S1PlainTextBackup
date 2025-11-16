@@ -6182,3 +6182,11 @@ BOSS也就罢了，途 ...</blockquote>
 
 养成问题是最大的，现在还有卢克和1命凯隆，看攻略说也不算差，但是不敢丢资源去养，根本养不起，还是养梅林的队友吧
 
+
+*****
+
+####  涟漪魔法师  
+##### 543#       发表于 2025-11-17 00:19
+
+看消息不是在准备开卡车了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
