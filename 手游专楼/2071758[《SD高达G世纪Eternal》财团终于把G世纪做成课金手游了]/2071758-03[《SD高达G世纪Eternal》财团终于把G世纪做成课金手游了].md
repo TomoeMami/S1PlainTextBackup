@@ -1154,3 +1154,16 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 最难还是15吧，16-19和14差不多，弱点的关甚至只有13的强度，20强度稍微正常点大约也就14的强度。
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3068#       发表于 2025-11-16 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731095&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-11-16 07:22</a>
+
+这个塔15层逃课要一个能三动加移动的刹那，没有的话怎么打</blockquote>
+[https://www.bilibili.com/video/B ... ff9c6b83359b299283b](https://www.bilibili.com/video/BV1Q1tgzzEdt?spm_id_from=333.788.videopod.sections&amp;vd_source=64e0114332634ff9c6b83359b299283b)
+
+有个移动+1就行了，不需要三动
+
