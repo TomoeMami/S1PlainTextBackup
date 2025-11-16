@@ -601,3 +601,16 @@ Vr很多都能自己网上配镜片装上去，也不贵，再怎么改善戴眼
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  希德尼娅  
+##### 55#       发表于 2025-11-16 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68721216&amp;ptid=2267134" target="_blank">Fricassee 发表于 2025-11-14 09:31</a>
+
+Steam Frame这个东西最大作用是解决“为什么要用VR”
+
+现在的整个MR生态里，VR已经是堆栈规模最大的了，AR就 ...</blockquote>
+想多了吧，到现在还没有什么FEX执行效率的实测，8gen3的性能也就那样，本地执行x86大型游戏就别想了，也就玩一些小游戏而已。FRAME主要还是用来串流PC的。
+
