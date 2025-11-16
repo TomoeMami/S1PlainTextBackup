@@ -629,3 +629,16 @@ ns港区没有啊，a爹你在干什么
 磕磕绊绊打完了（这重制版居然有new不显示的BUG）。后日谈看完好迷，这一部世界线到底是什么样子的，正片我 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我个人记忆里的话我记得fha的世界除了四天循环外，其他部分是凛乱玩宝石剑导致世界线融合后的究极if线
 
+
+*****
+
+####  Mr1z  
+##### 70#       发表于 2025-11-16 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733655&amp;ptid=2252174" target="_blank">噗呸破屁诚 发表于 2025-11-16 20:29</a>
+我个人记忆里的话我记得fha的世界除了四天循环外，其他部分是凛乱玩宝石剑导致世界线融合后的究极if线 ...</blockquote>
+个人感觉那个应该是为了防止剧透的障眼法设定。fha的故事本质上应该是圣杯通过情报制造出的情报世界
+永不终结的圣杯战争是巴姐的梦想，虚假的四日循环则是小安的梦想
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
