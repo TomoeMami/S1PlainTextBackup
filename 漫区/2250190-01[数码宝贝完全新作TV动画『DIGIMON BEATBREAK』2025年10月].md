@@ -37,3 +37,29 @@
 
 主角团不帮京分担一下他能活到大结局吗，感觉又要没大哥了。
 
+
+*****
+
+####  TOYSTORY  
+##### 276#       发表于 2025-11-16 20:58
+
+<img src="https://img.stage1st.com/forum/202511/16/205918adpsq75qoxv7xvo0.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (89.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 20:59 上传
+
+OP里的五人组总算在剧里提到了，怎么感觉像宝可梦那边四天王的设定（
+
+路人女同学下一话还有戏份，不说混进主角团，大概能混个时不时客串的定位？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alingkz  
+##### 277#       发表于 2025-11-16 21:04
+
+我看瞳姐也挺可爱的，要不给人家发一个数码兽加队里吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
