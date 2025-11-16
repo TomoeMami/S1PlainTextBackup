@@ -107,3 +107,11 @@ molodoy再杀4个人人头都是他的3倍了</blockquote>
 —— 来自 Xiaomi 23113RKC6C, Android 15, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">液体，18年一年7亚，19年一年8亚
 
+
+*****
+
+####  heseran  
+##### 4820#       发表于 2025-11-16 22:07
+
+碗橱这个回马喷太搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真情流露了
+

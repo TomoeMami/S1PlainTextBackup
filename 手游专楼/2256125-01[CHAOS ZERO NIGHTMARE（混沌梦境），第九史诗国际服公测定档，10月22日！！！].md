@@ -6166,3 +6166,11 @@ BOSS也就罢了，途 ...</blockquote>
 
 无语了每个档都有点小问题<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">砍得很爽就是了
 
+
+*****
+
+####  碧空之歌P  
+##### 541#       发表于 2025-11-16 22:05
+
+除了限制养成材料外我觉得问题都不大，不能把人物都拉起来限制配阵容的乐趣
+
