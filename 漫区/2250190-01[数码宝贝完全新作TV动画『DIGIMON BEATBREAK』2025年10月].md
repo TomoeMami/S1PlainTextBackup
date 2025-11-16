@@ -63,3 +63,11 @@ OP里的五人组总算在剧里提到了，怎么感觉像宝可梦那边四天
 
 我看瞳姐也挺可爱的，要不给人家发一个数码兽加队里吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恋叶梦境  
+##### 278#       发表于 2025-11-16 21:18
+
+官网里hitomi和哥哥在一个地方，不知道到底算什么位
+

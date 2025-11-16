@@ -27,3 +27,22 @@
 没看 练出来了还是小蜜蜂犯病了</blockquote>
 都有吧，猎鹰肯定是有进步，进攻连续追分加apex幽默防守指令，关键局车主打侧身打不死小孩，让小孩5杀了一把然后追进加时被踢死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4812#       发表于 2025-11-16 21:17
+
+niko真菜啊，退役吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4813#         楼主| 发表于 2025-11-16 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68733816&amp;ptid=1857369" target="_blank">heseran 发表于 2025-11-16 21:17</a>
+
+niko真菜啊，退役吧</blockquote>
+真不配拿冠军吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

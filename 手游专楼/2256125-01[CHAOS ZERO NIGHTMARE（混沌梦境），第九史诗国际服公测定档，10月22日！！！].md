@@ -6134,3 +6134,35 @@ BOSS也就罢了，途 ...</blockquote>
 看了下nga，这游戏太神奇了，昨天还在骂，今天好多人都通了高难度刷了好存档，美滋滋在晒 ...</blockquote>
 主要骂的很多都有点没事找事的倾向了，骂养成骂命座骂肉鸽词条都还合理，不给凹暴击和UI复用也要骂，这种大部分人不管他也就没什么水花
 
+
+*****
+
+####  三谷歩夢  
+##### 540#       发表于 2025-11-16 21:23
+
+<img src="https://img.stage1st.com/forum/202511/16/212130j8vf4hshzgh80il1.jpg" referrerpolicy="no-referrer">
+
+<strong>1111.jpg</strong> (186.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 21:21 上传
+
+<img src="https://img.stage1st.com/forum/202511/16/212130hpv6mpg5732vug5p.jpg" referrerpolicy="no-referrer">
+
+<strong>2222.jpg</strong> (183.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 21:21 上传
+
+<img src="https://img.stage1st.com/forum/202511/16/212130jyzmqma81111wele.jpg" referrerpolicy="no-referrer">
+
+<strong>3333.jpg</strong> (185.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-16 21:21 上传
+
+无语了每个档都有点小问题<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">砍得很爽就是了
+
