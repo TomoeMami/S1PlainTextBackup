@@ -845,3 +845,13 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  C.W.Nimitz  
+##### 76#       发表于 2025-11-17 19:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">的确成传奇大牢了
+
+只不过是游戏把玩家锁在现实的大牢里了，买了游戏不让进
+
