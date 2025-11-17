@@ -113,3 +113,16 @@
 
 估计阿夏的火箭炮也快了
 
+
+*****
+
+####  lydia5989  
+##### 220#       发表于 2025-11-17 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68737317&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2025-11-17 15:23</a>
+
+白女王不是说一直看着的嘛，和我们一样，没事儿看朝日档的管弦（×）
+
+估计阿夏的火箭炮也快了 ...</blockquote>
+再有一个月就是预备役新歌，看看这四集能整啥活
+
