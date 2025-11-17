@@ -583,3 +583,49 @@ MuMu-20251116-030705-365.jpg
 活人秩序女被动2提妈，但是羁绊礼装还没到帐，有兴趣的朋友请</blockquote>
 申请了，虽然已经快刷完了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18664#       发表于 2025-11-17 01:48
+
+实践证明弓阶确实太拉
+
+这提妈收割友情点的力度比RBA猛多了
+
+1天收个4w+根本不是问题
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202511/17/014814jaeaa2kyy8wfv3op.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-17 01:48 上传
+
+*****
+
+####  岸浪白野  
+##### 18665#       发表于 2025-11-17 17:19
+
+12月1号开终章序篇，12月3号开C阶冠位战<img src="https://p.sda1.dev/28/72c2197f9b6a2d81385a5d17332684b3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18666#       发表于 2025-11-17 19:13
+
+冠位战也就持续一周时间，终章序的后半估计是12.10周三开。
+
+但终章正式开幕在12.20，也许12.12—12.19还有个小活动？
+
+...希望螺旋社别搞什么全冠位本限免罐子顺带全五星up来拖时间...
+
+*****
+
+####  DARKGRAY  
+##### 18667#       发表于 2025-11-17 19:58
+
+按理说序会用来解决冬木的事情吧，前半只给2天就开打，剧情的大头应该会放在后半，时间开到临近20日，然后15号ROAD TO 终章的奏4部分结束之后会补一个终章倒计时预热<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
