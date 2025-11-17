@@ -154,3 +154,11 @@ nana：我全都要
 
 为啥nana的个人回都这么别扭<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  経緯  
+##### 1388#       发表于 2025-11-17 11:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">下集还要套公式，然而你Q今年的staff连公式都套不明白，已经可以预想到废部危机会多么闹麻了
+
