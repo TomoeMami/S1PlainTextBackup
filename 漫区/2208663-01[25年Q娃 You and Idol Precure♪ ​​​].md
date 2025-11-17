@@ -162,3 +162,11 @@ nana：我全都要
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">下集还要套公式，然而你Q今年的staff连公式都套不明白，已经可以预想到废部危机会多么闹麻了
 
+
+*****
+
+####  lydia5989  
+##### 1389#       发表于 2025-11-17 11:44
+
+感觉看看直播看看画就够了<img src="https://static.stage1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">，过于套路没有新玩意，甚至连新歌都没，你把角色歌后半段塞进来也算你努力了，隔壁三天两头出个新歌，战斗乐子也多，这部大结局都想不出来能有啥新乐子或者燃点，那个偶像研究社都没啥新的小短片
+
