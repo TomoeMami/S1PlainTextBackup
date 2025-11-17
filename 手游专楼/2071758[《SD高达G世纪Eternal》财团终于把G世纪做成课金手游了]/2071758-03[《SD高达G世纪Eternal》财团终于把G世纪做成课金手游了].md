@@ -1167,3 +1167,25 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 有个移动+1就行了，不需要三动
 
+
+*****
+
+####  电脑死机  
+##### 3069#       发表于 2025-11-17 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731095&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-11-16 07:22</a>
+
+这个塔15层逃课要一个能三动加移动的刹那，没有的话怎么打</blockquote>
+有ssr开发机师匠和凤凰够了，我第一次拿ur攻击型巴上帝过的，刚需只有移动力+1，不是必须三动
+
+
+*****
+
+####  电脑死机  
+##### 3069#       发表于 2025-11-17 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68731095&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-11-16 07:22</a>
+
+这个塔15层逃课要一个能三动加移动的刹那，没有的话怎么打</blockquote>
+有ssr开发机师匠和凤凰够了，我第一次拿ur攻击型巴上帝过的，刚需只有移动力+1，不是必须三动
+
