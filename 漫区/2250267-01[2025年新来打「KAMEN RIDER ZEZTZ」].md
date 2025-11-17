@@ -94,3 +94,16 @@
 
 暗黑周杰伦的线一方面是莫和宁梦的交点，另一方面也是两个警察的交点，世界观设定也是现实和梦境交集，这种多线合一的结构有那么一点老平成感觉。
 
+
+*****
+
+####  windaria  
+##### 422#       发表于 2025-11-17 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68734444&amp;ptid=2250267" target="_blank">黑上シグマ 发表于 2025-11-17 00:25</a>
+
+我想的是既然主角是7号，那应该会有1~6号的吧？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+007电影里面，00系特工就只有7出场过
+
