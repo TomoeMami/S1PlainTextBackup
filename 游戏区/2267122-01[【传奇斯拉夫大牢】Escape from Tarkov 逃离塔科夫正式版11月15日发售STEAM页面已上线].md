@@ -830,3 +830,18 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 —— 来自 HONOR PTP-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  MkChang  
+##### 75#       发表于 2025-11-17 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68738465&amp;ptid=2267122" target="_blank">catcoffee 发表于 2025-11-17 18:53</a>
+行我试试。因为我跟着主线走的，我还以为立交桥海关就是新手图呢
+
+—— 来自 HONOR PTP-AN00, Android 15 ...</blockquote>
+中心区地下摸物资箱，然后尽头可以上楼摸机箱白柜子啥的。
+撤离就地下通道中部出来，走mira大道打信号弹，这条路上ai比较少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
