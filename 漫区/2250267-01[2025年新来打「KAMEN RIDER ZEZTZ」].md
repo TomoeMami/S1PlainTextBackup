@@ -115,3 +115,15 @@
 
 奥特曼也是只有七和零
 
+
+*****
+
+####  斯城恶魔  
+##### 424#       发表于 2025-11-17 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68735893&amp;ptid=2250267" target="_blank">himfsz 发表于 2025-11-17 11:03</a>
+奥特曼也是只有七和零</blockquote>
+爱迪奥特曼：<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
