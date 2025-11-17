@@ -866,3 +866,19 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  哈曼的YY  
+##### 78#       发表于 2025-11-17 20:16
+
+这对话有几种 我看到了笑话书和内衣手办
+
+<img src="https://img.stage1st.com/forum/202511/17/201620qrirrflxnrap0xgn.png" referrerpolicy="no-referrer">
+
+<strong>E0Y(WI~IWH)5FBR`1293E`2.png</strong> (56.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-17 20:16 上传
+

@@ -107,3 +107,24 @@
 我是直接2.0，一面进去打每日五次，两面就金币开图压级到150-170比较轻松挂机就可以了，除非剩下那个boss是 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我电池3万9，是该烧点掉了
 
+
+*****
+
+####  不灭的旋律  
+##### 1743#       发表于 2025-11-17 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68719517&amp;ptid=2104259" target="_blank">madcow 发表于 2025-11-13 20:55</a>
+
+这个长摇杆的砂锅（？是什么鬼……</blockquote>
+
+全解说来了
+[https://gameboku.com/archives/25112394.html](https://gameboku.com/archives/25112394.html)
+
+<img src="https://img.stage1st.com/forum/202511/17/202313eubiie7u3fncghbb.jpg" referrerpolicy="no-referrer">
+
+<strong>kfs55010.jpg</strong> (57.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-17 20:23 上传
+
