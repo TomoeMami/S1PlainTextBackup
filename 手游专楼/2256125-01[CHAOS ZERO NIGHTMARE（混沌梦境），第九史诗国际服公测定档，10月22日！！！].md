@@ -6208,3 +6208,13 @@ BOSS也就罢了，途 ...</blockquote>
 
 我只关心能不能把复制事件改成自选而不是TMD傻逼三选一 昨天刷一次图三个复制 结果最需要的梅琳一次没有不说 米卡那堆废卡次次都有复制 还有弱智闪光给个重置功能能死 狼的开战狩猎直接闪没 纯狗屎
 
+
+*****
+
+####  wsqxz  
+##### 546#       发表于 2025-11-17 13:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">自建升到50级抽普池保底又是一个女主，3命了都，怒删重开，新手池保底了琳。
+
+虽然也菜，但是玩烧鸡心情都变好了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
