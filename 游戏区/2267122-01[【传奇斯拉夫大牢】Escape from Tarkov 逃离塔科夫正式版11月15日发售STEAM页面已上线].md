@@ -882,3 +882,15 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 2025-11-17 20:16 上传
 
+
+*****
+
+####  nightmare902015  
+##### 79#       发表于 2025-11-17 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68738814&amp;ptid=2267122" target="_blank">哈曼的YY 发表于 2025-11-17 20:16</a>
+这对话有几种 我看到了笑话书和内衣手办</blockquote>
+哎哎我早就看skier不爽了对话都选攻击他的，被skier爆骂笑嘻了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
