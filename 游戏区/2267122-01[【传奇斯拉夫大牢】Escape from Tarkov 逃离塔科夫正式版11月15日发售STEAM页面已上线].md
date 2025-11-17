@@ -855,3 +855,14 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 只不过是游戏把玩家锁在现实的大牢里了，买了游戏不让进
 
+
+*****
+
+####  MkChang  
+##### 77#       发表于 2025-11-17 19:50
+
+看小黑盒有人说pve回保机制改了，不知道有没有楼友验证过。
+今天被大锤俘虏一把还忘记投保了，血亏一个骷髅面具一把满改nl545<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
