@@ -20,3 +20,14 @@
 
 就是对面谜语人太多了……
 
+
+*****
+
+####  lydia5989  
+##### 212#       发表于 2025-11-17 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68736691&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2025-11-17 13:13</a>
+
+管弦这边不算那种其他ver和未出现的cw曲，只算歌曲名，排除oped，到现在已经有21首在剧中冒头了，31话里 ...</blockquote>
+别的不谈听歌反正是挺爽了，而且cv真的很努力在配合画面了，主线倒是越来越清晰，现在就等新的二段歌、（一拍大腿让夏夏，风鸣墙和女主她妈把这堆角色曲再翻唱一编）和这俩预备役的新歌
+
