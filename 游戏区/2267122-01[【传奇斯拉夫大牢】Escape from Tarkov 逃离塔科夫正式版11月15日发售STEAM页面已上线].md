@@ -817,3 +817,16 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  catcoffee  
+##### 74#       发表于 2025-11-17 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68738362&amp;ptid=2267122" target="_blank">nightmare902015 发表于 2025-11-17 18:24</a>
+海关和立交桥的值钱物资集中在新区、几个集中的钥匙房、或者彩蛋点，真不是赚钱好去处。
+新手就无脑玩转 ...</blockquote>
+行我试试。因为我跟着主线走的，我还以为立交桥海关就是新手图呢
+
+—— 来自 HONOR PTP-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
