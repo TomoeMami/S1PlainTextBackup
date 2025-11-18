@@ -6226,3 +6226,14 @@ BOSS也就罢了，途 ...</blockquote>
 
 我草梅玲伤害好高，跟我之前鼠兔兔狙的时候完全不能比，砍瓜切菜了<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 548#       发表于 2025-11-18 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68744763&amp;ptid=2256125" target="_blank">Hqchan 发表于 2025-11-18 21:53</a>
+
+我草梅玲伤害好高，跟我之前鼠兔兔狙的时候完全不能比，砍瓜切菜了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才被叫T0和真限定的强度啊
+

@@ -1284,3 +1284,16 @@ UR带突破的就想到一个没抽的GP03D……
 
 开发尊者真值得SP一下啊还挺常用的
 
+
+*****
+
+####  洛克萨斯  
+##### 3079#       发表于 2025-11-18 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68744797&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-18 21:59</a>
+
+还好有尊者和送的凤凰，不然真不好掏能突破的机体
+
+UR带突破的就想到一个没抽的GP03D……</blockquote>
+普通大冰箱也可以
+
