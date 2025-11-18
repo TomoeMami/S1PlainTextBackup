@@ -1284,3 +1284,15 @@ QQ20251116-094331.png
 
 怎么看魔境是否制霸过了，玩到第五章魔境信息里有15个，减掉2个90/100级的还剩13个记得都通过了，但是菜单里写的魔境称霸数是12
 
+
+*****
+
+####  Booorunestud  
+##### 108#       发表于 2025-11-19 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745410&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-19 00:27</a>
+怎么看魔境是否制霸过了，玩到第五章魔境信息里有15个，减掉2个90/100级的还剩13个记得都通过了，但是菜单 ...</blockquote>
+菜单里魔境，点进信息里翻页会显示是否制霸或通关
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

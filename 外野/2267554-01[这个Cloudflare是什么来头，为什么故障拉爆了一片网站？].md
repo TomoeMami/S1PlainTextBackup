@@ -545,3 +545,18 @@ CDN服务商。
 好兄弟私信个最新的地址</blockquote>
 没有发布新的地址哎，就原来那些，我是魔法上的
 
+
+*****
+
+####  whzfjd  
+##### 62#       发表于 2025-11-19 01:31
+
+cf帮忙防爬虫，看见就头疼
+
+*****
+
+####  比企鹅八幡  
+##### 63#       发表于 2025-11-19 01:32
+
+这家的验证很烦人，老是卡我<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
