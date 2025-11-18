@@ -534,3 +534,14 @@ CDN服务商。
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745194&amp;ptid=2267554" target="_blank">猪突猛进R 发表于 2025-11-18 23:25</a></blockquote>
 我上次看到这个meme图，cf的位置是aws us-east-1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。都很重要就是了
 
+
+*****
+
+####  nukacolamania  
+##### 61#       发表于 2025-11-19 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745038&amp;ptid=2267554" target="_blank">bankofsoul 发表于 2025-11-18 22:47</a>
+
+好兄弟私信个最新的地址</blockquote>
+没有发布新的地址哎，就原来那些，我是魔法上的
+
