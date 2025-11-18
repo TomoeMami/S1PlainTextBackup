@@ -922,3 +922,29 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 就是我的一仓库卡全归零了。
 
+
+*****
+
+####  WGTCorp  
+##### 82#       发表于 2025-11-18 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68740378&amp;ptid=2267122" target="_blank">nukejoker 发表于 2025-11-18 08:07</a>
+
+咦，不是说PVE删档的吗?怎么人物还在。就是我的一仓库卡全归零了。</blockquote>
+PVE是说要从头体验新的过场和任务线得手动删档，没说会强制删档。
+
+卡清空了是不是因为退坑太久了，0.15的时候就把卡改成有次数限制的了，还追溯之前的使用次数，好多人的卡都显示负几十次了......
+
+
+*****
+
+####  nukejoker  
+##### 83#       发表于 2025-11-18 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68740516&amp;ptid=2267122" target="_blank">WGTCorp 发表于 2025-11-18 08:46</a>
+
+PVE是说要从头体验新的过场和任务线得手动删档，没说会强制删档。
+
+卡清空了是不是因为退坑太久了，0.15的 ...</blockquote>
+那就从头再来吧~应该是街区开的那个版本退坑的，现在一看新地图还不少的样子。转生转生~
+
