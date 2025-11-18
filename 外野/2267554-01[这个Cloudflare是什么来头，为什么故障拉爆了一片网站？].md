@@ -493,3 +493,11 @@ tg群聊的机器人也挂了 估计也是这个影响
 
 2025-11-18 23:25 上传
 
+
+*****
+
+####  烦死了  
+##### 57#       发表于 2025-11-18 23:53
+
+Cloudfare, AWS,还有windows都大规模宕机过了最近<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
