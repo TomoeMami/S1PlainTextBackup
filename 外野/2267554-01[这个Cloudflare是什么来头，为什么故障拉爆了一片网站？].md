@@ -358,3 +358,45 @@ Cloudflare人称赛博菩萨，对个人开发者白嫖极其友好
 
 妈的，我说我更换grok的用户登录怎么老是最好一步出错
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 42#       发表于 2025-11-18 22:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我公益站也寄了一堆
+
+*****
+
+####  ninini212  
+##### 43#       发表于 2025-11-18 23:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几年嫖了好久CF的零时测试
+
+*****
+
+####  蜇灵  
+##### 44#       发表于 2025-11-18 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745004&amp;ptid=2267554" target="_blank">jojog 发表于 2025-11-18 22:38</a>
+
+其实好奇这个怎么能一口气炸全球的 哪怕deploy了啥篓子应该也不会一口气直接弄到全球去的吧 ...</blockquote>
+上次微软炸了不也是影响全球，正常
+
+*****
+
+####  kouym  
+##### 45#       发表于 2025-11-18 23:02
+
+tg群聊的机器人也挂了 估计也是这个影响
+
+*****
+
+####  =w=  
+##### 46#       发表于 2025-11-18 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745004&amp;ptid=2267554" target="_blank">jojog 发表于 2025-11-18 22:38</a>
+
+其实好奇这个怎么能一口气炸全球的 哪怕deploy了啥篓子应该也不会一口气直接弄到全球去的吧 ...</blockquote>
+上次谷歌的GCP也是全球炸了，只是因为配额的配置部署错了，导致所有客户的配额全都不足就炸了
+
