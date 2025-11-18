@@ -525,3 +525,12 @@ CDN服务商。
 
 另外，这不是云服务器啊，虽然国内大的CDN服务商就是云服务商，但是cloudflare还是主要提供CDN服务，云服务器大的还是aws、azure、google cloud这几个
 
+
+*****
+
+####  weems  
+##### 60#       发表于 2025-11-19 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745194&amp;ptid=2267554" target="_blank">猪突猛进R 发表于 2025-11-18 23:25</a></blockquote>
+我上次看到这个meme图，cf的位置是aws us-east-1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。都很重要就是了
+

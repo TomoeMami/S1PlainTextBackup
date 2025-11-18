@@ -1276,3 +1276,11 @@ QQ20251116-094331.png
 
 <img src="https://img.stage1st.com/forum/202511/16/094616xizkckqsfajzccft.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bixinhaner  
+##### 107#       发表于 2025-11-19 00:27
+
+怎么看魔境是否制霸过了，玩到第五章魔境信息里有15个，减掉2个90/100级的还剩13个记得都通过了，但是菜单里写的魔境称霸数是12
+
