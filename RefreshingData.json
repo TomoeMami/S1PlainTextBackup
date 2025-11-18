@@ -15566,7 +15566,7 @@
     "newtitle": "[六个孩子刚刚好]",
     "lastedit": 1763240291,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2267048": {
@@ -16043,7 +16043,7 @@
     "newtitle": "[泰王：已老实]",
     "lastedit": 1763240649,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2267174": {
@@ -16695,10 +16695,10 @@
     "update": false
   },
   "2267482": {
-    "totalreply": 179,
+    "totalreply": 180,
     "title": "[2025年TGA提名名单]",
     "newtitle": "[2025年TGA提名名单]",
-    "lastedit": 1763497690,
+    "lastedit": 1763500927,
     "category": "游戏区",
     "active": true,
     "update": false
