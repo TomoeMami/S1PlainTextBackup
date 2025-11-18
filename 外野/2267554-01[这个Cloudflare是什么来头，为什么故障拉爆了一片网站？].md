@@ -400,3 +400,60 @@ tg群聊的机器人也挂了 估计也是这个影响
 其实好奇这个怎么能一口气炸全球的 哪怕deploy了啥篓子应该也不会一口气直接弄到全球去的吧 ...</blockquote>
 上次谷歌的GCP也是全球炸了，只是因为配额的配置部署错了，导致所有客户的配额全都不足就炸了
 
+
+*****
+
+####  jojog  
+##### 47#       发表于 2025-11-18 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745096&amp;ptid=2267554" target="_blank">=w= 发表于 2025-11-18 23:03</a>
+
+上次谷歌的GCP也是全球炸了，只是因为配额的配置部署错了，导致所有客户的配额全都不足就炸了
+
+补充：好像 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">那也忒草台了
+
+*****
+
+####  macos  
+##### 48#       发表于 2025-11-18 23:08
+
+鸡蛋永远在一个篮子里
+
+—— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Wiksy  
+##### 49#       发表于 2025-11-18 23:10
+
+<blockquote>jojog 发表于 2025-11-18 22:38
+其实好奇这个怎么能一口气炸全球的 哪怕deploy了啥篓子应该也不会一口气直接弄到全球去的吧 ...</blockquote>
+他们上次炸是regex写错了。不知道这次会是啥问题。
+
+*****
+
+####  はちたや  
+##### 50#       发表于 2025-11-18 23:12
+
+<blockquote>处男鉴黄师 发表于 2025-11-18 22:13
+有请沈逸教授对这个问题发表看法</blockquote>
+哈哈哈哈我也是马上想到他
+
+*****
+
+####  stunflare  
+##### 51#       发表于 2025-11-18 23:12
+
+科睿唯安和爱思唯尔也挂了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ganzkiller  
+##### 52#       发表于 2025-11-18 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745114&amp;ptid=2267554" target="_blank">jojog 发表于 2025-11-18 23:07</a>
+那也忒草台了</blockquote>
+可以了解一下事故的原因，确实草台<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
