@@ -1011,3 +1011,16 @@ steam玩家，久闻尼沙皇大名，就想玩个pve尝尝咸淡的话应该买
 
 马上黑五会打折，不建议买steam版
 
+
+*****
+
+####  WGTCorp  
+##### 90#       发表于 2025-11-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68741203&amp;ptid=2267122" target="_blank">抽搐一下 发表于 2025-11-18 10:58</a>
+
+竞技场强度好高，没有PVPFPS经验打了一晚Last Hero都完成不了第五名的任务，KD只有0.2 ...</blockquote>
+可以打checkpoint熟悉一下游戏，有队友的话压力会小一点。还有这游戏跑射延迟很大，基本又是见面就秒，所以过拐角路口的时候别跑步，换成走路预瞄头线，或者直接打提前枪。
+
+另外这游戏预设配装很弱智，可以去b站搜maj_kelvin，抄一下最近版本的功利配装，换把好枪体验就能好不少。
+
