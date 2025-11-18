@@ -1307,3 +1307,14 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 不想去商店换凤凰的话这两个就够用，尊者可能要带个加射程的驾驶员，冰箱带个加移动格子的
 
+
+*****
+
+####  blue321  
+##### 3081#       发表于 2025-11-19 07:25
+
+这次爬塔更新把之前的奖励刷新一遍后，焦虑感拉高了好多
+以前觉得打不过就等下次好了，这次是不打就亏几千钻<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
