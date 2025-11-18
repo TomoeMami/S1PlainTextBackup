@@ -580,3 +580,15 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 11.28公测<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来猜猜能活几个月
 
+
+*****
+
+####  MobileMeowbot  
+##### 59#       发表于 2025-11-18 21:11
+
+ 本帖最后由 MobileMeowbot 于 2025-11-18 21:13 编辑 
+
+挑战今年国产二次元那个“开服80天最后一次内容更新，第二个80天无任何公告关闭服务器”的速通纪录是不太可能了。
+
+官网也太简陋了。
+
