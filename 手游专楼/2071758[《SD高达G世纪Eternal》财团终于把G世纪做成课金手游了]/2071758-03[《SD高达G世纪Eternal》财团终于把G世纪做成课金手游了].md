@@ -1236,3 +1236,13 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">送的十张票出了个新安洲，恩人游戏了这下，不过bd1感觉帅一点，等以后歪吧
 
+
+*****
+
+####  jackyhuang  
+##### 3075#       发表于 2025-11-18 15:18
+
+赶在最后几天总算爬完塔了，神高达有种数值的美，几个BOSS都硬啃掉了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
