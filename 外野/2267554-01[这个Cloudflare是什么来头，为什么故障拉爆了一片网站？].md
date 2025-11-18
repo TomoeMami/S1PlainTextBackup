@@ -501,3 +501,11 @@ tg群聊的机器人也挂了 估计也是这个影响
 
 Cloudfare, AWS,还有windows都大规模宕机过了最近<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红炉灰  
+##### 58#       发表于 2025-11-18 23:59
+
+这个就是国外的阿里云腾讯云，非常多网站在使用
+
