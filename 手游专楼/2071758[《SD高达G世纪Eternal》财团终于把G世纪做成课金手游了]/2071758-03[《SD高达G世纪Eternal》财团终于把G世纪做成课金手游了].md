@@ -1269,3 +1269,18 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
  ...</blockquote>
 对，不然会被拦住
 
+
+*****
+
+####  blue321  
+##### 3078#       发表于 2025-11-18 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68744752&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-11-18 21:51</a>
+
+对，不然会被拦住</blockquote>
+还好有尊者和送的凤凰，不然真不好掏能突破的机体<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+UR带突破的就想到一个没抽的GP03D……
+
+开发尊者真值得SP一下啊还挺常用的
+
