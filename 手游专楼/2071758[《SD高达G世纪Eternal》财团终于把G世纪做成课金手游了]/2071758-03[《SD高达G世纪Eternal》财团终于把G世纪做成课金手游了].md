@@ -1254,3 +1254,18 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 这17层什么鬼？？？就这么恶心人的吗……
 
+
+*****
+
+####  洛克萨斯  
+##### 3077#       发表于 2025-11-18 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68744547&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-18 21:13</a>
+
+这17层什么鬼？？？就这么恶心正常打的吗……
+
+还要 特意去找有啥能突破的地图炮……
+
+ ...</blockquote>
+对，不然会被拦住
+
