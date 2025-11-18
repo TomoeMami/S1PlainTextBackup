@@ -457,3 +457,39 @@ tg群聊的机器人也挂了 估计也是这个影响
 那也忒草台了</blockquote>
 可以了解一下事故的原因，确实草台<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanz  
+##### 53#       发表于 2025-11-18 23:16
+
+我希望这次炸能蹭上最火的 ai 概念
+
+*****
+
+####  Returns  
+##### 54#       发表于 2025-11-18 23:20
+
+还没好呢，还在卡
+
+
+*****
+
+####  INDIASH  
+##### 55#       发表于 2025-11-18 23:23
+
+讲个笑话：今天国外至少有几亿人自动在网络上失去人籍
+
+*****
+
+####  猪突猛进R  
+##### 56#       发表于 2025-11-18 23:25
+
+<img src="https://img.stage1st.com/forum/202511/18/232539cowae4yqdaruqqww.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-11-18 232534.png</strong> (25.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-18 23:25 上传
+
