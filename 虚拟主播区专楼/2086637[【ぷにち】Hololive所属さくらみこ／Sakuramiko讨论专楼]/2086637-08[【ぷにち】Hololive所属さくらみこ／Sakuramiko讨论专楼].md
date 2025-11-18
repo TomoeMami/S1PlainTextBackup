@@ -19,3 +19,20 @@
 
 2025-11-17 21:01 上传
 
+
+*****
+
+####  siansian  
+##### 11286#       发表于 2025-11-18 01:21
+
+拿到了content creator of the year提名，恭喜
+
+*****
+
+####  holofan  
+##### 11287#       发表于 2025-11-18 10:16
+
+野鸡奖含金量<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去年被提名是有小岛做工作，今年不知道哪来的风
+
