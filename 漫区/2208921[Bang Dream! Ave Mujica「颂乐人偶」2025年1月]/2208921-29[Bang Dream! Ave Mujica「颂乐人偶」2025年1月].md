@@ -48,3 +48,31 @@
 
       [https://t.co/i4D3PrBQhL](https://t.co/i4D3PrBQhL)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41492#       发表于 2025-11-18 17:34
+
+       
+
+<img src="https://img.stage1st.com/forum/202511/18/173434jzv389i9rdx90xjj.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-11-18_17-33-39.jpg</strong> (271.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-18 17:34 上传
+
+       [https://x.com/gekirock_shop/status/1990706552454390006](https://x.com/gekirock_shop/status/1990706552454390006)
+
+       [https://gekirock.com/news/2025/11/bang_dream_8th.php](https://gekirock.com/news/2025/11/bang_dream_8th.php)
+
+
+*****
+
+####  osore  
+##### 41493#       发表于 2025-11-18 17:43
+
+祥子这身还行，但wink是不是有点OOC
+
