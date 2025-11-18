@@ -560,3 +560,11 @@ cf帮忙防爬虫，看见就头疼
 
 这家的验证很烦人，老是卡我<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saikou  
+##### 64#       发表于 2025-11-19 01:34
+
+Uber也崩了
+
