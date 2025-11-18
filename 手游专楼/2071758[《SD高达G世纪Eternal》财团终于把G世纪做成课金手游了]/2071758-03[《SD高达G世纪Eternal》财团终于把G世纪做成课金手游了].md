@@ -1217,3 +1217,14 @@ ssr的bd1移动力变5了？可惜还是上不了宇宙。
 
 说是开发狼王可以95暴击率骗防，还没开发满星就没试了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3073#       发表于 2025-11-18 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68741311&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-11-18 11:12</a>
+
+打19层体会到数值上的格差，最早为了雨露均沾用的普通战舰，飞翼地图炮清不干净杂兵，后来换成只给飞翼和和 ...</blockquote>
+可以的，开局拉妖抬一次三明就启动了，巨猛，95爆率对面不会防御的，吃一个减防就一巴掌一个
+

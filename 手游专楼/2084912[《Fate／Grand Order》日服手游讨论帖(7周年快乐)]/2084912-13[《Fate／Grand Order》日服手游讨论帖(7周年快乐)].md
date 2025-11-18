@@ -629,3 +629,41 @@ MuMu-20251116-030705-365.jpg
 
 按理说序会用来解决冬木的事情吧，前半只给2天就开打，剧情的大头应该会放在后半，时间开到临近20日，然后15号ROAD TO 终章的奏4部分结束之后会补一个终章倒计时预热<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌二  
+##### 18668#       发表于 2025-11-17 23:25
+
+刚润日服 绿方块奇缺 怎么买友情点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18669#       发表于 2025-11-18 00:52
+
+ 本帖最后由 岸浪白野 于 2025-11-18 01:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68739592&amp;ptid=2084912" target="_blank">萌二 发表于 2025-11-17 23:25</a>
+
+刚润日服 绿方块奇缺 怎么买友情点</blockquote>
+49年入国军了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+买友情点在今年周年之后开始大量杀玛修刷友情号不止还勤劳杀号后龟速刷友情和挂了没区别
+
+*****
+
+####  khxooo  
+##### 18670#       发表于 2025-11-18 02:46
+
+ 本帖最后由 khxooo 于 2025-11-18 02:48 编辑 
+
+说好的全幕间开放呢？怎么我这里显示是空的？YLS你是不是吞了我的幕间？<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 18671#       发表于 2025-11-18 11:16
+
+不会是你幕间全打完了吧，这下可以挖个爽了。
+<img src="https://p.sda1.dev/28/9275498256dacb0208220f479a2717bb/image.jpg" referrerpolicy="no-referrer">
+

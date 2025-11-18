@@ -981,3 +981,33 @@ steam玩家，久闻尼沙皇大名，就想玩个pve尝尝咸淡的话应该买
 
 竞技场强度好高，没有PVPFPS经验打了一晚Last Hero都完成不了第五名的任务，KD只有0.2<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 88#       发表于 2025-11-18 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68741174&amp;ptid=2267122" target="_blank">DawnGuardian 发表于 2025-11-18 10:54</a>
+
+steam玩家，久闻尼沙皇大名，就想玩个pve尝尝咸淡的话应该买哪个版本？</blockquote>
+steam上就买白边（最便宜的版本）+pve zone，大概386。
+
+不过其实还是建议挂加速器俄区节点去官网买，俄白+pve只要235左右，或者再加亿点直接买俄蓝（unheard，738），带竞技场和pve，还有以后出的所有dlc，不过主要是开局就有4级仓库和3x3保险，能少坐点牢（
+
+另外买了游戏之后记得去准备一个国外的能收短信的号码（我是去smsactivate买的临时号），注册BSG账号的时候用来过短信验证，国内号码收不到短信。
+
+*****
+
+####  Emcylla  
+##### 89#       发表于 2025-11-18 11:17
+
+ 本帖最后由 Emcylla 于 2025-11-18 11:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68741174&amp;ptid=2267122" target="_blank">DawnGuardian 发表于 2025-11-18 10:54</a>
+
+steam玩家，久闻尼沙皇大名，就想玩个pve尝尝咸淡的话应该买哪个版本？</blockquote>
+建议先搞个离线版试水
+
+玩对味了买官网的俄区白边（所谓白边也就是标准版）然后加购PVE扩展包和仓库扩容
+
+马上黑五会打折，不建议买steam版
+
