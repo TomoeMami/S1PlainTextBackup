@@ -904,3 +904,21 @@ Scav模式也不知道有什么问题根本进不去, 一直卡匹配.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nukejoker  
+##### 81#       发表于 2025-11-18 08:07
+
+咦，不是说PVE删档的吗?怎么人物还在。
+
+<img src="https://img.stage1st.com/forum/202511/18/080720n5va2vjvlvollzl2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-18 08:07 上传
+
+就是我的一仓库卡全归零了。
+
