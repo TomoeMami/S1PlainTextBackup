@@ -624,3 +624,13 @@ Cf就是互联网领域的“at立场”，没有它90%网络服务顷刻崩塌
 我这种正经人就不会到处说自己是看不了南+发现的 ...</blockquote>
 老哥，私信求个南+最新地址
 
+
+*****
+
+####  silversor  
+##### 71#       发表于 2025-11-19 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745655&amp;ptid=2267554" target="_blank">勿徊哉 发表于 2025-11-19 06:43</a>
+请问这是什么梗？</blockquote>
+曾通过ping发现ip来自外国（指cf）然后发微博说这次网络攻击来自外国
+
