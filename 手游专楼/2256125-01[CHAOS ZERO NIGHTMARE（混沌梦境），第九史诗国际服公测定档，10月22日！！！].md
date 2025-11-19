@@ -6245,3 +6245,13 @@ BOSS也就罢了，途 ...</blockquote>
 
 现在还不是梅琳最牛逼的时候，等以后出了火奶，无论是加费，抽卡，jiabuff的都会让梅琳更逆天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 550#       发表于 2025-11-19 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745847&amp;ptid=2256125" target="_blank">伊布桑 发表于 2025-11-19 08:27</a>
+现在还不是梅琳最牛逼的时候，等以后出了火奶，无论是加费，抽卡，jiabuff的都会让梅琳更逆天 ...</blockquote>
+除非火奶有维若妮卡级别的过牌能力外加加伤，不然上限肯定没有现在高了，现在维若妮卡有神闪0费回收4，复制一下就是8计数起，啥火角色都比不上这个
+
