@@ -1308,3 +1308,15 @@ QQ20251116-094331.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bixinhaner  
+##### 110#       发表于 2025-11-19 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745893&amp;ptid=2263973" target="_blank">InfiniteGyre 发表于 2025-11-19 08:41</a>
+差的那个估计是托雷山道秘境，那个是还有后续的
+
+—— 来自 鹅球 v3.5.99</blockquote>
+嗯，应该是的。我翻了一下旧存档，发现就是开头山顶有个传送阵那个。
+
