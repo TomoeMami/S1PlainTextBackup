@@ -1384,3 +1384,16 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acg_gyanc  
+##### 3089#       发表于 2025-11-19 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745713&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-19 07:25</a>
+这次爬塔更新把之前的奖励刷新一遍后，焦虑感拉高了好多
+以前觉得打不过就等下次好了，这次是不打就亏几千 ...</blockquote>
+这个我看别人有说，官方表示不是每次都会更新奖励比如第一次爬塔是a奖励第二次爬塔是b奖励，你第二次爬塔入坑拿了a奖励，第三次爬塔可能前面的奖励就不会复刻了，而你可以再打一遍拿到b奖励。不过我也是道听途说，没有自己亲眼看过官方到底有没有这个公告
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
