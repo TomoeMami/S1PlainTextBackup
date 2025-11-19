@@ -759,3 +759,15 @@ https://blog.cloudflare.com/18-november-2025-outage/
 
 —— 来自 motorola XT2301-5, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ryanz  
+##### 83#       发表于 2025-11-19 10:00
+
+ 本帖最后由 ryanz 于 2025-11-19 10:03 编辑 
+
+我还猜测是最 fashion 的 vibe code 导致的，没想到是第二 fashion 的 rust 的 unwrap 导致的🫣 
+
+另外我实在想不到这么大的公司 unwrap 的代码能过，当初我学的时候就觉得这个语法不应该存在。
+
