@@ -6304,3 +6304,27 @@ BOSS也就罢了，途 ...</blockquote>
 拉55的性价比应该比拉60高吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 比起拉一队60，之后更想拉奶刀和小丑哥来玩了
 
+
+*****
+
+####  三谷歩夢  
+##### 556#       发表于 2025-11-19 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746781&amp;ptid=2256125" target="_blank">Hqchan 发表于 2025-11-19 10:44</a>
+
+拉55的性价比应该比拉60高吧
+
+比起拉一队60，之后更想拉奶刀和小丑哥来玩了</blockquote>
+昨天我就在刷小丑存档了，配个狼带个奶还挺稳的，就是没成型输出实在堪忧，俩打工仔还要删一堆独特牌，打一场墨迹得不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  21wwwb  
+##### 557#       发表于 2025-11-19 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746737&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-11-19 10:35</a>
+
+拉到55级做任务就够了，狗粮主要还是靠政策解锁的支线任务获取比较多，经验本那点蚊子腿 ...</blockquote>
+啥意思 支线任务不是一次性的吗
+
