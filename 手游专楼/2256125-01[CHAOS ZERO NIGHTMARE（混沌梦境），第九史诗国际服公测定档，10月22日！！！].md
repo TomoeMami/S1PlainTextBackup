@@ -6237,3 +6237,11 @@ BOSS也就罢了，途 ...</blockquote>
 我草梅玲伤害好高，跟我之前鼠兔兔狙的时候完全不能比，砍瓜切菜了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才被叫T0和真限定的强度啊
 
+
+*****
+
+####  伊布桑  
+##### 549#       发表于 2025-11-19 08:27
+
+现在还不是梅琳最牛逼的时候，等以后出了火奶，无论是加费，抽卡，jiabuff的都会让梅琳更逆天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
