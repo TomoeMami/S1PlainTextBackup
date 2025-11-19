@@ -634,3 +634,25 @@ Cf就是互联网领域的“at立场”，没有它90%网络服务顷刻崩塌
 请问这是什么梗？</blockquote>
 曾通过ping发现ip来自外国（指cf）然后发微博说这次网络攻击来自外国
 
+
+*****
+
+####  nukacolamania  
+##### 72#       发表于 2025-11-19 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745676&amp;ptid=2267554" target="_blank">神里绫华 发表于 2025-11-19 06:55</a>
+老哥，私信求个南+最新地址</blockquote>
+没看到发布新的地址，还是原来那些，需要魔法上
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jing86  
+##### 73#       发表于 2025-11-19 07:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745690&amp;ptid=2267554" target="_blank">silversor 发表于 2025-11-19 07:08</a>
+曾通过ping发现ip来自外国（指cf）然后发微博说这次网络攻击来自外国</blockquote>
+然后还嘴硬了很久
+
