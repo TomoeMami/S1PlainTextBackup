@@ -811,3 +811,11 @@ https://blog.cloudflare.com/18-november-2025-outage/
 </blockquote>
 这么大的服务商，变更不做灰度一把梭也是牛。
 
+
+*****
+
+####  Ganzkiller  
+##### 87#       发表于 2025-11-19 11:06
+
+草台都一样，上次也是一把梭
+
