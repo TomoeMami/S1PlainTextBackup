@@ -6357,3 +6357,11 @@ BOSS也就罢了，途 ...</blockquote>
 
 等级也没材料升，好几次数值不够打不死boss了<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 561#       发表于 2025-11-19 21:58
+
+雨果不出0费开战的BUG终于修了，这下起飞了
+
