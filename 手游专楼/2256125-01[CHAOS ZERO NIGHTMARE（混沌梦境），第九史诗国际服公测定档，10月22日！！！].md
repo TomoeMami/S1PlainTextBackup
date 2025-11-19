@@ -6328,3 +6328,14 @@ BOSS也就罢了，途 ...</blockquote>
 拉到55级做任务就够了，狗粮主要还是靠政策解锁的支线任务获取比较多，经验本那点蚊子腿 ...</blockquote>
 啥意思 支线任务不是一次性的吗
 
+
+*****
+
+####  三谷歩夢  
+##### 558#       发表于 2025-11-19 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746862&amp;ptid=2256125" target="_blank">21wwwb 发表于 2025-11-19 10:54</a>
+
+啥意思 支线任务不是一次性的吗</blockquote>
+是一次性的，但是政策有时候会解锁支线任务，数量很多，全清完也有不少资源了
+
