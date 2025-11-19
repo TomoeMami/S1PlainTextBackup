@@ -1769,7 +1769,7 @@
     "newtitle": "[【CSGO】赛事讨论专楼]",
     "lastedit": 1763302456,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2050172": {
@@ -6165,10 +6165,10 @@
     "update": false
   },
   "2148387": {
-    "totalreply": 1971,
+    "totalreply": 1972,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然是8e]",
-    "lastedit": 1763560929,
+    "lastedit": 1763561771,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 201688,
+    "totalreply": 201691,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1763560461,
+    "lastedit": 1763561886,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 15216,
+    "totalreply": 15217,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1763561168,
+    "lastedit": 1763561528,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2259247": {
-    "totalreply": 285,
+    "totalreply": 286,
     "title": "[tox复刻，10.30发售]",
     "newtitle": "[tox复刻，10.30发售]",
-    "lastedit": 1763555167,
+    "lastedit": 1763561772,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13824,10 +13824,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 3252,
+    "totalreply": 3254,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1763561169,
+    "lastedit": 1763561772,
     "category": "外野",
     "active": true,
     "update": false
@@ -16641,10 +16641,10 @@
     "update": false
   },
   "2267523": {
-    "totalreply": 201,
+    "totalreply": 202,
     "title": "[外务省＊＊：红豆泥施米马塞！]",
     "newtitle": "[外务省＊＊：红豆泥施米马塞！]",
-    "lastedit": 1763560220,
+    "lastedit": 1763561415,
     "category": "外野",
     "active": true,
     "update": false
@@ -16803,10 +16803,10 @@
     "update": false
   },
   "2267564": {
-    "totalreply": 453,
+    "totalreply": 454,
     "title": "[喻恩泰（吕秀才）的绿帽大瓜，坛友看了吗]",
     "newtitle": "[喻恩泰（吕秀才）的绿帽大瓜，坛友看了吗]",
-    "lastedit": 1763560215,
+    "lastedit": 1763561413,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,10 +16893,10 @@
     "update": false
   },
   "2267469": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[说起来有点不好意思，我今天才纯初见看完死亡笔记，感觉是个很微妙的作品]",
     "newtitle": "[说起来有点不好意思，我今天才纯初见看完死亡笔记，感觉是个很微妙的作品]",
-    "lastedit": 1763559863,
+    "lastedit": 1763561651,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16929,10 +16929,10 @@
     "update": false
   },
   "2267590": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[“我们生活在战区吗？”美国孩子如何应对校园枪击]",
     "newtitle": "[“我们生活在战区吗？”美国孩子如何应对校园枪击]",
-    "lastedit": 1763559863,
+    "lastedit": 1763561415,
     "category": "外野",
     "active": true,
     "update": false
@@ -17010,10 +17010,10 @@
     "update": false
   },
   "2267620": {
-    "totalreply": 52,
+    "totalreply": 54,
     "title": "[荷兰经济大臣卡雷曼斯：已暂停对安世半导体的干预]",
     "newtitle": "[荷兰经济大臣卡雷曼斯：已暂停对安世半导体的干预]",
-    "lastedit": 1763560818,
+    "lastedit": 1763561415,
     "category": "外野",
     "active": true,
     "update": false
@@ -17024,6 +17024,15 @@
     "newtitle": "[感觉阴.毛会很旺盛的女角色]",
     "lastedit": 1763557697,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2194907": {
+    "totalreply": 113,
+    "title": "[做了一个日系LIVE主办方光荣事迹表（转型日系演出讨论交流楼）更新KOKIA北京当天取消]",
+    "newtitle": "[做了一个日系LIVE主办方光荣事迹表（转型日系演出讨论交流楼）更新KOKIA北京当天取消]",
+    "lastedit": 1763561654,
+    "category": "漫区",
     "active": true,
     "update": false
   }
