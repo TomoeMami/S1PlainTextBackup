@@ -6347,3 +6347,13 @@ BOSS也就罢了，途 ...</blockquote>
 
 这游戏的数值策划是怎么做到钱本和记忆碎片本都毫无意义的……完全被卡厄斯完爆啊
 
+
+*****
+
+####  fireflies  
+##### 560#       发表于 2025-11-19 17:58
+
+闪光概率真有问题吧，刚刚打活动10层尾王惊险卡死门才过，结束了梅林就两个普闪，连续两把都这样了
+
+等级也没材料升，好几次数值不够打不死boss了<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
