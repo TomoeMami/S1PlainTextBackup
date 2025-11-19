@@ -1175,3 +1175,13 @@ pve回保机制好像有些问题
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  77BBC  
+##### 102#       发表于 2025-11-19 21:04
+
+scav真的能玩吗，这无限匹配加载，pve也一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
