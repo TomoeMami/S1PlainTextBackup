@@ -1346,3 +1346,11 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你伤害高对面就防御，除非你伤害高到无视对面防御，只能说打的非常烦躁
 
+
+*****
+
+####  王俊凯  
+##### 3085#       发表于 2025-11-19 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还送百式.jpg
+
