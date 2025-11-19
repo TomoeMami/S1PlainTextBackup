@@ -771,3 +771,19 @@ https://blog.cloudflare.com/18-november-2025-outage/
 
 另外我实在想不到这么大的公司 unwrap 的代码能过，当初我学的时候就觉得这个语法不应该存在。
 
+
+*****
+
+####  流缨  
+##### 84#       发表于 2025-11-19 10:11
+
+ 本帖最后由 流缨 于 2025-11-19 10:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746446&amp;ptid=2267554" target="_blank">ryanz 发表于 2025-11-19 10:00</a>
+
+我还猜测是最 fashion 的 vibe code 导致的，没想到是第二 fashion 的 rust 的 unwrap 导致的🫣 
+
+另外我实 ...</blockquote>
+wrap/unwrap我只在matlab里见过<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还以为看错了
+
+搜了一下原来现在连numpy里都有，生产现在都用这种玩意儿的吗？太fashion了
+

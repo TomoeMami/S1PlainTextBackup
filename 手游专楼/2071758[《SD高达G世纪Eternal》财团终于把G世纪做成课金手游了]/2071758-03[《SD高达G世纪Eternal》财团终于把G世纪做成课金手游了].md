@@ -1338,3 +1338,11 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 打起來就很焦躁
 
+
+*****
+
+####  洛克萨斯  
+##### 3084#       发表于 2025-11-19 10:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你伤害高对面就防御，除非你伤害高到无视对面防御，只能说打的非常烦躁
+
