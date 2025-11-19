@@ -704,3 +704,16 @@ Cf就是互联网领域的“at立场”，没有它90%网络服务顷刻崩塌
 
 2025-11-19 08:29 上传
 
+
+*****
+
+####  蜇灵  
+##### 78#       发表于 2025-11-19 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745808&amp;ptid=2267554" target="_blank">粉色猛男 发表于 2025-11-19 08:16</a>
+最逗的还是他头衔是什么网络安全专家
+
+要是普通人搞错很正常，但他挂这个头衔还搞错就有点难蚌了
+</blockquote>
+蠢得有点搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

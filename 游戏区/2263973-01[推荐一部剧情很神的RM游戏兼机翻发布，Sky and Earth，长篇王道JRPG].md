@@ -1296,3 +1296,15 @@ QQ20251116-094331.png
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  InfiniteGyre  
+##### 109#       发表于 2025-11-19 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745410&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-19 00:27</a>
+怎么看魔境是否制霸过了，玩到第五章魔境信息里有15个，减掉2个90/100级的还剩13个记得都通过了，但是菜单 ...</blockquote>
+差的那个估计是托雷山道秘境，那个是还有后续的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
