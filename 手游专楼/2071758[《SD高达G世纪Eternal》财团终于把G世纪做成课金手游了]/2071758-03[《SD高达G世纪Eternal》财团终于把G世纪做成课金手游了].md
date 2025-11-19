@@ -1374,3 +1374,13 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 每关增加三次悔棋机会，这样体验就好很多了
 
+
+*****
+
+####  jackyhuang  
+##### 3088#       发表于 2025-11-19 16:06
+
+悔棋就算了，你让我能随时回到本回合一开始就行，保留乱数也没问题，但我猜他做不到<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
