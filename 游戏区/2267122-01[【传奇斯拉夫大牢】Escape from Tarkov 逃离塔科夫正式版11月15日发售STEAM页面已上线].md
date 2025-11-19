@@ -1144,3 +1144,16 @@ re3mr已经开始做新的塔科夫立交桥地图了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  银月术士329  
+##### 100#         楼主| 发表于 2025-11-19 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746297&amp;ptid=2267122" target="_blank">nightmare902015 发表于 2025-11-19 09:41</a>
+
+现在scav匹配就纯逆天，不是我就想问尼处了以前也没这样，正式版动辄匹配半小时的scav，换pmc就秒进，这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">街区是一张我完全匹不进去的地图
+
+U1S1这个档现在每次储备站踹死玩家SCAV我都心生愧疚
+
