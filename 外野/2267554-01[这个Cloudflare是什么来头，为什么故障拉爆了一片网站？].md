@@ -819,3 +819,15 @@ https://blog.cloudflare.com/18-november-2025-outage/
 
 草台都一样，上次也是一把梭
 
+
+*****
+
+####  空気力学  
+##### 88#       发表于 2025-11-19 12:14
+
+<blockquote>流缨 发表于 2025-11-19 10:11
+wrap/unwrap我只在matlab里见过还以为看错了
+
+搜了一下原来现在连numpy里都有，生产现在都用这种玩意儿的吗 ...</blockquote>
+你这个unwrap跟rust的unwrap不一样，人家unwrap的是副作用
+
