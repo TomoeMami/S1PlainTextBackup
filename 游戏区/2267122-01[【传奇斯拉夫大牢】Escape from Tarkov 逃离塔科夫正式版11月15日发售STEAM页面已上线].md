@@ -1130,3 +1130,17 @@ re3mr已经开始做新的塔科夫立交桥地图了
 
 昨天三人中心区跑打靶训练，活地下通道我让他们等等先踩榴弹炮，结果他俩直接就出去了奔机枪楼直接被榴弹炮楼活的炸死在马路中间，我蹲了10分钟之后泰拉那边卷赢的4甲SVD两人组和榴弹炮4甲手枪两人组终于出来在他俩尸体旁边大战最后全变成了哥们温暖的西方来客<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 99#       发表于 2025-11-19 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746229&amp;ptid=2267122" target="_blank">银月术士329 发表于 2025-11-19 09:32</a>
+感觉翻身还是靠SCAV，开服第二天海关转移储备站（加起来匹了快40分钟）难得凑够了点物资
+
+现在不组队海关我 ...</blockquote>
+现在scav匹配就纯逆天，不是我就想问尼处了以前也没这样，正式版动辄匹配半小时的scav，换pmc就秒进，这让我怎么挣钱，牛魔了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
