@@ -656,3 +656,37 @@ Cf就是互联网领域的“at立场”，没有它90%网络服务顷刻崩塌
 曾通过ping发现ip来自外国（指cf）然后发微博说这次网络攻击来自外国</blockquote>
 然后还嘴硬了很久
 
+
+*****
+
+####  粉色猛男  
+##### 74#       发表于 2025-11-19 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68745760&amp;ptid=2267554" target="_blank">jing86 发表于 2025-11-19 07:52</a>
+然后还嘴硬了很久</blockquote>
+最逗的还是他头衔是什么网络安全专家
+要是普通人搞错很正常，但他挂这个头衔还搞错就有点难蚌了
+
+—— 来自 samsung SM-G9810, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  木谷高明  
+##### 75#       发表于 2025-11-19 08:23
+
+赛博菩萨
+
+历年来最大的DDoS攻击流量都是他家扛的（2.2TB/s），还没收钱
+
+加速功能让我的小站从20KB/s到10MB/s，还是免费的。
+
+对象存储很便宜
+
+*****
+
+####  StarCrusader  
+##### 76#       发表于 2025-11-19 08:25
+
+问问楼主SDF是哪个网站？
+
