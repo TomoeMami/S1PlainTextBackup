@@ -84,3 +84,32 @@
 
 为了醋包的饺子，为了宣传スシロー用TGA提名的事钓鱼
 
+
+*****
+
+####  holofan  
+##### 11292#       发表于 2025-11-18 19:44
+
+<img src="https://img.stage1st.com/forum/202511/18/194417mgp9tp5hoaorztwk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (221.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-18 19:44 上传
+
+你也是holoAN宣传大使？
+
+*****
+
+####  holofan  
+##### 11293#       发表于 2025-11-19 17:39
+
+<img src="https://img.stage1st.com/forum/202511/19/173925o8ta0pit0zp5ak1l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-19 17:39 上传
+
