@@ -748,3 +748,14 @@ Cf就是互联网领域的“at立场”，没有它90%网络服务顷刻崩塌
 
 好像网站要是比较小浏览量低可以直接免费挂靠，什么慈善公司
 
+
+*****
+
+####  剑起苍斓  
+##### 82#       发表于 2025-11-19 08:59
+
+官方解释原因了，还是很草台，生产变更配置错误<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+https://blog.cloudflare.com/18-november-2025-outage/
+
+—— 来自 motorola XT2301-5, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

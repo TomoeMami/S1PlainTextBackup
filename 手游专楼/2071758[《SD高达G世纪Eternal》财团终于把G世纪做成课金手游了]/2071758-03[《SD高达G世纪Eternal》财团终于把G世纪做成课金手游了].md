@@ -1318,3 +1318,11 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3082#       发表于 2025-11-19 09:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">或者说17关就没想让你正常打，3星90级的师匠和凤凰都是刚好能承受住敌方凤凰地图炮剩个血皮，一个是巧合，两个就是必然了
+
