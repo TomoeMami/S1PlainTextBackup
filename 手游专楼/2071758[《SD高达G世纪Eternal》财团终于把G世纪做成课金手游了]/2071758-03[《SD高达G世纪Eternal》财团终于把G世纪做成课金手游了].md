@@ -1354,3 +1354,15 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还送百式.jpg
 
+
+*****
+
+####  一个陆仁贾  
+##### 3086#       发表于 2025-11-19 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68746487&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-11-19 10:06</a>
+你伤害高对面就防御，除非你伤害高到无视对面防御，只能说打的非常烦躁</blockquote>
+确实，这种防御就很恶心，非氪佬的最优解反而变成用ssr的机体骗防/防御反击，然后ur的出场率就这么被压低了。通关了心里也没那么爽
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
