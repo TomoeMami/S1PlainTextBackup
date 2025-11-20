@@ -1336,3 +1336,14 @@ QQ20251116-094331.png
 
 请问新的汉化版本可以直接覆盖老版本么
 
+
+*****
+
+####  blueelf  
+##### 113#         楼主| 发表于 2025-11-20 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68751137&amp;ptid=2263973" target="_blank">孤狼arcueid 发表于 2025-11-20 01:09</a>
+
+请问新的汉化版本可以直接覆盖老版本么</blockquote>
+可以       
+
