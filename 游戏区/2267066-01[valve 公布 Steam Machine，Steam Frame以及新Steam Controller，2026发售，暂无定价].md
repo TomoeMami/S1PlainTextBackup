@@ -3978,3 +3978,11 @@ valve发言人接受Linus tech tip采访时透露，他们认为steam machine的
 valve发言人接受Linus tech tip采访时透露，他们认为steam machine的售价与pc比会存在一定竞争力，最终定价 ...</blockquote>
 看起来起码700+了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 374#       发表于 2025-11-20 22:45
+
+那可太硬核了
+
