@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 6736,
+    "totalreply": 6739,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1763515098,
+    "lastedit": 1763647708,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 15270,
+    "totalreply": 15273,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1763647097,
+    "lastedit": 1763647709,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9833,7 +9833,7 @@
     "newtitle": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]",
     "lastedit": 1763388498,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2188260": {
@@ -12105,10 +12105,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 16903,
+    "totalreply": 16905,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1763646977,
+    "lastedit": 1763647579,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12300,15 +12300,6 @@
     "lastedit": 1763628975,
     "category": "漫区",
     "active": true,
-    "update": false
-  },
-  "2249536": {
-    "totalreply": 277,
-    "title": "[CK3dlc溥天之下10月28日发售]",
-    "newtitle": "[CK3dlc溥天之下10月28日发售]",
-    "lastedit": 1762437496,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2188114": {
@@ -13256,15 +13247,6 @@
     "active": false,
     "update": false
   },
-  "2266072": {
-    "totalreply": 54,
-    "title": "[西太：孩子们，大的要来了]",
-    "newtitle": "[西太：孩子们，大的要来了]",
-    "lastedit": 1762437976,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2266536": {
     "totalreply": 118,
     "title": "[学术界对隋炀帝的相对正面积极的评述]",
@@ -13608,10 +13590,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 3757,
+    "totalreply": 3760,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1763646623,
+    "lastedit": 1763647588,
     "category": "外野",
     "active": true,
     "update": false
@@ -17082,10 +17064,10 @@
     "update": false
   },
   "2267481": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[大家面对fs社魂游数值过于膨胀的dlc或者新作会如何选择游玩]",
     "newtitle": "[大家面对fs社魂游数值过于膨胀的dlc或者新作会如何选择游玩]",
-    "lastedit": 1763635100,
+    "lastedit": 1763647214,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17141,6 +17123,15 @@
     "newtitle": "[机战D的剧情，实在是一言难尽]",
     "lastedit": 1763644821,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266312": {
+    "totalreply": 41,
+    "title": "[2026年 超级战队后继作『超宇宙刑事卡邦 INFINITY』]",
+    "newtitle": "[2026年 超级战队后继作『超宇宙刑事卡邦 INFINITY』]",
+    "lastedit": 1763647217,
+    "category": "漫区",
     "active": true,
     "update": false
   }
