@@ -1355,3 +1355,15 @@ QQ20251116-094331.png
 
 看完后日谈，赛纳雷诺还是没说出来想说的话，不够啊不够，再来点后代们的后日谈吧，起码要都有小孩才行<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 115#       发表于 2025-11-21 03:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68678794&amp;ptid=2263973" target="_blank">Booorunestud 发表于 2025-11-5 14:17</a>
+通关了，内置统计200H有问题，实际应该100左右
+
+很喜欢，到了准备把解包cg印出来挂上的程度，当下的rpg好好 ...</blockquote>
+ed没写，readme里写了
+
