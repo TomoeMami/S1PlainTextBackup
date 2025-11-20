@@ -3958,3 +3958,13 @@ SD卡启动我都卡出分类了，1.卡云存档，2.卡着色器编译，3.卡
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望在国内价格值崩, 话说这玩意儿摆客厅打打怀旧游戏也很美好啊, ps3以下都没啥问题吧, 我现在就苦于玩怀旧游戏只能在手机和电脑上玩.... 之前还想捡个580的垃圾自己装steam os呢.....
 
+
+*****
+
+####  zid99825  
+##### 372#       发表于 2025-11-20 22:26
+
+valve发言人接受Linus tech tip采访时透露，他们认为steam machine的售价与pc比会存在一定竞争力，最终定价比起主机更像是pc
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
