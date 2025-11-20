@@ -1473,3 +1473,24 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  blue321  
+##### 3096#       发表于 2025-11-20 23:29
+
+楼友推荐这个ssr狼王+ur三明真的爽快感十足，无氪人体会到了氪金的暴力
+这20层靠他和神高达缓了一大半压力，两边一刀一个十几万真她妈爽啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现阶段来说平衡应该算做得真不错吧？哪个层级的玩家都能找到自己的玩法
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  希望之花  
+##### 3097#       发表于 2025-11-20 23:35
+
+有神高达啊，那没事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽到的还在挣扎呢
+

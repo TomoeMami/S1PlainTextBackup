@@ -3996,3 +3996,11 @@ valve发言人接受Linus tech tip采访时透露，他们认为steam machine的
 
 —— 來自 vivo V2303A, Android 15, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  精钢魔像  
+##### 376#       发表于 2025-11-20 23:26
+
+国外的pc挺贵的
+
