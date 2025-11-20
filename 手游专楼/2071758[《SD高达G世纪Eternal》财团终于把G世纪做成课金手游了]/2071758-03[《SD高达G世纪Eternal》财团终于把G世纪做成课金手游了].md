@@ -1424,3 +1424,16 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 对付这种会脱出的机一般都这样处理，像铁血EX关，你不小心在敌方回合把残狼放出来你就仆街了
 
+
+*****
+
+####  洛克萨斯  
+##### 3092#       发表于 2025-11-20 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68751599&amp;ptid=2071758" target="_blank">KTD 发表于 2025-11-20 08:52</a>
+
+第一次打通20层，有一种单机的爽
+
+最后一关，突然出来的boss机体连杀我三台机体，被我方最后的三台机体堪堪 ...</blockquote>
+我打的时候是控制伤害的，第一波上debuff控制到五十血以上，不触发他被动，第二波直接灌死，一回合干掉他
+
