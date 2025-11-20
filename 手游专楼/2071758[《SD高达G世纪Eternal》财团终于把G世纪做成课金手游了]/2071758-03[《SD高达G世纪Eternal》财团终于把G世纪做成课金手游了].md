@@ -1437,3 +1437,26 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 最后一关，突然出来的boss机体连杀我三台机体，被我方最后的三台机体堪堪 ...</blockquote>
 我打的时候是控制伤害的，第一波上debuff控制到五十血以上，不触发他被动，第二波直接灌死，一回合干掉他
 
+
+*****
+
+####  blue321  
+##### 3093#       发表于 2025-11-20 17:56
+
+想偷懒了，楼友们20层有好作业推荐吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  洛克萨斯  
+##### 3094#       发表于 2025-11-20 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68754668&amp;ptid=2071758" target="_blank">blue321 发表于 2025-11-20 17:56</a>
+
+想偷懒了，楼友们20层有好作业推荐吗
+
+—— 来自 鹅球 v3.4.98</blockquote>
+你有什么船，有专用机或者一击必杀的话可以用我上面说的开发狼王+ur三明的套路
+
