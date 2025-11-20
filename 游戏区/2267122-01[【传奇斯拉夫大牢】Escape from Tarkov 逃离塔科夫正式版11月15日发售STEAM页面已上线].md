@@ -1206,3 +1206,21 @@ scav真的能玩吗，这无限匹配加载，pve也一样
 
 S1有没有讨论群？
 
+
+*****
+
+####  Ai_shuang  
+##### 105#       发表于 2025-11-20 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68753443&amp;ptid=2267122" target="_blank">cauchua3 发表于 2025-11-20 14:07</a>
+
+S1有没有讨论群？</blockquote>
+s1的没找到，但是有个隔壁泥潭的讨论群：769797514
+
+*****
+
+####  Ai_shuang  
+##### 106#       发表于 2025-11-20 16:11
+
+现在马林这个杠杆步枪在任务中算栓动步枪，大伙趁没修赶快做神射手任务吧
+
