@@ -6425,3 +6425,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">0神闪梅林档打个6词条🦀走人了，追神闪还是太牢了
 
+
+*****
+
+####  暗口崩子  
+##### 566#       发表于 2025-11-20 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打个螃蟹8走了，不刷了
+
+刷了两三天N8，每天刷到骰子清空，今天才出2攻防移动+1连续升龙，真的吐了，这游戏未来不做重roll闪光估计以后也没耐心刷存档了
+
