@@ -1185,3 +1185,16 @@ scav真的能玩吗，这无限匹配加载，pve也一样
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Emcylla  
+##### 103#       发表于 2025-11-20 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68750238&amp;ptid=2267122" target="_blank">77BBC 发表于 2025-11-19 21:04</a>
+
+scav真的能玩吗，这无限匹配加载，pve也一样
+
+—— 来自 S1Fun</blockquote>
+换几个服试试，我自己玩scav开局还挺快的
+
