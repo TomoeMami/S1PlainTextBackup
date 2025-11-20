@@ -1409,3 +1409,18 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 太惊心动魄了
 
+
+*****
+
+####  电脑死机  
+##### 3091#       发表于 2025-11-20 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68751599&amp;ptid=2071758" target="_blank">KTD 发表于 2025-11-20 08:52</a>
+
+第一次打通20层，有一种单机的爽
+
+最后一关，突然出来的boss机体连杀我三台机体，被我方最后的三台机体堪堪 ...</blockquote>
+那货就是要算好时机，自己回合占领格子打出真身，然后正义的群殴搞定的
+
+对付这种会脱出的机一般都这样处理，像铁血EX关，你不小心在敌方回合把残狼放出来你就仆街了
+
