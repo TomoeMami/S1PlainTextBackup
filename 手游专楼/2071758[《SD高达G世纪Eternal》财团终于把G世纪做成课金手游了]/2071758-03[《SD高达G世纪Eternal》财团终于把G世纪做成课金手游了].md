@@ -1494,3 +1494,11 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 有神高达啊，那没事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽到的还在挣扎呢
 
+
+*****
+
+####  岸波白野  
+##### 3098#       发表于 2025-11-21 02:44
+
+死亡冲锋13层蹦到17层真蹦不动了，他这个老关以后要是没些跳既有关机制或精简层数(奖励不变)，那我要收回之前觉得这个玩法还不错的评价<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
