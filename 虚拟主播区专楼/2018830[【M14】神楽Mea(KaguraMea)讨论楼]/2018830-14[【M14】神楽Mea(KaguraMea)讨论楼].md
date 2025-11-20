@@ -10209,3 +10209,13 @@ NAS的话就是NAS(Network Attached Storage)，和路由器有关的硬件术语
 
 应该还是之前换路由器等延伸出来的一系列问题吧，看来咩还是得好好调调才行
 
+
+*****
+
+####  sino__unnko3  
+##### 19896#       发表于 2025-11-21 02:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68756349&amp;ptid=2018830" target="_blank">术士q 发表于 2025-11-21 02:32</a>
+NAS的话就是NAS(Network Attached Storage)，一种接在路由器上的硬件，这个相当于一个家庭云盘，接在路由 ...</blockquote>
+我知道NAS，但你咩没怎么提起过这个NAS，而且NAS吃技术水平，不知道你咩之前咋配置的
+
