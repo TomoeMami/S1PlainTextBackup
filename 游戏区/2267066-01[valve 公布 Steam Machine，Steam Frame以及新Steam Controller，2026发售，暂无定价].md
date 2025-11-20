@@ -3986,3 +3986,13 @@ valve发言人接受Linus tech tip采访时透露，他们认为steam machine的
 
 那可太硬核了
 
+
+*****
+
+####  sablexc  
+##### 375#       发表于 2025-11-20 23:13
+
+没事，别说700刀，7000块批皮豚哥还是能来说索尼要急眼了
+
+—— 來自 vivo V2303A, Android 15, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
