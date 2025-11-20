@@ -1460,3 +1460,16 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 —— 来自 鹅球 v3.4.98</blockquote>
 你有什么船，有专用机或者一击必杀的话可以用我上面说的开发狼王+ur三明的套路
 
+
+*****
+
+####  blue321  
+##### 3095#       发表于 2025-11-20 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68754689&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-11-20 18:00</a>
+你有什么船，有专用机或者一击必杀的话可以用我上面说的开发狼王+ur三明的套路 ...</blockquote>
+专用，监牢，王牌，电光石火
+刚好有专用机可以试试<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
