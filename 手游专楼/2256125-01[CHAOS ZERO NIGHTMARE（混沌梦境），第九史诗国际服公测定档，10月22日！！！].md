@@ -6407,3 +6407,11 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 这螃蟹真的是每回合晒一张辣鸡吗 怎么感觉没回合起码塞3张啊 没打多久就全在抽这气泡了
 
+
+*****
+
+####  qixinno2  
+##### 564#       发表于 2025-11-20 19:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正各个发帖几回合踢死 我每次都是几回合被踢死 傻逼档谁爱耍谁刷 打完体力直接下线 每天上线都是零提升
+
