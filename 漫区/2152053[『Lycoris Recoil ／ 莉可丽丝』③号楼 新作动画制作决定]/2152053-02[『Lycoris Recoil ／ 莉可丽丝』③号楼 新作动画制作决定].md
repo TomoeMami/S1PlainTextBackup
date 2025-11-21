@@ -14,3 +14,13 @@
 
 又出蓝牙耳机骗钱<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 2409#       发表于 2025-11-21 09:14
+
+看了一眼是旧款版本号更新……
+
+Million live那款是连不了windows 10 pc的，不知道这个怎么样……
+
