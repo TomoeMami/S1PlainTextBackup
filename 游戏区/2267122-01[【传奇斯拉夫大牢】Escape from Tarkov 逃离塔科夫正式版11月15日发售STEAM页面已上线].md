@@ -1234,3 +1234,19 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 玩了几天开了藏身处基建之后终于开始少坐牢了，复键不少。感觉透还是有，自瞄之类感觉没有，也基本没碰到萌 ...</blockquote>
 大锤周围的scav是敌对的好像
 
+
+*****
+
+####  Ai_shuang  
+##### 108#       发表于 2025-11-21 16:04
+
+<img src="https://img.stage1st.com/forum/202511/21/160354ifkwg7fhfkzk0gfy.png" referrerpolicy="no-referrer">
+
+<strong>FN%MJSR%CQR93WOE1N){TYK.png</strong> (90.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-21 16:03 上传
+
+太聪明了尼基塔，竞技场任务要本体和竞技场来回跳转，就不能在一个游戏里交接任务吗
+
