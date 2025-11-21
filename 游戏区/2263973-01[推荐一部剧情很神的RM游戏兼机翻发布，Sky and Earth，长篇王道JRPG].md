@@ -1379,3 +1379,14 @@ ed没写，readme里写了
 
 只是……如果有个更好的关卡就好了……真的……<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 117#       发表于 2025-11-21 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68756368&amp;ptid=2263973" target="_blank">慕容断月 发表于 2025-11-21 03:05</a>
+
+ed没写，readme里写了</blockquote>
+readme里一样只写了素材之类，没写cg委托的画师
+
