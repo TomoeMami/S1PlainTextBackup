@@ -6480,3 +6480,11 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 某些人天天喊着要抬当期UP的定制环境来喽<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dreki  
+##### 572#       发表于 2025-11-21 21:08
+
+一直搞不懂为啥一堆人想加强当期角色，觉得强度不够不抽就完了，又不是啥剧情已经出了的高人气角色<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
