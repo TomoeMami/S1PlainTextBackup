@@ -6443,3 +6443,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 刷了个过牌形态德蕾莎，配上之前的夹击狼，低练度打通螃蟹难四9词条，还是挺有成就感的，就是boss还是少了点，打完没啥动力接着进难8t13刷了，估计攒攒资源等千鹤了。
 
+
+*****
+
+####  orangee  
+##### 568#       发表于 2025-11-21 15:31
+
+费劲巴拉的凹半天用没有移动只有火腿的梅玲把螃蟹9打死了，梅玲真就是数值美<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
