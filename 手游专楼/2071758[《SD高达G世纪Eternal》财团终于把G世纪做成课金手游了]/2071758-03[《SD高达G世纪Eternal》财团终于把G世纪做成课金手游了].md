@@ -1523,3 +1523,13 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 3101#       发表于 2025-11-21 10:14
+
+那我这次不打下次可以去历史记录里打么，最近比较忙<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
