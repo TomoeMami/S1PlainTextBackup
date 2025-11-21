@@ -6488,3 +6488,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 一直搞不懂为啥一堆人想加强当期角色，觉得强度不够不抽就完了，又不是啥剧情已经出了的高人气角色<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 573#       发表于 2025-11-21 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68761088&amp;ptid=2256125" target="_blank">Dreki 发表于 2025-11-21 21:08</a>
+
+一直搞不懂为啥一堆人想加强当期角色，觉得强度不够不抽就完了，又不是啥剧情已经出了的高人气角色 ...</blockquote>
+本质上是小头操控大头，现在0命有纪都能顶着群攻DEBUFF过螃蟹9了，高配打螃蟹表现也比小春好，也没上米老鼠，不还是一堆人找各种理由说最弱5星
+
