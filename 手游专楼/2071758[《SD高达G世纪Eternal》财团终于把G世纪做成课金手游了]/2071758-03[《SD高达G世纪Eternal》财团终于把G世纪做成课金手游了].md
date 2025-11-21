@@ -1533,3 +1533,13 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 3102#       发表于 2025-11-21 13:27
+
+这个赛季最猛的应该是神和沙扎比了吧
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
