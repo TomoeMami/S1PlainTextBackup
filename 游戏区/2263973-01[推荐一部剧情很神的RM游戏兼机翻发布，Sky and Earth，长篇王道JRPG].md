@@ -1390,3 +1390,13 @@ ed没写，readme里写了
 ed没写，readme里写了</blockquote>
 readme里一样只写了素材之类，没写cg委托的画师
 
+
+*****
+
+####  pf67  
+##### 118#       发表于 2025-11-21 20:22
+
+秘境太多，我觉得还是这种直来直去的关卡好，要不然节奏会被拖慢太多
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
