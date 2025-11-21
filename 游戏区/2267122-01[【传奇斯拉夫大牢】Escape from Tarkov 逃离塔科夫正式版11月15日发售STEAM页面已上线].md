@@ -1250,3 +1250,30 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 
 太聪明了尼基塔，竞技场任务要本体和竞技场来回跳转，就不能在一个游戏里交接任务吗
 
+
+*****
+
+####  银月术士329  
+##### 109#         楼主| 发表于 2025-11-21 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68759420&amp;ptid=2267122" target="_blank">Ai_shuang 发表于 2025-11-21 16:04</a>
+
+太聪明了尼基塔，竞技场任务要本体和竞技场来回跳转，就不能在一个游戏里交接任务吗
+
+ ...</blockquote>
+不可以的<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">，趁这两天亚服新手多赶紧做吧，最好找老资历组队一起做
+
+我再创高峰124组队乱创
+
+不过想要进服务器快还是得俄服 亚服服务器资源太少了
+
+*****
+
+####  银月术士329  
+##### 110#         楼主| 发表于 2025-11-21 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68754093&amp;ptid=2267122" target="_blank">Ai_shuang 发表于 2025-11-20 16:11</a>
+
+现在马林这个杠杆步枪在任务中算栓动步枪，大伙趁没修赶快做神射手任务吧 ...</blockquote>
+感觉尼基塔好像不打算修，刚更新的时候一度霰弹枪也算，昨天更新不算霰弹枪了但是栓动还算
+
