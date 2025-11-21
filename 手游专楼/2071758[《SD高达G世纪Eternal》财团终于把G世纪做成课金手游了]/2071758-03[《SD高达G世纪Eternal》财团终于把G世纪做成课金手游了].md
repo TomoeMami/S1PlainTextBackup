@@ -1502,3 +1502,14 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 死亡冲锋13层蹦到17层真蹦不动了，他这个老关以后要是没些跳既有关机制或精简层数(奖励不变)，那我要收回之前觉得这个玩法还不错的评价<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3099#       发表于 2025-11-21 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68756358&amp;ptid=2071758" target="_blank">岸波白野 发表于 2025-11-21 02:44</a>
+
+死亡冲锋13层蹦到17层真蹦不动了，他这个老关以后要是没些跳既有关机制或精简层数(奖励不变)，那我要收回之 ...</blockquote>
+你不看攻略的话17层和15层是想不到用地图炮逃课的，然后18层严选你会飞的box，19和20考验你的硬实力
+
