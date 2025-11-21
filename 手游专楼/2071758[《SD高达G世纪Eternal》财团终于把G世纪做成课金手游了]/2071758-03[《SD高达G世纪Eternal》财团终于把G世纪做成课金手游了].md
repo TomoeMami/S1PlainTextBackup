@@ -1553,3 +1553,16 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 3104#       发表于 2025-11-21 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68758868&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-11-21 14:36</a>
+
+昨晚看攻略打了19层，拿了妹子，20层不想了，太晚太困了，一旦miss就是吐血，就1500钻，不要了
+
+—— 来自  ...</blockquote>
+ur机优点就是必中了，开发sp红机要看脸
+
