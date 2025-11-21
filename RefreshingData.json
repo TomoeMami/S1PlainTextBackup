@@ -2736,10 +2736,10 @@
     "update": false
   },
   "2013983": {
-    "totalreply": 3021,
+    "totalreply": 3022,
     "title": "[『鬼灭之刃 游郭篇』完结 &amp; 『锻刀村篇』TV动画化]",
     "newtitle": "[『鬼灭之刃』动画楼《无限城篇 第一章 猗窝座再袭》内地定档11月14日上映！]",
-    "lastedit": 1763690421,
+    "lastedit": 1763701463,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 21730,
+    "totalreply": 21732,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1763700975,
+    "lastedit": 1763701691,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 27335,
+    "totalreply": 27337,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1763700733,
+    "lastedit": 1763701339,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12488,7 +12488,7 @@
     "newtitle": "[独立游戏新作推荐：BALL x PIT - 球比伦战记]",
     "lastedit": 1763442376,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2263973": {
@@ -13509,10 +13509,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 3874,
+    "totalreply": 3876,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1763701098,
+    "lastedit": 1763701462,
     "category": "外野",
     "active": true,
     "update": false
@@ -16749,10 +16749,10 @@
     "update": false
   },
   "2267635": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[狂战传说／绯夜传奇Remaster 2026.2.26发售]",
     "newtitle": "[狂战传说／绯夜传奇Remaster 2026.2.26发售]",
-    "lastedit": 1763700017,
+    "lastedit": 1763701584,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17118,10 +17118,10 @@
     "update": false
   },
   "2267700": {
-    "totalreply": 62,
+    "totalreply": 64,
     "title": "[她如此回答：“是对我来说，最爱的哥哥”]",
     "newtitle": "[她如此回答：“是对我来说，最爱的哥哥”]",
-    "lastedit": 1763699184,
+    "lastedit": 1763701461,
     "category": "外野",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2267729": {
-    "totalreply": 70,
+    "totalreply": 74,
     "title": "[金摇杆2025出炉]",
     "newtitle": "[金摇杆2025出炉]",
-    "lastedit": 1763700613,
+    "lastedit": 1763701579,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17190,10 +17190,10 @@
     "update": false
   },
   "2267738": {
-    "totalreply": 64,
+    "totalreply": 69,
     "title": "[米哈游虚幻五新作《Varsapura（雨之城）》实机发布]",
     "newtitle": "[米哈游虚幻五新作《Varsapura（雨之城）》实机发布]",
-    "lastedit": 1763700977,
+    "lastedit": 1763701582,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17226,11 +17226,20 @@
     "update": false
   },
   "2267694": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[我才知道生酮饮食还得注意摄入一定含量的脂肪的]",
     "newtitle": "[我才知道生酮饮食还得注意摄入一定含量的脂肪的]",
-    "lastedit": 1763701098,
+    "lastedit": 1763701464,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2267745": {
+    "totalreply": 41,
+    "title": "[就玩游戏而言，还有必要守着WIN10吗？WIN11是否有专属优化？]",
+    "newtitle": "[就玩游戏而言，还有必要守着WIN10吗？WIN11是否有专属优化？]",
+    "lastedit": 1763701585,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
