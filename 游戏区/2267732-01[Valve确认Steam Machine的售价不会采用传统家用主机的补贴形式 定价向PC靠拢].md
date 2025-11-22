@@ -401,3 +401,17 @@ Steam上会购买这个的只有那些有大量游戏，但始终不想进入主
 按这么说索尼现在ps5硬件回本了是不是可以搞个办公主机再赚一波钱</blockquote>
 sony office station，预装windows11
 
+
+*****
+
+####  ayeah  
+##### 44#       发表于 2025-11-22 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68756878&amp;ptid=2267732" target="_blank">simonroam 发表于 2025-11-21 09:24</a>
+本来就是个PC，游戏主机只能拿来娱乐/玩游戏, 这是这么多年发展出来的规律
+
+很多人吹上天说白了就是又想要P ...</blockquote>
+问题是这配置有点拉了，不过机箱什么的确实还可以
+
+—— 来自 HUAWEI CLS-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
