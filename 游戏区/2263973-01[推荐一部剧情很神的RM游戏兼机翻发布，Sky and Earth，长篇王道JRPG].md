@@ -1438,3 +1438,14 @@ readme里一样只写了素材之类，没写cg委托的画师
 150小时全通，150级封顶，后期那堆高等级迷宫，没啥惊喜，也没其他结局，不特别喜欢可以不打。 ...</blockquote>
 全成就之后有个差不多一小时的短篇后日谈，玩了吗
 
+
+*****
+
+####  Alice.Andvari  
+##### 123#       发表于 2025-11-22 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68762344&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-11-22 09:15</a>
+
+全成就之后有个差不多一小时的短篇后日谈，玩了吗</blockquote>
+是吗。我漏了几个强敌，有空找一下。
+
