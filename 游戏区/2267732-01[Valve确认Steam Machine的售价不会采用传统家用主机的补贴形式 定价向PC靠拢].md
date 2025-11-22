@@ -390,3 +390,14 @@ Steam上会购买这个的只有那些有大量游戏，但始终不想进入主
 
 要漲一起漲的 物料成本擺在那 最近半導體可是瘋漲 按大合同怕是PS6到時1000刀打不住
 
+
+*****
+
+####  精钢魔像  
+##### 43#       发表于 2025-11-22 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68763601&amp;ptid=2267732" target="_blank">Unbiquitous 发表于 2025-11-22 15:31</a>
+
+按这么说索尼现在ps5硬件回本了是不是可以搞个办公主机再赚一波钱</blockquote>
+sony office station，预装windows11
+
