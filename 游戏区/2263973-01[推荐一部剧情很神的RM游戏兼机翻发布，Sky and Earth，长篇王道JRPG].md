@@ -1515,3 +1515,16 @@ readme里一样只写了素材之类，没写cg委托的画师
 现在45小时，7章飞空艇刚拿到清了一波支线，我感觉我玩的算比较慢的，初见迷宫都全清怪，还会轻刷级一会儿。npc对话80%也会刷一波看有没有更新。支线魔境都全清。
 如果都过半了是不是到八九十小时就通了
 
+
+*****
+
+####  urvark  
+##### 130#       发表于 2025-11-23 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68763294&amp;ptid=2263973" target="_blank">七千星 发表于 2025-11-22 13:58</a>
+
+请教下，有能改键位WSAD的办法吗？
+
+按AI改rpg.core.js，结果弹“发生个人资料错误。您的个人资料来自更高版 ...</blockquote>
+拿AHK写个脚本改……
+
