@@ -1449,3 +1449,14 @@ readme里一样只写了素材之类，没写cg委托的画师
 全成就之后有个差不多一小时的短篇后日谈，玩了吗</blockquote>
 是吗。我漏了几个强敌，有空找一下。
 
+
+*****
+
+####  七千星  
+##### 124#       发表于 2025-11-22 13:58
+
+请教下，有能改键位WSAD的办法吗？
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">按AI改rpg.core.js，结果弹“发生个人资料错误。您的个人资料来自更高版本的NW.js，因此无法使用。”
+
+而且A键怎么改都无响应。
+
