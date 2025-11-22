@@ -1502,3 +1502,16 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bixinhaner  
+##### 129#       发表于 2025-11-22 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68764646&amp;ptid=2263973" target="_blank">pf67 发表于 2025-11-22 20:22</a>
+但是7章特别特别长，按我这的游戏时间40多小时才1/4
+
+—— 来自 Xiaomi 25042PN24C, Android 15, 鹅球 v3 ...</blockquote>
+现在45小时，7章飞空艇刚拿到清了一波支线，我感觉我玩的算比较慢的，初见迷宫都全清怪，还会轻刷级一会儿。npc对话80%也会刷一波看有没有更新。支线魔境都全清。
+如果都过半了是不是到八九十小时就通了
+
