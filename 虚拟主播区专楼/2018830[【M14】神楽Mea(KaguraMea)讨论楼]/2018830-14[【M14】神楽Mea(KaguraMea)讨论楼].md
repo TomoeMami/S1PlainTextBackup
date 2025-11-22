@@ -11418,3 +11418,15 @@ aut群里会发拼好音的车
 也欢迎大家在回放下面 写下你们的感想。
 那么，来了哦—— 预备——
 
+
+*****
+
+####  sino__unnko3  
+##### 19903#       发表于 2025-11-22 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68743723&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-11-18 18:02</a>
+独角兽11月21日晚10点准时入土
+
+但大概会各种春秋笔法+搪塞+替换细节和人称，以保持偶像人设</blockquote>
+在这方面来说没啥有用信息，倒也某种程度上在意料之中，即借联动做一个宣称和告知
+
