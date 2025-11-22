@@ -1419,3 +1419,11 @@ readme里一样只写了素材之类，没写cg委托的画师
 玩到第六章结束了，43小时，流程算过半了吗？</blockquote>
 不算通关后附加内容的话，过半了，游戏总共就11章，最后一章还特别短
 
+
+*****
+
+####  Alice.Andvari  
+##### 121#       发表于 2025-11-22 08:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">150小时全通，150级封顶，后期那堆高等级迷宫，没啥惊喜，也没其他结局，不特别喜欢可以不打。
+
