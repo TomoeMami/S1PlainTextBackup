@@ -1427,3 +1427,14 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">150小时全通，150级封顶，后期那堆高等级迷宫，没啥惊喜，也没其他结局，不特别喜欢可以不打。
 
+
+*****
+
+####  blueelf  
+##### 122#         楼主| 发表于 2025-11-22 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68762299&amp;ptid=2263973" target="_blank">Alice.Andvari 发表于 2025-11-22 08:52</a>
+
+150小时全通，150级封顶，后期那堆高等级迷宫，没啥惊喜，也没其他结局，不特别喜欢可以不打。 ...</blockquote>
+全成就之后有个差不多一小时的短篇后日谈，玩了吗
+
