@@ -425,3 +425,16 @@ sony office station，预装windows11
 
 算上内存 硬盘爆涨国内3000能装出来了吧
 
+
+*****
+
+####  浅色轮回  
+##### 46#       发表于 2025-11-23 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68765286&amp;ptid=2267732" target="_blank">keytomylife 发表于 2025-11-22 23:11</a>
+
+6C12T ZEN4+7600M+16G+512G的机器
+
+算上内存 硬盘爆涨国内3000能装出来了吧</blockquote>
+能，sm这个zen4看爆料三缓被砍，那就和5600拉不开太大差距，5600 16+512整机在pdd现在也就1700左右，1200块在海鲜市场6750gre随便买
+

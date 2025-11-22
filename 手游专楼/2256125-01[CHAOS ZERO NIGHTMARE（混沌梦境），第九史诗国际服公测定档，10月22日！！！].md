@@ -6536,3 +6536,17 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 打算一队梅林鼠鼠雷伊
 一队米卡+狼刀/小春百蜜儿，因为资源有限想问问哪个组合比较好，都是没有命座专武
 
+
+*****
+
+####  orangee  
+##### 578#       发表于 2025-11-23 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68765421&amp;ptid=2256125" target="_blank">LMBS 发表于 2025-11-23 00:09</a>
+晚了两周才入坑，上次的深渊就打了7层，这次想试试能不能打满
+
+打算一队梅林鼠鼠雷伊</blockquote>
+我没雨果，就卡莉佩，百丽尔，雷伊，米卡，维神，梅玲这6个55的打的深渊，雨果有属性克制应该更好打吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
