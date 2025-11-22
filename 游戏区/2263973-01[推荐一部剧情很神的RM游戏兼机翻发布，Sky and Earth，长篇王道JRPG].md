@@ -1478,3 +1478,14 @@ readme里一样只写了素材之类，没写cg委托的画师
 支线任务里面有个托托村在哪</blockquote>
 迪克王子老家，天空城乌尔加德左上方
 
+
+*****
+
+####  永远的访客  
+##### 127#       发表于 2025-11-22 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68764294&amp;ptid=2263973" target="_blank">麦吉卡 发表于 2025-11-22 18:26</a>
+
+支线任务里面有个托托村在哪</blockquote>
+翻译问题，旧版机翻里任务名字和地图上的村子名字对不上，主楼更新的那个版本解决了这个问题<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
