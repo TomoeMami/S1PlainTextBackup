@@ -382,3 +382,11 @@ Steam上会购买这个的只有那些有大量游戏，但始终不想进入主
 
 按这么说索尼现在ps5硬件回本了是不是可以搞个办公主机再赚一波钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gofbayrf  
+##### 42#       发表于 2025-11-22 20:16
+
+要漲一起漲的 物料成本擺在那 最近半導體可是瘋漲 按大合同怕是PS6到時1000刀打不住
+

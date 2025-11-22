@@ -1489,3 +1489,16 @@ readme里一样只写了素材之类，没写cg委托的画师
 支线任务里面有个托托村在哪</blockquote>
 翻译问题，旧版机翻里任务名字和地图上的村子名字对不上，主楼更新的那个版本解决了这个问题<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 128#       发表于 2025-11-22 20:22
+
+ 本帖最后由 pf67 于 2025-11-22 20:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68762270&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-11-22 08:43</a>
+不算通关后附加内容的话，过半了，游戏总共就11章，最后一章还特别短</blockquote>
+但是7章特别特别长，按我这的游戏时间40多小时才1/4
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
