@@ -415,3 +415,13 @@ sony office station，预装windows11
 
 —— 来自 HUAWEI CLS-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  keytomylife  
+##### 45#       发表于 2025-11-22 23:11
+
+6C12T ZEN4+7600M+16G+512G的机器
+
+算上内存 硬盘爆涨国内3000能装出来了吧
+
