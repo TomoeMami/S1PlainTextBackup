@@ -1408,3 +1408,14 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 玩到第六章结束了，43小时，流程算过半了吗？
 
+
+*****
+
+####  blueelf  
+##### 120#         楼主| 发表于 2025-11-22 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68761983&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-11-22 02:17</a>
+
+玩到第六章结束了，43小时，流程算过半了吗？</blockquote>
+不算通关后附加内容的话，过半了，游戏总共就11章，最后一章还特别短
+
