@@ -150,3 +150,20 @@
 
 这几集虽然整体作画一般但总有个别卡画的不错不知道是用了技术还是抓到了真爱粉
 
+
+*****
+
+####  leleq  
+##### 1402#       发表于 2025-11-24 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767054&amp;ptid=2208663" target="_blank">経緯 发表于 2025-11-23 14:51</a>
+
+我真的每次都想问这片子到底有没有系构
+
+鉴于本作对偶像社团的描写约等于没有，我真的很难不支持废除偶像研 ...</blockquote>
+今年开播前我就说加藤是个影子（摸鱼）脚本了，这个比水平全靠监督带，监督认真写的就还行没人管就摸鱼。
+
+问题是有好监督谁还在意脚本啊……
+
+今年铅球感觉也是三分钟热情开头一过就摸鱼了，也可能是和上面的大人斗输了累了不想写了……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

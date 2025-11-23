@@ -1313,3 +1313,14 @@ zaimanhua，manhuagui这些都行
 自汉化截至第18话为止的4ch网友整体的关系表</blockquote>
 对了，Minsaber这个名字跟BLAME里面Mensab一样，其实都是Main Server主服务器的变体
 
+
+*****
+
+####  zzf111  
+##### 144#       发表于 2025-11-23 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768766&amp;ptid=2159012" target="_blank">鱼雷鲨 发表于 2025-11-23 23:51</a>
+
+对了，Minsaber这个名字跟BLAME里面Mensab一样，其实都是Main Server主服务器的变体 ...</blockquote>
+日本人vb不分搞得好多隐藏信息都get不到<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
