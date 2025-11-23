@@ -1566,3 +1566,27 @@ UR带突破的就想到一个没抽的GP03D……</blockquote>
 —— 来自  ...</blockquote>
 ur机优点就是必中了，开发sp红机要看脸
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3105#       发表于 2025-11-24 00:43
+
+<img src="https://img.stage1st.com/forum/202511/24/004236l88mzbyn5nnhey88.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_G世纪 永恒_20251124_004142.jpg</strong> (490.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-24 00:42 上传
+
+<img src="https://img.stage1st.com/forum/202511/24/004236hqpb7fg1n8iabwbw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_G世纪 永恒_20251124_004125.jpg</strong> (592.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-24 00:42 上传
+
+最朴素的一次
+
