@@ -91,3 +91,35 @@
 
 鉴于本作对偶像社团的描写约等于没有，我真的很难不支持废除偶像研究部诶，明明花的是学校的经费但你们一天到晚都在干什么？我不知道啊？
 
+
+*****
+
+####  粉儿alice  
+##### 1397#       发表于 2025-11-23 14:57
+
+今年涉及到男人的剧情回 作画就变的非常好 响凯特就从来没有大崩过<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1398#       发表于 2025-11-23 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767054&amp;ptid=2208663" target="_blank">経緯 发表于 2025-11-23 14:51</a>
+我真的每次都想问这片子到底有没有系构
+
+鉴于本作对偶像社团的描写约等于没有，我真的很难不支持废除偶像研 ...</blockquote>
+问加藤在干嘛呗<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 这集编剧是他和稻叶一起上的
+反正从去年宠物剧场版表现来看 他就没有认真来写q娃过
+
+*****
+
+####  経緯  
+##### 1399#       发表于 2025-11-23 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767077&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-11-23 15:01</a>
+
+问加藤在干嘛呗 这集编剧是他和稻叶一起上的
+
+反正从去年宠物剧场版表现来看 他就没有认真来写q娃过 ...</blockquote>
+我觉得他已经丧失写偶像题材剧本的能力了，今年完全是《偶像大师闪耀色彩》精神续作
+
