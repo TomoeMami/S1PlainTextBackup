@@ -6613,3 +6613,23 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 还有吉他英雄电表倒转，四星都是怪物啊
 
+
+*****
+
+####  qixinno2  
+##### 583#       发表于 2025-11-23 21:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么无敌都没用 根本没资源去练角色
+
+
+*****
+
+####  掉头学姐  
+##### 584#       发表于 2025-11-23 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768357&amp;ptid=2256125" target="_blank">qixinno2 发表于 2025-11-23 21:36</a>
+什么无敌都没用 根本没资源去练角色</blockquote>
+【【卡厄斯梦境】小丑：打牌！爽！-哔哩哔哩】 https://b23.tv/jkpm9mL
+
+44级小丑过9级螃蟹，44级应该不耗多少资源<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
