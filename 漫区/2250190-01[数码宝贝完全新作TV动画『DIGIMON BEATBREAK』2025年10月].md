@@ -36,3 +36,11 @@
 
 以及hitomi这算坐实受迫害役了吧www已经算是主角塑造工具人了
 
+
+*****
+
+####  TOYSTORY  
+##### 288#       发表于 2025-11-23 12:28
+
+还是没变成熟期，壁虎这进化速度历代最慢了吧，应该破基尔兽的记录了？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
