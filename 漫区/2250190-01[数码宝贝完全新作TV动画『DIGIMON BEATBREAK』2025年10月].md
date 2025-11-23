@@ -77,3 +77,13 @@
 
 da光是探索就能写多少，人数也比dbb多，没法比吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且即使是同系构的ds也没感觉那么，散
 
+
+*****
+
+####  6030sylar  
+##### 293#       发表于 2025-11-23 16:27
+
+跟ds一样，一开始**磨合部分非常无聊
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
