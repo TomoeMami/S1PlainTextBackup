@@ -1586,3 +1586,22 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 怪物数量和魔境控制的也好，很多国产rm为了托大家时间，要么无尽迷宫，要么大量暗雷。
 
+
+*****
+
+####  pf67  
+##### 136#       发表于 2025-11-24 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68762344&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-11-22 09:15</a>
+
+全成就之后有个差不多一小时的短篇后日谈，玩了吗</blockquote>
+打完了闭眼之兽还有3个成就没解锁，分别是啥啊
+
+<img src="https://img.stage1st.com/forum/202511/24/015309s63looo5n885ize9.png" referrerpolicy="no-referrer">
+
+<strong>76a8af49-0309-4817-8ba6-05a90163364f.png</strong> (512.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-24 01:53 上传
+
