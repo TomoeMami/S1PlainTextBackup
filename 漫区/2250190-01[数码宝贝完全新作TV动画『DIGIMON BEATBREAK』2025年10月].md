@@ -95,3 +95,11 @@ da光是探索就能写多少，人数也比dbb多，没法比吧<img src="https
 
 男主用很觉悟的表情在同学面前选择了不登校<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 295#       发表于 2025-11-23 23:10
+
+笑死，智朗成绩差所以“促使”最后阶段的攻击无效，你也不登校了吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，不过像这种很容易暴走的母体被直接消除也是有道理的吧
+
