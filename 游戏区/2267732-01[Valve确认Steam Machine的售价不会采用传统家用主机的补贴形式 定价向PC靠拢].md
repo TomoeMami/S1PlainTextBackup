@@ -448,3 +448,16 @@ sony office station，预装windows11
 
 我买这个串流SD估计会占一半的使用率，自己装静音不好整
 
+
+*****
+
+####  精钢魔像  
+##### 48#       发表于 2025-11-23 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767081&amp;ptid=2267732" target="_blank">暗黑の命运 发表于 2025-11-23 15:02</a>
+
+最值钱的感觉是静音，我有这个主机的需求，4000-4500估计会硬着头皮买，4000以下无脑入，4500以上就不买了
+
+ ...</blockquote>
+xsx大部分情况下可以静音。sm这么小，估计做不到。
+
