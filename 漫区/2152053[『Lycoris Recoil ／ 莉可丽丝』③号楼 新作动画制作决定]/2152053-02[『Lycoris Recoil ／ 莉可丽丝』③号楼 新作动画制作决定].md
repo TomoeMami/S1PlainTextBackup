@@ -32,3 +32,21 @@ Million live那款是连不了windows 10 pc的，不知道这个怎么样……
 
 买买买买买不起<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2411#       发表于 2025-11-23 22:28
+
+泡面番《莉可丽丝：友谊是时间的窃贼》首周销量为11460。
+
+一个能打的都没有.jpg
+
+
+*****
+
+####  HANDAIYV  
+##### 2412#       发表于 2025-11-23 22:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">制作组：泡面番都这么能打，不如把第二季往后推推，先多出泡面番吧，等快凉了再把第二季搬出来（
+
