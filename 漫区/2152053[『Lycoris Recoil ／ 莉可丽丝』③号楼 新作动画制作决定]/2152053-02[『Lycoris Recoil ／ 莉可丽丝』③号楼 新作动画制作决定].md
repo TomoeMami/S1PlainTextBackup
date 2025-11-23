@@ -50,3 +50,11 @@ Million live那款是连不了windows 10 pc的，不知道这个怎么样……
 
 <img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">制作组：泡面番都这么能打，不如把第二季往后推推，先多出泡面番吧，等快凉了再把第二季搬出来（
 
+
+*****
+
+####  osore  
+##### 2413#       发表于 2025-11-23 22:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是泡面都懒得继续做
+
