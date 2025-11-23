@@ -123,3 +123,20 @@
 反正从去年宠物剧场版表现来看 他就没有认真来写q娃过 ...</blockquote>
 我觉得他已经丧失写偶像题材剧本的能力了，今年完全是《偶像大师闪耀色彩》精神续作
 
+
+*****
+
+####  pokemon最爱  
+##### 1400#       发表于 2025-11-23 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767054&amp;ptid=2208663" target="_blank">経緯 发表于 2025-11-23 14:51</a>
+
+我真的每次都想问这片子到底有没有系构
+
+鉴于本作对偶像社团的描写约等于没有，我真的很难不支持废除偶像研 ...</blockquote>
+研究会不是社团，所以大概不花学校的经费只是占用了学校的教室？<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而且人家kkr都是自费做谷的更不可能花经费了（
+
+主要这学校不开文化祭，要开文化祭的话这研究会是真能把偶Q5人组拉过来在学校内开小型Live的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
