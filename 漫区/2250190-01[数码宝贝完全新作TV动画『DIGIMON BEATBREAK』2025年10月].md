@@ -87,3 +87,11 @@ da光是探索就能写多少，人数也比dbb多，没法比吧<img src="https
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  dozen  
+##### 294#       发表于 2025-11-23 21:14
+
+男主用很觉悟的表情在同学面前选择了不登校<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
