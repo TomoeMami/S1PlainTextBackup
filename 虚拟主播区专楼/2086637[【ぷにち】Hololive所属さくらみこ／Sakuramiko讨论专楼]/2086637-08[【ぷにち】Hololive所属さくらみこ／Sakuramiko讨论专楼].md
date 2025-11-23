@@ -172,3 +172,34 @@
 
 不过真大头还是看明天全国限定9000套被秒光的餐垫筷子套装，市场价估计要上天的
 
+
+*****
+
+####  holofan  
+##### 11300#       发表于 2025-11-21 23:37
+
+<img src="https://img.stage1st.com/forum/202511/21/233704o8rxb7s282k681p7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-21 23:37 上传
+
+每次都怀疑技能树绝对点歪了这人
+
+*****
+
+####  holofan  
+##### 11301#       发表于 2025-11-23 22:19
+
+<img src="https://img.stage1st.com/forum/202511/23/221813v0i0ip2p22667zxj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-23 22:18 上传
+
+笑死了什么危言耸听，一个bot能把频道打没要是效果这么好早就有人用了
+

@@ -6633,3 +6633,16 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 44级小丑过9级螃蟹，44级应该不耗多少资源<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗口崩子  
+##### 585#       发表于 2025-11-23 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768318&amp;ptid=2256125" target="_blank">掉头学姐 发表于 2025-11-23 21:27</a>
+
+现在又多了丑刀队全四星无敌啊，过牌加无限叠果然会出现怪物啊，ug是啥玩意
+
+还有吉他英雄电表倒转，四星都 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉他英雄真的有点离谱了，我都想练一个
+
