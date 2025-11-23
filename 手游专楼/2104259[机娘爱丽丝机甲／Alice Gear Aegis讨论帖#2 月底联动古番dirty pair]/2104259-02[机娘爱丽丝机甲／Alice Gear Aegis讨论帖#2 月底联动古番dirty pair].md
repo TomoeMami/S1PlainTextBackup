@@ -190,3 +190,17 @@ FY14-34NW-YC3K-XLYA
 
 话说那些胶的兑换码坛友平时都是从哪搞的 直接买盒然后胶出二手？ 红猛禽等了半年了国内外二手市场都搜不到有人出码的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1750#       发表于 2025-11-24 02:10
+
+ 本帖最后由 冰风血羽 于 2025-11-24 02:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768084&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-11-23 20:16</a>
+话说那些胶的兑换码坛友平时都是从哪搞的 直接买盒然后胶出二手？ 红猛禽等了半年了国内外二手市场都搜不到 ...</blockquote>
+基本就是去黄鱼上买吧，贴吧也有个交易帖子不过应该人不多。千万别做买胶用码这种买株还珠的事，除非你自己就想拼起来玩（水贴地狱大概。毕竟那个码也没啥绝版物品，我没在寿屋官网看到里面详细有什么，按以往就是一套装备也就可能多个福袋这样。而且带着三星小迷糊应该也能刷到贝壳的，还有这几次搓玩具活动一次大成功直接三个贝壳，一定要做。
+<img src="https://p.sda1.dev/29/ce2f5d2cf1e672653e9bfae47f4f1108/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
