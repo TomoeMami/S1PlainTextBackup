@@ -6568,3 +6568,16 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 局外，梅林（克制）》定制存档克制=梅林（普通 相当于用30%暴击换弱点克制）》有数值的克制》其他
 
+
+*****
+
+####  暗口崩子  
+##### 580#       发表于 2025-11-23 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68766741&amp;ptid=2256125" target="_blank">phoenixxj 发表于 2025-11-23 13:23</a>
+
+这游戏脱离存档讨论强度都是耍流氓
+
+刷什么存档，组什么队友，队友是什么存档都决定了主c的强度，目前看来， ...</blockquote>
+梅玲明显是设计嗨了，好多独特机制，移动回手、常驻弱点、连续踢甚至计算的是全队数量
+

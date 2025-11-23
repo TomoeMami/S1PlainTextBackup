@@ -51,3 +51,11 @@
 富士小五郎真有本事也不会冷板凳坐穿了，他的下属小鹰是24岁进搜一的狠人，狼姐也是科班出生，怕不是只有他是凭本事进去的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过他推理都是现有线索下逻辑比较合理的搜查方向，不追求反转的话观众得出的结论也和他差不多，然而太莽不变通，混成这样全靠本事<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 431#       发表于 2025-11-23 19:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zzz也要八个方向随机剧透是吧，二骑剧透完玩具部跟着透
+
