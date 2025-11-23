@@ -140,3 +140,13 @@
 
 主要这学校不开文化祭，要开文化祭的话这研究会是真能把偶Q5人组拉过来在学校内开小型Live的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1401#       发表于 2025-11-23 23:54
+
+本集说好听点叫致敬回<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这几集虽然整体作画一般但总有个别卡画的不错不知道是用了技术还是抓到了真爱粉
+

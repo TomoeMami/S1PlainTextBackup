@@ -1302,3 +1302,14 @@ zaimanhua，manhuagui这些都行
 
 草
 
+
+*****
+
+####  鱼雷鲨  
+##### 143#       发表于 2025-11-23 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861144&amp;ptid=2159012" target="_blank">zzf111 发表于 2025-5-29 02:21</a>
+
+自汉化截至第18话为止的4ch网友整体的关系表</blockquote>
+对了，Minsaber这个名字跟BLAME里面Mensab一样，其实都是Main Server主服务器的变体
+
