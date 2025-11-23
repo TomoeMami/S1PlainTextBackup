@@ -1605,3 +1605,26 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 2025-11-24 01:53 上传
 
+
+*****
+
+####  Sannapolis  
+##### 137#       发表于 2025-11-24 07:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768967&amp;ptid=2263973" target="_blank">pf67 发表于 2025-11-24 01:53</a>
+打完了闭眼之兽还有3个成就没解锁，分别是啥啊</blockquote>
+强化后最终boss还有圣地训练所模拟战全制霸
+
+*****
+
+####  InfiniteGyre  
+##### 138#       发表于 2025-11-24 07:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768967&amp;ptid=2263973" target="_blank">pf67 发表于 2025-11-24 01:53</a>
+打完了闭眼之兽还有3个成就没解锁，分别是啥啊</blockquote>
+打完所有训练所
+打完强化后的最终BOSS
+完成其他所有成就
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
