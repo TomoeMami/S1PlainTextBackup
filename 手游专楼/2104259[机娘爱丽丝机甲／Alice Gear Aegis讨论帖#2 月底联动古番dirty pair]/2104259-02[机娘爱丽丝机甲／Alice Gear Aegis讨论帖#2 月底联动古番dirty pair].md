@@ -182,3 +182,11 @@ FY14-34NW-YC3K-XLYA
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wilkyway  
+##### 1749#       发表于 2025-11-23 20:16
+
+话说那些胶的兑换码坛友平时都是从哪搞的 直接买盒然后胶出二手？ 红猛禽等了半年了国内外二手市场都搜不到有人出码的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
