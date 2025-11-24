@@ -53,3 +53,11 @@
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68763452&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-11-22 14:47</a></blockquote>
 我连个五星礼装都没出过
 
+
+*****
+
+####  qixinno2  
+##### 18676#       发表于 2025-11-24 10:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友都太欧了 什么时候轮到我啊
+
