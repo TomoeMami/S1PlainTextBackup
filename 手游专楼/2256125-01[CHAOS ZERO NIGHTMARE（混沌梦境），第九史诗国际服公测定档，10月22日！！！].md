@@ -6672,3 +6672,24 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 刷小丑存档把狼刷了个小毕业
 
+
+*****
+
+####  森下未散  
+##### 588#       发表于 2025-11-24 19:19
+
+这赛季强势的都是一回合内出牌/攻击频率高上天角色，其实也挺容易针对的，杀戮尖塔本体就有限制出牌数或者攻击次数的boss，超时空方舟就更多拿这个做机制的了，感觉纯粹是策划想不想的问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  森下未散  
+##### 589#       发表于 2025-11-24 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68761088&amp;ptid=2256125" target="_blank">Dreki 发表于 2025-11-21 21:08</a>
+一直搞不懂为啥一堆人想加强当期角色，觉得强度不够不抽就完了，又不是啥剧情已经出了的高人气角色 ...</blockquote>
+友纪是开服前人气最高卫星角色，而且我个人就是等到友纪up了才买初始入坑的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
