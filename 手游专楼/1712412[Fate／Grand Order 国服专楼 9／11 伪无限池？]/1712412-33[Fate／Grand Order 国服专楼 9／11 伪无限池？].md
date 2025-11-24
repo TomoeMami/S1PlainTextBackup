@@ -28,3 +28,13 @@
 
 错楼编辑
 
+
+*****
+
+####  FrozenA  
+##### 47537#       发表于 2025-11-24 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是这个活动魔信羁绊up
+
+我都没发现我从来没用过魔信，宝具动画好帅啊
+
