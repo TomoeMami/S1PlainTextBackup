@@ -192,3 +192,16 @@
 
 算了等访谈出了 看士大夫们爆典甩锅叠甲乐子呗<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 1405#       发表于 2025-11-24 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68767125&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-11-23 15:20</a>
+
+研究会不是社团，所以大概不花学校的经费只是占用了学校的教室？
+
+而且人家kkr都是自费做谷的更不可能花经 ...</blockquote>
+一问，你们请这五人来花了多少钱啊，普利伦大漏勺怕不是直接说我们直接变身不花钱
+
