@@ -436,3 +436,24 @@ gemini会员应该怎么开的，官网上的好贵
 
 谷歌用的是tpu 不是gpu 至于谷歌有没有参与ai泡沫,就是另外一回事了.
 
+
+*****
+
+####  泰坦失足  
+##### 42#       发表于 2025-11-24 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68769292&amp;ptid=2267904" target="_blank">Lyrical_Magical 发表于 2025-11-24 08:39</a>
+
+gemini会员应该怎么开的，官网上的好贵</blockquote>
+闲鱼买现成账号，然后把自己账号和小号都加一个家庭组。官方说家庭组共享Gemini会员到今年6月为止。但是事实是现在都能一个账号有会员，另外5个同一家庭内账号都能用
+
+
+*****
+
+####  泰坦失足  
+##### 43#       发表于 2025-11-24 09:10
+
+AI工具还是限额CD越短越好。GPT每次用Thinking和DeepResearch都要嘀咕下万一把本周限额和本月限额用光了咋办。VSCode Copilot也是按月给配额，看着本月高级模型使用量百分比条就焦虑。
+
+但是我谷大哥财大气粗，Gemini Pro直接送学生，按天来重置Gemini 3.0和DeepResearch限额，Antigravity白用，也是按天来重置限额。
+
