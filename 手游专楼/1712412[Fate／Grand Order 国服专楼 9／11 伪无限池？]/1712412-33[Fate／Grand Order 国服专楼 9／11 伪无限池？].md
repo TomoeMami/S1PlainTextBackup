@@ -10,3 +10,11 @@
 
 只能说自己进关卡无视掉落乱打倒是能玩，守着攻略一步一步走是玩不了一点了
 
+
+*****
+
+####  flyzzhj  
+##### 47535#       发表于 2025-11-24 08:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还没打完，本周争取硬着头皮把主线打完吧
+
