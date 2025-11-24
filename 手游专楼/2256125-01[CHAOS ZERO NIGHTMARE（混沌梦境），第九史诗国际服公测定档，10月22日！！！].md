@@ -6693,3 +6693,40 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 —— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lokiling  
+##### 590#       发表于 2025-11-25 01:05
+
+<img src="https://img.stage1st.com/forum/202511/25/010324mkjyynwwlkypkmn3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251125010219.png</strong> (346.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 01:03 上传
+
+装备对了复制对了全闪了闪歪了
+
+<img src="https://img.stage1st.com/forum/202511/25/010324jtunck8q2w7uo4j2.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251125010255.png</strong> (343.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 01:03 上传
+
+复制对了全闪了闪对了装备不对
+
+<img src="https://img.stage1st.com/forum/202511/25/010324hdwy7rodci672jlc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251125010313.png</strong> (338.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 01:03 上传
+
+装备对了复制对了闪对了少个闪
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
