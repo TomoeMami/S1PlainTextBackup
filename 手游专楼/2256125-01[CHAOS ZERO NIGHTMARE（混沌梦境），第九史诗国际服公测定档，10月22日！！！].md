@@ -6646,3 +6646,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 还有吉他英雄电表倒转，四星都 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉他英雄真的有点离谱了，我都想练一个
 
+
+*****
+
+####  orangee  
+##### 586#       发表于 2025-11-24 13:44
+
+吉他和小丑都是在这次池子up之前只抽到一张，等12.3退点钱养起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
