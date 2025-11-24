@@ -1299,3 +1299,29 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  银月术士329  
+##### 113#         楼主| 发表于 2025-11-24 17:57
+
+ 本帖最后由 银月术士329 于 2025-11-24 17:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68771311&amp;ptid=2267122" target="_blank">nightmare902015 发表于 2025-11-24 14:48</a>
+
+刀楼楼主太菜导致的。哥们这是第一个pvp档纯独狼11级都把怀表过了还踹死两个借刀崽。
+
+—— 来自 鹅球 v3 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没办法一直在跟朋友一起推，他们有人白天能打早早就过了，没蹭上导致越拖越久，连带着我海岸线任务推的老远了，2*5差钥匙
+
+每次进海关和5黑大队在宿舍楼互相创，不过要说菜确实也真菜，定不到头导致的
+
+
+*****
+
+####  Emcylla  
+##### 114#       发表于 2025-11-24 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68759998&amp;ptid=2267122" target="_blank">银月术士329 发表于 2025-11-21 17:33</a>
+感觉尼基塔好像不打算修，刚更新的时候一度霰弹枪也算，昨天更新不算霰弹枪了但是栓动还算 ...</blockquote>
+子弹获取改了，枪没动，应该暂时不会动了，不过后面的粑粑多得是，不差这一口
+
