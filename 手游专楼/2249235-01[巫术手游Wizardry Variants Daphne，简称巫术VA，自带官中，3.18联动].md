@@ -32,3 +32,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  电脑死机  
+##### 571#       发表于 2025-11-24 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68766224&amp;ptid=2249235" target="_blank">琉歌 发表于 2025-11-23 11:05</a>
+
+新环境似乎要抬法师跟防御，我就先不刷森精轻铠好了
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+矿山也是有的，到时候进去或许就用得上
+
+爱丽丝含金量还在上升，常驻，会水火魔法，我只担心狐狸要怎么办了，除了即死还有什么优势
+
