@@ -351,10 +351,10 @@
     "update": false
   },
   "2084912": {
-    "totalreply": 18682,
+    "totalreply": 18683,
     "title": "[《Fate／Grand Order》日服手游讨论帖(7周年快乐)]",
     "newtitle": "[FGO日服讨论帖]",
-    "lastedit": 1763979736,
+    "lastedit": 1763983816,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 21975,
+    "totalreply": 21977,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1763983091,
+    "lastedit": 1763984053,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10427,7 +10427,7 @@
     "newtitle": "[0.4德鲁伊来了！12／13 流放之路2 (Path of Exile2) 专楼]",
     "lastedit": 1763724622,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2042325": {
@@ -12105,10 +12105,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 17702,
+    "totalreply": 17705,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1763983570,
+    "lastedit": 1763984287,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13032,10 +13032,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 4899,
+    "totalreply": 4910,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1763983217,
+    "lastedit": 1763984058,
     "category": "外野",
     "active": true,
     "update": false
@@ -17136,10 +17136,10 @@
     "update": false
   },
   "2267911": {
-    "totalreply": 67,
+    "totalreply": 69,
     "title": "[在金轮法王眼里，杨过开挂是不是过分了点]",
     "newtitle": "[在金轮法王眼里，杨过开挂是不是过分了点]",
-    "lastedit": 1763983217,
+    "lastedit": 1763984056,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2267946": {
-    "totalreply": 74,
+    "totalreply": 78,
     "title": "[现在网络环境极端化的原因]",
     "newtitle": "[现在网络环境极端化的原因]",
-    "lastedit": 1763983453,
+    "lastedit": 1763984058,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,10 +17226,10 @@
     "update": false
   },
   "2267945": {
-    "totalreply": 48,
+    "totalreply": 50,
     "title": "[如何减少走路上被智驾撞的概率？]",
     "newtitle": "[如何减少走路上被智驾撞的概率？]",
-    "lastedit": 1763981892,
+    "lastedit": 1763983816,
     "category": "外野",
     "active": true,
     "update": false
@@ -17253,10 +17253,10 @@
     "update": false
   },
   "2267960": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[二十八九岁的女人往往被认为年纪大了，但是]",
     "newtitle": "[二十八九岁的女人往往被认为年纪大了，但是]",
-    "lastedit": 1763980455,
+    "lastedit": 1763984056,
     "category": "外野",
     "active": true,
     "update": false
@@ -17280,10 +17280,10 @@
     "update": false
   },
   "2267895": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[西雅图锐雪照疯年]",
     "newtitle": "[西雅图锐雪照疯年]",
-    "lastedit": 1763983451,
+    "lastedit": 1763983816,
     "category": "外野",
     "active": true,
     "update": false
@@ -17294,6 +17294,15 @@
     "newtitle": "[豆包新焚决]",
     "lastedit": 1763983217,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1958154": {
+    "totalreply": 156,
+    "title": "[任天堂年末商战会如何对抗索尼微软？]",
+    "newtitle": "[任天堂年末商战会如何对抗索尼微软？]",
+    "lastedit": 1763984063,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
