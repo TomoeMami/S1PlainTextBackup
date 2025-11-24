@@ -61,3 +61,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友都太欧了 什么时候轮到我啊
 
+
+*****
+
+####  alucardcz  
+##### 18677#       发表于 2025-11-24 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68769303&amp;ptid=2084912" target="_blank">v22325 发表于 2025-11-24 08:43</a>
+
+免费抽第三个五星了……但是抽限定池子两个月没出了……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">漏油都太欧了 萌新也想一起欧！
+
