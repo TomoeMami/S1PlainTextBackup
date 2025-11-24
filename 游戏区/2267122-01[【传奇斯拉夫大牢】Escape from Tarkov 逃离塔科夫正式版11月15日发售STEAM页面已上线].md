@@ -1337,3 +1337,16 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  银月术士329  
+##### 116#         楼主| 发表于 2025-11-24 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68772529&amp;ptid=2267122" target="_blank">Emcylla 发表于 2025-11-24 18:01</a>
+子弹获取改了，枪没动，应该暂时不会动了，不过后面的粑粑多得是，不差这一口
+
+ ...</blockquote>
+我看现在全都在想办法爽nl545，要不了多久就全是这玩意了<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">多屯屯子弹吧
+现在白天到处都是车队对创只有夜图才敢做做任务的样子
+
