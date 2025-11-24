@@ -178,3 +178,17 @@
   截止昨天，加藤只执笔了10集。完全是他本人单独执笔的9集故事里大多都是主线回。他在今年里确实没存在感。
   今年很多方面回归“传统”，剩下7集我是不信加藤真能把两干部+女王的故事给收掉。
 
+
+*****
+
+####  粉儿alice  
+##### 1404#       发表于 2025-11-24 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768789&amp;ptid=2208663" target="_blank">leleq 发表于 2025-11-24 00:01</a>
+今年开播前我就说加藤是个影子（摸鱼）脚本了，这个比水平全靠监督带，监督认真写的就还行没人管就摸鱼。
+
+ ...</blockquote>
+所以说今大妈也和隔壁加布香村大妈一样 摆了瞎拍瞎写不管了交差了事是不是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了等访谈出了 看士大夫们爆典甩锅叠甲乐子呗<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
