@@ -103,3 +103,14 @@
 都已经前天了！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你回的太快了 我改了
 
+
+*****
+
+####  岸浪白野  
+##### 18681#       发表于 2025-11-24 18:14
+
+ 本帖最后由 岸浪白野 于 2025-11-24 18:16 编辑 
+
+总抽数5星出货率只会接近1%，免费抽出了5星就肯定会让你还，宁愿拿免费抽垫刀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+12月1号生放送<img src="https://p.sda1.dev/29/dd17f8278c1f4c982ae34d3082608fed/image.jpg" referrerpolicy="no-referrer">
+
