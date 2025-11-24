@@ -1286,3 +1286,16 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 一周就有人做出3*4了
 我26级了还卡在青铜怀表<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 112#       发表于 2025-11-24 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68771252&amp;ptid=2267122" target="_blank">银月术士329 发表于 2025-11-24 14:36</a>
+一周就有人做出3*4了
+我26级了还卡在青铜怀表</blockquote>
+刀楼楼主太菜导致的。哥们这是第一个pvp档纯独狼11级都把怀表过了还踹死两个借刀崽。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
