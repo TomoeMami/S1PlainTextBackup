@@ -26,3 +26,11 @@
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  heseran  
+##### 4825#       发表于 2025-11-26 07:33
+
+作业彻底炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来0-3选的lvg和ra，后来还是选择了相信一手，再也不信了。
+
