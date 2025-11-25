@@ -214,3 +214,13 @@ FY14-34NW-YC3K-XLYA
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1752#       发表于 2025-11-25 14:37
+
+每次删数据给手机腾空间都要把游戏设置重新搞一遍<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就不能跟着账号走吗
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
