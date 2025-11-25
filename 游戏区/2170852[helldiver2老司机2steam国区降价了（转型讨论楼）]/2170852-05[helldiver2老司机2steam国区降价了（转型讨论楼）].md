@@ -40,3 +40,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反戈一击是这么用的嘛
 
+
+*****
+
+####  xinfengj  
+##### 7219#       发表于 2025-11-26 02:55
+
+炮台同款加特林 只有这个也值回票价口牙
+
