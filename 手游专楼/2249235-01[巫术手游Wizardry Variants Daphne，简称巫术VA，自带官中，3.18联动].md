@@ -80,3 +80,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  电脑死机  
+##### 575#       发表于 2025-11-25 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68777040&amp;ptid=2249235" target="_blank">爱上了三个你 发表于 2025-11-25 15:34</a>
+
+第三章开荒推不了石像是什么情况</blockquote>
+一周目是这样的，一路被打的跟狗一样，顶着吸血鬼和巨人，才能在最上层启动魔像
+
+二周目最解气是推箱子砸死娃娃boss
+

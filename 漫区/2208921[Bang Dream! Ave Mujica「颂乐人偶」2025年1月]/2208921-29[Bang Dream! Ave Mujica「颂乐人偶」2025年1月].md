@@ -103,3 +103,14 @@
 </blockquote>
        [https://www.bilibili.com/video/BV1QBUsBVExe](https://www.bilibili.com/video/BV1QBUsBVExe)
 
+
+*****
+
+####  仟音一心  
+##### 41496#       发表于 2025-11-25 20:08
+
+【Ave Mujica ～幻～】第6话
+作者：毛魂一直線（@moukonzenmetsu） 
+<img src="https://p.sda1.dev/29/6ba90984d54c58aaa0c4ab9660201448/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/7df2f63c378ec61318c11d39fc30f125/image.jpg" referrerpolicy="no-referrer">
+
