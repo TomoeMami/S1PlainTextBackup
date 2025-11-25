@@ -13861,3 +13861,20 @@ Nice。要火了？要炎上了？
 
 居然在咩的rank里见到了宝石剑圣和四保一剑圣的套路，好怀念啊
 
+
+*****
+
+####  TiHaru  
+##### 19911#       发表于 2025-11-25 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68770716&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-11-24 12:25</a>
+炸鸡那段可以侧面说明你咩本人到了会场？</blockquote>
+说的是以前去线下的时候排很久队，不知道现在可以用app提前预约
+
+*****
+
+####  TiHaru  
+##### 19912#       发表于 2025-11-25 14:25
+
+推特上那个黑魅我前几天绝对在推特以外的地方见到了，但想不起来是哪里
+
