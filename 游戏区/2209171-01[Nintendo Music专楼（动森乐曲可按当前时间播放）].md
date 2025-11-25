@@ -816,3 +816,14 @@ Conquest (Ablaze) 远征（炎）这首真好听啊，还混了火纹主题曲
 另外帮朋友贴一下，nm的数据网站，希望lz能加在1楼
 [https://nia.itomka.com/](https://nia.itomka.com/)
 
+
+*****
+
+####  760194962  
+##### 81#       发表于 2025-11-25 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68672291&amp;ptid=2209171" target="_blank">Kiyohara_Yasuke 发表于 2025-11-4 09:44</a>
+
+更新了3ds动物森友会new leaf的音乐，还能根据当前时间播放</blockquote>
+这个是不是之前switch版动森还没有这个功能，这次一并加上的
+
