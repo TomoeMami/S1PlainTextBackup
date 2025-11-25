@@ -6730,3 +6730,19 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 装备对了复制对了闪对了少个闪
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 591#       发表于 2025-11-25 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68774300&amp;ptid=2256125" target="_blank">lokiling 发表于 2025-11-25 01:05</a>
+装备对了复制对了全闪了闪歪了
+
+复制对了全闪了闪对了装备不对
+
+装备对了复制对了闪对了少个闪</blockquote>
+运气可以了，我光同一局里能把两个闪闪对就经常五把碰不上一把，数学不存在了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
