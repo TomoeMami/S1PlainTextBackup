@@ -1682,3 +1682,11 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Sannapolis  
+##### 144#       发表于 2025-11-26 00:11
+
+花了100多小时通了主线、全成就、隐藏boss、后日谈，当从两个人相遇开始的故事在两个人的对话中结束的时候，心里只觉得满足：很久没体验过这么圆满的故事了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

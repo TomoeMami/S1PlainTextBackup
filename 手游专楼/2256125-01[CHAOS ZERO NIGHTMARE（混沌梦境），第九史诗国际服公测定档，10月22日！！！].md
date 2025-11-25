@@ -6807,3 +6807,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 平时打活动肉鸽打难度几呀 难度10 我都打不过了 还想打个首通呢
 
+
+*****
+
+####  qixinno2  
+##### 598#       发表于 2025-11-26 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68778889&amp;ptid=2256125" target="_blank">吃货红毛 发表于 2025-11-25 23:00</a>
+
+平时打活动肉鸽打难度几呀 难度10 我都打不过了 还想打个首通呢</blockquote>
+应该基本都是打N8 
+
