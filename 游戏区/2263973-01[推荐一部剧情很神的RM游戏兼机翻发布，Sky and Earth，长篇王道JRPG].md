@@ -1690,3 +1690,49 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 花了100多小时通了主线、全成就、隐藏boss、后日谈，当从两个人相遇开始的故事在两个人的对话中结束的时候，心里只觉得满足：很久没体验过这么圆满的故事了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 145#       发表于 2025-11-26 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68778786&amp;ptid=2263973" target="_blank">83913536 发表于 2025-11-25 22:25</a>
+对攻略wiki发现自己漏了一个前期的限时任务，这岂不是没法全成就了
+
+能求一个没漏任务的存档吗 ...</blockquote>
+102楼我发过一个能直接看后日谈的全成就存档
+不过这游戏全任务卡得没那么死，我是在还有三四个支线任务没做完的时候就跳支线大师成就的，描述是“完成了非常多支线任务”，不一定要全部。
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Sannapolis  
+##### 146#       发表于 2025-11-26 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68778786&amp;ptid=2263973" target="_blank">83913536 发表于 2025-11-25 22:25</a>
+
+对攻略wiki发现自己漏了一个前期的限时任务，这岂不是没法全成就了
+
+能求一个没漏任务的存档吗 ...</blockquote>
+全成就不要求全支线，只漏了一两个限时支线也是可以打出全成就的
+
+如果确实需要存档的话可以用这个主线通关的存档，可以从这个档开始走全成就的流程
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+file19.rpgsave
+
+2025-11-26 00:20 上传
+点击文件名下载附件
+
+121.48 KB, 下载次数: 0
+
+
+*****
+
+####  李小狼  
+##### 147#       发表于 2025-11-26 00:26
+
+现在没有大把时间用PC了，有点想用掌机玩，请问STEAMDECK可以运行rm吗
+
