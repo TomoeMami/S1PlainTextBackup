@@ -18106,3 +18106,17 @@ F55 个小兵。
 
 为什么大家都在喝红酒？
 
+
+*****
+
+####  古战场亡魂  
+##### 19915#       发表于 2025-11-25 20:33
+
+<img src="https://img.stage1st.com/forum/202511/25/203303joloixr78w7onyoo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 20:33 上传
+
