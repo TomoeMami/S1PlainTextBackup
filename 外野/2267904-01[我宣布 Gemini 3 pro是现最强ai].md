@@ -650,3 +650,29 @@ ai studio里的banana pro居然不给免费额度<img src="https://static.stage1
 
 gemini app每天能用几次啊？
 
+
+*****
+
+####  jayninja  
+##### 63#       发表于 2025-11-25 16:17
+
+把聂政姐姐和山上彻也妹妹融梗了一下，拿gemini画了个井上雄彦风的漫画
+
+unnamed (6).jpg
+(224.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 16:16 上传
+
+<img src="https://img.stage1st.com/forum/202511/25/161654vv1k8zino58gvhgh.jpg" referrerpolicy="no-referrer">
+
+unnamed (8).jpg
+(187.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-25 16:17 上传
+
+<img src="https://img.stage1st.com/forum/202511/25/161700jwamc0ckyzcm199w.jpg" referrerpolicy="no-referrer">
+
