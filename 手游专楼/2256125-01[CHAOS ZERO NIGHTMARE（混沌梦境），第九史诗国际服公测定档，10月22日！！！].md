@@ -6768,3 +6768,26 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 装备对了复制对了闪对了少个闪</blockquote>
 三拳两脚强其他一倍吧
 
+
+*****
+
+####  lokiling  
+##### 594#       发表于 2025-11-25 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68775787&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-25 11:36</a>
+
+三拳两脚强其他一倍吧</blockquote>
+只看卡的话是，不过算上装备的话少1.5层士气<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lokiling  
+##### 595#       发表于 2025-11-25 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68775644&amp;ptid=2256125" target="_blank">orangee 发表于 2025-11-25 11:17</a>
+
+运气可以了，我光同一局里能把两个闪闪对就经常五把碰不上一把，数学不存在了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我是闪歪了直接退的
+
