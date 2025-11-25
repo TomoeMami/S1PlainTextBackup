@@ -66,3 +66,17 @@
 第三章开荒推不了石像是什么情况</blockquote>
 一周目boss前拿完知识二周目开始才能推
 
+
+*****
+
+####  琉歌  
+##### 574#       发表于 2025-11-25 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68769343&amp;ptid=2249235" target="_blank">电脑死机 发表于 2025-11-24 08:57</a>
+矿山也是有的，到时候进去或许就用得上
+
+爱丽丝含金量还在上升，常驻，会水火魔法，我只担心狐狸要怎么办 ...</blockquote>
+我要求低 3星蓝两词条对我都可以算成毕业装 等新章再刷新的好了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
