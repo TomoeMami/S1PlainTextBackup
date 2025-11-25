@@ -1650,3 +1650,35 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 剧情之外的部分真的就……作者是真没有做场景的天赋……
 
+
+*****
+
+####  83913536  
+##### 141#       发表于 2025-11-25 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68762344&amp;ptid=2263973" target="_blank">blueelf 发表于 2025-11-22 09:15</a>
+
+全成就之后有个差不多一小时的短篇后日谈，玩了吗</blockquote>
+对攻略wiki发现自己漏了一个前期的限时任务，这岂不是没法全成就了
+
+能求一个没漏任务的存档吗<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ygy52145214  
+##### 142#       发表于 2025-11-25 22:27
+
+第六位队友不能换装备,要什么时候解锁? 进度到了天空国家打主角老熟人了.(防止剧透只能模糊点)
+
+
+*****
+
+####  粉有  
+##### 143#       发表于 2025-11-25 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68778791&amp;ptid=2263973" target="_blank">ygy52145214 发表于 2025-11-25 22:27</a>
+第六位队友不能换装备,要什么时候解锁? 进度到了天空国家打主角老熟人了.(防止剧透只能模糊点) ...</blockquote>
+等到正式入队的时候
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
