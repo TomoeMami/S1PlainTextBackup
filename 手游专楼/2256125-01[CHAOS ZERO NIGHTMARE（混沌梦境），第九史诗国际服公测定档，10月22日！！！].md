@@ -6746,3 +6746,25 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  伊布桑  
+##### 592#       发表于 2025-11-25 11:28
+
+现在大家都刷永生吉他去了，我吉他才50，太难啦<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 593#       发表于 2025-11-25 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68774300&amp;ptid=2256125" target="_blank">lokiling 发表于 2025-11-25 01:05</a>
+装备对了复制对了全闪了闪歪了
+
+复制对了全闪了闪对了装备不对
+
+装备对了复制对了闪对了少个闪</blockquote>
+三拳两脚强其他一倍吧
+
