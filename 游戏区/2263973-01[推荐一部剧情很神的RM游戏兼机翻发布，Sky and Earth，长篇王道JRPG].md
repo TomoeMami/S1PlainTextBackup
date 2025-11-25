@@ -1628,3 +1628,15 @@ readme里一样只写了素材之类，没写cg委托的画师
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pf67  
+##### 139#       发表于 2025-11-25 12:04
+
+后日谈里居然还有一段live播片
+
+秒杀了闪轨1
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
