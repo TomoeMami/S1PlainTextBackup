@@ -6818,3 +6818,19 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 平时打活动肉鸽打难度几呀 难度10 我都打不过了 还想打个首通呢</blockquote>
 应该基本都是打N8 
 
+
+*****
+
+####  lokiling  
+##### 599#       发表于 2025-11-26 03:26
+
+<img src="https://img.stage1st.com/forum/202511/26/032547j0fxsh04ch4xszfh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20251126032541.png</strong> (398.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-26 03:25 上传
+
+一回合踢死难9螃蟹，永生吉他还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
