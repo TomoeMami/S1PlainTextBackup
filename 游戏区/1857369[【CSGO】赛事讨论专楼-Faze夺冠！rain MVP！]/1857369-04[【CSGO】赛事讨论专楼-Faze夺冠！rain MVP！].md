@@ -34,3 +34,11 @@
 
 作业彻底炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来0-3选的lvg和ra，后来还是选择了相信一手，再也不信了。
 
+
+*****
+
+####  朔方原的星  
+##### 4826#         楼主| 发表于 2025-11-26 15:49
+
+2019年以来没有亚洲队伍0-3过，这届cn出了俩，major扩军是错的，什么蛆都混进去了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
