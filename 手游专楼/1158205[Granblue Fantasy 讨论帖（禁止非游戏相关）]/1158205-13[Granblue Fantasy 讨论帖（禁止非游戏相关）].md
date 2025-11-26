@@ -57,3 +57,11 @@
 
 没有预防盾随便一波封印就拉闸了 师徒+泳月+单面基路三净化都解决不了 就是逼着提速必须VN斧 我用的盾誓这种能补净化的乌龟职业都不行
 
+
+*****
+
+####  windlikeman  
+##### 18278#       发表于 2025-11-26 16:46
+
+不过历来11月团都是出粪怪的 本来就是1年里人最少的团 做起来也放飞自我 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这BOSS 50特动已经可以拍7个强化了
+
