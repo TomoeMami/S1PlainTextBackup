@@ -1747,3 +1747,16 @@ file19.rpgsave
 现在没有大把时间用PC了，有点想用掌机玩，请问STEAMDECK可以运行rm吗</blockquote>
 都可以，没问题，甚至手机也可以
 
+
+*****
+
+####  李小狼  
+##### 149#       发表于 2025-11-26 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68780689&amp;ptid=2263973" target="_blank">慕容断月 发表于 2025-11-26 11:25</a>
+
+都可以，没问题，甚至手机也可以</blockquote>
+好的，多谢
+
+今天捣鼓一下开玩
+
