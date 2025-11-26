@@ -26,3 +26,13 @@
 
 不太关注，但感觉自从动画完结后星团就没啥活动了....？
 
+
+*****
+
+####  仟音一心  
+##### 1757#       发表于 2025-11-27 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68784983&amp;ptid=2201887" target="_blank">经验值UP 发表于 2025-11-27 05:37</a>
+不太关注，但感觉自从动画完结后星团就没啥活动了....？</blockquote>
+其实不是的，活动很多，不过不依托动画的话活动的开展确实宣传不太足。
+
