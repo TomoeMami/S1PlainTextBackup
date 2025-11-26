@@ -396,3 +396,14 @@ PC、コンソール、モバイルのクロスプラットフォーム展開を
 
 毕竟资本家肯定不站小画师这边。
 
+
+*****
+
+####  whzfjd  
+##### 42#       发表于 2025-11-26 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876916&amp;ptid=2252246" target="_blank">seize1121 发表于 2025-6-2 20:23</a>
+
+招聘要求竟然没写上要玩过现在最受欢迎的二次元风格鸣潮</blockquote>
+受吗，鸣现在口碑最好的不是演出，也是赚个辛苦口碑
+
