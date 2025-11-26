@@ -30,3 +30,12 @@
 
 这次开了250一档线还跟龟爬一样感觉卡死一大堆人。
 
+
+*****
+
+####  8frames  
+##### 18275#       发表于 2025-11-26 13:37
+
+那套辉夜剑豪米林小团长的剑豪能打，想想办法把全队血堆到14w以上就行，能fa完
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">又省一颗jgj，赚
+

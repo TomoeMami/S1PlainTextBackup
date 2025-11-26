@@ -1170,10 +1170,10 @@
     "update": false
   },
   "1158205": {
-    "totalreply": 18274,
+    "totalreply": 18275,
     "title": "[Granblue Fantasy 讨论帖（禁止非游戏相关）]",
     "newtitle": "[Granblue Fantasy 讨论帖（禁止非游戏相关）]",
-    "lastedit": 1764135137,
+    "lastedit": 1764135739,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 22218,
+    "totalreply": 22220,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1764135494,
+    "lastedit": 1764136089,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 15397,
+    "totalreply": 15407,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1764081259,
+    "lastedit": 1764136091,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11664,10 +11664,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 4974,
+    "totalreply": 4975,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1764132862,
+    "lastedit": 1764135894,
     "category": "外野",
     "active": true,
     "update": false
@@ -12177,10 +12177,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 245,
+    "totalreply": 246,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1764087735,
+    "lastedit": 1764135732,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12852,10 +12852,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 5907,
+    "totalreply": 5913,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1764135267,
+    "lastedit": 1764135620,
     "category": "外野",
     "active": true,
     "update": false
@@ -13388,15 +13388,6 @@
     "newtitle": "[米车的神话快崩盘了吧]",
     "lastedit": 1763348056,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2259209": {
-    "totalreply": 56,
-    "title": "[【宝可梦WCS2025】简中选手Fuguan L.获得PTCG少年组冠军！]",
-    "newtitle": "[【宝可梦WCS2025】简中选手Fuguan L.获得PTCG少年组冠军！]",
-    "lastedit": 1762926266,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16713,10 +16704,10 @@
     "update": false
   },
   "2267895": {
-    "totalreply": 132,
+    "totalreply": 133,
     "title": "[西雅图锐雪照疯年]",
     "newtitle": "[西雅图锐雪照疯年]",
-    "lastedit": 1764133819,
+    "lastedit": 1764135619,
     "category": "外野",
     "active": true,
     "update": false
@@ -16821,10 +16812,10 @@
     "update": false
   },
   "2268030": {
-    "totalreply": 166,
+    "totalreply": 167,
     "title": "[对学生来说到底是当鸡头好呢还是当凤尾好呢？]",
     "newtitle": "[对学生来说到底是当鸡头好呢还是当凤尾好呢？]",
-    "lastedit": 1764133818,
+    "lastedit": 1764135618,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17100,10 @@
     "update": false
   },
   "2268110": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[“是雪”，福州一公园出现冬日“梦幻雪景”，专家：是鸬鹚的粪便]",
     "newtitle": "[“是雪”，福州一公园出现冬日“梦幻雪景”，专家：是鸬鹚的粪便]",
-    "lastedit": 1764135267,
+    "lastedit": 1764135621,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17118,10 @@
     "update": false
   },
   "2268121": {
-    "totalreply": 42,
+    "totalreply": 49,
     "title": "[努力工作女性怒斥AI毁掉汗水和辛勤]",
     "newtitle": "[努力工作女性怒斥AI毁掉汗水和辛勤]",
-    "lastedit": 1764135018,
+    "lastedit": 1764135894,
     "category": "外野",
     "active": true,
     "update": false
@@ -17141,6 +17132,15 @@
     "newtitle": "[有没有带点涩涩，故事剧情还行的漫画？]",
     "lastedit": 1764135269,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2268125": {
+    "totalreply": 46,
+    "title": "[怎么感觉这种新闻突然爆发了]",
+    "newtitle": "[怎么感觉这种新闻突然爆发了]",
+    "lastedit": 1764135894,
+    "category": "外野",
     "active": true,
     "update": false
   }
