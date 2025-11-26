@@ -6886,3 +6886,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 是错觉吗，怎么感觉存档会过几天后被暗改？
 
+
+*****
+
+####  森下未散  
+##### 605#       发表于 2025-11-26 15:59
+
+2费次数腿+香族闪热情，梅玲和鼠鼠两个人的卡都能给腿叠次数和伤害量，等于使用一张热情卡同时吃上两个伤害乘区，而鼠鼠有天选神闪减1ap的回收4决心的话，等于一张顶四张用，复制一手变8张，梅玲自己普通灵闪的移动攻防也才等效3张热情卡<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以有外道梅玲搞神闪减1费的复制腿，热情卡由鼠鼠提供
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
