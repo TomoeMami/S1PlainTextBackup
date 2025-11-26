@@ -243,3 +243,13 @@ KYDSEFWQSG
 
 <img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这种抽完五十连，四星也出了几个，UP还出了两，就是没出想要的感觉可真难受（
 
+
+*****
+
+####  冰风血羽  
+##### 1755#       发表于 2025-11-27 00:23
+
+五十连毛都没有<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
