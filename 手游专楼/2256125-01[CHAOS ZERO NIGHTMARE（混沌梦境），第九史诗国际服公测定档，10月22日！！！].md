@@ -6852,3 +6852,15 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 如果没有那张的话，就算一直抽牌也没这么多伤害？
 至少少一半？
 
+
+*****
+
+####  伊布桑  
+##### 602#       发表于 2025-11-26 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68781135&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-26 12:29</a>
+所以本质最强的根本是那张脚踢？
+如果没有那张的话，就算一直抽牌也没这么多伤害？
+至少少一半？ ...</blockquote>
+腿强的基础是打拳次数够，再加上香族每打一张叠攻，再附加队友帮抽卡和回费，才能发挥出腿的上限
+
