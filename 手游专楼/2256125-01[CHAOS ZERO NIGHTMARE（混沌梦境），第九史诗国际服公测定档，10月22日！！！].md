@@ -6864,3 +6864,17 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 至少少一半？ ...</blockquote>
 腿强的基础是打拳次数够，再加上香族每打一张叠攻，再附加队友帮抽卡和回费，才能发挥出腿的上限
 
+
+*****
+
+####  orangee  
+##### 603#       发表于 2025-11-26 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68781135&amp;ptid=2256125" target="_blank">DRAGONBLEAPIECE 发表于 2025-11-26 12:29</a>
+所以本质最强的根本是那张脚踢？
+如果没有那张的话，就算一直抽牌也没这么多伤害？
+至少少一半？ ...</blockquote>
+脚踢在抽的够多的时候可以一下灌满伤害。梅玲强在每个天赋点了都算有用的，除了中立牌那个……这个天赋树有些角色最后那层两个能有半个算有用就不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而梅玲的点上凑上装备就是实在的提升。今天的家主估计被无数梅玲两三轮火腿踢死了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
