@@ -1508,7 +1508,7 @@
     "newtitle": "[EPIC每周白嫖指南：星咏之诗]",
     "lastedit": 1763869448,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1861134": {
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 19735,
+    "totalreply": 19736,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1764127938,
+    "lastedit": 1764128540,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 22123,
+    "totalreply": 22138,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1764128174,
+    "lastedit": 1764128776,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 72113,
+    "totalreply": 72114,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1764128174,
+    "lastedit": 1764128776,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11313,10 +11313,10 @@
     "update": false
   },
   "2150456": {
-    "totalreply": 424,
+    "totalreply": 425,
     "title": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
     "newtitle": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
-    "lastedit": 1764127570,
+    "lastedit": 1764128415,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11961,10 +11961,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 4764,
+    "totalreply": 4765,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 11.14「卫戍协议：盟约」(本楼含YJWL动态交流)]",
-    "lastedit": 1764128171,
+    "lastedit": 1764128773,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12501,10 +12501,10 @@
     "update": false
   },
   "2259588": {
-    "totalreply": 115,
+    "totalreply": 117,
     "title": "[卡比的驭天飞行者11.20发售]",
     "newtitle": "[卡比的驭天飞行者11.20发售／1108～10，15～17线上测试]",
-    "lastedit": 1764126615,
+    "lastedit": 1764128655,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12564,10 +12564,10 @@
     "update": false
   },
   "2265687": {
-    "totalreply": 508,
+    "totalreply": 509,
     "title": "[【日本熊灾吃瓜楼】熊熊勇闯十一区]",
     "newtitle": "[【日本熊灾吃瓜楼】熊熊勇闯十一区]",
-    "lastedit": 1764117742,
+    "lastedit": 1764128899,
     "category": "外野",
     "active": true,
     "update": false
@@ -12645,10 +12645,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 796,
+    "totalreply": 799,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 11月28日11时「全面测试」开启]",
-    "lastedit": 1764127572,
+    "lastedit": 1764128776,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12888,10 +12888,10 @@
     "update": false
   },
   "2266674": {
-    "totalreply": 5864,
+    "totalreply": 5871,
     "title": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
     "newtitle": "[高市早苗：XX有事可能构成日本存亡危机事态　能行使集体自卫权]",
-    "lastedit": 1764128300,
+    "lastedit": 1764128896,
     "category": "外野",
     "active": true,
     "update": false
@@ -13166,15 +13166,6 @@
     "active": false,
     "update": false
   },
-  "2266898": {
-    "totalreply": 55,
-    "title": "[雷总已经劝你别买了，你非要买怪谁？]",
-    "newtitle": "[雷总已经劝你别买了，你非要买怪谁？]",
-    "lastedit": 1762919179,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2266880": {
     "totalreply": 68,
     "title": "[因涉嫌诱使朝鲜进攻 韩国前总统尹锡悦被追加起诉]",
@@ -13344,15 +13335,6 @@
     "lastedit": 1764060498,
     "category": "游戏区",
     "active": true,
-    "update": false
-  },
-  "2169622": {
-    "totalreply": 115,
-    "title": "[帕鲁开发组新作2D银河城+rougelike《Never Grave》，已放出DEMO]",
-    "newtitle": "[帕鲁开发组新作2D银河城+rougelike《Never Grave》，已放出DEMO]",
-    "lastedit": 1762918943,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "1964826": {
@@ -16164,10 +16146,10 @@
     "update": false
   },
   "2267765": {
-    "totalreply": 182,
+    "totalreply": 183,
     "title": "[来给33号远征队在你心中的地位投个票吧]",
     "newtitle": "[来给33号远征队在你心中的地位投个票吧]",
-    "lastedit": 1764127815,
+    "lastedit": 1764128416,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17154,19 +17136,19 @@
     "update": false
   },
   "2268073": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[从年报数据的角度看，特斯拉不可能是什么良心雇主。]",
     "newtitle": "[从年报数据的角度看，特斯拉不可能是什么良心雇主。]",
-    "lastedit": 1764128300,
+    "lastedit": 1764128899,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2268094": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "[仿佛来到战区]",
     "newtitle": "[仿佛来到战区]",
-    "lastedit": 1764127938,
+    "lastedit": 1764128541,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17181,10 @@
     "update": false
   },
   "2268090": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[绿皮科技超高音速导弹这块]",
     "newtitle": "[绿皮科技超高音速导弹这块]",
-    "lastedit": 1764128299,
+    "lastedit": 1764128541,
     "category": "外野",
     "active": true,
     "update": false
