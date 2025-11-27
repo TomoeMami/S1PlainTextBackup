@@ -1818,3 +1818,11 @@ file19.rpgsave
 
 玩到第七章了，故事非常喜欢。有没有其他故事特别好的推荐啊，坛里爬了一下楼，之后准备玩ざくざくアクターズ和新约帽子世界。能读懂日语。
 
+
+*****
+
+####  c0x9z8  
+##### 156#       发表于 2025-11-27 21:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有中文攻略吗？打到第二章，发现中间少了个怪物图鉴
+
