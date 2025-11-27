@@ -328,3 +328,13 @@ ci-en上面上一次更新已经是前年的事情了
 
 steam版的是不是很多bgm都换了，不得劲啊
 
+
+*****
+
+####  红魔馆的糖  
+##### 229#       发表于 2025-11-27 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68788478&amp;ptid=1812121" target="_blank">麦吉卡 发表于 2025-11-27 18:13</a>
+steam版的是不是很多bgm都换了，不得劲啊</blockquote>
+估计发售第一天就有原版bgm替换mod了<img src="https://static.stage1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
