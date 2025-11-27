@@ -1837,3 +1837,12 @@ file19.rpgsave
 有中文攻略吗？打到第二章，发现中间少了个怪物图鉴</blockquote>
 游戏攻略WIKI：[https://skyandearth.wiki.fc2.com/](https://skyandearth.wiki.fc2.com/)，需要挂日本梯子，请搭配沉浸式翻译使用
 
+
+*****
+
+####  bixinhaner  
+##### 158#       发表于 2025-11-27 22:39
+
+第八章了，这个月玩了这个没有晚上一点前睡的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+果然有了好玩的游戏电子阳痿不存在的
+
