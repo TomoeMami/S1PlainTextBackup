@@ -491,3 +491,14 @@ P键切换模式
 
 谢谢你，泰罗
 
+
+*****
+
+####  无事忙  
+##### 42#       发表于 2025-11-27 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68780451&amp;ptid=2268113" target="_blank">ymm1030 发表于 2025-11-26 10:49</a>
+
+这两天试着用哈基米 3.0 和 Claude 4.5 写同样的剧情，哈基米前期普通但是一直稳定在线，claude 前十章非常 ...</blockquote>
+不对吧哥们你这和大家的印象不一样，gemini3的上下文注意力只有32k左右吧，比以前少了吧
+
