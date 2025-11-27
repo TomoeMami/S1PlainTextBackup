@@ -6925,3 +6925,25 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 正好鼠鼠神闪了0费的4回收决心，还复制了。拿来试了下赛季BOSS，决心香族都是保留只要凹下两个腿，连踢两次也能打三万多
 
+
+*****
+
+####  qixinno2  
+##### 609#       发表于 2025-11-27 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68784696&amp;ptid=2256125" target="_blank">Schw 发表于 2025-11-27 00:25</a>
+
+新入坑抽到有纪修女凯隆，是重开还是买初始</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己刷个有梅林维神的档吧 别当吃屎仙人了 修女下本默认就是不存在的挂件 凯隆机制都在命座上 由纪没有2+1也相当坐牢
+
+
+*****
+
+####  Schw  
+##### 610#       发表于 2025-11-27 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786561&amp;ptid=2256125" target="_blank">qixinno2 发表于 2025-11-27 12:17</a>
+
+自己刷个有梅林维神的档吧 别当吃屎仙人了 修女下本默认就是不存在的挂件 凯隆机制都在命座上 由纪没有2+ ...</blockquote>
+但是这b游戏刷初始好麻烦啊，剧情又不能跳
+

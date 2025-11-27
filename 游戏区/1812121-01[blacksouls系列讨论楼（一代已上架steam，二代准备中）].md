@@ -213,3 +213,16 @@ ci-en上面上一次更新已经是前年的事情了
 
 不过2代初见无攻略开荒必漏收集，后面DLC3的数值又卡得很高，我在连打好几个周目，打出DLC3前置要求的那个结局后一下子失去了推的动力，停在DLC3门前烂尾了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 217#       发表于 2025-11-27 12:18
+
+ 本帖最后由 红魔馆的糖 于 2025-11-27 12:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786535&amp;ptid=1812121" target="_blank">Flechette 发表于 2025-11-27 12:11</a>
+1都玩了的话不玩2就太可惜了
+
+不过2代初见无攻略开荒必漏收集，后面DLC3的数值又卡得很高，我在连打好几个周 ...</blockquote>
+改一下就好了，dlc3不玩可惜了，相当于血缘老猎人
+
