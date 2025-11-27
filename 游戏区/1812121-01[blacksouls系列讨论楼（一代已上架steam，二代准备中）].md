@@ -358,3 +358,11 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  chaosp  
+##### 232#       发表于 2025-11-28 00:02
+
+来参与一下<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
