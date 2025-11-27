@@ -307,3 +307,16 @@ ci-en上面上一次更新已经是前年的事情了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  维克塔利昂  
+##### 227#       发表于 2025-11-27 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68787815&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-11-27 16:05</a>
+
+有不遇怪魔法，战斗系统也升级了</blockquote>
+1代也有，就是持续时间真的短。。。跑个图得上两三次<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+有几个点怪刚杀完我还没走两步又刷出来了
+
