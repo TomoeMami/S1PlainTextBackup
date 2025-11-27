@@ -1784,3 +1784,18 @@ file19.rpgsave
 
 虽然和主题无关，但嘆きの七英雄商业版上steam了，还神奇的加了中文<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 153#         楼主| 发表于 2025-11-27 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786182&amp;ptid=2263973" target="_blank">慕容断月 发表于 2025-11-27 11:11</a>
+
+虽然和主题无关，但嘆きの七英雄商业版上steam了，还神奇的加了中文</blockquote>
+我打完世界树巫女六祠堂之后第一个找来玩的就是它，因为卖相太好了，人设有点GBF的感觉，主线都有配音，标题页面还有主题歌
+
+可惜机翻了一下玩了7，8个小时就玩不下去了，真就只有外面那层皮好看<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，游戏很线性，但从故事到地图设计都看不出多少亮点
+
+这游戏还会按现实时间设置季节性任务，而且规模相当大，一个海岛任务给了两张超大的开放世界地图，感觉没有好几个小时打不完
+
