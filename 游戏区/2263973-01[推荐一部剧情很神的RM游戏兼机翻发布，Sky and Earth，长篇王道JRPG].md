@@ -1826,3 +1826,14 @@ file19.rpgsave
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有中文攻略吗？打到第二章，发现中间少了个怪物图鉴
 
+
+*****
+
+####  blueelf  
+##### 157#         楼主| 发表于 2025-11-27 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68789181&amp;ptid=2263973" target="_blank">c0x9z8 发表于 2025-11-27 21:46</a>
+
+有中文攻略吗？打到第二章，发现中间少了个怪物图鉴</blockquote>
+游戏攻略WIKI：[https://skyandearth.wiki.fc2.com/](https://skyandearth.wiki.fc2.com/)，需要挂日本梯子，请搭配沉浸式翻译使用
+
