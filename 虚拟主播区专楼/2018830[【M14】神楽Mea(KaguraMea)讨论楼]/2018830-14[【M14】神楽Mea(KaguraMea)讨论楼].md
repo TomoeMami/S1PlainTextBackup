@@ -23768,3 +23768,13 @@ Edon桑。
 
 1:04:47 - 1:09:32 ★ 11. CUTTING EDGE / CUTTING EDGE / ZOC
 
+
+*****
+
+####  TiHaru  
+##### 19922#       发表于 2025-11-27 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68777618&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-11-25 17:18</a>
+黑魅是啥？</blockquote>
+一个粉丝，之前不知道在哪里对这个名字有点印象，我还以为是中国人。前几天k4sencon线下拿了牌子拍照发了推特才知道是个女的
+
