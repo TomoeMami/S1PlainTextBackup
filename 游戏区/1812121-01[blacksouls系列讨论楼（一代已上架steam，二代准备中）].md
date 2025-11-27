@@ -166,3 +166,32 @@ ci-en上面上一次更新已经是前年的事情了
 
 一代确实就是非常普通的同人作品，二代是从剧情玩法到演出全面进步了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 212#       发表于 2025-11-27 11:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是二代一转克苏鲁实在难顶
+虽然不懂克苏鲁也能玩，可以理解成高纬度高文明外星人爆改地球人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  千魄万斩  
+##### 213#       发表于 2025-11-27 11:53
+
+抽抽你的
+
+*****
+
+####  红魔馆的糖  
+##### 214#       发表于 2025-11-27 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786406&amp;ptid=1812121" target="_blank">ParadiseMartyr 发表于 2025-11-27 11:49</a>
+但是二代一转克苏鲁实在难顶
+虽然不懂克苏鲁也能玩，可以理解成高纬度高文明外星人爆改地球人</blockquote>
+不就是魂1梗游转血源诅咒梗游么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
