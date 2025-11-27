@@ -281,3 +281,11 @@ ci-en上面上一次更新已经是前年的事情了
 
 我来参与下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬茧墨  
+##### 224#       发表于 2025-11-27 16:25
+
+有克苏鲁相关知识会get到更多一些梗，但完全不懂克系梗当成高维生物其实没啥区别
+
