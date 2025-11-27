@@ -348,3 +348,13 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  这是马甲  
+##### 231#       发表于 2025-11-27 23:46
+
+都说2比1好的多 就等着玩了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
