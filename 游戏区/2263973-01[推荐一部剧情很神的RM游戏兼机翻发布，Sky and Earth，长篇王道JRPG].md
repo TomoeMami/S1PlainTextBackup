@@ -1846,3 +1846,22 @@ file19.rpgsave
 第八章了，这个月玩了这个没有晚上一点前睡的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 果然有了好玩的游戏电子阳痿不存在的
 
+
+*****
+
+####  麦吉卡  
+##### 159#       发表于 2025-11-27 23:54
+
+古神传说什么时候收集齐，第十章了也只有六本
+
+*****
+
+####  funkyfrog  
+##### 160#       发表于 2025-11-27 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68789639&amp;ptid=2263973" target="_blank">麦吉卡 发表于 2025-11-27 23:54</a>
+古神传说什么时候收集齐，第十章了也只有六本</blockquote>
+最后一本在最后一章的一个魔境里
+
+—— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
