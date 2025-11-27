@@ -1690,3 +1690,22 @@ oo居然一个都没<img src="https://static.stage1st.com/image/smiley/face2017/
 全世界高达总选举2025，中期结果发布</blockquote>
 Gself居然能上榜，老泪纵横了
 
+
+*****
+
+####  行政裁定书  
+##### 3114#       发表于 2025-11-27 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68783845&amp;ptid=2071758" target="_blank">wcorvo 发表于 2025-11-26 20:48</a>
+
+Gself居然能上榜，老泪纵横了</blockquote>
+这个是最意外的。结果00系一个都没上
+
+红高达应该是夏亚厨发力，
+
+Gself和TA应该是富野厨发力了。
+
+其他都是之前就公认的高人气机体。
+
+结果00系一个都没上，或许是因为傻子那的机体变种太多，分票严重。富野厨和夏亚厨可以集中投票红高达和gself<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
