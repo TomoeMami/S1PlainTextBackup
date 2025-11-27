@@ -1776,3 +1776,11 @@ file19.rpgsave
 
 主线通了，虽然有细微的都合主义但整体太稳了，真是很久没有这种主线剧情体验的jrpg了
 
+
+*****
+
+####  慕容断月  
+##### 152#       发表于 2025-11-27 11:11
+
+虽然和主题无关，但嘆きの七英雄商业版上steam了，还神奇的加了中文<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
