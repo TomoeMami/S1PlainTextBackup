@@ -6966,3 +6966,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 听说砍养成退钱来着 啥时候发 想抽了新角色就给她拉满
 
+
+*****
+
+####  三谷歩夢  
+##### 613#       发表于 2025-11-27 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68787901&amp;ptid=2256125" target="_blank">21wwwb 发表于 2025-11-27 16:19</a>
+
+听说砍养成退钱来着 啥时候发 想抽了新角色就给她拉满</blockquote>
+下周更新
+
