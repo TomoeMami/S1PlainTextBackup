@@ -6947,3 +6947,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 自己刷个有梅林维神的档吧 别当吃屎仙人了 修女下本默认就是不存在的挂件 凯隆机制都在命座上 由纪没有2+ ...</blockquote>
 但是这b游戏刷初始好麻烦啊，剧情又不能跳
 
+
+*****
+
+####  qixinno2  
+##### 611#       发表于 2025-11-27 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786590&amp;ptid=2256125" target="_blank">Schw 发表于 2025-11-27 12:22</a>
+
+但是这b游戏刷初始好麻烦啊，剧情又不能跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能看你自己了 
+
