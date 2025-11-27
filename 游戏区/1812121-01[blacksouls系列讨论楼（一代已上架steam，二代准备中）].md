@@ -45,3 +45,27 @@ rm真是神器，这两年玩过的几个神级rpg都是这个做的
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cnmyster1ous  
+##### 199#       发表于 2025-11-27 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68785573&amp;ptid=1812121" target="_blank">ABKNOS·adlnr 发表于 2025-11-27 09:36</a>
+
+2也上steam了好啊，顺带红之死有新消息吗</blockquote>
+没有的
+
+ci-en上面上一次更新已经是前年的事情了
+
+推上今年3月更新过一次画的进度
+
+合理怀疑实际进度可能一半都不到
+
+*****
+
+####  czddxy  
+##### 200#       发表于 2025-11-27 10:04
+
+这游戏就是把魂的动作系统变成RPG回合制吗
+
