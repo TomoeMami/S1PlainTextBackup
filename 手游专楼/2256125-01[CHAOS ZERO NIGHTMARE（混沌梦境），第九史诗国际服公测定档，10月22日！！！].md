@@ -6958,3 +6958,11 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 但是这b游戏刷初始好麻烦啊，剧情又不能跳</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能看你自己了 
 
+
+*****
+
+####  21wwwb  
+##### 612#       发表于 2025-11-27 16:19
+
+听说砍养成退钱来着 啥时候发 想抽了新角色就给她拉满
+
