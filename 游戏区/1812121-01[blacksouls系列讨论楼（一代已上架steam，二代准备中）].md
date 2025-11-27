@@ -234,3 +234,11 @@ ci-en上面上一次更新已经是前年的事情了
 
 提前云了一遍2代，1代体量小还没什么感觉，2代这体量感觉玩起来会很麻烦<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  维克塔利昂  
+##### 219#       发表于 2025-11-27 14:47
+
+1的战斗挺烦的，怪刷得太快了，2也这样么
+
