@@ -338,3 +338,13 @@ steam版的是不是很多bgm都换了，不得劲啊
 steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 估计发售第一天就有原版bgm替换mod了<img src="https://static.stage1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arycl  
+##### 230#       发表于 2025-11-27 22:48
+
+刚打完第一部<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
