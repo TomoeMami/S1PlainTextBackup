@@ -203,3 +203,13 @@ ci-en上面上一次更新已经是前年的事情了
 
 点进来发现居然有抽奖那参与一下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 216#       发表于 2025-11-27 12:11
+
+1都玩了的话不玩2就太可惜了
+
+不过2代初见无攻略开荒必漏收集，后面DLC3的数值又卡得很高，我在连打好几个周目，打出DLC3前置要求的那个结局后一下子失去了推的动力，停在DLC3门前烂尾了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

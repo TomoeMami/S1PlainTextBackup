@@ -1709,3 +1709,19 @@ Gself和TA应该是富野厨发力了。
 
 结果00系一个都没上，或许是因为傻子那的机体变种太多，分票严重。富野厨和夏亚厨可以集中投票红高达和gself<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 3115#       发表于 2025-11-27 12:08
+
+<img src="https://img.stage1st.com/forum/202511/27/120830fzczc9z6zuj6sp16.png" referrerpolicy="no-referrer">
+
+<strong>C315904FCC8AD312D78A1F88C7C7E359.png</strong> (55.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-27 12:08 上传
+
+舅舅党说是疯子和大白鹅
+
