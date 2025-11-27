@@ -698,3 +698,16 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 我怎么记得这系列出了好多游戏了，原来都不是二代吗
 
+
+*****
+
+####  alucardcz  
+##### 68#       发表于 2025-11-27 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786857&amp;ptid=2148085" target="_blank">萌萌地镜头 发表于 2025-11-27 13:16</a>
+
+我怎么记得这系列出了好多游戏了，原来都不是二代吗</blockquote>
+没叫2 但都是续作 剧情是连一起的  
+
+不过属于画蛇添足那类的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
