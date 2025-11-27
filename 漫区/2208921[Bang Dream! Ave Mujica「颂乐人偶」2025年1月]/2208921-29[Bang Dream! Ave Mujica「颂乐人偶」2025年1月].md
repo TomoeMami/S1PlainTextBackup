@@ -178,3 +178,15 @@
 [蜂巣 (Apoidea)] モーティスの メンバー仲良し計画 ♪プランH編♪ (Ban ...</blockquote>
 从来不觉得多洛里斯清白过实际名台词
 
+
+*****
+
+####  堀内爱里衣  
+##### 41500#       发表于 2025-11-27 21:07
+
+       <img src="https://img.stage1st.com/forum/202511/27/210725jyebaceo0dei6d38.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/oshitabi_update/status/1993998239771890067](https://x.com/oshitabi_update/status/1993998239771890067)
+
+       [https://t.co/U3M7PC8hpD](https://t.co/U3M7PC8hpD)
+
