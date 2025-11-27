@@ -711,3 +711,21 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 不过属于画蛇添足那类的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 69#       发表于 2025-11-27 14:41
+
+1代剧情过于完整，后面出的续作全是小修小补或者狗尾续貂，收尾作驭血写崩了导致1代故事线草草完结
+
+于是制作组另起炉灶搞了2代，时间线接在1代结束5年后，结果死亡病患一鸽就没有下文，黑暗扭曲一直跳票到现在
+
+<img src="https://img.stage1st.com/forum/202511/27/154113rh282m98877lmh07.png" referrerpolicy="no-referrer">
+
+<strong>049.png</strong> (345 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-11-27 14:41 上传
+
