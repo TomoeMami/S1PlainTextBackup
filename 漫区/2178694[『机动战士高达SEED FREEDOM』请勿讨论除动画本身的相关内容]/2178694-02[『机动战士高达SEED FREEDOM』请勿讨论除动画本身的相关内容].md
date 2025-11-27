@@ -33,3 +33,14 @@
 黄毛声优的这段台词有意思，高达seed世界观下，黄毛复活的可能性也不是没有，所以高达seed的世界观有死人可 ...</blockquote>
 基因记忆技术，普雷亚死了又活并且本来就疑似是从穆的记忆复制的，并且疑似还能靠植入基因男女互换
 
+
+*****
+
+####  三天八百万  
+##### 2032#       发表于 2025-11-28 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786291&amp;ptid=2178694" target="_blank">saturnus 发表于 2025-11-27 11:27</a>
+
+高父又在x上作死了</blockquote>
+玩影射史学的起码得懂史<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
