@@ -35,3 +35,13 @@ rm真是神器，这两年玩过的几个神级rpg都是这个做的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  h33  
+##### 198#       发表于 2025-11-27 09:47
+
+二代之前玩的时候断在dlc3之前好久了，该捡起来了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
