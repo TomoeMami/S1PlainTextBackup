@@ -242,3 +242,16 @@ ci-en上面上一次更新已经是前年的事情了
 
 1的战斗挺烦的，怪刷得太快了，2也这样么
 
+
+*****
+
+####  Tissuesea  
+##### 220#       发表于 2025-11-27 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68787293&amp;ptid=1812121" target="_blank">维克塔利昂 发表于 2025-11-27 14:47</a>
+1的战斗挺烦的，怪刷得太快了，2也这样么</blockquote>
+二代很好玩。
+虽然没玩过血缘，二代也有血缘枪反打断怪的机制，武器也有特色。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
