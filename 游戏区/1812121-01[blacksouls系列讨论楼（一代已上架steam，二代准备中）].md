@@ -114,3 +114,22 @@ ci-en上面上一次更新已经是前年的事情了
 
 2准备steam上了再玩了
 
+
+*****
+
+####  红魔馆的糖  
+##### 206#       发表于 2025-11-27 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68786029&amp;ptid=1812121" target="_blank">Mr_NaHCO3 发表于 2025-11-27 10:44</a>
+只玩过dl上的1，一周目打完的时候感觉是个普通的魂梗同人，全收集后感觉有点意思哈。
+
+打完1在dl上看过2的pv ...</blockquote>
+一代本来就只是个梗作，二代是完全的超进化作品，也不知道怎么进步这么大的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  矮矮人  
+##### 207#       发表于 2025-11-27 10:50
+
+感觉2已经过去好久了
+
