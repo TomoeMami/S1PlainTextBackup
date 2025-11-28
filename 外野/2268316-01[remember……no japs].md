@@ -2087,3 +2087,11 @@ It's about sending a message.
 
 练哈基米音乐吧
 
+
+*****
+
+####  静静在想我  
+##### 205#       发表于 2025-11-28 23:14
+
+虽然掐麦有点难绷，但是也挺好的，快刀斩乱麻，免得给国内的一些文娱从业者还有回旋余地的错觉，当年韩流那么火，限了也就限了，很难说有什么很大影响<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
