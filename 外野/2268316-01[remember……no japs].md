@@ -499,3 +499,91 @@ saraba运气是真的好，晚一周估计就和吉本一样也取消了
 —— 来自 samsung SM-N ...</blockquote>
 看美依礼芽的微博貌似前几天就开完了
 
+
+*****
+
+####  RandomDictator  
+##### 50#       发表于 2025-11-28 16:58
+
+自然友谊不是纯国内乐队吗怎么也上榜了
+
+*****
+
+####  卑弥呼大和  
+##### 51#       发表于 2025-11-28 17:00
+
+什么时候开始拆高达基地，北京这个在王府井也没什么东西，放这里碍事不如直接拆了
+
+*****
+
+####  Ferrari  
+##### 52#       发表于 2025-11-28 17:00
+
+美战舞台剧杭州站离开演只剩4h发公告取消了<img src="https://static.stage1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最后的法芙娜  
+##### 53#       发表于 2025-11-28 17:00
+
+只认识一个kokia
+
+*****
+
+####  aukia  
+##### 54#       发表于 2025-11-28 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793657&amp;ptid=2268316" target="_blank">卡仑治糖 发表于 2025-11-28 16:47</a>
+
+那应该不是，如果是法务部背锅吧，但凡大型项目合同中规定不可抗力或者相关风险条款无责解约妥妥的
+
+退一 ...</blockquote>
+费用上，主办方肯定全损，看情况会给予演出方非惩罚性的补偿金（取消费？），歌手艺人的损失则是各种前期投入费用。
+
+*****
+
+####  forestlimit  
+##### 55#       发表于 2025-11-28 17:03
+
+<blockquote>cqc1021 发表于 2025-11-28 16:20
+还不是国内歌手乐队太拉了，日本随便来个在本土都没粉丝的阿猫阿狗都能吊打国内知名乐队
+
+—— 来自 sams ...</blockquote>
+并不是，国内乐队也活得好好的，场地分大小，14亿的市场填个小场子又不是事儿
+
+
+*****
+
+####  Victorino  
+##### 56#       发表于 2025-11-28 17:05
+
+花谱还能开吗？理论上花谱不是真人（？），初音未来能正常开，花谱是否存在一点理论上的可能性（但她也不会日语之外的语言，如果禁日语的话肯定也唱不了歌）
+
+*****
+
+####  顾然  
+##### 57#       发表于 2025-11-28 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793780&amp;ptid=2268316" target="_blank">Victorino 发表于 2025-11-28 17:05</a>
+花谱还能开吗？理论上花谱不是真人（？），初音未来能正常开，花谱是否存在一点理论上的可能性（但她也不会 ...</blockquote>
+花谱不是之前live真人露脸了吗 还被喷了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  aukia  
+##### 58#       发表于 2025-11-28 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793775&amp;ptid=2268316" target="_blank">forestlimit 发表于 2025-11-28 17:03</a>
+
+并不是，国内乐队也活得好好的，场地分大小，14亿的市场填个小场子又不是事儿 ...</blockquote>
+国内乐队不行，甚至自己和自己十多年前比都不行。
+
+*****
+
+####  我是大鲨鱼1453  
+##### 59#       发表于 2025-11-28 17:08
+
+卧槽，操作错了，点成扣分了，我的锅我的锅。向楼主和楼友们致歉！
+
