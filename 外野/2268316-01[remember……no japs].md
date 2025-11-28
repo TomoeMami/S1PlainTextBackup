@@ -2341,3 +2341,18 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 “你们是怎么有胆子敢拦着本小布尔乔亚替你们岁月静好的？”
 
+
+*****
+
+####  jiangyou  
+##### 231#       发表于 2025-11-29 06:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794392&amp;ptid=2268316" target="_blank">GAdoru 发表于 2025-11-28 18:18</a>
+
+未来有你居然没取消吗</blockquote>
+未来有你是真的没有“艺人”啊，一刀切的时候估计真就以日籍“艺人”为标准了
+
+这次据说了为了省钱全用了国内乐队歪打正着成了“国内公司用国内艺人”举办的演出了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外等着看曲目是不是全中文来确认那个no japs另一层含义是不是真的了，花点功夫挑挑拣拣凑个全中文歌单不算难事
+
