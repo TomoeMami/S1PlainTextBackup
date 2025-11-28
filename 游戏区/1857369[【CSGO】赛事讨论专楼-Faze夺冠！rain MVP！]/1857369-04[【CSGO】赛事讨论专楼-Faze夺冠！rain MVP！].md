@@ -50,3 +50,21 @@
 
 沟槽的又是第一阶段对4个，奥斯汀就是这样没钻石币的，3-0没选对太伤了，不改规则的话对6个了；lvg0-3倒是猜对了，有苏这个神人在没意外<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 4828#       发表于 2025-11-28 22:18
+
+STAGE1没想过LVG和RA连HUNS都打不过
+
+第二阶段果断不相信天禄
+
+<img src="https://img.stage1st.com/forum/202511/28/221641ckcam0p3lqa3p0dc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251128221615.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 22:16 上传
+

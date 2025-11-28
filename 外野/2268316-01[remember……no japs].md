@@ -1938,3 +1938,42 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 北京寿司郎这几天排队情况怎么样了？之前听说人非常多。
 
+
+*****
+
+####  矢吹奈子  
+##### 189#       发表于 2025-11-28 22:19
+
+国产乐队要演日本歌现在也不给过审了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/0c49ea05450674e5b062f24e198777da/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  风纪の雪  
+##### 190#       发表于 2025-11-28 22:20
+
+别的不说，今晚万代嘉年华舞台演出唱歌唱一半拉闸是真的难绷，就差那么一两分钟吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  顾然  
+##### 191#       发表于 2025-11-28 22:21
+
+对哦 12.6上海寿司郎还开吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  malisa  
+##### 192#       发表于 2025-11-28 22:26
+
+吃饭属于另外一个行业了,目前是文娱吧,文娱可替代性太高了
+
+制造业,餐饮业影响会大一点,看有多大力度了
+
+要干就不是寿司郎一家的事情了
+
