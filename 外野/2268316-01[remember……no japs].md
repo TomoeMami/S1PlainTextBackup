@@ -2008,3 +2008,46 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 文娱对社会影响力大，餐饮属于劳动密集型产业，一方面影响己方就业，另一方面你还得区分日本人开的和中国人开的日料，肯定不会这样砍，日料我感觉怎么也要受震动，这个 no jap 肯定会全方面影响的
 
+
+*****
+
+####  Akakaka  
+##### 197#       发表于 2025-11-28 22:40
+
+<blockquote>苦瓜柠檬茶 发表于 2025-11-28 17:23
+</blockquote>
+求求了这波趁机把上野千鹤子这个污蔑慰安妇的木柜子永久清除吧
+
+*****
+
+####  malisa  
+##### 198#       发表于 2025-11-28 22:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是那句话,要精准打击日企就是取消免签, 
+
+日企会觉得手脚被砍
+
+展会,商务考察都要走大使馆排队
+
+排的快,排的慢 全看大使馆的心情
+
+*****
+
+####  海帕可乐  
+##### 199#       发表于 2025-11-28 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795956&amp;ptid=2268316" target="_blank">矢吹奈子 发表于 2025-11-28 22:19</a>
+
+国产乐队要演日本歌现在也不给过审了</blockquote>
+那就唱些抽象歌呗，大东北啥的，不知道哈基米音乐算不算日文歌<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火星後繼者  
+##### 200#         楼主| 发表于 2025-11-28 22:44
+
+<blockquote>矢吹奈子 发表于 2025-11-28 22:19
+国产乐队要演日本歌现在也不给过审了</blockquote>
+唱《大东北我的家乡》很难吗？
+
