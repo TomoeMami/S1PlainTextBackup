@@ -408,3 +408,14 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 1的c结局刚打完房间的灯闪了几下坏了，差点吓尿了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuroichi  
+##### 237#       发表于 2025-11-28 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68790683&amp;ptid=1812121" target="_blank">华发夜眼[CN] 发表于 2025-11-28 09:18</a>
+
+1的c结局刚打完房间的灯闪了几下坏了，差点吓尿了</blockquote>
+二代更刺激，里面有个医院，很带感的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
