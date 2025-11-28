@@ -1414,3 +1414,15 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 —— 来自 Xiaomi 23054RA19C, Android 14, 鹅球 v3.5.99 ...</blockquote>
 没开票时间上也不急还在抱侥幸求变心理吧<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 138#       发表于 2025-11-28 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794637&amp;ptid=2268316" target="_blank">岸波白野 发表于 2025-11-28 18:59</a>
+没开票时间上也不急还在抱侥幸求变心理吧</blockquote>
+它下周有一个声优见面会和一个京吹音乐会，早就开票了
+
+—— 来自 Xiaomi 23054RA19C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
