@@ -1068,3 +1068,44 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 是时候把福利蛋和初号机都拆了</blockquote>
 按这个趋势下去，如果日本政府一直扛着不道歉不收回，早晚得拆
 
+
+*****
+
+####  螺纹  
+##### 105#       发表于 2025-11-28 17:39
+
+还不如石破茂呢
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  隔壁的王某某  
+##### 106#       发表于 2025-11-28 17:39
+
+别的不说，今年邦邦那偶像饭圈是真聚集了一大圈神人，能让木柜子痴线上线下少发一点癫我还是支持的，至于看番环境再烂也烂不过21年，网盘观众早习惯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BAKA林  
+##### 107#       发表于 2025-11-28 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793973&amp;ptid=2268316" target="_blank">循此苦旅 发表于 2025-11-28 17:27</a>
+kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理罢了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">哦，上周北京提前一天取消的呢？而且很多演出是没有退票选项的。
+
+【大麦网】尊敬的客户您好，您的订单：已为您反馈申请，因演出票为有价观演凭证，非普通商品，其背后承载的是文化服务并具有时效性、稀缺性等特征，故此订单不支持退换；建议您调整好时间正常观演，感谢您的理解与支持。
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 108#       发表于 2025-11-28 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793893&amp;ptid=2268316" target="_blank">Nanachi 发表于 2025-11-28 17:18</a>
+
+华发夜眼，就是那个jrpg up主？
+
+论坛助手,iPhone</blockquote>
+阿楚有股味
+
