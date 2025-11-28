@@ -1865,3 +1865,19 @@ file19.rpgsave
 
 —— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  blueelf  
+##### 161#         楼主| 发表于 2025-11-28 10:49
+
+ 本帖最后由 blueelf 于 2025-11-28 10:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68788043&amp;ptid=2263973" target="_blank">LeiaR 发表于 2025-11-27 16:43</a>
+
+玩到第七章了，故事非常喜欢。有没有其他故事特别好的推荐啊，坛里爬了一下楼，之后准备玩ざくざくアクター ...</blockquote>
+同作者的前作，千年时计，这部的毛病跟SKY AND EARTH一模一样，各方面比SAD更不成熟，但是构思很精巧，故事上大框架我觉得优于SAD，可惜剧情里的一些羁绊对我来说太矫情，打到差不多70%实在受不了坑了，这部有SCD的汉化，过段时间会放出来
+
+Seraphic Blue，有名的RM游戏，世界观跟SAD有一点像，但故事的基调完全相反，极其成人化，这个我正在汉化
+
+你懂日文的话选择面就广了，多玩几部给大家发掘一下佳作呗
+
