@@ -1385,3 +1385,32 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 
 —— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  丸山之上缤纷彩  
+##### 135#       发表于 2025-11-28 18:56
+
+说明女性政客对娱乐业的打击是毁灭性的，朴槿惠毁掉了kpop的中国市场，高市毁掉了日娱的中国市场，得亏16年没选上希拉里，不然就是好莱坞的中国市场也没了
+
+*****
+
+####  兰德里  
+##### 136#       发表于 2025-11-28 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794604&amp;ptid=2268316" target="_blank">BAKA林 发表于 2025-11-28 18:51</a>
+
+傻逼，管他是日本还是大麦，这里去的观众很多不能退票没有机酒赔偿是客观现实，他在前面说很多人没有提前 ...</blockquote>
+傻逼，喷的就是你
+
+*****
+
+####  岸波白野  
+##### 137#       发表于 2025-11-28 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794598&amp;ptid=2268316" target="_blank">dqtql 发表于 2025-11-28 18:50</a>
+逸兴到现在一点动静也无，神奇
+
+—— 来自 Xiaomi 23054RA19C, Android 14, 鹅球 v3.5.99 ...</blockquote>
+没开票时间上也不急还在抱侥幸求变心理吧<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
