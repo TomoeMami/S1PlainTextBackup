@@ -44,3 +44,13 @@
 高父又在x上作死了</blockquote>
 玩影射史学的起码得懂史<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  行政裁定书  
+##### 2033#       发表于 2025-11-28 09:06
+
+本子是奥布，那名东大到底是联合军还是扎夫特呢？
+
+我怎么记得当时奥布是被两边打击？
+
