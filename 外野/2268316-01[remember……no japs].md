@@ -1886,3 +1886,19 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 查看全部评分
 
+
+*****
+
+####  zzxzz1019  
+##### 183#       发表于 2025-11-28 22:01
+
+都攻击说什么赔钱的都是自己人，日本人赚钱没损失的，这时候不反省为什么要签那么利于日本人的合同了？自己非要买断送钱，那同情不起来呢，亏到不想和日本人做生意了就治好了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  勿徊哉  
+##### 184#       发表于 2025-11-28 22:06
+
+上海的寿司郎会取消开店吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
