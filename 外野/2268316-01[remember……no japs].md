@@ -1141,3 +1141,45 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 真有来不及的就当去北京旅游呗，逛逛长城啥的。退不了票的就纯属主办方不要脸，打12315。 ...</blockquote>
 也就只有当旅游了，我可以明确给你说有些票没人能给你退，包括12315或者当地文旅局，因为我这周才试过。别没疼在自己头上就笑别人不智，没必要
 
+
+*****
+
+####  卡仑治糖  
+##### 112#       发表于 2025-11-28 17:59
+
+ 本帖最后由 卡仑治糖 于 2025-11-28 18:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794172&amp;ptid=2268316" target="_blank">aukia 发表于 2025-11-28 17:47</a>
+韩、日的音乐行业结构是两个极端。韩国是大公司把持，日本是几千家大小厂牌。例如说，其实并不存在所谓的 ...</blockquote>
+厂牌多，所以看限日令落实痛不痛就完了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+所以看除了老中哈日人士全世界还有几个人肯出真金白银为“jpop”买单就完了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 113#       发表于 2025-11-28 18:00
+
+今年第一次见到回头钱。
+<img src="https://p.sda1.dev/29/fd27a44720c89f5efe530e68cbc6d181/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/e27ed4491b78f58515596f3eceb2a278/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我被骗了五块钱  
+##### 114#       发表于 2025-11-28 18:03
+
+好！反正我不在上海<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我被骗了五块钱  
+##### 115#       发表于 2025-11-28 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793587&amp;ptid=2268316" target="_blank">Indolencoma 发表于 2025-11-28 16:37</a>
+
+那……美依礼芽的呢</blockquote>
+我记得前几天的时候特意有公告说她的演出没问题，只能说连夜绣红旗真的有用
+
