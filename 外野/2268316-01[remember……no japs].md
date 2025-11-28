@@ -1262,3 +1262,29 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 
 今晚在上海西岸大剧院有死亡搁浅的音乐会 没说取消
 
+
+*****
+
+####  卡仑治糖  
+##### 124#       发表于 2025-11-28 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794354&amp;ptid=2268316" target="_blank">aukia 发表于 2025-11-28 18:12</a>
+不过，取消演出的大部分都是渴望开拓市场的小型公司、乐队艺人，在政治领域没什么话语权。 ...</blockquote>
+好家伙，老中大把送钱的时候，站在台面上的人公然叫嚣要敌对就装聋作哑没话语权，甚至恨不得吐你一口痰，打疼了不是会发声么。
+这个形势随时开打了就是敌国的国家，各个领域都发力来损害他们的经济发展才是正经事<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kouym  
+##### 125#       发表于 2025-11-28 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793438&amp;ptid=2268316" target="_blank">卢云 发表于 2025-11-28 16:18</a>
+
+其实我有个疑问啊，感觉近两年一堆没听过的日本明星都能来国内开演唱会，粉丝见面会，引进电影也越来越多， ...</blockquote>
+国内基数大 再小众的圈子 在一线填个从几百到几千人的场都挺简单的
+
+真比较红火的就要去开梅奔了
+
