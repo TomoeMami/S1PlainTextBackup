@@ -419,3 +419,11 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 1的c结局刚打完房间的灯闪了几下坏了，差点吓尿了</blockquote>
 二代更刺激，里面有个医院，很带感的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 238#       发表于 2025-11-28 14:32
+
+那还是2代dlc里的医院比精神病院刺激多了，甚至后面还有第一人称恐怖文游冒险内容，各种吓我一哆嗦
+
