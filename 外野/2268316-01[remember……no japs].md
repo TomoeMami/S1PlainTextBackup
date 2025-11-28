@@ -2356,3 +2356,13 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 另外等着看曲目是不是全中文来确认那个no japs另一层含义是不是真的了，花点功夫挑挑拣拣凑个全中文歌单不算难事
 
+
+*****
+
+####  66367749  
+##### 232#       发表于 2025-11-29 06:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796712&amp;ptid=2268316" target="_blank">whzfjd 发表于 2025-11-29 01:22</a>
+全语境no jap，那B站不应该隐藏全部日系内容吗</blockquote>
+很显然说的都是线下演出表演
+
