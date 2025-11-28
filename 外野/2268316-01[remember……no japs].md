@@ -2395,3 +2395,15 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 论坛助手,iPhone</blockquote>
 突然想起来外野时代曾经有id发帖跟这位表白，然后俩人还奔现了，就不知道最后有没有在一起<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pointer243  
+##### 236#       发表于 2025-11-29 07:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796290&amp;ptid=2268316" target="_blank">wwhaha 发表于 2025-11-28 23:32</a>
+只有我觉得万代那场多少有点骗庭杖么，大牌如SID都是中午就实锤通知取消了的。同样是上海的活动，到了下午 ...</blockquote>
+现场掐麦不是只会冲主办方吗?都已经红旗好几天了还在装瞎蒙混过关,还搞出这样最难看的操作,怎么看都是主办方全责吧
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
