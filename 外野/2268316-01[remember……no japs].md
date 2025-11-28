@@ -775,3 +775,189 @@ saraba运气是真的好，晚一周估计就和吉本一样也取消了
 kokia layers 上海1月底的都刚取消了
 那12月的一堆不全完蛋
 
+
+*****
+
+####  BAKA林  
+##### 77#       发表于 2025-11-28 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793856&amp;ptid=2268316" target="_blank">forestlimit 发表于 2025-11-28 17:13</a>
+那也不可能吧，开得起livehouse就吊打知名乐队了吗</blockquote>
+国内这几年乐队都更倾向于去拼盘音乐节，能去开巡演的数量比以前少太多了。票价卖不起＋收益不如音乐节单次。小场子靠这些乐队撑不住了。
+
+*****
+
+####  waterstars  
+##### 78#       发表于 2025-11-28 17:16
+
+ 本帖最后由 waterstars 于 2025-11-28 17:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793849&amp;ptid=2268316" target="_blank">aukia 发表于 2025-11-28 17:12</a>
+
+损失太大，后续小主办方和体量小的艺人可能无力承办跨国活动。</blockquote>
+说不定下周一波车力一波鞠躬道歉下台新首相第一件事宣布日本政治远离台湾，一切又回来了
+
+那活人能被尿憋死？人活着，嗓子还在，舞台还在，就能上去唱
+
+*****
+
+####  BAKA林  
+##### 79#       发表于 2025-11-28 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793863&amp;ptid=2268316" target="_blank">循此苦旅 发表于 2025-11-28 17:14</a>
+也就kokia那场算突然吧，后面的就纯属愿赌服输了。</blockquote>
+北京大量临近一天取消的，kokia那次因为人都到门口了才赔机酒，其他提前一天的机酒损失都是消费者自己承担。你总不能临近一天才买票买机票吧
+
+*****
+
+####  Unbiquitous  
+##### 80#       发表于 2025-11-28 17:17
+
+这种情况机票酒店能退吗
+
+
+*****
+
+####  Nanachi  
+##### 81#       发表于 2025-11-28 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793543&amp;ptid=2268316" target="_blank">华发夜眼[CN] 发表于 2025-11-28 16:31</a>
+妈的太爽了消息一出所有看木柜子的不是在神嚎鬼哭就是在疯狂开串接近疯魔太爽了太爽了 ...</blockquote>
+华发夜眼，就是那个jrpg up主？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  混沌的风  
+##### 82#       发表于 2025-11-28 17:18
+
+这不显得首相大人的外交攻击效果显著嘛<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unbiquitous  
+##### 83#       发表于 2025-11-28 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793887&amp;ptid=2268316" target="_blank">BAKA林 发表于 2025-11-28 17:17</a>
+ 北京大量临近一天取消的，kokia那次因为人都到门口了才赔机酒，其他提前一天的机酒损失都是消费者自己承 ...</blockquote>
+看来和赴日旅游一样官方帮民间自发抵制了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BAKA林  
+##### 84#       发表于 2025-11-28 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793899&amp;ptid=2268316" target="_blank">Unbiquitous 发表于 2025-11-28 17:19</a>
+看来和赴日旅游一样官方帮民间自发抵制了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">这事没的说，时代的巨轮。不过国内对消费者权益选择性漠视也不是一两天了，自己受着吧。
+
+*****
+
+####  Victorino  
+##### 85#       发表于 2025-11-28 17:20
+
+如果明早车力光速道歉，那1月的有刺无刺和roselia还能保住吗
+
+
+*****
+
+####  leander_z  
+##### 86#       发表于 2025-11-28 17:20
+
+除非有日本人给她一火炮，不然怎么可能道歉
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  note_2  
+##### 87#       发表于 2025-11-28 17:20
+
+其实有几家是卖的太烂顺着形势主动取消的
+
+*****
+
+####  循此苦旅  
+##### 88#       发表于 2025-11-28 17:21
+
+<blockquote>BAKA林 发表于 2025-11-28 17:17
+北京大量临近一天取消的，kokia那次因为人都到门口了才赔机酒，其他提前一天的机酒损失都是消费者自己承 ...</blockquote>
+意思是kokia那场取消后其他的就该考虑退票退酒店了
+
+*****
+
+####  BAKA林  
+##### 89#       发表于 2025-11-28 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793924&amp;ptid=2268316" target="_blank">循此苦旅 发表于 2025-11-28 17:21</a>
+意思是kokia那场取消后其他的就该考虑退票退酒店了</blockquote>
+提前一天通知谁家机票给你退？扣70%你自己承担吗？
+
+*****
+
+####  Wildfire  
+##### 90#       发表于 2025-11-28 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793914&amp;ptid=2268316" target="_blank">Victorino 发表于 2025-11-28 17:20</a>
+
+如果明早车力光速道歉，那1月的有刺无刺和roselia还能保住吗</blockquote>
+不是说下个月要拜鬼呢吗，感觉还能提速啊
+
+*****
+
+####  飛霞精灵  
+##### 91#       发表于 2025-11-28 17:23
+
+<blockquote>aukia 发表于 2025-11-28 17:12
+损失太大，后续小主办方和体量小的艺人可能无力承办跨国活动。</blockquote>
+有精力跑中国捞米，没能力回日本施压？体量小就小吧。赚不到超出自己能力的钱。
+
+*****
+
+####  苦瓜柠檬茶  
+##### 92#       发表于 2025-11-28 17:23
+
+<img src="https://img.stage1st.com/forum/202511/28/172328piohrq3qbi0i59k9.jpg" referrerpolicy="no-referrer">
+
+<strong>6347.jpg</strong> (43.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202511/28/172328d39jt4e7fenoe989.png" referrerpolicy="no-referrer">
+
+<strong>6346.png</strong> (117.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202511/28/172329f2ylflfixbtoj9jm.jpg" referrerpolicy="no-referrer">
+
+<strong>6345.jpg</strong> (191.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 17:23 上传
+
+*****
+
+####  卡仑治糖  
+##### 93#       发表于 2025-11-28 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793800&amp;ptid=2268316" target="_blank">鳄鱼亮爪 发表于 2025-11-28 17:08</a>
+这种真未必，得看合同咋定的，而且有时有纠纷公家还未必支持自家这边</blockquote>
+不用未必，没规定都算不可抗力，更何况合同中不规定是不可能的，就不要瞎琢磨这点项目经验都没有了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  木木の林  
+##### 94#       发表于 2025-11-28 17:26
+
+啥时拆掉京沪的高达基地，我想看狗代死啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

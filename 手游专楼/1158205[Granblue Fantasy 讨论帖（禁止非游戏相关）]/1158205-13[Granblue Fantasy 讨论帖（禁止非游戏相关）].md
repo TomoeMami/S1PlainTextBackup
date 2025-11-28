@@ -65,3 +65,24 @@
 
 不过历来11月团都是出粪怪的 本来就是1年里人最少的团 做起来也放飞自我 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这BOSS 50特动已经可以拍7个强化了
 
+
+*****
+
+####  VictorWJ  
+##### 18279#       发表于 2025-11-28 17:17
+
+隔壁gbf说是出了时龙同位体，借楼问下gbf时龙现在强度如何<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18280#       发表于 2025-11-28 17:22
+
+时龙啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+召唤：时龙不重要（看着像是你越强才会越好用）
+武器：时龙很重要，沙利叶落地后两把还是单面刚需，大概
+人：好像也不是很重要，一眼望去高难带的都是季限
+

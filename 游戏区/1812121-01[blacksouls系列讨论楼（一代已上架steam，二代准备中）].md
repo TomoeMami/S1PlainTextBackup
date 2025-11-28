@@ -472,3 +472,15 @@ DLC3医院的时候反而是已经麻木了 除了那个电梯初一看有点恐
 
 而且dlc病院的怪都是无限复活＋自带反隐，麻烦得很。精神病院的怪好像是可以靠隐身避敌跑酷的吧
 
+
+*****
+
+####  ParadiseMartyr  
+##### 244#       发表于 2025-11-28 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68792888&amp;ptid=1812121" target="_blank">盒饭鬼魅清蒸鱼 发表于 2025-11-28 14:57</a>
+几年前通过dlsite版一二部，steam版出来有什么不同？</blockquote>
+可以看格林的无码
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
