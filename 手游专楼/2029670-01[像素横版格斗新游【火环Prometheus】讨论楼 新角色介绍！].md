@@ -62,3 +62,20 @@
 
 怎会有动作手游把需要频繁点按的技能键做得和“回城”一般大小
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 67#       发表于 2025-11-28 14:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">气笑了，连抽卡也这么的xx，建议早日对齐28块一抽
+
+Screenshot_火环_20251128_145618.jpg
+(208.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 14:58 上传
+
+<img src="https://img.stage1st.com/forum/202511/28/145809r8f76q8rakqs9td7.jpg" referrerpolicy="no-referrer">
+
