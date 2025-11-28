@@ -447,3 +447,55 @@ saraba</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  makiRicardo  
+##### 45#       发表于 2025-11-28 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793489&amp;ptid=2268316" target="_blank">失落之翼 发表于 2025-11-28 16:24</a>
+saraba</blockquote>
+saraba运气是真的好，晚一周估计就和吉本一样也取消了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  acacaclove  
+##### 46#       发表于 2025-11-28 16:51
+
+原来上周看的angela是最后一舞
+
+*****
+
+####  cqc1021  
+##### 47#       发表于 2025-11-28 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793587&amp;ptid=2268316" target="_blank">Indolencoma 发表于 2025-11-28 16:37</a>
+那……美依礼芽的呢</blockquote>
+应该也一样吧。滨崎步昨天刚为香港默哀完今天就取消，怎么看这波都是一刀切了。
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  丸山之上缤纷彩  
+##### 48#       发表于 2025-11-28 16:56
+
+<blockquote>卢云 发表于 2025-11-28 16:18
+其实我有个疑问啊，感觉近两年一堆没听过的日本明星都能来国内开演唱会，粉丝见面会，引进电影也越来越多， ...</blockquote>
+别的不知道，很多日本乐队都是livehouse演出，一场可能也就几百个观众
+
+*****
+
+####  fatman  
+##### 49#       发表于 2025-11-28 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793703&amp;ptid=2268316" target="_blank">cqc1021 发表于 2025-11-28 16:53</a>
+
+应该也一样吧。滨崎步昨天刚为香港默哀完今天就取消，怎么看这波都是一刀切了。
+
+—— 来自 samsung SM-N ...</blockquote>
+看美依礼芽的微博貌似前几天就开完了
+
