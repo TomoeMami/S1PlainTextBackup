@@ -2095,3 +2095,30 @@ It's about sending a message.
 
 虽然掐麦有点难绷，但是也挺好的，快刀斩乱麻，免得给国内的一些文娱从业者还有回旋余地的错觉，当年韩流那么火，限了也就限了，很难说有什么很大影响<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gajangmudohe  
+##### 206#       发表于 2025-11-28 23:20
+
+<blockquote>静静在想我 发表于 2025-11-28 23:14
+虽然掐麦有点难绷，但是也挺好的，快刀斩乱麻，免得给国内的一些文娱从业者还有回旋余地的错觉，当年韩流那 ...</blockquote>
+别的领域碰上这种事儿早就一窝蜂钻进去抢地盘了，还不是国内文娱不争气，当年电视也是黄金时段禁播境外动画，结果那几年搞出来一大堆骗补货色
+
+*****
+
+####  ccared  
+##### 207#       发表于 2025-11-28 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795858&amp;ptid=2268316" target="_blank">zzxzz1019 发表于 2025-11-28 22:01</a>
+都攻击说什么赔钱的都是自己人，日本人赚钱没损失的，这时候不反思为什么要签那么利于日本人的合同了？自己 ...</blockquote>
+因为姿态就是做给你这种人看啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不做狠点某地复刻当年疫情的灵活管控，到今天都敢“我们还是要同外国人做生意的”。
+
+
+*****
+
+####  ryanghj  
+##### 208#       发表于 2025-11-28 23:23
+
+因为影响确实不大啊，和当年限韩令时期韩国文娱在国内的影响相比，现在的日本文娱在国内的影响小太多了
+

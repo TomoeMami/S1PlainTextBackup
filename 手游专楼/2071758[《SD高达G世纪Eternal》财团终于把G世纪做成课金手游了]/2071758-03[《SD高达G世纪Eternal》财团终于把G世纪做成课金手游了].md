@@ -1852,3 +1852,11 @@ tie剧场版2的，本来也没指望能出SDGG版
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3130#       发表于 2025-11-28 23:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然想到，上的是剧场版的话，其名为马夫蒂这曲子是不是就没用了，曲包用剧场版的
+
