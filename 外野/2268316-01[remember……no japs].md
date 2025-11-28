@@ -1771,3 +1771,51 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  斑驳的阴影  
+##### 173#       发表于 2025-11-28 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793775&amp;ptid=2268316" target="_blank">forestlimit 发表于 2025-11-28 17:03</a>
+并不是，国内乐队也活得好好的，场地分大小，14亿的市场填个小场子又不是事儿 ...</blockquote>
+好到很多场地都开始搞免场租零保底了？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HATENA  
+##### 174#       发表于 2025-11-28 21:34
+
+<blockquote>fopinecone 发表于 2025-11-28 21:26
+虚拟主播是不是要焕发第二春了
+
+论坛助手,iPhone</blockquote>
+难，虽然阿姨屁股歪但是对管人的铁拳可没少过
+
+
+*****
+
+####  斑驳的阴影  
+##### 175#       发表于 2025-11-28 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794622&amp;ptid=2268316" target="_blank">丸山之上缤纷彩 发表于 2025-11-28 18:56</a>
+说明女性政客对娱乐业的打击是毁灭性的，朴槿惠毁掉了kpop的中国市场，高市毁掉了日娱的中国市场，得亏16年 ...</blockquote>
+那希婆没选上还是挺遗憾的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  斑驳的阴影  
+##### 176#       发表于 2025-11-28 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795403&amp;ptid=2268316" target="_blank">yoki42 发表于 2025-11-28 20:53</a>
+冤有头债有主，要怨就怨高市去，谁让她伤害了大部分中国人的感情。
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+有日本乐队抱怨车力的还被右翼喷了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
