@@ -44,3 +44,21 @@
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  MobileMeowbot  
+##### 66#       发表于 2025-11-28 14:42
+
+频繁请求启动支付宝是真的
+
+<img src="https://img.stage1st.com/forum/202511/28/144205v0vf990vb05v5foo.png" referrerpolicy="no-referrer">
+
+<strong>充代币吗.png</strong> (72.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 14:42 上传
+
+怎会有动作手游把需要频繁点按的技能键做得和“回城”一般大小
+
