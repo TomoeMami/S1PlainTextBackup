@@ -1183,3 +1183,52 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 那……美依礼芽的呢</blockquote>
 我记得前几天的时候特意有公告说她的演出没问题，只能说连夜绣红旗真的有用
 
+
+*****
+
+####  aukia  
+##### 116#       发表于 2025-11-28 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794269&amp;ptid=2268316" target="_blank">卡仑治糖 发表于 2025-11-28 17:59</a>
+
+厂牌多，所以看限日令落实痛不痛就完了
+
+所以看除了老中哈日人士全世界还有几个人肯出真金白银为“jpop” ...</blockquote>
+不过，取消演出的大部分都是渴望开拓市场的小型公司、乐队艺人，在政治领域没什么话语权。
+
+*****
+
+####  Unlight  
+##### 117#       发表于 2025-11-28 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793493&amp;ptid=2268316" target="_blank">zerocount 发表于 2025-11-28 16:25</a>
+别闹
+
+看看b站吧
+
+连画皇漫、做黄油的都来养号了。</blockquote>
+我是真搞不懂，这种来送钱的不应该尽量方便顾客吗，结果非要设卡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  循此苦旅  
+##### 118#       发表于 2025-11-28 18:14
+
+<blockquote>BAKA林 发表于 2025-11-28 17:56
+也就只有当旅游了，我可以明确给你说有些票没人能给你退，包括12315或者当地文旅局，因为我这周才试过。 ...</blockquote>
+那就把主办方挂出来避坑吧
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 119#       发表于 2025-11-28 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793919&amp;ptid=2268316" target="_blank">leander_z 发表于 2025-11-28 17:20</a>
+
+除非有日本人给她一火炮，不然怎么可能道歉
+
+—— 来自 Xiaomi 24129PN74C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+刀片砍后颈才对味
+
