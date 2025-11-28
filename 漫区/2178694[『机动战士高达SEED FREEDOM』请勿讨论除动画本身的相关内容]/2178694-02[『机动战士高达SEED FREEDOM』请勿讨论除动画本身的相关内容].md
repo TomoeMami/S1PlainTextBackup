@@ -54,3 +54,31 @@
 
 我怎么记得当时奥布是被两边打击？
 
+
+*****
+
+####  凤舞夜月  
+##### 2034#       发表于 2025-11-28 17:07
+
+ 本帖最后由 凤舞夜月 于 2025-11-28 17:09 编辑 
+
+东大是这个吧
+
+<img src="https://img.stage1st.com/forum/202511/28/170613srx0pri51jaznpjw.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2025-11-28_170542_379.jpg</strong> (86.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 17:06 上传
+
+只能说怪不得很少提及，而且自由雕像上，专门放的小短片，还提到有协助大天使号一行，甚至拉克丝还能安全逛街，大概也是调整者和自然人共存的那种？没那么极端？
+
+<img src="https://img.stage1st.com/forum/202511/28/170925ez9g4zl9alsix897.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2025-11-28_170907_088.jpg</strong> (123.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 17:09 上传
+
