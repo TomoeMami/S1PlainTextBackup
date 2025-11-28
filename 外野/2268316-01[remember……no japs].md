@@ -2216,3 +2216,29 @@ It's about sending a message.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么给小红书精日发应润尽润就没有敢跟我正面对线的，不是都是外务省的人机吧
 
+
+*****
+
+####  磁场颠佬  
+##### 218#       发表于 2025-11-28 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796350&amp;ptid=2268316" target="_blank">HATENA 发表于 2025-11-28 23:46</a>
+怎么给小红书精日发应润尽润就没有敢跟我正面对线的，不是都是外务省的人机吧 ...</blockquote>
+因为去了真的会被倭倭打<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞天茅台  
+##### 219#       发表于 2025-11-28 23:48
+
+那接下来是不是能在B站上再次看到盗版动画了
+
+*****
+
+####  wwhaha  
+##### 220#       发表于 2025-11-28 23:50
+
+B站下半年已经各种睁只眼闭只眼放宽多了，各种全集动画剧集的，而且标题都十分搞<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+【【咬小手变大个】全4季+完结篇合集（未删减）】 [https://www.bilibili.com/video/B ... 4faae7435cb02c5a705](https://www.bilibili.com/video/BV1P5b2zhEyw/?share_source=copy_web&amp;vd_source=0e92972f70a984faae7435cb02c5a705)
+
