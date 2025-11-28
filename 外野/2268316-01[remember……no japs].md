@@ -1468,3 +1468,61 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 
 路费住宿说什么都不是一笔小数目了
 
+
+*****
+
+####  卫星露天咖啡屋  
+##### 143#       发表于 2025-11-28 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793914&amp;ptid=2268316" target="_blank">Victorino 发表于 2025-11-28 17:20</a>
+如果明早车力光速道歉，那1月的有刺无刺和roselia还能保住吗</blockquote>
+她要是有能光速道歉的脑子，也不会之前说出那种话且挺着不撤回<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22127RK46C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  御坂MKII  
+##### 144#       发表于 2025-11-28 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795007&amp;ptid=2268316" target="_blank">广州粉肠 发表于 2025-11-28 20:06</a>
+
+有一说一， 我觉得取消没问题， 但临近的也一刀切真的值得商榷
+
+路费住宿说什么都不是一笔小数目了 ...</blockquote>
+这种情况下其实总得有个人亏钱，无非是谁亏。
+
+谁亏这个事也要博弈，看现在这情况估计有的日本人也没咋亏，主办不能把日本人的钱收回来那可能是要心一横能办就办
+
+
+*****
+
+####  BAKA林  
+##### 145#       发表于 2025-11-28 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795059&amp;ptid=2268316" target="_blank">御坂MKII 发表于 2025-11-28 20:12</a>
+这种情况下其实总得有个人亏钱，无非是谁亏。
+
+谁亏这个事也要博弈，看现在这情况估计有的日本人也没咋亏 ...</blockquote>
+这钱是该去找日本人要回来，而不是主办方或者场地方去承担。这样才能真切痛到他们身上。目前绝大部分公告都是场地不可抗力，部分是写的不可抗力因素。就看当初合同怎么谈的，估计有的扯皮。
+
+*****
+
+####  gajangmudohe  
+##### 146#       发表于 2025-11-28 20:16
+
+<blockquote>广州粉肠 发表于 2025-11-28 20:06
+有一说一， 我觉得取消没问题， 但临近的也一刀切真的值得商榷
+
+路费住宿说什么都不是一笔小数目了 ...</blockquote>
+综合各路小道消息的说法来看是今天中午来的电话然后全给砍了
+
+*****
+
+####  断翼  
+##### 147#       发表于 2025-11-28 20:16
+
+<blockquote>约定的明日 发表于 2025-11-28 18:41
+好像有主办方头铁硬要办现场掐麦了，这种就不退票还把锅给甩了</blockquote>
+那个是万代南梦宫嘉年华，类似快闪要办好几天的。嘉宾表演都是免费看的
+
