@@ -2376,3 +2376,22 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 现在只有三场在广州了？
 
+
+*****
+
+####  owada  
+##### 234#       发表于 2025-11-29 06:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了,下一步是不是准备砸日本动画片痛车
+
+*****
+
+####  iantsai  
+##### 235#       发表于 2025-11-29 06:53
+
+<blockquote>Nanachi 发表于 2025-11-28 17:18
+华发夜眼，就是那个jrpg up主？
+
+论坛助手,iPhone</blockquote>
+突然想起来外野时代曾经有id发帖跟这位表白，然后俩人还奔现了，就不知道最后有没有在一起<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
