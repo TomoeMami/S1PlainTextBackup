@@ -93,3 +93,13 @@
 
 二周目最解气是推箱子砸死娃娃boss
 
+
+*****
+
+####  茄子自走炮  
+##### 576#       发表于 2025-11-28 12:34
+
+辨识票任务还得重新开一遍活动地图
+
+这200石的bug真是给你赚到啊，drecom<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
