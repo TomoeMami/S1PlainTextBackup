@@ -42,3 +42,11 @@
 
 2019年以来没有亚洲队伍0-3过，这届cn出了俩，major扩军是错的，什么蛆都混进去了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Niyah  
+##### 4827#       发表于 2025-11-28 22:10
+
+沟槽的又是第一阶段对4个，奥斯汀就是这样没钻石币的，3-0没选对太伤了，不改规则的话对6个了；lvg0-3倒是猜对了，有苏这个神人在没意外<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

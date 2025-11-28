@@ -1902,3 +1902,39 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 上海的寿司郎会取消开店吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦落凡  
+##### 185#       发表于 2025-11-28 22:10
+
+精日还是太多
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  topia  
+##### 186#       发表于 2025-11-28 22:12
+
+妈的，上周末迪士尼柜子可不少<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+一点也不像是紧张的样子
+
+*****
+
+####  黄泉川此方  
+##### 187#       发表于 2025-11-28 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795858&amp;ptid=2268316" target="_blank">zzxzz1019 发表于 2025-11-28 22:01</a>
+
+都攻击说什么赔钱的都是自己人，日本人赚钱没损失的，这时候不反省为什么要签那么利于日本人的合同了？自己 ...</blockquote>
+断人财路杀人父母啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  老贝  
+##### 188#       发表于 2025-11-28 22:16
+
+北京寿司郎这几天排队情况怎么样了？之前听说人非常多。
+
