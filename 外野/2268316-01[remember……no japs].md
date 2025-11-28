@@ -2122,3 +2122,58 @@ It's about sending a message.
 
 因为影响确实不大啊，和当年限韩令时期韩国文娱在国内的影响相比，现在的日本文娱在国内的影响小太多了
 
+
+*****
+
+####  mwj  
+##### 209#       发表于 2025-11-28 23:26
+
+<blockquote>ryanghj 发表于 2025-11-28 23:23
+因为影响确实不大啊，和当年限韩令时期韩国文娱在国内的影响相比，现在的日本文娱在国内的影响小太多了 ...</blockquote>
+
+主要是21年先审后播影响太大了吧。
+
+*****
+
+####  Goumian_33  
+##### 210#       发表于 2025-11-28 23:32
+
+<img src="https://img.stage1st.com/forum/202511/28/233056eztzbbjktt3ok20o.jpg" referrerpolicy="no-referrer">
+
+<strong>EKRA1C[4C6VD~D48VSSK{K1_tmb.jpg</strong> (263.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 23:30 上传
+
+主办方一个个都假装没看到劝停办消息想拖到举办完， “无视风险继续访问！”
+
+<img src="https://img.stage1st.com/forum/202511/28/233102hozxik5ggkxzvtng.png" referrerpolicy="no-referrer">
+
+<strong>E%V}Q8NXAJ4G`Q[[7PEZN2U.png</strong> (76.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-28 23:31 上传
+
+我喜欢看这种揣着明白装糊涂， 是啊，为什么不能办呢
+
+
+*****
+
+####  wwhaha  
+##### 211#       发表于 2025-11-28 23:32
+
+只有我觉得万代那场多少有点骗庭杖么，大牌如SID都是中午就实锤通知取消了的。同样是上海的活动，到了下午表演你要么就直接取消，既然让人上了，然后唱一半把人家请下去，还用拉闸这种这么抓马的方式，你就说不是主办方有点小心思我是不太信的。
+
+这下可以加倍引导冲塔节奏，外务省乐看舆情<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  x分裂者  
+##### 212#       发表于 2025-11-28 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796290&amp;ptid=2268316" target="_blank">wwhaha 发表于 2025-11-28 23:32</a>
+只有我觉得万代那场多少有点骗庭杖么，大牌如SID都是中午就实锤通知取消了的。同样是上海的活动，到了下午 ...</blockquote>
+经典扩大化行为
+
