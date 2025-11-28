@@ -1708,3 +1708,66 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  斑驳的阴影  
+##### 167#       发表于 2025-11-28 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793486&amp;ptid=2268316" target="_blank">马甲20250922 发表于 2025-11-28 16:24</a>
+中国人多，一个小众艺人有一万个中国粉丝就能买几百万甚至上千万元的门票。 ...</blockquote>
+能卖掉1w张门票已经很厉害了，大部分livehouse就两三百人还卖不满，门票也是两三百甚至一百多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  斑驳的阴影  
+##### 168#       发表于 2025-11-28 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793438&amp;ptid=2268316" target="_blank">卢云 发表于 2025-11-28 16:18</a>
+其实我有个疑问啊，感觉近两年一堆没听过的日本明星都能来国内开演唱会，粉丝见面会，引进电影也越来越多， ...</blockquote>
+14亿人的市场呢，不过很多小乐队/艺人来也就是平本，比不了那些大公司旗下的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ratchetes  
+##### 169#       发表于 2025-11-28 21:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">唯一有点可惜的就是婆崎的场，这状态没多少次机会了吧。
+
+
+*****
+
+####  斑驳的阴影  
+##### 170#       发表于 2025-11-28 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793657&amp;ptid=2268316" target="_blank">卡仑治糖 发表于 2025-11-28 16:47</a>
+那应该不是，如果是法务部背锅吧，但凡大型项目合同中规定不可抗力或者相关风险条款无责解约妥妥的
+退一 ...</blockquote>
+哪来的不可抗力，只有各种渠道口头要求你取消一个书面文件都不会有<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  fopinecone  
+##### 171#       发表于 2025-11-28 21:26
+
+虚拟主播是不是要焕发第二春了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  斑驳的阴影  
+##### 172#       发表于 2025-11-28 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793889&amp;ptid=2268316" target="_blank">Unbiquitous 发表于 2025-11-28 17:17</a>
+这种情况机票酒店能退吗</blockquote>
+没戏的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
