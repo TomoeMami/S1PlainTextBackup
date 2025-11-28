@@ -1751,3 +1751,17 @@ Gself和TA应该是富野厨发力了。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  无念  
+##### 3119#       发表于 2025-11-28 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68788741&amp;ptid=2071758" target="_blank">什么？！ 发表于 2025-11-27 19:18</a>
+柯西大白鹅池子的船可以是南瓜头吗
+
+论坛助手,iPhone</blockquote>
+的确是客机，但是是琪琪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
