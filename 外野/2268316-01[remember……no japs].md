@@ -2066,3 +2066,24 @@ kokia北京取消后连着开了广深杭三场极限结束
 
 会打击主机游戏吗
 
+
+*****
+
+####  中国科学院  
+##### 203#       发表于 2025-11-28 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795961&amp;ptid=2268316" target="_blank">风纪の雪 发表于 2025-11-28 22:20</a>
+
+别的不说，今晚万代嘉年华舞台演出唱歌唱一半拉闸是真的难绷，就差那么一两分钟吗？
+
+—— 来自 Xiaomi 251 ...</blockquote>
+It's about sending a message.
+
+
+*****
+
+####  约定的明日  
+##### 204#       发表于 2025-11-28 23:03
+
+练哈基米音乐吧
+
