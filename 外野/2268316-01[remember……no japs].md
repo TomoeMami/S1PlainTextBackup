@@ -1619,3 +1619,31 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 
 暂时是no Japanese ，没有日本人和日语。反正牌都是一张一张打的。不断收紧是目前大趋势
 
+
+*****
+
+####  sdeplee  
+##### 158#       发表于 2025-11-28 20:46
+
+侧面可知木柜子乐队和木谷高明是真的嗅觉不错 在中日关系起伏夹缝中成功捞了一大笔<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdeplee  
+##### 159#       发表于 2025-11-28 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793587&amp;ptid=2268316" target="_blank">Indolencoma 发表于 2025-11-28 16:37</a>
+
+那……美依礼芽的呢</blockquote>
+“我已经是中国人了！叫我刘依！”
+
+
+*****
+
+####  yoki42  
+##### 160#       发表于 2025-11-28 20:53
+
+冤有头债有主，要怨就怨高市去，谁让她伤害了大部分中国人的感情。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
