@@ -2177,3 +2177,42 @@ It's about sending a message.
 只有我觉得万代那场多少有点骗庭杖么，大牌如SID都是中午就实锤通知取消了的。同样是上海的活动，到了下午 ...</blockquote>
 经典扩大化行为
 
+
+*****
+
+####  stanzgy  
+##### 213#       发表于 2025-11-28 23:40
+
+看精日这么急就乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 214#       发表于 2025-11-28 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从下午看到现在木柜子群发疯的乐子了，看他们疯狂见证太搞笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  BotRondo  
+##### 215#       发表于 2025-11-28 23:44
+
+鲤鱼见面会可以梅奔了，享有唯一呼吸权
+
+*****
+
+####  wyqjlol  
+##### 216#       发表于 2025-11-28 23:45
+
+天塌了，只能去立本旅游对冲一下了。
+
+*****
+
+####  HATENA  
+##### 217#       发表于 2025-11-28 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么给小红书精日发应润尽润就没有敢跟我正面对线的，不是都是外务省的人机吧
+
