@@ -445,3 +445,14 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cnmyster1ous  
+##### 241#       发表于 2025-11-28 16:18
+
+2代的精神病院确实有点哈人吧 我初见的时候拉完闸打得心里发毛 特别是怪普遍见面就附加发狂新手打不了
+
+DLC3医院的时候反而是已经麻木了 除了那个电梯初一看有点恐怖以外没什么感觉 发现那个追杀我的怪碰到只是掉血的时候彻底没感觉了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文字大冒险我是用的最安全无恐路线光速过去的
+
