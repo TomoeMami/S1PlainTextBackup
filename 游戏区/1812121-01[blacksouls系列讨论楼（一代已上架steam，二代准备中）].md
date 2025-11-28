@@ -400,3 +400,11 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 原来不是黑魂啊？看看运气
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 236#       发表于 2025-11-28 09:18
+
+1的c结局刚打完房间的灯闪了几下坏了，差点吓尿了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
