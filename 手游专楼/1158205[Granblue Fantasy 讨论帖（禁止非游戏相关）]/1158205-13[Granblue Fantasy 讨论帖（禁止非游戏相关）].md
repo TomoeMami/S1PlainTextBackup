@@ -105,3 +105,42 @@
 
 隔壁nga也太搞笑了，一个抱怨boss强度的楼底下冒出一堆拿着老王毕业盘倍卡人物的奇行种跑出来说“我觉得还好啊”“水温不高啊”，字里行间满满的优越感
 
+
+*****
+
+####  cnmyster1ous  
+##### 18283#       发表于 2025-11-28 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794110&amp;ptid=1158205" target="_blank">super0395 发表于 2025-11-28 17:40</a>
+
+隔壁nga也太搞笑了，一个抱怨boss强度的楼底下冒出一堆拿着老王毕业盘倍卡人物的奇行种跑出来说“我觉得还 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也看了那个贴 太搞笑了
+
+说一下怪粪像骂到他们亲爹了一样，孝得发狂
+
+想到kmr已经跑路甚至孝的是宇宙机器人p更幽默了
+
+怎么现在打游戏的人都喜欢当孝子啊！
+
+
+*****
+
+####  super0395  
+##### 18284#       发表于 2025-11-28 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794168&amp;ptid=1158205" target="_blank">cnmyster1ous 发表于 2025-11-28 17:46</a>
+我也看了那个贴 太搞笑了
+
+说一下怪粪像骂到他们亲爹了一样，孝得发狂
+
+想到kmr已经跑路甚至孝的是宇宙机器 ...</blockquote>
+对于这种人我只能由衷的祝愿他玩的是六属老王永远立于不败之地
+反正花的又不是我的钱
+
+*****
+
+####  iserz  
+##### 18285#       发表于 2025-11-28 17:58
+
+现在还能坚持提配置的纯度高不要太正常，季限膨胀，LM膨胀，高难卡配置+锁共斗房，V2战斗系统摆烂，不降井继续劣化池子，去掉季限百六总池，一通组合拳打下来能看懂的早懂了，剩下的就是已经把这些当常态的。
+
