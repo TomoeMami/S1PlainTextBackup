@@ -1288,3 +1288,67 @@ kokia那场是九天前的了，不去调整安排就是自己抱有侥幸心理
 
 真比较红火的就要去开梅奔了
 
+
+*****
+
+####  火星後繼者  
+##### 126#         楼主| 发表于 2025-11-28 18:39
+
+<img src="https://img.stage1st.com/forum/202511/28/183920bkaealotvcnslceg.png" referrerpolicy="no-referrer">
+
+<strong>1763645958019.png</strong> (193.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-28 18:39 上传
+
+乡窝母鬼子勿来塞的
+
+*****
+
+####  兰德里  
+##### 127#       发表于 2025-11-28 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793635&amp;ptid=2268316" target="_blank">aukia 发表于 2025-11-28 16:43</a>
+
+户川纯-成都、滨崎步-上海、丸山浩（奥特曼）-上海、深圳GAF插画艺术节都已取消。
+
+另外，这种取消应该是主 ...</blockquote>
+拿毛线违约金，不可抗力取消
+
+*****
+
+####  约定的明日  
+##### 128#       发表于 2025-11-28 18:41
+
+好像有主办方头铁硬要办现场掐麦了，这种就不退票还把锅给甩了
+
+
+*****
+
+####  link@1018max  
+##### 129#       发表于 2025-11-28 18:42
+
+管人会限制吗？
+
+*****
+
+####  佛剑分说  
+##### 130#       发表于 2025-11-28 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794546&amp;ptid=2268316" target="_blank">约定的明日 发表于 2025-11-28 18:41</a>
+
+好像有主办方头铁硬要办现场掐麦了，这种就不退票还把锅给甩了</blockquote>
+如果硬做到这步，大概就是故意为了满足合同里的免责条款的了
+
+*****
+
+####  兰德里  
+##### 131#       发表于 2025-11-28 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68794243&amp;ptid=2268316" target="_blank">BAKA林 发表于 2025-11-28 17:56</a>
+
+也就只有当旅游了，我可以明确给你说有些票没人能给你退，包括12315或者当地文旅局，因为我这周才试过。 ...</blockquote>
+弱智，退机酒的演唱会多了去了，张学友陈奕迅都退过，你日本爹不给你退怪谁
+
