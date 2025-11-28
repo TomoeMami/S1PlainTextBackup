@@ -435,3 +435,13 @@ steam版的是不是很多bgm都换了，不得劲啊</blockquote>
 
 几年前通过dlsite版一二部，steam版出来有什么不同？
 
+
+*****
+
+####  顾然  
+##### 240#       发表于 2025-11-28 15:23
+
+分母一下<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
