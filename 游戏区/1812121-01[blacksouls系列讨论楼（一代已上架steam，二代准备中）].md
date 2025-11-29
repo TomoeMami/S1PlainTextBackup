@@ -591,3 +591,11 @@ steam上了，单卖44，有1卖39
 
 不打补丁能通关吗？
 
+
+*****
+
+####  tansapple  
+##### 254#       发表于 2025-11-30 00:53
+
+BS系列的画风真的有人能拿来冲吗，这两作游戏更像是带有黄暴要素的魂味RPG吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

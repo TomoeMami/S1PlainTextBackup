@@ -144,3 +144,13 @@
 
 现在还能坚持提配置的纯度高不要太正常，季限膨胀，LM膨胀，高难卡配置+锁共斗房，V2战斗系统摆烂，不降井继续劣化池子，去掉季限百六总池，一通组合拳打下来能看懂的早懂了，剩下的就是已经把这些当常态的。
 
+
+*****
+
+####  Sylpheed  
+##### 18286#       发表于 2025-11-30 00:58
+
+时龙人也重要好吧，没有都走不动道，那自动-cd看着唐，其实循环就是很流畅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

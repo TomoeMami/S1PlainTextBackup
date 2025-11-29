@@ -1964,3 +1964,11 @@ zero里就有，二十几年了
 
 而且移动太高在PVP还是个debuff
 
+
+*****
+
+####  希望之花  
+##### 3140#       发表于 2025-11-30 01:02
+
+又是个三动的，接下来半年内三动应该是攻击机师及格线了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
