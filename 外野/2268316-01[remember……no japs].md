@@ -3142,3 +3142,26 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 没事，今天老广都还有日系live在开呢
 
+
+*****
+
+####  proselyte  
+##### 315#       发表于 2025-11-29 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68799719&amp;ptid=2268316" target="_blank">仟音一心 发表于 2025-11-29 18:31</a>
+岛村绚沙（Shimamura Ayasa），蝶团小提琴手，我也不知道为什么就她有绿灯。 ...</blockquote>
+大概是只有伴奏没日语吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BAKA林  
+##### 316#       发表于 2025-11-29 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68799907&amp;ptid=2268316" target="_blank">proselyte 发表于 2025-11-29 19:25</a>
+大概是只有伴奏没日语吧
+
+—— 来自 S1Fun</blockquote>
+应该不是，其他纯音乐也有取消的
+
