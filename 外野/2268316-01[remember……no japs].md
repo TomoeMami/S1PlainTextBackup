@@ -2857,3 +2857,14 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kenqqex  
+##### 287#       发表于 2025-11-29 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68798345&amp;ptid=2268316" target="_blank">shoel 发表于 2025-11-29 13:10</a>
+
+翻下来7页没看见贷款回旋的，算是一种好事？</blockquote>
+有没有一种可能本坛都是老登，都习惯了
+
