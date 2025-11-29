@@ -1910,3 +1910,13 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 终章圣人祝祭殿右边的机关怎么解，是要去哪找花吗
 
+
+*****
+
+####  Sannapolis  
+##### 165#       发表于 2025-11-29 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800585&amp;ptid=2263973" target="_blank">麦吉卡 发表于 2025-11-29 22:28</a>
+终章圣人祝祭殿右边的机关怎么解，是要去哪找花吗</blockquote>
+花就在走廊里放着
+
