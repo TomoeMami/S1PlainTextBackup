@@ -599,3 +599,13 @@ steam上了，单卖44，有1卖39
 
 BS系列的画风真的有人能拿来冲吗，这两作游戏更像是带有黄暴要素的魂味RPG吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnmyster1ous  
+##### 255#       发表于 2025-11-30 03:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然说没有到能冲的地步 但是2代跟白兔互动的时候确实还行吧
+
+特别是两次送衣服的剧情
+
