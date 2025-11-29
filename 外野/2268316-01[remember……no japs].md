@@ -2454,3 +2454,13 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 在微博偶然看到一个（自称）学核物理而且又是武大出来的研究生，为了这件事看不到木柜子了在冷嘲热讽的时 ...</blockquote>
 网上身份都是自己给的
 
+
+*****
+
+####  wxc060302  
+##### 242#       发表于 2025-11-29 08:32
+
+惹不起车力巨人还惹不起你吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
