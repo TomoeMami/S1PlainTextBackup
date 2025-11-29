@@ -2443,3 +2443,14 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  damicheal123  
+##### 241#       发表于 2025-11-29 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797045&amp;ptid=2268316" target="_blank">hgnooweaj 发表于 2025-11-29 07:56</a>
+
+在微博偶然看到一个（自称）学核物理而且又是武大出来的研究生，为了这件事看不到木柜子了在冷嘲热讽的时 ...</blockquote>
+网上身份都是自己给的
+
