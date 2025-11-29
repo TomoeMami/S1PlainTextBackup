@@ -2423,3 +2423,13 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 什么时候可以对日本除国灭史，有生之年可以看到这个吗<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hgnooweaj  
+##### 239#       发表于 2025-11-29 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796987&amp;ptid=2268316" target="_blank">那一年的河川 发表于 2025-11-29 07:18</a>
+从这贴看出来牢a直播间被封真不冤，精日那是真在群众里有一定渗透度了，连泥潭这种时候还一堆精日哪怕话不 ...</blockquote>
+在微博偶然看到一个（自称）学核物理而且又是武大出来的研究生，为了这件事看不到木柜子了在冷嘲热讽的时候，我心里有种想法就是，要是这种人进入国家核科学相关部门，会不会非常可怕<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
