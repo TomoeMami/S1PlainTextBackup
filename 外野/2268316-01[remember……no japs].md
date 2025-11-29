@@ -3324,3 +3324,15 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 令人作呕的一帮垃圾
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 333#       发表于 2025-11-30 06:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797064&amp;ptid=2268316" target="_blank">國立中央大學 发表于 2025-11-29 08:07</a>
+这才哪到哪，真打仗肯定要切断民间交往的，不能一边想看歼灭自卫队一边想在国内看日本线下演出吧。
+
+——  ...</blockquote>
+就得把倭寇打到能歌善舞
+
