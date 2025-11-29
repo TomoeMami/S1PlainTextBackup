@@ -3208,3 +3208,14 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 精日真贱啊
 
+
+*****
+
+####  wahhaw  
+##### 322#       发表于 2025-11-29 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68798968&amp;ptid=2268316" target="_blank">瞬间傻了 发表于 2025-11-29 15:32</a>
+
+但是日本人在二刺猿里谈世界和平才是最虚伪和别扭的地方，它日本人从来没有为这个世界战斗过，人想象不到 ...</blockquote>
+要是柜子真会了超能力，肯定先破坏世界和平
+
