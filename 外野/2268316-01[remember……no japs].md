@@ -2640,3 +2640,61 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 100多年了还是“老中先开枪”这招，那也别怪我们老中不忘历史啦。
 
+
+*****
+
+####  小妻水亚美  
+##### 264#       发表于 2025-11-29 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797148&amp;ptid=2268316" target="_blank">神圣天使书记官 发表于 2025-11-29 08:46</a>
+我看网友这反应可比限韩和当年的NBA事件大多了，日本文娱在国内根扎得挺深的。 ...</blockquote>
+额 看环境的，当年nba 虎扑肯定也讨论的激烈
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  工口兔  
+##### 265#       发表于 2025-11-29 11:42
+
+希望借着这波东风把哈基米曼波一起禁了
+
+*****
+
+####  acg_gyanc  
+##### 266#       发表于 2025-11-29 11:43
+
+说实话木柜子播出的时候我也追了，剩最后一话看是包饺子直接懒得看，因为感觉被整部番恶心到了所以后来也没关注过，为啥网上木柜子粉现在看来都成了某种不可名状生物了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  瞬间傻了  
+##### 267#       发表于 2025-11-29 11:44
+
+再说很多精日自认臻佐，那么看到某漫画家每周工作超过40个小时，或某配音演员和特摄片演员挣得很少，分配不均的状况，自己就应该主动抵制，怎么可以比塔的动作还慢呢？
+
+
+*****
+
+####  稀勢のささ  
+##### 268#       发表于 2025-11-29 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797882&amp;ptid=2268316" target="_blank">acg_gyanc 发表于 2025-11-29 11:43</a>
+
+说实话木柜子播出的时候我也追了，剩最后一话看是包饺子直接懒得看，因为感觉被整部番恶心到了所以后来也没 ...</blockquote>
+某国产管人团体塌方之后蛆宝宝们去那边共振了
+
+*****
+
+####  sagogolf  
+##### 269#       发表于 2025-11-29 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797674&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-29 11:05</a>
+
+说实话混s1大多数的多多少少都喜欢日本二次元，包括我，但是呢如果中日关系继续恶化下去我的建议是现在能切 ...</blockquote>
+這些看入腦的後果就是，有時候你在現實中的身分正好跟他們對立的時候，就會搞得好像你站在你喜歡的東西的對立面，自己是壞人。
+
+還好現在這幾年多了國產二遊對沖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
