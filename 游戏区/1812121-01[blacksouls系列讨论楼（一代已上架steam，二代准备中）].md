@@ -555,3 +555,31 @@ steam上了，单卖44，有1卖39
 这游戏一直是 ...</blockquote>
 魂游是这样的，问就是魂味
 
+
+*****
+
+####  姬茧墨  
+##### 251#       发表于 2025-11-29 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800425&amp;ptid=1812121" target="_blank">nowiner 发表于 2025-11-29 21:39</a>
+
+慕名玩了一代，有些困惑，怎么一直没有剧情，重复打怪升级。只能靠路标和道具描述脑补剧情。
+
+这游戏一直是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一代叙事是这样的，很多剧情需要玩家自己去推，后期有部分文档来解谜世界观
+
+二代的叙事清晰很多
+
+
+*****
+
+####  nowiner  
+##### 252#       发表于 2025-11-29 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800527&amp;ptid=1812121" target="_blank">姬茧墨 发表于 2025-11-29 22:11</a>
+
+一代叙事是这样的，很多剧情需要玩家自己去推，后期有部分文档来解谜世界观
+
+二代的叙事清晰很多 ...</blockquote>
+那看来和我对它的期待有偏差，我以为是黄油，剧情都没有我怎么冲啊
+
