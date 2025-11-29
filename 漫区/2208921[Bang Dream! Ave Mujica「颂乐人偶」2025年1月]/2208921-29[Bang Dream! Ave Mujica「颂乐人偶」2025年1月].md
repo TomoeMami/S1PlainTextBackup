@@ -222,3 +222,32 @@
 
        [https://t.co/N6hhWepjXY](https://t.co/N6hhWepjXY)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41502#       发表于 2025-11-29 22:42
+
+       <strong>【中日双语|Ave Mujica】ROCK IN JAPAN特番 DAY4</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202511/29/224232j45i45ls3955xnmi.jpg" referrerpolicy="no-referrer">
+
+<strong>3bb924d13a7c035868973ef5041bcf825daad5ff.jpg</strong> (129.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-29 22:42 上传
+
+网络
+
+网络
+
+ROCK IN JAPAN特番 DAY4
+
+歌词翻译：网易云
+
+配信版时长限制只播出了两首歌
+
+现场一共唱了6首</blockquote>
+       [https://www.bilibili.com/video/BV1CZUfBtEWF](https://www.bilibili.com/video/BV1CZUfBtEWF)
+
