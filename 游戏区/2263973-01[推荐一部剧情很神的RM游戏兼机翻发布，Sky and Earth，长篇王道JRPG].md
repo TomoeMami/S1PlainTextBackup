@@ -1902,3 +1902,11 @@ SAD和SCD这些缩写是什么意思啊<img src="https://static.stage1st.com/ima
 SAD和SCD这些缩写是什么意思啊</blockquote>
 SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，就是这楼的游戏SKY AND EARTH，SCD是做RM机翻的一位大佬，你看我发的帖子，有个帮他转过来的汉化游戏合集
 
+
+*****
+
+####  麦吉卡  
+##### 164#       发表于 2025-11-29 22:28
+
+终章圣人祝祭殿右边的机关怎么解，是要去哪找花吗
+
