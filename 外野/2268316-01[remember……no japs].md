@@ -2698,3 +2698,48 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 還好現在這幾年多了國產二遊對沖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  今天不守尸  
+##### 270#       发表于 2025-11-29 11:50
+
+你限制日本电影上映限制日本动画正版引进，二次元婆罗门还真无所谓
+
+但不允许日本演艺人员赴中开展线下活动和演唱会，是真的会让婆罗门难受的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小妻水亚美  
+##### 271#       发表于 2025-11-29 11:55
+
+ 本帖最后由 小妻水亚美 于 2025-11-29 11:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797915&amp;ptid=2268316" target="_blank">今天不守尸 发表于 2025-11-29 11:50</a>
+你限制日本电影上映限制日本动画正版引进，二次元婆罗门还真无所谓
+
+但不允许日本演艺人员赴中开展线下活动 ...</blockquote>
+归根结底一个看盗版还是可以看到，如果明说盗版也不许你看，我相信泥潭更加多的人会跳脚<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+早说现在都是屁股问题和我家真有一头牛，还有前几天那个3000月薪和那啥有没有关系，现在的人就是比以前更加看重个人利益。
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alarmAll  
+##### 272#       发表于 2025-11-29 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797915&amp;ptid=2268316" target="_blank">今天不守尸 发表于 2025-11-29 11:50</a>
+
+你限制日本电影上映限制日本动画正版引进，二次元婆罗门还真无所谓
+
+但不允许日本演艺人员赴中开展线下活动 ...</blockquote>
+没事，我朋友圈真正的精日已经准备计划明年啥时候去日本看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西人  
+##### 273#       发表于 2025-11-29 11:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有刺无刺痛车同事马上骂街
+
