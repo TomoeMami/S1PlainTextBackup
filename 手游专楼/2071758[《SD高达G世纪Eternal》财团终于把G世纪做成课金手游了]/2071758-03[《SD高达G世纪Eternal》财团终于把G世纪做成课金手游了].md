@@ -1860,3 +1860,19 @@ tie剧场版2的，本来也没指望能出SDGG版
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然想到，上的是剧场版的话，其名为马夫蒂这曲子是不是就没用了，曲包用剧场版的
 
+
+*****
+
+####  captoon  
+##### 3131#       发表于 2025-11-29 11:25
+
+<img src="https://img.stage1st.com/forum/202511/29/112516hwavdlkooodydiy7.png" referrerpolicy="no-referrer">
+
+<strong>e1d1a17cc25ba61e966a47ce09e33ed9.png</strong> (34.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-29 11:25 上传
+
+？？？屌毛要来了？？？
+
