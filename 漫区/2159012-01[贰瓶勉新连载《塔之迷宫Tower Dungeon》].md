@@ -68,3 +68,11 @@
 
 还是点子老套台词水平太差的**病 如果有个靠谱的责编 强制一话只能10句台词 就依赖画面表现  一定神作
 
+
+*****
+
+####  木登狗  
+##### 152#       发表于 2025-11-29 13:42
+
+就依赖画面表现不就又回到从前的二叔了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

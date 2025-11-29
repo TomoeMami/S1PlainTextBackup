@@ -2825,3 +2825,15 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 如果真爱日本，就等日本人被改造成能歌善舞的民族吧
 
+
+*****
+
+####  cube  
+##### 284#       发表于 2025-11-29 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68798381&amp;ptid=2268316" target="_blank">浅川瞳Hitomi 发表于 2025-11-29 13:17</a>
+你换nga二次元区就一抓一大把了</blockquote>
+猴区这次没啥歪屁股的，集中帖变刷怪笼，有奇葩出现立马被集火秒掉。
+
+还是那句话，真老二次元以及实际接触过小日子的，很难不讨厌日本。
+
