@@ -2886,3 +2886,21 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 所以说日本人在二刺猿谈世界和平，纯纯人格排泄。
 
+
+*****
+
+####  a611611611  
+##### 289#       发表于 2025-11-29 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68796969&amp;ptid=2268316" target="_blank">owada 发表于 2025-11-29 06:51</a>
+
+完了,下一步是不是准备砸日本动画片痛车</blockquote>
+那可太稀有了，谁懂看了几十期车祸警示录结果出车祸的各种痛车全是米、鹰甚至幻塔的角色都有，结果碰到一个日本ip的痛车还是凉宫春日的绝望感
+
+*****
+
+####  chivalry  
+##### 290#       发表于 2025-11-29 15:59
+
+取消的好，国内傻逼真的茫茫多，再取消多一点
+
