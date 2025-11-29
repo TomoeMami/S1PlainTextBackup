@@ -6993,3 +6993,19 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 尻丝奶魅下个卡池是不是还是大乃<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 616#       发表于 2025-11-29 13:11
+
+<img src="https://img.stage1st.com/forum/202511/29/131030r77q5rkrby2jk5r3.jpg" referrerpolicy="no-referrer">
+
+<strong>4444444.jpg</strong> (212.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-29 13:10 上传
+
+更新前刷完了，没碰到移除事件，多了张基础牌，就这样吧
+

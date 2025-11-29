@@ -2799,3 +2799,11 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  shoel  
+##### 281#       发表于 2025-11-29 13:10
+
+翻下来7页没看见贷款回旋的，算是一种好事？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

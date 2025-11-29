@@ -1900,3 +1900,18 @@ BD3吧，玛丽安的形象是天使，开exam的时候会飘出来
 
 说起掉毛，不知道EW这开发树咋处理，除去高达和拖3，就3台机子吧，开场的里奥宇宙，白陶和大毒蛇
 
+
+*****
+
+####  ティグル  
+##### 3134#       发表于 2025-11-29 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68798092&amp;ptid=2071758" target="_blank">arthes 发表于 2025-11-29 12:24</a>
+
+希望是圣诞或者新年池子来个掉毛吧，钻也攒差不多了
+
+但是我印象中好像看见过某个和羽毛没啥关联的机子也出 ...</blockquote>
+BD3 exam启动这个武装的演出
+
+zero里就有，二十几年了
+
