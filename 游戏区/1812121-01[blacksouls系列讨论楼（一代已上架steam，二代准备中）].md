@@ -519,3 +519,15 @@ steam上了，单卖44，有1卖39
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  维克塔利昂  
+##### 248#       发表于 2025-11-29 17:20
+
+[https://otaku-plan.com/blacksouls2_cn/](https://otaku-plan.com/blacksouls2_cn/)
+
+贴个补丁地址
+
+1的时候**兮兮不知道这东西，玩了半天发现这也不能去那也不能走，还以为游戏bug了，到处问才知道还得自己打补丁<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
