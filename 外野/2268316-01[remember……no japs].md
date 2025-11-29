@@ -3052,3 +3052,38 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  南風森愛恋  
+##### 306#       发表于 2025-11-29 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68799719&amp;ptid=2268316" target="_blank">仟音一心 发表于 2025-11-29 18:31</a>
+
+岛村绚沙（Shimamura Ayasa），蝶团小提琴手，我也不知道为什么就她有绿灯。 ...</blockquote>
+因为不用张口？
+
+
+*****
+
+####  喵喵叫的猫  
+##### 307#       发表于 2025-11-29 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68799749&amp;ptid=2268316" target="_blank">南風森愛恋 发表于 2025-11-29 18:38</a>
+
+因为不用张口？</blockquote>
+不张口的话
+
+难道京吹和四月是你的谎言还有戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马甲20250922  
+##### 308#       发表于 2025-11-29 18:44
+
+<blockquote>國立中央大學 发表于 2025-11-29 08:07
+这才哪到哪，真打仗肯定要切断民间交往的，不能一边想看歼灭自卫队一边想在国内看日本线下演出吧。
+
+——  ...</blockquote>
+理论上还是可以实现的——PLA占领九州和四国以后，一边歼灭本州的自卫队，一边邀请九州和四国的艺人来中国演出。
+
