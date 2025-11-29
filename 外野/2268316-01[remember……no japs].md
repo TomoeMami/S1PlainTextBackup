@@ -2904,3 +2904,13 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 取消的好，国内傻逼真的茫茫多，再取消多一点
 
+
+*****
+
+####  cube  
+##### 291#       发表于 2025-11-29 16:24
+
+原来是外务省昨天下午搞了个大的（具体去看车力楼），我说怎么从半强制性行为变公开的官方强制性行为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+既然小日子挑衅在先，那锅百分百都是车力政府的，所有在这件事上哼唧的都可以打成非国民无误了。
+
