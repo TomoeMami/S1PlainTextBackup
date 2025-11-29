@@ -1396,3 +1396,23 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 现在进度全这么快么，海关碰到的都是打AK12，子弹最差PS起步，对枪全是BT BP的弹。就遇到两队萌新自强队， ...</blockquote>
 储备站等地方有很多545子弹，稍微跑几局就能捡到几千发
 
+
+*****
+
+####  银月术士329  
+##### 122#         楼主| 发表于 2025-11-30 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68798267&amp;ptid=2267122" target="_blank">我是快乐小马甲 发表于 2025-11-29 12:53</a>
+
+现在进度全这么快么，海关碰到的都是打AK12，子弹最差PS起步，对枪全是BT BP的弹。就遇到两队萌新自强队， ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202511/30/022152hg4b29hbppy2zf4f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (346.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-30 02:21 上传
+
+你看我这弹药库存，懂我意思吗
+
