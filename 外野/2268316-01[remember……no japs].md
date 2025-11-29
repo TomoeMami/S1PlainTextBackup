@@ -3344,3 +3344,14 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 老二元习惯了，同时对比十多年前国产的奶头乐的确有长足长进觉得有信心能吞掉那块市场
 
+
+*****
+
+####  红炉灰  
+##### 335#       发表于 2025-11-30 06:43
+
+一种轮回罢了，12、13那会不是东京x种x响之类被封的时候也在哀嚎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那时候我还在qq空间看着朋友转发的各种中二内容，现在我只想说禁得好早该动手了
+
+—— 来自 samsung SM-S9110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
