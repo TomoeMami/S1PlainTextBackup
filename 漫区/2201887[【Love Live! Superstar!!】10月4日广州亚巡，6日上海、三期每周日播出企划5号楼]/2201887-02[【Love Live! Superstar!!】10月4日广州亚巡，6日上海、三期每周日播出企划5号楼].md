@@ -69,3 +69,15 @@
 
 听说真要NO JA了，现在幽默了，能办的时候不好好办，想办的时候不能办，特地叫个CN入团想挖市场结果玩成这样，能入教材了，孩子们别学的那桌<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1761#       发表于 2025-11-29 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797155&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-11-29 08:49</a>
+听说真要NO JA了，现在幽默了，能办的时候不好好办，想办的时候不能办，特地叫个CN入团想挖市场结果玩成这 ...</blockquote>
+有一说一，其实现在感觉也不是很想办的样子
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
