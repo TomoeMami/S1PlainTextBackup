@@ -3229,3 +3229,20 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 甚至还有平日一直面上爱国的大V突然开始阴阳怪气唱反调的，评论区也是疯狂共振滑坡，叹为观止<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 324#       发表于 2025-11-29 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800134&amp;ptid=2268316" target="_blank">上坂莲华 发表于 2025-11-29 20:25</a>
+这事看下来就是各种老二次元们真都没啥感觉，微博小红书这种新贰刺猿阵地已经滑到要亡了不过这些地方日 ...</blockquote>
+应激反应，时间一长他们就习惯了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佐伯香織  
+##### 325#       发表于 2025-11-29 20:53
+
+从高达seed剧场版引进那时就发现了，其实泥潭一堆人也是……
+
