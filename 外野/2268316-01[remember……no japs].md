@@ -2415,3 +2415,11 @@ B站现在就有大量的上传盗版电视剧 动画片，只是骗人充电的
 
 从这贴看出来牢a直播间被封真不冤，精日那是真在群众里有一定渗透度了，连泥潭这种时候还一堆精日哪怕话不敢说出来逆风输出也要暗搓搓扣分的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜潇箫  
+##### 238#       发表于 2025-11-29 07:48
+
+什么时候可以对日本除国灭史，有生之年可以看到这个吗<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
