@@ -3019,3 +3019,36 @@ https://mp.weixin.qq.com/s/k75TuBs63ro9UF6u0mXfpw
 
 ⏰是可以随便骂随便阴阳，日本人是亲爹，那是能骂的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leander_z  
+##### 303#       发表于 2025-11-29 18:27
+
+还是墙让不少人不了解外面的恶
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  仟音一心  
+##### 304#       发表于 2025-11-29 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68799477&amp;ptid=2268316" target="_blank">平贺才人 发表于 2025-11-29 17:41</a>
+？这是哪位</blockquote>
+岛村绚沙（Shimamura Ayasa），蝶团小提琴手，我也不知道为什么就她有绿灯。
+
+*****
+
+####  我来组成头部  
+##### 305#       发表于 2025-11-29 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797045&amp;ptid=2268316" target="_blank">hgnooweaj 发表于 2025-11-29 07:56</a>
+在微博偶然看到一个（自称）学核物理而且又是武大出来的研究生，为了这件事看不到木柜子了在冷嘲热讽的时 ...</blockquote>
+他还能出来发帖说明根本不是什么核心岗位
+
+更何况未必说的是真话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
