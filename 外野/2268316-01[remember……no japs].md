@@ -3365,3 +3365,60 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  瓦拉几亚之夜  
+##### 337#       发表于 2025-11-30 09:23
+
+<blockquote>Victorino 发表于 2025-11-29 18:48
+ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保下来</blockquote>
+要不怎么说是条狗都得托生在这北京城呢
+
+*****
+
+####  magus  
+##### 338#       发表于 2025-11-30 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801435&amp;ptid=2268316" target="_blank">fat 发表于 2025-11-30 08:49</a>
+微博说滨崎步周六晚在无观众情况下独自开演，是真还是假？
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5 ...</blockquote>
+假的，是之前排练的图
+
+
+*****
+
+####  cinderellacolor  
+##### 339#       发表于 2025-11-30 09:31
+
+想要我的财宝吗？想要的话可以全部给你，去找吧！我把所有财宝都放在那里。
+
+大海贼时代开启了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ztgmeteor  
+##### 340#       发表于 2025-11-30 09:35
+
+老二刺猿都是管的越严就是管的越松吧，封杀越多能看的越多，哪来的这么多屁事。
+隔壁也是啊，猴区画风比马桶区正常太多了，比抖音xhs更是不知道正到哪里去了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 341#       发表于 2025-11-30 09:35
+
+精日的戏是真的多
+
+*****
+
+####  风景很好  
+##### 342#       发表于 2025-11-30 09:37
+
+<blockquote>红炉灰 发表于 2025-11-30 06:43
+一种轮回罢了，12、13那会不是东京x种x响之类被封的时候也在哀嚎
+
+那时候我还在qq空间看着朋友转发的各种中 ...</blockquote>
+你搞错时间了不是12、13年，而是15年初
+
