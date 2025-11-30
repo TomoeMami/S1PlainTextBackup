@@ -3557,3 +3557,14 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 快吧 vtb 也干掉
 
+
+*****
+
+####  66367749  
+##### 354#       发表于 2025-11-30 13:10
+
+ 本帖最后由 66367749 于 2025-11-30 13:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801990&amp;ptid=2268316" target="_blank">JRPG 发表于 2025-11-30 11:15</a>
+现在Ins上还有呢</blockquote>
+看到的说法，和演出取消通知对得上<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">的演唱会，28日下午取消。28日傍晚到晚上期间，歌手的演唱也只能算彩排吧，但是还要被宣传成歌手面对空场独自一人完成演唱会。这既是包装的一部分，也是一种混淆视听。（转）</blockquote>
+
