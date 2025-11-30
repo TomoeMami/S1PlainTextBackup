@@ -2092,3 +2092,16 @@ zero里就有，二十几年了
 
 最蚌埠住的还是凯奈斯怎么人设和之前变化这么大....简直就是换了个人
 
+
+*****
+
+####  GameTheory  
+##### 3154#       发表于 2025-11-30 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803085&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-11-30 15:57</a>
+
+拿想要的，没想要的就拿限定
+
+代便的神人宣发真的是搞笑到极点，重头戏限定机的机制数值一起下毒，太享受了 ...</blockquote>
+那就是先换柯西 不用换船么？
+

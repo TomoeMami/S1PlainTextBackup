@@ -3802,3 +3802,20 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 还别说，这次空场唱歌的事虽然在外网不算出名（是说连日媒都没有重点报道），但这种不知真假的行为艺术在国 ...</blockquote>
 滨崎步这种玩意也能算国宝级了，嘿
 
+
+*****
+
+####  zmw_831110  
+##### 375#       发表于 2025-11-30 16:26
+
+ 本帖最后由 zmw_831110 于 2025-11-30 16:28 编辑 
+
+既然被顶上来了
+
+那么就贴一下吧
+
+某些人就是在鬼子的算计里的,而且还乐在其中
+
+这次打击日本在华文化输出，为什么是正确且必要的？
+[https://www.bilibili.com/video/BV1drSNBYE4n](https://www.bilibili.com/video/BV1drSNBYE4n)
+
