@@ -3469,3 +3469,14 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  尼采生存哲学  
+##### 347#       发表于 2025-11-30 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68793438&amp;ptid=2268316" target="_blank">卢云 发表于 2025-11-28 16:18</a>
+
+其实我有个疑问啊，感觉近两年一堆没听过的日本明星都能来国内开演唱会，粉丝见面会，引进电影也越来越多， ...</blockquote>
+国内歌手啥的高价低质，水平太差，你真论专业水平和营业能力，比不过鬼子的
+
