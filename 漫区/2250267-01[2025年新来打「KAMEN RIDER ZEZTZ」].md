@@ -6,3 +6,11 @@
 
 这集直接爆设定了啊，可以
 
+
+*****
+
+####  milky658  
+##### 440#       发表于 2025-11-30 17:20
+
+最近东映御三家骑士反而是最老实的一个，没咋整活(加布:え?)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。相当喜欢现在的故事和人物推进节奏，有旧平成的感觉，很舒服。求求高桥就这么写下去吧
+
