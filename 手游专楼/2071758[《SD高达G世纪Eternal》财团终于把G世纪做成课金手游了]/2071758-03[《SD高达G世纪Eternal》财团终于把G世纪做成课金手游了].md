@@ -2146,3 +2146,16 @@ zero里就有，二十几年了
 这活动送的啥.....サポーター可以不是母船了吗</blockquote>
 脚踏两条船也是船
 
+
+*****
+
+####  ティグル  
+##### 3159#       发表于 2025-11-30 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803206&amp;ptid=2071758" target="_blank">GameTheory 发表于 2025-11-30 16:33</a>
+
+那就是先换柯西 不用换船么？</blockquote>
+豪恩泽数值和词条都没啥用处，确实不用换
+
+除非特别喜欢角色
+
