@@ -3877,3 +3877,20 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 后续这场的视频是要录dvd卖钱的
 
+
+*****
+
+####  magus  
+##### 382#       发表于 2025-11-30 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803778&amp;ptid=2268316" target="_blank">Victorino 发表于 2025-11-30 18:50</a>
+
+滨崎步自己在ig转发了说她无人开唱的新闻了
+
+国内主办方用的口径是她在彩排，但这个说法其实无懈可击，无 ...</blockquote>
+正式演出原定时间是周六
+
+周六之前微博一堆造势的，说她没观众还坚持表演
+
+这个说法确实无懈可击，只要上台了就是表演了
+
