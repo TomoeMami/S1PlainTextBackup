@@ -46,3 +46,14 @@
 推上都在说诺克斯是花家大我www</blockquote>
 造型是很像
 
+
+*****
+
+####  黑上シグマ  
+##### 444#       发表于 2025-11-30 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803741&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2025-11-30 18:42</a>
+
+造型是很像</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不止，还有花家大我抢卡带，诺克斯抢扭蛋；花家大我是主角之前的试作型来打，诺克斯现在大概率也是；花家大我表示假面来打这受罪玩意儿有我一个就够了，诺克斯也是一副你收手我来搞定的腔调
+

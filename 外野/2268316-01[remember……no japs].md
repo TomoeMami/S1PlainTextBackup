@@ -3894,3 +3894,22 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 这个说法确实无懈可击，只要上台了就是表演了
 
+
+*****
+
+####  Victorino  
+##### 383#       发表于 2025-11-30 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803934&amp;ptid=2268316" target="_blank">magus 发表于 2025-11-30 19:24</a>
+
+正式演出原定时间是周六
+
+周六之前微博一堆造势的，说她没观众还坚持表演
+
+这个说法确实无懈可击，只要上台 ...</blockquote>
+这个事情一开始的重点就是【她要录视频弄dvd卖钱】
+
+只要有这个需求就肯定要录，演唱会取消了也会录
+
+后续的其他意义都是另外附加的
+
