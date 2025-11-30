@@ -111,3 +111,11 @@ p25 今千秋
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  経緯  
+##### 1414#       发表于 2025-11-30 09:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">你们都搞错了什么吧，Q娃本来就是男人的企划啊，pretty和cure又不是只属于女人的词汇！觉醒！多元化神作！必须一伯分！
+
