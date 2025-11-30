@@ -619,3 +619,18 @@ BS系列的画风真的有人能拿来冲吗，这两作游戏更像是带有黄
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  检索者  
+##### 257#         楼主| 发表于 2025-11-30 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800425&amp;ptid=1812121" target="_blank">nowiner 发表于 2025-11-29 21:39</a>
+
+慕名玩了一代，有些困惑，怎么一直没有剧情，重复打怪升级。只能靠路标和道具描述脑补剧情。
+
+这游戏一直是 ...</blockquote>
+一般到结局的时候会有相对多一些的剧情和设定解释
+
+平时基本上就是靠反复跟npc对话和道具描述获得一些零散信息
+

@@ -3636,3 +3636,19 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 不管她演不演，不发现场照片，不发日文新闻，挑了个港台的中文新闻发到Ins上这个事很耐人寻味。反正我觉得维护她ins的人（工作人员或者本人）挺特末坏逼的。
 
+
+*****
+
+####  wasian  
+##### 362#       发表于 2025-11-30 14:17
+
+<img src="https://img.stage1st.com/forum/202511/30/141745uvr7domvkhnkzkv7.jpg" referrerpolicy="no-referrer">
+
+<strong>84028a37b147d45b26a63b48ecceb862.jpg</strong> (323.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-30 14:17 上传
+
+ai真好用吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
