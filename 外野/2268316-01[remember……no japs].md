@@ -3862,3 +3862,18 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 后排恭喜一下ayasa百京场顺利举办<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 381#       发表于 2025-11-30 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801544&amp;ptid=2268316" target="_blank">magus 发表于 2025-11-30 09:26</a>
+
+假的，是之前排练的图</blockquote>
+滨崎步自己在ig转发了说她无人开唱的新闻了
+
+国内主办方用的口径是她在彩排，但这个说法其实无懈可击，无观众开唱=带妆彩排没毛病
+
+后续这场的视频是要录dvd卖钱的
+

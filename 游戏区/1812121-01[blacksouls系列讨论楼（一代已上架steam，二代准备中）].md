@@ -642,3 +642,26 @@ BS系列的画风真的有人能拿来冲吗，这两作游戏更像是带有黄
 
 习惯了寿司的画风会感觉cg还蛮带感的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 259#       发表于 2025-11-30 18:50
+
+sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了 
+
+
+*****
+
+####  cnmyster1ous  
+##### 260#       发表于 2025-11-30 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803781&amp;ptid=1812121" target="_blank">华发夜眼[CN] 发表于 2025-11-30 18:50</a>
+
+sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
+初期的办法:回图书馆不断跟诺登嘿嘿 一次加10点
+
+推剧情到时钟塔打败狂鸟以后会拿到一个道具 可以立刻把SEN设置为0/100 方便触发剧情
+
+正常情况下一周目肯定会拿到的 不见狂鸟的话好像没有办法凑够10进行度触发DLC3以外的任何结局
+
