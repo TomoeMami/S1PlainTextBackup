@@ -211,3 +211,13 @@ p25 今千秋
 
 2025-11-30 13:26 上传
 
+
+*****
+
+####  离心  
+##### 1424#       发表于 2025-11-30 16:08
+
+令和绿毛的诅咒<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/29/c7c68761591eb67fa6ce592f71d52ead/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
