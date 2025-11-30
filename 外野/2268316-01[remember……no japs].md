@@ -3819,3 +3819,38 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 这次打击日本在华文化输出，为什么是正确且必要的？
 [https://www.bilibili.com/video/BV1drSNBYE4n](https://www.bilibili.com/video/BV1drSNBYE4n)
 
+
+*****
+
+####  四氧化三铅  
+##### 376#       发表于 2025-11-30 16:45
+
+我只能说日本文化输出是真的牛逼，韩国根本比不了，在亚洲的影响力我觉得甚至超过美国，幸亏日本现在实体工业拉垮了，否则反对的不光是萌二了，还有买日本家电和日本车那些人，他们才是占大多数。
+
+*****
+
+####  takitaki  
+##### 377#       发表于 2025-11-30 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">嗷的一声就癫了，又是鬼哭狼嚎又是成神之日，看的我好爽
+
+*****
+
+####  瞬间傻了  
+##### 378#       发表于 2025-11-30 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803243&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-30 16:45</a>
+
+我只能说日本文化输出是真的牛逼，韩国根本比不了，在亚洲的影响力我觉得甚至超过美国，幸亏日本现在实体工 ...</blockquote>
+精日不能只看做一种政治倾向，它和毒品、轮子才是一个生态位的。
+
+
+*****
+
+####  四氧化三铅  
+##### 379#       发表于 2025-11-30 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803250&amp;ptid=2268316" target="_blank">瞬间傻了 发表于 2025-11-30 16:47</a>
+精日不能只看做一种政治倾向，它和毒品、轮子才是一个生态位的。</blockquote>
+其实和韩国欧巴小仙女如出一辙，只是之前铁拳没砸到自己还在那里笑小仙女，现在砸到了同样丑态百出。
+
