@@ -3588,3 +3588,13 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
  彩排拍照宣发
 
+
+*****
+
+####  乞力马札罗的雪  
+##### 357#       发表于 2025-11-30 13:24
+
+虐粉而已<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
