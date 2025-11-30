@@ -3568,3 +3568,23 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 现在Ins上还有呢</blockquote>
 看到的说法，和演出取消通知对得上<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">的演唱会，28日下午取消。28日傍晚到晚上期间，歌手的演唱也只能算彩排吧，但是还要被宣传成歌手面对空场独自一人完成演唱会。这既是包装的一部分，也是一种混淆视听。（转）</blockquote>
 
+
+*****
+
+####  黑暗之眼  
+##### 355#       发表于 2025-11-30 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801990&amp;ptid=2268316" target="_blank">JRPG 发表于 2025-11-30 11:15</a>
+现在Ins上还有呢</blockquote>
+举办日29号的演唱会她28号演个什么劲？取不取消28号也不会有观众的呀
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  愛繋璃まつり  
+##### 356#       发表于 2025-11-30 13:22
+
+ 彩排拍照宣发
+
