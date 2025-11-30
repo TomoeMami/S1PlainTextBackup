@@ -1920,3 +1920,16 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 终章圣人祝祭殿右边的机关怎么解，是要去哪找花吗</blockquote>
 花就在走廊里放着
 
+
+*****
+
+####  83913536  
+##### 166#       发表于 2025-11-30 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68779152&amp;ptid=2263973" target="_blank">Sannapolis 发表于 2025-11-26 00:22</a>
+
+全成就不要求全支线，只漏了一两个限时支线也是可以打出全成就的
+
+如果确实需要存档的话可以用这个主线通 ...</blockquote>
+谢谢大佬分享
+
