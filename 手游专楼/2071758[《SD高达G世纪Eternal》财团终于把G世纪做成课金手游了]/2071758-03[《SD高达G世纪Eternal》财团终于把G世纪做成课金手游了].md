@@ -2159,3 +2159,16 @@ zero里就有，二十几年了
 
 除非特别喜欢角色
 
+
+*****
+
+####  GameTheory  
+##### 3160#       发表于 2025-11-30 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803312&amp;ptid=2071758" target="_blank">plok201 发表于 2025-11-30 17:03</a>
+
+船非常菜，词条包含的机体太少了，配队非常死板，逆子2台UR去那些大词条船完事了
+
+特别是柯西，那么大个 ...</blockquote>
+是啊 因为这次抽船出的多(UR俩（西纳普斯，然而我没抽0083系列的池子，玛硫） SSR还有不少)就上头抽到300了
+
