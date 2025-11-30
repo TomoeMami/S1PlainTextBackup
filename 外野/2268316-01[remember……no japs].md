@@ -3776,3 +3776,29 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  magus  
+##### 373#       发表于 2025-11-30 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801760&amp;ptid=2268316" target="_blank">顾然 发表于 2025-11-30 10:16</a>
+
+所以到底是真是假 我记得有新闻是直接拆了 结果又变成什么大型行为艺术现场恶心人半天
+
+—— 来自 鹅球 v3. ...</blockquote>
+演唱会原定时间是周六
+
+周五有人发她自己一个人在空无一人的演唱会场地表演
+
+能是真的吗，发的就是彩排照而已
+
+*****
+
+####  雷诺4001  
+##### 374#       发表于 2025-11-30 16:19
+
+<blockquote>hgnooweaj 发表于 2025-11-30 15:31
+还别说，这次空场唱歌的事虽然在外网不算出名（是说连日媒都没有重点报道），但这种不知真假的行为艺术在国 ...</blockquote>
+滨崎步这种玩意也能算国宝级了，嘿
+
