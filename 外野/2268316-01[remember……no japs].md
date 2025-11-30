@@ -3756,3 +3756,23 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 这么冲塔，封杀吧，以后来不了咯
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 372#       发表于 2025-11-30 15:54
+
+<img src="https://p.sda1.dev/29/c18d91959c6a94bac21c85bafb2ad7d3/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 太对了| + 1|欢乐多|
+
+查看全部评分
+
