@@ -1972,3 +1972,13 @@ zero里就有，二十几年了
 
 又是个三动的，接下来半年内三动应该是攻击机师及格线了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3141#       发表于 2025-11-30 11:28
+
+ 本帖最后由 螺旋的小夜曲 于 2025-11-30 11:30 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个主线剧情就三关真绷不住了，战魂和创世都是现成的，直接拿来用就是。非得守着剧场版
+
