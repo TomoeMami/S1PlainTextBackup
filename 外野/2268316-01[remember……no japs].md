@@ -3721,3 +3721,30 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 还别说，这次空场唱歌的事虽然在外网不算出名（是说连日媒都没有重点报道），但这种不知真假的行为艺术在国内在一些有心人炒作成为日本国宝级别的歌姬用自己的歌唱响无人的舞台，对抗暴政和独裁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  走来走去  
+##### 369#       发表于 2025-11-30 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802841&amp;ptid=2268316" target="_blank">yuuhi 发表于 2025-11-30 14:34</a>
+真可惜，准备好的演出被取消
+希望这些艺人回去好好劝日本政客，少瞎几把搞事</blockquote>
+……艺人……劝政客……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+这么说吧，未来除非某个日本艺人决定移民中国，否则直球反华只是时间问题，轮不到他们有自己的意志。
+
+
+*****
+
+####  瞬间傻了  
+##### 370#       发表于 2025-11-30 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802999&amp;ptid=2268316" target="_blank">hgnooweaj 发表于 2025-11-30 15:31</a>
+
+还别说，这次空场唱歌的事虽然在外网不算出名（是说连日媒都没有重点报道），但这种不知真假的行为艺术在国 ...</blockquote>
+我总结马前匪行为模式的话，在此就要再说一次了
+
+因为我国所有推塔行为都没有自己的主体性，其本质上，都是替“怔道世界”打击“蛮夷”。如果“怔道”输了，而“蛮夷”赢了变成正道，那么推塔行为立即丧失一切“合法性”，推塔壬除了自己罢免自己没有其他路走。所以“怔道世界”不可能有错，任何行为都是天启，不管真假。
+
+那么某些人会放什么屁，大家都能想到啦。
+
