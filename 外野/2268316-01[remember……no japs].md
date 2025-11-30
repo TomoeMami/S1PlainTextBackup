@@ -3513,3 +3513,39 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 —— 来自 samsung SM-S9110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JRPG  
+##### 351#       发表于 2025-11-30 11:15
+
+<blockquote>顾然 发表于 2025-11-30 10:16
+所以到底是真是假 我记得有新闻是直接拆了 结果又变成什么大型行为艺术现场恶心人半天
+
+—— 来自 鹅球 v3. ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202511/30/111520r3ciuu6ultb6isia.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3255.jpeg</strong> (307.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-30 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202511/30/111520piofputlp9fc0pr9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3254.jpeg</strong> (498.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-30 11:15 上传
+
+现在Ins上还有呢
+
+*****
+
+####  Todds_lies  
+##### 352#       发表于 2025-11-30 11:16
+
+万代南梦宫那事很像骗廷杖了，以及罕见还是太多了
+
