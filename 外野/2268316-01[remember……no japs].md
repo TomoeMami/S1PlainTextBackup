@@ -4051,3 +4051,16 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 好笑，精彩
 
+
+*****
+
+####  瞬间傻了  
+##### 398#       发表于 2025-12-1 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68804342&amp;ptid=2268316" target="_blank">66367749 发表于 2025-11-30 21:01</a>
+
+经典定番谢罪</blockquote>
+二刺猿里就是这样的，为了洗白某人兼洗白它所在的种族、阵营，另个角色突然不顾ooc的与之共情，反过来向对方谢罪，强行按住其他人和屏幕外的观众的头，唐突和解、共存，赢了！
+
+你也别问为什么，就像宗教仪式一样没有为什么，这就是为什么日本能和邪教共存，为什么精日本质是一种邪教。
+
