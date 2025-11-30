@@ -3987,3 +3987,44 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 精彩，这么跳脸真精彩
 
+
+*****
+
+####  四氧化三铅  
+##### 392#       发表于 2025-11-30 23:12
+
+ 本帖最后由 四氧化三铅 于 2025-11-30 23:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68804809&amp;ptid=2268316" target="_blank">Victorino 发表于 2025-11-30 23:03</a>
+滨崎步自己发图了，可以确定舞台确实是演完了才拆的</blockquote>
+这图你怎么确定不是彩排拍的？ 
+有什么证据演完才拆你就确实？
+
+*****
+
+####  rozen121  
+##### 393#       发表于 2025-11-30 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803243&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-30 16:45</a>
+
+我只能说日本文化输出是真的牛逼，韩国根本比不了，在亚洲的影响力我觉得甚至超过美国，幸亏日本现在实体工 ...</blockquote>
+我觉得以最近几年日本文化产品的表现，已经被韩，美，中寄生了，未来不知道输出的还是不是蜗本位文化了
+
+*****
+
+####  d2loader  
+##### 394#       发表于 2025-11-30 23:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 粉丝自己说了28号晚上听到有唱歌彩排
+
+29号目前没有粉丝反馈有听到
+
+已经付了钱搭了舞台没有观众她爱怎么演怎么演, 泥潭一些人无能狂怒到底为了什么
+
+
+*****
+
+####  cowgp01  
+##### 395#       发表于 2025-11-30 23:15
+
+这么婊是吧，不过在娱乐圈混的怎么可能是白莲花呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
