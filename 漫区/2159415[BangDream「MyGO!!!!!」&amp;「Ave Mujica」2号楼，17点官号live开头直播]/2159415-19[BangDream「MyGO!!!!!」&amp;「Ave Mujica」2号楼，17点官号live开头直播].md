@@ -47,3 +47,13 @@
 [BDMV][2024] BanG Dream! It's MyGO!!!!! 春の陽だまり、迷い猫 &amp; うたう、僕らになれるうた &amp; FIL ...</blockquote>
 好怪哦，现在文件怎么都这么大，我以前下的两小时电影也就1个G啊
 
+
+*****
+
+####  CyDiablo  
+##### 27381#       发表于 2025-11-30 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68800967&amp;ptid=2159415" target="_blank">yone0000 发表于 2025-11-30 00:40</a>
+开心娱乐明天的ayasa北京场倒是能开了，不知道🐔6后的节约fmt还能开吗</blockquote>
+看到转来的开心娱乐发的群公告，节约fmt是已经确定取消了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉这两天的小场活动也是在豪赌刚定方向不会被太为难
+

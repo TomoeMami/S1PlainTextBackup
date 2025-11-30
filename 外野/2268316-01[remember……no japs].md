@@ -3955,3 +3955,12 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 这么装白莲花的表现真是够刻板印象了
 
+
+*****
+
+####  narutoz  
+##### 389#       发表于 2025-11-30 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803072&amp;ptid=2268316" target="_blank">斯大林的拖拉机 发表于 2025-11-30 15:54</a></blockquote>
+草，还有续集<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
