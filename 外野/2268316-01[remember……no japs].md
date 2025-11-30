@@ -3964,3 +3964,26 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803072&amp;ptid=2268316" target="_blank">斯大林的拖拉机 发表于 2025-11-30 15:54</a></blockquote>
 草，还有续集<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 390#       发表于 2025-11-30 23:03
+
+<img src="https://img.stage1st.com/forum/202511/30/230252e7sqyqytmyqugruu.jpg" referrerpolicy="no-referrer">
+
+<strong>1000157968.jpg</strong> (440.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-30 23:02 上传
+
+滨崎步自己发图了，可以确定舞台确实是演完了才拆的
+
+*****
+
+####  JRPG  
+##### 391#       发表于 2025-11-30 23:07
+
+精彩，这么跳脸真精彩
+
