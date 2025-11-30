@@ -3355,3 +3355,13 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 —— 来自 samsung SM-S9110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fat  
+##### 336#       发表于 2025-11-30 08:49
+
+微博说滨崎步周六晚在无观众情况下独自开演，是真还是假？
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
