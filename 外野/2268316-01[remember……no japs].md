@@ -3673,3 +3673,28 @@ ai真好用吧<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 —— 来自 meizu MEIZU 21 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  king520kyo  
+##### 365#       发表于 2025-11-30 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802727&amp;ptid=2268316" target="_blank">JRPG 发表于 2025-11-30 13:58</a>
+
+不管她演不演，不发现场照片，不发日文新闻，挑了个港台的中文新闻发到Ins上这个事很耐人寻味。反正我觉 ...</blockquote>
+刚B站首页还给我推送了一个滨崎步这事的相关视频，下面全是罕见<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/B ... c81b4a53301dc83664b](https://www.bilibili.com/video/BV19DUdBiEek/?spm_id_from=333.1007.tianma.15-3-57.click&amp;vd_source=2b831eb1db9e4c81b4a53301dc83664b)
+
+*****
+
+####  yuuhi  
+##### 366#       发表于 2025-11-30 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68797064&amp;ptid=2268316" target="_blank">國立中央大學 发表于 2025-11-29 08:07</a>
+这才哪到哪，真打仗肯定要切断民间交往的，不能一边想看歼灭自卫队一边想在国内看日本线下演出吧。
+
+——  ...</blockquote>
+想一边驻军东京一边请日本国宝级艺人来唱个堂会
+
+—— 来自 meizu MEIZU 21 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
