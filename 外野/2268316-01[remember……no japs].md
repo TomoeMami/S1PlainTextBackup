@@ -4028,3 +4028,26 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 这么婊是吧，不过在娱乐圈混的怎么可能是白莲花呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  deadline  
+##### 396#       发表于 2025-11-30 23:23
+
+这操作是真弱智，场内场外拉满宣传的心思谁看不出来啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+局势能缓和倒还好，等后续局势升级了，最先被拉出来祭旗的艺人肯定是她，现在全网都在说这事儿，喜欢当出头鸟是要付出代价的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JRPG  
+##### 397#       发表于 2025-11-30 23:25
+
+<blockquote>d2loader 发表于 2025-11-30 23:13
+粉丝自己说了28号晚上听到有唱歌彩排
+
+29号目前没有粉丝反馈有听到
+</blockquote>
+我可不是无能狂怒，只是觉得一向会读空气的日本人突然不会读了呢？怎么就不会了呢？怎么这么突然呢？
+
+好笑，精彩
+
