@@ -2045,3 +2045,22 @@ zero里就有，二十几年了
 
 哈撒韦这不就普通池水平的玩意，真就靠剧场版硬收割是吧
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3149#       发表于 2025-11-30 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802683&amp;ptid=2071758" target="_blank">HATENA 发表于 2025-11-30 13:47</a>
+哈撒韦这不就普通池水平的玩意，真就靠剧场版硬收割是吧</blockquote>
+看这个池子的时间<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本就明摆着等剧场版，就是个假限定
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王俊凯  
+##### 3150#       发表于 2025-11-30 14:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">每天纳税纳三个月四舍五入白嫖了捞翔们
+
