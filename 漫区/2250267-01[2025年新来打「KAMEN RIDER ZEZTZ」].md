@@ -27,3 +27,11 @@
 
 利维斯当时大家都跟傻子一样猜一辉那个穿西装一脸邪气是什么设定，结果制作组说闹着玩瞎拍的
 
+
+*****
+
+####  黑上シグマ  
+##### 442#       发表于 2025-11-30 17:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都在说诺克斯是花家大我www
+
