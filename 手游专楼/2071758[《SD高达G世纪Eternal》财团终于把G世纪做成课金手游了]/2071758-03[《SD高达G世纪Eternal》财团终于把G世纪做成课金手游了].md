@@ -2000,3 +2000,11 @@ zero里就有，二十几年了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">30抽就一个大白鹅 算了 看看强度先
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 3144#       发表于 2025-11-30 11:58
+
+开3个月池的伪限定，综合机能非常平庸
+
