@@ -119,3 +119,50 @@ p25 今千秋
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">你们都搞错了什么吧，Q娃本来就是男人的企划啊，pretty和cure又不是只属于女人的词汇！觉醒！多元化神作！必须一伯分！
 
+
+*****
+
+####  MagicGiraffe  
+##### 1415#       发表于 2025-11-30 09:46
+
+光之美少男之南通回<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 1416#       发表于 2025-11-30 09:52
+
+呵呵 演都不演了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+男q娃才是真追加待遇吧
+神作画回
+今年正片最像样子的演唱会是男人开的
+唱歌变身前摇 变身大招都画的很精致
+剧情是主线 两男同组队单飞闹麻了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+这集结束马上就卖变身后男人亚克力破铁皮了
+
+*****
+
+####  宅音  
+##### 1417#       发表于 2025-11-30 09:52
+
+除了q娃变身之外好标准的bl漫画展开我只能说…<img src="https://static.stage1st.com/image/smiley/carton2017/449.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1418#       发表于 2025-11-30 09:55
+
+顺便说一下 之前明年有丁真情报说
+是3女+1男
+
+*****
+
+####  HazukiShion  
+##### 1419#       发表于 2025-11-30 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801659&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-11-30 09:55</a>
+顺便说一下 之前明年有丁真情报说
+是3女+1男</blockquote>
+不是说还有队内直球恋爱吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

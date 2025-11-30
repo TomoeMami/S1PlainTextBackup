@@ -3443,3 +3443,29 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 —— 来自 OPPO PKU110, Android 16, 鹅球 v3.5 ...</blockquote>
 是真的，而且自己还把报道这个事的港台新闻发到了ins上，非常会上眼药。
 
+
+*****
+
+####  Lilithy  
+##### 345#       发表于 2025-11-30 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801617&amp;ptid=2268316" target="_blank">JRPG 发表于 2025-11-30 09:46</a>
+是真的，而且自己还把报道这个事的港台新闻发到了ins上，非常会上眼药。 ...</blockquote>
+只要滨崎步发个"台湾是中国的"站队消息，说不定就有观众了呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  黑暗之眼  
+##### 346#       发表于 2025-11-30 09:51
+
+ 本帖最后由 黑暗之眼 于 2025-11-30 09:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801435&amp;ptid=2268316" target="_blank">fat 发表于 2025-11-30 08:49</a>
+微博说滨崎步周六晚在无观众情况下独自开演，是真还是假？
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5 ...</blockquote>
+周五晚上就开始说了，什么周六，明明预定开办日期是周六，周五晚上蹦哒一晚？
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
