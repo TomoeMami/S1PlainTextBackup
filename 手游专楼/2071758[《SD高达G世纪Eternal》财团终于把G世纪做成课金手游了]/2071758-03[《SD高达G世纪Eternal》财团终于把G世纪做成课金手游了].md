@@ -1992,3 +1992,11 @@ zero里就有，二十几年了
 
 是不是基野制作组解散了就没人关心数值设计了？
 
+
+*****
+
+####  一之江瑞江  
+##### 3143#       发表于 2025-11-30 11:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">30抽就一个大白鹅 算了 看看强度先
+
