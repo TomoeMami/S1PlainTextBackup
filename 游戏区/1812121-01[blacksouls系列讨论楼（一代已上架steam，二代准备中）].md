@@ -634,3 +634,11 @@ BS系列的画风真的有人能拿来冲吗，这两作游戏更像是带有黄
 
 平时基本上就是靠反复跟npc对话和道具描述获得一些零散信息
 
+
+*****
+
+####  Freewolf  
+##### 258#       发表于 2025-11-30 14:32
+
+习惯了寿司的画风会感觉cg还蛮带感的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

@@ -3652,3 +3652,24 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 ai真好用吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwhaha  
+##### 363#       发表于 2025-11-30 14:26
+
+看各种q群微信群群魔乱舞只感叹力度还是不够
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  yuuhi  
+##### 364#       发表于 2025-11-30 14:34
+
+真可惜，准备好的演出被取消
+希望这些艺人回去好好劝日本政客，少瞎几把搞事
+
+—— 来自 meizu MEIZU 21 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
