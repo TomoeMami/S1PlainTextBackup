@@ -3713,3 +3713,11 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hgnooweaj  
+##### 368#       发表于 2025-11-30 15:31
+
+还别说，这次空场唱歌的事虽然在外网不算出名（是说连日媒都没有重点报道），但这种不知真假的行为艺术在国内在一些有心人炒作成为日本国宝级别的歌姬用自己的歌唱响无人的舞台，对抗暴政和独裁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
