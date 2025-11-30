@@ -221,3 +221,19 @@ p25 今千秋
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  leleq  
+##### 1425#       发表于 2025-11-30 22:51
+
+ 本帖最后由 leleq 于 2025-11-30 22:56 编辑 
+
+原来如此……嗯……我懂了今年的主题其实是“公款追星”吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+类似国内各种主旋律电影找小鲜肉的感觉差不多说是吸引年轻人看实际就是“公款追星”吧
+
+今年的问题用“公款追星”来解释一下子就说通了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+说句不好听的本集换一下就是写了个肖战的同人bl剧本找本人来配音吧
+
