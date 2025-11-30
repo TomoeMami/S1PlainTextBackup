@@ -2008,3 +2008,16 @@ zero里就有，二十几年了
 
 开3个月池的伪限定，综合机能非常平庸
 
+
+*****
+
+####  无念  
+##### 3145#       发表于 2025-11-30 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802058&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-11-30 11:28</a>
+这个主线剧情就三关真绷不住了，战魂和创世都是现成的，直接拿来用就是。非得守着剧场版 ...</blockquote>
+往好处想，起码还有OVA2和OVA3
+那9关普通1关boss3关ex还是凑的出的
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
