@@ -3698,3 +3698,18 @@ ai真好用吧<img src="https://static.stage1st.com/image/smiley/face2017/067.pn
 
 —— 来自 meizu MEIZU 21 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  民工业  
+##### 367#       发表于 2025-11-30 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802867&amp;ptid=2268316" target="_blank">king520kyo 发表于 2025-11-30 14:41</a>
+刚B站首页还给我推送了一个滨崎步这事的相关视频，下面全是罕见
+
+https://www.bilibili.com/video/BV19DUd ...</blockquote>
+<img src="https://p.sda1.dev/29/2f668c27c682e25d3b88bd09c3c0277f/image.jpg" referrerpolicy="no-referrer">
+这个评论真是给我看笑了🤣
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -24,3 +24,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">spec3最终新车预告图来了，最后两台车是panda和296街车，不是曾经以为板上钉钉的su7u遗憾
 
+
+*****
+
+####  洛克萨斯  
+##### 1952#       发表于 2025-11-30 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802831&amp;ptid=2027972" target="_blank">Totokei 发表于 2025-11-30 14:32</a>
+
+296GT3是最初就公布的，spec3预告有8台新车有两台车一直藏着没公布</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">gt7生命周期快结束都没有g82m4这种平民神车，哎，大家期待的小米和仰望也还没出
+
