@@ -3501,3 +3501,15 @@ ayasa成都跟其他演出都一起取消了，不知道北京为什么可以保
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  红炉灰  
+##### 350#       发表于 2025-11-30 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801579&amp;ptid=2268316" target="_blank">风景很好 发表于 2025-11-30 09:37</a>
+你搞错时间了不是12、13年，而是15年</blockquote>
+太久了，记岔了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
