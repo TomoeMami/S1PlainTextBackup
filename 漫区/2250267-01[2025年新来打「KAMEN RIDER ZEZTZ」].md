@@ -14,3 +14,16 @@
 
 最近东映御三家骑士反而是最老实的一个，没咋整活(加布:え?)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。相当喜欢现在的故事和人物推进节奏，有旧平成的感觉，很舒服。求求高桥就这么写下去吧
 
+
+*****
+
+####  洛克萨斯  
+##### 441#       发表于 2025-11-30 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803373&amp;ptid=2250267" target="_blank">milky658 发表于 2025-11-30 17:20</a>
+
+最近东映御三家骑士反而是最老实的一个，没咋整活(加布:え?)。相当喜欢现在的故事和人物推进节奏，有旧平成 ...</blockquote>
+起码op的镜头不是瞎拍的
+
+利维斯当时大家都跟傻子一样猜一辉那个穿西装一脸邪气是什么设定，结果制作组说闹着玩瞎拍的
+
