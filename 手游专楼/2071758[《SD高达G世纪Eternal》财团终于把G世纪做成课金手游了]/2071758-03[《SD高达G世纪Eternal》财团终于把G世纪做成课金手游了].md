@@ -2113,3 +2113,26 @@ zero里就有，二十几年了
 
 日本地区登顶了
 
+
+*****
+
+####  森兰丸  
+##### 3156#       发表于 2025-11-30 16:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这活动送的啥.....サポーター可以不是母船了吗
+
+
+*****
+
+####  plok201  
+##### 3157#       发表于 2025-11-30 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803206&amp;ptid=2071758" target="_blank">GameTheory 发表于 2025-11-30 16:33</a>
+
+那就是先换柯西 不用换船么？</blockquote>
+船非常菜，词条包含的机体太少了，配队非常死板，逆子2台UR去那些大词条船完事了
+
+特别是柯西，那么大个王牌词条，大白鹅可惜了，被凯奈斯一句这不是王牌机给害了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+不过最大问题是300点数的话，换机体剩100不上不下的
+
