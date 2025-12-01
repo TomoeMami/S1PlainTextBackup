@@ -116,3 +116,42 @@
 
 混沌属性的七骑士，某个EX职阶依然没户口<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/29/2f4e3297a5b1252079c46fb94c709154/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18696#       发表于 2025-12-1 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾蕾就是被迫害的女王
+
+*****
+
+####  汉魏洛阳  
+##### 18697#       发表于 2025-12-1 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809122&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-12-1 17:04</a>
+
+笑了，礼装已经在明示了</blockquote>
+这个月的礼装不是他那才叫新闻吧，都是算好的
+
+*****
+
+####  Jamaisvu  
+##### 18698#       发表于 2025-12-1 17:26
+
+<blockquote>汉魏洛阳 发表于 2025-12-1 17:22
+这个月的礼装不是他那才叫新闻吧，都是算好的</blockquote>
+之前都在猜落地的是所罗门（秩序善）还是盖提亚（混沌善），这个礼装一出就知道是盖总套皮了。
+
+但也不排除切换灵基变换属性...
+
+*****
+
+####  岸浪白野  
+##### 18699#       发表于 2025-12-1 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809236&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-12-1 17:22</a>
+
+艾蕾就是被迫害的女王</blockquote>
+但是原皮待遇好已经3户口加成了，是兽蕾变成善属性现在混沌属性加成礼装都不带她玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
