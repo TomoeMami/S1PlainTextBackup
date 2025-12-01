@@ -2266,3 +2266,14 @@ PVP，永恒， ...</blockquote>
 又登顶送了3000钻？求求你们别充了再充单机版真没了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">就开服几个月的流水，早就吧历代拉起来a了
 
+
+*****
+
+####  洛克萨斯  
+##### 3171#       发表于 2025-12-1 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810587&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-12-1 22:16</a>
+
+就开服几个月的流水，早就吧历代拉起来a了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海牛卡池和sf卡池太夸张了，单机版g世纪一辈子都卖不出这个数
+
