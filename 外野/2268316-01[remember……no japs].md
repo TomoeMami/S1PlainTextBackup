@@ -4449,3 +4449,11 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 最好的方法就是不宣传冷处理日本文化，ACG党继续转为地下党，既不花钱又不会宣传日本文化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 434#       发表于 2025-12-1 13:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼玩意们，叫的越多禁的越多，你尽管狗叫，看看是不是讨厌你们的人更多了，嘻嘻
+
