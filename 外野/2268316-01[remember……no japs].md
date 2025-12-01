@@ -4332,3 +4332,11 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">他在国内也捞不到钱啊，本来是计划两天两场的，结果票卖得不好就两场合并一场了。然后才是取消的事情
 
+
+*****
+
+####  lyzsuper  
+##### 423#       发表于 2025-12-1 11:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 要我觉得就门口放一个支持一个中国的牌子,歌手签字了就能唱
+
