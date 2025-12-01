@@ -1974,3 +1974,14 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 终于通关了，黑世大陆上的那个boss是个坑吗？最后也没说，估计也和地图上那些130级左右的秘境一样是人类灭亡因子的背景设定吧？玩到最后没想到那么长，尤其是第8章之后
 
+
+*****
+
+####  InfiniteGyre  
+##### 171#       发表于 2025-12-1 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810178&amp;ptid=2263973" target="_blank">星夜月 发表于 2025-12-1 20:28</a>
+
+终于通关了，黑世大陆上的那个boss是个坑吗？最后也没说，估计也和地图上那些130级左右的秘境一样是人类灭 ...</blockquote>
+你确定通了通关后才有的那个150级的那个黑世大陆魔境吗？这个魔境的boss不是故事里面一直在不停的念的闭眼之兽吗？
+
