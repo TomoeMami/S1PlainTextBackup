@@ -79,3 +79,40 @@
 正好抽到多一抽的时候，本来就没石
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个男人就算出了，我能不能出也是看缘分，要来就单抽来，反正我没石。
 
+
+*****
+
+####  alucardcz  
+##### 18692#       发表于 2025-12-1 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806402&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-12-1 10:19</a>
+
+为什么楼友总在出货 什么时候轮到我啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">为什么楼友总在出货 什么时候轮到我啊
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">等一个晚上出医生
+
+*****
+
+####  qixinno2  
+##### 18693#       发表于 2025-12-1 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809012&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-1 16:47</a>
+
+为什么楼友总在出货 什么时候轮到我啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新发表豹跳预告是吧
+
+*****
+
+####  壳壳牛  
+##### 18694#       发表于 2025-12-1 17:04
+
+笑了，礼装已经在明示了
+
+*****
+
+####  岸浪白野  
+##### 18695#       发表于 2025-12-1 17:15
+
+混沌属性的七骑士，某个EX职阶依然没户口<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/29/2f4e3297a5b1252079c46fb94c709154/image.jpg" referrerpolicy="no-referrer">
+
