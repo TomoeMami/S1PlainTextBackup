@@ -326,3 +326,67 @@
 这玩意儿放出来妥妥的登顶一周的东西，居然硬是送了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  char0311131  
+##### 18719#       发表于 2025-12-1 18:48
+
+打所罗门谁特攻最多啊<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 18720#       发表于 2025-12-1 18:50
+
+草，就这
+
+除了一个大家都猜得到的冠位术，也就透了会送一个从者
+
+
+*****
+
+####  qixinno2  
+##### 18721#       发表于 2025-12-1 18:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以 无事发生
+
+*****
+
+####  khxooo  
+##### 18722#       发表于 2025-12-1 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809683&amp;ptid=2084912" target="_blank">char0311131 发表于 2025-12-1 18:48</a>
+打所罗门谁特攻最多啊</blockquote>
+当然是对王第一核弹的山鲁佐德<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18723#       发表于 2025-12-1 18:59
+
+真傻逼 终章还要拆分
+
+*****
+
+####  壳壳牛  
+##### 18724#       发表于 2025-12-1 19:00
+
+果然有柱子
+
+苹果还得留...
+
+*****
+
+####  angelooo  
+##### 18725#       发表于 2025-12-1 19:00
+
+有柱子战？
+
+*****
+
+####  Jamaisvu  
+##### 18726#       发表于 2025-12-1 19:02
+
+就这？连个新卡都没得抽，就知道车轱辘话那几个时间点，早知道不看前瞻看电影去了...
+
