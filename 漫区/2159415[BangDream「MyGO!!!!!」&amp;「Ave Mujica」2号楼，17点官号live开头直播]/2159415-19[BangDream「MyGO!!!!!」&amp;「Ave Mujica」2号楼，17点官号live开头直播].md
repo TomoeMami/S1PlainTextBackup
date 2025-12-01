@@ -57,3 +57,21 @@
 开心娱乐明天的ayasa北京场倒是能开了，不知道🐔6后的节约fmt还能开吗</blockquote>
 看到转来的开心娱乐发的群公告，节约fmt是已经确定取消了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉这两天的小场活动也是在豪赌刚定方向不会被太为难
 
+
+*****
+
+####  堀内爱里衣  
+##### 27382#       发表于 2025-12-1 19:27
+
+      
+
+<img src="https://img.stage1st.com/forum/202512/01/192809eetn4dzx6ak72h4z.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-01_19-26-12.jpg</strong> (294.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-1 19:28 上传
+
+      [https://x.com/oshitabi_update/status/1995432728230293585](https://x.com/oshitabi_update/status/1995432728230293585)
+
