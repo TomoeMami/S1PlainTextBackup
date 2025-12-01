@@ -430,3 +430,56 @@
 
 太垃圾了这操作
 
+
+*****
+
+####  alucardcz  
+##### 18732#       发表于 2025-12-1 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809779&amp;ptid=2084912" target="_blank">rooarr 发表于 2025-12-1 19:07</a>
+
+才发现绿方块不够了，除了抽卡还能去哪混一点</blockquote>
+友情池全卖<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18733#       发表于 2025-12-1 19:16
+
+<img src="https://img.stage1st.com/forum/202512/01/191600hzxozlyx2jqjsllq.jpg" referrerpolicy="no-referrer">
+
+<strong>~9_]B)(UJGSF22I[6_U%}7E_tmb.jpg</strong> (61.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-1 19:16 上传
+
+前半后半指的就是这两节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18734#       发表于 2025-12-1 19:17
+
+ 本帖最后由 岸浪白野 于 2025-12-1 19:22 编辑 
+
+打开bbc然后开始挂抽友情，狗粮3星芙芙3星从者4星从者全卖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 18735#       发表于 2025-12-1 19:20
+
+<blockquote>岸浪白野 发表于 2025-12-1 19:16
+前半后半指的就是这两节</blockquote>
+为了这两节我们特地开了个生放送呢
+
+*****
+
+####  khxooo  
+##### 18736#       发表于 2025-12-1 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809828&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 19:17</a>
+打开bbc然后开始挂抽友情，狗粮3星芙芙3星从者4星从者全卖</blockquote>
+热知识：从者不会自动变卖<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
