@@ -4264,3 +4264,20 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 纸人哪天不高潮了，还得管人py里的棒子震不震？
 
+
+*****
+
+####  瞬间傻了  
+##### 416#       发表于 2025-12-1 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806728&amp;ptid=2268316" target="_blank">没什么bu好 发表于 2025-12-1 11:02</a>
+
+已通过的给办完了事，后续的不给审批就行，这么一搞各路殖人都高潮了
+
+----发送自 Xiaomi 24129PN74C,Andro ...</blockquote>
+殖人高潮那不是反向指标吗。
+
+几十年前没有那么多殖人的时候，怔道世界蒸蒸日上，还能登上月球；自从有了许多殖人天天高潮之后，怔道世界反而一天不如一天。
+
+殖人应该反思是否孽力回馈导致的。
+
