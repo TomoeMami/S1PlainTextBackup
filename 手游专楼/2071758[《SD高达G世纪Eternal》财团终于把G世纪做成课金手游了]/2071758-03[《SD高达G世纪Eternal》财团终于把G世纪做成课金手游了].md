@@ -2295,3 +2295,11 @@ PVP，永恒， ...</blockquote>
 
 每次都是四五十抽屁毛没有<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 3174#       发表于 2025-12-2 00:37
+
+这个游戏内闪哈新pv竟然还没人扒的？以及这个uc总集篇模式的文本还挺有感觉的，上次那么有感觉的应该也是哪个sd特典鸭到伪鸭那个独白广播剧
+

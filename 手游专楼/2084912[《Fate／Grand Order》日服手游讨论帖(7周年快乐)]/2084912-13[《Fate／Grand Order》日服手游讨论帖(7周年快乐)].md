@@ -663,3 +663,14 @@
 萌新正常点</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧才有卡能用！没毛病（
 
+
+*****
+
+####  khxooo  
+##### 18754#       发表于 2025-12-2 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810893&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-12-2 00:06</a>
+
+不，他说的就是不是迦勒底式的契约啊</blockquote>
+我再看看翻译吧。
+
