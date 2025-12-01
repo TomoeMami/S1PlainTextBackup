@@ -1958,3 +1958,11 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 —— 来自 Xiaomi 2509FPN0BC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  七千星  
+##### 169#       发表于 2025-12-1 20:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到7章要去北方了，剧情说是传统王道，但偶尔有怪味，某几个反派或团体洗白感觉怪怪的，战斗确实无聊，但还是能玩下去。
+
