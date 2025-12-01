@@ -4190,3 +4190,43 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 哎，说来说去还是二次元软柿子好捏，楼里就不少人逮着机会踩头，我的评价是，在下架军-国-主-义女拳头子上野千鹤子的书之前，看也不看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  民工业  
+##### 410#       发表于 2025-12-1 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68802867&amp;ptid=2268316" target="_blank">king520kyo 发表于 2025-11-30 14:41</a>
+刚B站首页还给我推送了一个滨崎步这事的相关视频，下面全是罕见
+
+https://www.bilibili.com/video/BV19DUd ...</blockquote>
+可惜，本来今天还想再去看看笑话的，结果视频删掉了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/a0d17f27d33f36d1b0891cf4606e1327/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hgnooweaj  
+##### 411#       发表于 2025-12-1 10:53
+
+滨崎步这事怎么有种隐隐约约要发酵成“我们是罪人”的展开<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 412#       发表于 2025-12-1 10:54
+
+<blockquote>四氧化三铅 发表于 2025-12-1 09:53
+彩排当成演出 和 演出当成彩排 完全是两个性质。
+
+你在混淆视听什么。
+
+前者滨崎步说谎，后者国内主办方说 ...</blockquote>
+滨崎步在ig不止发了这一张图，发了9张，我懒得一张张转过来刷屏，你想看的话自己去看吧
+
+事实就是她演了全场并录像（准备卖dvd），国内主办用“是彩排”的话术把这个事情糊弄过去了（你也不能说他错）
+
+我谁也不站，我只是转发
+

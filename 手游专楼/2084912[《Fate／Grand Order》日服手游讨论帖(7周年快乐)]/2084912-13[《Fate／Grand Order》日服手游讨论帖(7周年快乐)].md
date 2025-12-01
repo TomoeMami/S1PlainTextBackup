@@ -42,3 +42,40 @@
 
 这个月五发总算出了个限定池的
 
+
+*****
+
+####  khxooo  
+##### 18688#       发表于 2025-12-1 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68805617&amp;ptid=2084912" target="_blank">v22325 发表于 2025-12-1 06:22</a>
+这个月五发总算出了个限定池的</blockquote>
+这么快就忍不住了？不等今晚？
+
+*****
+
+####  qixinno2  
+##### 18689#       发表于 2025-12-1 10:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">为什么楼友总在出货 什么时候轮到我啊
+
+*****
+
+####  壳壳牛  
+##### 18690#       发表于 2025-12-1 10:51
+
+就在今晚<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  v22325  
+##### 18691#       发表于 2025-12-1 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806159&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-1 09:41</a>
+
+这么快就忍不住了？不等今晚？</blockquote>
+正好抽到多一抽的时候，本来就没石
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个男人就算出了，我能不能出也是看缘分，要来就单抽来，反正我没石。
+

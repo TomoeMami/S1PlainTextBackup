@@ -685,3 +685,32 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 
 给新入坑的玩家说一下吧，打不过的话，bs2可以在坠落之间吃黑魂吃到sen值＜0打眼球怪，一只10000魂+量产少女之香，很容易就能升到100+级，前期打不过的话可以吃隐身胡椒背刺，刷够了去啪白兔加sen就行，一周目还是高sen玩得比较舒服
 
+
+*****
+
+####  MS75  
+##### 263#       发表于 2025-12-1 10:50
+
+没玩过1代可以直接玩2代吗，两代之间有没有剧情联系<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  检索者  
+##### 264#         楼主| 发表于 2025-12-1 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806643&amp;ptid=1812121" target="_blank">MS75 发表于 2025-12-1 10:50</a>
+
+没玩过1代可以直接玩2代吗，两代之间有没有剧情联系</blockquote>
+剧情是连续的，一般还是建议先玩1代再玩2代
+
+
+*****
+
+####  MS75  
+##### 265#       发表于 2025-12-1 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806662&amp;ptid=1812121" target="_blank">检索者 发表于 2025-12-1 10:53</a>
+
+剧情是连续的，一般还是建议先玩1代再玩2代</blockquote>
+感谢解答！
+
