@@ -4369,3 +4369,46 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  马甲20250922  
+##### 427#       发表于 2025-12-1 12:35
+
+<blockquote>tonyshva 发表于 2025-12-1 12:28
+感觉要搞禁x令了，最受伤的是不是你沪
+
+论坛助手,iPhone</blockquote>
+
+虚假的你沪精日——要搞禁日令了，看不到我家哥哥姐姐弟弟妹妹了，嘤嘤嘤
+
+真实的你沪精日——砸锅卖铁卖批卖.肾组团包机去日本看我家哥哥姐姐弟弟妹妹
+
+*****
+
+####  心上人  
+##### 428#       发表于 2025-12-1 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68805897&amp;ptid=2268316" target="_blank">tansapple 发表于 2025-12-1 08:54</a>
+老二次元对滨崎步的印象都是这娘们当年最火的时候特别能装而且负面行为超级多，后来她搞坏了自己嗓子也是纯 ...</blockquote>
+她都倒嗓成那个德行
+霓虹境内也早就过气 无人在意她的地步
+来大陆还能打 亚洲天后的招牌捞金
+去年就在上海开演唱会捞金
+今年又来
+只能说
+她家粉丝是真的不挑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马甲20250922  
+##### 429#       发表于 2025-12-1 12:37
+
+<blockquote>心上人 发表于 2025-12-1 12:35
+她都倒嗓成那个德行
+
+霓虹境内也早就过气 无人在意她的地步
+
+来大陆还能打 亚洲天后的招牌捞金</blockquote>
+她都出道那么多年了，还没出坑的粉丝都是结晶粉了。
+
