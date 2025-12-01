@@ -674,3 +674,13 @@
 不，他说的就是不是迦勒底式的契约啊</blockquote>
 我再看看翻译吧。
 
+
+*****
+
+####  sin.yugi  
+##### 18755#       发表于 2025-12-2 03:13
+
+指的最古老召唤式是你打趴这个使魔令他臣服契约，而不是靠什么圆盾召唤
+
+— from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
