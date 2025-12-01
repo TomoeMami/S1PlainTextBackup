@@ -4180,3 +4180,13 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 你在混淆视听什么。
 前者滨崎步说谎，后者国内主办方说谎，这是站队问题，我看你话里话外的意思是站后者喽，所以我才问你有什么证据证明你的观点，你发的图片证明不了。
 
+
+*****
+
+####  yytreal  
+##### 409#       发表于 2025-12-1 10:36
+
+ 本帖最后由 yytreal 于 2025-12-1 10:37 编辑 
+
+哎，说来说去还是二次元软柿子好捏，楼里就不少人逮着机会踩头，我的评价是，在下架军-国-主-义女拳头子上野千鹤子的书之前，看也不看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -37,3 +37,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">蝙蝠下一集应该会进化吧，本来就拖拖拉拉的，再搞寸止就要不想看了…墨迹半天图啥呢
 
+
+*****
+
+####  失落之翼  
+##### 304#       发表于 2025-12-1 10:37
+
+这设定没问题吗？香球这样的地方保全做的这么差的么
+
