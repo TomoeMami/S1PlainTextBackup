@@ -4490,3 +4490,11 @@ ayasa啥时候明确支持一中了</blockquote>
 
 茶味渐浓<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十壹  
+##### 438#       发表于 2025-12-1 15:22
+
+看有人发图说广州12月演出正常进行，是真是假
+
