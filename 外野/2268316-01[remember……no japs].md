@@ -4064,3 +4064,29 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 你也别问为什么，就像宗教仪式一样没有为什么，这就是为什么日本能和邪教共存，为什么精日本质是一种邪教。
 
+
+*****
+
+####  Lilithy  
+##### 399#       发表于 2025-12-1 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68804878&amp;ptid=2268316" target="_blank">deadline 发表于 2025-11-30 23:23</a>
+这操作是真弱智，场内场外拉满宣传的心思谁看不出来啊
+局势能缓和倒还好，等后续局势升级了，最先被拉出来 ...</blockquote>
+"台湾是中国的"翻译成日语应该不用这么多字吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  cqc1021  
+##### 400#       发表于 2025-12-1 08:43
+
+ 本帖最后由 cqc1021 于 2025-12-1 08:44 编辑 
+
+草，你以为是一刀切，实际上是精准点艹。
+[日本歌手安良城红11月29号广州演唱会如期举行，现场气氛火爆。-哔哩哔哩](https://b23.tv/rTfX9To)<blockquote>BENI，本名安良城红（Arashiro Beni），1986年3月30日出生于日本冲绳县。</blockquote>明确支持一中的日本艺人可以开，琉球艺人可以开，那其他人为啥被取消，原因好难猜啊。
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
