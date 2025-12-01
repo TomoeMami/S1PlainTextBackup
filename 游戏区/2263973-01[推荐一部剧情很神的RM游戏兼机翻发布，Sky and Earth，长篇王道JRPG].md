@@ -1966,3 +1966,11 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到7章要去北方了，剧情说是传统王道，但偶尔有怪味，某几个反派或团体洗白感觉怪怪的，战斗确实无聊，但还是能玩下去。
 
+
+*****
+
+####  星夜月  
+##### 170#       发表于 2025-12-1 20:28
+
+终于通关了，黑世大陆上的那个boss是个坑吗？最后也没说，估计也和地图上那些130级左右的秘境一样是人类灭亡因子的背景设定吧？玩到最后没想到那么长，尤其是第8章之后
+

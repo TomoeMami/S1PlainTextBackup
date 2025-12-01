@@ -1622,3 +1622,20 @@ http://www.chuapp.com/article/288086.html</blockquote>
 
 一天过去订阅涨了1.2w
 
+
+*****
+
+####  poipanchao  
+##### 167#       发表于 2025-12-1 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810049&amp;ptid=1914439" target="_blank">哈曼的YY 发表于 2025-12-1 20:04</a>
+
+铃原露露的录像突然全部变成公开的 毕业直播反而被隐藏了 彩虹在探风口炒作是吧
+
+我看了下被推送给关注者的 ...</blockquote>
+我记得巨像那个是露了ps的用户名来着？msm
+
+其实从结果上看是以前非公开的变公开，公开的变非公开，还挺像系统bug导致的状态调转的
+
+唯一的问题就是宣布毕业的那次歌回也非公开了，跟这个规则不符
+
