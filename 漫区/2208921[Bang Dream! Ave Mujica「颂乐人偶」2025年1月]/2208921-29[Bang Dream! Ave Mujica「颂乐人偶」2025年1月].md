@@ -251,3 +251,34 @@ ROCK IN JAPAN特番 DAY4
 现场一共唱了6首</blockquote>
        [https://www.bilibili.com/video/BV1CZUfBtEWF](https://www.bilibili.com/video/BV1CZUfBtEWF)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41503#       发表于 2025-12-2 00:15
+
+       <strong>【熟肉】三角初华&amp;祐天寺若麦 新干线联动车内限定语音</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202512/02/001549k5ez5j25ex1dj2eq.jpg" referrerpolicy="no-referrer">
+
+<strong>112ecff941d4865767f96661ad8dc65196da8eae.jpg</strong> (50.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 00:15 上传
+
+JR東海「推し旅」x BangDream10th 特别联动
+
+2025.6~2026.3期间，新干线车内进入网页即可收听车内限定语音，语音每月轮换。
+
+12月的车内语音为Ave Mujica的三角初华和祐天寺若麦。
+
+除新干线车内限定语音，车内限定周边之外还有Live会场限定语音可收听，走过路过不要错过。
+
+源、听、轴、翻：本人 
+
+使用Claude-sonnet-4.5和Gemini-3.0-Pro辅助打轴和润色
+
+仅供学习</blockquote>
+       
+
