@@ -483,3 +483,54 @@
 打开bbc然后开始挂抽友情，狗粮3星芙芙3星从者4星从者全卖</blockquote>
 热知识：从者不会自动变卖<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  棍机凹升龙  
+##### 18737#       发表于 2025-12-1 19:32
+
+有一种拉一半硬夹断的感觉
+
+—— 来自 samsung SM-F9460, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  岸浪白野  
+##### 18738#       发表于 2025-12-1 19:38
+
+不得不说，我215的说人王比主人更像所罗门的语音时隔8年终于等到这个时候了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/01/193711cihesb1354o4v3ze.png" referrerpolicy="no-referrer">
+
+<strong>2J3X0W)YF3O0761F[)}6M[4.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-12-1 19:37 上传
+
+*****
+
+####  khxooo  
+##### 18739#       发表于 2025-12-1 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809913&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 19:38</a>
+不得不说，我215的说人王比主人更像所罗门的语音时隔8年终于等到这个时候了
+
+ ...</blockquote>
+的确，这句语音该放出来了
+
+*****
+
+####  岸浪白野  
+##### 18740#       发表于 2025-12-1 19:42
+
+我们这个赠送从者啊不但没有情人节巧克力，还没有再临，就算不过终章序过终章也会送
+
+<img src="https://img.stage1st.com/forum/202512/01/194153j989deujydnl9cly.png" referrerpolicy="no-referrer">
+
+<strong>H_SKMCJF(BEV2(@GUYG0`YV.png</strong> (264.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-1 19:41 上传
+
