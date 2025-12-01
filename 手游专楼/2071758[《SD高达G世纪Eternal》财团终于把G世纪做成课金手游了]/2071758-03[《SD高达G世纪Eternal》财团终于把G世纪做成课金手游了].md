@@ -2287,3 +2287,11 @@ PVP，永恒， ...</blockquote>
 
 哈萨维都干大事了，联邦就别那么小气了，仓库里那些Z高达家族，MK123456啥的，灵格斯一系，什么超级猎犬，超级巴扎姆，写个设定的事情
 
+
+*****
+
+####  ドロロ  
+##### 3173#       发表于 2025-12-1 23:55
+
+每次都是四五十抽屁毛没有<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
