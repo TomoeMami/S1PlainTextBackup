@@ -4156,3 +4156,14 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">毕竟鬼子明确在ZF工作报告提就是要输入文化培养精日，在各国ZF施政时有利鬼国，那就别怪你文娱被打击
 
+
+*****
+
+####  Victorino  
+##### 407#       发表于 2025-12-1 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68804837&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-30 23:12</a>
+
+这图你怎么确定不是彩排拍的？你就确实？</blockquote>
+建议你点击「只看该作者」，我明确表达过「没有观众的演出本质上就可以被说是彩排」
+
