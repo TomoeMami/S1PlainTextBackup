@@ -2198,3 +2198,26 @@ zero里就有，二十几年了
 
 后面会更进去的，这柯西三合一还含一台SSR就挺难崩的，以后的最后决战形态说不定还是这台三合一的继续往后开发
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 3164#       发表于 2025-12-1 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68795990&amp;ptid=2071758" target="_blank">plok201 发表于 2025-11-28 22:26</a>
+
+没办法吧，支援不好卖，上debuff不一定比SSR和常驻好，而且真的打不出伤害，射程现在也没优势
+
+PVP，永恒， ...</blockquote>
+绿独不是挺好的么
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 3165#       发表于 2025-12-1 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803230&amp;ptid=2071758" target="_blank">captoon 发表于 2025-11-30 16:42</a>
+
+日本地区登顶了</blockquote>
+吧电影第二部广告塞活动里也是创造游戏历史了
+
