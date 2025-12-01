@@ -204,3 +204,125 @@
 
 怎么还在废话 算了等总结<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  char0311131  
+##### 18705#       发表于 2025-12-1 18:38
+
+无限池是吧
+
+*****
+
+####  angelooo  
+##### 18706#       发表于 2025-12-1 18:39
+
+这个魔芒石啥玩意，无限池？
+
+*****
+
+####  alucardcz  
+##### 18707#       发表于 2025-12-1 18:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毫无意外 所罗门
+
+*****
+
+####  char0311131  
+##### 18708#       发表于 2025-12-1 18:43
+
+伪典所罗门
+
+*****
+
+####  angelooo  
+##### 18709#       发表于 2025-12-1 18:43
+
+这正脸太拉了艹
+
+*****
+
+####  Jamaisvu  
+##### 18710#       发表于 2025-12-1 18:43
+
+<img src="https://img.stage1st.com/forum/202512/01/184324s49nk3794igay9u8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251201_184316.jpg</strong> (285.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-1 18:43 上传
+
+冠位术，伪典所罗门。
+
+十二月日程安排：
+
+<img src="https://img.stage1st.com/forum/202512/01/184424azll94uwlrlu49lr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251201_184404.jpg</strong> (257.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-1 18:44 上传
+
+*****
+
+####  alucardcz  
+##### 18711#       发表于 2025-12-1 18:45
+
+什么 没新从者卡池？ 这是要1月1号才有了？
+
+*****
+
+####  khxooo  
+##### 18712#       发表于 2025-12-1 18:45
+
+直接送？
+
+*****
+
+####  alucardcz  
+##### 18713#       发表于 2025-12-1 18:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">什么 难道盖总要送？
+
+*****
+
+####  angelooo  
+##### 18714#       发表于 2025-12-1 18:46
+
+还有的送从者？
+
+*****
+
+####  Jamaisvu  
+##### 18715#       发表于 2025-12-1 18:46
+
+该不会铃村健一CV的和杉田智和CV的，一个抽一个送吧...
+
+*****
+
+####  zechins  
+##### 18716#       发表于 2025-12-1 18:46
+
+直接送所罗门？
+
+*****
+
+####  angelooo  
+##### 18717#       发表于 2025-12-1 18:47
+
+你们想多了，万一送的是学弟呢
+
+*****
+
+####  exiaexa  
+##### 18718#       发表于 2025-12-1 18:47
+
+可以可以，这把情怀得可以
+
+这玩意儿放出来妥妥的登顶一周的东西，居然硬是送了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
