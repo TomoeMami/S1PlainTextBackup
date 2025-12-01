@@ -266,3 +266,16 @@ p25 今千秋
 本集最核心的问题是为什么路人男偶像的（个人回）资源比本应为主角的五人组各个人回要猛？而且与拓海、翼 ...</blockquote>
 矛盾集中爆发罢了，没二段，没live，剧中歌少，主线缺位，然后男人哐哐哐给资源，生硬洗白，最主要的是，写的菜，生硬
 
+
+*****
+
+####  Parahure  
+##### 1429#       发表于 2025-12-1 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68801659&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-11-30 09:55</a>
+顺便说一下 之前明年有丁真情报说
+是3女+1男</blockquote>
+丁真情报那个爆料的主题也不是侦探啊，不过按照近几年的尿性，男的是十之八九有，所以那个丁真爆料等于说废话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
