@@ -4470,3 +4470,15 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 日本歌手安良城红11月29号广州演唱会如期举行，现场气氛火爆。-哔 ...</blockquote>
 ayasa啥时候明确支持一中了
 
+
+*****
+
+####  cqc1021  
+##### 436#       发表于 2025-12-1 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68808154&amp;ptid=2268316" target="_blank">harry3 发表于 2025-12-1 14:40</a>
+ayasa啥时候明确支持一中了</blockquote>
+说的是水桥舞啦
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
