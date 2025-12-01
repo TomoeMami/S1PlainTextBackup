@@ -726,3 +726,20 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  检索者  
+##### 267#         楼主| 发表于 2025-12-1 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806724&amp;ptid=1812121" target="_blank">Tissuesea 发表于 2025-12-1 11:02</a>
+
+我有个比较弱智的问题。
+
+其实前两代都玩过，当时都是骑士开局。
+
+重新玩1代时听说法师开局爽就法师开了，结 ...</blockquote>
+答案是选骑士开，拿到魂之矢连射和内在潜力之后再去多萝西那边毛一根魔杖转法师
+
+一代法师虽然强，但也需要拿到对应的技能才能发力，前期大家基本都只能玩平A的时候还是骑士厉害
+
