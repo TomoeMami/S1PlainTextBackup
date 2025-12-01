@@ -765,3 +765,13 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 
 这代侵犯没有cg吗，防火女和第一个小黑屋的我选侵犯也就屏幕一黑完事，是我姿势不对？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  notromeo  
+##### 270#       发表于 2025-12-2 07:08
+
+只玩二代行不行？一二代有关联吗
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
