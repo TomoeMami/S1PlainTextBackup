@@ -2245,3 +2245,13 @@ PVP，永恒， ...</blockquote>
 
 120抽3艘船  豪恩泽+2铁血船 还歪了个脉冲<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3169#       发表于 2025-12-1 20:57
+
+代便已经在想办法了
+
+第一部塞了个加普兰，第二部再弄点，第三部争取整个大的
+

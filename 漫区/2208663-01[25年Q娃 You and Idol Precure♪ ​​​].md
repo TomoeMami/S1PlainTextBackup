@@ -301,3 +301,13 @@ p25 今千秋
 
 —— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 1432#       发表于 2025-12-1 20:58
+
+去年剧情高举低放但人和动物的关系勉强还能写个合格分，还有小麦不像粉主，不过好歹还有猫组撑场。
+
+今年除了开场两话还有心的母亲节回，其它真就带货就带货了，拿着偶像题材拍不出偶像的味道，除了年上人气偶像私会初中生差点被文春炮这点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

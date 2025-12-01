@@ -1639,3 +1639,18 @@ http://www.chuapp.com/article/288086.html</blockquote>
 
 唯一的问题就是宣布毕业的那次歌回也非公开了，跟这个规则不符
 
+
+*****
+
+####  哈曼的YY  
+##### 168#       发表于 2025-12-1 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810174&amp;ptid=1914439" target="_blank">poipanchao 发表于 2025-12-1 20:27</a>
+
+我记得巨像那个是露了ps的用户名来着？msm
+
+其实从结果上看是以前非公开的变公开，公开的变非公开，还挺像 ...</blockquote>
+有人总结是把有关毕业和露不该露东西的隐藏了 其他的公开
+
+加上优华姐最近摸了2个月说去做不能透露的事情 自己频道以后也只是缓慢更点日常 搞得残机们很激动都觉得有复活的可能
+
