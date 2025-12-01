@@ -2229,3 +2229,19 @@ PVP，永恒， ...</blockquote>
 
 就小说来说闪哈机体已经没新东西了，除非把所谓的全装柯西也算进去（插个题外话，说是全装我觉得也没多全装，别人的全装是把能装的东西全装上，手脚都塞满，柯西就多了两导弹荚舱）
 
+
+*****
+
+####  希望之花  
+##### 3167#       发表于 2025-12-1 20:07
+
+又登顶送了3000钻？求求你们别充了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">再充单机版真没了
+
+
+*****
+
+####  vincenttc  
+##### 3168#       发表于 2025-12-1 20:10
+
+120抽3艘船  豪恩泽+2铁血船 还歪了个脉冲<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

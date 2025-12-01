@@ -534,3 +534,46 @@
 
 2025-12-1 19:41 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 18741#       发表于 2025-12-1 19:48
+
+<blockquote>岸浪白野 发表于 2025-12-1 19:42
+我们这个赠送从者啊不但没有情人节巧克力，还没有再临，就算不过终章序过终章也会送
+
+ ...</blockquote>
+有种说法是咕哒过了终章会有个英灵形态留在泛人类史之外英灵座之上，这一不再临而不过情人节，摆明了没有互动，该不会真送咕哒吧...
+
+*****
+
+####  yangun22  
+##### 18742#       发表于 2025-12-1 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809938&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 19:42</a>
+
+我们这个赠送从者啊不但没有情人节巧克力，还没有再临，就算不过终章序过终章也会送
+
+ ...</blockquote>
+不能用特别再临而已，送的活动从者本来就不能用
+
+*****
+
+####  jackyhuang  
+##### 18743#       发表于 2025-12-1 20:03
+
+说不定终章和老所长一换一了，所以不用想情人节剧情了
+机战里最后几话加入的强力人物经常是这样的（
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18744#       发表于 2025-12-1 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809998&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-12-1 19:53</a>
+不能用特别再临而已，送的活动从者本来就不能用</blockquote>
+知道这意思啊，一个号一次的特别再临出来的时候就已经写着有专用素材的不适用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
