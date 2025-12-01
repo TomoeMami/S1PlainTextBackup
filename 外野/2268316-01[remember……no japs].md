@@ -4457,3 +4457,16 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼玩意们，叫的越多禁的越多，你尽管狗叫，看看是不是讨厌你们的人更多了，嘻嘻
 
+
+*****
+
+####  harry3  
+##### 435#       发表于 2025-12-1 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68805855&amp;ptid=2268316" target="_blank">cqc1021 发表于 2025-12-1 08:43</a>
+
+草，你以为是一刀切，实际上是精准点艹。
+
+日本歌手安良城红11月29号广州演唱会如期举行，现场气氛火爆。-哔 ...</blockquote>
+ayasa啥时候明确支持一中了
+
