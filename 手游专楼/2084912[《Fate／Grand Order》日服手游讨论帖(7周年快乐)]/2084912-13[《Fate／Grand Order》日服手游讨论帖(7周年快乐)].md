@@ -155,3 +155,52 @@
 艾蕾就是被迫害的女王</blockquote>
 但是原皮待遇好已经3户口加成了，是兽蕾变成善属性现在混沌属性加成礼装都不带她玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 18700#       发表于 2025-12-1 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809281&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 17:29</a>
+
+但是原皮待遇好已经3户口加成了，是兽蕾变成善属性现在混沌属性加成礼装都不带她玩
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等明年兽蕾超绝强化
+
+*****
+
+####  Jamaisvu  
+##### 18701#       发表于 2025-12-1 17:49
+
+<blockquote>qixinno2 发表于 2025-12-1 17:33
+坐等明年兽蕾超绝强化</blockquote>
+兽尼禄宝具对七骑士从者特攻，兽所长技能对七骑士或extra职介特攻（不限定从者）。
+
+感觉可以给艾蕾开宝具本，加个根据OC提升效果的extra职介从者特攻。
+
+更进一步的话，也可以是七骑士从者特攻，那样泛用性可就太高了。
+
+*****
+
+####  壳壳牛  
+##### 18702#       发表于 2025-12-1 18:09
+
+新优惠一单多三个石头...还是无偿石...
+
+笑了
+
+*****
+
+####  khxooo  
+##### 18703#       发表于 2025-12-1 18:25
+
+多给几个有偿石算他努力过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18704#       发表于 2025-12-1 18:27
+
+怎么还在废话 算了等总结<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
