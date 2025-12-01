@@ -623,3 +623,43 @@
 就是送老盖吧，剧情都说了不是用迦勒底的召唤方式（抽卡），而是要用最古老的方式契约，说白了就是活动从者 ...</blockquote>
 不是迦勒底式的契约，感觉活动从者并没有脱离这个范畴，所以送用牢盖替身战斗的咕哒还真不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18750#       发表于 2025-12-1 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810401&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-12-1 21:14</a>
+不是迦勒底式的契约，感觉活动从者并没有脱离这个范畴，所以送用牢盖替身战斗的咕哒还真不是不可能 ...</blockquote>
+活动从者不都是活动完结后直接肉身到迦勒底的吗？都是不需要迦勒底召唤式招来的。
+
+*****
+
+####  DARKGRAY  
+##### 18751#       发表于 2025-12-1 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810422&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-1 21:20</a>
+
+活动从者不都是活动完结后直接肉身到迦勒底的吗？都是不需要迦勒底召唤式招来的。 ...</blockquote>
+活动从者也不是自力存在的活人啊，还是要从剧情的临时契约转为正式契约的，那就依然是迦勒底式的契约<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 18752#       发表于 2025-12-1 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810397&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-1 21:13</a>
+
+太欧了 羡慕！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新正常点
+
+*****
+
+####  alucardcz  
+##### 18753#       发表于 2025-12-1 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810475&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-12-1 21:39</a>
+
+萌新正常点</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧才有卡能用！没毛病（
+

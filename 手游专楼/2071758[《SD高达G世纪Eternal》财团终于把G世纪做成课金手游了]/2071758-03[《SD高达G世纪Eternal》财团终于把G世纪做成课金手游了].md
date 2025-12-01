@@ -2255,3 +2255,14 @@ PVP，永恒， ...</blockquote>
 
 第一部塞了个加普兰，第二部再弄点，第三部争取整个大的
 
+
+*****
+
+####  AminGly  
+##### 3170#       发表于 2025-12-1 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810066&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-12-1 20:07</a>
+
+又登顶送了3000钻？求求你们别充了再充单机版真没了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">就开服几个月的流水，早就吧历代拉起来a了
+
