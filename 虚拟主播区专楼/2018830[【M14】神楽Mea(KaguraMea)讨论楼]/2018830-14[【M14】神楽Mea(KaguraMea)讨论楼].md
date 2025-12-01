@@ -27234,3 +27234,20 @@ Twitch 上神乐めあ那套日文 绝对不能学来在现实中用。
 
 刚没注意看居然没教她对空？还是换个人来教吧，这稀里糊涂被暴打一个小时换谁也要红温
 
+
+*****
+
+####  TiHaru  
+##### 19937#       发表于 2025-12-2 01:04
+
+在next训练赛
+
+*****
+
+####  sino__unnko3  
+##### 19938#       发表于 2025-12-2 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810051&amp;ptid=2018830" target="_blank">术士q 发表于 2025-12-1 20:05</a>
+怎么到哪都有米奇这sb玩意啊</blockquote>
+家人话题和暴言是什么，今天没看
+
