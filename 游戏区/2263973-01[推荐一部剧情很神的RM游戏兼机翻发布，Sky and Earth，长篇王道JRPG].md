@@ -1933,3 +1933,16 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 如果确实需要存档的话可以用这个主线通 ...</blockquote>
 谢谢大佬分享
 
+
+*****
+
+####  83913536  
+##### 167#       发表于 2025-12-1 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68779145&amp;ptid=2263973" target="_blank">Booorunestud 发表于 2025-11-26 00:20</a>
+
+102楼我发过一个能直接看后日谈的全成就存档
+
+不过这游戏全任务卡得没那么死，我是在还有三四个支线任务没 ...</blockquote>
+确实是，我昨天清完除了最后两个任务古神和封闭就跳成就了，对支线列表漏了几个限时任务
+
