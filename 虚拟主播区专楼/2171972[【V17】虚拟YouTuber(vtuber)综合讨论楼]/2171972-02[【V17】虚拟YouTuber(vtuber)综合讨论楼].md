@@ -71,3 +71,18 @@
 
 enkr如果同意中之人同时进行活动的话感觉美大生还有复活的可能性，不过说实话感觉事到如今也没有特意回来活动的必要……
 
+
+*****
+
+####  cckuku  
+##### 1596#       发表于 2025-12-1 13:45
+
+还是期待看到梦月女士复活的，毕竟红色系已经死了好几个人了，世怜女的小红死了，hapi同期的梦愈也失踪了，幸好还有阿望和蓓丽酱补充红色能量<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 1597#       发表于 2025-12-1 13:48
+
+何意味，倾向于enkr发神经瞎操作了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
