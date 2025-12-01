@@ -4305,3 +4305,30 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 谁在乎呢？几头日本猪哼唧几声而已戏也太多了吧。到时候反正都是要杀光的。
 
+
+*****
+
+####  jackyhuang  
+##### 420#       发表于 2025-12-1 11:35
+
+上微博搜一下第一条就是老胡这狗在叫<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zaozaoxx  
+##### 421#       发表于 2025-12-1 11:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">滨崎步这嗓子早不行了的现场还能来中国骗情怀钱也就罢了 还能这么搞宣传，还把令和当平成啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  BAKA林  
+##### 422#       发表于 2025-12-1 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">他在国内也捞不到钱啊，本来是计划两天两场的，结果票卖得不好就两场合并一场了。然后才是取消的事情
+

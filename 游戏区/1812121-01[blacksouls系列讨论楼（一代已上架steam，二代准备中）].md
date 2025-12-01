@@ -743,3 +743,17 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 
 一代法师虽然强，但也需要拿到对应的技能才能发力，前期大家基本都只能玩平A的时候还是骑士厉害
 
+
+*****
+
+####  红魔馆的糖  
+##### 268#       发表于 2025-12-1 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68806724&amp;ptid=1812121" target="_blank">Tissuesea 发表于 2025-12-1 11:02</a>
+我有个比较弱智的问题。
+其实前两代都玩过，当时都是骑士开局。
+重新玩1代时听说法师开局爽就法师开了，结 ...</blockquote>
+一代法师厉害是后期，一般是前期飞龙剑开局转大剑之类的过度最后转法爷
+
+倒是跟魂1差不多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
