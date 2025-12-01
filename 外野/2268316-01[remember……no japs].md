@@ -4434,3 +4434,18 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 真实的你沪精日——砸锅卖铁卖 ...</blockquote>
 瞧不起谁呢，沪爷去日本不和去趟外地一样简单<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久島鴎  
+##### 432#       发表于 2025-12-1 13:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">沪爷去日本那叫农家乐
+
+*****
+
+####  manyin1  
+##### 433#       发表于 2025-12-1 13:07
+
+最好的方法就是不宣传冷处理日本文化，ACG党继续转为地下党，既不花钱又不会宣传日本文化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
