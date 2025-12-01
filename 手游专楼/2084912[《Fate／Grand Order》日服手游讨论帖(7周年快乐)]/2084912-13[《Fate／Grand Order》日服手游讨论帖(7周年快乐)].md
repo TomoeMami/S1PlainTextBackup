@@ -577,3 +577,49 @@
 不能用特别再临而已，送的活动从者本来就不能用</blockquote>
 知道这意思啊，一个号一次的特别再临出来的时候就已经写着有专用素材的不适用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 18745#       发表于 2025-12-1 20:14
+
+就是送老盖吧，剧情都说了不是用迦勒底的召唤方式（抽卡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），而是要用最古老的方式契约，说白了就是活动从者一样直接和咕哒契约了。
+
+*****
+
+####  森兰丸  
+##### 18746#       发表于 2025-12-1 20:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">完球才发现梦火只剩13个了....几个月前记得还有100多个的啊
+
+怎么用掉这么多的是真的一点印象也没有
+
+*****
+
+####  qixinno2  
+##### 18747#       发表于 2025-12-1 20:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有那么多啊 我只有4个梦火了
+
+*****
+
+####  alucardcz  
+##### 18748#       发表于 2025-12-1 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810135&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-12-1 20:18</a>
+
+完球才发现梦火只剩13个了....几个月前记得还有100多个的啊
+
+怎么用掉这么多的是真的一点印象也没有 ...</blockquote>
+太欧了 羡慕！
+
+*****
+
+####  DARKGRAY  
+##### 18749#       发表于 2025-12-1 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810106&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-1 20:14</a>
+
+就是送老盖吧，剧情都说了不是用迦勒底的召唤方式（抽卡），而是要用最古老的方式契约，说白了就是活动从者 ...</blockquote>
+不是迦勒底式的契约，感觉活动从者并没有脱离这个范畴，所以送用牢盖替身战斗的咕哒还真不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
