@@ -311,3 +311,30 @@ p25 今千秋
 
 今年除了开场两话还有心的母亲节回，其它真就带货就带货了，拿着偶像题材拍不出偶像的味道，除了年上人气偶像私会初中生差点被文春炮这点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  199april  
+##### 1433#       发表于 2025-12-1 21:48
+
+ 本帖最后由 199april 于 2025-12-1 21:50 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我劝你东大妈就不要藏着掖着了，快快弄个男q年番企划，框框爆集美大米
+
+反正幼女成女都是女，你说是不是啊？
+
+认真说句，今年真就和天q一个毛病，做着做着越来越离题，现在偶像这个设定真的还有必要吗？或者说她们有做过什么很偶活的事情吗？
+
+
+*****
+
+####  経緯  
+##### 1434#       发表于 2025-12-1 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810331&amp;ptid=2208663" target="_blank">starring 发表于 2025-12-1 20:58</a>
+
+去年剧情高举低放但人和动物的关系勉强还能写个合格分，还有小麦不像粉主，不过好歹还有猫组撑场。
+
+今年除 ...</blockquote>
+去年虽然包括单元回在内的收尾都是一坨，但我最起码能看出他们想表达什么东西，虽然也不能指望现在的Q娃棚能升华，今年写得完全不知道他们想干什么，完全就是例行公事糊弄
+
