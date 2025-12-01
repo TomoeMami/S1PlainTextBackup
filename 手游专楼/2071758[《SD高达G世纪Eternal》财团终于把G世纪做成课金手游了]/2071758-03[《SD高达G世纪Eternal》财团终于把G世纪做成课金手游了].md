@@ -2277,3 +2277,13 @@ PVP，永恒， ...</blockquote>
 就开服几个月的流水，早就吧历代拉起来a了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海牛卡池和sf卡池太夸张了，单机版g世纪一辈子都卖不出这个数
 
+
+*****
+
+####  plok201  
+##### 3172#       发表于 2025-12-1 23:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明大白鹅都爆掉了，按代孙风格，应该出台新大白鹅吧，柯西强化装备就别那么寒酸了，马格南和精神骨架拉满呗
+
+哈萨维都干大事了，联邦就别那么小气了，仓库里那些Z高达家族，MK123456啥的，灵格斯一系，什么超级猎犬，超级巴扎姆，写个设定的事情
+
