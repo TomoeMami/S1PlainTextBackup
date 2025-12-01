@@ -4679,3 +4679,14 @@ nga那贴看起来像rpg
 —— 来自 S1Fun ...</blockquote>
 但那个人是RPG惯犯啊
 
+
+*****
+
+####  我不是夏承凛  
+##### 455#       发表于 2025-12-1 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809630&amp;ptid=2268316" target="_blank">顾然 发表于 2025-12-1 18:39</a>
+
+—— 来自 鹅球 v3.5.99</blockquote>
+我说句有点逆向行驶的话，我怀疑干这脏活的老爷不知道世界上有个软件ins.....
+
