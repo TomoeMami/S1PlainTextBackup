@@ -4090,3 +4090,69 @@ https://www.bilibili.com/video/BV19DUd ...</blockquote>
 
 —— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  小妻水亚美  
+##### 401#       发表于 2025-12-1 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68803243&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-30 16:45</a>
+我只能说日本文化输出是真的牛逼，韩国根本比不了，在亚洲的影响力我觉得甚至超过美国，幸亏日本现在实体工 ...</blockquote>
+就和现在老黄一样啊，当初老黄那个事情爆出来之后，都没什么人敢出来反对。
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  马甲20250922  
+##### 402#       发表于 2025-12-1 08:49
+
+<blockquote>deadline 发表于 2025-11-30 23:23
+这操作是真弱智，场内场外拉满宣传的心思谁看不出来啊
+
+局势能缓和倒还好，等后续局势升级了，最先被拉出来 ...</blockquote>
+在⏰赚不到钱了，转头向🐌表忠心多捞一笔是一笔，这种思路也不是很难理解——**无情，戏子无义嘛。
+
+
+*****
+
+####  zmw_831110  
+##### 403#       发表于 2025-12-1 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68804837&amp;ptid=2268316" target="_blank">四氧化三铅 发表于 2025-11-30 23:12</a>
+
+这图你怎么确定不是彩排拍的？你就确实？</blockquote>
+不管是演还是彩排,其实都无所谓
+
+她来都来了
+
+录个视频,继续卖钱,肯定有一帮傻子冲着送钱呢
+
+反正以后也再也来不了了,赶紧结晶粉
+
+"都到日本来送钱给我啊,或者网上充值也行"
+
+*****
+
+####  tansapple  
+##### 404#       发表于 2025-12-1 08:54
+
+老二次元对滨崎步的印象都是这娘们当年最火的时候特别能装而且负面行为超级多，后来她搞坏了自己嗓子也是纯纯自己作的，现在怎么就成白莲花了，不都是她以前玩剩下的套路吗？只能互联网真的是没有记忆吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  木水风铃  
+##### 405#       发表于 2025-12-1 08:56
+
+开始还说授人以柄过度了啥的，到现在了，只能说早该管管了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wingofsilver  
+##### 406#       发表于 2025-12-1 08:56
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">毕竟鬼子明确在ZF工作报告提就是要输入文化培养精日，在各国ZF施政时有利鬼国，那就别怪你文娱被打击
+
