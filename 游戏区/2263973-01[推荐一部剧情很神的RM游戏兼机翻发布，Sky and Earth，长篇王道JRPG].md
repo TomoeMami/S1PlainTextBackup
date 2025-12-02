@@ -2003,3 +2003,14 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 打了个开头，等最终润色版更新吧<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 174#       发表于 2025-12-2 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813290&amp;ptid=2263973" target="_blank">wornixxoo 发表于 2025-12-2 14:28</a>
+
+打了个开头，等最终润色版更新吧</blockquote>
+好家伙，得慢慢等了，我目前进度75/999，每天平均只能干1小时，按现在的速度预测还得要几十周<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
