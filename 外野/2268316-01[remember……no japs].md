@@ -4690,3 +4690,22 @@ nga那贴看起来像rpg
 —— 来自 鹅球 v3.5.99</blockquote>
 我说句有点逆向行驶的话，我怀疑干这脏活的老爷不知道世界上有个软件ins.....
 
+
+*****
+
+####  湿太之丸  
+##### 456#       发表于 2025-12-2 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810241&amp;ptid=2268316" target="_blank">我不是夏承凛 发表于 2025-12-1 20:39</a>
+
+我说句有点逆向行驶的话，我怀疑干这脏活的老爷不知道世界上有个软件ins..... ...</blockquote>
+哥，你怎么搁那都是这句啊……
+
+*****
+
+####  Ferrari  
+##### 457#       发表于 2025-12-2 08:21
+
+看到一个韩国上古神兽安七炫见面会的官宣
+这是掐了日本就放韩国了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
