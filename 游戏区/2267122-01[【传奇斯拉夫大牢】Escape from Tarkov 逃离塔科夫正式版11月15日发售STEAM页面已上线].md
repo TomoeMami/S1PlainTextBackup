@@ -1518,3 +1518,30 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 
 国人在打PVE的洗脚结局，还有没钱结局触发条件未知。好结局现在支线有bug，不刷任务道具，如果真的想全结局还是要一开始无视其他任务，先把几个差结局都打过去，最后第四个档再打好结局。
 
+
+*****
+
+####  Ai_shuang  
+##### 134#       发表于 2025-12-2 15:57
+
+终于逃出塔科夫，但商人们被全灭，塔科夫遭受核弹——《逃离塔科夫》四结局之一“幸存者”结局动画
+
+M()~ZG7RO1LSOAN(VKWVN5I.jpg
+(246.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 15:57 上传
+
+<img src="https://img.stage1st.com/forum/202512/02/155724gywy5y39i9w3a5dw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Ai_shuang  
+##### 135#       发表于 2025-12-2 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813060&amp;ptid=2267122" target="_blank">我是快乐小马甲 发表于 2025-12-2 13:35</a>
+
+国人在打PVE的洗脚结局，还有没钱结局触发条件未知。好结局现在支线有bug，不刷任务道具，如果真的想全结局 ...</blockquote>
+LVNDMARK还在想办法整最佳结局,看他说要藏身处升满才行，现在刚开始搓太阳能，要72h
+
