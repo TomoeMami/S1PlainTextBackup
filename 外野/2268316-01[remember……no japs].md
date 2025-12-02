@@ -5033,3 +5033,15 @@ nga那贴看起来像rpg
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  仟音一心  
+##### 485#       发表于 2025-12-2 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68814779&amp;ptid=2268316" target="_blank">你说这个谁懂呀? 发表于 2025-12-2 18:33</a>
+我最爱的扣鹅小号环节，真的太开心了，
+
+出来溜溜最低贱的日本🐕@gawk</blockquote>
+而且是刚注册的，目测大号刚进去。
+
