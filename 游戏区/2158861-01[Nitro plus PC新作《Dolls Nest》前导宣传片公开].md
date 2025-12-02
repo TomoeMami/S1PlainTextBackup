@@ -76,3 +76,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">顺便有人讲讲这张写的啥吗
 
+
+*****
+
+####  oidoid  
+##### 229#       发表于 2025-12-2 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68814924&amp;ptid=2158861" target="_blank">madcow 发表于 2025-12-2 19:16</a>
+
+https://www.nitroplus.co.jp/secret/METAMETRIA/top
+
+二周目拿伪装权限那个隐藏房间被人发现角落有个箱子 ...</blockquote>
+解码出来是这样的 <blockquote>ゲームクリアおめでとうございます。
+
+全てのパーツを集めることができましたでぐ</blockquote>
+
