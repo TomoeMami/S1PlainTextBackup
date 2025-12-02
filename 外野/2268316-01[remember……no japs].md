@@ -4904,3 +4904,25 @@ nga那贴看起来像rpg
 这事看下来就是各种老二次元们真都没啥感觉，微博小红书这种新贰刺猿阵地已经滑到要亡了不过这些地方日 ...</blockquote>
 我来看看，你是不是罪魁祸首？
 
+
+*****
+
+####  牙狼GARO  
+##### 473#       发表于 2025-12-2 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809712&amp;ptid=2268316" target="_blank">HATENA 发表于 2025-12-1 18:54</a>
+
+早上还在说没寄下午就寄了</blockquote>
+喷了，枉我自称老歌迷（飞轮少年op入坑的），结果直到取消才知道
+
+虽然他们这几年的歌我都不太喜欢，感觉没那味儿了
+
+*****
+
+####  nightraven  
+##### 474#       发表于 2025-12-2 14:41
+
+00年代S1曾经还是重装机兵专题站吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
