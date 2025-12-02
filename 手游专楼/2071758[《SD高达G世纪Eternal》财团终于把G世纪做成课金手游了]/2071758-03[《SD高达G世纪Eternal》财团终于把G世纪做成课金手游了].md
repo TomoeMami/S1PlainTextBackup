@@ -2380,3 +2380,11 @@ PVP，永恒， ...</blockquote>
 问题是一想到二十年后有各路人马开始轮番整惊天狠活就很难绷得住啊，反联邦大 ...</blockquote>
 UC最大问题是几个大势力没一个像话的，要么压榨要么武疯子
 
+
+*****
+
+####  natlk  
+##### 3182#       发表于 2025-12-2 21:43
+
+佛了我说怎么最近登不进日服老是网络错误还要开全局模式才能进<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
