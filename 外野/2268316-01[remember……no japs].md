@@ -4950,3 +4950,11 @@ nga那贴看起来像rpg
 —— 来自 OnePlus PKR110, Android 16, 鹅球 v3.5.99 ...</blockquote>
 隐约记得那时候还有异度装甲的专区呢<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  落油Я  
+##### 477#       发表于 2025-12-2 15:55
+
+我记得前几年不是肥得像猪一样吗，听人说嗓子也不行了，没想到还能瘦得下来
+
