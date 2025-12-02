@@ -24,3 +24,14 @@
 
 矿工猛不猛，没啥用的话我就不刷了
 
+
+*****
+
+####  khxooo  
+##### 47544#       发表于 2025-12-2 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811760&amp;ptid=1712412" target="_blank">sandro 发表于 2025-12-2 09:50</a>
+
+矿工猛不猛，没啥用的话我就不刷了</blockquote>
+强度一般，以后基本查无此人。
+
