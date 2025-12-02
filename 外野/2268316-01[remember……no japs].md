@@ -4862,3 +4862,21 @@ nga那贴看起来像rpg
 古典乐但是日本人演奏</blockquote>
 演唱会有吗？见面会签售确实有，有拿旅游签证过来隐秘着办的，或者团体靠中国成员申请打擦边的，还有就是靠藤子渠道打关系的韩国lol选手，演唱会我真没印象有。
 
+
+*****
+
+####  阿库鲁艾特  
+##### 469#       发表于 2025-12-2 09:47
+
+在日本待了6年，但凡真懂日语和日本人的还能精日是纯SB
+
+*****
+
+####  呆滞男  
+##### 470#       发表于 2025-12-2 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811666&amp;ptid=2268316" target="_blank">hgnooweaj 发表于 2025-12-2 09:32</a>
+
+也就说10年时的s1可以在牢倭又是说什么台湾有事日本有事又是什么搞行为艺术要证明🎣岛属于日本又是各种民 ...</blockquote>
+你要知道那时候的s1本质就是游戏动漫论坛，生活中一切娱乐项目可都是小日子给的，说是网络最大精日大本营都不为过<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

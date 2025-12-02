@@ -692,3 +692,16 @@
 
 送咕哒的话岂不是要跟所有从者都有互动语音<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sanada  
+##### 18757#       发表于 2025-12-2 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809938&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 19:42</a>
+
+我们这个赠送从者啊不但没有情人节巧克力，还没有再临，就算不过终章序过终章也会送
+
+ ...</blockquote>
+不打终章序也可以打终章说明序根本没什么故事进展，那这个序的意义就真是为了让术冠装装逼是吧
+
