@@ -1491,3 +1491,14 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 
 更了港口，可以撤离了，要从海岸线
 
+
+*****
+
+####  银月术士329  
+##### 131#         楼主| 发表于 2025-12-2 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810419&amp;ptid=2267122" target="_blank">我是快乐小马甲 发表于 2025-12-1 21:19</a>
+更了港口，可以撤离了，要从海岸线</blockquote>
+有欧美主播逃离塔科夫成功了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过据尼基塔说是“第二差”的结局
+
