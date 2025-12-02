@@ -788,3 +788,20 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 —— 来自 vivo V2408A, Android 15, 鹅球 v3.5.99</blockquote>
 剧情是连着的，一般建议先玩一代
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 272#       发表于 2025-12-2 15:33
+
+机关枪这强度和其他武器是一个级别的吗
+
+*****
+
+####  红魔馆的糖  
+##### 273#       发表于 2025-12-2 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813675&amp;ptid=1812121" target="_blank">华发夜眼[CN] 发表于 2025-12-2 15:33</a>
+机关枪这强度和其他武器是一个级别的吗</blockquote>
+机关枪才哪到哪，后面还有更多变态武器<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
