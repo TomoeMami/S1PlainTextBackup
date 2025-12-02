@@ -2314,3 +2314,14 @@ PVP，永恒， ...</blockquote>
 又登顶送了3000钻？求求你们别充了再充单机版真没了</blockquote>
 大概率没了，前几个月营收把历代销量和本社其他手游销量吊起来抽，每次出新池几乎都能登顶，只要不作死那就是妥妥的摇钱树
 
+
+*****
+
+####  电脑死机  
+##### 3176#       发表于 2025-12-2 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810867&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-12-1 23:55</a>
+
+每次都是四五十抽屁毛没有</blockquote>
+试试哈罗大法，早上摸了一把，出来一只大白鹅
+

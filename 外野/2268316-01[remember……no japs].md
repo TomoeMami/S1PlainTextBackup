@@ -4754,3 +4754,62 @@ nga那贴看起来像rpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  喵喵叫的猫  
+##### 462#       发表于 2025-12-2 09:05
+
+手上那种
+
+国内乐团纯音乐但有日本嘉宾
+
+古典乐但是日本人演奏
+
+感觉有机会擦边的都取消完了 
+
+现在手上就剩一场初音了 看怎么说了
+
+话说限韩这么久了，今年年中讨论琳达琳达4k修复版会不会引进的时候还有人说主演韩国人够呛
+
+昨天跟一追韩星的朋友聊天，说这几年国内韩国人演唱会见面会签售啥的一直都有的啊
+
+*****
+
+####  RYURYUTA  
+##### 463#       发表于 2025-12-2 09:06
+
+ 本帖最后由 RYURYUTA 于 2025-12-2 09:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811344&amp;ptid=2268316" target="_blank">Ferrari 发表于 2025-12-2 08:21</a>
+看到一个韩国上古神兽安七炫见面会的官宣
+这是掐了日本就放韩国了吗</blockquote>
+不是，一直有棒子偷偷办见面会签售会。红书上随便搜了一下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/02/090648hplpyo9zf7kapvzo.jpg" referrerpolicy="no-referrer">
+
+<strong>F83FBDC3-4C5D-4327-9724-B76756F31FCB.jpg</strong> (744.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 09:06 上传
+
+<img src="https://img.stage1st.com/forum/202512/02/090648pn5vbfy7wy6y575p.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3328.PNG</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 09:06 上传
+
+<img src="https://img.stage1st.com/forum/202512/02/090652nmdsrswc383k3ccr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3327.PNG</strong> (861.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 09:06 上传
+
+不公开地址，公司拉着一群棒粉坐大巴去郊区或者外市的找个宾馆会议厅开那种<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不公开就是怕举报，这种一举报就没一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
