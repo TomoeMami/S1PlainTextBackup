@@ -775,3 +775,16 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  检索者  
+##### 271#         楼主| 发表于 2025-12-2 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811209&amp;ptid=1812121" target="_blank">notromeo 发表于 2025-12-2 07:08</a>
+
+只玩二代行不行？一二代有关联吗
+
+—— 来自 vivo V2408A, Android 15, 鹅球 v3.5.99</blockquote>
+剧情是连着的，一般建议先玩一代
+

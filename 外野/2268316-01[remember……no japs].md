@@ -4709,3 +4709,11 @@ nga那贴看起来像rpg
 看到一个韩国上古神兽安七炫见面会的官宣
 这是掐了日本就放韩国了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巨馍蘸酱  
+##### 458#       发表于 2025-12-2 08:36
+
+说实话现在还算好了，十几年前冻鳗类贴吧里，看点柜子冻鳗看成精日的不要太多
+
