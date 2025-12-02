@@ -1995,3 +1995,11 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 黑世大陆通关后才开放成能打的魔境，有相关剧情的</blockquote>
 谢谢 我再找找看
 
+
+*****
+
+####  wornixxoo  
+##### 173#       发表于 2025-12-2 14:28
+
+打了个开头，等最终润色版更新吧<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
