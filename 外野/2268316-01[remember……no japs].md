@@ -4998,3 +4998,38 @@ nga那贴看起来像rpg
 也就说10年时的s1可以在牢倭又是说什么台湾有事日本有事又是什么搞行为艺术要证明🎣岛属于日本又是各种民 ...</blockquote>
 新警察吧。外野还有中将和高达菊苣的时候S1的用户画像最好也是weeabo了
 
+
+*****
+
+####  佛剑分说  
+##### 482#       发表于 2025-12-2 20:07
+
+<img src="https://img.stage1st.com/forum/202512/02/200733de3cxyjnf3zra9eu.jpg" referrerpolicy="no-referrer">
+
+<strong>592372059_10162799332311378_1625802433722127536_n.jpg</strong> (212.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-2 20:07 上传
+
+
+*****
+
+####  JRPG  
+##### 483#       发表于 2025-12-2 20:13
+
+<blockquote>nightraven 发表于 2025-12-2 14:41
+00年代S1曾经还是重装机兵专题站吧
+
+—— 来自 OnePlus PKR110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+00年代不是徐老师后花园吗
+
+*****
+
+####  泥鳅  
+##### 484#       发表于 2025-12-2 20:16
+
+就记得滨崎步当年身材管理失败变肥婆，结果在日本开演唱会现场稀稀拉拉只有很少人捧场，日本媒体都在讨论她过气了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
