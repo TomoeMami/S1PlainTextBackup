@@ -705,3 +705,14 @@
  ...</blockquote>
 不打终章序也可以打终章说明序根本没什么故事进展，那这个序的意义就真是为了让术冠装装逼是吧
 
+
+*****
+
+####  DARKGRAY  
+##### 18758#       发表于 2025-12-2 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810971&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-2 00:39</a>
+
+我再看看翻译吧。</blockquote>
+牢盖的态度另一回事，我只是说不管召唤出来还是从特异点带回来的人全得走那一套手续而已，只有武藏明确不是，小安有可能不是，连杀生院这种剧情里没人知道怎么就在迦里的人都得走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
