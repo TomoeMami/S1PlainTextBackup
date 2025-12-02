@@ -359,3 +359,14 @@ p25 今千秋
 
 干脆直接说是带货Q娃算了，一点不偶像
 
+
+*****
+
+####  Parahure  
+##### 1437#       发表于 2025-12-2 13:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/42198be453d3c026e350e71202f17c11/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
