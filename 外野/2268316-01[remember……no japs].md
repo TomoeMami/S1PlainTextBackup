@@ -4937,3 +4937,16 @@ nga那贴看起来像rpg
 不是，一直有棒子偷偷办见面会签售会。红书上随便搜了一下</blockquote>
 这么神秘，怎么看起来像是KCIA组织的活动一样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  呆滞男  
+##### 476#       发表于 2025-12-2 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813373&amp;ptid=2268316" target="_blank">nightraven 发表于 2025-12-2 14:41</a>
+
+00年代S1曾经还是重装机兵专题站吧
+
+—— 来自 OnePlus PKR110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+隐约记得那时候还有异度装甲的专区呢<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
