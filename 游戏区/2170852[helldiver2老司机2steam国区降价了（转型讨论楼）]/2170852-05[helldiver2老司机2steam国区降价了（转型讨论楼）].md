@@ -29,3 +29,11 @@
 —— 来自 S1Fun</blockquote>
 这就是正常大小，150G的逆天体积是为了提高机械硬盘读取速度大量重复打包素材导致的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 7229#       发表于 2025-12-3 03:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">缩小成七分之一容量，这种史无前例的优化最佳运营是不是又能争取一下了。
+
