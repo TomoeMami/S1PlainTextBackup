@@ -4831,3 +4831,13 @@ nga那贴看起来像rpg
 
 说实话，作为一个从10年左右就来s1的老害，s1的舆论能变得如此不亲日，也确实没想到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hgnooweaj  
+##### 466#       发表于 2025-12-2 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811631&amp;ptid=2268316" target="_blank">呆滞男 发表于 2025-12-2 09:24</a>
+说实话，作为一个从10年左右就来s1的老害，s1的舆论能变得如此不亲日，也确实没想到 ...</blockquote>
+也就说10年时的s1可以在牢倭又是说什么台湾有事日本有事又是什么搞行为艺术要证明🎣岛属于日本又是各种民间百般造谣看不起中国人的时候，还可以亲日精日？以前S1这么不常见吗？
+

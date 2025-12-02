@@ -684,3 +684,11 @@
 
 — from nubia NX729J, Android 14, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  風卷豹  
+##### 18756#       发表于 2025-12-2 09:27
+
+送咕哒的话岂不是要跟所有从者都有互动语音<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
