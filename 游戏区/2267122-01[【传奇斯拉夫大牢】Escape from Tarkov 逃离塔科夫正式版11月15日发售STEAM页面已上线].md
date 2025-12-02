@@ -1502,3 +1502,11 @@ s1的没找到，但是有个隔壁泥潭的讨论群：769797514
 有欧美主播逃离塔科夫成功了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过据尼基塔说是“第二差”的结局
 
+
+*****
+
+####  Emcylla  
+##### 132#       发表于 2025-12-2 10:55
+
+核弹结局：but at what cost? <img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
