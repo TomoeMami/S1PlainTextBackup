@@ -4813,3 +4813,21 @@ nga那贴看起来像rpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ferrari  
+##### 464#       发表于 2025-12-2 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811536&amp;ptid=2268316" target="_blank">RYURYUTA 发表于 2025-12-2 09:06</a>
+不是，一直有棒子偷偷办见面会签售会。红书上随便搜了一下</blockquote>
+我还幻想HOT能回来国内来一个<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呆滞男  
+##### 465#       发表于 2025-12-2 09:24
+
+说实话，作为一个从10年左右就来s1的老害，s1的舆论能变得如此不亲日，也确实没想到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
