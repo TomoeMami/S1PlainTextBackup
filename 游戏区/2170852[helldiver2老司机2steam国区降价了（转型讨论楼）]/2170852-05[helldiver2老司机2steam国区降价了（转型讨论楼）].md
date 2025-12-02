@@ -37,3 +37,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">缩小成七分之一容量，这种史无前例的优化最佳运营是不是又能争取一下了。
 
+
+*****
+
+####  Koyishi  
+##### 7230#       发表于 2025-12-3 07:20
+
+贱头的程序员到底有多屎，就这22g的客户端用机械硬盘读也最多多几秒<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
