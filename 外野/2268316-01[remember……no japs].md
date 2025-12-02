@@ -4926,3 +4926,14 @@ nga那贴看起来像rpg
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mandown  
+##### 475#       发表于 2025-12-2 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811536&amp;ptid=2268316" target="_blank">RYURYUTA 发表于 2025-12-2 09:06</a>
+
+不是，一直有棒子偷偷办见面会签售会。红书上随便搜了一下</blockquote>
+这么神秘，怎么看起来像是KCIA组织的活动一样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
