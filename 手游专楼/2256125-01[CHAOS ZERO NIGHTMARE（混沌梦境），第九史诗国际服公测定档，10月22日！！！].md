@@ -7128,3 +7128,11 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 吃保底才发现攒了这么多水晶了，果然半死不活福利才高<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 630#       发表于 2025-12-3 18:36
+
+怎么感觉新角色一眼不很强的样子啊……
+
