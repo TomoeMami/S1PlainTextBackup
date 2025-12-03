@@ -61,3 +61,13 @@ pc平台移植pc平台
 
 超级压缩影响打mod吗
 
+
+*****
+
+####  xinfengj  
+##### 7233#       发表于 2025-12-3 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68817160&amp;ptid=2170852" target="_blank">madcow 发表于 2025-12-3 09:56</a>
+超级压缩影响打mod吗</blockquote>
+影响一部分的模型和声音
+
