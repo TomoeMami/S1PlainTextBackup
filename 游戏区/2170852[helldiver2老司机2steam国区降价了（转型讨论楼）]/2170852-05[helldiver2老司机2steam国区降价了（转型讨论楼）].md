@@ -220,3 +220,70 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切 ...</blockquote>
 笑死，每次更新都有新活看，修复不知道啥时候了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 7249#       发表于 2025-12-3 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820464&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-12-3 19:07</a>
+话说我之前删干净了，下回来精简版，怎么我的语音mod还在啊
+玩的时候都没注意，突然意识到任务播报的人怎么 ...</blockquote>
+说明没删干净<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madcow  
+##### 7250#       发表于 2025-12-3 21:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是我的蒙面草人版纪元提示音和指令输入效果音都没了
+
+*****
+
+####  FLZB  
+##### 7251#       发表于 2025-12-3 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820355&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-12-3 18:50</a>
+
+新的不拉屎补包系列，榴弹枪给2、3号位补弹夹
+
+https://www.bilibili.com/video/BV19BSYBuEMU
+
+ ...</blockquote>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切换弹种会把装填动作卡在一个无法打断的状态，读秒结束动作完成后直接补满当前装备的武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 7252#       发表于 2025-12-3 22:44
+
+ 本帖最后由 ParadiseMartyr 于 2025-12-3 22:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821314&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-12-3 21:59</a>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的，不然这个主武太为用而用了，下挂榴弹多个两三发都没现在这么尴尬
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说现在实弹步枪主武就是尴尬，一个弹夹就那点子弹，杀敌效率也低。清杂清不明白，反重反不明白，加了仨榴弹只能说拆巢也是拆不明白。
+实弹步枪武器根本没有存在的意义<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一个主武器变成了 当三号位和二号位通牒用不了的时候的、防身用的副武器定位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Firvox  
+##### 7253#       发表于 2025-12-3 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821314&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-12-3 21:59</a>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切 ...</blockquote>
+笑死，每次更新都有新活看，修复不知道啥时候了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 7254#       发表于 2025-12-4 05:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821489&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-12-3 22:44</a>
+
+挺好的，不然这个主武太为用而用了，下挂榴弹多个两三发都没现在这么尴尬
+
+不如说现在实弹步枪主武就是尴 ...</blockquote>
+本来火AK还算能用，又给砍了一刀火耐性，左右脑互搏这块<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
