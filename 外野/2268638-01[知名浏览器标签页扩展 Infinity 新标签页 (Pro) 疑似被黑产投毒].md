@@ -508,3 +508,11 @@ https://www.koi.ai/blog/4-million-browsers-infected-inside-shadypanda- ...</bloc
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  秦南心  
+##### 58#       发表于 2025-12-3 14:30
+
+我也在用Infinity，但不是pro，pro有这么多权限吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
