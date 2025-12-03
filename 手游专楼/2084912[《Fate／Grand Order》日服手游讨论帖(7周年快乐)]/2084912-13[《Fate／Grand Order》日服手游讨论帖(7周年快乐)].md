@@ -1003,3 +1003,56 @@
 丑拒 新年出呆毛就诅咒坛友</blockquote>
 他出个灵衣我勉强接受了大不了不用，要抽的只能尊重祝福了
 
+
+*****
+
+####  alucardcz  
+##### 18788#       发表于 2025-12-3 17:41
+
+有一说一 现在这样子 新年是盖总医生2合一的概率挺大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18789#       发表于 2025-12-3 17:42
+
+无所谓的吧
+
+先不说铃村本来就抓不回来，你送雷夫和送牢盖……
+
+说实话好像区别也不大
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18790#       发表于 2025-12-3 17:48
+
+讲道理已经真把215那句藏了8年的说所罗门（雷夫）比主人更像所罗门的语音实装了，有些东西真已经走了就不要幻想了，不然武藏早就回来吃面了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/03/174529z49dyf3ff999y4db.png" referrerpolicy="no-referrer">
+
+<strong>7@RKIS]}JPZQBOVEO~]YP(8.png</strong> (100.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 17:45 上传
+
+*****
+
+####  alucardcz  
+##### 18791#       发表于 2025-12-3 17:49
+
+ 本帖最后由 alucardcz 于 2025-12-3 17:50 编辑 
+
+c阶谁有强化解除耐性？只有紫是部？？
+
+*****
+
+####  khxooo  
+##### 18792#       发表于 2025-12-3 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820049&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-3 17:49</a>
+c阶谁有强化解除耐性？只有紫是部？？</blockquote>
+只有紫式部，仅此一家<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
