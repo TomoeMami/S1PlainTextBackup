@@ -280,3 +280,13 @@ syl，个人势sc是能提供情绪价值，几个企业势的现在对这个没
 
 气氛都到这了，不复活了就不礼貌了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1618#       发表于 2025-12-3 15:54
+
+不是，v看得少啊。你们怎么看待这种复活的。
+有点无语了说实话，现在对v也没啥兴趣了(虽然早期就对杂谈啥的没兴趣只看游戏直播的
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
