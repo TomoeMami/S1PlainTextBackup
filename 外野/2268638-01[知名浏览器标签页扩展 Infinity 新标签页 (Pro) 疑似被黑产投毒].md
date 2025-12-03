@@ -452,3 +452,18 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有没有平替推荐一下
 
+
+*****
+
+####  Ganzkiller  
+##### 53#       发表于 2025-12-3 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68814417&amp;ptid=2268638" target="_blank">duanrenduanren 发表于 2025-12-2 17:25</a>
+
+我也在用 直接卸载了 
+
+分析链接
+
+https://www.koi.ai/blog/4-million-browsers-infected-inside-shadypanda- ...</blockquote>
+似乎没找到对应的ID
+
