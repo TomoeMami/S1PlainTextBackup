@@ -877,3 +877,16 @@ sen值咋提升啊，吃了几个黑魂后听不懂npc讲话了</blockquote>
 没看攻略通了ACD三个结局 是不是可以二周目了</blockquote>
 有留结局前存档的话可以再打个e结局，然后就二周目吧，可以把b结局+满足里线条件作为二周目目标
 
+
+*****
+
+####  cnmyster1ous  
+##### 280#       发表于 2025-12-3 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68816916&amp;ptid=1812121" target="_blank">华发夜眼[CN] 发表于 2025-12-3 09:19</a>
+没看攻略通了ACD三个结局 是不是可以二周目了</blockquote>
+可以开新周目看着攻略进里线+打DLC1内容
+DLC1的数值强度对于本体的后期来说刚好是比较有挑战的程度，如果跟DLC3一起打就是一路秒没什么意思了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
