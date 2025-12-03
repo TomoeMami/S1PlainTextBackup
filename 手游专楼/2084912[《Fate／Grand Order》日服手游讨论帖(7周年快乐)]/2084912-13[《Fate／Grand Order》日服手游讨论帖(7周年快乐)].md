@@ -1210,3 +1210,40 @@ C子甚至是高贵的3回合，没有次数限制
 好友120/5+自己的110/3，在挂个梅林+马尔达</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了 单好友1205梣就够了    打不死呆毛 但所罗门秒了就过了
 
+
+*****
+
+####  風卷豹  
+##### 18807#       发表于 2025-12-3 18:36
+
+那问题来了，这有什么不能给情人节礼物的，因为雷夫真爱是医生吗<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18808#       发表于 2025-12-3 18:39
+
+<img src="https://img.stage1st.com/forum/202512/03/183915bzoqoyeb2ynodn7n.png" referrerpolicy="no-referrer">
+
+<strong>33545.png</strong> (501.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 18:39 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于全蓝了。但是里面有个叛徒 我不说是谁（
+
+*****
+
+####  xunit  
+##### 18809#       发表于 2025-12-3 18:44
+
+怕不是雷夫在终章又跟BOSS爆了，根本没活到第二年，也就见不到情人节礼物了（
+
+*****
+
+####  DARKGRAY  
+##### 18810#       发表于 2025-12-3 18:55
+
+目前看起来好像真是要开因为要归天所以不过情人节的先例<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
