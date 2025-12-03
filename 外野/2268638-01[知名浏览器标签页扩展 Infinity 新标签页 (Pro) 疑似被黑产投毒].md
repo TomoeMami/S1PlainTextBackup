@@ -393,3 +393,11 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 昨天被 edge 强制干掉了，用了挺多年了好用确实好用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ganzkiller  
+##### 47#       发表于 2025-12-3 11:57
+
+我发现我只需要带一个能切换壁纸的主页而已，有替换的插件吗
+
