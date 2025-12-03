@@ -87,3 +87,20 @@ pc平台移植pc平台
 
 这技术力令人感叹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Variks  
+##### 7236#       发表于 2025-12-3 13:33
+
+下载5分钟，修复1小时才是最恶心的
+
+
+*****
+
+####  Gmlazy  
+##### 7237#       发表于 2025-12-3 13:43
+
+没有超级地球，自然也不存在超级压缩。
+不变的是超级气球和超级忽悠。
+

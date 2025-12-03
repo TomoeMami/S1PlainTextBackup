@@ -444,3 +444,11 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 找个时间去扩展帖更新警告一下
 我也一直用这个，而且这么看itab和wetab都一起死了
 
+
+*****
+
+####  masonknight  
+##### 52#       发表于 2025-12-3 13:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有没有平替推荐一下
+
