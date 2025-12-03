@@ -401,3 +401,13 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 我发现我只需要带一个能切换壁纸的主页而已，有替换的插件吗
 
+
+*****
+
+####  月白天青  
+##### 48#       发表于 2025-12-3 12:09
+
+我也用了好久，昨天被edge干掉还想说微软发什么癫。主要是需要搜索框下拉选择搜索引擎这个功能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
