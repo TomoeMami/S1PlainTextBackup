@@ -1056,3 +1056,59 @@ c阶谁有强化解除耐性？只有紫是部？？
 c阶谁有强化解除耐性？只有紫是部？？</blockquote>
 只有紫式部，仅此一家<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 18793#       发表于 2025-12-3 17:55
+
+<blockquote>alucardcz 发表于 2025-12-3 17:49
+c阶谁有强化解除耐性？只有紫是部？？</blockquote>
+
+C子三技能强化后也有。
+
+*****
+
+####  angelooo  
+##### 18794#       发表于 2025-12-3 17:55
+
+<blockquote>alucardcz 发表于 2025-12-3 17:49
+c阶谁有强化解除耐性？只有紫是部？？</blockquote>
+还有C子
+
+*****
+
+####  exiaexa  
+##### 18795#       发表于 2025-12-3 17:56
+
+C子甚至是高贵的3回合，没有次数限制
+
+0输出换来的
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18796#       发表于 2025-12-3 17:56
+
+没事了 上了紫十部还是被强化解除<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来又是要送3个人头
+
+*****
+
+####  alucardcz  
+##### 18797#       发表于 2025-12-3 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820082&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-12-3 17:55</a>
+
+还有C子</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非萌甚至没有c子
+
+*****
+
+####  天王寺凯伊姆  
+##### 18798#       发表于 2025-12-3 17:58
+
+完，本来以为你游不可能恶心到我，结果居然还能被这么恶心到…他不送不落地都不至于破防。新年这会有好活吗？
+

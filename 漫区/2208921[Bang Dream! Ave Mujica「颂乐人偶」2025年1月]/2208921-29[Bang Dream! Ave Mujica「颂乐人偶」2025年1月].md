@@ -352,3 +352,21 @@ JR東海「推し旅」x BangDream10th 特别联动
 
        [https://t.bilibili.com/1142084204820955136](https://t.bilibili.com/1142084204820955136)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41509#       发表于 2025-12-3 17:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/03/175857bgdnuforo35hoozh.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-03_17-57-27.jpg</strong> (563.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 17:58 上传
+
+       [https://bushiroad-store.com/collections/oblivionis-birthday2025](https://bushiroad-store.com/collections/oblivionis-birthday2025)
+
