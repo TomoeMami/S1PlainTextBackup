@@ -172,3 +172,11 @@ Screenshot_火环_20251128_145618.jpg
 
 专武更专，主角和那个男人的金宠物不太好给限定双枪用了，我把这俩都拉30级了。
 
+
+*****
+
+####  aldieb  
+##### 73#       发表于 2025-12-4 01:54
+
+明天任务做完大概都可以吃限定井跟普池井了 井谁强点<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
