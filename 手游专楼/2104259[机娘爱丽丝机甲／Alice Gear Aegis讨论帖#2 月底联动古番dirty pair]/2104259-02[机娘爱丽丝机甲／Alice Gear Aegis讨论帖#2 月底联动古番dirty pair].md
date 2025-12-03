@@ -25,3 +25,17 @@
 
 狙击基础数值大应该会好些。就类似我的全斩击绫香，250以下数字还是很爽的。
 
+
+*****
+
+####  冰风血羽  
+##### 1758#       发表于 2025-12-3 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819576&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-12-3 16:37</a>
+要找尽量靠出力的唯。另外现在调查2之后这种白值面板怪效果在面对等级越高的图（200+）收益就越低。我自己 ...</blockquote>
+<img src="https://p.sda1.dev/29/ae7a051713f8d082fbd97ca1d10d02ab/image.jpg" referrerpolicy="no-referrer">
+
+光看面板变质放出电击86%上升的普唯数值居然快跟上出力变性电击56上升的FA唯了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
