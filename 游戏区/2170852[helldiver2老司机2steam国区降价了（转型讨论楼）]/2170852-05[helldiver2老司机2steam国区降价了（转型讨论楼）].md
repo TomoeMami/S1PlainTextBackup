@@ -123,3 +123,13 @@ pc平台移植pc平台
 
 22G了还值得下载回来玩玩，100多根本没想法
 
+
+*****
+
+####  Firvox  
+##### 7240#       发表于 2025-12-3 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819074&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-12-3 15:01</a>
+存在的，这么做就是遵循古法。但是他们现在才发现瓶颈在CPU关卡生成时间，所以即使是固态玩家也要等CPU完 ...</blockquote>
+停难绷的，当时需求没有验证过拍脑袋就上马吗<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

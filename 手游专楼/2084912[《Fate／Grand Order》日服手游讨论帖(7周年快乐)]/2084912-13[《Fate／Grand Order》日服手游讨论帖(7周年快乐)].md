@@ -767,3 +767,63 @@
 
 术阶有专属礼装，吃复合加成的从者也很多，有珠、尼托、美游甚至能吃到四加成。大家可以按照实际需求组建队伍～
 
+
+*****
+
+####  khxooo  
+##### 18763#       发表于 2025-12-3 14:52
+
+就看看盖总有没有王属性了，要是有1001那300王特攻下去，不得了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18764#       发表于 2025-12-3 16:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是不是5点就能知道送的是谁了
+
+*****
+
+####  khxooo  
+##### 18765#       发表于 2025-12-3 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819711&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-3 16:58</a>
+是不是5点就能知道送的是谁了</blockquote>
+打完认定战就送。
+
+*****
+
+####  壳壳牛  
+##### 18766#       发表于 2025-12-3 17:08
+
+怎么跑出来个呆毛王
+
+*****
+
+####  Jamaisvu  
+##### 18767#       发表于 2025-12-3 17:08
+
+ 本帖最后由 Jamaisvu 于 2025-12-3 17:10 编辑 
+
+<img src="https://img.stage1st.com/forum/202512/03/170854lgsxyswgiv35yxiv.jpg" referrerpolicy="no-referrer">
+
+<strong>1764752860770.jpg</strong> (336.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-3 17:08 上传
+
+真送老盖啊...送的角色只有两张卡面，没牌面啊...
+
+混沌恶，地属性，我家有珠没法上班了，后台蹭羁绊吧...
+
+*****
+
+####  angelooo  
+##### 18768#       发表于 2025-12-3 17:10
+
+卧槽真送了啊
+
+送了的肯定只有两个卡面啊……除了lily都这样吧
+
