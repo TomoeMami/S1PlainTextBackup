@@ -79,3 +79,11 @@ pc平台移植pc平台
 
 超级压缩技术公告我看了下，“因为机械硬盘读取速度过慢所以使用了大量重复素材”这个处理方式的前提条件“机械硬盘读取过慢”打从一开始就不存在是么<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 7235#         楼主| 发表于 2025-12-3 12:44
+
+这技术力令人感叹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

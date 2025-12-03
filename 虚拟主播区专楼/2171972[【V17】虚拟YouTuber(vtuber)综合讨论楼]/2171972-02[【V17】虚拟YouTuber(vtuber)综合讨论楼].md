@@ -245,3 +245,14 @@ syl，个人势sc是能提供情绪价值，几个企业势的现在对这个没
 
 真活了再开香槟<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  マドマコ  
+##### 1614#       发表于 2025-12-3 12:44
+
+ 本帖最后由 マドマコ 于 2025-12-3 12:45 编辑 
+
+收益化居然开了，bug能整出这么多活吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（图源b站）
+<img src="https://p.sda1.dev/29/519b622ac75a52d287e57b9d8570452d/image.jpg" referrerpolicy="no-referrer">
+

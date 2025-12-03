@@ -423,3 +423,15 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蜇灵  
+##### 50#       发表于 2025-12-3 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68818105&amp;ptid=2268638" target="_blank">月白天青 发表于 2025-12-3 12:09</a>
+我也用了好久，昨天被edge干掉还想说微软发什么癫。主要是需要搜索框下拉选择搜索引擎这个功能
+
+—— 来自  ...</blockquote>
+这个功能火狐浏览器自带，可以试试看火狐
+
