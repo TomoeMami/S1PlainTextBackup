@@ -2022,3 +2022,15 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 玩到可以开启装备强化了，缺各种泽尔材料，第二路线是用各种属性石头强化，值得用吗？
 
+
+*****
+
+####  InfiniteGyre  
+##### 176#       发表于 2025-12-3 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820462&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-12-3 19:07</a>
+玩到可以开启装备强化了，缺各种泽尔材料，第二路线是用各种属性石头强化，值得用吗？ ...</blockquote>
+最好的武器并不是强化武器，最好的防具和饰品倒是有需要强化出来的，那也是后面的事情了，觉得战斗没压力就没必要
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

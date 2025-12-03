@@ -1247,3 +1247,53 @@ C子甚至是高贵的3回合，没有次数限制
 
 目前看起来好像真是要开因为要归天所以不过情人节的先例<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 18811#       发表于 2025-12-3 19:00
+
+笑出猪叫了，网友已经开始用各种不寻常的细节来论证落地这位的伏笔
+
+比如披阶卡背的恶魔外形，比如武内的笔刷，比如自称以及对其他角色的态度，这是真正的叙述性诡计啊我的朋友
+
+*****
+
+####  alucardcz  
+##### 18812#       发表于 2025-12-3 19:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">那我武藏能过情人节吗
+
+*****
+
+####  里村紅葉  
+##### 18813#       发表于 2025-12-3 19:00
+
+所以跟玩家讲了7年谜语的不是牢盖而是牢雷？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18814#       发表于 2025-12-3 19:21
+
+谁是五星啊，我就问你谁是五星<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+MuMu-20251203-191422-875.jpg
+(449.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202512/03/192051orredo22o95d8oe9.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18815#       发表于 2025-12-3 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820550&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-3 19:21</a>
+
+谁是五星啊，我就问你谁是五星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油还是这么欧 萌新也想欧
+
