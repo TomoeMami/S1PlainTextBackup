@@ -45,3 +45,11 @@
 
 贱头的程序员到底有多屎，就这22g的客户端用机械硬盘读也最多多几秒<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 7231#       发表于 2025-12-3 08:40
+
+pc平台移植pc平台
+
