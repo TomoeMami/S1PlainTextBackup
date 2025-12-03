@@ -2034,3 +2034,14 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bixinhaner  
+##### 177#       发表于 2025-12-3 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820505&amp;ptid=2263973" target="_blank">InfiniteGyre 发表于 2025-12-3 19:15</a>
+
+最好的武器并不是强化武器，最好的防具和饰品倒是有需要强化出来的，那也是后面的事情了，觉得战斗没压力 ...</blockquote>
+好，那就随缘了，目前一直开着困难，靠捡宝箱支线送的装备够用了
+

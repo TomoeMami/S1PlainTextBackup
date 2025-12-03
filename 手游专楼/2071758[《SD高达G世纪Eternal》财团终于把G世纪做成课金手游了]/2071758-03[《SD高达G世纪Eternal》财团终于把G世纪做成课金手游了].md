@@ -2421,3 +2421,18 @@ UC最大问题是几个大势力没一个像话的，要么压榨要么武疯子
 
 翻了一下好像曲包3里都没梅萨神曲
 
+
+*****
+
+####  ティグル  
+##### 3186#       发表于 2025-12-3 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68817217&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-12-3 10:04</a>
+
+想象不到两个大势力持续十几年的热战吧
+
+必须在几年内让一方完全跨掉，那不就是这个路数 ...</blockquote>
+F91原案里的宇宙巴比伦战争就是这样的
+
+然后被日升给玩没了
+
