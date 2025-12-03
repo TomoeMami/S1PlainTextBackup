@@ -173,3 +173,11 @@ pc平台移植pc平台
 玩的时候都没注意，突然意识到任务播报的人怎么 ...</blockquote>
 说明没删干净<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 7245#       发表于 2025-12-3 21:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是我的蒙面草人版纪元提示音和指令输入效果音都没了
+
