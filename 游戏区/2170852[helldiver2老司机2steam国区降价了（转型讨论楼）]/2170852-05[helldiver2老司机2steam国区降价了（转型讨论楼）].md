@@ -210,3 +210,13 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 实弹步枪武器根本没有存在的意义<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Firvox  
+##### 7248#       发表于 2025-12-3 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821314&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-12-3 21:59</a>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切 ...</blockquote>
+笑死，每次更新都有新活看，修复不知道啥时候了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
