@@ -196,3 +196,17 @@ https://www.bilibili.com/video/BV19BSYBuEMU
  ...</blockquote>
 这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切换弹种会把装填动作卡在一个无法打断的状态，读秒结束动作完成后直接补满当前装备的武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7247#       发表于 2025-12-3 22:44
+
+ 本帖最后由 ParadiseMartyr 于 2025-12-3 22:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821314&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-12-3 21:59</a>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的，不然这个主武太为用而用了，下挂榴弹多个两三发都没现在这么尴尬
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说现在实弹步枪主武就是尴尬，一个弹夹就那点子弹，杀敌效率也低。清杂清不明白，反重反不明白，加了仨榴弹只能说拆巢也是拆不明白。
+实弹步枪武器根本没有存在的意义<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
