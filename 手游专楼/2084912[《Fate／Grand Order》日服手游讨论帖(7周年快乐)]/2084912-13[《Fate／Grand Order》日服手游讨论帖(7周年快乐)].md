@@ -913,3 +913,93 @@
 
 二技能没啥人好配合的，从现在开始奶新年卡池出正版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 18778#       发表于 2025-12-3 17:24
+
+真要冠1001啊？
+
+*****
+
+####  alucardcz  
+##### 18779#       发表于 2025-12-3 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819881&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-3 17:20</a>
+
+剧情没问题啊，盖总批所罗门的皮</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">反转了（
+
+*****
+
+####  angelooo  
+##### 18780#       发表于 2025-12-3 17:30
+
+给我等一下，你送的到底是谁？？？还能这样？？？
+
+*****
+
+####  alucardcz  
+##### 18781#       发表于 2025-12-3 17:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">伪中伪 皮中皮中皮（
+
+*****
+
+####  Jamaisvu  
+##### 18782#       发表于 2025-12-3 17:32
+
+送的是炸弹人雷夫，看来新年卡池出术阶的所罗门+盖提亚+人王三合一有望了。
+
+*****
+
+####  alucardcz  
+##### 18783#       发表于 2025-12-3 17:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正无所谓 但感觉lga会有大节奏
+
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18784#       发表于 2025-12-3 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819862&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-3 17:18</a>
+有没有可能，新年是新呆毛</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">丑拒 新年出呆毛就诅咒坛友
+
+*****
+
+####  岸浪白野  
+##### 18785#       发表于 2025-12-3 17:34
+
+别说他不吃自己礼装，他是特殊的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/03/173417cbsbvashzkshbamy.png" referrerpolicy="no-referrer">
+
+<strong>71WQMC41AHS%NOOXRWK1.png</strong> (107.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 17:34 上传
+
+*****
+
+####  khxooo  
+##### 18786#       发表于 2025-12-3 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819914&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-3 17:26</a>
+
+反转了（</blockquote>
+草，还有这种批法。
+
+*****
+
+####  angelooo  
+##### 18787#       发表于 2025-12-3 17:37
+
+<blockquote>克苏鲁系青骑士 发表于 2025-12-3 17:34
+丑拒 新年出呆毛就诅咒坛友</blockquote>
+他出个灵衣我勉强接受了大不了不用，要抽的只能尊重祝福了
+
