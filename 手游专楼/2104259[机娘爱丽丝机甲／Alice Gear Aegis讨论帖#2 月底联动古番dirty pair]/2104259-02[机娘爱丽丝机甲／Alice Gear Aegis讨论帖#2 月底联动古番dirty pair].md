@@ -115,3 +115,17 @@
 —— 来自 realme RMX3706, Android 13, 鹅球 v ...</blockquote>
 你看看我上一页的图。我贴吧和B站见到有人刷到3000白值的<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1763#       发表于 2025-12-3 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820683&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-12-3 19:51</a>
+你看看我上一页的图。我贴吧和B站见到有人刷到3000白值的
+
+没an装的高白值比较难堆。不过不去打高等级逆属 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">好可怕的数值，我的京姐小艾玛都不到2500我还以为很厉害了。不过AN装这玩意已经被放弃了吧好久都没见加新的了，刷个好胚子还要继续刷技能简直就是无底洞，成型太慢了。
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
