@@ -390,3 +390,13 @@ msm频道是会员没断过，直播没看过的状态。
 
 重点是以前的粉丝接不接受把<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 1630#       发表于 2025-12-3 20:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，我记忆中也没见过几个复活粉丝不接受的，除非是那种连续横跳或者退的时候干了很烂的事
+
+演员，歌手，运动员，第一次复活基本上粉丝都是狂喜的
+
