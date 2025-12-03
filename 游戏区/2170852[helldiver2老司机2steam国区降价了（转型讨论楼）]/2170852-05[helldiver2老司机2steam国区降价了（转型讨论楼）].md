@@ -141,3 +141,14 @@ pc平台移植pc平台
 
 新的不拉屎补包系列，榴弹枪给2、3号位补弹夹<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AEmpire  
+##### 7242#       发表于 2025-12-3 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68818287&amp;ptid=2170852" target="_blank">Firvox 发表于 2025-12-3 12:32</a>
+
+超级压缩技术公告我看了下，“因为机械硬盘读取速度过慢所以使用了大量重复素材”这个处理方式的前提条件“ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">重复素材明显是古法，都是机械硬盘时代的老技术，什么兼顾机械硬盘都是说辞罢了，其实是新建文件夹的时候从老项目直接复制过来了，根本不用评估。反而删除重复素材才是需要重构和写新代码的
+
