@@ -516,3 +516,16 @@ https://www.koi.ai/blog/4-million-browsers-infected-inside-shadypanda- ...</bloc
 
 我也在用Infinity，但不是pro，pro有这么多权限吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 59#       发表于 2025-12-3 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68818897&amp;ptid=2268638" target="_blank">秦南心 发表于 2025-12-3 14:30</a>
+
+我也在用Infinity，但不是pro，pro有这么多权限吗</blockquote>
+[https://addons.mozilla.org/zh-CN ... %E7%AD%BE%E9%A1%B5/](https://addons.mozilla.org/zh-CN/firefox/addon/infinity%E6%96%B0%E6%A0%87%E7%AD%BE%E9%A1%B5/)
+
+非Pro的必要权限里也有“访问您在所有网站的数据”。不过我记得在扩展里有一个选项，就是是否收集额外的匿名数据。
+
