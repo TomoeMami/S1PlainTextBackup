@@ -54,3 +54,38 @@
 
 大空洞原来完全是张新图，又回到开荒时的感觉了，爽！
 
+
+*****
+
+####  thealoneer  
+##### 1803#       发表于 2025-12-4 04:13
+
+ 本帖最后由 thealoneer 于 2025-12-4 04:59 编辑 
+
+七仙女初见就过了，三个人分摊仇恨比想象中容易不少。废弃者之王有点强，召唤尸山的时候演出帅爆，盖尔爷爷归来。
+
+大空洞原来完全是张新图，又回到开荒时的感觉了，爽！
+
+*****
+
+####  wasian  
+##### 1804#       发表于 2025-12-4 06:00
+
+<img src="https://img.stage1st.com/forum/202512/04/055945mmj4sctuio99bq46.png" referrerpolicy="no-referrer">
+
+<strong>aa8f90bf819d8e8cc8d77f4363bbe483.png</strong> (262.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 05:59 上传
+
+<img src="https://img.stage1st.com/forum/202512/04/055947yp46wwlnjjd9pnv4.png" referrerpolicy="no-referrer">
+
+<strong>2b6dc7cd40dc001f40d111033325ec7b.png</strong> (68.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 05:59 上传
+
+赶在dlc之前深5了，想上分还得挑软柿子捏
+
