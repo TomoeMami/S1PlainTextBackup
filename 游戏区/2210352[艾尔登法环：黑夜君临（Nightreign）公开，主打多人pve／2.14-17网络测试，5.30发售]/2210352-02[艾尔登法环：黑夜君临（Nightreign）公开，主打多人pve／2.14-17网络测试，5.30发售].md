@@ -1,0 +1,28 @@
+﻿
+*****
+
+####  dydqydz  
+##### 1797#       发表于 2025-12-3 08:43
+
+看演示，学士其实这个道具使用挺有潜力的，但那个小技能还是逗了点
+
+葬仪屋这个职业估计周四之后要经常看到*2*3的配置了
+
+大空洞特异相当于全局新地图，经典屎坑+半血地牢，魂味不品不行<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaosayang  
+##### 1798#       发表于 2025-12-3 11:34
+
+下午更新里的平衡调整不知道会不会加强一下弱势角色
+
+*****
+
+####  jy000129  
+##### 1799#       发表于 2025-12-3 11:36
+
+这游戏高强度玩了快两个月，放下来一段时间后感觉没多少激情了<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
