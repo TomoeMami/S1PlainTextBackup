@@ -2398,3 +2398,16 @@ UC最大问题是几个大势力没一个像话的，要么压榨要么武疯子
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 3184#       发表于 2025-12-3 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813371&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-12-2 14:41</a>
+
+UC最大问题是几个大势力没一个像话的，要么压榨要么武疯子</blockquote>
+想象不到两个大势力持续十几年的热战吧
+
+必须在几年内让一方完全跨掉，那不就是这个路数
+

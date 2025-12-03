@@ -361,3 +361,11 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 我刷到说这个被微软下架东西全丢了问怎么办的，原来是被搞了
 
+
+*****
+
+####  awoshimaji  
+##### 43#       发表于 2025-12-3 10:12
+
+我说这两天WETAB咋用不了了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
