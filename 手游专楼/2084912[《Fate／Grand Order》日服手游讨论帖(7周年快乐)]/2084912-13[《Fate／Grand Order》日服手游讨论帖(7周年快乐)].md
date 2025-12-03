@@ -716,3 +716,54 @@
 我再看看翻译吧。</blockquote>
 牢盖的态度另一回事，我只是说不管召唤出来还是从特异点带回来的人全得走那一套手续而已，只有武藏明确不是，小安有可能不是，连杀生院这种剧情里没人知道怎么就在迦里的人都得走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 18759#       发表于 2025-12-2 09:27
+
+送咕哒的话岂不是要跟所有从者都有互动语音<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sanada  
+##### 18760#       发表于 2025-12-2 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809938&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-1 19:42</a>
+
+我们这个赠送从者啊不但没有情人节巧克力，还没有再临，就算不过终章序过终章也会送
+
+ ...</blockquote>
+不打终章序也可以打终章说明序根本没什么故事进展，那这个序的意义就真是为了让术冠装装逼是吧
+
+
+*****
+
+####  DARKGRAY  
+##### 18761#       发表于 2025-12-2 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68810971&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-2 00:39</a>
+
+我再看看翻译吧。</blockquote>
+牢盖的态度另一回事，我只是说不管召唤出来还是从特异点带回来的人全得走那一套手续而已，只有武藏明确不是，小安有可能不是，连杀生院这种剧情里没人知道怎么就在迦里的人都得走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 18762#       发表于 2025-12-3 11:48
+
+ 本帖最后由 Jamaisvu 于 2025-12-3 11:50 编辑 
+
+下午开最后的术冠战了，搬个羁绊加成表：
+
+<img src="https://img.stage1st.com/forum/202512/03/114959xmcyw24r2rq2moz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251203_114150.jpg</strong> (134.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-3 11:49 上传
+
+术阶有专属礼装，吃复合加成的从者也很多，有珠、尼托、美游甚至能吃到四加成。大家可以按照实际需求组建队伍～
+
