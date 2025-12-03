@@ -181,3 +181,18 @@ pc平台移植pc平台
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是我的蒙面草人版纪元提示音和指令输入效果音都没了
 
+
+*****
+
+####  FLZB  
+##### 7246#       发表于 2025-12-3 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820355&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-12-3 18:50</a>
+
+新的不拉屎补包系列，榴弹枪给2、3号位补弹夹
+
+https://www.bilibili.com/video/BV19BSYBuEMU
+
+ ...</blockquote>
+这bug就很好的体现出了箭头程序的水平，加了个快捷键又忘了限制在换弹时进行快捷键操作，导致装填途中切换弹种会把装填动作卡在一个无法打断的状态，读秒结束动作完成后直接补满当前装备的武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
