@@ -1172,3 +1172,41 @@ C子甚至是高贵的3回合，没有次数限制
 问题是没那么好抓
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 18803#       发表于 2025-12-3 18:21
+
+批嘛了，奥伯龙败下阵来，你才是最能骗人的批阶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18804#       发表于 2025-12-3 18:23
+
+这呆毛的制作基本是卡池实装的级别，和之前的冠位NPC不同的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年月球春晚节目就1小时还全是FGO，可以等着节目的最后就为了预告这呆毛了
+
+*****
+
+####  alucardcz  
+##### 18805#       发表于 2025-12-3 18:25
+
+啊 把所罗门打死就算过了 呆毛王不用打。。
+
+这样会少东西吗？
+
+*****
+
+####  alucardcz  
+##### 18806#       发表于 2025-12-3 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820193&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-12-3 18:18</a>
+
+试了下，冠位树一个没点，双梣其中一个带黑杯就可以打爆
+
+好友120/5+自己的110/3，在挂个梅林+马尔达</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了 单好友1205梣就够了    打不死呆毛 但所罗门秒了就过了
+
