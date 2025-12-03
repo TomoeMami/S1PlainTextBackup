@@ -140,3 +140,11 @@
 好可怕的数值，我的京姐小艾玛都不到2500我还以为很厉害了。不过AN装这玩意已经被放弃了吧好久都没见加新 ...</blockquote>
 某次直播说要改吧，大意和方向是，和装备分离，直接做到天赋盘子里，也不再採用随机词条，装备的白值和属性也可以调节跟各个版本的人物。现在装备先实装换色是第一步。但其他的，起码都是卫星等等这次周年吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1765#       发表于 2025-12-4 00:08
+
+水管人矛开分支以后丛林矛终于下岗可以拿去给小艾玛用了，体感比那个锤子好用太多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
