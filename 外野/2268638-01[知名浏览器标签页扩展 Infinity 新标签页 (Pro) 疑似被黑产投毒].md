@@ -487,3 +487,24 @@ https://www.koi.ai/blog/4-million-browsers-infected-inside-shadypanda- ...</bloc
 
 这种拓展的权限能这么高？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 56#       发表于 2025-12-3 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68817852&amp;ptid=2268638" target="_blank">cyankaras 发表于 2025-12-3 11:31</a>
+
+有没有人知道infinity保存下来的网站数据怎么解密</blockquote>
+导出后直接把文件后缀改成json就行，还可以丢进vscode之类的格式化一下，就很清晰了
+
+
+*****
+
+####  祸猫  
+##### 57#       发表于 2025-12-3 14:26
+
+有什么好点的自定义导航页吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
