@@ -827,3 +827,89 @@
 
 送了的肯定只有两个卡面啊……除了lily都这样吧
 
+
+*****
+
+####  Jamaisvu  
+##### 18769#       发表于 2025-12-3 17:13
+
+<blockquote>angelooo 发表于 2025-12-3 17:10
+卧槽真送了啊
+
+送了的肯定只有两个卡面啊……除了lily都这样吧</blockquote>
+因为我还挺期待老盖落地的，超级卫星，首个冠位，如果有四张卡面三个模型多套模组该多好...不过能送也很不错了，YLS竟然没想到借此骗氪...
+
+*****
+
+####  Jamaisvu  
+##### 18770#       发表于 2025-12-3 17:15
+
+ 本帖最后由 Jamaisvu 于 2025-12-3 17:16 编辑 
+
+100充能，60宝威，30红蓝魔放，30七骑士特攻，这不堪称术阶第一光炮——
+
+不对，这老盖怎么是伪装者，冠位从者落地后打不了自己守门的冠位战，这合理吗？
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18771#       发表于 2025-12-3 17:16
+
+那肯定藏了真所罗门卡池
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">该准备了
+
+*****
+
+####  khxooo  
+##### 18772#       发表于 2025-12-3 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819850&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2025-12-3 17:16</a>
+那肯定藏了真所罗门卡池
+该准备了</blockquote>
+有没有可能，新年是新呆毛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18773#       发表于 2025-12-3 17:18
+
+ 本帖最后由 exiaexa 于 2025-12-3 17:20 编辑 
+
+这个呆毛直接给我看呆
+
+武内你审美真的没救了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18774#       发表于 2025-12-3 17:19
+
+等下？
+这不是牢盖是雷夫？？？
+
+*****
+
+####  alucardcz  
+##### 18775#       发表于 2025-12-3 17:20
+
+这个超级呆毛王是啥（
+
+*****
+
+####  khxooo  
+##### 18776#       发表于 2025-12-3 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68819837&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-12-3 17:15</a>
+100充能，60宝威，30红蓝魔放，30七骑士特攻，这不堪称术阶第一光炮——
+
+不对，这老盖怎么是伪装者，冠位 ...</blockquote>
+剧情没问题啊，盖总批所罗门的皮<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 18777#       发表于 2025-12-3 17:21
+
+二技能没啥人好配合的，从现在开始奶新年卡池出正版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
