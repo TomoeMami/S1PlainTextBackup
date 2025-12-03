@@ -467,3 +467,23 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 https://www.koi.ai/blog/4-million-browsers-infected-inside-shadypanda- ...</blockquote>
 似乎没找到对应的ID
 
+
+*****
+
+####  UCXCU  
+##### 54#       发表于 2025-12-3 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68818024&amp;ptid=2268638" target="_blank">Ganzkiller 发表于 2025-12-3 11:57</a>
+我发现我只需要带一个能切换壁纸的主页而已，有替换的插件吗</blockquote>
+使用edge浏览器就行了，内置的新标签可以自定义背景
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  轩辕海洛  
+##### 55#       发表于 2025-12-3 14:02
+
+这种拓展的权限能这么高？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
