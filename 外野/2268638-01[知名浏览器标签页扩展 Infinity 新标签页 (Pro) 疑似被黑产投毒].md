@@ -411,3 +411,15 @@ Yet Another Speed Dial  这么多年只用快速拨号，带在线功能的用
 
 —— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  木竹九  
+##### 49#       发表于 2025-12-3 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68817852&amp;ptid=2268638" target="_blank">cyankaras 发表于 2025-12-3 11:31</a>
+有没有人知道infinity保存下来的网站数据怎么解密</blockquote>
+直接丢给ai就行，本质是个不加密的文档
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

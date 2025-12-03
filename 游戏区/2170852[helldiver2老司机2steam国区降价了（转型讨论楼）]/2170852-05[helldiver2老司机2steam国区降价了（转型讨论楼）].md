@@ -71,3 +71,11 @@ pc平台移植pc平台
 超级压缩影响打mod吗</blockquote>
 影响一部分的模型和声音
 
+
+*****
+
+####  Firvox  
+##### 7234#       发表于 2025-12-3 12:32
+
+超级压缩技术公告我看了下，“因为机械硬盘读取速度过慢所以使用了大量重复素材”这个处理方式的前提条件“机械硬盘读取过慢”打从一开始就不存在是么<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
