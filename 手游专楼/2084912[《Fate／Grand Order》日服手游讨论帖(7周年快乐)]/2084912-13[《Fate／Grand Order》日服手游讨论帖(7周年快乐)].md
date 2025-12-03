@@ -1112,3 +1112,63 @@ C子甚至是高贵的3回合，没有次数限制
 
 完，本来以为你游不可能恶心到我，结果居然还能被这么恶心到…他不送不落地都不至于破防。新年这会有好活吗？
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 18799#       发表于 2025-12-3 18:00
+
+有没有c子+紫式部叠200概率的可能？
+
+*****
+
+####  Jamaisvu  
+##### 18800#       发表于 2025-12-3 18:16
+
+<img src="https://img.stage1st.com/forum/202512/03/181250mwjqqdmi86qkvmsq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251203_181209_com.aniplex.fategrandorder.jpg</strong> (266.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-3 18:12 上传
+
+<img src="https://img.stage1st.com/forum/202512/03/181251ndeh4z8ssqtumaht.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251203_181216_com.aniplex.fategrandorder.jpg</strong> (289.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-3 18:12 上传
+
+吃一堑，长一智。
+
+红龙背后灵很帅，不过星之圣剑使的红披风真是审美降级，传统蓝白配色多好看...
+
+话说该不会是雷夫特意弄成和自己一个色调的吧...
+
+
+*****
+
+####  DARKGRAY  
+##### 18801#       发表于 2025-12-3 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820042&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-12-3 17:48</a>
+
+讲道理已经真把215那句藏了8年的说所罗门（雷夫）比主人更像所罗门的语音实装了，有些东西真已经走了就不 ...</blockquote>
+实装了啊，那正版放周年比较靠谱，新年应该是这个呆毛了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 18802#       发表于 2025-12-3 18:18
+
+试了下，冠位树一个没点，双梣其中一个带黑杯就可以打爆
+
+好友120/5+自己的110/3，在挂个梅林+马尔达
+
+问题是没那么好抓
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
