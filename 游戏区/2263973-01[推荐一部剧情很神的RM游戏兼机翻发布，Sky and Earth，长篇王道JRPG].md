@@ -2014,3 +2014,11 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 打了个开头，等最终润色版更新吧</blockquote>
 好家伙，得慢慢等了，我目前进度75/999，每天平均只能干1小时，按现在的速度预测还得要几十周<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bixinhaner  
+##### 175#       发表于 2025-12-3 19:07
+
+玩到可以开启装备强化了，缺各种泽尔材料，第二路线是用各种属性石头强化，值得用吗？
+

@@ -7136,3 +7136,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 怎么感觉新角色一眼不很强的样子啊……
 
+
+*****
+
+####  三谷歩夢  
+##### 631#       发表于 2025-12-3 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820282&amp;ptid=2256125" target="_blank">orangee 发表于 2025-12-3 18:36</a>
+
+怎么感觉新角色一眼不很强的样子啊……</blockquote>
+理论无限成长，就是要暖机
+
