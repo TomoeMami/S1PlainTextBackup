@@ -39,3 +39,53 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1759#         楼主| 发表于 2025-12-3 19:40
+
+ 本帖最后由 江戸前ルナ 于 2025-12-3 19:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820613&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-12-3 19:30</a>
+
+光看面板变质放出电击86%上升的普唯数值居然快跟上出力变性电击56上升的FA唯了
+
+—— 来自 realme RMX3 ...</blockquote>
+白值和属性值要分开看。
+
+白值不看敌人属性，只看敌人防御，所以高白值甚至可以逆属就是这道理，但是随着敌人等级的提高防御也会越来越高，白值的收益就越低，低基础数值甚至破不了高等级敌人的防（比如步枪等，高基础数值就是狙、高伤近战、SP等）。
+
+属性值打克属有倍率，打逆属会被制裁，但敌人等级提高不会影响属性值。
+
+所以就克属来说，放出在面对越高等级的敌人优势就越大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害会比全插属性插件完爆
+
+阿唯主要没出力人物，+没an装，可以说是双重DEBUFF<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 冰风血羽| + 2|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  江戸前ルナ  
+##### 1760#         楼主| 发表于 2025-12-3 19:47
+
+<img src="https://img.stage1st.com/forum/202512/03/194634pop55i5hhh5hljlg.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20251203194611.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 19:46 上传
+
+发发我的三个白值怪。阿姨的AN装备比较丢人阿姨的运气太差刷不到三个性能强化没办法啦
+
