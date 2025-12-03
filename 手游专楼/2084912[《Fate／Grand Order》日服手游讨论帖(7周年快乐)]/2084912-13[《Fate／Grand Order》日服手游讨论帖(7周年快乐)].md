@@ -1297,3 +1297,61 @@ MuMu-20251203-191422-875.jpg
 谁是五星啊，我就问你谁是五星</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油还是这么欧 萌新也想欧
 
+
+*****
+
+####  qixinno2  
+##### 18816#       发表于 2025-12-3 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820550&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-12-3 19:21</a>
+
+谁是五星啊，我就问你谁是五星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼友太欧了 非酋上当结果就C子+1
+
+*****
+
+####  khxooo  
+##### 18817#       发表于 2025-12-3 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820592&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-12-3 19:26</a>
+
+楼友太欧了 非酋上当结果就C子+1</blockquote>
+你信不信我后续抽干石头都没有C子<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 18818#       发表于 2025-12-3 19:32
+
+<blockquote>khxooo 发表于 2025-12-3 19:29
+你信不信我后续抽干石头都没有C子</blockquote>
+C子不知道为什么是很难出，我最早在剑伊吹池子里想顺便捞一个，结果剑伊吹出了C子没出，只好后来哪次送四星换了一个
+
+*****
+
+####  khxooo  
+##### 18819#       发表于 2025-12-3 19:50
+
+炸服了？
+
+*****
+
+####  DARKGRAY  
+##### 18820#       发表于 2025-12-3 19:51
+
+还没开始，冠位无限池刷崩了吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18821#       发表于 2025-12-3 19:52
+
+开梯子能正常刷 直连寄了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18822#       发表于 2025-12-3 19:53
+
+下了梯子进游戏试了下 除了进本外一切正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

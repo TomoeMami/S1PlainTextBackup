@@ -89,3 +89,29 @@
 
 发发我的三个白值怪。阿姨的AN装备比较丢人阿姨的运气太差刷不到三个性能强化没办法啦
 
+
+*****
+
+####  冰风血羽  
+##### 1761#       发表于 2025-12-3 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820644&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-12-3 19:40</a>
+白值和属性值要分开看。
+
+白值不看敌人属性，只看敌人防御，所以高白值甚至可以逆属就是这道理，但是随着 ...</blockquote>
+谢谢，这么一说我还有个出力的天野望，也该好好培养下了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  江戸前ルナ  
+##### 1762#         楼主| 发表于 2025-12-3 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820673&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-12-3 19:48</a>
+
+谢谢，这么一说我还有个出力的天野望，也该好好培养下了
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v ...</blockquote>
+你看看我上一页的图。我贴吧和B站见到有人刷到3000白值的<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
