@@ -43,3 +43,33 @@
 
 这次活动玩了几回杂贺孙一，这小丫头真可爱。
 
+
+*****
+
+####  赤备传承  
+##### 47546#       发表于 2025-12-3 08:56
+
+沉迷remix最后几天吃苹果补商店
+
+昨天彩虹一闪掉了礼装，立马麻婆池十连，光速一个四星常驻礼装收场
+
+今天又掉礼装了，单抽一发图坦卡蒙，走了600k流量，彩虹圈，出货
+
+不得不说玄学出货肯定是有的（记吃不记打
+
+<img src="https://img.stage1st.com/forum/202512/03/085516vno22dnzk7dad82f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251203_084055_com.bilibili.fatego.jpg</strong> (15.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 08:55 上传
+
+<img src="https://img.stage1st.com/forum/202512/03/085524st4p7ia4ikqpnbll.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251203_084203_com.bilibili.fatego.jpg</strong> (15.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-3 08:55 上传
+
