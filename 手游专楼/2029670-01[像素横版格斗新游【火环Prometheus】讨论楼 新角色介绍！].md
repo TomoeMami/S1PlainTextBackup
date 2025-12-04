@@ -188,3 +188,16 @@ Screenshot_火环_20251128_145618.jpg
 
 这么爽吗 直接发了30抽普池<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MobileMeowbot  
+##### 75#       发表于 2025-12-4 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821971&amp;ptid=2029670" target="_blank">aldieb 发表于 2025-12-4 01:54</a>
+
+明天任务做完大概都可以吃限定井跟普池井了 井谁强点</blockquote>
+可能早点刷出有效的主词条更重要，我后三件全是生命、防御，现在只能通难度14。
+
+暗龙点了霸体还会被超级击退，慎选，其他没玩过
+
