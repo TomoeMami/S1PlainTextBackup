@@ -7262,3 +7262,15 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 纳尼 怎么都在说第三面 咋进的？更新之后我都还是只碰到两次BOSS就结束了
 
+
+*****
+
+####  orangee  
+##### 643#       发表于 2025-12-5 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68826525&amp;ptid=2256125" target="_blank">吃货红毛 发表于 2025-12-4 23:56</a>
+纳尼 怎么都在说第三面 咋进的？更新之后我都还是只碰到两次BOSS就结束了</blockquote>
+第一层进隧道，比之前多出来的???选项，挺明显的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
