@@ -7233,3 +7233,24 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  伊布桑  
+##### 640#       发表于 2025-12-4 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824975&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2025-12-4 16:35</a>
+最大的用处是打完二面BOSS可以直接退了保种子</blockquote>
+现在还能这么保种子吗？我之前退了一次换了，是有什么东西不能拿吗？
+
+
+*****
+
+####  三谷歩夢  
+##### 641#       发表于 2025-12-4 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68825167&amp;ptid=2256125" target="_blank">伊布桑 发表于 2025-12-4 17:13</a>
+
+现在还能这么保种子吗？我之前退了一次换了，是有什么东西不能拿吗？</blockquote>
+我之前是触发三面事件后打完二面boss进三面直接退了，种子没换
+
