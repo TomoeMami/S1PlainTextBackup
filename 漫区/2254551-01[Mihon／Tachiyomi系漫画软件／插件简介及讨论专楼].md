@@ -1344,3 +1344,13 @@ okok 我试下
 是最新版吗，我的mihon没报错</blockquote>
 是最新版。
 
+
+*****
+
+####  kk霖洞九  
+##### 120#       发表于 2025-12-4 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809492&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-12-1 18:11</a>
+有没有用j2k的，突然 再漫画 就看不了了，所有漫画都报错这个</blockquote>
+我上个月mihon也出这个报错，后来是用之前楼内一样的方案清楚数据卸载插件重装再登录解决的
+
