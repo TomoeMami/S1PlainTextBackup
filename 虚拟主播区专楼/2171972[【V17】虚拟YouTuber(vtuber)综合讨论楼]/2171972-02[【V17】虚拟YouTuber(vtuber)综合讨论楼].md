@@ -443,3 +443,18 @@ msm频道是会员没断过，直播没看过的状态。
 
 露露也不是首例复活啊，虽然当初熊猫人只毕业了两个月就复活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡蕾特  
+##### 1636#       发表于 2025-12-4 18:21
+
+只要不是V本人作导致被毕业的，想要复活的话我一律欢迎<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡蕾特  
+##### 1637#       发表于 2025-12-4 18:22
+
+我两位推能不能活一活，虽然都不太可能<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
