@@ -65,3 +65,15 @@
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  iou90  
+##### 1960#       发表于 2025-12-4 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821477&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2025-12-3 22:40</a>
+这价格有点痛啊，50场赛事真的能值这个价么
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+sport 老汉 dlc 就几个旧赛道的新计时 貌似卖50左右囧
+
