@@ -1026,3 +1026,17 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 然后就是先集火杀掉法师就行
 
+
+*****
+
+####  pf67  
+##### 294#       发表于 2025-12-4 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824197&amp;ptid=1812121" target="_blank">口口翻大人 发表于 2025-12-4 14:03</a>
+狂鸟好烧啊
+
+关在监狱里，每次见它还会卑微的求饶，搞得我不忍心杀掉了，但是不杀掉又拿不到控制SEN值的道具 ...</blockquote>
+下周目见
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
