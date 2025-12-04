@@ -400,3 +400,13 @@ msm频道是会员没断过，直播没看过的状态。
 
 演员，歌手，运动员，第一次复活基本上粉丝都是狂喜的
 
+
+*****
+
+####  格林卡罗尔  
+##### 1631#       发表于 2025-12-4 09:21
+
+前提是真的有复活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
