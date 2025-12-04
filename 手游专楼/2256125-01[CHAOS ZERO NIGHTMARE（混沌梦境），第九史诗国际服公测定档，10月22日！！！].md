@@ -7223,3 +7223,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 问好进去是补血降压，篝火没商店，boss打完就只有装备 ...</blockquote>
 最大的用处是打完二面BOSS可以直接退了保种子
 
+
+*****
+
+####  orangee  
+##### 639#       发表于 2025-12-4 17:04
+
+这新出的木桩排名是打策划脸专用的吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
