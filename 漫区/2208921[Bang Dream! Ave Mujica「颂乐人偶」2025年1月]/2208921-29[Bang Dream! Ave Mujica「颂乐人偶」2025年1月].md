@@ -475,3 +475,39 @@ https://weibo.com/2638252657/QgOO17kzV</blockquote>
 
        [https://t.co/aRZVRHZw5U](https://t.co/aRZVRHZw5U)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41516#       发表于 2025-12-4 21:19
+
+       <strong>【元祖！BanG Dream Chan】 #10 Minna na cayosi.</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202512/04/211912flem7el77tjlnemg.jpg" referrerpolicy="no-referrer">
+
+<strong>370ae0e15d03987c99cfdbd5c37e1f0ac7d7105b.jpg</strong> (215.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 21:19 上传
+
+</blockquote>
+       [https://www.bilibili.com/bangumi/play/ep2471546](https://www.bilibili.com/bangumi/play/ep2471546)
+
+*****
+
+####  堀内爱里衣  
+##### 41517#       发表于 2025-12-4 21:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/04/211941o371bb2m61b9m3z7.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-04_21-18-14.jpg</strong> (115.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 21:19 上传
+
+       [https://t.bilibili.com/1142527703083122693](https://t.bilibili.com/1142527703083122693)
+
