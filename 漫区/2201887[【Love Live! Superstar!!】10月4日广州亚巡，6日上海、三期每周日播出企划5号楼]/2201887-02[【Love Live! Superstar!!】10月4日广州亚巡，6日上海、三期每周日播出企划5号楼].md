@@ -115,3 +115,25 @@
 
 2025-12-2 09:33 上传
 
+
+*****
+
+####  仟音一心  
+##### 1765#       发表于 2025-12-4 12:05
+
+致一直以来支持我的各位
+
+此次，我将于2025年12月31日，正式离开承蒙关照了五年的Apollo Bay。
+
+从出道至今，我得以拥有了各式各样的经历，对于曾支持过懵懂无知的我的事务所各位，我致以由衷的感谢。
+
+同时，各位支持者的存在与温暖的话语，对我而言是莫大的力量源泉。真的一直非常感谢大家。
+
+今后我也会秉持本心、真诚地继续开展活动，若能得到大家温暖的守护，我将倍感荣幸。
+
+2025年12月4日
+青山渚
+<img src="https://p.sda1.dev/29/26bca2df9d1d65b029736d89e938e3cf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/a422ba9e6ef0a6ec65372ea8dfcd46b1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/911e408f16133a8d95a27a412790ef15/image.jpg" referrerpolicy="no-referrer">
+
