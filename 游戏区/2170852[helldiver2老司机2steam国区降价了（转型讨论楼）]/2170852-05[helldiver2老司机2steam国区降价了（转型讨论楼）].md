@@ -287,3 +287,54 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 不如说现在实弹步枪主武就是尴 ...</blockquote>
 本来火AK还算能用，又给砍了一刀火耐性，左右脑互搏这块<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 7255#       发表于 2025-12-4 12:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GMJ  
+##### 7256#       发表于 2025-12-4 16:19
+
+不是说游戏体积缩小到23G了么，怎么我看还是要150G下载<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gmlazy  
+##### 7257#       发表于 2025-12-4 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824892&amp;ptid=2170852" target="_blank">GMJ 发表于 2025-12-4 16:19</a>
+
+不是说游戏体积缩小到23G了么，怎么我看还是要150G下载</blockquote>
+目前是测试分支，steam右键菜单测试版切换到Slim分支。
+
+*****
+
+####  FLZB  
+##### 7258#       发表于 2025-12-4 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821489&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-12-3 22:44</a>
+
+挺好的，不然这个主武太为用而用了，下挂榴弹多个两三发都没现在这么尴尬
+
+不如说现在实弹步枪主武就是尴 ...</blockquote>
+非爆炸婆罗门主手都是防身武器，功能性和强度甚至不如副手（重穿实弹谁懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 7259#       发表于 2025-12-4 18:33
+
+熔岩星球来力，没有潜行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 7260#       发表于 2025-12-4 19:38
+
+这下真走星球大战线了，老外嚷嚷的要给minigun配个风暴兵同款能量盾不会真给吧？
+

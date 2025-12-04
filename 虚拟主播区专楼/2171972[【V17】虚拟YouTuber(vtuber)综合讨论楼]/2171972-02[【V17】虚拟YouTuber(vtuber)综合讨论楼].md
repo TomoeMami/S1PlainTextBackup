@@ -468,3 +468,11 @@ msm频道是会员没断过，直播没看过的状态。
 
 这样一直吊着也太折磨人了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hzt523600  
+##### 1639#       发表于 2025-12-4 19:38
+
+真要是复活三天的预热期也很长了，没必要提前好几天放信，感觉可以散了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
