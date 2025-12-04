@@ -388,3 +388,25 @@ JR東海「推し旅」x BangDream10th 特别联动
 
        [https://x.com/moukonzenmetsu/status/1996142369373401107](https://x.com/moukonzenmetsu/status/1996142369373401107)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41511#       发表于 2025-12-4 12:09
+
+ 本帖最后由 堀内爱里衣 于 2025-12-4 12:10 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/04/121023brr68184zz9fr8o4.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-04_12-10-07.jpg</strong> (172.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 12:10 上传
+
+       [https://x.com/comic_growl/status/1996416208120500343](https://x.com/comic_growl/status/1996416208120500343)
+
+       [https://comic-growl.com/episodes/38c07cfb6a340/](https://comic-growl.com/episodes/38c07cfb6a340/)
+
