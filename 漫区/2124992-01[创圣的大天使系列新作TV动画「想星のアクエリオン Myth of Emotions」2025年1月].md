@@ -2720,3 +2720,16 @@ AKINO from bless4 - 創聖のアクエリオン / THE FIRST TAKE
 
 挺可惜的，因为没有及时更新的字幕导致没有讨论度，有个哥们还给泛式发sc叫他看，泛式说没字幕资源，后来有up接了还上传到蜜柑之后又发了个sc，好像没回，赫萝茶话会的时候说他很喜欢这个洗了，不知道直播有没有聊
 
+
+*****
+
+####  马桶3  
+##### 295#       发表于 2025-12-4 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68825074&amp;ptid=2124992" target="_blank">dotiaffy 发表于 2025-12-4 16:52</a>
+挺可惜的，因为没有及时更新的字幕导致没有讨论度，有个哥们还给泛式发sc叫他看，泛式说没字幕资源，后来有 ...</blockquote>
+没啥好讨论的其实，为这转世设定的醋包了顿饺子，不难吃但也就这样。
+至于字幕么……当时全程生肉追完的，倒也没什么需要字幕的地方，台词都很浅显易懂啊……
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
