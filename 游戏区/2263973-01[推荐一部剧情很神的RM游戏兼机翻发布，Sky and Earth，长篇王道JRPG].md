@@ -2056,3 +2056,11 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 玩到可以开启装备强化了，缺各种泽尔材料，第二路线是用各种属性石头强化，值得用吗？ ...</blockquote>
 建议是能用就用，钱后面完全溢出，最后能卡你强化的肯定不是强化石
 
+
+*****
+
+####  神他妈的开胃菜  
+##### 179#       发表于 2025-12-4 20:40
+
+打完了，真不错，虽然没有fana那么惊艳但总体上还是个扎扎实实的好游戏<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
