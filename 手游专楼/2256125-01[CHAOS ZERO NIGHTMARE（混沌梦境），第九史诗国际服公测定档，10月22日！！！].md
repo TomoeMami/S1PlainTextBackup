@@ -7200,3 +7200,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 这新角色攻击特效和打击感还是这么爽
 
+
+*****
+
+####  nyaneko  
+##### 637#       发表于 2025-12-4 11:43
+
+这赛季本第三图，就一个问号，一个篝火，一个boss。
+
+问好进去是补血降压，篝火没商店，boss打完就只有装备。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
