@@ -1354,3 +1354,16 @@ okok 我试下
 有没有用j2k的，突然 再漫画 就看不了了，所有漫画都报错这个</blockquote>
 我上个月mihon也出这个报错，后来是用之前楼内一样的方案清楚数据卸载插件重装再登录解决的
 
+
+*****
+
+####  azbhg1  
+##### 121#         楼主| 发表于 2025-12-4 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824625&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-12-4 15:30</a>
+
+我上个月mihon也出这个报错，后来是用之前楼内一样的方案清楚数据卸载插件重装再登录解决的 ...</blockquote>
+我另一台设备重新安装j2k也报这个错
+
+插件开发者确认过是网站返回数据的问题，j2k用的库太旧了无法处理
+
