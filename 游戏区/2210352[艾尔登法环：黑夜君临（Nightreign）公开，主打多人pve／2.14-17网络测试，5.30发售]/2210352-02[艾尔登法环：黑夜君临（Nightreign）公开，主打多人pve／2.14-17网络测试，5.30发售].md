@@ -89,3 +89,22 @@
 
 赶在dlc之前深5了，想上分还得挑软柿子捏
 
+
+*****
+
+####  petitlui  
+##### 1805#       发表于 2025-12-4 13:08
+
+感觉俩新角色都好三体人啊而且能有一些很有意思的玩法，怎么还不到下班时间
+
+*****
+
+####  ohi.02  
+##### 1806#       发表于 2025-12-4 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68822096&amp;ptid=2210352" target="_blank">wasian 发表于 2025-12-4 06:00</a>
+赶在dlc之前深5了，想上分还得挑软柿子捏</blockquote>
+恭喜，深5比深4容易多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
