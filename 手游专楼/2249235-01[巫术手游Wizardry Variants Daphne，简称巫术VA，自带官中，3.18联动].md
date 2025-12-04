@@ -10,3 +10,11 @@
 
 战/骑+单排增伤10%太权威了
 
+
+*****
+
+####  UnknownRei  
+##### 578#       发表于 2025-12-4 23:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">手握20王女，没有一只力个体，至今未去做王女个人任务，drecom我〇你〇〇
+
