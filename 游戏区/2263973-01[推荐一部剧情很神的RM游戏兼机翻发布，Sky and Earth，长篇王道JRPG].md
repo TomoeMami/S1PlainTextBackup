@@ -2045,3 +2045,14 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 最好的武器并不是强化武器，最好的防具和饰品倒是有需要强化出来的，那也是后面的事情了，觉得战斗没压力 ...</blockquote>
 好，那就随缘了，目前一直开着困难，靠捡宝箱支线送的装备够用了
 
+
+*****
+
+####  pf67  
+##### 178#       发表于 2025-12-4 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68820462&amp;ptid=2263973" target="_blank">bixinhaner 发表于 2025-12-3 19:07</a>
+
+玩到可以开启装备强化了，缺各种泽尔材料，第二路线是用各种属性石头强化，值得用吗？ ...</blockquote>
+建议是能用就用，钱后面完全溢出，最后能卡你强化的肯定不是强化石
+
