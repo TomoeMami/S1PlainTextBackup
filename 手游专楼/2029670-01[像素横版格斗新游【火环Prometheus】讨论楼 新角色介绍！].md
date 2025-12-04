@@ -201,3 +201,16 @@ Screenshot_火环_20251128_145618.jpg
 
 暗龙点了霸体还会被超级击退，慎选，其他没玩过
 
+
+*****
+
+####  aldieb  
+##### 76#       发表于 2025-12-4 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68823465&amp;ptid=2029670" target="_blank">MobileMeowbot 发表于 2025-12-4 11:29</a>
+
+可能早点刷出有效的主词条更重要，我后三件全是生命、防御，现在只能通难度14。
+
+暗龙点了霸体还会被超级 ...</blockquote>
+感谢 那就换别的了 体力刷升级素材就用完了 维护都不发辣椒的 太扣了
+
