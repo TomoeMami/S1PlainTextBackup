@@ -438,3 +438,40 @@ JR東海「推し旅」x BangDream10th 特别联动
 https://weibo.com/2638252657/QgOO17kzV</blockquote>
 这个可爱<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41514#       发表于 2025-12-4 20:08
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/04/200922ty77fjnovazn7iva.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-04_20-05-39.jpg</strong> (299.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 20:09 上传
+
+       [https://x.com/bang_dream_info/status/1996504758157279497](https://x.com/bang_dream_info/status/1996504758157279497)
+
+*****
+
+####  堀内爱里衣  
+##### 41515#       发表于 2025-12-4 20:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/04/200904nt98440f4duhnzrr.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-04_20-07-06.jpg</strong> (263.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-4 20:09 上传
+
+       [https://x.com/bang_dream_info/status/1996512299427774965](https://x.com/bang_dream_info/status/1996512299427774965)
+
+       [https://t.co/aRZVRHZw5U](https://t.co/aRZVRHZw5U)
+
