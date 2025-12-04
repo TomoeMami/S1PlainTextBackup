@@ -1013,3 +1013,16 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 DLC3总体来说机制远大于数值，但数值太低了也不太行
 
+
+*****
+
+####  检索者  
+##### 293#         楼主| 发表于 2025-12-4 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824426&amp;ptid=1812121" target="_blank">华发夜眼[CN] 发表于 2025-12-4 14:54</a>
+
+dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</blockquote>
+冬骑士的蓄力大招是能秒人的，必须用击溃打断（注意先驱散掉他的buff不然无法击溃）
+
+然后就是先集火杀掉法师就行
+

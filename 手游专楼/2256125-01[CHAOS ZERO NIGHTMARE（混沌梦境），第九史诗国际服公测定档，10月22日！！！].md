@@ -7210,3 +7210,16 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 问好进去是补血降压，篝火没商店，boss打完就只有装备。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 638#       发表于 2025-12-4 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68823568&amp;ptid=2256125" target="_blank">nyaneko 发表于 2025-12-4 11:43</a>
+
+这赛季本第三图，就一个问号，一个篝火，一个boss。
+
+问好进去是补血降压，篝火没商店，boss打完就只有装备 ...</blockquote>
+最大的用处是打完二面BOSS可以直接退了保种子
+
