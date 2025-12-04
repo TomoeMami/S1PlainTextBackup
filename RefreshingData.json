@@ -1175,7 +1175,7 @@
     "newtitle": "[Granblue Fantasy 讨论帖（禁止非游戏相关）]",
     "lastedit": 1764564159,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1570791": {
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 19976,
+    "totalreply": 19977,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1764821898,
+    "lastedit": 1764823211,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 22763,
+    "totalreply": 22764,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1764822250,
+    "lastedit": 1764823450,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 15783,
+    "totalreply": 15785,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1764820213,
+    "lastedit": 1764823211,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 203404,
+    "totalreply": 203405,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1764822968,
+    "lastedit": 1764823698,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 28259,
+    "totalreply": 28261,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1764821536,
+    "lastedit": 1764823452,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 20166,
+    "totalreply": 20167,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1764822252,
+    "lastedit": 1764823695,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13405,15 +13405,6 @@
     "title": "[这难道是一些牢🐌心里的底气来源吗？？]",
     "newtitle": "[这难道是一些牢🐌心里的底气来源吗？？]",
     "lastedit": 1763721748,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2267634": {
-    "totalreply": 53,
-    "title": "[翟东升的金砖币大家觉得如何]",
-    "newtitle": "[翟东升的金砖币大家觉得如何]",
-    "lastedit": 1763613505,
     "category": "外野",
     "active": false,
     "update": false
@@ -15588,10 +15579,10 @@
     "update": false
   },
   "2268265": {
-    "totalreply": 378,
+    "totalreply": 379,
     "title": "[香港人谈谈港人对内地的看法]",
     "newtitle": "[香港人谈谈港人对内地的看法]",
-    "lastedit": 1764819736,
+    "lastedit": 1764823698,
     "category": "外野",
     "active": true,
     "update": false
@@ -16461,10 +16452,10 @@
     "update": false
   },
   "2268494": {
-    "totalreply": 166,
+    "totalreply": 167,
     "title": "[俄乌25年12月楼]",
     "newtitle": "[俄乌25年12月楼]",
-    "lastedit": 1764819860,
+    "lastedit": 1764823698,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17100,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 421,
+    "totalreply": 422,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1764823092,
+    "lastedit": 1764823453,
     "category": "外野",
     "active": true,
     "update": false
@@ -17136,10 +17127,10 @@
     "update": false
   },
   "2268713": {
-    "totalreply": 124,
+    "totalreply": 125,
     "title": "[两个红包选一个，已知一个是另一个的两倍，随机选了一个打开是100，该不该换一个拿？]",
     "newtitle": "[两个红包选一个，已知一个是另一个的两倍，随机选了一个打开是100，该不该换一个拿？]",
-    "lastedit": 1764819860,
+    "lastedit": 1764823698,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,10 +17154,10 @@
     "update": false
   },
   "2268700": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[路过时发现一家坚持了至少快10年的一点点关门了]",
     "newtitle": "[路过时发现一家坚持了至少快10年的一点点关门了]",
-    "lastedit": 1764823092,
+    "lastedit": 1764823452,
     "category": "外野",
     "active": true,
     "update": false
@@ -17262,10 +17253,28 @@
     "update": false
   },
   "2268770": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[堵在高架桥上突然想拉屎怎么办]",
     "newtitle": "[堵在高架桥上突然想拉屎怎么办]",
-    "lastedit": 1764822853,
+    "lastedit": 1764823698,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2268657": {
+    "totalreply": 41,
+    "title": "[明明有女战友，但冒险结束却和没什么出场的路人结婚，这种模式曾经什么时候流行的？]",
+    "newtitle": "[明明有女战友，但冒险结束却和没什么出场的路人结婚，这种模式曾经什么时候流行的？]",
+    "lastedit": 1764823568,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2268767": {
+    "totalreply": 43,
+    "title": "[笑死 精中白人 和精日白人]",
+    "newtitle": "[笑死 精中白人 和精日白人]",
+    "lastedit": 1764823699,
     "category": "外野",
     "active": true,
     "update": false
