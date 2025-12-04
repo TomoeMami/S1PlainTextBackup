@@ -179,3 +179,19 @@
 
 垃圾王这boss设计的真不错，配上bgm，算上本体也能至少排前五吧，甚至可以当一个死诞者葛德文代餐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shyso  
+##### 1816#       发表于 2025-12-5 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68826361&amp;ptid=2210352" target="_blank">聊nsy专用号 发表于 2025-12-4 22:45</a>
+
+三狗的事件太恶心了 要是每人跑一个的话我这种玩近战只会划水不会交互的fw要造大罪 ...</blockquote>
+
+我单人局遇到一次三狗，血特别少几下就打死了
+
+应该可以去和别人一起打
+
+我还遇到一个事件，扣三个血瓶上限，三个人被传到不同的据点各有一个额外boss，我打了两下打不过就去别人那里了
+
