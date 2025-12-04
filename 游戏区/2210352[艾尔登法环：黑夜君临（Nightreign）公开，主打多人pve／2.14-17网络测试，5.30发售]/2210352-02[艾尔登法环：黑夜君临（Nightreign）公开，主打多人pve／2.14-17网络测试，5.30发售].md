@@ -108,3 +108,27 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhacaizn  
+##### 1807#       发表于 2025-12-4 15:58
+
+这新地图有点难跑
+
+*****
+
+####  当光停止  
+##### 1808#       发表于 2025-12-4 16:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为难度又褒贬不一了。
+
+但是我还没下班。
+
+*****
+
+####  hirro  
+##### 1809#       发表于 2025-12-4 16:31
+
+94%降到93%，还好的
+
