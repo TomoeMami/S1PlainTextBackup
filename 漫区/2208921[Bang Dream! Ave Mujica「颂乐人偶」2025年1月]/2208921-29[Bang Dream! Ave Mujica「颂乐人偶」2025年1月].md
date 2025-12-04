@@ -428,3 +428,13 @@ JR東海「推し旅」x BangDream10th 特别联动
 
        [https://weibo.com/2638252657/QgOO17kzV](https://weibo.com/2638252657/QgOO17kzV)
 
+
+*****
+
+####  yjysrkl  
+##### 41513#       发表于 2025-12-4 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68823895&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-12-4 12:48</a>
+https://weibo.com/2638252657/QgOO17kzV</blockquote>
+这个可爱<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
