@@ -629,3 +629,44 @@ https://weibo.com/2638252657/QgOO17kzV</blockquote>
 
        [https://x.com/mollyfantasy_of/status/1996591332207558782](https://x.com/mollyfantasy_of/status/1996591332207558782)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41526#       发表于 2025-12-5 18:58
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/05/185831ya0carev03qc3cge.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-05_18-53-17.jpg</strong> (283.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-5 18:58 上传
+
+       [https://x.com/bang_dream_info/status/1996874953543778495](https://x.com/bang_dream_info/status/1996874953543778495)
+
+       [https://bang-dream.com/avemujica_6th_tokyo#Goods_onsite](https://bang-dream.com/avemujica_6th_tokyo#Goods_onsite)
+
+*****
+
+####  堀内爱里衣  
+##### 41527#       发表于 2025-12-5 18:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/05/185918vs0y60t0t47008y5.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-05_18-54-45.jpg</strong> (212.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-5 18:59 上传
+
+       [https://x.com/yumenokessho/status/1996882243328135414](https://x.com/yumenokessho/status/1996882243328135414)
+
+       [https://www.youtube.com/watch?v=jyNF2_HImHE](https://www.youtube.com/watch?v=jyNF2_HImHE)
+
+       
+
