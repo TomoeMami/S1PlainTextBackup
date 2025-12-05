@@ -1367,3 +1367,15 @@ okok 我试下
 
 插件开发者确认过是网站返回数据的问题，j2k用的库太旧了无法处理
 
+
+*****
+
+####  陌生的天花扳  
+##### 122#       发表于 2025-12-5 23:08
+
+<blockquote>jackyhuang 发表于 2025-10-28 11:52
+拷贝半年上不去了，换域名换插件**都试过了
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+拷贝源可以试试这个：https://raw.githubusercontent.com/LittleSurvival/copymanga-copy20/repo/index.min.json
+
