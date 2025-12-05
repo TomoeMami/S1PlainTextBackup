@@ -2525,3 +2525,15 @@ F91原案里的宇宙巴比伦战争就是这样的
 —— 来自 S1Fun</blockquote>
 反转了 图是假的
 
+
+*****
+
+####  acg_gyanc  
+##### 3193#       发表于 2025-12-5 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68828713&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-12-5 13:39</a>
+反转了 图是假的</blockquote>
+nga看到了，钓鱼bond真是好笑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
