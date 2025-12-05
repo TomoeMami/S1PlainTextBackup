@@ -1080,3 +1080,37 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 我还是不喜欢这游戏的刷怪速度，刚杀完走两步又刷出来。。。我跑个前期图还要被无聊的战斗一再打断，烦死了 ...</blockquote>
 有个道具叫看不见胡椒，有个技能叫透明身体
 
+
+*****
+
+####  cnmyster1ous  
+##### 299#       发表于 2025-12-5 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68828090&amp;ptid=1812121" target="_blank">pf67 发表于 2025-12-5 11:43</a>
+打深海dlc1要啥数值练度，本篇boss打了，但是到你深海连小怪都打不过</blockquote>
+深海的数值印象应该是略高于本体G结局强度吧
+属性大几千应该就可以打了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  维克塔利昂  
+##### 300#       发表于 2025-12-5 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68828094&amp;ptid=1812121" target="_blank">pf67 发表于 2025-12-5 11:43</a>
+
+有个道具叫看不见胡椒，有个技能叫透明身体</blockquote>
+技能还没摸到，限量消耗品是指定不用的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">胡椒有无限购买点没？
+
+*****
+
+####  维克塔利昂  
+##### 301#       发表于 2025-12-5 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68828016&amp;ptid=1812121" target="_blank">红魔馆的糖 发表于 2025-12-5 11:29</a>
+
+进度10狂鸟唱歌了，誓约对象都似了</blockquote>
+呃，我自己摸过去把狂鸟打了还专门听她唱歌。。。这谁知道啊！
+
