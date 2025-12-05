@@ -1135,3 +1135,18 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 呃，我自己摸过去把狂鸟打了还专门听她唱歌。。。这谁知道啊！</blockquote>
 听狂鸟唱歌其实是不会有问题的，进度10（图书室上方的灯亮10个）之前杀了或者关了就行
 
+
+*****
+
+####  维克塔利昂  
+##### 304#       发表于 2025-12-5 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68830018&amp;ptid=1812121" target="_blank">检索者 发表于 2025-12-5 17:08</a>
+
+听狂鸟唱歌其实是不会有问题的，进度10（图书室上方的灯亮10个）之前杀了或者关了就行 ...</blockquote>
+初见，你说了我才知道还有灯这种东西<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+倒是防火女已经告诉我有人走图书馆最上面那个门过去了，让我追，不过我一堆地图还没怎么摸，懒得去
+
+凑合玩算了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
