@@ -675,12 +675,12 @@
     "update": false
   },
   "1999308": {
-    "totalreply": 8016,
+    "totalreply": 8019,
     "title": "[2022.10『电锯人』TV动画 MAPPA制作 9.19主题曲&amp; 新CAST解禁]",
     "newtitle": "[『电锯人 ／ Chainsaw Man』动画专楼 蕾塞篇剧场版动画制作决定]",
-    "lastedit": 1764672609,
+    "lastedit": 1764947172,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1528127": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 23057,
+    "totalreply": 23058,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.20 千丝万缕]",
-    "lastedit": 1764946574,
+    "lastedit": 1764946935,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 20510,
+    "totalreply": 20512,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1764945986,
+    "lastedit": 1764946941,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12159,10 +12159,10 @@
     "update": false
   },
   "2263083": {
-    "totalreply": 321,
+    "totalreply": 322,
     "title": "[【两集连播】米未和腾讯的喜剧综艺《喜人奇妙夜2》上线了]",
     "newtitle": "[【两集连播】米未和腾讯的喜剧综艺《喜人奇妙夜2》上线了]",
-    "lastedit": 1764942494,
+    "lastedit": 1764947175,
     "category": "外野",
     "active": true,
     "update": false
@@ -15066,10 +15066,10 @@
     "update": false
   },
   "2268265": {
-    "totalreply": 387,
+    "totalreply": 388,
     "title": "[香港人谈谈港人对内地的看法]",
     "newtitle": "[香港人谈谈港人对内地的看法]",
-    "lastedit": 1764945623,
+    "lastedit": 1764946941,
     "category": "外野",
     "active": true,
     "update": false
@@ -15984,10 +15984,10 @@
     "update": false
   },
   "2268527": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[NS线下店买了个1年的租卡带服务，求推荐游戏]",
     "newtitle": "[NS线下店买了个1年的租卡带服务，求推荐游戏]",
-    "lastedit": 1764939497,
+    "lastedit": 1764946807,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16016,7 +16016,7 @@
     "newtitle": "[简单痛投，你购买过游戏订阅服务吗]",
     "lastedit": 1764687737,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2268546": {
@@ -16812,10 +16812,10 @@
     "update": false
   },
   "2268731": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[上世纪末的地方台对播动画片是什么态度]",
     "newtitle": "[上世纪末的地方台对播动画片是什么态度]",
-    "lastedit": 1764946579,
+    "lastedit": 1764947175,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16911,10 +16911,10 @@
     "update": false
   },
   "2268787": {
-    "totalreply": 58,
+    "totalreply": 60,
     "title": "[初一数学该怎么辅导]",
     "newtitle": "[初一数学该怎么辅导]",
-    "lastedit": 1764942492,
+    "lastedit": 1764947175,
     "category": "外野",
     "active": true,
     "update": false
@@ -17091,10 +17091,10 @@
     "update": false
   },
   "2268864": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[点都德真爱楼]",
     "newtitle": "[点都德真爱楼]",
-    "lastedit": 1764945986,
+    "lastedit": 1764946941,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17127,10 @@
     "update": false
   },
   "2268852": {
-    "totalreply": 76,
+    "totalreply": 78,
     "title": "[原来哥舒翰是个政治白痴大傻子。]",
     "newtitle": "[原来哥舒翰是个政治白痴大傻子。]",
-    "lastedit": 1764946579,
+    "lastedit": 1764947175,
     "category": "外野",
     "active": true,
     "update": false
@@ -17172,10 +17172,10 @@
     "update": false
   },
   "2268898": {
-    "totalreply": 64,
+    "totalreply": 67,
     "title": "[马克龙访问四川大学，后面的中法保镖干起来了]",
     "newtitle": "[马克龙访问四川大学，后面的中法保镖干起来了]",
-    "lastedit": 1764946579,
+    "lastedit": 1764947287,
     "category": "外野",
     "active": true,
     "update": false
@@ -17194,6 +17194,15 @@
     "title": "[谷爱凌，年入2300万美元]",
     "newtitle": "[谷爱凌，年入2300万美元]",
     "lastedit": 1764944895,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2268887": {
+    "totalreply": 41,
+    "title": "[巴奴新菜品“水性杨花”惹争议]",
+    "newtitle": "[巴奴新菜品“水性杨花”惹争议]",
+    "lastedit": 1764946941,
     "category": "外野",
     "active": true,
     "update": false
