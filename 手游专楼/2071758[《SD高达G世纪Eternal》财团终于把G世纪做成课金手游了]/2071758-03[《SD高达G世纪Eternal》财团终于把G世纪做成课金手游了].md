@@ -2462,3 +2462,15 @@ F91原案里的宇宙巴比伦战争就是这样的
 
 已严肃收到
 
+
+*****
+
+####  acg_gyanc  
+##### 3188#       发表于 2025-12-5 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68826971&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-12-5 07:57</a>
+已严肃收到</blockquote>
+好奇会怎么实装，原创剧情活动么？居然有点期待了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
