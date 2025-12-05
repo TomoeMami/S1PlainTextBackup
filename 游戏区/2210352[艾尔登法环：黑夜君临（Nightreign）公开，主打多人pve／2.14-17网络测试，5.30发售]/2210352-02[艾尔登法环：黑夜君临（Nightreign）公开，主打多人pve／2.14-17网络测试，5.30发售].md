@@ -336,3 +336,14 @@
 
 我怀疑不加入幽影树武器是因为fs的程序员搞不定要怎么限制只有买了dlc的人才能玩到新武器（。
 
+
+*****
+
+####  RUANHYC  
+##### 1832#       发表于 2025-12-6 03:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68830017&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-12-5 17:08</a>
+
+我怀疑不加入幽影树武器是因为fs的程序员搞不定要怎么限制只有买了dlc的人才能玩到新武器（。 ...</blockquote>
+新地形也是，只有选dlc俩boss才能进<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
