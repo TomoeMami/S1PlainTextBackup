@@ -448,3 +448,34 @@ p25 今千秋
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lydia5989  
+##### 1446#       发表于 2025-12-5 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68829589&amp;ptid=2208663" target="_blank">noneoneone 发表于 2025-12-5 16:07</a>
+
+去年bg看得还挺开心的，今年这个cp我实在不行
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v3.5.99-al ...</blockquote>
+去年啥塑造和剧情参与度，悟哥哥打满全场亲自上阵帮助分析还贡献了一集q娃作画回，今年这男人通共才露脸几次
+
+*****
+
+####  宅音  
+##### 1447#       发表于 2025-12-5 16:31
+
+茶几蓝神原配还是个被渣男欺骗的可怜姑娘，你这凯特原配直接是个男的了<img src="https://static.stage1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 1448#       发表于 2025-12-5 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68829737&amp;ptid=2208663" target="_blank">lydia5989 发表于 2025-12-5 16:28</a>
+去年啥塑造和剧情参与度，悟哥哥打满全场亲自上阵帮助分析还贡献了一集q娃作画回，今年这男人通共才露脸 ...</blockquote>
+去年那是付出了牺牲了狗组塑造还搭上了猫组的代价才成就了大男主兔山，今年这纯纯两头堵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
