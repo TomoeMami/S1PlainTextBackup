@@ -244,3 +244,11 @@
 
 (昨天白天打了两把直接过了俩boss，结果晚上没赢一把，怎么回事呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 1823#       发表于 2025-12-5 10:31
+
+各位大佬 有没有 送葬者 和  学者 专职属性遗物的具体数值可以分享一下吗
+
