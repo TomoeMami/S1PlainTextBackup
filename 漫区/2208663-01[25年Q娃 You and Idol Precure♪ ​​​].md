@@ -479,3 +479,14 @@ p25 今千秋
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lydia5989  
+##### 1449#       发表于 2025-12-5 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68829764&amp;ptid=2208663" target="_blank">Parahure 发表于 2025-12-5 16:31</a>
+
+去年那是牺牲了狗组塑造还搭上了猫组才成就了大男主兔山，今年这纯纯两头堵 ...</blockquote>
+但通篇看下来不讨厌而且实打实塑造起来了，毕竟人家真干活，不打勤快的专打懒得就是这理儿，老露脸帮q娃真干活，真塞进来有意见也小得多
+
