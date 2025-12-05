@@ -1040,3 +1040,15 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  维克塔利昂  
+##### 295#       发表于 2025-12-5 11:24
+
+我还是不喜欢这游戏的刷怪速度，刚杀完走两步又刷出来。。。我跑个前期图还要被无聊的战斗一再打断，烦死了
+
+另外我的3级誓约渡渡消失了，不知道去哪里了，想换加速誓约都没得换<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还有芋虫为啥不理我，过去啥反应都没有<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
