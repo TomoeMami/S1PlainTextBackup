@@ -2512,3 +2512,16 @@ F91原案里的宇宙巴比伦战争就是这样的
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AminGly  
+##### 3192#       发表于 2025-12-5 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827353&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2025-12-5 09:42</a>
+
+好奇会怎么实装，原创剧情活动么？居然有点期待了
+
+—— 来自 S1Fun</blockquote>
+反转了 图是假的
+
