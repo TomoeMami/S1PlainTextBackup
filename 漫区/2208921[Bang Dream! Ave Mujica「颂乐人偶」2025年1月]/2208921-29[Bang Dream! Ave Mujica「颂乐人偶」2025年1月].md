@@ -592,3 +592,22 @@ https://weibo.com/2638252657/QgOO17kzV</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  仟音一心  
+##### 41523#       发表于 2025-12-5 14:06
+
+昨晚的元祖邦多利酱对画师简直是狂欢。
+<img src="https://p.sda1.dev/29/c5e0399a2e10852cf08c84025b2a9ce3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/70e8fdd363beb121b48e70e0ed3af301/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/f6fc9cf12cc3f09d3f919ae4a2c6a8b5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 41524#       发表于 2025-12-5 14:10
+
+构图。
+<img src="https://p.sda1.dev/29/cde15353b43f684e602dc2e3ba13883e/image.jpg" referrerpolicy="no-referrer">
+
