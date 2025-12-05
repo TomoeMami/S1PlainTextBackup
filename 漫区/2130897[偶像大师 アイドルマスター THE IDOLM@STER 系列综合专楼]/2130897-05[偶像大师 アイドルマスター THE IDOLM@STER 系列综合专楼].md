@@ -42,3 +42,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  信长的呕吐  
+##### 7206#       发表于 2025-12-5 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827044&amp;ptid=2130897" target="_blank">Unlight 发表于 2025-12-5 08:27</a>
+啊，我错过了什么
+
+—— 来自 S1Fun</blockquote>
+卖圣诞趴BD的时候顺带卖的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
