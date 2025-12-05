@@ -2474,3 +2474,16 @@ F91原案里的宇宙巴比伦战争就是这样的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rockroxas  
+##### 3189#       发表于 2025-12-5 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68821159&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-12-3 21:30</a>
+
+F91原案里的宇宙巴比伦战争就是这样的
+
+然后被日升给玩没了</blockquote>
+宇宙巴比伦不是战国多强并立吗，跟两个巨型势力差很多吧
+
