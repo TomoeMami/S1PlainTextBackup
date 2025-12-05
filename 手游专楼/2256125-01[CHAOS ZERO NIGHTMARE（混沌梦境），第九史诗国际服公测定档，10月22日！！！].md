@@ -7306,3 +7306,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 该刷个凯弟弟了</blockquote>
 对我来说你们比**笑门更劝退
 
+
+*****
+
+####  三谷歩夢  
+##### 647#       发表于 2025-12-5 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68831267&amp;ptid=2256125" target="_blank">windaria 发表于 2025-12-5 20:54</a>
+
+对我来说你们比**笑门更劝退</blockquote>
+这种卡组比常规毕业卡组好刷，主要是只需要赌一个闪，也不用赌复制，剩下的进图看看几个商店点就知道大概能不能出货了
+
