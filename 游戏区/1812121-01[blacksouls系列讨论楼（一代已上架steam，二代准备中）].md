@@ -1052,3 +1052,13 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 还有芋虫为啥不理我，过去啥反应都没有<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 296#       发表于 2025-12-5 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827984&amp;ptid=1812121" target="_blank">维克塔利昂 发表于 2025-12-5 11:24</a>
+我还是不喜欢这游戏的刷怪速度，刚杀完走两步又刷出来。。。我跑个前期图还要被无聊的战斗一再打断，烦死了 ...</blockquote>
+进度10狂鸟唱歌了，誓约对象都似了
+
