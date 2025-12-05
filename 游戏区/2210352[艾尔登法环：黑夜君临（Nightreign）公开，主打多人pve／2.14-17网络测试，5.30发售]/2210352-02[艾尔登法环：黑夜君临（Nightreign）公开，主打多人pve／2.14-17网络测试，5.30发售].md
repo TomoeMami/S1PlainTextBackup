@@ -252,3 +252,25 @@
 
 各位大佬 有没有 送葬者 和  学者 专职属性遗物的具体数值可以分享一下吗
 
+
+*****
+
+####  wasian  
+##### 1824#       发表于 2025-12-5 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827223&amp;ptid=2210352" target="_blank">hirro 发表于 2025-12-5 09:17</a>
+
+两个角色都感觉超垃圾，修女就是一个输出和削韧只有一半但是更灵活的无赖……小锤可真太垃圾了 ...</blockquote>
+没道理的，光灵活就比无赖强了，深夜无赖什么处境
+
+
+*****
+
+####  忘却旋律  
+##### 1825#       发表于 2025-12-5 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68828064&amp;ptid=2210352" target="_blank">wasian 发表于 2025-12-5 11:38</a>
+
+没道理的，光灵活就比无赖强了，深夜无赖什么处境</blockquote>
+普通技艺 滑步， 强化技艺更是自保一流，目前玩下来 只感觉 绿条有点短 血条可以考遗物撑 ，自己各种BUFF又多
+
