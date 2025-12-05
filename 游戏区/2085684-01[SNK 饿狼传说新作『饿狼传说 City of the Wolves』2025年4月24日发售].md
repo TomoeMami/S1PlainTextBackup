@@ -12,3 +12,11 @@
 
 【【4K60帧】《饿狼传说：群狼之城》DLC角色 Mr.BIG 实机游玩 | 作者：RajmanGaming HD-哔哩哔哩】 [https://b23.tv/ZOAJ4EV](https://b23.tv/ZOAJ4EV)
 
+
+*****
+
+####  人生オワタ  
+##### 605#       发表于 2025-12-5 10:02
+
+【《饿狼传说：群狼之城》角色性能介绍 - Mr.BIG-哔哩哔哩】 [https://b23.tv/Tpp5xfx](https://b23.tv/Tpp5xfx)
+
