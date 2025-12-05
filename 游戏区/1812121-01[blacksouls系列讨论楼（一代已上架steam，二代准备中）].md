@@ -1150,3 +1150,32 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 凑合玩算了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 305#       发表于 2025-12-5 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68830339&amp;ptid=1812121" target="_blank">维克塔利昂 发表于 2025-12-5 18:04</a>
+初见，你说了我才知道还有灯这种东西
+
+倒是防火女已经告诉我有人走图书馆最上面那个门过去了，让我追，不 ...</blockquote>
+出提醒就是十灯了。没事，二周目走可以全收集，有齿轮0sen100sen都能全收集然后进里线结局，打完之后三周目进DLC3
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cnmyster1ous  
+##### 306#       发表于 2025-12-5 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68830339&amp;ptid=1812121" target="_blank">维克塔利昂 发表于 2025-12-5 18:04</a>
+初见，你说了我才知道还有灯这种东西
+
+倒是防火女已经告诉我有人走图书馆最上面那个门过去了，让我追，不 ...</blockquote>
+没所谓的 这个游戏本来就是需要至少3周目才能玩到所有内容的
+第一周目不看攻略错过很多东西也正常，毕竟体验为主。
+错过的东西二周目看着攻略触发就好了，没有一周目对于数值的积累和对战斗机制的理解，进里线的很多战斗是打不了的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
