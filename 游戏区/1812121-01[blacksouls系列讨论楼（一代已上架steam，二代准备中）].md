@@ -1233,3 +1233,14 @@ dlc3要什么水平的数值才够，被门口两个小怪当野狗踹死了</bl
 
 h部分对这个游戏的（剧情）影响大吗？
 
+
+*****
+
+####  despotnanoha  
+##### 311#       发表于 2025-12-6 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68834562&amp;ptid=1812121" target="_blank">RinQ0326 发表于 2025-12-6 19:55</a>
+
+h部分对这个游戏的（剧情）影响大吗？</blockquote>
+也就里线一上来那块剧情可能会丢了点，其他倒还好
+
