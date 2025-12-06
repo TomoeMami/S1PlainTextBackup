@@ -2064,3 +2064,13 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 打完了，真不错，虽然没有fana那么惊艳但总体上还是个扎扎实实的好游戏<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hootao  
+##### 180#       发表于 2025-12-6 12:15
+
+刚进第10章，已经拆完了冰雪大空洞、夜天不变塔、瘴城、火山和清静次元这几个100-132级的迷宫，拿到了5个人类灭亡因子
+
+然而打几个跨级BOSS也依旧没能用上几个主角的根源觉醒技，这根源觉醒也太难攒了，常规BOSS血条见底了也攒不够，强力BOSS打削弱和控制又完全不需要攒。
+
