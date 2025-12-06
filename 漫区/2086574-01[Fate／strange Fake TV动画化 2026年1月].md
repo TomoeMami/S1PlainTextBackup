@@ -4381,3 +4381,13 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 有没有追了原著的说说是什么水平？比得上无头吗？
 
+
+*****
+
+####  岸波白野  
+##### 426#       发表于 2025-12-7 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68835513&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-6 23:50</a>
+有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
+差得很远，只能说在fate一众动画化的衍生作里只能做到稳比fa好，和fz也是差了非常多
+
