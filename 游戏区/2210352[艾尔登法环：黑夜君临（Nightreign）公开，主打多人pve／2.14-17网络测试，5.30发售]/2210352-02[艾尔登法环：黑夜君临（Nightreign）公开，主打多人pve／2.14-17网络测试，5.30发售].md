@@ -414,3 +414,12 @@
 
 连dlc都能这么快200w。。。 这attach rate绝了吧
 
+
+*****
+
+####  leafS  
+##### 1840#       发表于 2025-12-6 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832845&amp;ptid=2210352" target="_blank">我不是夏承凛 发表于 2025-12-6 10:31</a></blockquote>
+感觉是算上豪华版里的了，不然我真不信2天卖200W的DLC
+
