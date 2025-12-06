@@ -358,3 +358,11 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qwased  
+##### 7263#       发表于 2025-12-7 00:28
+
+帧数已经从今年最垃圾的时候60不稳提高到现在的稳定144了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以是一定要喷爆贱头才会认真干活吗
+
