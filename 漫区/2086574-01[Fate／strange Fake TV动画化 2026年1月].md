@@ -4350,3 +4350,13 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 因为先行的第4集已经做到第三卷开头了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 半年番动画分割放送就这样，后面还能来个和小说同步完结
 
+
+*****
+
+####  被子十三  
+##### 423#       发表于 2025-12-6 20:37
+
+好像日本电影院已经有先行点映了。弓海的声优有说法吗
+
+— from OnePlus CPH2583, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
