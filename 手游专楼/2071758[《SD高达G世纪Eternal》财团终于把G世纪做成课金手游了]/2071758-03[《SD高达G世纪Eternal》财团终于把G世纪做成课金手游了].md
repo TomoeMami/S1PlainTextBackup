@@ -2657,3 +2657,11 @@ nga看到了，钓鱼bond真是好笑
 
 圣诞大概率不止0080，毕竟有直播的，这游戏几次直播都是一大堆东西，应该是对标逆袭和种命一起更新那次
 
+
+*****
+
+####  arthes  
+##### 3207#       发表于 2025-12-6 20:51
+
+有生放送加圣诞新年，希望是nt1蓝机和掉毛红机双限定<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
