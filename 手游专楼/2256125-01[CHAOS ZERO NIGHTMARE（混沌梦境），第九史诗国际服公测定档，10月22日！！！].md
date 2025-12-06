@@ -7348,3 +7348,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 无法理解你们不带奶是怎么打得过的</blockquote>
 雷伊有奶啊，命座有个一回合一次的攻击牌100%治愈，吃点心也有点奶，千鹤也有点小奶，多坐火还是能打的，输出高就相当于血线压力小
 
+
+*****
+
+####  sodah  
+##### 651#       发表于 2025-12-6 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832696&amp;ptid=2256125" target="_blank">windaria 发表于 2025-12-6 09:45</a>
+
+无法理解你们不带奶是怎么打得过的</blockquote>
+他那个阵容还是有点奶的，真一滴奶都没的你就买点中立卡增加下生存，还有让一个人闪的选点不屈什么的负重前行，别老想着一次三个人都美美撤离
+
