@@ -2074,3 +2074,16 @@ SAD是写错了，应该是SAE<img src="https://static.stage1st.com/image/smiley
 
 然而打几个跨级BOSS也依旧没能用上几个主角的根源觉醒技，这根源觉醒也太难攒了，常规BOSS血条见底了也攒不够，强力BOSS打削弱和控制又完全不需要攒。
 
+
+*****
+
+####  InfiniteGyre  
+##### 181#       发表于 2025-12-6 12:28
+
+ 本帖最后由 InfiniteGyre 于 2025-12-6 12:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68833200&amp;ptid=2263973" target="_blank">hootao 发表于 2025-12-6 12:15</a>
+刚进第10章，已经拆完了冰雪大空洞、夜天不变塔、瘴城、火山和清静次元这几个100-132级的迷宫，拿到了5个人 ...</blockquote>
+好用的残留斗技最终章开头才一个个给出来，那时候基本上就是三回合全员100，难点反而是攒tp
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
