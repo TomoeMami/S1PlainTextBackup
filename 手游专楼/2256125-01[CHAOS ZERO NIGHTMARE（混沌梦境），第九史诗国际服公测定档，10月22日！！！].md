@@ -7337,3 +7337,14 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 差点第二面半路翻车，靠着SL过了，还顺手刷了奶刀，可惜第二面没遇到复制事件，而是傻逼命运事件。
 
+
+*****
+
+####  三谷歩夢  
+##### 650#       发表于 2025-12-6 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832696&amp;ptid=2256125" target="_blank">windaria 发表于 2025-12-6 09:45</a>
+
+无法理解你们不带奶是怎么打得过的</blockquote>
+雷伊有奶啊，命座有个一回合一次的攻击牌100%治愈，吃点心也有点奶，千鹤也有点小奶，多坐火还是能打的，输出高就相当于血线压力小
+
