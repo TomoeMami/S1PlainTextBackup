@@ -338,3 +338,11 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 
 这下真走星球大战线了，老外嚷嚷的要给minigun配个风暴兵同款能量盾不会真给吧？
 
+
+*****
+
+####  ykyin09  
+##### 7261#       发表于 2025-12-6 08:13
+
+这偷金条也太难了，机器人的增援就没停过，我反坦克炮都摇冒烟啦<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
