@@ -423,3 +423,18 @@
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832845&amp;ptid=2210352" target="_blank">我不是夏承凛 发表于 2025-12-6 10:31</a></blockquote>
 感觉是算上豪华版里的了，不然我真不信2天卖200W的DLC
 
+
+*****
+
+####  usodakedo  
+##### 1841#       发表于 2025-12-6 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827583&amp;ptid=2210352" target="_blank">另外四分之三 发表于 2025-12-5 10:16</a>
+
+我魂二boss呢，你最好也是跟影树武器一样后续更新过来
+
+(昨天白天打了两把直接过了俩boss，结果晚上没赢一把 ...</blockquote>
+没怎么加魂2的boss可能是因为引擎不同的缘故，移植会更花功夫fs这帮人就懒得搞了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过单说魂2合适的boss确实也不算多，例如像镜之骑士这种有同生态位的boss了，而像烟老师这种人形考你翻滚的在黑环里有显得太弱。不过魂3很多合适的美移植过来，我只觉得大概率出于一些商业考虑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（让你一个游戏体验全了boss我赛博黄金岂不是卖不出去了）
+
