@@ -446,3 +446,16 @@
 
 七仙女这解包出来的三阶段造型可真够带劲的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 1843#       发表于 2025-12-6 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832975&amp;ptid=2210352" target="_blank">聊nsy专用号 发表于 2025-12-6 11:06</a>
+
+修女技能回绿还自带1.21倍伤害buff 还有唯一连击攻遗物 其他近战怎么比
+
+学者更离谱 壶伤害＋1是30%加成倍 ...</blockquote>
+不返还但是可以快点进冷却，17的小巧思说是<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
