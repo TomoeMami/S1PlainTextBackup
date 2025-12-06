@@ -346,3 +346,15 @@ https://www.bilibili.com/video/BV19BSYBuEMU
 
 这偷金条也太难了，机器人的增援就没停过，我反坦克炮都摇冒烟啦<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7262#       发表于 2025-12-6 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832434&amp;ptid=2170852" target="_blank">ykyin09 发表于 2025-12-6 08:13</a>
+这偷金条也太难了，机器人的增援就没停过，我反坦克炮都摇冒烟啦</blockquote>
+别想着清，用烟雾系备战偷鸡就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
