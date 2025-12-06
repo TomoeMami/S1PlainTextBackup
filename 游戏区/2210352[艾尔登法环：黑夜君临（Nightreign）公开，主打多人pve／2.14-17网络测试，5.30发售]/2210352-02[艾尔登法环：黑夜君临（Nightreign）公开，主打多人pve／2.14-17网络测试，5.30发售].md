@@ -438,3 +438,11 @@
 
 不过单说魂2合适的boss确实也不算多，例如像镜之骑士这种有同生态位的boss了，而像烟老师这种人形考你翻滚的在黑环里有显得太弱。不过魂3很多合适的美移植过来，我只觉得大概率出于一些商业考虑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（让你一个游戏体验全了boss我赛博黄金岂不是卖不出去了）
 
+
+*****
+
+####  zakki  
+##### 1842#       发表于 2025-12-6 21:02
+
+七仙女这解包出来的三阶段造型可真够带劲的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
