@@ -512,3 +512,12 @@ msm频道是会员没断过，直播没看过的状态。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老叶这专辑封面图的事闹得真好玩啊
 
+
+*****
+
+####  北山玖公  
+##### 1644#       发表于 2025-12-6 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">谁都得做背调。
+彩虹社里死的一堆人，出的一堆事无数次的证明了背调的重要性。
+
