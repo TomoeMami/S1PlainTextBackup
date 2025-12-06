@@ -214,3 +214,19 @@ Screenshot_火环_20251128_145618.jpg
 暗龙点了霸体还会被超级 ...</blockquote>
 感谢 那就换别的了 体力刷升级素材就用完了 维护都不发辣椒的 太扣了
 
+
+*****
+
+####  MobileMeowbot  
+##### 77#       发表于 2025-12-6 16:16
+
+抽不到回血宠物，不选三连陨石和大多数给怪加生存的词条，尽力了
+
+<img src="https://img.stage1st.com/forum/202512/06/161635wobuo9uae3ptwgbv.jpg" referrerpolicy="no-referrer">
+
+<strong>火球火毯烫烫烫.jpg</strong> (179.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-6 16:16 上传
+
