@@ -532,3 +532,11 @@ p25 今千秋
 <img src="https://files.catbox.moe/3ic0jw.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/4udqbb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  経緯  
+##### 1451#       发表于 2025-12-6 16:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">水三个星期，过完元旦看不知所谓的结局，又是一年！
+
