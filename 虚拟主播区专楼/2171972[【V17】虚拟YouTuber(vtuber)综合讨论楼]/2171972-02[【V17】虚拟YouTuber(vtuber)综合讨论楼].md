@@ -538,3 +538,15 @@ msm频道是会员没断过，直播没看过的状态。
 <img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这事牢叶还真不一定有发言权
 说句题外话这专里有kz，超辉夜姬也有kz，而啤酒烧烤至今没kz新曲，我怀疑kz不接烤的商单
 
+
+*****
+
+####  poipanchao  
+##### 1647#       发表于 2025-12-6 22:20
+
+新一代虹女是不是都要把舞练出来，るり的short体感舞蹈水平比刚开始成长了很多
+
+感觉目前有印象比较菜的也就uouo
+
+话说新男人是真养出来了，就是男偶像低的仿佛是neop的人
+
