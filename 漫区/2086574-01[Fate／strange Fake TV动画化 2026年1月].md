@@ -4341,3 +4341,12 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 <img src="https://p.sda1.dev/29/c3b9f86ef0e4062e43e02a6d20e87e5b/20251206_172433.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 422#       发表于 2025-12-6 17:49
+
+因为先行的第4集已经做到第三卷开头了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+半年番动画分割放送就这样，后面还能来个和小说同步完结
+
