@@ -4331,3 +4331,13 @@ fgo明年新年池会是谁呢</blockquote>
 
 新pv有了，感觉已经做到比较后面的卷数了
 
+
+*****
+
+####  Piano-Forest  
+##### 421#         楼主| 发表于 2025-12-6 17:27
+
+PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
+
+<img src="https://p.sda1.dev/29/c3b9f86ef0e4062e43e02a6d20e87e5b/20251206_172433.jpg" referrerpolicy="no-referrer">
+
