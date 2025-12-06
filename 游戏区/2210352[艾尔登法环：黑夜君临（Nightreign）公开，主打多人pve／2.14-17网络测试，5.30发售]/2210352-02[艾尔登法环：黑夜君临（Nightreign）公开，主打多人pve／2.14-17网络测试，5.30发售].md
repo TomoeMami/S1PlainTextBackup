@@ -347,3 +347,25 @@
 我怀疑不加入幽影树武器是因为fs的程序员搞不定要怎么限制只有买了dlc的人才能玩到新武器（。 ...</blockquote>
 新地形也是，只有选dlc俩boss才能进<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RUANHYC  
+##### 1833#       发表于 2025-12-6 03:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68830017&amp;ptid=2210352" target="_blank">petitlui 发表于 2025-12-5 17:08</a>
+
+我怀疑不加入幽影树武器是因为fs的程序员搞不定要怎么限制只有买了dlc的人才能玩到新武器（。 ...</blockquote>
+新地形也是，只有选dlc俩boss才能进<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ohi.02  
+##### 1834#       发表于 2025-12-6 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827223&amp;ptid=2210352" target="_blank">hirro 发表于 2025-12-5 09:17</a>
+两个角色都感觉超垃圾，修女就是一个输出和削韧只有一半但是更灵活的无赖……小锤可真太垃圾了 ...</blockquote>
+那是你没见过王山羊是怎么被教育的，昨天我三倒然后颠羊召唤六个罪人，队友开个链接，什么都没干，没一会儿罪人就都挂了，我也不知怎么的突然被拉起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
