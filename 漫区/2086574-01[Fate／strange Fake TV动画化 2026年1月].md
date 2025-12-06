@@ -4360,3 +4360,16 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 — from OnePlus CPH2583, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 424#       发表于 2025-12-6 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68834730&amp;ptid=2086574" target="_blank">被子十三 发表于 2025-12-6 20:37</a>
+好像日本电影院已经有先行点映了。弓海的声优有说法吗
+
+— from OnePlus CPH2583, Android 15, S1 Next Goo ...</blockquote>
+要什么说法，不还是西前忠久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没有换
+
