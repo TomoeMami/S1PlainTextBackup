@@ -7359,3 +7359,13 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 无法理解你们不带奶是怎么打得过的</blockquote>
 他那个阵容还是有点奶的，真一滴奶都没的你就买点中立卡增加下生存，还有让一个人闪的选点不屈什么的负重前行，别老想着一次三个人都美美撤离
 
+
+*****
+
+####  森下未散  
+##### 652#       发表于 2025-12-6 22:05
+
+带雷伊要上四星伙伴，战斗结束恢复3%生命值那个，三选一命运也可以拿5%战后回血的，而且最好别选不能坐火的，不然压力也很难控，鼠鼠千鹤都是同款性格，上述两种回血方式不能阻止她们的扣San值<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
