@@ -2573,3 +2573,16 @@ nga看到了，钓鱼bond真是好笑
 —— 来自 S1Fun</blockquote>
 现在bond说不标出处是对面屁股歪
 
+
+*****
+
+####  rockroxas  
+##### 3198#       发表于 2025-12-6 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68832300&amp;ptid=2071758" target="_blank">Leliel 发表于 2025-12-6 04:56</a>
+
+刚入坑，现在ur十选一推荐选什么</blockquote>
+买的初始按母舰选，看看哪个红色三动机师或者黄色双支援机师适合，都有就93骡鸭
+
+自己刷初始的话建议现在熟悉熟悉，看看之后尤其是15号到圣诞，等限定母舰再刷（现在up的母舰挺一般）
+
