@@ -459,3 +459,11 @@
 学者更离谱 壶伤害＋1是30%加成倍 ...</blockquote>
 不返还但是可以快点进冷却，17的小巧思说是<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaosayang  
+##### 1844#       发表于 2025-12-6 22:48
+
+算上豪华版也很多了 普通玩家真没几个入豪华版的，还是在本作预期和前期风评这么差的情况下
+
