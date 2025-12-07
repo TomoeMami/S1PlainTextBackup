@@ -4437,3 +4437,16 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hkguty  
+##### 431#       发表于 2025-12-7 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68836869&amp;ptid=2086574" target="_blank">199april 发表于 2025-12-7 12:03</a>
+
+喜欢看各路英灵互相扔核弹的可以看，大场面绝对不少，综合战力是所有fate衍生作除了fgo的最高那档
+
+和无头 ...</blockquote>
+那估计看点就是打戏了，但是不知道动画能不能把持得住
+
