@@ -566,3 +566,15 @@ p25 今千秋
 
 你也边唱边打了吗！
 
+
+*****
+
+####  Parahure  
+##### 1455#       发表于 2025-12-7 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68836031&amp;ptid=2208663" target="_blank">modedd 发表于 2025-12-7 07:43</a>
+欸？我还以为凯特君跟前男友复合之后存在感会低一些来着</blockquote>
+公费追星，咖位不能少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
