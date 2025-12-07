@@ -4461,3 +4461,20 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 那估计看点就是打戏了，但是不知道动画能不能把持得住</blockquote>
 8成剧情都是打和打一半寸止，文戏非常少和没有没区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 433#       发表于 2025-12-7 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68835513&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-6 23:50</a>
+
+有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
+不叠甲，我没看过这个作者其他小说
+
+这个fake刚出的时候我就看过，我也不记得是10年前还是20年前，当时感觉这作者日语水平很差，可以调动的词汇量很少，对话像是小学生写的（也有可能和西尾一样是灌水骗稿费）
+
+第三本以后我就没看了
+
+动画出之前想补的话，我的建议是看漫画版
+
