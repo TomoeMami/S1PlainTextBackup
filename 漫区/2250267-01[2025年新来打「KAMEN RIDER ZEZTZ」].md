@@ -218,3 +218,11 @@ Eliminate the enemy.（将敌人抹杀）
 
 艹，再说下去是不是主角的胶囊都是以前经历过的坏事，而且遇到这些都不是因为主角自己霉比，而是组织特意安排的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 468#       发表于 2025-12-7 17:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">牢莫这集破防的演技挺棒的，看看下级要怎么超越光速
+
