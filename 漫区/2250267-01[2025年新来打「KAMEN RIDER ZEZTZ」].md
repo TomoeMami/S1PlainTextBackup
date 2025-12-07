@@ -210,3 +210,11 @@ Eliminate the enemy.（将敌人抹杀）
 
 高桥暂时还是天才编剧m形态，按照下集是等离子形态对应被雷劈，那就是还有鲨鱼和陨石对应的形态咯
 
+
+*****
+
+####  nagamasa  
+##### 467#       发表于 2025-12-7 16:52
+
+艹，再说下去是不是主角的胶囊都是以前经历过的坏事，而且遇到这些都不是因为主角自己霉比，而是组织特意安排的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
