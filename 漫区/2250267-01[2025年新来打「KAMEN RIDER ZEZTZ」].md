@@ -226,3 +226,11 @@ Eliminate the enemy.（将敌人抹杀）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">牢莫这集破防的演技挺棒的，看看下级要怎么超越光速
 
+
+*****
+
+####  pokemon最爱  
+##### 469#       发表于 2025-12-7 18:53
+
+ZZZ必秒蛇皮怪（大雾）[f:037
+
