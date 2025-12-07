@@ -18,3 +18,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">手握20王女，没有一只力个体，至今未去做王女个人任务，drecom我〇你〇〇
 
+
+*****
+
+####  茄子自走炮  
+##### 579#       发表于 2025-12-7 11:16
+
+普通冒险者的结缘怎么刷
+
+缺升70的票顺便做一下
+
