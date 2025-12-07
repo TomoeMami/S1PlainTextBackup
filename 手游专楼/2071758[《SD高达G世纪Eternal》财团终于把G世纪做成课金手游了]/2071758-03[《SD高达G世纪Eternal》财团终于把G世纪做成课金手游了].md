@@ -2707,3 +2707,62 @@ SSP能增加地图炮，SSR大白鹅和柯西就有必要sp了
 
 克队有扎夫特光环，但是减防只有25%，感觉人有用，机不行
 
+
+*****
+
+####  シャル  
+##### 3213#         楼主| 发表于 2025-12-7 18:09
+
+ 本帖最后由 シャル 于 2025-12-7 18:10 编辑 
+
+机子没啥用
+
+驾驶员还行
+
+但是zaft+5%攻防也没啥用啊
+
+屏幕截图 2025-12-07 180745.jpg
+(201.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-7 18:09 上传
+
+<img src="https://img.stage1st.com/forum/202512/07/180923pagasikysas3laal.jpg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" title="屏幕截图 2025-12-07 180745.jpg" w="1636" width="800" zoomfile="https://img.stage1st.com/forum/202512/07/180923pagasikysas3laal.jpg">
+
+屏幕截图 2025-12-07 180808.jpg
+(226.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-7 18:09 上传
+
+<img src="https://img.stage1st.com/forum/202512/07/180924xkmn6e7m5tcb9r5p.jpg" referrerpolicy="no-referrer">
+
+屏幕截图 2025-12-07 180827.jpg
+(216.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-7 18:09 上传
+
+<img src="https://img.stage1st.com/forum/202512/07/180926itetcdp9aopnf4to.jpg" referrerpolicy="no-referrer">
+
+屏幕截图 2025-12-07 180850.jpg
+(284.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-7 18:09 上传
+
+<img src="https://img.stage1st.com/forum/202512/07/180927ec0wwffvvwcjo4xk.jpg" referrerpolicy="no-referrer">
+
+屏幕截图 2025-12-07 180911.jpg
+(316.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-7 18:09 上传
+
+<img src="https://img.stage1st.com/forum/202512/07/180929tamblf6lf6b7mrsl.jpg" referrerpolicy="no-referrer">
+
