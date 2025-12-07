@@ -48,3 +48,11 @@
 
 造型都像完全体了
 
+
+*****
+
+####  はちたや  
+##### 313#       发表于 2025-12-7 11:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">成长期还是个小可爱，成熟期就变成奇怪的东西了...
+
