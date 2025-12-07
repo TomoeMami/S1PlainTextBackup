@@ -168,3 +168,17 @@ Eliminate the enemy.（将敌人抹杀）
 
 讨论东映物理学先过歌查德大王几百分贝灭世派生<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 463#       发表于 2025-12-7 12:55
+
+最近两话进主线比前面好多了。上话妹妹见ZERO时没太惊讶，对面突然出现一个摩托人，竟然没先问你是谁，而是问你会解释我哥现在什么状况的吧
+
+结合第一话男主认为ZERO只是自己幻想的特工故事里的司令官，大概是小时候男主就接触过特工组织，但因为什么事失忆了并且把那段经历当成了自己的梦（跟救人就会不幸的体质有关），妹妹不一定跟特工组织有过多少直接接触，但知道点哥哥小时候经历和ZERO的内幕。
+
+就是富士见这角色后面不补救一下观感太差了。一直私闯民宅又没帮上什么忙，想进梦境解决梦魇，又没有像男主那样梦境特工的手段，就无能狂怒呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说男主被自己搓的黑洞搞成植物人是不是有点搞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
