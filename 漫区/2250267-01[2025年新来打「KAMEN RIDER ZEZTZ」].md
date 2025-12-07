@@ -200,3 +200,13 @@ Eliminate the enemy.（将敌人抹杀）
 
 隔壁搜查一科热血老人一踏米都当了一辈子巡查部长了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 466#       发表于 2025-12-7 14:41
+
+什么叫派生形态击碎天体搓出黑洞<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+高桥暂时还是天才编剧m形态，按照下集是等离子形态对应被雷劈，那就是还有鲨鱼和陨石对应的形态咯
+
