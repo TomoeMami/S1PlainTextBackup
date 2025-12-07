@@ -67,3 +67,14 @@
 
 那么问题来了，还有14集，坑能填完嘛……
 
+
+*****
+
+####  lydia5989  
+##### 243#       发表于 2025-12-7 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68838865&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2025-12-7 21:35</a>
+
+34话真好看啊，没有变身干架，没有插入曲，前半段回忆演出+后半段文戏居然看得有点爽，就是前面硬憋水回数 ...</blockquote>
+光速填坑中，起码这集把白女王明面上的目的写明白了，背后啥打算等变身后了
+

@@ -4478,3 +4478,11 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 动画出之前想补的话，我的建议是看漫画版
 
+
+*****
+
+####  斯卡哈  
+##### 434#       发表于 2025-12-7 22:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">比预想的做得快啊，直接都要做到闪大王掉线了，森井自己漫画都还没画到这呢吧
+
