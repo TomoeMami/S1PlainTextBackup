@@ -68,3 +68,18 @@
 
 成熟期像是那种紧身衣很享受捆绑的给，这会成为后续的一贯风格吗<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natlk  
+##### 315#       发表于 2025-12-7 13:45
+
+兜帽蝠兽怎么进化后像是正义兽<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 316#       发表于 2025-12-7 13:47
+
+夜蝠兽真的好像完全体。这集好赶，春子后续大概率还会登场，阴影兽还有个光环兽的进化伏笔没收，而且对诚有好感后面也可以做文章。
+
