@@ -2691,3 +2691,11 @@ nga看到了，钓鱼bond真是好笑
 
 支援神意一点意思没有啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 3211#         楼主| 发表于 2025-12-7 10:58
+
+SSP能增加地图炮，SSR大白鹅和柯西就有必要sp了
+
