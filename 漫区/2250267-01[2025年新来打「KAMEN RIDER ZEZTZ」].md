@@ -97,3 +97,24 @@ Eliminate the enemy.（将敌人抹杀）
 
 当全新的力量「等离子」胶囊轰鸣之时，闪电将驰骋战场！！
 
+
+*****
+
+####  milky658  
+##### 456#       发表于 2025-12-7 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68836483&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2025-12-7 10:38</a>
+摩托车人的反派样怎么越来越凸显了，是为了让大伙代入诺克斯视角搞的欺诈吗，还是真就boss像。。
+
+—— 来 ...</blockquote>
+然而摩托人反派逼格在妹妹的小剧场掉光了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 457#       发表于 2025-12-7 10:54
+
+我现在感觉，梦胶囊都是自己过去做过的噩梦转化为的力量，莫被雷劈过所以等离子形态就是曾经被雷劈的噩梦力量转化来的，所以果然现阶段的现实也是梦
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

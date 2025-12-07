@@ -4401,3 +4401,16 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
 动画好好做绝对能火的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有故事内核，但各种爆米花斗兽太多了
 
+
+*****
+
+####  シャル  
+##### 428#       发表于 2025-12-7 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68835513&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-6 23:50</a>
+
+有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
+打天之公牛爽气<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这原版的可比废狗活动的那个只剩腿的复制品厉害多了
+
