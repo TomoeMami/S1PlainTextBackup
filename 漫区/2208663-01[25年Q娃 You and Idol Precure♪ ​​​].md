@@ -620,3 +620,14 @@ p25 今千秋
 
 微妙，很难想象这是属于主角个人回的收尾。但咱不喜欢大女主，今年又水的过分，偶Q确实就这个德行。所以也还好？<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1461#       发表于 2025-12-7 14:25
+
+还有直接改名字改成《追星与带货 光之美少女♪ 》吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下集终于真主线了 但是是绫奈大圣人写的 加藤您学哪位好前辈哦<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+下下集圣诞节商战 估计又要很很带一波货
+
