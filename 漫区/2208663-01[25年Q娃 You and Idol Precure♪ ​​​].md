@@ -578,3 +578,13 @@ p25 今千秋
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  codezwei  
+##### 1456#       发表于 2025-12-7 10:40
+
+这集脚本还可以，打戏花活玩的不错：御盾飞行+狮吼功
+
+大姐头还是太忠了 是我早跳反了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
