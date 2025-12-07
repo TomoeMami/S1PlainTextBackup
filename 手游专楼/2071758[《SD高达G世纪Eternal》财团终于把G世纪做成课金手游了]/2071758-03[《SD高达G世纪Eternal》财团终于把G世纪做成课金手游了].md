@@ -2766,3 +2766,11 @@ SSP能增加地图炮，SSR大白鹅和柯西就有必要sp了
 
 <img src="https://img.stage1st.com/forum/202512/07/180929tamblf6lf6b7mrsl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GameTheory  
+##### 3214#       发表于 2025-12-7 19:52
+
+京宝梵 动画里面机体不错，然而这驾驶员卡明斯基不太美型 还不如上巴尼的旧扎古呢XD
+
