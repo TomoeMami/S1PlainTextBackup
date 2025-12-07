@@ -4414,3 +4414,16 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 这原版的可比废狗活动的那个只剩腿的复制品厉害多了
 
+
+*****
+
+####  199april  
+##### 429#       发表于 2025-12-7 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68835513&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-6 23:50</a>
+
+有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜欢看各路英灵互相扔核弹的可以看，大场面绝对不少，综合战力是所有fate衍生作除了fgo的最高那档
+
+和无头不是一个路子的
+
