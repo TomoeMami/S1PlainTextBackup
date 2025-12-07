@@ -1252,3 +1252,20 @@ h部分对这个游戏的（剧情）影响大吗？</blockquote>
 
 黑之斩击刷出来了，是不是可以去dlc3 耍了
 
+
+*****
+
+####  cnmyster1ous  
+##### 313#       发表于 2025-12-8 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68839559&amp;ptid=1812121" target="_blank">pf67 发表于 2025-12-8 00:03</a>
+
+黑之斩击刷出来了，是不是可以去dlc3 耍了</blockquote>
+我印象里黑之斩击不是什么很重要的法术 主要作用是给纯法系处理那种全程魔法反射的怪
+
+混沌迷宫出产的我自己用得比较多的法术
+
+混沌爆炎 黑之波动 车轮 觉醒
+
+觉醒以后必爆的混沌爆炎打非耐火的敌人都是直接空血/死亡，算是比较强的输出手段
+
