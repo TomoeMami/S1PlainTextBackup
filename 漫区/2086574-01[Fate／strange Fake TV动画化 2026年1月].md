@@ -4427,3 +4427,13 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 和无头不是一个路子的
 
+
+*****
+
+####  KDConan  
+##### 430#       发表于 2025-12-7 12:15
+
+机制怪和数值怪们的狂欢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
