@@ -2683,3 +2683,11 @@ nga看到了，钓鱼bond真是好笑
 
 想抽克队和神意....但对京宝焚是一点兴趣也没有啊...还怕新年来个大的
 
+
+*****
+
+####  シャル  
+##### 3210#         楼主| 发表于 2025-12-7 10:31
+
+支援神意一点意思没有啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
