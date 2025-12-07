@@ -597,3 +597,14 @@
 
 遗物成长很明显的 可以做下角色支线
 
+
+*****
+
+####  modkingr  
+##### 1858#       发表于 2025-12-8 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68839397&amp;ptid=2210352" target="_blank">LeiaR 发表于 2025-12-7 23:12</a>
+
+入坑不想太菜坑人或者和野人呕气，单人打被打成狗了，毫无游戏体验</blockquote>
+这游戏大带小很轻松愉快的，加个群找人一起玩儿
+

@@ -11421,10 +11421,10 @@
     "update": false
   },
   "2210352": {
-    "totalreply": 1857,
+    "totalreply": 1858,
     "title": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "newtitle": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve，5.30发售／dlc12.4]",
-    "lastedit": 1765126688,
+    "lastedit": 1765129688,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 12055,
+    "totalreply": 12056,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼／1104审判日]",
-    "lastedit": 1765123454,
+    "lastedit": 1765129327,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16704,10 +16704,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 496,
+    "totalreply": 497,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1765128968,
+    "lastedit": 1765129207,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17249,6 +17249,15 @@
     "newtitle": "[姐弟恋ACG作品]",
     "lastedit": 1765122254,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2268995": {
+    "totalreply": 41,
+    "title": "[新国标红绿灯要来了]",
+    "newtitle": "[新国标红绿灯要来了]",
+    "lastedit": 1765129448,
+    "category": "外野",
     "active": true,
     "update": false
   }
