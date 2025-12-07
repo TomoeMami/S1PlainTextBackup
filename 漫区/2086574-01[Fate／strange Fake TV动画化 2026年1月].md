@@ -4450,3 +4450,14 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 和无头 ...</blockquote>
 那估计看点就是打戏了，但是不知道动画能不能把持得住
 
+
+*****
+
+####  岸浪白野  
+##### 432#       发表于 2025-12-7 15:25
+
+ 本帖最后由 岸浪白野 于 2025-12-7 15:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68837193&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-7 13:26</a>
+那估计看点就是打戏了，但是不知道动画能不能把持得住</blockquote>
+8成剧情都是打和打一半寸止，文戏非常少和没有没区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
