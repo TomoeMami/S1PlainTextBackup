@@ -182,3 +182,13 @@ Eliminate the enemy.（将敌人抹杀）
 
 话说男主被自己搓的黑洞搞成植物人是不是有点搞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 464#       发表于 2025-12-7 13:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁也已经完全被狼姐比下去了，混成这样不是没道理的
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
