@@ -528,3 +528,14 @@
 
 小锤其他都挺好，就是小锤池子太垃圾了，改大锤、特大剑、拳套池子都是爽玩
 
+
+*****
+
+####  缺德猫  
+##### 1851#       发表于 2025-12-7 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68834827&amp;ptid=2210352" target="_blank">zakki 发表于 2025-12-6 21:02</a>
+
+七仙女这解包出来的三阶段造型可真够带劲的</blockquote>
+解包在哪看啊？
+
