@@ -2834,3 +2834,15 @@ mei
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最好给伊扎克多加点BUFF再推图，或者手动把他移开，全程自动这活爹就跟喝大了似的到处送
 
+
+*****
+
+####  acg_gyanc  
+##### 3221#       发表于 2025-12-8 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68842081&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-12-8 14:31</a>
+最好给伊扎克多加点BUFF再推图，或者手动把他移开，全程自动这活爹就跟喝大了似的到处送 ...</blockquote>
+隐藏图必须要手动挪，其他图倒是不管也行，确实是活爹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
