@@ -2824,3 +2824,13 @@ mei
 
 克队还行 小抽一手了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3220#       发表于 2025-12-8 14:31
+
+ 本帖最后由 螺旋的小夜曲 于 2025-12-8 14:34 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最好给伊扎克多加点BUFF再推图，或者手动把他移开，全程自动这活爹就跟喝大了似的到处送
+
