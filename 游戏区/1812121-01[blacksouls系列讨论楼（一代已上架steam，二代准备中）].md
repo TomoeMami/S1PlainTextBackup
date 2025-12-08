@@ -1293,3 +1293,14 @@ h部分对这个游戏的（剧情）影响大吗？</blockquote>
 看评测的时候突然发现有好多俄国人在玩啊二代也是有一堆俄国人评论。</blockquote>
 俄国社区很活跃，还有一堆bs2圣经视频
 
+
+*****
+
+####  检索者  
+##### 316#         楼主| 发表于 2025-12-8 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68834562&amp;ptid=1812121" target="_blank">RinQ0326 发表于 2025-12-6 19:55</a>
+
+h部分对这个游戏的（剧情）影响大吗？</blockquote>
+建议还是开着，有些小剧情是藏在H里的，反正也很少有强制H
+
