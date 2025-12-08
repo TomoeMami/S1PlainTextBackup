@@ -2906,3 +2906,11 @@ mei
 
 日子不过了 哈哈
 
+
+*****
+
+####  森兰丸  
+##### 3227#       发表于 2025-12-9 02:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">之前限定池的绿独角兽和神高开战斗画面怎么没有专属BGM了
+
