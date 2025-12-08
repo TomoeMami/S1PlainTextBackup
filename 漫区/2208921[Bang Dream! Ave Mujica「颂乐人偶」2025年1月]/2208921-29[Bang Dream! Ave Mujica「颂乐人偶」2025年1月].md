@@ -717,3 +717,23 @@ https://weibo.com/2638252657/QgOO17kzV</blockquote>
 <img src="https://p.sda1.dev/29/0a3372b8bb789ed48cb03c3626585234/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/29/33aaba73b3b59e6aeebb6a2b3bd0456b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41531#       发表于 2025-12-8 22:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/08/225905y100fffrzbagixi5.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-08_22-56-41.jpg</strong> (401.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-8 22:59 上传
+
+       [https://x.com/gekirock/status/1997863728365342936](https://x.com/gekirock/status/1997863728365342936)
+
+       [https://gekirock.com/news/2025/12/gekirock_magazine_news.php](https://gekirock.com/news/2025/12/gekirock_magazine_news.php)
+

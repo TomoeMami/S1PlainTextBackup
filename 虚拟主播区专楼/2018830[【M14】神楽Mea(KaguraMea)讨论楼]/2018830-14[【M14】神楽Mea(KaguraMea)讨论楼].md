@@ -30671,3 +30671,14 @@ Yabai，要出发了。拜拜。
 
 说起来，没人写你咩的编年史了，每年发生了什么真一下子说不上来
 
+
+*****
+
+####  汇聚群光  
+##### 19964#       发表于 2025-12-8 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68844113&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-12-8 22:07</a>
+
+说起来，没人写你咩的编年史了，每年发生了什么真一下子说不上来</blockquote>
+我写过20~23年的，但去年7月发生那件事之后感觉很难尽量客观地描述于是就鸽了，今年生活上也是越来越忙所以大概率也得鸽<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
