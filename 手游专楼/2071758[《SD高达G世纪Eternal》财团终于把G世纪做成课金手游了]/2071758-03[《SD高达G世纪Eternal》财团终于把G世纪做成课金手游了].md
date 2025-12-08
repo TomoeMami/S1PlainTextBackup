@@ -2914,3 +2914,13 @@ mei
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">之前限定池的绿独角兽和神高开战斗画面怎么没有专属BGM了
 
+
+*****
+
+####  AminGly  
+##### 3228#       发表于 2025-12-9 06:49
+
+<blockquote>森兰丸 发表于 2025-12-9 02:36
+之前限定池的绿独角兽和神高开战斗画面怎么没有专属BGM了</blockquote>
+过期了
+
