@@ -29,3 +29,21 @@
 我找gemini完全重写了一版，excel的顶部和底部借用了nga的优化摸鱼体验的插件的素材，翻页在左下角sheet部 ...</blockquote>
 对比下来这个表格前面的序号还是大了点行距也偏高
 
+
+*****
+
+####  luvletter520  
+##### 50#       发表于 2025-12-8 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68841598&amp;ptid=2268113" target="_blank">针水城 发表于 2025-12-8 12:51</a>
+
+对比下来这个表格前面的序号还是大了点行距也偏高</blockquote>
+删了Padding 顺手调了下序号的文字大小和间距，更新下看看？
+
+*****
+
+####  luvletter520  
+##### 51#       发表于 2025-12-8 15:41
+
+回帖测试
+
