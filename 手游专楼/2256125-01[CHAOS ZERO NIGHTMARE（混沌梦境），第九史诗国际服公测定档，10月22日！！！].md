@@ -7419,3 +7419,15 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 考虑到各种分角色的内容更新和素材复用，就是产能拉胯
 
+
+*****
+
+####  lighttt  
+##### 656#       发表于 2025-12-8 21:13
+
+ 本帖最后由 lighttt 于 2025-12-8 21:16 编辑 
+
+这游戏实在脑残，哎，比较热门的人物也都有，还有3w钻，就是懒得玩，什么几把养成和吊存档，真傻逼<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刷半天成了一套爽的，带不出来，刷三四个小时，别人一把就成了
+
+—— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
