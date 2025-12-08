@@ -2864,3 +2864,11 @@ mei
 
 然后0080活动，白嫖巴尼+扎古二改，开发nt1和鸡煲饭<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 3224#       发表于 2025-12-8 18:48
+
+华尔兹里面倒是不缺船，运高达运大毒蛇的卫星都可以做船，不强求要有运载能力的话还能选迪奥一开始带小飞机的飞船，诺因的导弹艇，甚至少爷去接高达的船，希罗去拿掉毛的太空梭<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
