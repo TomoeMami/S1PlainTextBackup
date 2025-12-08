@@ -670,3 +670,13 @@ p25 今千秋
 与其纠结于为什么这集作为关键个人回拍成这样，还不如想想到底是从什么时候开始变成了这副样子…… ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概是暑假那几集，20来话？梅芙伦那里吧
 
+
+*****
+
+####  Blackson  
+##### 1466#       发表于 2025-12-8 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68839426&amp;ptid=2208663" target="_blank">経緯 发表于 2025-12-7 23:19</a>
+ 与其纠结于为什么这集作为关键个人回拍成这样，还不如想想到底是从什么时候开始变成了这副样子…… ...</blockquote>
+22集开始。梅洛伦归队环节拖太长，而且妖精变人回放到电影后，导致俩妖精现在成挂件了，没独立的表现回
+
