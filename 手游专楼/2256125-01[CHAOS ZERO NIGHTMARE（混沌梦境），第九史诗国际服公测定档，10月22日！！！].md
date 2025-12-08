@@ -7404,3 +7404,18 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 肉鸽刷存档打局外的玩法是第 ...</blockquote>
 别的游戏好歹都是木桶，这个游戏是只有玩法一块木板<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 655#       发表于 2025-12-8 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68842552&amp;ptid=2256125" target="_blank">LMBS 发表于 2025-12-8 16:09</a>
+
+玩了一个月多点，越玩越可惜，游戏底子应该是玩过手游中最好的，好牌都打烂了
+
+肉鸽刷存档打局外的玩法是第 ...</blockquote>
+其实很多烂大街的肉鸽都有选择数+1，重roll之类的功能，这游戏反而没有
+
+考虑到各种分角色的内容更新和素材复用，就是产能拉胯
+
