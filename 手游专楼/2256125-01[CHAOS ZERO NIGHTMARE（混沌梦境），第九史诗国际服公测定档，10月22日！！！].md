@@ -7391,3 +7391,16 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 随便想想就有很多地方可以优化，可是对开发商真的没信心，连个momotalk都不是同步上线，上线了角色还不全
 
+
+*****
+
+####  orangee  
+##### 654#       发表于 2025-12-8 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68842552&amp;ptid=2256125" target="_blank">LMBS 发表于 2025-12-8 16:09</a>
+
+玩了一个月多点，越玩越可惜，游戏底子应该是玩过手游中最好的，好牌都打烂了
+
+肉鸽刷存档打局外的玩法是第 ...</blockquote>
+别的游戏好歹都是木桶，这个游戏是只有玩法一块木板<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

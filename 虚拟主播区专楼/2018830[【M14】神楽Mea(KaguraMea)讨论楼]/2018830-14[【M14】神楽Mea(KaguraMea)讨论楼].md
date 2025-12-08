@@ -30409,3 +30409,13 @@ Poison桑可怕吗？
 
 劲爆尾杀，还专门在说完这句话以后秒切
 
+
+*****
+
+####  TiHaru  
+##### 19956#       发表于 2025-12-8 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68840103&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-12-8 08:58</a>
+哪段，这个点主播还没开台</blockquote>
+wp第一天用了好多那边的梗，还有biju提到纯的时候也是秒懂
+
