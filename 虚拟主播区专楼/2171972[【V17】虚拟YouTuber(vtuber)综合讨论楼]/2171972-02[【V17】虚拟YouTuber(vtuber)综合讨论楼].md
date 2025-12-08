@@ -608,3 +608,11 @@ msm频道是会员没断过，直播没看过的状态。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石神跳舞在虹里算挺差的那一档了吧
 
+
+*****
+
+####  Junglemgs  
+##### 1654#       发表于 2025-12-8 22:32
+
+（估计无关系）lize在今天直播里有提到最近和露露一起吃过饭，一直都有定期的见面
+
