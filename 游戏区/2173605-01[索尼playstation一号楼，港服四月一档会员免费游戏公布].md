@@ -3739,3 +3739,19 @@ PS5悬崖击落NS2!
 泄密者Dusk Golem在YouTube上发布了两段合计超过10分钟的实机视频，揭示了Deviation Games开发的这款第三人称射击游戏。
 [https://www.youtube.com/watch?v=_Fs7FNLad64&amp;t=41s](https://www.youtube.com/watch?v=_Fs7FNLad64&amp;t=41s)
 
+
+*****
+
+####  黑猫软  
+##### 387#       发表于 2025-12-8 19:51
+
+索尼第一方独占游戏《SAROS》的标准版和豪华版已通过中国台湾游戏评级，评级结果为15+。这一进展通常意味着游戏即将开启预购，为2026年3月20日的正式发售铺平道路。
+
+<img src="https://img.stage1st.com/forum/202512/08/195049sfovzfzwww4hp92z.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>587869a9e12a428684f0e450f829bd1fe2cfd8c07746c79dabfe211a5a4d4f4b.webp</strong> (8.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-8 19:50 上传
+
