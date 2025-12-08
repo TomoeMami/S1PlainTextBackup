@@ -2846,3 +2846,11 @@ mei
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  arthes  
+##### 3222#       发表于 2025-12-8 16:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可能是给你体会一下当年阿斯兰的苦
+
