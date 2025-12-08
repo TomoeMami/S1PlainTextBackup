@@ -600,3 +600,11 @@ msm频道是会员没断过，直播没看过的状态。
 
 我对石神的舞蹈印象都来自这里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1653#       发表于 2025-12-8 19:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石神跳舞在虹里算挺差的那一档了吧
+

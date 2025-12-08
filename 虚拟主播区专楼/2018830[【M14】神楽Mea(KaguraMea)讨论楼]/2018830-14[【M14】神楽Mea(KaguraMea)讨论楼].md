@@ -30419,3 +30419,17 @@ Poison桑可怕吗？
 哪段，这个点主播还没开台</blockquote>
 wp第一天用了好多那边的梗，还有biju提到纯的时候也是秒懂
 
+
+*****
+
+####  古战场亡魂  
+##### 19957#       发表于 2025-12-8 19:00
+
+<img src="https://img.stage1st.com/forum/202512/08/190054qqchzr1p9oj182t2.jpg" referrerpolicy="no-referrer">
+
+<strong>20251208_185950.jpg</strong> (273.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-8 19:00 上传
+
