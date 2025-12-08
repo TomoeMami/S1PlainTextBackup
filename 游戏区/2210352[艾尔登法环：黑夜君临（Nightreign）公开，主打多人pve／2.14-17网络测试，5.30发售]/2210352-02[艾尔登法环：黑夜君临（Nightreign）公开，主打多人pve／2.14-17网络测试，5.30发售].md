@@ -718,3 +718,26 @@
 
 玩别的角色也见不到什么金大剑，剩下的品类见得比较平均。虽说大剑金色的比较多会稀释具体某把的出率，但体感金大剑总体的出率也不高...
 
+
+*****
+
+####  忘却旋律  
+##### 1870#       发表于 2025-12-8 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68843078&amp;ptid=2210352" target="_blank">アルメリア 发表于 2025-12-8 17:43</a>
+
+复仇开局能带雷枪兽爪 稳定性差太多了</blockquote>
+啊 对 这点倒是  蜗可以初始直接带雷枪和兽爪 ，不过祷姐可以拿合适的进展武器砍一样 不挑食
+
+*****
+
+####  忘却旋律  
+##### 1871#       发表于 2025-12-8 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68843085&amp;ptid=2210352" target="_blank">Arinori 发表于 2025-12-8 17:44</a>
+
+我的追踪者就没碰到过什么金色大剑（😓）一直以来局内目标是搞到奥陶剑就算成功。
+
+玩别的角色也见不到什 ...</blockquote>
+好吧 原来不是我一个人的错觉，紫色大剑一堆 好用的确实也不少，但是金大剑出货率也太低了 
+
