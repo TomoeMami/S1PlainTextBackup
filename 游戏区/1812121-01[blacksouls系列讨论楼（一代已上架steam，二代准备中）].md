@@ -1283,3 +1283,13 @@ h部分对这个游戏的（剧情）影响大吗？</blockquote>
 混沌迷宫出产的我自 ...</blockquote>
 算足够无脑把，我现在全身属性也不到5000，但是叠戒指誓约和大工武器能把攻击力堆到接近10W上限了，然后黑斩4下伤害已经远超我之前用其他武器能打的输出
 
+
+*****
+
+####  红魔馆的糖  
+##### 315#       发表于 2025-12-8 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68834556&amp;ptid=1812121" target="_blank">JunkoPureFuries 发表于 2025-12-6 19:54</a>
+看评测的时候突然发现有好多俄国人在玩啊二代也是有一堆俄国人评论。</blockquote>
+俄国社区很活跃，还有一堆bs2圣经视频
+
