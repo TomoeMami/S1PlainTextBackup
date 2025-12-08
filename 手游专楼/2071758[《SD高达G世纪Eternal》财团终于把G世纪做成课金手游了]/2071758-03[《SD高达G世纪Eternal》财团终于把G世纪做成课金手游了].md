@@ -2854,3 +2854,13 @@ mei
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可能是给你体会一下当年阿斯兰的苦
 
+
+*****
+
+####  wcorvo  
+##### 3223#       发表于 2025-12-8 18:05
+
+预测一下，圣诞池子：红限定掉毛；蓝普池全装甲NT1，带和GP03一样的脱壳，船的话按现在万代的尿性可能来个莉莉娜经典场面也有可能<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+然后0080活动，白嫖巴尼+扎古二改，开发nt1和鸡煲饭<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
