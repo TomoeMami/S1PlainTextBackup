@@ -368,3 +368,22 @@ ZZZ必秒蛇皮怪（大雾）[f:037
 
 所以故意找个大叔演二号人物么。文戏目前还凑合，但是打戏真的不够帅，特写用腰带和打斗用腰带差别也太大了，特别是胶囊部分特别出戏。Nox那个枪也很塑料
 
+
+*****
+
+####  洛克萨斯  
+##### 473#       发表于 2025-12-8 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68838283&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2025-12-7 18:53</a>
+
+ZZZ必秒蛇皮怪（大雾）[f:037</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了来了
+
+<img src="https://img.stage1st.com/forum/202512/08/135557tdx3bbxpvtcdpdwj.jpg" referrerpolicy="no-referrer">
+
+<strong>C(`8}CSFM3PL35}{5T{0IW5.jpg</strong> (83.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-8 13:55 上传
+
