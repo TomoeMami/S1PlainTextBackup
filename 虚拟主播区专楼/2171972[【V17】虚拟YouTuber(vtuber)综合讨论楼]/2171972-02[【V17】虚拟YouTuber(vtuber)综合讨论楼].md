@@ -590,3 +590,13 @@ msm频道是会员没断过，直播没看过的状态。
 
 のぞめろ有一些双人跳舞shorts或者是同舞蹈，什么水平一看便知<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ketestrait  
+##### 1652#       发表于 2025-12-8 14:09
+
+[https://x.com/LunaticKillion/status/1996243796863197298](https://x.com/LunaticKillion/status/1996243796863197298)
+
+我对石神的舞蹈印象都来自这里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
