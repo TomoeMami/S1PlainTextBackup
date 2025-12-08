@@ -2800,3 +2800,11 @@ mei
 
 没地图炮，不行啊这个
 
+
+*****
+
+####  王俊凯  
+##### 3217#       发表于 2025-12-8 12:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">活动图有限定单抽券 想抽这俩的忍忍把票先打了
+
