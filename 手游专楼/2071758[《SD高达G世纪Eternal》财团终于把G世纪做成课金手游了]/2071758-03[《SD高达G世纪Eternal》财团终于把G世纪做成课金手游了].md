@@ -2782,3 +2782,21 @@ SSP能增加地图炮，SSR大白鹅和柯西就有必要sp了
 
 zaft队得等之后看看命运的实力吧
 
+
+*****
+
+####  シャル  
+##### 3216#         楼主| 发表于 2025-12-8 11:14
+
+mei
+
+<img src="https://img.stage1st.com/forum/202512/08/111400srpp8183o6354r6e.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202512/08/111400srpp8183o6354r6e.png">
+
+<strong>IMG_3936.png</strong> (584.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-8 11:14 上传
+
+没地图炮，不行啊这个
+
