@@ -2997,3 +2997,16 @@ mei
 
 不明白其中的区别是啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 3236#       发表于 2025-12-9 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68848131&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-12-9 17:43</a>
+
+可是除此之外现在还是有不少机师自带BGM的.....设定BGM里也有些免费的可以选
+
+不明白其中的区别是啥 ...</blockquote>
+自带的都是自家G世纪版权的，是的，有不少耳熟能详的曲子论出处其实是G世纪<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
