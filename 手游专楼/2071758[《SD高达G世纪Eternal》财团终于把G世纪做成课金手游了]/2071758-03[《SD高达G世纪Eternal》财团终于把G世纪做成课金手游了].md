@@ -3010,3 +3010,11 @@ mei
 不明白其中的区别是啥 ...</blockquote>
 自带的都是自家G世纪版权的，是的，有不少耳熟能详的曲子论出处其实是G世纪<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3237#       发表于 2025-12-9 20:39
+
+伊扎克你别冲啊，我们能赢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
