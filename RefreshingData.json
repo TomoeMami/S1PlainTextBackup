@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 28744,
+    "totalreply": 28746,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1765279697,
+    "lastedit": 1765282208,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 21371,
+    "totalreply": 21377,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1765282098,
+    "lastedit": 1765282693,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14976,10 +14976,10 @@
     "update": false
   },
   "2268494": {
-    "totalreply": 276,
+    "totalreply": 277,
     "title": "[俄乌25年12月楼]",
     "newtitle": "[俄乌25年12月楼]",
-    "lastedit": 1765275384,
+    "lastedit": 1765282698,
     "category": "外野",
     "active": true,
     "update": false
@@ -15314,7 +15314,7 @@
     "newtitle": "[土木赢，计算机输]",
     "lastedit": 1765023014,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2268533": {
@@ -15624,10 +15624,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 1514,
+    "totalreply": 1516,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1765282098,
+    "lastedit": 1765282698,
     "category": "外野",
     "active": true,
     "update": false
@@ -16137,10 +16137,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 714,
+    "totalreply": 715,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1765281970,
+    "lastedit": 1765282568,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17028,10 +17028,10 @@
     "update": false
   },
   "2269157": {
-    "totalreply": 88,
+    "totalreply": 90,
     "title": "[H200 滞销了，现在可以买了，快来买啊！]",
     "newtitle": "[H200 滞销了，现在可以买了，快来买啊！]",
-    "lastedit": 1765281133,
+    "lastedit": 1765282698,
     "category": "外野",
     "active": true,
     "update": false
@@ -17073,10 +17073,10 @@
     "update": false
   },
   "2269175": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[所以女生中也有绿帽癖吗？]",
     "newtitle": "[所以女生中也有绿帽癖吗？]",
-    "lastedit": 1765280177,
+    "lastedit": 1765282698,
     "category": "外野",
     "active": true,
     "update": false
@@ -17190,10 +17190,10 @@
     "update": false
   },
   "2269200": {
-    "totalreply": 84,
+    "totalreply": 90,
     "title": "[SE扒皮，怪物猎人崛起开发费仅28亿日元]",
     "newtitle": "[SE扒皮，怪物猎人崛起开发费仅28亿日元]",
-    "lastedit": 1765281739,
+    "lastedit": 1765282698,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17226,11 +17226,20 @@
     "update": false
   },
   "2269190": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[offer决赛圈]",
     "newtitle": "[offer决赛圈]",
-    "lastedit": 1765282098,
+    "lastedit": 1765282338,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252759": {
+    "totalreply": 349,
+    "title": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
+    "newtitle": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
+    "lastedit": 1765282351,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
