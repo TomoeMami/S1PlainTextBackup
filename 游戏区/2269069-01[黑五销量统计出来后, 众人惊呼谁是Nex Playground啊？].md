@@ -465,3 +465,15 @@ NEX Playground的定价为249美元，相比之下，Switch 2约500美元，PS5 
 —— 来自 Xiaomi 25019PNF3C, Android 16, 鹅球 v3.5.99</blockquote>
 很久没关注了不太懂啊，啃奶2可以独立运行不需要xbox主机吗？是买来就自带游戏插上就玩的吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大暴死  
+##### 43#       发表于 2025-12-9 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68845295&amp;ptid=2269069" target="_blank">kraxia 发表于 2025-12-9 09:33</a>
+很久没关注了不太懂啊，啃奶2可以独立运行不需要xbox主机吗？是买来就自带游戏插上就玩的吗？ ...</blockquote>
+可以连pc用，如果你一定要主机连电视的仪式感，kinect2+x1x二手加起来也就1k左右<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
