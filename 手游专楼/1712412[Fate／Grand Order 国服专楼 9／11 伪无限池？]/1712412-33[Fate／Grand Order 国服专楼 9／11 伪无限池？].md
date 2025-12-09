@@ -113,3 +113,11 @@
 
 720石头一宝 还有十个四星 吐了<img src="https://static.stage1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 47565#       发表于 2025-12-9 21:06
+
+我靠，一上头追2宝就非了，总共350多抽才2宝，吐了
+

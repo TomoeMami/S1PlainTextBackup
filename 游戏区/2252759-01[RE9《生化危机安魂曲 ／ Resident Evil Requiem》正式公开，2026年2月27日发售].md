@@ -3540,3 +3540,11 @@ Fhalcon Gaming Store
 
 我来提前吃💩。为救女主被僵尸咬死。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八汰乌  
+##### 357#       发表于 2025-12-9 21:09
+
+这封面做的有些拉，还不如现在预购版的封面。因为我只用steam不清楚其他平台，我觉得生化最好看的封面是8和重置4
+
