@@ -3018,3 +3018,16 @@ mei
 
 伊扎克你别冲啊，我们能赢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 3238#       发表于 2025-12-9 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68848131&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-12-9 17:43</a>
+
+可是除此之外现在还是有不少机师自带BGM的.....设定BGM里也有些免费的可以选
+
+不明白其中的区别是啥 ...</blockquote>
+那些都是g世纪原创曲，版权在自己手里，自然随便用
+

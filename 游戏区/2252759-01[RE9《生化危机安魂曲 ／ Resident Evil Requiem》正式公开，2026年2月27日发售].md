@@ -3548,3 +3548,32 @@ Fhalcon Gaming Store
 
 这封面做的有些拉，还不如现在预购版的封面。因为我只用steam不清楚其他平台，我觉得生化最好看的封面是8和重置4
 
+
+*****
+
+####  当光停止  
+##### 358#       发表于 2025-12-9 21:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">李叔叔退休前真能追上暧昧老伴吗?这都不是绝不绝经的问题了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  黑猫软  
+##### 359#       发表于 2025-12-9 21:24
+
+有里昂是百分百的，之前还装模作样解释为什么里昂不是主角。好奇会不会有王阿姨。
+
+岁数不小了，能不能给个交代。
+
+*****
+
+####  zzf111  
+##### 360#       发表于 2025-12-9 21:25
+
+小伙也都熬成老头了
+
+2重制里艾达明显比李昂老相一些 快达到milf境界，这部给个和李昂的娃就行别再出现了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
