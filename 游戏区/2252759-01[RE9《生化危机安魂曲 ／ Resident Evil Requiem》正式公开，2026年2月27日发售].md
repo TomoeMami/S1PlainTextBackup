@@ -3601,3 +3601,14 @@ Fhalcon Gaming Store
 
 反正很快就会100块的，到时再说。
 
+
+*****
+
+####  灵魂收割机  
+##### 364#       发表于 2025-12-9 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849159&amp;ptid=2252759" target="_blank">阿卵真是牛逼 发表于 2025-12-9 21:41</a>
+
+这代时间线还是跟着现实时间走？这都老成啥样了</blockquote>
+按理说明年差不多49岁，这图看着像59了。
+
