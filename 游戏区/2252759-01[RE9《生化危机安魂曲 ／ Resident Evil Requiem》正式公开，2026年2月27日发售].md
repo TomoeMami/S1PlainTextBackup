@@ -3730,3 +3730,14 @@ IGN都有說
 
 底模似乎还是重制版那位苦大仇深版
 
+
+*****
+
+####  godless2020  
+##### 377#       发表于 2025-12-10 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849747&amp;ptid=2252759" target="_blank">nage560 发表于 2025-12-10 01:34</a>
+
+2026年的话刚好50了，但也不至于这么老吧，看看小李子50了没有怎么保养都比这个里昂看着年轻。 ...</blockquote>
+小李子年年玩青春的奶，三光年年出任务，咋比<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
