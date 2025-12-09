@@ -34,3 +34,11 @@
 
 看楼上讨论补充一下，现在调查2很多会削弱属性的VW，再加上BOSS点两种不相关的属性搭配的情况，白值的价值就体现出来了。
 
+
+*****
+
+####  madcow  
+##### 1770#       发表于 2025-12-9 17:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">FAG动画没上的也就两素体和骨架子了吧
+

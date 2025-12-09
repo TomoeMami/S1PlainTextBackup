@@ -2984,3 +2984,16 @@ mei
 反正我是不会在BGM包上花1分钱的....都是些听了10几年早就 ...</blockquote>
 日本人的版权就是这样的
 
+
+*****
+
+####  森兰丸  
+##### 3235#       发表于 2025-12-9 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68847959&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-12-9 17:11</a>
+
+日本人的版权就是这样的</blockquote>
+可是除此之外现在还是有不少机师自带BGM的.....设定BGM里也有些免费的可以选
+
+不明白其中的区别是啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
