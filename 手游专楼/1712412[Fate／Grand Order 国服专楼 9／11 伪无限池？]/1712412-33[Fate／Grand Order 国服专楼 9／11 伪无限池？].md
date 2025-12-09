@@ -43,3 +43,11 @@
 
 话说终章开启的话，会不会复刻一些重量级打手啊，这个初始拐齐全的，但是打手只有一个五宝所长。
 
+
+*****
+
+####  Urakawa  
+##### 47557#       发表于 2025-12-9 19:15
+
+60抽才出<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
