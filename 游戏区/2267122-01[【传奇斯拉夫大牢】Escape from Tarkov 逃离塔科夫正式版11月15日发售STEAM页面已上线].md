@@ -1670,3 +1670,16 @@ didn’t escape不就是洗脚徒吗，我看有个灯塔图标
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  银月术士329  
+##### 148#         楼主| 发表于 2025-12-9 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68843863&amp;ptid=2267122" target="_blank">MkChang 发表于 2025-12-8 20:49</a>
+现在灯塔的三狗有时候会跑到难绷大路去，好神秘。
+【什么叫开局有个骑士在南部大路？-哔哩哔哩】
+我自己昨 ...</blockquote>
+很难知道神秘鸟眼的锁敌
+我碰到过海岸线气象站刷鸟眼一路从蓝铁皮锁到终点站门口，海关红厂锁青铜怀表
+

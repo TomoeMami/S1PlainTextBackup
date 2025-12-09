@@ -1256,7 +1256,7 @@
     "newtitle": "[Fate／Grand Order FGO国服专楼 12／18 3000天已过，笑看日服运营入坟]",
     "lastedit": 1765012932,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1334731": {
@@ -1989,10 +1989,10 @@
     "update": false
   },
   "2062303": {
-    "totalreply": 1451,
+    "totalreply": 1452,
     "title": "[复古打枪游戏专楼 22／08／31一楼更新楼里提过的游戏汇总]",
     "newtitle": "[复古打枪游戏兼沉浸式模拟器专楼 22／10／17 更新沉浸式模拟器]",
-    "lastedit": 1765260134,
+    "lastedit": 1765272012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -3537,10 +3537,10 @@
     "update": false
   },
   "2104259": {
-    "totalreply": 1768,
+    "totalreply": 1769,
     "title": "[机娘爱丽丝机甲／Alice Gear Aegis讨论帖#2 月底联动古番dirty pair]",
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis ST小芦 死宅幻想：4个JK约一起玩格GAME]",
-    "lastedit": 1765209853,
+    "lastedit": 1765272384,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10467,10 +10467,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 2819,
+    "totalreply": 2820,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1765215247,
+    "lastedit": 1765272492,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11421,10 +11421,10 @@
     "update": false
   },
   "2210352": {
-    "totalreply": 1873,
+    "totalreply": 1874,
     "title": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "newtitle": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve，5.30发售／dlc12.4]",
-    "lastedit": 1765271416,
+    "lastedit": 1765272492,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 12083,
+    "totalreply": 12084,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼／1104审判日]",
-    "lastedit": 1765252216,
+    "lastedit": 1765272010,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11664,10 +11664,10 @@
     "update": false
   },
   "2255970": {
-    "totalreply": 5366,
+    "totalreply": 5367,
     "title": "[股市这奔着3500去了啊，不敢买了……]",
     "newtitle": "[股市XXXX了……（转型为股票讨论楼中）]",
-    "lastedit": 1765271782,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 21330,
+    "totalreply": 21331,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1765268782,
+    "lastedit": 1765272012,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12717,10 +12717,10 @@
     "update": false
   },
   "2257972": {
-    "totalreply": 217,
+    "totalreply": 218,
     "title": "[八方旅人0公开，12.4发售，登录全平台／demo已推出]",
     "newtitle": "[八方旅人0公开，12.4发售，登录全平台／demo已推出]",
-    "lastedit": 1765270219,
+    "lastedit": 1765272384,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12825,10 +12825,10 @@
     "update": false
   },
   "2267122": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[【传奇斯拉夫大牢】Escape from Tarkov 逃离塔科夫正式版11月15日发售STEAM页面已上线]",
     "newtitle": "[【传奇斯拉夫大牢】Escape from Tarkov 逃离塔科夫正式版11月15日发售STEAM页面已上线]",
-    "lastedit": 1765198330,
+    "lastedit": 1765272490,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13289,15 +13289,6 @@
     "newtitle": "[豆包新焚决]",
     "lastedit": 1764503300,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "1958154": {
-    "totalreply": 167,
-    "title": "[任天堂年末商战会如何对抗索尼微软？]",
-    "newtitle": "[任天堂年末商战会如何对抗索尼微软？]",
-    "lastedit": 1764062306,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -15174,10 +15165,10 @@
     "update": false
   },
   "2268496": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[2025年12月网文推荐交流互助楼]",
     "newtitle": "[2025年12月网文推荐交流互助楼]",
-    "lastedit": 1765271782,
+    "lastedit": 1765272131,
     "category": "外野",
     "active": true,
     "update": false
@@ -15660,10 +15651,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 1452,
+    "totalreply": 1459,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1765271782,
+    "lastedit": 1765272378,
     "category": "外野",
     "active": true,
     "update": false
@@ -16596,10 +16587,10 @@
     "update": false
   },
   "2173605": {
-    "totalreply": 388,
+    "totalreply": 389,
     "title": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
     "newtitle": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
-    "lastedit": 1765258346,
+    "lastedit": 1765272012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16749,10 +16740,10 @@
     "update": false
   },
   "2269055": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[物价飞涨 日本人吃不起圣诞蛋糕 今年推出没有草莓和巧克力的蛋糕]",
     "newtitle": "[物价飞涨 日本人吃不起圣诞蛋糕 今年推出没有草莓和巧克力的蛋糕]",
-    "lastedit": 1765269619,
+    "lastedit": 1765272131,
     "category": "外野",
     "active": true,
     "update": false
@@ -16785,10 +16776,10 @@
     "update": false
   },
   "2269076": {
-    "totalreply": 100,
+    "totalreply": 101,
     "title": "[reddit烂完了，为什么美国贴吧也变成这个吊样]",
     "newtitle": "[reddit烂完了，为什么美国贴吧也变成这个吊样]",
-    "lastedit": 1765268060,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
@@ -17082,10 +17073,10 @@
     "update": false
   },
   "2269158": {
-    "totalreply": 52,
+    "totalreply": 56,
     "title": "[这无人拖拉机味儿太对了]",
     "newtitle": "[这无人拖拉机味儿太对了]",
-    "lastedit": 1765271782,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17100,10 @@
     "update": false
   },
   "2269175": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[所以女生中也有绿帽癖吗？]",
     "newtitle": "[所以女生中也有绿帽癖吗？]",
-    "lastedit": 1765270580,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,19 +17118,19 @@
     "update": false
   },
   "2266004": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[手机号被不认识的人拿去收快递用了]",
     "newtitle": "[手机号被不认识的人拿去收快递用了]",
-    "lastedit": 1765261820,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2269094": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[日本川崎重工人形机器人领先老钟50到60岁啊]",
     "newtitle": "[日本川崎重工人形机器人领先老钟50到60岁啊]",
-    "lastedit": 1765271782,
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
@@ -17176,6 +17167,15 @@
     "title": "[成都金沙遗址博物馆即将闭馆]",
     "newtitle": "[成都金沙遗址博物馆即将闭馆]",
     "lastedit": 1765271175,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2269198": {
+    "totalreply": 42,
+    "title": "[素颜玛丽莲梦露在泥潭几分]",
+    "newtitle": "[素颜玛丽莲梦露在泥潭几分]",
+    "lastedit": 1765272384,
     "category": "外野",
     "active": true,
     "update": false
