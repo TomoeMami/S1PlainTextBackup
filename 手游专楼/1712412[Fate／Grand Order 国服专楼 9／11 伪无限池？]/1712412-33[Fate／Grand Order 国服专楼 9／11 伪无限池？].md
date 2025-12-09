@@ -89,3 +89,11 @@
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 47562#       发表于 2025-12-9 19:51
+
+我发现只要那期活动B站放广告了，必然翻车。400石砸下去歪了一堆四星，怂了，还是明年的莉莉丝更戳我XP<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
