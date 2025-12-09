@@ -799,3 +799,11 @@ sophie
 
 绝望的高光时刻 摇晃的死神之影
 
+
+*****
+
+####  osore  
+##### 41533#       发表于 2025-12-9 14:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖棉被纯聊天
+

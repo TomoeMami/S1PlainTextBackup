@@ -66,3 +66,16 @@
 引用回帖测试</blockquote>
 引用回帖
 
+
+*****
+
+####  luvletter520  
+##### 54#       发表于 2025-12-9 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68840738&amp;ptid=2268113" target="_blank">臭P遇上臭脚 发表于 2025-12-8 10:37</a>
+
+加个回帖功能就完美了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+加了 但是没有麻将脸<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
