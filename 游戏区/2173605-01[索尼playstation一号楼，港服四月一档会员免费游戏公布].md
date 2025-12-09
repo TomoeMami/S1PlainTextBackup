@@ -3755,3 +3755,22 @@ PS5悬崖击落NS2!
 
 2025-12-8 19:50 上传
 
+
+*****
+
+####  黑猫软  
+##### 388#       发表于 2025-12-9 13:27
+
+索尼影业所属游戏工作室Sony Pictures Virtual Reality与巴西游戏工作室Arvore 共同开发，将在《黑袍纠察队》系列原创作团队的参与下推出首款官方VR衍生游戏《The Boys: Trigger Warning》，计划2026年登陆Meta Quest 和 PSVR2，由索尼影业SPVR发行。
+
+玩家将扮演一个新角色卢卡斯·科斯塔，在被迫成为超级能力者后，玩家将加入“黑袍纠察队”潜入沃特公司，并逐步展开复仇。
+
+<img src="https://img.stage1st.com/forum/202512/09/132727w797s7x72zvu5r3p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>62f66ed00e36e110aacdb71b582bbb021f65a5bb2c64628ea2f551eff5bfb443.webp</strong> (61.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-9 13:27 上传
+
