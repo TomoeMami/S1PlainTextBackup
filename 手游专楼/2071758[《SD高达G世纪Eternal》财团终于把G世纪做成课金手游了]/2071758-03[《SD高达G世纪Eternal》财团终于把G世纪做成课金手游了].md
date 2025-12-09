@@ -2958,3 +2958,16 @@ mei
 
 代便后悔啊，后悔没有早点开爽
 
+
+*****
+
+####  森兰丸  
+##### 3233#       发表于 2025-12-9 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68845737&amp;ptid=2071758" target="_blank">シャル 发表于 2025-12-9 10:43</a>
+
+免费体验1️⃣结束，要花钱买</blockquote>
+喷了....这都能搞期间限定....吃相也太难看了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+反正我是不会在BGM包上花1分钱的....都是些听了10几年早就听腻的曲子
+
