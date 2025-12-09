@@ -37,3 +37,13 @@
 
 幸亏只看了图一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4835#       发表于 2025-12-9 23:48
+
+我操，老汤要去100T了。
+
+据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100 Thieves。目前双方的谈判已进入后期阶段。这笔转会预计还将促成他与Astralis老队友gla1ve的重聚，后者将出任100 Thieves主教练。
+
