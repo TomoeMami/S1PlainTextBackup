@@ -3661,3 +3661,11 @@ Fhalcon Gaming Store
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kos_mos  
+##### 369#       发表于 2025-12-9 23:44
+
+全身那张不一定是真的吧，和索尼泄露图看着完全两个人，衣服还是仿6代的。
+
