@@ -395,3 +395,11 @@ ZZZ必秒蛇皮怪（大雾）[f:037</blockquote>
 
 NOX是4号特工那其他估计特工也要登场，二阶段又要开始骑士大战了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 475#       发表于 2025-12-9 15:18
+
+太君那边开始就有猜NO.7是不是想凑荣光七人的梗，但这几年万代缩减骑士和腰带数量，感觉到不了那么多
+
