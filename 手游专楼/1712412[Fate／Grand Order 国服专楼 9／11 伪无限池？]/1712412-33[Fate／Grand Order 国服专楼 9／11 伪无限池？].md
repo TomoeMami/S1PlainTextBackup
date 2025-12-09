@@ -51,3 +51,31 @@
 
 60抽才出<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊骑士  
+##### 47558#       发表于 2025-12-9 19:19
+
+艹了，千石才出2宝。法老池子果然不该手贱扔个十连的，结果真出货，现在还债了。
+
+—— 来自 vivo V2507A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  苍蓝之枪  
+##### 47559#       发表于 2025-12-9 19:20
+
+本来都有点不想抽了，看到欧皇日常表演后还是抽了，最后结果虽然不如欧皇但还算欧的，继续，再欧一个池子我就把前面连非7个池子的事情忘记
+
+*****
+
+####  深渊骑士  
+##### 47560#       发表于 2025-12-9 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68848458&amp;ptid=1712412" target="_blank">sandro 发表于 2025-12-9 18:59</a>
+现在漏隙还值得抽二宝吗</blockquote>
+不玩绿卡体系，有2宝或以上水伊吹冲浪的话确实没啥必要。
+
+—— 来自 vivo V2507A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
