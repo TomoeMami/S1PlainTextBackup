@@ -2971,3 +2971,16 @@ mei
 
 反正我是不会在BGM包上花1分钱的....都是些听了10几年早就听腻的曲子
 
+
+*****
+
+####  AminGly  
+##### 3234#       发表于 2025-12-9 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68847146&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-12-9 14:52</a>
+
+喷了....这都能搞期间限定....吃相也太难看了
+
+反正我是不会在BGM包上花1分钱的....都是些听了10几年早就 ...</blockquote>
+日本人的版权就是这样的
+
