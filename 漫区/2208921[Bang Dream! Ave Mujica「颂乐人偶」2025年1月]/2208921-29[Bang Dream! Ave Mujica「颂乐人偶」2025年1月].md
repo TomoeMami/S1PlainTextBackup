@@ -850,3 +850,87 @@ sophie
 
 玛雅sophie太好听了8
 
+
+*****
+
+####  堀内爱里衣  
+##### 41538#       发表于 2025-12-9 23:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/09/231904kt17zh1go70zh0tm.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-09_23-16-56.jpg</strong> (148.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-9 23:19 上传
+
+       [https://x.com/BDP_AveMujica/status/1998407297635434950](https://x.com/BDP_AveMujica/status/1998407297635434950)
+
+       [https://www.youtube.com/watch?v=ivXQ21xDHfE](https://www.youtube.com/watch?v=ivXQ21xDHfE)
+
+       <strong>Ave Mujica - Sophie (Official Music Video)</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202512/09/231905sk3zgkxbbgagz59b.jpg" referrerpolicy="no-referrer">
+
+<strong>224971cdb084bf738be62d1f90e3cd69ba43086f.jpg</strong> (329.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-9 23:19 上传
+
+…ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+Ave Mujica 3rd Single 「‘S/’ The Way / Sophie」
+
+Streaming/DL：[https://bmu.lnk.to/Avemujica_3rd_SGid](https://bmu.lnk.to/Avemujica_3rd_SGid)
+
+Ave Mujica “Sophie”
+
+作詞：Diggy-MO’　[https://x.com/diggymo04](https://x.com/diggymo04)
+
+作曲：Diggy-MO’, ÐIK
+
+編曲：Diggy-MO’, ÐIK
+
+MV
+
+Director: Kosuke Tsukagawa (SIGNIF)
+
+CG Designer: Alessandro Asnaghi (SIGNIF), Akari Kumagai (SIGNIF)
+
+Producer: Yoshiki Kawasaki (SIGNIF)
+
+Production: SIGNIF Inc.
+
+ーーーーーーーーーーーー
+
+2025.12.10 Wed.
+
+Ave Mujica 3rd Single 「‘S/’ The Way / Sophie」
+[https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
+2025.12.14 Sun. / 2026.1.15 Thu.
+
+Ave Mujica 6th LIVE “Ulterius Procedere”
+
+at Tokyo International Forum, Hall A / Osaka International Convention Center, Main Hall
+[https://bang-dream.com/events/avemujica_6th](https://bang-dream.com/events/avemujica_6th)
+
+2026.3.1 Sun.
+
+MyGO!!!!!×Ave Mujica “moment / memory”
+
+at K-Arena Yokohama
+[https://bang-dream.com/events/mygo-avemujica2026](https://bang-dream.com/events/mygo-avemujica2026)
+
+ーーーーーーーーーーーー
+
+HP：[https://avemujica.bang-dream.com/](https://avemujica.bang-dream.com/)
+
+#AveMujica#</blockquote>
+       
+

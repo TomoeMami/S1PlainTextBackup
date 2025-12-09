@@ -3823,3 +3823,19 @@ PS5悬崖击落NS2!
 
 snitch还有活跃……？
 
+
+*****
+
+####  黑猫软  
+##### 392#       发表于 2025-12-9 23:16
+
+索尼官宣，tga会有saros内容
+
+<img src="https://img.stage1st.com/forum/202512/09/231548sndy99hfnvfxznu9.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20251209_231522.jpg</strong> (202.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-9 23:15 上传
+
