@@ -47,3 +47,16 @@
 
 据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100 Thieves。目前双方的谈判已进入后期阶段。这笔转会预计还将促成他与Astralis老队友gla1ve的重聚，后者将出任100 Thieves主教练。
 
+
+*****
+
+####  朔方原的星  
+##### 4836#         楼主| 发表于 2025-12-10 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849552&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-9 23:48</a>
+
+我操，老汤要去100T了。
+
+据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100  ...</blockquote>
+最后一舞了，这回是真养老了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
