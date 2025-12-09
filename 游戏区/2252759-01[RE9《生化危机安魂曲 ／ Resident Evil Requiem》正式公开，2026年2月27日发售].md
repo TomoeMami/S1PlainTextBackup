@@ -3630,3 +3630,14 @@ Fhalcon Gaming Store
 
 会被新反派用无限耐久高尔夫球棍爆头吗？
 
+
+*****
+
+####  Andariel  
+##### 366#       发表于 2025-12-9 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849184&amp;ptid=2252759" target="_blank">灵魂收割机 发表于 2025-12-9 21:48</a>
+按理说明年差不多49岁，这图看着像59了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白男显老
+而且这岁数还能有这么一头浓密的偏分就别要什么自行车了
+
