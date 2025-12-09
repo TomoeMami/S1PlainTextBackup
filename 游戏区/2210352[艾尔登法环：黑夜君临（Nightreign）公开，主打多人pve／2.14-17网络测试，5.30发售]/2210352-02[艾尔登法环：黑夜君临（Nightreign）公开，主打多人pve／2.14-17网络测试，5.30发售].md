@@ -767,3 +767,14 @@
 
 有说dlc武器啥时候更新么
 
+
+*****
+
+####  wasian  
+##### 1875#       发表于 2025-12-9 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68847931&amp;ptid=2210352" target="_blank">RinC 发表于 2025-12-9 17:07</a>
+
+学者深夜有啥提升输出的词条吗，想来想去感觉只能折叠一下拳套，投壶太麻烦了不是很想玩 ...</blockquote>
+50感应带冰血刃前期随便杀，转灵敏直接+40点想玩啥敏捷武器都行
+
