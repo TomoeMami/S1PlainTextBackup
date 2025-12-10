@@ -1986,3 +1986,11 @@ MuMu-20251208-170359-800.jpg
 最好的qp本是你每次冠位战刷2、3、400次，之前弓阶冠位战有qp增加那时大力刷，9月那时刷柱子现在再等刷这个月23号开始的柱子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 20ap减半qp本 已经是以上全都错过的新手与咸鱼的选择了
 
+
+*****
+
+####  blue321  
+##### 18888#       发表于 2025-12-10 19:40
+
+那看来确实是我太咸了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
