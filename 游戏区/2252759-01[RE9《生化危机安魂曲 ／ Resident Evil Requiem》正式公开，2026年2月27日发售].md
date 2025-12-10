@@ -3812,3 +3812,14 @@ IGN都有說
 2026年的话刚好50了，但也不至于这么老吧，看看小李子50了没有怎么保养都比这个里昂看着年轻。 ...</blockquote>
 隔壁弩哥也50岁了，完全没有那么老。
 
+
+*****
+
+####  Asukalangley33  
+##### 386#       发表于 2025-12-10 16:52
+
+怎么比奇迹2的乔尔还老<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+re的世界观直接20和60一个样也没啥啊
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
