@@ -3847,3 +3847,23 @@ snitch还有活跃……？
 
 saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oahcihs  
+##### 394#       发表于 2025-12-10 08:54
+
+年度总结出了
+https://wrapup.playstation.com/
+<img src="https://p.sda1.dev/29/0bbd75c393d4e70290f88c6ef0234e6a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫软  
+##### 395#       发表于 2025-12-10 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68850073&amp;ptid=2173605" target="_blank">conanoysq 发表于 2025-12-10 08:43</a>
+
+saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧</blockquote>
+肯定是全价。3月制作组还出来吹这代预算在索尼资助下大幅提高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
