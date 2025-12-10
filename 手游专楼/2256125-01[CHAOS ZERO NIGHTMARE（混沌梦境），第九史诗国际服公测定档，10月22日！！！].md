@@ -7444,3 +7444,25 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 刷存档?不存在的
 
+
+*****
+
+####  mp5  
+##### 658#       发表于 2025-12-9 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68843938&amp;ptid=2256125" target="_blank">lighttt 发表于 2025-12-8 21:13</a>
+
+这游戏实在脑残，哎，比较热门的人物也都有，还有3w钻，就是懒得玩，什么几把养成和吊存档，真傻逼刷半天成 ...</blockquote>
+我是打够8000就收手, 玩得还算欢乐
+
+刷存档?不存在的
+
+*****
+
+####  orangee  
+##### 659#       发表于 2025-12-10 15:35
+
+新开的boss又是小丑奶刀的玩具<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
