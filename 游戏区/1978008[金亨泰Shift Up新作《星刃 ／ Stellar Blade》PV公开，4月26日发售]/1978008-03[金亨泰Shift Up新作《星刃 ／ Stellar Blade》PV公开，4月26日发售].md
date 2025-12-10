@@ -138,3 +138,43 @@
 部分MOD还可以实现被打换成那件打底肉色战衣（ ...</blockquote>
 问问坛友还有啥功能性mod推荐吗，只有服装mod感觉提不起劲
 
+
+*****
+
+####  江戸前ルナ  
+##### 4302#       发表于 2025-12-10 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68852434&amp;ptid=1978008" target="_blank">棍机凹升龙 发表于 2025-12-10 15:56</a>
+
+过场时也会自动变吗 那确实很正了</blockquote>
+我封盘几个月了，当时肯定不行的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 4303#       发表于 2025-12-10 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68852623&amp;ptid=1978008" target="_blank">B.K. 发表于 2025-12-10 16:28</a>
+
+问问坛友还有啥功能性mod推荐吗，只有服装mod感觉提不起劲</blockquote>
+我见过的，觉得好用的有，全图传送MOD，无限制二段跳MOD，还有上面坛友提到的格挡MOD。
+
+摄影相关最基础最好用的就是那个拉近镜头可以让伊芙不会消失的mod，可以各种近距离观赏拍摄了。
+
+激进的就多了，就比如红莲mod，把伊芙整个动作模组包括技能都换成红莲的，等于用一个新角色玩游戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有CALL队友，把迅驰红莲渡鸦全部CALL出来组一个全女天团碾压对面啊，将伊芙的所有动作分解提取出来可以在摄影模式里随便摆啊，让伊芙直接跳极乐净土啊等等<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两个路人  
+##### 4304#       发表于 2025-12-10 17:53
+
+<blockquote>江戸前ルナ 发表于 2025-12-10 12:11
+还需要买吗，装个带全服装有CNS系统的MOD，直接全拥有了。
+
+部分MOD还可以实现被打换成那件打底肉色战衣（ ...</blockquote>
+
+CNS又不能进存档，商店MOD里买了就等于存档里也有了
+
