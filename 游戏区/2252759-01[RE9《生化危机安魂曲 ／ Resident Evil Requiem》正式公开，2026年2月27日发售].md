@@ -3768,3 +3768,19 @@ IGN都有說
 小李子年年玩青春的奶，三光年年出任务，咋比</blockquote>
 里昂高新帅哥会缺妹子？私底下不知道换多少个了。看看这么多游戏和剧场版有多少和里昂玩暧昧的妹子你再说一次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  astrayl  
+##### 381#       发表于 2025-12-10 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">希望卡表别整烂活儿
+
+
+*****
+
+####  血狂毘沙门  
+##### 382#       发表于 2025-12-10 12:23
+
+8的克里斯已经够烂活了 还能更烂吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

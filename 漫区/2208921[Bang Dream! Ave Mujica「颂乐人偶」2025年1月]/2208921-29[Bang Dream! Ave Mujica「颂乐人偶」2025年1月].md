@@ -1018,3 +1018,87 @@ true music.jpg
 
 鸡团歌的mv是真的接受不能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是舞台的好
 
+
+*****
+
+####  堀内爱里衣  
+##### 41545#       发表于 2025-12-10 12:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/10/121412mtmotjc4jc1y500c.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-10_12-10-34.jpg</strong> (251.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 12:14 上传
+
+       [https://x.com/bang_dream_info/status/1998588487101251728](https://x.com/bang_dream_info/status/1998588487101251728)
+
+       [https://t.co/jCk9BBgrS6](https://t.co/jCk9BBgrS6)
+
+       [https://t.co/aRZVRI03Vs](https://t.co/aRZVRI03Vs)
+
+      <strong>【试听】Ave Mujica 3rd Single「‘S/’ The Way / Sophie」（2025.12.10 发售）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202512/10/121411h1dzz5f578rwm19r.jpg" referrerpolicy="no-referrer">
+
+<strong>6c8cf6e1b49a0ef05efe9ef14cb848497f403b0d.jpg</strong> (344.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 12:14 上传
+
+★商品情报
+[https://bang-dream.com/discographies/4125](https://bang-dream.com/discographies/4125)
+
+【发售日】
+
+2025年12月10日（周三）
+
+【价格】
+
+数量限定生产特装盘：17,050日元（含税）
+
+Blu-ray 付生产限定盘：11,000日元（含税）
+
+通常盘：1,650日元（含税）
+
+【收录内容】
+
+[CD]
+
+0:00 1.‘S/’ The Way
+
+1:25 2.Sophie
+
+3.‘S/’ The Way - instrumental -
+
+4.Sophie - instrumental -
+
+[Blu-ray]　※数量限定生产特装盘、仅限Blu-ray付生产限定盘
+
+・Ave Mujica 5th LIVE「Nova Historia」DAY1
+
+・Ave Mujica 5th LIVE「Nova Historia」DAY2
+
+【数量限定生产特装盘 收录内容】
+
+・Ave Mujica 5th LIVE「Nova Historia」DAY1/DAY2 全景固定机位影像收录 Blu-ray
+
+・亚克力面板 1 个（全 1 种）
+
+・特制BOX
+
+【初回生产分限定封入特典】
+
+・预定于 2026 年举办的 Ave Mujica LIVE TOUR 最速先行抽选申请券
+
+・原创角色卡 1 张（共 5 种）
+
+・卡片战斗先导者PR卡1张（全1种）
+
+#BanGDream# #AveMujica# #AveMujica3rdSG#</blockquote>
+       
+
