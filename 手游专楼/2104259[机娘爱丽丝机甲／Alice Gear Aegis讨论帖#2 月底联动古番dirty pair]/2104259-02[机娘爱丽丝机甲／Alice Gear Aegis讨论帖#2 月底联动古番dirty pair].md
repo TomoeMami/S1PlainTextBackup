@@ -86,3 +86,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  alialex  
+##### 1776#       发表于 2025-12-10 23:56
+
+换色也算了，轰雷改的SP怎么还是拿个大炮站射啊
+
