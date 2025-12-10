@@ -50,3 +50,13 @@
 
 不是 你游是有什么主角一定得给个电属性的规矩嘛 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1772#       发表于 2025-12-10 15:44
+
+哦吼，换色了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
