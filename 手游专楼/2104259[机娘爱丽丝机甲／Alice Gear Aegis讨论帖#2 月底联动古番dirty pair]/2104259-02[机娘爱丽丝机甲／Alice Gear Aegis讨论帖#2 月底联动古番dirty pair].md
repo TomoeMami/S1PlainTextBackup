@@ -60,3 +60,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1773#       发表于 2025-12-10 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说这狗屋三连大概是有几天？直接到周年了吗
+

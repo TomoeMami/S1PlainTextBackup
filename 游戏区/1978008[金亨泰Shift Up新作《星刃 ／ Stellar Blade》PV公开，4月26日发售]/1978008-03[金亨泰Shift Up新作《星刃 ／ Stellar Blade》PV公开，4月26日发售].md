@@ -112,3 +112,16 @@
 部分MOD还可以实现被打换成那件打底肉色战衣（ ...</blockquote>
 每隔xx秒随机换衣服是好mod啊，我去n网看看
 
+
+*****
+
+####  棍机凹升龙  
+##### 4300#       发表于 2025-12-10 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68851270&amp;ptid=1978008" target="_blank">江戸前ルナ 发表于 2025-12-10 12:11</a>
+
+还需要买吗，装个带全服装有CNS系统的MOD，直接全拥有了。
+
+部分MOD还可以实现被打换成那件打底肉色战衣（ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">过场时也会自动变吗 那确实很正了
+
