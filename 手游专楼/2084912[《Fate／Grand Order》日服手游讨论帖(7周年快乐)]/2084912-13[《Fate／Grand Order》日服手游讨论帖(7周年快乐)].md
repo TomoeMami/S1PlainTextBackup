@@ -1963,3 +1963,15 @@ MuMu-20251208-170359-800.jpg
 漏油又在出金 萌新也想欧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">祝你所有UP都歪常驻
 
+
+*****
+
+####  blue321  
+##### 18886#       发表于 2025-12-10 18:35
+
+补抽终于把枪龙娘补出来了，又把库存钻清空……希望医生不要来那么快啊
+
+不过最紧迫的问题是QP不够用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在刷QP是去哪里比较好
+

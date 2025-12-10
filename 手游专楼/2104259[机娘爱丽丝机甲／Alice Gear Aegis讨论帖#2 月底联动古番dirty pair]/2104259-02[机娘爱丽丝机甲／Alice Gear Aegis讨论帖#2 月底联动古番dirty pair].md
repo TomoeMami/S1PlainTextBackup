@@ -68,3 +68,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说这狗屋三连大概是有几天？直接到周年了吗
 
+
+*****
+
+####  江戸前ルナ  
+##### 1774#         楼主| 发表于 2025-12-10 18:27
+
+胶相关的厂是不是都这样的？能换色就绝不出新，包括阿金<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
