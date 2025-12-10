@@ -2022,3 +2022,13 @@ MuMu-20251208-170359-800.jpg
 
 全从者复刻真的一股关服味<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 18892#       发表于 2025-12-11 00:09
+
+ 本帖最后由 岸浪白野 于 2025-12-11 00:11 编辑 
+
+哪家关服游戏梦火卡着算了毕竟能不但拿硬币还能拿石头但传承结晶还是扣扣搜搜的，就这2个月0活动，平时1个活动算赚8个结晶就这2个月1个巡灵1个签到2个冠位战加起来就拿了4个结晶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
