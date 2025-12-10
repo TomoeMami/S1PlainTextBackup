@@ -3867,3 +3867,25 @@ https://wrapup.playstation.com/
 saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧</blockquote>
 肯定是全价。3月制作组还出来吹这代预算在索尼资助下大幅提高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 396#       发表于 2025-12-10 10:16
+
+P站2025年度回顾
+
+<img src="https://img.stage1st.com/forum/202512/10/101536idbvmjj1xjsl2g11.png" referrerpolicy="no-referrer">
+
+<strong>1_**hub-insights-2025-year-in-review-device-game-console.png</strong> (133.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 10:15 上传
+
+按游戏主机流量来看，Xbox 的流量大幅下降。Xbox 的流量仅占所有游戏主机流量的 2%，与 2024 年相比，降幅高达 69%。  
+
+PlayStation 4 占游戏机流量的 32%，延续了下降趋势，今年又下降了 5%，因为越来越多的人转向了更新的游戏机。  
+
+PlayStation 5 的游戏主机流量最大，占比 66%，比 2024 年增长 11%。 
+
