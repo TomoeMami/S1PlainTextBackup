@@ -1889,3 +1889,30 @@ MuMu-20251208-170359-800.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">能不能发梦火和开20绊啊 好用的角色基本不是15绊下岗就是14绊接近下岗了
 
+
+*****
+
+####  岸浪白野  
+##### 18879#       发表于 2025-12-10 17:17
+
+这全职阶冠位战又开放一遍真的是个人的猜的到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还送了23个金苹果和23个茶壶，最后7天签到送7个圣杯
+太壮观了我们363从者
+<img src="https://p.sda1.dev/29/55563e0d070e244a0bae79bf28e6e19e/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 18880#       发表于 2025-12-10 17:22
+
+<blockquote>岸浪白野 发表于 2025-12-10 17:17
+这全职阶冠位战又开放一遍真的是个人的猜的到
+
+还送了23个金苹果和23个茶壶，最后7天签到送7个圣杯
+
+太壮观了 ...</blockquote>
+打开游戏看到公告栏里的363英灵全骑pu召唤，差点两眼一黑，以为要在抽卡界面看到300多池同台竞技了...
+
+幸好没有，应该是技术力限制了螺旋社的野心，否则一天花出去300多付费石太烧钱了...
+
