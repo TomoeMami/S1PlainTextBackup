@@ -3784,3 +3784,13 @@ IGN都有說
 
 8的克里斯已经够烂活了 还能更烂吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 383#       发表于 2025-12-10 14:03
+
+胡子刮了能年轻不少吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
