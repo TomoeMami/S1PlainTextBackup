@@ -188,3 +188,11 @@ MuMu-20251209-224736-522.jpg
 
 傻逼游戏，我270抽了都没5星，又逼我井？！
 
+
+*****
+
+####  khxooo  
+##### 47571#       发表于 2025-12-10 16:15
+
+大号41池，掉了7张礼装，可以可以<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
