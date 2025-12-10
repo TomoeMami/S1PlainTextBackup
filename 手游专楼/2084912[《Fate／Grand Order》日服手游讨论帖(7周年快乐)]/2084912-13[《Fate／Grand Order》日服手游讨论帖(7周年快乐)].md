@@ -2003,3 +2003,14 @@ MuMu-20251208-170359-800.jpg
 <img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">剑R补宝失败歪了大王
 其他更想要补4星，比如兰陵王和黑A
 
+
+*****
+
+####  岸浪白野  
+##### 18890#       发表于 2025-12-10 22:22
+
+ 本帖最后由 岸浪白野 于 2025-12-10 22:24 编辑 
+
+礼装池抽了2发服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/c7d683b3bae8d5e29121c178c307ca63/image.jpg" referrerpolicy="no-referrer">
+
