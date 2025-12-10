@@ -1000,3 +1000,13 @@ HP：[https://avemujica.bang-dream.com/](https://avemujica.bang-dream.com/)
 
        [https://t.co/h9yifYdC82](https://t.co/h9yifYdC82)
 
+
+*****
+
+####  yjysrkl  
+##### 41543#       发表于 2025-12-10 08:44
+
+true music.jpg
+
+ラスサビ高音连发太爽了，李子唱的满身疮痍也可以理解了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
