@@ -3063,3 +3063,30 @@ mei
 
 终于爆出三高了，加载到98%卡了心脏病要急出来了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leliel  
+##### 3241#       发表于 2025-12-10 19:14
+
+问一下机体升星
+
+我看说的是提升20%的机体能力
+
+那么是应该等机体满级了再升星，还是说先突破了再升级也是一样
+
+*****
+
+####  体制  
+##### 3242#       发表于 2025-12-10 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68853670&amp;ptid=2071758" target="_blank">Leliel 发表于 2025-12-10 19:14</a>
+问一下机体升星
+
+我看说的是提升20%的机体能力
+
+那么是应该等机体满级了再升星，还是说先突破了再升级也是一 ...</blockquote>
+一样的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
