@@ -3031,3 +3031,27 @@ mei
 不明白其中的区别是啥 ...</blockquote>
 那些都是g世纪原创曲，版权在自己手里，自然随便用
 
+
+*****
+
+####  シャル  
+##### 3239#         楼主| 发表于 2025-12-10 07:47
+
+<img src="https://img.stage1st.com/forum/202512/10/074720vtwbv9w1v8881wmn.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202512/10/074720vtwbv9w1v8881wmn.png">
+
+<strong>IMG_3958.png</strong> (398.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 07:47 上传
+
+<img src="https://img.stage1st.com/forum/202512/10/074720u6rw6ypbqperyrxv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3959.png</strong> (682.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 07:47 上传
+
+单抽出，但是这货性能好像一般啊
+
