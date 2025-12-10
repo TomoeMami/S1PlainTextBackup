@@ -84,3 +84,18 @@
 
 那我二三周目新衣服是不是不用收集了？
 
+
+*****
+
+####  江戸前ルナ  
+##### 4298#       发表于 2025-12-10 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68850720&amp;ptid=1978008" target="_blank">牙狼GARO 发表于 2025-12-10 10:46</a>
+
+还有商店直接买的mod？
+
+那我二三周目新衣服是不是不用收集了？</blockquote>
+还需要买吗，装个带全服装有CNS系统的MOD，直接全拥有了。
+
+部分MOD还可以实现被打换成那件打底肉色战衣（类似爆衣）、每隔XX秒自动随机换一套衣服等等功能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
