@@ -14,3 +14,11 @@
 
 有没有用vomic这个插件的,能用webview打开，但这里就一直提示要改网址，是要改成啥啊
 
+
+*****
+
+####  reficul  
+##### 124#       发表于 2025-12-10 21:35
+
+我的J2K再漫画也是一样的报错，现在已经全部迁移到其他平台了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
