@@ -109,3 +109,18 @@ y键回帖没问题；
 
 挺好，就是没找到回复的地方
 
+
+*****
+
+####  luvletter520  
+##### 58#       发表于 2025-12-10 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68850158&amp;ptid=2268113" target="_blank">臭P遇上臭脚 发表于 2025-12-10 09:07</a>
+
+好顶赞
+
+y键回帖没问题；
+
+回复楼中楼不显示悬浮窗，显示首页是为啥，是不是360浏览器的问题</blockquote>
+好问题 我用的chrome<img src="https://i.meee.com.tw/wJAxJeG.png" referrerpolicy="no-referrer">
+
