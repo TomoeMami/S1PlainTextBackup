@@ -1994,3 +1994,12 @@ MuMu-20251208-170359-800.jpg
 
 那看来确实是我太咸了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18889#       发表于 2025-12-10 20:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">剑R补宝失败歪了大王
+其他更想要补4星，比如兰陵王和黑A
+
