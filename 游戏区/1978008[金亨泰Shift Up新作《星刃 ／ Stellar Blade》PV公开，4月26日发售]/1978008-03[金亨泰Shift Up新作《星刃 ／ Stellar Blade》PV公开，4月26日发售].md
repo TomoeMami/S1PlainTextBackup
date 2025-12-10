@@ -200,3 +200,14 @@ CNS又不能进存档，商店MOD里买了就等于存档里也有了
 
 我当时是每打出一件新衣服就去N网搜有没有魔改版，也挺有新鲜劲的
 
+
+*****
+
+####  江戸前ルナ  
+##### 4307#       发表于 2025-12-10 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68853163&amp;ptid=1978008" target="_blank">两个路人 发表于 2025-12-10 17:53</a>
+
+CNS又不能进存档，商店MOD里买了就等于存档里也有了</blockquote>
+哦对，如果是要奖杯的确要买入存档才行
+
