@@ -3839,3 +3839,11 @@ re的世界观直接20和60一个样也没啥啊
 
 冷知识，桐生比里昂大9岁<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 388#       发表于 2025-12-10 18:35
+
+我现在总有种感觉，9代开发周期那么长，里面东西又藏来藏去的，之前说搞开放世界搞来搞去搞球不成，后面又推翻回去要致敬2代，最后出来难说可能搞得四不像拉坨大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
