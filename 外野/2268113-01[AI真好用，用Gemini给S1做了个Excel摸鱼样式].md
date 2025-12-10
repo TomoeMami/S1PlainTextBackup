@@ -79,3 +79,17 @@
 —— 来自 鹅球 v3.5.99</blockquote>
 加了 但是没有麻将脸<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 55#       发表于 2025-12-10 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68846988&amp;ptid=2268113" target="_blank">luvletter520 发表于 2025-12-9 14:19</a>
+加了 但是没有麻将脸</blockquote>
+好顶赞<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+y键回帖没问题；
+回复楼中楼不显示悬浮窗，显示首页是为啥，是不是360浏览器的问题<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

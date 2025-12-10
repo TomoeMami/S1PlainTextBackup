@@ -1010,3 +1010,11 @@ true music.jpg
 
 ラスサビ高音连发太爽了，李子唱的满身疮痍也可以理解了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41544#       发表于 2025-12-10 09:10
+
+鸡团歌的mv是真的接受不能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是舞台的好
+
