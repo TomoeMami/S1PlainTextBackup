@@ -33,3 +33,14 @@ desert，“这offset真要推吐了”
 
 不过 ruin 大关的机制确实妙啊，我玩的时候一直感觉就是卧槽还能这样，太合理了，就凭这一点我就还是会把这游戏推荐给人玩
 
+
+*****
+
+####  Algie  
+##### 283#       发表于 2025-12-11 06:39
+
+吹哥要公布某些东西了，可能就在tga上
+[https://www.youtube.com/watch?v=CU0VikkaaZ0](https://www.youtube.com/watch?v=CU0VikkaaZ0)
+
+吹哥推箱，出来
+
