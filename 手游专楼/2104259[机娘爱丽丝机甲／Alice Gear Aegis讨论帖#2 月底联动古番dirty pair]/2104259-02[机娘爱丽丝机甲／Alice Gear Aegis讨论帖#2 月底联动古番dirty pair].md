@@ -42,3 +42,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">FAG动画没上的也就两素体和骨架子了吧
 
+
+*****
+
+####  wilkyway  
+##### 1771#       发表于 2025-12-10 14:28
+
+不是 你游是有什么主角一定得给个电属性的规矩嘛 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
