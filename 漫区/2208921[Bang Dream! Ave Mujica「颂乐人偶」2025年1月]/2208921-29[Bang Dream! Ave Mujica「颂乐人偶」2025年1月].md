@@ -1141,3 +1141,29 @@ Blu-ray 付生产限定盘：11,000日元（含税）
 
        [https://t.co/VgUcg8p7E0](https://t.co/VgUcg8p7E0)
 
+
+*****
+
+####  仟音一心  
+##### 41548#       发表于 2025-12-11 19:32
+
+AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
+
+ドロリス／三角初華役 佐々木李子 さん
+アモーリス／祐天寺にゃむ役 米澤茜 さん
+
+5th LIVEを経て、新たな歴史を創り上げたAve Mujicaの2025年下半期。
+
+1年の締め括りは魅せる“魂の叫び”がこもった1枚で ​​​
+<img src="https://p.sda1.dev/29/50bb69ed25896b9eb90d1c730f71ca2d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/6dc845a3f2af6f1929a98390ca482a0d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/035aa383c4cd3e2ee7341f9df84e107a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/3de5e203f3774e1fef2c507a02e68fb5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/1ccc98fefdf635879ae89ca4f3bfff97/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/96847688b106284634a18f78be5d5d73/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/bd128f5e9b799eee89e2dae174b260f3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/3d950763d940e2deb5e813ac915a47e4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/f7b61578b07448df5d2cf7930cd9fcef/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/2783a2320b85b7ea123338f914425352/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/11d8735fed1544a8fda6c2f014ceb09c/image.jpg" referrerpolicy="no-referrer">
+
