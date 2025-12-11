@@ -114,3 +114,25 @@
 我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫Niko最需要 ...</blockquote>
 图一猎鹰有两个3-15的纯蛆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一图一niko就算不虾也带不赢吧，太变态了。
 
+
+*****
+
+####  zpl123  
+##### 4843#       发表于 2025-12-12 02:06
+
+男人一生只哭十九次：Niko梦碎克卢日纳波卡Major、Niko梦碎哥伦布Major、Niko梦碎科隆Major、Niko梦碎亚特兰大Major、Niko梦碎克拉科夫Major、Niko梦碎波士顿Major、Niko梦碎伦敦Major、Niko梦碎卡托维兹Major、Niko梦碎柏林Major、Niko梦碎斯德哥尔摩Major、Niko梦碎安特卫普Major、Niko梦碎里约RMR、Niko梦碎巴黎Major、Niko梦碎哥本哈根Major、Niko梦碎上海Major、Niko梦碎奥斯汀Major、Niko梦碎布达佩斯Major、Niko梦碎科隆Major（待定）、Niko梦碎新加坡Major（待定）
+
+*****
+
+####  yourSwaTer  
+##### 4844#       发表于 2025-12-12 02:09
+
+看完收工睡觉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4845#       发表于 2025-12-12 02:11
+
+这把杀第一也没赢啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
