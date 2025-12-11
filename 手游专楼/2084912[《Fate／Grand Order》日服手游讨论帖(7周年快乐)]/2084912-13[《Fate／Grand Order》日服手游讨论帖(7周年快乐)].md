@@ -2032,3 +2032,49 @@ MuMu-20251208-170359-800.jpg
 
 哪家关服游戏梦火卡着算了毕竟能不但拿硬币还能拿石头但传承结晶还是扣扣搜搜的，就这2个月0活动，平时1个活动算赚8个结晶就这2个月1个巡灵1个签到2个冠位战加起来就拿了4个结晶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 18893#       发表于 2025-12-10 22:22
+
+ 本帖最后由 岸浪白野 于 2025-12-10 23:05 编辑 
+
+礼装池抽了2发服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+抽了40抽算上换2张还差2张没有
+<img src="https://p.sda1.dev/29/c7d683b3bae8d5e29121c178c307ca63/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/10/230527pz1pllytxt4z3b66.jpg" referrerpolicy="no-referrer">
+
+<strong>7L5T0@U3{J3B28MJ7(M[T~P_tmb.jpg</strong> (126.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 23:05 上传
+
+*****
+
+####  白金口袋  
+##### 18894#       发表于 2025-12-10 23:46
+
+全从者复刻真的一股关服味<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 18895#       发表于 2025-12-11 00:09
+
+ 本帖最后由 岸浪白野 于 2025-12-11 00:38 编辑 
+
+哪家关服游戏梦火卡着就算了毕竟能不但拿硬币还能拿石头但传承结晶还是扣扣搜搜的，就这2个月0活动，平时1个活动算赚8个结晶2个月内1个巡灵1个签到2个冠位战和无限池加起来就拿了6个结晶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就喜欢玩家点个999，更别说现在还有点被动
+
+*****
+
+####  kiralzb  
+##### 18896#       发表于 2025-12-11 14:18
+
+这游戏现在卡池这么离谱的吗，一大堆，模拟器都顶不住，多进几次直接报错关闭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

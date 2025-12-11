@@ -94,3 +94,13 @@
 
 换色也算了，轰雷改的SP怎么还是拿个大炮站射啊
 
+
+*****
+
+####  冰风血羽  
+##### 1777#       发表于 2025-12-11 14:19
+
+喂，这4000票必得池不是直接暴露了这次就这俩新的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
