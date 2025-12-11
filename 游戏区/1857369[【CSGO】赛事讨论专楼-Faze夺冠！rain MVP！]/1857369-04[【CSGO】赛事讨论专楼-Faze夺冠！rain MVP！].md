@@ -136,3 +136,29 @@
 
 这把杀第一也没赢啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  77BBC  
+##### 4846#       发表于 2025-12-12 02:16
+
+一晚上双五杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Niyah  
+##### 4847#       发表于 2025-12-12 02:19
+
+外卖都没吃完就没了，下一场还延时，看个剧吃了直接睡了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 4848#         楼主| 发表于 2025-12-12 02:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860253&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-12 00:53</a>
+图一猎鹰有两个3-15的纯蛆有一说一图一niko就算不虾也带不赢吧，太变态了。 ...</blockquote>
+主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀疑这事是不是和他脱不了干系
+
