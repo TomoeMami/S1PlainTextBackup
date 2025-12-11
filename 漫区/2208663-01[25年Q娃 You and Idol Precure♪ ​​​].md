@@ -690,3 +690,29 @@ p25 今千秋
 
 不过比起无意义水剧情水到莫名其妙的天空来说还是好一点（
 
+
+*****
+
+####  pokemon最爱  
+##### 1468#       发表于 2025-12-8 12:37
+
+个人感觉就是解决完Meroron的问题拿到全队合体技玩具后剧情就突出一个想一出是一出没有一个规划了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过比起无意义水剧情水到莫名其妙的天空来说还是好一点（
+
+*****
+
+####  renkan119  
+##### 1469#       发表于 2025-12-11 08:21
+
+虽然大家都知道这结界是偷懒的 但这直接就在访谈里说出来也挺不要脸的…
+
+<img src="https://img.stage1st.com/forum/202512/11/082158g5f15w5inuw7fuuz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6077.jpeg</strong> (171.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-11 08:21 上传
+
