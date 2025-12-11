@@ -1686,3 +1686,11 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 <img src="https://p.sda1.dev/29/dc78d7f259dd218b5cfd37996de88ac4/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/29/bf8f58a4ded98bb92d09c82d093aef74/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41553#       发表于 2025-12-11 23:30
+
+糖爱音这集好正经，不习惯<img src="https://static.stage1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
