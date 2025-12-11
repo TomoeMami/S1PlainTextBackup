@@ -104,3 +104,13 @@
 一脚踢死</blockquote>
 我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Niko最需要的是个心理医生，靠自己虾病是永远治不好了
 
+
+*****
+
+####  heseran  
+##### 4842#       发表于 2025-12-12 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860235&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 00:42</a>
+我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫Niko最需要 ...</blockquote>
+图一猎鹰有两个3-15的纯蛆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一图一niko就算不虾也带不赢吧，太变态了。
+
