@@ -700,3 +700,21 @@ msm频道是会员没断过，直播没看过的状态。
 
 不是犯病了就是发疯了，她不一直就这样
 
+
+*****
+
+####  北山玖公  
+##### 1658#       发表于 2025-12-11 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毒衣这号有不发疯的时候吗？从彩虹跑路属实是拆弹专家了
+
+
+*****
+
+####  艾特娜  
+##### 1659#       发表于 2025-12-11 18:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我在X上搜怎么没看到
+
+顺便她就是因为惹了棒球粉后在大号道完谦继续在小号发疯才被彩虹踢了的
+
