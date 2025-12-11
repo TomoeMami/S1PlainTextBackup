@@ -56,3 +56,14 @@
 
 （我体力之前满了好几次，日常扫荡2倍体力换1.5倍奖励很亏，只能挂脚本了...）
 
+
+*****
+
+####  红魔馆的糖  
+##### 1201#       发表于 2025-12-11 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68855605&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2025-12-11 09:21</a>
+
+还有20天本赛季结束（12.31开新版本），考虑到通行证价值非凡，如果肯肝的话建议开通葬花吟通行证并肝到 ...</blockquote>
+感谢。手游还是玩的头大，这个破裂队我看了下要凑够人才行，不然连BUFF都亏光光。还有这个自动连线也很难绷，居然是打boss才能手动连，而且杂鱼关卡还特别多，我图书馆打都市传说都不P的人，打他这个前三章主线p困了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
