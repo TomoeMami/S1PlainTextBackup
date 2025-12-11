@@ -2112,3 +2112,47 @@ MuMu-20251208-170359-800.jpg
 
 这边mumu和安卓手机都正常，只有IPAD依旧不时闪退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18901#       发表于 2025-12-11 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68857834&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-12-11 15:54</a>
+
+这边mumu和安卓手机都正常，只有IPAD依旧不时闪退</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明你这ipad老了该换新的了
+
+其实我不太懂这游戏为什么这么吃配置。。
+
+*****
+
+####  khxooo  
+##### 18902#       发表于 2025-12-11 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68857834&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-12-11 15:54</a>
+这边mumu和安卓手机都正常，只有IPAD依旧不时闪退</blockquote>
+是时候换了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lokiling  
+##### 18903#       发表于 2025-12-11 18:10
+
+<img src="https://img.stage1st.com/forum/202512/11/181020vsjtgttzuj8m2puq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20251211181008.png</strong> (556.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 18:10 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赞美BBC
+
+*****
+
+####  有鱼  
+##### 18904#       发表于 2025-12-12 01:26
+
+萌新好缺qp<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
