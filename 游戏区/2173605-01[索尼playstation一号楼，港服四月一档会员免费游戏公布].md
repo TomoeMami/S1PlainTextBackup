@@ -3961,3 +3961,18 @@ Skate Story PS5
 <img src="https://p.sda1.dev/29/f275e5cb6b8a754c76fcb3d684d94988/1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/29/011903df606046ff222b7c09bfd5f39c/2.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 401#       发表于 2025-12-11 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68850073&amp;ptid=2173605" target="_blank">conanoysq 发表于 2025-12-10 08:43</a>
+
+saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧</blockquote>
+这个画面和卖相明显比老太太打手枪好为什么不能卖全价?
+
+而且死亡回归这么好玩的游戏卖70刀也没啥冤枉的，玩过的都心里有数。
+
+而且现在隔壁老任做个卡比碰碰车都能卖70刀，索尼出个3A打枪为什么不能卖70刀?<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
