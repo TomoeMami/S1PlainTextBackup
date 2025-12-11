@@ -60,3 +60,20 @@
 据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100  ...</blockquote>
 最后一舞了，这回是真养老了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 4837#         楼主| 发表于 2025-12-12 00:25
+
+伟神神了，感觉要把猎鹰一脚踢死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4838#       发表于 2025-12-12 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860169&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 00:25</a>
+伟神神了，感觉要把猎鹰一脚踢死了</blockquote>
+猎鹰手枪局拿不下就直接图二
+

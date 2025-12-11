@@ -1694,3 +1694,11 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 
 糖爱音这集好正经，不习惯<img src="https://static.stage1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 41554#       发表于 2025-12-12 00:34
+
+访谈这么吊胃口呢 难道6th真有核嗓
+
