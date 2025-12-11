@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1765171214,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -5751,10 +5751,10 @@
     "update": false
   },
   "2141164": {
-    "totalreply": 1345,
+    "totalreply": 1346,
     "title": "[棕色尘埃2讨论楼，它治好我的电子ed]",
     "newtitle": "[棕色尘埃2，10.26新角色很涩。s1有群吗]",
-    "lastedit": 1765425368,
+    "lastedit": 1765430649,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16983,10 +16983,10 @@
     "update": false
   },
   "2269261": {
-    "totalreply": 187,
+    "totalreply": 188,
     "title": "[当下环境，一个男生不买房不结婚真的能随便过吗？]",
     "newtitle": "[当下环境，一个男生不买房不结婚真的能随便过吗？]",
-    "lastedit": 1765427903,
+    "lastedit": 1765430411,
     "category": "外野",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "2269277": {
-    "totalreply": 378,
+    "totalreply": 379,
     "title": "[为什么一些坛友会觉得用ai“创作”很有趣？]",
     "newtitle": "[为什么一些坛友会觉得用ai“创作”很有趣？]",
-    "lastedit": 1765428248,
+    "lastedit": 1765430410,
     "category": "外野",
     "active": true,
     "update": false
@@ -17118,10 +17118,10 @@
     "update": false
   },
   "2269256": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[现在怎么但凡一个网游都是先问能不能搬？]",
     "newtitle": "[现在怎么但凡一个网游都是先问能不能搬？]",
-    "lastedit": 1765421896,
+    "lastedit": 1765430887,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2269265": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[我们正在被乡毋宁剥削]",
     "newtitle": "[我们正在被乡毋宁剥削]",
-    "lastedit": 1765429453,
+    "lastedit": 1765430411,
     "category": "外野",
     "active": true,
     "update": false
@@ -17158,6 +17158,15 @@
     "title": "[『怪化猫』新作剧场版动画制作决定 2024年7月26日上映]",
     "newtitle": "[『怪化猫』新作剧场版动画制作决定 2024年7月26日上映]",
     "lastedit": 1765430054,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2199597": {
+    "totalreply": 122,
+    "title": "[梅津泰臣 × SHAFT 原创动画系列《VIRGIN PUNK》]",
+    "newtitle": "[梅津泰臣 × SHAFT 原创动画系列《VIRGIN PUNK》]",
+    "lastedit": 1765430652,
     "category": "漫区",
     "active": true,
     "update": false
