@@ -162,3 +162,20 @@
 图一猎鹰有两个3-15的纯蛆有一说一图一niko就算不虾也带不赢吧，太变态了。 ...</blockquote>
 主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀疑这事是不是和他脱不了干系
 
+
+*****
+
+####  zhacaizn  
+##### 4849#       发表于 2025-12-12 02:33
+
+马西西只是一个位置
+
+*****
+
+####  heseran  
+##### 4850#       发表于 2025-12-12 02:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860430&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 02:21</a>
+主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀 ...</blockquote>
+说白了niko待过的每个阵容关键时刻都得靠他兜底啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，其他人真不行，就连相对来说算是稳定的瓜皇都是个软脚虾，15比11那波马枪就注定我永远不可能原谅瓜皇了，记忆犹新，太丑陋了。
+
