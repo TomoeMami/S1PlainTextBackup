@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 12005,
+    "totalreply": 12006,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，三周年大团圆你喜欢嘛？2号楼！]",
-    "lastedit": 1765415649,
+    "lastedit": 1765430293,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2196876": {
-    "totalreply": 4587,
+    "totalreply": 4588,
     "title": "[空之轨迹1st重制公开！2025年全球同步发售，登录ns／ps／pc!]",
     "newtitle": "[空之轨迹1st重制公开！2025.9.19全球同步发售，登录ns／ns2／ps5／pc!]",
-    "lastedit": 1765429097,
+    "lastedit": 1765430293,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 3907,
+    "totalreply": 3909,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年10月16日发售，gf开发]",
-    "lastedit": 1765429103,
+    "lastedit": 1765430293,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11457,10 +11457,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 980,
+    "totalreply": 981,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1765428729,
+    "lastedit": 1765429929,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 21803,
+    "totalreply": 21810,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1765429696,
+    "lastedit": 1765430291,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15642,10 +15642,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 980,
+    "totalreply": 981,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1765428851,
+    "lastedit": 1765430167,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16241,7 +16241,7 @@
     "newtitle": "[苍树うめ微热空间第33话【绷不住就不要绷了（？)]",
     "lastedit": 1765170849,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2269075": {
@@ -17019,10 +17019,10 @@
     "update": false
   },
   "2269268": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[我去，四个马]",
     "newtitle": "[我去，四个马]",
-    "lastedit": 1765425741,
+    "lastedit": 1765430052,
     "category": "外野",
     "active": true,
     "update": false
@@ -17150,6 +17150,15 @@
     "newtitle": "[我们正在被乡毋宁剥削]",
     "lastedit": 1765429453,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2069222": {
+    "totalreply": 97,
+    "title": "[『怪化猫』新作剧场版动画制作决定 2024年7月26日上映]",
+    "newtitle": "[『怪化猫』新作剧场版动画制作决定 2024年7月26日上映]",
+    "lastedit": 1765430054,
+    "category": "漫区",
     "active": true,
     "update": false
   }
