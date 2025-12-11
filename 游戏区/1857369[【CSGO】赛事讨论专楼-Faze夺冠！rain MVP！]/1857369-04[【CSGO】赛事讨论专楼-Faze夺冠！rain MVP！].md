@@ -179,3 +179,22 @@
 主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀 ...</blockquote>
 说白了niko待过的每个阵容关键时刻都得靠他兜底啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，其他人真不行，就连相对来说算是稳定的瓜皇都是个软脚虾，15比11那波马枪就注定我永远不可能原谅瓜皇了，记忆犹新，太丑陋了。
 
+
+*****
+
+####  doublehit  
+##### 4851#       发表于 2025-12-12 02:45
+
+上海的g2跟这次的猎鹰就像一个二流反派角色，平时狂赢对手就是为了在最重要的时候输给对方。就没有当主角的命<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Rainwedell  
+##### 4852#       发表于 2025-12-12 02:46
+
+尼尼经典剧情，社区氛围和粉丝又到新循环了，直接说踢谁吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
