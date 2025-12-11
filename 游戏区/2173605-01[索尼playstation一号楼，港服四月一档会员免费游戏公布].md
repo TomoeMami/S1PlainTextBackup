@@ -4039,3 +4039,14 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 
 2025-12-11 21:33 上传
 
+
+*****
+
+####  雲夢淵澤  
+##### 406#       发表于 2025-12-11 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68859396&amp;ptid=2173605" target="_blank">葵 发表于 2025-12-11 20:53</a>
+
+一年34个白金，你这强度有点高啊</blockquote>
+主要是除了看电影之外也没啥爱好了。
+
