@@ -212,3 +212,11 @@ MuMu-20251209-224736-522.jpg
 
 大号上头，我也遇到了金狂转身狂兰了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  atomicink  
+##### 47574#       发表于 2025-12-11 10:20
+
+看日服明年这么多戴冠战，bgo的无限池已经索然无味了
+
