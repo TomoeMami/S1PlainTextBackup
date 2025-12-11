@@ -1102,3 +1102,42 @@ Blu-ray 付生产限定盘：11,000日元（含税）
 #BanGDream# #AveMujica# #AveMujica3rdSG#</blockquote>
        
 
+
+*****
+
+####  堀内爱里衣  
+##### 41546#       发表于 2025-12-11 17:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/11/174825f3szbh033ahayki5.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-11_17-45-55.jpg</strong> (279.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 17:48 上传
+
+       [https://x.com/bang_dream_info/status/1999041474273370601](https://x.com/bang_dream_info/status/1999041474273370601)
+
+       [https://t.co/S6JRQNjwso](https://t.co/S6JRQNjwso)
+
+*****
+
+####  堀内爱里衣  
+##### 41547#       发表于 2025-12-11 17:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/11/174845anedi4k8q55354ug.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-11_17-47-00.jpg</strong> (261.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 17:48 上传
+
+       [https://x.com/bang_dream_info/status/1999049015619707244](https://x.com/bang_dream_info/status/1999049015619707244)
+
+       [https://t.co/VgUcg8p7E0](https://t.co/VgUcg8p7E0)
+
