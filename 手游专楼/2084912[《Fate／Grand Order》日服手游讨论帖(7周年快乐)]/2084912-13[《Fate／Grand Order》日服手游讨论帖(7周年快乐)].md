@@ -2078,3 +2078,37 @@ MuMu-20251208-170359-800.jpg
 
 这游戏现在卡池这么离谱的吗，一大堆，模拟器都顶不住，多进几次直接报错关闭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18897#       发表于 2025-12-11 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68857312&amp;ptid=2084912" target="_blank">kiralzb 发表于 2025-12-11 14:18</a>
+
+这游戏现在卡池这么离谱的吗，一大堆，模拟器都顶不住，多进几次直接报错关闭 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">模拟器都 x  你模拟器有问题o
+
+*****
+
+####  kiralzb  
+##### 18898#       发表于 2025-12-11 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68857368&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-11 14:28</a>
+模拟器都 x  你模拟器有问题o</blockquote>
+刚刚下载的mumu，设置问题？
+
+*****
+
+####  alucardcz  
+##### 18899#       发表于 2025-12-11 15:41
+
+不知道 反正手机运行没有问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 18900#       发表于 2025-12-11 15:54
+
+这边mumu和安卓手机都正常，只有IPAD依旧不时闪退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
