@@ -4023,3 +4023,19 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 我应该是游戏区真玩游戏的那一类吧</blockquote>
 一年34个白金，你这强度有点高啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 405#       发表于 2025-12-11 21:33
+
+本周日本销量。推出补贴版看来还是能相对稳在1w台以上，至少比以前四五千台强点不是<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/11/213320jronmhlxk6u6kutl.png" referrerpolicy="no-referrer">
+
+<strong>Image_1765459870714.png</strong> (44.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 21:33 上传
+
