@@ -198,3 +198,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  朔方原的星  
+##### 4853#         楼主| 发表于 2025-12-12 03:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860461&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2025-12-12 02:46</a>
+尼尼经典剧情，社区氛围和粉丝又到新循环了，直接说踢谁吧
+
+—— 来自 S1Fun ...</blockquote>
+我挺想看zonic和k3都走的，看看这出戏能循环到什么时候
+
