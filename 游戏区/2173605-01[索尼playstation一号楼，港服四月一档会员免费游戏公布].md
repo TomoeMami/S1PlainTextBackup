@@ -3976,3 +3976,16 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 
 而且现在隔壁老任做个卡比碰碰车都能卖70刀，索尼出个3A打枪为什么不能卖70刀?<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeverCU  
+##### 402#       发表于 2025-12-11 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68858896&amp;ptid=2173605" target="_blank">葵 发表于 2025-12-11 18:49</a>
+
+这个画面和卖相明显比老太太打手枪好为什么不能卖全价?
+
+而且死亡回归这么好玩的游戏卖70刀也没啥冤枉的 ...</blockquote>
+最后还是销量说话。
+
