@@ -77,3 +77,30 @@
 伟神神了，感觉要把猎鹰一脚踢死了</blockquote>
 猎鹰手枪局拿不下就直接图二
 
+
+*****
+
+####  heseran  
+##### 4839#       发表于 2025-12-12 00:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一脚踢死
+
+
+*****
+
+####  宝儿  
+##### 4840#       发表于 2025-12-12 00:40
+
+哲伟！
+
+
+*****
+
+####  朔方原的星  
+##### 4841#         楼主| 发表于 2025-12-12 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860206&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-12 00:35</a>
+
+一脚踢死</blockquote>
+我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Niko最需要的是个心理医生，靠自己虾病是永远治不好了
+
