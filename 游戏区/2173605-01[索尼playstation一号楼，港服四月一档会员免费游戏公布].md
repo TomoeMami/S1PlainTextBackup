@@ -3989,3 +3989,37 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 而且死亡回归这么好玩的游戏卖70刀也没啥冤枉的 ...</blockquote>
 最后还是销量说话。
 
+
+*****
+
+####  雲夢淵澤  
+##### 403#       发表于 2025-12-11 20:49
+
+我应该是游戏区真玩游戏的那一类吧
+
+<img src="https://img.stage1st.com/forum/202512/11/204921wkr2x0urrukxkkzc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251211204809.png</strong> (419.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 20:49 上传
+
+<img src="https://img.stage1st.com/forum/202512/11/204927akin1kuvbch8knvf.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (464.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 20:49 上传
+
+*****
+
+####  葵  
+##### 404#       发表于 2025-12-11 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68859382&amp;ptid=2173605" target="_blank">雲夢淵澤 发表于 2025-12-11 20:49</a>
+
+我应该是游戏区真玩游戏的那一类吧</blockquote>
+一年34个白金，你这强度有点高啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
