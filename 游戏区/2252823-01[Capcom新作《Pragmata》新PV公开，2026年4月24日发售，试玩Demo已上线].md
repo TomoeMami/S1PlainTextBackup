@@ -2065,3 +2065,11 @@ demo7个g 12分钟打完了？
 
 我感觉还行，路上枪靠捡的这点梦回360时代
 
+
+*****
+
+####  madcow  
+##### 213#       发表于 2025-12-12 20:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对而且枪是就那么立在地上的。特别复古（？？
+
