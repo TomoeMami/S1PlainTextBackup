@@ -86,3 +86,16 @@ Steam页面
 
 在全面激发超自然潜能的过程中，迪伦还要寻找身为控制局局长的姐姐杰西·法登，同时努力了解并遏制从太古屋散逸的危险力量，而这股力量企图撕裂我们所处的世界。
 
+
+*****
+
+####  C.W.Nimitz  
+##### 70#       发表于 2025-12-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68861782&amp;ptid=2104476" target="_blank">电脑死机 发表于 2025-12-12 10:21</a>
+
+问题是男主身份，董明珠他弟？</blockquote>
+是的。
+
+1代他弟弟事其实没讲太多。不过他这么多年过来的精神状态，新作估计又是大量mind fuck场景
+
