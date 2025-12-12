@@ -431,3 +431,20 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 
 真拳派崛起是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  虽然还是老三样 但比横皮尔伯格写的像点人样就行
 
+
+*****
+
+####  Andariel  
+##### 50#       发表于 2025-12-12 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863777&amp;ptid=2269411" target="_blank">马甲20250922 发表于 2025-12-12 13:25</a>
+他的人设就是“游戏圈的古惑仔”，僵硬医美脸反而更贴合他这个人设。</blockquote>
+他这个医美脸总是让我想起现在的古天乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 51#       发表于 2025-12-12 15:34
+
+等等等等，在日朝鲜人+90年代，不会要打朝总联，最终boss是二胖吧？
+
