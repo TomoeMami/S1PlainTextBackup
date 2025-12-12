@@ -2019,3 +2019,25 @@ demo7个g 12分钟打完了？
 
 搞个预售视频给中配，demo不让选，这是怎么个事
 
+
+*****
+
+####  h1r0  
+##### 209#       发表于 2025-12-12 19:45
+
+射击玩法我觉得还行，破解难度不高但能一直保持右手有事做挺好的
+
+不满意的是小女孩模型是完全黏在背上的，没有惯性，主角大幅度动作如奔跑时违和感强烈
+
+
+*****
+
+####  otakun  
+##### 210#       发表于 2025-12-12 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865875&amp;ptid=2252823" target="_blank">h1r0 发表于 2025-12-12 19:45</a>
+射击玩法我觉得还行，破解难度不高但能一直保持右手有事做挺好的
+
+不满意的是小女孩模型是完全黏在背上的， ...</blockquote>
+这个我觉得可以学学大金刚的宝琳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，闪避时小女孩踩在背上
+
