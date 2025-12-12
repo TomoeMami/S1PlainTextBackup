@@ -1636,3 +1636,30 @@ CAPCOM的最新作《PRAGMATA》——一部带有独特黑客感觉的全新科
 
 十几分钟的试玩已经让我觉得有些无聊了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ralfli  
+##### 175#       发表于 2025-12-12 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68861457&amp;ptid=2252823" target="_blank">smileboom 发表于 2025-12-12 09:50</a>
+
+有大佬玩上demo了吗，感觉如何</blockquote>
+有几个要素，你感受一下
+
+1/战斗还是尽可能创造1V1的环境
+
+2/次数回血，DEMO可以回复3次，存档点可以回复使用次数，看UI目测可以升级使用次数
+
+3/闪避、跳跃、浮空需要消耗耐力槽，有精闪，效果是子弹时间
+
+4/受创硬直挺大的，没看出来有没有无敌时间
+
+战斗先用萝莉破甲叠BUFF后用枪械输出，BUFF是消耗品，可以拾取——开箱子之类的
+
+除了手枪外，捡到的其他枪也都是消耗品，子弹消耗完枪就没了，枪械也可以在流程中拾取
+
+DEMO的战斗场景都比较狭窄，BOSS战是大平台，场地有枪械和BUFF补给
+
+挺对个人路子，主要是萝莉戴安娜非常萌……
+
