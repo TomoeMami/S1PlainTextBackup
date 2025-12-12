@@ -646,3 +646,16 @@ steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
 
 这个演员的角色必然很讨喜，他只能演这类角色
 
+
+*****
+
+####  黑上シグマ  
+##### 73#       发表于 2025-12-12 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865344&amp;ptid=2269411" target="_blank">汪达 发表于 2025-12-12 17:45</a>
+
+steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
+
+“他们只是睡着了” ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如龙稀硫酸也捅刀子开枪啊，你说杀没杀
+
