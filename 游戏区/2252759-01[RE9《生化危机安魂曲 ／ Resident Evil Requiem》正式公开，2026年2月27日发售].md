@@ -3943,3 +3943,38 @@ PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  eilot  
+##### 401#       发表于 2025-12-12 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68861850&amp;ptid=2252759" target="_blank">nagitoY 发表于 2025-12-12 10:30</a>
+
+希望是以主控里昂为主啊。之前试玩主控格雷莎，武器都没有只能和怪绕圈圈，不喜欢。 ...</blockquote>
+格雷莎之前說她都有武器及有戰鬥能力，但她那場試玩版只是傳統的逃避回合，又沒武器只能繞圈
+
+今次PV也見到她有手槍都沒機會用
+
+就看她有沒體術，但如何看這位FBI應該也遠不如雪梨這位保護要人組的特工吧
+
+里昂的零距離爆頭射擊，有點像CG電影中他的招式之一
+
+*****
+
+####  eilot  
+##### 402#       发表于 2025-12-12 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68851350&amp;ptid=2252759" target="_blank">血狂毘沙门 发表于 2025-12-10 12:23</a>
+
+8的克里斯已经够烂活了 还能更烂吗</blockquote>
+官方還未交代8代說CHRIS準備帶隊質問(反攻?)歐洲BSAA
+
+16年後看似成功奪權(?)，
+
+但小女孩又是監視更有狙擊手隨時爆她的頭狀態，又是沒解釋
+
+只是她的語氣又好像是CHRIS的親兵來...
+
+9代應該會提BSAA現在是處於甚麼環境吧
+
