@@ -456,3 +456,30 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 
 日本人开发的操作韩裔美国人主角殴打日本雅库扎的游戏吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王不动  
+##### 53#       发表于 2025-12-12 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68862017&amp;ptid=2269411" target="_blank">RinQ0326 发表于 2025-12-12 10:46</a>
+
+能不能做成审判系列精神续作？
+
+另外是不是可以考虑加入韩国地图？</blockquote>
+还得去扫描，多麻烦，你看这不直接歌舞伎町走起，地图都是现成的
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 54#       发表于 2025-12-12 16:10
+
+名越摸鱼这么久不会是在等竞业吧？
+
+*****
+
+####  oahcihs  
+##### 55#       发表于 2025-12-12 16:13
+
+如龙正统在这里！
+

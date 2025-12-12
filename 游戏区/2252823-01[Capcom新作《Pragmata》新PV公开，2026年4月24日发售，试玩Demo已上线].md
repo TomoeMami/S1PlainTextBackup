@@ -1877,3 +1877,15 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 弹药好少...打boss满图找喷子...
 
+
+*****
+
+####  cmyk1234  
+##### 194#       发表于 2025-12-12 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863877&amp;ptid=2252823" target="_blank">ralfli 发表于 2025-12-12 13:40</a>
+如果按照DEMO的情况来看还是很休闲的
+
+戴安娜破解加BUFF的时候是子弹时间——无限接近于2077快速破解的操 ...</blockquote>
+听着像“索敌-破甲-VR战警”？
+
