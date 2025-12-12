@@ -228,3 +228,14 @@ MuMu-20251209-224736-522.jpg
 
 金卡，狂阶，结果是大公....<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 47576#       发表于 2025-12-12 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849019&amp;ptid=1712412" target="_blank">sandro 发表于 2025-12-9 21:06</a>
+
+我靠，一上头追2宝就非了，总共350多抽才2宝，吐了</blockquote>
+跟我差不多，第一个十连出一宝，然后二宝追到井底
+
