@@ -1807,3 +1807,31 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 原来小萝莉不是无口是话唠😍我只玩了英文日配都是谁啊？还有哪位大神能听出来中配是谁？
 
+
+*****
+
+####  ascomnet  
+##### 190#       发表于 2025-12-12 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864493&amp;ptid=2252823" target="_blank">MR骑士道MKⅦ 发表于 2025-12-12 15:27</a>
+
+原来小萝莉不是无口是话唠😍我只玩了英文日配都是谁啊？还有哪位大神能听出来中配是谁？ ...</blockquote>
+
+中文官网，cv没有写
+
+<img src="https://img.stage1st.com/forum/202512/12/153952daiiqavpar65vgaw.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-12-12 153908.jpg</strong> (53.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 15:39 上传
+
+<img src="https://img.stage1st.com/forum/202512/12/153953kgip5gjs4g4i3raj.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-12-12 153924.jpg</strong> (60.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 15:39 上传
+
