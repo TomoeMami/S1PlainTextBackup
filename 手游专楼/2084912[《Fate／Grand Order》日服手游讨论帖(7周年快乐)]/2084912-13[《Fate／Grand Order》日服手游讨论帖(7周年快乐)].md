@@ -2156,3 +2156,51 @@ MuMu-20251208-170359-800.jpg
 
 萌新好缺qp<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 18905#       发表于 2025-12-12 13:35
+
+还有20天不到自抽就结束了
+
+至今0出货
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 18906#       发表于 2025-12-12 16:21
+
+还有8抽，非酋希望能出货<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 18907#       发表于 2025-12-12 19:28
+
+<img src="https://img.stage1st.com/forum/202512/12/192746hrylzmojayrh18j8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (348.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 19:27 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">每日蚊子腿第4个...平均下来比up池还能出了
+
+*****
+
+####  岸浪白野  
+##### 18908#       发表于 2025-12-12 20:55
+
+ 本帖最后由 岸浪白野 于 2025-12-12 20:58 编辑 
+
+现在就4星出过2个都是剧情限定，没出过5星
+
+反正也快新年1月1号抽卡了，继续拿免费抽垫刀无所谓了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别想太多自己非，要清楚这游戏就算抓包自己总抽数概率都只会铁打的接近1%的时候就已经该明白了
+
+没有抽限定池和免费抽能两手抓的
+
