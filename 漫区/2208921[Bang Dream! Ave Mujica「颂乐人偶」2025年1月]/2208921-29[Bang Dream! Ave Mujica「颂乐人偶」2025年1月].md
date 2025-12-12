@@ -1743,3 +1743,15 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 
        [https://t.co/TGCIxHzCRD](https://t.co/TGCIxHzCRD)
 
+
+*****
+
+####  仟音一心  
+##### 41558#       发表于 2025-12-12 22:06
+
+给mujica服装带货的主唱，似曾相识的一幕。
+<img src="https://p.sda1.dev/29/416a70509534bdaa818bcb3a3df1af6a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/7fb46e4bd9489dbfc187f311a2243b02/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/49c9d08b2e6da13c89897e6f9666933c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/09f794efc1536e3d04b47f525508b13d/image.jpg" referrerpolicy="no-referrer">
+
