@@ -2073,3 +2073,32 @@ demo7个g 12分钟打完了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对而且枪是就那么立在地上的。特别复古（？？
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 214#       发表于 2025-12-12 21:30
+
+只能说实际上手比看起来的要好玩那么一点点，但是也就一点点了，不知道后续强化能力会强化哪方面，如果只是在格子里塞更多特效的话，也是一眼到头了
+当然，萝莉还是挺萌的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ASR  
+##### 215#       发表于 2025-12-12 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865209&amp;ptid=2252823" target="_blank">绫里真宵 发表于 2025-12-12 18:19</a>
+
+这个NO几是根据什么变的0 0</blockquote>
+疑似跟通关时间没关系，但是好像有只用枪和只用破解通关的特殊图？
+
+
+*****
+
+####  桥本有菜  
+##### 216#       发表于 2025-12-12 21:35
+
+全用萝莉通关好像能有特殊的画
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
