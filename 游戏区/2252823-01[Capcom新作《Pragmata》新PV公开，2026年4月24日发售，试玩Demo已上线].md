@@ -1612,3 +1612,11 @@ CAPCOM的最新作《PRAGMATA》——一部带有独特黑客感觉的全新科
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chris1987  
+##### 172#       发表于 2025-12-12 11:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

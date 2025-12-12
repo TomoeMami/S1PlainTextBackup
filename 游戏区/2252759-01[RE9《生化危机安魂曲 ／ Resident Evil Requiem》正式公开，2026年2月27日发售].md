@@ -3925,3 +3925,21 @@ PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
 
 听声音好像变回Matthew Mercer了
 
+
+*****
+
+####  梅斯之围  
+##### 399#       发表于 2025-12-12 11:16
+
+看到李三光出场没什么感觉。不过看到战斗演示突然来劲了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉有  
+##### 400#       发表于 2025-12-12 11:25
+
+<img src="https://p.sda1.dev/29/285f368601be3cf0a5ad5c982be86582/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
