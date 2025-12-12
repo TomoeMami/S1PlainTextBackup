@@ -3978,3 +3978,13 @@ PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
 
 9代應該會提BSAA現在是處於甚麼環境吧
 
+
+*****
+
+####  kamus  
+##### 403#       发表于 2025-12-12 12:22
+
+<blockquote>阿卵真是牛逼 发表于 2025-12-11 21:41
+听声音好像变回Matthew Mercer了</blockquote>
+是哪个？6的那个吗？重置2和4那个也很好啊，是不是觉得听着太年轻了
+
