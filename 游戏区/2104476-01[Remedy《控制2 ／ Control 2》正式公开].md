@@ -201,3 +201,16 @@ Steam页面
 
 美术和设定都挺喜欢的，不过好像没了一代的神秘感了。我更希望主角还是董明珠，不过男主的脸建模修改之后也挺帅的，一代弟弟的脸太像反派了。
 
+
+*****
+
+####  Sopp  
+##### 81#       发表于 2025-12-12 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863991&amp;ptid=2104476" target="_blank">prattwhitney 发表于 2025-12-12 14:03</a>
+
+这玩意类型是ARPG，搞不好是个类魂……港真新怪谭风格做类魂其实还挺搭的。
+
+但是Remedy的游戏都有播片过度 ...</blockquote>
+alan wake相比control更偏avg一点，故事也讲得更晦涩
+
