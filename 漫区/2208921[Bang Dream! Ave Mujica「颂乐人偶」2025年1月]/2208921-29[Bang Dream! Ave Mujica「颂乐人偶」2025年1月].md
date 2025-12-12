@@ -1721,3 +1721,25 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 导演要求立石凛还要再傻一点。
 <img src="https://p.sda1.dev/29/6022907bc8923504571f4cea1e7ec107/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41557#       发表于 2025-12-12 21:35
+
+       
+
+<img src="https://img.stage1st.com/forum/202512/12/213531mlqaqwpcxbcplcw7.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-12-12_21-34-25.jpg</strong> (227.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 21:35 上传
+
+       [https://x.com/bang_dream_info/status/1999434063783002482](https://x.com/bang_dream_info/status/1999434063783002482)
+
+       [https://t.co/tkqix7sZOk](https://t.co/tkqix7sZOk)
+
+       [https://t.co/TGCIxHzCRD](https://t.co/TGCIxHzCRD)
+
