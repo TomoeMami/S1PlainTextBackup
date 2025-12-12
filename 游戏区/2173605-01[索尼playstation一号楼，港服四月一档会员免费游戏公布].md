@@ -4072,3 +4072,13 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 
  PlayStation®5支持4K高画质输出，搭载高速SSD和定制I/O架构，呈现细腻震撼的画面与沉浸的打击感，带你体验刀光剑影，快意恩仇的畅快江湖！下一站，武侠世界，就在PlayStation®5。
 
+
+*****
+
+####  黑猫软  
+##### 409#       发表于 2025-12-12 12:48
+
+以为能混点小奖，没想到颗粒无收<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+期待生化9和影之刃了
+
