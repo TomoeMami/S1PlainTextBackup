@@ -252,3 +252,11 @@ cs没有十擒。
 
 海鲜榜top1像国内某个龟类dota选手一样，粉丝都把转会来的天才少年认成儿子，结果也把儿子们带成海鲜，让人感叹.<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mimic  
+##### 4859#       发表于 2025-12-13 03:13
+
+FAZE UP!!!
+
