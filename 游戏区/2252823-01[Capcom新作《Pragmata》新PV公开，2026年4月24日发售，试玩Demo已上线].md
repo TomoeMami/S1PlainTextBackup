@@ -1776,3 +1776,11 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 打一个伊莉雅和巴萨卡的mod应该会很带劲<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 186#       发表于 2025-12-12 14:14
+
+这豪华版有萝莉换装，不知道能不能拿出来单卖
+
