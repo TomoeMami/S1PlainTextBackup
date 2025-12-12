@@ -1835,3 +1835,37 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 2025-12-12 15:39 上传
 
+
+*****
+
+####  Sissii  
+##### 191#       发表于 2025-12-12 15:46
+
+<img src="https://img.stage1st.com/forum/202512/12/154534z8x0ucj1rzteuscj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (272.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 15:45 上传
+
+<img src="https://img.stage1st.com/forum/202512/12/154547fm6f5wwfbwcf0fff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (509.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 15:45 上传
+
+脸上每一根绒毛都清晰可见，内部老涩批想干嘛
+
+
+*****
+
+####  otakun  
+##### 192#       发表于 2025-12-12 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864618&amp;ptid=2252823" target="_blank">Sissii 发表于 2025-12-12 15:46</a>
+脸上每一根绒毛都清晰可见，内部老涩批想干嘛</blockquote>
+咦画的图原来还不同的啊？根据通关时间变的？我的是NO.8
+
