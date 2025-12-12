@@ -1620,3 +1620,11 @@ CAPCOM的最新作《PRAGMATA》——一部带有独特黑客感觉的全新科
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 173#       发表于 2025-12-12 11:28
+
+这试玩也太短了吧十几分钟就打完了，不过其实玩着还有点意思，试玩里战斗强度比较低不知道要是战斗激烈起来怎样，要是后面有点有意思的破解芯片其实可以玩的套路还蛮多的
+
