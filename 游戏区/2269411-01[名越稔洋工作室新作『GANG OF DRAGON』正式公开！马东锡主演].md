@@ -506,3 +506,16 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 还是搞老一套那为什么要独走来着，不过是不是能期待审判正统续作在这边了 ...</blockquote>
 比较普遍的说法是在位期间决策失误判断失误 导致在公司内失权 体现在21年初被卸任多项职位 然后年底就跑路了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼雷鲨  
+##### 58#       发表于 2025-12-12 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68862023&amp;ptid=2269411" target="_blank">Piano-Forest 发表于 2025-12-12 10:47</a>
+
+Steam页面
+
+https://store.steampowered.com/app/4146000/</blockquote>
+这么看来会像是完全砍掉汽车的无间龙头/真实犯罪
+
