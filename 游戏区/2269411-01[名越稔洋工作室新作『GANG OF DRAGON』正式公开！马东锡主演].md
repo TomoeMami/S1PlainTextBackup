@@ -577,3 +577,54 @@ https://store.steampowered.com/app/4146000/</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">出去还是做如龙，所以出去就是单纯看世嘉管理层不爽？
 
+
+*****
+
+####  不努  
+##### 66#       发表于 2025-12-12 17:38
+
+能不能解除batman/kiryu酱不杀人的套路限制啊，杀人如🐴
+
+
+*****
+
+####  汪达  
+##### 67#       发表于 2025-12-12 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865309&amp;ptid=2269411" target="_blank">不努 发表于 2025-12-12 17:38</a>
+
+能不能解除batman/kiryu酱不杀人的套路限制啊，杀人如🐴</blockquote>
+steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
+
+“他们只是睡着了”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马甲20250922  
+##### 68#       发表于 2025-12-12 17:45
+
+<blockquote>TheOccuria 发表于 2025-12-12 17:33
+出去还是做如龙，所以出去就是单纯看世嘉管理层不爽？</blockquote>
+反了，应该是管理层看他不爽。
+
+*****
+
+####  黑修士  
+##### 69#       发表于 2025-12-12 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865344&amp;ptid=2269411" target="_blank">汪达 发表于 2025-12-12 17:45</a>
+
+steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
+
+“他们只是睡着了” ...</blockquote>
+组长你要相信我，我发售绝对没有杀人
+
+*****
+
+####  zqqwe  
+##### 70#       发表于 2025-12-12 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864914&amp;ptid=2269411" target="_blank">鱼雷鲨 发表于 2025-12-12 16:34</a>
+这么看来会像是完全砍掉汽车的无间龙头/真实犯罪</blockquote>
+截图都有车库和载具武器选项了
+

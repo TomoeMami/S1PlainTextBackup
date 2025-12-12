@@ -214,3 +214,11 @@ Steam页面
 但是Remedy的游戏都有播片过度 ...</blockquote>
 alan wake相比control更偏avg一点，故事也讲得更晦涩
 
+
+*****
+
+####  kuglv  
+##### 82#       发表于 2025-12-12 17:38
+
+王自如历险记
+
