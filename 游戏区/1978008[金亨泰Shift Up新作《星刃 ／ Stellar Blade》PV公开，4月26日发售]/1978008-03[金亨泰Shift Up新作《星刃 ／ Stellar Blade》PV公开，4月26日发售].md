@@ -219,3 +219,19 @@ CNS又不能进存档，商店MOD里买了就等于存档里也有了</blockquot
 
 感谢坛友推荐！主要是PS5版当时已经玩了好几遍，试了一下PC版，没点乐子mod确实玩不下去。还有什么改变游戏性的mod吗
 
+
+*****
+
+####  mb31  
+##### 4309#       发表于 2025-12-12 12:28
+
+剑星和麦当劳合作了吗这是？
+
+<img src="https://img.stage1st.com/forum/202512/12/122850eidcd1irmodwqwj2.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20251212122744.jpg</strong> (303.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-12 12:28 上传
+

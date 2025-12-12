@@ -3988,3 +3988,13 @@ PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
 听声音好像变回Matthew Mercer了</blockquote>
 是哪个？6的那个吗？重置2和4那个也很好啊，是不是觉得听着太年轻了
 
+
+*****
+
+####  jxzeroga0  
+##### 404#       发表于 2025-12-12 12:35
+
+战斗演示算是定心丸吧，至少不会变成7那种
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
