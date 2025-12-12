@@ -483,3 +483,26 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 
 如龙正统在这里！
 
+
+*****
+
+####  黑上シグマ  
+##### 56#       发表于 2025-12-12 16:18
+
+<blockquote>引用第27楼伊丽虾皇VI于2025-12-12 11:59发表的  :
+
+还是搞老一套那为什么要独走来着，不过是不是能期待审判正统续作在这边了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IP都还在世嘉呢你拿头正统啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  抹茶瓜  
+##### 57#       发表于 2025-12-12 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68862877&amp;ptid=2269411" target="_blank">伊丽虾皇VI 发表于 2025-12-12 11:59</a>
+还是搞老一套那为什么要独走来着，不过是不是能期待审判正统续作在这边了 ...</blockquote>
+比较普遍的说法是在位期间决策失误判断失误 导致在公司内失权 体现在21年初被卸任多项职位 然后年底就跑路了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
