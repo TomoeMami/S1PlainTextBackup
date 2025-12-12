@@ -104,3 +104,13 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1778#       发表于 2025-12-12 18:08
+
+蛮怪的，上次强制更新客户端以后我的解析通知就失效了，不管是重新设置或者重启手机还是重装游戏都不行
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

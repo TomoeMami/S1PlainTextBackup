@@ -628,3 +628,13 @@ steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
 这么看来会像是完全砍掉汽车的无间龙头/真实犯罪</blockquote>
 截图都有车库和载具武器选项了
 
+
+*****
+
+####  妄想中毒  
+##### 71#       发表于 2025-12-12 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864726&amp;ptid=2269411" target="_blank">机动三轮 发表于 2025-12-12 16:05</a>
+日本人开发的操作韩裔美国人主角殴打日本雅库扎的游戏吗</blockquote>
+前面还得加上中国全资这几个字才对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
