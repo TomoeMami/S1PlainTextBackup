@@ -638,3 +638,11 @@ steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
 日本人开发的操作韩裔美国人主角殴打日本雅库扎的游戏吗</blockquote>
 前面还得加上中国全资这几个字才对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 72#       发表于 2025-12-12 18:54
+
+这个演员的角色必然很讨喜，他只能演这类角色
+
