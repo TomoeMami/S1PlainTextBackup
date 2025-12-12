@@ -1710,3 +1710,14 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 
 爱希:我想起来了 我们本该是美帝啊
 
+
+*****
+
+####  仟音一心  
+##### 41556#       发表于 2025-12-12 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68859980&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-12-11 23:30</a>
+糖爱音这集好正经，不习惯</blockquote>
+导演要求立石凛还要再傻一点。
+<img src="https://p.sda1.dev/29/6022907bc8923504571f4cea1e7ec107/image.jpg" referrerpolicy="no-referrer">
+
