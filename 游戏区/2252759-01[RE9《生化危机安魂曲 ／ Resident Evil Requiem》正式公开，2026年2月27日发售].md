@@ -3900,3 +3900,20 @@ re的世界观直接20和60一个样也没啥啊
 
 PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
 
+
+*****
+
+####  nagitoY  
+##### 396#       发表于 2025-12-12 10:30
+
+希望是以主控里昂为主啊。之前试玩主控格雷莎，武器都没有只能和怪绕圈圈，不喜欢。
+
+*****
+
+####  粉有  
+##### 397#       发表于 2025-12-12 10:31
+
+还得是分头<img src="https://p.sda1.dev/29/6c3a87af28a126100ba0dff4904592ea/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
