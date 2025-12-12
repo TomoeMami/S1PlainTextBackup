@@ -1897,3 +1897,21 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 好无聊的demo，一共运行49分钟，18分钟就通了，30分钟全在编译着色器<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ralfli  
+##### 196#       发表于 2025-12-12 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864493&amp;ptid=2252823" target="_blank">MR骑士道MKⅦ 发表于 2025-12-12 15:27</a>
+
+原来小萝莉不是无口是话唠😍我只玩了英文日配都是谁啊？还有哪位大神能听出来中配是谁？ ...</blockquote>
+好像是林敏，花园花玲
+
+*****
+
+####  汪达  
+##### 197#       发表于 2025-12-12 16:44
+
+看今天的预告片感觉卡表给这游戏的定位似乎是萝莉版尼尔
+
