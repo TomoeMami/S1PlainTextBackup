@@ -138,3 +138,13 @@ Steam页面
 
 只能看个大体位置
 
+
+*****
+
+####  ParadiseMartyr  
+##### 75#       发表于 2025-12-12 12:58
+
+一代好玩么，和Alan wake1比整体体感上比
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
