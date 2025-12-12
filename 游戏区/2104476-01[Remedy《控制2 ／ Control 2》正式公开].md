@@ -156,3 +156,18 @@ Steam页面
 
 1的希斯和霉菌跑到外边了，主要杂兵还是这些。跟弟弟对话的不知道是什么，被打残的委员会？
 
+
+*****
+
+####  C.W.Nimitz  
+##### 77#       发表于 2025-12-12 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863487&amp;ptid=2104476" target="_blank">Realplayer 发表于 2025-12-12 12:48</a>
+
+康筹1地图楼分层的，地图做的一坨
+
+只能看个大体位置</blockquote>
+我倒是觉得地图问题不大，实际场景方向指引明确，大部分时候用不着看地图。
+
+游戏的战斗从头到尾都是一种玩法重复，这个问题很大。甚至不如播片巨作《量子破碎》
+

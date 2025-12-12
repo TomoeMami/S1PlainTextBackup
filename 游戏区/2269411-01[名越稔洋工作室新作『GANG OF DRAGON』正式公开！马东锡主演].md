@@ -373,3 +373,37 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 
      开卖相像如龙6<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 43#       发表于 2025-12-12 13:18
+
+每次看到名越这个僵硬医美脸一笑露出一排大假牙是真的难绷
+
+*****
+
+####  faxi  
+##### 44#       发表于 2025-12-12 13:19
+
+剧情是不是直接照抄犯罪都市1-4和恶人传就可以了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+希望战斗系统里有甩巴掌流派<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  outerish  
+##### 45#       发表于 2025-12-12 13:22
+
+过场质量很高，实机截图就一般般了
+
+*****
+
+####  马甲20250922  
+##### 46#       发表于 2025-12-12 13:25
+
+<blockquote>汪达 发表于 2025-12-12 13:18
+每次看到名越这个僵硬医美脸一笑露出一排大假牙是真的难绷</blockquote>
+他的人设就是“游戏圈的古惑仔”，僵硬医美脸反而更贴合他这个人设。
+
