@@ -448,3 +448,11 @@ B4C)7W_W65$FZFYUD~27]$A.jpg
 
 等等等等，在日朝鲜人+90年代，不会要打朝总联，最终boss是二胖吧？
 
+
+*****
+
+####  机动三轮  
+##### 52#       发表于 2025-12-12 16:05
+
+日本人开发的操作韩裔美国人主角殴打日本雅库扎的游戏吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
