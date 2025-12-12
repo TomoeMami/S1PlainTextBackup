@@ -659,3 +659,22 @@ steam页面放出来的截图有枪和手榴弹的，这不可能不杀吧
 “他们只是睡着了” ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如龙稀硫酸也捅刀子开枪啊，你说杀没杀
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 74#       发表于 2025-12-12 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864802&amp;ptid=2269411" target="_blank">黑上シグマ 发表于 2025-12-12 16:18</a>
+IP都还在世嘉呢你拿头正统啊
+
+----发送自 STAGE1 App for Android.</blockquote>
+精神正统精神正统，木村拓哉换了个马东锡
+
+*****
+
+####  HOBBITXDD  
+##### 75#       发表于 2025-12-12 19:16
+
+肛周龙中
+
