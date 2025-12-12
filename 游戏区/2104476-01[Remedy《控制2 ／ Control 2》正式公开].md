@@ -11,3 +11,18 @@ CONTROL Resonant ？
 https://euipo.europa.eu/eSearch/#details/trademarks/019282647</blockquote>
 正式公开，2026年发售
 
+
+*****
+
+####  吃鸡南小鸟  
+##### 62#       发表于 2025-12-12 10:10
+
+有点意思 变动作游戏了
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2025-12-12 10:15
+
+PV：[https://youtu.be/WhQm-ExRz60](https://youtu.be/WhQm-ExRz60)
+
