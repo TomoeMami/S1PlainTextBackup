@@ -2285,3 +2285,19 @@ DEMO掉落挺多的不用省倒是很爽<img src="https://static.stage1st.com/im
 
 这么一看deepdown是不是已经被卡表放弃了
 
+
+*****
+
+####  RainbowSealife  
+##### 235#       发表于 2025-12-13 02:19
+
+可爱炼出来的AI<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">除了战斗剩下的就是收集素材和一些文档之类的来补充叙事，后续可能会有跳跳乐环节？毕竟主角能短暂滞空。
+
+最后的时间结算应该不是实机，模型细节比实机更丰富，脸上多了毫毛，但是眉心上方的皮下静脉又不见了。忽然想到去年打通的地狱之刃2，塞娜脸上不仅有毫毛，甚至连看不见的鼻毛都加上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://images.steamusercontent.com/ugc/16510127383219970146/0973263DE652023AEE03AFF99317B0B1EA02122A/" id="aimg_yR8JZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img src="https://images.steamusercontent.com/ugc/18013844437406919422/3709ECEAF5F98DD5C2B4C8C962542CF6995D6FE9/" id="aimg_sDZEd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/15198515912687496512/35AA12C23BA55AB30903802B54DF050454FE88BE/" id="aimg_wy71Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/12593378631520089013/BCFF117CBC2512F406CBEF72E07F993A4645E836/" id="aimg_n0CtP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://images.steamusercontent.com/ugc/13218894942350623220/4BD2171D6CC4CCCD00E2E055DBCCAE870FE46600/" id="aimg_njW9t" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
