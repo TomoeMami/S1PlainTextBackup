@@ -1915,3 +1915,31 @@ ok，谢谢，我个人是喜欢偏慢点的<img src="https://static.stage1st.co
 
 看今天的预告片感觉卡表给这游戏的定位似乎是萝莉版尼尔
 
+
+*****
+
+####  chilno  
+##### 198#       发表于 2025-12-12 16:48
+
+能追加个2P单独操作萝莉就好了
+
+*****
+
+####  ralfli  
+##### 199#       发表于 2025-12-12 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864798&amp;ptid=2252823" target="_blank">cmyk1234 发表于 2025-12-12 16:17</a>
+
+听着像“索敌-破甲-VR战警”？</blockquote>
+那倒不是
+
+锁定然后破解在视觉上非常像把独角兽的精神力骨架暴漏出来，否则DEMO中的枪械很难对敌人造成高伤害
+
+
+*****
+
+####  jacket  
+##### 200#       发表于 2025-12-12 16:54
+
+No.7画的是什么，硬盘吗？
+

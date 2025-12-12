@@ -527,3 +527,21 @@ https://store.steampowered.com/app/4146000/</blockquote>
 
 棒如龙到底是想卖给什么受众？
 
+
+*****
+
+####  zqqwe  
+##### 60#       发表于 2025-12-12 16:51
+
+主角外形上被桐生爆了九条街吧，而且你说这是走无仁义之战那种真老登893风格，他又搞个棒子设定，受众难道是韩国人吗
+
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 61#       发表于 2025-12-12 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865030&amp;ptid=2269411" target="_blank">zqqwe 发表于 2025-12-12 16:51</a>
+主角外形上被桐生爆了九条街吧，而且你说这是走无仁义之战那种真老登893风格，他又搞个棒子设定，受众难道 ...</blockquote>
+这部应该和审判系列对标，都是明星主角。
+
