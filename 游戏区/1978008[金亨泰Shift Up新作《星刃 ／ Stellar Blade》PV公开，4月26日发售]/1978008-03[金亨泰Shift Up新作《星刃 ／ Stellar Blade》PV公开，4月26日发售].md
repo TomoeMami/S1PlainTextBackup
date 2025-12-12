@@ -235,3 +235,13 @@ CNS又不能进存档，商店MOD里买了就等于存档里也有了</blockquot
 
 2025-12-12 12:28 上传
 
+
+*****
+
+####  カタカナジゴク  
+##### 4310#       发表于 2025-12-12 13:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我做了一个mod整合包，一共三四百套衣服，这个能发吗
+
+—— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
