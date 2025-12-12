@@ -107,3 +107,22 @@ Steam页面
 
 看播片似乎不打枪改近战了？那还挺期待的，1代打枪做的挺无聊
 
+
+*****
+
+####  wly5556  
+##### 72#       发表于 2025-12-12 12:44
+
+明年就能玩上，太好了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Realplayer  
+##### 73#       发表于 2025-12-12 12:46
+
+没有董明珠好评
+
+前作有秒杀故事模式好评
+
+其他看吧
+
