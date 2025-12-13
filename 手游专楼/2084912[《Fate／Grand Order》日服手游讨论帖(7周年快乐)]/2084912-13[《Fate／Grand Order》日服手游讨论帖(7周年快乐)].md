@@ -2204,3 +2204,34 @@ MuMu-20251208-170359-800.jpg
 
 没有抽限定池和免费抽能两手抓的
 
+
+*****
+
+####  alucardcz  
+##### 18909#       发表于 2025-12-12 21:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">漏油又在欧 萌新也想一起欧
+
+*****
+
+####  xiongxingyu  
+##### 18910#       发表于 2025-12-13 08:36
+
+md，每日一抽出金了，礼装池<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这礼装池实在太毒了，上回每日一抽出金也是在礼装池，出了个肥龙，好在只有2宝，感觉损失了一个亿。
+
+*****
+
+####  jackyhuang  
+##### 18911#       发表于 2025-12-13 17:29
+
+哇，最后要去冬木啊<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 18912#       发表于 2025-12-13 17:29
+
+最后7天放个预告PV也是料到的，后面部分放个冬木反正从放人理的守护者技能的黑呆开始到2.6 C狗说的再到FE大公和小安幕间都在强调就不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
