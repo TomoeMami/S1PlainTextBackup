@@ -115,3 +115,17 @@
 
 小资历这可不敢唱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 7221#       发表于 2025-12-13 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到构成
+
+灰铁野种的
+
+真太子按道理应该是闪或者百才对吧
+
+现在只能说都是废太子了
+
