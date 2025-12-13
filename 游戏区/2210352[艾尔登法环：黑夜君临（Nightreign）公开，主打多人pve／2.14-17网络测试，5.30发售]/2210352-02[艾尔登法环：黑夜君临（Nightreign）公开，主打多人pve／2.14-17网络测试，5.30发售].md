@@ -853,3 +853,17 @@
 
 而且感觉深夜模式不做人的队友是不是少一点<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 1883#       发表于 2025-12-14 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68870524&amp;ptid=2210352" target="_blank">hugosol 发表于 2025-12-14 01:54</a>
+刚回坑目前深度0，感觉现在深夜模式野排比永夜王好玩多了，永夜王各种机制队友不会处理的太多了，队里有一 ...</blockquote>
+深夜012感觉比普通模式还简单（如果深夜遗物配好），到了深夜3是最舒服最享受的游玩，大家都会玩又有一点点难度。
+深夜4开始难度陡增，上分得是老ass，深夜4也是神人最多的段位。
+别急，深3开始各种永夜王突袭就享受，上分看见队友比较神，boss又变王虫王山羊王征兆，基本就是拼尽全力无法战胜。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
