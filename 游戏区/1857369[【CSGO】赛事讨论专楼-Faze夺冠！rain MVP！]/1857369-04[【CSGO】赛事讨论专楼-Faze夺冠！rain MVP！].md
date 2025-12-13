@@ -320,3 +320,11 @@ MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  宝儿  
+##### 4865#       发表于 2025-12-13 09:30
+
+狗屎波哈  被一脚踹死 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">   小驴加油加油啊！
+
