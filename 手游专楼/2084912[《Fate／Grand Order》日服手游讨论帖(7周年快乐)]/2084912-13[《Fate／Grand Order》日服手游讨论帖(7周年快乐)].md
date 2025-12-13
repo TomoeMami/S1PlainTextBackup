@@ -2267,3 +2267,39 @@ md，每日一抽出金了，礼装池<img src="https://static.stage1st.com/imag
 
 登录的30石头，也是沉了，奇迹果然不会发生第三次<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 18917#       发表于 2025-12-13 19:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">新年出医生的概率是多少
+
+*****
+
+####  シャル  
+##### 18918#       发表于 2025-12-13 20:35
+
+ 本帖最后由 シャル 于 2025-12-13 20:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68869192&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-13 19:58</a>
+
+新年出医生的概率是多少</blockquote>
+一边排队去，哈拉加德还没出呢
+
+*****
+
+####  khxooo  
+##### 18919#       发表于 2025-12-13 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68869192&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-13 19:58</a>
+新年出医生的概率是多少</blockquote>
+我还是认为是新呆毛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 18920#       发表于 2025-12-13 23:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">麻 全麻 allin兽尼又寄了 来来回回那么多次怕不是已经超过千石了。麻中麻 寄中寄
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">萌新为什么不能和楼友一样欧
+
