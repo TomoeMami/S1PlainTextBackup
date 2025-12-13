@@ -823,3 +823,21 @@
 快700小时终于玩腻了，dlc这次更新大空洞没进深夜模式太让人失望了，或者说到了深夜五打什么都像砍瓜切菜， ...</blockquote>
 看解包是做了种子的但是没放进去，包括本体boss的大空洞种子也是没放<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计是挤牙膏等到七仙女的永夜版更新完之后再放吧
 
+
+*****
+
+####  当光停止  
+##### 1881#       发表于 2025-12-13 22:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/13/224716c11s12ll1aqmk2nr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-13 22:47 上传
+
+该品鉴一下深夜垃圾王和七仙女的美。
+
