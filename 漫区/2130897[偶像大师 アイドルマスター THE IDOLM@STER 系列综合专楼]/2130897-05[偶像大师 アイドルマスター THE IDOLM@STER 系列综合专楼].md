@@ -139,3 +139,15 @@
 虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
 最大印象是管那个歌居然那么全场多人会打
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 7223#       发表于 2025-12-13 23:36
+
+今天学一个里御三家都没上
+
+我已经期待明天的饭团滚滚了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
