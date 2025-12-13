@@ -359,3 +359,13 @@ MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那
 shiro还拉稀，沙二要被打出屎来
 小蜜蜂不会又要夺冠了吧，不爱看这集啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 4869#         楼主| 发表于 2025-12-14 01:59
+
+donk红温了，shiro拉稀，哲伟尿了一裤裆，Chopper猛送，特尼尔倒是当人
+
+这图二还用打吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哀兵必胜？
+

@@ -841,3 +841,15 @@
 
 该品鉴一下深夜垃圾王和七仙女的美。
 
+
+*****
+
+####  hugosol  
+##### 1882#       发表于 2025-12-14 01:54
+
+刚回坑目前深度0，感觉现在深夜模式野排比永夜王好玩多了，永夜王各种机制队友不会处理的太多了，队里有一个不停3倒的感觉这局就无了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+深夜模式难度主要在前期发育，后面局内各种逆天词条叠起来之后强度远超普通模式，遗物配起来也比普通模式方便很多，夜王也只是普通版其实压力反倒没那么大
+
+而且感觉深夜模式不做人的队友是不是少一点<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
