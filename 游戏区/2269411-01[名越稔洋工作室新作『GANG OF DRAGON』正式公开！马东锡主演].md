@@ -711,3 +711,16 @@ IP都还在世嘉呢你拿头正统啊
 
 不知道第一部制作经费咋样
 
+
+*****
+
+####  Demi.Albertini  
+##### 79#       发表于 2025-12-13 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865356&amp;ptid=2269411" target="_blank">黑修士 发表于 2025-12-12 17:46</a>
+
+组长你要相信我，我发售绝对没有杀人
+
+https://www.bilibili.com/video/BV17b4RzKEth</blockquote>
+日文版比较好听感觉…………
+
