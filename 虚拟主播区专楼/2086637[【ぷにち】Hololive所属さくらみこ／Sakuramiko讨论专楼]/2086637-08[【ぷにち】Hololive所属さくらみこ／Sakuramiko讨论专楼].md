@@ -59,3 +59,18 @@ holo派人去参加TGA了
 
 明年大概也跟holo没有关系了
 
+
+*****
+
+####  rs5621  
+##### 11325#       发表于 2025-12-13 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了一圈测评，只有xjhx品控爆炸的世界，35姑妈意外的可以，不用跑路了
+
+*****
+
+####  holofan  
+##### 11326#       发表于 2025-12-13 13:24
+
+在看到实物之前不可大意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
