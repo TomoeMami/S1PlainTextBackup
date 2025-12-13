@@ -2235,3 +2235,35 @@ md，每日一抽出金了，礼装池<img src="https://static.stage1st.com/imag
 
 最后7天放个预告PV也是料到的，后面部分放个冬木反正从放人理的守护者技能的黑呆开始到2.6 C狗说的再到FE大公和小安幕间都在强调就不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fool  
+##### 18913#       发表于 2025-12-13 18:13
+
+这pv重点是铃村啊，难道真要打老所长+真所了吗<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 18914#       发表于 2025-12-13 18:34
+
+快点结束吧太拖拉了...
+搞得和隔壁卡婊分段更新一样...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 18915#       发表于 2025-12-13 19:17
+
+黑呆估计会有个强化本吧？（人理守护者），特异点f可以是frist/fate/final/fuyuki，看到时候用哪个解释了
+
+*****
+
+####  khxooo  
+##### 18916#       发表于 2025-12-13 19:48
+
+登录的30石头，也是沉了，奇迹果然不会发生第三次<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

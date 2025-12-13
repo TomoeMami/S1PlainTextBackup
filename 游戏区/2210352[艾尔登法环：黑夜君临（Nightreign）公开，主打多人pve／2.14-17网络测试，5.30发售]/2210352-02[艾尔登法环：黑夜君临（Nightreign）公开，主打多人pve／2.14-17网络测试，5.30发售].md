@@ -812,3 +812,14 @@
 
 完全没看tga，fs真就没新片啊，那希望起码这两年这两部联机作更上心点吧
 
+
+*****
+
+####  RUANHYC  
+##### 1880#       发表于 2025-12-13 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68867332&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-12-13 09:15</a>
+
+快700小时终于玩腻了，dlc这次更新大空洞没进深夜模式太让人失望了，或者说到了深夜五打什么都像砍瓜切菜， ...</blockquote>
+看解包是做了种子的但是没放进去，包括本体boss的大空洞种子也是没放<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计是挤牙膏等到七仙女的永夜版更新完之后再放吧
+
