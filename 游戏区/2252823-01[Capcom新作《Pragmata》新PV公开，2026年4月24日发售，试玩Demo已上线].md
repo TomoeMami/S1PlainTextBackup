@@ -2358,3 +2358,13 @@ DEMO掉落挺多的不用省倒是很爽<img src="https://static.stage1st.com/im
 
 部分确实比较复杂的变形，也可以放到特殊场景，比如萝莉跟超级AI拼刀的时候——是的这是一个“破解”占比极重的游戏，而且已确定有一个反叛AI，各位BOSS总不能一直这么裸奔上网干等着黑客来砸门吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zncl  
+##### 242#       发表于 2025-12-13 20:40
+
+体感比想象中好多了，专注连线的时候可以听萝莉指令闪避跳跃
+
+这金毛萝莉太强了，谢谢你卡普空
+
