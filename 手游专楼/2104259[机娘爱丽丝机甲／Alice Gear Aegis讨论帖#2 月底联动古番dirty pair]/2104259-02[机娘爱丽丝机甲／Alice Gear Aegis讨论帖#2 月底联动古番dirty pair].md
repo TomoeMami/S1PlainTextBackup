@@ -114,3 +114,18 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1779#       发表于 2025-12-13 16:44
+
+BJWMCAMBDH
+今天的管人码
+nekomimiGOURAI
+轰雷的猫耳
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">想着正好轰雷跟苍都没有4星就想趁着砍口垒通关的运气抽抽看，结果30张票扔进池子打水漂了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
