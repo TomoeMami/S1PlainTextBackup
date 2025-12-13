@@ -1966,3 +1966,28 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 
 还能换人不成 狗剧场版就是纯十本了 还好小猫没地方给他发挥
 
+
+*****
+
+####  堀内爱里衣  
+##### 41564#       发表于 2025-12-14 02:24
+
+     <strong>【中日字幕】八幡海铃&amp;佑天寺若麦 Ave Mujica 6th 东京公演会场限定语音</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202512/14/022449dfjtv3pfckzj22ve.jpg" referrerpolicy="no-referrer">
+
+<strong>beb2b320147d3d72a1dbaa33f15ff623b109d591.jpg</strong> (18.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-14 02:24 上传
+
+JR東海「推し旅」x BangDream10th 特别联动
+
+2025.6~2026.3期间，新干线车内进入网页即可收听车内限定语音，语音每月轮换。
+
+Ave Mujica 6th LIVE「Ulterius Procedere」场馆限定语音为Ave Mujica的八幡海铃和佑天寺若麦
+
+使用了gemini-3-pro和claude-sonnet-4.5辅助</blockquote>
+       
+
