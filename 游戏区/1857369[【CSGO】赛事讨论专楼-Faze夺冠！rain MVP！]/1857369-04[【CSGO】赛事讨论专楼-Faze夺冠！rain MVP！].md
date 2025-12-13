@@ -328,3 +328,13 @@ MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那
 
 狗屎波哈  被一脚踹死 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">   小驴加油加油啊！
 
+
+*****
+
+####  Rainwedell  
+##### 4866#       发表于 2025-12-13 10:26
+
+队友怎么这么坏啊，这么多人坑我鸽鸽<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
