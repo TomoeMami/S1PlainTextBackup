@@ -122,3 +122,11 @@
 
 我的好友码：K559229355
 
+
+*****
+
+####  红魔馆的糖  
+##### 1205#       发表于 2025-12-14 04:25
+
+这道中战真是纯恶心啊，一点设计都没有还又臭又长，第四章那个最终迷宫我坐着p了一个小时没到关底<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
