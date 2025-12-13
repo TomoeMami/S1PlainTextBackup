@@ -2326,3 +2326,15 @@ DEMO掉落挺多的不用省倒是很爽<img src="https://static.stage1st.com/im
 カプコンの新作SFアクションADV『プラグマタ』開発者インタビュー。Steam体験版は体験版なのに“2周目”があるらしい
 [https://news.denfaminicogamer.jp/interview/2512124f](https://news.denfaminicogamer.jp/interview/2512124f)
 
+
+*****
+
+####  天宮奏  
+##### 239#       发表于 2025-12-13 16:22
+
+全涂鸦收集，其中一个no.2是瞎猫碰上死耗子刷出了一个橙色精英怪达成的。
+
+总体来说意外地很爽。
+
+另外在探地图的时候在一个犄角旮旯捡到了E罐。
+
