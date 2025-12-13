@@ -724,3 +724,25 @@ p25 今千秋
 
 预制歌听昏迷惹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 1471#       发表于 2025-12-13 11:20
+
+第44話　キラキランドのひみつ！
+
+脚本：綾奈ゆにこ
+
+演出：広末悠奈
+
+作画監督：廣中美佳、村山里野
+
+美術：中林由貴
+
+うた（CV.松岡美里）たちのもとにピカリーネから久しぶりの連絡が入る。キラルンリボンがすべて集まり、ついにビッグキラキラリボンを復活させることができるという。嬉しい知らせに喜ぶ一同。そこで、ピカリーネの招待を受け、タナカーン（田中）、ザックリンやカッティンも一緒にキラキランドに向かうことに。うたたちはアイドルプリキュアに変身して MOMO（エムオーエムオー：通称モモ）に乗り、キラキランドへと出発する。キラキランドにやってきたアイドルプリキュア。キュアズキューンがビッグキラキラリボンの前でキラルンリボンブックを開くと──。
+<img src="https://files.catbox.moe/gminte.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/e2aje5.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ppy4xm.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/s9sl9v.jpg" referrerpolicy="no-referrer">
+
