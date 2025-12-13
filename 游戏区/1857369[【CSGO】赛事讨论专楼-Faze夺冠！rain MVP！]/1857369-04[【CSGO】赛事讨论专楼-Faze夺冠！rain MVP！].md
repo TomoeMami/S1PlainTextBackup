@@ -348,3 +348,14 @@ MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  朔方原的星  
+##### 4868#         楼主| 发表于 2025-12-14 01:48
+
+绿龙完了，超长加时被翻输了太伤士气了
+本来图一后面都打得一团浆糊了，哲伟什么的图一都顶不住图二更顶不住压力了，小将都很难顶住这个压力
+shiro还拉稀，沙二要被打出屎来
+小蜜蜂不会又要夺冠了吧，不爱看这集啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
