@@ -3123,3 +3123,11 @@ mei
 
 轻松12w...禁断援护围攻一下就死了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3246#       发表于 2025-12-13 19:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">支援机第一轮上DEBUFF就把灾厄打死了，红机都还一个都没动，行吧反正也12W了
+
