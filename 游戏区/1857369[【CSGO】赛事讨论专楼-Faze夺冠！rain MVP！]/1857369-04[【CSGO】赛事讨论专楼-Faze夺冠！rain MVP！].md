@@ -338,3 +338,13 @@ MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  pointer243  
+##### 4867#       发表于 2025-12-13 11:28
+
+看来mo***y这个id还是有毒啊,一到major就自动虾化了
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
