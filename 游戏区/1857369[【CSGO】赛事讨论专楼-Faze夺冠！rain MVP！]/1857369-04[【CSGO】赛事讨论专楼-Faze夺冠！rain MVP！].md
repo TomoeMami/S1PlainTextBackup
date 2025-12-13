@@ -282,3 +282,23 @@ FAZE UP!!!
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  icecry  
+##### 4862#       发表于 2025-12-13 07:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快出来看上帝，jame之前的赛前预测
+
+我通常不做赛果预测，因为我和随便哪个普通路人一样容易翻车，所以以下内容纯属直觉，基于超自然力量、星象风水之类的。
+
+Spirit对阵Falcons—donk处于巅峰期(我看过他在HLTV上有几次Rating飙到了1.7)，不知为何觉得现在正是Spirit获胜的绝佳时机—纯粹是直觉。
+
+Vitality对阵The MongolZ—无需解释。选Vitality就完事了。
+
+FURIA对阵NAVI—局势似乎都倒向FURIA，但我感觉NAVI可能会调整状态，在这一场比赛中爆冷。我还不能完全确定FURIA是否真的强到了这种地步—也许我只是还没习惯他们突然跻身S级强队行列(Vitality长期处于这一层级)，而在那个层级里，比赛出现意外的概率要低得多。
+
+MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那场，这组对决中处于下风的一方(也就是FaZe)爆冷获胜的机会感觉要大得多。
+
+我倾向于认为最后两场比赛的强队更有可能遭遇意外。 总之，想法就是这些，兄弟们。看看结果如何—如果这种“分析”中了，我会一直更到Major结束。
+
