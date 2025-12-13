@@ -1950,3 +1950,11 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
 太尼玛能吹了还令和最大級の鬱アニメ</blockquote>
 “ 即便只是罗列这些事件，其密度也令人惊叹。而遍布各处的伏笔与衔接后续的细节描写层层铺垫，营造出强烈的真实感”，这些深井冰编辑，资方和武士道是真心这么认为的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 41562#       发表于 2025-12-13 20:24
+
+不会监督还是柿本吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
