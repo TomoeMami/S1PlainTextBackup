@@ -1931,3 +1931,11 @@ AveMujica 3rd Single「‘S/’ The Way / Sophie」インタビュー
        そんな期待を抱かせてくれるシングルを携え、Ave Mujicaの新章が幕を開ける。
        携带着这张承载着无限期待的单曲，Ave Mujica 的新章正式拉开帷幕。
 
+
+*****
+
+####  哈曼的YY  
+##### 41560#       发表于 2025-12-13 19:20
+
+太尼玛能吹了还令和最大級の鬱アニメ<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
