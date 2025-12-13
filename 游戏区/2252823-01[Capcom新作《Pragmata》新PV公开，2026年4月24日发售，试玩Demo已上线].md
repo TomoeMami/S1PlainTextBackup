@@ -2317,3 +2317,12 @@ DEMO掉落挺多的不用省倒是很爽<img src="https://static.stage1st.com/im
 
 感觉完成度有点低，4月真能发售吗
 
+
+*****
+
+####  Piano-Forest  
+##### 238#         楼主| 发表于 2025-12-13 14:28
+
+カプコンの新作SFアクションADV『プラグマタ』開発者インタビュー。Steam体験版は体験版なのに“2周目”があるらしい
+[https://news.denfaminicogamer.jp/interview/2512124f](https://news.denfaminicogamer.jp/interview/2512124f)
+
