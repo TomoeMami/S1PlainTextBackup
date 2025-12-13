@@ -4094,3 +4094,38 @@ saros据说又是卖全价，索尼是想继续复刻大妈肉鸽的路线是吧
 
 （老头打枪悄咪咪跳票了）
 
+
+*****
+
+####  黑猫软  
+##### 411#       发表于 2025-12-13 23:04
+
+在ps5版微软模拟飞行2024到达羊蹄山！
+
+<img src="https://img.stage1st.com/forum/202512/13/230418s652ht1jej6jh1g5.jpg" referrerpolicy="no-referrer">
+
+<strong>19b181b273c76-screenshotUrl.jpg</strong> (310.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-13 23:04 上传
+
+<img src="https://img.stage1st.com/forum/202512/13/230418ae4i5ndnnqa8eo8e.jpg" referrerpolicy="no-referrer">
+
+<strong>19b183cc49315-screenshotUrl.jpg</strong> (310.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-13 23:04 上传
+
+<img src="https://img.stage1st.com/forum/202512/13/230418l1buo5glgqoyw81m.jpg" referrerpolicy="no-referrer">
+
+<strong>19b183cae5459-screenshotUrl.jpg</strong> (323.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-13 23:04 上传
+
