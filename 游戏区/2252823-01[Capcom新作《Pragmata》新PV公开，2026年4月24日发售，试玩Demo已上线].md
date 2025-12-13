@@ -2412,3 +2412,16 @@ DEMO掉落挺多的不用省倒是很爽<img src="https://static.stage1st.com/im
 
 bgm意外地很合我胃口。
 
+
+*****
+
+####  你说啥就是啥  
+##### 246#       发表于 2025-12-14 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68867001&amp;ptid=2252823" target="_blank">RainbowSealife 发表于 2025-12-13 02:19</a>
+
+可爱炼出来的AI4K 最高画质 DLSS质量，HDR我没调好，steam截出来的有点泛白。优化还可以，就是着色器渲染 ...</blockquote>
+泛白不是 Steam 截图的问题，是gamma 曲线错误的问题。
+
+而且 HDR 的亮度拉到最高也只有 1000 尼特左右
+
