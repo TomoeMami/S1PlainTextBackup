@@ -790,3 +790,23 @@ p25 今千秋
 
 但说实话这话因为走主线所以我感觉剧情观感还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  199april  
+##### 1476#       发表于 2025-12-14 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68871200&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-12-14 10:08</a>
+
+但说实话这话因为走主线所以我感觉剧情观感还行只能说偶Q制作组是写了一个半年左右的剧情大纲然后用灌水和 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">哪有半年 撑死就是一个季度多点
+
+中间和两只银兽来回拉扯那段看得我脑壳疼，干脆完全删掉也不影响主线。那个舍弃什么获得力量的设定后面彻底被遗忘了，再也没有提及这事，不如删了
+
+*****
+
+####  codezwei  
+##### 1477#       发表于 2025-12-14 10:36
+
+一个兔子模样的宠物对我说：你是救世主<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
