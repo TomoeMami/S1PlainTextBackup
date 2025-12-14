@@ -867,3 +867,29 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nightmare902015  
+##### 1884#       发表于 2025-12-14 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68870524&amp;ptid=2210352" target="_blank">hugosol 发表于 2025-12-14 01:54</a>
+刚回坑目前深度0，感觉现在深夜模式野排比永夜王好玩多了，永夜王各种机制队友不会处理的太多了，队里有一 ...</blockquote>
+深夜012感觉比普通模式还简单（如果深夜遗物配好），到了深夜3是最舒服最享受的游玩，大家都会玩又有一点点难度。
+深夜4开始难度陡增，上分得是老ass，深夜4也是神人最多的段位。
+别急，深3开始各种永夜王突袭就享受，上分看见队友比较神，boss又变王虫王山羊王征兆，基本就是拼尽全力无法战胜。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ohi.02  
+##### 1885#       发表于 2025-12-14 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68870524&amp;ptid=2210352" target="_blank">hugosol 发表于 2025-12-14 01:54</a>
+刚回坑目前深度0，感觉现在深夜模式野排比永夜王好玩多了，永夜王各种机制队友不会处理的太多了，队里有一 ...</blockquote>
+我觉得深夜模式非常成功，本体我玩了200小时就腻了，但是深夜模式玩了500小时才腻。
+深夜模式前两难度比普通模式还简单，深夜四被各种神人队友硬控了我约有三四百小时才上到深夜五。话又说回来，能玩这么久大概还是有想要见识深夜五这个难度的动力吧，实际到了深夜五由于队友都相当变态，boss都被各种秒，玩起来反而没了意思。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
