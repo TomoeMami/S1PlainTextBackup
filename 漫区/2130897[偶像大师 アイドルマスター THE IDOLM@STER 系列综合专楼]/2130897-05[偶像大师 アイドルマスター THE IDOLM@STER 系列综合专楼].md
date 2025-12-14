@@ -151,3 +151,57 @@
 
 —— 来自 OnePlus HD1910, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  北条早苗  
+##### 7224#       发表于 2025-12-13 20:40
+
+小资历这可不敢唱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 7225#       发表于 2025-12-13 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到构成
+
+灰铁野种的
+
+真太子按道理应该是闪或者百才对吧
+
+现在只能说都是废太子了
+
+*****
+
+####  IPoke  
+##### 7226#       发表于 2025-12-13 23:14
+
+红白应援是好的，别的拉完了
+虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
+最大印象是管那个歌居然那么全场多人会打
+
+*****
+
+####  白水潭的饿鬼  
+##### 7227#       发表于 2025-12-13 23:36
+
+今天学一个里御三家都没上
+
+我已经期待明天的饭团滚滚了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RedSpecial  
+##### 7228#       发表于 2025-12-14 08:22
+
+<blockquote>IPoke 发表于 2025-12-13 23:14
+红白应援是好的，别的拉完了
+
+虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
+
+最大印象是管那个歌 ...</blockquote>
+管人歌前夜祭教了，她们账号还有官方教学
+
