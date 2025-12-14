@@ -8,3 +8,11 @@
 
 结果这周还真讲了NOX的恐惧心。但你以为这是在致敬橘前辈？错啦，是凑P在致敬MINATO老师啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 482#       发表于 2025-12-14 11:09
+
+小时候的补习班是暗码的特工教室是吧，那宁梦其实也是暗码培育的什么实验体之类的？
+
