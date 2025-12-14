@@ -14,3 +14,11 @@
 
 姐妹组合变身和必杀确实帅啊，ed改了op应该也要改吧。白女王这就成光杆司令还光速吃瘪比好姐妹也丢人太多<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">赶紧把真boss端上来吧
 
+
+*****
+
+####  wwwDYYU  
+##### 248#       发表于 2025-12-14 11:36
+
+这集俩姐妹把战斗曲唱了蛮长，很爽啊，白女王你有歌吗？有的话给唱出来听听
+
