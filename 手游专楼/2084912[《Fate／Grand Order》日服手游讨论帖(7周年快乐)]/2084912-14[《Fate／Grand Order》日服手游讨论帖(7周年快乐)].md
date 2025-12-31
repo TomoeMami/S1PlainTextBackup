@@ -5727,3 +5727,52 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 我ptsd犯了
 
+
+*****
+
+####  kiralzb  
+##### 19809#       发表于 2026-1-1 01:48
+
+在看B站一个up抽泣着边找翻译看，边怀疑自己是不是看错，弹幕一堆破防，蘑菇太坏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19810#       发表于 2026-1-1 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959442&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-1 01:43</a>
+
+什么33远征队孝子
+
+我ptsd犯了</blockquote>
+破案了！终章为什么会整成这样？ 因为玩了33
+
+*****
+
+####  angelooo  
+##### 19811#       发表于 2026-1-1 01:54
+
+什么迪亚哥第二部要开了？这才是真正的2.0！
+
+*****
+
+####  alucardcz  
+##### 19812#       发表于 2026-1-1 01:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959448&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 01:48</a>
+
+在看B站一个up抽泣着边找翻译看，边怀疑自己是不是看错，弹幕一堆破防，蘑菇太坏了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">毕竟这下大的要来了的可能性归0了 不能幻想了 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">丸辣 全丸辣
+
+*****
+
+####  khxooo  
+##### 19813#       发表于 2026-1-1 02:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959448&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 01:48</a>
+
+在看B站一个up抽泣着边找翻译看，边怀疑自己是不是看错，弹幕一堆破防，蘑菇太坏了 ...</blockquote>
+宝贝虎吧？他之前还特意做了所谓的“考究”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
