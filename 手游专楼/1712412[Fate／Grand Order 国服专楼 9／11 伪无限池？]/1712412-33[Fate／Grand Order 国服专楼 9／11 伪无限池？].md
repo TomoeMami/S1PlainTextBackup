@@ -962,3 +962,11 @@ New神祖 大象+1
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我以为蘑菇会写什么有意义的东西，结果是踏马推荐33远征队
 
+
+*****
+
+####  麻花疼  
+##### 47679#       发表于 2026-1-1 06:16
+
+还有一年国服也要被剪定了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

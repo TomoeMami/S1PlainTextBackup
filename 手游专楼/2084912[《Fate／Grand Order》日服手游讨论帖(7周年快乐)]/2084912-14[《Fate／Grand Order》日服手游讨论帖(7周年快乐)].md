@@ -5920,3 +5920,37 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 蘑菇好就好在日记，新的一年的大乐子从第一天凌晨开始呀
 
+
+*****
+
+####  الطائر  
+##### 19827#       发表于 2026-1-1 04:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959584&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-1-1 02:41</a>
+
+真呆毛出场圣剑精就停摆，然后亚瑟王不存在，好家伙，蘑菇真的老年痴呆了吧 ...</blockquote>
+太过分了！呼叫宇宙独一无二的圣剑使X把这家伙干掉吧 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 19828#       发表于 2026-1-1 05:12
+
+菌哥肘翻索尼大手，菌哥天下无敌吔。
+
+*****
+
+####  الطائر  
+##### 19829#       发表于 2026-1-1 05:19
+
+对了，冠呆的身高体重（163cm・50kg），是蓝呆（154cm・42kg）和白枪呆（171cm・57kg？）的算术平均值。
+
+*****
+
+####  森兰丸  
+##### 19830#       发表于 2026-1-1 06:10
+
+60多张护肤和400多石头抽了个3宝.....就这样吧....收手了
+
+也不知道这游戏以后还有没有我要抽的新角色了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
