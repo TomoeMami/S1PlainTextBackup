@@ -5776,3 +5776,36 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 在看B站一个up抽泣着边找翻译看，边怀疑自己是不是看错，弹幕一堆破防，蘑菇太坏了 ...</blockquote>
 宝贝虎吧？他之前还特意做了所谓的“考究”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 19814#       发表于 2026-1-1 02:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">隔壁开始再度破防（
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">明天起来应该能看到更多的破防 乐 太乐了
+
+*****
+
+####  kiralzb  
+##### 19815#       发表于 2026-1-1 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959482&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-1 02:01</a>
+
+宝贝虎吧？他之前还特意做了所谓的“考究”，连所长和咕哒握手的CG和动画不同都能拿来做论证是不同的结局 ...</blockquote>
+听到能不能退我钱时是真没绷住<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19816#       发表于 2026-1-1 02:12
+
+我本来以为营销号只是赚流量的，怎么真是小丑啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 19817#       发表于 2026-1-1 02:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真呆毛出场圣剑精就停摆，然后亚瑟王不存在，好家伙，蘑菇真的老年痴呆了吧
+
