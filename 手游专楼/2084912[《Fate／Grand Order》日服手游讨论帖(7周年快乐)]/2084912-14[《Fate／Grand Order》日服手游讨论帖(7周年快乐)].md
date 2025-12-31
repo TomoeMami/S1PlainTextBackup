@@ -5672,3 +5672,58 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 用叶叔叔送的800石抽满了冠呆5宝。暂时就这样吧，福袋是真不想抽了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 19804#       发表于 2026-1-1 01:32
+
+"将终章的失落转化为温暖的余韵，推荐玩33远征" 有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+· ED后的玛修
+
+玛修不是人造人（Homunculus），而是设计婴儿（Design Baby）。
+
+她作为一个独立的人类，在2004年之前便已出生，因此改变的是她2004年之后的人生。
+
+在《FGO》中，她是在南极迦勒底基地被调整养育的。
+
+但在ED后的历史里，她出生后是在与“阿尼姆斯菲亚”（Animus Sphere/Animusphere）有缘的土地上长大，并成长为一名测量地球脑波波长的学生。
+
+在她的内心深处，总存在着一个连她自己也无法用语言形容的特征，那就是“虽然从未去过，却会对南极心驰神往”。
+
+*****
+
+####  kiralzb  
+##### 19805#       发表于 2026-1-1 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959375&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-1 01:23</a>
+
+我们的竹箒日記还是来了</blockquote>
+没有什么真结局啦，玛修的设定都给改好了，看3.0准备怎么扯吧<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19806#       发表于 2026-1-1 01:37
+
+ 本帖最后由 岸浪白野 于 2026-1-1 01:39 编辑 
+
+哎呀怎么这么坏啊，给我们期待真结局的不但盖馆还埋更深的土了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19807#       发表于 2026-1-1 01:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是自己给自己挖坟入棺啊
+
+*****
+
+####  angelooo  
+##### 19808#       发表于 2026-1-1 01:43
+
+什么33远征队孝子
+
+我ptsd犯了
+
