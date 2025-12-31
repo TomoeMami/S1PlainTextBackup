@@ -5809,3 +5809,51 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真呆毛出场圣剑精就停摆，然后亚瑟王不存在，好家伙，蘑菇真的老年痴呆了吧
 
+
+*****
+
+####  alucardcz  
+##### 19818#       发表于 2026-1-1 02:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哇哦 lga的破防程度远超了我的想象 本来想说看一眼就睡了 结果乐到现在
+
+*****
+
+####  cscbzcbz  
+##### 19819#       发表于 2026-1-1 02:48
+
+2.7后觉得太拖沓而退坑，惊闻fgo完结了，连夜把剧情云完，还是挺感慨的。对于这个结局，我满意了，最后一切回归原点，仿佛什么都没发生过，但玩家体验了奇幻的故事，正如游戏里强调的重要的是过程。稍微有一点惊讶在于居然真的就这么完结了。看到游戏外有这么多破防的也是挺乐的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+要我说能完结比半死不活的拖着好太多了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 19820#       发表于 2026-1-1 02:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959589&amp;ptid=2084912" target="_blank">cscbzcbz 发表于 2026-1-1 02:48</a>
+
+2.7后觉得太拖沓而退坑，惊闻fgo完结了，连夜把剧情云完，还是挺感慨的。对于这个结局，我满意了，最后一切 ...</blockquote>
+完结了又不关服，也没个更新计划，不也就是半死不活地拖着吗<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 19821#       发表于 2026-1-1 02:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959413&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 01:34</a>
+没有什么真结局啦，玛修的设定都给改好了，看3.0准备怎么扯吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定没有3.0了呢。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  都谷捻柏  
+##### 19822#       发表于 2026-1-1 02:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959584&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-1-1 02:41</a>
+真呆毛出场圣剑精就停摆，然后亚瑟王不存在，好家伙，蘑菇真的老年痴呆了吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">本来蛮好的，但是一想到她得听雷夫的召唤，就觉得都是主人的任务了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
