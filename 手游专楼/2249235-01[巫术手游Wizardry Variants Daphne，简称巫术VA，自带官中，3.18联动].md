@@ -62,3 +62,11 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 但是想想总比出狗头骑士家暴男或者gay亚当好，勉强和解
 
+
+*****
+
+####  elven119  
+##### 649#       发表于 2026-1-1 07:16
+
+群友们看到爱丽丝皮就失去理智疯狂氪金了，结果早上起来一看这回蓝被动触发率不足5%，笑尿<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
