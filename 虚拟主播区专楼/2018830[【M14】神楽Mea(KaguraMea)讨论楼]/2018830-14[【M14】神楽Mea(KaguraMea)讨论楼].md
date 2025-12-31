@@ -164,3 +164,13 @@ Mea也没过啊，目前最高到11个吧。过了12个同意之后，还有个�
 
 很有以前TC直播的感觉
 
+
+*****
+
+####  Igarashi  
+##### 20137#       发表于 2026-1-1 00:14
+
+久しぶり<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+あけおめ
+
