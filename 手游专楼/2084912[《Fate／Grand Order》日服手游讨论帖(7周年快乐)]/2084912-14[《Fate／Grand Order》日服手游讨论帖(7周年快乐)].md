@@ -5421,3 +5421,70 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 打外星人咯
 
+
+*****
+
+####  khxooo  
+##### 19780#       发表于 2025-12-31 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68958684&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-12-31 23:19</a>
+
+总之我今晚是很满足的，毕竟看网友破防太有乐子了哈哈哈</blockquote>
+我也在围观，太快乐了哈哈哈哈哈<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19781#       发表于 2025-12-31 23:57
+
+所以说别把你对剧情的感情投射到游戏运营上，根本不是一回事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在那盼关服
+
+*****
+
+####  blue321  
+##### 19782#       发表于 2025-12-31 23:59
+
+风光大葬的感觉都没有，后面肯定还有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19783#       发表于 2026-1-1 00:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能关服 3.0不是板上钉钉的吗  至于2.0的坑  那就让他坑 影响到我lxs赚钱吗
+
+*****
+
+####  xiongxingyu  
+##### 19784#       发表于 2026-1-1 00:02
+
+福袋提妈双黄，10发11连4宝冠呆，这是要关服调爆率了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 19785#       发表于 2026-1-1 00:03
+
+以后没主线直接各种活动糊脸我都信
+
+反正时间线无限回推不就行
+
+有钱不赚才是疯了
+
+*****
+
+####  岸浪白野  
+##### 19786#       发表于 2026-1-1 00:03
+
+我们新头像就是这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/01/000318aqbb7b7pqjt4kjfb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (488.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 00:03 上传
+
