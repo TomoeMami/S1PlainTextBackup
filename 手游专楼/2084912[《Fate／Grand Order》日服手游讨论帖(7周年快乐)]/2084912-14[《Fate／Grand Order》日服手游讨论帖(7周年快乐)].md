@@ -5552,3 +5552,69 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 再要有什么动作怕是等白情以后了</blockquote>
 1月有宣传的生放送，那时候应该会公布活动
 
+
+*****
+
+####  jackyhuang  
+##### 19794#       发表于 2026-1-1 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959202&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-1 00:35</a>
+1月有宣传的生放送，那时候应该会公布活动</blockquote>
+1月宣传肯定情人节啊
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 19795#       发表于 2026-1-1 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959220&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-1-1 00:40</a>
+
+1月宣传肯定情人节啊
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+
+3个月3场线下，情人节是2月那场才对
+
+<img src="https://img.stage1st.com/forum/202601/01/004356zzorlsdnmpbyq5zz.png" referrerpolicy="no-referrer">
+
+<strong>S}7Y~B$MMB]4IE_K(KO{6.png</strong> (147.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 00:43 上传
+
+*****
+
+####  kiralzb  
+##### 19796#       发表于 2026-1-1 00:52
+
+我觉得还挺好看的，总之先5宝，本来以为又要保底，虽然也就剩50抽，一张出来后，接着出率就比较正常，还歪了南丁（还歪满宝了），new了太公望和罗兰，其余4星一堆，整理箱子去了
+
+话说我狗粮材料都没，技能都升不满<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/01/004834lke7w3nwkeb6jk6z.jpg" referrerpolicy="no-referrer">
+
+<strong>无标题.jpg</strong> (271.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 00:48 上传
+
+*****
+
+####  angelooo  
+##### 19797#       发表于 2026-1-1 00:57
+
+<blockquote>kiralzb 发表于 2026-1-1 00:52
+我觉得还挺好看的，总之先5宝，本来以为又要保底，虽然也就剩50抽，一张出来后，接着出率就比较正常，还歪 ...</blockquote>
+这次武内基本没拉，模组拉了，一破卡面和模组只能说是两个位面，我看他们截图出来都气笑了
+
+*****
+
+####  qixinno2  
+##### 19798#       发表于 2026-1-1 00:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友还在欧 我都扔进600+石头了一个五星没出 这合适么
+
