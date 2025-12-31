@@ -5488,3 +5488,67 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 2026-1-1 00:03 上传
 
+
+*****
+
+####  zakki  
+##### 19787#       发表于 2026-1-1 00:17
+
+其实我早就在兽尼禄三破和唐突奏章擅自期待擅自失望过了，现在说什么我都不会有一丝期待了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19788#       发表于 2026-1-1 00:23
+
+原来B站和尼姑庵真的有那么多茵孝子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 19789#       发表于 2026-1-1 00:27
+
+这呆毛强度有点可怕啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  岸浪白野  
+##### 19790#       发表于 2026-1-1 00:32
+
+ 本帖最后由 岸浪白野 于 2026-1-1 00:34 编辑 
+
+你玩单核还红魔放滥出，不还是以前那套用法，出现了什么幻觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+放在现在的剑上面是强，但问题现在出了所长
+
+*****
+
+####  jackyhuang  
+##### 19791#       发表于 2026-1-1 00:34
+
+可以安心过年了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+再要有什么动作怕是等白情以后了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  天王寺凯伊姆  
+##### 19792#       发表于 2026-1-1 00:35
+
+3.0得蘑菇想写，但如果只是让游戏能苟多久苟多久倒是不完全需要蘑菇
+
+*****
+
+####  khxooo  
+##### 19793#       发表于 2026-1-1 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959185&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-1-1 00:34</a>
+
+可以安心过年了
+
+再要有什么动作怕是等白情以后了</blockquote>
+1月有宣传的生放送，那时候应该会公布活动
+
