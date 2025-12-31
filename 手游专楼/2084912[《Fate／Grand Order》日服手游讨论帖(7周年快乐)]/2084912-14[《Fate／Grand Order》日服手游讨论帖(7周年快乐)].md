@@ -5618,3 +5618,57 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友还在欧 我都扔进600+石头了一个五星没出 这合适么
 
+
+*****
+
+####  都谷捻柏  
+##### 19799#       发表于 2026-1-1 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68958833&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-12-31 23:47</a>
+
+隔壁那么多分析贴现在去看太乐了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我带着忐忑的心情乐了几天了。
+
+*****
+
+####  alucardcz  
+##### 19800#       发表于 2026-1-1 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959303&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 00:59</a>
+
+楼友还在欧 我都扔进600+石头了一个五星没出 这合适么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你有这位漏油1/100的财力吗 
+
+
+*****
+
+####  kiralzb  
+##### 19801#       发表于 2026-1-1 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959296&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-1 00:57</a>
+
+这次武内基本没拉，模组拉了，一破卡面和模组只能说是两个位面，我看他们截图出来都气笑了 ...</blockquote>
+刷了狗粮和棋子升了看，卡面挺好，模组嘛，可以理解说的是非战状态，剑也是放鞘里的，就是这个持剑姿势和仙女攻击方式确实有点搞笑<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19802#       发表于 2026-1-1 01:23
+
+我们的竹箒日記还是来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/01/012319a3kzvgjqlikkjm9i.jpg" referrerpolicy="no-referrer">
+
+<strong>7DT(6TSR(){)9W8L3L0KP_6.jpg</strong> (568.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 01:23 上传
+
+*****
+
+####  閻魔愛  
+##### 19803#       发表于 2026-1-1 01:24
+
+用叶叔叔送的800石抽满了冠呆5宝。暂时就这样吧，福袋是真不想抽了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
