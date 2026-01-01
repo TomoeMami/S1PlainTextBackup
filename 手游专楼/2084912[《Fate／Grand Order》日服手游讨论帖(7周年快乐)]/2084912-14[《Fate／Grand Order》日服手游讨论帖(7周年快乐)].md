@@ -6313,3 +6313,41 @@ lxs燃尽了 集体旅游去了
 
 没有锁卡就是强度陷阱
 
+
+*****
+
+####  destroyworlder  
+##### 19868#       发表于 2026-1-1 12:44
+
+抽新呆毛的确实是菌孝子
+
+*****
+
+####  alucardcz  
+##### 19869#       发表于 2026-1-1 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960079&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-1 10:10</a>
+
+月丑用一天的时间帮小高证明了弹丸论破V3没骂错人
+
+（小高：请多购买百日战记谢谢doge</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年破天荒的连ppt都没有 甚至福袋都没介绍
+
+*****
+
+####  skicerse  
+##### 19870#       发表于 2026-1-1 12:58
+
+终章本身是很完整的故事也没有矛盾，前几天打完就有一种真的是要完结了的空虚感。就算不是TE那么NE也是够得上的。当然我等菌孝子选择相信到最后一刻就是。
+
+— from Google Pixel 7, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  destroyworlder  
+##### 19871#       发表于 2026-1-1 13:13
+
+<blockquote>skicerse 发表于 2026-1-1 12:58
+终章本身是很完整的故事也没有矛盾，前几天打完就有一种真的是要完结了的空虚感。就算不是TE那么NE也是够得 ...</blockquote>
+他甚至不会把他日记里面的玛修写在游戏，差不多得了，没见过自己说结局非常完美的然后在日记里阴湿的补设定
+
