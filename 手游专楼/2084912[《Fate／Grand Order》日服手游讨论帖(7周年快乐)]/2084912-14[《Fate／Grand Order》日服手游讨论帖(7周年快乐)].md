@@ -6241,3 +6241,41 @@ lxs燃尽了 集体旅游去了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gxliv  
+##### 19859#       发表于 2026-1-1 11:12
+
+这次他们还提高了等级上限，应该还能有点期待吧
+
+*****
+
+####  zakki  
+##### 19860#       发表于 2026-1-1 11:12
+
+因为很多人对终章不满的原因就是觉得写了个死结局没法往后续了，所以所谓真结局其实是寄希望于给fgo找一种续法，现在蘑菇亲自出来盖棺定论了，可不就没得幻想了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 19861#       发表于 2026-1-1 11:20
+
+一刻也没有为所长、紫苑、尼莫哀悼，下一个停止机能的是阿尔托莉雅·阿瓦隆……
+
+*****
+
+####  usoda  
+##### 19862#       发表于 2026-1-1 11:40
+
+隔壁有假赛论坛那味了 太对了
+
+*****
+
+####  小妻水亚美  
+##### 19863#       发表于 2026-1-1 11:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/247.png" referrerpolicy="no-referrer">氪的越多 时间花的越多，沉没成本越高。现在很多玩家的心情估计和那种结婚了10年，天天努力赚钱给老婆花，然后老婆突然来一句不过了，离婚吧的丈夫差不多，这尼玛想刀死蘑菇的心情肯定有。
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
