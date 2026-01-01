@@ -6895,3 +6895,41 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 一上线发现自己冠位剑被借了好多次，好家伙，全在刷新呆毛的绊等级是吧
 
+
+*****
+
+####  小妻水亚美  
+##### 19925#       发表于 2026-1-1 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961674&amp;ptid=2084912" target="_blank">希望之花 发表于 2026-1-1 17:51</a>
+这是场堪比十年的诈骗，大家在fgo上都投入了多少？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我觉得就这狗屎出率，不是学生党没钱氪，很多泥潭工作党都是几万 十几万 甚至几十万的，参考国服好多人有b站的fgo手游小助理了，这种只有养服大佬才会安排。
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 19926#       发表于 2026-1-1 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961798&amp;ptid=2084912" target="_blank">الطائر 发表于 2026-1-1 18:34</a>
+
+玛修新年祝福、紫苑和尼莫新年礼装一切照常。话说开服时游戏剧情和现实时间一致，国服和美服特地改了剧情里 ...</blockquote>
+如果有3.0，故事上应该会这么开始，之前游戏和现实各种错位，估计就是趁着这个机会和现实时间同步。
+
+*****
+
+####  jackyhuang  
+##### 19927#       发表于 2026-1-1 20:27
+
+去隔壁屎黄色论坛看了两眼，本来还有点意见的我也觉得就这么完结了挺好的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  森兰丸  
+##### 19928#       发表于 2026-1-1 20:34
+
+的确.....虽然我也是肯定不满这游戏就这样结束的....但看了月丑发病后只有一个感想....就一个游戏至于么....又不是第一天认识蘑菇和型月....别人什么德性不该早就摸清了么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
