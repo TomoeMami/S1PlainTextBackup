@@ -6279,3 +6279,37 @@ lxs燃尽了 集体旅游去了
 
 —— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  quanlix  
+##### 19864#       发表于 2026-1-1 12:04
+
+故事讲完，剧情上该交代的都交代完，那完结关服也无所谓，现在这结局怎么看都是摆烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zakki  
+##### 19865#       发表于 2026-1-1 12:06
+
+我觉得蘑菇这也算做的有始有终了吧，至少临近结尾还写了2.6，2.7，奏3，终章，喷他写的烂就喷，确实问题不少，但因为不出3.0，4.0，5.0才喷他拍屁股走人，跑路，不负责，才是不合理的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19866#       发表于 2026-1-1 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960504&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-1 12:06</a>
+
+我觉得蘑菇这也算做的有始有终了吧，至少临近结尾还写了2.6，2.7，奏3，终章，喷他写的烂就喷，确实问题不 ...</blockquote>
+其实终章很有蘑菇一贯的路程重要过结局。我对所长无感，只是觉得主角一行值得更好<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 19867#       发表于 2026-1-1 12:15
+
+没有锁卡就是强度陷阱
+
