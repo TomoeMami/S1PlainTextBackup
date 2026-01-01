@@ -6141,3 +6141,48 @@ F：居然有对于续作的构想呢。
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得就是终章做完放假了吧
 lxs燃尽了 集体旅游去了
 
+
+*****
+
+####  岸波白野  
+##### 19849#       发表于 2026-1-1 10:31
+
+现在这个情况等该动的一动起来不就是一种饥饿营销，反正按日子那尿性到时候肯定都饿得箪食壶浆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烤土豆  
+##### 19850#       发表于 2026-1-1 10:40
+
+这结局其实还成吧，不过不失。我看的时候没1.0结局时候那种感动，但也不至于感觉烂。可能我和蘑菇差不多也感觉这个故事拖这么久有点累了。反正故事总有结局，不是现在完结将来也总要完结的。
+
+冠位呆毛6个11连4宝，又补了8个11连5宝，这次池子算是挺欧的。
+
+*****
+
+####  VVhaleVoice  
+##### 19851#       发表于 2026-1-1 10:43
+
+没看月球春晚，昨晚公布了什么后续计划吗？
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  rollingusagi  
+##### 19852#       发表于 2026-1-1 10:45
+
+和我最开始预料的差不多吧，后续应该还会有，但蘑菇大概率是不会写了，和索尼的合同到期就不干跑路，后续索尼肯定还要继续运营下去，那就主创换人呗，但愿蘑菇和型月做好了事务交接吧，至于你们就给我回去赶紧把月姬r里线给我吐出来吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cenhr  
+##### 19853#       发表于 2026-1-1 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960187&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2026-1-1 10:45</a>
+
+和我最开始预料的差不多吧，后续应该还会有，但蘑菇大概率是不会写了，和索尼的合同到期就不干跑路，后续索 ...</blockquote>
+角色版权在TM守上，不续索尼和Aniplex也无可奈何
+
