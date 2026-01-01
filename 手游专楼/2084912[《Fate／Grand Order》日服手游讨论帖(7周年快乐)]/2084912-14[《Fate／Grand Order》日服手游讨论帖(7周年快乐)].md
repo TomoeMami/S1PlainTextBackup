@@ -6438,3 +6438,51 @@ lxs燃尽了 集体旅游去了
 我今天早上看到了，说是正史里没有C呆这个基底，所以冠呆这个统合概念体也没有她，而冠呆被召唤出来了， ...</blockquote>
 不是说语音又被指责是硬上ML吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kiralzb  
+##### 19881#       发表于 2026-1-1 14:14
+
+fgo的ml不是糊涂账吗，又是分身又是原作原配又是ml，这个绿那个绿，我还是这两天才知道村正和圣剑精也被喷是蘑菇搞代餐，非常抽象<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19882#       发表于 2026-1-1 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961032&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 14:14</a>
+
+fgo的ml不是糊涂账吗，又是分身又是原作原配又是ml，这个绿那个绿，我还是这两天才知道村正和圣剑精也被喷 ...</blockquote>
+蘑菇的代餐文学，不得不尝<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 19883#       发表于 2026-1-1 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960996&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 14:02</a>
+
+听说冠呆毛的设定又让不少人疯了？ 真的吗  我一个字都没看</blockquote>
+大概是说的个人资料5：
+
+其存在方式与作为人理辅助装置的A·A相似，
+
+但这个形态并不存在『作为基型的少女（卡斯特）』。
+
+当领主洛格雷斯现界，A·A便完成了其使命，
+
+并将停止其机能。
+
+*****
+
+####  cenhr  
+##### 19884#       发表于 2026-1-1 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961087&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-1 14:34</a>
+
+大概是说的个人资料5：
+
+其存在方式与作为人理辅助装置的A·A相似，</blockquote>
+卡斯特2.6不就盒饭了，我们用的是AAcosplay，蘑菇还特地让AA和村正老爷子配搭。当时很多人破防的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
