@@ -116,3 +116,11 @@ DMZJ倒了后还有持续集散孔明安科翻译的地方吗？
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  naclken.  
+##### 480#       发表于 2026-1-1 19:40
+
+好耶，孔明老师第一时间启动了DGO2.0，开心啊开心 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
