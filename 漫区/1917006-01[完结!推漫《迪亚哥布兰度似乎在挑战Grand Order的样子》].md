@@ -95,3 +95,24 @@ DMZJ倒了后还有持续集散孔明安科翻译的地方吗？
 
 顺便也求一下现在有哪里比较方便看安科吗
 
+
+*****
+
+####  抹茶瓜  
+##### 478#       发表于 2026-1-1 18:14
+
+恭喜孔明老师可以称帝了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 479#       发表于 2026-1-1 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961283&amp;ptid=1917006" target="_blank">klzxs 发表于 2026-1-1 15:37</a>
+好好好，好久没看也是时候再复习一遍第一部了
+
+顺便也求一下现在有哪里比较方便看安科吗 ...</blockquote>
+目前只有再漫画吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
