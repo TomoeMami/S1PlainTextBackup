@@ -6854,3 +6854,44 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 <img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">漏油不要幻想了 泪目了有没有 蘑菇害人啊
 
+
+*****
+
+####  cd112332255  
+##### 19921#       发表于 2026-1-1 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961721&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 18:06</a>
+你如果觉得记忆方面很重要的话 那这结局毫无疑问就是终极喂shi 让你10年来的努力化为虚无 ...</blockquote>
+这两天看的够多了，虽然长系列普遍存在收尾困难的问题，但这么屎的确实罕见
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Luminous脑壳痛  
+##### 19922#       发表于 2026-1-1 18:48
+
+这两天看的我只想笑，2.0这么大一个坑不在第一部完结后观望而是送钱让tm继续恶心人，说白了都是自找的
+
+*****
+
+####  initium  
+##### 19923#       发表于 2026-1-1 18:51
+
+<img src="https://img.stage1st.com/forum/202601/01/185004h3dk2ndugquwv7vc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260101184944.jpg</strong> (91.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 18:50 上传
+
+马修医生达芬奇什么的先不提，还是先想想怎么把黑贞从哪个废弃孔里捞回来吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 19924#       发表于 2026-1-1 19:25
+
+一上线发现自己冠位剑被借了好多次，好家伙，全在刷新呆毛的绊等级是吧
+
