@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 12671,
+    "totalreply": 12674,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼／1104审判日]",
-    "lastedit": 1767202930,
+    "lastedit": 1767225727,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12789,10 +12789,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 3859,
+    "totalreply": 3860,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1767220567,
+    "lastedit": 1767226087,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16430,7 +16430,7 @@
     "newtitle": "[看了这么多斩杀线的帖子 美国是真的没有处方就不能买抗生素吗]",
     "lastedit": 1766966528,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2270777": {
@@ -17667,10 +17667,19 @@
     "update": false
   },
   "2271233": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[大家来谈谈新年目标吧]",
     "newtitle": "[大家来谈谈新年目标吧]",
-    "lastedit": 1767223691,
+    "lastedit": 1767225846,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2271195": {
+    "totalreply": 41,
+    "title": "[德国大盗打穿银行金库盗走至少三千万欧元]",
+    "newtitle": "[德国大盗打穿银行金库盗走至少三千万欧元]",
+    "lastedit": 1767225608,
     "category": "外野",
     "active": true,
     "update": false
