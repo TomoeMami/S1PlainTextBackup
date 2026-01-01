@@ -5988,3 +5988,49 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 你想要明明难实现的但他就是要举例自己脑海有想法的还有啊，蘑菇最近杂志访谈自己提的FEX三部曲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 19835#       发表于 2026-1-1 08:22
+
+ 本帖最后由 岸浪白野 于 2026-1-1 08:29 编辑 
+
+奈：AI发展到那个地步的话，是能战胜的。对于游星来说也是，不会进化的文明破坏也没有意义。如果还有【Fate/EXTELLA】的续作的话，也能明白游星的行动理由。相信到了那个时候，大家理解了吧。但是现在，还不能说明。
+F：居然有对于续作的构想呢。
+奈：有啊！全部都有！到【Fate/EXTELLA3】全部都有哦！是因为做了【FGO】才没法实现的啊！要是没有构想才不会专门写什么游星01,02,03呢！
+
+别问，问就是做了FGO才无法实现<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+懒狗就是懒狗，没有忙别的也不会主动去干活的，只有存在于脑海的设定
+
+*****
+
+####  kiralzb  
+##### 19836#       发表于 2026-1-1 08:39
+
+有时间33，没时间写剧本，听听就好啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 19837#       发表于 2026-1-1 09:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">已经肝不出石头了 真的傻逼一个五星没有
+
+<img src="https://img.stage1st.com/forum/202601/01/090014g20isov4o1hyj900.png" referrerpolicy="no-referrer">
+
+<strong>UQ%B_FKB5HDG0HJR5([([]E.png</strong> (193.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 09:00 上传
+
+*****
+
+####  希望之花  
+##### 19838#       发表于 2026-1-1 09:21
+
+拉二就这样不改模了吗<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+哦对了本来元旦活动会有一波强化本吧，这都没了
+

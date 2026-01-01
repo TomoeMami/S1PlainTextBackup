@@ -978,3 +978,14 @@ New神祖 大象+1
 
 帖子标题竟一语成谶<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 47681#       发表于 2026-1-1 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68958564&amp;ptid=1712412" target="_blank">sandro 发表于 2025-12-31 23:01</a>
+
+笑死，真没大的，26年停氪了</blockquote>
++1真是悔不当初
+
