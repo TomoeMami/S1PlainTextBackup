@@ -6143,7 +6143,7 @@
     "newtitle": "[A25 《莱丝蕾莉安娜的炼金工房》]",
     "lastedit": 1767031570,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1973646": {
@@ -11673,10 +11673,10 @@
     "update": false
   },
   "2199007": {
-    "totalreply": 911,
+    "totalreply": 912,
     "title": "[我们不可能成为恋人！绝对不行 动画化 2025年夏]",
     "newtitle": "[我们不可能成为恋人！绝对不行 动画化 2025年夏]",
-    "lastedit": 1767282129,
+    "lastedit": 1767291369,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 28103,
+    "totalreply": 28104,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1767284527,
+    "lastedit": 1767291369,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12753,10 +12753,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 4010,
+    "totalreply": 4011,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1767290410,
+    "lastedit": 1767291009,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17424,10 +17424,10 @@
     "update": false
   },
   "2271243": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "[醒早了，对线下四十路老登：生育后代真的能对抗“原子化”吗？]",
     "newtitle": "[醒早了，对线下四十路老登：生育后代真的能对抗“原子化”吗？]",
-    "lastedit": 1767251050,
+    "lastedit": 1767291249,
     "category": "外野",
     "active": true,
     "update": false
@@ -17604,10 +17604,10 @@
     "update": false
   },
   "2271291": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[Cba还真以为有人看他们比赛啊]",
     "newtitle": "[Cba还真以为有人看他们比赛啊]",
-    "lastedit": 1767290412,
+    "lastedit": 1767291010,
     "category": "外野",
     "active": true,
     "update": false
@@ -17618,6 +17618,15 @@
     "newtitle": "[节奏天国自从3月公布后就一点动静都没有了，大家看好吗]",
     "lastedit": 1767289329,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2271236": {
+    "totalreply": 41,
+    "title": "[德国泡菜很难吃吗？]",
+    "newtitle": "[德国泡菜很难吃吗？]",
+    "lastedit": 1767291251,
+    "category": "外野",
     "active": true,
     "update": false
   }
