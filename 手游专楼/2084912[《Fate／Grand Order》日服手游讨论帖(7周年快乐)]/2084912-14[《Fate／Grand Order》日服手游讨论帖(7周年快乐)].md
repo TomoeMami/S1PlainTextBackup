@@ -7026,3 +7026,40 @@ NGA孝子自顾自觉得一定会有3.0是属于魔怔了，这几年蘑菇写�
 
 — from OnePlus CPH2583, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  quanlix  
+##### 19938#       发表于 2026-1-2 00:07
+
+当初的三大同人商业化之后都挺晚节不保的，zun算是最好的一个了，现在看卒的结局都比fgo这结局好多了
+
+*****
+
+####  alucardcz  
+##### 19939#       发表于 2026-1-2 00:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一个2.0终章让多少东西翻身了？已知v3 ff14 看到还有人说海猫 还有啥（
+
+*****
+
+####  御坂MKII  
+##### 19940#       发表于 2026-1-2 00:32
+
+ 本帖最后由 御坂MKII 于 2026-1-2 00:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962730&amp;ptid=2084912" target="_blank">被子十三 发表于 2026-1-1 23:40</a>
+
+我也对这个结局很不满意，不然就不会期待假药了
+
+但我觉得最大的问题是这个结局NE感也太重了，不完全燃烧的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菌类有个变态的点是他觉得终章整体应该和其他章节一样要控制整体长度，太长了觉得会让人疲劳
+
+*****
+
+####  angelooo  
+##### 19941#       发表于 2026-1-2 00:39
+
+<blockquote>alucardcz 发表于 2026-1-2 00:10
+这一个2.0终章让多少东西翻身了？已知v3 ff14 看到还有人说海猫 还有啥（</blockquote>
+海猫不可能翻身，只能说龙7是第一个严重伤害我感情的作者，那种痛苦多少年了都记忆深刻，反之菌类从铁鱼开始整的一系列活看完我只想发笑，比烂都比不过别人
+
