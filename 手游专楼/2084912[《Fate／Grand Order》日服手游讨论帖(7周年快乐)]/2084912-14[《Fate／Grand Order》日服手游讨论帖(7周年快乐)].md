@@ -6068,3 +6068,76 @@ F：居然有对于续作的构想呢。
 
 蘑菇看来是真的累了（摆了），大脑超载系统宕机了，恢复需要时间，大家理解一下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  cenhr  
+##### 19843#       发表于 2026-1-1 09:57
+
+没想到1/1最大乐子是看B站和尼姑庵的菌孝子集体破防发颠，真有节目效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实蘑菇已经很努力让玩家反感了，包括放下筷子骂娘，侮辱玩家，但拦不住孝子和教友们继续氪金<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19844#       发表于 2026-1-1 10:10
+
+ 本帖最后由 exiaexa 于 2026-1-1 10:16 编辑 
+
+月丑用一天的时间帮小高证明了弹丸论破V3没骂错人
+
+（小高：请多购买百日战记谢谢doge
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+新年问题实际上就是个纯粹的运营问题，最搞的是还有傻逼在直播上感谢叶良树的
+
+玩家担心的是你这个逼游戏到底能不能继续下去，你不公布新料至少也要说一下未来规划给玩家定心丸，然后多少更新点东西让玩家有点事儿干
+
+比如双倍经验啥的，现在喂狗粮我都觉得我亏了
+
+至于菌孝子那就是纯脑瘫了
+
+2.0这故事平平淡淡讲完了并没有什么问题，这次真的是毫无理由的擅自期待擅自破防
+
+我都不知道他们破防的点是什么，是非要把献血人和女同事拉出来继续加班？还是有什么别的逆天期待？
+
+你菌可是个出名的超绝自嗨型作者，你指望他站在玩家角度考虑多少是有点纯了
+
+该冲什么、该冲谁都搞不清楚
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 19845#       发表于 2026-1-1 10:20
+
+结局不是团圆包饺子，有人不满很正常，但是没想到会是这样大规模的模因般的谩骂，反正国内是这样，日本那边懒得去看
+个人来说就紫苑算无厘头强行死外，都没啥大问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+运行那是离谱了，本来放点未来安排也不至于叫关服那么响，结果真就放广告一晚上，后续消息一点不给，这就是整蛊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安姆闲人  
+##### 19846#       发表于 2026-1-1 10:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退坑好久最近铺天盖地的看到节奏，这至于么，又没宣布关服和不更新，世界线重开不是各类动漫影视剧都玩烂了的套路么
+
+*****
+
+####  cenhr  
+##### 19847#       发表于 2026-1-1 10:27
+
+运营那边不是说过还会有11周年？何况一月十七也有节目，三月、六月也有。这些提前说过的，大概就是运营给玩家至少游戏会混到11周年的保证
+
+但真的有国人还 会氪金吗？霓虹人就不知道了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jacatay  
+##### 19848#       发表于 2026-1-1 10:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得就是终章做完放假了吧
+lxs燃尽了 集体旅游去了
+
