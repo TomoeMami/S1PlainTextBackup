@@ -129,3 +129,21 @@ Kiss很受小孩子喜欢， 小孩子更喜欢地雷系吗<img src="https://sta
  Kiss很受小孩子喜欢， 小孩子更喜欢地雷系吗</blockquote>
 小孩子可能不知道什么地雷系，可能只是单纯地喜欢（外表）带有成人味、成熟、大人风的角色
 
+
+*****
+
+####  Piano-Forest  
+##### 1520#         楼主| 发表于 2026-1-1 14:06
+
+[https://x.com/i/status/2006380584671797418](https://x.com/i/status/2006380584671797418)
+
+✨2026年✨
+
+今年もよろしくお願いします!!
+<[img src="https://s2.loli.net/2026/01/01/hWyciLP1rKxoEUN.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2006384920797835604](https://x.com/i/status/2006384920797835604)
+
+今年もよろしくどうぞ
+<[img src="https://s2.loli.net/2026/01/01/9ruA27m4FcETWDH.jpg" referrerpolicy="no-referrer">
+
