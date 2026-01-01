@@ -813,3 +813,19 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 鉴于高桥前科，也有不小可能只是故弄玄虚闹麻了（你说对吧，收视率<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 563#       发表于 2026-1-1 23:43
+
+谷中已经参与科搜研之女FINAL了啊。按来打一年的拍摄周期，加上有高桥的剧本效率（极狐时据说比工期提前好几个星期就拍完了），现在估计拍完在处理后期业务和线下活动了
+
+<img src="https://img.stage1st.com/forum/202601/01/233758hpshgf44oxpd5pp5.jpg" referrerpolicy="no-referrer">
+
+<strong>eb95dc8659fbadfb35d617e87859affa.jpg</strong> (98.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 23:37 上传
+
