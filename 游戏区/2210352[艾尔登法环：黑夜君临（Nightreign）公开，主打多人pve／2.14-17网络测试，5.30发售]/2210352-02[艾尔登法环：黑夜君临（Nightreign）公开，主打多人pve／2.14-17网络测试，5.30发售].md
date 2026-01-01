@@ -2297,3 +2297,23 @@ ps5碟好便宜，为什么没有跨平台联机<img src="https://static.stage1s
 
 moba都有天梯惩罚者，碰见神人不要想太多当练技术就好
 
+
+*****
+
+####  petitlui  
+##### 2008#       发表于 2026-1-1 19:03
+
+<blockquote>wyptaotao 发表于 2026-1-1 16:25
+ps5碟好便宜，为什么没有跨平台联机</blockquote>
+可是ps5要会员啊（）。不过我自己ps5版联机体验不错，pc版的奇异bug我是一个没遇到，而且也很少遇到卡比（日常开加速器），改遗物的几百小时只遇到一个，现在ps5深5野排排得也还挺快的
+
+*****
+
+####  wyptaotao  
+##### 2009#       发表于 2026-1-1 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961885&amp;ptid=2210352" target="_blank">petitlui 发表于 2026-1-1 19:03</a>
+
+可是ps5要会员啊（）。不过我自己ps5版联机体验不错，pc版的奇异bug我是一个没遇到，而且也很少遇到卡比 ...</blockquote>
+ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
