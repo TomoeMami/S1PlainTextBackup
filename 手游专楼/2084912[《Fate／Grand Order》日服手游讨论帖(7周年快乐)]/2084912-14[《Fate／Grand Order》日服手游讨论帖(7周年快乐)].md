@@ -6714,3 +6714,51 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 冠呆对兰斯洛特有个语音，是感谢他能陪桂妮薇儿聊天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 19906#       发表于 2026-1-1 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961552&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-1 17:08</a>
+
+这冠呆不就是个没头没尾也没有丝毫剧情铺垫的天降角色吗....怎么还有人能对这样的角色设定破防的
+
+不过能觉 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">尬黑了 不是炸蛋人随便召唤出来的路人a吗！
+
+*****
+
+####  angelooo  
+##### 19907#       发表于 2026-1-1 17:39
+
+反正我没抽，什么乱七八糟的设定也不看了，还是观察破防网友比较有趣
+
+*****
+
+####  qixinno2  
+##### 19908#       发表于 2026-1-1 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961545&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 17:05</a>
+
+你可以学本楼超级至尊无课欧皇 赞4位数！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">没意义 我感觉我石头越多出货率越低 真攒个四位数怕是固定900石一宝了
+
+*****
+
+####  cd112332255  
+##### 19909#       发表于 2026-1-1 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961326&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-1 15:51</a>
+英灵都记得，但由于正史没有迦勒底，肯定没法现界了</blockquote>
+被剪定了的世界也能保留记忆？那咕哒子失忆也太强行了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  希望之花  
+##### 19910#       发表于 2026-1-1 17:51
+
+这是场堪比十年的诈骗，大家在fgo上都投入了多少？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
