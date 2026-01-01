@@ -6388,3 +6388,53 @@ lxs燃尽了 集体旅游去了
 
 完整在哪里了，和新三结尾写到司马懿灭曹爽之后直接快进到西晋统一有什么区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七宝喵树  
+##### 19876#       发表于 2026-1-1 13:56
+
+一些漏油一直在试图把骂的都打成破防型菌孝子，可我看漏油也都是理客中型菌孝子啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+装什么大尾巴狼最客观的呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2509FPN0BC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 19877#       发表于 2026-1-1 14:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说冠呆毛的设定又让不少人疯了？ 真的吗  我一个字都没看
+
+*****
+
+####  cenhr  
+##### 19878#       发表于 2026-1-1 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960977&amp;ptid=2084912" target="_blank">七宝喵树 发表于 2026-1-1 13:56</a>
+
+一些漏油一直在试图把骂的都打成破防型菌孝子，可我看漏油也都是理客中型菌孝子啊
+
+装什么大尾巴狼最客观的 ...</blockquote>
+还是能分得开破防型菌孝子和纯粹是骂故事的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 19879#       发表于 2026-1-1 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960996&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 14:02</a>
+听说冠呆毛的设定又让不少人疯了？ 真的吗  我一个字都没看</blockquote>
+我今天早上看到了，说是正史里没有C呆这个基底，所以冠呆这个统合概念体也没有她，而冠呆被召唤出来了，圣剑精这个异位类似概念体就会自动进入停机状态
+然后很多人就说又死一个啦，吃书啦等等，反正蘑菇是区<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19880#       发表于 2026-1-1 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961017&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 14:08</a>
+
+我今天早上看到了，说是正史里没有C呆这个基底，所以冠呆这个统合概念体也没有她，而冠呆被召唤出来了， ...</blockquote>
+不是说语音又被指责是硬上ML吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
