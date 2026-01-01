@@ -6933,3 +6933,54 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 的确.....虽然我也是肯定不满这游戏就这样结束的....但看了月丑发病后只有一个感想....就一个游戏至于么....又不是第一天认识蘑菇和型月....别人什么德性不该早就摸清了么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 19929#       发表于 2026-1-1 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962186&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-1 20:34</a>
+
+的确.....虽然我也是肯定不满这游戏就这样结束的....但看了月丑发病后只有一个感想....就一个游戏至于么... ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然至于 不然乐子都没了 又没你欧 怕不是双输
+
+*****
+
+####  森兰丸  
+##### 19930#       发表于 2026-1-1 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962192&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 20:36</a>
+
+当然至于 不然乐子都没了 又没你欧 怕不是双输</blockquote>
+可是非洲人永远记得这游戏完结前的最后1年出的5星数量都还没到萌新的一半<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19931#       发表于 2026-1-1 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962202&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-1 20:41</a>
+
+可是非洲人永远记得这游戏完结前的最后1年出的5星数量都还没到萌新的一半 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是非萌all in也没有届到冠位呆毛
+
+*****
+
+####  森兰丸  
+##### 19932#       发表于 2026-1-1 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962208&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 20:44</a>
+
+但是非萌all in也没有届到冠位呆毛</blockquote>
+但是非洲人就算加上刚抽到的冠呆也才刚到去年萌新出的5星数量的一半<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19933#       发表于 2026-1-1 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962212&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-1 20:46</a>
+
+但是非洲人就算加上刚抽到的冠呆也才刚到去年萌新出的5星数量的一半</blockquote>
+ 但是非萌今年抽到的5星数量也不到欧皇的一半<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
