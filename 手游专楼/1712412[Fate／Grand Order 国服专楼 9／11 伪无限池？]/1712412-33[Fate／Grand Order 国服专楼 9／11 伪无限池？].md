@@ -970,3 +970,11 @@ New神祖 大象+1
 
 还有一年国服也要被剪定了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飛霞精灵  
+##### 47680#       发表于 2026-1-1 08:07
+
+帖子标题竟一语成谶<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
