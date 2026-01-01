@@ -706,3 +706,32 @@ jumpking耐久实际上本来就是GODinGOD直播当时观众请求miko直播而
 
 该看日出了（录播）
 
+
+*****
+
+####  holofan  
+##### 11379#       发表于 2026-1-1 19:04
+
+<img src="https://img.stage1st.com/forum/202601/01/190357kj6nel9ekhekn6ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 19:03 上传
+
+今年第一天就很怪了
+
+*****
+
+####  holofan  
+##### 11380#       发表于 2026-1-1 20:07
+
+赛前预想冠军
+
+kanade：晋级赛被486淘汰
+
+fbk：手柄没充电导致操作失误在预选赛意外落败进入杂鱼赛而且还又输了一局
+
+星街：老家网络不好没办法跟其他人匹配网络直接自动出局
+
