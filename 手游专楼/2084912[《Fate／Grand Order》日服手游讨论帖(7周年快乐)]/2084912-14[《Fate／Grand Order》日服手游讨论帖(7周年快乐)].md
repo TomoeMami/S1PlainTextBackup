@@ -6186,3 +6186,58 @@ lxs燃尽了 集体旅游去了
 和我最开始预料的差不多吧，后续应该还会有，但蘑菇大概率是不会写了，和索尼的合同到期就不干跑路，后续索 ...</blockquote>
 角色版权在TM守上，不续索尼和Aniplex也无可奈何
 
+
+*****
+
+####  kiralzb  
+##### 19854#       发表于 2026-1-1 10:52
+
+员工指望他吃饭呢，不可能不写的，看是硬续还是搞新主角，反正之前的调查日本那边想续的也一半左右吧，记得想新主角的也挺多
+
+*****
+
+####  离心  
+##### 19855#       发表于 2026-1-1 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959783&amp;ptid=2084912" target="_blank">shimotsuki14 发表于 2026-1-1 08:00</a>
+好起来了，蘑菇懂个P
+迪亚哥临时所长来了</blockquote>
+2.0的迪亚哥应该不是临时所长了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  克苏鲁系青骑士  
+##### 19856#       发表于 2026-1-1 11:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">在得知DDD的梗都用到手游里后我就已经不会再破防了
+后续剧情能解就解不能解就挂科嘛，跟福袋不是非抽不可一样
+
+*****
+
+####  Yidam  
+##### 19857#       发表于 2026-1-1 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960174&amp;ptid=2084912" target="_blank">VVhaleVoice 发表于 2026-1-1 10:43</a>
+
+没看月球春晚，昨晚公布了什么后续计划吗？
+
+—— 来自 Google Pixel 8, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+就是啥都没有才会这么爆啊，今年月球春晚的主题是广告<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最爱面包超人  
+##### 19858#       发表于 2026-1-1 11:08
+
+<img src="https://img.stage1st.com/forum/202601/01/110832q171cku0m0xudkxd.png" referrerpolicy="no-referrer">
+
+<strong>图片替换.png</strong> (329.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-1 11:08 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
