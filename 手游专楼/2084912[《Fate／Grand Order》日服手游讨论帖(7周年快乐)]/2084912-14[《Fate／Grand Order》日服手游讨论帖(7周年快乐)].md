@@ -6545,3 +6545,83 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在只想着怎么把60抽的钻挖出来 来几个强化本啊
 
+
+*****
+
+####  cenhr  
+##### 19890#       发表于 2026-1-1 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961267&amp;ptid=2084912" target="_blank">klzxs 发表于 2026-1-1 15:31</a>
+
+我是搞不懂月丑急什么，这游戏又不是真嗷的一声原地爆炸了，再也不更新了
+
+没有第三部也肯定有2.5，甚至哪怕 ...</blockquote>
+主要是一大堆自己期待然后自己破防
+
+*****
+
+####  都谷捻柏  
+##### 19891#       发表于 2026-1-1 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961225&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-1 15:16</a>
+
+C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
+
+之前还莫名其妙占了个冠位剑的位置，现在正主都来了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蓝呆是FSN，FHA塑造出来的角色，才能称之为正主，其实一开始就出了呀。
+
+*****
+
+####  cd112332255  
+##### 19892#       发表于 2026-1-1 15:43
+
+很早退坑了，最近被乐子吸引，有个好奇的地方，按这结局能有多少人能记得咕哒子？
+按我知道的设定来看，应该有老头为代表的三个魔法使，月球公主，根源式，异星神，以及本体在星之内海依凭降临的几个神吧。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  exiaexa  
+##### 19893#       发表于 2026-1-1 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961293&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-1 15:41</a>
+
+蓝呆是FSN，FHA塑造出来的角色，才能称之为正主，其实一开始就出了呀。</blockquote>
+要不是这次终章告诉你呆毛守了十年门，有几个人会说呆毛出场过
+
+更别说冠位剑这鬼东西吊了十年胃口，结果告诉你这玩意儿只是看着像呆毛
+
+怎么都说不上早就出现过
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 19894#       发表于 2026-1-1 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961303&amp;ptid=2084912" target="_blank">cd112332255 发表于 2026-1-1 01:43</a>
+很早退坑了，最近被乐子吸引，有个好奇的地方，按这结局能有多少人能记得咕哒子？
+按我知道的设定来看，应 ...</blockquote>
+戴比特啊，特意出来显摆一下告诉俩人的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19895#       发表于 2026-1-1 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961268&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 15:31</a>
+
+我现在只想着怎么把60抽的钻挖出来 来几个强化本啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">6 4 8  哦 废狗一单不用648
+
+*****
+
+####  zakki  
+##### 19896#       发表于 2026-1-1 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961303&amp;ptid=2084912" target="_blank">cd112332255 发表于 2026-1-1 15:43</a>
+很早退坑了，最近被乐子吸引，有个好奇的地方，按这结局能有多少人能记得咕哒子？
+按我知道的设定来看，应 ...</blockquote>
+英灵都记得，但由于正史没有迦勒底，肯定没法现界了
+
