@@ -6762,3 +6762,62 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 
 这是场堪比十年的诈骗，大家在fgo上都投入了多少？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 19911#       发表于 2026-1-1 17:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记忆这种东西有什么好聊的 本来就是薛定谔  而且这种桥段大多数都是脑袋一拍无条件就能想起来 更没有聊的价值了
+<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">但蘑菇补充的马修设定 这就是另一个故事了 可以说陪伴你10年的同事已经死翘翘了 现在这个就算有记忆也是另一个人
+
+*****
+
+####  kiralzb  
+##### 19912#       发表于 2026-1-1 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961560&amp;ptid=2084912" target="_blank">乾理央 发表于 2026-1-1 17:12</a>
+
+冠呆对兰斯洛特有个语音，是感谢他能陪桂妮薇儿聊天</blockquote>
+我记得很久以前就有呆毛说没法给桂妮薇儿幸福，她能幸福就成全他们之类，还有什么兰桂是因为得不到呆毛所以互舔起来，是混淆了二创？反正这感谢很符合我对月球呆毛的印象，不值得惊讶<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19913#       发表于 2026-1-1 18:02
+
+※「マテリアル(ギャラリー)」への「第2部 終章」のイベントCGやムービーの追加は、後日を予定しております。
+
+刚刚看新年活动偶尔看到终章有这么一句。 之前还有人拿这个当伏笔。结果只是产能不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 19914#       发表于 2026-1-1 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961694&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-1 17:58</a>
+
+我记得很久以前就有呆毛说没法给桂妮薇儿幸福，她能幸福就成全他们之类，还有什么兰桂是因为得不到呆毛所 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正FZ的那个小剧场里兰斯洛特自己说过比起桂妮薇儿其实更喜欢呆毛
+
+*****
+
+####  cd112332255  
+##### 19915#       发表于 2026-1-1 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961684&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 17:55</a>
+记忆这种东西有什么好聊的 本来就是薛定谔  而且这种桥段大多数都是脑袋一拍无条件就能想起来 更没有聊的价 ...</blockquote>
+以我个人来说还挺重要的，涉及玩家代入感的问题。而且我云了一下，发现按这设定，所有异闻带从者从根源上也都没了，也是很离谱了。<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  alucardcz  
+##### 19916#       发表于 2026-1-1 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961715&amp;ptid=2084912" target="_blank">cd112332255 发表于 2026-1-1 18:04</a>
+
+以我个人来说还挺重要的，涉及玩家代入感的问题。而且我云了一下，发现按这设定，所有异闻带从者从根源上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你如果觉得记忆方面很重要的话 那这结局毫无疑问就是终极喂shi 让你10年来的努力化为虚无
+
