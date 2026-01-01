@@ -6625,3 +6625,55 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 按我知道的设定来看，应 ...</blockquote>
 英灵都记得，但由于正史没有迦勒底，肯定没法现界了
 
+
+*****
+
+####  qixinno2  
+##### 19897#       发表于 2026-1-1 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961322&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 15:49</a>
+
+6 4 8  哦 废狗一单不用648</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穷B没钱氪
+
+*****
+
+####  alucardcz  
+##### 19898#       发表于 2026-1-1 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961330&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 15:52</a>
+
+穷B没钱氪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">没事不要方 萌新600石受尼无事发生 这池也90石 依然无事发生（同样歪都没歪
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼还有心思挖羁绊 萌新已经动都懒得动了
+
+*****
+
+####  都谷捻柏  
+##### 19899#       发表于 2026-1-1 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961268&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 15:31</a>
+
+我现在只想着怎么把60抽的钻挖出来 来几个强化本啊</blockquote>
+梦火还有没有，绿方块能买60茶壶，几十个风暴罐，双倍吃起来，戴冠战开刷。
+
+*****
+
+####  qixinno2  
+##### 19900#       发表于 2026-1-1 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961495&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-1 16:47</a>
+
+梦火还有没有，绿方块能买60茶壶，几十个风暴罐，双倍吃起来，戴冠战开刷。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">刷完了 不然我怎么从100变得60
+
+*****
+
+####  alucardcz  
+##### 19901#       发表于 2026-1-1 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961516&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 16:55</a>
+
+刷完了 不然我怎么从100变得60</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕 萌新梦火甚至还有21个
+
