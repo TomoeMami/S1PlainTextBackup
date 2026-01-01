@@ -66,3 +66,18 @@ RBS不是标准乱斗无剧情吗。
 现在吐便当出来打小一辈 ...</blockquote>
 大先生要打小2辈的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 613#       发表于 2026-1-2 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962928&amp;ptid=2085684" target="_blank">adretyu67. 发表于 2026-1-2 00:54</a>
+
+RBS不是标准乱斗无剧情吗。
+
+但是已经死了的吉斯要踩光环，他不用。没死也正常。 ...</blockquote>
+不是RBS，RB的时候的剧情就是克劳撒派遣了影吉斯到南镇制造混乱
+
+从那时开始就挺乱了
+
