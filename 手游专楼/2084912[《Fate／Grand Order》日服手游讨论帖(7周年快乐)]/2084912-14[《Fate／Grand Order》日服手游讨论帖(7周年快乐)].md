@@ -5954,3 +5954,37 @@ yysy，废狗哪怕就此摆烂不更新主线，只要能继续落地卫星应�
 
 也不知道这游戏以后还有没有我要抽的新角色了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 19831#       发表于 2026-1-1 06:16
+
+不愧是蘑菇，真有那种老派作家的风格了
+
+*****
+
+####  zakki  
+##### 19832#       发表于 2026-1-1 07:11
+
+事到如今，蘑菇都说到这个地步了期待魔夜2都比3.0靠谱吧，以后fgo3.0也要成为月姬2，魔夜2，冰之花同级别的存在了吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 19833#       发表于 2026-1-1 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68959466&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-1 01:54</a>
+什么迪亚哥第二部要开了？这才是真正的2.0！</blockquote>
+好起来了，蘑菇懂个P
+迪亚哥临时所长来了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  岸浪白野  
+##### 19834#       发表于 2026-1-1 08:13
+
+你想要明明难实现的但他就是要举例自己脑海有想法的还有啊，蘑菇最近杂志访谈自己提的FEX三部曲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
