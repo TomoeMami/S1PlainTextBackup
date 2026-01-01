@@ -1890,3 +1890,13 @@ ur一星足够pvp用钓鱼战法了
 
 小鸟BUG变机制还行
 
+
+*****
+
+####  jackyhuang  
+##### 3438#       发表于 2026-1-1 11:31
+
+100抽3UR，2个是溢出的强自<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
