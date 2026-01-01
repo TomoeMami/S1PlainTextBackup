@@ -6677,3 +6677,40 @@ C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
 刷完了 不然我怎么从100变得60</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕 萌新梦火甚至还有21个
 
+
+*****
+
+####  qixinno2  
+##### 19902#       发表于 2026-1-1 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961520&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-1 16:56</a>
+
+羡慕 萌新梦火甚至还有21个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还剩10个梦火 随缘了 能刷出来就刷 刷不出也就他了 感觉每次攒石头最后结局都是大暴死 还不如石不过三瞎JB扔的时候
+
+*****
+
+####  alucardcz  
+##### 19903#       发表于 2026-1-1 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961537&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-1 17:01</a>
+
+还剩10个梦火 随缘了 能刷出来就刷 刷不出也就他了 感觉每次攒石头最后结局都是大暴死 还不如石不过三瞎JB ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你可以学本楼超级至尊无课欧皇 赞4位数！
+
+*****
+
+####  森兰丸  
+##### 19904#       发表于 2026-1-1 17:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这冠呆不就是个没头没尾也没有丝毫剧情铺垫的天降角色吗....怎么还有人能对这样的角色设定破防的
+
+不过能觉得AA是ML喜欢自己也已经够月丑了.....蘑菇的那堆皮套人最后根本说不清是谁绿了谁
+
+*****
+
+####  乾理央  
+##### 19905#       发表于 2026-1-1 17:12
+
+冠呆对兰斯洛特有个语音，是感谢他能陪桂妮薇儿聊天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
