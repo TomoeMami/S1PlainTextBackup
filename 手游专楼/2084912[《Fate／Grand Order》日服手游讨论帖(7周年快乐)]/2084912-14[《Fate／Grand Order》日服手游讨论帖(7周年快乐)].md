@@ -6034,3 +6034,37 @@ F：居然有对于续作的构想呢。
 
 哦对了本来元旦活动会有一波强化本吧，这都没了
 
+
+*****
+
+####  風卷豹  
+##### 19839#       发表于 2026-1-1 09:30
+
+氪了两单没出，感觉有点空虚。老实说你要主线完结就完结，但是既然还有新卡和新春活动那你运营起码得正常维持运转吧，屁都没放一声直接丢游戏公告里，蘑菇摆烂运营也摆烂？我觉得是蛮影响抽卡热情的<img src="https://static.stage1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19840#       发表于 2026-1-1 09:45
+
+蘑菇摆烂就是为了达到收工的目标？只要新年收入不好，就能理直气壮和索尼和Aniplex说游戏已经不行了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 19841#       发表于 2026-1-1 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960015&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-1 09:45</a>
+蘑菇摆烂就是为了达到收工的目标？只要新年收入不好，就能理直气壮和索尼和Aniplex说游戏已经不行了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友还在氪呢，我看根本不用担心，继续摆烂就完事了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  第三艺能课  
+##### 19842#       发表于 2026-1-1 09:53
+
+蘑菇看来是真的累了（摆了），大脑超载系统宕机了，恢复需要时间，大家理解一下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
