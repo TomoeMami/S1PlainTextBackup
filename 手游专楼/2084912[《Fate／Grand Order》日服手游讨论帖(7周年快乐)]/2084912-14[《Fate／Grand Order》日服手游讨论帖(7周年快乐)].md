@@ -6351,3 +6351,40 @@ lxs燃尽了 集体旅游去了
 终章本身是很完整的故事也没有矛盾，前几天打完就有一种真的是要完结了的空虚感。就算不是TE那么NE也是够得 ...</blockquote>
 他甚至不会把他日记里面的玛修写在游戏，差不多得了，没见过自己说结局非常完美的然后在日记里阴湿的补设定
 
+
+*****
+
+####  alucardcz  
+##### 19872#       发表于 2026-1-1 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960733&amp;ptid=2084912" target="_blank">skicerse 发表于 2026-1-1 12:58</a>
+
+终章本身是很完整的故事也没有矛盾，前几天打完就有一种真的是要完结了的空虚感。就算不是TE那么NE也是够得 ...</blockquote>
+完整在哪 ? 梦里吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 19873#       发表于 2026-1-1 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960132&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-1 10:27</a>
+
+运营那边不是说过还会有11周年？何况一月十七也有节目，三月、六月也有。这些提前说过的，大概就是运营给玩 ...</blockquote>
+不就有个楼友刚氪完满宝呆毛嘛，喜欢就氪，不喜欢当服务器蛀虫、讨厌就拍拍屁股走人就是了，哪有想隔壁那群神经病一样，他们才是真的菌孝子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 19874#       发表于 2026-1-1 13:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到日记我就猜到隔壁会破防 但是没有想到破成这样  搞的我半夜看的乐死了  严重影响了我睡眠质量！
+
+*****
+
+####  shoel  
+##### 19875#       发表于 2026-1-1 13:49
+
+怎么还有人说故事是完整的啊。
+
+完整在哪里了，和新三结尾写到司马懿灭曹爽之后直接快进到西晋统一有什么区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
