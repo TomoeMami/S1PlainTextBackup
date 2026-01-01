@@ -85,3 +85,13 @@ DMZJ倒了后还有持续集散孔明安科翻译的地方吗？
 
 2026-1-1 02:15 上传
 
+
+*****
+
+####  klzxs  
+##### 477#       发表于 2026-1-1 15:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好好好，好久没看也是时候再复习一遍第一部了
+
+顺便也求一下现在有哪里比较方便看安科吗
+

@@ -1918,3 +1918,15 @@ ur一星足够pvp用钓鱼战法了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Abomination  
+##### 3441#       发表于 2026-1-1 15:28
+
+不是seed的粉丝，不过这次有两艘四大字词的限定ur船，刚好够300抽就开抽了。
+
+还好180抽时出了坚牢船<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，前前后后出了4鸟2水星2强自，100保底歪了自护号，另外还歪了已满星的海盗，最后300抽换了一击必杀船。
+
+可以提前备战周年慶了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

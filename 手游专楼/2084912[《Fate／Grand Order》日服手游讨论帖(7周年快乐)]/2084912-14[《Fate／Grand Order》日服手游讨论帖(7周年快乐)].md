@@ -6486,3 +6486,62 @@ fgo的ml不是糊涂账吗，又是分身又是原作原配又是ml，这个绿�
 其存在方式与作为人理辅助装置的A·A相似，</blockquote>
 卡斯特2.6不就盒饭了，我们用的是AAcosplay，蘑菇还特地让AA和村正老爷子配搭。当时很多人破防的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 19885#       发表于 2026-1-1 14:57
+
+不是菌孝子谁给型月送钱啊，区别只有扭曲菌孝子和纯情菌孝子罢了，平常喷的菌孝子应该狭义的指纯情菌孝子<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19886#       发表于 2026-1-1 15:10
+
+ 本帖最后由 exiaexa 于 2026-1-1 15:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68960977&amp;ptid=2084912" target="_blank">七宝喵树 发表于 2026-1-1 13:56</a>
+
+一些漏油一直在试图把骂的都打成破防型菌孝子，可我看漏油也都是理客中型菌孝子啊
+
+装什么大尾巴狼最客观的 ...</blockquote>
+有没有一种可能，没当过菌孝子谁他妈从澄空一路讨论到屎绿色
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+当过孝子从来都不可悲，当过氪金母猪也不丢人。
+
+可悲的是当孝子的不觉得自己是孝子，当母猪的不觉得自己是母猪
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19887#       发表于 2026-1-1 15:16
+
+ 本帖最后由 exiaexa 于 2026-1-1 15:18 编辑 
+
+C呆和圣剑精这俩玩意儿不就是你菌鸽鸽代餐文学的代表作
+
+之前还莫名其妙占了个冠位剑的位置，现在正主都来了还有啥好说的
+
+估计是菌鸽鸽这次难得把理由写得合情合理，以至于某些皮套人爱好者只能无能狂怒了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 19888#       发表于 2026-1-1 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我是搞不懂月丑急什么，这游戏又不是真嗷的一声原地爆炸了，再也不更新了
+
+没有第三部也肯定有2.5，甚至哪怕没有2.5还能不更新活动吗
+
+再怎么滴游戏也至少还得运营个一两年，就非得元旦这几天把所有事讲清楚吗
+
+*****
+
+####  qixinno2  
+##### 19889#       发表于 2026-1-1 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在只想着怎么把60抽的钻挖出来 来几个强化本啊
+
