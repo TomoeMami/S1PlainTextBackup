@@ -22,3 +22,21 @@ kisslove终于有救了，这次直接用api了，改一下就能显示日文 ..
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔法师lain  
+##### 136#       发表于 2026-1-2 00:50
+
+ 本帖最后由 魔法师lain 于 2026-1-2 00:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962736&amp;ptid=2254551" target="_blank">萨尤克 发表于 2026-1-1 23:43</a>
+这个插件在仓库里叫啥？更新了下列表好像搜不到
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, 鹅球 v3.5.9 ...</blockquote>
+就叫kisslove，不过现在好像下架了。
+不过keiyoshi的github看到一小时前合并了这分支，已经快发布了吧。
+顺便说一下标题改日文后，kommiku的进度同步bgm貌似成功找到作品了，之前都找不到的。不过keiyoshi那里发布的估计还是罗马字标题<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+我看生肉主要就是用kisslove
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
