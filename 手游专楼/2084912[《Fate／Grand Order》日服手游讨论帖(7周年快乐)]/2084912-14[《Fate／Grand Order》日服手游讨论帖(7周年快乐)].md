@@ -7552,3 +7552,74 @@ fe那个猜拳玩法和狗屎一样的游戏性还有垃圾建模不是冲着蘑
 
 玩家都是傻逼吗为什么不买
 
+
+*****
+
+####  岸波白野  
+##### 19983#       发表于 2026-1-2 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965884&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 22:10</a>
+那你要不要揉揉眼睛再看看，我寻思我不是写了吗
+
+“只能说在同行里算好的”</blockquote>
+那我反过来问了你觉得这种明显有前作门槛的到多少才算对得起废狗带动呢，月姬r没有门槛的现在才30w呢，你觉得够吗，反正这些包括fsr都打折过了。如果月球主机已经可以独当一面了，为什么索尼大手能按着蘑菇头续废狗命谁都能说得这么煞有介事，fe在完全停下把一些要素留给奏三前，作为和mmv这个现在已经没几口气的日厂的尝试已经不错了，就这样
+
+*****
+
+####  exiaexa  
+##### 19984#       发表于 2026-1-2 22:47
+
+ 本帖最后由 exiaexa 于 2026-1-2 22:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965915&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-2 22:21</a>
+
+那我反过来问了你觉得这种明显有前作门槛的到多少才算对得起废狗带动呢，月姬r没有门槛的现在才30w呢，你 ...</blockquote>
+哎哟我真是服了，fe厨这么多年过去了，怎么还是这么喜欢出左右脑互搏的猪脑子
+
+是我没玩过fe还是你没玩过fe啊，extella那剧情跟fe和ccc有超过5w字的联系吗，再极端点可能还能往下缩
+
+你还不如说全怪樱井大妈呢，好歹人樱井光真参与了
+
+fsr和月姬都上了steam打折，你怎么不说extella和extella links是psv、ps4、switch、pc全上啊，是你没打过折吗
+
+更别说月姬都卖了30w，fe卖不出去那你不是更废物了吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有，我想要的是阿菌别惦记他那破民科了，去整点他能写的小巷子，谁想让FE去废狗你去问他啊，关我屁事儿。
+
+整的好像废狗欠了FE厨什么东西似的
+
+*****
+
+####  岸波白野  
+##### 19985#       发表于 2026-1-2 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965961&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 22:47</a>
+哎哟我真是服了，fe厨这么多年过去了，怎么还是这么喜欢出左右脑互搏的猪脑子
+
+是我没玩过fe还是你没玩过fe ...</blockquote>
+再补充一点点也不想和你废话了，fel甚至后来还发了手机版和几个周年纪念版八成和mmv后来掰了销量也就不统计了，fsr最新统计也是30w销量，我觉得销量差这块现在的统计数据不会差多远，剧情联系这个仁者见仁样本量只限我俩在这嘴也没意义，且这个系列除了link最后剧本给小太刀也崩了外多数都是游戏制作层面问题比较多的那种(dsd是猜拳玩法割草第一作是建模），在商业上就像你说的无论是ccc那种主从互动还是无印开始的一绑一，都是在包括ML和其他不少层面(甚至是月式民科幻）承前并起了废狗后的
+
+*****
+
+####  都谷捻柏  
+##### 19986#       发表于 2026-1-2 23:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">月姬（无印）+歌月+MB全部被蘑菇切割了，月R碰都懒得碰。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  khxooo  
+##### 19987#       发表于 2026-1-2 23:31
+
+水摩根120了， 没想到第二个120会是她。没事可干了。技能也刷玩了。QP和狗粮也不缺了。
+
+<img src="https://img.stage1st.com/forum/202601/02/233035bo5iyl444zo15zxl.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260102-232554-667.png</strong> (302.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-2 23:30 上传
+
