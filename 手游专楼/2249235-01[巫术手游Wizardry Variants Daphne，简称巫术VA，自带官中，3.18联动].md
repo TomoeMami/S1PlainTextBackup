@@ -104,3 +104,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 刚进第四章，去哪里挂机比较好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琉歌  
+##### 654#       发表于 2026-1-2 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963312&amp;ptid=2249235" target="_blank">toblkr 发表于 2026-1-2 09:06</a>
+
+刚进第四章，去哪里挂机比较好</blockquote>
+行程6吧，虽然现在砍了忍者出率。我之前在这里刷了银大剑、银枪、神乐月还有新的魔兽特效斧头（防具倒是没咋出）
+
