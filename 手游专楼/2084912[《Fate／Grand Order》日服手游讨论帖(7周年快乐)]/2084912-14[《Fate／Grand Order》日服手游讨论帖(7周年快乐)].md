@@ -7249,3 +7249,38 @@ FGO主要是没有后续游戏，所以更能让人幻想
 最难蹦的是没好好写阿尼姆斯菲尔家的理念矛盾，搞得这家子三个人全是神人，导致我现在看见天体科三个字就想笑
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 19958#       发表于 2026-1-2 11:28
+
+今年不发石头才有问题
+
+*****
+
+####  cenhr  
+##### 19959#       发表于 2026-1-2 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963700&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-2 11:28</a>
+
+今年不发石头才有问题</blockquote>
+发了30<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 19960#       发表于 2026-1-2 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963700&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-2 11:28</a>
+今年不发石头才有问题</blockquote>
+我对此了国服，起码新年还是一样
+
+
+*****
+
+####  zakki  
+##### 19961#       发表于 2026-1-2 13:04
+
+现在隔壁已经把樱井东出吹成2.1奏二爆杀蘑菇，然后又心系玩家，想继续下去fgo，但被蘑菇掀桌子没法写，郁郁不得志被蘑菇迫害的白月光了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
