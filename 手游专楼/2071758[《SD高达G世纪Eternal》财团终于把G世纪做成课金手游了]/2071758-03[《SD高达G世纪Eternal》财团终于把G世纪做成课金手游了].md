@@ -2030,3 +2030,11 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ドロロ  
+##### 3450#       发表于 2026-1-2 17:58
+
+气死我了，送的3000钻正好100抽必出给我出了哥沙扎比<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
