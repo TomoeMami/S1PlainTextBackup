@@ -2419,3 +2419,27 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  usodakedo  
+##### 2016#       发表于 2026-1-2 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68958113&amp;ptid=2210352" target="_blank">燃夜郎君 发表于 2025-12-31 21:26</a>
+
+网不好，这游戏单人体验现在怎么样？我去搜全是五六月的视频了。</blockquote>
+可以看看这个入坑介绍视频： [https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.bilibili.com/video/BV1XFvdBYEWq/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d)
+
+*****
+
+####  ohi.02  
+##### 2017#       发表于 2026-1-2 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965169&amp;ptid=2210352" target="_blank">无知道士 发表于 2026-1-2 17:59</a>
+昨晚单排深夜模式 ，7-2从2000分打上3000分，感觉上深4有望
+
+今天直接给我安排了一波5连跪，10个鬼佬没有一 ...</blockquote>
+七仙女带减仇恨是正确的，深五永夜七仙女我到现在都没过，跟以前永夜山羊差不多，过了一段时间大家才知道该带减仇恨了，但七仙女目前很少能见到带这个的队友
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
