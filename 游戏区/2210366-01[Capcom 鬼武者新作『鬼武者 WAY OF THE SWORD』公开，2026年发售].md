@@ -3173,3 +3173,11 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 (カプコンイラストレーター：片岩ゆり)
 <[img src="https://s2.loli.net/2026/01/01/f63sR8e1rCQyvid.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thez  
+##### 341#       发表于 2026-1-2 09:17
+
+连太空萝莉这种原创IP都给试玩了鬼武者也该给吧
+
