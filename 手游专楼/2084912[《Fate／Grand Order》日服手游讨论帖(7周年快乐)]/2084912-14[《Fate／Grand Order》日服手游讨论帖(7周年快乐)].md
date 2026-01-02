@@ -7324,3 +7324,62 @@ FGO主要是没有后续游戏，所以更能让人幻想
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">财富自由了想干啥就干啥啊，估计当时和sony签的合同也很宽松，类似富坚老贼那种
 
+
+*****
+
+####  DARKGRAY  
+##### 19966#       发表于 2026-1-2 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963690&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 11:26</a>
+
+我数了一下，主角队伍里
+
+藤丸立香：故事完整，完成从1.0开始的目标</blockquote>
+所长就是那种有后续的话这么处理未尝不可，后面就和大总统拉过来的所长重新建立感情呗。但没后续的话，那就把人救回来一起回去嘛，最后三人行也不坏啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 19967#       发表于 2026-1-2 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963690&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 11:26</a>
+
+我数了一下，主角队伍里
+
+藤丸立香：故事完整，完成从1.0开始的目标</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在菌类也没说清楚这个当前的泛人类史到底是不是二世这条线
+
+虽然大概率应该是，但是现在 nga 应该是认为所长直接没了
+
+*****
+
+####  御坂MKII  
+##### 19968#       发表于 2026-1-2 17:23
+
+而且之前新納一哉推特说因为是 fgo 十周年所以大晦日 tv 要尊重主角不会有 fer 相关信息的时候，就有 fe 粉丝在底下黑泥说
+
+FGOが主役で, TMはもう10年くらい前からずっとこうなんです, 他の作品のファンである私たちも、まるでおまけファンみたいな扱いを受けています
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19969#       发表于 2026-1-2 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68964937&amp;ptid=2084912" target="_blank">御坂MKII 发表于 2026-1-2 16:58</a>
+
+现在菌类也没说清楚这个当前的泛人类史到底是不是二世这条线
+
+虽然大概率应该是，但是现在 nga 应该是认为 ...</blockquote>
+这种回不回来一拍脑门儿就解决的事，菌鸽鸽又不是第一次干了，隔壁贷款上瘾罢了
+
+别说所长，指不定情人节希翁直接返场
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shoel  
+##### 19970#       发表于 2026-1-2 19:24
+
+坏了，FELE不会真是蘑菇黑化的源头吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
