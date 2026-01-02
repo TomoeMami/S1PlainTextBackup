@@ -7496,3 +7496,59 @@ extella link双版本首周12w
 作为参考，纯新作，前期不被看好，嫌弃动作僵硬画质不行的fsr，现在怕是过了50w了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 19979#       发表于 2026-1-2 22:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fe那个猜拳玩法和狗屎一样的游戏性还有垃圾建模不是冲着蘑菇剧本真玩不下去吧
+
+*****
+
+####  岸波白野  
+##### 19980#       发表于 2026-1-2 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965824&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 21:51</a>
+关手游啥事儿，FE就是标准的菌鸽鸽喜欢但是卖不出去
+
+无印就不说了，13.5w的但是纯诈骗作</blockquote>
+那你要不看看dsd当年那些二三线jrpg普遍销量/以及这个阶段型月首发包括本阵的pc gal都在10～20w这个区间蹦，拿被蒸汽全球化/废狗撑起来的月球市场说事可以更硬气点，但希望还是对之前同人社团gal会社以及二线日呆能做到的市场极限有点数<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19981#       发表于 2026-1-2 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965865&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-1-2 22:02</a>
+
+fe那个猜拳玩法和狗屎一样的游戏性还有垃圾建模不是冲着蘑菇剧本真玩不下去吧 ...</blockquote>
+讲道理，游戏性也说不上有多大影响，fe无印剧本也是一点意思都没有，
+
+不要被铁鱼那个只存在脑子里的完美剧本给骗了
+
+或者说fe系列唯一有价值的就只有阿菌xp超级放出的ccc，充满了那种老子就是写我喜欢的，你们爱看不看的作者性，
+
+以至于他到了fgo都忘不掉天天想法设法塞给你陪他一起吃
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19982#       发表于 2026-1-2 22:10
+
+ 本帖最后由 exiaexa 于 2026-1-2 22:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965879&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-2 22:09</a>
+
+那你要不看看dsd当年那些二三线jrpg普遍销量/以及这个阶段型月首发包括本阵的pc gal都在10～20w这个区间 ...</blockquote>
+那你要不要去洗洗眼睛，我寻思我不是写了吗
+
+“只能说在同行里算好的”
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且fgo15年发，16~17年开始爆
+
+按你这说法，extella和extella link早该卖爆了
+
+玩家都是傻逼吗为什么不买
+
