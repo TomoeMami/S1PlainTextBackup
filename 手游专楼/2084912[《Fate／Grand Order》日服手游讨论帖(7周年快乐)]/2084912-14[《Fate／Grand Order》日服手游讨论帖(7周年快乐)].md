@@ -7284,3 +7284,43 @@ FGO主要是没有后续游戏，所以更能让人幻想
 
 现在隔壁已经把樱井东出吹成2.1奏二爆杀蘑菇，然后又心系玩家，想继续下去fgo，但被蘑菇掀桌子没法写，郁郁不得志被蘑菇迫害的白月光了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 19962#       发表于 2026-1-2 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963690&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 11:26</a>
+
+我数了一下，主角队伍里
+
+藤丸立香：故事完整，完成从1.0开始的目标</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看日记吗！ 老所长已经不是尝试洗了下 而是彻底洗刷刷了 ！
+
+*****
+
+####  exiaexa  
+##### 19963#       发表于 2026-1-2 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68964416&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-2 14:43</a>
+
+没看日记吗！ 老所长已经不是尝试洗了下 而是彻底洗刷刷了 ！</blockquote>
+看了啊，所以我才说反而显得更神人了
+
+充满了阿菌那种教你做好人的生草感
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  想去环球影城  
+##### 19964#       发表于 2026-1-2 15:03
+
+怎么会有人放着一个“”只要对他说喜欢他就会哐哐砸钱氪金”的摇钱树不要的
+
+*****
+
+####  希望之花  
+##### 19965#       发表于 2026-1-2 15:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">财富自由了想干啥就干啥啊，估计当时和sony签的合同也很宽松，类似富坚老贼那种
+
