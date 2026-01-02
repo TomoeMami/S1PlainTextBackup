@@ -2443,3 +2443,20 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  thealoneer  
+##### 2018#       发表于 2026-1-2 21:51
+
+大空洞出来也快一个月了，到现在野排九成还是不认路的。好不容易有个知道该干嘛的吧，第一天勉强找齐水晶升到8-9级，本以为这局有戏，夜里天没亮就给塔标上了……标主城是不可能跟的，宁可在塔门口挂机都不带跟的，好像全世界就他知道塔里有boss一样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skgaminger1988  
+##### 2019#       发表于 2026-1-2 23:10
+
+大空洞路线太多了，野排基本没法打，左拐右拐的你标个点野人根本跟不上
+
+—— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
