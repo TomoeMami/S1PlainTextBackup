@@ -7063,3 +7063,44 @@ NGA孝子自顾自觉得一定会有3.0是属于魔怔了，这几年蘑菇写�
 这一个2.0终章让多少东西翻身了？已知v3 ff14 看到还有人说海猫 还有啥（</blockquote>
 海猫不可能翻身，只能说龙7是第一个严重伤害我感情的作者，那种痛苦多少年了都记忆深刻，反之菌类从铁鱼开始整的一系列活看完我只想发笑，比烂都比不过别人
 
+
+*****
+
+####  alucardcz  
+##### 19942#       发表于 2026-1-2 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962885&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-2 00:39</a>
+
+海猫不可能翻身，只能说龙7是第一个严重伤害我感情的作者，那种痛苦多少年了都记忆深刻，反之菌类从铁鱼 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们萌新海猫是一口气打完的 觉得还行  最后甚至还有点感动（
+
+*****
+
+####  الطائر  
+##### 19943#       发表于 2026-1-2 01:36
+
+其实寒蝉鸣泣之时有手游的，还有海猫和命运石之门连动，2020年开服，2025年关服。三个原创女主角，其中之一CV是高桥李依。但很多人关服以后才知道这游戏。
+
+B站有玩家录了剧情（[https://www.bilibili.com/video/BV1oA411n71n/](https://www.bilibili.com/video/BV1oA411n71n/)）。结局令人悲伤，但总之回避了失忆烂活。
+
+*****
+
+####  DARKGRAY  
+##### 19944#       发表于 2026-1-2 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68962730&amp;ptid=2084912" target="_blank">被子十三 发表于 2026-1-1 23:40</a>
+
+我也对这个结局很不满意，不然就不会期待假药了
+
+但我觉得最大的问题是这个结局NE感也太重了，不完全燃烧的 ...</blockquote>
+所以其实也不怪很多人觉得真会有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 19945#       发表于 2026-1-2 08:02
+
+你游这几年就喜欢搞那种藏三破满破图的烂活
+
+一开始都以为会藏个大的结果都是逗你玩呢
+
