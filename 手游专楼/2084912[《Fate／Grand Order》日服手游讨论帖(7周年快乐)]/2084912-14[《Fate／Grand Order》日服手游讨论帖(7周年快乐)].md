@@ -7439,3 +7439,60 @@ fe这逼民科作
 
 2026-1-2 20:50 上传
 
+
+*****
+
+####  岸波白野  
+##### 19975#       发表于 2026-1-2 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965452&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 19:28</a>
+fe这逼民科作
+
+连续出了4作+动画+漫画+1个重置+fgo塞得到处都是，这得多不要脸的粉丝才能说这话
+
+搞的像fe卖 ...</blockquote>
+主机游戏投入产出比就是不如手游你能咋滴，先不说废狗这套能跑通最直接的来源就是fe,这废狗赚钱的利剑能斩死一切那漫区那种还在追忆老空境月姬侘寂菌的早灭绝了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19976#       发表于 2026-1-2 21:25
+
+反正我这次1350石冠位呆只能3宝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 19977#       发表于 2026-1-2 21:32
+
+ 本帖最后由 岸浪白野 于 2026-1-2 21:36 编辑 
+
+主机游戏赚钱这块突然发病要去找抽卡手游比收益首先做梦都不敢想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其次 反正什么都吃也对挑吃的无关心
+
+*****
+
+####  exiaexa  
+##### 19978#       发表于 2026-1-2 21:51
+
+ 本帖最后由 exiaexa 于 2026-1-2 21:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965717&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-2 21:08</a>
+
+主机游戏投入产出比就是不如手游你能咋滴，先不说废狗这套能跑通最直接的来源就是fe,这废狗赚钱的利剑能 ...</blockquote>
+关手游啥事儿，FE就是标准的菌鸽鸽喜欢但是卖不出去
+
+无印就不说了纯废物
+
+psp生涯超7000w的销量，ccc首发卖了11w，后续再磨一磨估计就15w
+
+extella双版本20w
+
+extella link双版本首周12w
+
+我都不敢想要是没有fgo，这系列还能低到什么程度
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+作为参考，纯新作，前期不被看好，嫌弃动作僵硬画质不行的fsr，现在怕是过了50w了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
