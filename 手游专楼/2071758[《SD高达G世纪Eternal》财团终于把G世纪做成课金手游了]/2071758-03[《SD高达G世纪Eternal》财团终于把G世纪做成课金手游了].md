@@ -1946,3 +1946,19 @@ ur一星足够pvp用钓鱼战法了
 
 300抽掏空家底换来1破异灵，0破命运，1破密涅瓦，1只sf，1黄胖，1山楂饼，2常驻大词条船，换了女妖，不亏，准备备战周年庆
 
+
+*****
+
+####  AminGly  
+##### 3444#       发表于 2026-1-2 09:59
+
+[https://www.bilibili.com/video/B ... fe6dea85e1d8675a4b8](https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video_card.click&amp;vd_source=3e37fcf29ebd5fe6dea85e1d8675a4b8)
+
+新的bug
+
+简单来说就是，原本这3人驾驶水星魔女系列的机体，那么
+
+这3人将会获得一次援护攻击，援护防御，再行动的机会。
+
+但是现在变成了，这3人不管驾驶哪个系列的机体，只要队伍中包含水星魔女的机体。
+
