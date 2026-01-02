@@ -2460,3 +2460,25 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 
 —— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  serj005  
+##### 2020#       发表于 2026-1-2 23:28
+
+大空洞上下层现在也很多人分不清，右下城还有不知道怎么去上层的，今天有个修女一直显示在右下角但我们主城都逛了一圈了也没遇到他，后面发现是迷路到下层在乱转，找不到上来的路。要是什么时候能把人物图标加个当前位于上下层的区分设计就好了。
+
+还有一把是右上角开局全队下矿，结果队里的人偶妹在矿坑里迷路了，一直迷路到第一天缩圈都没走出来，4级进矿3级死出来。
+
+*****
+
+####  ネロ  
+##### 2021#       发表于 2026-1-3 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965327&amp;ptid=2210352" target="_blank">Arinori 发表于 2026-1-2 18:51</a>
+
+不好意思没看清(T_T)
+
+在身下标点也是按X键</blockquote>
+感谢感谢<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
