@@ -2366,3 +2366,29 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 
 鹰眼全程射箭包里藏了一把泡泡盾尸山血海<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arinori  
+##### 2012#       发表于 2026-1-2 18:08
+
+<blockquote>ネロ 发表于 2026-1-2 17:33
+萌新咨询一下各位大佬
+
+野排时遇到的带头大哥这种标是怎么标出来的？
+
+我是键鼠人 ...</blockquote>
+地图上按鼠标中键可以标点；身上换下来要给队友的装备也可以按X键标点
+
+*****
+
+####  ネロ  
+##### 2013#       发表于 2026-1-2 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965207&amp;ptid=2210352" target="_blank">Arinori 发表于 2026-1-2 18:08</a>
+
+地图上按鼠标中键可以标点；身上换下来要给队友的装备也可以按X键标点</blockquote>
+这两个我都知道
+
+我说的是图上这种标在地上的图标（角色头像），感觉像脚印的功能一样挺方便路痴队友找路口，但我不知道怎么标<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
