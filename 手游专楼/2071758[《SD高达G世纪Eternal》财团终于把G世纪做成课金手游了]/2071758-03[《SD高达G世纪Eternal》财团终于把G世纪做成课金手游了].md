@@ -1962,3 +1962,35 @@ ur一星足够pvp用钓鱼战法了
 
 但是现在变成了，这3人不管驾驶哪个系列的机体，只要队伍中包含水星魔女的机体。
 
+
+*****
+
+####  シャル  
+##### 3445#         楼主| 发表于 2026-1-2 11:45
+
+200抽，母舰一个没
+
+强自倒满破了，命运1个，京宝梵1个，铁奥1个
+
+
+*****
+
+####  シャル  
+##### 3446#         楼主| 发表于 2026-1-2 11:51
+
+<blockquote>ドロロ 发表于 2025-12-31 23:47
+送坦克专用sp了，仔细一看僧侣刚坦克ssp后居然有6射程</blockquote>
+不要换急着
+
+00高达有这台李疯子坦克
+
+等等再说
+
+<img src="https://img.stage1st.com/forum/202601/02/115125s4yb6t2it46ztpsm.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="599" zoomfile="https://img.stage1st.com/forum/202601/02/115125s4yb6t2it46ztpsm.jpeg">
+
+<strong>IMG_4306.jpeg</strong> (120.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-2 11:51 上传
+
