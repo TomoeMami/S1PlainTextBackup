@@ -7145,3 +7145,38 @@ B站有玩家录了剧情（[https://www.bilibili.com/video/BV1oA411n71n/](https
 
 更何况去年周年开始，连出了泳装，万圣，新选组三个完结意味很重的活动，又是资源大放送，又是圣晶石大放送，还有全卡池up，这不都是妥妥的完结信号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 19950#       发表于 2026-1-2 09:44
+
+想了想同为A爹企划的魔纪也是同样的情况，主线第二部结束，在一次常规的小黑剧情活动后突然宣布关服，并开启了圆哆啦的预约。
+现在FGO就是这情况，既不宣布关服，也不宣布新的活动，也没有新的“转生”。况且FGO的带动效应要比前者要强，前者就等着回天给自己赚波大的然后“下葬”。FGO这个牌子应该还会有新作，但可能没有蘑菇了就是
+
+*****
+
+####  cenhr  
+##### 19951#       发表于 2026-1-2 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963398&amp;ptid=2084912" target="_blank">Blackson 发表于 2026-1-2 09:44</a>
+
+想了想同为A爹企划的魔纪也是同样的情况，主线第二部结束，在一次常规的小黑剧情活动后突然宣布关服，并开 ...</blockquote>
+魔纪不同，因为之前说过会出圆哆啦，所以玩家基本上都是有心理准备，毕竟没有可能两个类似的游戏打对台。
+
+FGO主要是没有后续游戏，所以更能让人幻想
+
+*****
+
+####  kiralzb  
+##### 19952#       发表于 2026-1-2 10:17
+
+人们从一个极端到另一个极端的态度也是这次的看点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 19953#       发表于 2026-1-2 10:48
+
+300石头3宝冠呆，是不是快倒闭所以调概率了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
