@@ -7180,3 +7180,72 @@ FGO主要是没有后续游戏，所以更能让人幻想
 
 300石头3宝冠呆，是不是快倒闭所以调概率了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 19954#       发表于 2026-1-2 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963569&amp;ptid=2084912" target="_blank">cckuku 发表于 2026-1-2 10:48</a>
+
+300石头3宝冠呆，是不是快倒闭所以调概率了啊</blockquote>
+醒醒，600石一个五星从者也没有的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 19955#       发表于 2026-1-2 11:15
+
+草，感觉终章的meta味越来越重了，31号24点前的切除玛丽丝的藤丸走向了失去记忆的日常结局，但在31号24点后，坚持不切除的藤丸（玩家），走向了玛丽丝更新宇宙后的空壳世界，也就是只有外在只是还在运营的fgo，空壳人新年祝福马修<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 19956#       发表于 2026-1-2 11:26
+
+80连1宝，马修礼装满破
+
+还剩600多石头
+
+*****
+
+####  exiaexa  
+##### 19957#       发表于 2026-1-2 11:26
+
+我数了一下，主角队伍里
+
+藤丸立香：故事完整，完成从1.0开始的目标
+
+紫发女同事：变成普通雇员，完成剧情中间突然冒出来的变成普通少女的目标
+
+胖所长为首的新加勒底staff：全员捞到立绘，结局圆满
+
+老福：故事全部讲完，铺垫回收，结局圆满
+
+芙芙：故事全部讲完，铺垫回收，结局圆满
+
+戴比特：故事线完整，铺垫回收，结局圆满
+
+以下是不完整的
+
+所罗门一家子：逼确实是装到了，但是人没救回来，
+
+小达芬奇：只能用未来可期来形容，留白了
+
+所长一家子：没救回来，但是成功处理掉了烂摊子，只能算Normal End
+
+紫苑和尼莫：这俩就是为了送而送的，你们死不死好像没什么区别，但是人自己挺满意的，那就给个happy end吧
+
+看得出来问题就出在所罗门和所长这俩神人家庭上
+
+所罗门线的问题是：
+
+你不救医生也不是不可以，但你得好好塑造雷夫啊，每章节都给点笔墨，多点塑造、多写写转变起码不会这么微妙，现在谐化成盖提亚beam发射器了；
+
+所长家的问题是：
+
+你狂给所长叠buff，又是美强还惨，又是红裤袜，上一个buff给这么强的还是梣，问题是你摩根也不是主线角色啊，没人指望能把梣救回来，主线角色能是一个待遇吗，我只能理解为蘑菇的厌姐癖又发动了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最难蹦的是没好好写阿尼姆斯菲尔家的理念矛盾，搞得这家子三个人全是神人，导致我现在看见天体科三个字就想笑
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
