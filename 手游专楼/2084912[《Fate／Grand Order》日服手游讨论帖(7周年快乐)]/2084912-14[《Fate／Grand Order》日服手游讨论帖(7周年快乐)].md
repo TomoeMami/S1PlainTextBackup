@@ -7383,3 +7383,59 @@ FGOが主役で, TMはもう10年くらい前からずっとこうなんです, 
 
 坏了，FELE不会真是蘑菇黑化的源头吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 19971#       发表于 2026-1-2 19:28
+
+ 本帖最后由 exiaexa 于 2026-1-2 19:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965031&amp;ptid=2084912" target="_blank">御坂MKII 发表于 2026-1-2 17:23</a>
+
+而且之前新納一哉推特说因为是 fgo 十周年所以大晦日 tv 要尊重主角不会有 fer 相关信息的时候，就有 fe 粉 ...</blockquote>
+fe这逼民科作
+
+连续出了4作+动画+漫画+1个重置+fgo塞得到处都是，这得多不要脸的粉丝才能说这话
+
+搞的像fe卖得多好似的，某个小说的女主角已经是彻底变成FGO的形状了都没说啥
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 19972#       发表于 2026-1-2 19:43
+
+<blockquote>exiaexa 发表于 2026-1-2 19:28
+fe这逼民科作
+
+连续出了4作+动画+漫画+1个重置+fgo塞得到处都是，这得多不要脸的粉丝才能说这话
+
+搞的像fe卖 ...</blockquote>
+我们从FGO知道的设定都多过该女主在自己作品展现出的。算是养父比亲爹亲？
+
+*****
+
+####  小妻水亚美  
+##### 19973#       发表于 2026-1-2 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68964649&amp;ptid=2084912" target="_blank">希望之花 发表于 2026-1-2 15:43</a>
+财富自由了想干啥就干啥啊，估计当时和sony签的合同也很宽松，类似富坚老贼那种 ...</blockquote>
+估计当初索尼都没想到 日本氪金母猪这么多，现在肯定后悔
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 19974#       发表于 2026-1-2 20:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太酷炫了 至今零五星
+
+<img src="https://img.stage1st.com/forum/202601/02/205046ker66c02wk6gpknd.png" referrerpolicy="no-referrer">
+
+<strong>PGO)IMKD1SSK(G{3$G{$RR2.png</strong> (197.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-2 20:50 上传
+
