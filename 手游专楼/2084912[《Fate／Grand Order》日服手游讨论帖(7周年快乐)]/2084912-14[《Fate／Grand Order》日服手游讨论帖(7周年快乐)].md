@@ -7623,3 +7623,45 @@ fsr和月姬都上了steam打折，你怎么不说extella和extella links是psv�
 
 2026-1-2 23:30 上传
 
+
+*****
+
+####  alucardcz  
+##### 19988#       发表于 2026-1-2 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我本来以为年末特番还能公布个月姬上pc外加里篇 没想到却变成了纯粹的追悼会
+
+*****
+
+####  洛克萨斯  
+##### 19989#       发表于 2026-1-2 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965881&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-2 22:10</a>
+
+讲道理，游戏性也说不上有多大影响，fe无印剧本也是一点意思都没有，
+
+不要被铁鱼那个只存在脑子里的完美 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fe和ccc算剧本附带的小游戏，fsr才是正经游戏，fex给光荣做不会做的那么垃圾的，说实话整个fe系列论游玩体验简直全是垃圾
+
+*****
+
+####  qixinno2  
+##### 19990#       发表于 2026-1-3 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能把我的时间和金钱都回到这时候
+
+<img src="https://img.stage1st.com/forum/202601/03/000445ufsszm7hl0oomy4h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-3 00:04 上传
+
+*****
+
+####  kiralzb  
+##### 19991#       发表于 2026-1-3 01:06
+
+换的罐子全部用完，苹果又没了，冠呆也没10绊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
