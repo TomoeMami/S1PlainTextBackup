@@ -2005,3 +2005,16 @@ ur一星足够pvp用钓鱼战法了
 https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video_card.click&amp;vd_sourc ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">狸猫和她的很凶的前辈们
 
+
+*****
+
+####  ドロロ  
+##### 3448#       发表于 2026-1-2 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963785&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-2 11:51</a>
+
+不要换急着
+
+00高达有这台李疯子坦克</blockquote>
+哭惹<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
