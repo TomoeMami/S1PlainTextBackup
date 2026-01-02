@@ -7104,3 +7104,44 @@ B站有玩家录了剧情（[https://www.bilibili.com/video/BV1oA411n71n/](https
 
 一开始都以为会藏个大的结果都是逗你玩呢
 
+
+*****
+
+####  qixinno2  
+##### 19946#       发表于 2026-1-2 08:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反正锁三破我印象里除了奥伯龙有意义外 其他的好像屁用没有除了就这还是就这
+
+*****
+
+####  kiralzb  
+##### 19947#       发表于 2026-1-2 09:17
+
+一早就看到贴吧里发的到X上炎上，怎么日本人不觉得结局有问题，X肯定看不到得到匿名版
+
+这套路发展我总觉得哪里见过<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闪亮的彗星  
+##### 19948#       发表于 2026-1-2 09:25
+
+笑死
+
+<img src="https://img.stage1st.com/forum/202601/02/092548hnlzbxh28dxehdxl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1063.jpeg</strong> (71.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-2 09:25 上传
+
+*****
+
+####  zakki  
+##### 19949#       发表于 2026-1-2 09:30
+
+所以说之前无论是坚信索尼大手按头蘑菇，还是认为有3.0，又或者是最近坚持有真结局，都是一种集体幻想，对毫无根据的线索深信不疑，27号前，谁敢说fgo完结只会被喷上天。所以现在由蘑菇打破这个集体幻想，造成的破防才会这么激烈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更何况去年周年开始，连出了泳装，万圣，新选组三个完结意味很重的活动，又是资源大放送，又是圣晶石大放送，还有全卡池up，这不都是妥妥的完结信号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
