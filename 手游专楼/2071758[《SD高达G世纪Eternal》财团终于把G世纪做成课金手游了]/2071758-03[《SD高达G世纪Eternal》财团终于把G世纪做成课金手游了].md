@@ -2018,3 +2018,15 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 00高达有这台李疯子坦克</blockquote>
 哭惹<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3449#       发表于 2026-1-2 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963448&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-1-2 09:59</a>
+https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video_card.click&amp;vd_sourc ...</blockquote>
+这种bug肯定会改的。。。就是修bug多给点石头
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
