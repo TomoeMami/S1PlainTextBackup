@@ -4485,3 +4485,20 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 说起来是明晚开播是吧，还要从上次的第一话播么还是第0话？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚历山大帝  
+##### 436#       发表于 2026-1-2 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68835513&amp;ptid=2086574" target="_blank">hkguty 发表于 2025-12-6 23:50</a>
+
+有没有追了原著的说说是什么水平？比得上无头吗？</blockquote>
+设定上一个比一个离谱，
+
+实际动起手来表现力可能不如我。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+以小说水平而论也不如我。
+
