@@ -769,3 +769,33 @@ flowgrow内战
 
 难道你就是被命运选中的miko的正统后继者！？
 
+
+*****
+
+####  holofan  
+##### 11385#       发表于 2026-1-2 11:15
+
+anti：打倒sakuramiko 打倒cover！
+
+<img src="https://img.stage1st.com/forum/202601/02/111431xljjixafguc5rl3o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-2 11:14 上传
+
+anti：打不倒告辞
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+引用miko直播名言之一：愚蠢的人类
+
+*****
+
+####  holofan  
+##### 11386#       发表于 2026-1-2 18:08
+
+这两个月网上成千上万的anti，竟然在miko现在主动寻求推特互动的时候没有任何一个人有勇气敢在hashtag下当面凸的
+
+毕竟真的怕被起诉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
