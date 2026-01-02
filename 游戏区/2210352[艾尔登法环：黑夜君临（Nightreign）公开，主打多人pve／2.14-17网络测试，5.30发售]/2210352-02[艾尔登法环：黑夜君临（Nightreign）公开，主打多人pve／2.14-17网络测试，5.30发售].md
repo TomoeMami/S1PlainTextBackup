@@ -2482,3 +2482,28 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 在身下标点也是按X键</blockquote>
 感谢感谢<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhonghao  
+##### 2022#       发表于 2026-1-3 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965792&amp;ptid=2210352" target="_blank">ohi.02 发表于 2026-1-2 21:36</a>
+
+七仙女带减仇恨是正确的，深五永夜七仙女我到现在都没过，跟以前永夜山羊差不多，过了一段时间大家才知道 ...</blockquote>
+DLC前打王山羊还是能凑一队3个减仇恨的
+
+DLC后我就基本没见过这个词条了，包括山羊局，但是感觉王的概率也低了很多
+
+*****
+
+####  ohi.02  
+##### 2023#       发表于 2026-1-3 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966081&amp;ptid=2210352" target="_blank">serj005 发表于 2026-1-2 23:28</a>
+大空洞上下层现在也很多人分不清，右下城还有不知道怎么去上层的，今天有个修女一直显示在右下角但我们主城 ...</blockquote>
+这还好吧，我玩到最惨的一局是2级带着几万魂跟队友下矿，干掉结晶人准备开溜的时候转身踩了冰霜给秒了，复活回去捡魂的时候突然被山羊给诅咒了，进了洞又正好赶上缩圈，最后没能跑出来，缩完圈只有一级还是半管血，口袋空空交不上钱<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+提醒大家大空洞下矿的话一定要把周围的虫子先清掉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
