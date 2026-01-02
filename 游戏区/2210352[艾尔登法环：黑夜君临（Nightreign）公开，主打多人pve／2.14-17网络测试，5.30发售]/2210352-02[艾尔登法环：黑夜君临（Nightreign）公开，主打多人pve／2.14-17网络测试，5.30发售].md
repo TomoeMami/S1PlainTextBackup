@@ -2392,3 +2392,30 @@ ps5会员一直开着了，但是朋友都在steam玩<img src="https://static.st
 
 我说的是图上这种标在地上的图标（角色头像），感觉像脚印的功能一样挺方便路痴队友找路口，但我不知道怎么标<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arinori  
+##### 2014#       发表于 2026-1-2 18:51
+
+<blockquote>ネロ 发表于 2026-1-2 18:31
+这两个我都知道
+
+我说的是图上这种标在地上的图标（角色头像），感觉像脚印的功能一样挺方便路痴队友找路 ...</blockquote>
+不好意思没看清(T_T)
+
+在身下标点也是按X键
+
+*****
+
+####  nightmare902015  
+##### 2015#       发表于 2026-1-2 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965169&amp;ptid=2210352" target="_blank">无知道士 发表于 2026-1-2 17:59</a>
+昨晚单排深夜模式 ，7-2从2000分打上3000分，感觉上深4有望
+
+今天直接给我安排了一波5连跪，10个鬼佬没有一 ...</blockquote>
+没事上深4以后不会大空洞是一定掉分的，至少要学指挥大空洞。在深3就当沉淀一下了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
