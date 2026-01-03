@@ -2046,3 +2046,11 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 
 演唱会lv20过了，一个感想，异灵是真不行，pve毒药<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3452#       发表于 2026-1-3 15:29
+
+机制左右脑互搏就算了，数值也没亮点，最后就这样了
+
