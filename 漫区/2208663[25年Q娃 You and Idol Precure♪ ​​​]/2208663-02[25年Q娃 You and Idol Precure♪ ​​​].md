@@ -147,3 +147,42 @@ Kiss很受小孩子喜欢， 小孩子更喜欢地雷系吗<img src="https://sta
 今年もよろしくどうぞ
 <[img src="https://s2.loli.net/2026/01/01/9ruA27m4FcETWDH.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1521#         楼主| 发表于 2026-1-1 14:06
+
+[https://x.com/i/status/2006380584671797418](https://x.com/i/status/2006380584671797418)
+
+✨2026年✨
+
+今年もよろしくお願いします!!
+<[img src="https://s2.loli.net/2026/01/01/hWyciLP1rKxoEUN.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2006384920797835604](https://x.com/i/status/2006384920797835604)
+
+今年もよろしくどうぞ
+<[img src="https://s2.loli.net/2026/01/01/9ruA27m4FcETWDH.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  咲良うた  
+##### 1522#       发表于 2026-1-3 11:07
+
+第46話　今年もよろしくアイドルプリキュア！
+
+脚本：金杉弘子
+
+演出：鬼頭和矢
+
+作画監督：古賀光、北島勇樹、江原小百合
+
+美術：鈴木翔太
+
+ハートの木がある丘で初日の出を見たあと、田中の家に集まるうた（CV.松岡美里）たち。ピカリーネから連絡が入り、キラキランドはクラクランドの攻撃に耐えていること、何かあったらすぐにアイドルプリキュアが助けに行くことを伝え合うと、田中の提案でアイドルプリキュアの姿で新年会をすることになった。すると、待っていたかのようにリポーターとはなみぃちゃんがあらわれ──。田中の家ででお正月を楽しんだ帰り道、うたは新しいマフラーが響カイトからのクリスマスプレゼントだと知ったなな（CV.髙橋ミナミ）とこころ（CV.高森奈津美）に問い詰められ、「夜通しで話を聞かないと」と、みんなで喫茶グリッターにお泊りすることに──。
+<img src="https://files.catbox.moe/mcar5v.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/42u7p1.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/pab3iw.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/v8k5ql.jpg" referrerpolicy="no-referrer">
+
