@@ -8248,3 +8248,48 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 哪怕蘑菇好几年前就说过第2部就会完结自己不想再写下去了这 ...</blockquote>
 别说前几年了，在隔壁31号前只要说完结都会被堵嘴喷死，所有完结迹象和访谈全盘不信，也不知道哪里来的自信，真是被集体幻想出来的索尼大手唬住了，要我说fgo现在才完结已经是索尼大手发力后的结果了，奏章和.5这种一眼拖剧情的章节要是都去了，fgo估计3年前就完结了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 20041#       发表于 2026-1-3 20:33
+
+ 本帖最后由 rollingusagi 于 2026-1-3 20:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969205&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-3 19:00</a>
+
+所以为什么这次YLS风评会好起来，因为他真的在车站那里站了一天等到车站圣地巡礼的玩家。 ...</blockquote>
+我发现老钟人对高层人物下基层去和粉丝互动这事巨有好感，隔壁木谷高明也是，明明之前风评差的要死，就因为卸任后亲自去live现场当staff卖场贩还有和粉丝合影，然后就风评反转了，还有小高也是类似的情况
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  destroyworlder  
+##### 20042#       发表于 2026-1-3 21:10
+
+<blockquote>alucardcz 发表于 2026-1-2 23:43
+说起来我本来以为年末特番还能公布个月姬上pc外加里篇 没想到却变成了纯粹的追悼会 ...</blockquote>
+蘑菇追悼会是吧(*^◯^*)
+
+*****
+
+####  TNN  
+##### 20043#       发表于 2026-1-3 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68961852&amp;ptid=2084912" target="_blank">initium 发表于 2026-1-1 18:51</a>
+
+马修医生达芬奇什么的先不提，还是先想想怎么把黑贞从哪个废弃孔里捞回来吧 ...</blockquote>
+菌类<img src="https://static.stage1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20044#       发表于 2026-1-3 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969620&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-3 20:27</a>
+
+别说前几年了，在隔壁31号前只要说完结都会被堵嘴喷死，所有完结迹象和访谈全盘不信，也不知道哪里来的自 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依我看蘑菇这懒狗大概率第1部结束后就不想写了....本身就是不情不愿被人求爷爷告奶奶才来写这手游剧情的
+
+访谈里可是说了非常羡慕小高这狡猾的家伙还能用V3这样的想法来亲手结束自己的作品
+
