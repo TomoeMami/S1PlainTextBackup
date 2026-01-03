@@ -8210,3 +8210,41 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 动画开播啊</blockquote>
 按理说去年做了的话不是和打过的人没啥关系么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 20037#       发表于 2026-1-3 18:53
+
+成田转推还说自己还不知道这次fsf活动复刻，虽然不是他第一次阴阳这边，但可能也是螺旋月角川索尼a爹其实一直是以一种无可名状的状态搅拌在一起的一种写照罢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20038#       发表于 2026-1-3 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967368&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-3 13:19</a>
+
+看节目中的模样，更多是贤者模式了。
+
+不如说整个TM团体的Last都是贤者模式，所以玩家的声音全部都不想听 ...</blockquote>
+所以为什么这次YLS风评会好起来，因为他真的在车站那里站了一天等到车站圣地巡礼的玩家。
+
+*****
+
+####  v22325  
+##### 20039#       发表于 2026-1-3 19:03
+
+整个终章刷了一堆绊石一个五星都没出……明年希望运气好点
+
+*****
+
+####  zakki  
+##### 20040#       发表于 2026-1-3 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968263&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 16:20</a>
+都是自己一厢情愿的想法...觉得肯定会有大的
+
+哪怕蘑菇好几年前就说过第2部就会完结自己不想再写下去了这 ...</blockquote>
+别说前几年了，在隔壁31号前只要说完结都会被堵嘴喷死，所有完结迹象和访谈全盘不信，也不知道哪里来的自信，真是被集体幻想出来的索尼大手唬住了，要我说fgo现在才完结已经是索尼大手发力后的结果了，奏章和.5这种一眼拖剧情的章节要是都去了，fgo估计3年前就完结了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
