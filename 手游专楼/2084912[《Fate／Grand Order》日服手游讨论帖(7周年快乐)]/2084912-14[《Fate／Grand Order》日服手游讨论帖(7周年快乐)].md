@@ -8112,3 +8112,51 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 是不是觉得自己的工作好像也没那么蛋疼
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 20028#       发表于 2026-1-3 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968389&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-3 16:46</a>
+
+我经常跟朋友说，如果你工作不开心了就看看菌鸽鸽
+
+50多岁的人了，</blockquote>
+你给我蘑菇的收入我也痛苦地快乐着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20029#       发表于 2026-1-3 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968397&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-3 16:48</a>
+
+你给我蘑菇的收入我也痛苦地快乐着</blockquote>
+上面举例的几个人都不缺钱啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20030#       发表于 2026-1-3 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968402&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-3 16:50</a>
+
+上面举例的几个人都不缺钱啊</blockquote>
+所以报复社会是爽，又赚取又报复<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20031#       发表于 2026-1-3 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968389&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-3 16:46</a>
+
+我经常跟朋友开玩笑说，如果你工作不开心了就看看菌鸽鸽
+
+50多岁的人了，</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是蘑菇是真的赚的盆满钵满啊
+
+只有有钱了才能任性.....才能笑看月丑的无能狂怒
+
