@@ -2006,3 +2006,12 @@ Comiket去了吗？嗯，挺开心的。今年也一样，有种“打过招呼�
 
 五连胜光荣下播，话说日服otp有点多啊，看了下记录，好多都是同一个人在两边换，一场对局这边是波比otp，外面是蛇女otp，人马otp还有佐伊otp。
 
+
+*****
+
+####  sino__unnko3  
+##### 20161#       发表于 2026-1-4 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968672&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2026-1-3 17:43</a></blockquote>
+你咩高强度自搜，果然被点草了，jimmy老哥光速锁推
+
