@@ -7807,3 +7807,53 @@ Yls算是能力不太高，但是认真工作的类型了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  khxooo  
+##### 20000#       发表于 2026-1-3 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966521&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-3 07:50</a>
+真的气笑了 纯粹的大保底 最后一个出</blockquote>
+新年第一井，有点惨啊
+
+
+*****
+
+####  qixinno2  
+##### 20001#       发表于 2026-1-3 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966800&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-3 10:40</a>
+
+新年第一井，有点惨啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">非洲人是这样的 和你们这些欧狗不一样
+
+*****
+
+####  alucardcz  
+##### 20002#       发表于 2026-1-3 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-3 11:58</a>
+
+非洲人是这样的 和你们这些欧狗不一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">真正的非萌还没出呢！
+
+*****
+
+####  qixinno2  
+##### 20003#       发表于 2026-1-3 12:15
+
+ 本帖最后由 qixinno2 于 2026-1-3 12:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967111&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 12:03</a>
+
+真正的非萌还没出呢！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你只是懒 我刷出了270羁绊石强吃大保底
+
+<img src="https://img.stage1st.com/forum/202601/03/121731edlb7x56ejjodd6e.png" referrerpolicy="no-referrer">
+
+<strong>%4N)MV`9$X~@$L%1WTE$T.png</strong> (514.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-3 12:17 上传
+
