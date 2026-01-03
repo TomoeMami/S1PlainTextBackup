@@ -8293,3 +8293,61 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 
 访谈里可是说了非常羡慕小高这狡猾的家伙还能用V3这样的想法来亲手结束自己的作品
 
+
+*****
+
+####  qixinno2  
+##### 20045#       发表于 2026-1-3 21:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">冠位呆毛的新简称是棠
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  exiaexa  
+##### 20046#       发表于 2026-1-3 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969646&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2026-1-3 20:33</a>
+
+我发现老钟人对高层人物下基层去和粉丝互动这事巨有好感，隔壁木谷高明也是，明明之前风评差的要死，就因 ...</blockquote>
+因为不管是故意而为还是阴差阳错，亲民真有用啊，
+
+都不用举GBF的傻卵卡池，你游yls刚上任那年还是第二年来着，因为多发了200多石头
+
+汹涌的无氪民意立刻就把氪金佬提出的的氪金优惠问题给盖过去了，然后再也没人提
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 20047#       发表于 2026-1-3 22:46
+
+ 本帖最后由 KOBI 于 2026-1-3 22:51 编辑 
+
+我是挺怀疑那些喊打喊杀的家伙有几个是正儿八经的自己过剧情而不是去看翻译的
+
+就这两年这营运他们是真想FGO变成腐尸再完结?
+
+蘑菇没把缺失的东西拼个HE真是谢天谢地
+
+*****
+
+####  alucardcz  
+##### 20048#       发表于 2026-1-3 23:13
+
+ 本帖最后由 alucardcz 于 2026-1-3 23:14 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 终章只是众多问题中的一个  大的没来意料之中  但跨年会变追悼会什么都没 连ppt 新年福利都没介绍这谁又能想到呢    
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">虽然蘑菇就是个纯辣鸡 但是这应该和他没关系了吧  你别告诉我他权力大到连新年福利 福袋都不准介绍 逼着整个团队必须给我开追悼会。。。吧?                                                                                   
+
