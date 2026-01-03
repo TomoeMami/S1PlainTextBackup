@@ -7981,3 +7981,45 @@ Yls算是能力不太高，但是认真工作的类型了。
 这话翻译翻译就是爱玩玩不玩滚，现在回旋镖来了，FGO现在就这样了。</blockquote>
 FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fool  
+##### 20016#       发表于 2026-1-3 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967456&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-3 13:45</a>
+这话翻译翻译就是爱玩玩不玩滚，现在回旋镖来了，FGO现在就这样了。</blockquote>
+那也比玩着玩着强迫你组团打副本好。其实现在这样我也没什么不满。我的观点一向就是爱玩玩不玩滚，游戏做什么样要以制作人自己的想法为导向而不是玩家，因为我不想玩网友，特别是一堆网友集思广益做的游戏，不好玩我就滚，大家都滚了说明你做得垃圾活该你死，还能活下去说明还是喜欢的人多
+
+*****
+
+####  都谷捻柏  
+##### 20017#       发表于 2026-1-3 14:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的意思是现在制作人跑出来说，我不想做了，你们都滚吧，结合盐川的话一起看，就非常的典了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  森兰丸  
+##### 20018#       发表于 2026-1-3 15:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">极端月丑一边看着蘑菇写的东西一边写的不如自己意了就要问候蘑菇全家....找人买蘑菇手脚把蘑菇沉东京湾....还要爆破型月本社
+
+我要是蘑菇看到这些言论不黑化就很好了....怎么可能还会继续写下去伺候这群东西....反正都早就财富自由一辈子不愁吃喝玩耍不用看任何人脸色生活下去了
+
+而且据我观察下来这样的月丑大多都是因为某个章节或者某个角色半路入坑不久的跟风小鬼
+
+大多数一路10年玩下来的老东西都早就看开了....虽然肯定有失落感但基本上都不会变的这么极端
+
+*****
+
+####  都谷捻柏  
+##### 20019#       发表于 2026-1-3 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968070&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 15:53</a>
+
+极端月丑一边看着蘑菇写的东西一边写的不如自己意了就要问候蘑菇全家....找人买蘑菇手脚把蘑菇沉东京湾.... ...</blockquote>
+速胜急转速败就是这样的，这几年看到了太多。
+
