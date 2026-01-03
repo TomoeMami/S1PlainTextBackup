@@ -7665,3 +7665,87 @@ fsr和月姬都上了steam打折，你怎么不说extella和extella links是psv�
 
 换的罐子全部用完，苹果又没了，冠呆也没10绊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 19992#       发表于 2026-1-3 05:31
+
+ 本帖最后由 岸浪白野 于 2026-1-3 05:34 编辑 
+
+原来昨天晚上光头抽冠位呆5宝直播他的感想还挺直接的，当时挂着看没留意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“几乎9成的玩家通关了终章
+光头通关后立刻跟YLS聊了自己通关后的感受
+有件事想问各位，请问领主洛格雷斯是谁啊
+啊大家都不知道啊，那就安心了
+终章后实装的从者都挺尴尬的，实在是不知道他们是来干啥的
+通关后FGO好像变成了个APP，在这之前明明FGO就是我的人生
+人生中最重要的东西突然结束了不知道该怎么办
+总觉得还藏着什么，感受到了违和感
+FGO本身就是个不得不完结的作品，对于FGO来说完结是必须的
+虽然很寂寞，但必须要动手去结束
+YLS工作真的非常认真，平时挺内敛的基本不会多说什么，比谁都要热爱FGO
+跟他工作会让你觉得有这个人在那就没问题了
+FGO作为手游其实是很难做下去的，YLS为此付出了很多真的尽力了
+奥伯龙亲妈羽海野老师最终战耗时8个小时
+(年纪在那+战斗一直是通常速度没有加速+平时都是光头陪着给建议
+听到她自己一个人打完了光头非常震惊)”
+
+*****
+
+####  qixinno2  
+##### 19993#       发表于 2026-1-3 07:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的气笑了 纯粹的大保底 最后一个出
+
+<img src="https://img.stage1st.com/forum/202601/03/074952pvssz92vz2zdxqvv.png" referrerpolicy="no-referrer">
+
+<strong>Z{DQ(J4UE$NSL)J]X[CZREB.png</strong> (373.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-3 07:49 上传
+
+*****
+
+####  exiaexa  
+##### 19994#       发表于 2026-1-3 07:52
+
+ 本帖最后由 exiaexa 于 2026-1-3 07:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966145&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-1-2 23:49</a>
+
+fe和ccc算剧本附带的小游戏，fsr才是正经游戏，fex给光荣做不会做的那么垃圾的，说实话整个fe系列论游玩 ...</blockquote>
+也就ccc算啊，fe无印不管是剧本还是游戏性都只能用拉来形容
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那个时间段光荣估摸着也没兴趣接，那时候他正在爽卖联合突袭
+
+当时最好的选择其实可能是Imageepoch这个小公司，人做了第七龙神和最後の约束の物语，rpg味很正，突出一个低技术力但是能屎上雕花，拿来套你月的皮挺好的
+
+总比Marvelous这废物强太多
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 19995#       发表于 2026-1-3 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965996&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-2 22:59</a>
+
+再补充一点点也不想和你废话了，fel甚至后来还发了手机版和几个周年纪念版八成和mmv后来掰了销量也就不统 ...</blockquote>
+笑死，还给你装上了，还你觉得销量差不多那依据呢？
+
+我就这么说吧，fe这逼系列就是作品废物厨子也废物
+
+每次说销量就是顾左右而言他，哎哟我们是纯avd，卖不好那不是正常吗
+
+每次说质量就只会抱着一个ccc啃到死，合着买了其他作的就是冤种，那你菌别把名字顶上去啊，又想赚钱又不想担责是吧
+
+讨论设定就是跑出来你肯定没看过CCC，废话ccc这逼玩意儿除了厨子谁他妈看得下去啊，你菌鸽鸽阴湿xp真以为路人能忍？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+憋这么多年做个动画，一开始到处碰瓷，你菌鸽鸽亲自监督，结果直接拉成系列下水道
+
+宁愿天天抱着个破剧本在脑子里对着完美无缺的菌鸽鸽发情，也不去喷傻逼阿菌，这不活该吃屎
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
