@@ -4510,3 +4510,17 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 op完整版 https://www.bilibili.com/video/BV1VBiqBUELZ
 
+
+*****
+
+####  シャル  
+##### 438#       发表于 2026-1-3 21:44
+
+ 本帖最后由 シャル 于 2026-1-3 21:46 编辑 
+
+现在看起来，FS的伊斯塔实力真的牛逼的
+
+能从第0异闻带把天之公牛带出来<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+按理说平行世界根本不可能干涉异闻带的
+
