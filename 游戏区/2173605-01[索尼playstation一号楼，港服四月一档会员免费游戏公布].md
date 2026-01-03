@@ -92,3 +92,16 @@ PlayStation®中的角色似乎也在以愉快的方式庆祝新年🎍
 #プレイステーション
 <img src="https://p.sda1.dev/30/0f36fbe5e5f3615ddccf9a2ac6e239dc/1000098141.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 451#       发表于 2026-1-3 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966652&amp;ptid=2173605" target="_blank">霖岚_ 发表于 2026-1-3 09:29</a>
+
+日服官方发的新年贺图，一桌子凑不出几个独占，今年估计DS2羊蹄山都会上PC吧
+
+大家打算如何度过新年？</blockquote>
+ds2今年上，羊蹄山估计明年年初
+
