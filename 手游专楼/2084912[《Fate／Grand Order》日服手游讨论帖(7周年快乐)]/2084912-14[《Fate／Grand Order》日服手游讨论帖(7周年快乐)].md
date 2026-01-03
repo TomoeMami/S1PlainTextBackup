@@ -8351,3 +8351,48 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 终章只是众多问题中的一个  大的没来意料之中  但跨年会变追悼会什么都没 连ppt 新年福利都没介绍这谁又能想到呢    
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">虽然蘑菇就是个纯辣鸡 但是这应该和他没关系了吧  你别告诉我他权力大到连新年福利 福袋都不准介绍 逼着整个团队必须给我开追悼会。。。吧?                                                                                   
 
+
+*****
+
+####  khxooo  
+##### 20049#       发表于 2026-1-3 23:20
+
+福袋莉莉丝成功2宝，所以要来得加钱是吧。第二个福袋成功狙击因陀罗，算是三个中最能接受的一个了。
+
+*****
+
+####  TNN  
+##### 20050#       发表于 2026-1-3 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969934&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 21:35</a>
+
+依我看蘑菇这懒狗大概率第1部结束后就不想写了....本身就是不情不愿被人求爷爷告奶奶才来写这手游剧情的
+
+ ...</blockquote>
+日本剧作家都这么巨魔？小高目前的下场不像值得羡慕，也许菌类觉得自己有钱可以发巨魔还全身而退
+
+*****
+
+####  森兰丸  
+##### 20051#       发表于 2026-1-3 23:42
+
+ 本帖最后由 森兰丸 于 2026-1-3 23:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970406&amp;ptid=2084912" target="_blank">TNN 发表于 2026-1-3 23:36</a>
+
+日本剧作家都这么巨魔？小高目前的下场不像值得羡慕，也许菌类觉得自己有钱可以发巨魔还全身而退 ...</blockquote>
+好像也就蘑菇一个人这么巨魔吧....你可以理解成有钱了就是能为所欲为
+
+不过像小高这样没米了后落魄到来赛博乞讨的也是就这么一个
+
+没让蘑菇变成第二个小高只能说在场的各位氪金母猪都有罪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20052#       发表于 2026-1-3 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970406&amp;ptid=2084912" target="_blank">TNN 发表于 2026-1-3 23:36</a>
+
+日本剧作家都这么巨魔？小高目前的下场不像值得羡慕，也许菌类觉得自己有钱可以发巨魔还全身而退 ...</blockquote>
+别忘记他至今没有露过脸 这些都是巨魔的资本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
