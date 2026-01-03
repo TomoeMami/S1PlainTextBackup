@@ -7894,3 +7894,44 @@ Yls算是能力不太高，但是认真工作的类型了。
 事已至此，叶鸽鸽干脆把扫荡给整出来算了</blockquote>
 那可不行，毕竟你茵连宝具skip都ban了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20008#       发表于 2026-1-3 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967163&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-3 12:15</a>
+
+你只是懒 我刷出了270羁绊石强吃大保底</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">小事 我苹果也就比你多2位数而已！
+
+*****
+
+####  fool  
+##### 20009#       发表于 2026-1-3 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966601&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-3 09:01</a>
+看着挺腼腆的一个人。起码不像某人会说“不喜欢fgo的玩家，舍弃”。
+
+—— 来自 S1Fun ...</blockquote>
+单就这句话也没什么不好，要不策划就要舍弃爆金币能力下降的老登，改变玩法去讨好不喜欢老玩法的小登了
+
+*****
+
+####  alucardcz  
+##### 20010#       发表于 2026-1-3 13:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说 为什么平时一点事情就会跳起来飞的信长这次怎么一言不发 不会真被气死了吧？
+
+*****
+
+####  cenhr  
+##### 20011#       发表于 2026-1-3 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967340&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 13:11</a>
+
+话说 为什么平时一点事情就会跳起来飞的信长这次怎么一言不发 不会真被气死了吧？ ...</blockquote>
+看节目中的模样，更多是贤者模式了。
+
+不如说整个TM团体的Last都是贤者模式，所以玩家的声音全部都不想听，只是想享受干完10年的满足<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
