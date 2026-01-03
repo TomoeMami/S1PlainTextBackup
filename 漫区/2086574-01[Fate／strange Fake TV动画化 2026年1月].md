@@ -4532,3 +4532,21 @@ op完整版 https://www.bilibili.com/video/BV1VBiqBUELZ
 
 怎么今天更新的是第一集2333
 
+
+*****
+
+####  poiqwe  
+##### 440#       发表于 2026-1-4 00:37
+
+话说到底是多少集啊，我看有说是分割放送的
+
+
+*****
+
+####  岸波白野  
+##### 441#       发表于 2026-1-4 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970629&amp;ptid=2086574" target="_blank">poiqwe 发表于 2026-1-4 00:37</a>
+话说到底是多少集啊，我看有说是分割放送的</blockquote>
+bd box 1 看信息是收录1～13话，那应该是两季番分割放送吧
+
