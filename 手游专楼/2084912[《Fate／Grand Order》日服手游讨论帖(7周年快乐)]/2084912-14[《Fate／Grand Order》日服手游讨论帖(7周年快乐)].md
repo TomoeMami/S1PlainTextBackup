@@ -8023,3 +8023,45 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 极端月丑一边看着蘑菇写的东西一边写的不如自己意了就要问候蘑菇全家....找人买蘑菇手脚把蘑菇沉东京湾.... ...</blockquote>
 速胜急转速败就是这样的，这几年看到了太多。
 
+
+*****
+
+####  kiralzb  
+##### 20020#       发表于 2026-1-3 16:17
+
+反正一个极端到另一个极端，全是感情输出，翻旧账文字狱，断章取义，利用翻译的信息差，可见太多了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+话说礼装里这个限定狂用没副作用的黑杯，幻想公主，是什么时候新加的，整理仓库发现凸满了，怎么不每个职业来一张<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 20021#       发表于 2026-1-3 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967303&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 12:59</a>
+
+小事 我苹果也就比你多2位数而已！</blockquote>
+2位数！太羡慕了，现在连刷狗粮都要等自然回体<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20022#       发表于 2026-1-3 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968181&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-3 16:11</a>
+
+速胜急转速败就是这样的，这几年看到了太多。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是自己一厢情愿的想法...觉得肯定会有大的
+
+哪怕蘑菇好几年前就说过第2部就会完结自己不想再写下去了这群人也100%觉得SONY的大手肯定会发力把蘑菇按的死死的....现在幻想破灭接受不了就开始发癫了
+
+*****
+
+####  alucardcz  
+##### 20023#       发表于 2026-1-3 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968249&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-3 16:19</a>
+
+2位数！太羡慕了，现在连刷狗粮都要等自然回体</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但你无限圣晶石 四舍五入无限苹果
+
