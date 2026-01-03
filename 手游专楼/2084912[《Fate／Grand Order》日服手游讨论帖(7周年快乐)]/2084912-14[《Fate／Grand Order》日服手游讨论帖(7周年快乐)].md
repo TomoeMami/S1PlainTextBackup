@@ -8160,3 +8160,53 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 
 只有有钱了才能任性.....才能笑看月丑的无能狂怒
 
+
+*****
+
+####  alucardcz  
+##### 20032#       发表于 2026-1-3 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968440&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 17:00</a>
+
+可是蘑菇是真的赚的盆满钵满啊
+
+只有有钱了才能任性.....才能笑看月丑的无能狂怒 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就好像欧皇欧了才能在这笑嘻嘻  要是3000石3宝估计贴都不回了！
+
+*****
+
+####  森兰丸  
+##### 20033#       发表于 2026-1-3 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968589&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 17:30</a>
+
+就好像欧皇欧了才能在这笑嘻嘻  要是3000石3宝估计贴都不回了！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新又在尴黑....非洲人非起来可是真的有过3000石3宝!
+
+*****
+
+####  DARKGRAY  
+##### 20034#       发表于 2026-1-3 18:38
+
+怎么整了个理查体验本，不记得了，是去年新年没做吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20035#       发表于 2026-1-3 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969068&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2026-1-3 18:38</a>
+
+怎么整了个理查体验本，不记得了，是去年新年没做吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">动画开播啊
+
+*****
+
+####  DARKGRAY  
+##### 20036#       发表于 2026-1-3 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969096&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 18:42</a>
+
+动画开播啊</blockquote>
+按理说去年做了的话不是和打过的人没啥关系么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
