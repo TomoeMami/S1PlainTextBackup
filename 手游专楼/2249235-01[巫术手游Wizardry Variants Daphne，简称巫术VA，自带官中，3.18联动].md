@@ -136,3 +136,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 感觉大脚怪有点吃力过不去</blockquote>
 之前的几个洞刷了吗，卢洞砂洞别离洞啥的，大脚用上一章的好装备能过的
 
+
+*****
+
+####  toblkr  
+##### 657#       发表于 2026-1-3 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966583&amp;ptid=2249235" target="_blank">琉歌 发表于 2026-1-3 08:51</a>
+
+之前的几个洞刷了吗，卢洞砂洞别离洞啥的，大脚用上一章的好装备能过的 ...</blockquote>
+只刷了一点卢洞，等下再去试试了，感觉负面清不过来<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
