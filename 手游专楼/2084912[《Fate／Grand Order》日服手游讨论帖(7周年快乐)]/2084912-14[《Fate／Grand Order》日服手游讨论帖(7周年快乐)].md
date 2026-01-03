@@ -7749,3 +7749,61 @@ fe和ccc算剧本附带的小游戏，fsr才是正经游戏，fex给光荣做不
 宁愿天天抱着个破剧本在脑子里对着完美无缺的菌鸽鸽发情，也不去喷傻逼阿菌，这不活该吃屎
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 19996#       发表于 2026-1-3 08:42
+
+ 本帖最后由 exiaexa 于 2026-1-3 09:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966466&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-3 05:31</a>
+
+原来昨天晚上光头抽冠位呆5宝直播他的感想还挺直接的，当时挂着看没留意
+
+“几乎9成的玩家通关了终章
+
+光头通 ...</blockquote>
+阿叶能力行不行另说
+
+看得出来确实挺喜欢自己工作的
+
+别的不说每次能把自己游戏的剧情和梗接上，每次直播神态也维持得不错
+
+对比那些开个直播跟倒欠工资一样的同行
+
+只能说没点热爱真干不下去
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 19997#       发表于 2026-1-3 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966571&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-3 08:42</a>
+阿叶能力行不行另说
+
+看得出来确实挺喜欢自己工作的</blockquote>
+看着挺腼腆的一个人。起码不像某人会说“不喜欢fgo的玩家，舍弃”。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  khxooo  
+##### 19998#       发表于 2026-1-3 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68966466&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-3 05:31</a>
+原来昨天晚上光头抽冠位呆5宝直播他的感想还挺直接的，当时挂着看没留意
+“几乎9成的玩家通关了终章
+光头通 ...</blockquote>
+Yls算是能力不太高，但是认真工作的类型了。
+
+*****
+
+####  都谷捻柏  
+##### 19999#       发表于 2026-1-3 09:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在回头来看，十周年送1000石头，终章送5宝雷夫，都是关服前的临终关怀了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
