@@ -2054,3 +2054,11 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 
 机制左右脑互搏就算了，数值也没亮点，最后就这样了
 
+
+*****
+
+####  blue321  
+##### 3453#       发表于 2026-1-3 17:49
+
+本意是让多带几个盾掩护灵异在后面输出？可惜也真没必要为了带它特意上几个盾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
