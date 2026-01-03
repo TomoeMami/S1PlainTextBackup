@@ -8396,3 +8396,68 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 日本剧作家都这么巨魔？小高目前的下场不像值得羡慕，也许菌类觉得自己有钱可以发巨魔还全身而退 ...</blockquote>
 别忘记他至今没有露过脸 这些都是巨魔的资本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TNN  
+##### 20053#       发表于 2026-1-4 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970430&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 23:42</a>
+
+好像也就蘑菇一个人这么巨魔吧....你可以理解成有钱了就是能为所欲为
+
+不过像小高这样没米了后落魄到来赛 ...</blockquote>
+旮旯给木巨魔英灵殿还是挺多的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TNN  
+##### 20054#       发表于 2026-1-4 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970445&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 23:45</a>
+
+别忘记他至今没有露过脸 这些都是巨魔的资本</blockquote>
+不得不说日子作家和漫画家隐私保护得真好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20055#       发表于 2026-1-4 00:53
+
+ 本帖最后由 exiaexa 于 2026-1-4 01:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970406&amp;ptid=2084912" target="_blank">TNN 发表于 2026-1-3 23:36</a>
+
+日本剧作家都这么巨魔？小高目前的下场不像值得羡慕，也许菌类觉得自己有钱可以发巨魔还全身而退 ...</blockquote>
+醒醒，虽然你菌和小高都是特殊情况，但小高一个78年生人，做弹丸论破v3的时候才40岁不到，
+
+纯属年轻气盛，还没被社会打够
+
+我在上面举过例子，都在50多岁的时候
+
+富野光头在用V高达报复社会，但是人家真有才能，万代捏着鼻子继续用，现在还隔三差五出来锐评一下
+
+痞子在用evaQ报复社会，但是人家正常以后就去做eva终跟自己和解了
+
+小岛50多岁的时候从capcom跑出来，自己开公司然后靠死亡搁浅焕发第二春，影视游戏圈到处打卡
+
+你菌虽然low了点，但是钱一点没少赚，压力估计还是最低的那个
+
+对比起来小高纯属没活硬整级的活该，被逼着跑来小红书赛博乞讨
+
+三句不离请多买一份百日战记
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 20056#       发表于 2026-1-4 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68969934&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 21:35</a>
+
+依我看蘑菇这懒狗大概率第1部结束后就不想写了....本身就是不情不愿被人求爷爷告奶奶才来写这手游剧情的
+
+ ...</blockquote>
+不过大纲的两个点子，罗曼就是所罗门和迦勒底是异闻带 0 肯定是一开始定好的，手游业绩好的情况下菌类肯定是准备把初始大纲给消耗完的。
+
+但是中间的进度肯定发生了巨大的偏差，像 1.5 和 奏章这种明摆着拖时间的东西，不好说是有谁想写还是索尼想赚还是 lxs 产能
+
