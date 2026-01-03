@@ -8065,3 +8065,50 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 2位数！太羡慕了，现在连刷狗粮都要等自然回体</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但你无限圣晶石 四舍五入无限苹果
 
+
+*****
+
+####  森兰丸  
+##### 20024#       发表于 2026-1-3 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968293&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 16:26</a>
+
+但你无限圣晶石 四舍五入无限苹果</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但萌新天天单抽出货....四舍五入也是无限石头
+
+*****
+
+####  alucardcz  
+##### 20025#       发表于 2026-1-3 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968309&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 16:29</a>
+
+但萌新天天单抽出货....四舍五入也是无限石头</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">尬黑了 欧皇楼友今年的5星数量已经是萌新的3倍了
+
+*****
+
+####  qixinno2  
+##### 20026#       发表于 2026-1-3 16:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今年最非的依然是我纯正900大保底 太傻逼了
+
+*****
+
+####  exiaexa  
+##### 20027#       发表于 2026-1-3 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968070&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-3 15:53</a>
+
+极端月丑一边看着蘑菇写的东西一边写的不如自己意了就要问候蘑菇全家....找人买蘑菇手脚把蘑菇沉东京湾.... ...</blockquote>
+我经常跟朋友说，如果你工作不开心了就看看菌鸽鸽
+
+50多岁的人了，
+
+富野老光头在做V高达报复社会，痞子在做evaq报复社会，福田在做天使龙被白河豚追着喷，
+
+只有你菌鸽鸽还在给萌二写美少女喜欢你，要和你贴贴的脑瘫剧本
+
+是不是觉得自己的工作好像也没那么蛋疼
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
