@@ -7935,3 +7935,49 @@ Yls算是能力不太高，但是认真工作的类型了。
 
 不如说整个TM团体的Last都是贤者模式，所以玩家的声音全部都不想听，只是想享受干完10年的满足<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20012#       发表于 2026-1-3 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967368&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-3 13:19</a>
+
+看节目中的模样，更多是贤者模式了。
+
+不如说整个TM团体的Last都是贤者模式，所以玩家的声音全部都不想听 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节目肯定不能算 都是体面人 装都得装点样子出来
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">之前倒没啥 看到光头作为一个日本业内居然敢这么yygq有点惊讶（
+
+*****
+
+####  cenhr  
+##### 20013#       发表于 2026-1-3 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967383&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-3 13:25</a>
+
+节目肯定不能算 都是体面人 装都得装点样子出来
+
+之前倒没啥 看到光头作为一个日本业内居然敢这么yygq有点 ...</blockquote>
+光头已经很给面子了，更何况霓虹人心态以及知道FGO的“特殊”，向叶二哥这个能力有限，权力有限但老实和热爱工作的人喷也没用<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 20014#       发表于 2026-1-3 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967312&amp;ptid=2084912" target="_blank">fool 发表于 2026-1-3 13:01</a>
+
+单就这句话也没什么不好，要不策划就要舍弃爆金币能力下降的老登，改变玩法去讨好不喜欢老玩法的小登了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话翻译翻译就是爱玩玩不玩滚，现在回旋镖来了，FGO现在就这样了。
+
+*****
+
+####  cenhr  
+##### 20015#       发表于 2026-1-3 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967456&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-3 13:45</a>
+
+这话翻译翻译就是爱玩玩不玩滚，现在回旋镖来了，FGO现在就这样了。</blockquote>
+FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
