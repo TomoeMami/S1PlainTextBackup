@@ -7857,3 +7857,40 @@ Yls算是能力不太高，但是认真工作的类型了。
 
 2026-1-3 12:17 上传
 
+
+*****
+
+####  khxooo  
+##### 20004#       发表于 2026-1-3 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-3 11:58</a>
+非洲人是这样的 和你们这些欧狗不一样</blockquote>
+我今年一个五星都没有，哪来欧？
+
+*****
+
+####  qixinno2  
+##### 20005#       发表于 2026-1-3 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967213&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-3 12:31</a>
+
+我今年一个五星都没有，哪来欧？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">26年刚第三天就跟之前各种出的五星切割了是吧
+
+*****
+
+####  里村紅葉  
+##### 20006#       发表于 2026-1-3 12:38
+
+事已至此，叶鸽鸽干脆把扫荡给整出来算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20007#       发表于 2026-1-3 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68967242&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2026-1-3 12:38</a>
+
+事已至此，叶鸽鸽干脆把扫荡给整出来算了</blockquote>
+那可不行，毕竟你茵连宝具skip都ban了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
