@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1767215047,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -13085,15 +13085,6 @@
     "active": false,
     "update": false
   },
-  "2269230": {
-    "totalreply": 46,
-    "title": "[某些团体为了压“吃瓜蒙主”的热度实在是无所不用其极]",
-    "newtitle": "[某些团体为了压“吃瓜蒙主”的热度实在是无所不用其极]",
-    "lastedit": 1766264287,
-    "category": "手游战斗",
-    "active": false,
-    "update": false
-  },
   "2269816": {
     "totalreply": 59,
     "title": "[拉斯普京这样的人当年是怎么被日本人搞到世界英雄里的？]",
@@ -16682,7 +16673,7 @@
     "newtitle": "[【irodori】【たつき】2020年1月『へんたつ／平安达纪』专楼]",
     "lastedit": 1767214820,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2271201": {
@@ -17199,10 +17190,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 1391,
+    "totalreply": 1395,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[南美砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1767473888,
+    "lastedit": 1767474488,
     "category": "外野",
     "active": true,
     "update": false
