@@ -4502,3 +4502,11 @@ PV2：[https://youtu.be/EzbZP62K1-Q](https://youtu.be/EzbZP62K1-Q)
 
 以小说水平而论也不如我。
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 437#       发表于 2026-1-3 20:47
+
+op完整版 https://www.bilibili.com/video/BV1VBiqBUELZ
+
