@@ -4550,3 +4550,11 @@ op完整版 https://www.bilibili.com/video/BV1VBiqBUELZ
 话说到底是多少集啊，我看有说是分割放送的</blockquote>
 bd box 1 看信息是收录1～13话，那应该是两季番分割放送吧
 
+
+*****
+
+####  御坂MKII  
+##### 442#       发表于 2026-1-4 16:33
+
+现在是没中文源吗还，看了一眼 kisssub 和 nyaa 都只有日文和 global
+
