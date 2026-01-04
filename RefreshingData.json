@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 21306,
+    "totalreply": 21307,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1767541091,
+    "lastedit": 1767543018,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 26329,
+    "totalreply": 26331,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1767542416,
+    "lastedit": 1767543369,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9693,12 +9693,12 @@
     "update": false
   },
   "2124540": {
-    "totalreply": 890,
+    "totalreply": 895,
     "title": "[新月同行讨论楼（6月14日三测开启）]",
     "newtitle": "[新月同行讨论楼（6月14日三测开启）]",
-    "lastedit": 1767069028,
+    "lastedit": 1767543370,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1798614": {
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 29013,
+    "totalreply": 29017,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1767542887,
+    "lastedit": 1767543127,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12708,10 +12708,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 4404,
+    "totalreply": 4408,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1767542767,
+    "lastedit": 1767543370,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12870,10 +12870,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 3312,
+    "totalreply": 3313,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1767542658,
+    "lastedit": 1767543018,
     "category": "外野",
     "active": true,
     "update": false
@@ -16443,10 +16443,10 @@
     "update": false
   },
   "2271218": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[买了一件东西后，发现生活质量和幸福感提升了？丙午年ver.]",
     "newtitle": "[买了一件东西后，发现生活质量和幸福感提升了？丙午年ver.]",
-    "lastedit": 1767540851,
+    "lastedit": 1767543018,
     "category": "外野",
     "active": true,
     "update": false
@@ -17037,10 +17037,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 2316,
+    "totalreply": 2319,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[南美砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1767542658,
+    "lastedit": 1767543249,
     "category": "外野",
     "active": true,
     "update": false
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 74,
+    "totalreply": 78,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，等一个春节春直]",
-    "lastedit": 1767542658,
+    "lastedit": 1767543250,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17421,6 +17421,6 @@
     "lastedit": 1767541140,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   }
 }
