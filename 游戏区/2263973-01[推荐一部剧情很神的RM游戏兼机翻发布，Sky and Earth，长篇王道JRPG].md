@@ -215,3 +215,14 @@ ls说那么多其实就是轨迹型npc</blockquote>
  ...</blockquote>
 治标不治本啊，灵魂改造技术只是一个人类恶具现化的缺口而不是人类恶的来源，只是堵个口子有什么用
 
+
+*****
+
+####  blueelf  
+##### 204#         楼主| 发表于 2026-1-4 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965064&amp;ptid=2263973" target="_blank">发条之心 发表于 2026-1-2 17:30</a>
+
+推完了，怎么说呢......从形而上的角度主角团无疑占了大义，但在实务上比起主角团我更支持马尔多一方，哪怕 ...</blockquote>哪怕虚假的幸福也好于由自由意志主导的痛苦复制代码
+这个就上升到价值观的高度了，感觉日韩的创作者们对于自由意志是非常非常看重的，违背这个等于冒天下之大不韪<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
