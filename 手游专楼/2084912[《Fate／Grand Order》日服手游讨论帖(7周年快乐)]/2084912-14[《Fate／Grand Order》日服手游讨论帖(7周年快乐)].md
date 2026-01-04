@@ -8607,3 +8607,63 @@ V以后做了几部动画都是小成本，连Z高达复刻版都没预算全部
 正儿八经看完剧情也得吃最后梦结局一坨屎啊。</blockquote>
 严格说不算梦结局吧，就像那些穿越改变现实的剧情，也类似你做了预防某些事不发生也不算无用功。如果按这个结局的话，至少茄子看起来变正常人了没事了不是（按老所长没搞事线应该在南极就废弃掉停止机能了？）
 
+
+*****
+
+####  cenhr  
+##### 20070#       发表于 2026-1-4 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974085&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-4 16:29</a>
+
+然而这种阴谋论是搬运日本匿名版的，你应该问发这条的阴湿日本人是不是别的作家的孝子靠这样来招魂
+
+有空在 ...</blockquote>
+FHA不是大型NTR吗，就小安披着士郎皮干他的老婆们<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20071#       发表于 2026-1-4 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974245&amp;ptid=2084912" target="_blank">失落之翼 发表于 2026-1-4 16:54</a>
+
+严格说不算梦结局吧，就像那些穿越改变现实的剧情，也类似你做了预防某些事不发生也不算无用功。如果按这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">茄子?蘑菇亲自盖棺死的透透的 你现在的见面的茄子只不过是个路人而已（
+
+*****
+
+####  cenhr  
+##### 20072#       发表于 2026-1-4 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974430&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-4 17:23</a>
+
+茄子?蘑菇亲自盖棺死的透透的 你现在的见面的茄子只不过是个路人而已（</blockquote>
+不就合一些人的心，一直女同事女同事叫，真死了又BB<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20073#       发表于 2026-1-4 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974497&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-4 17:34</a>
+
+不就合一些人的心，一直女同事女同事叫，真死了又BB</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一隔壁又再复读什么狮子头新娘 过了那么多年了我还是没能理解这有什么好吐槽得
+
+*****
+
+####  plok201  
+##### 20074#       发表于 2026-1-4 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲道理，你真不把那个当茄子的话，不说平行世界作品，一切时间系作品都不是那个人了
+
+*****
+
+####  cenhr  
+##### 20075#       发表于 2026-1-4 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974509&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-4 17:36</a>
+
+有一说一隔壁又再复读什么狮子头新娘 过了那么多年了我还是没能理解这有什么好吐槽得 ...</blockquote>
+终章我看一堆人因为莉莉丝没出来都破防了，尤其是蘑菇写死了主角合玛修并不是他们们YY的同事关系后<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
