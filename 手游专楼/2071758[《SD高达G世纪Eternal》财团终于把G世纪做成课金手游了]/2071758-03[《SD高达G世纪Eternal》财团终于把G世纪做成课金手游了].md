@@ -2159,3 +2159,11 @@ MD机体和G-bit都能造啊
 00高达有这台李疯子坦克</blockquote>
 没事00那得多久之后了
 
+
+*****
+
+####  希望之花  
+##### 3462#       发表于 2026-1-5 04:25
+
+去国际服开个新号，刷了二十来个初始一个智慧女神都没有，全是拉克丝<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
