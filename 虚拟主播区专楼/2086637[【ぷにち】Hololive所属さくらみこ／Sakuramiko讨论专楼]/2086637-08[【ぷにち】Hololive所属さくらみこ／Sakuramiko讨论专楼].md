@@ -818,3 +818,36 @@ anti：打不倒告辞
 
 看看能说什么出来
 
+
+*****
+
+####  holofan  
+##### 11389#       发表于 2026-1-3 21:42
+
+<img src="https://img.stage1st.com/forum/202601/03/214134lbeverk394rj374x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-3 21:41 上传
+
+<img src="https://img.stage1st.com/forum/202601/03/214209yib01at1iinq1stb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-3 21:42 上传
+
+网友的哀鸣
+
+*****
+
+####  holofan  
+##### 11390#       发表于 2026-1-4 18:17
+
+已经进化到做任何直播任何内容都会炎上的程度了，SNS上反v势力+htj+野兔总攻开始了
+
+恭喜 宇宙最强vtb要诞生了
+
