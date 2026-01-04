@@ -33,3 +33,15 @@
 —— 来自 realme RMX3706, Android 13, 鹅球 v3.5.99-alpha ...</blockquote>
 其实还是因为岛田回来发力了
 
+
+*****
+
+####  冰风血羽  
+##### 1810#       发表于 2026-1-4 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975099&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-1-4 19:34</a>
+其实还是因为岛田回来发力了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说的就是岛田这俩
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
