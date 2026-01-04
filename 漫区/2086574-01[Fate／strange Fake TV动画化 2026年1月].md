@@ -4671,3 +4671,14 @@ Disc4：第11～13話
 
 —— 来自 Xiaomi 25079RPDCC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 449#       发表于 2026-1-5 03:09
+
+ 本帖最后由 岸浪白野 于 2026-1-5 03:11 编辑 
+
+首先这个星期放的是22年底放过的特别篇+24年底放过的第1集
+下个星期放的第2集其实在欧美也被25年8月先行线下上映第2集+12月先行上映1-4集加起来放过两遍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
