@@ -926,3 +926,24 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 所 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解出这层意思的你感觉比高桥悠也更神人
 
+
+*****
+
+####  milky658  
+##### 571#       发表于 2026-1-4 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68973848&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-1-4 15:42</a>
+理解出这层意思的你感觉比高桥悠也更神人</blockquote>
+不过欲望最终形态是爱还真是极狐官方访谈认证的。追极狐的时候看完猫的支线我也看出来了，猫的人物线是全剧的缩影，象征每个角色的从追求爱到奉献爱的过程，前几天看相关资料得到了印证。当时还想写个解析贴的，但看贴吧都在ttk，写了一两段就删了。结果下一集就是“相信不需要理由”，还好鸽了，不然要被清算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 572#       发表于 2026-1-4 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68973874&amp;ptid=2250267" target="_blank">milky658 发表于 2026-1-4 15:47</a>
+
+不过欲望最终形态是爱还真是极狐官方访谈认证的。追极狐的时候看完猫的支线我也看出来了，猫的人物线是全 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯说的ZZZ这段
+
