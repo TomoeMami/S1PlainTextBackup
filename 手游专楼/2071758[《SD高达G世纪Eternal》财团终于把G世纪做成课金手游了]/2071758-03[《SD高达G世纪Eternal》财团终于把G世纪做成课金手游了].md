@@ -2134,3 +2134,28 @@ MD机体和G-bit都能造啊
 菜的我都怀疑是 ...</blockquote>
 尊者，凤凰也是SSR地图炮，UR没有
 
+
+*****
+
+####  AminGly  
+##### 3460#       发表于 2026-1-4 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974583&amp;ptid=2071758" target="_blank">plok201 发表于 2026-1-4 17:48</a>
+
+明明开发异灵都给了个地图炮，就是不知道为啥最终战没有，把地图炮补上了那武器还算能接受
+
+菜的我都怀疑是 ...</blockquote>
+故意的
+
+*****
+
+####  AminGly  
+##### 3461#       发表于 2026-1-4 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68963785&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-2 11:51</a>
+
+不要换急着
+
+00高达有这台李疯子坦克</blockquote>
+没事00那得多久之后了
+
