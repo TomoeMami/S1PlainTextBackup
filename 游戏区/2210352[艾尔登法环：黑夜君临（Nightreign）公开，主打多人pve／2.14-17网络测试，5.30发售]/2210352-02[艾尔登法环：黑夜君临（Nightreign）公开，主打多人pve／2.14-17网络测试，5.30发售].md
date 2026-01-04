@@ -2589,3 +2589,21 @@ DLC后我就基本没见过这个词条了，包括山羊局，但是感觉王�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shyso  
+##### 2032#       发表于 2026-1-4 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972418&amp;ptid=2210352" target="_blank">ohi.02 发表于 2026-1-4 11:28</a>
+
+深五这两天碰到选无赖的好不容易赢了（但是无赖戴拳套），队友选守护者的话该怎么玩？目前排到守护者胜率为 ...</blockquote>
+理论上build成型的鸡哥可以solo carry三人难度的大部分的攻坚内容，队友区了的话鸡哥打起来更方便，打不过那就是鸡哥菜，当然，前提是队友在发育阶段能cover掉鸡哥降低的效率<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  petitlui  
+##### 2033#       发表于 2026-1-4 14:54
+
+队友选神鹰哥的话队里没隐选隐有隐可以选追铁执壶这些前期比较好发育的，其实dlc前一天那波更新大幅加强近战后神鹰哥道中应该也不至于太疲软…………不过如果机师本身不熟练确实很容易加倍拖后腿就是了
+
