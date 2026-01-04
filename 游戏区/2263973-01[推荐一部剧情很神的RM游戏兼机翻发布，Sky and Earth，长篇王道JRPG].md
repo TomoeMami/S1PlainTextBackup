@@ -250,3 +250,15 @@ ls说那么多其实就是轨迹型npc</blockquote>
 
 —— 来自 OnePlus PJA110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  古畑任三郎2015  
+##### 207#       发表于 2026-1-4 13:30
+
+第五章结束，这个算到半程了么
+
+到目前为止剧本都挺四平八稳的，而且这个展开不知为何总让我幻视异度装甲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过如果对标异度的话，这个主线又表现得太不现实残酷了，“连一刻都没有为圣地居民的死亡哀悼，立刻赶到天空国出差的主角团”<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
