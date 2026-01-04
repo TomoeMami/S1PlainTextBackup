@@ -27,3 +27,13 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202601/04/103103wtbh1zbzppgpbbj0.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  InfiniteGyre  
+##### 361#       发表于 2026-1-4 12:01
+
+水生奇美拉兽是新的吗，还挺有意思的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
